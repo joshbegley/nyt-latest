@@ -1,3 +1,7 @@
+**Norton Says Little as Bills to Clamp Down on D.C. Advance**\
+`At a heated committee session on bills exerting more federal control of Washington, the 88-year-old delegate sat quietly, reading with difficulty from a script.`\
+https://nytimes.com/2025/09/10/us/politics/eleanor-holmes-norton-dc.html
+
 **Ex-USF coach Jim Leavitt won't face prosecution in battery and theft case**\
 `Former coach was arrested last month after incident with ex-girlfriend.`\
 https://nytimes.com/athletic/6617729/2025/09/10/charges-dropped-jim-leavitt-ex-usf-coach/
@@ -7,11 +11,11 @@ https://nytimes.com/athletic/6617729/2025/09/10/charges-dropped-jim-leavitt-ex-u
 https://nytimes.com/2025/09/10/us/charlie-kirk-house-republicans-democrats.html
 
 **Reds rookie Chase Burns to be activated Friday, pitch out of bullpen with restrictions**\
-`“We’re trying to balance him finishing the year, because we think that’s really important,” manager Terry Francona said.`\
+`"We're trying to balance him finishing the year, because we think that's really important," manager Terry Francona said.`\
 https://nytimes.com/athletic/6617704/2025/09/10/reds-chase-burns-activated-bullpen/
 
 **Police Arrest Suspect in Death of Queens Couple in Burning House**\
-`The arrested man is Jamel McGriff. Investigators believe he killed a couple in their 70s, one of whom was found tied to a pole.`\
+`The arrested man is Jamel McGriff, 42. Investigators believe he killed a couple in their 70s, one of whom was found tied to a pole.`\
 https://nytimes.com/2025/09/10/nyregion/queens-couple-burning-house-arrest.html
 
 **Luis Garcia lands on Astros' IL with right elbow injury, likely done for season**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/10/us/politics/doj-guatemala-children-deportation.ht
 **New Jersey Is the Latest State to Expand Access to Updated Covid Shots**\
 `Pharmacists will be allowed to give the latest vaccines to anyone over 3, rebuffing federal efforts to limit the number of those eligible.`\
 https://nytimes.com/2025/09/10/nyregion/new-jersey-covid-vaccine-pharmacies.html
-
-**Conservative media figures are grieving Kirk’s death on the air.**\
-`By Jessica Testa and Michael M. Grynbaum`\
-https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah/conservative-media-figures-are-grieving-kirks-death-on-the-air
 

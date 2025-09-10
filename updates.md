@@ -1,3 +1,11 @@
+**Ex-USF coach Jim Leavitt won't face prosecution in battery and theft case**\
+`Former coach was arrested last month after incident with ex-girlfriend.`\
+https://nytimes.com/athletic/6617729/2025/09/10/charges-dropped-jim-leavitt-ex-usf-coach/
+
+**House Moment of Silence for Kirk Descends Into Partisan Strife**\
+`After a moment of silence to honor Charlie Kirk, Republicans and Democrats began shouting partisan insults at each other.`\
+https://nytimes.com/2025/09/10/us/charlie-kirk-house-republicans-democrats.html
+
 **Reds rookie Chase Burns to be activated Friday, pitch out of bullpen with restrictions**\
 `“We’re trying to balance him finishing the year, because we think that’s really important,” manager Terry Francona said.`\
 https://nytimes.com/athletic/6617704/2025/09/10/reds-chase-burns-activated-bullpen/
