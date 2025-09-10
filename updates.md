@@ -1,3 +1,19 @@
+**The Windup: A troubling Tigers investigation**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6615054/2025/09/10/tigers-investigation-misconduct-the-windup/
+
+**Folarin Balogun reminded USMNT why he's the answer to its striker problem**\
+`The Monaco forward's performance against Japan was a game-changer for Pochettino and the U.S.`\
+https://nytimes.com/athletic/6616031/2025/09/10/folarin-balogun-usmnt-striker-pochettino/
+
+**New Yorkers Support Free Buses, but They Don’t Think It Should Happen**\
+`A polling experiment shows how a small change in wording can make a big difference.`\
+https://nytimes.com/2025/09/10/upshot/polling-experiment-free-buses.html
+
+**Poland Has Invoked NATO’s Article 4. What Comes Next?**\
+`Article 4 allows member states to start a formal discussion within the alliance about threats to their security. It does not commit the alliance to military action.`\
+https://nytimes.com/2025/09/10/world/europe/what-is-nato-article-4.html
+
 **Jets to release Xavier Gipson three days after costly fumble: Source**\
 `Gipson was in his third season with the Jets.`\
 https://nytimes.com/athletic/6616098/2025/09/10/new-york-jets-xavier-gipson-release/
