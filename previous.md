@@ -1,3 +1,7 @@
+**Kimmel Calls Epstein’s ‘Birthday Book’ a ‘Gift That Keeps on Giving’**\
+`President Trump’s administration denied that he’d signed a lewd tribute to Jeffrey Epstein, but Jimmy Kimmel isn’t convinced.`\
+https://nytimes.com/2025/09/10/arts/television/kimmel-trump-epstein-birthday-book.html
+
 **Prime Minister, Exile and Now Prisoner: Thai Power Broker’s New Chapter**\
 `With Thaksin Shinawatra’s recent fall from favor, his political power is significantly diminished. But it is too early to write him off.`\
 https://nytimes.com/2025/09/10/world/asia/thailand-prime-minister-thaksin-shinawatra.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/10/learning/word-of-the-day-cacophonous.html
 **Nepalis Worry About Security Forces’ Next Step After Crackdown Leaves 22 Dead**\
 `Human rights groups condemned the use of lethal force against protesters. Experts say Nepal’s army and police have historically not been held to account.`\
 https://nytimes.com/2025/09/10/world/asia/nepal-security-forces-army-police.html
-
-**Here’s the latest.**\
-`By Bhadra Sharma, Francesca Regalado, Alex Travelli and Anushka Patil`\
-https://nytimes.com/live/2025/09/10/world/nepal-protests/heres-the-latest
 

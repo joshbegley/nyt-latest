@@ -1,3 +1,7 @@
+**Kimmel Calls Epstein’s ‘Birthday Book’ a ‘Gift That Keeps on Giving’**\
+`President Trump’s administration denied that he’d signed a lewd tribute to Jeffrey Epstein, but Jimmy Kimmel isn’t convinced.`\
+https://nytimes.com/2025/09/10/arts/television/kimmel-trump-epstein-birthday-book.html
+
 **Prime Minister, Exile and Now Prisoner: Thai Power Broker’s New Chapter**\
 `With Thaksin Shinawatra’s recent fall from favor, his political power is significantly diminished. But it is too early to write him off.`\
 https://nytimes.com/2025/09/10/world/asia/thailand-prime-minister-thaksin-shinawatra.html
