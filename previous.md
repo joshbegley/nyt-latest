@@ -1,3 +1,31 @@
+**At the Royal Opera House, a New Season Brings New Drama**\
+`The company’s director, Oliver Mears, talks about the opening performance of “Tosca,” the return of the soprano Anna Netrebko and more.`\
+https://nytimes.com/2025/09/10/arts/music/royal-opera-oliver-mears.html
+
+**Mamdani Reflects on 9/11 as He Vies to Be New York’s First Muslim Mayor**\
+`Ahead of the 24th anniversary of Sept. 11, Zohran Mamdani spoke about the importance of honoring the victims and the persistent Islamophobia the attacks provoked.`\
+https://nytimes.com/2025/09/10/nyregion/mamdani-sept-11-muslim.html
+
+**Prince Harry Reunites With King Charles for First Time in Over a Year**\
+`Harry and Charles had tea at Clarence House, the King’s London residence, on Wednesday afternoon, a palace official confirmed.`\
+https://nytimes.com/2025/09/10/world/europe/prince-harry-king-charles-reunion.html
+
+**Travis Kelce explains 'frustrating' collision that resulted in Xavier Worthy injury**\
+`Kelce took the blame for the collision of Chiefs pass catchers, saying "There's no excuse for me running into my own guys like that."`\
+https://nytimes.com/athletic/6616585/2025/09/10/xavier-worthy-injury-travis-kelce-kansas-city-chiefs/
+
+**Bari Weiss Closes In on Major Role at CBS News**\
+`The talks with Ms. Weiss, a founder of The Free Press, are the strongest sign yet that the new owner of CBS News intends to make major changes.`\
+https://nytimes.com/2025/09/10/business/media/cbs-news-bari-weiss-free-press.html
+
+**New York Loses Federal Grant for Head Start Program for Poor Families**\
+`The city’s Head Start preschool programs will not be required to close this school year, but the change injected fresh uncertainty into an unsettled early childhood system.`\
+https://nytimes.com/2025/09/10/nyregion/head-start-new-york-city-loses-federal-grant.html
+
+**A Verdi Masterwork, Lost in Italian Translation, Returns to the Stage**\
+`The Royal Opera will revive “Les Vêpres Siciliennes,” a French work experts say has long been overshadowed by an Italian version Verdi did not produce.`\
+https://nytimes.com/2025/09/10/arts/music/royal-opera-verdi.html
+
 **Lights. Camera. Freedom.**\
 `Matt Nadel has a job that he hopes one day won’t exist. “It feels like I’m trying to hack a broken system,” he says. He makes films about incarcerated people in an effort to persuade governors to grant them clemency. His plea? Put him out of business.`\
 https://nytimes.com/video/opinion/100000010387651/lights-camera-freedom.html
@@ -9,32 +37,4 @@ https://nytimes.com/2025/09/10/us/politics/trump-lisa-cook-fed-governor-appeal.h
 **Israel and Canada Davis Cup tie to be played behind closed doors due to 'safety concerns'**\
 `Pro-Palestinian protests against Israel's involvement in sport have intensified in recent months.`\
 https://nytimes.com/athletic/6615251/2025/09/10/israel-canada-davis-cup-tennis-closed-doors/
-
-**Patriots defensive coordinator Terrell Williams taking time away from team**\
-`Williams spent time away from the team this spring to address a health concern, but Mike Vrabel said this is unrelated to the earlier issue.`\
-https://nytimes.com/athletic/6616626/2025/09/10/terrell-williams-patriots-defensive-coordinator-absence/
-
-**Report: Wild star Kirill Kaprizov rejects most lucrative contract in NHL history**\
-`Kaprizov, who is entering the final year of a five-year, $45 million contract, can become an unrestricted free agent next July 1.`\
-https://nytimes.com/athletic/6616684/2025/09/10/wild-kirill-kaprizov-contract-report/
-
-**Football Manager 26 gets release date after 2025 edition cancelled**\
-`Football Manager 25 was cancelled in February this year after several delays in the release of the game`\
-https://nytimes.com/athletic/6616681/2025/09/10/football-manager-26-release-date-news/
-
-**Jerry Jones: 'There is no violation' in negotiations with Micah Parsons**\
-`Many players and some figures involved with the NFL Players Association disagree with Jones, including Hall of Famer Darrelle Revis.`\
-https://nytimes.com/athletic/6616487/2025/09/10/cowboys-jerry-jones-micah-parsons-contract-negotiations/
-
-**California’s Moral Dilemma on Gerrymandering**\
-`Readers respond to a guest essay about the Proposition 50 redistricting proposal in California. Also: Erasing history.`\
-https://nytimes.com/2025/09/10/opinion/gerrymandering-california.html
-
-**Quinn Hughes-Canucks drama hits hyperdrive after Jack's comments: 'What's he supposed to say?'**\
-`Quinn Hughes responded Wednesday to his brother's comments from a day earlier, when he said he would "love to" play together.`\
-https://nytimes.com/athletic/6616553/2025/09/10/quinn-hughes-canucks-jack-hughes/
-
-**Military Enforces Calm in Nepal After Two Days of Chaos**\
-`Leaders of a youthful protest movement that toppled a prime minister met with the military on Wednesday to discuss a path forward for the country.`\
-https://nytimes.com/2025/09/10/world/asia/nepal-protests-military.html
 
