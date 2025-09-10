@@ -1,3 +1,7 @@
+**‘Alien: Earth’ Episode 6 Recap: Inhuman Sacrifices**\
+`Neverland is falling into disorder despite its security protocols, with all sorts of saboteurs running amok.`\
+https://nytimes.com/2025/09/09/arts/television/alien-earth-episode-6-recap.html
+
 **Judge Rules Fed Governor Can Remain in Role, for Now**\
 `The decision is a win for Lisa Cook, the Federal Reserve governor whom President Trump sought to dismiss over allegations of mortgage fraud.`\
 https://nytimes.com/2025/09/09/business/federal-reserve-lisa-cook-ruling.html
@@ -6,7 +10,7 @@ https://nytimes.com/2025/09/09/business/federal-reserve-lisa-cook-ruling.html
 `Rhyme is of the essence in Cole Vandenberg and Harit Raghunathan’s New York Times Crossword debut.`\
 https://nytimes.com/2025/09/09/crosswords/daily-puzzle-2025-09-10.html
 
-**Protesters Call Trump ‘Hitler’ as He Dines Out in Washington**\
+**Protesters Call Out Trump as He Dines Out in Washington**\
 `Mr. Trump made the short trek from the White House to Joe’s Seafood, Prime Steak & Stone Crab to show that his federal crackdown on crime in the nation’s capital was working.`\
 https://nytimes.com/2025/09/09/us/politics/trump-dc-joes-seafood-protesters.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/09/us/politics/israel-trump-gaza-qatar-bombing.html
 **Trump Moves to Crack Down on Drug Advertising**\
 `The administration is proposing a return to a 1990s-era policy that kept most drug ads off TV. That could dent the revenues of drugmakers and major networks.`\
 https://nytimes.com/2025/09/09/health/fda-drug-advertising-warning-letters.html
-
-**How to watch Rays at White Sox: Time, TV, streaming for September 10**\
-`Find out how to watch the Tampa Bay Rays play the Chicago White Sox, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6614633/2025/09/09/rays-vs-white-sox-stream-how-to-watch-sept-10/
 

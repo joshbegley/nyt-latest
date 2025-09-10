@@ -1,3 +1,7 @@
+**Protesters Call Trump ‘Hitler’ as He Dines Out in Washington**\
+`Mr. Trump made the short trek from the White House to Joe’s Seafood, Prime Steak & Stone Crab to show that his federal crackdown on crime in the nation’s capital was working.`\
+https://nytimes.com/2025/09/09/us/politics/trump-dc-joes-seafood-protesters.html
+
 **Judge Rules Fed Governor Can Remain in Role, for Now**\
 `The decision is a win for Lisa Cook, the Federal Reserve governor whom President Trump sought to dismiss over allegations of mortgage fraud.`\
 https://nytimes.com/2025/09/09/business/federal-reserve-lisa-cook-ruling.html
