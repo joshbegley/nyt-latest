@@ -1,3 +1,7 @@
+**Judge Rules Fed Governor Can Remain in Role, for Now**\
+`The decision is a win for Lisa Cook, the Federal Reserve governor that President Trump sought to dismiss over allegations of mortgage fraud.`\
+https://nytimes.com/2025/09/09/business/federal-reserve-lisa-cook-ruling.html
+
 **When a Star Is First Seen**\
 `Rhyme is of the essence in Cole Vandenberg and Harit Raghunathan’s New York Times Crossword debut.`\
 https://nytimes.com/2025/09/09/crosswords/daily-puzzle-2025-09-10.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/09/health/fda-drug-advertising-warning-letters.html
 **How to watch Rays at White Sox: Time, TV, streaming for September 10**\
 `Find out how to watch the Tampa Bay Rays play the Chicago White Sox, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6614633/2025/09/09/rays-vs-white-sox-stream-how-to-watch-sept-10/
-
-**How to watch Cubs at Braves: Time, TV, streaming for September 10**\
-`Find out how to watch the Chicago Cubs play the Atlanta Braves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6614603/2025/09/09/cubs-vs-braves-stream-how-to-watch-sept-10/
 

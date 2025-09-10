@@ -1,3 +1,7 @@
+**Judge Rules Fed Governor Can Remain in Role, for Now**\
+`The decision is a win for Lisa Cook, the Federal Reserve governor that President Trump sought to dismiss over allegations of mortgage fraud.`\
+https://nytimes.com/2025/09/09/business/federal-reserve-lisa-cook-ruling.html
+
 **When a Star Is First Seen**\
 `Rhyme is of the essence in Cole Vandenberg and Harit Raghunathan’s New York Times Crossword debut.`\
 https://nytimes.com/2025/09/09/crosswords/daily-puzzle-2025-09-10.html
