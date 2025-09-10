@@ -1,3 +1,11 @@
+**What to Know About Israel’s Airstrike on Hamas in Qatar**\
+`Why did Israel attack? Who was killed? What has been the Qatari response? Here are answers to those and other key questions.`\
+https://nytimes.com/2025/09/10/world/middleeast/israel-attack-qatar-hamas.html
+
+**Barcelona's Camp Nou chaos leaves the Spanish champions without a home. What's next?**\
+`Just five days before their home fixture against Valencia, the Catalan club confirmed the game will be hosted at the Estadi Johan Cruyff`\
+https://nytimes.com/athletic/6615192/2025/09/10/barcelona-camp-nou-stadium-delay/
+
 **USMNT after one year of Pochettino: Shake-ups, process and an unclear World Cup outlook**\
 `Wednesday marks a year in charge for a USMNT manager who was supposed to take the team to another level. So far, results are mixed at best`\
 https://nytimes.com/athletic/6613788/2025/09/10/mauricio-pochettino-usmnt-one-year-world-cup/
