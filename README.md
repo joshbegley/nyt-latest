@@ -1,3 +1,7 @@
+**Are the Colts, Daniel Jones actually as good as they looked in Week 1?**\
+`You don't want to overreact to one week, but it's hard to ignore how good Indy looked on both sides of the ball against Miami. `\
+https://nytimes.com/athletic/6614007/2025/09/10/colts-daniel-jones-broncos/
+
 **Clippers' Kawhi Leonard saga could hinge on key missing phrase in the CBA**\
 `The Clippers investigation might not end with the harshest punishment. But the NBA could take a page from the NCAA's compliance playbook.`\
 https://nytimes.com/athletic/6615693/2025/09/10/clippers-kawhi-leonard-news-nba-investigation-cba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6614824/2025/09/10/usmnt-formation-change-pochettin
 **For the Raiders, the coaching difference is already clear: Five notes from a Week 1 win**\
 `Plus, Jakobi Meyers proves his worth, the defense delivers and the offensive line struggles in New England.`\
 https://nytimes.com/athletic/6611613/2025/09/10/pete-carroll-coaching-staff-performance-week-1/
-
-**I Feel Bad for My Mother, but I’m Sick of Her Complaining. Help!**\
-`A reader has come to dread phone calls from her mother, whose deep unhappiness she attributes to life with her “textbook narcissist” stepfather.`\
-https://nytimes.com/2025/09/10/style/family-phone-calls-impatience.html
 
