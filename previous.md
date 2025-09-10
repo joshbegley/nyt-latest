@@ -1,3 +1,19 @@
+**From F1 to football: The star-studded festival feel of the BMW PGA pro-am**\
+`Sir Andy Murray, Lando Norris and Gareth Bale were among the stars playing 18 holes on Wednesday.`\
+https://nytimes.com/athletic/6616844/2025/09/10/bmw-pga-championship-pro-am-norris-murray-bale/
+
+**House Passes Defense Policy Bill With Transgender, Diversity Restrictions**\
+`For the third year in a row, House Republicans pushed through a Pentagon policy measure that included conservative policy dictates.`\
+https://nytimes.com/2025/09/10/us/politics/house-defense-bill-diversity-restrictions.html
+
+**Flyers executives expect improvement, explain why 'this patient approach is working'**\
+`The Flyers, it seems, are done being sellers, even if Keith Jones and Dan Hilferty stopped short of predicting a playoff berth.`\
+https://nytimes.com/athletic/6617576/2025/09/10/flyers-roster-jones-hilferty/
+
+**Fashion’s Historic Shake-Up**\
+`This fall, 13 of the biggest brands in fashion will have new talent at the helm. What makes them tick?`\
+https://nytimes.com/interactive/2025/09/10/style/nyfw-new-york-fashion-week.html
+
 **What to Know About the Mass Protests in Nepal**\
 `The explosion of unrest in Nepal — with fires around the capital, Kathmandu, and the prime minister fleeing the country — was years in the making. Alex Travelli, a New York Times correspondent, describes what happened and why it happened now.`\
 https://nytimes.com/video/world/asia/100000010388442/what-to-know-about-the-mass-protests-in-nepal.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/09/10/well/eat/maha-report-nutrition.html
 **Read the N.T.S.B.’s interim report on Delta Flight 56**\
 `The National Transportation Safety Board’s preliminary report on the turbulence incident experienced by Delta Flight 56.`\
 https://nytimes.com/interactive/2025/09/10/us/ntsb-report-dl56.html
-
-**How Joe Burrow, Bengals are planning the latest offensive bounceback**\
-`A rough offensive second half vs. the Browns has the Bengals seeking solutions against the Jaguars in Week 2.`\
-https://nytimes.com/athletic/6617507/2025/09/10/joe-burrow-bengals-offense-jaguars/
-
-**Who Is MAHA Even For?**\
-`The movement is tearing down America’s health care institutions. To what end?`\
-https://nytimes.com/2025/09/10/opinion/kennedy-maha-cdc.html
-
-**Rosa Roisinblit, Who Championed the Missing in Argentina, Dies at 106**\
-`She helped create the activist group Grandmothers of Plaza de Mayo, which sought to find relatives who had been killed or “disappeared” by the 1976-83 military dictatorship.`\
-https://nytimes.com/2025/09/10/obituaries/rosa-roisinblit-dead.html
-
-**Maps and Photos: Where and When Charlie Kirk Was Fatally Shot**\
-`Maps and photos show how the shooting that killed Charlie Kirk on a university campus in Utah unfolded.`\
-https://nytimes.com/2025/09/10/us/charlie-kirk-shooting-timeline-map.html
 
