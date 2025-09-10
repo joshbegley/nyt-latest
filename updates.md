@@ -1,3 +1,7 @@
+**What to Know About the Mass Protests in Nepal**\
+`The explosion of unrest in Nepal — with fires around the capital, Kathmandu, and the prime minister fleeing the country — was years in the making. Alex Travelli, a New York Times correspondent, describes what happened and why it happened now.`\
+https://nytimes.com/video/world/asia/100000010388442/what-to-know-about-the-mass-protests-in-nepal.html
+
 **Charlie Kirk, a Close Trump Ally, Was Shot Dead in Utah**\
 `Also, NATO said it shot down Russian drones over Poland. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/09/10/briefing/charlie-kirk-shooting-russian-drones-poland.html
