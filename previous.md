@@ -1,4 +1,8 @@
-**Kyle Schwarber becomes the second Phillies player to hit 50 home runs in a season**\
+**Nationals’ search for top baseball executive includes Cubs, Dodgers personnel: Sources**\
+`Hiring a candidate from outside the organization would mark another change in direction for the Lerner family. `\
+https://nytimes.com/athletic/6614656/2025/09/09/washington-nationals-baseball-operations-search/
+
+**Kyle Schwarber becomes second Phillies player to hit 50 home runs in a season**\
 `Fifty homers puts him eight blasts away from tying Ryan Howard's single-season franchise record. `\
 https://nytimes.com/athletic/6596606/2025/09/09/kyle-schwarber-phillies-50-home-runs/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6614516/2025/09/09/houston-astros-luis-garcia-early
 **Zohran Mamdani calls on FIFA to abandon dynamic pricing plan for World Cup tickets**\
 `The Democratic nominee in the New York City mayoral race has launched a petition calling for three changes to World Cup ticket plans`\
 https://nytimes.com/athletic/6614124/2025/09/09/zohran-mamdani-world-cup-tickets/
-
-**Stuart Craig, Who Designed the Movie World of Harry Potter, Dies at 83**\
-`A three-time Oscar winner for production design, he was one of the few people to work on all eight Potter films and their three “Fantastic Beasts” spinoffs.`\
-https://nytimes.com/2025/09/09/movies/stuart-craig-dead.html
 
