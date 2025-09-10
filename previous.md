@@ -19,7 +19,7 @@ https://nytimes.com/2025/09/10/learning/word-of-the-day-cacophonous.html
 https://nytimes.com/2025/09/10/world/asia/nepal-security-forces-army-police.html
 
 **Here’s the latest.**\
-`By Anushka Patil, Bhadra Sharma, Francesca Regalado and Yan Zhuang`\
+`By Bhadra Sharma, Francesca Regalado, Alex Travelli and Anushka Patil`\
 https://nytimes.com/live/2025/09/10/world/nepal-protests/heres-the-latest
 
 **Live Updates: Nepal Under Curfew as Troops Patrol Kathmandu After Protests**\

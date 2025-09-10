@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+`By Bhadra Sharma, Francesca Regalado, Alex Travelli and Anushka Patil`\
+https://nytimes.com/live/2025/09/10/world/nepal-protests/heres-the-latest
+
 **How to watch Brewers at Rangers: Time, TV, streaming for September 10**\
 `Find out how to watch the Milwaukee Brewers play the Texas Rangers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6615105/2025/09/10/brewers-vs-rangers-stream-how-to-watch-sept-10/
