@@ -1,3 +1,7 @@
+**Mexico City Gas Explosion Injures at Least 58, With 19 Badly Burned**\
+`The cause of the enormous blast, which created chaos in one of the capital’s most heavily populated areas, was thought to be an accident. No deaths have yet been reported.`\
+https://nytimes.com/2025/09/10/world/americas/mexico-city-gas-explosion.html
+
 **Utah Valley University is a public school with a diverse set of students.**\
 `It is the largest public university in the state. Many of its students are older, and many are members of the Church of Latter Day Saints. It also enrolls a large number of Latinos.`\
 https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah/utah-valley-university-is-a-public-school-with-a-diverse-set-of-students
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/10/us/politics/eleanor-holmes-norton-dc.html
 **Ex-USF coach Jim Leavitt won't face prosecution in battery and theft case**\
 `Former coach was arrested last month after incident with ex-girlfriend.`\
 https://nytimes.com/athletic/6617729/2025/09/10/charges-dropped-jim-leavitt-ex-usf-coach/
-
-**House Moment of Silence for Kirk Descends Into Partisan Strife**\
-`After a moment of silence to honor Charlie Kirk, Republicans and Democrats began shouting partisan insults at each other.`\
-https://nytimes.com/2025/09/10/us/charlie-kirk-house-republicans-democrats.html
 

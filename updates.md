@@ -1,3 +1,7 @@
+**Mexico City Gas Explosion Injures at Least 58, With 19 Badly Burned**\
+`The cause of the enormous blast, which created chaos in one of the capital’s most heavily populated areas, was thought to be an accident. No deaths have yet been reported.`\
+https://nytimes.com/2025/09/10/world/americas/mexico-city-gas-explosion.html
+
 **Utah Valley University is a public school with a diverse set of students.**\
 `It is the largest public university in the state. Many of its students are older, and many are members of the Church of Latter Day Saints. It also enrolls a large number of Latinos.`\
 https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah/utah-valley-university-is-a-public-school-with-a-diverse-set-of-students
