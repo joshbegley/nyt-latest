@@ -1,3 +1,7 @@
+**Lowetide: Oilers need to start as they mean to go at this year's camp**\
+`The key for the Oilers could be building chemistry and familiarity in exhibition games.`\
+https://nytimes.com/athletic/6613214/2025/09/10/edmonton-oilers-training-camp-lines-2025/
+
 **Man City's Marmoush to miss Manchester Derby with knee injury**\
 `Marmoush will miss Sunday's Manchester derby, and is set to undergo further tests to determine the severity of the injury`\
 https://nytimes.com/athletic/6615245/2025/09/10/omar-marmoush-injury-update-man-city-team-news/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6612994/2025/09/10/ange-postecoglou-forest-what-to-
 **Dodger Details: The bullpen, the Roki Sasaki question, the almost-historic fill-in**\
 `The team is well aware of its struggles and shortcomings. 'I think we are what we are right now, and it hasn’t been good.'`\
 https://nytimes.com/athletic/6614997/2025/09/10/la-dodgers-bullpen-roki-sasaki/
-
-**Bubba Wallace on what people get wrong about him and why he needs to win: 12 Questions**\
-`Wallace talks about his perception, ending his 100-race winless streak, what him winning more would mean for NASCAR, and more.`\
-https://nytimes.com/athletic/6613198/2025/09/10/bubba-wallace-nascar-playoffs-brickyard-12-questions/
 

@@ -1,3 +1,7 @@
+**Lowetide: Oilers need to start as they mean to go at this year's camp**\
+`The key for the Oilers could be building chemistry and familiarity in exhibition games.`\
+https://nytimes.com/athletic/6613214/2025/09/10/edmonton-oilers-training-camp-lines-2025/
+
 **Man City's Marmoush to miss Manchester Derby with knee injury**\
 `Marmoush will miss Sunday's Manchester derby, and is set to undergo further tests to determine the severity of the injury`\
 https://nytimes.com/athletic/6615245/2025/09/10/omar-marmoush-injury-update-man-city-team-news/
