@@ -1,3 +1,31 @@
+**Utah Valley University is a public school with a diverse set of students.**\
+`It is the largest public university in the state. Many of its students are older, and many are members of the Church of Latter Day Saints. It also enrolls a large number of Latinos.`\
+https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah/utah-valley-university-is-a-public-school-with-a-diverse-set-of-students
+
+**How to watch Royals at Guardians: Time, TV, streaming for September 11**\
+`Find out how to watch the Kansas City Royals play the Cleveland Guardians, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6617911/2025/09/10/royals-vs-guardians-stream-how-to-watch-sept-11/
+
+**How to watch Pirates at Orioles: Time, TV, streaming for September 11**\
+`Find out how to watch the Pittsburgh Pirates play the Baltimore Orioles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6617909/2025/09/10/pirates-vs-orioles-stream-how-to-watch-sept-11/
+
+**How to watch Nationals at Marlins: Time, TV, streaming for September 11**\
+`Find out how to watch the Washington Nationals play the Miami Marlins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6617900/2025/09/10/nationals-vs-marlins-stream-how-to-watch-sept-11/
+
+**How to watch Mets at Phillies: Time, TV, streaming for September 11**\
+`Find out how to watch the New York Mets play the Philadelphia Phillies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6617898/2025/09/10/mets-vs-phillies-stream-how-to-watch-sept-11/
+
+**Russia’s Brazen Drone Incursion Into Poland Needs a Response**\
+`Putin’s move has to be considered a test, and the West needs to think about how to counter it.`\
+https://nytimes.com/2025/09/10/opinion/poland-nato-russia-putin-drones.html
+
+**How to watch Buccaneers at Texans: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Buccaneers play the Houston Texans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6617863/2025/09/10/buccaneers-vs-texans-stream-how-to-watch-sept-15/
+
 **Norton Says Little as Bills to Clamp Down on D.C. Advance**\
 `At a heated committee session on bills exerting more federal control of Washington, the 88-year-old delegate sat quietly, reading with difficulty from a script.`\
 https://nytimes.com/2025/09/10/us/politics/eleanor-holmes-norton-dc.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6617729/2025/09/10/charges-dropped-jim-leavitt-ex-u
 **House Moment of Silence for Kirk Descends Into Partisan Strife**\
 `After a moment of silence to honor Charlie Kirk, Republicans and Democrats began shouting partisan insults at each other.`\
 https://nytimes.com/2025/09/10/us/charlie-kirk-house-republicans-democrats.html
-
-**Reds rookie Chase Burns to be activated Friday, pitch out of bullpen with restrictions**\
-`"We're trying to balance him finishing the year, because we think that's really important," manager Terry Francona said.`\
-https://nytimes.com/athletic/6617704/2025/09/10/reds-chase-burns-activated-bullpen/
-
-**Police Arrest Suspect in Death of Queens Couple in Burning House**\
-`The arrested man is Jamel McGriff, 42. Investigators believe he killed a couple in their 70s, one of whom was found tied to a pole.`\
-https://nytimes.com/2025/09/10/nyregion/queens-couple-burning-house-arrest.html
-
-**Luis Garcia lands on Astros' IL with right elbow injury, likely done for season**\
-`If Garcia can't return this season, he'll become the fifth Houston starter to be sidelined for the year with an elbow injury.`\
-https://nytimes.com/athletic/6617568/2025/09/10/astros-luis-garcia-injury/
-
-**Chronic Disease Deaths Have Fallen Globally, but Progress in U.S. Stalled**\
-`Among working-age Americans, death from chronic disease actually increased — a rarity among high-income countries, a new report shows.`\
-https://nytimes.com/2025/09/10/well/chronic-disease-deaths.html
-
-**Education Department Ends Grant Funding Worth $350 Million for Minority-Serving Colleges**\
-`Education Secretary Linda McMahon said the money supported programs that the administration believes unfairly support minority students.`\
-https://nytimes.com/2025/09/10/us/politics/linda-mcmahon-federal-grants-colleges-universities.html
-
-**Justice Dept. Reverses Course on Claims Guatemalan Children’s Parents Sought Their Return**\
-`A government lawyer said there was no basis for claims made earlier to a judge about the children, who were nearly deported over Labor Day weekend.`\
-https://nytimes.com/2025/09/10/us/politics/doj-guatemala-children-deportation.html
-
-**New Jersey Is the Latest State to Expand Access to Updated Covid Shots**\
-`Pharmacists will be allowed to give the latest vaccines to anyone over 3, rebuffing federal efforts to limit the number of those eligible.`\
-https://nytimes.com/2025/09/10/nyregion/new-jersey-covid-vaccine-pharmacies.html
 
