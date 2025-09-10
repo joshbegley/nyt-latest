@@ -1,3 +1,15 @@
+**Charlie Kirk, Right-Wing Provocateur and Close Ally of Trump, Dies at 31**\
+`The founder of Turning Point USA played a central role in organizing young voters and giving shape to the pro-Trump agenda. He was fatally shot during a speaking event in Utah.`\
+https://nytimes.com/2025/09/10/us/politics/charlie-kirk-dead.html
+
+**Luka Dončić's EuroBasket run ends as Slovenia falls just short in quarterfinals**\
+`Dončić had 39 points in the defeat and averaged nearly 35 points in the tournament in leading an undermanned Slovenia to the quarterfinals.`\
+https://nytimes.com/athletic/6617366/2025/09/10/luka-doncic-slovenia-germany-score-result/
+
+**‘People Got Down in Waves’: A Witness’s Account of the Charlie Kirk Shooting**\
+`Andrew Piskadlo, who estimated that he was about 80 feet away when the shooting happened, said the crack of the shot was not heard by all.`\
+https://nytimes.com/2025/09/10/us/charlie-kirk-shooting-witnesses-utah.html
+
 **Trump and Leaders Across Political Spectrum React to Charlie Kirk Shooting**\
 `Some politicians called for prayers, while some others immediately cast blame.`\
 https://nytimes.com/2025/09/10/us/charlie-kirk-reaction-trump.html
