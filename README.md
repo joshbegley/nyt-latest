@@ -1,3 +1,7 @@
+**A MAHA Report**\
+`Today we look at the Make America Healthy Again movement.`\
+https://nytimes.com/2025/09/10/world/maha-report-qatar-russia-ukraine.html
+
 **​Anger Mounts in Korea as Release of Workers Detained in Georgia Is Delayed**\
 `It is unclear when the South Korean detainees will be repatriated. They were previously scheduled to depart the United States on Wednesday.`\
 https://nytimes.com/2025/09/10/world/asia/georgia-immigration-raid-hyundai-workers-south-korea.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6613768/2025/09/10/jordan-mason-vikings-monday-nigh
 **Nine thoughts on Craig Berube's interview, including Nick Robertson's forever hazy future**\
 `Plus, how the forward group might shake out and who will wear the A's for the team this season.`\
 https://nytimes.com/athletic/6613331/2025/09/10/maple-leafs-craig-berube-nick-robertson/
-
-**Four VPs, others affiliated with Detroit Tigers accused of misconduct toward women**\
-`Three of the accused men exited in a six-month period beginning last November.`\
-https://nytimes.com/athletic/6610869/2025/09/10/detroit-tigers-affiliates-accused-misconduct-women-vps/
 
