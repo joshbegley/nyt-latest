@@ -1,40 +1,40 @@
-**Woman Is Absolved Decades After Biting Attacker’s Tongue During Attempted Rape**\
-`Choi Mal-ja, who was convicted of inflicting bodily harm, said she fought for a retrial so other South Korean women would not suffer as she did.`\
-https://nytimes.com/2025/09/10/world/asia/south-korea-woman-tongue-attempted-rape.html
+**How the Falcons ended up landing both Kirk Cousins and Michael Penix Jr. a year ago**\
+`The Falcons tried to trade into the top five at the 2024 NFL combine. When that didn't work, they had to wait and hope to land Penix Jr.`\
+https://nytimes.com/athletic/6613042/2025/09/10/michael-penix-jr-kirk-cousins-falcons-nfl-draft-2024/
 
-**Before and after photos show how protests damaged Nepal’s government buildings.**\
-`Demonstrator in Kathmandu defied a curfew and set fire to government offices and the homes of politicians on Tuesday during an escalation of unrest.`\
-https://nytimes.com/live/2025/09/10/world/nepal-protests/before-and-after-photos-show-how-protests-damaged-nepals-government-buildings
+**Examining Drake Maye's early struggles and issues in the run game: Patriots mailbag**\
+`Will Maye ever be an elite NFL quarterback? Why did TreVeyon Henderson get so few carries? When will we see more of Kyle Williams?`\
+https://nytimes.com/athletic/6612090/2025/09/10/patriots-mailbag-drake-maye-run-game/
 
-**Kimmel Calls Epstein’s ‘Birthday Book’ a ‘Gift That Keeps on Giving’**\
-`President Trump’s administration denied that he’d signed a lewd tribute to Jeffrey Epstein, but Jimmy Kimmel isn’t convinced.`\
-https://nytimes.com/2025/09/10/arts/television/kimmel-trump-epstein-birthday-book.html
+**Republicans Race to Advance Trump’s Fed Pick Despite Ties to White House**\
+`Stephen Miran, a top economic adviser to the president, has said he intends to take a leave of absence if confirmed, heightening fears about the central bank’s independence.`\
+https://nytimes.com/2025/09/10/business/trump-fed-stephen-miran.html
 
-**Prime Minister, Exile and Now Prisoner: Thai Power Broker’s New Chapter**\
-`With Thaksin Shinawatra’s recent fall from favor, his political power is significantly diminished. But it is too early to write him off.`\
-https://nytimes.com/2025/09/10/world/asia/thailand-prime-minister-thaksin-shinawatra.html
+**Eight Months of Trump. One Quiz.**\
+`Your Fall politics quiz is here.`\
+https://nytimes.com/interactive/2025/09/10/opinion/columnists/10collins-quiz-interactive.html
 
-**They Created a Streetwear Line From Scratch. In High School.**\
-`At a school with a basketball-themed curriculum, students were “dreaming big.” But could they find a buyer?`\
-https://nytimes.com/2025/09/10/nyregion/high-school-students-bronx-streetwear-clothing.html
+**We Take Clouds for Granted**\
+`Clouds are changing, and we need to find out if it’s just temporary or from global warming.`\
+https://nytimes.com/interactive/2025/09/10/opinion/clouds-climate-change.html
 
-**Slang**\
-`How do you and your friends use slang?`\
-https://nytimes.com/2025/09/10/learning/slang.html
+**Vaccines and C.D.C. Chaos Expose Tensions Between Trump and Kennedy**\
+`While there is no evidence of a break between them, Health Secretary Robert F. Kennedy Jr. has caused consternation among President Trump and some of his aides.`\
+https://nytimes.com/2025/09/10/us/politics/trump-rfk-vaccines-cdc.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/09/10/crosswords/spelling-bee-forum.html
+**One of Trump’s Powers Over D.C. Reaches a Time Limit. Many Remain.**\
+`The president’s authority to make demands of local police expires on Wednesday night, but the most visible federal interventions in the city will remain for now.`\
+https://nytimes.com/2025/09/10/us/one-of-trumps-powers-over-dc-reaches-a-time-limit-many-remain.html
 
-**How to watch Brewers at Rangers: Time, TV, streaming for September 10**\
-`Find out how to watch the Milwaukee Brewers play the Texas Rangers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6615105/2025/09/10/brewers-vs-rangers-stream-how-to-watch-sept-10/
+**Gaza War Turns New Yorkers Against Israel, With Mayor’s Race as Backdrop**\
+`More New Yorkers say their sympathies lie with Palestinians rather than Israel in the long-running conflict in Gaza, according to a New York Times/Siena poll.`\
+https://nytimes.com/2025/09/10/nyregion/israel-hamas-poll-mamdani.html
 
-**Nuno out, Postecoglou in: Inside the upheaval at Nottingham Forest**\
-`Postecoglou was appointed within hours of Nuno's sacking at Forest - this is how the quick-fire changeover came about.`\
-https://nytimes.com/athletic/6613075/2025/09/10/nuno-postecoglou-nottingham-forest-marinakis/
+**Trump vs. Truth: The Fight for America’s History**\
+`Jeffrey Toobin talks with Bryan Stevenson about surviving the politics of fear in 2025.`\
+https://nytimes.com/2025/09/10/opinion/trump-smithsonian-bryan-stevenson.html
 
-**How to watch Falcons at Vikings: Time, TV, streaming**\
-`Find out how to watch the Atlanta Falcons play the Minnesota Vikings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6615088/2025/09/10/falcons-vs-vikings-stream-how-to-watch-sept-14/
+**Times-Siena Poll Shows Where Mamdani’s Strong Support Lies**\
+`Not only does Zohran Mamdani hold a commanding lead in the mayoral race, but a survey shows many voters find him inspirational.`\
+https://nytimes.com/2025/09/10/nyregion/times-siena-poll-shows-where-mamdanis-strong-support-lies.html
 
