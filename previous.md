@@ -1,3 +1,11 @@
+**Sharks sign Michael Misa, No. 2 pick in 2025 draft, to entry-level contract**\
+`The 18-year-old led the Ontario Hockey League last season with 134 points in 65 regular-season games.`\
+https://nytimes.com/athletic/6616648/2025/09/10/sharks-sign-michael-misa/
+
+**Bears choose your own adventure: 'Here we go again' or 'This is different'**\
+`It may not be until the Bears are back in the playoffs that that suffocating “Here we go again” vibe fully dissipates in Chicago.`\
+https://nytimes.com/athletic/6613494/2025/09/10/bears-vikings-ben-johnson-caleb-williams/
+
 **Submit your questions for Kevin Fishbain's Week 2 Bears mailbag**\
 `After an impressive start, the wheels fell off for Ben Johnson, Caleb Williams and the Bears in their season opener. What's on your mind?`\
 https://nytimes.com/athletic/6616843/2025/09/10/bears-mailbag-week-2-questions/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/10/arts/music/royal-opera-ai-festival.html
 **Ahead of Fashion Week, a Glimpse of the Future**\
 `A graduate show at the Fashion Institute of Technology introduced the industry to a new generation of designers and helped kick off a busy calendar for insiders.`\
 https://nytimes.com/2025/09/10/style/fit-act-5-mfa-showcase.html
-
-**An Artist Who’s Been Using the Same Woodblock for Over 15 Years**\
-`Chakaia Booker discusses printmaking and evolving old patterns.`\
-https://nytimes.com/2025/09/10/t-magazine/chakaia-booker.html
-
-**South Korea Sends Plane to Repatriate Workers After ICE Raid**\
-`South Korea chartered plane to repatriate workers after a recent ICE raid at a Hyundai-LG battery plant in Georgia.`\
-https://nytimes.com/video/us/politics/100000010389742/south-korea-repatriate-workers.html
 
