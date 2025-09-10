@@ -1,3 +1,7 @@
+**Explosive Protests in Nepal**\
+`Demonstrators have set fire to government buildings. The military has sent in troops to restore order.`\
+https://nytimes.com/2025/09/10/briefing/nepal-protests-qatar-israel-ukraine.html
+
 **Andre Onana's Manchester United exit and why he is leaving for Trabzonspor**\
 `The Cameroon goalkeeper is leaving before the Manchester derby and is likely to face Ederson in Istanbul instead`\
 https://nytimes.com/athletic/6613384/2025/09/10/andre-onana-manchester-united-trabzonspor/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6595238/2025/09/10/abi-burton-england-womens-rugby-
 **Quote of the Day: He Nearly Died on the Football Field. Is That Why Everybody Loves Him?**\
 `Quotation of the Day for Wednesday, September 10, 2025.`\
 https://nytimes.com/2025/09/10/pageoneplus/quote-of-the-day-he-nearly-died-on-the-football-field-is-that-why-everybody-loves-him.html
-
-**Hong Kong’s Same-Sex Rights Bill Meets Rare Defiance From Lawmakers**\
-`Legislators could sink a government proposal that would give some rights to couples who married overseas, raising questions about the city’s status as an international hub.`\
-https://nytimes.com/2025/09/10/world/asia/hong-kongs-same-sex-rights-bill-meets-rare-defiance-from-lawmakers.html
 
