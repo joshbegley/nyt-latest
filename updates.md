@@ -1,3 +1,7 @@
+**British Courts Service Destroys Banksy Mural Depicting Attack by Judge**\
+`The work, painted onto the walls of one of Britain’s most important court buildings, showed a judge attacking a demonstrator with a gavel.`\
+https://nytimes.com/2025/09/10/arts/design/banksy-destroyed.html
+
 **Andy Murray aiming to enter regional qualifying for The Open Championship**\
 `Murray explained he did not think he would have "any chance" of qualifying for the main event.`\
 https://nytimes.com/athletic/6616034/2025/09/10/andy-murray-golf-open-regional-qualifying/
