@@ -6,6 +6,10 @@ https://nytimes.com/2025/09/09/movies/stuart-craig-dead.html
 `Los Angeles residents are anxious once again following a Supreme Court ruling that allowed aggressive immigration raids to resume.`\
 https://nytimes.com/2025/09/09/us/los-angeles-immigrant-reaction.html
 
+**Aaron Judge passes Yogi Berra with 359th home run, moves into fifth place in Yankees history**\
+`New York's superstar outfielder passed Berra on the franchise's all time list and is two homers behind Joe DiMaggio.`\
+https://nytimes.com/athletic/6587699/2025/09/09/ny-yankees-aaron-judge-home-run-history/
+
 **Democrats Narrow Gap in House After Victory in Virginia Special Election**\
 `James Walkinshaw will fill a seat left open by the death of his former boss, Gerald Connolly, and shrink the Republicans’ majority in the chamber.`\
 https://nytimes.com/2025/09/09/us/politics/james-walkinshaw-virginia-house.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6614365/2025/09/09/mets-vs-phillies-stream-how-to-w
 **Man Pleads Guilty to Planning Attack on Power Substation in Tennessee**\
 `Skyler Philippi, 24, planned to use a drone packed with explosive materials to further an extremist ideology, prosecutors said.`\
 https://nytimes.com/2025/09/09/us/tennessee-energy-facility-destroy-guilty.html
-
-**How to watch Panthers at Cardinals: Time, TV, streaming**\
-`Find out how to watch the Carolina Panthers play the Arizona Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6614338/2025/09/09/panthers-vs-cardinals-stream-how-to-watch-sept-14/
 

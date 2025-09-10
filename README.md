@@ -1,3 +1,7 @@
+**Zohran Mamdani calls on FIFA to abandon dynamic pricing plan for World Cup tickets**\
+`The Democratic nominee in the New York City mayoral race has launched a petition calling for three changes to World Cup ticket plans`\
+https://nytimes.com/athletic/6614124/2025/09/09/zohran-mamdani-world-cup-tickets/
+
 **Stuart Craig, Who Designed the Movie World of Harry Potter, Dies at 83**\
 `A three-time Oscar winner for production design, he was one of the few people to work on all eight Potter films and their three “Fantastic Beasts” spinoffs.`\
 https://nytimes.com/2025/09/09/movies/stuart-craig-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6614366/2025/09/09/nationals-vs-marlins-stream-how-
 **How to watch Mets at Phillies: Time, TV, streaming for September 10**\
 `Find out how to watch the New York Mets play the Philadelphia Phillies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6614365/2025/09/09/mets-vs-phillies-stream-how-to-watch-sept-10/
-
-**Man Pleads Guilty to Planning Attack on Power Substation in Tennessee**\
-`Skyler Philippi, 24, planned to use a drone packed with explosive materials to further an extremist ideology, prosecutors said.`\
-https://nytimes.com/2025/09/09/us/tennessee-energy-facility-destroy-guilty.html
 

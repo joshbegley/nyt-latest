@@ -1,3 +1,7 @@
+**Aaron Judge passes Yogi Berra with 359th home run, moves into fifth place in Yankees history**\
+`New York's superstar outfielder passed Berra on the franchise's all time list and is two homers behind Joe DiMaggio.`\
+https://nytimes.com/athletic/6587699/2025/09/09/ny-yankees-aaron-judge-home-run-history/
+
 **Stuart Craig, Who Designed the Movie World of Harry Potter, Dies at 83**\
 `A three-time Oscar winner for production design, he was one of the few people to work on all eight Potter films and their three “Fantastic Beasts” spinoffs.`\
 https://nytimes.com/2025/09/09/movies/stuart-craig-dead.html
