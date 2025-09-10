@@ -1,3 +1,7 @@
+**Fantasy Football Matchup Rankings Week 2 | Strength of schedule**\
+`Jake Ciely's Week 2 fantasy football strength of schedule by position matchup rankings can help with tough start/sit decisions. `\
+https://nytimes.com/athletic/6616261/2025/09/10/fantasy-football-matchup-rankings-strength-schedule-week-2/
+
 **Cubs legend Anthony Rizzo is retiring as a player and rejoining org as an ambassador**\
 `The goodwill gesture will bring the 2016 World Series champion back to Wrigley Field this weekend and in the future.`\
 https://nytimes.com/athletic/6616100/2025/09/10/cubs-anthony-rizzo-retirement-ambassador/
