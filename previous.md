@@ -1,3 +1,19 @@
+**In Rebuke of Mayor Adams, City Council Overrides 3 Vetoes**\
+`Measures eliminating criminal summonses for unlicensed vending and giving higher pay to Instacart workers had been overruled by the mayor.`\
+https://nytimes.com/2025/09/10/nyregion/eric-adams-vetoes-city-council.html
+
+**Red Sox takeaways: Kyle Harrison debuts, Aroldis Chapman finally falters**\
+`Chapman gave up two hits in a tie game in the ninth, snapping a streak of 17 straight hitless outings across 50 batters.`\
+https://nytimes.com/athletic/6617798/2025/09/10/red-sox-kyle-harrison-debut-aroldis-chapman-hitless-streak/
+
+**America Mourns Charlie Kirk**\
+`This is a moment to turn down the volume and reflect on our political culture.`\
+https://nytimes.com/2025/09/10/opinion/charlie-kirk-mourning-political-violence.html
+
+**U.S. Accuses Pastor of Creating an International Sex-Abuse Operation**\
+`Naasón Joaquín García and his associates used La Luz del Mundo Church to traffic women and children and produce and distribute child pornography, New York prosecutors said.`\
+https://nytimes.com/2025/09/10/nyregion/church-racketeering-sex-abuse.html
+
 **Mexico City Gas Explosion Injures at Least 58, With 19 Badly Burned**\
 `The cause of the enormous blast, which created chaos in one of the capital’s most heavily populated areas, was thought to be an accident. No deaths have yet been reported.`\
 https://nytimes.com/2025/09/10/world/americas/mexico-city-gas-explosion.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6617900/2025/09/10/nationals-vs-marlins-stream-how-
 **How to watch Mets at Phillies: Time, TV, streaming for September 11**\
 `Find out how to watch the New York Mets play the Philadelphia Phillies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6617898/2025/09/10/mets-vs-phillies-stream-how-to-watch-sept-11/
-
-**Russia’s Brazen Drone Incursion Into Poland Needs a Response**\
-`Putin’s move has to be considered a test, and the West needs to think about how to counter it.`\
-https://nytimes.com/2025/09/10/opinion/poland-nato-russia-putin-drones.html
-
-**How to watch Buccaneers at Texans: Time, TV, streaming**\
-`Find out how to watch the Tampa Bay Buccaneers play the Houston Texans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6617863/2025/09/10/buccaneers-vs-texans-stream-how-to-watch-sept-15/
-
-**Norton Says Little as Bills to Clamp Down on D.C. Advance**\
-`At a heated committee session on bills exerting more federal control of Washington, the 88-year-old delegate sat quietly, reading with difficulty from a script.`\
-https://nytimes.com/2025/09/10/us/politics/eleanor-holmes-norton-dc.html
-
-**Ex-USF coach Jim Leavitt won't face prosecution in battery and theft case**\
-`Former coach was arrested last month after incident with ex-girlfriend.`\
-https://nytimes.com/athletic/6617729/2025/09/10/charges-dropped-jim-leavitt-ex-usf-coach/
 

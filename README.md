@@ -1,3 +1,15 @@
+**Videos of Charlie Kirk’s Shooting Spread Rapidly on Social Media**\
+`First posted to X, they amassed millions of views on Instagram, Threads, YouTube and Telegram within hours.`\
+https://nytimes.com/2025/09/10/technology/charlie-kirk-shooting-videos-social-media.html
+
+**Jaguars say Travis Hunter will play more on defense Sunday against Bengals**\
+`"The goal is to increase and continue to increase (Hunter's playing time),” Jags coach Liam Coen said.`\
+https://nytimes.com/athletic/6617841/2025/09/10/jaguars-travis-hunter-more-defense-bengals/
+
+**Charlie Kirk Was an Influential Figure in Right-Wing Politics and a Trump Loyalist**\
+`Mr. Kirk was an energetic member of President Trump’s inner circle who appealed to young conservative voters and wealthy Republicans alike.`\
+https://nytimes.com/2025/09/10/us/charlie-kirk-republicans-trump-politics.html
+
 **In Rebuke of Mayor Adams, City Council Overrides 3 Vetoes**\
 `Measures eliminating criminal summonses for unlicensed vending and giving higher pay to Instacart workers had been overruled by the mayor.`\
 https://nytimes.com/2025/09/10/nyregion/eric-adams-vetoes-city-council.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah/utah-valley-univer
 **How to watch Royals at Guardians: Time, TV, streaming for September 11**\
 `Find out how to watch the Kansas City Royals play the Cleveland Guardians, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6617911/2025/09/10/royals-vs-guardians-stream-how-to-watch-sept-11/
-
-**How to watch Pirates at Orioles: Time, TV, streaming for September 11**\
-`Find out how to watch the Pittsburgh Pirates play the Baltimore Orioles, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6617909/2025/09/10/pirates-vs-orioles-stream-how-to-watch-sept-11/
-
-**How to watch Nationals at Marlins: Time, TV, streaming for September 11**\
-`Find out how to watch the Washington Nationals play the Miami Marlins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6617900/2025/09/10/nationals-vs-marlins-stream-how-to-watch-sept-11/
-
-**How to watch Mets at Phillies: Time, TV, streaming for September 11**\
-`Find out how to watch the New York Mets play the Philadelphia Phillies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6617898/2025/09/10/mets-vs-phillies-stream-how-to-watch-sept-11/
 

@@ -1,3 +1,19 @@
+**In Rebuke of Mayor Adams, City Council Overrides 3 Vetoes**\
+`Measures eliminating criminal summonses for unlicensed vending and giving higher pay to Instacart workers had been overruled by the mayor.`\
+https://nytimes.com/2025/09/10/nyregion/eric-adams-vetoes-city-council.html
+
+**Red Sox takeaways: Kyle Harrison debuts, Aroldis Chapman finally falters**\
+`Chapman gave up two hits in a tie game in the ninth, snapping a streak of 17 straight hitless outings across 50 batters.`\
+https://nytimes.com/athletic/6617798/2025/09/10/red-sox-kyle-harrison-debut-aroldis-chapman-hitless-streak/
+
+**America Mourns Charlie Kirk**\
+`This is a moment to turn down the volume and reflect on our political culture.`\
+https://nytimes.com/2025/09/10/opinion/charlie-kirk-mourning-political-violence.html
+
+**U.S. Accuses Pastor of Creating an International Sex-Abuse Operation**\
+`Naasón Joaquín García and his associates used La Luz del Mundo Church to traffic women and children and produce and distribute child pornography, New York prosecutors said.`\
+https://nytimes.com/2025/09/10/nyregion/church-racketeering-sex-abuse.html
+
 **Mexico City Gas Explosion Injures at Least 58, With 19 Badly Burned**\
 `The cause of the enormous blast, which created chaos in one of the capital’s most heavily populated areas, was thought to be an accident. No deaths have yet been reported.`\
 https://nytimes.com/2025/09/10/world/americas/mexico-city-gas-explosion.html
