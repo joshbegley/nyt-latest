@@ -1,3 +1,11 @@
+**Poland Says It Shot Down Russian Drones That Entered Its Airspace**\
+`The Polish military called the incursions an “act of aggression.” It said the drones crossed the border during a wave of Russian strikes in Ukraine.`\
+https://nytimes.com/2025/09/10/world/europe/poland-russia-drones-ukraine-attack.html
+
+**Pulisic says Pochettino relationship not as much drama as it seems**\
+`The USMNT's star player and head coach have endured some rocky patches.`\
+https://nytimes.com/athletic/6614928/2025/09/10/pulisic-pochettino-relationship-drama-usmnt/
+
 **WNBA 2025 playoff field set as Storm clinch final postseason spot**\
 `For the first time since 2021, every WNBA playoff team has a winning record.`\
 https://nytimes.com/athletic/6614919/2025/09/10/wnba-2025-playoff-field-storm/
