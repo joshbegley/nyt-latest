@@ -1,3 +1,7 @@
+**Aaron Judge passes Yogi Berra, moves into 5th place in Yankees history with 359th home run**\
+`New York's superstar outfielder passed Berra on the franchise's all-time list and is two homers behind Joe DiMaggio.`\
+https://nytimes.com/athletic/6587699/2025/09/09/ny-yankees-aaron-judge-home-run-history/
+
 **Bolivia pips Venezuela to place in World Cup qualifying intercontinental playoff**\
 `There was plenty of drama to close World Cup qualifying in South America, where Bolivia beat Brazil to end Venezuela's World Cup dream`\
 https://nytimes.com/athletic/6614776/2025/09/09/bolivia-world-cup-qualifying-playoff-venezuela-south-america/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6614656/2025/09/09/washington-nationals-baseball-op
 **Kyle Schwarber becomes second Phillies player to hit 50 HRs in a season**\
 `Fifty homers puts him eight blasts away from tying Ryan Howard's single-season franchise record. `\
 https://nytimes.com/athletic/6596606/2025/09/09/kyle-schwarber-phillies-50-home-runs/
-
-**Once Again, Israel Leaves Trump in the Dark as It Conducts a Military Attack**\
-`President Trump said he was “very unhappy about the way that went down.”`\
-https://nytimes.com/2025/09/09/us/politics/israel-trump-gaza-qatar-bombing.html
 
