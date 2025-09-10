@@ -1,3 +1,11 @@
+**Boat Suspected of Smuggling Drugs Is Said to Have Turned Before U.S. Attacked It**\
+`The Trump administration has argued that the summary killing of 11 people it accused of running drugs was legal under the laws of war.`\
+https://nytimes.com/2025/09/10/us/trump-drug-boat-venezuela-strike.html
+
+**NFL Week 2 survivor pool picks: Cowboys and Rams are chalky, but wait ... Dolphins!?**\
+`A chalky Week 1 left most of us alive in survivor pools. Here's the strategy for Week 2.`\
+https://nytimes.com/athletic/6614156/2025/09/10/nfl-survivor-week-2-picks-strategy/
+
 **Harris Calls Democrats’ Deference to Biden ‘Recklessness’ in New Book**\
 `Former Vice President Kamala Harris also accused White House aides, without naming names, of not defending her from right-wing attacks about her competence.`\
 https://nytimes.com/2025/09/10/us/politics/kamala-harris-book-biden-107-days.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6616031/2025/09/10/folarin-balogun-usmnt-striker-po
 **New Yorkers Support Free Buses, but They Don’t Think It Should Happen**\
 `A polling experiment shows how a small change in wording can make a big difference.`\
 https://nytimes.com/2025/09/10/upshot/polling-experiment-free-buses.html
-
-**Poland Has Invoked NATO’s Article 4. What Comes Next?**\
-`Article 4 allows member states to start a formal discussion within the alliance about threats to their security. It does not commit the alliance to military action.`\
-https://nytimes.com/2025/09/10/world/europe/what-is-nato-article-4.html
-
-**Jets to release Xavier Gipson three days after costly fumble: Source**\
-`Gipson was in his third season with the Jets.`\
-https://nytimes.com/athletic/6616098/2025/09/10/new-york-jets-xavier-gipson-release/
 
