@@ -1,3 +1,11 @@
+**Live Updates: Charlie Kirk, Right-Wing Influencer, Apparently Shot in Utah**\
+`Mr. Kirk was speaking in front of a large crowd at Utah Valley University when he appeared to have been attacked. His condition was not immediately known.`\
+https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah
+
+**Here’s what to know.**\
+`Mr. Kirk appeared to be speaking in front of a large crowd when a shot rang out, according to video from the scene.`\
+https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah/charlie-kirk-shot-utah
+
 **Billy Lange leaves St. Joseph's to join New York Knicks staff**\
 `Lange was 81-104 overall with a 38-64 conference record.`\
 https://nytimes.com/athletic/6616857/2025/09/10/billy-lange-to-join-new-york-knicks-staff/
@@ -25,12 +33,4 @@ https://nytimes.com/newsgraphics/card-story/ten-tiny-homes
 **Sharks sign Michael Misa, No. 2 pick in 2025 draft, to entry-level contract**\
 `The 18-year-old led the Ontario Hockey League last season with 134 points in 65 regular-season games.`\
 https://nytimes.com/athletic/6616648/2025/09/10/sharks-sign-michael-misa/
-
-**Bears choose your own adventure: 'Here we go again' or 'This is different'**\
-`It may not be until the Bears are back in the playoffs that that suffocating “Here we go again” vibe fully dissipates in Chicago.`\
-https://nytimes.com/athletic/6613494/2025/09/10/bears-vikings-ben-johnson-caleb-williams/
-
-**Submit your questions for Kevin Fishbain's Week 2 Bears mailbag**\
-`After an impressive start, the wheels fell off for Ben Johnson, Caleb Williams and the Bears in their season opener. What's on your mind?`\
-https://nytimes.com/athletic/6616843/2025/09/10/bears-mailbag-week-2-questions/
 
