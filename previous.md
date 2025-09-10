@@ -1,3 +1,15 @@
+**Wolves and a difficult debate on Fields of Gold after poignant and powerful Jota tribute**\
+`The Molineux outpouring for their former forward will live long in the memory but should it continue to feature so close to kick-off?`\
+https://nytimes.com/athletic/6612484/2025/09/10/wolves-fields-of-gold-diogo-jota/
+
+**Why has Jack Grealish started so well at Everton?**\
+`Grealish is performing superbly for David Moyes – but is it down to tactics or just an early-season statistical quirk?`\
+https://nytimes.com/athletic/6610500/2025/09/10/jack-grealish-fast-start-everton-career/
+
+**How Liverpool sell players (and get so much money for them)**\
+`Breaking down how the Premier League champions made around £200m in sales this summer alone`\
+https://nytimes.com/athletic/6577412/2025/09/10/how-liverpool-sell-players-and-get-so-much-money-for-them/
+
 **Emiliano Martinez, Aston Villa and how to reintegrate a player who wanted to leave**\
 `After a summer of players itching for moves, we take a look at how to bring those who stay in from the cold`\
 https://nytimes.com/athletic/6601506/2025/09/10/aston-villa-martinez-transfers/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6613035/2025/09/10/connections-sports-edition-hints
 **Facing Israeli Assault, Many in Gaza City Say Fleeing Again Is Worse**\
 `Israel has ordered hundreds of thousands of people to evacuate the city and go to the southern Gaza Strip, but many residents say it is no safer for them there.`\
 https://nytimes.com/2025/09/10/world/middleeast/gaza-city-residents-israel.html
-
-**Corrections: Sept. 10, 2025**\
-`Corrections that appeared in print on Wednesday, Sept. 10, 2025.`\
-https://nytimes.com/2025/09/10/pageoneplus/corrections-sept-10-2025.html
-
-**Mets owners donate more than $2M to organization supporting women's baseball**\
-`The International Women's Baseball Center is raising money to renovate famed Beyer Stadium and build a museum dedicated to women's baseball.`\
-https://nytimes.com/athletic/6614810/2025/09/09/mets-donate-2-million-womens-baseball/
-
-**Pochettino singles out USMNT players who helped World Cup roster stock vs. Japan**\
-`Certain players helped themselves more than others in the USMNT's 2-0 win over Japan`\
-https://nytimes.com/athletic/6614768/2025/09/09/pochettino-usmnt-japan-world-cup-roster/
 
