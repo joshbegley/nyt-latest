@@ -1,3 +1,11 @@
+**Mets' Juan Soto becomes MLB's first 30-30 player in 2025**\
+`Soto’s previous career-best was 12 stolen bases, a figure he reached in 2019 and 2023.`\
+https://nytimes.com/athletic/6614710/2025/09/09/new-york-mets-juan-soto-milestone/
+
+**USMNT 2, Japan 0: Zendejas, Balogun take their chances in needed rebound win**\
+`Desperate for a win, the USMNT changed up its look and got a desired result, as Mauricio Pochettino's squad bounced back vs. Japan`\
+https://nytimes.com/athletic/6613615/2025/09/09/usmnt-japan-friendly-score-zendejas-balogun-pochettino-video/
+
 **Kyle Schwarber becomes second Phillies player to hit 50 HRs in a season**\
 `Fifty homers puts him eight blasts away from tying Ryan Howard's single-season franchise record. `\
 https://nytimes.com/athletic/6596606/2025/09/09/kyle-schwarber-phillies-50-home-runs/
