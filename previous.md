@@ -1,3 +1,7 @@
+**Man City's Marmoush to miss Manchester Derby with knee injury**\
+`Marmoush will miss Sunday's Manchester derby, and is set to undergo further tests to determine the severity of the injury`\
+https://nytimes.com/athletic/6615245/2025/09/10/omar-marmoush-injury-update-man-city-team-news/
+
 **Ohio State wanted more versatility in its offense. It turned to the tight ends**\
 `Head coach Ryan Day wanted to expand its personnel looks to make themselves more unpredictable. That's where the tight ends came into play.`\
 https://nytimes.com/athletic/6614150/2025/09/10/ohio-state-tight-end-evolution-offense/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6614997/2025/09/10/la-dodgers-bullpen-roki-sasaki/
 **Bubba Wallace on what people get wrong about him and why he needs to win: 12 Questions**\
 `Wallace talks about his perception, ending his 100-race winless streak, what him winning more would mean for NASCAR, and more.`\
 https://nytimes.com/athletic/6613198/2025/09/10/bubba-wallace-nascar-playoffs-brickyard-12-questions/
-
-**Real Madrid mailbag: Konate interest, Guler's progress and state of the Bernabeu**\
-`With Madrid back in La Liga action on Saturday, we asked you to send in your questions for Mario Cortegana and Guillermo Rai`\
-https://nytimes.com/athletic/6615639/2025/09/10/real-madrid-konate-guler-bernabeu/
 
