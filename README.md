@@ -1,3 +1,15 @@
+**Charlie Kirk, a Close Trump Ally, Was Shot Dead in Utah**\
+`Also, NATO said it shot down Russian drones over Poland. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/09/10/briefing/charlie-kirk-shooting-russian-drones-poland.html
+
+**Severe Turbulence Caught Delta Pilots Off Guard, New Report Says**\
+`A preliminary report from the National Transportation Safety Board detailed how a flight bound for Europe hit turbulence violent enough to send 18 passengers to the hospital.`\
+https://nytimes.com/2025/09/10/us/politics/delta-turbulence-ntsb.html
+
+**Lamar Jackson apologizes for pushing Bills fan: 'Just chill next time'**\
+`"I know guys are going to talk trash, but keep it that way and keep your hands and keep your objects to yourself," the Ravens QB said. `\
+https://nytimes.com/athletic/6617587/2025/09/10/lamar-jackson-bills-fan-apology/
+
 **Kennedy Report Won’t Solve America’s Food Issues, Experts Say**\
 `Food policy experts said the White House health report is full of promising ideas, but falls short in key ways.`\
 https://nytimes.com/2025/09/10/well/eat/maha-report-nutrition.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/10/us/charlie-kirk-shooting-timeline-map.html
 **How Macron Failed to Curb the Far Right**\
 `As France drifted to the right, the president has tried to make the country more business-friendly and win back voters. His strategy hasn’t worked.`\
 https://nytimes.com/2025/09/10/briefing/how-macron-failed-to-curb-the-far-right.html
-
-**Adam Silver suggests Kawhi Leonard investigation would need to yield substantial evidence for NBA to act**\
-`The NBA is investigating allegations that the Clippers, Steve Ballmer or Leonard conspired to circumvent the salary cap.`\
-https://nytimes.com/athletic/6616959/2025/09/10/adam-silver-kawhi-leonard-nba-investigation/
-
-**Tigers' business CEO defends organization after report of misconduct toward women**\
-`The CEO of the Detroit Tigers' business arm defended the organization's workplace culture following Wednesday's report by The Athletic.`\
-https://nytimes.com/athletic/6617460/2025/09/10/tigers-accused-misconduct-women-ceo-defends/
-
-**Many Palestinians Leave Gaza City After Evacuation Order**\
-`Nearly all of the city’s residents have already been forced from their homes at least once during the war, many of them multiple times. Several Palestinians do not believe that any place in Gaza is safe from Israeli strikes.`\
-https://nytimes.com/video/world/middleeast/100000010390783/gaza-city-evacuation-israel-hamas.html
 
