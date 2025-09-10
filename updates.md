@@ -1,3 +1,7 @@
+**Mayor Is a Rare Political Voice Supporting Nepal Protesters**\
+`Balendra Shah won an upset victory three years ago to become Kathmandu’s mayor. He’s using social media to coach protesters on the country’s next steps.`\
+https://nytimes.com/2025/09/10/world/asia/nepal-gen-z-protests-kathmandu-mayor-balendra-shah.html
+
 **A TikTok Trend That Gets at the Complex Legacy of ‘Hamilton’**\
 `By recreating a snippet of the number “Best of Wives and Best of Women,” these funny shorts serve as both tribute and critique.`\
 https://nytimes.com/2025/09/10/movies/hamilton-tiktok-trend.html

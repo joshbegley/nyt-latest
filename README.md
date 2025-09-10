@@ -1,3 +1,11 @@
+**From free hot dogs to pins: Topps Collectors Appreciation Day reward guide**\
+`Topps is partnering with MLB teams and major retailers to offer perks to card collectors`\
+https://nytimes.com/athletic/6614718/2025/09/10/topps-announces-collector-appreciation-day-rewards-at-mlb-parks-and-retail-locations/
+
+**Happy Birthday, LIGO. Now Drop Dead.**\
+`Ten years ago, astronomers made an epic discovery with the Laser Interferometer Gravitational-Wave Observatory. Cosmology hasn’t been the same since, and it might not stay that way much longer.`\
+https://nytimes.com/2025/09/10/science/gravitational-waves-ligo-black-holes.html
+
 **Mayor Is a Rare Political Voice Supporting Nepal Protesters**\
 `Balendra Shah won an upset victory three years ago to become Kathmandu’s mayor. He’s using social media to coach protesters on the country’s next steps.`\
 https://nytimes.com/2025/09/10/world/asia/nepal-gen-z-protests-kathmandu-mayor-balendra-shah.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6614986/2025/09/10/dodgers-padres-nl-west-race-batt
 **'Thunder On' doc tells the story of SMU's resurgence, 15 years after popular 'Pony Excess'**\
 `There's a new story to tell on the Hilltop — SMU's climb back to relevance after being crippled by the "death penalty" in the late '80s.`\
 https://nytimes.com/athletic/6613779/2025/09/10/smu-football-thunder-on-pony-express/
-
-**Olympic swimmer Proud joins Enhanced Games, retires from regular competition**\
-`The 30-year-old will no longer be able to compete in regular World Aquatics competition, where he has won 31 medals`\
-https://nytimes.com/athletic/6613391/2025/09/10/ben-proud-enhanced-games-doping-swimming/
-
-**Unrivaled women’s basketball league expanding with new teams, roster spots**\
-`When the second season begins in January 2026, the league will debut Hive Basketball Club and Breeze Basketball Club.`\
-https://nytimes.com/athletic/6613592/2025/09/10/unrivaled-womens-basketball-league-expansion-teams/
 
