@@ -1,3 +1,19 @@
+**Climate ‘Ideology’ Hurts Prosperity, Top U.S. Officials Tell Europeans**\
+`Chris Wright, the energy secretary, said he would push Europe to loosen environmental rules and buy more gas. Doug Burgum, the Interior secretary, tied fossil fuels to a need to win the A.I. race.`\
+https://nytimes.com/2025/09/10/climate/burgum-wright-europe-energy.html
+
+**Trump Moves to Scrap Biden Rule That Protected Public Lands**\
+`The proposal from the Bureau of Land Management would prioritize the use of public lands for oil and gas drilling, coal mining and other industrial activities.`\
+https://nytimes.com/2025/09/10/climate/trump-public-lands-rule-biden.html
+
+**French Police Investigate Pigs’ Heads Found Near Paris-Area Mosques**\
+`The heads were discovered near the entrances of several buildings. The episode was widely condemned in France as an anti-Muslim provocation.`\
+https://nytimes.com/2025/09/10/world/europe/pigs-heads-france-mosques.html
+
+**Lions' Amon-Ra St. Brown on Ben Johnson's return to Detroit: 'We all booing him'**\
+`The former Lions offensive coordinator returns to Ford Field on Sunday as the head coach of the Chicago Bears.`\
+https://nytimes.com/athletic/6616105/2025/09/10/ben-johnson-amon-ra-st-brown-bears-lions-boo/
+
 **British Courts Service Destroys Banksy Mural Depicting Attack by Judge**\
 `The work, painted onto the walls of one of Britain’s most important court buildings, showed a judge attacking a demonstrator with a gavel.`\
 https://nytimes.com/2025/09/10/arts/design/banksy-destroyed.html
