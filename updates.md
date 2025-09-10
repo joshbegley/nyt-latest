@@ -1,3 +1,15 @@
+**Andre Onana's Manchester United exit and why he is leaving for Trabzonspor**\
+`The Cameroon goalkeeper is leaving before the Manchester derby and is likely to face Ederson in Istanbul instead`\
+https://nytimes.com/athletic/6613384/2025/09/10/andre-onana-manchester-united-trabzonspor/
+
+**Pulisic says Pochettino relationship not as much drama as it seems**\
+`The USMNT's star player and head coach have endured some rocky patches`\
+https://nytimes.com/athletic/6614928/2025/09/10/pulisic-pochettino-relationship-drama-usmnt/
+
+**Leeds investment pitch analysed: £1bn future valuation and recruitment system**\
+`A pitch deck for investment into Leeds has leaked. The Athletic has analysed it`\
+https://nytimes.com/athletic/6589621/2025/09/10/leeds-united-investment-pitch-analysed/
+
 **Wolves and a difficult debate on Fields of Gold after poignant and powerful Jota tribute**\
 `The Molineux outpouring for their former forward will live long in the memory but should it continue to feature so close to kick-off?`\
 https://nytimes.com/athletic/6612484/2025/09/10/wolves-fields-of-gold-diogo-jota/

@@ -1,3 +1,15 @@
+**Andre Onana's Manchester United exit and why he is leaving for Trabzonspor**\
+`The Cameroon goalkeeper is leaving before the Manchester derby and is likely to face Ederson in Istanbul instead`\
+https://nytimes.com/athletic/6613384/2025/09/10/andre-onana-manchester-united-trabzonspor/
+
+**Pulisic says Pochettino relationship not as much drama as it seems**\
+`The USMNT's star player and head coach have endured some rocky patches`\
+https://nytimes.com/athletic/6614928/2025/09/10/pulisic-pochettino-relationship-drama-usmnt/
+
+**Leeds investment pitch analysed: £1bn future valuation and recruitment system**\
+`A pitch deck for investment into Leeds has leaked. The Athletic has analysed it`\
+https://nytimes.com/athletic/6589621/2025/09/10/leeds-united-investment-pitch-analysed/
+
 **Wolves and a difficult debate on Fields of Gold after poignant and powerful Jota tribute**\
 `The Molineux outpouring for their former forward will live long in the memory but should it continue to feature so close to kick-off?`\
 https://nytimes.com/athletic/6612484/2025/09/10/wolves-fields-of-gold-diogo-jota/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/10/pageoneplus/quote-of-the-day-he-nearly-died-on-th
 **Hong Kong’s Same-Sex Rights Bill Meets Rare Defiance From Lawmakers**\
 `Legislators could sink a government proposal that would give some rights to couples who married overseas, raising questions about the city’s status as an international hub.`\
 https://nytimes.com/2025/09/10/world/asia/hong-kongs-same-sex-rights-bill-meets-rare-defiance-from-lawmakers.html
-
-**Fantasy football rankings Week 2: Sleepers, projections, starts, Javonte Williams, Hollywood Brown and more**\
-`Jake Ciely's player rankings include reasons why Javonte Williams, Travis Etienne, among others, should be in your Week 2 lineups.`\
-https://nytimes.com/athletic/6614291/2025/09/10/fantasy-football-rankings-week-2-sleepers-projections-starts/
-
-**Connections: Sports Edition Coach: Hints for Sept. 10, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6613035/2025/09/10/connections-sports-edition-hints-for-sept-10-2025/
-
-**Facing Israeli Assault, Many in Gaza City Say Fleeing Again Is Worse**\
-`Israel has ordered hundreds of thousands of people to evacuate the city and go to the southern Gaza Strip, but many residents say it is no safer for them there.`\
-https://nytimes.com/2025/09/10/world/middleeast/gaza-city-residents-israel.html
 
