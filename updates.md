@@ -1,3 +1,7 @@
+**New Jersey Is the Latest State to Expand Access to Updated Covid Shots**\
+`Pharmacists will be allowed to give the latest vaccines to anyone over 3, rebuffing federal efforts to limit the number of those eligible.`\
+https://nytimes.com/2025/09/10/nyregion/new-jersey-covid-vaccine-pharmacies.html
+
 **Conservative media figures are grieving Kirk’s death on the air.**\
 `By Jessica Testa and Michael M. Grynbaum`\
 https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah/conservative-media-figures-are-grieving-kirks-death-on-the-air
