@@ -1,3 +1,7 @@
+**Cubs legend Anthony Rizzo is retiring as a player and rejoining org as an ambassador**\
+`The goodwill gesture will bring the 2016 World Series champion back to Wrigley Field this weekend and in the future.`\
+https://nytimes.com/athletic/6616100/2025/09/10/cubs-anthony-rizzo-retirement-ambassador/
+
 **Boat Suspected of Smuggling Drugs Is Said to Have Turned Before U.S. Attacked It**\
 `The Trump administration has argued that the summary killing of 11 people it accused of running drugs was legal under the laws of war.`\
 https://nytimes.com/2025/09/10/us/trump-drug-boat-venezuela-strike.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6615054/2025/09/10/tigers-investigation-misconduct-
 **Folarin Balogun reminded USMNT why he's the answer to its striker problem**\
 `The Monaco forward's performance against Japan was a game-changer for Pochettino and the U.S.`\
 https://nytimes.com/athletic/6616031/2025/09/10/folarin-balogun-usmnt-striker-pochettino/
-
-**New Yorkers Support Free Buses, but They Don’t Think It Should Happen**\
-`A polling experiment shows how a small change in wording can make a big difference.`\
-https://nytimes.com/2025/09/10/upshot/polling-experiment-free-buses.html
 
