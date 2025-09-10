@@ -1,5 +1,5 @@
 **What to Know About Israel’s Airstrike on Hamas in Qatar**\
-`Why did Israel attack? Who was killed? What has been the Qatari response? Answers to these, and other key questions.`\
+`Why did Israel attack? Who was killed? What has been the Qatari response? Here are answers to those and other key questions.`\
 https://nytimes.com/2025/09/10/world/middleeast/israel-attack-qatar-hamas.html
 
 **Barcelona's Camp Nou chaos leaves the Spanish champions without a home. What's next?**\
