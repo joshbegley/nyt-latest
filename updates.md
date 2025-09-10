@@ -1,3 +1,15 @@
+**Police Arrest Suspect in Death of Queens Couple in Burning House**\
+`The arrested man is Jamel McGriff. Investigators believe he killed a couple in their 70s, one of whom was found tied to a pole.`\
+https://nytimes.com/2025/09/10/nyregion/queens-couple-burning-house-arrest.html
+
+**Luis Garcia lands on Astros' IL with right elbow injury, likely done for season**\
+`If Garcia can't return this season, he'll become the fifth Houston starter to be sidelined for the year with an elbow injury.`\
+https://nytimes.com/athletic/6617568/2025/09/10/astros-luis-garcia-injury/
+
+**Chronic Disease Deaths Have Fallen Globally, but Progress in U.S. Stalled**\
+`Among working-age Americans, death from chronic disease actually increased — a rarity among high-income countries, a new report shows.`\
+https://nytimes.com/2025/09/10/well/chronic-disease-deaths.html
+
 **Luis Garcia lands on Astros' IL with right elbow injury, likely done for the season**\
 `If Garcia can't return this season, he'll become the fifth Houston starter to be sidelined for the year with an elbow injury.`\
 https://nytimes.com/athletic/6617568/2025/09/10/astros-luis-garcia-injury/

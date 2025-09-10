@@ -12,7 +12,7 @@ https://nytimes.com/2025/09/10/well/chronic-disease-deaths.html
 
 **Education Department Ends Grant Funding Worth $350 Million for Minority-Serving Colleges**\
 `Education Secretary Linda McMahon said the money supported programs that the administration believes unfairly support minority students.`\
-https://nytimes.com/2025/09/10/us/politics/education-department-ends-grant-funding-worth-350-million-for-minority-serving-colleges.html
+https://nytimes.com/2025/09/10/us/politics/linda-mcmahon-federal-grants-colleges-universities.html
 
 **Justice Dept. Reverses Course on Claims Guatemalan Children’s Parents Sought Their Return**\
 `A government lawyer said there was no basis for claims made earlier to a judge about the children, who were nearly deported over Labor Day weekend.`\
