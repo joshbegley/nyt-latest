@@ -1,3 +1,19 @@
+**The Windup: A troubling Tigers investigation**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6615054/2025/09/10/tigers-investigation-misconduct-the-windup/
+
+**Folarin Balogun reminded USMNT why he's the answer to its striker problem**\
+`The Monaco forward's performance against Japan was a game-changer for Pochettino and the U.S.`\
+https://nytimes.com/athletic/6616031/2025/09/10/folarin-balogun-usmnt-striker-pochettino/
+
+**New Yorkers Support Free Buses, but They Don’t Think It Should Happen**\
+`A polling experiment shows how a small change in wording can make a big difference.`\
+https://nytimes.com/2025/09/10/upshot/polling-experiment-free-buses.html
+
+**Poland Has Invoked NATO’s Article 4. What Comes Next?**\
+`Article 4 allows member states to start a formal discussion within the alliance about threats to their security. It does not commit the alliance to military action.`\
+https://nytimes.com/2025/09/10/world/europe/what-is-nato-article-4.html
+
 **Jets to release Xavier Gipson three days after costly fumble: Source**\
 `Gipson was in his third season with the Jets.`\
 https://nytimes.com/athletic/6616098/2025/09/10/new-york-jets-xavier-gipson-release/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6614718/2025/09/10/topps-announces-collector-apprec
 **Happy Birthday, LIGO. Now Drop Dead.**\
 `Ten years ago, astronomers made an epic discovery with the Laser Interferometer Gravitational-Wave Observatory. Cosmology hasn’t been the same since, and it might not stay that way much longer.`\
 https://nytimes.com/2025/09/10/science/gravitational-waves-ligo-black-holes.html
-
-**Mayor Is a Rare Political Voice Supporting Nepal Protesters**\
-`Balendra Shah won an upset victory three years ago to become Kathmandu’s mayor. He’s using social media to coach protesters on the country’s next steps.`\
-https://nytimes.com/2025/09/10/world/asia/nepal-gen-z-protests-kathmandu-mayor-balendra-shah.html
-
-**A TikTok Trend That Gets at the Complex Legacy of ‘Hamilton’**\
-`By recreating a snippet of the number “Best of Wives and Best of Women,” these funny shorts serve as both tribute and critique.`\
-https://nytimes.com/2025/09/10/movies/hamilton-tiktok-trend.html
-
-**Are the Colts, Daniel Jones actually as good as they looked in Week 1?**\
-`You don't want to overreact to one week, but it's hard to ignore how good Indy looked on both sides of the ball against Miami. `\
-https://nytimes.com/athletic/6614007/2025/09/10/colts-daniel-jones-broncos/
-
-**Clippers' Kawhi Leonard saga could hinge on key missing phrase in the CBA**\
-`The Clippers investigation might not end with the harshest punishment. But the NBA could take a page from the NCAA's compliance playbook.`\
-https://nytimes.com/athletic/6615693/2025/09/10/clippers-kawhi-leonard-news-nba-investigation-cba/
 
