@@ -1,3 +1,11 @@
+**Woman Is Absolved Decades After Biting Attacker’s Tongue During Attempted Rape**\
+`Choi Mal-ja, who was convicted of inflicting bodily harm, said she fought for a retrial so other South Korean women would not suffer as she did.`\
+https://nytimes.com/2025/09/10/world/asia/south-korea-woman-tongue-attempted-rape.html
+
+**Before and after photos show how protests damaged Nepal’s government buildings.**\
+`Demonstrator in Kathmandu defied a curfew and set fire to government offices and the homes of politicians on Tuesday during an escalation of unrest.`\
+https://nytimes.com/live/2025/09/10/world/nepal-protests/before-and-after-photos-show-how-protests-damaged-nepals-government-buildings
+
 **Kimmel Calls Epstein’s ‘Birthday Book’ a ‘Gift That Keeps on Giving’**\
 `President Trump’s administration denied that he’d signed a lewd tribute to Jeffrey Epstein, but Jimmy Kimmel isn’t convinced.`\
 https://nytimes.com/2025/09/10/arts/television/kimmel-trump-epstein-birthday-book.html
