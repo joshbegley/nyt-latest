@@ -1,9 +1,13 @@
+**At the Royal Opera House, a New Season Brings New Drama**\
+`The company’s director, Oliver Mears, talks about the opening performance of “Tosca,” the return of the soprano Anna Netrebko and more.`\
+https://nytimes.com/2025/09/10/arts/music/royal-opera-oliver-mears.html
+
 **Mamdani Reflects on 9/11 as He Vies to Be New York’s First Muslim Mayor**\
 `Ahead of the 24th anniversary of Sept. 11, Zohran Mamdani spoke about the importance of honoring the victims and the persistent Islamophobia the attacks provoked.`\
 https://nytimes.com/2025/09/10/nyregion/mamdani-sept-11-muslim.html
 
 **Prince Harry Reunites With King Charles for First Time in Over a Year**\
-`Harry and Charles had tea at Clarence House, the King’s London residence, a palace official confirmed.`\
+`Harry and Charles had tea at Clarence House, the King’s London residence, on Wednesday afternoon, a palace official confirmed.`\
 https://nytimes.com/2025/09/10/world/europe/prince-harry-king-charles-reunion.html
 
 **Travis Kelce explains 'frustrating' collision that resulted in Xavier Worthy injury**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/10/us/politics/trump-lisa-cook-fed-governor-appeal.h
 **Israel and Canada Davis Cup tie to be played behind closed doors due to 'safety concerns'**\
 `Pro-Palestinian protests against Israel's involvement in sport have intensified in recent months.`\
 https://nytimes.com/athletic/6615251/2025/09/10/israel-canada-davis-cup-tennis-closed-doors/
-
-**Patriots defensive coordinator Terrell Williams taking time away from team**\
-`Williams spent time away from the team this spring to address a health concern, but Mike Vrabel said this is unrelated to the earlier issue.`\
-https://nytimes.com/athletic/6616626/2025/09/10/terrell-williams-patriots-defensive-coordinator-absence/
 
