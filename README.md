@@ -1,3 +1,7 @@
+**Billy Lange leaves St. Joseph's to join New York Knicks staff**\
+`Lange was 81-104 overall with a 38-64 conference record.`\
+https://nytimes.com/athletic/6616857/2025/09/10/billy-lange-to-join-new-york-knicks-staff/
+
 **rescue-medic-wall-street**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/rescue-medic-wall-street
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6613494/2025/09/10/bears-vikings-ben-johnson-caleb-
 **Submit your questions for Kevin Fishbain's Week 2 Bears mailbag**\
 `After an impressive start, the wheels fell off for Ben Johnson, Caleb Williams and the Bears in their season opener. What's on your mind?`\
 https://nytimes.com/athletic/6616843/2025/09/10/bears-mailbag-week-2-questions/
-
-**'The competition is on' for England places, says Tuchel**\
-`The England head coach, speaking after the 5-0 win over Serbia, said that every player must be on their “best behaviour” to be considered.`\
-https://nytimes.com/athletic/6616565/2025/09/10/thomas-tuchel-england-squad-competition/
 
