@@ -1,3 +1,7 @@
+**Zohran Mamdani calls on FIFA to abandon dynamic pricing plan for World Cup tickets**\
+`The Democratic nominee in the New York City mayoral race has launched a petition calling for three changes to World Cup ticket plans`\
+https://nytimes.com/athletic/6614124/2025/09/09/zohran-mamdani-world-cup-tickets/
+
 **Aaron Judge passes Yogi Berra with 359th home run, moves into fifth place in Yankees history**\
 `New York's superstar outfielder passed Berra on the franchise's all time list and is two homers behind Joe DiMaggio.`\
 https://nytimes.com/athletic/6587699/2025/09/09/ny-yankees-aaron-judge-home-run-history/
