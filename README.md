@@ -1,3 +1,7 @@
+**Reds rookie Chase Burns to be activated Friday, pitch out of bullpen with restrictions**\
+`“We’re trying to balance him finishing the year, because we think that’s really important,” manager Terry Francona said.`\
+https://nytimes.com/athletic/6617704/2025/09/10/reds-chase-burns-activated-bullpen/
+
 **Police Arrest Suspect in Death of Queens Couple in Burning House**\
 `The arrested man is Jamel McGriff. Investigators believe he killed a couple in their 70s, one of whom was found tied to a pole.`\
 https://nytimes.com/2025/09/10/nyregion/queens-couple-burning-house-arrest.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6616844/2025/09/10/bmw-pga-championship-pro-am-norr
 **House Passes Defense Policy Bill With Transgender, Diversity Restrictions**\
 `For the third year in a row, House Republicans pushed through a Pentagon policy measure that included conservative policy dictates.`\
 https://nytimes.com/2025/09/10/us/politics/house-defense-bill-diversity-restrictions.html
-
-**Flyers executives expect improvement, explain why 'this patient approach is working'**\
-`The Flyers, it seems, are done being sellers, even if Keith Jones and Dan Hilferty stopped short of predicting a playoff berth.`\
-https://nytimes.com/athletic/6617576/2025/09/10/flyers-roster-jones-hilferty/
 
