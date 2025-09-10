@@ -1,40 +1,40 @@
-**A MAHA Report**\
-`Today we look at the Make America Healthy Again movement.`\
-https://nytimes.com/2025/09/10/world/maha-report-qatar-russia-ukraine.html
+**Putin’s Message to Ukraine, Europe and Trump: I Won’t Back Down**\
+`With escalating airstrikes, the Russian leader appears determined to demonstrate that he will dictate the terms for any end to the war.`\
+https://nytimes.com/2025/09/10/world/europe/russia-ukraine-putin-trump-europe.html
 
-**​Anger Mounts in Korea as Release of Workers Detained in Georgia Is Delayed**\
-`It is unclear when the South Korean detainees will be repatriated. They were previously scheduled to depart the United States on Wednesday.`\
-https://nytimes.com/2025/09/10/world/asia/georgia-immigration-raid-hyundai-workers-south-korea.html
+**TAFC: A night of statement wins for USMNT, England and Norway; how will Postecoglou fit at Forest?**\
+`Today in TAFC: A victory over a top-30 team for Pochettino - at last. Plus Haaland scores five and England come out of their shells...`\
+https://nytimes.com/athletic/6615063/2025/09/10/usmnt-japan-result-england-serbia-haaland-five-goals/
 
-**Rosenthal: After a disappointing 2025, these four MLB teams might be ready for success in 2026**\
-`In this crazy sport, all four teams might be pretenders. But in trying to establish which clubs next season might surprise, it’s a start.`\
-https://nytimes.com/athletic/6614384/2025/09/10/mlb-disappointments-success-athletics-orioles-diamondbacks-pirates/
+**An inside look at Trevor Story’s routine that's helped turned around his season**\
+`Story’s renaissance seemed unthinkable at the end of May, when he was hitting .216 with a .585 OPS.`\
+https://nytimes.com/athletic/6614742/2025/09/10/boston-red-sox-trevor-story-routine/
 
-**The Pulse: The latest on the brewing Clippers scandal**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6614037/2025/09/10/the-latest-on-the-brewing-clippers-scandal-plus-usmnts-bounceback/
+**College football Week 3 streaming guide: Georgia-Tennessee, A&M-Notre Dame, sleeper games**\
+`Here's a quick overview of this weekend's best college football offerings, including potential chaos games and The Backyard Brawl.`\
+https://nytimes.com/athletic/6613124/2025/09/10/college-football-how-to-watch-week-3-georgia-tennessee-notre-dame-texas-am/
 
-**Gulf Powers Question U.S. Protection After Israeli Attack on Qatari Soil**\
-`The audacious attempt to kill the political leaders of Hamas in Doha could upend the foundations of an American-led order in the Middle East.`\
-https://nytimes.com/2025/09/10/world/middleeast/israel-strike-qatar-us.html
+**49ers Mailbag: Trent Williams struggles, QB depth and other concerns**\
+`Other questions this week include why the 49ers said goodbye to Jordan Mason and how Nick Martin will crawl into the game-day lineup.`\
+https://nytimes.com/athletic/6614468/2025/09/10/49ers-brock-purdy-trent-williams-mailbag/
 
-**In loss to Tigers, Yankees make woeful franchise history: 'I haven't seen anything like that before'**\
-`The Tigers scored nine runs against the Yankees in the seventh inning after reaching base on five hits, five walks and a hit-by-pitch.`\
-https://nytimes.com/athletic/6614815/2025/09/10/new-york-yankees-bullpen-implosion/
+**Georgia's defense has flummoxed Josh Heupel's Tennessee. Will that prove true again?**\
+`Josh Heupel arrived at Tennessee four years ago with a unique offensive system. It has worked against most teams — except Georgia.`\
+https://nytimes.com/athletic/6612957/2025/09/10/cfb-georgia-defense-tennessee-offense/
 
-**Bears choose your own adventure: 'Here we go again' or 'This is different'**\
-`It may not be until the Bears are back in the playoffs that that suffocating “Here we go again” vibe fully dissipates in Chicago.`\
-https://nytimes.com/athletic/6613494/2025/09/10/bears-vikings-ben-johnson-caleb-williams/
+**Ranking the NHL’s top 20 Calder Trophy candidates for the 2025-26 season**\
+`Ahead of the season, Scott Wheeler and Harman Dayal rank the players eligible for the NHL's rookie of the year award.`\
+https://nytimes.com/athletic/6598442/2025/09/10/nhl-calder-trophy-2025-buium-demidov/
 
-**Rhea Moore, 15, on becoming the youngest goal scorer in U.S. women’s pro soccer**\
-`Her head coach, Chris Petrucelli, was struck by the Moore family’s clarity of vision for Rhea’s career path.`\
-https://nytimes.com/athletic/6614306/2025/09/10/youngest-goal-scorer-rhea-moore-dallas-trinity/
+**2022 NHL re-draft: Juraj Slafkovský, Logan Cooley, Shane Wright lead the class**\
+`The 2022 draft wasn't considered the most exciting, and after the top players, the list is a bit jumbled.`\
+https://nytimes.com/athletic/6592365/2025/09/10/nhl-redraft-2022-slafkovsky-cooley-wright-2/
 
-**Vikings RB Jordan Mason establishing himself as the bell cow Minnesota wanted**\
-`The Vikings were ecstatic to add the talented running back via trade in March. Monday night, he showed the rest of the world why.`\
-https://nytimes.com/athletic/6613768/2025/09/10/jordan-mason-vikings-monday-night-football-bears/
+**Mandel's mailbag: Gators fans' thoughts on Napier's situation and Belichick banning Pats scouts**\
+`Plus, what do the late start times mean for Big Ten fans? And how does Stewart Mandel watch games on Saturdays?`\
+https://nytimes.com/athletic/6614509/2025/09/10/mandels-mailbag-gators-napier-belichick-banning-patriots-scouts/
 
-**Nine thoughts on Craig Berube's interview, including Nick Robertson's forever hazy future**\
-`Plus, how the forward group might shake out and who will wear the A's for the team this season.`\
-https://nytimes.com/athletic/6613331/2025/09/10/maple-leafs-craig-berube-nick-robertson/
+**Phillies powered by Kyle Schwarber, trade deadline acquisitions as postseason nears**\
+`Armed with those reinforcements in July, the Phillies have operated with a certain confidence.`\
+https://nytimes.com/athletic/6614856/2025/09/10/phillies-postseason-mets-kyle-schwarber/
 
