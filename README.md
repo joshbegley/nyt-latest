@@ -15,7 +15,7 @@ https://nytimes.com/2025/09/10/world/asia/nepal-security-forces-army-police.html
 https://nytimes.com/live/2025/09/10/world/nepal-protests/heres-the-latest
 
 **Live Updates: Nepal Under Curfew as Troops Patrol Kathmandu After Protests**\
-`Security forces fired on demonstrators angry about censorship and economic issues, leaving at least 22 people dead. Troops were deployed after some protesters set fire to government buildings.`\
+`Security forces fired on demonstrators angry about censorship and economic issues, leaving at least 22 people dead. The army deployed troops after some protesters set fire to government buildings.`\
 https://nytimes.com/live/2025/09/10/world/nepal-protests
 
 **The sublime goal (and display) that kickstarted England's Thomas Tuchel era**\

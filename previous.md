@@ -1,3 +1,7 @@
+**How to watch Falcons at Vikings: Time, TV, streaming**\
+`Find out how to watch the Atlanta Falcons play the Minnesota Vikings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6615088/2025/09/10/falcons-vs-vikings-stream-how-to-watch-sept-14/
+
 **Word of the Day: cacophonous**\
 `This word has appeared in 21 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/09/10/learning/word-of-the-day-cacophonous.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/10/world/europe/poland-russia-drones-ukraine-attack.
 **WNBA 2025 playoff field set as Storm clinch final postseason spot**\
 `For the first time since 2021, every WNBA playoff team has a winning record.`\
 https://nytimes.com/athletic/6614919/2025/09/10/wnba-2025-playoff-field-storm/
-
-**Explosive Protests in Nepal**\
-`Demonstrators have set fire to government buildings. The military has sent in troops to restore order.`\
-https://nytimes.com/2025/09/10/briefing/nepal-protests-qatar-israel-ukraine.html
 

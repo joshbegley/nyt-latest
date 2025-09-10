@@ -1,3 +1,7 @@
+**How to watch Falcons at Vikings: Time, TV, streaming**\
+`Find out how to watch the Atlanta Falcons play the Minnesota Vikings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6615088/2025/09/10/falcons-vs-vikings-stream-how-to-watch-sept-14/
+
 **Word of the Day: cacophonous**\
 `This word has appeared in 21 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/09/10/learning/word-of-the-day-cacophonous.html
