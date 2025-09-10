@@ -1,3 +1,7 @@
+**Kids Love Making (and Eating) This Easy Noodle Soup**\
+`This Cantonese classic, which Melissa Clark adapted from Lane Li, of Noodle Lane in Brooklyn, is so easy a middle schooler can make it.`\
+https://nytimes.com/2025/09/10/dining/easy-cantonese-noodle-soup.html
+
 **The Subway Had Its Safest Summer in Years. The White House Shrugged.**\
 `The U.S. Transportation Secretary, Sean Duffy, has called the subway crime-ridden, but Gov. Kathy Hochul of New York said her message to him was, “We’ve got this.”`\
 https://nytimes.com/2025/09/10/nyregion/nyc-subway-hochul-white-house.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/10/nyregion/trump-org-central-park-wollman-skating-r
 **What Is Turning Point USA?**\
 `The group founded by Charlie Kirk is a right-wing political organization that focuses on motivating young people.`\
 https://nytimes.com/2025/09/10/us/turning-point-usa-charlie-kirk.html
-
-**Senators Demand Answers From Mark Zuckerberg on WhatsApp Security**\
-`Three Republican senators sent a letter to Meta’s chief executive on Wednesday asking him to respond to whistle-blower allegations over security flaws.`\
-https://nytimes.com/2025/09/10/technology/whatsapp-senators-letter-meta.html
 
