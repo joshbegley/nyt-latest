@@ -1,3 +1,7 @@
+**Lights. Camera. Freedom.**\
+`Matt Nadel has a job that he hopes one day won’t exist. “It feels like I’m trying to hack a broken system,” he says. He makes films about incarcerated people in an effort to persuade governors to grant them clemency. His plea? Put him out of business.`\
+https://nytimes.com/video/opinion/100000010387651/lights-camera-freedom.html
+
 **Trump Administration to Appeal Ruling That Allows Lisa Cook to Remain at Fed**\
 `The administration contested a preliminary injunction, issued late Tuesday, that temporarily blocked President Trump from firing her.`\
 https://nytimes.com/2025/09/10/us/politics/trump-lisa-cook-fed-governor-appeal.html

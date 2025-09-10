@@ -1,3 +1,7 @@
+**Lights. Camera. Freedom.**\
+`Matt Nadel has a job that he hopes one day won’t exist. “It feels like I’m trying to hack a broken system,” he says. He makes films about incarcerated people in an effort to persuade governors to grant them clemency. His plea? Put him out of business.`\
+https://nytimes.com/video/opinion/100000010387651/lights-camera-freedom.html
+
 **Trump Administration to Appeal Ruling That Allows Lisa Cook to Remain at Fed**\
 `The administration contested a preliminary injunction, issued late Tuesday, that temporarily blocked President Trump from firing her.`\
 https://nytimes.com/2025/09/10/us/politics/trump-lisa-cook-fed-governor-appeal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6616553/2025/09/10/quinn-hughes-canucks-jack-hughes
 **Military Enforces Calm in Nepal After Two Days of Chaos**\
 `Leaders of a youthful protest movement that toppled a prime minister met with the military on Wednesday to discuss a path forward for the country.`\
 https://nytimes.com/2025/09/10/world/asia/nepal-protests-military.html
-
-**Frimpong steps up return from injury; Isak trains with new team-mates**\
-`Summer signing Frimpong missed the Premier League victories over Newcastle and Arsenal with a hamstring injury`\
-https://nytimes.com/athletic/6616668/2025/09/10/liverpool-injuries-training-frimpong-isak-latest/
 
