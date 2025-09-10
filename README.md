@@ -1,3 +1,7 @@
+**New Jersey Is the Latest State to Expand Access to Updated Covid Shots**\
+`Pharmacists will be allowed to give the latest vaccines to anyone over 3, rebuffing federal efforts to limit the number of those eligible.`\
+https://nytimes.com/2025/09/10/nyregion/new-jersey-covid-vaccine-pharmacies.html
+
 **Conservative media figures are grieving Kirk’s death on the air.**\
 `By Jessica Testa and Michael M. Grynbaum`\
 https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah/conservative-media-figures-are-grieving-kirks-death-on-the-air
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/10/us/politics/delta-turbulence-ntsb.html
 **Lamar Jackson apologizes for pushing Bills fan: 'Just chill next time'**\
 `"I know guys are going to talk trash, but keep it that way and keep your hands and keep your objects to yourself," the Ravens QB said. `\
 https://nytimes.com/athletic/6617587/2025/09/10/lamar-jackson-bills-fan-apology/
-
-**Kennedy Report Won’t Solve America’s Food Issues, Experts Say**\
-`Food policy experts said the White House health report is full of promising ideas, but falls short in key ways.`\
-https://nytimes.com/2025/09/10/well/eat/maha-report-nutrition.html
 

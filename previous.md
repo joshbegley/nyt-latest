@@ -1,3 +1,7 @@
+**Conservative media figures are grieving Kirk’s death on the air.**\
+`By Jessica Testa and Michael M. Grynbaum`\
+https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah/conservative-media-figures-are-grieving-kirks-death-on-the-air
+
 **From F1 to football: The star-studded festival feel of the BMW PGA pro-am**\
 `Sir Andy Murray, Lando Norris and Gareth Bale were among the stars playing 18 holes on Wednesday.`\
 https://nytimes.com/athletic/6616844/2025/09/10/bmw-pga-championship-pro-am-norris-murray-bale/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6617587/2025/09/10/lamar-jackson-bills-fan-apology/
 **Kennedy Report Won’t Solve America’s Food Issues, Experts Say**\
 `Food policy experts said the White House health report is full of promising ideas, but falls short in key ways.`\
 https://nytimes.com/2025/09/10/well/eat/maha-report-nutrition.html
-
-**Read the N.T.S.B.’s interim report on Delta Flight 56**\
-`The National Transportation Safety Board’s preliminary report on the turbulence incident experienced by Delta Flight 56.`\
-https://nytimes.com/interactive/2025/09/10/us/ntsb-report-dl56.html
 

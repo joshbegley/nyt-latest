@@ -1,3 +1,7 @@
+**Conservative media figures are grieving Kirk’s death on the air.**\
+`By Jessica Testa and Michael M. Grynbaum`\
+https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah/conservative-media-figures-are-grieving-kirks-death-on-the-air
+
 **From F1 to football: The star-studded festival feel of the BMW PGA pro-am**\
 `Sir Andy Murray, Lando Norris and Gareth Bale were among the stars playing 18 holes on Wednesday.`\
 https://nytimes.com/athletic/6616844/2025/09/10/bmw-pga-championship-pro-am-norris-murray-bale/
