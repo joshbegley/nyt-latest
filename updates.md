@@ -1,3 +1,11 @@
+**Kyle Schwarber becomes the second Phillies player to hit 50 home runs in a season**\
+`Fifty homers puts him eight blasts away from tying Ryan Howard's single-season franchise record. `\
+https://nytimes.com/athletic/6596606/2025/09/09/kyle-schwarber-phillies-50-home-runs/
+
+**Once Again, Israel Leaves Trump in the Dark as It Conducts a Military Attack**\
+`President Trump said he was “very unhappy about the way that went down.”`\
+https://nytimes.com/2025/09/09/us/politics/israel-trump-gaza-qatar-bombing.html
+
 **Trump Moves to Crack Down on Drug Advertising**\
 `The administration is proposing a return to a 1990s-era policy that kept most drug ads off TV. That could dent the revenues of drugmakers and major networks.`\
 https://nytimes.com/2025/09/09/health/fda-drug-advertising-warning-letters.html
