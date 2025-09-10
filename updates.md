@@ -1,3 +1,7 @@
+**Live Updates: Charlie Kirk, Right-Wing Influencer, Shot in Utah**\
+`Mr. Kirk, a close ally of President Trump, was shot in the neck while speaking in front of a large crowd on a university campus.`\
+https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah
+
 **Trump Threatens to Sue The Times Over Reporting on Epstein Drawing**\
 `The president has denied that he created and signed a sexually suggestive note that was included in a 2003 birthday gift for Jeffrey Epstein.`\
 https://nytimes.com/2025/09/10/business/media/trump-new-york-times-epstein.html

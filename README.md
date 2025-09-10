@@ -1,3 +1,7 @@
+**Cruise Ship Passenger With $16,000 Gambling Debt Jumps Overboard**\
+`The man, who was rescued, told authorities he was trying to avoid declaring money in his possession, but Royal Caribbean said he also had casino and gaming losses.`\
+https://nytimes.com/2025/09/10/travel/cruise-ship-passenger-with-16000-gambling-debt-jumps-overboard.html
+
 **Trump Threatens to Sue The Times Over Reporting on Epstein Drawing**\
 `The president has denied that he created and signed a sexually suggestive note that was included in a 2003 birthday gift for Jeffrey Epstein.`\
 https://nytimes.com/2025/09/10/business/media/trump-new-york-times-epstein.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6616857/2025/09/10/billy-lange-to-join-new-york-kni
 **rescue-medic-wall-street**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/rescue-medic-wall-street
-
-**NBA investigating Malik Beasley's gambling allegations**\
-`While Beasley, 28, is no longer a target of the federal gambling investigation, the NBA confirmed that it has opened its own investigation.`\
-https://nytimes.com/athletic/6616810/2025/09/10/pistons-malik-beasley-gambling-investigation/
 
