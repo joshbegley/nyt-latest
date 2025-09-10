@@ -1,5 +1,5 @@
 **Judge Rules Fed Governor Can Remain in Role, for Now**\
-`The decision is a win for Lisa Cook, the Federal Reserve governor that President Trump sought to dismiss over allegations of mortgage fraud.`\
+`The decision is a win for Lisa Cook, the Federal Reserve governor whom President Trump sought to dismiss over allegations of mortgage fraud.`\
 https://nytimes.com/2025/09/09/business/federal-reserve-lisa-cook-ruling.html
 
 **When a Star Is First Seen**\
