@@ -1,3 +1,7 @@
+**Jets to release Xavier Gipson three days after costly fumble: Source**\
+`Gipson was in his third season with the Jets.`\
+https://nytimes.com/athletic/6616098/2025/09/10/new-york-jets-xavier-gipson-release/
+
 **Evaluating the NFL's YouTube experiment, plus Nike's 'Just Do It' 2.0: MoneyCall**\
 `More in this week's sports business cheat sheet: Unrivaled levels up, Spurs upheaval, new obsessions and a Connections wipe-out for Dan.`\
 https://nytimes.com/athletic/6616036/2025/09/10/nfl-youtube-nike-why-do-it-moneycall/

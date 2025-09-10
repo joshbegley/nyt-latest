@@ -1,3 +1,7 @@
+**Jets to release Xavier Gipson three days after costly fumble: Source**\
+`Gipson was in his third season with the Jets.`\
+https://nytimes.com/athletic/6616098/2025/09/10/new-york-jets-xavier-gipson-release/
+
 **Evaluating the NFL's YouTube experiment, plus Nike's 'Just Do It' 2.0: MoneyCall**\
 `More in this week's sports business cheat sheet: Unrivaled levels up, Spurs upheaval, new obsessions and a Connections wipe-out for Dan.`\
 https://nytimes.com/athletic/6616036/2025/09/10/nfl-youtube-nike-why-do-it-moneycall/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6614007/2025/09/10/colts-daniel-jones-broncos/
 **Clippers' Kawhi Leonard saga could hinge on key missing phrase in the CBA**\
 `The Clippers investigation might not end with the harshest punishment. But the NBA could take a page from the NCAA's compliance playbook.`\
 https://nytimes.com/athletic/6615693/2025/09/10/clippers-kawhi-leonard-news-nba-investigation-cba/
-
-**Eerie Calm in Nepal as Uncertainty Follows Deadly Clashes**\
-`Nepal was still under a nationwide curfew on Wednesday after two days of street clashes between anti-government protesters and security forces that killed at least 22 people.`\
-https://nytimes.com/video/world/asia/100000010389503/eerie-calm-in-nepal-as-uncertainty-follows-deadly-clashes.html
 
