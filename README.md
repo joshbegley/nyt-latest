@@ -1,3 +1,15 @@
+**Evaluating the NFL's YouTube experiment, plus Nike's 'Just Do It' 2.0: MoneyCall**\
+`More in this week's sports business cheat sheet: Unrivaled levels up, Spurs upheaval, new obsessions and a Connections wipe-out for Dan.`\
+https://nytimes.com/athletic/6616036/2025/09/10/nfl-youtube-nike-why-do-it-moneycall/
+
+**Poland Says It Shot Down Russian Drones Over Its Airspace**\
+`Russian drones entered Poland’s airspace during an attack on targets across the border in Ukraine, in what the Polish military called an “act of aggression.” It was not clear exactly how many drones had crossed into Poland.`\
+https://nytimes.com/video/world/europe/100000010389273/poland-russia-drones-nato.html
+
+**Nepal’s Protesters Had a Grand Vision, and Then the Vibe Changed**\
+`Before the destruction began, the Gen Z demonstrators had planned to look good while promoting democracy and sweeping away an entrenched leadership.`\
+https://nytimes.com/2025/09/10/world/asia/nepal-gen-z-protesters.html
+
 **From free hot dogs to pins: Topps Collectors Appreciation Day reward guide**\
 `Topps is partnering with MLB teams and major retailers to offer perks to card collectors`\
 https://nytimes.com/athletic/6614718/2025/09/10/topps-announces-collector-appreciation-day-rewards-at-mlb-parks-and-retail-locations/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6615693/2025/09/10/clippers-kawhi-leonard-news-nba-
 **Eerie Calm in Nepal as Uncertainty Follows Deadly Clashes**\
 `Nepal was still under a nationwide curfew on Wednesday after two days of street clashes between anti-government protesters and security forces that killed at least 22 people.`\
 https://nytimes.com/video/world/asia/100000010389503/eerie-calm-in-nepal-as-uncertainty-follows-deadly-clashes.html
-
-**Ben Proud: Why I signed up to the Enhanced Games - and my response to doping critics**\
-`The British swimmer explains why breaking records is at the heart of his decision to sign up to one of sport's most controversial events `\
-https://nytimes.com/athletic/6615668/2025/09/10/ben-proud-enhanced-games-doping-interview/
-
-**The Dodgers and Padres are slogging. Does anyone want to win the NL West?**\
-`As the season's end draws near, neither club enjoys much margin for error in the pursuit of home-field advantage in the postseason.`\
-https://nytimes.com/athletic/6614986/2025/09/10/dodgers-padres-nl-west-race-battle/
-
-**'Thunder On' doc tells the story of SMU's resurgence, 15 years after popular 'Pony Excess'**\
-`There's a new story to tell on the Hilltop — SMU's climb back to relevance after being crippled by the "death penalty" in the late '80s.`\
-https://nytimes.com/athletic/6613779/2025/09/10/smu-football-thunder-on-pony-express/
 
