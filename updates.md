@@ -1,3 +1,15 @@
+**C.D.C. Cuts Leave a Hole in the Food Safety System**\
+`Public health experts worry that downsizing the sprawling FoodNet surveillance system could make it harder to prevent food-borne illnesses.`\
+https://nytimes.com/2025/09/10/well/cdc-foodnet.html
+
+**Twins mailbag: Ask Aaron Gleeman your questions about 2025 and beyond**\
+`Ask our Twins expert your questions.`\
+https://nytimes.com/athletic/6615999/2025/09/10/twins-mailbag-questions-aaron-gleeman/
+
+**An Essay Contest Winner Used A.I. Should She Return the $1,000 Award?**\
+`What happened should be taken as a wake-up call, rather than a crime scene.`\
+https://nytimes.com/2025/09/10/magazine/essay-contest-ai-ethics.html
+
 **Climate ‘Ideology’ Hurts Prosperity, Top U.S. Officials Tell Europeans**\
 `Chris Wright, the energy secretary, said he would push Europe to loosen environmental rules and buy more gas. Doug Burgum, the Interior secretary, tied fossil fuels to a need to win the A.I. race.`\
 https://nytimes.com/2025/09/10/climate/burgum-wright-europe-energy.html

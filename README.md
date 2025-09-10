@@ -1,4 +1,12 @@
-**C.D.C. Cuts Leave a Hole in the Food Safety System**\
+**Dissecting Erling Haaland's five-goal spectacular for Norway**\
+`Premier League sensation Haaland put on a clinic as he scored five times in Norway's 11-1 win over Moldova `\
+https://nytimes.com/athletic/6615633/2025/09/10/erling-haaland-norway-five-goals-moldova/
+
+**N.Y. Regulators Move to Fine Cannabis Testing Lab Over Safety Violations**\
+`The effort to penalize the facility, Lexachrom Analytical Laboratory, comes amid a state push to investigate testing irregularities in the weed industry.`\
+https://nytimes.com/2025/09/10/nyregion/new-york-cannabis-testing-lab-weed-dispensaries.html
+
+**Federal Cuts Leave a Hole in the Food Safety System**\
 `Public health experts worry that downsizing the sprawling FoodNet surveillance system could make it harder to prevent food-borne illnesses.`\
 https://nytimes.com/2025/09/10/well/cdc-foodnet.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6616105/2025/09/10/ben-johnson-amon-ra-st-brown-bea
 **British Courts Service Destroys Banksy Mural Depicting Attack by Judge**\
 `The work, painted onto the walls of one of Britain’s most important court buildings, showed a judge attacking a demonstrator with a gavel.`\
 https://nytimes.com/2025/09/10/arts/design/banksy-destroyed.html
-
-**Andy Murray aiming to enter regional qualifying for The Open Championship**\
-`Murray explained he did not think he would have "any chance" of qualifying for the main event.`\
-https://nytimes.com/athletic/6616034/2025/09/10/andy-murray-golf-open-regional-qualifying/
-
-**German Court Convicts Syrian National for Stabbing Attack That Killed 3**\
-`Issa al Hasan was found guilty of murder in the Islamic State-inspired rampage last year that spurred a national debate about refugees and migration.`\
-https://nytimes.com/2025/09/10/world/europe/german-stabbing-attack.html
 

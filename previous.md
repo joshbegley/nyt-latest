@@ -1,3 +1,15 @@
+**C.D.C. Cuts Leave a Hole in the Food Safety System**\
+`Public health experts worry that downsizing the sprawling FoodNet surveillance system could make it harder to prevent food-borne illnesses.`\
+https://nytimes.com/2025/09/10/well/cdc-foodnet.html
+
+**Twins mailbag: Ask Aaron Gleeman your questions about 2025 and beyond**\
+`Ask our Twins expert your questions.`\
+https://nytimes.com/athletic/6615999/2025/09/10/twins-mailbag-questions-aaron-gleeman/
+
+**An Essay Contest Winner Used A.I. Should She Return the $1,000 Award?**\
+`What happened should be taken as a wake-up call, rather than a crime scene.`\
+https://nytimes.com/2025/09/10/magazine/essay-contest-ai-ethics.html
+
 **Climate ‘Ideology’ Hurts Prosperity, Top U.S. Officials Tell Europeans**\
 `Chris Wright, the energy secretary, said he would push Europe to loosen environmental rules and buy more gas. Doug Burgum, the Interior secretary, tied fossil fuels to a need to win the A.I. race.`\
 https://nytimes.com/2025/09/10/climate/burgum-wright-europe-energy.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6616034/2025/09/10/andy-murray-golf-open-regional-q
 **German Court Convicts Syrian National for Stabbing Attack That Killed 3**\
 `Issa al Hasan was found guilty of murder in the Islamic State-inspired rampage last year that spurred a national debate about refugees and migration.`\
 https://nytimes.com/2025/09/10/world/europe/german-stabbing-attack.html
-
-**Fabianski rejoins West Ham following May release**\
-`The 40-year-old goalkeeper had initially left the club after his contract expired alongside Aaron Cresswell, Vladimir Coufal and Danny Ings.`\
-https://nytimes.com/athletic/6616340/2025/09/10/lukasz-fabianski-west-ham-signing/
-
-**Who Is France’s New Prime Minister?**\
-`Sébastien Lecornu had been defense minister. He is one of President Emmanuel Macron’s most loyal and enduring allies.`\
-https://nytimes.com/2025/09/10/world/europe/france-prime-minister-sebastien-lecornu-macron.html
-
-**Labor Agency Watchdog to Review Hurdles to Statistics Bureau’s Work**\
-`The review comes weeks after President Trump fired the head of the statistics agency after an unexpectedly weak monthly jobs report.`\
-https://nytimes.com/2025/09/10/us/politics/bureau-labor-statistics.html
 
