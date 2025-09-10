@@ -1,3 +1,7 @@
+**Live Updates: Nepal Under Curfew as Troops Patrol Kathmandu After Protests**\
+`Security forces fired on demonstrators angry about censorship and economic issues, leaving at least 22 people dead. The army deployed troops after some protesters set fire to government buildings.`\
+https://nytimes.com/live/2025/09/10/world/nepal-protests
+
 **How to watch Falcons at Vikings: Time, TV, streaming**\
 `Find out how to watch the Atlanta Falcons play the Minnesota Vikings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6615088/2025/09/10/falcons-vs-vikings-stream-how-to-watch-sept-14/
