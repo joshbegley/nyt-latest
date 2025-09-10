@@ -1,3 +1,7 @@
+**Before and after photos show how protests damaged Nepal’s government buildings.**\
+`Demonstrator in Kathmandu defied a curfew and set fire to government offices and the homes of politicians on Tuesday during an escalation of unrest.`\
+https://nytimes.com/live/2025/09/10/world/nepal-protests/before-and-after-photos-show-how-protests-damaged-nepals-government-buildings
+
 **Kimmel Calls Epstein’s ‘Birthday Book’ a ‘Gift That Keeps on Giving’**\
 `President Trump’s administration denied that he’d signed a lewd tribute to Jeffrey Epstein, but Jimmy Kimmel isn’t convinced.`\
 https://nytimes.com/2025/09/10/arts/television/kimmel-trump-epstein-birthday-book.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6615088/2025/09/10/falcons-vs-vikings-stream-how-to
 **Word of the Day: cacophonous**\
 `This word has appeared in 21 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/09/10/learning/word-of-the-day-cacophonous.html
-
-**Nepalis Worry About Security Forces’ Next Step After Crackdown Leaves 22 Dead**\
-`Human rights groups condemned the use of lethal force against protesters. Experts say Nepal’s army and police have historically not been held to account.`\
-https://nytimes.com/2025/09/10/world/asia/nepal-security-forces-army-police.html
 
