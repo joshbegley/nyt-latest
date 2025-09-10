@@ -1,3 +1,7 @@
+**Aaron Judge passes Yogi Berra, moves into 5th place in Yankees history with 359th home run**\
+`New York's superstar outfielder passed Berra on the franchise's all-time list and is two homers behind Joe DiMaggio.`\
+https://nytimes.com/athletic/6587699/2025/09/09/ny-yankees-aaron-judge-home-run-history/
+
 **Bolivia pips Venezuela to place in World Cup qualifying intercontinental playoff**\
 `There was plenty of drama to close World Cup qualifying in South America, where Bolivia beat Brazil to end Venezuela's World Cup dream`\
 https://nytimes.com/athletic/6614776/2025/09/09/bolivia-world-cup-qualifying-playoff-venezuela-south-america/
