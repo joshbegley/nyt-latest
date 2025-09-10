@@ -1,3 +1,19 @@
+**White House Exerts Enormous Influence Over F.B.I., Lawsuit Says**\
+`A sprawling suit by three fired F.B.I. officials provides a disturbing account of efforts by top Trump aides to strip the bureau of its independence.`\
+https://nytimes.com/2025/09/10/us/politics/trump-fbi-lawsuit.html
+
+**2026 World Cup ticket lottery opens, plagued by long waits, frustrated fans**\
+`The first phase of 2026 World Cup ticket sales kicked off Wednesday, but it wasn't the seamless process fans may have expected`\
+https://nytimes.com/athletic/6616251/2025/09/10/2026-fifa-world-cup-ticket-lottery-wait-time/
+
+**‘Whoever Attacks Us, We Will Reach them’: After Qatar, Israel Fires on Yemen**\
+`Israel’s military launched multiple attacks on Houthi sites in northern Yemen, a day after its widely-criticized airstrike against Hamas officials on Qatari soil.`\
+https://nytimes.com/2025/09/10/world/middleeast/israel-houthi-yemen-strikes-qatar.html
+
+**Brazil Invited the World to the Amazon. It’s Become a Big Headache.**\
+`This year’s U.N. climate conference, on the edge of the rainforest, is fueling criticism of the host nation and the entire process of global diplomacy on climate change.`\
+https://nytimes.com/2025/09/10/climate/belem-cop30-amazon-hotels-united-nations.html
+
 **Polly Holliday, a Sassy Waitress on the Sitcom ‘Alice,’ Dies at 88**\
 `“Kiss my grits,” her character, Flo, was known to say. But that high-profile role was just one facet of a long, busy stage and screen career.`\
 https://nytimes.com/2025/09/10/arts/television/polly-holiday-dead.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6615633/2025/09/10/erling-haaland-norway-five-goals
 **N.Y. Regulators Move to Fine Cannabis Testing Lab Over Safety Violations**\
 `The effort to penalize the facility, Lexachrom Analytical Laboratory, comes amid a state push to investigate testing irregularities in the weed industry.`\
 https://nytimes.com/2025/09/10/nyregion/new-york-cannabis-testing-lab-weed-dispensaries.html
-
-**Cuts to the Food Safety System Threaten Americans’ Health**\
-`Public health experts worry that downsizing the sprawling FoodNet surveillance system could make it harder to prevent food-borne illnesses.`\
-https://nytimes.com/2025/09/10/well/cdc-foodnet.html
-
-**Twins mailbag: Ask Aaron Gleeman your questions about 2025 and beyond**\
-`Ask our Twins expert your questions.`\
-https://nytimes.com/athletic/6615999/2025/09/10/twins-mailbag-questions-aaron-gleeman/
-
-**An Essay Contest Winner Used A.I. Should She Return the $1,000 Award?**\
-`What happened should be taken as a wake-up call, rather than a crime scene.`\
-https://nytimes.com/2025/09/10/magazine/essay-contest-ai-ethics.html
-
-**Climate ‘Ideology’ Hurts Prosperity, Top U.S. Officials Tell Europeans**\
-`Chris Wright, the energy secretary, said he would push Europe to loosen environmental rules and buy more gas. Doug Burgum, the interior secretary, tied fossil fuels to a need to win the A.I. race.`\
-https://nytimes.com/2025/09/10/climate/burgum-wright-europe-energy.html
 

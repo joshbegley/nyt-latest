@@ -1,3 +1,11 @@
+**Polly Holliday, a Sassy Waitress on the Sitcom ‘Alice,’ Dies at 88**\
+`“Kiss my grits,” her character, Flo, was known to say. But that high-profile role was just one facet of a long, busy stage and screen career.`\
+https://nytimes.com/2025/09/10/arts/television/polly-holiday-dead.html
+
+**Scoop City: Week 2 panic meters**\
+`Six teams I'm worried about, plus Mike Sando explains the Eagles' cash spending and the NFL's most controversial decision`\
+https://nytimes.com/athletic/6616600/2025/09/10/week-2-nfl-panic-dolphins-panthers-scoop-city/
+
 **A Celebration of Haitian Designers Kicks Off Fashion Week**\
 `Text by Simbarashe Cha`\
 https://nytimes.com/card/2025/09/10/style/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/10/magazine/essay-contest-ai-ethics.html
 **Climate ‘Ideology’ Hurts Prosperity, Top U.S. Officials Tell Europeans**\
 `Chris Wright, the energy secretary, said he would push Europe to loosen environmental rules and buy more gas. Doug Burgum, the interior secretary, tied fossil fuels to a need to win the A.I. race.`\
 https://nytimes.com/2025/09/10/climate/burgum-wright-europe-energy.html
-
-**Trump Moves to Scrap Biden Rule That Protected Public Lands**\
-`The proposal from the Bureau of Land Management would prioritize the use of public lands for oil and gas drilling, coal mining and other industrial activities.`\
-https://nytimes.com/2025/09/10/climate/trump-public-lands-rule-biden.html
-
-**French Police Investigate Pigs’ Heads Found Near Paris-Area Mosques**\
-`The heads were discovered near the entrances of several buildings. The episode was widely condemned in France as an anti-Muslim provocation.`\
-https://nytimes.com/2025/09/10/world/europe/pigs-heads-france-mosques.html
 
