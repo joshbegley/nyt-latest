@@ -1,3 +1,19 @@
+**Climate ‘Ideology’ Hurts Prosperity, Top U.S. Officials Tell Europeans**\
+`Chris Wright, the energy secretary, said he would push Europe to loosen environmental rules and buy more gas. Doug Burgum, the Interior secretary, tied fossil fuels to a need to win the A.I. race.`\
+https://nytimes.com/2025/09/10/climate/burgum-wright-europe-energy.html
+
+**Trump Moves to Scrap Biden Rule That Protected Public Lands**\
+`The proposal from the Bureau of Land Management would prioritize the use of public lands for oil and gas drilling, coal mining and other industrial activities.`\
+https://nytimes.com/2025/09/10/climate/trump-public-lands-rule-biden.html
+
+**French Police Investigate Pigs’ Heads Found Near Paris-Area Mosques**\
+`The heads were discovered near the entrances of several buildings. The episode was widely condemned in France as an anti-Muslim provocation.`\
+https://nytimes.com/2025/09/10/world/europe/pigs-heads-france-mosques.html
+
+**Lions' Amon-Ra St. Brown on Ben Johnson's return to Detroit: 'We all booing him'**\
+`The former Lions offensive coordinator returns to Ford Field on Sunday as the head coach of the Chicago Bears.`\
+https://nytimes.com/athletic/6616105/2025/09/10/ben-johnson-amon-ra-st-brown-bears-lions-boo/
+
 **British Courts Service Destroys Banksy Mural Depicting Attack by Judge**\
 `The work, painted onto the walls of one of Britain’s most important court buildings, showed a judge attacking a demonstrator with a gavel.`\
 https://nytimes.com/2025/09/10/arts/design/banksy-destroyed.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/09/10/world/europe/france-prime-minister-sebastien-leco
 **Labor Agency Watchdog to Review Hurdles to Statistics Bureau’s Work**\
 `The review comes weeks after President Trump fired the head of the statistics agency after an unexpectedly weak monthly jobs report.`\
 https://nytimes.com/2025/09/10/us/politics/bureau-labor-statistics.html
-
-**Fantasy Football Matchup Rankings Week 2 | Strength of schedule**\
-`Jake Ciely's Week 2 fantasy football strength of schedule by position matchup rankings can help with tough start/sit decisions. `\
-https://nytimes.com/athletic/6616261/2025/09/10/fantasy-football-matchup-rankings-strength-schedule-week-2/
-
-**Harris Calls Democrats’ Deference to Biden ‘Recklessness’ in New Book**\
-`Former Vice President Kamala Harris also accused White House aides, without naming names, of not defending her from right-wing attacks about her competence.`\
-https://nytimes.com/2025/09/10/us/politics/kamala-harris-book-biden-107-days.html
-
-**Cubs legend Anthony Rizzo is retiring as a player and rejoining org as an ambassador**\
-`The goodwill gesture will bring the 2016 World Series champion back to Wrigley Field this weekend and in the future.`\
-https://nytimes.com/athletic/6616100/2025/09/10/cubs-anthony-rizzo-retirement-ambassador/
-
-**Boat Suspected of Smuggling Drugs Is Said to Have Turned Before U.S. Attacked It**\
-`The Trump administration has argued that the summary killing of 11 people it accused of running drugs was legal under the laws of war.`\
-https://nytimes.com/2025/09/10/us/trump-drug-boat-venezuela-strike.html
 
