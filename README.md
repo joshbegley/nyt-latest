@@ -1,3 +1,11 @@
+**Ex-USF coach Jim Leavitt won't face prosecution in battery and theft case**\
+`Former coach was arrested last month after incident with ex-girlfriend.`\
+https://nytimes.com/athletic/6617729/2025/09/10/charges-dropped-jim-leavitt-ex-usf-coach/
+
+**House Moment of Silence for Kirk Descends Into Partisan Strife**\
+`After a moment of silence to honor Charlie Kirk, Republicans and Democrats began shouting partisan insults at each other.`\
+https://nytimes.com/2025/09/10/us/charlie-kirk-house-republicans-democrats.html
+
 **Reds rookie Chase Burns to be activated Friday, pitch out of bullpen with restrictions**\
 `“We’re trying to balance him finishing the year, because we think that’s really important,” manager Terry Francona said.`\
 https://nytimes.com/athletic/6617704/2025/09/10/reds-chase-burns-activated-bullpen/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/10/nyregion/new-jersey-covid-vaccine-pharmacies.html
 **Conservative media figures are grieving Kirk’s death on the air.**\
 `By Jessica Testa and Michael M. Grynbaum`\
 https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah/conservative-media-figures-are-grieving-kirks-death-on-the-air
-
-**From F1 to football: The star-studded festival feel of the BMW PGA pro-am**\
-`Sir Andy Murray, Lando Norris and Gareth Bale were among the stars playing 18 holes on Wednesday.`\
-https://nytimes.com/athletic/6616844/2025/09/10/bmw-pga-championship-pro-am-norris-murray-bale/
-
-**House Passes Defense Policy Bill With Transgender, Diversity Restrictions**\
-`For the third year in a row, House Republicans pushed through a Pentagon policy measure that included conservative policy dictates.`\
-https://nytimes.com/2025/09/10/us/politics/house-defense-bill-diversity-restrictions.html
 
