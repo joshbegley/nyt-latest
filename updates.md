@@ -1,3 +1,19 @@
+**How Charlie Kirk became the youth whisperer of the right and one of Trump’s closest allies.**\
+`By Robert Draper`\
+https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah/how-charlie-kirk-became-the-youth-whisperer-of-the-right-and-one-of-trumps-closest-allies
+
+**Did punishment for Eagles' Jalen Carter fit the spit?**\
+`Carter's season-opening loogie can be judged from many angles, but the ugly look wlll have refs and league watching closely.`\
+https://nytimes.com/athletic/6616773/2025/09/10/jalen-carter-spitting-punishment-eagles-nfl-cowboys/
+
+**Former Man Utd and Spurs midfielder Eriksen joins Wolfsburg**\
+`Eriksen, 33, said in March he expected to leave Old Trafford after the completion of his third season at the club.`\
+https://nytimes.com/athletic/6388188/2025/09/10/christian-eriksen-wolfsburg-manchester-united/
+
+**Live Updates: Charlie Kirk, Right-Wing Influencer, Shot in Utah**\
+`Mr. Kirk, a close ally of President Trump, was speaking in front of a large crowd when a shot rang out, according to video from the scene.`\
+https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah
+
 **NCAA bans 3 men's basketball players over gambling violations**\
 `The three players — Steven Vasquez, Jalen Weaver and Mykell Robinson — all played at Fresno State at one point in their careers.`\
 https://nytimes.com/athletic/6616816/2025/09/10/ncaa-bans-gambling-violations-fresno-state-sjsu/
