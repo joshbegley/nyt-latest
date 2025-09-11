@@ -1,3 +1,7 @@
+**Mamdani Meets Bloomberg, Once a Sworn Foe, for a ‘Cordial’ Discussion**\
+`Michael R. Bloomberg, who spent $8 million trying to torpedo Zohran Mamdani’s Democratic primary bid, advised him on how to fill key City Hall positions.`\
+https://nytimes.com/2025/09/11/nyregion/mamdani-bloomberg-mayor.html
+
 **Chaos Breaks Out in House After Moment of Silence for Charlie Kirk**\
 `Democratic and Republican representatives began arguing after Speaker Mike Johnson called for a moment of silence for Charlie Kirk on Wednesday.`\
 https://nytimes.com/video/us/politics/100000010393897/charlie-kirk-house-moment-silence.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/11/nyregion/mamdani-police-apology-floyd.html
 **OpenAI Takes Big Steps Toward Its Long-Planned Reorganization**\
 `The start-up reached a tentative deal with Microsoft, its biggest investor, and said it would give a $100 billion stake to the nonprofit that manages it.`\
 https://nytimes.com/2025/09/11/technology/openai-microsoft-deal.html
-
-**U.S. Naval Academy Placed Under Lockdown Amid Threats, Authorities Say**\
-`Local law enforcement officers were responding to the campus in Annapolis, Md., a spokesman said.`\
-https://nytimes.com/2025/09/11/us/naval-academy-annapolis.html
 
