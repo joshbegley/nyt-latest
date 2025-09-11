@@ -1,3 +1,11 @@
+**How to watch Rockies at Padres: Time, TV, streaming for September 11**\
+`Find out how to watch the Colorado Rockies play the San Diego Padres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6618839/2025/09/11/rockies-vs-padres-stream-how-to-watch-sept-11/
+
+**How to watch Angels at Mariners: Time, TV, streaming for September 11**\
+`Find out how to watch the Los Angeles Angels play the Seattle Mariners, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6618835/2025/09/11/angels-vs-mariners-stream-how-to-watch-sept-11/
+
 **Here’s the latest.**\
 `By Yan Zhuang, Michael Levenson and Robert Draper`\
 https://nytimes.com/live/2025/09/11/us/charlie-kirk-shooting-news/heres-the-latest
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/11/nyregion/fare-evasion-mta-subway-bus.html
 **Conservative Christians Mourn Kirk as a Martyr**\
 `“Charlie died for what he believed in,” said Jackson Lahmeyer, a pastor in Oklahoma.`\
 https://nytimes.com/2025/09/11/us/charlie-kirk-martyr-conservative-christians.html
-
-**A Couple Looked to Downsize Into a Condo on Long Island’s North Shore**\
-`As they eased into retirement, two empty-nesters toured some of Port Jefferson’s condo communities with about $650,000 to spend. Here’s what they found.`\
-https://nytimes.com/interactive/2025/09/11/realestate/long-island-port-jefferson-condos.html
-
-**Drone Barrage Over Poland Was a Test for NATO, and the U.S.**\
-`A continent already on edge over the Ukraine war sees a Russian challenge to NATO readiness and to an America that wants to disengage from Europe.`\
-https://nytimes.com/2025/09/11/world/europe/poland-russia-ukraine-nato.html
 

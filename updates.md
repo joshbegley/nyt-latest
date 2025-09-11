@@ -1,3 +1,19 @@
+**Here’s the latest.**\
+`By Yan Zhuang, Michael Levenson and Robert Draper`\
+https://nytimes.com/live/2025/09/11/us/charlie-kirk-shooting-news/heres-the-latest
+
+**Live Updates: Manhunt Underway After Charlie Kirk, Charismatic Right-Wing Activist, Is Fatally Shot**\
+`Videos from the university event where Mr. Kirk was killed show a person on a nearby rooftop at the time of the shooting.`\
+https://nytimes.com/live/2025/09/11/us/charlie-kirk-shooting-news
+
+**NHL futures best bets, win totals: Why the Sabres deserve more love**\
+`With the season around the corner, here's a look at the best futures bets that present value.`\
+https://nytimes.com/athletic/6616541/2025/09/11/nhl-futures-best-bets-win-totals-why-the-sabres-deserve-more-love/
+
+**Aspiration paid Kawhi Leonard days after investment by Clippers' minority owner: Report**\
+`A climate company was struggling to pay Kawhi Leonard. Then, a Clippers minority owner invested $2 million, according to a new report.`\
+https://nytimes.com/athletic/6618230/2025/09/11/aspiration-paid-kawhi-leonard-days-after-investment-by-clippers-minority-owner-report/
+
 **Aspiration paid Kawhi Leonard days after investment by Clippers' minority owner: Report**\
 `A climate company was struggling to pay Kawhi Leonard. Then, the Clippers minority owner invested $2 million, according to Pablo Torre.`\
 https://nytimes.com/athletic/6618230/2025/09/11/aspiration-paid-kawhi-leonard-days-after-investment-by-clippers-minority-owner-report/
