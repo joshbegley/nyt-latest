@@ -1,3 +1,11 @@
+**Ravens' Lamar Jackson won't be disciplined by NFL following interaction with fan**\
+`The incident with a Bills fan occurred during the third quarter of Baltimore's loss to Buffalo in Week 1. `\
+https://nytimes.com/athletic/6620557/2025/09/11/ravens-lamar-jackson-bills-fan-nfl-discipline/
+
+**John Kelly hired as Kings' lead TV voice, with Jim Fox to share analyst duties**\
+`Kelly joins Los Angeles after a long run with the St. Louis Blues.`\
+https://nytimes.com/athletic/6620598/2025/09/11/john-kelly-kings-jim-fox/
+
 **Charlie Kirk and America’s Fragile Fabric**\
 `Readers react to the assassination of the right-wing youth activist.`\
 https://nytimes.com/2025/09/11/opinion/letters/charlie-kirk-assassination.html
@@ -29,12 +37,4 @@ https://nytimes.com/spotlight/alien-earth-fx-hulu
 **Music Festival in Belgium Cancels Concert Led by Israeli Conductor**\
 `The Flanders Festival Ghent dropped a Munich Philharmonic program, citing concerns over a conductor’s possible views on Gaza. German leaders called the move antisemitic.`\
 https://nytimes.com/2025/09/11/arts/music/belgium-festival-israel-orchestra-conductor-shani.html
-
-**Klarna’s Market Debut Shows Wall Street’s Renewed Appetite for I.P.O.s**\
-`The company’s shares rose more than 14 percent on the first day of trading, a sign of the health of the public markets and a willingness of investors to bet on new companies.`\
-https://nytimes.com/2025/09/11/business/dealbook/klarna-ipo-stock-market.html
-
-**Donnarumma: Goalkeeper competition at City 'good for everyone'**\
-`Donnarumma is available to make his debut against Manchester United on Sunday, but faces competition from James Trafford.`\
-https://nytimes.com/athletic/6620372/2025/09/11/gianluigi-donnarumma-man-city-goalkeeper-competition/
 

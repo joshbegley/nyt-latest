@@ -1,3 +1,11 @@
+**Charlie Kirk and America’s Fragile Fabric**\
+`Readers react to the assassination of the right-wing youth activist.`\
+https://nytimes.com/2025/09/11/opinion/letters/charlie-kirk-assassination.html
+
+**College football Week 3 best bets: Will Mensah put up a big game against his former team?**\
+`Austin Mock is buying low on Colorado and picking the under in a noteworthy SEC game this week.`\
+https://nytimes.com/athletic/6620413/2025/09/11/college-football-best-bets-week-3-duke-colorado/
+
 **Gas Tanker Truck Explodes in Mexico City**\
 `An accidental explosion caused by a gas tanker killed at least four people and injured at least 90 more in Mexico City.`\
 https://nytimes.com/video/world/americas/100000010392617/truck-explodes-mexico-city.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/11/business/dealbook/klarna-ipo-stock-market.html
 **Donnarumma: Goalkeeper competition at City 'good for everyone'**\
 `Donnarumma is available to make his debut against Manchester United on Sunday, but faces competition from James Trafford.`\
 https://nytimes.com/athletic/6620372/2025/09/11/gianluigi-donnarumma-man-city-goalkeeper-competition/
-
-**California Passes Bill Allowing Omission of Patients’ Names From Abortion Pill Bottles**\
-`The intent is to protect health care providers who send the pills to patients in states with abortion bans, and to reassure patients who fear they could be identified.`\
-https://nytimes.com/2025/09/11/health/california-abortion-pill-protections.html
-
-**Investigators eye a hunting rifle for clues to the gunman’s identity and motive.**\
-`By Glenn Thrush and Devlin Barrett`\
-https://nytimes.com/live/2025/09/11/us/charlie-kirk-shooting-news/investigators-eye-a-hunting-rifle-for-clues-to-the-gunmans-identity-and-motive
 

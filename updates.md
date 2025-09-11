@@ -1,3 +1,11 @@
+**Charlie Kirk and America’s Fragile Fabric**\
+`Readers react to the assassination of the right-wing youth activist.`\
+https://nytimes.com/2025/09/11/opinion/letters/charlie-kirk-assassination.html
+
+**College football Week 3 best bets: Will Mensah put up a big game against his former team?**\
+`Austin Mock is buying low on Colorado and picking the under in a noteworthy SEC game this week.`\
+https://nytimes.com/athletic/6620413/2025/09/11/college-football-best-bets-week-3-duke-colorado/
+
 **Gas Tanker Truck Explodes in Mexico City**\
 `An accidental explosion caused by a gas tanker killed at least four people and injured at least 90 more in Mexico City.`\
 https://nytimes.com/video/world/americas/100000010392617/truck-explodes-mexico-city.html
