@@ -1,3 +1,11 @@
+**Canucks top 10 prospects: Ranking No. 10 to No. 6 before the season**\
+`There are some intriguing players with an opportunity to develop and play for Vancouver who rank outside of the top-five prospects.`\
+https://nytimes.com/athletic/6618509/2025/09/11/vancouver-canucks-prospects-top-2025-26-season/
+
+**Newcastle cancel tickets bought by Dundee school for Barcelona Champions League game**\
+`45 tickets for the much-anticipated match were initially purchased by a school in Scotland, 190 miles away`\
+https://nytimes.com/athletic/6620400/2025/09/11/newcastle-barcelona-tickets-dundee-school/
+
 **Eric Adams Hints to Business Leaders He Is Open to Quitting Mayor’s Race**\
 `Mayor Eric Adams told a prominent New York City business group that if a private poll showed he had no path to re-election, he would reconsider bowing out.`\
 https://nytimes.com/2025/09/11/nyregion/adams-mayor-campaign-nyc.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6620221/2025/09/11/baltimore-orioles-mike-elias-pro
 **Trump Says He Will Award Kirk the Presidential Medal of Freedom.**\
 `“Charlie was a giant of his generation, a champion of liberty and an inspiration to millions and millions of people,” Mr. Trump said during a Sept. 11 ceremony at the Pentagon.`\
 https://nytimes.com/2025/09/11/us/charlie-kirk-trump-medal-of-freedom.html
-
-**Explained: Chelsea's 74 FA charges and what punishments they could face**\
-`Breaking down what Chelsea are accused of by the FA and what the implications could be`\
-https://nytimes.com/athletic/6619592/2025/09/11/chelsea-fa-charges-agents-explained/
-
-**Who should play on the Senators top line with Stützle and Tkachuk? Senators mailbag**\
-`Also, a quick breakdown of the Senators' 2026 draft picks and what it will take for them to reach true Cup contender status?`\
-https://nytimes.com/athletic/6590557/2025/09/11/cozens-pinto-senators-zetterlund-mailbag/
 

@@ -1,3 +1,11 @@
+**Eric Adams Hints to Business Leaders He Is Open to Quitting Mayor’s Race**\
+`Mayor Eric Adams told a prominent New York City business group that if a private poll showed he had no path to re-election, he would reconsider bowing out.`\
+https://nytimes.com/2025/09/11/nyregion/adams-mayor-campaign-nyc.html
+
+**How Brock Purdy's injury impacted 49ers' Week 2 spread, total and futures odds**\
+`Brock Purdy's injury moved the point spread and total for San Francisco's Week 2 game against New Orleans. `\
+https://nytimes.com/athletic/6619734/2025/09/11/brock-purdy-odds-impact-spread-total-super-bowl-futures/
+
 **The F.B.I. releases two images of a ‘person of interest’ in the Kirk investigation.**\
 `By Nicholas Bogel-Burroughs and Devlin Barrett`\
 https://nytimes.com/live/2025/09/11/us/charlie-kirk-shooting-news/the-fbi-releases-two-images-of-a-person-of-interest-in-the-kirk-investigation
