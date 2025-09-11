@@ -1,3 +1,19 @@
+**N.Y. Marijuana Businesses Facing Possible Closure Win Temporary Reprieve**\
+`Dispensaries had sued the state after a change in the buffer zone between cannabis shops and schools placed some within a zone banning cannabis sales.`\
+https://nytimes.com/2025/09/11/nyregion/marijuana-dispensaries-new-york-win-reprieve.html
+
+**Alien: Earth**\
+``\
+https://nytimes.com/spotlight/alien-earth-fx-hulu
+
+**Music Festival in Belgium Cancels Concert Led by Israeli Conductor**\
+`The Flanders Festival Ghent dropped a Munich Philharmonic program, citing concerns over a conductor’s possible views on Gaza. German leaders called the move antisemitic.`\
+https://nytimes.com/2025/09/11/arts/music/belgium-festival-israel-orchestra-conductor-shani.html
+
+**Klarna’s Market Debut Shows Wall Street’s Renewed Appetite for I.P.O.s**\
+`The company’s shares rose more than 14 percent on the first day of trading, a sign of the health of the public markets and a willingness of investors to bet on new companies.`\
+https://nytimes.com/2025/09/11/business/dealbook/klarna-ipo-stock-market.html
+
 **Donnarumma: Goalkeeper competition at City 'good for everyone'**\
 `Donnarumma is available to make his debut against Manchester United on Sunday, but faces competition from James Trafford.`\
 https://nytimes.com/athletic/6620372/2025/09/11/gianluigi-donnarumma-man-city-goalkeeper-competition/
