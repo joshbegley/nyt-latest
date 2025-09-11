@@ -1,3 +1,15 @@
+**For Trump, Charlie Kirk Is a Deeply Personal Loss**\
+`The president’s reaction to Charlie Kirk’s assassination shows how much the 31-year-old conservative activist had become a part of the Trump family.`\
+https://nytimes.com/2025/09/11/us/politics/trump-kirk.html
+
+**NFL Week 2 projected scores: Model predicts point spreads and totals for every game**\
+`Austin Mock's projection model predicts point spreads and point totals for all 16 NFL Week 2 games.`\
+https://nytimes.com/athletic/6620906/2025/09/11/nfl-week-2-projected-scores-model-point-spreads-totals/
+
+**Cancer gave her a month to live. Mass General Brigham gave her a lifeline.**\
+`For Ann Malik, cutting-edge treatments and collaborative care transformed a terminal diagnosis into a manageable condition.`\
+https://nytimes.com/paidpost/mass-general-brigham/cancer-gave-her-a-month-to-live-mass-general-brigham-gave-her-a-lifeline.html
+
 **How Concerned Are You About Political Violence in America?**\
 `What’s your reaction to the assassination of Charlie Kirk, a conservative organizer and activist?`\
 https://nytimes.com/2025/09/11/learning/how-concerned-are-you-about-political-violence-in-america.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6621004/2025/09/11/trump-yankees-game-president-att
 **Trump Asks Appeals Court to Allow Firing of Lisa Cook Ahead of Key Fed Meeting**\
 `The government filed an emergency request after a lower court prevented the president from firing Ms. Cook as the case proceeds.`\
 https://nytimes.com/live/2025/09/11/us/trump-news/trump-lisa-cook-appeal-fed
-
-**NPR Names Thomas Evans as Its New Editor**\
-`Mr. Evans, who spent many years at CNN before joining NPR last year, takes over the top editorial job as the organization faces major funding challenges.`\
-https://nytimes.com/2025/09/11/business/media/npr-editor-thomas-evans.html
-
-**5 Books We Loved This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://nytimes.com/2025/09/11/books/review/5-books-we-loved-this-week.html
-
-**Jerry Seinfeld Compares ‘Free Palestine’ Movement to K.K.K., Report Says**\
-`The comments at a Duke University event this week have rankled student activists, who said they fostered a hostile environment on campus.`\
-https://nytimes.com/2025/09/11/us/jerry-seinfeld-palestine-kkk-duke.html
 
