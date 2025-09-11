@@ -1,3 +1,15 @@
+**Videos of Charlie Kirk’s Shooting Spread Rapidly on Social Media**\
+`First posted to X, they amassed millions of views on Instagram, Threads, YouTube and Telegram within hours.`\
+https://nytimes.com/2025/09/10/technology/charlie-kirk-shooting-videos-social-media.html
+
+**Jaguars say Travis Hunter will play more on defense Sunday against Bengals**\
+`"The goal is to increase and continue to increase (Hunter's playing time),” Jags coach Liam Coen said.`\
+https://nytimes.com/athletic/6617841/2025/09/10/jaguars-travis-hunter-more-defense-bengals/
+
+**Charlie Kirk Was an Influential Figure in Right-Wing Politics and a Trump Loyalist**\
+`Mr. Kirk was an energetic member of President Trump’s inner circle who appealed to young conservative voters and wealthy Republicans alike.`\
+https://nytimes.com/2025/09/10/us/charlie-kirk-republicans-trump-politics.html
+
 **In Rebuke of Mayor Adams, City Council Overrides 3 Vetoes**\
 `Measures eliminating criminal summonses for unlicensed vending and giving higher pay to Instacart workers had been overruled by the mayor.`\
 https://nytimes.com/2025/09/10/nyregion/eric-adams-vetoes-city-council.html
