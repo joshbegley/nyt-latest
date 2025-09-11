@@ -23,7 +23,7 @@ https://nytimes.com/2025/09/10/crosswords/daily-puzzle-2025-09-11.html
 https://nytimes.com/2025/09/10/us/politics/trump-charlie-kirk-ally.html
 
 **Charlie Kirk Embodied Mass-Culture Conservatism**\
-`A spokesman for a mass-culture conservatism that seemed both more rebellious and more normal.`\
+`He was a spokesman for a movement that seemed both more rebellious and more normal.`\
 https://nytimes.com/2025/09/10/opinion/charlie-kirk-trump-conservatism.html
 
 **A Video Taken Just After the Shooting Captured Someone on a Nearby Roof**\
