@@ -1,3 +1,7 @@
+**Smith and Russo: Wild at a crossroads with Kirill Kaprizov after he turns down latest massive offer**\
+`What does it mean? Does he want more money? A short-term deal? A new home? Here's what we're hearing and know so far.`\
+https://nytimes.com/athletic/6617747/2025/09/11/kirill-kaprizov-wild-offer/
+
 **Rise in U.S. Inflation Likely to Keep Fed Cautious on Pace of Rate Cuts**\
 `The central bank is likely to lower borrowing costs at its meeting next week amid budding concerns about the labor market.`\
 https://nytimes.com/2025/09/11/business/cpi-inflation-fed-rate-cuts.html
