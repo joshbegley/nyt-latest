@@ -2,6 +2,10 @@
 `The central bank is likely to lower borrowing costs at its meeting next week amid budding concerns about the labor market.`\
 https://nytimes.com/2025/09/11/business/cpi-inflation-fed-rate-cuts.html
 
+**Smith and Russo: Wild at a crossroads with Kirill Kaprizov after he turns down latest massive offer**\
+`What does it mean? Does he want more money? A short-term deal? A new home? Here's what we're hearing and know so far.`\
+https://nytimes.com/athletic/6617747/2025/09/11/kirill-kaprizov-wild-offer/
+
 **Charlie Kirk’s Widow, Erika, Promoted Conservative Values at His Side**\
 `Mr. Kirk often pointed to his marriage as an example of a loving, conservative partnership. The pair married in 2021 and had two children.`\
 https://nytimes.com/2025/09/11/us/charlie-kirk-wife-erika-children-family.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/09/11/us/trump-news
 **Angel Reese and Chicago Sky face crossroads as WNBA season ends. Will she return?**\
 `This offseason will determine Reese's future. Could she force a trade and leave the Sky to start from scratch again?`\
 https://nytimes.com/athletic/6619028/2025/09/11/angel-reese-chicago-sky-wnba-trade/
-
-**Luka Dončić's EuroBasket run gives the Lakers something to think about**\
-`This slimmed-down version of Dončić offered a reminder that there's an opportunity for LA to contend now.`\
-https://nytimes.com/athletic/6618619/2025/09/11/luka-doncic-lakers-eurobasket-roster/
 
