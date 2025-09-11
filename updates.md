@@ -1,3 +1,11 @@
+**TAFC: Brazil's race against time for World Cup, ticket sales for tournament hit initial glitch**\
+`Today in TAFC: Brazil qualifying campaign was a low point, so can Ancelotti turn it around? Plus: Moore, 15, makes history with debut goal.`\
+https://nytimes.com/athletic/6618613/2025/09/11/brazil-ancelotti-world-cup/
+
+**JD Vance Mourns His ‘True Friend’ Charlie Kirk**\
+`The Vice President wrote that Charlie Kirk was instrumental in his political development.`\
+https://nytimes.com/2025/09/11/us/charlie-kirk-shooting-death-jd-vance.html
+
 **Will A'ja Wilson be a four-time MVP? Will Napheesa Collier win for the first time?**\
 `The Athletic's experts reveal their MVP votes, All-WNBA teams and Defensive Player of the Year picks.`\
 https://nytimes.com/athletic/6618442/2025/09/11/wnba-mvp-napheesa-collier-aja-wilson/
