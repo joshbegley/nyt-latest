@@ -1,3 +1,11 @@
+**How Concerned Are You About Political Violence in America?**\
+`What’s your reaction to the assassination of Charlie Kirk, a conservative organizer and activist?`\
+https://nytimes.com/2025/09/11/learning/how-concerned-are-you-about-political-violence-in-america.html
+
+**(Eric Adams Voice) New York is the Mexico City of America**\
+`New restaurants and bakeries in Woodside, Bed-Stuy and on the Lower East Side bring the sweet swagger of CDMX to the city.`\
+https://nytimes.com/2025/09/11/dining/-eric-adams-voice-new-york-is-the-mexico-city-of-america.html
+
 **NHL to reinstate players acquitted in Hockey Canada trial, make them eligible for games Dec. 1: Source**\
 `Michael McLeod, Carter Hart, Alex Formenton, Dillon Dube and Cal Foote are now officially unrestricted free agents.`\
 https://nytimes.com/athletic/6525702/2025/09/11/nhl-hockey-canada-bettman/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/11/books/review/5-books-we-loved-this-week.html
 **Jerry Seinfeld Compares ‘Free Palestine’ Movement to K.K.K., Report Says**\
 `The comments at a Duke University event this week have rankled student activists, who said they fostered a hostile environment on campus.`\
 https://nytimes.com/2025/09/11/us/jerry-seinfeld-palestine-kkk-duke.html
-
-**Pakistan’s Floods Are a Climate Change Warning**\
-`Pakistan, among the countries most vulnerable to climate change, has been battered by floods and extreme heat as critics say its government needs to do more.`\
-https://nytimes.com/2025/09/11/climate/pakistans-floods-are-a-climate-change-warning.html
-
-**Onana completes Trabzonspor loan from Man United**\
-`The 29-year-old has made 102 appearances for United and is under contract until 2028. `\
-https://nytimes.com/athletic/6606031/2025/09/11/andre-onana-transfer-manchester-united-trabszonspor/
 
