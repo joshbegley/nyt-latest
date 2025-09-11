@@ -1,3 +1,11 @@
+**Did a Brooklyn Couple Kill a Neighbor’s Trees for a Better View in Maine?**\
+`Maine’s Board of Pesticides Control says two summer residents poisoned a neighbor’s trees so the couple, both Martha Stewart associates, could have a harbor view. They deny it.`\
+https://nytimes.com/2025/09/11/us/trees-poison.html
+
+**NFL reviewing allegations of domestic violence against Dolphins' Tyreek Hill**\
+`The NFL is reviewing new allegations of domestic violence made against Tyreek Hill by his estranged wife, Lakeeta Vaccaro Hill.`\
+https://nytimes.com/athletic/6619572/2025/09/11/tyreek-hill-domestic-violence-miami-dolphins/
+
 **Their Schools Banned Phones. Out Came the iPods and Cassette Players.**\
 `Enterprising students have been bringing the contraband of yesteryear to school in what they see as a “loophole” in cellphone bans.`\
 https://nytimes.com/2025/09/11/style/phone-ban-ipod-mp3-school.html

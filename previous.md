@@ -1,3 +1,11 @@
+**Did a Brooklyn Couple Kill a Neighbor’s Trees for a Better View in Maine?**\
+`Maine’s Board of Pesticides Control says two summer residents poisoned a neighbor’s trees so the couple, both Martha Stewart associates, could have a harbor view. They deny it.`\
+https://nytimes.com/2025/09/11/us/trees-poison.html
+
+**NFL reviewing allegations of domestic violence against Dolphins' Tyreek Hill**\
+`The NFL is reviewing new allegations of domestic violence made against Tyreek Hill by his estranged wife, Lakeeta Vaccaro Hill.`\
+https://nytimes.com/athletic/6619572/2025/09/11/tyreek-hill-domestic-violence-miami-dolphins/
+
 **Their Schools Banned Phones. Out Came the iPods and Cassette Players.**\
 `Enterprising students have been bringing the contraband of yesteryear to school in what they see as a “loophole” in cellphone bans.`\
 https://nytimes.com/2025/09/11/style/phone-ban-ipod-mp3-school.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6619600/2025/09/11/ange-postecoglou-nottingham-fore
 **Kirk’s Killing Tests Utah Governor’s Plea for Americans to ‘Disagree Better’**\
 `Gov. Spencer Cox of Utah has called for politicians to tone down their rhetoric. The assassination of Charlie Kirk is testing the limits of that high-minded approach.`\
 https://nytimes.com/2025/09/11/us/politics/charlie-kirk-spencer-cox-utah.html
-
-**Panthers fire PR employee for social media post about Charlie Kirk shooting**\
-`“The views expressed by our employees are their own and do not represent those of the Carolina Panthers,” a statement from the team said.`\
-https://nytimes.com/athletic/6619692/2025/09/11/panthers-employee-fired-charlie-kirk-post/
-
-**Red Light: A new era of star player movement? Plus: Fun with re-drafting**\
-`Good morning to everyone except the inventor of blackouts.`\
-https://nytimes.com/athletic/6619718/2025/09/11/nhl-red-light-star-player-movement/
 
