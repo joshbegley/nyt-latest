@@ -1,3 +1,15 @@
+**Witnesses Describe Shooting of Charlie Kirk**\
+`Charlie Kirk, a close ally of President Trump, was shot dead on Wednesday at Utah Valley University. People who were there recounted hearing a single gunshot and seeing a stampede as the audience ran.`\
+https://nytimes.com/video/us/100000010391959/witnesses-describe-shooting-of-charlie-kirk.html
+
+**Play-off shake-up would be good news for Wrexham, but bad for football**\
+`The Championship's end-of-season promotion deciders work perfectly and do not need to be revamped`\
+https://nytimes.com/athletic/6618958/2025/09/11/wrexham-play-off-efl/
+
+**Ralph Lauren and the Taylor Swift Effect**\
+`Taking advantage of a big moment with big clothes, in black and white.`\
+https://nytimes.com/2025/09/11/style/ralph-lauren-taylor-swift-spring-2026.html
+
 **Where Will Everyone in Gaza City Go?**\
 `Tents stretch across the beach. Exhaustion and hunger are high. There’s little room elsewhere.`\
 https://nytimes.com/interactive/2025/09/11/world/middleeast/gaza-city-evacuation-israel-maps.html

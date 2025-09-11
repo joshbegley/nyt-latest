@@ -1,3 +1,7 @@
+**Leeds without goalkeeper Perri for Fulham game with Nmecha, Piroe doubts**\
+`Dominic Calvert-Lewin could be in line for his full Leeds debut with injury worries to their strikers`\
+https://nytimes.com/athletic/6619462/2025/09/11/leeds-injury-update-daniel-farke-fulham/
+
 **Witnesses Describe Shooting of Charlie Kirk**\
 `Charlie Kirk, a close ally of President Trump, was shot dead on Wednesday at Utah Valley University. People who were there recounted hearing a single gunshot and seeing a stampede as the audience ran.`\
 https://nytimes.com/video/us/100000010391959/witnesses-describe-shooting-of-charlie-kirk.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/11/learning/a-phone-and-a-foot.html
 **Will the Seahawks bench Riq Woolen? What if Devon Witherspoon misses time?**\
 `Woolen had a rough Week 1, while Josh Jobe shined. With Witherspoon and Nick Emmanwori battling injuries, Seattle's secondary looks murky.`\
 https://nytimes.com/athletic/6617762/2025/09/11/riq-woolen-devon-witherspoon-josh-jobe/
-
-**Major Medical Prizes Given to Cell Biology and Cystic Fibrosis Pioneers**\
-`Many winners of the annual Lasker Awards have gone on to win a Nobel Prize in medicine or other fields.`\
-https://nytimes.com/2025/09/11/health/lasker-awards-medicine.html
 

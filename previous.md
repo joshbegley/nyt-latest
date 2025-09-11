@@ -1,3 +1,15 @@
+**Witnesses Describe Shooting of Charlie Kirk**\
+`Charlie Kirk, a close ally of President Trump, was shot dead on Wednesday at Utah Valley University. People who were there recounted hearing a single gunshot and seeing a stampede as the audience ran.`\
+https://nytimes.com/video/us/100000010391959/witnesses-describe-shooting-of-charlie-kirk.html
+
+**Play-off shake-up would be good news for Wrexham, but bad for football**\
+`The Championship's end-of-season promotion deciders work perfectly and do not need to be revamped`\
+https://nytimes.com/athletic/6618958/2025/09/11/wrexham-play-off-efl/
+
+**Ralph Lauren and the Taylor Swift Effect**\
+`Taking advantage of a big moment with big clothes, in black and white.`\
+https://nytimes.com/2025/09/11/style/ralph-lauren-taylor-swift-spring-2026.html
+
 **Where Will Everyone in Gaza City Go?**\
 `Tents stretch across the beach. Exhaustion and hunger are high. There’s little room elsewhere.`\
 https://nytimes.com/interactive/2025/09/11/world/middleeast/gaza-city-evacuation-israel-maps.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6617762/2025/09/11/riq-woolen-devon-witherspoon-jos
 **Major Medical Prizes Given to Cell Biology and Cystic Fibrosis Pioneers**\
 `Many winners of the annual Lasker Awards have gone on to win a Nobel Prize in medicine or other fields.`\
 https://nytimes.com/2025/09/11/health/lasker-awards-medicine.html
-
-**Rise in U.S. Inflation Likely to Keep Fed Cautious on Pace of Rate Cuts**\
-`The central bank is likely to lower borrowing costs at its meeting next week amid budding concerns about the labor market.`\
-https://nytimes.com/2025/09/11/business/cpi-inflation-fed-rate-cuts.html
-
-**Smith and Russo: Wild at a crossroads with Kirill Kaprizov after he turns down latest massive offer**\
-`What does it mean? Does he want more money? A short-term deal? A new home? Here's what we're hearing and know so far.`\
-https://nytimes.com/athletic/6617747/2025/09/11/kirill-kaprizov-wild-offer/
-
-**Charlie Kirk’s Widow, Erika, Promoted Conservative Values at His Side**\
-`Mr. Kirk often pointed to his marriage as an example of a loving, conservative partnership. The pair married in 2021 and had two children.`\
-https://nytimes.com/2025/09/11/us/charlie-kirk-wife-erika-children-family.html
 
