@@ -1,3 +1,7 @@
+**Mike Trout isn't letting metrics, home run drought sway belief that he can return to form**\
+`Trout's chase for 400 homers has transformed from a celebration to a source of anxiety for the Angels after it's dragged for weeks.`\
+https://nytimes.com/athletic/6617916/2025/09/11/mike-trout-400-home-run-chase-angels/
+
 **Do You Wish You Could Break Free From Your Phone?**\
 `Have you ever tried? What strategies have been most successful in limiting your phone’s power over you?`\
 https://nytimes.com/2025/09/11/learning/do-you-wish-you-could-break-free-from-your-phone.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6617642/2025/09/11/yankees-anthony-volpe-starting-s
 **The Seahawks are still trying to replace DK Metcalf. Now they must stop him**\
 `The Seahawks had big plans for Metcalf before he asked for a trade. Now, they need a receiver to step up against Metcalf's new team.`\
 https://nytimes.com/athletic/6616960/2025/09/11/dk-metcalf-seahawks-steelers-revenge-game/
-
-**'What a gift': Phillies rewarded with rejuvenated outfield of Bader, Kepler, Marsh**\
-`The Phillies discovered a productive unit by rallying around three players who are making the most of every chance to play.`\
-https://nytimes.com/athletic/6618479/2025/09/11/phillies-outfield-bader-kepler-marsh/
 

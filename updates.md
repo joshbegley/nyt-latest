@@ -1,3 +1,7 @@
+**Mike Trout isn't letting metrics, home run drought sway belief that he can return to form**\
+`Trout's chase for 400 homers has transformed from a celebration to a source of anxiety for the Angels after it's dragged for weeks.`\
+https://nytimes.com/athletic/6617916/2025/09/11/mike-trout-400-home-run-chase-angels/
+
 **Do You Wish You Could Break Free From Your Phone?**\
 `Have you ever tried? What strategies have been most successful in limiting your phone’s power over you?`\
 https://nytimes.com/2025/09/11/learning/do-you-wish-you-could-break-free-from-your-phone.html
