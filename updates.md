@@ -1,3 +1,11 @@
+**Ravens' Lamar Jackson won't be disciplined by NFL following interaction with fan**\
+`The incident with a Bills fan occurred during the third quarter of Baltimore's loss to Buffalo in Week 1. `\
+https://nytimes.com/athletic/6620557/2025/09/11/ravens-lamar-jackson-bills-fan-nfl-discipline/
+
+**John Kelly hired as Kings' lead TV voice, with Jim Fox to share analyst duties**\
+`Kelly joins Los Angeles after a long run with the St. Louis Blues.`\
+https://nytimes.com/athletic/6620598/2025/09/11/john-kelly-kings-jim-fox/
+
 **Charlie Kirk and America’s Fragile Fabric**\
 `Readers react to the assassination of the right-wing youth activist.`\
 https://nytimes.com/2025/09/11/opinion/letters/charlie-kirk-assassination.html
