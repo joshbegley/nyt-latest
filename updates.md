@@ -1,3 +1,7 @@
+**Late Night Teases Trump Over His Night Out in D.C.**\
+`“There are hundreds of troops on the street and somehow they let a 34-time convicted felon just waltz into a restaurant,” Jimmy Kimmel said.`\
+https://nytimes.com/2025/09/11/arts/television/late-night-trump-washington-dinner.html
+
 **Nepal’s Young Protesters Find an Unlikely Partner: The Army**\
 `After an explosion of popular rage tore through the country, its respected army was the only institution left standing. It’s now in talks with the protesters.`\
 https://nytimes.com/2025/09/11/world/asia/nepal-army-gen-z-protesters.html
