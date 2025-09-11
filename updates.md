@@ -1,3 +1,15 @@
+**A Video Taken Just After the Shooting Captured Someone on a Nearby Roof**\
+`A man who attended the Charlie Kirk event was trying to get good footage to share with his friends.`\
+https://nytimes.com/2025/09/10/us/a-video-taken-just-after-the-shooting-captured-someone-on-a-nearby-roof.html
+
+**Authorities arrest 4 suspects in connection with shooting of FSU's Ethan Pritchard**\
+`Pritchard remains in critical condition after being shot in his vehicle outside of an apartment complex Aug. 31.`\
+https://nytimes.com/athletic/6618110/2025/09/10/ethan-pritchard-suspects-arrested-florida-state/
+
+**‘The Brothers Size’ Review: A Spare and Poetic Restaging**\
+`In honor of its 20th anniversary, Tarell Alvin McCraney’s play gets a fiercely minimalist production at the Shed.`\
+https://nytimes.com/2025/09/10/theater/brothers-size-review.html
+
 **Gas Tanker Explodes in Mexico City**\
 `Emergency crews worked to extinguish a fire after a gas tanker exploded under a highway overpass in Mexico City.`\
 https://nytimes.com/video/world/americas/100000010391495/gas-explosion-mexico-city.html
