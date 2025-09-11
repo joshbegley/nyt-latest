@@ -1,3 +1,7 @@
+**On Melissa Jefferson-Wooden's ascent to sprinting stardom, the world stage is next**\
+`Melissa Jefferson-Wooden&#8217;s explosion out of the block is like an electric car.`\
+https://nytimes.com/athletic/6621098/2025/09/11/melissa-jefferson-wooden-world-athletics-championships-100-meter/
+
 **I was set to interview Charlie Kirk next month. Then he was assassinated.**\
 `His death takes us deeper into an age of instability.`\
 https://nytimes.com/video/opinion/100000010392105/i-was-set-to-interview-charlie-kirk-next-month-then-he-was-assassinated.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6621125/2025/09/11/flyers-luchanko-injury-kolosov-c
 **Ralph Lauren Opens New York Fashion Week**\
 `American fashion designer Ralph Lauren kicked off New York Fashion Week with a collection that highlighted mostly monochrome looks.`\
 https://nytimes.com/video/style/100000010392309/ralph-lauren-nyfw.html
-
-**College football Week 3 projected scores: Model predicts every FBS vs. FBS game**\
-`Austin Mock's projection model has predicted point differentials and totals for every FBS vs. FBS game for college football's Week 3.`\
-https://nytimes.com/athletic/6621140/2025/09/11/college-football-week-3-projected-scores-model/
 

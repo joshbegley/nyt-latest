@@ -1,3 +1,7 @@
+**On Melissa Jefferson-Wooden's ascent to sprinting stardom, the world stage is next**\
+`Melissa Jefferson-Wooden&#8217;s explosion out of the block is like an electric car.`\
+https://nytimes.com/athletic/6621098/2025/09/11/melissa-jefferson-wooden-world-athletics-championships-100-meter/
+
 **I was set to interview Charlie Kirk next month. Then he was assassinated.**\
 `His death takes us deeper into an age of instability.`\
 https://nytimes.com/video/opinion/100000010392105/i-was-set-to-interview-charlie-kirk-next-month-then-he-was-assassinated.html
