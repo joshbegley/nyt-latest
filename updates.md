@@ -1,3 +1,7 @@
+**Ralph Lauren Opens New York Fashion Week**\
+`American fashion designer Ralph Lauren kicked off New York Fashion Week with a collection that highlighted mostly monochrome looks.`\
+https://nytimes.com/video/style/100000010392309/ralph-lauren-nyfw.html
+
 **College football Week 3 projected scores: Model predicts every FBS vs. FBS game**\
 `Austin Mock's projection model has predicted point differentials and totals for every FBS vs. FBS game for college football's Week 3.`\
 https://nytimes.com/athletic/6621140/2025/09/11/college-football-week-3-projected-scores-model/
