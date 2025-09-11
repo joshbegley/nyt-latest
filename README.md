@@ -1,5 +1,17 @@
+**Here’s the latest.**\
+`By Yan Zhuang, Michael Levenson and Robert Draper`\
+https://nytimes.com/live/2025/09/11/us/charlie-kirk-shooting-news/heres-the-latest
+
+**Live Updates: Manhunt Underway After Charlie Kirk, Charismatic Right-Wing Activist, Is Fatally Shot**\
+`Videos from the university event where Mr. Kirk was killed show a person on a nearby rooftop at the time of the shooting.`\
+https://nytimes.com/live/2025/09/11/us/charlie-kirk-shooting-news
+
+**NHL futures best bets, win totals: Why the Sabres deserve more love**\
+`With the season around the corner, here's a look at the best futures bets that present value.`\
+https://nytimes.com/athletic/6616541/2025/09/11/nhl-futures-best-bets-win-totals-why-the-sabres-deserve-more-love/
+
 **Aspiration paid Kawhi Leonard days after investment by Clippers' minority owner: Report**\
-`A climate company was struggling to pay Kawhi Leonard. Then, the Clippers minority owner invested $2 million, according to Pablo Torre.`\
+`A climate company was struggling to pay Kawhi Leonard. Then, a Clippers minority owner invested $2 million, according to a new report.`\
 https://nytimes.com/athletic/6618230/2025/09/11/aspiration-paid-kawhi-leonard-days-after-investment-by-clippers-minority-owner-report/
 
 **From Iowa to New Orleans: The Athletic's top 10 college bars**\
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2025/09/11/realestate/long-island-port-jefferson
 **Drone Barrage Over Poland Was a Test for NATO, and the U.S.**\
 `A continent already on edge over the Ukraine war sees a Russian challenge to NATO readiness and to an America that wants to disengage from Europe.`\
 https://nytimes.com/2025/09/11/world/europe/poland-russia-ukraine-nato.html
-
-**Russia’s Strategy Against the West: Escalate Slowly and See if It Responds**\
-`Ukrainian and European officials say President Vladimir V. Putin has become emboldened by a lack of Western pushback.`\
-https://nytimes.com/2025/09/11/world/europe/russia-ukraine-europe-poland-drones.html
-
-**In South Korea and Japan, Fury at U.S. Fuels Backlash Over Trade Deals**\
-`Officials and business leaders in both countries are questioning commitments their governments made to invest hundreds of billions in American manufacturing.`\
-https://nytimes.com/2025/09/11/business/south-korea-japan-trump-trade.html
-
-**In Pamela Hanson’s New Book, Supermodels Abound**\
-`How did Pamela Hanson become the photographer of choice for so many women?`\
-https://nytimes.com/2025/09/11/fashion/pamela-hanson-photographs-supermodels.html
 

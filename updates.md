@@ -1,3 +1,11 @@
+**Aspiration paid Kawhi Leonard days after investment by Clippers' minority owner: Report**\
+`A climate company was struggling to pay Kawhi Leonard. Then, the Clippers minority owner invested $2 million, according to Pablo Torre.`\
+https://nytimes.com/athletic/6618230/2025/09/11/aspiration-paid-kawhi-leonard-days-after-investment-by-clippers-minority-owner-report/
+
+**From Iowa to New Orleans: The Athletic's top 10 college bars**\
+`Hitting the road for an away game? Here are The Athletic's 10 best bars of 2025. `\
+https://nytimes.com/athletic/6607957/2025/09/11/athletic-college-bars-top-10-ranked/
+
 **Charlie Kirk Was Practicing Politics the Right Way**\
 `The foundation of a free society is the ability to participate in politics without fear of violence. To lose that is to risk losing everything.`\
 https://nytimes.com/2025/09/11/opinion/charlie-kirk-assassination-fear-politics.html
