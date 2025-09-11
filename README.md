@@ -1,3 +1,7 @@
+**‘The Brothers Size’ Review: A Spare and Poetic Restaging**\
+`In honor of its 20th anniversary, Tarell Alvin McCraney’s play gets a fiercely minimalist production at the Shed.`\
+https://nytimes.com/2025/09/10/theater/brothers-size-review.html
+
 **Gas Tanker Explodes in Mexico City**\
 `Emergency crews worked to extinguish a fire after a gas tanker exploded under a highway overpass in Mexico City.`\
 https://nytimes.com/video/world/americas/100000010391495/gas-explosion-mexico-city.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6618120/2025/09/10/tigers-vs-yankees-stream-how-to-
 **What We Know About the Fatal Shooting of Charlie Kirk at Utah Valley**\
 `Mr. Kirk, 31, the founder of a right-wing youth activist group, was shot while speaking at the university on Wednesday.`\
 https://nytimes.com/2025/09/10/us/charlie-kirk-death-shooting-suspect.html
-
-**Social Media Falls Into Well Worn Grooves After Charlie Kirk’s Death**\
-`A mix of sympathy and blame proliferated in messages posted from figures across the political spectrum.`\
-https://nytimes.com/2025/09/10/style/charlie-kirk-social-media-reaction.html
 
