@@ -1,3 +1,7 @@
+**Word of the Day: edify**\
+`This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/09/11/learning/word-of-the-day-edify.html
+
 **Hopes for a Fast Capture of Kirk’s Shooter Fade After Patel Backtracks**\
 `Kash Patel, the F.B.I. director, said that the agency’s investigation was continuing, reversing his earlier announcement that someone had been apprehended.`\
 https://nytimes.com/2025/09/11/us/charlie-kirk-shooting-manhunt-fbi.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6618466/2025/09/11/cubs-bullpen-porter-hodge-runnin
 **Barcelona's 6,000-capacity emergency 'home' ground covering for the Camp Nou**\
 `Barcelona's La Liga match against Valencia will be held at the tiny stadium by their training ground. What's it like?`\
 https://nytimes.com/athletic/6616874/2025/09/11/barcelona-stadium-la-liga-valencia-johan-cruyff/
-
-**Chelsea have already scored four goals from corner kicks this season – so what's changed?**\
-`With so many opponents hellbent on making it difficult for Chelsea to play intricate, possession football, these are vital marginal gains`\
-https://nytimes.com/athletic/6615912/2025/09/11/chelsea-corner-expertise-premier-league/
 

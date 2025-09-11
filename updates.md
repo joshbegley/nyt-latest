@@ -1,3 +1,7 @@
+**Word of the Day: edify**\
+`This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/09/11/learning/word-of-the-day-edify.html
+
 **Hopes for a Fast Capture of Kirk’s Shooter Fade After Patel Backtracks**\
 `Kash Patel, the F.B.I. director, said that the agency’s investigation was continuing, reversing his earlier announcement that someone had been apprehended.`\
 https://nytimes.com/2025/09/11/us/charlie-kirk-shooting-manhunt-fbi.html
