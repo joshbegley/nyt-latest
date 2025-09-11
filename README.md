@@ -1,3 +1,15 @@
+**After months of turbulence, Eddie Howe is closer to the Newcastle United he craves**\
+`The club was described as an ‘empty shell’. Now they're getting a team together, much to Howe's liking`\
+https://nytimes.com/athletic/6615950/2025/09/11/eddie-howe-newcastle-united-future/
+
+**How Macron Failed to Curb the Far Right**\
+`As France drifted to the right, the president has tried to make the country more business-friendly and win back voters. His strategy hasn’t worked.`\
+https://nytimes.com/2025/09/11/briefing/macron-far-right-charlie-kick-killing-poland-russia-nato.html
+
+**Amorim baiting the press is risky - but in matches against the 'Big Six', it has worked**\
+`Amorim got the better of tactical battles with Pep Guardiola last season - how United need that to continue against City `\
+https://nytimes.com/athletic/6588934/2025/09/11/ruben-amorim-manchester-united-bait/
+
 **Ranking the 10 best forwards to own in Fantasy Premier League**\
 `Erling Haaland, Joao Pedro and Alexander Isak are all some of the best forwards to own in FPL right now. Holly Shand presents her top 10`\
 https://nytimes.com/athletic/6612705/2025/09/11/fantasy-premier-league-forwards-haaland-isak-joao-pedro/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6594095/2025/09/11/jean-philippe-mateta-doesnt-just
 **'We've had enough. It's time for change' - West Ham fans step up protests against owners**\
 `Moving to the London Stadium, on-pitch struggles and controversy over concession tickets have eroded supporters' faith in the club's board`\
 https://nytimes.com/athletic/6615252/2025/09/11/west-ham-protests-owners/
-
-**The making of Oscar Bobb: From the lost years in Portugal to starring for Manchester City**\
-`Oscar Bobb was a child prodigy in Norway but when he moved to Portugal he fell foul of a FIFA ruling that left him in football limbo`\
-https://nytimes.com/athletic/6612724/2025/09/11/the-making-of-oscar-bobb/
-
-**Canadian Man Falsely Named as Charlie Kirk’s Shooter on Social Media**\
-`The 77-year-old former banker, who lives in Toronto, said he was “shocked” by the speed at which his photograph spread online.`\
-https://nytimes.com/2025/09/11/technology/charlie-kirk-shooting-false-accusation.html
-
-**Aston Villa, the only team in England's top seven divisions without a goal**\
-`Unari Emery's side have failed to score in their first three games - should they be worried? What has happened?`\
-https://nytimes.com/athletic/6613119/2025/09/11/aston-villa-no-goals-premier-league/
 
