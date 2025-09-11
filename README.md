@@ -1,3 +1,7 @@
+**The New York Times in Print for Thursday, Sep. 11, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/11/todays-new-york-times
+
 **How to watch Chargers at Raiders: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Chargers play the Las Vegas Raiders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6618639/2025/09/11/chargers-vs-raiders-stream-how-to-watch-sept-15/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6612705/2025/09/11/fantasy-premier-league-forwards-
 **Send in your Barcelona questions for our writers Pol Ballus and Laia Cervello Herrero**\
 `What do you want to know about Barca's start to the season?`\
 https://nytimes.com/athletic/6610350/2025/09/11/barcelona-la-liga-writers-q-and-a/
-
-**Cubs takeaways: Bullpen steps up, Porter Hodge impresses and more**\
-`"He delivered. Absolutely take note of it," Cubs manager Craig Counsell said of Hodge. Chicago beat the Atlanta Braves 3-2.`\
-https://nytimes.com/athletic/6618466/2025/09/11/cubs-bullpen-porter-hodge-running/
 
