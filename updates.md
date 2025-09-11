@@ -1,3 +1,19 @@
+**Social Media Falls Into Well Worn Grooves After Charlie Kirk’s Death**\
+`A mix of sympathy and blame proliferated in messages posted from figures across the political spectrum.`\
+https://nytimes.com/2025/09/10/style/charlie-kirk-social-media-reaction.html
+
+**Adam Silver strikes bold tone, for him, on Clippers investigation**\
+`Adam Silver emphasized the need to reserve judgment during Clippers investigation. But Silver knows he has power to punish LA if necessary.`\
+https://nytimes.com/athletic/6617814/2025/09/10/adam-silver-clippers-ballmer-investigation-bold/
+
+**Republican Senator Asks Social Security Agency About Whistle-Blower’s Claims**\
+`The chair of the Finance Committee sent the agency a letter inquiring about allegations that it had put the confidential personal information of Americans at risk.`\
+https://nytimes.com/2025/09/10/us/politics/doge-social-security-republicans.html
+
+**American investors spent big on NWSL, but now they have options abroad**\
+`Down to Business with Asli Pelit takes you through the exciting, fast-paced (and sometimes confusing) corporate side of women's soccer.`\
+https://nytimes.com/athletic/6617598/2025/09/10/nwsl-wsl-investment-down-to-business/
+
 **Videos of Charlie Kirk’s Shooting Spread Rapidly on Social Media**\
 `First posted to X, they amassed millions of views on Instagram, Threads, YouTube and Telegram within hours.`\
 https://nytimes.com/2025/09/10/technology/charlie-kirk-shooting-videos-social-media.html
