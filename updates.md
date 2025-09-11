@@ -1,3 +1,7 @@
+**Gas Tanker Explodes in Mexico City**\
+`Emergency crews worked to extinguish a fire after a gas tanker exploded under a highway overpass in Mexico City.`\
+https://nytimes.com/video/world/americas/100000010391495/gas-explosion-mexico-city.html
+
 **Charlie Kirk and America’s Grim Routine**\
 `While the nation has endured violent eras before, this is one with instant footage, and instant reaction.`\
 https://nytimes.com/2025/09/10/us/politics/political-violence-charlie-kirk-shooting.html
