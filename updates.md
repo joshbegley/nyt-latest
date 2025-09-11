@@ -1,3 +1,7 @@
+**Nepal’s Social Media Ban Backfires as Citizens Nominate New Leader in Chat Room**\
+`After days of violent protest led to the government’s collapse, thousands of citizens gather virtually to debate their nation’s future.`\
+https://nytimes.com/2025/09/11/world/asia/nepal-protest-genz-discord.html
+
 **European Parliament Declines to Hold a Moment of Silence for Charlie Kirk**\
 `The request, made by a right-wing parliamentary member, was rejected on account of protocol.`\
 https://nytimes.com/2025/09/11/us/eu-parliament-charlie-kirk-moment-of-silence.html

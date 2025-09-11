@@ -1,3 +1,7 @@
+**Nepal’s Social Media Ban Backfires as Citizens Nominate New Leader in Chat Room**\
+`After days of violent protest led to the government’s collapse, thousands of citizens gather virtually to debate their nation’s future.`\
+https://nytimes.com/2025/09/11/world/asia/nepal-protest-genz-discord.html
+
 **European Parliament Declines to Hold a Moment of Silence for Charlie Kirk**\
 `The request, made by a right-wing parliamentary member, was rejected on account of protocol.`\
 https://nytimes.com/2025/09/11/us/eu-parliament-charlie-kirk-moment-of-silence.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/11/briefing/manhunt-charlie-kirk-inflation-data.html
 **The Manhunt for Charlie Kirk’s Killer**\
 `The F.B.I. released two grainy images of a person of interest, but the gunman remained at large more than a day after the shooting.`\
 https://nytimes.com/2025/09/11/briefing/charlie-kirk-suspect-bolsonaro-trial-nepal.html
-
-**Anna Sawai, Priyanka Chopra and Peter Marino Inspect Dior’s Newest Look**\
-`The fashion crowd turned out for the reopening of the New York flagship store, which now has a spa.`\
-https://nytimes.com/2025/09/11/style/dior-store-nyc-reopening-spa.html
 
