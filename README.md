@@ -1,5 +1,33 @@
+**Panthers fire PR employee for social media post about Charlie Kirk shooting**\
+`“The views expressed by our employees are their own and do not represent those of the Carolina Panthers,” a statement from the team said.`\
+https://nytimes.com/athletic/6619692/2025/09/11/panthers-employee-fired-charlie-kirk-post/
+
+**Red Light: A new era of star player movement? Plus: Fun with re-drafting**\
+`Good morning to everyone except the inventor of blackouts.`\
+https://nytimes.com/athletic/6619718/2025/09/11/nhl-red-light-star-player-movement/
+
+**Building an Octopus Dictionary, One Arm Movement at a Time**\
+`Scientists set out to understand all the ways the animals use their eight appendages. It wasn’t easy.`\
+https://nytimes.com/2025/09/11/science/octopus-arms-video-dictionary.html
+
+**Mapo Tofu, but With Tomatoes, Please**\
+`Those last beautiful summer tomatoes are put to good use in Hetty Lui McKinnon’s take on the classic Sichuan dish.`\
+https://nytimes.com/2025/09/11/dining/mapo-tofu-but-with-tomatoes-please.html
+
+**Photography’s Next Generation, Bursting Out of the Frames**\
+`On the 40th anniversary of the New Photography series at MoMA, 13 artists and collectives on three continents find ties that bind — and a resurrection.`\
+https://nytimes.com/2025/09/11/arts/design/new-photography-2025-moma.html
+
+**Police Recover a ‘High-Powered' Rifle as Speculation Grows About Shooter**\
+`Little is known about the gunman, who may have used a popular type of hunting rifle in the shooting of Charlie Kirk.`\
+https://nytimes.com/2025/09/11/us/charlie-kirk-shooter-weapon-bolt-action-rifle.html
+
+**The Windup: Phillies flip the script on Mets**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6618658/2025/09/11/phillies-mets-standings-the-windup/
+
 **Belarus Frees 52 Political Prisoners in U.S.-Brokered Deal**\
-`Alexander Lukashenko, the country’s authoritarian leader and an ally of President Vladimir Putin of Russia, wants to normalize ties with the Trump administration.`\
+`Release comes as Alexander Lukashenko, the country’s authoritarian leader and an ally of President Vladimir Putin of Russia, seeks to normalize ties with the Trump administration.`\
 https://nytimes.com/2025/09/11/world/europe/belarus-political-prisoners-release.html
 
 **Canadian PM Carney jokes about ‘crisis’ around McDavid extension**\
@@ -9,28 +37,4 @@ https://nytimes.com/athletic/6619565/2025/09/11/hockey-connor-mcdavid-mark-carne
 **Lamps With Main Character Energy**\
 `Plus: a designer’s new take on California cool, an exhibition of Robert Rauschenberg’s textile art and more recommendations from T Magazine.`\
 https://nytimes.com/2025/09/11/t-magazine/carmen-dapollonio-lamps.html
-
-**MSNBC Fires Analyst Who Said Charlie Kirk Pushed Hate Speech**\
-`The analyst, Matthew Dowd, apologized for his remarks on social media.`\
-https://nytimes.com/2025/09/11/us/matthew-dowd-charlie-kirk-msnbc-fired.html
-
-**Fantasy football injuries, cheat sheet NFL Week 2: Brock Purdy to miss multiple weeks**\
-`Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 2 player rankings and more.`\
-https://nytimes.com/athletic/6613946/2025/09/11/fantasy-football-injuries-cheat-sheet-nfl-week-2-brock-purdy-unlikely-to-play/
-
-**Mamdani Gets Backing From National Democrats as Trump Enters Fray**\
-`Democrats have been slow to embrace Zohran Mamdani, the democratic socialist who won New York City’s mayoral primary. Many, especially in New York, still are.`\
-https://nytimes.com/2025/09/11/us/politics/zohran-mamdani-democrats-endorsements.html
-
-**Andrew Cuomo, David Paterson and More New York Politicians on the Runway**\
-`The former governors joined Curtis Sliwa and a group of assorted New York City luminaries as models at Style Across the Aisle, a bipartisan event.`\
-https://nytimes.com/2025/09/11/style/style-across-the-aisle-andrew-cuomo.html
-
-**Charlie Kirk’s Influence Extended Far Beyond the U.S.**\
-`The conservative activist had recently spoken at conferences in Asia. His message also resonated in Europe, and especially Britain, which has seen a rise in right-wing ideology.`\
-https://nytimes.com/2025/09/11/world/europe/charlie-kirk-turning-point-global-reach.html
-
-**How Colts rookie Tyler Warren has already helped unlock Shane Steichen's offense**\
-`The rookie tight end has already become a critical chess piece for Steichen, and he could play an even bigger role against the Broncos.`\
-https://nytimes.com/athletic/6617594/2025/09/11/colts-tyler-warren-broncos/
 
