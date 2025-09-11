@@ -1,3 +1,7 @@
+**As Cubs build toward playoffs, Cade Horton's NL Rookie of the Year buzz grows**\
+`Horton’s 0.84 ERA since the All-Star break has drawn some comparisons to Jake Arrieta’s second-half run in 2015.`\
+https://nytimes.com/athletic/6621393/2025/09/11/chicago-cubs-cade-horton-nl-rookie-of-the-year-buzz/
+
 **Long Island Rail Road Workers May Strike. Here’s What to Know.**\
 `More than 3,000 employees could stop work after midnight on Thursday, Sept. 18, effectively shutting down America’s busiest commuter rail service.`\
 https://nytimes.com/2025/09/11/nyregion/long-island-rail-road-lirr-strike.html
