@@ -1,3 +1,11 @@
+**Fantasy baseball bullpen report featuring final 2025 update and way-too-early look at 2026**\
+`Greg Jewett offers a final bullpen update for fantasy mangers still battling in their leagues, and looks ahead to 2026 for those who aren't.`\
+https://nytimes.com/athletic/6620387/2025/09/11/fantasy-baseball-bullpen-report-early-2026-rankings/
+
+**Student Who Shot 2 Others at Colorado School Was ‘Radicalized,’ Officials Say**\
+`Desmond Holly, 16, who is suspected of shooting and injuring two students, had been “radicalized by an extremist network,” the authorities said.`\
+https://nytimes.com/2025/09/11/us/colorado-high-school-shooter-identified.html
+
 **Security at Kirk Event Seemed Light to Those Who Attended**\
 `The problem of protecting campus speakers with polarizing opinions has confounded universities around the country in recent years.`\
 https://nytimes.com/2025/09/11/us/politics/charlie-kirk-security-shooting.html
