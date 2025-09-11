@@ -1,3 +1,7 @@
+**Why Wild Swimming Is the Most Luxurious Hotel Amenity of All**\
+`These properties offer easy access to enticing natural waters, from a crystal blue Caribbean cove to bracing Scottish lochs.`\
+https://nytimes.com/2025/09/11/t-magazine/wild-swimming-hotels.html
+
 **Think Getting a Reservation Is Hard? Try Getting an Invite.**\
 `As crowds continue to mob restaurants they see on social media, some businesses are turning to a more exclusive model to curate the scene.`\
 https://nytimes.com/2025/09/11/dining/invite-only-restaurants.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6619572/2025/09/11/tyreek-hill-domestic-violence-mi
 **Their Schools Banned Phones. Out Came the iPods and Cassette Players.**\
 `Enterprising students have been bringing the contraband of yesteryear to school in what they see as a “loophole” in cellphone bans.`\
 https://nytimes.com/2025/09/11/style/phone-ban-ipod-mp3-school.html
-
-**Kyle Teel, Connelly Early and more fantasy baseball waiver wire options**\
-`Owen Poindexter locates the best waiver wire adds for the fantasy baseball playoffs. `\
-https://nytimes.com/athletic/6617620/2025/09/11/kyle-teel-connelly-early-and-more-fantasy-baseball-waiver-wire-options/
 
