@@ -1,3 +1,11 @@
+**Security at Kirk Event Seemed Light to Those Who Attended**\
+`The problem of protecting campus speakers with polarizing opinions has confounded universities around the country in recent years.`\
+https://nytimes.com/2025/09/11/us/politics/charlie-kirk-security-shooting.html
+
+**In Jeffrey Gibson’s Sculptures, Child’s Play and Indigenous Truths**\
+`On the Met’s facade, a Native artist honors parkland animals and engages his widest audience yet.`\
+https://nytimes.com/2025/09/11/arts/design/in-jeffrey-gibsons-sculptures-childs-play-and-indigenous-truths.html
+
 **For the First Time, More Children Are Obese Than Underweight**\
 `One in 10 children worldwide now has obesity, a report from UNICEF found, and the number of overweight children has more than doubled in low- and middle-income countries since 2000.`\
 https://nytimes.com/2025/09/11/well/child-obesity-un-report.html
