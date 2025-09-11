@@ -1,3 +1,15 @@
+**What You Need to Know About Charlie Kirk’s Assassination**\
+`The search for the shooter is still underway.`\
+https://nytimes.com/2025/09/11/briefing/what-you-need-to-know-about-charlie-kirks-assassination.html
+
+**Chelsea charged by FA over alleged rule breaches during Roman Abramovich era**\
+`The charges "primarily relate to events that occurred between the 2010-11 to 2015-16 playing seasons", the FA said.`\
+https://nytimes.com/athletic/6618970/2025/09/11/chelsea-charges-agents-fa/
+
+**The Pulse: The best job in sports? Maybe not.**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6616151/2025/09/11/nfl-backup-qbs-the-pulse/
+
 **TAFC: Brazil's race against time for World Cup, ticket sales for tournament hit initial glitch**\
 `Today in TAFC: Brazil qualifying campaign was a low point, so can Ancelotti turn it around? Plus: Moore, 15, makes history with debut goal.`\
 https://nytimes.com/athletic/6618613/2025/09/11/brazil-ancelotti-world-cup/
