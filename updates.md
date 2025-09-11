@@ -1,3 +1,7 @@
+**Charlie Kirk’s Widow, Erika, Promoted Conservative Values at His Side**\
+`Mr. Kirk often pointed to his marriage as an example of a loving, conservative partnership. The pair married in 2021 and had two children.`\
+https://nytimes.com/2025/09/11/us/charlie-kirk-wife-erika-children-family.html
+
 **What Oracle’s Surge Says About the A.I. Boom**\
 `Shares in the tech giant are on a torrid run, stunning Wall Street, even as its profit outlook puzzles some analysts.`\
 https://nytimes.com/2025/09/11/business/dealbook/oracle-ellison-ai-boom.html
