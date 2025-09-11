@@ -1,3 +1,19 @@
+**Do You Wish You Could Break Free From Your Phone?**\
+`Have you ever tried? What strategies have been most successful in limiting your phone’s power over you?`\
+https://nytimes.com/2025/09/11/learning/do-you-wish-you-could-break-free-from-your-phone.html
+
+**Science Practice**\
+`Analyze recent research studies across disciplines and come up with your own scientific questions.`\
+https://nytimes.com/spotlight/science-practice
+
+**Science Practice | A Study on Cats and Their Sense of Smell**\
+`Do our cats know what we smell like? A new study offers clues.`\
+https://nytimes.com/2025/09/11/learning/science-practice-a-study-on-cats-and-their-sense-of-smell.html
+
+**A Weekly Lesson Plan to Get Students Exploring Real-World Science**\
+`In Science Practice, students analyze recent research studies across disciplines and come up with their own scientific questions.`\
+https://nytimes.com/2025/09/11/learning/a-weekly-science-lesson-plan-based-on-current-research.html
+
 **Joe Flacco's return to Baltimore to face Ravens comes at the perfect time**\
 `As the Ravens celebrate their 30-year anniversary, the veteran QB will run out from the visiting tunnel for the first time in his career. `\
 https://nytimes.com/athletic/6618000/2025/09/11/joe-flacco-return-baltimore-ravens-browns/
