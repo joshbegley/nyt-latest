@@ -1,3 +1,7 @@
+**Dolphins hold players-only meeting after Week 1 drubbing to Colts**\
+`The Dolphins struggled on both sides of the ball during the team's 33-8 road loss to the Colts in Week 1.`\
+https://nytimes.com/athletic/6621198/2025/09/11/dolphins-players-only-meeting/
+
 **The F.B.I. Asked for Help Finding Charlie Kirk’s Killer**\
 `Also, new numbers showed a rise in inflation. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/09/11/briefing/manhunt-charlie-kirk-inflation-data.html

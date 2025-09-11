@@ -1,3 +1,7 @@
+**Dolphins hold players-only meeting after Week 1 drubbing to Colts**\
+`The Dolphins struggled on both sides of the ball during the team's 33-8 road loss to the Colts in Week 1.`\
+https://nytimes.com/athletic/6621198/2025/09/11/dolphins-players-only-meeting/
+
 **The F.B.I. Asked for Help Finding Charlie Kirk’s Killer**\
 `Also, new numbers showed a rise in inflation. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/09/11/briefing/manhunt-charlie-kirk-inflation-data.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/11/style/cher-studio-54-valentino.html
 **He Dropped Out of the Mayor’s Race. His Name Is Still on the Ballot.**\
 `A judge affirmed a Board of Elections decision that it was too late for Jim Walden to be taken off the New York City mayoral ballot. The same would be true for other candidates.`\
 https://nytimes.com/2025/09/11/nyregion/nyc-mayor-race-drop-walden-adams-sliwa.html
-
-**June Wilkinson, Pinup Star and Screen Siren, Is Dead at 85**\
-`Christened “the Bosom” by Playboy magazine, she rode her voluptuous figure to fame and became known as “the most photographed nude in America.”`\
-https://nytimes.com/2025/09/11/movies/june-wilkinson-dead.html
 
