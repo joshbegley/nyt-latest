@@ -1,3 +1,11 @@
+**Chaos Breaks Out in House After Moment of Silence for Charlie Kirk**\
+`Democratic and Republican representatives began arguing after Speaker Mike Johnson called for a moment of silence for Charlie Kirk on Wednesday.`\
+https://nytimes.com/video/us/politics/100000010393897/charlie-kirk-house-moment-silence.html
+
+**$10 Million in Contraceptives Have Been Destroyed on Orders From Trump Officials**\
+`The birth control pills, IUDs and hormonal implants were purchased by U.S.A.I.D. for women in low-income countries. They had been in limbo in a Belgian warehouse after the U.S. cut much of its foreign aid.`\
+https://nytimes.com/2025/09/11/health/usaid-contraceptives-destroyed-trump.html
+
 **Nepal’s Capital Is Choked With Smoke and Gripped by Fear**\
 `With institutions burned to the ground and the army in control, Gen Z protesters are pushing for an anti-corruption crusader to be appointed as the country’s interim leader.`\
 https://nytimes.com/2025/09/11/world/asia/nepal-protests-fires.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/11/technology/openai-microsoft-deal.html
 **U.S. Naval Academy Placed Under Lockdown Amid Threats, Authorities Say**\
 `Local law enforcement officers were responding to the campus in Annapolis, Md., a spokesman said.`\
 https://nytimes.com/2025/09/11/us/naval-academy-annapolis.html
-
-**As Political Tension Soars, Some Rare Calls for Unity Emerge**\
-`Joint statements from groups representing young Republicans and Democrats, and messages of tolerance from prominent figures stood out as reaction to Charlie Kirk’s assassination continued.`\
-https://nytimes.com/2025/09/11/style/charlie-kirk-death-political-unity.html
-
-**U.S. Joins U.N. Security Council’s Criticism of Israeli Strike in Qatar**\
-`The United States, ordinarily a protector of Israel at the United Nations, signed on to a statement condemning its attack on Hamas in the Qatari capital.`\
-https://nytimes.com/2025/09/11/world/middleeast/israel-qatar-un-security-council.html
 

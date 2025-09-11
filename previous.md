@@ -1,3 +1,7 @@
+**Nepal’s Capital Is Choked With Smoke and Gripped by Fear**\
+`With institutions burned to the ground and the army in control, Gen Z protesters are pushing for an anti-corruption crusader to be appointed as the country’s interim leader.`\
+https://nytimes.com/2025/09/11/world/asia/nepal-protests-fires.html
+
 **As Cubs build toward playoffs, Cade Horton's NL Rookie of the Year buzz grows**\
 `Horton’s 0.84 ERA since the All-Star break has drawn some comparisons to Jake Arrieta’s second-half run in 2015.`\
 https://nytimes.com/athletic/6621393/2025/09/11/chicago-cubs-cade-horton-nl-rookie-of-the-year-buzz/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/11/style/charlie-kirk-death-political-unity.html
 **U.S. Joins U.N. Security Council’s Criticism of Israeli Strike in Qatar**\
 `The United States, ordinarily a protector of Israel at the United Nations, signed on to a statement condemning its attack on Hamas in the Qatari capital.`\
 https://nytimes.com/2025/09/11/world/middleeast/israel-qatar-un-security-council.html
-
-**As Political Violence Rises, Trump Condemns One Side**\
-`In the wake of Charlie Kirk’s killing, President Trump captured the raw sentiment of his conservative base. But he addressed only part of the alarming cycle of violence in America.`\
-https://nytimes.com/2025/09/11/us/politics/political-violence-trump-blame.html
 
