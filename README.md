@@ -1,3 +1,11 @@
+**Athletic sign Laporte from Al Nassr after not completing deal on deadline day**\
+`The 31-year-old has signed a contract until 2028 ahead of his second spell with the La Liga side.`\
+https://nytimes.com/athletic/6620304/2025/09/11/aymeric-laporte-athletic-club-al-nassr-signing-fifa/
+
+**How Obamacare Is Colliding With Shutdown Negotiations**\
+`Republicans are signaling a new openness to extending health subsidies as Democrats suggest they want health care concessions to keep the government open.`\
+https://nytimes.com/2025/09/11/us/politics/obamacare-subsidies-government-shutdown-congress.html
+
 **Defendant in Trial Over Trump Assassination Attempt Is Off to a Shaky Start**\
 `Ryan Routh, who chose to represent himself in the Florida case, was cut off in his opening statement by the judge, who said it lacked relevance.`\
 https://nytimes.com/2025/09/11/us/ryan-routh-trump-assassination-attempt-trial.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/11/sports/skiing/erich-sailer-dead.html
 **Brazil’s Supreme Court Is On Course to Convict Bolsonaro in Coup Plot**\
 `A majority of voting justices said they plan to vote to convict Brazil’s former president of trying to hold onto power. A final verdict could come Thursday.`\
 https://nytimes.com/2025/09/11/world/americas/brazil-supreme-court-bolsonaro-coup-convict.html
-
-**Fantasy baseball bullpen report featuring final 2025 update and way-too-early look at 2026**\
-`Greg Jewett offers a final bullpen update for fantasy mangers still battling in their leagues, and looks ahead to 2026 for those who aren't.`\
-https://nytimes.com/athletic/6620387/2025/09/11/fantasy-baseball-bullpen-report-early-2026-rankings/
-
-**Student Who Shot 2 Others at Colorado School Was ‘Radicalized,’ Officials Say**\
-`Desmond Holly, 16, who is suspected of shooting and injuring two students, had been “radicalized by an extremist network,” the authorities said.`\
-https://nytimes.com/2025/09/11/us/colorado-high-school-shooter-identified.html
 

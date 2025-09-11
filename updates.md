@@ -1,3 +1,7 @@
+**‘He Gave Me Confidence’: How Charlie Kirk Connected With Young Men**\
+`With his right-wing group Turning Point USA, Mr. Kirk engaged controversial topics. Some students were inspired. Others found his views appalling.`\
+https://nytimes.com/2025/09/11/us/charlie-kirk-men.html
+
 **Defendant in Trial Over Trump Assassination Attempt Is Off to a Shaky Start**\
 `Ryan Routh, who chose to represent himself in the Florida case, was cut off in his opening statement by the judge, who said it lacked relevance.`\
 https://nytimes.com/2025/09/11/us/ryan-routh-trump-assassination-attempt-trial.html
