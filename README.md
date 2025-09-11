@@ -1,40 +1,40 @@
-**What You Need to Know About Charlie Kirk’s Assassination**\
-`The search for the shooter is still underway.`\
-https://nytimes.com/2025/09/11/briefing/what-you-need-to-know-about-charlie-kirks-assassination.html
+**Joe Flacco's return to Baltimore to face Ravens comes at the perfect time**\
+`As the Ravens celebrate their 30-year anniversary, the veteran QB will run out from the visiting tunnel for the first time in his career. `\
+https://nytimes.com/athletic/6618000/2025/09/11/joe-flacco-return-baltimore-ravens-browns/
 
-**Chelsea charged by FA over alleged rule breaches during Roman Abramovich era**\
-`The charges "primarily relate to events that occurred between the 2010-11 to 2015-16 playing seasons", the FA said.`\
-https://nytimes.com/athletic/6618970/2025/09/11/chelsea-charges-agents-fa/
+**Friends and now foes: Dan Campbell and Ben Johnson square off in first NFC North showdown**\
+`As division rivals, Johnson's Bears will face Campbell's Lions twice a year, starting with Sunday's matchup at Ford Field.`\
+https://nytimes.com/athletic/6618094/2025/09/11/bears-lions-ben-johnson-dan-campbell/
 
-**The Pulse: The best job in sports? Maybe not.**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6616151/2025/09/11/nfl-backup-qbs-the-pulse/
+**How to watch Aces at Sparks, as Vegas tries for 16 straight wins and Wilson aims for MVP**\
+`The WNBA regular season wraps up Thursday. Las Vegas is going for its 16th straight win to hit the playoffs with maximum momentum.`\
+https://nytimes.com/athletic/6616906/2025/09/11/aces-sparks-wnba-win-streak-aja-wilson-mvp-how-to-watch/
 
-**TAFC: Brazil's race against time for World Cup, ticket sales for tournament hit initial glitch**\
-`Today in TAFC: Brazil qualifying campaign was a low point, so can Ancelotti turn it around? Plus: Moore, 15, makes history with debut goal.`\
-https://nytimes.com/athletic/6618613/2025/09/11/brazil-ancelotti-world-cup/
+**Yankees could be telegraphing how they'll handle Anthony Volpe, shortstop in postseason**\
+`Aaron Boone has started José Caballero at shortstop for a game in each of New York's last two series.`\
+https://nytimes.com/athletic/6617642/2025/09/11/yankees-anthony-volpe-starting-shortstop-postseason/
 
-**JD Vance Mourns His ‘True Friend’ Charlie Kirk**\
-`The Vice President wrote that Charlie Kirk was instrumental in his political development.`\
-https://nytimes.com/2025/09/11/us/charlie-kirk-shooting-death-jd-vance.html
+**The Seahawks are still trying to replace DK Metcalf. Now they must stop him**\
+`The Seahawks had big plans for Metcalf before he asked for a trade. Now, they need a receiver to step up against Metcalf's new team.`\
+https://nytimes.com/athletic/6616960/2025/09/11/dk-metcalf-seahawks-steelers-revenge-game/
 
-**Will A'ja Wilson be a four-time MVP? Will Napheesa Collier win for the first time?**\
-`The Athletic's experts reveal their MVP votes, All-WNBA teams and Defensive Player of the Year picks.`\
-https://nytimes.com/athletic/6618442/2025/09/11/wnba-mvp-napheesa-collier-aja-wilson/
+**'What a gift': Phillies rewarded with rejuvenated outfield of Bader, Kepler, Marsh**\
+`The Phillies discovered a productive unit by rallying around three players who are making the most of every chance to play.`\
+https://nytimes.com/athletic/6618479/2025/09/11/phillies-outfield-bader-kepler-marsh/
 
-**Why Eagles' Jihaad Campbell-Zack Baun combo is Vic Fangio's newest weapon**\
-`A breakdown of Week 1 film shows the rookie first-rounder and the All-Pro opening up options for their DC with remarkable flexibility. `\
-https://nytimes.com/athletic/6609909/2025/09/11/eagles-jihaad-campbell-zack-baun-fangio/
+**Notre Dame-Texas A&M preview: Can untested Aggies drop Irish to 2-0?**\
+`The Irish and Aggies know each other reasonably well, and not just because they met in Week 1 last season.`\
+https://nytimes.com/athletic/6618255/2025/09/11/notre-dame-texas-am-predictions/
 
-**This basketball powerhouse went all in on an unknown QB. Will the investment pay off?**\
-`Duke football may not be as big as Duke basketball, but Darian Mensah says he's "here to change" that. `\
-https://nytimes.com/athletic/6612959/2025/09/11/duke-football-qb-nil-darian-mensah-tulane/
+**Joe Ryan and 2 other players I got wrong, 2025 edition: Law**\
+`The latest in Keith Law's annual series that looks at players who've significantly outperformed his prospect projections for their careers.`\
+https://nytimes.com/athletic/6617098/2025/09/11/players-i-got-wrong-keith-law-2025-joe-ryan/
 
-**Ten bold predictions about the New York Rangers from The Athletic's beat writers**\
-`Don't be surprised if the Rangers are a part of a crazy final day of the season in the Eastern Conference.`\
-https://nytimes.com/athletic/6616646/2025/09/11/new-york-rangers-predictions-2025-nhl-season/
+**Georgia-Tennessee: Is it a rivalry? There's history, but probably won’t be annual in the new SEC format.**\
+`The rivalry dates back to the start of the 20th century but does the history meet the threshold for becoming an SEC annual game?`\
+https://nytimes.com/athletic/6616596/2025/09/11/georgia-tennessee-rivalry-sec-history/
 
-**Former referee David Coote pleads not guilty to making indecent image of a child**\
-`The 43-year-old appeared at Nottingham Magistrates’ Court on Thursday`\
-https://nytimes.com/athletic/6618780/2025/09/11/david-coote-referee-court-case-news/
+**Russell Wilson deserves everyone’s respect on his way out the Giants door**\
+`Once upon a time, he was a 5-foot-11 titan who won more games in his first nine seasons than Tom Brady, Peyton Manning or any other greats.`\
+https://nytimes.com/athletic/6617801/2025/09/11/russell-wilson-giants-cowboys-remarkable-career/
 
