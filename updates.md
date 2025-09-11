@@ -1,3 +1,11 @@
+**Bolsonaro Convicted of Attempting a Coup in Brazil**\
+`Brazil’s Supreme Court convicted the former president of trying to cling to power after losing the 2022 election, in a plot that included killing his opponent. He could face decades in prison.`\
+https://nytimes.com/2025/09/11/world/americas/bolsonaro-convicted-coup-attempt.html
+
+**What I'm hearing about Flyers' injured Jett Luchanko, Aleksei Kolosov's status and more**\
+`Luchanko is expected to miss all of rookie camp as he recovers from a lingering groin injury.`\
+https://nytimes.com/athletic/6621125/2025/09/11/flyers-luchanko-injury-kolosov-camp/
+
 **Ralph Lauren Opens New York Fashion Week**\
 `American fashion designer Ralph Lauren kicked off New York Fashion Week with a collection that highlighted mostly monochrome looks.`\
 https://nytimes.com/video/style/100000010392309/ralph-lauren-nyfw.html

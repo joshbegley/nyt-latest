@@ -1,3 +1,11 @@
+**Bolsonaro Convicted of Attempting a Coup in Brazil**\
+`Brazil’s Supreme Court convicted the former president of trying to cling to power after losing the 2022 election, in a plot that included killing his opponent. He could face decades in prison.`\
+https://nytimes.com/2025/09/11/world/americas/bolsonaro-convicted-coup-attempt.html
+
+**What I'm hearing about Flyers' injured Jett Luchanko, Aleksei Kolosov's status and more**\
+`Luchanko is expected to miss all of rookie camp as he recovers from a lingering groin injury.`\
+https://nytimes.com/athletic/6621125/2025/09/11/flyers-luchanko-injury-kolosov-camp/
+
 **Ralph Lauren Opens New York Fashion Week**\
 `American fashion designer Ralph Lauren kicked off New York Fashion Week with a collection that highlighted mostly monochrome looks.`\
 https://nytimes.com/video/style/100000010392309/ralph-lauren-nyfw.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6620906/2025/09/11/nfl-week-2-projected-scores-mode
 **Cancer gave her a month to live. Mass General Brigham gave her a lifeline.**\
 `For Ann Malik, cutting-edge treatments and collaborative care transformed a terminal diagnosis into a manageable condition.`\
 https://nytimes.com/paidpost/mass-general-brigham/cancer-gave-her-a-month-to-live-mass-general-brigham-gave-her-a-lifeline.html
-
-**How Concerned Are You About Political Violence in America?**\
-`What’s your reaction to the assassination of Charlie Kirk, a conservative organizer and activist?`\
-https://nytimes.com/2025/09/11/learning/how-concerned-are-you-about-political-violence-in-america.html
-
-**(Eric Adams Voice) New York is the Mexico City of America**\
-`New restaurants and bakeries in Woodside, Bed-Stuy and on the Lower East Side bring the sweet swagger of CDMX to the city.`\
-https://nytimes.com/2025/09/11/dining/new-york-mexico-city-restaurants-bakeries.html
 
