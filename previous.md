@@ -1,3 +1,11 @@
+**Tiny Love Stories: ‘UR CUTE, TEXT ME’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/09/11/style/tiny-modern-love-stories-ur-cute-text-me.html
+
+**Guantánamo, 24 Years After Sept. 11**\
+`What’s it like at the Guantánamo Bay Naval Base 24 years after the Sept. 11 attacks? Carol Rosenberg, who has been covering the base since the first detainees were brought there in 2002, is there and explains.`\
+https://nytimes.com/video/us/100000010388120/guantanamo-24-years-after-sept-11.html
+
 **Athletic sign Laporte from Al Nassr after not completing deal on deadline day**\
 `The 31-year-old has signed a contract until 2028 ahead of his second spell with the La Liga side.`\
 https://nytimes.com/athletic/6620304/2025/09/11/aymeric-laporte-athletic-club-al-nassr-signing-fifa/
@@ -27,14 +35,6 @@ https://nytimes.com/2025/09/11/learning/whats-going-on-in-this-picture-sept-15-2
 https://nytimes.com/2025/09/11/learning/whats-going-on-in-this-graph-sept-17-2025.html
 
 **Paramount Plans Bid for Warner Bros. Discovery**\
-`Any deal would further reshape the media industry, putting CBS News, CNN, and two major movie studios under the same corporate umbrella.`\
+`Any deal would further reshape the media industry, putting CBS News, CNN and two major movie studios under the same corporate umbrella.`\
 https://nytimes.com/2025/09/11/business/media/paramount-warner-bros-discovery-bid.html
-
-**Erich Sailer, Ski Coach Who Helped Shape Champions, Dies at 99**\
-`Using a modest slope in Minnesota as a springboard, he tutored a host of rising stars, including Lindsey Vonn. He was inducted into the U.S. Ski and Snowboard Hall of Fame.`\
-https://nytimes.com/2025/09/11/sports/skiing/erich-sailer-dead.html
-
-**Brazil’s Supreme Court Is On Course to Convict Bolsonaro in Coup Plot**\
-`A majority of voting justices said they plan to vote to convict Brazil’s former president of trying to hold onto power. A final verdict could come Thursday.`\
-https://nytimes.com/2025/09/11/world/americas/brazil-supreme-court-bolsonaro-coup-convict.html
 
