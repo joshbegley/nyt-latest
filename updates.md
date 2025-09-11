@@ -1,3 +1,11 @@
+**Mamdani Says He Will Apologize for Calling the N.Y.P.D. Racist in 2020**\
+`Zohran Mamdani, a democratic socialist who won the mayoral primary, said the department was racist and homophobic in a social media post.`\
+https://nytimes.com/2025/09/11/nyregion/mamdani-police-apology-floyd.html
+
+**OpenAI Takes Big Steps Toward Its Long-Planned Reorganization**\
+`The start-up OpenAI reached a tentative deal with Microsoft, its biggest investor, and said it would give a $100 billion stake to the nonprofit that manages it.`\
+https://nytimes.com/2025/09/11/technology/openai-microsoft-deal.html
+
 **U.S. Naval Academy Placed Under Lockdown Amid Threats, Authorities Say**\
 `Local law enforcement officers were responding to the campus in Annapolis, Md., a spokesman said.`\
 https://nytimes.com/2025/09/11/us/naval-academy-annapolis.html
