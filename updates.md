@@ -1,3 +1,19 @@
+**European Parliament Declines to Hold a Moment of Silence for Charlie Kirk**\
+`The request, made by a right-wing parliamentary member, was rejected on account of protocol.`\
+https://nytimes.com/2025/09/11/us/eu-parliament-charlie-kirk-moment-of-silence.html
+
+**How Trump’s Crime Crackdown Muted Other Parts of D.C. Life**\
+`If the aggressive show of force had a deterrent effect on crime, it appears to have deterred some entirely normal aspects of city life, too.`\
+https://nytimes.com/2025/09/11/upshot/washington-dc-federal-crackdown-data.html
+
+**Charlie Kirk Embodied Mass-Culture Conservatism**\
+`His death takes us deeper into an age of instability.`\
+https://nytimes.com/video/opinion/100000010392713/charlie-kirk-embodied-mass-culture-conservatism.html
+
+**Yankees say Anthony Volpe has shoulder injury, expect him to play through it**\
+`Aaron Boone said Volpe has had a partially torn labrum in his left shoulder. He does not believe the injury has affected Volpe at the plate.`\
+https://nytimes.com/athletic/6620769/2025/09/11/anthony-volpe-yankees-shoulder-injury/
+
 **On Melissa Jefferson-Wooden's ascent to sprinting stardom, the world stage is next**\
 `On a track stocked with talent, Jefferson-Wooden exudes something special. The star potential is unmistakable.`\
 https://nytimes.com/athletic/6621098/2025/09/11/melissa-jefferson-wooden-world-athletics-championships-100-meter/
