@@ -1,3 +1,19 @@
+**N.Y. Marijuana Businesses Facing Possible Closure Win Temporary Reprieve**\
+`Dispensaries had sued the state after a change in the buffer zone between cannabis shops and schools placed some within a zone banning cannabis sales.`\
+https://nytimes.com/2025/09/11/nyregion/marijuana-dispensaries-new-york-win-reprieve.html
+
+**Alien: Earth**\
+``\
+https://nytimes.com/spotlight/alien-earth-fx-hulu
+
+**Music Festival in Belgium Cancels Concert Led by Israeli Conductor**\
+`The Flanders Festival Ghent dropped a Munich Philharmonic program, citing concerns over a conductor’s possible views on Gaza. German leaders called the move antisemitic.`\
+https://nytimes.com/2025/09/11/arts/music/belgium-festival-israel-orchestra-conductor-shani.html
+
+**Klarna’s Market Debut Shows Wall Street’s Renewed Appetite for I.P.O.s**\
+`The company’s shares rose more than 14 percent on the first day of trading, a sign of the health of the public markets and a willingness of investors to bet on new companies.`\
+https://nytimes.com/2025/09/11/business/dealbook/klarna-ipo-stock-market.html
+
 **Donnarumma: Goalkeeper competition at City 'good for everyone'**\
 `Donnarumma is available to make his debut against Manchester United on Sunday, but faces competition from James Trafford.`\
 https://nytimes.com/athletic/6620372/2025/09/11/gianluigi-donnarumma-man-city-goalkeeper-competition/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/09/11/us/politics/trump-gaza-ukraine-peace.html
 **For National Guard Troops in D.C., It’s Trash Pickup and Metro Patrols**\
 `Thousands of armed troops are deployed as part of President Trump’s crime crackdown. So far, it has been a lot of beautification projects and assisting the local police.`\
 https://nytimes.com/2025/09/11/us/politics/trump-national-guard-troops-dc.html
-
-**The Veggie Diaries**\
-`What I’ve been cooking: corn salad with tomatoes, feta and mint; riffable panzanella; crispy tofu tacos; and fritterlike pancakes.`\
-https://nytimes.com/2025/09/11/dining/the-veggie-diaries.html
-
-**NFL Week 2 best bets: Buying early-season Packers stock plus some unpopular unders**\
-`Austin Mock has four NFL bets for Week 2 of the season, including buying into the Packers' early-season hype.`\
-https://nytimes.com/athletic/6620263/2025/09/11/nfl-best-bets-week-2-packers/
-
-**Canucks top 10 prospects: Ranking No. 10 to No. 6 before the season**\
-`There are some intriguing players with an opportunity to develop and play for Vancouver who rank outside of the top-five prospects.`\
-https://nytimes.com/athletic/6618509/2025/09/11/vancouver-canucks-prospects-top-2025-26-season/
-
-**Newcastle cancel tickets bought by Dundee school for Barcelona Champions League game**\
-`45 tickets for the much-anticipated match were initially purchased by a school in Scotland, 190 miles away`\
-https://nytimes.com/athletic/6620400/2025/09/11/newcastle-barcelona-tickets-dundee-school/
 
