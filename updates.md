@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Friday, Sep. 12, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/09/11/todays-new-york-times-international-edition
+
 **How to watch Rockies at Padres: Time, TV, streaming for September 11**\
 `Find out how to watch the Colorado Rockies play the San Diego Padres, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6618839/2025/09/11/rockies-vs-padres-stream-how-to-watch-sept-11/
