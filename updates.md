@@ -1,3 +1,19 @@
+**Canada Announces Major Projects to Offset Bite of Trump’s Tariffs**\
+`Prime Minister Mark Carney unveiled big infrastructure plans. But they are likely to meet resistance from Indigenous and environmental groups.`\
+https://nytimes.com/2025/09/11/world/canada/carney-trump-infrastructure-tariffs-natural-gas.html
+
+**Until Saturday: A surprisingly quality Saturday**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6620911/2025/09/11/college-football-schedule-week-3-until-saturday/
+
+**Man Utd Women players’ boots lost in transit before CL defeat**\
+`United were beaten 1-0 by Brann in the competition's third qualifying round, with Ingrid Stenevik scoring the only goal of the game.`\
+https://nytimes.com/athletic/6620892/2025/09/11/man-united-women-champions-league-boots/
+
+**The Dodgers are showing signs of weakness. Can the Giants take advantage?**\
+`The Dodgers have been really good, but haven't gotten the help from their farm system they have come to expect every year.`\
+https://nytimes.com/athletic/6620334/2025/09/11/sf-giants-dodgers-team-comparison/
+
 **Tiny Love Stories: ‘UR CUTE, TEXT ME’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/09/11/style/tiny-modern-love-stories-ur-cute-text-me.html
