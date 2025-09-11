@@ -1,8 +1,12 @@
+**Charlie Kirk Assassination Raises Fear of Surging Political Violence**\
+`Initial expressions of grief and shock were overtaken by open calls for reckoning and vengeance, as some proclaimed the country was on the brink of civil war.`\
+https://nytimes.com/2025/09/10/us/charlie-kirk-political-violence.html
+
 **Trump Says ‘Radical Left’ Rhetoric Contributed to Charlie Kirk’s Death**\
 `President Trump promised to find those responsible for political violence, as well as the “organizations that fund it and support it.”`\
 https://nytimes.com/2025/09/10/us/politics/trump-charlie-kirk-address.html
 
-**Smith and Russo: Wild at the crossroads with Kirill Kaprizov after he turns down latest massive offer**\
+**Smith and Russo: Wild at a crossroads with Kirill Kaprizov after he turns down latest massive offer**\
 `What does it mean? Does he want more money? A short-term deal? A new home? Here's what we're hearing and know so far.`\
 https://nytimes.com/athletic/6617747/2025/09/10/kirill-kaprizov-wild-offer/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/10/opinion/charlie-kirk-trump-conservatism.html
 **A Video Taken Just After the Shooting Captured Someone on a Nearby Roof**\
 `A man who attended the Charlie Kirk event was trying to get good footage to share with his friends.`\
 https://nytimes.com/2025/09/10/us/charlie-kirk-shooting-video-roof.html
-
-**Authorities arrest 4 suspects in connection with shooting of FSU's Ethan Pritchard**\
-`Pritchard remains in critical condition after being shot in his vehicle outside of an apartment complex Aug. 31.`\
-https://nytimes.com/athletic/6618110/2025/09/10/ethan-pritchard-suspects-arrested-florida-state/
 
