@@ -1,3 +1,15 @@
+**Will A'ja Wilson be a four-time MVP? Will Napheesa Collier win for the first time?**\
+`The Athletic's experts reveal their MVP votes, All-WNBA teams and Defensive Player of the Year picks.`\
+https://nytimes.com/athletic/6618442/2025/09/11/wnba-mvp-napheesa-collier-aja-wilson/
+
+**Why Eagles' Jihaad Campbell-Zack Baun combo is Vic Fangio's newest weapon**\
+`A breakdown of Week 1 film shows the rookie first-rounder and the All-Pro opening up options for their DC with remarkable flexibility. `\
+https://nytimes.com/athletic/6609909/2025/09/11/eagles-jihaad-campbell-zack-baun-fangio/
+
+**This basketball powerhouse went all in on an unknown QB. Will the investment pay off?**\
+`Duke football may not be as big as Duke basketball, but Darian Mensah says he's "here to change" that. `\
+https://nytimes.com/athletic/6612959/2025/09/11/duke-football-qb-nil-darian-mensah-tulane/
+
 **Ten bold predictions about the New York Rangers from The Athletic's beat writers**\
 `Don't be surprised if the Rangers are a part of a crazy final day of the season in the Eastern Conference.`\
 https://nytimes.com/athletic/6616646/2025/09/11/new-york-rangers-predictions-2025-nhl-season/

@@ -1,3 +1,15 @@
+**Will A'ja Wilson be a four-time MVP? Will Napheesa Collier win for the first time?**\
+`The Athletic's experts reveal their MVP votes, All-WNBA teams and Defensive Player of the Year picks.`\
+https://nytimes.com/athletic/6618442/2025/09/11/wnba-mvp-napheesa-collier-aja-wilson/
+
+**Why Eagles' Jihaad Campbell-Zack Baun combo is Vic Fangio's newest weapon**\
+`A breakdown of Week 1 film shows the rookie first-rounder and the All-Pro opening up options for their DC with remarkable flexibility. `\
+https://nytimes.com/athletic/6609909/2025/09/11/eagles-jihaad-campbell-zack-baun-fangio/
+
+**This basketball powerhouse went all in on an unknown QB. Will the investment pay off?**\
+`Duke football may not be as big as Duke basketball, but Darian Mensah says he's "here to change" that. `\
+https://nytimes.com/athletic/6612959/2025/09/11/duke-football-qb-nil-darian-mensah-tulane/
+
 **Ten bold predictions about the New York Rangers from The Athletic's beat writers**\
 `Don't be surprised if the Rangers are a part of a crazy final day of the season in the Eastern Conference.`\
 https://nytimes.com/athletic/6616646/2025/09/11/new-york-rangers-predictions-2025-nhl-season/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6617787/2025/09/11/carolina-panthers-frustrated-car
 **Cowboys DTs Kenny Clark, Osa Odighizuwa expecting to 'wreak havoc' together**\
 `Kenny Clark and Osa Odighizuwa look to build off the Cowboys' second-half performance vs. the run last week in their Week 2 matchup.`\
 https://nytimes.com/athletic/6618043/2025/09/11/cowboys-kenny-clark-run-defense/
-
-**Which Chiefs are faster than a year ago? Here's what early data shows**\
-`Are Chiefs like Tyquan Thornton and Travis Kelce speedier than a year ago? Here's what early Next Gen Stats data tells us.`\
-https://nytimes.com/athletic/6616115/2025/09/11/which-chiefs-might-be-faster-than-a-year-ago-heres-what-early-data-shows/
-
-**Celtics' roster has room for players to break out. Who are the most likely candidates?**\
-`After an offseason filled with change, who could step up for the Celtics?`\
-https://nytimes.com/athletic/6616998/2025/09/11/celtics-neemias-queta-roster-break-out/
-
-**Commanders at Packers on TNF: Parsons vs. Daniels, Herbstreit's dog, mascot fight and more**\
-`The latest Parsons-Daniels matchup takes center stage on the "Thursday Night Football" premiere between Green Bay and Washington.`\
-https://nytimes.com/athletic/6613794/2025/09/11/commanders-packers-tnf-nfl-how-to-watch/
 
