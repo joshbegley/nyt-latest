@@ -1,3 +1,23 @@
+**Nepal’s Young Protesters Find an Unlikely Partner: The Army**\
+`After an explosion of popular rage tore through the country, its respected army was the only institution left standing. It’s now in talks with the protesters.`\
+https://nytimes.com/2025/09/11/world/asia/nepal-army-gen-z-protesters.html
+
+**In Public and in Private, New York Prepares to Mark 9/11 Anniversary**\
+`The annual reading of the names of those killed in the Sept. 11, 2001, terrorist attacks will be held on Thursday. Other moments of remembrance took place across the region.`\
+https://nytimes.com/2025/09/11/us/9-11-anniversary-nyc.html
+
+**Nadine Menendez, Wife of a Senator, Will Be Sentenced in Bribery Scheme**\
+`The wife of former Senator Robert Menendez, a New Jersey Democrat already in prison for taking bribes, faces punishment on Thursday.`\
+https://nytimes.com/2025/09/11/nyregion/nadine-menendez-wife-of-a-senator-will-be-sentenced-in-bribery-scheme.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/09/11/crosswords/spelling-bee-forum.html
+
+**The New York Times in Print for Thursday, Sep. 11, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/11/todays-new-york-times
+
 **How to watch Chargers at Raiders: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Chargers play the Las Vegas Raiders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6618639/2025/09/11/chargers-vs-raiders-stream-how-to-watch-sept-15/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/09/11/opinion/thailand-election-pita-limjaroenrat.html
 **After months of turbulence, Eddie Howe is closer to the Newcastle United he craves**\
 `The club was described as an ‘empty shell’. Now they're getting a team together, much to Howe's liking`\
 https://nytimes.com/athletic/6615950/2025/09/11/eddie-howe-newcastle-united-future/
-
-**How Macron Failed to Curb the Far Right**\
-`As France drifted to the right, the president has tried to make the country more business-friendly and win back voters. His strategy hasn’t worked.`\
-https://nytimes.com/2025/09/11/briefing/macron-far-right-charlie-kick-killing-poland-russia-nato.html
-
-**Amorim baiting the press is risky - but in matches against the 'Big Six', it has worked**\
-`Amorim got the better of tactical battles with Pep Guardiola last season - how United need that to continue against City `\
-https://nytimes.com/athletic/6588934/2025/09/11/ruben-amorim-manchester-united-bait/
-
-**Ranking the 10 best forwards to own in Fantasy Premier League**\
-`Erling Haaland, Joao Pedro and Alexander Isak are all some of the best forwards to own in FPL right now. Holly Shand presents her top 10`\
-https://nytimes.com/athletic/6612705/2025/09/11/fantasy-premier-league-forwards-haaland-isak-joao-pedro/
-
-**Send in your Barcelona questions for our writers Pol Ballus and Laia Cervello Herrero**\
-`What do you want to know about Barca's start to the season?`\
-https://nytimes.com/athletic/6610350/2025/09/11/barcelona-la-liga-writers-q-and-a/
-
-**Cubs takeaways: Bullpen steps up, Porter Hodge impresses and more**\
-`"He delivered. Absolutely take note of it," Cubs manager Craig Counsell said of Hodge. Chicago beat the Atlanta Braves 3-2.`\
-https://nytimes.com/athletic/6618466/2025/09/11/cubs-bullpen-porter-hodge-running/
 
