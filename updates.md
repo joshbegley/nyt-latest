@@ -1,3 +1,7 @@
+**Leeds without goalkeeper Perri for Fulham game with Nmecha, Piroe doubts**\
+`Dominic Calvert-Lewin could be in line for his full Leeds debut with injury worries to their strikers`\
+https://nytimes.com/athletic/6619462/2025/09/11/leeds-injury-update-daniel-farke-fulham/
+
 **Witnesses Describe Shooting of Charlie Kirk**\
 `Charlie Kirk, a close ally of President Trump, was shot dead on Wednesday at Utah Valley University. People who were there recounted hearing a single gunshot and seeing a stampede as the audience ran.`\
 https://nytimes.com/video/us/100000010391959/witnesses-describe-shooting-of-charlie-kirk.html
