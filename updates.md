@@ -1,3 +1,11 @@
+**The Veggie Diaries**\
+`What I’ve been cooking: corn salad with tomatoes, feta and mint; riffable panzanella; crispy tofu tacos; and fritterlike pancakes.`\
+https://nytimes.com/2025/09/11/dining/the-veggie-diaries.html
+
+**NFL Week 2 best bets: Buying early-season Packers stock plus some unpopular unders**\
+`Austin Mock has four NFL bets for Week 2 of the season, including buying into the Packers' early-season hype.`\
+https://nytimes.com/athletic/6620263/2025/09/11/nfl-best-bets-week-2-packers/
+
 **Canucks top 10 prospects: Ranking No. 10 to No. 6 before the season**\
 `There are some intriguing players with an opportunity to develop and play for Vancouver who rank outside of the top-five prospects.`\
 https://nytimes.com/athletic/6618509/2025/09/11/vancouver-canucks-prospects-top-2025-26-season/
