@@ -1,4 +1,8 @@
 **On Melissa Jefferson-Wooden's ascent to sprinting stardom, the world stage is next**\
+`On a track stocked with talent, Jefferson-Wooden exudes something special. The star potential is unmistakable.`\
+https://nytimes.com/athletic/6621098/2025/09/11/melissa-jefferson-wooden-world-athletics-championships-100-meter/
+
+**On Melissa Jefferson-Wooden's ascent to sprinting stardom, the world stage is next**\
 `Melissa Jefferson-Wooden&#8217;s explosion out of the block is like an electric car.`\
 https://nytimes.com/athletic/6621098/2025/09/11/melissa-jefferson-wooden-world-athletics-championships-100-meter/
 

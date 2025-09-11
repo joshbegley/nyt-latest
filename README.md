@@ -1,3 +1,15 @@
+**European Parliament Declines to Hold a Moment of Silence for Charlie Kirk**\
+`The request, made by a right-wing parliamentary member, was rejected on account of protocol.`\
+https://nytimes.com/2025/09/11/us/eu-parliament-charlie-kirk-moment-of-silence.html
+
+**How Trump’s Crime Crackdown Muted Other Parts of D.C. Life**\
+`If the aggressive show of force had a deterrent effect on crime, it appears to have deterred some entirely normal aspects of city life, too.`\
+https://nytimes.com/2025/09/11/upshot/washington-dc-federal-crackdown-data.html
+
+**Charlie Kirk Embodied Mass-Culture Conservatism**\
+`His death takes us deeper into an age of instability.`\
+https://nytimes.com/video/opinion/100000010392713/charlie-kirk-embodied-mass-culture-conservatism.html
+
 **On Melissa Jefferson-Wooden's ascent to sprinting stardom, the world stage is next**\
 `On a track stocked with talent, Jefferson-Wooden exudes something special. The star potential is unmistakable.`\
 https://nytimes.com/athletic/6621098/2025/09/11/melissa-jefferson-wooden-world-athletics-championships-100-meter/
@@ -6,7 +18,7 @@ https://nytimes.com/athletic/6621098/2025/09/11/melissa-jefferson-wooden-world-a
 `His death takes us deeper into an age of instability.`\
 https://nytimes.com/video/opinion/100000010392105/i-was-set-to-interview-charlie-kirk-next-month-then-he-was-assassinated.html
 
-**Yankees reveal Anthony Volpe has shoulder injury but is expected to play through it**\
+**Yankees say Anthony Volpe has shoulder injury, expect him to play through it**\
 `Aaron Boone said Volpe has had a partially torn labrum in his left shoulder. He does not believe the injury has affected Volpe at the plate.`\
 https://nytimes.com/athletic/6620769/2025/09/11/anthony-volpe-yankees-shoulder-injury/
 
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/11/briefing/charlie-kirk-suspect-bolsonaro-trial-nep
 **Anna Sawai, Priyanka Chopra and Peter Marino Inspect Dior’s Newest Look**\
 `The fashion crowd turned out for the reopening of the New York flagship store, which now has a spa.`\
 https://nytimes.com/2025/09/11/style/dior-store-nyc-reopening-spa.html
-
-**Bolsonaro Convicted of Attempting a Coup in Brazil**\
-`Brazil’s Supreme Court convicted the former president of trying to cling to power after losing the 2022 election, in a plot that included killing his opponent. He could face decades in prison.`\
-https://nytimes.com/2025/09/11/world/americas/bolsonaro-convicted-coup-attempt.html
-
-**What I'm hearing about Flyers' injured Jett Luchanko, Aleksei Kolosov's status and more**\
-`Luchanko is expected to miss all of rookie camp as he recovers from a lingering groin injury.`\
-https://nytimes.com/athletic/6621125/2025/09/11/flyers-luchanko-injury-kolosov-camp/
-
-**Ralph Lauren Opens New York Fashion Week**\
-`American fashion designer Ralph Lauren kicked off New York Fashion Week with a collection that highlighted mostly monochrome looks.`\
-https://nytimes.com/video/style/100000010392309/ralph-lauren-nyfw.html
 
