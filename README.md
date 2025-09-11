@@ -1,3 +1,7 @@
+**As Cubs build toward playoffs, Cade Horton's NL Rookie of the Year buzz grows**\
+`Horton’s 0.84 ERA since the All-Star break has drawn some comparisons to Jake Arrieta’s second-half run in 2015.`\
+https://nytimes.com/athletic/6621393/2025/09/11/chicago-cubs-cade-horton-nl-rookie-of-the-year-buzz/
+
 **Long Island Rail Road Workers May Strike. Here’s What to Know.**\
 `More than 3,000 employees could stop work after midnight on Thursday, Sept. 18, effectively shutting down America’s busiest commuter rail service.`\
 https://nytimes.com/2025/09/11/nyregion/long-island-rail-road-lirr-strike.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/11/world/middleeast/israel-qatar-un-security-council
 **As Political Violence Rises, Trump Condemns One Side**\
 `In the wake of Charlie Kirk’s killing, President Trump captured the raw sentiment of his conservative base. But he addressed only part of the alarming cycle of violence in America.`\
 https://nytimes.com/2025/09/11/us/politics/political-violence-trump-blame.html
-
-**After Kirk Assassination, Fear and Vitriol Intensify in Congress**\
-`The killing of the right-wing activist deepened lawmakers’ fears of violence directed against them, and the toxic discourse that has fed such threats.`\
-https://nytimes.com/2025/09/11/us/politics/kirk-republicans-democrats-congress-threats.html
 
