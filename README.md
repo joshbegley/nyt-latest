@@ -1,6 +1,10 @@
+**How Charlie Kirk Remade the Young Right**\
+`A spokesman for a mass-culture conservatism that seemed both more rebellious and more normal.`\
+https://nytimes.com/2025/09/10/opinion/charlie-kirk-trump-conservatism.html
+
 **A Video Taken Just After the Shooting Captured Someone on a Nearby Roof**\
 `A man who attended the Charlie Kirk event was trying to get good footage to share with his friends.`\
-https://nytimes.com/2025/09/10/us/a-video-taken-just-after-the-shooting-captured-someone-on-a-nearby-roof.html
+https://nytimes.com/2025/09/10/us/charlie-kirk-shooting-video-roof.html
 
 **Authorities arrest 4 suspects in connection with shooting of FSU's Ethan Pritchard**\
 `Pritchard remains in critical condition after being shot in his vehicle outside of an apartment complex Aug. 31.`\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah/charlie-kirks-coll
 **How to watch Astros at Blue Jays: Time, TV, streaming for September 11**\
 `Find out how to watch the Houston Astros play the Toronto Blue Jays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6618132/2025/09/10/astros-vs-blue-jays-stream-how-to-watch-sept-11/
-
-**How to watch Rays at White Sox: Time, TV, streaming for September 11**\
-`Find out how to watch the Tampa Bay Rays play the Chicago White Sox, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6618125/2025/09/10/rays-vs-white-sox-stream-how-to-watch-sept-11/
 
