@@ -1,3 +1,7 @@
+**Hopes for a Fast Capture of Kirk’s Shooter Fade After Patel Backtracks**\
+`Kash Patel, the F.B.I. director, said that the agency’s investigation was continuing, reversing his earlier announcement that someone had been apprehended.`\
+https://nytimes.com/2025/09/11/us/charlie-kirk-shooting-manhunt-fbi.html
+
 **I’d Be Thailand’s Leader Now if the System Wasn’t Rigged**\
 `Unless its democratic decay is reversed, Thailand will continue to spiral downward until the next generation decides enough is enough.`\
 https://nytimes.com/2025/09/11/opinion/thailand-election-pita-limjaroenrat.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6616874/2025/09/11/barcelona-stadium-la-liga-valenc
 **Chelsea have already scored four goals from corner kicks this season – so what's changed?**\
 `With so many opponents hellbent on making it difficult for Chelsea to play intricate, possession football, these are vital marginal gains`\
 https://nytimes.com/athletic/6615912/2025/09/11/chelsea-corner-expertise-premier-league/
-
-**Jean-Philippe Mateta doesn't just finish Crystal Palace's attacks - he's vital to building them**\
-`Since Oliver Glasner took over as manager, Mateta's transformation has been majestic`\
-https://nytimes.com/athletic/6594095/2025/09/11/jean-philippe-mateta-doesnt-just-finish-crystal-palaces-attacks-hes-vital-to-building-them/
 
