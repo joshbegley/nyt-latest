@@ -1,3 +1,7 @@
+**I’d Be Thailand’s Leader Now if the System Wasn’t Rigged**\
+`Unless its democratic decay is reversed, Thailand will continue to spiral downward until the next generation decides enough is enough.`\
+https://nytimes.com/2025/09/11/opinion/thailand-election-pita-limjaroenrat.html
+
 **After months of turbulence, Eddie Howe is closer to the Newcastle United he craves**\
 `The club was described as an ‘empty shell’. Now they're getting a team together, much to Howe's liking`\
 https://nytimes.com/athletic/6615950/2025/09/11/eddie-howe-newcastle-united-future/
