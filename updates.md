@@ -1,3 +1,15 @@
+**Gas Tanker Truck Explodes in Mexico City**\
+`An accidental explosion caused by a gas tanker killed at least four people and injured at least 90 more in Mexico City.`\
+https://nytimes.com/video/world/americas/100000010392617/truck-explodes-mexico-city.html
+
+**What Non-MAGA Trump Supporters See In Him**\
+`David Brooks, E.J. Dionne Jr. and Robert Siegel discuss the MAGA supporters Brooks knows personally — and what they really want from Donald Trump.`\
+https://nytimes.com/video/opinion/100000010388086/what-non-maga-trump-supporters-see-in-him.html
+
+**MAGA Was Built in Decades. What Will Democrats Build Next?**\
+`David Brooks, E.J. Dionne Jr. and Robert Siegel convene to discuss the state of America — and debate the best way to revive the country and its politics.`\
+https://nytimes.com/video/opinion/100000010388106/maga-was-built-in-decades-what-will-democrats-build-next.html
+
 **N.Y. Marijuana Businesses Facing Possible Closure Win Temporary Reprieve**\
 `Dispensaries had sued the state after a change in the buffer zone between cannabis shops and schools placed some within a zone banning cannabis sales.`\
 https://nytimes.com/2025/09/11/nyregion/marijuana-dispensaries-new-york-win-reprieve.html
