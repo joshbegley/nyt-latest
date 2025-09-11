@@ -1,3 +1,7 @@
+**How to watch Chargers at Raiders: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Chargers play the Las Vegas Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6618639/2025/09/11/chargers-vs-raiders-stream-how-to-watch-sept-15/
+
 **Word of the Day: edify**\
 `This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/09/11/learning/word-of-the-day-edify.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6610350/2025/09/11/barcelona-la-liga-writers-q-and-
 **Cubs takeaways: Bullpen steps up, Porter Hodge impresses and more**\
 `"He delivered. Absolutely take note of it," Cubs manager Craig Counsell said of Hodge. Chicago beat the Atlanta Braves 3-2.`\
 https://nytimes.com/athletic/6618466/2025/09/11/cubs-bullpen-porter-hodge-running/
-
-**Barcelona's 6,000-capacity emergency 'home' ground covering for the Camp Nou**\
-`Barcelona's La Liga match against Valencia will be held at the tiny stadium by their training ground. What's it like?`\
-https://nytimes.com/athletic/6616874/2025/09/11/barcelona-stadium-la-liga-valencia-johan-cruyff/
 
