@@ -1,3 +1,7 @@
+**U.S. Joins U.N. Security Council’s Criticism of Israeli Strike in Qatar**\
+`The United States, ordinarily a protector of Israel at the United Nations, signed on to a statement expressing “deep concern” about its attack on Hamas in the Qatari capital.`\
+https://nytimes.com/2025/09/11/world/middleeast/israel-qatar-un-security-council.html
+
 **As Political Violence Rises, Trump Condemns One Side**\
 `In the wake of Charlie Kirk’s killing, President Trump captured the raw sentiment of his conservative base. But he addressed only part of the alarming cycle of violence in America.`\
 https://nytimes.com/2025/09/11/us/politics/political-violence-trump-blame.html
