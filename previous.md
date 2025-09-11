@@ -1,3 +1,11 @@
+**Pakistan’s Floods Are a Climate Change Warning**\
+`Pakistan, among the countries most vulnerable to climate change, has been battered by floods and extreme heat as critics say its government needs to do more.`\
+https://nytimes.com/2025/09/11/climate/pakistans-floods-are-a-climate-change-warning.html
+
+**Onana completes Trabzonspor loan from Man United**\
+`The 29-year-old has made 102 appearances for United and is under contract until 2028. `\
+https://nytimes.com/athletic/6606031/2025/09/11/andre-onana-transfer-manchester-united-trabszonspor/
+
 **Canada Announces Major Projects to Offset Bite of Trump’s Tariffs**\
 `Prime Minister Mark Carney unveiled big infrastructure plans. But they are likely to meet resistance from Indigenous and environmental groups.`\
 https://nytimes.com/2025/09/11/world/canada/carney-trump-infrastructure-tariffs-natural-gas.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6620304/2025/09/11/aymeric-laporte-athletic-club-al
 **How Obamacare Is Colliding With Shutdown Negotiations**\
 `Republicans are signaling a new openness to extending health subsidies as Democrats suggest they want health care concessions to keep the government open.`\
 https://nytimes.com/2025/09/11/us/politics/obamacare-subsidies-government-shutdown-congress.html
-
-**Defendant in Trial Over Trump Assassination Attempt Is Off to a Shaky Start**\
-`Ryan Routh, who chose to represent himself in the Florida case, was cut off in his opening statement by the judge, who said it lacked relevance.`\
-https://nytimes.com/2025/09/11/us/ryan-routh-trump-assassination-attempt-trial.html
-
-**Chiefs' Xavier Worthy returns to practice. Could he play Sunday vs. Eagles?**\
-`Worthy was a surprising participant in practice Thursday after suffering a dislocated right shoulder last week in the season opener.`\
-https://nytimes.com/athletic/6620725/2025/09/11/chiefs-xavier-worthy-practice-eagles/
 

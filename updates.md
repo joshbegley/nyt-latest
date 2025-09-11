@@ -1,3 +1,11 @@
+**Pakistan’s Floods Are a Climate Change Warning**\
+`Pakistan, among the countries most vulnerable to climate change, has been battered by floods and extreme heat as critics say its government needs to do more.`\
+https://nytimes.com/2025/09/11/climate/pakistans-floods-are-a-climate-change-warning.html
+
+**Onana completes Trabzonspor loan from Man United**\
+`The 29-year-old has made 102 appearances for United and is under contract until 2028. `\
+https://nytimes.com/athletic/6606031/2025/09/11/andre-onana-transfer-manchester-united-trabszonspor/
+
 **Canada Announces Major Projects to Offset Bite of Trump’s Tariffs**\
 `Prime Minister Mark Carney unveiled big infrastructure plans. But they are likely to meet resistance from Indigenous and environmental groups.`\
 https://nytimes.com/2025/09/11/world/canada/carney-trump-infrastructure-tariffs-natural-gas.html
