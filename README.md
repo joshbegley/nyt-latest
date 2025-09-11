@@ -1,3 +1,11 @@
+**Canada Announces Major Projects to Offset Bite of Trump’s Tariffs**\
+`Prime Minister Mark Carney unveiled big infrastructure plans. But they are likely to meet resistance from Indigenous and environmental groups.`\
+https://nytimes.com/2025/09/11/world/canada/carney-trump-infrastructure-tariffs-natural-gas.html
+
+**Until Saturday: A surprisingly quality Saturday**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6620911/2025/09/11/college-football-schedule-week-3-until-saturday/
+
 **Man Utd Women players’ boots lost in transit before CL defeat**\
 `United were beaten 1-0 by Brann in the competition's third qualifying round, with Ingrid Stenevik scoring the only goal of the game.`\
 https://nytimes.com/athletic/6620892/2025/09/11/man-united-women-champions-league-boots/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/11/us/ryan-routh-trump-assassination-attempt-trial.h
 **Chiefs' Xavier Worthy returns to practice. Could he play Sunday vs. Eagles?**\
 `Worthy was a surprising participant in practice Thursday after suffering a dislocated right shoulder last week in the season opener.`\
 https://nytimes.com/athletic/6620725/2025/09/11/chiefs-xavier-worthy-practice-eagles/
-
-**‘He Gave Me Confidence’: How Charlie Kirk Connected With Young Men**\
-`With his right-wing group Turning Point USA, Mr. Kirk engaged controversial topics. Some students were inspired. Others found his views appalling.`\
-https://nytimes.com/2025/09/11/us/charlie-kirk-men.html
-
-**What’s Going On in This Picture? | Sept. 15, 2025**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2025/09/11/learning/whats-going-on-in-this-picture-sept-15-2025.html
 
