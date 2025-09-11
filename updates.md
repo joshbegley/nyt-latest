@@ -1,3 +1,11 @@
+**For the First Time, More Children Are Obese Than Underweight**\
+`One in 10 children worldwide now has obesity, a report from UNICEF found, and the number of overweight children has more than doubled in low- and middle-income countries since 2000.`\
+https://nytimes.com/2025/09/11/well/child-obesity-un-report.html
+
+**Former NBA center Jason Collins undergoing treatment for brain tumor**\
+`In 2013, Collins became the first active, openly gay player in NBA history when he came out in a Sports Illustrated article.`\
+https://nytimes.com/athletic/6620359/2025/09/11/jason-collins-treatment-brain-tumor-nba/
+
 **Regulators Are Digging Into A.I. Chatbots and Child Safety**\
 `The Federal Trade Commission said it was starting an inquiry of how six major tech companies monitor activity that could harm minors.`\
 https://nytimes.com/2025/09/11/technology/google-meta-chatgpt-ai-chatbots.html
