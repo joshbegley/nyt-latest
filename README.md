@@ -1,3 +1,7 @@
+**What Oracle’s Surge Says About the A.I. Boom**\
+`Shares in the tech giant are on a torrid run, stunning Wall Street, even as its profit outlook puzzles some analysts.`\
+https://nytimes.com/2025/09/11/business/dealbook/oracle-ellison-ai-boom.html
+
 **Here are 10 Edmonton Oilers questions ahead of training camp**\
 `A look at Connor McDavid's contract, who will step up for Zach Hyman, the Oilers' PK and more.`\
 https://nytimes.com/athletic/6617965/2025/09/11/edmonton-oilers-questions-training-camp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6618151/2025/09/11/rams-defense-nate-landman-emmanu
 **Mike Trout isn't letting metrics, home run drought sway belief that he can return to form**\
 `Trout's chase for 400 homers has transformed from a celebration to a source of anxiety for the Angels after it's dragged for weeks.`\
 https://nytimes.com/athletic/6617916/2025/09/11/mike-trout-400-home-run-chase-angels/
-
-**Do You Wish You Could Break Free From Your Phone?**\
-`Have you ever tried? What strategies have been most successful in limiting your phone’s power over you?`\
-https://nytimes.com/2025/09/11/learning/do-you-wish-you-could-break-free-from-your-phone.html
 
