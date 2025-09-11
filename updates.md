@@ -1,3 +1,7 @@
+**The F.B.I. Asked for Help Finding Charlie Kirk’s Killer**\
+`Also, new numbers showed a rise in inflation. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/09/11/briefing/manhunt-charlie-kirk-inflation-data.html
+
 **The Manhunt for Charlie Kirk’s Killer**\
 `The F.B.I. released two grainy images of a person of interest, but the gunman remained at large more than a day after the shooting.`\
 https://nytimes.com/2025/09/11/briefing/charlie-kirk-suspect-bolsonaro-trial-nepal.html

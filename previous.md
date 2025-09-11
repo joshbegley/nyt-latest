@@ -1,3 +1,7 @@
+**The F.B.I. Asked for Help Finding Charlie Kirk’s Killer**\
+`Also, new numbers showed a rise in inflation. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/09/11/briefing/manhunt-charlie-kirk-inflation-data.html
+
 **The Manhunt for Charlie Kirk’s Killer**\
 `The F.B.I. released two grainy images of a person of interest, but the gunman remained at large more than a day after the shooting.`\
 https://nytimes.com/2025/09/11/briefing/charlie-kirk-suspect-bolsonaro-trial-nepal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/11/nyregion/nyc-mayor-race-drop-walden-adams-sliwa.h
 **June Wilkinson, Pinup Star and Screen Siren, Is Dead at 85**\
 `Christened “the Bosom” by Playboy magazine, she rode her voluptuous figure to fame and became known as “the most photographed nude in America.”`\
 https://nytimes.com/2025/09/11/movies/june-wilkinson-dead.html
-
-**For Trump, Charlie Kirk Is a Deeply Personal Loss**\
-`The president’s reaction to Charlie Kirk’s assassination shows how much the 31-year-old conservative activist had become a part of the Trump family.`\
-https://nytimes.com/2025/09/11/us/politics/trump-kirk.html
 
