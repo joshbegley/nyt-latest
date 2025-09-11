@@ -1,3 +1,15 @@
+**Belarus Frees 52 Political Prisoners in U.S.-Brokered Deal**\
+`Alexander Lukashenko, the country’s authoritarian leader and an ally of President Vladimir Putin of Russia, wants to normalize ties with the Trump administration.`\
+https://nytimes.com/2025/09/11/world/europe/belarus-political-prisoners-release.html
+
+**Canadian PM Carney jokes about ‘crisis’ around McDavid extension**\
+`The prime minister pleaded for the superstar to stay with the Oilers "so we can bring that Cup back to Canada."`\
+https://nytimes.com/athletic/6619565/2025/09/11/hockey-connor-mcdavid-mark-carney-canada-extension/
+
+**Fantasy football injuries, cheat sheet NFL Week 2: Brock Purdy to miss multiple weeks**\
+`Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 2 player rankings and more.`\
+https://nytimes.com/athletic/6613946/2025/09/11/fantasy-football-injuries-cheat-sheet-nfl-week-2-brock-purdy-unlikely-to-play/
+
 **Lamps With Main Character Energy**\
 `Plus: a designer’s new take on California cool, an exhibition of Robert Rauschenberg’s textile art and more recommendations from T Magazine.`\
 https://nytimes.com/2025/09/11/t-magazine/carmen-dapollonio-lamps.html
