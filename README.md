@@ -1,3 +1,11 @@
+**Betting for (by) dummies: Contrarian picks for Chiefs, Dolphins, unders galore**\
+`Jon Greenberg and Zac Jackson make their bets for this week of NFL and college football. Expect some low scores.`\
+https://nytimes.com/athletic/6619320/2025/09/11/betting-picks-nfl-week-2-cfb-week-3/
+
+**A new way to experience the NFL: Game footage on The Athletic**\
+`The Athletic's NFL report will now include game footage, adding a dynamic new element to our best-in-class coverage.`\
+https://nytimes.com/athletic/6614019/2025/09/11/nfl-video-the-athletic/
+
 **How Nigel Hayes-Davis detached and made it back to the NBA after seven seasons overseas**\
 `The Suns signed Hayes-Davis in July, a move that got lost in the free-agency frenzy, but one that should not go unnoticed.`\
 https://nytimes.com/athletic/6618572/2025/09/11/nigel-hayes-davis-phoenix-suns-nba-fenerbahce/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/11/movies/spinal-tap-ii-the-end-continues-review.htm
 **Key fantasy football questions for Week 2: What's wrong with A.J. Brown?**\
 `Dalton Del Don identifies 10 questions fantasy managers should be seeking answers to in Week 2, including a troubling start for A.J. Brown.`\
 https://nytimes.com/athletic/6617358/2025/09/11/fantasy-football-week-2-key-questions/
-
-**This Suit Went From the Met Gala to the Sale Section**\
-`How a one-of-a-kind ensemble worn to the star-studded fashion event ended up being bought secondhand — after being marked down by half.`\
-https://nytimes.com/2025/09/11/style/wiederhoeft-suit-met-gala-ben-platt.html
-
-**A Phone and a Foot**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2025/09/11/learning/a-phone-and-a-foot.html
 
