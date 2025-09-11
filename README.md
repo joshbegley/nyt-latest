@@ -7,7 +7,7 @@ https://nytimes.com/2025/09/11/us/ryan-routh-trump-assassination-attempt-trial.h
 https://nytimes.com/athletic/6620725/2025/09/11/chiefs-xavier-worthy-practice-eagles/
 
 **‘He Gave Me Confidence’: How Charlie Kirk Connected With Young Men**\
-`With his right-wing group Turning Point USA, Mr. Kirk engaged controversial topics. Some students were inspired. Others found his view’s appalling.`\
+`With his right-wing group Turning Point USA, Mr. Kirk engaged controversial topics. Some students were inspired. Others found his views appalling.`\
 https://nytimes.com/2025/09/11/us/charlie-kirk-men.html
 
 **What’s Going On in This Picture? | Sept. 15, 2025**\

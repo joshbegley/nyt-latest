@@ -1,3 +1,35 @@
+**Defendant in Trial Over Trump Assassination Attempt Is Off to a Shaky Start**\
+`Ryan Routh, who chose to represent himself in the Florida case, was cut off in his opening statement by the judge, who said it lacked relevance.`\
+https://nytimes.com/2025/09/11/us/ryan-routh-trump-assassination-attempt-trial.html
+
+**Chiefs' Xavier Worthy returns to practice. Could he play Sunday vs. Eagles?**\
+`Worthy was a surprising participant in practice Thursday after suffering a dislocated right shoulder last week in the season opener.`\
+https://nytimes.com/athletic/6620725/2025/09/11/chiefs-xavier-worthy-practice-eagles/
+
+**‘He Gave Me Confidence’: How Charlie Kirk Connected With Young Men**\
+`With his right-wing group Turning Point USA, Mr. Kirk engaged controversial topics. Some students were inspired. Others found his view’s appalling.`\
+https://nytimes.com/2025/09/11/us/charlie-kirk-men.html
+
+**What’s Going On in This Picture? | Sept. 15, 2025**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2025/09/11/learning/whats-going-on-in-this-picture-sept-15-2025.html
+
+**What’s Going On in This Graph? | Sept. 17, 2025**\
+`The following graph shows the top five summer movies by domestic revenue for 2019 and 2022-25. How did this summer compare to previous years?`\
+https://nytimes.com/2025/09/11/learning/whats-going-on-in-this-graph-sept-17-2025.html
+
+**Paramount Plans Bid for Warner Bros. Discovery**\
+`Any deal would further reshape the media industry, putting CBS News, CNN, and two major movie studios under the same corporate umbrella.`\
+https://nytimes.com/2025/09/11/business/media/paramount-warner-bros-discovery-bid.html
+
+**Erich Sailer, Ski Coach Who Helped Shape Champions, Dies at 99**\
+`Using a modest slope in Minnesota as a springboard, he tutored a host of rising stars, including Lindsey Vonn. He was inducted into the U.S. Ski and Snowboard Hall of Fame.`\
+https://nytimes.com/2025/09/11/sports/skiing/erich-sailer-dead.html
+
+**Brazil’s Supreme Court Is On Course to Convict Bolsonaro in Coup Plot**\
+`A majority of voting justices said they plan to vote to convict Brazil’s former president of trying to hold onto power. A final verdict could come Thursday.`\
+https://nytimes.com/2025/09/11/world/americas/brazil-supreme-court-bolsonaro-coup-convict.html
+
 **Fantasy baseball bullpen report featuring final 2025 update and way-too-early look at 2026**\
 `Greg Jewett offers a final bullpen update for fantasy mangers still battling in their leagues, and looks ahead to 2026 for those who aren't.`\
 https://nytimes.com/athletic/6620387/2025/09/11/fantasy-baseball-bullpen-report-early-2026-rankings/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6620387/2025/09/11/fantasy-baseball-bullpen-report-
 **Student Who Shot 2 Others at Colorado School Was ‘Radicalized,’ Officials Say**\
 `Desmond Holly, 16, who is suspected of shooting and injuring two students, had been “radicalized by an extremist network,” the authorities said.`\
 https://nytimes.com/2025/09/11/us/colorado-high-school-shooter-identified.html
-
-**Security at Kirk Event Seemed Light to Those Who Attended**\
-`The problem of protecting campus speakers with polarizing opinions has confounded universities around the country in recent years.`\
-https://nytimes.com/2025/09/11/us/politics/charlie-kirk-security-shooting.html
-
-**In Jeffrey Gibson’s Sculptures, Child’s Play and Indigenous Truths**\
-`On the Met’s facade, a Native artist honors parkland animals and engages his widest audience yet.`\
-https://nytimes.com/2025/09/11/arts/design/in-jeffrey-gibsons-sculptures-childs-play-and-indigenous-truths.html
-
-**For the First Time, More Children Are Obese Than Underweight**\
-`One in 10 children worldwide now has obesity, a report from UNICEF found, and the number of overweight children has more than doubled in low- and middle-income countries since 2000.`\
-https://nytimes.com/2025/09/11/well/child-obesity-un-report.html
-
-**Former NBA center Jason Collins undergoing treatment for brain tumor**\
-`In 2013, Collins became the first active, openly gay player in NBA history when he came out in a Sports Illustrated article.`\
-https://nytimes.com/athletic/6620359/2025/09/11/jason-collins-treatment-brain-tumor-nba/
-
-**Regulators Are Digging Into A.I. Chatbots and Child Safety**\
-`The Federal Trade Commission said it was starting an inquiry of how six major tech companies monitor activity that could harm minors.`\
-https://nytimes.com/2025/09/11/technology/google-meta-chatgpt-ai-chatbots.html
-
-**Ravens' Lamar Jackson won't be disciplined by NFL following interaction with fan**\
-`The incident with a Bills fan occurred during the third quarter of Baltimore's loss to Buffalo in Week 1. `\
-https://nytimes.com/athletic/6620557/2025/09/11/ravens-lamar-jackson-bills-fan-nfl-discipline/
-
-**John Kelly hired as Kings' lead TV voice, with Jim Fox to share analyst duties**\
-`Kelly joins Los Angeles after a long run with the St. Louis Blues.`\
-https://nytimes.com/athletic/6620598/2025/09/11/john-kelly-kings-jim-fox/
-
-**Charlie Kirk and America’s Fragile Fabric**\
-`Readers react to the assassination of the right-wing youth activist.`\
-https://nytimes.com/2025/09/11/opinion/letters/charlie-kirk-assassination.html
 
