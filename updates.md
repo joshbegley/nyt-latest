@@ -1,3 +1,15 @@
+**After months of turbulence, Eddie Howe is closer to the Newcastle United he craves**\
+`The club was described as an ‘empty shell’. Now they're getting a team together, much to Howe's liking`\
+https://nytimes.com/athletic/6615950/2025/09/11/eddie-howe-newcastle-united-future/
+
+**How Macron Failed to Curb the Far Right**\
+`As France drifted to the right, the president has tried to make the country more business-friendly and win back voters. His strategy hasn’t worked.`\
+https://nytimes.com/2025/09/11/briefing/macron-far-right-charlie-kick-killing-poland-russia-nato.html
+
+**Amorim baiting the press is risky - but in matches against the 'Big Six', it has worked**\
+`Amorim got the better of tactical battles with Pep Guardiola last season - how United need that to continue against City `\
+https://nytimes.com/athletic/6588934/2025/09/11/ruben-amorim-manchester-united-bait/
+
 **Ranking the 10 best forwards to own in Fantasy Premier League**\
 `Erling Haaland, Joao Pedro and Alexander Isak are all some of the best forwards to own in FPL right now. Holly Shand presents her top 10`\
 https://nytimes.com/athletic/6612705/2025/09/11/fantasy-premier-league-forwards-haaland-isak-joao-pedro/
