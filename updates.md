@@ -1,3 +1,11 @@
+**U.S. Naval Academy Placed Under Lockdown Amid Threats, Authorities Say**\
+`Local law enforcement officers were responding to the campus in Annapolis, Md., a spokesman said.`\
+https://nytimes.com/2025/09/11/us/naval-academy-annapolis.html
+
+**As Political Tension Soars, Some Rare Calls for Unity Emerge**\
+`Joint statements from groups representing young Republicans and Democrats, and messages of tolerance from prominent figures stood out as reaction to Charlie Kirk’s assassination continued.`\
+https://nytimes.com/2025/09/11/style/charlie-kirk-death-political-unity.html
+
 **U.S. Joins U.N. Security Council’s Criticism of Israeli Strike in Qatar**\
 `The United States, ordinarily a protector of Israel at the United Nations, signed on to a statement expressing “deep concern” about its attack on Hamas in the Qatari capital.`\
 https://nytimes.com/2025/09/11/world/middleeast/israel-qatar-un-security-council.html

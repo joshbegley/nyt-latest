@@ -1,3 +1,11 @@
+**U.S. Naval Academy Placed Under Lockdown Amid Threats, Authorities Say**\
+`Local law enforcement officers were responding to the campus in Annapolis, Md., a spokesman said.`\
+https://nytimes.com/2025/09/11/us/naval-academy-annapolis.html
+
+**As Political Tension Soars, Some Rare Calls for Unity Emerge**\
+`Joint statements from groups representing young Republicans and Democrats, and messages of tolerance from prominent figures stood out as reaction to Charlie Kirk’s assassination continued.`\
+https://nytimes.com/2025/09/11/style/charlie-kirk-death-political-unity.html
+
 **U.S. Joins U.N. Security Council’s Criticism of Israeli Strike in Qatar**\
 `The United States, ordinarily a protector of Israel at the United Nations, signed on to a statement expressing “deep concern” about its attack on Hamas in the Qatari capital.`\
 https://nytimes.com/2025/09/11/world/middleeast/israel-qatar-un-security-council.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/opinion/100000010392713/charlie-kirk-embodied-mass-cul
 **On Melissa Jefferson-Wooden's ascent to sprinting stardom, the world stage is next**\
 `On a track stocked with talent, Jefferson-Wooden exudes something special. The star potential is unmistakable.`\
 https://nytimes.com/athletic/6621098/2025/09/11/melissa-jefferson-wooden-world-athletics-championships-100-meter/
-
-**I was set to interview Charlie Kirk next month. Then he was assassinated.**\
-`His death takes us deeper into an age of instability.`\
-https://nytimes.com/video/opinion/100000010392105/i-was-set-to-interview-charlie-kirk-next-month-then-he-was-assassinated.html
-
-**Yankees say Anthony Volpe has shoulder injury, expect him to play through it**\
-`Aaron Boone said Volpe has had a partially torn labrum in his left shoulder. He does not believe the injury has affected Volpe at the plate.`\
-https://nytimes.com/athletic/6620769/2025/09/11/anthony-volpe-yankees-shoulder-injury/
 
