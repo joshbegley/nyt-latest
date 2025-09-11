@@ -1,3 +1,11 @@
+**Betting for (by) dummies: Contrarian picks for Chiefs, Dolphins, unders galore**\
+`Jon Greenberg and Zac Jackson make their bets for this week of NFL and college football. Expect some low scores.`\
+https://nytimes.com/athletic/6619320/2025/09/11/betting-picks-nfl-week-2-cfb-week-3/
+
+**A new way to experience the NFL: Game footage on The Athletic**\
+`The Athletic's NFL report will now include game footage, adding a dynamic new element to our best-in-class coverage.`\
+https://nytimes.com/athletic/6614019/2025/09/11/nfl-video-the-athletic/
+
 **How Nigel Hayes-Davis detached and made it back to the NBA after seven seasons overseas**\
 `The Suns signed Hayes-Davis in July, a move that got lost in the free-agency frenzy, but one that should not go unnoticed.`\
 https://nytimes.com/athletic/6618572/2025/09/11/nigel-hayes-davis-phoenix-suns-nba-fenerbahce/
