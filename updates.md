@@ -1,3 +1,11 @@
+**I was set to interview Charlie Kirk next month. Then he was assassinated.**\
+`His death takes us deeper into an age of instability.`\
+https://nytimes.com/video/opinion/100000010392105/i-was-set-to-interview-charlie-kirk-next-month-then-he-was-assassinated.html
+
+**Yankees reveal Anthony Volpe has shoulder injury but is expected to play through it**\
+`Aaron Boone said Volpe has had a partially torn labrum in his left shoulder. He does not believe the injury has affected Volpe at the plate.`\
+https://nytimes.com/athletic/6620769/2025/09/11/anthony-volpe-yankees-shoulder-injury/
+
 **Dolphins hold players-only meeting after Week 1 drubbing to Colts**\
 `The Dolphins struggled on both sides of the ball during the team's 33-8 road loss to the Colts in Week 1.`\
 https://nytimes.com/athletic/6621198/2025/09/11/dolphins-players-only-meeting/
