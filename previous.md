@@ -1,3 +1,15 @@
+**‘Spinal Tap II: The End Continues’ Review: They Can’t Leave This Behind**\
+`Four decades after their big-screen hit, the rock legends David, Derek and Nigel have reunited for one final (really, truly) concert.`\
+https://nytimes.com/2025/09/11/movies/spinal-tap-ii-the-end-continues-review.html
+
+**Key fantasy football questions for Week 2: What's wrong with A.J. Brown?**\
+`Dalton Del Don identifies 10 questions fantasy managers should be seeking answers to in Week 2, including a troubling start for A.J. Brown.`\
+https://nytimes.com/athletic/6617358/2025/09/11/fantasy-football-week-2-key-questions/
+
+**This Suit Went From the Met Gala to the Sale Section**\
+`How a one-of-a-kind ensemble worn to the star-studded fashion event ended up being bought secondhand — after being marked down by half.`\
+https://nytimes.com/2025/09/11/style/wiederhoeft-suit-met-gala-ben-platt.html
+
 **A Phone and a Foot**\
 `What do you think this image is communicating?`\
 https://nytimes.com/2025/09/11/learning/a-phone-and-a-foot.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/11/us/charlie-kirk-wife-erika-children-family.html
 **What Oracle’s Surge Says About the A.I. Boom**\
 `Shares in the tech giant are on a torrid run, stunning Wall Street, even as its profit outlook puzzles some analysts.`\
 https://nytimes.com/2025/09/11/business/dealbook/oracle-ellison-ai-boom.html
-
-**Here are 10 Edmonton Oilers questions ahead of training camp**\
-`A look at Connor McDavid's contract, who will step up for Zach Hyman, the Oilers' PK and more.`\
-https://nytimes.com/athletic/6617965/2025/09/11/edmonton-oilers-questions-training-camp/
-
-**Courtland Sutton, Nik Bonitto and the self-doubt conquered by Broncos' biggest stars**\
-`Zach Allen was a second-year player worried he'd be cut before he became an All-Pro and signed a $102 million contract with the Broncos.`\
-https://nytimes.com/athletic/6613469/2025/09/11/broncos-nik-bonitto-courtland-sutton-zach-allen/
-
-**Blues training camp battles: Here are the 5 competitions to watch**\
-`There will be many training camp battles when the St. Louis Blues take the ice next week, but here are our top five competitions.`\
-https://nytimes.com/athletic/6616595/2025/09/11/blues-training-camp-battles-5-competitions/
 

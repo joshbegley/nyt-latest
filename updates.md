@@ -1,3 +1,15 @@
+**‘Spinal Tap II: The End Continues’ Review: They Can’t Leave This Behind**\
+`Four decades after their big-screen hit, the rock legends David, Derek and Nigel have reunited for one final (really, truly) concert.`\
+https://nytimes.com/2025/09/11/movies/spinal-tap-ii-the-end-continues-review.html
+
+**Key fantasy football questions for Week 2: What's wrong with A.J. Brown?**\
+`Dalton Del Don identifies 10 questions fantasy managers should be seeking answers to in Week 2, including a troubling start for A.J. Brown.`\
+https://nytimes.com/athletic/6617358/2025/09/11/fantasy-football-week-2-key-questions/
+
+**This Suit Went From the Met Gala to the Sale Section**\
+`How a one-of-a-kind ensemble worn to the star-studded fashion event ended up being bought secondhand — after being marked down by half.`\
+https://nytimes.com/2025/09/11/style/wiederhoeft-suit-met-gala-ben-platt.html
+
 **A Phone and a Foot**\
 `What do you think this image is communicating?`\
 https://nytimes.com/2025/09/11/learning/a-phone-and-a-foot.html

@@ -1,3 +1,7 @@
+**Where Will Everyone in Gaza City Go?**\
+`Tents stretch across the beach. Exhaustion and hunger are high. There’s little room elsewhere.`\
+https://nytimes.com/interactive/2025/09/11/world/middleeast/gaza-city-evacuation-israel-maps.html
+
 **‘Spinal Tap II: The End Continues’ Review: They Can’t Leave This Behind**\
 `Four decades after their big-screen hit, the rock legends David, Derek and Nigel have reunited for one final (really, truly) concert.`\
 https://nytimes.com/2025/09/11/movies/spinal-tap-ii-the-end-continues-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6617747/2025/09/11/kirill-kaprizov-wild-offer/
 **Charlie Kirk’s Widow, Erika, Promoted Conservative Values at His Side**\
 `Mr. Kirk often pointed to his marriage as an example of a loving, conservative partnership. The pair married in 2021 and had two children.`\
 https://nytimes.com/2025/09/11/us/charlie-kirk-wife-erika-children-family.html
-
-**What Oracle’s Surge Says About the A.I. Boom**\
-`Shares in the tech giant are on a torrid run, stunning Wall Street, even as its profit outlook puzzles some analysts.`\
-https://nytimes.com/2025/09/11/business/dealbook/oracle-ellison-ai-boom.html
 
