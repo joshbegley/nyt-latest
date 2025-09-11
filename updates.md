@@ -1,3 +1,19 @@
+**Donnarumma: Goalkeeper competition at City 'good for everyone'**\
+`Donnarumma is available to make his debut against Manchester United on Sunday, but faces competition from James Trafford.`\
+https://nytimes.com/athletic/6620372/2025/09/11/gianluigi-donnarumma-man-city-goalkeeper-competition/
+
+**California Passes Bill Allowing Omission of Patients’ Names From Abortion Pill Bottles**\
+`The intent is to protect health care providers who send the pills to patients in states with abortion bans, and to reassure patients who fear they could be identified.`\
+https://nytimes.com/2025/09/11/health/california-abortion-pill-protections.html
+
+**Investigators eye a hunting rifle for clues to the gunman’s identity and motive.**\
+`By Glenn Thrush and Devlin Barrett`\
+https://nytimes.com/live/2025/09/11/us/charlie-kirk-shooting-news/investigators-eye-a-hunting-rifle-for-clues-to-the-gunmans-identity-and-motive
+
+**What Students Are Saying About Summer Vacation and Going Back to School**\
+`Welcome to another year of Current Events Conversation!`\
+https://nytimes.com/2025/09/11/learning/what-students-are-saying-about-summer-vacation-and-going-back-to-school.html
+
 **On Ukraine and Gaza, Trump Casts Himself as a Bystander, if He Can’t Be a Peacemaker**\
 `President Trump often insists he can bring peace to global conflicts. But when allies and adversaries alike appear to be ignoring him or testing American will, he adopts a what-can-you-do shrug.`\
 https://nytimes.com/2025/09/11/us/politics/trump-gaza-ukraine-peace.html

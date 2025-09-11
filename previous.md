@@ -1,3 +1,19 @@
+**Donnarumma: Goalkeeper competition at City 'good for everyone'**\
+`Donnarumma is available to make his debut against Manchester United on Sunday, but faces competition from James Trafford.`\
+https://nytimes.com/athletic/6620372/2025/09/11/gianluigi-donnarumma-man-city-goalkeeper-competition/
+
+**California Passes Bill Allowing Omission of Patients’ Names From Abortion Pill Bottles**\
+`The intent is to protect health care providers who send the pills to patients in states with abortion bans, and to reassure patients who fear they could be identified.`\
+https://nytimes.com/2025/09/11/health/california-abortion-pill-protections.html
+
+**Investigators eye a hunting rifle for clues to the gunman’s identity and motive.**\
+`By Glenn Thrush and Devlin Barrett`\
+https://nytimes.com/live/2025/09/11/us/charlie-kirk-shooting-news/investigators-eye-a-hunting-rifle-for-clues-to-the-gunmans-identity-and-motive
+
+**What Students Are Saying About Summer Vacation and Going Back to School**\
+`Welcome to another year of Current Events Conversation!`\
+https://nytimes.com/2025/09/11/learning/what-students-are-saying-about-summer-vacation-and-going-back-to-school.html
+
 **On Ukraine and Gaza, Trump Casts Himself as a Bystander, if He Can’t Be a Peacemaker**\
 `President Trump often insists he can bring peace to global conflicts. But when allies and adversaries alike appear to be ignoring him or testing American will, he adopts a what-can-you-do shrug.`\
 https://nytimes.com/2025/09/11/us/politics/trump-gaza-ukraine-peace.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6618509/2025/09/11/vancouver-canucks-prospects-top-
 **Newcastle cancel tickets bought by Dundee school for Barcelona Champions League game**\
 `45 tickets for the much-anticipated match were initially purchased by a school in Scotland, 190 miles away`\
 https://nytimes.com/athletic/6620400/2025/09/11/newcastle-barcelona-tickets-dundee-school/
-
-**Eric Adams Hints to Business Leaders He Is Open to Quitting Mayor’s Race**\
-`Mayor Eric Adams told a prominent New York City business group that if a private poll showed he had no path to re-election, he would reconsider bowing out.`\
-https://nytimes.com/2025/09/11/nyregion/adams-mayor-campaign-nyc.html
-
-**How Brock Purdy's injury impacted 49ers' Week 2 spread, total and futures odds**\
-`Brock Purdy's injury moved the point spread and total for San Francisco's Week 2 game against New Orleans. `\
-https://nytimes.com/athletic/6619734/2025/09/11/brock-purdy-odds-impact-spread-total-super-bowl-futures/
-
-**The F.B.I. releases two images of a ‘person of interest’ in the Kirk investigation.**\
-`By Nicholas Bogel-Burroughs and Devlin Barrett`\
-https://nytimes.com/live/2025/09/11/us/charlie-kirk-shooting-news/the-fbi-releases-two-images-of-a-person-of-interest-in-the-kirk-investigation
-
-**Giants' Malik Nabers says he wasn't frustrated about targets, explains Brian Daboll interaction**\
-`In 2024, Nabers finished with 109 catches for 1,204 yards and seven touchdowns.`\
-https://nytimes.com/athletic/6620163/2025/09/11/malik-nabers-brian-daboll-sideline-new-york-giants/
 
