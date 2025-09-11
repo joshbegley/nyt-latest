@@ -1,3 +1,11 @@
+**Charlie Kirk and America’s Grim Routine**\
+`While the nation has endured violent eras before, this is one with instant footage, and instant reaction.`\
+https://nytimes.com/2025/09/10/us/politics/political-violence-charlie-kirk-shooting.html
+
+**Acts of political violence are now part of the American fabric.**\
+`It was only a few months ago that a Democratic state lawmaker in Minnesota and her husband were assassinated, and another lawmaker and his wife were wounded.`\
+https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah/charlie-kirk-assassinations-shootings-politics
+
 **Republicans Block Schumer’s Effort to Force Vote on Epstein Files**\
 `Though it failed, Mr. Schumer’s proposal brought the contentious debate over the Trump administration’s handling of the Epstein files to the Senate, which has largely avoided it.`\
 https://nytimes.com/2025/09/10/us/politics/chuck-schumer-effort-epstein-files.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/10/style/charlie-kirk-social-media-reaction.html
 **Adam Silver strikes bold tone, for him, on Clippers investigation**\
 `Adam Silver emphasized the need to reserve judgment during Clippers investigation. But Silver knows he has power to punish LA if necessary.`\
 https://nytimes.com/athletic/6617814/2025/09/10/adam-silver-clippers-ballmer-investigation-bold/
-
-**Republican Senator Asks Social Security Agency About Whistle-Blower’s Claims**\
-`The chair of the Finance Committee sent the agency a letter inquiring about allegations that it had put the confidential personal information of Americans at risk.`\
-https://nytimes.com/2025/09/10/us/politics/doge-social-security-republicans.html
-
-**American investors spent big on NWSL, but now they have options abroad**\
-`Down to Business with Asli Pelit takes you through the exciting, fast-paced (and sometimes confusing) corporate side of women's soccer.`\
-https://nytimes.com/athletic/6617598/2025/09/10/nwsl-wsl-investment-down-to-business/
 
