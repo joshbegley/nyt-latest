@@ -1,3 +1,11 @@
+**Smith and Russo: Wild at the crossroads with Kirill Kaprizov after he turns down latest massive offer**\
+`What does it mean? Does he want more money? A short-term deal? A new home? Here's what we're hearing and know so far.`\
+https://nytimes.com/athletic/6617747/2025/09/10/kirill-kaprizov-wild-offer/
+
+**Charlie Kirk Embodied Mass-Culture Conservatism**\
+`He was a spokesman for a movement that seemed both more rebellious and more normal.`\
+https://nytimes.com/2025/09/10/opinion/charlie-kirk-trump-conservatism.html
+
 **At the White House, Trump’s Grief and Shock Turn to Rage Over Charlie Kirk**\
 `President Trump asked for updates and met with advisers in the Oval Office before recording a four-minute video in which he blamed rhetoric from the “radical left” for the killing.`\
 https://nytimes.com/2025/09/10/us/politics/trump-reaction-charlie-kirk.html
