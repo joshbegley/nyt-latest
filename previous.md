@@ -1,3 +1,7 @@
+**Trump Says ‘Radical Left’ Rhetoric Contributed to Charlie Kirk’s Death**\
+`President Trump promised to find those responsible for political violence, as well as the “organizations that fund it and support it.”`\
+https://nytimes.com/2025/09/10/us/politics/trump-charlie-kirk-address.html
+
 **Smith and Russo: Wild at the crossroads with Kirill Kaprizov after he turns down latest massive offer**\
 `What does it mean? Does he want more money? A short-term deal? A new home? Here's what we're hearing and know so far.`\
 https://nytimes.com/athletic/6617747/2025/09/10/kirill-kaprizov-wild-offer/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/10/us/charlie-kirk-shooting-video-roof.html
 **Authorities arrest 4 suspects in connection with shooting of FSU's Ethan Pritchard**\
 `Pritchard remains in critical condition after being shot in his vehicle outside of an apartment complex Aug. 31.`\
 https://nytimes.com/athletic/6618110/2025/09/10/ethan-pritchard-suspects-arrested-florida-state/
-
-**‘The Brothers Size’ Review: A Spare and Poetic Restaging**\
-`In honor of its 20th anniversary, Tarell Alvin McCraney’s play gets a fiercely minimalist production at the Shed.`\
-https://nytimes.com/2025/09/10/theater/brothers-size-review.html
 
