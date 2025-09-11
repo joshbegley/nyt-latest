@@ -1,3 +1,7 @@
+**Trump Viewed Charlie Kirk as a ‘Genius’ and an Unflinching Ally**\
+`Mr. Kirk was among the faithful who had helped Mr. Trump build a comeback after the Jan. 6, 2021, attack on the Capitol made him a political outcast. Mr. Trump brought him into his second-term inner circle.`\
+https://nytimes.com/2025/09/10/us/politics/trump-charlie-kirk-ally.html
+
 **How Charlie Kirk Remade the Young Right**\
 `A spokesman for a mass-culture conservatism that seemed both more rebellious and more normal.`\
 https://nytimes.com/2025/09/10/opinion/charlie-kirk-trump-conservatism.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/10/us/politics/chuck-schumer-effort-epstein-files.ht
 **Charlie Kirk’s college tour aimed to ‘push back’ against left-wing values in academia.**\
 `The tour was launched in February with the vgive college students “tools to push back against leftwing indoctrination in academia” and and reclaim their right to free speech,”`\
 https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah/charlie-kirks-college-tour-aimed-to-push-back-against-left-wing-values-in-academia
-
-**How to watch Astros at Blue Jays: Time, TV, streaming for September 11**\
-`Find out how to watch the Houston Astros play the Toronto Blue Jays, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6618132/2025/09/10/astros-vs-blue-jays-stream-how-to-watch-sept-11/
 
