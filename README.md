@@ -1,3 +1,7 @@
+**Charlie Kirk’s Widow, Erika, Promoted Conservative Values at His Side**\
+`Mr. Kirk often pointed to his marriage as an example of a loving, conservative partnership. The pair married in 2021 and had two children.`\
+https://nytimes.com/2025/09/11/us/charlie-kirk-wife-erika-children-family.html
+
 **What Oracle’s Surge Says About the A.I. Boom**\
 `Shares in the tech giant are on a torrid run, stunning Wall Street, even as its profit outlook puzzles some analysts.`\
 https://nytimes.com/2025/09/11/business/dealbook/oracle-ellison-ai-boom.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6618619/2025/09/11/luka-doncic-lakers-eurobasket-ro
 **How 3 unheralded newcomers could help make Rams' defense more complete**\
 `The Rams believe they may have the complementary pieces to round out a defense ready to contend this season. `\
 https://nytimes.com/athletic/6618151/2025/09/11/rams-defense-nate-landman-emmanuel-forbes-poona-ford/
-
-**Mike Trout isn't letting metrics, home run drought sway belief that he can return to form**\
-`Trout's chase for 400 homers has transformed from a celebration to a source of anxiety for the Angels after it's dragged for weeks.`\
-https://nytimes.com/athletic/6617916/2025/09/11/mike-trout-400-home-run-chase-angels/
 

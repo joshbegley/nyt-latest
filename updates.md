@@ -1,3 +1,7 @@
+**What Oracle’s Surge Says About the A.I. Boom**\
+`Shares in the tech giant are on a torrid run, stunning Wall Street, even as its profit outlook puzzles some analysts.`\
+https://nytimes.com/2025/09/11/business/dealbook/oracle-ellison-ai-boom.html
+
 **Here are 10 Edmonton Oilers questions ahead of training camp**\
 `A look at Connor McDavid's contract, who will step up for Zach Hyman, the Oilers' PK and more.`\
 https://nytimes.com/athletic/6617965/2025/09/11/edmonton-oilers-questions-training-camp/
