@@ -1,3 +1,7 @@
+**Charlie Kirk's death draws reaction from Yankees, across sports world**\
+`A moment of silence was held at Yankee Stadium on Wednesday, hours after the right-wing activist was killed during a speaking event in Utah.`\
+https://nytimes.com/athletic/6618380/2025/09/10/charlie-kirk-reaction-yankees-harrison-butker/
+
 **Videos Capture The Fatal Shooting Of Charlie Kirk**\
 `Charlie Kirk, who founded the right-wing youth activist organization Turning Point USA, was fatally shot in the neck on Wednesday while speaking at a campus event in Orem, Utah.`\
 https://nytimes.com/video/us/100000010391070/charlie-kirk-fatally-shot-utah.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/10/crosswords/daily-puzzle-2025-09-11.html
 **Trump Viewed Charlie Kirk as a ‘Genius’ and an Unflinching Ally**\
 `Mr. Kirk was among the faithful who had helped Mr. Trump build a comeback after the Jan. 6, 2021, attack on the Capitol made him a political outcast. Mr. Trump brought him into his second-term inner circle.`\
 https://nytimes.com/2025/09/10/us/politics/trump-charlie-kirk-ally.html
-
-**Charlie Kirk Embodied Mass-Culture Conservatism**\
-`He was a spokesman for a movement that seemed both more rebellious and more normal.`\
-https://nytimes.com/2025/09/10/opinion/charlie-kirk-trump-conservatism.html
 
