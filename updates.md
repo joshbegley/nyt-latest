@@ -1,3 +1,11 @@
+**How Charlie Kirk Remade the Young Right**\
+`A spokesman for a mass-culture conservatism that seemed both more rebellious and more normal.`\
+https://nytimes.com/2025/09/10/opinion/charlie-kirk-trump-conservatism.html
+
+**A Video Taken Just After the Shooting Captured Someone on a Nearby Roof**\
+`A man who attended the Charlie Kirk event was trying to get good footage to share with his friends.`\
+https://nytimes.com/2025/09/10/us/charlie-kirk-shooting-video-roof.html
+
 **A Video Taken Just After the Shooting Captured Someone on a Nearby Roof**\
 `A man who attended the Charlie Kirk event was trying to get good footage to share with his friends.`\
 https://nytimes.com/2025/09/10/us/a-video-taken-just-after-the-shooting-captured-someone-on-a-nearby-roof.html
