@@ -1,3 +1,11 @@
+**Athletic sign Laporte from Al Nassr after not completing deal on deadline day**\
+`The 31-year-old has signed a contract until 2028 ahead of his second spell with the La Liga side.`\
+https://nytimes.com/athletic/6620304/2025/09/11/aymeric-laporte-athletic-club-al-nassr-signing-fifa/
+
+**How Obamacare Is Colliding With Shutdown Negotiations**\
+`Republicans are signaling a new openness to extending health subsidies as Democrats suggest they want health care concessions to keep the government open.`\
+https://nytimes.com/2025/09/11/us/politics/obamacare-subsidies-government-shutdown-congress.html
+
 **‘He Gave Me Confidence’: How Charlie Kirk Connected With Young Men**\
 `With his right-wing group Turning Point USA, Mr. Kirk engaged controversial topics. Some students were inspired. Others found his views appalling.`\
 https://nytimes.com/2025/09/11/us/charlie-kirk-men.html
