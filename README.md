@@ -1,8 +1,24 @@
+**At the White House, Trump’s Grief and Shock Turn to Rage Over Charlie Kirk**\
+`President Trump asked for updates and met with advisers in the Oval Office before recording a four-minute video in which he blamed rhetoric from the “radical left” for the killing.`\
+https://nytimes.com/2025/09/10/us/politics/trump-reaction-charlie-kirk.html
+
+**Braves' Brian Snitker says he's undecided about whether to retire from managing**\
+`"I still kind of feel like there's some unfinished business here," Snitker said.`\
+https://nytimes.com/athletic/6618239/2025/09/10/braves-brian-snitker-undecided-on-retirement/
+
+**Cheyenne Parker-Tyus' fast return to WNBA after childbirth motivated by Aces' 'trust' in her**\
+`Parker-Tyus' first WNBA game this season came a year after her last showing, and only two months after the birth of her second child.`\
+https://nytimes.com/athletic/6617636/2025/09/10/cheyenne-parker-tyus-wnba-return-childbirth/
+
+**Back-to-Back Sporting Events**\
+`Gia Bosko hits one out of the park.`\
+https://nytimes.com/2025/09/10/crosswords/daily-puzzle-2025-09-11.html
+
 **Trump Viewed Charlie Kirk as a ‘Genius’ and an Unflinching Ally**\
 `Mr. Kirk was among the faithful who had helped Mr. Trump build a comeback after the Jan. 6, 2021, attack on the Capitol made him a political outcast. Mr. Trump brought him into his second-term inner circle.`\
 https://nytimes.com/2025/09/10/us/politics/trump-charlie-kirk-ally.html
 
-**How Charlie Kirk Remade the Young Right**\
+**Charlie Kirk Embodied Mass-Culture Conservatism**\
 `A spokesman for a mass-culture conservatism that seemed both more rebellious and more normal.`\
 https://nytimes.com/2025/09/10/opinion/charlie-kirk-trump-conservatism.html
 
@@ -21,20 +37,4 @@ https://nytimes.com/2025/09/10/theater/brothers-size-review.html
 **Gas Tanker Explodes in Mexico City**\
 `Emergency crews worked to extinguish a fire after a gas tanker exploded under a highway overpass in Mexico City.`\
 https://nytimes.com/video/world/americas/100000010391495/gas-explosion-mexico-city.html
-
-**Charlie Kirk and America’s Grim Routine**\
-`While the nation has endured violent eras before, this is one with instant footage, and instant reaction.`\
-https://nytimes.com/2025/09/10/us/politics/political-violence-charlie-kirk-shooting.html
-
-**Acts of political violence are now part of the American fabric.**\
-`It was only a few months ago that a Democratic state lawmaker in Minnesota and her husband were assassinated, and another lawmaker and his wife were wounded.`\
-https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah/charlie-kirk-assassinations-shootings-politics
-
-**Republicans Block Schumer’s Effort to Force Vote on Epstein Files**\
-`Though it failed, Mr. Schumer’s proposal brought the contentious debate over the Trump administration’s handling of the Epstein files to the Senate, which has largely avoided it.`\
-https://nytimes.com/2025/09/10/us/politics/chuck-schumer-effort-epstein-files.html
-
-**Charlie Kirk’s college tour aimed to ‘push back’ against left-wing values in academia.**\
-`The tour was launched in February with the vgive college students “tools to push back against leftwing indoctrination in academia” and and reclaim their right to free speech,”`\
-https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah/charlie-kirks-college-tour-aimed-to-push-back-against-left-wing-values-in-academia
 
