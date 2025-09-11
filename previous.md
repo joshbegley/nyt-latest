@@ -1,3 +1,23 @@
+**Fantasy football injuries, cheat sheet NFL Week 2: Brock Purdy unlikely to play**\
+`Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 2 player rankings and more.`\
+https://nytimes.com/athletic/6613946/2025/09/11/fantasy-football-injuries-cheat-sheet-nfl-week-2-brock-purdy-unlikely-to-play/
+
+**Mamdani Gets Backing From National Democrats as Trump Enters Fray**\
+`Democrats have been slow to embrace Zohran Mamdani, the democratic socialist who won New York City’s mayoral primary. Many, especially in New York, still are.`\
+https://nytimes.com/2025/09/11/us/politics/zohran-mamdani-democrats-endorsements.html
+
+**Andrew Cuomo, David Paterson and More New York Politicians on the Runway**\
+`The former governors joined Curtis Sliwa and a group of assorted New York City luminaries as models at Style Across the Aisle, a bipartisan event.`\
+https://nytimes.com/2025/09/11/style/style-across-the-aisle-andrew-cuomo.html
+
+**Charlie Kirk’s Influence Extended Far Beyond the U.S.**\
+`The conservative activist had recently spoken at conferences in Asia. His message also resonated in Europe, and especially Britain, which has seen a rise in right-wing ideology.`\
+https://nytimes.com/2025/09/11/world/europe/charlie-kirk-turning-point-global-reach.html
+
+**How Colts rookie Tyler Warren has already helped unlock Shane Steichen's offense**\
+`The rookie tight end has already become a critical chess piece for Steichen, and he could play an even bigger role against the Broncos.`\
+https://nytimes.com/athletic/6617594/2025/09/11/colts-tyler-warren-broncos/
+
 **Betting for (by) dummies: Contrarian picks for Chiefs, Dolphins, unders galore**\
 `Jon Greenberg and Zac Jackson make their bets for this week of NFL and college football. Expect some low scores.`\
 https://nytimes.com/athletic/6619320/2025/09/11/betting-picks-nfl-week-2-cfb-week-3/
@@ -13,28 +33,4 @@ https://nytimes.com/athletic/6618572/2025/09/11/nigel-hayes-davis-phoenix-suns-n
 **Leeds without goalkeeper Perri for Fulham game with Nmecha, Piroe doubts**\
 `Dominic Calvert-Lewin could be in line for his full Leeds debut with injury worries to their strikers`\
 https://nytimes.com/athletic/6619462/2025/09/11/leeds-injury-update-daniel-farke-fulham/
-
-**Witnesses Describe Shooting of Charlie Kirk**\
-`Charlie Kirk, a close ally of President Trump, was shot dead on Wednesday at Utah Valley University. People who were there recounted hearing a single gunshot and seeing a stampede as the audience ran.`\
-https://nytimes.com/video/us/100000010391959/witnesses-describe-shooting-of-charlie-kirk.html
-
-**Play-off shake-up would be good news for Wrexham, but bad for football**\
-`The Championship's end-of-season promotion deciders work perfectly and do not need to be revamped`\
-https://nytimes.com/athletic/6618958/2025/09/11/wrexham-play-off-efl/
-
-**Ralph Lauren and the Taylor Swift Effect**\
-`Taking advantage of a big moment with big clothes, in black and white.`\
-https://nytimes.com/2025/09/11/style/ralph-lauren-taylor-swift-spring-2026.html
-
-**Where Will Everyone in Gaza City Go?**\
-`Tents stretch across the beach. Exhaustion and hunger are high. There’s little room elsewhere.`\
-https://nytimes.com/interactive/2025/09/11/world/middleeast/gaza-city-evacuation-israel-maps.html
-
-**‘Spinal Tap II: The End Continues’ Review: They Can’t Leave This Behind**\
-`Four decades after their big-screen hit, the rock legends David, Derek and Nigel have reunited for one final (really, truly) concert.`\
-https://nytimes.com/2025/09/11/movies/spinal-tap-ii-the-end-continues-review.html
-
-**Key fantasy football questions for Week 2: What's wrong with A.J. Brown?**\
-`Dalton Del Don identifies 10 questions fantasy managers should be seeking answers to in Week 2, including a troubling start for A.J. Brown.`\
-https://nytimes.com/athletic/6617358/2025/09/11/fantasy-football-week-2-key-questions/
 

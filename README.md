@@ -1,3 +1,11 @@
+**Lamps With Main Character Energy**\
+`Plus: a designer’s new take on California cool, an exhibition of Robert Rauschenberg’s textile art and more recommendations from T Magazine.`\
+https://nytimes.com/2025/09/11/t-magazine/carmen-dapollonio-lamps.html
+
+**MSNBC Fires Analyst Who Said Charlie Kirk Pushed Hate Speech**\
+`The analyst, Matthew Dowd, apologized for his remarks on social media.`\
+https://nytimes.com/2025/09/11/us/matthew-dowd-charlie-kirk-msnbc-fired.html
+
 **Fantasy football injuries, cheat sheet NFL Week 2: Brock Purdy unlikely to play**\
 `Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 2 player rankings and more.`\
 https://nytimes.com/athletic/6613946/2025/09/11/fantasy-football-injuries-cheat-sheet-nfl-week-2-brock-purdy-unlikely-to-play/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6619320/2025/09/11/betting-picks-nfl-week-2-cfb-wee
 **A new way to experience the NFL: Game footage on The Athletic**\
 `The Athletic's NFL report will now include game footage, adding a dynamic new element to our best-in-class coverage.`\
 https://nytimes.com/athletic/6614019/2025/09/11/nfl-video-the-athletic/
-
-**How Nigel Hayes-Davis detached and made it back to the NBA after seven seasons overseas**\
-`The Suns signed Hayes-Davis in July, a move that got lost in the free-agency frenzy, but one that should not go unnoticed.`\
-https://nytimes.com/athletic/6618572/2025/09/11/nigel-hayes-davis-phoenix-suns-nba-fenerbahce/
-
-**Leeds without goalkeeper Perri for Fulham game with Nmecha, Piroe doubts**\
-`Dominic Calvert-Lewin could be in line for his full Leeds debut with injury worries to their strikers`\
-https://nytimes.com/athletic/6619462/2025/09/11/leeds-injury-update-daniel-farke-fulham/
 
