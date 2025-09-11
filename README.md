@@ -1,3 +1,15 @@
+**Gas Tanker Truck Explodes in Mexico City**\
+`An accidental explosion caused by a gas tanker killed at least four people and injured at least 90 more in Mexico City.`\
+https://nytimes.com/video/world/americas/100000010392617/truck-explodes-mexico-city.html
+
+**What Non-MAGA Trump Supporters See In Him**\
+`David Brooks, E.J. Dionne Jr. and Robert Siegel discuss the MAGA supporters Brooks knows personally — and what they really want from Donald Trump.`\
+https://nytimes.com/video/opinion/100000010388086/what-non-maga-trump-supporters-see-in-him.html
+
+**MAGA Was Built in Decades. What Will Democrats Build Next?**\
+`David Brooks, E.J. Dionne Jr. and Robert Siegel convene to discuss the state of America — and debate the best way to revive the country and its politics.`\
+https://nytimes.com/video/opinion/100000010388106/maga-was-built-in-decades-what-will-democrats-build-next.html
+
 **N.Y. Marijuana Businesses Facing Possible Closure Win Temporary Reprieve**\
 `Dispensaries had sued the state after a change in the buffer zone between cannabis shops and schools placed some within a zone banning cannabis sales.`\
 https://nytimes.com/2025/09/11/nyregion/marijuana-dispensaries-new-york-win-reprieve.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/11/health/california-abortion-pill-protections.html
 **Investigators eye a hunting rifle for clues to the gunman’s identity and motive.**\
 `By Glenn Thrush and Devlin Barrett`\
 https://nytimes.com/live/2025/09/11/us/charlie-kirk-shooting-news/investigators-eye-a-hunting-rifle-for-clues-to-the-gunmans-identity-and-motive
-
-**What Students Are Saying About Summer Vacation and Going Back to School**\
-`Welcome to another year of Current Events Conversation!`\
-https://nytimes.com/2025/09/11/learning/what-students-are-saying-about-summer-vacation-and-going-back-to-school.html
-
-**On Ukraine and Gaza, Trump Casts Himself as a Bystander, if He Can’t Be a Peacemaker**\
-`President Trump often insists he can bring peace to global conflicts. But when allies and adversaries alike appear to be ignoring him or testing American will, he adopts a what-can-you-do shrug.`\
-https://nytimes.com/2025/09/11/us/politics/trump-gaza-ukraine-peace.html
-
-**For National Guard Troops in D.C., It’s Trash Pickup and Metro Patrols**\
-`Thousands of armed troops are deployed as part of President Trump’s crime crackdown. So far, it has been a lot of beautification projects and assisting the local police.`\
-https://nytimes.com/2025/09/11/us/politics/trump-national-guard-troops-dc.html
 
