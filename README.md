@@ -1,3 +1,7 @@
+**Chelsea fear Essugo out until 2026 following surgery on thigh injury**\
+`The midfielder has made three appearances (all at the FIFA Club World Cup) for Chelsea since completing a £18.5million from Sporting CP.`\
+https://nytimes.com/athletic/6618754/2025/09/11/chelsea-injury-news-dario-essugo/
+
 **South Korean Leader Warns About Investments in U.S. After Georgia Raid**\
 `President Lee Jae Myung made the comments as hundreds of South Korean workers swept in an immigration raid were expected to fly home on Thursday.`\
 https://nytimes.com/2025/09/11/world/asia/south-korea-us-investments-hyundai-raid.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6618639/2025/09/11/chargers-vs-raiders-stream-how-t
 **Word of the Day: edify**\
 `This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/09/11/learning/word-of-the-day-edify.html
-
-**Hopes for a Fast Capture of Kirk’s Shooter Fade After Patel Backtracks**\
-`Kash Patel, the F.B.I. director, said that the agency’s investigation was continuing, reversing his earlier announcement that someone had been apprehended.`\
-https://nytimes.com/2025/09/11/us/charlie-kirk-shooting-manhunt-fbi.html
 
