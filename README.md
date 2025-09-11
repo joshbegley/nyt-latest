@@ -1,3 +1,19 @@
+**Social Media Falls Into Well Worn Grooves After Charlie Kirk’s Death**\
+`A mix of sympathy and blame proliferated in messages posted from figures across the political spectrum.`\
+https://nytimes.com/2025/09/10/style/charlie-kirk-social-media-reaction.html
+
+**Adam Silver strikes bold tone, for him, on Clippers investigation**\
+`Adam Silver emphasized the need to reserve judgment during Clippers investigation. But Silver knows he has power to punish LA if necessary.`\
+https://nytimes.com/athletic/6617814/2025/09/10/adam-silver-clippers-ballmer-investigation-bold/
+
+**Republican Senator Asks Social Security Agency About Whistle-Blower’s Claims**\
+`The chair of the Finance Committee sent the agency a letter inquiring about allegations that it had put the confidential personal information of Americans at risk.`\
+https://nytimes.com/2025/09/10/us/politics/doge-social-security-republicans.html
+
+**American investors spent big on NWSL, but now they have options abroad**\
+`Down to Business with Asli Pelit takes you through the exciting, fast-paced (and sometimes confusing) corporate side of women's soccer.`\
+https://nytimes.com/athletic/6617598/2025/09/10/nwsl-wsl-investment-down-to-business/
+
 **Videos of Charlie Kirk’s Shooting Spread Rapidly on Social Media**\
 `First posted to X, they amassed millions of views on Instagram, Threads, YouTube and Telegram within hours.`\
 https://nytimes.com/2025/09/10/technology/charlie-kirk-shooting-videos-social-media.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6617798/2025/09/10/red-sox-kyle-harrison-debut-arol
 **America Mourns Charlie Kirk**\
 `This is a moment to turn down the volume and reflect on our political culture.`\
 https://nytimes.com/2025/09/10/opinion/charlie-kirk-mourning-political-violence.html
-
-**U.S. Accuses Pastor of Creating an International Sex-Abuse Operation**\
-`Naasón Joaquín García and his associates used La Luz del Mundo Church to traffic women and children and produce and distribute child pornography, New York prosecutors said.`\
-https://nytimes.com/2025/09/10/nyregion/church-racketeering-sex-abuse.html
-
-**Mexico City Gas Explosion Injures at Least 58, With 19 Badly Burned**\
-`The cause of the enormous blast, which created chaos in one of the capital’s most heavily populated areas, was thought to be an accident. No deaths have yet been reported.`\
-https://nytimes.com/2025/09/10/world/americas/mexico-city-gas-explosion.html
-
-**Utah Valley University is a public school with a diverse set of students.**\
-`It is the largest public university in the state. Many of its students are older, and many are members of the Church of Latter Day Saints. It also enrolls a large number of Latinos.`\
-https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah/utah-valley-university-is-a-public-school-with-a-diverse-set-of-students
-
-**How to watch Royals at Guardians: Time, TV, streaming for September 11**\
-`Find out how to watch the Kansas City Royals play the Cleveland Guardians, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6617911/2025/09/10/royals-vs-guardians-stream-how-to-watch-sept-11/
 
