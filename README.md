@@ -1,3 +1,11 @@
+**Fantasy baseball bullpen report featuring final 2025 update and way-too-early look at 2026**\
+`Greg Jewett offers a final bullpen update for fantasy mangers still battling in their leagues, and looks ahead to 2026 for those who aren't.`\
+https://nytimes.com/athletic/6620387/2025/09/11/fantasy-baseball-bullpen-report-early-2026-rankings/
+
+**Student Who Shot 2 Others at Colorado School Was ‘Radicalized,’ Officials Say**\
+`Desmond Holly, 16, who is suspected of shooting and injuring two students, had been “radicalized by an extremist network,” the authorities said.`\
+https://nytimes.com/2025/09/11/us/colorado-high-school-shooter-identified.html
+
 **Security at Kirk Event Seemed Light to Those Who Attended**\
 `The problem of protecting campus speakers with polarizing opinions has confounded universities around the country in recent years.`\
 https://nytimes.com/2025/09/11/us/politics/charlie-kirk-security-shooting.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6620598/2025/09/11/john-kelly-kings-jim-fox/
 **Charlie Kirk and America’s Fragile Fabric**\
 `Readers react to the assassination of the right-wing youth activist.`\
 https://nytimes.com/2025/09/11/opinion/letters/charlie-kirk-assassination.html
-
-**College football Week 3 best bets: Will Mensah put up a big game against his former team?**\
-`Austin Mock is buying low on Colorado and picking the under in a noteworthy SEC game this week.`\
-https://nytimes.com/athletic/6620413/2025/09/11/college-football-best-bets-week-3-duke-colorado/
-
-**Gas Tanker Truck Explodes in Mexico City**\
-`An accidental explosion caused by a gas tanker killed at least four people and injured at least 90 more in Mexico City.`\
-https://nytimes.com/video/world/americas/100000010392617/truck-explodes-mexico-city.html
 
