@@ -1,3 +1,5 @@
+
+
 **Smith and Russo: Wild at a crossroads with Kirill Kaprizov after he turns down latest massive offer**\
 `What does it mean? Does he want more money? A short-term deal? A new home? Here's what we're hearing and know so far.`\
 https://nytimes.com/athletic/6617747/2025/09/11/kirill-kaprizov-wild-offer/
