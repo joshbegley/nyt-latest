@@ -1,3 +1,11 @@
+**Their Schools Banned Phones. Out Came the iPods and Cassette Players.**\
+`Enterprising students have been bringing the contraband of yesteryear to school in what they see as a “loophole” in cellphone bans.`\
+https://nytimes.com/2025/09/11/style/phone-ban-ipod-mp3-school.html
+
+**Kyle Teel, Connelly Early and more fantasy baseball waiver wire options**\
+`Owen Poindexter locates the best waiver wire adds for the fantasy baseball playoffs. `\
+https://nytimes.com/athletic/6617620/2025/09/11/kyle-teel-connelly-early-and-more-fantasy-baseball-waiver-wire-options/
+
 **Pochettino shows signs of pointing USMNT in a positive direction**\
 `The U.S. manager's tactical move brought the best out of his September squad. Finally, we can look forward with hope and anticipation`\
 https://nytimes.com/athletic/6618447/2025/09/11/usmnt-mauricio-pochettino-progress-japan-world-cup/

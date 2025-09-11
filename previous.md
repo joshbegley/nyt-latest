@@ -1,3 +1,11 @@
+**Their Schools Banned Phones. Out Came the iPods and Cassette Players.**\
+`Enterprising students have been bringing the contraband of yesteryear to school in what they see as a “loophole” in cellphone bans.`\
+https://nytimes.com/2025/09/11/style/phone-ban-ipod-mp3-school.html
+
+**Kyle Teel, Connelly Early and more fantasy baseball waiver wire options**\
+`Owen Poindexter locates the best waiver wire adds for the fantasy baseball playoffs. `\
+https://nytimes.com/athletic/6617620/2025/09/11/kyle-teel-connelly-early-and-more-fantasy-baseball-waiver-wire-options/
+
 **Pochettino shows signs of pointing USMNT in a positive direction**\
 `The U.S. manager's tactical move brought the best out of his September squad. Finally, we can look forward with hope and anticipation`\
 https://nytimes.com/athletic/6618447/2025/09/11/usmnt-mauricio-pochettino-progress-japan-world-cup/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6619692/2025/09/11/panthers-employee-fired-charlie-
 **Red Light: A new era of star player movement? Plus: Fun with re-drafting**\
 `Good morning to everyone except the inventor of blackouts.`\
 https://nytimes.com/athletic/6619718/2025/09/11/nhl-red-light-star-player-movement/
-
-**Building an Octopus Dictionary, One Arm Movement at a Time**\
-`Scientists set out to understand all the ways the animals use their eight appendages. It wasn’t easy.`\
-https://nytimes.com/2025/09/11/science/octopus-arms-video-dictionary.html
-
-**Mapo Tofu, but With Tomatoes, Please**\
-`Those last beautiful summer tomatoes are put to good use in Hetty Lui McKinnon’s take on the classic Sichuan dish.`\
-https://nytimes.com/2025/09/11/dining/mapo-tofu-but-with-tomatoes-please.html
 
