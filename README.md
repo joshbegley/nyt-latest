@@ -1,3 +1,11 @@
+**5 Books We Loved This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://nytimes.com/2025/09/11/books/review/5-books-we-loved-this-week.html
+
+**Jerry Seinfeld Compares ‘Free Palestine’ Movement to K.K.K., Report Says**\
+`The comments at a Duke University event this week have rankled student activists, who said they fostered a hostile environment on campus.`\
+https://nytimes.com/2025/09/11/us/jerry-seinfeld-palestine-kkk-duke.html
+
 **Pakistan’s Floods Are a Climate Change Warning**\
 `Pakistan, among the countries most vulnerable to climate change, has been battered by floods and extreme heat as critics say its government needs to do more.`\
 https://nytimes.com/2025/09/11/climate/pakistans-floods-are-a-climate-change-warning.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/11/style/tiny-modern-love-stories-ur-cute-text-me.ht
 **Guantánamo, 24 Years After Sept. 11**\
 `What’s it like at the Guantánamo Bay Naval Base 24 years after the Sept. 11 attacks? Carol Rosenberg, who has been covering the base since the first detainees were brought there in 2002, is there and explains.`\
 https://nytimes.com/video/us/100000010388120/guantanamo-24-years-after-sept-11.html
-
-**Athletic sign Laporte from Al Nassr after not completing deal on deadline day**\
-`The 31-year-old has signed a contract until 2028 ahead of his second spell with the La Liga side.`\
-https://nytimes.com/athletic/6620304/2025/09/11/aymeric-laporte-athletic-club-al-nassr-signing-fifa/
-
-**How Obamacare Is Colliding With Shutdown Negotiations**\
-`Republicans are signaling a new openness to extending health subsidies as Democrats suggest they want health care concessions to keep the government open.`\
-https://nytimes.com/2025/09/11/us/politics/obamacare-subsidies-government-shutdown-congress.html
 
