@@ -1,3 +1,7 @@
+**Ten bold predictions about the New York Rangers from The Athletic's beat writers**\
+`Don't be surprised if the Rangers are a part of a crazy final day of the season in the Eastern Conference.`\
+https://nytimes.com/athletic/6616646/2025/09/11/new-york-rangers-predictions-2025-nhl-season/
+
 **Former referee David Coote pleads not guilty to making indecent image of a child**\
 `The 43-year-old appeared at Nottingham Magistrates’ Court on Thursday`\
 https://nytimes.com/athletic/6618780/2025/09/11/david-coote-referee-court-case-news/

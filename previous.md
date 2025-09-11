@@ -1,3 +1,7 @@
+**Ten bold predictions about the New York Rangers from The Athletic's beat writers**\
+`Don't be surprised if the Rangers are a part of a crazy final day of the season in the Eastern Conference.`\
+https://nytimes.com/athletic/6616646/2025/09/11/new-york-rangers-predictions-2025-nhl-season/
+
 **Former referee David Coote pleads not guilty to making indecent image of a child**\
 `The 43-year-old appeared at Nottingham Magistrates’ Court on Thursday`\
 https://nytimes.com/athletic/6618780/2025/09/11/david-coote-referee-court-case-news/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6616998/2025/09/11/celtics-neemias-queta-roster-bre
 **Commanders at Packers on TNF: Parsons vs. Daniels, Herbstreit's dog, mascot fight and more**\
 `The latest Parsons-Daniels matchup takes center stage on the "Thursday Night Football" premiere between Green Bay and Washington.`\
 https://nytimes.com/athletic/6613794/2025/09/11/commanders-packers-tnf-nfl-how-to-watch/
-
-**Why J.J. McCarthy and the Vikings maintain the offense's best days are still to come**\
-`The young QB was amazing late on Monday night, but coach Kevin O'Connell is confident the team is well equipped to weather future storms.`\
-https://nytimes.com/athletic/6617622/2025/09/11/jj-mccarthy-vikings-offense-kevin-oconnell/
 
