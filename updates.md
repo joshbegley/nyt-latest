@@ -1,3 +1,15 @@
+**17-Year-Old Died a Week After Being Shot at Bronx Basketball Tournament**\
+`Anthonaya Campbell of Hartford, Conn., was the second person to die after an outburst of violence in a park. The Bronx district attorney is seeking charges against four people.`\
+https://nytimes.com/2025/09/11/nyregion/bronx-girl-murder.html
+
+**Postecoglou: Forest have 'perfect conditions' to deliver Marinakis' trophy ambitions**\
+`The newly-appointed head coach believes he has inherited a squad at the City Ground which is capable of securing silverware.`\
+https://nytimes.com/athletic/6619600/2025/09/11/ange-postecoglou-nottingham-forest-marinakis/
+
+**Police Recover a ‘High-Powered’ Rifle as Speculation Grows About Shooter**\
+`Little is known about the gunman, who may have used a popular type of hunting rifle in the shooting of Charlie Kirk.`\
+https://nytimes.com/2025/09/11/us/charlie-kirk-shooter-weapon-bolt-action-rifle.html
+
 **‘Find a Better Angel’: Furor Over Kirk’s Killing Tests Utah Governor’s Plea**\
 `Gov. Spencer Cox of Utah has called for politicians to tone down their rhetoric and “disagree better.” The assassination of Charlie Kirk is testing the limits of that high-minded approach.`\
 https://nytimes.com/2025/09/11/us/politics/charlie-kirk-spencer-cox-utah.html

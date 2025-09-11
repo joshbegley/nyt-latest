@@ -1,3 +1,11 @@
+**17-Year-Old Died a Week After Being Shot at Bronx Basketball Tournament**\
+`Anthonaya Campbell of Hartford, Conn., was the second person to die after an outburst of violence in a park. The Bronx district attorney is seeking charges against four people.`\
+https://nytimes.com/2025/09/11/nyregion/bronx-girl-murder.html
+
+**Postecoglou: Forest have 'perfect conditions' to deliver Marinakis' trophy ambitions**\
+`The newly-appointed head coach believes he has inherited a squad at the City Ground which is capable of securing silverware.`\
+https://nytimes.com/athletic/6619600/2025/09/11/ange-postecoglou-nottingham-forest-marinakis/
+
 **‘Find a Better Angel’: Furor Over Kirk’s Killing Tests Utah Governor’s Plea**\
 `Gov. Spencer Cox of Utah has called for politicians to tone down their rhetoric and “disagree better.” The assassination of Charlie Kirk is testing the limits of that high-minded approach.`\
 https://nytimes.com/2025/09/11/us/politics/charlie-kirk-spencer-cox-utah.html
@@ -22,19 +30,11 @@ https://nytimes.com/2025/09/11/dining/mapo-tofu-but-with-tomatoes-please.html
 `On the 40th anniversary of the New Photography series at MoMA, 13 artists and collectives on three continents find ties that bind — and a resurrection.`\
 https://nytimes.com/2025/09/11/arts/design/new-photography-2025-moma.html
 
-**Police Recover a ‘High-Powered' Rifle as Speculation Grows About Shooter**\
+**Police Recover a ‘High-Powered’ Rifle as Speculation Grows About Shooter**\
 `Little is known about the gunman, who may have used a popular type of hunting rifle in the shooting of Charlie Kirk.`\
 https://nytimes.com/2025/09/11/us/charlie-kirk-shooter-weapon-bolt-action-rifle.html
 
 **The Windup: Phillies flip the script on Mets**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6618658/2025/09/11/phillies-mets-standings-the-windup/
-
-**Belarus Frees 52 Political Prisoners in U.S.-Brokered Deal**\
-`Release comes as Alexander Lukashenko, the country’s authoritarian leader and an ally of President Vladimir Putin of Russia, seeks to normalize ties with the Trump administration.`\
-https://nytimes.com/2025/09/11/world/europe/belarus-political-prisoners-release.html
-
-**Canadian PM Carney jokes about ‘crisis’ around McDavid extension**\
-`The prime minister pleaded for the superstar to stay with the Oilers "so we can bring that Cup back to Canada."`\
-https://nytimes.com/athletic/6619565/2025/09/11/hockey-connor-mcdavid-mark-carney-canada-extension/
 
