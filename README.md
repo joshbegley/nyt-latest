@@ -1,3 +1,7 @@
+**Late Night Teases Trump Over His Night Out in D.C.**\
+`“There are hundreds of troops on the street and somehow they let a 34-time convicted felon just waltz into a restaurant,” Jimmy Kimmel said.`\
+https://nytimes.com/2025/09/11/arts/television/late-night-trump-washington-dinner.html
+
 **Nepal’s Young Protesters Find an Unlikely Partner: The Army**\
 `After an explosion of popular rage tore through the country, its respected army was the only institution left standing. It’s now in talks with the protesters.`\
 https://nytimes.com/2025/09/11/world/asia/nepal-army-gen-z-protesters.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/11/us/charlie-kirk-shooting-manhunt-fbi.html
 **I’d Be Thailand’s Leader Now if the System Wasn’t Rigged**\
 `Unless its democratic decay is reversed, Thailand will continue to spiral downward until the next generation decides enough is enough.`\
 https://nytimes.com/2025/09/11/opinion/thailand-election-pita-limjaroenrat.html
-
-**After months of turbulence, Eddie Howe is closer to the Newcastle United he craves**\
-`The club was described as an ‘empty shell’. Now they're getting a team together, much to Howe's liking`\
-https://nytimes.com/athletic/6615950/2025/09/11/eddie-howe-newcastle-united-future/
 
