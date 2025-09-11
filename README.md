@@ -1,3 +1,11 @@
+**With Few Facts About Kirk Shooting, Wild Speculation Abounds**\
+`Social media users are spreading elaborate and entirely unsubstantiated theories about what happened to the conservative commentator.`\
+https://nytimes.com/2025/09/11/technology/charlie-kirk-falsehoods-speculation-conspiracy.html
+
+**Heightened security at Yankee Stadium ahead of Trump's scheduled appearance**\
+`Roads were blocked off and officers from the Secret Service, NYPD and TSA stood outside the stadium.`\
+https://nytimes.com/athletic/6621004/2025/09/11/trump-yankees-game-president-attendance/
+
 **Trump Asks Appeals Court to Allow Firing of Lisa Cook Ahead of Key Fed Meeting**\
 `The government filed an emergency request after a lower court prevented the president from firing Ms. Cook as the case proceeds.`\
 https://nytimes.com/live/2025/09/11/us/trump-news/trump-lisa-cook-appeal-fed
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/11/world/canada/carney-trump-infrastructure-tariffs-
 **Until Saturday: A surprisingly quality Saturday**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6620911/2025/09/11/college-football-schedule-week-3-until-saturday/
-
-**Man Utd Women players’ boots lost in transit before CL defeat**\
-`United were beaten 1-0 by Brann in the competition's third qualifying round, with Ingrid Stenevik scoring the only goal of the game.`\
-https://nytimes.com/athletic/6620892/2025/09/11/man-united-women-champions-league-boots/
-
-**The Dodgers are showing signs of weakness. Can the Giants take advantage?**\
-`The Dodgers have been really good, but haven't gotten the help from their farm system they have come to expect every year.`\
-https://nytimes.com/athletic/6620334/2025/09/11/sf-giants-dodgers-team-comparison/
 
