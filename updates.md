@@ -1,3 +1,11 @@
+**As Political Violence Rises, Trump Condemns One Side**\
+`In the wake of Charlie Kirk’s killing, President Trump captured the raw sentiment of his conservative base. But he addressed only part of the alarming cycle of violence in America.`\
+https://nytimes.com/2025/09/11/us/politics/political-violence-trump-blame.html
+
+**After Kirk Assassination, Fear and Vitriol Intensify in Congress**\
+`The killing of the right-wing activist deepened lawmakers’ fears of violence directed against them, and the toxic discourse that has fed such threats.`\
+https://nytimes.com/2025/09/11/us/politics/kirk-republicans-democrats-congress-threats.html
+
 **Nepal’s Social Media Ban Backfires as Citizens Nominate New Leader in Chat Room**\
 `After days of violent protest led to the government’s collapse, thousands of citizens gather virtually to debate their nation’s future.`\
 https://nytimes.com/2025/09/11/world/asia/nepal-protest-genz-discord.html

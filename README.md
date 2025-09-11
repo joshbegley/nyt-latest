@@ -1,3 +1,7 @@
+**U.S. Joins U.N. Security Council’s Criticism of Israeli Strike in Qatar**\
+`The United States, ordinarily a protector of Israel at the United Nations, signed on to a statement expressing “deep concern” about its attack on Hamas in the Qatari capital.`\
+https://nytimes.com/2025/09/11/world/middleeast/israel-qatar-un-security-council.html
+
 **As Political Violence Rises, Trump Condemns One Side**\
 `In the wake of Charlie Kirk’s killing, President Trump captured the raw sentiment of his conservative base. But he addressed only part of the alarming cycle of violence in America.`\
 https://nytimes.com/2025/09/11/us/politics/political-violence-trump-blame.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010392105/i-was-set-to-interview-charlie
 **Yankees say Anthony Volpe has shoulder injury, expect him to play through it**\
 `Aaron Boone said Volpe has had a partially torn labrum in his left shoulder. He does not believe the injury has affected Volpe at the plate.`\
 https://nytimes.com/athletic/6620769/2025/09/11/anthony-volpe-yankees-shoulder-injury/
-
-**Dolphins hold players-only meeting after Week 1 drubbing to Colts**\
-`The Dolphins struggled on both sides of the ball during the team's 33-8 road loss to the Colts in Week 1.`\
-https://nytimes.com/athletic/6621198/2025/09/11/dolphins-players-only-meeting/
 

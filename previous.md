@@ -1,3 +1,11 @@
+**As Political Violence Rises, Trump Condemns One Side**\
+`In the wake of Charlie Kirk’s killing, President Trump captured the raw sentiment of his conservative base. But he addressed only part of the alarming cycle of violence in America.`\
+https://nytimes.com/2025/09/11/us/politics/political-violence-trump-blame.html
+
+**After Kirk Assassination, Fear and Vitriol Intensify in Congress**\
+`The killing of the right-wing activist deepened lawmakers’ fears of violence directed against them, and the toxic discourse that has fed such threats.`\
+https://nytimes.com/2025/09/11/us/politics/kirk-republicans-democrats-congress-threats.html
+
 **Nepal’s Social Media Ban Backfires as Citizens Nominate New Leader in Chat Room**\
 `After days of violent protest led to the government’s collapse, thousands of citizens gather virtually to debate their nation’s future.`\
 https://nytimes.com/2025/09/11/world/asia/nepal-protest-genz-discord.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6620769/2025/09/11/anthony-volpe-yankees-shoulder-i
 **Dolphins hold players-only meeting after Week 1 drubbing to Colts**\
 `The Dolphins struggled on both sides of the ball during the team's 33-8 road loss to the Colts in Week 1.`\
 https://nytimes.com/athletic/6621198/2025/09/11/dolphins-players-only-meeting/
-
-**The F.B.I. Asked for Help Finding Charlie Kirk’s Killer**\
-`Also, new numbers showed a rise in inflation. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2025/09/11/briefing/manhunt-charlie-kirk-inflation-data.html
-
-**The Manhunt for Charlie Kirk’s Killer**\
-`The F.B.I. released two grainy images of a person of interest, but the gunman remained at large more than a day after the shooting.`\
-https://nytimes.com/2025/09/11/briefing/charlie-kirk-suspect-bolsonaro-trial-nepal.html
 
