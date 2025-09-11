@@ -1,3 +1,19 @@
+**The F.B.I. releases two images of a ‘person of interest’ in the Kirk investigation.**\
+`By Nicholas Bogel-Burroughs and Devlin Barrett`\
+https://nytimes.com/live/2025/09/11/us/charlie-kirk-shooting-news/the-fbi-releases-two-images-of-a-person-of-interest-in-the-kirk-investigation
+
+**Giants' Malik Nabers says he wasn't frustrated about targets, explains Brian Daboll interaction**\
+`In 2024, Nabers finished with 109 catches for 1,204 yards and seven touchdowns.`\
+https://nytimes.com/athletic/6620163/2025/09/11/malik-nabers-brian-daboll-sideline-new-york-giants/
+
+**NCAA investigating 13 ex-players from six schools over sports betting violations**\
+`Schools mentioned by the NCAA were Temple, Arizona State, Eastern Michigan, New Orleans, Mississippi Valley State and North Carolina A&T.`\
+https://nytimes.com/athletic/6620208/2025/09/11/college-basketball-sports-betting-temple-arizona-state/
+
+**Trump Says He Will Award Kirk the Presidential Medal of Freedom.**\
+`“Charlie was a giant of his generation, a champion of liberty and an inspiration to millions and millions of people,” Mr. Trump said during a Sept. 11 ceremony at the Pentagon.`\
+https://nytimes.com/2025/09/11/us/charlie-kirk-trump-medal-of-freedom.html
+
 **Scoop City: Why the Ravens keep collapsing**\
 `How conservative play calling costs the Ravens, plus two matchups to watch in tonight's Packers-Commanders game and the latest from SF.`\
 https://nytimes.com/athletic/6620320/2025/09/11/ravens-lose-fourth-quarter-conservative-nfl-scoop-city/
