@@ -1,3 +1,7 @@
+**Videos Capture The Fatal Shooting Of Charlie Kirk**\
+`Charlie Kirk, who founded the right-wing youth activist organization Turning Point USA, was fatally shot in the neck on Wednesday while speaking at a campus event in Orem, Utah.`\
+https://nytimes.com/video/us/100000010391070/charlie-kirk-fatally-shot-utah.html
+
 **Charlie Kirk Assassination Raises Fear of Surging Political Violence**\
 `Initial expressions of grief and shock were overtaken by open calls for reckoning and vengeance, as some proclaimed the country was on the brink of civil war.`\
 https://nytimes.com/2025/09/10/us/charlie-kirk-political-violence.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/10/us/politics/trump-charlie-kirk-ally.html
 **Charlie Kirk Embodied Mass-Culture Conservatism**\
 `He was a spokesman for a movement that seemed both more rebellious and more normal.`\
 https://nytimes.com/2025/09/10/opinion/charlie-kirk-trump-conservatism.html
-
-**A Video Taken Just After the Shooting Captured Someone on a Nearby Roof**\
-`A man who attended the Charlie Kirk event was trying to get good footage to share with his friends.`\
-https://nytimes.com/2025/09/10/us/charlie-kirk-shooting-video-roof.html
 

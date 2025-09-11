@@ -1,3 +1,7 @@
+**Videos Capture The Fatal Shooting Of Charlie Kirk**\
+`Charlie Kirk, who founded the right-wing youth activist organization Turning Point USA, was fatally shot in the neck on Wednesday while speaking at a campus event in Orem, Utah.`\
+https://nytimes.com/video/us/100000010391070/charlie-kirk-fatally-shot-utah.html
+
 **Charlie Kirk Assassination Raises Fear of Surging Political Violence**\
 `Initial expressions of grief and shock were overtaken by open calls for reckoning and vengeance, as some proclaimed the country was on the brink of civil war.`\
 https://nytimes.com/2025/09/10/us/charlie-kirk-political-violence.html
