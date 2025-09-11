@@ -1,3 +1,7 @@
+**Rise in U.S. Inflation Likely to Keep Fed Cautious on Pace of Rate Cuts**\
+`The central bank is likely to lower borrowing costs at its meeting next week amid budding concerns about the labor market.`\
+https://nytimes.com/2025/09/11/business/cpi-inflation-fed-rate-cuts.html
+
 **Charlie Kirk’s Widow, Erika, Promoted Conservative Values at His Side**\
 `Mr. Kirk often pointed to his marriage as an example of a loving, conservative partnership. The pair married in 2021 and had two children.`\
 https://nytimes.com/2025/09/11/us/charlie-kirk-wife-erika-children-family.html

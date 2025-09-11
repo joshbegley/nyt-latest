@@ -1,3 +1,7 @@
+**Rise in U.S. Inflation Likely to Keep Fed Cautious on Pace of Rate Cuts**\
+`The central bank is likely to lower borrowing costs at its meeting next week amid budding concerns about the labor market.`\
+https://nytimes.com/2025/09/11/business/cpi-inflation-fed-rate-cuts.html
+
 **Charlie Kirk’s Widow, Erika, Promoted Conservative Values at His Side**\
 `Mr. Kirk often pointed to his marriage as an example of a loving, conservative partnership. The pair married in 2021 and had two children.`\
 https://nytimes.com/2025/09/11/us/charlie-kirk-wife-erika-children-family.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6619028/2025/09/11/angel-reese-chicago-sky-wnba-tra
 **Luka Dončić's EuroBasket run gives the Lakers something to think about**\
 `This slimmed-down version of Dončić offered a reminder that there's an opportunity for LA to contend now.`\
 https://nytimes.com/athletic/6618619/2025/09/11/luka-doncic-lakers-eurobasket-roster/
-
-**How 3 unheralded newcomers could help make Rams' defense more complete**\
-`The Rams believe they may have the complementary pieces to round out a defense ready to contend this season. `\
-https://nytimes.com/athletic/6618151/2025/09/11/rams-defense-nate-landman-emmanuel-forbes-poona-ford/
 
