@@ -1,3 +1,7 @@
+**Smith and Russo: Wild at the crossroads with Kirill Kaprizov after he turns down latest massive offer**\
+`What does it mean? Does he want more money? A short-term deal? A new home? Here's what we're hearing and know so far.`\
+https://nytimes.com/athletic/6617747/2025/09/10/kirill-kaprizov-wild-offer/
+
 **At the White House, Trump’s Grief and Shock Turn to Rage Over Charlie Kirk**\
 `President Trump asked for updates and met with advisers in the Oval Office before recording a four-minute video in which he blamed rhetoric from the “radical left” for the killing.`\
 https://nytimes.com/2025/09/10/us/politics/trump-reaction-charlie-kirk.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6618110/2025/09/10/ethan-pritchard-suspects-arreste
 **‘The Brothers Size’ Review: A Spare and Poetic Restaging**\
 `In honor of its 20th anniversary, Tarell Alvin McCraney’s play gets a fiercely minimalist production at the Shed.`\
 https://nytimes.com/2025/09/10/theater/brothers-size-review.html
-
-**Gas Tanker Explodes in Mexico City**\
-`Emergency crews worked to extinguish a fire after a gas tanker exploded under a highway overpass in Mexico City.`\
-https://nytimes.com/video/world/americas/100000010391495/gas-explosion-mexico-city.html
 
