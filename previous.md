@@ -1,3 +1,27 @@
+**Republicans Block Schumer’s Effort to Force Vote on Epstein Files**\
+`Though it failed, Mr. Schumer’s proposal brought the contentious debate over the Trump administration’s handling of the Epstein files to the Senate, which has largely avoided it.`\
+https://nytimes.com/2025/09/10/us/politics/chuck-schumer-effort-epstein-files.html
+
+**Charlie Kirk’s college tour aimed to ‘push back’ against left-wing values in academia.**\
+`The tour was launched in February with the vgive college students “tools to push back against leftwing indoctrination in academia” and and reclaim their right to free speech,”`\
+https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah/charlie-kirks-college-tour-aimed-to-push-back-against-left-wing-values-in-academia
+
+**How to watch Astros at Blue Jays: Time, TV, streaming for September 11**\
+`Find out how to watch the Houston Astros play the Toronto Blue Jays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6618132/2025/09/10/astros-vs-blue-jays-stream-how-to-watch-sept-11/
+
+**How to watch Rays at White Sox: Time, TV, streaming for September 11**\
+`Find out how to watch the Tampa Bay Rays play the Chicago White Sox, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6618125/2025/09/10/rays-vs-white-sox-stream-how-to-watch-sept-11/
+
+**How to watch Tigers at Yankees: Time, TV, streaming for September 11**\
+`Find out how to watch the Detroit Tigers play the New York Yankees, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6618120/2025/09/10/tigers-vs-yankees-stream-how-to-watch-sept-11/
+
+**What We Know About the Fatal Shooting of Charlie Kirk at Utah Valley**\
+`Mr. Kirk, 31, the founder of a right-wing youth activist group, was shot while speaking at the university on Wednesday.`\
+https://nytimes.com/2025/09/10/us/charlie-kirk-death-shooting-suspect.html
+
 **Social Media Falls Into Well Worn Grooves After Charlie Kirk’s Death**\
 `A mix of sympathy and blame proliferated in messages posted from figures across the political spectrum.`\
 https://nytimes.com/2025/09/10/style/charlie-kirk-social-media-reaction.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/09/10/us/politics/doge-social-security-republicans.html
 **American investors spent big on NWSL, but now they have options abroad**\
 `Down to Business with Asli Pelit takes you through the exciting, fast-paced (and sometimes confusing) corporate side of women's soccer.`\
 https://nytimes.com/athletic/6617598/2025/09/10/nwsl-wsl-investment-down-to-business/
-
-**Videos of Charlie Kirk’s Shooting Spread Rapidly on Social Media**\
-`First posted to X, they amassed millions of views on Instagram, Threads, YouTube and Telegram within hours.`\
-https://nytimes.com/2025/09/10/technology/charlie-kirk-shooting-videos-social-media.html
-
-**Jaguars say Travis Hunter will play more on defense Sunday against Bengals**\
-`"The goal is to increase and continue to increase (Hunter's playing time),” Jags coach Liam Coen said.`\
-https://nytimes.com/athletic/6617841/2025/09/10/jaguars-travis-hunter-more-defense-bengals/
-
-**Charlie Kirk Was an Influential Figure in Right-Wing Politics and a Trump Loyalist**\
-`Mr. Kirk was an energetic member of President Trump’s inner circle who appealed to young conservative voters and wealthy Republicans alike.`\
-https://nytimes.com/2025/09/10/us/charlie-kirk-republicans-trump-politics.html
-
-**In Rebuke of Mayor Adams, City Council Overrides 3 Vetoes**\
-`Measures eliminating criminal summonses for unlicensed vending and giving higher pay to Instacart workers had been overruled by the mayor.`\
-https://nytimes.com/2025/09/10/nyregion/eric-adams-vetoes-city-council.html
-
-**Red Sox takeaways: Kyle Harrison debuts, Aroldis Chapman finally falters**\
-`Chapman gave up two hits in a tie game in the ninth, snapping a streak of 17 straight hitless outings across 50 batters.`\
-https://nytimes.com/athletic/6617798/2025/09/10/red-sox-kyle-harrison-debut-aroldis-chapman-hitless-streak/
-
-**America Mourns Charlie Kirk**\
-`This is a moment to turn down the volume and reflect on our political culture.`\
-https://nytimes.com/2025/09/10/opinion/charlie-kirk-mourning-political-violence.html
 
