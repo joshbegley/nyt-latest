@@ -1,3 +1,15 @@
+**For Trump, Charlie Kirk Is a Deeply Personal Loss**\
+`The president’s reaction to Charlie Kirk’s assassination shows how much the 31-year-old conservative activist had become a part of the Trump family.`\
+https://nytimes.com/2025/09/11/us/politics/trump-kirk.html
+
+**NFL Week 2 projected scores: Model predicts point spreads and totals for every game**\
+`Austin Mock's projection model predicts point spreads and point totals for all 16 NFL Week 2 games.`\
+https://nytimes.com/athletic/6620906/2025/09/11/nfl-week-2-projected-scores-model-point-spreads-totals/
+
+**Cancer gave her a month to live. Mass General Brigham gave her a lifeline.**\
+`For Ann Malik, cutting-edge treatments and collaborative care transformed a terminal diagnosis into a manageable condition.`\
+https://nytimes.com/paidpost/mass-general-brigham/cancer-gave-her-a-month-to-live-mass-general-brigham-gave-her-a-lifeline.html
+
 **How Concerned Are You About Political Violence in America?**\
 `What’s your reaction to the assassination of Charlie Kirk, a conservative organizer and activist?`\
 https://nytimes.com/2025/09/11/learning/how-concerned-are-you-about-political-violence-in-america.html

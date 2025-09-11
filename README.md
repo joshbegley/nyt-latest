@@ -1,3 +1,7 @@
+**June Wilkinson, Pinup Star and Screen Siren, Is Dead at 85**\
+`Christened “the Bosom” by Playboy magazine, she rode her voluptuous figure to fame and became known as “the most photographed nude in America.”`\
+https://nytimes.com/2025/09/11/movies/june-wilkinson-dead.html
+
 **For Trump, Charlie Kirk Is a Deeply Personal Loss**\
 `The president’s reaction to Charlie Kirk’s assassination shows how much the 31-year-old conservative activist had become a part of the Trump family.`\
 https://nytimes.com/2025/09/11/us/politics/trump-kirk.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/11/technology/charlie-kirk-falsehoods-speculation-co
 **Heightened security at Yankee Stadium ahead of Trump's scheduled appearance**\
 `Roads were blocked off and officers from the Secret Service, NYPD and TSA stood outside the stadium.`\
 https://nytimes.com/athletic/6621004/2025/09/11/trump-yankees-game-president-attendance/
-
-**Trump Asks Appeals Court to Allow Firing of Lisa Cook Ahead of Key Fed Meeting**\
-`The government filed an emergency request after a lower court prevented the president from firing Ms. Cook as the case proceeds.`\
-https://nytimes.com/live/2025/09/11/us/trump-news/trump-lisa-cook-appeal-fed
 
