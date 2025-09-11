@@ -1,3 +1,11 @@
+**Trump Asks Appeals Court to Allow Firing of Lisa Cook Ahead of Key Fed Meeting**\
+`The government filed an emergency request after a lower court prevented the president from firing Ms. Cook as the case proceeds.`\
+https://nytimes.com/live/2025/09/11/us/trump-news/trump-lisa-cook-appeal-fed
+
+**NPR Names Thomas Evans as Its New Editor**\
+`Mr. Evans, who spent many years at CNN before joining NPR last year, takes over the top editorial job as the organization faces major funding challenges.`\
+https://nytimes.com/2025/09/11/business/media/npr-editor-thomas-evans.html
+
 **5 Books We Loved This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://nytimes.com/2025/09/11/books/review/5-books-we-loved-this-week.html
