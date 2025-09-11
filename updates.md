@@ -1,3 +1,7 @@
+**Think Getting a Reservation Is Hard? Try Getting an Invite.**\
+`As crowds continue to mob restaurants they see on social media, some businesses are turning to a more exclusive model to curate the scene.`\
+https://nytimes.com/2025/09/11/dining/invite-only-restaurants.html
+
 **Sedona, Arizona**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/things-to-do-sedona

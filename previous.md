@@ -1,3 +1,7 @@
+**Think Getting a Reservation Is Hard? Try Getting an Invite.**\
+`As crowds continue to mob restaurants they see on social media, some businesses are turning to a more exclusive model to curate the scene.`\
+https://nytimes.com/2025/09/11/dining/invite-only-restaurants.html
+
 **Sedona, Arizona**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/things-to-do-sedona
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/11/style/phone-ban-ipod-mp3-school.html
 **Kyle Teel, Connelly Early and more fantasy baseball waiver wire options**\
 `Owen Poindexter locates the best waiver wire adds for the fantasy baseball playoffs. `\
 https://nytimes.com/athletic/6617620/2025/09/11/kyle-teel-connelly-early-and-more-fantasy-baseball-waiver-wire-options/
-
-**Pochettino shows signs of pointing USMNT in a positive direction**\
-`The U.S. manager's tactical move brought the best out of his September squad. Finally, we can look forward with hope and anticipation`\
-https://nytimes.com/athletic/6618447/2025/09/11/usmnt-mauricio-pochettino-progress-japan-world-cup/
 
