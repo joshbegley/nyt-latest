@@ -1,3 +1,7 @@
+**Regulators Are Digging Into A.I. Chatbots and Child Safety**\
+`The Federal Trade Commission said it was starting an inquiry of how six major tech companies monitor activity that could harm minors.`\
+https://nytimes.com/2025/09/11/technology/google-meta-chatgpt-ai-chatbots.html
+
 **Ravens' Lamar Jackson won't be disciplined by NFL following interaction with fan**\
 `The incident with a Bills fan occurred during the third quarter of Baltimore's loss to Buffalo in Week 1. `\
 https://nytimes.com/athletic/6620557/2025/09/11/ravens-lamar-jackson-bills-fan-nfl-discipline/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/11/nyregion/marijuana-dispensaries-new-york-win-repr
 **Alien: Earth**\
 ``\
 https://nytimes.com/spotlight/alien-earth-fx-hulu
-
-**Music Festival in Belgium Cancels Concert Led by Israeli Conductor**\
-`The Flanders Festival Ghent dropped a Munich Philharmonic program, citing concerns over a conductor’s possible views on Gaza. German leaders called the move antisemitic.`\
-https://nytimes.com/2025/09/11/arts/music/belgium-festival-israel-orchestra-conductor-shani.html
 

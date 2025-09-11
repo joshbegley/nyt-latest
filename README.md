@@ -1,3 +1,11 @@
+**For the First Time, More Children Are Obese Than Underweight**\
+`One in 10 children worldwide now has obesity, a report from UNICEF found, and the number of overweight children has more than doubled in low- and middle-income countries since 2000.`\
+https://nytimes.com/2025/09/11/well/child-obesity-un-report.html
+
+**Former NBA center Jason Collins undergoing treatment for brain tumor**\
+`In 2013, Collins became the first active, openly gay player in NBA history when he came out in a Sports Illustrated article.`\
+https://nytimes.com/athletic/6620359/2025/09/11/jason-collins-treatment-brain-tumor-nba/
+
 **Regulators Are Digging Into A.I. Chatbots and Child Safety**\
 `The Federal Trade Commission said it was starting an inquiry of how six major tech companies monitor activity that could harm minors.`\
 https://nytimes.com/2025/09/11/technology/google-meta-chatgpt-ai-chatbots.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/opinion/100000010388086/what-non-maga-trump-supporters
 **MAGA Was Built in Decades. What Will Democrats Build Next?**\
 `David Brooks, E.J. Dionne Jr. and Robert Siegel convene to discuss the state of America — and debate the best way to revive the country and its politics.`\
 https://nytimes.com/video/opinion/100000010388106/maga-was-built-in-decades-what-will-democrats-build-next.html
-
-**N.Y. Marijuana Businesses Facing Possible Closure Win Temporary Reprieve**\
-`Dispensaries had sued the state after a change in the buffer zone between cannabis shops and schools placed some within a zone banning cannabis sales.`\
-https://nytimes.com/2025/09/11/nyregion/marijuana-dispensaries-new-york-win-reprieve.html
-
-**Alien: Earth**\
-``\
-https://nytimes.com/spotlight/alien-earth-fx-hulu
 
