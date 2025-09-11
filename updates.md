@@ -1,3 +1,19 @@
+**The making of Armand Duplantis, a generational talent: 'It’s like I'm a performing artist'**\
+`Armand Duplantis is just 25 but is already an all-time sports great`\
+https://nytimes.com/athletic/6575839/2025/09/11/mondo-duplantis-profile-world-championships-tokyo-sweden/
+
+**Connections: Sports Edition Coach: Hints for Sept. 11, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6616241/2025/09/11/connections-sports-edition-hints-for-sept-11-2025/
+
+**Corrections: Sept. 11, 2025**\
+`Corrections that appeared in print on Thursday, Sept. 11, 2025.`\
+https://nytimes.com/2025/09/10/pageoneplus/corrections-sept-11-2025.html
+
+**Quote of the Day: New Fears in Los Angeles After Justices Back Trump**\
+`Quotation of the Day for Thursday, September 11, 2025.`\
+https://nytimes.com/2025/09/10/pageoneplus/quote-of-the-day-new-fears-in-los-angeles-after-justices-back-trump.html
+
 **Charlie Kirk's death draws reaction from Yankees, across sports world**\
 `A moment of silence was held at Yankee Stadium on Wednesday, hours after the right-wing activist was killed during a speaking event in Utah.`\
 https://nytimes.com/athletic/6618380/2025/09/10/charlie-kirk-reaction-yankees-harrison-butker/

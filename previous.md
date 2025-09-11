@@ -1,3 +1,19 @@
+**The making of Armand Duplantis, a generational talent: 'It’s like I'm a performing artist'**\
+`Armand Duplantis is just 25 but is already an all-time sports great`\
+https://nytimes.com/athletic/6575839/2025/09/11/mondo-duplantis-profile-world-championships-tokyo-sweden/
+
+**Connections: Sports Edition Coach: Hints for Sept. 11, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6616241/2025/09/11/connections-sports-edition-hints-for-sept-11-2025/
+
+**Corrections: Sept. 11, 2025**\
+`Corrections that appeared in print on Thursday, Sept. 11, 2025.`\
+https://nytimes.com/2025/09/10/pageoneplus/corrections-sept-11-2025.html
+
+**Quote of the Day: New Fears in Los Angeles After Justices Back Trump**\
+`Quotation of the Day for Thursday, September 11, 2025.`\
+https://nytimes.com/2025/09/10/pageoneplus/quote-of-the-day-new-fears-in-los-angeles-after-justices-back-trump.html
+
 **Charlie Kirk's death draws reaction from Yankees, across sports world**\
 `A moment of silence was held at Yankee Stadium on Wednesday, hours after the right-wing activist was killed during a speaking event in Utah.`\
 https://nytimes.com/athletic/6618380/2025/09/10/charlie-kirk-reaction-yankees-harrison-butker/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6617747/2025/09/10/kirill-kaprizov-wild-offer/
 **At the White House, Trump’s Grief and Shock Turn to Rage Over Charlie Kirk**\
 `President Trump asked for updates and met with advisers in the Oval Office before recording a four-minute video in which he blamed rhetoric from the “radical left” for the killing.`\
 https://nytimes.com/2025/09/10/us/politics/trump-reaction-charlie-kirk.html
-
-**Braves' Brian Snitker says he's undecided about whether to retire from managing**\
-`"I still kind of feel like there's some unfinished business here," Snitker said.`\
-https://nytimes.com/athletic/6618239/2025/09/10/braves-brian-snitker-undecided-on-retirement/
-
-**Cheyenne Parker-Tyus' fast return to WNBA after childbirth motivated by Aces' 'trust' in her**\
-`Parker-Tyus' first WNBA game this season came a year after her last showing, and only two months after the birth of her second child.`\
-https://nytimes.com/athletic/6617636/2025/09/10/cheyenne-parker-tyus-wnba-return-childbirth/
-
-**Back-to-Back Sporting Events**\
-`Gia Bosko hits one out of the park.`\
-https://nytimes.com/2025/09/10/crosswords/daily-puzzle-2025-09-11.html
-
-**Trump Viewed Charlie Kirk as a ‘Genius’ and an Unflinching Ally**\
-`Mr. Kirk was among the faithful who had helped Mr. Trump build a comeback after the Jan. 6, 2021, attack on the Capitol made him a political outcast. Mr. Trump brought him into his second-term inner circle.`\
-https://nytimes.com/2025/09/10/us/politics/trump-charlie-kirk-ally.html
 
