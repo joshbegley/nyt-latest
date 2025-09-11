@@ -1,3 +1,11 @@
+**The Manhunt for Charlie Kirk’s Killer**\
+`The F.B.I. released two grainy images of a person of interest, but the gunman remained at large more than a day after the shooting.`\
+https://nytimes.com/2025/09/11/briefing/charlie-kirk-suspect-bolsonaro-trial-nepal.html
+
+**Anna Sawai, Priyanka Chopra and Peter Marino Inspect Dior’s Newest Look**\
+`The fashion crowd turned out for the reopening of the New York flagship store, which now has a spa.`\
+https://nytimes.com/2025/09/11/style/dior-store-nyc-reopening-spa.html
+
 **Bolsonaro Convicted of Attempting a Coup in Brazil**\
 `Brazil’s Supreme Court convicted the former president of trying to cling to power after losing the 2022 election, in a plot that included killing his opponent. He could face decades in prison.`\
 https://nytimes.com/2025/09/11/world/americas/bolsonaro-convicted-coup-attempt.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/11/movies/june-wilkinson-dead.html
 **For Trump, Charlie Kirk Is a Deeply Personal Loss**\
 `The president’s reaction to Charlie Kirk’s assassination shows how much the 31-year-old conservative activist had become a part of the Trump family.`\
 https://nytimes.com/2025/09/11/us/politics/trump-kirk.html
-
-**NFL Week 2 projected scores: Model predicts point spreads and totals for every game**\
-`Austin Mock's projection model predicts point spreads and point totals for all 16 NFL Week 2 games.`\
-https://nytimes.com/athletic/6620906/2025/09/11/nfl-week-2-projected-scores-model-point-spreads-totals/
-
-**Cancer gave her a month to live. Mass General Brigham gave her a lifeline.**\
-`For Ann Malik, cutting-edge treatments and collaborative care transformed a terminal diagnosis into a manageable condition.`\
-https://nytimes.com/paidpost/mass-general-brigham/cancer-gave-her-a-month-to-live-mass-general-brigham-gave-her-a-lifeline.html
 

@@ -1,3 +1,11 @@
+**The Manhunt for Charlie Kirk’s Killer**\
+`The F.B.I. released two grainy images of a person of interest, but the gunman remained at large more than a day after the shooting.`\
+https://nytimes.com/2025/09/11/briefing/charlie-kirk-suspect-bolsonaro-trial-nepal.html
+
+**Anna Sawai, Priyanka Chopra and Peter Marino Inspect Dior’s Newest Look**\
+`The fashion crowd turned out for the reopening of the New York flagship store, which now has a spa.`\
+https://nytimes.com/2025/09/11/style/dior-store-nyc-reopening-spa.html
+
 **Bolsonaro Convicted of Attempting a Coup in Brazil**\
 `Brazil’s Supreme Court convicted the former president of trying to cling to power after losing the 2022 election, in a plot that included killing his opponent. He could face decades in prison.`\
 https://nytimes.com/2025/09/11/world/americas/bolsonaro-convicted-coup-attempt.html
