@@ -1,3 +1,7 @@
+**I’d Be Thailand’s Leader Now if the System Wasn’t Rigged**\
+`Unless its democratic decay is reversed, Thailand will continue to spiral downward until the next generation decides enough is enough.`\
+https://nytimes.com/2025/09/11/opinion/thailand-election-pita-limjaroenrat.html
+
 **After months of turbulence, Eddie Howe is closer to the Newcastle United he craves**\
 `The club was described as an ‘empty shell’. Now they're getting a team together, much to Howe's liking`\
 https://nytimes.com/athletic/6615950/2025/09/11/eddie-howe-newcastle-united-future/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6615912/2025/09/11/chelsea-corner-expertise-premier
 **Jean-Philippe Mateta doesn't just finish Crystal Palace's attacks - he's vital to building them**\
 `Since Oliver Glasner took over as manager, Mateta's transformation has been majestic`\
 https://nytimes.com/athletic/6594095/2025/09/11/jean-philippe-mateta-doesnt-just-finish-crystal-palaces-attacks-hes-vital-to-building-them/
-
-**'We've had enough. It's time for change' - West Ham fans step up protests against owners**\
-`Moving to the London Stadium, on-pitch struggles and controversy over concession tickets have eroded supporters' faith in the club's board`\
-https://nytimes.com/athletic/6615252/2025/09/11/west-ham-protests-owners/
 
