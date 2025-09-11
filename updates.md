@@ -1,3 +1,11 @@
+**Charlie Kirk Assassination Raises Fear of Surging Political Violence**\
+`Initial expressions of grief and shock were overtaken by open calls for reckoning and vengeance, as some proclaimed the country was on the brink of civil war.`\
+https://nytimes.com/2025/09/10/us/charlie-kirk-political-violence.html
+
+**Smith and Russo: Wild at a crossroads with Kirill Kaprizov after he turns down latest massive offer**\
+`What does it mean? Does he want more money? A short-term deal? A new home? Here's what we're hearing and know so far.`\
+https://nytimes.com/athletic/6617747/2025/09/10/kirill-kaprizov-wild-offer/
+
 **Trump Says ‘Radical Left’ Rhetoric Contributed to Charlie Kirk’s Death**\
 `President Trump promised to find those responsible for political violence, as well as the “organizations that fund it and support it.”`\
 https://nytimes.com/2025/09/10/us/politics/trump-charlie-kirk-address.html
