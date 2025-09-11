@@ -1,3 +1,7 @@
+**Where Will Everyone in Gaza City Go?**\
+`Tents stretch across the beach. Exhaustion and hunger are high. There’s little room elsewhere.`\
+https://nytimes.com/interactive/2025/09/11/world/middleeast/gaza-city-evacuation-israel-maps.html
+
 **‘Spinal Tap II: The End Continues’ Review: They Can’t Leave This Behind**\
 `Four decades after their big-screen hit, the rock legends David, Derek and Nigel have reunited for one final (really, truly) concert.`\
 https://nytimes.com/2025/09/11/movies/spinal-tap-ii-the-end-continues-review.html
