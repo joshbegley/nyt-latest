@@ -1,40 +1,40 @@
-**Where Charlie Kirk Stood on Key Political Issues**\
-`Here are some of the right-wing activist’s stances on gun control, climate change and other issues.`\
-https://nytimes.com/2025/09/11/us/charlie-kirk-views-guns-gender-climate.html
+**In NASCAR's elimination race at Bristol, an untested new tire could be the wild card**\
+`Goodyear is still trying to recapture the tire-wear magic from the spring 2024 Bristol race. On Saturday, the stakes are especially high.`\
+https://nytimes.com/athletic/6616922/2025/09/11/nascar-bristol-tires-playoffs-elimination-race/
 
-**The New York Times International Edition in Print for Friday, Sep. 12, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/09/11/todays-new-york-times-international-edition
+**Chargers' Teair Tart on fourth-quarter dominance, skirmish with Travis Kelce**\
+`Tart on the ejection that almost was: "Just being passionate in the moment. It's nothing but fun, competitive spirit."`\
+https://nytimes.com/athletic/6618226/2025/09/11/chargers-teair-tart-travis-kelce-ejection/
 
-**How to watch Rockies at Padres: Time, TV, streaming for September 11**\
-`Find out how to watch the Colorado Rockies play the San Diego Padres, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6618839/2025/09/11/rockies-vs-padres-stream-how-to-watch-sept-11/
+**How DK Metcalf became leader the Steelers' wide receiver room needed**\
+`After trading Chase Claypool, Diontae Johnson and George Pickens, the Steelers love the talent and attitude of their new No. 1 wideout.`\
+https://nytimes.com/athletic/6617995/2025/09/11/dk-metcalf-pittsburgh-steelers-locker-room/
 
-**How to watch Angels at Mariners: Time, TV, streaming for September 11**\
-`Find out how to watch the Los Angeles Angels play the Seattle Mariners, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6618835/2025/09/11/angels-vs-mariners-stream-how-to-watch-sept-11/
+**What Drove Israel’s Attack on Hamas in Qatar?**\
+`Negotiations to end the Gaza war were stuck. “So they needed to change the dynamic,” one Israeli analyst said of Israel’s motives behind targeting Hamas leaders in Qatar.`\
+https://nytimes.com/2025/09/11/world/middleeast/israel-attack-qatar-hamas.html
 
-**Here’s the latest.**\
-`By Yan Zhuang, Michael Levenson and Robert Draper`\
-https://nytimes.com/live/2025/09/11/us/charlie-kirk-shooting-news/heres-the-latest
+**NHL Player Tiers 2025-26: Connor McDavid is the undisputed best, Sidney Crosby is ageless**\
+`See who joins McDavid in Tier 1, how high Kirill Kaprizov climbed, where Crosby lands at 38 years old and more.`\
+https://nytimes.com/athletic/6594913/2025/09/11/nhl-best-players-list-2025-2026-season/
 
-**Live Updates: Manhunt Underway After Charlie Kirk, Charismatic Right-Wing Activist, Is Fatally Shot**\
-`Two people taken into custody were released. Videos from the university event where Mr. Kirk was killed show a person on a nearby rooftop, but it wasn’t clear if the figure was the shooter.`\
-https://nytimes.com/live/2025/09/11/us/charlie-kirk-shooting-news
+**Red Bull has time to decide on Verstappen's 2026 F1 teammate. Here's who's in play**\
+`Red Bull's second seat alongside Max Verstappen has long been a problem for the team. Here are the candidates for the job in F1 2026`\
+https://nytimes.com/athletic/6611429/2025/09/11/red-bull-2026-drivers-second-seat/
 
-**NHL futures best bets, win totals: Why the Sabres deserve more love**\
-`With the season around the corner, here's a look at the best futures bets that present value.`\
-https://nytimes.com/athletic/6616541/2025/09/11/nhl-futures-best-bets-win-totals-why-the-sabres-deserve-more-love/
+**Yohe: If Sidney Crosby, rebuilding Penguins aren't on the same page, a trade makes sense**\
+`No one will ever show Crosby the door in Pittsburgh. But he's also earned the right to leave. And maybe he should.`\
+https://nytimes.com/athletic/6616219/2025/09/11/sidney-crosby-pittsburgh-penguins-trade-rumors/
 
-**Aspiration paid Kawhi Leonard days after investment by Clippers' minority owner: Report**\
-`A climate company was struggling to pay Kawhi Leonard. Then, a Clippers minority owner invested $2 million, according to a new report.`\
-https://nytimes.com/athletic/6618230/2025/09/11/aspiration-paid-kawhi-leonard-days-after-investment-by-clippers-minority-owner-report/
+**When will NHL finally get its first $20 million man, and who will it be?**\
+`Other major leagues have seen players earn $20 million — and more — for a decade-plus. Hockey has lagged far behind.`\
+https://nytimes.com/athletic/6615913/2025/09/11/nhl-highest-paid-players-contract-salary-cap/
 
-**From Iowa to New Orleans: The Athletic's top 10 college bars**\
-`Hitting the road for an away game? Here are The Athletic's 10 best bars of 2025. `\
-https://nytimes.com/athletic/6607957/2025/09/11/athletic-college-bars-top-10-ranked/
+**Can the Mets snap out of their funk in time? Reasons for latest long losing streak**\
+`"We haven't been consistent," Francisco Lindor said. "It's one of those years that things haven't clicked for a long time."`\
+https://nytimes.com/athletic/6618540/2025/09/11/mets-funk-latest-losing-streak-phillies/
 
-**Charlie Kirk Was Practicing Politics the Right Way**\
-`The foundation of a free society is the ability to participate in politics without fear of violence. To lose that is to risk losing everything.`\
-https://nytimes.com/2025/09/11/opinion/charlie-kirk-assassination-fear-politics.html
+**Reds takeaways: Cincinnati hanging in playoff race with stellar starts, timely hitting**\
+`The Reds have their swagger back in the chase for the final wild card spot after winning four of their last six.`\
+https://nytimes.com/athletic/6618608/2025/09/11/reds-takeaways-playoff-race/
 

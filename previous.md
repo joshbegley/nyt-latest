@@ -1,3 +1,7 @@
+**Where Charlie Kirk Stood on Key Political Issues**\
+`Here are some of the right-wing activist’s stances on gun control, climate change and other issues.`\
+https://nytimes.com/2025/09/11/us/charlie-kirk-views-guns-gender-climate.html
+
 **The New York Times International Edition in Print for Friday, Sep. 12, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/09/11/todays-new-york-times-international-edition
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/6618835/2025/09/11/angels-vs-mariners-stream-how-to
 https://nytimes.com/live/2025/09/11/us/charlie-kirk-shooting-news/heres-the-latest
 
 **Live Updates: Manhunt Underway After Charlie Kirk, Charismatic Right-Wing Activist, Is Fatally Shot**\
-`Videos from the university event where Mr. Kirk was killed show a person on a nearby rooftop at the time of the shooting.`\
+`Two people taken into custody were released. Videos from the university event where Mr. Kirk was killed show a person on a nearby rooftop, but it wasn’t clear if the figure was the shooter.`\
 https://nytimes.com/live/2025/09/11/us/charlie-kirk-shooting-news
 
 **NHL futures best bets, win totals: Why the Sabres deserve more love**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6607957/2025/09/11/athletic-college-bars-top-10-ran
 **Charlie Kirk Was Practicing Politics the Right Way**\
 `The foundation of a free society is the ability to participate in politics without fear of violence. To lose that is to risk losing everything.`\
 https://nytimes.com/2025/09/11/opinion/charlie-kirk-assassination-fear-politics.html
-
-**Fare Evasion Cost the M.T.A. $1 Billion in 2024, but the Trend May Be Slowing**\
-`A fiscal watchdog group found that deterrence measures are starting to have an impact on the practice, which has surged since the pandemic.`\
-https://nytimes.com/2025/09/11/nyregion/fare-evasion-mta-subway-bus.html
 

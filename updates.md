@@ -1,3 +1,11 @@
+**Where Charlie Kirk Stood on Key Political Issues**\
+`Here are some of the right-wing activist’s stances on gun control, climate change and other issues.`\
+https://nytimes.com/2025/09/11/us/charlie-kirk-views-guns-gender-climate.html
+
+**Live Updates: Manhunt Underway After Charlie Kirk, Charismatic Right-Wing Activist, Is Fatally Shot**\
+`Two people taken into custody were released. Videos from the university event where Mr. Kirk was killed show a person on a nearby rooftop, but it wasn’t clear if the figure was the shooter.`\
+https://nytimes.com/live/2025/09/11/us/charlie-kirk-shooting-news
+
 **The New York Times International Edition in Print for Friday, Sep. 12, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/09/11/todays-new-york-times-international-edition
