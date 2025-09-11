@@ -1,3 +1,11 @@
+**Trump Administration Live Updates: President to Take Part in 9/11 Observances**\
+``\
+https://nytimes.com/live/2025/09/11/us/trump-news
+
+**Angel Reese and Chicago Sky face crossroads as WNBA season ends. Will she return?**\
+`This offseason will determine Reese's future. Could she force a trade and leave the Sky to start from scratch again?`\
+https://nytimes.com/athletic/6619028/2025/09/11/angel-reese-chicago-sky-wnba-trade/
+
 **Luka Dončić's EuroBasket run gives the Lakers something to think about**\
 `This slimmed-down version of Dončić offered a reminder that there's an opportunity for LA to contend now.`\
 https://nytimes.com/athletic/6618619/2025/09/11/luka-doncic-lakers-eurobasket-roster/
