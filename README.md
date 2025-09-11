@@ -1,3 +1,7 @@
+**Donnarumma: Goalkeeper competition at City 'good for everyone'**\
+`Donnarumma is available to make his debut against Manchester United on Sunday, but faces competition from James Trafford.`\
+https://nytimes.com/athletic/6620372/2025/09/11/gianluigi-donnarumma-man-city-goalkeeper-competition/
+
 **California Passes Bill Allowing Omission of Patients’ Names From Abortion Pill Bottles**\
 `The intent is to protect health care providers who send the pills to patients in states with abortion bans, and to reassure patients who fear they could be identified.`\
 https://nytimes.com/2025/09/11/health/california-abortion-pill-protections.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6618509/2025/09/11/vancouver-canucks-prospects-top-
 **Newcastle cancel tickets bought by Dundee school for Barcelona Champions League game**\
 `45 tickets for the much-anticipated match were initially purchased by a school in Scotland, 190 miles away`\
 https://nytimes.com/athletic/6620400/2025/09/11/newcastle-barcelona-tickets-dundee-school/
-
-**Eric Adams Hints to Business Leaders He Is Open to Quitting Mayor’s Race**\
-`Mayor Eric Adams told a prominent New York City business group that if a private poll showed he had no path to re-election, he would reconsider bowing out.`\
-https://nytimes.com/2025/09/11/nyregion/adams-mayor-campaign-nyc.html
 
