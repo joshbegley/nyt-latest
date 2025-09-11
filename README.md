@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6618835/2025/09/11/angels-vs-mariners-stream-how-to
 https://nytimes.com/live/2025/09/11/us/charlie-kirk-shooting-news/heres-the-latest
 
 **Live Updates: Manhunt Underway After Charlie Kirk, Charismatic Right-Wing Activist, Is Fatally Shot**\
-`Videos from the university event where Mr. Kirk was killed show a person on a nearby rooftop at the time of the shooting.`\
+`Two people taken into custody were released. Videos from the university event where Mr. Kirk was killed show a person on a nearby rooftop, but it wasn’t clear if the figure was the shooter.`\
 https://nytimes.com/live/2025/09/11/us/charlie-kirk-shooting-news
 
 **NHL futures best bets, win totals: Why the Sabres deserve more love**\
