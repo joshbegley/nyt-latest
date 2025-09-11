@@ -1,3 +1,11 @@
+**How to watch Rockies at Padres: Time, TV, streaming for September 11**\
+`Find out how to watch the Colorado Rockies play the San Diego Padres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6618839/2025/09/11/rockies-vs-padres-stream-how-to-watch-sept-11/
+
+**How to watch Angels at Mariners: Time, TV, streaming for September 11**\
+`Find out how to watch the Los Angeles Angels play the Seattle Mariners, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6618835/2025/09/11/angels-vs-mariners-stream-how-to-watch-sept-11/
+
 **Here’s the latest.**\
 `By Yan Zhuang, Michael Levenson and Robert Draper`\
 https://nytimes.com/live/2025/09/11/us/charlie-kirk-shooting-news/heres-the-latest

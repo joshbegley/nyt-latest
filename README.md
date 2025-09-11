@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Friday, Sep. 12, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/09/11/todays-new-york-times-international-edition
+
 **How to watch Rockies at Padres: Time, TV, streaming for September 11**\
 `Find out how to watch the Colorado Rockies play the San Diego Padres, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6618839/2025/09/11/rockies-vs-padres-stream-how-to-watch-sept-11/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/11/opinion/charlie-kirk-assassination-fear-politics.
 **Fare Evasion Cost the M.T.A. $1 Billion in 2024, but the Trend May Be Slowing**\
 `A fiscal watchdog group found that deterrence measures are starting to have an impact on the practice, which has surged since the pandemic.`\
 https://nytimes.com/2025/09/11/nyregion/fare-evasion-mta-subway-bus.html
-
-**Conservative Christians Mourn Kirk as a Martyr**\
-`“Charlie died for what he believed in,” said Jackson Lahmeyer, a pastor in Oklahoma.`\
-https://nytimes.com/2025/09/11/us/charlie-kirk-martyr-conservative-christians.html
 
