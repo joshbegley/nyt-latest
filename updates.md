@@ -1,3 +1,7 @@
+**June Wilkinson, Pinup Star and Screen Siren, Is Dead at 85**\
+`Christened “the Bosom” by Playboy magazine, she rode her voluptuous figure to fame and became known as “the most photographed nude in America.”`\
+https://nytimes.com/2025/09/11/movies/june-wilkinson-dead.html
+
 **For Trump, Charlie Kirk Is a Deeply Personal Loss**\
 `The president’s reaction to Charlie Kirk’s assassination shows how much the 31-year-old conservative activist had become a part of the Trump family.`\
 https://nytimes.com/2025/09/11/us/politics/trump-kirk.html
