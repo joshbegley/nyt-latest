@@ -1,3 +1,7 @@
+**South Korean Leader Warns About Investments in U.S. After Georgia Raid**\
+`President Lee Jae Myung made the comments as hundreds of South Korean workers swept in an immigration raid were expected to fly home on Thursday.`\
+https://nytimes.com/2025/09/11/world/asia/south-korea-us-investments-hyundai-raid.html
+
 **Late Night Teases Trump Over His Night Out in D.C.**\
 `“There are hundreds of troops on the street and somehow they let a 34-time convicted felon just waltz into a restaurant,” Jimmy Kimmel said.`\
 https://nytimes.com/2025/09/11/arts/television/late-night-trump-washington-dinner.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/11/learning/word-of-the-day-edify.html
 **Hopes for a Fast Capture of Kirk’s Shooter Fade After Patel Backtracks**\
 `Kash Patel, the F.B.I. director, said that the agency’s investigation was continuing, reversing his earlier announcement that someone had been apprehended.`\
 https://nytimes.com/2025/09/11/us/charlie-kirk-shooting-manhunt-fbi.html
-
-**I’d Be Thailand’s Leader Now if the System Wasn’t Rigged**\
-`Unless its democratic decay is reversed, Thailand will continue to spiral downward until the next generation decides enough is enough.`\
-https://nytimes.com/2025/09/11/opinion/thailand-election-pita-limjaroenrat.html
 

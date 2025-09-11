@@ -1,3 +1,7 @@
+**South Korean Leader Warns About Investments in U.S. After Georgia Raid**\
+`President Lee Jae Myung made the comments as hundreds of South Korean workers swept in an immigration raid were expected to fly home on Thursday.`\
+https://nytimes.com/2025/09/11/world/asia/south-korea-us-investments-hyundai-raid.html
+
 **Late Night Teases Trump Over His Night Out in D.C.**\
 `“There are hundreds of troops on the street and somehow they let a 34-time convicted felon just waltz into a restaurant,” Jimmy Kimmel said.`\
 https://nytimes.com/2025/09/11/arts/television/late-night-trump-washington-dinner.html
