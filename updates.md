@@ -1,3 +1,11 @@
+**Chaos Breaks Out in House After Moment of Silence for Charlie Kirk**\
+`Democratic and Republican representatives began arguing after Speaker Mike Johnson called for a moment of silence for Charlie Kirk on Wednesday.`\
+https://nytimes.com/video/us/politics/100000010393897/charlie-kirk-house-moment-silence.html
+
+**$10 Million in Contraceptives Have Been Destroyed on Orders From Trump Officials**\
+`The birth control pills, IUDs and hormonal implants were purchased by U.S.A.I.D. for women in low-income countries. They had been in limbo in a Belgian warehouse after the U.S. cut much of its foreign aid.`\
+https://nytimes.com/2025/09/11/health/usaid-contraceptives-destroyed-trump.html
+
 **Nepal’s Capital Is Choked With Smoke and Gripped by Fear**\
 `With institutions burned to the ground and the army in control, Gen Z protesters are pushing for an anti-corruption crusader to be appointed as the country’s interim leader.`\
 https://nytimes.com/2025/09/11/world/asia/nepal-protests-fires.html
