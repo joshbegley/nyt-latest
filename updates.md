@@ -1,3 +1,7 @@
+**How 3 unheralded newcomers could help make Rams' defense more complete**\
+`The Rams believe they may have the complementary pieces to round out a defense ready to contend this season. `\
+https://nytimes.com/athletic/6618151/2025/09/11/rams-defense-nate-landman-emmanuel-forbes-poona-ford/
+
 **Mike Trout isn't letting metrics, home run drought sway belief that he can return to form**\
 `Trout's chase for 400 homers has transformed from a celebration to a source of anxiety for the Angels after it's dragged for weeks.`\
 https://nytimes.com/athletic/6617916/2025/09/11/mike-trout-400-home-run-chase-angels/

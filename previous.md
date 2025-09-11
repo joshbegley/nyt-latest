@@ -1,3 +1,7 @@
+**How 3 unheralded newcomers could help make Rams' defense more complete**\
+`The Rams believe they may have the complementary pieces to round out a defense ready to contend this season. `\
+https://nytimes.com/athletic/6618151/2025/09/11/rams-defense-nate-landman-emmanuel-forbes-poona-ford/
+
 **Mike Trout isn't letting metrics, home run drought sway belief that he can return to form**\
 `Trout's chase for 400 homers has transformed from a celebration to a source of anxiety for the Angels after it's dragged for weeks.`\
 https://nytimes.com/athletic/6617916/2025/09/11/mike-trout-400-home-run-chase-angels/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6616906/2025/09/11/aces-sparks-wnba-win-streak-aja-
 **Yankees could be telegraphing how they'll handle Anthony Volpe, shortstop in postseason**\
 `Aaron Boone has started José Caballero at shortstop for a game in each of New York's last two series.`\
 https://nytimes.com/athletic/6617642/2025/09/11/yankees-anthony-volpe-starting-shortstop-postseason/
-
-**The Seahawks are still trying to replace DK Metcalf. Now they must stop him**\
-`The Seahawks had big plans for Metcalf before he asked for a trade. Now, they need a receiver to step up against Metcalf's new team.`\
-https://nytimes.com/athletic/6616960/2025/09/11/dk-metcalf-seahawks-steelers-revenge-game/
 

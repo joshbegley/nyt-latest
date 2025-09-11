@@ -1,3 +1,7 @@
+**Luka Dončić's EuroBasket run gives the Lakers something to think about**\
+`This slimmed-down version of Dončić offered a reminder that there's an opportunity for LA to contend now.`\
+https://nytimes.com/athletic/6618619/2025/09/11/luka-doncic-lakers-eurobasket-roster/
+
 **How 3 unheralded newcomers could help make Rams' defense more complete**\
 `The Rams believe they may have the complementary pieces to round out a defense ready to contend this season. `\
 https://nytimes.com/athletic/6618151/2025/09/11/rams-defense-nate-landman-emmanuel-forbes-poona-ford/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6618094/2025/09/11/bears-lions-ben-johnson-dan-camp
 **How to watch Aces at Sparks, as Vegas tries for 16 straight wins and Wilson aims for MVP**\
 `The WNBA regular season wraps up Thursday. Las Vegas is going for its 16th straight win to hit the playoffs with maximum momentum.`\
 https://nytimes.com/athletic/6616906/2025/09/11/aces-sparks-wnba-win-streak-aja-wilson-mvp-how-to-watch/
-
-**Yankees could be telegraphing how they'll handle Anthony Volpe, shortstop in postseason**\
-`Aaron Boone has started José Caballero at shortstop for a game in each of New York's last two series.`\
-https://nytimes.com/athletic/6617642/2025/09/11/yankees-anthony-volpe-starting-shortstop-postseason/
 
