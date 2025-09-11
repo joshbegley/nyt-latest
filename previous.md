@@ -1,3 +1,11 @@
+**On Ukraine and Gaza, Trump Casts Himself as a Bystander, if He Can’t Be a Peacemaker**\
+`President Trump often insists he can bring peace to global conflicts. But when allies and adversaries alike appear to be ignoring him or testing American will, he adopts a what-can-you-do shrug.`\
+https://nytimes.com/2025/09/11/us/politics/trump-gaza-ukraine-peace.html
+
+**For National Guard Troops in D.C., It’s Trash Pickup and Metro Patrols**\
+`Thousands of armed troops are deployed as part of President Trump’s crime crackdown. So far, it has been a lot of beautification projects and assisting the local police.`\
+https://nytimes.com/2025/09/11/us/politics/trump-national-guard-troops-dc.html
+
 **The Veggie Diaries**\
 `What I’ve been cooking: corn salad with tomatoes, feta and mint; riffable panzanella; crispy tofu tacos; and fritterlike pancakes.`\
 https://nytimes.com/2025/09/11/dining/the-veggie-diaries.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/09/11/us/charlie-kirk-shooting-news/the-fbi-releas
 **Giants' Malik Nabers says he wasn't frustrated about targets, explains Brian Daboll interaction**\
 `In 2024, Nabers finished with 109 catches for 1,204 yards and seven touchdowns.`\
 https://nytimes.com/athletic/6620163/2025/09/11/malik-nabers-brian-daboll-sideline-new-york-giants/
-
-**NCAA investigating 13 ex-players from six schools over sports betting violations**\
-`Schools mentioned by the NCAA were Temple, Arizona State, Eastern Michigan, New Orleans, Mississippi Valley State and North Carolina A&T.`\
-https://nytimes.com/athletic/6620208/2025/09/11/college-basketball-sports-betting-temple-arizona-state/
-
-**Scoop City: Why the Ravens keep collapsing**\
-`How conservative play calling costs the Ravens, plus two matchups to watch in tonight's Packers-Commanders game and the latest from SF.`\
-https://nytimes.com/athletic/6620320/2025/09/11/ravens-lose-fourth-quarter-conservative-nfl-scoop-city/
 
