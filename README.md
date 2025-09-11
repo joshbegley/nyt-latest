@@ -1,3 +1,11 @@
+**Trump Administration Live Updates: President to Take Part in 9/11 Observances**\
+``\
+https://nytimes.com/live/2025/09/11/us/trump-news
+
+**Angel Reese and Chicago Sky face crossroads as WNBA season ends. Will she return?**\
+`This offseason will determine Reese's future. Could she force a trade and leave the Sky to start from scratch again?`\
+https://nytimes.com/athletic/6619028/2025/09/11/angel-reese-chicago-sky-wnba-trade/
+
 **Luka Dončić's EuroBasket run gives the Lakers something to think about**\
 `This slimmed-down version of Dončić offered a reminder that there's an opportunity for LA to contend now.`\
 https://nytimes.com/athletic/6618619/2025/09/11/luka-doncic-lakers-eurobasket-roster/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/11/learning/a-weekly-science-lesson-plan-based-on-cu
 **Joe Flacco's return to Baltimore to face Ravens comes at the perfect time**\
 `As the Ravens celebrate their 30-year anniversary, the veteran QB will run out from the visiting tunnel for the first time in his career. `\
 https://nytimes.com/athletic/6618000/2025/09/11/joe-flacco-return-baltimore-ravens-browns/
-
-**Friends and now foes: Dan Campbell and Ben Johnson square off in first NFC North showdown**\
-`As division rivals, Johnson's Bears will face Campbell's Lions twice a year, starting with Sunday's matchup at Ford Field.`\
-https://nytimes.com/athletic/6618094/2025/09/11/bears-lions-ben-johnson-dan-campbell/
-
-**How to watch Aces at Sparks, as Vegas tries for 16 straight wins and Wilson aims for MVP**\
-`The WNBA regular season wraps up Thursday. Las Vegas is going for its 16th straight win to hit the playoffs with maximum momentum.`\
-https://nytimes.com/athletic/6616906/2025/09/11/aces-sparks-wnba-win-streak-aja-wilson-mvp-how-to-watch/
 
