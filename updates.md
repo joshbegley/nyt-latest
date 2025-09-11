@@ -1,3 +1,11 @@
+**Lamps With Main Character Energy**\
+`Plus: a designer’s new take on California cool, an exhibition of Robert Rauschenberg’s textile art and more recommendations from T Magazine.`\
+https://nytimes.com/2025/09/11/t-magazine/carmen-dapollonio-lamps.html
+
+**MSNBC Fires Analyst Who Said Charlie Kirk Pushed Hate Speech**\
+`The analyst, Matthew Dowd, apologized for his remarks on social media.`\
+https://nytimes.com/2025/09/11/us/matthew-dowd-charlie-kirk-msnbc-fired.html
+
 **Fantasy football injuries, cheat sheet NFL Week 2: Brock Purdy unlikely to play**\
 `Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 2 player rankings and more.`\
 https://nytimes.com/athletic/6613946/2025/09/11/fantasy-football-injuries-cheat-sheet-nfl-week-2-brock-purdy-unlikely-to-play/
