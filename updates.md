@@ -1,3 +1,7 @@
+**Trump Viewed Charlie Kirk as a ‘Genius’ and an Unflinching Ally**\
+`Mr. Kirk was among the faithful who had helped Mr. Trump build a comeback after the Jan. 6, 2021, attack on the Capitol made him a political outcast. Mr. Trump brought him into his second-term inner circle.`\
+https://nytimes.com/2025/09/10/us/politics/trump-charlie-kirk-ally.html
+
 **How Charlie Kirk Remade the Young Right**\
 `A spokesman for a mass-culture conservatism that seemed both more rebellious and more normal.`\
 https://nytimes.com/2025/09/10/opinion/charlie-kirk-trump-conservatism.html
