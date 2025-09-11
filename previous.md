@@ -1,3 +1,15 @@
+**College football Week 3 projected scores: Model predicts every FBS vs. FBS game**\
+`Austin Mock's projection model has predicted point differentials and totals for every FBS vs. FBS game for college football's Week 3.`\
+https://nytimes.com/athletic/6621140/2025/09/11/college-football-week-3-projected-scores-model/
+
+**Cher Helped Studio 54 Return, if Only for One Night**\
+`Valentino Beauty’s temporary reopening of the infamous club was powered by an icon of its original run.`\
+https://nytimes.com/2025/09/11/style/cher-studio-54-valentino.html
+
+**He Dropped Out of the Mayor’s Race. His Name Is Still on the Ballot.**\
+`A judge affirmed a Board of Elections decision that it was too late for Jim Walden to be taken off the New York City mayoral ballot. The same would be true for other candidates.`\
+https://nytimes.com/2025/09/11/nyregion/nyc-mayor-race-drop-walden-adams-sliwa.html
+
 **June Wilkinson, Pinup Star and Screen Siren, Is Dead at 85**\
 `Christened “the Bosom” by Playboy magazine, she rode her voluptuous figure to fame and became known as “the most photographed nude in America.”`\
 https://nytimes.com/2025/09/11/movies/june-wilkinson-dead.html
@@ -20,21 +32,9 @@ https://nytimes.com/2025/09/11/learning/how-concerned-are-you-about-political-vi
 
 **(Eric Adams Voice) New York is the Mexico City of America**\
 `New restaurants and bakeries in Woodside, Bed-Stuy and on the Lower East Side bring the sweet swagger of CDMX to the city.`\
-https://nytimes.com/2025/09/11/dining/-eric-adams-voice-new-york-is-the-mexico-city-of-america.html
+https://nytimes.com/2025/09/11/dining/new-york-mexico-city-restaurants-bakeries.html
 
 **NHL to reinstate players acquitted in Hockey Canada trial, make them eligible for games Dec. 1: Source**\
 `Michael McLeod, Carter Hart, Alex Formenton, Dillon Dube and Cal Foote are now officially unrestricted free agents.`\
 https://nytimes.com/athletic/6525702/2025/09/11/nhl-hockey-canada-bettman/
-
-**Inside Alyssa Thompson's move to Chelsea: Tearful goodbyes, late nights and customary pizza**\
-`The transfer of the USWNT forward from Angel City to Chelsea came together with 30 minutes to spare`\
-https://nytimes.com/athletic/6620244/2025/09/11/alyssa-thompson-inside-the-deal-chelsea-angel-city-uswnt/
-
-**With Few Facts About Kirk Shooting, Wild Speculation Abounds**\
-`Social media users are spreading elaborate and entirely unsubstantiated theories about what happened to the conservative commentator.`\
-https://nytimes.com/2025/09/11/technology/charlie-kirk-falsehoods-speculation-conspiracy.html
-
-**Heightened security at Yankee Stadium ahead of Trump's scheduled appearance**\
-`Roads were blocked off and officers from the Secret Service, NYPD and TSA stood outside the stadium.`\
-https://nytimes.com/athletic/6621004/2025/09/11/trump-yankees-game-president-attendance/
 
