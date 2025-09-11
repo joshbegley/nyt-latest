@@ -1,3 +1,7 @@
+**‘Find a Better Angel’: Furor Over Kirk’s Killing Tests Utah Governor’s Plea**\
+`Gov. Spencer Cox of Utah has called for politicians to tone down their rhetoric and “disagree better.” The assassination of Charlie Kirk is testing the limits of that high-minded approach.`\
+https://nytimes.com/2025/09/11/us/politics/charlie-kirk-spencer-cox-utah.html
+
 **Panthers fire PR employee for social media post about Charlie Kirk shooting**\
 `“The views expressed by our employees are their own and do not represent those of the Carolina Panthers,” a statement from the team said.`\
 https://nytimes.com/athletic/6619692/2025/09/11/panthers-employee-fired-charlie-kirk-post/
