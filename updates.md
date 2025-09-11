@@ -1,3 +1,11 @@
+**Canucks top 10 prospects: Ranking No. 10 to No. 6 before the season**\
+`There are some intriguing players with an opportunity to develop and play for Vancouver who rank outside of the top-five prospects.`\
+https://nytimes.com/athletic/6618509/2025/09/11/vancouver-canucks-prospects-top-2025-26-season/
+
+**Newcastle cancel tickets bought by Dundee school for Barcelona Champions League game**\
+`45 tickets for the much-anticipated match were initially purchased by a school in Scotland, 190 miles away`\
+https://nytimes.com/athletic/6620400/2025/09/11/newcastle-barcelona-tickets-dundee-school/
+
 **Eric Adams Hints to Business Leaders He Is Open to Quitting Mayor’s Race**\
 `Mayor Eric Adams told a prominent New York City business group that if a private poll showed he had no path to re-election, he would reconsider bowing out.`\
 https://nytimes.com/2025/09/11/nyregion/adams-mayor-campaign-nyc.html

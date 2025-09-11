@@ -1,3 +1,11 @@
+**The Veggie Diaries**\
+`What I’ve been cooking: corn salad with tomatoes, feta and mint; riffable panzanella; crispy tofu tacos; and fritterlike pancakes.`\
+https://nytimes.com/2025/09/11/dining/the-veggie-diaries.html
+
+**NFL Week 2 best bets: Buying early-season Packers stock plus some unpopular unders**\
+`Austin Mock has four NFL bets for Week 2 of the season, including buying into the Packers' early-season hype.`\
+https://nytimes.com/athletic/6620263/2025/09/11/nfl-best-bets-week-2-packers/
+
 **Canucks top 10 prospects: Ranking No. 10 to No. 6 before the season**\
 `There are some intriguing players with an opportunity to develop and play for Vancouver who rank outside of the top-five prospects.`\
 https://nytimes.com/athletic/6618509/2025/09/11/vancouver-canucks-prospects-top-2025-26-season/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6620208/2025/09/11/college-basketball-sports-bettin
 **Scoop City: Why the Ravens keep collapsing**\
 `How conservative play calling costs the Ravens, plus two matchups to watch in tonight's Packers-Commanders game and the latest from SF.`\
 https://nytimes.com/athletic/6620320/2025/09/11/ravens-lose-fourth-quarter-conservative-nfl-scoop-city/
-
-**Orioles plan to expand front office, hire new GM under Mike Elias**\
-`The team quietly promoted Elias to president of baseball operations before their disappointing 2025 season began. `\
-https://nytimes.com/athletic/6620221/2025/09/11/baltimore-orioles-mike-elias-promotion/
-
-**Trump Says He Will Award Kirk the Presidential Medal of Freedom.**\
-`“Charlie was a giant of his generation, a champion of liberty and an inspiration to millions and millions of people,” Mr. Trump said during a Sept. 11 ceremony at the Pentagon.`\
-https://nytimes.com/2025/09/11/us/charlie-kirk-trump-medal-of-freedom.html
 
