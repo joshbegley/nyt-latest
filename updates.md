@@ -1,3 +1,7 @@
+**How Nigel Hayes-Davis detached and made it back to the NBA after seven seasons overseas**\
+`The Suns signed Hayes-Davis in July, a move that got lost in the free-agency frenzy, but one that should not go unnoticed.`\
+https://nytimes.com/athletic/6618572/2025/09/11/nigel-hayes-davis-phoenix-suns-nba-fenerbahce/
+
 **Leeds without goalkeeper Perri for Fulham game with Nmecha, Piroe doubts**\
 `Dominic Calvert-Lewin could be in line for his full Leeds debut with injury worries to their strikers`\
 https://nytimes.com/athletic/6619462/2025/09/11/leeds-injury-update-daniel-farke-fulham/
