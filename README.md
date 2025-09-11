@@ -1,3 +1,27 @@
+**Scoop City: Why the Ravens keep collapsing**\
+`How conservative play calling costs the Ravens, plus two matchups to watch in tonight's Packers-Commanders game and the latest from SF.`\
+https://nytimes.com/athletic/6620320/2025/09/11/ravens-lose-fourth-quarter-conservative-nfl-scoop-city/
+
+**Orioles plan to expand front office, hire new GM under Mike Elias**\
+`The team quietly promoted Elias to president of baseball operations before their disappointing 2025 season began. `\
+https://nytimes.com/athletic/6620221/2025/09/11/baltimore-orioles-mike-elias-promotion/
+
+**Trump says he will award Kirk the Presidential Medal of Freedom.**\
+`By Maggie Haberman`\
+https://nytimes.com/live/2025/09/11/us/charlie-kirk-shooting-news/charlie-kirk-trump-medal-of-freedom
+
+**Explained: Chelsea's 74 FA charges and what punishments they could face**\
+`Breaking down what Chelsea are accused of by the FA and what the implications could be`\
+https://nytimes.com/athletic/6619592/2025/09/11/chelsea-fa-charges-agents-explained/
+
+**Who should play on the Senators top line with Stützle and Tkachuk? Senators mailbag**\
+`Also, a quick breakdown of the Senators' 2026 draft picks and what it will take for them to reach true Cup contender status?`\
+https://nytimes.com/athletic/6590557/2025/09/11/cozens-pinto-senators-zetterlund-mailbag/
+
+**As the trading card industry grows, vintage sports cards retain a unique pull**\
+`Ultra-modern and non-sports cards occupy more and more space in dealer cases, but vintage cards still attract interest and dollars`\
+https://nytimes.com/athletic/6620151/2025/09/11/vintage-sports-cards-market/
+
 **Why Wild Swimming Is the Most Luxurious Hotel Amenity of All**\
 `These properties offer easy access to enticing natural waters, from a crystal blue Caribbean cove to bracing Scottish lochs.`\
 https://nytimes.com/2025/09/11/t-magazine/wild-swimming-hotels.html
@@ -13,28 +37,4 @@ https://nytimes.com/newsgraphics/card-story/things-to-do-sedona
 **Democrats Want JPMorgan and Other Banks to Testify Over Epstein Ties**\
 `Ten Democratic senators called on the Senate Banking Committee to hold hearings into the role that financial institutions may have played in enabling Jeffrey Epstein’s sex crimes.`\
 https://nytimes.com/2025/09/11/us/politics/epstein-jpmorgan-banks-senate-letter.html
-
-**Tata Martino: On leaving Messi and Inter Miami and a potential MLS return**\
-`The Argentine manager hasn't coached since leaving Inter Miami after the 2024 season, but he's bracing for a return`\
-https://nytimes.com/athletic/6614216/2025/09/11/tata-martino-mls-miami-atlanta-lafc-future/
-
-**UEFA delay decision on league games abroad after La Liga, Serie A requests**\
-`UEFA said stakeholders on the final decision to export games abroad would include supporters`\
-https://nytimes.com/athletic/6619065/2025/09/11/uefa-games-abroad-la-liga-seria-a/
-
-**Gotham FC bets big, adds Jaedyn Shaw to its star-studded squad**\
-`The 2023 NWSL champs are not standing still, even as parity across the league makes every roster move a delicate dance with the salary cap.`\
-https://nytimes.com/athletic/6619819/2025/09/11/gotham-fc-jaedyn-shaw-nwsl/
-
-**Did a Brooklyn Couple Kill a Neighbor’s Trees for a Better View in Maine?**\
-`Maine’s Board of Pesticides Control says two summer residents poisoned a neighbor’s trees so the couple, both Martha Stewart associates, could have a harbor view. They deny it.`\
-https://nytimes.com/2025/09/11/us/trees-poison.html
-
-**NFL reviewing allegations of domestic violence against Dolphins' Tyreek Hill**\
-`The NFL is reviewing new allegations of domestic violence made against Tyreek Hill by his estranged wife, Lakeeta Vaccaro Hill.`\
-https://nytimes.com/athletic/6619572/2025/09/11/tyreek-hill-domestic-violence-miami-dolphins/
-
-**Their Schools Banned Phones. Out Came the iPods and Cassette Players.**\
-`Enterprising students have been bringing the contraband of yesteryear to school in what they see as a “loophole” in cellphone bans.`\
-https://nytimes.com/2025/09/11/style/phone-ban-ipod-mp3-school.html
 
