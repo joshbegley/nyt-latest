@@ -1,3 +1,11 @@
+**Charlie Kirk and America’s Grim Routine**\
+`While the nation has endured violent eras before, this is one with instant footage, and instant reaction.`\
+https://nytimes.com/2025/09/10/us/politics/political-violence-charlie-kirk-shooting.html
+
+**Acts of political violence are now part of the American fabric.**\
+`It was only a few months ago that a Democratic state lawmaker in Minnesota and her husband were assassinated, and another lawmaker and his wife were wounded.`\
+https://nytimes.com/live/2025/09/10/us/charlie-kirk-shot-utah/charlie-kirk-assassinations-shootings-politics
+
 **Republicans Block Schumer’s Effort to Force Vote on Epstein Files**\
 `Though it failed, Mr. Schumer’s proposal brought the contentious debate over the Trump administration’s handling of the Epstein files to the Senate, which has largely avoided it.`\
 https://nytimes.com/2025/09/10/us/politics/chuck-schumer-effort-epstein-files.html

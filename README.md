@@ -1,3 +1,7 @@
+**Gas Tanker Explodes in Mexico City**\
+`Emergency crews worked to extinguish a fire after a gas tanker exploded under a highway overpass in Mexico City.`\
+https://nytimes.com/video/world/americas/100000010391495/gas-explosion-mexico-city.html
+
 **Charlie Kirk and America’s Grim Routine**\
 `While the nation has endured violent eras before, this is one with instant footage, and instant reaction.`\
 https://nytimes.com/2025/09/10/us/politics/political-violence-charlie-kirk-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/10/us/charlie-kirk-death-shooting-suspect.html
 **Social Media Falls Into Well Worn Grooves After Charlie Kirk’s Death**\
 `A mix of sympathy and blame proliferated in messages posted from figures across the political spectrum.`\
 https://nytimes.com/2025/09/10/style/charlie-kirk-social-media-reaction.html
-
-**Adam Silver strikes bold tone, for him, on Clippers investigation**\
-`Adam Silver emphasized the need to reserve judgment during Clippers investigation. But Silver knows he has power to punish LA if necessary.`\
-https://nytimes.com/athletic/6617814/2025/09/10/adam-silver-clippers-ballmer-investigation-bold/
 
