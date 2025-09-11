@@ -1,3 +1,7 @@
+**Luka Dončić's EuroBasket run gives the Lakers something to think about**\
+`This slimmed-down version of Dončić offered a reminder that there's an opportunity for LA to contend now.`\
+https://nytimes.com/athletic/6618619/2025/09/11/luka-doncic-lakers-eurobasket-roster/
+
 **How 3 unheralded newcomers could help make Rams' defense more complete**\
 `The Rams believe they may have the complementary pieces to round out a defense ready to contend this season. `\
 https://nytimes.com/athletic/6618151/2025/09/11/rams-defense-nate-landman-emmanuel-forbes-poona-ford/
