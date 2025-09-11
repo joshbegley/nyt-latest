@@ -1,3 +1,11 @@
+**5 Books We Loved This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://nytimes.com/2025/09/11/books/review/5-books-we-loved-this-week.html
+
+**Jerry Seinfeld Compares ‘Free Palestine’ Movement to K.K.K., Report Says**\
+`The comments at a Duke University event this week have rankled student activists, who said they fostered a hostile environment on campus.`\
+https://nytimes.com/2025/09/11/us/jerry-seinfeld-palestine-kkk-duke.html
+
 **Pakistan’s Floods Are a Climate Change Warning**\
 `Pakistan, among the countries most vulnerable to climate change, has been battered by floods and extreme heat as critics say its government needs to do more.`\
 https://nytimes.com/2025/09/11/climate/pakistans-floods-are-a-climate-change-warning.html
