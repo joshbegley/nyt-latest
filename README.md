@@ -1,3 +1,11 @@
+**Eric Adams Hints to Business Leaders He Is Open to Quitting Mayor’s Race**\
+`Mayor Eric Adams told a prominent New York City business group that if a private poll showed he had no path to re-election, he would reconsider bowing out.`\
+https://nytimes.com/2025/09/11/nyregion/adams-mayor-campaign-nyc.html
+
+**How Brock Purdy's injury impacted 49ers' Week 2 spread, total and futures odds**\
+`Brock Purdy's injury moved the point spread and total for San Francisco's Week 2 game against New Orleans. `\
+https://nytimes.com/athletic/6619734/2025/09/11/brock-purdy-odds-impact-spread-total-super-bowl-futures/
+
 **The F.B.I. releases two images of a ‘person of interest’ in the Kirk investigation.**\
 `By Nicholas Bogel-Burroughs and Devlin Barrett`\
 https://nytimes.com/live/2025/09/11/us/charlie-kirk-shooting-news/the-fbi-releases-two-images-of-a-person-of-interest-in-the-kirk-investigation
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6619592/2025/09/11/chelsea-fa-charges-agents-explai
 **Who should play on the Senators top line with Stützle and Tkachuk? Senators mailbag**\
 `Also, a quick breakdown of the Senators' 2026 draft picks and what it will take for them to reach true Cup contender status?`\
 https://nytimes.com/athletic/6590557/2025/09/11/cozens-pinto-senators-zetterlund-mailbag/
-
-**As the trading card industry grows, vintage sports cards retain a unique pull**\
-`Ultra-modern and non-sports cards occupy more and more space in dealer cases, but vintage cards still attract interest and dollars`\
-https://nytimes.com/athletic/6620151/2025/09/11/vintage-sports-cards-market/
-
-**Why Wild Swimming Is the Most Luxurious Hotel Amenity of All**\
-`These properties offer easy access to enticing natural waters, from a crystal blue Caribbean cove to bracing Scottish lochs.`\
-https://nytimes.com/2025/09/11/t-magazine/wild-swimming-hotels.html
 
