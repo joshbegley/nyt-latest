@@ -1,3 +1,11 @@
+**NHL to reinstate players acquitted in Hockey Canada trial, make them eligible for games Dec. 1: Source**\
+`Michael McLeod, Carter Hart, Alex Formenton, Dillon Dube and Cal Foote are now officially unrestricted free agents.`\
+https://nytimes.com/athletic/6525702/2025/09/11/nhl-hockey-canada-bettman/
+
+**Inside Alyssa Thompson's move to Chelsea: Tearful goodbyes, late nights and customary pizza**\
+`The transfer of the USWNT forward from Angel City to Chelsea came together with 30 minutes to spare`\
+https://nytimes.com/athletic/6620244/2025/09/11/alyssa-thompson-inside-the-deal-chelsea-angel-city-uswnt/
+
 **With Few Facts About Kirk Shooting, Wild Speculation Abounds**\
 `Social media users are spreading elaborate and entirely unsubstantiated theories about what happened to the conservative commentator.`\
 https://nytimes.com/2025/09/11/technology/charlie-kirk-falsehoods-speculation-conspiracy.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/11/climate/pakistans-floods-are-a-climate-change-war
 **Onana completes Trabzonspor loan from Man United**\
 `The 29-year-old has made 102 appearances for United and is under contract until 2028. `\
 https://nytimes.com/athletic/6606031/2025/09/11/andre-onana-transfer-manchester-united-trabszonspor/
-
-**Canada Announces Major Projects to Offset Bite of Trump’s Tariffs**\
-`Prime Minister Mark Carney unveiled big infrastructure plans. But they are likely to meet resistance from Indigenous and environmental groups.`\
-https://nytimes.com/2025/09/11/world/canada/carney-trump-infrastructure-tariffs-natural-gas.html
-
-**Until Saturday: A surprisingly quality Saturday**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/6620911/2025/09/11/college-football-schedule-week-3-until-saturday/
 
