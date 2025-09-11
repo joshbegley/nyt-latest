@@ -1,3 +1,11 @@
+**Belarus Frees 52 Political Prisoners in U.S.-Brokered Deal**\
+`Alexander Lukashenko, the country’s authoritarian leader and an ally of President Vladimir Putin of Russia, wants to normalize ties with the Trump administration.`\
+https://nytimes.com/2025/09/11/world/europe/belarus-political-prisoners-release.html
+
+**Canadian PM Carney jokes about ‘crisis’ around McDavid extension**\
+`The prime minister pleaded for the superstar to stay with the Oilers "so we can bring that Cup back to Canada."`\
+https://nytimes.com/athletic/6619565/2025/09/11/hockey-connor-mcdavid-mark-carney-canada-extension/
+
 **Lamps With Main Character Energy**\
 `Plus: a designer’s new take on California cool, an exhibition of Robert Rauschenberg’s textile art and more recommendations from T Magazine.`\
 https://nytimes.com/2025/09/11/t-magazine/carmen-dapollonio-lamps.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/09/11/world/europe/charlie-kirk-turning-point-global-re
 **How Colts rookie Tyler Warren has already helped unlock Shane Steichen's offense**\
 `The rookie tight end has already become a critical chess piece for Steichen, and he could play an even bigger role against the Broncos.`\
 https://nytimes.com/athletic/6617594/2025/09/11/colts-tyler-warren-broncos/
-
-**Betting for (by) dummies: Contrarian picks for Chiefs, Dolphins, unders galore**\
-`Jon Greenberg and Zac Jackson make their bets for this week of NFL and college football. Expect some low scores.`\
-https://nytimes.com/athletic/6619320/2025/09/11/betting-picks-nfl-week-2-cfb-week-3/
-
-**A new way to experience the NFL: Game footage on The Athletic**\
-`The Athletic's NFL report will now include game footage, adding a dynamic new element to our best-in-class coverage.`\
-https://nytimes.com/athletic/6614019/2025/09/11/nfl-video-the-athletic/
 
