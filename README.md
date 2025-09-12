@@ -1,3 +1,7 @@
+**Bonjour, Flower: Marc-Andre Fleury signs PTO with Penguins to finish career in preseason game**\
+`Fleury, 40, will play in parts of the Penguins' exhibition game against the Blue Jackets on September 27 at PPG Paints Arena. `\
+https://nytimes.com/athletic/6623172/2025/09/12/marc-andre-fleury-penguins-signs-preseason-game/
+
 **As the Fed Prepares to Lower Rates, 2 Seats on Its Board Are in Limbo**\
 `The Senate looks poised to confirm President Trump’s pick to join the central bank in time for the policy meeting next week, while another governor’s fate remains up in the air.`\
 https://nytimes.com/2025/09/12/business/federal-reserve-board-interest-rates.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/12/dining/zanzibar-soup.html
 **What does the Sabres' signing of Alexandar Georgiev signal about their goalie situation?**\
 `The signing of Georgiev is, in part, a response to an injury to starting goalie Ukko-Pekka Luukkonen.`\
 https://nytimes.com/athletic/6623272/2025/09/12/sabres-sign-alexandar-georgiev-luukkonen-injury-goalie/
-
-**Review: Gustavo Dudamel Gives a Glimpse of New York’s Future**\
-`The superstar conductor opened the New York Philharmonic’s season, with his signature thrills that make a traditional concert format seem exceptional.`\
-https://nytimes.com/2025/09/12/arts/music/review-gustavo-dudamel-new-york-philharmonic-opening-night.html
 
