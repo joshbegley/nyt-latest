@@ -1,3 +1,7 @@
+**Patriots Owner’s Son Drops Out of Boston Mayoral Race**\
+`Josh Kraft had harshly criticized the policies of Mayor Michelle Wu, a fellow Democrat, but his message did not resonate with voters.`\
+https://nytimes.com/2025/09/11/us/patriots-owners-son-drops-out-of-boston-mayoral-race.html
+
 **Fans hold 'Free Angel' signs as Reese misses Sky's final regular-season game**\
 `The signs expressed displeasure with the Sky for suspending Reese after she made public comments about the state of the team.`\
 https://nytimes.com/athletic/6622000/2025/09/11/angel-reese-sky-absence-signs-wnba/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/11/us/charlie-kirk-question-utah-kozak.html
 **Yankees' Aaron Judge ties Joe DiMaggio at fourth all time in franchise home run list**\
 `It was more history for the 33-year-old Judge, who passed Hall of Fame catcher Yogi Berra for fifth on the franchise home run list Tuesday.`\
 https://nytimes.com/athletic/6621686/2025/09/11/new-york-yankees-aaron-judge-joe-dimaggio/
-
-**Bolsonaro Convicted of Plotting Coup**\
-`Former President Jair Bolsonaro of Brazil was sentenced to 27 years in prison for trying to overturn the 2022 election and planning to assassinate his opponent, Luiz Inácio Lula da Silva, the current president.`\
-https://nytimes.com/video/world/americas/100000010394005/bolsonaro-convicted-of-plotting-coup.html
 

@@ -1,3 +1,7 @@
+**Patriots Owner’s Son Drops Out of Boston Mayoral Race**\
+`Josh Kraft had harshly criticized the policies of Mayor Michelle Wu, a fellow Democrat, but his message did not resonate with voters.`\
+https://nytimes.com/2025/09/11/us/patriots-owners-son-drops-out-of-boston-mayoral-race.html
+
 **The Last Person to Question Charlie Kirk**\
 `Millions of people saw the brief exchange between the right-wing political activist and a liberal TikToker after footage of the assassination spread like wildfire across social media.`\
 https://nytimes.com/2025/09/11/us/charlie-kirk-question-utah-kozak.html
