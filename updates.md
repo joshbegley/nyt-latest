@@ -1,3 +1,11 @@
+**Anti-Corruption Crusader Named Nepal’s Leader After Gen Z Protests**\
+`Sushila Karki, a former chief justice, was the choice of the student protesters whose mass rallies on Monday started a violent uprising that toppled the government.`\
+https://nytimes.com/2025/09/12/world/asia/nepal-protests-leader-karki-gen-z.html
+
+**High-profile figure in English cricket interviewed over allegations of spiking and sexual assault**\
+`The interview relates to an incident that allegedly took place on May 22 at a pub in the SW6 area of London`\
+https://nytimes.com/athletic/6623315/2025/09/12/english-cricket-figure-investigated-sexual-assault-spiking/
+
 **Bonjour, Flower: Marc-Andre Fleury signs PTO with Penguins to finish career in preseason game**\
 `Fleury, 40, will play in parts of the Penguins' exhibition game against the Blue Jackets on September 27 at PPG Paints Arena. `\
 https://nytimes.com/athletic/6623172/2025/09/12/marc-andre-fleury-penguins-signs-preseason-game/
