@@ -1,3 +1,11 @@
+**The Pulse: A new Super Bowl contender?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6620642/2025/09/12/packers-commanders-tnf-the-pulse/
+
+**All this Barcelona drama gives us loads to talk about. Here's our first of two Q&As**\
+`Marcus Rashford's place, Camp Nou chaos, Frenkie de Jong's future and more on the way tomorrow. Here's the first of two Barcelona mailbags`\
+https://nytimes.com/athletic/6622587/2025/09/12/barcelona-camp-nou-yamal-de-jong-flick/
+
 **Replacing JJ Peterka, prospect watch, Owen Power injury: Sabres mailbag, part 2**\
 `Owen Power suffered a knee injury late last season. Is he recovered and ready to go?`\
 https://nytimes.com/athletic/6620865/2025/09/12/replacing-jj-peterka-owen-power-injury-sabres-mailbag/

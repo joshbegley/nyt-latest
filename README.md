@@ -1,3 +1,7 @@
+**Weird & Wild: Orioles' miracle ninth, Rafael Devers' 8:52 HR trot, Kyle Schwarber's season**\
+`And have you ever heard of a position player who trudged to the mound and didn’t get to leave until he’d faced 18 hitters?`\
+https://nytimes.com/athletic/6622033/2025/09/12/weird-wild-orioles-miracle-ninth-rafael-devers-852-hr-trot-kyle-schwarbers-season/
+
 **The Pulse: A new Super Bowl contender?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6620642/2025/09/12/packers-commanders-tnf-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6622588/2025/09/12/washington-commanders-injuries-p
 **Could Sunday's Super Bowl rematch be the most-watched September NFL game ever?**\
 `it will be interesting to see if this game finishes in the top 10 in viewership.`\
 https://nytimes.com/athletic/6616305/2025/09/12/super-bowl-lix-rematch-fox-chiefs-eagles/
-
-**The Commanders have work to do after getting outclassed by Green Bay**\
-`On the road for the first time since the NFC title game, Washington gave off the same outclassed vibes it did in losing to the Eagles.`\
-https://nytimes.com/athletic/6621346/2025/09/12/commanders-packers-tnf-nfc/
 
