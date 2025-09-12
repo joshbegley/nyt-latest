@@ -1,3 +1,11 @@
+**Targeting Hims & Hers, F.D.A. Takes on a New Type of Drug Advertiser**\
+`Regulators sent about 100 warning letters this week to drug advertisers, including to Hims & Hers, a major online provider of weight-loss drugs.`\
+https://nytimes.com/2025/09/12/science/fda-hims-hers-warning-letter.html
+
+**Eagles rule out TE Dallas Goedert for Super Bowl rematch versus Chiefs**\
+`Running back Will Shipley and offensive tackle Cameron Williams are also out for the Eagles.`\
+https://nytimes.com/athletic/6624418/2025/09/12/eagles-dallas-goedert-injury-chiefs/
+
 **The Best Ways to Remove Smoke Smells From Delicate and Hard-to-Wash Fabrics**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/wc-advice-remove-smoke-smell-from-clothing

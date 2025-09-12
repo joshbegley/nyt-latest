@@ -1,3 +1,11 @@
+**Targeting Hims & Hers, F.D.A. Takes on a New Type of Drug Advertiser**\
+`Regulators sent about 100 warning letters this week to drug advertisers, including to Hims & Hers, a major online provider of weight-loss drugs.`\
+https://nytimes.com/2025/09/12/science/fda-hims-hers-warning-letter.html
+
+**Eagles rule out TE Dallas Goedert for Super Bowl rematch versus Chiefs**\
+`Running back Will Shipley and offensive tackle Cameron Williams are also out for the Eagles.`\
+https://nytimes.com/athletic/6624418/2025/09/12/eagles-dallas-goedert-injury-chiefs/
+
 **The Best Ways to Remove Smoke Smells From Delicate and Hard-to-Wash Fabrics**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/wc-advice-remove-smoke-smell-from-clothing
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6624346/2025/09/12/brock-purdy-trent-williams-jauan
 **No Chelsea recall for Sterling and Diasasi, says Maresca**\
 `Sterling spent last season on loan at Arsenal while Disasi was loaned to Aston Villa for the second half of the campaign.`\
 https://nytimes.com/athletic/6623588/2025/09/12/chelsea-raheem-sterling-axel-disasi/
-
-**Suspect Arrested in Killing of Charlie Kirk**\
-`Also, Trump said he would send the National Guard to Memphis. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2025/09/12/briefing/suspect-arrested-in-killing-of-charlie-kirk.html
-
-**Suspect In Custody For the Shooting of Charlie Kirk**\
-`Gov. Spencer Cox, Republican of Utah, identified the suspect Tyler Robinson. Police arrested the 22-year-old about 250 miles from the Utah Valley University campus, where Charlie Kirk was fatally shot.`\
-https://nytimes.com/video/us/100000010395818/suspect-custody-charlie-kirk.html
 
