@@ -1,3 +1,7 @@
+**'Under the radar' names you should know entering Oilers' rookie and main camps**\
+`Three names destined to land with the Bakersfield Condors this season who could make an impact on the Oilers' roster in the future.`\
+https://nytimes.com/athletic/6620198/2025/09/12/under-the-radar-names-oilers-rookie-main-camp/
+
 **Anti-Corruption Crusader Named Nepal’s Leader After Gen Z Protests**\
 `Sushila Karki, a former chief justice, was the choice of the student protesters whose mass rallies on Monday started a violent uprising that toppled the government.`\
 https://nytimes.com/2025/09/12/world/asia/nepal-protests-leader-karki-gen-z.html
