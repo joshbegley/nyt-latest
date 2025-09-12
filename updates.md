@@ -1,3 +1,7 @@
+**How to watch NASCAR's Bass Pro Shops Night Race at Bristol as playoff field trims to 12**\
+`Few tracks are more storied than Bristol Motor Speedway, where four drivers will be eliminated Saturday night. `\
+https://nytimes.com/athletic/6621695/2025/09/12/nascar-cup-series-bristol-night-race-elimination-how-to-watch/
+
 **How 'sleeping giant' Liga MX is poised to capitalize on 2026 World Cup bump**\
 `Between foreign investment, a new rights deal and a decision that may put league games in U.S. stadiums, Mexico's top flight is ready to pop`\
 https://nytimes.com/athletic/6618473/2025/09/12/liga-mx-atlas-sale-mls-matches-usa-world-cup/

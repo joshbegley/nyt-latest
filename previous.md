@@ -1,3 +1,7 @@
+**How to watch NASCAR's Bass Pro Shops Night Race at Bristol as playoff field trims to 12**\
+`Few tracks are more storied than Bristol Motor Speedway, where four drivers will be eliminated Saturday night. `\
+https://nytimes.com/athletic/6621695/2025/09/12/nascar-cup-series-bristol-night-race-elimination-how-to-watch/
+
 **How 'sleeping giant' Liga MX is poised to capitalize on 2026 World Cup bump**\
 `Between foreign investment, a new rights deal and a decision that may put league games in U.S. stadiums, Mexico's top flight is ready to pop`\
 https://nytimes.com/athletic/6618473/2025/09/12/liga-mx-atlas-sale-mls-matches-usa-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6621100/2025/09/12/the-development-plan-for-blackha
 **Can Easton Cowan crack the Maple Leafs' roster?**\
 `Which side of the wall the Leafs' top prospect ends up on remains one of the most intriguing questions with training camp looming.`\
 https://nytimes.com/athletic/6621392/2025/09/12/easton-cowan-maple-leafs-roster/
-
-**Jaron-Keawe Sagapolutele and the mixed blessing of breakout college football stardom**\
-`Speculation about Jaron-Keawe Sagapolutele's next destination started in the first quarter of his first collegiate game. `\
-https://nytimes.com/athletic/6619776/2025/09/12/jaron-keawe-sagapolutele-cal-quarterback/
 
