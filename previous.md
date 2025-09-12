@@ -1,3 +1,7 @@
+**As Trump Vows Vengeance, Utah’s Governor Calls to Lower the Temperature**\
+`“At some point, we have to find an off-ramp, or it’s going to get much, much worse,” Gov. Spencer Cox, a Republican, said of political violence after a suspect was caught in the assassination of Charlie Kirk.`\
+https://nytimes.com/2025/09/12/us/trump-tyler-robinson-utah-shooting.html
+
 **What We Know About the Suspect in the Charlie Kirk Shooting**\
 `The suspect, 22, was arrested in southwestern Utah after a friend had contacted the authorities, officials said.`\
 https://nytimes.com/2025/09/12/us/tyler-robinson-charlie-kirk-shooting-suspect.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/12/world/europe/trump-birth-control.html
 **Trump Downplays the ‘Radical Right’ and Says the Left Is the Problem**\
 `President Trump dismissed a suggestion that there were extremists on both sides of the political spectrum.`\
 https://nytimes.com/2025/09/12/us/politics/trump-charlie-kirk-shooting.html
-
-**Assessing early fantasy football injury fallout, but first, add Harold Fannin**\
-`Andy Behrens is effusive in his praise of rookie Harold Fannin as he breaks down the big fantasy football news heading into Week 2.`\
-https://nytimes.com/athletic/6623324/2025/09/12/fantasy-football-news-fannin-ekeler-reedweek-2/
 

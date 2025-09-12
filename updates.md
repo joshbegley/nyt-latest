@@ -1,3 +1,7 @@
+**As Trump Vows Vengeance, Utah’s Governor Calls to Lower the Temperature**\
+`“At some point, we have to find an off-ramp, or it’s going to get much, much worse,” Gov. Spencer Cox, a Republican, said of political violence after a suspect was caught in the assassination of Charlie Kirk.`\
+https://nytimes.com/2025/09/12/us/trump-tyler-robinson-utah-shooting.html
+
 **What We Know About the Suspect in the Charlie Kirk Shooting**\
 `The suspect, 22, was arrested in southwestern Utah after a friend had contacted the authorities, officials said.`\
 https://nytimes.com/2025/09/12/us/tyler-robinson-charlie-kirk-shooting-suspect.html
