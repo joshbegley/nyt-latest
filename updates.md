@@ -1,3 +1,7 @@
+**Police Used Excessive Force in Fatal Shooting of Queens Man, Board Says**\
+`Win Rozario, 19, was having a mental health crisis when he called 911 seeking help. A police oversight board found that the officers who responded abused their authority.`\
+https://nytimes.com/2025/09/12/nyregion/win-rozario-shooting-nypd-excessive-force.html
+
 **A Palestinian Lives Near a Landfill After Fleeing Gaza City**\
 `Omar al-Far left Gaza City after Israel ordered the whole city to evacuate. He couldn’t afford rent, so he set up a tent next to a garbage dump near Nuseirat Camp.`\
 https://nytimes.com/video/world/middleeast/100000010395718/gaza-city-palestinian-displacement.html
