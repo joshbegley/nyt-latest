@@ -1,3 +1,15 @@
+**Atlantic Settles Writer’s Suit Over Article It Retracted**\
+`The writer, Ruth Shalit Barrett, had accused the magazine of defaming her in a lengthy editor’s note.`\
+https://nytimes.com/2025/09/12/business/media/atlantic-defamation-lawsuit-settlement.html
+
+**Flashback: Your Weekly History Quiz, Sept. 13, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/09/12/upshot/flashback.html
+
+**Canelo Álvarez requests weigh-in for bout with Terence Crawford to be private**\
+`Boxing weigh-ins are supposed to be public, but Canelo Álvarez asked for and was granted an exception, according to Nevada regulators.`\
+https://nytimes.com/athletic/6623844/2025/09/12/canelo-alvarez-weigh-in-terence-crawford-private/
+
 **Commanders DE Deatrich Wise Jr. done for the season with quad injury**\
 `Wise signed a one-year deal in March as a key piece of Washington's revamped defensive line.`\
 https://nytimes.com/athletic/6623738/2025/09/12/deatrich-wise-commanders-quad-injury/
