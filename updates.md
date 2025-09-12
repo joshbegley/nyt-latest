@@ -1,3 +1,11 @@
+**WNBA playoffs set: Lynx-Valkyries, Dream-Fever and more**\
+`The WNBA playoffs start on Sunday. The first round will be a 1-1-1 series. `\
+https://nytimes.com/athletic/6622263/2025/09/12/wnba-playoffs-lynx-valkyries-dream-fever/
+
+**Fords, Tank 500s and a New Hospital: The Influence Campaigns in the Pacific**\
+`All around Honiara, the capital of the Solomon Islands and host of a regional summit, are not-so-subtle hints of donor nations competing for hearts and minds.`\
+https://nytimes.com/2025/09/12/world/asia/pacific-islands-solomon-china-australia.html
+
 **The prodigies: Suryavanshi, Bethell, Peake and cricket's treacherous path to greatness**\
 `The sport rejoices when young talent bursts through but, as Vinod Kambli and Prithvi Shaw would attest, there are pitfalls to negotiate, too`\
 https://nytimes.com/athletic/6619509/2025/09/12/suryavanshi-bethell-peake-shaw-cricket-prodigies/
