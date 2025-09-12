@@ -1,3 +1,7 @@
+**Moro Ojomo, 'obsessed with evolving,' on his Nigerian sports academy, chance to start**\
+`Ojomo hopes to build a sports academy in his native Nigeria to help give others better opportunities.`\
+https://nytimes.com/athletic/6619017/2025/09/12/eagles-moro-ojomo-nigeria/
+
 **Strand Larsen to miss Wolves' trip to Newcastle through injury**\
 `The Norway international expressed a desire to join Newcastle in the summer window and has been absent with an Achilles injury.`\
 https://nytimes.com/athletic/6623018/2025/09/12/jorgen-strand-larsen-newcastle-wolves-injury/
