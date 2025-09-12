@@ -1,3 +1,7 @@
+**California Lawmakers Pass a Mask Ban for Law Enforcement**\
+`The legislation responds to immigration raids by federal agents who have shielded their identity. It heads to Gov. Gavin Newsom, who has not said whether he would sign it.`\
+https://nytimes.com/2025/09/11/us/immigration-raid-mask-ban-california.html
+
 **'I was crushed': John Kelly on losing his dream job with the Blues — and a new opportunity in L.A.**\
 `Kelly was shocked to lose his job with the Blues, but now he's looking forward to an new role with the Kings.`\
 https://nytimes.com/athletic/6620737/2025/09/11/john-kelly-kings-blues/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/11/us/charlie-kirk-manhunt.html
 **Mamdani Meets Bloomberg, Once a Sworn Foe, for a ‘Cordial’ Discussion**\
 `Michael R. Bloomberg, who spent $8 million trying to torpedo Zohran Mamdani’s Democratic primary bid, advised him on how to fill key City Hall positions.`\
 https://nytimes.com/2025/09/11/nyregion/mamdani-bloomberg-mayor.html
-
-**Chaos Breaks Out in House After Moment of Silence for Charlie Kirk**\
-`Democratic and Republican representatives began arguing after Speaker Mike Johnson called for a moment of silence for Charlie Kirk on Wednesday.`\
-https://nytimes.com/video/us/politics/100000010393897/charlie-kirk-house-moment-silence.html
 
