@@ -1,3 +1,15 @@
+**No Chelsea recall for Sterling and Diasasi, says Maresca**\
+`Sterling spent last season on loan at Arsenal while Disasi was loaned to Aston Villa for the second half of the campaign.`\
+https://nytimes.com/athletic/6623588/2025/09/12/chelsea-raheem-sterling-axel-disasi/
+
+**Suspect Arrested in Killing of Charlie Kirk**\
+`Also, Trump said he would send the National Guard to Memphis. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/09/12/briefing/suspect-arrested-in-killing-of-charlie-kirk.html
+
+**Suspect In Custody For the Shooting of Charlie Kirk**\
+`Gov. Spencer Cox, Republican of Utah, identified the suspect Tyler Robinson. Police arrested the 22-year-old about 250 miles from the Utah Valley University campus, where Charlie Kirk was fatally shot.`\
+https://nytimes.com/video/us/100000010395818/suspect-custody-charlie-kirk.html
+
 **What Made Charlie Kirk Influential?**\
 `Ken Bensinger, a New York Times reporter covering media and politics who has interviewed Charlie Kirk several times, recalls his influence on right-wing activism and the American political landscape.`\
 https://nytimes.com/video/us/politics/100000010393233/what-made-charlie-kirk-influential.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6623966/2025/09/12/alperen-sengun-giannis-turkey-gr
 **Hurricanes owner Tom Dundon's group reaches agreement to buy Trail Blazers**\
 `A statement from the Estate of Paul G. Allen said the ownership group “confirmed their intention to keep the team in Portland.”`\
 https://nytimes.com/athletic/6624093/2025/09/12/portland-trail-blazers-sale-tom-dundon/
-
-**Wofford men's hoops head coach fired, 2 months before tipoff**\
-`The timing of the move is surprising, and Wofford did not provide details. `\
-https://nytimes.com/athletic/6624231/2025/09/12/wofford-mens-college-basketball-coach-dwight-perry-fired/
-
-**Trump Says It Looks Like Mamdani Is ‘Going to Win’**\
-`President Trump said on Friday that he believed Zohran Mamdani, the Democratic nominee for mayor of New York City, would win, likening that outcome to a “rebellion.”`\
-https://nytimes.com/2025/09/12/nyregion/trump-mamdani-nyc-mayor.html
-
-**141 runs, 60 balls: How Salt demolished England's T20 record books**\
-`The 29-year-old batter recorded the biggest individual score by an England player in the format`\
-https://nytimes.com/athletic/6624104/2025/09/12/phil-salt-t20-record-score-england/
 
