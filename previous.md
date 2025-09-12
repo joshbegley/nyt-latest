@@ -1,3 +1,19 @@
+**Lewis signs new Man City contract until 2030**\
+`The 20-year-old, capable of operating at right-back, left-back and in midfield, joined City aged eight.`\
+https://nytimes.com/athletic/6623167/2025/09/12/man-city-rico-lewis-contract-new/
+
+**Atlanta-Style Lemon-Pepper Wings for Game Day**\
+`Serve “wet” with Buffalo sauce, if you like, and with my all-purpose biscuits.`\
+https://nytimes.com/2025/09/12/dining/atlanta-style-lemon-pepper-wings-for-game-day.html
+
+**Five Horror Movies to Stream Now**\
+`In this month’s picks, death comes from unexpected places and unseen psychos.`\
+https://nytimes.com/2025/09/12/movies/five-horror-movies-to-stream-now.html
+
+**Zanzibar’s Must-Have Street Food Is This Bright, Tangy Soup**\
+`Make it at home with this recipe, along with another favorite, Zanzibar pizza, a filled dough packed with cheese, vegetables and herbs.`\
+https://nytimes.com/2025/09/12/dining/zanzibar-soup.html
+
 **What does the Sabres' signing of Alexandar Georgiev signal about their goalie situation?**\
 `The signing of Georgiev is, in part, a response to an injury to starting goalie Ukko-Pekka Luukkonen.`\
 https://nytimes.com/athletic/6623272/2025/09/12/sabres-sign-alexandar-georgiev-luukkonen-injury-goalie/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/09/12/movies/toronto-film-festival-highlights.html
 **How is Joe Dumars changing the Pelicans? Who starts on opening night and more**\
 `Will Guillory answers mailbag questions in preparation for the 2025-26 Pelicans season. `\
 https://nytimes.com/athletic/6622535/2025/09/12/pelicans-joe-dumars-opening-night-roster/
-
-**Trump Says He Will Send the National Guard to Memphis Next**\
-`The murder rate has dropped in Memphis, but it still struggles with some of the highest crime rates in the country.`\
-https://nytimes.com/2025/09/12/us/politics/trump-memphis-national-guard.html
-
-**Frank says Levy deserves 'massive praise' for Tottenham tenure**\
-`Levy was removed from his post on September 4 by the club's majority shareholders, the Lewis family.`\
-https://nytimes.com/athletic/6623192/2025/09/12/tottenham-thomas-frank-daniel-levy/
-
-**The Windup: First comes walk-off, then … everything else**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6622533/2025/09/12/harry-ford-mariners-walkoff-the-windup/
-
-**A must-win game already? Why Russell Wilson, Giants have to beat the Cowboys**\
-`If Wilson doesn't play well this weekend in Dallas, it could very well be his last start with the Giants. `\
-https://nytimes.com/athletic/6621968/2025/09/12/a-must-win-game-already-why-russell-wilson-giants-have-to-beat-the-cowboys/
 
