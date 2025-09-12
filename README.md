@@ -1,3 +1,11 @@
+**Robert Grosvenor, Sculptor Who Challenged Gravity, Dies at 88**\
+`“The lone wolf of sculpture,” one critic called him. His enigmatic art turned familiar objects like boats and vintage cars into mysterious contraptions.`\
+https://nytimes.com/2025/09/12/arts/robert-grosvenor-dead.html
+
+**WNBA regular season most watched in history, ESPN data shows**\
+`Male viewership increased two percent over 2024, and female viewership increased 13 percent over 2024.`\
+https://nytimes.com/athletic/6623590/2025/09/12/wnba-regular-season-most-watched-in-history-espn-data-shows-even-with-caitlin-clark-injury/
+
 **As Trump Vows Vengeance, Utah’s Governor Calls to Lower the Temperature**\
 `“At some point, we have to find an off-ramp, or it’s going to get much, much worse,” Gov. Spencer Cox, a Republican, said of political violence after a suspect was caught in the assassination of Charlie Kirk.`\
 https://nytimes.com/2025/09/12/us/trump-tyler-robinson-utah-shooting.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/12/theater/theater-plays-streaming-twelfth-night.htm
 **NBA's new long-range heave rule might bring more excitement for fans**\
 `The NBA is trying something new by adjusting its quarter-ending heave rule.`\
 https://nytimes.com/athletic/6621472/2025/09/12/nba-heaves-adam-silver-nikola-jokic-trae-young-stephen-curry/
-
-**Belgian Authorities Say $10 Million Supply of Birth Control Has Not Yet Been Destroyed**\
-`Contraceptives bought by U.S.A.I.D. have been in limbo in a Belgian warehouse. The U.S. government said the products were destroyed, but local authorities found them.`\
-https://nytimes.com/2025/09/12/world/europe/trump-birth-control.html
-
-**Trump Downplays the ‘Radical Right’ and Says the Left Is the Problem**\
-`President Trump dismissed a suggestion that there were extremists on both sides of the political spectrum.`\
-https://nytimes.com/2025/09/12/us/politics/trump-charlie-kirk-shooting.html
 
