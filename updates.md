@@ -1,3 +1,11 @@
+**Brazil’s Former President Was Convicted of Plotting a Coup. What Comes Next?**\
+`Jair Bolsonaro was sentenced to 27 years in prison for conspiring to cling to power after losing the 2022 elections.`\
+https://nytimes.com/2025/09/12/world/americas/bolsonaro-sentenced-prison-brazil.html
+
+**E.P.A. to Stop Collecting Emissions Data From Polluters**\
+`The data, from thousands of coal-burning power plants, oil refineries, steel mills and other industrial facilities, is the country’s most comprehensive way to track greenhouse gases.`\
+https://nytimes.com/2025/09/12/climate/epa-emissions-data-collection-halt.html
+
 **Bears to add kicker Jake Moody to practice squad; is the pressure on for Cairo Santos?**\
 `Do the Bears still trust Santos after Monday's hiccups, or is a pivot to Moody under serious consideration?`\
 https://nytimes.com/athletic/6623888/2025/09/12/chicago-bears-jake-moody-cairo-santos-kicker/
