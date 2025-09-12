@@ -1,3 +1,7 @@
+**Weird & Wild: Orioles' miracle ninth, Rafael Devers' 8:52 HR trot, Kyle Schwarber's season**\
+`And have you ever heard of a position player who trudged to the mound and didn’t get to leave until he’d faced 18 hitters?`\
+https://nytimes.com/athletic/6622033/2025/09/12/weird-wild-orioles-miracle-ninth-rafael-devers-852-hr-trot-kyle-schwarbers-season/
+
 **The Pulse: A new Super Bowl contender?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6620642/2025/09/12/packers-commanders-tnf-the-pulse/
