@@ -1,3 +1,7 @@
+**From Scholarship Winner to Wanted Man: The Path of the Kirk Shooting Suspect**\
+`Tyler Robinson, the man accused of shooting Charlie Kirk, was a stellar student in high school, raised in a Republican home in Southwest Utah and training to be an electrician.`\
+https://nytimes.com/2025/09/12/us/politics/tyler-robinson-charlie-kirk.html
+
 **Charlie Kirk’s podcast goes on with Friday’s episode.**\
 `By Alyce McFadden`\
 https://nytimes.com/live/2025/09/12/us/charlie-kirk-news-suspect/charlie-kirks-podcast-goes-on-with-fridays-episode
@@ -33,8 +37,4 @@ https://nytimes.com/video/podcasts/100000010395369/ed-sheeran-wants-more-than-ju
 **Tesla Board Chair Defends Elon Musk’s Enormous Pay Proposal**\
 `Robyn Denholm, normally media shy, is campaigning to get shareholders to back the chief executive’s trillion-dollar compensation package.`\
 https://nytimes.com/2025/09/12/business/tesla-elon-musk-pay-robyn-denholm.html
-
-**Overlooked No More: Eglantyne Jebb, Who Started a Movement With Save the Children**\
-`She co-founded the organization after she was outraged to learn that children were starving after World War I, when the British blocked aid to several countries.`\
-https://nytimes.com/2025/09/12/obituaries/eglantyne-jebb-overlooked.html
 
