@@ -1,3 +1,7 @@
+**Group led by Tom Dundon reaches agreement to buy Portland Trail Blazers**\
+`A statement from the Estate of Paul G. Allen said the ownership group “confirmed their intention to keep the team in Portland.”`\
+https://nytimes.com/athletic/6624093/2025/09/12/portland-trail-blazers-sale-tom-dundon/
+
 **Wofford men's hoops head coach fired, 2 months before tipoff**\
 `The timing of the move is surprising, and Wofford did not provide details. `\
 https://nytimes.com/athletic/6624231/2025/09/12/wofford-mens-college-basketball-coach-dwight-perry-fired/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6623703/2025/09/12/chiefs-announcer-dale-carter-res
 **Michel Odent, Pioneer of Natural Childbirth Techniques, Dies at 95**\
 `His innovations, including homelike delivery rooms and birthing pools, were based on his belief that “human birth cannot work as long as a woman is thinking.”`\
 https://nytimes.com/2025/09/12/health/michel-odent-dead.html
-
-**The Backyard Brawl will continue: West Virginia, Pitt rivalry renewed**\
-`After an 11-year hiatus, the Backyard Brawl resumed in 2022 with a four-game series that ends this year.`\
-https://nytimes.com/athletic/6623973/2025/09/12/west-virginia-pitt-backyard-brawl/
 

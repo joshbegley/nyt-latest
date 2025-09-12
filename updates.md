@@ -1,3 +1,7 @@
+**Wofford men's hoops head coach fired, 2 months before tipoff**\
+`The timing of the move is surprising, and Wofford did not provide details. `\
+https://nytimes.com/athletic/6624231/2025/09/12/wofford-mens-college-basketball-coach-dwight-perry-fired/
+
 **Trump Says It Looks Like Mamdani Is ‘Going to Win’**\
 `President Trump said on Friday that he believed Zohran Mamdani, the Democratic nominee for mayor of New York City, would win, likening that outcome to a “rebellion.”`\
 https://nytimes.com/2025/09/12/nyregion/trump-mamdani-nyc-mayor.html
