@@ -1,3 +1,7 @@
+**Ranking NFL teams by spending: The boldest, most frugal and best bang for the buck**\
+`Teams are spending more aggressively than ever, but everyone’s approach is unique, and many have seen little return on investment.`\
+https://nytimes.com/athletic/6577082/2025/09/12/nfl-salary-cap-cash-spending-ranking/
+
 **Weird & Wild: Orioles' miracle ninth, Rafael Devers' 8:52 HR trot, Kyle Schwarber's season**\
 `And have you ever heard of a position player who trudged to the mound and didn’t get to leave until he’d faced 18 hitters?`\
 https://nytimes.com/athletic/6622033/2025/09/12/weird-wild-orioles-miracle-ninth-rafael-devers-852-hr-trot-kyle-schwarbers-season/
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/6622587/2025/09/12/barcelona-camp-nou-yamal-de-jong
 https://nytimes.com/athletic/6620865/2025/09/12/replacing-jj-peterka-owen-power-injury-sabres-mailbag/
 
 **Meet Mercogliano: Live Q&A with The Athletic's new New York Rangers beat writer**\
-`Vincent Mercogliano will hang out for an hour Friday to chat with fans about his coverage and the upcoming NHL season.`\
+`Vincent Mercogliano will hang out from 12-1p ET Friday to chat with fans about his coverage and the upcoming NHL season.`\
 https://nytimes.com/athletic/6608510/2025/09/12/new-york-rangers-live-qa-vincent-mercogliano/
 
 **Can the Liberty get on track? Will the Aces' hot streak continue? WNBA playoff storylines to watch**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6622773/2025/09/12/enzo-maresca-chelsea-charges/
 **The Commanders' nightmare in Green Bay revealed some serious identity issues**\
 `After thriving under pressure during their breakout 2024 season, this year's Commanders have appeared discombobulated in crunch time.`\
 https://nytimes.com/athletic/6622588/2025/09/12/washington-commanders-injuries-packers/
-
-**Could Sunday's Super Bowl rematch be the most-watched September NFL game ever?**\
-`it will be interesting to see if this game finishes in the top 10 in viewership.`\
-https://nytimes.com/athletic/6616305/2025/09/12/super-bowl-lix-rematch-fox-chiefs-eagles/
 
