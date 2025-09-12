@@ -1,3 +1,7 @@
+**Israel players withdraw from Basque chess tournament after flag ban request**\
+`The Sestao chess club wanted to remove the Israel flag "a sign of rejection of Israel's systematic violation of human rights"`\
+https://nytimes.com/athletic/6622821/2025/09/12/israel-chess-tournament-basque-country/
+
 **2025 World Athletics Championships: The rivalries to watch in Tokyo**\
 `From Noah Lyles vs Letsile Tebogo to Nafi Thiam vs Anna Hall, these are the pulsating match-ups to look out for`\
 https://nytimes.com/athletic/6613878/2025/09/12/world-athletics-championships-tokyo-rivalry/

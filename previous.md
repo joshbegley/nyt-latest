@@ -1,3 +1,7 @@
+**Israel players withdraw from Basque chess tournament after flag ban request**\
+`The Sestao chess club wanted to remove the Israel flag "a sign of rejection of Israel's systematic violation of human rights"`\
+https://nytimes.com/athletic/6622821/2025/09/12/israel-chess-tournament-basque-country/
+
 **2025 World Athletics Championships: The rivalries to watch in Tokyo**\
 `From Noah Lyles vs Letsile Tebogo to Nafi Thiam vs Anna Hall, these are the pulsating match-ups to look out for`\
 https://nytimes.com/athletic/6613878/2025/09/12/world-athletics-championships-tokyo-rivalry/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6621237/2025/09/12/nba-games-2025-streaming-cost-pr
 **Fantasy Premier League live Q&A: Gameweek 4 advice from Ben Dinnery**\
 `Join Ben Dinnery for a live Gameweek 4 Q&A from 4pm-5pm UK time`\
 https://nytimes.com/athletic/6618937/2025/09/12/fantasy-premier-league-live-qa-fpl-tips-gw4/
-
-**Sliders: How Davey Johnson went from scapegoat to savant in the 1986 World Series**\
-`Plus Blue Jays outfielder Daulton Varsho's famous namesake, remembering Willie Mays' post-playing pitchman days and more. `\
-https://nytimes.com/athletic/6614090/2025/09/12/davey-johnson-mets-world-series-sliders/
 
