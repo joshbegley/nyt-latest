@@ -1,3 +1,11 @@
+**Robert Grosvenor, Sculptor Who Challenged Gravity, Dies at 88**\
+`“The lone wolf of sculpture,” one critic called him. His enigmatic art turned familiar objects like boats and vintage cars into mysterious contraptions.`\
+https://nytimes.com/2025/09/12/arts/robert-grosvenor-dead.html
+
+**WNBA regular season most watched in history, ESPN data shows**\
+`Male viewership increased two percent over 2024, and female viewership increased 13 percent over 2024.`\
+https://nytimes.com/athletic/6623590/2025/09/12/wnba-regular-season-most-watched-in-history-espn-data-shows-even-with-caitlin-clark-injury/
+
 **As Trump Vows Vengeance, Utah’s Governor Calls to Lower the Temperature**\
 `“At some point, we have to find an off-ramp, or it’s going to get much, much worse,” Gov. Spencer Cox, a Republican, said of political violence after a suspect was caught in the assassination of Charlie Kirk.`\
 https://nytimes.com/2025/09/12/us/trump-tyler-robinson-utah-shooting.html
