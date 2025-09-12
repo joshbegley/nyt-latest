@@ -4,7 +4,7 @@ https://nytimes.com/2025/09/12/world/europe/prince-harry-ukraine-kyiv-war.html
 
 **U.S. sprinter Erriyon Knighton given 4-year doping ban after CAS ruling**\
 `The 21-year-old is a two-time Olympic finalist and finished fourth in Paris a year ago.`\
-https://nytimes.com/athletic/6622927/2025/09/12/erriyon-knighton-doping-ban/
+https://nytimes.com/athletic/6622927/2025/09/12/erriyon-knighton-doping-ban-cas/
 
 **Freed by U.S., South Korean Workers Return Home to Tearful Cheers**\
 `The workers, whose detention in a workplace immigration sweep set off outrage in South Korea, expressed both relief and anger.`\
