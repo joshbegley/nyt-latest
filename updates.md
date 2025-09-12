@@ -1,3 +1,11 @@
+**Jonathan Toews looks rusty in his first skates with the Jets. Why that's great news**\
+`Jonathan Toews will need some time to get up to speed but he's far from washed up.`\
+https://nytimes.com/athletic/6620606/2025/09/12/jonathan-toews-winnipeg-jets/
+
+**NFL Week 2 schedule rankings: Top 5 revenge games on Sunday**\
+`Super Bowl rematch. College QB reunion. Ben Johnson back in Detroit. Week 2 ... This Time It's Personal.`\
+https://nytimes.com/athletic/6620587/2025/09/12/nfl-week-2-revenge-chiefs-eagles-metcalf-seahawks-how-to-watch/
+
 **How to watch NASCAR's Bass Pro Shops Night Race at Bristol as playoff field trims to 12**\
 `Few tracks are more storied than Bristol Motor Speedway, where four drivers will be eliminated Saturday night. `\
 https://nytimes.com/athletic/6621695/2025/09/12/nascar-cup-series-bristol-night-race-elimination-how-to-watch/
