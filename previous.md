@@ -1,3 +1,7 @@
+**The Road to the Emmys**\
+`The 77th Primetime Emmy Awards will take place on Sunday night. Here is a look at some of this year’s nominees.`\
+https://nytimes.com/card/2025/09/12/arts/television/emmys-nominees-photos
+
 **Alperen Şengün, Turkey dominate Giannis and Greece to reach EuroBasket final**\
 `The stage is set. It will be Alperen Şengün vs. Franz Wagner and Dennis Schröder in the EuroBasket final on Sunday. `\
 https://nytimes.com/athletic/6623966/2025/09/12/alperen-sengun-giannis-turkey-greece-eurobasket-final/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010392659/charlie-kirk-memorial-yout
 **Unusual Climate Case Accusing Oil Giants of Racketeering Is Dismissed**\
 `Citing laws more commonly used against organized crime, the lawsuit argued that fossil fuel companies were responsible for devastating hurricane damage in Puerto Rico.`\
 https://nytimes.com/2025/09/12/climate/puerto-rico-lawsuit-energy-racketeering-irma-maria.html
-
-**Chiefs announcer Dale Carter resigns, saying team crossed his 'red line'**\
-`Carter is best known for his elongated third down call at Chiefs games, which built suspense during opponent drives.`\
-https://nytimes.com/athletic/6623703/2025/09/12/chiefs-announcer-dale-carter-resigns-saying-team-crossed-red-line/
 

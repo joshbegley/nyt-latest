@@ -1,3 +1,7 @@
+**The Road to the Emmys**\
+`The 77th Primetime Emmy Awards will take place on Sunday night. Here is a look at some of this year’s nominees.`\
+https://nytimes.com/card/2025/09/12/arts/television/emmys-nominees-photos
+
 **Alperen Şengün, Turkey dominate Giannis and Greece to reach EuroBasket final**\
 `The stage is set. It will be Alperen Şengün vs. Franz Wagner and Dennis Schröder in the EuroBasket final on Sunday. `\
 https://nytimes.com/athletic/6623966/2025/09/12/alperen-sengun-giannis-turkey-greece-eurobasket-final/
