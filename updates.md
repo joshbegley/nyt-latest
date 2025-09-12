@@ -1,3 +1,7 @@
+**Ego Nwodim Leaves ‘S.N.L.’ After 7 Seasons**\
+`Nwodim, known for characters including Lisa From Temecula, is the fifth cast member to leave the sketch comedy show this summer.`\
+https://nytimes.com/2025/09/12/arts/television/ego-nwodim-leaving-snl.html
+
 **NATO Steps Up Defenses After Russian Drones Violate Polish Airspace**\
 `Increased air patrols, air defense systems and other protections will be mobilized over Eastern Europe.`\
 https://nytimes.com/2025/09/12/world/europe/nato-eastern-europe-drone-defenses.html

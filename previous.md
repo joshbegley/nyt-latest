@@ -1,3 +1,7 @@
+**Ego Nwodim Leaves ‘S.N.L.’ After 7 Seasons**\
+`Nwodim, known for characters including Lisa From Temecula, is the fifth cast member to leave the sketch comedy show this summer.`\
+https://nytimes.com/2025/09/12/arts/television/ego-nwodim-leaving-snl.html
+
 **NATO Steps Up Defenses After Russian Drones Violate Polish Airspace**\
 `Increased air patrols, air defense systems and other protections will be mobilized over Eastern Europe.`\
 https://nytimes.com/2025/09/12/world/europe/nato-eastern-europe-drone-defenses.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6623433/2025/09/12/ravens-browns-derrick-henry-tack
 **British team most unscathed from Saint-Tropez SailGP opening day**\
 `The notoriously tricky race course in France proved a match for some teams on Friday.`\
 https://nytimes.com/athletic/6623441/2025/09/12/saint-tropez-sail-grand-prix-report-opening-day/
-
-**17 Nonfiction Books We’re Looking Forward to This Fall**\
-`The season brings histories by Jill Lepore, David McCullough and Joseph J. Ellis, memoirs by Margaret Atwood and Susan Orlean, and more.`\
-https://nytimes.com/2025/09/12/books/review/fall-nonfiction-preview-podcast.html
 
