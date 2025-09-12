@@ -1,3 +1,11 @@
+**Plane With Detained Hyundai Workers Arrives in South Korea**\
+`The plane carried about 300 South Koreans who had been detained during a large-scale U.S. immigration raid at a battery factory construction site.`\
+https://nytimes.com/video/world/asia/100000010394452/plane-with-detained-hyundai-workers-arrives-in-south-korea.html
+
+**Brighton part company with technical director David Weir**\
+`The 55-year-old former Rangers, Everton and Scotland international defender had held the post overseeing player recruitment since May 2022`\
+https://nytimes.com/athletic/6622705/2025/09/12/brighton-david-weir-leaves/
+
 **As Jacob deGrom returns to face flailing Mets, what is his New York legacy?**\
 `His dominant period should cement his place in Mets history and merits a jersey retirement ceremony.`\
 https://nytimes.com/athletic/6622103/2025/09/12/mets-rangers-jacob-degrom/

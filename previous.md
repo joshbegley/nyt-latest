@@ -1,3 +1,11 @@
+**Plane With Detained Hyundai Workers Arrives in South Korea**\
+`The plane carried about 300 South Koreans who had been detained during a large-scale U.S. immigration raid at a battery factory construction site.`\
+https://nytimes.com/video/world/asia/100000010394452/plane-with-detained-hyundai-workers-arrives-in-south-korea.html
+
+**Brighton part company with technical director David Weir**\
+`The 55-year-old former Rangers, Everton and Scotland international defender had held the post overseeing player recruitment since May 2022`\
+https://nytimes.com/athletic/6622705/2025/09/12/brighton-david-weir-leaves/
+
 **As Jacob deGrom returns to face flailing Mets, what is his New York legacy?**\
 `His dominant period should cement his place in Mets history and merits a jersey retirement ceremony.`\
 https://nytimes.com/athletic/6622103/2025/09/12/mets-rangers-jacob-degrom/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/12/movies/oslo-trilogy-dag-johan-haugerud.html
 **Newcastle's Wissa, Ramsey out of Wolves game, Woltemade set for debut**\
 `Wissa, the £50million-plus deadline-day addition from Brentford, will be sent for a scan to determine the extent of his problem.`\
 https://nytimes.com/athletic/6622609/2025/09/12/wissa-injury-ramsey-newcastle-woltemade-debut/
-
-**How to watch Angels at Mariners: Time, TV, streaming for September 12**\
-`Find out how to watch the Los Angeles Angels play the Seattle Mariners, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6622647/2025/09/12/angels-vs-mariners-stream-how-to-watch-sept-12/
-
-**How to watch Rockies at Padres: Time, TV, streaming for September 12**\
-`Find out how to watch the Colorado Rockies play the San Diego Padres, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6622636/2025/09/12/rockies-vs-padres-stream-how-to-watch-sept-12/
 
