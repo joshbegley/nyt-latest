@@ -1,3 +1,15 @@
+**Freed by U.S., South Korean Workers Return Home to Tearful Cheers**\
+`The workers, whose detention in a workplace immigration sweep set off outrage in South Korea, expressed both relief and anger.`\
+https://nytimes.com/2025/09/12/world/asia/korean-workers-georgia-arrest.html
+
+**Supporters of Ukraine Anti-Corruption Investigator Call His Jailing Absurd**\
+`The case of a detective who activists say was investigating close associates of President Volodymyr Zelensky is seen as a bellwether.`\
+https://nytimes.com/2025/09/12/world/europe/ukraine-corruption.html
+
+**Bayindir to start for Man United in derby - Amorim**\
+`Lammens completed a deadline-day transfer to United from Royal Antwerp in a €21m deal while Onana has joined Trabzonspor on loan.`\
+https://nytimes.com/athletic/6623030/2025/09/12/manchester-united-goalkeeper-bayindir-lammens/
+
 **Manchester United live Q&A: Andy Mitten answers your questions**\
 `Ask your questions of Andy Mitten`\
 https://nytimes.com/athletic/6616656/2025/09/12/manchester-united-andy-mitten/

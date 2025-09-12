@@ -1,3 +1,11 @@
+**Prince Harry Meets War Veterans in Surprise Visit to Ukraine**\
+`The prince arrived in Kyiv on his second trip to the country this year. The visit comes after his charity supporting wounded soldiers said it would expand post-conflict rehabilitation.`\
+https://nytimes.com/2025/09/12/world/europe/prince-harry-ukraine-kyiv-war.html
+
+**U.S. sprinter Erriyon Knighton given 4-year doping ban after CAS ruling**\
+`The 21-year-old is a two-time Olympic finalist and finished fourth in Paris a year ago.`\
+https://nytimes.com/athletic/6622927/2025/09/12/erriyon-knighton-doping-ban/
+
 **Freed by U.S., South Korean Workers Return Home to Tearful Cheers**\
 `The workers, whose detention in a workplace immigration sweep set off outrage in South Korea, expressed both relief and anger.`\
 https://nytimes.com/2025/09/12/world/asia/korean-workers-georgia-arrest.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/09/12/world/europe/uk-intelligence-report-p
 **How Concerned Are You About Political Violence in America?**\
 `What’s your reaction to the assassination of Charlie Kirk, a conservative organizer and activist?`\
 https://nytimes.com/2025/09/12/learning/how-concerned-are-you-about-political-violence-in-america.html
-
-**The Billion-Dollar Stakes for OpenAI**\
-`The artificial intelligence giant is closing in on a deal with Microsoft regarding its future governance, but other questions stand over its huge costs.`\
-https://nytimes.com/2025/09/12/business/dealbook/openai-microsoft-governance-costs.html
-
-**Matt Rhule's fiery halftime speech — in a blowout win — a sign of Nebraska's growing expectations**\
-`"They don't fear you," he said. "They don't respect you enough yet. And if that sounds like coachspeak, then you have the wrong brain."`\
-https://nytimes.com/athletic/6621296/2025/09/12/nebraska-matt-rhule-halftime-speech/
 
