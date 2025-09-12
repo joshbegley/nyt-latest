@@ -1,3 +1,11 @@
+**Real Madrid's Rudiger out for prolonged spell with muscle injury**\
+`The 32-year-old picked up two injuries last season but played 55 times for the Spanish side`\
+https://nytimes.com/athletic/6623740/2025/09/12/real-madrid-defender-antonio-rudiger-injury/
+
+**Man Fatally Shot in Confrontation With ICE Officers in Chicago Area**\
+`The shooting took place amid a federal crackdown on illegal immigration in the region, known as Operation Midway Blitz.`\
+https://nytimes.com/2025/09/12/us/man-fatally-shot-in-confrontation-with-ice-officers-in-chicago-area.html
+
 **Jeff Bezos, Jessica Chastain and More at Fashion Week’s Starriest Gala**\
 `Hollywood’s most recognizable faces packed Kering’s gala in New York City on Thursday.`\
 https://nytimes.com/2025/09/12/style/kering-gala-nyc-photos.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/12/arts/robert-grosvenor-dead.html
 **WNBA regular season most watched in history, ESPN data shows**\
 `Male viewership increased two percent over 2024, and female viewership increased 13 percent over 2024.`\
 https://nytimes.com/athletic/6623590/2025/09/12/wnba-regular-season-most-watched-in-history-espn-data-shows-even-with-caitlin-clark-injury/
-
-**As Trump Vows Vengeance, Utah’s Governor Calls to Lower the Temperature**\
-`“At some point, we have to find an off-ramp, or it’s going to get much, much worse,” Gov. Spencer Cox, a Republican, said of political violence after a suspect was caught in the assassination of Charlie Kirk.`\
-https://nytimes.com/2025/09/12/us/trump-tyler-robinson-utah-shooting.html
-
-**What We Know About the Suspect in the Charlie Kirk Shooting**\
-`The suspect, 22, was arrested in southwestern Utah after a friend had contacted the authorities, officials said.`\
-https://nytimes.com/2025/09/12/us/tyler-robinson-charlie-kirk-shooting-suspect.html
 
