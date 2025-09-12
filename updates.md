@@ -1,3 +1,7 @@
+**Suspect in Murder of Queens Couple Told Police That He Burned Them**\
+`Jamel McGriff, who was arraigned late Thursday night, told the authorities that he had “molested” the septuagenarians before torching their home in the Bellerose neighborhood.`\
+https://nytimes.com/2025/09/12/nyregion/queens-fire-murders.html
+
 **Enter Yoane Wissa: Newcastle's new No 9 is high cost but low risk**\
 ` That Newcastle spent £50m on a 29-year-old striker is a mark of an inflated market, but the data shows Yoane Wissa is a striker to rely on`\
 https://nytimes.com/athletic/6615234/2025/09/12/yoane-wissa-newcastle-analysis/
