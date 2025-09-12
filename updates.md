@@ -1,3 +1,15 @@
+**As Jacob deGrom returns to face flailing Mets, what is his New York legacy?**\
+`His dominant period should cement his place in Mets history and merits a jersey retirement ceremony.`\
+https://nytimes.com/athletic/6622103/2025/09/12/mets-rangers-jacob-degrom/
+
+**The New York Times International Edition in Print for Saturday, Sep. 13, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/09/12/todays-new-york-times-international-edition
+
+**Red flags: Caleb Williams, Bears offense must work to get back on the same page**\
+`Growing pains may be inevitable for Williams and the offense, but Bears coaches won't institute a "full tolerance" on sloppiness.`\
+https://nytimes.com/athletic/6621062/2025/09/12/bears-caleb-williams-offense-penalties/
+
 **Jota Silva set for Besiktas medical ahead of move from Nottingham Forest**\
 `Jota is set to depart Nottingham Forest on loan, with the deal expected to include an option to make the move permanent.`\
 https://nytimes.com/athletic/6622616/2025/09/12/jota-silva-besiktas-nottingham-forest-transfer/

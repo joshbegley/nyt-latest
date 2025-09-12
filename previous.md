@@ -1,3 +1,15 @@
+**As Jacob deGrom returns to face flailing Mets, what is his New York legacy?**\
+`His dominant period should cement his place in Mets history and merits a jersey retirement ceremony.`\
+https://nytimes.com/athletic/6622103/2025/09/12/mets-rangers-jacob-degrom/
+
+**The New York Times International Edition in Print for Saturday, Sep. 13, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/09/12/todays-new-york-times-international-edition
+
+**Red flags: Caleb Williams, Bears offense must work to get back on the same page**\
+`Growing pains may be inevitable for Williams and the offense, but Bears coaches won't institute a "full tolerance" on sloppiness.`\
+https://nytimes.com/athletic/6621062/2025/09/12/bears-caleb-williams-offense-penalties/
+
 **Jota Silva set for Besiktas medical ahead of move from Nottingham Forest**\
 `Jota is set to depart Nottingham Forest on loan, with the deal expected to include an option to make the move permanent.`\
 https://nytimes.com/athletic/6622616/2025/09/12/jota-silva-besiktas-nottingham-forest-transfer/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6622647/2025/09/12/angels-vs-mariners-stream-how-to
 **How to watch Rockies at Padres: Time, TV, streaming for September 12**\
 `Find out how to watch the Colorado Rockies play the San Diego Padres, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6622636/2025/09/12/rockies-vs-padres-stream-how-to-watch-sept-12/
-
-**Next week’s waiver wire: Penix, Doubs and more players to add — before the Week 3 rush**\
-`John Laghezza looks ahead to Week 3 for waiver wire options you can grab before the crowd rush. `\
-https://nytimes.com/athletic/6620184/2025/09/12/next-weeks-waiver-wire-trey-benson-romeo-doubs/
-
-**Aina facing up to three months out with hamstring injury**\
-`Aina, 28, was forced off during Nigeria's World Cup qualifier against South Africa on Tuesday.`\
-https://nytimes.com/athletic/6622586/2025/09/12/ola-aina-nottingham-forest-injury-update/
-
-**As Drake Maye looks to bounce back, Patriots remain confident 'he's the right guy'**\
-`Maye struggled against the Raiders in Week 1, but his coaches feel good about his progress and expect him to bounce back vs. the Dolphins.`\
-https://nytimes.com/athletic/6620828/2025/09/12/drake-maye-patriots-dolphins-nfl-week-2/
 
