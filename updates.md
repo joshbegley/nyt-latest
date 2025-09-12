@@ -1,3 +1,11 @@
+**Patriots’ Christian Gonzalez out vs. Dolphins, DC Terrell Williams on medical leave**\
+`New England will be without star cornerback Christian Gonzalez and defensive coordinator Terrell Williams for Sunday’s game in Miami.`\
+https://nytimes.com/athletic/6623758/2025/09/12/patriots-christian-gonzalez-terrell-williams/
+
+**Boeing Workers in St. Louis Reject Tentative Contract**\
+`A five-week strike at plants that make military aircraft and equipment will continue after 3,200 union members voted down the proposed agreement.`\
+https://nytimes.com/2025/09/12/business/boeing-union-reject-contract.html
+
 **When F1 drivers showed sportsmanship. Plus: Sainz penalty appeal outcome delayed**\
 `The 2025 F1 title fight is unusually jovial for an intra-team affair. But in the championship's history, such sportsmanship was more common `\
 https://nytimes.com/athletic/6623696/2025/09/12/f1-world-title-sportsmanship/
