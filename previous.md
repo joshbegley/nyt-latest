@@ -1,3 +1,19 @@
+**A must-win game already? Why Russell Wilson, Giants have to beat the Cowboys**\
+`If Wilson doesn't play well this weekend in Dallas, it could very well be his last start with the Giants. `\
+https://nytimes.com/athletic/6621968/2025/09/12/a-must-win-game-already-why-russell-wilson-giants-have-to-beat-the-cowboys/
+
+**He Made a Friend on Roblox. Their Relationship Turned Sinister.**\
+`At age 7, Ethan Dallas began playing the online game, where he met Nate. Deadly abuse followed, said Ethan’s mother, who blames Roblox.`\
+https://nytimes.com/2025/09/12/technology/roblox-lawsuit-child-safety.html
+
+**Rubio Leads Charge in Trump’s New War in Latin America**\
+`The secretary of state is shaping what could be the most consequential military actions of President Trump’s second term.`\
+https://nytimes.com/2025/09/12/us/politics/rubio-trump-drugs-venezuela.html
+
+**Glasner denies Palace resignation threat over possible Guehi sale**\
+`Glasner has denied reports that he told chairman Steve Parish that if Guehi was sold then he would quit his position as Palace manager.`\
+https://nytimes.com/athletic/6623183/2025/09/12/glasner-crystal-palace-guehi-transfer/
+
 **John Mew, Unorthodox Orthodontist Who Went Viral, Dies at 96**\
 `He gained a following for techniques, notably one known as mewing, that he said could help fix crooked teeth without surgery. The medical establishment disagreed.`\
 https://nytimes.com/2025/09/12/health/john-mew-dead.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6623040/2025/09/12/william-saliba-arsenal-injury-la
 **Man City without Ait-Nouri, Cherki and Marmoush for derby, Stones a doubt - Guardiola**\
 `Cherki was ruled out for around two weeks before the international break but Marmoush picked up an injury while playing with Egypt.`\
 https://nytimes.com/athletic/6623131/2025/09/12/manchester-city-injury-news-marmoush-cherki/
-
-**The Chiefs play that could've changed the Super Bowl — and what it taught K.C.**\
-`The Chiefs missed this an early opportunity in Super Bowl LIX against the Philadelphia Eagles. Here's what they hope has changed since then.`\
-https://nytimes.com/athletic/6618049/2025/09/12/chiefs-eagles-super-bowl-key-play/
-
-**Moro Ojomo, 'obsessed with evolving,' on his Nigerian sports academy, chance to start**\
-`Ojomo hopes to build a sports academy in his native Nigeria to help give others better opportunities.`\
-https://nytimes.com/athletic/6619017/2025/09/12/eagles-moro-ojomo-nigeria/
-
-**Strand Larsen to miss Wolves' trip to Newcastle through injury**\
-`The Norway international expressed a desire to join Newcastle in the summer window and has been absent with an Achilles injury.`\
-https://nytimes.com/athletic/6623018/2025/09/12/jorgen-strand-larsen-newcastle-wolves-injury/
-
-**Manny Machado keeps posting – and slumping. When will the Padres finally rest him?**\
-`Machado is one of only four major-league players to have started every game this season but his offense remained in a rut Thursday.`\
-https://nytimes.com/athletic/6622392/2025/09/12/sd-padres-manny-machado-slump/
 
