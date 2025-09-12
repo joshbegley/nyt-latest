@@ -1,3 +1,7 @@
+**What Made Charlie Kirk Influential?**\
+`Ken Bensinger, a New York Times reporter covering media and politics who has interviewed Charlie Kirk several times, recalls his influence on right-wing activism and the American political landscape.`\
+https://nytimes.com/video/us/politics/100000010393233/what-made-charlie-kirk-influential.html
+
 **Marilyn Diamond, Who Wrote a Blockbuster Diet Book, Dies at 81**\
 `“Fit for Life,” which she wrote with her husband, was a best seller in the 1980s promoting good health ahead of weight loss. But doctors were critical.`\
 https://nytimes.com/2025/09/12/books/marilyn-diamond-dead.html
@@ -18,7 +22,7 @@ https://nytimes.com/card/2025/09/12/arts/television/emmys-nominees-photos
 `The stage is set. It will be Alperen Şengün vs. Franz Wagner and Dennis Schröder in the EuroBasket final on Sunday. `\
 https://nytimes.com/athletic/6623966/2025/09/12/alperen-sengun-giannis-turkey-greece-eurobasket-final/
 
-**Group led by Tom Dundon reaches agreement to buy Portland Trail Blazers**\
+**Hurricanes owner Tom Dundon's group reaches agreement to buy Trail Blazers**\
 `A statement from the Estate of Paul G. Allen said the ownership group “confirmed their intention to keep the team in Portland.”`\
 https://nytimes.com/athletic/6624093/2025/09/12/portland-trail-blazers-sale-tom-dundon/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/12/nyregion/trump-mamdani-nyc-mayor.html
 **141 runs, 60 balls: How Salt demolished England's T20 record books**\
 `The 29-year-old batter recorded the biggest individual score by an England player in the format`\
 https://nytimes.com/athletic/6624104/2025/09/12/phil-salt-t20-record-score-england/
-
-**Special Episode: A Suspect Is Caught in Charlie Kirk’s Assassination**\
-`What we know about the arrest and the alleged killer’s motives.`\
-https://nytimes.com/2025/09/12/podcasts/the-daily/charlie-kirk-news-suspect.html
 
