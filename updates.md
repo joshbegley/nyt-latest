@@ -1,3 +1,19 @@
+**MacIntyre has one plan for this Ryder Cup: 'Win points'**\
+`"If I have to sit out every game, I'll sit out every game. If have to play every game, I'll play every game."`\
+https://nytimes.com/athletic/6623320/2025/09/12/robert-macintyre-ryder-cup-bmw-pga-championship-europe-team/
+
+**Jerry Jones says Jalen Carter's ejection 'evened up' Parsons-less Cowboys**\
+`Jones also reacted to Green Bay's "thank you, Jerry" chants: "I'm all for them enjoying and chanting anything that they wanna say."`\
+https://nytimes.com/athletic/6623769/2025/09/12/jerry-jones-micah-parsons-dallas-cowboys/
+
+**Is It Cutesy or Abominable to Make Up Random Words?**\
+`A ruling on a dispute over shortening “groceries” to “grosh.”`\
+https://nytimes.com/interactive/2025/09/12/magazine/word-shortening-hodgman-quiz.html
+
+**Can We Start Treating Some Cancers Like a Chronic Disease?**\
+`How cutting-edge, compassionate care at this hospital can shift the paradigm.`\
+https://nytimes.com/paidpost/mass-general-brigham/mass-general-brigham-circle-of-care/can-we-start-treating-some-cancers-like-a-chronic-disease.html
+
 **A Bullet Casing Quoted ‘Bella Ciao,’ an Antifascist Anthem Now Popular With Video Gamers**\
 `The phrase, inscribed on an unfired casing tied to the man arrested in Charlie Kirk’s shooting, was popular in Italy after World War II. It has recently resurfaced in a Netflix series and video games.`\
 https://nytimes.com/2025/09/12/us/tyler-robinson-bella-ciao-bullet.html

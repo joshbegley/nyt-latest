@@ -1,3 +1,15 @@
+**Bears to add kicker Jake Moody to practice squad; is the pressure on for Cairo Santos?**\
+`Do the Bears still trust Santos after Monday's hiccups, or is a pivot to Moody under serious consideration?`\
+https://nytimes.com/athletic/6623888/2025/09/12/chicago-bears-jake-moody-cairo-santos-kicker/
+
+**Long jump world record holder Powell suspended from athletics after safeguarding violation**\
+`The 61-year-old coached women's track and field after retiring but left his job at Azusa Pacific University in 2024`\
+https://nytimes.com/athletic/6623412/2025/09/12/mike-powell-suspension-athletics-safeguarding-long-jump/
+
+**‘His Death Felt Personal’: Six Conservative Students on Charlie Kirk**\
+`We Don’t Want Echo Chambers`\
+https://nytimes.com/2025/09/12/opinion/campus-conservatives-charlie-kirk.html
+
 **MacIntyre has one plan for this Ryder Cup: 'Win points'**\
 `"If I have to sit out every game, I'll sit out every game. If have to play every game, I'll play every game."`\
 https://nytimes.com/athletic/6623320/2025/09/12/robert-macintyre-ryder-cup-bmw-pga-championship-europe-team/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6623777/2025/09/12/cubs-kyle-tucker-injured-list-ti
 **‘This Is Our Nepal’: A Wounded Gen Z Protester’s Fight for a Better Future**\
 `Deepraj Rai, 23, was shot in the thigh during antigovernment demonstrations in Nepal. As he recovered at the hospital, he shared his hopes for the youth-led movement.`\
 https://nytimes.com/video/world/asia/100000010388490/nepal-antigovernment-protest.html
-
-**Amid Water Restrictions, U.K. Residents Express Outrage as Blackstone C.E.O. Fills Private Lake**\
-`A local water company said tankers of its water would no longer be sent to the American billionaire’s estate to fill his lake.`\
-https://nytimes.com/2025/09/12/world/europe/stephen-schwarzman-blackstone-water-uk.html
-
-**Wizards’ Bilal Coulibaly undergoes surgery to repair torn thumb ligament**\
-`The 21-year-old wing suffered his injury during EuroBasket as a member of France's national team.`\
-https://nytimes.com/athletic/6623800/2025/09/12/bilal-coulibaly-thumb-surgery-wizards/
-
-**Mamdani, if Elected Mayor, Pledges to Order N.Y.P.D. to Arrest Netanyahu**\
-`Zohran Mamdani expanded on his vow to arrest Prime Minister Benjamin Netanyahu, saying it would show that New York “stands up for international law.” Experts said the move would be impractical and likely illegal.`\
-https://nytimes.com/2025/09/12/nyregion/mamdani-arrest-netanyahu-nyc-mayor.html
 

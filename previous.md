@@ -1,3 +1,19 @@
+**MacIntyre has one plan for this Ryder Cup: 'Win points'**\
+`"If I have to sit out every game, I'll sit out every game. If have to play every game, I'll play every game."`\
+https://nytimes.com/athletic/6623320/2025/09/12/robert-macintyre-ryder-cup-bmw-pga-championship-europe-team/
+
+**Jerry Jones says Jalen Carter's ejection 'evened up' Parsons-less Cowboys**\
+`Jones also reacted to Green Bay's "thank you, Jerry" chants: "I'm all for them enjoying and chanting anything that they wanna say."`\
+https://nytimes.com/athletic/6623769/2025/09/12/jerry-jones-micah-parsons-dallas-cowboys/
+
+**Is It Cutesy or Abominable to Make Up Random Words?**\
+`A ruling on a dispute over shortening “groceries” to “grosh.”`\
+https://nytimes.com/interactive/2025/09/12/magazine/word-shortening-hodgman-quiz.html
+
+**Can We Start Treating Some Cancers Like a Chronic Disease?**\
+`How cutting-edge, compassionate care at this hospital can shift the paradigm.`\
+https://nytimes.com/paidpost/mass-general-brigham/mass-general-brigham-circle-of-care/can-we-start-treating-some-cancers-like-a-chronic-disease.html
+
 **A Bullet Casing Quoted ‘Bella Ciao,’ an Antifascist Anthem Now Popular With Video Gamers**\
 `The phrase, inscribed on an unfired casing tied to the man arrested in Charlie Kirk’s shooting, was popular in Italy after World War II. It has recently resurfaced in a Netflix series and video games.`\
 https://nytimes.com/2025/09/12/us/tyler-robinson-bella-ciao-bullet.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6623800/2025/09/12/bilal-coulibaly-thumb-surgery-wi
 **Mamdani, if Elected Mayor, Pledges to Order N.Y.P.D. to Arrest Netanyahu**\
 `Zohran Mamdani expanded on his vow to arrest Prime Minister Benjamin Netanyahu, saying it would show that New York “stands up for international law.” Experts said the move would be impractical and likely illegal.`\
 https://nytimes.com/2025/09/12/nyregion/mamdani-arrest-netanyahu-nyc-mayor.html
-
-**Scoop City: Three Week 2 matchups to watch**\
-`Three matchups to watch in Week 2, plus a look at Aaron Rodger's performance`\
-https://nytimes.com/athletic/6623880/2025/09/12/week-2-preview-scoop-city-nfl/
-
-**Atlantic Settles Writer’s Suit Over Article It Retracted**\
-`The writer, Ruth Shalit Barrett, had accused the magazine of defaming her in a lengthy editor’s note.`\
-https://nytimes.com/2025/09/12/business/media/atlantic-defamation-lawsuit-settlement.html
-
-**Flashback: Your Weekly History Quiz, Sept. 13, 2025**\
-`Can you sort 8 historical events?`\
-https://nytimes.com/interactive/2025/09/12/upshot/flashback.html
-
-**Canelo Álvarez requested weigh-in for bout with Terence Crawford to be private**\
-`Boxing weigh-ins are supposed to be public, but Canelo Álvarez asked for and was granted an exception, according to Nevada regulators.`\
-https://nytimes.com/athletic/6623844/2025/09/12/canelo-alvarez-weigh-in-terence-crawford-private/
 
