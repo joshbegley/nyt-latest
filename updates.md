@@ -1,3 +1,15 @@
+**Jeff Bezos, Jessica Chastain and More at Fashion Week’s Starriest Gala**\
+`Hollywood’s most recognizable faces packed Kering’s gala in New York City on Thursday.`\
+https://nytimes.com/2025/09/12/style/kering-gala-nyc-photos.html
+
+**A Plea for President Trump With a Fragile Country on Edge**\
+`Even if it sounds unrealistic, Trump can do something important with the entire country frayed and on edge: push for calm and unity.`\
+https://nytimes.com/2025/09/12/opinion/donald-trump-charlie-kirk-aftermath.html
+
+**Trump Administration Seeks Pilot Projects for Air Taxis**\
+`The projects would allow small electric or hybrid aircraft to carry passengers or cargo before federal regulators approve their commercial use.`\
+https://nytimes.com/2025/09/12/business/trump-air-taxi-faa.html
+
 **Ego Nwodim Leaves ‘S.N.L.’ After 7 Seasons**\
 `Nwodim, known for characters including Lisa From Temecula, is the fifth cast member to leave the sketch comedy show this summer.`\
 https://nytimes.com/2025/09/12/arts/television/ego-nwodim-leaving-snl.html
