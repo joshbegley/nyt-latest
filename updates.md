@@ -1,3 +1,7 @@
+**Charlie Kirk’s podcast goes on with Friday’s episode.**\
+`By Alyce McFadden`\
+https://nytimes.com/live/2025/09/12/us/charlie-kirk-news-suspect/charlie-kirks-podcast-goes-on-with-fridays-episode
+
 **ICE Officer Fatally Shoots Man During Traffic Stop**\
 `A U.S. Immigration and Customs Enforcement officer fatally shot a man in the Chicago area who drove his car into officers while evading a vehicle stop, officials said.`\
 https://nytimes.com/video/us/100000010396203/ice-shooting-chicago.html

@@ -1,3 +1,7 @@
+**Charlie Kirk’s podcast goes on with Friday’s episode.**\
+`By Alyce McFadden`\
+https://nytimes.com/live/2025/09/12/us/charlie-kirk-news-suspect/charlie-kirks-podcast-goes-on-with-fridays-episode
+
 **ICE Officer Fatally Shoots Man During Traffic Stop**\
 `A U.S. Immigration and Customs Enforcement officer fatally shot a man in the Chicago area who drove his car into officers while evading a vehicle stop, officials said.`\
 https://nytimes.com/video/us/100000010396203/ice-shooting-chicago.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/12/business/tesla-elon-musk-pay-robyn-denholm.html
 **Overlooked No More: Eglantyne Jebb, Who Started a Movement With Save the Children**\
 `She co-founded the organization after she was outraged to learn that children were starving after World War I, when the British blocked aid to several countries.`\
 https://nytimes.com/2025/09/12/obituaries/eglantyne-jebb-overlooked.html
-
-**Clippers owner Steve Ballmer invested additional $10M in company sponsoring Kawhi Leonard**\
-`As Aspiration struggled to pay bills in March 2023, LA Clippers owner Steve Ballmer invested millions more into the company.`\
-https://nytimes.com/athletic/6624269/2025/09/12/clippers-steve-ballmer-kawhi-leonard-aspiration-investment-sponsorship/
 
