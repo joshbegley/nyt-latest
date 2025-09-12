@@ -1,3 +1,11 @@
+**Appeals Court Lets Government Cut Off Medicaid Funds to Planned Parenthood**\
+`The ruling temporarily put back in effect a law banning Medicaid reimbursements to the organization, jeopardizing a large share of its revenue.`\
+https://nytimes.com/live/2025/09/11/us/trump-news/medicaid-funds-planned-parenthood
+
+**False Tips and Chicken Coops: The Chaotic Hunt for Charlie Kirk’s Killer**\
+`After a day of hunting for a suspect in the assassination, investigators pleaded for help from the public.`\
+https://nytimes.com/2025/09/11/us/charlie-kirk-manhunt.html
+
 **Mamdani Meets Bloomberg, Once a Sworn Foe, for a ‘Cordial’ Discussion**\
 `Michael R. Bloomberg, who spent $8 million trying to torpedo Zohran Mamdani’s Democratic primary bid, advised him on how to fill key City Hall positions.`\
 https://nytimes.com/2025/09/11/nyregion/mamdani-bloomberg-mayor.html
