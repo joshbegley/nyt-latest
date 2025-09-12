@@ -1,3 +1,7 @@
+**The Last Person to Question Charlie Kirk**\
+`Millions of people saw the brief exchange between the right-wing political activist and a liberal TikToker after footage of the assassination spread like wildfire across social media.`\
+https://nytimes.com/2025/09/11/us/charlie-kirk-question-utah-kozak.html
+
 **Fans hold 'Free Angel' signs as Reese misses Sky's final regular-season game**\
 `The signs expressed displeasure with the Sky for suspending Reese after she made public comments about the state of the team.`\
 https://nytimes.com/athletic/6622000/2025/09/11/angel-reese-sky-absence-signs-wnba/

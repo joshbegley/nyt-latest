@@ -26,8 +26,8 @@ https://nytimes.com/2025/09/11/us/politics/homeless-funding-trump-hud-lawsuit.ht
 `To understand how Machado influenced Stewart, you’d have to go back to 2010 when Stewart wasn't even a teenager yet.`\
 https://nytimes.com/athletic/6621679/2025/09/11/cincinnati-reds-sal-stewart-manny-machado/
 
-**He was the last person to question Charlie Kirk.**\
-`Millions of people would see their brief exchange when footage of the assassination spread like wildfire across social media.`\
+**The Last Person to Question Charlie Kirk**\
+`Millions of people saw the brief exchange between the right-wing political activist and a liberal TikToker after footage of the assassination spread like wildfire across social media.`\
 https://nytimes.com/2025/09/11/us/charlie-kirk-question-utah-kozak.html
 
 **Yankees' Aaron Judge ties Joe DiMaggio at fourth all time in franchise home run list**\
