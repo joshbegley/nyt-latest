@@ -1,3 +1,11 @@
+**False Threats Target H.B.C.U.s, Forcing Closures**\
+`Several historically Black colleges and universities canceled classes and events on Friday after a series of threats. The F.B.I. said the calls were hoaxes.`\
+https://nytimes.com/2025/09/12/us/false-threats-target-hbcus-forcing-closures.html
+
+**8 Phrases to Help Your Relationship Thrive**\
+`We asked couples therapists to share the magic words that can strengthen bonds, even in the middle of a disagreement.`\
+https://nytimes.com/2025/09/12/well/family/couples-therapy-argument-phrases.html
+
 **Good News From Toronto: The Art of Filmmaking Is Alive and Thriving**\
 `Park Chan-wook’s “No Other Choice” and Agnieszka Holland’s “Franz” led a strong festival slate, even with clunkers like a Paula Deen documentary.`\
 https://nytimes.com/2025/09/12/movies/toronto-film-festival-highlights.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/12/technology/roblox-lawsuit-child-safety.html
 **Rubio Leads Charge in Trump’s New War in Latin America**\
 `The secretary of state is shaping what could be the most consequential military actions of President Trump’s second term.`\
 https://nytimes.com/2025/09/12/us/politics/rubio-trump-drugs-venezuela.html
-
-**Glasner denies Palace resignation threat over possible Guehi sale**\
-`Glasner has denied reports that he told chairman Steve Parish that if Guehi was sold then he would quit his position as Palace manager.`\
-https://nytimes.com/athletic/6623183/2025/09/12/glasner-crystal-palace-guehi-transfer/
-
-**John Mew, Unorthodox Orthodontist Who Went Viral, Dies at 96**\
-`He gained a following for techniques, notably one known as mewing, that he said could help fix crooked teeth without surgery. The medical establishment disagreed.`\
-https://nytimes.com/2025/09/12/health/john-mew-dead.html
 
