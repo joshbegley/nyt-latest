@@ -1,3 +1,11 @@
+**Brazil’s Former President Was Convicted of Plotting a Coup. What Comes Next?**\
+`Jair Bolsonaro was sentenced to 27 years in prison for conspiring to cling to power after losing the 2022 elections.`\
+https://nytimes.com/2025/09/12/world/americas/bolsonaro-sentenced-prison-brazil.html
+
+**E.P.A. to Stop Collecting Emissions Data From Polluters**\
+`The data, from thousands of coal-burning power plants, oil refineries, steel mills and other industrial facilities, is the country’s most comprehensive way to track greenhouse gases.`\
+https://nytimes.com/2025/09/12/climate/epa-emissions-data-collection-halt.html
+
 **Bears to add kicker Jake Moody to practice squad; is the pressure on for Cairo Santos?**\
 `Do the Bears still trust Santos after Monday's hiccups, or is a pivot to Moody under serious consideration?`\
 https://nytimes.com/athletic/6623888/2025/09/12/chicago-bears-jake-moody-cairo-santos-kicker/
@@ -29,12 +37,4 @@ https://nytimes.com/paidpost/mass-general-brigham/mass-general-brigham-circle-of
 **A Bullet Casing Quoted ‘Bella Ciao,’ an Antifascist Anthem Now Popular With Video Gamers**\
 `The phrase, inscribed on an unfired casing tied to the man arrested in Charlie Kirk’s shooting, was popular in Italy after World War II. It has recently resurfaced in a Netflix series and video games.`\
 https://nytimes.com/2025/09/12/us/tyler-robinson-bella-ciao-bullet.html
-
-**Cubs' Kyle Tucker not likely to be activated off injured list when eligible Tuesday**\
-`Manager Craig Counsell didn't indicate Tucker had suffered a setback but did say the team wanted him to be asymptomatic before a return.`\
-https://nytimes.com/athletic/6623777/2025/09/12/cubs-kyle-tucker-injured-list-timeline/
-
-**‘This Is Our Nepal’: A Wounded Gen Z Protester’s Fight for a Better Future**\
-`Deepraj Rai, 23, was shot in the thigh during antigovernment demonstrations in Nepal. As he recovered at the hospital, he shared his hopes for the youth-led movement.`\
-https://nytimes.com/video/world/asia/100000010388490/nepal-antigovernment-protest.html
 
