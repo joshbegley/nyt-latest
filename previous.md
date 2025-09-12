@@ -1,6 +1,26 @@
+**British team most unscathed from Saint-Tropez Sail GP opening day**\
+`The notoriously tricky race course in France proved a match for some teams on Friday`\
+https://nytimes.com/athletic/6623441/2025/09/12/saint-tropez-sail-grand-prix-report-opening-day/
+
+**17 Nonfiction Books We’re Looking Forward to This Fall**\
+`The season brings histories by Jill Lepore, David McCullough and Joseph J. Ellis, memoirs by Margaret Atwood and Susan Orlean, and more.`\
+https://nytimes.com/2025/09/12/books/review/fall-nonfiction-preview-podcast.html
+
+**Theater to Stream: Mark Rylance in ‘Twelfth Night,’ and More**\
+`This month’s picks include a 1974 adaptation of the Eugene Ionesco play “Rhinoceros,” starring Gene Wilder and Zero Mostel, and a behind-the-scenes look at Disney.`\
+https://nytimes.com/2025/09/12/theater/theater-plays-streaming-twelfth-night.html
+
+**NBA's new long-range heave rule might bring more excitement for fans**\
+`The NBA is trying something new by adjusting its quarter-ending heave rule.`\
+https://nytimes.com/athletic/6621472/2025/09/12/nba-heaves-adam-silver-nikola-jokic-trae-young-stephen-curry/
+
+**Belgian Authorities Say $10 Million Supply of Birth Control Has Not Yet Been Destroyed**\
+`Contraceptives bought by U.S.A.I.D. have been in limbo in a Belgian warehouse. The U.S. government said the products were destroyed, but local authorities found them.`\
+https://nytimes.com/2025/09/12/world/europe/trump-birth-control.html
+
 **Trump Downplays the ‘Radical Right’ and Says the Left Is the Problem**\
 `President Trump dismissed a suggestion that there were extremists on both sides of the political spectrum.`\
-https://nytimes.com/live/2025/09/12/us/charlie-kirk-news-suspect/trump-charlie-kirk-shooting
+https://nytimes.com/2025/09/12/us/politics/trump-charlie-kirk-shooting.html
 
 **Assessing early fantasy football injury fallout, but first, add Harold Fannin**\
 `Andy Behrens is effusive in his praise of rookie Harold Fannin as he breaks down the big fantasy football news heading into Week 2.`\
@@ -17,24 +37,4 @@ https://nytimes.com/2025/09/12/health/fda-covid-vaccines-injuries-deaths.html
 **Here’s What Some of the Bullet Casing Engravings in the Charlie Kirk Shooting Mean**\
 `Many of the messages, the authorities said, adopt the flippant, sarcastic chatter often found on online message boards and in-game chats.`\
 https://nytimes.com/2025/09/12/us/charlie-kirk-bullet-casings-engravings.html
-
-**Bills' Ed Oliver out for Week 2, T.J. Sanders expected to start versus Jets**\
-`The team is thin as it is at defensive tackle, even before the Oliver injury.`\
-https://nytimes.com/athletic/6623193/2025/09/12/bills-ed-oliver-injury-tj-sanders/
-
-**Jane Austen Loved Music. What Was on Her Playlist?**\
-`The novelist’s sheet music collection reveals new perspectives on her life and work.`\
-https://nytimes.com/2025/09/12/arts/music/jane-austen-music.html
-
-**Packers fans chant 'Thank you, Jerry,' as Micah Parsons delivers again**\
-`Parsons has 1.5 sacks in his first two games with the Packers, though his impact extends beyond the stat sheet.`\
-https://nytimes.com/athletic/6623257/2025/09/12/cowboys-packers-micah-parsons-chants-jerry-jones/
-
-**Is ‘The Pitt’ Really an ‘ER’ Spinoff? Michael Crichton’s Estate Says It Is.**\
-`The estate of the best-selling author, which has intellectual property rights to “ER,” and the creators of the new hit TV show are waging a legal battle over whether it’s a stealth reboot.`\
-https://nytimes.com/2025/09/12/business/the-pitt-er-michael-crichton-lawsuit.html
-
-**'Under the radar' names you should know entering Oilers' rookie and main camps**\
-`Three names destined to land with the Bakersfield Condors this season who could make an impact on the Oilers' roster in the future.`\
-https://nytimes.com/athletic/6620198/2025/09/12/under-the-radar-names-oilers-rookie-main-camp/
 
