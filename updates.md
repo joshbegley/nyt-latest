@@ -1,3 +1,7 @@
+**Review: Gustavo Dudamel Gives a Glimpse of New York’s Future**\
+`The superstar conductor opened the New York Philharmonic’s season, with his signature thrills that make a traditional concert format seem exceptional.`\
+https://nytimes.com/2025/09/12/arts/music/review-gustavo-dudamel-new-york-philharmonic-opening-night.html
+
 **False Threats Target H.B.C.U.s, Forcing Closures**\
 `Several historically Black colleges and universities canceled classes and events on Friday after a series of threats. The F.B.I. said the calls were hoaxes.`\
 https://nytimes.com/2025/09/12/us/false-threats-target-hbcus-forcing-closures.html
