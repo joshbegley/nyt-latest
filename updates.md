@@ -1,3 +1,11 @@
+**Homeless Funding Was Limited to Groups Aligned With Trump Policies, Suit Says**\
+`The Trump administration had imposed conditions on grants awarded by the Department of Housing and Urban Development that critics viewed as overtly political.`\
+https://nytimes.com/2025/09/11/us/politics/homeless-funding-trump-hud-lawsuit.html
+
+**Inside the relationship between Padres' Manny Machado and Reds' rookie Sal Stewart**\
+`To understand how Machado influenced Stewart, you’d have to go back to 2010 when Stewart wasn't even a teenager yet.`\
+https://nytimes.com/athletic/6621679/2025/09/11/cincinnati-reds-sal-stewart-manny-machado/
+
 **He was the last person to question Charlie Kirk.**\
 `Millions of people would see their brief exchange when footage of the assassination spread like wildfire across social media.`\
 https://nytimes.com/live/2025/09/11/us/charlie-kirk-shooting-news/charlie-kirk-question-utah-kozak
