@@ -1,3 +1,7 @@
+**Yankees' Aaron Judge passes Joe DiMaggio on franchise's all-time home run list**\
+`The only three hitters who have more home runs in a Yankees uniform are Babe Ruth (659), Mickey Mantle (536) and Lou Gehrig (493).`\
+https://nytimes.com/athletic/6624654/2025/09/12/new-york-yankees-aaron-judge-home-run-history/
+
 **Hasan Piker on Charlie Kirk**\
 `The two men had very different politics. But as a fellow star of a new political media class, the left-wing streamer had a personal reaction to Mr. Kirk’s assassination.`\
 https://nytimes.com/2025/09/12/style/hasan-piker-charlie-kirk.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/12/us/politics/spencer-cox-trump-charlie-kirk.html
 **From Scholarship Winner to Wanted Man: The Path of the Kirk Shooting Suspect**\
 `Tyler Robinson, the man accused of shooting Charlie Kirk, was a stellar student in high school, raised in a Republican home in Southwest Utah and training to be an electrician.`\
 https://nytimes.com/2025/09/12/us/politics/tyler-robinson-charlie-kirk.html
-
-**Charlie Kirk’s podcast goes on with Friday’s episode.**\
-`By Alyce McFadden`\
-https://nytimes.com/live/2025/09/12/us/charlie-kirk-news-suspect/charlie-kirks-podcast-goes-on-with-fridays-episode
 
