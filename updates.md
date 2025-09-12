@@ -1,3 +1,11 @@
+**Manchester United live Q&A: Andy Mitten answers your questions**\
+`Ask your questions of Andy Mitten`\
+https://nytimes.com/athletic/6616656/2025/09/12/manchester-united-andy-mitten/
+
+**Marco Rubio to Hold White House Talks With Qatari Premier After Israeli Strikes**\
+`The U.S. secretary of state will meet with Sheikh Mohammed bin Abdulrahman al-Thani on Friday, after an attack that has rattled Persian Gulf states.`\
+https://nytimes.com/2025/09/12/world/middleeast/qatar-prime-minister-trump-rubio.html
+
 **Marco Rubio to Hold White House Talks With Qatari Premier After Israeli Strikes**\
 `The U.S. secretary of state will meet with Sheikh Mohammed bin Abdulrahman al-Thani on Friday, after an attack that has rattled Gulf States.`\
 https://nytimes.com/2025/09/12/world/middleeast/qatar-prime-minister-trump-rubio.html

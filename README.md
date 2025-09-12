@@ -1,3 +1,15 @@
+**Freed by U.S., South Korean Workers Return Home to Tearful Cheers**\
+`The workers, whose detention in a workplace immigration sweep set off outrage in South Korea, expressed both relief and anger.`\
+https://nytimes.com/2025/09/12/world/asia/korean-workers-georgia-arrest.html
+
+**Supporters of Ukraine Anti-Corruption Investigator Call His Jailing Absurd**\
+`The case of a detective who activists say was investigating close associates of President Volodymyr Zelensky is seen as a bellwether.`\
+https://nytimes.com/2025/09/12/world/europe/ukraine-corruption.html
+
+**Bayindir to start for Man United in derby - Amorim**\
+`Lammens completed a deadline-day transfer to United from Royal Antwerp in a €21m deal while Onana has joined Trabzonspor on loan.`\
+https://nytimes.com/athletic/6623030/2025/09/12/manchester-united-goalkeeper-bayindir-lammens/
+
 **Manchester United live Q&A: Andy Mitten answers your questions**\
 `Ask your questions of Andy Mitten`\
 https://nytimes.com/athletic/6616656/2025/09/12/manchester-united-andy-mitten/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/12/business/dealbook/openai-microsoft-governance-cos
 **Matt Rhule's fiery halftime speech — in a blowout win — a sign of Nebraska's growing expectations**\
 `"They don't fear you," he said. "They don't respect you enough yet. And if that sounds like coachspeak, then you have the wrong brain."`\
 https://nytimes.com/athletic/6621296/2025/09/12/nebraska-matt-rhule-halftime-speech/
-
-**NFL announcer superlatives: Best in the booth for football's biggest moments**\
-`To celebrate the NFL's return, we gave out a few superlatives to those who soundtrack our Sundays (and Mondays, and Thursdays).`\
-https://nytimes.com/athletic/6616630/2025/09/12/nfl-announcer-superlatives-joe-buck-jim-nantz-al-michaels-mike-tirico/
-
-**Ohio beat West Virginia last week. So what can Ohio State learn against the Bobcats?**\
-`After vastly different games against Texas and Grambling, Ohio State will find a middle ground in its nonconference finale against Ohio.`\
-https://nytimes.com/athletic/6620876/2025/09/12/ohio-state-football-ohio-bobcats-preview/
-
-**Liam Delap, a hamstring tear and a frustrating start to life at Chelsea**\
-`The summer signing from Ipswich made an impact at the Club World Cup but will have to wait to show the home supporters what he can do`\
-https://nytimes.com/athletic/6622387/2025/09/12/liam-delap-chelsea-hamstring/
 
