@@ -1,3 +1,7 @@
+**Emiliano Martinez 'best goalkeeper in the world' -Unai Emery**\
+`The Argentina international failed to secure a move to Manchester United on deadline day.`\
+https://nytimes.com/athletic/6623149/2025/09/12/martinez-goalkeeper-aston-villa-emery/
+
 **Saliba returns to Arsenal training, could feature against Forest**\
 `Saliba was forced off four minutes into Arsenal’s 1-0 away loss to Liverpool with a twisted ankle that he sustained during the warm-up.`\
 https://nytimes.com/athletic/6623040/2025/09/12/william-saliba-arsenal-injury-latest/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/12/business/ai-investing-value-stocks.html
 **Prince Harry Meets War Veterans in Surprise Visit to Ukraine**\
 `The prince arrived in Kyiv on his second trip to the country this year. The visit comes after his charity supporting wounded soldiers said it would expand post-conflict rehabilitation.`\
 https://nytimes.com/2025/09/12/world/europe/prince-harry-ukraine-kyiv-war.html
-
-**U.S. sprinter Erriyon Knighton given 4-year doping ban after CAS ruling**\
-`The 21-year-old is a two-time Olympic finalist and finished fourth in Paris a year ago.`\
-https://nytimes.com/athletic/6622927/2025/09/12/erriyon-knighton-doping-ban-cas/
 
