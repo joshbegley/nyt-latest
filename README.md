@@ -1,40 +1,40 @@
-**Trump Administration Live Updates: Qatar Leader to Meet With Rubio After Israeli Strikes in Doha**\
-``\
-https://nytimes.com/live/2025/09/12/us/trump-news
+**Read the U.K. Report on Palestine Action**\
+`This intelligence assessment helped shape the British government’s decision to ban Palestine Action.`\
+https://nytimes.com/interactive/2025/09/12/world/europe/uk-intelligence-report-palestine-action.html
 
-**Israel players withdraw from Basque chess tournament after flag ban request**\
-`The Sestao chess club wanted to remove the Israel flag "a sign of rejection of Israel's systematic violation of human rights"`\
-https://nytimes.com/athletic/6622821/2025/09/12/israel-chess-tournament-basque-country/
+**How Concerned Are You About Political Violence in America?**\
+`What’s your reaction to the assassination of Charlie Kirk, a conservative organizer and activist?`\
+https://nytimes.com/2025/09/12/learning/how-concerned-are-you-about-political-violence-in-america.html
 
-**2025 World Athletics Championships: The rivalries to watch in Tokyo**\
-`From Noah Lyles vs Letsile Tebogo to Nafi Thiam vs Anna Hall, these are the pulsating match-ups to look out for`\
-https://nytimes.com/athletic/6613878/2025/09/12/world-athletics-championships-tokyo-rivalry/
+**The Billion-Dollar Stakes for OpenAI**\
+`The artificial intelligence giant is closing in on a deal with Microsoft regarding its future governance, but other questions stand over its huge costs.`\
+https://nytimes.com/2025/09/12/business/dealbook/openai-microsoft-governance-costs.html
 
-**Trashing the leather: The hidden cost of Patrick Bailey's elite pitch framing skills**\
-`Pulling borderline pitches into the strike zone causes the Giants' Gold Glove catcher to burn through catcher's mitts throughout the season.`\
-https://nytimes.com/athletic/6621510/2025/09/12/sf-giants-patrick-bailey-catchers-mitt-pitch-framing/
+**Matt Rhule's fiery halftime speech — in a blowout win — a sign of Nebraska's growing expectations**\
+`"They don't fear you," he said. "They don't respect you enough yet. And if that sounds like coachspeak, then you have the wrong brain."`\
+https://nytimes.com/athletic/6621296/2025/09/12/nebraska-matt-rhule-halftime-speech/
 
-**Jonathan Toews looks rusty in his first skates with the Jets. Why that's great news**\
-`Jonathan Toews will need some time to get up to speed but he's far from washed up.`\
-https://nytimes.com/athletic/6620606/2025/09/12/jonathan-toews-winnipeg-jets/
+**NFL announcer superlatives: Best in the booth for football's biggest moments**\
+`To celebrate the NFL's return, we gave out a few superlatives to those who soundtrack our Sundays (and Mondays, and Thursdays).`\
+https://nytimes.com/athletic/6616630/2025/09/12/nfl-announcer-superlatives-joe-buck-jim-nantz-al-michaels-mike-tirico/
 
-**NFL Week 2 schedule rankings: Top 5 revenge games on Sunday**\
-`Super Bowl rematch. College QB reunion. Ben Johnson back in Detroit. Week 2 ... This Time It's Personal.`\
-https://nytimes.com/athletic/6620587/2025/09/12/nfl-week-2-revenge-chiefs-eagles-metcalf-seahawks-how-to-watch/
+**Ohio beat West Virginia last week. So what can Ohio State learn against the Bobcats?**\
+`After vastly different games against Texas and Grambling, Ohio State will find a middle ground in its nonconference finale against Ohio.`\
+https://nytimes.com/athletic/6620876/2025/09/12/ohio-state-football-ohio-bobcats-preview/
 
-**How to watch NASCAR's Bass Pro Shops Night Race at Bristol as playoff field trims to 12**\
-`Few tracks are more storied than Bristol Motor Speedway, where four drivers will be eliminated Saturday night. `\
-https://nytimes.com/athletic/6621695/2025/09/12/nascar-cup-series-bristol-night-race-elimination-how-to-watch/
+**Liam Delap, a hamstring tear and a frustrating start to life at Chelsea**\
+`The summer signing from Ipswich made an impact at the Club World Cup but will have to wait to show the home supporters what he can do`\
+https://nytimes.com/athletic/6622387/2025/09/12/liam-delap-chelsea-hamstring/
 
-**How 'sleeping giant' Liga MX is poised to capitalize on 2026 World Cup bump**\
-`Between foreign investment, a new rights deal and a decision that may put league games in U.S. stadiums, Mexico's top flight is ready to pop`\
-https://nytimes.com/athletic/6618473/2025/09/12/liga-mx-atlas-sale-mls-matches-usa-world-cup/
+**Vancouver Canucks top 10 prospects: Ranking No. 5 to No. 1 before the season**\
+`While the Canucks' pipeline isn't exactly overflowing from a volume perspective, there is some bona fide high-end talent at the apex.`\
+https://nytimes.com/athletic/6621638/2025/09/12/canucks-top-10-prospects-ranking/
 
-**'Mr. 6-7’ is actually a 6-3 high school hoops star in addition to his social media fame**\
-`He's an internet personality but he's also considering scholarship offers from some of the nation's top programs.`\
-https://nytimes.com/athletic/6619536/2025/09/12/basketball-taylen-kinney-high-school-social-trend/
+**How Ike Howard, Matt Savoie and Connor McDavid could shape the Oilers' future**\
+`There’s a ton of promise around Howard and Savoie. They represent a next wave of talent the organization hasn’t had much of in recent years.`\
+https://nytimes.com/athletic/6621112/2025/09/12/oilers-ike-howard-matt-savoie-connor-mcdavid-future/
 
-**Watching the NBA in 2025 is going to cost you. How much? Up to $982**\
-`The NBA may be a "highlights league," according to Adam Silver, but how much will it cost to watch your favorite team and national games?`\
-https://nytimes.com/athletic/6621237/2025/09/12/nba-games-2025-streaming-cost-price/
+**Chelsea to sign Strasbourg striker Emegha in 2026**\
+`BlueCo, the company the Todd Boehly-Clearlake Capital consortium created when buying Chelsea in 2022, owns both clubs involved in the deal.`\
+https://nytimes.com/athletic/6622905/2025/09/12/chelsea-transfer-news-strasbourg-emegha/
 
