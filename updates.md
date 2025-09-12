@@ -1,3 +1,7 @@
+**Alperen Şengün, Turkey dominate Giannis and Greece to reach EuroBasket final**\
+`The stage is set. It will be Alperen Şengün vs. Franz Wagner and Dennis Schröder in the EuroBasket final on Sunday. `\
+https://nytimes.com/athletic/6623966/2025/09/12/alperen-sengun-giannis-turkey-greece-eurobasket-final/
+
 **Group led by Tom Dundon reaches agreement to buy Portland Trail Blazers**\
 `A statement from the Estate of Paul G. Allen said the ownership group “confirmed their intention to keep the team in Portland.”`\
 https://nytimes.com/athletic/6624093/2025/09/12/portland-trail-blazers-sale-tom-dundon/
