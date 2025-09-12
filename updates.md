@@ -1,3 +1,11 @@
+**Real Madrid's Rudiger out for prolonged spell with muscle injury**\
+`The 32-year-old picked up two injuries last season but played 55 times for the Spanish side`\
+https://nytimes.com/athletic/6623740/2025/09/12/real-madrid-defender-antonio-rudiger-injury/
+
+**Man Fatally Shot in Confrontation With ICE Officers in Chicago Area**\
+`The shooting took place amid a federal crackdown on illegal immigration in the region, known as Operation Midway Blitz.`\
+https://nytimes.com/2025/09/12/us/man-fatally-shot-in-confrontation-with-ice-officers-in-chicago-area.html
+
 **Jeff Bezos, Jessica Chastain and More at Fashion Week’s Starriest Gala**\
 `Hollywood’s most recognizable faces packed Kering’s gala in New York City on Thursday.`\
 https://nytimes.com/2025/09/12/style/kering-gala-nyc-photos.html
