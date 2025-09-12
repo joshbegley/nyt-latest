@@ -1,3 +1,19 @@
+**Trump Says It Looks Like Mamdani Is ‘Going to Win’**\
+`President Trump said on Friday that he believed Zohran Mamdani, the Democratic nominee for mayor of New York City, would win, likening that outcome to a “rebellion.”`\
+https://nytimes.com/2025/09/12/nyregion/trump-mamdani-nyc-mayor.html
+
+**Salt strikes 141 off 60 balls to demolish England T20 record books**\
+`The 29-year-old batter recorded the biggest individual score by an England player in the format`\
+https://nytimes.com/athletic/6624104/2025/09/12/phil-salt-t20-record-score-england/
+
+**Special Episode: A Suspect Is Caught in Charlie Kirk’s Assassination**\
+`What we know about the arrest and the alleged killer’s motives.`\
+https://nytimes.com/2025/09/12/podcasts/the-daily/charlie-kirk-news-suspect.html
+
+**Charlie Kirk’s books become best sellers after his killing.**\
+`By Elizabeth A. Harris`\
+https://nytimes.com/live/2025/09/12/us/charlie-kirk-news-suspect/charlie-kirk-books-sales
+
 **What Charlie Kirk Meant to His Young Supporters**\
 `At a memorial outside of the hospital where Charlie Kirk died, mourners described his impact on younger generations.`\
 https://nytimes.com/video/us/politics/100000010392659/charlie-kirk-memorial-youth-influence-reactions.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6623973/2025/09/12/west-virginia-pitt-backyard-braw
 **What We Know About Bolsonaro’s Conviction**\
 `Brazil’s top court convicted former President Jair Bolsonaro on charges of plotting a coup to remain in power after losing the 2022 presidential election. Ana Ionova, reporting from Brasília, explains the charges and what comes next.`\
 https://nytimes.com/video/world/americas/100000010388194/what-we-know-about-bolsonaros-conviction.html
-
-**Brazil’s Former President Was Convicted of Plotting a Coup. What Comes Next?**\
-`Jair Bolsonaro was sentenced to 27 years in prison for conspiring to cling to power after losing the 2022 elections.`\
-https://nytimes.com/2025/09/12/world/americas/bolsonaro-sentenced-prison-brazil.html
-
-**E.P.A. To Stop Collecting Emissions Data From Polluters**\
-`The proposal would lift requirements for thousands of coal-fired power plants, oil refineries, steel mills and other industrial facilities across the country.`\
-https://nytimes.com/2025/09/12/climate/epa-emissions-data-collection-halt.html
-
-**Bears to add kicker Jake Moody to practice squad; is the pressure on for Cairo Santos?**\
-`Do the Bears still trust Santos after Monday's hiccups, or is a pivot to Moody under serious consideration?`\
-https://nytimes.com/athletic/6623888/2025/09/12/chicago-bears-jake-moody-cairo-santos-kicker/
-
-**Long jump world record holder Powell suspended from athletics after safeguarding violation**\
-`The 61-year-old coached women's track and field after retiring but left his job at Azusa Pacific University in 2024`\
-https://nytimes.com/athletic/6623412/2025/09/12/mike-powell-suspension-athletics-safeguarding-long-jump/
 
