@@ -1,3 +1,11 @@
+**The Big Five - Mini previews of the top five games in Europe this weekend**\
+`A look at five key clashes to follow in Europe's biggest leagues this weekend.`\
+https://nytimes.com/athletic/6621807/2025/09/12/big-five-europe-games-preview/
+
+**Five fascinating games to follow from outside of Europe's big leagues**\
+`Five intriguing games to keep an eye on this weekend, from around the soccer world`\
+https://nytimes.com/athletic/6621979/2025/09/12/high-five-soccer-games-to-watch/
+
 **‘The Wrong Paris’ Review: Texas Wants a Word**\
 `Paris, Texas, may not be the preferred locale for the art student Miranda Cosgrove, but she finds that it might bring her the right man.`\
 https://nytimes.com/2025/09/12/movies/the-wrong-paris-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6622391/2025/09/12/white-sox-vs-guardians-stream-ho
 **How to watch Diamondbacks at Twins: Time, TV, streaming for September 12**\
 `Find out how to watch the Arizona Diamondbacks play the Minnesota Twins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6622389/2025/09/12/diamondbacks-vs-twins-stream-how-to-watch-sept-12/
-
-**How to watch Royals at Phillies: Time, TV, streaming for September 12**\
-`Find out how to watch the Kansas City Royals play the Philadelphia Phillies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6622386/2025/09/12/royals-vs-phillies-stream-how-to-watch-sept-12/
-
-**How to watch Yankees at Red Sox: Time, TV, streaming for September 12**\
-`Find out how to watch the New York Yankees play the Boston Red Sox, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6622385/2025/09/12/yankees-vs-red-sox-stream-how-to-watch-sept-12/
 
