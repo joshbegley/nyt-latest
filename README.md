@@ -1,5 +1,17 @@
-**British team most unscathed from Saint-Tropez Sail GP opening day**\
-`The notoriously tricky race course in France proved a match for some teams on Friday`\
+**What We Know About the Suspect in the Charlie Kirk Shooting**\
+`The suspect, 22, was arrested in southwestern Utah after a friend had contacted the authorities, officials said.`\
+https://nytimes.com/2025/09/12/us/tyler-robinson-charlie-kirk-shooting-suspect.html
+
+**Ready … Set … Spend!**\
+`David Ellison has gotten off to a fast start as the owner of Paramount, at least when it comes to buying things.`\
+https://nytimes.com/2025/09/12/business/ellison-paramount-warner-bros.html
+
+**Derrick Henry responds to Grant Delpit's comments: 'We'll see on Sunday'**\
+`Some surprising trash talk has added spice to Sunday's matchup between the Ravens and Browns.`\
+https://nytimes.com/athletic/6623433/2025/09/12/ravens-browns-derrick-henry-tackle-rb/
+
+**British team most unscathed from Saint-Tropez SailGP opening day**\
+`The notoriously tricky race course in France proved a match for some teams on Friday.`\
 https://nytimes.com/athletic/6623441/2025/09/12/saint-tropez-sail-grand-prix-report-opening-day/
 
 **17 Nonfiction Books We’re Looking Forward to This Fall**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/12/us/politics/trump-charlie-kirk-shooting.html
 **Assessing early fantasy football injury fallout, but first, add Harold Fannin**\
 `Andy Behrens is effusive in his praise of rookie Harold Fannin as he breaks down the big fantasy football news heading into Week 2.`\
 https://nytimes.com/athletic/6623324/2025/09/12/fantasy-football-news-fannin-ekeler-reedweek-2/
-
-**Sabres director of player development Adam Mair placed on leave after arrest**\
-`A former Buffalo player, Mair was arrested on Sept. 4 for allegedly driving while intoxicated.`\
-https://nytimes.com/athletic/6623445/2025/09/12/buffalo-sabres-arrest-adam-mair/
-
-**F.D.A. Reviews Cases of Covid Vaccine Deaths**\
-`The agency plans to present accounts of deaths involving children and birth defects to an influential C.D.C. panel meeting next week.`\
-https://nytimes.com/2025/09/12/health/fda-covid-vaccines-injuries-deaths.html
-
-**Here’s What Some of the Bullet Casing Engravings in the Charlie Kirk Shooting Mean**\
-`Many of the messages, the authorities said, adopt the flippant, sarcastic chatter often found on online message boards and in-game chats.`\
-https://nytimes.com/2025/09/12/us/charlie-kirk-bullet-casings-engravings.html
 
