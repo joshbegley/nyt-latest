@@ -1,3 +1,7 @@
+**California Lawmakers Pass a Mask Ban for Law Enforcement**\
+`The legislation responds to immigration raids by federal agents who have shielded their identity. It heads to Gov. Gavin Newsom, who has not said whether he would sign it.`\
+https://nytimes.com/2025/09/11/us/immigration-raid-mask-ban-california.html
+
 **'I was crushed': John Kelly on losing his dream job with the Blues — and a new opportunity in L.A.**\
 `Kelly was shocked to lose his job with the Blues, but now he's looking forward to an new role with the Kings.`\
 https://nytimes.com/athletic/6620737/2025/09/11/john-kelly-kings-blues/
