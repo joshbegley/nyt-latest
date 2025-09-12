@@ -16,7 +16,7 @@ https://nytimes.com/athletic/6624434/2025/09/12/nfl-decision-explanation-charlie
 
 **Police Used Excessive Force in Fatal Shooting of Queens Man, Board Says**\
 `Win Rozario, 19, was having a mental health crisis when he called 911 seeking help. A police oversight board found that the officers who responded abused their authority.`\
-https://nytimes.com/2025/09/12/nyregion/nypd-excessive-force-queens-shooting.html
+https://nytimes.com/2025/09/12/nyregion/win-rozario-shooting-nypd-excessive-force.html
 
 **For the First Time in the Mayor’s Race, Cuomo Campaigns at a Mosque**\
 `Andrew M. Cuomo, who has faced criticism for bypassing mosques as he seeks to become mayor, spoke of New York as a beacon of opportunity during an appearance in the Bronx.`\
