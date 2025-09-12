@@ -1,3 +1,7 @@
+**One Country Knew What to Do When Its President Tried to Steal an Election**\
+`Brazil just succeeded where we failed.`\
+https://nytimes.com/2025/09/12/opinion/trump-bolsonaro-conviction-democracy.html
+
 **The New York Times in Print for Friday, Sep. 12, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/12/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6619119/2025/09/12/la-liga-salary-limit-barceloa-re
 **Strand Larsen, an awkward Newcastle meeting missed and his enduring value to Wolves**\
 `Wolves are hopeful that the Norwegian will brush off his failed move and do what is best for both club and himself: scoring goals`\
 https://nytimes.com/athletic/6583773/2025/09/12/jorgen-strand-larsen-wolves-newcastle-premier-league/
-
-**Noah Okafor interview: 'I can make a difference in every game'**\
-`The winger speaks to The Athletic about joining Leeds, specialist sprint training, and his World Cup hopes with Switzerland`\
-https://nytimes.com/athletic/6619693/2025/09/12/noah-okafor-interview-leeds-united/
 
