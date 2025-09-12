@@ -1,3 +1,11 @@
+**Bolsonaro Convicted of Plotting Coup**\
+`Former President Jair Bolsonaro of Brazil was sentenced to 27 years in prison for trying to overturn the 2022 election and planning to assassinate his opponent, Luiz Inácio Lula da Silva, the current president.`\
+https://nytimes.com/video/world/americas/100000010394005/bolsonaro-convicted-of-plotting-coup.html
+
+**Scrutiny Mounts Over F.B.I. Under Patel as Kirk’s Killer Remains at Large**\
+`Already, a series of missteps by Kash Patel, the F.B.I. director, in recent months have invited worries that he has eroded public confidence in the agency.`\
+https://nytimes.com/2025/09/11/us/politics/fbi-patel-kirk-shooting.html
+
 **Scrutiny Mounts Over F.B.I. Under Patel as Kirk’s Killer Remains at Large**\
 `Already, a series of missteps by Kash Patel in recent months have invited worries that he has eroded public confidence in the agency.`\
 https://nytimes.com/2025/09/11/us/politics/fbi-patel-kirk-shooting.html

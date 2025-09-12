@@ -1,5 +1,9 @@
+**Bolsonaro Convicted of Plotting Coup**\
+`Former President Jair Bolsonaro of Brazil was sentenced to 27 years in prison for trying to overturn the 2022 election and planning to assassinate his opponent, Luiz Inácio Lula da Silva, the current president.`\
+https://nytimes.com/video/world/americas/100000010394005/bolsonaro-convicted-of-plotting-coup.html
+
 **Scrutiny Mounts Over F.B.I. Under Patel as Kirk’s Killer Remains at Large**\
-`Already, a series of missteps by Kash Patel in recent months have invited worries that he has eroded public confidence in the agency.`\
+`Already, a series of missteps by Kash Patel, the F.B.I. director, in recent months have invited worries that he has eroded public confidence in the agency.`\
 https://nytimes.com/2025/09/11/us/politics/fbi-patel-kirk-shooting.html
 
 **Astros' margin for error is minuscule. Time is running out to increase it**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6621693/2025/09/11/pirates-vs-nationals-stream-how-
 **Ukraine and Gaza Fallout Share the Spotlight With Anna Netrebko**\
 `Demonstrators outside the Royal Opera House protested the Russian soprano’s return to the London stage in a new production of “Tosca.”`\
 https://nytimes.com/2025/09/11/arts/music/tosca-royal-opera-house-netrebko.html
-
-**Air Mail, a Digital Weekly, Is Expected to Be Acquired by Puck**\
-`Graydon Carter, a former editor of Vanity Fair, had been shopping around his media start-up for a year.`\
-https://nytimes.com/2025/09/11/business/media/puck-air-mail-deal.html
 
