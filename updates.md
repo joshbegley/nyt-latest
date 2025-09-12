@@ -1,3 +1,23 @@
+**A Palestinian Lives Near a Landfill After Fleeing Gaza City**\
+`Omar al-Far left Gaza City after Israel ordered the whole city to evacuate. He couldn’t afford rent, so he set up a tent next to a garbage dump near Nuseirat Camp.`\
+https://nytimes.com/video/world/middleeast/100000010395718/gaza-city-palestinian-displacement.html
+
+**Bonnie Addario, 77, Dies; Survivor of Lung Cancer Made Fighting It a Cause**\
+`After climbing in the business world, she received a dire diagnosis, spurring her to found leading nonprofit groups to promote early detection and research.`\
+https://nytimes.com/2025/09/12/health/bonnie-addario-dead.html
+
+**FanDuel to pay Jaguars $5M after ex-employee's betting funds theft: Source**\
+`FanDuel will pay the Jaguars about $5 million to cover losses tied to an ex-Jacksonville employee who stole millions from the team to bet.`\
+https://nytimes.com/athletic/6624243/2025/09/12/fanduel-pay-jaguars-stolen-funds/
+
+**NFL explains decision to hold moment of silence for Charlie Kirk before TNF**\
+`The NFL said it was "the league's decision" to hold a moment of silence ahead of the TNF game. It is up to the clubs Sunday.`\
+https://nytimes.com/athletic/6624434/2025/09/12/nfl-decision-explanation-charlie-kirk-moment-of-silence/
+
+**Police Used Excessive Force in Fatal Shooting of Queens Man, Board Says**\
+`Win Rozario, 19, was having a mental health crisis when he called 911 seeking help. A police oversight board found that the officers who responded abused their authority.`\
+https://nytimes.com/2025/09/12/nyregion/nypd-excessive-force-queens-shooting.html
+
 **For the First Time in the Mayor’s Race, Cuomo Campaigns at a Mosque**\
 `Andrew M. Cuomo, who has faced criticism for bypassing mosques as he seeks to become mayor, spoke of New York as a beacon of opportunity during an appearance in the Bronx.`\
 https://nytimes.com/2025/09/12/nyregion/andrew-cuomo-visits-mosque-nyc-mayor.html
