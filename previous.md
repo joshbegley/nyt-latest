@@ -1,3 +1,7 @@
+**Hasan Piker on Charlie Kirk**\
+`The two men had very different politics. But as a fellow star of a new political media class, the left-wing streamer had a personal reaction to Mr. Kirk’s assassination.`\
+https://nytimes.com/2025/09/12/style/hasan-piker-charlie-kirk.html
+
 **A Palestinian Lives Near a Landfill After Fleeing Gaza City**\
 `Omar al-Far left Gaza City after Israel ordered the whole city to evacuate. He couldn’t afford rent, so he set up a tent next to a garbage dump near Nuseirat Camp.`\
 https://nytimes.com/video/world/middleeast/100000010395718/gaza-city-palestinian-displacement.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/12/us/politics/tyler-robinson-charlie-kirk.html
 **Charlie Kirk’s podcast goes on with Friday’s episode.**\
 `By Alyce McFadden`\
 https://nytimes.com/live/2025/09/12/us/charlie-kirk-news-suspect/charlie-kirks-podcast-goes-on-with-fridays-episode
-
-**ICE Officer Fatally Shoots Man During Traffic Stop**\
-`A U.S. Immigration and Customs Enforcement officer fatally shot a man in the Chicago area who drove his car into officers while evading a vehicle stop, officials said.`\
-https://nytimes.com/video/us/100000010396203/ice-shooting-chicago.html
 

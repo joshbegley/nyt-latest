@@ -1,3 +1,7 @@
+**Hasan Piker on Charlie Kirk**\
+`The two men had very different politics. But as a fellow star of a new political media class, the left-wing streamer had a personal reaction to Mr. Kirk’s assassination.`\
+https://nytimes.com/2025/09/12/style/hasan-piker-charlie-kirk.html
+
 **Police Used Excessive Force in Fatal Shooting of Queens Man, Board Says**\
 `Win Rozario, 19, was having a mental health crisis when he called 911 seeking help. A police oversight board found that the officers who responded abused their authority.`\
 https://nytimes.com/2025/09/12/nyregion/win-rozario-shooting-nypd-excessive-force.html
