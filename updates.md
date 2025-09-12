@@ -1,3 +1,11 @@
+**Replacing JJ Peterka, prospect watch, Owen Power injury: Sabres mailbag, part 2**\
+`Owen Power suffered a knee injury late last season. Is he recovered and ready to go?`\
+https://nytimes.com/athletic/6620865/2025/09/12/replacing-jj-peterka-owen-power-injury-sabres-mailbag/
+
+**Meet Mercogliano: Live Q&A with The Athletic's new New York Rangers beat writer**\
+`Vincent Mercogliano will hang out for an hour Friday to chat with fans about his coverage and the upcoming NHL season.`\
+https://nytimes.com/athletic/6608510/2025/09/12/new-york-rangers-live-qa-vincent-mercogliano/
+
 **Can the Liberty get on track? Will the Aces' hot streak continue? WNBA playoff storylines to watch**\
 `The WNBA playoffs start Sunday. The first round features three-game series.`\
 https://nytimes.com/athletic/6621345/2025/09/12/wnba-playoffs-lynx-aces-liberty/
