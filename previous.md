@@ -1,3 +1,7 @@
+**Who is Dennis Wong, the Clippers minority owner who invested in Aspiration? What we know**\
+`The successful real estate investor has been a part of two NBA ownership groups in California and now calls Dallas home.`\
+https://nytimes.com/athletic/6621876/2025/09/11/clippers-dennis-wong-kawhi-aspiration/
+
 **Patriots Owner’s Son Drops Out of Boston Mayoral Race**\
 `Josh Kraft had harshly criticized the policies of Mayor Michelle Wu, a fellow Democrat, but his message did not resonate with voters.`\
 https://nytimes.com/2025/09/11/us/patriots-owners-son-drops-out-of-boston-mayoral-race.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6621679/2025/09/11/cincinnati-reds-sal-stewart-mann
 **The Last Person to Question Charlie Kirk**\
 `Millions of people saw the brief exchange between the right-wing political activist and a liberal TikToker after footage of the assassination spread like wildfire across social media.`\
 https://nytimes.com/2025/09/11/us/charlie-kirk-question-utah-kozak.html
-
-**Yankees' Aaron Judge ties Joe DiMaggio at fourth all time in franchise home run list**\
-`It was more history for the 33-year-old Judge, who passed Hall of Fame catcher Yogi Berra for fifth on the franchise home run list Tuesday.`\
-https://nytimes.com/athletic/6621686/2025/09/11/new-york-yankees-aaron-judge-joe-dimaggio/
 

@@ -1,3 +1,7 @@
+**Who is Dennis Wong, the Clippers minority owner who invested in Aspiration? What we know**\
+`The successful real estate investor has been a part of two NBA ownership groups in California and now calls Dallas home.`\
+https://nytimes.com/athletic/6621876/2025/09/11/clippers-dennis-wong-kawhi-aspiration/
+
 **Patriots Owner’s Son Drops Out of Boston Mayoral Race**\
 `Josh Kraft had harshly criticized the policies of Mayor Michelle Wu, a fellow Democrat, but his message did not resonate with voters.`\
 https://nytimes.com/2025/09/11/us/patriots-owners-son-drops-out-of-boston-mayoral-race.html
