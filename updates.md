@@ -1,3 +1,19 @@
+**Bears to add kicker Jake Moody to practice squad; is the pressure on for Cairo Santos?**\
+`Do the Bears still trust Santos after Monday's hiccups, or is a pivot to Moody under serious consideration?`\
+https://nytimes.com/athletic/6623888/2025/09/12/chicago-bears-jake-moody-cairo-santos-kicker/
+
+**Long jump world record holder Powell suspended from athletics after safeguarding violation**\
+`The 61-year-old coached women's track and field after retiring but left his job at Azusa Pacific University in 2024`\
+https://nytimes.com/athletic/6623412/2025/09/12/mike-powell-suspension-athletics-safeguarding-long-jump/
+
+**‘His Death Felt Personal’: Six Conservative Students on Charlie Kirk**\
+`We Don’t Want Echo Chambers`\
+https://nytimes.com/2025/09/12/opinion/campus-conservatives-charlie-kirk.html
+
+**Jerry Jones says Jalen Carter's ejection 'evened up' Parsons-less Cowboys**\
+`Jones also reacted to Green Bay's "Thank you, Jerry" chants: "I'm all for them enjoying and chanting anything that they wanna say."`\
+https://nytimes.com/athletic/6623769/2025/09/12/jerry-jones-micah-parsons-dallas-cowboys/
+
 **MacIntyre has one plan for this Ryder Cup: 'Win points'**\
 `"If I have to sit out every game, I'll sit out every game. If have to play every game, I'll play every game."`\
 https://nytimes.com/athletic/6623320/2025/09/12/robert-macintyre-ryder-cup-bmw-pga-championship-europe-team/
