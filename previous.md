@@ -1,8 +1,12 @@
+**Chiefs announcer Dale Carter resigns, saying team crossed his 'red line'**\
+`Carter is best known for his elongated third down call at Chiefs games, which built suspense during opponent drives.`\
+https://nytimes.com/athletic/6623703/2025/09/12/chiefs-announcer-dale-carter-resigns-saying-team-crossed-red-line/
+
 **Michel Odent, Pioneer of Natural Childbirth, Is Dead at 95**\
 `His innovations, including homelike delivery rooms and birthing pools, were based on his belief that “human birth cannot work as long as a woman is thinking.”`\
 https://nytimes.com/2025/09/12/health/michel-odent-dead.html
 
-**West Virginia and Pitt agree to resume Backyard Brawl rivalry in 2026**\
+**The Backyard Brawl will continue: West Virginia, Pitt rivalry renewed**\
 `After an 11-year hiatus, the Backyard Brawl resumed in 2022 with a four-game series that ends this year.`\
 https://nytimes.com/athletic/6623973/2025/09/12/west-virginia-pitt-backyard-brawl/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/12/opinion/campus-conservatives-charlie-kirk.html
 **MacIntyre has one plan for this Ryder Cup: 'Win points'**\
 `"If I have to sit out every game, I'll sit out every game. If have to play every game, I'll play every game."`\
 https://nytimes.com/athletic/6623320/2025/09/12/robert-macintyre-ryder-cup-bmw-pga-championship-europe-team/
-
-**Jerry Jones says Jalen Carter's ejection 'evened up' Parsons-less Cowboys**\
-`Jones also reacted to Green Bay's "Thank you, Jerry" chants: "I'm all for them enjoying and chanting anything that they wanna say."`\
-https://nytimes.com/athletic/6623769/2025/09/12/jerry-jones-micah-parsons-dallas-cowboys/
 
