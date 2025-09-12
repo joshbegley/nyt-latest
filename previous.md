@@ -1,40 +1,40 @@
-**Plane With Detained Hyundai Workers Arrives in South Korea**\
-`The plane carried about 300 South Koreans who had been detained during a large-scale U.S. immigration raid at a battery factory construction site.`\
-https://nytimes.com/video/world/asia/100000010394452/south-korean-workers-return-home-to-tearful-cheers-after-detention-in-us.html
+**Backyard Brawl between Pitt and West Virginia fueled by trash talk, moonshine and return of Rich Rod**\
+`Rodriguez's return revitalizes an element of the Backyard Brawl. He still feels the pain from the last time he coached in it in 2007.`\
+https://nytimes.com/athletic/6619113/2025/09/12/backyard-brawl-pitt-west-virginia-rivalry/
 
-**Brighton part company with technical director David Weir**\
-`The 55-year-old former Rangers, Everton and Scotland international defender had held the post overseeing player recruitment since May 2022`\
-https://nytimes.com/athletic/6622705/2025/09/12/brighton-david-weir-leaves/
+**A woman has never officiated an NHL game. When will that change?**\
+`With Jen Pawol recently debuting as the first woman to umpire an MLB game, the officiating barrier remains unbroken in hockey. `\
+https://nytimes.com/athletic/6619714/2025/09/12/nhl-first-woman-official-referee-linesman/
 
-**As Jacob deGrom returns to face flailing Mets, what is his New York legacy?**\
-`His dominant period should cement his place in Mets history and merits a jersey retirement ceremony.`\
-https://nytimes.com/athletic/6622103/2025/09/12/mets-rangers-jacob-degrom/
+**Shinzawa: One Bruins prospect I’m sure will make the team out of camp**\
+`Providence coach Ryan Mougenel: “His maturity as a person shows in his game as well.”`\
+https://nytimes.com/athletic/6620619/2025/09/12/bruins-fraser-minten-training-camp/
 
-**The New York Times International Edition in Print for Saturday, Sep. 13, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/09/12/todays-new-york-times-international-edition
+**Why highly drafted kickers fail so often: The Jake Moody blunder was no anomaly**\
+`Early picks like Moody, Cade York and Roberto Aguayo went bust, and drafted kickers have been outperformed by undrafted ones since 2000.`\
+https://nytimes.com/athletic/6621651/2025/09/12/jake-moody-49ers-nfl-kickers/
 
-**Red flags: Caleb Williams, Bears offense must work to get back on the same page**\
-`Growing pains may be inevitable for Williams and the offense, but Bears coaches won't institute a "full tolerance" on sloppiness.`\
-https://nytimes.com/athletic/6621062/2025/09/12/bears-caleb-williams-offense-penalties/
+**C.J. Kayfus' game-winning home run keeps the Guardians' playoff pulse alive**\
+`“That was truly, probably the best feeling I’ve ever had in my life right there," Kayfus said.`\
+https://nytimes.com/athletic/6622049/2025/09/12/c-j-kayfus-game-winning-home-run-guardians-playoff-pulse/
 
-**Jota Silva set for Besiktas medical ahead of move from Nottingham Forest**\
-`Jota is set to depart Nottingham Forest on loan, with the deal expected to include an option to make the move permanent.`\
-https://nytimes.com/athletic/6622616/2025/09/12/jota-silva-besiktas-nottingham-forest-transfer/
+**Phillies offense, Jesús Luzardo shine as NL East lead grows to 11**\
+`It was "probably as impressive a win as we've had all year," Rob Thomson said of the Phillies' 6-4 win over the Mets after trailing by four.`\
+https://nytimes.com/athletic/6622148/2025/09/12/phillies-sweep-mets-jesus-luzardo/
 
-**Here’s the latest.**\
-`By Nicholas Bogel-Burroughs, Devlin Barrett, Tim Arango, Jack Healy and Francesca Regalado`\
-https://nytimes.com/live/2025/09/12/us/charlie-kirk-news-suspect/heres-the-latest
+**Armand Membou just had one of the best rookie debuts of the past 20 years**\
+`The first-round right tackle more than held his own against an elite opponent.`\
+https://nytimes.com/athletic/6620724/2025/09/12/armand-membou-rookie-debut-new-york-jets-steelers/
 
-**Live Updates: Charlie Kirk’s Killer Still At Large as Officials Ask Public for Help**\
-`The authorities have released images and video of a person sought in the investigation into the killing of the right-wing activist as the intense manhunt stretched into Friday.`\
-https://nytimes.com/live/2025/09/12/us/charlie-kirk-news-suspect
+**Can Kraken establish clear identity under new coach, GM? Catching up with Jason Botterill**\
+`Botterill ascended from assistant general manager in April and enters the season with a new coach, Lane Lambert, and big expectations.`\
+https://nytimes.com/athletic/6620726/2025/09/12/seattle-kraken-jason-botterill-lebrun/
 
-**The Sex Is Taboo-Breaking. The Niceness Is Shocking.**\
-`Dag Johan Haugerud’s “Oslo Trilogy” movies follow city residents as they navigate contemporary intimacy. What’s provocative is their empathy, the director says.`\
-https://nytimes.com/2025/09/12/movies/oslo-trilogy-dag-johan-haugerud.html
+**'We don't have too much time': Mets give up lead, get swept in Phillies series**\
+`The Mets' latest loss showcased everything that has gone wrong: bad hitting, bad starting pitching, bad relief pitching, bad defense.`\
+https://nytimes.com/athletic/6622209/2025/09/12/mets-lose-phillies-series/
 
-**Newcastle's Wissa, Ramsey out of Wolves game, Woltemade set for debut**\
-`Wissa, the £50million-plus deadline-day addition from Brentford, will be sent for a scan to determine the extent of his problem.`\
-https://nytimes.com/athletic/6622609/2025/09/12/wissa-injury-ramsey-newcastle-woltemade-debut/
+**F.B.I. Faces Growing Scrutiny as Kirk Manhunt Continues, and the Fight Over Nonstick Pans**\
+`Plus, your Friday news quiz.`\
+https://nytimes.com/2025/09/12/podcasts/the-headlines/fbi-kirk-shooter-nonstick-pans.html
 
