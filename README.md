@@ -1,3 +1,11 @@
+**Trump Downplays the ‘Radical Right’ and Says the Left Is the Problem**\
+`President Trump dismissed a suggestion that there were extremists on both sides of the political spectrum.`\
+https://nytimes.com/live/2025/09/12/us/charlie-kirk-news-suspect/trump-charlie-kirk-shooting
+
+**Assessing early fantasy football injury fallout, but first, add Harold Fannin**\
+`Andy Behrens is effusive in his praise of rookie Harold Fannin as he breaks down the big fantasy football news heading into Week 2.`\
+https://nytimes.com/athletic/6623324/2025/09/12/fantasy-football-news-fannin-ekeler-reedweek-2/
+
 **Sabres director of player development Adam Mair placed on leave after arrest**\
 `A former Buffalo player, Mair was arrested on Sept. 4 for allegedly driving while intoxicated.`\
 https://nytimes.com/athletic/6623445/2025/09/12/buffalo-sabres-arrest-adam-mair/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/12/business/the-pitt-er-michael-crichton-lawsuit.htm
 **'Under the radar' names you should know entering Oilers' rookie and main camps**\
 `Three names destined to land with the Bakersfield Condors this season who could make an impact on the Oilers' roster in the future.`\
 https://nytimes.com/athletic/6620198/2025/09/12/under-the-radar-names-oilers-rookie-main-camp/
-
-**Anti-Corruption Crusader Named Nepal’s Leader After Gen Z Protests**\
-`Sushila Karki, a former chief justice, was the choice of the student protesters whose mass rallies on Monday started a violent uprising that toppled the government.`\
-https://nytimes.com/2025/09/12/world/asia/nepal-protests-leader-karki-gen-z.html
-
-**High-profile figure in English cricket interviewed over allegations of spiking and sexual assault**\
-`The interview relates to an incident that allegedly took place on May 22 at a pub in the SW6 area of London`\
-https://nytimes.com/athletic/6623315/2025/09/12/english-cricket-figure-investigated-sexual-assault-spiking/
 
