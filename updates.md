@@ -1,3 +1,7 @@
+**Lawyers for Venezuelans Ask Court to Press D.H.S. on Temporary Protections**\
+`A judge had ordered that Temporary Protected Status be kept in place, but Venezuelans who needed to re-register weren’t able to.`\
+https://nytimes.com/2025/09/11/us/lawyers-for-venezuelans-ask-court-to-press-dhs-on-temporary-protections.html
+
 **Homeless Funding Was Limited to Groups Aligned With Trump Policies, Suit Says**\
 `The Trump administration had imposed conditions on grants awarded by the Department of Housing and Urban Development that critics viewed as overtly political.`\
 https://nytimes.com/2025/09/11/us/politics/homeless-funding-trump-hud-lawsuit.html

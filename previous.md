@@ -1,3 +1,7 @@
+**Lawyers for Venezuelans Ask Court to Press D.H.S. on Temporary Protections**\
+`A judge had ordered that Temporary Protected Status be kept in place, but Venezuelans who needed to re-register weren’t able to.`\
+https://nytimes.com/2025/09/11/us/lawyers-for-venezuelans-ask-court-to-press-dhs-on-temporary-protections.html
+
 **Homeless Funding Was Limited to Groups Aligned With Trump Policies, Suit Says**\
 `The Trump administration had imposed conditions on grants awarded by the Department of Housing and Urban Development that critics viewed as overtly political.`\
 https://nytimes.com/2025/09/11/us/politics/homeless-funding-trump-hud-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6621151/2025/09/11/nfl-charlie-kirk-moment-of-silen
 **California Lawmakers Pass a Mask Ban for Law Enforcement**\
 `The legislation responds to immigration raids by federal agents who have shielded their identity. It heads to Gov. Gavin Newsom, who has not said whether he would sign it.`\
 https://nytimes.com/2025/09/11/us/immigration-raid-mask-ban-california.html
-
-**'I was crushed': John Kelly on losing dream job with Blues — and new opportunity in L.A.**\
-`Kelly was shocked to lose his broadcasting job after 21 seasons with the Blues, but now he's looking forward to a new role with the Kings.`\
-https://nytimes.com/athletic/6620737/2025/09/11/john-kelly-kings-blues/
 
