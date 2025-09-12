@@ -1,3 +1,11 @@
+**Replacing JJ Peterka, prospect watch, Owen Power injury: Sabres mailbag, part 2**\
+`Owen Power suffered a knee injury late last season. Is he recovered and ready to go?`\
+https://nytimes.com/athletic/6620865/2025/09/12/replacing-jj-peterka-owen-power-injury-sabres-mailbag/
+
+**Meet Mercogliano: Live Q&A with The Athletic's new New York Rangers beat writer**\
+`Vincent Mercogliano will hang out for an hour Friday to chat with fans about his coverage and the upcoming NHL season.`\
+https://nytimes.com/athletic/6608510/2025/09/12/new-york-rangers-live-qa-vincent-mercogliano/
+
 **Can the Liberty get on track? Will the Aces' hot streak continue? WNBA playoff storylines to watch**\
 `The WNBA playoffs start Sunday. The first round features three-game series.`\
 https://nytimes.com/athletic/6621345/2025/09/12/wnba-playoffs-lynx-aces-liberty/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6621391/2025/09/12/carolina-panthers-week-2-rookie-
 **Dak Prescott expecting bounce-back performance from CeeDee Lamb in Week 2**\
 `Since losing twice to the Giants in 2016, Prescott has won 13 consecutive games against the Cowboys' NFC East rival.`\
 https://nytimes.com/athletic/6621527/2025/09/12/cowboys-dak-prescott-week-2-giants/
-
-**The Chiefs' play that could've changed the Super Bowl — and what it taught K.C.**\
-`The Chiefs missed this an early opportunity in Super Bowl LIX against the Philadelphia Eagles. Here's what they hope has changed since then.`\
-https://nytimes.com/athletic/6618049/2025/09/12/chiefs-eagles-super-bowl-key-play/
-
-**How will Knicks' new coach Mike Brown deploy consummate cutter OG Anunoby?**\
-`The Knicks are going to look different under new head coach Brown.`\
-https://nytimes.com/athletic/6621408/2025/09/12/knicks-coach-mike-brown-og-anunoby/
 
