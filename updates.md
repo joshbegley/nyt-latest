@@ -1,3 +1,19 @@
+**What We Know About the Suspect in the Charlie Kirk Shooting**\
+`The suspect, 22, was arrested in southwestern Utah after a friend had contacted the authorities, officials said.`\
+https://nytimes.com/2025/09/12/us/tyler-robinson-charlie-kirk-shooting-suspect.html
+
+**Ready … Set … Spend!**\
+`David Ellison has gotten off to a fast start as the owner of Paramount, at least when it comes to buying things.`\
+https://nytimes.com/2025/09/12/business/ellison-paramount-warner-bros.html
+
+**Derrick Henry responds to Grant Delpit's comments: 'We'll see on Sunday'**\
+`Some surprising trash talk has added spice to Sunday's matchup between the Ravens and Browns.`\
+https://nytimes.com/athletic/6623433/2025/09/12/ravens-browns-derrick-henry-tackle-rb/
+
+**British team most unscathed from Saint-Tropez SailGP opening day**\
+`The notoriously tricky race course in France proved a match for some teams on Friday.`\
+https://nytimes.com/athletic/6623441/2025/09/12/saint-tropez-sail-grand-prix-report-opening-day/
+
 **British team most unscathed from Saint-Tropez Sail GP opening day**\
 `The notoriously tricky race course in France proved a match for some teams on Friday`\
 https://nytimes.com/athletic/6623441/2025/09/12/saint-tropez-sail-grand-prix-report-opening-day/
