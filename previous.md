@@ -1,10 +1,14 @@
+**When F1 drivers showed sportsmanship. Plus: Sainz penalty appeal outcome delayed**\
+`The 2025 F1 title fight is unusually jovial for an intra-team affair. But in the championship's history, such sportsmanship was more common `\
+https://nytimes.com/athletic/6623696/2025/09/12/f1-world-title-sportsmanship/
+
 **Real Madrid's Rudiger out for prolonged spell with muscle injury**\
 `The 32-year-old picked up two injuries last season but played 55 times for the Spanish side`\
 https://nytimes.com/athletic/6623740/2025/09/12/real-madrid-defender-antonio-rudiger-injury/
 
 **Man Fatally Shot in Confrontation With ICE Officers in Chicago Area**\
-`The shooting took place amid a federal crackdown on illegal immigration in the region, known as Operation Midway Blitz.`\
-https://nytimes.com/2025/09/12/us/man-fatally-shot-in-confrontation-with-ice-officers-in-chicago-area.html
+`The shooting took place amid a federal crackdown on illegal immigration in the region that is being called Operation Midway Blitz.`\
+https://nytimes.com/2025/09/12/us/ice-shooting-chicago.html
 
 **Jeff Bezos, Jessica Chastain and More at Fashion Week’s Starriest Gala**\
 `Hollywood’s most recognizable faces packed Kering’s gala in New York City on Thursday.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6623622/2025/09/12/venezuela-world-cup-president-ni
 **Robert Grosvenor, Sculptor Who Challenged Gravity, Dies at 88**\
 `“The lone wolf of sculpture,” one critic called him. His enigmatic art turned familiar objects like boats and vintage cars into mysterious contraptions.`\
 https://nytimes.com/2025/09/12/arts/robert-grosvenor-dead.html
-
-**WNBA regular season most watched in history, ESPN data shows**\
-`Male viewership increased two percent over 2024, and female viewership increased 13 percent over 2024.`\
-https://nytimes.com/athletic/6623590/2025/09/12/wnba-regular-season-most-watched-in-history-espn-data-shows-even-with-caitlin-clark-injury/
 

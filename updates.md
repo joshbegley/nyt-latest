@@ -1,3 +1,11 @@
+**When F1 drivers showed sportsmanship. Plus: Sainz penalty appeal outcome delayed**\
+`The 2025 F1 title fight is unusually jovial for an intra-team affair. But in the championship's history, such sportsmanship was more common `\
+https://nytimes.com/athletic/6623696/2025/09/12/f1-world-title-sportsmanship/
+
+**Man Fatally Shot in Confrontation With ICE Officers in Chicago Area**\
+`The shooting took place amid a federal crackdown on illegal immigration in the region that is being called Operation Midway Blitz.`\
+https://nytimes.com/2025/09/12/us/ice-shooting-chicago.html
+
 **Real Madrid's Rudiger out for prolonged spell with muscle injury**\
 `The 32-year-old picked up two injuries last season but played 55 times for the Spanish side`\
 https://nytimes.com/athletic/6623740/2025/09/12/real-madrid-defender-antonio-rudiger-injury/
