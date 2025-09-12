@@ -1,3 +1,11 @@
+**NATO Steps Up Defenses After Russian Drones Violate Polish Airspace**\
+`Increased air patrols, air defense systems and other protections will be mobilized over Eastern Europe.`\
+https://nytimes.com/2025/09/12/world/europe/nato-eastern-europe-drone-defenses.html
+
+**Venezuela fires coach after failing to qualify for World Cup, president calls for change**\
+`Maduro called for a "restructuring" of the soccer side's coaching staff after their 6-3 loss to Colombia saw them miss out on qualification`\
+https://nytimes.com/athletic/6623622/2025/09/12/venezuela-world-cup-president-nicolas-maduro/
+
 **Robert Grosvenor, Sculptor Who Challenged Gravity, Dies at 88**\
 `“The lone wolf of sculpture,” one critic called him. His enigmatic art turned familiar objects like boats and vintage cars into mysterious contraptions.`\
 https://nytimes.com/2025/09/12/arts/robert-grosvenor-dead.html

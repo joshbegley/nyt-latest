@@ -1,3 +1,11 @@
+**NATO Steps Up Defenses After Russian Drones Violate Polish Airspace**\
+`Increased air patrols, air defense systems and other protections will be mobilized over Eastern Europe.`\
+https://nytimes.com/2025/09/12/world/europe/nato-eastern-europe-drone-defenses.html
+
+**Venezuela fires coach after failing to qualify for World Cup, president calls for change**\
+`Maduro called for a "restructuring" of the soccer side's coaching staff after their 6-3 loss to Colombia saw them miss out on qualification`\
+https://nytimes.com/athletic/6623622/2025/09/12/venezuela-world-cup-president-nicolas-maduro/
+
 **Robert Grosvenor, Sculptor Who Challenged Gravity, Dies at 88**\
 `“The lone wolf of sculpture,” one critic called him. His enigmatic art turned familiar objects like boats and vintage cars into mysterious contraptions.`\
 https://nytimes.com/2025/09/12/arts/robert-grosvenor-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6623441/2025/09/12/saint-tropez-sail-grand-prix-rep
 **17 Nonfiction Books We’re Looking Forward to This Fall**\
 `The season brings histories by Jill Lepore, David McCullough and Joseph J. Ellis, memoirs by Margaret Atwood and Susan Orlean, and more.`\
 https://nytimes.com/2025/09/12/books/review/fall-nonfiction-preview-podcast.html
-
-**Theater to Stream: Mark Rylance in ‘Twelfth Night,’ and More**\
-`This month’s picks include a 1974 adaptation of the Eugene Ionesco play “Rhinoceros,” starring Gene Wilder and Zero Mostel, and a behind-the-scenes look at Disney.`\
-https://nytimes.com/2025/09/12/theater/theater-plays-streaming-twelfth-night.html
-
-**NBA's new long-range heave rule might bring more excitement for fans**\
-`The NBA is trying something new by adjusting its quarter-ending heave rule.`\
-https://nytimes.com/athletic/6621472/2025/09/12/nba-heaves-adam-silver-nikola-jokic-trae-young-stephen-curry/
 
