@@ -1,3 +1,11 @@
+**Marco Rubio to Hold White House Talks With Qatari Premier After Israeli Strikes**\
+`The U.S. secretary of state will meet with Sheikh Mohammed bin Abdulrahman al-Thani on Friday, after an attack that has rattled Gulf States.`\
+https://nytimes.com/2025/09/12/world/middleeast/qatar-prime-minister-trump-rubio.html
+
+**Secret Report Undercuts U.K. Condemnations of Pro-Palestinian Group**\
+`The British government banned Palestine Action under an antiterrorism law, but an intelligence document said most of its activity “would not be classified as terrorism.”`\
+https://nytimes.com/2025/09/12/world/europe/palestine-action-uk-government-assessment.html
+
 **Read the U.K. Report on Palestine Action**\
 `This intelligence assessment helped shape the British government’s decision to ban Palestine Action.`\
 https://nytimes.com/interactive/2025/09/12/world/europe/uk-intelligence-report-palestine-action.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6622387/2025/09/12/liam-delap-chelsea-hamstring/
 **Vancouver Canucks top 10 prospects: Ranking No. 5 to No. 1 before the season**\
 `While the Canucks' pipeline isn't exactly overflowing from a volume perspective, there is some bona fide high-end talent at the apex.`\
 https://nytimes.com/athletic/6621638/2025/09/12/canucks-top-10-prospects-ranking/
-
-**How Ike Howard, Matt Savoie and Connor McDavid could shape the Oilers' future**\
-`There’s a ton of promise around Howard and Savoie. They represent a next wave of talent the organization hasn’t had much of in recent years.`\
-https://nytimes.com/athletic/6621112/2025/09/12/oilers-ike-howard-matt-savoie-connor-mcdavid-future/
-
-**Chelsea to sign Strasbourg striker Emegha in 2026**\
-`BlueCo, the company the Todd Boehly-Clearlake Capital consortium created when buying Chelsea in 2022, owns both clubs involved in the deal.`\
-https://nytimes.com/athletic/6622905/2025/09/12/chelsea-transfer-news-strasbourg-emegha/
 

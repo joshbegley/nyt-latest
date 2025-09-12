@@ -1,3 +1,11 @@
+**Marco Rubio to Hold White House Talks With Qatari Premier After Israeli Strikes**\
+`The U.S. secretary of state will meet with Sheikh Mohammed bin Abdulrahman al-Thani on Friday, after an attack that has rattled Gulf States.`\
+https://nytimes.com/2025/09/12/world/middleeast/qatar-prime-minister-trump-rubio.html
+
+**Secret Report Undercuts U.K. Condemnations of Pro-Palestinian Group**\
+`The British government banned Palestine Action under an antiterrorism law, but an intelligence document said most of its activity “would not be classified as terrorism.”`\
+https://nytimes.com/2025/09/12/world/europe/palestine-action-uk-government-assessment.html
+
 **Read the U.K. Report on Palestine Action**\
 `This intelligence assessment helped shape the British government’s decision to ban Palestine Action.`\
 https://nytimes.com/interactive/2025/09/12/world/europe/uk-intelligence-report-palestine-action.html
