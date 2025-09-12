@@ -1,3 +1,23 @@
+**Bonjour, Flower: Marc-Andre Fleury signs PTO with Penguins to finish career in preseason game**\
+`Fleury, 40, will play in parts of the Penguins' exhibition game against the Blue Jackets on September 27 at PPG Paints Arena. `\
+https://nytimes.com/athletic/6623172/2025/09/12/marc-andre-fleury-penguins-signs-preseason-game/
+
+**As the Fed Prepares to Lower Rates, 2 Seats on Its Board Are in Limbo**\
+`The Senate looks poised to confirm President Trump’s pick to join the central bank in time for the policy meeting next week, while another governor’s fate remains up in the air.`\
+https://nytimes.com/2025/09/12/business/federal-reserve-board-interest-rates.html
+
+**If Sidney Crosby seeks a trade, the Canadiens can offer exactly what he wants**\
+`Crosby might never seek a trade. But if he does, no potential destination can offer both him and Pittsburgh more than Montreal.`\
+https://nytimes.com/athletic/6622237/2025/09/12/sidney-crosby-trade-contract-canadiens-penguins/
+
+**At Least Zosia Mamet Can Laugh About It**\
+`In her new book, the actress turns her acid wit to Hollywood’s darker side and her own personal struggles.`\
+https://nytimes.com/2025/09/12/well/zosia-mamet-essays-health.html
+
+**The Bounce: 'Highlight' of Adam Silver's week + WNBA playoffs begin Sunday**\
+`Plus: Another podcast, another Kawhi Leonard revelation.`\
+https://nytimes.com/athletic/6623295/2025/09/12/adam-silver-highlights-kawhi-leonard-clippers-wnba/
+
 **Lewis signs new Man City contract until 2030**\
 `The 20-year-old, capable of operating at right-back, left-back and in midfield, joined City aged eight.`\
 https://nytimes.com/athletic/6623167/2025/09/12/man-city-rico-lewis-contract-new/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/09/12/dining/zanzibar-soup.html
 **What does the Sabres' signing of Alexandar Georgiev signal about their goalie situation?**\
 `The signing of Georgiev is, in part, a response to an injury to starting goalie Ukko-Pekka Luukkonen.`\
 https://nytimes.com/athletic/6623272/2025/09/12/sabres-sign-alexandar-georgiev-luukkonen-injury-goalie/
-
-**Review: Gustavo Dudamel Gives a Glimpse of New York’s Future**\
-`The superstar conductor opened the New York Philharmonic’s season, with his signature thrills that make a traditional concert format seem exceptional.`\
-https://nytimes.com/2025/09/12/arts/music/review-gustavo-dudamel-new-york-philharmonic-opening-night.html
-
-**Hoaxes Target Black Colleges, Shutting Classes as Anxiety Mounts in U.S.**\
-`Several historically Black colleges and universities canceled classes and events on Friday after a series of threats. The F.B.I. said the calls were false.`\
-https://nytimes.com/2025/09/12/us/false-threats-target-hbcus-forcing-closures.html
-
-**8 Phrases to Help Your Relationship Thrive**\
-`We asked couples therapists to share the magic words that can strengthen bonds, even in the middle of a disagreement.`\
-https://nytimes.com/2025/09/12/well/family/couples-therapy-argument-phrases.html
-
-**Good News From Toronto: The Art of Filmmaking Is Alive and Thriving**\
-`Park Chan-wook’s “No Other Choice” and Agnieszka Holland’s “Franz” led a strong festival slate, even with clunkers like a Paula Deen documentary.`\
-https://nytimes.com/2025/09/12/movies/toronto-film-festival-highlights.html
-
-**How is Joe Dumars changing the Pelicans? Who starts on opening night and more**\
-`Will Guillory answers mailbag questions in preparation for the 2025-26 Pelicans season. `\
-https://nytimes.com/athletic/6622535/2025/09/12/pelicans-joe-dumars-opening-night-roster/
 
