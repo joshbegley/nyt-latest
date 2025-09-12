@@ -1,3 +1,11 @@
+**They Make a High-Pitched Noise When They’re Heated**\
+`Joe Marquez opens our solving weekend.`\
+https://nytimes.com/2025/09/11/crosswords/daily-puzzle-2025-09-12.html
+
+**Commanders DE Deatrich Wise Jr. carted off with leg injury during Packers game**\
+`The entire Washington bench cleared to come over and pat the visibly upset Wise on the helmet before the cart drove off.`\
+https://nytimes.com/athletic/6621957/2025/09/11/deatrich-wise-commanders-leg-injury/
+
 **Packers WR Jayden Reed ruled out vs. Commanders with shoulder injury**\
 `Reed, a third-year receiver, caught 55 passes for 857 yards and six touchdowns last season.`\
 https://nytimes.com/athletic/6621877/2025/09/11/packers-jayden-reed-injury/

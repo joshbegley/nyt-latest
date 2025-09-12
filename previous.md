@@ -1,6 +1,14 @@
+**They Make a High-Pitched Noise When They’re Heated**\
+`Joe Marquez opens our solving weekend.`\
+https://nytimes.com/2025/09/11/crosswords/daily-puzzle-2025-09-12.html
+
 **Packers WR Jayden Reed ruled out vs. Commanders with shoulder injury**\
 `Reed, a third-year receiver, caught 55 passes for 857 yards and six touchdowns last season.`\
 https://nytimes.com/athletic/6621877/2025/09/11/packers-jayden-reed-injury/
+
+**Commanders DE Deatrich Wise Jr. carted off with leg injury during Packers game**\
+`The entire Washington bench cleared to come over and pat the visibly upset Wise on the helmet before the cart drove off.`\
+https://nytimes.com/athletic/6621957/2025/09/11/deatrich-wise-commanders-leg-injury/
 
 **Lawyers for Venezuelans Ask Court to Press D.H.S. on Temporary Protections**\
 `A judge had ordered that Temporary Protected Status be kept in place, but Venezuelans who needed to re-register weren’t able to.`\
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/americas/100000010394005/bolsonaro-convicted-of-
 **Scrutiny Mounts Over F.B.I. Under Patel as Kirk’s Killer Remains at Large**\
 `Already, a series of missteps by Kash Patel, the F.B.I. director, in recent months have invited worries that he has eroded public confidence in the agency.`\
 https://nytimes.com/2025/09/11/us/politics/fbi-patel-kirk-shooting.html
-
-**Astros' margin for error is minuscule. Time is running out to increase it**\
-`Houston's underperforming offense is putting far too much pressure on every other part of this team.`\
-https://nytimes.com/athletic/6621685/2025/09/11/houston-astros-october-playoff-push/
-
-**NFL holds moment of silence for Charlie Kirk before Commanders-Packers game**\
-`Kirk, 31, was shot and killed during a speaking event at Utah Valley University on Wednesday.`\
-https://nytimes.com/athletic/6621151/2025/09/11/nfl-charlie-kirk-moment-of-silence-packers-commanders/
 
