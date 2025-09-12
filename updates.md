@@ -1,3 +1,7 @@
+**Enter Yoane Wissa: Newcastle's new No 9 is high cost but low risk**\
+` That Newcastle spent £50m on a 29-year-old striker is a mark of an inflated market, but the data shows Yoane Wissa is a striker to rely on`\
+https://nytimes.com/athletic/6615234/2025/09/12/yoane-wissa-newcastle-analysis/
+
 **One Country Knew What to Do When Its President Tried to Steal an Election**\
 `Brazil just succeeded where we failed.`\
 https://nytimes.com/2025/09/12/opinion/trump-bolsonaro-conviction-democracy.html

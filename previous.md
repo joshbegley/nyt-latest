@@ -30,11 +30,11 @@ https://nytimes.com/athletic/6614048/2025/09/12/fantasy-premier-league-eze-wissa
 `The departures of Matt O'Riley and Facundo Buonanotte have boosted the German up the attacking midfield hierarchy `\
 https://nytimes.com/athletic/6597461/2025/09/12/brajan-gruda-brighton-no-10/
 
+**Enter Yoane Wissa: Newcastle's new No 9 is high cost but low risk**\
+` That Newcastle spent £50m on a 29-year-old striker is a mark of an inflated market, but the data shows Yoane Wissa is a striker to rely on`\
+https://nytimes.com/athletic/6615234/2025/09/12/yoane-wissa-newcastle-analysis/
+
 **What La Liga clubs really think of the salary limit**\
 `We asked sources at every club in the Spanish top flight for their opinion on the rules that govern how much they can spend`\
 https://nytimes.com/athletic/6619119/2025/09/12/la-liga-salary-limit-barceloa-real-madrid-atletico/
-
-**Strand Larsen, an awkward Newcastle meeting missed and his enduring value to Wolves**\
-`Wolves are hopeful that the Norwegian will brush off his failed move and do what is best for both club and himself: scoring goals`\
-https://nytimes.com/athletic/6583773/2025/09/12/jorgen-strand-larsen-wolves-newcastle-premier-league/
 
