@@ -1,3 +1,7 @@
+**Marilyn Diamond, Who Wrote a Blockbuster Diet Book, Dies at 81**\
+`“Fit for Life,” which she wrote with her husband, was a best seller in the 1980s promoting good health ahead of weight loss. But doctors were critical.`\
+https://nytimes.com/2025/09/12/books/marilyn-diamond-dead.html
+
 **Right-Wing Activists Urge Followers to Expose Those Celebrating Kirk Killing**\
 `The widespread and fast-moving campaign has already resulted in lost jobs, suspensions and internal investigations, heightening tensions online between supporters and detractors of Charlie Kirk.`\
 https://nytimes.com/2025/09/12/us/politics/charlie-kirk-shooting-firings-celebration.html

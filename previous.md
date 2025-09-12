@@ -1,3 +1,7 @@
+**Marilyn Diamond, Who Wrote a Blockbuster Diet Book, Dies at 81**\
+`“Fit for Life,” which she wrote with her husband, was a best seller in the 1980s promoting good health ahead of weight loss. But doctors were critical.`\
+https://nytimes.com/2025/09/12/books/marilyn-diamond-dead.html
+
 **Right-Wing Activists Urge Followers to Expose Those Celebrating Kirk Killing**\
 `The widespread and fast-moving campaign has already resulted in lost jobs, suspensions and internal investigations, heightening tensions online between supporters and detractors of Charlie Kirk.`\
 https://nytimes.com/2025/09/12/us/politics/charlie-kirk-shooting-firings-celebration.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6624104/2025/09/12/phil-salt-t20-record-score-engla
 **Special Episode: A Suspect Is Caught in Charlie Kirk’s Assassination**\
 `What we know about the arrest and the alleged killer’s motives.`\
 https://nytimes.com/2025/09/12/podcasts/the-daily/charlie-kirk-news-suspect.html
-
-**Charlie Kirk’s books become best sellers after his killing.**\
-`By Elizabeth A. Harris`\
-https://nytimes.com/live/2025/09/12/us/charlie-kirk-news-suspect/charlie-kirk-books-sales
 
