@@ -1,3 +1,7 @@
+**Astros' margin for error is minuscule. Time is running out to increase it**\
+`Houston's underperforming offense is putting far too much pressure on every other part of this team.`\
+https://nytimes.com/athletic/6621685/2025/09/11/houston-astros-october-playoff-push/
+
 **NFL holds moment of silence for Charlie Kirk before Commanders-Packers game**\
 `Kirk, 31, was shot and killed during a speaking event at Utah Valley University on Wednesday.`\
 https://nytimes.com/athletic/6621151/2025/09/11/nfl-charlie-kirk-moment-of-silence-packers-commanders/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/11/business/media/puck-air-mail-deal.html
 **Appeals Court Lets Government Cut Off Medicaid Funds to Planned Parenthood**\
 `The ruling temporarily put back in effect a law banning Medicaid reimbursements to the organization, jeopardizing a large share of its revenue.`\
 https://nytimes.com/live/2025/09/11/us/trump-news/medicaid-funds-planned-parenthood
-
-**False Tips and Chicken Coops: The Chaotic Hunt for Charlie Kirk’s Killer**\
-`After a day of hunting for a suspect in the assassination, investigators pleaded for help from the public.`\
-https://nytimes.com/2025/09/11/us/charlie-kirk-manhunt.html
 

@@ -1,3 +1,11 @@
+**NFL holds moment of silence for Charlie Kirk before Commanders-Packers game**\
+`Kirk, 31, was shot and killed during a speaking event at Utah Valley University on Wednesday.`\
+https://nytimes.com/athletic/6621151/2025/09/11/nfl-charlie-kirk-moment-of-silence-packers-commanders/
+
+**'I was crushed': John Kelly on losing dream job with Blues — and new opportunity in L.A.**\
+`Kelly was shocked to lose his job with the Blues, but now he's looking forward to a new role with the Kings.`\
+https://nytimes.com/athletic/6620737/2025/09/11/john-kelly-kings-blues/
+
 **California Lawmakers Pass a Mask Ban for Law Enforcement**\
 `The legislation responds to immigration raids by federal agents who have shielded their identity. It heads to Gov. Gavin Newsom, who has not said whether he would sign it.`\
 https://nytimes.com/2025/09/11/us/immigration-raid-mask-ban-california.html
