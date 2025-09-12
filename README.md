@@ -1,3 +1,7 @@
+**A must-win game already? Why Russell Wilson, Giants have to beat the Cowboys**\
+`If Wilson doesn't play well this weekend in Dallas, it could very well be his last start with the Giants. `\
+https://nytimes.com/athletic/6621968/2025/09/12/a-must-win-game-already-why-russell-wilson-giants-have-to-beat-the-cowboys/
+
 **He Made a Friend on Roblox. Their Relationship Turned Sinister.**\
 `At age 7, Ethan Dallas began playing the online game, where he met Nate. Deadly abuse followed, said Ethan’s mother, who blames Roblox.`\
 https://nytimes.com/2025/09/12/technology/roblox-lawsuit-child-safety.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6623040/2025/09/12/william-saliba-arsenal-injury-la
 **Man City without Ait-Nouri, Cherki and Marmoush for derby, Stones a doubt - Guardiola**\
 `Cherki was ruled out for around two weeks before the international break but Marmoush picked up an injury while playing with Egypt.`\
 https://nytimes.com/athletic/6623131/2025/09/12/manchester-city-injury-news-marmoush-cherki/
-
-**The Chiefs play that could've changed the Super Bowl — and what it taught K.C.**\
-`The Chiefs missed this an early opportunity in Super Bowl LIX against the Philadelphia Eagles. Here's what they hope has changed since then.`\
-https://nytimes.com/athletic/6618049/2025/09/12/chiefs-eagles-super-bowl-key-play/
 
