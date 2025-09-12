@@ -1,3 +1,7 @@
+**The New York Times in Print for Friday, Sep. 12, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/12/todays-new-york-times
+
 **WNBA playoffs set: Lynx-Valkyries, Dream-Fever and more**\
 `The WNBA playoffs start on Sunday. The first round will be a 1-1-1 series. `\
 https://nytimes.com/athletic/6622263/2025/09/12/wnba-playoffs-lynx-valkyries-dream-fever/

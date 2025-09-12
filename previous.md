@@ -1,3 +1,7 @@
+**The New York Times in Print for Friday, Sep. 12, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/12/todays-new-york-times
+
 **WNBA playoffs set: Lynx-Valkyries, Dream-Fever and more**\
 `The WNBA playoffs start on Sunday. The first round will be a 1-1-1 series. `\
 https://nytimes.com/athletic/6622263/2025/09/12/wnba-playoffs-lynx-valkyries-dream-fever/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6583773/2025/09/12/jorgen-strand-larsen-wolves-newc
 **Noah Okafor interview: 'I can make a difference in every game'**\
 `The winger speaks to The Athletic about joining Leeds, specialist sprint training, and his World Cup hopes with Switzerland`\
 https://nytimes.com/athletic/6619693/2025/09/12/noah-okafor-interview-leeds-united/
-
-**Wrexham must improve defensively and, crucially, they now might just have the players to do so**\
-`The Championship club are hopeful that Dominic Hyam and Issa Kabore will provide much-needed stability at the back`\
-https://nytimes.com/athletic/6615647/2025/09/12/wrexham-championship-defence-improve/
 
