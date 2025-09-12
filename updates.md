@@ -1,3 +1,15 @@
+**How to watch Angels at Mariners: Time, TV, streaming for September 12**\
+`Find out how to watch the Los Angeles Angels play the Seattle Mariners, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6622647/2025/09/12/angels-vs-mariners-stream-how-to-watch-sept-12/
+
+**How to watch Rockies at Padres: Time, TV, streaming for September 12**\
+`Find out how to watch the Colorado Rockies play the San Diego Padres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6622636/2025/09/12/rockies-vs-padres-stream-how-to-watch-sept-12/
+
+**Next week’s waiver wire: Penix, Doubs and more players to add — before the Week 3 rush**\
+`John Laghezza looks ahead to Week 3 for waiver wire options you can grab before the crowd rush. `\
+https://nytimes.com/athletic/6620184/2025/09/12/next-weeks-waiver-wire-trey-benson-romeo-doubs/
+
 **Aina facing up to three months out with hamstring injury**\
 `Aina, 28, was forced off during Nigeria's World Cup qualifier against South Africa on Tuesday.`\
 https://nytimes.com/athletic/6622586/2025/09/12/ola-aina-nottingham-forest-injury-update/

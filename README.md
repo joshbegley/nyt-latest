@@ -1,3 +1,23 @@
+**Jota Silva set for Besiktas medical ahead of move from Nottingham Forest**\
+`Jota is set to depart Nottingham Forest on loan, with the deal expected to include an option to make the move permanent.`\
+https://nytimes.com/athletic/6622616/2025/09/12/jota-silva-besiktas-nottingham-forest-transfer/
+
+**Here’s the latest.**\
+`By Nicholas Bogel-Burroughs, Devlin Barrett, Tim Arango, Jack Healy and Francesca Regalado`\
+https://nytimes.com/live/2025/09/12/us/charlie-kirk-news-suspect/heres-the-latest
+
+**Live Updates: Charlie Kirk’s Killer Still At Large as Officials Ask Public for Help**\
+`The authorities have released images and video of a person sought in the investigation into the killing of the right-wing activist as the intense manhunt stretched into Friday.`\
+https://nytimes.com/live/2025/09/12/us/charlie-kirk-news-suspect
+
+**The Sex Is Taboo-Breaking. The Niceness Is Shocking.**\
+`Dag Johan Haugerud’s “Oslo Trilogy” movies follow city residents as they navigate contemporary intimacy. What’s provocative is their empathy, the director says.`\
+https://nytimes.com/2025/09/12/movies/oslo-trilogy-dag-johan-haugerud.html
+
+**Newcastle's Wissa, Ramsey out of Wolves game, Woltemade set for debut**\
+`Wissa, the £50million-plus deadline-day addition from Brentford, will be sent for a scan to determine the extent of his problem.`\
+https://nytimes.com/athletic/6622609/2025/09/12/wissa-injury-ramsey-newcastle-woltemade-debut/
+
 **How to watch Angels at Mariners: Time, TV, streaming for September 12**\
 `Find out how to watch the Los Angeles Angels play the Seattle Mariners, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6622647/2025/09/12/angels-vs-mariners-stream-how-to-watch-sept-12/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6622586/2025/09/12/ola-aina-nottingham-forest-injur
 **As Drake Maye looks to bounce back, Patriots remain confident 'he's the right guy'**\
 `Maye struggled against the Raiders in Week 1, but his coaches feel good about his progress and expect him to bounce back vs. the Dolphins.`\
 https://nytimes.com/athletic/6620828/2025/09/12/drake-maye-patriots-dolphins-nfl-week-2/
-
-**Week 2 fantasy football intel, predictions using player prop lines**\
-`Sportsbooks do their research, so Brad Evans scours the lines to find fantasy relevant intel. `\
-https://nytimes.com/athletic/6620759/2025/09/12/fantasy-football-week-2-predictions-props/
-
-**Where did the Falcons' run game go? And can they find it again vs. Vikings?**\
-`The Falcons ran for only 69 yards in Week 1. This week, they face a Vikings team with one of the league's best run defenses.`\
-https://nytimes.com/athletic/6620358/2025/09/12/falcons-run-game-vikings-bijan-robinson/
-
-**What MAGA Lost When It Lost Charlie Kirk**\
-`His death makes it harder to look ahead and glimpse what MAGA will stand for.`\
-https://nytimes.com/2025/09/12/opinion/charlie-kirk-assassination-maga.html
-
-**The New York Times News Quiz, Sept. 12, 2025**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2025/09/12/briefing/news-quiz-charlie-kirk-trump-epstein.html
-
-**5 Simple Steps to Calm Yourself Down**\
-`These techniques can help you handle the ups and downs of daily life.`\
-https://nytimes.com/2025/09/12/well/tips-to-calm-down.html
 

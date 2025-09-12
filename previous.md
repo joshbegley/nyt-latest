@@ -1,3 +1,15 @@
+**How to watch Angels at Mariners: Time, TV, streaming for September 12**\
+`Find out how to watch the Los Angeles Angels play the Seattle Mariners, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6622647/2025/09/12/angels-vs-mariners-stream-how-to-watch-sept-12/
+
+**How to watch Rockies at Padres: Time, TV, streaming for September 12**\
+`Find out how to watch the Colorado Rockies play the San Diego Padres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6622636/2025/09/12/rockies-vs-padres-stream-how-to-watch-sept-12/
+
+**Next week’s waiver wire: Penix, Doubs and more players to add — before the Week 3 rush**\
+`John Laghezza looks ahead to Week 3 for waiver wire options you can grab before the crowd rush. `\
+https://nytimes.com/athletic/6620184/2025/09/12/next-weeks-waiver-wire-trey-benson-romeo-doubs/
+
 **Aina facing up to three months out with hamstring injury**\
 `Aina, 28, was forced off during Nigeria's World Cup qualifier against South Africa on Tuesday.`\
 https://nytimes.com/athletic/6622586/2025/09/12/ola-aina-nottingham-forest-injury-update/
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2025/09/12/briefing/news-quiz-charlie-kirk-trump
 **5 Simple Steps to Calm Yourself Down**\
 `These techniques can help you handle the ups and downs of daily life.`\
 https://nytimes.com/2025/09/12/well/tips-to-calm-down.html
-
-**‘Civil War’ Mentions Surge Online After Kirk Assassination**\
-`The term has increasingly been invoked on social media after major political moments, highlighting divisions among Americans.`\
-https://nytimes.com/2025/09/12/technology/charlie-kirk-shooting-civil-war.html
-
-**After Kirk Killing, Americans Agree on One Thing: Something Is Seriously Wrong**\
-`In interviews from across the country, people expressed fear and wariness, and said that the country seemed to be spinning out of control.`\
-https://nytimes.com/2025/09/12/us/politics/charlie-kirk-voters-politics-violence.html
-
-**9 New Movies Our Critics Are Talking About This Week**\
-`Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
-https://nytimes.com/2025/09/12/movies/new-movies-this-week-critics.html
 
