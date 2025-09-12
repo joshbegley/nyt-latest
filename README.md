@@ -1,3 +1,11 @@
+**Homeless Funding Was Limited to Groups Aligned With Trump Policies, Suit Says**\
+`The Trump administration had imposed conditions on grants awarded by the Department of Housing and Urban Development that critics viewed as overtly political.`\
+https://nytimes.com/2025/09/11/us/politics/homeless-funding-trump-hud-lawsuit.html
+
+**Inside the relationship between Padres' Manny Machado and Reds' rookie Sal Stewart**\
+`To understand how Machado influenced Stewart, you’d have to go back to 2010 when Stewart wasn't even a teenager yet.`\
+https://nytimes.com/athletic/6621679/2025/09/11/cincinnati-reds-sal-stewart-manny-machado/
+
 **He was the last person to question Charlie Kirk.**\
 `Millions of people would see their brief exchange when footage of the assassination spread like wildfire across social media.`\
 https://nytimes.com/live/2025/09/11/us/charlie-kirk-shooting-news/charlie-kirk-question-utah-kozak
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/11/us/immigration-raid-mask-ban-california.html
 **'I was crushed': John Kelly on losing dream job with Blues — and new opportunity in L.A.**\
 `Kelly was shocked to lose his broadcasting job after 21 seasons with the Blues, but now he's looking forward to a new role with the Kings.`\
 https://nytimes.com/athletic/6620737/2025/09/11/john-kelly-kings-blues/
-
-**Canadiens rookie camp notebook: Ivan Demidov snapshots and Filip Mešár the tough guy**\
-`Demidov has dazzled, and Mešár intends to add more grit to his game — maybe too much.`\
-https://nytimes.com/athletic/6621425/2025/09/11/canadiens-rookie-camp-ivan-demidov-filip-mesar/
-
-**How to watch Rays at Cubs: Time, TV, streaming for September 12**\
-`Find out how to watch the Tampa Bay Rays play the Chicago Cubs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6621700/2025/09/11/rays-vs-cubs-stream-how-to-watch-sept-12/
 
