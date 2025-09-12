@@ -1,3 +1,11 @@
+**2025 World Athletics Championships: The rivalries to watch in Tokyo**\
+`From Noah Lyles vs Letsile Tebogo to Nafi Thiam vs Anna Hall, these are the pulsating match-ups to look out for`\
+https://nytimes.com/athletic/6613878/2025/09/12/world-athletics-championships-tokyo-rivalry/
+
+**Trashing the leather: The hidden cost of Patrick Bailey's elite pitch framing skills**\
+`Pulling borderline pitches into the strike zone causes the Giants' Gold Glove catcher to burn through catcher's mitts throughout the season.`\
+https://nytimes.com/athletic/6621510/2025/09/12/sf-giants-patrick-bailey-catchers-mitt-pitch-framing/
+
 **Jonathan Toews looks rusty in his first skates with the Jets. Why that's great news**\
 `Jonathan Toews will need some time to get up to speed but he's far from washed up.`\
 https://nytimes.com/athletic/6620606/2025/09/12/jonathan-toews-winnipeg-jets/
