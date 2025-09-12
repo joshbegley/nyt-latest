@@ -1,3 +1,7 @@
+**Manchester United live Q&A: Andy Mitten answers your questions**\
+`Ask your questions of Andy Mitten`\
+https://nytimes.com/athletic/6616656/2025/09/12/manchester-united-andy-mitten/
+
 **Marco Rubio to Hold White House Talks With Qatari Premier After Israeli Strikes**\
 `The U.S. secretary of state will meet with Sheikh Mohammed bin Abdulrahman al-Thani on Friday, after an attack that has rattled Persian Gulf states.`\
 https://nytimes.com/2025/09/12/world/middleeast/qatar-prime-minister-trump-rubio.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6620876/2025/09/12/ohio-state-football-ohio-bobcats
 **Liam Delap, a hamstring tear and a frustrating start to life at Chelsea**\
 `The summer signing from Ipswich made an impact at the Club World Cup but will have to wait to show the home supporters what he can do`\
 https://nytimes.com/athletic/6622387/2025/09/12/liam-delap-chelsea-hamstring/
-
-**Vancouver Canucks top 10 prospects: Ranking No. 5 to No. 1 before the season**\
-`While the Canucks' pipeline isn't exactly overflowing from a volume perspective, there is some bona fide high-end talent at the apex.`\
-https://nytimes.com/athletic/6621638/2025/09/12/canucks-top-10-prospects-ranking/
 
