@@ -1,3 +1,11 @@
+**Prince Harry Meets War Veterans in Surprise Visit to Ukraine**\
+`The prince arrived in Kyiv on his second trip to the country this year. The visit comes after his charity supporting wounded soldiers said it would expand post-conflict rehabilitation.`\
+https://nytimes.com/2025/09/12/world/europe/prince-harry-ukraine-kyiv-war.html
+
+**U.S. sprinter Erriyon Knighton given 4-year doping ban after CAS ruling**\
+`The 21-year-old is a two-time Olympic finalist and finished fourth in Paris a year ago.`\
+https://nytimes.com/athletic/6622927/2025/09/12/erriyon-knighton-doping-ban-cas/
+
 **Freed by U.S., South Korean Workers Return Home to Tearful Cheers**\
 `The workers, whose detention in a workplace immigration sweep set off outrage in South Korea, expressed both relief and anger.`\
 https://nytimes.com/2025/09/12/world/asia/korean-workers-georgia-arrest.html
