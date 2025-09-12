@@ -15,7 +15,7 @@ https://nytimes.com/2025/09/12/opinion/campus-conservatives-charlie-kirk.html
 https://nytimes.com/athletic/6623320/2025/09/12/robert-macintyre-ryder-cup-bmw-pga-championship-europe-team/
 
 **Jerry Jones says Jalen Carter's ejection 'evened up' Parsons-less Cowboys**\
-`Jones also reacted to Green Bay's "thank you, Jerry" chants: "I'm all for them enjoying and chanting anything that they wanna say."`\
+`Jones also reacted to Green Bay's "Thank you, Jerry" chants: "I'm all for them enjoying and chanting anything that they wanna say."`\
 https://nytimes.com/athletic/6623769/2025/09/12/jerry-jones-micah-parsons-dallas-cowboys/
 
 **Is It Cutesy or Abominable to Make Up Random Words?**\
