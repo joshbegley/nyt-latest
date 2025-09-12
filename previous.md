@@ -1,3 +1,7 @@
+**Fans hold 'Free Angel' signs as Reese misses Sky's final regular-season game**\
+`The signs expressed displeasure with the Sky for suspending Reese after she made public comments about the state of the team.`\
+https://nytimes.com/athletic/6622000/2025/09/11/angel-reese-sky-absence-signs-wnba/
+
 **They Make a High-Pitched Noise When They’re Heated**\
 `Joe Marquez opens our solving weekend.`\
 https://nytimes.com/2025/09/11/crosswords/daily-puzzle-2025-09-12.html
@@ -24,7 +28,7 @@ https://nytimes.com/athletic/6621679/2025/09/11/cincinnati-reds-sal-stewart-mann
 
 **He was the last person to question Charlie Kirk.**\
 `Millions of people would see their brief exchange when footage of the assassination spread like wildfire across social media.`\
-https://nytimes.com/live/2025/09/11/us/charlie-kirk-shooting-news/charlie-kirk-question-utah-kozak
+https://nytimes.com/2025/09/11/us/charlie-kirk-question-utah-kozak.html
 
 **Yankees' Aaron Judge ties Joe DiMaggio at fourth all time in franchise home run list**\
 `It was more history for the 33-year-old Judge, who passed Hall of Fame catcher Yogi Berra for fifth on the franchise home run list Tuesday.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6621686/2025/09/11/new-york-yankees-aaron-judge-joe
 **Bolsonaro Convicted of Plotting Coup**\
 `Former President Jair Bolsonaro of Brazil was sentenced to 27 years in prison for trying to overturn the 2022 election and planning to assassinate his opponent, Luiz Inácio Lula da Silva, the current president.`\
 https://nytimes.com/video/world/americas/100000010394005/bolsonaro-convicted-of-plotting-coup.html
-
-**Scrutiny Mounts Over F.B.I. Under Patel as Kirk’s Killer Remains at Large**\
-`Already, a series of missteps by Kash Patel, the F.B.I. director, in recent months have invited worries that he has eroded public confidence in the agency.`\
-https://nytimes.com/2025/09/11/us/politics/fbi-patel-kirk-shooting.html
 
