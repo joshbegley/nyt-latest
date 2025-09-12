@@ -1,3 +1,7 @@
+**Quote of the Day: Won’t Pay Up? Fake Online Reviews May Smear Your Business.**\
+`Quotation of the Day for Friday, September 12, 2025.`\
+https://nytimes.com/2025/09/11/pageoneplus/quote-of-the-day-wont-pay-up-fake-online-reviews-may-smear-your-business.html
+
 **Who is Dennis Wong, the Clippers minority owner who invested in Aspiration? What we know**\
 `The successful real estate investor has been a part of two NBA ownership groups in California and now calls Dallas home.`\
 https://nytimes.com/athletic/6621876/2025/09/11/clippers-dennis-wong-kawhi-aspiration/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/11/us/politics/homeless-funding-trump-hud-lawsuit.ht
 **Inside the relationship between Padres' Manny Machado and Reds' rookie Sal Stewart**\
 `To understand how Machado influenced Stewart, you’d have to go back to 2010 when Stewart wasn't even a teenager yet.`\
 https://nytimes.com/athletic/6621679/2025/09/11/cincinnati-reds-sal-stewart-manny-machado/
-
-**The Last Person to Question Charlie Kirk**\
-`Millions of people saw the brief exchange between the right-wing political activist and a liberal TikToker after footage of the assassination spread like wildfire across social media.`\
-https://nytimes.com/2025/09/11/us/charlie-kirk-question-utah-kozak.html
 
