@@ -1,4 +1,8 @@
-**Yankees' Aaron Judge ties Joe DiMaggio at 4th all-time in franchise home run list**\
+**He was the last person to question Charlie Kirk.**\
+`Millions of people would see their brief exchange when footage of the assassination spread like wildfire across social media.`\
+https://nytimes.com/live/2025/09/11/us/charlie-kirk-shooting-news/charlie-kirk-question-utah-kozak
+
+**Yankees' Aaron Judge ties Joe DiMaggio at fourth all time in franchise home run list**\
 `It was more history for the 33-year-old Judge, who passed Hall of Fame catcher Yogi Berra for fifth on the franchise home run list Tuesday.`\
 https://nytimes.com/athletic/6621686/2025/09/11/new-york-yankees-aaron-judge-joe-dimaggio/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6621425/2025/09/11/canadiens-rookie-camp-ivan-demid
 **How to watch Rays at Cubs: Time, TV, streaming for September 12**\
 `Find out how to watch the Tampa Bay Rays play the Chicago Cubs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6621700/2025/09/11/rays-vs-cubs-stream-how-to-watch-sept-12/
-
-**How to watch Pirates at Nationals: Time, TV, streaming for September 12**\
-`Find out how to watch the Pittsburgh Pirates play the Washington Nationals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6621693/2025/09/11/pirates-vs-nationals-stream-how-to-watch-sept-12/
 

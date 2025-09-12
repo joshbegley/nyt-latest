@@ -1,3 +1,7 @@
+**Yankees' Aaron Judge ties Joe DiMaggio at 4th all-time in franchise home run list**\
+`It was more history for the 33-year-old Judge, who passed Hall of Fame catcher Yogi Berra for fifth on the franchise home run list Tuesday.`\
+https://nytimes.com/athletic/6621686/2025/09/11/new-york-yankees-aaron-judge-joe-dimaggio/
+
 **Bolsonaro Convicted of Plotting Coup**\
 `Former President Jair Bolsonaro of Brazil was sentenced to 27 years in prison for trying to overturn the 2022 election and planning to assassinate his opponent, Luiz Inácio Lula da Silva, the current president.`\
 https://nytimes.com/video/world/americas/100000010394005/bolsonaro-convicted-of-plotting-coup.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6621700/2025/09/11/rays-vs-cubs-stream-how-to-watch
 **How to watch Pirates at Nationals: Time, TV, streaming for September 12**\
 `Find out how to watch the Pittsburgh Pirates play the Washington Nationals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6621693/2025/09/11/pirates-vs-nationals-stream-how-to-watch-sept-12/
-
-**Ukraine and Gaza Fallout Share the Spotlight With Anna Netrebko**\
-`Demonstrators outside the Royal Opera House protested the Russian soprano’s return to the London stage in a new production of “Tosca.”`\
-https://nytimes.com/2025/09/11/arts/music/tosca-royal-opera-house-netrebko.html
 

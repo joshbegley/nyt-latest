@@ -1,3 +1,7 @@
+**Yankees' Aaron Judge ties Joe DiMaggio at 4th all-time in franchise home run list**\
+`It was more history for the 33-year-old Judge, who passed Hall of Fame catcher Yogi Berra for fifth on the franchise home run list Tuesday.`\
+https://nytimes.com/athletic/6621686/2025/09/11/new-york-yankees-aaron-judge-joe-dimaggio/
+
 **Bolsonaro Convicted of Plotting Coup**\
 `Former President Jair Bolsonaro of Brazil was sentenced to 27 years in prison for trying to overturn the 2022 election and planning to assassinate his opponent, Luiz Inácio Lula da Silva, the current president.`\
 https://nytimes.com/video/world/americas/100000010394005/bolsonaro-convicted-of-plotting-coup.html
