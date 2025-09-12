@@ -1,3 +1,23 @@
+**Jota Silva set for Besiktas medical ahead of move from Nottingham Forest**\
+`Jota is set to depart Nottingham Forest on loan, with the deal expected to include an option to make the move permanent.`\
+https://nytimes.com/athletic/6622616/2025/09/12/jota-silva-besiktas-nottingham-forest-transfer/
+
+**Here’s the latest.**\
+`By Nicholas Bogel-Burroughs, Devlin Barrett, Tim Arango, Jack Healy and Francesca Regalado`\
+https://nytimes.com/live/2025/09/12/us/charlie-kirk-news-suspect/heres-the-latest
+
+**Live Updates: Charlie Kirk’s Killer Still At Large as Officials Ask Public for Help**\
+`The authorities have released images and video of a person sought in the investigation into the killing of the right-wing activist as the intense manhunt stretched into Friday.`\
+https://nytimes.com/live/2025/09/12/us/charlie-kirk-news-suspect
+
+**The Sex Is Taboo-Breaking. The Niceness Is Shocking.**\
+`Dag Johan Haugerud’s “Oslo Trilogy” movies follow city residents as they navigate contemporary intimacy. What’s provocative is their empathy, the director says.`\
+https://nytimes.com/2025/09/12/movies/oslo-trilogy-dag-johan-haugerud.html
+
+**Newcastle's Wissa, Ramsey out of Wolves game, Woltemade set for debut**\
+`Wissa, the £50million-plus deadline-day addition from Brentford, will be sent for a scan to determine the extent of his problem.`\
+https://nytimes.com/athletic/6622609/2025/09/12/wissa-injury-ramsey-newcastle-woltemade-debut/
+
 **How to watch Angels at Mariners: Time, TV, streaming for September 12**\
 `Find out how to watch the Los Angeles Angels play the Seattle Mariners, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6622647/2025/09/12/angels-vs-mariners-stream-how-to-watch-sept-12/
