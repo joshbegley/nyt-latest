@@ -1,3 +1,15 @@
+**Right-Wing Activists Urge Followers to Expose Those Celebrating Kirk Killing**\
+`The widespread and fast-moving campaign has already resulted in lost jobs, suspensions and internal investigations, heightening tensions online between supporters and detractors of Charlie Kirk.`\
+https://nytimes.com/2025/09/12/us/politics/charlie-kirk-shooting-firings-celebration.html
+
+**He Blazed a Trail to Congress. Now His Seat Is in Peril.**\
+`The Missouri Senate passed new borders on Friday that Republicans believe would benefit their party by splitting up the district of Representative Emanuel Cleaver, a Democrat.`\
+https://nytimes.com/2025/09/12/us/missouri-redistricting-emanuel-cleaver-kansas-city.html
+
+**141 runs, 60 balls: How Salt demolished England's T20 record books**\
+`The 29-year-old batter recorded the biggest individual score by an England player in the format`\
+https://nytimes.com/athletic/6624104/2025/09/12/phil-salt-t20-record-score-england/
+
 **The Road to the Emmys**\
 `The 77th Primetime Emmy Awards will take place on Sunday night. Here is a look at some of this year’s nominees.`\
 https://nytimes.com/card/2025/09/12/arts/television/emmys-nominees-photos
