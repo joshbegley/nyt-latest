@@ -1,3 +1,11 @@
+**Michel Odent, Pioneer of Natural Childbirth, Is Dead at 95**\
+`His innovations, including homelike delivery rooms and birthing pools, were based on his belief that “human birth cannot work as long as a woman is thinking.”`\
+https://nytimes.com/2025/09/12/health/michel-odent-dead.html
+
+**West Virginia and Pitt agree to resume Backyard Brawl rivalry in 2026**\
+`After an 11-year hiatus, the Backyard Brawl resumed in 2022 with a four-game series that ends this year.`\
+https://nytimes.com/athletic/6623973/2025/09/12/west-virginia-pitt-backyard-brawl/
+
 **What We Know About Bolsonaro’s Conviction**\
 `Brazil’s top court convicted former President Jair Bolsonaro on charges of plotting a coup to remain in power after losing the 2022 presidential election. Ana Ionova, reporting from Brasília, explains the charges and what comes next.`\
 https://nytimes.com/video/world/americas/100000010388194/what-we-know-about-bolsonaros-conviction.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6623320/2025/09/12/robert-macintyre-ryder-cup-bmw-p
 **Jerry Jones says Jalen Carter's ejection 'evened up' Parsons-less Cowboys**\
 `Jones also reacted to Green Bay's "Thank you, Jerry" chants: "I'm all for them enjoying and chanting anything that they wanna say."`\
 https://nytimes.com/athletic/6623769/2025/09/12/jerry-jones-micah-parsons-dallas-cowboys/
-
-**Is It Cutesy or Abominable to Make Up Random Words?**\
-`A ruling on a dispute over shortening “groceries” to “grosh.”`\
-https://nytimes.com/interactive/2025/09/12/magazine/word-shortening-hodgman-quiz.html
-
-**Can We Start Treating Some Cancers Like a Chronic Disease?**\
-`How cutting-edge, compassionate care at this hospital can shift the paradigm.`\
-https://nytimes.com/paidpost/mass-general-brigham/mass-general-brigham-circle-of-care/can-we-start-treating-some-cancers-like-a-chronic-disease.html
 
