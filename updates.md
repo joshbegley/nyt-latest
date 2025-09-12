@@ -1,3 +1,7 @@
+**Group led by Tom Dundon reaches agreement to buy Portland Trail Blazers**\
+`A statement from the Estate of Paul G. Allen said the ownership group “confirmed their intention to keep the team in Portland.”`\
+https://nytimes.com/athletic/6624093/2025/09/12/portland-trail-blazers-sale-tom-dundon/
+
 **Wofford men's hoops head coach fired, 2 months before tipoff**\
 `The timing of the move is surprising, and Wofford did not provide details. `\
 https://nytimes.com/athletic/6624231/2025/09/12/wofford-mens-college-basketball-coach-dwight-perry-fired/
