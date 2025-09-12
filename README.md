@@ -1,3 +1,7 @@
+**Alperen Şengün, Turkey dominate Giannis and Greece to reach EuroBasket final**\
+`The stage is set. It will be Alperen Şengün vs. Franz Wagner and Dennis Schröder in the EuroBasket final on Sunday. `\
+https://nytimes.com/athletic/6623966/2025/09/12/alperen-sengun-giannis-turkey-greece-eurobasket-final/
+
 **Group led by Tom Dundon reaches agreement to buy Portland Trail Blazers**\
 `A statement from the Estate of Paul G. Allen said the ownership group “confirmed their intention to keep the team in Portland.”`\
 https://nytimes.com/athletic/6624093/2025/09/12/portland-trail-blazers-sale-tom-dundon/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/12/climate/puerto-rico-lawsuit-energy-racketeering-i
 **Chiefs announcer Dale Carter resigns, saying team crossed his 'red line'**\
 `Carter is best known for his elongated third down call at Chiefs games, which built suspense during opponent drives.`\
 https://nytimes.com/athletic/6623703/2025/09/12/chiefs-announcer-dale-carter-resigns-saying-team-crossed-red-line/
-
-**Michel Odent, Pioneer of Natural Childbirth Techniques, Dies at 95**\
-`His innovations, including homelike delivery rooms and birthing pools, were based on his belief that “human birth cannot work as long as a woman is thinking.”`\
-https://nytimes.com/2025/09/12/health/michel-odent-dead.html
 
