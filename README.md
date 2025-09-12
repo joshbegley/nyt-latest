@@ -1,3 +1,7 @@
+**Brajan Gruder has moved up the queue to be Brighton's No 10**\
+`The departures of Matt O'Riley and Facundo Buonanotte have boosted the German up the attacking midfield hierarchy `\
+https://nytimes.com/athletic/6597461/2025/09/12/brajan-gruda-brighton-no-10/
+
 **What La Liga clubs really think of the salary limit**\
 `We asked sources at every club in the Spanish top flight for their opinion on the rules that govern how much they can spend`\
 https://nytimes.com/athletic/6619119/2025/09/12/la-liga-salary-limit-barceloa-real-madrid-atletico/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6615234/2025/09/12/yoane-wissa-newcastle-analysis/
 **Inside Liverpool's £710m transfer window and a summer like no other**\
 `This is how and why the champions embarked on an unprecedented summer of spending and off-field upheaval`\
 https://nytimes.com/athletic/6543303/2025/09/12/liverpool-transfer-window-analysis/
-
-**How will Forest's players deal with Postecoglou's intense tactical approach?**\
-`The potential winners and losers from Forest's squad as they prepare for life under the Australian `\
-https://nytimes.com/athletic/6617471/2025/09/12/ange-postecoglou-tactics-nottingham-forest/
 
