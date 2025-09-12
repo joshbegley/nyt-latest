@@ -1,3 +1,11 @@
+**ICE Officer Fatally Shoots Man During Traffic Stop**\
+`A U.S. Immigration and Customs Enforcement officer fatally shot a man in the Chicago area who drove his car into officers while evading a vehicle stop, officials said.`\
+https://nytimes.com/video/us/100000010396203/ice-shooting-chicago.html
+
+**France’s Debt Rating Cut on Fears of Political Instability**\
+`Fitch Ratings cited the “increased fragmentation and polarization” of politics in the debt-laden country as justification for the downgrade.`\
+https://nytimes.com/2025/09/12/business/france-fitch-debt-rating.html
+
 **Targeting Hims & Hers, F.D.A. Takes on a New Type of Drug Advertiser**\
 `Regulators sent about 100 warning letters this week to drug advertisers, including to Hims & Hers, a major online provider of weight-loss drugs.`\
 https://nytimes.com/2025/09/12/science/fda-hims-hers-warning-letter.html
