@@ -1,3 +1,15 @@
+**Jeff Bezos, Jessica Chastain and More at Fashion Week’s Starriest Gala**\
+`Hollywood’s most recognizable faces packed Kering’s gala in New York City on Thursday.`\
+https://nytimes.com/2025/09/12/style/kering-gala-nyc-photos.html
+
+**A Plea for President Trump With a Fragile Country on Edge**\
+`Even if it sounds unrealistic, Trump can do something important with the entire country frayed and on edge: push for calm and unity.`\
+https://nytimes.com/2025/09/12/opinion/donald-trump-charlie-kirk-aftermath.html
+
+**Trump Administration Seeks Pilot Projects for Air Taxis**\
+`The projects would allow small electric or hybrid aircraft to carry passengers or cargo before federal regulators approve their commercial use.`\
+https://nytimes.com/2025/09/12/business/trump-air-taxi-faa.html
+
 **Ego Nwodim Leaves ‘S.N.L.’ After 7 Seasons**\
 `Nwodim, known for characters including Lisa From Temecula, is the fifth cast member to leave the sketch comedy show this summer.`\
 https://nytimes.com/2025/09/12/arts/television/ego-nwodim-leaving-snl.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/12/us/trump-tyler-robinson-utah-shooting.html
 **What We Know About the Suspect in the Charlie Kirk Shooting**\
 `The suspect, 22, was arrested in southwestern Utah after a friend had contacted the authorities, officials said.`\
 https://nytimes.com/2025/09/12/us/tyler-robinson-charlie-kirk-shooting-suspect.html
-
-**Ready … Set … Spend!**\
-`David Ellison has gotten off to a fast start as the owner of Paramount, at least when it comes to buying things.`\
-https://nytimes.com/2025/09/12/business/ellison-paramount-warner-bros.html
-
-**Derrick Henry responds to Grant Delpit's comments: 'We'll see on Sunday'**\
-`Some surprising trash talk has added spice to Sunday's matchup between the Ravens and Browns.`\
-https://nytimes.com/athletic/6623433/2025/09/12/ravens-browns-derrick-henry-tackle-rb/
-
-**British team most unscathed from Saint-Tropez SailGP opening day**\
-`The notoriously tricky race course in France proved a match for some teams on Friday.`\
-https://nytimes.com/athletic/6623441/2025/09/12/saint-tropez-sail-grand-prix-report-opening-day/
 
