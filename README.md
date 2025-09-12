@@ -1,3 +1,7 @@
+**Packers WR Jayden Reed ruled out vs. Commanders with shoulder injury**\
+`Reed, a third-year receiver, caught 55 passes for 857 yards and six touchdowns last season.`\
+https://nytimes.com/athletic/6621877/2025/09/11/packers-jayden-reed-injury/
+
 **Lawyers for Venezuelans Ask Court to Press D.H.S. on Temporary Protections**\
 `A judge had ordered that Temporary Protected Status be kept in place, but Venezuelans who needed to re-register weren’t able to.`\
 https://nytimes.com/2025/09/11/us/lawyers-for-venezuelans-ask-court-to-press-dhs-on-temporary-protections.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6621685/2025/09/11/houston-astros-october-playoff-p
 **NFL holds moment of silence for Charlie Kirk before Commanders-Packers game**\
 `Kirk, 31, was shot and killed during a speaking event at Utah Valley University on Wednesday.`\
 https://nytimes.com/athletic/6621151/2025/09/11/nfl-charlie-kirk-moment-of-silence-packers-commanders/
-
-**California Lawmakers Pass a Mask Ban for Law Enforcement**\
-`The legislation responds to immigration raids by federal agents who have shielded their identity. It heads to Gov. Gavin Newsom, who has not said whether he would sign it.`\
-https://nytimes.com/2025/09/11/us/immigration-raid-mask-ban-california.html
 
