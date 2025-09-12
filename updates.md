@@ -1,3 +1,15 @@
+**Scrutiny Mounts Over F.B.I. Under Patel as Kirk’s Killer Remains at Large**\
+`Already, a series of missteps by Kash Patel in recent months have invited worries that he has eroded public confidence in the agency.`\
+https://nytimes.com/2025/09/11/us/politics/fbi-patel-kirk-shooting.html
+
+**Astros' margin for error is minuscule. Time is running out to increase it**\
+`Houston's underperforming offense is putting far too much pressure on every other part of this team.`\
+https://nytimes.com/athletic/6621685/2025/09/11/houston-astros-october-playoff-push/
+
+**'I was crushed': John Kelly on losing dream job with Blues — and new opportunity in L.A.**\
+`Kelly was shocked to lose his broadcasting job after 21 seasons with the Blues, but now he's looking forward to a new role with the Kings.`\
+https://nytimes.com/athletic/6620737/2025/09/11/john-kelly-kings-blues/
+
 **NFL holds moment of silence for Charlie Kirk before Commanders-Packers game**\
 `Kirk, 31, was shot and killed during a speaking event at Utah Valley University on Wednesday.`\
 https://nytimes.com/athletic/6621151/2025/09/11/nfl-charlie-kirk-moment-of-silence-packers-commanders/
