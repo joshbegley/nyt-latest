@@ -1,3 +1,7 @@
+**Packers WR Jayden Reed ruled out vs. Commanders with shoulder injury**\
+`Reed, a third-year receiver, caught 55 passes for 857 yards and six touchdowns last season.`\
+https://nytimes.com/athletic/6621877/2025/09/11/packers-jayden-reed-injury/
+
 **Lawyers for Venezuelans Ask Court to Press D.H.S. on Temporary Protections**\
 `A judge had ordered that Temporary Protected Status be kept in place, but Venezuelans who needed to re-register weren’t able to.`\
 https://nytimes.com/2025/09/11/us/lawyers-for-venezuelans-ask-court-to-press-dhs-on-temporary-protections.html
