@@ -1,3 +1,7 @@
+**Ed Sheeran Wants More Than Just Hits Now**\
+`The superstar singer-songwriter sat down with Popcast to discuss overcoming personal and professional turmoil ahead of his new album, “Play.”`\
+https://nytimes.com/video/podcasts/100000010395369/ed-sheeran-wants-more-than-just-hits-now.html
+
 **Tesla Board Chair Defends Elon Musk’s Enormous Pay Proposal**\
 `Robyn Denholm, normally media shy, is campaigning to get shareholders to back the chief executive’s trillion-dollar compensation package.`\
 https://nytimes.com/2025/09/12/business/tesla-elon-musk-pay-robyn-denholm.html
