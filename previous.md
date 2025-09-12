@@ -1,3 +1,11 @@
+**Word of the Day: pensive**\
+`This word has appeared in 65 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/09/12/learning/word-of-the-day-pensive.html
+
+**Fresh Footage Shows Person of Interest in Charlie Kirk’s Shooting**\
+`The F.B.I. shared surveillance video of a man running across a roof near where Charlie Kirk was fatally shot at Utah Valley University.`\
+https://nytimes.com/video/us/100000010394327/charlie-kirk-manhunt.html
+
 **Suspect in Murder of Queens Couple Told Police That He Burned Them**\
 `Jamel McGriff, who was arraigned late Thursday night, told the authorities that he had “molested” the septuagenarians before torching their home in the Bellerose neighborhood.`\
 https://nytimes.com/2025/09/12/nyregion/queens-fire-murders.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/12/briefing/jair-bolsonaro-conviction-charlie-kirk.h
 **FPL: Are the Premier League's summer movers worth signing for Gameweek 4?**\
 `Abdul Rehman explores if any of the players that switched clubs in the summer window should make their way into your FPL teams`\
 https://nytimes.com/athletic/6614048/2025/09/12/fantasy-premier-league-eze-wissa-isak-woltemade/
-
-**Brajan Gruder has moved up the queue to be Brighton's No 10**\
-`The departures of Matt O'Riley and Facundo Buonanotte have boosted the German up the attacking midfield hierarchy `\
-https://nytimes.com/athletic/6597461/2025/09/12/brajan-gruda-brighton-no-10/
-
-**Enter Yoane Wissa: Newcastle's new No 9 is high cost but low risk**\
-` That Newcastle spent £50m on a 29-year-old striker is a mark of an inflated market, but the data shows Yoane Wissa is a striker to rely on`\
-https://nytimes.com/athletic/6615234/2025/09/12/yoane-wissa-newcastle-analysis/
 

@@ -1,3 +1,11 @@
+**Word of the Day: pensive**\
+`This word has appeared in 65 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/09/12/learning/word-of-the-day-pensive.html
+
+**Fresh Footage Shows Person of Interest in Charlie Kirk’s Shooting**\
+`The F.B.I. shared surveillance video of a man running across a roof near where Charlie Kirk was fatally shot at Utah Valley University.`\
+https://nytimes.com/video/us/100000010394327/charlie-kirk-manhunt.html
+
 **Suspect in Murder of Queens Couple Told Police That He Burned Them**\
 `Jamel McGriff, who was arraigned late Thursday night, told the authorities that he had “molested” the septuagenarians before torching their home in the Bellerose neighborhood.`\
 https://nytimes.com/2025/09/12/nyregion/queens-fire-murders.html
