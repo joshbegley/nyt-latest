@@ -1,3 +1,7 @@
+**Ed Sheeran Wants More Than Just Hits Now**\
+`The superstar singer-songwriter sat down with Popcast to discuss overcoming personal and professional turmoil ahead of his new album, “Play.”`\
+https://nytimes.com/video/podcasts/100000010395369/ed-sheeran-wants-more-than-just-hits-now.html
+
 **Tesla Board Chair Defends Elon Musk’s Enormous Pay Proposal**\
 `Robyn Denholm, normally media shy, is campaigning to get shareholders to back the chief executive’s trillion-dollar compensation package.`\
 https://nytimes.com/2025/09/12/business/tesla-elon-musk-pay-robyn-denholm.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010393233/what-made-charlie-kirk-inf
 **Marilyn Diamond, Who Wrote a Blockbuster Diet Book, Dies at 81**\
 `“Fit for Life,” which she wrote with her husband, was a best seller in the 1980s promoting good health ahead of weight loss. But doctors were critical.`\
 https://nytimes.com/2025/09/12/books/marilyn-diamond-dead.html
-
-**Right-Wing Activists Urge Followers to Expose Those Celebrating Kirk Killing**\
-`The widespread and fast-moving campaign has already resulted in lost jobs, suspensions and internal investigations, heightening tensions online between supporters and detractors of Charlie Kirk.`\
-https://nytimes.com/2025/09/12/us/politics/charlie-kirk-shooting-firings-celebration.html
 
