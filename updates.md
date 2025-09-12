@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Qatar Leader to Meet With Rubio After Israeli Strikes in Doha**\
+``\
+https://nytimes.com/live/2025/09/12/us/trump-news
+
 **Israel players withdraw from Basque chess tournament after flag ban request**\
 `The Sestao chess club wanted to remove the Israel flag "a sign of rejection of Israel's systematic violation of human rights"`\
 https://nytimes.com/athletic/6622821/2025/09/12/israel-chess-tournament-basque-country/

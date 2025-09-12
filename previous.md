@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Qatar Leader to Meet With Rubio After Israeli Strikes in Doha**\
+``\
+https://nytimes.com/live/2025/09/12/us/trump-news
+
 **Israel players withdraw from Basque chess tournament after flag ban request**\
 `The Sestao chess club wanted to remove the Israel flag "a sign of rejection of Israel's systematic violation of human rights"`\
 https://nytimes.com/athletic/6622821/2025/09/12/israel-chess-tournament-basque-country/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6619536/2025/09/12/basketball-taylen-kinney-high-sc
 **Watching the NBA in 2025 is going to cost you. How much? Up to $982**\
 `The NBA may be a "highlights league," according to Adam Silver, but how much will it cost to watch your favorite team and national games?`\
 https://nytimes.com/athletic/6621237/2025/09/12/nba-games-2025-streaming-cost-price/
-
-**Fantasy Premier League live Q&A: Gameweek 4 advice from Ben Dinnery**\
-`Join Ben Dinnery for a live Gameweek 4 Q&A from 4pm-5pm UK time`\
-https://nytimes.com/athletic/6618937/2025/09/12/fantasy-premier-league-live-qa-fpl-tips-gw4/
 
