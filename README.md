@@ -1,3 +1,7 @@
+**Wofford men's hoops head coach fired, 2 months before tipoff**\
+`The timing of the move is surprising, and Wofford did not provide details. `\
+https://nytimes.com/athletic/6624231/2025/09/12/wofford-mens-college-basketball-coach-dwight-perry-fired/
+
 **Trump Says It Looks Like Mamdani Is ‘Going to Win’**\
 `President Trump said on Friday that he believed Zohran Mamdani, the Democratic nominee for mayor of New York City, would win, likening that outcome to a “rebellion.”`\
 https://nytimes.com/2025/09/12/nyregion/trump-mamdani-nyc-mayor.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/12/health/michel-odent-dead.html
 **The Backyard Brawl will continue: West Virginia, Pitt rivalry renewed**\
 `After an 11-year hiatus, the Backyard Brawl resumed in 2022 with a four-game series that ends this year.`\
 https://nytimes.com/athletic/6623973/2025/09/12/west-virginia-pitt-backyard-brawl/
-
-**What We Know About Bolsonaro’s Conviction**\
-`Brazil’s top court convicted former President Jair Bolsonaro on charges of plotting a coup to remain in power after losing the 2022 presidential election. Ana Ionova, reporting from Brasília, explains the charges and what comes next.`\
-https://nytimes.com/video/world/americas/100000010388194/what-we-know-about-bolsonaros-conviction.html
 
