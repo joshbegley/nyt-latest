@@ -1,40 +1,40 @@
-**Word of the Day: pensive**\
-`This word has appeared in 65 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/09/12/learning/word-of-the-day-pensive.html
+**How to watch White Sox at Guardians: Time, TV, streaming for September 12**\
+`Find out how to watch the Chicago White Sox play the Cleveland Guardians, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6622391/2025/09/12/white-sox-vs-guardians-stream-how-to-watch-sept-12/
 
-**Fresh Footage Shows Person of Interest in Charlie Kirk’s Shooting**\
-`The F.B.I. shared surveillance video of a man running across a roof near where Charlie Kirk was fatally shot at Utah Valley University.`\
-https://nytimes.com/video/us/100000010394327/charlie-kirk-manhunt.html
+**How to watch Diamondbacks at Twins: Time, TV, streaming for September 12**\
+`Find out how to watch the Arizona Diamondbacks play the Minnesota Twins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6622389/2025/09/12/diamondbacks-vs-twins-stream-how-to-watch-sept-12/
 
-**Suspect in Murder of Queens Couple Told Police That He Burned Them**\
-`Jamel McGriff, who was arraigned late Thursday night, told the authorities that he had “molested” the septuagenarians before torching their home in the Bellerose neighborhood.`\
-https://nytimes.com/2025/09/12/nyregion/queens-fire-murders.html
+**How to watch Royals at Phillies: Time, TV, streaming for September 12**\
+`Find out how to watch the Kansas City Royals play the Philadelphia Phillies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6622386/2025/09/12/royals-vs-phillies-stream-how-to-watch-sept-12/
 
-**One Country Knew What to Do When Its President Tried to Steal an Election**\
-`Brazil just succeeded where we failed.`\
-https://nytimes.com/2025/09/12/opinion/trump-bolsonaro-conviction-democracy.html
+**How to watch Yankees at Red Sox: Time, TV, streaming for September 12**\
+`Find out how to watch the New York Yankees play the Boston Red Sox, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6622385/2025/09/12/yankees-vs-red-sox-stream-how-to-watch-sept-12/
 
-**The New York Times in Print for Friday, Sep. 12, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/09/12/todays-new-york-times
+**How to watch Tigers at Marlins: Time, TV, streaming for September 12**\
+`Find out how to watch the Detroit Tigers play the Miami Marlins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6622379/2025/09/12/tigers-vs-marlins-stream-how-to-watch-sept-12/
 
-**WNBA playoffs set: Lynx-Valkyries, Dream-Fever and more**\
-`The WNBA playoffs start on Sunday. The first round will be a 1-1-1 series. `\
-https://nytimes.com/athletic/6622263/2025/09/12/wnba-playoffs-lynx-valkyries-dream-fever/
+**How to watch Orioles at Blue Jays: Time, TV, streaming for September 12**\
+`Find out how to watch the Baltimore Orioles play the Toronto Blue Jays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6622375/2025/09/12/orioles-vs-blue-jays-stream-how-to-watch-sept-12/
 
-**Fords, Tank 500s and a New Hospital: The Influence Campaigns in the Pacific**\
-`All around Honiara, the capital of the Solomon Islands and host of a regional summit, are not-so-subtle hints of donor nations competing for hearts and minds.`\
-https://nytimes.com/2025/09/12/world/asia/pacific-islands-solomon-china-australia.html
+**How to watch Rangers at Mets: Time, TV, streaming for September 12**\
+`Find out how to watch the Texas Rangers play the New York Mets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6622377/2025/09/12/rangers-vs-mets-stream-how-to-watch-sept-12/
 
-**The prodigies: Suryavanshi, Bethell, Peake and cricket's treacherous path to greatness**\
-`The sport rejoices when young talent bursts through but, as Vinod Kambli and Prithvi Shaw would attest, there are pitfalls to negotiate, too`\
-https://nytimes.com/athletic/6619509/2025/09/12/suryavanshi-bethell-peake-shaw-cricket-prodigies/
+**How to watch Astros at Braves: Time, TV, streaming for September 12**\
+`Find out how to watch the Houston Astros play the Atlanta Braves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6622373/2025/09/12/astros-vs-braves-stream-how-to-watch-sept-12/
 
-**Jair Bolsonaro Is Convicted**\
-`The 70-year-old former Brazilian president was sentenced to 27 years in prison for plotting a failed coup.`\
-https://nytimes.com/2025/09/12/briefing/jair-bolsonaro-conviction-charlie-kirk.html
+**How to watch Cardinals at Brewers: Time, TV, streaming for September 12**\
+`Find out how to watch the St. Louis Cardinals play the Milwaukee Brewers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6622369/2025/09/12/cardinals-vs-brewers-stream-how-to-watch-sept-12/
 
-**FPL: Are the Premier League's summer movers worth signing for Gameweek 4?**\
-`Abdul Rehman explores if any of the players that switched clubs in the summer window should make their way into your FPL teams`\
-https://nytimes.com/athletic/6614048/2025/09/12/fantasy-premier-league-eze-wissa-isak-woltemade/
+**How to watch Dodgers at Giants: Time, TV, streaming for September 12**\
+`Find out how to watch the Los Angeles Dodgers play the San Francisco Giants, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6622367/2025/09/12/dodgers-vs-giants-stream-how-to-watch-sept-12/
 
