@@ -1,9 +1,13 @@
+**What does the Sabres' signing of Alexandar Georgiev signal about their goalie situation?**\
+`The signing of Georgiev is, in part, a response to an injury to starting goalie Ukko-Pekka Luukkonen.`\
+https://nytimes.com/athletic/6623272/2025/09/12/sabres-sign-alexandar-georgiev-luukkonen-injury-goalie/
+
 **Review: Gustavo Dudamel Gives a Glimpse of New York’s Future**\
 `The superstar conductor opened the New York Philharmonic’s season, with his signature thrills that make a traditional concert format seem exceptional.`\
 https://nytimes.com/2025/09/12/arts/music/review-gustavo-dudamel-new-york-philharmonic-opening-night.html
 
-**False Threats Target H.B.C.U.s, Forcing Closures**\
-`Several historically Black colleges and universities canceled classes and events on Friday after a series of threats. The F.B.I. said the calls were hoaxes.`\
+**Hoaxes Target Black Colleges, Shutting Classes as Anxiety Mounts in U.S.**\
+`Several historically Black colleges and universities canceled classes and events on Friday after a series of threats. The F.B.I. said the calls were false.`\
 https://nytimes.com/2025/09/12/us/false-threats-target-hbcus-forcing-closures.html
 
 **8 Phrases to Help Your Relationship Thrive**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6622533/2025/09/12/harry-ford-mariners-walkoff-the-
 **A must-win game already? Why Russell Wilson, Giants have to beat the Cowboys**\
 `If Wilson doesn't play well this weekend in Dallas, it could very well be his last start with the Giants. `\
 https://nytimes.com/athletic/6621968/2025/09/12/a-must-win-game-already-why-russell-wilson-giants-have-to-beat-the-cowboys/
-
-**He Made a Friend on Roblox. Their Relationship Turned Sinister.**\
-`At age 7, Ethan Dallas began playing the online game, where he met Nate. Deadly abuse followed, said Ethan’s mother, who blames Roblox.`\
-https://nytimes.com/2025/09/12/technology/roblox-lawsuit-child-safety.html
 
