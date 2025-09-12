@@ -1,3 +1,23 @@
+**Trump Downplays the ‘Radical Right’ and Says the Left Is the Problem**\
+`President Trump dismissed a suggestion that there were extremists on both sides of the political spectrum.`\
+https://nytimes.com/live/2025/09/12/us/charlie-kirk-news-suspect/trump-charlie-kirk-shooting
+
+**Assessing early fantasy football injury fallout, but first, add Harold Fannin**\
+`Andy Behrens is effusive in his praise of rookie Harold Fannin as he breaks down the big fantasy football news heading into Week 2.`\
+https://nytimes.com/athletic/6623324/2025/09/12/fantasy-football-news-fannin-ekeler-reedweek-2/
+
+**Sabres director of player development Adam Mair placed on leave after arrest**\
+`A former Buffalo player, Mair was arrested on Sept. 4 for allegedly driving while intoxicated.`\
+https://nytimes.com/athletic/6623445/2025/09/12/buffalo-sabres-arrest-adam-mair/
+
+**F.D.A. Reviews Cases of Covid Vaccine Deaths**\
+`The agency plans to present accounts of deaths involving children and birth defects to an influential C.D.C. panel meeting next week.`\
+https://nytimes.com/2025/09/12/health/fda-covid-vaccines-injuries-deaths.html
+
+**Here’s What Some of the Bullet Casing Engravings in the Charlie Kirk Shooting Mean**\
+`Many of the messages, the authorities said, adopt the flippant, sarcastic chatter often found on online message boards and in-game chats.`\
+https://nytimes.com/2025/09/12/us/charlie-kirk-bullet-casings-engravings.html
+
 **Bills' Ed Oliver out for Week 2, T.J. Sanders expected to start versus Jets**\
 `The team is thin as it is at defensive tackle, even before the Oliver injury.`\
 https://nytimes.com/athletic/6623193/2025/09/12/bills-ed-oliver-injury-tj-sanders/

@@ -1,6 +1,14 @@
-**Trump Downplays the ‘Radical Right’ and Says the Left Is the Problem**\
+**NBA's new long-range heave rule might bring more excitement for fans**\
+`The NBA is trying something new by adjusting its quarter-ending heave rule.`\
+https://nytimes.com/athletic/6621472/2025/09/12/nba-heaves-adam-silver-nikola-jokic-trae-young-stephen-curry/
+
+**Belgian Authorities Say $10 Million Supply of Birth Control Has Not Yet Been Destroyed**\
+`Contraceptives bought by U.S.A.I.D. have been in limbo in a Belgian warehouse. The U.S. government said the products were destroyed, but local authorities found them.`\
+https://nytimes.com/2025/09/12/world/europe/trump-birth-control.html
+
+**Trump downplays the ‘radical right’ and says the left is the problem.**\
 `President Trump dismissed a suggestion that there were extremists on both sides of the political spectrum.`\
-https://nytimes.com/live/2025/09/12/us/charlie-kirk-news-suspect/trump-charlie-kirk-shooting
+https://nytimes.com/2025/09/12/us/politics/trump-charlie-kirk-shooting.html
 
 **Assessing early fantasy football injury fallout, but first, add Harold Fannin**\
 `Andy Behrens is effusive in his praise of rookie Harold Fannin as he breaks down the big fantasy football news heading into Week 2.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/12/arts/music/jane-austen-music.html
 **Packers fans chant 'Thank you, Jerry,' as Micah Parsons delivers again**\
 `Parsons has 1.5 sacks in his first two games with the Packers, though his impact extends beyond the stat sheet.`\
 https://nytimes.com/athletic/6623257/2025/09/12/cowboys-packers-micah-parsons-chants-jerry-jones/
-
-**Is ‘The Pitt’ Really an ‘ER’ Spinoff? Michael Crichton’s Estate Says It Is.**\
-`The estate of the best-selling author, which has intellectual property rights to “ER,” and the creators of the new hit TV show are waging a legal battle over whether it’s a stealth reboot.`\
-https://nytimes.com/2025/09/12/business/the-pitt-er-michael-crichton-lawsuit.html
-
-**'Under the radar' names you should know entering Oilers' rookie and main camps**\
-`Three names destined to land with the Bakersfield Condors this season who could make an impact on the Oilers' roster in the future.`\
-https://nytimes.com/athletic/6620198/2025/09/12/under-the-radar-names-oilers-rookie-main-camp/
 
