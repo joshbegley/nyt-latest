@@ -1,3 +1,7 @@
+**One Country Knew What to Do When Its President Tried to Steal an Election**\
+`Brazil just succeeded where we failed.`\
+https://nytimes.com/2025/09/12/opinion/trump-bolsonaro-conviction-democracy.html
+
 **The New York Times in Print for Friday, Sep. 12, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/12/todays-new-york-times
