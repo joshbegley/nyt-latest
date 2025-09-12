@@ -1,3 +1,27 @@
+**What La Liga clubs really think of the salary limit**\
+`We asked sources at every club in the Spanish top flight for their opinion on the rules that govern how much they can spend`\
+https://nytimes.com/athletic/6619119/2025/09/12/la-liga-salary-limit-barceloa-real-madrid-atletico/
+
+**Strand Larsen, an awkward Newcastle meeting missed and his enduring value to Wolves**\
+`Wolves are hopeful that the Norwegian will brush off his failed move and do what is best for both club and himself: scoring goals`\
+https://nytimes.com/athletic/6583773/2025/09/12/jorgen-strand-larsen-wolves-newcastle-premier-league/
+
+**Noah Okafor interview: 'I can make a difference in every game'**\
+`The winger speaks to The Athletic about joining Leeds, specialist sprint training, and his World Cup hopes with Switzerland`\
+https://nytimes.com/athletic/6619693/2025/09/12/noah-okafor-interview-leeds-united/
+
+**Wrexham must improve defensively and, crucially, they now might just have the players to do so**\
+`The Championship club are hopeful that Dominic Hyam and Issa Kabore will provide much-needed stability at the back`\
+https://nytimes.com/athletic/6615647/2025/09/12/wrexham-championship-defence-improve/
+
+**Kolo Muani's versatility means he can be effective across Tottenham's attack**\
+`The Frenchman's trickery, relentless take-ons and impressive all-round game give Thomas Frank's front line a huge boost`\
+https://nytimes.com/athletic/6619505/2025/09/12/kolo-muani-tottenham-position/
+
+**Kudus wanted to leave West Ham on good terms. So he joined Tottenham**\
+`Kudus is likely to receive a hostile reception on his return to the London Stadium, where he was once adored by the West Ham faithful`\
+https://nytimes.com/athletic/6618783/2025/09/12/mohammed-kudus-tottenham-hotspur-west-ham-chelsea/
+
 **Guardiola, Amorim, and troubling times in the state of Manchester**\
 `There is a spotlight on the Manchester derby, a game where the stakes are raised precisely because the mood right now is so low`\
 https://nytimes.com/athletic/6620274/2025/09/12/manchester-derby-guardiola-amorim/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6543303/2025/09/12/liverpool-transfer-window-analys
 **How will Forest's players deal with Postecoglou's intense tactical approach?**\
 `The potential winners and losers from Forest's squad as they prepare for life under the Australian `\
 https://nytimes.com/athletic/6617471/2025/09/12/ange-postecoglou-tactics-nottingham-forest/
-
-**Premier League Predictions: Manchester derby, West Ham-Spurs, and the rest of Matchday 4**\
-`Who's leading after MD3? And what does our writer, the algorithm, a child and this week's subscriber expect to see on MD4?`\
-https://nytimes.com/athletic/6601465/2025/09/12/premier-league-predictions-manchester-derby-west-ham-spurs-and-the-rest-of-matchday-4/
-
-**From dreams to doughnuts: How Jack Grealish revived Everton on and off the pitch**\
-`The Manchester City loanee has made a startling impact since arriving at Hill Dickinson Stadium as he sets about regaining his England place`\
-https://nytimes.com/athletic/6618965/2025/09/12/jack-grealish-everton-symbol-doughnut/
-
-**Olivia Smith on her record-breaking move: 'It’s not like I'm receiving a million pounds!'**\
-`Drawing a line between stunning debuts and success is a dangerous game, but it is clear that Smith has captured something special at Arsenal`\
-https://nytimes.com/athletic/6618929/2025/09/12/olivia-smith-arsenal-wsl-interview/
-
-**Why Tuchel is right to target long throws as an attacking weapon**\
-`England head coach Thomas Tuchel is building up England's set-piece armoury. But how important are long throws?`\
-https://nytimes.com/athletic/6613474/2025/09/12/tuchel-england-long-throws/
-
-**Packers defense smothers Commanders in 27-18 win: Key takeaways**\
-`Green Bay combined for 404 yards, while Washington totaled 230 yards in a 'Thursday Night Football' game that left each side with injuries.`\
-https://nytimes.com/athletic/6621429/2025/09/12/commanders-packers-tnf-score-result-takeaways-nfl/
-
-**From 'complete novice' to Britain's brightest SailGP hope: “It's not the most diverse sport'**\
-`British teenager Kai Hockley’s pathway into sailing was not the most traditional. `\
-https://nytimes.com/athletic/6440026/2025/09/12/kai-hockley-interview-britain-sail-gp/
 

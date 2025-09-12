@@ -1,3 +1,27 @@
+**Guardiola, Amorim, and troubling times in the state of Manchester**\
+`There is a spotlight on the Manchester derby, a game where the stakes are raised precisely because the mood right now is so low`\
+https://nytimes.com/athletic/6620274/2025/09/12/manchester-derby-guardiola-amorim/
+
+**Enter Yoane Wissa: Newcastle's new No 9 is high cost but low risk**\
+` That Newcastle spent £50m on a 29-year-old striker is a mark of an inflated market, but the data shows Yoane Wissa is a striker to rely on`\
+https://nytimes.com/athletic/6615234/2025/09/12/yoane-wissa-newcastle-analysis/
+
+**Inside Liverpool's £710m transfer window and a summer like no other**\
+`This is how and why the champions embarked on an unprecedented summer of spending and off-field upheaval`\
+https://nytimes.com/athletic/6543303/2025/09/12/liverpool-transfer-window-analysis/
+
+**How will Forest's players deal with Postecoglou's intense tactical approach?**\
+`The potential winners and losers from Forest's squad as they prepare for life under the Australian `\
+https://nytimes.com/athletic/6617471/2025/09/12/ange-postecoglou-tactics-nottingham-forest/
+
+**Premier League Predictions: Manchester derby, West Ham-Spurs, and the rest of Matchday 4**\
+`Who's leading after MD3? And what does our writer, the algorithm, a child and this week's subscriber expect to see on MD4?`\
+https://nytimes.com/athletic/6601465/2025/09/12/premier-league-predictions-manchester-derby-west-ham-spurs-and-the-rest-of-matchday-4/
+
+**From dreams to doughnuts: How Jack Grealish revived Everton on and off the pitch**\
+`The Manchester City loanee has made a startling impact since arriving at Hill Dickinson Stadium as he sets about regaining his England place`\
+https://nytimes.com/athletic/6618965/2025/09/12/jack-grealish-everton-symbol-doughnut/
+
 **Olivia Smith on her record-breaking move: 'It’s not like I'm receiving a million pounds!'**\
 `Drawing a line between stunning debuts and success is a dangerous game, but it is clear that Smith has captured something special at Arsenal`\
 https://nytimes.com/athletic/6618929/2025/09/12/olivia-smith-arsenal-wsl-interview/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6621429/2025/09/12/commanders-packers-tnf-score-res
 **From 'complete novice' to Britain's brightest SailGP hope: “It's not the most diverse sport'**\
 `British teenager Kai Hockley’s pathway into sailing was not the most traditional. `\
 https://nytimes.com/athletic/6440026/2025/09/12/kai-hockley-interview-britain-sail-gp/
-
-**In the Pacific, Unkept U.S. Promises on Climate Cut Deep**\
-`Pacific island nations have seen American pledges and attention come and go with geopolitical winds. Recent U.S. pullbacks are met with disappointment but not surprise.`\
-https://nytimes.com/2025/09/12/world/asia/in-the-pacific-unkept-us-promises-on-climate-cut-deep.html
-
-**Europe’s 3 Top Leaders Are Striding on the World Stage but Stumbling at Home**\
-`The foreign policy successes of Keir Starmer of Britain, Emmanuel Macron of France and Friedrich Merz of Germany are in contrast with their dismal domestic performances.`\
-https://nytimes.com/2025/09/12/world/europe/europe-starmer-macron-merz.html
-
-**Connections: Sports Edition Coach: Hints for Sept. 12, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6619786/2025/09/12/connections-sports-edition-hints-for-sept-12-2025/
-
-**Georgia ICE Raid Netted Workers With Short-Term Business Visas**\
-`Last week’s immigration operation at a battery plant highlighted a tactic that companies use to bring in foreign workers to establish new operations.`\
-https://nytimes.com/2025/09/12/business/economy/hyundai-raid-worker-visas.html
-
-**Corrections: Sept. 12, 2025**\
-`Corrections that appeared in print on Friday, Sept. 12, 2025.`\
-https://nytimes.com/2025/09/12/pageoneplus/corrections-sept-12-2025.html
-
-**My Relationship With Alcohol Is Not Complicated**\
-`I love it. It’s just that it’s horrible for me.`\
-https://nytimes.com/2025/09/12/style/modern-love-my-relationship-with-alcohol-is-not-complicated.html
 
