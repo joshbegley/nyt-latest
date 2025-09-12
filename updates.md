@@ -1,3 +1,19 @@
+**Aina facing up to three months out with hamstring injury**\
+`Aina, 28, was forced off during Nigeria's World Cup qualifier against South Africa on Tuesday.`\
+https://nytimes.com/athletic/6622586/2025/09/12/ola-aina-nottingham-forest-injury-update/
+
+**As Drake Maye looks to bounce back, Patriots remain confident 'he's the right guy'**\
+`Maye struggled against the Raiders in Week 1, but his coaches feel good about his progress and expect him to bounce back vs. the Dolphins.`\
+https://nytimes.com/athletic/6620828/2025/09/12/drake-maye-patriots-dolphins-nfl-week-2/
+
+**Week 2 fantasy football intel, predictions using player prop lines**\
+`Sportsbooks do their research, so Brad Evans scours the lines to find fantasy relevant intel. `\
+https://nytimes.com/athletic/6620759/2025/09/12/fantasy-football-week-2-predictions-props/
+
+**Where did the Falcons' run game go? And can they find it again vs. Vikings?**\
+`The Falcons ran for only 69 yards in Week 1. This week, they face a Vikings team with one of the league's best run defenses.`\
+https://nytimes.com/athletic/6620358/2025/09/12/falcons-run-game-vikings-bijan-robinson/
+
 **What MAGA Lost When It Lost Charlie Kirk**\
 `His death makes it harder to look ahead and glimpse what MAGA will stand for.`\
 https://nytimes.com/2025/09/12/opinion/charlie-kirk-assassination-maga.html

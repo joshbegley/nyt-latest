@@ -1,3 +1,19 @@
+**Aina facing up to three months out with hamstring injury**\
+`Aina, 28, was forced off during Nigeria's World Cup qualifier against South Africa on Tuesday.`\
+https://nytimes.com/athletic/6622586/2025/09/12/ola-aina-nottingham-forest-injury-update/
+
+**As Drake Maye looks to bounce back, Patriots remain confident 'he's the right guy'**\
+`Maye struggled against the Raiders in Week 1, but his coaches feel good about his progress and expect him to bounce back vs. the Dolphins.`\
+https://nytimes.com/athletic/6620828/2025/09/12/drake-maye-patriots-dolphins-nfl-week-2/
+
+**Week 2 fantasy football intel, predictions using player prop lines**\
+`Sportsbooks do their research, so Brad Evans scours the lines to find fantasy relevant intel. `\
+https://nytimes.com/athletic/6620759/2025/09/12/fantasy-football-week-2-predictions-props/
+
+**Where did the Falcons' run game go? And can they find it again vs. Vikings?**\
+`The Falcons ran for only 69 yards in Week 1. This week, they face a Vikings team with one of the league's best run defenses.`\
+https://nytimes.com/athletic/6620358/2025/09/12/falcons-run-game-vikings-bijan-robinson/
+
 **What MAGA Lost When It Lost Charlie Kirk**\
 `His death makes it harder to look ahead and glimpse what MAGA will stand for.`\
 https://nytimes.com/2025/09/12/opinion/charlie-kirk-assassination-maga.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/09/12/us/politics/charlie-kirk-voters-politics-violence
 **9 New Movies Our Critics Are Talking About This Week**\
 `Whether you’re a casual moviegoer or an avid buff, our reviewers think these films are worth knowing about.`\
 https://nytimes.com/2025/09/12/movies/new-movies-this-week-critics.html
-
-**Clinton-Era Lessons for Democrats Confronting Trump**\
-`Democrats should go to the ramparts on three issues, with a popular solution for each.`\
-https://nytimes.com/2025/09/12/opinion/clinton-era-democrats-trump.html
-
-**States Want to Ban ‘Forever Chemicals’ in Cookware. These Chefs Say Don’t Do It.**\
-`Rachael Ray and other food celebrities are speaking up in defense of nonstick pans. The actor Mark Ruffalo, who starred in a movie about the risky chemicals, is criticizing them.`\
-https://nytimes.com/2025/09/12/climate/rachael-ray-david-chang-pfas-forever-chemicals-cookware.html
-
-**Adam Friedland’s Trick: Combining the Political and the Personal, Virally**\
-`Conversations on his YouTube show can reflect his standup but more often he confounds interviewees like Ritchie Torres.`\
-https://nytimes.com/2025/09/12/arts/television/adam-friedland-show-ritchie-torres-politics.html
-
-**An Annual Blast of Pacific Cold Water Did Not Occur, Alarming Scientists**\
-`The cold water upswell, which is vital to marine life, did not materialize for the first time on record. Researchers are trying to figure out why.`\
-https://nytimes.com/2025/09/12/climate/an-annual-blast-of-pacific-cold-water-did-not-occur-alarming-scientists.html
 
