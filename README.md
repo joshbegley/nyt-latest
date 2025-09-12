@@ -1,3 +1,15 @@
+**Commanders DE Deatrich Wise Jr. done for the season with quad injury**\
+`Wise signed a one-year deal in March as a key piece of Washington's revamped defensive line.`\
+https://nytimes.com/athletic/6623738/2025/09/12/deatrich-wise-commanders-quad-injury/
+
+**A.I., Gen Z and You: A Guide to Our Contest for Teachers and Teens**\
+`Here are five practical steps for thinking about your relationship with this technology, exploring what you want to say and experimenting with how to say it.`\
+https://nytimes.com/2025/09/12/learning/ai-gen-z-and-you-a-guide-to-our-contest-for-teachers-and-teens.html
+
+**How to Apply Makeup to Mature Skin**\
+`Expert advice from a supermodel, a fashion designer and a makeup artist on adapting your beauty regimen with age.`\
+https://nytimes.com/2025/09/12/t-magazine/mature-skin-makeup.html
+
 **Trump’s Painful Cuts to National Parks**\
 `Readers discuss the damage to America’s parks. Also: Racial profiling in immigrant sweeps; the 9/11 memorial; phones in the classroom.`\
 https://nytimes.com/2025/09/12/opinion/national-parks-cuts-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/12/us/ice-shooting-chicago.html
 **Jeff Bezos, Jessica Chastain and More at Fashion Week’s Starriest Gala**\
 `Hollywood’s most recognizable faces packed Kering’s gala in New York City on Thursday.`\
 https://nytimes.com/2025/09/12/style/kering-gala-nyc-photos.html
-
-**A Plea for President Trump With a Fragile Country on Edge**\
-`Even if it sounds unrealistic, Trump can do something important with the entire country frayed and on edge: push for calm and unity.`\
-https://nytimes.com/2025/09/12/opinion/donald-trump-charlie-kirk-aftermath.html
-
-**Trump Administration Seeks Pilot Projects for Air Taxis**\
-`The projects would allow small electric or hybrid aircraft to carry passengers or cargo before federal regulators approve their commercial use.`\
-https://nytimes.com/2025/09/12/business/trump-air-taxi-faa.html
-
-**Ego Nwodim Leaves ‘S.N.L.’ After 7 Seasons**\
-`Nwodim, known for characters including Lisa From Temecula, is the fifth cast member to leave the sketch comedy show this summer.`\
-https://nytimes.com/2025/09/12/arts/television/ego-nwodim-leaving-snl.html
 

@@ -1,3 +1,7 @@
+**Trump’s Painful Cuts to National Parks**\
+`Readers discuss the damage to America’s parks. Also: Racial profiling in immigrant sweeps; the 9/11 memorial; phones in the classroom.`\
+https://nytimes.com/2025/09/12/opinion/national-parks-cuts-trump.html
+
 **Patriots’ Christian Gonzalez out vs. Dolphins, DC Terrell Williams on medical leave**\
 `New England will be without star cornerback Christian Gonzalez and defensive coordinator Terrell Williams for Sunday’s game in Miami.`\
 https://nytimes.com/athletic/6623758/2025/09/12/patriots-christian-gonzalez-terrell-williams/
