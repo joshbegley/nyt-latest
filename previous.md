@@ -1,3 +1,11 @@
+**The Best Ways to Remove Smoke Smells From Delicate and Hard-to-Wash Fabrics**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/wc-advice-remove-smoke-smell-from-clothing
+
+**What I'm hearing about Carter Hart free agency: Oilers, Flyers may be non-starters**\
+`League sources say Hart's priorities are to find a team that offers a chance at a meaningful number of starts and can win.`\
+https://nytimes.com/athletic/6624342/2025/09/12/carter-hart-oilers-flyers-free-agency/
+
 **Ed Sheeran Wants More Than Just Hits Now**\
 `The superstar singer-songwriter sat down with Popcast to discuss overcoming personal and professional turmoil ahead of his new album, “Play.”`\
 https://nytimes.com/video/podcasts/100000010395369/ed-sheeran-wants-more-than-just-hits-now.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/12/briefing/suspect-arrested-in-killing-of-charlie-k
 **Suspect In Custody For the Shooting of Charlie Kirk**\
 `Gov. Spencer Cox, Republican of Utah, identified the suspect Tyler Robinson. Police arrested the 22-year-old about 250 miles from the Utah Valley University campus, where Charlie Kirk was fatally shot.`\
 https://nytimes.com/video/us/100000010395818/suspect-custody-charlie-kirk.html
-
-**What Made Charlie Kirk Influential?**\
-`Ken Bensinger, a New York Times reporter covering media and politics who has interviewed Charlie Kirk several times, recalls his influence on right-wing activism and the American political landscape.`\
-https://nytimes.com/video/us/politics/100000010393233/what-made-charlie-kirk-influential.html
-
-**Marilyn Diamond, Who Wrote a Blockbuster Diet Book, Dies at 81**\
-`“Fit for Life,” which she wrote with her husband, was a best seller in the 1980s promoting good health ahead of weight loss. But doctors were critical.`\
-https://nytimes.com/2025/09/12/books/marilyn-diamond-dead.html
 

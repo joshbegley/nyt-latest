@@ -1,3 +1,11 @@
+**The Best Ways to Remove Smoke Smells From Delicate and Hard-to-Wash Fabrics**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/wc-advice-remove-smoke-smell-from-clothing
+
+**What I'm hearing about Carter Hart free agency: Oilers, Flyers may be non-starters**\
+`League sources say Hart's priorities are to find a team that offers a chance at a meaningful number of starts and can win.`\
+https://nytimes.com/athletic/6624342/2025/09/12/carter-hart-oilers-flyers-free-agency/
+
 **Ed Sheeran Wants More Than Just Hits Now**\
 `The superstar singer-songwriter sat down with Popcast to discuss overcoming personal and professional turmoil ahead of his new album, “Play.”`\
 https://nytimes.com/video/podcasts/100000010395369/ed-sheeran-wants-more-than-just-hits-now.html
