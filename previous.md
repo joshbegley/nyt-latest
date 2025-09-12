@@ -1,40 +1,40 @@
-**Ranking NFL teams by spending: The boldest, most frugal and best bang for the buck**\
-`Teams are spending more aggressively than ever, but everyone’s approach is unique, and many have seen little return on investment.`\
-https://nytimes.com/athletic/6577082/2025/09/12/nfl-salary-cap-cash-spending-ranking/
+**How 'sleeping giant' Liga MX is poised to capitalize on 2026 World Cup bump**\
+`Between foreign investment, a new rights deal and a decision that may put league games in U.S. stadiums, Mexico's top flight is ready to pop`\
+https://nytimes.com/athletic/6618473/2025/09/12/liga-mx-atlas-sale-mls-matches-usa-world-cup/
 
-**Weird & Wild: Orioles' miracle ninth, Rafael Devers' 8:52 HR trot, Kyle Schwarber's season**\
-`And have you ever heard of a position player who trudged to the mound and didn’t get to leave until he’d faced 18 hitters?`\
-https://nytimes.com/athletic/6622033/2025/09/12/weird-wild-orioles-miracle-ninth-rafael-devers-852-hr-trot-kyle-schwarbers-season/
+**'Mr. 6-7’ is actually a 6-3 high school hoops star in addition to his social media fame**\
+`He's an internet personality but he's also considering scholarship offers from some of the nation's top programs.`\
+https://nytimes.com/athletic/6619536/2025/09/12/basketball-taylen-kinney-high-school-social-trend/
 
-**The Pulse: A new Super Bowl contender?**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6620642/2025/09/12/packers-commanders-tnf-the-pulse/
+**Watching the NBA in 2025 is going to cost you. How much? Up to $982**\
+`The NBA may be a "highlights league," according to Adam Silver, but how much will it cost to watch your favorite team and national games?`\
+https://nytimes.com/athletic/6621237/2025/09/12/nba-games-2025-streaming-cost-price/
 
-**All this Barcelona drama gives us loads to talk about. Here's our first of two Q&As**\
-`Marcus Rashford's place, Camp Nou chaos, Frenkie de Jong's future and more on the way tomorrow. Here's the first of two Barcelona mailbags`\
-https://nytimes.com/athletic/6622587/2025/09/12/barcelona-camp-nou-yamal-de-jong-flick/
+**Fantasy Premier League live Q&A: Gameweek 4 advice from Ben Dinnery**\
+`Join Ben Dinnery for a live Gameweek 4 Q&A from 4pm-5pm UK time`\
+https://nytimes.com/athletic/6618937/2025/09/12/fantasy-premier-league-live-qa-fpl-tips-gw4/
 
-**Replacing JJ Peterka, prospect watch, Owen Power injury: Sabres mailbag, part 2**\
-`Owen Power suffered a knee injury late last season. Is he recovered and ready to go?`\
-https://nytimes.com/athletic/6620865/2025/09/12/replacing-jj-peterka-owen-power-injury-sabres-mailbag/
+**Sliders: How Davey Johnson went from scapegoat to savant in the 1986 World Series**\
+`Plus Blue Jays outfielder Daulton Varsho's famous namesake, remembering Willie Mays' post-playing pitchman days and more. `\
+https://nytimes.com/athletic/6614090/2025/09/12/davey-johnson-mets-world-series-sliders/
 
-**Meet Mercogliano: Live Q&A with The Athletic's new New York Rangers beat writer**\
-`Vincent Mercogliano will hang out from 12-1p ET Friday to chat with fans about his coverage and the upcoming NHL season.`\
-https://nytimes.com/athletic/6608510/2025/09/12/new-york-rangers-live-qa-vincent-mercogliano/
+**Twins mailbag: Walker Jenkins' future next to Byron Buxton, payroll predictions, more**\
+`Plus the best long-term fit for Luke Keaschall, encouraging signs from Austin Martin and trade odds for Joe Ryan and Pablo López.`\
+https://nytimes.com/athletic/6619149/2025/09/12/twins-mailbag-walker-jenkins-byron-buxton-payroll-bullpen/
 
-**Can the Liberty get on track? Will the Aces' hot streak continue? WNBA playoff storylines to watch**\
-`The WNBA playoffs start Sunday. The first round features three-game series.`\
-https://nytimes.com/athletic/6621345/2025/09/12/wnba-playoffs-lynx-aces-liberty/
+**Why the Wild and those who know prospect Adam Benak believe he will 'prove a lot of people wrong'**\
+`The knock on Benak has always been his size, at 5-7 and 164 pounds. But those who have coached him see something special.`\
+https://nytimes.com/athletic/6614239/2025/09/12/wild-prospect-adam-benak-size/
 
-**The 3 MLB series with the highest playoff stakes to watch this weekend**\
-`There are several weekend clashes with MLB playoff implications, from Kenmore Square out to the San Francisco Bay.`\
-https://nytimes.com/athletic/6621273/2025/09/12/mlb-playoff-race-yankees-red-sox-rangers-mets-dodgers-giants-how-to-watch/
+**The development plan for Blackhawks prospect Anton Frondell's season in Sweden**\
+`Frondell knows he has plenty to learn with Djurgården before he's ready for the NHL.`\
+https://nytimes.com/athletic/6621100/2025/09/12/the-development-plan-for-blackhawks-prospect-anton-frondells-upcoming-season-in-sweden/
 
-**Maresca: Chelsea squad not 'worried' about club's 74 FA charges**\
-`Chelsea are facing 74 charges for alleged rule breaches related to payments to agents between 2009 and 2022.`\
-https://nytimes.com/athletic/6622773/2025/09/12/enzo-maresca-chelsea-charges/
+**Can Easton Cowan crack the Maple Leafs' roster?**\
+`Which side of the wall the Leafs' top prospect ends up on remains one of the most intriguing questions with training camp looming.`\
+https://nytimes.com/athletic/6621392/2025/09/12/easton-cowan-maple-leafs-roster/
 
-**The Commanders' nightmare in Green Bay revealed some serious identity issues**\
-`After thriving under pressure during their breakout 2024 season, this year's Commanders have appeared discombobulated in crunch time.`\
-https://nytimes.com/athletic/6622588/2025/09/12/washington-commanders-injuries-packers/
+**Jaron-Keawe Sagapolutele and the mixed blessing of breakout college football stardom**\
+`Speculation about Jaron-Keawe Sagapolutele's next destination started in the first quarter of his first collegiate game. `\
+https://nytimes.com/athletic/6619776/2025/09/12/jaron-keawe-sagapolutele-cal-quarterback/
 
