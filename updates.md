@@ -1,3 +1,23 @@
+**‘The Wrong Paris’ Review: Texas Wants a Word**\
+`Paris, Texas, may not be the preferred locale for the art student Miranda Cosgrove, but she finds that it might bring her the right man.`\
+https://nytimes.com/2025/09/12/movies/the-wrong-paris-review.html
+
+**Antisemitic Slurs Disrupt Queens College Zoom Lecture About Israel**\
+`As an Israeli professor began to speak, some attendees appeared to switch on their cameras and microphones and started yelling. Instead of their faces, they showed disturbing images.`\
+https://nytimes.com/2025/09/12/nyregion/antisemitic-slurs-queens-college-lecture.html
+
+**‘Say Yes’**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2025/09/12/learning/say-yes.html
+
+**A Reporter Who Looks for the Books That Make You Tick**\
+`Alexandra Alter, who covers publishing industry news and writes Books features for The Times, is always on the hunt for the next Harry Potter.`\
+https://nytimes.com/2025/09/12/insider/book-reporting.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/09/12/crosswords/spelling-bee-forum.html
+
 **Late Night Calls for Bringing the Temperature Down**\
 `Seth Meyers and other hosts talked about Charlie Kirk’s assassination, denouncing political violence and incendiary rhetoric.`\
 https://nytimes.com/2025/09/12/arts/television/late-night-charlie-kirk.html
