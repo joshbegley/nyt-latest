@@ -1,3 +1,7 @@
+**Moro Ojomo, 'obsessed with evolving,' on his Nigerian sports academy, chance to start**\
+`Ojomo hopes to build a sports academy in his native Nigeria to help give others better opportunities.`\
+https://nytimes.com/athletic/6619017/2025/09/12/eagles-moro-ojomo-nigeria/
+
 **Strand Larsen to miss Wolves' trip to Newcastle through injury**\
 `The Norway international expressed a desire to join Newcastle in the summer window and has been absent with an Achilles injury.`\
 https://nytimes.com/athletic/6623018/2025/09/12/jorgen-strand-larsen-newcastle-wolves-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/12/world/europe/ukraine-corruption.html
 **Bayindir to start for Man United in derby - Amorim**\
 `Lammens completed a deadline-day transfer to United from Royal Antwerp in a €21m deal while Onana has joined Trabzonspor on loan.`\
 https://nytimes.com/athletic/6623030/2025/09/12/manchester-united-goalkeeper-bayindir-lammens/
-
-**Manchester United live Q&A: Andy Mitten answers your questions**\
-`Ask your questions of Andy Mitten`\
-https://nytimes.com/athletic/6616656/2025/09/12/manchester-united-andy-mitten/
 

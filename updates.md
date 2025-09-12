@@ -1,3 +1,23 @@
+**Strand Larsen to miss Wolves' trip to Newcastle through injury**\
+`The Norway international expressed a desire to join Newcastle in the summer window and has been absent with an Achilles injury.`\
+https://nytimes.com/athletic/6623018/2025/09/12/jorgen-strand-larsen-newcastle-wolves-injury/
+
+**Manny Machado keeps posting – and slumping. When will the Padres finally rest him?**\
+`Machado is one of only four major-league players to have started every game this season but his offense remained in a rut Thursday.`\
+https://nytimes.com/athletic/6622392/2025/09/12/sd-padres-manny-machado-slump/
+
+**Debt Collection Lawsuits Are Rising. Here’s What to Do to Fight Back.**\
+`The number of filings is back above 2020 levels as prices rise and people rely more on credit cards, an analysis finds. But many borrowers don’t respond to the suits and lose by default.`\
+https://nytimes.com/2025/09/12/your-money/debt-collection-lawsuits.html
+
+**Believe in A.I.? Buy Beaten-Down Value Stocks.**\
+`If artificial intelligence is really revolutionary, its benefits will spread to mundane companies and spawn new fields, Vanguard’s global chief economist says.`\
+https://nytimes.com/2025/09/12/business/ai-investing-value-stocks.html
+
+**Freed From U.S. Detention, South Korean Workers Return Home to Tearful Cheers**\
+`The workers, whose detention in a workplace immigration sweep set off outrage in South Korea, expressed both relief and anger.`\
+https://nytimes.com/2025/09/12/world/asia/korean-workers-georgia-arrest.html
+
 **Prince Harry Meets War Veterans in Surprise Visit to Ukraine**\
 `The prince arrived in Kyiv on his second trip to the country this year. The visit comes after his charity supporting wounded soldiers said it would expand post-conflict rehabilitation.`\
 https://nytimes.com/2025/09/12/world/europe/prince-harry-ukraine-kyiv-war.html
