@@ -1,3 +1,7 @@
+**Late Night Calls for Bringing the Temperature Down**\
+`Seth Meyers and other hosts talked about Charlie Kirk’s assassination, denouncing political violence and incendiary rhetoric.`\
+https://nytimes.com/2025/09/12/arts/television/late-night-charlie-kirk.html
+
 **How to watch White Sox at Guardians: Time, TV, streaming for September 12**\
 `Find out how to watch the Chicago White Sox play the Cleveland Guardians, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6622391/2025/09/12/white-sox-vs-guardians-stream-how-to-watch-sept-12/
