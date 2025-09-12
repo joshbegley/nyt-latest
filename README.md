@@ -1,3 +1,11 @@
+**2025 World Athletics Championships: The rivalries to watch in Tokyo**\
+`From Noah Lyles vs Letsile Tebogo to Nafi Thiam vs Anna Hall, these are the pulsating match-ups to look out for`\
+https://nytimes.com/athletic/6613878/2025/09/12/world-athletics-championships-tokyo-rivalry/
+
+**Trashing the leather: The hidden cost of Patrick Bailey's elite pitch framing skills**\
+`Pulling borderline pitches into the strike zone causes the Giants' Gold Glove catcher to burn through catcher's mitts throughout the season.`\
+https://nytimes.com/athletic/6621510/2025/09/12/sf-giants-patrick-bailey-catchers-mitt-pitch-framing/
+
 **Jonathan Toews looks rusty in his first skates with the Jets. Why that's great news**\
 `Jonathan Toews will need some time to get up to speed but he's far from washed up.`\
 https://nytimes.com/athletic/6620606/2025/09/12/jonathan-toews-winnipeg-jets/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6618937/2025/09/12/fantasy-premier-league-live-qa-f
 **Sliders: How Davey Johnson went from scapegoat to savant in the 1986 World Series**\
 `Plus Blue Jays outfielder Daulton Varsho's famous namesake, remembering Willie Mays' post-playing pitchman days and more. `\
 https://nytimes.com/athletic/6614090/2025/09/12/davey-johnson-mets-world-series-sliders/
-
-**Twins mailbag: Walker Jenkins' future next to Byron Buxton, payroll predictions, more**\
-`Plus the best long-term fit for Luke Keaschall, encouraging signs from Austin Martin and trade odds for Joe Ryan and Pablo López.`\
-https://nytimes.com/athletic/6619149/2025/09/12/twins-mailbag-walker-jenkins-byron-buxton-payroll-bullpen/
-
-**Why the Wild and those who know prospect Adam Benak believe he will 'prove a lot of people wrong'**\
-`The knock on Benak has always been his size, at 5-7 and 164 pounds. But those who have coached him see something special.`\
-https://nytimes.com/athletic/6614239/2025/09/12/wild-prospect-adam-benak-size/
 
