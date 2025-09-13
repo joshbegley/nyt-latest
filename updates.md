@@ -1,3 +1,7 @@
+**Dozens of Students Among Over 200 Dead in Two Boat Disasters in Congo**\
+`One of the boats was carrying mostly students who were returning to town for the start of the new school year, residents of the area said.`\
+https://nytimes.com/2025/09/13/world/africa/congo-boat-deaths.html
+
 **Far-Right Rally in London Draws Huge Crowd and a Counterprotest**\
 `The divisive anti-immigrant agitator Tommy Robinson organized what he said was a free-speech festival for his supporters.`\
 https://nytimes.com/2025/09/13/world/europe/britain-far-right-rally-robinson.html

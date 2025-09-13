@@ -1,3 +1,7 @@
+**Dozens of Students Among Over 200 Dead in Two Boat Disasters in Congo**\
+`One of the boats was carrying mostly students who were returning to town for the start of the new school year, residents of the area said.`\
+https://nytimes.com/2025/09/13/world/africa/congo-boat-deaths.html
+
 **Far-Right Rally in London Draws Huge Crowd and a Counterprotest**\
 `The divisive anti-immigrant agitator Tommy Robinson organized what he said was a free-speech festival for his supporters.`\
 https://nytimes.com/2025/09/13/world/europe/britain-far-right-rally-robinson.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010396966/london-immigration-protes
 **Girl, 16, Struck and Killed by Driver of S.U.V. in Queens, Police Say**\
 `The girl, identified as Jhoanny Gomez-Alvarez, was intentionally struck by the 38-year-old driver early Saturday morning after getting into an argument with him, a law enforcement official said.`\
 https://nytimes.com/2025/09/13/nyregion/girl-struck-suv-queens.html
-
-**1976 Topps Walter Payton rookie card: Our sports card of the week**\
-`With the 40th anniversary of the Bears' 1985 Super Bowl win upon us, we look back at an iconic card of a standout on that team`\
-https://nytimes.com/athletic/6625960/2025/09/13/walter-payton-bears-rookie-card/
 
