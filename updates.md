@@ -1,3 +1,7 @@
+**Reds watching the scoreboard, but not producing runs**\
+`Cincinnati leaves 11 runners stranded in shutout loss to A's.`\
+https://nytimes.com/athletic/6625217/2025/09/13/cincinnati-reds-brady-singer-lose/
+
 **Chiefs defense believes it'll be better Week 2. It started with an apology**\
 `The Chargers' pass game exposed the Chiefs in two specific areas. Will K.C. be able to fix things this week against the Philadelphia Eagles?`\
 https://nytimes.com/athletic/6623729/2025/09/13/chiefs-defense-apology-week-2-improvement/
