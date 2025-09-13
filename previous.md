@@ -1,3 +1,7 @@
+**Nepal’s New Government Calls Elections. Its Critics Cry Foul.**\
+`Sushila Karki, a former Supreme Court chief justice who was appointed as interim leader, made speed a priority in a process that other jurists deem unconstitutional.`\
+https://nytimes.com/2025/09/13/world/asia/nepal-government-politics-election-protest.html
+
 **What Happened to Cameron Crowe? He Has Answers.**\
 `The writer-director made hit after hit movie, until he didn’t. But he doesn’t let it get him down.`\
 https://nytimes.com/2025/09/13/magazine/cameron-crowe-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/13/us/charlie-kirk-college-campuses-american-politic
 **The Living Room Where History Still Happens**\
 `Gloria Steinem, now 91, is still at the center of vital conversations. On Tuesday, she gathered a circle of nearly 30 women at her home to talk about women’s health.`\
 https://nytimes.com/2025/09/13/style/the-living-room-where-history-still-happens.html
-
-**How to Watch the 2025 Emmy Awards**\
-`The show, airing on CBS, is being hosted by the comedian Nate Bargatze.`\
-https://nytimes.com/2025/09/13/arts/television/emmy-awards-watch-time-stream.html
 

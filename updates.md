@@ -1,3 +1,7 @@
+**Nepal’s New Government Calls Elections. Its Critics Cry Foul.**\
+`Sushila Karki, a former Supreme Court chief justice who was appointed as interim leader, made speed a priority in a process that other jurists deem unconstitutional.`\
+https://nytimes.com/2025/09/13/world/asia/nepal-government-politics-election-protest.html
+
 **What Happened to Cameron Crowe? He Has Answers.**\
 `The writer-director made hit after hit movie, until he didn’t. But he doesn’t let it get him down.`\
 https://nytimes.com/2025/09/13/magazine/cameron-crowe-interview.html
