@@ -1,3 +1,11 @@
+**Nebraska dominates Houston Christian, setting up a pivotal visit from Michigan**\
+`Despite back-to-back blowout wins, the identity of Nebraska’s 2025 football team remains unknown.`\
+https://nytimes.com/athletic/6626022/2025/09/13/nebraska-houston-christian-score-result-takeaways/
+
+**Van Hollen Criticizes Democratic Leaders for Delay in Endorsing Mamdani**\
+`At an annual fund-raiser in Iowa, the Maryland Democrat said he supported Zohran Mamdani for mayor of New York City and said people were sick of “spineless politics.”`\
+https://nytimes.com/2025/09/13/us/politics/van-hollen-zohran-mamdani.html
+
 **Bryce Underwood, Michigan look ready for Big Ten play in rout of CMU**\
 `The Wolverines entered Saturday facing questions about how they would respond to the loss at Oklahoma and Sherrone Moore's suspension.`\
 https://nytimes.com/athletic/6626406/2025/09/13/michigan-football-central-michigan-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6626339/2025/09/13/chiefs-xavier-worthy-status-eagl
 **Wrestling Over Charlie Kirk’s Legacy and the Divide in America**\
 `Historians say the lessons of this particular time will depend on Americans themselves, and what kind of a nation they want it to be.`\
 https://nytimes.com/2025/09/13/us/politics/charlie-kirk-legacy-trump.html
-
-**What's wrong with UCLA? Bad offseason hurting the Bruins**\
-`Nobody was counting on the Bruins being great this season, but every offseason concern has reared its head through three weeks.`\
-https://nytimes.com/athletic/6626172/2025/09/13/ucla-deshaun-foster-nico-iamaleava/
-
-**Anti-Immigration Activists Face Off With Counterprotesters in London**\
-`Thousands of far-right activists marched through central London on Saturday, setting off sporadic clashes with the police as they held dueling demonstrations with counterprotesters.`\
-https://nytimes.com/video/world/europe/100000010396966/london-immigration-protest.html
 
