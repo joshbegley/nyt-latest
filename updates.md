@@ -1,3 +1,5 @@
+
+
 **7.4-Magnitude Earthquake Strikes Russia’s Far East**\
 `Dangerous tsunami waves were possible at coastlines near the epicenter, according to the U.S. Tsunami Warning System.`\
 https://nytimes.com/2025/09/12/world/asia/russia-earthquake.html
