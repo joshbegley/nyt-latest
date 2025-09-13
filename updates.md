@@ -1,3 +1,7 @@
+**What we’re hearing about Cubs: Fine-tuning rotation, bullpen ahead of playoffs**\
+`Chicago's magic number to clinch a wild-card spot in the National League playoffs was reduced to seven after Friday's 6-4 win over the Rays.`\
+https://nytimes.com/athletic/6624509/2025/09/12/cubs-playoffs-matthew-boyd-rays/
+
 **How to watch Royals at Phillies: Time, TV, streaming for September 13**\
 `Find out how to watch the Kansas City Royals play the Philadelphia Phillies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6624746/2025/09/12/royals-vs-phillies-stream-how-to-watch-sept-13/
