@@ -1,3 +1,7 @@
+**At a Wildfire With a Notebook — and a Mask**\
+`A reporter’s questions pulled her into the subculture of wildland firefighting. Policy changes followed.`\
+https://nytimes.com/2025/09/13/reader-center/firefighters-masks-investigation.html
+
 **Trump Escalates Attacks on Political Opponents After Charlie Kirk’s Killing**\
 `President Trump has promised to bring the killer to justice while using the moment to blame the left — and only the left — more broadly.`\
 https://nytimes.com/2025/09/13/us/politics/trump-kirk-political-opponents.html
