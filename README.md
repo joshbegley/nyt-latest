@@ -1,3 +1,7 @@
+**Cowboys' Tyler Smith is highest-paid NFL guard with 4-year, $96M extension**\
+`The All-Pro and the Cowboys agree to a four-year, $96 million contract extension, making Smith the NFL's highest-paid guard.`\
+https://nytimes.com/athletic/6626601/2025/09/13/cowboys-tyler-smith-signs-extension/
+
 **In Some Records, Fed Governor Listed Atlanta Home as Secondary**\
 `The Trump administration has sought to block Lisa Cook from the Federal Reserve meeting on interest rates this coming week.`\
 https://nytimes.com/2025/09/13/business/lisa-cook-mortgage-fed-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/13/us/politics/van-hollen-zohran-mamdani.html
 **Bryce Underwood, Michigan look ready for Big Ten play in rout of CMU**\
 `The Wolverines entered Saturday facing questions about how they would respond to the loss at Oklahoma and Sherrone Moore's suspension.`\
 https://nytimes.com/athletic/6626406/2025/09/13/michigan-football-central-michigan-takeaways/
-
-**Dozens of Students Among Over 200 Dead in Two Boat Disasters in Congo**\
-`One of the boats was carrying mostly students who were returning to town for the start of the new school year, residents of the area said.`\
-https://nytimes.com/2025/09/13/world/africa/congo-boat-deaths.html
 
