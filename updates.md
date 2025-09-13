@@ -1,3 +1,7 @@
+**NFL Week 2 best bets: Buying early-season Packers stock plus some unpopular unders**\
+`Austin Mock has four NFL bets for Week 2 of the season, including buying into the Packers' early-season hype.`\
+https://nytimes.com/athletic/6620263/2025/09/13/nfl-best-bets-week-2-packers/
+
 **Georgia Tech knocks off Clemson on walk-off 55-yard field goal**\
 `Clemson is 1-2 to start a season for the first time since 2014, and faces an uphill battle to meet Playoff expectations.`\
 https://nytimes.com/athletic/6626516/2025/09/13/georgia-tech-clemson-game-winning-field-goal/
