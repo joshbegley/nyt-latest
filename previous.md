@@ -1,3 +1,7 @@
+**1976 Topps Walter Payton rookie card: Our sports card of the week**\
+`With the 40th anniversary of the Bears' 1985 Super Bowl win upon us, we look back at an iconic card of a standout on that team`\
+https://nytimes.com/athletic/6625960/2025/09/13/walter-payton-bears-rookie-card/
+
 **Patriots trading Ja’Lynn Polk to Saints for 2027 6th-round pick**\
 `The 2024 second-round pick is out for the season due to shoulder surgery.`\
 https://nytimes.com/athletic/6626204/2025/09/13/patriots-trade-saints-jalynn-polk-nfl-news/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/13/arts/music/nancy-king-dead.html
 **Vingegaard all but seals Vuelta a Espana with stage 20 victory on Bola del Mundo**\
 `The Danish rider is set to win his third Grand Tour title after conquering the penultimate stage of the race on Saturday.`\
 https://nytimes.com/athletic/6625983/2025/09/13/jonas-vingegaard-vuelta-a-espana-leader/
-
-**Commanders' Austin Ekeler out for season with Achilles injury**\
-`Ekeler was injured during the Commanders' loss to the Green Bay Packers on Thursday night.`\
-https://nytimes.com/athletic/6623586/2025/09/13/austin-ekeler-commanders-achilles/
 
