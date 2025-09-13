@@ -1,3 +1,19 @@
+**Nancy King, Jazz Singer Who Flew Under the Radar, Dies at 85**\
+`Aficionados, and her fellow musicians, considered her one of the best living vocalists. But she chose not to seek a bigger spotlight.`\
+https://nytimes.com/2025/09/13/arts/music/nancy-king-dead.html
+
+**Vingegaard all but seals Vuelta a Espana with stage 20 victory on Bola del Mundo**\
+`The Danish rider is set to win his third Grand Tour title after conquering the penultimate stage of the race on Saturday.`\
+https://nytimes.com/athletic/6625983/2025/09/13/jonas-vingegaard-vuelta-a-espana-leader/
+
+**Commanders' Austin Ekeler out for season with Achilles injury**\
+`Ekeler was injured during the Commanders' loss to the Green Bay Packers on Thursday night.`\
+https://nytimes.com/athletic/6623586/2025/09/13/austin-ekeler-commanders-achilles/
+
+**The Briefing - Newcastle 1 Wolves 0: How good was Woltemade's debut goal? Are Howe's side ready for Barcelona?**\
+`Analysis of Newcastle United's Premier League game at home to Wolves`\
+https://nytimes.com/athletic/6625464/2025/09/13/newcastle-wolves-woltemade-highlights/
+
 **Forest players facing a 'totally different world', says Postecoglou**\
 `Postecoglou's side suffered a 3-0 defeat in his first game in charge but said the result must be viewed in the context of a difficult week.`\
 https://nytimes.com/athletic/6626037/2025/09/13/nottingham-forest-arsenal-ange-postecoglou-reaction/

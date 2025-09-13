@@ -1,3 +1,15 @@
+**Nancy King, Jazz Singer Who Flew Under the Radar, Dies at 85**\
+`Aficionados, and her fellow musicians, considered her one of the best living vocalists. But she chose not to seek a bigger spotlight.`\
+https://nytimes.com/2025/09/13/arts/music/nancy-king-dead.html
+
+**Vingegaard all but seals Vuelta a Espana with stage 20 victory on Bola del Mundo**\
+`The Danish rider is set to win his third Grand Tour title after conquering the penultimate stage of the race on Saturday.`\
+https://nytimes.com/athletic/6625983/2025/09/13/jonas-vingegaard-vuelta-a-espana-leader/
+
+**Commanders' Austin Ekeler out for season with Achilles injury**\
+`Ekeler was injured during the Commanders' loss to the Green Bay Packers on Thursday night.`\
+https://nytimes.com/athletic/6623586/2025/09/13/austin-ekeler-commanders-achilles/
+
 **Forest players facing a 'totally different world', says Postecoglou**\
 `Postecoglou's side suffered a 3-0 defeat in his first game in charge but said the result must be viewed in the context of a difficult week.`\
 https://nytimes.com/athletic/6626037/2025/09/13/nottingham-forest-arsenal-ange-postecoglou-reaction/
@@ -6,7 +18,7 @@ https://nytimes.com/athletic/6626037/2025/09/13/nottingham-forest-arsenal-ange-p
 `Leeds were denied their first point on the road this season at Craven Cottage in cruel fashion - The Athletic analyses the action `\
 https://nytimes.com/athletic/6625461/2025/09/13/fulham-1-leeds-0-calvert-lewin-farke-aaronson/
 
-**Newcastle 1 Wolves 0 - How good was Woltemade's debut goal? Are Howe's side ready for Barcelona?**\
+**The Briefing - Newcastle 1 Wolves 0: How good was Woltemade's debut goal? Are Howe's side ready for Barcelona?**\
 `Analysis of Newcastle United's Premier League game at home to Wolves`\
 https://nytimes.com/athletic/6625464/2025/09/13/newcastle-wolves-woltemade-highlights/
 
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/13/opinion/charlie-kirk-assassination.html
 **Rubio to Visit a Defiant Israel After Qatar Strike**\
 `The diplomat will consult with Israeli officials about their coming military offensive in Gaza City, as President Trump’s efforts to end the Gaza war appear stalled.`\
 https://nytimes.com/2025/09/13/us/politics/rubio-israel-natanyahu.html
-
-**Neymar will have 'no problems' making Brazil's WC squad if fit - Ancelotti**\
-`Neymar, 33, is Brazil's all-time leading goalscorer but has not appeared for his national team since October 2023.`\
-https://nytimes.com/athletic/6625839/2025/09/13/neymar-will-have-no-problems-making-brazils-world-cup-squad-if-fit-carlo-ancelotti-says/
-
-**Trump Says He Will Impose More Sanctions on Russia if NATO Does**\
-`It was the latest in a series of new conditions that President Trump had announced on punitive action against Russia for its war against Ukraine.`\
-https://nytimes.com/2025/09/13/us/politics/trump-sanctions-russia-ukraine.html
-
-**Cocoa. Krispies. Treats.**\
-`The key word here is “cocoa,” which adds its subtly smoky, bittersweet notes to the classic treat.`\
-https://nytimes.com/2025/09/13/dining/cocoa-krispies-treats-and-more-fun-recipes.html
 
