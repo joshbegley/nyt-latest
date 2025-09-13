@@ -1,3 +1,7 @@
+**Far-Right Rally in London Draws Huge Crowd and a Counterprotest**\
+`The divisive anti-immigrant agitator Tommy Robinson organized what he said was a free-speech festival for his supporters.`\
+https://nytimes.com/2025/09/13/world/europe/london-far-right-rally-robinson.html
+
 **Nebraska dominates Houston Christian, setting up a pivotal visit from Michigan**\
 `Despite back-to-back blowout wins, the identity of Nebraska’s 2025 football team remains unknown.`\
 https://nytimes.com/athletic/6626022/2025/09/13/nebraska-houston-christian-score-result-takeaways/
