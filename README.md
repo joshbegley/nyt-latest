@@ -1,3 +1,11 @@
+**California’s $23 Billion Plan to Restore Federal Cuts to Scientific Research**\
+`Democrats are calling for the creation of a state equivalent of the National Institutes of Health, but first state lawmakers and then voters would need to approve it.`\
+https://nytimes.com/2025/09/13/us/california-scientific-research-bond.html
+
+**Three Liverpool puzzles facing Arne Slot**\
+`Szoboszlai's role, how to introduce Isak and rotation will all be on the head coach's mind as the Premier League returns`\
+https://nytimes.com/athletic/6623026/2025/09/13/arne-slot-liverpool-team-tactics/
+
 **Red Sox go flat against Yankees with playoff spots on the line**\
 `The AL race is open, making a lackluster 4-1 defeat all the more frustrating.`\
 https://nytimes.com/athletic/6625099/2025/09/13/red-sox-yankees-results-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6618918/2025/09/13/arsenal-eberechi-eze-song-sampha
 **Lucy Bronze: My Euros in My Words**\
 `The England defender played the entire 2025 Euros with a broken leg. She sat down with The Athletic to analyse the successful title defence`\
 https://nytimes.com/athletic/6615988/2025/09/13/my-euros-in-my-words-england-lucy-bronze/
-
-**A small Scottish club has trained two world champions. This is how they did it**\
-`Jake Wightman ended Britain's 38-year wait for a global men’s 1,500m medal, then Josh Kerr made it two world titles in as many summers`\
-https://nytimes.com/athletic/6562986/2025/09/13/jake-wightman-josh-kerr-1500m-tokyo-world-championships/
-
-**Quote of the Day: On Walden Pond, Hanging Up His Frock Coat**\
-`Quotation of the Day for Saturday, September 13, 2025.`\
-https://nytimes.com/2025/09/13/pageoneplus/quote-of-the-day-on-walden-pond-hanging-up-his-frock-coat.html
 
