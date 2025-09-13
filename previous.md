@@ -1,3 +1,7 @@
+**Brighton set to appoint Jason Ayto as sporting director after Weir exit**\
+`A former assistant and interim sporting director at Arsenal, Ayto left the Emirates Stadium this summer after 11 years at the club.`\
+https://nytimes.com/athletic/6466237/2025/09/13/brighton-sporting-director-ayto-arsenal/
+
 **Browns rookie RB Quinshon Judkins expected to make NFL debut vs. Ravens**\
 `The second-round pick was signed to a fully guaranteed four-year deal ahead of Cleveland's season opener. `\
 https://nytimes.com/athletic/6625901/2025/09/13/browns-quinshon-judkins-nfl-debut-ravens/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/13/us/politics/trump-kirk-political-opponents.html
 **College football Week 3 best bets: Will Mensah put up a big game against his former team?**\
 `Austin Mock is buying low on Colorado and picking the under in a noteworthy SEC game this week.`\
 https://nytimes.com/athletic/6620413/2025/09/13/college-football-best-bets-week-3-duke-colorado/
-
-**Charlie Kirk Didn’t Shy Away From Who He Was. We Shouldn’t Either.**\
-`We can condemn his assassination without mythologizing him.`\
-https://nytimes.com/2025/09/13/opinion/charlie-kirk-assassination.html
 

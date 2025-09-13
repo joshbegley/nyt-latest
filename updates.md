@@ -1,3 +1,7 @@
+**Brighton set to appoint Jason Ayto as sporting director after Weir exit**\
+`A former assistant and interim sporting director at Arsenal, Ayto left the Emirates Stadium this summer after 11 years at the club.`\
+https://nytimes.com/athletic/6466237/2025/09/13/brighton-sporting-director-ayto-arsenal/
+
 **Browns rookie RB Quinshon Judkins expected to make NFL debut vs. Ravens**\
 `The second-round pick was signed to a fully guaranteed four-year deal ahead of Cleveland's season opener. `\
 https://nytimes.com/athletic/6625901/2025/09/13/browns-quinshon-judkins-nfl-debut-ravens/
