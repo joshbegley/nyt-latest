@@ -1,3 +1,7 @@
+**Sainz has Dutch GP penalty overturned after Williams appeal**\
+`It was determined that Sainz’s penalty for colliding with Racing Bulls driver Liam Lawson was unwarranted based on new evidence.`\
+https://nytimes.com/athletic/6625845/2025/09/13/f1-carlos-sainz-williams-penalty-appeal/
+
 **Stuff of Giants legends: Patrick Bailey's walk-off grand slam defeats Dodgers**\
 `The Giants now stand just a half-game behind the New York Mets for the final seat in the postseason banquet hall.`\
 https://nytimes.com/athletic/6625522/2025/09/13/patrick-bailey-giants-walkoff-homer-dodgers/

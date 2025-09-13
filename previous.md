@@ -1,3 +1,7 @@
+**Sainz has Dutch GP penalty overturned after Williams appeal**\
+`It was determined that Sainz’s penalty for colliding with Racing Bulls driver Liam Lawson was unwarranted based on new evidence.`\
+https://nytimes.com/athletic/6625845/2025/09/13/f1-carlos-sainz-williams-penalty-appeal/
+
 **Stuff of Giants legends: Patrick Bailey's walk-off grand slam defeats Dodgers**\
 `The Giants now stand just a half-game behind the New York Mets for the final seat in the postseason banquet hall.`\
 https://nytimes.com/athletic/6625522/2025/09/13/patrick-bailey-giants-walkoff-homer-dodgers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6625217/2025/09/13/cincinnati-reds-brady-singer-los
 **Chiefs defense believes it'll be better Week 2. It started with an apology**\
 `The Chargers' pass game exposed the Chiefs in two specific areas. Will K.C. be able to fix things this week against the Philadelphia Eagles?`\
 https://nytimes.com/athletic/6623729/2025/09/13/chiefs-defense-apology-week-2-improvement/
-
-**As Broncos' Bo Nix seeks bounce back vs. Colts, improvement must start from ground up**\
-`"Good things happen" when Nix throws on the move, OC Joe Lombardi said, but footwork also got the QB into trouble in a rocky season debut.`\
-https://nytimes.com/athletic/6623270/2025/09/13/broncos-bo-nix-feet-movement-week-2-colts/
 
