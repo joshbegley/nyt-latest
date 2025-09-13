@@ -1,3 +1,11 @@
+**Red Sox go flat against Yankees with playoff spots on the line**\
+`The AL race is open, making a lackluster 4-1 defeat all the more frustrating.`\
+https://nytimes.com/athletic/6625099/2025/09/13/red-sox-yankees-results-analysis/
+
+**Chelsea have a plan for Facundo Buonanotte**\
+`Fans may have felt underwhelmed by the Brighton attacker's arrival but he is already impressing Enzo Maresca`\
+https://nytimes.com/athletic/6623700/2025/09/13/chelsea-have-a-plan-for-facundo-buonanotte/
+
 **Barcelona mailbag part two: Lamine Yamal, the Ballon d'Or and more Camp Nou chaos**\
 `Our Barcelona writers answer your questions at the end of a very busy week for the Spanish champions`\
 https://nytimes.com/athletic/6622846/2025/09/13/lamine-yamal-ballon-dor-camp-nou/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6562986/2025/09/13/jake-wightman-josh-kerr-1500m-to
 **Quote of the Day: On Walden Pond, Hanging Up His Frock Coat**\
 `Quotation of the Day for Saturday, September 13, 2025.`\
 https://nytimes.com/2025/09/13/pageoneplus/quote-of-the-day-on-walden-pond-hanging-up-his-frock-coat.html
-
-**The Perilous Path to Escape Gaza City**\
-`Gazans have had to load up their lives in search of refuge multiple times throughout the war. As thousands were forced to flee again this week, a Times photographer joined them heading south.`\
-https://nytimes.com/2025/09/13/world/middleeast/gaza-city-fleeing.html
-
-**Zinc Roofs Give Paris Its Signature Look. But They Are a Nightmare in Heat.**\
-`As climate change helps fuel more severe heat waves, the city is struggling between maintaining its architectural heritage and keeping apartments livable.`\
-https://nytimes.com/2025/09/13/zinc-roofs-give-paris-its-signature-look-but-they-are-a-nightmare-in-heat.html
 

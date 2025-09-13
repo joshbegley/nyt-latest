@@ -1,3 +1,11 @@
+**Red Sox go flat against Yankees with playoff spots on the line**\
+`The AL race is open, making a lackluster 4-1 defeat all the more frustrating.`\
+https://nytimes.com/athletic/6625099/2025/09/13/red-sox-yankees-results-analysis/
+
+**Chelsea have a plan for Facundo Buonanotte**\
+`Fans may have felt underwhelmed by the Brighton attacker's arrival but he is already impressing Enzo Maresca`\
+https://nytimes.com/athletic/6623700/2025/09/13/chelsea-have-a-plan-for-facundo-buonanotte/
+
 **Barcelona mailbag part two: Lamine Yamal, the Ballon d'Or and more Camp Nou chaos**\
 `Our Barcelona writers answer your questions at the end of a very busy week for the Spanish champions`\
 https://nytimes.com/athletic/6622846/2025/09/13/lamine-yamal-ballon-dor-camp-nou/
