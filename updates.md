@@ -1,3 +1,11 @@
+**How the Gunman Who Killed Charlie Kirk Got on Campus and Escaped**\
+`See how the gunman who shot and killed Charlie Kirk evaded detection for hours, climbed a roof amid a crowd and quickly escaped after the shooting.`\
+https://nytimes.com/interactive/2025/09/12/us/tyler-robinson-manhunt-timeline-kirk-suspect-caught.html
+
+**Cardinals shut down Masyn Winn for season as torn meniscus lingers**\
+`Winn, a candidate for the National League Gold Glove at shortstop, was playing through a meniscus tear for weeks.`\
+https://nytimes.com/athletic/6624796/2025/09/12/st-louis-cardinals-masyn-winn-shut-down/
+
 **Cardinals shut down Masyn Winn for season as torn meniscus lingers**\
 `Winn, a candidate for the National League Gold Glove at shortstop, had been playing through a meniscus tear for weeks.`\
 https://nytimes.com/athletic/6624796/2025/09/12/st-louis-cardinals-masyn-winn-shut-down/

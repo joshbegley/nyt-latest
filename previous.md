@@ -1,5 +1,9 @@
+**How the Gunman Who Killed Charlie Kirk Got on Campus and Escaped**\
+`See how the gunman who shot and killed Charlie Kirk evaded detection for hours, climbed a roof amid a crowd and quickly escaped after the shooting.`\
+https://nytimes.com/interactive/2025/09/12/us/tyler-robinson-manhunt-timeline-kirk-suspect-caught.html
+
 **Cardinals shut down Masyn Winn for season as torn meniscus lingers**\
-`Winn, a candidate for the National League Gold Glove at shortstop, had been playing through a meniscus tear for weeks.`\
+`Winn, a candidate for the National League Gold Glove at shortstop, was playing through a meniscus tear for weeks.`\
 https://nytimes.com/athletic/6624796/2025/09/12/st-louis-cardinals-masyn-winn-shut-down/
 
 **Mets lose 7th straight — again — in clunker vs. Rangers**\
@@ -33,8 +37,4 @@ https://nytimes.com/issue/magazine/2025/09/12/the-91425-issue
 **Company That Bought Publishers Clearing House Won’t Pay Past Prize Winners**\
 `The announcement by ARB Interactive, which bought the company out of bankruptcy protection for $7.1 million in July, cast doubt on how much more money past winners will receive.`\
 https://nytimes.com/2025/09/12/business/pch-sweepstakes-bankruptcy-winners-unpaid.html
-
-**What we’re hearing about Cubs: Fine-tuning rotation, bullpen ahead of playoffs**\
-`Chicago's magic number to clinch a wild-card spot in the National League playoffs was reduced to seven after Friday's 6-4 win over the Rays.`\
-https://nytimes.com/athletic/6624509/2025/09/12/cubs-playoffs-matthew-boyd-rays/
 
