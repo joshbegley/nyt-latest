@@ -1,3 +1,11 @@
+**Far-Right Rally in London Draws Huge Crowd and a Counterprotest**\
+`The divisive anti-immigrant agitator Tommy Robinson organized what he said was a free-speech festival for his supporters.`\
+https://nytimes.com/2025/09/13/world/europe/britain-far-right-rally-robinson.html
+
+**Tigers' Tarik Skubal day-to-day after 'clean' test results**\
+`For now, there seems to be optimism around Skubal making his next start and avoiding an IL stint.`\
+https://nytimes.com/athletic/6626393/2025/09/13/detroit-tigers-tarik-skubal-injury/
+
 **The Briefing – West Ham 0 Tottenham 3: Bergvall's classy display, Tel as central striker, more set-piece expertise from Frank**\
 `Jack Pitt-Brooke analyses a comfortable Spurs win at London Stadium on Saturday evening`\
 https://nytimes.com/athletic/6625466/2025/09/13/west-ham-tottenham-hotspur-premier-league-result-analysis/
