@@ -1,3 +1,7 @@
+**Mainoo talent 'not enough', must improve positional sense - Amorim**\
+`The 20-year-old informed the club of his desire to leave on loan in the summer transfer window to play regular first-team football.`\
+https://nytimes.com/athletic/6624365/2025/09/13/kobbie-mainoo-manchester-united-amorim/
+
 **Brentford 2 Chelsea 2 - How did Cole Palmer change the game? What went wrong for Maresca?**\
 `Analysis of Chelsea's draw away at Brentford in the Premier League`\
 https://nytimes.com/athletic/6625469/2025/09/13/brentford-chelsea-cole-palmer-highlights/

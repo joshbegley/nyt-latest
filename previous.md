@@ -1,3 +1,7 @@
+**Mainoo talent 'not enough', must improve positional sense - Amorim**\
+`The 20-year-old informed the club of his desire to leave on loan in the summer transfer window to play regular first-team football.`\
+https://nytimes.com/athletic/6624365/2025/09/13/kobbie-mainoo-manchester-united-amorim/
+
 **Brentford 2 Chelsea 2 - How did Cole Palmer change the game? What went wrong for Maresca?**\
 `Analysis of Chelsea's draw away at Brentford in the Premier League`\
 https://nytimes.com/athletic/6625469/2025/09/13/brentford-chelsea-cole-palmer-highlights/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6626516/2025/09/13/georgia-tech-clemson-game-winnin
 **Anthony Rizzo sits in Wrigley Field bleachers, lets home run bounce off his hand**\
 `The former Cubs first baseman supplied beers to fans in the bleachers and almost caught Moisés Ballesteros' first major-league homer.`\
 https://nytimes.com/athletic/6626454/2025/09/13/cubs-anthony-rizzo-wrigley-field-home-run/
-
-**Nebraska dominates Houston Christian, setting up a pivotal visit from Michigan**\
-`Despite back-to-back blowout wins, the identity of Nebraska’s 2025 football team remains unknown.`\
-https://nytimes.com/athletic/6626022/2025/09/13/nebraska-houston-christian-score-result-takeaways/
 
