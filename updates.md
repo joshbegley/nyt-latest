@@ -1,3 +1,15 @@
+**Barcelona mailbag part two: Lamine Yamal, the Ballon d'Or and more Camp Nou chaos**\
+`Our Barcelona writers answer your questions at the end of a very busy week for the Spanish champions`\
+https://nytimes.com/athletic/6622846/2025/09/13/lamine-yamal-ballon-dor-camp-nou/
+
+**No local players in the Manchester derby would be a sad reflection of the modern game**\
+`The city has produced some wonderful footballers, but rising talents are now far more likely to move away than their predecessors were`\
+https://nytimes.com/athletic/6622843/2025/09/13/manchester-united-manchester-city-derby-local-players/
+
+**Tijjani Reijnders: From stacking shelves at Aldi to delivering the goods for Man City**\
+`Humble origins in Zwolle play a big part in Reijnders now making a name for himself in the Premier League under Pep Guardiola's management`\
+https://nytimes.com/athletic/6613081/2025/09/13/tijjani-reijnders-manchester-city-profile-background/
+
 **Best of the Rest XI: Picking the strongest team outside the 'Big Six'**\
 `Watkins or Strand Larsen? Guimaraes or Gibbs-White? And just who can go in goal…? These are our picks for players from the 'other 14'`\
 https://nytimes.com/athletic/6623288/2025/09/13/best-xi-outside-big-six-other-14/
