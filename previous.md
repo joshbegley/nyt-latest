@@ -1,3 +1,7 @@
+**Browns rookie RB Quinshon Judkins expected to make NFL debut vs. Ravens**\
+`The second-round pick was signed to a fully guaranteed four-year deal ahead of Cleveland's season opener. `\
+https://nytimes.com/athletic/6625901/2025/09/13/browns-quinshon-judkins-nfl-debut-ravens/
+
 **Nancy King, Jazz Singer Who Flew Under the Radar, Dies at 85**\
 `Aficionados, and her fellow musicians, considered her one of the best living vocalists. But she chose not to seek a bigger spotlight.`\
 https://nytimes.com/2025/09/13/arts/music/nancy-king-dead.html
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/6623586/2025/09/13/austin-ekeler-commanders-achille
 `Postecoglou's side suffered a 3-0 defeat in his first game in charge but said the result must be viewed in the context of a difficult week.`\
 https://nytimes.com/athletic/6626037/2025/09/13/nottingham-forest-arsenal-ange-postecoglou-reaction/
 
-**The Briefing: Fulham 1 Leeds 0: Calvert-Lewin offers hope, Aaronson's surprise start, late heartache**\
+**The Briefing: Fulham 1 Leeds 0 - Calvert-Lewin offers hope, Aaronson's surprise start, late heartache**\
 `Leeds were denied their first point on the road this season at Craven Cottage in cruel fashion - The Athletic analyses the action `\
 https://nytimes.com/athletic/6625461/2025/09/13/fulham-1-leeds-0-calvert-lewin-farke-aaronson/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6620413/2025/09/13/college-football-best-bets-week-
 **Charlie Kirk Didn’t Shy Away From Who He Was. We Shouldn’t Either.**\
 `We can condemn his assassination without mythologizing him.`\
 https://nytimes.com/2025/09/13/opinion/charlie-kirk-assassination.html
-
-**Rubio to Visit a Defiant Israel After Qatar Strike**\
-`The diplomat will consult with Israeli officials about their coming military offensive in Gaza City, as President Trump’s efforts to end the Gaza war appear stalled.`\
-https://nytimes.com/2025/09/13/us/politics/rubio-israel-natanyahu.html
 

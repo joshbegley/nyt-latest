@@ -1,3 +1,11 @@
+**Browns rookie RB Quinshon Judkins expected to make NFL debut vs. Ravens**\
+`The second-round pick was signed to a fully guaranteed four-year deal ahead of Cleveland's season opener. `\
+https://nytimes.com/athletic/6625901/2025/09/13/browns-quinshon-judkins-nfl-debut-ravens/
+
+**The Briefing: Fulham 1 Leeds 0 - Calvert-Lewin offers hope, Aaronson's surprise start, late heartache**\
+`Leeds were denied their first point on the road this season at Craven Cottage in cruel fashion - The Athletic analyses the action `\
+https://nytimes.com/athletic/6625461/2025/09/13/fulham-1-leeds-0-calvert-lewin-farke-aaronson/
+
 **Nancy King, Jazz Singer Who Flew Under the Radar, Dies at 85**\
 `Aficionados, and her fellow musicians, considered her one of the best living vocalists. But she chose not to seek a bigger spotlight.`\
 https://nytimes.com/2025/09/13/arts/music/nancy-king-dead.html
