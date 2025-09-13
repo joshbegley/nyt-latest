@@ -1,3 +1,11 @@
+**7.4-Magnitude Earthquake Strikes Russia’s Far East**\
+`Dangerous tsunami waves were possible at coastlines near the epicenter, according to the U.S. Tsunami Warning System.`\
+https://nytimes.com/2025/09/12/world/asia/russia-earthquake.html
+
+**Colorado QB Ryan Staub struggles in 36-20 loss to Houston**\
+`The 16-point win is Houston’s largest margin of victory in a Big 12 game since joining the conference in 2023.`\
+https://nytimes.com/athletic/6625080/2025/09/12/colorado-houston-college-football-results-analysis/
+
 **Testing on Tarik Skubal’s left side could determine the fate of the Tigers’ season**\
 `Skubal left Friday's start with left side tightness, and the extent of his injury remains unclear. `\
 https://nytimes.com/athletic/6625045/2025/09/12/detroit-tigers-tarik-skubal-left-side-injury/

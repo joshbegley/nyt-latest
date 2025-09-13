@@ -1,3 +1,7 @@
+**7.4-Magnitude Earthquake Strikes Russia’s Far East**\
+`Dangerous tsunami waves were possible at coastlines near the epicenter, according to the U.S. Tsunami Warning System.`\
+https://nytimes.com/2025/09/12/world/asia/russia-earthquake.html
+
 **Testing on Tarik Skubal’s left side could determine the fate of the Tigers’ season**\
 `Skubal left Friday's start with left side tightness, and the extent of his injury remains unclear. `\
 https://nytimes.com/athletic/6625045/2025/09/12/detroit-tigers-tarik-skubal-left-side-injury/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6625045/2025/09/12/detroit-tigers-tarik-skubal-left
 `Vice President JD Vance urged major contributors to win the 2026 midterms to honor Charlie Kirk, who was Mr. Vance’s close friend.`\
 https://nytimes.com/2025/09/12/us/politics/vance-charlie-kirk-republican-donors.html
 
-**Colorado QB Ryan Staub has dull showing in 36-20 loss to Houston**\
+**Colorado QB Ryan Staub struggles in 36-20 loss to Houston**\
 `The 16-point win is Houston’s largest margin of victory in a Big 12 game since joining the conference in 2023.`\
 https://nytimes.com/athletic/6625080/2025/09/12/colorado-houston-college-football-results-analysis/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/12/us/charlie-kirk-law-enforcement-fbi-capture.html
 **Snitkers prep for what could be last father/son game as Reynaldo López gets healthy**\
 `To have a son in the same industry as a father is to have a son who can fully appreciate what dad has accomplished.`\
 https://nytimes.com/athletic/6624964/2025/09/12/astros-braves-father-son-snitkers-reynaldo-lopez-health/
-
-**Completely at Ease**\
-`Alex Jiang makes a sparkling Times puzzle debut.`\
-https://nytimes.com/2025/09/12/crosswords/daily-puzzle-2025-09-13.html
 
