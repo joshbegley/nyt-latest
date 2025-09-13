@@ -1,3 +1,11 @@
+**College Football Playoff 2025 projections: The most likely bracket with Week 3 underway**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/09/13/college-football-playoff-bracket-projections-odds/
+
+**Grieving in Public, Erika Kirk Melds the Personal and Political**\
+`Ms. Kirk has played a key role in her husband’s movement. Speaking at Turning Point USA headquarters and on social media, she pledged his work would continue.`\
+https://nytimes.com/2025/09/13/style/erika-kirk-charlie-kirk-marriage.html
+
 **NFL Week 2 best bets: Buying early-season Packers stock plus some unpopular unders**\
 `Austin Mock has four NFL bets for Week 2 of the season, including buying into the Packers' early-season hype.`\
 https://nytimes.com/athletic/6620263/2025/09/13/nfl-best-bets-week-2-packers/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/13/world/africa/congo-boat-deaths.html
 **Far-Right Rally in London Draws Huge Crowd and a Counterprotest**\
 `The divisive anti-immigrant agitator Tommy Robinson organized what he said was a free-speech festival for his supporters.`\
 https://nytimes.com/2025/09/13/world/europe/london-far-right-rally-robinson.html
-
-**Tigers' Tarik Skubal day-to-day after 'clean' test results**\
-`For now, there seems to be optimism around Skubal making his next start and avoiding an IL stint.`\
-https://nytimes.com/athletic/6626393/2025/09/13/detroit-tigers-tarik-skubal-injury/
-
-**The Briefing – West Ham 0 Tottenham 3: Bergvall's classy display, Tel as central striker, more set-piece expertise from Frank**\
-`Jack Pitt-Brooke analyses a comfortable Spurs win at London Stadium on Saturday evening`\
-https://nytimes.com/athletic/6625466/2025/09/13/west-ham-tottenham-hotspur-premier-league-result-analysis/
 
