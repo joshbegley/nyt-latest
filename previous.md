@@ -1,3 +1,7 @@
+**At a Wildfire With a Notebook — and a Mask**\
+`A reporter’s questions pulled her into the subculture of wildland firefighting, and led to a change in policy.`\
+https://nytimes.com/2025/09/13/reader-center/firefighters-masks-investigation.html
+
 **Calvin Klein Underwear as You’ve Never Seen It Before**\
 `In her second show for the brand, the designer Veronica Leoni takes on Y-fronts.`\
 https://nytimes.com/2025/09/13/style/calvin-klein-underwear-spring-2026.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6625455/2025/09/13/arsenal-nottingham-forest-premie
 **Chelsea's Datro Fofana joins Fatih Karagumruk on loan**\
 `Chelsea paid for a fee worth more than €10million (£8.4m; $11m) to sign Datro Fofana in January 2023 from Molde.`\
 https://nytimes.com/athletic/6625672/2025/09/13/chelsea-transfers-david-datro-fofana/
-
-**Reds watching the scoreboard, but not producing runs**\
-`Cincinnati leaves 11 runners stranded in shutout loss to A's.`\
-https://nytimes.com/athletic/6625217/2025/09/13/cincinnati-reds-brady-singer-lose/
 

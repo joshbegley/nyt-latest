@@ -1,3 +1,7 @@
+**At a Wildfire With a Notebook — and a Mask**\
+`A reporter’s questions pulled her into the subculture of wildland firefighting, and led to a change in policy.`\
+https://nytimes.com/2025/09/13/reader-center/firefighters-masks-investigation.html
+
 **Calvin Klein Underwear as You’ve Never Seen It Before**\
 `In her second show for the brand, the designer Veronica Leoni takes on Y-fronts.`\
 https://nytimes.com/2025/09/13/style/calvin-klein-underwear-spring-2026.html
