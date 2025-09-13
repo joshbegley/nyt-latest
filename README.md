@@ -1,3 +1,7 @@
+**Girl, 16, Intentionally Struck and Killed by Driver of SUV in Queens**\
+`The girl, identified as Jhoanny Gomez-Alvarez, got into an argument with a 38-year-old man driving a Chevrolet Suburban early Saturday morning. He then ran her down with the vehicle.`\
+https://nytimes.com/2025/09/13/nyregion/girl-struck-suv-queens.html
+
 **1976 Topps Walter Payton rookie card: Our sports card of the week**\
 `With the 40th anniversary of the Bears' 1985 Super Bowl win upon us, we look back at an iconic card of a standout on that team`\
 https://nytimes.com/athletic/6625960/2025/09/13/walter-payton-bears-rookie-card/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6625901/2025/09/13/browns-quinshon-judkins-nfl-debu
 **Nancy King, Jazz Singer Who Flew Under the Radar, Dies at 85**\
 `Aficionados, and her fellow musicians, considered her one of the best living vocalists. But she chose not to seek a bigger spotlight.`\
 https://nytimes.com/2025/09/13/arts/music/nancy-king-dead.html
-
-**Vingegaard all but seals Vuelta a Espana with stage 20 victory on Bola del Mundo**\
-`The Danish rider is set to win his third Grand Tour title after conquering the penultimate stage of the race on Saturday.`\
-https://nytimes.com/athletic/6625983/2025/09/13/jonas-vingegaard-vuelta-a-espana-leader/
 
