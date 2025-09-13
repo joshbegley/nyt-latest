@@ -1,3 +1,11 @@
+**Wrestling Over Charlie Kirk’s Legacy and the Divide in America**\
+`Historians say the lessons of this particular time will depend on Americans themselves, and what kind of a nation they want it to be.`\
+https://nytimes.com/2025/09/13/us/politics/charlie-kirk-legacy-trump.html
+
+**What's wrong with UCLA? Bad offseason hurting the Bruins**\
+`Nobody was counting on the Bruins being great this season, but every offseason concern has reared its head through three weeks.`\
+https://nytimes.com/athletic/6626172/2025/09/13/ucla-deshaun-foster-nico-iamaleava/
+
 **Anti-Immigration Activists Face Off With Counterprotesters in London**\
 `Thousands of far-right activists marched through central London on Saturday, setting off sporadic clashes with the police as they held dueling demonstrations with counterprotesters.`\
 https://nytimes.com/video/world/europe/100000010396966/london-immigration-protest.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/13/arts/israel-hollywood-boycott-paramount.html
 **Kings' Corey Perry out 6-8 weeks after knee surgery**\
 `Based on the timeline, Perry should make his Kings debut at the end of October or the start of November.`\
 https://nytimes.com/athletic/6626072/2025/09/13/kings-corey-perry-knee-surgery/
-
-**Brighton set to appoint Jason Ayto as sporting director after Weir exit**\
-`A former assistant and interim sporting director at Arsenal, Ayto left the Emirates Stadium this summer after 11 years at the club.`\
-https://nytimes.com/athletic/6466237/2025/09/13/brighton-sporting-director-ayto-arsenal/
-
-**Browns rookie RB Quinshon Judkins expected to make NFL debut vs. Ravens**\
-`The second-round pick was signed to a fully guaranteed four-year deal ahead of Cleveland's season opener. `\
-https://nytimes.com/athletic/6625901/2025/09/13/browns-quinshon-judkins-nfl-debut-ravens/
 
