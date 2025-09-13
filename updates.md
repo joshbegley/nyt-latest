@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, Sep. 13, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/13/todays-new-york-times
+
 **Lawsuit Accuses Trump Officials of More Wrongful Deportations**\
 `Plaintiffs accused the Trump administration of using so-called third-country deportations to violate court-ordered protections for migrants, echoing the case of Kilmar Armando Abrego Garcia.`\
 https://nytimes.com/2025/09/13/us/politics/trump-lawsuit-wrongful-deportations-ghana.html
