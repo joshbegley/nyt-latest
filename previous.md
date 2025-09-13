@@ -1,3 +1,7 @@
+**Cardinals shut down Masyn Winn for season as torn meniscus lingers**\
+`Winn, a candidate for the National League Gold Glove at shortstop, had been playing through a meniscus tear for weeks.`\
+https://nytimes.com/athletic/6624796/2025/09/12/st-louis-cardinals-masyn-winn-shut-down/
+
 **Mets lose 7th straight — again — in clunker vs. Rangers**\
 `Before Friday, the Mets hadn't lost 7 straight games, three times in a season since 1980.`\
 https://nytimes.com/athletic/6625042/2025/09/12/mets-lose-seventh-straight-rangers-mlb/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/12/business/pch-sweepstakes-bankruptcy-winners-unpai
 **What we’re hearing about Cubs: Fine-tuning rotation, bullpen ahead of playoffs**\
 `Chicago's magic number to clinch a wild-card spot in the National League playoffs was reduced to seven after Friday's 6-4 win over the Rays.`\
 https://nytimes.com/athletic/6624509/2025/09/12/cubs-playoffs-matthew-boyd-rays/
-
-**How to watch Royals at Phillies: Time, TV, streaming for September 13**\
-`Find out how to watch the Kansas City Royals play the Philadelphia Phillies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6624746/2025/09/12/royals-vs-phillies-stream-how-to-watch-sept-13/
 

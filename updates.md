@@ -1,3 +1,7 @@
+**Cardinals shut down Masyn Winn for season as torn meniscus lingers**\
+`Winn, a candidate for the National League Gold Glove at shortstop, had been playing through a meniscus tear for weeks.`\
+https://nytimes.com/athletic/6624796/2025/09/12/st-louis-cardinals-masyn-winn-shut-down/
+
 **Mets lose 7th straight — again — in clunker vs. Rangers**\
 `Before Friday, the Mets hadn't lost 7 straight games, three times in a season since 1980.`\
 https://nytimes.com/athletic/6625042/2025/09/12/mets-lose-seventh-straight-rangers-mlb/
