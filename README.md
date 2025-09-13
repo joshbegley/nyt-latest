@@ -1,3 +1,19 @@
+**Chiefs defense believes it'll be better Week 2. It started with an apology**\
+`The Chargers' pass game exposed the Chiefs in two specific areas. Will K.C. be able to fix things this week against the Philadelphia Eagles?`\
+https://nytimes.com/athletic/6623729/2025/09/13/chiefs-defense-apology-week-2-improvement/
+
+**As Broncos' Bo Nix seeks bounce back vs. Colts, improvement must start from ground up**\
+`"Good things happen" when Nix throws on the move, OC Joe Lombardi said, but footwork also got the QB into trouble in a rocky season debut.`\
+https://nytimes.com/athletic/6623270/2025/09/13/broncos-bo-nix-feet-movement-week-2-colts/
+
+**'You welcome it': Blackhawks' new No. 1 Sam Rinzel unfazed by sudden great expectations**\
+`Nine NHL games were all it took for the 2022 No. 25 pick to go from a “project” to a professional and become Chicago's No. 1 defenseman.`\
+https://nytimes.com/athletic/6624187/2025/09/13/blackhawks-sam-rinzel-rookie-camp/
+
+**The Irony of Corporate America’s Many Patagonia Vests**\
+`Yvon Chouinard, the founder of Patagonia, hates the idea of billionaires and says he doesn’t trust the stock market.`\
+https://nytimes.com/2025/09/13/business/dealbook/patagonia-founder-finance.html
+
 **The Pulse: Deion's new realoty at Colorado**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6624930/2025/09/13/a-new-reality-for-deion-sanders-and-colorado-plus-more-kawhi-leonard-smoke/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6620275/2025/09/13/great-reads-sports-business-sept
 **Jacob deGrom, a revived Ranger, makes a winning return to Queens, and the Mets could use him**\
 `This start was special. deGrom’s parents were here, as well as his sisters, his wife and his children. `\
 https://nytimes.com/athletic/6625154/2025/09/13/mets-rangers-jacob-degrom-queens-return/
-
-**How Packers took away Jayden Daniels' legs in dominant defensive performance**\
-`Daniels registered the second-lowest rushing total and second-lowest yards per carry total of his young career in Green Bay on Thursday.`\
-https://nytimes.com/athletic/6624213/2025/09/13/packers-defense-jayden-daniels-micah-parsons/
-
-**Buc-ee's, BBQ and Broadway: How the parents of Vanderbilt's Australian punter are living their best life**\
-`Wil and Raelene Haberer sold their house in Australia and will spend the fall touring the South watching their son Nick punt for Vanderbilt.`\
-https://nytimes.com/athletic/6619723/2025/09/13/vanderbilt-punter-nick-haberer-australia/
-
-**Eagles notes: Super Bowl rematch, Jalen Carter returns, Tank Bigsby debuts**\
-`Despite the Eagles’ effort to not let the Lombardi Trophy cast a shadow on their 2025 season, the schedule-makers had different plans.`\
-https://nytimes.com/athletic/6624657/2025/09/13/eagles-super-bowl-rematch-jalen-carter-tank-bigsby/
-
-**Blues' first-round picks arrive and are playing together: 'Hard not to get excited'**\
-`The Blues have had five first-round picks in the last three years, and all five were on the ice together in Friday's 6-4 win over Minnesota.`\
-https://nytimes.com/athletic/6623334/2025/09/13/blues-first-round-picks-playing-together/
 

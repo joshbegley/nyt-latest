@@ -1,3 +1,7 @@
+**The Pulse: Deion's new realoty at Colorado**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6624930/2025/09/13/a-new-reality-for-deion-sanders-and-colorado-plus-more-kawhi-leonard-smoke/
+
 **Yamal injury 'very sad' after Spain selection with painkillers - Flick**\
 `The 18-year-old played 79 and 73 minutes in Spain's wins over Bulgaria and Turkey respectively in the international break.`\
 https://nytimes.com/athletic/6625620/2025/09/13/lamine-yamal-injury-barcelona/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6624657/2025/09/13/eagles-super-bowl-rematch-jalen-
 **Blues' first-round picks arrive and are playing together: 'Hard not to get excited'**\
 `The Blues have had five first-round picks in the last three years, and all five were on the ice together in Friday's 6-4 win over Minnesota.`\
 https://nytimes.com/athletic/6623334/2025/09/13/blues-first-round-picks-playing-together/
-
-**Notre Dame's Miami mistakes lingered for weeks. Can it fix them vs. Texas A&M?**\
-`Saturday night is a chance for the Irish to show they're serious about making a return to the College Football Playoff.`\
-https://nytimes.com/athletic/6624167/2025/09/13/notre-dame-marcus-freeman-fix-mistakes-texas-am/
 

@@ -1,3 +1,7 @@
+**The Pulse: Deion's new realoty at Colorado**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6624930/2025/09/13/a-new-reality-for-deion-sanders-and-colorado-plus-more-kawhi-leonard-smoke/
+
 **Yamal injury 'very sad' after Spain selection with painkillers - Flick**\
 `The 18-year-old played 79 and 73 minutes in Spain's wins over Bulgaria and Turkey respectively in the international break.`\
 https://nytimes.com/athletic/6625620/2025/09/13/lamine-yamal-injury-barcelona/
