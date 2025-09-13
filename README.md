@@ -1,6 +1,22 @@
+**Testing on Tarik Skubal’s left side could determine the fate of the Tigers’ season**\
+`Skubal left Friday's start with left side tightness, and the extent of his injury remains unclear. `\
+https://nytimes.com/athletic/6625045/2025/09/12/detroit-tigers-tarik-skubal-left-side-injury/
+
+**Vance Invokes Charlie Kirk in Midterms Push to G.O.P. Donors**\
+`Vice President JD Vance urged major contributors to win the 2026 midterms to honor Charlie Kirk, who was Mr. Vance’s close friend.`\
+https://nytimes.com/2025/09/12/us/politics/vance-charlie-kirk-republican-donors.html
+
+**Colorado QB Ryan Staub has dull showing in 36-20 loss to Houston**\
+`The 16-point win is Houston’s largest margin of victory in a Big 12 game since joining the conference in 2023.`\
+https://nytimes.com/athletic/6625080/2025/09/12/colorado-houston-college-football-results-analysis/
+
 **How the Gunman Who Killed Charlie Kirk Got on Campus and Escaped**\
 `See how the gunman who shot and killed Charlie Kirk evaded detection for hours, climbed a roof amid a crowd and quickly escaped after the shooting.`\
 https://nytimes.com/interactive/2025/09/12/us/tyler-robinson-manhunt-timeline-kirk-suspect-caught.html
+
+**Can Walker Buehler pitch his way into an October role for Phillies?**\
+`Before Friday night's debut start with the Phillies, Buehler had a 5.42 ERA in his previous 187 2/3 regular-season innings.`\
+https://nytimes.com/athletic/6625040/2025/09/12/philadelphia-phillies-walker-buehler-october-audition/
 
 **Cardinals shut down Masyn Winn for season as torn meniscus lingers**\
 `Winn, a candidate for the National League Gold Glove at shortstop, was playing through a meniscus tear for weeks.`\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6624964/2025/09/12/astros-braves-father-son-snitker
 **Completely at Ease**\
 `Alex Jiang makes a sparkling Times puzzle debut.`\
 https://nytimes.com/2025/09/12/crosswords/daily-puzzle-2025-09-13.html
-
-**The suspect was a member of the Mormon church at a young age.**\
-`By Ruth Graham and Lauren Jackson`\
-https://nytimes.com/live/2025/09/12/us/charlie-kirk-news-suspect/the-suspect-was-a-member-of-the-mormon-church-at-a-young-age
-
-**Minutes Before He Was Shot, Charlie Kirk Debated Religion**\
-`The New York Times examined video footage to better understand what was said during Mr. Kirk’s event at Utah Valley University.`\
-https://nytimes.com/2025/09/12/us/charlie-kirk-debate-utah-shooting.html
-
-**The 9.14.25 Issue**\
-``\
-https://nytimes.com/issue/magazine/2025/09/12/the-91425-issue
-
-**Company That Bought Publishers Clearing House Won’t Pay Past Prize Winners**\
-`The announcement by ARB Interactive, which bought the company out of bankruptcy protection for $7.1 million in July, cast doubt on how much more money past winners will receive.`\
-https://nytimes.com/2025/09/12/business/pch-sweepstakes-bankruptcy-winners-unpaid.html
 
