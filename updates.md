@@ -1,3 +1,11 @@
+**Why the ACC's all-access replay review system could start a trend**\
+`The ACC has introduced a level of replay transparency that should become the norm across the country.`\
+https://nytimes.com/athletic/6626662/2025/09/13/acc-replay-review-officials-clemson-georgia-tech/
+
+**Bird’s Eye View**\
+`Daniel Grinberg’s puzzle leaves a cloud of dust in its wake.`\
+https://nytimes.com/2025/09/13/crosswords/daily-puzzle-2025-09-14.html
+
 **MrBeast Awarded $15 Million to Film Reality Show in North Carolina**\
 `The money, which supported the second season of the extreme competition show “Beast Games,” represents nearly half of the state’s annual film and entertainment grants.`\
 https://nytimes.com/2025/09/13/arts/television/mr-beast-north-carolina.html

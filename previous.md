@@ -1,3 +1,11 @@
+**Why the ACC's all-access replay review system could start a trend**\
+`The ACC has introduced a level of replay transparency that should become the norm across the country.`\
+https://nytimes.com/athletic/6626662/2025/09/13/acc-replay-review-officials-clemson-georgia-tech/
+
+**Bird’s Eye View**\
+`Daniel Grinberg’s puzzle leaves a cloud of dust in its wake.`\
+https://nytimes.com/2025/09/13/crosswords/daily-puzzle-2025-09-14.html
+
 **MrBeast Awarded $15 Million to Film Reality Show in North Carolina**\
 `The money, which supported the second season of the extreme competition show “Beast Games,” represents nearly half of the state’s annual film and entertainment grants.`\
 https://nytimes.com/2025/09/13/arts/television/mr-beast-north-carolina.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6560541/2025/09/13/college-football-playoff-bracket
 **Grieving in Public, Erika Kirk Melds the Personal and Political**\
 `Ms. Kirk has played a key role in her husband’s movement. Speaking at Turning Point USA headquarters and on social media, she pledged his work would continue.`\
 https://nytimes.com/2025/09/13/style/erika-kirk-charlie-kirk-marriage.html
-
-**NFL Week 2 best bets: Buying early-season Packers stock plus some unpopular unders**\
-`Austin Mock has four NFL bets for Week 2 of the season, including buying into the Packers' early-season hype.`\
-https://nytimes.com/athletic/6620263/2025/09/13/nfl-best-bets-week-2-packers/
-
-**Georgia Tech knocks off Clemson on walk-off 55-yard field goal**\
-`Clemson is 1-2 to start a season for the first time since 2014, and faces an uphill battle to meet Playoff expectations.`\
-https://nytimes.com/athletic/6626516/2025/09/13/georgia-tech-clemson-game-winning-field-goal/
 
