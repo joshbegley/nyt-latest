@@ -1,3 +1,7 @@
+**Chelsea's Datro Fofana joins Fatih Karagumruk on loan**\
+`Chelsea paid for a fee worth more than €10million (£8.4m; $11m) to sign Datro Fofana in January 2023 from Molde.`\
+https://nytimes.com/athletic/6625672/2025/09/13/chelsea-transfers-david-datro-fofana/
+
 **Reds watching the scoreboard, but not producing runs**\
 `Cincinnati leaves 11 runners stranded in shutout loss to A's.`\
 https://nytimes.com/athletic/6625217/2025/09/13/cincinnati-reds-brady-singer-lose/

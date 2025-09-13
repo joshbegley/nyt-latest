@@ -1,3 +1,7 @@
+**Chelsea's Datro Fofana joins Fatih Karagumruk on loan**\
+`Chelsea paid for a fee worth more than €10million (£8.4m; $11m) to sign Datro Fofana in January 2023 from Molde.`\
+https://nytimes.com/athletic/6625672/2025/09/13/chelsea-transfers-david-datro-fofana/
+
 **Reds watching the scoreboard, but not producing runs**\
 `Cincinnati leaves 11 runners stranded in shutout loss to A's.`\
 https://nytimes.com/athletic/6625217/2025/09/13/cincinnati-reds-brady-singer-lose/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6619582/2025/09/13/manchester-city-football-group-c
 **Mirtle: 5 reasons for optimism for the Maple Leafs this season**\
 `Taking a glass-half-full approach by looking at some of the Leafs' positives entering the season and how they may impact their fortunes.`\
 https://nytimes.com/athletic/6620713/2025/09/13/toronto-maple-leafs-2025-26-nhl-season/
-
-**Worth your time this weekend: 10 fascinating sports business reads**\
-`Some great sports-business reads, including the Eagles' front office, Shane Gillis' fandom and the women's soccer investment landscape.`\
-https://nytimes.com/athletic/6620275/2025/09/13/great-reads-sports-business-september-12/
 
