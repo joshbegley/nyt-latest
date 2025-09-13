@@ -1,3 +1,11 @@
+**Wrestling Over Charlie Kirk’s Legacy and the Divide in America**\
+`Historians say the lessons of this particular time will depend on Americans themselves, and what kind of a nation they want it to be.`\
+https://nytimes.com/2025/09/13/us/politics/charlie-kirk-legacy-trump.html
+
+**What's wrong with UCLA? Bad offseason hurting the Bruins**\
+`Nobody was counting on the Bruins being great this season, but every offseason concern has reared its head through three weeks.`\
+https://nytimes.com/athletic/6626172/2025/09/13/ucla-deshaun-foster-nico-iamaleava/
+
 **Anti-Immigration Activists Face Off With Counterprotesters in London**\
 `Thousands of far-right activists marched through central London on Saturday, setting off sporadic clashes with the police as they held dueling demonstrations with counterprotesters.`\
 https://nytimes.com/video/world/europe/100000010396966/london-immigration-protest.html
