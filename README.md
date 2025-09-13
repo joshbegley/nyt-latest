@@ -1,3 +1,7 @@
+**College football Week 3 best bets: Will Mensah put up a big game against his former team?**\
+`Austin Mock is buying low on Colorado and picking the under in a noteworthy SEC game this week.`\
+https://nytimes.com/athletic/6620413/2025/09/13/college-football-best-bets-week-3-duke-colorado/
+
 **Charlie Kirk Didn’t Shy Away From Who He Was. We Shouldn’t Either.**\
 `We can condemn his assassination without mythologizing him.`\
 https://nytimes.com/2025/09/13/opinion/charlie-kirk-assassination.html
@@ -23,7 +27,7 @@ https://nytimes.com/2025/09/13/dining/cocoa-krispies-treats-and-more-fun-recipes
 https://nytimes.com/athletic/6625919/2025/09/13/martin-odegaard-arsenal-injury-update/
 
 **At a Wildfire With a Notebook — and a Mask**\
-`A reporter’s questions pulled her into the subculture of wildland firefighting, and led to a change in policy.`\
+`A reporter’s questions pulled her into the subculture of wildland firefighting. A change in policy followed.`\
 https://nytimes.com/2025/09/13/reader-center/firefighters-masks-investigation.html
 
 **Calvin Klein Underwear as You’ve Never Seen It Before**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/13/style/calvin-klein-underwear-spring-2026.html
 **Sainz has Dutch GP penalty overturned after Williams appeal**\
 `It was determined that Sainz’s penalty for colliding with Racing Bulls driver Liam Lawson was unwarranted based on new evidence.`\
 https://nytimes.com/athletic/6625845/2025/09/13/f1-carlos-sainz-williams-penalty-appeal/
-
-**Stuff of Giants legends: Patrick Bailey's walk-off grand slam defeats Dodgers**\
-`The Giants now stand just a half-game behind the New York Mets for the final seat in the postseason banquet hall.`\
-https://nytimes.com/athletic/6625522/2025/09/13/patrick-bailey-giants-walkoff-homer-dodgers/
 
