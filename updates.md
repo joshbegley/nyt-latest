@@ -1,3 +1,11 @@
+**College football Week 3 best bets: Will Mensah put up a big game against his former team?**\
+`Austin Mock is buying low on Colorado and picking the under in a noteworthy SEC game this week.`\
+https://nytimes.com/athletic/6620413/2025/09/13/college-football-best-bets-week-3-duke-colorado/
+
+**At a Wildfire With a Notebook — and a Mask**\
+`A reporter’s questions pulled her into the subculture of wildland firefighting. A change in policy followed.`\
+https://nytimes.com/2025/09/13/reader-center/firefighters-masks-investigation.html
+
 **Charlie Kirk Didn’t Shy Away From Who He Was. We Shouldn’t Either.**\
 `We can condemn his assassination without mythologizing him.`\
 https://nytimes.com/2025/09/13/opinion/charlie-kirk-assassination.html
