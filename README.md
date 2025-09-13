@@ -1,3 +1,7 @@
+**Odegaard to have tests on shoulder injury, does not require surgery - Arteta**\
+`Odegaard came off after eight minutes when he landed awkwardly on his shoulder in the first half of their 3-0 win over Nottingham Forest.`\
+https://nytimes.com/athletic/6625919/2025/09/13/martin-odegaard-arsenal-injury-update/
+
 **At a Wildfire With a Notebook — and a Mask**\
 `A reporter’s questions pulled her into the subculture of wildland firefighting, and led to a change in policy.`\
 https://nytimes.com/2025/09/13/reader-center/firefighters-masks-investigation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6623240/2025/09/13/ryan-crouser-world-athletics-cha
 **The Briefing – Arsenal 3 Nottingham Forest 0: Madueke and Eze shine, Zubimendi the goal machine, Rice rested**\
 `Art de Roché analyses the key moments from Arsenal's winning return to Premier League action`\
 https://nytimes.com/athletic/6625455/2025/09/13/arsenal-nottingham-forest-premier-league-result-analysis/
-
-**Chelsea's Datro Fofana joins Fatih Karagumruk on loan**\
-`Chelsea paid for a fee worth more than €10million (£8.4m; $11m) to sign Datro Fofana in January 2023 from Molde.`\
-https://nytimes.com/athletic/6625672/2025/09/13/chelsea-transfers-david-datro-fofana/
 
