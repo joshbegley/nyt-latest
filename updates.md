@@ -1,3 +1,7 @@
+**Twins notes: Kody Clemens has 3-homer explosion as David Festa downplays TOC diagnosis**\
+`Plus catcher Christian Vázquez is working his way back from a shoulder infection and reliever Justin Topa is likely done for the season.`\
+https://nytimes.com/athletic/6625100/2025/09/13/twins-notes-kody-clemens-has-3-homer-explosion-as-david-festa-downplays-toc-diagnosis/
+
 **The New York Times in Print for Saturday, Sep. 13, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/13/todays-new-york-times

@@ -1,3 +1,7 @@
+**Twins notes: Kody Clemens has 3-homer explosion as David Festa downplays TOC diagnosis**\
+`Plus catcher Christian Vázquez is working his way back from a shoulder infection and reliever Justin Topa is likely done for the season.`\
+https://nytimes.com/athletic/6625100/2025/09/13/twins-notes-kody-clemens-has-3-homer-explosion-as-david-festa-downplays-toc-diagnosis/
+
 **The New York Times in Print for Saturday, Sep. 13, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/13/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6622843/2025/09/13/manchester-united-manchester-cit
 **Tijjani Reijnders: From stacking shelves at Aldi to delivering the goods for Man City**\
 `Humble origins in Zwolle play a big part in Reijnders now making a name for himself in the Premier League under Pep Guardiola's management`\
 https://nytimes.com/athletic/6613081/2025/09/13/tijjani-reijnders-manchester-city-profile-background/
-
-**Best of the Rest XI: Picking the strongest team outside the 'Big Six'**\
-`Watkins or Strand Larsen? Guimaraes or Gibbs-White? And just who can go in goal…? These are our picks for players from the 'other 14'`\
-https://nytimes.com/athletic/6623288/2025/09/13/best-xi-outside-big-six-other-14/
 
