@@ -31,7 +31,7 @@ https://nytimes.com/2025/09/13/dining/cocoa-krispies-treats-and-more-fun-recipes
 https://nytimes.com/athletic/6625919/2025/09/13/martin-odegaard-arsenal-injury-update/
 
 **At a Wildfire With a Notebook — and a Mask**\
-`A reporter’s questions pulled her into the subculture of wildland firefighting. A change in policy followed.`\
+`A reporter’s questions pulled her into the subculture of wildland firefighting. Policy changes followed.`\
 https://nytimes.com/2025/09/13/reader-center/firefighters-masks-investigation.html
 
 **Calvin Klein Underwear as You’ve Never Seen It Before**\

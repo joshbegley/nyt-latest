@@ -1,3 +1,7 @@
+**Trump Escalates Attacks on Political Opponents After Charlie Kirk’s Killing**\
+`President Trump has promised to bring the killer to justice while using the moment to blame the left — and only the left — more broadly.`\
+https://nytimes.com/2025/09/13/us/politics/trump-kirk-political-opponents.html
+
 **College football Week 3 best bets: Will Mensah put up a big game against his former team?**\
 `Austin Mock is buying low on Colorado and picking the under in a noteworthy SEC game this week.`\
 https://nytimes.com/athletic/6620413/2025/09/13/college-football-best-bets-week-3-duke-colorado/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/13/reader-center/firefighters-masks-investigation.ht
 **Calvin Klein Underwear as You’ve Never Seen It Before**\
 `In her second show for the brand, the designer Veronica Leoni takes on Y-fronts.`\
 https://nytimes.com/2025/09/13/style/calvin-klein-underwear-spring-2026.html
-
-**Sainz has Dutch GP penalty overturned after Williams appeal**\
-`It was determined that Sainz’s penalty for colliding with Racing Bulls driver Liam Lawson was unwarranted based on new evidence.`\
-https://nytimes.com/athletic/6625845/2025/09/13/f1-carlos-sainz-williams-penalty-appeal/
 

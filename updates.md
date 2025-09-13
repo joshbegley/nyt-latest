@@ -1,3 +1,7 @@
+**Trump Escalates Attacks on Political Opponents After Charlie Kirk’s Killing**\
+`President Trump has promised to bring the killer to justice while using the moment to blame the left — and only the left — more broadly.`\
+https://nytimes.com/2025/09/13/us/politics/trump-kirk-political-opponents.html
+
 **College football Week 3 best bets: Will Mensah put up a big game against his former team?**\
 `Austin Mock is buying low on Colorado and picking the under in a noteworthy SEC game this week.`\
 https://nytimes.com/athletic/6620413/2025/09/13/college-football-best-bets-week-3-duke-colorado/
