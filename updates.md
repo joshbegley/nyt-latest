@@ -1,3 +1,7 @@
+**In Some Records, Fed Governor Listed Atlanta Home as Secondary**\
+`The Trump administration has sought to block Lisa Cook from the Federal Reserve meeting on interest rates this coming week.`\
+https://nytimes.com/2025/09/13/business/lisa-cook-mortgage-fed-trump.html
+
 **College Football Playoff 2025 projections: The most likely bracket with Week 3 underway**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/09/13/college-football-playoff-bracket-projections-odds/
