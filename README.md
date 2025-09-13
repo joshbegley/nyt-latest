@@ -1,3 +1,7 @@
+**Lawsuit Accuses Trump Officials of More Wrongful Deportations**\
+`Plaintiffs accused the Trump administration of using so-called third-country deportations to violate court-ordered protections for migrants, echoing the case of Kilmar Armando Abrego Garcia.`\
+https://nytimes.com/2025/09/13/us/politics/trump-lawsuit-wrongful-deportations-ghana.html
+
 **California’s $23 Billion Plan to Restore Federal Cuts to Scientific Research**\
 `Democrats are calling for the creation of a state equivalent of the National Institutes of Health, but first state lawmakers and then voters would need to approve it.`\
 https://nytimes.com/2025/09/13/us/california-scientific-research-bond.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6623288/2025/09/13/best-xi-outside-big-six-other-14
 **'Let it all work out': The song that became synonymous with Eberechi Eze's journey to Arsenal**\
 `A snippet from Sampha's 2013 release Indecision went from a TikTok trend to becoming the soundtrack to the best moments of Eze's career`\
 https://nytimes.com/athletic/6618918/2025/09/13/arsenal-eberechi-eze-song-sampha/
-
-**Lucy Bronze: My Euros in My Words**\
-`The England defender played the entire 2025 Euros with a broken leg. She sat down with The Athletic to analyse the successful title defence`\
-https://nytimes.com/athletic/6615988/2025/09/13/my-euros-in-my-words-england-lucy-bronze/
 
