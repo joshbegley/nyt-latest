@@ -1,3 +1,11 @@
+**Nebraska dominates Houston Christian, setting up a pivotal visit from Michigan**\
+`Despite back-to-back blowout wins, the identity of Nebraska’s 2025 football team remains unknown.`\
+https://nytimes.com/athletic/6626022/2025/09/13/nebraska-houston-christian-score-result-takeaways/
+
+**Van Hollen Criticizes Democratic Leaders for Delay in Endorsing Mamdani**\
+`At an annual fund-raiser in Iowa, the Maryland Democrat said he supported Zohran Mamdani for mayor of New York City and said people were sick of “spineless politics.”`\
+https://nytimes.com/2025/09/13/us/politics/van-hollen-zohran-mamdani.html
+
 **Bryce Underwood, Michigan look ready for Big Ten play in rout of CMU**\
 `The Wolverines entered Saturday facing questions about how they would respond to the loss at Oklahoma and Sherrone Moore's suspension.`\
 https://nytimes.com/athletic/6626406/2025/09/13/michigan-football-central-michigan-takeaways/

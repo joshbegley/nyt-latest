@@ -16,7 +16,7 @@ https://nytimes.com/2025/09/13/world/africa/congo-boat-deaths.html
 
 **Far-Right Rally in London Draws Huge Crowd and a Counterprotest**\
 `The divisive anti-immigrant agitator Tommy Robinson organized what he said was a free-speech festival for his supporters.`\
-https://nytimes.com/2025/09/13/world/europe/britain-far-right-rally-robinson.html
+https://nytimes.com/2025/09/13/world/europe/london-far-right-rally-robinson.html
 
 **Tigers' Tarik Skubal day-to-day after 'clean' test results**\
 `For now, there seems to be optimism around Skubal making his next start and avoiding an IL stint.`\
