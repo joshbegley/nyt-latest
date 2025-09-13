@@ -1,3 +1,7 @@
+**Twins notes: Kody Clemens has 3-homer explosion, David Festa downplays TOS diagnosis**\
+`Plus catcher Christian Vázquez is working his way back from a shoulder infection and reliever Justin Topa is likely done for the season.`\
+https://nytimes.com/athletic/6625100/2025/09/13/twins-notes-kody-clemens-has-3-homer-explosion-as-david-festa-downplays-toc-diagnosis/
+
 **How to watch Tigers at Marlins: Time, TV, streaming for September 13**\
 `Find out how to watch the Detroit Tigers play the Miami Marlins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6625245/2025/09/13/tigers-vs-marlins-stream-how-to-watch-sept-13/

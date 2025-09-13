@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6625227/2025/09/13/rangers-vs-mets-stream-how-to-wa
 `Find out how to watch the Chicago White Sox play the Cleveland Guardians, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6625225/2025/09/13/white-sox-vs-guardians-stream-how-to-watch-sept-13/
 
-**Twins notes: Kody Clemens has 3-homer explosion, David Festa downplays TOC diagnosis**\
+**Twins notes: Kody Clemens has 3-homer explosion, David Festa downplays TOS diagnosis**\
 `Plus catcher Christian Vázquez is working his way back from a shoulder infection and reliever Justin Topa is likely done for the season.`\
 https://nytimes.com/athletic/6625100/2025/09/13/twins-notes-kody-clemens-has-3-homer-explosion-as-david-festa-downplays-toc-diagnosis/
 
