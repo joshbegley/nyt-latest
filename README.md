@@ -1,3 +1,11 @@
+**Patriots trading Ja’Lynn Polk to Saints for 2027 6th-round pick**\
+`The 2024 second-round pick is out for the season due to shoulder surgery.`\
+https://nytimes.com/athletic/6626204/2025/09/13/patriots-trade-saints-jalynn-polk-nfl-news/
+
+**Huijsen 'angry' after Madrid red card in victory at Real Sociedad - Alonso**\
+`Madrid played with a player less for almost an hour after the centre-back was shown a direct red card in the 32nd minute.`\
+https://nytimes.com/athletic/6626256/2025/09/13/huijsen-real-madrid-red-card-la-liga/
+
 **Blackhawks sign Spencer Knight to 3-year, $17.5 million extension**\
 `Knight appeared in 15 games for Chicago after arriving from the Florida Panthers as part of last season's trade involving Seth Jones.`\
 https://nytimes.com/athletic/6626168/2025/09/13/blackhawks-spencer-knight-extension/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6625983/2025/09/13/jonas-vingegaard-vuelta-a-espana
 **Commanders' Austin Ekeler out for season with Achilles injury**\
 `Ekeler was injured during the Commanders' loss to the Green Bay Packers on Thursday night.`\
 https://nytimes.com/athletic/6623586/2025/09/13/austin-ekeler-commanders-achilles/
-
-**Forest players facing a 'totally different world', says Postecoglou**\
-`Postecoglou's side suffered a 3-0 defeat in his first game in charge but said the result must be viewed in the context of a difficult week.`\
-https://nytimes.com/athletic/6626037/2025/09/13/nottingham-forest-arsenal-ange-postecoglou-reaction/
-
-**The Briefing: Fulham 1 Leeds 0 - Calvert-Lewin offers hope, Aaronson's surprise start, late heartache**\
-`Leeds were denied their first point on the road this season at Craven Cottage in cruel fashion - The Athletic analyses the action `\
-https://nytimes.com/athletic/6625461/2025/09/13/fulham-1-leeds-0-calvert-lewin-farke-aaronson/
 

@@ -1,3 +1,11 @@
+**Blackhawks sign Spencer Knight to 3-year, $17.5 million extension**\
+`Knight appeared in 15 games for Chicago after arriving from the Florida Panthers as part of last season's trade involving Seth Jones.`\
+https://nytimes.com/athletic/6626168/2025/09/13/blackhawks-spencer-knight-extension/
+
+**Paramount Criticizes Celebrity-Endorsed Israeli Film Boycott**\
+`The film studio, which some say has turned rightward under its new owner, said it disagreed with thousands of Hollywood professionals pledging to boycott Israeli film institutions.`\
+https://nytimes.com/2025/09/13/arts/israel-hollywood-boycott-paramount.html
+
 **Kings' Corey Perry out 6-8 weeks after knee surgery**\
 `Based on the timeline, Perry should make his Kings debut at the end of October or the start of November.`\
 https://nytimes.com/athletic/6626072/2025/09/13/kings-corey-perry-knee-surgery/
