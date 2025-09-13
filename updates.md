@@ -1,3 +1,7 @@
+**The Briefing – West Ham 0 Tottenham 3: Bergvall's classy display, Tel as central striker, more set-piece expertise from Frank**\
+`Jack Pitt-Brooke analyses a comfortable Spurs win at London Stadium on Saturday evening`\
+https://nytimes.com/athletic/6625466/2025/09/13/west-ham-tottenham-hotspur-premier-league-result-analysis/
+
 **Mark Norell, Who Studied Link Between Dinosaurs and Birds, Dies at 68**\
 `His expeditions, including many to the Gobi Desert in Mongolia, yielded rare discoveries and led to exhibitions at the American Museum of Natural History.`\
 https://nytimes.com/2025/09/13/science/earth/mark-norell-dead.html

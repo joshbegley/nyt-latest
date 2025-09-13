@@ -1,3 +1,7 @@
+**The Briefing – West Ham 0 Tottenham 3: Bergvall's classy display, Tel as central striker, more set-piece expertise from Frank**\
+`Jack Pitt-Brooke analyses a comfortable Spurs win at London Stadium on Saturday evening`\
+https://nytimes.com/athletic/6625466/2025/09/13/west-ham-tottenham-hotspur-premier-league-result-analysis/
+
 **Mark Norell, Who Studied Link Between Dinosaurs and Birds, Dies at 68**\
 `His expeditions, including many to the Gobi Desert in Mongolia, yielded rare discoveries and led to exhibitions at the American Museum of Natural History.`\
 https://nytimes.com/2025/09/13/science/earth/mark-norell-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6626204/2025/09/13/patriots-trade-saints-jalynn-pol
 **Huijsen 'angry' after Madrid red card in victory at Real Sociedad - Alonso**\
 `Madrid played with a player less for almost an hour after the centre-back was shown a direct red card in the 32nd minute.`\
 https://nytimes.com/athletic/6626256/2025/09/13/huijsen-real-madrid-red-card-la-liga/
-
-**Blackhawks sign Spencer Knight to 3-year, $17.5 million extension**\
-`Knight appeared in 15 games for Chicago after arriving from the Florida Panthers as part of last season's trade involving Seth Jones.`\
-https://nytimes.com/athletic/6626168/2025/09/13/blackhawks-spencer-knight-extension/
 
