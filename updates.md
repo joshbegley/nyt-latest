@@ -1,3 +1,11 @@
+**Ryan Crouser, in first meet in a year, wins third straight shot put world title**\
+`Crouser, despite not competing since last September, continued his reign as king of shot put Saturday at the World Athletics Championships.`\
+https://nytimes.com/athletic/6623240/2025/09/13/ryan-crouser-world-athletics-championships-shot-put-gold-medal/
+
+**The Briefing – Arsenal 3 Nottingham Forest 0: Madueke and Eze shine, Zubimendi the goal machine, Rice rested**\
+`Art de Roché analyses the key moments from Arsenal's winning return to Premier League action`\
+https://nytimes.com/athletic/6625455/2025/09/13/arsenal-nottingham-forest-premier-league-result-analysis/
+
 **The Briefing – Arsenal 3 Nottingham Forest 0: Madueke and Eze shine, Zubimendi the goal machine, Rice rested**\
 `Art de Roché analyses the key moments from Arsenal's winning return to Premier League action `\
 https://nytimes.com/athletic/6625455/2025/09/13/arsenal-nottingham-forest-premier-league-result-analysis/
