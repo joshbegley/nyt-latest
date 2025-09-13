@@ -1,3 +1,7 @@
+**Russini: What I’m hearing on Tyreek Hill’s future, the 49ers’ injury bug and more**\
+`The latest on San Francisco's troubles, whether Miami is listening to calls on Tyreek Hill and why some in Pittsburgh are saying "told ya."`\
+https://nytimes.com/athletic/6624493/2025/09/13/nfl-rumors-news-49ers-injuries-tyreek-hill-chiefs/
+
 **Final day of Saint-Tropez SailGP canceled; Britain celebrates lucky win**\
 `The threat of thunderstorms and lightning led to the cancelation of SailGP's final day in Saint-Tropez`\
 https://nytimes.com/athletic/6625749/2025/09/13/sail-gp-saint-tropez-canceled-britain-wins/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6623270/2025/09/13/broncos-bo-nix-feet-movement-wee
 **'You welcome it': Blackhawks' new No. 1 Sam Rinzel unfazed by sudden great expectations**\
 `Nine NHL games were all it took for the 2022 No. 25 pick to go from a “project” to a professional and become Chicago's No. 1 defenseman.`\
 https://nytimes.com/athletic/6624187/2025/09/13/blackhawks-sam-rinzel-rookie-camp/
-
-**The Irony of Corporate America’s Many Patagonia Vests**\
-`Yvon Chouinard, the founder of Patagonia, hates the idea of billionaires and says he doesn’t trust the stock market.`\
-https://nytimes.com/2025/09/13/business/dealbook/patagonia-founder-finance.html
 

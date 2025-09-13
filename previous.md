@@ -1,3 +1,7 @@
+**Final day of Saint-Tropez SailGP canceled; Britain celebrates lucky win**\
+`The threat of thunderstorms and lightning led to the cancelation of SailGP's final day in Saint-Tropez`\
+https://nytimes.com/athletic/6625749/2025/09/13/sail-gp-saint-tropez-canceled-britain-wins/
+
 **Tanner Scott's latest blowup highlights Dodgers' glaring bullpen issues**\
 `The 31-year-old left-hander is sporting a 5.01 ERA and has allowed 11 home runs this season.`\
 https://nytimes.com/athletic/6625285/2025/09/13/dodgers-tanner-scott-struggles/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6624187/2025/09/13/blackhawks-sam-rinzel-rookie-cam
 **The Irony of Corporate America’s Many Patagonia Vests**\
 `Yvon Chouinard, the founder of Patagonia, hates the idea of billionaires and says he doesn’t trust the stock market.`\
 https://nytimes.com/2025/09/13/business/dealbook/patagonia-founder-finance.html
-
-**The Pulse: Deion's new realoty at Colorado**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6624930/2025/09/13/a-new-reality-for-deion-sanders-and-colorado-plus-more-kawhi-leonard-smoke/
 
