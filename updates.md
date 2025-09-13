@@ -1,3 +1,7 @@
+**Who is running Manchester City now? Inside the new order at CFG**\
+`For over a decade, City's stability contrasted with the chaos of Manchester United's. But they are now experiencing their own upheaval`\
+https://nytimes.com/athletic/6619582/2025/09/13/manchester-city-football-group-cfg-inside/
+
 **Mirtle: 5 reasons for optimism for the Maple Leafs this season**\
 `Taking a glass-half-full approach by looking at some of the Leafs' positives entering the season and how they may impact their fortunes.`\
 https://nytimes.com/athletic/6620713/2025/09/13/toronto-maple-leafs-2025-26-nhl-season/
