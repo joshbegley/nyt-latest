@@ -1,3 +1,19 @@
+**Yankees won't rule out offseason surgery for Anthony Volpe; long-term SS plans remain**\
+`José Caballero has started in place of Volpe and will continue to do so in his absence.`\
+https://nytimes.com/athletic/6624464/2025/09/13/new-york-yankees-anthony-volpe-injury-update/
+
+**How to watch Angels at Mariners: Time, TV, streaming for September 13**\
+`Find out how to watch the Los Angeles Angels play the Seattle Mariners, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6625506/2025/09/13/angels-vs-mariners-stream-how-to-watch-sept-13/
+
+**How to watch Dodgers at Giants: Time, TV, streaming for September 13**\
+`Find out how to watch the Los Angeles Dodgers play the San Francisco Giants, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6625503/2025/09/13/dodgers-vs-giants-stream-how-to-watch-sept-13/
+
+**Guardians' OF Lane Thomas' nightmare contract year could end with foot surgery**\
+`Thomas is hoping the Guardians can repeat their autumn magic — this time, without him`\
+https://nytimes.com/athletic/6624801/2025/09/13/cleveland-guardians-lane-thomas-foot-injury/
+
 **Focus Point**\
 `In this age of constant distraction, we could all stand to “lock in.”`\
 https://nytimes.com/2025/09/13/briefing/focus-point.html

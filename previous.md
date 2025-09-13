@@ -1,3 +1,19 @@
+**Yankees won't rule out offseason surgery for Anthony Volpe; long-term SS plans remain**\
+`José Caballero has started in place of Volpe and will continue to do so in his absence.`\
+https://nytimes.com/athletic/6624464/2025/09/13/new-york-yankees-anthony-volpe-injury-update/
+
+**How to watch Angels at Mariners: Time, TV, streaming for September 13**\
+`Find out how to watch the Los Angeles Angels play the Seattle Mariners, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6625506/2025/09/13/angels-vs-mariners-stream-how-to-watch-sept-13/
+
+**How to watch Dodgers at Giants: Time, TV, streaming for September 13**\
+`Find out how to watch the Los Angeles Dodgers play the San Francisco Giants, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6625503/2025/09/13/dodgers-vs-giants-stream-how-to-watch-sept-13/
+
+**Guardians' OF Lane Thomas' nightmare contract year could end with foot surgery**\
+`Thomas is hoping the Guardians can repeat their autumn magic — this time, without him`\
+https://nytimes.com/athletic/6624801/2025/09/13/cleveland-guardians-lane-thomas-foot-injury/
+
 **Focus Point**\
 `In this age of constant distraction, we could all stand to “lock in.”`\
 https://nytimes.com/2025/09/13/briefing/focus-point.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6623557/2025/09/13/canelo-alvarez-terence-crawford-
 **One reason to root for each team in the WNBA playoffs**\
 `An eventful summer gives way to the 2025 WNBA playoffs, loaded with likable players and eight teams all worthy of support. `\
 https://nytimes.com/athletic/6623437/2025/09/13/wnba-playoffs-teams-2025-preview-how-to-watch/
-
-**My Brother-in-Law Can’t Care for Himself. Do His Siblings Have to Bail Him Out?**\
-`He rarely communicates with the family, except when he’s in trouble.`\
-https://nytimes.com/2025/09/13/magazine/brother-cant-care-for-himself-siblings-bail-him-out-ethics.html
-
-**Wordle Review No. 1,548**\
-`Scroll down for hints and conversation about the puzzle for Sept. 14, 2025.`\
-https://nytimes.com/2025/09/13/crosswords/wordle-review-1548.html
-
-**In Toronto, a Spotlight on Canadian Films**\
-`The Toronto International Film Festival celebrates a big anniversary amid a trade war with the U.S. that has galvanized Canadians to support local filmmakers.`\
-https://nytimes.com/2025/09/13/world/canada/toronto-film-festival-canadian-movies.html
-
-**Strands Sidekick No. 560**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 14, 2025.`\
-https://nytimes.com/2025/09/13/crosswords/strands-sidekick-560.html
 
