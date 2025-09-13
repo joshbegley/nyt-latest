@@ -1,3 +1,7 @@
+**Girl, 16, Struck and Killed by Driver of S.U.V. in Queens, Police Say**\
+`The girl, identified as Jhoanny Gomez-Alvarez, was intentionally struck by the 38-year-old driver early Saturday morning after getting into an argument with him, a law enforcement official said.`\
+https://nytimes.com/2025/09/13/nyregion/girl-struck-suv-queens.html
+
 **Girl, 16, Intentionally Struck and Killed by Driver of SUV in Queens**\
 `The girl, identified as Jhoanny Gomez-Alvarez, got into an argument with a 38-year-old man driving a Chevrolet Suburban early Saturday morning. He then ran her down with the vehicle.`\
 https://nytimes.com/2025/09/13/nyregion/girl-struck-suv-queens.html
