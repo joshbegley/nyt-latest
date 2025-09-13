@@ -1,3 +1,7 @@
+**Cowboys' Tyler Smith is highest-paid NFL guard with 4-year, $96 million extension**\
+`The All-Pro and the Cowboys agree to a four-year, $96 million contract extension, making Smith the NFL's highest-paid guard.`\
+https://nytimes.com/athletic/6626601/2025/09/13/cowboys-tyler-smith-signs-extension/
+
 **In Some Records, Fed Governor Listed Atlanta Home as Secondary**\
 `The Trump administration has sought to block Lisa Cook from the Federal Reserve meeting on interest rates this coming week.`\
 https://nytimes.com/2025/09/13/business/lisa-cook-mortgage-fed-trump.html
