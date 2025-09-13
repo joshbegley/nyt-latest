@@ -1,3 +1,7 @@
+**Anthony Martial joins Monterrey from AEK Athens**\
+`The striker has signed a two-year contract at the Mexican club with the option of a further year after scoring nine goals for AEK Athens.`\
+https://nytimes.com/athletic/6619191/2025/09/13/anthony-martial-transfer-mexico-monterrey/
+
 **Nepal’s New Government Calls Elections. Its Critics Cry Foul.**\
 `Sushila Karki, a former Supreme Court chief justice who was appointed as interim leader, made speed a priority in a process that other jurists deem unconstitutional.`\
 https://nytimes.com/2025/09/13/world/asia/nepal-government-politics-election-protest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/13/climate/employee-heat-protection-laws.html
 **Kirk Assassination Puts America’s Political Spotlight on Campuses Again**\
 `Colleges are often the setting, and the target, of the nation’s most heated politics. Charlie Kirk’s work on campuses was one factor.`\
 https://nytimes.com/2025/09/13/us/charlie-kirk-college-campuses-american-political-battles.html
-
-**The Living Room Where History Still Happens**\
-`Gloria Steinem, now 91, is still at the center of vital conversations. On Tuesday, she gathered a circle of nearly 30 women at her home to talk about women’s health.`\
-https://nytimes.com/2025/09/13/style/the-living-room-where-history-still-happens.html
 
