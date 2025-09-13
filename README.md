@@ -1,3 +1,11 @@
+**Best of the Rest XI: Picking the strongest team outside the 'Big Six'**\
+`Watkins or Strand Larsen? Guimaraes or Gibbs-White? And just who can go in goal…? These are our picks for players from the 'other 14'`\
+https://nytimes.com/athletic/6623288/2025/09/13/best-xi-outside-big-six-other-14/
+
+**'Let it all work out': The song that became synonymous with Eberechi Eze's journey to Arsenal**\
+`A snippet from Sampha's 2013 release Indecision went from a TikTok trend to becoming the soundtrack to the best moments of Eze's career`\
+https://nytimes.com/athletic/6618918/2025/09/13/arsenal-eberechi-eze-song-sampha/
+
 **Lucy Bronze: My Euros in My Words**\
 `The England defender played the entire 2025 Euros with a broken leg. She sat down with The Athletic to analyse the successful title defence`\
 https://nytimes.com/athletic/6615988/2025/09/13/my-euros-in-my-words-england-lucy-bronze/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/13/pageoneplus/corrections-sept-13-2025.html
 **7.4-Magnitude Earthquake Strikes Russia’s Far East**\
 `Dangerous tsunami waves were possible at coastlines near the epicenter, according to the U.S. Tsunami Warning System.`\
 https://nytimes.com/2025/09/12/world/asia/russia-earthquake.html
-
-**Testing on Tarik Skubal’s left side may determine the fate of Tigers’ season**\
-`Skubal left Friday's start with left side tightness, and the extent of his injury is unknown. 'Hopefully nothing is there,' the ace said.`\
-https://nytimes.com/athletic/6625045/2025/09/12/detroit-tigers-tarik-skubal-left-side-injury/
-
-**Vance Invokes Charlie Kirk in Midterms Push to G.O.P. Donors**\
-`Vice President JD Vance urged major contributors to win the 2026 midterms to honor Charlie Kirk, who was Mr. Vance’s close friend.`\
-https://nytimes.com/2025/09/12/us/politics/vance-charlie-kirk-republican-donors.html
 
