@@ -1,4 +1,4 @@
-**Cowboys' Tyler Smith is highest-paid NFL guard with 4-year, $96M extension**\
+**Cowboys' Tyler Smith is highest-paid NFL guard with 4-year, $96 million extension**\
 `The All-Pro and the Cowboys agree to a four-year, $96 million contract extension, making Smith the NFL's highest-paid guard.`\
 https://nytimes.com/athletic/6626601/2025/09/13/cowboys-tyler-smith-signs-extension/
 
