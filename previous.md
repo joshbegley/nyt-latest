@@ -1,3 +1,7 @@
+**U.C. Berkeley Gives Names of Students and Faculty to Government for Antisemitism Probe**\
+`The University of California, Berkeley, told around 160 people that their names were in documents related to antisemitism complaints that were demanded by the Trump administration.`\
+https://nytimes.com/2025/09/13/us/politics/trump-berkeley-antisemitism-investigation.html
+
 **How to watch Reds at Athletics: Time, TV, streaming for September 13**\
 `Find out how to watch the Cincinnati Reds play the Athletics, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6625372/2025/09/13/reds-vs-athletics-stream-how-to-watch-sept-13/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6625243/2025/09/13/astros-vs-braves-stream-how-to-w
 **How to watch Cardinals at Brewers: Time, TV, streaming for September 13**\
 `Find out how to watch the St. Louis Cardinals play the Milwaukee Brewers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6625239/2025/09/13/cardinals-vs-brewers-stream-how-to-watch-sept-13/
-
-**How to watch Diamondbacks at Twins: Time, TV, streaming for September 13**\
-`Find out how to watch the Arizona Diamondbacks play the Minnesota Twins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6625238/2025/09/13/diamondbacks-vs-twins-stream-how-to-watch-sept-13/
 

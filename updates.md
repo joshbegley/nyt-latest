@@ -1,3 +1,7 @@
+**U.C. Berkeley Gives Names of Students and Faculty to Government for Antisemitism Probe**\
+`The University of California, Berkeley, told around 160 people that their names were in documents related to antisemitism complaints that were demanded by the Trump administration.`\
+https://nytimes.com/2025/09/13/us/politics/trump-berkeley-antisemitism-investigation.html
+
 **How to watch Reds at Athletics: Time, TV, streaming for September 13**\
 `Find out how to watch the Cincinnati Reds play the Athletics, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6625372/2025/09/13/reds-vs-athletics-stream-how-to-watch-sept-13/
