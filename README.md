@@ -1,3 +1,7 @@
+**Forest players facing a 'totally different world', says Postecoglou**\
+`Postecoglou's side suffered a 3-0 defeat in his first game in charge but said the result must be viewed in the context of a difficult week.`\
+https://nytimes.com/athletic/6626037/2025/09/13/nottingham-forest-arsenal-ange-postecoglou-reaction/
+
 **The Briefing: Fulham 1 Leeds 0: Calvert-Lewin offers hope, Aaronson's surprise start, late heartache**\
 `Leeds were denied their first point on the road this season at Craven Cottage in cruel fashion - The Athletic analyses the action `\
 https://nytimes.com/athletic/6625461/2025/09/13/fulham-1-leeds-0-calvert-lewin-farke-aaronson/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/13/us/politics/trump-sanctions-russia-ukraine.html
 **Cocoa. Krispies. Treats.**\
 `The key word here is “cocoa,” which adds its subtly smoky, bittersweet notes to the classic treat.`\
 https://nytimes.com/2025/09/13/dining/cocoa-krispies-treats-and-more-fun-recipes.html
-
-**Odegaard to have tests on shoulder injury, does not require surgery - Arteta**\
-`Odegaard came off after eight minutes when he landed awkwardly on his shoulder in the first half of their 3-0 win over Nottingham Forest.`\
-https://nytimes.com/athletic/6625919/2025/09/13/martin-odegaard-arsenal-injury-update/
 
