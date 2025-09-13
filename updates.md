@@ -1,3 +1,7 @@
+**The suspect was a member of the Mormon church at a young age.**\
+`By Ruth Graham and Lauren Jackson`\
+https://nytimes.com/live/2025/09/12/us/charlie-kirk-news-suspect/the-suspect-was-a-member-of-the-mormon-church-at-a-young-age
+
 **Minutes Before He Was Shot, Charlie Kirk Debated Religion**\
 `The New York Times examined video footage to better understand what was said during Mr. Kirk’s event at Utah Valley University.`\
 https://nytimes.com/2025/09/12/us/charlie-kirk-debate-utah-shooting.html
