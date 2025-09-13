@@ -1,3 +1,7 @@
+**Odegaard to have tests on shoulder injury, does not require surgery - Arteta**\
+`Odegaard came off after eight minutes when he landed awkwardly on his shoulder in the first half of their 3-0 win over Nottingham Forest.`\
+https://nytimes.com/athletic/6625919/2025/09/13/martin-odegaard-arsenal-injury-update/
+
 **At a Wildfire With a Notebook — and a Mask**\
 `A reporter’s questions pulled her into the subculture of wildland firefighting, and led to a change in policy.`\
 https://nytimes.com/2025/09/13/reader-center/firefighters-masks-investigation.html
