@@ -1,3 +1,11 @@
+**Mark Norell, Who Studied Link Between Dinosaurs and Birds, Dies at 68**\
+`His expeditions, including many to the Gobi Desert in Mongolia, yielded rare discoveries and led to exhibitions at the American Museum of Natural History.`\
+https://nytimes.com/2025/09/13/science/earth/mark-norell-dead.html
+
+**Chiefs' Xavier Worthy ruled out vs. Eagles: Which receivers will K.C. rely on?**\
+`Worthy being out Sunday is significant, as the Chiefs are already without Rashee Rice and are looking to avoid an 0-2 start.`\
+https://nytimes.com/athletic/6626339/2025/09/13/chiefs-xavier-worthy-status-eagles/
+
 **Chiefs' Xavier Worthy ruled out vs. Eagles: Which receivers will K.C. rely on?**\
 `Worthy being out Sunday is significant, as the Chiefs are already without Rashee Rice and are looking to avoid a 0-2 start.`\
 https://nytimes.com/athletic/6626339/2025/09/13/chiefs-xavier-worthy-status-eagles/
