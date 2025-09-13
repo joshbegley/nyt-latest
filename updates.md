@@ -1,3 +1,15 @@
+**Forest players facing a 'totally different world', says Postecoglou**\
+`Postecoglou's side suffered a 3-0 defeat in his first game in charge but said the result must be viewed in the context of a difficult week.`\
+https://nytimes.com/athletic/6626037/2025/09/13/nottingham-forest-arsenal-ange-postecoglou-reaction/
+
+**The Briefing: Fulham 1 Leeds 0: Calvert-Lewin offers hope, Aaronson's surprise start, late heartache**\
+`Leeds were denied their first point on the road this season at Craven Cottage in cruel fashion - The Athletic analyses the action `\
+https://nytimes.com/athletic/6625461/2025/09/13/fulham-1-leeds-0-calvert-lewin-farke-aaronson/
+
+**Newcastle 1 Wolves 0 - How good was Woltemade's debut goal? Are Howe's side ready for Barcelona?**\
+`Analysis of Newcastle United's Premier League game at home to Wolves`\
+https://nytimes.com/athletic/6625464/2025/09/13/newcastle-wolves-woltemade-highlights/
+
 **At a Wildfire With a Notebook — and a Mask**\
 `A reporter’s questions pulled her into the subculture of wildland firefighting. Policy changes followed.`\
 https://nytimes.com/2025/09/13/reader-center/firefighters-masks-investigation.html
