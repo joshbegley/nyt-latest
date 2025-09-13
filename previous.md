@@ -1,3 +1,7 @@
+**Anti-Immigration Activists Face Off With Counterprotesters in London**\
+`Thousands of far-right activists marched through central London on Saturday, setting off sporadic clashes with the police as they held dueling demonstrations with counterprotesters.`\
+https://nytimes.com/video/world/europe/100000010396966/london-immigration-protest.html
+
 **Girl, 16, Struck and Killed by Driver of S.U.V. in Queens, Police Say**\
 `The girl, identified as Jhoanny Gomez-Alvarez, was intentionally struck by the 38-year-old driver early Saturday morning after getting into an argument with him, a law enforcement official said.`\
 https://nytimes.com/2025/09/13/nyregion/girl-struck-suv-queens.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6466237/2025/09/13/brighton-sporting-director-ayto-
 **Browns rookie RB Quinshon Judkins expected to make NFL debut vs. Ravens**\
 `The second-round pick was signed to a fully guaranteed four-year deal ahead of Cleveland's season opener. `\
 https://nytimes.com/athletic/6625901/2025/09/13/browns-quinshon-judkins-nfl-debut-ravens/
-
-**Nancy King, Jazz Singer Who Flew Under the Radar, Dies at 85**\
-`Aficionados, and her fellow musicians, considered her one of the best living vocalists. But she chose not to seek a bigger spotlight.`\
-https://nytimes.com/2025/09/13/arts/music/nancy-king-dead.html
 

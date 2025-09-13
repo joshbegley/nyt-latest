@@ -1,3 +1,7 @@
+**Anti-Immigration Activists Face Off With Counterprotesters in London**\
+`Thousands of far-right activists marched through central London on Saturday, setting off sporadic clashes with the police as they held dueling demonstrations with counterprotesters.`\
+https://nytimes.com/video/world/europe/100000010396966/london-immigration-protest.html
+
 **Girl, 16, Struck and Killed by Driver of S.U.V. in Queens, Police Say**\
 `The girl, identified as Jhoanny Gomez-Alvarez, was intentionally struck by the 38-year-old driver early Saturday morning after getting into an argument with him, a law enforcement official said.`\
 https://nytimes.com/2025/09/13/nyregion/girl-struck-suv-queens.html
