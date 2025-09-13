@@ -1,3 +1,7 @@
+**Minutes Before He Was Shot, Charlie Kirk Discussed Religion**\
+`The New York Times examined video footage to better understand what was said during Mr. Kirk’s event at Utah Valley University.`\
+https://nytimes.com/2025/09/12/us/charlie-kirk-debate-utah-shooting.html
+
 **The 9.14.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/09/12/the-91425-issue
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/12/style/hasan-piker-charlie-kirk.html
 **A Palestinian Lives Near a Landfill After Fleeing Gaza City**\
 `Omar al-Far left Gaza City after Israel ordered the whole city to evacuate. He couldn’t afford rent, so he set up a tent next to a garbage dump near Nuseirat Camp.`\
 https://nytimes.com/video/world/middleeast/100000010395718/gaza-city-palestinian-displacement.html
-
-**Bonnie Addario, 77, Dies; Survivor of Lung Cancer Made Fighting It a Cause**\
-`After climbing in the business world, she received a dire diagnosis, spurring her to found leading nonprofit groups to promote early detection and research.`\
-https://nytimes.com/2025/09/12/health/bonnie-addario-dead.html
 
