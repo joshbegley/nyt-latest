@@ -1,3 +1,7 @@
+**Mets lose 7th straight — again — in clunker vs. Rangers**\
+`Before Friday, the Mets hadn't lost 7 straight games, three times in a season since 1980.`\
+https://nytimes.com/athletic/6625042/2025/09/12/mets-lose-seventh-straight-rangers-mlb/
+
 **How Law Enforcement Got the Man Suspected of Killing Charlie Kirk**\
 `F.B.I. leaders touted the immense federal deployment assigned to find the assassin. But their big break came with a single tip — from the suspect’s own family.`\
 https://nytimes.com/2025/09/12/us/charlie-kirk-law-enforcement-fbi-capture.html
