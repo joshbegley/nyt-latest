@@ -1,3 +1,11 @@
+**Stuff of Giants legends: Patrick Bailey's walk-off grand slam defeats Dodgers**\
+`The Giants now stand just a half-game behind the New York Mets for the final seat in the postseason banquet hall.`\
+https://nytimes.com/athletic/6625522/2025/09/13/patrick-bailey-giants-walkoff-homer-dodgers/
+
+**Russini: What I’m hearing on Tyreek Hill’s future, the 49ers’ injury bug and more**\
+`The latest on San Francisco's troubles, whether Miami is listening to calls on Tyreek Hill and why some in Pittsburgh are saying "told ya."`\
+https://nytimes.com/athletic/6624493/2025/09/13/nfl-rumors-news-49ers-injuries-tyreek-hill-chiefs/
+
 **Final day of Saint-Tropez SailGP canceled; Britain celebrates lucky win**\
 `The threat of thunderstorms and lightning led to the cancelation of SailGP's final day in Saint-Tropez`\
 https://nytimes.com/athletic/6625749/2025/09/13/sail-gp-saint-tropez-canceled-britain-wins/
