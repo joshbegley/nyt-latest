@@ -1,3 +1,7 @@
+**Maresca: Joao Pedro started Brentford match despite asking not to play**\
+`Joao Pedro led the line at the Gtech Community Stadium and provided an assist for Cole Palmer's goal to make it 1-1.`\
+https://nytimes.com/athletic/6626745/2025/09/13/chelsea-joao-pedro-update-maresca/
+
 **How to watch Pirates at Nationals: Time, TV, streaming for September 14**\
 `Find out how to watch the Pittsburgh Pirates play the Washington Nationals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6626782/2025/09/13/pirates-vs-nationals-stream-how-to-watch-sept-14/
