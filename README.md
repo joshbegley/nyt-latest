@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6624493/2025/09/13/nfl-rumors-news-49ers-injuries-t
 `The threat of thunderstorms and lightning led to the cancelation of SailGP's final day in Saint-Tropez`\
 https://nytimes.com/athletic/6625749/2025/09/13/sail-gp-saint-tropez-canceled-britain-wins/
 
-**Tanner Scott's latest blowup highlights Dodgers' glaring bullpen issues**\
+**Tanner Scott's latest blowup highlights Dodgers' glaring issues**\
 `The 31-year-old left-hander is sporting a 5.01 ERA and has allowed 11 home runs this season.`\
 https://nytimes.com/athletic/6625285/2025/09/13/dodgers-tanner-scott-struggles/
 
