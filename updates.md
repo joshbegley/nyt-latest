@@ -1,3 +1,7 @@
+**Girl, 16, Intentionally Struck and Killed by Driver of SUV in Queens**\
+`The girl, identified as Jhoanny Gomez-Alvarez, got into an argument with a 38-year-old man driving a Chevrolet Suburban early Saturday morning. He then ran her down with the vehicle.`\
+https://nytimes.com/2025/09/13/nyregion/girl-struck-suv-queens.html
+
 **1976 Topps Walter Payton rookie card: Our sports card of the week**\
 `With the 40th anniversary of the Bears' 1985 Super Bowl win upon us, we look back at an iconic card of a standout on that team`\
 https://nytimes.com/athletic/6625960/2025/09/13/walter-payton-bears-rookie-card/
