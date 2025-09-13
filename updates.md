@@ -1,3 +1,7 @@
+**Lawsuit Accuses Trump Officials of More Wrongful Deportations**\
+`Plaintiffs accused the Trump administration of using so-called third-country deportations to violate court-ordered protections for migrants, echoing the case of Kilmar Armando Abrego Garcia.`\
+https://nytimes.com/2025/09/13/us/politics/trump-lawsuit-wrongful-deportations-ghana.html
+
 **California’s $23 Billion Plan to Restore Federal Cuts to Scientific Research**\
 `Democrats are calling for the creation of a state equivalent of the National Institutes of Health, but first state lawmakers and then voters would need to approve it.`\
 https://nytimes.com/2025/09/13/us/california-scientific-research-bond.html

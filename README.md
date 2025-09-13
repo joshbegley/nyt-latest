@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, Sep. 13, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/13/todays-new-york-times
+
 **Lawsuit Accuses Trump Officials of More Wrongful Deportations**\
 `Plaintiffs accused the Trump administration of using so-called third-country deportations to violate court-ordered protections for migrants, echoing the case of Kilmar Armando Abrego Garcia.`\
 https://nytimes.com/2025/09/13/us/politics/trump-lawsuit-wrongful-deportations-ghana.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6613081/2025/09/13/tijjani-reijnders-manchester-cit
 **Best of the Rest XI: Picking the strongest team outside the 'Big Six'**\
 `Watkins or Strand Larsen? Guimaraes or Gibbs-White? And just who can go in goal…? These are our picks for players from the 'other 14'`\
 https://nytimes.com/athletic/6623288/2025/09/13/best-xi-outside-big-six-other-14/
-
-**'Let it all work out': The song that became synonymous with Eberechi Eze's journey to Arsenal**\
-`A snippet from Sampha's 2013 release Indecision went from a TikTok trend to becoming the soundtrack to the best moments of Eze's career`\
-https://nytimes.com/athletic/6618918/2025/09/13/arsenal-eberechi-eze-song-sampha/
 
