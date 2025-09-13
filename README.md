@@ -1,5 +1,9 @@
+**Mark Norell, Who Studied Link Between Dinosaurs and Birds, Dies at 68**\
+`His expeditions, including many to the Gobi Desert in Mongolia, yielded rare discoveries and led to exhibitions at the American Museum of Natural History.`\
+https://nytimes.com/2025/09/13/science/earth/mark-norell-dead.html
+
 **Chiefs' Xavier Worthy ruled out vs. Eagles: Which receivers will K.C. rely on?**\
-`Worthy being out Sunday is significant, as the Chiefs are already without Rashee Rice and are looking to avoid a 0-2 start.`\
+`Worthy being out Sunday is significant, as the Chiefs are already without Rashee Rice and are looking to avoid an 0-2 start.`\
 https://nytimes.com/athletic/6626339/2025/09/13/chiefs-xavier-worthy-status-eagles/
 
 **Wrestling Over Charlie Kirk’s Legacy and the Divide in America**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6626256/2025/09/13/huijsen-real-madrid-red-card-la-
 **Blackhawks sign Spencer Knight to 3-year, $17.5 million extension**\
 `Knight appeared in 15 games for Chicago after arriving from the Florida Panthers as part of last season's trade involving Seth Jones.`\
 https://nytimes.com/athletic/6626168/2025/09/13/blackhawks-spencer-knight-extension/
-
-**Paramount Criticizes Celebrity-Endorsed Israeli Film Boycott**\
-`The film studio, which some say has turned rightward under its new owner, said it disagreed with thousands of Hollywood professionals pledging to boycott Israeli film institutions.`\
-https://nytimes.com/2025/09/13/arts/israel-hollywood-boycott-paramount.html
 
