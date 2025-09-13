@@ -1,3 +1,15 @@
+**How to watch Royals at Phillies: Time, TV, streaming for September 13**\
+`Find out how to watch the Kansas City Royals play the Philadelphia Phillies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6624746/2025/09/12/royals-vs-phillies-stream-how-to-watch-sept-13/
+
+**How to watch Rays at Cubs: Time, TV, streaming for September 13**\
+`Find out how to watch the Tampa Bay Rays play the Chicago Cubs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6624745/2025/09/12/rays-vs-cubs-stream-how-to-watch-sept-13/
+
+**How to watch Pirates at Nationals: Time, TV, streaming for September 13**\
+`Find out how to watch the Pittsburgh Pirates play the Washington Nationals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6624739/2025/09/12/pirates-vs-nationals-stream-how-to-watch-sept-13/
+
 **Yankees' Aaron Judge passes Joe DiMaggio on franchise's all-time home run list**\
 `The only three hitters who have more home runs in a Yankees uniform are Babe Ruth (659), Mickey Mantle (536) and Lou Gehrig (493).`\
 https://nytimes.com/athletic/6624654/2025/09/12/new-york-yankees-aaron-judge-home-run-history/
