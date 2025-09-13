@@ -1,3 +1,19 @@
+**Chiefs defense believes it'll be better Week 2. It started with an apology**\
+`The Chargers' pass game exposed the Chiefs in two specific areas. Will K.C. be able to fix things this week against the Philadelphia Eagles?`\
+https://nytimes.com/athletic/6623729/2025/09/13/chiefs-defense-apology-week-2-improvement/
+
+**As Broncos' Bo Nix seeks bounce back vs. Colts, improvement must start from ground up**\
+`"Good things happen" when Nix throws on the move, OC Joe Lombardi said, but footwork also got the QB into trouble in a rocky season debut.`\
+https://nytimes.com/athletic/6623270/2025/09/13/broncos-bo-nix-feet-movement-week-2-colts/
+
+**'You welcome it': Blackhawks' new No. 1 Sam Rinzel unfazed by sudden great expectations**\
+`Nine NHL games were all it took for the 2022 No. 25 pick to go from a “project” to a professional and become Chicago's No. 1 defenseman.`\
+https://nytimes.com/athletic/6624187/2025/09/13/blackhawks-sam-rinzel-rookie-camp/
+
+**The Irony of Corporate America’s Many Patagonia Vests**\
+`Yvon Chouinard, the founder of Patagonia, hates the idea of billionaires and says he doesn’t trust the stock market.`\
+https://nytimes.com/2025/09/13/business/dealbook/patagonia-founder-finance.html
+
 **The Pulse: Deion's new realoty at Colorado**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6624930/2025/09/13/a-new-reality-for-deion-sanders-and-colorado-plus-more-kawhi-leonard-smoke/
