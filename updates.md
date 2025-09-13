@@ -1,3 +1,7 @@
+**Dodgers place Will Smith on IL with right hand bone bruise**\
+`Manager Dave Roberts acknowledged that Smith's injury could affect him for the rest of the season.`\
+https://nytimes.com/athletic/6626700/2025/09/13/dodgers-will-smith-injury/
+
 **Maresca: Joao Pedro started Brentford match despite asking not to play**\
 `Joao Pedro led the line at the Gtech Community Stadium and provided an assist for Cole Palmer's goal to make it 1-1.`\
 https://nytimes.com/athletic/6626745/2025/09/13/chelsea-joao-pedro-update-maresca/
