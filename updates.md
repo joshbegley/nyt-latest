@@ -1,4 +1,8 @@
 **Brentford 2 Chelsea 2 - How did Cole Palmer change the game? What went wrong for Maresca?**\
+`Analysis of Chelsea's draw away at Brentford in the Premier League`\
+https://nytimes.com/athletic/6625469/2025/09/13/brentford-chelsea-cole-palmer-highlights/
+
+**Brentford 2 Chelsea 2 - How did Cole Palmer change the game? What went wrong for Maresca?**\
 `Analysis of Chelsea's draw away to Brentford in the Premier League`\
 https://nytimes.com/athletic/6625469/2025/09/13/brentford-chelsea-cole-palmer-highlights/
 
