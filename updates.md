@@ -1,3 +1,11 @@
+**What Happened to Cameron Crowe? He Has Answers.**\
+`The writer-director made hit after hit movie, until he didn’t. But he doesn’t let it get him down.`\
+https://nytimes.com/2025/09/13/magazine/cameron-crowe-interview.html
+
+**The White Sox beat their win total. Where do they rank among disappointing Chicago teams?**\
+`The White Sox exceeded (very low) expectations and two of our Chicago writers examine where they fit in the Chicago-disappointment pantheon.`\
+https://nytimes.com/athletic/6623425/2025/09/13/white-sox-win-total-over-betting/
+
 **Brazil Keeps Telling Trump to Get Lost**\
 `Latin America’s largest nation is shaping up as a test case on how to defy President Trump.`\
 https://nytimes.com/2025/09/13/world/americas/brazil-trump-bolsonaro.html
