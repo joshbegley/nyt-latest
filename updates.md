@@ -1,3 +1,7 @@
+**Kings' Corey Perry out 6-8 weeks after knee surgery**\
+`Based on the timeline, Perry should make his Kings debut at the end of October or the start of November.`\
+https://nytimes.com/athletic/6626072/2025/09/13/kings-corey-perry-knee-surgery/
+
 **Brighton set to appoint Jason Ayto as sporting director after Weir exit**\
 `A former assistant and interim sporting director at Arsenal, Ayto left the Emirates Stadium this summer after 11 years at the club.`\
 https://nytimes.com/athletic/6466237/2025/09/13/brighton-sporting-director-ayto-arsenal/
