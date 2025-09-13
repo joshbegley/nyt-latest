@@ -1,3 +1,7 @@
+**The White Sox beat their win total. Where do they rank among disappointing Chicago teams?**\
+`The White Sox exceeded (very low) expectations and two of our Chicago writers examine where they fit in the Chicago-disappointment pantheon.`\
+https://nytimes.com/athletic/6623425/2025/09/13/white-sox-win-total-over-betting/
+
 **Brazil Keeps Telling Trump to Get Lost**\
 `Latin America’s largest nation is shaping up as a test case on how to defy President Trump.`\
 https://nytimes.com/2025/09/13/world/americas/brazil-trump-bolsonaro.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/13/arts/television/emmy-awards-watch-time-stream.htm
 **How Much More Chaotic Can This Flea Market Get?**\
 `Young buyers and sellers have started to change the character of a market known for drawing Ralph Lauren and Martha Stewart.`\
 https://nytimes.com/2025/09/13/style/brimfield-flea-market-vintage-scene.html
-
-**Accused of Failing to Halt Drug Trade, an Ally Braces for Trump’s Response**\
-`Millions in military and development funds for Colombia hang in the balance as Washington questions the country’s fight against cocaine.`\
-https://nytimes.com/2025/09/13/world/americas/trump-drug-war-cocaine-colombia.html
 
