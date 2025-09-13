@@ -1,3 +1,15 @@
+**How to watch Pirates at Nationals: Time, TV, streaming for September 14**\
+`Find out how to watch the Pittsburgh Pirates play the Washington Nationals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6626782/2025/09/13/pirates-vs-nationals-stream-how-to-watch-sept-14/
+
+**How to watch Tigers at Marlins: Time, TV, streaming for September 14**\
+`Find out how to watch the Detroit Tigers play the Miami Marlins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6626773/2025/09/13/tigers-vs-marlins-stream-how-to-watch-sept-14/
+
+**How to watch Rangers at Mets: Time, TV, streaming for September 14**\
+`Find out how to watch the Texas Rangers play the New York Mets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6626768/2025/09/13/rangers-vs-mets-stream-how-to-watch-sept-14/
+
 **Why the ACC's all-access replay review system could start a trend**\
 `The ACC has introduced a level of replay transparency that should become the norm across the country.`\
 https://nytimes.com/athletic/6626662/2025/09/13/acc-replay-review-officials-clemson-georgia-tech/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/13/style/chenoweth-blair-charlie-kirk-social-media.h
 **Cowboys' Tyler Smith is highest-paid NFL guard with 4-year, $96 million extension**\
 `The All-Pro and the Cowboys agree to a four-year, $96 million contract extension, making Smith the NFL's highest-paid guard.`\
 https://nytimes.com/athletic/6626601/2025/09/13/cowboys-tyler-smith-signs-extension/
-
-**In Some Records, Fed Governor Listed Atlanta Home as Secondary**\
-`The Trump administration has sought to block Lisa Cook from the Federal Reserve meeting on interest rates this coming week.`\
-https://nytimes.com/2025/09/13/business/lisa-cook-mortgage-fed-trump.html
-
-**College Football Playoff 2025 projections: The most likely bracket with Week 3 underway**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/09/13/college-football-playoff-bracket-projections-odds/
-
-**Grieving in Public, Erika Kirk Melds the Personal and Political**\
-`Ms. Kirk has played a key role in her husband’s movement. Speaking at Turning Point USA headquarters and on social media, she pledged his work would continue.`\
-https://nytimes.com/2025/09/13/style/erika-kirk-charlie-kirk-marriage.html
 

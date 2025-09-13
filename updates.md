@@ -1,3 +1,15 @@
+**How to watch Pirates at Nationals: Time, TV, streaming for September 14**\
+`Find out how to watch the Pittsburgh Pirates play the Washington Nationals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6626782/2025/09/13/pirates-vs-nationals-stream-how-to-watch-sept-14/
+
+**How to watch Tigers at Marlins: Time, TV, streaming for September 14**\
+`Find out how to watch the Detroit Tigers play the Miami Marlins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6626773/2025/09/13/tigers-vs-marlins-stream-how-to-watch-sept-14/
+
+**How to watch Rangers at Mets: Time, TV, streaming for September 14**\
+`Find out how to watch the Texas Rangers play the New York Mets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6626768/2025/09/13/rangers-vs-mets-stream-how-to-watch-sept-14/
+
 **Why the ACC's all-access replay review system could start a trend**\
 `The ACC has introduced a level of replay transparency that should become the norm across the country.`\
 https://nytimes.com/athletic/6626662/2025/09/13/acc-replay-review-officials-clemson-georgia-tech/
