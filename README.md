@@ -1,3 +1,11 @@
+**Far-Right Rally in London Draws Huge Crowd and a Counterprotest**\
+`The divisive anti-immigrant agitator Tommy Robinson organized what he said was a free-speech festival for his supporters.`\
+https://nytimes.com/2025/09/13/world/europe/britain-far-right-rally-robinson.html
+
+**Tigers' Tarik Skubal day-to-day after 'clean' test results**\
+`For now, there seems to be optimism around Skubal making his next start and avoiding an IL stint.`\
+https://nytimes.com/athletic/6626393/2025/09/13/detroit-tigers-tarik-skubal-injury/
+
 **The Briefing – West Ham 0 Tottenham 3: Bergvall's classy display, Tel as central striker, more set-piece expertise from Frank**\
 `Jack Pitt-Brooke analyses a comfortable Spurs win at London Stadium on Saturday evening`\
 https://nytimes.com/athletic/6625466/2025/09/13/west-ham-tottenham-hotspur-premier-league-result-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/13/nyregion/girl-struck-suv-queens.html
 **1976 Topps Walter Payton rookie card: Our sports card of the week**\
 `With the 40th anniversary of the Bears' 1985 Super Bowl win upon us, we look back at an iconic card of a standout on that team`\
 https://nytimes.com/athletic/6625960/2025/09/13/walter-payton-bears-rookie-card/
-
-**Patriots trading Ja’Lynn Polk to Saints for 2027 6th-round pick**\
-`The 2024 second-round pick is out for the season due to shoulder surgery.`\
-https://nytimes.com/athletic/6626204/2025/09/13/patriots-trade-saints-jalynn-polk-nfl-news/
-
-**Huijsen 'angry' after Madrid red card in victory at Real Sociedad - Alonso**\
-`Madrid played with a player less for almost an hour after the centre-back was shown a direct red card in the 32nd minute.`\
-https://nytimes.com/athletic/6626256/2025/09/13/huijsen-real-madrid-red-card-la-liga/
 
