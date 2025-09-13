@@ -1,3 +1,7 @@
+**MrBeast Awarded $15 Million to Film Reality Show in North Carolina**\
+`The money, which supported the second season of the extreme competition show “Beast Games,” represents nearly half of the state’s annual film and entertainment grants.`\
+https://nytimes.com/2025/09/13/arts/television/mr-beast-north-carolina.html
+
 **Mainoo talent 'not enough', must improve positional sense - Amorim**\
 `The 20-year-old informed the club of his desire to leave on loan in the summer transfer window to play regular first-team football.`\
 https://nytimes.com/athletic/6624365/2025/09/13/kobbie-mainoo-manchester-united-amorim/

@@ -1,3 +1,7 @@
+**MrBeast Awarded $15 Million to Film Reality Show in North Carolina**\
+`The money, which supported the second season of the extreme competition show “Beast Games,” represents nearly half of the state’s annual film and entertainment grants.`\
+https://nytimes.com/2025/09/13/arts/television/mr-beast-north-carolina.html
+
 **Mainoo talent 'not enough', must improve positional sense - Amorim**\
 `The 20-year-old informed the club of his desire to leave on loan in the summer transfer window to play regular first-team football.`\
 https://nytimes.com/athletic/6624365/2025/09/13/kobbie-mainoo-manchester-united-amorim/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6620263/2025/09/13/nfl-best-bets-week-2-packers/
 **Georgia Tech knocks off Clemson on walk-off 55-yard field goal**\
 `Clemson is 1-2 to start a season for the first time since 2014, and faces an uphill battle to meet Playoff expectations.`\
 https://nytimes.com/athletic/6626516/2025/09/13/georgia-tech-clemson-game-winning-field-goal/
-
-**Anthony Rizzo sits in Wrigley Field bleachers, lets home run bounce off his hand**\
-`The former Cubs first baseman supplied beers to fans in the bleachers and almost caught Moisés Ballesteros' first major-league homer.`\
-https://nytimes.com/athletic/6626454/2025/09/13/cubs-anthony-rizzo-wrigley-field-home-run/
 
