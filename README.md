@@ -1,3 +1,7 @@
+**The suspect was a member of the Mormon church at a young age.**\
+`By Ruth Graham and Lauren Jackson`\
+https://nytimes.com/live/2025/09/12/us/charlie-kirk-news-suspect/the-suspect-was-a-member-of-the-mormon-church-at-a-young-age
+
 **Minutes Before He Was Shot, Charlie Kirk Debated Religion**\
 `The New York Times examined video footage to better understand what was said during Mr. Kirk’s event at Utah Valley University.`\
 https://nytimes.com/2025/09/12/us/charlie-kirk-debate-utah-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6624654/2025/09/12/new-york-yankees-aaron-judge-hom
 **Hasan Piker on Charlie Kirk**\
 `The two men had very different politics. But as a fellow star of a new political media class, the left-wing streamer had a personal reaction to Mr. Kirk’s assassination.`\
 https://nytimes.com/2025/09/12/style/hasan-piker-charlie-kirk.html
-
-**A Palestinian Lives Near a Landfill After Fleeing Gaza City**\
-`Omar al-Far left Gaza City after Israel ordered the whole city to evacuate. He couldn’t afford rent, so he set up a tent next to a garbage dump near Nuseirat Camp.`\
-https://nytimes.com/video/world/middleeast/100000010395718/gaza-city-palestinian-displacement.html
 
