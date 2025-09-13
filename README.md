@@ -1,5 +1,5 @@
 **Brentford 2 Chelsea 2 - How did Cole Palmer change the game? What went wrong for Maresca?**\
-`A game-changing appearance off the bench from Cole Palmer and a fine strike from Moises Caicedo were not enough for Chelsea to reclaim top spot in the Premier League as they conceded from a late long throw to draw 2-2 away to Brentford.`\
+`Analysis of Chelsea's draw away to Brentford in the Premier League`\
 https://nytimes.com/athletic/6625469/2025/09/13/brentford-chelsea-cole-palmer-highlights/
 
 **What Does Posting About Charlie Kirk Really Say About You?**\
