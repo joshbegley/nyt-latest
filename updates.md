@@ -1,3 +1,7 @@
+**Completely at Ease**\
+`Alex Jiang makes a sparkling Times puzzle debut.`\
+https://nytimes.com/2025/09/12/crosswords/daily-puzzle-2025-09-13.html
+
 **The suspect was a member of the Mormon church at a young age.**\
 `By Ruth Graham and Lauren Jackson`\
 https://nytimes.com/live/2025/09/12/us/charlie-kirk-news-suspect/the-suspect-was-a-member-of-the-mormon-church-at-a-young-age
