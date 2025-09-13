@@ -1,3 +1,7 @@
+**Minutes Before He Was Shot, Charlie Kirk Discussed Religion**\
+`The New York Times examined video footage to better understand what was said during Mr. Kirk’s event at Utah Valley University.`\
+https://nytimes.com/2025/09/12/us/charlie-kirk-debate-utah-shooting.html
+
 **The 9.14.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/09/12/the-91425-issue
