@@ -1,3 +1,7 @@
+**The 9.14.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/09/12/the-91425-issue
+
 **Company That Bought Publishers Clearing House Won’t Pay Past Prize Winners**\
 `The announcement by ARB Interactive, which bought the company out of bankruptcy protection for $7.1 million in July, cast doubt on how much more money past winners will receive.`\
 https://nytimes.com/2025/09/12/business/pch-sweepstakes-bankruptcy-winners-unpaid.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010395718/gaza-city-palestinian
 **Bonnie Addario, 77, Dies; Survivor of Lung Cancer Made Fighting It a Cause**\
 `After climbing in the business world, she received a dire diagnosis, spurring her to found leading nonprofit groups to promote early detection and research.`\
 https://nytimes.com/2025/09/12/health/bonnie-addario-dead.html
-
-**FanDuel to pay Jaguars $5M after ex-employee's betting funds theft: Source**\
-`FanDuel will pay the Jaguars about $5 million to cover losses tied to an ex-Jacksonville employee who stole millions from the team to bet.`\
-https://nytimes.com/athletic/6624243/2025/09/12/fanduel-pay-jaguars-stolen-funds/
 
