@@ -1,3 +1,7 @@
+**Georgia Tech knocks off Clemson on walk-off 55-yard field goal**\
+`Clemson is 1-2 to start a season for the first time since 2014, and faces an uphill battle to meet Playoff expectations.`\
+https://nytimes.com/athletic/6626516/2025/09/13/georgia-tech-clemson-game-winning-field-goal/
+
 **Anthony Rizzo sits in Wrigley Field bleachers, lets home run bounce off his hand**\
 `The former Cubs first baseman supplied beers to fans in the bleachers and almost caught Moisés Ballesteros' first major-league homer.`\
 https://nytimes.com/athletic/6626454/2025/09/13/cubs-anthony-rizzo-wrigley-field-home-run/
