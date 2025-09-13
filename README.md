@@ -1,3 +1,7 @@
+**Tijjani Reijnders: From stacking shelves at Aldi to delivering the goods for Man City**\
+`Humble origins in Zwolle play a big part in Reijnders now making a name for himself in the Premier League under Pep Guardiola's management`\
+https://nytimes.com/athletic/6613081/2025/09/13/tijjani-reijnders-manchester-city-profile-background/
+
 **Best of the Rest XI: Picking the strongest team outside the 'Big Six'**\
 `Watkins or Strand Larsen? Guimaraes or Gibbs-White? And just who can go in goal…? These are our picks for players from the 'other 14'`\
 https://nytimes.com/athletic/6623288/2025/09/13/best-xi-outside-big-six-other-14/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6623237/2025/09/13/connections-sports-edition-hints
 **Corrections: Sept. 13, 2025**\
 `Corrections that appeared in print on Saturday, Sept. 13, 2025.`\
 https://nytimes.com/2025/09/13/pageoneplus/corrections-sept-13-2025.html
-
-**7.4-Magnitude Earthquake Strikes Russia’s Far East**\
-`Dangerous tsunami waves were possible at coastlines near the epicenter, according to the U.S. Tsunami Warning System.`\
-https://nytimes.com/2025/09/12/world/asia/russia-earthquake.html
 
