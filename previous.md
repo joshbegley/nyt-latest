@@ -1,3 +1,11 @@
+**How Law Enforcement Got the Man Suspected of Killing Charlie Kirk**\
+`F.B.I. leaders touted the immense federal deployment assigned to find the assassin. But their big break came with a single tip — from the suspect’s own family.`\
+https://nytimes.com/2025/09/12/us/charlie-kirk-law-enforcement-fbi-capture.html
+
+**Snitkers prep for what could be last father/son game as Reynaldo López gets healthy**\
+`To have a son in the same industry as a father is to have a son who can fully appreciate what dad has accomplished.`\
+https://nytimes.com/athletic/6624964/2025/09/12/astros-braves-father-son-snitkers-reynaldo-lopez-health/
+
 **Completely at Ease**\
 `Alex Jiang makes a sparkling Times puzzle debut.`\
 https://nytimes.com/2025/09/12/crosswords/daily-puzzle-2025-09-13.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6624746/2025/09/12/royals-vs-phillies-stream-how-to
 **How to watch Rays at Cubs: Time, TV, streaming for September 13**\
 `Find out how to watch the Tampa Bay Rays play the Chicago Cubs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6624745/2025/09/12/rays-vs-cubs-stream-how-to-watch-sept-13/
-
-**How to watch Pirates at Nationals: Time, TV, streaming for September 13**\
-`Find out how to watch the Pittsburgh Pirates play the Washington Nationals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6624739/2025/09/12/pirates-vs-nationals-stream-how-to-watch-sept-13/
-
-**Yankees' Aaron Judge passes Joe DiMaggio on franchise's all-time home run list**\
-`The only three hitters who have more home runs in a Yankees uniform are Babe Ruth (659), Mickey Mantle (536) and Lou Gehrig (493).`\
-https://nytimes.com/athletic/6624654/2025/09/12/new-york-yankees-aaron-judge-home-run-history/
 

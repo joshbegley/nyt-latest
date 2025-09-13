@@ -1,3 +1,11 @@
+**How Law Enforcement Got the Man Suspected of Killing Charlie Kirk**\
+`F.B.I. leaders touted the immense federal deployment assigned to find the assassin. But their big break came with a single tip — from the suspect’s own family.`\
+https://nytimes.com/2025/09/12/us/charlie-kirk-law-enforcement-fbi-capture.html
+
+**Snitkers prep for what could be last father/son game as Reynaldo López gets healthy**\
+`To have a son in the same industry as a father is to have a son who can fully appreciate what dad has accomplished.`\
+https://nytimes.com/athletic/6624964/2025/09/12/astros-braves-father-son-snitkers-reynaldo-lopez-health/
+
 **Completely at Ease**\
 `Alex Jiang makes a sparkling Times puzzle debut.`\
 https://nytimes.com/2025/09/12/crosswords/daily-puzzle-2025-09-13.html
