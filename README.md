@@ -1,3 +1,11 @@
+**Brentford 2 Chelsea 2 - How did Cole Palmer change the game? What went wrong for Maresca?**\
+`A game-changing appearance off the bench from Cole Palmer and a fine strike from Moises Caicedo were not enough for Chelsea to reclaim top spot in the Premier League as they conceded from a late long throw to draw 2-2 away to Brentford.`\
+https://nytimes.com/athletic/6625469/2025/09/13/brentford-chelsea-cole-palmer-highlights/
+
+**What Does Posting About Charlie Kirk Really Say About You?**\
+`After the assassination of the young conservative activist, some are receiving blowback for expressing sadness or sympathy online.`\
+https://nytimes.com/2025/09/13/style/chenoweth-blair-charlie-kirk-social-media.html
+
 **Cowboys' Tyler Smith is highest-paid NFL guard with 4-year, $96 million extension**\
 `The All-Pro and the Cowboys agree to a four-year, $96 million contract extension, making Smith the NFL's highest-paid guard.`\
 https://nytimes.com/athletic/6626601/2025/09/13/cowboys-tyler-smith-signs-extension/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6626454/2025/09/13/cubs-anthony-rizzo-wrigley-field
 **Nebraska dominates Houston Christian, setting up a pivotal visit from Michigan**\
 `Despite back-to-back blowout wins, the identity of Nebraska’s 2025 football team remains unknown.`\
 https://nytimes.com/athletic/6626022/2025/09/13/nebraska-houston-christian-score-result-takeaways/
-
-**Van Hollen Criticizes Democratic Leaders for Delay in Endorsing Mamdani**\
-`At an annual fund-raiser in Iowa, the Maryland Democrat said he supported Zohran Mamdani for mayor of New York City and said people were sick of “spineless politics.”`\
-https://nytimes.com/2025/09/13/us/politics/van-hollen-zohran-mamdani.html
-
-**Bryce Underwood, Michigan look ready for Big Ten play in rout of CMU**\
-`The Wolverines entered Saturday facing questions about how they would respond to the loss at Oklahoma and Sherrone Moore's suspension.`\
-https://nytimes.com/athletic/6626406/2025/09/13/michigan-football-central-michigan-takeaways/
 
