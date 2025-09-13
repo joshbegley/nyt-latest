@@ -1,3 +1,7 @@
+**What we’re hearing about Cubs: Fine-tuning rotation, bullpen ahead of playoffs**\
+`Chicago's magic number to clinch a wild-card spot in the National League playoffs was reduced to seven after Friday's 6-4 win over the Rays.`\
+https://nytimes.com/athletic/6624509/2025/09/12/cubs-playoffs-matthew-boyd-rays/
+
 **How to watch Royals at Phillies: Time, TV, streaming for September 13**\
 `Find out how to watch the Kansas City Royals play the Philadelphia Phillies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6624746/2025/09/12/royals-vs-phillies-stream-how-to-watch-sept-13/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6624243/2025/09/12/fanduel-pay-jaguars-stolen-funds
 **NFL explains decision to hold moment of silence for Charlie Kirk before TNF**\
 `The NFL said it was "the league's decision" to hold a moment of silence ahead of the TNF game. It is up to the clubs Sunday.`\
 https://nytimes.com/athletic/6624434/2025/09/12/nfl-decision-explanation-charlie-kirk-moment-of-silence/
-
-**Police Used Excessive Force in Fatal Shooting of Queens Man, Board Says**\
-`Win Rozario, 19, was having a mental health crisis when he called 911 seeking help. A police oversight board found that the officers who responded abused their authority.`\
-https://nytimes.com/2025/09/12/nyregion/win-rozario-shooting-nypd-excessive-force.html
 
