@@ -1,3 +1,7 @@
+**Reds watching the scoreboard, but not producing runs**\
+`Cincinnati leaves 11 runners stranded in shutout loss to A's.`\
+https://nytimes.com/athletic/6625217/2025/09/13/cincinnati-reds-brady-singer-lose/
+
 **Chiefs defense believes it'll be better Week 2. It started with an apology**\
 `The Chargers' pass game exposed the Chiefs in two specific areas. Will K.C. be able to fix things this week against the Philadelphia Eagles?`\
 https://nytimes.com/athletic/6623729/2025/09/13/chiefs-defense-apology-week-2-improvement/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6620713/2025/09/13/toronto-maple-leafs-2025-26-nhl-
 **Worth your time this weekend: 10 fascinating sports business reads**\
 `Some great sports-business reads, including the Eagles' front office, Shane Gillis' fandom and the women's soccer investment landscape.`\
 https://nytimes.com/athletic/6620275/2025/09/13/great-reads-sports-business-september-12/
-
-**Jacob deGrom, a revived Ranger, makes a winning return to Queens, and the Mets could use him**\
-`This start was special. deGrom’s parents were here, as well as his sisters, his wife and his children. `\
-https://nytimes.com/athletic/6625154/2025/09/13/mets-rangers-jacob-degrom-queens-return/
 
