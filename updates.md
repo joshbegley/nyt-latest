@@ -1,3 +1,11 @@
+**Rubio to Visit a Defiant Israel After Qatar Strike**\
+`The diplomat will consult with Israeli officials about their coming military offensive in Gaza City, as President Trump’s efforts to end the Gaza war appear stalled.`\
+https://nytimes.com/2025/09/13/us/politics/rubio-israel-natanyahu.html
+
+**Neymar will have 'no problems' making Brazil's WC squad if fit - Ancelotti**\
+`Neymar, 33, is Brazil's all-time leading goalscorer but has not appeared for his national team since October 2023.`\
+https://nytimes.com/athletic/6625839/2025/09/13/neymar-will-have-no-problems-making-brazils-world-cup-squad-if-fit-carlo-ancelotti-says/
+
 **Trump Says He Will Impose More Sanctions on Russia if NATO Does**\
 `It was the latest in a series of new conditions that President Trump had announced on punitive action against Russia for its war against Ukraine.`\
 https://nytimes.com/2025/09/13/us/politics/trump-sanctions-russia-ukraine.html

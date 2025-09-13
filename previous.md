@@ -1,3 +1,11 @@
+**Rubio to Visit a Defiant Israel After Qatar Strike**\
+`The diplomat will consult with Israeli officials about their coming military offensive in Gaza City, as President Trump’s efforts to end the Gaza war appear stalled.`\
+https://nytimes.com/2025/09/13/us/politics/rubio-israel-natanyahu.html
+
+**Neymar will have 'no problems' making Brazil's WC squad if fit - Ancelotti**\
+`Neymar, 33, is Brazil's all-time leading goalscorer but has not appeared for his national team since October 2023.`\
+https://nytimes.com/athletic/6625839/2025/09/13/neymar-will-have-no-problems-making-brazils-world-cup-squad-if-fit-carlo-ancelotti-says/
+
 **Trump Says He Will Impose More Sanctions on Russia if NATO Does**\
 `It was the latest in a series of new conditions that President Trump had announced on punitive action against Russia for its war against Ukraine.`\
 https://nytimes.com/2025/09/13/us/politics/trump-sanctions-russia-ukraine.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6625522/2025/09/13/patrick-bailey-giants-walkoff-ho
 **Russini: What I’m hearing on Tyreek Hill’s future, the 49ers’ injury bug and more**\
 `The latest on San Francisco's troubles, whether Miami is listening to calls on Tyreek Hill and why some in Pittsburgh are saying "told ya."`\
 https://nytimes.com/athletic/6624493/2025/09/13/nfl-rumors-news-49ers-injuries-tyreek-hill-chiefs/
-
-**Final day of Saint-Tropez SailGP canceled; Britain celebrates lucky win**\
-`The threat of thunderstorms and lightning led to the cancelation of SailGP's final day in Saint-Tropez`\
-https://nytimes.com/athletic/6625749/2025/09/13/sail-gp-saint-tropez-canceled-britain-wins/
-
-**Tanner Scott's latest blowup highlights Dodgers' glaring issues**\
-`The 31-year-old left-hander is sporting a 5.01 ERA and has allowed 11 home runs this season.`\
-https://nytimes.com/athletic/6625285/2025/09/13/dodgers-tanner-scott-struggles/
 

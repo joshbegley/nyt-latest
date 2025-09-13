@@ -1,3 +1,7 @@
+**Charlie Kirk Didn’t Shy Away From Who He Was. We Shouldn’t Either.**\
+`We can condemn his assassination without mythologizing him.`\
+https://nytimes.com/2025/09/13/opinion/charlie-kirk-assassination.html
+
 **Rubio to Visit a Defiant Israel After Qatar Strike**\
 `The diplomat will consult with Israeli officials about their coming military offensive in Gaza City, as President Trump’s efforts to end the Gaza war appear stalled.`\
 https://nytimes.com/2025/09/13/us/politics/rubio-israel-natanyahu.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6625845/2025/09/13/f1-carlos-sainz-williams-penalty
 **Stuff of Giants legends: Patrick Bailey's walk-off grand slam defeats Dodgers**\
 `The Giants now stand just a half-game behind the New York Mets for the final seat in the postseason banquet hall.`\
 https://nytimes.com/athletic/6625522/2025/09/13/patrick-bailey-giants-walkoff-homer-dodgers/
-
-**Russini: What I’m hearing on Tyreek Hill’s future, the 49ers’ injury bug and more**\
-`The latest on San Francisco's troubles, whether Miami is listening to calls on Tyreek Hill and why some in Pittsburgh are saying "told ya."`\
-https://nytimes.com/athletic/6624493/2025/09/13/nfl-rumors-news-49ers-injuries-tyreek-hill-chiefs/
 
