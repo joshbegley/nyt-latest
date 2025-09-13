@@ -1,3 +1,11 @@
+**The Briefing: Fulham 1 Leeds 0: Calvert-Lewin offers hope, Aaronson's surprise start, late heartache**\
+`Leeds were denied their first point on the road this season at Craven Cottage in cruel fashion - The Athletic analyses the action `\
+https://nytimes.com/athletic/6625461/2025/09/13/fulham-1-leeds-0-calvert-lewin-farke-aaronson/
+
+**Newcastle 1 Wolves 0 - How good was Woltemade's debut goal? Are Howe's side ready for Barcelona?**\
+`Analysis of Newcastle United's Premier League game at home to Wolves`\
+https://nytimes.com/athletic/6625464/2025/09/13/newcastle-wolves-woltemade-highlights/
+
 **Trump Escalates Attacks on Political Opponents After Charlie Kirk’s Killing**\
 `President Trump has promised to bring the killer to justice while using the moment to blame the left — and only the left — more broadly.`\
 https://nytimes.com/2025/09/13/us/politics/trump-kirk-political-opponents.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/13/dining/cocoa-krispies-treats-and-more-fun-recipes
 **Odegaard to have tests on shoulder injury, does not require surgery - Arteta**\
 `Odegaard came off after eight minutes when he landed awkwardly on his shoulder in the first half of their 3-0 win over Nottingham Forest.`\
 https://nytimes.com/athletic/6625919/2025/09/13/martin-odegaard-arsenal-injury-update/
-
-**At a Wildfire With a Notebook — and a Mask**\
-`A reporter’s questions pulled her into the subculture of wildland firefighting. Policy changes followed.`\
-https://nytimes.com/2025/09/13/reader-center/firefighters-masks-investigation.html
-
-**Calvin Klein Underwear as You’ve Never Seen It Before**\
-`In her second show for the brand, the designer Veronica Leoni takes on Y-fronts.`\
-https://nytimes.com/2025/09/13/style/calvin-klein-underwear-spring-2026.html
 
