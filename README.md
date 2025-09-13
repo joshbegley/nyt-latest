@@ -1,3 +1,7 @@
+**Who is running Manchester City now? Inside the new order at CFG**\
+`For over a decade, City's stability contrasted with the chaos of Manchester United's. But they are now experiencing their own upheaval`\
+https://nytimes.com/athletic/6619582/2025/09/13/manchester-city-football-group-cfg-inside/
+
 **Mirtle: 5 reasons for optimism for the Maple Leafs this season**\
 `Taking a glass-half-full approach by looking at some of the Leafs' positives entering the season and how they may impact their fortunes.`\
 https://nytimes.com/athletic/6620713/2025/09/13/toronto-maple-leafs-2025-26-nhl-season/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6624167/2025/09/13/notre-dame-marcus-freeman-fix-mi
 **Which season produces the best lineup of stars who played their final NHL game?**\
 `Which season produces the best six-man roster of players who played their last game that year?`\
 https://nytimes.com/athletic/6621101/2025/09/13/nhl-season-lineup-stars-final-game/
-
-**Flyers expect top prospect Oliver Bonk to quickly adjust as he finally turns pro**\
-`With Jett Luchanko still nursing a groin injury, Bonk is arguably the most prominent player skating in this week’s Flyers rookie camp.`\
-https://nytimes.com/athletic/6625036/2025/09/13/flyers-expect-top-prospect-oliver-bonk-to-quickly-adjust-as-he-finally-turns-pro/
 
