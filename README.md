@@ -1,40 +1,40 @@
-**Canelo Álvarez vs. Terence Crawford: What to watch for in Netflix fight**\
-`The preliminary card is scheduled to begin at 5:30 p.m. ET and the main card starts at 9 p.m. ET on Netflix.`\
-https://nytimes.com/athletic/6625246/2025/09/13/canelo-alvarez-terence-crawford-what-to-watch-netflix/
+**Focus Point**\
+`In this age of constant distraction, we could all stand to “lock in.”`\
+https://nytimes.com/2025/09/13/briefing/focus-point.html
 
-**Anthony Martial joins Monterrey from AEK Athens**\
-`The striker has signed a two-year contract at the Mexican club with the option of a further year after scoring nine goals for AEK Athens.`\
-https://nytimes.com/athletic/6619191/2025/09/13/anthony-martial-transfer-mexico-monterrey/
+**Vikings-Falcons predictions: What we're watching in 'Sunday Night Football' matchup**\
+`While J.J. McCarthy is expected to get a rousing ovation, Justin Jefferson versus A.J. Terrell and other storylines are worth following.`\
+https://nytimes.com/athletic/6624175/2025/09/13/vikings-falcons-predictions-sunday-night-football-week-2/
 
-**Nepal’s New Government Calls Elections. Its Critics Cry Foul.**\
-`Sushila Karki, a former Supreme Court chief justice who was appointed as interim leader, made speed a priority in a process that other jurists deem unconstitutional.`\
-https://nytimes.com/2025/09/13/world/asia/nepal-government-politics-election-protest.html
+**NFL Week 2 key storylines: Eagles-Chiefs rematch, Daniel Jones' resurgence, Bucs' ceiling**\
+`Aside from the Eagles-Chiefs rematch, the league is still buzzing over J.J. McCarthy, Daniel Jones and more heading into Week 2.`\
+https://nytimes.com/athletic/6623983/2025/09/13/nfl-week-2-preview-eagles-chiefs/
 
-**What Happened to Cameron Crowe? He Has Answers.**\
-`The writer-director made hit after hit movie, until he didn’t. But he doesn’t let it get him down.`\
-https://nytimes.com/2025/09/13/magazine/cameron-crowe-interview.html
+**Finding your "want time": How Olympic great Katie Ledecky thinks about goals and mentorship**\
+`Ledecky credits "good balance" and trust in her career, and emphasizes it with her mentees.`\
+https://nytimes.com/athletic/6617689/2025/09/13/katie-ledecky-olympics-goals-mentorship-lessons/
 
-**The White Sox beat their win total. Where do they rank among disappointing Chicago teams?**\
-`The White Sox exceeded (very low) expectations and two of our Chicago writers examine where they fit in the Chicago-disappointment pantheon.`\
-https://nytimes.com/athletic/6623425/2025/09/13/white-sox-win-total-over-betting/
+**The Canelo Álvarez-Terence Crawford megafight and boxing's takeover**\
+`The Netflix showcase of Canelo Álvarez vs. Terence Crawford came together largely because of Turki al-Sheikh and funding from Saudi Arabia.`\
+https://nytimes.com/athletic/6623557/2025/09/13/canelo-alvarez-terence-crawford-boxing-future/
 
-**Brazil Keeps Telling Trump to Get Lost**\
-`Latin America’s largest nation is shaping up as a test case on how to defy President Trump.`\
-https://nytimes.com/2025/09/13/world/americas/brazil-trump-bolsonaro.html
+**One reason to root for each team in the WNBA playoffs**\
+`An eventful summer gives way to the 2025 WNBA playoffs, loaded with likable players and eight teams all worthy of support. `\
+https://nytimes.com/athletic/6623437/2025/09/13/wnba-playoffs-teams-2025-preview-how-to-watch/
 
-**The Police Found Messages After Kirk’s Killing. What They Mean Is Unclear.**\
-`The messages relied on an enigmatic, coded communication style used by the habitually online.`\
-https://nytimes.com/2025/09/13/us/politics/tyler-robinson-messages-bullets-charlie-kirk.html
+**My Brother-in-Law Can’t Care for Himself. Do His Siblings Have to Bail Him Out?**\
+`He rarely communicates with the family, except when he’s in trouble.`\
+https://nytimes.com/2025/09/13/magazine/brother-cant-care-for-himself-siblings-bail-him-out-ethics.html
 
-**‘You Burned This Country Down’: After Arsons, Nepal Reckons With Its Future**\
-`The frenzy of arson that blazed nationwide this week as protests spread added to those suffering acute burns in a country where fires maim and kill with shocking regularity.`\
-https://nytimes.com/2025/09/13/world/asia/nepal-unrest-arson-burn-victims.html
+**Wordle Review No. 1,548**\
+`Scroll down for hints and conversation about the puzzle for Sept. 14, 2025.`\
+https://nytimes.com/2025/09/13/crosswords/wordle-review-1548.html
 
-**As Sabotage in Europe Mounts, So Do Calls to Retaliate Against Russia**\
-`Drones in Poland and GPS jamming attributed to Russia have intensified a debate over whether the West should impose stiffer penalties for such “hybrid warfare.”`\
-https://nytimes.com/2025/09/13/world/europe/russia-hybrid-attack-nato-penalties.html
+**In Toronto, a Spotlight on Canadian Films**\
+`The Toronto International Film Festival celebrates a big anniversary amid a trade war with the U.S. that has galvanized Canadians to support local filmmakers.`\
+https://nytimes.com/2025/09/13/world/canada/toronto-film-festival-canadian-movies.html
 
-**Extreme Heat Spurs New Laws Aimed at Protecting Workers Worldwide**\
-`Governments around the world are enacting measures to try to protect workers from the dangers of heat stress. They’re barely keeping up with the risks.`\
-https://nytimes.com/2025/09/13/climate/employee-heat-protection-laws.html
+**Strands Sidekick No. 560**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Sept. 14, 2025.`\
+https://nytimes.com/2025/09/13/crosswords/strands-sidekick-560.html
 
