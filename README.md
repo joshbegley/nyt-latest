@@ -1,3 +1,7 @@
+**Yamal injury 'very sad' after Spain selection with painkillers - Flick**\
+`The 18-year-old played 79 and 73 minutes in Spain's wins over Bulgaria and Turkey respectively in the international break.`\
+https://nytimes.com/athletic/6625620/2025/09/13/lamine-yamal-injury-barcelona/
+
 **Who is running Manchester City now? Inside the new order at CFG**\
 `For over a decade, City's stability contrasted with the chaos of Manchester United's. But they are now experiencing their own upheaval`\
 https://nytimes.com/athletic/6619582/2025/09/13/manchester-city-football-group-cfg-inside/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6623334/2025/09/13/blues-first-round-picks-playing-
 **Notre Dame's Miami mistakes lingered for weeks. Can it fix them vs. Texas A&M?**\
 `Saturday night is a chance for the Irish to show they're serious about making a return to the College Football Playoff.`\
 https://nytimes.com/athletic/6624167/2025/09/13/notre-dame-marcus-freeman-fix-mistakes-texas-am/
-
-**Which season produces the best lineup of stars who played their final NHL game?**\
-`Which season produces the best six-man roster of players who played their last game that year?`\
-https://nytimes.com/athletic/6621101/2025/09/13/nhl-season-lineup-stars-final-game/
 
