@@ -1,3 +1,7 @@
+**Calvin Klein Underwear as You’ve Never Seen It Before**\
+`In her second show for the brand, the designer Veronica Leoni takes on Y-fronts.`\
+https://nytimes.com/2025/09/13/style/calvin-klein-underwear-spring-2026.html
+
 **Sainz has Dutch GP penalty overturned after Williams appeal**\
 `It was determined that Sainz’s penalty for colliding with Racing Bulls driver Liam Lawson was unwarranted based on new evidence.`\
 https://nytimes.com/athletic/6625845/2025/09/13/f1-carlos-sainz-williams-penalty-appeal/
@@ -18,7 +22,7 @@ https://nytimes.com/athletic/6625749/2025/09/13/sail-gp-saint-tropez-canceled-br
 `The 31-year-old left-hander is sporting a 5.01 ERA and has allowed 11 home runs this season.`\
 https://nytimes.com/athletic/6625285/2025/09/13/dodgers-tanner-scott-struggles/
 
-**Ryan Crouser, in first meet in a year, wins third straight shot put world title**\
+**Ryan Crouser, in his first meet in a year, wins third straight shot put world title**\
 `Crouser, despite not competing since last September, continued his reign as king of shot put Saturday at the World Athletics Championships.`\
 https://nytimes.com/athletic/6623240/2025/09/13/ryan-crouser-world-athletics-championships-shot-put-gold-medal/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6625672/2025/09/13/chelsea-transfers-david-datro-fo
 **Reds watching the scoreboard, but not producing runs**\
 `Cincinnati leaves 11 runners stranded in shutout loss to A's.`\
 https://nytimes.com/athletic/6625217/2025/09/13/cincinnati-reds-brady-singer-lose/
-
-**Chiefs defense believes it'll be better Week 2. It started with an apology**\
-`The Chargers' pass game exposed the Chiefs in two specific areas. Will K.C. be able to fix things this week against the Philadelphia Eagles?`\
-https://nytimes.com/athletic/6623729/2025/09/13/chiefs-defense-apology-week-2-improvement/
 
