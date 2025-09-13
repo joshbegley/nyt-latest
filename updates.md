@@ -1,3 +1,7 @@
+**Chiefs' Xavier Worthy ruled out vs. Eagles: Which receivers will K.C. rely on?**\
+`Worthy being out Sunday is significant, as the Chiefs are already without Rashee Rice and are looking to avoid a 0-2 start.`\
+https://nytimes.com/athletic/6626339/2025/09/13/chiefs-xavier-worthy-status-eagles/
+
 **Wrestling Over Charlie Kirk’s Legacy and the Divide in America**\
 `Historians say the lessons of this particular time will depend on Americans themselves, and what kind of a nation they want it to be.`\
 https://nytimes.com/2025/09/13/us/politics/charlie-kirk-legacy-trump.html
