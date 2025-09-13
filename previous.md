@@ -1,3 +1,11 @@
+**Trump Says He Will Impose More Sanctions on Russia if NATO Does**\
+`It was the latest in a series of new conditions that President Trump had announced on punitive action against Russia for its war against Ukraine.`\
+https://nytimes.com/2025/09/13/us/politics/trump-sanctions-russia-ukraine.html
+
+**Cocoa. Krispies. Treats.**\
+`The key word here is “cocoa,” which adds its subtly smoky, bittersweet notes to the classic treat.`\
+https://nytimes.com/2025/09/13/dining/cocoa-krispies-treats-and-more-fun-recipes.html
+
 **Odegaard to have tests on shoulder injury, does not require surgery - Arteta**\
 `Odegaard came off after eight minutes when he landed awkwardly on his shoulder in the first half of their 3-0 win over Nottingham Forest.`\
 https://nytimes.com/athletic/6625919/2025/09/13/martin-odegaard-arsenal-injury-update/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6625749/2025/09/13/sail-gp-saint-tropez-canceled-br
 **Tanner Scott's latest blowup highlights Dodgers' glaring issues**\
 `The 31-year-old left-hander is sporting a 5.01 ERA and has allowed 11 home runs this season.`\
 https://nytimes.com/athletic/6625285/2025/09/13/dodgers-tanner-scott-struggles/
-
-**Ryan Crouser, in his first meet in a year, wins third straight shot put world title**\
-`Crouser, despite not competing since last September, continued his reign as king of shot put Saturday at the World Athletics Championships.`\
-https://nytimes.com/athletic/6623240/2025/09/13/ryan-crouser-world-athletics-championships-shot-put-gold-medal/
-
-**The Briefing – Arsenal 3 Nottingham Forest 0: Madueke and Eze shine, Zubimendi the goal machine, Rice rested**\
-`Art de Roché analyses the key moments from Arsenal's winning return to Premier League action`\
-https://nytimes.com/athletic/6625455/2025/09/13/arsenal-nottingham-forest-premier-league-result-analysis/
 

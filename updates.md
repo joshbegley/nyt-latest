@@ -1,3 +1,11 @@
+**Trump Says He Will Impose More Sanctions on Russia if NATO Does**\
+`It was the latest in a series of new conditions that President Trump had announced on punitive action against Russia for its war against Ukraine.`\
+https://nytimes.com/2025/09/13/us/politics/trump-sanctions-russia-ukraine.html
+
+**Cocoa. Krispies. Treats.**\
+`The key word here is “cocoa,” which adds its subtly smoky, bittersweet notes to the classic treat.`\
+https://nytimes.com/2025/09/13/dining/cocoa-krispies-treats-and-more-fun-recipes.html
+
 **Odegaard to have tests on shoulder injury, does not require surgery - Arteta**\
 `Odegaard came off after eight minutes when he landed awkwardly on his shoulder in the first half of their 3-0 win over Nottingham Forest.`\
 https://nytimes.com/athletic/6625919/2025/09/13/martin-odegaard-arsenal-injury-update/
