@@ -1,3 +1,7 @@
+**Dodgers place Will Smith on IL with right hand bone bruise**\
+`Manager Dave Roberts acknowledged that Smith's injury could affect him for the rest of the season.`\
+https://nytimes.com/athletic/6626700/2025/09/13/dodgers-will-smith-injury/
+
 **Maresca: Joao Pedro started Brentford match despite asking not to play**\
 `Joao Pedro led the line at the Gtech Community Stadium and provided an assist for Cole Palmer's goal to make it 1-1.`\
 https://nytimes.com/athletic/6626745/2025/09/13/chelsea-joao-pedro-update-maresca/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6624365/2025/09/13/kobbie-mainoo-manchester-united-
 **Brentford 2 Chelsea 2 - How did Cole Palmer change the game? What went wrong for Maresca?**\
 `Analysis of Chelsea's draw away at Brentford in the Premier League`\
 https://nytimes.com/athletic/6625469/2025/09/13/brentford-chelsea-cole-palmer-highlights/
-
-**What Does Posting About Charlie Kirk Really Say About You?**\
-`After the assassination of the young conservative activist, some are receiving blowback for expressing sadness or sympathy online.`\
-https://nytimes.com/2025/09/13/style/chenoweth-blair-charlie-kirk-social-media.html
 
