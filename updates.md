@@ -1,3 +1,7 @@
+**Company That Bought Publishers Clearing House Won’t Pay Past Prize Winners**\
+`The announcement by ARB Interactive, which bought the company out of bankruptcy protection for $7.1 million in July, cast doubt on how much more money past winners will receive.`\
+https://nytimes.com/2025/09/12/business/pch-sweepstakes-bankruptcy-winners-unpaid.html
+
 **What we’re hearing about Cubs: Fine-tuning rotation, bullpen ahead of playoffs**\
 `Chicago's magic number to clinch a wild-card spot in the National League playoffs was reduced to seven after Friday's 6-4 win over the Rays.`\
 https://nytimes.com/athletic/6624509/2025/09/12/cubs-playoffs-matthew-boyd-rays/

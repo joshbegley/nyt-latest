@@ -1,3 +1,7 @@
+**Company That Bought Publishers Clearing House Won’t Pay Past Prize Winners**\
+`The announcement by ARB Interactive, which bought the company out of bankruptcy protection for $7.1 million in July, cast doubt on how much more money past winners will receive.`\
+https://nytimes.com/2025/09/12/business/pch-sweepstakes-bankruptcy-winners-unpaid.html
+
 **What we’re hearing about Cubs: Fine-tuning rotation, bullpen ahead of playoffs**\
 `Chicago's magic number to clinch a wild-card spot in the National League playoffs was reduced to seven after Friday's 6-4 win over the Rays.`\
 https://nytimes.com/athletic/6624509/2025/09/12/cubs-playoffs-matthew-boyd-rays/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/12/health/bonnie-addario-dead.html
 **FanDuel to pay Jaguars $5M after ex-employee's betting funds theft: Source**\
 `FanDuel will pay the Jaguars about $5 million to cover losses tied to an ex-Jacksonville employee who stole millions from the team to bet.`\
 https://nytimes.com/athletic/6624243/2025/09/12/fanduel-pay-jaguars-stolen-funds/
-
-**NFL explains decision to hold moment of silence for Charlie Kirk before TNF**\
-`The NFL said it was "the league's decision" to hold a moment of silence ahead of the TNF game. It is up to the clubs Sunday.`\
-https://nytimes.com/athletic/6624434/2025/09/12/nfl-decision-explanation-charlie-kirk-moment-of-silence/
 
