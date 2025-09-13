@@ -1,3 +1,7 @@
+**Canelo Álvarez vs. Terence Crawford: What to watch for in Netflix fight**\
+`The preliminary card is scheduled to begin at 5:30 p.m. ET and the main card starts at 9 p.m. ET on Netflix.`\
+https://nytimes.com/athletic/6625246/2025/09/13/canelo-alvarez-terence-crawford-what-to-watch-netflix/
+
 **Anthony Martial joins Monterrey from AEK Athens**\
 `The striker has signed a two-year contract at the Mexican club with the option of a further year after scoring nine goals for AEK Athens.`\
 https://nytimes.com/athletic/6619191/2025/09/13/anthony-martial-transfer-mexico-monterrey/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/13/world/europe/russia-hybrid-attack-nato-penalties.
 **Extreme Heat Spurs New Laws Aimed at Protecting Workers Worldwide**\
 `Governments around the world are enacting measures to try to protect workers from the dangers of heat stress. They’re barely keeping up with the risks.`\
 https://nytimes.com/2025/09/13/climate/employee-heat-protection-laws.html
-
-**Kirk Assassination Puts America’s Political Spotlight on Campuses Again**\
-`Colleges are often the setting, and the target, of the nation’s most heated politics. Charlie Kirk’s work on campuses was one factor.`\
-https://nytimes.com/2025/09/13/us/charlie-kirk-college-campuses-american-political-battles.html
 

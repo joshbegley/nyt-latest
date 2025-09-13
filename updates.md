@@ -1,3 +1,7 @@
+**Canelo Álvarez vs. Terence Crawford: What to watch for in Netflix fight**\
+`The preliminary card is scheduled to begin at 5:30 p.m. ET and the main card starts at 9 p.m. ET on Netflix.`\
+https://nytimes.com/athletic/6625246/2025/09/13/canelo-alvarez-terence-crawford-what-to-watch-netflix/
+
 **Anthony Martial joins Monterrey from AEK Athens**\
 `The striker has signed a two-year contract at the Mexican club with the option of a further year after scoring nine goals for AEK Athens.`\
 https://nytimes.com/athletic/6619191/2025/09/13/anthony-martial-transfer-mexico-monterrey/
