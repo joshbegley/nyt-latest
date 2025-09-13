@@ -1,3 +1,7 @@
+**Charlie Kirk Didn’t Shy Away From Who He Was. We Shouldn’t Either.**\
+`We can condemn his assassination without mythologizing him.`\
+https://nytimes.com/2025/09/13/opinion/charlie-kirk-assassination.html
+
 **Rubio to Visit a Defiant Israel After Qatar Strike**\
 `The diplomat will consult with Israeli officials about their coming military offensive in Gaza City, as President Trump’s efforts to end the Gaza war appear stalled.`\
 https://nytimes.com/2025/09/13/us/politics/rubio-israel-natanyahu.html
