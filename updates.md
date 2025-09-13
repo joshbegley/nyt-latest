@@ -1,3 +1,7 @@
+**The 9.14.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/09/12/the-91425-issue
+
 **Company That Bought Publishers Clearing House Won’t Pay Past Prize Winners**\
 `The announcement by ARB Interactive, which bought the company out of bankruptcy protection for $7.1 million in July, cast doubt on how much more money past winners will receive.`\
 https://nytimes.com/2025/09/12/business/pch-sweepstakes-bankruptcy-winners-unpaid.html
