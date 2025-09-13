@@ -1,3 +1,7 @@
+**The Briefing – Arsenal 3 Nottingham Forest 0: Madueke and Eze shine, Zubimendi the goal machine, Rice rested**\
+`Art de Roché analyses the key moments from Arsenal's winning return to Premier League action `\
+https://nytimes.com/athletic/6625455/2025/09/13/arsenal-nottingham-forest-premier-league-result-analysis/
+
 **Chelsea's Datro Fofana joins Fatih Karagumruk on loan**\
 `Chelsea paid for a fee worth more than €10million (£8.4m; $11m) to sign Datro Fofana in January 2023 from Molde.`\
 https://nytimes.com/athletic/6625672/2025/09/13/chelsea-transfers-david-datro-fofana/

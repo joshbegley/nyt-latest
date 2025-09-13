@@ -1,3 +1,7 @@
+**The Briefing – Arsenal 3 Nottingham Forest 0: Madueke and Eze shine, Zubimendi the goal machine, Rice rested**\
+`Art de Roché analyses the key moments from Arsenal's winning return to Premier League action `\
+https://nytimes.com/athletic/6625455/2025/09/13/arsenal-nottingham-forest-premier-league-result-analysis/
+
 **Chelsea's Datro Fofana joins Fatih Karagumruk on loan**\
 `Chelsea paid for a fee worth more than €10million (£8.4m; $11m) to sign Datro Fofana in January 2023 from Molde.`\
 https://nytimes.com/athletic/6625672/2025/09/13/chelsea-transfers-david-datro-fofana/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6625620/2025/09/13/lamine-yamal-injury-barcelona/
 **Who is running Manchester City now? Inside the new order at CFG**\
 `For over a decade, City's stability contrasted with the chaos of Manchester United's. But they are now experiencing their own upheaval`\
 https://nytimes.com/athletic/6619582/2025/09/13/manchester-city-football-group-cfg-inside/
-
-**Mirtle: 5 reasons for optimism for the Maple Leafs this season**\
-`Taking a glass-half-full approach by looking at some of the Leafs' positives entering the season and how they may impact their fortunes.`\
-https://nytimes.com/athletic/6620713/2025/09/13/toronto-maple-leafs-2025-26-nhl-season/
 

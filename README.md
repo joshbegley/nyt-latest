@@ -1,5 +1,9 @@
+**Ryan Crouser, in first meet in a year, wins third straight shot put world title**\
+`Crouser, despite not competing since last September, continued his reign as king of shot put Saturday at the World Athletics Championships.`\
+https://nytimes.com/athletic/6623240/2025/09/13/ryan-crouser-world-athletics-championships-shot-put-gold-medal/
+
 **The Briefing – Arsenal 3 Nottingham Forest 0: Madueke and Eze shine, Zubimendi the goal machine, Rice rested**\
-`Art de Roché analyses the key moments from Arsenal's winning return to Premier League action `\
+`Art de Roché analyses the key moments from Arsenal's winning return to Premier League action`\
 https://nytimes.com/athletic/6625455/2025/09/13/arsenal-nottingham-forest-premier-league-result-analysis/
 
 **Chelsea's Datro Fofana joins Fatih Karagumruk on loan**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6624930/2025/09/13/a-new-reality-for-deion-sanders-
 **Yamal injury 'very sad' after Spain selection with painkillers - Flick**\
 `The 18-year-old played 79 and 73 minutes in Spain's wins over Bulgaria and Turkey respectively in the international break.`\
 https://nytimes.com/athletic/6625620/2025/09/13/lamine-yamal-injury-barcelona/
-
-**Who is running Manchester City now? Inside the new order at CFG**\
-`For over a decade, City's stability contrasted with the chaos of Manchester United's. But they are now experiencing their own upheaval`\
-https://nytimes.com/athletic/6619582/2025/09/13/manchester-city-football-group-cfg-inside/
 
