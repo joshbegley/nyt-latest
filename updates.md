@@ -1,3 +1,19 @@
+**Testing on Tarik Skubal’s left side could determine the fate of the Tigers’ season**\
+`Skubal left Friday's start with left side tightness, and the extent of his injury remains unclear. `\
+https://nytimes.com/athletic/6625045/2025/09/12/detroit-tigers-tarik-skubal-left-side-injury/
+
+**Vance Invokes Charlie Kirk in Midterms Push to G.O.P. Donors**\
+`Vice President JD Vance urged major contributors to win the 2026 midterms to honor Charlie Kirk, who was Mr. Vance’s close friend.`\
+https://nytimes.com/2025/09/12/us/politics/vance-charlie-kirk-republican-donors.html
+
+**Colorado QB Ryan Staub has dull showing in 36-20 loss to Houston**\
+`The 16-point win is Houston’s largest margin of victory in a Big 12 game since joining the conference in 2023.`\
+https://nytimes.com/athletic/6625080/2025/09/12/colorado-houston-college-football-results-analysis/
+
+**Can Walker Buehler pitch his way into an October role for Phillies?**\
+`Before Friday night's debut start with the Phillies, Buehler had a 5.42 ERA in his previous 187 2/3 regular-season innings.`\
+https://nytimes.com/athletic/6625040/2025/09/12/philadelphia-phillies-walker-buehler-october-audition/
+
 **How the Gunman Who Killed Charlie Kirk Got on Campus and Escaped**\
 `See how the gunman who shot and killed Charlie Kirk evaded detection for hours, climbed a roof amid a crowd and quickly escaped after the shooting.`\
 https://nytimes.com/interactive/2025/09/12/us/tyler-robinson-manhunt-timeline-kirk-suspect-caught.html
