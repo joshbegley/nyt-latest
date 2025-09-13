@@ -1,3 +1,11 @@
+**California’s $23 Billion Plan to Restore Federal Cuts to Scientific Research**\
+`Democrats are calling for the creation of a state equivalent of the National Institutes of Health, but first state lawmakers and then voters would need to approve it.`\
+https://nytimes.com/2025/09/13/us/california-scientific-research-bond.html
+
+**Three Liverpool puzzles facing Arne Slot**\
+`Szoboszlai's role, how to introduce Isak and rotation will all be on the head coach's mind as the Premier League returns`\
+https://nytimes.com/athletic/6623026/2025/09/13/arne-slot-liverpool-team-tactics/
+
 **Red Sox go flat against Yankees with playoff spots on the line**\
 `The AL race is open, making a lackluster 4-1 defeat all the more frustrating.`\
 https://nytimes.com/athletic/6625099/2025/09/13/red-sox-yankees-results-analysis/
