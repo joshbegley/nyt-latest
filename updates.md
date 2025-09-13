@@ -1,3 +1,7 @@
+**Tanner Scott's latest blowup highlights Dodgers' glaring bullpen issues**\
+`The 31-year-old left-hander is sporting a 5.01 ERA and has allowed 11 home runs this season.`\
+https://nytimes.com/athletic/6625285/2025/09/13/dodgers-tanner-scott-struggles/
+
 **Ryan Crouser, in first meet in a year, wins third straight shot put world title**\
 `Crouser, despite not competing since last September, continued his reign as king of shot put Saturday at the World Athletics Championships.`\
 https://nytimes.com/athletic/6623240/2025/09/13/ryan-crouser-world-athletics-championships-shot-put-gold-medal/
