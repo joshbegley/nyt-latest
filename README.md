@@ -1,3 +1,7 @@
+**Georgia Tech knocks off Clemson on walk-off 55-yard field goal**\
+`Clemson is 1-2 to start a season for the first time since 2014, and faces an uphill battle to meet Playoff expectations.`\
+https://nytimes.com/athletic/6626516/2025/09/13/georgia-tech-clemson-game-winning-field-goal/
+
 **Anthony Rizzo sits in Wrigley Field bleachers, lets home run bounce off his hand**\
 `The former Cubs first baseman supplied beers to fans in the bleachers and almost caught Moisés Ballesteros' first major-league homer.`\
 https://nytimes.com/athletic/6626454/2025/09/13/cubs-anthony-rizzo-wrigley-field-home-run/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6625466/2025/09/13/west-ham-tottenham-hotspur-premi
 **Mark Norell, Who Studied Link Between Dinosaurs and Birds, Dies at 68**\
 `His expeditions, including many to the Gobi Desert in Mongolia, yielded rare discoveries and led to exhibitions at the American Museum of Natural History.`\
 https://nytimes.com/2025/09/13/science/earth/mark-norell-dead.html
-
-**Chiefs' Xavier Worthy ruled out vs. Eagles: Which receivers will K.C. rely on?**\
-`Worthy being out Sunday is significant, as the Chiefs are already without Rashee Rice and are looking to avoid an 0-2 start.`\
-https://nytimes.com/athletic/6626339/2025/09/13/chiefs-xavier-worthy-status-eagles/
 

@@ -1,3 +1,7 @@
+**Anthony Rizzo sits in Wrigley Field bleachers, lets home run bounce off his hand**\
+`The former Cubs first baseman supplied beers to fans in the bleachers and almost caught Moisés Ballesteros' first major-league homer.`\
+https://nytimes.com/athletic/6626454/2025/09/13/cubs-anthony-rizzo-wrigley-field-home-run/
+
 **Far-Right Rally in London Draws Huge Crowd and a Counterprotest**\
 `The divisive anti-immigrant agitator Tommy Robinson organized what he said was a free-speech festival for his supporters.`\
 https://nytimes.com/2025/09/13/world/europe/london-far-right-rally-robinson.html
