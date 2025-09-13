@@ -1,3 +1,15 @@
+**Mirtle: 5 reasons for optimism for the Maple Leafs this season**\
+`Taking a glass-half-full approach by looking at some of the Leafs' positives entering the season and how they may impact their fortunes.`\
+https://nytimes.com/athletic/6620713/2025/09/13/toronto-maple-leafs-2025-26-nhl-season/
+
+**Worth your time this weekend: 10 fascinating sports business reads**\
+`Some great sports-business reads, including the Eagles' front office, Shane Gillis' fandom and the women's soccer investment landscape.`\
+https://nytimes.com/athletic/6620275/2025/09/13/great-reads-sports-business-september-12/
+
+**Jacob deGrom, a revived Ranger, makes a winning return to Queens, and the Mets could use him**\
+`This start was special. deGrom’s parents were here, as well as his sisters, his wife and his children. `\
+https://nytimes.com/athletic/6625154/2025/09/13/mets-rangers-jacob-degrom-queens-return/
+
 **How Packers took away Jayden Daniels' legs in dominant defensive performance**\
 `Daniels registered the second-lowest rushing total and second-lowest yards per carry total of his young career in Green Bay on Thursday.`\
 https://nytimes.com/athletic/6624213/2025/09/13/packers-defense-jayden-daniels-micah-parsons/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6621101/2025/09/13/nhl-season-lineup-stars-final-ga
 **Flyers expect top prospect Oliver Bonk to quickly adjust as he finally turns pro**\
 `With Jett Luchanko still nursing a groin injury, Bonk is arguably the most prominent player skating in this week’s Flyers rookie camp.`\
 https://nytimes.com/athletic/6625036/2025/09/13/flyers-expect-top-prospect-oliver-bonk-to-quickly-adjust-as-he-finally-turns-pro/
-
-**The Flood of Moment-of-Death Videos Is Killing Us**\
-`Social media is turning tragic events into snuff films.`\
-https://nytimes.com/2025/09/13/opinion/the-flood-of-moment-of-death-videos-is-killing-us.html
-
-**He left his mid-major school for Indiana. Then he donated six figures back**\
-`Lamar Wilkerson credited Sam Houston for his development, and donated a portion of his NIL earnings back to his old school.`\
-https://nytimes.com/athletic/6624461/2025/09/13/lamar-wilkerson-indiana-sam-houston-donation-basketball/
-
-**I Was Supposed to Debate Charlie Kirk. Here’s What I Would Have Said.**\
-`His tragic shooting death tells us something about America’s culture of violence.`\
-https://nytimes.com/2025/09/13/opinion/charlie-kirk-debate-violence.html
 
