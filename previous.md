@@ -1,3 +1,7 @@
+**Patriots vs. Dolphins: 5 takeaways from New England's wild victory**\
+`Drake Maye and the Patriots held off Miami in a game that featured wild swings, huge special teams plays and a startling lack of defense.`\
+https://nytimes.com/athletic/6628271/2025/09/14/patriots-dolphins-score-result-takeaways-nfl/
+
 **Bills vs. Jets: 4 takeaways from Buffalo's dominant win over New York**\
 `James Cook had two rushing touchdowns and Buffalo's defense throttled the Jets.`\
 https://nytimes.com/athletic/6628667/2025/09/14/bills-jets-score-result-takeaways-nfl/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/14/us/politics/trump-lisa-cook-fed.html
 **Amorim 'suffering more' than Manchester United fans after derby defeat**\
 `Amorim again suggested that the club's hierarchy would need to sack him if they want to see a shift in tactical approach`\
 https://nytimes.com/athletic/6628702/2025/09/14/ruben-amorim-manchester-united-city-fans/
-
-**Florida Woman Fights Off Alligator to Save Her Puppy**\
-`Danie Wright was walking her Shih Tzu near a creek behind her home in Land O’Lakes, Fla., on Wednesday when an alligator attacked them.`\
-https://nytimes.com/2025/09/14/us/alligator-attack-florida.html
 

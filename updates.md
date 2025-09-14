@@ -1,3 +1,7 @@
+**Patriots vs. Dolphins: 5 takeaways from New England's wild victory**\
+`Drake Maye and the Patriots held off Miami in a game that featured wild swings, huge special teams plays and a startling lack of defense.`\
+https://nytimes.com/athletic/6628271/2025/09/14/patriots-dolphins-score-result-takeaways-nfl/
+
 **Bills vs. Jets: 4 takeaways from Buffalo's dominant win over New York**\
 `James Cook had two rushing touchdowns and Buffalo's defense throttled the Jets.`\
 https://nytimes.com/athletic/6628667/2025/09/14/bills-jets-score-result-takeaways-nfl/
