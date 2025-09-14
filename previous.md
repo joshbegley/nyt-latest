@@ -1,3 +1,11 @@
+**Why Chiefs-Eagles TV coverage was delayed by Cowboys-Giants overtime**\
+`The long overtime in Dallas forced some viewers to miss the first 10-plus minutes of the highly anticipated Super Bowl rematch.`\
+https://nytimes.com/athletic/6628960/2025/09/14/kansas-city-chiefs-philadelphia-eagles-coverage/
+
+**UCLA's DeShaun Foster isn't an anomaly — 40 coaches haven't made it past Year 2 since 2000**\
+`Several were dismissed for off-the-field issues, but most were canned simply for not winning enough games. `\
+https://nytimes.com/athletic/6628985/2025/09/14/ucla-deshaun-foster-coaches-fired-two-years/
+
 **What Malnutrition Has Done to Gaza’s Children**\
 `The enclave is experiencing some of the highest levels of malnutrition since the fighting began. Even children who recover will carry the physical consequences for the rest of their lives.`\
 https://nytimes.com/2025/09/14/briefing/malnutrition-gaza-nepal-charlie-kirk-romania.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6629080/2025/09/14/fever-vs-dream-stream-how-to-wat
 **How to watch Liberty at Mercury: Game 1 Time, TV, streaming**\
 `Find out how to watch the New York Liberty play the Phoenix Mercury, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6629078/2025/09/14/liberty-vs-mercury-stream-how-to-watch-sept-14/
-
-**How to watch Storm at Aces: Game 1 Time, TV, streaming**\
-`Find out how to watch the Seattle Storm play the Las Vegas Aces, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6629076/2025/09/14/storm-vs-aces-stream-how-to-watch-sept-14/
-
-**Cowboys are signing Jadeveon Clowney, Jerry Jones says after wild victory**\
-`Looking for pass-rush help after not getting much in their first two games and trading Micah Parsons, the Cowboys are adding Clowney.`\
-https://nytimes.com/athletic/6616474/2025/09/14/cowboys-jadeveon-clowney-signing/
 
