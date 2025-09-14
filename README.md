@@ -1,3 +1,7 @@
+**Barcelona's Raphinha dropped by Flick due to lateness**\
+`Club sources indicated Raphinha was late to a pre-game muscle activation session on Sunday morning.`\
+https://nytimes.com/athletic/6628689/2025/09/14/barcelonas-raphinha-late-valencia/
+
 **Explained: Why Brighton hired Jason Ayto, let David Weir go, and how it fits their '2030 vision'**\
 `The impending arrival of Ayto is further indication of Brighton's desire to keep moving forward and finding ways to gain a competitive edge`\
 https://nytimes.com/athletic/6622658/2025/09/14/jason-ayto-brighton-david-weir/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/14/world/europe/pope-leo-ukraine-peace.html
 **Dolphins defense gets first stop of season, with some help from the clock**\
 `Miami's opponents had scored on all 10 possessions this season before Patriots opt to run out the clock just before the half on Sunday.`\
 https://nytimes.com/athletic/6628418/2025/09/14/dolphins-defense-struggles-season/
-
-**Giants bench LT James Hudson after historically bad opening drive**\
-`Hudson cost the Giants 40 yards in penalties during their opening possession. `\
-https://nytimes.com/athletic/6628408/2025/09/14/ny-giants-james-hudson-penalties-cowboys/
 
