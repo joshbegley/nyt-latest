@@ -1,3 +1,11 @@
+**Europe VC Noren wins Wentworth playoff - how did Ryder Cup players perform?**\
+`It was Noren’s 12th win on the DP World Tour in his 307th appearance - the European team flies out on Sunday evening.`\
+https://nytimes.com/athletic/6628092/2025/09/14/bmw-pga-championship-alex-noren/
+
+**Burnley 0 Liverpool 1: How many late winners have Slot's side had this season?**\
+`Our writer discusses the talking points after Liverpool stoppage-time win at Turf Moor.`\
+https://nytimes.com/athletic/6625471/2025/09/14/liverpool-burnley-kerkez-isak-salah/
+
 **Burnley 0 Liverpool 1: How many late winners have Liverpool had this season?**\
 `Our writer discusses the talking points after Liverpool stoppage-time win at Turf Moor.`\
 https://nytimes.com/athletic/6625471/2025/09/14/liverpool-burnley-kerkez-isak-salah/
