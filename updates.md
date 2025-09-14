@@ -1,3 +1,11 @@
+**What happened at the end of the first half in the Lions' win over the Bears?**\
+`The Bears were running to the locker room down only seven points at the half, but a reversal by officials `\
+https://nytimes.com/athletic/6629243/2025/09/14/bears-lions-end-of-half-confusion/
+
+**Shohei Ohtani, agent file motion to dismiss Hawaii development lawsuit**\
+`The plaintiffs' lawsuit alleged that Ohtani's agent conducted a “a calculated and unlawful scheme” to interfere with the development.`\
+https://nytimes.com/athletic/6629265/2025/09/14/shohei-ohtani-agent-lawsuit-hawaii-development/
+
 **Seahawks hijack 'Renegade' to put Steelers away in Pittsburgh: 'That's our song'**\
 `The Seahawks dominated in the second half and stole the energy from Pittsburgh's famous Terrible Towels to continue their road success.`\
 https://nytimes.com/athletic/6629108/2025/09/14/seahawks-steelers-renegade-darnold-dk-metcalf/

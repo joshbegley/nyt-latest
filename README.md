@@ -1,3 +1,11 @@
+**Emmys Security Will Be Elevated After Shooting of Charlie Kirk**\
+`Officials have said that they re-examined their security plans after the assassination of the right-wing influencer last week.`\
+https://nytimes.com/2025/09/14/arts/television/emmys-security-charlie-kirk.html
+
+**Kathy Hochul: Why I Am Endorsing Zohran Mamdani**\
+`I am confident that Zohran Mamdani has the courage, urgency, and optimism New York City needs to lead it through the challenges of this moment.`\
+https://nytimes.com/2025/09/14/opinion/hochul-endorsement-mamdani.html
+
 **What happened at the end of the first half in the Lions' win over the Bears?**\
 `The Bears were running to the locker room down only seven points at the half, but a reversal by officials `\
 https://nytimes.com/athletic/6629243/2025/09/14/bears-lions-end-of-half-confusion/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/14/arts/television/emmy-winners-list.html
 **‘The Studio’ leads with most wins after the Creative Arts Emmys.**\
 `The biggest awards come later on Sunday, but the Emmys leaderboard is already up and running.`\
 https://nytimes.com/live/2025/09/14/arts/emmy-awards/creative-arts-emmys-the-studio-the-penguin
-
-**Moment of frustration with Trevor Lawrence 'not personal,' says Jags coach**\
-`Relationship between Jacksonville QB and his first-year head coach under scrutiny.`\
-https://nytimes.com/athletic/6629081/2025/09/14/trevor-lawrence-liam-coen-fight-argument/
-
-**The Corporation for Public Broadcasting Received a Special, and Bittersweet, Award**\
-`The organization, which plans to close after President Trump rescinded more than $1 billion earmarked for public broadcasting, was given the Television Academy’s Governors Award.`\
-https://nytimes.com/2025/09/14/arts/television/public-broadcasting-emmy.html
 
