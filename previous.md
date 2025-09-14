@@ -1,4 +1,12 @@
-**After Yankees' team bonding, a realization was had: 'We're coming to step on necks'**\
+**Red Sox playoff chances take hit after back-to-back losses to Yankees**\
+`The Red Sox's 5-3 loss dropped them 2 1/2 games behind the Yankees for the top AL wild-card spot, with 13 regular-season games remaining.`\
+https://nytimes.com/athletic/6627022/2025/09/13/red-sox-yankees-wild-card-playoff-race/
+
+**Messi misses 'panenka' pen in Miami defeat as Toklomati grabs hattrick**\
+`Lionel Messi was left embarrassed after he fluffed his &#8216;panenka&#8217;  penalty attempt and then saw his Inter Miami team fall to a 3-0 defeat at in-form Charlotte on Saturday with Israeli striker Idan Toklomati scoring a hat-trick for the home side.`\
+https://nytimes.com/athletic/6627114/2025/09/13/messi-misses-panenka-pen-in-miami-defeat-as-toklomati-claims-hattrick/
+
+**After Yankees' team bonding, a realization: 'We're coming to step on necks'**\
 `The Yankees wanted to make a statement in Boston. They now have a 2 1/2 game lead over their rival for the top wild-card spot.`\
 https://nytimes.com/athletic/6626952/2025/09/13/yankees-team-bonding-red-sox/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6627034/2025/09/13/astros-vs-braves-stream-how-to-w
 **How to watch Rays at Cubs: Time, TV, streaming for September 14**\
 `Find out how to watch the Tampa Bay Rays play the Chicago Cubs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6627032/2025/09/13/rays-vs-cubs-stream-how-to-watch-sept-14/
-
-**How to watch Diamondbacks at Twins: Time, TV, streaming for September 14**\
-`Find out how to watch the Arizona Diamondbacks play the Minnesota Twins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6627029/2025/09/13/diamondbacks-vs-twins-stream-how-to-watch-sept-14/
-
-**Brewers clinch MLB's first postseason spot thanks to Mets' eighth straight loss**\
-`The Brewers clinched a playoff berth after the Rangers defeated the Mets on Saturday.`\
-https://nytimes.com/athletic/6626923/2025/09/13/brewers-postseason-berth-mets-losing-streak/
 
