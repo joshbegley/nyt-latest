@@ -1,3 +1,11 @@
+**NFL Week 2 takeaways: Bears flail, Dolphins stumble, Cowboys somehow come through**\
+`In addition to analyzing a pair of giant disappointments, our writers also weigh in on impressive Week 2 wins engineered by backup QBs.`\
+https://nytimes.com/athletic/6628048/2025/09/14/nfl-results-scores-week-2-games-today/
+
+**Emmy Awards Live Updates: The Red Carpet Draws Stars of the Small Screen Gather**\
+`“Severance” and “The Pitt” are competing for best drama, and “The Studio” and “Hacks” for best comedy. Nate Bargatze will host the ceremony.`\
+https://nytimes.com/live/2025/09/14/arts/emmy-awards
+
 **Moment of frustration with Trevor Lawrence 'not personal,' says Jags coach**\
 `Relationship between Jacksonville QB and his first-year head coach under scrutiny.`\
 https://nytimes.com/athletic/6629081/2025/09/14/jacksonville-jaguars-trevor-lawrence-liam-coen-interaction/
