@@ -1,3 +1,7 @@
+**FA launches probe after FA Cup tie abandoned due to alleged racial abuse**\
+`The tie between National League North side Hereford and Sporting Khalsa, who play in the eighth tier, was abandoned on 67 minutes.`\
+https://nytimes.com/athletic/6627576/2025/09/14/football-racist-abuse-fa-cup-hereford-sporting-khalsa/
+
 **Austin Martin finds 'mental freedom' in Twins' aggressive base-running style**\
 `Since making a critical mistake on the bases on Aug. 26, Martin has hit .383/.517/.489 in 60 plate appearances with Minnesota.`\
 https://nytimes.com/athletic/6626618/2025/09/14/austin-martin-twins-aggressive-baserunning/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6620411/2025/09/14/nfl-week-2-storylines-super-bowl
 **The numbers are grisly for Billy Napier after another troubling loss to a rival**\
 `The problem is the offense. Napier’s offense. The offense he leads after refusing to hire a play caller this offseason.`\
 https://nytimes.com/athletic/6627428/2025/09/14/billy-napier-florida-coach-buyout/
-
-**Gunner Stockton’s breakout game raises the hopes — and ceiling — for Georgia**\
-`Stockton and the offense were the revelation in Saturday's win over Tennessee, after so many questions about both in the offseason.`\
-https://nytimes.com/athletic/6627088/2025/09/14/georgia-gunner-stockton-tennessee-performance/
 
