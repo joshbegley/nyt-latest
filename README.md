@@ -1,3 +1,7 @@
+**Amorim 'suffering more' than Manchester United fans after derby defeat**\
+`Amorim again suggested that the club's hierarchy would need to sack him if they want to see a shift in tactical approach`\
+https://nytimes.com/athletic/6628702/2025/09/14/ruben-amorim-manchester-united-city-fans/
+
 **Florida Woman Fights Off Alligator to Save Her Puppy**\
 `Danie Wright was walking her Shih Tzu near a creek behind her home in Land O’Lakes, Fla., on Wednesday when an alligator attacked them.`\
 https://nytimes.com/2025/09/14/us/alligator-attack-florida.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6628440/2025/09/14/travis-kelce-taylor-swift-engage
 **AP Top 25: Notre Dame still ranked at 0-2; Texas A&M up to No. 10**\
 `Ohio State, Penn State and LSU remain the top three in the AP Top 25 college football rankings, followed by Miami, Georgia and Oregon.`\
 https://nytimes.com/athletic/6628215/2025/09/14/ap-top-25-college-football-rankings-notre-dame/
-
-**Pope Leo Says He Cannot Broker a Peace Deal for Ukraine**\
-`Pope Leo XIV said that while popes can be advocates for peace, it was less “realistic” for them to serve as mediators.`\
-https://nytimes.com/2025/09/14/world/europe/pope-leo-ukraine-peace.html
 

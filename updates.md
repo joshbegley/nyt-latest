@@ -1,3 +1,15 @@
+**Florida Woman Fights Off Alligator to Save Her Puppy**\
+`Danie Wright was walking her Shih Tzu near a creek behind her home in Land O’Lakes, Fla., on Wednesday when an alligator attacked them.`\
+https://nytimes.com/2025/09/14/us/alligator-attack-florida.html
+
+**Bears cornerback Jaylon Johnson ruled out vs. Lions with groin injury**\
+`Johnson missed all of training camp and the season opener due to a groin injury and made his return Sunday in Detroit.`\
+https://nytimes.com/athletic/6628547/2025/09/14/bears-lions-jaylon-johnson-groin-injury/
+
+**Bengals' Joe Burrow suffers toe injury, ruled out vs. Jaguars**\
+`Burrow was sacked by Jaguars defender Arik Armstead with 9:02 to play in the first half, and remained on the ground.`\
+https://nytimes.com/athletic/6628370/2025/09/14/joe-burrow-injury-jaguars-bengals-score-result-takeaways-nfl/
+
 **Barcelona's Raphinha dropped by Flick due to lateness**\
 `Club sources indicated Raphinha was late to a pre-game muscle activation session on Sunday morning.`\
 https://nytimes.com/athletic/6628689/2025/09/14/barcelonas-raphinha-late-valencia/
