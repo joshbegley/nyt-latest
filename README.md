@@ -1,3 +1,7 @@
+**Mets likely moving Sean Manaea to bullpen temporarily as losing streak continues**\
+`The lefty, who signed a three-year, $75 million contract after a strong season for New York in 2024, has a 5.76 ERA over 50 innings.`\
+https://nytimes.com/athletic/6628262/2025/09/14/mets-sean-manaea-bullpen/
+
 **White House Seeks More Supreme Court Security Funding After Kirk Killing**\
 `In a notice to Congress, the Trump administration said the additional $58 million would go to the U.S. Marshals Service. It also said it supported additional security for lawmakers.`\
 https://nytimes.com/2025/09/14/us/politics/trump-security-supreme-court-congress.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6625471/2025/09/14/liverpool-burnley-kerkez-isak-sa
 **A Quick Shrimp Dinner for Long, Stumping Sundays**\
 `Sometimes the weekend calls for a fast, easy supper, and for that supper you’ll want this pili pili shrimp with braised white beans.`\
 https://nytimes.com/2025/09/14/dining/a-quick-shrimp-dinner-for-long-stumping-sundays.html
-
-**Would-Be Bomber Is Imprisoned Again After Donating to Co-Conspirators**\
-`Najibullah Zazi admitted plotting an attack on the New York City subway with two friends, and then testified against them. Now he is behind bars after putting money in their prison accounts.`\
-https://nytimes.com/2025/09/14/nyregion/zazi-terrorism-detention.html
 
