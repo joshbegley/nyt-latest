@@ -1,3 +1,19 @@
+**Burnley 0 Liverpool 1: Late Salah penalty seals win as Slot's side again find a way**\
+`Our writer discusses the talking points after Liverpool stoppage-time win at Turf Moor.`\
+https://nytimes.com/athletic/6625471/2025/09/14/liverpool-burnley-kerkez-isak-salah/
+
+**A Quick Shrimp Dinner for Long, Stumping Sundays**\
+`Sometimes the weekend calls for a fast, easy supper, and for that supper you’ll want this pili pili shrimp with braised white beans.`\
+https://nytimes.com/2025/09/14/dining/a-quick-shrimp-dinner-for-long-stumping-sundays.html
+
+**Would-Be Bomber Is Imprisoned Again After Donating to Co-Conspirators**\
+`Najibullah Zazi admitted plotting an attack on the New York City subway with two friends, and then testified against them. Now he is behind bars after putting money in their prison accounts.`\
+https://nytimes.com/2025/09/14/nyregion/zazi-terrorism-detention.html
+
+**Rubio arrives in Israel and meets Netanyahu at Jerusalem’s Western Wall.**\
+`By Michael Crowley`\
+https://nytimes.com/live/2025/09/14/us/trump-news/rubio-arrives-in-israel-and-meets-netanyahu-at-jerusalems-western-wall
+
 **After Fiery Protests, Nepal’s Leader Promises a Brief, Caretaker Term**\
 `Prime Minister Sushila Karki, a former chief justice, said she had accepted her new role reluctantly. Major political parties say the process is unconstitutional.`\
 https://nytimes.com/2025/09/14/world/asia/nepal-prime-minister-promises.html
