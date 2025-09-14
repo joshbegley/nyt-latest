@@ -1,3 +1,23 @@
+**Aaron Rodgers ties Brett Favre for fourth all-time in passing touchdowns**\
+`Rodgers now trails only Tom Brady, Peyton Manning and Drew Brees on the all-time list.`\
+https://nytimes.com/athletic/6628240/2025/09/14/aaron-rodgers-brett-favre-passing-td-all-time-list/
+
+**Travis Kelce on his proposal to Taylor Swift: 'Palms were definitely sweating'**\
+`Kelce spoke to Fox's Erin Andrews ahead of the Chiefs' rematch with the Eagles. Andrews helped encourage Swift to go on a date with Kelce.`\
+https://nytimes.com/athletic/6628440/2025/09/14/travis-kelce-taylor-swift-engagement-erin-andrews/
+
+**AP Top 25: Notre Dame still ranked at 0-2; Texas A&M up to No. 10**\
+`Ohio State, Penn State and LSU remain the top three in the AP Top 25 college football rankings, followed by Miami, Georgia and Oregon.`\
+https://nytimes.com/athletic/6628215/2025/09/14/ap-top-25-college-football-rankings-notre-dame/
+
+**Pope Leo Says He Cannot Broker a Peace Deal for Ukraine**\
+`Pope Leo XIV said that while popes can be advocates for peace, it was less “realistic” for them to serve as mediators.`\
+https://nytimes.com/2025/09/14/world/europe/pope-leo-ukraine-peace.html
+
+**No 'D' in Dolphins: Miami's foes have scored on all 10 drives this season**\
+`After Colts go 7-for-7 against Miami defense in Week 1, Patriots score on first three possessions on Sunday.`\
+https://nytimes.com/athletic/6628418/2025/09/14/dolphins-defense-struggles-season/
+
 **Giants bench LT James Hudson after historically bad opening drive**\
 `Hudson cost the Giants 40 yards in penalties during their opening possession. `\
 https://nytimes.com/athletic/6628408/2025/09/14/ny-giants-james-hudson-penalties-cowboys/
