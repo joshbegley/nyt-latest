@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Monday, Sep. 15, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/09/14/todays-new-york-times-international-edition
+
 **How to watch Cardinals at Brewers: Time, TV, streaming for September 14**\
 `Find out how to watch the St. Louis Cardinals play the Milwaukee Brewers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6627612/2025/09/14/cardinals-vs-brewers-stream-how-to-watch-sept-14/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/14/business/us-china-trade-tiktok-negotiations.html
 **After a Landmark Election, a Disillusioned Malawi Returns to the Polls**\
 `The decision by the country’s top court to overturn the last presidential race was hailed as a victory for democracy. But there are fears corruption will taint the vote on Tuesday.`\
 https://nytimes.com/2025/09/14/world/africa/after-a-landmark-election-a-disillusioned-malawi-returns-to-the-polls.html
-
-**Getting Fired Gets You Into This Cool Girls’ Club**\
-`In a new book, two longtime fashion editors — along with Oprah Winfrey, Jamie Lee Curtis and Katie Couric — open up about times they got canned.`\
-https://nytimes.com/2025/09/14/style/cool-girls-get-fired-book.html
 
