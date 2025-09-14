@@ -1,3 +1,7 @@
+**Dennis Schröder, Germany win EuroBasket gold over Turkey; Giannis, Greece take 3rd**\
+`Germany survived a close matchup against Turkey to earn its first EuroBasket gold medal since 1993.`\
+https://nytimes.com/athletic/6627914/2025/09/14/eurobasket-championship-germany-wins-dennis-schroder-2025/
+
 **Ireland captain spoke to officials about alleged Rugby World Cup biting incident**\
 `France's Axelle Berthoumieu could face a ban for the semi-finals after the alleged incident involving Ireland's Aoife Wafer.`\
 https://nytimes.com/athletic/6628466/2025/09/14/rugby-world-cup-biting-incident-ireland-france/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6628689/2025/09/14/barcelonas-raphinha-late-valenci
 **Explained: Why Brighton hired Jason Ayto, let David Weir go, and how it fits their '2030 vision'**\
 `The impending arrival of Ayto is further indication of Brighton's desire to keep moving forward and finding ways to gain a competitive edge`\
 https://nytimes.com/athletic/6622658/2025/09/14/jason-ayto-brighton-david-weir/
-
-**Bears cornerback Jaylon Johnson ruled out vs. Lions with groin injury**\
-`Johnson missed all of training camp and the season opener due to a groin injury and made his return Sunday in Detroit.`\
-https://nytimes.com/athletic/6628547/2025/09/14/bears-lions-jaylon-johnson-groin-injury/
 

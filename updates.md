@@ -1,3 +1,7 @@
+**Dennis Schröder, Germany win EuroBasket gold over Turkey; Giannis, Greece take 3rd**\
+`Germany survived a close matchup against Turkey to earn its first EuroBasket gold medal since 1993.`\
+https://nytimes.com/athletic/6627914/2025/09/14/eurobasket-championship-germany-wins-dennis-schroder-2025/
+
 **Ireland captain spoke to officials about alleged Rugby World Cup biting incident**\
 `France's Axelle Berthoumieu could face a ban for the semi-finals after the alleged incident involving Ireland's Aoife Wafer.`\
 https://nytimes.com/athletic/6628466/2025/09/14/rugby-world-cup-biting-incident-ireland-france/
