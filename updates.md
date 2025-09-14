@@ -1,3 +1,7 @@
+**Terence Crawford upsets Canelo Álvarez with gritty unanimous decision**\
+`Crawford won on all thee judges scorecards after moving up two weight classes.`\
+https://nytimes.com/athletic/6627012/2025/09/14/canelo-alvarez-terence-crawford-fight-result/
+
 **Hermeto Pascoal, Eccentric and Prolific Brazilian Composer, Dies at 89**\
 `A self-taught multi-instrumentalist, he rose from a childhood of rural privation to become a favorite of jazz musicians and audiences around the world.`\
 https://nytimes.com/2025/09/14/arts/music/hermeto-pascoal-dead.html

@@ -1,3 +1,7 @@
+**Terence Crawford upsets Canelo Álvarez with gritty unanimous decision**\
+`Crawford won on all thee judges scorecards after moving up two weight classes.`\
+https://nytimes.com/athletic/6627012/2025/09/14/canelo-alvarez-terence-crawford-fight-result/
+
 **Hermeto Pascoal, Eccentric and Prolific Brazilian Composer, Dies at 89**\
 `A self-taught multi-instrumentalist, he rose from a childhood of rural privation to become a favorite of jazz musicians and audiences around the world.`\
 https://nytimes.com/2025/09/14/arts/music/hermeto-pascoal-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6598359/2025/09/14/manchester-united-supporter-hair
 **The Lewis family wanted 'more wins' and Thomas Frank has very particular ways to deliver them**\
 `Two of the most influential members of the majority-shareholding Lewis family took in Tottenham's first win since Levy's departure`\
 https://nytimes.com/athletic/6614354/2025/09/14/tottenham-lewis-family-frank/
-
-**'There's a need to win. The others feel that way too. Our ambition is high now'**\
-`The 20-year-old is tipped for big things in the WSL - in joining Everton she says she's signed for a club on the up`\
-https://nytimes.com/athletic/6612561/2025/09/14/martina-fernandez-everton-interview/
 
