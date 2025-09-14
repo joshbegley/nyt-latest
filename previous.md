@@ -1,6 +1,6 @@
-**Melissa Jefferson-Wooden wins 100-meter world title with championship record run**\
-`The American capped an undefeated year that has seen her emerge as the clear No. 1 in the women's 100-meter.`\
-https://nytimes.com/athletic/6627808/2025/09/14/melissa-jefferson-wooden-noah-lyles-kishane-thompson-100-meter-world-athletics-championships/
+**Melissa Jefferson-Wooden, Oblique Seville win 100-meter titles at world championships**\
+`The American Jefferson-Wooden capped an undefeated year, while the Jamaican Seville won his first major international medal.`\
+https://nytimes.com/athletic/6627808/2025/09/14/melissa-jefferson-wooden-oblique-seville-noah-lyles-kishane-thompson-100-meter-world-athletics-championships/
 
 **Submit your questions for the next Big Ten football mailbag**\
 `What have we learned about the Big Ten's 18 teams through three weeks, and what's still a mystery?`\
