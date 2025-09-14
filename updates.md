@@ -1,3 +1,11 @@
+**Virginia Tech firing Brent Pry after blowout loss to Old Dominion, 0-3 start**\
+`The dreadful tenure of Pry continued a downward trend for a once-proud Hokie program.`\
+https://nytimes.com/athletic/6627099/2025/09/14/virginia-tech-brent-pry-firing/
+
+**UCLA fires DeShaun Foster after 0-3 start to second full season**\
+`UCLA has yet to hold a lead in 2025, conceding 286 rushing yards in its opener against the Utes and nearly 300 to the Lobos.`\
+https://nytimes.com/athletic/6627281/2025/09/14/ucla-deshaun-foster-fired-coaching-search/
+
 **Mets likely moving Sean Manaea to bullpen temporarily as losing streak continues**\
 `The lefty, who signed a three-year, $75 million contract after a strong season for New York in 2024, has a 5.76 ERA over 50 innings.`\
 https://nytimes.com/athletic/6628262/2025/09/14/mets-sean-manaea-bullpen/
