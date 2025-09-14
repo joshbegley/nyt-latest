@@ -1,3 +1,7 @@
+**Amorim 'suffering more' than Manchester United fans after derby defeat**\
+`Amorim again suggested that the club's hierarchy would need to sack him if they want to see a shift in tactical approach`\
+https://nytimes.com/athletic/6628702/2025/09/14/ruben-amorim-manchester-united-city-fans/
+
 **Florida Woman Fights Off Alligator to Save Her Puppy**\
 `Danie Wright was walking her Shih Tzu near a creek behind her home in Land O’Lakes, Fla., on Wednesday when an alligator attacked them.`\
 https://nytimes.com/2025/09/14/us/alligator-attack-florida.html
