@@ -1,3 +1,15 @@
+**Bills vs. Jets: 4 takeaways from Buffalo's dominant win over New York**\
+`James Cook had two rushing touchdowns and Buffalo's defense throttled the Jets.`\
+https://nytimes.com/athletic/6628667/2025/09/14/bills-jets-score-result-takeaways-nfl/
+
+**Steelers' gaffe equals easy Seahawks TD; Dolphins-Patriots exchange scores**\
+`Pittsburgh rookie Kaleb Johnson didn't field a kickoff and jogged away from it as Seattle picked up one of the easier TDs you'll see. `\
+https://nytimes.com/athletic/6628798/2025/09/14/steelers-blunder-kickoff-return-touchdowns-dolphins-patriots/
+
+**DeShaun Foster out at UCLA: Can an archrival coach lead a turnaround?**\
+`D’Anton Lynn leads a varied list of potential replacements for DeShaun Foster.`\
+https://nytimes.com/athletic/6628741/2025/09/14/ucla-coaching-candidates-deshaun-foster-fired/
+
 **Dennis Schröder, Germany win EuroBasket gold over Turkey; Giannis, Greece take 3rd**\
 `Germany survived a close matchup against Turkey to earn its first EuroBasket gold medal since 1993.`\
 https://nytimes.com/athletic/6627914/2025/09/14/eurobasket-championship-germany-wins-dennis-schroder-2025/

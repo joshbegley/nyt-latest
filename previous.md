@@ -1,3 +1,11 @@
+**Bills vs. Jets: 4 takeaways from Buffalo's dominant win over New York**\
+`James Cook had two rushing touchdowns and Buffalo's defense throttled the Jets.`\
+https://nytimes.com/athletic/6628667/2025/09/14/bills-jets-score-result-takeaways-nfl/
+
+**Steelers' gaffe equals easy Seahawks TD; Dolphins-Patriots exchange scores**\
+`Pittsburgh rookie Kaleb Johnson didn't field a kickoff and jogged away from it as Seattle picked up one of the easier TDs you'll see. `\
+https://nytimes.com/athletic/6628798/2025/09/14/steelers-blunder-kickoff-return-touchdowns-dolphins-patriots/
+
 **Dennis Schröder, Germany win EuroBasket gold over Turkey; Giannis, Greece take 3rd**\
 `Germany survived a close matchup against Turkey to earn its first EuroBasket gold medal since 1993.`\
 https://nytimes.com/athletic/6627914/2025/09/14/eurobasket-championship-germany-wins-dennis-schroder-2025/
@@ -6,8 +14,8 @@ https://nytimes.com/athletic/6627914/2025/09/14/eurobasket-championship-germany-
 `France's Axelle Berthoumieu could face a ban for the semi-finals after the alleged incident involving Ireland's Aoife Wafer.`\
 https://nytimes.com/athletic/6628466/2025/09/14/rugby-world-cup-biting-incident-ireland-france/
 
-**DeShaun Foster out at UCLA: Can an arch-rival coach lead a turnaround?**\
-`D’Anton Lynn leads a varied list of potential replacements for DeShaun Foster. `\
+**DeShaun Foster out at UCLA: Can an archrival coach lead a turnaround?**\
+`D’Anton Lynn leads a varied list of potential replacements for DeShaun Foster.`\
 https://nytimes.com/athletic/6628741/2025/09/14/ucla-coaching-candidates-deshaun-foster-fired/
 
 **How good is the UCLA coaching job after DeShaun Foster's firing?**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6628702/2025/09/14/ruben-amorim-manchester-united-c
 **Florida Woman Fights Off Alligator to Save Her Puppy**\
 `Danie Wright was walking her Shih Tzu near a creek behind her home in Land O’Lakes, Fla., on Wednesday when an alligator attacked them.`\
 https://nytimes.com/2025/09/14/us/alligator-attack-florida.html
-
-**Barcelona's Raphinha dropped by Flick due to lateness**\
-`Club sources indicated Raphinha was late to a pre-game muscle activation session on Sunday morning.`\
-https://nytimes.com/athletic/6628689/2025/09/14/barcelonas-raphinha-late-valencia/
-
-**Explained: Why Brighton hired Jason Ayto, let David Weir go, and how it fits their '2030 vision'**\
-`The impending arrival of Ayto is further indication of Brighton's desire to keep moving forward and finding ways to gain a competitive edge`\
-https://nytimes.com/athletic/6622658/2025/09/14/jason-ayto-brighton-david-weir/
 
