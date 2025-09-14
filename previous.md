@@ -1,3 +1,11 @@
+**Moment of frustration with Trevor Lawrence 'not personal,' says Jags coach**\
+`Relationship between Jacksonville QB and his first-year head coach under scrutiny.`\
+https://nytimes.com/athletic/6629081/2025/09/14/jacksonville-jaguars-trevor-lawrence-liam-coen-interaction/
+
+**The Corporation for Public Broadcasting Received a Special, and Bittersweet, Award**\
+`The organization, which plans to close after President Trump rescinded more than $1 billion earmarked for public broadcasting, was given the Television Academy’s Governors Award.`\
+https://nytimes.com/2025/09/14/arts/television/public-broadcasting-emmy.html
+
 **Why Chiefs-Eagles TV coverage was delayed by Cowboys-Giants overtime**\
 `The long overtime in Dallas forced some viewers to miss the first 10-plus minutes of the highly anticipated Super Bowl rematch.`\
 https://nytimes.com/athletic/6628960/2025/09/14/kansas-city-chiefs-philadelphia-eagles-coverage/
@@ -10,7 +18,7 @@ https://nytimes.com/athletic/6628985/2025/09/14/ucla-deshaun-foster-coaches-fire
 `The enclave is experiencing some of the highest levels of malnutrition since the fighting began. Even children who recover will carry the physical consequences for the rest of their lives.`\
 https://nytimes.com/2025/09/14/briefing/malnutrition-gaza-nepal-charlie-kirk-romania.html
 
-**Emmys Photos: See All the Looks From the 2025 Red Carpet**\
+**Emmys Red Carpet Photos: See All the Looks From TV’s Biggest Night**\
 `See all the looks from TV’s biggest night.`\
 https://nytimes.com/interactive/2025/09/14/style/emmys-red-carpet-photos.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6628048/2025/09/14/nfl-takeaways-week-2-bears-dolph
 **Emmy Awards Live Updates: Stars of the Small Screen Gather on the Red Carpet**\
 `The best of television will be honored at the Peacock Theater in downtown Los Angeles at a ceremony hosted by Nate Bargatze.`\
 https://nytimes.com/live/2025/09/14/arts/emmy-awards
-
-**How to watch Fever at Dream: Game 1 Time, TV, streaming**\
-`Find out how to watch the Indiana Fever play the Atlanta Dream, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6629080/2025/09/14/fever-vs-dream-stream-how-to-watch-sept-14/
-
-**How to watch Liberty at Mercury: Game 1 Time, TV, streaming**\
-`Find out how to watch the New York Liberty play the Phoenix Mercury, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6629078/2025/09/14/liberty-vs-mercury-stream-how-to-watch-sept-14/
 

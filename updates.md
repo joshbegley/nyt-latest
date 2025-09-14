@@ -1,3 +1,15 @@
+**Moment of frustration with Trevor Lawrence 'not personal,' says Jags coach**\
+`Relationship between Jacksonville QB and his first-year head coach under scrutiny.`\
+https://nytimes.com/athletic/6629081/2025/09/14/jacksonville-jaguars-trevor-lawrence-liam-coen-interaction/
+
+**The Corporation for Public Broadcasting Received a Special, and Bittersweet, Award**\
+`The organization, which plans to close after President Trump rescinded more than $1 billion earmarked for public broadcasting, was given the Television Academy’s Governors Award.`\
+https://nytimes.com/2025/09/14/arts/television/public-broadcasting-emmy.html
+
+**Emmys Red Carpet Photos: See All the Looks From TV’s Biggest Night**\
+`See all the looks from TV’s biggest night.`\
+https://nytimes.com/interactive/2025/09/14/style/emmys-red-carpet-photos.html
+
 **Why Chiefs-Eagles TV coverage was delayed by Cowboys-Giants overtime**\
 `The long overtime in Dallas forced some viewers to miss the first 10-plus minutes of the highly anticipated Super Bowl rematch.`\
 https://nytimes.com/athletic/6628960/2025/09/14/kansas-city-chiefs-philadelphia-eagles-coverage/
