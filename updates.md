@@ -1,3 +1,7 @@
+**After Yankees' team bonding, a realization was had: 'We're coming to step on necks'**\
+`The Yankees wanted to make a statement in Boston. They now have a 2 1/2 game lead over their rival for the top wild-card spot.`\
+https://nytimes.com/athletic/6626952/2025/09/13/yankees-team-bonding-red-sox/
+
 **Texas A&M's Bryce Anderson carted off vs. Notre Dame, has feeling in limbs**\
 `Anderson was placed on a backboard and then on a cart. As he was driven off, the DB gave a thumbs up to an applauding crowd.`\
 https://nytimes.com/athletic/6627116/2025/09/13/bryce-anderson-injury-texas-am-notre-dame/

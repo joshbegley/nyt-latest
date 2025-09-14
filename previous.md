@@ -1,3 +1,7 @@
+**After Yankees' team bonding, a realization was had: 'We're coming to step on necks'**\
+`The Yankees wanted to make a statement in Boston. They now have a 2 1/2 game lead over their rival for the top wild-card spot.`\
+https://nytimes.com/athletic/6626952/2025/09/13/yankees-team-bonding-red-sox/
+
 **Texas A&M's Bryce Anderson carted off vs. Notre Dame, has feeling in limbs**\
 `Anderson was placed on a backboard and then on a cart. As he was driven off, the DB gave a thumbs up to an applauding crowd.`\
 https://nytimes.com/athletic/6627116/2025/09/13/bryce-anderson-injury-texas-am-notre-dame/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6627029/2025/09/13/diamondbacks-vs-twins-stream-how
 **Brewers clinch MLB's first postseason spot thanks to Mets' eighth straight loss**\
 `The Brewers clinched a playoff berth after the Rangers defeated the Mets on Saturday.`\
 https://nytimes.com/athletic/6626923/2025/09/13/brewers-postseason-berth-mets-losing-streak/
-
-**After Kirk’s Killing, Suspect Joked That His ‘Doppelganger’ Did It**\
-`Before he was arrested on suspicion of carrying out the assassination, 22-year-old Tyler Robinson sent friends messages showing that he was closely following news about the killing.`\
-https://nytimes.com/2025/09/13/us/kirk-killing-suspect-online-chat.html
 
