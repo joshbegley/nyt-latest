@@ -1,3 +1,7 @@
+**The Dodgers are emphasizing the little things, and finally found a big result**\
+`The Dodgers generated chances and capitalized for once, toppling the Giants 13-7.`\
+https://nytimes.com/athletic/6627439/2025/09/14/dodgers-giants-win-hernandez-ohtani/
+
 **Terence Crawford upsets Canelo Álvarez with gritty unanimous decision**\
 `Crawford won on all thee judges scorecards after moving up two weight classes.`\
 https://nytimes.com/athletic/6627012/2025/09/14/canelo-alvarez-terence-crawford-fight-result/

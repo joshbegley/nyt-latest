@@ -1,3 +1,7 @@
+**The Dodgers are emphasizing the little things, and finally found a big result**\
+`The Dodgers generated chances and capitalized for once, toppling the Giants 13-7.`\
+https://nytimes.com/athletic/6627439/2025/09/14/dodgers-giants-win-hernandez-ohtani/
+
 **Terence Crawford upsets Canelo Álvarez with gritty unanimous decision**\
 `Crawford won on all thee judges scorecards after moving up two weight classes.`\
 https://nytimes.com/athletic/6627012/2025/09/14/canelo-alvarez-terence-crawford-fight-result/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6623942/2025/09/14/premier-league-squad-list-2025-2
 **The fan who won't get a haircut until Man Utd win five successive games (and how other teams compare)**\
 `The Athletic crunches the numbers to see how foolhardy Frank Ilett's result-based challenge really is `\
 https://nytimes.com/athletic/6598359/2025/09/14/manchester-united-supporter-haircut-five-wins/
-
-**The Lewis family wanted 'more wins' and Thomas Frank has very particular ways to deliver them**\
-`Two of the most influential members of the majority-shareholding Lewis family took in Tottenham's first win since Levy's departure`\
-https://nytimes.com/athletic/6614354/2025/09/14/tottenham-lewis-family-frank/
 
