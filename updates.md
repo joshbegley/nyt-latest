@@ -1,3 +1,7 @@
+**Tyler Robinson and Our Poisonous Internet**\
+`We’ve fully stepped into a different historical moment: the age of brain-poisoning meme politics.`\
+https://nytimes.com/2025/09/14/opinion/charlie-kirk-shooting-internet.html
+
 **The Dodgers are emphasizing the little things, and finally found a big result**\
 `The Dodgers generated chances and capitalized for once, toppling the Giants 13-7.`\
 https://nytimes.com/athletic/6627439/2025/09/14/dodgers-giants-win-hernandez-ohtani/
