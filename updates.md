@@ -1,3 +1,7 @@
+**​Kim Seongmin, Defector Who Pierced North Korea by Radio, Dies at 63**\
+`As a military propagandist, he fled the North by jumping off a train. In the South, he broadcast forbidden outside news to isolated North Koreans.`\
+https://nytimes.com/2025/09/14/world/asia/kim-seongmin-dead.html
+
 **Virginia Tech firing Brent Pry after blowout loss to Old Dominion, 0-3 start**\
 `The dreadful tenure of Pry continued a downward trend for a once-proud Hokie program.`\
 https://nytimes.com/athletic/6627099/2025/09/14/virginia-tech-brent-pry-firing/
