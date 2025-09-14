@@ -1,3 +1,11 @@
+**Mets likely moving Sean Manaea to bullpen temporarily as losing streak continues**\
+`The lefty, who signed a three-year, $75 million contract after a strong season for New York in 2024, has a 5.76 ERA over 50 innings.`\
+https://nytimes.com/athletic/6628262/2025/09/14/mets-sean-manaea-bullpen/
+
+**White House Seeks More Supreme Court Security Funding After Kirk Killing**\
+`In a notice to Congress, the Trump administration said the additional $58 million would go to the U.S. Marshals Service. It also said it supported additional security for lawmakers.`\
+https://nytimes.com/2025/09/14/us/politics/trump-security-supreme-court-congress.html
+
 **Europe VC Noren wins Wentworth playoff - how did Ryder Cup players perform?**\
 `It was Noren’s 12th win on the DP World Tour in his 307th appearance - the European team flies out on Sunday evening.`\
 https://nytimes.com/athletic/6628092/2025/09/14/bmw-pga-championship-alex-noren/
