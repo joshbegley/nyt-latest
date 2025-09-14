@@ -1,3 +1,19 @@
+**Charlie Kirk’s Killing and Our Poisonous Internet**\
+`We’ve fully stepped into a different historical moment: the age of brain-poisoning meme politics.`\
+https://nytimes.com/2025/09/14/opinion/charlie-kirk-shooting-internet.html
+
+**The Curse of Curse Words**\
+`What happens to us when we use vulgarity all the time.`\
+https://nytimes.com/2025/09/14/opinion/culture/curse-words-profanity-swearing.html
+
+**Oil Destroyed Our Town. Cartels Are Finishing the Job.**\
+`Oil extraction and organized crime plague my community in the forests of eastern Mexico, but we’re fighting back.`\
+https://nytimes.com/2025/09/14/opinion/mexico-oil-pollution-fracking.html
+
+**The New York Times in Print for Sunday, Sep. 14, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/14/todays-new-york-times
+
 **Thomas Muller hits birthday hat trick as Vancouver smashes seven past Philadelphia**\
 `The Whitecaps clinched a playoff spot for the third straight season with a 7-0 win over the Eastern Conference-leading Union.`\
 https://nytimes.com/athletic/6627287/2025/09/14/thomas-muller-hits-birthday-hat-trick-as-vancouver-smash-seven-past-philadelphia/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6612561/2025/09/14/martina-fernandez-everton-interv
 **Man City vs Man Utd preview: Key players, new 'keepers, and who can handle the pressure**\
 `Before a high-pressure Manchester derby, Carl Anka and Jordan Campbell dissect the important issues`\
 https://nytimes.com/athletic/6620073/2025/09/14/manchester-city-manchester-united-preview-line-ups/
-
-**How Madueke, Mosquera and Nwaneri showcased Arsenal's 'new relationships'**\
-`Five of Arsenal's eight summer signings started the 3-0 win over Forest. Mikel Arteta says they can help Arsenal “become more unpredictable"`\
-https://nytimes.com/athletic/6626180/2025/09/14/madueke-arsenal-relationships/
-
-**'It will be Wednesday,' - Ange Postecoglou is in a hurry to instil his principles at Nottingham Forest**\
-`Forest's new boss expects to see his project get underway in the Carabao Cup tie with Swansea City on Wednesday`\
-https://nytimes.com/athletic/6625967/2025/09/14/postecoglou-new-era-nottingham-forest/
-
-**Bravo, De Gea, Donnarumma and the perils of goalkeeper debuts in the Manchester derby**\
-`City and United both signed new goalkeepers at the end of the transfer window and the two teams meet on Sunday in the Premier League`\
-https://nytimes.com/athletic/6612887/2025/09/14/donnarumma-manchester-derby/
-
-**How West Germany won the 1974 World Cup: Beckenbauer as leader and tactician, and their own brand of Total Football**\
-`Michael Cox's history of World Cup winners reaches the West Germany team of 1974`\
-https://nytimes.com/athletic/6613037/2025/09/14/world-cup-winners-west-germany-1974/
 
