@@ -1,3 +1,11 @@
+**Capitals place assistant coach Mitch Love on leave pending NHL investigation**\
+`The Capitals said they would not comment on Love’s situation until the NHL completes its investigation.`\
+https://nytimes.com/athletic/6628735/2025/09/14/capitals-mitch-love-nhl-investigation/
+
+**Trump Administration Claims Vast Powers as It Races to Fire Fed Governor Before Meeting**\
+`Trump has forged ahead with his attempts to fire Lisa Cook even as new documents call his claims of mortgage fraud into question.`\
+https://nytimes.com/2025/09/14/us/politics/trump-administration-claims-vast-powers-as-it-races-to-fire-fed-governor-before-meeting.html
+
 **Amorim 'suffering more' than Manchester United fans after derby defeat**\
 `Amorim again suggested that the club's hierarchy would need to sack him if they want to see a shift in tactical approach`\
 https://nytimes.com/athletic/6628702/2025/09/14/ruben-amorim-manchester-united-city-fans/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6626426/2025/09/14/enfield-derby-rivalry-fa-cup/
 **Aaron Rodgers ties Brett Favre for fourth all-time in passing touchdowns**\
 `Rodgers now trails only Tom Brady, Peyton Manning and Drew Brees on the all-time list.`\
 https://nytimes.com/athletic/6628240/2025/09/14/aaron-rodgers-brett-favre-passing-td-all-time-list/
-
-**Travis Kelce on his proposal to Taylor Swift: 'Palms were definitely sweating'**\
-`Kelce spoke to Fox's Erin Andrews ahead of the Chiefs' rematch with the Eagles. Andrews helped encourage Swift to go on a date with Kelce.`\
-https://nytimes.com/athletic/6628440/2025/09/14/travis-kelce-taylor-swift-engagement-erin-andrews/
-
-**AP Top 25: Notre Dame still ranked at 0-2; Texas A&M up to No. 10**\
-`Ohio State, Penn State and LSU remain the top three in the AP Top 25 college football rankings, followed by Miami, Georgia and Oregon.`\
-https://nytimes.com/athletic/6628215/2025/09/14/ap-top-25-college-football-rankings-notre-dame/
 
