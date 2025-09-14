@@ -1,3 +1,11 @@
+**Iowa's Kirk Ferentz breaks Woody Hayes' Big Ten wins record**\
+`With a 47-7 win against UMass, Ferentz collected his 206th win as a Big Ten coach.`\
+https://nytimes.com/athletic/6626822/2025/09/13/kirk-ferentz-big-ten-wins-record-iowa/
+
+**Aggies' Bryce Anderson, Razorbacks' Kani Walker have feeling in limbs after being stretchered off**\
+`Both Anderson and Walker gave their respective crowds a thumbs up as each was carted off the field in a neck brace and on a stretcher.`\
+https://nytimes.com/athletic/6627116/2025/09/13/bryce-anderson-injury-texas-am-notre-dame/
+
 **Ohio State takeaways: The good (Bo Jackson) and bad (red zone) from 37-9 win over Ohio**\
 `Ohio State mostly dominated Ohio on Saturday, but red-zone issues kept the Bobcats in the game with the No. 1 Buckeyes longer than expected.`\
 https://nytimes.com/athletic/6627173/2025/09/13/ohio-state-football-score-ohio-bobcats/
