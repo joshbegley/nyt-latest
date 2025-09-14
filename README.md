@@ -1,3 +1,7 @@
+**Iowa's Kirk Ferentz breaks Woody Hayes' Big Ten wins record**\
+`With a 47-7 win against UMass, Ferentz collected his 206th win as a Big Ten coach.`\
+https://nytimes.com/athletic/6626822/2025/09/13/kirk-ferentz-big-ten-wins-record-iowa/
+
 **Ohio State takeaways: The good (Bo Jackson) and bad (red zone) from 37-9 win over Ohio**\
 `Ohio State mostly dominated Ohio on Saturday, but red-zone issues kept the Bobcats in the game with the No. 1 Buckeyes longer than expected.`\
 https://nytimes.com/athletic/6627173/2025/09/13/ohio-state-football-score-ohio-bobcats/
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/6627114/2025/09/13/messi-misses-panenka-pen-in-miam
 https://nytimes.com/athletic/6626952/2025/09/13/yankees-team-bonding-red-sox/
 
 **Aggies' Bryce Anderson, Razorbacks' Kani Walker have feeling in limbs after being stretchered off**\
-`Both Anderson and Walker gave their respective crowds a thumbs up as each was carted off the field on a stretcher.`\
+`Both Anderson and Walker gave their respective crowds a thumbs up as each was carted off the field in a neck brace and on a stretcher.`\
 https://nytimes.com/athletic/6627116/2025/09/13/bryce-anderson-injury-texas-am-notre-dame/
 
 **Federal Judge Questions Deportations to Ghana**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6627014/2025/09/13/oregon-ducks-dan-lanning-charlie
 **How to watch Orioles at Blue Jays: Time, TV, streaming for September 14**\
 `Find out how to watch the Baltimore Orioles play the Toronto Blue Jays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6627038/2025/09/13/orioles-vs-blue-jays-stream-how-to-watch-sept-14/
-
-**How to watch Astros at Braves: Time, TV, streaming for September 14**\
-`Find out how to watch the Houston Astros play the Atlanta Braves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6627034/2025/09/13/astros-vs-braves-stream-how-to-watch-sept-14/
 

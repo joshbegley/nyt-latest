@@ -1,3 +1,15 @@
+**Ohio State takeaways: The good (Bo Jackson) and bad (red zone) from 37-9 win over Ohio**\
+`Ohio State mostly dominated Ohio on Saturday, but red-zone issues kept the Bobcats in the game with the No. 1 Buckeyes longer than expected.`\
+https://nytimes.com/athletic/6627173/2025/09/13/ohio-state-football-score-ohio-bobcats/
+
+**Messi misses 'panenka' pen in Miami defeat as Toklomati grabs hattrick**\
+`Lionel Messi was left embarrassed after he fluffed his &#8216;panenka&#8217; penalty attempt and then saw his Inter Miami team fall to a 3-0 defeat at in-form Charlotte on Saturday with Israeli striker Idan Toklomati scoring a hat-trick for the home side.`\
+https://nytimes.com/athletic/6627114/2025/09/13/messi-misses-panenka-pen-in-miami-defeat-as-toklomati-claims-hattrick/
+
+**Aggies' Bryce Anderson, Razorbacks' Kani Walker have feeling in limbs after being stretchered off**\
+`Both Anderson and Walker gave their respective crowds a thumbs up as each was carted off the field on a stretcher.`\
+https://nytimes.com/athletic/6627116/2025/09/13/bryce-anderson-injury-texas-am-notre-dame/
+
 **Red Sox playoff chances take hit after back-to-back losses to Yankees**\
 `The Red Sox's 5-3 loss dropped them 2 1/2 games behind the Yankees for the top AL wild-card spot, with 13 regular-season games remaining.`\
 https://nytimes.com/athletic/6627022/2025/09/13/red-sox-yankees-wild-card-playoff-race/
