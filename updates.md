@@ -1,3 +1,11 @@
+**Emmys Security Will Be Elevated After Shooting of Charlie Kirk**\
+`Officials have said that they re-examined their security plans after the assassination of the right-wing influencer last week.`\
+https://nytimes.com/2025/09/14/arts/television/emmys-security-charlie-kirk.html
+
+**Kathy Hochul: Why I Am Endorsing Zohran Mamdani**\
+`I am confident that Zohran Mamdani has the courage, urgency, and optimism New York City needs to lead it through the challenges of this moment.`\
+https://nytimes.com/2025/09/14/opinion/hochul-endorsement-mamdani.html
+
 **What happened at the end of the first half in the Lions' win over the Bears?**\
 `The Bears were running to the locker room down only seven points at the half, but a reversal by officials `\
 https://nytimes.com/athletic/6629243/2025/09/14/bears-lions-end-of-half-confusion/
