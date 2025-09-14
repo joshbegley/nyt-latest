@@ -1,3 +1,7 @@
+**South Carolina QB LaNorris Sellers injured late in second quarter vs. Vanderbilt**\
+`Sellers left the game with just under two minutes remaining in the half after a helmet-to-helmet hit by Vanderbilt LB Langston Patterson. `\
+https://nytimes.com/athletic/6627082/2025/09/13/lanorris-sellers-south-carolina-qb-injury/
+
 **Oregon HC Lanning on Charlie Kirk's death: 'The US could learn a lot from our locker room'**\
 `Lanning gave a poignant response to a question about the week's events after Saturday's game. `\
 https://nytimes.com/athletic/6627014/2025/09/13/oregon-ducks-dan-lanning-charlie-kirk/

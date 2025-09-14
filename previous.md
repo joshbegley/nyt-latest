@@ -1,3 +1,7 @@
+**South Carolina QB LaNorris Sellers injured late in second quarter vs. Vanderbilt**\
+`Sellers left the game with just under two minutes remaining in the half after a helmet-to-helmet hit by Vanderbilt LB Langston Patterson. `\
+https://nytimes.com/athletic/6627082/2025/09/13/lanorris-sellers-south-carolina-qb-injury/
+
 **Oregon HC Lanning on Charlie Kirk's death: 'The US could learn a lot from our locker room'**\
 `Lanning gave a poignant response to a question about the week's events after Saturday's game. `\
 https://nytimes.com/athletic/6627014/2025/09/13/oregon-ducks-dan-lanning-charlie-kirk/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6560541/2025/09/13/college-football-playoff-bracket
 **Mass Firing of Probationary Federal Employees Was Illegal, Judge Rules**\
 `Months have passed since the lawsuit was filed, and many of the fired employees have moved on, the judge noted.`\
 https://nytimes.com/2025/09/13/us/politics/probationary-employees-firing-illegal.html
-
-**Is Tennessee QB Joey Aguilar a legit 2026 NFL Draft prospect?**\
-`The Volunteers' new quarterback threw for 371 yards and accounted for five touchdowns in an overtime loss to Georgia.`\
-https://nytimes.com/athletic/6626616/2025/09/13/nfl-draft-2026-tennessee-qb-joey-aguilar/
 
