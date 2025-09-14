@@ -1,3 +1,7 @@
+**Terence Crawford upsets Canelo Álvarez with gritty unanimous decision**\
+`Crawford won on all thee judges' scorecards after moving up two weight classes.`\
+https://nytimes.com/athletic/6627012/2025/09/14/canelo-alvarez-terence-crawford-fight-result/
+
 **After Bolsonaro’s Conviction, Brazil Already Considers His Amnesty**\
 `Brazil’s top court sentenced former President Jair Bolsonaro to 27 years in prison. The nation’s Congress is already debating how to free him.`\
 https://nytimes.com/2025/09/14/world/americas/bolsonaro-convicted-coup-amnesty.html
