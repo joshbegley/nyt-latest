@@ -1,3 +1,7 @@
+**Dirk Nowitzki believes in Cooper Flagg hype, ready to watch in new analyst role**\
+`"The hype is real, for sure," Nowitzki said of Flagg, as the NBA Hall of Famer prepares for his new broadcasting job.`\
+https://nytimes.com/athletic/6626681/2025/09/14/cooper-flagg-dirk-nowitzki-amazon/
+
 **Melissa Jefferson-Wooden, Oblique Seville win 100-meter titles at world championships**\
 `The American Jefferson-Wooden capped an undefeated year, while the Jamaican Seville won his first major international medal.`\
 https://nytimes.com/athletic/6627808/2025/09/14/melissa-jefferson-wooden-oblique-seville-noah-lyles-kishane-thompson-100-meter-world-athletics-championships/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/14/briefing/charlie-kirk-religion-spirituality.html
 **'How in the wide world?' Sam Leavitt, Jordyn Tyson produce incredible TD in Arizona State win**\
 `Saturday night's win was an encouraging step, one that featured enough star power and defense to keep this reality series interesting.`\
 https://nytimes.com/athletic/6627487/2025/09/14/arizona-state-sam-leavitt-jordyn-tyson-touchdown-texas-state/
-
-**Hatton remembered: Tributes flow in after death of former boxing champion at 46**\
-`Greater Manchester Police said in a statement that a body had been found on Sunday morning in the town of Hyde`\
-https://nytimes.com/athletic/6627699/2025/09/14/ricky-hatton-news-dead-boxing/
 
