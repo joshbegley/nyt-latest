@@ -1,3 +1,15 @@
+**Bears cornerback Jaylon Johnson exits game vs. Lions with groin injury**\
+`Johnson missed all of training camp and the season opener due to a groin injury and made his return Sunday in Detroit.`\
+https://nytimes.com/athletic/6628547/2025/09/14/bears-lions-jaylon-johnson-groin-injury/
+
+**Bengals' Joe Burrow suffers toe injury, questionable to return vs. Jaguars**\
+`Burrow was sacked by Jaguars defender Arik Armstead with 9:02 to play in the first half, and remained on the ground.`\
+https://nytimes.com/athletic/6628370/2025/09/14/joe-burrow-injury-jaguars-bengals-score-result-takeaways-nfl/
+
+**Dolphins defense gets first stop of season, with some help from the clock**\
+`Miami's opponents had scored on all 10 possessions this season before Patriots opt to run out the clock just before the half on Sunday.`\
+https://nytimes.com/athletic/6628418/2025/09/14/dolphins-defense-struggles-season/
+
 **Bears cornerback Jaylon Johnson exits game vs. Lions game with groin injury**\
 `Johnson missed all of training camp and the season opener due to a groin injury and made his return Sunday in Detroit.`\
 https://nytimes.com/athletic/6628547/2025/09/14/bears-lions-jaylon-johnson-groin-injury/
