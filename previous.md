@@ -1,3 +1,19 @@
+**Ricky Hatton, British Boxer and Former World Champion, Dies at 46**\
+`The British authorities said that the boxer, who retired in 2012, was found unresponsive at a home in Greater Manchester.`\
+https://nytimes.com/2025/09/14/sports/ricky-hatton-dead.html
+
+**Lowetide: Are Oilers achieving more in procuring young talent than in the past?**\
+`The Oilers as an organization appear to be shopping in more promising areas these days.`\
+https://nytimes.com/athletic/6626366/2025/09/14/edmonton-oilers-prospects-game-2025/
+
+**Flyers trade goalie Ivan Fedotov to Blue Jackets: Sources**\
+`Columbus sent a sixth-round draft pick to Philadelphia.`\
+https://nytimes.com/athletic/6628022/2025/09/14/flyers-blue-jackets-trade-fedotov-goalie/
+
+**Hunter Greene, Reds miss opportunity to gain ground in wild card race**\
+`The Reds didn’t lose ground to either the New York Mets or San Francisco Giants, but lost an opportunity to secure playoff positioning.`\
+https://nytimes.com/athletic/6627465/2025/09/14/hunter-greene-reds-wild-card-race/
+
 **Rubio arrives in Israel and meets Netanyahu at Jerusalem’s Western Wall**\
 `By Michael Crowley`\
 https://nytimes.com/live/2025/09/14/us/trump-news/rubio-arrives-in-israel-and-meets-netanyahu-at-jerusalems-western-wall
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6627808/2025/09/14/melissa-jefferson-wooden-oblique
 **Submit your questions for the next Big Ten football mailbag**\
 `What have we learned about the Big Ten's 18 teams through three weeks, and what's still a mystery?`\
 https://nytimes.com/athletic/6627809/2025/09/14/submit-your-big-ten-football-questions-mailbag/
-
-**Fantasy football Week 2 inactives**\
-`The rundown on the Week 2 inactives who are relevant to fantasy football and how to respond accordingly. `\
-https://nytimes.com/athletic/6627795/2025/09/14/fantasy-football-week-2-inactives/
-
-**Team Europe using VR to prepare for Ryder Cup abuse, Rory McIlroy says**\
-`McIlroy said Team Europe had been using the headsets to "simulate the sights and the sounds and noise" they are likely to receive.`\
-https://nytimes.com/athletic/6627798/2025/09/14/golf-news-mcilroy-ryder-cup-team-europe/
-
-**SEC vibes rankings: Texas A&M reigns, Brian Kelly channels Herm Edwards, and more**\
-`The winners get to set the vibes — even when the margin between winning and losing is razor-thin.`\
-https://nytimes.com/athletic/6627711/2025/09/14/sec-football-rankings-week-4-texas-am-lsu/
-
-**Could China Be a Partner in A.I. Evolution?**\
-`Responses to a column by Thomas L. Friedman about cooperation between the U.S. and China on artificial intelligence. Also: A beautiful sight in Nashville.`\
-https://nytimes.com/2025/09/14/opinion/us-china-ai.html
 

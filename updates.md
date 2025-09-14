@@ -1,3 +1,19 @@
+**Ricky Hatton, British Boxer and Former World Champion, Dies at 46**\
+`The British authorities said that the boxer, who retired in 2012, was found unresponsive at a home in Greater Manchester.`\
+https://nytimes.com/2025/09/14/sports/ricky-hatton-dead.html
+
+**Lowetide: Are Oilers achieving more in procuring young talent than in the past?**\
+`The Oilers as an organization appear to be shopping in more promising areas these days.`\
+https://nytimes.com/athletic/6626366/2025/09/14/edmonton-oilers-prospects-game-2025/
+
+**Flyers trade goalie Ivan Fedotov to Blue Jackets: Sources**\
+`Columbus sent a sixth-round draft pick to Philadelphia.`\
+https://nytimes.com/athletic/6628022/2025/09/14/flyers-blue-jackets-trade-fedotov-goalie/
+
+**Hunter Greene, Reds miss opportunity to gain ground in wild card race**\
+`The Reds didn’t lose ground to either the New York Mets or San Francisco Giants, but lost an opportunity to secure playoff positioning.`\
+https://nytimes.com/athletic/6627465/2025/09/14/hunter-greene-reds-wild-card-race/
+
 **Rubio arrives in Israel and meets Netanyahu at Jerusalem’s Western Wall**\
 `By Michael Crowley`\
 https://nytimes.com/live/2025/09/14/us/trump-news/rubio-arrives-in-israel-and-meets-netanyahu-at-jerusalems-western-wall
