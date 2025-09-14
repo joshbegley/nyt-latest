@@ -32,9 +32,9 @@ https://nytimes.com/live/2025/09/14/arts/emmy-awards/heres-the-latest
 
 **NFL Week 2 takeaways: Bears flail, Dolphins stumble, Cowboys somehow come through**\
 `In addition to analyzing a pair of giant disappointments, our writers also weigh in on impressive Week 2 wins engineered by backup QBs.`\
-https://nytimes.com/athletic/6628048/2025/09/14/nfl-takeaways-week-2-bears-dolphins-cowboys/
+https://nytimes.com/athletic/6628048/2025/09/14/nfl-results-scores-week-2-games-today/
 
-**Emmy Awards Live Updates: Stars of the Small Screen Gather on the Red Carpet**\
-`The best of television will be honored at the Peacock Theater in downtown Los Angeles at a ceremony hosted by Nate Bargatze.`\
+**Emmy Awards Live Updates: The Red Carpet Draws Stars of the Small Screen Gather**\
+`“Severance” and “The Pitt” are competing for best drama, and “The Studio” and “Hacks” for best comedy. Nate Bargatze will host the ceremony.`\
 https://nytimes.com/live/2025/09/14/arts/emmy-awards
 
