@@ -1,3 +1,15 @@
+**College Football Playoff 2025 projections: Georgia rising, Clemson plummets in Week 3**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/09/13/college-football-playoff-bracket-projections-odds/
+
+**Mass Firing of Probationary Federal Employees Was Illegal, Judge Rules**\
+`Months have passed since the lawsuit was filed, and many of the fired employees have moved on, the judge noted.`\
+https://nytimes.com/2025/09/13/us/politics/probationary-employees-firing-illegal.html
+
+**Is Tennessee QB Joey Aguilar a legit 2026 NFL Draft prospect?**\
+`The Volunteers' new quarterback threw for 371 yards and accounted for five touchdowns in an overtime loss to Georgia.`\
+https://nytimes.com/athletic/6626616/2025/09/13/nfl-draft-2026-tennessee-qb-joey-aguilar/
+
 **In instant classic, Georgia pulls past Tennessee in OT: Takeaways**\
 `Tennessee led 38-30 in the final minutes of the fourth quarter before Georgia rallied.`\
 https://nytimes.com/athletic/6626025/2025/09/13/georgia-tennessee-score-result-takeaways/
