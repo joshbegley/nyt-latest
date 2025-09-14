@@ -1,3 +1,19 @@
+**Emmy Awards Live Updates: Stars of the Small Screen Gather Ahead of Ceremony**\
+`The best of television will be honored this evening at a ceremony at the Peacock Theater in downtown Los Angeles hosted by Nate Bargatze.`\
+https://nytimes.com/live/2025/09/14/arts/emmy-awards
+
+**How to watch Fever at Dream: Game 1 Time, TV, streaming**\
+`Find out how to watch the Indiana Fever play the Atlanta Dream, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6629080/2025/09/14/fever-vs-dream-stream-how-to-watch-sept-14/
+
+**How to watch Liberty at Mercury: Game 1 Time, TV, streaming**\
+`Find out how to watch the New York Liberty play the Phoenix Mercury, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6629078/2025/09/14/liberty-vs-mercury-stream-how-to-watch-sept-14/
+
+**How to watch Storm at Aces: Game 1 Time, TV, streaming**\
+`Find out how to watch the Seattle Storm play the Las Vegas Aces, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6629076/2025/09/14/storm-vs-aces-stream-how-to-watch-sept-14/
+
 **Cowboys are signing Jadeveon Clowney, Jerry Jones says after wild victory**\
 `Looking for pass-rush help after not getting much in their first two games and trading Micah Parsons, the Cowboys are adding Clowney.`\
 https://nytimes.com/athletic/6616474/2025/09/14/cowboys-jadeveon-clowney-signing/

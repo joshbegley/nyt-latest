@@ -1,3 +1,19 @@
+**Emmy Awards Live Updates: Stars of the Small Screen Gather Ahead of Ceremony**\
+`The best of television will be honored this evening at a ceremony at the Peacock Theater in downtown Los Angeles hosted by Nate Bargatze.`\
+https://nytimes.com/live/2025/09/14/arts/emmy-awards
+
+**How to watch Fever at Dream: Game 1 Time, TV, streaming**\
+`Find out how to watch the Indiana Fever play the Atlanta Dream, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6629080/2025/09/14/fever-vs-dream-stream-how-to-watch-sept-14/
+
+**How to watch Liberty at Mercury: Game 1 Time, TV, streaming**\
+`Find out how to watch the New York Liberty play the Phoenix Mercury, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6629078/2025/09/14/liberty-vs-mercury-stream-how-to-watch-sept-14/
+
+**How to watch Storm at Aces: Game 1 Time, TV, streaming**\
+`Find out how to watch the Seattle Storm play the Las Vegas Aces, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6629076/2025/09/14/storm-vs-aces-stream-how-to-watch-sept-14/
+
 **Cowboys are signing Jadeveon Clowney, Jerry Jones says after wild victory**\
 `Looking for pass-rush help after not getting much in their first two games and trading Micah Parsons, the Cowboys are adding Clowney.`\
 https://nytimes.com/athletic/6616474/2025/09/14/cowboys-jadeveon-clowney-signing/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6628989/2025/09/14/bears-lions-score-result-takeawa
 **‘Freedom’ Shirt Becomes a Meme and an Instant Commodity**\
 `Mere hours after Charlie Kirk’s killing, the internet was flooded with replicas of his T-shirt.`\
 https://nytimes.com/2025/09/14/style/freedom-shirt-for-sale.html
-
-**Steelers vs. Seahawks: 4 takeaways from Seattle's 31-17 win over Pittsburgh**\
-`Even after the Steelers gained possession and kicked a 54-yard field goal, the fumble was a momentum swinger.`\
-https://nytimes.com/athletic/6628338/2025/09/14/seahawks-steelers-score-result-takeaways/
-
-**49ers vs. Saints: 4 takeaways from San Francisco's 26-21 victory over New Orleans**\
-`Mac Jones threw three touchdown passes to lead a short-handed San Francisco 49ers team to a road win.`\
-https://nytimes.com/athletic/6628356/2025/09/14/niners-saints-score-result-takeaways-nfl/
-
-**McNulty wins GP Cycliste de Montréal ahead of Pogacar as UAE Team-Emirates tie seasonal win record**\
-`American rider adds first WorldTour one day race victory to his palmares`\
-https://nytimes.com/athletic/6628834/2025/09/14/mcnulty-pogacar-montreal-uae-85-win-record/
-
-**Sam Kerr scores in her first game for Chelsea in 634 days, completing a long awaited comeback**\
-`The forward scored her 100th Chelsea goal after nearly two years away due to an ACL injury`\
-https://nytimes.com/athletic/6628517/2025/09/14/sam-kerr-chelsea-return-injury-scores/
 
