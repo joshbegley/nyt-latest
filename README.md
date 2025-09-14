@@ -1,3 +1,15 @@
+**Cowboys are signing Jadeveon Clowney, Jerry Jones says after wild victory**\
+`Looking for pass-rush help after not getting much in their first two games and trading Micah Parsons, the Cowboys are adding Clowney.`\
+https://nytimes.com/athletic/6616474/2025/09/14/cowboys-jadeveon-clowney-signing/
+
+**How good is the Virginia Tech job? Pros and cons of a once-proud program**\
+`Brent Pry’s tenure continued a downward trend for a once-proud program.`\
+https://nytimes.com/athletic/6628900/2025/09/14/virginia-tech-football-coaching-search-history-finances/
+
+**Cowboys vs. Giants: 3 takeaways takeaways from a thrilling overtime win for Dallas**\
+`Brandon Aubrey won the game with a field goal in overtime after booting a 64-yarder at the end of regulation.`\
+https://nytimes.com/athletic/6628685/2025/09/14/giants-cowboys-score-result-takeaways-nfl/
+
 **WNBA playoffs: Minnesota Lynx dominate Golden State Valkyries in Game 1**\
 `Catch up on analysis from the first day of the WNBA playoffs.`\
 https://nytimes.com/athletic/6628889/2025/09/14/wnba-playoffs-minnesota-lynx-dominate-golden-state-valkyries-in-game-1/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6628834/2025/09/14/mcnulty-pogacar-montreal-uae-85-
 **Sam Kerr scores in her first game for Chelsea in 634 days, completing a long awaited comeback**\
 `The forward scored her 100th Chelsea goal after nearly two years away due to an ACL injury`\
 https://nytimes.com/athletic/6628517/2025/09/14/sam-kerr-chelsea-return-injury-scores/
-
-**Browns vs. Ravens: Takeaways from Baltimore's redemption win over Cleveland**\
-`The Ravens got a bounce-back performance on defense and some unlikely offensive contributors.`\
-https://nytimes.com/athletic/6628579/2025/09/14/browns-ravens-score-result-takeaways-nfl/
-
-**Rams vs. Titans: 4 takeaways from L.A.'s victory over Tennessee**\
-`Matthew Stafford passed for 298 yards and two touchdowns to outduel No. 1 pick Cam Ward.`\
-https://nytimes.com/athletic/6628369/2025/09/14/rams-titans-score-result-takeaways-nfl/
-
-**The Pulse: Clemson's quick plummet**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6627343/2025/09/14/clemson-could-go-from-playoff-certainty-to-unranked/
 
