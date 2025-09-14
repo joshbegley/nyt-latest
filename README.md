@@ -1,3 +1,7 @@
+**Thomas Muller hits birthday hat-trick as Vancouver smash seven past Philadelphia**\
+`Thomas Muller celebrated his 36th birthday in style on Saturday, scoring a hat-trick for the Vancouver Whitecaps as they ripped apart the Eastern Conference leaders, the Philadelphia Union, in a shock 7-0 win.`\
+https://nytimes.com/athletic/6627287/2025/09/14/thomas-muller-hits-birthday-hat-trick-as-vancouver-smash-seven-past-philadelphia/
+
 **Analysing the most intriguing aspect of every Premier League squad list**\
 `Our club experts analyse the shock omissions, surprise inclusions and youngsters to watch in the official 25-man squad lists`\
 https://nytimes.com/athletic/6623942/2025/09/14/premier-league-squad-list-2025-26/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6612887/2025/09/14/donnarumma-manchester-derby/
 **How West Germany won the 1974 World Cup: Beckenbauer as leader and tactician, and their own brand of Total Football**\
 `Michael Cox's history of World Cup winners reaches the West Germany team of 1974`\
 https://nytimes.com/athletic/6613037/2025/09/14/world-cup-winners-west-germany-1974/
-
-**How to watch Angels at Mariners: Time, TV, streaming for September 14**\
-`Find out how to watch the Los Angeles Angels play the Seattle Mariners, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6627333/2025/09/14/angels-vs-mariners-stream-how-to-watch-sept-14/
 
