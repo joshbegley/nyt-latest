@@ -1,3 +1,7 @@
+**Ingebrigtsen eliminated in heats of World Championships in Tokyo**\
+`Ingebrigtsen has had an Achilles problem that has persisted all summer and prevented him racing at all on the circuit`\
+https://nytimes.com/athletic/6627648/2025/09/14/ingebrigtsen-elimination-tokyo-world-championship/
+
 **Tottenham winger Kudus' wooden elephant seat returned to him by West Ham**\
 `On Saturday, the 25-year-old winger made his first return to the London Stadium since his £55million ($74.5m) summer switch`\
 https://nytimes.com/athletic/6626641/2025/09/14/mohammed-kudus-celebration-tottenham-west-ham/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/14/arts/television/what-to-expect-at-the-2025-emmy-a
 **Bobbi Brown Tells Her Beauty Comeback Story**\
 `The cosmetics mogul reveals how she started all over again, with Jones Road, after leaving Estée Lauder.`\
 https://nytimes.com/2025/09/14/style/bobbi-brown-tells-her-beauty-comeback-story.html
-
-**U.S. and China to Resume Talks on Tariffs and TikTok**\
-`Economic officials meeting in Madrid will seek to head off a November tariff deadline.`\
-https://nytimes.com/2025/09/14/business/us-china-trade-tiktok-negotiations.html
 
