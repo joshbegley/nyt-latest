@@ -1,3 +1,7 @@
+**Hatton remembered: Tributes flow in after death of former boxing champion at 46**\
+`Greater Manchester Police said in a statement that a body had been found on Sunday morning in the town of Hyde`\
+https://nytimes.com/athletic/6627699/2025/09/14/ricky-hatton-news-dead-boxing/
+
 **Submit your questions for the next Big Ten football mailbag**\
 `What have we learned about the Big Ten's 18 teams through three weeks, and what's still a mystery?`\
 https://nytimes.com/athletic/6627809/2025/09/14/submit-your-big-ten-football-questions-mailbag/
