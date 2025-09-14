@@ -1,3 +1,7 @@
+**Rubio arrives in Israel and meets Netanyahu at Jerusalem’s Western Wall**\
+`By Michael Crowley`\
+https://nytimes.com/live/2025/09/14/us/trump-news/rubio-arrives-in-israel-and-meets-netanyahu-at-jerusalems-western-wall
+
 **Isak's omission at Burnley 'best lead-up' for Atletico match, says Slot**\
 `Sunday's Premier League match at Turf Moor was Liverpool's first since completing the signing of Isak, but he was not included in the squad.`\
 https://nytimes.com/athletic/6627868/2025/09/14/alexander-isaks-liverpool-burnley-omission/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6627711/2025/09/14/sec-football-rankings-week-4-tex
 **Could China Be a Partner in A.I. Evolution?**\
 `Responses to a column by Thomas L. Friedman about cooperation between the U.S. and China on artificial intelligence. Also: A beautiful sight in Nashville.`\
 https://nytimes.com/2025/09/14/opinion/us-china-ai.html
-
-**Lula: Brazilian Democracy and Sovereignty Are Non-Negotiable**\
-`The president of Brazil calls U.S. tariffs on his country “not only misguided but also illogical” and defends former President Jair Bolsonaro’s conviction.`\
-https://nytimes.com/2025/09/14/opinion/lula-da-silva-brazil-trump-bolsonaro.html
 

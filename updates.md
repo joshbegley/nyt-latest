@@ -1,3 +1,7 @@
+**Rubio arrives in Israel and meets Netanyahu at Jerusalem’s Western Wall**\
+`By Michael Crowley`\
+https://nytimes.com/live/2025/09/14/us/trump-news/rubio-arrives-in-israel-and-meets-netanyahu-at-jerusalems-western-wall
+
 **Isak's omission at Burnley 'best lead-up' for Atletico match, says Slot**\
 `Sunday's Premier League match at Turf Moor was Liverpool's first since completing the signing of Isak, but he was not included in the squad.`\
 https://nytimes.com/athletic/6627868/2025/09/14/alexander-isaks-liverpool-burnley-omission/
