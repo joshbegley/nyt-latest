@@ -1,3 +1,7 @@
+**College Football Playoff 2025 projections: Georgia rising, Clemson plummets in Week 3**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/09/13/college-football-playoff-bracket-projections-odds/
+
 **South Carolina loses LaNorris Sellers as Vanderbilt, Diego Pavia keep rolling**\
 `It was Vanderbilt’s first win over the Gamecocks since 2008 and its first SEC opening win since 2011.`\
 https://nytimes.com/athletic/6627209/2025/09/13/vanderbilt-diego-pavia-south-carolina-lanorris-sellers/

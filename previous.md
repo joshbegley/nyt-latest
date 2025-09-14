@@ -1,3 +1,7 @@
+**College Football Playoff 2025 projections: Georgia rising, Clemson plummets in Week 3**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/09/13/college-football-playoff-bracket-projections-odds/
+
 **South Carolina loses LaNorris Sellers as Vanderbilt, Diego Pavia keep rolling**\
 `It was Vanderbilt’s first win over the Gamecocks since 2008 and its first SEC opening win since 2011.`\
 https://nytimes.com/athletic/6627209/2025/09/13/vanderbilt-diego-pavia-south-carolina-lanorris-sellers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6627114/2025/09/13/messi-misses-panenka-pen-in-miam
 **After Yankees' team bonding, a realization: 'We're coming to step on necks'**\
 `The Yankees wanted to make a statement in Boston. They now have a 2 1/2 game lead over their rival for the top wild-card spot.`\
 https://nytimes.com/athletic/6626952/2025/09/13/yankees-team-bonding-red-sox/
-
-**Aggies' Bryce Anderson, Razorbacks' Kani Walker carted off, give thumbs up to fans**\
-`Anderson and Walker gave their respective crowds a thumbs up as each was carted off the field in a neck brace and on a stretcher.`\
-https://nytimes.com/athletic/6627116/2025/09/13/bryce-anderson-injury-texas-am-notre-dame/
 
