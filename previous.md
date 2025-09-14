@@ -1,3 +1,7 @@
+**What's the difference between Carson Beck and Cam Ward at Miami? It's hard to tell so far**\
+`Beck has a better supporting cast, but he already has two more wins over ranked opponents than Ward did last season.`\
+https://nytimes.com/athletic/6628060/2025/09/14/carson-beck-cam-ward-miami-hurricanes-quarterback/
+
 **Burnley 0 Liverpool 1: Late Salah penalty seals win as Slot's side again find a way**\
 `Our writer discusses the talking points after Liverpool stoppage-time win at Turf Moor.`\
 https://nytimes.com/athletic/6625471/2025/09/14/liverpool-burnley-kerkez-isak-salah/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6628022/2025/09/14/flyers-blue-jackets-trade-fedoto
 **Hunter Greene, Reds miss opportunity to gain ground in wild card race**\
 `The Reds didn’t lose ground to either the New York Mets or San Francisco Giants, but lost an opportunity to secure playoff positioning.`\
 https://nytimes.com/athletic/6627465/2025/09/14/hunter-greene-reds-wild-card-race/
-
-**Rubio arrives in Israel and meets Netanyahu at Jerusalem’s Western Wall.**\
-`By Michael Crowley`\
-https://nytimes.com/live/2025/09/14/us/trump-news/rubio-arrives-in-israel-and-meets-netanyahu-at-jerusalems-western-wall
 
