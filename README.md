@@ -1,3 +1,7 @@
+**Romania Reports Russian Drone in Its Airspace**\
+`The brief incursion occurred days after Poland reported Russian drones in its territory. Romania said the drone did not fly over populated areas.`\
+https://nytimes.com/2025/09/14/world/europe/romania-drone-russia-ukraine.html
+
 **The Dodgers are emphasizing the little things, and finally found a big result**\
 `The Dodgers generated chances and capitalized for once, toppling the Giants 13-7.`\
 https://nytimes.com/athletic/6627439/2025/09/14/dodgers-giants-win-hernandez-ohtani/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6627287/2025/09/14/thomas-muller-hits-birthday-hat-
 **Analysing the most intriguing aspect of every Premier League squad list**\
 `Our club experts analyse the shock omissions, surprise inclusions and youngsters to watch in the official 25-man squad lists`\
 https://nytimes.com/athletic/6623942/2025/09/14/premier-league-squad-list-2025-26/
-
-**The fan who won't get a haircut until Man Utd win five successive games (and how other teams compare)**\
-`The Athletic crunches the numbers to see how foolhardy Frank Ilett's result-based challenge really is `\
-https://nytimes.com/athletic/6598359/2025/09/14/manchester-united-supporter-haircut-five-wins/
 
