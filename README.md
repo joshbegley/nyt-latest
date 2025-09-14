@@ -1,3 +1,7 @@
+**Europe VC Noren wins Wentworth playoff - how did Ryder Cup players perform?**\
+`It was Noren’s 12th win on the DP World Tour in his 307th appearance - the European team flies out on Sunday evening.`\
+https://nytimes.com/athletic/6628092/2025/09/14/bmw-pga-championship-alex-noren/
+
 **Submit your questions for Antonio Morales’ USC football mailbag**\
 `<p>USC is 3-0 overall and 1-0 in the Big Ten after Saturday&#8217;s win at Purdue. Are the Trojans poised to contend for a College Football Playoff spot? Submit your questions for Antonio Morales. We will post his answers later in the week.</p>
 `\
@@ -19,7 +23,7 @@ https://nytimes.com/athletic/6627483/2025/09/14/giants-clayton-kershaw-hitters/
 `Beck has a better supporting cast, but he already has two more wins over ranked opponents than Ward did last season.`\
 https://nytimes.com/athletic/6628060/2025/09/14/carson-beck-cam-ward-miami-hurricanes-quarterback/
 
-**Burnley 0 Liverpool 1: How many late winners have Liverpool had this season?**\
+**Burnley 0 Liverpool 1: How many late winners have Slot's side had this season?**\
 `Our writer discusses the talking points after Liverpool stoppage-time win at Turf Moor.`\
 https://nytimes.com/athletic/6625471/2025/09/14/liverpool-burnley-kerkez-isak-salah/
 
@@ -34,8 +38,4 @@ https://nytimes.com/2025/09/14/nyregion/zazi-terrorism-detention.html
 **After Fiery Protests, Nepal’s Leader Promises a Brief, Caretaker Term**\
 `Prime Minister Sushila Karki, a former chief justice, said she had accepted her new role reluctantly. Major political parties say the process is unconstitutional.`\
 https://nytimes.com/2025/09/14/world/asia/nepal-prime-minister-promises.html
-
-**McCaul, a Foreign Policy Leader in the House, Won’t Seek Re-election**\
-`Representative Michael McCaul, an 11-term Texas Republican who chairs the House Foreign Affairs Committee, announced on Sunday that he would retire from Congress.`\
-https://nytimes.com/2025/09/14/us/politics/michael-mccaul-retires-house-texas.html
 

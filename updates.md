@@ -1,3 +1,7 @@
+**Burnley 0 Liverpool 1: How many late winners have Liverpool had this season?**\
+`Our writer discusses the talking points after Liverpool stoppage-time win at Turf Moor.`\
+https://nytimes.com/athletic/6625471/2025/09/14/liverpool-burnley-kerkez-isak-salah/
+
 **Submit your questions for Antonio Morales’ USC football mailbag**\
 `<p>USC is 3-0 overall and 1-0 in the Big Ten after Saturday&#8217;s win at Purdue. Are the Trojans poised to contend for a College Football Playoff spot? Submit your questions for Antonio Morales. We will post his answers later in the week.</p>
 `\
