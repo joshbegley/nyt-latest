@@ -1,3 +1,11 @@
+**South Carolina loses LaNorris Sellers as Vanderbilt, Diego Pavia keep rolling**\
+`It was Vanderbilt’s first win over the Gamecocks since 2008 and its first SEC opening win since 2011.`\
+https://nytimes.com/athletic/6627209/2025/09/13/vanderbilt-diego-pavia-south-carolina-lanorris-sellers/
+
+**Mets' playoff hopes dwindle as 8-game skid drops them into wild-card tie**\
+`New York's 3-2 loss dropped them into a tie with the Giants for the National League's final wild-card spot, with 13 games left.`\
+https://nytimes.com/athletic/6627156/2025/09/13/mets-eight-game-losing-streak-playoff/
+
 **Vanderbilt keeps rolling, pounds South Carolina in Columbia to improve to 3-0**\
 `It was Vanderbilt’s first win over the Gamecocks since 2008 and its first SEC opening win since 2011.`\
 https://nytimes.com/athletic/6627209/2025/09/13/vanderbilt-diego-pavia-south-carolina-lanorris-sellers/
