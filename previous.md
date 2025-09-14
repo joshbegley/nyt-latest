@@ -1,3 +1,7 @@
+**McCaul, a Foreign Policy Leader in the House, Won’t Seek Re-election**\
+`Representative Michael McCaul, an 11-term Texas Republican who chairs the House Foreign Affairs Committee, announced on Sunday that he would retire from Congress.`\
+https://nytimes.com/2025/09/14/us/politics/michael-mccaul-retires-house-texas.html
+
 **Ricky Hatton, British Boxer and Former World Champion, Dies at 46**\
 `The British authorities said that the boxer, who retired in 2012, was found unresponsive at a home in Greater Manchester.`\
 https://nytimes.com/2025/09/14/sports/ricky-hatton-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6626681/2025/09/14/cooper-flagg-dirk-nowitzki-amazo
 **Melissa Jefferson-Wooden, Oblique Seville win 100-meter titles at world championships**\
 `The American Jefferson-Wooden capped an undefeated year, while the Jamaican Seville won his first major international medal.`\
 https://nytimes.com/athletic/6627808/2025/09/14/melissa-jefferson-wooden-oblique-seville-noah-lyles-kishane-thompson-100-meter-world-athletics-championships/
-
-**Submit your questions for the next Big Ten football mailbag**\
-`What have we learned about the Big Ten's 18 teams through three weeks, and what's still a mystery?`\
-https://nytimes.com/athletic/6627809/2025/09/14/submit-your-big-ten-football-questions-mailbag/
 

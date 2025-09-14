@@ -1,3 +1,7 @@
+**McCaul, a Foreign Policy Leader in the House, Won’t Seek Re-election**\
+`Representative Michael McCaul, an 11-term Texas Republican who chairs the House Foreign Affairs Committee, announced on Sunday that he would retire from Congress.`\
+https://nytimes.com/2025/09/14/us/politics/michael-mccaul-retires-house-texas.html
+
 **Ricky Hatton, British Boxer and Former World Champion, Dies at 46**\
 `The British authorities said that the boxer, who retired in 2012, was found unresponsive at a home in Greater Manchester.`\
 https://nytimes.com/2025/09/14/sports/ricky-hatton-dead.html
