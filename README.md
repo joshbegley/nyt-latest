@@ -1,8 +1,12 @@
+**Aaron Rodgers ties Brett Favre for fourth all-time in passing touchdowns**\
+`Rodgers now trails only Tom Brady, Peyton Manning and Drew Brees on the all-time list.`\
+https://nytimes.com/athletic/6628240/2025/09/14/aaron-rodgers-brett-favre-passing-td-all-time-list/
+
 **Travis Kelce on his proposal to Taylor Swift: 'Palms were definitely sweating'**\
 `Kelce spoke to Fox's Erin Andrews ahead of the Chiefs' rematch with the Eagles. Andrews helped encourage Swift to go on a date with Kelce.`\
 https://nytimes.com/athletic/6628440/2025/09/14/travis-kelce-taylor-swift-engagement-erin-andrews/
 
-**AP Top 25: Notre Dame still ranked at 0-2; Texas A&M up to NO. 10**\
+**AP Top 25: Notre Dame still ranked at 0-2; Texas A&M up to No. 10**\
 `Ohio State, Penn State and LSU remain the top three in the AP Top 25 college football rankings, followed by Miami, Georgia and Oregon.`\
 https://nytimes.com/athletic/6628215/2025/09/14/ap-top-25-college-football-rankings-notre-dame/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6628058/2025/09/14/nascar-bristol-night-race-takeaw
 **Vuelta a Espana finish cancelled after pro-Palestine protests in Madrid**\
 `It marked the third time during the 2025 tour that a stage had been cut short due to demonstrations.`\
 https://nytimes.com/athletic/6628349/2025/09/14/vuelta-a-espana-finish-cancel-palestine-protests/
-
-**Man City 3 Man Utd 0 - How good was Haaland? How were United cut open? What next for Amorim?**\
-`Analysis of Manchester City's dominant derby victory over Manchester United`\
-https://nytimes.com/athletic/6625474/2025/09/14/manchester-city-united-haaland-highlights/
 
