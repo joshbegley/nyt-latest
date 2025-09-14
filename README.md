@@ -1,3 +1,19 @@
+**Travis Kelce on his proposal to Taylor Swift: 'Palms were definitely sweating'**\
+`Kelce spoke to Fox's Erin Andrews ahead of the Chiefs' rematch with the Eagles. Andrews helped encourage Swift to go on a date with Kelce.`\
+https://nytimes.com/athletic/6628440/2025/09/14/travis-kelce-taylor-swift-engagement-erin-andrews/
+
+**AP Top 25: Notre Dame still ranked at 0-2; Texas A&M up to NO. 10**\
+`Ohio State, Penn State and LSU remain the top three in the AP Top 25 college football rankings, followed by Miami, Georgia and Oregon.`\
+https://nytimes.com/athletic/6628215/2025/09/14/ap-top-25-college-football-rankings-notre-dame/
+
+**Pope Leo Says He Cannot Broker a Peace Deal for Ukraine**\
+`Pope Leo XIV said that while popes can be advocates for peace, it was less “realistic” for them to serve as mediators.`\
+https://nytimes.com/2025/09/14/world/europe/pope-leo-ukraine-peace.html
+
+**No 'D' in Dolphins: Miami's foes have scored on all 10 drives this season**\
+`After Colts go 7-for-7 against Miami defense in Week 1, Patriots score on first three possessions on Sunday.`\
+https://nytimes.com/athletic/6628418/2025/09/14/dolphins-defense-struggles-season/
+
 **Giants bench LT James Hudson after historically bad opening drive**\
 `Hudson cost the Giants 40 yards in penalties during their opening possession. `\
 https://nytimes.com/athletic/6628408/2025/09/14/ny-giants-james-hudson-penalties-cowboys/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6628349/2025/09/14/vuelta-a-espana-finish-cancel-pa
 **Man City 3 Man Utd 0 - How good was Haaland? How were United cut open? What next for Amorim?**\
 `Analysis of Manchester City's dominant derby victory over Manchester United`\
 https://nytimes.com/athletic/6625474/2025/09/14/manchester-city-united-haaland-highlights/
-
-**The Best Tea Steepers**\
-`Text by Samantha Lande and Alexis Cheung`\
-https://nytimes.com/card/2025/09/14/smarter-living/wirecutter/
-
-**​Kim Seongmin, Defector Who Pierced North Korea by Radio, Dies at 63**\
-`As a military propagandist, he fled the North by jumping off a train. In the South, he broadcast forbidden outside news to isolated North Koreans.`\
-https://nytimes.com/2025/09/14/world/asia/kim-seongmin-dead.html
-
-**Virginia Tech firing Brent Pry after blowout loss to Old Dominion, 0-3 start**\
-`The dreadful tenure of Pry continued a downward trend for a once-proud Hokie program.`\
-https://nytimes.com/athletic/6627099/2025/09/14/virginia-tech-brent-pry-firing/
-
-**UCLA fires DeShaun Foster after 0-3 start to second full season**\
-`UCLA has yet to hold a lead in 2025, conceding 286 rushing yards in its opener against the Utes and nearly 300 to the Lobos.`\
-https://nytimes.com/athletic/6627281/2025/09/14/ucla-deshaun-foster-fired-coaching-search/
 

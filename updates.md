@@ -1,3 +1,7 @@
+**Giants bench LT James Hudson after historically bad opening drive**\
+`Hudson cost the Giants 40 yards in penalties during their opening possession. `\
+https://nytimes.com/athletic/6628408/2025/09/14/ny-giants-james-hudson-penalties-cowboys/
+
 **Patrick McGovern, the ‘Indiana Jones of Ancient Alcohol,’ Dies at 80**\
 `An archaeologist, he discovered and analyzed the residue of beverages imbibed by long-vanished civilizations and then figured out how to recreate them.`\
 https://nytimes.com/2025/09/14/obituaries/patrick-mcgovern-dead.html

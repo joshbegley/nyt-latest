@@ -1,3 +1,7 @@
+**Giants bench LT James Hudson after historically bad opening drive**\
+`Hudson cost the Giants 40 yards in penalties during their opening possession. `\
+https://nytimes.com/athletic/6628408/2025/09/14/ny-giants-james-hudson-penalties-cowboys/
+
 **Patrick McGovern, the ‘Indiana Jones of Ancient Alcohol,’ Dies at 80**\
 `An archaeologist, he discovered and analyzed the residue of beverages imbibed by long-vanished civilizations and then figured out how to recreate them.`\
 https://nytimes.com/2025/09/14/obituaries/patrick-mcgovern-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6627099/2025/09/14/virginia-tech-brent-pry-firing/
 **UCLA fires DeShaun Foster after 0-3 start to second full season**\
 `UCLA has yet to hold a lead in 2025, conceding 286 rushing yards in its opener against the Utes and nearly 300 to the Lobos.`\
 https://nytimes.com/athletic/6627281/2025/09/14/ucla-deshaun-foster-fired-coaching-search/
-
-**Mets likely moving Sean Manaea to bullpen temporarily as losing streak continues**\
-`The lefty, who signed a three-year, $75 million contract after a strong season for New York in 2024, has a 5.76 ERA over 50 innings.`\
-https://nytimes.com/athletic/6628262/2025/09/14/mets-sean-manaea-bullpen/
 
