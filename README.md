@@ -1,3 +1,15 @@
+**Rams vs. Titans: 4 takeaways from L.A.'s victory over Tennessee**\
+`Matt Stafford passed for 298 yards and two touchdowns to outduel No. 1 pick Cam Ward.`\
+https://nytimes.com/athletic/6628369/2025/09/14/rams-titans-score-result-takeaways-nfl/
+
+**The Pulse: Clemson's quick plummet**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6627343/2025/09/14/clemson-could-go-from-playoff-certainty-to-unranked/
+
+**Cal Raleigh's 54th home run ties Mickey Mantle for most by a switch hitter**\
+`Raleigh this year has already hit the most homers by a primary catcher. With two more, he'll match Ken Griffey Jr.'s franchise record.`\
+https://nytimes.com/athletic/6611441/2025/09/14/cal-raleigh-mickey-mantle-season-home-run-record/
+
 **Patriots vs. Dolphins: 5 takeaways from New England's wild victory**\
 `Drake Maye and the Patriots held off Miami in a game that featured wild swings, huge special teams plays and a startling lack of defense.`\
 https://nytimes.com/athletic/6628271/2025/09/14/patriots-dolphins-score-result-takeaways-nfl/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6628741/2025/09/14/ucla-coaching-candidates-deshaun
 **How good is the UCLA coaching job after DeShaun Foster's firing?**\
 `It’s a Big Ten job in Southern California, so there’s a lot to like in theory — enough that this opening will get a lot of interest.`\
 https://nytimes.com/athletic/6628474/2025/09/14/ucla-football-coaching-job-candidates-grades/
-
-**Capitals place assistant coach Mitch Love on leave pending NHL investigation**\
-`The Capitals said they would not comment on Love’s situation until the NHL completes its investigation.`\
-https://nytimes.com/athletic/6628735/2025/09/14/capitals-mitch-love-nhl-investigation/
-
-**Trump Administration Claims Vast Powers as It Races to Fire Fed Governor Before Meeting**\
-`Trump has forged ahead with his attempts to fire Lisa Cook even as new documents call his claims of mortgage fraud into question.`\
-https://nytimes.com/2025/09/14/us/politics/trump-lisa-cook-fed.html
-
-**Amorim 'suffering more' than Manchester United fans after derby defeat**\
-`Amorim again suggested that the club's hierarchy would need to sack him if they want to see a shift in tactical approach`\
-https://nytimes.com/athletic/6628702/2025/09/14/ruben-amorim-manchester-united-city-fans/
 
