@@ -1,4 +1,8 @@
-**Jaguars vs. Bengals: Joe Burrow exits game with apparent lower-leg injury**\
+**Bears cornerback Jaylon Johnson exits game vs. Lions game with groin injury**\
+`Johnson missed all of training camp and the season opener due to a groin injury and made his return Sunday in Detroit.`\
+https://nytimes.com/athletic/6628547/2025/09/14/bears-lions-jaylon-johnson-groin-injury/
+
+**Joe Burrow exits vs. Jaguars with toe injury in 2nd quarter, questionable to return**\
 `Burrow was sacked by Jaguars defender Arik Armstead with 9:02 to play in the first half, and remained on the ground.`\
 https://nytimes.com/athletic/6628370/2025/09/14/joe-burrow-injury-jaguars-bengals-score-result-takeaways-nfl/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6628408/2025/09/14/ny-giants-james-hudson-penalties
 **Patrick McGovern, the ‘Indiana Jones of Ancient Alcohol,’ Dies at 80**\
 `An archaeologist, he discovered and analyzed the residue of beverages imbibed by long-vanished civilizations and then figured out how to recreate them.`\
 https://nytimes.com/2025/09/14/obituaries/patrick-mcgovern-dead.html
-
-**‘Infinity Castle’ Tops the Box Office, Revealing Changing Tastes**\
-`“Demon Slayer: Kimetsu no Yaiba Infinity Castle,” an anime film from Sony Pictures, arrives to a surprisingly strong $70 million in domestic ticket sales.`\
-https://nytimes.com/2025/09/14/business/anime-demon-slayer-box-office.html
 
