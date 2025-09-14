@@ -24,7 +24,7 @@ https://nytimes.com/live/2025/09/14/arts/emmy-awards/creative-arts-emmys-the-stu
 
 **Moment of frustration with Trevor Lawrence 'not personal,' says Jags coach**\
 `Relationship between Jacksonville QB and his first-year head coach under scrutiny.`\
-https://nytimes.com/athletic/6629081/2025/09/14/jacksonville-jaguars-trevor-lawrence-liam-coen-interaction/
+https://nytimes.com/athletic/6629081/2025/09/14/trevor-lawrence-liam-coen-fight-argument/
 
 **The Corporation for Public Broadcasting Received a Special, and Bittersweet, Award**\
 `The organization, which plans to close after President Trump rescinded more than $1 billion earmarked for public broadcasting, was given the Television Academy’s Governors Award.`\
