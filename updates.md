@@ -1,3 +1,7 @@
+**Postcard Sent From the U.N. Is Returned to Sender After 72 Years**\
+`Alan Ball sent the postcard to his family during the summer of 1953. Last week, it arrived at his home in Idaho.`\
+https://nytimes.com/2025/09/14/us/lost-postcard-united-nations.html
+
 **Kirk Shooting Suspect Held ‘Leftist Ideology,’ Utah Governor Says**\
 `Gov. Spencer Cox said the suspect had been “radicalized,” and noted he had a romantic partner who is transitioning from male to female who is cooperating fully with investigators.`\
 https://nytimes.com/2025/09/14/us/kirk-shooting-suspect-ideology-partner.html
