@@ -1,3 +1,7 @@
+**Melissa Jefferson-Wooden wins 100-meter world title with championship record run**\
+`The American capped an undefeated year that has seen her emerge as the clear No. 1 in the women's 100-meter.`\
+https://nytimes.com/athletic/6627808/2025/09/14/melissa-jefferson-wooden-noah-lyles-kishane-thompson-100-meter-world-athletics-championships/
+
 **Hatton remembered: Tributes flow in after death of former boxing champion at 46**\
 `Greater Manchester Police said in a statement that a body had been found on Sunday morning in the town of Hyde`\
 https://nytimes.com/athletic/6627699/2025/09/14/ricky-hatton-news-dead-boxing/
