@@ -1,3 +1,7 @@
+**​Kim Seongmin, Defector Who Pierced North Korea by Radio, Dies at 63**\
+`As a military propagandist, he fled the North by jumping off a train. In the South, he broadcast forbidden outside news to isolated North Koreans.`\
+https://nytimes.com/2025/09/14/world/asia/kim-seongmin-dead.html
+
 **Virginia Tech firing Brent Pry after blowout loss to Old Dominion, 0-3 start**\
 `The dreadful tenure of Pry continued a downward trend for a once-proud Hokie program.`\
 https://nytimes.com/athletic/6627099/2025/09/14/virginia-tech-brent-pry-firing/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/09/14/us/kirk-shooting-suspect-ideology-partner.html
 **It took a generation of Giants hitters to get to Clayton Kershaw. Was it enough?**\
 `The Giants took the field and positioned themselves to scoot ahead while accomplishing something unprecedented in their 13-7 loss Saturday.`\
 https://nytimes.com/athletic/6627483/2025/09/14/giants-clayton-kershaw-hitters/
-
-**What's the difference between Carson Beck and Cam Ward at Miami? It's hard to tell so far**\
-`Beck has a better supporting cast, but he already has two more wins over ranked opponents than Ward did last season.`\
-https://nytimes.com/athletic/6628060/2025/09/14/carson-beck-cam-ward-miami-hurricanes-quarterback/
 
