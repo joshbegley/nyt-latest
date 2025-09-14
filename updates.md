@@ -1,3 +1,15 @@
+**Seahawks hijack 'Renegade' to put Steelers away in Pittsburgh: 'That's our song'**\
+`The Seahawks dominated in the second half and stole the energy from Pittsburgh's famous Terrible Towels to continue their road success.`\
+https://nytimes.com/athletic/6629108/2025/09/14/seahawks-steelers-renegade-darnold-dk-metcalf/
+
+**Drake Maye delivers his best pro performance in tone-setting win for Mike Vrabel, Patriots**\
+`The second-year QB went 19-of-23 passing for 230 yards, two TDs, a rushing score and no turnovers in getting Vrabel his first win as coach.`\
+https://nytimes.com/athletic/6629092/2025/09/14/drake-maye-mike-vrabel-patriots-dolphins-nfl-week-2/
+
+**Moment of frustration with Trevor Lawrence 'not personal,' says Jags coach**\
+`Relationship between Jacksonville QB and his first-year head coach under scrutiny.`\
+https://nytimes.com/athletic/6629081/2025/09/14/trevor-lawrence-liam-coen-fight-argument/
+
 **Bobby Hart, Who Helped Give the Monkees Their Music, Dies at 86**\
 `He and Tommy Boyce formed a hit songwriting duo of the 1960s, and were best known for the unexpectedly popular tunes of a made-for-TV boy band.`\
 https://nytimes.com/2025/09/14/obituaries/bobby-hart-dead.html

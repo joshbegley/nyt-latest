@@ -1,3 +1,11 @@
+**What happened at the end of the first half in the Lions' win over the Bears?**\
+`The Bears were running to the locker room down only seven points at the half, but a reversal by officials `\
+https://nytimes.com/athletic/6629243/2025/09/14/bears-lions-end-of-half-confusion/
+
+**Shohei Ohtani, agent file motion to dismiss Hawaii development lawsuit**\
+`The plaintiffs' lawsuit alleged that Ohtani's agent conducted a “a calculated and unlawful scheme” to interfere with the development.`\
+https://nytimes.com/athletic/6629265/2025/09/14/shohei-ohtani-agent-lawsuit-hawaii-development/
+
 **Seahawks hijack 'Renegade' to put Steelers away in Pittsburgh: 'That's our song'**\
 `The Seahawks dominated in the second half and stole the energy from Pittsburgh's famous Terrible Towels to continue their road success.`\
 https://nytimes.com/athletic/6629108/2025/09/14/seahawks-steelers-renegade-darnold-dk-metcalf/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6629081/2025/09/14/trevor-lawrence-liam-coen-fight-
 **The Corporation for Public Broadcasting Received a Special, and Bittersweet, Award**\
 `The organization, which plans to close after President Trump rescinded more than $1 billion earmarked for public broadcasting, was given the Television Academy’s Governors Award.`\
 https://nytimes.com/2025/09/14/arts/television/public-broadcasting-emmy.html
-
-**Why Chiefs-Eagles TV coverage was delayed by Cowboys-Giants overtime**\
-`The long overtime in Dallas forced some viewers to miss the first 10-plus minutes of the highly anticipated Super Bowl rematch.`\
-https://nytimes.com/athletic/6628960/2025/09/14/kansas-city-chiefs-philadelphia-eagles-coverage/
-
-**UCLA's DeShaun Foster isn't an anomaly — 40 coaches haven't made it past Year 2 since 2000**\
-`Several were dismissed for off-the-field issues, but most were canned simply for not winning enough games. `\
-https://nytimes.com/athletic/6628985/2025/09/14/ucla-deshaun-foster-coaches-fired-two-years/
 

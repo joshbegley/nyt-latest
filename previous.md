@@ -1,9 +1,13 @@
+**Seahawks hijack 'Renegade' to put Steelers away in Pittsburgh: 'That's our song'**\
+`The Seahawks dominated in the second half and stole the energy from Pittsburgh's famous Terrible Towels to continue their road success.`\
+https://nytimes.com/athletic/6629108/2025/09/14/seahawks-steelers-renegade-darnold-dk-metcalf/
+
 **Bobby Hart, Who Helped Give the Monkees Their Music, Dies at 86**\
 `He and Tommy Boyce formed a hit songwriting duo of the 1960s, and were best known for the unexpectedly popular tunes of a made-for-TV boy band.`\
 https://nytimes.com/2025/09/14/obituaries/bobby-hart-dead.html
 
 **Drake Maye delivers his best pro performance in tone-setting win for Mike Vrabel, Patriots**\
-`The second-year QB was 19-of-23 passing for 230 yards, two TDs, a rushing score and no turnovers in getting Vrabel his first win as coach.`\
+`The second-year QB went 19-of-23 passing for 230 yards, two TDs, a rushing score and no turnovers in getting Vrabel his first win as coach.`\
 https://nytimes.com/athletic/6629092/2025/09/14/drake-maye-mike-vrabel-patriots-dolphins-nfl-week-2/
 
 **U.K. Plans Biggest Security Operation Since Coronation for Trump’s State Visit**\
@@ -20,7 +24,7 @@ https://nytimes.com/live/2025/09/14/arts/emmy-awards/creative-arts-emmys-the-stu
 
 **Moment of frustration with Trevor Lawrence 'not personal,' says Jags coach**\
 `Relationship between Jacksonville QB and his first-year head coach under scrutiny.`\
-https://nytimes.com/athletic/6629081/2025/09/14/jacksonville-jaguars-trevor-lawrence-liam-coen-interaction/
+https://nytimes.com/athletic/6629081/2025/09/14/trevor-lawrence-liam-coen-fight-argument/
 
 **The Corporation for Public Broadcasting Received a Special, and Bittersweet, Award**\
 `The organization, which plans to close after President Trump rescinded more than $1 billion earmarked for public broadcasting, was given the Television Academy’s Governors Award.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6628960/2025/09/14/kansas-city-chiefs-philadelphia-
 **UCLA's DeShaun Foster isn't an anomaly — 40 coaches haven't made it past Year 2 since 2000**\
 `Several were dismissed for off-the-field issues, but most were canned simply for not winning enough games. `\
 https://nytimes.com/athletic/6628985/2025/09/14/ucla-deshaun-foster-coaches-fired-two-years/
-
-**What Malnutrition Has Done to Gaza’s Children**\
-`The enclave is experiencing some of the highest levels of malnutrition since the fighting began. Even children who recover will carry the physical consequences for the rest of their lives.`\
-https://nytimes.com/2025/09/14/briefing/malnutrition-gaza-nepal-charlie-kirk-romania.html
 
