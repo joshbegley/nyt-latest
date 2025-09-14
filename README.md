@@ -1,3 +1,15 @@
+**McNulty wins GP Cycliste de Montréal ahead of Pogacar as UAE Team-Emirates tie seasonal win record**\
+`American rider adds first WorldTour one day race victory to his palmares`\
+https://nytimes.com/athletic/6628834/2025/09/14/mcnulty-pogacar-montreal-uae-85-win-record/
+
+**Sam Kerr scores in her first game for Chelsea in 634 days, completing a long awaited comeback**\
+`The forward scored her 100th Chelsea goal after nearly two years away due to an ACL injury`\
+https://nytimes.com/athletic/6628517/2025/09/14/sam-kerr-chelsea-return-injury-scores/
+
+**Browns vs. Ravens: Takeaways from Baltimore's redemption win over Cleveland**\
+`The Ravens got a bounce-back performance on defense and some unlikely offensive contributors.`\
+https://nytimes.com/athletic/6628579/2025/09/14/browns-ravens-score-result-takeaways-nfl/
+
 **Rams vs. Titans: 4 takeaways from L.A.'s victory over Tennessee**\
 `Matt Stafford passed for 298 yards and two touchdowns to outduel No. 1 pick Cam Ward.`\
 https://nytimes.com/athletic/6628369/2025/09/14/rams-titans-score-result-takeaways-nfl/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6628798/2025/09/14/steelers-blunder-kickoff-return-
 **Dennis Schröder, Germany win EuroBasket gold over Turkey; Giannis, Greece take 3rd**\
 `Germany survived a close matchup against Turkey to earn its first EuroBasket gold medal since 1993.`\
 https://nytimes.com/athletic/6627914/2025/09/14/eurobasket-championship-germany-wins-dennis-schroder-2025/
-
-**Ireland captain spoke to officials about alleged Rugby World Cup biting incident**\
-`France's Axelle Berthoumieu could face a ban for the semi-finals after the alleged incident involving Ireland's Aoife Wafer.`\
-https://nytimes.com/athletic/6628466/2025/09/14/rugby-world-cup-biting-incident-ireland-france/
-
-**DeShaun Foster out at UCLA: Can an archrival coach lead a turnaround?**\
-`D’Anton Lynn leads a varied list of potential replacements for DeShaun Foster.`\
-https://nytimes.com/athletic/6628741/2025/09/14/ucla-coaching-candidates-deshaun-foster-fired/
-
-**How good is the UCLA coaching job after DeShaun Foster's firing?**\
-`It’s a Big Ten job in Southern California, so there’s a lot to like in theory — enough that this opening will get a lot of interest.`\
-https://nytimes.com/athletic/6628474/2025/09/14/ucla-football-coaching-job-candidates-grades/
 

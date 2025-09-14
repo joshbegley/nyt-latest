@@ -1,3 +1,15 @@
+**Rams vs. Titans: 4 takeaways from L.A.'s victory over Tennessee**\
+`Matt Stafford passed for 298 yards and two touchdowns to outduel No. 1 pick Cam Ward.`\
+https://nytimes.com/athletic/6628369/2025/09/14/rams-titans-score-result-takeaways-nfl/
+
+**The Pulse: Clemson's quick plummet**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6627343/2025/09/14/clemson-could-go-from-playoff-certainty-to-unranked/
+
+**Cal Raleigh's 54th home run ties Mickey Mantle for most by a switch hitter**\
+`Raleigh this year has already hit the most homers by a primary catcher. With two more, he'll match Ken Griffey Jr.'s franchise record.`\
+https://nytimes.com/athletic/6611441/2025/09/14/cal-raleigh-mickey-mantle-season-home-run-record/
+
 **Patriots vs. Dolphins: 5 takeaways from New England's wild victory**\
 `Drake Maye and the Patriots held off Miami in a game that featured wild swings, huge special teams plays and a startling lack of defense.`\
 https://nytimes.com/athletic/6628271/2025/09/14/patriots-dolphins-score-result-takeaways-nfl/
