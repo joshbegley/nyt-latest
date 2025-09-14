@@ -1,3 +1,7 @@
+**Hermeto Pascoal, Eccentric and Prolific Brazilian Composer, Dies at 89**\
+`A self-taught multi-instrumentalist, he rose from a childhood of rural privation to become a favorite of jazz musicians and audiences around the world.`\
+https://nytimes.com/2025/09/14/arts/music/hermeto-pascoal-dead.html
+
 **Charlie Kirk’s Killing and Our Poisonous Internet**\
 `We’ve fully stepped into a different historical moment: the age of brain-poisoning meme politics.`\
 https://nytimes.com/2025/09/14/opinion/charlie-kirk-shooting-internet.html

@@ -1,3 +1,7 @@
+**Hermeto Pascoal, Eccentric and Prolific Brazilian Composer, Dies at 89**\
+`A self-taught multi-instrumentalist, he rose from a childhood of rural privation to become a favorite of jazz musicians and audiences around the world.`\
+https://nytimes.com/2025/09/14/arts/music/hermeto-pascoal-dead.html
+
 **Charlie Kirk’s Killing and Our Poisonous Internet**\
 `We’ve fully stepped into a different historical moment: the age of brain-poisoning meme politics.`\
 https://nytimes.com/2025/09/14/opinion/charlie-kirk-shooting-internet.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6614354/2025/09/14/tottenham-lewis-family-frank/
 **'There's a need to win. The others feel that way too. Our ambition is high now'**\
 `The 20-year-old is tipped for big things in the WSL - in joining Everton she says she's signed for a club on the up`\
 https://nytimes.com/athletic/6612561/2025/09/14/martina-fernandez-everton-interview/
-
-**Man City vs Man Utd preview: Key players, new 'keepers, and who can handle the pressure**\
-`Before a high-pressure Manchester derby, Carl Anka and Jordan Campbell dissect the important issues`\
-https://nytimes.com/athletic/6620073/2025/09/14/manchester-city-manchester-united-preview-line-ups/
 
