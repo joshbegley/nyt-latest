@@ -1,3 +1,7 @@
+**Blue Jays to promote prospect Trey Yesavage to big leagues amid pennant push: Sources**\
+`With dominant outings in the low minors, Yesavage quickly jumped onto the Jays' radar as a potential candidate for a 2025 debut.`\
+https://nytimes.com/athletic/6627159/2025/09/13/trey-yesavage-blue-jays-promotion/
+
 **Iowa's Kirk Ferentz breaks Woody Hayes' Big Ten wins record**\
 `With a 47-7 win against UMass, Ferentz collected his 206th win as a Big Ten coach.`\
 https://nytimes.com/athletic/6626822/2025/09/13/kirk-ferentz-big-ten-wins-record-iowa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6627082/2025/09/13/lanorris-sellers-south-carolina-
 **Oregon HC Lanning on Charlie Kirk's death: 'The US could learn a lot from our locker room'**\
 `Lanning gave a poignant response to a question about the week's events after Saturday's game. `\
 https://nytimes.com/athletic/6627014/2025/09/13/oregon-ducks-dan-lanning-charlie-kirk/
-
-**How to watch Orioles at Blue Jays: Time, TV, streaming for September 14**\
-`Find out how to watch the Baltimore Orioles play the Toronto Blue Jays, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6627038/2025/09/13/orioles-vs-blue-jays-stream-how-to-watch-sept-14/
 

@@ -1,3 +1,7 @@
+**Blue Jays to promote prospect Trey Yesavage to big leagues amid pennant push: Sources**\
+`With dominant outings in the low minors, Yesavage quickly jumped onto the Jays' radar as a potential candidate for a 2025 debut.`\
+https://nytimes.com/athletic/6627159/2025/09/13/trey-yesavage-blue-jays-promotion/
+
 **Iowa's Kirk Ferentz breaks Woody Hayes' Big Ten wins record**\
 `With a 47-7 win against UMass, Ferentz collected his 206th win as a Big Ten coach.`\
 https://nytimes.com/athletic/6626822/2025/09/13/kirk-ferentz-big-ten-wins-record-iowa/
