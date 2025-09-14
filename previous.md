@@ -1,4 +1,12 @@
-**South Carolina QB LaNorris Sellers injured late in second quarter vs. Vanderbilt**\
+**Texas A&M's Bryce Anderson stretchered off field vs. ND in neck brace**\
+`Anderson was placed on a backboard and then on a cart. As he was driven off, the DB gave a thumbs up to an applauding crowd.`\
+https://nytimes.com/athletic/6627116/2025/09/13/bryce-anderson-injury-texas-am-notre-dame/
+
+**Federal Judge Questions Deportations to Ghana**\
+`A hearing in the case of five migrants deported to Ghana last week showed how earlier Supreme Court rulings have paved the way for President Trump’s mass deportation campaign.`\
+https://nytimes.com/2025/09/13/us/politics/federal-judge-migrants-ghana.html
+
+**South Carolina QB LaNorris Sellers injured vs. Vanderbilt, will not return**\
 `Sellers left the game with just under two minutes remaining in the half after a helmet-to-helmet hit by Vanderbilt LB Langston Patterson. `\
 https://nytimes.com/athletic/6627082/2025/09/13/lanorris-sellers-south-carolina-qb-injury/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6626923/2025/09/13/brewers-postseason-berth-mets-lo
 **After Kirk’s Killing, Suspect Joked That His ‘Doppelganger’ Did It**\
 `Before he was arrested on suspicion of carrying out the assassination, 22-year-old Tyler Robinson sent friends messages showing that he was closely following news about the killing.`\
 https://nytimes.com/2025/09/13/us/kirk-killing-suspect-online-chat.html
-
-**College Football Playoff 2025 projections: Georgia rising, Clemson plummets in Week 3**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/09/13/college-football-playoff-bracket-projections-odds/
-
-**Mass Firing of Probationary Federal Employees Was Illegal, Judge Rules**\
-`Months have passed since the lawsuit was filed, and many of the fired employees have moved on, the judge noted.`\
-https://nytimes.com/2025/09/13/us/politics/probationary-employees-firing-illegal.html
 

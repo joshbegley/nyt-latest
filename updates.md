@@ -1,3 +1,15 @@
+**Texas A&M's Bryce Anderson stretchered off field vs. ND in neck brace**\
+`Anderson was placed on a backboard and then on a cart. As he was driven off, the DB gave a thumbs up to an applauding crowd.`\
+https://nytimes.com/athletic/6627116/2025/09/13/bryce-anderson-injury-texas-am-notre-dame/
+
+**Federal Judge Questions Deportations to Ghana**\
+`A hearing in the case of five migrants deported to Ghana last week showed how earlier Supreme Court rulings have paved the way for President Trump’s mass deportation campaign.`\
+https://nytimes.com/2025/09/13/us/politics/federal-judge-migrants-ghana.html
+
+**South Carolina QB LaNorris Sellers injured vs. Vanderbilt, will not return**\
+`Sellers left the game with just under two minutes remaining in the half after a helmet-to-helmet hit by Vanderbilt LB Langston Patterson. `\
+https://nytimes.com/athletic/6627082/2025/09/13/lanorris-sellers-south-carolina-qb-injury/
+
 **South Carolina QB LaNorris Sellers injured late in second quarter vs. Vanderbilt**\
 `Sellers left the game with just under two minutes remaining in the half after a helmet-to-helmet hit by Vanderbilt LB Langston Patterson. `\
 https://nytimes.com/athletic/6627082/2025/09/13/lanorris-sellers-south-carolina-qb-injury/
