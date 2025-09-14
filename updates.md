@@ -1,3 +1,11 @@
+**Kirk Shooting Suspect Held ‘Leftist Ideology,’ Utah Governor Says**\
+`Gov. Spencer Cox said the suspect had been “radicalized,” and noted he had a romantic partner who is transitioning from male to female who is cooperating fully with investigators.`\
+https://nytimes.com/2025/09/14/us/kirk-shooting-suspect-ideology-partner.html
+
+**It took a generation of Giants hitters to get to Clayton Kershaw. Was it enough?**\
+`The Giants took the field and positioned themselves to scoot ahead while accomplishing something unprecedented in their 13-7 loss Saturday.`\
+https://nytimes.com/athletic/6627483/2025/09/14/giants-clayton-kershaw-hitters/
+
 **What's the difference between Carson Beck and Cam Ward at Miami? It's hard to tell so far**\
 `Beck has a better supporting cast, but he already has two more wins over ranked opponents than Ward did last season.`\
 https://nytimes.com/athletic/6628060/2025/09/14/carson-beck-cam-ward-miami-hurricanes-quarterback/
