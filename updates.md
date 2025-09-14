@@ -1,3 +1,7 @@
+**Mandel's Final Thoughts: Texas A&M's breakthrough, Tennessee heartbreak and more**\
+`Plus: Kirk Ferentz breaks Woody Hayes' Big Ten career wins record, and Georgia Tech should no longer be slept on.`\
+https://nytimes.com/athletic/6627476/2025/09/14/mandel-texas-am-notre-dame-tennessee/
+
 **Inside the Most Valuable Team in Women’s Sports**\
 `Expectations were low for the Golden State Valkyries, the W.N.B.A.’s first expansion team in 17 years, but they captivated Bay Area sports fans and surprised the league by securing a playoff spot in their first season.`\
 https://nytimes.com/2025/09/14/us/inside-the-most-valuable-team-in-womens-sports.html
