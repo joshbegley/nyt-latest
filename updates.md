@@ -1,3 +1,11 @@
+**Inside the Most Valuable Team in Women’s Sports**\
+`Expectations were low for the Golden State Valkyries, the W.N.B.A.’s first expansion team in 17 years, but they captivated Bay Area sports fans and surprised the league by securing a playoff spot in their first season.`\
+https://nytimes.com/2025/09/14/us/inside-the-most-valuable-team-in-womens-sports.html
+
+**People Are Seeking God in Chatbots**\
+`They’re confessing their secrets — and searching for something omniscient. Plus, we’re launching Believing, a new newsletter on modern religion and spirituality.`\
+https://nytimes.com/2025/09/14/briefing/people-are-seeking-god-in-chatbots.html
+
 **Sheffield United set to dismiss Selles with Wilder lined up as replacement**\
 `Friday’s 5-0 loss to Ipswich Town ensured Selles had overseen a defeat in each of his six games at the helm`\
 https://nytimes.com/athletic/6624339/2025/09/14/sheffield-united-manager-selles-sacked/
