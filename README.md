@@ -1,3 +1,7 @@
+**Tottenham winger Kudus' wooden elephant seat returned to him by West Ham**\
+`On Saturday, the 25-year-old winger made his first return to the London Stadium since his £55million ($74.5m) summer switch`\
+https://nytimes.com/athletic/6626641/2025/09/14/mohammed-kudus-celebration-tottenham-west-ham/
+
 **The New York Times International Edition in Print for Monday, Sep. 15, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/09/14/todays-new-york-times-international-edition
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/14/style/bobbi-brown-tells-her-beauty-comeback-story
 **U.S. and China to Resume Talks on Tariffs and TikTok**\
 `Economic officials meeting in Madrid will seek to head off a November tariff deadline.`\
 https://nytimes.com/2025/09/14/business/us-china-trade-tiktok-negotiations.html
-
-**After a Landmark Election, a Disillusioned Malawi Returns to the Polls**\
-`The decision by the country’s top court to overturn the last presidential race was hailed as a victory for democracy. But there are fears corruption will taint the vote on Tuesday.`\
-https://nytimes.com/2025/09/14/world/africa/after-a-landmark-election-a-disillusioned-malawi-returns-to-the-polls.html
 
