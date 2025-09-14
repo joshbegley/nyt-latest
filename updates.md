@@ -1,3 +1,11 @@
+**Ireland captain spoke to officials about alleged Rugby World Cup biting incident**\
+`France's Axelle Berthoumieu could face a ban for the semi-finals after the alleged incident involving Ireland's Aoife Wafer.`\
+https://nytimes.com/athletic/6628466/2025/09/14/rugby-world-cup-biting-incident-ireland-france/
+
+**DeShaun Foster out at UCLA: Can an arch-rival coach lead a turnaround?**\
+`D’Anton Lynn leads a varied list of potential replacements for DeShaun Foster. `\
+https://nytimes.com/athletic/6628741/2025/09/14/ucla-coaching-candidates-deshaun-foster-fired/
+
 **How good is the UCLA coaching job after DeShaun Foster's firing?**\
 `It’s a Big Ten job in Southern California, so there’s a lot to like in theory — enough that this opening will get a lot of interest.`\
 https://nytimes.com/athletic/6628474/2025/09/14/ucla-football-coaching-job-candidates-grades/

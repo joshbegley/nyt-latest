@@ -1,3 +1,11 @@
+**Ireland captain spoke to officials about alleged Rugby World Cup biting incident**\
+`France's Axelle Berthoumieu could face a ban for the semi-finals after the alleged incident involving Ireland's Aoife Wafer.`\
+https://nytimes.com/athletic/6628466/2025/09/14/rugby-world-cup-biting-incident-ireland-france/
+
+**DeShaun Foster out at UCLA: Can an arch-rival coach lead a turnaround?**\
+`D’Anton Lynn leads a varied list of potential replacements for DeShaun Foster. `\
+https://nytimes.com/athletic/6628741/2025/09/14/ucla-coaching-candidates-deshaun-foster-fired/
+
 **How good is the UCLA coaching job after DeShaun Foster's firing?**\
 `It’s a Big Ten job in Southern California, so there’s a lot to like in theory — enough that this opening will get a lot of interest.`\
 https://nytimes.com/athletic/6628474/2025/09/14/ucla-football-coaching-job-candidates-grades/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6622658/2025/09/14/jason-ayto-brighton-david-weir/
 **Bears cornerback Jaylon Johnson ruled out vs. Lions with groin injury**\
 `Johnson missed all of training camp and the season opener due to a groin injury and made his return Sunday in Detroit.`\
 https://nytimes.com/athletic/6628547/2025/09/14/bears-lions-jaylon-johnson-groin-injury/
-
-**Bengals' Joe Burrow suffers toe injury, ruled out vs. Jaguars**\
-`Burrow was sacked by Jaguars defender Arik Armstead with 9:02 to play in the first half, and remained on the ground.`\
-https://nytimes.com/athletic/6628370/2025/09/14/joe-burrow-injury-jaguars-bengals-score-result-takeaways-nfl/
-
-**Enfield vs Enfield: The most unusual rivals in English football meet for the first time in the FA Cup**\
-`It’s difficult to understand why Enfield FC needs to exist in its current form – it was a comprehensive win for Town, on and off the pitch`\
-https://nytimes.com/athletic/6626426/2025/09/14/enfield-derby-rivalry-fa-cup/
 
