@@ -1,3 +1,7 @@
+**White House Seeks More Supreme Court Security Funding After Kirk Killing**\
+`In a notice to Congress, the Trump administration said the additional $58 million would go to the U.S. Marshals Service. It also said it supported additional security for lawmakers.`\
+https://nytimes.com/2025/09/14/us/politics/trump-security-supreme-court-congress.html
+
 **Europe VC Noren wins Wentworth playoff - how did Ryder Cup players perform?**\
 `It was Noren’s 12th win on the DP World Tour in his 307th appearance - the European team flies out on Sunday evening.`\
 https://nytimes.com/athletic/6628092/2025/09/14/bmw-pga-championship-alex-noren/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/09/14/dining/a-quick-shrimp-dinner-for-long-stumping-su
 **Would-Be Bomber Is Imprisoned Again After Donating to Co-Conspirators**\
 `Najibullah Zazi admitted plotting an attack on the New York City subway with two friends, and then testified against them. Now he is behind bars after putting money in their prison accounts.`\
 https://nytimes.com/2025/09/14/nyregion/zazi-terrorism-detention.html
-
-**After Fiery Protests, Nepal’s Leader Promises a Brief, Caretaker Term**\
-`Prime Minister Sushila Karki, a former chief justice, said she had accepted her new role reluctantly. Major political parties say the process is unconstitutional.`\
-https://nytimes.com/2025/09/14/world/asia/nepal-prime-minister-promises.html
 
