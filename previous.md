@@ -1,3 +1,11 @@
+**Man City 3 Man Utd 0 - How good was Haaland? How were United cut open? What next for Amorim?**\
+`Analysis of Manchester City's dominant derby victory over Manchester United`\
+https://nytimes.com/athletic/6625474/2025/09/14/manchester-city-united-haaland-highlights/
+
+**The Best Tea Steepers**\
+`Text by Samantha Lande and Alexis Cheung`\
+https://nytimes.com/card/2025/09/14/smarter-living/wirecutter/
+
 **​Kim Seongmin, Defector Who Pierced North Korea by Radio, Dies at 63**\
 `As a military propagandist, he fled the North by jumping off a train. In the South, he broadcast forbidden outside news to isolated North Koreans.`\
 https://nytimes.com/2025/09/14/world/asia/kim-seongmin-dead.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6628233/2025/09/14/submit-your-questions-for-antoni
 **Postcard Sent From the U.N. Is Returned to Sender After 72 Years**\
 `Alan Ball sent the postcard to his family during the summer of 1953. Last week, it arrived at his home in Idaho.`\
 https://nytimes.com/2025/09/14/us/lost-postcard-united-nations.html
-
-**Kirk Shooting Suspect Held ‘Leftist Ideology,’ Utah Governor Says**\
-`Gov. Spencer Cox said the suspect had been “radicalized,” and noted he had a romantic partner who is transitioning from male to female who is cooperating fully with investigators.`\
-https://nytimes.com/2025/09/14/us/kirk-shooting-suspect-ideology-partner.html
-
-**It took a generation of Giants hitters to get to Clayton Kershaw. Was it enough?**\
-`The Giants took the field and positioned themselves to scoot ahead while accomplishing something unprecedented in their 13-7 loss Saturday.`\
-https://nytimes.com/athletic/6627483/2025/09/14/giants-clayton-kershaw-hitters/
 

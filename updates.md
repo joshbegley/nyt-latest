@@ -1,3 +1,11 @@
+**Man City 3 Man Utd 0 - How good was Haaland? How were United cut open? What next for Amorim?**\
+`Analysis of Manchester City's dominant derby victory over Manchester United`\
+https://nytimes.com/athletic/6625474/2025/09/14/manchester-city-united-haaland-highlights/
+
+**The Best Tea Steepers**\
+`Text by Samantha Lande and Alexis Cheung`\
+https://nytimes.com/card/2025/09/14/smarter-living/wirecutter/
+
 **​Kim Seongmin, Defector Who Pierced North Korea by Radio, Dies at 63**\
 `As a military propagandist, he fled the North by jumping off a train. In the South, he broadcast forbidden outside news to isolated North Koreans.`\
 https://nytimes.com/2025/09/14/world/asia/kim-seongmin-dead.html
