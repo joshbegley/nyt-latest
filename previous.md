@@ -1,3 +1,11 @@
+**Isak's omission at Burnley 'best lead-up' for Atletico match, says Slot**\
+`Sunday's Premier League match at Turf Moor was Liverpool's first since completing the signing of Isak, but he was not included in the squad.`\
+https://nytimes.com/athletic/6627868/2025/09/14/alexander-isaks-liverpool-burnley-omission/
+
+**College Football Playoff 2025 projections: Texas A&M rises, Notre Dame and Clemson plummet**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/09/14/college-football-playoff-bracket-projections-odds/
+
 **Dirk Nowitzki believes in Cooper Flagg hype, ready to watch in new analyst role**\
 `"The hype is real, for sure," Nowitzki said of Flagg, as the NBA Hall of Famer prepares for his new broadcasting job.`\
 https://nytimes.com/athletic/6626681/2025/09/14/cooper-flagg-dirk-nowitzki-amazon/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/14/opinion/us-china-ai.html
 **Lula: Brazilian Democracy and Sovereignty Are Non-Negotiable**\
 `The president of Brazil calls U.S. tariffs on his country “not only misguided but also illogical” and defends former President Jair Bolsonaro’s conviction.`\
 https://nytimes.com/2025/09/14/opinion/lula-da-silva-brazil-trump-bolsonaro.html
-
-**Introducing: Believing, Our Newsletter on Religion and Spirituality**\
-`Each week, we’ll be covering how faith shapes our politics, culture and society — and how it’s appearing in new forms.`\
-https://nytimes.com/2025/09/14/briefing/charlie-kirk-religion-spirituality.html
-
-**'How in the wide world?' Sam Leavitt, Jordyn Tyson produce incredible TD in Arizona State win**\
-`Saturday night's win was an encouraging step, one that featured enough star power and defense to keep this reality series interesting.`\
-https://nytimes.com/athletic/6627487/2025/09/14/arizona-state-sam-leavitt-jordyn-tyson-touchdown-texas-state/
 

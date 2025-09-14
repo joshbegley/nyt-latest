@@ -1,3 +1,11 @@
+**Isak's omission at Burnley 'best lead-up' for Atletico match, says Slot**\
+`Sunday's Premier League match at Turf Moor was Liverpool's first since completing the signing of Isak, but he was not included in the squad.`\
+https://nytimes.com/athletic/6627868/2025/09/14/alexander-isaks-liverpool-burnley-omission/
+
+**College Football Playoff 2025 projections: Texas A&M rises, Notre Dame and Clemson plummet**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/09/14/college-football-playoff-bracket-projections-odds/
+
 **Dirk Nowitzki believes in Cooper Flagg hype, ready to watch in new analyst role**\
 `"The hype is real, for sure," Nowitzki said of Flagg, as the NBA Hall of Famer prepares for his new broadcasting job.`\
 https://nytimes.com/athletic/6626681/2025/09/14/cooper-flagg-dirk-nowitzki-amazon/
