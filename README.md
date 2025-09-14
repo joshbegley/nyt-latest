@@ -1,3 +1,15 @@
+**College Football Playoff 2025 projections: Georgia rising, Clemson plummets in Week 3**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/09/13/college-football-playoff-bracket-projections-odds/
+
+**Mass Firing of Probationary Federal Employees Was Illegal, Judge Rules**\
+`Months have passed since the lawsuit was filed, and many of the fired employees have moved on, the judge noted.`\
+https://nytimes.com/2025/09/13/us/politics/probationary-employees-firing-illegal.html
+
+**Is Tennessee QB Joey Aguilar a legit 2026 NFL Draft prospect?**\
+`The Volunteers' new quarterback threw for 371 yards and accounted for five touchdowns in an overtime loss to Georgia.`\
+https://nytimes.com/athletic/6626616/2025/09/13/nfl-draft-2026-tennessee-qb-joey-aguilar/
+
 **In instant classic, Georgia pulls past Tennessee in OT: Takeaways**\
 `Tennessee led 38-30 in the final minutes of the fourth quarter before Georgia rallied.`\
 https://nytimes.com/athletic/6626025/2025/09/13/georgia-tennessee-score-result-takeaways/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6626768/2025/09/13/rangers-vs-mets-stream-how-to-wa
 **Why the ACC's all-access replay review system could start a trend**\
 `The ACC has introduced a level of replay transparency that should become the norm across the country.`\
 https://nytimes.com/athletic/6626662/2025/09/13/acc-replay-review-officials-clemson-georgia-tech/
-
-**Bird’s Eye View**\
-`Daniel Grinberg’s puzzle leaves a cloud of dust in its wake.`\
-https://nytimes.com/2025/09/13/crosswords/daily-puzzle-2025-09-14.html
-
-**MrBeast Awarded $15 Million to Film Reality Show in North Carolina**\
-`The money, which supported the second season of the extreme competition show “Beast Games,” represents nearly half of the state’s annual film and entertainment grants.`\
-https://nytimes.com/2025/09/13/arts/television/mr-beast-north-carolina.html
-
-**Mainoo talent 'not enough', must improve positional sense - Amorim**\
-`The 20-year-old informed the club of his desire to leave on loan in the summer transfer window to play regular first-team football.`\
-https://nytimes.com/athletic/6624365/2025/09/13/kobbie-mainoo-manchester-united-amorim/
 
