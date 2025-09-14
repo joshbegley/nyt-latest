@@ -1,3 +1,7 @@
+**Thomas Muller hits birthday hat-trick as Vancouver smash seven past Philadelphia**\
+`Thomas Muller celebrated his 36th birthday in style on Saturday, scoring a hat-trick for the Vancouver Whitecaps as they ripped apart the Eastern Conference leaders, the Philadelphia Union, in a shock 7-0 win.`\
+https://nytimes.com/athletic/6627287/2025/09/14/thomas-muller-hits-birthday-hat-trick-as-vancouver-smash-seven-past-philadelphia/
+
 **Analysing the most intriguing aspect of every Premier League squad list**\
 `Our club experts analyse the shock omissions, surprise inclusions and youngsters to watch in the official 25-man squad lists`\
 https://nytimes.com/athletic/6623942/2025/09/14/premier-league-squad-list-2025-26/
