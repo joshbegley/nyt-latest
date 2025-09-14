@@ -1,3 +1,7 @@
+**FA launches probe after FA Cup tie abandoned due to alleged racial abuse**\
+`The tie between National League North side Hereford and Sporting Khalsa, who play in the eighth tier, was abandoned on 67 minutes.`\
+https://nytimes.com/athletic/6627576/2025/09/14/football-racist-abuse-fa-cup-hereford-sporting-khalsa/
+
 **Austin Martin finds 'mental freedom' in Twins' aggressive base-running style**\
 `Since making a critical mistake on the bases on Aug. 26, Martin has hit .383/.517/.489 in 60 plate appearances with Minnesota.`\
 https://nytimes.com/athletic/6626618/2025/09/14/austin-martin-twins-aggressive-baserunning/
