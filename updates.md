@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Monday, Sep. 15, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/09/14/todays-new-york-times-international-edition
+
 **How to watch Cardinals at Brewers: Time, TV, streaming for September 14**\
 `Find out how to watch the St. Louis Cardinals play the Milwaukee Brewers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6627612/2025/09/14/cardinals-vs-brewers-stream-how-to-watch-sept-14/
