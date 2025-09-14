@@ -1,40 +1,40 @@
-**After Bolsonaro’s Conviction, Brazil Already Considers His Amnesty**\
-`Brazil’s top court sentenced former President Jair Bolsonaro to 27 years in prison. The nation’s Congress is already debating how to free him.`\
-https://nytimes.com/2025/09/14/world/americas/bolsonaro-convicted-coup-amnesty.html
+**In an Era of Deep Polarization, Unity Is Not Trump’s Mission**\
+`President Trump does not subscribe to the traditional notion of being president for all Americans.`\
+https://nytimes.com/2025/09/14/us/politics/trump-kirk-polarization-unity.html
 
-**A Dust Sample Handled With Care**\
-`After the destruction of the World Trade Center, an urgent question lingered in Lower Manhattan: What was in the air?`\
-https://nytimes.com/2025/09/14/insider/world-trade-center-dust.html
+**Trump’s Reversals on Immigration Mount Over Economic Concerns**\
+`President Trump has walked back some significant immigration policies that collide with his economic agenda, angering his far-right allies.`\
+https://nytimes.com/2025/09/14/us/politics/trump-immigration-policy-reversals.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/09/14/crosswords/spelling-bee-forum.html
+**Charlie Kirk’s Killing Has Left Other Political Influencers Reeling**\
+`Creators and commentators are more anxious than ever about their safety. Some are wondering whether they should continue to make themselves so accessible.`\
+https://nytimes.com/2025/09/14/business/media/charlie-kirk-political-influencers-content-creators.html
 
-**How a Small Avant-Garde Theater Makes It Work in Brooklyn**\
-`The Brick, an Off Off Broadway institution in Williamsburg, has kept the lights on for more than 20 years by cobbling together support from donors, grants and ticket sales.`\
-https://nytimes.com/2025/09/14/nyregion/the-brick-theater-williamsburg.html
+**What to Expect at the 2025 Emmy Awards**\
+`The Apple TV+ series “Severance” and the HBO Max medical show “The Pitt” are in a tight race for best drama, television’s most coveted prize.`\
+https://nytimes.com/2025/09/14/arts/television/what-to-expect-at-the-2025-emmy-awards.html
 
-**‘I Saw, Out of the Corner of My Eye, a Man in Overalls and Work Boots’**\
-`A sheet cake on the 6, the Chambers Brothers live in Queens and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2025/09/14/nyregion/metropolitan-diary.html
+**Bobbi Brown Tells Her Beauty Comeback Story**\
+`The cosmetics mogul reveals how she started all over again, with Jones Road, after leaving Estée Lauder.`\
+https://nytimes.com/2025/09/14/style/bobbi-brown-tells-her-beauty-comeback-story.html
 
-**Romania Reports Russian Drone in Its Airspace**\
-`The brief incursion occurred days after Poland reported Russian drones in its territory. Romania said the drone did not fly over populated areas.`\
-https://nytimes.com/2025/09/14/world/europe/romania-drone-russia-ukraine.html
+**U.S. and China to Resume Talks on Tariffs and TikTok**\
+`Economic officials meeting in Madrid will seek to head off a November tariff deadline.`\
+https://nytimes.com/2025/09/14/business/us-china-trade-tiktok-negotiations.html
 
-**The Dodgers are emphasizing the little things, and finally found a big result**\
-`The Dodgers generated chances and capitalized for once, toppling the Giants 13-7.`\
-https://nytimes.com/athletic/6627439/2025/09/14/dodgers-giants-win-hernandez-ohtani/
+**After a Landmark Election, a Disillusioned Malawi Returns to the Polls**\
+`The decision by the country’s top court to overturn the last presidential race was hailed as a victory for democracy. But there are fears corruption will taint the vote on Tuesday.`\
+https://nytimes.com/2025/09/14/world/africa/after-a-landmark-election-a-disillusioned-malawi-returns-to-the-polls.html
 
-**Terence Crawford upsets Canelo Álvarez with gritty unanimous decision**\
-`Crawford won on all thee judges' scorecards after moving up two weight classes.`\
-https://nytimes.com/athletic/6627012/2025/09/14/canelo-alvarez-terence-crawford-fight-result/
+**Getting Fired Gets You Into This Cool Girls’ Club**\
+`In a new book, two longtime fashion editors — along with Oprah Winfrey, Jamie Lee Curtis and Katie Couric — open up about times they got canned.`\
+https://nytimes.com/2025/09/14/style/cool-girls-get-fired-book.html
 
-**Hermeto Pascoal, Eccentric and Prolific Brazilian Composer, Dies at 89**\
-`A self-taught multi-instrumentalist, he rose from a childhood of rural privation to become a favorite of jazz musicians and audiences around the world.`\
-https://nytimes.com/2025/09/14/arts/music/hermeto-pascoal-dead.html
+**Russia Made Drone Production a Supreme Priority. Now It Swarms the Skies.**\
+`Ukraine is struggling to defend itself against the growing number of attack drones that Moscow has started using in its onslaughts.`\
+https://nytimes.com/2025/09/14/world/europe/russia-ukraine-drone-attacks-production.html
 
-**Tyler Robinson and Our Poisonous Internet**\
-`We’ve fully stepped into a different historical moment: the age of brain-poisoning meme politics.`\
-https://nytimes.com/2025/09/14/opinion/charlie-kirk-shooting-internet.html
+**The Beloved Children’s Author Whose Stories Are Slipping Away**\
+`Robert Munsch wrote “The Paper Bag Princess,” “Love You Forever” and other classics by performing them over and over for kids. But dementia is now stealing his imagination.`\
+https://nytimes.com/2025/09/14/magazine/robert-munsch-author-children-books-dementia.html
 
