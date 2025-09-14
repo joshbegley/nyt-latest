@@ -1,5 +1,5 @@
 **Vanderbilt keeps rolling, pounds South Carolina in Columbia to improve to 3-0**\
-`It was Vanderbilt’s first win over the Gamecocks since 2008 and their first SEC opening win since 2011.`\
+`It was Vanderbilt’s first win over the Gamecocks since 2008 and its first SEC opening win since 2011.`\
 https://nytimes.com/athletic/6627209/2025/09/13/vanderbilt-diego-pavia-south-carolina-lanorris-sellers/
 
 **Mets' playoff hopes dwindling as eighth straight loss drops them into tie**\
