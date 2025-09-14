@@ -1,3 +1,11 @@
+**Capitals place assistant coach Mitch Love on leave pending NHL investigation**\
+`The Capitals said they would not comment on Love’s situation until the NHL completes its investigation.`\
+https://nytimes.com/athletic/6628735/2025/09/14/capitals-mitch-love-nhl-investigation/
+
+**Trump Administration Claims Vast Powers as It Races to Fire Fed Governor Before Meeting**\
+`Trump has forged ahead with his attempts to fire Lisa Cook even as new documents call his claims of mortgage fraud into question.`\
+https://nytimes.com/2025/09/14/us/politics/trump-administration-claims-vast-powers-as-it-races-to-fire-fed-governor-before-meeting.html
+
 **Amorim 'suffering more' than Manchester United fans after derby defeat**\
 `Amorim again suggested that the club's hierarchy would need to sack him if they want to see a shift in tactical approach`\
 https://nytimes.com/athletic/6628702/2025/09/14/ruben-amorim-manchester-united-city-fans/
