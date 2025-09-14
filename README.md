@@ -1,3 +1,7 @@
+**Nonprofit Gets Two Paintings Stolen by Nazis Pulled From Auction**\
+`The paintings were among more than 300 works seized during World War II from Adolphe Schloss, a German Jew who lived in France and amassed a collection of old master paintings.`\
+https://nytimes.com/2025/09/14/arts/nazi-painting-ohio-auction.html
+
 **Eagles vs. Chiefs: Top takeaways as Philadelphia drops Kansas City to 0-2**\
 `Eagles beat Chiefs in Super Bowl rematch that turns into a defensive struggle.`\
 https://nytimes.com/athletic/6629058/2025/09/14/eagles-chiefs-super-bowl-rematch-score-result-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/14/arts/television/emmys-security-charlie-kirk.html
 **Kathy Hochul: Why I Am Endorsing Zohran Mamdani**\
 `I am confident that Zohran Mamdani has the courage, urgency, and optimism New York City needs to lead it through the challenges of this moment.`\
 https://nytimes.com/2025/09/14/opinion/hochul-endorsement-mamdani.html
-
-**Isaac TeSlaa's catch explained: What officials said about confusing Bears-Lions call**\
-`The Bears were running to the locker room down only seven points at the half, but a reversal by officials put them back on the field.`\
-https://nytimes.com/athletic/6629243/2025/09/14/bears-lions-end-of-half-confusion/
 

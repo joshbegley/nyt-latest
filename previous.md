@@ -1,3 +1,19 @@
+**Eagles vs. Chiefs: Top takeaways as Philadelphia drops Kansas City to 0-2**\
+`Eagles beat Chiefs in Super Bowl rematch that turns into a defensive struggle.`\
+https://nytimes.com/athletic/6629058/2025/09/14/eagles-chiefs-super-bowl-rematch-score-result-takeaways/
+
+**Why is Nate Bargatze Hostingthe Emmys?**\
+`CBS tapped a clean, nonpolitical comic to present the awards a couple of months after it fired its late-night host, Stephen Colbert.`\
+https://nytimes.com/2025/09/14/arts/television/nate-bargatze-emmy-awards.html
+
+**Braves takeaways: Sandy Leon's impact, Ozzie Albies' surge, Michael Harris II slump redux**\
+`“That was awesome,” Braves manager Brian Snitker said of the seventh-inning two-run homer from León, in his first start of the season.`\
+https://nytimes.com/athletic/6629221/2025/09/14/braves-takeaways-sandy-leons-impact-ozzie-albies-surge/
+
+**Battered 49ers limp home with plenty of swagger at 2-0 after gutty win in New Orleans**\
+`It wasn't pretty, but the Niners — with the help of San Francisco fans in the crowd — once again survived a rash of injuries to win.`\
+https://nytimes.com/athletic/6629257/2025/09/14/49ers-injuries-saints-fred-warner/
+
 **Protests Against an Israeli Cycling Team Shut Down a Major Race**\
 `The final day of the three-week long Vuelta a España came to a premature end as pro-Palestinian protesters blocked streets.`\
 https://nytimes.com/2025/09/14/world/canada/cycling-palestinian-protests.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/09/14/opinion/hochul-endorsement-mamdani.html
 **Isaac TeSlaa's catch explained: What officials said about confusing Bears-Lions call**\
 `The Bears were running to the locker room down only seven points at the half, but a reversal by officials put them back on the field.`\
 https://nytimes.com/athletic/6629243/2025/09/14/bears-lions-end-of-half-confusion/
-
-**Shohei Ohtani, agent file motion to dismiss Hawaii development lawsuit**\
-`The plaintiffs' lawsuit alleged that Ohtani's agent conducted a “a calculated and unlawful scheme” to interfere with the development.`\
-https://nytimes.com/athletic/6629265/2025/09/14/shohei-ohtani-agent-lawsuit-hawaii-development/
-
-**Seahawks hijack 'Renegade' to put Steelers away in Pittsburgh: 'That's our song'**\
-`The Seahawks dominated in the second half and stole the energy from Pittsburgh's famous Terrible Towels to continue their road success.`\
-https://nytimes.com/athletic/6629108/2025/09/14/seahawks-steelers-renegade-darnold-dk-metcalf/
-
-**Bobby Hart, Who Helped Give the Monkees Their Music, Dies at 86**\
-`He and Tommy Boyce formed a hit songwriting duo of the 1960s, and were best known for the unexpectedly popular tunes of a made-for-TV boy band.`\
-https://nytimes.com/2025/09/14/obituaries/bobby-hart-dead.html
-
-**Drake Maye delivers his best pro performance in tone-setting win for Mike Vrabel, Patriots**\
-`The second-year QB went 19-of-23 passing for 230 yards, two TDs, a rushing score and no turnovers in getting Vrabel his first win as coach.`\
-https://nytimes.com/athletic/6629092/2025/09/14/drake-maye-mike-vrabel-patriots-dolphins-nfl-week-2/
 
