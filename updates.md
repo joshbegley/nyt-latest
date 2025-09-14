@@ -1,4 +1,8 @@
 **Brewers clinch MLB's first postseason spot thanks to Mets' eighth straight loss**\
+`The Brewers clinched a playoff berth after the Rangers defeated the Mets on Saturday.`\
+https://nytimes.com/athletic/6626923/2025/09/13/brewers-postseason-berth-mets-losing-streak/
+
+**Brewers clinch MLB's first postseason spot thanks to Mets' eighth straight loss**\
 `The Brewers became the first team to officially clinch a postseason berth, securing their third straight playoff appearance.`\
 https://nytimes.com/athletic/6626923/2025/09/13/brewers-postseason-berth-mets-losing-streak/
 
