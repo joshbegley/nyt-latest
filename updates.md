@@ -1,3 +1,7 @@
+**Texas A&M's Bryce Anderson carted off vs. Notre Dame, has feeling in limbs**\
+`Anderson was placed on a backboard and then on a cart. As he was driven off, the DB gave a thumbs up to an applauding crowd.`\
+https://nytimes.com/athletic/6627116/2025/09/13/bryce-anderson-injury-texas-am-notre-dame/
+
 **Texas A&M's Bryce Anderson stretchered off field vs. ND in neck brace**\
 `Anderson was placed on a backboard and then on a cart. As he was driven off, the DB gave a thumbs up to an applauding crowd.`\
 https://nytimes.com/athletic/6627116/2025/09/13/bryce-anderson-injury-texas-am-notre-dame/
