@@ -1,3 +1,7 @@
+**Postcard Sent From the U.N. Is Returned to Sender After 72 Years**\
+`Alan Ball sent the postcard to his family during the summer of 1953. Last week, it arrived at his home in Idaho.`\
+https://nytimes.com/2025/09/14/us/lost-postcard-united-nations.html
+
 **Kirk Shooting Suspect Held ‘Leftist Ideology,’ Utah Governor Says**\
 `Gov. Spencer Cox said the suspect had been “radicalized,” and noted he had a romantic partner who is transitioning from male to female who is cooperating fully with investigators.`\
 https://nytimes.com/2025/09/14/us/kirk-shooting-suspect-ideology-partner.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/14/us/politics/michael-mccaul-retires-house-texas.ht
 **Ricky Hatton, British Boxer and Former World Champion, Dies at 46**\
 `The British authorities said that the boxer, who retired in 2012, was found unresponsive at a home in Greater Manchester.`\
 https://nytimes.com/2025/09/14/sports/ricky-hatton-dead.html
-
-**Lowetide: Are Oilers achieving more in procuring young talent than in the past?**\
-`The Oilers as an organization appear to be shopping in more promising areas these days.`\
-https://nytimes.com/athletic/6626366/2025/09/14/edmonton-oilers-prospects-game-2025/
 
