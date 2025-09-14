@@ -1,3 +1,11 @@
+**‘Freedom’ Shirt Becomes a Meme and an Instant Commodity**\
+`Mere hours after Charlie Kirk’s killing, the internet was flooded with replicas of his T-shirt.`\
+https://nytimes.com/2025/09/14/style/freedom-shirt-for-sale.html
+
+**Steelers vs. Seahawks: 4 takeaways from Seattle's 31-17 win over Pittsburgh**\
+`Even after the Steelers gained possession and kicked a 54-yard field goal, the fumble was a momentum swinger.`\
+https://nytimes.com/athletic/6628338/2025/09/14/seahawks-steelers-score-result-takeaways/
+
 **49ers vs. Saints: 4 takeaways from San Francisco's 26-21 victory over New Orleans**\
 `Mac Jones threw three touchdown passes to lead a short-handed San Francisco 49ers team to a road win.`\
 https://nytimes.com/athletic/6628356/2025/09/14/niners-saints-score-result-takeaways-nfl/
