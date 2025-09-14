@@ -1,3 +1,15 @@
+**Emmys Photos: See All the Looks From the 2025 Red Carpet**\
+`See all the looks from TV’s biggest night.`\
+https://nytimes.com/interactive/2025/09/14/style/emmys-red-carpet-photos.html
+
+**Bright Choices for Artists**\
+`Matthew Stock and Michael Lieberman make their collaboration debut.`\
+https://nytimes.com/2025/09/14/crosswords/daily-puzzle-2025-09-15.html
+
+**Emmy Awards Live Updates: Stars of the Small Screen Gather on the Red Carpet**\
+`The best of television will be honored at the Peacock Theater in downtown Los Angeles at a ceremony hosted by Nate Bargatze.`\
+https://nytimes.com/live/2025/09/14/arts/emmy-awards
+
 **Here’s the latest.**\
 `By John Koblin`\
 https://nytimes.com/live/2025/09/14/arts/emmy-awards/heres-the-latest
