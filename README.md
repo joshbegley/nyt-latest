@@ -1,3 +1,7 @@
+**Oregon HC Lanning on Charlie Kirk's death: 'The US could learn a lot from our locker room'**\
+`Lanning gave a poignant response to a question about the week's events after Saturday's game. `\
+https://nytimes.com/athletic/6627014/2025/09/13/oregon-ducks-dan-lanning-charlie-kirk/
+
 **How to watch Orioles at Blue Jays: Time, TV, streaming for September 14**\
 `Find out how to watch the Baltimore Orioles play the Toronto Blue Jays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6627038/2025/09/13/orioles-vs-blue-jays-stream-how-to-watch-sept-14/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/13/us/politics/probationary-employees-firing-illegal
 **Is Tennessee QB Joey Aguilar a legit 2026 NFL Draft prospect?**\
 `The Volunteers' new quarterback threw for 371 yards and accounted for five touchdowns in an overtime loss to Georgia.`\
 https://nytimes.com/athletic/6626616/2025/09/13/nfl-draft-2026-tennessee-qb-joey-aguilar/
-
-**In instant classic, Georgia pulls past Tennessee in OT: Takeaways**\
-`Tennessee led 38-30 in the final minutes of the fourth quarter before Georgia rallied.`\
-https://nytimes.com/athletic/6626025/2025/09/13/georgia-tennessee-score-result-takeaways/
 
