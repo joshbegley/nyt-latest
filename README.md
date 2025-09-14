@@ -1,3 +1,7 @@
+**Ricky Hatton, British Boxer and Former World Champion, Dies at 46**\
+`The British authorities said that the boxer, who retired in 2012, was found unresponsive at a home in Greater Manchester.`\
+https://nytimes.com/2025/09/14/sports/ricky-hatton-dead.html
+
 **Lowetide: Are Oilers achieving more in procuring young talent than in the past?**\
 `The Oilers as an organization appear to be shopping in more promising areas these days.`\
 https://nytimes.com/athletic/6626366/2025/09/14/edmonton-oilers-prospects-game-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6627808/2025/09/14/melissa-jefferson-wooden-oblique
 **Submit your questions for the next Big Ten football mailbag**\
 `What have we learned about the Big Ten's 18 teams through three weeks, and what's still a mystery?`\
 https://nytimes.com/athletic/6627809/2025/09/14/submit-your-big-ten-football-questions-mailbag/
-
-**Fantasy football Week 2 inactives**\
-`The rundown on the Week 2 inactives who are relevant to fantasy football and how to respond accordingly. `\
-https://nytimes.com/athletic/6627795/2025/09/14/fantasy-football-week-2-inactives/
 
