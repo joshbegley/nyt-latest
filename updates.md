@@ -1,3 +1,19 @@
+**Protests Against an Israeli Cycling Team Shut Down a Major Race**\
+`The final day of the three-week long Vuelta a España came to a premature end as pro-Palestinian protesters blocked streets.`\
+https://nytimes.com/2025/09/14/world/canada/cycling-palestinian-protests.html
+
+**Cubs notes: Nine-game hitting streak has Nico Hoerner eyeing batting title**\
+`During his nine-game hitting streak, Nico Hoerner is hitting .457 and has pushed his batting average to .299, six points behind Trea Turner.`\
+https://nytimes.com/athletic/6629212/2025/09/14/cubs-notes-nico-hoerner-is-a-hit-machine-caleb-thielbar-a-top-lefty-and-cubs-catchers-thriving/
+
+**Hochul Endorses Mamdani for Mayor of New York**\
+`Gov. Kathy Hochul of New York backed Zohran Mamdani, the Democratic nominee for mayor, in a New York Times essay. Her support comes as Democrats are starting to coalesce around him.`\
+https://nytimes.com/2025/09/14/nyregion/hochul-mamdani-mayor-endorsement.html
+
+**Isaac TeSlaa's catch explained: What officials said about confusing Bears-Lions call**\
+`The Bears were running to the locker room down only seven points at the half, but a reversal by officials put them back on the field.`\
+https://nytimes.com/athletic/6629243/2025/09/14/bears-lions-end-of-half-confusion/
+
 **Emmys Security Will Be Elevated After Shooting of Charlie Kirk**\
 `Officials have said that they re-examined their security plans after the assassination of the right-wing influencer last week.`\
 https://nytimes.com/2025/09/14/arts/television/emmys-security-charlie-kirk.html
