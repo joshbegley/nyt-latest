@@ -1,3 +1,7 @@
+**In instant classic, Georgia pulls past Tennessee in OT: Takeaways**\
+`Tennessee led 38-30 in the final minutes of the fourth quarter before Georgia rallied.`\
+https://nytimes.com/athletic/6626025/2025/09/13/georgia-tennessee-score-result-takeaways/
+
 **Dodgers place Will Smith on IL with right hand bone bruise**\
 `Manager Dave Roberts acknowledged that Smith's injury could affect him for the rest of the season.`\
 https://nytimes.com/athletic/6626700/2025/09/13/dodgers-will-smith-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/13/arts/television/mr-beast-north-carolina.html
 **Mainoo talent 'not enough', must improve positional sense - Amorim**\
 `The 20-year-old informed the club of his desire to leave on loan in the summer transfer window to play regular first-team football.`\
 https://nytimes.com/athletic/6624365/2025/09/13/kobbie-mainoo-manchester-united-amorim/
-
-**Brentford 2 Chelsea 2 - How did Cole Palmer change the game? What went wrong for Maresca?**\
-`Analysis of Chelsea's draw away at Brentford in the Premier League`\
-https://nytimes.com/athletic/6625469/2025/09/13/brentford-chelsea-cole-palmer-highlights/
 
