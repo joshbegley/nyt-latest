@@ -1,3 +1,7 @@
+**Tottenham winger Kudus' wooden elephant seat returned to him by West Ham**\
+`On Saturday, the 25-year-old winger made his first return to the London Stadium since his £55million ($74.5m) summer switch`\
+https://nytimes.com/athletic/6626641/2025/09/14/mohammed-kudus-celebration-tottenham-west-ham/
+
 **The New York Times International Edition in Print for Monday, Sep. 15, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/09/14/todays-new-york-times-international-edition
