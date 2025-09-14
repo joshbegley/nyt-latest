@@ -1,3 +1,7 @@
+**After Kirk’s Killing, Suspect Joked That His ‘Doppelganger’ Did It**\
+`Before he was arrested on suspicion of carrying out the assassination, 22-year-old Tyler Robinson sent friends messages showing that he was closely following news about the killing.`\
+https://nytimes.com/2025/09/13/us/kirk-killing-suspect-online-chat.html
+
 **College Football Playoff 2025 projections: Georgia rising, Clemson plummets in Week 3**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/09/13/college-football-playoff-bracket-projections-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6626773/2025/09/13/tigers-vs-marlins-stream-how-to-
 **How to watch Rangers at Mets: Time, TV, streaming for September 14**\
 `Find out how to watch the Texas Rangers play the New York Mets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6626768/2025/09/13/rangers-vs-mets-stream-how-to-watch-sept-14/
-
-**Why the ACC's all-access replay review system could start a trend**\
-`The ACC has introduced a level of replay transparency that should become the norm across the country.`\
-https://nytimes.com/athletic/6626662/2025/09/13/acc-replay-review-officials-clemson-georgia-tech/
 
