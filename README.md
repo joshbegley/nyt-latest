@@ -1,7 +1,3 @@
-**After Fiery Protests, Nepal’s Leader Promises a Brief, Caretaker Term**\
-`Prime Minister Sushila Karki, a former chief justice, said she had accepted her new role reluctantly. Major political parties say the process is unconstitutional.`\
-https://nytimes.com/2025/09/14/world/asia/nepal-prime-minister-promises.html
-
 **McCaul, a Foreign Policy Leader in the House, Won’t Seek Re-election**\
 `Representative Michael McCaul, an 11-term Texas Republican who chairs the House Foreign Affairs Committee, announced on Sunday that he would retire from Congress.`\
 https://nytimes.com/2025/09/14/us/politics/michael-mccaul-retires-house-texas.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6560541/2025/09/14/college-football-playoff-bracket
 **Dirk Nowitzki believes in Cooper Flagg hype, ready to watch in new analyst role**\
 `"The hype is real, for sure," Nowitzki said of Flagg, as the NBA Hall of Famer prepares for his new broadcasting job.`\
 https://nytimes.com/athletic/6626681/2025/09/14/cooper-flagg-dirk-nowitzki-amazon/
+
+**Melissa Jefferson-Wooden, Oblique Seville win 100-meter titles at world championships**\
+`The American Jefferson-Wooden capped an undefeated year, while the Jamaican Seville won his first major international medal.`\
+https://nytimes.com/athletic/6627808/2025/09/14/melissa-jefferson-wooden-oblique-seville-noah-lyles-kishane-thompson-100-meter-world-athletics-championships/
 

@@ -1,3 +1,7 @@
+**After Fiery Protests, Nepal’s Leader Promises a Brief, Caretaker Term**\
+`Prime Minister Sushila Karki, a former chief justice, said she had accepted her new role reluctantly. Major political parties say the process is unconstitutional.`\
+https://nytimes.com/2025/09/14/world/asia/nepal-prime-minister-promises.html
+
 **McCaul, a Foreign Policy Leader in the House, Won’t Seek Re-election**\
 `Representative Michael McCaul, an 11-term Texas Republican who chairs the House Foreign Affairs Committee, announced on Sunday that he would retire from Congress.`\
 https://nytimes.com/2025/09/14/us/politics/michael-mccaul-retires-house-texas.html
