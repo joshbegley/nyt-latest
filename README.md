@@ -1,40 +1,40 @@
-**Ingebrigtsen eliminated in heats of World Championships in Tokyo**\
-`Ingebrigtsen has had an Achilles problem that has persisted all summer and prevented him racing at all on the circuit`\
-https://nytimes.com/athletic/6627648/2025/09/14/ingebrigtsen-elimination-tokyo-world-championship/
+**Sure, Tennessee's loss to Georgia hurts. But it won't be hard to smile through this pain**\
+`Sunshine pumping isn't natural after the Vols had a chance to win in regulation, but Tennessee is just fine. It has a QB. It has a team.`\
+https://nytimes.com/athletic/6627191/2025/09/14/tennessee-football-joey-aguilar-georgia/
 
-**Tottenham winger Kudus' wooden elephant seat returned to him by West Ham**\
-`On Saturday, the 25-year-old winger made his first return to the London Stadium since his £55million ($74.5m) summer switch`\
-https://nytimes.com/athletic/6626641/2025/09/14/mohammed-kudus-celebration-tottenham-west-ham/
+**NFL Week 2 top storylines: Early desperation, reunions and Super Bowl rematch**\
+`The Chiefs are looking for Super Bowl revenge and their first win of the season when they host the Eagles on Sunday.`\
+https://nytimes.com/athletic/6620411/2025/09/14/nfl-week-2-storylines-super-bowl-rematch/
 
-**The New York Times International Edition in Print for Monday, Sep. 15, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/09/14/todays-new-york-times-international-edition
+**The numbers are grisly for Billy Napier after another troubling loss to a rival**\
+`The problem is the offense. Napier’s offense. The offense he leads after refusing to hire a play caller this offseason.`\
+https://nytimes.com/athletic/6627428/2025/09/14/billy-napier-florida-coach-buyout/
 
-**How to watch Cardinals at Brewers: Time, TV, streaming for September 14**\
-`Find out how to watch the St. Louis Cardinals play the Milwaukee Brewers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6627612/2025/09/14/cardinals-vs-brewers-stream-how-to-watch-sept-14/
+**Gunner Stockton’s breakout game raises the hopes — and ceiling — for Georgia**\
+`Stockton and the offense were the revelation in Saturday's win over Tennessee, after so many questions about both in the offseason.`\
+https://nytimes.com/athletic/6627088/2025/09/14/georgia-gunner-stockton-tennessee-performance/
 
-**How to watch Rockies at Padres: Time, TV, streaming for September 14**\
-`Find out how to watch the Colorado Rockies play the San Diego Padres, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6627587/2025/09/14/rockies-vs-padres-stream-how-to-watch-sept-14/
+**Tigers putting big hopes on José Urquidy’s return to major leagues**\
+`Urquidy will pitch in the major leagues for the first time since 2023. The Tigers need him to help a thinned-out pitching staff.`\
+https://nytimes.com/athletic/6626972/2025/09/14/tigers-jose-urquidy-major-leagues-return/
 
-**In an Era of Deep Polarization, Unity Is Not Trump’s Mission**\
-`President Trump does not subscribe to the traditional notion of being president for all Americans.`\
-https://nytimes.com/2025/09/14/us/politics/trump-kirk-polarization-unity.html
+**There Are Monsters in Your Midst, Too**\
+`No matter the direction of the tragedy, the end result is the same — the right grows angrier at the left, and the left grows angrier at the right.`\
+https://nytimes.com/2025/09/14/opinion/charlie-kirk-assassination-ideology.html
 
-**Trump’s Reversals on Immigration Mount Over Economic Concerns**\
-`President Trump has walked back some significant immigration policies that collide with his economic agenda, angering his far-right allies.`\
-https://nytimes.com/2025/09/14/us/politics/trump-immigration-policy-reversals.html
+**Sunday Special: TV’s Big Night**\
+`6 Emmy-nominated shows we’re still thinking about.`\
+https://nytimes.com/2025/09/14/podcasts/the-daily/sunday-special-tv-emmys.html
 
-**Charlie Kirk’s Killing Has Left Other Political Influencers Reeling**\
-`Creators and commentators are more anxious than ever about their safety. Some are wondering whether they should continue to make themselves so accessible.`\
-https://nytimes.com/2025/09/14/business/media/charlie-kirk-political-influencers-content-creators.html
+**Don’t Just Defend the Fed. Reinvent It.**\
+`What kind of central bank should we want for America?`\
+https://nytimes.com/2025/09/14/opinion/reinvent-fed-central-bank.html
 
-**What to Expect at the 2025 Emmy Awards**\
-`The Apple TV+ series “Severance” and the HBO Max medical show “The Pitt” are in a tight race for best drama, television’s most coveted prize.`\
-https://nytimes.com/2025/09/14/arts/television/what-to-expect-at-the-2025-emmy-awards.html
+**Democrats Cannot Just Buy Back the Working Class**\
+`Why did the working class switch sides?`\
+https://nytimes.com/2025/09/14/opinion/democrats-working-class-hardhat-riot.html
 
-**Bobbi Brown Tells Her Beauty Comeback Story**\
-`The cosmetics mogul reveals how she started all over again, with Jones Road, after leaving Estée Lauder.`\
-https://nytimes.com/2025/09/14/style/bobbi-brown-tells-her-beauty-comeback-story.html
+**Wordle Review No. 1,549**\
+`Scroll down for hints and conversation about the puzzle for Monday, Sept. 15, 2025.`\
+https://nytimes.com/2025/09/14/crosswords/wordle-review-1549.html
 
