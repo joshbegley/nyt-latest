@@ -1,3 +1,7 @@
+**In instant classic, Georgia pulls past Tennessee in OT: Takeaways**\
+`Tennessee led 38-30 in the final minutes of the fourth quarter before Georgia rallied.`\
+https://nytimes.com/athletic/6626025/2025/09/13/georgia-tennessee-score-result-takeaways/
+
 **Dodgers place Will Smith on IL with right hand bone bruise**\
 `Manager Dave Roberts acknowledged that Smith's injury could affect him for the rest of the season.`\
 https://nytimes.com/athletic/6626700/2025/09/13/dodgers-will-smith-injury/
