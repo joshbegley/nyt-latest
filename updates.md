@@ -1,3 +1,19 @@
+**Charlie Kirk’s Killing and Our Poisonous Internet**\
+`We’ve fully stepped into a different historical moment: the age of brain-poisoning meme politics.`\
+https://nytimes.com/2025/09/14/opinion/charlie-kirk-shooting-internet.html
+
+**The Curse of Curse Words**\
+`What happens to us when we use vulgarity all the time.`\
+https://nytimes.com/2025/09/14/opinion/culture/curse-words-profanity-swearing.html
+
+**Oil Destroyed Our Town. Cartels Are Finishing the Job.**\
+`Oil extraction and organized crime plague my community in the forests of eastern Mexico, but we’re fighting back.`\
+https://nytimes.com/2025/09/14/opinion/mexico-oil-pollution-fracking.html
+
+**The New York Times in Print for Sunday, Sep. 14, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/14/todays-new-york-times
+
 **Thomas Muller hits birthday hat trick as Vancouver smashes seven past Philadelphia**\
 `The Whitecaps clinched a playoff spot for the third straight season with a 7-0 win over the Eastern Conference-leading Union.`\
 https://nytimes.com/athletic/6627287/2025/09/14/thomas-muller-hits-birthday-hat-trick-as-vancouver-smash-seven-past-philadelphia/
