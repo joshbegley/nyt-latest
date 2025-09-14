@@ -1,3 +1,7 @@
+**Emmys Photos: See All the Looks From the 2025 Red Carpet**\
+`See all the looks from TV’s biggest night.`\
+https://nytimes.com/interactive/2025/09/14/style/emmys-red-carpet-photos.html
+
 **Bright Choices for Artists**\
 `Matthew Stock and Michael Lieberman make their collaboration debut.`\
 https://nytimes.com/2025/09/14/crosswords/daily-puzzle-2025-09-15.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6616474/2025/09/14/cowboys-jadeveon-clowney-signing
 **How good is the Virginia Tech job? Pros and cons of a once-proud program**\
 `Brent Pry’s tenure continued a downward trend for a once-proud program.`\
 https://nytimes.com/athletic/6628900/2025/09/14/virginia-tech-football-coaching-search-history-finances/
-
-**Cowboys vs. Giants: 3 takeaways takeaways from a thrilling overtime win for Dallas**\
-`Brandon Aubrey won the game with a field goal in overtime after booting a 64-yarder at the end of regulation.`\
-https://nytimes.com/athletic/6628685/2025/09/14/giants-cowboys-score-result-takeaways-nfl/
 
