@@ -1,3 +1,11 @@
+**How to watch Cardinals at Brewers: Time, TV, streaming for September 14**\
+`Find out how to watch the St. Louis Cardinals play the Milwaukee Brewers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6627612/2025/09/14/cardinals-vs-brewers-stream-how-to-watch-sept-14/
+
+**How to watch Rockies at Padres: Time, TV, streaming for September 14**\
+`Find out how to watch the Colorado Rockies play the San Diego Padres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6627587/2025/09/14/rockies-vs-padres-stream-how-to-watch-sept-14/
+
 **In an Era of Deep Polarization, Unity Is Not Trump’s Mission**\
 `President Trump does not subscribe to the traditional notion of being president for all Americans.`\
 https://nytimes.com/2025/09/14/us/politics/trump-kirk-polarization-unity.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/14/world/africa/after-a-landmark-election-a-disillus
 **Getting Fired Gets You Into This Cool Girls’ Club**\
 `In a new book, two longtime fashion editors — along with Oprah Winfrey, Jamie Lee Curtis and Katie Couric — open up about times they got canned.`\
 https://nytimes.com/2025/09/14/style/cool-girls-get-fired-book.html
-
-**Russia Made Drone Production a Supreme Priority. Now It Swarms the Skies.**\
-`Ukraine is struggling to defend itself against the growing number of attack drones that Moscow has started using in its onslaughts.`\
-https://nytimes.com/2025/09/14/world/europe/russia-ukraine-drone-attacks-production.html
-
-**The Beloved Children’s Author Whose Stories Are Slipping Away**\
-`Robert Munsch wrote “The Paper Bag Princess,” “Love You Forever” and other classics by performing them over and over for kids. But dementia is now stealing his imagination.`\
-https://nytimes.com/2025/09/14/magazine/robert-munsch-author-children-books-dementia.html
 

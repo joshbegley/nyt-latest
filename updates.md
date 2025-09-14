@@ -1,3 +1,11 @@
+**How to watch Cardinals at Brewers: Time, TV, streaming for September 14**\
+`Find out how to watch the St. Louis Cardinals play the Milwaukee Brewers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6627612/2025/09/14/cardinals-vs-brewers-stream-how-to-watch-sept-14/
+
+**How to watch Rockies at Padres: Time, TV, streaming for September 14**\
+`Find out how to watch the Colorado Rockies play the San Diego Padres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6627587/2025/09/14/rockies-vs-padres-stream-how-to-watch-sept-14/
+
 **In an Era of Deep Polarization, Unity Is Not Trump’s Mission**\
 `President Trump does not subscribe to the traditional notion of being president for all Americans.`\
 https://nytimes.com/2025/09/14/us/politics/trump-kirk-polarization-unity.html
