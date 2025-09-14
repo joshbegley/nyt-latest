@@ -1,3 +1,11 @@
+**Barcelona's Raphinha dropped by Flick due to lateness**\
+`Club sources indicated Raphinha was late to a pre-game muscle activation session on Sunday morning.`\
+https://nytimes.com/athletic/6628689/2025/09/14/barcelonas-raphinha-late-valencia/
+
+**Explained: Why Brighton hired Jason Ayto, let David Weir go, and how it fits their '2030 vision'**\
+`The impending arrival of Ayto is further indication of Brighton's desire to keep moving forward and finding ways to gain a competitive edge`\
+https://nytimes.com/athletic/6622658/2025/09/14/jason-ayto-brighton-david-weir/
+
 **Bears cornerback Jaylon Johnson exits game vs. Lions with groin injury**\
 `Johnson missed all of training camp and the season opener due to a groin injury and made his return Sunday in Detroit.`\
 https://nytimes.com/athletic/6628547/2025/09/14/bears-lions-jaylon-johnson-groin-injury/
