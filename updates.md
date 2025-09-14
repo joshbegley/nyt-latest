@@ -1,3 +1,11 @@
+**How good is the UCLA coaching job after DeShaun Foster's firing?**\
+`It’s a Big Ten job in Southern California, so there’s a lot to like in theory — enough that this opening will get a lot of interest.`\
+https://nytimes.com/athletic/6628474/2025/09/14/ucla-football-coaching-job-candidates-grades/
+
+**Trump Administration Claims Vast Powers as It Races to Fire Fed Governor Before Meeting**\
+`Trump has forged ahead with his attempts to fire Lisa Cook even as new documents call his claims of mortgage fraud into question.`\
+https://nytimes.com/2025/09/14/us/politics/trump-lisa-cook-fed.html
+
 **Capitals place assistant coach Mitch Love on leave pending NHL investigation**\
 `The Capitals said they would not comment on Love’s situation until the NHL completes its investigation.`\
 https://nytimes.com/athletic/6628735/2025/09/14/capitals-mitch-love-nhl-investigation/

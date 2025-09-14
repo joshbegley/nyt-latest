@@ -1,10 +1,14 @@
+**How good is the UCLA coaching job after DeShaun Foster's firing?**\
+`It’s a Big Ten job in Southern California, so there’s a lot to like in theory — enough that this opening will get a lot of interest.`\
+https://nytimes.com/athletic/6628474/2025/09/14/ucla-football-coaching-job-candidates-grades/
+
 **Capitals place assistant coach Mitch Love on leave pending NHL investigation**\
 `The Capitals said they would not comment on Love’s situation until the NHL completes its investigation.`\
 https://nytimes.com/athletic/6628735/2025/09/14/capitals-mitch-love-nhl-investigation/
 
 **Trump Administration Claims Vast Powers as It Races to Fire Fed Governor Before Meeting**\
 `Trump has forged ahead with his attempts to fire Lisa Cook even as new documents call his claims of mortgage fraud into question.`\
-https://nytimes.com/2025/09/14/us/politics/trump-administration-claims-vast-powers-as-it-races-to-fire-fed-governor-before-meeting.html
+https://nytimes.com/2025/09/14/us/politics/trump-lisa-cook-fed.html
 
 **Amorim 'suffering more' than Manchester United fans after derby defeat**\
 `Amorim again suggested that the club's hierarchy would need to sack him if they want to see a shift in tactical approach`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6628370/2025/09/14/joe-burrow-injury-jaguars-bengal
 **Enfield vs Enfield: The most unusual rivals in English football meet for the first time in the FA Cup**\
 `It’s difficult to understand why Enfield FC needs to exist in its current form – it was a comprehensive win for Town, on and off the pitch`\
 https://nytimes.com/athletic/6626426/2025/09/14/enfield-derby-rivalry-fa-cup/
-
-**Aaron Rodgers ties Brett Favre for fourth all-time in passing touchdowns**\
-`Rodgers now trails only Tom Brady, Peyton Manning and Drew Brees on the all-time list.`\
-https://nytimes.com/athletic/6628240/2025/09/14/aaron-rodgers-brett-favre-passing-td-all-time-list/
 
