@@ -1,3 +1,23 @@
+**What's the difference between Carson Beck and Cam Ward at Miami? It's hard to tell so far**\
+`Beck has a better supporting cast, but he already has two more wins over ranked opponents than Ward did last season.`\
+https://nytimes.com/athletic/6628060/2025/09/14/carson-beck-cam-ward-miami-hurricanes-quarterback/
+
+**Burnley 0 Liverpool 1: Late Salah penalty seals win as Slot's side again find a way**\
+`Our writer discusses the talking points after Liverpool stoppage-time win at Turf Moor.`\
+https://nytimes.com/athletic/6625471/2025/09/14/liverpool-burnley-kerkez-isak-salah/
+
+**A Quick Shrimp Dinner for Long, Stumping Sundays**\
+`Sometimes the weekend calls for a fast, easy supper, and for that supper you’ll want this pili pili shrimp with braised white beans.`\
+https://nytimes.com/2025/09/14/dining/a-quick-shrimp-dinner-for-long-stumping-sundays.html
+
+**Would-Be Bomber Is Imprisoned Again After Donating to Co-Conspirators**\
+`Najibullah Zazi admitted plotting an attack on the New York City subway with two friends, and then testified against them. Now he is behind bars after putting money in their prison accounts.`\
+https://nytimes.com/2025/09/14/nyregion/zazi-terrorism-detention.html
+
+**After Fiery Protests, Nepal’s Leader Promises a Brief, Caretaker Term**\
+`Prime Minister Sushila Karki, a former chief justice, said she had accepted her new role reluctantly. Major political parties say the process is unconstitutional.`\
+https://nytimes.com/2025/09/14/world/asia/nepal-prime-minister-promises.html
+
 **McCaul, a Foreign Policy Leader in the House, Won’t Seek Re-election**\
 `Representative Michael McCaul, an 11-term Texas Republican who chairs the House Foreign Affairs Committee, announced on Sunday that he would retire from Congress.`\
 https://nytimes.com/2025/09/14/us/politics/michael-mccaul-retires-house-texas.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6628022/2025/09/14/flyers-blue-jackets-trade-fedoto
 **Hunter Greene, Reds miss opportunity to gain ground in wild card race**\
 `The Reds didn’t lose ground to either the New York Mets or San Francisco Giants, but lost an opportunity to secure playoff positioning.`\
 https://nytimes.com/athletic/6627465/2025/09/14/hunter-greene-reds-wild-card-race/
-
-**Rubio arrives in Israel and meets Netanyahu at Jerusalem’s Western Wall**\
-`By Michael Crowley`\
-https://nytimes.com/live/2025/09/14/us/trump-news/rubio-arrives-in-israel-and-meets-netanyahu-at-jerusalems-western-wall
-
-**Isak's omission at Burnley 'best lead-up' for Atletico match, says Slot**\
-`Sunday's Premier League match at Turf Moor was Liverpool's first since completing the signing of Isak, but he was not included in the squad.`\
-https://nytimes.com/athletic/6627868/2025/09/14/alexander-isaks-liverpool-burnley-omission/
-
-**College Football Playoff 2025 projections: Texas A&M rises, Notre Dame and Clemson plummet**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/09/14/college-football-playoff-bracket-projections-odds/
-
-**Dirk Nowitzki believes in Cooper Flagg hype, ready to watch in new analyst role**\
-`"The hype is real, for sure," Nowitzki said of Flagg, as the NBA Hall of Famer prepares for his new broadcasting job.`\
-https://nytimes.com/athletic/6626681/2025/09/14/cooper-flagg-dirk-nowitzki-amazon/
-
-**Melissa Jefferson-Wooden, Oblique Seville win 100-meter titles at world championships**\
-`The American Jefferson-Wooden capped an undefeated year, while the Jamaican Seville won his first major international medal.`\
-https://nytimes.com/athletic/6627808/2025/09/14/melissa-jefferson-wooden-oblique-seville-noah-lyles-kishane-thompson-100-meter-world-athletics-championships/
 
