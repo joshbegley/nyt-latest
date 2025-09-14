@@ -1,3 +1,7 @@
+**Ingebrigtsen eliminated in heats of World Championships in Tokyo**\
+`Ingebrigtsen has had an Achilles problem that has persisted all summer and prevented him racing at all on the circuit`\
+https://nytimes.com/athletic/6627648/2025/09/14/ingebrigtsen-elimination-tokyo-world-championship/
+
 **Tottenham winger Kudus' wooden elephant seat returned to him by West Ham**\
 `On Saturday, the 25-year-old winger made his first return to the London Stadium since his £55million ($74.5m) summer switch`\
 https://nytimes.com/athletic/6626641/2025/09/14/mohammed-kudus-celebration-tottenham-west-ham/
