@@ -1,3 +1,7 @@
+**LSU uses 5 INTs to beat Florida as pressure on Billy Napier grows: Key takeaways**\
+`No. 3 LSU's offense struggled Saturday, but the Tigers forced five turnovers from DJ Lagway in a 20-10 rivalry win.`\
+https://nytimes.com/athletic/6627095/2025/09/13/lsu-florida-football-score-takeaways-napier/
+
 **Blue Jays to promote prospect Trey Yesavage to big leagues amid pennant push: Sources**\
 `With dominant outings in the low minors, Yesavage quickly jumped onto the Jays' radar as a potential candidate for a 2025 debut.`\
 https://nytimes.com/athletic/6627159/2025/09/13/trey-yesavage-blue-jays-promotion/
@@ -14,8 +18,8 @@ https://nytimes.com/athletic/6627173/2025/09/13/ohio-state-football-score-ohio-b
 `The Red Sox's 5-3 loss dropped them 2 1/2 games behind the Yankees for the top AL wild-card spot, with 13 regular-season games remaining.`\
 https://nytimes.com/athletic/6627022/2025/09/13/red-sox-yankees-wild-card-playoff-race/
 
-**Messi misses 'panenka' pen in Miami defeat as Toklomati grabs hattrick**\
-`Lionel Messi was left embarrassed after he fluffed his &#8216;panenka&#8217; penalty attempt and then saw his Inter Miami team fall to a 3-0 defeat at in-form Charlotte on Saturday with Israeli striker Idan Toklomati scoring a hat-trick for the home side.`\
+**Messi misses Panenka penalty in Miami defeat as Toklomati grabs hat trick**\
+`Messi had the chance to put Miami ahead in the 32nd minute when he went down under challenge from Djibril Diani.`\
 https://nytimes.com/athletic/6627114/2025/09/13/messi-misses-panenka-pen-in-miami-defeat-as-toklomati-claims-hattrick/
 
 **After Yankees' team bonding, a realization: 'We're coming to step on necks'**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/13/us/politics/federal-judge-migrants-ghana.html
 **South Carolina QB LaNorris Sellers injured vs. Vanderbilt, will not return**\
 `Sellers left the game with just under two minutes remaining in the half after a helmet-to-helmet hit by Vanderbilt LB Langston Patterson. `\
 https://nytimes.com/athletic/6627082/2025/09/13/lanorris-sellers-south-carolina-qb-injury/
-
-**Oregon HC Lanning on Charlie Kirk's death: 'The US could learn a lot from our locker room'**\
-`Lanning gave a poignant response to a question about the week's events after Saturday's game. `\
-https://nytimes.com/athletic/6627014/2025/09/13/oregon-ducks-dan-lanning-charlie-kirk/
 

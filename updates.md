@@ -1,3 +1,11 @@
+**LSU uses 5 INTs to beat Florida as pressure on Billy Napier grows: Key takeaways**\
+`No. 3 LSU's offense struggled Saturday, but the Tigers forced five turnovers from DJ Lagway in a 20-10 rivalry win.`\
+https://nytimes.com/athletic/6627095/2025/09/13/lsu-florida-football-score-takeaways-napier/
+
+**Messi misses Panenka penalty in Miami defeat as Toklomati grabs hat trick**\
+`Messi had the chance to put Miami ahead in the 32nd minute when he went down under challenge from Djibril Diani.`\
+https://nytimes.com/athletic/6627114/2025/09/13/messi-misses-panenka-pen-in-miami-defeat-as-toklomati-claims-hattrick/
+
 **Blue Jays to promote prospect Trey Yesavage to big leagues amid pennant push: Sources**\
 `With dominant outings in the low minors, Yesavage quickly jumped onto the Jays' radar as a potential candidate for a 2025 debut.`\
 https://nytimes.com/athletic/6627159/2025/09/13/trey-yesavage-blue-jays-promotion/
