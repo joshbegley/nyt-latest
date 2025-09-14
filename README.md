@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6627483/2025/09/14/giants-clayton-kershaw-hitters/
 `Beck has a better supporting cast, but he already has two more wins over ranked opponents than Ward did last season.`\
 https://nytimes.com/athletic/6628060/2025/09/14/carson-beck-cam-ward-miami-hurricanes-quarterback/
 
-**Burnley 0 Liverpool 1: Late Salah penalty seals win as Slot's side again find a way**\
+**Burnley 0 Liverpool 1: How many late winners have Liverpool had this season?**\
 `Our writer discusses the talking points after Liverpool stoppage-time win at Turf Moor.`\
 https://nytimes.com/athletic/6625471/2025/09/14/liverpool-burnley-kerkez-isak-salah/
 
