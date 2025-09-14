@@ -1,3 +1,7 @@
+**Brewers clinch MLB's first postseason spot thanks to Mets' eighth straight loss**\
+`The Brewers became the first team to officially clinch a postseason berth, securing their third straight playoff appearance.`\
+https://nytimes.com/athletic/6626923/2025/09/13/brewers-postseason-berth-mets-losing-streak/
+
 **After Kirk’s Killing, Suspect Joked That His ‘Doppelganger’ Did It**\
 `Before he was arrested on suspicion of carrying out the assassination, 22-year-old Tyler Robinson sent friends messages showing that he was closely following news about the killing.`\
 https://nytimes.com/2025/09/13/us/kirk-killing-suspect-online-chat.html
