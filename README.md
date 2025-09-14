@@ -1,3 +1,7 @@
+**Bright Choices for Artists**\
+`Matthew Stock and Michael Lieberman make their collaboration debut.`\
+https://nytimes.com/2025/09/14/crosswords/daily-puzzle-2025-09-15.html
+
 **Here’s the latest.**\
 `By John Koblin`\
 https://nytimes.com/live/2025/09/14/arts/emmy-awards/heres-the-latest
@@ -6,8 +10,8 @@ https://nytimes.com/live/2025/09/14/arts/emmy-awards/heres-the-latest
 `In addition to analyzing a pair of giant disappointments, our writers also weigh in on impressive Week 2 wins engineered by backup QBs.`\
 https://nytimes.com/athletic/6628048/2025/09/14/nfl-takeaways-week-2-bears-dolphins-cowboys/
 
-**Emmy Awards Live Updates: Stars of the Small Screen Gather Ahead of Ceremony**\
-`The best of television will be honored this evening at a ceremony at the Peacock Theater in downtown Los Angeles hosted by Nate Bargatze.`\
+**Emmy Awards Live Updates: Stars of the Small Screen Gather on the Red Carpet**\
+`The best of television will be honored at the Peacock Theater in downtown Los Angeles at a ceremony hosted by Nate Bargatze.`\
 https://nytimes.com/live/2025/09/14/arts/emmy-awards
 
 **How to watch Fever at Dream: Game 1 Time, TV, streaming**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6628900/2025/09/14/virginia-tech-football-coaching-
 **Cowboys vs. Giants: 3 takeaways takeaways from a thrilling overtime win for Dallas**\
 `Brandon Aubrey won the game with a field goal in overtime after booting a 64-yarder at the end of regulation.`\
 https://nytimes.com/athletic/6628685/2025/09/14/giants-cowboys-score-result-takeaways-nfl/
-
-**WNBA playoffs: Minnesota Lynx dominate Golden State Valkyries in Game 1**\
-`Catch up on analysis from the first day of the WNBA playoffs.`\
-https://nytimes.com/athletic/6628889/2025/09/14/wnba-playoffs-minnesota-lynx-dominate-golden-state-valkyries-in-game-1/
 

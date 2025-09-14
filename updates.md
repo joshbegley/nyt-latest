@@ -1,3 +1,11 @@
+**Here’s the latest.**\
+`By John Koblin`\
+https://nytimes.com/live/2025/09/14/arts/emmy-awards/heres-the-latest
+
+**NFL Week 2 takeaways: Bears flail, Dolphins stumble, Cowboys somehow come through**\
+`In addition to analyzing a pair of giant disappointments, our writers also weigh in on impressive Week 2 wins engineered by backup QBs.`\
+https://nytimes.com/athletic/6628048/2025/09/14/nfl-takeaways-week-2-bears-dolphins-cowboys/
+
 **Emmy Awards Live Updates: Stars of the Small Screen Gather Ahead of Ceremony**\
 `The best of television will be honored this evening at a ceremony at the Peacock Theater in downtown Los Angeles hosted by Nate Bargatze.`\
 https://nytimes.com/live/2025/09/14/arts/emmy-awards
