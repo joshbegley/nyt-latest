@@ -1,3 +1,7 @@
+**‘Infinity Castle’ Tops the Box Office, Revealing Changing Tastes**\
+`“Demon Slayer: Kimetsu no Yaiba Infinity Castle,” an anime film from Sony Pictures, arrives to a surprisingly strong $70 million in domestic ticket sales.`\
+https://nytimes.com/2025/09/14/business/anime-demon-slayer-box-office.html
+
 **Bristol Night Race takeaways: Tires, early eliminations and loads of caution laps**\
 `Heavy tire wear made a huge impact, an especially rough showing for the first four eliminated, and more thoughts on the Bristol Night Race.`\
 https://nytimes.com/athletic/6628058/2025/09/14/nascar-bristol-night-race-takeaways-tires-cautions-christopher-bell/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6628262/2025/09/14/mets-sean-manaea-bullpen/
 **White House Seeks More Supreme Court Security Funding After Kirk Killing**\
 `In a notice to Congress, the Trump administration said the additional $58 million would go to the U.S. Marshals Service. It also said it supported additional security for lawmakers.`\
 https://nytimes.com/2025/09/14/us/politics/trump-security-supreme-court-congress.html
-
-**Europe VC Noren wins Wentworth playoff - how did Ryder Cup players perform?**\
-`It was Noren’s 12th win on the DP World Tour in his 307th appearance - the European team flies out on Sunday evening.`\
-https://nytimes.com/athletic/6628092/2025/09/14/bmw-pga-championship-alex-noren/
 
