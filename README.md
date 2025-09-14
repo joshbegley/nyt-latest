@@ -27,7 +27,7 @@ https://nytimes.com/2025/09/14/world/europe/romania-drone-russia-ukraine.html
 https://nytimes.com/athletic/6627439/2025/09/14/dodgers-giants-win-hernandez-ohtani/
 
 **Terence Crawford upsets Canelo Álvarez with gritty unanimous decision**\
-`Crawford won on all thee judges scorecards after moving up two weight classes.`\
+`Crawford won on all thee judges' scorecards after moving up two weight classes.`\
 https://nytimes.com/athletic/6627012/2025/09/14/canelo-alvarez-terence-crawford-fight-result/
 
 **Hermeto Pascoal, Eccentric and Prolific Brazilian Composer, Dies at 89**\
