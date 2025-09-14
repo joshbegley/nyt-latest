@@ -1,3 +1,7 @@
+**Brewers clinch MLB's first postseason spot thanks to Mets' eighth straight loss**\
+`The Brewers became the first team to officially clinch a postseason berth, securing their third straight playoff appearance.`\
+https://nytimes.com/athletic/6626923/2025/09/13/brewers-postseason-berth-mets-losing-streak/
+
 **After Kirk’s Killing, Suspect Joked That His ‘Doppelganger’ Did It**\
 `Before he was arrested on suspicion of carrying out the assassination, 22-year-old Tyler Robinson sent friends messages showing that he was closely following news about the killing.`\
 https://nytimes.com/2025/09/13/us/kirk-killing-suspect-online-chat.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6626782/2025/09/13/pirates-vs-nationals-stream-how-
 **How to watch Tigers at Marlins: Time, TV, streaming for September 14**\
 `Find out how to watch the Detroit Tigers play the Miami Marlins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6626773/2025/09/13/tigers-vs-marlins-stream-how-to-watch-sept-14/
-
-**How to watch Rangers at Mets: Time, TV, streaming for September 14**\
-`Find out how to watch the Texas Rangers play the New York Mets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6626768/2025/09/13/rangers-vs-mets-stream-how-to-watch-sept-14/
 
