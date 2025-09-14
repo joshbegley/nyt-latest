@@ -1,3 +1,7 @@
+**After Kirk’s Killing, Suspect Joked That His ‘Doppelganger’ Did It**\
+`Before he was arrested on suspicion of carrying out the assassination, 22-year-old Tyler Robinson sent friends messages showing that he was closely following news about the killing.`\
+https://nytimes.com/2025/09/13/us/kirk-killing-suspect-online-chat.html
+
 **College Football Playoff 2025 projections: Georgia rising, Clemson plummets in Week 3**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/09/13/college-football-playoff-bracket-projections-odds/
