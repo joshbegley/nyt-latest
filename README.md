@@ -30,7 +30,7 @@ https://nytimes.com/2025/09/14/briefing/charlie-kirk-religion-spirituality.html
 `Saturday night's win was an encouraging step, one that featured enough star power and defense to keep this reality series interesting.`\
 https://nytimes.com/athletic/6627487/2025/09/14/arizona-state-sam-leavitt-jordyn-tyson-touchdown-texas-state/
 
-**Ricky Hatton: Tributes paid to former boxer after he dies aged 46**\
+**Hatton remembered: Tributes flow in after death of former boxing champion at 46**\
 `Greater Manchester Police said in a statement that a body had been found on Sunday morning in the town of Hyde`\
 https://nytimes.com/athletic/6627699/2025/09/14/ricky-hatton-news-dead-boxing/
 
