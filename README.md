@@ -1,3 +1,11 @@
+**Virginia Tech firing Brent Pry after blowout loss to Old Dominion, 0-3 start**\
+`The dreadful tenure of Pry continued a downward trend for a once-proud Hokie program.`\
+https://nytimes.com/athletic/6627099/2025/09/14/virginia-tech-brent-pry-firing/
+
+**UCLA fires DeShaun Foster after 0-3 start to second full season**\
+`UCLA has yet to hold a lead in 2025, conceding 286 rushing yards in its opener against the Utes and nearly 300 to the Lobos.`\
+https://nytimes.com/athletic/6627281/2025/09/14/ucla-deshaun-foster-fired-coaching-search/
+
 **Mets likely moving Sean Manaea to bullpen temporarily as losing streak continues**\
 `The lefty, who signed a three-year, $75 million contract after a strong season for New York in 2024, has a 5.76 ERA over 50 innings.`\
 https://nytimes.com/athletic/6628262/2025/09/14/mets-sean-manaea-bullpen/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6627483/2025/09/14/giants-clayton-kershaw-hitters/
 **What's the difference between Carson Beck and Cam Ward at Miami? It's hard to tell so far**\
 `Beck has a better supporting cast, but he already has two more wins over ranked opponents than Ward did last season.`\
 https://nytimes.com/athletic/6628060/2025/09/14/carson-beck-cam-ward-miami-hurricanes-quarterback/
-
-**Burnley 0 Liverpool 1: How many late winners have Slot's side had this season?**\
-`Our writer discusses the talking points after Liverpool stoppage-time win at Turf Moor.`\
-https://nytimes.com/athletic/6625471/2025/09/14/liverpool-burnley-kerkez-isak-salah/
-
-**A Quick Shrimp Dinner for Long, Stumping Sundays**\
-`Sometimes the weekend calls for a fast, easy supper, and for that supper you’ll want this pili pili shrimp with braised white beans.`\
-https://nytimes.com/2025/09/14/dining/a-quick-shrimp-dinner-for-long-stumping-sundays.html
 
