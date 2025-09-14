@@ -1,3 +1,11 @@
+**49ers vs. Saints: 4 takeaways from San Francisco's 26-21 victory over New Orleans**\
+`Mac Jones threw three touchdown passes to lead a short-handed San Francisco 49ers team to a road win.`\
+https://nytimes.com/athletic/6628356/2025/09/14/niners-saints-score-result-takeaways-nfl/
+
+**Rams vs. Titans: 4 takeaways from L.A.'s victory over Tennessee**\
+`Matthew Stafford passed for 298 yards and two touchdowns to outduel No. 1 pick Cam Ward.`\
+https://nytimes.com/athletic/6628369/2025/09/14/rams-titans-score-result-takeaways-nfl/
+
 **McNulty wins GP Cycliste de Montréal ahead of Pogacar as UAE Team-Emirates tie seasonal win record**\
 `American rider adds first WorldTour one day race victory to his palmares`\
 https://nytimes.com/athletic/6628834/2025/09/14/mcnulty-pogacar-montreal-uae-85-win-record/
