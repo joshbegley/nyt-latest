@@ -1,3 +1,15 @@
+**‘Infinity Castle’ Tops the Box Office, Revealing Changing Tastes**\
+`“Demon Slayer: Kimetsu no Yaiba Infinity Castle,” an anime film from Sony Pictures, arrives to a surprisingly strong $70 million in domestic ticket sales.`\
+https://nytimes.com/2025/09/14/business/anime-demon-slayer-box-office.html
+
+**Bristol Night Race takeaways: Tires, early eliminations and loads of caution laps**\
+`Heavy tire wear made a huge impact, an especially rough showing for the first four eliminated, and more thoughts on the Bristol Night Race.`\
+https://nytimes.com/athletic/6628058/2025/09/14/nascar-bristol-night-race-takeaways-tires-cautions-christopher-bell/
+
+**Vuelta a Espana finish cancelled after pro-Palestine protests in Madrid**\
+`It marked the third time during the 2025 tour that a stage had been cut short due to demonstrations.`\
+https://nytimes.com/athletic/6628349/2025/09/14/vuelta-a-espana-finish-cancel-palestine-protests/
+
 **Man City 3 Man Utd 0 - How good was Haaland? How were United cut open? What next for Amorim?**\
 `Analysis of Manchester City's dominant derby victory over Manchester United`\
 https://nytimes.com/athletic/6625474/2025/09/14/manchester-city-united-haaland-highlights/

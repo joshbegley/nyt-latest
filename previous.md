@@ -1,3 +1,15 @@
+**‘Infinity Castle’ Tops the Box Office, Revealing Changing Tastes**\
+`“Demon Slayer: Kimetsu no Yaiba Infinity Castle,” an anime film from Sony Pictures, arrives to a surprisingly strong $70 million in domestic ticket sales.`\
+https://nytimes.com/2025/09/14/business/anime-demon-slayer-box-office.html
+
+**Bristol Night Race takeaways: Tires, early eliminations and loads of caution laps**\
+`Heavy tire wear made a huge impact, an especially rough showing for the first four eliminated, and more thoughts on the Bristol Night Race.`\
+https://nytimes.com/athletic/6628058/2025/09/14/nascar-bristol-night-race-takeaways-tires-cautions-christopher-bell/
+
+**Vuelta a Espana finish cancelled after pro-Palestine protests in Madrid**\
+`It marked the third time during the 2025 tour that a stage had been cut short due to demonstrations.`\
+https://nytimes.com/athletic/6628349/2025/09/14/vuelta-a-espana-finish-cancel-palestine-protests/
+
 **Man City 3 Man Utd 0 - How good was Haaland? How were United cut open? What next for Amorim?**\
 `Analysis of Manchester City's dominant derby victory over Manchester United`\
 https://nytimes.com/athletic/6625474/2025/09/14/manchester-city-united-haaland-highlights/
@@ -25,17 +37,4 @@ https://nytimes.com/athletic/6628262/2025/09/14/mets-sean-manaea-bullpen/
 **White House Seeks More Supreme Court Security Funding After Kirk Killing**\
 `In a notice to Congress, the Trump administration said the additional $58 million would go to the U.S. Marshals Service. It also said it supported additional security for lawmakers.`\
 https://nytimes.com/2025/09/14/us/politics/trump-security-supreme-court-congress.html
-
-**Europe VC Noren wins Wentworth playoff - how did Ryder Cup players perform?**\
-`It was Noren’s 12th win on the DP World Tour in his 307th appearance - the European team flies out on Sunday evening.`\
-https://nytimes.com/athletic/6628092/2025/09/14/bmw-pga-championship-alex-noren/
-
-**Submit your questions for Antonio Morales’ USC football mailbag**\
-`<p>USC is 3-0 overall and 1-0 in the Big Ten after Saturday&#8217;s win at Purdue. Are the Trojans poised to contend for a College Football Playoff spot? Submit your questions for Antonio Morales. We will post his answers later in the week.</p>
-`\
-https://nytimes.com/athletic/6628233/2025/09/14/submit-your-questions-for-antonio-morales-usc-football-mailbag-13/
-
-**Postcard Sent From the U.N. Is Returned to Sender After 72 Years**\
-`Alan Ball sent the postcard to his family during the summer of 1953. Last week, it arrived at his home in Idaho.`\
-https://nytimes.com/2025/09/14/us/lost-postcard-united-nations.html
 
