@@ -26,8 +26,8 @@ https://nytimes.com/athletic/6628215/2025/09/14/ap-top-25-college-football-ranki
 `Pope Leo XIV said that while popes can be advocates for peace, it was less “realistic” for them to serve as mediators.`\
 https://nytimes.com/2025/09/14/world/europe/pope-leo-ukraine-peace.html
 
-**No 'D' in Dolphins: Miami's foes have scored on all 10 drives this season**\
-`After Colts go 7-for-7 against Miami defense in Week 1, Patriots score on first three possessions on Sunday.`\
+**No 'D' in Dolphins: Miami finally gets a stop, with some help from the clock**\
+`Dolphins' opponents had scored on all 10 possessions this season before Patriots opt to run out the clock just before the half on Sunday.`\
 https://nytimes.com/athletic/6628418/2025/09/14/dolphins-defense-struggles-season/
 
 **Giants bench LT James Hudson after historically bad opening drive**\

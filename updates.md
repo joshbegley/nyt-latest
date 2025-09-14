@@ -1,3 +1,15 @@
+**Bears cornerback Jaylon Johnson exits game vs. Lions game with groin injury**\
+`Johnson missed all of training camp and the season opener due to a groin injury and made his return Sunday in Detroit.`\
+https://nytimes.com/athletic/6628547/2025/09/14/bears-lions-jaylon-johnson-groin-injury/
+
+**Joe Burrow exits vs. Jaguars with toe injury in 2nd quarter, questionable to return**\
+`Burrow was sacked by Jaguars defender Arik Armstead with 9:02 to play in the first half, and remained on the ground.`\
+https://nytimes.com/athletic/6628370/2025/09/14/joe-burrow-injury-jaguars-bengals-score-result-takeaways-nfl/
+
+**Enfield vs Enfield: The most unusual rivals in English football meet for the first time in the FA Cup**\
+`It’s difficult to understand why Enfield FC needs to exist in its current form – it was a comprehensive win for Town, on and off the pitch`\
+https://nytimes.com/athletic/6626426/2025/09/14/enfield-derby-rivalry-fa-cup/
+
 **Aaron Rodgers ties Brett Favre for fourth all-time in passing touchdowns**\
 `Rodgers now trails only Tom Brady, Peyton Manning and Drew Brees on the all-time list.`\
 https://nytimes.com/athletic/6628240/2025/09/14/aaron-rodgers-brett-favre-passing-td-all-time-list/

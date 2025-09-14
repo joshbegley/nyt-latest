@@ -1,3 +1,15 @@
+**Bears cornerback Jaylon Johnson exits game vs. Lions game with groin injury**\
+`Johnson missed all of training camp and the season opener due to a groin injury and made his return Sunday in Detroit.`\
+https://nytimes.com/athletic/6628547/2025/09/14/bears-lions-jaylon-johnson-groin-injury/
+
+**Joe Burrow exits vs. Jaguars with toe injury in 2nd quarter, questionable to return**\
+`Burrow was sacked by Jaguars defender Arik Armstead with 9:02 to play in the first half, and remained on the ground.`\
+https://nytimes.com/athletic/6628370/2025/09/14/joe-burrow-injury-jaguars-bengals-score-result-takeaways-nfl/
+
+**Enfield vs Enfield: The most unusual rivals in English football meet for the first time in the FA Cup**\
+`It’s difficult to understand why Enfield FC needs to exist in its current form – it was a comprehensive win for Town, on and off the pitch`\
+https://nytimes.com/athletic/6626426/2025/09/14/enfield-derby-rivalry-fa-cup/
+
 **Aaron Rodgers ties Brett Favre for fourth all-time in passing touchdowns**\
 `Rodgers now trails only Tom Brady, Peyton Manning and Drew Brees on the all-time list.`\
 https://nytimes.com/athletic/6628240/2025/09/14/aaron-rodgers-brett-favre-passing-td-all-time-list/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6628408/2025/09/14/ny-giants-james-hudson-penalties
 **Patrick McGovern, the ‘Indiana Jones of Ancient Alcohol,’ Dies at 80**\
 `An archaeologist, he discovered and analyzed the residue of beverages imbibed by long-vanished civilizations and then figured out how to recreate them.`\
 https://nytimes.com/2025/09/14/obituaries/patrick-mcgovern-dead.html
-
-**‘Infinity Castle’ Tops the Box Office, Revealing Changing Tastes**\
-`“Demon Slayer: Kimetsu no Yaiba Infinity Castle,” an anime film from Sony Pictures, arrives to a surprisingly strong $70 million in domestic ticket sales.`\
-https://nytimes.com/2025/09/14/business/anime-demon-slayer-box-office.html
-
-**Bristol Night Race takeaways: Tires, early eliminations and loads of caution laps**\
-`Heavy tire wear made a huge impact, an especially rough showing for the first four eliminated, and more thoughts on the Bristol Night Race.`\
-https://nytimes.com/athletic/6628058/2025/09/14/nascar-bristol-night-race-takeaways-tires-cautions-christopher-bell/
-
-**Vuelta a Espana finish cancelled after pro-Palestine protests in Madrid**\
-`It marked the third time during the 2025 tour that a stage had been cut short due to demonstrations.`\
-https://nytimes.com/athletic/6628349/2025/09/14/vuelta-a-espana-finish-cancel-palestine-protests/
 
