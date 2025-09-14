@@ -1,3 +1,7 @@
+**'How in the wide world?' Sam Leavitt, Jordyn Tyson produce incredible TD in Arizona State win**\
+`Saturday night's win was an encouraging step, one that featured enough star power and defense to keep this reality series interesting.`\
+https://nytimes.com/athletic/6627487/2025/09/14/arizona-state-sam-leavitt-jordyn-tyson-touchdown-texas-state/
+
 **Ricky Hatton: Tributes paid to former boxer after he dies aged 46**\
 `Greater Manchester Police said in a statement that a body had been found on Sunday morning in the town of Hyde`\
 https://nytimes.com/athletic/6627699/2025/09/14/ricky-hatton-news-dead-boxing/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6627683/2025/09/14/notre-dame-texas-am-chris-ash/
 **FA launches probe after FA Cup tie abandoned due to alleged racial abuse**\
 `The tie between National League North side Hereford and Sporting Khalsa, who play in the eighth tier, was abandoned on 67 minutes.`\
 https://nytimes.com/athletic/6627576/2025/09/14/football-racist-abuse-fa-cup-hereford-sporting-khalsa/
-
-**Austin Martin finds 'mental freedom' in Twins' aggressive base-running style**\
-`Since making a critical mistake on the bases on Aug. 26, Martin has hit .383/.517/.489 in 60 plate appearances with Minnesota.`\
-https://nytimes.com/athletic/6626618/2025/09/14/austin-martin-twins-aggressive-baserunning/
 

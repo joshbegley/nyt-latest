@@ -1,3 +1,15 @@
+**Ricky Hatton: Tributes paid to former boxer after he dies aged 46**\
+`Greater Manchester Police said in a statement that a body had been found on Sunday morning in the town of Hyde`\
+https://nytimes.com/athletic/6627699/2025/09/14/ricky-hatton-news-dead-boxing/
+
+**Until Saturday: Two GOTY contenders**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6627802/2025/09/14/georgia-tennessee-texas-am-notre-dame-until-saturday/
+
+**Trump Administration Live Updates: Federal Judge Questions Deportations to Ghana**\
+``\
+https://nytimes.com/live/2025/09/14/us/trump-news
+
 **Mandel's Final Thoughts: Texas A&M's breakthrough, Tennessee heartbreak and more**\
 `Plus: Kirk Ferentz breaks Woody Hayes' Big Ten career wins record, and Georgia Tech should no longer be slept on.`\
 https://nytimes.com/athletic/6627476/2025/09/14/mandel-texas-am-notre-dame-tennessee/

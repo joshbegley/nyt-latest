@@ -1,3 +1,15 @@
+**Ricky Hatton: Tributes paid to former boxer after he dies aged 46**\
+`Greater Manchester Police said in a statement that a body had been found on Sunday morning in the town of Hyde`\
+https://nytimes.com/athletic/6627699/2025/09/14/ricky-hatton-news-dead-boxing/
+
+**Until Saturday: Two GOTY contenders**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6627802/2025/09/14/georgia-tennessee-texas-am-notre-dame-until-saturday/
+
+**Trump Administration Live Updates: Federal Judge Questions Deportations to Ghana**\
+``\
+https://nytimes.com/live/2025/09/14/us/trump-news
+
 **Mandel's Final Thoughts: Texas A&M's breakthrough, Tennessee heartbreak and more**\
 `Plus: Kirk Ferentz breaks Woody Hayes' Big Ten career wins record, and Georgia Tech should no longer be slept on.`\
 https://nytimes.com/athletic/6627476/2025/09/14/mandel-texas-am-notre-dame-tennessee/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6627576/2025/09/14/football-racist-abuse-fa-cup-her
 **Austin Martin finds 'mental freedom' in Twins' aggressive base-running style**\
 `Since making a critical mistake on the bases on Aug. 26, Martin has hit .383/.517/.489 in 60 plate appearances with Minnesota.`\
 https://nytimes.com/athletic/6626618/2025/09/14/austin-martin-twins-aggressive-baserunning/
-
-**How a Canadiens loss said so much about how Montreal will win for years to come**\
-`Ivan Demidov and David Reinbacher impact games in different ways, but they will each contribute to the Canadiens' future success.`\
-https://nytimes.com/athletic/6627413/2025/09/14/canadiens-demidov-reinbacher-loss-jets/
-
-**Removing Bryce Underwood's bubble wrap right move by suspended Sherrone Moore**\
-`The freshman quarterback is too gifted to be hemmed in by a risk-averse game plan. `\
-https://nytimes.com/athletic/6626964/2025/09/14/michigan-football-bryce-underwood-sherrone-moore/
-
-**How the Blue Jays made comebacks an unstoppable habit**\
-`Saturday’s 5-4 victory over the Orioles marked the Blue Jays’ 45th comeback of the season, the fourth most in franchise history.`\
-https://nytimes.com/athletic/6627227/2025/09/14/blue-jays-comebacks-habit/
 
