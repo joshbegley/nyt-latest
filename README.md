@@ -1,3 +1,11 @@
+**Sheffield United set to dismiss Selles with Wilder lined up as replacement**\
+`Friday’s 5-0 loss to Ipswich Town ensured Selles had overseen a defeat in each of his six games at the helm`\
+https://nytimes.com/athletic/6624339/2025/09/14/sheffield-united-manager-selles-sacked/
+
+**Notre Dame's 2024 good vibes are gone, and this season might be over soon, too**\
+`Is the Irish season over by mid-September? Notre Dame went from one of the best defenses in the nation to one of the worst at warp speed.`\
+https://nytimes.com/athletic/6627683/2025/09/14/notre-dame-texas-am-chris-ash/
+
 **FA launches probe after FA Cup tie abandoned due to alleged racial abuse**\
 `The tie between National League North side Hereford and Sporting Khalsa, who play in the eighth tier, was abandoned on 67 minutes.`\
 https://nytimes.com/athletic/6627576/2025/09/14/football-racist-abuse-fa-cup-hereford-sporting-khalsa/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/14/world/middleeast/arab-ministers-qatar-israel.html
 **Sure, Tennessee's loss to Georgia hurts. But it won't be hard to smile through this pain**\
 `Sunshine pumping isn't natural after the Vols had a chance to win in regulation, but Tennessee is just fine. It has a QB. It has a team.`\
 https://nytimes.com/athletic/6627191/2025/09/14/tennessee-football-joey-aguilar-georgia/
-
-**NFL Week 2 top storylines: Early desperation, reunions and Super Bowl rematch**\
-`The Chiefs are looking for Super Bowl revenge and their first win of the season when they host the Eagles on Sunday.`\
-https://nytimes.com/athletic/6620411/2025/09/14/nfl-week-2-storylines-super-bowl-rematch/
-
-**The numbers are grisly for Billy Napier after another troubling loss to a rival**\
-`The problem is the offense. Napier’s offense. The offense he leads after refusing to hire a play caller this offseason.`\
-https://nytimes.com/athletic/6627428/2025/09/14/billy-napier-florida-coach-buyout/
 
