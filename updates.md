@@ -1,3 +1,15 @@
+**Cowboys are signing Jadeveon Clowney, Jerry Jones says after wild victory**\
+`Looking for pass-rush help after not getting much in their first two games and trading Micah Parsons, the Cowboys are adding Clowney.`\
+https://nytimes.com/athletic/6616474/2025/09/14/cowboys-jadeveon-clowney-signing/
+
+**How good is the Virginia Tech job? Pros and cons of a once-proud program**\
+`Brent Pry’s tenure continued a downward trend for a once-proud program.`\
+https://nytimes.com/athletic/6628900/2025/09/14/virginia-tech-football-coaching-search-history-finances/
+
+**Cowboys vs. Giants: 3 takeaways takeaways from a thrilling overtime win for Dallas**\
+`Brandon Aubrey won the game with a field goal in overtime after booting a 64-yarder at the end of regulation.`\
+https://nytimes.com/athletic/6628685/2025/09/14/giants-cowboys-score-result-takeaways-nfl/
+
 **WNBA playoffs: Minnesota Lynx dominate Golden State Valkyries in Game 1**\
 `Catch up on analysis from the first day of the WNBA playoffs.`\
 https://nytimes.com/athletic/6628889/2025/09/14/wnba-playoffs-minnesota-lynx-dominate-golden-state-valkyries-in-game-1/
