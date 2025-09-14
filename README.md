@@ -1,3 +1,7 @@
+**Vanderbilt keeps rolling, pounds South Carolina in Columbia to improve to 3-0**\
+`It was Vanderbilt’s first win over the Gamecocks since 2008 and their first SEC opening win since 2011.`\
+https://nytimes.com/athletic/6627209/2025/09/13/vanderbilt-diego-pavia-south-carolina-lanorris-sellers/
+
 **Mets' playoff hopes dwindling as eighth straight loss drops them into tie**\
 `New York's 3-2 loss dropped them into a tie with San Francisco for the National League's final wild card spot with 13 games left. `\
 https://nytimes.com/athletic/6627156/2025/09/13/mets-eight-game-losing-streak-playoff/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6626952/2025/09/13/yankees-team-bonding-red-sox/
 **Aggies' Bryce Anderson, Razorbacks' Kani Walker carted off, give thumbs up to fans**\
 `Anderson and Walker gave their respective crowds a thumbs up as each was carted off the field in a neck brace and on a stretcher.`\
 https://nytimes.com/athletic/6627116/2025/09/13/bryce-anderson-injury-texas-am-notre-dame/
-
-**Federal Judge Questions Deportations to Ghana**\
-`A hearing in the case of five migrants deported to Ghana last week showed how earlier Supreme Court rulings have paved the way for President Trump’s mass deportation campaign.`\
-https://nytimes.com/2025/09/13/us/politics/federal-judge-migrants-ghana.html
 
