@@ -1,3 +1,8 @@
+**Submit your questions for Antonio Morales’ USC football mailbag**\
+`<p>USC is 3-0 overall and 1-0 in the Big Ten after Saturday&#8217;s win at Purdue. Are the Trojans poised to contend for a College Football Playoff spot? Submit your questions for Antonio Morales. We will post his answers later in the week.</p>
+`\
+https://nytimes.com/athletic/6628233/2025/09/14/submit-your-questions-for-antonio-morales-usc-football-mailbag-13/
+
 **Postcard Sent From the U.N. Is Returned to Sender After 72 Years**\
 `Alan Ball sent the postcard to his family during the summer of 1953. Last week, it arrived at his home in Idaho.`\
 https://nytimes.com/2025/09/14/us/lost-postcard-united-nations.html
@@ -33,8 +38,4 @@ https://nytimes.com/2025/09/14/world/asia/nepal-prime-minister-promises.html
 **McCaul, a Foreign Policy Leader in the House, Won’t Seek Re-election**\
 `Representative Michael McCaul, an 11-term Texas Republican who chairs the House Foreign Affairs Committee, announced on Sunday that he would retire from Congress.`\
 https://nytimes.com/2025/09/14/us/politics/michael-mccaul-retires-house-texas.html
-
-**Ricky Hatton, British Boxer and Former World Champion, Dies at 46**\
-`The British authorities said that the boxer, who retired in 2012, was found unresponsive at a home in Greater Manchester.`\
-https://nytimes.com/2025/09/14/sports/ricky-hatton-dead.html
 
