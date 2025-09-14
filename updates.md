@@ -1,3 +1,15 @@
+**McNulty wins GP Cycliste de Montréal ahead of Pogacar as UAE Team-Emirates tie seasonal win record**\
+`American rider adds first WorldTour one day race victory to his palmares`\
+https://nytimes.com/athletic/6628834/2025/09/14/mcnulty-pogacar-montreal-uae-85-win-record/
+
+**Sam Kerr scores in her first game for Chelsea in 634 days, completing a long awaited comeback**\
+`The forward scored her 100th Chelsea goal after nearly two years away due to an ACL injury`\
+https://nytimes.com/athletic/6628517/2025/09/14/sam-kerr-chelsea-return-injury-scores/
+
+**Browns vs. Ravens: Takeaways from Baltimore's redemption win over Cleveland**\
+`The Ravens got a bounce-back performance on defense and some unlikely offensive contributors.`\
+https://nytimes.com/athletic/6628579/2025/09/14/browns-ravens-score-result-takeaways-nfl/
+
 **Rams vs. Titans: 4 takeaways from L.A.'s victory over Tennessee**\
 `Matt Stafford passed for 298 yards and two touchdowns to outduel No. 1 pick Cam Ward.`\
 https://nytimes.com/athletic/6628369/2025/09/14/rams-titans-score-result-takeaways-nfl/
