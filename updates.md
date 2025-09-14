@@ -1,3 +1,8 @@
+**Submit your questions for Antonio Morales’ USC football mailbag**\
+`<p>USC is 3-0 overall and 1-0 in the Big Ten after Saturday&#8217;s win at Purdue. Are the Trojans poised to contend for a College Football Playoff spot? Submit your questions for Antonio Morales. We will post his answers later in the week.</p>
+`\
+https://nytimes.com/athletic/6628233/2025/09/14/submit-your-questions-for-antonio-morales-usc-football-mailbag-13/
+
 **Postcard Sent From the U.N. Is Returned to Sender After 72 Years**\
 `Alan Ball sent the postcard to his family during the summer of 1953. Last week, it arrived at his home in Idaho.`\
 https://nytimes.com/2025/09/14/us/lost-postcard-united-nations.html
