@@ -1,3 +1,7 @@
+**Patrick McGovern, the ‘Indiana Jones of Ancient Alcohol,’ Dies at 80**\
+`An archaeologist, he discovered and analyzed the residue of beverages imbibed by long-vanished civilizations and then figured out how to recreate them.`\
+https://nytimes.com/2025/09/14/obituaries/patrick-mcgovern-dead.html
+
 **‘Infinity Castle’ Tops the Box Office, Revealing Changing Tastes**\
 `“Demon Slayer: Kimetsu no Yaiba Infinity Castle,” an anime film from Sony Pictures, arrives to a surprisingly strong $70 million in domestic ticket sales.`\
 https://nytimes.com/2025/09/14/business/anime-demon-slayer-box-office.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6627281/2025/09/14/ucla-deshaun-foster-fired-coachi
 **Mets likely moving Sean Manaea to bullpen temporarily as losing streak continues**\
 `The lefty, who signed a three-year, $75 million contract after a strong season for New York in 2024, has a 5.76 ERA over 50 innings.`\
 https://nytimes.com/athletic/6628262/2025/09/14/mets-sean-manaea-bullpen/
-
-**White House Seeks More Supreme Court Security Funding After Kirk Killing**\
-`In a notice to Congress, the Trump administration said the additional $58 million would go to the U.S. Marshals Service. It also said it supported additional security for lawmakers.`\
-https://nytimes.com/2025/09/14/us/politics/trump-security-supreme-court-congress.html
 

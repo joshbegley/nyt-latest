@@ -1,3 +1,7 @@
+**Patrick McGovern, the ‘Indiana Jones of Ancient Alcohol,’ Dies at 80**\
+`An archaeologist, he discovered and analyzed the residue of beverages imbibed by long-vanished civilizations and then figured out how to recreate them.`\
+https://nytimes.com/2025/09/14/obituaries/patrick-mcgovern-dead.html
+
 **‘Infinity Castle’ Tops the Box Office, Revealing Changing Tastes**\
 `“Demon Slayer: Kimetsu no Yaiba Infinity Castle,” an anime film from Sony Pictures, arrives to a surprisingly strong $70 million in domestic ticket sales.`\
 https://nytimes.com/2025/09/14/business/anime-demon-slayer-box-office.html
