@@ -1,3 +1,7 @@
+**What Malnutrition Has Done to Gaza’s Children**\
+`The enclave is experiencing some of the highest levels of malnutrition since the fighting began. Even children who recover will carry the physical consequences for the rest of their lives.`\
+https://nytimes.com/2025/09/14/briefing/malnutrition-gaza-nepal-charlie-kirk-romania.html
+
 **Emmys Photos: See All the Looks From the 2025 Red Carpet**\
 `See all the looks from TV’s biggest night.`\
 https://nytimes.com/interactive/2025/09/14/style/emmys-red-carpet-photos.html

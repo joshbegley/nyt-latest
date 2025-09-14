@@ -1,3 +1,7 @@
+**What Malnutrition Has Done to Gaza’s Children**\
+`The enclave is experiencing some of the highest levels of malnutrition since the fighting began. Even children who recover will carry the physical consequences for the rest of their lives.`\
+https://nytimes.com/2025/09/14/briefing/malnutrition-gaza-nepal-charlie-kirk-romania.html
+
 **Emmys Photos: See All the Looks From the 2025 Red Carpet**\
 `See all the looks from TV’s biggest night.`\
 https://nytimes.com/interactive/2025/09/14/style/emmys-red-carpet-photos.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6629076/2025/09/14/storm-vs-aces-stream-how-to-watc
 **Cowboys are signing Jadeveon Clowney, Jerry Jones says after wild victory**\
 `Looking for pass-rush help after not getting much in their first two games and trading Micah Parsons, the Cowboys are adding Clowney.`\
 https://nytimes.com/athletic/6616474/2025/09/14/cowboys-jadeveon-clowney-signing/
-
-**How good is the Virginia Tech job? Pros and cons of a once-proud program**\
-`Brent Pry’s tenure continued a downward trend for a once-proud program.`\
-https://nytimes.com/athletic/6628900/2025/09/14/virginia-tech-football-coaching-search-history-finances/
 
