@@ -1,3 +1,7 @@
+**Romania Reports Russian Drone in Its Airspace**\
+`The brief incursion occurred days after Poland reported Russian drones in its territory. Romania said the drone did not fly over populated areas.`\
+https://nytimes.com/2025/09/14/world/europe/romania-drone-russia-ukraine.html
+
 **Tyler Robinson and Our Poisonous Internet**\
 `We’ve fully stepped into a different historical moment: the age of brain-poisoning meme politics.`\
 https://nytimes.com/2025/09/14/opinion/charlie-kirk-shooting-internet.html
