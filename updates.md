@@ -1,3 +1,19 @@
+**Vanderbilt keeps rolling, pounds South Carolina in Columbia to improve to 3-0**\
+`It was Vanderbilt’s first win over the Gamecocks since 2008 and their first SEC opening win since 2011.`\
+https://nytimes.com/athletic/6627209/2025/09/13/vanderbilt-diego-pavia-south-carolina-lanorris-sellers/
+
+**Mets' playoff hopes dwindling as eighth straight loss drops them into tie**\
+`New York's 3-2 loss dropped them into a tie with San Francisco for the National League's final wild card spot with 13 games left. `\
+https://nytimes.com/athletic/6627156/2025/09/13/mets-eight-game-losing-streak-playoff/
+
+**Ohio State takeaways: The good (Bo Jackson) and bad (red zone) from 37-9 win over Ohio**\
+`Ohio State mostly dominated Ohio on Saturday, but red zone issues kept the Bobcats in the game with the No. 1 Buckeyes longer than expected.`\
+https://nytimes.com/athletic/6627173/2025/09/13/ohio-state-football-score-ohio-bobcats/
+
+**Aggies' Bryce Anderson, Razorbacks' Kani Walker carted off, give thumbs up to fans**\
+`Anderson and Walker gave their respective crowds a thumbs up as each was carted off the field in a neck brace and on a stretcher.`\
+https://nytimes.com/athletic/6627116/2025/09/13/bryce-anderson-injury-texas-am-notre-dame/
+
 **LSU uses 5 INTs to beat Florida as pressure on Billy Napier grows: Key takeaways**\
 `No. 3 LSU's offense struggled Saturday, but the Tigers forced five turnovers from DJ Lagway in a 20-10 rivalry win.`\
 https://nytimes.com/athletic/6627095/2025/09/13/lsu-florida-football-score-takeaways-napier/
