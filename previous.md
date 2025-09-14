@@ -1,40 +1,40 @@
-**College Football Playoff 2025 projections: Georgia rising, Clemson plummets in Week 3**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/09/13/college-football-playoff-bracket-projections-odds/
+**How Madueke, Mosquera and Nwaneri showcased Arsenal's 'new relationships'**\
+`Five of Arsenal's eight summer signings started the 3-0 win over Forest. Mikel Arteta says they can help Arsenal “become more unpredictable"`\
+https://nytimes.com/athletic/6626180/2025/09/14/madueke-arsenal-relationships/
 
-**South Carolina loses LaNorris Sellers as Vanderbilt, Diego Pavia keep rolling**\
-`It was Vanderbilt’s first win over the Gamecocks since 2008 and its first SEC opening win since 2011.`\
-https://nytimes.com/athletic/6627209/2025/09/13/vanderbilt-diego-pavia-south-carolina-lanorris-sellers/
+**'It will be Wednesday,' - Ange Postecoglou is in a hurry to instil his principles at Nottingham Forest**\
+`Forest's new boss expects to see his project get underway in the Carabao Cup tie with Swansea City on Wednesday`\
+https://nytimes.com/athletic/6625967/2025/09/14/postecoglou-new-era-nottingham-forest/
 
-**Mets' playoff hopes dwindle as 8-game skid drops them into wild-card tie**\
-`New York's 3-2 loss dropped them into a tie with the Giants for the National League's final wild-card spot, with 13 games left.`\
-https://nytimes.com/athletic/6627156/2025/09/13/mets-eight-game-losing-streak-playoff/
+**Bravo, De Gea, Donnarumma and the perils of goalkeeper debuts in the Manchester derby**\
+`City and United both signed new goalkeepers at the end of the transfer window and the two teams meet on Sunday in the Premier League`\
+https://nytimes.com/athletic/6612887/2025/09/14/donnarumma-manchester-derby/
 
-**LSU uses 5 INTs to beat Florida as pressure on Billy Napier grows: Key takeaways**\
-`No. 3 LSU's offense struggled Saturday, but the Tigers forced five turnovers from DJ Lagway in a 20-10 rivalry win.`\
-https://nytimes.com/athletic/6627095/2025/09/13/lsu-florida-football-score-takeaways-napier/
+**How West Germany won the 1974 World Cup: Beckenbauer as leader and tactician, and their own brand of Total Football**\
+`Michael Cox's history of World Cup winners reaches the West Germany team of 1974`\
+https://nytimes.com/athletic/6613037/2025/09/14/world-cup-winners-west-germany-1974/
 
-**Blue Jays to promote prospect Trey Yesavage to big leagues amid pennant push: Sources**\
-`With dominant outings in the low minors, Yesavage quickly jumped onto the Jays' radar as a potential candidate for a 2025 debut.`\
-https://nytimes.com/athletic/6627159/2025/09/13/trey-yesavage-blue-jays-promotion/
+**How to watch Angels at Mariners: Time, TV, streaming for September 14**\
+`Find out how to watch the Los Angeles Angels play the Seattle Mariners, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6627333/2025/09/14/angels-vs-mariners-stream-how-to-watch-sept-14/
 
-**Iowa's Kirk Ferentz breaks Woody Hayes' Big Ten wins record**\
-`With a 47-7 win against UMass, Ferentz collected his 206th win as a Big Ten coach.`\
-https://nytimes.com/athletic/6626822/2025/09/13/kirk-ferentz-big-ten-wins-record-iowa/
+**How to watch Yankees at Red Sox: Time, TV, streaming for September 14**\
+`Find out how to watch the New York Yankees play the Boston Red Sox, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6627334/2025/09/14/yankees-vs-red-sox-stream-how-to-watch-sept-14/
 
-**Ohio State takeaways: The good (Bo Jackson) and bad (red zone) from 37-9 win over Ohio**\
-`Ohio State mostly dominated Ohio on Saturday, but red zone issues kept the Bobcats in the game with the No. 1 Buckeyes longer than expected.`\
-https://nytimes.com/athletic/6627173/2025/09/13/ohio-state-football-score-ohio-bobcats/
+**How to watch White Sox at Guardians: Time, TV, streaming for September 14**\
+`Find out how to watch the Chicago White Sox play the Cleveland Guardians, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6627329/2025/09/14/white-sox-vs-guardians-stream-how-to-watch-sept-14/
 
-**Red Sox playoff chances take hit after back-to-back losses to Yankees**\
-`The Red Sox's 5-3 loss dropped them 2 1/2 games behind the Yankees for the top AL wild-card spot, with 13 regular-season games remaining.`\
-https://nytimes.com/athletic/6627022/2025/09/13/red-sox-yankees-wild-card-playoff-race/
+**How to watch Reds at Athletics: Time, TV, streaming for September 14**\
+`Find out how to watch the Cincinnati Reds play the Athletics, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6627330/2025/09/14/reds-vs-athletics-stream-how-to-watch-sept-14/
 
-**Messi misses Panenka penalty in Miami defeat as Toklomati grabs hat trick**\
-`Messi had the chance to put Miami ahead in the 32nd minute when he went down under challenge from Djibril Diani.`\
-https://nytimes.com/athletic/6627114/2025/09/13/messi-misses-panenka-pen-in-miami-defeat-as-toklomati-claims-hattrick/
+**How to watch Dodgers at Giants: Time, TV, streaming for September 14**\
+`Find out how to watch the Los Angeles Dodgers play the San Francisco Giants, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6627326/2025/09/14/dodgers-vs-giants-stream-how-to-watch-sept-14/
 
-**After Yankees' team bonding, a realization: 'We're coming to step on necks'**\
-`The Yankees wanted to make a statement in Boston. They now have a 2 1/2 game lead over their rival for the top wild-card spot.`\
-https://nytimes.com/athletic/6626952/2025/09/13/yankees-team-bonding-red-sox/
+**How to watch Royals at Phillies: Time, TV, streaming for September 14**\
+`Find out how to watch the Kansas City Royals play the Philadelphia Phillies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6627320/2025/09/14/royals-vs-phillies-stream-how-to-watch-sept-14/
 
