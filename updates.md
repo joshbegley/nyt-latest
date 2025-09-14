@@ -1,3 +1,23 @@
+**Analysing the most intriguing aspect of every Premier League squad list**\
+`Our club experts analyse the shock omissions, surprise inclusions and youngsters to watch in the official 25-man squad lists`\
+https://nytimes.com/athletic/6623942/2025/09/14/premier-league-squad-list-2025-26/
+
+**The fan who won't get a haircut until Man Utd win five successive games (and how other teams compare)**\
+`The Athletic crunches the numbers to see how foolhardy Frank Ilett's result-based challenge really is `\
+https://nytimes.com/athletic/6598359/2025/09/14/manchester-united-supporter-haircut-five-wins/
+
+**The Lewis family wanted 'more wins' and Thomas Frank has very particular ways to deliver them**\
+`Two of the most influential members of the majority-shareholding Lewis family took in Tottenham's first win since Levy's departure`\
+https://nytimes.com/athletic/6614354/2025/09/14/tottenham-lewis-family-frank/
+
+**'There's a need to win. The others feel that way too. Our ambition is high now'**\
+`The 20-year-old is tipped for big things in the WSL - in joining Everton she says she's signed for a club on the up`\
+https://nytimes.com/athletic/6612561/2025/09/14/martina-fernandez-everton-interview/
+
+**Man City vs Man Utd preview: Key players, new 'keepers, and who can handle the pressure**\
+`Before a high-pressure Manchester derby, Carl Anka and Jordan Campbell dissect the important issues`\
+https://nytimes.com/athletic/6620073/2025/09/14/manchester-city-manchester-united-preview-line-ups/
+
 **How Madueke, Mosquera and Nwaneri showcased Arsenal's 'new relationships'**\
 `Five of Arsenal's eight summer signings started the 3-0 win over Forest. Mikel Arteta says they can help Arsenal “become more unpredictable"`\
 https://nytimes.com/athletic/6626180/2025/09/14/madueke-arsenal-relationships/
