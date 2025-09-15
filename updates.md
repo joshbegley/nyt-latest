@@ -1,3 +1,15 @@
+**gws-emmys-fashion-red-carpet-look**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/emmys-fashion-red-carpet-look
+
+**Elon Musk Buys $1 Billion in Tesla Stock as Board Defends His Pay**\
+`Tesla’s chief executive bought the stock after the company’s board proposed paying him nearly $1 trillion if he achieves certain performance goals.`\
+https://nytimes.com/2025/09/15/business/elon-musk-buys-tesla-shares.html
+
+**U.S.-British Deal Would Speed Nuclear Plant Construction**\
+`An agreement between London and Washington is expected to be signed during President Trump’s state visit to Britain this week.`\
+https://nytimes.com/2025/09/15/business/us-britain-nuclear-deal.html
+
 **Arab Leaders Meet to Weigh Response to Israel’s Attack in Qatar**\
 `At a summit in the Qatari capital, Doha, participants are deciding whether to take tangible actions against Israel following last week’s strike.`\
 https://nytimes.com/2025/09/15/world/middleeast/qatar-arab-leaders-israel.html
