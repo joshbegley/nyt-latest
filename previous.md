@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Tuesday, Sep. 16, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/09/15/todays-new-york-times-international-edition
+
 **Nvidia Broke Antitrust Law, China Says, as Tensions With U.S. Mount**\
 `Chinese regulators, on a day of U.S. trade talks, said that an acquisition by Nvidia had violated antimonopoly regulations.`\
 https://nytimes.com/2025/09/15/business/nvidia-china-antitrust.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/arts/television/100000010398991/emmys-nate-bargatze-ch
 **Best and Worst Moments From the 2025 Emmy Awards**\
 `It was a great night for new series, first-time winners and a late-night show canceled by the ceremony’s broadcaster. The writing and gags? Not as great.`\
 https://nytimes.com/2025/09/15/arts/television/emmys-best-worst-moments.html
-
-**A ‘Mural’ of Garage Doors, Painted by Students**\
-`Publicolor, a nonprofit, gets teenagers painting. Usually they work in schools, but for a project downtown, they have a different canvas.`\
-https://nytimes.com/2025/09/15/nyregion/publicolor-painting-students.html
 

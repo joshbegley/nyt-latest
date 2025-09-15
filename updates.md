@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Tuesday, Sep. 16, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/09/15/todays-new-york-times-international-edition
+
 **Nvidia Broke Antitrust Law, China Says, as Tensions With U.S. Mount**\
 `Chinese regulators, on a day of U.S. trade talks, said that an acquisition by Nvidia had violated antimonopoly regulations.`\
 https://nytimes.com/2025/09/15/business/nvidia-china-antitrust.html
