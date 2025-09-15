@@ -1,3 +1,15 @@
+**Inside Newcastle Q&A: Chris Waugh answers your questions**\
+`Newcastle have their first win of the Premier League season, injecting some positivity before a busy period. Next up, Barcelona`\
+https://nytimes.com/athletic/6630726/2025/09/15/inside-newcastle-qa-chris-waugh-barcelona-woltemade/
+
+**The tactical tweak that has made Liverpool even more formidable**\
+`Liverpool’s manager seems to have subtly evolved his side’s defensive shape to ensure they have enough coverage across the pitch`\
+https://nytimes.com/athletic/6630465/2025/09/15/liverpool-arne-slot-tactics-change/
+
+**FPL Gameweek 4 review: Spurs' solid defence, Woltemade's big chance and the Haaland dilemma**\
+`From new heroes emerging to familiar stars reminding us why they’re essential, the season is finally taking shape`\
+https://nytimes.com/athletic/6630412/2025/09/15/fantasy-premier-league-gameweek-4-review-spurs-haaland/
+
 **The Pulse: Yes, these NFL teams should panic**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6629887/2025/09/15/nfl-week-2-the-pulse/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6630605/2025/09/15/inside-real-madrid-champions-lea
 **Commanders early season woes: Cause for concern, or too soon to tell?**\
 `The Commanders have not yet looked like their 2024 selves. Is it a fluke, a small sample size or something more significant?`\
 https://nytimes.com/athletic/6629891/2025/09/15/commanders-jayden-daniels-early-season-problems/
-
-**Why Bruins prospect Dans Locmelis keeps winning people over**\
-`Locmelis is a rare prospect who earns personal praise from Sidney Crosby and UMass coach Greg Carvel.`\
-https://nytimes.com/athletic/6621359/2025/09/15/dans-locmelis-bruins-prospect-umass/
-
-**Message board Monday: Who do fanbases want to replace their teams' coach?**\
-`Three weeks into the season, college football fans sense where their teams are heading and the head coaching changes they want to see.`\
-https://nytimes.com/athletic/6629149/2025/09/15/message-board-mondays-coach-replacements/
-
-**Battle for the AL East: Blue Jays have put themselves in the driver’s seat**\
-`The Yankees took two of three from Red Sox over the weekend to keep their chances alive. But the Blue Jays remain ahead of the pack.`\
-https://nytimes.com/athletic/6624898/2025/09/15/yankees-red-sox-blue-jays/
 
