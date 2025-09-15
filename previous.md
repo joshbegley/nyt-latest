@@ -1,3 +1,7 @@
+**Ed Giacomin, Hall of Fame goalie and New York Rangers legend, dies at 86**\
+`Ed &#8220;Eddie&#8221; Giacomin, a Hall of Fame goalie and New York Rangers legend whose No.`\
+https://nytimes.com/athletic/6631557/2025/09/15/ed-giacomin-obituary-nhl-rangers/
+
 **Scoop City: Risers and fallers after Week 2**\
 `How teams are trending after the Colts, Cowboys and Bengals won, while the Dolphins and Steelers disappointed`\
 https://nytimes.com/athletic/6631745/2025/09/15/nfl-risers-fallers-trending-week-2-cowboys-colts/
@@ -26,15 +30,11 @@ https://nytimes.com/video/world/middleeast/100000010399094/gaza-rubio-netanyahu-
 `From Andy Reid to Tom Brady to rules analyst Dean Blandino, there was plenty of frustration with the Eagles' use of the tush push on Sunday.`\
 https://nytimes.com/athletic/6631199/2025/09/15/tush-push-false-start-eagles-chiefs-nfl/
 
-**A look at the 2026 MLB Draft prospects from the 2025 Under Armour Next All-America Game**\
+**A look at some 2026 MLB Draft prospects from the 2025 Under Armour Next All-America Game**\
 `A look at Rocco Maniscalco, Blake Bowen, Jaxon Matthews, Tyler Putnam, Alain Gómez-Gudiño and more 2026 MLB draft prospects.`\
 https://nytimes.com/athletic/6631520/2025/09/15/under-armour-next-2025-notes-mlb-draft/
 
 **Profits from Norway vs Israel to go to relief group in Gaza**\
 `The Norwegian Football Federation said the profit would be "earmarked for the organisation's emergency relief work on the ground in Gaza".`\
 https://nytimes.com/athletic/6631437/2025/09/15/norway-israel-gaza-world-cup-qualifier/
-
-**Avoiding a Strike, L.I.R.R. Unions Ask Trump to Get Talks on Track**\
-`A strike by workers on the Long Island Rail Road, the United States’ largest commuter rail service, has been averted for now, and could be postponed for several months.`\
-https://nytimes.com/2025/09/15/nyregion/lirr-strike-mta-trump.html
 

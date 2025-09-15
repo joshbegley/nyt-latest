@@ -1,3 +1,11 @@
+**Ed Giacomin, Hall of Fame goalie and New York Rangers legend, dies at 86**\
+`Ed &#8220;Eddie&#8221; Giacomin, a Hall of Fame goalie and New York Rangers legend whose No.`\
+https://nytimes.com/athletic/6631557/2025/09/15/ed-giacomin-obituary-nhl-rangers/
+
+**A look at some 2026 MLB Draft prospects from the 2025 Under Armour Next All-America Game**\
+`A look at Rocco Maniscalco, Blake Bowen, Jaxon Matthews, Tyler Putnam, Alain Gómez-Gudiño and more 2026 MLB draft prospects.`\
+https://nytimes.com/athletic/6631520/2025/09/15/under-armour-next-2025-notes-mlb-draft/
+
 **Scoop City: Risers and fallers after Week 2**\
 `How teams are trending after the Colts, Cowboys and Bengals won, while the Dolphins and Steelers disappointed`\
 https://nytimes.com/athletic/6631745/2025/09/15/nfl-risers-fallers-trending-week-2-cowboys-colts/
