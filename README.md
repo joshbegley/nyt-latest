@@ -1,9 +1,21 @@
+**Trump Says Companies Should Stop Reporting Finances Every Quarter**\
+`The president proposed changing the rules to require twice-yearly reports, revisiting an idea from his first term.`\
+https://nytimes.com/2025/09/15/business/trump-company-quarterly-reports.html
+
+**5 Workout Supplements Worth Trying**\
+`There are thousands of options that promise to boost your fitness. Only a handful are backed by solid evidence.`\
+https://nytimes.com/2025/09/15/well/move/which-fitness-supplements-work.html
+
+**There’s a Reason This Salmon Recipe Has Five Stars**\
+`It’s the anchovy-garlic butter. (It’s also because it’s easy and comes together in less than half an hour.)`\
+https://nytimes.com/2025/09/15/dining/theres-a-reason-this-salmon-recipe-has-five-stars.html
+
 **The Newest Face of Long-Term Unemployment? College Grads.**\
 `For years, only a small portion of the people experiencing long spells of joblessness were college graduates. That’s starting to change.`\
 https://nytimes.com/2025/09/15/business/long-term-unemployment-college-grads.html
 
-**Olympic champion Cole Hocker disqualified from 1,500-meter at world championships**\
-`Hocker's disqualification leaves only Josh Kerr from the top five finishers in last year's stacked Olympic field in Wednesday's final.`\
+**Olympic champion Cole Hocker disqualified in 1,500 meters at world championships**\
+`Hocker's disqualification leaves only Josh Kerr in Wednesday's final from the top five finishers in last year's stacked Olympic field.`\
 https://nytimes.com/athletic/6631204/2025/09/15/cole-hocker-disqualified-1500-world-championships-olympics/
 
 **F.B.I. Head Says Note and D.N.A. Link Suspect to Kirk Killing**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/15/arts/television/the-pitt-emmy-wins-network-shows.
 **2025 Heisman Trophy odds: Manning, Lagway among the early favorites plummeting**\
 `With several preseason favorites struggling, Miami's Carson Beck has emerged as the new Heisman Trophy favorite.`\
 https://nytimes.com/athletic/6629408/2025/09/15/heisman-trophy-odds-manning-lagway-fall-beck-favorite/
-
-**What we're seeing from Canucks prospects: 8 observations from games vs. Kraken**\
-`The Athletic was on the ground in Washington over the weekend to watch the Canucks' prospects.`\
-https://nytimes.com/athletic/6630295/2025/09/15/canucks-prospects-kraken-2025-games/
-
-**A U.S.-China Deal to Avert a TikTok Ban May be Close**\
-`Trump administration officials say they have the framework of a deal to save the popular video app. It had until Sept. 17 to be sold by its Chinese owner, ByteDance, or face a ban in the United States.`\
-https://nytimes.com/2025/09/15/us/politics/tiktok-ban-us-china-deal.html
-
-**Fox Host Apologizes for Suggesting Lethal Injections for Mentally Ill Homeless People**\
-`“Just kill ’em,” Brian Kilmeade said on “Fox & Friends,” during a discussion about a deadly stabbing in North Carolina in which a homeless man was charged.`\
-https://nytimes.com/2025/09/15/business/media/fox-host-homeless-comment-brian-kilmeade-apology.html
 

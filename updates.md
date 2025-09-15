@@ -1,3 +1,7 @@
+**The Newest Face of Long-Term Unemployment? College Grads.**\
+`For years, only a small portion of the people experiencing long spells of joblessness were college graduates. That’s starting to change.`\
+https://nytimes.com/2025/09/15/business/long-term-unemployment-college-grads.html
+
 **Olympic champion Cole Hocker disqualified from 1,500-meter at world championships**\
 `Hocker's disqualification leaves only Josh Kerr from the top five finishers in last year's stacked Olympic field in Wednesday's final.`\
 https://nytimes.com/athletic/6631204/2025/09/15/cole-hocker-disqualified-1500-world-championships-olympics/
