@@ -1,3 +1,11 @@
+**TAFC: Amorim 'won't change' despite Manchester derby loss, Muller's birthday hat-trick**\
+`Today in TAFC: City boys profit as Haaland runs riot in Manchester - but Amorim won't change. Plus: Muller hat-trick, Ballon d'Or mystery.`\
+https://nytimes.com/athletic/6630452/2025/09/15/manchester-united-manchester-city-result/
+
+**Colts believe they have something special brewing after stealing win away from Broncos**\
+`Colts linebacker Zaire Franklin: “I feel like we’re a team of destiny. I feel like we’re a team playing for something."`\
+https://nytimes.com/athletic/6630122/2025/09/15/colts-shane-steichen-broncos-spencer-shrader/
+
 **Ten biggest Rangers questions for training camp: Zibanejad's position, Sullivan's culture**\
 `Will Mika Zibanejad stay at right wing? Which young winger will step up? And how about the Rangers fixing their defense?`\
 https://nytimes.com/athletic/6623293/2025/09/15/new-york-rangers-training-camp-questions/
