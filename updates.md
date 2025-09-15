@@ -1,3 +1,7 @@
+**What to know about Joe Burrow, turf toe and the Bengals' path forward**\
+`Jake Browning stepped in to lead a dramatic win over the Jaguars on Sunday, and will be called on some more in the coming weeks.`\
+https://nytimes.com/athletic/6629554/2025/09/14/joe-burrow-turf-toe-bengals/
+
 **Dodger Details: The offense's arrival, Shohei Ohtani's October pitching and more**\
 `The Dodgers offense has found a 24-hour revival in the Bay Area, putting up 23 runs over the last two games.`\
 https://nytimes.com/athletic/6629577/2025/09/14/dodger-offense-shohei-ohtani-october-pitching/
