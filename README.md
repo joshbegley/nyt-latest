@@ -1,3 +1,7 @@
+**Trump World’s Deals With the U.A.E.**\
+`We dug deeper into lucrative transactions involving the Trump family’s cryptocurrency firm and the United Arab Emirates.`\
+https://nytimes.com/2025/09/15/briefing/trump-witkoff-emirates-us-china-tiktok-kirk-killing.html
+
 **Two Flyers prospects who saw their their stock rise during rookie camp**\
 `Things will get tougher when the Flyers open their NHL training camp on Thursday.`\
 https://nytimes.com/athletic/6632252/2025/09/15/flyers-prospects-nesbitt-barkey/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6632187/2025/09/15/packers-christian-watson-return-
 **Florida Says Ban on Openly Carrying Guns Is Invalid After Court Ruling**\
 `The state attorney general told law enforcement officers to stop enforcing the decades-old ban, after a court last week ruled it unconstitutional.`\
 https://nytimes.com/2025/09/15/us/florida-open-carry-guns.html
-
-**Kirill Kaprizov's Wild teammates remain optimistic he will re-sign: 'He doesn't need the lights'**\
-`Marcus Foligno on Kaprizov's stalled contract talks: "He’s excited to be here. He loves everything about Minnesota. … It’ll work out."`\
-https://nytimes.com/athletic/6632124/2025/09/15/kirill-kaprizov-wild-contract-teammates/
 

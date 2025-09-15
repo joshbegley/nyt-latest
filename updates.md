@@ -1,3 +1,15 @@
+**Two Flyers prospects who saw their their stock rise during rookie camp**\
+`Things will get tougher when the Flyers open their NHL training camp on Thursday.`\
+https://nytimes.com/athletic/6632252/2025/09/15/flyers-prospects-nesbitt-barkey/
+
+**Sotheby’s Lands a Leonard Lauder Art Collection Worth More Than $400 Million**\
+`The collector’s trove of 55 works, including Klimt, Matisse and Munch, will be auctioned in November.`\
+https://nytimes.com/2025/09/15/arts/design/sothebys-leonard-lauder-collection.html
+
+**Football Is Coming to Saudi Arabia, Where Soccer Is King**\
+`Saudi Arabia will host a flag football tournament featuring N.F.L. stars in the spring, in a mutually beneficial sports expansion.`\
+https://nytimes.com/2025/09/15/business/nfl-football-saudi-arabia.html
+
 **How to Use The Learning Network**\
 `Since 1998, The Learning Network has been helping people teach and learn with The New York Times. Here’s how to use our features.`\
 https://nytimes.com/2025/09/15/learning/how-to-use-the-learning-network.html
