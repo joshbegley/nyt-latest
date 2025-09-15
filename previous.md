@@ -1,3 +1,7 @@
+**Two Men Arrested After Incendiary Device Is Found Under a News Vehicle**\
+`The incendiary device, found beneath a Salt Lake City television station’s vehicle, failed to detonate. The two men face terrorism and arson charges.`\
+https://nytimes.com/2025/09/15/us/utah-explosive-device-threat-fox-13-arrest.html
+
 **Breanna Stewart's Game 2 status uncertain after injuring left leg**\
 `The Liberty have not released an injury report ahead of Wednesday's game, although they are expected to practice on Tuesday.`\
 https://nytimes.com/athletic/6631395/2025/09/15/breanna-stewart-liberty-injury-status-wnba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6630960/2025/09/15/ohio-state-julian-sayin-bo-jacks
 **Trump’s D.C. Show of Force Diverts Agents and Prosecutors From Casework**\
 `While crime falls, the other investigative work of the F.B.I. is being delayed, frustrating law enforcement officials and leading some to quit.`\
 https://nytimes.com/2025/09/15/us/politics/trump-dc-crackdown-fbi-prosecutors.html
-
-**Trump Says Companies Should Stop Reporting Finances Every Quarter**\
-`The president proposed changing the rules to require twice-yearly reports, revisiting an idea from his first term.`\
-https://nytimes.com/2025/09/15/business/trump-company-quarterly-reports.html
 
