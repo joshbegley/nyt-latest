@@ -1,3 +1,7 @@
+**Washington Post Columnist Says She Was Fired for Posts After Charlie Kirk Shooting**\
+`Karen Attiah said she was fired for “speaking out against political violence” and “America’s apathy toward guns.”`\
+https://nytimes.com/2025/09/15/business/media/washington-post-charlie-kirk-karen-attiah.html
+
 **What I learned about Ohio State from Ohio: How good can Julian Sayin, Bo Jackson be?**\
 `Ohio State accomplished almost everything it needed to in nonconference play. Here are final thoughts from Saturday's win over Ohio.`\
 https://nytimes.com/athletic/6630960/2025/09/15/ohio-state-julian-sayin-bo-jackson-ohio/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/15/us/charlie-kirk-patel-dna.html
 **Lowetide: Keys for Oilers to achieve all-important fast start in 2025-26**\
 `The Oilers started badly in each of the last two seasons. Can they buck the trend this year?`\
 https://nytimes.com/athletic/6628323/2025/09/15/edmonton-oilers-nhl-start-2025/
-
-**With a Snub on a Cricket Field, India-Pakistan Tensions Hit New Pitch**\
-`The Indian players refused to shake hands with their Pakistani opponents at the first meeting of the sides since the two countries exchanged hostilities this year.`\
-https://nytimes.com/2025/09/15/world/asia/india-pakistan-cricket-asia-cup-handshake.html
 

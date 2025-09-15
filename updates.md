@@ -1,3 +1,7 @@
+**Washington Post Columnist Says She Was Fired for Posts After Charlie Kirk Shooting**\
+`Karen Attiah said she was fired for “speaking out against political violence” and “America’s apathy toward guns.”`\
+https://nytimes.com/2025/09/15/business/media/washington-post-charlie-kirk-karen-attiah.html
+
 **What I learned about Ohio State from Ohio: How good can Julian Sayin, Bo Jackson be?**\
 `Ohio State accomplished almost everything it needed to in nonconference play. Here are final thoughts from Saturday's win over Ohio.`\
 https://nytimes.com/athletic/6630960/2025/09/15/ohio-state-julian-sayin-bo-jackson-ohio/
