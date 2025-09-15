@@ -1,3 +1,15 @@
+**Joe Burrow injury: Bengals' QB options beyond Jake Browning**\
+`Cincinnati will be without its franchise QB for months after a turf toe injury suffered against the Jaguars on Sunday.`\
+https://nytimes.com/athletic/6631474/2025/09/15/bengals-joe-burrow-injury-cousins-winston/
+
+**Ask CJ: Submit your NHL questions for Chris Johnston’s mailbag**\
+`Drop your questions here, and The Athletic’s Chris Johnston will answer a selection in his upcoming mailbag.`\
+https://nytimes.com/athletic/6631624/2025/09/15/nhl-mailbag-cba-olympics-trades-mcdavid/
+
+**Here Are the 11 First-Time Acting Winners From the Emmys**\
+`Noah Wyle and Katherine LaNasa of “The Pitt” were among the actors to take home a statue for the first time on Sunday.`\
+https://nytimes.com/2025/09/15/arts/television/first-time-emmy-winners.html
+
 **Russell Wilson, Amon-Ra St. Brown and other Week 2 fantasy football bounce-back performances**\
 `KC Joyner discusses the biggest surprises of Week 2, including Pickens' breakout game with Dallas and the Lions offense. `\
 https://nytimes.com/athletic/6631007/2025/09/15/fantasy-football-week-2-bouncebacks-wilson-st-brown/

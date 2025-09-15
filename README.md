@@ -1,3 +1,11 @@
+**At an Emmys Bash With Noah Wyle, Katherine LaNasa and Lots of Champagne**\
+`After the awards ceremony, stars packed the HBO Max party at the San Vicente Bungalows in West Hollywood.`\
+https://nytimes.com/2025/09/15/style/emmys-hbo-after-party.html
+
+**Surprising Presence at Belarus-Russia War Games: Two American Observers**\
+`The invitation by Belarus came as its autocratic leader has been trying to improve relations with the Trump administration, which has been receptive.`\
+https://nytimes.com/2025/09/15/world/europe/russia-belarus-zapad-2025-war-games.html
+
 **Joe Burrow injury: Bengals' QB options beyond Jake Browning**\
 `Cincinnati will be without its franchise QB for months after a turf toe injury suffered against the Jaguars on Sunday.`\
 https://nytimes.com/athletic/6631474/2025/09/15/bengals-joe-burrow-injury-cousins-winston/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/09/15/t-magazine/reiner-brooks-questionnair
 **Country’s Latest Feminist Corrective**\
 `Our critic’s new song of the week, “6 Months Later” by Megan Moroney, is in the lineage of Dolly, the Chicks and Shania.`\
 https://nytimes.com/video/podcasts/100000010395934/countrys-latest-feminist-corrective.html
-
-**NFL Week 3 early odds, spreads: Bills, Ravens, Packers eye-catching favorites**\
-`Odds are up for every Week 3 game, with another 12.5-point spread, this time favoring Buffalo.`\
-https://nytimes.com/athletic/6631152/2025/09/15/nfl-week-3-early-odds-spreads/
-
-**Ex-Barca defender and World Cup winner Umtiti retires aged 31**\
-`The centre-back had the latter years of his career hampered by chronic cartilage damage in his knee`\
-https://nytimes.com/athletic/6625487/2025/09/15/samuel-umtiti-ex-barcelona-france-defender-retirement/
 

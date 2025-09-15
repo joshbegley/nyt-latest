@@ -1,9 +1,17 @@
+**Joe Burrow injury: Bengals' QB options beyond Jake Browning**\
+`Cincinnati will be without its franchise QB for months after a turf toe injury suffered against the Jaguars on Sunday.`\
+https://nytimes.com/athletic/6631474/2025/09/15/bengals-joe-burrow-injury-cousins-winston/
+
+**Ask CJ: Submit your NHL questions for Chris Johnston’s mailbag**\
+`Drop your questions here, and The Athletic’s Chris Johnston will answer a selection in his upcoming mailbag.`\
+https://nytimes.com/athletic/6631624/2025/09/15/nhl-mailbag-cba-olympics-trades-mcdavid/
+
 **Russell Wilson, Amon-Ra St. Brown and other Week 2 fantasy football bounce-back performances**\
 `KC Joyner discusses the biggest surprises of Week 2, including Pickens' breakout game with Dallas and the Lions offense. `\
 https://nytimes.com/athletic/6631007/2025/09/15/fantasy-football-week-2-bouncebacks-wilson-st-brown/
 
-**Katherine LaNasa and Noah Wyle Among the 11 First-Time Emmy Winners**\
-`The stars of “The Pitt” were just two of the actors to take home a statue for the first time on Sunday.`\
+**Here Are the 11 First-Time Acting Winners From the Emmys**\
+`Noah Wyle and Katherine LaNasa of “The Pitt” were among the actors to take home a statue for the first time on Sunday.`\
 https://nytimes.com/2025/09/15/arts/television/first-time-emmy-winners.html
 
 **What the Giants should expect from Bryce Eldridge now that he's a big leaguer**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6631152/2025/09/15/nfl-week-3-early-odds-spreads/
 **Ex-Barca defender and World Cup winner Umtiti retires aged 31**\
 `The centre-back had the latter years of his career hampered by chronic cartilage damage in his knee`\
 https://nytimes.com/athletic/6625487/2025/09/15/samuel-umtiti-ex-barcelona-france-defender-retirement/
-
-**Betting impact of Joe Burrow's injury doesn't paint a pretty picture for Bengals**\
-`Joe Burrow's injury unsurprisingly tanked Cincinnati's futures odds. The Bengals are now an underdog to make the playoffs.`\
-https://nytimes.com/athletic/6631281/2025/09/15/joe-burrow-injury-bengals-betting-impact/
-
-**From Samuels-Smith to Sarr: Charting the 12 players moving between Chelsea and Strasbourg**\
-`There have been numerous moves between the Premier League and Ligue 1 teams as part of BlueCo's multi-club ownership model`\
-https://nytimes.com/athletic/6619301/2025/09/15/chelsea-strasbourg-blueco-transfers-chilwell/
 
