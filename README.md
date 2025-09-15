@@ -1,3 +1,15 @@
+**Two Flyers prospects who saw their their stock rise during rookie camp**\
+`Things will get tougher when the Flyers open their NHL training camp on Thursday.`\
+https://nytimes.com/athletic/6632252/2025/09/15/flyers-prospects-nesbitt-barkey/
+
+**Sotheby’s Lands a Leonard Lauder Art Collection Worth More Than $400 Million**\
+`The collector’s trove of 55 works, including Klimt, Matisse and Munch, will be auctioned in November.`\
+https://nytimes.com/2025/09/15/arts/design/sothebys-leonard-lauder-collection.html
+
+**Football Is Coming to Saudi Arabia, Where Soccer Is King**\
+`Saudi Arabia will host a flag football tournament featuring N.F.L. stars in the spring, in a mutually beneficial sports expansion.`\
+https://nytimes.com/2025/09/15/business/nfl-football-saudi-arabia.html
+
 **How to Use The Learning Network**\
 `Since 1998, The Learning Network has been helping people teach and learn with The New York Times. Here’s how to use our features.`\
 https://nytimes.com/2025/09/15/learning/how-to-use-the-learning-network.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/15/us/florida-open-carry-guns.html
 **Kirill Kaprizov's Wild teammates remain optimistic he will re-sign: 'He doesn't need the lights'**\
 `Marcus Foligno on Kaprizov's stalled contract talks: "He’s excited to be here. He loves everything about Minnesota. … It’ll work out."`\
 https://nytimes.com/athletic/6632124/2025/09/15/kirill-kaprizov-wild-contract-teammates/
-
-**49ers minutia minute: Rookies Mykel Williams, Connor Colby jumped out vs. Saints**\
-`Deep-ball Ricky? Pearsall is averaging more than 20 yards per catch through two games, one of the best rates in the NFL so far.`\
-https://nytimes.com/athletic/6632108/2025/09/15/49ers-saints-mykel-williams-rookies/
-
-**Samin Nosrat Gathers Friends for Dinner Every Week. Here’s How You Can, Too.**\
-`For the chef and cookbook author, seeing friends doesn’t have to be complicated. It just has to happen. These recipes can help.`\
-https://nytimes.com/2025/09/15/dining/samin-nosrat-dinner-party-recipes.html
-
-**Radim Mrtka's physicality and 9 other thoughts from Sabres rookie camp**\
-`This week was a strong first step for Mrtka, and he showed why he might have more upside than any prospect in Buffalo’s pool.`\
-https://nytimes.com/athletic/6632040/2025/09/15/sabres-prospect-rookies-radim-mrtka/
 

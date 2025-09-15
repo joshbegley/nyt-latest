@@ -1,3 +1,7 @@
+**How to Use The Learning Network**\
+`Since 1998, The Learning Network has been helping people teach and learn with The New York Times. Here’s how to use our features.`\
+https://nytimes.com/2025/09/15/learning/how-to-use-the-learning-network.html
+
 **Cuomo, Staunch Supporter of Israel, Says ‘Horrific’ Gaza War Must End**\
 `The remarks were a departure for former Gov. Andrew M. Cuomo, who trails Assemblyman Zohran Mamdani in the New York City mayor’s race.`\
 https://nytimes.com/2025/09/15/nyregion/andrew-cuomo-israel-gaza.html
