@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: Deadline for TikTok Ban Hangs Over U.S.-China Trade Talks**\
+``\
+https://nytimes.com/live/2025/09/15/us/trump-news
+
 **Robinhood Bets Again on Opening Up Private Markets**\
 `The brokerage plans to announce a new publicly traded venture capital fund that would let ordinary investors get a piece of privately held start-ups.`\
 https://nytimes.com/2025/09/15/business/dealbook/robinhood-venture-capital-fund.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6623329/2025/09/15/new-york-rangers-prospect-rankin
 **Bengals QB Joe Burrow seeking second opinions on turf toe injury: Sources**\
 `Burrow left Sunday's 31-27 win over the Jacksonville Jaguars in the second quarter and was later seen in a walking boot.`\
 https://nytimes.com/athletic/6630700/2025/09/15/joe-burrow-injury-toe-bengals/
-
-**We Answer Your Questions About A.I.**\
-`Beat experts across the newsroom responded to you.`\
-https://nytimes.com/2025/09/15/briefing/we-answer-your-questions-about-ai.html
 
