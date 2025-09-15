@@ -1,3 +1,15 @@
+**Olympic champion Cole Hocker disqualified from 1,500-meter at world championships**\
+`Hocker's disqualification leaves only Josh Kerr from the top five finishers in last year's stacked Olympic field in Wednesday's final.`\
+https://nytimes.com/athletic/6631204/2025/09/15/cole-hocker-disqualified-1500-world-championships-olympics/
+
+**F.B.I. Head Says Note and D.N.A. Link Suspect to Kirk Killing**\
+`In a TV interview, Kash Patel, the director of the F.B.I., said investigators had found physical evidence connecting the suspected gunman with the fatal shooting of Charlie Kirk in Utah.`\
+https://nytimes.com/2025/09/15/us/charlie-kirk-patel-dna.html
+
+**Lowetide: Keys for Oilers to achieve all-important fast start in 2025-26**\
+`The Oilers started badly in each of the last two seasons. Can they buck the trend this year?`\
+https://nytimes.com/athletic/6628323/2025/09/15/edmonton-oilers-nhl-start-2025/
+
 **With a Snub on a Cricket Field, India-Pakistan Tensions Hit New Pitch**\
 `The Indian players refused to shake hands with their Pakistani opponents at the first meeting of the sides since the two countries exchanged hostilities this year.`\
 https://nytimes.com/2025/09/15/world/asia/india-pakistan-cricket-asia-cup-handshake.html
