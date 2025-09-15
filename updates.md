@@ -1,3 +1,19 @@
+**Untouchable Mondo Duplantis breaks pole vault world record again, wins world title**\
+`Duplantis cruised to his third straight world championship gold in the pole vault, then capped the night with another new world record.`\
+https://nytimes.com/athletic/6627999/2025/09/15/mondo-duplantis-pole-vault-world-record-championships/
+
+**Fantasy football Week 2 takeaways: Joe Burrow injury fallout, Javonte Williams looks elite and more**\
+`Among his Week 2 takes, Michael Salfino says if you roster Ja'Marr Chase or Tee Higgins, Jake Browning should be a priority add this week.`\
+https://nytimes.com/athletic/6629858/2025/09/15/fantasy-football-week-2-takeaways-joe-burrow-injury-fallout-javonte-williams-looks-elite-and-more/
+
+**Prime Suspect in Madeleine McCann Disappearance Refuses Interview With U.K. Police**\
+`Christian Brückner, the main suspect in the 2007 case, rejected an interview request ahead of his release this week from a German prison for a separate crime, the British police said.`\
+https://nytimes.com/2025/09/15/world/europe/madeleine-mccann-suspect-uk-police-interview.html
+
+** Candid Photos From the Emmys**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/emmys-candid-photos
+
 **gws-emmys-fashion-red-carpet-look**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/emmys-fashion-red-carpet-look

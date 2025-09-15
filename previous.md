@@ -1,3 +1,19 @@
+**Untouchable Mondo Duplantis breaks pole vault world record again, wins world title**\
+`Duplantis cruised to his third straight world championship gold in the pole vault, then capped the night with another new world record.`\
+https://nytimes.com/athletic/6627999/2025/09/15/mondo-duplantis-pole-vault-world-record-championships/
+
+**Fantasy football Week 2 takeaways: Joe Burrow injury fallout, Javonte Williams looks elite and more**\
+`Among his Week 2 takes, Michael Salfino says if you roster Ja'Marr Chase or Tee Higgins, Jake Browning should be a priority add this week.`\
+https://nytimes.com/athletic/6629858/2025/09/15/fantasy-football-week-2-takeaways-joe-burrow-injury-fallout-javonte-williams-looks-elite-and-more/
+
+**Prime Suspect in Madeleine McCann Disappearance Refuses Interview With U.K. Police**\
+`Christian Brückner, the main suspect in the 2007 case, rejected an interview request ahead of his release this week from a German prison for a separate crime, the British police said.`\
+https://nytimes.com/2025/09/15/world/europe/madeleine-mccann-suspect-uk-police-interview.html
+
+** Candid Photos From the Emmys**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/emmys-candid-photos
+
 **gws-emmys-fashion-red-carpet-look**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/emmys-fashion-red-carpet-look
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6631081/2025/09/15/cal-raleigh-home-runs-mickey-man
 **U.S.-British Deal Would Speed Nuclear Plant Construction**\
 `An agreement between London and Washington is expected to be signed during President Trump’s state visit to Britain this week.`\
 https://nytimes.com/2025/09/15/business/us-britain-nuclear-deal.html
-
-**Giants to promote top prospect Bryce Eldridge in the thick of NL wild-card race: Report**\
-`Eldridge has been moved aggressively through the Giants’ system, and the Giants are looking for help chasing a playoff berth.`\
-https://nytimes.com/athletic/6631008/2025/09/15/sf-giants-bryce-eldridge-mlb-promotion/
-
-**These Ants Found a Loophole for a Fundamental Rule of Life**\
-`Researchers discovered that Mediterranean ants are having babies that belong to a different species.`\
-https://nytimes.com/2025/09/15/science/ants-species-babies.html
-
-**What is turf toe? Explaining the injury sidelining NFL QBs Joe Burrow, Brock Purdy**\
-`Turf toe is described by the Cleveland Clinic as a hyperextension of the big toe and has three grades with varying recovery timelines.`\
-https://nytimes.com/athletic/6629484/2025/09/15/turf-toe-nfl-joe-burrow-brock-purdy/
-
-**Rosenior: Strasbourg banner criticising Chelsea signing Emegha 'unacceptable'**\
-`Chelsea announced on Friday that they had agreed a deal to sign Emegha, who captains Strasbourg, next summer.`\
-https://nytimes.com/athletic/6630839/2025/09/15/chelsea-strasbourg-emanuel-emegha-protest/
 
