@@ -1,3 +1,11 @@
+**Country’s Latest Feminist Corrective**\
+`Our critic’s new song of the week, “6 Months Later” by Megan Moroney, is in the lineage of Dolly, the Chicks and Shania.`\
+https://nytimes.com/video/podcasts/100000010395934/countrys-latest-feminist-corrective.html
+
+**NFL Week 3 early odds, spreads: Bills, Ravens, Packers eye-catching favorites**\
+`Odds are up for every Week 3 game, with another 12.5-point spread, this time favoring Buffalo.`\
+https://nytimes.com/athletic/6631152/2025/09/15/nfl-week-3-early-odds-spreads/
+
 **Ex-Barca defender and World Cup winner Umtiti retires aged 31**\
 `The centre-back had the latter years of his career hampered by chronic cartilage damage in his knee`\
 https://nytimes.com/athletic/6625487/2025/09/15/samuel-umtiti-ex-barcelona-france-defender-retirement/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/15/us/utah-explosive-device-threat-fox-13-arrest.htm
 **Breanna Stewart's Game 2 status uncertain after injuring left leg**\
 `The Liberty have not released an injury report ahead of Wednesday's game, although they are expected to practice on Tuesday.`\
 https://nytimes.com/athletic/6631395/2025/09/15/breanna-stewart-liberty-injury-status-wnba/
-
-**Who You’ll See on Screens, Stages, Shows and Pages This Fall**\
-`Take a look at our photos and video of Doja Cat, Leonard DiCaprio, Keanu Reeves and Kara Walker, artists whose work will be in the spotlight this season.`\
-https://nytimes.com/card/2025/09/15/arts/fall-broadway-music-tv-doja-cat-leonardo-dicaprio
-
-**Fired Prosecutor Challenges Trump’s Claims to Power in Lawsuit**\
-`The Justice Department gave no reason for its dismissal of Maurene Comey, a longtime federal prosecutor in Manhattan and the daughter of the former F.B.I. director, James Comey.`\
-https://nytimes.com/2025/09/15/nyregion/maurene-comey-fired-lawsuit-trump.html
 

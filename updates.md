@@ -1,3 +1,7 @@
+**Ex-Barca defender and World Cup winner Umtiti retires aged 31**\
+`The centre-back had the latter years of his career hampered by chronic cartilage damage in his knee`\
+https://nytimes.com/athletic/6625487/2025/09/15/samuel-umtiti-ex-barcelona-france-defender-retirement/
+
 **Betting impact of Joe Burrow's injury doesn't paint a pretty picture for Bengals**\
 `Joe Burrow's injury unsurprisingly tanked Cincinnati's futures odds. The Bengals are now an underdog to make the playoffs.`\
 https://nytimes.com/athletic/6631281/2025/09/15/joe-burrow-injury-bengals-betting-impact/
