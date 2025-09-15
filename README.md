@@ -1,3 +1,15 @@
+**Rubio Is Skeptical of Gaza Deal During Jerusalem Visit**\
+`U.S. Secretary of State Marco Rubio cast doubt on the possibility of a diplomatic solution to the Gaza war after talks with Israeli Prime Minister Benjamin Netanyahu in Jerusalem.`\
+https://nytimes.com/video/world/middleeast/100000010399094/gaza-rubio-netanyahu-jerusalem.html
+
+**Tush push criticism returns after missed false-start calls in Eagles' win over Chiefs**\
+`From Andy Reid to Tom Brady to rules analyst Dean Blandino, there was plenty of frustration with the Eagles' use of the tush push on Sunday.`\
+https://nytimes.com/athletic/6631199/2025/09/15/tush-push-false-start-eagles-chiefs-nfl/
+
+**Notes on 2026 MLB Draft prospects from the 2025 Under Armour Next game**\
+`Notes on Rocco Maniscalco, Blake Bowen, Jaxon Matthews, Tyler Putnam, Alain Gómez-Gudiño and more 2026 MLB draft prospects.`\
+https://nytimes.com/athletic/6631520/2025/09/15/under-armour-next-2025-notes-mlb-draft/
+
 **Profits from Norway vs Israel to go to relief group in Gaza**\
 `The Norwegian Football Federation said the profit would be "earmarked for the organisation's emergency relief work on the ground in Gaza".`\
 https://nytimes.com/athletic/6631437/2025/09/15/norway-israel-gaza-world-cup-qualifier/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6631624/2025/09/15/nhl-mailbag-cba-olympics-trades-
 **Russell Wilson, Amon-Ra St. Brown and other Week 2 fantasy football bounce-back performances**\
 `KC Joyner discusses the biggest surprises of Week 2, including Pickens' breakout game with Dallas and the Lions offense. `\
 https://nytimes.com/athletic/6631007/2025/09/15/fantasy-football-week-2-bouncebacks-wilson-st-brown/
-
-**Here Are the 11 First-Time Acting Winners From the Emmys**\
-`Noah Wyle and Katherine LaNasa of “The Pitt” were among the actors to take home a statue for the first time on Sunday.`\
-https://nytimes.com/2025/09/15/arts/television/first-time-emmy-winners.html
-
-**What the Giants should expect from Bryce Eldridge now that he's a big leaguer**\
-`Promoting Eldridge was the Giants' only possible move. It might just work but keep your expectations low and your mind open.`\
-https://nytimes.com/athletic/6631244/2025/09/15/sf-giants-bryce-eldridge-callup-expectations/
-
-**Submit a question for Pete Sampson's Notre Dame football mailbag**\
-`Notre Dame is 0-2 after season-opening losses to Miami and Texas A&M, and there's plenty to talk about around the Fighting Irish.`\
-https://nytimes.com/athletic/6631552/2025/09/15/submit-a-question-for-pete-sampsons-notre-dame-football-mailbag-2/
 
