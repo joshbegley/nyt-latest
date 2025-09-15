@@ -1,3 +1,7 @@
+**Josh Allen battles through nose injury as Bills defense dominates Jets**\
+`Plus. the Bills' rushing attack takes some pressure off Allen and the passing game.`\
+https://nytimes.com/athletic/6629300/2025/09/14/bills-josh-allen-nose-injury-win-jets/
+
 **Nonprofit Gets Two Paintings Stolen by Nazis Pulled From Auction**\
 `The paintings were among more than 300 works seized during World War II from Adolphe Schloss, a German Jew who lived in France and amassed a collection of old master paintings.`\
 https://nytimes.com/2025/09/14/arts/nazi-painting-ohio-auction.html

@@ -1,3 +1,7 @@
+**Josh Allen battles through nose injury as Bills defense dominates Jets**\
+`Plus. the Bills' rushing attack takes some pressure off Allen and the passing game.`\
+https://nytimes.com/athletic/6629300/2025/09/14/bills-josh-allen-nose-injury-win-jets/
+
 **Nonprofit Gets Two Paintings Stolen by Nazis Pulled From Auction**\
 `The paintings were among more than 300 works seized during World War II from Adolphe Schloss, a German Jew who lived in France and amassed a collection of old master paintings.`\
 https://nytimes.com/2025/09/14/arts/nazi-painting-ohio-auction.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/14/nyregion/hochul-mamdani-mayor-endorsement.html
 **Emmys Security Will Be Elevated After Shooting of Charlie Kirk**\
 `Officials have said that they re-examined their security plans after the assassination of the right-wing influencer last week.`\
 https://nytimes.com/2025/09/14/arts/television/emmys-security-charlie-kirk.html
-
-**Kathy Hochul: Why I Am Endorsing Zohran Mamdani**\
-`I am confident that Zohran Mamdani has the courage, urgency, and optimism New York City needs to lead it through the challenges of this moment.`\
-https://nytimes.com/2025/09/14/opinion/hochul-endorsement-mamdani.html
 
