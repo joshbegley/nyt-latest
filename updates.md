@@ -1,3 +1,7 @@
+**Rubio, in Israel, Meets Netanyahu as Trump Grows Impatient**\
+`Secretary of State Marco Rubio planned to discuss President Trump’s desire to see the war in Gaza end soon.`\
+https://nytimes.com/2025/09/15/us/politics/rubio-israel-netanyahu-trump-gaza.html
+
 **Brighton CEO Paul Barber joins board of Melbourne Victory**\
 `Barber will represent Brighton's owner-chairman Tony Bloom, who bought a 19.1 per cent stake in the Australian A-League club in March.`\
 https://nytimes.com/athletic/6630403/2025/09/15/brighton-paul-barber-melbourne-victory/
