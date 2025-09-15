@@ -1,3 +1,7 @@
+**What I learned about Ohio State from Ohio: How good can Julian Sayin, Bo Jackson be?**\
+`Ohio State accomplished almost everything it needed to in nonconference play. Here are final thoughts from Saturday's win over Ohio.`\
+https://nytimes.com/athletic/6630960/2025/09/15/ohio-state-julian-sayin-bo-jackson-ohio/
+
 **Trump’s D.C. Show of Force Diverts Agents and Prosecutors From Casework**\
 `While crime falls, the other investigative work of the F.B.I. is being delayed, frustrating law enforcement officials and leading some to quit.`\
 https://nytimes.com/2025/09/15/us/politics/trump-dc-crackdown-fbi-prosecutors.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6628323/2025/09/15/edmonton-oilers-nhl-start-2025/
 **With a Snub on a Cricket Field, India-Pakistan Tensions Hit New Pitch**\
 `The Indian players refused to shake hands with their Pakistani opponents at the first meeting of the sides since the two countries exchanged hostilities this year.`\
 https://nytimes.com/2025/09/15/world/asia/india-pakistan-cricket-asia-cup-handshake.html
-
-**‘The Pitt’ Defied Odds by Going Back to the Future**\
-`On Sunday, Emmy voters made a loud statement that there is an appetite for the kind of shows that used to dominate TV.`\
-https://nytimes.com/2025/09/15/arts/television/the-pitt-emmy-wins-network-shows.html
 
