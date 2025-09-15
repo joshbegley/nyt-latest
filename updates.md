@@ -1,3 +1,5 @@
+
+
 **Inside Barcelona: Yamal fitness row, Valencia thrashing but still no home ground**\
 `Our latest weekly column on the key goings-on at Barca this past week`\
 https://nytimes.com/athletic/6630881/2025/09/15/inside-barcelona-lamine-yamal-camp-nou/
