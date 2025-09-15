@@ -1,3 +1,13 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Hopefully everyone&#8217;s managed to hold on to their jobs longer than Deshaun Foster and Brent Pry.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6632651/2025/09/15/submit-a-question-for-stewart-mandels-college-football-mailbag-315/
+
+**With Ahkello Witherspoon on IR, Rams now in need of CB help**\
+`Stephon Gilmore and Kendall Fuller are two free-agent options who could make sense for the Rams following Witherspoon's injury.`\
+https://nytimes.com/athletic/6632480/2025/09/15/rams-ahkello-witherspoon-injured-reserve/
+
 **How to watch Athletics at Red Sox: Time, TV, streaming for September 16**\
 `Find out how to watch the Athletics play the Boston Red Sox, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6632673/2025/09/15/athletics-vs-red-sox-stream-how-to-watch-sept-16/
@@ -29,12 +39,4 @@ https://nytimes.com/athletic/6632443/2025/09/15/carolina-panthers-offensive-line
 **John Penton, ‘Godfather’ of Off-Road Racing, Dies at 100**\
 `He set a transcontinental motorcycling speed record, and then helped to revolutionize off-road riding with his own brand of nimble bikes.`\
 https://nytimes.com/2025/09/15/sports/john-penton-dead.html
-
-**Canadiens' rebuild might be over, but an incomplete construction project remains**\
-`Jeff Gorton and Kent Hughes are excited for what the Canadiens have become but left a clear sense there is more change to come.`\
-https://nytimes.com/athletic/6632490/2025/09/15/canadiens-hughes-gorton-roster-construction/
-
-**The White House Vowed a Vast Crackdown on Liberal Groups**\
-`Also, Trump said U.S. military struck another Venezuelan boat. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2025/09/15/briefing/white-house-charlie-kirk-tiktok-sale.html
 

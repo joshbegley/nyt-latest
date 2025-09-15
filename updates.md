@@ -1,3 +1,13 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Hopefully everyone&#8217;s managed to hold on to their jobs longer than Deshaun Foster and Brent Pry.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6632651/2025/09/15/submit-a-question-for-stewart-mandels-college-football-mailbag-315/
+
+**With Ahkello Witherspoon on IR, Rams now in need of CB help**\
+`Stephon Gilmore and Kendall Fuller are two free-agent options who could make sense for the Rams following Witherspoon's injury.`\
+https://nytimes.com/athletic/6632480/2025/09/15/rams-ahkello-witherspoon-injured-reserve/
+
 **How to watch Athletics at Red Sox: Time, TV, streaming for September 16**\
 `Find out how to watch the Athletics play the Boston Red Sox, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6632673/2025/09/15/athletics-vs-red-sox-stream-how-to-watch-sept-16/
