@@ -1,3 +1,31 @@
+**Leeds might have the defence. But after four games, they only have one goal**\
+`The loss to Fulham brought together the headline themes of what Leeds achieved and failed to achieve over the summer transfer window`\
+https://nytimes.com/athletic/6627347/2025/09/15/leeds-dominic-calvert-lewin-muniz-wilson/
+
+**Raya's Arsenal arrival sparked debate. 100 games later, he is vital for Arteta side**\
+`Two years, 100 games and 42 clean sheets later, and there is no doubt that Arteta made the right call when replacing Ramsdale with Raya`\
+https://nytimes.com/athletic/6626514/2025/09/15/david-raya-100-games-arsenal-goalkeeper/
+
+**The Briefing: Will Amorim make it to Anfield? Are Liverpool's late winners a good sign? How far can long throws take teams?**\
+`Discussing the key talking points from the Premier League weekend`\
+https://nytimes.com/athletic/6628009/2025/09/15/amorim-liverpool-future/
+
+**The strange Ballon d'Or tale of the 'confidential' offer to campaign for Ousmane Dembele's 'candidacy'**\
+`Sports writer Neal Gardner receive an unsolicited email from an advertising agency asking to collaborate on a top-secret project...`\
+https://nytimes.com/athletic/6620268/2025/09/15/ballon-dor-ousmane-dembele-campaign/
+
+**Attending four London Premier League games in a day: Seeing 100 players, missing five goals, and avoiding a protest**\
+`North, south, east and west London were covered in a day of watching four games, thought there was more time on trains than in stadia`\
+https://nytimes.com/athletic/6627642/2025/09/15/london-premier-league-four-games/
+
+**Woltemade's flying start: Debut goal, Tesco shop and dressing room speech for striker who 'breaks the mould'**\
+`Woltemade’s team-mates have been taken by the German’s demeanour, which is not to take himself too seriously despite his price tag`\
+https://nytimes.com/athletic/6622702/2025/09/15/nick-woltemade-debut-story/
+
+**Ballon d’Or 2025 one week to go: Dembele, Yamal, Vitinha? Ranking all the contenders**\
+`A look at the state of play before the world's best player is crowned next Monday`\
+https://nytimes.com/athletic/6614205/2025/09/15/ballon-dor-2025-rankings/
+
 **Breaking down why Wolves have made their worst start to a season in their 127-year history**\
 `Four defeats in the first four games of a season means Vitor Pereira has plenty to work on at Wolves`\
 https://nytimes.com/athletic/6627548/2025/09/15/wolverhampton-wanderers-newcastle-loss-analysis/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6629610/2025/09/15/vikings-falcons-score-results-ta
 **Starving Children Eat Animal Feed in Besieged Sudanese City**\
 `At least 260,000 civilians trapped in El Fasher face a dire choice: risk being starved or bombed if they stay, and raped or killed if they flee.`\
 https://nytimes.com/2025/09/15/world/africa/sudan-starving-children.html
-
-**Quote of the Day: Funicular Tragedy Rattles Lisbon’s Sense of Itself.**\
-`Quotation of the Day for Monday, September 15, 2025.`\
-https://nytimes.com/2025/09/15/pageoneplus/quote-of-the-day-funicular-tragedy-rattles-lisbons-sense-of-itself.html
-
-**In Philadelphia, a Stirring New Stage for Alexander Calder**\
-`What can a museum experience be now? Meet Calder Gardens. A leading architect, garden designer and philanthropist build a thrillingly eccentric complex for the inventor of the mobile.`\
-https://nytimes.com/2025/09/15/arts/design/alexander-calder-philadelphia-calder-gardens.html
-
-**The World Wants More Vaccines. An Anti-Vaccine America Isn’t Helping.**\
-`Most governments are trying to fight vaccine hesitancy with science and investment, while the United States heads in the opposite direction.`\
-https://nytimes.com/2025/09/15/world/asia/anti-vaccine-america-world-covid.html
-
-**Alex Noren's Ryder Cup run came just too late. But the vice-captain can still play a part**\
-`The Swede is in the form of his life. But after being named Luke Donald's fifth and final vice-captain, he won't play at Bethpage Black`\
-https://nytimes.com/athletic/6628253/2025/09/15/alex-noren-europe-ryder-cup-2025-bethpage-black/
-
-**Tariffs Are Uniting Two Whiskey Heavyweights: Scotch and Bourbon**\
-`Whiskey distillers say their industry is so intertwined that U.S. tariffs will hurt producers on both sides of the Atlantic.`\
-https://nytimes.com/2025/09/15/business/trump-tariffs-scotch-whisky-bourbon.html
-
-**Did Britain Win the Trade War? Why It’s Tough to Declare a Victor.**\
-`Popular products from Britain and the European Union show how uneven and unpredictable U.S. tariffs have become, even when part of trade deals.`\
-https://nytimes.com/2025/09/15/business/economy/britain-european-union-tariffs-winner.html
-
-**Connections: Sports Edition Coach: Hints for Sept. 15, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6629731/2025/09/15/connections-sports-edition-hints-for-sept-15-2025/
 
