@@ -1,3 +1,7 @@
+**An NHL prospect wore a durag in an exhibition game. He might have made hockey history**\
+`Senators prospect Djibril Touré wore a durag during an exhibition game against the Toronto Maple Leafs on Saturday afternoon.`\
+https://nytimes.com/athletic/6628002/2025/09/15/nhl-prospect-durag-ottawa-senators-djibril-toure/
+
 **TAFC: Amorim 'won't change' despite Manchester derby loss, Muller's birthday hat-trick**\
 `Today in TAFC: City boys profit as Haaland runs riot in Manchester - but Amorim won't change. Plus: Muller hat-trick, Ballon d'Or mystery.`\
 https://nytimes.com/athletic/6630452/2025/09/15/manchester-united-manchester-city-result/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6630447/2025/09/15/nfl-footballs-kicking-brandon-au
 **J.J. McCarthy and Vikings offense's process to be tested following Falcons loss**\
 `Expecting the first-year starter to take the reins and light up the NFL would have been foolish.`\
 https://nytimes.com/athletic/6630367/2025/09/15/j-j-mccarthy-vikings-lose-atlanta/
-
-**His father's murder drove Mike Evans to the NFL, a 'big brother' taught him to stay there**\
-`Evans is one 1,000-yard season away from breaking Jerry Rice's all-time record, but his consistent excellence was born out of agony.`\
-https://nytimes.com/athletic/6601613/2025/09/15/mike-evans-wide-receiver-tampa-bay/
 

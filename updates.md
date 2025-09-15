@@ -1,3 +1,7 @@
+**An NHL prospect wore a durag in an exhibition game. He might have made hockey history**\
+`Senators prospect Djibril Touré wore a durag during an exhibition game against the Toronto Maple Leafs on Saturday afternoon.`\
+https://nytimes.com/athletic/6628002/2025/09/15/nhl-prospect-durag-ottawa-senators-djibril-toure/
+
 **TAFC: Amorim 'won't change' despite Manchester derby loss, Muller's birthday hat-trick**\
 `Today in TAFC: City boys profit as Haaland runs riot in Manchester - but Amorim won't change. Plus: Muller hat-trick, Ballon d'Or mystery.`\
 https://nytimes.com/athletic/6630452/2025/09/15/manchester-united-manchester-city-result/
