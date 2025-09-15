@@ -1,3 +1,19 @@
+**What the Chiefs said about Travis Kelce's drop. And why there's still hope at 0-2**\
+`Defensive end George Karlaftis had Kelce's back after the game and said this team will "find a way to find a way."`\
+https://nytimes.com/athletic/6629560/2025/09/14/chiefs-travis-kelce-drop-eagles/
+
+**‘Adolescence’ Dominates the Limited Series Category**\
+`The acclaimed Netflix series won the Emmy for limited series as well as awards for acting, writing, directing and more.`\
+https://nytimes.com/2025/09/14/arts/television/adolescence-emmys-stephen-graham-owen-cooper.html
+
+**Panthers, Bryce Young rally from bad start, but don't make plays with game on the line**\
+`Making matters worse, the Panthers might have lost starting offensive linemen Robert Hunt and Austin Corbett for an extended time.`\
+https://nytimes.com/athletic/6629877/2025/09/14/panthers-lose-bryce-young-rally-cardinals/
+
+**Noah Lyles, the changing of 100-meter guard — and the difficulty of staying on top**\
+`Noah Lyles reached the mountaintop in the 100-meter. On Sunday, Jamaica's Oblique Seville took his spot. What comes next for the American?`\
+https://nytimes.com/athletic/6629097/2025/09/14/noah-lyles-100-meter-world-championships-oblique-seville/
+
 **Canceled by CBS, ‘The Late Show With Stephen Colbert’ Wins Best Talk Show**\
 `The show, which Colbert has hosted since 2015, beat out “The Daily Show” on Comedy Central and “Jimmy Kimmel Live!” on ABC.`\
 https://nytimes.com/2025/09/14/arts/television/stephen-colbert-the-late-show-emmys.html
