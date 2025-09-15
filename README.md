@@ -1,3 +1,11 @@
+**TAFC: Amorim 'won't change' despite Manchester derby loss, Muller's birthday hat-trick**\
+`Today in TAFC: City boys profit as Haaland runs riot in Manchester - but Amorim won't change. Plus: Muller hat-trick, Ballon d'Or mystery.`\
+https://nytimes.com/athletic/6630452/2025/09/15/manchester-united-manchester-city-result/
+
+**Colts believe they have something special brewing after stealing win away from Broncos**\
+`Colts linebacker Zaire Franklin: “I feel like we’re a team of destiny. I feel like we’re a team playing for something."`\
+https://nytimes.com/athletic/6630122/2025/09/15/colts-shane-steichen-broncos-spencer-shrader/
+
 **Ten biggest Rangers questions for training camp: Zibanejad's position, Sullivan's culture**\
 `Will Mika Zibanejad stay at right wing? Which young winger will step up? And how about the Rangers fixing their defense?`\
 https://nytimes.com/athletic/6623293/2025/09/15/new-york-rangers-training-camp-questions/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6630367/2025/09/15/j-j-mccarthy-vikings-lose-atlant
 **His father's murder drove Mike Evans to the NFL, a 'big brother' taught him to stay there**\
 `Evans is one 1,000-yard season away from breaking Jerry Rice's all-time record, but his consistent excellence was born out of agony.`\
 https://nytimes.com/athletic/6601613/2025/09/15/mike-evans-wide-receiver-tampa-bay/
-
-**Eagles defense dominates Super Bowl rematch as another rookie grabs first INT off Mahomes**\
-`The Eagles defense sank the Chiefs in the Super Bowl and did so again on Sunday with an updated cast.`\
-https://nytimes.com/athletic/6630019/2025/09/15/eagles-defense-superbowl-rematch-mahomes/
-
-**Giants QB Russell Wilson doesn't care about silencing critics, but he did it anyway.**\
-`Wilson: "This game meant a lot to me. It was time to answer the call."`\
-https://nytimes.com/athletic/6629789/2025/09/15/ny-giants-russell-wilson-critics-jaxson-dart-cowboys/
 
