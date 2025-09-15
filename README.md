@@ -1,3 +1,11 @@
+**Scottie Scheffler's dominant run continues with Procore Championship win**\
+`Scheffler's win Sunday marks his sixth in 12 starts and the 19th of his career.`\
+https://nytimes.com/athletic/6629699/2025/09/14/scottie-scheffler-procore-championship-win/
+
+**‘S.N.L.’ Tops Beyoncé for the Live Variety Emmy**\
+`The show’s anniversary special won in a category that was unusually competitive and unusually glamorous this year.`\
+https://nytimes.com/2025/09/14/arts/television/snl-50-lorne-michaels-emmys.html
+
 **Brandon Aubrey's leg, Dak Prescott's arm give Brian Schottenheimer first win**\
 `Aubrey's 64-yarder got the game into overtime and his 46-yarder won it as the Cowboys overcame Russell Wilson's 450-yard passing day.`\
 https://nytimes.com/athletic/6629616/2025/09/14/cowboys-beat-giants-brandon-aubrey-dak-prescott/
@@ -7,7 +15,7 @@ https://nytimes.com/athletic/6629616/2025/09/14/cowboys-beat-giants-brandon-aubr
 https://nytimes.com/athletic/6629684/2025/09/14/ny-giants-cowboys-russell-wilson-takeaways/
 
 **Two Steelers mistakes cost them dearly, but Pittsburgh's issues run much deeper**\
-`The Steelers' issues go beyond a botched kick return and fluky interception.`\
+`The Steelers' issues go beyond a botched kick return and fluky interception Sunday against the Seahawks.`\
 https://nytimes.com/athletic/6629623/2025/09/14/pittsburgh-steelers-loss-seattle-seahawks/
 
 **What to know about Joe Burrow, turf toe and the Bengals' path forward**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6629537/2025/09/14/lions-win-jared-goff-bears-ben-j
 **After trying week, Ravens' defense takes frustration out on Joe Flacco, Browns**\
 `After blowing a 15-point fourth-quarter lead in Week 1, the Baltimore defense was dominant in smothering Flacco and Cleveland's offense.`\
 https://nytimes.com/athletic/6629377/2025/09/14/ravens-defense-browns-joe-flacco/
-
-**Ben Johnson's homecoming spoiled by Bears' ugly loss to Lions: 'It’s a kick in the teeth'**\
-`For Bears fans, it’s understandable to watch Sunday's loss and fear this was — and is — a continuation of last season’s humiliation.`\
-https://nytimes.com/athletic/6629320/2025/09/14/bears-ben-johnson-embarrassed-lions/
-
-**Josh Allen is too good and too tough not to win a Super Bowl**\
-`After Sunday's game, Allen looked like a club fighter who had picked the wrong opponent for a payday. You should have seen the other guy.`\
-https://nytimes.com/athletic/6629531/2025/09/14/bills-jets-josh-allen-super-bowl-column/
 
