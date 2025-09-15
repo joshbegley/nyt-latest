@@ -1,3 +1,15 @@
+**Lasher, Nadler’s Protégé, Says He Is Running to Succeed His Mentor**\
+`Micah Lasher, a state lawmaker, enters what is expected to be a crowded Democratic field competing for Representative Jerrold Nadler’s congressional seat in Manhattan.`\
+https://nytimes.com/2025/09/15/nyregion/nyc-micah-lasher-jerrold-nadler.html
+
+**How Mamdani Proposes to Make New York City Safer**\
+`Zohran Mamdani wants New York to follow the model of other cities that send mental health teams instead of the police to help people in crisis. But the plan would be expensive.`\
+https://nytimes.com/2025/09/15/nyregion/mamdani-public-safety-plan.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/09/15/crosswords/spelling-bee-forum.html
+
 **Lamine Yamal’s Spain-Barcelona painkillers row — should we be worried?**\
 `An injury suffered on Spain duty last week meant the 18-year-old winger was ruled out for Barca`\
 https://nytimes.com/athletic/6629630/2025/09/15/lamine-yamal-spain-barcelona-injury/
@@ -25,16 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/09/15/todays-new-york-times
 **Here’s How Trump Can Prevent a War Over Taiwan**\
 `The current collision course was never inevitable, and Trump’s penchant for defying norms could help ensure peace.`\
 https://nytimes.com/2025/09/15/opinion/taiwan-china-war-trump.html
-
-**‘Black Rabbit’ and 6 More Things to Watch on TV This Week**\
-`A new series staring Jude Law and Jason Bateman premieres on Netflix, and “The Morning Show” returns with its fourth season.`\
-https://nytimes.com/2025/09/15/arts/television/things-to-watch-on-tv-this-week.html
-
-**What Malnutrition Has Done to Gaza’s Children**\
-`Even children who recover will carry the physical consequences for the rest of their lives.`\
-https://nytimes.com/2025/09/15/briefing/gaza-war-malnutrition.html
-
-**And that's why you don't take off Mohamed Salah**\
-`Liverpool have a squad blessed with match-winners, but Salah's importance remains significant`\
-https://nytimes.com/athletic/6628306/2025/09/15/mohamed-salah-liverpool/
 
