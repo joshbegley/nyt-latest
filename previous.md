@@ -1,3 +1,7 @@
+**Emmys 2025 Red Carpet Moments**\
+`Nominees for the 77th Emmy Awards spoke with The New York Times on the red carpet ahead of the ceremony on Sunday.`\
+https://nytimes.com/video/arts/100000010398722/emmys-2025-red-carpet.html
+
 **Rubio, in Israel, Meets Netanyahu as Trump Grows Impatient**\
 `Secretary of State Marco Rubio planned to discuss President Trump’s desire to see the war in Gaza end soon.`\
 https://nytimes.com/2025/09/15/us/politics/rubio-israel-netanyahu-trump-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/arts/television/100000010398932/emmy-awards.html
 **Ricky Hatton, the brilliant everyman who conquered the boxing world**\
 `From his humble origins in a Manchester pub, the British boxer didn't just claim titles: he won hearts and minds`\
 https://nytimes.com/athletic/6629126/2025/09/15/ricky-hatton-boxing-death-legacy-career/
-
-**Word of the Day: sartorial**\
-`This word has appeared in 126 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/09/15/learning/word-of-the-day-sartorial.html
 

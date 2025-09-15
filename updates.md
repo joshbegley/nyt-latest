@@ -1,3 +1,7 @@
+**Emmys 2025 Red Carpet Moments**\
+`Nominees for the 77th Emmy Awards spoke with The New York Times on the red carpet ahead of the ceremony on Sunday.`\
+https://nytimes.com/video/arts/100000010398722/emmys-2025-red-carpet.html
+
 **Rubio, in Israel, Meets Netanyahu as Trump Grows Impatient**\
 `Secretary of State Marco Rubio planned to discuss President Trump’s desire to see the war in Gaza end soon.`\
 https://nytimes.com/2025/09/15/us/politics/rubio-israel-netanyahu-trump-gaza.html
