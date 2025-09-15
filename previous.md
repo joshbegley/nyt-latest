@@ -1,3 +1,15 @@
+**Matthew Stafford, the Rams' commander in chief, was as cool as can be vs. Titans**\
+`Stafford finished 23-of-33 for 298 yards, two touchdowns and an interception and turned a three-point halftime deficit into a 33-19 victory.`\
+https://nytimes.com/athletic/6629293/2025/09/14/matthew-stafford-rams-titans-week-2/
+
+**What We Saw as Stars Arrived at the Emmys**\
+`Candid moments with Walton Goggins, Pedro Pascal, Jean Smart and more.`\
+https://nytimes.com/2025/09/14/arts/television/emmys-candid-photos.html
+
+**NWSL match abandoned after Racing Louisville midfielder Savannah DeMelo collapses on field**\
+`DeMelo was "stable and alert" when transported to a local hospital for further evaluation`\
+https://nytimes.com/athletic/6629771/2025/09/14/nwsl-match-abandon-racing-louisville-savannah-demelo/
+
 **Scottie Scheffler's dominant run continues with Procore Championship win**\
 `Scheffler's win Sunday marks his sixth in 12 starts and the 19th of his career.`\
 https://nytimes.com/athletic/6629699/2025/09/14/scottie-scheffler-procore-championship-win/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6629554/2025/09/14/joe-burrow-turf-toe-bengals/
 **Dodger Details: The offense's arrival, Shohei Ohtani's October pitching and more**\
 `The Dodgers offense has found a 24-hour revival in the Bay Area, putting up 23 runs over the last two games.`\
 https://nytimes.com/athletic/6629577/2025/09/14/dodger-offense-shohei-ohtani-october-pitching/
-
-**Incredible men's marathon ending goes to a photo finish to decide world champion**\
-`Tanzania's Alphonce Felix Simbu edged Germany's Amanal Petros with a stirring final kick Monday in Tokyo. Both finished in 2:09.48.`\
-https://nytimes.com/athletic/6629658/2025/09/14/mens-marathon-photo-finish-world-championships-alphonce-simbu/
-
-**Lions get the train rolling in bounce-back, personal win against Bears, Ben Johnson**\
-`Jared Goff threw for 334 yards and five TDs and the offense averaged a franchise-record 8.8 yards per play in scoring 52 points.`\
-https://nytimes.com/athletic/6629537/2025/09/14/lions-win-jared-goff-bears-ben-johnson/
-
-**After trying week, Ravens' defense takes frustration out on Joe Flacco, Browns**\
-`After blowing a 15-point fourth-quarter lead in Week 1, the Baltimore defense was dominant in smothering Flacco and Cleveland's offense.`\
-https://nytimes.com/athletic/6629377/2025/09/14/ravens-defense-browns-joe-flacco/
 

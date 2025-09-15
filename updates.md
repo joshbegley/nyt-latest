@@ -1,3 +1,15 @@
+**Matthew Stafford, the Rams' commander in chief, was as cool as can be vs. Titans**\
+`Stafford finished 23-of-33 for 298 yards, two touchdowns and an interception and turned a three-point halftime deficit into a 33-19 victory.`\
+https://nytimes.com/athletic/6629293/2025/09/14/matthew-stafford-rams-titans-week-2/
+
+**What We Saw as Stars Arrived at the Emmys**\
+`Candid moments with Walton Goggins, Pedro Pascal, Jean Smart and more.`\
+https://nytimes.com/2025/09/14/arts/television/emmys-candid-photos.html
+
+**NWSL match abandoned after Racing Louisville midfielder Savannah DeMelo collapses on field**\
+`DeMelo was "stable and alert" when transported to a local hospital for further evaluation`\
+https://nytimes.com/athletic/6629771/2025/09/14/nwsl-match-abandon-racing-louisville-savannah-demelo/
+
 **Scottie Scheffler's dominant run continues with Procore Championship win**\
 `Scheffler's win Sunday marks his sixth in 12 starts and the 19th of his career.`\
 https://nytimes.com/athletic/6629699/2025/09/14/scottie-scheffler-procore-championship-win/
