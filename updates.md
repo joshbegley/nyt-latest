@@ -1,3 +1,7 @@
+**Britt Lower Wins Best Lead Actress in a Drama for ‘Severance’**\
+`Lower won for her dual role as Helly R. and Helena in Season 2 of the surreal workplace drama.`\
+https://nytimes.com/2025/09/14/arts/television/britt-lower-emmy-severance.html
+
 **After trying week, Ravens' defense takes its frustration out on Joe Flacco and Browns**\
 `After blowing a 15-point fourth-quarter lead in Week 1, the Baltimore defense was dominant in smothering Flacco and Cleveland's offense.`\
 https://nytimes.com/athletic/6629377/2025/09/14/ravens-defense-browns-joe-flacco/
