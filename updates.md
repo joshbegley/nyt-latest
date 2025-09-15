@@ -1,3 +1,15 @@
+**White House Plans Broad Crackdown on Liberal Groups**\
+`Some of the highest-ranking officials in the federal government used Charlie Kirk’s podcast, guest-hosted by Vice President JD Vance, to lay out their plans.`\
+https://nytimes.com/2025/09/15/us/politics/jd-vance-charlie-kirk-show.html
+
+**Will Blackhawks, Wyatt Kaiser reach deal before training camp?**\
+`With camp opening Thursday, the two sides have yet to agree on a new contract.`\
+https://nytimes.com/athletic/6631926/2025/09/15/blackhawks-wyatt-kaiser-contract/
+
+**Vikings QB J.J. McCarthy likely to miss Week 3 with sprained ankle, Carson Wentz to start**\
+`McCarthy, a second-year man from Michigan, struggled mightily in the Vikings' Week 2 loss to the Falcons and was sacked six times.`\
+https://nytimes.com/athletic/6631929/2025/09/15/jj-mccarthy-hurt-carson-wentz-vikings-depth-chart/
+
 **The Essence of Trumpian Language, in One Three-Letter Word**\
 `A towel snap. An eye roll. A punch. The president has spoken again.`\
 https://nytimes.com/2025/09/15/opinion/department-of-war-trump-language.html
