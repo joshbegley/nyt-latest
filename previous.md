@@ -1,3 +1,7 @@
+**emmys-best-worst-moment**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/emmys-best-worst-moment
+
 **Untouchable Mondo Duplantis breaks pole vault world record again, wins world title**\
 `Duplantis cruised to his third straight world championship gold in the pole vault, then capped the night with another new world record.`\
 https://nytimes.com/athletic/6627999/2025/09/15/mondo-duplantis-pole-vault-world-record-championships/
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/protein-lunches
 **The Windup: Big Dumper ties Mickey Mantle**\
 `The Windup is The Athletic's free MLB newsletter.`\
 https://nytimes.com/athletic/6631081/2025/09/15/cal-raleigh-home-runs-mickey-mantle-the-windup/
-
-**U.S.-British Deal Would Speed Nuclear Plant Construction**\
-`An agreement between London and Washington is expected to be signed during President Trump’s state visit to Britain this week.`\
-https://nytimes.com/2025/09/15/business/us-britain-nuclear-deal.html
 

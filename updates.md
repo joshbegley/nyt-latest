@@ -1,3 +1,7 @@
+**emmys-best-worst-moment**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/emmys-best-worst-moment
+
 **Untouchable Mondo Duplantis breaks pole vault world record again, wins world title**\
 `Duplantis cruised to his third straight world championship gold in the pole vault, then capped the night with another new world record.`\
 https://nytimes.com/athletic/6627999/2025/09/15/mondo-duplantis-pole-vault-world-record-championships/

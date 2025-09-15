@@ -1,3 +1,11 @@
+**Emmy Awards: How to Watch the Winners**\
+`“The Studio” took home the most trophies, and “The Pitt” and “Adolescence” also cleaned up. Here’s where to stream the major Emmy winners.`\
+https://nytimes.com/2025/09/15/arts/television/stream-emmy-winners.html
+
+**Jorge Ramos Tries Something New, Next to His Daughter: A Show in English**\
+`Mr. Ramos, the longtime anchor for Univision, and his daughter are trying to tap into the growing number of Hispanics who consume media in English.`\
+https://nytimes.com/2025/09/15/business/media/jorge-ramos-daughter-podcast.html
+
 **emmys-best-worst-moment**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/emmys-best-worst-moment
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/15/business/elon-musk-buys-tesla-shares.html
 **Arab Leaders Meet to Weigh Response to Israel’s Attack in Qatar**\
 `At a summit in the Qatari capital, Doha, participants are deciding whether to take tangible actions against Israel following last week’s strike.`\
 https://nytimes.com/2025/09/15/world/middleeast/qatar-arab-leaders-israel.html
-
-**Easy, Protein-Packed Recipes for Back-to-School Lunches**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/protein-lunches
-
-**The Windup: Big Dumper ties Mickey Mantle**\
-`The Windup is The Athletic's free MLB newsletter.`\
-https://nytimes.com/athletic/6631081/2025/09/15/cal-raleigh-home-runs-mickey-mantle-the-windup/
 
