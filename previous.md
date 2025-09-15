@@ -1,3 +1,7 @@
+**Lions get the train rolling in bounce-back, personal win against Bears, Ben Johnson**\
+`Jared Goff threw for 334 yards and five TDs and the offense averaged a franchise-record 8.8 yards per play in scoring 52 points.`\
+https://nytimes.com/athletic/6629537/2025/09/14/lions-win-jared-goff-bears-ben-johnson/
+
 **After trying week, Ravens' defense takes its frustration out on Joe Flacco and Browns**\
 `After blowing a 15-point fourth-quarter lead in Week 1, the Baltimore defense was dominant in smothering Flacco and Cleveland's offense.`\
 https://nytimes.com/athletic/6629377/2025/09/14/ravens-defense-browns-joe-flacco/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6629452/2025/09/14/virginia-tech-coaching-candidate
 **Sanders sidesteps questions on report that he didn't want Ravens to draft him**\
 `"Whatever happened in the past, it is what it is," Sanders said Sunday when asked about the report.`\
 https://nytimes.com/athletic/6628202/2025/09/14/shedeur-sanders-ravens-browns-draft/
-
-**Phillies must wait to clinch NL East, but after strong week, they head west seeking more**\
-`The Phillies are five games up on the Dodgers for the NL's second seed, and they are two games behind the Brewers for the first.`\
-https://nytimes.com/athletic/6629228/2025/09/14/phillies-nl-east-playoff-seeding/
 

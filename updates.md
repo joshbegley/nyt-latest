@@ -1,3 +1,7 @@
+**Lions get the train rolling in bounce-back, personal win against Bears, Ben Johnson**\
+`Jared Goff threw for 334 yards and five TDs and the offense averaged a franchise-record 8.8 yards per play in scoring 52 points.`\
+https://nytimes.com/athletic/6629537/2025/09/14/lions-win-jared-goff-bears-ben-johnson/
+
 **Britt Lower Wins Best Lead Actress in a Drama for ‘Severance’**\
 `Lower won for her dual role as Helly R. and Helena in Season 2 of the surreal workplace drama.`\
 https://nytimes.com/2025/09/14/arts/television/britt-lower-emmy-severance.html
