@@ -1,3 +1,7 @@
+**Cuomo, Staunch Supporter of Israel, Says ‘Horrific’ Gaza War Must End**\
+`The remarks were a departure for former Gov. Andrew M. Cuomo, who trails Assemblyman Zohran Mamdani in the New York City mayor’s race.`\
+https://nytimes.com/2025/09/15/nyregion/andrew-cuomo-israel-gaza.html
+
 **Maduro Calls U.S. Attack on Boat ‘A Heinous Crime,’ as Trump Announces Another**\
 `The Venezuela leader, Nicolás Maduro, claimed that the Trump administration was trying to start a war in the Caribbean.`\
 https://nytimes.com/2025/09/15/world/americas/venezuela-boat-strikes-maduro-trump.html
