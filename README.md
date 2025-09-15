@@ -1,3 +1,11 @@
+**Villarreal's Thomas Partey 'mentally prepared' to face Tottenham - Marcelino**\
+`The former Arsenal midfielder joined Villarreal in August and is now set to face his former north London rivals`\
+https://nytimes.com/athletic/6630817/2025/09/15/thomas-partey-news-tottenham-champions-league/
+
+**Sidney Crosby addresses trade rumors: 'This is where I want to be'**\
+`Crosby spoke at length on Monday about the trade speculation hovering over him. `\
+https://nytimes.com/athletic/6632135/2025/09/15/sidney-crosby-trade-rumors-penguins-nhl/
+
 **How to watch North Carolina at UCF: Time, TV, streaming**\
 `Find out how to watch the North Carolina Tar Heels play the UCF Knights, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6632167/2025/09/15/north-carolina-vs-ucf-stream-how-to-watch-sept-20/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6632155/2025/09/15/michigan-vs-nebraska-stream-how-
 **How to watch Kent State at Florida State: Time, TV, streaming**\
 `Find out how to watch the Kent State Golden Flashes play the Florida State Seminoles, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6632153/2025/09/15/kent-state-vs-florida-state-stream-how-to-watch-sept-20/
-
-**How to watch Purdue at Notre Dame: Time, TV, streaming**\
-`Find out how to watch the Purdue Boilermakers play the Notre Dame Fighting Irish, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6632151/2025/09/15/purdue-vs-notre-dame-stream-how-to-watch-sept-20/
-
-**How to watch Maryland at Wisconsin: Time, TV, streaming**\
-`Find out how to watch the Maryland Terrapins play the Wisconsin Badgers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6632149/2025/09/15/maryland-vs-wisconsin-stream-how-to-watch-sept-20/
 

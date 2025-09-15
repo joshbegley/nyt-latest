@@ -1,40 +1,40 @@
-**White House Plans Broad Crackdown on Liberal Groups**\
-`Some of the highest-ranking officials in the federal government used Charlie Kirk’s podcast, guest-hosted by Vice President JD Vance, to lay out their plans.`\
-https://nytimes.com/2025/09/15/us/politics/jd-vance-charlie-kirk-show.html
+**How to watch North Carolina at UCF: Time, TV, streaming**\
+`Find out how to watch the North Carolina Tar Heels play the UCF Knights, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6632167/2025/09/15/north-carolina-vs-ucf-stream-how-to-watch-sept-20/
 
-**Will Blackhawks, Wyatt Kaiser reach deal before training camp?**\
-`With camp opening Thursday, the two sides have yet to agree on a new contract.`\
-https://nytimes.com/athletic/6631926/2025/09/15/blackhawks-wyatt-kaiser-contract/
+**How to watch Oregon State at Oregon: Time, TV, streaming**\
+`Find out how to watch the Oregon State Beavers play the Oregon Ducks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6632166/2025/09/15/oregon-state-vs-oregon-stream-how-to-watch-sept-20/
 
-**The Essence of Trumpian Language, in One Three-Letter Word**\
-`A towel snap. An eye roll. A punch. The president has spoken again.`\
-https://nytimes.com/2025/09/15/opinion/department-of-war-trump-language.html
+**How to watch Tulane at Ole Miss: Time, TV, streaming**\
+`Find out how to watch the Tulane Green Wave play the Ole Miss Rebels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6632163/2025/09/15/tulane-vs-ole-miss-stream-how-to-watch-sept-20/
 
-**College football Week 4 odds: Indiana-Illinois is a big game?! Plus a Big 12 showdown**\
-`Week 4 of the college football season features the start of conference play for a bunch of teams, leading to several good matchups.`\
-https://nytimes.com/athletic/6631583/2025/09/15/college-football-week-4-odds-indiana-illinois-oklahoma/
+**How to watch Auburn at Oklahoma: Time, TV, streaming**\
+`Find out how to watch the Auburn Tigers play the Oklahoma Sooners, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6632161/2025/09/15/auburn-vs-oklahoma-stream-how-to-watch-sept-20/
 
-**Arsenal without Saka, Odegaard and White for Athletic Club Champions League clash**\
-`Arsenal will kick off this European adventure carrying injuries, with Saka, Odegaard, and White left at home`\
-https://nytimes.com/athletic/6631931/2025/09/15/arsenal-team-news-saka-odegaard-champions-league/
+**How to watch Syracuse at Clemson: Time, TV, streaming**\
+`Find out how to watch the Syracuse Orange play the Clemson Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6632159/2025/09/15/syracuse-vs-clemson-stream-how-to-watch-sept-20/
 
-**Vikings QB J.J. McCarthy likely to miss Week 3 with sprained ankle**\
-`McCarthy, a second-year man from Michigan, struggled mightily in the Vikings' Week 2 loss to the Falcons and was sacked six times.`\
-https://nytimes.com/athletic/6631929/2025/09/15/jj-mccarthy-hurt-carson-wentz-vikings-depth-chart/
+**How to watch Arkansas at Memphis: Time, TV, streaming**\
+`Find out how to watch the Arkansas Razorbacks play the Memphis Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6632157/2025/09/15/arkansas-vs-memphis-stream-how-to-watch-sept-20/
 
-**Newcastle cancel more than 100 season tickets and apologise for 'oversight'**\
-`The news comes following the rescinding of 45 tickets for this week's clash with Barcelona which had been purchased by a school in Dundee`\
-https://nytimes.com/athletic/6631885/2025/09/15/newcastle-tickets-news-dundee-champions-league/
+**How to watch Michigan at Nebraska: Time, TV, streaming**\
+`Find out how to watch the Michigan Wolverines play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6632155/2025/09/15/michigan-vs-nebraska-stream-how-to-watch-sept-20/
 
-**Eddie Giacomin, Rangers’ Goalie and Fan Favorite, Dies at 86**\
-`A Hall of Famer, he led the N.H.L. in shutouts and single-season victories three times and was stunned when the Rangers let him go in his 10th season.`\
-https://nytimes.com/2025/09/15/sports/hockey/eddie-giacomin-dead.html
+**How to watch Kent State at Florida State: Time, TV, streaming**\
+`Find out how to watch the Kent State Golden Flashes play the Florida State Seminoles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6632153/2025/09/15/kent-state-vs-florida-state-stream-how-to-watch-sept-20/
 
-**Commanders QB Jayden Daniels has knee injury, status uncertain vs. Raiders**\
-`Daniels, who was sacked four times and hit another six times in the loss to Green Bay, came up hobbling after getting tackled on a scramble.`\
-https://nytimes.com/athletic/6631801/2025/09/15/jayden-daniels-injury-knee-commanders-depth-chart/
+**How to watch Purdue at Notre Dame: Time, TV, streaming**\
+`Find out how to watch the Purdue Boilermakers play the Notre Dame Fighting Irish, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6632151/2025/09/15/purdue-vs-notre-dame-stream-how-to-watch-sept-20/
 
-**She Held Her Baby for an Hour. Then the State Took Her Away.**\
-`The case of a young Greenlandic woman who was ruled incapable of keeping her baby has become the latest flashpoint with Denmark.`\
-https://nytimes.com/2025/09/15/world/europe/denmark-greenland-baby-parenting-test.html
+**How to watch Maryland at Wisconsin: Time, TV, streaming**\
+`Find out how to watch the Maryland Terrapins play the Wisconsin Badgers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6632149/2025/09/15/maryland-vs-wisconsin-stream-how-to-watch-sept-20/
 
