@@ -1,3 +1,11 @@
+**Charlie Kirk and the ‘Right Way’ to Practice Politics**\
+`Readers respond to column by Ezra Klein. Also: President Trump and the National Emergencies Act.`\
+https://nytimes.com/2025/09/15/opinion/charlie-kirk-ezra-klein-politics.html
+
+**Florida State linebacker Ethan Pritchard opens eyes 2 weeks after being shot**\
+`Pritchard is a true freshman who committed to Florida State as a three-star recruit in October and signed in December.`\
+https://nytimes.com/athletic/6631697/2025/09/15/florida-state-ethan-pritchard-recovery-shooting/
+
 **Rubio Is Skeptical of Gaza Deal During Jerusalem Visit**\
 `U.S. Secretary of State Marco Rubio cast doubt on the possibility of a diplomatic solution to the Gaza war after talks with Israeli Prime Minister Benjamin Netanyahu in Jerusalem.`\
 https://nytimes.com/video/world/middleeast/100000010399094/gaza-rubio-netanyahu-jerusalem.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/15/world/europe/russia-belarus-zapad-2025-war-games.
 **Joe Burrow injury: Bengals' QB options beyond Jake Browning**\
 `Cincinnati will be without its franchise QB for months after a turf toe injury suffered against the Jaguars on Sunday.`\
 https://nytimes.com/athletic/6631474/2025/09/15/bengals-joe-burrow-injury-cousins-winston/
-
-**Ask CJ: Submit your NHL questions for Chris Johnston’s mailbag**\
-`Drop your questions here, and The Athletic’s Chris Johnston will answer a selection in his upcoming mailbag.`\
-https://nytimes.com/athletic/6631624/2025/09/15/nhl-mailbag-cba-olympics-trades-mcdavid/
-
-**Russell Wilson, Amon-Ra St. Brown and other Week 2 fantasy football bounce-back performances**\
-`KC Joyner discusses the biggest surprises of Week 2, including Pickens' breakout game with Dallas and the Lions offense. `\
-https://nytimes.com/athletic/6631007/2025/09/15/fantasy-football-week-2-bouncebacks-wilson-st-brown/
 

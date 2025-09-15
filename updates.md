@@ -1,3 +1,11 @@
+**Charlie Kirk and the ‘Right Way’ to Practice Politics**\
+`Readers respond to column by Ezra Klein. Also: President Trump and the National Emergencies Act.`\
+https://nytimes.com/2025/09/15/opinion/charlie-kirk-ezra-klein-politics.html
+
+**Florida State linebacker Ethan Pritchard opens eyes 2 weeks after being shot**\
+`Pritchard is a true freshman who committed to Florida State as a three-star recruit in October and signed in December.`\
+https://nytimes.com/athletic/6631697/2025/09/15/florida-state-ethan-pritchard-recovery-shooting/
+
 **Rubio Is Skeptical of Gaza Deal During Jerusalem Visit**\
 `U.S. Secretary of State Marco Rubio cast doubt on the possibility of a diplomatic solution to the Gaza war after talks with Israeli Prime Minister Benjamin Netanyahu in Jerusalem.`\
 https://nytimes.com/video/world/middleeast/100000010399094/gaza-rubio-netanyahu-jerusalem.html
