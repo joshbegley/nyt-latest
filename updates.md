@@ -1,3 +1,7 @@
+**ND-A&M final thoughts: Marcus Freeman has a defensive coordinator problem**\
+`New DC Chris Ash has taken a defense that was aggressive and fast and reduced it to a tentative and reactionary unit.`\
+https://nytimes.com/athletic/6630814/2025/09/15/notre-dame-chris-ash-defense/
+
 **Trump Administration Live Updates: Deadline for TikTok Ban Hangs Over U.S.-China Trade Talks**\
 ``\
 https://nytimes.com/live/2025/09/15/us/trump-news
