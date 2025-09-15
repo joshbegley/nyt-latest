@@ -1,3 +1,11 @@
+**Calls for a ‘Free Palestine’ in an Emmys Otherwise Light on Politics**\
+`A few nominees and speakers addressed political issues such as the Israel-Gaza war and the defunding of U.S. public broadcasting.`\
+https://nytimes.com/2025/09/14/arts/television/emmys-israel-gaza.html
+
+**T's Sept. 28 Design & Luxury Issue**\
+``\
+https://nytimes.com/issue/t-magazine/2025/09/14/ts-sept-28-design-luxury-issue-2025
+
 **15 Unforgettable Looks at the Emmy Awards**\
 `Power suits, pixie cuts, bedazzled bodies and more.`\
 https://nytimes.com/2025/09/14/style/emmys-fashion-red-carpet-looks.html
