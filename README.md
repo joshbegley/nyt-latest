@@ -1,3 +1,7 @@
+**Mac Jones overcomes nerves, rewarding 49ers' confidence and buying Brock Purdy time**\
+`Jones affirmed the 49ers' faith, delivering in a pass-heavy game plan and showing why the team won't rush Purdy back into action.`\
+https://nytimes.com/athletic/6629351/2025/09/14/mac-jones-49ers-saints-brock-purdy/
+
 **Panthers vs. Cardinals takeaways: Arizona wins despite Bryce Young's career day**\
 `The Panthers QB passed for 328 yards, but the Cardinals held on, moving to 2-0.`\
 https://nytimes.com/athletic/6629413/2025/09/14/panthers-cardinals-score-result-takeaways-nfl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6629520/2025/09/14/orioles-vs-white-sox-stream-how-
 **How to watch Blue Jays at Rays: Time, TV, streaming for September 15**\
 `Find out how to watch the Toronto Blue Jays play the Tampa Bay Rays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6629518/2025/09/14/blue-jays-vs-rays-stream-how-to-watch-sept-15/
-
-**How to watch Cubs at Pirates: Time, TV, streaming for September 15**\
-`Find out how to watch the Chicago Cubs play the Pittsburgh Pirates, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6629516/2025/09/14/cubs-vs-pirates-stream-how-to-watch-sept-15/
 
