@@ -1,3 +1,11 @@
+**Noah Wyle Finally Wins an Emmy**\
+`After five nominations and no wins for “E.R.,” Wyle was named best actor in a drama for another hospital show, “The Pitt.”`\
+https://nytimes.com/2025/09/14/arts/television/noah-wyle-emmy-the-pitt.html
+
+**Why the Giants will (or won't) claim the final NL wild card spot**\
+`It's bad punditry to assert whether the Giants will or won't claim the final wild card, but there's always value in asking why.`\
+https://nytimes.com/athletic/6629818/2025/09/14/why-giants-final-nl-wild-card-spot/
+
 **What the Chiefs said about Travis Kelce's drop. And why there's still hope at 0-2**\
 `Defensive end George Karlaftis had Kelce's back after the game and said this team will "find a way to find a way."`\
 https://nytimes.com/athletic/6629560/2025/09/14/chiefs-travis-kelce-drop-eagles/

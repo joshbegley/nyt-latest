@@ -1,3 +1,7 @@
+**‘The Pitt’ Wins the Emmy for Best Drama**\
+`The HBO Max hospital drama, starring Noah Wyle, had 13 nominations coming into Sunday. Noah Wyle had already won for best actor.`\
+https://nytimes.com/2025/09/14/arts/television/the-pitt-best-drama-emmy.html
+
 **Noah Wyle Finally Wins an Emmy**\
 `After five nominations and no wins for “E.R.,” Wyle was named best actor in a drama for another hospital show, “The Pitt.”`\
 https://nytimes.com/2025/09/14/arts/television/noah-wyle-emmy-the-pitt.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6629097/2025/09/14/noah-lyles-100-meter-world-champ
 **Matthew Stafford, the Rams' commander in chief, was as cool as can be vs. Titans**\
 `Stafford finished 23-of-33 for 298 yards, two touchdowns and an interception and turned a three-point halftime deficit into a 33-19 victory.`\
 https://nytimes.com/athletic/6629293/2025/09/14/matthew-stafford-rams-titans-week-2/
-
-**What We Saw as Stars Arrived at the Emmys**\
-`Candid moments with Walton Goggins, Pedro Pascal, Jean Smart and more.`\
-https://nytimes.com/2025/09/14/arts/television/emmys-candid-photos.html
 
