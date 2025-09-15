@@ -1,3 +1,7 @@
+**Jets QB Justin Fields evaluated for concussion, status for Tampa Bay up in the air**\
+`Fields left the Jets' loss to Buffalo on Sunday in the fourth quarter.`\
+https://nytimes.com/athletic/6628785/2025/09/15/justin-fields-injury-new-york-jets/
+
 **ND-A&M final thoughts: Marcus Freeman has a defensive coordinator problem**\
 `New DC Chris Ash has taken a defense that was aggressive and fast and reduced it to a tentative and reactionary unit.`\
 https://nytimes.com/athletic/6630814/2025/09/15/notre-dame-chris-ash-defense/
