@@ -1,3 +1,7 @@
+**Breaking down why Wolves have made their worst start to a season in their 127-year history**\
+`Four defeats in the first four games of a season means Vitor Pereira has plenty to work on at Wolves`\
+https://nytimes.com/athletic/6627548/2025/09/15/wolverhampton-wanderers-newcastle-loss-analysis/
+
 **Vikings vs. Falcons: Atlanta's defense, kicker shine in win over Minnesota**\
 `Parker Romo made all five of his field-goal attempts after the Falcons signed him five days ago.`\
 https://nytimes.com/athletic/6629610/2025/09/15/vikings-falcons-score-results-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/15/business/economy/britain-european-union-tariffs-w
 **Connections: Sports Edition Coach: Hints for Sept. 15, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6629731/2025/09/15/connections-sports-edition-hints-for-sept-15-2025/
-
-**Calls for a ‘Free Palestine’ in an Emmys Otherwise Light on Politics**\
-`A few nominees and speakers addressed political issues such as the Israel-Gaza war and the defunding of U.S. public broadcasting.`\
-https://nytimes.com/2025/09/14/arts/television/emmys-israel-gaza.html
 
