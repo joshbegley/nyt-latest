@@ -1,3 +1,19 @@
+**The Pulse: Yes, these NFL teams should panic**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6629887/2025/09/15/nfl-week-2-the-pulse/
+
+**Vuelta chief insists sport and protests can 'absolutely coexist' after race disruption**\
+`Three stages out of 21 in the 2025 Vuelta were neutralised early due to the safety risk, with many others disrupted.`\
+https://nytimes.com/athletic/6630653/2025/09/15/vuelta-a-espana-protests-race-manager/
+
+**New York Rangers 2025-26 prospect rankings: Counting down Nos. 7-10**\
+`The first installment of Mercogliano's annual prospect evolution series, now with a new location and new co-conspirator.`\
+https://nytimes.com/athletic/6623329/2025/09/15/new-york-rangers-prospect-rankings-top-10/
+
+**Bengals QB Joe Burrow seeking second opinions on turf toe injury: Sources**\
+`Burrow left Sunday's 31-27 win over the Jacksonville Jaguars in the second quarter and was later seen in a walking boot.`\
+https://nytimes.com/athletic/6630700/2025/09/15/joe-burrow-injury-toe-bengals/
+
 **We Answer Your Questions About A.I.**\
 `Beat experts across the newsroom responded to you.`\
 https://nytimes.com/2025/09/15/briefing/we-answer-your-questions-about-ai.html
