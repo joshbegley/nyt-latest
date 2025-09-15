@@ -1,3 +1,27 @@
+**Mac Jones overcomes nerves, rewarding 49ers' confidence and buying Brock Purdy time**\
+`Jones affirmed the 49ers' faith, delivering in a pass-heavy game plan and showing why the team won't rush Purdy back into action.`\
+https://nytimes.com/athletic/6629351/2025/09/14/mac-jones-49ers-saints-brock-purdy/
+
+**Panthers vs. Cardinals takeaways: Arizona wins despite Bryce Young's career day**\
+`The Panthers QB passed for 328 yards, but the Cardinals held on, moving to 2-0.`\
+https://nytimes.com/athletic/6629413/2025/09/14/panthers-cardinals-score-result-takeaways-nfl/
+
+**Virginia Tech needs a head coach. How realistic is Michael Vick or Shane Beamer?**\
+`The Hokies have struggled since longtime coach Frank Beamer retired in 2015. `\
+https://nytimes.com/athletic/6629452/2025/09/14/virginia-tech-coaching-candidates-michael-vick-shane-beamer/
+
+**Sanders sidesteps questions on report that he didn't want Ravens to draft him**\
+`"Whatever happened in the past, it is what it is," Sanders said Sunday when asked about the report.`\
+https://nytimes.com/athletic/6628202/2025/09/14/shedeur-sanders-ravens-browns-draft/
+
+**Phillies must wait to clinch NL East, but after strong week, head west seeking even more**\
+`The Phillies are five games up on the Dodgers for the NL's second seed, and they are two games behind the Brewers for the first.`\
+https://nytimes.com/athletic/6629228/2025/09/14/phillies-nl-east-playoff-seeding/
+
+**A blowout loss to the Bills, and the official end of Aaron Glenn's honeymoon phase**\
+`After an encouraging opener, the Jets came crashing down in a Week 2 loss.`\
+https://nytimes.com/athletic/6629379/2025/09/14/aaron-glenn-new-york-jets-buffalo-bills/
+
 **Seth Rogen Wins His First Emmy**\
 `Rogen won best actor in a comedy for “The Studio.”`\
 https://nytimes.com/2025/09/14/arts/television/seth-rogen-first-emmy-the-studio.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6629520/2025/09/14/orioles-vs-white-sox-stream-how-
 **How to watch Blue Jays at Rays: Time, TV, streaming for September 15**\
 `Find out how to watch the Toronto Blue Jays play the Tampa Bay Rays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6629518/2025/09/14/blue-jays-vs-rays-stream-how-to-watch-sept-15/
-
-**How to watch Cubs at Pirates: Time, TV, streaming for September 15**\
-`Find out how to watch the Chicago Cubs play the Pittsburgh Pirates, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6629516/2025/09/14/cubs-vs-pirates-stream-how-to-watch-sept-15/
-
-**How to watch Braves at Nationals: Time, TV, streaming for September 15**\
-`Find out how to watch the Atlanta Braves play the Washington Nationals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6629514/2025/09/14/braves-vs-nationals-stream-how-to-watch-sept-15/
-
-**The Bears' season just began and already it feels like the bad old days**\
-`After giving up 52 points to the Lions, the Bears need to clean things up. Anyone have a mop? Or a hazmat crew?`\
-https://nytimes.com/athletic/6629218/2025/09/14/bears-lions-blowout-loss-bad-start/
-
-**Broncos vs. Colts: 4 takeaways from Indianapolis' 29-28 comeback win**\
-`Spencer Shrader hit a game-winning 45-yard field goal as time expired, lifting the Colts to their first 2-0 start since 2009.`\
-https://nytimes.com/athletic/6626826/2025/09/14/broncos-colts-score-result-takeaways-nfl/
-
-**Josh Allen battles through nose injury as Bills defense dominates Jets**\
-`Plus. the Bills' rushing attack takes some pressure off Allen and the passing game.`\
-https://nytimes.com/athletic/6629300/2025/09/14/bills-josh-allen-nose-injury-win-jets/
-
-**Nonprofit Gets Two Paintings Stolen by Nazis Pulled From Auction**\
-`The paintings were among more than 300 works seized during World War II from Adolphe Schloss, a German Jew who lived in France and amassed a collection of old master paintings.`\
-https://nytimes.com/2025/09/14/arts/nazi-painting-ohio-auction.html
 
