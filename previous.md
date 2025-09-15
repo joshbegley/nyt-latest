@@ -1,3 +1,7 @@
+**Vikings QB J.J. McCarthy likely to miss Week 3 with sprained ankle, Carson Wentz to start**\
+`McCarthy, a second-year man from Michigan, struggled mightily in the Vikings' Week 2 loss to the Falcons on Sunday and was sacked six times.`\
+https://nytimes.com/athletic/6631929/2025/09/15/jj-mccarthy-hurt-carson-wentz-vikings-depth-chart/
+
 **Newcastle cancel more than 100 season tickets and apologise for 'oversight'**\
 `The news comes following the rescinding of 45 tickets for this week's clash with Barcelona which had been purchased by a school in Dundee`\
 https://nytimes.com/athletic/6631885/2025/09/15/newcastle-tickets-news-dundee-champions-league/
@@ -23,7 +27,7 @@ https://nytimes.com/athletic/6631829/2025/09/15/brian-kelly-apology-lsu-offense/
 https://nytimes.com/athletic/6631598/2025/09/15/broncos-sean-payton-field-goal-penalty-colts/
 
 **F.B.I. Burns Methamphetamine Near Animal Shelter, Sickening Workers and Pets**\
-`More than 70 cats and dogs were evacuated and 14 workers at an animal shelter in Montana were treated for smoke inhalation from incinerated methamphetine.`\
+`More than 70 cats and dogs were evacuated and 14 workers at an animal shelter in Montana were treated for smoke inhalation from incinerated methamphetamine.`\
 https://nytimes.com/2025/09/15/us/montana-animal-shelter-fbi-meth-smoke.html
 
 **Ed Giacomin, Hall of Fame goalie and New York Rangers legend, dies at 86**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6631557/2025/09/15/ed-giacomin-obituary-nhl-rangers
 **Scoop City: Risers and fallers after Week 2**\
 `How teams are trending after the Colts, Cowboys and Bengals won, while the Dolphins and Steelers disappointed`\
 https://nytimes.com/athletic/6631745/2025/09/15/nfl-risers-fallers-trending-week-2-cowboys-colts/
-
-**Bears cornerback Jaylon Johnson faces extended absence with groin injury**\
-`At a minimum, Johnson figures to miss multiple games after the groin injury that bothered him all summer flared up in the first half Sunday.`\
-https://nytimes.com/athletic/6631758/2025/09/15/bears-jaylon-johnson-groin-injury-absence-2/
 
