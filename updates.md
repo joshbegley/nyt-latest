@@ -1,3 +1,7 @@
+**Canceled by CBS, ‘The Late Show With Stephen Colbert’ Wins Best Talk Show**\
+`The show, which Colbert has hosted since 2015, beat out “The Daily Show” on Comedy Central and “Jimmy Kimmel Live!” on ABC.`\
+https://nytimes.com/2025/09/14/arts/television/stephen-colbert-the-late-show-emmys.html
+
 **Broncos' blunders raise concern in loss to Colts: 'We gave that game away today'**\
 `The Broncos were 1-6 in one-score games last season, and in their first tight battle of 2025, they floundered in the deciding moments.`\
 https://nytimes.com/athletic/6629236/2025/09/14/broncos-loss-mistakes-colts-sean-payton/
