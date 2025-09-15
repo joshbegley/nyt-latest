@@ -1,3 +1,11 @@
+**Trump Signs Off on Sending Federal Troops to Memphis**\
+`The president repeated that Chicago, New Orleans and other Democratic-run cities could be next.`\
+https://nytimes.com/2025/09/15/us/politics/trump-memphis-national-guard-crime.html
+
+**Trump Says He Would Have Lowered Flags for Slain Minnesota Lawmaker**\
+`The president, who initially didn’t recall Melissa Hortman by name, claimed he was never asked to lower flags for her.`\
+https://nytimes.com/2025/09/15/us/politics/trump-melissa-hortman-charlie-kirk-flags.html
+
 **How to watch Washington at Washington State: Time, TV, streaming**\
 `Find out how to watch the Washington Huskies play the Washington State Cougars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6632773/2025/09/15/washington-vs-washington-state-stream-how-to-watch-sept-20/
@@ -29,14 +37,4 @@ https://nytimes.com/athletic/6632751/2025/09/15/northern-illinois-vs-mississippi
 **Weekly Student News Quiz: Charlie Kirk, Test Scores, Mars Rock**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/09/15/learning/16StudentNewsQuizLN.html
-
-**What Does ‘Real Unity’ Mean to the White House?**\
-`After Charlie Kirk’s death, the Trump administration has identified a bigger culprit: leftists bent on violence.`\
-https://nytimes.com/2025/09/15/us/politics/jd-vance-charlie-kirk-trump.html
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>Hopefully everyone&#8217;s managed to hold on to their jobs longer than Deshaun Foster and Brent Pry.</p>
-<p>Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/6632651/2025/09/15/submit-a-question-for-stewart-mandels-college-football-mailbag-315/
 
