@@ -1,3 +1,7 @@
+**On the Scene at the Emmy Awards Governors Gala**\
+`Tramell Tillman, Britt Lower, Stephen Colbert, Jeff Hiller and other Emmy winners celebrated at the official post-show event.`\
+https://nytimes.com/2025/09/15/arts/television/emmy-awards-governors-gala.html
+
 **USMNT Player Tracker: Pepi offers some bite, Reyna's run out and McKennie makes his mark**\
 `Our roundup of the weekend action also features Patrick Agyemang's immediate impact at Derby, and another goal for the prolific Haji Wright`\
 https://nytimes.com/athletic/6630626/2025/09/15/usmnt-pepi-reyna-mckennie-tracker/
