@@ -1,3 +1,19 @@
+**The Pulse: Yes, these NFL teams should panic**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6629887/2025/09/15/nfl-week-2-the-pulse/
+
+**Vuelta chief insists sport and protests can 'absolutely coexist' after race disruption**\
+`Three stages out of 21 in the 2025 Vuelta were neutralised early due to the safety risk, with many others disrupted.`\
+https://nytimes.com/athletic/6630653/2025/09/15/vuelta-a-espana-protests-race-manager/
+
+**New York Rangers 2025-26 prospect rankings: Counting down Nos. 7-10**\
+`The first installment of Mercogliano's annual prospect evolution series, now with a new location and new co-conspirator.`\
+https://nytimes.com/athletic/6623329/2025/09/15/new-york-rangers-prospect-rankings-top-10/
+
+**Bengals QB Joe Burrow seeking second opinions on turf toe injury: Sources**\
+`Burrow left Sunday's 31-27 win over the Jacksonville Jaguars in the second quarter and was later seen in a walking boot.`\
+https://nytimes.com/athletic/6630700/2025/09/15/joe-burrow-injury-toe-bengals/
+
 **We Answer Your Questions About A.I.**\
 `Beat experts across the newsroom responded to you.`\
 https://nytimes.com/2025/09/15/briefing/we-answer-your-questions-about-ai.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6629149/2025/09/15/message-board-mondays-coach-repl
 **Battle for the AL East: Blue Jays have put themselves in the driver’s seat**\
 `The Yankees took two of three from Red Sox over the weekend to keep their chances alive. But the Blue Jays remain ahead of the pack.`\
 https://nytimes.com/athletic/6624898/2025/09/15/yankees-red-sox-blue-jays/
-
-**Joe Flacco can't move and neither can Browns. So now what?**\
-`Flacco's struggles are a reminder of how much the NFL has changed since his rookie season. He was never a mobile QB, and now he's a statue.`\
-https://nytimes.com/athletic/6629462/2025/09/15/browns-ravens-offense-joe-flacco/
-
-**Patience and ambition are not mutually exclusive. Just ask Everton Women**\
-`A key theme to take from Everton Women's first game at Goodison Park is that the women's game is still a work in progress`\
-https://nytimes.com/athletic/6628606/2025/09/15/everton-women-tottenham-wsl-column/
-
-**The Red Wings prospects who stood out in prospect showcase vs. Dallas**\
-`Detroit and Grand Rapids brass got their first glimpses of how several key prospects progressed over the summer in a two-game showcase.`\
-https://nytimes.com/athletic/6628255/2025/09/15/red-wings-prospect-standouts-nate-danielson-amadeus-lombardi/
-
-**What happened when Ederson faced Andre Onana in Istanbul on Manchester derby day**\
-`Fenerbahce and Trabzonspor met in the Turkish Super Lig on Sunday, with two very familiar faces in goal for Premier League fans`\
-https://nytimes.com/athletic/6627640/2025/09/15/ederson-onana-istanbul-manchester-united-city/
 
