@@ -1,3 +1,7 @@
+**Khusanov is the human wrecking ball who is solving City's problem position**\
+`The Uzbek offers Pep Guardiola a raw physicality at right-back, as he proved against Manchester United on Sunday `\
+https://nytimes.com/athletic/6628164/2025/09/15/abdoukidir-khusanov-manchester-city-right-back/
+
 **The New York Times in Print for Monday, Sep. 15, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/15/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6622776/2025/09/15/yeremy-pino-christantus-uche-oli
 **Lindelof in midfield and an xG worse than Michael Keane's - this is Villa in September 2025**\
 `Lindelof’s cameo was either symbolic of Villa’s need for pragmatism or panic, acknowledging that another defeat would widen schisms`\
 https://nytimes.com/athletic/6626619/2025/09/15/victor-lindelof-midfield-aston-villa/
-
-**Wrexham are still adapting to the Championship rollercoaster. But they need cohesion – and fast**\
-`A chastening loss to perennial Championship-dwellers QPR shows how far the Welsh side have to go to adjust to life in the second tier`\
-https://nytimes.com/athletic/6619459/2025/09/15/wrexham-championship-ryan-reynolds-qpr-soccer/
 
