@@ -1,3 +1,11 @@
+**New Crypto Super PAC Garners $100 Million to Help Push Industry Agenda**\
+`The effort, called the Fellowship PAC, is the crypto industry’s latest move to help elect legislators that will force through its interests in Washington.`\
+https://nytimes.com/2025/09/15/technology/crypto-fellowship-super-pac-100-million-budget.html
+
+**Tom Brady among stars in Saudi Arabia flag football event: Olympics next?**\
+`Seven-time Super Bowl champ to participate in exhibition, which will be played under Olympic flag football rules.`\
+https://nytimes.com/athletic/6632497/2025/09/15/tom-brady-fanatics-flag-football-saudi-arabia/
+
 **If Blue Jackets don't end five-year playoff drought, season will be a 'failure'**\
 `On the eve of training camp, one player said the Blue Jackets have "a little more swagger" this year.`\
 https://nytimes.com/athletic/6631790/2025/09/15/blue-jackets-playoffs-werenski/

@@ -1,3 +1,7 @@
+**New Crypto Super PAC Garners $100 Million to Help Push Industry Agenda**\
+`The effort, called the Fellowship PAC, is the crypto industry’s latest move to help elect legislators that will force through its interests in Washington.`\
+https://nytimes.com/2025/09/15/technology/crypto-fellowship-super-pac-100-million-budget.html
+
 **If Blue Jackets don't end five-year playoff drought, season will be a 'failure'**\
 `On the eve of training camp, one player said the Blue Jackets have "a little more swagger" this year.`\
 https://nytimes.com/athletic/6631790/2025/09/15/blue-jackets-playoffs-werenski/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6631790/2025/09/15/blue-jackets-playoffs-werenski/
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/09/15/us/san-francisco-bay-area-quake-tracker.html
 
-**Tom Brady among big NFL names to play in flag football event in Saudi Arabia**\
+**Tom Brady among stars in Saudi Arabia flag football event: Olympics next?**\
 `Seven-time Super Bowl champ to participate in exhibition, which will be played under Olympic flag football rules.`\
 https://nytimes.com/athletic/6632497/2025/09/15/tom-brady-fanatics-flag-football-saudi-arabia/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/15/health/rfk-jr-hhs-vaccine-committee-members.html
 **U.S. Strikes a 2nd Venezuela Boat, Killing 3, Trump Says**\
 `The president said the vessel was heading to the United States, but he did not offer details about its location. Legal specialists condemned the action as illegal.`\
 https://nytimes.com/2025/09/15/us/politics/trump-venezuela-drug-boat-strike.html
-
-**What to Know About the ‘Kissing Bug’ Disease**\
-`Though some researchers believe it should be labeled endemic in the United States, most Americans don’t need to worry about getting sick.`\
-https://nytimes.com/2025/09/15/well/kissing-bug-chagas-disease.html
 
