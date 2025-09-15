@@ -1,3 +1,23 @@
+**Pino and Uche may take time to adapt at Palace. But Glasner knows patience can be a virtue**\
+`Just as it took time for Sarr and Kamada to adapt to Glasner’s system, it is likely to be the same for Pino and Uche`\
+https://nytimes.com/athletic/6622776/2025/09/15/yeremy-pino-christantus-uche-oliver-glasner/
+
+**Lindelof in midfield and an xG worse than Michael Keane's - this is Villa in September 2025**\
+`Lindelof’s cameo was either symbolic of Villa’s need for pragmatism or panic, acknowledging that another defeat would widen schisms`\
+https://nytimes.com/athletic/6626619/2025/09/15/victor-lindelof-midfield-aston-villa/
+
+**Wrexham are still adapting to the Championship rollercoaster. But they need cohesion – and fast**\
+`A chastening loss to perennial Championship-dwellers QPR shows how far the Welsh side have to go to adjust to life in the second tier`\
+https://nytimes.com/athletic/6619459/2025/09/15/wrexham-championship-ryan-reynolds-qpr-soccer/
+
+**West Ham's new-look back line simply can't defend corners. Potter has to act – now**\
+`Their vulnerability from set pieces is becoming more pronounced by the week and they must address it if they are to improve`\
+https://nytimes.com/athletic/6626059/2025/09/15/west-ham-corners-graham-potter/
+
+**Cole Palmer's sublime off-ball movement means he is worth more than goals to Chelsea**\
+`The Englishman's introduction swung the game in his team's favour and leaves question marks over Enzo Maresca's decision not to start him`\
+https://nytimes.com/athletic/6627545/2025/09/15/cole-palmer-chelsea-brentford-premier-league/
+
 **Leeds might have the defence. But after four games, they only have one goal**\
 `The loss to Fulham brought together the headline themes of what Leeds achieved and failed to achieve over the summer transfer window`\
 https://nytimes.com/athletic/6627347/2025/09/15/leeds-dominic-calvert-lewin-muniz-wilson/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6620268/2025/09/15/ballon-dor-ousmane-dembele-campa
 **Attending four London Premier League games in a day: Seeing 100 players, missing five goals, and avoiding a protest**\
 `North, south, east and west London were covered in a day of watching four games, thought there was more time on trains than in stadia`\
 https://nytimes.com/athletic/6627642/2025/09/15/london-premier-league-four-games/
-
-**Woltemade's flying start: Debut goal, Tesco shop and dressing room speech for striker who 'breaks the mould'**\
-`Woltemade’s team-mates have been taken by the German’s demeanour, which is not to take himself too seriously despite his price tag`\
-https://nytimes.com/athletic/6622702/2025/09/15/nick-woltemade-debut-story/
-
-**Ballon d’Or 2025 one week to go: Dembele, Yamal, Vitinha? Ranking all the contenders**\
-`A look at the state of play before the world's best player is crowned next Monday`\
-https://nytimes.com/athletic/6614205/2025/09/15/ballon-dor-2025-rankings/
-
-**Breaking down why Wolves have made their worst start to a season in their 127-year history**\
-`Four defeats in the first four games of a season means Vitor Pereira has plenty to work on at Wolves`\
-https://nytimes.com/athletic/6627548/2025/09/15/wolverhampton-wanderers-newcastle-loss-analysis/
-
-**Vikings vs. Falcons: Atlanta's defense, kicker shine in win over Minnesota**\
-`Parker Romo made all five of his field-goal attempts after the Falcons signed him five days ago.`\
-https://nytimes.com/athletic/6629610/2025/09/15/vikings-falcons-score-results-takeaways/
-
-**Starving Children Eat Animal Feed in Besieged Sudanese City**\
-`At least 260,000 civilians trapped in El Fasher face a dire choice: risk being starved or bombed if they stay, and raped or killed if they flee.`\
-https://nytimes.com/2025/09/15/world/africa/sudan-starving-children.html
 
