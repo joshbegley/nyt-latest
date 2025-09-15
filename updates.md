@@ -1,3 +1,15 @@
+**Packers' Christian Watson nears return from ACL tear: 'I'm already chomping at the bit'**\
+`Watson tore his ACL in Week 18 last season and anticipates returning to practice when he's first allowed to by league rules in Week 6.`\
+https://nytimes.com/athletic/6632187/2025/09/15/packers-christian-watson-return-acl/
+
+**Florida Says Ban on Openly Carrying Guns Is Invalid After Court Ruling**\
+`The state attorney general told law enforcement officers to stop enforcing the decades-old ban, after a court last week ruled it unconstitutional.`\
+https://nytimes.com/2025/09/15/us/florida-open-carry-guns.html
+
+**Kirill Kaprizov's Wild teammates remain optimistic he will re-sign: 'He doesn't need the lights'**\
+`Marcus Foligno on Kaprizov's stalled contract talks: "He’s excited to be here. He loves everything about Minnesota. … It’ll work out."`\
+https://nytimes.com/athletic/6632124/2025/09/15/kirill-kaprizov-wild-contract-teammates/
+
 **49ers minutia minute: Rookies Mykel Williams, Connor Colby jumped out vs. Saints**\
 `Deep-ball Ricky? Pearsall is averaging more than 20 yards per catch through two games, one of the best rates in the NFL so far.`\
 https://nytimes.com/athletic/6632108/2025/09/15/49ers-saints-mykel-williams-rookies/
