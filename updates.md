@@ -1,3 +1,7 @@
+**Ricky Hatton, the brilliant everyman who conquered the boxing world**\
+`From his humble origins in a Manchester pub, the British boxer didn't just claim titles: he won hearts and minds`\
+https://nytimes.com/athletic/6629126/2025/09/15/ricky-hatton-boxing-death-legacy-career/
+
 **Word of the Day: sartorial**\
 `This word has appeared in 126 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/09/15/learning/word-of-the-day-sartorial.html
