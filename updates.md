@@ -1,3 +1,15 @@
+**Rubio Is Skeptical of Gaza Deal During Jerusalem Visit**\
+`U.S. Secretary of State Marco Rubio cast doubt on the possibility of a diplomatic solution to the Gaza war after talks with Israeli Prime Minister Benjamin Netanyahu in Jerusalem.`\
+https://nytimes.com/video/world/middleeast/100000010399094/gaza-rubio-netanyahu-jerusalem.html
+
+**Tush push criticism returns after missed false-start calls in Eagles' win over Chiefs**\
+`From Andy Reid to Tom Brady to rules analyst Dean Blandino, there was plenty of frustration with the Eagles' use of the tush push on Sunday.`\
+https://nytimes.com/athletic/6631199/2025/09/15/tush-push-false-start-eagles-chiefs-nfl/
+
+**Notes on 2026 MLB Draft prospects from the 2025 Under Armour Next game**\
+`Notes on Rocco Maniscalco, Blake Bowen, Jaxon Matthews, Tyler Putnam, Alain Gómez-Gudiño and more 2026 MLB draft prospects.`\
+https://nytimes.com/athletic/6631520/2025/09/15/under-armour-next-2025-notes-mlb-draft/
+
 **Profits from Norway vs Israel to go to relief group in Gaza**\
 `The Norwegian Football Federation said the profit would be "earmarked for the organisation's emergency relief work on the ground in Gaza".`\
 https://nytimes.com/athletic/6631437/2025/09/15/norway-israel-gaza-world-cup-qualifier/
