@@ -1,3 +1,23 @@
+**Russell Wilson, Amon-Ra St. Brown and other Week 2 fantasy football bounce-back performances**\
+`KC Joyner discusses the biggest surprises of Week 2, including Pickens' breakout game with Dallas and the Lions offense. `\
+https://nytimes.com/athletic/6631007/2025/09/15/fantasy-football-week-2-bouncebacks-wilson-st-brown/
+
+**Katherine LaNasa and Noah Wyle Among the 11 First-Time Emmy Winners**\
+`The stars of “The Pitt” were just two of the actors to take home a statue for the first time on Sunday.`\
+https://nytimes.com/2025/09/15/arts/television/first-time-emmy-winners.html
+
+**What the Giants should expect from Bryce Eldridge now that he's a big leaguer**\
+`Promoting Eldridge was the Giants' only possible move. It might just work but keep your expectations low and your mind open.`\
+https://nytimes.com/athletic/6631244/2025/09/15/sf-giants-bryce-eldridge-callup-expectations/
+
+**Submit a question for Pete Sampson's Notre Dame football mailbag**\
+`Notre Dame is 0-2 after season-opening losses to Miami and Texas A&M, and there's plenty to talk about around the Fighting Irish.`\
+https://nytimes.com/athletic/6631552/2025/09/15/submit-a-question-for-pete-sampsons-notre-dame-football-mailbag-2/
+
+**Rob Reiner Takes the Mel Brooks Questionnaire**\
+`The comedy legend devised a personality test for us. First up: the “Spinal Tap II” director.`\
+https://nytimes.com/interactive/2025/09/15/t-magazine/reiner-brooks-questionnaire.html
+
 **Country’s Latest Feminist Corrective**\
 `Our critic’s new song of the week, “6 Months Later” by Megan Moroney, is in the lineage of Dolly, the Chicks and Shania.`\
 https://nytimes.com/video/podcasts/100000010395934/countrys-latest-feminist-corrective.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6631281/2025/09/15/joe-burrow-injury-bengals-bettin
 **From Samuels-Smith to Sarr: Charting the 12 players moving between Chelsea and Strasbourg**\
 `There have been numerous moves between the Premier League and Ligue 1 teams as part of BlueCo's multi-club ownership model`\
 https://nytimes.com/athletic/6619301/2025/09/15/chelsea-strasbourg-blueco-transfers-chilwell/
-
-**How Manchester City exploited Manchester United's midfield and picked their pockets**\
-`Sunday's derby win was the perfect demonstration of what the Manchester City boss wants his players to do`\
-https://nytimes.com/athletic/6630350/2025/09/15/manchester-city-tactics-manchester-united/
-
-**Bessent Announces ‘Framework’ for TikTok Deal Between U.S. and China**\
-`Treasury Secretary Scott Bessent said U.S. and Chinese officials agreed to an outline of a deal that would move TikTok’s ownership from China to the U.S. President Xi Jinping of China and President Trump are expected to speak on Friday to agree to the deal.`\
-https://nytimes.com/video/us/100000010399491/tiktok-ban-us-china.html
-
-**After NASCAR's latest heavy tire-wear Bristol race, questions and hope for what's next**\
-`Bristol delivered another high-tire-wear race on Saturday. Maybe too much. But it left the garage hopeful for what Goodyear might do next.`\
-https://nytimes.com/athletic/6630690/2025/09/15/nascar-bristol-tires-goodyear-wear-future/
-
-**Two Men Arrested After Incendiary Device Is Found Under a News Vehicle**\
-`The incendiary device, found beneath a Salt Lake City television station’s vehicle, failed to detonate. The two men face terrorism and arson charges.`\
-https://nytimes.com/2025/09/15/us/utah-explosive-device-threat-fox-13-arrest.html
-
-**Breanna Stewart's Game 2 status uncertain after injuring left leg**\
-`The Liberty have not released an injury report ahead of Wednesday's game, although they are expected to practice on Tuesday.`\
-https://nytimes.com/athletic/6631395/2025/09/15/breanna-stewart-liberty-injury-status-wnba/
 
