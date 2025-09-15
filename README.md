@@ -1,3 +1,11 @@
+**Inside Barcelona: Yamal fitness row, Valencia thrashing but still no home ground**\
+`Our latest weekly column on the key goings-on at Barca this past week`\
+https://nytimes.com/athletic/6630881/2025/09/15/inside-barcelona-lamine-yamal-camp-nou/
+
+**Ubben: Three weeks in, college football looks as unpredictable as ever**\
+`Parity has arrived in college football. With it, preseason predictions have been derailed in record time.`\
+https://nytimes.com/athletic/6630696/2025/09/15/college-football-predictions-florida-clemson-texas/
+
 **MLBPA to auction off baseball cards pulled by the players themselves**\
 `The MLB Players Association is adding another level of connection between the players and their cards`\
 https://nytimes.com/athletic/6629812/2025/09/15/mlbpa-baseball-card-collection-psa/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6630626/2025/09/15/usmnt-pepi-reyna-mckennie-tracke
 **Jets QB Justin Fields evaluated for concussion, status for Tampa Bay up in the air**\
 `Fields left the Jets' loss to Buffalo on Sunday in the fourth quarter.`\
 https://nytimes.com/athletic/6628785/2025/09/15/justin-fields-injury-new-york-jets/
-
-**ND-A&M final thoughts: Marcus Freeman has a defensive coordinator problem**\
-`New DC Chris Ash has taken a defense that was aggressive and fast and reduced it to a tentative and reactionary unit.`\
-https://nytimes.com/athletic/6630814/2025/09/15/notre-dame-chris-ash-defense/
-
-**Trump Administration Live Updates: U.S. and China Agree on Framework for TikTok Deal, Bessent Says**\
-``\
-https://nytimes.com/live/2025/09/15/us/trump-news
 
