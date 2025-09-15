@@ -1,3 +1,7 @@
+**Brighton CEO Paul Barber joins board of Melbourne Victory**\
+`Barber will represent Brighton's owner-chairman Tony Bloom, who bought a 19.1 per cent stake in the Australian A-League club in March.`\
+https://nytimes.com/athletic/6630403/2025/09/15/brighton-paul-barber-melbourne-victory/
+
 **College Disorientation**\
 `Things are different on college campuses this year.`\
 https://nytimes.com/2025/09/15/podcasts/college-disorientation-this-american-life-nyt-audio.html
@@ -14,7 +18,7 @@ https://nytimes.com/2025/09/15/nyregion/mamdani-public-safety-plan.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/09/15/crosswords/spelling-bee-forum.html
 
-**Lamine Yamal’s Spain-Barcelona painkillers row — should we be worried?**\
+**Lamine Yamal’s Spain-Barcelona painkillers row – should we be worried?**\
 `An injury suffered on Spain duty last week meant the 18-year-old winger was ruled out for Barca`\
 https://nytimes.com/athletic/6629630/2025/09/15/lamine-yamal-spain-barcelona-injury/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/15/learning/word-of-the-day-sartorial.html
 **Khusanov is the human wrecking ball who is solving City's problem position**\
 `The Uzbek offers Pep Guardiola a raw physicality at right-back, as he proved against Manchester United on Sunday `\
 https://nytimes.com/athletic/6628164/2025/09/15/abdukodir-khusanov-manchester-city-right-back/
-
-**The New York Times in Print for Monday, Sep. 15, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/09/15/todays-new-york-times
 

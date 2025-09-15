@@ -1,3 +1,7 @@
+**College Disorientation**\
+`Things are different on college campuses this year.`\
+https://nytimes.com/2025/09/15/podcasts/college-disorientation-this-american-life-nyt-audio.html
+
 **Lasher, Nadler’s Protégé, Says He Is Running to Succeed His Mentor**\
 `Micah Lasher, a state lawmaker, enters what is expected to be a crowded Democratic field competing for Representative Jerrold Nadler’s congressional seat in Manhattan.`\
 https://nytimes.com/2025/09/15/nyregion/nyc-micah-lasher-jerrold-nadler.html
@@ -28,13 +32,9 @@ https://nytimes.com/2025/09/15/learning/word-of-the-day-sartorial.html
 
 **Khusanov is the human wrecking ball who is solving City's problem position**\
 `The Uzbek offers Pep Guardiola a raw physicality at right-back, as he proved against Manchester United on Sunday `\
-https://nytimes.com/athletic/6628164/2025/09/15/abdoukidir-khusanov-manchester-city-right-back/
+https://nytimes.com/athletic/6628164/2025/09/15/abdukodir-khusanov-manchester-city-right-back/
 
 **The New York Times in Print for Monday, Sep. 15, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/15/todays-new-york-times
-
-**Here’s How Trump Can Prevent a War Over Taiwan**\
-`The current collision course was never inevitable, and Trump’s penchant for defying norms could help ensure peace.`\
-https://nytimes.com/2025/09/15/opinion/taiwan-china-war-trump.html
 
