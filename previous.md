@@ -1,3 +1,7 @@
+**What to Know About the ‘Kissing Bug’ Disease**\
+`Though some researchers believe it should be labeled endemic in the United States, most Americans don’t need to worry about getting sick.`\
+https://nytimes.com/2025/09/15/well/kissing-bug-chagas-disease.html
+
 **Trump World’s Deals With the U.A.E.**\
 `We dug deeper into lucrative transactions involving the Trump family’s cryptocurrency firm and the United Arab Emirates.`\
 https://nytimes.com/2025/09/15/briefing/trump-witkoff-emirates-us-china-tiktok-kirk-killing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6631971/2025/09/15/chiefs-rashee-rice-t-shirts-free
 **Packers' Christian Watson nears return from ACL tear: 'I'm already chomping at the bit'**\
 `Watson tore his ACL in Week 18 last season and anticipates returning to practice when he's first allowed to by league rules in Week 6.`\
 https://nytimes.com/athletic/6632187/2025/09/15/packers-christian-watson-return-acl/
-
-**Florida Says Ban on Openly Carrying Guns Is Invalid After Court Ruling**\
-`The state attorney general told law enforcement officers to stop enforcing the decades-old ban, after a court last week ruled it unconstitutional.`\
-https://nytimes.com/2025/09/15/us/florida-open-carry-guns.html
 

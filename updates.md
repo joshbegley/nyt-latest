@@ -1,3 +1,7 @@
+**What to Know About the ‘Kissing Bug’ Disease**\
+`Though some researchers believe it should be labeled endemic in the United States, most Americans don’t need to worry about getting sick.`\
+https://nytimes.com/2025/09/15/well/kissing-bug-chagas-disease.html
+
 **Trump World’s Deals With the U.A.E.**\
 `We dug deeper into lucrative transactions involving the Trump family’s cryptocurrency firm and the United Arab Emirates.`\
 https://nytimes.com/2025/09/15/briefing/trump-witkoff-emirates-us-china-tiktok-kirk-killing.html
