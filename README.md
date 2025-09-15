@@ -1,3 +1,7 @@
+**On the Scene at the Emmy Awards Governors Gala**\
+`Tramell Tillman, Britt Lower, Stephen Colbert, Jeff Hiller and other Emmy winners celebrated at the official post-show event.`\
+https://nytimes.com/2025/09/15/arts/television/emmy-awards-governors-gala.html
+
 **USMNT Player Tracker: Pepi offers some bite, Reyna's run out and McKennie makes his mark**\
 `Our roundup of the weekend action also features Patrick Agyemang's immediate impact at Derby, and another goal for the prolific Haji Wright`\
 https://nytimes.com/athletic/6630626/2025/09/15/usmnt-pepi-reyna-mckennie-tracker/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6630465/2025/09/15/liverpool-arne-slot-tactics-chan
 **FPL Gameweek 4 review: Spurs' solid defence, Woltemade's big chance and the Haaland dilemma**\
 `From new heroes emerging to familiar stars reminding us why they’re essential, the season is finally taking shape`\
 https://nytimes.com/athletic/6630412/2025/09/15/fantasy-premier-league-gameweek-4-review-spurs-haaland/
-
-**The Pulse: Yes, these NFL teams should panic**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6629887/2025/09/15/nfl-week-2-the-pulse/
 
