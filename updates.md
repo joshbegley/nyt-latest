@@ -1,3 +1,7 @@
+**Broncos' blunders raise concern in loss to Colts: 'We gave that game away today'**\
+`The Broncos were 1-6 in one-score games last season, and in their first tight battle of 2025, they floundered in the deciding moments.`\
+https://nytimes.com/athletic/6629236/2025/09/14/broncos-loss-mistakes-colts-sean-payton/
+
 **Noah Lyles, a changing of the 100-meter guard, and the difficulty of staying on top**\
 `Noah Lyles reached the mountaintop in the 100-meter. On Sunday, Jamaica's Oblique Seville took his spot. What comes next for the American?`\
 https://nytimes.com/athletic/6629097/2025/09/14/noah-lyles-100-meter-world-championships-oblique-seville/

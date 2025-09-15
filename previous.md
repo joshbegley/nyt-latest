@@ -1,3 +1,7 @@
+**Broncos' blunders raise concern in loss to Colts: 'We gave that game away today'**\
+`The Broncos were 1-6 in one-score games last season, and in their first tight battle of 2025, they floundered in the deciding moments.`\
+https://nytimes.com/athletic/6629236/2025/09/14/broncos-loss-mistakes-colts-sean-payton/
+
 **Noah Lyles, a changing of the 100-meter guard, and the difficulty of staying on top**\
 `Noah Lyles reached the mountaintop in the 100-meter. On Sunday, Jamaica's Oblique Seville took his spot. What comes next for the American?`\
 https://nytimes.com/athletic/6629097/2025/09/14/noah-lyles-100-meter-world-championships-oblique-seville/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6629684/2025/09/14/ny-giants-cowboys-russell-wilson
 **Two Steelers mistakes cost them dearly, but Pittsburgh's issues run much deeper**\
 `The Steelers' issues go beyond a botched kick return and fluky interception Sunday against the Seahawks.`\
 https://nytimes.com/athletic/6629623/2025/09/14/pittsburgh-steelers-loss-seattle-seahawks/
-
-**What to know about Joe Burrow, turf toe and the Bengals' path forward**\
-`Jake Browning stepped in to lead a dramatic win over the Jaguars on Sunday, and will be called on some more in the coming weeks.`\
-https://nytimes.com/athletic/6629554/2025/09/14/joe-burrow-turf-toe-bengals/
 
