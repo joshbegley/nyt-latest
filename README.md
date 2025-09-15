@@ -1,3 +1,7 @@
+**Trump’s D.C. Show of Force Diverts Agents and Prosecutors From Casework**\
+`While crime falls, the other investigative work of the F.B.I. is being delayed, frustrating law enforcement officials and leading some to quit.`\
+https://nytimes.com/2025/09/15/us/politics/trump-dc-crackdown-fbi-prosecutors.html
+
 **Trump Says Companies Should Stop Reporting Finances Every Quarter**\
 `The president proposed changing the rules to require twice-yearly reports, revisiting an idea from his first term.`\
 https://nytimes.com/2025/09/15/business/trump-company-quarterly-reports.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/15/world/asia/india-pakistan-cricket-asia-cup-handsh
 **‘The Pitt’ Defied Odds by Going Back to the Future**\
 `On Sunday, Emmy voters made a loud statement that there is an appetite for the kind of shows that used to dominate TV.`\
 https://nytimes.com/2025/09/15/arts/television/the-pitt-emmy-wins-network-shows.html
-
-**2025 Heisman Trophy odds: Manning, Lagway among the early favorites plummeting**\
-`With several preseason favorites struggling, Miami's Carson Beck has emerged as the new Heisman Trophy favorite.`\
-https://nytimes.com/athletic/6629408/2025/09/15/heisman-trophy-odds-manning-lagway-fall-beck-favorite/
 
