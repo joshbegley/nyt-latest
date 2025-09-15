@@ -1,3 +1,7 @@
+**Seth Rogen Wins His First Emmy**\
+`Rogen won best actor in a comedy for “The Studio.”`\
+https://nytimes.com/2025/09/14/arts/television/seth-rogen-first-emmy-the-studio.html
+
 **Browns' embarrassing offensive performance vs. Ravens is nothing new**\
 `Unless Cleveland's defense can deliver a series of superhuman efforts, it’s hard to see this group keeping up this season. `\
 https://nytimes.com/athletic/6629347/2025/09/14/browns-offense-ravens-week-2/
