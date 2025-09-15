@@ -1,3 +1,11 @@
+**If Blue Jackets don't end five-year playoff drought, season will be a 'failure'**\
+`On the eve of training camp, one player said the Blue Jackets have "a little more swagger" this year.`\
+https://nytimes.com/athletic/6631790/2025/09/15/blue-jackets-playoffs-werenski/
+
+**Map: 3.5-Magnitude Earthquake Strikes the San Francisco Bay Area**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/09/15/us/san-francisco-bay-area-quake-tracker.html
+
 **Tom Brady among big NFL names to play in flag football event in Saudi Arabia**\
 `Seven-time Super Bowl champ to participate in exhibition, which will be played under Olympic flag football rules.`\
 https://nytimes.com/athletic/6632497/2025/09/15/tom-brady-fanatics-flag-football-saudi-arabia/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/15/us/politics/trump-venezuela-drug-boat-strike.html
 **What to Know About the ‘Kissing Bug’ Disease**\
 `Though some researchers believe it should be labeled endemic in the United States, most Americans don’t need to worry about getting sick.`\
 https://nytimes.com/2025/09/15/well/kissing-bug-chagas-disease.html
-
-**Trump World’s Deals With the U.A.E.**\
-`We dug deeper into lucrative transactions involving the Trump family’s cryptocurrency firm and the United Arab Emirates.`\
-https://nytimes.com/2025/09/15/briefing/trump-witkoff-emirates-us-china-tiktok-kirk-killing.html
-
-**Two Flyers prospects who saw their their stock rise during rookie camp**\
-`Things will get tougher when the Flyers open their NHL training camp on Thursday.`\
-https://nytimes.com/athletic/6632252/2025/09/15/flyers-prospects-nesbitt-barkey/
 
