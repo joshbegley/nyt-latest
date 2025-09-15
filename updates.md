@@ -1,3 +1,15 @@
+**The New York Times in Print for Monday, Sep. 15, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/15/todays-new-york-times
+
+**Here’s How Trump Can Prevent a War Over Taiwan**\
+`The current collision course was never inevitable, and Trump’s penchant for defying norms could help ensure peace.`\
+https://nytimes.com/2025/09/15/opinion/taiwan-china-war-trump.html
+
+**‘Black Rabbit’ and 6 More Things to Watch on TV This Week**\
+`A new series staring Jude Law and Jason Bateman premieres on Netflix, and “The Morning Show” returns with its fourth season.`\
+https://nytimes.com/2025/09/15/arts/television/things-to-watch-on-tv-this-week.html
+
 **What Malnutrition Has Done to Gaza’s Children**\
 `Even children who recover will carry the physical consequences for the rest of their lives.`\
 https://nytimes.com/2025/09/15/briefing/gaza-war-malnutrition.html
