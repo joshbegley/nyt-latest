@@ -1,3 +1,7 @@
+**What I learned about Ohio State from Ohio: How good can Julian Sayin, Bo Jackson be?**\
+`Ohio State accomplished almost everything it needed to in nonconference play. Here are final thoughts from Saturday's win over Ohio.`\
+https://nytimes.com/athletic/6630960/2025/09/15/ohio-state-julian-sayin-bo-jackson-ohio/
+
 **Trump’s D.C. Show of Force Diverts Agents and Prosecutors From Casework**\
 `While crime falls, the other investigative work of the F.B.I. is being delayed, frustrating law enforcement officials and leading some to quit.`\
 https://nytimes.com/2025/09/15/us/politics/trump-dc-crackdown-fbi-prosecutors.html
