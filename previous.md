@@ -1,40 +1,40 @@
-**What we learned in NFL Week 2: Chiefs face uphill climb, Bengals hold their breath**\
-`Kansas City is somewhere it's never been in the Patrick Mahomes era while Cincinnati awaits word of Joe Burrow's latest injury.`\
-https://nytimes.com/athletic/6629574/2025/09/15/nfl-week-2-takeaways-eagles-chiefs-joe-burrow/
+**The ‘Monday Night Football’ doubleheader is back: Why it happens, where to watch each game**\
+`It's our first back-to-back MNF of 2025. First, the Bucs visit the Texans, and then the Chargers and Raiders have a late kickoff.`\
+https://nytimes.com/athletic/6624105/2025/09/15/monday-night-football-abc-espn-schedule-how-to-watch/
 
-**What matters (and doesn't) from the Chiefs' 0-2 start: Sando's Pick Six**\
-`The Chiefs are 0-2 for the first time in the Mahomes era, and while the sky is not falling, their margin for error is growing thinner.`\
-https://nytimes.com/athletic/6627402/2025/09/15/chiefs-loss-patrick-mahomes-eagles-pick-six/
+**How much faith does Dolphins ownership have in Mike McDaniel? We might find out soon**\
+`McDaniel entered the season on shaky ground. Now 0-2, the Dolphins face the Bills before an 11-day break, which could be a pivot point.`\
+https://nytimes.com/athletic/6630454/2025/09/15/mike-mcdaniel-hot-seat-dolphins/
 
-**The New York Times International Edition in Print for Tuesday, Sep. 16, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/09/15/todays-new-york-times-international-edition
+**Are juiced footballs, under new NFL rules, already changing game strategy?**\
+`Kickers were already becoming more effective in recent seasons, but they've come out with a bang under new rules in 2025.`\
+https://nytimes.com/athletic/6630447/2025/09/15/nfl-footballs-kicking-brandon-aubrey/
 
-**Nvidia Broke Antitrust Law, China Says, as Tensions With U.S. Mount**\
-`Chinese regulators, on a day of U.S. trade talks, said that an acquisition by Nvidia had violated antimonopoly regulations.`\
-https://nytimes.com/2025/09/15/business/nvidia-china-antitrust.html
+**J.J. McCarthy and Vikings offense's process to be tested following Falcons loss**\
+`Expecting the first-year starter to take the reins and light up the NFL would have been foolish.`\
+https://nytimes.com/athletic/6630367/2025/09/15/j-j-mccarthy-vikings-lose-atlanta/
 
-**How to watch Dolphins at Bills: Time, TV, streaming**\
-`Find out how to watch the Miami Dolphins play the Buffalo Bills, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6630571/2025/09/15/dolphins-vs-bills-stream-how-to-watch-sept-18/
+**His father's murder drove Mike Evans to the NFL, a 'big brother' taught him to stay there**\
+`Evans is one 1,000-yard season away from breaking Jerry Rice's all-time record, but his consistent excellence was born out of agony.`\
+https://nytimes.com/athletic/6601613/2025/09/15/mike-evans-wide-receiver-tampa-bay/
 
-**How to watch Giants at Diamondbacks: Time, TV, streaming for September 15**\
-`Find out how to watch the San Francisco Giants play the Arizona Diamondbacks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6630554/2025/09/15/giants-vs-diamondbacks-stream-how-to-watch-sept-15/
+**Eagles defense dominates Super Bowl rematch as another rookie grabs first INT off Mahomes**\
+`The Eagles defense sank the Chiefs in the Super Bowl and did so again on Sunday with an updated cast.`\
+https://nytimes.com/athletic/6630019/2025/09/15/eagles-defense-superbowl-rematch-mahomes/
 
-**How to watch Rangers at Astros: Time, TV, streaming for September 15**\
-`Find out how to watch the Texas Rangers play the Houston Astros, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6630552/2025/09/15/rangers-vs-astros-stream-how-to-watch-sept-15/
+**Giants QB Russell Wilson doesn't care about silencing critics, but he did it anyway.**\
+`Wilson: "This game meant a lot to me. It was time to answer the call."`\
+https://nytimes.com/athletic/6629789/2025/09/15/ny-giants-russell-wilson-critics-jaxson-dart-cowboys/
 
-**How to watch Yankees at Twins: Time, TV, streaming for September 15**\
-`Find out how to watch the New York Yankees play the Minnesota Twins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6630550/2025/09/15/yankees-vs-twins-stream-how-to-watch-sept-15/
+**'Superman,' super arms keep Guardians chugging along as they chase a playoff spot**\
+`While winning nine of their last 10 games, the Guardians playoff odds are about double what they were a few days ago.`\
+https://nytimes.com/athletic/6629187/2025/09/15/superman-super-arms-keep-guardians-chugging-along-as-they-chase-a-playoff-spot/
 
-**How to watch Phillies at Dodgers: Time, TV, streaming for September 15**\
-`Find out how to watch the Philadelphia Phillies play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6630548/2025/09/15/phillies-vs-dodgers-stream-how-to-watch-sept-15/
+**LeBrun: Should the NHL expand its playoffs, add a play-in? Here's what players said**\
+`With expansion likely on the way, the percentage of teams making the playoffs would go down unless the NHL adds a play-in like the NBA's.`\
+https://nytimes.com/athletic/6623566/2025/09/15/nhl-playoffs-expansion-play-in/
 
-**How to watch Reds at Cardinals: Time, TV, streaming for September 15**\
-`Find out how to watch the Cincinnati Reds play the St. Louis Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6630541/2025/09/15/reds-vs-cardinals-stream-how-to-watch-sept-15/
+**Kalinauckas: F1 got strict about racing incidents. That's a problem if the title fight gets bitter**\
+`Recent F1 officiating calls have penalized drivers harshly in contentious racing incidents. That's a problem for any title contenders`\
+https://nytimes.com/athletic/6619038/2025/09/15/f1-formula-1-italian-gp-incident/
 
