@@ -1,3 +1,11 @@
+**Lamine Yamal’s Spain-Barcelona painkillers row — should we be worried?**\
+`An injury suffered on Spain duty last week meant the 18-year-old winger was ruled out for Barca`\
+https://nytimes.com/athletic/6629630/2025/09/15/lamine-yamal-spain-barcelona-injury/
+
+**Key Moments from the 2025 Emmy Awards**\
+`“The Studio,” “Adolescence” and “Severance” won big at the 77th Emmy Awards, one of television’s most prestigious honors.`\
+https://nytimes.com/video/arts/television/100000010398932/emmy-awards.html
+
 **Ricky Hatton, the brilliant everyman who conquered the boxing world**\
 `From his humble origins in a Manchester pub, the British boxer didn't just claim titles: he won hearts and minds`\
 https://nytimes.com/athletic/6629126/2025/09/15/ricky-hatton-boxing-death-legacy-career/

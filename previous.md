@@ -1,3 +1,11 @@
+**Lamine Yamal’s Spain-Barcelona painkillers row — should we be worried?**\
+`An injury suffered on Spain duty last week meant the 18-year-old winger was ruled out for Barca`\
+https://nytimes.com/athletic/6629630/2025/09/15/lamine-yamal-spain-barcelona-injury/
+
+**Key Moments from the 2025 Emmy Awards**\
+`“The Studio,” “Adolescence” and “Severance” won big at the 77th Emmy Awards, one of television’s most prestigious honors.`\
+https://nytimes.com/video/arts/television/100000010398932/emmy-awards.html
+
 **Ricky Hatton, the brilliant everyman who conquered the boxing world**\
 `From his humble origins in a Manchester pub, the British boxer didn't just claim titles: he won hearts and minds`\
 https://nytimes.com/athletic/6629126/2025/09/15/ricky-hatton-boxing-death-legacy-career/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/15/briefing/gaza-war-malnutrition.html
 **And that's why you don't take off Mohamed Salah**\
 `Liverpool have a squad blessed with match-winners, but Salah's importance remains significant`\
 https://nytimes.com/athletic/6628306/2025/09/15/mohamed-salah-liverpool/
-
-**Champions League guide: Key storylines and how to watch**\
-`From the potential 'giantkillers' to the key fixtures, this is all you need to know about the opening week of the Champions League`\
-https://nytimes.com/athletic/6619375/2025/09/15/champions-league-guide-how-to-watch/
-
-**Creativity? Check. Goalscorers? Everton look to be lacking in that department**\
-`David Moyes' side are brimming with fresh creativity but with just Beto and Thierno Barry to call upon, they feel underpowered up front`\
-https://nytimes.com/athletic/6626434/2025/09/15/everton-goals-strikers-beto-barry/
 
