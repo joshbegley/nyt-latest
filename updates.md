@@ -1,3 +1,7 @@
+**What Does ‘Real Unity’ Mean to the White House?**\
+`After Charlie Kirk’s death, the Trump administration has identified a bigger culprit: leftists bent on violence.`\
+https://nytimes.com/2025/09/15/us/politics/jd-vance-charlie-kirk-trump.html
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>Hopefully everyone&#8217;s managed to hold on to their jobs longer than Deshaun Foster and Brent Pry.</p>
 <p>Leave your questions here. Please include your city.</p>
