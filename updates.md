@@ -1,3 +1,11 @@
+**Brighton CEO Paul Barber joins board of Melbourne Victory**\
+`Barber will represent Brighton's owner-chairman Tony Bloom, who bought a 19.1 per cent stake in the Australian A-League club in March.`\
+https://nytimes.com/athletic/6630403/2025/09/15/brighton-paul-barber-melbourne-victory/
+
+**Lamine Yamal’s Spain-Barcelona painkillers row – should we be worried?**\
+`An injury suffered on Spain duty last week meant the 18-year-old winger was ruled out for Barca`\
+https://nytimes.com/athletic/6629630/2025/09/15/lamine-yamal-spain-barcelona-injury/
+
 **College Disorientation**\
 `Things are different on college campuses this year.`\
 https://nytimes.com/2025/09/15/podcasts/college-disorientation-this-american-life-nyt-audio.html
