@@ -1,3 +1,11 @@
+**Ten biggest Rangers questions for training camp: Zibanejad's position, Sullivan's culture**\
+`Will Mika Zibanejad stay at right wing? Which young winger will step up? And how about the Rangers fixing their defense?`\
+https://nytimes.com/athletic/6623293/2025/09/15/new-york-rangers-training-camp-questions/
+
+**The rising cost of WNBA fandom: With growing popularity comes pricier tickets**\
+`Fans wonder if they'll get priced out and how the culture of game atmospheres might change.`\
+https://nytimes.com/athletic/6629443/2025/09/15/wnba-fans-ticket-prices/
+
 **Connor Hellebuyck on a dream season, a nightmare ending and moving forward in 2025-26**\
 `The Jets star won the Vezina and the Hart last season and could start at the Olympics, but his focus right now is closer to home.`\
 https://nytimes.com/athletic/6628342/2025/09/15/connor-hellebuyck-nhl-vezina-hart-olympics-playoffs/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6630019/2025/09/15/eagles-defense-superbowl-rematch
 **Giants QB Russell Wilson doesn't care about silencing critics, but he did it anyway.**\
 `Wilson: "This game meant a lot to me. It was time to answer the call."`\
 https://nytimes.com/athletic/6629789/2025/09/15/ny-giants-russell-wilson-critics-jaxson-dart-cowboys/
-
-**'Superman,' super arms keep Guardians chugging along as they chase a playoff spot**\
-`While winning nine of their last 10 games, the Guardians playoff odds are about double what they were a few days ago.`\
-https://nytimes.com/athletic/6629187/2025/09/15/superman-super-arms-keep-guardians-chugging-along-as-they-chase-a-playoff-spot/
-
-**LeBrun: Should the NHL expand its playoffs, add a play-in? Here's what players said**\
-`With expansion likely on the way, the percentage of teams making the playoffs would go down unless the NHL adds a play-in like the NBA's.`\
-https://nytimes.com/athletic/6623566/2025/09/15/nhl-playoffs-expansion-play-in/
 
