@@ -1,3 +1,19 @@
+**Tom Brady among big NFL names to play in flag football event in Saudi Arabia**\
+`Seven-time Super Bowl champ to participate in exhibition, which will be played under Olympic flag football rules.`\
+https://nytimes.com/athletic/6632497/2025/09/15/tom-brady-fanatics-flag-football-saudi-arabia/
+
+**Panthers' OL takes 2 big hits, just in time for the Falcons and their revived pass rush**\
+`Robert Hunt and Austin Corbett were placed on IR after the Panthers dropped to 0-2 with the loss to the Cardinals.`\
+https://nytimes.com/athletic/6632443/2025/09/15/carolina-panthers-offensive-line-injuries/
+
+**John Penton, ‘Godfather’ of Off-Road Racing, Dies at 100**\
+`He set a transcontinental motorcycling speed record, and then helped to revolutionize off-road riding with his own brand of nimble bikes.`\
+https://nytimes.com/2025/09/15/sports/john-penton-dead.html
+
+**Canadiens' rebuild might be over, but an incomplete construction project remains**\
+`Jeff Gorton and Kent Hughes are excited for what the Canadiens have become but left a clear sense there is more change to come.`\
+https://nytimes.com/athletic/6632490/2025/09/15/canadiens-hughes-gorton-roster-construction/
+
 **The White House Vowed a Vast Crackdown on Liberal Groups**\
 `Also, Trump said U.S. military struck another Venezuelan boat. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/09/15/briefing/white-house-charlie-kirk-tiktok-sale.html
