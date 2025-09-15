@@ -1,3 +1,15 @@
+**Brandon Aubrey's leg, Dak Prescott's arm give Brian Schottenheimer first win**\
+`Aubrey's 64-yarder got the game into overtime and his 46-yarder won it as the Cowboys overcame Russell Wilson's 450-yard passing day.`\
+https://nytimes.com/athletic/6629616/2025/09/14/cowboys-beat-giants-brandon-aubrey-dak-prescott/
+
+**Giants waste a vintage Russell Wilson game, drop heartbreaker in Dallas: 'This one hurts'**\
+`Even though Sunday’s rollercoaster was a more entertaining ride than the loss to Washington in Week 1, it ended with a familiar crash. `\
+https://nytimes.com/athletic/6629684/2025/09/14/ny-giants-cowboys-russell-wilson-takeaways/
+
+**Two Steelers mistakes cost them dearly, but Pittsburgh's issues run much deeper**\
+`The Steelers' issues go beyond a botched kick return and fluky interception.`\
+https://nytimes.com/athletic/6629623/2025/09/14/pittsburgh-steelers-loss-seattle-seahawks/
+
 **What to know about Joe Burrow, turf toe and the Bengals' path forward**\
 `Jake Browning stepped in to lead a dramatic win over the Jaguars on Sunday, and will be called on some more in the coming weeks.`\
 https://nytimes.com/athletic/6629554/2025/09/14/joe-burrow-turf-toe-bengals/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6629320/2025/09/14/bears-ben-johnson-embarrassed-li
 **Josh Allen is too good and too tough not to win a Super Bowl**\
 `After Sunday's game, Allen looked like a club fighter who had picked the wrong opponent for a payday. You should have seen the other guy.`\
 https://nytimes.com/athletic/6629531/2025/09/14/bills-jets-josh-allen-super-bowl-column/
-
-**Britt Lower Wins Best Lead Actress in a Drama for ‘Severance’**\
-`Lower won for her dual role as Helly R. and Helena in Season 2 of the surreal workplace drama.`\
-https://nytimes.com/2025/09/14/arts/television/britt-lower-emmy-severance.html
-
-**No Corrections: Sept. 15, 2025**\
-`No corrections appeared in print on Monday, Sept. 15, 2025.`\
-https://nytimes.com/2025/09/14/pageoneplus/no-corrections-sept-15-2025.html
-
-**Mac Jones overcomes nerves, rewards 49ers' confidence and buys Brock Purdy time**\
-`Jones affirmed the 49ers' faith, delivering in a pass-heavy game plan and showing why the team won't rush Purdy back into action.`\
-https://nytimes.com/athletic/6629351/2025/09/14/mac-jones-49ers-saints-brock-purdy/
 
