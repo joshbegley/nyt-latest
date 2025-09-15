@@ -1,3 +1,7 @@
+**Trump World’s Deals With the U.A.E.**\
+`We dug deeper into lucrative transactions involving the Trump family’s cryptocurrency firm and the United Arab Emirates.`\
+https://nytimes.com/2025/09/15/briefing/trump-witkoff-emirates-us-china-tiktok-kirk-killing.html
+
 **Two Flyers prospects who saw their their stock rise during rookie camp**\
 `Things will get tougher when the Flyers open their NHL training camp on Thursday.`\
 https://nytimes.com/athletic/6632252/2025/09/15/flyers-prospects-nesbitt-barkey/
