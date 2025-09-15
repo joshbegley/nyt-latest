@@ -1,3 +1,7 @@
+**How to Use The Learning Network**\
+`Since 1998, The Learning Network has been helping people teach and learn with The New York Times. Here’s how to use our features.`\
+https://nytimes.com/2025/09/15/learning/how-to-use-the-learning-network.html
+
 **Cuomo, Staunch Supporter of Israel, Says ‘Horrific’ Gaza War Must End**\
 `The remarks were a departure for former Gov. Andrew M. Cuomo, who trails Assemblyman Zohran Mamdani in the New York City mayor’s race.`\
 https://nytimes.com/2025/09/15/nyregion/andrew-cuomo-israel-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/15/dining/samin-nosrat-dinner-party-recipes.html
 **Radim Mrtka's physicality and 9 other thoughts from Sabres rookie camp**\
 `This week was a strong first step for Mrtka, and he showed why he might have more upside than any prospect in Buffalo’s pool.`\
 https://nytimes.com/athletic/6632040/2025/09/15/sabres-prospect-rookies-radim-mrtka/
-
-**Young People Suing Trump Over Climate Have Their Day in Federal Court**\
-`They claim Trump’s executive orders are unconstitutional. The government says their lawsuit should be thrown out. The two sides are set to clash this week in Montana.`\
-https://nytimes.com/2025/09/15/climate/montana-lawsuit-trump-executive-orders-energy.html
 
