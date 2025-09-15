@@ -6,7 +6,7 @@ https://nytimes.com/2025/09/15/business/media/fox-host-homeless-comment-brian-ki
 `Adam Wharton, Eddie Nketiah and Cheick Doucoure will not be available for the Carabao Cup tie`\
 https://nytimes.com/athletic/6631056/2025/09/15/crystal-palace-team-news-millwall/
 
-**The Wealth Tax Plan That’s Roiling New York and Paris**\
+**The Wealth Tax Plans That Are Roiling New York and Paris**\
 `Endorsed by Zohran Mamdani and criticized by business leaders, the idea involves hitting millionaires with a stiff levy.`\
 https://nytimes.com/2025/09/15/business/dealbook/wealth-tax-new-york-mamdani.html
 
