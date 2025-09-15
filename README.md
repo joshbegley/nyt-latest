@@ -1,3 +1,11 @@
+**15 Unforgettable Looks at the Emmy Awards**\
+`Power suits, pixie cuts, bedazzled bodies and more.`\
+https://nytimes.com/2025/09/14/style/emmys-fashion-red-carpet-looks.html
+
+**The Cardinals are 2-0, so why does it feel so uneasy after their win over Carolina?**\
+`For fans with mixed emotions after this wobbly 2-0 start, don't fret. You're not alone. The Cardinals have the same complex feelings.`\
+https://nytimes.com/athletic/6629796/2025/09/14/arizona-cardinals-beat-carolina-panthers-2-0/
+
 **‘The Pitt’ Wins the Emmy for Best Drama**\
 `The HBO Max hospital drama, starring Noah Wyle, had 13 nominations coming into Sunday. Noah Wyle had already won for best actor.`\
 https://nytimes.com/2025/09/14/arts/television/the-pitt-best-drama-emmy.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/14/arts/television/stephen-colbert-the-late-show-emm
 **Broncos' blunders raise concern in loss to Colts: 'We gave that game away today'**\
 `The Broncos were 1-6 in one-score games last season, and in their first tight battle of 2025, they floundered in the deciding moments.`\
 https://nytimes.com/athletic/6629236/2025/09/14/broncos-loss-mistakes-colts-sean-payton/
-
-**Noah Lyles, the changing of 100-meter guard — and the difficulty of staying on top**\
-`Noah Lyles reached the mountaintop in the 100-meter. On Sunday, Jamaica's Oblique Seville took his spot. What comes next for the American?`\
-https://nytimes.com/athletic/6629097/2025/09/14/noah-lyles-100-meter-world-championships-oblique-seville/
-
-**Matthew Stafford, the Rams' commander in chief, was as cool as can be vs. Titans**\
-`Stafford finished 23-of-33 for 298 yards, two touchdowns and an interception and turned a three-point halftime deficit into a 33-19 victory.`\
-https://nytimes.com/athletic/6629293/2025/09/14/matthew-stafford-rams-titans-week-2/
 

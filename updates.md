@@ -1,3 +1,7 @@
+**‘The Pitt’ Wins the Emmy for Best Drama**\
+`The HBO Max hospital drama, starring Noah Wyle, had 13 nominations coming into Sunday. Noah Wyle had already won for best actor.`\
+https://nytimes.com/2025/09/14/arts/television/the-pitt-best-drama-emmy.html
+
 **Noah Wyle Finally Wins an Emmy**\
 `After five nominations and no wins for “E.R.,” Wyle was named best actor in a drama for another hospital show, “The Pitt.”`\
 https://nytimes.com/2025/09/14/arts/television/noah-wyle-emmy-the-pitt.html
