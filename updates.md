@@ -1,3 +1,11 @@
+**Samin Nosrat Gathers Friends for Dinner Every Week. Here’s How You Can, Too.**\
+`For the chef and cookbook author, seeing friends doesn’t have to be complicated. It just has to happen. These recipes can help.`\
+https://nytimes.com/2025/09/15/dining/samin-nosrat-dinner-party-recipes.html
+
+**Radim Mrtka's physicality and 9 other thoughts from Sabres rookie camp**\
+`This week was a strong first step for Mrtka, and he showed why he might have more upside than any prospect in Buffalo’s pool.`\
+https://nytimes.com/athletic/6632040/2025/09/15/sabres-prospect-rookies-radim-mrtka/
+
 **Young People Suing Trump Over Climate Have Their Day in Federal Court**\
 `They claim Trump’s executive orders are unconstitutional. The government says their lawsuit should be thrown out. The two sides are set to clash this week in Montana.`\
 https://nytimes.com/2025/09/15/climate/montana-lawsuit-trump-executive-orders-energy.html

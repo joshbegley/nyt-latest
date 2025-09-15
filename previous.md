@@ -1,3 +1,11 @@
+**Samin Nosrat Gathers Friends for Dinner Every Week. Here’s How You Can, Too.**\
+`For the chef and cookbook author, seeing friends doesn’t have to be complicated. It just has to happen. These recipes can help.`\
+https://nytimes.com/2025/09/15/dining/samin-nosrat-dinner-party-recipes.html
+
+**Radim Mrtka's physicality and 9 other thoughts from Sabres rookie camp**\
+`This week was a strong first step for Mrtka, and he showed why he might have more upside than any prospect in Buffalo’s pool.`\
+https://nytimes.com/athletic/6632040/2025/09/15/sabres-prospect-rookies-radim-mrtka/
+
 **Young People Suing Trump Over Climate Have Their Day in Federal Court**\
 `They claim Trump’s executive orders are unconstitutional. The government says their lawsuit should be thrown out. The two sides are set to clash this week in Montana.`\
 https://nytimes.com/2025/09/15/climate/montana-lawsuit-trump-executive-orders-energy.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6632161/2025/09/15/auburn-vs-oklahoma-stream-how-to
 **How to watch Syracuse at Clemson: Time, TV, streaming**\
 `Find out how to watch the Syracuse Orange play the Clemson Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6632159/2025/09/15/syracuse-vs-clemson-stream-how-to-watch-sept-20/
-
-**How to watch Arkansas at Memphis: Time, TV, streaming**\
-`Find out how to watch the Arkansas Razorbacks play the Memphis Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6632157/2025/09/15/arkansas-vs-memphis-stream-how-to-watch-sept-20/
-
-**How to watch Michigan at Nebraska: Time, TV, streaming**\
-`Find out how to watch the Michigan Wolverines play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6632155/2025/09/15/michigan-vs-nebraska-stream-how-to-watch-sept-20/
 
