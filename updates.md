@@ -1,3 +1,19 @@
+**What Malnutrition Has Done to Gaza’s Children**\
+`Even children who recover will carry the physical consequences for the rest of their lives.`\
+https://nytimes.com/2025/09/15/briefing/gaza-war-malnutrition.html
+
+**And that's why you don't take off Mohamed Salah**\
+`Liverpool have a squad blessed with match-winners, but Salah's importance remains significant`\
+https://nytimes.com/athletic/6628306/2025/09/15/mohamed-salah-liverpool/
+
+**Champions League guide: Key storylines and how to watch**\
+`From the potential 'giantkillers' to the key fixtures, this is all you need to know about the opening week of the Champions League`\
+https://nytimes.com/athletic/6619375/2025/09/15/champions-league-guide-how-to-watch/
+
+**Creativity? Check. Goalscorers? Everton look to be lacking in that department**\
+`David Moyes' side are brimming with fresh creativity but with just Beto and Thierno Barry to call upon, they feel underpowered up front`\
+https://nytimes.com/athletic/6626434/2025/09/15/everton-goals-strikers-beto-barry/
+
 **Pino and Uche may take time to adapt at Palace. But Glasner knows patience can be a virtue**\
 `Just as it took time for Sarr and Kamada to adapt to Glasner’s system, it is likely to be the same for Pino and Uche`\
 https://nytimes.com/athletic/6622776/2025/09/15/yeremy-pino-christantus-uche-oliver-glasner/
