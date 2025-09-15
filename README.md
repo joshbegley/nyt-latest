@@ -1,40 +1,40 @@
+**Vikings vs. Falcons: Atlanta's defense, kicker shine in win over Minnesota**\
+`Parker Romo made all five of his field-goal attempts after the Falcons signed him five days ago.`\
+https://nytimes.com/athletic/6629610/2025/09/15/vikings-falcons-score-results-takeaways/
+
+**Starving Children Eat Animal Feed in Besieged Sudanese City**\
+`At least 260,000 civilians trapped in El Fasher face a dire choice: risk being starved or bombed if they stay, and raped or killed if they flee.`\
+https://nytimes.com/2025/09/15/world/africa/sudan-starving-children.html
+
+**Quote of the Day: Funicular Tragedy Rattles Lisbon’s Sense of Itself.**\
+`Quotation of the Day for Monday, September 15, 2025.`\
+https://nytimes.com/2025/09/15/pageoneplus/quote-of-the-day-funicular-tragedy-rattles-lisbons-sense-of-itself.html
+
+**In Philadelphia, a Stirring New Stage for Alexander Calder**\
+`What can a museum experience be now? Meet Calder Gardens. A leading architect, garden designer and philanthropist build a thrillingly eccentric complex for the inventor of the mobile.`\
+https://nytimes.com/2025/09/15/arts/design/alexander-calder-philadelphia-calder-gardens.html
+
+**The World Wants More Vaccines. An Anti-Vaccine America Isn’t Helping.**\
+`Most governments are trying to fight vaccine hesitancy with science and investment, while the United States heads in the opposite direction.`\
+https://nytimes.com/2025/09/15/world/asia/anti-vaccine-america-world-covid.html
+
+**Alex Noren's Ryder Cup run came just too late. But the vice-captain can still play a part**\
+`The Swede is in the form of his life. But after being named Luke Donald's fifth and final vice-captain, he won't play at Bethpage Black`\
+https://nytimes.com/athletic/6628253/2025/09/15/alex-noren-europe-ryder-cup-2025-bethpage-black/
+
+**Tariffs Are Uniting Two Whiskey Heavyweights: Scotch and Bourbon**\
+`Whiskey distillers say their industry is so intertwined that U.S. tariffs will hurt producers on both sides of the Atlantic.`\
+https://nytimes.com/2025/09/15/business/trump-tariffs-scotch-whisky-bourbon.html
+
+**Did Britain Win the Trade War? Why It’s Tough to Declare a Victor.**\
+`Popular products from Britain and the European Union show how uneven and unpredictable U.S. tariffs have become, even when part of trade deals.`\
+https://nytimes.com/2025/09/15/business/economy/britain-european-union-tariffs-winner.html
+
+**Connections: Sports Edition Coach: Hints for Sept. 15, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6629731/2025/09/15/connections-sports-edition-hints-for-sept-15-2025/
+
 **Calls for a ‘Free Palestine’ in an Emmys Otherwise Light on Politics**\
 `A few nominees and speakers addressed political issues such as the Israel-Gaza war and the defunding of U.S. public broadcasting.`\
 https://nytimes.com/2025/09/14/arts/television/emmys-israel-gaza.html
-
-**T's Sept. 28 Design & Luxury Issue**\
-``\
-https://nytimes.com/issue/t-magazine/2025/09/14/ts-sept-28-design-luxury-issue-2025
-
-**15 Unforgettable Looks at the Emmy Awards**\
-`Power suits, pixie cuts, bedazzled bodies and more.`\
-https://nytimes.com/2025/09/14/style/emmys-fashion-red-carpet-looks.html
-
-**The Cardinals are 2-0, so why does it feel so uneasy after their win over Carolina?**\
-`For fans with mixed emotions after this wobbly 2-0 start, don't fret. You're not alone. The Cardinals have the same complex feelings.`\
-https://nytimes.com/athletic/6629796/2025/09/14/arizona-cardinals-beat-carolina-panthers-2-0/
-
-**‘The Pitt’ Wins the Emmy for Best Drama**\
-`The HBO Max hospital drama, starring Noah Wyle, had 13 nominations coming into Sunday. Noah Wyle had already won for best actor.`\
-https://nytimes.com/2025/09/14/arts/television/the-pitt-best-drama-emmy.html
-
-**Noah Wyle Finally Wins an Emmy**\
-`After five nominations and no wins for “E.R.,” Wyle was named best actor in a drama for another hospital show, “The Pitt.”`\
-https://nytimes.com/2025/09/14/arts/television/noah-wyle-emmy-the-pitt.html
-
-**Why the Giants will (or won't) claim the final NL wild card spot**\
-`It's bad punditry to assert whether the Giants will or won't claim the final wild card, but there's always value in asking why.`\
-https://nytimes.com/athletic/6629818/2025/09/14/why-giants-final-nl-wild-card-spot/
-
-**What the Chiefs said about Travis Kelce's drop. And why there's still hope at 0-2**\
-`Defensive end George Karlaftis had Kelce's back after the game and said this team will "find a way to find a way."`\
-https://nytimes.com/athletic/6629560/2025/09/14/chiefs-travis-kelce-drop-eagles/
-
-**‘Adolescence’ Dominates the Limited Series Category**\
-`The acclaimed Netflix series won the Emmy for limited series as well as awards for acting, writing, directing and more.`\
-https://nytimes.com/2025/09/14/arts/television/adolescence-emmys-stephen-graham-owen-cooper.html
-
-**Panthers, Bryce Young rally from bad start, but don't make plays with game on the line**\
-`Making matters worse, the Panthers might have lost starting offensive linemen Robert Hunt and Austin Corbett for an extended time.`\
-https://nytimes.com/athletic/6629877/2025/09/14/panthers-lose-bryce-young-rally-cardinals/
 
