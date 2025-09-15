@@ -1,3 +1,7 @@
+**Seth Rogen Wins His First Emmy**\
+`Rogen won best actor in a comedy for “The Studio.”`\
+https://nytimes.com/2025/09/14/arts/television/seth-rogen-first-emmy-the-studio.html
+
 **Browns' embarrassing offensive performance vs. Ravens is nothing new**\
 `Unless Cleveland's defense can deliver a series of superhuman efforts, it’s hard to see this group keeping up this season. `\
 https://nytimes.com/athletic/6629347/2025/09/14/browns-offense-ravens-week-2/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6629300/2025/09/14/bills-josh-allen-nose-injury-win
 **Nonprofit Gets Two Paintings Stolen by Nazis Pulled From Auction**\
 `The paintings were among more than 300 works seized during World War II from Adolphe Schloss, a German Jew who lived in France and amassed a collection of old master paintings.`\
 https://nytimes.com/2025/09/14/arts/nazi-painting-ohio-auction.html
-
-**Eagles vs. Chiefs: Top takeaways as Philadelphia drops Kansas City to 0-2**\
-`Eagles beat Chiefs in Super Bowl rematch that turns into a defensive struggle.`\
-https://nytimes.com/athletic/6629058/2025/09/14/eagles-chiefs-super-bowl-rematch-score-result-takeaways/
 
