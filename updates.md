@@ -1,3 +1,19 @@
+**Arab Leaders Meet to Weigh Response to Israel’s Attack in Qatar**\
+`At a summit in the Qatari capital, Doha, participants are deciding whether to take tangible actions against Israel following last week’s strike.`\
+https://nytimes.com/2025/09/15/world/middleeast/qatar-arab-leaders-israel.html
+
+**Easy, Protein-Packed Recipes for Back-to-School Lunches**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/protein-lunches
+
+**The Windup: Big Dumper ties Mickey Mantle**\
+`The Windup is The Athletic's free MLB newsletter.`\
+https://nytimes.com/athletic/6631081/2025/09/15/cal-raleigh-home-runs-mickey-mantle-the-windup/
+
+**U.S.-British Deal Would Speed Nuclear Plant Construction**\
+`An agreement between London and Washington is expected to be signed during President Trump’s state visit to England this week.`\
+https://nytimes.com/2025/09/15/business/us-britain-nuclear-deal.html
+
 **Giants to promote top prospect Bryce Eldridge in the thick of NL wild-card race: Report**\
 `Eldridge has been moved aggressively through the Giants’ system, and the Giants are looking for help chasing a playoff berth.`\
 https://nytimes.com/athletic/6631008/2025/09/15/sf-giants-bryce-eldridge-mlb-promotion/
