@@ -1,3 +1,11 @@
+**After trying week, Ravens' defense takes its frustration out on Joe Flacco and Browns**\
+`After blowing a 15-point fourth-quarter lead in Week 1, the Baltimore defense was dominant in smothering Flacco and Cleveland's offense.`\
+https://nytimes.com/athletic/6629377/2025/09/14/ravens-defense-browns-joe-flacco/
+
+**Mac Jones overcomes nerves, rewards 49ers' confidence and buys Brock Purdy time**\
+`Jones affirmed the 49ers' faith, delivering in a pass-heavy game plan and showing why the team won't rush Purdy back into action.`\
+https://nytimes.com/athletic/6629351/2025/09/14/mac-jones-49ers-saints-brock-purdy/
+
 **Ben Johnson's homecoming spoiled by Bears' ugly loss to Lions: 'It’s a kick in the teeth'**\
 `For Bears fans, it’s understandable to watch Sunday's loss and fear this was — and is — a continuation of last season’s humiliation.`\
 https://nytimes.com/athletic/6629320/2025/09/14/bears-ben-johnson-embarrassed-lions/

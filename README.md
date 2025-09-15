@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6629320/2025/09/14/bears-ben-johnson-embarrassed-li
 `After Sunday's game, Allen looked like a club fighter who had picked the wrong opponent for a payday. You should have seen the other guy.`\
 https://nytimes.com/athletic/6629531/2025/09/14/bills-jets-josh-allen-super-bowl-column/
 
-**Britt Lower Wins Best Lead Actress for ‘Severance’**\
+**Britt Lower Wins Best Lead Actress in a Drama for ‘Severance’**\
 `Lower won for her dual role as Helly R. and Helena in Season 2 of the surreal workplace drama.`\
 https://nytimes.com/2025/09/14/arts/television/britt-lower-emmy-severance.html
 
