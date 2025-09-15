@@ -1,3 +1,11 @@
+**‘The Pitt’ Defied Odds by Going Back to the Future**\
+`On Sunday, Emmy voters made a loud statement that there is an appetite for the kind of shows that used to dominate TV.`\
+https://nytimes.com/2025/09/15/arts/television/the-pitt-emmy-wins-network-shows.html
+
+**2025 Heisman Trophy odds: Manning, Lagway among the early favorites plummeting**\
+`With several preseason favorites struggling, Miami's Carson Beck has emerged as the new Heisman Trophy favorite.`\
+https://nytimes.com/athletic/6629408/2025/09/15/heisman-trophy-odds-manning-lagway-fall-beck-favorite/
+
 **What we're seeing from Canucks prospects: 8 observations from games vs. Kraken**\
 `The Athletic was on the ground in Washington over the weekend to watch the Canucks' prospects.`\
 https://nytimes.com/athletic/6630295/2025/09/15/canucks-prospects-kraken-2025-games/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/15/business/media/jorge-ramos-daughter-podcast.html
 **emmys-best-worst-moment**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/emmys-best-worst-moment
-
-**Untouchable Mondo Duplantis breaks pole vault world record again, wins world title**\
-`Duplantis cruised to his third straight world championship gold in the pole vault, then capped the night with another new world record.`\
-https://nytimes.com/athletic/6627999/2025/09/15/mondo-duplantis-pole-vault-world-record-championships/
-
-**Fantasy football Week 2 takeaways: Joe Burrow injury fallout, Javonte Williams looks elite and more**\
-`Among his Week 2 takes, Michael Salfino says if you roster Ja'Marr Chase or Tee Higgins, Jake Browning should be a priority add this week.`\
-https://nytimes.com/athletic/6629858/2025/09/15/fantasy-football-week-2-takeaways-joe-burrow-injury-fallout-javonte-williams-looks-elite-and-more/
 

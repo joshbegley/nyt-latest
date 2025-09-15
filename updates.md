@@ -1,3 +1,11 @@
+**What we're seeing from Canucks prospects: 8 observations from games vs. Kraken**\
+`The Athletic was on the ground in Washington over the weekend to watch the Canucks' prospects.`\
+https://nytimes.com/athletic/6630295/2025/09/15/canucks-prospects-kraken-2025-games/
+
+**A U.S.-China Deal to Avert a TikTok Ban May be Close**\
+`Trump administration officials say they have the framework of a deal to save the popular video app. It had until Sept. 17 to be sold by its Chinese owner, ByteDance, or face a ban in the United States.`\
+https://nytimes.com/2025/09/15/us/politics/tiktok-ban-us-china-deal.html
+
 **The Wealth Tax Plans That Are Roiling New York and Paris**\
 `Endorsed by Zohran Mamdani and criticized by business leaders, the idea involves hitting millionaires with a stiff levy.`\
 https://nytimes.com/2025/09/15/business/dealbook/wealth-tax-new-york-mamdani.html
