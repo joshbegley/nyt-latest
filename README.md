@@ -1,3 +1,11 @@
+**How to watch Athletics at Red Sox: Time, TV, streaming for September 16**\
+`Find out how to watch the Athletics play the Boston Red Sox, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6632673/2025/09/15/athletics-vs-red-sox-stream-how-to-watch-sept-16/
+
+**How to watch Guardians at Tigers: Time, TV, streaming for September 16**\
+`Find out how to watch the Cleveland Guardians play the Detroit Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6632669/2025/09/15/guardians-vs-tigers-stream-how-to-watch-sept-16/
+
 **New Crypto Super PAC Garners $100 Million to Help Push Industry Agenda**\
 `The effort, called the Fellowship PAC, is the crypto industry’s latest move to help elect legislators that will force through its interests in Washington.`\
 https://nytimes.com/2025/09/15/technology/crypto-fellowship-super-pac-100-million-budget.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6632490/2025/09/15/canadiens-hughes-gorton-roster-c
 **The White House Vowed a Vast Crackdown on Liberal Groups**\
 `Also, Trump said U.S. military struck another Venezuelan boat. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/09/15/briefing/white-house-charlie-kirk-tiktok-sale.html
-
-**Kennedy Adds Five New Members to Vaccine Committee**\
-`The committee, whose members were appointed by the health secretary and include vaccine skeptics, will meet on Thursday to review recommendations for several shots.`\
-https://nytimes.com/2025/09/15/health/rfk-jr-hhs-vaccine-committee-members.html
-
-**U.S. Strikes a 2nd Venezuela Boat, Killing 3, Trump Says**\
-`The president said the vessel was heading to the United States, but he did not offer details about its location. Legal specialists condemned the action as illegal.`\
-https://nytimes.com/2025/09/15/us/politics/trump-venezuela-drug-boat-strike.html
 
