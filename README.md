@@ -1,3 +1,7 @@
+**After trying week, Ravens' defense takes its frustration out on Joe Flacco and Browns**\
+`After blowing a 15-point fourth-quarter lead in Week 1, the Baltimore defense was dominant in smothering Flacco and Cleveland's offense.`\
+https://nytimes.com/athletic/6629377/2025/09/14/ravens-defense-browns-joe-flacco/
+
 **Ben Johnson's homecoming spoiled by Bears' ugly loss to Lions: 'It’s a kick in the teeth'**\
 `For Bears fans, it’s understandable to watch Sunday's loss and fear this was — and is — a continuation of last season’s humiliation.`\
 https://nytimes.com/athletic/6629320/2025/09/14/bears-ben-johnson-embarrassed-lions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6628202/2025/09/14/shedeur-sanders-ravens-browns-dr
 **Phillies must wait to clinch NL East, but after strong week, they head west seeking more**\
 `The Phillies are five games up on the Dodgers for the NL's second seed, and they are two games behind the Brewers for the first.`\
 https://nytimes.com/athletic/6629228/2025/09/14/phillies-nl-east-playoff-seeding/
-
-**A blowout loss to the Bills, and the official end of Aaron Glenn's honeymoon phase**\
-`After an encouraging opener, the Jets came crashing down in a Week 2 loss.`\
-https://nytimes.com/athletic/6629379/2025/09/14/aaron-glenn-new-york-jets-buffalo-bills/
 
