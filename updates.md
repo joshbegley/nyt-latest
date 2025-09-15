@@ -1,3 +1,7 @@
+**Connor Hellebuyck on a dream season, a nightmare ending and moving forward in 2025-26**\
+`The Jets star won the Vezina and the Hart last season and could start at the Olympics, but his focus right now is closer to home.`\
+https://nytimes.com/athletic/6628342/2025/09/15/connor-hellebuyck-nhl-vezina-hart-olympics-playoffs/
+
 **The ‘Monday Night Football’ doubleheader is back: Why it happens, where to watch each game**\
 `It's our first back-to-back MNF of 2025. First, the Bucs visit the Texans, and then the Chargers and Raiders have a late kickoff.`\
 https://nytimes.com/athletic/6624105/2025/09/15/monday-night-football-abc-espn-schedule-how-to-watch/
