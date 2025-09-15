@@ -1,3 +1,7 @@
+**49ers minutia minute: Rookies Mykel Williams, Connor Colby jumped out vs. Saints**\
+`Deep-ball Ricky? Pearsall is averaging more than 20 yards per catch through two games, one of the best rates in the NFL so far.`\
+https://nytimes.com/athletic/6632108/2025/09/15/49ers-saints-mykel-williams-rookies/
+
 **Samin Nosrat Gathers Friends for Dinner Every Week. Here’s How You Can, Too.**\
 `For the chef and cookbook author, seeing friends doesn’t have to be complicated. It just has to happen. These recipes can help.`\
 https://nytimes.com/2025/09/15/dining/samin-nosrat-dinner-party-recipes.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6632163/2025/09/15/tulane-vs-ole-miss-stream-how-to
 **How to watch Auburn at Oklahoma: Time, TV, streaming**\
 `Find out how to watch the Auburn Tigers play the Oklahoma Sooners, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6632161/2025/09/15/auburn-vs-oklahoma-stream-how-to-watch-sept-20/
-
-**How to watch Syracuse at Clemson: Time, TV, streaming**\
-`Find out how to watch the Syracuse Orange play the Clemson Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6632159/2025/09/15/syracuse-vs-clemson-stream-how-to-watch-sept-20/
 
