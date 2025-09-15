@@ -1,3 +1,11 @@
+**What we learned in NFL Week 2: Chiefs face uphill climb, Bengals hold their breath**\
+`Kansas City is somewhere it's never been in the Patrick Mahomes era while Cincinnati awaits word of Joe Burrow's latest injury.`\
+https://nytimes.com/athletic/6629574/2025/09/15/nfl-week-2-takeaways-eagles-chiefs-joe-burrow/
+
+**What matters (and doesn't) from the Chiefs' 0-2 start: Sando's Pick Six**\
+`The Chiefs are 0-2 for the first time in the Mahomes era, and while the sky is not falling, their margin for error is growing thinner.`\
+https://nytimes.com/athletic/6627402/2025/09/15/chiefs-loss-patrick-mahomes-eagles-pick-six/
+
 **The New York Times International Edition in Print for Tuesday, Sep. 16, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/09/15/todays-new-york-times-international-edition
