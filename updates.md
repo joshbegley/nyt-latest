@@ -1,3 +1,15 @@
+**With a Snub on a Cricket Field, India-Pakistan Tensions Hit New Pitch**\
+`The Indian players refused to shake hands with their Pakistani opponents at the first meeting of the sides since the two countries exchanged hostilities this year.`\
+https://nytimes.com/2025/09/15/world/asia/india-pakistan-cricket-asia-cup-handshake.html
+
+**‘The Pitt’ Defied Odds by Going Back to the Future**\
+`On Sunday, Emmy voters made a loud statement that there is an appetite for the kind of shows that used to dominate TV.`\
+https://nytimes.com/2025/09/15/arts/television/the-pitt-emmy-wins-network-shows.html
+
+**2025 Heisman Trophy odds: Manning, Lagway among the early favorites plummeting**\
+`With several preseason favorites struggling, Miami's Carson Beck has emerged as the new Heisman Trophy favorite.`\
+https://nytimes.com/athletic/6629408/2025/09/15/heisman-trophy-odds-manning-lagway-fall-beck-favorite/
+
 **What we're seeing from Canucks prospects: 8 observations from games vs. Kraken**\
 `The Athletic was on the ground in Washington over the weekend to watch the Canucks' prospects.`\
 https://nytimes.com/athletic/6630295/2025/09/15/canucks-prospects-kraken-2025-games/
