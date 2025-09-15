@@ -1,3 +1,7 @@
+**The Wealth Tax Plans That Are Roiling New York and Paris**\
+`Endorsed by Zohran Mamdani and criticized by business leaders, the idea involves hitting millionaires with a stiff levy.`\
+https://nytimes.com/2025/09/15/business/dealbook/wealth-tax-new-york-mamdani.html
+
 **Fox Host Apologizes for Suggesting Lethal Injections for Mentally Ill Homeless People**\
 `“Just kill ’em,” Brian Kilmeade said on “Fox & Friends,” during a discussion about a deadly stabbing in North Carolina in which a homeless man was charged.`\
 https://nytimes.com/2025/09/15/business/media/fox-host-homeless-comment-brian-kilmeade-apology.html

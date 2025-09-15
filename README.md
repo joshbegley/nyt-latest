@@ -1,3 +1,11 @@
+**What we're seeing from Canucks prospects: 8 observations from games vs. Kraken**\
+`The Athletic was on the ground in Washington over the weekend to watch the Canucks' prospects.`\
+https://nytimes.com/athletic/6630295/2025/09/15/canucks-prospects-kraken-2025-games/
+
+**A U.S.-China Deal to Avert a TikTok Ban May be Close**\
+`Trump administration officials say they have the framework of a deal to save the popular video app. It had until Sept. 17 to be sold by its Chinese owner, ByteDance, or face a ban in the United States.`\
+https://nytimes.com/2025/09/15/us/politics/tiktok-ban-us-china-deal.html
+
 **Fox Host Apologizes for Suggesting Lethal Injections for Mentally Ill Homeless People**\
 `“Just kill ’em,” Brian Kilmeade said on “Fox & Friends,” during a discussion about a deadly stabbing in North Carolina in which a homeless man was charged.`\
 https://nytimes.com/2025/09/15/business/media/fox-host-homeless-comment-brian-kilmeade-apology.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6627999/2025/09/15/mondo-duplantis-pole-vault-world
 **Fantasy football Week 2 takeaways: Joe Burrow injury fallout, Javonte Williams looks elite and more**\
 `Among his Week 2 takes, Michael Salfino says if you roster Ja'Marr Chase or Tee Higgins, Jake Browning should be a priority add this week.`\
 https://nytimes.com/athletic/6629858/2025/09/15/fantasy-football-week-2-takeaways-joe-burrow-injury-fallout-javonte-williams-looks-elite-and-more/
-
-**Prime Suspect in Madeleine McCann Disappearance Refuses Interview With U.K. Police**\
-`Christian Brückner, the main suspect in the 2007 case, rejected an interview request ahead of his release this week from a German prison for a separate crime, the British police said.`\
-https://nytimes.com/2025/09/15/world/europe/madeleine-mccann-suspect-uk-police-interview.html
-
-** Candid Photos From the Emmys**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/emmys-candid-photos
 
