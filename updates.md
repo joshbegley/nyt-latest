@@ -1,3 +1,19 @@
+**She Held Her Baby for an Hour. Then the State Took Her Away.**\
+`The case of a young Greenlandic woman who was ruled incapable of keeping her baby has become the latest flashpoint with Denmark.`\
+https://nytimes.com/2025/09/15/world/europe/denmark-greenland-baby-parenting-test.html
+
+**LSU's Brian Kelly apologizes for post-win spat with media**\
+`Kelly said he’d texted WBRZ-TV sports director Michael Cauble and apologized personally prior to Monday’s appearance.`\
+https://nytimes.com/athletic/6631829/2025/09/15/brian-kelly-apology-lsu-offense/
+
+**Broncos' Sean Payton regrets play call that led to game-deciding penalty: 'That's on me'**\
+`Payton said he had "regret" for green-lighting an aggressive field-goal block play as Colts attempted a 60-yarder.`\
+https://nytimes.com/athletic/6631598/2025/09/15/broncos-sean-payton-field-goal-penalty-colts/
+
+**F.B.I. Burns Methamphetamine Near Animal Shelter, Sickening Workers and Pets**\
+`More than 70 cats and dogs were evacuated and 14 workers at an animal shelter in Montana were treated for smoke inhalation from incinerated methamphetine.`\
+https://nytimes.com/2025/09/15/us/montana-animal-shelter-fbi-meth-smoke.html
+
 **Ed Giacomin, Hall of Fame goalie and New York Rangers legend, dies at 86**\
 `Ed &#8220;Eddie&#8221; Giacomin, a Hall of Fame goalie and New York Rangers legend whose No.`\
 https://nytimes.com/athletic/6631557/2025/09/15/ed-giacomin-obituary-nhl-rangers/
