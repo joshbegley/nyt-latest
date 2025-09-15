@@ -14,7 +14,7 @@ https://nytimes.com/2025/09/14/arts/television/britt-lower-emmy-severance.html
 `No corrections appeared in print on Monday, Sept. 15, 2025.`\
 https://nytimes.com/2025/09/14/pageoneplus/no-corrections-sept-15-2025.html
 
-**Mac Jones overcomes nerves, rewarding 49ers' confidence and buying Brock Purdy time**\
+**Mac Jones overcomes nerves, rewards 49ers' confidence and buys Brock Purdy time**\
 `Jones affirmed the 49ers' faith, delivering in a pass-heavy game plan and showing why the team won't rush Purdy back into action.`\
 https://nytimes.com/athletic/6629351/2025/09/14/mac-jones-49ers-saints-brock-purdy/
 
