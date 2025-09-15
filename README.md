@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6631583/2025/09/15/college-football-week-4-odds-ind
 `Arsenal will kick off this European adventure carrying injuries, with Saka, Odegaard, and White left at home`\
 https://nytimes.com/athletic/6631931/2025/09/15/arsenal-team-news-saka-odegaard-champions-league/
 
-**Vikings QB J.J. McCarthy likely to miss Week 3 with sprained ankle, Carson Wentz to start**\
+**Vikings QB J.J. McCarthy likely to miss Week 3 with sprained ankle**\
 `McCarthy, a second-year man from Michigan, struggled mightily in the Vikings' Week 2 loss to the Falcons and was sacked six times.`\
 https://nytimes.com/athletic/6631929/2025/09/15/jj-mccarthy-hurt-carson-wentz-vikings-depth-chart/
 
