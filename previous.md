@@ -1,3 +1,23 @@
+**Betting impact of Joe Burrow's injury doesn't paint a pretty picture for Bengals**\
+`Joe Burrow's injury unsurprisingly tanked Cincinnati's futures odds. The Bengals are now an underdog to make the playoffs.`\
+https://nytimes.com/athletic/6631281/2025/09/15/joe-burrow-injury-bengals-betting-impact/
+
+**From Samuels-Smith to Sarr: Charting the 12 players moving between Chelsea and Strasbourg**\
+`There have been numerous moves between the Premier League and Ligue 1 teams as part of BlueCo's multi-club ownership model`\
+https://nytimes.com/athletic/6619301/2025/09/15/chelsea-strasbourg-blueco-transfers-chilwell/
+
+**How Manchester City exploited Manchester United's midfield and picked their pockets**\
+`Sunday's derby win was the perfect demonstration of what the Manchester City boss wants his players to do`\
+https://nytimes.com/athletic/6630350/2025/09/15/manchester-city-tactics-manchester-united/
+
+**Bessent Announces ‘Framework’ for TikTok Deal Between U.S. and China**\
+`Treasury Secretary Scott Bessent said U.S. and Chinese officials agreed to an outline of a deal that would move TikTok’s ownership from China to the U.S. President Xi Jinping of China and President Trump are expected to speak on Friday to agree to the deal.`\
+https://nytimes.com/video/us/100000010399491/tiktok-ban-us-china.html
+
+**After NASCAR's latest heavy tire-wear Bristol race, questions and hope for what's next**\
+`Bristol delivered another high-tire-wear race on Saturday. Maybe too much. But it left the garage hopeful for what Goodyear might do next.`\
+https://nytimes.com/athletic/6630690/2025/09/15/nascar-bristol-tires-goodyear-wear-future/
+
 **Two Men Arrested After Incendiary Device Is Found Under a News Vehicle**\
 `The incendiary device, found beneath a Salt Lake City television station’s vehicle, failed to detonate. The two men face terrorism and arson charges.`\
 https://nytimes.com/2025/09/15/us/utah-explosive-device-threat-fox-13-arrest.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/09/15/nyregion/maurene-comey-fired-lawsuit-trump.html
 **How an Emirati Royal Won the Battle for A.I. Chips**\
 `Sheikh Tahnoon bin Zayed Al Nahyan of the United Arab Emirates secured a tentative A.`\
 https://nytimes.com/video/world/middleeast/100000010364130/how-an-emirati-royal-won-the-battle-for-ai-chips.html
-
-**Anatomy of Two Giant Deals: The U.A.E. Got Chips. The Trump Team Got Crypto Riches.**\
-`A lucrative transaction involving the Trump family’s cryptocurrency firm and an agreement giving the Emiratis access to A.I. chips were connected in ways that have not been previously reported.`\
-https://nytimes.com/2025/09/15/us/politics/trump-uae-chips-witkoff-world-liberty.html
-
-**5 Takeaways From The Times’s Investigation Into 2 Giant Deals Involving Trump**\
-`A $2 billion crypto deal and an agreement to sell valuable chips to the United Arab Emirates were intertwined in ways that have not been previously reported.`\
-https://nytimes.com/2025/09/15/us/politics/trump-uae-chips-witkoff-world-liberty-takeaways.html
-
-**Washington Post Columnist Says She Was Fired for Posts After Charlie Kirk Shooting**\
-`Karen Attiah said she was fired for “speaking out against political violence” and America’s apathy toward guns.`\
-https://nytimes.com/2025/09/15/business/media/washington-post-charlie-kirk-karen-attiah.html
-
-**What I learned about Ohio State from Ohio: How good can Julian Sayin, Bo Jackson be?**\
-`Ohio State accomplished almost everything it needed to in nonconference play. Here are final thoughts from Saturday's win over Ohio.`\
-https://nytimes.com/athletic/6630960/2025/09/15/ohio-state-julian-sayin-bo-jackson-ohio/
-
-**Trump’s D.C. Show of Force Diverts Agents and Prosecutors From Casework**\
-`While crime falls, the other investigative work of the F.B.I. is being delayed, frustrating law enforcement officials and leading some to quit.`\
-https://nytimes.com/2025/09/15/us/politics/trump-dc-crackdown-fbi-prosecutors.html
 

@@ -1,3 +1,7 @@
+**Ex-Barca defender and World Cup winner Umtiti retires aged 31**\
+`The centre-back had the latter years of his career hampered by chronic cartilage damage in his knee`\
+https://nytimes.com/athletic/6625487/2025/09/15/samuel-umtiti-ex-barcelona-france-defender-retirement/
+
 **Betting impact of Joe Burrow's injury doesn't paint a pretty picture for Bengals**\
 `Joe Burrow's injury unsurprisingly tanked Cincinnati's futures odds. The Bengals are now an underdog to make the playoffs.`\
 https://nytimes.com/athletic/6631281/2025/09/15/joe-burrow-injury-bengals-betting-impact/
@@ -33,8 +37,4 @@ https://nytimes.com/card/2025/09/15/arts/fall-broadway-music-tv-doja-cat-leonard
 **Fired Prosecutor Challenges Trump’s Claims to Power in Lawsuit**\
 `The Justice Department gave no reason for its dismissal of Maurene Comey, a longtime federal prosecutor in Manhattan and the daughter of the former F.B.I. director, James Comey.`\
 https://nytimes.com/2025/09/15/nyregion/maurene-comey-fired-lawsuit-trump.html
-
-**How an Emirati Royal Won the Battle for A.I. Chips**\
-`Sheikh Tahnoon bin Zayed Al Nahyan of the United Arab Emirates secured a tentative A.`\
-https://nytimes.com/video/world/middleeast/100000010364130/how-an-emirati-royal-won-the-battle-for-ai-chips.html
 
