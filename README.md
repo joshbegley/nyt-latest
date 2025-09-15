@@ -1,3 +1,7 @@
+**Rubio, in Israel, Meets Netanyahu as Trump Grows Impatient**\
+`Secretary of State Marco Rubio planned to discuss President Trump’s desire to see the war in Gaza end soon.`\
+https://nytimes.com/2025/09/15/us/politics/rubio-israel-netanyahu-trump-gaza.html
+
 **Brighton CEO Paul Barber joins board of Melbourne Victory**\
 `Barber will represent Brighton's owner-chairman Tony Bloom, who bought a 19.1 per cent stake in the Australian A-League club in March.`\
 https://nytimes.com/athletic/6630403/2025/09/15/brighton-paul-barber-melbourne-victory/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6629126/2025/09/15/ricky-hatton-boxing-death-legacy
 **Word of the Day: sartorial**\
 `This word has appeared in 126 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/09/15/learning/word-of-the-day-sartorial.html
-
-**Khusanov is the human wrecking ball who is solving City's problem position**\
-`The Uzbek offers Pep Guardiola a raw physicality at right-back, as he proved against Manchester United on Sunday `\
-https://nytimes.com/athletic/6628164/2025/09/15/abdukodir-khusanov-manchester-city-right-back/
 
