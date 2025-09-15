@@ -1,3 +1,15 @@
+**Lasher, Nadler’s Protégé, Says He Is Running to Succeed His Mentor**\
+`Micah Lasher, a state lawmaker, enters what is expected to be a crowded Democratic field competing for Representative Jerrold Nadler’s congressional seat in Manhattan.`\
+https://nytimes.com/2025/09/15/nyregion/nyc-micah-lasher-jerrold-nadler.html
+
+**How Mamdani Proposes to Make New York City Safer**\
+`Zohran Mamdani wants New York to follow the model of other cities that send mental health teams instead of the police to help people in crisis. But the plan would be expensive.`\
+https://nytimes.com/2025/09/15/nyregion/mamdani-public-safety-plan.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/09/15/crosswords/spelling-bee-forum.html
+
 **Lamine Yamal’s Spain-Barcelona painkillers row — should we be worried?**\
 `An injury suffered on Spain duty last week meant the 18-year-old winger was ruled out for Barca`\
 https://nytimes.com/athletic/6629630/2025/09/15/lamine-yamal-spain-barcelona-injury/
