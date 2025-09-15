@@ -1,3 +1,11 @@
+**Robinhood Bets Again on Opening Up Private Markets**\
+`The brokerage plans to announce a new publicly traded venture capital fund that would let ordinary investors get a piece of privately held start-ups.`\
+https://nytimes.com/2025/09/15/business/dealbook/robinhood-venture-capital-fund.html
+
+**A Bold New Museum for a Flamboyant Leader**\
+`Chris Dercon is known for dramatic gestures and frequent moves between major institutions. But he says he’ll be at the Fondation Cartier for the long haul.`\
+https://nytimes.com/2025/09/15/arts/design/chris-dercon-fondation-cartier.html
+
 **Inside Newcastle Q&A: Chris Waugh answers your questions**\
 `Newcastle have their first win of the Premier League season, injecting some positivity before a busy period. Next up, Barcelona`\
 https://nytimes.com/athletic/6630726/2025/09/15/inside-newcastle-qa-chris-waugh-barcelona-woltemade/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6630700/2025/09/15/joe-burrow-injury-toe-bengals/
 **We Answer Your Questions About A.I.**\
 `Beat experts across the newsroom responded to you.`\
 https://nytimes.com/2025/09/15/briefing/we-answer-your-questions-about-ai.html
-
-**Inside Real Madrid: Red card controversy and a Champions League problem at centre-back**\
-`Saturday's 2-1 victory at Real Sociedad kept up Xabi Alonso's winning start as Real Madrid manager - but there was controversy`\
-https://nytimes.com/athletic/6630605/2025/09/15/inside-real-madrid-champions-league-huijsen-alonso/
-
-**Commanders early season woes: Cause for concern, or too soon to tell?**\
-`The Commanders have not yet looked like their 2024 selves. Is it a fluke, a small sample size or something more significant?`\
-https://nytimes.com/athletic/6629891/2025/09/15/commanders-jayden-daniels-early-season-problems/
 
