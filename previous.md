@@ -1,3 +1,7 @@
+**USMNT Player Tracker: Pepi offers some bite, Reyna's run out and McKennie makes his mark**\
+`Our roundup of the weekend action also features Patrick Agyemang's immediate impact at Derby, and another goal for the prolific Haji Wright`\
+https://nytimes.com/athletic/6630626/2025/09/15/usmnt-pepi-reyna-mckennie-tracker/
+
 **Jets QB Justin Fields evaluated for concussion, status for Tampa Bay up in the air**\
 `Fields left the Jets' loss to Buffalo on Sunday in the fourth quarter.`\
 https://nytimes.com/athletic/6628785/2025/09/15/justin-fields-injury-new-york-jets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6630412/2025/09/15/fantasy-premier-league-gameweek-
 **The Pulse: Yes, these NFL teams should panic**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6629887/2025/09/15/nfl-week-2-the-pulse/
-
-**Vuelta chief insists sport and protests can 'absolutely coexist' after race disruption**\
-`Three stages out of 21 in the 2025 Vuelta were neutralised early due to the safety risk, with many others disrupted.`\
-https://nytimes.com/athletic/6630653/2025/09/15/vuelta-a-espana-protests-race-manager/
 
