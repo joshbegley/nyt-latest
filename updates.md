@@ -1,3 +1,23 @@
+**Ben Johnson's homecoming spoiled by Bears' ugly loss to Lions: 'It’s a kick in the teeth'**\
+`For Bears fans, it’s understandable to watch Sunday's loss and fear this was — and is — a continuation of last season’s humiliation.`\
+https://nytimes.com/athletic/6629320/2025/09/14/bears-ben-johnson-embarrassed-lions/
+
+**Josh Allen is too good and too tough not to win a Super Bowl**\
+`After Sunday's game, Allen looked like a club fighter who had picked the wrong opponent for a payday. You should have seen the other guy.`\
+https://nytimes.com/athletic/6629531/2025/09/14/bills-jets-josh-allen-super-bowl-column/
+
+**Britt Lower Wins Best Lead Actress for ‘Severance’**\
+`Lower won for her dual role as Helly R. and Helena in Season 2 of the surreal workplace drama.`\
+https://nytimes.com/2025/09/14/arts/television/britt-lower-emmy-severance.html
+
+**No Corrections: Sept. 15, 2025**\
+`No corrections appeared in print on Monday, Sept. 15, 2025.`\
+https://nytimes.com/2025/09/14/pageoneplus/no-corrections-sept-15-2025.html
+
+**Phillies must wait to clinch NL East, but after strong week, they head west seeking more**\
+`The Phillies are five games up on the Dodgers for the NL's second seed, and they are two games behind the Brewers for the first.`\
+https://nytimes.com/athletic/6629228/2025/09/14/phillies-nl-east-playoff-seeding/
+
 **Mac Jones overcomes nerves, rewarding 49ers' confidence and buying Brock Purdy time**\
 `Jones affirmed the 49ers' faith, delivering in a pass-heavy game plan and showing why the team won't rush Purdy back into action.`\
 https://nytimes.com/athletic/6629351/2025/09/14/mac-jones-49ers-saints-brock-purdy/
