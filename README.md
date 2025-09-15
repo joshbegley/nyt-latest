@@ -1,3 +1,7 @@
+**Canceled by CBS, ‘The Late Show With Stephen Colbert’ Wins Best Talk Show**\
+`The show, which Colbert has hosted since 2015, beat out “The Daily Show” on Comedy Central and “Jimmy Kimmel Live!” on ABC.`\
+https://nytimes.com/2025/09/14/arts/television/stephen-colbert-the-late-show-emmys.html
+
 **Broncos' blunders raise concern in loss to Colts: 'We gave that game away today'**\
 `The Broncos were 1-6 in one-score games last season, and in their first tight battle of 2025, they floundered in the deciding moments.`\
 https://nytimes.com/athletic/6629236/2025/09/14/broncos-loss-mistakes-colts-sean-payton/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6629616/2025/09/14/cowboys-beat-giants-brandon-aubr
 **Giants waste a vintage Russell Wilson game, drop heartbreaker in Dallas: 'This one hurts'**\
 `Even though Sunday’s rollercoaster was a more entertaining ride than the loss to Washington in Week 1, it ended with a familiar crash. `\
 https://nytimes.com/athletic/6629684/2025/09/14/ny-giants-cowboys-russell-wilson-takeaways/
-
-**Two Steelers mistakes cost them dearly, but Pittsburgh's issues run much deeper**\
-`The Steelers' issues go beyond a botched kick return and fluky interception Sunday against the Seahawks.`\
-https://nytimes.com/athletic/6629623/2025/09/14/pittsburgh-steelers-loss-seattle-seahawks/
 
