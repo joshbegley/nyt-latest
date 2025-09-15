@@ -1,3 +1,11 @@
+**Kennedy Adds Five New Members to Vaccine Committee**\
+`The committee, whose members were appointed by the health secretary and include vaccine skeptics, will meet on Thursday to review recommendations for several shots.`\
+https://nytimes.com/2025/09/15/health/rfk-jr-hhs-vaccine-committee-members.html
+
+**U.S. Strikes a 2nd Venezuela Boat, Killing 3, Trump Says**\
+`The president said the vessel was heading to the United States, but he did not offer details about its location. Legal specialists condemned the action as illegal.`\
+https://nytimes.com/2025/09/15/us/politics/trump-venezuela-drug-boat-strike.html
+
 **What to Know About the ‘Kissing Bug’ Disease**\
 `Though some researchers believe it should be labeled endemic in the United States, most Americans don’t need to worry about getting sick.`\
 https://nytimes.com/2025/09/15/well/kissing-bug-chagas-disease.html

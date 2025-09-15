@@ -1,3 +1,11 @@
+**Kennedy Adds Five New Members to Vaccine Committee**\
+`The committee, whose members were appointed by the health secretary and include vaccine skeptics, will meet on Thursday to review recommendations for several shots.`\
+https://nytimes.com/2025/09/15/health/rfk-jr-hhs-vaccine-committee-members.html
+
+**U.S. Strikes a 2nd Venezuela Boat, Killing 3, Trump Says**\
+`The president said the vessel was heading to the United States, but he did not offer details about its location. Legal specialists condemned the action as illegal.`\
+https://nytimes.com/2025/09/15/us/politics/trump-venezuela-drug-boat-strike.html
+
 **What to Know About the ‘Kissing Bug’ Disease**\
 `Though some researchers believe it should be labeled endemic in the United States, most Americans don’t need to worry about getting sick.`\
 https://nytimes.com/2025/09/15/well/kissing-bug-chagas-disease.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/15/nyregion/andrew-cuomo-israel-gaza.html
 **Maduro Calls U.S. Attack on Boat ‘A Heinous Crime,’ as Trump Announces Another**\
 `The Venezuela leader, Nicolás Maduro, claimed that the Trump administration was trying to start a war in the Caribbean.`\
 https://nytimes.com/2025/09/15/world/americas/venezuela-boat-strikes-maduro-trump.html
-
-**Andy Reid on Chiefs players wearing Rashee Rice T-shirts: 'They love the kid'**\
-`Rice, 25, is serving a six-game NFL suspension for his role in a March 2024 high-speed car crash.`\
-https://nytimes.com/athletic/6631971/2025/09/15/chiefs-rashee-rice-t-shirts-free-4/
-
-**Packers' Christian Watson nears return from ACL tear: 'I'm already chomping at the bit'**\
-`Watson tore his ACL in Week 18 last season and anticipates returning to practice when he's first allowed to by league rules in Week 6.`\
-https://nytimes.com/athletic/6632187/2025/09/15/packers-christian-watson-return-acl/
 
