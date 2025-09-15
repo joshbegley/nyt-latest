@@ -1,3 +1,7 @@
+**What Does ‘Real Unity’ Mean to the White House?**\
+`After Charlie Kirk’s death, the Trump administration has identified a bigger culprit: leftists bent on violence.`\
+https://nytimes.com/2025/09/15/us/politics/jd-vance-charlie-kirk-trump.html
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>Hopefully everyone&#8217;s managed to hold on to their jobs longer than Deshaun Foster and Brent Pry.</p>
 <p>Leave your questions here. Please include your city.</p>
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6632497/2025/09/15/tom-brady-fanatics-flag-football
 **Panthers' OL takes 2 big hits, just in time for the Falcons and their revived pass rush**\
 `Robert Hunt and Austin Corbett were placed on IR after the Panthers dropped to 0-2 with the loss to the Cardinals.`\
 https://nytimes.com/athletic/6632443/2025/09/15/carolina-panthers-offensive-line-injuries/
-
-**John Penton, ‘Godfather’ of Off-Road Racing, Dies at 100**\
-`He set a transcontinental motorcycling speed record, and then helped to revolutionize off-road riding with his own brand of nimble bikes.`\
-https://nytimes.com/2025/09/15/sports/john-penton-dead.html
 
