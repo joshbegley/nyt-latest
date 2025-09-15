@@ -1,3 +1,7 @@
+**Vikings QB J.J. McCarthy likely to miss Week 3 with sprained ankle**\
+`McCarthy, a second-year man from Michigan, struggled mightily in the Vikings' Week 2 loss to the Falcons and was sacked six times.`\
+https://nytimes.com/athletic/6631929/2025/09/15/jj-mccarthy-hurt-carson-wentz-vikings-depth-chart/
+
 **White House Plans Broad Crackdown on Liberal Groups**\
 `Some of the highest-ranking officials in the federal government used Charlie Kirk’s podcast, guest-hosted by Vice President JD Vance, to lay out their plans.`\
 https://nytimes.com/2025/09/15/us/politics/jd-vance-charlie-kirk-show.html
