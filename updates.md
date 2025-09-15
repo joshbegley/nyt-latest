@@ -1,3 +1,7 @@
+**Young People Suing Trump Over Climate Have Their Day in Federal Court**\
+`They claim Trump’s executive orders are unconstitutional. The government says their lawsuit should be thrown out. The two sides are set to clash this week in Montana.`\
+https://nytimes.com/2025/09/15/climate/montana-lawsuit-trump-executive-orders-energy.html
+
 **Villarreal's Thomas Partey 'mentally prepared' to face Tottenham - Marcelino**\
 `The former Arsenal midfielder joined Villarreal in August and is now set to face his former north London rivals`\
 https://nytimes.com/athletic/6630817/2025/09/15/thomas-partey-news-tottenham-champions-league/
