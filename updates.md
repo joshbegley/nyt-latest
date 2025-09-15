@@ -1,3 +1,7 @@
+**49ers minutia minute: Rookies Mykel Williams, Connor Colby jumped out vs. Saints**\
+`Deep-ball Ricky? Pearsall is averaging more than 20 yards per catch through two games, one of the best rates in the NFL so far.`\
+https://nytimes.com/athletic/6632108/2025/09/15/49ers-saints-mykel-williams-rookies/
+
 **Samin Nosrat Gathers Friends for Dinner Every Week. Here’s How You Can, Too.**\
 `For the chef and cookbook author, seeing friends doesn’t have to be complicated. It just has to happen. These recipes can help.`\
 https://nytimes.com/2025/09/15/dining/samin-nosrat-dinner-party-recipes.html

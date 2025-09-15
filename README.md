@@ -1,3 +1,15 @@
+**Packers' Christian Watson nears return from ACL tear: 'I'm already chomping at the bit'**\
+`Watson tore his ACL in Week 18 last season and anticipates returning to practice when he's first allowed to by league rules in Week 6.`\
+https://nytimes.com/athletic/6632187/2025/09/15/packers-christian-watson-return-acl/
+
+**Florida Says Ban on Openly Carrying Guns Is Invalid After Court Ruling**\
+`The state attorney general told law enforcement officers to stop enforcing the decades-old ban, after a court last week ruled it unconstitutional.`\
+https://nytimes.com/2025/09/15/us/florida-open-carry-guns.html
+
+**Kirill Kaprizov's Wild teammates remain optimistic he will re-sign: 'He doesn't need the lights'**\
+`Marcus Foligno on Kaprizov's stalled contract talks: "He’s excited to be here. He loves everything about Minnesota. … It’ll work out."`\
+https://nytimes.com/athletic/6632124/2025/09/15/kirill-kaprizov-wild-contract-teammates/
+
 **49ers minutia minute: Rookies Mykel Williams, Connor Colby jumped out vs. Saints**\
 `Deep-ball Ricky? Pearsall is averaging more than 20 yards per catch through two games, one of the best rates in the NFL so far.`\
 https://nytimes.com/athletic/6632108/2025/09/15/49ers-saints-mykel-williams-rookies/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6632135/2025/09/15/sidney-crosby-trade-rumors-pengu
 **How to watch North Carolina at UCF: Time, TV, streaming**\
 `Find out how to watch the North Carolina Tar Heels play the UCF Knights, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6632167/2025/09/15/north-carolina-vs-ucf-stream-how-to-watch-sept-20/
-
-**How to watch Oregon State at Oregon: Time, TV, streaming**\
-`Find out how to watch the Oregon State Beavers play the Oregon Ducks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6632166/2025/09/15/oregon-state-vs-oregon-stream-how-to-watch-sept-20/
-
-**How to watch Tulane at Ole Miss: Time, TV, streaming**\
-`Find out how to watch the Tulane Green Wave play the Ole Miss Rebels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6632163/2025/09/15/tulane-vs-ole-miss-stream-how-to-watch-sept-20/
-
-**How to watch Auburn at Oklahoma: Time, TV, streaming**\
-`Find out how to watch the Auburn Tigers play the Oklahoma Sooners, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6632161/2025/09/15/auburn-vs-oklahoma-stream-how-to-watch-sept-20/
 
