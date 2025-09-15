@@ -1,3 +1,11 @@
+**Maduro Calls U.S. Attack on Boat ‘A Heinous Crime,’ as Trump Announces Another**\
+`The Venezuela leader, Nicolás Maduro, claimed that the Trump administration was trying to start a war in the Caribbean.`\
+https://nytimes.com/2025/09/15/world/americas/venezuela-boat-strikes-maduro-trump.html
+
+**Andy Reid on Chiefs players wearing Rashee Rice T-shirts: 'They love the kid'**\
+`Rice, 25, is serving a six-game NFL suspension for his role in a March 2024 high-speed car crash.`\
+https://nytimes.com/athletic/6631971/2025/09/15/chiefs-rashee-rice-t-shirts-free-4/
+
 **Packers' Christian Watson nears return from ACL tear: 'I'm already chomping at the bit'**\
 `Watson tore his ACL in Week 18 last season and anticipates returning to practice when he's first allowed to by league rules in Week 6.`\
 https://nytimes.com/athletic/6632187/2025/09/15/packers-christian-watson-return-acl/
