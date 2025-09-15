@@ -1,4 +1,4 @@
-**Emmys 2025 Red Carpet Moments**\
+**Voices From the 2025 Emmys Red Carpet**\
 `Nominees for the 77th Emmy Awards spoke with The New York Times on the red carpet ahead of the ceremony on Sunday.`\
 https://nytimes.com/video/arts/100000010398722/emmys-2025-red-carpet.html
 
