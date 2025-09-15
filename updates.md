@@ -1,3 +1,23 @@
+**Fox Host Apologizes for Suggesting Lethal Injections for Mentally Ill Homeless People**\
+`“Just kill ’em,” Brian Kilmeade said on “Fox & Friends,” during a discussion about a deadly stabbing in North Carolina in which a homeless man was charged.`\
+https://nytimes.com/2025/09/15/business/media/fox-host-homeless-comment-brian-kilmeade-apology.html
+
+**Palace's Benitez, Canvot to make debuts against Millwall**\
+`Adam Wharton, Eddie Nketiah and Cheick Doucoure will not be available for the Carabao Cup tie`\
+https://nytimes.com/athletic/6631056/2025/09/15/crystal-palace-team-news-millwall/
+
+**The Wealth Tax Plan That’s Roiling New York and Paris**\
+`Endorsed by Zohran Mamdani and criticized by business leaders, the idea involves hitting millionaires with a stiff levy.`\
+https://nytimes.com/2025/09/15/business/dealbook/wealth-tax-new-york-mamdani.html
+
+**Emmy Awards: How to Watch the Winners**\
+`“The Studio” took home the most trophies, and “The Pitt” and “Adolescence” also cleaned up. Here’s where to stream the major Emmy winners.`\
+https://nytimes.com/2025/09/15/arts/television/stream-emmy-winners.html
+
+**Jorge Ramos Tries Something New, Next to His Daughter: A Show in English**\
+`Mr. Ramos, the longtime anchor for Univision, and his daughter are trying to tap into the growing number of Hispanics who consume media in English.`\
+https://nytimes.com/2025/09/15/business/media/jorge-ramos-daughter-podcast.html
+
 **emmys-best-worst-moment**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/emmys-best-worst-moment
