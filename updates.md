@@ -1,3 +1,7 @@
+**Khusanov is the human wrecking ball who is solving City's problem position**\
+`The Uzbek offers Pep Guardiola a raw physicality at right-back, as he proved against Manchester United on Sunday `\
+https://nytimes.com/athletic/6628164/2025/09/15/abdoukidir-khusanov-manchester-city-right-back/
+
 **The New York Times in Print for Monday, Sep. 15, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/15/todays-new-york-times
