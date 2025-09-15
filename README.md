@@ -1,3 +1,11 @@
+**Calls for a ‘Free Palestine’ in an Emmys Otherwise Light on Politics**\
+`A few nominees and speakers addressed political issues such as the Israel-Gaza war and the defunding of U.S. public broadcasting.`\
+https://nytimes.com/2025/09/14/arts/television/emmys-israel-gaza.html
+
+**T's Sept. 28 Design & Luxury Issue**\
+``\
+https://nytimes.com/issue/t-magazine/2025/09/14/ts-sept-28-design-luxury-issue-2025
+
 **15 Unforgettable Looks at the Emmy Awards**\
 `Power suits, pixie cuts, bedazzled bodies and more.`\
 https://nytimes.com/2025/09/14/style/emmys-fashion-red-carpet-looks.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/14/arts/television/adolescence-emmys-stephen-graham-
 **Panthers, Bryce Young rally from bad start, but don't make plays with game on the line**\
 `Making matters worse, the Panthers might have lost starting offensive linemen Robert Hunt and Austin Corbett for an extended time.`\
 https://nytimes.com/athletic/6629877/2025/09/14/panthers-lose-bryce-young-rally-cardinals/
-
-**Canceled by CBS, ‘The Late Show With Stephen Colbert’ Wins Best Talk Show**\
-`The show, which Colbert has hosted since 2015, beat out “The Daily Show” on Comedy Central and “Jimmy Kimmel Live!” on ABC.`\
-https://nytimes.com/2025/09/14/arts/television/stephen-colbert-the-late-show-emmys.html
-
-**Broncos' blunders raise concern in loss to Colts: 'We gave that game away today'**\
-`The Broncos were 1-6 in one-score games last season, and in their first tight battle of 2025, they floundered in the deciding moments.`\
-https://nytimes.com/athletic/6629236/2025/09/14/broncos-loss-mistakes-colts-sean-payton/
 
