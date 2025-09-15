@@ -1,6 +1,18 @@
+**Scoop City: Risers and fallers after Week 2**\
+`How teams are trending after the Colts, Cowboys and Bengals won, while the Dolphins and Steelers disappointed`\
+https://nytimes.com/athletic/6631745/2025/09/15/nfl-risers-fallers-trending-week-2-cowboys-colts/
+
+**Bears cornerback Jaylon Johnson faces extended absence with groin injury**\
+`At a minimum, Johnson figures to miss multiple games after the groin injury that bothered him all summer flared up in the first half Sunday.`\
+https://nytimes.com/athletic/6631758/2025/09/15/bears-jaylon-johnson-groin-injury-absence-2/
+
 **Charlie Kirk and the ‘Right Way’ to Practice Politics**\
 `Readers respond to column by Ezra Klein. Also: President Trump and the National Emergencies Act.`\
 https://nytimes.com/2025/09/15/opinion/charlie-kirk-ezra-klein-politics.html
+
+**NFL overreaction Monday: How are the Bears favored over the Cowboys?!**\
+`Toby Mergler makes four early Week 3 picks wildly over-indexing on vibes, small sample sizes and comparisons to pop culture classics.`\
+https://nytimes.com/athletic/6631533/2025/09/15/nfl-week-3-odds-picks-overreactions-bears-cowboys/
 
 **Florida State linebacker Ethan Pritchard opens eyes 2 weeks after being shot**\
 `Pritchard is a true freshman who committed to Florida State as a three-star recruit in October and signed in December.`\
@@ -14,8 +26,8 @@ https://nytimes.com/video/world/middleeast/100000010399094/gaza-rubio-netanyahu-
 `From Andy Reid to Tom Brady to rules analyst Dean Blandino, there was plenty of frustration with the Eagles' use of the tush push on Sunday.`\
 https://nytimes.com/athletic/6631199/2025/09/15/tush-push-false-start-eagles-chiefs-nfl/
 
-**Notes on 2026 MLB Draft prospects from the 2025 Under Armour Next game**\
-`Notes on Rocco Maniscalco, Blake Bowen, Jaxon Matthews, Tyler Putnam, Alain Gómez-Gudiño and more 2026 MLB draft prospects.`\
+**A look at the 2026 MLB Draft prospects from the 2025 Under Armour Next All-America Game**\
+`A look at Rocco Maniscalco, Blake Bowen, Jaxon Matthews, Tyler Putnam, Alain Gómez-Gudiño and more 2026 MLB draft prospects.`\
 https://nytimes.com/athletic/6631520/2025/09/15/under-armour-next-2025-notes-mlb-draft/
 
 **Profits from Norway vs Israel to go to relief group in Gaza**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6631437/2025/09/15/norway-israel-gaza-world-cup-qua
 **Avoiding a Strike, L.I.R.R. Unions Ask Trump to Get Talks on Track**\
 `A strike by workers on the Long Island Rail Road, the United States’ largest commuter rail service, has been averted for now, and could be postponed for several months.`\
 https://nytimes.com/2025/09/15/nyregion/lirr-strike-mta-trump.html
-
-**At an Emmys Bash With Noah Wyle, Katherine LaNasa and Lots of Champagne**\
-`After the awards ceremony, stars packed the HBO Max party at the San Vicente Bungalows in West Hollywood.`\
-https://nytimes.com/2025/09/15/style/emmys-hbo-after-party.html
-
-**Surprising Presence at Belarus-Russia War Games: Two American Observers**\
-`The invitation by Belarus came as its autocratic leader has been trying to improve relations with the Trump administration, which has been receptive.`\
-https://nytimes.com/2025/09/15/world/europe/russia-belarus-zapad-2025-war-games.html
-
-**Joe Burrow injury: Bengals' QB options beyond Jake Browning**\
-`Cincinnati will be without its franchise QB for months after a turf toe injury suffered against the Jaguars on Sunday.`\
-https://nytimes.com/athletic/6631474/2025/09/15/bengals-joe-burrow-injury-cousins-winston/
 

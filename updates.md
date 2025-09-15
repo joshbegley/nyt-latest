@@ -1,3 +1,19 @@
+**Scoop City: Risers and fallers after Week 2**\
+`How teams are trending after the Colts, Cowboys and Bengals won, while the Dolphins and Steelers disappointed`\
+https://nytimes.com/athletic/6631745/2025/09/15/nfl-risers-fallers-trending-week-2-cowboys-colts/
+
+**Bears cornerback Jaylon Johnson faces extended absence with groin injury**\
+`At a minimum, Johnson figures to miss multiple games after the groin injury that bothered him all summer flared up in the first half Sunday.`\
+https://nytimes.com/athletic/6631758/2025/09/15/bears-jaylon-johnson-groin-injury-absence-2/
+
+**NFL overreaction Monday: How are the Bears favored over the Cowboys?!**\
+`Toby Mergler makes four early Week 3 picks wildly over-indexing on vibes, small sample sizes and comparisons to pop culture classics.`\
+https://nytimes.com/athletic/6631533/2025/09/15/nfl-week-3-odds-picks-overreactions-bears-cowboys/
+
+**A look at the 2026 MLB Draft prospects from the 2025 Under Armour Next All-America Game**\
+`A look at Rocco Maniscalco, Blake Bowen, Jaxon Matthews, Tyler Putnam, Alain Gómez-Gudiño and more 2026 MLB draft prospects.`\
+https://nytimes.com/athletic/6631520/2025/09/15/under-armour-next-2025-notes-mlb-draft/
+
 **Charlie Kirk and the ‘Right Way’ to Practice Politics**\
 `Readers respond to column by Ezra Klein. Also: President Trump and the National Emergencies Act.`\
 https://nytimes.com/2025/09/15/opinion/charlie-kirk-ezra-klein-politics.html
