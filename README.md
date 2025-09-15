@@ -1,3 +1,7 @@
+**ND-A&M final thoughts: Marcus Freeman has a defensive coordinator problem**\
+`New DC Chris Ash has taken a defense that was aggressive and fast and reduced it to a tentative and reactionary unit.`\
+https://nytimes.com/athletic/6630814/2025/09/15/notre-dame-chris-ash-defense/
+
 **Trump Administration Live Updates: Deadline for TikTok Ban Hangs Over U.S.-China Trade Talks**\
 ``\
 https://nytimes.com/live/2025/09/15/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6630653/2025/09/15/vuelta-a-espana-protests-race-ma
 **New York Rangers 2025-26 prospect rankings: Counting down Nos. 7-10**\
 `The first installment of Mercogliano's annual prospect evolution series, now with a new location and new co-conspirator.`\
 https://nytimes.com/athletic/6623329/2025/09/15/new-york-rangers-prospect-rankings-top-10/
-
-**Bengals QB Joe Burrow seeking second opinions on turf toe injury: Sources**\
-`Burrow left Sunday's 31-27 win over the Jacksonville Jaguars in the second quarter and was later seen in a walking boot.`\
-https://nytimes.com/athletic/6630700/2025/09/15/joe-burrow-injury-toe-bengals/
 
