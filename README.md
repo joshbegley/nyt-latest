@@ -1,3 +1,11 @@
+**Profits from Norway vs Israel to go to relief group in Gaza**\
+`The Norwegian Football Federation said the profit would be "earmarked for the organisation's emergency relief work on the ground in Gaza".`\
+https://nytimes.com/athletic/6631437/2025/09/15/norway-israel-gaza-world-cup-qualifier/
+
+**Avoiding a Strike, L.I.R.R. Unions Ask Trump to Get Talks on Track**\
+`A strike by workers on the Long Island Rail Road, the United States’ largest commuter rail service, has been averted for now, and could be postponed for several months.`\
+https://nytimes.com/2025/09/15/nyregion/lirr-strike-mta-trump.html
+
 **At an Emmys Bash With Noah Wyle, Katherine LaNasa and Lots of Champagne**\
 `After the awards ceremony, stars packed the HBO Max party at the San Vicente Bungalows in West Hollywood.`\
 https://nytimes.com/2025/09/15/style/emmys-hbo-after-party.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6631244/2025/09/15/sf-giants-bryce-eldridge-callup-
 **Submit a question for Pete Sampson's Notre Dame football mailbag**\
 `Notre Dame is 0-2 after season-opening losses to Miami and Texas A&M, and there's plenty to talk about around the Fighting Irish.`\
 https://nytimes.com/athletic/6631552/2025/09/15/submit-a-question-for-pete-sampsons-notre-dame-football-mailbag-2/
-
-**Rob Reiner Takes the Mel Brooks Questionnaire**\
-`The comedy legend devised a personality test for us. First up: the “Spinal Tap II” director.`\
-https://nytimes.com/interactive/2025/09/15/t-magazine/reiner-brooks-questionnaire.html
-
-**Country’s Latest Feminist Corrective**\
-`Our critic’s new song of the week, “6 Months Later” by Megan Moroney, is in the lineage of Dolly, the Chicks and Shania.`\
-https://nytimes.com/video/podcasts/100000010395934/countrys-latest-feminist-corrective.html
 
