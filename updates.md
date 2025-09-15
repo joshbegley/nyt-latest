@@ -1,3 +1,15 @@
+**Dodger Details: The offense's arrival, Shohei Ohtani's October pitching and more**\
+`The Dodgers offense has found a 24-hour revival in the Bay Area, putting up 23 runs over the last two games.`\
+https://nytimes.com/athletic/6629577/2025/09/14/dodger-offense-shohei-ohtani-october-pitching/
+
+**Incredible men's marathon ending goes to a photo finish to decide world champion**\
+`Tanzania's Alphonce Felix Simbu edged Germany's Amanal Petros with a stirring final kick Monday in Tokyo. Both finished in 2:09.48.`\
+https://nytimes.com/athletic/6629658/2025/09/14/mens-marathon-photo-finish-world-championships-alphonce-simbu/
+
+**After trying week, Ravens' defense takes frustration out on Joe Flacco, Browns**\
+`After blowing a 15-point fourth-quarter lead in Week 1, the Baltimore defense was dominant in smothering Flacco and Cleveland's offense.`\
+https://nytimes.com/athletic/6629377/2025/09/14/ravens-defense-browns-joe-flacco/
+
 **Lions get the train rolling in bounce-back, personal win against Bears, Ben Johnson**\
 `Jared Goff threw for 334 yards and five TDs and the offense averaged a franchise-record 8.8 yards per play in scoring 52 points.`\
 https://nytimes.com/athletic/6629537/2025/09/14/lions-win-jared-goff-bears-ben-johnson/

@@ -1,8 +1,16 @@
+**Dodger Details: The offense's arrival, Shohei Ohtani's October pitching and more**\
+`The Dodgers offense has found a 24-hour revival in the Bay Area, putting up 23 runs over the last two games.`\
+https://nytimes.com/athletic/6629577/2025/09/14/dodger-offense-shohei-ohtani-october-pitching/
+
+**Incredible men's marathon ending goes to a photo finish to decide world champion**\
+`Tanzania's Alphonce Felix Simbu edged Germany's Amanal Petros with a stirring final kick Monday in Tokyo. Both finished in 2:09.48.`\
+https://nytimes.com/athletic/6629658/2025/09/14/mens-marathon-photo-finish-world-championships-alphonce-simbu/
+
 **Lions get the train rolling in bounce-back, personal win against Bears, Ben Johnson**\
 `Jared Goff threw for 334 yards and five TDs and the offense averaged a franchise-record 8.8 yards per play in scoring 52 points.`\
 https://nytimes.com/athletic/6629537/2025/09/14/lions-win-jared-goff-bears-ben-johnson/
 
-**After trying week, Ravens' defense takes its frustration out on Joe Flacco and Browns**\
+**After trying week, Ravens' defense takes frustration out on Joe Flacco, Browns**\
 `After blowing a 15-point fourth-quarter lead in Week 1, the Baltimore defense was dominant in smothering Flacco and Cleveland's offense.`\
 https://nytimes.com/athletic/6629377/2025/09/14/ravens-defense-browns-joe-flacco/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6629351/2025/09/14/mac-jones-49ers-saints-brock-pur
 **Panthers vs. Cardinals takeaways: Arizona wins despite Bryce Young's career day**\
 `The Panthers QB passed for 328 yards, but the Cardinals held on, moving to 2-0.`\
 https://nytimes.com/athletic/6629413/2025/09/14/panthers-cardinals-score-result-takeaways-nfl/
-
-**Virginia Tech needs a head coach. How realistic is Michael Vick or Shane Beamer?**\
-`The Hokies have struggled since longtime coach Frank Beamer retired in 2015. `\
-https://nytimes.com/athletic/6629452/2025/09/14/virginia-tech-coaching-candidates-michael-vick-shane-beamer/
-
-**Sanders sidesteps questions on report that he didn't want Ravens to draft him**\
-`"Whatever happened in the past, it is what it is," Sanders said Sunday when asked about the report.`\
-https://nytimes.com/athletic/6628202/2025/09/14/shedeur-sanders-ravens-browns-draft/
 

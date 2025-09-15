@@ -1,3 +1,7 @@
+**What to know about Joe Burrow, turf toe and the Bengals' path forward**\
+`Jake Browning stepped in to lead a dramatic win over the Jaguars on Sunday, and will be called on some more in the coming weeks.`\
+https://nytimes.com/athletic/6629554/2025/09/14/joe-burrow-turf-toe-bengals/
+
 **Dodger Details: The offense's arrival, Shohei Ohtani's October pitching and more**\
 `The Dodgers offense has found a 24-hour revival in the Bay Area, putting up 23 runs over the last two games.`\
 https://nytimes.com/athletic/6629577/2025/09/14/dodger-offense-shohei-ohtani-october-pitching/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/14/pageoneplus/no-corrections-sept-15-2025.html
 **Mac Jones overcomes nerves, rewards 49ers' confidence and buys Brock Purdy time**\
 `Jones affirmed the 49ers' faith, delivering in a pass-heavy game plan and showing why the team won't rush Purdy back into action.`\
 https://nytimes.com/athletic/6629351/2025/09/14/mac-jones-49ers-saints-brock-purdy/
-
-**Panthers vs. Cardinals takeaways: Arizona wins despite Bryce Young's career day**\
-`The Panthers QB passed for 328 yards, but the Cardinals held on, moving to 2-0.`\
-https://nytimes.com/athletic/6629413/2025/09/14/panthers-cardinals-score-result-takeaways-nfl/
 
