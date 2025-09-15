@@ -1,3 +1,7 @@
+**With Ahkello Witherspoon on IR, Rams now in need of CB help**\
+`Stephon Gilmore and Kendall Fuller are two free-agent options who could make sense for the Rams following Witherspoon's injury.`\
+https://nytimes.com/athletic/6632480/2025/09/15/rams-ahkello-witherspoon-injured-reserve/
+
 **How to watch Athletics at Red Sox: Time, TV, streaming for September 16**\
 `Find out how to watch the Athletics play the Boston Red Sox, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6632673/2025/09/15/athletics-vs-red-sox-stream-how-to-watch-sept-16/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/15/sports/john-penton-dead.html
 **Canadiens' rebuild might be over, but an incomplete construction project remains**\
 `Jeff Gorton and Kent Hughes are excited for what the Canadiens have become but left a clear sense there is more change to come.`\
 https://nytimes.com/athletic/6632490/2025/09/15/canadiens-hughes-gorton-roster-construction/
-
-**The White House Vowed a Vast Crackdown on Liberal Groups**\
-`Also, Trump said U.S. military struck another Venezuelan boat. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2025/09/15/briefing/white-house-charlie-kirk-tiktok-sale.html
 

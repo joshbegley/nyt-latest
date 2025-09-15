@@ -1,3 +1,11 @@
+**How to watch Athletics at Red Sox: Time, TV, streaming for September 16**\
+`Find out how to watch the Athletics play the Boston Red Sox, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6632673/2025/09/15/athletics-vs-red-sox-stream-how-to-watch-sept-16/
+
+**How to watch Guardians at Tigers: Time, TV, streaming for September 16**\
+`Find out how to watch the Cleveland Guardians play the Detroit Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6632669/2025/09/15/guardians-vs-tigers-stream-how-to-watch-sept-16/
+
 **New Crypto Super PAC Garners $100 Million to Help Push Industry Agenda**\
 `The effort, called the Fellowship PAC, is the crypto industry’s latest move to help elect legislators that will force through its interests in Washington.`\
 https://nytimes.com/2025/09/15/technology/crypto-fellowship-super-pac-100-million-budget.html
