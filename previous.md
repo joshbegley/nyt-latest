@@ -1,3 +1,7 @@
+**Breanna Stewart's Game 2 status uncertain after injuring left leg**\
+`The Liberty have not released an injury report ahead of Wednesday's game, although they are expected to practice on Tuesday.`\
+https://nytimes.com/athletic/6631395/2025/09/15/breanna-stewart-liberty-injury-status-wnba/
+
 **Who You’ll See on Screens, Stages, Shows and Pages This Fall**\
 `Take a look at our photos and video of Doja Cat, Leonard DiCaprio, Keanu Reeves and Kara Walker, artists whose work will be in the spotlight this season.`\
 https://nytimes.com/card/2025/09/15/arts/fall-broadway-music-tv-doja-cat-leonardo-dicaprio
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/15/us/politics/trump-dc-crackdown-fbi-prosecutors.ht
 **Trump Says Companies Should Stop Reporting Finances Every Quarter**\
 `The president proposed changing the rules to require twice-yearly reports, revisiting an idea from his first term.`\
 https://nytimes.com/2025/09/15/business/trump-company-quarterly-reports.html
-
-**5 Workout Supplements Worth Trying**\
-`There are thousands of options that promise to boost your fitness. Only a handful are backed by solid evidence.`\
-https://nytimes.com/2025/09/15/well/move/which-fitness-supplements-work.html
 

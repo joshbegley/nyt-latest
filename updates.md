@@ -1,3 +1,7 @@
+**Breanna Stewart's Game 2 status uncertain after injuring left leg**\
+`The Liberty have not released an injury report ahead of Wednesday's game, although they are expected to practice on Tuesday.`\
+https://nytimes.com/athletic/6631395/2025/09/15/breanna-stewart-liberty-injury-status-wnba/
+
 **Who You’ll See on Screens, Stages, Shows and Pages This Fall**\
 `Take a look at our photos and video of Doja Cat, Leonard DiCaprio, Keanu Reeves and Kara Walker, artists whose work will be in the spotlight this season.`\
 https://nytimes.com/card/2025/09/15/arts/fall-broadway-music-tv-doja-cat-leonardo-dicaprio
