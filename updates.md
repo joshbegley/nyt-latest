@@ -1,3 +1,7 @@
+**Word of the Day: sartorial**\
+`This word has appeared in 126 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/09/15/learning/word-of-the-day-sartorial.html
+
 **Khusanov is the human wrecking ball who is solving City's problem position**\
 `The Uzbek offers Pep Guardiola a raw physicality at right-back, as he proved against Manchester United on Sunday `\
 https://nytimes.com/athletic/6628164/2025/09/15/abdoukidir-khusanov-manchester-city-right-back/
