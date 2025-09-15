@@ -1,3 +1,11 @@
+**What we learned in NFL Week 2: Chiefs face uphill climb, Bengals hold their breath**\
+`Kansas City is somewhere it's never been in the Patrick Mahomes era while Cincinnati awaits word of Joe Burrow's latest injury.`\
+https://nytimes.com/athletic/6629574/2025/09/15/nfl-week-2-takeaways-eagles-chiefs-joe-burrow/
+
+**What matters (and doesn't) from the Chiefs' 0-2 start: Sando's Pick Six**\
+`The Chiefs are 0-2 for the first time in the Mahomes era, and while the sky is not falling, their margin for error is growing thinner.`\
+https://nytimes.com/athletic/6627402/2025/09/15/chiefs-loss-patrick-mahomes-eagles-pick-six/
+
 **The New York Times International Edition in Print for Tuesday, Sep. 16, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/09/15/todays-new-york-times-international-edition
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6630548/2025/09/15/phillies-vs-dodgers-stream-how-t
 **How to watch Reds at Cardinals: Time, TV, streaming for September 15**\
 `Find out how to watch the Cincinnati Reds play the St. Louis Cardinals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6630541/2025/09/15/reds-vs-cardinals-stream-how-to-watch-sept-15/
-
-**Emmys Host Donates to Charity, With No Help From Stars**\
-`Nate Bargatze, host of the 77th Emmy Awards, pledged $100,000 to the Boys & Girls Clubs of America. To keep speeches short, he deducted $1,000 for every second a winner went over their given time.`\
-https://nytimes.com/video/arts/television/100000010398991/emmys-nate-bargatze-charity.html
-
-**Best and Worst Moments From the 2025 Emmy Awards**\
-`It was a great night for new series, first-time winners and a late-night show canceled by the ceremony’s broadcaster. The writing and gags? Not as great.`\
-https://nytimes.com/2025/09/15/arts/television/emmys-best-worst-moments.html
 
