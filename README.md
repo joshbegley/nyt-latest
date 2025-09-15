@@ -1,3 +1,7 @@
+**Ricky Hatton, the brilliant everyman who conquered the boxing world**\
+`From his humble origins in a Manchester pub, the British boxer didn't just claim titles: he won hearts and minds`\
+https://nytimes.com/athletic/6629126/2025/09/15/ricky-hatton-boxing-death-legacy-career/
+
 **Word of the Day: sartorial**\
 `This word has appeared in 126 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/09/15/learning/word-of-the-day-sartorial.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6619375/2025/09/15/champions-league-guide-how-to-wa
 **Creativity? Check. Goalscorers? Everton look to be lacking in that department**\
 `David Moyes' side are brimming with fresh creativity but with just Beto and Thierno Barry to call upon, they feel underpowered up front`\
 https://nytimes.com/athletic/6626434/2025/09/15/everton-goals-strikers-beto-barry/
-
-**Pino and Uche may take time to adapt at Palace. But Glasner knows patience can be a virtue**\
-`Just as it took time for Sarr and Kamada to adapt to Glasner’s system, it is likely to be the same for Pino and Uche`\
-https://nytimes.com/athletic/6622776/2025/09/15/yeremy-pino-christantus-uche-oliver-glasner/
 
