@@ -1,3 +1,7 @@
+**The White House Vowed a Vast Crackdown on Liberal Groups**\
+`Also, Trump said U.S. military struck another Venezuelan boat. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/09/15/briefing/white-house-charlie-kirk-tiktok-sale.html
+
 **Kennedy Adds Five New Members to Vaccine Committee**\
 `The committee, whose members were appointed by the health secretary and include vaccine skeptics, will meet on Thursday to review recommendations for several shots.`\
 https://nytimes.com/2025/09/15/health/rfk-jr-hhs-vaccine-committee-members.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/15/learning/how-to-use-the-learning-network.html
 **Cuomo, Staunch Supporter of Israel, Says ‘Horrific’ Gaza War Must End**\
 `The remarks were a departure for former Gov. Andrew M. Cuomo, who trails Assemblyman Zohran Mamdani in the New York City mayor’s race.`\
 https://nytimes.com/2025/09/15/nyregion/andrew-cuomo-israel-gaza.html
-
-**Maduro Calls U.S. Attack on Boat ‘A Heinous Crime,’ as Trump Announces Another**\
-`The Venezuela leader, Nicolás Maduro, claimed that the Trump administration was trying to start a war in the Caribbean.`\
-https://nytimes.com/2025/09/15/world/americas/venezuela-boat-strikes-maduro-trump.html
 
