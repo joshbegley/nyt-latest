@@ -1,40 +1,40 @@
-**Voices From the 2025 Emmys Red Carpet**\
-`Nominees for the 77th Emmy Awards spoke with The New York Times on the red carpet ahead of the ceremony on Sunday.`\
-https://nytimes.com/video/arts/100000010398722/emmys-2025-red-carpet.html
+**Emmys Host Donates to Charity, With No Help From Stars**\
+`Nate Bargatze, host of the 77th Emmy Awards, pledged $100,000 to the Boys & Girls Clubs of America. To keep speeches short, he deducted $1,000 for every second a winner went over their given time.`\
+https://nytimes.com/video/arts/television/100000010398991/emmys-nate-bargatze-charity.html
 
-**Rubio, in Israel, Meets Netanyahu as Trump Grows Impatient**\
-`Secretary of State Marco Rubio planned to discuss President Trump’s desire to see the war in Gaza end soon.`\
-https://nytimes.com/2025/09/15/us/politics/rubio-israel-netanyahu-trump-gaza.html
+**Best and Worst Moments From the 2025 Emmy Awards**\
+`It was a great night for new series, first-time winners and a late-night show canceled by the ceremony’s broadcaster. The writing and gags? Not as great.`\
+https://nytimes.com/2025/09/15/arts/television/emmys-best-worst-moments.html
 
-**Brighton CEO Paul Barber joins board of Melbourne Victory**\
-`Barber will represent Brighton's owner-chairman Tony Bloom, who bought a 19.1 per cent stake in the Australian A-League club in March.`\
-https://nytimes.com/athletic/6630403/2025/09/15/brighton-paul-barber-melbourne-victory/
+**A ‘Mural’ of Garage Doors, Painted by Students**\
+`Publicolor, a nonprofit, gets teenagers painting. Usually they work in schools, but for a project downtown, they have a different canvas.`\
+https://nytimes.com/2025/09/15/nyregion/publicolor-painting-students.html
 
-**College Disorientation**\
-`Things are different on college campuses this year.`\
-https://nytimes.com/2025/09/15/podcasts/college-disorientation-this-american-life-nyt-audio.html
+**The ‘Demonic’ Hypocrisy of Trump’s Plea for Peace**\
+`Even in mourning, the president drives our country closer to the brink.`\
+https://nytimes.com/2025/09/15/opinion/trump-charlie-kirk.html
 
-**Lasher, Nadler’s Protégé, Says He Is Running to Succeed His Mentor**\
-`Micah Lasher, a state lawmaker, enters what is expected to be a crowded Democratic field competing for Representative Jerrold Nadler’s congressional seat in Manhattan.`\
-https://nytimes.com/2025/09/15/nyregion/nyc-micah-lasher-jerrold-nadler.html
+**Many Conservatives View Kirk’s Death as a Galvanizing Force for Years to Come**\
+`Calling Charlie Kirk a martyr, conservatives see an opportunity to supercharge the movement the right-wing leader began and to cement conservative Christian values in American life.`\
+https://nytimes.com/2025/09/15/us/charlie-kirk-conservatives-christians-movement-future.html
 
-**How Mamdani Proposes to Make New York City Safer**\
-`Zohran Mamdani wants New York to follow the model of other cities that send mental health teams instead of the police to help people in crisis. But the plan would be expensive.`\
-https://nytimes.com/2025/09/15/nyregion/mamdani-public-safety-plan.html
+**The Supreme Court’s Fast Track Needs a Name, and the Justices Are Split**\
+`Critics call the expedited rulings, which have become routine in the second Trump administration, the “shadow docket.” The justices have other ideas.`\
+https://nytimes.com/2025/09/15/us/politics/supreme-court-shadow-docket.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/09/15/crosswords/spelling-bee-forum.html
+**What’s With All the Beards?**\
+`More and more men seem to be putting down the razor and letting their whiskers grow. Our critic examines the history of the trend and what it might mean.`\
+https://nytimes.com/2025/09/15/fashion/hair-facial-beard-mustache.html
 
-**Lamine Yamal’s Spain-Barcelona painkillers row – should we be worried?**\
-`An injury suffered on Spain duty last week meant the 18-year-old winger was ruled out for Barca`\
-https://nytimes.com/athletic/6629630/2025/09/15/lamine-yamal-spain-barcelona-injury/
+**Trump Redirects Millions to Historically Black Colleges, Charter Schools**\
+`The Trump administration is cutting money from programs that have supported minority students, including at other universities.`\
+https://nytimes.com/2025/09/15/us/hbcus-trump-administration-funding.html
 
-**Key Moments from the 2025 Emmy Awards**\
-`“The Studio,” “Adolescence” and “Severance” won big at the 77th Emmy Awards, one of television’s most prestigious honors.`\
-https://nytimes.com/video/arts/television/100000010398932/emmy-awards.html
+**A Novel That Captures the Agony and Absurdity of Covid Brain Fog**\
+`In “Will There Ever Be Another You,” Patricia Lockwood recounts the pandemic’s devastating effects on her life.`\
+https://nytimes.com/2025/09/15/books/review/patricia-lockwood-will-there-ever-be-another-you.html
 
-**Ricky Hatton, the brilliant everyman who conquered the boxing world**\
-`From his humble origins in a Manchester pub, the British boxer didn't just claim titles: he won hearts and minds`\
-https://nytimes.com/athletic/6629126/2025/09/15/ricky-hatton-boxing-death-legacy-career/
+**Creating the ‘Feeling of Morocco’ in Texas**\
+`Though nearly dissuaded by the listing photos, a family made a Tuscan-style house into an indoor-outdoor destination inspired by their travels.`\
+https://nytimes.com/2025/09/15/realestate/creating-the-feeling-of-morocco-in-texas.html
 
