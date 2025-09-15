@@ -1,3 +1,11 @@
+**Nvidia Broke Antitrust Law, China Says, as Tensions With U.S. Mount**\
+`Chinese regulators, on a day of U.S. trade talks, said that an acquisition by Nvidia had violated antimonopoly regulations.`\
+https://nytimes.com/2025/09/15/business/nvidia-china-antitrust.html
+
+**How to watch Dolphins at Bills: Time, TV, streaming**\
+`Find out how to watch the Miami Dolphins play the Buffalo Bills, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6630571/2025/09/15/dolphins-vs-bills-stream-how-to-watch-sept-18/
+
 **How to watch Giants at Diamondbacks: Time, TV, streaming for September 15**\
 `Find out how to watch the San Francisco Giants play the Arizona Diamondbacks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6630554/2025/09/15/giants-vs-diamondbacks-stream-how-to-watch-sept-15/
