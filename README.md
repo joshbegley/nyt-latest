@@ -1,3 +1,15 @@
+**Fox Host Apologizes for Suggesting Lethal Injections for Mentally Ill Homeless People**\
+`“Just kill ’em,” Brian Kilmeade said on “Fox & Friends,” during a discussion about a deadly stabbing in North Carolina in which a homeless man was charged.`\
+https://nytimes.com/2025/09/15/business/media/fox-host-homeless-comment-brian-kilmeade-apology.html
+
+**Palace's Benitez, Canvot to make debuts against Millwall**\
+`Adam Wharton, Eddie Nketiah and Cheick Doucoure will not be available for the Carabao Cup tie`\
+https://nytimes.com/athletic/6631056/2025/09/15/crystal-palace-team-news-millwall/
+
+**The Wealth Tax Plan That’s Roiling New York and Paris**\
+`Endorsed by Zohran Mamdani and criticized by business leaders, the idea involves hitting millionaires with a stiff levy.`\
+https://nytimes.com/2025/09/15/business/dealbook/wealth-tax-new-york-mamdani.html
+
 **Emmy Awards: How to Watch the Winners**\
 `“The Studio” took home the most trophies, and “The Pitt” and “Adolescence” also cleaned up. Here’s where to stream the major Emmy winners.`\
 https://nytimes.com/2025/09/15/arts/television/stream-emmy-winners.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/15/world/europe/madeleine-mccann-suspect-uk-police-i
 ** Candid Photos From the Emmys**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/emmys-candid-photos
-
-**gws-emmys-fashion-red-carpet-look**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/emmys-fashion-red-carpet-look
-
-**Elon Musk Buys $1 Billion in Tesla Stock as Board Defends His Pay**\
-`Tesla’s chief executive bought the stock after the company’s board proposed paying him nearly $1 trillion if he achieves certain performance goals.`\
-https://nytimes.com/2025/09/15/business/elon-musk-buys-tesla-shares.html
-
-**Arab Leaders Meet to Weigh Response to Israel’s Attack in Qatar**\
-`At a summit in the Qatari capital, Doha, participants are deciding whether to take tangible actions against Israel following last week’s strike.`\
-https://nytimes.com/2025/09/15/world/middleeast/qatar-arab-leaders-israel.html
 
