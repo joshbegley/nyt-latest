@@ -1,3 +1,35 @@
+**How to watch Washington at Washington State: Time, TV, streaming**\
+`Find out how to watch the Washington Huskies play the Washington State Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6632773/2025/09/15/washington-vs-washington-state-stream-how-to-watch-sept-20/
+
+**How to watch Temple at Georgia Tech: Time, TV, streaming**\
+`Find out how to watch the Temple Owls play the Georgia Tech Yellow Jackets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6632770/2025/09/15/temple-vs-georgia-tech-stream-how-to-watch-sept-20/
+
+**How to watch Florida at Miami (FL): Time, TV, streaming**\
+`Find out how to watch the Florida Gators play the Miami (FL) Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6632764/2025/09/15/florida-vs-miami-fl-stream-how-to-watch-sept-20/
+
+**How to watch Illinois at Indiana: Time, TV, streaming**\
+`Find out how to watch the Illinois Fighting Illini play the Indiana Hoosiers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6632760/2025/09/15/illinois-vs-indiana-stream-how-to-watch-sept-20/
+
+**How to watch Georgia State at Vanderbilt: Time, TV, streaming**\
+`Find out how to watch the Georgia State Panthers play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6632757/2025/09/15/georgia-state-vs-vanderbilt-stream-how-to-watch-sept-20/
+
+**How to watch South Carolina at Missouri: Time, TV, streaming**\
+`Find out how to watch the South Carolina Gamecocks play the Missouri Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6632754/2025/09/15/south-carolina-vs-missouri-stream-how-to-watch-sept-20/
+
+**How to watch Northern Illinois at Mississippi State: Time, TV, streaming**\
+`Find out how to watch the Northern Illinois Huskies play the Mississippi State Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6632751/2025/09/15/northern-illinois-vs-mississippi-state-stream-how-to-watch-sept-20/
+
+**Weekly Student News Quiz: Charlie Kirk, Test Scores, Mars Rock**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/09/15/learning/16StudentNewsQuizLN.html
+
 **What Does ‘Real Unity’ Mean to the White House?**\
 `After Charlie Kirk’s death, the Trump administration has identified a bigger culprit: leftists bent on violence.`\
 https://nytimes.com/2025/09/15/us/politics/jd-vance-charlie-kirk-trump.html
@@ -7,36 +39,4 @@ https://nytimes.com/2025/09/15/us/politics/jd-vance-charlie-kirk-trump.html
 <p>Leave your questions here. Please include your city.</p>
 `\
 https://nytimes.com/athletic/6632651/2025/09/15/submit-a-question-for-stewart-mandels-college-football-mailbag-315/
-
-**With Ahkello Witherspoon on IR, Rams now in need of CB help**\
-`Stephon Gilmore and Kendall Fuller are two free-agent options who could make sense for the Rams following Witherspoon's injury.`\
-https://nytimes.com/athletic/6632480/2025/09/15/rams-ahkello-witherspoon-injured-reserve/
-
-**How to watch Athletics at Red Sox: Time, TV, streaming for September 16**\
-`Find out how to watch the Athletics play the Boston Red Sox, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6632673/2025/09/15/athletics-vs-red-sox-stream-how-to-watch-sept-16/
-
-**How to watch Guardians at Tigers: Time, TV, streaming for September 16**\
-`Find out how to watch the Cleveland Guardians play the Detroit Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6632669/2025/09/15/guardians-vs-tigers-stream-how-to-watch-sept-16/
-
-**New Crypto Super PAC Garners $100 Million to Help Push Industry Agenda**\
-`The effort, called the Fellowship PAC, is the crypto industry’s latest move to help elect legislators that will force through its interests in Washington.`\
-https://nytimes.com/2025/09/15/technology/crypto-fellowship-super-pac-100-million-budget.html
-
-**If Blue Jackets don't end five-year playoff drought, season will be a 'failure'**\
-`On the eve of training camp, one player said the Blue Jackets have "a little more swagger" this year.`\
-https://nytimes.com/athletic/6631790/2025/09/15/blue-jackets-playoffs-werenski/
-
-**Map: 3.5-Magnitude Earthquake Strikes the San Francisco Bay Area**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/09/15/us/san-francisco-bay-area-quake-tracker.html
-
-**Tom Brady among stars in Saudi Arabia flag football event: Olympics next?**\
-`Seven-time Super Bowl champ to participate in exhibition, which will be played under Olympic flag football rules.`\
-https://nytimes.com/athletic/6632497/2025/09/15/tom-brady-fanatics-flag-football-saudi-arabia/
-
-**Panthers' OL takes 2 big hits, just in time for the Falcons and their revived pass rush**\
-`Robert Hunt and Austin Corbett were placed on IR after the Panthers dropped to 0-2 with the loss to the Cardinals.`\
-https://nytimes.com/athletic/6632443/2025/09/15/carolina-panthers-offensive-line-injuries/
 
