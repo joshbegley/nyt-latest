@@ -1,3 +1,11 @@
+**Noah Lyles, a changing of the 100-meter guard, and the difficulty of staying on top**\
+`Noah Lyles reached the mountaintop in the 100-meter. On Sunday, Jamaica's Oblique Seville took his spot. What comes next for the American?`\
+https://nytimes.com/athletic/6629097/2025/09/14/noah-lyles-100-meter-world-championships-oblique-seville/
+
+**NWSL match abandoned after Racing Louisville midfielder Savannah DeMelo collapses on field**\
+`DeMelo was "stable and alert" when transported to a local hospital for further evaluation.`\
+https://nytimes.com/athletic/6629771/2025/09/14/nwsl-match-abandon-racing-louisville-savannah-demelo/
+
 **Matthew Stafford, the Rams' commander in chief, was as cool as can be vs. Titans**\
 `Stafford finished 23-of-33 for 298 yards, two touchdowns and an interception and turned a three-point halftime deficit into a 33-19 victory.`\
 https://nytimes.com/athletic/6629293/2025/09/14/matthew-stafford-rams-titans-week-2/
