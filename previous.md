@@ -1,3 +1,15 @@
+**Republicans Honor Charlie Kirk at Vigil in the Capitol**\
+`Only a handful of Democrats and none of the party’s top leaders attended the ceremony, an outpouring of praise and mourning for the right-wing activist, who was assassinated last week.`\
+https://nytimes.com/2025/09/15/us/politics/republicans-charlie-kirk-vigil-capitol.html
+
+**Schwarzenegger Urges Voters to Reject California Redistricting Measure**\
+`Arnold Schwarzenegger issued his first public rebuke since Gov. Gavin Newsom placed a gerrymander plan on the ballot.`\
+https://nytimes.com/2025/09/15/us/schwarzenegger-california-redistricting-newsom.html
+
+**Astros' Yordan Alvarez exits pivotal game with left ankle sprain**\
+`Losing Alvarez for any length of time would stagger an already inconsistent Astros lineup.`\
+https://nytimes.com/athletic/6632937/2025/09/15/houston-astros-yordan-alvarez-injury-exit/
+
 **How to watch Sam Houston at Texas: Time, TV, streaming**\
 `Find out how to watch the Sam Houston Bearkats play the Texas Longhorns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6632913/2025/09/15/sam-houston-vs-texas-stream-how-to-watch-sept-20/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6632627/2025/09/15/racing-reign-resume-play-savanna
 **How to watch Angels at Brewers: Time, TV, streaming for September 16**\
 `Find out how to watch the Los Angeles Angels play the Milwaukee Brewers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6632839/2025/09/15/angels-vs-brewers-stream-how-to-watch-sept-16/
-
-**How to watch Padres at Mets: Time, TV, streaming for September 16**\
-`Find out how to watch the San Diego Padres play the New York Mets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6632836/2025/09/15/padres-vs-mets-stream-how-to-watch-sept-16/
-
-**How to watch Braves at Nationals: Time, TV, streaming for September 16**\
-`Find out how to watch the Atlanta Braves play the Washington Nationals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6632831/2025/09/15/braves-vs-nationals-stream-how-to-watch-sept-16/
-
-**How to watch Mariners at Royals: Time, TV, streaming for September 16**\
-`Find out how to watch the Seattle Mariners play the Kansas City Royals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6632828/2025/09/15/mariners-vs-royals-stream-how-to-watch-sept-16/
 
