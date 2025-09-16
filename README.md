@@ -1,3 +1,19 @@
+**How to watch Cowboys at Bears: Time, TV, streaming**\
+`Find out how to watch the Dallas Cowboys play the Chicago Bears, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6635805/2025/09/16/cowboys-vs-bears-stream-how-to-watch-sept-21/
+
+**How to watch Saints at Seahawks: Time, TV, streaming**\
+`Find out how to watch the New Orleans Saints play the Seattle Seahawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6635807/2025/09/16/saints-vs-seahawks-stream-how-to-watch-sept-21/
+
+**How to watch Cardinals at 49ers: Time, TV, streaming**\
+`Find out how to watch the Arizona Cardinals play the San Francisco 49ers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6635800/2025/09/16/cardinals-vs-49ers-stream-how-to-watch-sept-21/
+
+**How to watch Broncos at Chargers: Time, TV, streaming**\
+`Find out how to watch the Denver Broncos play the Los Angeles Chargers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6635796/2025/09/16/broncos-vs-chargers-stream-how-to-watch-sept-21/
+
 **Strip Club Executives Bribed Tax Auditor With Lap Dances, Charges Say**\
 `Five executives of RCI Hospitality Holdings, which owns clubs across the country, were charged in the scheme. The company avoided $8 million in New York taxes, prosecutors say.`\
 https://nytimes.com/2025/09/16/nyregion/rci-strip-club-lap-dance-bribe-charges.html
@@ -17,20 +33,4 @@ https://nytimes.com/2025/09/16/nyregion/brooklyn-judge-threat-indictment.html
 **Eagles-Chiefs Super Bowl rematch draws record-setting 33.8 million viewers**\
 `The Week 2 game tied the record for most-watched regular-season Sunday game since the NFL started tracking ratings in 1988.`\
 https://nytimes.com/athletic/6635648/2025/09/16/eagles-chiefs-super-bowl-rematch-ratings/
-
-**A Forgotten Cosmic Impact Was Hidden in a Museum’s Glass Shards**\
-`Scientists thought that an Australian museum’s collection of tektites came from an 800,000-year-old asteroid strike on Earth. Some of them turned out to be much older.`\
-https://nytimes.com/2025/09/16/science/tektites-australia-asteroid-impact.html
-
-**John McQueen, Who Made Art Out of Burrs, Bark and Vines, Is Dead at 82**\
-`A pioneer of contemporary basketry, he used plant material from his backyard to create ingenious forms that blurred the line between art and craft.`\
-https://nytimes.com/2025/09/16/arts/john-mcqueen-dead.html
-
-**Ex-Midshipman Is Charged in Threat That Led to 2 Injuries at Naval Academy**\
-`The threat, which was made on social media, caused fears of an active shooter on the campus last week, leading to one person being shot and another injured.`\
-https://nytimes.com/2025/09/16/us/naval-academy-threat-arrest.html
-
-**Amber Ruffin Loves This Memento**\
-`To celebrate the opening of “The Wiz” on Broadway, the writer and comedian put a ring on it.`\
-https://nytimes.com/2025/09/16/style/amber-ruffin-loves-this-memento.html
 
