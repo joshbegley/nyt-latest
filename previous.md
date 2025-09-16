@@ -1,3 +1,7 @@
+**House Passes D.C. Crime Bills as Trump Crackdown Continues**\
+`The legislation is part of a package that House Republicans are pushing to impose more federal control over the District in line with President Trump’s demands.`\
+https://nytimes.com/2025/09/16/us/politics/house-dc-crime-bills.html
+
 **Israel’s Push Into Gaza City**\
 `We bring together pieces of Times journalism to help you understand the big picture.`\
 https://nytimes.com/2025/09/16/briefing/israel-gaza-city-trump-state-visit-uk.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6635340/2025/09/16/tarik-skubal-detroit-tigers-heal
 **Federal Courts Want More Money From Congress for Security**\
 `The judiciary’s leadership met in Washington, emphasized their budgetary needs and said that threats against judges remained a problem.`\
 https://nytimes.com/2025/09/16/us/politics/federal-judges-security-threats.html
-
-**Crystal Palace fined €10,000 by UEFA for Marinakis banner**\
-`The banner was displayed by some supporters during Palace's home game against Nottingham Forest on August 24.`\
-https://nytimes.com/athletic/6635316/2025/09/16/crystal-palace-forest-marinakis-banner-fine/
 

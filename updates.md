@@ -1,3 +1,7 @@
+**House Passes D.C. Crime Bills as Trump Crackdown Continues**\
+`The legislation is part of a package that House Republicans are pushing to impose more federal control over the District in line with President Trump’s demands.`\
+https://nytimes.com/2025/09/16/us/politics/house-dc-crime-bills.html
+
 **Israel’s Push Into Gaza City**\
 `We bring together pieces of Times journalism to help you understand the big picture.`\
 https://nytimes.com/2025/09/16/briefing/israel-gaza-city-trump-state-visit-uk.html
