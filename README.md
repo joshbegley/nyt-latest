@@ -1,3 +1,11 @@
+**Former C.D.C. Director to Tell Lawmakers She Was ‘Fired for Holding the Line’**\
+`Susan Monarez is set to provide her first detailed account of her ouster in testimony before the Senate Health Committee on Wednesday.`\
+https://nytimes.com/2025/09/16/us/politics/cdc-monarez-testimony-rfk.html
+
+**Read the Charges Against Tyler Robinson**\
+`Robinson will be charged with aggravated murder, an offense that is eligible for the death penalty, according to Jeff Gray, the Utah County attorney.`\
+https://nytimes.com/interactive/2025/09/16/us/indictment-robinson.html
+
 **Rams coach Sean McVay tears plantar fascia in win over Titans**\
 `McVay revealed that he suffered the injury while coaching from the sideline of his team's 33-19 victory on Sunday.`\
 https://nytimes.com/athletic/6634746/2025/09/16/rams-sean-mcvay-tears-plantar-fascia/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6634649/2025/09/16/nfl-production-meetings-tom-brad
 **Judge Dismisses State Terrorism Charges Against Luigi Mangione**\
 `Luigi Mangione, who is accused of killing UnitedHealthcare’s chief executive last year, had New York State terrorism charges against him dropped. He still faces a second-degree murder charge.`\
 https://nytimes.com/video/nyregion/100000010402450/luigi-mangione-terrorism-charges.html
-
-**8 Songs That Will Catch You Up on This Year’s Music**\
-`Hear recent tracks from Bon Iver, Dijon, Karol G and more.`\
-https://nytimes.com/2025/09/16/arts/music/amplifier-newsletter-bon-iver-new-songs.html
-
-**Man Known as the ‘Tinder Swindler’ Is Arrested in Georgia**\
-`The man, Shimon Hayut, has been accused of using multiple aliases to swindle women he met on dating apps out of millions of dollars.`\
-https://nytimes.com/2025/09/16/world/europe/tinder-swindler-simon-leviev-arrested.html
 
