@@ -1,3 +1,23 @@
+**Russia Indoctrinates Children From Occupied Ukraine at 210 Sites, Study Says**\
+`War crime investigators at Yale discovered a program of re-education and military and police training that was larger than estimated earlier.`\
+https://nytimes.com/2025/09/16/world/europe/russia-re-education-camps-ukrainian-children.html
+
+**Barcelona to play second home game at 6,000-capacity ground as Camp Nou delays continue**\
+`Barca confirmed five days before Sunday's match against Getafe that they would again play at Estadi Johan Cruyff`\
+https://nytimes.com/athletic/6633779/2025/09/16/barcelona-stadium-getafe-camp-nou-latest/
+
+**Late-Night TV Is Fading. There’s One Part You May Come to Miss.**\
+`Most of what late-night talk shows offer has been supplanted by the internet — except for the role of the wry, dispassionate host.`\
+https://nytimes.com/2025/09/16/magazine/late-night-tv.html
+
+**Trump Sues The New York Times for Articles Questioning His Success**\
+`The lawsuit, filed by the president in federal court in Florida, claims The Times defamed him and sought to undermine his campaign in the 2024 election.`\
+https://nytimes.com/2025/09/16/business/media/trump-lawsuit-new-york-times.html
+
+**The Tom Brady-Pete Carroll Raiders home opener almost had it all**\
+`It was a spectacle in Vegas on Monday night, but the Raiders fell short of meeting the hype.`\
+https://nytimes.com/athletic/6633643/2025/09/16/las-vegas-raiders-monday-night-football-chargers/
+
 **It Isn’t Just the U.S. The Whole World Has Soured on Climate Politics.**\
 `How do we think about the climate future, now that the era marked by the Paris Agreement has so utterly disappeared?`\
 https://nytimes.com/2025/09/16/magazine/climate-politics-us-world-paris-agreement.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/09/16/world/middleeast/gaza-city-israel-ground-operatio
 **Robert Redford, Screen Idol Turned Director and Activist, Dies at 89**\
 `He made serious topics like grief and political corruption resonate with the masses, in no small part because of his own star power.`\
 https://nytimes.com/2025/09/16/movies/robert-redford-dead.html
-
-**8 Eagles Thoughts: 'Tush Push' in spotlight, need for explosive plays, DTs thriving**\
-`The Eagles say they need to continue to work on their timing with the controversial play.`\
-https://nytimes.com/athletic/6633151/2025/09/16/eagles-tush-push-defensive-tackles/
-
-**Trump Administration Live Updates: President to Visit the U.K. on Second State Visit**\
-``\
-https://nytimes.com/live/2025/09/16/us/trump-news
-
-**How Nebraska volleyball is embracing joy amid weight of championship-or-bust expectations**\
-`“It’s a long season, and if you’re feeling relieved after every game, it takes a little bit of the joy out of it and the fun."`\
-https://nytimes.com/athletic/6632169/2025/09/16/nebraska-volleyball-no-1-expectations/
-
-**The future arrives as Bryce Eldridge makes his Giants debut**\
-`The Giants' most touted hitting prospect in a generation made his highly anticipated major league debut Monday night.`\
-https://nytimes.com/athletic/6633343/2025/09/16/sf-giants-bryce-eldridge-debut/
-
-**Where do the Dodgers' October pitching plans stand, especially with Shohei Ohtani?**\
-`Mapping out when exactly Ohtani will pitch will be a complicated exercise as the Dodgers prepare for the postseason.`\
-https://nytimes.com/athletic/6633336/2025/09/16/dodgers-pitching-october-shohei-ohtani/
 
