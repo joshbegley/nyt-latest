@@ -6,7 +6,7 @@ https://nytimes.com/2025/09/15/us/politics/republicans-charlie-kirk-vigil-capito
 `Arnold Schwarzenegger issued his first public rebuke since Gov. Gavin Newsom placed a gerrymander plan on the ballot.`\
 https://nytimes.com/2025/09/15/us/schwarzenegger-california-redistricting-newsom.html
 
-**Astros' Yordan Alvarez exits pivotal game with apparent leg injury**\
+**Astros' Yordan Alvarez exits pivotal game with left ankle sprain**\
 `Losing Alvarez for any length of time would stagger an already inconsistent Astros lineup.`\
 https://nytimes.com/athletic/6632937/2025/09/15/houston-astros-yordan-alvarez-injury-exit/
 
