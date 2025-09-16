@@ -1,3 +1,19 @@
+**King Charles Mourns Duchess of Kent at Catholic Funeral**\
+`The duchess, best known for her role bestowing trophies at the Wimbledon tennis tournament, was the first member of the royal family to convert to Catholicism in centuries.`\
+https://nytimes.com/2025/09/16/world/europe/king-charles-duchess-of-kent-funeral.html
+
+**Social Platforms Duck Blame for Inflaming Divisions Before Charlie Kirk’s Death**\
+`After authorities said Mr. Kirk’s suspected shooter had been “radicalized” online, Meta, Reddit, TikTok and other platforms have stayed quiet — though not Elon Musk, who owns X.`\
+https://nytimes.com/2025/09/16/technology/charlie-kirk-meta-x-tiktok.html
+
+**‘It was me,’ Discord says the accused Kirk shooter wrote on the network.**\
+`By Eli Tan`\
+https://nytimes.com/live/2025/09/16/us/kirk-shooting-suspect-charges/it-was-me-discord-says-accused-kirk-shooter-wrote-on-network
+
+**Jackson has given Bayern inside knowledge for Chelsea game - Kompany**\
+`Jackson joined Bayern on a season-long loan from Chelsea a fortnight ago and can play against his parent club on Wednesday night.`\
+https://nytimes.com/athletic/6634396/2025/09/16/nicolas-jackson-bayern-chelsea-champions-league/
+
 **As an Activist, Robert Redford Understood the Power of Celebrity**\
 `His knowledge of the ways cameras and media create narratives helped him redirect those stories in service of larger causes like environmentalism.`\
 https://nytimes.com/2025/09/16/movies/robert-redford-activism.html
