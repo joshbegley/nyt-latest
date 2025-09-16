@@ -1,3 +1,7 @@
+**Eagles-Chiefs Super Bowl rematch draws record-setting 33.8 million viewers**\
+`The Week 2 game tied the record for most-watched regular-season Sunday game since the NFL started tracking ratings in 1988.`\
+https://nytimes.com/athletic/6635648/2025/09/16/eagles-chiefs-super-bowl-rematch-ratings/
+
 **A Forgotten Cosmic Impact Was Hidden in a Museum’s Glass Shards**\
 `Scientists thought that an Australian museum’s collection of tektites came from an 800,000-year-old asteroid strike on Earth. Some of them turned out to be much older.`\
 https://nytimes.com/2025/09/16/science/tektites-australia-asteroid-impact.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6635274/2025/09/16/yordan-alvarez-left-ankle-sprain
 **Asylum Seeker Wins Bid to Delay Deportation Under U.K.-France Treaty**\
 `The case was the first challenge relating to the treaty, which aims to reduce small-boat crossings of the English Channel by migrants, to reach London’s High Court.`\
 https://nytimes.com/2025/09/16/world/europe/small-boat-migrant-uk-france-treaty.html
-
-**Surgeon General Nominee Pledges to Divest From Wellness Interests**\
-`In financial filings, Casey Means stated that she would liquidate holdings in companies that sell personal devices, supplements, tobacco and tech.`\
-https://nytimes.com/2025/09/16/health/casey-means-financial-invesments-surgeon-general.html
 
