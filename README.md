@@ -1,4 +1,4 @@
-**Chargers' Khalil Mack leaves Monday night game vs. Raiders with elbow injury**\
+**Chargers' Khalil Mack ruled out vs. Raiders with elbow injury**\
 `Mack and teammate Troy Dye collided as they were trying to make a tackle, with Mack's elbow taking the brunt of the blow. `\
 https://nytimes.com/athletic/6633174/2025/09/15/chargers-khalil-mack-elbow-injury-raiders/
 

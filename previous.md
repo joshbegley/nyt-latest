@@ -1,3 +1,11 @@
+**Chargers' Khalil Mack leaves Monday night game vs. Raiders with elbow injury**\
+`Mack and teammate Troy Dye collided as they were trying to make a tackle, with Mack's elbow taking the brunt of the blow. `\
+https://nytimes.com/athletic/6633174/2025/09/15/chargers-khalil-mack-elbow-injury-raiders/
+
+**Once a Rising Star, a Top Texas Democrat Won’t Seek Re-election**\
+`Lina Hidalgo, the top elected official in Harris County, which includes Houston, says she will not run for re-election or any other office in 2026.`\
+https://nytimes.com/2025/09/15/us/politics/lina-hidalgo-texas-houston.html
+
 **Sam Kerr's 634-day wait finally ends. Plus: An update on Savannah DeMelo**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6633148/2025/09/15/sam-kerr-chelsea-savannah-demelo-full-time/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/15/us/schwarzenegger-california-redistricting-newsom
 **Astros' Yordan Alvarez exits pivotal game with left ankle sprain**\
 `Losing Alvarez for any length of time would stagger an already inconsistent Astros lineup.`\
 https://nytimes.com/athletic/6632937/2025/09/15/houston-astros-yordan-alvarez-injury-exit/
-
-**How to watch Sam Houston at Texas: Time, TV, streaming**\
-`Find out how to watch the Sam Houston Bearkats play the Texas Longhorns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6632913/2025/09/15/sam-houston-vs-texas-stream-how-to-watch-sept-20/
-
-**The latest on Kyle Tucker as the Cubs try to get ready for playoffs**\
-`"It hasn't gone as quickly as I would have hoped," Tucker said about his calf injury that that landed him on the 10-day injured list.`\
-https://nytimes.com/athletic/6632805/2025/09/15/cubs-kyle-tucker-playoffs-calf-injury/
 
