@@ -1,3 +1,7 @@
+**Baller League USA to launch in Miami with Ronaldinho and Usain Bolt as managers**\
+`The competition originated in Germany and was launched in the UK earlier this year.`\
+https://nytimes.com/athletic/6634591/2025/09/16/baller-league-usa-miami-ronaldinho-usain-bolt/
+
 **The best Tom Brady cards to collect**\
 `A guide to some of the most sought-after modern football cards`\
 https://nytimes.com/athletic/6560774/2025/09/16/tom-brady-best-rookie-cards/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/16/well/how-health-reporters-choose-experts.html
 **A Bucolic Stone-Skimming Contest in Scotland Is Infiltrated by Cheaters**\
 `“I did see some stones that looked a little too perfect,” said the winner of the Stone Skimming World Championships. The offending contestants were disqualified.`\
 https://nytimes.com/2025/09/16/world/europe/stone-skimming-championship-cheating.html
-
-**NFL MVP odds see Allen, Jackson reigning; Herbert, Love rising; Mahomes sliding**\
-`Week 2's conclusion welcomes two new faces in the top-four MVP odds and one major loss.`\
-https://nytimes.com/athletic/6634111/2025/09/16/nfl-mvp-odds-after-week-2-allen-jackson-herbert-love/
 
