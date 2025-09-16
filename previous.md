@@ -1,40 +1,40 @@
-**NFL QB stock report, Week 3: Why Eagles' Jalen Hurts is 'so underrated'**\
-`Are Mac Jones and Daniel Jones the next QB reclamation project success stories?`\
-https://nytimes.com/athletic/6631300/2025/09/16/qb-stock-report-rankings-jalen-hurts-eagles/
+**Explosive plays and a much-improved pass rush: Analyzing the Lions' Week 2 performance**\
+`After a frustrating Week 1 loss, the Lions beat the Bears in the trenches and go into Week 3's Monday night matchup with confidence.`\
+https://nytimes.com/athletic/6632738/2025/09/16/detroit-lions-offense-defense-result/
 
-**Week 3 NFL Power Rankings: Overreactions, a new No. 1 and Vikings, Commanders drop**\
-`The Week 3 NFL Power Rankings have a new No. 1, major drops for some preseason favorites and early season overreactions for all 32 teams.`\
-https://nytimes.com/athletic/6631549/2025/09/16/nfl-power-rankings-week-3-packers-vikings-commanders/
+**Bears defense set the wrong records vs. the Lions; can the pass rush rebound?**\
+`The Bears had a historically bad defensive performance Sunday, and the lack of a pass rush made a huge impact. How quickly can it be fixed?`\
+https://nytimes.com/athletic/6632591/2025/09/16/chicago-bears-defense-stats/
 
-**Canadian GP start time pushed back to avoid clash with 2026 Indy 500**\
-`F1 moved the Montreal race from June to May to group the event with the Miami GP.`\
-https://nytimes.com/athletic/6633571/2025/09/16/canadian-grand-prix-start-time-2026-indy-500/
+**Why Tyler Smith is most important of Cowboys' recent contract extensions**\
+`When asked if there was something he wanted to buy after getting his new contract, Smith said: "I really just want that Lombardi Trophy."`\
+https://nytimes.com/athletic/6632874/2025/09/16/cowboys-tyler-smith-contract-extension-offensive-line/
 
-**Hillsborough Law to be introduced to parliament to prevent major disaster cover-ups**\
-`The introduction of the bill to parliament is the first stage of its ascension to becoming law`\
-https://nytimes.com/athletic/6633490/2025/09/16/hillsborough-law-parliament-liverpool/
+**'Just gutsy': Inside Chargers' dominant defensive performance in win over Raiders**\
+`Battling illness linebacker Daiyan Henley exemplified what was at the core of an epic, suffocating showing from Jesse Minter's group.`\
+https://nytimes.com/athletic/6633514/2025/09/16/chargers-raiders-mnf-defence-daiyan-henley/
 
-**Israel Is Committing Genocide in Gaza, U.N. Inquiry Says**\
-`In earlier reports, the commission found that Israel had committed war crimes and crimes against humanity in its conflict with Hamas, but stopped short of calling it genocide. Israel denounced the accusation as “fake.”`\
-https://nytimes.com/2025/09/16/world/middleeast/un-israel-gaza-genocide.html
+**Brad Keselowski on NASCAR's playoff problem, his Nick Saban story and more: 12 Questions**\
+`Brad Keselowski details why he thinks NASCAR's playoff system needs to go, how he ended up with Nick Saban's autograph, and more.`\
+https://nytimes.com/athletic/6620728/2025/09/16/brad-keselowski-nascar-playoffs-nick-saban-12-questions/
 
-**The New York Times International Edition in Print for Wednesday, Sep. 17, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/09/16/todays-new-york-times-international-edition
+**The Jets' Micheal Clemons Conundrum, and how it helps explain their issues on defense**\
+`Clemons had another costly penalty in Sunday's disastrous defensive performance against the Bills.`\
+https://nytimes.com/athletic/6632005/2025/09/16/new-york-jets-micheal-clemons-defensive-performance/
 
-**Italian skier Matteo Franzoso dies after training crash**\
-`The Italian's local municipality mayor called for radical safety changes in the sport to 'protect our children'.`\
-https://nytimes.com/athletic/6633493/2025/09/16/matteo-franzoso-death-skiing/
+**Dane Brugler's NFL Draft film room: Chris Brazzell II, other prospects who stood out in Week 3**\
+`Brazzell's Tennessee team came up just short, but he still put forth an impressive effort. Who else shined on Saturday?`\
+https://nytimes.com/athletic/6631621/2025/09/16/nfl-draft-2026-film-chris-brazzell/
 
-**How to watch Giants at Diamondbacks: Time, TV, streaming for September 16**\
-`Find out how to watch the San Francisco Giants play the Arizona Diamondbacks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6633545/2025/09/16/giants-vs-diamondbacks-stream-how-to-watch-sept-16/
+**Can Giannis be more reliable for the Bucks? What are Myles Turner's expectations?**\
+`The Bucks are looking to bounce back after a disappointing postseason, and they'll ask for new players to step up.`\
+https://nytimes.com/athletic/6631106/2025/09/16/bucks-giannis-antetokounmpo-myles-turner-questions-nba/
 
-**How to watch Phillies at Dodgers: Time, TV, streaming for September 16**\
-`Find out how to watch the Philadelphia Phillies play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6633543/2025/09/16/phillies-vs-dodgers-stream-how-to-watch-sept-16/
+**2026 NHL Draft: Gavin McKenna leads Pronman's first ranking of the season**\
+`In a very early assessment, the 2026 draft class looks about average in terms of pure talent.`\
+https://nytimes.com/athletic/6598246/2025/09/16/nhl-draft-prospects-2026-ranking-preseason/
 
-**Trump Gets a Second State Visit to the U.K.**\
-`President Trump will be in the U.K. this week in an unprecedented second state visit. Mark Landler, the London bureau chief of The New York Times, describes the efforts the British are making to stay on Trump’s good side, and what they hope to get in return.`\
-https://nytimes.com/video/world/europe/100000010394853/trump-second-state-visit-uk.html
+**Joe Burrow injury blame game requires nuance, with multiple factors in play**\
+`The main narrative has been that the Bengals haven't invested enough in the offensive line, but there's much more to it than that.`\
+https://nytimes.com/athletic/6632882/2025/09/16/joe-burrow-injury-blame-bengals/
 
