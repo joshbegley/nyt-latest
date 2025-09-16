@@ -1,3 +1,7 @@
+**Have a Broncos question? Send it to beat writer Nick Kosmider for an upcoming mailbag**\
+`What's on your mind ahead of Sunday's game against the 2-0 Chargers.`\
+https://nytimes.com/athletic/6611697/2025/09/16/broncos-mailbag-questions-week-3-chargers/
+
 **For the First Time in 215 Years, a Woman Leads Mexico’s Cry of Independence**\
 `Claudia Sheinbaum, the country’s president, was the first woman to give the country’s annual Grito de Dolores, a tradition dating to a priest’s call to arms against Spain more than two centuries ago.`\
 https://nytimes.com/2025/09/16/world/americas/mexico-sheinbaum-independence-day.html
