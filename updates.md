@@ -1,3 +1,11 @@
+**Ricardo Pepi endures miserable start to PSV Champions League campaign**\
+`The USMNT striker did little to impress Mauricio Pochettino as Champions League action got underway`\
+https://nytimes.com/athletic/6635048/2025/09/16/pepi-usmnt-psv-union-champions-league/
+
+**Robert Redford: A Classic American Ideal Who Escaped the Mold**\
+`Though he got his start under the old studio system, he remained a natural in the New Hollywood and beyond.`\
+https://nytimes.com/2025/09/16/movies/robert-redford-career.html
+
 **Whistle-Blower Account Contradicts Government’s Claims on Guatemalan Children**\
 `A report filed to Congress on Tuesday alleges the Trump administration concealed data showing that dozens of children it sought to deport faced serious harm back in Guatemala.`\
 https://nytimes.com/2025/09/16/us/politics/whistleblower-congress-guatemalan-children.html

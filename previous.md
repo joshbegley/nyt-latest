@@ -1,3 +1,11 @@
+**Ricardo Pepi endures miserable start to PSV Champions League campaign**\
+`The USMNT striker did little to impress Mauricio Pochettino as Champions League action got underway`\
+https://nytimes.com/athletic/6635048/2025/09/16/pepi-usmnt-psv-union-champions-league/
+
+**Robert Redford: A Classic American Ideal Who Escaped the Mold**\
+`Though he got his start under the old studio system, he remained a natural in the New Hollywood and beyond.`\
+https://nytimes.com/2025/09/16/movies/robert-redford-career.html
+
 **Whistle-Blower Account Contradicts Government’s Claims on Guatemalan Children**\
 `A report filed to Congress on Tuesday alleges the Trump administration concealed data showing that dozens of children it sought to deport faced serious harm back in Guatemala.`\
 https://nytimes.com/2025/09/16/us/politics/whistleblower-congress-guatemalan-children.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6635067/2025/09/16/colts-vs-titans-stream-how-to-wa
 **How to watch Steelers at Patriots: Time, TV, streaming**\
 `Find out how to watch the Pittsburgh Steelers play the New England Patriots, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6635065/2025/09/16/steelers-vs-patriots-stream-how-to-watch-sept-21/
-
-**How to watch Falcons at Panthers: Time, TV, streaming**\
-`Find out how to watch the Atlanta Falcons play the Carolina Panthers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6635061/2025/09/16/falcons-vs-panthers-stream-how-to-watch-sept-21/
-
-**How to watch Packers at Browns: Time, TV, streaming**\
-`Find out how to watch the Green Bay Packers play the Cleveland Browns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6635057/2025/09/16/packers-vs-browns-stream-how-to-watch-sept-21/
 
