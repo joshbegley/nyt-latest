@@ -1,3 +1,19 @@
+**Inside Newcastle Q&A: Howe future, Wissa fitness and January transfer window focus**\
+`Chris Waugh has answered your questions on Newcastle after the weekend's Premier League action`\
+https://nytimes.com/athletic/6628789/2025/09/16/newcastle-united-eddie-howe-future-yoane-wissa-fitness/
+
+**Cristian Romero press conference: What Spurs captain said about Daniel Levy, Thomas Frank and why he stayed**\
+`Jay Harris analyses an incredibly rare opportunity to hear from Tottenham's Argentinian defender `\
+https://nytimes.com/athletic/6631912/2025/09/16/cristian-romero-press-conference-champions-league-levy/
+
+**Why patience should be the motto for Wrexham and Phil Parkinson this autumn**\
+`Only once the club's expensively-assembled squad has had a chance to settle in should judgement be passed `\
+https://nytimes.com/athletic/6630523/2025/09/16/wrexham-patience-parkinson-championship/
+
+**Champions League early kick-offs: Why are they happening and is it a good idea?**\
+`The Champions League returns this week and fans will have to get accustomed to early kick-offs once again`\
+https://nytimes.com/athletic/6631483/2025/09/16/champions-league-early-kick-offs-thursday-matches-explainer/
+
 **Mbappe and Vinicius Jr's fortunes at Madrid could hardly be more contrasting**\
 `Mbappe is Madrid's undisputed leader while Vinicius Jr is going through a bad patch of form. What's happened?`\
 https://nytimes.com/athletic/6630757/2025/09/16/kylian-mbappe-vinicius-junior-real-madrid-contrast/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6631403/2025/09/16/liverpool-late-goals-premier-lea
 **Thomas Partey’s Villarreal transfer: What has been the reaction in Spain?**\
 `The former Arsenal midfielder signed for the Spanish club on a free transfer this summer`\
 https://nytimes.com/athletic/6630448/2025/09/16/thomas-partey-champions-league-villarreal-tottenham/
-
-**Maxim De Cuyper: Inspired by Marcelo - and ready to be Brighton's penalty specialist**\
-`The 24-year-old has some impressive attacking numbers from left-back and has broken into the Belgium senior team`\
-https://nytimes.com/athletic/6546219/2025/09/16/maxim-de-cuyper-brighton/
-
-**Champions League 2025-26 Projections: Who will lift the trophy in Budapest on May 30?**\
-`Our Opta-powered Champions League projections update after each matchday`\
-https://nytimes.com/athletic/6630404/2025/09/16/champions-league-projections-2025-26/
-
-**The rise of Australia's record-breaking sprinter: 'He's going to be the best runner ever'**\
-`Gout Gout is the youngest entry in the men’s 200m at the World Athletics Championships in Tokyo. `\
-https://nytimes.com/athletic/6546336/2025/09/16/gout-gout-2025-tokyo-world-athletics-championships-profile/
-
-**Champions League: Under-the-radar players to watch**\
-`From youngsters breaking through to experienced forwards taking on new challenges, here are players to watch out for at smaller clubs`\
-https://nytimes.com/athletic/6628151/2025/09/16/champions-league-players-to-watch-2025-26/
 
