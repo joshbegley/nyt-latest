@@ -1,3 +1,11 @@
+**Bondi Prompts Broad Backlash After Saying She’ll Target ‘Hate Speech’**\
+`The attorney general also said she could investigate businesses that refused to print Charlie Kirk vigil posters as the Trump administration pushes to punish anyone who celebrated his killing.`\
+https://nytimes.com/2025/09/16/us/politics/pam-bondi-hate-speech-charlie-kirk.html
+
+**Scoop City: Players to target for Week 3 fantasy football**\
+`Players to add before Week 3, PFF's best players in Week 2 and The Athletic's updated Power Rankings`\
+https://nytimes.com/athletic/6634935/2025/09/16/fantasy-football-week-3-waivers-scoop-city/
+
 **Meryl Streep, Morgan Freeman and Others Mourn Robert Redford**\
 `Redford “stood for an America we have to keep fighting for,” his frequent collaborator Jane Fonda said after his death was announced on Tuesday.`\
 https://nytimes.com/2025/09/16/arts/robert-redford-death-celebrity-reactions.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6634182/2025/09/16/ethan-ampadu-largie-ramazani-lee
 **Fantasy football market share report: Quentin Johnston and Juwan Johnson are must starts**\
 `Michael Salfino mines the touches and targets data from Week 2 to help inform future roster decisions, like going all-in on Juwan Johnson.`\
 https://nytimes.com/athletic/6634683/2025/09/16/fantasy-football-market-share-report-week-3-johnston-johnson/
-
-**New Therapy Delivers Hope for Patients with Certain Types of Bladder Cancer **\
-`After decades of limited options, a ground-breaking FDA-approved treatment is opening new doors for people with certain types of bladder cancer.`\
-https://nytimes.com/paidpost/2025-09-10/.html
-
-**Read the Charges Against Tyler Robinson**\
-`Robinson will be charged with aggravated murder, an offense that is eligible for the death penalty, according to Jeff Gray, the Utah County attorney.`\
-https://nytimes.com/interactive/2025/09/16/us/indictment-tyler-robinson-charges-kirk.html
 

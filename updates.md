@@ -1,3 +1,11 @@
+**Bondi Prompts Broad Backlash After Saying She’ll Target ‘Hate Speech’**\
+`The attorney general also said she could investigate businesses that refused to print Charlie Kirk vigil posters as the Trump administration pushes to punish anyone who celebrated his killing.`\
+https://nytimes.com/2025/09/16/us/politics/pam-bondi-hate-speech-charlie-kirk.html
+
+**Scoop City: Players to target for Week 3 fantasy football**\
+`Players to add before Week 3, PFF's best players in Week 2 and The Athletic's updated Power Rankings`\
+https://nytimes.com/athletic/6634935/2025/09/16/fantasy-football-week-3-waivers-scoop-city/
+
 **Meryl Streep, Morgan Freeman and Others Mourn Robert Redford**\
 `Redford “stood for an America we have to keep fighting for,” his frequent collaborator Jane Fonda said after his death was announced on Tuesday.`\
 https://nytimes.com/2025/09/16/arts/robert-redford-death-celebrity-reactions.html
