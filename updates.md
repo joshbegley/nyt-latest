@@ -1,3 +1,19 @@
+**Until Saturday: Coach-firing season begins (slightly) early**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6634686/2025/09/16/college-football-coaches-fired-early-until-saturday/
+
+**Robert Redford Personified American Style**\
+`Reluctant to focus on style or his looks, Mr. Redford nevertheless became the embodiment of an enduring aesthetic.`\
+https://nytimes.com/2025/09/16/style/robert-redford-style-fashion.html
+
+**Man Falsely Confessed to Kirk Shooting to Help Assassin Escape, Police Say**\
+`Moments after Charlie Kirk was killed, a 71-year-old man told an officer, “I shot him,” the police said. It wasn’t true, but it delayed officers’ efforts to find the shooter.`\
+https://nytimes.com/2025/09/16/us/politics/false-confession-kirk-shooting-suspect-escape.html
+
+**Satellite Images Show Israeli Military Buildup Around Gaza City**\
+`The images show Israeli armored vehicles in multiple places along the outskirts of the city on Tuesday morning, after Israel said it had begun its armed offensive into the city.`\
+https://nytimes.com/2025/09/16/world/middleeast/gaza-satellite-images-israel-war.html
+
 **Goalie Carter Hart will not return to Philadelphia Flyers, GM says**\
 `The Flyers will begin training camp on Thursday with an NHL tandem of Samuel Ersson and Dan Vladar.`\
 https://nytimes.com/athletic/6634567/2025/09/16/carter-hart-flyers-hockey-canada-nhl-news/

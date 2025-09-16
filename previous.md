@@ -1,3 +1,11 @@
+**Until Saturday: Coach-firing season begins (slightly) early**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6634686/2025/09/16/college-football-coaches-fired-early-until-saturday/
+
+**Robert Redford Personified American Style**\
+`Reluctant to focus on style or his looks, Mr. Redford nevertheless became the embodiment of an enduring aesthetic.`\
+https://nytimes.com/2025/09/16/style/robert-redford-style-fashion.html
+
 **Goalie Carter Hart will not return to Philadelphia Flyers, GM says**\
 `The Flyers will begin training camp on Thursday with an NHL tandem of Samuel Ersson and Dan Vladar.`\
 https://nytimes.com/athletic/6634567/2025/09/16/carter-hart-flyers-hockey-canada-nhl-news/
@@ -10,9 +18,9 @@ https://nytimes.com/2025/09/16/us/politics/johnson-government-shutdown.html
 `Mr. Heastie, the speaker of the New York State Assembly, is one of several prominent Democrats who had resisted backing Zohran Mamdani, the party’s nominee for New York City mayor.`\
 https://nytimes.com/2025/09/16/nyregion/heastie-mamdani-endorsement-nyc-mayor.html
 
-**Man falsely confessed to Kirk shooting to help assassin escape, police say.**\
-`Moments after Charlie Kirk was killed, a 71-year-old man told an officer, ‘I shot him,’ the police said. It wasn’t true, but it delayed officers’ efforts to find the shooter.`\
-https://nytimes.com/live/2025/09/16/us/kirk-shooting-suspect-charges/man-falsely-confessed-to-kirk-shooting-to-help-assassin-escape-police-say
+**Man Falsely Confessed to Kirk Shooting to Help Assassin Escape, Police Say**\
+`Moments after Charlie Kirk was killed, a 71-year-old man told an officer, “I shot him,” the police said. It wasn’t true, but it delayed officers’ efforts to find the shooter.`\
+https://nytimes.com/2025/09/16/us/politics/false-confession-kirk-shooting-suspect-escape.html
 
 **French Patisserie’s Latest Darlings? Babkas That Buck Tradition.**\
 `Babka Zana, a Parisian bakery, and others are embracing versions that veer away from the traditional cinnamon and chocolate iterations.`\
@@ -26,15 +34,7 @@ https://nytimes.com/athletic/6634591/2025/09/16/baller-league-usa-miami-ronaldin
 `A guide to some of the most sought-after modern football cards`\
 https://nytimes.com/athletic/6560774/2025/09/16/tom-brady-best-rookie-cards/
 
-**Satellite images show Israeli military buildup around Gaza City on Tuesday morning.**\
-`By Josh Holder and Samuel Granados`\
-https://nytimes.com/live/2025/09/16/world/gaza-israel/gaza-satellite-images-israel-war
-
-**United Airlines Says Problems at Newark Airport Have Eased Greatly**\
-`The airline said fewer flights were delayed and more travelers were using the airport after air traffic control challenges and runway construction caused a crisis in the spring.`\
-https://nytimes.com/2025/09/16/business/united-airlines-newark-airport.html
-
-**Yamal set to miss Barcelona's UCL tie at Newcastle**\
-`Barcelona head coach Hansi Flick questioned Spain's duty of care for Yamal, who took painkillers while playing in the international break.`\
-https://nytimes.com/athletic/6634583/2025/09/16/lamine-yamal-injury-barcelona-newcastle/
+**Satellite Images Show Israeli Military Buildup Around Gaza City**\
+`The images show Israeli armored vehicles in multiple places along the outskirts of the city on Tuesday morning, after Israel said it had begun its armed offensive into the city.`\
+https://nytimes.com/2025/09/16/world/middleeast/gaza-satellite-images-israel-war.html
 
