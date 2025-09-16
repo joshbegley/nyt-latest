@@ -1,3 +1,7 @@
+**French Patisserie’s Latest Darlings? Babkas That Buck Tradition.**\
+`Babka Zana, a Parisian bakery, and others are embracing versions that veer away from the traditional cinnamon and chocolate iterations.`\
+https://nytimes.com/2025/09/16/dining/french-babka-rosh-hashana.html
+
 **Baller League USA to launch in Miami with Ronaldinho and Usain Bolt as managers**\
 `The competition originated in Germany and was launched in the UK earlier this year.`\
 https://nytimes.com/athletic/6634591/2025/09/16/baller-league-usa-miami-ronaldinho-usain-bolt/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6634437/2025/09/16/alexander-isak-liverpool-debut-a
 **How Do Times Health Reporters Choose Experts?**\
 `A few basic guidelines help us ensure we’re finding and interviewing the right sources for health and wellness news.`\
 https://nytimes.com/2025/09/16/well/how-health-reporters-choose-experts.html
-
-**A Bucolic Stone-Skimming Contest in Scotland Is Infiltrated by Cheaters**\
-`“I did see some stones that looked a little too perfect,” said the winner of the Stone Skimming World Championships. The offending contestants were disqualified.`\
-https://nytimes.com/2025/09/16/world/europe/stone-skimming-championship-cheating.html
 

@@ -1,3 +1,19 @@
+**Goalie Carter Hart will not return to Philadelphia Flyers, GM says**\
+`The Flyers will begin training camp on Thursday with an NHL tandem of Samuel Ersson and Dan Vladar.`\
+https://nytimes.com/athletic/6634567/2025/09/16/carter-hart-flyers-hockey-canada-nhl-news/
+
+**Johnson Releases Spending Bill, Daring Democrats to Oppose It**\
+`The speaker put forward a stopgap bill to fund the government past Sept. 30, saying there was “zero chance” he would add concessions Democrats have demanded.`\
+https://nytimes.com/2025/09/16/us/politics/johnson-government-shutdown.html
+
+**Carl Heastie, Another Democratic Holdout, Is Expected to Endorse Mamdani**\
+`Mr. Heastie, the speaker of the New York State Assembly, is one of several prominent Democrats who had resisted backing Zohran Mamdani, the party’s nominee for New York City mayor.`\
+https://nytimes.com/2025/09/16/nyregion/heastie-mamdani-endorsement-nyc-mayor.html
+
+**Man falsely confessed to Kirk shooting to help assassin escape, police say.**\
+`Moments after Charlie Kirk was killed, a 71-year-old man told an officer, ‘I shot him,’ the police said. It wasn’t true, but it delayed officers’ efforts to find the shooter.`\
+https://nytimes.com/2025/09/16/us/politics/false-confession-kirk-shooting-suspect-escape.html
+
 **French Patisserie’s Latest Darlings? Babkas That Buck Tradition.**\
 `Babka Zana, a Parisian bakery, and others are embracing versions that veer away from the traditional cinnamon and chocolate iterations.`\
 https://nytimes.com/2025/09/16/dining/french-babka-rosh-hashana.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/09/16/business/united-airlines-newark-airport.html
 **Yamal set to miss Barcelona's UCL tie at Newcastle**\
 `Barcelona head coach Hansi Flick questioned Spain's duty of care for Yamal, who took painkillers while playing in the international break.`\
 https://nytimes.com/athletic/6634583/2025/09/16/lamine-yamal-injury-barcelona-newcastle/
-
-**‘Galas’ Review: A Vocally Gifted Paper Doll**\
-`Charles Ludlam’s camp tribute to Maria Callas, featuring the countertenor Anthony Roth Costanzo, is glamorous to a fault at Little Island.`\
-https://nytimes.com/2025/09/16/theater/galas-review-little-island.html
-
-**Using Charlie Kirk’s Death to Threaten a Crackdown**\
-`Readers respond to the threat of a crackdown on the “far left” after Charlie Kirk’s assassination. Also: Scrapping climate-monitoring satellites.`\
-https://nytimes.com/2025/09/16/opinion/charlie-kirk-crackdown-left.html
-
-**Isak could make Liverpool debut against Atletico on Wednesday, Slot says**\
-`The Sweden international is yet to feature for the Premier League champions after his deadline-day move from Newcastle United`\
-https://nytimes.com/athletic/6634437/2025/09/16/alexander-isak-liverpool-debut-arne-slot/
-
-**How Do Times Health Reporters Choose Experts?**\
-`A few basic guidelines help us ensure we’re finding and interviewing the right sources for health and wellness news.`\
-https://nytimes.com/2025/09/16/well/how-health-reporters-choose-experts.html
 

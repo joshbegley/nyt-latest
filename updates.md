@@ -1,3 +1,7 @@
+**French Patisserie’s Latest Darlings? Babkas That Buck Tradition.**\
+`Babka Zana, a Parisian bakery, and others are embracing versions that veer away from the traditional cinnamon and chocolate iterations.`\
+https://nytimes.com/2025/09/16/dining/french-babka-rosh-hashana.html
+
 **Baller League USA to launch in Miami with Ronaldinho and Usain Bolt as managers**\
 `The competition originated in Germany and was launched in the UK earlier this year.`\
 https://nytimes.com/athletic/6634591/2025/09/16/baller-league-usa-miami-ronaldinho-usain-bolt/
