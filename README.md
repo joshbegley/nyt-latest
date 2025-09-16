@@ -1,3 +1,7 @@
+**A Forgotten Cosmic Impact Was Hidden in a Museum’s Glass Shards**\
+`Scientists thought that an Australian museum’s collection of tektites came from an 800,000-year-old asteroid strike on Earth. Some of them turned out to be much older.`\
+https://nytimes.com/2025/09/16/science/tektites-australia-asteroid-impact.html
+
 **John McQueen, Who Made Art Out of Burrs, Bark and Vines, Is Dead at 82**\
 `A pioneer of contemporary basketry, he used plant material from his backyard to create ingenious forms that blurred the line between art and craft.`\
 https://nytimes.com/2025/09/16/arts/john-mcqueen-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/16/world/europe/small-boat-migrant-uk-france-treaty.
 **Surgeon General Nominee Pledges to Divest From Wellness Interests**\
 `In financial filings, Casey Means stated that she would liquidate holdings in companies that sell personal devices, supplements, tobacco and tech.`\
 https://nytimes.com/2025/09/16/health/casey-means-financial-invesments-surgeon-general.html
-
-**In the Kirk Shooting, Some Messages on the Bullets Apparently Meant Nothing**\
-`In a style typical of today’s very online internet culture, some of Tyler Robinson’s coded messages were inside jokes meant for himself and his roommate.`\
-https://nytimes.com/2025/09/16/us/politics/charlie-kirk-shooting-bullets-messages.html
 

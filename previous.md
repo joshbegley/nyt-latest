@@ -1,3 +1,15 @@
+**John McQueen, Who Made Art Out of Burrs, Bark and Vines, Is Dead at 82**\
+`A pioneer of contemporary basketry, he used plant material from his backyard to create ingenious forms that blurred the line between art and craft.`\
+https://nytimes.com/2025/09/16/arts/john-mcqueen-dead.html
+
+**Ex-Midshipman Is Charged in Threat That Led to 2 Injuries at Naval Academy**\
+`The threat, which was made on social media, caused fears of an active shooter on the campus last week, leading to one person being shot and another injured.`\
+https://nytimes.com/2025/09/16/us/naval-academy-threat-arrest.html
+
+**Amber Ruffin Loves This Memento**\
+`To celebrate the opening of “The Wiz” on Broadway, the writer and comedian put a ring on it.`\
+https://nytimes.com/2025/09/16/style/amber-ruffin-loves-this-memento.html
+
 **Prosecutors Seek Death Penalty in Killing of Charlie Kirk**\
 `Also, Israeli troops pushed into Gaza City. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/09/16/briefing/charges-charlie-kirk-killing-israel-gaza-city.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/16/health/casey-means-financial-invesments-surgeon-g
 **In the Kirk Shooting, Some Messages on the Bullets Apparently Meant Nothing**\
 `In a style typical of today’s very online internet culture, some of Tyler Robinson’s coded messages were inside jokes meant for himself and his roommate.`\
 https://nytimes.com/2025/09/16/us/politics/charlie-kirk-shooting-bullets-messages.html
-
-**Ronny Whyte, Cabaret Singer Who Personified Elegance, Dies at 88**\
-`Like his friend and mentor Bobby Short, he exuded haute style while imbuing American standards with grace and wit.`\
-https://nytimes.com/2025/09/16/arts/music/ronny-white-dead.html
-
-**Trump’s Laissez-Faire Stance Gives Netanyahu Free Pass for Gaza Escalation**\
-`As Israel mounts a major Gaza offensive, President Trump has neither urged restraint nor endorsed the action, which Israel’s leader has taken as an implicit green light to proceed.`\
-https://nytimes.com/2025/09/16/world/middleeast/trump-netanyahu-gaza-escalation.html
-
-**House Passes D.C. Crime Bills as Trump Crackdown Continues**\
-`The legislation is part of a package that House Republicans are pushing to impose more federal control over the District in line with President Trump’s demands.`\
-https://nytimes.com/2025/09/16/us/politics/house-dc-crime-bills.html
 

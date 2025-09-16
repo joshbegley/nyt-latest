@@ -1,3 +1,15 @@
+**John McQueen, Who Made Art Out of Burrs, Bark and Vines, Is Dead at 82**\
+`A pioneer of contemporary basketry, he used plant material from his backyard to create ingenious forms that blurred the line between art and craft.`\
+https://nytimes.com/2025/09/16/arts/john-mcqueen-dead.html
+
+**Ex-Midshipman Is Charged in Threat That Led to 2 Injuries at Naval Academy**\
+`The threat, which was made on social media, caused fears of an active shooter on the campus last week, leading to one person being shot and another injured.`\
+https://nytimes.com/2025/09/16/us/naval-academy-threat-arrest.html
+
+**Amber Ruffin Loves This Memento**\
+`To celebrate the opening of “The Wiz” on Broadway, the writer and comedian put a ring on it.`\
+https://nytimes.com/2025/09/16/style/amber-ruffin-loves-this-memento.html
+
 **Astros' Yordan Alvarez to miss significant time with left ankle sprain**\
 `Houston's star slugger injured his ankle on Monday night while scoring a run. Manager Joe Espada said Alvarez will be "out for a while."`\
 https://nytimes.com/athletic/6635274/2025/09/16/yordan-alvarez-left-ankle-sprain-houston-astros/
