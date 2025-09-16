@@ -1,5 +1,9 @@
+**Rubio Says ‘Time Is Running Out’ for Gaza Deal**\
+`Secretary of State Marco Rubio spoke about Gaza ahead of a short Tuesday visit to Qatar, which is angry over an Israeli strike against Hamas leaders on its territory.`\
+https://nytimes.com/2025/09/16/world/middleeast/rubio-qatar-israel-hamas.html
+
 **Buonanotte replaces injured Essugo in Chelsea Champions League squad**\
-`Essugo is expected to be sidelined for a minimum of 12 weeks, ruling him out of the majority of the Champions League league phase.`\
+`Essugo is expected to be sidelined for a minimum of 12 weeks, ruling him out of the majority of the Champions League league phase`\
 https://nytimes.com/athletic/6633670/2025/09/16/facundo-buonanotte-dario-essugo-chelsea-champions-league-squad/
 
 **Inside the Phillies' NL East-clinching clubhouse, a familiar celebration that felt different**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6632874/2025/09/16/cowboys-tyler-smith-contract-ext
 **'Just gutsy': Inside Chargers' dominant defensive performance in win over Raiders**\
 `Battling illness linebacker Daiyan Henley exemplified what was at the core of an epic, suffocating showing from Jesse Minter's group.`\
 https://nytimes.com/athletic/6633514/2025/09/16/chargers-raiders-mnf-defence-daiyan-henley/
-
-**Brad Keselowski on NASCAR's playoff problem, his Nick Saban story and more: 12 Questions**\
-`Brad Keselowski details why he thinks NASCAR's playoff system needs to go, how he ended up with Nick Saban's autograph, and more.`\
-https://nytimes.com/athletic/6620728/2025/09/16/brad-keselowski-nascar-playoffs-nick-saban-12-questions/
 

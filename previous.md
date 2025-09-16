@@ -1,3 +1,7 @@
+**Buonanotte replaces injured Essugo in Chelsea Champions League squad**\
+`Essugo is expected to be sidelined for a minimum of 12 weeks, ruling him out of the majority of the Champions League league phase.`\
+https://nytimes.com/athletic/6633670/2025/09/16/facundo-buonanotte-dario-essugo-chelsea-champions-league-squad/
+
 **Inside the Phillies' NL East-clinching clubhouse, a familiar celebration that felt different**\
 `Before the beer bongs, cigar smoke and dancing, they started the party with a twist on a familiar bit. That wasn't the only difference. `\
 https://nytimes.com/athletic/6633457/2025/09/16/phillies-nl-east-clinch-clubhouse-celebration/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6633514/2025/09/16/chargers-raiders-mnf-defence-dai
 **Brad Keselowski on NASCAR's playoff problem, his Nick Saban story and more: 12 Questions**\
 `Brad Keselowski details why he thinks NASCAR's playoff system needs to go, how he ended up with Nick Saban's autograph, and more.`\
 https://nytimes.com/athletic/6620728/2025/09/16/brad-keselowski-nascar-playoffs-nick-saban-12-questions/
-
-**The Jets' Micheal Clemons Conundrum, and how it helps explain their issues on defense**\
-`Clemons had another costly penalty in Sunday's disastrous defensive performance against the Bills.`\
-https://nytimes.com/athletic/6632005/2025/09/16/new-york-jets-micheal-clemons-defensive-performance/
 

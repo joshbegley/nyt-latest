@@ -1,3 +1,7 @@
+**Buonanotte replaces injured Essugo in Chelsea Champions League squad**\
+`Essugo is expected to be sidelined for a minimum of 12 weeks, ruling him out of the majority of the Champions League league phase.`\
+https://nytimes.com/athletic/6633670/2025/09/16/facundo-buonanotte-dario-essugo-chelsea-champions-league-squad/
+
 **Inside the Phillies' NL East-clinching clubhouse, a familiar celebration that felt different**\
 `Before the beer bongs, cigar smoke and dancing, they started the party with a twist on a familiar bit. That wasn't the only difference. `\
 https://nytimes.com/athletic/6633457/2025/09/16/phillies-nl-east-clinch-clubhouse-celebration/
