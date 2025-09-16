@@ -1,3 +1,7 @@
+**How Do Times Health Reporters Choose Experts?**\
+`A few basic guidelines help us ensure we’re finding and interviewing the right sources for health and wellness news.`\
+https://nytimes.com/2025/09/16/well/how-health-reporters-choose-experts.html
+
 **A Bucolic Stone-Skimming Contest in Scotland Is Infiltrated by Cheaters**\
 `“I did see some stones that looked a little too perfect,” said the winner of the Stone Skimming World Championships. The offending contestants were disqualified.`\
 https://nytimes.com/2025/09/16/world/europe/stone-skimming-championship-cheating.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/16/world/europe/king-charles-duchess-of-kent-funeral
 **Social Platforms Duck Blame for Inflaming Divisions Before Charlie Kirk’s Death**\
 `After authorities said Mr. Kirk’s suspected shooter had been “radicalized” online, Meta, Reddit, TikTok and other platforms have stayed quiet — though not Elon Musk, who owns X.`\
 https://nytimes.com/2025/09/16/technology/charlie-kirk-meta-x-tiktok.html
-
-**‘It was me,’ Discord says the accused Kirk shooter wrote on the network.**\
-`By Eli Tan`\
-https://nytimes.com/live/2025/09/16/us/kirk-shooting-suspect-charges/it-was-me-discord-says-accused-kirk-shooter-wrote-on-network
 
