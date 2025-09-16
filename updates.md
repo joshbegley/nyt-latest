@@ -1,3 +1,11 @@
+**Senate Votes In Trump Pick for Fed Board**\
+`Senate Republicans confirmed President Trump’s nomination of Stephen Miran, a top White House economic adviser, as a governor for the Federal Reserve on Monday.`\
+https://nytimes.com/video/us/politics/100000010401274/stephen-miran-confirmed-fed.html
+
+**With State Visit, Trump Leaves a Tense America for a Brief U.K. Royal Retreat**\
+`President Trump’s trip to Britain will involve horse-drawn carriages and a stay in an ancient castle. For British officials, the visit may feel less like a fairy tale.`\
+https://nytimes.com/2025/09/16/world/europe/trump-uk-visit-royals-britain.html
+
 **Here’s the latest.**\
 `By Lara Jakes, Isabel Kershner and Natan Odenheimer`\
 https://nytimes.com/live/2025/09/16/world/gaza-israel/heres-the-latest

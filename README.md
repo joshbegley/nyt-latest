@@ -1,40 +1,40 @@
-**Senate Votes In Trump Pick for Fed Board**\
-`Senate Republicans confirmed President Trump’s nomination of Stephen Miran, a top White House economic adviser, as a governor for the Federal Reserve on Monday.`\
-https://nytimes.com/video/us/politics/100000010401274/stephen-miran-confirmed-fed.html
+**America Was Defined by a Story. It’s Time for a New One.**\
+`In a new series, David Leonhardt asks leading thinkers and politicians: What’s next.`\
+https://nytimes.com/2025/09/16/opinion/america-next-story-series.html
 
-**With State Visit, Trump Leaves a Tense America for a Brief U.K. Royal Retreat**\
-`President Trump’s trip to Britain will involve horse-drawn carriages and a stay in an ancient castle. For British officials, the visit may feel less like a fairy tale.`\
-https://nytimes.com/2025/09/16/world/europe/trump-uk-visit-royals-britain.html
+**The Kirk Crackdown Is Underway**\
+`The idea that there is more left-wing extremist violence than right-wing extremist violence is a dangerous myth.`\
+https://nytimes.com/2025/09/16/opinion/trump-charlie-kirk-crackdown.html
 
-**Here’s the latest.**\
-`By Lara Jakes, Isabel Kershner and Natan Odenheimer`\
-https://nytimes.com/live/2025/09/16/world/gaza-israel/heres-the-latest
+**As Hochul Backs Mamdani, Does He Have a Lock on the Election?**\
+`Gov. Kathy Hochul said in a guest essay in The New York Times that she supported Zohran Mamdani, the Democratic nominee for mayor. He has a strong lead in polls.`\
+https://nytimes.com/2025/09/16/nyregion/as-hochul-backs-mamdani-does-he-have-a-lock-on-the-election.html
 
-**Live Updates: Israel Launches Ground Offensive in Gaza City**\
-`The ground operation and intensifying Israeli bombardment risks deepening the humanitarian crisis in a war that has already killed tens of thousands of Palestinians.`\
-https://nytimes.com/live/2025/09/16/world/gaza-israel
+**New York Fashion Week Designers on Choosing the Perfect Venue**\
+`Guests at runway shows and after-parties might find themselves at a members-only club, hotel’s presidential suite, high school or cemetery.`\
+https://nytimes.com/2025/09/16/realestate/fashion-week-venue-cemetery-school.html
 
-**Israel Launches Gaza City Ground Offensive, Officials Say**\
-`The long-planned take over of the city began early Tuesday, according to officials, despite hundreds of thousands of people still sheltering there.`\
-https://nytimes.com/2025/09/16/world/middleeast/israel-gaza-city-ground-offensive.html
+**He Left the Prejudice of America. But His Music Came Home.**\
+`The centennial of Robert Owens, a composer who worked abroad and assimilated into German culture, is being celebrated with a festival in Nebraska.`\
+https://nytimes.com/2025/09/16/arts/music/robert-owens-composer-centennial.html
 
-**Which Living Democrat Does Cuomo Admire? He Can’t Name One.**\
-`In an interview with The New York Times, former Gov. Andrew M. Cuomo, a lifelong Democrat, said the party “is not meeting the moment.”`\
-https://nytimes.com/2025/09/16/us/politics/cuomo-nyc-mayor-democrats.html
+**Ben Shapiro and I Talk Political De-escalation**\
+`The state — and stakes — of political disagreement in America, both before and after the Charlie Kirk shooting.`\
+https://nytimes.com/video/opinion/100000010391119/ben-shapiro-and-i-talk-political-de-escalation.html
 
-**Braces**\
-`Metal braces are suddenly cool. What do you think of the trend?`\
-https://nytimes.com/2025/09/16/learning/braces.html
+**Want to Learn About Fashion? Walk With Him.**\
+`Dylan Kelly’s quick, fact-dense fashion videos are bite-size history lessons that are perfect for the world of TikTok.`\
+https://nytimes.com/2025/09/16/style/dylan-kelly-walk-with-me-tiktok.html
 
-**My U.N. Commission’s Finding: Israel Is Committing Genocide**\
-`The chief judge of the Rwandan genocide tribunal has concluded that Israel is guilty of the “crime of crimes” in Gaza.`\
-https://nytimes.com/2025/09/16/opinion/un-palestinians-israel-gaza-genocide.html
+**Kennedy Said He Wouldn’t Take Away Vaccines. This Week Will Be the Test.**\
+`A meeting of a C.D.C. advisory committee could restrict vaccine access.`\
+https://nytimes.com/2025/09/16/opinion/kennedy-vaccines-access.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/09/16/crosswords/spelling-bee-forum.html
+**A ‘Broken’ Trust: F.B.I. Agents Fired by Patel Speak Out**\
+`The two agents’ accounts offer an inside view of a bureau buffeted by politics and upheaval, adding to the scrutiny of the F.B.I. director as he prepares to testify to Congress.`\
+https://nytimes.com/2025/09/16/us/politics/kash-patel-fired-fbi-agents.html
 
-**Late Night Finds Trump Strangely Fascinated by the White House Ballroom**\
-`“Every time he gets a chance to talk about it, he sounds likes one of my kids,” Seth Meyers said.`\
-https://nytimes.com/2025/09/16/arts/television/late-night-trump-white-house-ballroom.html
+**From McDonald’s to Nobu, a Restaurant Hitmaker’s Not-So-Humble Story**\
+`In a frank memoir, Drew Nieporent looks back at a half-century career that’s produced signature New York restaurants like Montrachet and Tribeca Grill.`\
+https://nytimes.com/2025/09/16/dining/drew-nieporent-book-nobu.html
 
