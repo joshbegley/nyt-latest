@@ -1,3 +1,7 @@
+**Blue Jays' Bo Bichette (left knee) will be out until at least the postseason**\
+`Bichette injured his knee sliding into home during Toronto’s road loss against the Yankees on September 6`\
+https://nytimes.com/athletic/6635748/2025/09/16/toronto-blue-jays-bo-bichette-regular-season-status/
+
 **How to watch Cowboys at Bears: Time, TV, streaming**\
 `Find out how to watch the Dallas Cowboys play the Chicago Bears, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6635805/2025/09/16/cowboys-vs-bears-stream-how-to-watch-sept-21/
