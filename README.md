@@ -1,3 +1,27 @@
+**How to watch Blue Jays at Rays: Time, TV, streaming for September 16**\
+`Find out how to watch the Toronto Blue Jays play the Tampa Bay Rays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6633375/2025/09/16/blue-jays-vs-rays-stream-how-to-watch-sept-16/
+
+**How to watch Reds at Cardinals: Time, TV, streaming for September 16**\
+`Find out how to watch the Cincinnati Reds play the St. Louis Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6633367/2025/09/16/reds-vs-cardinals-stream-how-to-watch-sept-16/
+
+**How to watch Marlins at Rockies: Time, TV, streaming for September 16**\
+`Find out how to watch the Miami Marlins play the Colorado Rockies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6633369/2025/09/16/marlins-vs-rockies-stream-how-to-watch-sept-16/
+
+**How to watch Rangers at Astros: Time, TV, streaming for September 16**\
+`Find out how to watch the Texas Rangers play the Houston Astros, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6633363/2025/09/16/rangers-vs-astros-stream-how-to-watch-sept-16/
+
+**How to watch Yankees at Twins: Time, TV, streaming for September 16**\
+`Find out how to watch the New York Yankees play the Minnesota Twins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6633362/2025/09/16/yankees-vs-twins-stream-how-to-watch-sept-16/
+
+**How to watch Orioles at White Sox: Time, TV, streaming for September 16**\
+`Find out how to watch the Baltimore Orioles play the Chicago White Sox, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6633359/2025/09/16/orioles-vs-white-sox-stream-how-to-watch-sept-16/
+
 **The BookKeeper: Projecting how close Premier League teams are to UEFA's spending limits**\
 `Nine Premier League teams are playing in Europe this season which means they must adhere to UEFA's rules or face fines or even a ban`\
 https://nytimes.com/athletic/6618790/2025/09/16/bookkeeper-uefa-spending-breach/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/09/16/us/politics/judge-migrants-deported-ghana.html
 **'Trash': Yankees need Luke Weaver to rebound after meltdown vs. Twins**\
 `It’s been an up and down season for Weaver, who has given up at least one earned run in four of his last six appearances.`\
 https://nytimes.com/athletic/6633262/2025/09/16/new-york-yankees-luke-weaver-meltdown/
-
-**Chargers vs. Raiders takeaways: L.A.'s defense leads win, but Khalil Mack hurt**\
-`The Chargers limited quarterback Geno Smith to 180 yards passing and intercepting him three times in a 20-9 victory.`\
-https://nytimes.com/athletic/6632865/2025/09/16/chargers-raiders-score-result-takeaways-monday-night-football/
-
-**Phillies clinch NL East with closing kick, become first team to wrap up division title**\
-`The Phillies are NL East champions for the second straight year. Bolstered by key additions, they have MLB's best record since Aug. 1. `\
-https://nytimes.com/athletic/6628279/2025/09/16/phillies-clinch-national-league-east/
-
-**The New York Times in Print for Tuesday, Sep. 16, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/09/16/todays-new-york-times
-
-**Britain Hates Trump. But It Quite Likes Trumpism.**\
-`Across the pond, the president’s hard-right nativism is flourishing.`\
-https://nytimes.com/2025/09/16/opinion/trump-britain-state-visit.html
-
-**Vuelta a Espana key takeaways: Vingegaard's revival, Pidcock's evolution, and the impact of protests**\
-`The Athletic's writers discuss an eventful three weeks at cycling's final Grand Tour of the season`\
-https://nytimes.com/athletic/6631845/2025/09/16/vuelta-a-espana-key-takeaways-2025/
-
-**Trump World’s Deals With the U.A.E.**\
-`We dug deeper into lucrative transactions involving the Trump family’s cryptocurrency firm and the United Arab Emirates.`\
-https://nytimes.com/2025/09/16/briefing/trump-business-uae.html
 

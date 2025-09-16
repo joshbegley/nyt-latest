@@ -1,3 +1,15 @@
+**The BookKeeper: Projecting how close Premier League teams are to UEFA's spending limits**\
+`Nine Premier League teams are playing in Europe this season which means they must adhere to UEFA's rules or face fines or even a ban`\
+https://nytimes.com/athletic/6618790/2025/09/16/bookkeeper-uefa-spending-breach/
+
+**Word of the Day: comatose**\
+`This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/09/16/learning/word-of-the-day-comatose.html
+
+**Federal Judge Declines to Intervene for Migrants Deported to Ghana**\
+`Judge Tanya S. Chutkan said her hands were “tied” with regard to the migrants, even though they held protective orders, in another victory for President Trump’s deportation campaign.`\
+https://nytimes.com/2025/09/16/us/politics/judge-migrants-deported-ghana.html
+
 **'Trash': Yankees need Luke Weaver to rebound after meltdown vs. Twins**\
 `It’s been an up and down season for Weaver, who has given up at least one earned run in four of his last six appearances.`\
 https://nytimes.com/athletic/6633262/2025/09/16/new-york-yankees-luke-weaver-meltdown/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6631845/2025/09/16/vuelta-a-espana-key-takeaways-20
 **Trump World’s Deals With the U.A.E.**\
 `We dug deeper into lucrative transactions involving the Trump family’s cryptocurrency firm and the United Arab Emirates.`\
 https://nytimes.com/2025/09/16/briefing/trump-business-uae.html
-
-**Inside Newcastle Q&A: Howe future, Wissa fitness and January transfer window focus**\
-`Chris Waugh has answered your questions on Newcastle after the weekend's Premier League action`\
-https://nytimes.com/athletic/6628789/2025/09/16/newcastle-united-eddie-howe-future-yoane-wissa-fitness/
-
-**Cristian Romero press conference: What Spurs captain said about Daniel Levy, Thomas Frank and why he stayed**\
-`Jay Harris analyses an incredibly rare opportunity to hear from Tottenham's Argentinian defender `\
-https://nytimes.com/athletic/6631912/2025/09/16/cristian-romero-press-conference-champions-league-levy/
-
-**Why patience should be the motto for Wrexham and Phil Parkinson this autumn**\
-`Only once the club's expensively-assembled squad has had a chance to settle in should judgement be passed `\
-https://nytimes.com/athletic/6630523/2025/09/16/wrexham-patience-parkinson-championship/
 
