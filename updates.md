@@ -1,3 +1,7 @@
+**Trading for Crosby? Bidding for McDavid? Is the NHL entering its chaos era?**\
+`In the past decade, 10 of the NHL's top 13 scorers have each played for just one team. Is that changing? `\
+https://nytimes.com/athletic/6631747/2025/09/16/crosby-mcdavid-nhl-trade-free-agency-rumor-chaos/
+
 **Explosive plays and a much-improved pass rush: Analyzing the Lions' Week 2 performance**\
 `After a frustrating Week 1 loss, the Lions beat the Bears in the trenches and go into Week 3's Monday night matchup with confidence.`\
 https://nytimes.com/athletic/6632738/2025/09/16/detroit-lions-offense-defense-result/
