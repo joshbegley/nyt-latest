@@ -1,3 +1,7 @@
+**Hillsborough Law to be introduced to parliament to prevent major disaster cover-ups**\
+`The introduction of the bill to parliament is the first stage of its ascension to becoming law`\
+https://nytimes.com/athletic/6633490/2025/09/16/hillsborough-law-parliament-liverpool/
+
 **Israel Is Committing Genocide in Gaza, U.N. Inquiry Says**\
 `In earlier reports, the commission found that Israel had committed war crimes and crimes against humanity in its conflict with Hamas, but stopped short of calling it genocide. Israel denounced the accusation as “fake.”`\
 https://nytimes.com/2025/09/16/world/middleeast/un-israel-gaza-genocide.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6628279/2025/09/16/phillies-clinch-national-league-
 **Second thoughts: Atlanta moving forward with two kickers (for now) while O-line rebounds**\
 `The Falcons will keep kickers Parker Romo and Younghoe Koo at least for this week, while Raheem Morris tells the "brutal, honest truth."`\
 https://nytimes.com/athletic/6632785/2025/09/16/falcons-vikings-parker-romo-offensive-line/
-
-**If Kawhi Leonard just wants to hoop, couldn’t he avoid all this Clippers drama?**\
-`There's a lot of finger pointing around the allegations of impermissible benefits, but Kawhi Leonard seems to have avoided much criticism. `\
-https://nytimes.com/athletic/6613742/2025/09/16/clippers-kawhi-leonard-ballmer-payments/
 
