@@ -1,9 +1,9 @@
-**210 Russian Sites Indoctrinate Children From Occupied Ukraine, Study Says**\
+**Russia Indoctrinates Children From Occupied Ukraine at 210 Sites, Study Says**\
 `War crime investigators at Yale discovered a program of re-education and military and police training that was larger than estimated earlier.`\
 https://nytimes.com/2025/09/16/world/europe/russia-re-education-camps-ukrainian-children.html
 
 **Barcelona to play second home game at 6,000-capacity ground as Camp Nou delays continue**\
-`Barca confirmed five days before Sunday's match against Getafe they would again play at Estadi Johan Cruyff.`\
+`Barca confirmed five days before Sunday's match against Getafe that they would again play at Estadi Johan Cruyff`\
 https://nytimes.com/athletic/6633779/2025/09/16/barcelona-stadium-getafe-camp-nou-latest/
 
 **Late-Night TV Is Fading. There’s One Part You May Come to Miss.**\
