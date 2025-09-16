@@ -1,3 +1,11 @@
+**Senate Votes In Trump Pick for Fed Board**\
+`Senate Republicans confirmed President Trump’s nomination of Stephen Miran, a top White House economic adviser, as a governor for the Federal Reserve on Monday.`\
+https://nytimes.com/video/us/politics/100000010401274/stephen-miran-confirmed-fed.html
+
+**With State Visit, Trump Leaves a Tense America for a Brief U.K. Royal Retreat**\
+`President Trump’s trip to Britain will involve horse-drawn carriages and a stay in an ancient castle. For British officials, the visit may feel less like a fairy tale.`\
+https://nytimes.com/2025/09/16/world/europe/trump-uk-visit-royals-britain.html
+
 **Here’s the latest.**\
 `By Lara Jakes, Isabel Kershner and Natan Odenheimer`\
 https://nytimes.com/live/2025/09/16/world/gaza-israel/heres-the-latest
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/16/crosswords/spelling-bee-forum.html
 **Late Night Finds Trump Strangely Fascinated by the White House Ballroom**\
 `“Every time he gets a chance to talk about it, he sounds likes one of my kids,” Seth Meyers said.`\
 https://nytimes.com/2025/09/16/arts/television/late-night-trump-white-house-ballroom.html
-
-**How to watch Michigan State at USC: Time, TV, streaming**\
-`Find out how to watch the Michigan State Spartans play the USC Trojans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6633425/2025/09/16/michigan-state-vs-usc-stream-how-to-watch-sept-20/
-
-**How to watch Wyoming at Colorado: Time, TV, streaming**\
-`Find out how to watch the Wyoming Cowboys play the Colorado Buffaloes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6633417/2025/09/16/wyoming-vs-colorado-stream-how-to-watch-sept-20/
 
