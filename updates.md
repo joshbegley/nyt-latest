@@ -1,3 +1,7 @@
+**Sam Kerr's 634-day wait finally ends. Plus: An update on Savannah DeMelo**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6633148/2025/09/15/sam-kerr-chelsea-savannah-demelo-full-time/
+
 **Buccaneers vs. Texans takeaways: Another late Baker Mayfield drive lifts Tampa to 2-0**\
 `Mayfield engineered an 11-play, 80-yard drive that was capped by Rachaad White's 2-yard TD run with six seconds left to stun the Texans.`\
 https://nytimes.com/athletic/6632585/2025/09/15/texans-buccaneers-result-score/
