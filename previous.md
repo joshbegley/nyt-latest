@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6633545/2025/09/16/giants-vs-diamondbacks-stream-ho
 https://nytimes.com/athletic/6633543/2025/09/16/phillies-vs-dodgers-stream-how-to-watch-sept-16/
 
 **Trump Gets a Second State Visit to the U.K.**\
-`President Trump will visit the U.K. this week in an unprecedented second state visit. Mark Landler, the London bureau chief of The New York Times, describes the efforts the British are making to stay on Trump’s good side, and what they hope to get in return.`\
+`President Trump will be in the U.K. this week in an unprecedented second state visit. Mark Landler, the London bureau chief of The New York Times, describes the efforts the British are making to stay on Trump’s good side, and what they hope to get in return.`\
 https://nytimes.com/video/world/europe/100000010394853/trump-second-state-visit-uk.html
 
 **Mets' fate hinges on the talent, poise and brotherhood of 3 young starters**\

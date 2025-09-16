@@ -1,3 +1,7 @@
+**Trump Gets a Second State Visit to the U.K.**\
+`President Trump will be in the U.K. this week in an unprecedented second state visit. Mark Landler, the London bureau chief of The New York Times, describes the efforts the British are making to stay on Trump’s good side, and what they hope to get in return.`\
+https://nytimes.com/video/world/europe/100000010394853/trump-second-state-visit-uk.html
+
 **How to watch Giants at Diamondbacks: Time, TV, streaming for September 16**\
 `Find out how to watch the San Francisco Giants play the Arizona Diamondbacks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6633545/2025/09/16/giants-vs-diamondbacks-stream-how-to-watch-sept-16/
