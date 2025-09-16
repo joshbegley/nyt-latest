@@ -1,3 +1,7 @@
+**8 Songs That Will Catch You Up on This Year’s Music**\
+`Hear recent tracks from Bon Iver, Dijon, Karol G and more.`\
+https://nytimes.com/2025/09/16/arts/music/amplifier-newsletter-bon-iver-new-songs.html
+
 **Man Known as the ‘Tinder Swindler’ Is Arrested in Georgia**\
 `The man, Shimon Hayut, has been accused of using multiple aliases to swindle women he met on dating apps out of millions of dollars.`\
 https://nytimes.com/2025/09/16/world/europe/tinder-swindler-simon-leviev-arrested.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6631344/2025/09/16/fantasy-football-usage-week-3/
 **The Day-Trippers Come for Trieste**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/italy-venice-trieste-cruise-ships-tourists
-
-**Mary Rose Oakar, 85, First Arab American Woman in Congress, Dies**\
-`In her 16 years on Capitol Hill, she emerged as a champion of women’s rights, especially equal pay for comparable work.`\
-https://nytimes.com/2025/09/16/us/politics/mary-rose-oakar-dead.html
 
