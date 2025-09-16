@@ -1,3 +1,7 @@
+**Mary Rose Oakar, 85, First Arab American Woman in Congress, Dies**\
+`In her 16 years on Capitol Hill, she emerged as a champion of women’s rights, especially equal pay for comparable work.`\
+https://nytimes.com/2025/09/16/us/politics/mary-rose-oakar-dead.html
+
 **Super Bowl odds track Green Bay's ascent while injuries at QB drop several favorites**\
 `Matchups among contenders and several questionable QBs caused a shakeup in Super Bowl odds below Tier 1.`\
 https://nytimes.com/athletic/6634575/2025/09/16/super-bowl-odds-after-week-2-green-bay/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/16/us/politics/false-confession-kirk-shooting-suspec
 **French Patisserie’s Latest Darlings? Babkas That Buck Tradition.**\
 `Babka Zana, a Parisian bakery, and others are embracing versions that veer away from the traditional cinnamon and chocolate iterations.`\
 https://nytimes.com/2025/09/16/dining/french-babka-rosh-hashana.html
-
-**Baller League USA to launch in Miami with Ronaldinho and Usain Bolt as managers**\
-`The competition originated in Germany and was launched in the UK earlier this year.`\
-https://nytimes.com/athletic/6634591/2025/09/16/baller-league-usa-miami-ronaldinho-usain-bolt/
 

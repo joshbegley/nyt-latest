@@ -1,3 +1,11 @@
+**Super Bowl odds track Green Bay's ascent while injuries at QB drop several favorites**\
+`Matchups among contenders and several questionable QBs caused a shakeup in Super Bowl odds below Tier 1.`\
+https://nytimes.com/athletic/6634575/2025/09/16/super-bowl-odds-after-week-2-green-bay/
+
+**Israel Bombards Gaza City as It Announces Ground Operation**\
+`The Israeli military said on Tuesday that it had started a ground incursion into Gaza City. The announcement came amid intensified Israeli bombing of the city, which local health officials say killed at least 20 people and injured dozens since midnight.`\
+https://nytimes.com/video/world/middleeast/100000010401366/gaza-city-operation-strikes.html
+
 **Until Saturday: Coach-firing season begins (slightly) early**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6634686/2025/09/16/college-football-coaches-fired-early-until-saturday/
