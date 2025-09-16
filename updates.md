@@ -1,3 +1,11 @@
+**The New York Times in Print for Tuesday, Sep. 16, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/16/todays-new-york-times
+
+**Britain Hates Trump. But It Quite Likes Trumpism.**\
+`Across the pond, the president’s hard-right nativism is flourishing.`\
+https://nytimes.com/2025/09/16/opinion/trump-britain-state-visit.html
+
 **Vuelta a Espana key takeaways: Vingegaard's revival, Pidcock's evolution, and the impact of protests**\
 `The Athletic's writers discuss an eventful three weeks at cycling's final Grand Tour of the season`\
 https://nytimes.com/athletic/6631845/2025/09/16/vuelta-a-espana-key-takeaways-2025/
