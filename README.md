@@ -1,3 +1,7 @@
+**Live Updates: Israel Launches Ground Offensive in Gaza City, Officials Say**\
+`The ground operation and intensifying Israeli bombardment risks deepening the humanitarian crisis in a war that has already killed tens of thousands of Palestinians.`\
+https://nytimes.com/live/2025/09/16/world/gaza-israel
+
 **Israel Launches Gaza City Ground Offensive, Officials Say**\
 `The long-planned take over of the city began early Tuesday, according to officials, despite hundreds of thousands of people still sheltering there.`\
 https://nytimes.com/2025/09/16/world/middleeast/israel-gaza-city-ground-offensive.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6633417/2025/09/16/wyoming-vs-colorado-stream-how-t
 **Former Man Utd midfielder Mata signs for Melbourne Victory for 2025-26**\
 `The 37-year-old has played for Galatasaray, Vissel Kobe and Western Sydney Wanderers since leaving the Premier League`\
 https://nytimes.com/athletic/6633348/2025/09/16/juan-mata-melbourne-victory-transfer/
-
-**Members of Congress Mourn Charlie Kirk in the Capitol**\
-`Republicans and a handful of Democrats attended a vigil for the right-wing activist, Charlie Kirk, who was assassinated last week.`\
-https://nytimes.com/video/us/politics/100000010401038/republicans-charlie-kirk-vigil-capitol.html
 
