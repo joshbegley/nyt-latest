@@ -12,7 +12,7 @@ https://nytimes.com/2025/09/16/nyregion/heastie-mamdani-endorsement-nyc-mayor.ht
 
 **Man falsely confessed to Kirk shooting to help assassin escape, police say.**\
 `Moments after Charlie Kirk was killed, a 71-year-old man told an officer, ‘I shot him,’ the police said. It wasn’t true, but it delayed officers’ efforts to find the shooter.`\
-https://nytimes.com/2025/09/16/us/politics/false-confession-kirk-shooting-suspect-escape.html
+https://nytimes.com/live/2025/09/16/us/kirk-shooting-suspect-charges/man-falsely-confessed-to-kirk-shooting-to-help-assassin-escape-police-say
 
 **French Patisserie’s Latest Darlings? Babkas That Buck Tradition.**\
 `Babka Zana, a Parisian bakery, and others are embracing versions that veer away from the traditional cinnamon and chocolate iterations.`\
