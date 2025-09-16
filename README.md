@@ -1,3 +1,7 @@
+**Anatomy of a Giants letdown: How defense, coaches failed in biggest moment vs. Cowboys**\
+`The Giants knew Dallas' Brandon Aubrey could make a 60-plus-yard FG, so why did they play such soft coverage at the end of regulation?`\
+https://nytimes.com/athletic/6633198/2025/09/16/ny-giants-defense-shane-bowen-cowboys/
+
 **Biggest position battles at Rangers training camp: Will a young winger step up?**\
 `If our projections are correct, four spots are up for grabs: three forwards and one defenseman. Let's preview them.`\
 https://nytimes.com/athletic/6628467/2025/09/16/new-york-rangers-position-battles-training-camp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6632005/2025/09/16/new-york-jets-micheal-clemons-de
 **Dane Brugler's NFL Draft film room: Chris Brazzell II, other prospects who stood out in Week 3**\
 `Brazzell's Tennessee team came up just short, but he still put forth an impressive effort. Who else shined on Saturday?`\
 https://nytimes.com/athletic/6631621/2025/09/16/nfl-draft-2026-film-chris-brazzell/
-
-**Can Giannis be more reliable for the Bucks? What are Myles Turner's expectations?**\
-`The Bucks are looking to bounce back after a disappointing postseason, and they'll ask for new players to step up.`\
-https://nytimes.com/athletic/6631106/2025/09/16/bucks-giannis-antetokounmpo-myles-turner-questions-nba/
 
