@@ -1,3 +1,19 @@
+**Champions League 2025-26 Projections: Who will lift the trophy in Budapest on May 30?**\
+`Our Opta-powered Champions League projections update after each matchday`\
+https://nytimes.com/athletic/6630404/2025/09/16/champions-league-projections-2025-26/
+
+**The rise of Australia's record-breaking sprinter: 'He's going to be the best runner ever'**\
+`Gout Gout is the youngest entry in the men’s 200m at the World Athletics Championships in Tokyo. `\
+https://nytimes.com/athletic/6546336/2025/09/16/gout-gout-2025-tokyo-world-athletics-championships-profile/
+
+**Champions League: Under-the-radar players to watch**\
+`From youngsters breaking through to experienced forwards taking on new challenges, here are players to watch out for at smaller clubs`\
+https://nytimes.com/athletic/6628151/2025/09/16/champions-league-players-to-watch-2025-26/
+
+**Bundesliga Briefing: Watch out for Bayern's counter-attack, Chelsea — and the kit-wearing coach**\
+`The international break is over and the Bundesliga was back for another weekend of action`\
+https://nytimes.com/athletic/6631618/2025/09/16/bundesliga-briefing-bayern-munich-kit-coach/
+
 **Why Korean Fandom Is So Intense, According to the Star of ‘Squid Game’**\
 `Lee Jung-jae, who has been a star in South Korea for decades, said social media has made audiences more zealous. He thinks he knows how to keep them happy.`\
 https://nytimes.com/2025/09/16/world/asia/lee-jae-jung-squid-game.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6632739/2025/09/16/fantasy-football-waiver-wire-wee
 **China Is Longing for the ‘Beauty of the Boom Years’**\
 `Nostalgia for the fashion and culture of the years after the millennium, when the future held promise for many, is a commentary on today’s mood.`\
 https://nytimes.com/2025/09/16/business/china-young-people-boom.html
-
-**Corrections: Sept. 16, 2025**\
-`Corrections that appeared in print on Tuesday, Sept. 16, 2025.`\
-https://nytimes.com/2025/09/16/pageoneplus/corrections-sept-16-2025.html
-
-**Quote of the Day: Forgive Me, Oh Chatbot, For My Sins**\
-`Quotation of the Day for Tuesday, September 16, 2025.`\
-https://nytimes.com/2025/09/15/pageoneplus/quote-of-the-day-forgive-me-oh-chatbot-for-my-sins.html
-
-**Chargers' Khalil Mack ruled out vs. Raiders with elbow injury**\
-`Mack and teammate Troy Dye collided as they were trying to make a tackle, with Mack's elbow taking the brunt of the blow. `\
-https://nytimes.com/athletic/6633174/2025/09/15/chargers-khalil-mack-elbow-injury-raiders/
-
-**Once a Rising Star, a Top Texas Democrat Won’t Seek Re-election**\
-`Lina Hidalgo, the top elected official in Harris County, which includes Houston, says she will not run for re-election or any other office in 2026.`\
-https://nytimes.com/2025/09/15/us/politics/lina-hidalgo-texas-houston.html
 
