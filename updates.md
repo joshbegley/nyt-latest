@@ -1,3 +1,7 @@
+**Isak could make Liverpool debut against Atletico on Wednesday, Slot says**\
+`The Sweden international is yet to feature for the Premier League champions after his deadline-day move from Newcastle United`\
+https://nytimes.com/athletic/6634437/2025/09/16/alexander-isak-liverpool-debut-arne-slot/
+
 **How Do Times Health Reporters Choose Experts?**\
 `A few basic guidelines help us ensure we’re finding and interviewing the right sources for health and wellness news.`\
 https://nytimes.com/2025/09/16/well/how-health-reporters-choose-experts.html

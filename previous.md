@@ -1,3 +1,7 @@
+**Isak could make Liverpool debut against Atletico on Wednesday, Slot says**\
+`The Sweden international is yet to feature for the Premier League champions after his deadline-day move from Newcastle United`\
+https://nytimes.com/athletic/6634437/2025/09/16/alexander-isak-liverpool-debut-arne-slot/
+
 **How Do Times Health Reporters Choose Experts?**\
 `A few basic guidelines help us ensure we’re finding and interviewing the right sources for health and wellness news.`\
 https://nytimes.com/2025/09/16/well/how-health-reporters-choose-experts.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6631709/2025/09/16/justin-herbert-chargers-raiders-
 **King Charles Mourns Duchess of Kent at Catholic Funeral**\
 `The duchess, best known for her role bestowing trophies at the Wimbledon tennis tournament, was the first member of the royal family to convert to Catholicism in centuries.`\
 https://nytimes.com/2025/09/16/world/europe/king-charles-duchess-of-kent-funeral.html
-
-**Social Platforms Duck Blame for Inflaming Divisions Before Charlie Kirk’s Death**\
-`After authorities said Mr. Kirk’s suspected shooter had been “radicalized” online, Meta, Reddit, TikTok and other platforms have stayed quiet — though not Elon Musk, who owns X.`\
-https://nytimes.com/2025/09/16/technology/charlie-kirk-meta-x-tiktok.html
 
