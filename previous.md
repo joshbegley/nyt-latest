@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6632805/2025/09/15/cubs-kyle-tucker-playoffs-calf-i
 https://nytimes.com/2025/09/15/business/stephen-miran-confirmed-fed.html
 
 **Appeals Court Says Lisa Cook Can Remain on Fed Board**\
-`The decision came just a day before the Federal Reserve begins a two-day meeting at which policymakers are expected to cut interest rates.`\
+`The decision came the day before the Federal Reserve begins a two-day meeting at which policymakers are expected to cut interest rates.`\
 https://nytimes.com/2025/09/15/us/politics/lisa-cook-fed-appeals-court-decision.html
 
 **The 8 Buildings You Must See in Stockholm**\
