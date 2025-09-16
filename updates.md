@@ -1,3 +1,7 @@
+**Chargers vs. Raiders takeaways: L.A.'s defense leads win, but Khalil Mack hurt**\
+`The Chargers limited quarterback Geno Smith to 180 yards passing and intercepting him three times in a 20-9 victory.`\
+https://nytimes.com/athletic/6632865/2025/09/16/chargers-raiders-score-result-takeaways-monday-night-football/
+
 **Phillies clinch NL East with closing kick, become first team to wrap up division title**\
 `The Phillies are NL East champions for the second straight year. Bolstered by key additions, they have MLB's best record since Aug. 1. `\
 https://nytimes.com/athletic/6628279/2025/09/16/phillies-clinch-national-league-east/

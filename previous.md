@@ -1,3 +1,7 @@
+**Chargers vs. Raiders takeaways: L.A.'s defense leads win, but Khalil Mack hurt**\
+`The Chargers limited quarterback Geno Smith to 180 yards passing and intercepting him three times in a 20-9 victory.`\
+https://nytimes.com/athletic/6632865/2025/09/16/chargers-raiders-score-result-takeaways-monday-night-football/
+
 **Phillies clinch NL East with closing kick, become first team to wrap up division title**\
 `The Phillies are NL East champions for the second straight year. Bolstered by key additions, they have MLB's best record since Aug. 1. `\
 https://nytimes.com/athletic/6628279/2025/09/16/phillies-clinch-national-league-east/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6630523/2025/09/16/wrexham-patience-parkinson-champ
 **Champions League early kick-offs: Why are they happening and is it a good idea?**\
 `The Champions League returns this week and fans will have to get accustomed to early kick-offs once again`\
 https://nytimes.com/athletic/6631483/2025/09/16/champions-league-early-kick-offs-thursday-matches-explainer/
-
-**Mbappe and Vinicius Jr's fortunes at Madrid could hardly be more contrasting**\
-`Mbappe is Madrid's undisputed leader while Vinicius Jr is going through a bad patch of form. What's happened?`\
-https://nytimes.com/athletic/6630757/2025/09/16/kylian-mbappe-vinicius-junior-real-madrid-contrast/
 
