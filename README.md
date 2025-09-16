@@ -1,3 +1,15 @@
+**Prosecutors Seek Death Penalty in Killing of Charlie Kirk**\
+`Also, Israeli troops pushed into Gaza City. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/09/16/briefing/charges-charlie-kirk-killing-israel-gaza-city.html
+
+**In Charlie Kirk Killing, Finger Pointing Began Before the Evidence Was In**\
+`Before much was known about the accused, the right and left rushed to blame the other side, fitting a historical pattern.`\
+https://nytimes.com/2025/09/16/us/politics/charlie-kirk-killing-conspiracy-politics.html
+
+**Johnston: What I'm hearing about McDavid-Oilers as he's set to enter camp without an extension**\
+`McDavid will not have an extension in place before the team opens training camp Wednesday, according to league sources. What does it mean?`\
+https://nytimes.com/athletic/6635346/2025/09/16/connor-mcdavid-oilers-training-camp-extension/
+
 **Astros' Yordan Alvarez to miss significant time with left ankle sprain**\
 `The Astros star slugger injured his ankle on Monday night while scoring a run. Manager Joe Espada said Alvarez will be "out for a while."`\
 https://nytimes.com/athletic/6635274/2025/09/16/yordan-alvarez-left-ankle-sprain-houston-astros/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/16/world/middleeast/trump-netanyahu-gaza-escalation.
 **House Passes D.C. Crime Bills as Trump Crackdown Continues**\
 `The legislation is part of a package that House Republicans are pushing to impose more federal control over the District in line with President Trump’s demands.`\
 https://nytimes.com/2025/09/16/us/politics/house-dc-crime-bills.html
-
-**Israel’s Push Into Gaza City**\
-`We bring together pieces of Times journalism to help you understand the big picture.`\
-https://nytimes.com/2025/09/16/briefing/israel-gaza-city-trump-state-visit-uk.html
-
-**What Was Behind David Bowie’s Genius? His Archive Holds the Answers.**\
-`The David Bowie Center in London is a new home for the singer’s 90,000-item archive. It holds the key to the pop star’s dramatic reinventions.`\
-https://nytimes.com/interactive/2025/09/16/arts/music/david-bowie-archive.html
-
-**The Briefing: Real Madrid 2 Marseille 1 - Mbappe penalty double, teen star shines, Alexander-Arnold injury**\
-`Real Madrid come from behind to beat Marseille thanks to two Kylian Mbappe penalties`\
-https://nytimes.com/athletic/6634080/2025/09/16/real-madrid-2-marseille-1-champions-league-kylian-mbappe-trent-alexander-arnold/
 
