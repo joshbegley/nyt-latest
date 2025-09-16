@@ -1,3 +1,7 @@
+**Live Updates: Israel Launches Ground Offensive in Gaza City, Officials Say**\
+`The ground operation and intensifying Israeli bombardment risks deepening the humanitarian crisis in a war that has already killed tens of thousands of Palestinians.`\
+https://nytimes.com/live/2025/09/16/world/gaza-israel
+
 **Israel Launches Gaza City Ground Offensive, Officials Say**\
 `The long-planned take over of the city began early Tuesday, according to officials, despite hundreds of thousands of people still sheltering there.`\
 https://nytimes.com/2025/09/16/world/middleeast/israel-gaza-city-ground-offensive.html
