@@ -1,3 +1,11 @@
+**Atlanta Dream's WNBA playoff chase was a 'progress plan'**\
+`After hiring Dan Padover as general manager and Karl Smesko as coach, the Dream are reaching new heights, winning a franchise-best 30 games.`\
+https://nytimes.com/athletic/6633076/2025/09/16/atlanta-dream-wnba-playoffs-karl-smesko/
+
+**Adam Silver on NBA and ‘highlights’: Not wrong, definitely too glib**\
+`Highlight culture is an essential part of being an NBA fan — and even more essential for the league to grow the game.`\
+https://nytimes.com/athletic/6625676/2025/09/16/adam-silver-nba-highlights/
+
 **Big Ten football mailbag: Where does Oregon need to improve to make a CFP run?**\
 `Also, why Penn State played a weak conference schedule and thoughts on Big Ten schedule discrepancies. `\
 https://nytimes.com/athletic/6632631/2025/09/16/big-ten-football-mailbag-illinois-oregon/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6632396/2025/09/16/michigan-state-usc-football-star
 **Explaining Athletic Club's Basque-only policy and who qualifies for it**\
 `Arsenal haven't faced a team like Athletic before — they are only able to pick players from the 3million population Basque Country`\
 https://nytimes.com/athletic/6631215/2025/09/16/athletic-club-basque-only-policy-explainer/
-
-**What's next for the Women's Professional Baseball League? Catching up with adviser Alex Hugo**\
-`Hugo, a WPBL adviser and a decorated baseball and softball player in her own right, brings us up to speed on the fledgling league.`\
-https://nytimes.com/athletic/6620648/2025/09/16/womens-professional-baseball-league-alex-hugo/
-
-**Do Chelsea have as much strength in depth as it appears?**\
-`The head coach has no shortage of options but what if those players cannot fulfil his very specific tactical requirements?`\
-https://nytimes.com/athletic/6631734/2025/09/16/chelsea-depth-maresca-brentford/
 
