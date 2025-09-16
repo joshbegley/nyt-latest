@@ -1,3 +1,11 @@
+**Man, 66, arrested on suspicion of racially abusing Leeds' Ampadu, Ramazani vs Sunderland**\
+`Leeds said both players were subjected to racial abuse from an individual in the Elland Road away end during February's Championship game.`\
+https://nytimes.com/athletic/6634182/2025/09/16/ethan-ampadu-largie-ramazani-leeds/
+
+**Fantasy football market share report: Quentin Johnston and Juwan Johnson are must starts**\
+`Michael Salfino mines the touches and targets data from Week 2 to help inform future roster decisions, like going all-in on Juwan Johnson.`\
+https://nytimes.com/athletic/6634683/2025/09/16/fantasy-football-market-share-report-week-3-johnston-johnson/
+
 **New Therapy Delivers Hope for Patients with Certain Types of Bladder Cancer **\
 `After decades of limited options, a ground-breaking FDA-approved treatment is opening new doors for people with certain types of bladder cancer.`\
 https://nytimes.com/paidpost/2025-09-10/.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6634746/2025/09/16/rams-sean-mcvay-tears-plantar-fa
 **Submit a question for James Edwards’ offseason mailbag**\
 `<p>The Knicks are starting training camp next week, the front office is rounding out the roster and the most anticipated season in a while is about to begin.`\
 https://nytimes.com/athletic/6634777/2025/09/16/knicks-offseason-mailbag/
-
-**This San Francisco Giants' bullpen is terrifying — and their only hope**\
-`This Giants bullpen isn't the one the team planned on. Of all the duct-taped bullpens you've ever seen, this one might be the duct-tapiest.`\
-https://nytimes.com/athletic/6629985/2025/09/16/sf-giants-bullpen-projections/
-
-**Minnesota State House District 34B Special Election Results**\
-`Get live results from the special election to replace Melissa Hortman, a Democrat and former Minnesota House speaker who was killed in June.`\
-https://nytimes.com/interactive/2025/09/16/us/elections/results-minnesota-state-house-district-34b.html
 
