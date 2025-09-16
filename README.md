@@ -1,3 +1,7 @@
+**Deception? Conflicting Paperwork? Clerical Error? How a Politician’s Mortgages Can Get Muddy**\
+`Mortgage fraud allegations, like those President Trump has leveled against Lisa Cook, are hard to prove. A New York Times review of the holdings of other Washington officials shows how multiple mortgages can invite questions even when people act properly.`\
+https://nytimes.com/2025/09/15/us/politics/mortgages-politicians-paperwork-confusion.html
+
 **Curved Path**\
 `Jonathan Daly’s crossword is flat-out fabulous.`\
 https://nytimes.com/2025/09/15/crosswords/daily-puzzle-2025-09-16.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/15/business/stephen-miran-confirmed-fed.html
 **Appeals Court Says Lisa Cook Can Remain on Fed Board**\
 `The decision came the day before the Federal Reserve begins a two-day meeting at which policymakers are expected to cut interest rates.`\
 https://nytimes.com/2025/09/15/us/politics/lisa-cook-fed-appeals-court-decision.html
-
-**The 8 Buildings You Must See in Stockholm**\
-`These sites capture the city’s practical, restrained style — but aren’t without whimsy.`\
-https://nytimes.com/2025/09/15/t-magazine/stockholm-architecture-building-guide.html
 
