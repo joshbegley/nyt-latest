@@ -1,3 +1,7 @@
+**U.S. Attacks Second Venezuelan Boat**\
+`On Monday, President Trump posted footage on Truth Social of the U.S. military launching a deadly strike on a boat from Venezuela, which he claimed was linked to “drug trafficking cartels.” This was the second time in a month that the U.S. attacked a Venezuelan boat.`\
+https://nytimes.com/video/us/politics/100000010400773/venezuela-drug-boat.html
+
 **Republicans Honor Charlie Kirk at Vigil in the Capitol**\
 `Only a handful of Democrats and none of the party’s top leaders attended the ceremony, an outpouring of praise and mourning for the right-wing activist, who was assassinated last week.`\
 https://nytimes.com/2025/09/15/us/politics/republicans-charlie-kirk-vigil-capitol.html

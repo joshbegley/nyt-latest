@@ -1,3 +1,7 @@
+**U.S. Attacks Second Venezuelan Boat**\
+`On Monday, President Trump posted footage on Truth Social of the U.S. military launching a deadly strike on a boat from Venezuela, which he claimed was linked to “drug trafficking cartels.” This was the second time in a month that the U.S. attacked a Venezuelan boat.`\
+https://nytimes.com/video/us/politics/100000010400773/venezuela-drug-boat.html
+
 **Republicans Honor Charlie Kirk at Vigil in the Capitol**\
 `Only a handful of Democrats and none of the party’s top leaders attended the ceremony, an outpouring of praise and mourning for the right-wing activist, who was assassinated last week.`\
 https://nytimes.com/2025/09/15/us/politics/republicans-charlie-kirk-vigil-capitol.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/15/t-magazine/stockholm-architecture-building-guide.
 **Racing-Reign match to resume 2 days after Savannah DeMelo's onfield collapse**\
 `The match between Louisville and Seattle, which was postponed on Sunday, will resume behind closed doors on Tuesday.`\
 https://nytimes.com/athletic/6632627/2025/09/15/racing-reign-resume-play-savannah-demelo/
-
-**How to watch Angels at Brewers: Time, TV, streaming for September 16**\
-`Find out how to watch the Los Angeles Angels play the Milwaukee Brewers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6632839/2025/09/15/angels-vs-brewers-stream-how-to-watch-sept-16/
 
