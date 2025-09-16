@@ -1,3 +1,11 @@
+**Former Man Utd midfielder Mata signs for Melbourne Victory for 2025-26**\
+`The 37-year-old has played for Galatasaray, Vissel Kobe and Western Sydney Wanderers since leaving the Premier League`\
+https://nytimes.com/athletic/6633348/2025/09/16/juan-mata-melbourne-victory-transfer/
+
+**Members of Congress Mourn Charlie Kirk in the Capitol**\
+`Republicans and a handful of Democrats attended a vigil for the right-wing activist, Charlie Kirk, who was assassinated last week.`\
+https://nytimes.com/video/us/politics/100000010401038/republicans-charlie-kirk-vigil-capitol.html
+
 **How to watch Blue Jays at Rays: Time, TV, streaming for September 16**\
 `Find out how to watch the Toronto Blue Jays play the Tampa Bay Rays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6633375/2025/09/16/blue-jays-vs-rays-stream-how-to-watch-sept-16/
