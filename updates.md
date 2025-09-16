@@ -1,3 +1,7 @@
+**Quote of the Day: Forgive Me, Oh Chatbot, For My Sins**\
+`Quotation of the Day for Tuesday, September 16, 2025.`\
+https://nytimes.com/2025/09/15/pageoneplus/quote-of-the-day-forgive-me-oh-chatbot-for-my-sins.html
+
 **Chargers' Khalil Mack ruled out vs. Raiders with elbow injury**\
 `Mack and teammate Troy Dye collided as they were trying to make a tackle, with Mack's elbow taking the brunt of the blow. `\
 https://nytimes.com/athletic/6633174/2025/09/15/chargers-khalil-mack-elbow-injury-raiders/
