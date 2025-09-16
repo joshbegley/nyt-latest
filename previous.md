@@ -1,3 +1,7 @@
+**Can YouTube Make Livestreaming Its Next Big Thing?**\
+`The world’s largest and most influential video platform wants to persuade a lot more content creators to broadcast live.`\
+https://nytimes.com/2025/09/16/business/media/youtube-livestreaming-video.html
+
 **The Commerce Secretary, a Gilded Hotel and Claims of a Secret Plan**\
 `Some residents of the Pierre claim that Howard Lutnick, who owns the penthouse, was part of a plot to sell off this symbol of Manhattan glamour and wealth.`\
 https://nytimes.com/2025/09/16/business/lutnick-pierre-hotel.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6634396/2025/09/16/nicolas-jackson-bayern-chelsea-c
 **As an Activist, Robert Redford Understood the Power of Celebrity**\
 `His knowledge of the ways cameras and media create narratives helped him redirect those stories in service of larger causes like environmentalism.`\
 https://nytimes.com/2025/09/16/movies/robert-redford-activism.html
-
-**A No-Fly Zone Over Ukraine? The Challenges for the West Would Be Huge.**\
-`Poland suggested such a zone after a major Russian incursion. But political hesitance and military shortcomings pose clear obstacles.`\
-https://nytimes.com/2025/09/16/world/europe/ukraine-nato-no-fly-zone-poland.html
 

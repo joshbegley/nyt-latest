@@ -1,3 +1,7 @@
+**Can YouTube Make Livestreaming Its Next Big Thing?**\
+`The world’s largest and most influential video platform wants to persuade a lot more content creators to broadcast live.`\
+https://nytimes.com/2025/09/16/business/media/youtube-livestreaming-video.html
+
 **The Commerce Secretary, a Gilded Hotel and Claims of a Secret Plan**\
 `Some residents of the Pierre claim that Howard Lutnick, who owns the penthouse, was part of a plot to sell off this symbol of Manhattan glamour and wealth.`\
 https://nytimes.com/2025/09/16/business/lutnick-pierre-hotel.html
