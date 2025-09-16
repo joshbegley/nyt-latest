@@ -1,3 +1,11 @@
+**Vuelta a Espana key takeaways: Vingegaard's revival, Pidcock's evolution, and the impact of protests**\
+`The Athletic's writers discuss an eventful three weeks at cycling's final Grand Tour of the season`\
+https://nytimes.com/athletic/6631845/2025/09/16/vuelta-a-espana-key-takeaways-2025/
+
+**Trump World’s Deals With the U.A.E.**\
+`We dug deeper into lucrative transactions involving the Trump family’s cryptocurrency firm and the United Arab Emirates.`\
+https://nytimes.com/2025/09/16/briefing/trump-business-uae.html
+
 **Inside Newcastle Q&A: Howe future, Wissa fitness and January transfer window focus**\
 `Chris Waugh has answered your questions on Newcastle after the weekend's Premier League action`\
 https://nytimes.com/athletic/6628789/2025/09/16/newcastle-united-eddie-howe-future-yoane-wissa-fitness/

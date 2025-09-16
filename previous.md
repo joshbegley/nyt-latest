@@ -1,3 +1,11 @@
+**Vuelta a Espana key takeaways: Vingegaard's revival, Pidcock's evolution, and the impact of protests**\
+`The Athletic's writers discuss an eventful three weeks at cycling's final Grand Tour of the season`\
+https://nytimes.com/athletic/6631845/2025/09/16/vuelta-a-espana-key-takeaways-2025/
+
+**Trump World’s Deals With the U.A.E.**\
+`We dug deeper into lucrative transactions involving the Trump family’s cryptocurrency firm and the United Arab Emirates.`\
+https://nytimes.com/2025/09/16/briefing/trump-business-uae.html
+
 **Inside Newcastle Q&A: Howe future, Wissa fitness and January transfer window focus**\
 `Chris Waugh has answered your questions on Newcastle after the weekend's Premier League action`\
 https://nytimes.com/athletic/6628789/2025/09/16/newcastle-united-eddie-howe-future-yoane-wissa-fitness/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6630498/2025/09/16/champions-league-predictions-gam
 **James Horncastle’s Serie A Briefing: A tasty Derby d’Italia, Hojlund's perfect start, and Vardy's violin chat**\
 `Juventus gave more notice of their threat this season and champions Napoli are evolving - and Vardy made his Serie A bow this weekend`\
 https://nytimes.com/athletic/6630462/2025/09/16/james-horncastles-serie-a-briefing-another-juve-inter-classic-hojlunds-perfect-start-and-vardys-violin-chat/
-
-**Liverpool's late, late goals: Lucky, or all part of the plan?**\
-`No team has scored more late Premier League goals, and it is no coincidence`\
-https://nytimes.com/athletic/6631403/2025/09/16/liverpool-late-goals-premier-league/
-
-**Thomas Partey’s Villarreal transfer: What has been the reaction in Spain?**\
-`The former Arsenal midfielder signed for the Spanish club on a free transfer this summer`\
-https://nytimes.com/athletic/6630448/2025/09/16/thomas-partey-champions-league-villarreal-tottenham/
 
