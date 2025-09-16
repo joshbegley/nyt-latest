@@ -1,3 +1,7 @@
+**Israel Launches Gaza City Ground Offensive, Officials Say**\
+`The long-planned take over of the city began early Tuesday, according to officials, despite hundreds of thousands of people still sheltering there.`\
+https://nytimes.com/2025/09/16/world/middleeast/israel-gaza-city-ground-offensive.html
+
 **Which Living Democrat Does Cuomo Admire? He Can’t Name One.**\
 `In an interview with The New York Times, former Gov. Andrew M. Cuomo, a lifelong Democrat, said the party “is not meeting the moment.”`\
 https://nytimes.com/2025/09/16/us/politics/cuomo-nyc-mayor-democrats.html

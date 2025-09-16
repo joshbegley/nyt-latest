@@ -1,3 +1,7 @@
+**Israel Launches Gaza City Ground Offensive, Officials Say**\
+`The long-planned take over of the city began early Tuesday, according to officials, despite hundreds of thousands of people still sheltering there.`\
+https://nytimes.com/2025/09/16/world/middleeast/israel-gaza-city-ground-offensive.html
+
 **Which Living Democrat Does Cuomo Admire? He Can’t Name One.**\
 `In an interview with The New York Times, former Gov. Andrew M. Cuomo, a lifelong Democrat, said the party “is not meeting the moment.”`\
 https://nytimes.com/2025/09/16/us/politics/cuomo-nyc-mayor-democrats.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6633348/2025/09/16/juan-mata-melbourne-victory-tran
 **Members of Congress Mourn Charlie Kirk in the Capitol**\
 `Republicans and a handful of Democrats attended a vigil for the right-wing activist, Charlie Kirk, who was assassinated last week.`\
 https://nytimes.com/video/us/politics/100000010401038/republicans-charlie-kirk-vigil-capitol.html
-
-**How to watch Blue Jays at Rays: Time, TV, streaming for September 16**\
-`Find out how to watch the Toronto Blue Jays play the Tampa Bay Rays, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6633375/2025/09/16/blue-jays-vs-rays-stream-how-to-watch-sept-16/
 
