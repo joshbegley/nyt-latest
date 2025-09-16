@@ -1,3 +1,7 @@
+**Robert Redford: 15 Memorable Movies to Stream**\
+`His roles brought him to the screen as a Depression-era con man, a governor’s son and the journalist Bob Woodward. He also took to the director’s chair. Here are some of Redford’s career highlights.`\
+https://nytimes.com/2025/09/16/movies/robert-redford-streaming.html
+
 **Russia Indoctrinates Children From Occupied Ukraine at 210 Sites, Study Says**\
 `War crime investigators at Yale discovered a program of re-education and military and police training that was larger than estimated earlier.`\
 https://nytimes.com/2025/09/16/world/europe/russia-re-education-camps-ukrainian-children.html
