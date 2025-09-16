@@ -1,40 +1,40 @@
-**Bondi Prompts Broad Backlash After Saying She’ll Target ‘Hate Speech’**\
-`The attorney general also said she could investigate businesses that refused to print Charlie Kirk vigil posters as the Trump administration pushes to punish anyone who celebrated his killing.`\
-https://nytimes.com/2025/09/16/us/politics/pam-bondi-hate-speech-charlie-kirk.html
+**Whistle-Blower Account Contradicts Government’s Claims on Guatemalan Children**\
+`A report filed to Congress on Tuesday alleges the Trump administration concealed data showing that dozens of children it sought to deport faced serious harm back in Guatemala.`\
+https://nytimes.com/2025/09/16/us/politics/whistleblower-congress-guatemalan-children.html
 
-**Scoop City: Players to target for Week 3 fantasy football**\
-`Players to add before Week 3, PFF's best players in Week 2 and The Athletic's updated Power Rankings`\
-https://nytimes.com/athletic/6634935/2025/09/16/fantasy-football-week-3-waivers-scoop-city/
+**Enhanced Games has 'no credibility' say Aquatics GB, as Ben Proud funding ended**\
+`Proud, 30, confirmed on Wednesday that he would be competing in the event, which allows the use of performance-enhancing drugs.`\
+https://nytimes.com/athletic/6634939/2025/09/16/ben-proud-enhanced-games-doping-funding/
 
-**Meryl Streep, Morgan Freeman and Others Mourn Robert Redford**\
-`Redford “stood for an America we have to keep fighting for,” his frequent collaborator Jane Fonda said after his death was announced on Tuesday.`\
-https://nytimes.com/2025/09/16/arts/robert-redford-death-celebrity-reactions.html
+**Bob Woodward Remembers Robert Redford**\
+`Mr. Woodward said Mr. Redford, who portrayed him in the classic 1976 film “All the President’s Men,” was a “genuine, a noble and principled force for good.”`\
+https://nytimes.com/2025/09/16/business/media/bob-woodward-robert-redford.html
 
-**Judge Rejects Bid by Menendez Brothers for New Trial**\
-`The brothers, who were recently denied parole, have now been blocked from another once-promising path to freedom.`\
-https://nytimes.com/2025/09/16/us/menendez-brothers-trial-rejected.html
+**Trump Says Republicans Will Host a Midterm Convention Next Year**\
+`The event could be an opportunity to energize the party, which will be playing defense as it seeks to retain control of Congress.`\
+https://nytimes.com/2025/09/16/us/politics/republican-midterm-convention.html
 
-**Trump Delays TikTok Ban Again**\
-`It was the fourth time President Trump extended the deadline for TikTok to find a new owner or face a ban in the United States. This time, officials have said they are nearing a deal to address concerns about the app.`\
-https://nytimes.com/2025/09/16/technology/tiktok-fourth-delay.html
+**How to watch Texans at Jaguars: Time, TV, streaming**\
+`Find out how to watch the Houston Texans play the Jacksonville Jaguars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6635079/2025/09/16/texans-vs-jaguars-stream-how-to-watch-sept-21/
 
-**Shapiro, Denouncing Political Violence, Warns Trump Is Inflaming Tensions**\
-`Gov. Josh Shapiro of Pennsylvania, the target of an arson attack this year, argued that political violence like the killing of Charlie Kirk requires universal condemnation.`\
-https://nytimes.com/2025/09/16/us/politics/josh-shapiro-political-violence-speech.html
+**How to watch Bengals at Vikings: Time, TV, streaming**\
+`Find out how to watch the Cincinnati Bengals play the Minnesota Vikings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6635072/2025/09/16/bengals-vs-vikings-stream-how-to-watch-sept-21/
 
-**Pat Crowley, Veteran Actress of Film and TV, Dies at 91**\
-`Named the year’s “new star” at the 1954 Golden Globes, she appeared alongside the biggest names of her time. She later embarked on a long career in television.`\
-https://nytimes.com/2025/09/16/arts/pat-crowley-dead.html
+**How to watch Colts at Titans: Time, TV, streaming**\
+`Find out how to watch the Indianapolis Colts play the Tennessee Titans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6635067/2025/09/16/colts-vs-titans-stream-how-to-watch-sept-21/
 
-**The Briefing - Athletic Club 0 Arsenal 2: Martinelli and the super subs - and is Gabriel justifying the armband?**\
-`Mikel Arteta selected his new signings from the start in Bilbao but ended up relying on more familiar faces to secure an impressive win`\
-https://nytimes.com/athletic/6633634/2025/09/16/arsenal-athletic-martinelli-gabriel-arteta-champions-league/
+**How to watch Steelers at Patriots: Time, TV, streaming**\
+`Find out how to watch the Pittsburgh Steelers play the New England Patriots, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6635065/2025/09/16/steelers-vs-patriots-stream-how-to-watch-sept-21/
 
-**Man, 66, arrested on suspicion of racially abusing Leeds' Ampadu, Ramazani vs Sunderland**\
-`Leeds said both players were subjected to racial abuse from an individual in the Elland Road away end during February's Championship game.`\
-https://nytimes.com/athletic/6634182/2025/09/16/ethan-ampadu-largie-ramazani-leeds/
+**How to watch Falcons at Panthers: Time, TV, streaming**\
+`Find out how to watch the Atlanta Falcons play the Carolina Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6635061/2025/09/16/falcons-vs-panthers-stream-how-to-watch-sept-21/
 
-**Fantasy football market share report: Quentin Johnston and Juwan Johnson are must starts**\
-`Michael Salfino mines the touches and targets data from Week 2 to help inform future roster decisions, like going all-in on Juwan Johnson.`\
-https://nytimes.com/athletic/6634683/2025/09/16/fantasy-football-market-share-report-week-3-johnston-johnson/
+**How to watch Packers at Browns: Time, TV, streaming**\
+`Find out how to watch the Green Bay Packers play the Cleveland Browns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6635057/2025/09/16/packers-vs-browns-stream-how-to-watch-sept-21/
 
