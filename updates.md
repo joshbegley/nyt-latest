@@ -1,3 +1,7 @@
+**Biggest position battles at Rangers training camp: Will a young winger step up?**\
+`If our projections are correct, four spots are up for grabs: three forwards and one defenseman. Let's preview them.`\
+https://nytimes.com/athletic/6628467/2025/09/16/new-york-rangers-position-battles-training-camp/
+
 **Trading for Crosby? Bidding for McDavid? Is the NHL entering its chaos era?**\
 `In the past decade, 10 of the NHL's top 13 scorers have each played for just one team. Is that changing? `\
 https://nytimes.com/athletic/6631747/2025/09/16/crosby-mcdavid-nhl-trade-free-agency-rumor-chaos/

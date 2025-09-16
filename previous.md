@@ -1,3 +1,7 @@
+**Biggest position battles at Rangers training camp: Will a young winger step up?**\
+`If our projections are correct, four spots are up for grabs: three forwards and one defenseman. Let's preview them.`\
+https://nytimes.com/athletic/6628467/2025/09/16/new-york-rangers-position-battles-training-camp/
+
 **Trading for Crosby? Bidding for McDavid? Is the NHL entering its chaos era?**\
 `In the past decade, 10 of the NHL's top 13 scorers have each played for just one team. Is that changing? `\
 https://nytimes.com/athletic/6631747/2025/09/16/crosby-mcdavid-nhl-trade-free-agency-rumor-chaos/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6631621/2025/09/16/nfl-draft-2026-film-chris-brazze
 **Can Giannis be more reliable for the Bucks? What are Myles Turner's expectations?**\
 `The Bucks are looking to bounce back after a disappointing postseason, and they'll ask for new players to step up.`\
 https://nytimes.com/athletic/6631106/2025/09/16/bucks-giannis-antetokounmpo-myles-turner-questions-nba/
-
-**2026 NHL Draft: Gavin McKenna leads Pronman's first ranking of the season**\
-`In a very early assessment, the 2026 draft class looks about average in terms of pure talent.`\
-https://nytimes.com/athletic/6598246/2025/09/16/nhl-draft-prospects-2026-ranking-preseason/
 
