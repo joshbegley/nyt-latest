@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6634106/2025/09/16/nottingham-forest-team-news-ange-swansea/
 
 **Park Service Is Ordered to Take Down Some Materials on Slavery and Tribes**\
-`The Trump administration ordered a famous Civil War-era war image removed from a National Park Service site in Georgia as it moves to promote what it considers a more positive view of American history.`\
+`The Trump administration ordered a Civil War-era war image removed from a National Park site in Georgia as it moves to promote what it considers a more positive view of American history.`\
 https://nytimes.com/2025/09/16/climate/trump-park-service-slavery-photo-tribes.html
 
 **The Windup: Playoff race updates as Phillies clinch**\
