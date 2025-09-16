@@ -1,3 +1,7 @@
+**Phillies clinch NL East with closing kick, become first team to wrap up division title**\
+`The Phillies are NL East champions for the second straight year. Bolstered by key additions, they have MLB's best record since Aug. 1. `\
+https://nytimes.com/athletic/6628279/2025/09/16/phillies-clinch-national-league-east/
+
 **The New York Times in Print for Tuesday, Sep. 16, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/16/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6631483/2025/09/16/champions-league-early-kick-offs
 **Mbappe and Vinicius Jr's fortunes at Madrid could hardly be more contrasting**\
 `Mbappe is Madrid's undisputed leader while Vinicius Jr is going through a bad patch of form. What's happened?`\
 https://nytimes.com/athletic/6630757/2025/09/16/kylian-mbappe-vinicius-junior-real-madrid-contrast/
-
-**Cubs believe their pitching is lining up for October: 'Let’s make some noise'**\
-`With Monday’s 4-0 win over the Pittsburgh Pirates at PNC Park, Chicago’s magic number to clinch a playoff spot was reduced to three.`\
-https://nytimes.com/athletic/6633230/2025/09/16/cubs-pitching-lineup-october-mlb/
 
