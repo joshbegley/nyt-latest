@@ -1,3 +1,7 @@
+**Curved Path**\
+`Jonathan Daly’s crossword is flat-out fabulous.`\
+https://nytimes.com/2025/09/15/crosswords/daily-puzzle-2025-09-16.html
+
 **U.S. Attacks Second Venezuelan Boat**\
 `On Monday, President Trump posted footage on Truth Social of the U.S. military launching a deadly strike on a boat from Venezuela, which he claimed was linked to “drug trafficking cartels.” This was the second time in a month that the U.S. attacked a Venezuelan boat.`\
 https://nytimes.com/video/us/politics/100000010400773/venezuela-drug-boat.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/15/us/politics/lisa-cook-fed-appeals-court-decision.
 **The 8 Buildings You Must See in Stockholm**\
 `These sites capture the city’s practical, restrained style — but aren’t without whimsy.`\
 https://nytimes.com/2025/09/15/t-magazine/stockholm-architecture-building-guide.html
-
-**Racing-Reign match to resume 2 days after Savannah DeMelo's onfield collapse**\
-`The match between Louisville and Seattle, which was postponed on Sunday, will resume behind closed doors on Tuesday.`\
-https://nytimes.com/athletic/6632627/2025/09/15/racing-reign-resume-play-savannah-demelo/
 
