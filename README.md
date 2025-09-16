@@ -1,4 +1,8 @@
-**The latest on Kyle Tucker as the Cubs try to get ready for the playoffs**\
+**How to watch Sam Houston at Texas: Time, TV, streaming**\
+`Find out how to watch the Sam Houston Bearkats play the Texas Longhorns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6632913/2025/09/15/sam-houston-vs-texas-stream-how-to-watch-sept-20/
+
+**The latest on Kyle Tucker as the Cubs try to get ready for playoffs**\
 `"It hasn't gone as quickly as I would have hoped," Tucker said about his calf injury that that landed him on the 10-day injured list.`\
 https://nytimes.com/athletic/6632805/2025/09/15/cubs-kyle-tucker-playoffs-calf-injury/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6632831/2025/09/15/braves-vs-nationals-stream-how-t
 **How to watch Mariners at Royals: Time, TV, streaming for September 16**\
 `Find out how to watch the Seattle Mariners play the Kansas City Royals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6632828/2025/09/15/mariners-vs-royals-stream-how-to-watch-sept-16/
-
-**How to watch Cubs at Pirates: Time, TV, streaming for September 16**\
-`Find out how to watch the Chicago Cubs play the Pittsburgh Pirates, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6632825/2025/09/15/cubs-vs-pirates-stream-how-to-watch-sept-16/
 
