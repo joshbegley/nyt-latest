@@ -1,3 +1,7 @@
+**Inside the Phillies' NL East-clinching clubhouse, a familiar celebration that felt different**\
+`Before the beer bongs, cigar smoke and dancing, they started the party with a twist on a familiar bit. That wasn't the only difference. `\
+https://nytimes.com/athletic/6633457/2025/09/16/phillies-nl-east-clinch-clubhouse-celebration/
+
 **Anatomy of a Giants letdown: How defense, coaches failed in biggest moment vs. Cowboys**\
 `The Giants knew Dallas' Brandon Aubrey could make a 60-plus-yard FG, so why did they play such soft coverage at the end of regulation?`\
 https://nytimes.com/athletic/6633198/2025/09/16/ny-giants-defense-shane-bowen-cowboys/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6620728/2025/09/16/brad-keselowski-nascar-playoffs-
 **The Jets' Micheal Clemons Conundrum, and how it helps explain their issues on defense**\
 `Clemons had another costly penalty in Sunday's disastrous defensive performance against the Bills.`\
 https://nytimes.com/athletic/6632005/2025/09/16/new-york-jets-micheal-clemons-defensive-performance/
-
-**Dane Brugler's NFL Draft film room: Chris Brazzell II, other prospects who stood out in Week 3**\
-`Brazzell's Tennessee team came up just short, but he still put forth an impressive effort. Who else shined on Saturday?`\
-https://nytimes.com/athletic/6631621/2025/09/16/nfl-draft-2026-film-chris-brazzell/
 

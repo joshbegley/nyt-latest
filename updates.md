@@ -1,3 +1,7 @@
+**Inside the Phillies' NL East-clinching clubhouse, a familiar celebration that felt different**\
+`Before the beer bongs, cigar smoke and dancing, they started the party with a twist on a familiar bit. That wasn't the only difference. `\
+https://nytimes.com/athletic/6633457/2025/09/16/phillies-nl-east-clinch-clubhouse-celebration/
+
 **Anatomy of a Giants letdown: How defense, coaches failed in biggest moment vs. Cowboys**\
 `The Giants knew Dallas' Brandon Aubrey could make a 60-plus-yard FG, so why did they play such soft coverage at the end of regulation?`\
 https://nytimes.com/athletic/6633198/2025/09/16/ny-giants-defense-shane-bowen-cowboys/
