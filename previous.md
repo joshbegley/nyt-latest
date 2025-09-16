@@ -1,3 +1,7 @@
+**J.T. Miller named Rangers captain: What it means for the team's direction**\
+`GM Chris Drury wants the Rangers to toughen up and views Miller as an embodiment of that.`\
+https://nytimes.com/athletic/6634016/2025/09/16/jt-miller-new-york-rangers-captain/
+
 **State Terrorism Charges Against Luigi Mangione Are Dismissed**\
 `The judge overseeing the prosecution of a health-care executive’s killing said the evidence underpinning two of the most serious counts, one of which charged Mr. Mangione with first-degree murder, was “legally insufficient.”`\
 https://nytimes.com/2025/09/16/nyregion/luigi-mangione-state-terrrorism-charges-dismissed.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/16/world/americas/mexico-sheinbaum-independence-day.
 **Sydney McLaughlin-Levrone breaks American 400-meter record at world championships**\
 `McLaughlin-Levrone's time in the 400 flat in Tuesday's semifinals was also the world lead. And she looked like she had more to give.`\
 https://nytimes.com/athletic/6633960/2025/09/16/sydney-mclaughlin-levrone-400-meter-american-record-world-championships/
-
-**The American Dreams of Pierre Balmain,  80 Years On  **\
-`On the 80th anniversary of the French fashion house’s founding, a love affair with New York, modern architecture and the women who shaped this vision endures.`\
-https://nytimes.com/paidpost/balmain/the-american-dreams-of-pierre-balmain-80-years-on.html
 

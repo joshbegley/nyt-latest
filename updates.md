@@ -1,3 +1,7 @@
+**J.T. Miller named Rangers captain: What it means for the team's direction**\
+`GM Chris Drury wants the Rangers to toughen up and views Miller as an embodiment of that.`\
+https://nytimes.com/athletic/6634016/2025/09/16/jt-miller-new-york-rangers-captain/
+
 **State Terrorism Charges Against Luigi Mangione Are Dismissed**\
 `The judge overseeing the prosecution of a health-care executive’s killing said the evidence underpinning two of the most serious counts, one of which charged Mr. Mangione with first-degree murder, was “legally insufficient.”`\
 https://nytimes.com/2025/09/16/nyregion/luigi-mangione-state-terrrorism-charges-dismissed.html
