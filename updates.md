@@ -1,3 +1,7 @@
+**Astros' Yordan Alvarez to miss significant time with left ankle sprain**\
+`Houston's star slugger injured his ankle on Monday night while scoring a run. Manager Joe Espada said Alvarez will be "out for a while."`\
+https://nytimes.com/athletic/6635274/2025/09/16/yordan-alvarez-left-ankle-sprain-houston-astros/
+
 **Prosecutors Seek Death Penalty in Killing of Charlie Kirk**\
 `Also, Israeli troops pushed into Gaza City. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/09/16/briefing/charges-charlie-kirk-killing-israel-gaza-city.html
