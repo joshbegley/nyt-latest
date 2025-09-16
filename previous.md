@@ -1,3 +1,7 @@
+**'Trash': Yankees need Luke Weaver to rebound after meltdown vs. Twins**\
+`It’s been an up and down season for Weaver, who has given up at least one earned run in four of his last six appearances.`\
+https://nytimes.com/athletic/6633262/2025/09/16/new-york-yankees-luke-weaver-meltdown/
+
 **Chargers vs. Raiders takeaways: L.A.'s defense leads win, but Khalil Mack hurt**\
 `The Chargers limited quarterback Geno Smith to 180 yards passing and intercepting him three times in a 20-9 victory.`\
 https://nytimes.com/athletic/6632865/2025/09/16/chargers-raiders-score-result-takeaways-monday-night-football/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6631912/2025/09/16/cristian-romero-press-conference
 **Why patience should be the motto for Wrexham and Phil Parkinson this autumn**\
 `Only once the club's expensively-assembled squad has had a chance to settle in should judgement be passed `\
 https://nytimes.com/athletic/6630523/2025/09/16/wrexham-patience-parkinson-championship/
-
-**Champions League early kick-offs: Why are they happening and is it a good idea?**\
-`The Champions League returns this week and fans will have to get accustomed to early kick-offs once again`\
-https://nytimes.com/athletic/6631483/2025/09/16/champions-league-early-kick-offs-thursday-matches-explainer/
 

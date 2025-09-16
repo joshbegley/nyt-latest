@@ -1,3 +1,7 @@
+**'Trash': Yankees need Luke Weaver to rebound after meltdown vs. Twins**\
+`It’s been an up and down season for Weaver, who has given up at least one earned run in four of his last six appearances.`\
+https://nytimes.com/athletic/6633262/2025/09/16/new-york-yankees-luke-weaver-meltdown/
+
 **Chargers vs. Raiders takeaways: L.A.'s defense leads win, but Khalil Mack hurt**\
 `The Chargers limited quarterback Geno Smith to 180 yards passing and intercepting him three times in a 20-9 victory.`\
 https://nytimes.com/athletic/6632865/2025/09/16/chargers-raiders-score-result-takeaways-monday-night-football/
