@@ -1,3 +1,11 @@
+**Pat Crowley, Veteran Actress of Film and TV, Dies at 91**\
+`Named the year’s “new star” at the 1954 Golden Globes, she appeared alongside the biggest names of her time. She later embarked on a long career in television.`\
+https://nytimes.com/2025/09/16/arts/pat-crowley-dead.html
+
+**The Briefing - Athletic Club 0 Arsenal 2: Martinelli and the super-subs, and is Gabriel justifying the armband?**\
+`Mikel Arteta selected his new signings from the start in Bilbao but ended up relying on more familiar faces to secure an impressive win`\
+https://nytimes.com/athletic/6633634/2025/09/16/arsenal-athletic-martinelli-gabriel-arteta-champions-league/
+
 **Man, 66, arrested on suspicion of racially abusing Leeds' Ampadu, Ramazani vs Sunderland**\
 `Leeds said both players were subjected to racial abuse from an individual in the Elland Road away end during February's Championship game.`\
 https://nytimes.com/athletic/6634182/2025/09/16/ethan-ampadu-largie-ramazani-leeds/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/16/us/politics/cdc-monarez-testimony-rfk.html
 **Read the Charges Against Tyler Robinson**\
 `Robinson will be charged with aggravated murder, an offense that is eligible for the death penalty, according to Jeff Gray, the Utah County attorney.`\
 https://nytimes.com/interactive/2025/09/16/us/indictment-tyler-robinson-charges-kirk.html
-
-**Rams coach Sean McVay tears plantar fascia in win over Titans**\
-`McVay revealed that he suffered the injury while coaching from the sideline of his team's 33-19 victory on Sunday.`\
-https://nytimes.com/athletic/6634746/2025/09/16/rams-sean-mcvay-tears-plantar-fascia/
-
-**Submit a question for James Edwards’ offseason mailbag**\
-`<p>The Knicks are starting training camp next week, the front office is rounding out the roster and the most anticipated season in a while is about to begin.`\
-https://nytimes.com/athletic/6634777/2025/09/16/knicks-offseason-mailbag/
 

@@ -1,3 +1,11 @@
+**Pat Crowley, Veteran Actress of Film and TV, Dies at 91**\
+`Named the year’s “new star” at the 1954 Golden Globes, she appeared alongside the biggest names of her time. She later embarked on a long career in television.`\
+https://nytimes.com/2025/09/16/arts/pat-crowley-dead.html
+
+**The Briefing - Athletic Club 0 Arsenal 2: Martinelli and the super-subs, and is Gabriel justifying the armband?**\
+`Mikel Arteta selected his new signings from the start in Bilbao but ended up relying on more familiar faces to secure an impressive win`\
+https://nytimes.com/athletic/6633634/2025/09/16/arsenal-athletic-martinelli-gabriel-arteta-champions-league/
+
 **Man, 66, arrested on suspicion of racially abusing Leeds' Ampadu, Ramazani vs Sunderland**\
 `Leeds said both players were subjected to racial abuse from an individual in the Elland Road away end during February's Championship game.`\
 https://nytimes.com/athletic/6634182/2025/09/16/ethan-ampadu-largie-ramazani-leeds/

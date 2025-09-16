@@ -1,8 +1,24 @@
+**Meryl Streep, Morgan Freeman and Others Mourn Robert Redford**\
+`Redford “stood for an America we have to keep fighting for,” his frequent collaborator Jane Fonda said after his death was announced on Tuesday.`\
+https://nytimes.com/2025/09/16/arts/robert-redford-death-celebrity-reactions.html
+
+**Judge Rejects Bid by Menendez Brothers for New Trial**\
+`The brothers, who were recently denied parole, have now been blocked from another once-promising path to freedom.`\
+https://nytimes.com/2025/09/16/us/menendez-brothers-trial-rejected.html
+
+**Trump Delays TikTok Ban Again**\
+`It was the fourth time President Trump extended the deadline for TikTok to find a new owner or face a ban in the United States. This time, officials have said they are nearing a deal to address concerns about the app.`\
+https://nytimes.com/2025/09/16/technology/tiktok-fourth-delay.html
+
+**Shapiro, Denouncing Political Violence, Warns Trump Is Inflaming Tensions**\
+`Gov. Josh Shapiro of Pennsylvania, the target of an arson attack this year, argued that political violence like the killing of Charlie Kirk requires universal condemnation.`\
+https://nytimes.com/2025/09/16/us/politics/josh-shapiro-political-violence-speech.html
+
 **Pat Crowley, Veteran Actress of Film and TV, Dies at 91**\
 `Named the year’s “new star” at the 1954 Golden Globes, she appeared alongside the biggest names of her time. She later embarked on a long career in television.`\
 https://nytimes.com/2025/09/16/arts/pat-crowley-dead.html
 
-**The Briefing - Athletic Club 0 Arsenal 2: Martinelli and the super-subs, and is Gabriel justifying the armband?**\
+**The Briefing - Athletic Club 0 Arsenal 2: Martinelli and the super subs - and is Gabriel justifying the armband?**\
 `Mikel Arteta selected his new signings from the start in Bilbao but ended up relying on more familiar faces to secure an impressive win`\
 https://nytimes.com/athletic/6633634/2025/09/16/arsenal-athletic-martinelli-gabriel-arteta-champions-league/
 
@@ -17,22 +33,6 @@ https://nytimes.com/athletic/6634683/2025/09/16/fantasy-football-market-share-re
 **New Therapy Delivers Hope for Patients with Certain Types of Bladder Cancer **\
 `After decades of limited options, a ground-breaking FDA-approved treatment is opening new doors for people with certain types of bladder cancer.`\
 https://nytimes.com/paidpost/2025-09-10/.html
-
-**Read the Charges Against Tyler Robinson**\
-`Robinson will be charged with aggravated murder, an offense that is eligible for the death penalty, according to Jeff Gray, the Utah County attorney.`\
-https://nytimes.com/interactive/2025/09/16/us/indictment-tyler-robinson-charges-kirk.html
-
-**Doors on Some Teslas Could Trap Occupants, Federal Safety Agency Says**\
-`The agency is investigating reports that electronic doors on one model couldn’t be opened from outside, trapping children or others inside.`\
-https://nytimes.com/2025/09/16/business/tesla-doors-nhtsa-investigation.html
-
-**Dabo Swinney plays defense from 'haters' amid Clemson's 1-2 start**\
-`Firing back at antsy fans is nothing new for Swinney, who has never shied away from speaking his mind.`\
-https://nytimes.com/athletic/6634685/2025/09/16/dabo-swinney-clemson-football-haters/
-
-**Former C.D.C. Director to Tell Lawmakers She Was ‘Fired for Holding the Line’**\
-`Susan Monarez is set to provide her first detailed account of her ouster in testimony before the Senate Health Committee on Wednesday.`\
-https://nytimes.com/2025/09/16/us/politics/cdc-monarez-testimony-rfk.html
 
 **Read the Charges Against Tyler Robinson**\
 `Robinson will be charged with aggravated murder, an offense that is eligible for the death penalty, according to Jeff Gray, the Utah County attorney.`\
