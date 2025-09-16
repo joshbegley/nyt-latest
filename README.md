@@ -1,40 +1,40 @@
-**Rubio Says ‘Time Is Running Out’ for Gaza Deal**\
-`Secretary of State Marco Rubio spoke about Gaza ahead of a short Tuesday visit to Qatar, which is angry over an Israeli strike against Hamas leaders on its territory.`\
-https://nytimes.com/2025/09/16/world/middleeast/rubio-qatar-israel-hamas.html
+**Big Ten football mailbag: Where does Oregon need to improve to make a CFP run?**\
+`Also, why Penn State played a weak conference schedule and thoughts on Big Ten schedule discrepancies. `\
+https://nytimes.com/athletic/6632631/2025/09/16/big-ten-football-mailbag-illinois-oregon/
 
-**Buonanotte replaces injured Essugo in Chelsea Champions League squad**\
-`Essugo is expected to be sidelined for a minimum of 12 weeks, ruling him out of the majority of the Champions League league phase`\
-https://nytimes.com/athletic/6633670/2025/09/16/facundo-buonanotte-dario-essugo-chelsea-champions-league-squad/
+**Rangers 2025-26 prospect rankings: Profiling Nos. 4-6**\
+`Continuing this week's series, Mercogliano and Baugh check in on how three more prospects headlining the Rangers' system are progressing.`\
+https://nytimes.com/athletic/6628866/2025/09/16/rangers-2025-26-prospect-rankings-laba-emery-othmann/
 
-**Inside the Phillies' NL East-clinching clubhouse, a familiar celebration that felt different**\
-`Before the beer bongs, cigar smoke and dancing, they started the party with a twist on a familiar bit. That wasn't the only difference. `\
-https://nytimes.com/athletic/6633457/2025/09/16/phillies-nl-east-clinch-clubhouse-celebration/
+**Where does Hubert Davis' new UNC roster stand?: 11 thoughts on 11 rotation players**\
+`The Tarheels return one major rotation player from last season after being the last team to make the NCAA Tournament field. `\
+https://nytimes.com/athletic/6621441/2025/09/16/hubert-davis-unc-roster-thoughts/
 
-**Anatomy of a Giants letdown: How defense, coaches failed in biggest moment vs. Cowboys**\
-`The Giants knew Dallas' Brandon Aubrey could make a 60-plus-yard FG, so why did they play such soft coverage at the end of regulation?`\
-https://nytimes.com/athletic/6633198/2025/09/16/ny-giants-defense-shane-bowen-cowboys/
+**A 3-headed monster is driving the Seahawks’ defense as Byron Murphy II levels up**\
+`Leonard Williams remains dominant, and Jarran Reed's still got it. Murphy's leap in Year 2 is the cherry on top.`\
+https://nytimes.com/athletic/6632532/2025/09/16/seahawks-leonard-williams-byron-murphy-jarran-reed/
 
-**Biggest position battles at Rangers training camp: Will a young winger step up?**\
-`If our projections are correct, four spots are up for grabs: three forwards and one defenseman. Let's preview them.`\
-https://nytimes.com/athletic/6628467/2025/09/16/new-york-rangers-position-battles-training-camp/
+**The provocative comedy of José Ramírez, the star guiding the Guardians back from the brink**\
+`José Ramírez likes to poke, prod, needle and nudge his teammates. It has helped keep them ready for anything in this roller-coaster season.`\
+https://nytimes.com/athletic/6631272/2025/09/16/jose-ramirez-guardians-jokes-leadership-comedy/
 
-**Trading for Crosby? Bidding for McDavid? Is the NHL entering its chaos era?**\
-`In the past decade, 10 of the NHL's top 13 scorers have each played for just one team. Is that changing? `\
-https://nytimes.com/athletic/6631747/2025/09/16/crosby-mcdavid-nhl-trade-free-agency-rumor-chaos/
+**These 5 players need to step up for the Red Sox to secure a postseason spot**\
+`Boston will need more from Bregman, Duran, Rafaela, Abreu and Chapman to reach the playoffs for the first time since 2021.`\
+https://nytimes.com/athletic/6631925/2025/09/16/red-sox-postseason-key-players/
 
-**Explosive plays and a much-improved pass rush: Analyzing the Lions' Week 2 performance**\
-`After a frustrating Week 1 loss, the Lions beat the Bears in the trenches and go into Week 3's Monday night matchup with confidence.`\
-https://nytimes.com/athletic/6632738/2025/09/16/detroit-lions-offense-defense-result/
+**Michigan State-USC start time is perfect, if you’re a Spartans alum living in Bangkok**\
+`On the less cynical side: The Big Ten will be offering up around 15 straight hours of football Saturday and into Sunday.`\
+https://nytimes.com/athletic/6632396/2025/09/16/michigan-state-usc-football-start-time-11-pm/
 
-**Bears defense set the wrong records vs. the Lions; can the pass rush rebound?**\
-`The Bears had a historically bad defensive performance Sunday, and the lack of a pass rush made a huge impact. How quickly can it be fixed?`\
-https://nytimes.com/athletic/6632591/2025/09/16/chicago-bears-defense-stats/
+**Explaining Athletic Club's Basque-only policy and who qualifies for it**\
+`Arsenal haven't faced a team like Athletic before — they are only able to pick players from the 3million population Basque Country`\
+https://nytimes.com/athletic/6631215/2025/09/16/athletic-club-basque-only-policy-explainer/
 
-**Why Tyler Smith is most important of Cowboys' recent contract extensions**\
-`When asked if there was something he wanted to buy after getting his new contract, Smith said: "I really just want that Lombardi Trophy."`\
-https://nytimes.com/athletic/6632874/2025/09/16/cowboys-tyler-smith-contract-extension-offensive-line/
+**What's next for the Women's Professional Baseball League? Catching up with adviser Alex Hugo**\
+`Hugo, a WPBL adviser and a decorated baseball and softball player in her own right, brings us up to speed on the fledgling league.`\
+https://nytimes.com/athletic/6620648/2025/09/16/womens-professional-baseball-league-alex-hugo/
 
-**'Just gutsy': Inside Chargers' dominant defensive performance in win over Raiders**\
-`Battling illness linebacker Daiyan Henley exemplified what was at the core of an epic, suffocating showing from Jesse Minter's group.`\
-https://nytimes.com/athletic/6633514/2025/09/16/chargers-raiders-mnf-defence-daiyan-henley/
+**Do Chelsea have as much strength in depth as it appears?**\
+`The head coach has no shortage of options but what if those players cannot fulfil his very specific tactical requirements?`\
+https://nytimes.com/athletic/6631734/2025/09/16/chelsea-depth-maresca-brentford/
 
