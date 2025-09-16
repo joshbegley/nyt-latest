@@ -1,3 +1,7 @@
+**A Forgotten Cosmic Impact Was Hidden in a Museum’s Glass Shards**\
+`Scientists thought that an Australian museum’s collection of tektites came from an 800,000-year-old asteroid strike on Earth. Some of them turned out to be much older.`\
+https://nytimes.com/2025/09/16/science/tektites-australia-asteroid-impact.html
+
 **John McQueen, Who Made Art Out of Burrs, Bark and Vines, Is Dead at 82**\
 `A pioneer of contemporary basketry, he used plant material from his backyard to create ingenious forms that blurred the line between art and craft.`\
 https://nytimes.com/2025/09/16/arts/john-mcqueen-dead.html
