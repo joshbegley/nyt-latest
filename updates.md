@@ -1,3 +1,11 @@
+**Could TikTok Help Bring Trump and Xi Together?**\
+`President Trump is set to speak with the Chinese leader on Friday to discuss the app’s future, signaling a potential thaw between the two men.`\
+https://nytimes.com/2025/09/16/business/dealbook/tiktok-trump-xi.html
+
+**Israel launched its ground offensive on Gaza City after months of preparation.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2025/09/16/world/gaza-israel/gaza-city-military-operation
+
 **Lots of signings, not many goals: Why most Premier League sides are yet to click**\
 `The quality of attacking football this season has been way down on previous campaigns, but new players need to time to settle`\
 https://nytimes.com/athletic/6633559/2025/09/16/premier-league-signings-goals/

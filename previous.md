@@ -1,3 +1,11 @@
+**Could TikTok Help Bring Trump and Xi Together?**\
+`President Trump is set to speak with the Chinese leader on Friday to discuss the app’s future, signaling a potential thaw between the two men.`\
+https://nytimes.com/2025/09/16/business/dealbook/tiktok-trump-xi.html
+
+**Israel launched its ground offensive on Gaza City after months of preparation.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2025/09/16/world/gaza-israel/gaza-city-military-operation
+
 **Lots of signings, not many goals: Why most Premier League sides are yet to click**\
 `The quality of attacking football this season has been way down on previous campaigns, but new players need to time to settle`\
 https://nytimes.com/athletic/6633559/2025/09/16/premier-league-signings-goals/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6632631/2025/09/16/big-ten-football-mailbag-illinoi
 **Rangers 2025-26 prospect rankings: Profiling Nos. 4-6**\
 `Continuing this week's series, Mercogliano and Baugh check in on how three more prospects headlining the Rangers' system are progressing.`\
 https://nytimes.com/athletic/6628866/2025/09/16/rangers-2025-26-prospect-rankings-laba-emery-othmann/
-
-**Where does Hubert Davis' new UNC roster stand?: 11 thoughts on 11 rotation players**\
-`The Tarheels return one major rotation player from last season after being the last team to make the NCAA Tournament field. `\
-https://nytimes.com/athletic/6621441/2025/09/16/hubert-davis-unc-roster-thoughts/
-
-**A 3-headed monster is driving the Seahawks’ defense as Byron Murphy II levels up**\
-`Leonard Williams remains dominant, and Jarran Reed's still got it. Murphy's leap in Year 2 is the cherry on top.`\
-https://nytimes.com/athletic/6632532/2025/09/16/seahawks-leonard-williams-byron-murphy-jarran-reed/
 
