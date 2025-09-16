@@ -1,3 +1,11 @@
+**A Fashion Secret No More**\
+`Rachel Scott of Diotima held her first runway show, and it was worth the wait.`\
+https://nytimes.com/2025/09/16/style/diotima-rachel-scott-new-york-fashion-week.html
+
+**Palestinian Artists Open Gaza Biennale in New York**\
+`The exhibition aims to give a voice to people making creative work about their lives in a war zone. “These small notebooks and my pens became my refuge,” one wrote.`\
+https://nytimes.com/2025/09/16/arts/design/gaza-biennale-palestinian-war.html
+
 **Fantasy football Week 3 drops: Au revoir Kaleb Johnson, Evan Engram and more**\
 `Gary Davenport helps you clear space on your bench for upside players. You have permission to drop Kaleb Johnson, Calvin Austin and more. `\
 https://nytimes.com/athletic/6634010/2025/09/16/fantasy-football-week-3-drops/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6634089/2025/09/16/amazon-prime-video-masters-tv/
 **Upgrades Begin on Plane Donated by Qatar to Serve as Air Force One**\
 `The 747 jetliner needs extensive security modifications. Some members of Congress worry that President Trump will pressure the Air Force to do the work too quickly.`\
 https://nytimes.com/2025/09/16/us/politics/trump-air-force-one-qatar.html
-
-**Fani Willis Loses Bid to Continue Prosecuting Georgia Trump Case**\
-`The 4-3 ruling means that the criminal case against President Trump, related to his efforts to overturn his 2020 election loss, will not move forward anytime soon, if ever.`\
-https://nytimes.com/2025/09/16/us/fani-willis-georgia-trump.html
-
-**‘People Are Losing Hope’ Inside ICE Detention Centers**\
-`Immigrant detainees are not receiving proper mental health care, lawyers and advocacy groups say, and reports of suicide attempts are persistent.`\
-https://nytimes.com/2025/09/16/health/ice-homeland-security-immigration-detention.html
 
