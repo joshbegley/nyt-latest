@@ -1,3 +1,7 @@
+**Repeat Offender Charged With Threatening the Lives of Female Judges**\
+`Anthony Salvatore Perri threatened to kill two jurists and said others were targets, prosecutors say. The charges against him come as the nation is seeing a wave of threats against judges.`\
+https://nytimes.com/2025/09/16/nyregion/brooklyn-judge-threat-indictment.html
+
 **Eagles-Chiefs Super Bowl rematch draws record-setting 33.8 million viewers**\
 `The Week 2 game tied the record for most-watched regular-season Sunday game since the NFL started tracking ratings in 1988.`\
 https://nytimes.com/athletic/6635648/2025/09/16/eagles-chiefs-super-bowl-rematch-ratings/

@@ -1,3 +1,7 @@
+**Repeat Offender Charged With Threatening the Lives of Female Judges**\
+`Anthony Salvatore Perri threatened to kill two jurists and said others were targets, prosecutors say. The charges against him come as the nation is seeing a wave of threats against judges.`\
+https://nytimes.com/2025/09/16/nyregion/brooklyn-judge-threat-indictment.html
+
 **Eagles-Chiefs Super Bowl rematch draws record-setting 33.8 million viewers**\
 `The Week 2 game tied the record for most-watched regular-season Sunday game since the NFL started tracking ratings in 1988.`\
 https://nytimes.com/athletic/6635648/2025/09/16/eagles-chiefs-super-bowl-rematch-ratings/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/09/16/us/politics/charlie-kirk-killing-conspiracy-polit
 **Johnston: What I'm hearing about McDavid-Oilers as he's set to enter camp without an extension**\
 `McDavid will not have an extension in place before the team opens training camp Wednesday, according to league sources. What does it mean?`\
 https://nytimes.com/athletic/6635346/2025/09/16/connor-mcdavid-oilers-training-camp-extension/
-
-**Astros' Yordan Alvarez to miss significant time with left ankle sprain**\
-`Houston's star slugger injured his ankle on Monday night while scoring a run. Manager Joe Espada said Alvarez will be "out for a while."`\
-https://nytimes.com/athletic/6635274/2025/09/16/yordan-alvarez-left-ankle-sprain-houston-astros/
 
