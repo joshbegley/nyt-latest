@@ -1,3 +1,7 @@
+**Caleb Williams film review: Why Bears QB gives reason for optimism despite blowout loss**\
+`Williams made several high-level throws with timing against the Lions. He played within the structure of the offense and rarely deviated.`\
+https://nytimes.com/athletic/6631984/2025/09/16/caleb-williams-film-review-bears-lions/
+
 **Ravens are putting up a lot of points while working to get everyone involved**\
 `Baltimore has flashed its offensive depth and an ability to attack defenses in different ways over the first two weeks of the season.`\
 https://nytimes.com/athletic/6632575/2025/09/16/ravens-points-scored-offensive-playmakers/

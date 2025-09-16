@@ -1,3 +1,7 @@
+**Lots of signings, not many goals: Why most Premier League sides are yet to click**\
+`The quality of attacking football this season has been way down on previous campaigns, but new players need to time to settle`\
+https://nytimes.com/athletic/6633559/2025/09/16/premier-league-signings-goals/
+
 **Caleb Williams film review: Why Bears QB gives reason for optimism despite blowout loss**\
 `Williams made several high-level throws with timing against the Lions. He played within the structure of the offense and rarely deviated.`\
 https://nytimes.com/athletic/6631984/2025/09/16/caleb-williams-film-review-bears-lions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6621441/2025/09/16/hubert-davis-unc-roster-thoughts
 **A 3-headed monster is driving the Seahawks’ defense as Byron Murphy II levels up**\
 `Leonard Williams remains dominant, and Jarran Reed's still got it. Murphy's leap in Year 2 is the cherry on top.`\
 https://nytimes.com/athletic/6632532/2025/09/16/seahawks-leonard-williams-byron-murphy-jarran-reed/
-
-**The provocative comedy of José Ramírez, the star guiding the Guardians back from the brink**\
-`José Ramírez likes to poke, prod, needle and nudge his teammates. It has helped keep them ready for anything in this roller-coaster season.`\
-https://nytimes.com/athletic/6631272/2025/09/16/jose-ramirez-guardians-jokes-leadership-comedy/
 

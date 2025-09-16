@@ -1,3 +1,7 @@
+**Caleb Williams film review: Why Bears QB gives reason for optimism despite blowout loss**\
+`Williams made several high-level throws with timing against the Lions. He played within the structure of the offense and rarely deviated.`\
+https://nytimes.com/athletic/6631984/2025/09/16/caleb-williams-film-review-bears-lions/
+
 **Ravens are putting up a lot of points while working to get everyone involved**\
 `Baltimore has flashed its offensive depth and an ability to attack defenses in different ways over the first two weeks of the season.`\
 https://nytimes.com/athletic/6632575/2025/09/16/ravens-points-scored-offensive-playmakers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6632532/2025/09/16/seahawks-leonard-williams-byron-
 **The provocative comedy of José Ramírez, the star guiding the Guardians back from the brink**\
 `José Ramírez likes to poke, prod, needle and nudge his teammates. It has helped keep them ready for anything in this roller-coaster season.`\
 https://nytimes.com/athletic/6631272/2025/09/16/jose-ramirez-guardians-jokes-leadership-comedy/
-
-**These 5 players need to step up for the Red Sox to secure a postseason spot**\
-`Boston will need more from Bregman, Duran, Rafaela, Abreu and Chapman to reach the playoffs for the first time since 2021.`\
-https://nytimes.com/athletic/6631925/2025/09/16/red-sox-postseason-key-players/
 
