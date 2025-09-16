@@ -1,3 +1,11 @@
+**Appeals Court Says Lisa Cook Can Remain on Fed Board**\
+`The decision came just a day before the Federal Reserve begins a two-day meeting at which policymakers are expected to cut interest rates.`\
+https://nytimes.com/2025/09/15/us/politics/lisa-cook-fed-appeals-court-decision.html
+
+**The 8 Buildings You Must See in Stockholm**\
+`These sites capture the city’s practical, restrained style — but aren’t without whimsy.`\
+https://nytimes.com/2025/09/15/t-magazine/stockholm-architecture-building-guide.html
+
 **Racing-Reign match to resume 2 days after Savannah DeMelo's onfield collapse**\
 `The match between Louisville and Seattle, which was postponed on Sunday, will resume behind closed doors on Tuesday.`\
 https://nytimes.com/athletic/6632627/2025/09/15/racing-reign-resume-play-savannah-demelo/
