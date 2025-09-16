@@ -1,3 +1,19 @@
+**Ducks' 5 training camp questions: McTavish's status, Quenneville's systems and more**\
+`After seven playoff-less seasons, it is put-up or shut-up time in Anaheim.`\
+https://nytimes.com/athletic/6607262/2025/09/16/anaheim-ducks-training-camp/
+
+**John Lithgow to Tackle Roald Dahl’s Antisemitism in Broadway ‘Giant’**\
+`The drama, which has had two runs in Britain, won London’s Olivier Award for best new play earlier this year.`\
+https://nytimes.com/2025/09/16/theater/lithgow-giant-dahl-broadway.html
+
+**Five training-camp questions for the Sharks: Will Misa make it? Where is Smith's future?**\
+`There's a lot of optimism in San Jose, starting with a deep pool of talented young players.`\
+https://nytimes.com/athletic/6598857/2025/09/16/san-jose-sharks-training-camp-misa/
+
+**Dapper From Head to Toe**\
+`A straw skimmer hat and bright red shoes were finishing touches to a natty ensemble.`\
+https://nytimes.com/2025/09/16/style/street-style-look-dapper-mens-wear.html
+
 **Robert Redford: 15 Memorable Movies to Stream**\
 `His roles brought him to the screen as a Depression-era con man, a governor’s son and the journalist Bob Woodward. He also took to the director’s chair. Here are some of Redford’s career highlights.`\
 https://nytimes.com/2025/09/16/movies/robert-redford-streaming.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/09/16/business/media/trump-lawsuit-new-york-times.html
 **The Tom Brady-Pete Carroll Raiders home opener almost had it all**\
 `It was a spectacle in Vegas on Monday night, but the Raiders fell short of meeting the hype.`\
 https://nytimes.com/athletic/6633643/2025/09/16/las-vegas-raiders-monday-night-football-chargers/
-
-**It Isn’t Just the U.S. The Whole World Has Soured on Climate Politics.**\
-`How do we think about the climate future, now that the era marked by the Paris Agreement has so utterly disappeared?`\
-https://nytimes.com/2025/09/16/magazine/climate-politics-us-world-paris-agreement.html
-
-**He Fled Putin’s War. The U.S. Deported Him to a Russian Jail.**\
-`Antiwar Russians are being sent back as part of President Trump’s immigration crackdown, despite facing imprisonment and other dangers.`\
-https://nytimes.com/2025/09/16/world/europe/trump-russia-war-deportations-vovchenko.html
-
-**Robert Redford: A Life in Photos**\
-`The Oscar-winning director, who preferred life away from Hollywood, was once a sex symbol and later an activist who used his celebrity to draw attention to the environment.`\
-https://nytimes.com/2025/09/16/movies/robert-redford-photos.html
-
-**Panic Grips Gaza City as Israel Launches Ground Operation**\
-`“I scream all the time,” said one Palestinian living in the city in northern Gaza. Others said they felt terrified as tanks and ground troops rolled in.`\
-https://nytimes.com/2025/09/16/world/middleeast/gaza-city-israel-ground-operation.html
 
