@@ -1,3 +1,11 @@
+**Atlanta Dream's WNBA playoff chase was a 'progress plan'**\
+`After hiring Dan Padover as general manager and Karl Smesko as coach, the Dream are reaching new heights, winning a franchise-best 30 games.`\
+https://nytimes.com/athletic/6633076/2025/09/16/atlanta-dream-wnba-playoffs-karl-smesko/
+
+**Adam Silver on NBA and ‘highlights’: Not wrong, definitely too glib**\
+`Highlight culture is an essential part of being an NBA fan — and even more essential for the league to grow the game.`\
+https://nytimes.com/athletic/6625676/2025/09/16/adam-silver-nba-highlights/
+
 **Big Ten football mailbag: Where does Oregon need to improve to make a CFP run?**\
 `Also, why Penn State played a weak conference schedule and thoughts on Big Ten schedule discrepancies. `\
 https://nytimes.com/athletic/6632631/2025/09/16/big-ten-football-mailbag-illinois-oregon/

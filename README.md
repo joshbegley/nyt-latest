@@ -1,3 +1,11 @@
+**Ravens are putting up a lot of points while working to get everyone involved**\
+`Baltimore has flashed its offensive depth and an ability to attack defenses in different ways over the first two weeks of the season.`\
+https://nytimes.com/athletic/6632575/2025/09/16/ravens-points-scored-offensive-playmakers/
+
+**How the Government Is Trying to Silence Charlie Kirk’s Critics**\
+`We look at the fight over free speech.`\
+https://nytimes.com/2025/09/16/briefing/how-the-government-is-trying-to-silence-charlie-kirks-critics.html
+
 **Atlanta Dream's WNBA playoff chase was a 'progress plan'**\
 `After hiring Dan Padover as general manager and Karl Smesko as coach, the Dream are reaching new heights, winning a franchise-best 30 games.`\
 https://nytimes.com/athletic/6633076/2025/09/16/atlanta-dream-wnba-playoffs-karl-smesko/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6631272/2025/09/16/jose-ramirez-guardians-jokes-lea
 **These 5 players need to step up for the Red Sox to secure a postseason spot**\
 `Boston will need more from Bregman, Duran, Rafaela, Abreu and Chapman to reach the playoffs for the first time since 2021.`\
 https://nytimes.com/athletic/6631925/2025/09/16/red-sox-postseason-key-players/
-
-**Michigan State-USC start time is perfect, if you’re a Spartans alum living in Bangkok**\
-`On the less cynical side: The Big Ten will be offering up around 15 straight hours of football Saturday and into Sunday.`\
-https://nytimes.com/athletic/6632396/2025/09/16/michigan-state-usc-football-start-time-11-pm/
-
-**Explaining Athletic Club's Basque-only policy and who qualifies for it**\
-`Arsenal haven't faced a team like Athletic before — they are only able to pick players from the 3million population Basque Country`\
-https://nytimes.com/athletic/6631215/2025/09/16/athletic-club-basque-only-policy-explainer/
 
