@@ -1,3 +1,7 @@
+**Chargers' Khalil Mack leaves Monday night game vs. Raiders with elbow injury**\
+`Mack and teammate Troy Dye collided as they were trying to make a tackle, with Mack's elbow taking the brunt of the blow. `\
+https://nytimes.com/athletic/6633174/2025/09/15/chargers-khalil-mack-elbow-injury-raiders/
+
 **Once a Rising Star, a Top Texas Democrat Won’t Seek Re-election**\
 `Lina Hidalgo, the top elected official in Harris County, which includes Houston, says she will not run for re-election or any other office in 2026.`\
 https://nytimes.com/2025/09/15/us/politics/lina-hidalgo-texas-houston.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/15/us/schwarzenegger-california-redistricting-newsom
 **Astros' Yordan Alvarez exits pivotal game with left ankle sprain**\
 `Losing Alvarez for any length of time would stagger an already inconsistent Astros lineup.`\
 https://nytimes.com/athletic/6632937/2025/09/15/houston-astros-yordan-alvarez-injury-exit/
-
-**How to watch Sam Houston at Texas: Time, TV, streaming**\
-`Find out how to watch the Sam Houston Bearkats play the Texas Longhorns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6632913/2025/09/15/sam-houston-vs-texas-stream-how-to-watch-sept-20/
 
