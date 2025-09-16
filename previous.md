@@ -1,3 +1,19 @@
+**south-korea-tattoo-artists**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/south-korea-tattoo-artists
+
+**Critical fantasy fantasy football insights for Week 3: QBs to stream, WRs to add and more**\
+`Brandon Funston and Jess Bryant look at weekly usage reports to assist with Week 3 waivers, start/sit decisions and more. `\
+https://nytimes.com/athletic/6631344/2025/09/16/fantasy-football-usage-week-3/
+
+**The Day-Trippers Come for Trieste**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/italy-venice-trieste-cruise-ships-tourists
+
+**Mary Rose Oakar, 85, First Arab American Woman in Congress, Dies**\
+`In her 16 years on Capitol Hill, she emerged as a champion of women’s rights, especially equal pay for comparable work.`\
+https://nytimes.com/2025/09/16/us/politics/mary-rose-oakar-dead.html
+
 **Super Bowl odds track Green Bay's ascent while injuries at QB drop several favorites**\
 `Matchups among contenders and several questionable QBs caused a shakeup in Super Bowl odds below Tier 1.`\
 https://nytimes.com/athletic/6634575/2025/09/16/super-bowl-odds-after-week-2-green-bay/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6634567/2025/09/16/carter-hart-flyers-hockey-canada
 **Johnson Releases Spending Bill, Daring Democrats to Oppose It**\
 `The speaker put forward a stopgap bill to fund the government past Sept. 30, saying there was “zero chance” he would add concessions Democrats have demanded.`\
 https://nytimes.com/2025/09/16/us/politics/johnson-government-shutdown.html
-
-**Carl Heastie, Another Democratic Holdout, Is Expected to Endorse Mamdani**\
-`Mr. Heastie, the speaker of the New York State Assembly, is one of several prominent Democrats who had resisted backing Zohran Mamdani, the party’s nominee for New York City mayor.`\
-https://nytimes.com/2025/09/16/nyregion/heastie-mamdani-endorsement-nyc-mayor.html
-
-**Man Falsely Confessed to Kirk Shooting to Help Assassin Escape, Police Say**\
-`Moments after Charlie Kirk was killed, a 71-year-old man told an officer, “I shot him,” the police said. It wasn’t true, but it delayed officers’ efforts to find the shooter.`\
-https://nytimes.com/2025/09/16/us/politics/false-confession-kirk-shooting-suspect-escape.html
-
-**French Patisserie’s Latest Darlings? Babkas That Buck Tradition.**\
-`Babka Zana, a Parisian bakery, and others are embracing versions that veer away from the traditional cinnamon and chocolate iterations.`\
-https://nytimes.com/2025/09/16/dining/french-babka-rosh-hashana.html
-
-**Baller League USA to launch in Miami with Ronaldinho and Usain Bolt as managers**\
-`The competition originated in Germany and was launched in the UK earlier this year.`\
-https://nytimes.com/athletic/6634591/2025/09/16/baller-league-usa-miami-ronaldinho-usain-bolt/
 
