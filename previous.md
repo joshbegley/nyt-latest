@@ -1,3 +1,7 @@
+**Crystal Palace fined €10,000 by UEFA for Marinakis banner**\
+`The banner was displayed by some supporters during Palace's home game against Nottingham Forest on August 24.`\
+https://nytimes.com/athletic/6635316/2025/09/16/crystal-palace-forest-marinakis-banner-fine/
+
 **Gwyneth Paltrow Wants to Be the Next Ralph Lauren**\
 `The actress introduces GWYN, her new fashion brand.`\
 https://nytimes.com/2025/09/16/style/gwyneth-paltrow-gwyn-new-fashion-line.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/16/world/middleeast/gaza-city-israel-invasion.html
 **A mother’s recognition led to a quiet end to the feverish hunt for Kirk’s assailant.**\
 `By Jack Healy`\
 https://nytimes.com/live/2025/09/16/us/kirk-shooting-suspect-charges/kirk-assailant-parents
-
-**How to watch Aces at Storm: Game 2 Time, TV, streaming**\
-`Find out how to watch the Las Vegas Aces play the Seattle Storm, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6635242/2025/09/16/aces-vs-storm-stream-how-to-watch-sept-16/
 

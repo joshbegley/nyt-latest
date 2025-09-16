@@ -1,3 +1,7 @@
+**Crystal Palace fined €10,000 by UEFA for Marinakis banner**\
+`The banner was displayed by some supporters during Palace's home game against Nottingham Forest on August 24.`\
+https://nytimes.com/athletic/6635316/2025/09/16/crystal-palace-forest-marinakis-banner-fine/
+
 **Gwyneth Paltrow Wants to Be the Next Ralph Lauren**\
 `The actress introduces GWYN, her new fashion brand.`\
 https://nytimes.com/2025/09/16/style/gwyneth-paltrow-gwyn-new-fashion-line.html
