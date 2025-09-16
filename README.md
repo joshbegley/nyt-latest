@@ -1,3 +1,7 @@
+**The latest on Kyle Tucker as the Cubs try to get ready for the playoffs**\
+`"It hasn't gone as quickly as I would have hoped," Tucker said about his calf injury that that landed him on the 10-day injured list.`\
+https://nytimes.com/athletic/6632805/2025/09/15/cubs-kyle-tucker-playoffs-calf-injury/
+
 **Senate Confirms Stephen Miran as Fed Governor**\
 `The Senate voted to install one of President Trump’s top economic advisers at the central bank, opening the door for him to cast a vote at this week’s meeting to set interest rates.`\
 https://nytimes.com/2025/09/15/business/stephen-miran-confirmed-fed.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6632828/2025/09/15/mariners-vs-royals-stream-how-to
 **How to watch Cubs at Pirates: Time, TV, streaming for September 16**\
 `Find out how to watch the Chicago Cubs play the Pittsburgh Pirates, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6632825/2025/09/15/cubs-vs-pirates-stream-how-to-watch-sept-16/
-
-**Trump Signs Off on Sending the National Guard to Memphis**\
-`The president repeated that Chicago, New Orleans and other Democratic-run cities could be next.`\
-https://nytimes.com/2025/09/15/us/politics/trump-memphis-national-guard-crime.html
 
