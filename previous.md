@@ -1,3 +1,15 @@
+**Forest's new signings to get chance against Swansea - Postecoglou**\
+`Forest signed 13 players during the summer transfer window but some of them are yet to play`\
+https://nytimes.com/athletic/6634106/2025/09/16/nottingham-forest-team-news-ange-swansea/
+
+**Park Service Is Ordered to Take Down Some Materials on Slavery and Tribes**\
+`The Trump administration ordered a famous Civil War war image removed from a National Park Service site in Georgia because it does not portray American history in a positive light.`\
+https://nytimes.com/2025/09/16/climate/trump-park-service-slavery-photo-tribes.html
+
+**The Windup: Playoff race updates as Phillies clinch**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6634183/2025/09/16/phillies-mlb-playoffs-the-windup/
+
 **European Countries Condemn Israel’s Ground Offensive in Gaza City**\
 `Some of Israel’s oldest allies criticized its latest military assault in Gaza and warned of a deepening humanitarian crisis.`\
 https://nytimes.com/2025/09/16/world/middleeast/european-countries-condemn-israel-gaza-city.html
@@ -21,16 +33,4 @@ https://nytimes.com/2025/09/16/learning/lesson-plans/teach-taxicab-geometry-with
 **Hinshelwood set for six to eight weeks out with ankle ligament injury**\
 `The England Under-21 international sustained the injury in the early stages of Saturday's 2-1 defeat at Bournemouth.`\
 https://nytimes.com/athletic/6634061/2025/09/16/jack-hinshelwood-brighton-injury-update/
-
-**Does Sidney Crosby really want Penguins to trade him? Unpacking the complicated reality**\
-`Plus: What I'm hearing about an ownership update and under-the-radar players to watch this season.`\
-https://nytimes.com/athletic/6627929/2025/09/16/sidney-crosby-trade-rumors-penguins/
-
-**The Hillsborough Law really matters - and not just to Liverpool**\
-`The passing of legislation to help prevent scandals like the Hillsborough disaster is long overdue`\
-https://nytimes.com/athletic/6633770/2025/09/16/hillsborough-law-liverpool-government/
-
-**Amazon Prime Video joining CBS, ESPN coverage of The Masters, starting in 2026**\
-`The deal includes two additional hours of Prime Video-exclusive live coverage during The Masters' first two days.`\
-https://nytimes.com/athletic/6634089/2025/09/16/amazon-prime-video-masters-tv/
 

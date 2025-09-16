@@ -1,3 +1,15 @@
+**Forest's new signings to get chance against Swansea - Postecoglou**\
+`Forest signed 13 players during the summer transfer window but some of them are yet to play`\
+https://nytimes.com/athletic/6634106/2025/09/16/nottingham-forest-team-news-ange-swansea/
+
+**Park Service Is Ordered to Take Down Some Materials on Slavery and Tribes**\
+`The Trump administration ordered a famous Civil War war image removed from a National Park Service site in Georgia because it does not portray American history in a positive light.`\
+https://nytimes.com/2025/09/16/climate/trump-park-service-slavery-photo-tribes.html
+
+**The Windup: Playoff race updates as Phillies clinch**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6634183/2025/09/16/phillies-mlb-playoffs-the-windup/
+
 **European Countries Condemn Israel’s Ground Offensive in Gaza City**\
 `Some of Israel’s oldest allies criticized its latest military assault in Gaza and warned of a deepening humanitarian crisis.`\
 https://nytimes.com/2025/09/16/world/middleeast/european-countries-condemn-israel-gaza-city.html
