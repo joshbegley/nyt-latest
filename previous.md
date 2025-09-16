@@ -1,3 +1,19 @@
+**Europe’s Extreme Summer Weather Could Cost It Billions**\
+`Heat waves and flooding could cost the European Union $50 billion in damage to buildings and crops as well as a loss of productivity, a new study found.`\
+https://nytimes.com/2025/09/16/world/europe/europes-extreme-summer-weather-could-cost-it-billions.html
+
+**Actor Robert Redford Dies at 89**\
+`Robert Redford, a leading star of 1970s Hollywood, an Oscar-winning director and a champion of environmental causes, has died.`\
+https://nytimes.com/video/us/100000010401752/actor-robert-redford-dead.html
+
+**Do NFL TV production meetings give Tom Brady an advantage as a Raiders owner?**\
+`How will Brady's role as an owner overlap with his role as a TV analyst? Longtime NFL TV production experts offer some insights.`\
+https://nytimes.com/athletic/6634649/2025/09/16/nfl-production-meetings-tom-brady/
+
+**Judge Dismisses State Terrorism Charges Against Luigi Mangione**\
+`Luigi Mangione, who is accused of killing UnitedHealthcare’s chief executive last year, had New York State terrorism charges against him dropped. He still faces a second-degree murder charge.`\
+https://nytimes.com/video/nyregion/100000010402450/luigi-mangione-terrorism-charges.html
+
 **8 Songs That Will Catch You Up on This Year’s Music**\
 `Hear recent tracks from Bon Iver, Dijon, Karol G and more.`\
 https://nytimes.com/2025/09/16/arts/music/amplifier-newsletter-bon-iver-new-songs.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6634027/2025/09/16/f1-sprint-race-reverse-grids-kim
 **4 Fitness Tests Trainers Swear By**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/fitness-tests-strength-cardio-balance
-
-**LimeWire, Former File-Sharing Service, Is Revealed as Buyer of Fyre Festival**\
-`The streaming service, which became popular in the 2000s, paid $245,000 for the festival naming rights. It’s unclear what exactly it plans to do with the embattled brand.`\
-https://nytimes.com/2025/09/16/us/limewire-crypto-fyre-festival.html
-
-**south-korea-tattoo-artists**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/south-korea-tattoo-artists
-
-**Critical fantasy fantasy football insights for Week 3: QBs to stream, WRs to add and more**\
-`Brandon Funston and Jess Bryant look at weekly usage reports to assist with Week 3 waivers, start/sit decisions and more. `\
-https://nytimes.com/athletic/6631344/2025/09/16/fantasy-football-usage-week-3/
-
-**The Day-Trippers Come for Trieste**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/italy-venice-trieste-cruise-ships-tourists
 
