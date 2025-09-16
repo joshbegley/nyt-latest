@@ -1,3 +1,23 @@
+**Meryl Streep, Morgan Freeman and Others Mourn Robert Redford**\
+`Redford “stood for an America we have to keep fighting for,” his frequent collaborator Jane Fonda said after his death was announced on Tuesday.`\
+https://nytimes.com/2025/09/16/arts/robert-redford-death-celebrity-reactions.html
+
+**Judge Rejects Bid by Menendez Brothers for New Trial**\
+`The brothers, who were recently denied parole, have now been blocked from another once-promising path to freedom.`\
+https://nytimes.com/2025/09/16/us/menendez-brothers-trial-rejected.html
+
+**Trump Delays TikTok Ban Again**\
+`It was the fourth time President Trump extended the deadline for TikTok to find a new owner or face a ban in the United States. This time, officials have said they are nearing a deal to address concerns about the app.`\
+https://nytimes.com/2025/09/16/technology/tiktok-fourth-delay.html
+
+**Shapiro, Denouncing Political Violence, Warns Trump Is Inflaming Tensions**\
+`Gov. Josh Shapiro of Pennsylvania, the target of an arson attack this year, argued that political violence like the killing of Charlie Kirk requires universal condemnation.`\
+https://nytimes.com/2025/09/16/us/politics/josh-shapiro-political-violence-speech.html
+
+**The Briefing - Athletic Club 0 Arsenal 2: Martinelli and the super subs - and is Gabriel justifying the armband?**\
+`Mikel Arteta selected his new signings from the start in Bilbao but ended up relying on more familiar faces to secure an impressive win`\
+https://nytimes.com/athletic/6633634/2025/09/16/arsenal-athletic-martinelli-gabriel-arteta-champions-league/
+
 **Pat Crowley, Veteran Actress of Film and TV, Dies at 91**\
 `Named the year’s “new star” at the 1954 Golden Globes, she appeared alongside the biggest names of her time. She later embarked on a long career in television.`\
 https://nytimes.com/2025/09/16/arts/pat-crowley-dead.html
