@@ -1,8 +1,12 @@
+**Israel’s Push Into Gaza City**\
+`We bring together pieces of Times journalism to help you understand the big picture.`\
+https://nytimes.com/2025/09/16/briefing/israel-gaza-city-trump-state-visit-uk.html
+
 **What Was Behind David Bowie’s Genius? His Archive Holds the Answers.**\
 `The David Bowie Center in London is a new home for the singer’s 90,000-item archive. It holds the key to the pop star’s dramatic reinventions.`\
 https://nytimes.com/interactive/2025/09/16/arts/music/david-bowie-archive.html
 
-**The Briefing: Real Madrid 2 Marseille 1 - Mbappe on target, teenage star shines, Trent injury**\
+**The Briefing: Real Madrid 2 Marseille 1 - Mbappe penalty double, teen star shines, Alexander-Arnold injury**\
 `Real Madrid come from behind to beat Marseille thanks to two Kylian Mbappe penalties. `\
 https://nytimes.com/athletic/6634080/2025/09/16/real-madrid-2-marseille-1-champions-league-kylian-mbappe-trent-alexander-arnold/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/16/us/politics/federal-judges-security-threats.html
 **Crystal Palace fined €10,000 by UEFA for Marinakis banner**\
 `The banner was displayed by some supporters during Palace's home game against Nottingham Forest on August 24.`\
 https://nytimes.com/athletic/6635316/2025/09/16/crystal-palace-forest-marinakis-banner-fine/
-
-**Gwyneth Paltrow Wants to Be the Next Ralph Lauren**\
-`The actress introduces GWYN, her new fashion brand.`\
-https://nytimes.com/2025/09/16/style/gwyneth-paltrow-gwyn-new-fashion-line.html
 
