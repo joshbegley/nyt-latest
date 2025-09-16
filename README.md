@@ -1,3 +1,11 @@
+**The New York Times in Print for Tuesday, Sep. 16, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/16/todays-new-york-times
+
+**Britain Hates Trump. But It Quite Likes Trumpism.**\
+`Across the pond, the president’s hard-right nativism is flourishing.`\
+https://nytimes.com/2025/09/16/opinion/trump-britain-state-visit.html
+
 **Vuelta a Espana key takeaways: Vingegaard's revival, Pidcock's evolution, and the impact of protests**\
 `The Athletic's writers discuss an eventful three weeks at cycling's final Grand Tour of the season`\
 https://nytimes.com/athletic/6631845/2025/09/16/vuelta-a-espana-key-takeaways-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6630757/2025/09/16/kylian-mbappe-vinicius-junior-re
 **Cubs believe their pitching is lining up for October: 'Let’s make some noise'**\
 `With Monday’s 4-0 win over the Pittsburgh Pirates at PNC Park, Chicago’s magic number to clinch a playoff spot was reduced to three.`\
 https://nytimes.com/athletic/6633230/2025/09/16/cubs-pitching-lineup-october-mlb/
-
-**Champions League returns: Our writers' predictions, games to watch and star players**\
-`With Europe's premier tournament kicking off in earnest again today, our writers give their takes on this edition`\
-https://nytimes.com/athletic/6630498/2025/09/16/champions-league-predictions-games-to-watch-stars/
-
-**James Horncastle’s Serie A Briefing: A tasty Derby d’Italia, Hojlund's perfect start, and Vardy's violin chat**\
-`Juventus gave more notice of their threat this season and champions Napoli are evolving - and Vardy made his Serie A bow this weekend`\
-https://nytimes.com/athletic/6630462/2025/09/16/james-horncastles-serie-a-briefing-another-juve-inter-classic-hojlunds-perfect-start-and-vardys-violin-chat/
 
