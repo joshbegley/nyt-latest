@@ -1,3 +1,23 @@
+**White House Readies Appeal After 2nd Loss in Bid to Fire Fed Governor**\
+`A court blocked a last-minute attempt on Monday to remove Lisa Cook from the Fed board ahead of a meeting to set interest rates.`\
+https://nytimes.com/2025/09/16/us/politics/lisa-cook-trump-appeal-fed-governor.html
+
+**Fantasy hockey sleepers, including Will Cuylle, Sam Rinzel and more**\
+`Shayna Goldman identifies some top sleeper targets for fantasy hockey 2025-26, including Chicago young gun Sam Rinzel.`\
+https://nytimes.com/athletic/6632878/2025/09/16/fantasy-hockey-sleepers-rinzel-cuylle-buium/
+
+**Have a Packers question? Send it to beat writer Matt Schneidman for an upcoming mailbag**\
+`Let us know what's on your mind as Green Bay prepares to face the Browns in Cleveland on Sunday.`\
+https://nytimes.com/athletic/6634017/2025/09/16/packers-questions-week-3-browns/
+
+**Where will people in Gaza City go?**\
+`There are few places for people in Gaza City to flee to, even as Israel launches its ground offensive.`\
+https://nytimes.com/live/2025/09/16/world/gaza-israel/where-will-people-in-gaza-city-go
+
+**Tim Walz Seeks Third Term as Governor of Minnesota**\
+`Mr. Walz raised his national profile with a run for vice president. He has suggested that an additional term as governor would rule out the prospect of him running for president in 2028.`\
+https://nytimes.com/2025/09/16/us/tim-walz-seeks-third-term-as-governor-of-minnesota.html
+
 **Have a Broncos question? Send it to beat writer Nick Kosmider for an upcoming mailbag**\
 `What's on your mind ahead of Sunday's game against the 2-0 Chargers.`\
 https://nytimes.com/athletic/6611697/2025/09/16/broncos-mailbag-questions-week-3-chargers/
