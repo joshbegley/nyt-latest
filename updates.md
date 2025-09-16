@@ -1,3 +1,7 @@
+**Baller League USA to launch in Miami with Ronaldinho and Usain Bolt as managers**\
+`The competition originated in Germany and was launched in the UK earlier this year.`\
+https://nytimes.com/athletic/6634591/2025/09/16/baller-league-usa-miami-ronaldinho-usain-bolt/
+
 **The best Tom Brady cards to collect**\
 `A guide to some of the most sought-after modern football cards`\
 https://nytimes.com/athletic/6560774/2025/09/16/tom-brady-best-rookie-cards/
