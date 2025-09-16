@@ -1,3 +1,7 @@
+**European Countries Condemn Israel’s Ground Offensive in Gaza City**\
+`Some of Israel’s oldest allies criticized its latest military assault in Gaza and warned of a deepening humanitarian crisis.`\
+https://nytimes.com/2025/09/16/world/middleeast/european-countries-condemn-israel-gaza-city.html
+
 **A Fashion Secret No More**\
 `Rachel Scott of Diotima held her first runway show, and it was worth the wait.`\
 https://nytimes.com/2025/09/16/style/diotima-rachel-scott-new-york-fashion-week.html

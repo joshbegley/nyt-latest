@@ -1,3 +1,7 @@
+**European Countries Condemn Israel’s Ground Offensive in Gaza City**\
+`Some of Israel’s oldest allies criticized its latest military assault in Gaza and warned of a deepening humanitarian crisis.`\
+https://nytimes.com/2025/09/16/world/middleeast/european-countries-condemn-israel-gaza-city.html
+
 **A Fashion Secret No More**\
 `Rachel Scott of Diotima held her first runway show, and it was worth the wait.`\
 https://nytimes.com/2025/09/16/style/diotima-rachel-scott-new-york-fashion-week.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6633770/2025/09/16/hillsborough-law-liverpool-gover
 **Amazon Prime Video joining CBS, ESPN coverage of The Masters, starting in 2026**\
 `The deal includes two additional hours of Prime Video-exclusive live coverage during The Masters' first two days.`\
 https://nytimes.com/athletic/6634089/2025/09/16/amazon-prime-video-masters-tv/
-
-**Upgrades Begin on Plane Donated by Qatar to Serve as Air Force One**\
-`The 747 jetliner needs extensive security modifications. Some members of Congress worry that President Trump will pressure the Air Force to do the work too quickly.`\
-https://nytimes.com/2025/09/16/us/politics/trump-air-force-one-qatar.html
 
