@@ -1,3 +1,19 @@
+**King Charles Mourns Duchess of Kent at Catholic Funeral**\
+`The duchess, best known for her role bestowing trophies at the Wimbledon tennis tournament, was the first member of the royal family to convert to Catholicism in centuries.`\
+https://nytimes.com/2025/09/16/world/europe/king-charles-duchess-of-kent-funeral.html
+
+**Social Platforms Duck Blame for Inflaming Divisions Before Charlie Kirk’s Death**\
+`After authorities said Mr. Kirk’s suspected shooter had been “radicalized” online, Meta, Reddit, TikTok and other platforms have stayed quiet — though not Elon Musk, who owns X.`\
+https://nytimes.com/2025/09/16/technology/charlie-kirk-meta-x-tiktok.html
+
+**‘It was me,’ Discord says the accused Kirk shooter wrote on the network.**\
+`By Eli Tan`\
+https://nytimes.com/live/2025/09/16/us/kirk-shooting-suspect-charges/it-was-me-discord-says-accused-kirk-shooter-wrote-on-network
+
+**Jackson has given Bayern inside knowledge for Chelsea game - Kompany**\
+`Jackson joined Bayern on a season-long loan from Chelsea a fortnight ago and can play against his parent club on Wednesday night.`\
+https://nytimes.com/athletic/6634396/2025/09/16/nicolas-jackson-bayern-chelsea-champions-league/
+
 **As an Activist, Robert Redford Understood the Power of Celebrity**\
 `His knowledge of the ways cameras and media create narratives helped him redirect those stories in service of larger causes like environmentalism.`\
 https://nytimes.com/2025/09/16/movies/robert-redford-activism.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6634202/2025/09/16/molly-qerim-leave-first-take-esp
 **Pig Organ Transplants May Pose a Dilemma for Some Jews and Muslims**\
 `The taboo against pork is deeply entrenched in both religious traditions. But the prohibition is not absolute.`\
 https://nytimes.com/2025/09/16/health/pig-transplants-jews-muslims.html
-
-**Our 22 Best Brownie Recipes **\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/best-brownies-recipe
-
-**What to Expect From the Charges and First Hearing in the Kirk Shooting Case**\
-`The 22-year-old accused of killing Charlie Kirk is being held on suspicion of felony murder. Prosecutors expect to file formal charges ahead of his court appearance.`\
-https://nytimes.com/2025/09/16/us/politics/charges-first-hearing-what-to-expect.html
-
-**Robert Redford: A Life in Photos**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/robert-redford-photos
-
-**The Bounce: More long-range heaves on tap? Plus, why the Valkyries are on the move**\
-`Catching you up on the latest news around the NBA and WNBA.`\
-https://nytimes.com/athletic/6634150/2025/09/16/nba-heave-rule-angel-reese-wnba-playoffs/
 
