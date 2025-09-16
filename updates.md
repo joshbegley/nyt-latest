@@ -1,4 +1,8 @@
 **Park Service Is Ordered to Take Down Some Materials on Slavery and Tribes**\
+`The Trump administration ordered a Civil War-era war image removed from a National Park site in Georgia as it moves to promote what it considers a more positive view of American history.`\
+https://nytimes.com/2025/09/16/climate/trump-park-service-slavery-photo-tribes.html
+
+**Park Service Is Ordered to Take Down Some Materials on Slavery and Tribes**\
 `The Trump administration ordered a famous Civil War-era war image removed from a National Park Service site in Georgia as it moves to promote what it considers a more positive view of American history.`\
 https://nytimes.com/2025/09/16/climate/trump-park-service-slavery-photo-tribes.html
 
