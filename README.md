@@ -34,7 +34,3 @@ https://nytimes.com/athletic/6635346/2025/09/16/connor-mcdavid-oilers-training-c
 `Houston's star slugger injured his ankle on Monday night while scoring a run. Manager Joe Espada said Alvarez will be "out for a while."`\
 https://nytimes.com/athletic/6635274/2025/09/16/yordan-alvarez-left-ankle-sprain-houston-astros/
 
-**Asylum Seeker Wins Bid to Delay Deportation Under U.K.-France Treaty**\
-`The case was the first challenge relating to the treaty, which aims to reduce small-boat crossings of the English Channel by migrants, to reach London’s High Court.`\
-https://nytimes.com/2025/09/16/world/europe/small-boat-migrant-uk-france-treaty.html
-
