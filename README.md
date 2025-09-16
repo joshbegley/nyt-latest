@@ -1,3 +1,7 @@
+**Members of Congress Mourn Charlie Kirk in the Capitol**\
+`Republicans and a handful of Democrats attended a vigil for the right-wing activist, Charlie Kirk, who was assassinated last week.`\
+https://nytimes.com/video/us/politics/100000010401038/members-of-congress-mourn-charlie-kirk-in-the-capitol.html
+
 **How to watch Blue Jays at Rays: Time, TV, streaming for September 16**\
 `Find out how to watch the Toronto Blue Jays play the Tampa Bay Rays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6633375/2025/09/16/blue-jays-vs-rays-stream-how-to-watch-sept-16/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/16/learning/word-of-the-day-comatose.html
 **Federal Judge Declines to Intervene for Migrants Deported to Ghana**\
 `Judge Tanya S. Chutkan said her hands were “tied” with regard to the migrants, even though they held protective orders, in another victory for President Trump’s deportation campaign.`\
 https://nytimes.com/2025/09/16/us/politics/judge-migrants-deported-ghana.html
-
-**'Trash': Yankees need Luke Weaver to rebound after meltdown vs. Twins**\
-`It’s been an up and down season for Weaver, who has given up at least one earned run in four of his last six appearances.`\
-https://nytimes.com/athletic/6633262/2025/09/16/new-york-yankees-luke-weaver-meltdown/
 
