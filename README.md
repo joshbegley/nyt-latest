@@ -1,3 +1,23 @@
+**White House Readies Appeal After 2nd Loss in Bid to Fire Fed Governor**\
+`A court blocked a last-minute attempt on Monday to remove Lisa Cook from the Fed board ahead of a meeting to set interest rates.`\
+https://nytimes.com/2025/09/16/us/politics/lisa-cook-trump-appeal-fed-governor.html
+
+**Fantasy hockey sleepers, including Will Cuylle, Sam Rinzel and more**\
+`Shayna Goldman identifies some top sleeper targets for fantasy hockey 2025-26, including Chicago young gun Sam Rinzel.`\
+https://nytimes.com/athletic/6632878/2025/09/16/fantasy-hockey-sleepers-rinzel-cuylle-buium/
+
+**Have a Packers question? Send it to beat writer Matt Schneidman for an upcoming mailbag**\
+`Let us know what's on your mind as Green Bay prepares to face the Browns in Cleveland on Sunday.`\
+https://nytimes.com/athletic/6634017/2025/09/16/packers-questions-week-3-browns/
+
+**Where will people in Gaza City go?**\
+`There are few places for people in Gaza City to flee to, even as Israel launches its ground offensive.`\
+https://nytimes.com/live/2025/09/16/world/gaza-israel/where-will-people-in-gaza-city-go
+
+**Tim Walz Seeks Third Term as Governor of Minnesota**\
+`Mr. Walz raised his national profile with a run for vice president. He has suggested that an additional term as governor would rule out the prospect of him running for president in 2028.`\
+https://nytimes.com/2025/09/16/us/tim-walz-seeks-third-term-as-governor-of-minnesota.html
+
 **Have a Broncos question? Send it to beat writer Nick Kosmider for an upcoming mailbag**\
 `What's on your mind ahead of Sunday's game against the 2-0 Chargers.`\
 https://nytimes.com/athletic/6611697/2025/09/16/broncos-mailbag-questions-week-3-chargers/
@@ -17,24 +37,4 @@ https://nytimes.com/paidpost/balmain/the-american-dreams-of-pierre-balmain-80-ye
 **Ford to Cut 1,000 Jobs in Germany as E.V. Sales Slow**\
 `The automaker said the reductions at its factory in Cologne come on top of 4,000 job cuts across Europe that were announced last year.`\
 https://nytimes.com/2025/09/16/business/ford-jobs-electric-vehicles-germany.html
-
-**Ducks' 5 training camp questions: McTavish's status, Quenneville's systems and more**\
-`After seven playoff-less seasons, it is put-up or shut-up time in Anaheim.`\
-https://nytimes.com/athletic/6607262/2025/09/16/anaheim-ducks-training-camp/
-
-**John Lithgow to Tackle Roald Dahl’s Antisemitism in Broadway ‘Giant’**\
-`The drama, which has had two runs in Britain, won London’s Olivier Award for best new play earlier this year.`\
-https://nytimes.com/2025/09/16/theater/lithgow-giant-dahl-broadway.html
-
-**Five training-camp questions for the Sharks: Will Misa make it? Where is Smith's future?**\
-`There's a lot of optimism in San Jose, starting with a deep pool of talented young players.`\
-https://nytimes.com/athletic/6598857/2025/09/16/san-jose-sharks-training-camp-misa/
-
-**Dapper From Head to Toe**\
-`A straw skimmer hat and bright red shoes were finishing touches to a natty ensemble.`\
-https://nytimes.com/2025/09/16/style/street-style-look-dapper-mens-wear.html
-
-**Robert Redford: 15 Memorable Movies to Stream**\
-`His roles brought him to the screen as a Depression-era con man, a governor’s son and the journalist Bob Woodward. He also took to the director’s chair. Here are some of Redford’s career highlights.`\
-https://nytimes.com/2025/09/16/movies/robert-redford-streaming.html
 
