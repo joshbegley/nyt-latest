@@ -1,3 +1,15 @@
+**Israel Is Committing Genocide in Gaza, U.N. Inquiry Says**\
+`In earlier reports, the commission found that Israel had committed war crimes and crimes against humanity in its conflict with Hamas, but stopped short of calling it genocide. Israel denounced the accusation as “fake.”`\
+https://nytimes.com/2025/09/16/world/middleeast/un-israel-gaza-genocide.html
+
+**The New York Times International Edition in Print for Wednesday, Sep. 17, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/09/16/todays-new-york-times-international-edition
+
+**Italian skier Matteo Franzoso dies after training crash**\
+`The Italian's local municipality mayor called for radical safety changes in the sport to 'protect our children'.`\
+https://nytimes.com/athletic/6633493/2025/09/16/matteo-franzoso-death-skiing/
+
 **How to watch Giants at Diamondbacks: Time, TV, streaming for September 16**\
 `Find out how to watch the San Francisco Giants play the Arizona Diamondbacks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6633545/2025/09/16/giants-vs-diamondbacks-stream-how-to-watch-sept-16/
@@ -14,6 +26,10 @@ https://nytimes.com/video/world/europe/100000010394853/trump-second-state-visit-
 `Say hello to Jonah Tong, Nolan McLean and Brandon Sproat, the electrifying trio that might save the Mets' season.`\
 https://nytimes.com/athletic/6632683/2025/09/16/new-york-mets-tong-sproat-mclean/
 
+**Phillies clinch NL East with closing kick, become first team to wrap up division title**\
+`The Phillies are NL East champions for the second straight year. Bolstered by key additions, they have MLB's best record since Aug. 1. `\
+https://nytimes.com/athletic/6628279/2025/09/16/phillies-clinch-national-league-east/
+
 **Second thoughts: Atlanta moving forward with two kickers (for now) while O-line rebounds**\
 `The Falcons will keep kickers Parker Romo and Younghoe Koo at least for this week, while Raheem Morris tells the "brutal, honest truth."`\
 https://nytimes.com/athletic/6632785/2025/09/16/falcons-vikings-parker-romo-offensive-line/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6632785/2025/09/16/falcons-vikings-parker-romo-offe
 **If Kawhi Leonard just wants to hoop, couldn’t he avoid all this Clippers drama?**\
 `There's a lot of finger pointing around the allegations of impermissible benefits, but Kawhi Leonard seems to have avoided much criticism. `\
 https://nytimes.com/athletic/6613742/2025/09/16/clippers-kawhi-leonard-ballmer-payments/
-
-**Ben Shapiro and I Talk Political De-escalation**\
-`The state — and stakes — of political disagreement in America, both before and after the Charlie Kirk shooting.`\
-https://nytimes.com/2025/09/16/opinion/ezra-klein-podcast-ben-shapiro.html
-
-**Even When They’re Not Wearing Armani, They’re Wearing Armani**\
-`The long legacy of the Italian designer continues on the runways of New York Fashion Week.`\
-https://nytimes.com/2025/09/16/style/nyfw-mens-runway-giorgio-armani-influence.html
-
-**There were bright spots, but the Patriots still need more from their defense**\
-`The New England defense leads the NFL in sacks, but tackling has been an issue and the secondary has struggled without Christian Gonzalez.`\
-https://nytimes.com/athletic/6631772/2025/09/16/patriots-defense-stats/
-
-**Who Makes Decisions About Vaccine Policy Now?**\
-`Robert F. Kennedy Jr. has hired longtime vaccine safety skeptics and scientists who are critical of Covid shots and mandates to make immunization policy decisions for Americans.`\
-https://nytimes.com/interactive/2025/09/16/health/vaccines-rfk-jr-cdc-fda.html
 
