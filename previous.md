@@ -1,3 +1,7 @@
+**Buccaneers vs. Texans takeaways: Another late Baker Mayfield drive lifts Tampa to 2-0**\
+`Mayfield engineered an 11-play, 80-yard drive that was capped by Rachaad White's 2-yard TD run with six seconds left to stun the Texans.`\
+https://nytimes.com/athletic/6632585/2025/09/15/texans-buccaneers-result-score/
+
 **Deception? Conflicting Paperwork? Clerical Error? How a Politician’s Mortgages Can Get Muddy**\
 `Mortgage fraud allegations, like those President Trump has leveled against Lisa Cook, are hard to prove. A New York Times review of the holdings of other Washington officials shows how multiple mortgages can invite questions even when people act properly.`\
 https://nytimes.com/2025/09/15/us/politics/mortgages-politicians-paperwork-confusion.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6632805/2025/09/15/cubs-kyle-tucker-playoffs-calf-i
 **Senate Confirms Stephen Miran as Fed Governor**\
 `The Senate voted to install one of President Trump’s top economic advisers at the central bank, opening the door for him to cast a vote at this week’s meeting to set interest rates.`\
 https://nytimes.com/2025/09/15/business/stephen-miran-confirmed-fed.html
-
-**Appeals Court Says Lisa Cook Can Remain on Fed Board**\
-`The decision came the day before the Federal Reserve begins a two-day meeting at which policymakers are expected to cut interest rates.`\
-https://nytimes.com/2025/09/15/us/politics/lisa-cook-fed-appeals-court-decision.html
 

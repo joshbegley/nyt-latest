@@ -1,3 +1,7 @@
+**Sam Kerr's 634-day wait finally ends. Plus: An update on Savannah DeMelo**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6633148/2025/09/15/sam-kerr-chelsea-savannah-demelo-full-time/
+
 **Buccaneers vs. Texans takeaways: Another late Baker Mayfield drive lifts Tampa to 2-0**\
 `Mayfield engineered an 11-play, 80-yard drive that was capped by Rachaad White's 2-yard TD run with six seconds left to stun the Texans.`\
 https://nytimes.com/athletic/6632585/2025/09/15/texans-buccaneers-result-score/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6632913/2025/09/15/sam-houston-vs-texas-stream-how-
 **The latest on Kyle Tucker as the Cubs try to get ready for playoffs**\
 `"It hasn't gone as quickly as I would have hoped," Tucker said about his calf injury that that landed him on the 10-day injured list.`\
 https://nytimes.com/athletic/6632805/2025/09/15/cubs-kyle-tucker-playoffs-calf-injury/
-
-**Senate Confirms Stephen Miran as Fed Governor**\
-`The Senate voted to install one of President Trump’s top economic advisers at the central bank, opening the door for him to cast a vote at this week’s meeting to set interest rates.`\
-https://nytimes.com/2025/09/15/business/stephen-miran-confirmed-fed.html
 

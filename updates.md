@@ -1,3 +1,7 @@
+**Buccaneers vs. Texans takeaways: Another late Baker Mayfield drive lifts Tampa to 2-0**\
+`Mayfield engineered an 11-play, 80-yard drive that was capped by Rachaad White's 2-yard TD run with six seconds left to stun the Texans.`\
+https://nytimes.com/athletic/6632585/2025/09/15/texans-buccaneers-result-score/
+
 **Deception? Conflicting Paperwork? Clerical Error? How a Politician’s Mortgages Can Get Muddy**\
 `Mortgage fraud allegations, like those President Trump has leveled against Lisa Cook, are hard to prove. A New York Times review of the holdings of other Washington officials shows how multiple mortgages can invite questions even when people act properly.`\
 https://nytimes.com/2025/09/15/us/politics/mortgages-politicians-paperwork-confusion.html
