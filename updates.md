@@ -1,3 +1,11 @@
+**Trump Signs Off on Sending the National Guard to Memphis**\
+`The president repeated that Chicago, New Orleans and other Democratic-run cities could be next.`\
+https://nytimes.com/2025/09/15/us/politics/trump-memphis-national-guard-crime.html
+
+**Trump Says He Wasn’t ‘Asked’ to Lower Flag for Minnesota Lawmaker**\
+`The president, who initially didn’t recall Melissa Hortman by name, claimed he was never asked to lower flags for her.`\
+https://nytimes.com/2025/09/15/us/politics/trump-melissa-hortman-charlie-kirk-flags.html
+
 **Trump Signs Off on Sending Federal Troops to Memphis**\
 `The president repeated that Chicago, New Orleans and other Democratic-run cities could be next.`\
 https://nytimes.com/2025/09/15/us/politics/trump-memphis-national-guard-crime.html
