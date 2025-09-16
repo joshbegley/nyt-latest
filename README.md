@@ -1,6 +1,10 @@
+**Former Man Utd midfielder Mata signs for Melbourne Victory for 2025-26**\
+`The 37-year-old has played for Galatasaray, Vissel Kobe and Western Sydney Wanderers since leaving the Premier League`\
+https://nytimes.com/athletic/6633348/2025/09/16/juan-mata-melbourne-victory-transfer/
+
 **Members of Congress Mourn Charlie Kirk in the Capitol**\
 `Republicans and a handful of Democrats attended a vigil for the right-wing activist, Charlie Kirk, who was assassinated last week.`\
-https://nytimes.com/video/us/politics/100000010401038/members-of-congress-mourn-charlie-kirk-in-the-capitol.html
+https://nytimes.com/video/us/politics/100000010401038/republicans-charlie-kirk-vigil-capitol.html
 
 **How to watch Blue Jays at Rays: Time, TV, streaming for September 16**\
 `Find out how to watch the Toronto Blue Jays play the Tampa Bay Rays, with time, TV channel and streaming information.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6618790/2025/09/16/bookkeeper-uefa-spending-breach/
 **Word of the Day: comatose**\
 `This word has appeared in 31 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/09/16/learning/word-of-the-day-comatose.html
-
-**Federal Judge Declines to Intervene for Migrants Deported to Ghana**\
-`Judge Tanya S. Chutkan said her hands were “tied” with regard to the migrants, even though they held protective orders, in another victory for President Trump’s deportation campaign.`\
-https://nytimes.com/2025/09/16/us/politics/judge-migrants-deported-ghana.html
 
