@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+`By Isabel Kershner and Lara Jakes`\
+https://nytimes.com/live/2025/09/16/world/gaza-israel/heres-the-latest
+
 **Live Updates: Israel Launches Ground Offensive in Gaza City, Officials Say**\
 `The ground operation and intensifying Israeli bombardment risks deepening the humanitarian crisis in a war that has already killed tens of thousands of Palestinians.`\
 https://nytimes.com/live/2025/09/16/world/gaza-israel
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6633425/2025/09/16/michigan-state-vs-usc-stream-how
 **How to watch Wyoming at Colorado: Time, TV, streaming**\
 `Find out how to watch the Wyoming Cowboys play the Colorado Buffaloes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6633417/2025/09/16/wyoming-vs-colorado-stream-how-to-watch-sept-20/
-
-**Former Man Utd midfielder Mata signs for Melbourne Victory for 2025-26**\
-`The 37-year-old has played for Galatasaray, Vissel Kobe and Western Sydney Wanderers since leaving the Premier League`\
-https://nytimes.com/athletic/6633348/2025/09/16/juan-mata-melbourne-victory-transfer/
 
