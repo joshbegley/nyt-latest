@@ -1,14 +1,18 @@
+**Retired Admiral Is Sentenced to 6 Years in Prison for Bribery**\
+`Robert P. Burke, a retired four-star admiral, was convicted in May of exchanging a government contract for a lucrative post-retirement job with the company that got it.`\
+https://nytimes.com/2025/09/16/us/us-navy-admiral-bribery-sentencing.html
+
 **Blue Jays' Bo Bichette (left knee) out until at least the postseason**\
 `Bichette injured his knee sliding into home during Toronto’s road loss against the Yankees on Sept. 6.`\
 https://nytimes.com/athletic/6635748/2025/09/16/toronto-blue-jays-bo-bichette-regular-season-status/
 
-**How to watch Cowboys at Bears: Time, TV, streaming**\
-`Find out how to watch the Dallas Cowboys play the Chicago Bears, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6635805/2025/09/16/cowboys-vs-bears-stream-how-to-watch-sept-21/
-
 **How to watch Saints at Seahawks: Time, TV, streaming**\
 `Find out how to watch the New Orleans Saints play the Seattle Seahawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6635807/2025/09/16/saints-vs-seahawks-stream-how-to-watch-sept-21/
+
+**How to watch Cowboys at Bears: Time, TV, streaming**\
+`Find out how to watch the Dallas Cowboys play the Chicago Bears, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6635805/2025/09/16/cowboys-vs-bears-stream-how-to-watch-sept-21/
 
 **How to watch Cardinals at 49ers: Time, TV, streaming**\
 `Find out how to watch the Arizona Cardinals play the San Francisco 49ers, with time, TV channel and streaming information.`\
