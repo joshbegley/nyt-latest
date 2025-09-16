@@ -1,3 +1,15 @@
+**Prime Tire: Bring on the F1 sprint race reverse grids. Plus, a defense of Kimi Antonelli**\
+`Welcome to Prime Tire, The Athletic's Formula 1 newsletter`\
+https://nytimes.com/athletic/6634027/2025/09/16/f1-sprint-race-reverse-grids-kimi-anteonelli-prime-tire/
+
+**4 Fitness Tests Trainers Swear By**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/fitness-tests-strength-cardio-balance
+
+**LimeWire, Former File-Sharing Service, Is Revealed as Buyer of Fyre Festival**\
+`The streaming service, which became popular in the 2000s, paid $245,000 for the festival naming rights. It’s unclear what exactly it plans to do with the embattled brand.`\
+https://nytimes.com/2025/09/16/us/limewire-crypto-fyre-festival.html
+
 **south-korea-tattoo-artists**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/south-korea-tattoo-artists
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010401366/gaza-city-operation-s
 **Until Saturday: Coach-firing season begins (slightly) early**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6634686/2025/09/16/college-football-coaches-fired-early-until-saturday/
-
-**Robert Redford Personified American Style**\
-`Reluctant to focus on style or his looks, Mr. Redford nevertheless became the embodiment of an enduring aesthetic.`\
-https://nytimes.com/2025/09/16/style/robert-redford-style-fashion.html
-
-**Goalie Carter Hart will not return to Philadelphia Flyers, GM says**\
-`The Flyers will begin training camp on Thursday with an NHL tandem of Samuel Ersson and Dan Vladar.`\
-https://nytimes.com/athletic/6634567/2025/09/16/carter-hart-flyers-hockey-canada-nhl-news/
-
-**Johnson Releases Spending Bill, Daring Democrats to Oppose It**\
-`The speaker put forward a stopgap bill to fund the government past Sept. 30, saying there was “zero chance” he would add concessions Democrats have demanded.`\
-https://nytimes.com/2025/09/16/us/politics/johnson-government-shutdown.html
 

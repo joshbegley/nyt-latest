@@ -1,3 +1,15 @@
+**Prime Tire: Bring on the F1 sprint race reverse grids. Plus, a defense of Kimi Antonelli**\
+`Welcome to Prime Tire, The Athletic's Formula 1 newsletter`\
+https://nytimes.com/athletic/6634027/2025/09/16/f1-sprint-race-reverse-grids-kimi-anteonelli-prime-tire/
+
+**4 Fitness Tests Trainers Swear By**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/fitness-tests-strength-cardio-balance
+
+**LimeWire, Former File-Sharing Service, Is Revealed as Buyer of Fyre Festival**\
+`The streaming service, which became popular in the 2000s, paid $245,000 for the festival naming rights. It’s unclear what exactly it plans to do with the embattled brand.`\
+https://nytimes.com/2025/09/16/us/limewire-crypto-fyre-festival.html
+
 **south-korea-tattoo-artists**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/south-korea-tattoo-artists
