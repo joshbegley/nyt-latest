@@ -1,3 +1,19 @@
+**Gwyneth Paltrow Wants to Be the Next Ralph Lauren**\
+`The actress introduces GWYN, her new fashion brand.`\
+https://nytimes.com/2025/09/16/style/gwyneth-paltrow-gwyn-new-fashion-line.html
+
+**Benjamin Mendy joins Polish club Pogon Szczecin**\
+`The 31-year-old, who made 75 first-team appearances for City across six years, has signed a one-year deal with Pogon with a 12-month option.`\
+https://nytimes.com/athletic/6634907/2025/09/16/benjamin-mendy-transfer-man-city/
+
+**49ers mailbag: Could Mike McDaniel return to San Francisco if he's fired by the Dolphins?**\
+`Meanwhile, how does the rookie class look so far, and what happens at WR when Brandon Aiyuk and Demarcus Robinson return?`\
+https://nytimes.com/athletic/6635127/2025/09/16/mike-mcdaniel-dolphins-49ers-mailbag/
+
+**G.O.P. Again Cedes Power on Tariffs to Avoid Crossing Trump**\
+`House Republicans extended a maneuver they engineered earlier in the year that effectively strips Congress of the power to disapprove of President Trump’s tariffs.`\
+https://nytimes.com/2025/09/16/us/politics/republicans-house-tariffs-emergency-trump.html
+
 **Costco Recalls Kirkland Prosecco, Citing Risk of Sudden Shattering**\
 `The retailer said the unopened bottles should be wrapped in paper towels and placed in a plastic bag before being discarded.`\
 https://nytimes.com/2025/09/16/business/costco-prosecco-recall.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2025/09/16/us/kirk-shooting-suspect-charges/kirk-assail
 **How to watch Aces at Storm: Game 2 Time, TV, streaming**\
 `Find out how to watch the Las Vegas Aces play the Seattle Storm, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6635242/2025/09/16/aces-vs-storm-stream-how-to-watch-sept-16/
-
-**Democrats Oppose G.O.P. Funding Bill, Threatening a Shutdown**\
-`After allowing a stopgap spending bill to move forward earlier this year, Democrats are under intense pressure not to do so again.`\
-https://nytimes.com/2025/09/16/us/politics/democrats-funding-bill-shutdown.html
-
-**USMNT's Weah scores for Marseille vs. Real Madrid in Champions League**\
-`The American silenced the Bernabéu early in Marseille's Champions League opener`\
-https://nytimes.com/athletic/6635148/2025/09/16/tim-weah-goal-video-marseille-real-madrid-champions-league-usmnt/
-
-**Texts From Suspect in Charlie Kirk Shooting Offer Insight Into a Motive**\
-`Prosecutors said that the 22 year-old man accused of killing Charlie Kirk had texted his romantic partner: “I had enough of his hatred. Some hate can’t be negotiated out.”`\
-https://nytimes.com/2025/09/16/us/politics/kirk-shooting-suspect-motive-messages.html
-
-**Upon Further Review: With Joe Burrow injured, how will the Bengals survive?**\
-`“Jake Browning is probably one of the backup quarterbacks that I would want to handle a stretch like this,” Derrik Klassen said. `\
-https://nytimes.com/athletic/6634708/2025/09/16/upon-further-review-joe-burrow-injury-bengals/
 
