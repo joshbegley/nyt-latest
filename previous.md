@@ -1,6 +1,14 @@
+**It Isn’t Just the U.S. The Whole World Has Soured on Climate Politics.**\
+`How do we think about the climate future, now that the era marked by the Paris Agreement has so utterly disappeared?`\
+https://nytimes.com/2025/09/16/magazine/climate-politics-us-world-paris-agreement.html
+
+**He Fled Putin’s War. The U.S. Deported Him to a Russian Jail.**\
+`Antiwar Russians are being sent back as part of President Trump’s immigration crackdown, despite facing imprisonment and other dangers.`\
+https://nytimes.com/2025/09/16/world/europe/trump-russia-war-deportations-vovchenko.html
+
 **Robert Redford: A Life in Photos**\
 `The Oscar-winning director, who preferred life away from Hollywood, was once a sex symbol and later an activist who used his celebrity to draw attention to the environment.`\
-https://nytimes.com/2025/09/16/movies/robert-redford-a-life-in-photos.html
+https://nytimes.com/2025/09/16/movies/robert-redford-photos.html
 
 **Panic Grips Gaza City as Israel Launches Ground Operation**\
 `“I scream all the time,” said one Palestinian living in the city in northern Gaza. Others said they felt terrified as tanks and ground troops rolled in.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6633343/2025/09/16/sf-giants-bryce-eldridge-debut/
 **Where do the Dodgers' October pitching plans stand, especially with Shohei Ohtani?**\
 `Mapping out when exactly Ohtani will pitch will be a complicated exercise as the Dodgers prepare for the postseason.`\
 https://nytimes.com/athletic/6633336/2025/09/16/dodgers-pitching-october-shohei-ohtani/
-
-**Submit your Ohio State questions for Cameron Teague Robinson's mailbag**\
-`What's on your mind about the Buckeyes after their 3-0 start?`\
-https://nytimes.com/athletic/6632699/2025/09/16/ohio-state-football-mailbag-questions-bye-week/
-
-**California’s Environmental Past Confronts Economic Worries of the Present**\
-`Gov. Gavin Newsom and Democratic state lawmakers have focused on pocketbook concerns this year, seeing their party’s national losses as a reckoning.`\
-https://nytimes.com/2025/09/16/us/california-environment-democrats-newsom.html
 

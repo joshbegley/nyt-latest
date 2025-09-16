@@ -1,3 +1,15 @@
+**It Isn’t Just the U.S. The Whole World Has Soured on Climate Politics.**\
+`How do we think about the climate future, now that the era marked by the Paris Agreement has so utterly disappeared?`\
+https://nytimes.com/2025/09/16/magazine/climate-politics-us-world-paris-agreement.html
+
+**He Fled Putin’s War. The U.S. Deported Him to a Russian Jail.**\
+`Antiwar Russians are being sent back as part of President Trump’s immigration crackdown, despite facing imprisonment and other dangers.`\
+https://nytimes.com/2025/09/16/world/europe/trump-russia-war-deportations-vovchenko.html
+
+**Robert Redford: A Life in Photos**\
+`The Oscar-winning director, who preferred life away from Hollywood, was once a sex symbol and later an activist who used his celebrity to draw attention to the environment.`\
+https://nytimes.com/2025/09/16/movies/robert-redford-photos.html
+
 **Robert Redford: A Life in Photos**\
 `The Oscar-winning director, who preferred life away from Hollywood, was once a sex symbol and later an activist who used his celebrity to draw attention to the environment.`\
 https://nytimes.com/2025/09/16/movies/robert-redford-a-life-in-photos.html
