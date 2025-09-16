@@ -1,3 +1,11 @@
+**Israel’s Push Into Gaza City**\
+`We bring together pieces of Times journalism to help you understand the big picture.`\
+https://nytimes.com/2025/09/16/briefing/israel-gaza-city-trump-state-visit-uk.html
+
+**The Briefing: Real Madrid 2 Marseille 1 - Mbappe penalty double, teen star shines, Alexander-Arnold injury**\
+`Real Madrid come from behind to beat Marseille thanks to two Kylian Mbappe penalties. `\
+https://nytimes.com/athletic/6634080/2025/09/16/real-madrid-2-marseille-1-champions-league-kylian-mbappe-trent-alexander-arnold/
+
 **What Was Behind David Bowie’s Genius? His Archive Holds the Answers.**\
 `The David Bowie Center in London is a new home for the singer’s 90,000-item archive. It holds the key to the pop star’s dramatic reinventions.`\
 https://nytimes.com/interactive/2025/09/16/arts/music/david-bowie-archive.html
