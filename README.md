@@ -1,3 +1,11 @@
+**Super Bowl odds track Green Bay's ascent while injuries at QB drop several favorites**\
+`Matchups among contenders and several questionable QBs caused a shakeup in Super Bowl odds below Tier 1.`\
+https://nytimes.com/athletic/6634575/2025/09/16/super-bowl-odds-after-week-2-green-bay/
+
+**Israel Bombards Gaza City as It Announces Ground Operation**\
+`The Israeli military said on Tuesday that it had started a ground incursion into Gaza City. The announcement came amid intensified Israeli bombing of the city, which local health officials say killed at least 20 people and injured dozens since midnight.`\
+https://nytimes.com/video/world/middleeast/100000010401366/gaza-city-operation-strikes.html
+
 **Until Saturday: Coach-firing season begins (slightly) early**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6634686/2025/09/16/college-football-coaches-fired-early-until-saturday/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/16/dining/french-babka-rosh-hashana.html
 **Baller League USA to launch in Miami with Ronaldinho and Usain Bolt as managers**\
 `The competition originated in Germany and was launched in the UK earlier this year.`\
 https://nytimes.com/athletic/6634591/2025/09/16/baller-league-usa-miami-ronaldinho-usain-bolt/
-
-**The best Tom Brady cards to collect**\
-`A guide to some of the most sought-after modern football cards`\
-https://nytimes.com/athletic/6560774/2025/09/16/tom-brady-best-rookie-cards/
-
-**Satellite Images Show Israeli Military Buildup Around Gaza City**\
-`The images show Israeli armored vehicles in multiple places along the outskirts of the city on Tuesday morning, after Israel said it had begun its armed offensive into the city.`\
-https://nytimes.com/2025/09/16/world/middleeast/gaza-satellite-images-israel-war.html
 
