@@ -1,3 +1,7 @@
+**Blue Jays' Bo Bichette (left knee) will be out until at least the postseason**\
+`Bichette injured his knee sliding into home during Toronto’s road loss against the Yankees on September 6`\
+https://nytimes.com/athletic/6635748/2025/09/16/toronto-blue-jays-bo-bichette-regular-season-status/
+
 **How to watch Cowboys at Bears: Time, TV, streaming**\
 `Find out how to watch the Dallas Cowboys play the Chicago Bears, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6635805/2025/09/16/cowboys-vs-bears-stream-how-to-watch-sept-21/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6635640/2025/09/16/vikings-aaron-jones-injury-cam-a
 **Repeat Offender Charged With Threatening the Lives of Female Judges**\
 `Anthony Salvatore Perri threatened to kill two jurists and said others were targets, prosecutors say. The charges against him come as the nation is seeing a wave of threats against judges.`\
 https://nytimes.com/2025/09/16/nyregion/brooklyn-judge-threat-indictment.html
-
-**Eagles-Chiefs Super Bowl rematch draws record-setting 33.8 million viewers**\
-`The Week 2 game tied the record for most-watched regular-season Sunday game since the NFL started tracking ratings in 1988.`\
-https://nytimes.com/athletic/6635648/2025/09/16/eagles-chiefs-super-bowl-rematch-ratings/
 
