@@ -1,3 +1,7 @@
+**Phillies clinch NL East with closing kick, become first team to wrap up division title**\
+`The Phillies are NL East champions for the second straight year. Bolstered by key additions, they have MLB's best record since Aug. 1. `\
+https://nytimes.com/athletic/6628279/2025/09/16/phillies-clinch-national-league-east/
+
 **The New York Times in Print for Tuesday, Sep. 16, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/16/todays-new-york-times
