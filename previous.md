@@ -1,3 +1,15 @@
+**How Do Times Health Reporters Choose Experts?**\
+`A few basic guidelines help us ensure we’re finding and interviewing the right sources for health and wellness news.`\
+https://nytimes.com/2025/09/16/well/how-health-reporters-choose-experts.html
+
+**A Bucolic Stone-Skimming Contest in Scotland Is Infiltrated by Cheaters**\
+`“I did see some stones that looked a little too perfect,” said the winner of the Stone Skimming World Championships. The offending contestants were disqualified.`\
+https://nytimes.com/2025/09/16/world/europe/stone-skimming-championship-cheating.html
+
+**NFL MVP odds see Allen, Jackson reigning; Herbert, Love rising; Mahomes sliding**\
+`Week 2's conclusion welcomes two new faces in the top-four MVP odds and one major loss.`\
+https://nytimes.com/athletic/6634111/2025/09/16/nfl-mvp-odds-after-week-2-allen-jackson-herbert-love/
+
 **Can YouTube Make Livestreaming Its Next Big Thing?**\
 `The world’s largest and most influential video platform wants to persuade a lot more content creators to broadcast live.`\
 https://nytimes.com/2025/09/16/business/media/youtube-livestreaming-video.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/16/world/europe/king-charles-duchess-of-kent-funeral
 **Social Platforms Duck Blame for Inflaming Divisions Before Charlie Kirk’s Death**\
 `After authorities said Mr. Kirk’s suspected shooter had been “radicalized” online, Meta, Reddit, TikTok and other platforms have stayed quiet — though not Elon Musk, who owns X.`\
 https://nytimes.com/2025/09/16/technology/charlie-kirk-meta-x-tiktok.html
-
-**‘It was me,’ Discord says the accused Kirk shooter wrote on the network.**\
-`By Eli Tan`\
-https://nytimes.com/live/2025/09/16/us/kirk-shooting-suspect-charges/it-was-me-discord-says-accused-kirk-shooter-wrote-on-network
-
-**Jackson has given Bayern inside knowledge for Chelsea game - Kompany**\
-`Jackson joined Bayern on a season-long loan from Chelsea a fortnight ago and can play against his parent club on Wednesday night.`\
-https://nytimes.com/athletic/6634396/2025/09/16/nicolas-jackson-bayern-chelsea-champions-league/
-
-**As an Activist, Robert Redford Understood the Power of Celebrity**\
-`His knowledge of the ways cameras and media create narratives helped him redirect those stories in service of larger causes like environmentalism.`\
-https://nytimes.com/2025/09/16/movies/robert-redford-activism.html
 

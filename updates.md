@@ -1,3 +1,15 @@
+**How Do Times Health Reporters Choose Experts?**\
+`A few basic guidelines help us ensure we’re finding and interviewing the right sources for health and wellness news.`\
+https://nytimes.com/2025/09/16/well/how-health-reporters-choose-experts.html
+
+**A Bucolic Stone-Skimming Contest in Scotland Is Infiltrated by Cheaters**\
+`“I did see some stones that looked a little too perfect,” said the winner of the Stone Skimming World Championships. The offending contestants were disqualified.`\
+https://nytimes.com/2025/09/16/world/europe/stone-skimming-championship-cheating.html
+
+**NFL MVP odds see Allen, Jackson reigning; Herbert, Love rising; Mahomes sliding**\
+`Week 2's conclusion welcomes two new faces in the top-four MVP odds and one major loss.`\
+https://nytimes.com/athletic/6634111/2025/09/16/nfl-mvp-odds-after-week-2-allen-jackson-herbert-love/
+
 **Can YouTube Make Livestreaming Its Next Big Thing?**\
 `The world’s largest and most influential video platform wants to persuade a lot more content creators to broadcast live.`\
 https://nytimes.com/2025/09/16/business/media/youtube-livestreaming-video.html
