@@ -1,3 +1,23 @@
+**Fani Willis Loses Bid to Continue Prosecuting Georgia Trump Case**\
+`The 4-3 ruling means that the criminal case against President Trump, related to his efforts to overturn his 2020 election loss, will not move forward anytime soon, if ever.`\
+https://nytimes.com/2025/09/16/us/fani-willis-georgia-trump.html
+
+**‘People Are Losing Hope’ Inside ICE Detention Centers**\
+`Immigrant detainees are not receiving proper mental health care, lawyers and advocacy groups say, and reports of suicide attempts are persistent.`\
+https://nytimes.com/2025/09/16/health/ice-homeland-security-immigration-detention.html
+
+**New York Rangers team with Mark Messier for first-ever jersey patch during 100th season**\
+`The patch, a first for the Rangers, will be featured on the jerseys beginning Sept. 21, their first preseason game at the New Jersey Devils.`\
+https://nytimes.com/athletic/6633184/2025/09/16/new-york-rangers-mark-messier-nhl-patch/
+
+**State Terrorism Charges Against Luigi Mangione Are Dismissed**\
+`The judge overseeing the case against Mr. Mangione said the evidence underpinning two of the most serious counts, one of which charged him with first-degree murder, was “legally insufficient.”`\
+https://nytimes.com/2025/09/16/nyregion/luigi-mangione-state-terrrorism-charges-dismissed.html
+
+**Tim Walz Seeks Third Term as Governor of Minnesota**\
+`Mr. Walz raised his national profile with a run for vice president. He has suggested that an additional term as governor would rule out the prospect of him running for president in 2028.`\
+https://nytimes.com/2025/09/16/us/walz-minnesota-governer-third-term.html
+
 **J.T. Miller named Rangers captain: What it means for the team's direction**\
 `GM Chris Drury wants the Rangers to toughen up and views Miller as an embodiment of that.`\
 https://nytimes.com/athletic/6634016/2025/09/16/jt-miller-new-york-rangers-captain/

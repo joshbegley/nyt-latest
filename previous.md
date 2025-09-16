@@ -1,9 +1,21 @@
+**Fani Willis Loses Bid to Continue Prosecuting Georgia Trump Case**\
+`The 4-3 ruling means that the criminal case against President Trump, related to his efforts to overturn his 2020 election loss, will not move forward anytime soon, if ever.`\
+https://nytimes.com/2025/09/16/us/fani-willis-georgia-trump.html
+
+**‘People Are Losing Hope’ Inside ICE Detention Centers**\
+`Immigrant detainees are not receiving proper mental health care, lawyers and advocacy groups say, and reports of suicide attempts are persistent.`\
+https://nytimes.com/2025/09/16/health/ice-homeland-security-immigration-detention.html
+
+**New York Rangers team with Mark Messier for first-ever jersey patch during 100th season**\
+`The patch, a first for the Rangers, will be featured on the jerseys beginning Sept. 21, their first preseason game at the New Jersey Devils.`\
+https://nytimes.com/athletic/6633184/2025/09/16/new-york-rangers-mark-messier-nhl-patch/
+
 **J.T. Miller named Rangers captain: What it means for the team's direction**\
 `GM Chris Drury wants the Rangers to toughen up and views Miller as an embodiment of that.`\
 https://nytimes.com/athletic/6634016/2025/09/16/jt-miller-new-york-rangers-captain/
 
 **State Terrorism Charges Against Luigi Mangione Are Dismissed**\
-`The judge overseeing the prosecution of a health-care executive’s killing said the evidence underpinning two of the most serious counts, one of which charged Mr. Mangione with first-degree murder, was “legally insufficient.”`\
+`The judge overseeing the case against Mr. Mangione said the evidence underpinning two of the most serious counts, one of which charged him with first-degree murder, was “legally insufficient.”`\
 https://nytimes.com/2025/09/16/nyregion/luigi-mangione-state-terrrorism-charges-dismissed.html
 
 **White House Readies Appeal After 2nd Loss in Bid to Fire Fed Governor**\
@@ -24,17 +36,5 @@ https://nytimes.com/live/2025/09/16/world/gaza-israel/where-will-people-in-gaza-
 
 **Tim Walz Seeks Third Term as Governor of Minnesota**\
 `Mr. Walz raised his national profile with a run for vice president. He has suggested that an additional term as governor would rule out the prospect of him running for president in 2028.`\
-https://nytimes.com/2025/09/16/us/tim-walz-seeks-third-term-as-governor-of-minnesota.html
-
-**Have a Broncos question? Send it to beat writer Nick Kosmider for an upcoming mailbag**\
-`What's on your mind ahead of Sunday's game against the 2-0 Chargers.`\
-https://nytimes.com/athletic/6611697/2025/09/16/broncos-mailbag-questions-week-3-chargers/
-
-**For the First Time in 215 Years, a Woman Leads Mexico’s Cry of Independence**\
-`Claudia Sheinbaum, the country’s president, was the first woman to give the country’s annual Grito de Dolores, a tradition dating to a priest’s call to arms against Spain more than two centuries ago.`\
-https://nytimes.com/2025/09/16/world/americas/mexico-sheinbaum-independence-day.html
-
-**Sydney McLaughlin-Levrone breaks American 400-meter record at world championships**\
-`McLaughlin-Levrone's time in the 400 flat in Tuesday's semifinals was also the world lead. And she looked like she had more to give.`\
-https://nytimes.com/athletic/6633960/2025/09/16/sydney-mclaughlin-levrone-400-meter-american-record-world-championships/
+https://nytimes.com/2025/09/16/us/walz-minnesota-governer-third-term.html
 
