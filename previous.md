@@ -1,3 +1,7 @@
+**State Terrorism Charges Against Luigi Mangione Are Dismissed**\
+`The judge overseeing the prosecution of a health-care executive’s killing said the evidence underpinning two of the most serious counts, one of which charged Mr. Mangione with first-degree murder, was “legally insufficient.”`\
+https://nytimes.com/2025/09/16/nyregion/luigi-mangione-state-terrrorism-charges-dismissed.html
+
 **White House Readies Appeal After 2nd Loss in Bid to Fire Fed Governor**\
 `A court blocked a last-minute attempt on Monday to remove Lisa Cook from the Fed board ahead of a meeting to set interest rates.`\
 https://nytimes.com/2025/09/16/us/politics/lisa-cook-trump-appeal-fed-governor.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6633960/2025/09/16/sydney-mclaughlin-levrone-400-me
 **The American Dreams of Pierre Balmain,  80 Years On  **\
 `On the 80th anniversary of the French fashion house’s founding, a love affair with New York, modern architecture and the women who shaped this vision endures.`\
 https://nytimes.com/paidpost/balmain/the-american-dreams-of-pierre-balmain-80-years-on.html
-
-**Ford to Cut 1,000 Jobs in Germany as E.V. Sales Slow**\
-`The automaker said the reductions at its factory in Cologne come on top of 4,000 job cuts across Europe that were announced last year.`\
-https://nytimes.com/2025/09/16/business/ford-jobs-electric-vehicles-germany.html
 

@@ -1,3 +1,7 @@
+**State Terrorism Charges Against Luigi Mangione Are Dismissed**\
+`The judge overseeing the prosecution of a health-care executive’s killing said the evidence underpinning two of the most serious counts, one of which charged Mr. Mangione with first-degree murder, was “legally insufficient.”`\
+https://nytimes.com/2025/09/16/nyregion/luigi-mangione-state-terrrorism-charges-dismissed.html
+
 **White House Readies Appeal After 2nd Loss in Bid to Fire Fed Governor**\
 `A court blocked a last-minute attempt on Monday to remove Lisa Cook from the Fed board ahead of a meeting to set interest rates.`\
 https://nytimes.com/2025/09/16/us/politics/lisa-cook-trump-appeal-fed-governor.html
