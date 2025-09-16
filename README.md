@@ -1,8 +1,12 @@
+**Strip Club Executives Bribed Tax Auditor With Lap Dances, Charges Say**\
+`Five executives of RCI Hospitality Holdings, which owns clubs across the country, were charged in the scheme. The company avoided $8 million in New York taxes, prosecutors say.`\
+https://nytimes.com/2025/09/16/nyregion/rci-strip-club-lap-dance-bribe-charges.html
+
 **Tropical System Could Bring Heavy Rain to Southern California This Week**\
 `The remains of Tropical Storm Mario could bring flooding to the Los Angeles area. Dry storms with lightning could ignite wildfires in Northern California.`\
 https://nytimes.com/2025/09/16/weather/california-rain-tropical-storm-mario-forecast.html
 
-**With RB Aaron Jones headed to IR, Vikings to sign Cam Akers, QB Desmond Ridder**\
+**Source: With RB Aaron Jones headed to IR, Vikings to sign Cam Akers, QB Desmond Ridder**\
 `Jones injured his hamstring in Sunday night’s loss to the Falcons. This will be Akers' third go-round with the Vikings in three seasons.`\
 https://nytimes.com/athletic/6635640/2025/09/16/vikings-aaron-jones-injury-cam-akers-desmond-ridder/
 
@@ -29,8 +33,4 @@ https://nytimes.com/2025/09/16/us/naval-academy-threat-arrest.html
 **Amber Ruffin Loves This Memento**\
 `To celebrate the opening of “The Wiz” on Broadway, the writer and comedian put a ring on it.`\
 https://nytimes.com/2025/09/16/style/amber-ruffin-loves-this-memento.html
-
-**Prosecutors Seek Death Penalty in Killing of Charlie Kirk**\
-`Also, Israeli troops pushed into Gaza City. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2025/09/16/briefing/charges-charlie-kirk-killing-israel-gaza-city.html
 

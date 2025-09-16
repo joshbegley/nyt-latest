@@ -1,3 +1,11 @@
+**Tropical System Could Bring Heavy Rain to Southern California This Week**\
+`The remains of Tropical Storm Mario could bring flooding to the Los Angeles area. Dry storms with lightning could ignite wildfires in Northern California.`\
+https://nytimes.com/2025/09/16/weather/california-rain-tropical-storm-mario-forecast.html
+
+**With RB Aaron Jones headed to IR, Vikings to sign Cam Akers, QB Desmond Ridder**\
+`Jones injured his hamstring in Sunday night’s loss to the Falcons. This will be Akers' third go-round with the Vikings in three seasons.`\
+https://nytimes.com/athletic/6635640/2025/09/16/vikings-aaron-jones-injury-cam-akers-desmond-ridder/
+
 **Repeat Offender Charged With Threatening the Lives of Female Judges**\
 `Anthony Salvatore Perri threatened to kill two jurists and said others were targets, prosecutors say. The charges against him come as the nation is seeing a wave of threats against judges.`\
 https://nytimes.com/2025/09/16/nyregion/brooklyn-judge-threat-indictment.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/09/16/style/amber-ruffin-loves-this-memento.html
 **Prosecutors Seek Death Penalty in Killing of Charlie Kirk**\
 `Also, Israeli troops pushed into Gaza City. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/09/16/briefing/charges-charlie-kirk-killing-israel-gaza-city.html
-
-**In Charlie Kirk Killing, Finger Pointing Began Before the Evidence Was In**\
-`Before much was known about the accused, the right and left rushed to blame the other side, fitting a historical pattern.`\
-https://nytimes.com/2025/09/16/us/politics/charlie-kirk-killing-conspiracy-politics.html
-
-**Johnston: What I'm hearing about McDavid-Oilers as he's set to enter camp without an extension**\
-`McDavid will not have an extension in place before the team opens training camp Wednesday, according to league sources. What does it mean?`\
-https://nytimes.com/athletic/6635346/2025/09/16/connor-mcdavid-oilers-training-camp-extension/
 

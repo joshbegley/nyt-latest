@@ -1,3 +1,11 @@
+**Tropical System Could Bring Heavy Rain to Southern California This Week**\
+`The remains of Tropical Storm Mario could bring flooding to the Los Angeles area. Dry storms with lightning could ignite wildfires in Northern California.`\
+https://nytimes.com/2025/09/16/weather/california-rain-tropical-storm-mario-forecast.html
+
+**With RB Aaron Jones headed to IR, Vikings to sign Cam Akers, QB Desmond Ridder**\
+`Jones injured his hamstring in Sunday night’s loss to the Falcons. This will be Akers' third go-round with the Vikings in three seasons.`\
+https://nytimes.com/athletic/6635640/2025/09/16/vikings-aaron-jones-injury-cam-akers-desmond-ridder/
+
 **Repeat Offender Charged With Threatening the Lives of Female Judges**\
 `Anthony Salvatore Perri threatened to kill two jurists and said others were targets, prosecutors say. The charges against him come as the nation is seeing a wave of threats against judges.`\
 https://nytimes.com/2025/09/16/nyregion/brooklyn-judge-threat-indictment.html
