@@ -1,3 +1,7 @@
+**Cy Young-favorite Tarik Skubal on track for next start after injury scare**\
+`Skubal completed a normal bullpen session on Monday and came out feeling healthy.`\
+https://nytimes.com/athletic/6635340/2025/09/16/tarik-skubal-detroit-tigers-health-update/
+
 **Federal Courts Want More Money From Congress for Security**\
 `The judiciary’s leadership met in Washington, emphasized their budgetary needs and said that threats against judges remained a problem.`\
 https://nytimes.com/2025/09/16/us/politics/federal-judges-security-threats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/16/us/politics/oklahoma-schools-moment-of-silence-ch
 **When Redford-Newman Defined an Era**\
 `Though the two leading men starred in only two films together, their collaborations led to a lifelong friendship that had its prickly moments.`\
 https://nytimes.com/2025/09/16/movies/robert-redford-paul-newman.html
-
-**Israeli Ground Forces Move Into Gaza City, Sowing Chaos**\
-`The long-anticipated military assault is aimed, the Israelis said, at routing the militants of Hamas, but it deepened the humanitarian crisis in the Gaza Strip.`\
-https://nytimes.com/2025/09/16/world/middleeast/gaza-city-israel-invasion.html
 
