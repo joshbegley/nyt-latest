@@ -1,3 +1,15 @@
+**Sydney McLaughlin-Levrone breaks American 400-meter record at world championships**\
+`McLaughlin-Levrone's time in the 400 flat in Tuesday's semifinals was also the world lead. And she looked like she had more to give.`\
+https://nytimes.com/athletic/6633960/2025/09/16/sydney-mclaughlin-levrone-400-meter-american-record-world-championships/
+
+**The American Dreams of Pierre Balmain,  80 Years On  **\
+`On the 80th anniversary of the French fashion house’s founding, a love affair with New York, modern architecture and the women who shaped this vision endures.`\
+https://nytimes.com/paidpost/balmain/the-american-dreams-of-pierre-balmain-80-years-on.html
+
+**Ford to Cut 1,000 Jobs in Germany as E.V. Sales Slow**\
+`The automaker said the reductions at its factory in Cologne come on top of 4,000 job cuts across Europe that were announced last year.`\
+https://nytimes.com/2025/09/16/business/ford-jobs-electric-vehicles-germany.html
+
 **Ducks' 5 training camp questions: McTavish's status, Quenneville's systems and more**\
 `After seven playoff-less seasons, it is put-up or shut-up time in Anaheim.`\
 https://nytimes.com/athletic/6607262/2025/09/16/anaheim-ducks-training-camp/
