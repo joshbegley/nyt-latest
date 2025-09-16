@@ -1,3 +1,27 @@
+**What Was Behind David Bowie’s Genius? His Archive Holds the Answers.**\
+`The David Bowie Center in London is a new home for the singer’s 90,000-item archive. It holds the key to the pop star’s dramatic reinventions.`\
+https://nytimes.com/interactive/2025/09/16/arts/music/david-bowie-archive.html
+
+**The Briefing: Real Madrid 2 Marseille 1 - Mbappe on target, teenage star shines, Trent injury**\
+`Real Madrid come from behind to beat Marseille thanks to two Kylian Mbappe penalties. `\
+https://nytimes.com/athletic/6634080/2025/09/16/real-madrid-2-marseille-1-champions-league-kylian-mbappe-trent-alexander-arnold/
+
+**Why the Kirk Assassination Is a Warning to the Left**\
+`Progressives need a cure for political desperation and despair.`\
+https://nytimes.com/2025/09/16/opinion/charlie-kirk-assassination-left-violence.html
+
+**Our Allies Are Asking: ‘Why Does Putin Still Own Trump?’**\
+`Ukrainian and European officials, analysts and entrepreneurs keep asking privately, “What’s up with Trump?”`\
+https://nytimes.com/2025/09/16/opinion/trump-putin-russia-ukraine.html
+
+**Our Vanishing Culture of Argument**\
+`What the University of Chicago might have taught Charlie Kirk — and the rest of us.`\
+https://nytimes.com/2025/09/16/opinion/charlie-kirk-argument-politics-chicago.html
+
+**The Briefing: Tottenham 1 Villarreal 0 - How did Spurs score such a bizarre winner?**\
+`The major talking points dissected as Spurs got their Champions League campaign under way with a win`\
+https://nytimes.com/athletic/6634081/2025/09/16/tottenham-villarreal-champions-league-result-analysis/
+
 **Cy Young-favorite Tarik Skubal on track for next start after injury scare**\
 `Skubal completed a normal bullpen session on Monday and came out feeling healthy.`\
 https://nytimes.com/athletic/6635340/2025/09/16/tarik-skubal-detroit-tigers-health-update/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6635316/2025/09/16/crystal-palace-forest-marinakis-
 **Gwyneth Paltrow Wants to Be the Next Ralph Lauren**\
 `The actress introduces GWYN, her new fashion brand.`\
 https://nytimes.com/2025/09/16/style/gwyneth-paltrow-gwyn-new-fashion-line.html
-
-**Benjamin Mendy joins Polish club Pogon Szczecin**\
-`The 31-year-old, who made 75 first-team appearances for City across six years, has signed a one-year deal with Pogon with a 12-month option.`\
-https://nytimes.com/athletic/6634907/2025/09/16/benjamin-mendy-transfer-man-city/
-
-**49ers mailbag: Could Mike McDaniel return to San Francisco if he's fired by the Dolphins?**\
-`Meanwhile, how does the rookie class look so far, and what happens at WR when Brandon Aiyuk and Demarcus Robinson return?`\
-https://nytimes.com/athletic/6635127/2025/09/16/mike-mcdaniel-dolphins-49ers-mailbag/
-
-**G.O.P. Again Cedes Power on Tariffs to Avoid Crossing Trump**\
-`House Republicans extended a maneuver they engineered earlier in the year that effectively strips Congress of the power to disapprove of President Trump’s tariffs.`\
-https://nytimes.com/2025/09/16/us/politics/republicans-house-tariffs-emergency-trump.html
-
-**Costco Recalls Kirkland Prosecco, Citing Risk of Sudden Shattering**\
-`The retailer said the unopened bottles should be wrapped in paper towels and placed in a plastic bag before being discarded.`\
-https://nytimes.com/2025/09/16/business/costco-prosecco-recall.html
-
-**Oklahoma Schools Were Instructed to Hold a Moment of Silence for Charlie Kirk**\
-`Public and private entities have been criticized over decisions to honor the right-wing activist, or their choice not to.`\
-https://nytimes.com/2025/09/16/us/politics/oklahoma-schools-moment-of-silence-charlie-kirk.html
-
-**When Redford-Newman Defined an Era**\
-`Though the two leading men starred in only two films together, their collaborations led to a lifelong friendship that had its prickly moments.`\
-https://nytimes.com/2025/09/16/movies/robert-redford-paul-newman.html
 
