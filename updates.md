@@ -1,3 +1,7 @@
+**Retired Admiral Is Sentenced to 6 Years in Prison for Bribery**\
+`Robert P. Burke, a retired four-star admiral, was convicted in May of exchanging a government contract for a lucrative post-retirement job with the company that got it.`\
+https://nytimes.com/2025/09/16/us/us-navy-admiral-bribery-sentencing.html
+
 **Blue Jays' Bo Bichette (left knee) out until at least the postseason**\
 `Bichette injured his knee sliding into home during Toronto’s road loss against the Yankees on Sept. 6.`\
 https://nytimes.com/athletic/6635748/2025/09/16/toronto-blue-jays-bo-bichette-regular-season-status/
