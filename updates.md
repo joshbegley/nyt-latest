@@ -1,3 +1,11 @@
+**Ravens are putting up a lot of points while working to get everyone involved**\
+`Baltimore has flashed its offensive depth and an ability to attack defenses in different ways over the first two weeks of the season.`\
+https://nytimes.com/athletic/6632575/2025/09/16/ravens-points-scored-offensive-playmakers/
+
+**How the Government Is Trying to Silence Charlie Kirk’s Critics**\
+`We look at the fight over free speech.`\
+https://nytimes.com/2025/09/16/briefing/how-the-government-is-trying-to-silence-charlie-kirks-critics.html
+
 **Atlanta Dream's WNBA playoff chase was a 'progress plan'**\
 `After hiring Dan Padover as general manager and Karl Smesko as coach, the Dream are reaching new heights, winning a franchise-best 30 games.`\
 https://nytimes.com/athletic/6633076/2025/09/16/atlanta-dream-wnba-playoffs-karl-smesko/
