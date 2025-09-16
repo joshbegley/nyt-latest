@@ -1,3 +1,19 @@
+**How to watch Aces at Storm: Game 2 Time, TV, streaming**\
+`Find out how to watch the Las Vegas Aces play the Seattle Storm, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6635242/2025/09/16/aces-vs-storm-stream-how-to-watch-sept-16/
+
+**Democrats Oppose G.O.P. Funding Bill, Threatening a Shutdown**\
+`After allowing a stopgap spending bill to move forward earlier this year, Democrats are under intense pressure not to do so again.`\
+https://nytimes.com/2025/09/16/us/politics/democrats-funding-bill-shutdown.html
+
+**USMNT's Weah scores for Marseille vs. Real Madrid in Champions League**\
+`The American silenced the Bernabéu early in Marseille's Champions League opener`\
+https://nytimes.com/athletic/6635148/2025/09/16/tim-weah-goal-video-marseille-real-madrid-champions-league-usmnt/
+
+**Ricardo Pepi endures miserable start to PSV Champions League campaign**\
+`The USMNT striker did little to impress Mauricio Pochettino as Champions League action got underway.`\
+https://nytimes.com/athletic/6635048/2025/09/16/pepi-usmnt-psv-union-champions-league/
+
 **Texts From Suspect in Charlie Kirk Shooting Offer Glimpse of a Motive**\
 `Prosecutors said that the 22 year-old man accused of killing Charlie Kirk had texted his romantic partner: “I had enough of his hatred. Some hate can’t be negotiated out.”`\
 https://nytimes.com/2025/09/16/us/politics/kirk-shooting-suspect-motive-messages.html
