@@ -1,3 +1,7 @@
+**Eagles-Chiefs Super Bowl rematch draws record-setting 33.8 million viewers**\
+`The Week 2 game tied the record for most-watched regular-season Sunday game since the NFL started tracking ratings in 1988.`\
+https://nytimes.com/athletic/6635648/2025/09/16/eagles-chiefs-super-bowl-rematch-ratings/
+
 **A Forgotten Cosmic Impact Was Hidden in a Museum’s Glass Shards**\
 `Scientists thought that an Australian museum’s collection of tektites came from an 800,000-year-old asteroid strike on Earth. Some of them turned out to be much older.`\
 https://nytimes.com/2025/09/16/science/tektites-australia-asteroid-impact.html
