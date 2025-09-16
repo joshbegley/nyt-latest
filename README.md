@@ -1,8 +1,8 @@
 **Here’s the latest.**\
-`By Isabel Kershner and Lara Jakes`\
+`By Lara Jakes, Isabel Kershner and Natan Odenheimer`\
 https://nytimes.com/live/2025/09/16/world/gaza-israel/heres-the-latest
 
-**Live Updates: Israel Launches Ground Offensive in Gaza City, Officials Say**\
+**Live Updates: Israel Launches Ground Offensive in Gaza City**\
 `The ground operation and intensifying Israeli bombardment risks deepening the humanitarian crisis in a war that has already killed tens of thousands of Palestinians.`\
 https://nytimes.com/live/2025/09/16/world/gaza-israel
 
