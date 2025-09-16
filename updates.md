@@ -1,3 +1,7 @@
+**Anatomy of a Giants letdown: How defense, coaches failed in biggest moment vs. Cowboys**\
+`The Giants knew Dallas' Brandon Aubrey could make a 60-plus-yard FG, so why did they play such soft coverage at the end of regulation?`\
+https://nytimes.com/athletic/6633198/2025/09/16/ny-giants-defense-shane-bowen-cowboys/
+
 **Biggest position battles at Rangers training camp: Will a young winger step up?**\
 `If our projections are correct, four spots are up for grabs: three forwards and one defenseman. Let's preview them.`\
 https://nytimes.com/athletic/6628467/2025/09/16/new-york-rangers-position-battles-training-camp/
