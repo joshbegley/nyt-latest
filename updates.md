@@ -1,3 +1,7 @@
+**Lots of signings, not many goals: Why most Premier League sides are yet to click**\
+`The quality of attacking football this season has been way down on previous campaigns, but new players need to time to settle`\
+https://nytimes.com/athletic/6633559/2025/09/16/premier-league-signings-goals/
+
 **Caleb Williams film review: Why Bears QB gives reason for optimism despite blowout loss**\
 `Williams made several high-level throws with timing against the Lions. He played within the structure of the offense and rarely deviated.`\
 https://nytimes.com/athletic/6631984/2025/09/16/caleb-williams-film-review-bears-lions/
