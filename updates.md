@@ -1,3 +1,7 @@
+**Robert Redford: A Life in Photos**\
+`The Oscar-winning director, who preferred life away from Hollywood, was once a sex symbol and later an activist who used his celebrity to draw attention to the environment.`\
+https://nytimes.com/2025/09/16/movies/robert-redford-a-life-in-photos.html
+
 **Panic Grips Gaza City as Israel Launches Ground Operation**\
 `“I scream all the time,” said one Palestinian living in the city in northern Gaza. Others said they felt terrified as tanks and ground troops rolled in.`\
 https://nytimes.com/2025/09/16/world/middleeast/gaza-city-israel-ground-operation.html

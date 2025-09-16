@@ -1,3 +1,7 @@
+**Robert Redford: A Life in Photos**\
+`The Oscar-winning director, who preferred life away from Hollywood, was once a sex symbol and later an activist who used his celebrity to draw attention to the environment.`\
+https://nytimes.com/2025/09/16/movies/robert-redford-a-life-in-photos.html
+
 **Panic Grips Gaza City as Israel Launches Ground Operation**\
 `“I scream all the time,” said one Palestinian living in the city in northern Gaza. Others said they felt terrified as tanks and ground troops rolled in.`\
 https://nytimes.com/2025/09/16/world/middleeast/gaza-city-israel-ground-operation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6632699/2025/09/16/ohio-state-football-mailbag-ques
 **California’s Environmental Past Confronts Economic Worries of the Present**\
 `Gov. Gavin Newsom and Democratic state lawmakers have focused on pocketbook concerns this year, seeing their party’s national losses as a reckoning.`\
 https://nytimes.com/2025/09/16/us/california-environment-democrats-newsom.html
-
-**California’s High Gas Prices Could Climb Further as Refineries Close**\
-`The state has led the country in adopting electric cars and reducing gas use, but it now faces much higher gas prices as oil companies plan to shut down refineries.`\
-https://nytimes.com/2025/09/16/business/energy-environment/california-gas-prices-oil-refineries.html
 
