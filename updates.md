@@ -1,3 +1,11 @@
+**Why Many Israelis Oppose Netanyahu’s Push Into Gaza City**\
+`Critics question what a risky advance can achieve that nearly two years of war have failed to accomplish.`\
+https://nytimes.com/2025/09/16/world/middleeast/why-many-israelis-oppose-netanyahus-push-into-gaza-city.html
+
+**Cassidy, His Job in Peril, Scrutinizes Kennedy on Vaccines**\
+`Senator Bill Cassidy, a Republican physician and vaccine proponent who is facing a primary challenge from the right, has a fraught relationship with the health secretary.`\
+https://nytimes.com/2025/09/16/us/politics/bill-cassidy-vaccines-rfk-kennedy.html
+
 **ESPN 'First Take' host Molly Qerim leaving network after 10 years**\
 `Qerim, 41, was reportedly offered a new contract by ESPN, but she opted to move on, according to a report by Sports Business Journal.`\
 https://nytimes.com/athletic/6634202/2025/09/16/molly-qerim-leave-first-take-espn/

@@ -1,3 +1,11 @@
+**Why Many Israelis Oppose Netanyahu’s Push Into Gaza City**\
+`Critics question what a risky advance can achieve that nearly two years of war have failed to accomplish.`\
+https://nytimes.com/2025/09/16/world/middleeast/why-many-israelis-oppose-netanyahus-push-into-gaza-city.html
+
+**Cassidy, His Job in Peril, Scrutinizes Kennedy on Vaccines**\
+`Senator Bill Cassidy, a Republican physician and vaccine proponent who is facing a primary challenge from the right, has a fraught relationship with the health secretary.`\
+https://nytimes.com/2025/09/16/us/politics/bill-cassidy-vaccines-rfk-kennedy.html
+
 **ESPN 'First Take' host Molly Qerim leaving network after 10 years**\
 `Qerim, 41, was reportedly offered a new contract by ESPN, but she opted to move on, according to a report by Sports Business Journal.`\
 https://nytimes.com/athletic/6634202/2025/09/16/molly-qerim-leave-first-take-espn/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/09/16/us/kirk-shooting-suspect-charges/heres-what-
 **Israel Strikes Houthi Sites at Hudaydah Port amid Gaza City Assault**\
 `Israel has accused the militant group of using the vital port to transfer Iranian weaponry used in recent attacks amid the wider regional war.`\
 https://nytimes.com/2025/09/16/world/middleeast/israel-yemen-hudaydah.html
-
-**Submit questions for Zac Jackson's Browns mailbag**\
-`Jackson will consider your questions for his upcoming mailbag as the Browns have gotten off to an 0-2 start to the season. `\
-https://nytimes.com/athletic/6634259/2025/09/16/browns-mailbag-week-3-packers/
-
-**Shrimp in the Freezer Makes Meal Planning Easier**\
-`By Emily Weinstein`\
-https://nytimes.com/2025/09/16/dining/shrimp-in-the-freezer-makes-meal-planning-easier.html
 
