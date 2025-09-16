@@ -1,3 +1,15 @@
+**Man Known as the ‘Tinder Swindler’ Is Arrested in Georgia**\
+`The man, Shimon Hayut, has been accused of using multiple aliases to swindle women he met on dating apps out of millions of dollars.`\
+https://nytimes.com/2025/09/16/world/europe/tinder-swindler-simon-leviev-arrested.html
+
+**The Fall Restaurant Preview Is Dead, Long Live the Fall Restaurant Preview**\
+`Restaurants simply open when they can open now — but that’s not stopping our restaurant reporters from celebrating what’s to come.`\
+https://nytimes.com/2025/09/16/dining/fall-restaurant-openings.html
+
+**gws-one-battle-after-another-leo-dicaprio**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/one-battle-after-another-leo-dicaprio
+
 **Prime Tire: Bring on the F1 sprint race reverse grids. Plus, a defense of Kimi Antonelli**\
 `Welcome to Prime Tire, The Athletic's Formula 1 newsletter`\
 https://nytimes.com/athletic/6634027/2025/09/16/f1-sprint-race-reverse-grids-kimi-anteonelli-prime-tire/

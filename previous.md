@@ -1,3 +1,15 @@
+**Man Known as the ‘Tinder Swindler’ Is Arrested in Georgia**\
+`The man, Shimon Hayut, has been accused of using multiple aliases to swindle women he met on dating apps out of millions of dollars.`\
+https://nytimes.com/2025/09/16/world/europe/tinder-swindler-simon-leviev-arrested.html
+
+**The Fall Restaurant Preview Is Dead, Long Live the Fall Restaurant Preview**\
+`Restaurants simply open when they can open now — but that’s not stopping our restaurant reporters from celebrating what’s to come.`\
+https://nytimes.com/2025/09/16/dining/fall-restaurant-openings.html
+
+**gws-one-battle-after-another-leo-dicaprio**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/one-battle-after-another-leo-dicaprio
+
 **Prime Tire: Bring on the F1 sprint race reverse grids. Plus, a defense of Kimi Antonelli**\
 `Welcome to Prime Tire, The Athletic's Formula 1 newsletter`\
 https://nytimes.com/athletic/6634027/2025/09/16/f1-sprint-race-reverse-grids-kimi-anteonelli-prime-tire/
@@ -25,16 +37,4 @@ https://nytimes.com/newsgraphics/card-story/italy-venice-trieste-cruise-ships-to
 **Mary Rose Oakar, 85, First Arab American Woman in Congress, Dies**\
 `In her 16 years on Capitol Hill, she emerged as a champion of women’s rights, especially equal pay for comparable work.`\
 https://nytimes.com/2025/09/16/us/politics/mary-rose-oakar-dead.html
-
-**Super Bowl odds track Green Bay's ascent while injuries at QB drop several favorites**\
-`Matchups among contenders and several questionable QBs caused a shakeup in Super Bowl odds below Tier 1.`\
-https://nytimes.com/athletic/6634575/2025/09/16/super-bowl-odds-after-week-2-green-bay/
-
-**Israel Bombards Gaza City as It Announces Ground Operation**\
-`The Israeli military said on Tuesday that it had started a ground incursion into Gaza City. The announcement came amid intensified Israeli bombing of the city, which local health officials say killed at least 20 people and injured dozens since midnight.`\
-https://nytimes.com/video/world/middleeast/100000010401366/gaza-city-operation-strikes.html
-
-**Until Saturday: Coach-firing season begins (slightly) early**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/6634686/2025/09/16/college-football-coaches-fired-early-until-saturday/
 
