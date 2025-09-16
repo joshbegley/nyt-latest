@@ -1,3 +1,11 @@
+**Dabo Swinney plays defense from 'haters' amid Clemson's 1-2 start**\
+`Firing back at antsy fans is nothing new for Swinney, who has never shied away from speaking his mind.`\
+https://nytimes.com/athletic/6634685/2025/09/16/dabo-swinney-clemson-football-haters/
+
+**Read the Charges Against Tyler Robinson**\
+`Robinson will be charged with aggravated murder, an offense that is eligible for the death penalty, according to Jeff Gray, the Utah County attorney.`\
+https://nytimes.com/interactive/2025/09/16/us/tyler-robinson-indictment-charlie-kirk.html
+
 **Former C.D.C. Director to Tell Lawmakers She Was ‘Fired for Holding the Line’**\
 `Susan Monarez is set to provide her first detailed account of her ouster in testimony before the Senate Health Committee on Wednesday.`\
 https://nytimes.com/2025/09/16/us/politics/cdc-monarez-testimony-rfk.html
