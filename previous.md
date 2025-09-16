@@ -1,3 +1,7 @@
+**For the First Time in 215 Years, a Woman Leads Mexico’s Cry of Independence**\
+`Claudia Sheinbaum, the country’s president, was the first woman to give the country’s annual Grito de Dolores, a tradition dating to a priest’s call to arms against Spain more than two centuries ago.`\
+https://nytimes.com/2025/09/16/world/americas/mexico-sheinbaum-independence-day.html
+
 **Sydney McLaughlin-Levrone breaks American 400-meter record at world championships**\
 `McLaughlin-Levrone's time in the 400 flat in Tuesday's semifinals was also the world lead. And she looked like she had more to give.`\
 https://nytimes.com/athletic/6633960/2025/09/16/sydney-mclaughlin-levrone-400-meter-american-record-world-championships/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/16/movies/robert-redford-streaming.html
 **Russia Indoctrinates Children From Occupied Ukraine at 210 Sites, Study Says**\
 `War crime investigators at Yale discovered a program of re-education and military and police training that was larger than estimated earlier.`\
 https://nytimes.com/2025/09/16/world/europe/russia-re-education-camps-ukrainian-children.html
-
-**Barcelona to play second home game at 6,000-capacity ground as Camp Nou delays continue**\
-`Barca confirmed five days before Sunday's match against Getafe that they would again play at Estadi Johan Cruyff`\
-https://nytimes.com/athletic/6633779/2025/09/16/barcelona-stadium-getafe-camp-nou-latest/
 
