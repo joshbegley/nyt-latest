@@ -1,3 +1,7 @@
+**Trump Administration Announces New Civics Effort With MAGA-Aligned Groups**\
+`President Trump has long sought to imbue the nonpartisan idea of civics — the rights, responsibilities and duties of citizenship — with his politics.`\
+https://nytimes.com/2025/09/17/us/politics/trump-civics-education-maga.html
+
 **NCAA eliminates college football spring transfer portal**\
 `The committee also stopped short of ratifying the Division I Football Oversight Committee's proposal for a 10-day winter portal window.`\
 https://nytimes.com/athletic/6639008/2025/09/17/ncaa-spring-transfer-portal-eliminated/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6638980/2025/09/17/mlb-london-series-canceled/
 **NWSL's Boston Legacy secures $100 million loan for White Stadium project**\
 `The expansion team will play its inaugural 2026 season at Gillette Stadium before moving to White Stadium in 2027`\
 https://nytimes.com/athletic/6639025/2025/09/17/nwsl-boston-legacy-100-million-stadium-loan/
-
-**Have a Bengals question? Send it to beat writer Paul Dehner Jr. for an upcoming mailbag**\
-`Cincinnati heads north to play the Minnesota Vikings on Sunday as Jake Browning takes over at quarterback.`\
-https://nytimes.com/athletic/6639030/2025/09/17/bengals-mailbag-questions-dehner-vikings/
 
