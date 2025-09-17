@@ -1,3 +1,7 @@
+**Trump’s Second U.K. State Visit Draws Protests**\
+`As President Trump arrived in Britain on Tuesday night, protesters unveiled visual stunts aimed at highlighting his ties to Jeffrey Epstein, while a march was planned for Wednesday.`\
+https://nytimes.com/2025/09/17/world/europe/trump-uk-visit-protest.html
+
 **President Trump’s 2nd U.K. State Visit: What’s on the Agenda**\
 `The president and the first lady will be hosted at Windsor Castle by King Charles III and Queen Camilla.`\
 https://nytimes.com/2025/09/17/world/europe/president-trumps-2nd-uk-state-visit-whats-on-the-agenda.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6626372/2025/09/17/romain-esse-crystal-palace-millw
 **How to watch Chiefs at Giants: Time, TV, streaming**\
 `Find out how to watch the Kansas City Chiefs play the New York Giants, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6636540/2025/09/17/chiefs-vs-giants-stream-how-to-watch-sept-21/
-
-**How to watch Marlins at Rockies: Time, TV, streaming for September 17**\
-`Find out how to watch the Miami Marlins play the Colorado Rockies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6636530/2025/09/17/marlins-vs-rockies-stream-how-to-watch-sept-17/
 
