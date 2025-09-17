@@ -1,3 +1,7 @@
+**U.S. Government to Invest $75 Million in Ukraine’s Minerals**\
+`The investment will ease fears in Kyiv that Washington is pulling back from Ukraine’s war effort. It also underscores the mercantile nature of the U.S.-Ukrainian alliance under President Trump.`\
+https://nytimes.com/2025/09/17/world/europe/ukraine-us-minerals-deal.html
+
 **Tucked in a Vineyard, a Field of Dreams Where Immigration Fears Fade Away**\
 `As ICE raids stoke anxiety in California, Latino men find solace at a baseball field built in the middle of a Sonoma County vineyard.`\
 https://nytimes.com/2025/09/17/business/ice-raids-vineyards-baseball.html
