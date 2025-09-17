@@ -1,3 +1,7 @@
+**The Fed’s cautious approach to defending itself against Trump is drawing scrutiny.**\
+`By Colby Smith and Ben Casselman`\
+https://nytimes.com/live/2025/09/17/business/federal-reserve-interest-rates/the-feds-cautious-approach-to-defending-itself-against-trump-is-drawing-scrutiny
+
 **Here is the latest on the storm.**\
 `By Judson Jones`\
 https://nytimes.com/live/2025/weather/tropical-storm-gabrielle-hurricane/here-is-the-latest-on-the-storm
@@ -29,8 +33,4 @@ https://nytimes.com/2025/09/17/business/vietnam-sneaker-manufacturing-china.html
 **NWSL to launch pair of combines to help identify prospective players**\
 `The combines, one for adults and college-aged players and another for youth players, will take place over three days in December.`\
 https://nytimes.com/athletic/6635920/2025/09/17/nwsl-combines-players-prospects/
-
-**What’s in Our Queue? Poker and More **\
-`Text by Michael D. Shear`\
-https://nytimes.com/card/2025/09/17/undefined/
 

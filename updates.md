@@ -1,3 +1,15 @@
+**Here is the latest on the storm.**\
+`By Judson Jones`\
+https://nytimes.com/live/2025/weather/tropical-storm-gabrielle-hurricane/here-is-the-latest-on-the-storm
+
+**College football Week 4 best bets: Will Utah-Texas Tech be a defensive slog?**\
+`Austin Mock is back with his best bets for college football's Week 4, including a play on Texas Tech at Utah.`\
+https://nytimes.com/athletic/6637540/2025/09/17/college-football-best-bets-week-4-texas-tech-utah/
+
+**Tropical Storm Gabrielle Forms, Breaking a Lull in the Hurricane Season**\
+`The storm is not an immediate threat to land, but it is expected to strengthen as it moves west.`\
+https://nytimes.com/live/2025/weather/tropical-storm-gabrielle-hurricane
+
 **What the Fed’s Rate Decision Means for Your Finances**\
 `Here’s how the central bank’s interest rate stance influences car loans, credit cards, mortgages, savings and student loans.`\
 https://nytimes.com/2025/09/17/business/fed-interest-rate-loans-mortgages.html
