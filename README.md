@@ -1,3 +1,11 @@
+**Most U.K. Political Leaders Are Cautiously Welcoming Trump. Not This One.**\
+`Ed Davey, of the Liberal Democrats, says that President Trump does not represent British values, and is boycotting a state dinner with the U.S. leader over Gaza.`\
+https://nytimes.com/2025/09/17/world/europe/ed-davey-trump-uk-state-dinner-boycott.html
+
+**Criticised by his manager and jeered by his old fans, Romain Esse is struggling at Crystal Palace**\
+`The 20-year-old drew the ire of Oliver Glasner and suffered the embarrassment of being substituted off at half-time against Millwall`\
+https://nytimes.com/athletic/6626372/2025/09/17/romain-esse-crystal-palace-millwall-glasner/
+
 **How to watch Chiefs at Giants: Time, TV, streaming**\
 `Find out how to watch the Kansas City Chiefs play the New York Giants, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6636540/2025/09/17/chiefs-vs-giants-stream-how-to-watch-sept-21/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6636517/2025/09/17/padres-vs-mets-stream-how-to-wat
 **How to watch Angels at Brewers: Time, TV, streaming for September 17**\
 `Find out how to watch the Los Angeles Angels play the Milwaukee Brewers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6636514/2025/09/17/angels-vs-brewers-stream-how-to-watch-sept-17/
-
-**How to watch Braves at Nationals: Time, TV, streaming for September 17**\
-`Find out how to watch the Atlanta Braves play the Washington Nationals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6636512/2025/09/17/braves-vs-nationals-stream-how-to-watch-sept-17/
-
-**How to watch Reds at Cardinals: Time, TV, streaming for September 17**\
-`Find out how to watch the Cincinnati Reds play the St. Louis Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6636510/2025/09/17/reds-vs-cardinals-stream-how-to-watch-sept-17/
 
