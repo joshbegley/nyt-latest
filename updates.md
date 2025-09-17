@@ -1,3 +1,15 @@
+**Juventus 4-4 Borussia Dortmund: Breaking down an instant Champions League classic**\
+`This was football's most prestigious club competition at its very best, whetting our appetites for the campaign ahead`\
+https://nytimes.com/athletic/6636994/2025/09/17/juventus-4-4-borussia-dortmund-champions-league-analysis/
+
+**Gilded Carriages and Bearskin Hats: U.K. Royals Welcome Trump**\
+`Photographs of the pomp and spectacle of the U.S. president’s second state visit to Britain.`\
+https://nytimes.com/2025/09/17/world/europe/trump-uk-state-visit-photos.html
+
+**Bad Bunny and Ca7riel & Paco Amoroso Lead 2025 Latin Grammys Field**\
+`The Puerto Rican superstar, with 12 nods, and the multigenre duo from Argentina, with 10, will compete in the biggest categories.`\
+https://nytimes.com/2025/09/17/arts/music/latin-grammy-nominations-bad-bunny.html
+
 **Where will Barcelona host Champions League games? We still don't know**\
 `The Spanish champions host last season's winners PSG in two weeks, but no venue has been set`\
 https://nytimes.com/athletic/6636951/2025/09/17/champions-league-barcelona-psg-camp-nou/
