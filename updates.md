@@ -1,3 +1,11 @@
+**Is the Economy as Healthy as Trump Claims?**\
+`As the Fed meets, we examine the nation’s economic health.`\
+https://nytimes.com/2025/09/17/us/the-morning-economy-trump-gaza-redford.html
+
+**Mirtle: Five reasons for pessimism for the Maple Leafs in 2025-26**\
+`For those who aren't the glass-half-full type, there are plenty of concerning issues looming over the Leafs this season.`\
+https://nytimes.com/athletic/6632462/2025/09/17/toronto-maple-leafs-2025-26-pessimism/
+
 **What does Zack Wheeler face after TOS surgery? Merrill Kelly's recovery offers insight**\
 `There is no one-size-fits-all recovery path. Kelly's post-surgery career success, however, offers some lessons for what could await Wheeler.`\
 https://nytimes.com/athletic/6621411/2025/09/17/zack-wheeler-phillies-thoracic-outlet-surgery/
