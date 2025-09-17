@@ -1,3 +1,7 @@
+**Liverpool 3 Atletico 2: How did they win it late again? Why did Simeone see red? How was Isak’s debut?**\
+`Virgil van Dijk's winner ensured a late, late show for Liverpool once again`\
+https://nytimes.com/athletic/6634151/2025/09/17/liverpool-3-atletico-madrid-2-van-dijk-isak/
+
 **Many Minor Hits Can Damage an Athlete’s Brain**\
 `New research in amateur football and soccer players has identified some potential early warning signs of C.T.E.`\
 https://nytimes.com/2025/09/17/well/mind/brain-damage-sports.html
