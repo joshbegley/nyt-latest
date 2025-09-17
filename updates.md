@@ -1,3 +1,19 @@
+**West Ham mailbag: Board view of fan protests, plus Potter's fight, the stadium and relegation**\
+`Roshane Thomas has answered your questions about West Ham amid their difficulties on and off the pitch`\
+https://nytimes.com/athletic/6633716/2025/09/17/west-ham-mailbag-protests-potter-stadium/
+
+**Gone in 36 seconds: How Martinelli turned the tide to showcase Arsenal's new depth**\
+`The Brazilian forward did not start, but he finished with aplomb as Mikel Arteta's side made an impressive start in the Champions League`\
+https://nytimes.com/athletic/6635423/2025/09/17/martinelli-arsenal-trossard-athletic-arteta/
+
+**Why Atletico Madrid's $400m transfer spend leaves Diego Simeone in a tough spot**\
+`The Spanish club have once again invested heavily this summer, but things aren't yet going to plan`\
+https://nytimes.com/athletic/6633688/2025/09/17/atletico-madrid-champions-league-diego-simeone-liverpool/
+
+**San Francisco Politician Recalled Over the Great Highway’s Closure**\
+`Supervisor Joel Engardio was ousted by voters who were angry that he helped turn a thoroughfare into a park.`\
+https://nytimes.com/2025/09/17/us/joel-engardio-san-francisco.html
+
 **Battling Haaland relishes new leadership role at Man City**\
 `The Norwegian made his name as a single-minded goalscorer but this season he is embracing selfless leadership qualities`\
 https://nytimes.com/athletic/6634609/2025/09/17/battling-haaland-new-leadership-role-city/
