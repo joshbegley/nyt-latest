@@ -1,3 +1,7 @@
+**Democrat Wins Seat of Slain Minnesota Lawmaker; State House Evenly Split**\
+`Xp Lee, a former City Council member, won a special election to replace his political mentor, former Minnesota House Speaker Melissa Hortman, who was assassinated in June.`\
+https://nytimes.com/2025/09/16/us/minnesota-election-slain-lawmaker.html
+
 **Nebraska volleyball breaks NCAA attendance record for regular-season indoor match**\
 `Tuesday's game between No. 1-ranked Nebraska women and 18th-ranked Creighton beat an attendance record from 2023.`\
 https://nytimes.com/athletic/6636101/2025/09/16/nebraska-creighton-volleyball-ncaa-attendance-record/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6635589/2025/09/16/tim-weah-usmnt-real-madrid-goal/
 **How to watch Guardians at Tigers: Time, TV, streaming for September 17**\
 `Find out how to watch the Cleveland Guardians play the Detroit Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6635950/2025/09/16/guardians-vs-tigers-stream-how-to-watch-sept-17/
-
-**How to watch Athletics at Red Sox: Time, TV, streaming for September 17**\
-`Find out how to watch the Athletics play the Boston Red Sox, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6635947/2025/09/16/athletics-vs-red-sox-stream-how-to-watch-sept-17/
 
