@@ -1,3 +1,7 @@
+**Law Enforcement Officers Are Injured in Pennsylvania Shooting**\
+`Two people involved in the episode were in serious condition at WellSpan York Hospital, according to the hospital.`\
+https://nytimes.com/2025/09/17/us/york-pa-officers-shot.html
+
 **Submit your questions for Kevin Fishbain's Week 3 Bears mailbag**\
 `After getting blown out 52-21 in Detroit, the Bears host the Cowboys and their old pal Matt Eberflus on Sunday. What's on your mind?`\
 https://nytimes.com/athletic/6638628/2025/09/17/bears-mailbag-questions-week-3/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/17/world/europe/uk-trump-state-visit.html
 **Giuliani Must Pay $1.3 Million to Former Lawyers, Judge Rules**\
 `The ruling was just the latest misfortune to befall the former New York City mayor. He has been indicted and disbarred, filed for bankruptcy and suffered a fractured vertebra in a car crash.`\
 https://nytimes.com/2025/09/17/nyregion/giuliani-lawyers-fees.html
-
-**Flames re-sign Mikael Backlund to 2-year, $3.25 million AAV extension**\
-`Last season, the center scored 15 goals and 32 points in 76 games as the Flames narrowly missed the playoffs.`\
-https://nytimes.com/athletic/6638252/2025/09/17/flames-mikael-backlund-contract-extension/
 

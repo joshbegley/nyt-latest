@@ -1,3 +1,7 @@
+**Law Enforcement Officers Are Injured in Pennsylvania Shooting**\
+`Two people involved in the episode were in serious condition at WellSpan York Hospital, according to the hospital.`\
+https://nytimes.com/2025/09/17/us/york-pa-officers-shot.html
+
 **Submit your questions for Kevin Fishbain's Week 3 Bears mailbag**\
 `After getting blown out 52-21 in Detroit, the Bears host the Cowboys and their old pal Matt Eberflus on Sunday. What's on your mind?`\
 https://nytimes.com/athletic/6638628/2025/09/17/bears-mailbag-questions-week-3/
