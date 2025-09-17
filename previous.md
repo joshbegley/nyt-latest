@@ -1,3 +1,7 @@
+**We Are Going to Have to Live Here With One Another**\
+`Ben Shapiro and I discuss the state — and stakes — of political disagreement in America.`\
+https://nytimes.com/video/opinion/100000010402881/we-are-going-to-have-to-live-here-with-one-another.html
+
 **Can Drug Users Be Forced Into Rehab? Trump Says Yes. So Do 34 States.**\
 `The president wants to enforce involuntary commitment laws for severe drug use. But rehab is expensive, without enough beds for those who seek it.`\
 https://nytimes.com/2025/09/17/health/trump-drug-users-involuntary-commitment-rehab.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/17/world/europe/russia-navalny-poisoning.html
 **London’s Mayor Takes Aim at a Visiting Trump, Furthering Their Feud**\
 `As the U.S. president’s plane arrived in Britain, Sadiq Khan published an essay accusing Mr. Trump of promoting far-right ideology.`\
 https://nytimes.com/2025/09/17/world/europe/sadiq-khan-london-mayor-trump.html
-
-**Marner's linemates, Eichel extension among 5 big questions in Golden Knights training camp**\
-`With Mitch Marner aboard, Vegas will have plenty of options with its forward lines.`\
-https://nytimes.com/athletic/6635308/2025/09/17/marner-eichel-golden-knights/
 

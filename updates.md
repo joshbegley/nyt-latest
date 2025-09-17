@@ -1,3 +1,7 @@
+**We Are Going to Have to Live Here With One Another**\
+`Ben Shapiro and I discuss the state — and stakes — of political disagreement in America.`\
+https://nytimes.com/video/opinion/100000010402881/we-are-going-to-have-to-live-here-with-one-another.html
+
 **London’s Mayor Takes Aim at a Visiting Trump, Furthering Their Feud**\
 `As the U.S. president’s plane arrived in Britain, Sadiq Khan published an essay accusing Mr. Trump of promoting far-right ideology.`\
 https://nytimes.com/2025/09/17/world/europe/sadiq-khan-london-mayor-trump.html
