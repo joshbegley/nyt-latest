@@ -1,3 +1,11 @@
+**Here’s Who Attended the State Dinner at Windsor Castle**\
+`The guest list ranged from members of the royal family to titans of business and technology.`\
+https://nytimes.com/2025/09/17/world/europe/guest-list-state-dinner-windsor-castle.html
+
+**Simeone says his reaction to Liverpool fans' 'insults' was 'not justifiable' after altercation**\
+`The Atletico head coach was sent off following Liverpool's late winner in their Champions League clash.`\
+https://nytimes.com/athletic/6638857/2025/09/17/diego-simeone-liverpool-fan-atletico/
+
 **Fed Lowered Rates for First Time This Year**\
 `Also, Trump received a royal welcome in Britain. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/09/17/briefing/fed-interest-rates-cdc-leader-testimony.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/17/briefing/europes-far-right-charlie-kirk-trump-uk-
 **Missing Teen’s Remains Found in Tesla Registered to the Singer D4vd**\
 `The decomposing body of Celeste Rivas, who was reported missing in April 2024 in Southern California, was found inside the vehicle in an impound lot, the authorities said.`\
 https://nytimes.com/2025/09/17/us/tesla-body-found-d4vd.html
-
-**Windsor Castle’s State Dinner Features Lavish Menu**\
-`Just over 100 staff members served 160 guests at the white-tie event.`\
-https://nytimes.com/2025/09/17/world/europe/windsor-castles-state-dinner-features-lavish-menu.html
-
-**Spirit Airlines Pilot Scolded for Apparently Flying Near Air Force One**\
-`An air traffic controller can be heard telling a Spirit Airlines pilot to “pay attention” after flying too close to Air Force One, according to audio taken from LiveATC.net, a website that broadcasts air traffic control communications.`\
-https://nytimes.com/video/us/100000010405823/air-traffic-control-spirit-airlines-scolded.html
 

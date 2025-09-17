@@ -1,3 +1,7 @@
+**Fed Lowered Rates for First Time This Year**\
+`Also, Trump received a royal welcome in Britain. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/09/17/briefing/fed-interest-rates-cdc-leader-testimony.html
+
 **Liverpool 3 Atletico 2: How did they win it late again? Why did Simeone see red? How was Isak’s debut?**\
 `Virgil van Dijk's winner ensured a late, late show for Liverpool once again`\
 https://nytimes.com/athletic/6634151/2025/09/17/liverpool-3-atletico-madrid-2-van-dijk-isak/
