@@ -1,3 +1,11 @@
+**Man Utd in talks to appoint former Man City academy coach Wright**\
+`The 53-year-old previously played with and worked under United's director of football Jason Wilcox`\
+https://nytimes.com/athletic/6637482/2025/09/17/manchester-united-manchester-city-academy-coach-alan-wright/
+
+**Protest in London contrasts with Trump’s warm royal reception.**\
+`Thousands of demonstrators poured into the streets of the capital as President Trump spent most of the day 20 miles away in Windsor.`\
+https://nytimes.com/live/2025/09/17/world/trump-uk-state-visit/london-protests
+
 **Times Square Casino Proposal Is Voted Down After Mounting Opposition**\
 `The $5.4 billion casino, Caesars Palace Times Square, was one of eight proposed gambling facilities under consideration for the New York City area.`\
 https://nytimes.com/2025/09/17/nyregion/times-square-casino-proposal-vote.html
