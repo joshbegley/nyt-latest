@@ -1,3 +1,15 @@
+**Word of the Day: montage**\
+`This word has appeared in 190 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/09/17/learning/word-of-the-day-montage.html
+
+**Barefoot and grounded, AJ Blubaugh has put himself on the Astros' map**\
+`About an hour before stretching or starting his throwing program, Blubaugh takes a barefoot walk around the warning track.`\
+https://nytimes.com/athletic/6636435/2025/09/17/barefoot-aj-blubaugh-grounding-astros-pitcher-rangers/
+
+**Tottenham will need patience while their attack takes time to gel**\
+`Tottenham beat Villarreal 1-0 in the Champions League but struggled to create chances from open play`\
+https://nytimes.com/athletic/6635956/2025/09/17/tottenham-open-play-attack-analysis/
+
 **Sancho has immense talent, but will he give Aston Villa what they need?**\
 `Jadon Sancho made his Aston Villa debut in the Caraba Cup against Brentford on Tuesday night`\
 https://nytimes.com/athletic/6610349/2025/09/17/jadon-sancho-aston-villa-analysis/
