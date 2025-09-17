@@ -1,3 +1,11 @@
+**Alex Formenton, reinstated after Hockey Canada trial, will not be back with Senators, GM says**\
+`GM Steve Staios said the Senators will “gauge the market” to see if they can trade Formenton’s rights, which Ottawa still owns.`\
+https://nytimes.com/athletic/6638255/2025/09/17/alex-formenton-senators-hockey-canada-nhl-news/
+
+**Takeaways from the Fed meeting.**\
+`By Colby Smith`\
+https://nytimes.com/live/2025/09/17/business/federal-reserve-interest-rates/takeaways-from-the-fed-meeting
+
 **Why is Pereira getting a new contract when Wolves are bottom and without a point?**\
 `The decision to give the Portuguese a new deal seems a strange one but there is a logic as Wolves attempt to turn around their poor start`\
 https://nytimes.com/athletic/6638293/2025/09/17/vitor-pereira-wolves-contract-explained/
@@ -21,12 +29,4 @@ https://nytimes.com/athletic/6638076/2025/09/17/fred-kerley-enhanced-games-100-m
 **Jayden Daniels doesn't practice, status remains unclear vs. Raiders**\
 `Daniels received treatment on his injured knee and threw passes in the team's practice bubble earlier Wednesday, head coach Dan Quinn said. `\
 https://nytimes.com/athletic/6638229/2025/09/17/jayden-daniels-knee-practice-raiders/
-
-**Bob Goodenow, Chief of Hockey Players’ Union, Dies at 72**\
-`He took over the N.H.L. Players Association in 1992 and led it through three work stoppages, including a lockout that forced the cancellation of the 2004-5 season.`\
-https://nytimes.com/2025/09/17/sports/bob-goodenow-dead.html
-
-**Denmark to Buy Long-Range Weapons in ‘Paradigm Shift’**\
-`Denmark says Russia is a threat. Russia calls the Danish plans “pure madness.”`\
-https://nytimes.com/2025/09/17/world/europe/denmark-buy-long-range-weapons.html
 
