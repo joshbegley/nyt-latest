@@ -1,3 +1,7 @@
+**A New Review of Climate Science Could Cause Headaches for Trump**\
+`The report, by a panel of leading researchers, raises questions about the administration’s legal justification for looser pollution controls.`\
+https://nytimes.com/2025/09/17/climate/national-academies-climate-trump.html
+
 **Review: At Fall for Dance, War, Persistence and a Slow Tap of Love**\
 `The annual festival, popular for its take-a-chance-priced tickets, opened with a show featuring work by Jamar Roberts, the tap dancer Dario Natarelli and Akram Khan.`\
 https://nytimes.com/2025/09/17/arts/dance/review-fall-for-dance-jamar-roberts-sara-mearns.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/17/world/europe/epstein-ghost-trump-uk.html
 **Rick Tocchet's view of the Flyers — 'That crest is everything' — and his Year 1 priorities**\
 `Tocchet has put much thought into how to get the best out of Matvei Michkov and his other new players.`\
 https://nytimes.com/athletic/6637978/2025/09/17/tocchet-flyers-training-camp/
-
-**Ousted C.D.C Chief Describes Tense Meeting With Kennedy**\
-`Dr. Susan Monarez told senators at a  committee  hearing on Wednesday that the health secretary had hurled false and hurtful accusations about the nation’s health agency.`\
-https://nytimes.com/2025/09/17/us/politics/kennedy-monarez-cdc-meeting.html
 
