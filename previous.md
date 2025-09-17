@@ -1,3 +1,11 @@
+**Battling Haaland relishes new leadership role at Man City**\
+`The Norwegian made his name as a single-minded goalscorer but this season he is embracing selfless leadership qualities`\
+https://nytimes.com/athletic/6634609/2025/09/17/battling-haaland-new-leadership-role-city/
+
+**Nicolas Jackson - The Chelsea striker playing against them and the intrigue over Bayern's buy obligation**\
+`The Senegal striker is set to face his parent club in the Champions League with a point to prove as he strives to show he belongs in Munich`\
+https://nytimes.com/athletic/6633335/2025/09/17/nicolas-jackson-chelsea-bayern-obligation-champions-league/
+
 **40 balls in two minutes? No pressure for the inventor of this perfect football pump**\
 `Maurine Kieft came up with a quick way to inflate footballs to the ideal pressure — now his pump is used by the Champions League elite`\
 https://nytimes.com/athletic/6626009/2025/09/17/maurin-kieft-football-pump/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6635592/2025/09/17/fantasy-football-rankings-week-3
 **Has Britain Gone Too Far With Its Digital Controls?**\
 `British authorities have ramped up the use of facial recognition, artificial intelligence and internet regulation to address crime and other issues, stoking concerns of surveillance overreach.`\
 https://nytimes.com/2025/09/17/technology/britain-facial-recognition-digital-controls.html
-
-**Corrections: Sept. 17, 2025**\
-`Corrections that appeared in print on Wednesday, Sept. 17, 2025.`\
-https://nytimes.com/2025/09/17/pageoneplus/corrections-sept-17-2025.html
-
-**Quote of the Day: Many Who Won’t or Can’t Flee End Up Stranded on Streets or Under Rubble**\
-`Quotation of the Day for Wednesday, September 17, 2025.`\
-https://nytimes.com/2025/09/16/pageoneplus/quote-of-the-day-many-who-wont-or-cant-flee-end-up-stranded-on-streets-or-under-rubble.html
 

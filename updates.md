@@ -1,3 +1,11 @@
+**Battling Haaland relishes new leadership role at Man City**\
+`The Norwegian made his name as a single-minded goalscorer but this season he is embracing selfless leadership qualities`\
+https://nytimes.com/athletic/6634609/2025/09/17/battling-haaland-new-leadership-role-city/
+
+**Nicolas Jackson - The Chelsea striker playing against them and the intrigue over Bayern's buy obligation**\
+`The Senegal striker is set to face his parent club in the Champions League with a point to prove as he strives to show he belongs in Munich`\
+https://nytimes.com/athletic/6633335/2025/09/17/nicolas-jackson-chelsea-bayern-obligation-champions-league/
+
 **40 balls in two minutes? No pressure for the inventor of this perfect football pump**\
 `Maurine Kieft came up with a quick way to inflate footballs to the ideal pressure — now his pump is used by the Champions League elite`\
 https://nytimes.com/athletic/6626009/2025/09/17/maurin-kieft-football-pump/

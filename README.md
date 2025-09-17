@@ -1,3 +1,19 @@
+**West Ham mailbag: Board view of fan protests, plus Potter's fight, the stadium and relegation**\
+`Roshane Thomas has answered your questions about West Ham amid their difficulties on and off the pitch`\
+https://nytimes.com/athletic/6633716/2025/09/17/west-ham-mailbag-protests-potter-stadium/
+
+**Gone in 36 seconds: How Martinelli turned the tide to showcase Arsenal's new depth**\
+`The Brazilian forward did not start, but he finished with aplomb as Mikel Arteta's side made an impressive start in the Champions League`\
+https://nytimes.com/athletic/6635423/2025/09/17/martinelli-arsenal-trossard-athletic-arteta/
+
+**Why Atletico Madrid's $400m transfer spend leaves Diego Simeone in a tough spot**\
+`The Spanish club have once again invested heavily this summer, but things aren't yet going to plan`\
+https://nytimes.com/athletic/6633688/2025/09/17/atletico-madrid-champions-league-diego-simeone-liverpool/
+
+**San Francisco Politician Recalled Over the Great Highway’s Closure**\
+`Supervisor Joel Engardio was ousted by voters who were angry that he helped turn a thoroughfare into a park.`\
+https://nytimes.com/2025/09/17/us/joel-engardio-san-francisco.html
+
 **Battling Haaland relishes new leadership role at Man City**\
 `The Norwegian made his name as a single-minded goalscorer but this season he is embracing selfless leadership qualities`\
 https://nytimes.com/athletic/6634609/2025/09/17/battling-haaland-new-leadership-role-city/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6628783/2025/09/17/newcastle-eddie-howe-rugby-kick-
 **German Suspected in Madeleine McCann Disappearance Is Set for Prison Release**\
 `Eighteen years after Madeleine McCann, a 3-year-old British girl, disappeared in Portugal, the man considered a suspect by Britain and Germany is being released after serving a sentence in a separate case.`\
 https://nytimes.com/2025/09/17/world/europe/madeleine-mccann-disappearance-bruckner.html
-
-**Climate Change’s Toll in Europe This Summer: Thousands of Extra Deaths**\
-`Three times as many people in cities and towns died from severe heat as would have done in a world without human-caused warming, scientists said.`\
-https://nytimes.com/2025/09/17/climate/europe-heat-deaths-climate-change.html
-
-**Connections: Sports Edition Coach: Hints for Sept. 17, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6636263/2025/09/17/connections-sports-edition-hints-for-sept-17-2025/
-
-**Fantasy Football rankings Week 3: Sleepers, projections, starts, Omarion Hampton, Jauan Jennings and more**\
-`Jake Ciely runs through his player rankings for the Week 3 fantasy football slate, and sees a potential rebound for rookie Omarion Hampton.`\
-https://nytimes.com/athletic/6635592/2025/09/17/fantasy-football-rankings-week-3-sleepers-projections-starts-omarion-hampton-jauan-jennings-and-more/
-
-**Has Britain Gone Too Far With Its Digital Controls?**\
-`British authorities have ramped up the use of facial recognition, artificial intelligence and internet regulation to address crime and other issues, stoking concerns of surveillance overreach.`\
-https://nytimes.com/2025/09/17/technology/britain-facial-recognition-digital-controls.html
 
