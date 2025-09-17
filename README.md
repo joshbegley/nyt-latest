@@ -1,40 +1,40 @@
-**Everton vs Burnley: Explaining the Premier League's latest legal row and why it matters**\
-`What sparked the compensation row being heard in London today and why could it be so important?`\
-https://nytimes.com/athletic/6635617/2025/09/17/everton-vs-burnley-explaining-premier-leagues-latest-legal-row/
+**Guadalajara, 'the most Mexican' city, eyes its next World Cup moment**\
+`Guadalajara is getting a glow-up for the World Cup, but visitors will still find a host whose soul is steeped in local pride and culture`\
+https://nytimes.com/athletic/6599625/2025/09/17/guadalajara-mexico-2026-world-cup-host/
 
-**How the British royal family — and its staff — prepare for a state visit.**\
-`A glossy video published on the family’s official YouTube channel gave a rare insight into the extensive preparations carried out before the arrival of visiting dignitaries.`\
-https://nytimes.com/live/2025/09/17/world/trump-uk-state-visit/how-the-british-royal-family-and-its-staff-prepare-for-a-state-visit
+**Jet Greaves vs. Elvis Merzlikins, and 8 other storylines to watch in Blue Jackets camp**\
+`The types of questions have changed, but there's still plenty to monitor when practices begin on Thursday.`\
+https://nytimes.com/athletic/6633952/2025/09/17/greaves-merzlikins-blue-jackets/
 
-**Browns mailbag: When would a front-office shakeup make sense?**\
-`Plus, how many of Cleveland's starting offensive lineman will return next season? And when will the special teams woes come to a stop?`\
-https://nytimes.com/athletic/6635380/2025/09/17/browns-mailbag-front-office-changes/
+**How Arch Manning's first 5 starts compare to uncles Peyton, Eli and grandfather Archie**\
+`Arch, who struggled last week against UTEP, is not the first Manning to get off to a slow start when handed the reins of an SEC offense. `\
+https://nytimes.com/athletic/6633988/2025/09/17/arch-manning-texas-stats-peyton-eli-archie/
 
-**The defense was supposed to carry the Giants, but so far, it's holding them back**\
-`The run defense looks as bad as ever, while the pass rush has been fine. Neither is good enough for New York to get where it wants to go.`\
-https://nytimes.com/athletic/6634619/2025/09/17/giants-run-defense-shane-bowen/
+**New York Rangers 2025-26 prospect rankings: Dynamic defensive skills at No. 3**\
+`Acquired in a recent trade, our third-ranked Rangers prospect immediately slots in as the system's best defenseman.`\
+https://nytimes.com/athletic/6634537/2025/09/17/scott-morrow-new-york-rangers-2025-26-prospect-rankings/
 
-**Rosenthal: The Mets kept a passing lane open in the race for the NL’s final wild-card spot. Will any team take it?**\
-`Two of the three teams 'chasing' the Mets, the Diamondbacks and Giants, were sellers at the trade deadline.`\
-https://nytimes.com/athletic/6636319/2025/09/17/nl-wild-card-mets-giants-diamondbacks-reds/
+**Illinois-Indiana: College football's game of the week for the first time ... ever? Believe it**\
+`Indiana and Illinois are both ranked heading into their matchup for the first time since 1950.`\
+https://nytimes.com/athletic/6635719/2025/09/17/indiana-illinois-matchup-history-losing/
 
-**Rafael Marchán has his moment, and the Phillies are soaring toward a coveted bye**\
-`Marchán's go-ahead, three-run homer was the biggest hit of the backup catcher's life and all but sealed a first-round bye for the Phillies.`\
-https://nytimes.com/athletic/6636633/2025/09/17/phillies-dodgers-rafael-marchan-playoff-bye/
+**Rangers depth chart: Breaking down every position entering 2025-26**\
+`The Rangers have brought in a number of new names since the start of last season. Who looks likely to play where?`\
+https://nytimes.com/athletic/6634212/2025/09/17/new-york-rangers-depth-chart-roster-analysis/
 
-**All the right moves: Colts' biggest offseason decisions look like home runs so far**\
-`Colts GM Chris Ballard was told to "fix it" by late owner Jim Irsay. It's too soon to know if he has, but the early returns are promising. `\
-https://nytimes.com/athletic/6634164/2025/09/17/indianapolis-colts-chris-ballard-offseason-daniel-jones/
+**How much longer will Micah Parsons be limited? Packers mailbag**\
+`The Packers will try to start the season 3-0 when they visit the 0-2 Browns on Sunday afternoon.`\
+https://nytimes.com/athletic/6635524/2025/09/17/packers-mailbag-micah-parsons-week-3/
 
-**Mandel's mailbag: Despite an 0-2 start, can Notre Dame still reach the CFP?**\
-`Plus: Is Georgia Tech the new Indiana? And can Iowa State win the Big 12?`\
-https://nytimes.com/athletic/6636017/2025/09/17/arch-manning-notre-dame/
+**Draft bust or breakout candidate? 7 NHL players under 23 who need to step up**\
+`Will these recent first-rounders under 23 finally put it together and reach their NHL potential this season?`\
+https://nytimes.com/athletic/6616791/2025/09/17/nhl-under-23-breakout-candidates/
 
-**The Pulse: Could the NBA void a superstar’s contract?**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6634507/2025/09/17/kawhi-leonard-void-contract-the-pulse/
+**Dodgers waste more Shohei Ohtani brilliance with another bullpen meltdown**\
+`The Dodgers already were positioned to lean on their rotation as a strength this October. Now it might be a necessity.`\
+https://nytimes.com/athletic/6636549/2025/09/17/dodgers-phillies-shohei-ohtani-bullpen-meltdown/
 
-**Penguins training camp: Players to watch, schedule, questions, battles and more**\
-`From veterans to young players, there are some intriguing storylines to monitor this season in Pittsburgh.`\
-https://nytimes.com/athletic/6627935/2025/09/17/penguins-training-camp-schedule-questions-battles/
+**Reds' playoff chances take further hit with loss in St. Louis**\
+`While the Reds lost to the Cardinals, the Mets won, pushing Cincinnati to three games behind New York for the final playoff spot.`\
+https://nytimes.com/athletic/6636283/2025/09/17/reds-playoff-chances-take-hit/
 

@@ -1,3 +1,11 @@
+**Everton vs Burnley: Explaining the Premier League's latest legal row and why it matters**\
+`What sparked the compensation row being heard in London today and why could it be so important?`\
+https://nytimes.com/athletic/6635617/2025/09/17/everton-vs-burnley-explaining-premier-leagues-latest-legal-row/
+
+**How the British royal family — and its staff — prepare for a state visit.**\
+`A glossy video published on the family’s official YouTube channel gave a rare insight into the extensive preparations carried out before the arrival of visiting dignitaries.`\
+https://nytimes.com/live/2025/09/17/world/trump-uk-state-visit/how-the-british-royal-family-and-its-staff-prepare-for-a-state-visit
+
 **Browns mailbag: When would a front-office shakeup make sense?**\
 `Plus, how many of Cleveland's starting offensive lineman will return next season? And when will the special teams woes come to a stop?`\
 https://nytimes.com/athletic/6635380/2025/09/17/browns-mailbag-front-office-changes/
