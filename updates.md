@@ -1,3 +1,7 @@
+**Man Utd finances explained: Record revenues but sixth annual loss**\
+`The club's 2024-25 results reveal that total revenues stood at £666.5m after significant increases in matchday and commercial income`\
+https://nytimes.com/athletic/6637099/2025/09/17/manchester-united-finances-revenues-loss/
+
 **U.S. Government to Invest $75 Million in Ukraine’s Minerals**\
 `The investment will ease fears in Kyiv that Washington is pulling back from Ukraine’s war effort. It also underscores the mercantile nature of the U.S.-Ukrainian alliance under President Trump.`\
 https://nytimes.com/2025/09/17/world/europe/ukraine-us-minerals-deal.html
