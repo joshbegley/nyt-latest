@@ -1,3 +1,11 @@
+**Jets QB Justin Fields out vs. Buccaneers Sunday**\
+`Tyrod Taylor will start for the Jets`\
+https://nytimes.com/athletic/6637774/2025/09/17/justin-fields-concussion-status-jets-qb-tyrod-taylor/
+
+**The Fed’s cautious approach to defending itself against Trump is drawing scrutiny.**\
+`By Colby Smith and Ben Casselman`\
+https://nytimes.com/live/2025/09/17/business/federal-reserve-interest-rates/the-feds-cautious-approach-to-defending-itself-against-trump-is-drawing-scrutiny
+
 **Here is the latest on the storm.**\
 `By Judson Jones`\
 https://nytimes.com/live/2025/weather/tropical-storm-gabrielle-hurricane/here-is-the-latest-on-the-storm
