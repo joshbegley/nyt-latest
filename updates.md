@@ -1,3 +1,7 @@
+**Browns mailbag: When would a front-office shakeup make sense?**\
+`Plus, how many of Cleveland's starting offensive lineman will return next season? And when will the special teams woes come to a stop?`\
+https://nytimes.com/athletic/6635380/2025/09/17/browns-mailbag-front-office-changes/
+
 **The defense was supposed to carry the Giants, but so far, it's holding them back**\
 `The run defense looks as bad as ever, while the pass rush has been fine. Neither is good enough for New York to get where it wants to go.`\
 https://nytimes.com/athletic/6634619/2025/09/17/giants-run-defense-shane-bowen/
