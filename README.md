@@ -1,3 +1,11 @@
+**Young Protesters in Nepal Recover Looted Goods for Shopkeepers**\
+`After protests left behind a trail of destruction in Nepal, a group of small business owners are stepping in to salvage looted home appliances in an effort to restore order.`\
+https://nytimes.com/video/world/asia/100000010392287/nepal-protest-looting.html
+
+**How a Nation’s Bureaucracy Went Up in Smoke**\
+`Arson attacks during protests in Nepal destroyed buildings, court files and even records of international agreements and state investments.`\
+https://nytimes.com/2025/09/17/world/asia/nepal-protests-arson-singha-durbar.html
+
 **Fall Video Games**\
 `What new games are you playing? What upcoming releases are you most looking forward to?`\
 https://nytimes.com/2025/09/17/learning/fall-video-games.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6636530/2025/09/17/marlins-vs-rockies-stream-how-to
 **How to watch Blue Jays at Rays: Time, TV, streaming for September 17**\
 `Find out how to watch the Toronto Blue Jays play the Tampa Bay Rays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6636528/2025/09/17/blue-jays-vs-rays-stream-how-to-watch-sept-17/
-
-**How to watch Rangers at Astros: Time, TV, streaming for September 17**\
-`Find out how to watch the Texas Rangers play the Houston Astros, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6636524/2025/09/17/rangers-vs-astros-stream-how-to-watch-sept-17/
-
-**How to watch Yankees at Twins: Time, TV, streaming for September 17**\
-`Find out how to watch the New York Yankees play the Minnesota Twins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6636521/2025/09/17/yankees-vs-twins-stream-how-to-watch-sept-17/
 
