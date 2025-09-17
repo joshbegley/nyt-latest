@@ -1,6 +1,22 @@
+**Travis Hunter made coaches rethink how to use players. Will it spark a football revolution?**\
+`While not everyone is Travis Hunter, the best to play two ways changed minds on how to manage players doing it in his stead.`\
+https://nytimes.com/athletic/6635548/2025/09/17/travis-hunter-koi-perich-martel-hight-college-football-two-way-players/
+
+**Taylor Townsend apologizes for videos calling Chinese cuisine 'crazy' at Billie Jean King Cup**\
+`Townsend had described the food on offer in Shenzhen as “2/10” and said “these people are literally killing frogs.”`\
+https://nytimes.com/athletic/6636680/2025/09/17/taylor-townsend-apology-chinese-food/
+
+**Driver Crashes Car Into F.B.I. Field Office Gate in Pittsburgh**\
+`A driver rammed into the entrance of the compound early Wednesday and fled on foot in what officials believed to be a targeted act. Officials named a suspect.`\
+https://nytimes.com/2025/09/17/us/fbi-pittsburgh-car-crash.html
+
 **Inside Stephen A. Smith's $40M-a-year bonanza as he launches into political prime time**\
 `With a new Sirius XM politics show launching today and deals across multiple platforms, the pundit is expanding well beyond ESPN.`\
 https://nytimes.com/athletic/6634775/2025/09/17/stephen-a-smith-espn-politics-sirius/
+
+**Jadeveon Clowney isn't replacing Micah Parsons, but feels he gives Cowboys' D a lift**\
+`The Cowboys are looking for Clowney to get around "20 plays a game to disrupt and rush the passer,” EVP Stephen Jones said.`\
+https://nytimes.com/athletic/6635720/2025/09/17/cowboys-jadeveon-clowney-signing-pass-rush/
 
 **Who are Ryan Poles' cornerstone players? 3 daunting questions facing 0-2 Bears**\
 `From the strength of the roster to the growth of Caleb Williams, the Bears have reached a "prove it" point in their season.`\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6636193/2025/09/17/cal-raleigh-mariners-historic-se
 **Jimmie Johnson at 50: Seven-time NASCAR champ reflects on his career and life**\
 `The NASCAR legend sits down to talk about his driving career, lessons as he turns 50, and what he still wants to accomplish.`\
 https://nytimes.com/athletic/6632955/2025/09/17/jimmie-johnson-nascar-turns-50-interview/
-
-**Why this college football season is the Big 12’s chance to change its Playoff narrative**\
-`This college football season has seen multiple teams falling flat out of the gates, presenting the Big 12 a chance for multiple CFP bids.`\
-https://nytimes.com/athletic/6635625/2025/09/17/big-12-college-football-playoff-narrative/
-
-**Drake Maye's dazzling display, Travis Kelce's resurgence, more Week 2 thoughts: Quick Outs**\
-`New England's young QB lit up Miami's defense, while Kelce continued to play well — but not without one glaring issue.`\
-https://nytimes.com/athletic/6634272/2025/09/17/nfl-quick-outs-week-2-drake-maye/
-
-**Jaylen Warren has played like a feature back — is it time for the Steelers to treat him like one?**\
-`The Steelers' RB1 has been in more of a backfield-by-committee through the season's first two games.`\
-https://nytimes.com/athletic/6635416/2025/09/17/jaylen-warren-pittsburgh-steelers-feature-back/
-
-**Backup QBs will be everywhere in Week 3. How will their teams respond?**\
-`Five quarterbacks who began the season as starters could be out in Week 3. How will their teams' offenses change without them?`\
-https://nytimes.com/athletic/6634668/2025/09/17/nfl-backup-quarterbacks-injuries-burrow-mccarthy-daniels-fields-purdy/
 

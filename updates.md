@@ -1,3 +1,19 @@
+**Travis Hunter made coaches rethink how to use players. Will it spark a football revolution?**\
+`While not everyone is Travis Hunter, the best to play two ways changed minds on how to manage players doing it in his stead.`\
+https://nytimes.com/athletic/6635548/2025/09/17/travis-hunter-koi-perich-martel-hight-college-football-two-way-players/
+
+**Taylor Townsend apologizes for videos calling Chinese cuisine 'crazy' at Billie Jean King Cup**\
+`Townsend had described the food on offer in Shenzhen as “2/10” and said “these people are literally killing frogs.”`\
+https://nytimes.com/athletic/6636680/2025/09/17/taylor-townsend-apology-chinese-food/
+
+**Driver Crashes Car Into F.B.I. Field Office Gate in Pittsburgh**\
+`A driver rammed into the entrance of the compound early Wednesday and fled on foot in what officials believed to be a targeted act. Officials named a suspect.`\
+https://nytimes.com/2025/09/17/us/fbi-pittsburgh-car-crash.html
+
+**Jadeveon Clowney isn't replacing Micah Parsons, but feels he gives Cowboys' D a lift**\
+`The Cowboys are looking for Clowney to get around "20 plays a game to disrupt and rush the passer,” EVP Stephen Jones said.`\
+https://nytimes.com/athletic/6635720/2025/09/17/cowboys-jadeveon-clowney-signing-pass-rush/
+
 **Inside Stephen A. Smith's $40M-a-year bonanza as he launches into political prime time**\
 `With a new Sirius XM politics show launching today and deals across multiple platforms, the pundit is expanding well beyond ESPN.`\
 https://nytimes.com/athletic/6634775/2025/09/17/stephen-a-smith-espn-politics-sirius/
