@@ -1,3 +1,15 @@
+**NCAA eliminates college football spring transfer portal**\
+`The committee also stopped short of ratifying the Division I Football Oversight Committee's proposal for a 10-day winter portal window.`\
+https://nytimes.com/athletic/6639008/2025/09/17/ncaa-spring-transfer-portal-eliminated/
+
+**California Judge Gets 35 Years to Life for Fatally Shooting His Wife**\
+`Jeffrey Ferguson, 74, said at his sentencing hearing that the shooting was an accident. “I wish God had taken me instead,” he said.`\
+https://nytimes.com/2025/09/17/us/california-judge-convicted-wife-murder.html
+
+**Police Officers Killed in Shooting in Southern Pennsylvania**\
+`Three police officers were killed and two others were seriously injured in a shooting, according to the state police commissioner.`\
+https://nytimes.com/video/us/100000010406205/pennsylvania-police-officers-shot-josh-shapiro.html
+
 **Police Officers Killed in Shooting in Southern Pennsylvania**\
 `At least three police officers were killed and two others were seriously injured in a shooting, according to the state police commissioner.`\
 https://nytimes.com/video/us/100000010406205/pennsylvania-police-officers-shot-josh-shapiro.html
