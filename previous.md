@@ -1,3 +1,7 @@
+**Jerry of Ben & Jerry’s Resigns, Saying Company Has Been ‘Silenced’**\
+`Jerry Greenfield said that the ice cream company, known for its activism, had been muzzled by Unilever, its parent company.`\
+https://nytimes.com/2025/09/17/business/ben-and-jerrys-cofounder-resigns.html
+
 **Here’s the latest.**\
 `By Shawn McCreesh`\
 https://nytimes.com/live/2025/09/17/world/trump-uk-state-visit/heres-the-latest
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6636751/2025/09/17/giants-vs-diamondbacks-stream-ho
 **Live Updates: U.K. Prepares Royal Welcome for Trump in 2nd State Visit**\
 `With a carriage ride at Windsor Castle and dinner with King Charles III, Britain tries to appeal to a president who has seemed intent on upending the post-World War II order.`\
 https://nytimes.com/live/2025/09/17/world/trump-uk-state-visit
-
-**Are You Ready to Meet the King? Try Our Quiz on U.K. State Visit Etiquette.**\
-`If you were an aide to President Trump during his trip to Britain and wanted to avoid any pitfalls, what would you do?`\
-https://nytimes.com/interactive/2025/09/17/world/europe/uk-state-visit-etiquette-quiz.html
 

@@ -1,3 +1,7 @@
+**Jerry of Ben & Jerry’s Resigns, Saying Company Has Been ‘Silenced’**\
+`Jerry Greenfield said that the ice cream company, known for its activism, had been muzzled by Unilever, its parent company.`\
+https://nytimes.com/2025/09/17/business/ben-and-jerrys-cofounder-resigns.html
+
 **Here’s the latest.**\
 `By Shawn McCreesh`\
 https://nytimes.com/live/2025/09/17/world/trump-uk-state-visit/heres-the-latest
