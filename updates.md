@@ -1,3 +1,15 @@
+**Trump Visits Britain as Protesters March in London**\
+`President Trump and the first lady, Melania Trump, met with the British royal family at Windsor Castle on Friday, as demonstrators gathered in central London to protest his visit.`\
+https://nytimes.com/video/world/europe/100000010405068/trump-uk-protesters-london.html
+
+**The Two People in the Spotlight at a Pivotal Fed Meeting**\
+`At this week’s pivotal Federal Reserve meeting, all eyes were on two people – Stephen Miran and Lisa Cook. Colby Smith, who covers the Fed for The New York Times, explains why.`\
+https://nytimes.com/video/us/100000010403320/the-two-people-in-the-spotlight-at-a-pivotal-fed-meeting.html
+
+**Sabres GM Kevyn Adams says Alex Tuch contract is a priority, so what's the holdup?**\
+`Tuch, who's eligible to sign an extension, arrived to Sabres training camp without having put pen to paper on a new deal.`\
+https://nytimes.com/athletic/6638101/2025/09/17/alex-tuch-contract-sabres-kevyn-adams/
+
 **Leafs training camp takeaways: Easton Cowan's opportunity, 'not focused' on Dillon Dubé**\
 `Plus, an (almost) healthy roster, Mark Giordano returns with a new role and an update on a potential contract extension for Anthony Stolarz.`\
 https://nytimes.com/athletic/6637800/2025/09/17/maple-leafs-training-camp-easton-cowan-dillon-dube/

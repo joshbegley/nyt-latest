@@ -1,3 +1,15 @@
+**Trump Visits Britain as Protesters March in London**\
+`President Trump and the first lady, Melania Trump, met with the British royal family at Windsor Castle on Friday, as demonstrators gathered in central London to protest his visit.`\
+https://nytimes.com/video/world/europe/100000010405068/trump-uk-protesters-london.html
+
+**The Two People in the Spotlight at a Pivotal Fed Meeting**\
+`At this week’s pivotal Federal Reserve meeting, all eyes were on two people – Stephen Miran and Lisa Cook. Colby Smith, who covers the Fed for The New York Times, explains why.`\
+https://nytimes.com/video/us/100000010403320/the-two-people-in-the-spotlight-at-a-pivotal-fed-meeting.html
+
+**Sabres GM Kevyn Adams says Alex Tuch contract is a priority, so what's the holdup?**\
+`Tuch, who's eligible to sign an extension, arrived to Sabres training camp without having put pen to paper on a new deal.`\
+https://nytimes.com/athletic/6638101/2025/09/17/alex-tuch-contract-sabres-kevyn-adams/
+
 **Leafs training camp takeaways: Easton Cowan's opportunity, 'not focused' on Dillon Dubé**\
 `Plus, an (almost) healthy roster, Mark Giordano returns with a new role and an update on a potential contract extension for Anthony Stolarz.`\
 https://nytimes.com/athletic/6637800/2025/09/17/maple-leafs-training-camp-easton-cowan-dillon-dube/
@@ -25,12 +37,4 @@ https://nytimes.com/2025/09/17/nyregion/ice-migrant-cells-judge-ruling.html
 **Scoop City: Scary paths for two hot-seat coaches, plus vote on Tom Brady's access**\
 `The tough road ahead for Mike McDaniel and Brian Daboll, Mike Sando's thoughts on the Chargers' offense and the NFL's Tom Brady situation`\
 https://nytimes.com/athletic/6637926/2025/09/17/giants-dolphins-coaching-hot-seats-tom-brady-rules-scoop-city/
-
-**Nathan Walker, Blues agree to 2-year contract extension: 'Good fit for both sides'**\
-`In 2024-25, Walker was a key member of the Blues' fourth line, scoring eight goals and 16 points in 73 games.`\
-https://nytimes.com/athletic/6638004/2025/09/17/nathan-walker-blues-contract-extension/
-
-**Facing the Global Problem of Plastic**\
-`Readers respond to a guest essay about throwaway plastic. Also: President Trump the divider; stealth legislation.`\
-https://nytimes.com/2025/09/17/opinion/plastics-global.html
 
