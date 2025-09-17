@@ -1,5 +1,17 @@
+**Fired by Trump, a Former Labor Official Warns Against Politicizing Economic Data**\
+`Erika McEntarfer, in her first appearance since she was ousted from the Bureau of Labor Statistics, cautioned that “economic data must be free from partisan influence.”`\
+https://nytimes.com/2025/09/16/business/fired-by-trump-a-former-labor-official-warns-against-politicizing-economic-data.html
+
+**Charlie Kirk Shooting Suspect Faces Multiple Charges in Court**\
+`Prosecutors announced on Tuesday several charges against the 22-year-old man that they accused of fatally shooting the conservative activist Charlie Kirk, including aggravated murder.`\
+https://nytimes.com/video/us/100000010403488/charlie-kirk-suspect-court-charged.html
+
+**Patel Plays the Familiar Role of Pugilist at a Senate Hearing**\
+`The F.B.I. director has come under withering attack in recent days, but with Republicans backing him, the proceedings fell into a familiar partisan groove that appeared to play to his strengths.`\
+https://nytimes.com/2025/09/16/us/politics/kash-patel-senate-hearing-fbi.html
+
 **F.B.I. Director Clashes With Democrats During Hearing**\
-`Kash Patel, the F.B.I. director, butted heads with Democratic senators during a Judiciary Committee hearing, where lawmakers questioned Mr. Patel about his missteps in recent months.`\
+`Kash Patel, the F.B.I. director, butted heads with Democratic senators during a Judiciary Committee hearing, where lawmakers questioned him about his missteps in recent months.`\
 https://nytimes.com/video/us/politics/100000010403303/patel-judiciary-committee-hearing.html
 
 **Tim Weah, an iconic magazine shoot and an historic Champions League goal**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6634392/2025/09/16/robert-redford-the-natural-baseb
 **Retired Admiral Is Sentenced to 6 Years in Prison for Bribery**\
 `Robert P. Burke, a retired four-star admiral, was convicted in May of exchanging a government contract for a lucrative post-retirement job with the company that got it.`\
 https://nytimes.com/2025/09/16/us/us-navy-admiral-bribery-sentencing.html
-
-**Blue Jays' Bo Bichette (left knee) out until at least the postseason**\
-`Bichette injured his knee sliding into home during Toronto’s road loss against the Yankees on Sept. 6.`\
-https://nytimes.com/athletic/6635748/2025/09/16/toronto-blue-jays-bo-bichette-regular-season-status/
-
-**How to watch Cowboys at Bears: Time, TV, streaming**\
-`Find out how to watch the Dallas Cowboys play the Chicago Bears, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6635805/2025/09/16/cowboys-vs-bears-stream-how-to-watch-sept-21/
-
-**How to watch Saints at Seahawks: Time, TV, streaming**\
-`Find out how to watch the New Orleans Saints play the Seattle Seahawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6635807/2025/09/16/saints-vs-seahawks-stream-how-to-watch-sept-21/
 
