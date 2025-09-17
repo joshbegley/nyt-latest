@@ -1,4 +1,4 @@
-**Colorado QB Kaidon Salter expected to make start Saturday against Wyoming**\
+**Colorado QB Kaidon Salter expected to start Saturday against Wyoming**\
 `After Salter was replaced by third-string quarterback Ryan Staub in week 3, head coach Deion Sanders is expected to turn back to Salter. `\
 https://nytimes.com/athletic/6638194/2025/09/17/kaidon-salter-colorado-starter-quarterback/
 
