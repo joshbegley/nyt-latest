@@ -1,3 +1,19 @@
+**A Surprise Awaited These Travelers at Check-In: The Hotel Was Closed**\
+`Several Manhattan hotels operated by LuxUrban abruptly closed without warning, leaving visitors from around the world scrambling for a place to stay.`\
+https://nytimes.com/2025/09/17/travel/luxurban-hotels-closed-new-york.html
+
+**Breanna Stewart says she plans to play in Game 2**\
+`"I want to be out with my team," said Stewart, who didn't practice Tuesday after sustaining a MCL injury in overtime in Game 1.`\
+https://nytimes.com/athletic/6637674/2025/09/17/breanna-stewart-plans-to-play-game-2/
+
+**Can One of America’s Great Black Southern Chefs Take Paris?**\
+`Mashama Bailey, the acclaimed chef of the Grey in Savannah, Ga., is opening a new restaurant on the Left Bank.`\
+https://nytimes.com/2025/09/17/dining/mashama-bailey-larret-paris-restaurant.html
+
+**Texas A&M's Anderson avoided 'catastrophic injury' vs. Notre Dame, team says**\
+`After a collision with Notre Dame TE Eli Raridon, Anderson remained on the field for about 10 minutes while Texas A&M staff tended to him.`\
+https://nytimes.com/athletic/6637917/2025/09/17/texas-am-bryce-anderson-injury-notre-dame/
+
 **NFL Week 3 best bets: A Chiefs under and betting against the Eagles? Buckle up**\
 `Austin Mock had a winning week in NFL betting and is back at it with a few plays for Week 3, including betting against the Eagles.`\
 https://nytimes.com/athletic/6637789/2025/09/17/nfl-week-3-best-bets-chiefs-rams-eagles/
@@ -21,16 +37,4 @@ https://nytimes.com/athletic/6637774/2025/09/17/justin-fields-concussion-status-
 **The Fed’s cautious approach to defending itself against Trump is drawing scrutiny.**\
 `By Colby Smith and Ben Casselman`\
 https://nytimes.com/live/2025/09/17/business/federal-reserve-interest-rates/the-feds-cautious-approach-to-defending-itself-against-trump-is-drawing-scrutiny
-
-**Here is the latest on the storm.**\
-`By Judson Jones`\
-https://nytimes.com/live/2025/weather/tropical-storm-gabrielle-hurricane/here-is-the-latest-on-the-storm
-
-**College football Week 4 best bets: Will Utah-Texas Tech be a defensive slog?**\
-`Austin Mock is back with his best bets for college football's Week 4, including a play on Texas Tech at Utah.`\
-https://nytimes.com/athletic/6637540/2025/09/17/college-football-best-bets-week-4-texas-tech-utah/
-
-**Tropical Storm Gabrielle Forms, Breaking a Lull in the Hurricane Season**\
-`The storm is not an immediate threat to land, but it is expected to strengthen as it moves west.`\
-https://nytimes.com/live/2025/weather/tropical-storm-gabrielle-hurricane
 
