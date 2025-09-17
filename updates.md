@@ -1,3 +1,11 @@
+**Alex Formenton, reinstated after Hockey Canada trial, will not be back with Senators, GM says**\
+`GM Steve Staios said the Senators will “gauge the market” to see if they can trade Formenton’s rights, which Ottawa still owns.`\
+https://nytimes.com/athletic/6638255/2025/09/17/alex-formenton-senators-hockey-canada-nhl-news/
+
+**Takeaways from the Fed meeting.**\
+`By Colby Smith`\
+https://nytimes.com/live/2025/09/17/business/federal-reserve-interest-rates/takeaways-from-the-fed-meeting
+
 **Why is Pereira getting a new contract when Wolves are bottom and without a point?**\
 `The decision to give the Portuguese a new deal seems a strange one but there is a logic as Wolves attempt to turn around their poor start`\
 https://nytimes.com/athletic/6638293/2025/09/17/vitor-pereira-wolves-contract-explained/
