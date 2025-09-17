@@ -1,3 +1,7 @@
+**Support for Federal Vaccine Policy May Be Eroding**\
+`Insurers suggested they would still cover routine shots even if a C.D.C. panel tried to limit them, as an influential senator warned against new restrictions.`\
+https://nytimes.com/2025/09/17/health/kennedy-acip-insurers-cassidy.html
+
 **West Ham issue statement to 'reassure supporters' after no confidence letter**\
 `The London side's Fan Advisory Board issued a "vote of no confidence" to the club's board after a poor start to the season.`\
 https://nytimes.com/athletic/6638714/2025/09/17/west-ham-fan-protests-letter/
