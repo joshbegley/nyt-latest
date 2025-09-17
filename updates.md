@@ -1,3 +1,11 @@
+**Twins eliminate four-person pro scouting department: Sources**\
+`The moves come about a month after the Pohlad family announced it ended its exploration of a sale.`\
+https://nytimes.com/athletic/6636141/2025/09/16/minnesota-twins-pro-scouting-department-developments/
+
+**Florida assistant Jabbar Juluke suspended 3 games for role in scuffle at LSU**\
+`SEC and Florida jointly announce punishment, and said coach did not de-escalate the tense pre-game situation.`\
+https://nytimes.com/athletic/6636127/2025/09/16/florida-assistant-jabbar-juluke-suspended-lsu/
+
 **Florida assistant Jabbar Juluke suspended 3 games for role in scuffle at LSU**\
 `SEC and Florida jointly announce punishment, say coach did not de-escalate tense pre-game situation.`\
 https://nytimes.com/athletic/6636127/2025/09/16/florida-assistant-jabbar-juluke-suspended-lsu/
