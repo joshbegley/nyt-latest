@@ -6,7 +6,7 @@ https://nytimes.com/2025/09/17/us/politics/cassidy-vaccine-panel-doubt.html
 `Despite a few decidedly quiet periods so far, forecasters say the conditions are still favorable for more hurricanes this year. The latest storm, Gabrielle, formed on Wednesday.`\
 https://nytimes.com/2025/09/17/weather/hurricane-season-forecast-updates.html
 
-**Liverpool 3 Atletico Madrid 2 - How did Slot's side do it again late on? Analysing Isak's debut**\
+**Liverpool 3 Atletico Madrid 2: How did Slot's side do it again late on? Analysing Isak's debut**\
 `Virgil van Dijk's winner ensured a late, late show for Liverpool once again`\
 https://nytimes.com/athletic/6634151/2025/09/17/liverpool-3-atletico-madrid-2-van-dijk-isak/
 

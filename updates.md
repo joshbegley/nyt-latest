@@ -1,3 +1,7 @@
+**Liverpool 3 Atletico Madrid 2: How did Slot's side do it again late on? Analysing Isak's debut**\
+`Virgil van Dijk's winner ensured a late, late show for Liverpool once again`\
+https://nytimes.com/athletic/6634151/2025/09/17/liverpool-3-atletico-madrid-2-van-dijk-isak/
+
 **Republican Senator Casts Doubt on Kennedy’s Vaccine Advisers**\
 `Senator Bill Cassidy, the chairman of the health committee, said Americans should not trust a possible change to the childhood vaccine guidance.`\
 https://nytimes.com/2025/09/17/us/politics/cassidy-vaccine-panel-doubt.html
