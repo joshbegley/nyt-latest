@@ -1,3 +1,7 @@
+**A New Review of Climate Science Could Cause Headaches for Trump**\
+`The report, by a panel of leading researchers, raises questions about the administration’s legal justification for looser pollution controls.`\
+https://nytimes.com/2025/09/17/climate/national-academies-climate-trump.html
+
 **Review: At Fall for Dance, War, Persistence and a Slow Tap of Love**\
 `The annual festival, popular for its take-a-chance-priced tickets, opened with a show featuring work by Jamar Roberts, the tap dancer Dario Natarelli and Akram Khan.`\
 https://nytimes.com/2025/09/17/arts/dance/review-fall-for-dance-jamar-roberts-sara-mearns.html
