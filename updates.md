@@ -1,3 +1,11 @@
+**Pereira set to sign new three-year contract as Wolves head coach**\
+`Wolves are confident the 57-year-old, whose current contract expires in June 2026, will pen a new agreement through to 2028.`\
+https://nytimes.com/athletic/6626553/2025/09/17/vitor-pereira-wolves-manager-new-contract/
+
+**The New and Emerging Designers to Watch This Fashion Week**\
+`Whether they’re showing in New York or London, these six designers are on the rise.`\
+https://nytimes.com/2025/09/17/t-magazine/new-designers-london-new-york-fashion-week.html
+
 **Corals Won’t Survive a Warmer Planet, a New Study Finds**\
 `Most corals in the Atlantic Ocean will soon stop growing. Many are already dying, leaving shorelines and marine ecosystems vulnerable.`\
 https://nytimes.com/2025/09/17/climate/corals-climate-change.html
