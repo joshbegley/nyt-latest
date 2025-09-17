@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+`By Sheryl Gay Stolberg`\
+https://nytimes.com/live/2025/09/17/us/trump-news/heres-the-latest
+
 **Juventus 4-4 Borussia Dortmund: Breaking down an instant Champions League classic**\
 `This was football's most prestigious club competition at its very best, whetting our appetites for the campaign ahead`\
 https://nytimes.com/athletic/6636994/2025/09/17/juventus-4-4-borussia-dortmund-champions-league-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6611649/2025/09/17/kings-preseason-kempe-clarke/
 **As Partisans Battle Over History, Former Presidents Try Another Tack**\
 `An essay series led by the archivist whom President Trump fired will feature voices from across the political spectrum, including those of George W. Bush and Barack Obama.`\
 https://nytimes.com/2025/09/17/arts/partisan-history-in-pursuit-essays.html
-
-**The Unexpected Upside of Phone Bans in Schools**\
-`By Jessica Grose`\
-https://nytimes.com/2025/09/17/opinion/phone-bans-schools-kids.html
 
