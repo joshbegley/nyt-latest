@@ -1,40 +1,40 @@
+**40 balls in two minutes? No pressure for the inventor of this perfect football pump**\
+`Maurine Kieft came up with a quick way to inflate footballs to the ideal pressure — now his pump is used by the Champions League elite`\
+https://nytimes.com/athletic/6626009/2025/09/17/maurin-kieft-football-pump/
+
+**Celebrating the importance of the near-post cross**\
+`Why understanding opposition crossing tendencies might be more crucial than ever in 2025-26`\
+https://nytimes.com/athletic/6633930/2025/09/17/premier-league-near-post-crosses/
+
+**Why Newcastle have embraced the 'rugby' kick-off**\
+`The head coach developed the idea after Atletico Madrid tried it against his side in pre-season – but not all the players like it`\
+https://nytimes.com/athletic/6628783/2025/09/17/newcastle-eddie-howe-rugby-kick-offs/
+
+**German Suspected in Madeleine McCann Disappearance Is Set for Prison Release**\
+`Eighteen years after Madeleine McCann, a 3-year-old British girl, disappeared in Portugal, the man considered a suspect by Britain and Germany is being released after serving a sentence in a separate case.`\
+https://nytimes.com/2025/09/17/world/europe/madeleine-mccann-disappearance-bruckner.html
+
+**Climate Change’s Toll in Europe This Summer: Thousands of Extra Deaths**\
+`Three times as many people in cities and towns died from severe heat as would have done in a world without human-caused warming, scientists said.`\
+https://nytimes.com/2025/09/17/climate/europe-heat-deaths-climate-change.html
+
+**Connections: Sports Edition Coach: Hints for Sept. 17, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6636263/2025/09/17/connections-sports-edition-hints-for-sept-17-2025/
+
+**Fantasy Football rankings Week 3: Sleepers, projections, starts, Omarion Hampton, Jauan Jennings and more**\
+`Jake Ciely runs through his player rankings for the Week 3 fantasy football slate, and sees a potential rebound for rookie Omarion Hampton.`\
+https://nytimes.com/athletic/6635592/2025/09/17/fantasy-football-rankings-week-3-sleepers-projections-starts-omarion-hampton-jauan-jennings-and-more/
+
+**Has Britain Gone Too Far With Its Digital Controls?**\
+`British authorities have ramped up the use of facial recognition, artificial intelligence and internet regulation to address crime and other issues, stoking concerns of surveillance overreach.`\
+https://nytimes.com/2025/09/17/technology/britain-facial-recognition-digital-controls.html
+
+**Corrections: Sept. 17, 2025**\
+`Corrections that appeared in print on Wednesday, Sept. 17, 2025.`\
+https://nytimes.com/2025/09/17/pageoneplus/corrections-sept-17-2025.html
+
 **Quote of the Day: Many Who Won’t or Can’t Flee End Up Stranded on Streets or Under Rubble**\
 `Quotation of the Day for Wednesday, September 17, 2025.`\
 https://nytimes.com/2025/09/16/pageoneplus/quote-of-the-day-many-who-wont-or-cant-flee-end-up-stranded-on-streets-or-under-rubble.html
-
-**Reign defeats Racing 1-0 in resumed match as players and staff honor Savannah DeMelo**\
-`The two teams wore purple armbands with DeMelo's initials `\
-https://nytimes.com/athletic/6636240/2025/09/16/racing-louisville-seattle-reign-savannah-demelo/
-
-**Red Sox waste Connelly Early's effort with anemic offense and leaky bullpen**\
-`The Red Sox fell into third place in the AL wild card race as Houston leapfrogged Boston.`\
-https://nytimes.com/athletic/6636274/2025/09/16/red-sox-connelly-early-bullpen-lose/
-
-**Using tandem starters, Mets provide a glimpse of a late-season blueprint**\
-`New York contemplated piggybacking starters to maximize their advantage before injuries derailed the plan earlier this season. `\
-https://nytimes.com/athletic/6636257/2025/09/16/mets-tandem-pitching-clay-holmes-sean-manaea/
-
-**WNBA playoff takeaways: Fever survive to force decisive Game 3**\
-`The Fever earned their first playoff win since 2015.`\
-https://nytimes.com/athletic/6636262/2025/09/16/wnba-playoff-takeaways-fever/
-
-**No snarls this time as Messi leads Miami to win over Seattle**\
-`The 3-1 win moves Miami up to fifth in the Eastern Conference with three games in hand.`\
-https://nytimes.com/athletic/6636093/2025/09/16/lionel-messi-inter-miami-seattle-sounders-win/
-
-**The Cubs’ message to Pete Crow-Armstrong:'You’re going to be a complete animal in the playoffs.'**\
-`Crow-Armstrong has a .211 batting average and .626 OPS since the All-Star break but remains confident heading into the playoffs. `\
-https://nytimes.com/athletic/6636241/2025/09/16/cubs-pete-crow-armstrong-playoffs/
-
-**Hiker Found Dead in Cascade Mountains of Washington State After Apparent Fall**\
-`The Long Island man, 37, was hiking near Dragontail Peak, a rugged region of the Alpine Lakes Wilderness.`\
-https://nytimes.com/2025/09/16/us/hiker-death-enchantments-washington.html
-
-**‘Alien: Earth’ Episode 7 Recap: My Pet Monster**\
-`This week the action is divided primarily between two separate attempts to get off Boy Kavalier’s Neverland island.`\
-https://nytimes.com/2025/09/16/arts/television/alien-earth-episode-7-recap.html
-
-**Some Ring Decisions, in Brief**\
-`Jackson Matz’s crossword is pure delight.`\
-https://nytimes.com/2025/09/16/crosswords/daily-puzzle-2025-09-17.html
 
