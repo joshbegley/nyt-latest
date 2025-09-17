@@ -1,3 +1,19 @@
+**Police Officers Killed in Shooting in Southern Pennsylvania**\
+`At least three police officers were killed and two others were seriously injured in a shooting, according to the state police commissioner.`\
+https://nytimes.com/video/us/100000010406205/pennsylvania-police-officers-shot-josh-shapiro.html
+
+**Palestinians Flee Gaza City as Israel Expands Its Offensive**\
+`Mohammed Al-Bayari packed up his belongings as he prepared to leave Gaza City after the Israeli military expanded its ground assault in the area.`\
+https://nytimes.com/video/world/middleeast/100000010406143/palestinians-flee-gaza-city-as-israel-expands-its-offensive.html
+
+**Why the Cubs did not take their playoff clinching celebration for granted**\
+`After sticking with that businesslike approach for months, the Cubs showed another side of their personality on Wednesday.`\
+https://nytimes.com/athletic/6639028/2025/09/17/chicago-cubs-national-league-playoff-celebration/
+
+**Mayor Adams Joins Growing Call to Ban Carriage Horses in New York City**\
+`Mayor Eric Adams’s declaration of support for eliminating the distinctive vehicles from Central Park follows a similar move by the group that runs the park.`\
+https://nytimes.com/2025/09/17/nyregion/eric-adams-carriage-horse-ban.html
+
 **How Vaccines Are Revealing Cracks in Trump’s G.O.P.**\
 `Some Republicans are starting to worry that the issue of health care could cost them politically.`\
 https://nytimes.com/2025/09/17/us/politics/cassidy-monorez-kennedy-vaccines-cdc.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/09/17/business/media/abc-jimmy-kimmel.html
 **Upending Precedent, Thune Bows To Realities of a Polarized Senate**\
 `In using the nuclear option, John Thune has turned a Senate precedent on its head, defying his reputation as an institutionalist.`\
 https://nytimes.com/2025/09/17/us/politics/john-thune-senate-filibuster.html
-
-**Support for Federal Vaccine Policy May Be Eroding**\
-`Insurers suggested they would still cover routine shots even if a C.D.C. panel tried to limit them, as an influential senator warned against new restrictions.`\
-https://nytimes.com/2025/09/17/health/kennedy-acip-insurers-cassidy.html
-
-**West Ham issue statement to 'reassure supporters' after no confidence letter**\
-`The London side's Fan Advisory Board issued a "vote of no confidence" to the club's board after a poor start to the season.`\
-https://nytimes.com/athletic/6638714/2025/09/17/west-ham-fan-protests-letter/
-
-**D.C. City Council approves $3.8 billion Commanders stadium project**\
-`A 65,000-seat stadium will be built on the old RFK Stadium site, along with a massive mixed-use development project`\
-https://nytimes.com/athletic/6638986/2025/09/17/commanders-stadium-final-approval-washington-dc/
-
-**After National Tragedies, Obama and Trump Are a Study in Contrasts**\
-`Former President Barack Obama said the job of an American president is to “remind us of the ties that bind us together.” President Trump apparently disagrees.`\
-https://nytimes.com/2025/09/17/us/politics/obama-trump-national-tragedies.html
 
