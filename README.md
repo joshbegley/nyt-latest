@@ -1,3 +1,7 @@
+**TAFC: Role reversal for Mbappe and Vinicius Jr, Liga MX thinking big**\
+`Today in TAFC: What a difference a year makes for Mbappe and Vinicius Jr. Plus: Liga MX thinks big and the FBI director - Liverpool fan.`\
+https://nytimes.com/athletic/6636710/2025/09/17/champions-league-real-madrid-mbappe-vinicius/
+
 **Israel Pounds Gaza City as Fears Mount for Those Inside**\
 `With hundreds of thousands of Palestinians still in the city, the Israeli military said it was opening another temporary evacuation route.`\
 https://nytimes.com/2025/09/17/world/middleeast/israel-gaza-city.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/17/world/middleeast/israel-assault-gaza-city-diploma
 **College football Week 4 streaming guide: Texas Tech-Utah, Florida-Miami, B1G After Dark**\
 `Here are this weekend's games to watch for in college football, from ranked Big Ten, Big 12 and SEC action to an 11 p.m. ET kickoff.`\
 https://nytimes.com/athletic/6632432/2025/09/17/texas-tech-utah-miami-florida-big-ten-college-football-week-4-how-to-watch/
-
-**Guadalajara, 'the most Mexican' city, eyes its next World Cup moment**\
-`Guadalajara is getting a glow-up for the World Cup, but visitors will still find a host whose soul is steeped in local pride and culture`\
-https://nytimes.com/athletic/6599625/2025/09/17/guadalajara-mexico-2026-world-cup-host/
 

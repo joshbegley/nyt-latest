@@ -1,3 +1,11 @@
+**Israel Pounds Gaza City as Fears Mount for Those Inside**\
+`With hundreds of thousands of Palestinians still in the city, the Israeli military said it was opening another temporary evacuation route.`\
+https://nytimes.com/2025/09/17/world/middleeast/israel-gaza-city.html
+
+**Why isn't the Golden State Valkyries' WNBA playoff game at Chase Center?**\
+`A conflict will keep the Valkyries from hosting their first playoff game to cap their historic season.`\
+https://nytimes.com/athletic/6636188/2025/09/17/golden-state-valkyries-wnba-playoff-sap-center/
+
 **100 Liberal Philanthropies Prepare to Push Back Against Trump Crackdown**\
 `The institutions published an open letter to defend their missions amid fears the Trump administration could target their tax-exempt status.`\
 https://nytimes.com/2025/09/17/us/politics/trump-liberal-philanthropies-pushback.html
