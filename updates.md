@@ -1,3 +1,11 @@
+**Young Protesters in Nepal Recover Looted Goods for Shopkeepers**\
+`After protests left behind a trail of destruction in Nepal, a group of small business owners are stepping in to salvage looted home appliances in an effort to restore order.`\
+https://nytimes.com/video/world/asia/100000010392287/nepal-protest-looting.html
+
+**How a Nation’s Bureaucracy Went Up in Smoke**\
+`Arson attacks during protests in Nepal destroyed buildings, court files and even records of international agreements and state investments.`\
+https://nytimes.com/2025/09/17/world/asia/nepal-protests-arson-singha-durbar.html
+
 **Fall Video Games**\
 `What new games are you playing? What upcoming releases are you most looking forward to?`\
 https://nytimes.com/2025/09/17/learning/fall-video-games.html
