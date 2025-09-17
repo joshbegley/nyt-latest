@@ -1,3 +1,15 @@
+**Here is the latest on the storm.**\
+`By Judson Jones`\
+https://nytimes.com/live/2025/weather/tropical-storm-gabrielle-hurricane/here-is-the-latest-on-the-storm
+
+**College football Week 4 best bets: Will Utah-Texas Tech be a defensive slog?**\
+`Austin Mock is back with his best bets for college football's Week 4, including a play on Texas Tech at Utah.`\
+https://nytimes.com/athletic/6637540/2025/09/17/college-football-best-bets-week-4-texas-tech-utah/
+
+**Tropical Storm Gabrielle Forms, Breaking a Lull in the Hurricane Season**\
+`The storm is not an immediate threat to land, but it is expected to strengthen as it moves west.`\
+https://nytimes.com/live/2025/weather/tropical-storm-gabrielle-hurricane
+
 **What the Fed’s Rate Decision Means for Your Finances**\
 `Here’s how the central bank’s interest rate stance influences car loans, credit cards, mortgages, savings and student loans.`\
 https://nytimes.com/2025/09/17/business/fed-interest-rate-loans-mortgages.html
@@ -21,20 +33,4 @@ https://nytimes.com/athletic/6635920/2025/09/17/nwsl-combines-players-prospects/
 **What’s in Our Queue? Poker and More **\
 `Text by Michael D. Shear`\
 https://nytimes.com/card/2025/09/17/undefined/
-
-**Burning questions for the Wild entering training camp: Kaprizov's future, Yurov's position and more**\
-`Also, systems tweaks, Tarasenko fit, Brodin status, Gustavsson talks, Wallstedt expectations, roster hopefuls and an updated depth chart.`\
-https://nytimes.com/athletic/6637494/2025/09/17/wild-training-camp-burning-questions-kaprizov-yurov/
-
-**Man Utd in talks to appoint former Man City academy coach Wright**\
-`The 53-year-old previously played with and worked under United's director of football Jason Wilcox`\
-https://nytimes.com/athletic/6637482/2025/09/17/manchester-united-manchester-city-academy-coach-alan-wright/
-
-**Protest in London contrasts with Trump’s warm royal reception.**\
-`Thousands of demonstrators poured into the streets of the capital as President Trump spent most of the day 20 miles away in Windsor.`\
-https://nytimes.com/live/2025/09/17/world/trump-uk-state-visit/london-protests
-
-**Times Square Casino Proposal Is Voted Down After Mounting Opposition**\
-`The $5.4 billion casino, Caesars Palace Times Square, was one of eight proposed gambling facilities under consideration for the New York City area.`\
-https://nytimes.com/2025/09/17/nyregion/times-square-casino-proposal-vote.html
 
