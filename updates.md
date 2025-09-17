@@ -1,3 +1,11 @@
+**Thomas Müller interview: Ex-Bayern star's quirks, outlook translate to MLS, Vancouver**\
+`As Bayern Munich kicks off another Champions League quest, Thomas Müller is in Vancouver, embarking on a unique path of his own`\
+https://nytimes.com/athletic/6636312/2025/09/17/thomas-muller-vancouver-whitecaps-mls-germany-bayern-munich/
+
+**Tracking Tropical Storm Gabrielle**\
+`See the likely path and wind arrival times for Gabrielle`\
+https://nytimes.com/interactive/2025/weather/gabrielle-map-path-tracker.html
+
 **How Did Hands Evolve? The Answer Is Behind You.**\
 `The evolutionary blueprint for hands was borrowed in part from a much older genetic plan for our nether regions, a new study suggests.`\
 https://nytimes.com/2025/09/17/science/evolution-crispr-hands.html

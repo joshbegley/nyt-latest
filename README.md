@@ -1,3 +1,11 @@
+**Corals Won’t Survive a Warmer Planet, a New Study Finds**\
+`Most corals in the Atlantic Ocean will soon stop growing. Many are already dying, leaving shorelines and marine ecosystems vulnerable.`\
+https://nytimes.com/2025/09/17/climate/corals-climate-change.html
+
+**Submit your questions for Murat Ates' Winnipeg Jets mailbag**\
+`With Jets training camp underway, it’s time to answer your pressing questions ahead of the new season. Drop them here and they will be answered in an upcoming mailbag.`\
+https://nytimes.com/athletic/6637620/2025/09/17/submit-your-questions-for-murat-ates-winnipeg-jets-mailbag-4/
+
 **Thomas Müller interview: Ex-Bayern star's quirks, outlook translate to MLS, Vancouver**\
 `As Bayern Munich kicks off another Champions League quest, Thomas Müller is in Vancouver, embarking on a unique path of his own`\
 https://nytimes.com/athletic/6636312/2025/09/17/thomas-muller-vancouver-whitecaps-mls-germany-bayern-munich/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6637487/2025/09/17/kaleb-johnson-kickoff-return-mis
 **Leafs captain Auston Matthews gives health update: ‘I’m feeling really good’**\
 `Leafs captain, who has said he played through injury for much of last season, will seek to ‘manage’ his health ‘as the season goes along.’`\
 https://nytimes.com/athletic/6637376/2025/09/17/leafs-auston-matthews-health-training-camp/
-
-**Silver: Investigation will 'get to the bottom' of Kawhi Leonard endorsement case**\
-`"I don't know anything about Kawhi's deal. Show, no show. We'll certainly find out," Silver said.`\
-https://nytimes.com/athletic/6637165/2025/09/17/nba-investigation-kawhi-leonard-adam-silver/
-
-**NFL Week 3 survivor pool picks, strategy: To use or save the Packers?**\
-`Our weekly column doling out strategy, chalk picks and contrarian picks for your survivor pool. This week, the Packers are in the spotlight.`\
-https://nytimes.com/athletic/6634921/2025/09/17/nfl-survivor-pool-week-3-picks-strategy-packers-seahawks/
 

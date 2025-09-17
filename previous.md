@@ -1,3 +1,11 @@
+**Thomas Müller interview: Ex-Bayern star's quirks, outlook translate to MLS, Vancouver**\
+`As Bayern Munich kicks off another Champions League quest, Thomas Müller is in Vancouver, embarking on a unique path of his own`\
+https://nytimes.com/athletic/6636312/2025/09/17/thomas-muller-vancouver-whitecaps-mls-germany-bayern-munich/
+
+**Tracking Tropical Storm Gabrielle**\
+`See the likely path and wind arrival times for Gabrielle`\
+https://nytimes.com/interactive/2025/weather/gabrielle-map-path-tracker.html
+
 **How Did Hands Evolve? The Answer Is Behind You.**\
 `The evolutionary blueprint for hands was borrowed in part from a much older genetic plan for our nether regions, a new study suggests.`\
 https://nytimes.com/2025/09/17/science/evolution-crispr-hands.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6637165/2025/09/17/nba-investigation-kawhi-leonard-
 **NFL Week 3 survivor pool picks, strategy: To use or save the Packers?**\
 `Our weekly column doling out strategy, chalk picks and contrarian picks for your survivor pool. This week, the Packers are in the spotlight.`\
 https://nytimes.com/athletic/6634921/2025/09/17/nfl-survivor-pool-week-3-picks-strategy-packers-seahawks/
-
-**Isaac Nader outkicks Jake Wightman in thrilling 1,500-meter final at world championships**\
-`Portugal's Nader came from the middle of the pack to chase down Great Britain's Wightman by 0.02 seconds Wednesday in Tokyo.`\
-https://nytimes.com/athletic/6637237/2025/09/17/isaac-nader-jake-wightman-josh-kerr-1500-world-championships/
-
-**We Are Going to Have to Live Here With One Another**\
-`Ben Shapiro and I discuss the state — and stakes — of political disagreement in America.`\
-https://nytimes.com/video/opinion/100000010402881/we-are-going-to-have-to-live-here-with-one-another.html
 
