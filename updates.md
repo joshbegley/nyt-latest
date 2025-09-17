@@ -1,3 +1,11 @@
+**The New York Times in Print for Wednesday, Sep. 17, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/17/todays-new-york-times
+
+**The Quiet Triumph of King Charles III**\
+`He may be the last man standing who can exude global gravitas in the dumpster fire of our digitally dominated world.`\
+https://nytimes.com/2025/09/17/opinion/king-charles-trump-britain-visit.html
+
 **After Kirk’s Killing, Obama Says the Nation Is in a ‘Political Crisis’**\
 `Speaking at an educational summit, former President Barack Obama criticized his successor’s attacks on his political rivals in the wake of Charlie Kirk’s assassination.`\
 https://nytimes.com/2025/09/17/us/politics/obama-trump-kirk-unity.html
