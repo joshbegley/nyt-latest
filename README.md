@@ -1,3 +1,11 @@
+**Can Drug Users Be Forced Into Rehab? Trump Says Yes. So Do 34 States.**\
+`The president wants to enforce involuntary commitment laws for severe drug use. But rehab is expensive, without enough beds for those who seek it.`\
+https://nytimes.com/2025/09/17/health/trump-drug-users-involuntary-commitment-rehab.html
+
+**‘The Twilight Zone’ Gave a Glimpse of Robert Redford’s Gifts**\
+`In a memorable 1962 episode of “The Twilight Zone,” the actor, still in his early 20s, played the most charming emissary of the afterlife imaginable.`\
+https://nytimes.com/2025/09/17/arts/television/robert-redford-the-twilight-zone.html
+
 **Here’s the latest.**\
 `By Sheryl Gay Stolberg`\
 https://nytimes.com/live/2025/09/17/us/trump-news/heres-the-latest
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/17/world/europe/londons-mayor-takes-aim-at-a-visitin
 **Marner's linemates, Eichel extension among 5 big questions in Golden Knights training camp**\
 `With Mitch Marner aboard, Vegas will have plenty of options with its forward lines.`\
 https://nytimes.com/athletic/6635308/2025/09/17/marner-eichel-golden-knights/
-
-**Kings' 5 big training-camp questions: An Adrian Kempe extension? More for Brandt Clarke?**\
-`Are we going to witness the final season of a Kings legend?`\
-https://nytimes.com/athletic/6611649/2025/09/17/kings-preseason-kempe-clarke/
-
-**As Partisans Battle Over History, Former Presidents Try Another Tack**\
-`An essay series led by the archivist whom President Trump fired will feature voices from across the political spectrum, including those of George W. Bush and Barack Obama.`\
-https://nytimes.com/2025/09/17/arts/partisan-history-in-pursuit-essays.html
 

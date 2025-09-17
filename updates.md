@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+`By Sheryl Gay Stolberg`\
+https://nytimes.com/live/2025/09/17/us/trump-news/heres-the-latest
+
 **Juventus 4-4 Borussia Dortmund: Breaking down an instant Champions League classic**\
 `This was football's most prestigious club competition at its very best, whetting our appetites for the campaign ahead`\
 https://nytimes.com/athletic/6636994/2025/09/17/juventus-4-4-borussia-dortmund-champions-league-analysis/
