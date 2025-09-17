@@ -1,3 +1,23 @@
+**Here’s the latest.**\
+`By Shawn McCreesh`\
+https://nytimes.com/live/2025/09/17/world/trump-uk-state-visit/heres-the-latest
+
+**The New York Times International Edition in Print for Thursday, Sep. 18, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/09/17/todays-new-york-times-international-edition
+
+**A Note, a Gun and a Mother’s Conscience Led to an Arrest in Kirk’s Killing**\
+`The man accused of shooting Charlie Kirk left a trail of evidence and had no way to outrun his parents’ recognition, court documents showed.`\
+https://nytimes.com/2025/09/17/us/politics/charlie-kirk-killer.html
+
+**Billionaires and Startups bet on Thailand’s “Endless Opportunities”**\
+`Entrepreneurs who have earned billions of dollars investing in Thailand believe the Southeast Asian economy is emerging as a rising hub of opportunity`\
+https://nytimes.com/paidpost/thailand-board-of-investment/billionaires-and-startups-bet-on-thailands-endless-opportunities.html
+
+**Thomas Partey pleads not guilty to charges of rape and sexual assault**\
+`The 32-year-old was charged in July with five counts of rape and one count of sexual assault against three women.`\
+https://nytimes.com/athletic/6634558/2025/09/17/thomas-partey-rape-case-plea/
+
 **Activists Project Images of Trump and Epstein Before U.K. Visit**\
 `British protesters projected images of President Trump and Jeffrey Epstein onto Windsor Castle on Tuesday night before the president arrived for a state visit. More protests are planned for Wednesday.`\
 https://nytimes.com/video/world/europe/100000010403955/trump-epstein-windsor-castle-protest.html
@@ -17,24 +37,4 @@ https://nytimes.com/live/2025/09/17/world/trump-uk-state-visit
 **Are You Ready to Meet the King? Try Our Quiz on U.K. State Visit Etiquette.**\
 `If you were an aide to President Trump during his trip to Britain and wanted to avoid any pitfalls, what would you do?`\
 https://nytimes.com/interactive/2025/09/17/world/europe/uk-state-visit-etiquette-quiz.html
-
-**Fantasy football best and worst matchups of Week 3: A.J. Brown, Drake London bounce backs**\
-`KC Joyner looks at matchups around the league to help you with start/sit questions ahead of Week 3. `\
-https://nytimes.com/athletic/6634566/2025/09/17/fantasy-football-week-3-matchups-best-worst/
-
-**Fired C.D.C. Director to Testify About Her Clash With Kennedy**\
-`Wednesday’s hearing before the Senate health committee promises to be a referendum on the health secretary’s leadership and expose a rocky time at the nation’s public health agency.`\
-https://nytimes.com/2025/09/17/us/politics/monarez-cdc-senate-cassidy.html
-
-**Robert Redford Didn’t Love Hollywood, Yet Hollywood Loved Him**\
-`Mr. Redford’s outspoken opinions and his championing of young filmmakers overshadowed his many criticisms of the industry.`\
-https://nytimes.com/2025/09/17/business/robert-redford-hollywood.html
-
-**At Home and on the Seas, Trump Expands Use of American Force**\
-`His first term focused on America’s rival superpowers. Now the emphasis is on homeland defense and troops on city streets.`\
-https://nytimes.com/2025/09/17/us/politics/trump-shift-national-security-focus.html
-
-**Robert Redford’s Many Types of Heroes**\
-`The Outlaw, the Romantic, the Survivor: From the Sundance Kid to his final role, he showed different ways to be a hero onscreen.`\
-https://nytimes.com/2025/09/17/movies/robert-redford-heroes-film.html
 
