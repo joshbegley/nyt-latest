@@ -1,3 +1,7 @@
+**Trump’s Birthday Call to Modi Raises Hopes in India for a Trade Deal**\
+`The call coincided with a visit by U.S. trade officials to the country, which just weeks ago was hit with a 50 percent tariff on all imports to the United States.`\
+https://nytimes.com/2025/09/17/world/asia/modi-trump-birthday.html
+
 **Man Utd finances explained: Record revenues but sixth annual loss**\
 `The club's 2024-25 results reveal that total revenues stood at £666.5m after significant increases in matchday and commercial income`\
 https://nytimes.com/athletic/6637099/2025/09/17/manchester-united-finances-revenues-loss/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/17/world/middleeast/israel-gaza-city.html
 **Why isn't the Golden State Valkyries' WNBA playoff game at Chase Center?**\
 `A conflict will keep the Valkyries from hosting their first playoff game to cap their historic season.`\
 https://nytimes.com/athletic/6636188/2025/09/17/golden-state-valkyries-wnba-playoff-sap-center/
-
-**100 Liberal Philanthropies Prepare to Push Back Against Trump Crackdown**\
-`The institutions published an open letter to defend their missions amid fears the Trump administration could target their tax-exempt status.`\
-https://nytimes.com/2025/09/17/us/politics/trump-liberal-philanthropies-pushback.html
 

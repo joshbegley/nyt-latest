@@ -1,3 +1,7 @@
+**Trump’s Birthday Call to Modi Raises Hopes in India for a Trade Deal**\
+`The call coincided with a visit by U.S. trade officials to the country, which just weeks ago was hit with a 50 percent tariff on all imports to the United States.`\
+https://nytimes.com/2025/09/17/world/asia/modi-trump-birthday.html
+
 **Man Utd finances explained: Record revenues but sixth annual loss**\
 `The club's 2024-25 results reveal that total revenues stood at £666.5m after significant increases in matchday and commercial income`\
 https://nytimes.com/athletic/6637099/2025/09/17/manchester-united-finances-revenues-loss/
