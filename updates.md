@@ -1,3 +1,11 @@
+**No snarls this time as Messi leads Miami to win over Seattle**\
+`The 3-1 win moves Miami up to fifth in the Eastern Conference with three games in hand.`\
+https://nytimes.com/athletic/6636093/2025/09/16/lionel-messi-inter-miami-seattle-sounders-win/
+
+**The Cubs’ message to Pete Crow-Armstrong:'You’re going to be a complete animal in the playoffs.'**\
+`Crow-Armstrong has a .211 batting average and .626 OPS since the All-Star break but remains confident heading into the playoffs. `\
+https://nytimes.com/athletic/6636241/2025/09/16/cubs-pete-crow-armstrong-playoffs/
+
 **M's Cal Raleigh sets single-season HR record by switch hitter, ties team record**\
 `Catcher passes Mickey Mantle for switch hitter record, ties Ken Griffey Jr.'s franchise mark.`\
 https://nytimes.com/athletic/6635966/2025/09/16/seattle-mariners-cal-raleigh-passes-mickey-mantle/
