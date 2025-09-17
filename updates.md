@@ -1,3 +1,5 @@
+
+
 **Trump’s Birthday Call to Modi Raises Hopes in India for a Trade Deal**\
 `The call coincided with a visit by U.S. trade officials to the country, which just weeks ago was hit with a 50 percent tariff on all imports to the United States.`\
 https://nytimes.com/2025/09/17/world/asia/modi-trump-birthday.html
