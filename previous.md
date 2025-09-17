@@ -1,3 +1,27 @@
+**How Did Hands Evolve? The Answer Is Behind You.**\
+`The evolutionary blueprint for hands was borrowed in part from a much older genetic plan for our nether regions, a new study suggests.`\
+https://nytimes.com/2025/09/17/science/evolution-crispr-hands.html
+
+**Samin Nosrat’s Lazy Sugo**\
+`Her dish isn’t lazy at all, but is generous and unhurried, with time turning tomatoes, wine and bone-in meat into a rich, glossy sauce.`\
+https://nytimes.com/2025/09/17/dining/samin-nosrats-lazy-sugo.html
+
+**The Dueling Scholars Who Bickered a Yiddish Dictionary Into Existence**\
+`The Jewish tradition of debate is at the center of a new chamber opera about two scholars clashing over a Yiddish dictionary in the aftermath of World War II.`\
+https://nytimes.com/2025/09/17/arts/music/yivo-yiddish-dictionary-alex-weiser-ben-kaplan.html
+
+**‘Shockingly Beautiful’ Fossil Reveals Oldest Dome-Headed Dinosaur**\
+`A specimen discovered in Mongolia is the most complete fossil yet found of a pachycephalosaur, a dinosaur believed to be built for head-butting.`\
+https://nytimes.com/2025/09/17/science/pachycephalosaurus-fossil-mongolia.html
+
+**After Kaleb Johnson's gaffe, Steelers plan a change on kickoff returns**\
+`The rookie's mistake resulted in a Seahawks touchdown on Sunday.`\
+https://nytimes.com/athletic/6637487/2025/09/17/kaleb-johnson-kickoff-return-mistake-steelers-seahawks/
+
+**Leafs captain Auston Matthews gives health update: ‘I’m feeling really good’**\
+`Leafs captain, who has said he played through injury for much of last season, will seek to ‘manage’ his health ‘as the season goes along.’`\
+https://nytimes.com/athletic/6637376/2025/09/17/leafs-auston-matthews-health-training-camp/
+
 **Silver: Investigation will 'get to the bottom' of Kawhi Leonard endorsement case**\
 `"I don't know anything about Kawhi's deal. Show, no show. We'll certainly find out," Silver said.`\
 https://nytimes.com/athletic/6637165/2025/09/17/nba-investigation-kawhi-leonard-adam-silver/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6637237/2025/09/17/isaac-nader-jake-wightman-josh-k
 **We Are Going to Have to Live Here With One Another**\
 `Ben Shapiro and I discuss the state — and stakes — of political disagreement in America.`\
 https://nytimes.com/video/opinion/100000010402881/we-are-going-to-have-to-live-here-with-one-another.html
-
-**Can Drug Users Be Forced Into Rehab? Trump Says Yes. So Do 34 States.**\
-`The president wants to enforce involuntary commitment laws for severe drug use. But rehab is expensive, without enough beds for those who seek it.`\
-https://nytimes.com/2025/09/17/health/trump-drug-users-involuntary-commitment-rehab.html
-
-**‘The Twilight Zone’ Gave a Glimpse of Robert Redford’s Gifts**\
-`In a memorable 1962 episode of “The Twilight Zone,” the actor, still in his early 20s, played the most charming emissary of the afterlife imaginable.`\
-https://nytimes.com/2025/09/17/arts/television/robert-redford-the-twilight-zone.html
-
-**Here’s the latest.**\
-`By Sheryl Gay Stolberg`\
-https://nytimes.com/live/2025/09/17/us/trump-news/heres-the-latest
-
-**Juventus 4-4 Borussia Dortmund: Breaking down an instant Champions League classic**\
-`This was football's most prestigious club competition at its very best, whetting our appetites for the campaign ahead`\
-https://nytimes.com/athletic/6636994/2025/09/17/juventus-4-4-borussia-dortmund-champions-league-analysis/
-
-**Gilded Carriages and Bearskin Hats: U.K. Royals Welcome Trump**\
-`Photographs of the pomp and spectacle of the U.S. president’s second state visit to Britain.`\
-https://nytimes.com/2025/09/17/world/europe/trump-uk-state-visit-photos.html
-
-**Bad Bunny and Ca7riel & Paco Amoroso Lead 2025 Latin Grammys Field**\
-`The Puerto Rican superstar, with 12 nods, and the multigenre duo from Argentina, with 10, will compete in the biggest categories.`\
-https://nytimes.com/2025/09/17/arts/music/latin-grammy-nominations-bad-bunny.html
 
