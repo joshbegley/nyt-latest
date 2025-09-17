@@ -1,3 +1,11 @@
+**Fed Lowers Interest Rates by Quarter Point**\
+`Jerome Powell, the Fed Chair, announced interest rate cuts by a quarter of a percentage point on Wednesday.`\
+https://nytimes.com/video/business/100000010406118/fed-interest-rate-powell.html
+
+**Russia, China and Iran Use Kirk’s Murder to Stoke Conspiracy Theories and Division**\
+`State media and online trolls have seized on the assassination to score geopolitical points against the United States, according to a new report.`\
+https://nytimes.com/2025/09/17/business/russia-china-iran-charlie-kirk-conspiracy-theories.html
+
 **Melania Trump Takes Royal Refuge in Fashion**\
 `A floor-length Burberry trench, an eye-obscuring hat and a yellow gown made quite a statement during the Trumps’ state visit to Britain.`\
 https://nytimes.com/2025/09/17/style/melania-trump-state-visit-fashion.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/17/us/bear-yellowstone-park-injures-hiker.html
 **Republican Senator Casts Doubt on Kennedy’s Vaccine Advisers**\
 `Senator Bill Cassidy, the chairman of the health committee, said Americans should not trust a possible change to the childhood vaccine guidance.`\
 https://nytimes.com/2025/09/17/us/politics/cassidy-vaccine-panel-doubt.html
-
-**This Is Peak Hurricane Season. Or Is It?**\
-`Despite a few decidedly quiet periods so far, forecasters say the conditions are still favorable for more hurricanes this year. The latest storm, Gabrielle, formed on Wednesday.`\
-https://nytimes.com/2025/09/17/weather/hurricane-season-forecast-updates.html
-
-**Liverpool 3 Atletico 2: How did they win it late again? Why did Simeone see red? How was Isak’s debut?**\
-`Virgil van Dijk's winner ensured a late, late show for Liverpool once again`\
-https://nytimes.com/athletic/6634151/2025/09/17/liverpool-3-atletico-madrid-2-van-dijk-isak/
 

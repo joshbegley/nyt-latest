@@ -1,3 +1,11 @@
+**Fed Lowers Interest Rates by Quarter Point**\
+`Jerome Powell, the Fed Chair, announced interest rate cuts by a quarter of a percentage point on Wednesday.`\
+https://nytimes.com/video/business/100000010406118/fed-interest-rate-powell.html
+
+**Russia, China and Iran Use Kirk’s Murder to Stoke Conspiracy Theories and Division**\
+`State media and online trolls have seized on the assassination to score geopolitical points against the United States, according to a new report.`\
+https://nytimes.com/2025/09/17/business/russia-china-iran-charlie-kirk-conspiracy-theories.html
+
 **Melania Trump Takes Royal Refuge in Fashion**\
 `A floor-length Burberry trench, an eye-obscuring hat and a yellow gown made quite a statement during the Trumps’ state visit to Britain.`\
 https://nytimes.com/2025/09/17/style/melania-trump-state-visit-fashion.html
