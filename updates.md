@@ -1,3 +1,11 @@
+**Leafs training camp takeaways: Easton Cowan's opportunity, 'not focused' on Dillon Dubé**\
+`Plus, an (almost) healthy roster, Mark Giordano returns with a new role and an update on a potential contract extension for Anthony Stolarz.`\
+https://nytimes.com/athletic/6637800/2025/09/17/maple-leafs-training-camp-easton-cowan-dillon-dube/
+
+**The Ghost of Jeffrey Epstein Hangs Over Trump’s U.K. State Visit**\
+`In different ways, the reputations of the royal family, the British government and President Trump have each been tarnished by the sex offender Jeffrey Epstein.`\
+https://nytimes.com/2025/09/17/world/europe/epstein-ghost-trump-uk.html
+
 **Rick Tocchet's view of the Flyers — 'That crest is everything' — and his Year 1 priorities**\
 `Tocchet has put much thought into how to get the best out of Matvei Michkov and his other new players.`\
 https://nytimes.com/athletic/6637978/2025/09/17/tocchet-flyers-training-camp/
