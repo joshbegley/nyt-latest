@@ -1,3 +1,7 @@
+**Florida assistant Jabbar Juluke suspended 3 games for role in scuffle at LSU**\
+`SEC and Florida jointly announce punishment, say coach did not de-escalate tense pre-game situation.`\
+https://nytimes.com/athletic/6636127/2025/09/16/florida-assistant-jabbar-juluke-suspended-lsu/
+
 **Democrat Wins Seat of Slain Minnesota Lawmaker; State House Evenly Split**\
 `Xp Lee, a former City Council member, won a special election to replace his political mentor, former Minnesota House Speaker Melissa Hortman, who was assassinated in June.`\
 https://nytimes.com/2025/09/16/us/minnesota-election-slain-lawmaker.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010403303/patel-judiciary-committee-
 **Tim Weah, an iconic magazine shoot and an historic Champions League goal**\
 `The USMNT star edged out of his father's shadow with his historic Champions League goal at the Bernabeu`\
 https://nytimes.com/athletic/6635589/2025/09/16/tim-weah-usmnt-real-madrid-goal/
-
-**How to watch Guardians at Tigers: Time, TV, streaming for September 17**\
-`Find out how to watch the Cleveland Guardians play the Detroit Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6635950/2025/09/16/guardians-vs-tigers-stream-how-to-watch-sept-17/
 
