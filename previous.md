@@ -1,3 +1,7 @@
+**President Trump’s 2nd U.K. State Visit: What’s on the Agenda**\
+`The president and the first lady will be hosted at Windsor Castle by King Charles III and Queen Camilla.`\
+https://nytimes.com/2025/09/17/world/europe/president-trumps-2nd-uk-state-visit-whats-on-the-agenda.html
+
 **Young Protesters in Nepal Recover Looted Goods for Shopkeepers**\
 `After protests left behind a trail of destruction in Nepal, a group of small business owners are stepping in to salvage looted home appliances in an effort to restore order.`\
 https://nytimes.com/video/world/asia/100000010392287/nepal-protest-looting.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6636540/2025/09/17/chiefs-vs-giants-stream-how-to-w
 **How to watch Marlins at Rockies: Time, TV, streaming for September 17**\
 `Find out how to watch the Miami Marlins play the Colorado Rockies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6636530/2025/09/17/marlins-vs-rockies-stream-how-to-watch-sept-17/
-
-**How to watch Blue Jays at Rays: Time, TV, streaming for September 17**\
-`Find out how to watch the Toronto Blue Jays play the Tampa Bay Rays, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6636528/2025/09/17/blue-jays-vs-rays-stream-how-to-watch-sept-17/
 
