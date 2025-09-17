@@ -1,3 +1,15 @@
+**Quote of the Day: Many Who Won’t or Can’t Flee End Up Stranded on Streets or Under Rubble**\
+`Quotation of the Day for Wednesday, September 17, 2025.`\
+https://nytimes.com/2025/09/16/pageoneplus/quote-of-the-day-many-who-wont-or-cant-flee-end-up-stranded-on-streets-or-under-rubble.html
+
+**Reign defeats Racing 1-0 in resumed match as players and staff honor Savannah DeMelo**\
+`The two teams wore purple armbands with DeMelo's initials `\
+https://nytimes.com/athletic/6636240/2025/09/16/racing-louisville-seattle-reign-savannah-demelo/
+
+**Red Sox waste Connelly Early's effort with anemic offense and leaky bullpen**\
+`The Red Sox fell into third place in the AL wild card race as Houston leapfrogged Boston.`\
+https://nytimes.com/athletic/6636274/2025/09/16/red-sox-connelly-early-bullpen-lose/
+
 **Using tandem starters, Mets provide a glimpse of a late-season blueprint**\
 `New York contemplated piggybacking starters to maximize their advantage before injuries derailed the plan earlier this season. `\
 https://nytimes.com/athletic/6636257/2025/09/16/mets-tandem-pitching-clay-holmes-sean-manaea/
