@@ -1,3 +1,7 @@
+**Chargers' Khalil Mack headed to IR but elbow injury isn't season-ending**\
+`Mack will miss at least the next four games but the news was still "very encouraging" for the Chargers.`\
+https://nytimes.com/athletic/6638413/2025/09/17/chargers-khalil-mack-elbow-injury-update/
+
 **Thieves Steal $700,000 in Gold From Natural History Museum in Paris**\
 `The heist was the latest in a string of thefts at museums in France.`\
 https://nytimes.com/2025/09/17/us/paris-museum-gold-theft.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6638524/2025/09/17/mercury-vs-liberty-stream-how-to
 **What to know about the Fed’s rate decision.**\
 `By Colby Smith`\
 https://nytimes.com/live/2025/09/17/business/federal-reserve-interest-rates/what-to-know-about-the-feds-rate-decision
-
-**Alex Formenton, reinstated after Hockey Canada trial, will not be back with Senators, GM says**\
-`GM Steve Staios said the Senators will "gauge the market" to see if they can trade Formenton's rights, which Ottawa still owns.`\
-https://nytimes.com/athletic/6638255/2025/09/17/alex-formenton-senators-hockey-canada-nhl-news/
 
