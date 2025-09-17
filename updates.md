@@ -1,3 +1,15 @@
+**Fall Video Games**\
+`What new games are you playing? What upcoming releases are you most looking forward to?`\
+https://nytimes.com/2025/09/17/learning/fall-video-games.html
+
+**A Tossup Race for Governor Draws Big Money and a Bright Spotlight**\
+`National party leaders have taken a keen interest in the race for governor of New Jersey, where Jack Ciattarelli, a Republican, is competing against Representative Mikie Sherrill, a Democrat.`\
+https://nytimes.com/2025/09/17/nyregion/new-jersey-governors-race.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/09/17/crosswords/spelling-bee-forum.html
+
 **Most U.K. Political Leaders Are Cautiously Welcoming Trump. Not This One.**\
 `Ed Davey, of the Liberal Democrats, says that President Trump does not represent British values, and is boycotting a state dinner with the U.S. leader over Gaza.`\
 https://nytimes.com/2025/09/17/world/europe/ed-davey-trump-uk-state-dinner-boycott.html
