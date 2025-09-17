@@ -1,3 +1,7 @@
+**Ask The Morning: What Do You Want to Know About Drones?**\
+`Drone attacks have become ubiquitous in warfare. We’ll find experts to answer your questions.`\
+https://nytimes.com/2025/09/17/education/ask-the-morning-what-do-you-want-to-know-about-drones.html
+
 **Trump’s Second U.K. State Visit Draws Protests**\
 `As President Trump arrived in Britain on Tuesday night, protesters unveiled visual stunts aimed at highlighting his ties to Jeffrey Epstein, while a march was planned for Wednesday.`\
 https://nytimes.com/2025/09/17/world/europe/trump-uk-visit-protest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/17/world/europe/ed-davey-trump-uk-state-dinner-boyco
 **Criticised by his manager and jeered by his old fans, Romain Esse is struggling at Crystal Palace**\
 `The 20-year-old drew the ire of Oliver Glasner and suffered the embarrassment of being substituted off at half-time against Millwall`\
 https://nytimes.com/athletic/6626372/2025/09/17/romain-esse-crystal-palace-millwall-glasner/
-
-**How to watch Chiefs at Giants: Time, TV, streaming**\
-`Find out how to watch the Kansas City Chiefs play the New York Giants, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6636540/2025/09/17/chiefs-vs-giants-stream-how-to-watch-sept-21/
 
