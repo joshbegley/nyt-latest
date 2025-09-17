@@ -1,3 +1,7 @@
+**Mariners' Cal Raleigh sets single-season HR record by switch-hitter**\
+`Raleigh, the 2025 Home Run Derby winner, passed Mickey Mantle in the record books with his latest blast.`\
+https://nytimes.com/athletic/6635966/2025/09/16/seattle-mariners-cal-raleigh-passes-mickey-mantle/
+
 **Fired by Trump, a Former Labor Official Warns Against Politicizing Economic Data**\
 `Erika McEntarfer, in her first appearance since she was ousted from the Bureau of Labor Statistics, cautioned that “economic data must be free from partisan influence.”`\
 https://nytimes.com/2025/09/16/business/fired-by-trump-a-former-labor-official-warns-against-politicizing-economic-data.html

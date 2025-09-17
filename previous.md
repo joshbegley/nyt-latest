@@ -1,3 +1,7 @@
+**Mariners' Cal Raleigh sets single-season HR record by switch-hitter**\
+`Raleigh, the 2025 Home Run Derby winner, passed Mickey Mantle in the record books with his latest blast.`\
+https://nytimes.com/athletic/6635966/2025/09/16/seattle-mariners-cal-raleigh-passes-mickey-mantle/
+
 **Fired by Trump, a Former Labor Official Warns Against Politicizing Economic Data**\
 `Erika McEntarfer, in her first appearance since she was ousted from the Bureau of Labor Statistics, cautioned that “economic data must be free from partisan influence.”`\
 https://nytimes.com/2025/09/16/business/fired-by-trump-a-former-labor-official-warns-against-politicizing-economic-data.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6635942/2025/09/16/cubs-vs-pirates-stream-how-to-wa
 **Why Robert Redford and 'The Natural' still resonate with sports fans**\
 `“The Natural” is filled with iconic moments where Hobbs achieves the sports accomplishments most of us can only dream about.`\
 https://nytimes.com/athletic/6634392/2025/09/16/robert-redford-the-natural-baseball/
-
-**Retired Admiral Is Sentenced to 6 Years in Prison for Bribery**\
-`Robert P. Burke, a retired four-star admiral, was convicted in May of exchanging a government contract for a lucrative post-retirement job with the company that got it.`\
-https://nytimes.com/2025/09/16/us/us-navy-admiral-bribery-sentencing.html
 
