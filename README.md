@@ -1,5 +1,9 @@
+**Twins eliminate four-person pro scouting department: Sources**\
+`The moves come about a month after the Pohlad family announced it ended its exploration of a sale.`\
+https://nytimes.com/athletic/6636141/2025/09/16/minnesota-twins-pro-scouting-department-developments/
+
 **Florida assistant Jabbar Juluke suspended 3 games for role in scuffle at LSU**\
-`SEC and Florida jointly announce punishment, say coach did not de-escalate tense pre-game situation.`\
+`SEC and Florida jointly announce punishment, and said coach did not de-escalate the tense pre-game situation.`\
 https://nytimes.com/athletic/6636127/2025/09/16/florida-assistant-jabbar-juluke-suspended-lsu/
 
 **Democrat Wins Seat of Slain Minnesota Lawmaker; State House Evenly Split**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/16/us/politics/kash-patel-senate-hearing-fbi.html
 **F.B.I. Director Clashes With Democrats During Hearing**\
 `Kash Patel, the F.B.I. director, butted heads with Democratic senators during a Judiciary Committee hearing, where lawmakers questioned him about his missteps in recent months.`\
 https://nytimes.com/video/us/politics/100000010403303/patel-judiciary-committee-hearing.html
-
-**Tim Weah, an iconic magazine shoot and an historic Champions League goal**\
-`The USMNT star edged out of his father's shadow with his historic Champions League goal at the Bernabeu`\
-https://nytimes.com/athletic/6635589/2025/09/16/tim-weah-usmnt-real-madrid-goal/
 
