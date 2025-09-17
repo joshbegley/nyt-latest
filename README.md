@@ -1,3 +1,7 @@
+**Word of the Day: montage**\
+`This word has appeared in 190 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/09/17/learning/word-of-the-day-montage.html
+
 **Barefoot and grounded, AJ Blubaugh has put himself on the Astros' map**\
 `About an hour before stretching or starting his throwing program, Blubaugh takes a barefoot walk around the warning track.`\
 https://nytimes.com/athletic/6636435/2025/09/17/barefoot-aj-blubaugh-grounding-astros-pitcher-rangers/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/17/briefing/israel-gaza-city-offensive-trump-visit.h
 **How Slot and Liverpool have learned from last season's Champions League**\
 `Expect more rotation at Anfield this season after the Dutch coach was stung by last season's European exit to PSG`\
 https://nytimes.com/athletic/6619412/2025/09/17/liverpool-arne-slot-champions-league-lessons/
-
-**West Ham mailbag: Board view of fan protests, plus Potter's fight, the stadium and relegation**\
-`Roshane Thomas has answered your questions about West Ham amid their difficulties on and off the pitch`\
-https://nytimes.com/athletic/6633716/2025/09/17/west-ham-mailbag-protests-potter-stadium/
 
