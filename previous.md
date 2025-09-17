@@ -1,3 +1,11 @@
+**Melania Trump Takes Royal Refuge in Fashion**\
+`A floor-length Burberry trench, an eye-obscuring hat and a yellow gown made quite a statement during the Trumps’ state visit to Britain.`\
+https://nytimes.com/2025/09/17/style/melania-trump-state-visit-fashion.html
+
+**5 Takeaways From Ousted C.D.C. Director’s Hearing**\
+`Susan Monarez, the head of the public health agency for barely a month, repeatedly told senators that Health Secretary Robert F. Kennedy Jr. was ignoring science in undercutting vaccines.`\
+https://nytimes.com/2025/09/17/health/5-takeaways-from-ousted-cdc-directors-hearing.html
+
 **Here’s Who Attended the State Dinner at Windsor Castle**\
 `The guest list ranged from members of the royal family to titans of business and technology.`\
 https://nytimes.com/2025/09/17/world/europe/guest-list-state-dinner-windsor-castle.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/17/weather/hurricane-season-forecast-updates.html
 **Liverpool 3 Atletico 2: How did they win it late again? Why did Simeone see red? How was Isak’s debut?**\
 `Virgil van Dijk's winner ensured a late, late show for Liverpool once again`\
 https://nytimes.com/athletic/6634151/2025/09/17/liverpool-3-atletico-madrid-2-van-dijk-isak/
-
-**Europe’s far-right and Charlie Kirk**\
-`The continent’s far right is claiming the activist as a martyr. Our colleague Jason Horowitz explains why.`\
-https://nytimes.com/2025/09/17/briefing/europes-far-right-charlie-kirk-trump-uk-state-visit.html
-
-**Missing Teen’s Remains Found in Tesla Registered to the Singer D4vd**\
-`The decomposing body of Celeste Rivas, who was reported missing in April 2024 in Southern California, was found inside the vehicle in an impound lot, the authorities said.`\
-https://nytimes.com/2025/09/17/us/tesla-body-found-d4vd.html
 

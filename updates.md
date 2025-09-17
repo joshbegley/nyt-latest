@@ -1,3 +1,11 @@
+**Melania Trump Takes Royal Refuge in Fashion**\
+`A floor-length Burberry trench, an eye-obscuring hat and a yellow gown made quite a statement during the Trumps’ state visit to Britain.`\
+https://nytimes.com/2025/09/17/style/melania-trump-state-visit-fashion.html
+
+**5 Takeaways From Ousted C.D.C. Director’s Hearing**\
+`Susan Monarez, the head of the public health agency for barely a month, repeatedly told senators that Health Secretary Robert F. Kennedy Jr. was ignoring science in undercutting vaccines.`\
+https://nytimes.com/2025/09/17/health/5-takeaways-from-ousted-cdc-directors-hearing.html
+
 **Here’s Who Attended the State Dinner at Windsor Castle**\
 `The guest list ranged from members of the royal family to titans of business and technology.`\
 https://nytimes.com/2025/09/17/world/europe/guest-list-state-dinner-windsor-castle.html
