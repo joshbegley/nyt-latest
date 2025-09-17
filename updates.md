@@ -1,3 +1,7 @@
+**Powell Faces Challenges From Within the Fed, Too**\
+`The central bank is expected to reduce interest rates on Wednesday. But there could be a internal debate about the size of a cut , and how many more to make.`\
+https://nytimes.com/2025/09/17/business/dealbook/powell-fed-rates.html
+
 **TAFC: Role reversal for Mbappe and Vinicius Jr, Liga MX thinking big**\
 `Today in TAFC: What a difference a year makes for Mbappe and Vinicius Jr. Plus: Liga MX thinks big and the FBI director - Liverpool fan.`\
 https://nytimes.com/athletic/6636710/2025/09/17/champions-league-real-madrid-mbappe-vinicius/
