@@ -1,3 +1,11 @@
+**Many Minor Hits Can Damage an Athlete’s Brain**\
+`New research in amateur football and soccer players has identified some potential early warning signs of C.T.E.`\
+https://nytimes.com/2025/09/17/well/mind/brain-damage-sports.html
+
+**Bear Injures Hiker at Yellowstone National Park in Surprise Encounter**\
+`In a rare confrontation, a 29-year-old man suffered injuries to his chest and left arm, park officials said.`\
+https://nytimes.com/2025/09/17/us/bear-yellowstone-park-injures-hiker.html
+
 **Republican Senator Casts Doubt on Kennedy’s Vaccine Advisers**\
 `Senator Bill Cassidy, the chairman of the health committee, said Americans should not trust a possible change to the childhood vaccine guidance.`\
 https://nytimes.com/2025/09/17/us/politics/cassidy-vaccine-panel-doubt.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000010405823/air-traffic-control-spirit-airlines
 **What we heard at Canucks media day ahead of training camp, and what it all means**\
 `Several burning topics were addressed in advance of a critical season for a franchise caught at something of a crossroads.`\
 https://nytimes.com/athletic/6638226/2025/09/17/canucks-training-camp-2025-rutherford-hughes/
-
-**Utah Mammoth to waive goalie Connor Ingram – where might he land?**\
-`Ingram is only one year removed from an outstanding 2023-24 campaign, but he also has a large salary-cap hit.`\
-https://nytimes.com/athletic/6638617/2025/09/17/connor-ingram-trade-waivers-mammoth/
-
-**Here’s the menu for the state dinner at Windsor Castle.**\
-`(No description)`\
-https://nytimes.com/2025/09/17/world/europe/heres-the-menu-for-the-state-dinner-at-windsor-castle.html
 
