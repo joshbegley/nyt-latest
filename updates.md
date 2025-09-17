@@ -1,3 +1,15 @@
+**NWSL's Boston Legacy secures $100 million loan for White Stadium project**\
+`The expansion team will play its inaugural 2026 season at Gillette Stadium before moving to White Stadium in 2027`\
+https://nytimes.com/athletic/6639025/2025/09/17/nwsl-boston-legacy-100-million-stadium-loan/
+
+**Have a Bengals question? Send it to beat writer Paul Dehner Jr. for an upcoming mailbag**\
+`Cincinnati heads north to play the Minnesota Vikings on Sunday as Jake Browning takes over at quarterback.`\
+https://nytimes.com/athletic/6639030/2025/09/17/bengals-mailbag-questions-dehner-vikings/
+
+**ABC Pulls Jimmy Kimmel Off Air for Charlie Kirk Comments**\
+`Mr. Kimmel faced some criticism for comments he made on Monday about the motives of the man who is accused of killing Mr. Kirk, the conservative activist.`\
+https://nytimes.com/2025/09/17/business/media/abc-jimmy-kimmel.html
+
 **ABC Pulls Jimmy Kimmel Off Air for Charlie Kirk Comments**\
 `Mr. Kimmel faced some criticism for comments he made on Monday about the motives of the man who is accused of killing Charlie Kirk.`\
 https://nytimes.com/2025/09/17/business/media/abc-jimmy-kimmel.html
