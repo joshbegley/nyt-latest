@@ -1,3 +1,7 @@
+**Israel Says It Will Defund Film Awards After Palestinian Win**\
+`A drama about a Palestinian boy who sneaks into Israel won the top prize at Israel’s version of the Oscars. The country’s culture minister called the ceremony “shameful.”`\
+https://nytimes.com/2025/09/17/movies/israel-palestine-film-oscars.html
+
 **Tkachuk injury update: Panthers star out until at least December, GM says**\
 `Tkachuk is recovering from summer surgery for injuries sustained in the 4 Nations Face-Off tournament.`\
 https://nytimes.com/athletic/6638211/2025/09/17/matthew-tkachuk-injury-florida-panthers-nhl-olympics/
