@@ -1,5 +1,13 @@
+**NWSL's Boston Legacy secures $100 million loan for White Stadium project**\
+`The expansion team will play its inaugural 2026 season at Gillette Stadium before moving to White Stadium in 2027`\
+https://nytimes.com/athletic/6639025/2025/09/17/nwsl-boston-legacy-100-million-stadium-loan/
+
+**Have a Bengals question? Send it to beat writer Paul Dehner Jr. for an upcoming mailbag**\
+`Cincinnati heads north to play the Minnesota Vikings on Sunday as Jake Browning takes over at quarterback.`\
+https://nytimes.com/athletic/6639030/2025/09/17/bengals-mailbag-questions-dehner-vikings/
+
 **ABC Pulls Jimmy Kimmel Off Air for Charlie Kirk Comments**\
-`Mr. Kimmel faced some criticism for comments he made on Monday about the motives of the man who is accused of killing Charlie Kirk.`\
+`Mr. Kimmel faced some criticism for comments he made on Monday about the motives of the man who is accused of killing Mr. Kirk, the conservative activist.`\
 https://nytimes.com/2025/09/17/business/media/abc-jimmy-kimmel.html
 
 **Upending Precedent, Thune Bows To Realities of a Polarized Senate**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6638854/2025/09/17/oilers-mcdavid-hyman-training-ca
 **What we learned from Doug Armstrong's final season preview as Blues GM**\
 `Armstrong addressed Holloway's health, Holloway and Broberg's contracts, Lucic's second chance, Mailloux's roster spot and more.`\
 https://nytimes.com/athletic/6637661/2025/09/17/blues-season-preview-doug-armstrong/
-
-**Fed Lowers Interest Rates by Quarter Point**\
-`Jerome Powell, the Fed Chair, announced interest rate cuts by a quarter of a percentage point on Wednesday.`\
-https://nytimes.com/video/business/100000010406118/fed-interest-rate-powell.html
-
-**Russia, China and Iran Use Kirk’s Murder to Stoke Conspiracy Theories and Division**\
-`State media and online trolls have seized on the assassination to score geopolitical points against the United States, according to a new report.`\
-https://nytimes.com/2025/09/17/business/russia-china-iran-charlie-kirk-conspiracy-theories.html
 

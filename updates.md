@@ -1,3 +1,11 @@
+**ABC Pulls Jimmy Kimmel Off Air for Charlie Kirk Comments**\
+`Mr. Kimmel faced some criticism for comments he made on Monday about the motives of the man who is accused of killing Charlie Kirk.`\
+https://nytimes.com/2025/09/17/business/media/abc-jimmy-kimmel.html
+
+**Upending Precedent, Thune Bows To Realities of a Polarized Senate**\
+`In using the nuclear option, John Thune has turned a Senate precedent on its head, defying his reputation as an institutionalist.`\
+https://nytimes.com/2025/09/17/us/politics/john-thune-senate-filibuster.html
+
 **Support for Federal Vaccine Policy May Be Eroding**\
 `Insurers suggested they would still cover routine shots even if a C.D.C. panel tried to limit them, as an influential senator warned against new restrictions.`\
 https://nytimes.com/2025/09/17/health/kennedy-acip-insurers-cassidy.html
