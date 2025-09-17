@@ -1,3 +1,7 @@
+**Fed Lowered Rates for First Time This Year**\
+`Also, Trump received a royal welcome in Britain. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/09/17/briefing/fed-interest-rates-cdc-leader-testimony.html
+
 **Many Minor Hits Can Damage an Athlete’s Brain**\
 `New research in amateur football and soccer players has identified some potential early warning signs of C.T.E.`\
 https://nytimes.com/2025/09/17/well/mind/brain-damage-sports.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/17/world/europe/windsor-castles-state-dinner-feature
 **Spirit Airlines Pilot Scolded for Apparently Flying Near Air Force One**\
 `An air traffic controller can be heard telling a Spirit Airlines pilot to “pay attention” after flying too close to Air Force One, according to audio taken from LiveATC.net, a website that broadcasts air traffic control communications.`\
 https://nytimes.com/video/us/100000010405823/air-traffic-control-spirit-airlines-scolded.html
-
-**What we heard at Canucks media day ahead of training camp, and what it all means**\
-`Several burning topics were addressed in advance of a critical season for a franchise caught at something of a crossroads.`\
-https://nytimes.com/athletic/6638226/2025/09/17/canucks-training-camp-2025-rutherford-hughes/
 
