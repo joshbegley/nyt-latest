@@ -1,3 +1,11 @@
+**Barefoot and grounded, AJ Blubaugh has put himself on the Astros' map**\
+`About an hour before stretching or starting his throwing program, Blubaugh takes a barefoot walk around the warning track.`\
+https://nytimes.com/athletic/6636435/2025/09/17/barefoot-aj-blubaugh-grounding-astros-pitcher-rangers/
+
+**Tottenham will need patience while their attack takes time to gel**\
+`Tottenham beat Villarreal 1-0 in the Champions League but struggled to create chances from open play`\
+https://nytimes.com/athletic/6635956/2025/09/17/tottenham-open-play-attack-analysis/
+
 **Sancho has immense talent, but will he give Aston Villa what they need?**\
 `Jadon Sancho made his Aston Villa debut in the Caraba Cup against Brentford on Tuesday night`\
 https://nytimes.com/athletic/6610349/2025/09/17/jadon-sancho-aston-villa-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6619412/2025/09/17/liverpool-arne-slot-champions-le
 **West Ham mailbag: Board view of fan protests, plus Potter's fight, the stadium and relegation**\
 `Roshane Thomas has answered your questions about West Ham amid their difficulties on and off the pitch`\
 https://nytimes.com/athletic/6633716/2025/09/17/west-ham-mailbag-protests-potter-stadium/
-
-**Gone in 36 seconds: How Martinelli turned the tide to showcase Arsenal's new depth**\
-`The Brazilian forward did not start, but he finished with aplomb as Mikel Arteta's side made an impressive start in the Champions League`\
-https://nytimes.com/athletic/6635423/2025/09/17/martinelli-arsenal-trossard-athletic-arteta/
-
-**Why Atletico Madrid's $400m transfer spend leaves Diego Simeone in a tough spot**\
-`The Spanish club have once again invested heavily this summer, but things aren't yet going to plan`\
-https://nytimes.com/athletic/6633688/2025/09/17/atletico-madrid-champions-league-diego-simeone-liverpool/
 
