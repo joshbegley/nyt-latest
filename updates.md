@@ -1,3 +1,15 @@
+**Cubs clinch a postseason berth for first time since 2020**\
+`The Cubs are the third National League team to punch their ticket to the postseason.`\
+https://nytimes.com/athletic/6638609/2025/09/17/chicago-cubs-postseason-clinch-2025/
+
+**A Group of Socialists Created a Hit Game That Tore Them Apart**\
+`The role-playing game Disco Elysium wowed critics by lacerating capitalism, communism and fascism. But instead of a sequel came bitter lawsuits and five rival studios.`\
+https://nytimes.com/interactive/2025/09/17/arts/2025-07-15-discoelysium.html
+
+**Chargers' Khalil Mack headed to IR, but elbow injury isn't season-ending**\
+`Mack will miss at least the next four games, but the news was still "very encouraging" for the Chargers.`\
+https://nytimes.com/athletic/6638413/2025/09/17/chargers-khalil-mack-elbow-injury-update/
+
 **Thieves Steal $700,000 in Gold From Natural History Museum in Paris**\
 `The heist was the latest in a string of thefts at museums in France.`\
 https://nytimes.com/2025/09/17/us/paris-museum-gold-theft.html
