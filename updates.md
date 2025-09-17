@@ -1,3 +1,7 @@
+**Isaac Nader outkicks Jake Wightman in thrilling 1,500-meter final at world championships**\
+`Portugal's Nader came from the middle of the pack to chase down Great Britain's Wightman by 0.02 seconds Wednesday in Tokyo.`\
+https://nytimes.com/athletic/6637237/2025/09/17/isaac-nader-jake-wightman-josh-kerr-1500-world-championships/
+
 **We Are Going to Have to Live Here With One Another**\
 `Ben Shapiro and I discuss the state — and stakes — of political disagreement in America.`\
 https://nytimes.com/video/opinion/100000010402881/we-are-going-to-have-to-live-here-with-one-another.html
