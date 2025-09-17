@@ -1,3 +1,7 @@
+**Hiker Found Dead in Cascade Mountains of Washington State After Apparent Fall**\
+`The Long Island man, 37, was hiking near Dragontail Peak, a rugged region of the Alpine Lakes Wilderness.`\
+https://nytimes.com/2025/09/16/us/hiker-death-enchantments-washington.html
+
 **‘Alien: Earth’ Episode 7 Recap: My Pet Monster**\
 `This week the action is divided primarily between two separate attempts to get off Boy Kavalier’s Neverland island.`\
 https://nytimes.com/2025/09/16/arts/television/alien-earth-episode-7-recap.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/16/us/politics/trump-kirk-free-speech-hate-speech-le
 **M's Cal Raleigh sets single-season HR record by switch-hitter, ties team record**\
 `Catcher passes Mickey Mantle for switch-hitter record, ties Ken Griffey Jr.'s franchise mark.`\
 https://nytimes.com/athletic/6635966/2025/09/16/seattle-mariners-cal-raleigh-passes-mickey-mantle/
-
-**Fired by Trump, a Former Labor Official Warns Against Politicizing Economic Data**\
-`Erika McEntarfer, in her first appearance since she was ousted from the Bureau of Labor Statistics, cautioned that “economic data must be free from partisan influence.”`\
-https://nytimes.com/2025/09/16/business/fired-by-trump-a-former-labor-official-warns-against-politicizing-economic-data.html
 
