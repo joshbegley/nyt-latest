@@ -1,3 +1,11 @@
+**No snarls this time as Messi leads Miami to win over Seattle**\
+`The 3-1 win moves Miami up to fifth in the Eastern Conference with three games in hand.`\
+https://nytimes.com/athletic/6636093/2025/09/16/lionel-messi-inter-miami-seattle-sounders-win/
+
+**The Cubs’ message to Pete Crow-Armstrong:'You’re going to be a complete animal in the playoffs.'**\
+`Crow-Armstrong has a .211 batting average and .626 OPS since the All-Star break but remains confident heading into the playoffs. `\
+https://nytimes.com/athletic/6636241/2025/09/16/cubs-pete-crow-armstrong-playoffs/
+
 **Hiker Found Dead in Cascade Mountains of Washington State After Apparent Fall**\
 `The Long Island man, 37, was hiking near Dragontail Peak, a rugged region of the Alpine Lakes Wilderness.`\
 https://nytimes.com/2025/09/16/us/hiker-death-enchantments-washington.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/16/us/minnesota-election-slain-lawmaker.html
 **Nebraska volleyball breaks NCAA attendance record for regular-season indoor match**\
 `Tuesday's game between No. 1-ranked Nebraska women and 18th-ranked Creighton beat an attendance record from 2023.`\
 https://nytimes.com/athletic/6636101/2025/09/16/nebraska-creighton-volleyball-ncaa-attendance-record/
-
-**Trump Invokes Kirk’s Killing in Justifying Measures to Silence Opponents**\
-`In the wake of Charlie Kirk’s killing, President Trump and his allies have laid out a broad plan to target liberal groups, monitor speech, revoke visas and designate certain groups as domestic terrorists.`\
-https://nytimes.com/2025/09/16/us/politics/trump-kirk-free-speech-hate-speech-left.html
-
-**M's Cal Raleigh sets single-season HR record by switch hitter, ties team record**\
-`Catcher passes Mickey Mantle for switch hitter record, ties Ken Griffey Jr.'s franchise mark.`\
-https://nytimes.com/athletic/6635966/2025/09/16/seattle-mariners-cal-raleigh-passes-mickey-mantle/
 
