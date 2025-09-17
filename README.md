@@ -1,5 +1,13 @@
-**Chargers' Khalil Mack headed to IR but elbow injury isn't season-ending**\
-`Mack will miss at least the next four games but the news was still "very encouraging" for the Chargers.`\
+**Cubs clinch a postseason berth for first time since 2020**\
+`The Cubs are the third National League team to punch their ticket to the postseason.`\
+https://nytimes.com/athletic/6638609/2025/09/17/chicago-cubs-postseason-clinch-2025/
+
+**A Group of Socialists Created a Hit Game That Tore Them Apart**\
+`The role-playing game Disco Elysium wowed critics by lacerating capitalism, communism and fascism. But instead of a sequel came bitter lawsuits and five rival studios.`\
+https://nytimes.com/interactive/2025/09/17/arts/2025-07-15-discoelysium.html
+
+**Chargers' Khalil Mack headed to IR, but elbow injury isn't season-ending**\
+`Mack will miss at least the next four games, but the news was still "very encouraging" for the Chargers.`\
 https://nytimes.com/athletic/6638413/2025/09/17/chargers-khalil-mack-elbow-injury-update/
 
 **Thieves Steal $700,000 in Gold From Natural History Museum in Paris**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6638252/2025/09/17/flames-mikael-backlund-contract-
 **How to watch Lynx at Valkyries: Game 2 Time, TV, streaming**\
 `Find out how to watch the Minnesota Lynx play the Golden State Valkyries, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6638526/2025/09/17/lynx-vs-valkyries-stream-how-to-watch-sept-17/
-
-**How to watch Mercury at Liberty: Game 2 Time, TV, streaming**\
-`Find out how to watch the Phoenix Mercury play the New York Liberty, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6638524/2025/09/17/mercury-vs-liberty-stream-how-to-watch-sept-17/
-
-**What to know about the Fed’s rate decision.**\
-`By Colby Smith`\
-https://nytimes.com/live/2025/09/17/business/federal-reserve-interest-rates/what-to-know-about-the-feds-rate-decision
 
