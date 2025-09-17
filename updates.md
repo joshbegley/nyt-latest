@@ -1,3 +1,7 @@
+**How to watch Chiefs at Giants: Time, TV, streaming**\
+`Find out how to watch the Kansas City Chiefs play the New York Giants, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6636540/2025/09/17/chiefs-vs-giants-stream-how-to-watch-sept-21/
+
 **How to watch Marlins at Rockies: Time, TV, streaming for September 17**\
 `Find out how to watch the Miami Marlins play the Colorado Rockies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6636530/2025/09/17/marlins-vs-rockies-stream-how-to-watch-sept-17/

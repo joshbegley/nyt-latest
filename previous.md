@@ -1,3 +1,7 @@
+**How to watch Chiefs at Giants: Time, TV, streaming**\
+`Find out how to watch the Kansas City Chiefs play the New York Giants, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6636540/2025/09/17/chiefs-vs-giants-stream-how-to-watch-sept-21/
+
 **How to watch Marlins at Rockies: Time, TV, streaming for September 17**\
 `Find out how to watch the Miami Marlins play the Colorado Rockies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6636530/2025/09/17/marlins-vs-rockies-stream-how-to-watch-sept-17/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6636512/2025/09/17/braves-vs-nationals-stream-how-t
 **How to watch Reds at Cardinals: Time, TV, streaming for September 17**\
 `Find out how to watch the Cincinnati Reds play the St. Louis Cardinals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6636510/2025/09/17/reds-vs-cardinals-stream-how-to-watch-sept-17/
-
-**How to watch Orioles at White Sox: Time, TV, streaming for September 17**\
-`Find out how to watch the Baltimore Orioles play the Chicago White Sox, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6636507/2025/09/17/orioles-vs-white-sox-stream-how-to-watch-sept-17/
 
