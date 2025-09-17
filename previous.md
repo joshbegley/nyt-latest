@@ -1,5 +1,5 @@
-**Mariners' Cal Raleigh sets single-season HR record by switch-hitter, ties franchise record**\
-`Raleigh, the 2025 Home Run Derby winner, passed Mickey Mantle in the record books with his latest blast.`\
+**M's Cal Raleigh sets single-season HR record by switch-hitter, ties team record**\
+`Catcher passes Mickey Mantle for switch-hitter record, ties Ken Griffey Jr.'s franchise mark.`\
 https://nytimes.com/athletic/6635966/2025/09/16/seattle-mariners-cal-raleigh-passes-mickey-mantle/
 
 **Fired by Trump, a Former Labor Official Warns Against Politicizing Economic Data**\
