@@ -1,3 +1,11 @@
+**Using tandem starters, Mets provide a glimpse of a late-season blueprint**\
+`New York contemplated piggybacking starters to maximize their advantage before injuries derailed the plan earlier this season. `\
+https://nytimes.com/athletic/6636257/2025/09/16/mets-tandem-pitching-clay-holmes-sean-manaea/
+
+**WNBA playoff takeaways: Fever survive to force decisive Game 3**\
+`The Fever earned their first playoff win since 2015.`\
+https://nytimes.com/athletic/6636262/2025/09/16/wnba-playoff-takeaways-fever/
+
 **No snarls this time as Messi leads Miami to win over Seattle**\
 `The 3-1 win moves Miami up to fifth in the Eastern Conference with three games in hand.`\
 https://nytimes.com/athletic/6636093/2025/09/16/lionel-messi-inter-miami-seattle-sounders-win/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6636141/2025/09/16/minnesota-twins-pro-scouting-dep
 **Florida assistant Jabbar Juluke suspended 3 games for role in scuffle at LSU**\
 `SEC and Florida jointly announce punishment, and said coach did not de-escalate the tense pre-game situation.`\
 https://nytimes.com/athletic/6636127/2025/09/16/florida-assistant-jabbar-juluke-suspended-lsu/
-
-**Democrat Wins Seat of Slain Minnesota Lawmaker; State House Evenly Split**\
-`Xp Lee, a former City Council member, won a special election to replace his political mentor, former Minnesota House Speaker Melissa Hortman, who was assassinated in June.`\
-https://nytimes.com/2025/09/16/us/minnesota-election-slain-lawmaker.html
-
-**Nebraska volleyball breaks NCAA attendance record for regular-season indoor match**\
-`Tuesday's game between No. 1-ranked Nebraska women and 18th-ranked Creighton beat an attendance record from 2023.`\
-https://nytimes.com/athletic/6636101/2025/09/16/nebraska-creighton-volleyball-ncaa-attendance-record/
 
