@@ -1,3 +1,19 @@
+**What does Zack Wheeler face after TOS surgery? Merrill Kelly's recovery offers insight**\
+`There is no one-size-fits-all recovery path. Kelly's post-surgery career success, however, offers some lessons for what could await Wheeler.`\
+https://nytimes.com/athletic/6621411/2025/09/17/zack-wheeler-phillies-thoracic-outlet-surgery/
+
+**The Tigers are going to hold on to the AL Central … right?**\
+`Detroit is only 5-8 in September, fighting to hold onto the division and their playoff seeding with 11 games left.`\
+https://nytimes.com/athletic/6636282/2025/09/17/tigers-al-central-playoff-race-mlb/
+
+**Israel’s Assault on Gaza City Stifles Hope of Diplomatic Resolution to War**\
+`A negotiated settlement to end the fighting remains distant, in part because of the maximalist positions of Israel’s leader, Benjamin Netanyahu, and of Hamas.`\
+https://nytimes.com/2025/09/17/world/middleeast/israel-assault-gaza-city-diplomacy.html
+
+**College football Week 4 streaming guide: Texas Tech-Utah, Florida-Miami, B1G After Dark**\
+`Here are this weekend's games to watch for in college football, from ranked Big Ten, Big 12 and SEC action to an 11 p.m. ET kickoff.`\
+https://nytimes.com/athletic/6632432/2025/09/17/texas-tech-utah-miami-florida-big-ten-college-football-week-4-how-to-watch/
+
 **Guadalajara, 'the most Mexican' city, eyes its next World Cup moment**\
 `Guadalajara is getting a glow-up for the World Cup, but visitors will still find a host whose soul is steeped in local pride and culture`\
 https://nytimes.com/athletic/6599625/2025/09/17/guadalajara-mexico-2026-world-cup-host/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6635719/2025/09/17/indiana-illinois-matchup-history
 **Rangers depth chart: Breaking down every position entering 2025-26**\
 `The Rangers have brought in a number of new names since the start of last season. Who looks likely to play where?`\
 https://nytimes.com/athletic/6634212/2025/09/17/new-york-rangers-depth-chart-roster-analysis/
-
-**How much longer will Micah Parsons be limited? Packers mailbag**\
-`The Packers will try to start the season 3-0 when they visit the 0-2 Browns on Sunday afternoon.`\
-https://nytimes.com/athletic/6635524/2025/09/17/packers-mailbag-micah-parsons-week-3/
-
-**Draft bust or breakout candidate? 7 NHL players under 23 who need to step up**\
-`Will these recent first-rounders under 23 finally put it together and reach their NHL potential this season?`\
-https://nytimes.com/athletic/6616791/2025/09/17/nhl-under-23-breakout-candidates/
-
-**Dodgers waste more Shohei Ohtani brilliance with another bullpen meltdown**\
-`The Dodgers already were positioned to lean on their rotation as a strength this October. Now it might be a necessity.`\
-https://nytimes.com/athletic/6636549/2025/09/17/dodgers-phillies-shohei-ohtani-bullpen-meltdown/
-
-**Reds' playoff chances take further hit with loss in St. Louis**\
-`While the Reds lost to the Cardinals, the Mets won, pushing Cincinnati to three games behind New York for the final playoff spot.`\
-https://nytimes.com/athletic/6636283/2025/09/17/reds-playoff-chances-take-hit/
 
