@@ -1,3 +1,11 @@
+**After Kaleb Johnson's gaffe, Steelers plan a change on kickoff returns**\
+`The rookie's mistake resulted in a Seahawks touchdown on Sunday.`\
+https://nytimes.com/athletic/6637487/2025/09/17/kaleb-johnson-kickoff-return-mistake-steelers-seahawks/
+
+**Leafs captain Auston Matthews gives health update: ‘I’m feeling really good’**\
+`Leafs captain, who has said he played through injury for much of last season, will seek to ‘manage’ his health ‘as the season goes along.’`\
+https://nytimes.com/athletic/6637376/2025/09/17/leafs-auston-matthews-health-training-camp/
+
 **Silver: Investigation will 'get to the bottom' of Kawhi Leonard endorsement case**\
 `"I don't know anything about Kawhi's deal. Show, no show. We'll certainly find out," Silver said.`\
 https://nytimes.com/athletic/6637165/2025/09/17/nba-investigation-kawhi-leonard-adam-silver/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/09/17/us/trump-news/heres-the-latest
 **Juventus 4-4 Borussia Dortmund: Breaking down an instant Champions League classic**\
 `This was football's most prestigious club competition at its very best, whetting our appetites for the campaign ahead`\
 https://nytimes.com/athletic/6636994/2025/09/17/juventus-4-4-borussia-dortmund-champions-league-analysis/
-
-**Gilded Carriages and Bearskin Hats: U.K. Royals Welcome Trump**\
-`Photographs of the pomp and spectacle of the U.S. president’s second state visit to Britain.`\
-https://nytimes.com/2025/09/17/world/europe/trump-uk-state-visit-photos.html
-
-**Bad Bunny and Ca7riel & Paco Amoroso Lead 2025 Latin Grammys Field**\
-`The Puerto Rican superstar, with 12 nods, and the multigenre duo from Argentina, with 10, will compete in the biggest categories.`\
-https://nytimes.com/2025/09/17/arts/music/latin-grammy-nominations-bad-bunny.html
 

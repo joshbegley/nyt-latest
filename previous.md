@@ -1,3 +1,11 @@
+**Silver: Investigation will 'get to the bottom' of Kawhi Leonard endorsement case**\
+`"I don't know anything about Kawhi's deal. Show, no show. We'll certainly find out," Silver said.`\
+https://nytimes.com/athletic/6637165/2025/09/17/nba-investigation-kawhi-leonard-adam-silver/
+
+**NFL Week 3 survivor pool picks, strategy: To use or save the Packers?**\
+`Our weekly column doling out strategy, chalk picks and contrarian picks for your survivor pool. This week, the Packers are in the spotlight.`\
+https://nytimes.com/athletic/6634921/2025/09/17/nfl-survivor-pool-week-3-picks-strategy-packers-seahawks/
+
 **Isaac Nader outkicks Jake Wightman in thrilling 1,500-meter final at world championships**\
 `Portugal's Nader came from the middle of the pack to chase down Great Britain's Wightman by 0.02 seconds Wednesday in Tokyo.`\
 https://nytimes.com/athletic/6637237/2025/09/17/isaac-nader-jake-wightman-josh-kerr-1500-world-championships/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/17/world/europe/trump-uk-state-visit-photos.html
 **Bad Bunny and Ca7riel & Paco Amoroso Lead 2025 Latin Grammys Field**\
 `The Puerto Rican superstar, with 12 nods, and the multigenre duo from Argentina, with 10, will compete in the biggest categories.`\
 https://nytimes.com/2025/09/17/arts/music/latin-grammy-nominations-bad-bunny.html
-
-**Where will Barcelona host Champions League games? We still don't know**\
-`The Spanish champions host last season's winners PSG in two weeks, but no venue has been set`\
-https://nytimes.com/athletic/6636951/2025/09/17/champions-league-barcelona-psg-camp-nou/
-
-**Navalny Vomited and Convulsed in Prison Before Dying, His Wife Says**\
-`The organization founded by Aleksei A. Navalny, the Kremlin’s most prominent political opponent, presented what it called new information to support its claim that he was poisoned.`\
-https://nytimes.com/2025/09/17/world/europe/russia-navalny-poisoning.html
 

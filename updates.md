@@ -1,3 +1,11 @@
+**Silver: Investigation will 'get to the bottom' of Kawhi Leonard endorsement case**\
+`"I don't know anything about Kawhi's deal. Show, no show. We'll certainly find out," Silver said.`\
+https://nytimes.com/athletic/6637165/2025/09/17/nba-investigation-kawhi-leonard-adam-silver/
+
+**NFL Week 3 survivor pool picks, strategy: To use or save the Packers?**\
+`Our weekly column doling out strategy, chalk picks and contrarian picks for your survivor pool. This week, the Packers are in the spotlight.`\
+https://nytimes.com/athletic/6634921/2025/09/17/nfl-survivor-pool-week-3-picks-strategy-packers-seahawks/
+
 **Isaac Nader outkicks Jake Wightman in thrilling 1,500-meter final at world championships**\
 `Portugal's Nader came from the middle of the pack to chase down Great Britain's Wightman by 0.02 seconds Wednesday in Tokyo.`\
 https://nytimes.com/athletic/6637237/2025/09/17/isaac-nader-jake-wightman-josh-kerr-1500-world-championships/
