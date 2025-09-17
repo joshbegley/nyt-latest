@@ -1,3 +1,7 @@
+**After Kirk’s Killing, Obama Says the Nation Is in a ‘Political Crisis’**\
+`Speaking at an educational summit, former President Barack Obama criticized his successor’s attacks on his political rivals in the wake of Charlie Kirk’s assassination.`\
+https://nytimes.com/2025/09/17/us/politics/obama-trump-kirk-unity.html
+
 **Shohei Ohtani blasts 50th homer to enter exclusive territory**\
 `Only six players have reached 50 homers in consecutive seasons, and none since 2002.`\
 https://nytimes.com/athletic/6617976/2025/09/17/shohei-ohtani-dodgers-50-homers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6634609/2025/09/17/battling-haaland-new-leadership-
 **Nicolas Jackson - The Chelsea striker playing against them and the intrigue over Bayern's buy obligation**\
 `The Senegal striker is set to face his parent club in the Champions League with a point to prove as he strives to show he belongs in Munich`\
 https://nytimes.com/athletic/6633335/2025/09/17/nicolas-jackson-chelsea-bayern-obligation-champions-league/
-
-**40 balls in two minutes? No pressure for the inventor of this perfect football pump**\
-`Maurine Kieft came up with a quick way to inflate footballs to the ideal pressure — now his pump is used by the Champions League elite`\
-https://nytimes.com/athletic/6626009/2025/09/17/maurin-kieft-football-pump/
 

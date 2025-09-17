@@ -1,3 +1,7 @@
+**After Kirk’s Killing, Obama Says the Nation Is in a ‘Political Crisis’**\
+`Speaking at an educational summit, former President Barack Obama criticized his successor’s attacks on his political rivals in the wake of Charlie Kirk’s assassination.`\
+https://nytimes.com/2025/09/17/us/politics/obama-trump-kirk-unity.html
+
 **Shohei Ohtani blasts 50th homer to enter exclusive territory**\
 `Only six players have reached 50 homers in consecutive seasons, and none since 2002.`\
 https://nytimes.com/athletic/6617976/2025/09/17/shohei-ohtani-dodgers-50-homers/
