@@ -1,3 +1,11 @@
+**Pereira set to sign new three-year contract as Wolves head coach**\
+`Wolves are confident the 57-year-old, whose current contract expires in June 2026, will pen a new agreement through to 2028.`\
+https://nytimes.com/athletic/6626553/2025/09/17/vitor-pereira-wolves-manager-new-contract/
+
+**The New and Emerging Designers to Watch This Fashion Week**\
+`Whether they’re showing in New York or London, these six designers are on the rise.`\
+https://nytimes.com/2025/09/17/t-magazine/new-designers-london-new-york-fashion-week.html
+
 **Corals Won’t Survive a Warmer Planet, a New Study Finds**\
 `Most corals in the Atlantic Ocean will soon stop growing. Many are already dying, leaving shorelines and marine ecosystems vulnerable.`\
 https://nytimes.com/2025/09/17/climate/corals-climate-change.html
@@ -25,16 +33,4 @@ https://nytimes.com/2025/09/17/dining/samin-nosrats-lazy-sugo.html
 **The Dueling Scholars Who Bickered a Yiddish Dictionary Into Existence**\
 `The Jewish tradition of debate is at the center of a new chamber opera about two scholars clashing over a Yiddish dictionary in the aftermath of World War II.`\
 https://nytimes.com/2025/09/17/arts/music/yivo-yiddish-dictionary-alex-weiser-ben-kaplan.html
-
-**‘Shockingly Beautiful’ Fossil Reveals Oldest Dome-Headed Dinosaur**\
-`A specimen discovered in Mongolia is the most complete fossil yet found of a pachycephalosaur, a dinosaur believed to be built for head-butting.`\
-https://nytimes.com/2025/09/17/science/pachycephalosaurus-fossil-mongolia.html
-
-**After Kaleb Johnson's gaffe, Steelers plan a change on kickoff returns**\
-`The rookie's mistake resulted in a Seahawks touchdown on Sunday.`\
-https://nytimes.com/athletic/6637487/2025/09/17/kaleb-johnson-kickoff-return-mistake-steelers-seahawks/
-
-**Leafs captain Auston Matthews gives health update: ‘I’m feeling really good’**\
-`Leafs captain, who has said he played through injury for much of last season, will seek to ‘manage’ his health ‘as the season goes along.’`\
-https://nytimes.com/athletic/6637376/2025/09/17/leafs-auston-matthews-health-training-camp/
 
