@@ -1,3 +1,7 @@
+**Sancho has immense talent, but will he give Aston Villa what they need?**\
+`Jadon Sancho made his Aston Villa debut in the Caraba Cup against Brentford on Tuesday night`\
+https://nytimes.com/athletic/6610349/2025/09/17/jadon-sancho-aston-villa-analysis/
+
 **The New York Times in Print for Wednesday, Sep. 17, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/17/todays-new-york-times
