@@ -1,3 +1,7 @@
+**Tkachuk injury update: Panthers star out until at least December, GM says**\
+`Tkachuk is recovering from summer surgery for injuries sustained in the 4 Nations Face-Off tournament.`\
+https://nytimes.com/athletic/6638211/2025/09/17/matthew-tkachuk-injury-florida-panthers-nhl-olympics/
+
 **Olympic medallist Kerley becomes first American male to join Enhanced Games**\
 `The 30-year-old was provisionally suspended in August for an anti-doping whereabouts violation, which he contests.`\
 https://nytimes.com/athletic/6638076/2025/09/17/fred-kerley-enhanced-games-100-meter-sprint-olympics/

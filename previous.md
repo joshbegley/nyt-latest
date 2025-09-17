@@ -1,3 +1,7 @@
+**Tkachuk injury update: Panthers star out until at least December, GM says**\
+`Tkachuk is recovering from summer surgery for injuries sustained in the 4 Nations Face-Off tournament.`\
+https://nytimes.com/athletic/6638211/2025/09/17/matthew-tkachuk-injury-florida-panthers-nhl-olympics/
+
 **Olympic medallist Kerley becomes first American male to join Enhanced Games**\
 `The 30-year-old was provisionally suspended in August for an anti-doping whereabouts violation, which he contests.`\
 https://nytimes.com/athletic/6638076/2025/09/17/fred-kerley-enhanced-games-100-meter-sprint-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/17/health/vaccine-guidelines-california-oregon-washi
 **‘Pay Attention!’: Spirit Airlines Pilot Scolded for Flying Near Air Force One**\
 `An air traffic controller sternly told the pilot to “pay attention,” “get off the iPad” and turn the plane to steer clear of a flight carrying President Trump.`\
 https://nytimes.com/2025/09/17/us/airforce-one-spirit-air-traffic-control.html
-
-**A New Review of Climate Science Could Cause Headaches for Trump**\
-`A top scientific advisory body said there’s growing evidence that greenhouse gases threaten health, contradicting the administration’s legal arguments for rollbacks.`\
-https://nytimes.com/2025/09/17/climate/national-academies-climate-trump.html
 
