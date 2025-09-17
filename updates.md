@@ -1,3 +1,15 @@
+**Review: At Fall for Dance, War, Persistence and a Slow Tap of Love**\
+`The annual festival, popular for its take-a-chance-priced tickets, opened with a show featuring work by Jamar Roberts, the tap dancer Dario Natarelli and Akram Khan.`\
+https://nytimes.com/2025/09/17/arts/dance/review-fall-for-dance-jamar-roberts-sara-mearns.html
+
+**Senator Suggests Meeting Between Kennedy and His C.D.C. Director Was Recorded, Then Backtracks**\
+`The senator, Markwayne Mullin, quickly backtracked after pressing the now former director, Susan Monarez, on an exchange with the health secretary.`\
+https://nytimes.com/2025/09/17/us/politics/kennedy-cdc-director-recording.html
+
+**John H. Luckadoo, Last Pilot from a Storied Bomber Group, Dies at 103**\
+`As part of a unit known as the Bloody 100th, he flew 25 harrowing missions in his B-17 bomber over German-held territory during World War II.`\
+https://nytimes.com/2025/09/17/us/john-h-luckadoo-dead.html
+
 **Trump Visits Britain as Protesters March in London**\
 `President Trump and the first lady, Melania Trump, met with the British royal family at Windsor Castle on Friday, as demonstrators gathered in central London to protest his visit.`\
 https://nytimes.com/video/world/europe/100000010405068/trump-uk-protesters-london.html
