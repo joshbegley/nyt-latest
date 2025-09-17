@@ -1,5 +1,21 @@
-**Jets QB Justin Fields out vs. Buccaneers Sunday**\
-`Tyrod Taylor will start for the Jets`\
+**NFL Week 3 best bets: A Chiefs under and betting against the Eagles? Buckle up**\
+`Austin Mock had a winning week in NFL betting and is back at it with a few plays for Week 3, including betting against the Eagles.`\
+https://nytimes.com/athletic/6637789/2025/09/17/nfl-week-3-best-bets-chiefs-rams-eagles/
+
+**Build Your Own HIIT Workout**\
+`Twelve exercises, thousands of possible routines. Use our tool to design one that's right for you.`\
+https://nytimes.com/interactive/2025/09/17/well/move/hiit-workout-exercises.html
+
+**My Friend Is Trying to Convert Me Into a Client. What to Do?**\
+`My time for friendships is limited. I’m not inclined to spend it in a commercialized version of one.`\
+https://nytimes.com/2025/09/17/magazine/friend-convert-client-ethics.html
+
+**Top Bessent Aide, Daniel Katz, Expected to Be Tapped as No. 2 at I.M.F.**\
+`The appointment would come as the Trump administration has called for sweeping reforms at the global economic institution.`\
+https://nytimes.com/2025/09/17/us/politics/daniel-katz-imf.html
+
+**Jets QB Justin Fields out vs. Buccaneers, Tyrod Taylor to start**\
+`In theory, the offensive style shouldn’t change much, as the Jets are still a run-first operation, but the QBs have some key differences.`\
 https://nytimes.com/athletic/6637774/2025/09/17/justin-fields-concussion-status-jets-qb-tyrod-taylor/
 
 **The Fed’s cautious approach to defending itself against Trump is drawing scrutiny.**\
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/6637540/2025/09/17/college-football-best-bets-week-
 **Tropical Storm Gabrielle Forms, Breaking a Lull in the Hurricane Season**\
 `The storm is not an immediate threat to land, but it is expected to strengthen as it moves west.`\
 https://nytimes.com/live/2025/weather/tropical-storm-gabrielle-hurricane
-
-**What the Fed’s Rate Decision Means for Your Finances**\
-`Here’s how the central bank’s interest rate stance influences car loans, credit cards, mortgages, savings and student loans.`\
-https://nytimes.com/2025/09/17/business/fed-interest-rate-loans-mortgages.html
-
-**How to read the Fed’s projections like a pro.**\
-`By Colby Smith`\
-https://nytimes.com/live/2025/09/17/business/federal-reserve-interest-rates/how-to-read-the-feds-projections-like-a-pro
-
-**Live Updates: Fed Meets to Set Rates Under Pressure From Trump**\
-`The Federal Reserve is widely expected to cut interest rates, despite the economy sending mixed signals.`\
-https://nytimes.com/live/2025/09/17/business/federal-reserve-interest-rates
-
-**How China Is Losing Its Title as the World’s Sneaker Factory**\
-`For American manufacturers, it is hard to quit China and its unrivaled factories. One industry is defying that reality as it shifts more production to Vietnam.`\
-https://nytimes.com/2025/09/17/business/vietnam-sneaker-manufacturing-china.html
 
