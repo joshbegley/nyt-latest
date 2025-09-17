@@ -1,3 +1,7 @@
+**TAFC: Role reversal for Mbappe and Vinicius Jr, Liga MX thinking big**\
+`Today in TAFC: What a difference a year makes for Mbappe and Vinicius Jr. Plus: Liga MX thinks big and the FBI director - Liverpool fan.`\
+https://nytimes.com/athletic/6636710/2025/09/17/champions-league-real-madrid-mbappe-vinicius/
+
 **Israel Pounds Gaza City as Fears Mount for Those Inside**\
 `With hundreds of thousands of Palestinians still in the city, the Israeli military said it was opening another temporary evacuation route.`\
 https://nytimes.com/2025/09/17/world/middleeast/israel-gaza-city.html

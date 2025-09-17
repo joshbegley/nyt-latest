@@ -1,3 +1,7 @@
+**Powell Faces Challenges From Within the Fed, Too**\
+`The central bank is expected to reduce interest rates on Wednesday. But there could be a internal debate about the size of a cut , and how many more to make.`\
+https://nytimes.com/2025/09/17/business/dealbook/powell-fed-rates.html
+
 **TAFC: Role reversal for Mbappe and Vinicius Jr, Liga MX thinking big**\
 `Today in TAFC: What a difference a year makes for Mbappe and Vinicius Jr. Plus: Liga MX thinks big and the FBI director - Liverpool fan.`\
 https://nytimes.com/athletic/6636710/2025/09/17/champions-league-real-madrid-mbappe-vinicius/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6636282/2025/09/17/tigers-al-central-playoff-race-m
 **Israel’s Assault on Gaza City Stifles Hope of Diplomatic Resolution to War**\
 `A negotiated settlement to end the fighting remains distant, in part because of the maximalist positions of Israel’s leader, Benjamin Netanyahu, and of Hamas.`\
 https://nytimes.com/2025/09/17/world/middleeast/israel-assault-gaza-city-diplomacy.html
-
-**College football Week 4 streaming guide: Texas Tech-Utah, Florida-Miami, B1G After Dark**\
-`Here are this weekend's games to watch for in college football, from ranked Big Ten, Big 12 and SEC action to an 11 p.m. ET kickoff.`\
-https://nytimes.com/athletic/6632432/2025/09/17/texas-tech-utah-miami-florida-big-ten-college-football-week-4-how-to-watch/
 
