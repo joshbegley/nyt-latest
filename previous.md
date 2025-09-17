@@ -1,40 +1,40 @@
-**Word of the Day: montage**\
-`This word has appeared in 190 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/09/17/learning/word-of-the-day-montage.html
+**How to watch Marlins at Rockies: Time, TV, streaming for September 17**\
+`Find out how to watch the Miami Marlins play the Colorado Rockies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6636530/2025/09/17/marlins-vs-rockies-stream-how-to-watch-sept-17/
 
-**Barefoot and grounded, AJ Blubaugh has put himself on the Astros' map**\
-`About an hour before stretching or starting his throwing program, Blubaugh takes a barefoot walk around the warning track.`\
-https://nytimes.com/athletic/6636435/2025/09/17/barefoot-aj-blubaugh-grounding-astros-pitcher-rangers/
+**How to watch Blue Jays at Rays: Time, TV, streaming for September 17**\
+`Find out how to watch the Toronto Blue Jays play the Tampa Bay Rays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6636528/2025/09/17/blue-jays-vs-rays-stream-how-to-watch-sept-17/
 
-**Tottenham will need patience while their attack takes time to gel**\
-`Tottenham beat Villarreal 1-0 in the Champions League but struggled to create chances from open play`\
-https://nytimes.com/athletic/6635956/2025/09/17/tottenham-open-play-attack-analysis/
+**How to watch Rangers at Astros: Time, TV, streaming for September 17**\
+`Find out how to watch the Texas Rangers play the Houston Astros, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6636524/2025/09/17/rangers-vs-astros-stream-how-to-watch-sept-17/
 
-**Sancho has immense talent, but will he give Aston Villa what they need?**\
-`Jadon Sancho made his Aston Villa debut in the Caraba Cup against Brentford on Tuesday night`\
-https://nytimes.com/athletic/6610349/2025/09/17/jadon-sancho-aston-villa-analysis/
+**How to watch Yankees at Twins: Time, TV, streaming for September 17**\
+`Find out how to watch the New York Yankees play the Minnesota Twins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6636521/2025/09/17/yankees-vs-twins-stream-how-to-watch-sept-17/
 
-**The New York Times in Print for Wednesday, Sep. 17, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/09/17/todays-new-york-times
+**How to watch Mariners at Royals: Time, TV, streaming for September 17**\
+`Find out how to watch the Seattle Mariners play the Kansas City Royals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6636520/2025/09/17/mariners-vs-royals-stream-how-to-watch-sept-17/
 
-**The Quiet Triumph of King Charles III**\
-`He may be the last man standing who can exude global gravitas in the dumpster fire of our digitally dominated world.`\
-https://nytimes.com/2025/09/17/opinion/king-charles-trump-britain-visit.html
+**How to watch Padres at Mets: Time, TV, streaming for September 17**\
+`Find out how to watch the San Diego Padres play the New York Mets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6636517/2025/09/17/padres-vs-mets-stream-how-to-watch-sept-17/
 
-**After Kirk’s Killing, Obama Says the Nation Is in a ‘Political Crisis’**\
-`Speaking at an educational summit, former President Barack Obama criticized his successor’s attacks on his political rivals in the wake of Charlie Kirk’s assassination.`\
-https://nytimes.com/2025/09/17/us/politics/obama-trump-kirk-unity.html
+**How to watch Angels at Brewers: Time, TV, streaming for September 17**\
+`Find out how to watch the Los Angeles Angels play the Milwaukee Brewers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6636514/2025/09/17/angels-vs-brewers-stream-how-to-watch-sept-17/
 
-**Shohei Ohtani blasts 50th homer to enter exclusive territory**\
-`Only six players have reached 50 homers in consecutive seasons, and none since 2002.`\
-https://nytimes.com/athletic/6617976/2025/09/17/shohei-ohtani-dodgers-50-homers/
+**How to watch Braves at Nationals: Time, TV, streaming for September 17**\
+`Find out how to watch the Atlanta Braves play the Washington Nationals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6636512/2025/09/17/braves-vs-nationals-stream-how-to-watch-sept-17/
 
-**Israel’s Push Into Gaza City**\
-`We bring together pieces of Times journalism to help you understand the big picture.`\
-https://nytimes.com/2025/09/17/briefing/israel-gaza-city-offensive-trump-visit.html
+**How to watch Reds at Cardinals: Time, TV, streaming for September 17**\
+`Find out how to watch the Cincinnati Reds play the St. Louis Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6636510/2025/09/17/reds-vs-cardinals-stream-how-to-watch-sept-17/
 
-**How Slot and Liverpool have learned from last season's Champions League**\
-`Expect more rotation at Anfield this season after the Dutch coach was stung by last season's European exit to PSG`\
-https://nytimes.com/athletic/6619412/2025/09/17/liverpool-arne-slot-champions-league-lessons/
+**How to watch Orioles at White Sox: Time, TV, streaming for September 17**\
+`Find out how to watch the Baltimore Orioles play the Chicago White Sox, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6636507/2025/09/17/orioles-vs-white-sox-stream-how-to-watch-sept-17/
 
