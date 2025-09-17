@@ -1,3 +1,27 @@
+**These Women Make Basketball Fans’ Favorite Food**\
+`For the last six years, Deborah Emmanuel and Mahogany Almond have provided Brooklyn sports fans with bags and bags of popcorn.`\
+https://nytimes.com/2025/09/17/dining/basketball-popcorn-barclays.html
+
+**Kyle Tucker seeking another opinion as Cubs try to get All-Star back in time for playoffs**\
+`“We’re concerned because he’s not responding,” manager Craig Counsell said of Tucker's recovery.`\
+https://nytimes.com/athletic/6637628/2025/09/17/kyle-tucker-calf-injury-update/
+
+**What to Know About ‘Hate Speech’ and the First Amendment**\
+`There has been a lot of talk from Trump administration officials about punishing speech. Here is what the law says.`\
+https://nytimes.com/2025/09/17/us/politics/what-to-know-hate-speech.html
+
+**NFL Week 3 confidence picks: Patriots over Steelers leads upset picks**\
+`Confidence picks to win and to cover the spread for every Week 3 matchup. Plus a 1-16 confidence table.`\
+https://nytimes.com/athletic/6637351/2025/09/17/nfl-week-3-confidence-picks-betting/
+
+**Georgia Election Official Who Defied Trump Enters Governor’s Race**\
+`Brad Raffensperger, the two-term Republican secretary of state, joins a primary that also includes the state’s lieutenant governor and attorney general.`\
+https://nytimes.com/2025/09/17/us/brad-raffensperger-georgia-governor-election.html
+
+**The Fed meeting brings together a Trump ally with a target of his ire.**\
+`By Colby Smith`\
+https://nytimes.com/live/2025/09/17/business/federal-reserve-interest-rates/the-fed-meeting-brings-together-a-trump-ally-with-a-target-of-his-ire
+
 **A Surprise Awaited These Travelers at Check-In: The Hotel Was Closed**\
 `Several Manhattan hotels operated by LuxUrban abruptly closed without warning, leaving visitors from around the world scrambling for a place to stay.`\
 https://nytimes.com/2025/09/17/travel/luxurban-hotels-closed-new-york.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/09/17/dining/mashama-bailey-larret-paris-restaurant.htm
 **Texas A&M's Anderson avoided 'catastrophic injury' vs. Notre Dame, team says**\
 `After a collision with Notre Dame TE Eli Raridon, Anderson remained on the field for about 10 minutes while Texas A&M staff tended to him.`\
 https://nytimes.com/athletic/6637917/2025/09/17/texas-am-bryce-anderson-injury-notre-dame/
-
-**NFL Week 3 best bets: A Chiefs under and betting against the Eagles? Buckle up**\
-`Austin Mock had a winning week in NFL betting and is back at it with a few plays for Week 3, including betting against the Eagles.`\
-https://nytimes.com/athletic/6637789/2025/09/17/nfl-week-3-best-bets-chiefs-rams-eagles/
-
-**Build Your Own HIIT Workout**\
-`Twelve exercises, thousands of possible routines. Use our tool to design one that's right for you.`\
-https://nytimes.com/interactive/2025/09/17/well/move/hiit-workout-exercises.html
-
-**My Friend Is Trying to Convert Me Into a Client. What to Do?**\
-`My time for friendships is limited. I’m not inclined to spend it in a commercialized version of one.`\
-https://nytimes.com/2025/09/17/magazine/friend-convert-client-ethics.html
-
-**Top Bessent Aide, Daniel Katz, Expected to Be Tapped as No. 2 at I.M.F.**\
-`The appointment would come as the Trump administration has called for sweeping reforms at the global economic institution.`\
-https://nytimes.com/2025/09/17/us/politics/daniel-katz-imf.html
-
-**Jets QB Justin Fields out vs. Buccaneers, Tyrod Taylor to start**\
-`In theory, the offensive style shouldn’t change much, as the Jets are still a run-first operation, but the QBs have some key differences.`\
-https://nytimes.com/athletic/6637774/2025/09/17/justin-fields-concussion-status-jets-qb-tyrod-taylor/
-
-**The Fed’s cautious approach to defending itself against Trump is drawing scrutiny.**\
-`By Colby Smith and Ben Casselman`\
-https://nytimes.com/live/2025/09/17/business/federal-reserve-interest-rates/the-feds-cautious-approach-to-defending-itself-against-trump-is-drawing-scrutiny
 
