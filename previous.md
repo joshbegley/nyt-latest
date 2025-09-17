@@ -1,3 +1,11 @@
+**Europe’s far-right and Charlie Kirk**\
+`The continent’s far right is claiming the activist as a martyr. Our colleague Jason Horowitz explains why.`\
+https://nytimes.com/2025/09/17/briefing/europes-far-right-charlie-kirk-trump-uk-state-visit.html
+
+**Missing Teen’s Remains Found in Tesla Registered to the Singer D4vd**\
+`The decomposing body of Celeste Rivas, who was reported missing in April 2024 in Southern California, was found inside the vehicle in an impound lot, the authorities said.`\
+https://nytimes.com/2025/09/17/us/tesla-body-found-d4vd.html
+
 **Windsor Castle’s State Dinner Features Lavish Menu**\
 `Just over 100 staff members served 160 guests at the white-tie event.`\
 https://nytimes.com/2025/09/17/world/europe/windsor-castles-state-dinner-features-lavish-menu.html
@@ -22,19 +30,11 @@ https://nytimes.com/2025/09/17/world/europe/heres-the-menu-for-the-state-dinner-
 `The 19-year-old sophomore has attracted widespread public interest since he enrolled at the university’s main campus in Manhattan last year.`\
 https://nytimes.com/2025/09/17/nyregion/barron-trump-moves-to-nyu-washington-campus.html
 
-**The Briefing: Bayern 3 Chelsea 1 - Clinical Kane; Did drop ball help Bayern? What did Maresca learn?**\
-`Our writers break down the action from Munich as Chelsea fall to defeat on their Champions League return.`\
+**The Briefing: Bayern 3 Chelsea 1 - Clinical Kane; did drop ball help Bayern? What did Maresca learn?**\
+`Our writers break down the action from Munich as Chelsea fall to defeat on their Champions League return`\
 https://nytimes.com/athletic/6634149/2025/09/17/chelsea-bayern-munich-kane-palmer/
 
 **After Kirk’s Death, Students Return to Campus and Learn ‘How To Be Adults’**\
 `Utah Valley University burst into the nation’s conscience when Charlie Kirk was slain there. Its students resumed classes Wednesday, most trying to get on with their busy lives.`\
 https://nytimes.com/2025/09/17/us/politics/charlie-kirk-campus.html
-
-**Tiny Love Stories: ‘If I Had a Time Machine’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2025/09/17/style/tiny-modern-love-stories-if-i-had-a-time-machine.html
-
-**At Least 2 Injured in Pennsylvania Shooting Involving Police Officers**\
-`Details were scant, but Gov. Josh Shapiro was headed to York County, where the shooting occurred, and several officials expressed concern for the police officers involved.`\
-https://nytimes.com/2025/09/17/us/york-pa-officers-shot.html
 

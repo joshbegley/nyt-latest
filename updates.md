@@ -1,3 +1,15 @@
+**Europe’s far-right and Charlie Kirk**\
+`The continent’s far right is claiming the activist as a martyr. Our colleague Jason Horowitz explains why.`\
+https://nytimes.com/2025/09/17/briefing/europes-far-right-charlie-kirk-trump-uk-state-visit.html
+
+**Missing Teen’s Remains Found in Tesla Registered to the Singer D4vd**\
+`The decomposing body of Celeste Rivas, who was reported missing in April 2024 in Southern California, was found inside the vehicle in an impound lot, the authorities said.`\
+https://nytimes.com/2025/09/17/us/tesla-body-found-d4vd.html
+
+**The Briefing: Bayern 3 Chelsea 1 - Clinical Kane; did drop ball help Bayern? What did Maresca learn?**\
+`Our writers break down the action from Munich as Chelsea fall to defeat on their Champions League return`\
+https://nytimes.com/athletic/6634149/2025/09/17/chelsea-bayern-munich-kane-palmer/
+
 **Windsor Castle’s State Dinner Features Lavish Menu**\
 `Just over 100 staff members served 160 guests at the white-tie event.`\
 https://nytimes.com/2025/09/17/world/europe/windsor-castles-state-dinner-features-lavish-menu.html
