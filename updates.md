@@ -1,3 +1,11 @@
+**Using tandem starters, Mets provide a glimpse of a late-season blueprint**\
+`New York contemplated piggybacking starters to maximize their advantage before injuries derailed the plan earlier this season. `\
+https://nytimes.com/athletic/6636257/2025/09/16/mets-tandem-pitching-clay-holmes-sean-manaea/
+
+**WNBA playoff takeaways: Fever survive to force decisive Game 3**\
+`The Fever earned their first playoff win since 2015.`\
+https://nytimes.com/athletic/6636262/2025/09/16/wnba-playoff-takeaways-fever/
+
 **No snarls this time as Messi leads Miami to win over Seattle**\
 `The 3-1 win moves Miami up to fifth in the Eastern Conference with three games in hand.`\
 https://nytimes.com/athletic/6636093/2025/09/16/lionel-messi-inter-miami-seattle-sounders-win/
