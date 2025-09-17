@@ -1,3 +1,15 @@
+**Quote of the Day: Many Who Won’t or Can’t Flee End Up Stranded on Streets or Under Rubble**\
+`Quotation of the Day for Wednesday, September 17, 2025.`\
+https://nytimes.com/2025/09/16/pageoneplus/quote-of-the-day-many-who-wont-or-cant-flee-end-up-stranded-on-streets-or-under-rubble.html
+
+**Reign defeats Racing 1-0 in resumed match as players and staff honor Savannah DeMelo**\
+`The two teams wore purple armbands with DeMelo's initials `\
+https://nytimes.com/athletic/6636240/2025/09/16/racing-louisville-seattle-reign-savannah-demelo/
+
+**Red Sox waste Connelly Early's effort with anemic offense and leaky bullpen**\
+`The Red Sox fell into third place in the AL wild card race as Houston leapfrogged Boston.`\
+https://nytimes.com/athletic/6636274/2025/09/16/red-sox-connelly-early-bullpen-lose/
+
 **Using tandem starters, Mets provide a glimpse of a late-season blueprint**\
 `New York contemplated piggybacking starters to maximize their advantage before injuries derailed the plan earlier this season. `\
 https://nytimes.com/athletic/6636257/2025/09/16/mets-tandem-pitching-clay-holmes-sean-manaea/
@@ -22,19 +34,7 @@ https://nytimes.com/2025/09/16/us/hiker-death-enchantments-washington.html
 `This week the action is divided primarily between two separate attempts to get off Boy Kavalier’s Neverland island.`\
 https://nytimes.com/2025/09/16/arts/television/alien-earth-episode-7-recap.html
 
-**‘Art’ Review: Three Big-Name Actors, One White Canvas**\
-`James Corden, Bobby Cannavale and Neil Patrick Harris star in a revival of Yasmina Reza’s comedy about an inscrutable abstract painting.`\
-https://nytimes.com/2025/09/16/theater/art-review-cannavale-corden-neil-patrick-harris.html
-
 **Some Ring Decisions, in Brief**\
 `Jackson Matz’s crossword is pure delight.`\
 https://nytimes.com/2025/09/16/crosswords/daily-puzzle-2025-09-17.html
-
-**Twins eliminate four-person pro scouting department: Sources**\
-`The moves come about a month after the Pohlad family announced it ended its exploration of a sale.`\
-https://nytimes.com/athletic/6636141/2025/09/16/minnesota-twins-pro-scouting-department-developments/
-
-**Florida assistant Jabbar Juluke suspended 3 games for role in scuffle at LSU**\
-`SEC and Florida jointly announce punishment, and said coach did not de-escalate the tense pre-game situation.`\
-https://nytimes.com/athletic/6636127/2025/09/16/florida-assistant-jabbar-juluke-suspended-lsu/
 
