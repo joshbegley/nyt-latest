@@ -1,3 +1,15 @@
+**Shohei Ohtani blasts 50th homer to enter exclusive territory**\
+`Only six players have reached 50 homers in consecutive seasons, and none since 2002.`\
+https://nytimes.com/athletic/6617976/2025/09/17/shohei-ohtani-dodgers-50-homers/
+
+**Israel’s Push Into Gaza City**\
+`We bring together pieces of Times journalism to help you understand the big picture.`\
+https://nytimes.com/2025/09/17/briefing/israel-gaza-city-offensive-trump-visit.html
+
+**How Slot and Liverpool have learned from last season's Champions League**\
+`Expect more rotation at Anfield this season after the Dutch coach was stung by last season's European exit to PSG`\
+https://nytimes.com/athletic/6619412/2025/09/17/liverpool-arne-slot-champions-league-lessons/
+
 **West Ham mailbag: Board view of fan protests, plus Potter's fight, the stadium and relegation**\
 `Roshane Thomas has answered your questions about West Ham amid their difficulties on and off the pitch`\
 https://nytimes.com/athletic/6633716/2025/09/17/west-ham-mailbag-protests-potter-stadium/

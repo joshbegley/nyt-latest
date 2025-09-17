@@ -1,3 +1,15 @@
+**Shohei Ohtani blasts 50th homer to enter exclusive territory**\
+`Only six players have reached 50 homers in consecutive seasons, and none since 2002.`\
+https://nytimes.com/athletic/6617976/2025/09/17/shohei-ohtani-dodgers-50-homers/
+
+**Israel’s Push Into Gaza City**\
+`We bring together pieces of Times journalism to help you understand the big picture.`\
+https://nytimes.com/2025/09/17/briefing/israel-gaza-city-offensive-trump-visit.html
+
+**How Slot and Liverpool have learned from last season's Champions League**\
+`Expect more rotation at Anfield this season after the Dutch coach was stung by last season's European exit to PSG`\
+https://nytimes.com/athletic/6619412/2025/09/17/liverpool-arne-slot-champions-league-lessons/
+
 **West Ham mailbag: Board view of fan protests, plus Potter's fight, the stadium and relegation**\
 `Roshane Thomas has answered your questions about West Ham amid their difficulties on and off the pitch`\
 https://nytimes.com/athletic/6633716/2025/09/17/west-ham-mailbag-protests-potter-stadium/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6633335/2025/09/17/nicolas-jackson-chelsea-bayern-o
 **40 balls in two minutes? No pressure for the inventor of this perfect football pump**\
 `Maurine Kieft came up with a quick way to inflate footballs to the ideal pressure — now his pump is used by the Champions League elite`\
 https://nytimes.com/athletic/6626009/2025/09/17/maurin-kieft-football-pump/
-
-**Celebrating the importance of the near-post cross**\
-`Why understanding opposition crossing tendencies might be more crucial than ever in 2025-26`\
-https://nytimes.com/athletic/6633930/2025/09/17/premier-league-near-post-crosses/
-
-**Why Newcastle have embraced the 'rugby' kick-off**\
-`The head coach developed the idea after Atletico Madrid tried it against his side in pre-season – but not all the players like it`\
-https://nytimes.com/athletic/6628783/2025/09/17/newcastle-eddie-howe-rugby-kick-offs/
-
-**German Suspected in Madeleine McCann Disappearance Is Set for Prison Release**\
-`Eighteen years after Madeleine McCann, a 3-year-old British girl, disappeared in Portugal, the man considered a suspect by Britain and Germany is being released after serving a sentence in a separate case.`\
-https://nytimes.com/2025/09/17/world/europe/madeleine-mccann-disappearance-bruckner.html
 
