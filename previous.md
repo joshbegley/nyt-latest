@@ -1,3 +1,11 @@
+**How Vaccines Are Revealing Cracks in Trump’s G.O.P.**\
+`Some Republicans are starting to worry that the issue of health care could cost them politically.`\
+https://nytimes.com/2025/09/17/us/politics/cassidy-monorez-kennedy-vaccines-cdc.html
+
+**MLB calls off London Series for 2026 due to scheduling conflicts**\
+`The time to turn over the field at London Stadium proved prohibitive. `\
+https://nytimes.com/athletic/6638980/2025/09/17/mlb-london-series-canceled/
+
 **NWSL's Boston Legacy secures $100 million loan for White Stadium project**\
 `The expansion team will play its inaugural 2026 season at Gillette Stadium before moving to White Stadium in 2027`\
 https://nytimes.com/athletic/6639025/2025/09/17/nwsl-boston-legacy-100-million-stadium-loan/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6638986/2025/09/17/commanders-stadium-final-approva
 **After National Tragedies, Obama and Trump Are a Study in Contrasts**\
 `Former President Barack Obama said the job of an American president is to “remind us of the ties that bind us together.” President Trump apparently disagrees.`\
 https://nytimes.com/2025/09/17/us/politics/obama-trump-national-tragedies.html
-
-**What we heard about McDavid, Hyman and more as Oilers open training camp**\
-`Here are five noteworthy Oilers items beyond McDavid’s contractual situation from Wednesday’s media availabilities.`\
-https://nytimes.com/athletic/6638854/2025/09/17/oilers-mcdavid-hyman-training-camp/
-
-**What we learned from Doug Armstrong's final season preview as Blues GM**\
-`Armstrong addressed Holloway's health, Holloway and Broberg's contracts, Lucic's second chance, Mailloux's roster spot and more.`\
-https://nytimes.com/athletic/6637661/2025/09/17/blues-season-preview-doug-armstrong/
 
