@@ -1,3 +1,23 @@
+**Olympic medallist Kerley becomes first American male to join Enhanced Games**\
+`The 30-year-old was provisionally suspended in August for an anti-doping whereabouts violation, which he contests.`\
+https://nytimes.com/athletic/6638076/2025/09/17/fred-kerley-enhanced-games-100-meter-sprint-olympics/
+
+**Jayden Daniels doesn't practice, status remains unclear vs. Raiders**\
+`Daniels received treatment on his injured knee and threw passes in the team's practice bubble earlier Wednesday, head coach Dan Quinn said. `\
+https://nytimes.com/athletic/6638229/2025/09/17/jayden-daniels-knee-practice-raiders/
+
+**Bob Goodenow, Chief of Hockey Players’ Union, Dies at 72**\
+`He took over the N.H.L. Players Association in 1992 and led it through three work stoppages, including a lockout that forced the cancellation of the 2004-5 season.`\
+https://nytimes.com/2025/09/17/sports/bob-goodenow-dead.html
+
+**Denmark to Buy Long-Range Weapons in ‘Paradigm Shift’**\
+`Denmark says Russia is a threat. Russia calls the Danish plans “pure madness.”`\
+https://nytimes.com/2025/09/17/world/europe/denmark-buy-long-range-weapons.html
+
+**France’s Oscars Pick Is an Acclaimed Iranian Film Snubbed by Iran**\
+`“It Was Just an Accident,” the Palme d’Or winner, will be eligible for best international feature. Its director criticized the selection process by nondemocratic countries.`\
+https://nytimes.com/2025/09/17/movies/it-was-just-an-accident-france-oscar-pick.html
+
 **Colorado QB Kaidon Salter expected to start Saturday against Wyoming**\
 `After Salter was replaced by third-string quarterback Ryan Staub in week 3, head coach Deion Sanders is expected to turn back to Salter. `\
 https://nytimes.com/athletic/6638194/2025/09/17/kaidon-salter-colorado-starter-quarterback/
@@ -15,26 +35,6 @@ https://nytimes.com/2025/09/17/health/vaccine-guidelines-california-oregon-washi
 https://nytimes.com/2025/09/17/us/airforce-one-spirit-air-traffic-control.html
 
 **A New Review of Climate Science Could Cause Headaches for Trump**\
-`The report, by a panel of leading researchers, raises questions about the administration’s legal justification for looser pollution controls.`\
+`A top scientific advisory body said there’s growing evidence that greenhouse gases threaten health, contradicting the administration’s legal arguments for rollbacks.`\
 https://nytimes.com/2025/09/17/climate/national-academies-climate-trump.html
-
-**Review: At Fall for Dance, War, Persistence and a Slow Tap of Love**\
-`The annual festival, popular for its take-a-chance-priced tickets, opened with a show featuring work by Jamar Roberts, the tap dancer Dario Natarelli and Akram Khan.`\
-https://nytimes.com/2025/09/17/arts/dance/review-fall-for-dance-jamar-roberts-sara-mearns.html
-
-**Senator Suggests Meeting Between Kennedy and His C.D.C. Director Was Recorded, Then Backtracks**\
-`The senator, Markwayne Mullin, quickly backtracked after pressing the now former director, Susan Monarez, on an exchange with the health secretary.`\
-https://nytimes.com/2025/09/17/us/politics/kennedy-cdc-director-recording.html
-
-**John H. Luckadoo, Last Pilot from a Storied Bomber Group, Dies at 103**\
-`As part of a unit known as the Bloody 100th, he flew 25 harrowing missions in his B-17 bomber over German-held territory during World War II.`\
-https://nytimes.com/2025/09/17/us/john-h-luckadoo-dead.html
-
-**Trump Visits Britain as Protesters March in London**\
-`President Trump and the first lady, Melania Trump, met with the British royal family at Windsor Castle on Friday, as demonstrators gathered in central London to protest his visit.`\
-https://nytimes.com/video/world/europe/100000010405068/trump-uk-protesters-london.html
-
-**The Two People in the Spotlight at a Pivotal Fed Meeting**\
-`At this week’s pivotal Federal Reserve meeting, all eyes were on two people – Stephen Miran and Lisa Cook. Colby Smith, who covers the Fed for The New York Times, explains why.`\
-https://nytimes.com/video/us/100000010403320/the-two-people-in-the-spotlight-at-a-pivotal-fed-meeting.html
 
