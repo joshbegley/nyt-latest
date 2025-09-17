@@ -1,3 +1,15 @@
+**Rick Tocchet's view of the Flyers — 'That crest is everything' — and his Year 1 priorities**\
+`Tocchet has put much thought into how to get the best out of Matvei Michkov and his other new players.`\
+https://nytimes.com/athletic/6637978/2025/09/17/tocchet-flyers-training-camp/
+
+**Ousted C.D.C Chief Describes Tense Meeting With Kennedy**\
+`Dr. Susan Monarez told senators at a  committee  hearing on Wednesday that the health secretary had hurled false and hurtful accusations about the nation’s health agency.`\
+https://nytimes.com/2025/09/17/us/politics/kennedy-monarez-cdc-meeting.html
+
+**Cardinals place Willson Contreras on injured list with season-ending bicep strain**\
+`Contreras felt the bicep tighten during Monday's game and imaging done on Tuesday revealed a mild strain.`\
+https://nytimes.com/athletic/6637367/2025/09/17/willson-contreras-cardinals-bicep-strain/
+
 **Judge Steps Up Pressure on ICE to Fix Conditions in N.Y.C. Holding Cells**\
 `Judge Lewis A. Kaplan said he was intervening to protect migrants from being detained in potentially “unconstitutional and inhumane” circumstances.`\
 https://nytimes.com/2025/09/17/nyregion/ice-migrant-cells-judge-ruling.html

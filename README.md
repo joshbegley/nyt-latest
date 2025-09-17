@@ -1,3 +1,11 @@
+**Leafs training camp takeaways: Easton Cowan's opportunity, 'not focused' on Dillon Dubé**\
+`Plus, an (almost) healthy roster, Mark Giordano returns with a new role and an update on a potential contract extension for Anthony Stolarz.`\
+https://nytimes.com/athletic/6637800/2025/09/17/maple-leafs-training-camp-easton-cowan-dillon-dube/
+
+**The Ghost of Jeffrey Epstein Hangs Over Trump’s U.K. State Visit**\
+`In different ways, the reputations of the royal family, the British government and President Trump have each been tarnished by the sex offender Jeffrey Epstein.`\
+https://nytimes.com/2025/09/17/world/europe/epstein-ghost-trump-uk.html
+
 **Rick Tocchet's view of the Flyers — 'That crest is everything' — and his Year 1 priorities**\
 `Tocchet has put much thought into how to get the best out of Matvei Michkov and his other new players.`\
 https://nytimes.com/athletic/6637978/2025/09/17/tocchet-flyers-training-camp/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6638004/2025/09/17/nathan-walker-blues-contract-ext
 **Facing the Global Problem of Plastic**\
 `Readers respond to a guest essay about throwaway plastic. Also: President Trump the divider; stealth legislation.`\
 https://nytimes.com/2025/09/17/opinion/plastics-global.html
-
-**What I'm hearing about Anthony Stolarz, Maple Leafs: Working on an extension — with a deadline**\
-`Stolarz doesn't want talks to bleed into the regular season in three weeks, according to league sources. Here's where things are at.`\
-https://nytimes.com/athletic/6637642/2025/09/17/anthony-stolarz-maple-leafs-camp-contract-negotiations/
-
-**Building The Beast: Clemson defenders 'on notice' after slow start dings NFL draft stock**\
-`Clemson’s ugly start has brought the wrong kind of attention to its highly touted defensive stars.`\
-https://nytimes.com/athletic/6637663/2025/09/17/building-the-beast-clemson-defenders-on-notice-after-slow-start-dings-nfl-draft-stock/
 
