@@ -1,3 +1,7 @@
+**Scoop City: Scary paths for two hot-seat coaches, plus vote on Tom Brady's access**\
+`The tough road ahead for Mike McDaniel and Brian Daboll, Mike Sando's thoughts on the Chargers' offense and the NFL's Tom Brady situation`\
+https://nytimes.com/athletic/6637926/2025/09/17/giants-dolphins-coaching-hot-seats-tom-brady-rules-scoop-city/
+
 **Nathan Walker, Blues agree to 2-year contract extension**\
 `In 2024-25, Walker was a key member of the Blues' fourth line, scoring eight goals and 16 points in 73 games.`\
 https://nytimes.com/athletic/6638004/2025/09/17/nathan-walker-blues-contract-extension/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/09/17/us/politics/what-to-know-hate-speech.html
 **NFL Week 3 confidence picks: Patriots over Steelers leads upset picks**\
 `Confidence picks to win and to cover the spread for every Week 3 matchup. Plus a 1-16 confidence table.`\
 https://nytimes.com/athletic/6637351/2025/09/17/nfl-week-3-confidence-picks-betting/
-
-**Georgia Election Official Who Defied Trump Enters Governor’s Race**\
-`Brad Raffensperger, the two-term Republican secretary of state, joins a primary that also includes the state’s lieutenant governor and attorney general.`\
-https://nytimes.com/2025/09/17/us/brad-raffensperger-georgia-governor-election.html
 
