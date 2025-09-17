@@ -1,5 +1,13 @@
+**NCAA eliminates college football spring transfer portal**\
+`The committee also stopped short of ratifying the Division I Football Oversight Committee's proposal for a 10-day winter portal window.`\
+https://nytimes.com/athletic/6639008/2025/09/17/ncaa-spring-transfer-portal-eliminated/
+
+**California Judge Gets 35 Years to Life for Fatally Shooting His Wife**\
+`Jeffrey Ferguson, 74, said at his sentencing hearing that the shooting was an accident. “I wish God had taken me instead,” he said.`\
+https://nytimes.com/2025/09/17/us/california-judge-convicted-wife-murder.html
+
 **Police Officers Killed in Shooting in Southern Pennsylvania**\
-`At least three police officers were killed and two others were seriously injured in a shooting, according to the state police commissioner.`\
+`Three police officers were killed and two others were seriously injured in a shooting, according to the state police commissioner.`\
 https://nytimes.com/video/us/100000010406205/pennsylvania-police-officers-shot-josh-shapiro.html
 
 **Palestinians Flee Gaza City as Israel Expands Its Offensive**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6639025/2025/09/17/nwsl-boston-legacy-100-million-s
 **Have a Bengals question? Send it to beat writer Paul Dehner Jr. for an upcoming mailbag**\
 `Cincinnati heads north to play the Minnesota Vikings on Sunday as Jake Browning takes over at quarterback.`\
 https://nytimes.com/athletic/6639030/2025/09/17/bengals-mailbag-questions-dehner-vikings/
-
-**ABC Pulls Jimmy Kimmel Off Air for Charlie Kirk Comments**\
-`Mr. Kimmel faced some criticism for comments he made on Monday about the motives of the man who is accused of killing Mr. Kirk, the conservative activist.`\
-https://nytimes.com/2025/09/17/business/media/abc-jimmy-kimmel.html
-
-**Upending Precedent, Thune Bows To Realities of a Polarized Senate**\
-`In using the nuclear option, John Thune has turned a Senate precedent on its head, defying his reputation as an institutionalist.`\
-https://nytimes.com/2025/09/17/us/politics/john-thune-senate-filibuster.html
 
