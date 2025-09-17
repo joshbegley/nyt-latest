@@ -1,40 +1,40 @@
-**Ask The Morning: What Do You Want to Know About Drones?**\
-`Drone attacks have become ubiquitous in warfare. We’ll find experts to answer your questions.`\
-https://nytimes.com/2025/09/17/education/ask-the-morning-what-do-you-want-to-know-about-drones.html
+**Are You Ready to Meet the King? Try Our Quiz on U.K. State Visit Etiquette.**\
+`If you were an aide to President Trump during his trip to Britain and wanted to avoid any pitfalls, what would you do?`\
+https://nytimes.com/interactive/2025/09/17/world/europe/17int-uk-visit-quiz.html
 
-**Trump’s Second U.K. State Visit Draws Protests**\
-`As President Trump arrived in Britain on Tuesday night, protesters unveiled visual stunts aimed at highlighting his ties to Jeffrey Epstein, while a march was planned for Wednesday.`\
-https://nytimes.com/2025/09/17/world/europe/trump-uk-visit-protest.html
+**Fantasy football best and worst matchups of Week 3: A.J. Brown, Drake London bounce backs**\
+`KC Joyner looks at matchups around the league to help you with start/sit questions ahead of Week 3. `\
+https://nytimes.com/athletic/6634566/2025/09/17/fantasy-football-week-3-matchups-best-worst/
 
-**President Trump’s 2nd U.K. State Visit: What’s on the Agenda**\
-`The president and the first lady will be hosted at Windsor Castle by King Charles III and Queen Camilla.`\
-https://nytimes.com/2025/09/17/world/europe/president-trumps-2nd-uk-state-visit-whats-on-the-agenda.html
+**Fired C.D.C. Director to Testify About Her Clash With Kennedy**\
+`Wednesday’s hearing before the Senate health committee promises to be a referendum on the health secretary’s leadership and expose a rocky time at the nation’s public health agency.`\
+https://nytimes.com/2025/09/17/us/politics/monarez-cdc-senate-cassidy.html
 
-**Young Protesters in Nepal Recover Looted Goods for Shopkeepers**\
-`After protests left behind a trail of destruction in Nepal, a group of small business owners are stepping in to salvage looted home appliances in an effort to restore order.`\
-https://nytimes.com/video/world/asia/100000010392287/nepal-protest-looting.html
+**Robert Redford Didn’t Love Hollywood, Yet Hollywood Loved Him**\
+`Mr. Redford’s outspoken opinions and his championing of young filmmakers overshadowed his many criticisms of the industry.`\
+https://nytimes.com/2025/09/17/business/robert-redford-hollywood.html
 
-**How a Nation’s Bureaucracy Went Up in Smoke**\
-`Arson attacks during protests in Nepal destroyed buildings, court files and even records of international agreements and state investments.`\
-https://nytimes.com/2025/09/17/world/asia/nepal-protests-arson-singha-durbar.html
+**At Home and on the Seas, Trump Expands Use of American Force**\
+`His first term focused on America’s rival superpowers. Now the emphasis is on homeland defense and troops on city streets.`\
+https://nytimes.com/2025/09/17/us/politics/trump-shift-national-security-focus.html
 
-**Fall Video Games**\
-`What new games are you playing? What upcoming releases are you most looking forward to?`\
-https://nytimes.com/2025/09/17/learning/fall-video-games.html
+**Robert Redford’s Many Types of Heroes**\
+`The Outlaw, the Romantic, the Survivor: From the Sundance Kid to his final role, he showed different ways to be a hero onscreen.`\
+https://nytimes.com/2025/09/17/movies/robert-redford-heroes-film.html
 
-**A Tossup Race for Governor Draws Big Money and a Bright Spotlight**\
-`National party leaders have taken a keen interest in the race for governor of New Jersey, where Jack Ciattarelli, a Republican, is competing against Representative Mikie Sherrill, a Democrat.`\
-https://nytimes.com/2025/09/17/nyregion/new-jersey-governors-race.html
+**Are You a Fan of Anime?**\
+`Once a niche, countercultural art form, anime is now mainstream. What are your experiences with anime, and what do you think of its explosive popularity?`\
+https://nytimes.com/2025/09/17/learning/are-you-a-fan-of-anime.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/09/17/crosswords/spelling-bee-forum.html
+**What to Watch at the Federal Reserve’s September Meeting**\
+`The U.S. central bank is widely expected to cut interest rates for the first time this year, despite the economy sending mixed signals.`\
+https://nytimes.com/2025/09/17/business/what-to-watch-federal-reserve-september-meeting.html
 
-**Most U.K. Political Leaders Are Cautiously Welcoming Trump. Not This One.**\
-`Ed Davey, of the Liberal Democrats, says that President Trump does not represent British values, and is boycotting a state dinner with the U.S. leader over Gaza.`\
-https://nytimes.com/2025/09/17/world/europe/ed-davey-trump-uk-state-dinner-boycott.html
+**Investors Are Bullish as a Pivotal Fed Decision Looms**\
+`The S&P 500 is in record territory, and investors are pricing in a quarter-point cut to interest rates on Wednesday.`\
+https://nytimes.com/2025/09/17/business/investors-are-bullish-as-a-pivotal-fed-decision-looms.html
 
-**Criticised by his manager and jeered by his old fans, Romain Esse is struggling at Crystal Palace**\
-`The 20-year-old drew the ire of Oliver Glasner and suffered the embarrassment of being substituted off at half-time against Millwall`\
-https://nytimes.com/athletic/6626372/2025/09/17/romain-esse-crystal-palace-millwall-glasner/
+**As Trump Arrives, Europe’s Right Claims Charlie Kirk as One of Their Own**\
+`After decades of claiming persecution, once marginalized parties latch on to the American activist’s assassination as proof of their victimization.`\
+https://nytimes.com/2025/09/17/world/europe/europe-charlie-kirk-trump-far-right.html
 
