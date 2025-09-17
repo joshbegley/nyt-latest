@@ -1,6 +1,22 @@
+**Activists Project Images of Trump and Epstein Before U.K. Visit**\
+`British protesters projected images of President Trump and Jeffrey Epstein onto Windsor Castle on Tuesday night before the president arrived for a state visit. More protests are planned for Wednesday.`\
+https://nytimes.com/video/world/europe/100000010403955/trump-epstein-windsor-castle-protest.html
+
+**How to watch Phillies at Dodgers: Time, TV, streaming for September 17**\
+`Find out how to watch the Philadelphia Phillies play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6636766/2025/09/17/phillies-vs-dodgers-stream-how-to-watch-sept-17/
+
+**How to watch Giants at Diamondbacks: Time, TV, streaming for September 17**\
+`Find out how to watch the San Francisco Giants play the Arizona Diamondbacks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6636751/2025/09/17/giants-vs-diamondbacks-stream-how-to-watch-sept-17/
+
+**Live Updates: U.K. Prepares Royal Welcome for Trump in 2nd State Visit**\
+`With a carriage ride at Windsor Castle and dinner with King Charles III, Britain tries to appeal to a president who has seemed intent on upending the post-World War II order.`\
+https://nytimes.com/live/2025/09/17/world/trump-uk-state-visit
+
 **Are You Ready to Meet the King? Try Our Quiz on U.K. State Visit Etiquette.**\
 `If you were an aide to President Trump during his trip to Britain and wanted to avoid any pitfalls, what would you do?`\
-https://nytimes.com/interactive/2025/09/17/world/europe/17int-uk-visit-quiz.html
+https://nytimes.com/interactive/2025/09/17/world/europe/uk-state-visit-etiquette-quiz.html
 
 **Fantasy football best and worst matchups of Week 3: A.J. Brown, Drake London bounce backs**\
 `KC Joyner looks at matchups around the league to help you with start/sit questions ahead of Week 3. `\
@@ -21,20 +37,4 @@ https://nytimes.com/2025/09/17/us/politics/trump-shift-national-security-focus.h
 **Robert Redford’s Many Types of Heroes**\
 `The Outlaw, the Romantic, the Survivor: From the Sundance Kid to his final role, he showed different ways to be a hero onscreen.`\
 https://nytimes.com/2025/09/17/movies/robert-redford-heroes-film.html
-
-**Are You a Fan of Anime?**\
-`Once a niche, countercultural art form, anime is now mainstream. What are your experiences with anime, and what do you think of its explosive popularity?`\
-https://nytimes.com/2025/09/17/learning/are-you-a-fan-of-anime.html
-
-**What to Watch at the Federal Reserve’s September Meeting**\
-`The U.S. central bank is widely expected to cut interest rates for the first time this year, despite the economy sending mixed signals.`\
-https://nytimes.com/2025/09/17/business/what-to-watch-federal-reserve-september-meeting.html
-
-**Investors Are Bullish as a Pivotal Fed Decision Looms**\
-`The S&P 500 is in record territory, and investors are pricing in a quarter-point cut to interest rates on Wednesday.`\
-https://nytimes.com/2025/09/17/business/investors-are-bullish-as-a-pivotal-fed-decision-looms.html
-
-**As Trump Arrives, Europe’s Right Claims Charlie Kirk as One of Their Own**\
-`After decades of claiming persecution, once marginalized parties latch on to the American activist’s assassination as proof of their victimization.`\
-https://nytimes.com/2025/09/17/world/europe/europe-charlie-kirk-trump-far-right.html
 
