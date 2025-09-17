@@ -1,3 +1,15 @@
+**Nathan Walker, Blues agree to 2-year contract extension**\
+`In 2024-25, Walker was a key member of the Blues' fourth line, scoring eight goals and 16 points in 73 games.`\
+https://nytimes.com/athletic/6638004/2025/09/17/nathan-walker-blues-contract-extension/
+
+**Facing the Global Problem of Plastic**\
+`Readers respond to a guest essay about throwaway plastic. Also: President Trump the divider; stealth legislation.`\
+https://nytimes.com/2025/09/17/opinion/plastics-global.html
+
+**What I'm hearing about Anthony Stolarz, Maple Leafs: Working on an extension — with a deadline**\
+`Stolarz doesn't want talks to bleed into the regular season in three weeks, according to league sources. Here's where things are at.`\
+https://nytimes.com/athletic/6637642/2025/09/17/anthony-stolarz-maple-leafs-camp-contract-negotiations/
+
 **Building The Beast: Clemson defenders 'on notice' after slow start dings NFL draft stock**\
 `Clemson’s ugly start has brought the wrong kind of attention to its highly touted defensive stars.`\
 https://nytimes.com/athletic/6637663/2025/09/17/building-the-beast-clemson-defenders-on-notice-after-slow-start-dings-nfl-draft-stock/

@@ -1,3 +1,15 @@
+**Nathan Walker, Blues agree to 2-year contract extension**\
+`In 2024-25, Walker was a key member of the Blues' fourth line, scoring eight goals and 16 points in 73 games.`\
+https://nytimes.com/athletic/6638004/2025/09/17/nathan-walker-blues-contract-extension/
+
+**Facing the Global Problem of Plastic**\
+`Readers respond to a guest essay about throwaway plastic. Also: President Trump the divider; stealth legislation.`\
+https://nytimes.com/2025/09/17/opinion/plastics-global.html
+
+**What I'm hearing about Anthony Stolarz, Maple Leafs: Working on an extension — with a deadline**\
+`Stolarz doesn't want talks to bleed into the regular season in three weeks, according to league sources. Here's where things are at.`\
+https://nytimes.com/athletic/6637642/2025/09/17/anthony-stolarz-maple-leafs-camp-contract-negotiations/
+
 **Building The Beast: Clemson defenders 'on notice' after slow start dings NFL draft stock**\
 `Clemson’s ugly start has brought the wrong kind of attention to its highly touted defensive stars.`\
 https://nytimes.com/athletic/6637663/2025/09/17/building-the-beast-clemson-defenders-on-notice-after-slow-start-dings-nfl-draft-stock/
@@ -21,20 +33,4 @@ https://nytimes.com/athletic/6637351/2025/09/17/nfl-week-3-confidence-picks-bett
 **Georgia Election Official Who Defied Trump Enters Governor’s Race**\
 `Brad Raffensperger, the two-term Republican secretary of state, joins a primary that also includes the state’s lieutenant governor and attorney general.`\
 https://nytimes.com/2025/09/17/us/brad-raffensperger-georgia-governor-election.html
-
-**The Fed meeting brings together a Trump ally with a target of his ire.**\
-`By Colby Smith`\
-https://nytimes.com/live/2025/09/17/business/federal-reserve-interest-rates/the-fed-meeting-brings-together-a-trump-ally-with-a-target-of-his-ire
-
-**A Surprise Awaited These Travelers at Check-In: The Hotel Was Closed**\
-`Several Manhattan hotels operated by LuxUrban abruptly closed without warning, leaving visitors from around the world scrambling for a place to stay.`\
-https://nytimes.com/2025/09/17/travel/luxurban-hotels-closed-new-york.html
-
-**Breanna Stewart says she plans to play in Game 2**\
-`"I want to be out with my team," said Stewart, who didn't practice Tuesday after sustaining a MCL injury in overtime in Game 1.`\
-https://nytimes.com/athletic/6637674/2025/09/17/breanna-stewart-plans-to-play-game-2/
-
-**Can One of America’s Great Black Southern Chefs Take Paris?**\
-`Mashama Bailey, the acclaimed chef of the Grey in Savannah, Ga., is opening a new restaurant on the Left Bank.`\
-https://nytimes.com/2025/09/17/dining/mashama-bailey-larret-paris-restaurant.html
 
