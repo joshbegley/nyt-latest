@@ -1,3 +1,7 @@
+**Why Robert Redford and 'The Natural' still resonate with sports fans**\
+`“The Natural” is filled iconic moments where Hobbs achieves the sports accomplishments most of us can only dream about.`\
+https://nytimes.com/athletic/6634392/2025/09/16/robert-redford-the-natural-baseball/
+
 **Retired Admiral Is Sentenced to 6 Years in Prison for Bribery**\
 `Robert P. Burke, a retired four-star admiral, was convicted in May of exchanging a government contract for a lucrative post-retirement job with the company that got it.`\
 https://nytimes.com/2025/09/16/us/us-navy-admiral-bribery-sentencing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/16/weather/california-rain-tropical-storm-mario-fore
 **Source: With RB Aaron Jones headed to IR, Vikings to sign Cam Akers, QB Desmond Ridder**\
 `Jones injured his hamstring in Sunday night’s loss to the Falcons. This will be Akers' third go-round with the Vikings in three seasons.`\
 https://nytimes.com/athletic/6635640/2025/09/16/vikings-aaron-jones-injury-cam-akers-desmond-ridder/
-
-**Repeat Offender Charged With Threatening the Lives of Female Judges**\
-`Anthony Salvatore Perri threatened to kill two jurists and said others were targets, prosecutors say. The charges against him come as the nation is seeing a wave of threats against judges.`\
-https://nytimes.com/2025/09/16/nyregion/brooklyn-judge-threat-indictment.html
 
