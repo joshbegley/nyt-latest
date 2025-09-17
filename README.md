@@ -1,40 +1,40 @@
-**Jerry of Ben & Jerry’s Resigns, Saying Company Has Been ‘Silenced’**\
-`Jerry Greenfield said that the ice cream company, known for its activism, had been muzzled by Unilever, its parent company.`\
-https://nytimes.com/2025/09/17/business/ben-and-jerrys-cofounder-resigns.html
+**Vikings offensive line's disappointing start raises major questions with tests looming**\
+`Minnesota's refurbished front was supposed to be a strength this season. After two poor performances, concerns — and injuries — abound.`\
+https://nytimes.com/athletic/6635070/2025/09/17/vikings-offensive-line-ryan-kelly-will-fries/
 
-**Here’s the latest.**\
-`By Shawn McCreesh`\
-https://nytimes.com/live/2025/09/17/world/trump-uk-state-visit/heres-the-latest
+**Watching history: Cal Raleigh's teammates, Mariners brass reflect on all-time season**\
+`The Mariners and other Raleigh admirers talk about their favorite memories, special moments and deep thoughts from this season for the ages.`\
+https://nytimes.com/athletic/6636193/2025/09/17/cal-raleigh-mariners-historic-season/
 
-**The New York Times International Edition in Print for Thursday, Sep. 18, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/09/17/todays-new-york-times-international-edition
+**Jimmie Johnson at 50: Seven-time NASCAR champ reflects on his career and life**\
+`The NASCAR legend sits down to talk about his driving career, lessons as he turns 50, and what he still wants to accomplish.`\
+https://nytimes.com/athletic/6632955/2025/09/17/jimmie-johnson-nascar-turns-50-interview/
 
-**A Note, a Gun and a Mother’s Conscience Led to an Arrest in Kirk’s Killing**\
-`The man accused of shooting Charlie Kirk left a trail of evidence and had no way to outrun his parents’ recognition, court documents showed.`\
-https://nytimes.com/2025/09/17/us/politics/charlie-kirk-killer.html
+**Why this college football season is the Big 12’s chance to change its Playoff narrative**\
+`This college football season has seen multiple teams falling flat out of the gates, presenting the Big 12 a chance for multiple CFP bids.`\
+https://nytimes.com/athletic/6635625/2025/09/17/big-12-college-football-playoff-narrative/
 
-**Billionaires and Startups bet on Thailand’s “Endless Opportunities”**\
-`Entrepreneurs who have earned billions of dollars investing in Thailand believe the Southeast Asian economy is emerging as a rising hub of opportunity`\
-https://nytimes.com/paidpost/thailand-board-of-investment/billionaires-and-startups-bet-on-thailands-endless-opportunities.html
+**Drake Maye's dazzling display, Travis Kelce's resurgence, more Week 2 thoughts: Quick Outs**\
+`New England's young QB lit up Miami's defense, while Kelce continued to play well — but not without one glaring issue.`\
+https://nytimes.com/athletic/6634272/2025/09/17/nfl-quick-outs-week-2-drake-maye/
 
-**Thomas Partey pleads not guilty to charges of rape and sexual assault**\
-`The 32-year-old was charged in July with five counts of rape and one count of sexual assault against three women.`\
-https://nytimes.com/athletic/6634558/2025/09/17/thomas-partey-rape-case-plea/
+**Jaylen Warren has played like a feature back — is it time for the Steelers to treat him like one?**\
+`The Steelers' RB1 has been in more of a backfield-by-committee through the season's first two games.`\
+https://nytimes.com/athletic/6635416/2025/09/17/jaylen-warren-pittsburgh-steelers-feature-back/
 
-**Activists Project Images of Trump and Epstein Before U.K. Visit**\
-`British protesters projected images of President Trump and Jeffrey Epstein onto Windsor Castle on Tuesday night before the president arrived for a state visit. More protests are planned for Wednesday.`\
-https://nytimes.com/video/world/europe/100000010403955/trump-epstein-windsor-castle-protest.html
+**Backup QBs will be everywhere in Week 3. How will their teams respond?**\
+`Five quarterbacks who began the season as starters could be out in Week 3. How will their teams' offenses change without them?`\
+https://nytimes.com/athletic/6634668/2025/09/17/nfl-backup-quarterbacks-injuries-burrow-mccarthy-daniels-fields-purdy/
 
-**How to watch Phillies at Dodgers: Time, TV, streaming for September 17**\
-`Find out how to watch the Philadelphia Phillies play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6636766/2025/09/17/phillies-vs-dodgers-stream-how-to-watch-sept-17/
+**Why F1’s calendar could look the same for years as tracks ink long-term deals**\
+`F1 has recently announced a series of new deals for many races on its current schedule. A new business tactic is driving this change`\
+https://nytimes.com/athletic/6630875/2025/09/17/f1-calendar-circuit-contract-length/
 
-**How to watch Giants at Diamondbacks: Time, TV, streaming for September 17**\
-`Find out how to watch the San Francisco Giants play the Arizona Diamondbacks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6636751/2025/09/17/giants-vs-diamondbacks-stream-how-to-watch-sept-17/
+**Can the Capitals survive an Ovi hangover? Life in D.C. after the Alex Ovechkin record-chase hype**\
+`Teammates say Alex Ovechkin's pursuit of Wayne Gretzky's career goal-scoring record gave the whole team a boost in 2024-25. So what now?`\
+https://nytimes.com/athletic/6632331/2025/09/17/alex-ovechkin-capitals-record-hype-hangover/
 
-**Live Updates: U.K. Prepares Royal Welcome for Trump in 2nd State Visit**\
-`With a carriage ride at Windsor Castle and dinner with King Charles III, Britain tries to appeal to a president who has seemed intent on upending the post-World War II order.`\
-https://nytimes.com/live/2025/09/17/world/trump-uk-state-visit
+**Josh Allen's new visor, DT plan for Bills-Dolphins, O'Cyrus Torrence's breakout, and more**\
+`Plus, where the Bills would miss Matt Milano against Miami's offense.`\
+https://nytimes.com/athletic/6635730/2025/09/17/bills-dolphins-josh-allen-nose-ed-oliver/
 
