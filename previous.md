@@ -1,3 +1,7 @@
+**100 Liberal Philanthropies Prepare to Push Back Against Trump Crackdown**\
+`The institutions published an open letter to defend their missions amid fears the Trump administration could target their tax-exempt status.`\
+https://nytimes.com/2025/09/17/us/politics/trump-liberal-philanthropies-pushback.html
+
 **Is the Economy as Healthy as Trump Claims?**\
 `As the Fed meets, we examine the nation’s economic health.`\
 https://nytimes.com/2025/09/17/us/the-morning-economy-trump-gaza-redford.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6633952/2025/09/17/greaves-merzlikins-blue-jackets/
 **How Arch Manning's first 5 starts compare to uncles Peyton, Eli and grandfather Archie**\
 `Arch, who struggled last week against UTEP, is not the first Manning to get off to a slow start when handed the reins of an SEC offense. `\
 https://nytimes.com/athletic/6633988/2025/09/17/arch-manning-texas-stats-peyton-eli-archie/
-
-**New York Rangers 2025-26 prospect rankings: Dynamic defensive skills at No. 3**\
-`Acquired in a recent trade, our third-ranked Rangers prospect immediately slots in as the system's best defenseman.`\
-https://nytimes.com/athletic/6634537/2025/09/17/scott-morrow-new-york-rangers-2025-26-prospect-rankings/
 

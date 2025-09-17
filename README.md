@@ -1,3 +1,11 @@
+**Israel Pounds Gaza City as Fears Mount for Those Inside**\
+`With hundreds of thousands of Palestinians still in the city, the Israeli military said it was opening another temporary evacuation route.`\
+https://nytimes.com/2025/09/17/world/middleeast/israel-gaza-city.html
+
+**Why isn't the Golden State Valkyries' WNBA playoff game at Chase Center?**\
+`A conflict will keep the Valkyries from hosting their first playoff game to cap their historic season.`\
+https://nytimes.com/athletic/6636188/2025/09/17/golden-state-valkyries-wnba-playoff-sap-center/
+
 **100 Liberal Philanthropies Prepare to Push Back Against Trump Crackdown**\
 `The institutions published an open letter to defend their missions amid fears the Trump administration could target their tax-exempt status.`\
 https://nytimes.com/2025/09/17/us/politics/trump-liberal-philanthropies-pushback.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6632432/2025/09/17/texas-tech-utah-miami-florida-bi
 **Guadalajara, 'the most Mexican' city, eyes its next World Cup moment**\
 `Guadalajara is getting a glow-up for the World Cup, but visitors will still find a host whose soul is steeped in local pride and culture`\
 https://nytimes.com/athletic/6599625/2025/09/17/guadalajara-mexico-2026-world-cup-host/
-
-**Jet Greaves vs. Elvis Merzlikins, and 8 other storylines to watch in Blue Jackets camp**\
-`The types of questions have changed, but there's still plenty to monitor when practices begin on Thursday.`\
-https://nytimes.com/athletic/6633952/2025/09/17/greaves-merzlikins-blue-jackets/
-
-**How Arch Manning's first 5 starts compare to uncles Peyton, Eli and grandfather Archie**\
-`Arch, who struggled last week against UTEP, is not the first Manning to get off to a slow start when handed the reins of an SEC offense. `\
-https://nytimes.com/athletic/6633988/2025/09/17/arch-manning-texas-stats-peyton-eli-archie/
 

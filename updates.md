@@ -1,3 +1,7 @@
+**100 Liberal Philanthropies Prepare to Push Back Against Trump Crackdown**\
+`The institutions published an open letter to defend their missions amid fears the Trump administration could target their tax-exempt status.`\
+https://nytimes.com/2025/09/17/us/politics/trump-liberal-philanthropies-pushback.html
+
 **Is the Economy as Healthy as Trump Claims?**\
 `As the Fed meets, we examine the nation’s economic health.`\
 https://nytimes.com/2025/09/17/us/the-morning-economy-trump-gaza-redford.html
