@@ -1,3 +1,7 @@
+**Building The Beast: Clemson defenders 'on notice' after slow start dings NFL draft stock**\
+`Clemson’s ugly start has brought the wrong kind of attention to its highly touted defensive stars.`\
+https://nytimes.com/athletic/6637663/2025/09/17/building-the-beast-clemson-defenders-on-notice-after-slow-start-dings-nfl-draft-stock/
+
 **These Women Make Basketball Fans’ Favorite Food**\
 `For the last six years, Deborah Emmanuel and Mahogany Almond have provided Brooklyn sports fans with bags and bags of popcorn.`\
 https://nytimes.com/2025/09/17/dining/basketball-popcorn-barclays.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6637674/2025/09/17/breanna-stewart-plans-to-play-ga
 **Can One of America’s Great Black Southern Chefs Take Paris?**\
 `Mashama Bailey, the acclaimed chef of the Grey in Savannah, Ga., is opening a new restaurant on the Left Bank.`\
 https://nytimes.com/2025/09/17/dining/mashama-bailey-larret-paris-restaurant.html
-
-**Texas A&M's Anderson avoided 'catastrophic injury' vs. Notre Dame, team says**\
-`After a collision with Notre Dame TE Eli Raridon, Anderson remained on the field for about 10 minutes while Texas A&M staff tended to him.`\
-https://nytimes.com/athletic/6637917/2025/09/17/texas-am-bryce-anderson-injury-notre-dame/
 

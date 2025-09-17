@@ -1,3 +1,7 @@
+**Building The Beast: Clemson defenders 'on notice' after slow start dings NFL draft stock**\
+`Clemson’s ugly start has brought the wrong kind of attention to its highly touted defensive stars.`\
+https://nytimes.com/athletic/6637663/2025/09/17/building-the-beast-clemson-defenders-on-notice-after-slow-start-dings-nfl-draft-stock/
+
 **These Women Make Basketball Fans’ Favorite Food**\
 `For the last six years, Deborah Emmanuel and Mahogany Almond have provided Brooklyn sports fans with bags and bags of popcorn.`\
 https://nytimes.com/2025/09/17/dining/basketball-popcorn-barclays.html
