@@ -1,3 +1,7 @@
+**Browns mailbag: When would a front-office shakeup make sense?**\
+`Plus, how many of Cleveland's starting offensive lineman will return next season? And when will the special teams woes come to a stop?`\
+https://nytimes.com/athletic/6635380/2025/09/17/browns-mailbag-front-office-changes/
+
 **The defense was supposed to carry the Giants, but so far, it's holding them back**\
 `The run defense looks as bad as ever, while the pass rush has been fine. Neither is good enough for New York to get where it wants to go.`\
 https://nytimes.com/athletic/6634619/2025/09/17/giants-run-defense-shane-bowen/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/09/17/world/trump-uk-state-visit/security-plans-fo
 **Bizarro-meter 2025: Which Eastern Conference team had the weirdest offseason?**\
 `The offseason is almost over. Time to see what strange things teams got up to when we were only sort of paying attention.`\
 https://nytimes.com/athletic/6635294/2025/09/17/nhl-bizarro-meter-2025-eastern-conference-offseason/
-
-**Travis Hunter made coaches rethink how to use players. Will it spark a football revolution?**\
-`While not everyone is Travis Hunter, the best to play two ways changed minds on how to manage players doing it in his stead.`\
-https://nytimes.com/athletic/6635548/2025/09/17/travis-hunter-koi-perich-martel-hight-college-football-two-way-players/
 

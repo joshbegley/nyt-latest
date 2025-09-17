@@ -1,3 +1,15 @@
+**The defense was supposed to carry the Giants, but so far, it's holding them back**\
+`The run defense looks as bad as ever, while the pass rush has been fine. Neither is good enough for New York to get where it wants to go.`\
+https://nytimes.com/athletic/6634619/2025/09/17/giants-run-defense-shane-bowen/
+
+**Rosenthal: The Mets kept a passing lane open in the race for the NL’s final wild-card spot. Will any team take it?**\
+`Two of the three teams 'chasing' the Mets, the Diamondbacks and Giants, were sellers at the trade deadline.`\
+https://nytimes.com/athletic/6636319/2025/09/17/nl-wild-card-mets-giants-diamondbacks-reds/
+
+**All the right moves: Colts' biggest offseason decisions look like home runs so far**\
+`Colts GM Chris Ballard was told to "fix it" by late owner Jim Irsay. It's too soon to know if he has, but the early returns are promising. `\
+https://nytimes.com/athletic/6634164/2025/09/17/indianapolis-colts-chris-ballard-offseason-daniel-jones/
+
 **Rafael Marchán has his moment, and the Phillies are soaring toward a coveted bye**\
 `Marchán's go-ahead, three-run homer was the biggest hit of the backup catcher's life and all but sealed a first-round bye for the Phillies.`\
 https://nytimes.com/athletic/6636633/2025/09/17/phillies-dodgers-rafael-marchan-playoff-bye/
