@@ -1,3 +1,23 @@
+**West Ham issue statement to 'reassure supporters' after no confidence letter**\
+`The London side's Fan Advisory Board issued a "vote of no confidence" to the club's board after a poor start to the season.`\
+https://nytimes.com/athletic/6638714/2025/09/17/west-ham-fan-protests-letter/
+
+**D.C. City Council approves $3.8 billion Commanders stadium project**\
+`A 65,000-seat stadium will be built on the old RFK Stadium site, along with a massive mixed-use development project`\
+https://nytimes.com/athletic/6638986/2025/09/17/commanders-stadium-final-approval-washington-dc/
+
+**After National Tragedies, Obama and Trump Are a Study in Contrasts**\
+`Former President Barack Obama said the job of an American president is to “remind us of the ties that bind us together.” President Trump apparently disagrees.`\
+https://nytimes.com/2025/09/17/us/politics/obama-trump-national-tragedies.html
+
+**What we heard about McDavid, Hyman and more as Oilers open training camp**\
+`Here are five noteworthy Oilers items beyond McDavid’s contractual situation from Wednesday’s media availabilities.`\
+https://nytimes.com/athletic/6638854/2025/09/17/oilers-mcdavid-hyman-training-camp/
+
+**What we learned from Doug Armstrong's final season preview as Blues GM**\
+`Armstrong addressed Holloway's health, Holloway and Broberg's contracts, Lucic's second chance, Mailloux's roster spot and more.`\
+https://nytimes.com/athletic/6637661/2025/09/17/blues-season-preview-doug-armstrong/
+
 **Fed Lowers Interest Rates by Quarter Point**\
 `Jerome Powell, the Fed Chair, announced interest rate cuts by a quarter of a percentage point on Wednesday.`\
 https://nytimes.com/video/business/100000010406118/fed-interest-rate-powell.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/09/17/health/5-takeaways-from-ousted-cdc-directors-hear
 **Here’s Who Attended the State Dinner at Windsor Castle**\
 `The guest list ranged from members of the royal family to titans of business and technology.`\
 https://nytimes.com/2025/09/17/world/europe/guest-list-state-dinner-windsor-castle.html
-
-**Simeone says his reaction to Liverpool fans' 'insults' was 'not justifiable' after altercation**\
-`The Atletico head coach was sent off following Liverpool's late winner in their Champions League clash.`\
-https://nytimes.com/athletic/6638857/2025/09/17/diego-simeone-liverpool-fan-atletico/
-
-**Fed Lowered Rates for First Time This Year**\
-`Also, Trump received a royal welcome in Britain. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2025/09/17/briefing/fed-interest-rates-cdc-leader-testimony.html
-
-**Many Minor Hits Can Damage an Athlete’s Brain**\
-`New research in amateur football and soccer players has identified some potential early warning signs of C.T.E.`\
-https://nytimes.com/2025/09/17/well/mind/brain-damage-sports.html
-
-**Bear Injures Hiker at Yellowstone National Park in Surprise Encounter**\
-`In a rare confrontation, a 29-year-old man suffered injuries to his chest and left arm, park officials said.`\
-https://nytimes.com/2025/09/17/us/bear-yellowstone-park-injures-hiker.html
-
-**Republican Senator Casts Doubt on Kennedy’s Vaccine Advisers**\
-`Senator Bill Cassidy, the chairman of the health committee, said Americans should not trust a possible change to the childhood vaccine guidance.`\
-https://nytimes.com/2025/09/17/us/politics/cassidy-vaccine-panel-doubt.html
 
