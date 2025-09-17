@@ -1,3 +1,7 @@
+**Nebraska volleyball breaks NCAA attendance record for regular-season indoor match**\
+`Tuesday's game between No. 1-ranked Nebraska women and 18th-ranked Creighton beat an attendance record from 2023.`\
+https://nytimes.com/athletic/6636101/2025/09/16/nebraska-creighton-volleyball-ncaa-attendance-record/
+
 **Trump Invokes Kirk’s Killing in Justifying Measures to Silence Opponents**\
 `In the wake of Charlie Kirk’s killing, President Trump and his allies have laid out a broad plan to target liberal groups, monitor speech, revoke visas and designate certain groups as domestic terrorists.`\
 https://nytimes.com/2025/09/16/us/politics/trump-kirk-free-speech-hate-speech-left.html
