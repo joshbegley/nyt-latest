@@ -1,10 +1,14 @@
+**Submit your questions for Kevin Fishbain's Week 3 Bears mailbag**\
+`After getting blown out 52-21 in Detroit, the Bears host the Cowboys and their old pal Matt Eberflus on Sunday. What's on your mind?`\
+https://nytimes.com/athletic/6638628/2025/09/17/bears-mailbag-questions-week-3/
+
 **Cubs clinch a postseason berth for first time since 2020**\
 `The Cubs are the third National League team to punch their ticket to the postseason.`\
 https://nytimes.com/athletic/6638609/2025/09/17/chicago-cubs-postseason-clinch-2025/
 
 **A Group of Socialists Created a Hit Game That Tore Them Apart**\
 `The role-playing game Disco Elysium wowed critics by lacerating capitalism, communism and fascism. But instead of a sequel came bitter lawsuits and five rival studios.`\
-https://nytimes.com/interactive/2025/09/17/arts/2025-07-15-discoelysium.html
+https://nytimes.com/interactive/2025/09/17/arts/disco-elysium-zaum-estonia.html
 
 **Chargers' Khalil Mack headed to IR, but elbow injury isn't season-ending**\
 `Mack will miss at least the next four games, but the news was still "very encouraging" for the Chargers.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/17/nyregion/giuliani-lawyers-fees.html
 **Flames re-sign Mikael Backlund to 2-year, $3.25 million AAV extension**\
 `Last season, the center scored 15 goals and 32 points in 76 games as the Flames narrowly missed the playoffs.`\
 https://nytimes.com/athletic/6638252/2025/09/17/flames-mikael-backlund-contract-extension/
-
-**How to watch Lynx at Valkyries: Game 2 Time, TV, streaming**\
-`Find out how to watch the Minnesota Lynx play the Golden State Valkyries, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6638526/2025/09/17/lynx-vs-valkyries-stream-how-to-watch-sept-17/
 
