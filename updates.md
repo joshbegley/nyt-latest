@@ -1,3 +1,19 @@
+**Republican Senator Casts Doubt on Kennedy’s Vaccine Advisers**\
+`Senator Bill Cassidy, the chairman of the health committee, said Americans should not trust a possible change to the childhood vaccine guidance.`\
+https://nytimes.com/2025/09/17/us/politics/cassidy-vaccine-panel-doubt.html
+
+**This Is Peak Hurricane Season. Or Is It?**\
+`Despite a few decidedly quiet periods so far, forecasters say the conditions are still favorable for more hurricanes this year. The latest storm, Gabrielle, formed on Wednesday.`\
+https://nytimes.com/2025/09/17/weather/hurricane-season-forecast-updates.html
+
+**Liverpool 3 Atletico Madrid 2 - How did Slot's side do it again late on? Analysing Isak's debut**\
+`Virgil van Dijk's winner ensured a late, late show for Liverpool once again`\
+https://nytimes.com/athletic/6634151/2025/09/17/liverpool-3-atletico-madrid-2-van-dijk-isak/
+
+**Spirit Airlines Pilot Scolded for Apparently Flying Near Air Force One**\
+`An air traffic controller can be heard telling a Spirit Airlines pilot to “pay attention” after flying too close to Air Force One, according to audio taken from LiveATC.net, a website that broadcasts air traffic control communications.`\
+https://nytimes.com/video/us/100000010405823/air-traffic-control-spirit-airlines-scolded.html
+
 **Europe’s far-right and Charlie Kirk**\
 `The continent’s far right is claiming the activist as a martyr. Our colleague Jason Horowitz explains why.`\
 https://nytimes.com/2025/09/17/briefing/europes-far-right-charlie-kirk-trump-uk-state-visit.html

@@ -1,3 +1,15 @@
+**Republican Senator Casts Doubt on Kennedy’s Vaccine Advisers**\
+`Senator Bill Cassidy, the chairman of the health committee, said Americans should not trust a possible change to the childhood vaccine guidance.`\
+https://nytimes.com/2025/09/17/us/politics/cassidy-vaccine-panel-doubt.html
+
+**This Is Peak Hurricane Season. Or Is It?**\
+`Despite a few decidedly quiet periods so far, forecasters say the conditions are still favorable for more hurricanes this year. The latest storm, Gabrielle, formed on Wednesday.`\
+https://nytimes.com/2025/09/17/weather/hurricane-season-forecast-updates.html
+
+**Liverpool 3 Atletico Madrid 2 - How did Slot's side do it again late on? Analysing Isak's debut**\
+`Virgil van Dijk's winner ensured a late, late show for Liverpool once again`\
+https://nytimes.com/athletic/6634151/2025/09/17/liverpool-3-atletico-madrid-2-van-dijk-isak/
+
 **Europe’s far-right and Charlie Kirk**\
 `The continent’s far right is claiming the activist as a martyr. Our colleague Jason Horowitz explains why.`\
 https://nytimes.com/2025/09/17/briefing/europes-far-right-charlie-kirk-trump-uk-state-visit.html
@@ -11,7 +23,7 @@ https://nytimes.com/2025/09/17/us/tesla-body-found-d4vd.html
 https://nytimes.com/2025/09/17/world/europe/windsor-castles-state-dinner-features-lavish-menu.html
 
 **Spirit Airlines Pilot Scolded for Apparently Flying Near Air Force One**\
-`On audio from LiveATC.net, a website that broadcasts air traffic control communications, an air traffic controller can be heard telling a Spirit Airlines pilot to “pay attention” after flying too close to Air Force One.`\
+`An air traffic controller can be heard telling a Spirit Airlines pilot to “pay attention” after flying too close to Air Force One, according to audio taken from LiveATC.net, a website that broadcasts air traffic control communications.`\
 https://nytimes.com/video/us/100000010405823/air-traffic-control-spirit-airlines-scolded.html
 
 **What we heard at Canucks media day ahead of training camp, and what it all means**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6638617/2025/09/17/connor-ingram-trade-waivers-mamm
 **Here’s the menu for the state dinner at Windsor Castle.**\
 `(No description)`\
 https://nytimes.com/2025/09/17/world/europe/heres-the-menu-for-the-state-dinner-at-windsor-castle.html
-
-**Barron Trump Is Said to Move to N.Y.U.’s Campus in Washington**\
-`The 19-year-old sophomore has attracted widespread public interest since he enrolled at the university’s main campus in Manhattan last year.`\
-https://nytimes.com/2025/09/17/nyregion/barron-trump-moves-to-nyu-washington-campus.html
-
-**The Briefing: Bayern 3 Chelsea 1 - Clinical Kane; did drop ball help Bayern? What did Maresca learn?**\
-`Our writers break down the action from Munich as Chelsea fall to defeat on their Champions League return`\
-https://nytimes.com/athletic/6634149/2025/09/17/chelsea-bayern-munich-kane-palmer/
-
-**After Kirk’s Death, Students Return to Campus and Learn ‘How To Be Adults’**\
-`Utah Valley University burst into the nation’s conscience when Charlie Kirk was slain there. Its students resumed classes Wednesday, most trying to get on with their busy lives.`\
-https://nytimes.com/2025/09/17/us/politics/charlie-kirk-campus.html
 
