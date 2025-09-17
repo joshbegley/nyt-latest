@@ -1,3 +1,11 @@
+**Man Utd in talks to appoint former Man City academy coach Wright**\
+`The 53-year-old previously played with and worked under United's director of football Jason Wilcox`\
+https://nytimes.com/athletic/6637482/2025/09/17/manchester-united-manchester-city-academy-coach-alan-wright/
+
+**Protest in London contrasts with Trump’s warm royal reception.**\
+`Thousands of demonstrators poured into the streets of the capital as President Trump spent most of the day 20 miles away in Windsor.`\
+https://nytimes.com/live/2025/09/17/world/trump-uk-state-visit/london-protests
+
 **Times Square Casino Proposal Is Voted Down After Mounting Opposition**\
 `The $5.4 billion casino, Caesars Palace Times Square, was one of eight proposed gambling facilities under consideration for the New York City area.`\
 https://nytimes.com/2025/09/17/nyregion/times-square-casino-proposal-vote.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6636312/2025/09/17/thomas-muller-vancouver-whitecap
 **Tracking Tropical Storm Gabrielle**\
 `See the likely path and wind arrival times for Gabrielle`\
 https://nytimes.com/interactive/2025/weather/gabrielle-map-path-tracker.html
-
-**How Did Hands Evolve? The Answer Is Behind You.**\
-`The evolutionary blueprint for hands was borrowed in part from a much older genetic plan for our nether regions, a new study suggests.`\
-https://nytimes.com/2025/09/17/science/evolution-crispr-hands.html
-
-**Samin Nosrat’s Lazy Sugo**\
-`Her dish isn’t lazy at all, but is generous and unhurried, with time turning tomatoes, wine and bone-in meat into a rich, glossy sauce.`\
-https://nytimes.com/2025/09/17/dining/samin-nosrats-lazy-sugo.html
 
