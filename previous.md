@@ -1,3 +1,15 @@
+**Tucked in a Vineyard, a Field of Dreams Where Immigration Fears Fade Away**\
+`As ICE raids stoke anxiety in California, Latino men find solace at a baseball field built in the middle of a Sonoma County vineyard.`\
+https://nytimes.com/2025/09/17/business/ice-raids-vineyards-baseball.html
+
+**The Limits of Political Neutrality in a Divided Nation**\
+`Two nonprofits prided themselves on being neutral voices. Then they found that there seemed to be no middle ground in the nation’s redistricting war.`\
+https://nytimes.com/2025/09/17/us/political-neutrality-redistricting-california.html
+
+**Trump Administration Live Updates: Fired C.D.C. Director to Testify About Dispute With Kennedy**\
+``\
+https://nytimes.com/live/2025/09/17/us/trump-news
+
 **Powell Faces Challenges From Within the Fed, Too**\
 `The central bank is expected to reduce interest rates on Wednesday. But there could be a internal debate about the size of a cut , and how many more to make.`\
 https://nytimes.com/2025/09/17/business/dealbook/powell-fed-rates.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/17/us/the-morning-economy-trump-gaza-redford.html
 **Mirtle: Five reasons for pessimism for the Maple Leafs in 2025-26**\
 `For those who aren't the glass-half-full type, there are plenty of concerning issues looming over the Leafs this season.`\
 https://nytimes.com/athletic/6632462/2025/09/17/toronto-maple-leafs-2025-26-pessimism/
-
-**What does Zack Wheeler face after TOS surgery? Merrill Kelly's recovery offers insight**\
-`There is no one-size-fits-all recovery path. Kelly's post-surgery career success, however, offers some lessons for what could await Wheeler.`\
-https://nytimes.com/athletic/6621411/2025/09/17/zack-wheeler-phillies-thoracic-outlet-surgery/
-
-**The Tigers are going to hold on to the AL Central … right?**\
-`Detroit is only 5-8 in September, fighting to hold onto the division and their playoff seeding with 11 games left.`\
-https://nytimes.com/athletic/6636282/2025/09/17/tigers-al-central-playoff-race-mlb/
-
-**Israel’s Assault on Gaza City Stifles Hope of Diplomatic Resolution to War**\
-`A negotiated settlement to end the fighting remains distant, in part because of the maximalist positions of Israel’s leader, Benjamin Netanyahu, and of Hamas.`\
-https://nytimes.com/2025/09/17/world/middleeast/israel-assault-gaza-city-diplomacy.html
 

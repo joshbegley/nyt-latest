@@ -1,3 +1,15 @@
+**Tucked in a Vineyard, a Field of Dreams Where Immigration Fears Fade Away**\
+`As ICE raids stoke anxiety in California, Latino men find solace at a baseball field built in the middle of a Sonoma County vineyard.`\
+https://nytimes.com/2025/09/17/business/ice-raids-vineyards-baseball.html
+
+**The Limits of Political Neutrality in a Divided Nation**\
+`Two nonprofits prided themselves on being neutral voices. Then they found that there seemed to be no middle ground in the nation’s redistricting war.`\
+https://nytimes.com/2025/09/17/us/political-neutrality-redistricting-california.html
+
+**Trump Administration Live Updates: Fired C.D.C. Director to Testify About Dispute With Kennedy**\
+``\
+https://nytimes.com/live/2025/09/17/us/trump-news
+
 **Powell Faces Challenges From Within the Fed, Too**\
 `The central bank is expected to reduce interest rates on Wednesday. But there could be a internal debate about the size of a cut , and how many more to make.`\
 https://nytimes.com/2025/09/17/business/dealbook/powell-fed-rates.html
