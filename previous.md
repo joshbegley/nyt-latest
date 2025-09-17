@@ -1,40 +1,40 @@
-**Everton vs Burnley: Explaining the Premier League's latest legal row and why it matters**\
-`What sparked the compensation row being heard in London today and why could it be so important?`\
-https://nytimes.com/athletic/6635617/2025/09/17/everton-vs-burnley-explaining-premier-leagues-latest-legal-row/
+**What does Zack Wheeler face after TOS surgery? Merrill Kelly's recovery offers insight**\
+`There is no one-size-fits-all recovery path. Kelly's post-surgery career success, however, offers some lessons for what could await Wheeler.`\
+https://nytimes.com/athletic/6621411/2025/09/17/zack-wheeler-phillies-thoracic-outlet-surgery/
 
-**How the British royal family — and its staff — prepare for a state visit.**\
-`A glossy video published on the family’s official YouTube channel gave a rare insight into the extensive preparations carried out before the arrival of visiting dignitaries.`\
-https://nytimes.com/live/2025/09/17/world/trump-uk-state-visit/how-the-british-royal-family-and-its-staff-prepare-for-a-state-visit
+**The Tigers are going to hold on to the AL Central … right?**\
+`Detroit is only 5-8 in September, fighting to hold onto the division and their playoff seeding with 11 games left.`\
+https://nytimes.com/athletic/6636282/2025/09/17/tigers-al-central-playoff-race-mlb/
 
-**Browns mailbag: When would a front-office shakeup make sense?**\
-`Plus, how many of Cleveland's starting offensive lineman will return next season? And when will the special teams woes come to a stop?`\
-https://nytimes.com/athletic/6635380/2025/09/17/browns-mailbag-front-office-changes/
+**Israel’s Assault on Gaza City Stifles Hope of Diplomatic Resolution to War**\
+`A negotiated settlement to end the fighting remains distant, in part because of the maximalist positions of Israel’s leader, Benjamin Netanyahu, and of Hamas.`\
+https://nytimes.com/2025/09/17/world/middleeast/israel-assault-gaza-city-diplomacy.html
 
-**The defense was supposed to carry the Giants, but so far, it's holding them back**\
-`The run defense looks as bad as ever, while the pass rush has been fine. Neither is good enough for New York to get where it wants to go.`\
-https://nytimes.com/athletic/6634619/2025/09/17/giants-run-defense-shane-bowen/
+**College football Week 4 streaming guide: Texas Tech-Utah, Florida-Miami, B1G After Dark**\
+`Here are this weekend's games to watch for in college football, from ranked Big Ten, Big 12 and SEC action to an 11 p.m. ET kickoff.`\
+https://nytimes.com/athletic/6632432/2025/09/17/texas-tech-utah-miami-florida-big-ten-college-football-week-4-how-to-watch/
 
-**Rosenthal: The Mets kept a passing lane open in the race for the NL’s final wild-card spot. Will any team take it?**\
-`Two of the three teams 'chasing' the Mets, the Diamondbacks and Giants, were sellers at the trade deadline.`\
-https://nytimes.com/athletic/6636319/2025/09/17/nl-wild-card-mets-giants-diamondbacks-reds/
+**Guadalajara, 'the most Mexican' city, eyes its next World Cup moment**\
+`Guadalajara is getting a glow-up for the World Cup, but visitors will still find a host whose soul is steeped in local pride and culture`\
+https://nytimes.com/athletic/6599625/2025/09/17/guadalajara-mexico-2026-world-cup-host/
 
-**Rafael Marchán has his moment, and the Phillies are soaring toward a coveted bye**\
-`Marchán's go-ahead, three-run homer was the biggest hit of the backup catcher's life and all but sealed a first-round bye for the Phillies.`\
-https://nytimes.com/athletic/6636633/2025/09/17/phillies-dodgers-rafael-marchan-playoff-bye/
+**Jet Greaves vs. Elvis Merzlikins, and 8 other storylines to watch in Blue Jackets camp**\
+`The types of questions have changed, but there's still plenty to monitor when practices begin on Thursday.`\
+https://nytimes.com/athletic/6633952/2025/09/17/greaves-merzlikins-blue-jackets/
 
-**All the right moves: Colts' biggest offseason decisions look like home runs so far**\
-`Colts GM Chris Ballard was told to "fix it" by late owner Jim Irsay. It's too soon to know if he has, but the early returns are promising. `\
-https://nytimes.com/athletic/6634164/2025/09/17/indianapolis-colts-chris-ballard-offseason-daniel-jones/
+**How Arch Manning's first 5 starts compare to uncles Peyton, Eli and grandfather Archie**\
+`Arch, who struggled last week against UTEP, is not the first Manning to get off to a slow start when handed the reins of an SEC offense. `\
+https://nytimes.com/athletic/6633988/2025/09/17/arch-manning-texas-stats-peyton-eli-archie/
 
-**Mandel's mailbag: Despite an 0-2 start, can Notre Dame still reach the CFP?**\
-`Plus: Is Georgia Tech the new Indiana? And can Iowa State win the Big 12?`\
-https://nytimes.com/athletic/6636017/2025/09/17/arch-manning-notre-dame/
+**New York Rangers 2025-26 prospect rankings: Dynamic defensive skills at No. 3**\
+`Acquired in a recent trade, our third-ranked Rangers prospect immediately slots in as the system's best defenseman.`\
+https://nytimes.com/athletic/6634537/2025/09/17/scott-morrow-new-york-rangers-2025-26-prospect-rankings/
 
-**The Pulse: Could the NBA void a superstar’s contract?**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6634507/2025/09/17/kawhi-leonard-void-contract-the-pulse/
+**Illinois-Indiana: College football's game of the week for the first time ... ever? Believe it**\
+`Indiana and Illinois are both ranked heading into their matchup for the first time since 1950.`\
+https://nytimes.com/athletic/6635719/2025/09/17/indiana-illinois-matchup-history-losing/
 
-**Penguins training camp: Players to watch, schedule, questions, battles and more**\
-`From veterans to young players, there are some intriguing storylines to monitor this season in Pittsburgh.`\
-https://nytimes.com/athletic/6627935/2025/09/17/penguins-training-camp-schedule-questions-battles/
+**Rangers depth chart: Breaking down every position entering 2025-26**\
+`The Rangers have brought in a number of new names since the start of last season. Who looks likely to play where?`\
+https://nytimes.com/athletic/6634212/2025/09/17/new-york-rangers-depth-chart-roster-analysis/
 
