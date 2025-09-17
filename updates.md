@@ -1,3 +1,15 @@
+**‘Alien: Earth’ Episode 7 Recap: My Pet Monster**\
+`This week the action is divided primarily between two separate attempts to get off Boy Kavalier’s Neverland island.`\
+https://nytimes.com/2025/09/16/arts/television/alien-earth-episode-7-recap.html
+
+**‘Art’ Review: Three Big-Name Actors, One White Canvas**\
+`James Corden, Bobby Cannavale and Neil Patrick Harris star in a revival of Yasmina Reza’s comedy about an inscrutable abstract painting.`\
+https://nytimes.com/2025/09/16/theater/art-review-cannavale-corden-neil-patrick-harris.html
+
+**Some Ring Decisions, in Brief**\
+`Jackson Matz’s crossword is pure delight.`\
+https://nytimes.com/2025/09/16/crosswords/daily-puzzle-2025-09-17.html
+
 **Twins eliminate four-person pro scouting department: Sources**\
 `The moves come about a month after the Pohlad family announced it ended its exploration of a sale.`\
 https://nytimes.com/athletic/6636141/2025/09/16/minnesota-twins-pro-scouting-department-developments/
