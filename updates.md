@@ -1,3 +1,7 @@
+**M's Cal Raleigh sets single-season HR record by switch hitter, ties team record**\
+`Catcher passes Mickey Mantle for switch hitter record, ties Ken Griffey Jr.'s franchise mark.`\
+https://nytimes.com/athletic/6635966/2025/09/16/seattle-mariners-cal-raleigh-passes-mickey-mantle/
+
 **Hiker Found Dead in Cascade Mountains of Washington State After Apparent Fall**\
 `The Long Island man, 37, was hiking near Dragontail Peak, a rugged region of the Alpine Lakes Wilderness.`\
 https://nytimes.com/2025/09/16/us/hiker-death-enchantments-washington.html

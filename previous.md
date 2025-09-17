@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6636101/2025/09/16/nebraska-creighton-volleyball-nc
 `In the wake of Charlie Kirk’s killing, President Trump and his allies have laid out a broad plan to target liberal groups, monitor speech, revoke visas and designate certain groups as domestic terrorists.`\
 https://nytimes.com/2025/09/16/us/politics/trump-kirk-free-speech-hate-speech-left.html
 
-**M's Cal Raleigh sets single-season HR record by switch-hitter, ties team record**\
-`Catcher passes Mickey Mantle for switch-hitter record, ties Ken Griffey Jr.'s franchise mark.`\
+**M's Cal Raleigh sets single-season HR record by switch hitter, ties team record**\
+`Catcher passes Mickey Mantle for switch hitter record, ties Ken Griffey Jr.'s franchise mark.`\
 https://nytimes.com/athletic/6635966/2025/09/16/seattle-mariners-cal-raleigh-passes-mickey-mantle/
 
