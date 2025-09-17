@@ -1,3 +1,11 @@
+**Florida assistant Jabbar Juluke suspended 3 games for role in scuffle at LSU**\
+`SEC and Florida jointly announce punishment, say coach did not de-escalate tense pre-game situation.`\
+https://nytimes.com/athletic/6636127/2025/09/16/florida-assistant-jabbar-juluke-suspended-lsu/
+
+**Democrat Wins Seat of Slain Minnesota Lawmaker; State House Evenly Split**\
+`Xp Lee, a former City Council member, won a special election to replace his political mentor, former Minnesota House Speaker Melissa Hortman, who was assassinated in June.`\
+https://nytimes.com/2025/09/16/us/minnesota-election-slain-lawmaker.html
+
 **Nebraska volleyball breaks NCAA attendance record for regular-season indoor match**\
 `Tuesday's game between No. 1-ranked Nebraska women and 18th-ranked Creighton beat an attendance record from 2023.`\
 https://nytimes.com/athletic/6636101/2025/09/16/nebraska-creighton-volleyball-ncaa-attendance-record/
