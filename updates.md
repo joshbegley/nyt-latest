@@ -1,3 +1,11 @@
+**Judge Steps Up Pressure on ICE to Fix Conditions in N.Y.C. Holding Cells**\
+`Judge Lewis A. Kaplan said he was intervening to protect migrants from being detained in potentially “unconstitutional and inhumane” circumstances.`\
+https://nytimes.com/2025/09/17/nyregion/ice-migrant-cells-judge-ruling.html
+
+**Nathan Walker, Blues agree to 2-year contract extension: 'Good fit for both sides'**\
+`In 2024-25, Walker was a key member of the Blues' fourth line, scoring eight goals and 16 points in 73 games.`\
+https://nytimes.com/athletic/6638004/2025/09/17/nathan-walker-blues-contract-extension/
+
 **Scoop City: Scary paths for two hot-seat coaches, plus vote on Tom Brady's access**\
 `The tough road ahead for Mike McDaniel and Brian Daboll, Mike Sando's thoughts on the Chargers' offense and the NFL's Tom Brady situation`\
 https://nytimes.com/athletic/6637926/2025/09/17/giants-dolphins-coaching-hot-seats-tom-brady-rules-scoop-city/
