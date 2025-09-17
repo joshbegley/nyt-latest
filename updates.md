@@ -1,3 +1,7 @@
+**London’s Mayor Takes Aim at a Visiting Trump, Furthering Their Feud**\
+`As the U.S. president’s plane arrived in Britain, Sadiq Khan published an essay accusing Mr. Trump of promoting far-right ideology.`\
+https://nytimes.com/2025/09/17/world/europe/sadiq-khan-london-mayor-trump.html
+
 **Can Drug Users Be Forced Into Rehab? Trump Says Yes. So Do 34 States.**\
 `The president wants to enforce involuntary commitment laws for severe drug use. But rehab is expensive, without enough beds for those who seek it.`\
 https://nytimes.com/2025/09/17/health/trump-drug-users-involuntary-commitment-rehab.html
