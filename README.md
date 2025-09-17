@@ -1,3 +1,7 @@
+**Israel Says It Will Defund Film Awards After Palestinian Win**\
+`A drama about a Palestinian boy who sneaks into Israel won the top prize at Israel’s version of the Oscars. The country’s culture minister called the ceremony “shameful.”`\
+https://nytimes.com/2025/09/17/movies/israel-palestine-film-oscars.html
+
 **Tkachuk injury update: Panthers star out until at least December, GM says**\
 `Tkachuk is recovering from summer surgery for injuries sustained in the 4 Nations Face-Off tournament.`\
 https://nytimes.com/athletic/6638211/2025/09/17/matthew-tkachuk-injury-florida-panthers-nhl-olympics/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/17/nyregion/coney-island-nursing-home-killing.html
 **Western States Issue Their Own Vaccine Recommendations to Counter Kennedy**\
 `The guidelines, from California, Oregon, Washington and Hawaii, mirror those of major medical organizations. They were issued a day before an advisory panel was set to meet to review potential changes to federal recommendations.`\
 https://nytimes.com/2025/09/17/health/vaccine-guidelines-california-oregon-washington-hawaii-rfk.html
-
-**‘Pay Attention!’: Spirit Airlines Pilot Scolded for Flying Near Air Force One**\
-`An air traffic controller sternly told the pilot to “pay attention,” “get off the iPad” and turn the plane to steer clear of a flight carrying President Trump.`\
-https://nytimes.com/2025/09/17/us/airforce-one-spirit-air-traffic-control.html
 
