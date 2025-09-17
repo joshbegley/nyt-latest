@@ -1,3 +1,15 @@
+**Inside Stephen A. Smith's $40M-a-year bonanza as he launches into political prime time**\
+`With a new Sirius XM politics show launching today and deals across multiple platforms, the pundit is expanding well beyond ESPN.`\
+https://nytimes.com/athletic/6634775/2025/09/17/stephen-a-smith-espn-politics-sirius/
+
+**Who are Ryan Poles' cornerstone players? 3 daunting questions facing 0-2 Bears**\
+`From the strength of the roster to the growth of Caleb Williams, the Bears have reached a "prove it" point in their season.`\
+https://nytimes.com/athletic/6634928/2025/09/17/bears-ryan-poles-caleb-williams-questions/
+
+**Mike McDaniel was the NFL's next coaching prodigy. Then the Dolphins started losing**\
+`McDaniel won 20 of his first 33 games in Miami. Now the losses are mounting, and so is the pressure.`\
+https://nytimes.com/athletic/6635011/2025/09/17/mike-mcdaniel-dolphins-drought-nfl/
+
 **Vikings offensive line's disappointing start raises major questions with tests looming**\
 `Minnesota's refurbished front was supposed to be a strength this season. After two poor performances, concerns — and injuries — abound.`\
 https://nytimes.com/athletic/6635070/2025/09/17/vikings-offensive-line-ryan-kelly-will-fries/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6635416/2025/09/17/jaylen-warren-pittsburgh-steeler
 **Backup QBs will be everywhere in Week 3. How will their teams respond?**\
 `Five quarterbacks who began the season as starters could be out in Week 3. How will their teams' offenses change without them?`\
 https://nytimes.com/athletic/6634668/2025/09/17/nfl-backup-quarterbacks-injuries-burrow-mccarthy-daniels-fields-purdy/
-
-**Why F1’s calendar could look the same for years as tracks ink long-term deals**\
-`F1 has recently announced a series of new deals for many races on its current schedule. A new business tactic is driving this change`\
-https://nytimes.com/athletic/6630875/2025/09/17/f1-calendar-circuit-contract-length/
-
-**Can the Capitals survive an Ovi hangover? Life in D.C. after the Alex Ovechkin record-chase hype**\
-`Teammates say Alex Ovechkin's pursuit of Wayne Gretzky's career goal-scoring record gave the whole team a boost in 2024-25. So what now?`\
-https://nytimes.com/athletic/6632331/2025/09/17/alex-ovechkin-capitals-record-hype-hangover/
-
-**Josh Allen's new visor, DT plan for Bills-Dolphins, O'Cyrus Torrence's breakout, and more**\
-`Plus, where the Bills would miss Matt Milano against Miami's offense.`\
-https://nytimes.com/athletic/6635730/2025/09/17/bills-dolphins-josh-allen-nose-ed-oliver/
 

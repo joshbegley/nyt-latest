@@ -1,3 +1,15 @@
+**Inside Stephen A. Smith's $40M-a-year bonanza as he launches into political prime time**\
+`With a new Sirius XM politics show launching today and deals across multiple platforms, the pundit is expanding well beyond ESPN.`\
+https://nytimes.com/athletic/6634775/2025/09/17/stephen-a-smith-espn-politics-sirius/
+
+**Who are Ryan Poles' cornerstone players? 3 daunting questions facing 0-2 Bears**\
+`From the strength of the roster to the growth of Caleb Williams, the Bears have reached a "prove it" point in their season.`\
+https://nytimes.com/athletic/6634928/2025/09/17/bears-ryan-poles-caleb-williams-questions/
+
+**Mike McDaniel was the NFL's next coaching prodigy. Then the Dolphins started losing**\
+`McDaniel won 20 of his first 33 games in Miami. Now the losses are mounting, and so is the pressure.`\
+https://nytimes.com/athletic/6635011/2025/09/17/mike-mcdaniel-dolphins-drought-nfl/
+
 **Vikings offensive line's disappointing start raises major questions with tests looming**\
 `Minnesota's refurbished front was supposed to be a strength this season. After two poor performances, concerns — and injuries — abound.`\
 https://nytimes.com/athletic/6635070/2025/09/17/vikings-offensive-line-ryan-kelly-will-fries/
