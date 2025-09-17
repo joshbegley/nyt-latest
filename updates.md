@@ -1,3 +1,7 @@
+**Why is Pereira getting a new contract when Wolves are bottom and without a point?**\
+`The decision to give the Portuguese a new deal seems a strange one but there is a logic as Wolves attempt to turn around their poor start`\
+https://nytimes.com/athletic/6638293/2025/09/17/vitor-pereira-wolves-contract-explained/
+
 **A Dangerous, Bipartisan War Against the Internet Is Already Underway**\
 `Both Democrats and Republicans seem to think that we need to be protected from what’s online.`\
 https://nytimes.com/2025/09/17/opinion/nepal-charlie-kirk-internet.html
