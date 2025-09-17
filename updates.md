@@ -1,3 +1,19 @@
+**Colorado QB Kaidon Salter expected to make start Saturday against Wyoming**\
+`After Salter was replaced by third-string quarterback Ryan Staub in week 3, head coach Deion Sanders is expected to turn back to Salter. `\
+https://nytimes.com/athletic/6638194/2025/09/17/kaidon-salter-colorado-starter-quarterback/
+
+**Woman, 95, Charged With Killing 89-Year-Old Roommate in Nursing Home**\
+`A witness found the suspect washing her hands in a room spattered with blood in a nursing home in Coney Island, Brooklyn, the authorities said.`\
+https://nytimes.com/2025/09/17/nyregion/coney-island-nursing-home-killing.html
+
+**Western States Issue Their Own Vaccine Recommendations to Counter Kennedy**\
+`The guidelines, from California, Oregon, Washington and Hawaii, mirror those of major medical organizations. They were issued a day before an advisory panel was set to meet to review potential changes to federal recommendations.`\
+https://nytimes.com/2025/09/17/health/vaccine-guidelines-california-oregon-washington-hawaii-rfk.html
+
+**‘Pay Attention!’: Spirit Airlines Pilot Scolded for Flying Near Air Force One**\
+`An air traffic controller sternly told the pilot to “pay attention,” “get off the iPad” and turn the plane to steer clear of a flight carrying President Trump.`\
+https://nytimes.com/2025/09/17/us/airforce-one-spirit-air-traffic-control.html
+
 **A New Review of Climate Science Could Cause Headaches for Trump**\
 `The report, by a panel of leading researchers, raises questions about the administration’s legal justification for looser pollution controls.`\
 https://nytimes.com/2025/09/17/climate/national-academies-climate-trump.html

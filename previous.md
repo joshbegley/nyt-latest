@@ -1,3 +1,19 @@
+**Colorado QB Kaidon Salter expected to make start Saturday against Wyoming**\
+`After Salter was replaced by third-string quarterback Ryan Staub in week 3, head coach Deion Sanders is expected to turn back to Salter. `\
+https://nytimes.com/athletic/6638194/2025/09/17/kaidon-salter-colorado-starter-quarterback/
+
+**Woman, 95, Charged With Killing 89-Year-Old Roommate in Nursing Home**\
+`A witness found the suspect washing her hands in a room spattered with blood in a nursing home in Coney Island, Brooklyn, the authorities said.`\
+https://nytimes.com/2025/09/17/nyregion/coney-island-nursing-home-killing.html
+
+**Western States Issue Their Own Vaccine Recommendations to Counter Kennedy**\
+`The guidelines, from California, Oregon, Washington and Hawaii, mirror those of major medical organizations. They were issued a day before an advisory panel was set to meet to review potential changes to federal recommendations.`\
+https://nytimes.com/2025/09/17/health/vaccine-guidelines-california-oregon-washington-hawaii-rfk.html
+
+**‘Pay Attention!’: Spirit Airlines Pilot Scolded for Flying Near Air Force One**\
+`An air traffic controller sternly told the pilot to “pay attention,” “get off the iPad” and turn the plane to steer clear of a flight carrying President Trump.`\
+https://nytimes.com/2025/09/17/us/airforce-one-spirit-air-traffic-control.html
+
 **A New Review of Climate Science Could Cause Headaches for Trump**\
 `The report, by a panel of leading researchers, raises questions about the administration’s legal justification for looser pollution controls.`\
 https://nytimes.com/2025/09/17/climate/national-academies-climate-trump.html
@@ -21,20 +37,4 @@ https://nytimes.com/video/world/europe/100000010405068/trump-uk-protesters-londo
 **The Two People in the Spotlight at a Pivotal Fed Meeting**\
 `At this week’s pivotal Federal Reserve meeting, all eyes were on two people – Stephen Miran and Lisa Cook. Colby Smith, who covers the Fed for The New York Times, explains why.`\
 https://nytimes.com/video/us/100000010403320/the-two-people-in-the-spotlight-at-a-pivotal-fed-meeting.html
-
-**Sabres GM Kevyn Adams says Alex Tuch contract is a priority, so what's the holdup?**\
-`Tuch, who's eligible to sign an extension, arrived to Sabres training camp without having put pen to paper on a new deal.`\
-https://nytimes.com/athletic/6638101/2025/09/17/alex-tuch-contract-sabres-kevyn-adams/
-
-**Leafs training camp takeaways: Easton Cowan's opportunity, 'not focused' on Dillon Dubé**\
-`Plus, an (almost) healthy roster, Mark Giordano returns with a new role and an update on a potential contract extension for Anthony Stolarz.`\
-https://nytimes.com/athletic/6637800/2025/09/17/maple-leafs-training-camp-easton-cowan-dillon-dube/
-
-**The Ghost of Jeffrey Epstein Hangs Over Trump’s U.K. State Visit**\
-`In different ways, the reputations of the royal family, the British government and President Trump have each been tarnished by the sex offender Jeffrey Epstein.`\
-https://nytimes.com/2025/09/17/world/europe/epstein-ghost-trump-uk.html
-
-**Rick Tocchet's view of the Flyers — 'That crest is everything' — and his Year 1 priorities**\
-`Tocchet has put much thought into how to get the best out of Matvei Michkov and his other new players.`\
-https://nytimes.com/athletic/6637978/2025/09/17/tocchet-flyers-training-camp/
 
