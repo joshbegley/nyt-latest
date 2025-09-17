@@ -32,7 +32,7 @@ https://nytimes.com/2025/09/17/world/europe/russia-navalny-poisoning.html
 
 **London’s Mayor Takes Aim at a Visiting Trump, Furthering Their Feud**\
 `As the U.S. president’s plane arrived in Britain, Sadiq Khan published an essay accusing Mr. Trump of promoting far-right ideology.`\
-https://nytimes.com/2025/09/17/world/europe/londons-mayor-takes-aim-at-a-visiting-trump-furthering-their-feud.html
+https://nytimes.com/2025/09/17/world/europe/sadiq-khan-london-mayor-trump.html
 
 **Marner's linemates, Eichel extension among 5 big questions in Golden Knights training camp**\
 `With Mitch Marner aboard, Vegas will have plenty of options with its forward lines.`\
