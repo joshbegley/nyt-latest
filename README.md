@@ -1,3 +1,15 @@
+**Where will Barcelona host Champions League games? We still don't know**\
+`The Spanish champions host last season's winners PSG in two weeks, but no venue has been set`\
+https://nytimes.com/athletic/6636951/2025/09/17/champions-league-barcelona-psg-camp-nou/
+
+**Navalny Vomited and Convulsed in Prison Before Dying, His Wife Says**\
+`The organization founded by Aleksei A. Navalny, the Kremlin’s most prominent political opponent, presented what it called new information to support its claim that he was poisoned.`\
+https://nytimes.com/2025/09/17/world/europe/russia-navalny-poisoning.html
+
+**London’s Mayor Takes Aim at a Visiting Trump, Furthering Their Feud**\
+`As the U.S. president’s plane arrived in Britain, Sadiq Khan published an essay accusing Mr. Trump of promoting far-right ideology.`\
+https://nytimes.com/2025/09/17/world/europe/londons-mayor-takes-aim-at-a-visiting-trump-furthering-their-feud.html
+
 **Marner's linemates, Eichel extension among 5 big questions in Golden Knights training camp**\
 `With Mitch Marner aboard, Vegas will have plenty of options with its forward lines.`\
 https://nytimes.com/athletic/6635308/2025/09/17/marner-eichel-golden-knights/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6636385/2025/09/17/mlb-postseason-watch-2025-wednes
 **Real Madrid's appeal against Huijsen red card rejected by Spanish FA**\
 `The RFEF's disciplinary committee confirmed on Wednesday that Huijsen, 20, would serve a one-game suspension.`\
 https://nytimes.com/athletic/6637019/2025/09/17/dean-huijsen-red-card-real-madrid-appeal/
-
-**Trump’s Birthday Call to Modi Raises Hopes in India for a Trade Deal**\
-`The call coincided with a visit by U.S. trade officials to the country, which just weeks ago was hit with a 50 percent tariff on all imports to the United States.`\
-https://nytimes.com/2025/09/17/world/asia/modi-trump-birthday.html
-
-**Man Utd finances explained: Record revenues but sixth annual loss**\
-`The club's 2024-25 results reveal that total revenues stood at £666.5m after significant increases in matchday and commercial income`\
-https://nytimes.com/athletic/6637099/2025/09/17/manchester-united-finances-revenues-loss/
-
-**U.S. Government to Invest $75 Million in Ukraine’s Minerals**\
-`The investment will ease fears in Kyiv that Washington is pulling back from Ukraine’s war effort. It also underscores the mercantile nature of the U.S.-Ukrainian alliance under President Trump.`\
-https://nytimes.com/2025/09/17/world/europe/ukraine-us-minerals-deal.html
 
