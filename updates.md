@@ -1,3 +1,7 @@
+**A Dangerous, Bipartisan War Against the Internet Is Already Underway**\
+`Both Democrats and Republicans seem to think that we need to be protected from what’s online.`\
+https://nytimes.com/2025/09/17/opinion/nepal-charlie-kirk-internet.html
+
 **Israel Says It Will Defund Film Awards After Palestinian Win**\
 `A drama about a Palestinian boy who sneaks into Israel won the top prize at Israel’s version of the Oscars. The country’s culture minister called the ceremony “shameful.”`\
 https://nytimes.com/2025/09/17/movies/israel-palestine-film-oscars.html

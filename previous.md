@@ -1,3 +1,7 @@
+**A Dangerous, Bipartisan War Against the Internet Is Already Underway**\
+`Both Democrats and Republicans seem to think that we need to be protected from what’s online.`\
+https://nytimes.com/2025/09/17/opinion/nepal-charlie-kirk-internet.html
+
 **Israel Says It Will Defund Film Awards After Palestinian Win**\
 `A drama about a Palestinian boy who sneaks into Israel won the top prize at Israel’s version of the Oscars. The country’s culture minister called the ceremony “shameful.”`\
 https://nytimes.com/2025/09/17/movies/israel-palestine-film-oscars.html
@@ -29,12 +33,4 @@ https://nytimes.com/2025/09/17/movies/it-was-just-an-accident-france-oscar-pick.
 **Colorado QB Kaidon Salter expected to start Saturday against Wyoming**\
 `After Salter was replaced by third-string quarterback Ryan Staub in week 3, head coach Deion Sanders is expected to turn back to Salter. `\
 https://nytimes.com/athletic/6638194/2025/09/17/kaidon-salter-colorado-starter-quarterback/
-
-**Woman, 95, Charged With Killing 89-Year-Old Roommate in Nursing Home**\
-`A witness found the suspect washing her hands in a room spattered with blood in a nursing home in Coney Island, Brooklyn, the authorities said.`\
-https://nytimes.com/2025/09/17/nyregion/coney-island-nursing-home-killing.html
-
-**Western States Issue Their Own Vaccine Recommendations to Counter Kennedy**\
-`The guidelines, from California, Oregon, Washington and Hawaii, mirror those of major medical organizations. They were issued a day before an advisory panel was set to meet to review potential changes to federal recommendations.`\
-https://nytimes.com/2025/09/17/health/vaccine-guidelines-california-oregon-washington-hawaii-rfk.html
 

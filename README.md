@@ -1,3 +1,7 @@
+**Why is Pereira getting a new contract when Wolves are bottom and without a point?**\
+`The decision to give the Portuguese a new deal seems a strange one but there is a logic as Wolves attempt to turn around their poor start`\
+https://nytimes.com/athletic/6638293/2025/09/17/vitor-pereira-wolves-contract-explained/
+
 **A Dangerous, Bipartisan War Against the Internet Is Already Underway**\
 `Both Democrats and Republicans seem to think that we need to be protected from what’s online.`\
 https://nytimes.com/2025/09/17/opinion/nepal-charlie-kirk-internet.html
@@ -25,12 +29,4 @@ https://nytimes.com/2025/09/17/sports/bob-goodenow-dead.html
 **Denmark to Buy Long-Range Weapons in ‘Paradigm Shift’**\
 `Denmark says Russia is a threat. Russia calls the Danish plans “pure madness.”`\
 https://nytimes.com/2025/09/17/world/europe/denmark-buy-long-range-weapons.html
-
-**France’s Oscars Pick Is an Acclaimed Iranian Film Snubbed by Iran**\
-`“It Was Just an Accident,” the Palme d’Or winner, will be eligible for best international feature. Its director criticized the selection process by nondemocratic countries.`\
-https://nytimes.com/2025/09/17/movies/it-was-just-an-accident-france-oscar-pick.html
-
-**Colorado QB Kaidon Salter expected to start Saturday against Wyoming**\
-`After Salter was replaced by third-string quarterback Ryan Staub in week 3, head coach Deion Sanders is expected to turn back to Salter. `\
-https://nytimes.com/athletic/6638194/2025/09/17/kaidon-salter-colorado-starter-quarterback/
 
