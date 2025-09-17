@@ -1,3 +1,7 @@
+**U.S. Government to Invest $75 Million in Ukraine’s Minerals**\
+`The investment will ease fears in Kyiv that Washington is pulling back from Ukraine’s war effort. It also underscores the mercantile nature of the U.S.-Ukrainian alliance under President Trump.`\
+https://nytimes.com/2025/09/17/world/europe/ukraine-us-minerals-deal.html
+
 **Tucked in a Vineyard, a Field of Dreams Where Immigration Fears Fade Away**\
 `As ICE raids stoke anxiety in California, Latino men find solace at a baseball field built in the middle of a Sonoma County vineyard.`\
 https://nytimes.com/2025/09/17/business/ice-raids-vineyards-baseball.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/17/us/politics/trump-liberal-philanthropies-pushback
 **Is the Economy as Healthy as Trump Claims?**\
 `As the Fed meets, we examine the nation’s economic health.`\
 https://nytimes.com/2025/09/17/us/the-morning-economy-trump-gaza-redford.html
-
-**Mirtle: Five reasons for pessimism for the Maple Leafs in 2025-26**\
-`For those who aren't the glass-half-full type, there are plenty of concerning issues looming over the Leafs this season.`\
-https://nytimes.com/athletic/6632462/2025/09/17/toronto-maple-leafs-2025-26-pessimism/
 
