@@ -1,3 +1,7 @@
+**Jets QB Justin Fields out vs. Buccaneers Sunday**\
+`Tyrod Taylor will start for the Jets`\
+https://nytimes.com/athletic/6637774/2025/09/17/justin-fields-concussion-status-jets-qb-tyrod-taylor/
+
 **The Fed’s cautious approach to defending itself against Trump is drawing scrutiny.**\
 `By Colby Smith and Ben Casselman`\
 https://nytimes.com/live/2025/09/17/business/federal-reserve-interest-rates/the-feds-cautious-approach-to-defending-itself-against-trump-is-drawing-scrutiny
@@ -29,8 +33,4 @@ https://nytimes.com/live/2025/09/17/business/federal-reserve-interest-rates
 **How China Is Losing Its Title as the World’s Sneaker Factory**\
 `For American manufacturers, it is hard to quit China and its unrivaled factories. One industry is defying that reality as it shifts more production to Vietnam.`\
 https://nytimes.com/2025/09/17/business/vietnam-sneaker-manufacturing-china.html
-
-**NWSL to launch pair of combines to help identify prospective players**\
-`The combines, one for adults and college-aged players and another for youth players, will take place over three days in December.`\
-https://nytimes.com/athletic/6635920/2025/09/17/nwsl-combines-players-prospects/
 
