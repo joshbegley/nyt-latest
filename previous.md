@@ -1,3 +1,7 @@
+**Trump Invokes Kirk’s Killing in Justifying Measures to Silence Opponents**\
+`In the wake of Charlie Kirk’s killing, President Trump and his allies have laid out a broad plan to target liberal groups, monitor speech, revoke visas and designate certain groups as domestic terrorists.`\
+https://nytimes.com/2025/09/16/us/politics/trump-kirk-free-speech-hate-speech-left.html
+
 **M's Cal Raleigh sets single-season HR record by switch-hitter, ties team record**\
 `Catcher passes Mickey Mantle for switch-hitter record, ties Ken Griffey Jr.'s franchise mark.`\
 https://nytimes.com/athletic/6635966/2025/09/16/seattle-mariners-cal-raleigh-passes-mickey-mantle/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6635947/2025/09/16/athletics-vs-red-sox-stream-how-
 **How to watch Cubs at Pirates: Time, TV, streaming for September 17**\
 `Find out how to watch the Chicago Cubs play the Pittsburgh Pirates, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6635942/2025/09/16/cubs-vs-pirates-stream-how-to-watch-sept-17/
-
-**Why Robert Redford and 'The Natural' still resonate with sports fans**\
-`“The Natural” is filled with iconic moments where Hobbs achieves the sports accomplishments most of us can only dream about.`\
-https://nytimes.com/athletic/6634392/2025/09/16/robert-redford-the-natural-baseball/
 

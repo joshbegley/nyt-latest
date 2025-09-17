@@ -1,3 +1,7 @@
+**Nebraska volleyball breaks NCAA attendance record for regular-season indoor match**\
+`Tuesday's game between No. 1-ranked Nebraska women and 18th-ranked Creighton beat an attendance record from 2023.`\
+https://nytimes.com/athletic/6636101/2025/09/16/nebraska-creighton-volleyball-ncaa-attendance-record/
+
 **Trump Invokes Kirk’s Killing in Justifying Measures to Silence Opponents**\
 `In the wake of Charlie Kirk’s killing, President Trump and his allies have laid out a broad plan to target liberal groups, monitor speech, revoke visas and designate certain groups as domestic terrorists.`\
 https://nytimes.com/2025/09/16/us/politics/trump-kirk-free-speech-hate-speech-left.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6635950/2025/09/16/guardians-vs-tigers-stream-how-t
 **How to watch Athletics at Red Sox: Time, TV, streaming for September 17**\
 `Find out how to watch the Athletics play the Boston Red Sox, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6635947/2025/09/16/athletics-vs-red-sox-stream-how-to-watch-sept-17/
-
-**How to watch Cubs at Pirates: Time, TV, streaming for September 17**\
-`Find out how to watch the Chicago Cubs play the Pittsburgh Pirates, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6635942/2025/09/16/cubs-vs-pirates-stream-how-to-watch-sept-17/
 
