@@ -1,3 +1,11 @@
+**Can Drug Users Be Forced Into Rehab? Trump Says Yes. So Do 34 States.**\
+`The president wants to enforce involuntary commitment laws for severe drug use. But rehab is expensive, without enough beds for those who seek it.`\
+https://nytimes.com/2025/09/17/health/trump-drug-users-involuntary-commitment-rehab.html
+
+**‘The Twilight Zone’ Gave a Glimpse of Robert Redford’s Gifts**\
+`In a memorable 1962 episode of “The Twilight Zone,” the actor, still in his early 20s, played the most charming emissary of the afterlife imaginable.`\
+https://nytimes.com/2025/09/17/arts/television/robert-redford-the-twilight-zone.html
+
 **Here’s the latest.**\
 `By Sheryl Gay Stolberg`\
 https://nytimes.com/live/2025/09/17/us/trump-news/heres-the-latest
