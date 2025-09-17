@@ -1,3 +1,15 @@
+**Review: At Fall for Dance, War, Persistence and a Slow Tap of Love**\
+`The annual festival, popular for its take-a-chance-priced tickets, opened with a show featuring work by Jamar Roberts, the tap dancer Dario Natarelli and Akram Khan.`\
+https://nytimes.com/2025/09/17/arts/dance/review-fall-for-dance-jamar-roberts-sara-mearns.html
+
+**Senator Suggests Meeting Between Kennedy and His C.D.C. Director Was Recorded, Then Backtracks**\
+`The senator, Markwayne Mullin, quickly backtracked after pressing the now former director, Susan Monarez, on an exchange with the health secretary.`\
+https://nytimes.com/2025/09/17/us/politics/kennedy-cdc-director-recording.html
+
+**John H. Luckadoo, Last Pilot from a Storied Bomber Group, Dies at 103**\
+`As part of a unit known as the Bloody 100th, he flew 25 harrowing missions in his B-17 bomber over German-held territory during World War II.`\
+https://nytimes.com/2025/09/17/us/john-h-luckadoo-dead.html
+
 **Trump Visits Britain as Protesters March in London**\
 `President Trump and the first lady, Melania Trump, met with the British royal family at Windsor Castle on Friday, as demonstrators gathered in central London to protest his visit.`\
 https://nytimes.com/video/world/europe/100000010405068/trump-uk-protesters-london.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6637978/2025/09/17/tocchet-flyers-training-camp/
 **Ousted C.D.C Chief Describes Tense Meeting With Kennedy**\
 `Dr. Susan Monarez told senators at a  committee  hearing on Wednesday that the health secretary had hurled false and hurtful accusations about the nation’s health agency.`\
 https://nytimes.com/2025/09/17/us/politics/kennedy-monarez-cdc-meeting.html
-
-**Cardinals place Willson Contreras on injured list with season-ending bicep strain**\
-`Contreras felt the bicep tighten during Monday's game and imaging done on Tuesday revealed a mild strain.`\
-https://nytimes.com/athletic/6637367/2025/09/17/willson-contreras-cardinals-bicep-strain/
-
-**Judge Steps Up Pressure on ICE to Fix Conditions in N.Y.C. Holding Cells**\
-`Judge Lewis A. Kaplan said he was intervening to protect migrants from being detained in potentially “unconstitutional and inhumane” circumstances.`\
-https://nytimes.com/2025/09/17/nyregion/ice-migrant-cells-judge-ruling.html
-
-**Scoop City: Scary paths for two hot-seat coaches, plus vote on Tom Brady's access**\
-`The tough road ahead for Mike McDaniel and Brian Daboll, Mike Sando's thoughts on the Chargers' offense and the NFL's Tom Brady situation`\
-https://nytimes.com/athletic/6637926/2025/09/17/giants-dolphins-coaching-hot-seats-tom-brady-rules-scoop-city/
 
