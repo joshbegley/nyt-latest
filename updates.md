@@ -1,3 +1,7 @@
+**Liberal? Conservative? Cubs Fan? Catholics Project Many Images Onto Pope.**\
+`Unlike Francis, Leo XIV has given few clues about where he stands on issues dividing the church (though he’s definitely a White Sox guy). Followers fill in the gaps.`\
+https://nytimes.com/2025/09/18/world/asia/pope-leo-liberal-conservative.html
+
 **The Business Decision Behind Taking Jimmy Kimmel Off Air**\
 `Disney’s abrupt move to suspend the late-night host came after political pushback — and concerns about the media company’s relations with affiliate owners.`\
 https://nytimes.com/2025/09/18/business/dealbook/kimmel-disney-abc.html
