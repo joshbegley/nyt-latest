@@ -1,3 +1,19 @@
+**Clippers say owner was 'duped' in response to latest Kawhi Leonard deal allegations**\
+`The team addressed reporting related to Steve Ballmer's ties to the now-bankrupt environmental company.`\
+https://nytimes.com/athletic/6641165/2025/09/18/clippers-ballmer-carbon-credits-kawhi-aspiration/
+
+**8 New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://nytimes.com/2025/09/18/books/review/recommended-new-books.html
+
+**What’s Going On in This Picture? | Sept. 22, 2025**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2025/09/18/learning/whats-going-on-in-this-picture-sept-22-2025.html
+
+**What’s Going On in This Graph? | Oct. 1, 2025**\
+`How much is a dollar worth?`\
+https://nytimes.com/2025/09/18/learning/whats-going-on-in-this-graph-oct-1-2025.html
+
 **NWSL's Jessica Berman says she 'intends to be around' as contract nears end**\
 `Berman inherited a league rife with controversy, but she has enjoyed a relatively successful tenure since getting the job in 2022.`\
 https://nytimes.com/athletic/6641459/2025/09/18/nwsl-commissioner-jessica-berman-contract/
