@@ -1,3 +1,7 @@
+**I Once Talked to Robert Redford About What Happens When We Die**\
+`On the set of “All Is Lost,” we sat together in a deflating life raft. That’s when I realized neither of us was prepared for the conversation we were about to have.`\
+https://nytimes.com/2025/09/18/opinion/robert-redford-death-movies.html
+
 **How Jimmy Kimmel Went From ‘The Man Show’ to MAGA Adversary**\
 `Over more than two decades in TV, the comedian has gone from a challenger of politically correct discourse to a frequent antagonist of the right.`\
 https://nytimes.com/2025/09/18/arts/television/jimmy-kimmel-host-timeline.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6642231/2025/09/18/rashford-champions-league-barcel
 **Where Will Gazans Go?**\
 `Josh Holder of The New York Times, who has been using satellite images to track the destruction in Gaza, describes how there are few viable places to flee.`\
 https://nytimes.com/video/world/middleeast/100000010405069/where-will-gazans-go.html
-
-**Man Utd borrowed £105m from revolving credit facilities to fund summer spending**\
-`The club upgraded their revolving credit facilities to a maximum limit of £350m ($474.4m) and extended them to expire in December 2029.`\
-https://nytimes.com/athletic/6642115/2025/09/18/manchester-united-transfer-borrowing-rcf/
 
