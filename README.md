@@ -1,3 +1,11 @@
+**Ben Johnson, Brian Schottenheimer not bothered by Tom Brady production access**\
+`Some NFL coaches are shrugging off concerns around Brady's role as an NFL analyst for and a minority owner of the Raiders.`\
+https://nytimes.com/athletic/6640480/2025/09/18/nfl-coaches-tom-brady-rules/
+
+**Leeds likely to be without James, Gnonto for Wolves trip**\
+`Goalkeeper Lucas Perri remains unavailable meaning Karl Darlow will start at Molineux.`\
+https://nytimes.com/athletic/6640637/2025/09/18/leeds-team-news-james-gnonto/
+
 **The Windup: Down to nine spots left**\
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/6640633/2025/09/18/cubs-mlb-playoffs-the-windup/
@@ -23,18 +31,10 @@ https://nytimes.com/athletic/6637616/2025/09/18/womens-football-football-manager
 https://nytimes.com/2025/09/18/business/fed-interest-rates-labor-inflation.html
 
 **New York and Other States Form Health Bloc as Answer to Trump’s Policies**\
-`Northeastern governors, like their peers in the West, want to shore up public health and issue approval for vaccines.`\
+`Northeastern governors, like their peers in the West, want to shore up public health and issue a stamp of approval for vaccines.`\
 https://nytimes.com/2025/09/18/nyregion/northeast-public-health-collaborative-trump.html
 
 **Liberal? Conservative? Cubs Fan? Catholics Project Many Images Onto Pope.**\
 `Unlike Francis, Leo XIV has given few clues about where he stands on issues dividing the church (though he’s definitely a White Sox guy). Followers fill in the gaps.`\
 https://nytimes.com/2025/09/18/world/asia/pope-leo-liberal-conservative.html
-
-**The Business Decision Behind Taking Jimmy Kimmel Off Air**\
-`Disney’s abrupt move to suspend the late-night host came after political pushback — and concerns about the media company’s relations with affiliate owners.`\
-https://nytimes.com/2025/09/18/business/dealbook/kimmel-disney-abc.html
-
-**MLB playoff watch: Cubs get in, Blue Jays getting closer; bracket, clinching scenarios**\
-`Things in the AL West have shifted once again ahead of a pivotal weekend series.`\
-https://nytimes.com/athletic/6638645/2025/09/18/mlb-playoff-watch-2025-cubs-clinch/
 
