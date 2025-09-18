@@ -1,3 +1,19 @@
+**America and Britain Are Worlds Apart on Energy Policies, Except Nuclear**\
+`While renewable energy is broadly popular in both countries, the policies of the Trump and Starmer governments could not be more different.`\
+https://nytimes.com/2025/09/18/world/europe/uk-starmer-green-energy-nuclear.html
+
+**Britain hopes that U.S. investments offset some economic pain.**\
+`By Eshe Nelson`\
+https://nytimes.com/live/2025/09/18/world/trump-uk-visit/britain-hopes-that-us-investments-offset-some-economic-pain
+
+**Here’s the latest.**\
+`By Shashank Bengali`\
+https://nytimes.com/live/2025/09/18/world/trump-uk-visit/heres-the-latest
+
+**Live Updates: Trump and Starmer to Talk Business on Day 2 of State Visit**\
+`After a day of lavish pageantry, President Trump and Prime Minister Keir Starmer are expected to announce large business deals involving American and British companies.`\
+https://nytimes.com/live/2025/09/18/world/trump-uk-visit
+
 **Fresh Ideas for Looking Pretty**\
 `During the latest New York Fashion Week, designers and people in the crowds put forth lots of examples.`\
 https://nytimes.com/2025/09/18/style/nyfw-fall-fashion-ideas.html
