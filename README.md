@@ -1,3 +1,7 @@
+**MLB mandates 'recovery period' for scouting amateur players during offseason**\
+`Citing an increase in injuries, the league will prohibit the evaluation of draft-eligible players to prevent year-round scouting.`\
+https://nytimes.com/athletic/6641387/2025/09/18/mlb-amateur-players-recovery-period-offseason/
+
 **Marilyn Hagerty, Whose Olive Garden Review Went Viral, Dies at 99**\
 `“The chicken Alfredo ($10.95) was warm and comforting on a cold day,” she wrote from North Dakota. And suddenly the national media made her a celebrity.`\
 https://nytimes.com/2025/09/18/dining/marilyn-hagerty-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/18/opinion/jimmy-kimmel-free-speech.html
 **What Teenagers Are Saying About Lowering the Voting Age to 16**\
 `Students react to news that Britain plans to enfranchise 16- and 17-year-olds.`\
 https://nytimes.com/2025/09/18/learning/what-teenagers-are-saying-about-lowering-the-voting-age-to-16.html
-
-**‘Megadoc’ Review: A Behind-the-Scenes Look at a Pricey Passion Project**\
-`This documentary by Mike Figgis about Francis Ford Coppola’s “Megalopolis” is at once expansive and intimate, and sometimes very revealing.`\
-https://nytimes.com/2025/09/18/movies/megadoc-review.html
 
