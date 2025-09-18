@@ -1,3 +1,7 @@
+**Internet Shutdowns Hit Parts of Afghanistan Amid Talk of a Crackdown**\
+`Some provincial officials said the country’s leader instructed them to switch off Wi-Fi in their area to limit the “misuse of the internet” and diffusion of “immoral acts.”`\
+https://nytimes.com/2025/09/18/world/asia/internet-shutdowns-afghanistan.html
+
 **How to watch Giants at Dodgers: Time, TV, streaming for September 18**\
 `Find out how to watch the San Francisco Giants play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6640170/2025/09/18/giants-vs-dodgers-stream-how-to-watch-sept-18/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/18/opinion/interesting-times-ross-douthat-ezra-klein
 **Is Celtics' Payton Pritchard due for another leap? Why he's ready to build on success**\
 `Payton Pritchard will benefit from increased responsibilities with the Celtics, but there will be some challenges, too.`\
 https://nytimes.com/athletic/6636161/2025/09/18/celtics-payton-pritchard-stats-jayson-tatum-derrick-white/
-
-**The Billionaire Trump Supporter Who Will Soon Own the News**\
-`Larry Ellison is now suddenly poised to become the most powerful media mogul America has ever seen.`\
-https://nytimes.com/2025/09/18/opinion/larry-ellison-paramount-cbs-tiktok.html
 

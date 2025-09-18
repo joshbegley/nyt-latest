@@ -1,3 +1,7 @@
+**Internet Shutdowns Hit Parts of Afghanistan Amid Talk of a Crackdown**\
+`Some provincial officials said the country’s leader instructed them to switch off Wi-Fi in their area to limit the “misuse of the internet” and diffusion of “immoral acts.”`\
+https://nytimes.com/2025/09/18/world/asia/internet-shutdowns-afghanistan.html
+
 **How to watch Giants at Dodgers: Time, TV, streaming for September 18**\
 `Find out how to watch the San Francisco Giants play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6640170/2025/09/18/giants-vs-dodgers-stream-how-to-watch-sept-18/

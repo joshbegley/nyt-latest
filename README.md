@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Friday, Sep. 19, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/09/18/todays-new-york-times-international-edition
+
 **Internet Shutdowns Hit Parts of Afghanistan Amid Talk of a Crackdown**\
 `Some provincial officials said the country’s leader instructed them to switch off Wi-Fi in their area to limit the “misuse of the internet” and diffusion of “immoral acts.”`\
 https://nytimes.com/2025/09/18/world/asia/internet-shutdowns-afghanistan.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/09/18/realestate/rhode-island-massachusetts
 **Ezra Klein Is Worried — but Not About a Radicalized Left**\
 `‘They’re failing and rethinking nothing.’`\
 https://nytimes.com/2025/09/18/opinion/interesting-times-ross-douthat-ezra-klein.html
-
-**Is Celtics' Payton Pritchard due for another leap? Why he's ready to build on success**\
-`Payton Pritchard will benefit from increased responsibilities with the Celtics, but there will be some challenges, too.`\
-https://nytimes.com/athletic/6636161/2025/09/18/celtics-payton-pritchard-stats-jayson-tatum-derrick-white/
 
