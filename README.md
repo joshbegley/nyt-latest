@@ -1,3 +1,23 @@
+**Trump Hails Kimmel Suspension After Criticizing U.K. on Free Speech**\
+`President Trump has accused Britain of mounting a crackdown on political expression. But he welcomed the ABC network’s suspension of Jimmy Kimmel.`\
+https://nytimes.com/2025/09/18/world/europe/trump-kimmel-suspension-uk-free-speech.html
+
+**Longtime Putin Aide Who Opposed Ukraine War Is Granted Rare Resignation**\
+`Dmitri N. Kozak’s departure is one of the few known splinters in President Vladimir V. Putin’s inner circle since the start of his invasion of Ukraine.`\
+https://nytimes.com/2025/09/18/world/europe/russia-putin-kozak-resigns.html
+
+**TAFC: Death of dogma for managers? Plus: Anger at Anfield, Muller's ultimate golfing foursome**\
+`Today in TAFC: Are managers who 'die' for an idea on the way out? Plus: Simeone loses cool, Son's hat-trick and Muller's magical foursome.`\
+https://nytimes.com/athletic/6640132/2025/09/18/amorim-mourinho-philosophy-simeone-champions-league/
+
+**Amazon Prime Vision's latest feature gives new perspective on QB protection**\
+`Pocket Health will show how strong or weak a pocket is and who's most responsible for a breakdown.`\
+https://nytimes.com/athletic/6636637/2025/09/18/nfl-amazon-prime-vision-pocket-health/
+
+**Former MLB outfielder Tyler Naquin hopes to be the sport's next great pitching experiment**\
+`The 2012 first-round pick who made it in the majors as a solid left-handed-hitting outfielder? He’s a right-handed pitcher now.`\
+https://nytimes.com/athletic/6607970/2025/09/18/tyler-naquin-position-player-pitcher-transition/
+
 **Golden State Valkyries' dream season ends with WNBA playoff heartbreak, which is good for them**\
 `The Valkyries came up just shy of forcing Game 3 in their historic season as an expansion franchise.`\
 https://nytimes.com/athletic/6640161/2025/09/18/golden-state-valkyries-wnba-playoffs-elimination/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6638284/2025/09/18/bruins-center-zacha-mittelstadt-
 **U.K. to Formally Recognize Palestinian Statehood After Trump Departs**\
 `Prime Minister Keir Starmer is expected to confirm that the British government will vote to recognize a Palestinian state hours or days after President Trump’s visit to Britain.`\
 https://nytimes.com/2025/09/18/world/europe/uk-formally-recognize-palestinian-statehood.html
-
-**How Patrick Mahomes is processing Chiefs' 0-2 start — and what he wants to see next**\
-`With the Chiefs off to an uncharacteristically slow start, Mahomes wants to see them prove they can take on a new role against the Giants.`\
-https://nytimes.com/athletic/6638178/2025/09/18/chiefs-patrick-mahomes-0-2-start/
-
-**Need a 1-handed catch? Isaac TeSlaa is your guy and the Lions are loving it**\
-`After grabbing a pair of highlight-reel catches, TeSlaa is earning more trust and more opportunities in this Detroit offense.`\
-https://nytimes.com/athletic/6639217/2025/09/18/lions-isaac-teslaa-highlight-catches/
-
-**Bears tight ends aren't getting involved enough. How to get more from Kmet, Loveland**\
-`The Bears are near the bottom of the league in passes thrown to their tight ends, even though their tight ends are often on the field. Why?`\
-https://nytimes.com/athletic/6638784/2025/09/18/bears-tight-ends-cole-kmet-colston-loveland/
-
-**NBA offseason transactions that deserve a little more scrutiny**\
-`These moves this past summer.should have prompted more questions.`\
-https://nytimes.com/athletic/6626893/2025/09/18/nba-2025-offseaon-moves-mikal-bridges-jordan-poole/
-
-**Panthers have legit WR1 in Tetairoa McMillan. What do they have in Xavier Legette?**\
-`Despite Legette's slow start to the season, his teammates and coaches are practicing patience. "It's not all on X," Dave Canales said.`\
-https://nytimes.com/athletic/6639050/2025/09/18/panthers-tetairoa-mcmillan-xavier-legette/
 
