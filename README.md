@@ -1,3 +1,7 @@
+**Liberal? Conservative? Cubs Fan? Catholics Project Many Images Onto Pope.**\
+`Unlike Francis, Leo XIV has given few clues about where he stands on issues dividing the church (though he’s definitely a White Sox guy). Followers fill in the gaps.`\
+https://nytimes.com/2025/09/18/world/asia/pope-leo-liberal-conservative.html
+
 **The Business Decision Behind Taking Jimmy Kimmel Off Air**\
 `Disney’s abrupt move to suspend the late-night host came after political pushback — and concerns about the media company’s relations with affiliate owners.`\
 https://nytimes.com/2025/09/18/business/dealbook/kimmel-disney-abc.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6638077/2025/09/18/nfl-mascot-rankings-colts-eagles
 **Wan'Dale Robinson always knew he had more to give Giants offense: 'He can do everything'**\
 `After a historically inefficient 2024 season, Robinson is thriving in his new role, in which he is more than just an underneath target. `\
 https://nytimes.com/athletic/6638539/2025/09/18/ny-giants-wandale-robinson-russell-wilson-offense/
-
-**Evan Engram's slow start, Dre Greenlaw's 'nebulous' recovery foil Broncos' 'Joker' plans**\
-`Engram has only four catches for 33 yards through two games. The tight end missed Wednesday's practice.`\
-https://nytimes.com/athletic/6631337/2025/09/18/broncos-joker-dre-greenlaw-evan-engram/
 
