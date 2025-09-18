@@ -1,3 +1,7 @@
+**How This Mom’s Viral Clips Fueled the ‘The Summer I Turned Pretty’ Fandom**\
+`Tina DiCenso’s reactions to the show, which reflect the anxiety it often inflicts on its fans, have become must-watch programming all their own.`\
+https://nytimes.com/2025/09/18/arts/television/the-summer-i-turned-pretty-reactions-fans.html
+
 **11 Democratic Officials Arrested Trying to Access ICE Detention Cells**\
 `Federal officers arrested 11 officials in New York on Thursday, after they tried to access cells used by the Immigration and Customs Enforcement agency to detain migrants. Brad Lander, the city comptroller, and Jumaane D. Williams, the public advocate, were among those arrested.`\
 https://nytimes.com/video/us/politics/100000010408808/11-democratic-officials-arrested-trying-to-access-ice-detention-cells.html
@@ -15,7 +19,7 @@ https://nytimes.com/2025/09/18/nyregion/nypd-win-rozario-charges.html
 https://nytimes.com/2025/09/18/nyregion/egypt-mission-beating-charges-dropped.html
 
 **What we learned on Day 1 of Canadiens camp: Dach, Laine are similarly motivated**\
-`From line combinations and defence pairings to redemption stories, the Canadiens' opening day of camp was very revealing.`\
+`From line combinations and defence pairings to redemption stories, the Canadiens' opening day of camp was revealing.`\
 https://nytimes.com/athletic/6642356/2025/09/18/what-we-learned-day-1-canadiens-camp-kirby-dach-patrik-laine/
 
 **49ers QB Brock Purdy happy with progress, but status remains 'day to day'**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6642328/2025/09/18/canucks-training-camp-elias-pett
 **Military Helicopter Carrying 4 Soldiers Crashes in Washington State**\
 `Rescue efforts have been hampered by fire, and officials did not release information on the conditions of those aboard.`\
 https://nytimes.com/2025/09/18/us/military-helicopter-crash-washington.html
-
-**How to watch Athletics at Pirates: Time, TV, streaming for September 19**\
-`Find out how to watch the Athletics play the Pittsburgh Pirates, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6642524/2025/09/18/athletics-vs-pirates-stream-how-to-watch-sept-19/
 
