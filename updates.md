@@ -1,3 +1,15 @@
+**We Want Your Best Breakup Lines**\
+`For a special Modern Love project, we’re looking for your most unforgettable lines from a breakup, either delivered or received — kind, bizarre, profound, haunting or funny.`\
+https://nytimes.com/2025/09/18/style/modern-love-we-want-your-best-breakup-lines.html
+
+**When It Comes to the Left, Ezra Klein Is Frustrated**\
+`The stakes are high. But why aren’t democrats acting like there’s a five alarm fire? On the latest episode of Interesting Times, NYT Opinion columnist Ezra Klein talks about how political inaction is the real reason to despair.`\
+https://nytimes.com/video/opinion/100000010407682/when-it-comes-to-the-left-ezra-klein-is-frustrated.html
+
+**The Briefing – Newcastle 1 Barcelona 2: Is Rashford back? Should Schar have come off sooner? Are Flick's side contenders?**\
+`The Athletic's writers analyse Newcastle's opening Champions League game of the season against Barcelona`\
+https://nytimes.com/athletic/6634286/2025/09/18/newcastle-barcelona-champions-league-analysis-rashford/
+
 **I Asked Ezra Klein if Left-Wing Despair Is a Problem**\
 `Do despair and anxiety lead to political violence? On “Interesting Times,” Ezra Klein explains why he’s worried that violence is becoming contagious.`\
 https://nytimes.com/video/opinion/100000010397953/i-asked-ezra-klein-if-left-wing-despair-is-a-problem.html
