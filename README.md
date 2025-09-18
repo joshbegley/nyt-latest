@@ -1,3 +1,19 @@
+**Where Will Gazans Go?**\
+`Josh Holder of The New York Times, who has been using satellite images to track the destruction in Gaza, describes how there are few viable places to flee.`\
+https://nytimes.com/video/world/middleeast/100000010405069/where-will-gazans-go.html
+
+**Man Utd borrowed £105m from revolving credit facilities to fund summer spending**\
+`The club upgraded their revolving credit facilities to a maximum limit of £350m ($474.4m) and extended them to expire in December 2029.`\
+https://nytimes.com/athletic/6642115/2025/09/18/manchester-united-transfer-borrowing-rcf/
+
+**'A lot less NASCAR laps': Flyers note changes, expectations as camp practices begin**\
+`There’s a different feel to training camp with Rick Tocchet taking charge.`\
+https://nytimes.com/athletic/6642220/2025/09/18/flyers-camp-tocchet-tortorella/
+
+**Yohe: 10 observations from Day 1 of Penguins training camp**\
+`Dan Muse let the Penguins know who is boss on Day 1 of training camp. `\
+https://nytimes.com/athletic/6641030/2025/09/18/penguins-training-camp-10-observations/
+
 **Since Leaving Washington, Elon Musk Has Been All In on His A.I. Company**\
 `Mr. Musk spent the summer at his artificial intelligence start-up xAI, trying to match the runaway success of OpenAI. The result was chaos.`\
 https://nytimes.com/2025/09/18/technology/elon-musk-artificial-intelligence-xai.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/09/18/style/modern-love-we-want-your-best-breakup-lines
 **When It Comes to the Left, Ezra Klein Is Frustrated**\
 `The stakes are high. But why aren’t democrats acting like there’s a five alarm fire? On the latest episode of Interesting Times, NYT Opinion columnist Ezra Klein talks about how political inaction is the real reason to despair.`\
 https://nytimes.com/video/opinion/100000010407682/when-it-comes-to-the-left-ezra-klein-is-frustrated.html
-
-**I Asked Ezra Klein if Left-Wing Despair Is a Problem**\
-`Do despair and anxiety lead to political violence? On “Interesting Times,” Ezra Klein explains why he’s worried that violence is becoming contagious.`\
-https://nytimes.com/video/opinion/100000010397953/i-asked-ezra-klein-if-left-wing-despair-is-a-problem.html
-
-**Drones vs. Lasers**\
-`My colleague Lara Jakes tells us about Russian drones and the math problem facing NATO — and one possible solution.`\
-https://nytimes.com/2025/09/18/briefing/nato-air-defense-trump-media-britain-tech-deal.html
-
-**The Briefing – Newcastle 1 Barcelona 2: Is Rashford back? Should Schar have come off sooner? Are Flick's side contenders?**\
-`The Athletic's writers analyse Newcastle's opening Champions League game of the season against Barcelona`\
-https://nytimes.com/athletic/6634286/2025/09/18/newcastle-barcelona-champions-league-analysis-rashford/
-
-**College football Week 4 projected scores: Model predicts every FBS vs. FBS game**\
-`Austin Mock's projection model has predicted point differentials and totals for every FBS vs. FBS game of college football's Week 4.`\
-https://nytimes.com/athletic/6641532/2025/09/18/college-football-week-4-projected-scores-model/
 
