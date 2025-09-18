@@ -1,3 +1,7 @@
+**Reactions to ABC’s Pulling of ‘Kimmel’ Reflect America’s Partisan Divide**\
+`Fans and liberals expressed anger while conservatives hailed ABC’s decision to pull Jimmy Kimmel’s late-night show off the air after comments about the killing of Charlie Kirk.`\
+https://nytimes.com/2025/09/17/arts/television/jimmy-kimmel-pulled-reactions.html
+
 **A resurgent Justin Verlander gives the Giants, and himself, a chance to keep going**\
 `The future Hall of Famer is pitching near his peak form with a 2.17 ERA in 11 starts since the All-Star break. `\
 https://nytimes.com/athletic/6639585/2025/09/17/justin-verlander-giants-playoff-chase/
