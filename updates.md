@@ -1,3 +1,7 @@
+**Jose Mourinho's return to Benfica is no surprise. They need some of his old devil magic**\
+`Benfica have chosen Mourinho as their new head coach - 25 years on from his first crack at the job - following a horror loss to Qarabag`\
+https://nytimes.com/athletic/6637003/2025/09/18/jose-mourinho-benfica-analysis/
+
 **Red Light: The NHL's dreaded mushy middle. Plus: Remembering bizarre offseasons**\
 `Good morning to everyone except that one lazy bum who showed up to training camp in the second-best shape of his life.`\
 https://nytimes.com/athletic/6640793/2025/09/18/red-light-nhl-mushy-middle/

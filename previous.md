@@ -1,3 +1,7 @@
+**Jose Mourinho's return to Benfica is no surprise. They need some of his old devil magic**\
+`Benfica have chosen Mourinho as their new head coach - 25 years on from his first crack at the job - following a horror loss to Qarabag`\
+https://nytimes.com/athletic/6637003/2025/09/18/jose-mourinho-benfica-analysis/
+
 **Red Light: The NHL's dreaded mushy middle. Plus: Remembering bizarre offseasons**\
 `Good morning to everyone except that one lazy bum who showed up to training camp in the second-best shape of his life.`\
 https://nytimes.com/athletic/6640793/2025/09/18/red-light-nhl-mushy-middle/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/18/science/reptiles-cognition-moods.html
 **ESPN says 'First Take' will have 30 to 45-day tryout for a new host**\
 `Molly Qerim was negotiating about roles outside First Take, according to ESPN president. `\
 https://nytimes.com/athletic/6640670/2025/09/18/espn-first-take-host-tryout-qerim/
-
-**Trump Administration Reinstates More Difficult Citizenship Test**\
-`The Trump administration said the more complex test is the “first of many” changes to acquiring U.S. citizenship.`\
-https://nytimes.com/2025/09/18/world/europe/us-citizenship-test.html
 
