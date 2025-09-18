@@ -1,3 +1,11 @@
+**ABC Pulls Jimmy Kimmel’s Show**\
+`ABC said it was pulling Jimmy Kimmel’s late night show “indefinitely” after his comments about the man accused of fatally shooting the activist Charlie Kirk.`\
+https://nytimes.com/video/us/politics/100000010406373/abc-jimmy-kimmel.html
+
+**Bayern Munich 860 Chelsea 117 - The numbers behind a naive Champions League start by Maresca's side**\
+`"In terms of experience, I think there was a huge difference," said Maresca, who backed his side to build "something special" from the loss`\
+https://nytimes.com/athletic/6639227/2025/09/18/chelsea-champions-league-bayern/
+
 **Five chances created and playing with a swagger - Wirtz shows exactly why Liverpool wanted him**\
 `The German has been taking time to adjust to life at Anfield but he was their attacking spark against Atletico Madrid`\
 https://nytimes.com/athletic/6638251/2025/09/18/florian-wirtz-liverpool-atletico/
