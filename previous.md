@@ -1,3 +1,15 @@
+**Mason McTavish is a no-show at Ducks camp — where might his next contract land?**\
+`The recent spate of contract extensions given to young RFAs figure helps to frame what McTavish’s next contract could be worth.`\
+https://nytimes.com/athletic/6638853/2025/09/18/mason-mctavish-contract-ducks-camp/
+
+**Sharks coach Warsofsky on expectations for Celebrini, Smith and more: Q&A**\
+`Warsofsky is trying to lead the Sharks out of a difficult rebuilding project, but he's becoming known as a winner.`\
+https://nytimes.com/athletic/6633387/2025/09/18/sharks-celebrini-smith-warsofsky/
+
+**How will women's football in Football Manager 26 work?**\
+`After the scrapping of FM25, women's football will feature in FM26 when it is released in November. So how will it work?`\
+https://nytimes.com/athletic/6637616/2025/09/18/womens-football-football-manager-26-explained/
+
 **Fed Faces No Good Options as Labor Market Wobbles While Inflation Firms**\
 `The central bank is grappling with how quickly to lower interest rates after restarting cuts on Wednesday, amid mixed economic signals and a relentless White House pressure campaign.`\
 https://nytimes.com/2025/09/18/business/fed-interest-rates-labor-inflation.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/18/world/europe/uk-debates-trump-royal-welcome.html
 **Trump Administration Live Updates: Federal Advisory Panel to Review Childhood Vaccines**\
 ``\
 https://nytimes.com/live/2025/09/18/us/trump-news
-
-**Syria’s President Says Border Deal With Israel Could Come ‘Within Days’**\
-`Syrian and Israeli officials have been holding talks about security arrangements along their shared border as part of U.S.-mediated efforts to reset decades of hostility.`\
-https://nytimes.com/2025/09/18/world/middleeast/syria-israel.html
-
-**The Pulse: The mythical pitch that’s become a reality**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6639651/2025/09/18/rising-fastball-mlb-the-pulse/
-
-**Motivating mottos can be grammatically tricky for NHL teams. Just ask the Leafs**\
-`From errors on the Stanley Cup to accidental innuendo, plenty of teams' attempts at memorable moments have gone awry.`\
-https://nytimes.com/athletic/6639645/2025/09/18/nhl-motto-errors-flyers-leafs-canucks/
 
