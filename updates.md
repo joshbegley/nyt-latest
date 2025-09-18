@@ -1,3 +1,19 @@
+**I Once Talked to Robert Redford About What Happens When We Die**\
+`On the set of “All Is Lost,” we sat together in a deflating life raft. That’s when I realized neither of us was prepared for the conversation we were about to have.`\
+https://nytimes.com/2025/09/18/opinion/robert-redford-death-movies.html
+
+**How Jimmy Kimmel Went From ‘The Man Show’ to MAGA Adversary**\
+`Over more than two decades in TV, the comedian has gone from a challenger of politically correct discourse to a frequent antagonist of the right.`\
+https://nytimes.com/2025/09/18/arts/television/jimmy-kimmel-host-timeline.html
+
+**Grand jury decides to not indict Texans safety Jimmie Ward in felony assault case**\
+`Ward has been on the Commissioner’s Exempt List since late August.`\
+https://nytimes.com/athletic/6642012/2025/09/18/jimmie-ward-texans-grand-jury/
+
+**Mets' Jonah Tong redeems himself, emerges as an intriguing playoff option**\
+`Tong showed poise under pressure, helping the Mets secure a key win and boost playoff hopes.`\
+https://nytimes.com/athletic/6642296/2025/09/18/jonah-tong-intriguing-playoff-option/
+
 **L.A. Kings captain Anže Kopitar will retire after 2025-26 season**\
 `Kopitar is a two-time Stanley Cup champion and the first native of Slovenia to play in the NHL.`\
 https://nytimes.com/athletic/6639669/2025/09/18/anze-kopitar-retirement-kings/

@@ -1,3 +1,11 @@
+**Disney Pulled Jimmy Kimmel as Pressure Built on Multiple Fronts**\
+`The abrupt programming decision quickly morphed into a flashpoint for free speech in America under the Trump administration.`\
+https://nytimes.com/2025/09/18/business/media/disney-abc-jimmy-kimmel.html
+
+**Trump Has Threatened Broadcast Licenses. Here’s How They Work.**\
+`The Federal Communications Commission gives out licenses to TV stations to broadcast over radio frequencies and approves major telecom and media deals.`\
+https://nytimes.com/2025/09/18/us/politics/trump-broadcast-licenses-fcc.html
+
 **I Once Talked to Robert Redford About What Happens When We Die**\
 `On the set of “All Is Lost,” we sat together in a deflating life raft. That’s when I realized neither of us was prepared for the conversation we were about to have.`\
 https://nytimes.com/2025/09/18/opinion/robert-redford-death-movies.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/18/world/africa/us-deportees-sue-ghana.html
 **NWSL commissioner Jessica Berman on expansion, salary cap and player safety**\
 `The commissioner also indicated her intention to stay with the league as her current contract comes to an end`\
 https://nytimes.com/athletic/6641551/2025/09/18/nwsl-jessica-berman-salary-cap-expansion/
-
-**Rashford: 'Refreshing' playing with new Barcelona team-mates after first club goals**\
-`Rashford scored both Barcelona's goals in the Champions League win at Newcastle, his first since joining on loan from Manchester United.`\
-https://nytimes.com/athletic/6642231/2025/09/18/rashford-champions-league-barcelona-goals-newcastle/
-
-**Where Will Gazans Go?**\
-`Josh Holder of The New York Times, who has been using satellite images to track the destruction in Gaza, describes how there are few viable places to flee.`\
-https://nytimes.com/video/world/middleeast/100000010405069/where-will-gazans-go.html
 
