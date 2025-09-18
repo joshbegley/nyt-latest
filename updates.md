@@ -1,3 +1,11 @@
+**A resurgent Justin Verlander gives the Giants, and himself, a chance to keep going**\
+`The future Hall of Famer is pitching near his peak form with a 2.17 ERA in 11 starts since the All-Star break. `\
+https://nytimes.com/athletic/6639585/2025/09/17/justin-verlander-giants-playoff-chase/
+
+**Yankees' concerns over late-night travel to Baltimore affect lineup vs. Twins**\
+`Manager Aaron Boone left Giancarlo Stanton and Austin Wells out of the starting lineup Wednesday in part because of worries about travel. `\
+https://nytimes.com/athletic/6639689/2025/09/17/yankees-travel-baltimore-lineup-vs-twins/
+
 **Shoots for the Stars**\
 `Adam Wagner gets introspective.`\
 https://nytimes.com/2025/09/17/crosswords/daily-puzzle-2025-09-18.html
