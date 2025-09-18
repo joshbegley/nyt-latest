@@ -1,3 +1,11 @@
+**On This Stage, It’s Bleak Being a Man**\
+`Alice Birch’s latest play offers two modish genres for the price of one: the trauma narrative and the earnest inquiry into masculinity.`\
+https://nytimes.com/2025/09/18/arts/romans-a-novel-review.html
+
+**Charlie Kirk’s Influence on His Followers Started Well Before College**\
+`Members of high school chapters of Turning Point USA mourned a conservative power broker who took them, and their political might, seriously.`\
+https://nytimes.com/2025/09/18/style/charlie-kirk-turning-point-usa-high-school.html
+
 **Texas Man Is Charged With Making Threats Against Mamdani**\
 `The arrest of a man accused of targeting Zohran Mamdani, the Democratic mayoral nominee in New York City, came during an extraordinarily tense time for public officials in the United States.`\
 https://nytimes.com/2025/09/18/nyregion/zohran-mamdani-threat-nyc-mayor.html

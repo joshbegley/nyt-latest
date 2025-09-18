@@ -1,3 +1,11 @@
+**On This Stage, It’s Bleak Being a Man**\
+`Alice Birch’s latest play offers two modish genres for the price of one: the trauma narrative and the earnest inquiry into masculinity.`\
+https://nytimes.com/2025/09/18/arts/romans-a-novel-review.html
+
+**Charlie Kirk’s Influence on His Followers Started Well Before College**\
+`Members of high school chapters of Turning Point USA mourned a conservative power broker who took them, and their political might, seriously.`\
+https://nytimes.com/2025/09/18/style/charlie-kirk-turning-point-usa-high-school.html
+
 **Texas Man Is Charged With Making Threats Against Mamdani**\
 `The arrest of a man accused of targeting Zohran Mamdani, the Democratic mayoral nominee in New York City, came during an extraordinarily tense time for public officials in the United States.`\
 https://nytimes.com/2025/09/18/nyregion/zohran-mamdani-threat-nyc-mayor.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6637003/2025/09/18/jose-mourinho-benfica-analysis/
 **Red Light: The NHL's dreaded mushy middle. Plus: Remembering bizarre offseasons**\
 `Good morning to everyone except that one lazy bum who showed up to training camp in the second-best shape of his life.`\
 https://nytimes.com/athletic/6640793/2025/09/18/red-light-nhl-mushy-middle/
-
-**Nats interview Red Sox asst. GM Romero for top front-office job: Sources**\
-`The position has been open since the Nationals fired Mike Rizzo as president of baseball operations in July. `\
-https://nytimes.com/athletic/6640710/2025/09/18/washington-nationals-front-office-eddie-romero/
-
-**How Our New Game, Pips, Is Made**\
-`The Games editor shows us how all of the pieces fell into place.`\
-https://nytimes.com/2025/09/18/crosswords/pips-new-game.html
 
