@@ -1,3 +1,7 @@
+**Breaking down all 73 hopefuls on the Maple Leafs training camp roster**\
+`In just 17 days, the Leafs must whittle down their list from 73 players to a 23-man NHL roster.`\
+https://nytimes.com/athletic/6638274/2025/09/18/maple-leafs-training-camp-roster-breakdown-2025/
+
 **Why the Bruins' pick of a No. 2 center means so much in 2025-26**\
 `Zacha? Mittelstadt? Poitras? Who the Bruins choose will say a lot about their short- and long-term plans.`\
 https://nytimes.com/athletic/6638284/2025/09/18/bruins-center-zacha-mittelstadt-poitras/
