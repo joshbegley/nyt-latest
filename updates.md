@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Friday, Sep. 19, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/09/18/todays-new-york-times-international-edition
+
 **Internet Shutdowns Hit Parts of Afghanistan Amid Talk of a Crackdown**\
 `Some provincial officials said the country’s leader instructed them to switch off Wi-Fi in their area to limit the “misuse of the internet” and diffusion of “immoral acts.”`\
 https://nytimes.com/2025/09/18/world/asia/internet-shutdowns-afghanistan.html
