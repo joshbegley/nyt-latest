@@ -1,3 +1,11 @@
+**How to watch 2025 F1 Azerbaijan Grand Prix: Clinching opportunity for McLaren in Baku**\
+`McLaren’s drivers sit one-two in the championship. If McLaren locks out first and second at Baku, the constructors’ title would be sealed.`\
+https://nytimes.com/athletic/6638745/2025/09/18/f1-azerbaijan-grand-prix-odds-2025-how-to-watch/
+
+**For Gio Reyna to make USMNT's World Cup team, he'll have to be a statistical exception**\
+`There aren't really any recent historical comps to Gio Reyna that suggest a full reclamation of form and productivity are imminent`\
+https://nytimes.com/athletic/6639622/2025/09/18/gio-reyna-borussia-monchengladbach-usmnt-world-cup/
+
 **Packers' top priority vs. Browns? Contain Myles Garrett: 'He's a game wrecker'**\
 `Garrett leads the NFL through two games with six tackles for loss and is tied for the league lead with 3.5 sacks.`\
 https://nytimes.com/athletic/6639191/2025/09/18/packers-browns-myles-garrett-zach-tom/
