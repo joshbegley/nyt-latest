@@ -1,3 +1,7 @@
+**Matt Petgrave signs with ECHL's Fuel after not being charged in Adam Johnson's death**\
+`Petgrave hasn't played since 2023-24, when Johnson died after an accident in which Petgrave's skate cut him in the neck during a game.`\
+https://nytimes.com/athletic/6642245/2025/09/18/matt-petgrave-career-adam-johnson-echl-indy-fuel/
+
 **Canucks training camp: New-look lines, early Pettersson impressions, more**\
 `First-year Canucks bench boss Adam Foote clearly has a vision for how he wants this team to play.`\
 https://nytimes.com/athletic/6642328/2025/09/18/canucks-training-camp-elias-pettersson-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/18/arts/television/jimmy-kimmel-host-timeline.html
 **Grand jury decides to not indict Texans safety Jimmie Ward in felony assault case**\
 `Ward has been on the Commissioner’s Exempt List since late August.`\
 https://nytimes.com/athletic/6642012/2025/09/18/jimmie-ward-texans-grand-jury/
-
-**L.A. Kings captain Anže Kopitar will retire after 2025-26 season**\
-`Kopitar is a two-time Stanley Cup champion and the first native of Slovenia to play in the NHL.`\
-https://nytimes.com/athletic/6639669/2025/09/18/anze-kopitar-retirement-kings/
 
