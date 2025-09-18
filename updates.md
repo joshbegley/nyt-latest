@@ -1,3 +1,19 @@
+**Against Jacob deGrom, Astros find 'collective approach' and catapult into first place**\
+`Houston’s victory over the Rangers on Wednesday secured the season series and, more importantly, the tiebreaker over its intrastate rival.`\
+https://nytimes.com/athletic/6639884/2025/09/18/astros-collective-approach-first-place-jacob-degrom/
+
+**The New York Times in Print for Thursday, Sep. 18, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/18/todays-new-york-times
+
+**In the West Bank, Trump Is Not Standing in Israel’s Way**\
+`The Trump administration has not given its blessing to Israeli annexation of the West Bank. But it is doing little to stand in Israel’s way.`\
+https://nytimes.com/2025/09/18/opinion/israel-gaza-city-west-bank-trump.html
+
+**The Imperial Nostalgia of Donald Trump**\
+`Both the United States and Britain are suffering through crises of identity.`\
+https://nytimes.com/2025/09/18/opinion/trump-britain-state-visit.html
+
 **Europe’s far-right and Charlie Kirk**\
 `The continent’s far right is claiming the activist as a martyr. Our colleague Jason Horowitz explains why.`\
 https://nytimes.com/2025/09/18/briefing/europes-far-right-charlie-kirk.html
