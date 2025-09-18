@@ -1,3 +1,11 @@
+**Europe’s far-right and Charlie Kirk**\
+`The continent’s far right is claiming the activist as a martyr. Our colleague Jason Horowitz explains why.`\
+https://nytimes.com/2025/09/18/briefing/europes-far-right-charlie-kirk.html
+
+**Everton’s Alan Irvine and Billy McKinlay: ‘David Moyes is still as intense as ever’**\
+`Patrick Boyland speaks to the men behind Moyes about tactical trends, long days, and a looming retirement`\
+https://nytimes.com/athletic/6633572/2025/09/18/interview-alan-irvine-billy-mckinlay-david-moyes/
+
 **The new Antonio Conte - evolving yet again and showing his flexibility as a coach**\
 `Expect a different version of an Antonio Conte team when Napoli face Manchester City on Thursday`\
 https://nytimes.com/athletic/6634362/2025/09/18/antonio-conte-analysis-evolution-flexible/

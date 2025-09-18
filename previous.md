@@ -1,3 +1,11 @@
+**Europe’s far-right and Charlie Kirk**\
+`The continent’s far right is claiming the activist as a martyr. Our colleague Jason Horowitz explains why.`\
+https://nytimes.com/2025/09/18/briefing/europes-far-right-charlie-kirk.html
+
+**Everton’s Alan Irvine and Billy McKinlay: ‘David Moyes is still as intense as ever’**\
+`Patrick Boyland speaks to the men behind Moyes about tactical trends, long days, and a looming retirement`\
+https://nytimes.com/athletic/6633572/2025/09/18/interview-alan-irvine-billy-mckinlay-david-moyes/
+
 **The new Antonio Conte - evolving yet again and showing his flexibility as a coach**\
 `Expect a different version of an Antonio Conte team when Napoli face Manchester City on Thursday`\
 https://nytimes.com/athletic/6634362/2025/09/18/antonio-conte-analysis-evolution-flexible/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6637272/2025/09/18/alternative-premier-league-table
 **Who Is Brendan Carr of the F.C.C.?**\
 `The chairman of the F.C.C., who is in the spotlight for his comments that may have led to the suspension of late night TV show host Jimmy Kimmel, has long criticized the media for perceived bias.`\
 https://nytimes.com/2025/09/18/technology/brendan-carr-fcc-jimmy-kimmel.html
-
-**How flashing mouthguards help detect potential head injuries**\
-`A piece of equipment has been introduced at the Women's Rugby World Cup which neurosurgeons and a NASA-trained mathematician helped design`\
-https://nytimes.com/athletic/6569708/2025/09/18/led-mouthguards-womens-rugby-world-cup/
-
-**De Bruyne has a chance to remind Man City why he is impossible to replace**\
-`De Bruyne will return to the Etihad to underline why he was the man who this City era of dominance hinged on more than anyone else`\
-https://nytimes.com/athletic/6636817/2025/09/18/kevin-de-bruyne-napoli-man-city/
 
