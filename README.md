@@ -1,3 +1,7 @@
+**Late Night Tracks Trump’s Trip to the U.K.**\
+`“For the next couple of days, he’s bangin’ their mash,” Stephen Colbert said on Wednesday.`\
+https://nytimes.com/2025/09/18/arts/television/late-night-trump-uk-visit.html
+
 **Rasmus Hojlund was told he had no Manchester United future after Grimsby. Now he's back to face City with Napoli**\
 `Rasmus Hojlund is back in Manchester today to face City, this is the story of how he left United and why it didn't work out`\
 https://nytimes.com/athletic/6637217/2025/09/18/rasmus-hojlund-manchester-united-grimsby/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6639955/2025/09/18/mariners-vs-royals-stream-how-to
 **How to watch Angels at Brewers: Time, TV, streaming for September 18**\
 `Find out how to watch the Los Angeles Angels play the Milwaukee Brewers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6639952/2025/09/18/angels-vs-brewers-stream-how-to-watch-sept-18/
-
-**Word of the Day: recumbent**\
-`This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/09/18/learning/word-of-the-day-recumbent.html
 
