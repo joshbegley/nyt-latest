@@ -1,3 +1,7 @@
+**France Braces for Anti-Austerity Strikes and Protests**\
+`Barely a week into the job, Prime Minister Sébastien Lecornu faces rising social unrest on top of political deadlock and financial turmoil.`\
+https://nytimes.com/2025/09/18/world/europe/france-protests-austerity.html
+
 **The New York Times International Edition in Print for Friday, Sep. 19, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/09/18/todays-new-york-times-international-edition
