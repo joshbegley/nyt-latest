@@ -1,3 +1,11 @@
+**Cool Whips**\
+`By Tanya Sichynsky`\
+https://nytimes.com/2025/09/18/dining/whipped-tofu-whipped-ricotta-and-more-whipped-recipes.html
+
+**Scoop City: Two mismatches in Bills-Dolphins**\
+`Mismatches for Josh Allen and De'Von Achane, plus Brady's controversial role at FOX, Vikings' faith in Carson Wentz, tape on Packers defense`\
+https://nytimes.com/athletic/6641264/2025/09/18/bills-dolphins-week-3-nfl-brady-fox-packers-scoop-city/
+
 **Did Jordon Hudson skip 'Dancing with the Stars'? Plus, is model dating Sinner and Alcaraz?**\
 `It sure looks like Bill Belichick's girlfriend might have bailed on 'DWTS' after her name appeared on a Disney+ Season 34 cast list. `\
 https://nytimes.com/athletic/6639224/2025/09/18/jordon-hudson-sports-gossip-show-sinner-alcaraz/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6641045/2025/09/18/sports-cards-jj-mccarthy-kobe-me
 **Betting for (by) dummies: Why we're picking ... Titans!?**\
 `Two of our football experts banter about their losses and make increasingly wild picks for this week's slew of games. `\
 https://nytimes.com/athletic/6641016/2025/09/18/nfl-college-football-betting-picks-titans/
-
-**Until Saturday: Welcome to dark-horse weekend**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/6641202/2025/09/18/college-football-schedule-week-4-indiana-until-saturday/
-
-**U.S. to Cut Out Nongovernmental Groups in Refocusing Health Aid**\
-`Secretary of State Marco Rubio said the United States would negotiate agreements to deliver aid in new ways and would focus on the Western Hemisphere and Asia Pacific.`\
-https://nytimes.com/2025/09/18/us/politics/us-aid-health-ngos.html
 
