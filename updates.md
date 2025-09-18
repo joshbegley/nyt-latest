@@ -1,3 +1,7 @@
+**Canucks training camp: New-look lines, early Pettersson impressions, more**\
+`First-year Canucks bench boss Adam Foote clearly has a vision for how he wants this team to play.`\
+https://nytimes.com/athletic/6642328/2025/09/18/canucks-training-camp-elias-pettersson-2025/
+
 **Military Helicopter Carrying 4 Soldiers Crashes in Washington State**\
 `Rescue efforts have been hampered by fire, and officials did not release information on the conditions of those aboard.`\
 https://nytimes.com/2025/09/18/us/military-helicopter-crash-washington.html
