@@ -1,3 +1,7 @@
+**Sabres training camp: Line combinations, Geertsen's role, Tuch speaks**\
+`Lindy Ruff had most of his NHL team together skating in the first practice group at Sabres training camp.`\
+https://nytimes.com/athletic/6641658/2025/09/18/sabres-training-camp-lines-tuch/
+
 **7.8-Magnitude Earthquake off Russia Prompts Tsunami Advisory in Alaska**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/09/18/world/russia-earthquake-tsunami.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010407882/bear-new-jersey-dollar-store.html
 **NFL favorites are on fire this season. Is it a short-term trend or something different?**\
 `Teams favored by at least four points are a perfect 12-0. Is this a trend or a sample-size problem?`\
 https://nytimes.com/athletic/6635402/2025/09/18/nfl-favorites-dominating-2025-odds-betting-trends/
-
-**Clippers say owner was 'duped' in response to latest Kawhi Leonard deal allegations**\
-`The team addressed reporting related to Steve Ballmer's ties to the now-bankrupt environmental company.`\
-https://nytimes.com/athletic/6641165/2025/09/18/clippers-ballmer-carbon-credits-kawhi-aspiration/
 

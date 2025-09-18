@@ -1,3 +1,7 @@
+**Sabres training camp: Line combinations, Geertsen's role, Tuch speaks**\
+`Lindy Ruff had most of his NHL team together skating in the first practice group at Sabres training camp.`\
+https://nytimes.com/athletic/6641658/2025/09/18/sabres-training-camp-lines-tuch/
+
 **7.8-Magnitude Earthquake off Russia Prompts Tsunami Advisory in Alaska**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/09/18/world/russia-earthquake-tsunami.html
