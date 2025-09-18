@@ -1,3 +1,7 @@
+**L.A. Kings captain Anže Kopitar will retire after 2025-26 season**\
+`Kopitar is a two-time Stanley Cup champion and the first native of Slovenia to play in the NHL.`\
+https://nytimes.com/athletic/6639669/2025/09/18/anze-kopitar-retirement-kings/
+
 **The F.J. King, Lost in 1886, Is Found in the Depths of Lake Michigan**\
 `Long rumored to be on the floor of the lake but never seen, the schooner had eluded divers and taunted storytellers for generations. It was miles off the Door Peninsula in Wisconsin.`\
 https://nytimes.com/2025/09/18/us/ghost-ship-wreckage-lake-michigan.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6642220/2025/09/18/flyers-camp-tocchet-tortorella/
 **Yohe: 10 observations from Day 1 of Penguins training camp**\
 `Dan Muse let the Penguins know who is boss on Day 1 of training camp. `\
 https://nytimes.com/athletic/6641030/2025/09/18/penguins-training-camp-10-observations/
-
-**Since Leaving Washington, Elon Musk Has Been All In on His A.I. Company**\
-`Mr. Musk spent the summer at his artificial intelligence start-up xAI, trying to match the runaway success of OpenAI. The result was chaos.`\
-https://nytimes.com/2025/09/18/technology/elon-musk-artificial-intelligence-xai.html
 
