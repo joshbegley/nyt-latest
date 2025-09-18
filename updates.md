@@ -1,3 +1,19 @@
+**Robert Redford, Sundance and Park City Style**\
+`How the Sundance Film Festival set in the mountains of Utah shaped what stars (and those who emulate them) wear.`\
+https://nytimes.com/2025/09/18/style/robert-redford-sundance-park-city-style.html
+
+**Big 12 in talks to stage Arizona State-Kansas football game at Wembley Stadium in 2026**\
+`Details must be sorted out to finalize the game, but the schools would play in London on Sept. 19, 2026.`\
+https://nytimes.com/athletic/6640929/2025/09/18/big-12-in-talks-to-stage-arizona-state-kansas-football-game-at-wembley-stadium-in-2026/
+
+**New Jersey Governor Election 2025: Latest Polls**\
+`Track the latest polls about Democrat Mikie Sherrill and Republican Jack Ciattarelli in the New Jersey gubernatorial election.`\
+https://nytimes.com/interactive/polls/new-jersey-governor-election-polls-2025.html
+
+**Virginia Governor Election 2025: Latest Polls**\
+`Track the latest polls about Democrat Abigail Spanberger and Republican Winsome Earle-Sears in the Virginia gubernatorial election.`\
+https://nytimes.com/interactive/polls/virginia-governor-election-polls-2025.html
+
 **'Not a selfish bone in my body': Trae Young fires back at critique of his leadership**\
 `The Hawks guard posted a 12-minute video attacking Patrick Beverley after the former NBAer said Young "had not won enough to speak to me."`\
 https://nytimes.com/athletic/6640723/2025/09/18/trae-young-patrick-beverley-podcast-hawks/
