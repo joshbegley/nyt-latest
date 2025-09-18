@@ -1,3 +1,27 @@
+**11 Democratic Officials Arrested Trying to Access ICE Detention Cells**\
+`Federal officers arrested 11 officials in New York on Thursday, after they tried to access cells used by the Immigration and Customs Enforcement agency to detain migrants. Brad Lander, the city comptroller, and Jumaane D. Williams, the public advocate, were among those arrested.`\
+https://nytimes.com/video/us/politics/100000010408808/11-democratic-officials-arrested-trying-to-access-ice-detention-cells.html
+
+**When Did Cancel Culture Become ‘Consequence Culture’?**\
+`As some prominent conservatives target both ordinary people and public figures for their comments about Charlie Kirk, they are trying to rebrand a practice they once maligned.`\
+https://nytimes.com/2025/09/18/style/consequence-culture-kirk-kimmel.html
+
+**N.Y.P.D. Officers Face Misconduct Charges in Fatal Shooting of Man, 19**\
+`Police Commissioner Jessica Tisch’s decision to bring departmental charges against the two officers follows a finding that they used excessive force against the man, Win Rozario.`\
+https://nytimes.com/2025/09/18/nyregion/nypd-win-rozario-charges.html
+
+**Charges Dropped Against Man Who Was Beaten at Egypt’s U.N. Mission**\
+`Yasin El Sammak was whipped by a guard, taken down and strangled with his kaffiyeh, his father said. Then, he and his brother were charged by the New York City police.`\
+https://nytimes.com/2025/09/18/nyregion/egypt-mission-beating-charges-dropped.html
+
+**What we learned on Day 1 of Canadiens camp: Dach, Laine are similarly motivated**\
+`From line combinations and defence pairings to redemption stories, the Canadiens' opening day of camp was very revealing.`\
+https://nytimes.com/athletic/6642356/2025/09/18/what-we-learned-day-1-canadiens-camp-kirby-dach-patrik-laine/
+
+**49ers QB Brock Purdy happy with progress, but status remains 'day to day'**\
+`Purdy increased his practice reps behind Mac Jones on Thursday, but it's unclear who will start Sunday vs. the Cardinals.`\
+https://nytimes.com/athletic/6642465/2025/09/18/49ers-qb-brock-purdy-mac-jones-health/
+
 **Matt Petgrave signs with ECHL's Fuel after not being charged in Adam Johnson's death**\
 `Petgrave hasn't played since 2023-24, when Johnson died after an accident in which Petgrave's skate cut him in the neck during a game.`\
 https://nytimes.com/athletic/6642245/2025/09/18/matt-petgrave-career-adam-johnson-echl-indy-fuel/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/09/18/us/military-helicopter-crash-washington.html
 **How to watch Athletics at Pirates: Time, TV, streaming for September 19**\
 `Find out how to watch the Athletics play the Pittsburgh Pirates, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6642524/2025/09/18/athletics-vs-pirates-stream-how-to-watch-sept-19/
-
-**How to watch Braves at Tigers: Time, TV, streaming for September 19**\
-`Find out how to watch the Atlanta Braves play the Detroit Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6642518/2025/09/18/braves-vs-tigers-stream-how-to-watch-sept-19/
-
-**Disney Pulled Jimmy Kimmel as Pressure Built on Multiple Fronts**\
-`The abrupt programming decision quickly morphed into a flashpoint for free speech in America under the Trump administration.`\
-https://nytimes.com/2025/09/18/business/media/disney-abc-jimmy-kimmel.html
-
-**Trump Has Threatened Broadcast Licenses. Here’s How They Work.**\
-`The Federal Communications Commission gives out licenses to TV stations to broadcast over radio frequencies and approves major telecom and media deals.`\
-https://nytimes.com/2025/09/18/us/politics/trump-broadcast-licenses-fcc.html
-
-**I Once Talked to Robert Redford About What Happens When We Die**\
-`On the set of “All Is Lost,” we sat together in a deflating life raft. That’s when I realized neither of us was prepared for the conversation we were about to have.`\
-https://nytimes.com/2025/09/18/opinion/robert-redford-death-movies.html
-
-**How Jimmy Kimmel Went From ‘The Man Show’ to MAGA Adversary**\
-`Over more than two decades in TV, the comedian has gone from a challenger of politically correct discourse to a frequent antagonist of the right.`\
-https://nytimes.com/2025/09/18/arts/television/jimmy-kimmel-host-timeline.html
-
-**Grand jury decides to not indict Texans safety Jimmie Ward in felony assault case**\
-`Ward has been on the Commissioner’s Exempt List since late August.`\
-https://nytimes.com/athletic/6642012/2025/09/18/jimmie-ward-texans-grand-jury/
 
