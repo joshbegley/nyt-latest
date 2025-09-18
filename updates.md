@@ -1,3 +1,7 @@
+**'Right now, I’m here': Nick Robertson's future with the Leafs is cloudier than ever**\
+`Robertson signed a one-year contract extension this summer, but his spot in the Maple Leafs lineup remains in limbo as training camp opens.`\
+https://nytimes.com/athletic/6641253/2025/09/18/maple-leafs-nick-robertson-trade-future/
+
 **Democrats Pitch Bill to Protect Speech Targeted by Trump**\
 `A group of House and Senate Democrats said they would introduce a measure that would bolster legal protections for people targeted by the government for speaking freely.`\
 https://nytimes.com/2025/09/18/us/politics/democrats-pitch-bill-to-protect-speech-targeted-by-trump.html

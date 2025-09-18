@@ -1,10 +1,14 @@
+**NWSL's Jessica Berman says she 'intends to be around' as contract nears end**\
+`Berman inherited a league rife with controversy, but she has enjoyed a relatively successful tenure since getting the job in 2022.`\
+https://nytimes.com/athletic/6641459/2025/09/18/nwsl-commissioner-jessica-berman-contract/
+
 **'Right now, I’m here': Nick Robertson's future with the Leafs is cloudier than ever**\
 `Robertson signed a one-year contract extension this summer, but his spot in the Maple Leafs lineup remains in limbo as training camp opens.`\
 https://nytimes.com/athletic/6641253/2025/09/18/maple-leafs-nick-robertson-trade-future/
 
 **Democrats Pitch Bill to Protect Speech Targeted by Trump**\
 `A group of House and Senate Democrats said they would introduce a measure that would bolster legal protections for people targeted by the government for speaking freely.`\
-https://nytimes.com/2025/09/18/us/politics/democrats-pitch-bill-to-protect-speech-targeted-by-trump.html
+https://nytimes.com/2025/09/18/us/politics/democrats-free-speech-bill-trump.html
 
 **MLB mandates 'recovery period' for scouting amateur players during offseason**\
 `Citing an increase in injuries, the league will prohibit the evaluation of draft-eligible players to prevent year-round scouting.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/18/sports/tennis/laver-cup-tiafoe-fritz.html
 **The Laver Cup Returns for the Eighth Year, Now With New Captains**\
 `Andre Agassi and Yannick Noah have replaced John McEnroe and Bjorn Borg.`\
 https://nytimes.com/2025/09/18/sports/tennis/laver-cup-andre-agassi-yannick-noah.html
-
-**Why Stephen A. Smith is moving from sports to politics talk: MoneyCall**\
-`Plus: The Tom Brady conundrum of a TV headset vs. a coaches' box headset, mega NFL TV numbers, Robert Redford as Roy Hobbs and more.`\
-https://nytimes.com/athletic/6641367/2025/09/18/stephen-a-smith-politics-moneycall/
 
