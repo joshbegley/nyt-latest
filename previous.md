@@ -1,3 +1,7 @@
+**Sydney McLaughlin-Levrone clocks second-best 400m time ever, wins gold at worlds**\
+`The American star, switching from the 400 hurdles to flat, flirted with the world record on the way to gold Thursday in Tokyo.`\
+https://nytimes.com/athletic/6640664/2025/09/18/sydney-mclaughlin-levrone-400-meter-gold-world-championships/
+
 **Ben Johnson, Brian Schottenheimer not bothered by Tom Brady production access**\
 `Some NFL coaches are shrugging off concerns around Brady's role as an NFL analyst for and a minority owner of the Raiders.`\
 https://nytimes.com/athletic/6640480/2025/09/18/nfl-coaches-tom-brady-rules/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/18/business/fed-interest-rates-labor-inflation.html
 **New York and Other States Form Health Bloc as Answer to Trump’s Policies**\
 `Northeastern governors, like their peers in the West, want to shore up public health and issue a stamp of approval for vaccines.`\
 https://nytimes.com/2025/09/18/nyregion/northeast-public-health-collaborative-trump.html
-
-**Liberal? Conservative? Cubs Fan? Catholics Project Many Images Onto Pope.**\
-`Unlike Francis, Leo XIV has given few clues about where he stands on issues dividing the church (though he’s definitely a White Sox guy). Followers fill in the gaps.`\
-https://nytimes.com/2025/09/18/world/asia/pope-leo-liberal-conservative.html
 

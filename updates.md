@@ -1,3 +1,7 @@
+**Sydney McLaughlin-Levrone clocks second-best 400m time ever, wins gold at worlds**\
+`The American star, switching from the 400 hurdles to flat, flirted with the world record on the way to gold Thursday in Tokyo.`\
+https://nytimes.com/athletic/6640664/2025/09/18/sydney-mclaughlin-levrone-400-meter-gold-world-championships/
+
 **Ben Johnson, Brian Schottenheimer not bothered by Tom Brady production access**\
 `Some NFL coaches are shrugging off concerns around Brady's role as an NFL analyst for and a minority owner of the Raiders.`\
 https://nytimes.com/athletic/6640480/2025/09/18/nfl-coaches-tom-brady-rules/
