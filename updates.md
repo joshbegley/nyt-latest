@@ -1,3 +1,15 @@
+**Red Light: The NHL's dreaded mushy middle. Plus: Remembering bizarre offseasons**\
+`Good morning to everyone except that one lazy bum who showed up to training camp in the second-best shape of his life.`\
+https://nytimes.com/athletic/6640793/2025/09/18/red-light-nhl-mushy-middle/
+
+**Nats interview Red Sox asst. GM Romero for top front-office job: Sources**\
+`The position has been open since the Nationals fired Mike Rizzo as president of baseball operations in July. `\
+https://nytimes.com/athletic/6640710/2025/09/18/washington-nationals-front-office-eddie-romero/
+
+**How Our New Game, Pips, Is Made**\
+`The Games editor shows us how all of the pieces fell into place.`\
+https://nytimes.com/2025/09/18/crosswords/pips-new-game.html
+
 **Sydney McLaughlin-Levrone makes history as blazing-fast 400m wins world title**\
 `The American star, switching from the 400 hurdles to flat, flirted with the world record on the way to gold Thursday in Tokyo.`\
 https://nytimes.com/athletic/6640664/2025/09/18/sydney-mclaughlin-levrone-400-meter-gold-world-championships/

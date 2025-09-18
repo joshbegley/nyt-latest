@@ -1,3 +1,15 @@
+**Red Light: The NHL's dreaded mushy middle. Plus: Remembering bizarre offseasons**\
+`Good morning to everyone except that one lazy bum who showed up to training camp in the second-best shape of his life.`\
+https://nytimes.com/athletic/6640793/2025/09/18/red-light-nhl-mushy-middle/
+
+**Nats interview Red Sox asst. GM Romero for top front-office job: Sources**\
+`The position has been open since the Nationals fired Mike Rizzo as president of baseball operations in July. `\
+https://nytimes.com/athletic/6640710/2025/09/18/washington-nationals-front-office-eddie-romero/
+
+**How Our New Game, Pips, Is Made**\
+`The Games editor shows us how all of the pieces fell into place.`\
+https://nytimes.com/2025/09/18/crosswords/pips-new-game.html
+
 **Amid Sidney Crosby trade rumors, Penguins GM Kyle Dubas responds to Pat Brisson**\
 `"He's entitled to make the comments that he wishes," Dubas said.`\
 https://nytimes.com/athletic/6640681/2025/09/18/sidney-crosby-trade-rumors-penguins-agent-kyle-dubas-nhl/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6640670/2025/09/18/espn-first-take-host-tryout-qeri
 **Trump Administration Reinstates More Difficult Citizenship Test**\
 `The Trump administration said the more complex test is the “first of many” changes to acquiring U.S. citizenship.`\
 https://nytimes.com/2025/09/18/world/europe/us-citizenship-test.html
-
-**‘The Lost Bus’ Review: Matthew McConaughey Rides Out Disaster**\
-`The actor stars alongside America Ferrera in a high-tension drama from the director Paul Greengrass that revisits the deadly 2018 Camp Fire.`\
-https://nytimes.com/2025/09/18/movies/the-lost-bus-review-matthew-mcconaughey.html
-
-**Sydney McLaughlin-Levrone makes history as blazing-fast 400m wins world title**\
-`The American star, switching from the 400 hurdles to flat, flirted with the world record on the way to gold Thursday in Tokyo.`\
-https://nytimes.com/athletic/6640664/2025/09/18/sydney-mclaughlin-levrone-400-meter-gold-world-championships/
-
-**Ben Johnson, Brian Schottenheimer not bothered by Tom Brady production access**\
-`Some NFL coaches are shrugging off concerns around Brady's role as an NFL analyst for Fox and a minority owner of the Raiders.`\
-https://nytimes.com/athletic/6640480/2025/09/18/nfl-coaches-tom-brady-rules/
 
