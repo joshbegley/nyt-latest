@@ -1,3 +1,15 @@
+**Clayton Kershaw earned this moment, and now walks away on his own terms**\
+`Kershaw flirted with retirement on numerous occasions. But ultimately he fought for the chance to close things out his way. `\
+https://nytimes.com/athletic/6642001/2025/09/18/clayton-kershaw-retirement-dodgers-2025/
+
+**Sydney McLaughlin-Levrone, in latest show of brilliance, stirs talk of unique Olympic feat**\
+`With her win in the 400-meter at the World Athletics Championships, an unheard-of double at the L.A. Olympics is more plausible than ever.`\
+https://nytimes.com/athletic/6641674/2025/09/18/sydney-mclaughlin-levrone-400-meter-world-championships-olympics-double/
+
+**Three Nuns Plot Escape Back to Their Abbey**\
+`Three nuns, who were living at a retirement center, decided they were unhappy there and hatched a plan to move back into the convent they had lived in for decades.`\
+https://nytimes.com/video/world/europe/100000010407353/nuns-escape-convent-austria.html
+
 **In Their Own Words: Trump and Top Officials Change Tone on Free Speech**\
 `In the wake of Charlie Kirk’s assassination, the president’s pledges to guarantee free speech have been replaced by efforts to suppress — and even criminalize — what their critics have to say.`\
 https://nytimes.com/2025/09/18/us/politics/trump-free-speech.html

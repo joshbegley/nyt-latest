@@ -1,3 +1,15 @@
+**Clayton Kershaw earned this moment, and now walks away on his own terms**\
+`Kershaw flirted with retirement on numerous occasions. But ultimately he fought for the chance to close things out his way. `\
+https://nytimes.com/athletic/6642001/2025/09/18/clayton-kershaw-retirement-dodgers-2025/
+
+**Sydney McLaughlin-Levrone, in latest show of brilliance, stirs talk of unique Olympic feat**\
+`With her win in the 400-meter at the World Athletics Championships, an unheard-of double at the L.A. Olympics is more plausible than ever.`\
+https://nytimes.com/athletic/6641674/2025/09/18/sydney-mclaughlin-levrone-400-meter-world-championships-olympics-double/
+
+**Three Nuns Plot Escape Back to Their Abbey**\
+`Three nuns, who were living at a retirement center, decided they were unhappy there and hatched a plan to move back into the convent they had lived in for decades.`\
+https://nytimes.com/video/world/europe/100000010407353/nuns-escape-convent-austria.html
+
 **In Their Own Words: Trump and Top Officials Change Tone on Free Speech**\
 `In the wake of Charlie Kirk’s assassination, the president’s pledges to guarantee free speech have been replaced by efforts to suppress — and even criminalize — what their critics have to say.`\
 https://nytimes.com/2025/09/18/us/politics/trump-free-speech.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6641402/2025/09/18/clayton-kershaw-dodgers-retireme
 **Erika Kirk Takes a Leadership Role in Turning Point USA**\
 `After years spent emphasizing family life in the public eye, she will now run the group her husband built.`\
 https://nytimes.com/2025/09/18/style/erika-kirk-turning-point-usa.html
-
-**Lunching Like a Flower Child in the East Village**\
-`Becky Hughes returns to answer three reader questions and solve a Grand Central Oyster Bar mystery.`\
-https://nytimes.com/2025/09/18/dining/lunching-like-a-flower-child-in-the-east-village.html
-
-**What I'm seeing at Red Wings camp: Todd McLellan sets competitive Day 1 tone**\
-`The Red Wings hit the ground running on Day 1 of training camp with a competitive scrimmage that set the tone for their week.`\
-https://nytimes.com/athletic/6641449/2025/09/18/red-wings-training-camp-todd-mclellan/
-
-**Man Utd reach Women's Champions League main draw for first time with Brann win**\
-`Elisabeth Terland's hat-trick helped Manchester United overturn a first-leg deficit and qualify for the Champions League's league phase.`\
-https://nytimes.com/athletic/6641377/2025/09/18/manchester-united-womens-champions-league-qualify/
 
