@@ -1,6 +1,14 @@
+**Why the Bruins' pick of a No. 2 center means so much in 2025-26**\
+`Zacha? Mittelstadt? Poitras? Who the Bruins choose will say a lot about their short- and long-term plans.`\
+https://nytimes.com/athletic/6638284/2025/09/18/bruins-center-zacha-mittelstadt-poitras/
+
 **U.K. to Formally Recognize Palestinian Statehood After Trump Departs**\
 `Prime Minister Keir Starmer is expected to confirm that the British government will vote to recognize a Palestinian state hours or days after President Trump’s visit to Britain.`\
 https://nytimes.com/2025/09/18/world/europe/uk-formally-recognize-palestinian-statehood.html
+
+**How Patrick Mahomes is processing Chiefs' 0-2 start — and what he wants to see next**\
+`With the Chiefs off to an uncharacteristically slow start, Mahomes wants to see them prove they can take on a new role against the Giants.`\
+https://nytimes.com/athletic/6638178/2025/09/18/chiefs-patrick-mahomes-0-2-start/
 
 **Need a 1-handed catch? Isaac TeSlaa is your guy and the Lions are loving it**\
 `After grabbing a pair of highlight-reel catches, TeSlaa is earning more trust and more opportunities in this Detroit offense.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6635845/2025/09/18/dolphins-bills-tnf-josh-allen-vi
 **Inside Carson Wentz’s wild journey to starting for the Vikings, his childhood team**\
 `The veteran is hoping for a career rebirth after several years of journeyman backup work. Can he find success in Minnesota?`\
 https://nytimes.com/athletic/6639045/2025/09/18/carson-wentz-vikings-bengals-start/
-
-**Saquon Barkley broke records in first Eagles season. Is there an encore in 2025?**\
-`No one has ever rushed for 2,000 yards twice. Barkley just might be the perfect candidate to do so.`\
-https://nytimes.com/athletic/6638963/2025/09/18/saquon-barkley-eagles-broken-records-first-season/
-
-**Jimmy Kimmel Pulled Off Air ‘Indefinitely,’ and Former C.D.C. Head Issues Warning**\
-`Plus, smart glasses and even smarter headphones.`\
-https://nytimes.com/2025/09/18/podcasts/the-headlines/jimmy-kimmel-cdc-head-hearing.html
 

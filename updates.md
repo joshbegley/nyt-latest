@@ -1,3 +1,11 @@
+**Why the Bruins' pick of a No. 2 center means so much in 2025-26**\
+`Zacha? Mittelstadt? Poitras? Who the Bruins choose will say a lot about their short- and long-term plans.`\
+https://nytimes.com/athletic/6638284/2025/09/18/bruins-center-zacha-mittelstadt-poitras/
+
+**How Patrick Mahomes is processing Chiefs' 0-2 start — and what he wants to see next**\
+`With the Chiefs off to an uncharacteristically slow start, Mahomes wants to see them prove they can take on a new role against the Giants.`\
+https://nytimes.com/athletic/6638178/2025/09/18/chiefs-patrick-mahomes-0-2-start/
+
 **U.K. to Formally Recognize Palestinian Statehood After Trump Departs**\
 `Prime Minister Keir Starmer is expected to confirm that the British government will vote to recognize a Palestinian state hours or days after President Trump’s visit to Britain.`\
 https://nytimes.com/2025/09/18/world/europe/uk-formally-recognize-palestinian-statehood.html
