@@ -1,3 +1,7 @@
+**Meta Unveils Smart Glasses With Apps and an Artificial Intelligence Assistant**\
+`At its annual developer conference on Wednesday, Meta showed several new smart glasses, which have been a surprise hit for the company.`\
+https://nytimes.com/2025/09/17/technology/personaltech/meta-smart-glasses-ai.html
+
 **Ash Cloud Over Mount St. Helens Conjures Memories of 1980 Disaster**\
 `A hazy cloud that emerged over the active volcano was the result of high winds rather than a new eruption.`\
 https://nytimes.com/2025/09/17/us/mount-st-helens-volcanic-ash-cloud.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6639121/2025/09/17/brewers-jose-quintana-injury-nic
 **In a 900-Year-Old Castle, Feted by a King, Trump Was in His Element**\
 `The seating chart at the state dinner for President Trump was a cross-section of the rich and the powerful hoping to get on his good side.`\
 https://nytimes.com/2025/09/17/world/europe/trump-uk-state-visit-banquet-royals.html
-
-**Trump Administration Announces New Civics Effort With MAGA-Aligned Groups**\
-`President Trump has long sought to imbue the nonpartisan idea of civics — the rights, responsibilities and duties of citizenship — with his politics.`\
-https://nytimes.com/2025/09/17/us/politics/trump-civics-education-maga.html
 
