@@ -1,3 +1,7 @@
+**Blackhawks, Kaiser agree 2-year, $3.4 million extension to avoid missing camp**\
+`The Chicago Blackhawks finally closed out their offseason business with no time to spare.`\
+https://nytimes.com/athletic/6634804/2025/09/17/blackhawks-wyatt-kaiser-contract-nhl/
+
 **Meta Unveils Smart Glasses With Apps and an Artificial Intelligence Assistant**\
 `At its annual developer conference on Wednesday, Meta showed several new smart glasses, which have been a surprise hit for the company.`\
 https://nytimes.com/2025/09/17/technology/personaltech/meta-smart-glasses-ai.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/17/us/politics/democrats-spending-demands-shutdown.h
 **Brewers place Jose Quintana on IL, reinstate Nick Mears, remain unsure about Trevor Megill**\
 `Closer Trevor Megill also remains out with an uncertain timetable for return.`\
 https://nytimes.com/athletic/6639121/2025/09/17/brewers-jose-quintana-injury-nick-mears/
-
-**In a 900-Year-Old Castle, Feted by a King, Trump Was in His Element**\
-`The seating chart at the state dinner for President Trump was a cross-section of the rich and the powerful hoping to get on his good side.`\
-https://nytimes.com/2025/09/17/world/europe/trump-uk-state-visit-banquet-royals.html
 

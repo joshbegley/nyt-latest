@@ -1,3 +1,7 @@
+**Blackhawks, Kaiser agree 2-year, $3.4 million extension to avoid missing camp**\
+`The Chicago Blackhawks finally closed out their offseason business with no time to spare.`\
+https://nytimes.com/athletic/6634804/2025/09/17/blackhawks-wyatt-kaiser-contract-nhl/
+
 **Meta Unveils Smart Glasses With Apps and an Artificial Intelligence Assistant**\
 `At its annual developer conference on Wednesday, Meta showed several new smart glasses, which have been a surprise hit for the company.`\
 https://nytimes.com/2025/09/17/technology/personaltech/meta-smart-glasses-ai.html
