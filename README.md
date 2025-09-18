@@ -1,3 +1,11 @@
+**In Their Own Words: Trump and Top Officials Change Tone on Free Speech**\
+`In the wake of Charlie Kirk’s assassination, the president’s pledges to guarantee free speech have been replaced by efforts to suppress — and even criminalize — what their critics have to say.`\
+https://nytimes.com/2025/09/18/us/politics/trump-free-speech.html
+
+**Everything we saw from the Blackhawks on Day 1 of training camp**\
+`From Bedard to Blashill to Brossoit, there was no shortage of storylines to follow on Chicago's first day of camp.`\
+https://nytimes.com/athletic/6641666/2025/09/18/blackhawks-training-camp-day-1-observations/
+
 **Trump and Starmer, Skirting Differences, Praise Each Other in U.K.**\
 `The Republican U.S. president and the Labour British prime minister appear to have formed a friendship, however unlikely.`\
 https://nytimes.com/2025/09/18/world/europe/trump-starmer-britain.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6641449/2025/09/18/red-wings-training-camp-todd-mcl
 **Man Utd reach Women's Champions League main draw for first time with Brann win**\
 `Elisabeth Terland's hat-trick helped Manchester United overturn a first-leg deficit and qualify for the Champions League's league phase.`\
 https://nytimes.com/athletic/6641377/2025/09/18/manchester-united-womens-champions-league-qualify/
-
-**David Letterman Says Kimmel’s Suspension Is ‘Just Not How This Works’**\
-`“We all see where this is going,” the longtime late-night host said of ABC’s move to suspend Jimmy Kimmel’s talk show after pressure from the Trump administration.`\
-https://nytimes.com/2025/09/18/arts/television/jimmy-kimmel-david-letterman-stephen-colbert.html
-
-**New York Democratic Chairman Won’t Endorse Mamdani for Mayor**\
-`The decision by Jay Jacobs, the party chairman, puts him at odds with Democratic primary voters and New York’s governor.`\
-https://nytimes.com/2025/09/18/nyregion/jay-jacobs-mamdani-hochul.html
 

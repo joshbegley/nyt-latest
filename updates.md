@@ -1,3 +1,11 @@
+**Trump and Starmer, Skirting Differences, Praise Each Other in U.K.**\
+`The Republican U.S. president and the Labour British prime minister appear to have formed a friendship, however unlikely.`\
+https://nytimes.com/2025/09/18/world/europe/trump-starmer-britain.html
+
+**Trump’s Climate Rollback Takes on a Key Scientific Finding**\
+`The federal government’s ability to regulate greenhouse gases depends on a 2009 scientific determination. The Trump administration wants to repeal it.`\
+https://nytimes.com/2025/09/18/climate/trumps-climate-rollback-takes-on-a-key-scientific-finding.html
+
 **Adams Says He Will Revisit N.Y.C. Schools’ Bathroom Gender Policy**\
 `Mayor Eric Adams’s remarks, aimed at a policy allowing students to use bathrooms that align with their gender identity, came two days after the Trump administration expressed concern over such guidelines.`\
 https://nytimes.com/2025/09/18/nyregion/adams-transgender-bathroom-schools.html
