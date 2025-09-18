@@ -1,3 +1,15 @@
+**Ben Johnson, Brian Schottenheimer not bothered by Tom Brady production access**\
+`Some NFL coaches are shrugging off concerns around Brady's role as an NFL analyst for and a minority owner of the Raiders.`\
+https://nytimes.com/athletic/6640480/2025/09/18/nfl-coaches-tom-brady-rules/
+
+**Leeds likely to be without James, Gnonto for Wolves trip**\
+`Goalkeeper Lucas Perri remains unavailable meaning Karl Darlow will start at Molineux.`\
+https://nytimes.com/athletic/6640637/2025/09/18/leeds-team-news-james-gnonto/
+
+**New York and Other States Form Health Bloc as Answer to Trump’s Policies**\
+`Northeastern governors, like their peers in the West, want to shore up public health and issue a stamp of approval for vaccines.`\
+https://nytimes.com/2025/09/18/nyregion/northeast-public-health-collaborative-trump.html
+
 **The Windup: Down to nine spots left**\
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/6640633/2025/09/18/cubs-mlb-playoffs-the-windup/
