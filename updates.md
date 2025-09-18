@@ -1,3 +1,7 @@
+**Trump Receives Royal Treatment at U.K. Banquet**\
+`President Trump was the guest of honor at a state dinner at Windsor Castle on Wednesday. The banquet table was also lined with power brokers from the worlds of technology, finance and media.`\
+https://nytimes.com/video/us/100000010406486/trump-uk-state-visit-banquet-royals.html
+
 **America and Britain Are Worlds Apart on Energy Policies, Except Nuclear**\
 `While renewable energy is broadly popular in both countries, the policies of the Trump and Starmer governments could not be more different.`\
 https://nytimes.com/2025/09/18/world/europe/uk-starmer-green-energy-nuclear.html
