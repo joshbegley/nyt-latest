@@ -1,3 +1,19 @@
+**Exxon Urges Europe to Repeal Rules to Make Companies Track Climate Pollution**\
+`Its chief executive called the E.U. regulations one part of a “very misguided effort to kill oil.” His words followed comments by Trump administration officials criticizing Europe’s climate policies.`\
+https://nytimes.com/2025/09/18/climate/exxon-woods-europe-climate-sustainability-repeal.html
+
+**‘Tax the Rich,’ French Protesters Cry, as the Wealthy Push Back on Paying More**\
+`With a budget crisis looming, a proposal for a tax on ultrahigh-wealth individuals has grass-roots support, but it adds conflict to an already fragmented political landscape.`\
+https://nytimes.com/2025/09/18/business/france-tax-protest-gabriel-zucman-billionaires.html
+
+**Melania Trump Shows Some Skin(s)**\
+`On day two of the state visit to Britain, the first lady opted for leather and suede.`\
+https://nytimes.com/2025/09/18/style/melania-trump-state-visit-leather-suede.html
+
+**Mets reliever Reed Garrett returns to injury list with elbow sprain**\
+`In 55 1/3 innings, Garrett had a 3.90 ERA with 26 walks and 64 strikeouts.`\
+https://nytimes.com/athletic/6641228/2025/09/18/mets-reed-garrett-inury-elbow/
+
 **Cool Whips**\
 `By Tanya Sichynsky`\
 https://nytimes.com/2025/09/18/dining/whipped-tofu-whipped-ricotta-and-more-whipped-recipes.html
@@ -21,16 +37,4 @@ https://nytimes.com/2025/09/18/us/politics/guatemalan-children-deportation.html
 **Young Activists Say 3 Trump Orders Violate Constitutional Rights**\
 `In a Montana courtroom, a group of young people argued that a judge should halt three of President Trump’s sweeping executive orders on climate and energy policy.`\
 https://nytimes.com/2025/09/18/climate/lighthiser-trial-climate-trump.html
-
-**Trump Administration Wields Its Full Toolbox to Bring Media to Heel**\
-`ABC’s decision to “indefinitely” suspend Jimmy Kimmel’s late-night talk show illuminates the administration’s efficacy so far.`\
-https://nytimes.com/2025/09/18/business/media/trump-kimmel-cancel-culture-free-speech.html
-
-**Sports card report: J.J. McCarthy shows risk of early hype as Kobe Bryant and Lionel Messi rise**\
-`What we learned from August sports card sales data and some recent records`\
-https://nytimes.com/athletic/6641045/2025/09/18/sports-cards-jj-mccarthy-kobe-messi/
-
-**Betting for (by) dummies: Why we're picking ... Titans!?**\
-`Two of our football experts banter about their losses and make increasingly wild picks for this week's slew of games. `\
-https://nytimes.com/athletic/6641016/2025/09/18/nfl-college-football-betting-picks-titans/
 

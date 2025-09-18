@@ -1,3 +1,19 @@
+**Exxon Urges Europe to Repeal Rules to Make Companies Track Climate Pollution**\
+`Its chief executive called the E.U. regulations one part of a “very misguided effort to kill oil.” His words followed comments by Trump administration officials criticizing Europe’s climate policies.`\
+https://nytimes.com/2025/09/18/climate/exxon-woods-europe-climate-sustainability-repeal.html
+
+**‘Tax the Rich,’ French Protesters Cry, as the Wealthy Push Back on Paying More**\
+`With a budget crisis looming, a proposal for a tax on ultrahigh-wealth individuals has grass-roots support, but it adds conflict to an already fragmented political landscape.`\
+https://nytimes.com/2025/09/18/business/france-tax-protest-gabriel-zucman-billionaires.html
+
+**Melania Trump Shows Some Skin(s)**\
+`On day two of the state visit to Britain, the first lady opted for leather and suede.`\
+https://nytimes.com/2025/09/18/style/melania-trump-state-visit-leather-suede.html
+
+**Mets reliever Reed Garrett returns to injury list with elbow sprain**\
+`In 55 1/3 innings, Garrett had a 3.90 ERA with 26 walks and 64 strikeouts.`\
+https://nytimes.com/athletic/6641228/2025/09/18/mets-reed-garrett-inury-elbow/
+
 **Cool Whips**\
 `By Tanya Sichynsky`\
 https://nytimes.com/2025/09/18/dining/whipped-tofu-whipped-ricotta-and-more-whipped-recipes.html
