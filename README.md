@@ -30,7 +30,7 @@ https://nytimes.com/2025/09/18/world/europe/us-citizenship-test.html
 `The actor stars alongside America Ferrera in a high-tension drama from the director Paul Greengrass that revisits the deadly 2018 Camp Fire.`\
 https://nytimes.com/2025/09/18/movies/the-lost-bus-review-matthew-mcconaughey.html
 
-**Sydney McLaughlin-Levrone clocks second-best 400m time ever, wins gold at worlds**\
+**Sydney McLaughlin-Levrone makes history as blazing-fast 400m wins world title**\
 `The American star, switching from the 400 hurdles to flat, flirted with the world record on the way to gold Thursday in Tokyo.`\
 https://nytimes.com/athletic/6640664/2025/09/18/sydney-mclaughlin-levrone-400-meter-gold-world-championships/
 
