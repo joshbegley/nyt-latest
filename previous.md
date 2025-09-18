@@ -1,3 +1,7 @@
+**How Laser Weapons Could Take On War Drones**\
+`Russia’s use of drone swarms in the Ukraine war has other countries worried about their own air defenses. Lara Jakes, a foreign correspondent for The New York Times, explains how some are looking at laser weapons technology to counter the drone threat.`\
+https://nytimes.com/video/world/europe/100000010380888/laser-weapons-vs-drones.html
+
 **Rifts Grow Between Netanyahu and His Security Chiefs**\
 `As Israel expands its war in Gaza, decision-making has become increasingly concentrated in the hands of one person: Prime Minister Benjamin Netanyahu.`\
 https://nytimes.com/2025/09/18/world/middleeast/israel-netanyahu-military-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/18/learning/players-fans-and-credit-card.html
 **Bookshop Cancels Event With Palestinian Author Over Community ‘Concerns’**\
 `The author, Jenan Matari, said her book launch event in New Jersey had been canceled because of her views on the war in Gaza. A local rabbi cited concerns about her social media posts.`\
 https://nytimes.com/2025/09/18/nyregion/palestinian-author-jenan-matari-event-canceled.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/09/18/crosswords/spelling-bee-forum.html
 
