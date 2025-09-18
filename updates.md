@@ -1,3 +1,7 @@
+**ESPN says 'First Take' will have 30 to 45-day tryout for a new host**\
+`Molly Qerim was negotiating about roles outside First Take, according to ESPN president. `\
+https://nytimes.com/athletic/6640670/2025/09/18/espn-first-take-host-tryout-qerim/
+
 **Trump Administration Reinstates More Difficult Citizenship Test**\
 `The Trump administration said the more complex test is the “first of many” changes to acquiring U.S. citizenship.`\
 https://nytimes.com/2025/09/18/world/europe/us-citizenship-test.html
