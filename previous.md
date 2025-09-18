@@ -1,3 +1,11 @@
+**The Windup: Down to nine spots left**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6640633/2025/09/18/cubs-mlb-playoffs-the-windup/
+
+**Two Fatally Shot at West Bank-Jordan Border Crossing**\
+`Israel’s military said the attacker came across the border in a truck transporting aid. The Allenby crossing has seen deadly violence in the past.`\
+https://nytimes.com/2025/09/18/world/middleeast/allenby-shooting-jordan-west-bank.html
+
 **Mason McTavish is a no-show at Ducks camp — where might his next contract land?**\
 `The recent spate of contract extensions given to young RFAs figure helps to frame what McTavish’s next contract could be worth.`\
 https://nytimes.com/athletic/6638853/2025/09/18/mason-mctavish-contract-ducks-camp/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/18/business/dealbook/kimmel-disney-abc.html
 **MLB playoff watch: Cubs get in, Blue Jays getting closer; bracket, clinching scenarios**\
 `Things in the AL West have shifted once again ahead of a pivotal weekend series.`\
 https://nytimes.com/athletic/6638645/2025/09/18/mlb-playoff-watch-2025-cubs-clinch/
-
-**Diplomatic Coup or Abject Groveling? U.K. Debates Trump’s Royal Welcome**\
-`Some British commentators praised the state visit as a necessary piece of realpolitik. Others criticized it as an embarrassing display for a destructive president.`\
-https://nytimes.com/2025/09/18/world/europe/uk-debates-trump-royal-welcome.html
-
-**Trump Administration Live Updates: Federal Advisory Panel to Review Childhood Vaccines**\
-``\
-https://nytimes.com/live/2025/09/18/us/trump-news
 
