@@ -1,3 +1,7 @@
+**Amid Sidney Crosby trade rumors, Penguins GM Kyle Dubas responds to Pat Brisson**\
+`"He's entitled to make the comments that he wishes," Dubas said.`\
+https://nytimes.com/athletic/6640681/2025/09/18/sidney-crosby-trade-rumors-penguins-agent-kyle-dubas-nhl/
+
 **Swiss racing driver Laura Villars, 28, announces candidacy for FIA presidency**\
 `If she officially submits her bid before the October 24 deadline, Villars will be the first woman to run for the role, per the news release.`\
 https://nytimes.com/athletic/6640650/2025/09/18/laura-villers-fia-presidency-f1/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6640664/2025/09/18/sydney-mclaughlin-levrone-400-me
 **Ben Johnson, Brian Schottenheimer not bothered by Tom Brady production access**\
 `Some NFL coaches are shrugging off concerns around Brady's role as an NFL analyst for Fox and a minority owner of the Raiders.`\
 https://nytimes.com/athletic/6640480/2025/09/18/nfl-coaches-tom-brady-rules/
-
-**Leeds likely to be without James, Gnonto for Wolves trip**\
-`Goalkeeper Lucas Perri remains unavailable meaning Karl Darlow will start at Molineux.`\
-https://nytimes.com/athletic/6640637/2025/09/18/leeds-team-news-james-gnonto/
 
