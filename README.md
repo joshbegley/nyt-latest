@@ -1,3 +1,11 @@
+**How to watch 2025 F1 Azerbaijan Grand Prix: Clinching opportunity for McLaren in Baku**\
+`McLaren’s drivers sit one-two in the championship. If McLaren locks out first and second at Baku, the constructors’ title would be sealed.`\
+https://nytimes.com/athletic/6638745/2025/09/18/f1-azerbaijan-grand-prix-odds-2025-how-to-watch/
+
+**For Gio Reyna to make USMNT's World Cup team, he'll have to be a statistical exception**\
+`There aren't really any recent historical comps to Gio Reyna that suggest a full reclamation of form and productivity are imminent`\
+https://nytimes.com/athletic/6639622/2025/09/18/gio-reyna-borussia-monchengladbach-usmnt-world-cup/
+
 **Packers' top priority vs. Browns? Contain Myles Garrett: 'He's a game wrecker'**\
 `Garrett leads the NFL through two games with six tackles for loss and is tied for the league lead with 3.5 sacks.`\
 https://nytimes.com/athletic/6639191/2025/09/18/packers-browns-myles-garrett-zach-tom/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6638868/2025/09/18/ryder-cup-host-bethpage-black-co
 **Meet the unheralded Seahawks DB who’s playing like a star**\
 `Josh Jobe entered this season with only $300,000 guaranteed, but he's been one of Seattle's best defenders through two games.`\
 https://nytimes.com/athletic/6639222/2025/09/18/josh-jobe-seahawks-defense-cornerback/
-
-**What our NFL Draft expert is watching in college football Week 4: Top prospects, key matchups**\
-`Indiana's quarterback could leap up draft boards, but scouts have been waiting to see how he does in a big-ticket matchup.`\
-https://nytimes.com/athletic/6637828/2025/09/18/nfl-draft-2026-fernando-mendoza-illinois-indiana/
-
-**The Athletic's Minor League awards: Konnor Griffin is our prospect of the year**\
-`Griffin advanced three levels in his pro debut season, improving his production at each stop along the way.`\
-https://nytimes.com/athletic/6634835/2025/09/18/minor-league-year-end-awards-2025-konnor-griffin/
 
