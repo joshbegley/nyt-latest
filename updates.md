@@ -1,3 +1,19 @@
+**7.8-Magnitude Earthquake off Russia Prompts Tsunami Advisory in Alaska**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/09/18/world/russia-earthquake-tsunami.html
+
+**Warner Accuses Trump Administration of Undermining National Security**\
+`Sen. Mark Warner, Democrat of Virginia, said cuts and firings inside the nation’s intelligence agencies were “dismantling trust in institutions that took generations to build.”`\
+https://nytimes.com/2025/09/18/us/politics/mark-warner-national-security-warning.html
+
+**What Happened in the 2024 Election? Kamala Harris Has Some Thoughts.**\
+`The new memoir by the former vice president defends her campaign and allows others to criticize Joe Biden and his team for her failure to win.`\
+https://nytimes.com/2025/09/18/books/review/107-days-kamala-harris.html
+
+**Pennsylvania Officials Identify Man Accused of Killing 3 Officers**\
+`Two other officers were injured in the shooting in York County. The suspect, a 24-year-old from Hanover, was fatally shot by the police.`\
+https://nytimes.com/2025/09/18/us/pennsylvania-suspect-officers-killed.html
+
 **In ‘107 Days,’ Kamala Harris Lays Out Her Regrets**\
 `In her book, coming out next week, she revisited her breakneck campaign, explaining her choices and outlining missteps — of hers and others. She hinted at a return to politics.`\
 https://nytimes.com/2025/09/18/us/politics/kamala-harris-book-takeaways.html

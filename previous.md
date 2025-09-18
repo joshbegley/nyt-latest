@@ -1,3 +1,19 @@
+**7.8-Magnitude Earthquake off Russia Prompts Tsunami Advisory in Alaska**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/09/18/world/russia-earthquake-tsunami.html
+
+**Warner Accuses Trump Administration of Undermining National Security**\
+`Sen. Mark Warner, Democrat of Virginia, said cuts and firings inside the nation’s intelligence agencies were “dismantling trust in institutions that took generations to build.”`\
+https://nytimes.com/2025/09/18/us/politics/mark-warner-national-security-warning.html
+
+**What Happened in the 2024 Election? Kamala Harris Has Some Thoughts.**\
+`The new memoir by the former vice president defends her campaign and allows others to criticize Joe Biden and his team for her failure to win.`\
+https://nytimes.com/2025/09/18/books/review/107-days-kamala-harris.html
+
+**Pennsylvania Officials Identify Man Accused of Killing 3 Officers**\
+`Two other officers were injured in the shooting in York County. The suspect, a 24-year-old from Hanover, was fatally shot by the police.`\
+https://nytimes.com/2025/09/18/us/pennsylvania-suspect-officers-killed.html
+
 **In ‘107 Days,’ Kamala Harris Lays Out Her Regrets**\
 `In her book, coming out next week, she revisited her breakneck campaign, explaining her choices and outlining missteps — of hers and others. She hinted at a return to politics.`\
 https://nytimes.com/2025/09/18/us/politics/kamala-harris-book-takeaways.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6635402/2025/09/18/nfl-favorites-dominating-2025-od
 **Clippers say owner was 'duped' in response to latest Kawhi Leonard deal allegations**\
 `The team addressed reporting related to Steve Ballmer's ties to the now-bankrupt environmental company.`\
 https://nytimes.com/athletic/6641165/2025/09/18/clippers-ballmer-carbon-credits-kawhi-aspiration/
-
-**8 New Books We Love This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://nytimes.com/2025/09/18/books/review/recommended-new-books.html
-
-**What’s Going On in This Picture? | Sept. 22, 2025**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2025/09/18/learning/whats-going-on-in-this-picture-sept-22-2025.html
-
-**What’s Going On in This Graph? | Oct. 1, 2025**\
-`How much is a dollar worth?`\
-https://nytimes.com/2025/09/18/learning/whats-going-on-in-this-graph-oct-1-2025.html
-
-**NWSL's Jessica Berman says she 'intends to be around' as contract nears end**\
-`Berman inherited a league rife with controversy, but she has enjoyed a relatively successful tenure since getting the job in 2022.`\
-https://nytimes.com/athletic/6641459/2025/09/18/nwsl-commissioner-jessica-berman-contract/
 
