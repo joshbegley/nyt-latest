@@ -1,3 +1,11 @@
+**Diplomatic Coup or Abject Groveling? U.K. Debates Trump’s Royal Welcome**\
+`Some British commentators praised the state visit as a necessary piece of realpolitik. Others criticized it as an embarrassing display for a destructive president.`\
+https://nytimes.com/2025/09/18/world/europe/uk-debates-trump-royal-welcome.html
+
+**Wan'Dale Robinson always knew he had more to give Giants offense: 'He can do everything'**\
+`After a historically inefficient 2024 season, Robinson is thriving in his new role, in which he is more than just an underneath target. `\
+https://nytimes.com/athletic/6638539/2025/09/18/ny-giants-wandale-robinson-russell-wilson-offense/
+
 **Trump Administration Live Updates: Federal Advisory Panel to Review Childhood Vaccines**\
 ``\
 https://nytimes.com/live/2025/09/18/us/trump-news
