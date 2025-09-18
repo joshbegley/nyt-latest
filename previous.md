@@ -1,3 +1,7 @@
+**Reds takeaways: The math is simple for playoff hopes. Just win, baby**\
+`The Reds return to Great American Ball Park needing to watch just one scoreboard — their own.`\
+https://nytimes.com/athletic/6639026/2025/09/17/reds-cardinals-takeaways-playoff-hopes-wild-card/
+
 **Rangers' Mike Sullivan reveals plan for Mika Zibanejad, discusses lineup, more**\
 `Rangers brass provided hints of answers to several questions surrounding the team ahead of the 2025-26 season.`\
 https://nytimes.com/athletic/6638734/2025/09/17/rangers-camp-mike-sullivan-mika-zibanejad-lineup/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/17/us/politics/trump-civics-education-maga.html
 **NCAA eliminates college football spring transfer portal**\
 `The committee also stopped short of ratifying the Division I Football Oversight Committee's proposal for a 10-day winter portal window.`\
 https://nytimes.com/athletic/6639008/2025/09/17/ncaa-spring-transfer-portal-eliminated/
-
-**California Judge Gets 35 Years to Life for Fatally Shooting His Wife**\
-`Jeffrey Ferguson, 74, said at his sentencing hearing that the shooting was an accident. “I wish God had taken me instead,” he said.`\
-https://nytimes.com/2025/09/17/us/california-judge-convicted-wife-murder.html
 

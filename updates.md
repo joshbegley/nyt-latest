@@ -1,3 +1,7 @@
+**Reds takeaways: The math is simple for playoff hopes. Just win, baby**\
+`The Reds return to Great American Ball Park needing to watch just one scoreboard — their own.`\
+https://nytimes.com/athletic/6639026/2025/09/17/reds-cardinals-takeaways-playoff-hopes-wild-card/
+
 **Rangers' Mike Sullivan reveals plan for Mika Zibanejad, discusses lineup, more**\
 `Rangers brass provided hints of answers to several questions surrounding the team ahead of the 2025-26 season.`\
 https://nytimes.com/athletic/6638734/2025/09/17/rangers-camp-mike-sullivan-mika-zibanejad-lineup/
