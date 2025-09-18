@@ -1,3 +1,11 @@
+**The Briefing: Newcastle 1 Barcelona 2 - Is Rashford back? Should Schar have come off sooner? Are Flick's side contenders?**\
+`The Athletic's writers analyse Newcastle's opening Champions League game of the season against Barcelona`\
+https://nytimes.com/athletic/6634286/2025/09/18/newcastle-barcelona-champions-league-analysis-rashford/
+
+**College football Week 4 projected scores: Model predicts every FBS vs. FBS game**\
+`Austin Mock's projection model has predicted point differentials and totals for every FBS vs. FBS game of college football's Week 4.`\
+https://nytimes.com/athletic/6641532/2025/09/18/college-football-week-4-projected-scores-model/
+
 **NFL Week 3 projected scores: Model predicts point spreads and totals for every game**\
 `Austin Mock's projection model predicts point spreads and point totals for all 16 NFL Week 3 games.`\
 https://nytimes.com/athletic/6641828/2025/09/18/nfl-week-3-projected-scores-model-point-spreads-totals/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/18/weather/california-rain-forecast.html
 **Oilers' Hyman out until at least November recovering from dislocated wrist**\
 `The news came as a surprise, considering the vague yet hopeful update about Hyman’s status a day earlier.`\
 https://nytimes.com/athletic/6642060/2025/09/18/oilers-zach-hyman-injury-november-wrist/
-
-**Clayton Kershaw earned this moment, and now walks away on his own terms**\
-`Kershaw flirted with retirement on numerous occasions. But ultimately he fought for the chance to close things out his way. `\
-https://nytimes.com/athletic/6642001/2025/09/18/clayton-kershaw-retirement-dodgers-2025/
-
-**Sydney McLaughlin-Levrone, in latest show of brilliance, stirs talk of unique Olympic feat**\
-`With her win in the 400-meter at the World Athletics Championships, an unheard-of double at the L.A. Olympics is more plausible than ever.`\
-https://nytimes.com/athletic/6641674/2025/09/18/sydney-mclaughlin-levrone-400-meter-world-championships-olympics-double/
 

@@ -1,3 +1,11 @@
+**The Briefing: Newcastle 1 Barcelona 2 - Is Rashford back? Should Schar have come off sooner? Are Flick's side contenders?**\
+`The Athletic's writers analyse Newcastle's opening Champions League game of the season against Barcelona`\
+https://nytimes.com/athletic/6634286/2025/09/18/newcastle-barcelona-champions-league-analysis-rashford/
+
+**College football Week 4 projected scores: Model predicts every FBS vs. FBS game**\
+`Austin Mock's projection model has predicted point differentials and totals for every FBS vs. FBS game of college football's Week 4.`\
+https://nytimes.com/athletic/6641532/2025/09/18/college-football-week-4-projected-scores-model/
+
 **NFL Week 3 projected scores: Model predicts point spreads and totals for every game**\
 `Austin Mock's projection model predicts point spreads and point totals for all 16 NFL Week 3 games.`\
 https://nytimes.com/athletic/6641828/2025/09/18/nfl-week-3-projected-scores-model-point-spreads-totals/
