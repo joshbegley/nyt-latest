@@ -1,3 +1,7 @@
+**Democrats Pitch Bill to Protect Speech Targeted by Trump**\
+`A group of House and Senate Democrats said they would introduce a measure that would bolster legal protections for people targeted by the government for speaking freely.`\
+https://nytimes.com/2025/09/18/us/politics/democrats-pitch-bill-to-protect-speech-targeted-by-trump.html
+
 **MLB mandates 'recovery period' for scouting amateur players during offseason**\
 `Citing an increase in injuries, the league will prohibit the evaluation of draft-eligible players to prevent year-round scouting.`\
 https://nytimes.com/athletic/6641387/2025/09/18/mlb-amateur-players-recovery-period-offseason/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6641367/2025/09/18/stephen-a-smith-politics-moneyca
 **Jimmy Kimmel, and Free Speech, Under Attack**\
 `Readers respond to ABC’s action pulling Mr. Kimmel’s late-night show off the air.`\
 https://nytimes.com/2025/09/18/opinion/jimmy-kimmel-free-speech.html
-
-**What Teenagers Are Saying About Lowering the Voting Age to 16**\
-`Students react to news that Britain plans to enfranchise 16- and 17-year-olds.`\
-https://nytimes.com/2025/09/18/learning/what-teenagers-are-saying-about-lowering-the-voting-age-to-16.html
 
