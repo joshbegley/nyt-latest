@@ -1,3 +1,11 @@
+**The F.J. King, Lost in 1886, Is Found in the Depths of Lake Michigan**\
+`Long rumored to be on the floor of the lake but never seen, the schooner had eluded divers and taunted storytellers for generations. It was miles off the Door Peninsula in Wisconsin.`\
+https://nytimes.com/2025/09/18/us/ghost-ship-wreckage-lake-michigan.html
+
+**Mets' Jonah Tong redeems himself, emerges as a reliable playoff option**\
+`Tong showed poise under pressure, helping the Mets secure a key win and boost playoff hopes.`\
+https://nytimes.com/athletic/6642296/2025/09/18/jonah-tong-reliable-playoff-option/
+
 **West Africans Deported by the U.S. Sue Ghana for Rights Violations**\
 `Ghana said it was taking in 14 deported migrants to help its fellow Africans. But it sent three to their country of origin, including one who said he feared for his life.`\
 https://nytimes.com/2025/09/18/world/africa/us-deportees-sue-ghana.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6641030/2025/09/18/penguins-training-camp-10-observ
 **Since Leaving Washington, Elon Musk Has Been All In on His A.I. Company**\
 `Mr. Musk spent the summer at his artificial intelligence start-up xAI, trying to match the runaway success of OpenAI. The result was chaos.`\
 https://nytimes.com/2025/09/18/technology/elon-musk-artificial-intelligence-xai.html
-
-**Texas Man Dies in Fall From Alaska Mountain Trail**\
-`Britain Pool, 32, died after falling from a steep mountain trail above Juneau, the authorities said. He and a companion, who survived the fall, were cruise ship passengers.`\
-https://nytimes.com/2025/09/18/us/alaska-hikers-dead-juneau.html
-
-**Trump Said Broadcasters Risk Losing Licenses for Criticizing Him**\
-`Also, NATO is looking for an answer to Russian drones. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2025/09/18/briefing/trump-jimmy-kimmel-russian-drones-lasers.html
 

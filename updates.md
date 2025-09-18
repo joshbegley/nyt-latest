@@ -1,3 +1,7 @@
+**West Africans Deported by the U.S. Sue Ghana for Rights Violations**\
+`Ghana said it was taking in 14 deported migrants to help its fellow Africans. But it sent three to their country of origin, including one who said he feared for his life.`\
+https://nytimes.com/2025/09/18/world/africa/us-deportees-sue-ghana.html
+
 **NWSL commissioner Jessica Berman on expansion, salary cap and player safety**\
 `The commissioner also indicated her intention to stay with the league as her current contract comes to an end`\
 https://nytimes.com/athletic/6641551/2025/09/18/nwsl-jessica-berman-salary-cap-expansion/
