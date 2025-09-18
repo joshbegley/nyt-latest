@@ -1,3 +1,11 @@
+**In ‘107 Days,’ Kamala Harris Lays Out Her Regrets**\
+`In her book, coming out next week, she revisited her breakneck campaign, explaining her choices and outlining missteps — of hers and others. She hinted at a return to politics.`\
+https://nytimes.com/2025/09/18/us/politics/kamala-harris-book-takeaways.html
+
+**What we're seeing at Wild camp: Impact of Zuccarello injury, Trenin's weight, confident Yurov, more**\
+`Hynes on what Zuccarello's injury means: "We'll have to figure out maybe some different combos and how we'll have to start the year."`\
+https://nytimes.com/athletic/6641647/2025/09/18/zuccarello-injury-trenin-yurov/
+
 **So a Bear Walks Into a Dollar Store …**\
 `It happened in New Jersey, it was no joke, and it did not end well for the bear.`\
 https://nytimes.com/2025/09/18/nyregion/nj-bear-dollar-store.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/18/learning/whats-going-on-in-this-graph-oct-1-2025.
 **NWSL's Jessica Berman says she 'intends to be around' as contract nears end**\
 `Berman inherited a league rife with controversy, but she has enjoyed a relatively successful tenure since getting the job in 2022.`\
 https://nytimes.com/athletic/6641459/2025/09/18/nwsl-commissioner-jessica-berman-contract/
-
-**'Right now, I’m here': Nick Robertson's future with the Leafs is cloudier than ever**\
-`Robertson signed a one-year contract extension this summer, but his spot in the Maple Leafs lineup remains in limbo as training camp opens.`\
-https://nytimes.com/athletic/6641253/2025/09/18/maple-leafs-nick-robertson-trade-future/
-
-**Democrats Pitch Bill to Protect Speech Targeted by Trump**\
-`A group of House and Senate Democrats said they would introduce a measure that would bolster legal protections for people targeted by the government for speaking freely.`\
-https://nytimes.com/2025/09/18/us/politics/democrats-free-speech-bill-trump.html
 
