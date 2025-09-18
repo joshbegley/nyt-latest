@@ -1,3 +1,7 @@
+**How to watch Lions at Ravens: Time, TV, streaming**\
+`Find out how to watch the Detroit Lions play the Baltimore Ravens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6639999/2025/09/18/lions-vs-ravens-stream-how-to-watch-sept-22/
+
 **How to watch Padres at Mets: Time, TV, streaming for September 18**\
 `Find out how to watch the San Diego Padres play the New York Mets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6639968/2025/09/18/padres-vs-mets-stream-how-to-watch-sept-18/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010406373/abc-jimmy-kimmel.html
 **Bayern Munich 860 Chelsea 117 - The numbers behind a naive Champions League start by Maresca's side**\
 `"In terms of experience, I think there was a huge difference," said Maresca, who backed his side to build "something special" from the loss`\
 https://nytimes.com/athletic/6639227/2025/09/18/chelsea-champions-league-bayern/
-
-**Five chances created and playing with a swagger - Wirtz shows exactly why Liverpool wanted him**\
-`The German has been taking time to adjust to life at Anfield but he was their attacking spark against Atletico Madrid`\
-https://nytimes.com/athletic/6638251/2025/09/18/florian-wirtz-liverpool-atletico/
 
