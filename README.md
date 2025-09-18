@@ -1,3 +1,11 @@
+**Sports card report: J.J. McCarthy shows risk of early hype as Kobe Bryant and Lionel Messi rise**\
+`What we learned from August sports card sales data and some recent records`\
+https://nytimes.com/athletic/6641045/2025/09/18/sports-cards-jj-mccarthy-kobe-messi/
+
+**Betting for (by) dummies: Why we're picking ... Titans!?**\
+`Two of our football experts banter about their losses and make increasingly wild picks for this week's slew of games. `\
+https://nytimes.com/athletic/6641016/2025/09/18/nfl-college-football-betting-picks-titans/
+
 **Until Saturday: Welcome to dark-horse weekend**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6641202/2025/09/18/college-football-schedule-week-4-indiana-until-saturday/
@@ -25,16 +33,4 @@ https://nytimes.com/athletic/6640929/2025/09/18/big-12-in-talks-to-stage-arizona
 **New Jersey Governor Election 2025: Latest Polls**\
 `Track the latest polls about Democrat Mikie Sherrill and Republican Jack Ciattarelli in the New Jersey gubernatorial election.`\
 https://nytimes.com/interactive/polls/new-jersey-governor-election-polls-2025.html
-
-**'Not a selfish bone in my body': Trae Young fires back at critique of his leadership**\
-`The Hawks guard posted a 12-minute video attacking Patrick Beverley after the former NBAer said Young "had not won enough to speak to me."`\
-https://nytimes.com/athletic/6640723/2025/09/18/trae-young-patrick-beverley-podcast-hawks/
-
-**In This Spanish Office, Work Is Hell. It’s Also Hilarious.**\
-`A young creative at a Madrid ad agency does her best to do the least in Beatriz Serrano’s darkly comic debut novel, “Discontent.”`\
-https://nytimes.com/2025/09/18/books/review/discontent-beatriz-serrano.html
-
-**Virginia Governor Election 2025: Latest Polls**\
-`Track the latest polls about Democrat Abigail Spanberger and Republican Winsome Earle-Sears in the Virginia gubernatorial election.`\
-https://nytimes.com/interactive/polls/virginia-governor-election-polls-2025.html
 
