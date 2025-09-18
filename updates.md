@@ -1,3 +1,11 @@
+**This Ravens TE is a chameleon. His best trick is transforming into a proud blocker**\
+`The 2022 fourth-round pick went from being a prolific pass catcher in college to embracing a new role on a stacked Baltimore offense.`\
+https://nytimes.com/athletic/6638616/2025/09/18/ravens-charlie-kolar-blocking-tight-end/
+
+**Quinshon Judkins could see uptick in carries as Browns search for offensive spark**\
+`The second-round rookie had 71 total yards (61 rushing, 10 receiving) in his NFL debut in Week 2. `\
+https://nytimes.com/athletic/6638646/2025/09/18/browns-offense-quinshon-judkins-joe-flacco/
+
 **Trump Hails Kimmel Suspension After Criticizing U.K. on Free Speech**\
 `President Trump has accused Britain of mounting a crackdown on political expression. But he welcomed the ABC network’s suspension of Jimmy Kimmel.`\
 https://nytimes.com/2025/09/18/world/europe/trump-kimmel-suspension-uk-free-speech.html
