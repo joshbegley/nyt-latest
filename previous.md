@@ -1,3 +1,11 @@
+**Jimmy Kimmel, and Free Speech, Under Attack**\
+`Readers respond to ABC’s action pulling Mr. Kimmel’s late-night show off the air.`\
+https://nytimes.com/2025/09/18/opinion/jimmy-kimmel-free-speech.html
+
+**What Teenagers Are Saying About Lowering the Voting Age to 16**\
+`Students react to news that Britain plans to enfranchise 16- and 17-year-olds.`\
+https://nytimes.com/2025/09/18/learning/what-teenagers-are-saying-about-lowering-the-voting-age-to-16.html
+
 **‘Megadoc’ Review: A Behind-the-Scenes Look at a Pricey Passion Project**\
 `This documentary by Mike Figgis about Francis Ford Coppola’s “Megalopolis” is at once expansive and intimate, and sometimes very revealing.`\
 https://nytimes.com/2025/09/18/movies/megadoc-review.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6641264/2025/09/18/bills-dolphins-week-3-nfl-brady-
 **Did Jordon Hudson skip 'Dancing with the Stars'? Plus, is model dating Sinner and Alcaraz?**\
 `It sure looks like Bill Belichick's girlfriend might have bailed on 'DWTS' after her name appeared on a Disney+ Season 34 cast list. `\
 https://nytimes.com/athletic/6639224/2025/09/18/jordon-hudson-sports-gossip-show-sinner-alcaraz/
-
-**José María Tojeira, 78, Dies; Pursued Killers of His Fellow Priests**\
-`As the Jesuit leader in Central America, he pushed for justice when six priests were shot to death in the midst of El Salvador’s civil war.`\
-https://nytimes.com/2025/09/18/world/americas/jose-maria-tojeira-dead.html
-
-**Judge Blocks Administration From Immediately Removing Guatemalan Children**\
-`Judge Timothy J. Kelly, a Trump appointee, wrote that the government had given dubious justifications for removing the children that “crumbled like a house of cards.”`\
-https://nytimes.com/2025/09/18/us/politics/guatemalan-children-deportation.html
 

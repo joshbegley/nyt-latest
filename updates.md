@@ -1,3 +1,11 @@
+**Jimmy Kimmel, and Free Speech, Under Attack**\
+`Readers respond to ABC’s action pulling Mr. Kimmel’s late-night show off the air.`\
+https://nytimes.com/2025/09/18/opinion/jimmy-kimmel-free-speech.html
+
+**What Teenagers Are Saying About Lowering the Voting Age to 16**\
+`Students react to news that Britain plans to enfranchise 16- and 17-year-olds.`\
+https://nytimes.com/2025/09/18/learning/what-teenagers-are-saying-about-lowering-the-voting-age-to-16.html
+
 **‘Megadoc’ Review: A Behind-the-Scenes Look at a Pricey Passion Project**\
 `This documentary by Mike Figgis about Francis Ford Coppola’s “Megalopolis” is at once expansive and intimate, and sometimes very revealing.`\
 https://nytimes.com/2025/09/18/movies/megadoc-review.html
