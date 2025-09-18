@@ -1,3 +1,11 @@
+**Artemi Panarin addresses expiring contract, declines comment on settlement report**\
+`Panarin enters training camp without a contract beyond 2025-26, which will be a major storyline throughout the season.`\
+https://nytimes.com/athletic/6641005/2025/09/18/rangers-artemi-panarin-settlement-contract/
+
+**Manchester United warn fans over discriminatory chanting before Chelsea game**\
+`The homophobic 'rent boy' chant, often aimed at Chelsea players and fans, could result in criminal charges and bans, the club say.`\
+https://nytimes.com/athletic/6641080/2025/09/18/manchester-united-chelsea-discriminatory-chanting/
+
 **Robert Redford, Sundance and Park City Style**\
 `How the Sundance Film Festival set in the mountains of Utah shaped what stars (and those who emulate them) wear.`\
 https://nytimes.com/2025/09/18/style/robert-redford-sundance-park-city-style.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/18/nyregion/mahmoud-khalil-deportation-order.html
 **Submit a question for Nicki Jhabvala's Washington Commanders mailbag**\
 `After a few unexpected bumps, the Commanders face some early-season questions. What are the team's most pressing concerns?`\
 https://nytimes.com/athletic/6638441/2025/09/18/commanders-mailbag-raiders-week-3-injuries/
-
-**Tracking Tropical Depression Neoguri**\
-`See the likely path and wind arrival times for Neoguri`\
-https://nytimes.com/interactive/2025/weather/neoguri-map-path-tracker.html
-
-**In Texas, Parents Fighting Vaccinations Say Their Movement Is Winning**\
-`Public health advocates hoped that the measles outbreak might persuade the reluctant to get shots. That has not turned out to be true.`\
-https://nytimes.com/2025/09/18/us/politics/vaccine-mandates-covid-measles.html
 

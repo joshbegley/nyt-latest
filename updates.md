@@ -1,3 +1,11 @@
+**Artemi Panarin addresses expiring contract, declines comment on settlement report**\
+`Panarin enters training camp without a contract beyond 2025-26, which will be a major storyline throughout the season.`\
+https://nytimes.com/athletic/6641005/2025/09/18/rangers-artemi-panarin-settlement-contract/
+
+**Manchester United warn fans over discriminatory chanting before Chelsea game**\
+`The homophobic 'rent boy' chant, often aimed at Chelsea players and fans, could result in criminal charges and bans, the club say.`\
+https://nytimes.com/athletic/6641080/2025/09/18/manchester-united-chelsea-discriminatory-chanting/
+
 **Robert Redford, Sundance and Park City Style**\
 `How the Sundance Film Festival set in the mountains of Utah shaped what stars (and those who emulate them) wear.`\
 https://nytimes.com/2025/09/18/style/robert-redford-sundance-park-city-style.html
