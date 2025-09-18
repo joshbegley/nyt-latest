@@ -1,3 +1,19 @@
+**Where Will Gazans Go?**\
+`Josh Holder of The New York Times, who has been using satellite images to track the destruction in Gaza, describes how there are few viable places to flee.`\
+https://nytimes.com/video/world/middleeast/100000010405069/where-will-gazans-go.html
+
+**Man Utd borrowed £105m from revolving credit facilities to fund summer spending**\
+`The club upgraded their revolving credit facilities to a maximum limit of £350m ($474.4m) and extended them to expire in December 2029.`\
+https://nytimes.com/athletic/6642115/2025/09/18/manchester-united-transfer-borrowing-rcf/
+
+**'A lot less NASCAR laps': Flyers note changes, expectations as camp practices begin**\
+`There’s a different feel to training camp with Rick Tocchet taking charge.`\
+https://nytimes.com/athletic/6642220/2025/09/18/flyers-camp-tocchet-tortorella/
+
+**Yohe: 10 observations from Day 1 of Penguins training camp**\
+`Dan Muse let the Penguins know who is boss on Day 1 of training camp. `\
+https://nytimes.com/athletic/6641030/2025/09/18/penguins-training-camp-10-observations/
+
 **Since Leaving Washington, Elon Musk Has Been All In on His A.I. Company**\
 `Mr. Musk spent the summer at his artificial intelligence start-up xAI, trying to match the runaway success of OpenAI. The result was chaos.`\
 https://nytimes.com/2025/09/18/technology/elon-musk-artificial-intelligence-xai.html
