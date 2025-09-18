@@ -1,7 +1,3 @@
-**In a 900-Year-Old Castle, Feted by a King, Trump Was in His Element**\
-`The seating chart at the state dinner for President Trump was a cross-section of the rich and the powerful hoping to get on his good side.`\
-https://nytimes.com/2025/09/17/world/europe/trump-uk-state-visit-banquet-royals.html
-
 **Trump Administration Announces New Civics Effort With MAGA-Aligned Groups**\
 `President Trump has long sought to imbue the nonpartisan idea of civics — the rights, responsibilities and duties of citizenship — with his politics.`\
 https://nytimes.com/2025/09/17/us/politics/trump-civics-education-maga.html
@@ -37,4 +33,8 @@ https://nytimes.com/2025/09/17/us/politics/cassidy-monorez-kennedy-vaccines-cdc.
 **MLB calls off London Series for 2026 due to scheduling conflicts**\
 `The time to turn over the field at London Stadium proved prohibitive. `\
 https://nytimes.com/athletic/6638980/2025/09/17/mlb-london-series-canceled/
+
+**NWSL's Boston Legacy secures $100 million loan for White Stadium project**\
+`The expansion team will play its inaugural 2026 season at Gillette Stadium before moving to White Stadium in 2027`\
+https://nytimes.com/athletic/6639025/2025/09/17/nwsl-boston-legacy-100-million-stadium-loan/
 
