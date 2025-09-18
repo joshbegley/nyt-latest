@@ -14,7 +14,7 @@ https://nytimes.com/video/opinion/100000010397953/i-asked-ezra-klein-if-left-win
 `My colleague Lara Jakes tells us about Russian drones and the math problem facing NATO — and one possible solution.`\
 https://nytimes.com/2025/09/18/briefing/nato-air-defense-trump-media-britain-tech-deal.html
 
-**The Briefing: Newcastle 1 Barcelona 2 - Is Rashford back? Should Schar have come off sooner? Are Flick's side contenders?**\
+**The Briefing – Newcastle 1 Barcelona 2: Is Rashford back? Should Schar have come off sooner? Are Flick's side contenders?**\
 `The Athletic's writers analyse Newcastle's opening Champions League game of the season against Barcelona`\
 https://nytimes.com/athletic/6634286/2025/09/18/newcastle-barcelona-champions-league-analysis-rashford/
 
