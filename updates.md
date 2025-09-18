@@ -1,3 +1,7 @@
+**U.S. Sues Ticketmaster Over Claims of Illegal Resale Tactics**\
+`The Federal Trade Commission and seven states sued Ticketmaster and its parent company, Live Nation, claiming they misled artists and consumers.`\
+https://nytimes.com/2025/09/18/business/ticketmaster-ftc-suit.html
+
 **Barcelona to face PSG at Montjuic following Camp Nou delays**\
 `Barca have been unable to return to Camp Nou following uncertainty around the stadium’s reconstruction project, which began in June 2023`\
 https://nytimes.com/athletic/6641484/2025/09/18/barcelona-stadium-camp-nou-montjuic-champions-league/

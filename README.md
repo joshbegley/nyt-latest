@@ -1,3 +1,7 @@
+**Marilyn Hagerty, Whose Olive Garden Review Went Viral, Dies at 99**\
+`“The chicken Alfredo ($10.95) was warm and comforting on a cold day,” she wrote from North Dakota. And suddenly the national media made her a celebrity.`\
+https://nytimes.com/2025/09/18/dining/marilyn-hagerty-dead.html
+
 **U.S. Sues Ticketmaster Over Claims of Illegal Resale Tactics**\
 `The Federal Trade Commission and seven states sued Ticketmaster and its parent company, Live Nation, claiming they misled artists and consumers.`\
 https://nytimes.com/2025/09/18/business/ticketmaster-ftc-suit.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/18/learning/what-teenagers-are-saying-about-lowering
 **‘Megadoc’ Review: A Behind-the-Scenes Look at a Pricey Passion Project**\
 `This documentary by Mike Figgis about Francis Ford Coppola’s “Megalopolis” is at once expansive and intimate, and sometimes very revealing.`\
 https://nytimes.com/2025/09/18/movies/megadoc-review.html
-
-**Exxon Urges Europe to Repeal Rules to Make Companies Track Climate Pollution**\
-`Its chief executive called the E.U. regulations one part of a “very misguided effort to kill oil.” His words followed comments by Trump administration officials criticizing Europe’s climate policies.`\
-https://nytimes.com/2025/09/18/climate/exxon-woods-europe-climate-sustainability-repeal.html
 
