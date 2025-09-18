@@ -1,3 +1,11 @@
+**Adams Says He Will Revisit N.Y.C. Schools’ Bathroom Gender Policy**\
+`Mayor Eric Adams’s remarks, aimed at a policy allowing students to use bathrooms that align with their gender identity, came two days after the Trump administration expressed concern over such guidelines.`\
+https://nytimes.com/2025/09/18/nyregion/adams-transgender-bathroom-schools.html
+
+**Clayton Kershaw, Dodgers icon, is retiring after 18 seasons**\
+`The 37-year-old announced his retirement a day ahead of what will be his 228th and final home regular-season start at Dodger Stadium.`\
+https://nytimes.com/athletic/6641402/2025/09/18/clayton-kershaw-dodgers-retirement-announcement-mlb/
+
 **Clayton Kershaw, Dodgers icon, announces retirement after 18 seasons**\
 `The 37-year-old announced his retirement a day ahead of what will be his 228th and final home regular-season start at Dodger Stadium.`\
 https://nytimes.com/athletic/6641402/2025/09/18/clayton-kershaw-dodgers-retirement-announcement-mlb/

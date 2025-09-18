@@ -1,3 +1,7 @@
+**Trump’s Climate Rollback Takes on a Key Scientific Finding**\
+`The federal government’s ability to regulate greenhouse gases depends on a 2009 scientific determination. The Trump administration wants to repeal it.`\
+https://nytimes.com/2025/09/18/climate/trumps-climate-rollback-takes-on-a-key-scientific-finding.html
+
 **Adams Says He Will Revisit N.Y.C. Schools’ Bathroom Gender Policy**\
 `Mayor Eric Adams’s remarks, aimed at a policy allowing students to use bathrooms that align with their gender identity, came two days after the Trump administration expressed concern over such guidelines.`\
 https://nytimes.com/2025/09/18/nyregion/adams-transgender-bathroom-schools.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/18/nyregion/jay-jacobs-mamdani-hochul.html
 **How to watch Storm at Aces: Game 3 Time, TV, streaming**\
 `Find out how to watch the Seattle Storm play the Las Vegas Aces, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6641903/2025/09/18/storm-vs-aces-stream-how-to-watch-sept-18/
-
-**The F.C.C. Threatened to Punish Kimmel ‘the Hard Way.’ ABC Made It Easy.**\
-`Another media company caved after pressure from a Trump official, and the chilling effect got a few degrees colder.`\
-https://nytimes.com/2025/09/18/arts/television/jimmy-kimmel.html
 
