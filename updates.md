@@ -1,3 +1,19 @@
+**Since Leaving Washington, Elon Musk Has Been All In on His A.I. Company**\
+`Mr. Musk spent the summer at his artificial intelligence start-up xAI, trying to match the runaway success of OpenAI. The result was chaos.`\
+https://nytimes.com/2025/09/18/technology/elon-musk-artificial-intelligence-xai.html
+
+**Texas Man Dies in Fall From Alaska Mountain Trail**\
+`Britain Pool, 32, died after falling from a steep mountain trail above Juneau, the authorities said. He and a companion, who survived the fall, were cruise ship passengers.`\
+https://nytimes.com/2025/09/18/us/alaska-hikers-dead-juneau.html
+
+**Trump Said Broadcasters Risk Losing Licenses for Criticizing Him**\
+`Also, NATO is looking for an answer to Russian drones. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/09/18/briefing/trump-jimmy-kimmel-russian-drones-lasers.html
+
+**Trump Administration Changes Tone on Free Speech**\
+`In the wake of the assassination of Charlie Kirk, President Trump and some of his top officials have changed their public messaging on free speech.`\
+https://nytimes.com/video/us/politics/100000010407362/trump-administration-free-speech.html
+
 **We Want Your Best Breakup Lines**\
 `For a special Modern Love project, we’re looking for your most unforgettable lines from a breakup, either delivered or received — kind, bizarre, profound, haunting or funny.`\
 https://nytimes.com/2025/09/18/style/modern-love-we-want-your-best-breakup-lines.html

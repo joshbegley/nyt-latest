@@ -1,3 +1,19 @@
+**Since Leaving Washington, Elon Musk Has Been All In on His A.I. Company**\
+`Mr. Musk spent the summer at his artificial intelligence start-up xAI, trying to match the runaway success of OpenAI. The result was chaos.`\
+https://nytimes.com/2025/09/18/technology/elon-musk-artificial-intelligence-xai.html
+
+**Texas Man Dies in Fall From Alaska Mountain Trail**\
+`Britain Pool, 32, died after falling from a steep mountain trail above Juneau, the authorities said. He and a companion, who survived the fall, were cruise ship passengers.`\
+https://nytimes.com/2025/09/18/us/alaska-hikers-dead-juneau.html
+
+**Trump Said Broadcasters Risk Losing Licenses for Criticizing Him**\
+`Also, NATO is looking for an answer to Russian drones. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/09/18/briefing/trump-jimmy-kimmel-russian-drones-lasers.html
+
+**Trump Administration Changes Tone on Free Speech**\
+`In the wake of the assassination of Charlie Kirk, President Trump and some of his top officials have changed their public messaging on free speech.`\
+https://nytimes.com/video/us/politics/100000010407362/trump-administration-free-speech.html
+
 **We Want Your Best Breakup Lines**\
 `For a special Modern Love project, we’re looking for your most unforgettable lines from a breakup, either delivered or received — kind, bizarre, profound, haunting or funny.`\
 https://nytimes.com/2025/09/18/style/modern-love-we-want-your-best-breakup-lines.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6634286/2025/09/18/newcastle-barcelona-champions-le
 **College football Week 4 projected scores: Model predicts every FBS vs. FBS game**\
 `Austin Mock's projection model has predicted point differentials and totals for every FBS vs. FBS game of college football's Week 4.`\
 https://nytimes.com/athletic/6641532/2025/09/18/college-football-week-4-projected-scores-model/
-
-**NFL Week 3 projected scores: Model predicts point spreads and totals for every game**\
-`Austin Mock's projection model predicts point spreads and point totals for all 16 NFL Week 3 games.`\
-https://nytimes.com/athletic/6641828/2025/09/18/nfl-week-3-projected-scores-model-point-spreads-totals/
-
-**11 N.Y. Officials Arrested Trying to Access ICE Detention Cells**\
-`Brad Lander, the city comptroller, was arrested again. Jumaane D. Williams, the public advocate, was among protesters detained outside.`\
-https://nytimes.com/2025/09/18/nyregion/elected-officials-arrested-ice-new-york.html
-
-**The Era of Dark Passions**\
-`Leaders across the political spectrum have figured out how easily they can motivate people with anger, fear and domination.`\
-https://nytimes.com/2025/09/18/opinion/trump-kirk-rage.html
-
-**‘Come From Away’ Will Be This Season’s Most Produced Show in the U.S.**\
-`At least 23 regional theaters are planning productions of this story of hope after the Sept. 11 terrorist attacks.`\
-https://nytimes.com/2025/09/18/theater/come-from-away-most-produced-list.html
 
