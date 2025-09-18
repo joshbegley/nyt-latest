@@ -1,3 +1,15 @@
+**Friends or Competitors? These American Tennis Stars Are Both.**\
+`Taylor Fritz, Tommy Paul, Frances Tiafoe and Reilly Opelka have been playing since their junior days. But the gloves come off once they’re on the court.`\
+https://nytimes.com/2025/09/18/sports/tennis/laver-cup-tiafoe-fritz.html
+
+**The Laver Cup Returns for the Eighth Year, Now With New Captains**\
+`Andre Agassi and Yannick Noah have replaced John McEnroe and Bjorn Borg.`\
+https://nytimes.com/2025/09/18/sports/tennis/laver-cup-andre-agassi-yannick-noah.html
+
+**Why Stephen A. Smith is moving from sports to politics talk: MoneyCall**\
+`Plus: The Tom Brady conundrum of a TV headset vs. a coaches' box headset, mega NFL TV numbers, Robert Redford as Roy Hobbs and more.`\
+https://nytimes.com/athletic/6641367/2025/09/18/stephen-a-smith-politics-moneycall/
+
 **Jimmy Kimmel, and Free Speech, Under Attack**\
 `Readers respond to ABC’s action pulling Mr. Kimmel’s late-night show off the air.`\
 https://nytimes.com/2025/09/18/opinion/jimmy-kimmel-free-speech.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/18/style/melania-trump-state-visit-leather-suede.htm
 **Mets reliever Reed Garrett returns to injury list with elbow sprain**\
 `In 55 1/3 innings, Garrett had a 3.90 ERA with 26 walks and 64 strikeouts.`\
 https://nytimes.com/athletic/6641228/2025/09/18/mets-reed-garrett-inury-elbow/
-
-**Cool Whips**\
-`By Tanya Sichynsky`\
-https://nytimes.com/2025/09/18/dining/whipped-tofu-whipped-ricotta-and-more-whipped-recipes.html
-
-**Scoop City: Two mismatches in Bills-Dolphins**\
-`Mismatches for Josh Allen and De'Von Achane, plus Brady's controversial role at FOX, Vikings' faith in Carson Wentz, tape on Packers defense`\
-https://nytimes.com/athletic/6641264/2025/09/18/bills-dolphins-week-3-nfl-brady-fox-packers-scoop-city/
-
-**Did Jordon Hudson skip 'Dancing with the Stars'? Plus, is model dating Sinner and Alcaraz?**\
-`It sure looks like Bill Belichick's girlfriend might have bailed on 'DWTS' after her name appeared on a Disney+ Season 34 cast list. `\
-https://nytimes.com/athletic/6639224/2025/09/18/jordon-hudson-sports-gossip-show-sinner-alcaraz/
 

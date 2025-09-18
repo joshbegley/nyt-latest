@@ -1,3 +1,15 @@
+**Friends or Competitors? These American Tennis Stars Are Both.**\
+`Taylor Fritz, Tommy Paul, Frances Tiafoe and Reilly Opelka have been playing since their junior days. But the gloves come off once they’re on the court.`\
+https://nytimes.com/2025/09/18/sports/tennis/laver-cup-tiafoe-fritz.html
+
+**The Laver Cup Returns for the Eighth Year, Now With New Captains**\
+`Andre Agassi and Yannick Noah have replaced John McEnroe and Bjorn Borg.`\
+https://nytimes.com/2025/09/18/sports/tennis/laver-cup-andre-agassi-yannick-noah.html
+
+**Why Stephen A. Smith is moving from sports to politics talk: MoneyCall**\
+`Plus: The Tom Brady conundrum of a TV headset vs. a coaches' box headset, mega NFL TV numbers, Robert Redford as Roy Hobbs and more.`\
+https://nytimes.com/athletic/6641367/2025/09/18/stephen-a-smith-politics-moneycall/
+
 **Jimmy Kimmel, and Free Speech, Under Attack**\
 `Readers respond to ABC’s action pulling Mr. Kimmel’s late-night show off the air.`\
 https://nytimes.com/2025/09/18/opinion/jimmy-kimmel-free-speech.html
