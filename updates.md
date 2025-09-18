@@ -1,3 +1,11 @@
+**In Their Own Words: Trump and Top Officials Change Tone on Free Speech**\
+`In the wake of Charlie Kirk’s assassination, the president’s pledges to guarantee free speech have been replaced by efforts to suppress — and even criminalize — what their critics have to say.`\
+https://nytimes.com/2025/09/18/us/politics/trump-free-speech.html
+
+**Everything we saw from the Blackhawks on Day 1 of training camp**\
+`From Bedard to Blashill to Brossoit, there was no shortage of storylines to follow on Chicago's first day of camp.`\
+https://nytimes.com/athletic/6641666/2025/09/18/blackhawks-training-camp-day-1-observations/
+
 **Trump and Starmer, Skirting Differences, Praise Each Other in U.K.**\
 `The Republican U.S. president and the Labour British prime minister appear to have formed a friendship, however unlikely.`\
 https://nytimes.com/2025/09/18/world/europe/trump-starmer-britain.html
