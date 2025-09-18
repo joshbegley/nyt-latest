@@ -1,3 +1,11 @@
+**How to watch Giants at Dodgers: Time, TV, streaming for September 18**\
+`Find out how to watch the San Francisco Giants play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6640170/2025/09/18/giants-vs-dodgers-stream-how-to-watch-sept-18/
+
+**What Dave Portnoy reveals about Fox and the Big Ten's relationship**\
+`Why does the relationship between Fox and the Big Ten feel more inimical than others conferences' media deals?`\
+https://nytimes.com/athletic/6638256/2025/09/18/big-ten-fox-barstool-sports-tv-rights-kickoff-times/
+
 **The Road**\
 `A single image captures the desperation of Palestinians in Gaza City who have once again grabbed what belongings they could and fled the fighting.`\
 https://nytimes.com/2025/09/18/world/middleeast/gaza-city-evacuation.html
