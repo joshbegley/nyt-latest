@@ -1,3 +1,7 @@
+**Shoots for the Stars**\
+`Adam Wagner gets introspective.`\
+https://nytimes.com/2025/09/17/crosswords/daily-puzzle-2025-09-18.html
+
 **Blackhawks, Kaiser agree 2-year, $3.4 million extension to avoid missing camp**\
 `The Chicago Blackhawks finally closed out their offseason business with no time to spare.`\
 https://nytimes.com/athletic/6634804/2025/09/17/blackhawks-wyatt-kaiser-contract-nhl/

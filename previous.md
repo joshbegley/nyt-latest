@@ -1,3 +1,7 @@
+**Shoots for the Stars**\
+`Adam Wagner gets introspective.`\
+https://nytimes.com/2025/09/17/crosswords/daily-puzzle-2025-09-18.html
+
 **Blackhawks, Kaiser agree 2-year, $3.4 million extension to avoid missing camp**\
 `The Chicago Blackhawks finally closed out their offseason business with no time to spare.`\
 https://nytimes.com/athletic/6634804/2025/09/17/blackhawks-wyatt-kaiser-contract-nhl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6639345/2025/09/17/cubs-vs-reds-stream-how-to-watch
 **Democrats Outline Spending Demands as Shutdown Looms**\
 `After rejecting a G.O.P.-written plan to keep federal funding flowing, Democrats released a counteroffer that would add more than $1 trillion in health spending.`\
 https://nytimes.com/2025/09/17/us/politics/democrats-spending-demands-shutdown.html
-
-**Brewers place Jose Quintana on IL, reinstate Nick Mears, remain unsure about Trevor Megill**\
-`Closer Trevor Megill also remains out with an uncertain timetable for return.`\
-https://nytimes.com/athletic/6639121/2025/09/17/brewers-jose-quintana-injury-nick-mears/
 
