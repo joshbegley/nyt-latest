@@ -1,3 +1,15 @@
+**E.P.A. Keeps Polluters on the Hook to Clean Up ‘Forever Chemicals’**\
+`The decision came despite an effort by a former industry lawyer who is now at the E.P.A. to reverse the regulation.`\
+https://nytimes.com/2025/09/18/climate/epa-pfas-forever-chemicals.html
+
+**Newark Airport Crisis Has Eased but Tech and Staffing Issues Persist**\
+`United Airlines said it had a very good summer at Newark airport. But air traffic control equipment issues and staffing shortages remained unresolved.`\
+https://nytimes.com/2025/09/18/business/newark-airport-air-traffic-control.html
+
+**Wildfire Smoke Will Kill Thousands More by 2050, Study Finds**\
+`Pollution from fires, intensified by rising temperatures, is on track to become one of America’s deadliest climate disasters.`\
+https://nytimes.com/2025/09/18/climate/wildfire-smoke-health-deaths.html
+
 **Fantasy football injuries, cheat sheet Week 3: Backup QBs take center stage**\
 `Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 3 player rankings and more.`\
 https://nytimes.com/athletic/6637184/2025/09/18/fantasy-football-injuries-cheat-sheet-week-3-backup-quarterbacks/
@@ -21,20 +33,4 @@ https://nytimes.com/2025/09/18/nyregion/zelle-chase-banking-scam.html
 **Man Dies After Becoming Unresponsive on Roller Coaster at Epic Universe**\
 `The authorities are investigating the death of the visitor to Universal’s new theme park in Orlando, which opened in May.`\
 https://nytimes.com/2025/09/18/travel/universal-ride-death-stardust-racers.html
-
-**How Patrick Mahomes is processing Chiefs' 0-2 start — and what he wants to see next**\
-`With the Chiefs off to an uncharacteristically slow start, Mahomes wants to see them prove they can take on a new role against the Giants.`\
-https://nytimes.com/athletic/6638178/2025/09/18/chiefs-patrick-mahomes-0-2-start/
-
-**Bears tight ends aren't getting involved enough. How to get more from Kmet, Loveland**\
-`The Bears are near the bottom of the league in passes thrown to their tight ends, even though their tight ends are often on the field. Why?`\
-https://nytimes.com/athletic/6638784/2025/09/18/bears-tight-ends-cole-kmet-colston-loveland/
-
-**On This Stage, It’s Bleak Being a Man**\
-`Alice Birch’s latest play offers two modish genres for the price of one: the trauma narrative and the earnest inquiry into masculinity.`\
-https://nytimes.com/2025/09/18/arts/romans-a-novel-review.html
-
-**Charlie Kirk’s Influence on His Followers Started Well Before College**\
-`Members of high school chapters of Turning Point USA mourned a conservative power broker who took them, and their political might, seriously.`\
-https://nytimes.com/2025/09/18/style/charlie-kirk-turning-point-usa-high-school.html
 
