@@ -1,3 +1,7 @@
+**France Braces for Anti-Austerity Strikes and Protests**\
+`Barely a week into the job, Prime Minister Sébastien Lecornu faces rising social unrest on top of political deadlock and financial turmoil.`\
+https://nytimes.com/2025/09/18/world/europe/france-protests-austerity.html
+
 **The New York Times International Edition in Print for Friday, Sep. 19, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/09/18/todays-new-york-times-international-edition
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/18/t-magazine/a-la-renaissance-paris.html
 **Three’s Company for Two Generations in One New England House**\
 `A mother teamed up with her daughter and son-in-law to find a home they could all live in together — but separately.`\
 https://nytimes.com/interactive/2025/09/18/realestate/rhode-island-massachusetts-multifamily-homes.html
-
-**Ezra Klein Is Worried — but Not About a Radicalized Left**\
-`‘They’re failing and rethinking nothing.’`\
-https://nytimes.com/2025/09/18/opinion/interesting-times-ross-douthat-ezra-klein.html
 
