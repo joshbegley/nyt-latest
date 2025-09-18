@@ -1,3 +1,7 @@
+**Ash Cloud Over Mount St. Helens Conjures Memories of 1980 Disaster**\
+`A hazy cloud that emerged over the active volcano was the result of high winds rather than a new eruption.`\
+https://nytimes.com/2025/09/17/us/mount-st-helens-volcanic-ash-cloud.html
+
 **Reds takeaways: The math is simple for playoff hopes. Just win, baby**\
 `The Reds return to Great American Ball Park needing to watch just one scoreboard — their own.`\
 https://nytimes.com/athletic/6639026/2025/09/17/reds-cardinals-takeaways-playoff-hopes-wild-card/
