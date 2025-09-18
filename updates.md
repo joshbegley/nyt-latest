@@ -1,3 +1,7 @@
+**Kirill Kaprizov deflects contract questions as Wild open camp: 'It’s my job to focus just on hockey'**\
+`GM Bill Guerin said that "things are fine" in negotiations with Kaprizov's agent, who was on hand for the opening day of training camp.`\
+https://nytimes.com/athletic/6641393/2025/09/18/kirill-kaprizov-wild-contract-camp/
+
 **Friends or Competitors? These American Tennis Stars Are Both.**\
 `Taylor Fritz, Tommy Paul, Frances Tiafoe and Reilly Opelka have been playing since their junior days. But the gloves come off once they’re on the court.`\
 https://nytimes.com/2025/09/18/sports/tennis/laver-cup-tiafoe-fritz.html

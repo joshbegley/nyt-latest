@@ -1,3 +1,7 @@
+**Kirill Kaprizov deflects contract questions as Wild open camp: 'It’s my job to focus just on hockey'**\
+`GM Bill Guerin said that "things are fine" in negotiations with Kaprizov's agent, who was on hand for the opening day of training camp.`\
+https://nytimes.com/athletic/6641393/2025/09/18/kirill-kaprizov-wild-contract-camp/
+
 **Friends or Competitors? These American Tennis Stars Are Both.**\
 `Taylor Fritz, Tommy Paul, Frances Tiafoe and Reilly Opelka have been playing since their junior days. But the gloves come off once they’re on the court.`\
 https://nytimes.com/2025/09/18/sports/tennis/laver-cup-tiafoe-fritz.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/18/business/france-tax-protest-gabriel-zucman-billio
 **Melania Trump Shows Some Skin(s)**\
 `On day two of the state visit to Britain, the first lady opted for leather and suede.`\
 https://nytimes.com/2025/09/18/style/melania-trump-state-visit-leather-suede.html
-
-**Mets reliever Reed Garrett returns to injury list with elbow sprain**\
-`In 55 1/3 innings, Garrett had a 3.90 ERA with 26 walks and 64 strikeouts.`\
-https://nytimes.com/athletic/6641228/2025/09/18/mets-reed-garrett-inury-elbow/
 
