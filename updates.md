@@ -1,3 +1,11 @@
+**Fed Faces No Good Options as Labor Market Wobbles While Inflation Firms**\
+`The central bank is grappling with how quickly to lower interest rates after restarting cuts on Wednesday, amid mixed economic signals and a relentless White House pressure campaign.`\
+https://nytimes.com/2025/09/18/business/fed-interest-rates-labor-inflation.html
+
+**New York and Other States Form Health Bloc as Answer to Trump’s Policies**\
+`Northeastern governors, like their peers in the West, want to shore up public health and issue approval for vaccines.`\
+https://nytimes.com/2025/09/18/nyregion/northeast-public-health-collaborative-trump.html
+
 **Liberal? Conservative? Cubs Fan? Catholics Project Many Images Onto Pope.**\
 `Unlike Francis, Leo XIV has given few clues about where he stands on issues dividing the church (though he’s definitely a White Sox guy). Followers fill in the gaps.`\
 https://nytimes.com/2025/09/18/world/asia/pope-leo-liberal-conservative.html

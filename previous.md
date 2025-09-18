@@ -1,3 +1,11 @@
+**Fed Faces No Good Options as Labor Market Wobbles While Inflation Firms**\
+`The central bank is grappling with how quickly to lower interest rates after restarting cuts on Wednesday, amid mixed economic signals and a relentless White House pressure campaign.`\
+https://nytimes.com/2025/09/18/business/fed-interest-rates-labor-inflation.html
+
+**New York and Other States Form Health Bloc as Answer to Trump’s Policies**\
+`Northeastern governors, like their peers in the West, want to shore up public health and issue approval for vaccines.`\
+https://nytimes.com/2025/09/18/nyregion/northeast-public-health-collaborative-trump.html
+
 **Liberal? Conservative? Cubs Fan? Catholics Project Many Images Onto Pope.**\
 `Unlike Francis, Leo XIV has given few clues about where he stands on issues dividing the church (though he’s definitely a White Sox guy). Followers fill in the gaps.`\
 https://nytimes.com/2025/09/18/world/asia/pope-leo-liberal-conservative.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6639651/2025/09/18/rising-fastball-mlb-the-pulse/
 **Motivating mottos can be grammatically tricky for NHL teams. Just ask the Leafs**\
 `From errors on the Stanley Cup to accidental innuendo, plenty of teams' attempts at memorable moments have gone awry.`\
 https://nytimes.com/athletic/6639645/2025/09/18/nhl-motto-errors-flyers-leafs-canucks/
-
-**The NFL's top 10 scene-stealing mascots, from a flying falcon to a jiggling blue horse**\
-`Here are our 10 picks for the most telegenic mascots in the game, plus an honorable mention for Nashville's cheerleader-eating raccoon.`\
-https://nytimes.com/athletic/6638077/2025/09/18/nfl-mascot-rankings-colts-eagles-chiefs-jaguars-texans/
-
-**Wan'Dale Robinson always knew he had more to give Giants offense: 'He can do everything'**\
-`After a historically inefficient 2024 season, Robinson is thriving in his new role, in which he is more than just an underneath target. `\
-https://nytimes.com/athletic/6638539/2025/09/18/ny-giants-wandale-robinson-russell-wilson-offense/
 
