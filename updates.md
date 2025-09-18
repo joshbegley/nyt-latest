@@ -1,3 +1,15 @@
+**Trump Administration Reinstates More Difficult Citizenship Test**\
+`The Trump administration said the more complex test is the “first of many” changes to acquiring U.S. citizenship.`\
+https://nytimes.com/2025/09/18/world/europe/us-citizenship-test.html
+
+**‘The Lost Bus’ Review: Matthew McConaughey Rides Out Disaster**\
+`The actor stars alongside America Ferrera in a high-tension drama from the director Paul Greengrass that revisits the deadly 2018 Camp Fire.`\
+https://nytimes.com/2025/09/18/movies/the-lost-bus-review-matthew-mcconaughey.html
+
+**Ben Johnson, Brian Schottenheimer not bothered by Tom Brady production access**\
+`Some NFL coaches are shrugging off concerns around Brady's role as an NFL analyst for Fox and a minority owner of the Raiders.`\
+https://nytimes.com/athletic/6640480/2025/09/18/nfl-coaches-tom-brady-rules/
+
 **Sydney McLaughlin-Levrone clocks second-best 400m time ever, wins gold at worlds**\
 `The American star, switching from the 400 hurdles to flat, flirted with the world record on the way to gold Thursday in Tokyo.`\
 https://nytimes.com/athletic/6640664/2025/09/18/sydney-mclaughlin-levrone-400-meter-gold-world-championships/

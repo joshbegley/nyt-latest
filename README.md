@@ -1,3 +1,7 @@
+**ESPN says 'First Take' will have 30 to 45-day tryout for a new host**\
+`Molly Qerim was negotiating about roles outside First Take, according to ESPN president. `\
+https://nytimes.com/athletic/6640670/2025/09/18/espn-first-take-host-tryout-qerim/
+
 **Trump Administration Reinstates More Difficult Citizenship Test**\
 `The Trump administration said the more complex test is the “first of many” changes to acquiring U.S. citizenship.`\
 https://nytimes.com/2025/09/18/world/europe/us-citizenship-test.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6638853/2025/09/18/mason-mctavish-contract-ducks-ca
 **Sharks coach Warsofsky on expectations for Celebrini, Smith and more: Q&A**\
 `Warsofsky is trying to lead the Sharks out of a difficult rebuilding project, but he's becoming known as a winner.`\
 https://nytimes.com/athletic/6633387/2025/09/18/sharks-celebrini-smith-warsofsky/
-
-**How will women's football in Football Manager 26 work?**\
-`After the scrapping of FM25, women's football will feature in FM26 when it is released in November. So how will it work?`\
-https://nytimes.com/athletic/6637616/2025/09/18/womens-football-football-manager-26-explained/
 
