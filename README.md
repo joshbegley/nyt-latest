@@ -1,3 +1,7 @@
+**Rasmus Hojlund was told he had no Manchester United future after Grimsby. Now he's back to face City with Napoli**\
+`Rasmus Hojlund is back in Manchester today to face City, this is the story of how he left United and why it didn't work out`\
+https://nytimes.com/athletic/6637217/2025/09/18/rasmus-hojlund-manchester-united-grimsby/
+
 **The Postecoglou effect is already evident at Nottingham Forest - for good and bad**\
 `Defenders attacking, fluent creative play, goals - but also set-piece vulnerability and losing a lead. This is certainly a new era at Forest`\
 https://nytimes.com/athletic/6639409/2025/09/18/nottingham-forest-swansea-postecoglou/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6639952/2025/09/18/angels-vs-brewers-stream-how-to-
 **Word of the Day: recumbent**\
 `This word has appeared in six articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/09/18/learning/word-of-the-day-recumbent.html
-
-**ABC Pulls Jimmy Kimmel’s Show**\
-`ABC said it was pulling Jimmy Kimmel’s late night show “indefinitely” after his comments about the man accused of fatally shooting the activist Charlie Kirk.`\
-https://nytimes.com/video/us/politics/100000010406373/abc-jimmy-kimmel.html
 

@@ -1,3 +1,7 @@
+**The Postecoglou effect is already evident at Nottingham Forest - for good and bad**\
+`Defenders attacking, fluent creative play, goals - but also set-piece vulnerability and losing a lead. This is certainly a new era at Forest`\
+https://nytimes.com/athletic/6639409/2025/09/18/nottingham-forest-swansea-postecoglou/
+
 **How to watch Lions at Ravens: Time, TV, streaming**\
 `Find out how to watch the Detroit Lions play the Baltimore Ravens, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6639999/2025/09/18/lions-vs-ravens-stream-how-to-watch-sept-22/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/18/learning/word-of-the-day-recumbent.html
 **ABC Pulls Jimmy Kimmel’s Show**\
 `ABC said it was pulling Jimmy Kimmel’s late night show “indefinitely” after his comments about the man accused of fatally shooting the activist Charlie Kirk.`\
 https://nytimes.com/video/us/politics/100000010406373/abc-jimmy-kimmel.html
-
-**Bayern Munich 860 Chelsea 117 - The numbers behind a naive Champions League start by Maresca's side**\
-`"In terms of experience, I think there was a huge difference," said Maresca, who backed his side to build "something special" from the loss`\
-https://nytimes.com/athletic/6639227/2025/09/18/chelsea-champions-league-bayern/
 

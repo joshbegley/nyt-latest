@@ -1,3 +1,7 @@
+**The Postecoglou effect is already evident at Nottingham Forest - for good and bad**\
+`Defenders attacking, fluent creative play, goals - but also set-piece vulnerability and losing a lead. This is certainly a new era at Forest`\
+https://nytimes.com/athletic/6639409/2025/09/18/nottingham-forest-swansea-postecoglou/
+
 **How to watch Lions at Ravens: Time, TV, streaming**\
 `Find out how to watch the Detroit Lions play the Baltimore Ravens, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6639999/2025/09/18/lions-vs-ravens-stream-how-to-watch-sept-22/
