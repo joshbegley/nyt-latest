@@ -1,40 +1,40 @@
-**France Braces for Anti-Austerity Strikes and Protests**\
-`Barely a week into the job, Prime Minister Sébastien Lecornu faces rising social unrest on top of political deadlock and financial turmoil.`\
-https://nytimes.com/2025/09/18/world/europe/france-protests-austerity.html
+**U.K. to Formally Recognize Palestinian Statehood After Trump Departs**\
+`Prime Minister Keir Starmer is expected to confirm that the British government will vote to recognize a Palestinian state hours or days after President Trump’s visit to Britain.`\
+https://nytimes.com/2025/09/18/world/europe/uk-formally-recognize-palestinian-statehood.html
 
-**The New York Times International Edition in Print for Friday, Sep. 19, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/09/18/todays-new-york-times-international-edition
+**Need a 1-handed catch? Isaac TeSlaa is your guy and the Lions are loving it**\
+`After grabbing a pair of highlight-reel catches, TeSlaa is earning more trust and more opportunities in this Detroit offense.`\
+https://nytimes.com/athletic/6639217/2025/09/18/lions-isaac-teslaa-highlight-catches/
 
-**Internet Shutdowns Hit Parts of Afghanistan Amid Talk of a Crackdown**\
-`Some provincial officials said the country’s leader instructed them to switch off Wi-Fi in their area to limit the “misuse of the internet” and diffusion of “immoral acts.”`\
-https://nytimes.com/2025/09/18/world/asia/internet-shutdowns-afghanistan.html
+**Bears tight ends aren't getting involved enough. How to get more from Kmet, Loveland**\
+`The Bears are near the bottom of the league in passes thrown to their tight ends, even though their tight ends are often on the field. Why?`\
+https://nytimes.com/athletic/6638784/2025/09/18/bears-tight-ends-cole-kmet-colston-loveland/
 
-**How to watch Giants at Dodgers: Time, TV, streaming for September 18**\
-`Find out how to watch the San Francisco Giants play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6640170/2025/09/18/giants-vs-dodgers-stream-how-to-watch-sept-18/
+**NBA offseason transactions that deserve a little more scrutiny**\
+`These moves this past summer.should have prompted more questions.`\
+https://nytimes.com/athletic/6626893/2025/09/18/nba-2025-offseaon-moves-mikal-bridges-jordan-poole/
 
-**What Dave Portnoy reveals about Fox and the Big Ten's relationship**\
-`Why does the relationship between Fox and the Big Ten feel more inimical than others conferences' media deals?`\
-https://nytimes.com/athletic/6638256/2025/09/18/big-ten-fox-barstool-sports-tv-rights-kickoff-times/
+**Panthers have legit WR1 in Tetairoa McMillan. What do they have in Xavier Legette?**\
+`Despite Legette's slow start to the season, his teammates and coaches are practicing patience. "It's not all on X," Dave Canales said.`\
+https://nytimes.com/athletic/6639050/2025/09/18/panthers-tetairoa-mcmillan-xavier-legette/
 
-**The Road**\
-`A single image captures the desperation of Palestinians in Gaza City who have once again grabbed what belongings they could and fled the fighting.`\
-https://nytimes.com/2025/09/18/world/middleeast/gaza-city-evacuation.html
+**How Cowboys' Brandon Aubrey continues making NFL kicking look easy**\
+`If the Cowboys' kicker had entrance music like baseball closers, he already has one picked out that keeps him "nice and calm."`\
+https://nytimes.com/athletic/6639608/2025/09/18/cowboys-brandon-aubrey-best-kicker/
 
-**America Darkens**\
-`After the heartache and fury of the past week, it’s good to talk.`\
-https://nytimes.com/2025/09/18/opinion/kirk-trump-bondi-vance-democrats.html
+**Dolphins at Bills on TNF: Our most unserious predictions for booth and studio shenanigans**\
+`Here are some not-so-scientific predictions for what could grace our TVs on "Thursday Night Football" in Buffalo. `\
+https://nytimes.com/athletic/6635845/2025/09/18/dolphins-bills-tnf-josh-allen-visor-hailee-steinfeld-how-to-watch/
 
-**The Dangers of the Charlie Kirk Aftermath**\
-`Frederick Douglass knew what free speech was. Why don’t we?`\
-https://nytimes.com/2025/09/18/opinion/trump-vance-bondi-douglassfree-speech.html
+**Inside Carson Wentz’s wild journey to starting for the Vikings, his childhood team**\
+`The veteran is hoping for a career rebirth after several years of journeyman backup work. Can he find success in Minnesota?`\
+https://nytimes.com/athletic/6639045/2025/09/18/carson-wentz-vikings-bengals-start/
 
-**A 100-Year-Old Parisian Cafe Gets a New Life**\
-`Plus: maximalist jewelry, textiles designed by Sheila Hicks and more recommendations.`\
-https://nytimes.com/2025/09/18/t-magazine/a-la-renaissance-paris.html
+**Saquon Barkley broke records in first Eagles season. Is there an encore in 2025?**\
+`No one has ever rushed for 2,000 yards twice. Barkley just might be the perfect candidate to do so.`\
+https://nytimes.com/athletic/6638963/2025/09/18/saquon-barkley-eagles-broken-records-first-season/
 
-**Three’s Company for Two Generations in One New England House**\
-`A mother teamed up with her daughter and son-in-law to find a home they could all live in together — but separately.`\
-https://nytimes.com/interactive/2025/09/18/realestate/rhode-island-massachusetts-multifamily-homes.html
+**Jimmy Kimmel Pulled Off Air ‘Indefinitely,’ and Former C.D.C. Head Issues Warning**\
+`Plus, smart glasses and even smarter headphones.`\
+https://nytimes.com/2025/09/18/podcasts/the-headlines/jimmy-kimmel-cdc-head-hearing.html
 
