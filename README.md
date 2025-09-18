@@ -1,3 +1,7 @@
+**Canucks training camp: New-look lines, early Pettersson impressions, more**\
+`First-year Canucks bench boss Adam Foote clearly has a vision for how he wants this team to play.`\
+https://nytimes.com/athletic/6642328/2025/09/18/canucks-training-camp-elias-pettersson-2025/
+
 **Military Helicopter Carrying 4 Soldiers Crashes in Washington State**\
 `Rescue efforts have been hampered by fire, and officials did not release information on the conditions of those aboard.`\
 https://nytimes.com/2025/09/18/us/military-helicopter-crash-washington.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6642012/2025/09/18/jimmie-ward-texans-grand-jury/
 **L.A. Kings captain Anže Kopitar will retire after 2025-26 season**\
 `Kopitar is a two-time Stanley Cup champion and the first native of Slovenia to play in the NHL.`\
 https://nytimes.com/athletic/6639669/2025/09/18/anze-kopitar-retirement-kings/
-
-**The F.J. King, Lost in 1886, Is Found in the Depths of Lake Michigan**\
-`Long rumored to be on the floor of the lake but never seen, the schooner had eluded divers and taunted storytellers for generations. It was miles off the Door Peninsula in Wisconsin.`\
-https://nytimes.com/2025/09/18/us/ghost-ship-wreckage-lake-michigan.html
 

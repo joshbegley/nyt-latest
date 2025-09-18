@@ -1,3 +1,15 @@
+**Military Helicopter Carrying 4 Soldiers Crashes in Washington State**\
+`Rescue efforts have been hampered by fire, and officials did not release information on the conditions of those aboard.`\
+https://nytimes.com/2025/09/18/us/military-helicopter-crash-washington.html
+
+**How to watch Athletics at Pirates: Time, TV, streaming for September 19**\
+`Find out how to watch the Athletics play the Pittsburgh Pirates, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6642524/2025/09/18/athletics-vs-pirates-stream-how-to-watch-sept-19/
+
+**How to watch Braves at Tigers: Time, TV, streaming for September 19**\
+`Find out how to watch the Atlanta Braves play the Detroit Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6642518/2025/09/18/braves-vs-tigers-stream-how-to-watch-sept-19/
+
 **Disney Pulled Jimmy Kimmel as Pressure Built on Multiple Fronts**\
 `The abrupt programming decision quickly morphed into a flashpoint for free speech in America under the Trump administration.`\
 https://nytimes.com/2025/09/18/business/media/disney-abc-jimmy-kimmel.html
