@@ -1,3 +1,15 @@
+**Key fantasy football questions for Week 3: Could Ashton Jeanty be a bust?**\
+`Dalton Del Don identifies 10 questions fantasy managers should be seeking answers to in Week 3, including a troubling start for A.J. Brown.`\
+https://nytimes.com/athletic/6639359/2025/09/18/fantasy-football-week-3-key-questions-rookie-rbs/
+
+**Organ Transplant Group Faces Shutdown After Safety Problems**\
+`Robert F. Kennedy Jr. is set to announce that the U.S. is firing a Miami-based organ donation coordinator, effectively closing it down — a warning to other transplant groups.`\
+https://nytimes.com/2025/09/18/us/organ-transplants-rfk-shutdown.html
+
+**Do Reptiles Have Moods, Too?**\
+`Long dismissed as unintelligent, reptiles are emerging as cognitively and emotionally complex animals. A new study involving tortoises suggests that they also possess mood states.`\
+https://nytimes.com/2025/09/18/science/reptiles-cognition-moods.html
+
 **ESPN says 'First Take' will have 30 to 45-day tryout for a new host**\
 `Molly Qerim was negotiating about roles outside First Take, according to ESPN president. `\
 https://nytimes.com/athletic/6640670/2025/09/18/espn-first-take-host-tryout-qerim/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6640637/2025/09/18/leeds-team-news-james-gnonto/
 **The Windup: Down to nine spots left**\
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/6640633/2025/09/18/cubs-mlb-playoffs-the-windup/
-
-**Two Fatally Shot at West Bank-Jordan Border Crossing**\
-`Israel’s military said the attacker came across the border in a truck transporting aid. The Allenby crossing has seen deadly violence in the past.`\
-https://nytimes.com/2025/09/18/world/middleeast/allenby-shooting-jordan-west-bank.html
-
-**Mason McTavish is a no-show at Ducks camp — where might his next contract land?**\
-`The recent spate of contract extensions given to young RFAs figure helps to frame what McTavish’s next contract could be worth.`\
-https://nytimes.com/athletic/6638853/2025/09/18/mason-mctavish-contract-ducks-camp/
-
-**Sharks coach Warsofsky on expectations for Celebrini, Smith and more: Q&A**\
-`Warsofsky is trying to lead the Sharks out of a difficult rebuilding project, but he's becoming known as a winner.`\
-https://nytimes.com/athletic/6633387/2025/09/18/sharks-celebrini-smith-warsofsky/
 

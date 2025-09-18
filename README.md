@@ -1,3 +1,7 @@
+**Swiss racing driver Laura Villars, 28, announces candidacy for FIA presidency**\
+`If she officially submits her bid before the October 24 deadline, Villars will be the first woman to run for the role, per the news release.`\
+https://nytimes.com/athletic/6640650/2025/09/18/laura-villers-fia-presidency-f1/
+
 **Key fantasy football questions for Week 3: Could Ashton Jeanty be a bust?**\
 `Dalton Del Don identifies 10 questions fantasy managers should be seeking answers to in Week 3, including a troubling start for A.J. Brown.`\
 https://nytimes.com/athletic/6639359/2025/09/18/fantasy-football-week-3-key-questions-rookie-rbs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6640480/2025/09/18/nfl-coaches-tom-brady-rules/
 **Leeds likely to be without James, Gnonto for Wolves trip**\
 `Goalkeeper Lucas Perri remains unavailable meaning Karl Darlow will start at Molineux.`\
 https://nytimes.com/athletic/6640637/2025/09/18/leeds-team-news-james-gnonto/
-
-**The Windup: Down to nine spots left**\
-`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
-https://nytimes.com/athletic/6640633/2025/09/18/cubs-mlb-playoffs-the-windup/
 
