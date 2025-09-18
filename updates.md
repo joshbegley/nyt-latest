@@ -1,3 +1,7 @@
+**Barcelona to face PSG at Montjuic following Camp Nou delays**\
+`Barca have been unable to return to Camp Nou following uncertainty around the stadium’s reconstruction project, which began in June 2023`\
+https://nytimes.com/athletic/6641484/2025/09/18/barcelona-stadium-camp-nou-montjuic-champions-league/
+
 **Kirill Kaprizov deflects contract questions as Wild open camp: 'It’s my job to focus just on hockey'**\
 `GM Bill Guerin said that "things are fine" in negotiations with Kaprizov's agent, who was on hand for the opening day of training camp.`\
 https://nytimes.com/athletic/6641393/2025/09/18/kirill-kaprizov-wild-contract-camp/
