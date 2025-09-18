@@ -1,3 +1,7 @@
+**Man Utd reach Women's Champions League main draw for first time with Brann win**\
+`Elisabeth Terland's hat-trick helped Manchester United overturn a first-leg deficit and qualify for the Champions League's league phase.`\
+https://nytimes.com/athletic/6641377/2025/09/18/manchester-united-womens-champions-league-qualify/
+
 **David Letterman Says Kimmel’s Suspension Is ‘Just Not How This Works’**\
 `“We all see where this is going,” the longtime late-night host said of ABC’s move to suspend Jimmy Kimmel’s talk show after pressure from the Trump administration.`\
 https://nytimes.com/2025/09/18/arts/television/jimmy-kimmel-david-letterman-stephen-colbert.html

@@ -1,3 +1,19 @@
+**Clayton Kershaw, Dodgers icon, announces retirement after 18 seasons**\
+`The 37-year-old announced his retirement a day ahead of what will be his 228th and final home regular-season start at Dodger Stadium.`\
+https://nytimes.com/athletic/6641402/2025/09/18/clayton-kershaw-dodgers-retirement-announcement-mlb/
+
+**Erika Kirk Takes a Leadership Role in Turning Point USA**\
+`After years spent emphasizing family life in the public eye, she will now run the group her husband built.`\
+https://nytimes.com/2025/09/18/style/erika-kirk-turning-point-usa.html
+
+**Lunching Like a Flower Child in the East Village**\
+`Becky Hughes returns to answer three reader questions and solve a Grand Central Oyster Bar mystery.`\
+https://nytimes.com/2025/09/18/dining/lunching-like-a-flower-child-in-the-east-village.html
+
+**What I'm seeing at Red Wings camp: Todd McLellan sets competitive Day 1 tone**\
+`The Red Wings hit the ground running on Day 1 of training camp with a competitive scrimmage that set the tone for their week.`\
+https://nytimes.com/athletic/6641449/2025/09/18/red-wings-training-camp-todd-mclellan/
+
 **Man Utd reach Women's Champions League main draw for first time with Brann win**\
 `Elisabeth Terland's hat-trick helped Manchester United overturn a first-leg deficit and qualify for the Champions League's league phase.`\
 https://nytimes.com/athletic/6641377/2025/09/18/manchester-united-womens-champions-league-qualify/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/09/18/arts/television/jimmy-kimmel.html
 **Man Utd co-owner Ratcliffe flies in for Amorim talks**\
 `The team’s form was on the agenda and Ratcliffe was seeking to work through issues facing Amorim at the club.`\
 https://nytimes.com/athletic/6641776/2025/09/18/manchester-united-ruben-amorim-jim-ratcliffe/
-
-**Can Trump Actually Designate Antifa a Terrorist Group? Here Are the Facts.**\
-`The president made the same declaration in 2020, but nothing came of it. His new declaration came amid broader threats against liberals after the Charlie Kirk killing.`\
-https://nytimes.com/2025/09/18/us/politics/trump-antifa-terrorist-group.html
-
-**Sabres training camp: Line combinations, Geertsen's role, Tuch speaks**\
-`Lindy Ruff had most of his NHL team together skating in the first practice group at Sabres training camp.`\
-https://nytimes.com/athletic/6641658/2025/09/18/sabres-training-camp-lines-tuch/
-
-**7.8-Magnitude Earthquake Off Russia Prompts Tsunami Advisory in Alaska**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/09/18/world/russia-earthquake-tsunami.html
-
-**Warner Accuses Trump Administration of Undermining National Security**\
-`Sen. Mark Warner, Democrat of Virginia, said cuts and firings inside the nation’s intelligence agencies were “dismantling trust in institutions that took generations to build.”`\
-https://nytimes.com/2025/09/18/us/politics/mark-warner-national-security-warning.html
 
