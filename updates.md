@@ -1,3 +1,7 @@
+**How to watch Lions at Ravens: Time, TV, streaming**\
+`Find out how to watch the Detroit Lions play the Baltimore Ravens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6639999/2025/09/18/lions-vs-ravens-stream-how-to-watch-sept-22/
+
 **How to watch Padres at Mets: Time, TV, streaming for September 18**\
 `Find out how to watch the San Diego Padres play the New York Mets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6639968/2025/09/18/padres-vs-mets-stream-how-to-watch-sept-18/
