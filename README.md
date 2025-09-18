@@ -1,3 +1,7 @@
+**Artemi Panarin addresses expiring contract, declines comment on settlement report**\
+`Panarin enters training camp without a contract beyond 2025-26, which will be a major storyline throughout the season.`\
+https://nytimes.com/athletic/6641005/2025/09/18/rangers-artemi-panarin-settlement-contract/
+
 **Manchester United warn fans over discriminatory chanting before Chelsea game**\
 `The homophobic 'rent boy' chant, often aimed at Chelsea players and fans, could result in criminal charges and bans, the club say.`\
 https://nytimes.com/athletic/6641080/2025/09/18/manchester-united-chelsea-discriminatory-chanting/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/18/nyregion/mahmoud-khalil-deportation-order.html
 **Submit a question for Nicki Jhabvala's Washington Commanders mailbag**\
 `After a few unexpected bumps, the Commanders face some early-season questions. What are the team's most pressing concerns?`\
 https://nytimes.com/athletic/6638441/2025/09/18/commanders-mailbag-raiders-week-3-injuries/
-
-**Tracking Tropical Depression Neoguri**\
-`See the likely path and wind arrival times for Neoguri`\
-https://nytimes.com/interactive/2025/weather/neoguri-map-path-tracker.html
 
