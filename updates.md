@@ -1,3 +1,7 @@
+**Sydney McLaughlin-Levrone makes history as blazing-fast 400m wins world title**\
+`The American star, switching from the 400 hurdles to flat, flirted with the world record on the way to gold Thursday in Tokyo.`\
+https://nytimes.com/athletic/6640664/2025/09/18/sydney-mclaughlin-levrone-400-meter-gold-world-championships/
+
 **Amid Sidney Crosby trade rumors, Penguins GM Kyle Dubas responds to Pat Brisson**\
 `"He's entitled to make the comments that he wishes," Dubas said.`\
 https://nytimes.com/athletic/6640681/2025/09/18/sidney-crosby-trade-rumors-penguins-agent-kyle-dubas-nhl/
