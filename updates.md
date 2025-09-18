@@ -1,3 +1,19 @@
+**Rangers' Mike Sullivan reveals plan for Mika Zibanejad, discusses lineup, more**\
+`Rangers brass provided hints of answers to several questions surrounding the team ahead of the 2025-26 season.`\
+https://nytimes.com/athletic/6638734/2025/09/17/rangers-camp-mike-sullivan-mika-zibanejad-lineup/
+
+**How to watch Athletics at Red Sox: Time, TV, streaming for September 18**\
+`Find out how to watch the Athletics play the Boston Red Sox, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6639349/2025/09/17/athletics-vs-red-sox-stream-how-to-watch-sept-18/
+
+**How to watch Guardians at Tigers: Time, TV, streaming for September 18**\
+`Find out how to watch the Cleveland Guardians play the Detroit Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6639347/2025/09/17/guardians-vs-tigers-stream-how-to-watch-sept-18/
+
+**How to watch Cubs at Reds: Time, TV, streaming for September 18**\
+`Find out how to watch the Chicago Cubs play the Cincinnati Reds, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6639345/2025/09/17/cubs-vs-reds-stream-how-to-watch-sept-18/
+
 **Democrats Outline Spending Demands as Shutdown Looms**\
 `After rejecting a G.O.P.-written plan to keep federal funding flowing, Democrats released a counteroffer that would add more than $1 trillion in health spending.`\
 https://nytimes.com/2025/09/17/us/politics/democrats-spending-demands-shutdown.html
