@@ -1,3 +1,7 @@
+**Will Breanna Stewart's limitations spell doom for New York Liberty's repeat hopes?**\
+`The Liberty will try to stave off elimination at Phoenix in Friday's Game 3 to move onto the semifinals. `\
+https://nytimes.com/athletic/6639774/2025/09/17/breanna-stewart-injury-game-3-new-york-liberty/
+
 **Breaking down where the Mets stand in wild-card race after missed opportunity**\
 `The Mets came within inches of a signature moment Wednesday night. Instead, the NL wild-card race is as tight as ever.`\
 https://nytimes.com/athletic/6639657/2025/09/17/mets-nl-wild-card-race-padres/

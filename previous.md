@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6639657/2025/09/17/mets-nl-wild-card-race-padres/
 
 **Will Breanna Stewart's limitations spell doom for New York Liberty's repeat hopes?**\
-`The Liberty will try to stave off elimination at Phoenix in Game 3 to move onto the semifinals. `\
+`The Liberty will try to stave off elimination at Phoenix in Friday's Game 3 to move onto the semifinals. `\
 https://nytimes.com/athletic/6639774/2025/09/17/breanna-stewart-injury-game-3-new-york-liberty/
 
 **Reactions to ABC’s Pulling of ‘Kimmel’ Reflect America’s Partisan Divide**\
