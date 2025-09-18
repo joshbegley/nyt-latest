@@ -1,3 +1,11 @@
+**Democrats Outline Spending Demands as Shutdown Looms**\
+`After rejecting a G.O.P.-written plan to keep federal funding flowing, Democrats released a counteroffer that would add more than $1 trillion in health spending.`\
+https://nytimes.com/2025/09/17/us/politics/democrats-spending-demands-shutdown.html
+
+**Brewers place Jose Quintana on IL, reinstate Nick Mears, remain unsure about Trevor Megill**\
+`Closer Trevor Megill also remains out with an uncertain timetable for return.`\
+https://nytimes.com/athletic/6639121/2025/09/17/brewers-jose-quintana-injury-nick-mears/
+
 **In a 900-Year-Old Castle, Feted by a King, Trump Was in His Element**\
 `The seating chart at the state dinner for President Trump was a cross-section of the rich and the powerful hoping to get on his good side.`\
 https://nytimes.com/2025/09/17/world/europe/trump-uk-state-visit-banquet-royals.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6639028/2025/09/17/chicago-cubs-national-league-pla
 **Mayor Adams Joins Growing Call to Ban Carriage Horses in New York City**\
 `Mayor Eric Adams’s declaration of support for eliminating the distinctive vehicles from Central Park follows a similar move by the group that runs the park.`\
 https://nytimes.com/2025/09/17/nyregion/eric-adams-carriage-horse-ban.html
-
-**How Vaccines Are Revealing Cracks in Trump’s G.O.P.**\
-`Some Republicans are starting to worry that the issue of health care could cost them politically.`\
-https://nytimes.com/2025/09/17/us/politics/cassidy-monorez-kennedy-vaccines-cdc.html
-
-**MLB calls off London Series for 2026 due to scheduling conflicts**\
-`The time to turn over the field at London Stadium proved prohibitive. `\
-https://nytimes.com/athletic/6638980/2025/09/17/mlb-london-series-canceled/
 
