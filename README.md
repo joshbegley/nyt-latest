@@ -1,3 +1,11 @@
+**This Ravens TE is a chameleon. His best trick is transforming into a proud blocker**\
+`The 2022 fourth-round pick went from being a prolific pass catcher in college to embracing a new role on a stacked Baltimore offense.`\
+https://nytimes.com/athletic/6638616/2025/09/18/ravens-charlie-kolar-blocking-tight-end/
+
+**Quinshon Judkins could see uptick in carries as Browns search for offensive spark**\
+`The second-round rookie had 71 total yards (61 rushing, 10 receiving) in his NFL debut in Week 2. `\
+https://nytimes.com/athletic/6638646/2025/09/18/browns-offense-quinshon-judkins-joe-flacco/
+
 **Trump Hails Kimmel Suspension After Criticizing U.K. on Free Speech**\
 `President Trump has accused Britain of mounting a crackdown on political expression. But he welcomed the ABC network’s suspension of Jimmy Kimmel.`\
 https://nytimes.com/2025/09/18/world/europe/trump-kimmel-suspension-uk-free-speech.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6636664/2025/09/18/jose-mourinho-benfica-manager/
 **Breaking down all 73 hopefuls on the Maple Leafs training camp roster**\
 `In just 17 days, the Leafs must whittle down their list from 73 players to a 23-man NHL roster.`\
 https://nytimes.com/athletic/6638274/2025/09/18/maple-leafs-training-camp-roster-breakdown-2025/
-
-**Why the Bruins' pick of a No. 2 center means so much in 2025-26**\
-`Zacha? Mittelstadt? Poitras? Who the Bruins choose will say a lot about their short- and long-term plans.`\
-https://nytimes.com/athletic/6638284/2025/09/18/bruins-center-zacha-mittelstadt-poitras/
-
-**U.K. to Formally Recognize Palestinian Statehood After Trump Departs**\
-`Prime Minister Keir Starmer is expected to confirm that the British government will vote to recognize a Palestinian state hours or days after President Trump’s visit to Britain.`\
-https://nytimes.com/2025/09/18/world/europe/uk-formally-recognize-palestinian-statehood.html
 
