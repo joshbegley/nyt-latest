@@ -1,3 +1,11 @@
+**Disney Pulled Jimmy Kimmel as Pressure Built on Multiple Fronts**\
+`The abrupt programming decision quickly morphed into a flashpoint for free speech in America under the Trump administration.`\
+https://nytimes.com/2025/09/18/business/media/disney-abc-jimmy-kimmel.html
+
+**Trump Has Threatened Broadcast Licenses. Here’s How They Work.**\
+`The Federal Communications Commission gives out licenses to TV stations to broadcast over radio frequencies and approves major telecom and media deals.`\
+https://nytimes.com/2025/09/18/us/politics/trump-broadcast-licenses-fcc.html
+
 **I Once Talked to Robert Redford About What Happens When We Die**\
 `On the set of “All Is Lost,” we sat together in a deflating life raft. That’s when I realized neither of us was prepared for the conversation we were about to have.`\
 https://nytimes.com/2025/09/18/opinion/robert-redford-death-movies.html

@@ -1,3 +1,15 @@
+**Military Helicopter Carrying 4 Soldiers Crashes in Washington State**\
+`Rescue efforts have been hampered by fire, and officials did not release information on the conditions of those aboard.`\
+https://nytimes.com/2025/09/18/us/military-helicopter-crash-washington.html
+
+**How to watch Athletics at Pirates: Time, TV, streaming for September 19**\
+`Find out how to watch the Athletics play the Pittsburgh Pirates, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6642524/2025/09/18/athletics-vs-pirates-stream-how-to-watch-sept-19/
+
+**How to watch Braves at Tigers: Time, TV, streaming for September 19**\
+`Find out how to watch the Atlanta Braves play the Detroit Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6642518/2025/09/18/braves-vs-tigers-stream-how-to-watch-sept-19/
+
 **Disney Pulled Jimmy Kimmel as Pressure Built on Multiple Fronts**\
 `The abrupt programming decision quickly morphed into a flashpoint for free speech in America under the Trump administration.`\
 https://nytimes.com/2025/09/18/business/media/disney-abc-jimmy-kimmel.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6639669/2025/09/18/anze-kopitar-retirement-kings/
 **The F.J. King, Lost in 1886, Is Found in the Depths of Lake Michigan**\
 `Long rumored to be on the floor of the lake but never seen, the schooner had eluded divers and taunted storytellers for generations. It was miles off the Door Peninsula in Wisconsin.`\
 https://nytimes.com/2025/09/18/us/ghost-ship-wreckage-lake-michigan.html
-
-**Mets' Jonah Tong redeems himself, emerges as an intriguing playoff option**\
-`Tong showed poise under pressure, helping the Mets secure a key win and boost playoff hopes.`\
-https://nytimes.com/athletic/6642296/2025/09/18/jonah-tong-intriguing-playoff-option/
-
-**West Africans Deported by the U.S. Sue Ghana for Rights Violations**\
-`Ghana said it was taking in 14 deported migrants to help its fellow Africans. But it sent three to their country of origin, including one who said he feared for his life.`\
-https://nytimes.com/2025/09/18/world/africa/us-deportees-sue-ghana.html
-
-**NWSL commissioner Jessica Berman on expansion, salary cap and player safety**\
-`The commissioner also indicated her intention to stay with the league as her current contract comes to an end`\
-https://nytimes.com/athletic/6641551/2025/09/18/nwsl-jessica-berman-salary-cap-expansion/
 
