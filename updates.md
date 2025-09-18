@@ -1,3 +1,11 @@
+**The Business Decision Behind Taking Jimmy Kimmel Off Air**\
+`Disney’s abrupt move to suspend the late-night host came after political pushback — and concerns about the media company’s relations with affiliate owners.`\
+https://nytimes.com/2025/09/18/business/dealbook/kimmel-disney-abc.html
+
+**MLB playoff watch: Cubs get in, Blue Jays getting closer; bracket, clinching scenarios**\
+`Things in the AL West have shifted once again ahead of a pivotal weekend series.`\
+https://nytimes.com/athletic/6638645/2025/09/18/mlb-playoff-watch-2025-cubs-clinch/
+
 **Diplomatic Coup or Abject Groveling? U.K. Debates Trump’s Royal Welcome**\
 `Some British commentators praised the state visit as a necessary piece of realpolitik. Others criticized it as an embarrassing display for a destructive president.`\
 https://nytimes.com/2025/09/18/world/europe/uk-debates-trump-royal-welcome.html
