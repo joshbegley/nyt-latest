@@ -1,3 +1,11 @@
+**We Want Your Best Breakup Lines**\
+`For a special Modern Love project, we’re looking for your most unforgettable lines from a breakup, either delivered or received — kind, bizarre, profound, haunting or funny.`\
+https://nytimes.com/2025/09/18/style/modern-love-we-want-your-best-breakup-lines.html
+
+**When It Comes to the Left, Ezra Klein Is Frustrated**\
+`The stakes are high. But why aren’t democrats acting like there’s a five alarm fire? On the latest episode of Interesting Times, NYT Opinion columnist Ezra Klein talks about how political inaction is the real reason to despair.`\
+https://nytimes.com/video/opinion/100000010407682/when-it-comes-to-the-left-ezra-klein-is-frustrated.html
+
 **I Asked Ezra Klein if Left-Wing Despair Is a Problem**\
 `Do despair and anxiety lead to political violence? On “Interesting Times,” Ezra Klein explains why he’s worried that violence is becoming contagious.`\
 https://nytimes.com/video/opinion/100000010397953/i-asked-ezra-klein-if-left-wing-despair-is-a-problem.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/18/opinion/trump-kirk-rage.html
 **‘Come From Away’ Will Be This Season’s Most Produced Show in the U.S.**\
 `At least 23 regional theaters are planning productions of this story of hope after the Sept. 11 terrorist attacks.`\
 https://nytimes.com/2025/09/18/theater/come-from-away-most-produced-list.html
-
-**Rangers captain J.T. Miller ushers in 'No B.S.' era in New York**\
-`Less than eight months after returning to the team that drafted him, Miller has been thrust into the spotlight as its undisputed leader.`\
-https://nytimes.com/athletic/6641364/2025/09/18/new-york-rangers-jt-miller-captain/
-
-**The Briefing – Manchester City 2 Napoli 0: Another Haaland record, De Bruyne's brief return, and Doku's quick feet**\
-`Pep Guardiola's side opened their Champions League campaign with a comfortable win against the 10 men of Napoli at the Etihad stadium`\
-https://nytimes.com/athletic/6634285/2025/09/18/haaland-manchester-city-napoli-doku-champions/
 

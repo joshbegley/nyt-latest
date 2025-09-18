@@ -1,3 +1,15 @@
+**I Asked Ezra Klein if Left-Wing Despair Is a Problem**\
+`Do despair and anxiety lead to political violence? On “Interesting Times,” Ezra Klein explains why he’s worried that violence is becoming contagious.`\
+https://nytimes.com/video/opinion/100000010397953/i-asked-ezra-klein-if-left-wing-despair-is-a-problem.html
+
+**Drones vs. Lasers**\
+`My colleague Lara Jakes tells us about Russian drones and the math problem facing NATO — and one possible solution.`\
+https://nytimes.com/2025/09/18/briefing/nato-air-defense-trump-media-britain-tech-deal.html
+
+**11 N.Y. Officials Arrested Trying to Access ICE Detention Cells**\
+`Brad Lander, the city comptroller, was arrested again. Jumaane D. Williams, the public advocate, was among protesters detained outside.`\
+https://nytimes.com/2025/09/18/nyregion/elected-officials-arrested-ice-new-york.html
+
 **The Briefing: Newcastle 1 Barcelona 2 - Is Rashford back? Should Schar have come off sooner? Are Flick's side contenders?**\
 `The Athletic's writers analyse Newcastle's opening Champions League game of the season against Barcelona`\
 https://nytimes.com/athletic/6634286/2025/09/18/newcastle-barcelona-champions-league-analysis-rashford/
