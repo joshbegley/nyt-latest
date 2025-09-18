@@ -1,3 +1,7 @@
+**Texas Man Is Charged With Making Threats Against Mamdani**\
+`The arrest of a man accused of targeting Zohran Mamdani, the Democratic mayoral nominee in New York City, came during an extraordinarily tense time for public officials in the United States.`\
+https://nytimes.com/2025/09/18/nyregion/zohran-mamdani-threat-nyc-mayor.html
+
 **I.R.S. Official Sues the Agency, Saying It Leaked Private Data to News Sites**\
 `Holly Paz was among officials scrutinizing tax shelters before she was placed on leave and Fox News reported she had been fired.`\
 https://nytimes.com/2025/09/18/business/irs-lawsuit-holly-paz-fox-news.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6640710/2025/09/18/washington-nationals-front-offic
 **How Our New Game, Pips, Is Made**\
 `The Games editor shows us how all of the pieces fell into place.`\
 https://nytimes.com/2025/09/18/crosswords/pips-new-game.html
-
-**Amid Sidney Crosby trade rumors, Penguins GM Kyle Dubas responds to Pat Brisson**\
-`"He's entitled to make the comments that he wishes," Dubas said.`\
-https://nytimes.com/athletic/6640681/2025/09/18/sidney-crosby-trade-rumors-penguins-agent-kyle-dubas-nhl/
 

@@ -1,3 +1,7 @@
+**Texas Man Is Charged With Making Threats Against Mamdani**\
+`The arrest of a man accused of targeting Zohran Mamdani, the Democratic mayoral nominee in New York City, came during an extraordinarily tense time for public officials in the United States.`\
+https://nytimes.com/2025/09/18/nyregion/zohran-mamdani-threat-nyc-mayor.html
+
 **I.R.S. Official Sues the Agency, Saying It Leaked Private Data to News Sites**\
 `Holly Paz was among officials scrutinizing tax shelters before she was placed on leave and Fox News reported she had been fired.`\
 https://nytimes.com/2025/09/18/business/irs-lawsuit-holly-paz-fox-news.html
