@@ -1,3 +1,15 @@
+**E.P.A. Keeps Polluters on the Hook to Clean Up ‘Forever Chemicals’**\
+`The decision came despite an effort by a former industry lawyer who is now at the E.P.A. to reverse the regulation.`\
+https://nytimes.com/2025/09/18/climate/epa-pfas-forever-chemicals.html
+
+**Newark Airport Crisis Has Eased but Tech and Staffing Issues Persist**\
+`United Airlines said it had a very good summer at Newark airport. But air traffic control equipment issues and staffing shortages remained unresolved.`\
+https://nytimes.com/2025/09/18/business/newark-airport-air-traffic-control.html
+
+**Wildfire Smoke Will Kill Thousands More by 2050, Study Finds**\
+`Pollution from fires, intensified by rising temperatures, is on track to become one of America’s deadliest climate disasters.`\
+https://nytimes.com/2025/09/18/climate/wildfire-smoke-health-deaths.html
+
 **Fantasy football injuries, cheat sheet Week 3: Backup QBs take center stage**\
 `Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 3 player rankings and more.`\
 https://nytimes.com/athletic/6637184/2025/09/18/fantasy-football-injuries-cheat-sheet-week-3-backup-quarterbacks/
