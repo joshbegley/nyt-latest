@@ -1,40 +1,40 @@
-**This Ravens TE is a chameleon. His best trick is transforming into a proud blocker**\
-`The 2022 fourth-round pick went from being a prolific pass catcher in college to embracing a new role on a stacked Baltimore offense.`\
-https://nytimes.com/athletic/6638616/2025/09/18/ravens-charlie-kolar-blocking-tight-end/
+**Packers' top priority vs. Browns? Contain Myles Garrett: 'He's a game wrecker'**\
+`Garrett leads the NFL through two games with six tackles for loss and is tied for the league lead with 3.5 sacks.`\
+https://nytimes.com/athletic/6639191/2025/09/18/packers-browns-myles-garrett-zach-tom/
 
-**Quinshon Judkins could see uptick in carries as Browns search for offensive spark**\
-`The second-round rookie had 71 total yards (61 rushing, 10 receiving) in his NFL debut in Week 2. `\
-https://nytimes.com/athletic/6638646/2025/09/18/browns-offense-quinshon-judkins-joe-flacco/
+**49ers' deep rookie class keeps getting better, as Connor Colby steps into starting role**\
+`Colby is well ahead of the curve for a seventh-round pick, and he's just one of several unheralded rookies contributing for the Niners.`\
+https://nytimes.com/athletic/6638870/2025/09/18/49ers-rookies-connor-colby-starting/
 
-**Trump Hails Kimmel Suspension After Criticizing U.K. on Free Speech**\
-`President Trump has accused Britain of mounting a crackdown on political expression. But he welcomed the ABC network’s suspension of Jimmy Kimmel.`\
-https://nytimes.com/2025/09/18/world/europe/trump-kimmel-suspension-uk-free-speech.html
+**Dodger Details: Blake Snell's moment, the Ohtani outfield hypothetical and more**\
+`Dodgers 5, Phillies 0 was the night where Snell showed what Snell can be.`\
+https://nytimes.com/athletic/6639929/2025/09/18/dodgers-phillies-blake-snell-ohtani/
 
-**Longtime Putin Aide Who Opposed Ukraine War Is Granted Rare Resignation**\
-`Dmitri N. Kozak’s departure is one of the few known splinters in President Vladimir V. Putin’s inner circle since the start of his invasion of Ukraine.`\
-https://nytimes.com/2025/09/18/world/europe/russia-putin-kozak-resigns.html
+**Mitch Marner is gone. Why his departure looms over everything for Maple Leafs**\
+`Marner may be gone, but his shadow will linger, likely all season — even if the team says otherwise.`\
+https://nytimes.com/athletic/6637806/2025/09/18/maple-leafs-training-camp-mitch-marner/
 
-**TAFC: Death of dogma for managers? Plus: Anger at Anfield, Muller's ultimate golfing foursome**\
-`Today in TAFC: Are managers who 'die' for an idea on the way out? Plus: Simeone loses cool, Son's hat-trick and Muller's magical foursome.`\
-https://nytimes.com/athletic/6640132/2025/09/18/amorim-mourinho-philosophy-simeone-champions-league/
+**As Phillies near October baseball, some postseason roster debates come into focus**\
+`The Phillies have a few things to accomplish over the final nine games of the season, but they can finally begin to think about October.`\
+https://nytimes.com/athletic/6639904/2025/09/18/phillies-october-baseball-postseason-roster-debates/
 
-**Amazon Prime Vision's latest feature gives new perspective on QB protection**\
-`Pocket Health will show how strong or weak a pocket is and who's most responsible for a breakdown.`\
-https://nytimes.com/athletic/6636637/2025/09/18/nfl-amazon-prime-vision-pocket-health/
+**Bengals post-Joe Burrow: How the offense could change under Jake Browning**\
+`The backup will surely be under center more than Burrow but still expect to see plenty of snaps in shotgun.`\
+https://nytimes.com/athletic/6639288/2025/09/18/bengals-jake-browning-offense-joe-burrow/
 
-**Former MLB outfielder Tyler Naquin hopes to be the sport's next great pitching experiment**\
-`The 2012 first-round pick who made it in the majors as a solid left-handed-hitting outfielder? He’s a right-handed pitcher now.`\
-https://nytimes.com/athletic/6607970/2025/09/18/tyler-naquin-position-player-pitcher-transition/
+**The guide to Bethpage Black: Why the Ryder Cup host is golf’s toughest test**\
+`"The People's Country Club" has $70 tee times for New York residents, who camp out overnight to get kicked in the teeth by the course.`\
+https://nytimes.com/athletic/6638868/2025/09/18/ryder-cup-host-bethpage-black-course-guide/
 
-**Golden State Valkyries' dream season ends with WNBA playoff heartbreak, which is good for them**\
-`The Valkyries came up just shy of forcing Game 3 in their historic season as an expansion franchise.`\
-https://nytimes.com/athletic/6640161/2025/09/18/golden-state-valkyries-wnba-playoffs-elimination/
+**Meet the unheralded Seahawks DB who’s playing like a star**\
+`Josh Jobe entered this season with only $300,000 guaranteed, but he's been one of Seattle's best defenders through two games.`\
+https://nytimes.com/athletic/6639222/2025/09/18/josh-jobe-seahawks-defense-cornerback/
 
-**Mourinho set to become Benfica head coach**\
-`It will be Mourinho’s second stint with Benfica, the club where he had his first head coach role 25 years ago.`\
-https://nytimes.com/athletic/6636664/2025/09/18/jose-mourinho-benfica-manager/
+**What our NFL Draft expert is watching in college football Week 4: Top prospects, key matchups**\
+`Indiana's quarterback could leap up draft boards, but scouts have been waiting to see how he does in a big-ticket matchup.`\
+https://nytimes.com/athletic/6637828/2025/09/18/nfl-draft-2026-fernando-mendoza-illinois-indiana/
 
-**Breaking down all 73 hopefuls on the Maple Leafs training camp roster**\
-`In just 17 days, the Leafs must whittle down their list from 73 players to a 23-man NHL roster.`\
-https://nytimes.com/athletic/6638274/2025/09/18/maple-leafs-training-camp-roster-breakdown-2025/
+**The Athletic's Minor League awards: Konnor Griffin is our prospect of the year**\
+`Griffin advanced three levels in his pro debut season, improving his production at each stop along the way.`\
+https://nytimes.com/athletic/6634835/2025/09/18/minor-league-year-end-awards-2025-konnor-griffin/
 
