@@ -1,3 +1,7 @@
+**Rifts Grow Between Netanyahu and His Security Chiefs**\
+`As Israel expands its war in Gaza, decision-making has become increasingly concentrated in the hands of one person: Prime Minister Benjamin Netanyahu.`\
+https://nytimes.com/2025/09/18/world/middleeast/israel-netanyahu-military-gaza.html
+
 **Trump Receives Royal Treatment at U.K. Banquet**\
 `President Trump was the guest of honor at a state dinner at Windsor Castle on Wednesday. The banquet table was also lined with power brokers from the worlds of technology, finance and media.`\
 https://nytimes.com/video/us/100000010406486/trump-uk-state-visit-banquet-royals.html
