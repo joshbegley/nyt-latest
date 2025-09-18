@@ -1,3 +1,7 @@
+**‘Megadoc’ Review: A Behind-the-Scenes Look at a Pricey Passion Project**\
+`This documentary by Mike Figgis about Francis Ford Coppola’s “Megalopolis” is at once expansive and intimate, and sometimes very revealing.`\
+https://nytimes.com/2025/09/18/movies/megadoc-review.html
+
 **Exxon Urges Europe to Repeal Rules to Make Companies Track Climate Pollution**\
 `Its chief executive called the E.U. regulations one part of a “very misguided effort to kill oil.” His words followed comments by Trump administration officials criticizing Europe’s climate policies.`\
 https://nytimes.com/2025/09/18/climate/exxon-woods-europe-climate-sustainability-repeal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/18/world/americas/jose-maria-tojeira-dead.html
 **Judge Blocks Administration From Immediately Removing Guatemalan Children**\
 `Judge Timothy J. Kelly, a Trump appointee, wrote that the government had given dubious justifications for removing the children that “crumbled like a house of cards.”`\
 https://nytimes.com/2025/09/18/us/politics/guatemalan-children-deportation.html
-
-**Young Activists Say 3 Trump Orders Violate Constitutional Rights**\
-`In a Montana courtroom, a group of young people argued that a judge should halt three of President Trump’s sweeping executive orders on climate and energy policy.`\
-https://nytimes.com/2025/09/18/climate/lighthiser-trial-climate-trump.html
 

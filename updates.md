@@ -1,3 +1,7 @@
+**‘Megadoc’ Review: A Behind-the-Scenes Look at a Pricey Passion Project**\
+`This documentary by Mike Figgis about Francis Ford Coppola’s “Megalopolis” is at once expansive and intimate, and sometimes very revealing.`\
+https://nytimes.com/2025/09/18/movies/megadoc-review.html
+
 **Exxon Urges Europe to Repeal Rules to Make Companies Track Climate Pollution**\
 `Its chief executive called the E.U. regulations one part of a “very misguided effort to kill oil.” His words followed comments by Trump administration officials criticizing Europe’s climate policies.`\
 https://nytimes.com/2025/09/18/climate/exxon-woods-europe-climate-sustainability-repeal.html
