@@ -1,3 +1,11 @@
+**Who Is Brendan Carr of the F.C.C.?**\
+`The chairman of the F.C.C., who is in the spotlight for his comments that may have led to the suspension of late night TV show host Jimmy Kimmel, has long criticized the media for perceived bias.`\
+https://nytimes.com/2025/09/18/technology/brendan-carr-fcc-jimmy-kimmel.html
+
+**De Bruyne has a chance to remind Man City why he is impossible to replace**\
+`De Bruyne will return to the Etihad to underline why he was the man who this City era of dominance hinged on more than anyone else`\
+https://nytimes.com/athletic/6636817/2025/09/18/kevin-de-bruyne-napoli-man-city/
+
 **Barcelona's Marcus Rashford plan – and a new chance in the Champions League**\
 `The Manchester United loanee has had a mixed start to life in La Liga, but recent signs have been promising`\
 https://nytimes.com/athletic/6637400/2025/09/18/marcus-rashford-barcelona-champions-league-newcastle/
@@ -26,15 +34,7 @@ https://nytimes.com/2025/09/18/pageoneplus/corrections-sept-18-2025.html
 `The actor, who died on Tuesday at 89, spent much of his life working to preserve the serene natural beauty of Utah, even as his Sundance Film Festival brought Hollywood glamour to the state.`\
 https://nytimes.com/2025/09/18/us/robert-redford-utah.html
 
-**Son Heung-min continues hot LAFC form with a memorable hat-trick**\
+**Son Heung-min continues hot LAFC form with a memorable hat trick**\
 `The South Korean star is loving life in Major League Soccer and produced another fine display`\
 https://nytimes.com/athletic/6639799/2025/09/18/son-heung-min-hattrick-lafc-rsl-mls/
-
-**How China Became a Wedge Between Two South Pacific Neighbors**\
-`A standoff between New Zealand and the Cook Islands reflects an urgent question in the Pacific: Is China a threat or a partner for growth?`\
-https://nytimes.com/2025/09/18/world/australia/china-pacific-nz-cook-islands.html
-
-**Quote of the Day: College Graduates Facing Blow Of Long-Term Unemployment**\
-`Quotation of the Day for Thursday, September 18, 2025.`\
-https://nytimes.com/2025/09/17/pageoneplus/quote-of-the-day-college-graduates-facing-blow-of-long-term-unemployment.html
 
