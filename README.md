@@ -1,3 +1,11 @@
+**The Business Decision Behind Taking Jimmy Kimmel Off Air**\
+`Disney’s abrupt move to suspend the late-night host came after political pushback — and concerns about the media company’s relations with affiliate owners.`\
+https://nytimes.com/2025/09/18/business/dealbook/kimmel-disney-abc.html
+
+**MLB playoff watch: Cubs get in, Blue Jays getting closer; bracket, clinching scenarios**\
+`Things in the AL West have shifted once again ahead of a pivotal weekend series.`\
+https://nytimes.com/athletic/6638645/2025/09/18/mlb-playoff-watch-2025-cubs-clinch/
+
 **Diplomatic Coup or Abject Groveling? U.K. Debates Trump’s Royal Welcome**\
 `Some British commentators praised the state visit as a necessary piece of realpolitik. Others criticized it as an embarrassing display for a destructive president.`\
 https://nytimes.com/2025/09/18/world/europe/uk-debates-trump-royal-welcome.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6638539/2025/09/18/ny-giants-wandale-robinson-russe
 **Evan Engram's slow start, Dre Greenlaw's 'nebulous' recovery foil Broncos' 'Joker' plans**\
 `Engram has only four catches for 33 yards through two games. The tight end missed Wednesday's practice.`\
 https://nytimes.com/athletic/6631337/2025/09/18/broncos-joker-dre-greenlaw-evan-engram/
-
-**Rangers 2025-26 prospect rankings: A potential top-6 forward at No. 2**\
-`Malcolm Spence, New York's No. 43 pick in the 2025 draft, slots in at No. 2 in our Rangers prospect rankings.`\
-https://nytimes.com/athletic/6637519/2025/09/18/new-york-rangers-prospect-rankings-malcolm-spence/
-
-**Notre Dame Mailbag: How much did CJ Carr's pre-snap tell matter?**\
-`Plus, reading between the lines of Marcus Freeman's comments about the Irish defense, and a reassessment of the 2024 CFP run.`\
-https://nytimes.com/athletic/6638461/2025/09/18/cj-carr-tipping-plays-notre-dame/
 
