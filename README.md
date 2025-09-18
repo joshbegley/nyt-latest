@@ -1,3 +1,7 @@
+**Diplomatic Coup or Abject Groveling? U.K. Debates Trump’s Royal Welcome**\
+`Some British commentators praised the state visit as a necessary piece of realpolitik. Others criticized it as an embarrassing display for a destructive president.`\
+https://nytimes.com/2025/09/18/world/europe/uk-debates-trump-royal-welcome.html
+
 **Trump Administration Live Updates: Federal Advisory Panel to Review Childhood Vaccines**\
 ``\
 https://nytimes.com/live/2025/09/18/us/trump-news
@@ -18,7 +22,7 @@ https://nytimes.com/athletic/6639645/2025/09/18/nhl-motto-errors-flyers-leafs-ca
 `Here are our 10 picks for the most telegenic mascots in the game, plus an honorable mention for Nashville's cheerleader-eating raccoon.`\
 https://nytimes.com/athletic/6638077/2025/09/18/nfl-mascot-rankings-colts-eagles-chiefs-jaguars-texans/
 
-**Wan'Dale Robinson always knew he had more to give Giants offense. 'He can do everything'**\
+**Wan'Dale Robinson always knew he had more to give Giants offense: 'He can do everything'**\
 `After a historically inefficient 2024 season, Robinson is thriving in his new role, in which he is more than just an underneath target. `\
 https://nytimes.com/athletic/6638539/2025/09/18/ny-giants-wandale-robinson-russell-wilson-offense/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6637519/2025/09/18/new-york-rangers-prospect-rankin
 **Notre Dame Mailbag: How much did CJ Carr's pre-snap tell matter?**\
 `Plus, reading between the lines of Marcus Freeman's comments about the Irish defense, and a reassessment of the 2024 CFP run.`\
 https://nytimes.com/athletic/6638461/2025/09/18/cj-carr-tipping-plays-notre-dame/
-
-**Science Practice | A Study on Flying Dinosaurs**\
-`An unusually well-preserved fossil suggests that the feathered Archaeopteryx probably flew like a chicken.`\
-https://nytimes.com/2025/09/18/learning/science-practice-a-study-on-flying-dinosaurs.html
 
