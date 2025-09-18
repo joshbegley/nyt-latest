@@ -1,3 +1,11 @@
+**NWSL's Jessica Berman says she 'intends to be around' as contract nears end**\
+`Berman inherited a league rife with controversy, but she has enjoyed a relatively successful tenure since getting the job in 2022.`\
+https://nytimes.com/athletic/6641459/2025/09/18/nwsl-commissioner-jessica-berman-contract/
+
+**Democrats Pitch Bill to Protect Speech Targeted by Trump**\
+`A group of House and Senate Democrats said they would introduce a measure that would bolster legal protections for people targeted by the government for speaking freely.`\
+https://nytimes.com/2025/09/18/us/politics/democrats-free-speech-bill-trump.html
+
 **'Right now, I’m here': Nick Robertson's future with the Leafs is cloudier than ever**\
 `Robertson signed a one-year contract extension this summer, but his spot in the Maple Leafs lineup remains in limbo as training camp opens.`\
 https://nytimes.com/athletic/6641253/2025/09/18/maple-leafs-nick-robertson-trade-future/

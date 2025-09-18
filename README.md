@@ -1,3 +1,19 @@
+**Clippers say owner was 'duped' in response to latest Kawhi Leonard deal allegations**\
+`The team addressed reporting related to Steve Ballmer's ties to the now-bankrupt environmental company.`\
+https://nytimes.com/athletic/6641165/2025/09/18/clippers-ballmer-carbon-credits-kawhi-aspiration/
+
+**8 New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://nytimes.com/2025/09/18/books/review/recommended-new-books.html
+
+**What’s Going On in This Picture? | Sept. 22, 2025**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2025/09/18/learning/whats-going-on-in-this-picture-sept-22-2025.html
+
+**What’s Going On in This Graph? | Oct. 1, 2025**\
+`How much is a dollar worth?`\
+https://nytimes.com/2025/09/18/learning/whats-going-on-in-this-graph-oct-1-2025.html
+
 **NWSL's Jessica Berman says she 'intends to be around' as contract nears end**\
 `Berman inherited a league rife with controversy, but she has enjoyed a relatively successful tenure since getting the job in 2022.`\
 https://nytimes.com/athletic/6641459/2025/09/18/nwsl-commissioner-jessica-berman-contract/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/09/18/dining/marilyn-hagerty-dead.html
 **U.S. Sues Ticketmaster Over Claims of Illegal Resale Tactics**\
 `The Federal Trade Commission and seven states sued Ticketmaster and its parent company, Live Nation, claiming they misled artists and consumers.`\
 https://nytimes.com/2025/09/18/business/ticketmaster-ftc-suit.html
-
-**Barcelona to face PSG at Montjuic following Camp Nou delays**\
-`Barca have been unable to return to Camp Nou following uncertainty around the stadium’s reconstruction project, which began in June 2023`\
-https://nytimes.com/athletic/6641484/2025/09/18/barcelona-stadium-camp-nou-montjuic-champions-league/
-
-**Kirill Kaprizov deflects contract questions as Wild open camp: 'It’s my job to focus just on hockey'**\
-`GM Bill Guerin said that "things are fine" in negotiations with Kaprizov's agent, who was on hand for the opening day of training camp.`\
-https://nytimes.com/athletic/6641393/2025/09/18/kirill-kaprizov-wild-contract-camp/
-
-**Friends or Competitors? These American Tennis Stars Are Both.**\
-`Taylor Fritz, Tommy Paul, Frances Tiafoe and Reilly Opelka have been playing since their junior days. But the gloves come off once they’re on the court.`\
-https://nytimes.com/2025/09/18/sports/tennis/laver-cup-tiafoe-fritz.html
-
-**The Laver Cup Returns for the Eighth Year, Now With New Captains**\
-`Andre Agassi and Yannick Noah have replaced John McEnroe and Bjorn Borg.`\
-https://nytimes.com/2025/09/18/sports/tennis/laver-cup-andre-agassi-yannick-noah.html
 
