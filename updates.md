@@ -1,3 +1,15 @@
+**British Theater, Up Close on the Big Screen**\
+`NT Live, an arm of Britain’s National Theater, is reaching huge audiences around the world who can’t make it to London to see its performances.`\
+https://nytimes.com/2025/09/18/theater/nt-live-inter-alia.html
+
+**The Trump Administration Is Dismantling Climate Policies**\
+`Once, the Trump administration merely downplayed the threat of global warming. Now it flatly denies the science.`\
+https://nytimes.com/2025/09/18/us/trump-climate-denial-banquet-kimmel.html
+
+**Dodger Details: Blake Snell's moment, the Ohtani outfield hypothetical and more**\
+`Dodgers 5, Phillies 0 was the night in which Snell showed what Snell can be.`\
+https://nytimes.com/athletic/6639929/2025/09/18/dodgers-phillies-blake-snell-ohtani/
+
 **How to watch 2025 F1 Azerbaijan Grand Prix: Clinching opportunity for McLaren in Baku**\
 `McLaren’s drivers sit one-two in the championship. If McLaren locks out first and second at Baku, the constructors’ title would be sealed.`\
 https://nytimes.com/athletic/6638745/2025/09/18/f1-azerbaijan-grand-prix-odds-2025-how-to-watch/
