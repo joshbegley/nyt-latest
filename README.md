@@ -1,3 +1,19 @@
+**Against Jacob deGrom, Astros find 'collective approach' and catapult into first place**\
+`Houston’s victory over the Rangers on Wednesday secured the season series and, more importantly, the tiebreaker over its intrastate rival.`\
+https://nytimes.com/athletic/6639884/2025/09/18/astros-collective-approach-first-place-jacob-degrom/
+
+**The New York Times in Print for Thursday, Sep. 18, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/18/todays-new-york-times
+
+**In the West Bank, Trump Is Not Standing in Israel’s Way**\
+`The Trump administration has not given its blessing to Israeli annexation of the West Bank. But it is doing little to stand in Israel’s way.`\
+https://nytimes.com/2025/09/18/opinion/israel-gaza-city-west-bank-trump.html
+
+**The Imperial Nostalgia of Donald Trump**\
+`Both the United States and Britain are suffering through crises of identity.`\
+https://nytimes.com/2025/09/18/opinion/trump-britain-state-visit.html
+
 **Europe’s far-right and Charlie Kirk**\
 `The continent’s far right is claiming the activist as a martyr. Our colleague Jason Horowitz explains why.`\
 https://nytimes.com/2025/09/18/briefing/europes-far-right-charlie-kirk.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6636689/2025/09/18/mikel-arteta-arsenal-starting-xi
 **Bruno Guimaraes embodies Newcastle's captaincy. He is a constant driving force**\
 `The Brazilian has been an almost ever-present figure in Eddie Howe's team since joining and is vital to their Champions League hopes`\
 https://nytimes.com/athletic/6636581/2025/09/18/bruno-guimaraes-newcastle-champions-league/
-
-**Harry Kane's goalscoring is nothing new - but there is so much more to his game now**\
-`Against Chelsea, he was the centre-forward. A playmaker. Occasionally a No 6 or No 8. Doing whatever was most useful at the right moment.`\
-https://nytimes.com/athletic/6638843/2025/09/18/harry-kane-bayern-position/
-
-**Mourinho, Amorim and the wisdom of coaches willing to 'die' for an idea**\
-`Jose Mourinho says coaches willing to die for an idea are "stupid". Is he right? And do pragmatic coaches do any better?`\
-https://nytimes.com/athletic/6637374/2025/09/18/amorim-mourinho-idea-coach/
-
-**The Alternative Premier League Table: No 5 – Which teams have led for longest?**\
-`Liverpool have led for less time than Everton and five other clubs so far this season, yet sit top of the table on maximum points`\
-https://nytimes.com/athletic/6637272/2025/09/18/alternative-premier-league-table-time-led/
-
-**Who Is Brendan Carr of the F.C.C.?**\
-`The chairman of the F.C.C., who is in the spotlight for his comments that may have led to the suspension of late night TV show host Jimmy Kimmel, has long criticized the media for perceived bias.`\
-https://nytimes.com/2025/09/18/technology/brendan-carr-fcc-jimmy-kimmel.html
 
