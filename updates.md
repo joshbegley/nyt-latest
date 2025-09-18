@@ -1,3 +1,11 @@
+**Amid Sidney Crosby trade rumors, Penguins GM Kyle Dubas responds to Pat Brisson**\
+`"He's entitled to make the comments that he wishes," Dubas said.`\
+https://nytimes.com/athletic/6640681/2025/09/18/sidney-crosby-trade-rumors-penguins-agent-kyle-dubas-nhl/
+
+**Swiss racing driver Laura Villars, 28, announces candidacy for FIA presidency**\
+`If she officially submits her bid before the October 24 deadline, Villars will be the first woman to run for the role, per the news release.`\
+https://nytimes.com/athletic/6640650/2025/09/18/laura-villers-fia-presidency-f1/
+
 **Key fantasy football questions for Week 3: Could Ashton Jeanty be a bust?**\
 `Dalton Del Don identifies 10 questions fantasy managers should be seeking answers to in Week 3, including a troubling start for A.J. Brown.`\
 https://nytimes.com/athletic/6639359/2025/09/18/fantasy-football-week-3-key-questions-rookie-rbs/
