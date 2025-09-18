@@ -1,3 +1,11 @@
+**Science Practice | A Study on Flying Dinosaurs**\
+`An unusually well-preserved fossil suggests that the feathered Archaeopteryx probably flew like a chicken.`\
+https://nytimes.com/2025/09/18/learning/science-practice-a-study-on-flying-dinosaurs.html
+
+**Nvidia to Buy $5 Billion Stake in Intel**\
+`The deal between the rival chipmakers includes plans to collaborate on technology to power artificial intelligence, and is a lifeline for struggling Intel.`\
+https://nytimes.com/2025/09/18/business/nvidia-intel-stake.html
+
 **British Theater, Up Close on the Big Screen**\
 `NT Live, an arm of Britain’s National Theater, is reaching huge audiences around the world who can’t make it to London to see its performances.`\
 https://nytimes.com/2025/09/18/theater/nt-live-inter-alia.html

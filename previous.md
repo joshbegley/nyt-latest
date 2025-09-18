@@ -1,3 +1,11 @@
+**Science Practice | A Study on Flying Dinosaurs**\
+`An unusually well-preserved fossil suggests that the feathered Archaeopteryx probably flew like a chicken.`\
+https://nytimes.com/2025/09/18/learning/science-practice-a-study-on-flying-dinosaurs.html
+
+**Nvidia to Buy $5 Billion Stake in Intel**\
+`The deal between the rival chipmakers includes plans to collaborate on technology to power artificial intelligence, and is a lifeline for struggling Intel.`\
+https://nytimes.com/2025/09/18/business/nvidia-intel-stake.html
+
 **British Theater, Up Close on the Big Screen**\
 `NT Live, an arm of Britain’s National Theater, is reaching huge audiences around the world who can’t make it to London to see its performances.`\
 https://nytimes.com/2025/09/18/theater/nt-live-inter-alia.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6639929/2025/09/18/dodgers-phillies-blake-snell-oht
 **Mitch Marner is gone. Why his departure looms over everything for Maple Leafs**\
 `Marner may be gone, but his shadow will linger, likely all season — even if the team says otherwise.`\
 https://nytimes.com/athletic/6637806/2025/09/18/maple-leafs-training-camp-mitch-marner/
-
-**As Phillies near October baseball, some postseason roster debates come into focus**\
-`The Phillies have a few things to accomplish over the final nine games of the season, but they can finally begin to think about October.`\
-https://nytimes.com/athletic/6639904/2025/09/18/phillies-october-baseball-postseason-roster-debates/
-
-**Bengals post-Joe Burrow: How the offense could change under Jake Browning**\
-`The backup will surely be under center more than Burrow but still expect to see plenty of snaps in shotgun.`\
-https://nytimes.com/athletic/6639288/2025/09/18/bengals-jake-browning-offense-joe-burrow/
 
