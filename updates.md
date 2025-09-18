@@ -1,3 +1,5 @@
+
+
 **Jose Mourinho's return to Benfica is no surprise. They need some of his old devil magic**\
 `Benfica have chosen Mourinho as their new head coach - 25 years on from his first crack at the job - following a horror loss to Qarabag`\
 https://nytimes.com/athletic/6637003/2025/09/18/jose-mourinho-benfica-analysis/
