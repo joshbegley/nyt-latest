@@ -1,40 +1,40 @@
+**Trump Administration Live Updates: Federal Advisory Panel to Review Childhood Vaccines**\
+``\
+https://nytimes.com/live/2025/09/18/us/trump-news
+
+**Syria’s President Says Border Deal With Israel Could Come ‘Within Days’**\
+`Syrian and Israeli officials have been holding talks about security arrangements along their shared border as part of U.S.-mediated efforts to reset decades of hostility.`\
+https://nytimes.com/2025/09/18/world/middleeast/syria-israel.html
+
+**The Pulse: The mythical pitch that’s become a reality**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6639651/2025/09/18/rising-fastball-mlb-the-pulse/
+
+**Motivating mottos can be grammatically tricky for NHL teams. Just ask the Leafs**\
+`From errors on the Stanley Cup to accidental innuendo, plenty of teams' attempts at memorable moments have gone awry.`\
+https://nytimes.com/athletic/6639645/2025/09/18/nhl-motto-errors-flyers-leafs-canucks/
+
+**The NFL's top 10 scene-stealing mascots, from a flying falcon to a jiggling blue horse**\
+`Here are our 10 picks for the most telegenic mascots in the game, plus an honorable mention for Nashville's cheerleader-eating raccoon.`\
+https://nytimes.com/athletic/6638077/2025/09/18/nfl-mascot-rankings-colts-eagles-chiefs-jaguars-texans/
+
+**Wan'Dale Robinson always knew he had more to give Giants offense. 'He can do everything'**\
+`After a historically inefficient 2024 season, Robinson is thriving in his new role, in which he is more than just an underneath target. `\
+https://nytimes.com/athletic/6638539/2025/09/18/ny-giants-wandale-robinson-russell-wilson-offense/
+
+**Evan Engram's slow start, Dre Greenlaw's 'nebulous' recovery foil Broncos' 'Joker' plans**\
+`Engram has only four catches for 33 yards through two games. The tight end missed Wednesday's practice.`\
+https://nytimes.com/athletic/6631337/2025/09/18/broncos-joker-dre-greenlaw-evan-engram/
+
+**Rangers 2025-26 prospect rankings: A potential top-6 forward at No. 2**\
+`Malcolm Spence, New York's No. 43 pick in the 2025 draft, slots in at No. 2 in our Rangers prospect rankings.`\
+https://nytimes.com/athletic/6637519/2025/09/18/new-york-rangers-prospect-rankings-malcolm-spence/
+
+**Notre Dame Mailbag: How much did CJ Carr's pre-snap tell matter?**\
+`Plus, reading between the lines of Marcus Freeman's comments about the Irish defense, and a reassessment of the 2024 CFP run.`\
+https://nytimes.com/athletic/6638461/2025/09/18/cj-carr-tipping-plays-notre-dame/
+
 **Science Practice | A Study on Flying Dinosaurs**\
 `An unusually well-preserved fossil suggests that the feathered Archaeopteryx probably flew like a chicken.`\
 https://nytimes.com/2025/09/18/learning/science-practice-a-study-on-flying-dinosaurs.html
-
-**Nvidia to Buy $5 Billion Stake in Intel**\
-`The deal between the rival chipmakers includes plans to collaborate on technology to power artificial intelligence, and is a lifeline for struggling Intel.`\
-https://nytimes.com/2025/09/18/business/nvidia-intel-stake.html
-
-**British Theater, Up Close on the Big Screen**\
-`NT Live, an arm of Britain’s National Theater, is reaching huge audiences around the world who can’t make it to London to see its performances.`\
-https://nytimes.com/2025/09/18/theater/nt-live-inter-alia.html
-
-**The Trump Administration Is Dismantling Climate Policies**\
-`Once, the Trump administration merely downplayed the threat of global warming. Now it flatly denies the science.`\
-https://nytimes.com/2025/09/18/us/trump-climate-denial-banquet-kimmel.html
-
-**How to watch 2025 F1 Azerbaijan Grand Prix: Clinching opportunity for McLaren in Baku**\
-`McLaren’s drivers sit one-two in the championship. If McLaren locks out first and second at Baku, the constructors’ title would be sealed.`\
-https://nytimes.com/athletic/6638745/2025/09/18/f1-azerbaijan-grand-prix-odds-2025-how-to-watch/
-
-**For Gio Reyna to make USMNT's World Cup team, he'll have to be a statistical exception**\
-`There aren't really any recent historical comps to Gio Reyna that suggest a full reclamation of form and productivity are imminent`\
-https://nytimes.com/athletic/6639622/2025/09/18/gio-reyna-borussia-monchengladbach-usmnt-world-cup/
-
-**Packers' top priority vs. Browns? Contain Myles Garrett: 'He's a game wrecker'**\
-`Garrett leads the NFL through two games with six tackles for loss and is tied for the league lead with 3.5 sacks.`\
-https://nytimes.com/athletic/6639191/2025/09/18/packers-browns-myles-garrett-zach-tom/
-
-**49ers' deep rookie class keeps getting better, as Connor Colby steps into starting role**\
-`Colby is well ahead of the curve for a seventh-round pick, and he's just one of several unheralded rookies contributing for the Niners.`\
-https://nytimes.com/athletic/6638870/2025/09/18/49ers-rookies-connor-colby-starting/
-
-**Dodger Details: Blake Snell's moment, the Ohtani outfield hypothetical and more**\
-`Dodgers 5, Phillies 0 was the night in which Snell showed what Snell can be.`\
-https://nytimes.com/athletic/6639929/2025/09/18/dodgers-phillies-blake-snell-ohtani/
-
-**Mitch Marner is gone. Why his departure looms over everything for Maple Leafs**\
-`Marner may be gone, but his shadow will linger, likely all season — even if the team says otherwise.`\
-https://nytimes.com/athletic/6637806/2025/09/18/maple-leafs-training-camp-mitch-marner/
 
