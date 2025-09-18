@@ -1,3 +1,7 @@
+**Five chances created and playing with a swagger - Wirtz shows exactly why Liverpool wanted him**\
+`The German has been taking time to adjust to life at Anfield but he was their attacking spark against Atletico Madrid`\
+https://nytimes.com/athletic/6638251/2025/09/18/florian-wirtz-liverpool-atletico/
+
 **Against Jacob deGrom, Astros find 'collective approach' and catapult into first place**\
 `Houston’s victory over the Rangers on Wednesday secured the season series and, more importantly, the tiebreaker over its intrastate rival.`\
 https://nytimes.com/athletic/6639884/2025/09/18/astros-collective-approach-first-place-jacob-degrom/
