@@ -1,4 +1,8 @@
-**Clayton Kershaw, Dodgers icon, announces retirement after 18 seasons**\
+**Adams Says He Will Revisit N.Y.C. Schools’ Bathroom Gender Policy**\
+`Mayor Eric Adams’s remarks, aimed at a policy allowing students to use bathrooms that align with their gender identity, came two days after the Trump administration expressed concern over such guidelines.`\
+https://nytimes.com/2025/09/18/nyregion/adams-transgender-bathroom-schools.html
+
+**Clayton Kershaw, Dodgers icon, is retiring after 18 seasons**\
 `The 37-year-old announced his retirement a day ahead of what will be his 228th and final home regular-season start at Dodger Stadium.`\
 https://nytimes.com/athletic/6641402/2025/09/18/clayton-kershaw-dodgers-retirement-announcement-mlb/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6641903/2025/09/18/storm-vs-aces-stream-how-to-watc
 **The F.C.C. Threatened to Punish Kimmel ‘the Hard Way.’ ABC Made It Easy.**\
 `Another media company caved after pressure from a Trump official, and the chilling effect got a few degrees colder.`\
 https://nytimes.com/2025/09/18/arts/television/jimmy-kimmel.html
-
-**Man Utd co-owner Ratcliffe flies in for Amorim talks**\
-`The team’s form was on the agenda and Ratcliffe was seeking to work through issues facing Amorim at the club.`\
-https://nytimes.com/athletic/6641776/2025/09/18/manchester-united-ruben-amorim-jim-ratcliffe/
 
