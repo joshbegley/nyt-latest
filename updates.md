@@ -1,3 +1,19 @@
+**Who Is Brendan Carr of the F.C.C.?**\
+`The chairman of the F.C.C., who is in the spotlight for his comments that may have led to the suspension of late night TV show host Jimmy Kimmel, has long criticized the media for perceived bias.`\
+https://nytimes.com/2025/09/18/technology/brendan-carr-fcc-jimmy-kimmel.html
+
+**De Bruyne has a chance to remind Man City why he is impossible to replace**\
+`De Bruyne will return to the Etihad to underline why he was the man who this City era of dominance hinged on more than anyone else`\
+https://nytimes.com/athletic/6636817/2025/09/18/kevin-de-bruyne-napoli-man-city/
+
+**Barcelona's Marcus Rashford plan – and a new chance in the Champions League**\
+`The Manchester United loanee has had a mixed start to life in La Liga, but recent signs have been promising`\
+https://nytimes.com/athletic/6637400/2025/09/18/marcus-rashford-barcelona-champions-league-newcastle/
+
+**Son Heung-min continues hot LAFC form with a memorable hat trick**\
+`The South Korean star is loving life in Major League Soccer and produced another fine display`\
+https://nytimes.com/athletic/6639799/2025/09/18/son-heung-min-hattrick-lafc-rsl-mls/
+
 **Hong Kong’s Beloved Dim Sum Carts Fade Into the Past**\
 `Metropol, a massive banquet hall, is closing. It’s one of the last eateries in the city with chatty “aunties” peddling Cantonese delicacies from carts.`\
 https://nytimes.com/2025/09/18/world/asia/hong-kong-dim-sum-cart.html
