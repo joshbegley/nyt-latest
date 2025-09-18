@@ -1,3 +1,7 @@
+**Matt Petgrave signs with ECHL's Fuel after not being charged in Adam Johnson's death**\
+`Petgrave hasn't played since 2023-24, when Johnson died after an accident in which Petgrave's skate cut him in the neck during a game.`\
+https://nytimes.com/athletic/6642245/2025/09/18/matt-petgrave-career-adam-johnson-echl-indy-fuel/
+
 **Canucks training camp: New-look lines, early Pettersson impressions, more**\
 `First-year Canucks bench boss Adam Foote clearly has a vision for how he wants this team to play.`\
 https://nytimes.com/athletic/6642328/2025/09/18/canucks-training-camp-elias-pettersson-2025/
