@@ -1,3 +1,11 @@
+**Until Saturday: Welcome to dark-horse weekend**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6641202/2025/09/18/college-football-schedule-week-4-indiana-until-saturday/
+
+**U.S. to Cut Out Nongovernmental Groups in Refocusing Health Aid**\
+`Secretary of State Marco Rubio said the United States would negotiate agreements to deliver aid in new ways and would focus on the Western Hemisphere and Asia Pacific.`\
+https://nytimes.com/2025/09/18/us/politics/us-aid-health-ngos.html
+
 **Artemi Panarin addresses expiring contract, declines comment on settlement report**\
 `Panarin enters training camp without a contract beyond 2025-26, which will be a major storyline throughout the season.`\
 https://nytimes.com/athletic/6641005/2025/09/18/rangers-artemi-panarin-settlement-contract/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/18/books/review/discontent-beatriz-serrano.html
 **Virginia Governor Election 2025: Latest Polls**\
 `Track the latest polls about Democrat Abigail Spanberger and Republican Winsome Earle-Sears in the Virginia gubernatorial election.`\
 https://nytimes.com/interactive/polls/virginia-governor-election-polls-2025.html
-
-**Mahmoud Khalil Asks Federal Judge to Intercede After Deportation Order**\
-`Mr. Khalil is not in imminent danger of deportation, but his situation has grown more dire as the Trump administration continues its efforts to remove him from the country.`\
-https://nytimes.com/2025/09/18/nyregion/mahmoud-khalil-deportation-order.html
-
-**Submit a question for Nicki Jhabvala's Washington Commanders mailbag**\
-`After a few unexpected bumps, the Commanders face some early-season questions. What are the team's most pressing concerns?`\
-https://nytimes.com/athletic/6638441/2025/09/18/commanders-mailbag-raiders-week-3-injuries/
 
