@@ -1,3 +1,11 @@
+**Sports card report: J.J. McCarthy shows risk of early hype as Kobe Bryant and Lionel Messi rise**\
+`What we learned from August sports card sales data and some recent records`\
+https://nytimes.com/athletic/6641045/2025/09/18/sports-cards-jj-mccarthy-kobe-messi/
+
+**Betting for (by) dummies: Why we're picking ... Titans!?**\
+`Two of our football experts banter about their losses and make increasingly wild picks for this week's slew of games. `\
+https://nytimes.com/athletic/6641016/2025/09/18/nfl-college-football-betting-picks-titans/
+
 **Until Saturday: Welcome to dark-horse weekend**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6641202/2025/09/18/college-football-schedule-week-4-indiana-until-saturday/
