@@ -1,3 +1,7 @@
+**Barcelona's Marcus Rashford plan – and a new chance in the Champions League**\
+`The Manchester United loanee has had a mixed start to life in La Liga, but recent signs have been promising`\
+https://nytimes.com/athletic/6637400/2025/09/18/marcus-rashford-barcelona-champions-league-newcastle/
+
 **Hong Kong’s Beloved Dim Sum Carts Fade Into the Past**\
 `Metropol, a massive banquet hall, is closing. It’s one of the last eateries in the city with chatty “aunties” peddling Cantonese delicacies from carts.`\
 https://nytimes.com/2025/09/18/world/asia/hong-kong-dim-sum-cart.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/18/world/australia/china-pacific-nz-cook-islands.htm
 **Quote of the Day: College Graduates Facing Blow Of Long-Term Unemployment**\
 `Quotation of the Day for Thursday, September 18, 2025.`\
 https://nytimes.com/2025/09/17/pageoneplus/quote-of-the-day-college-graduates-facing-blow-of-long-term-unemployment.html
-
-**Breaking down where the Mets stand in wild-card race after missed opportunity**\
-`The Mets came within inches of a signature moment Wednesday night. Instead, the NL wild-card race is as tight as ever.`\
-https://nytimes.com/athletic/6639657/2025/09/17/mets-nl-wild-card-race-padres/
 
