@@ -1,3 +1,23 @@
+**Tracking Tropical Depression Neoguri**\
+`See the likely path and wind arrival times for Neoguri`\
+https://nytimes.com/interactive/2025/weather/neoguri-map-path-tracker.html
+
+**In Texas, Parents Fighting Vaccinations Say Their Movement Is Winning**\
+`Public health advocates hoped that the measles outbreak might persuade the reluctant to get shots. That has not turned out to be true.`\
+https://nytimes.com/2025/09/18/us/politics/vaccine-mandates-covid-measles.html
+
+**Tracking Tropical Depression Ragasa**\
+`See the likely path and wind arrival times for Ragasa`\
+https://nytimes.com/interactive/2025/weather/ragasa-map-path-tracker.html
+
+**Trump Asks Supreme Court to Allow Removal of Fed Governor**\
+`President Trump has pressed to fire Lisa Cook ahead of this week’s central bank meeting, at which the board will vote on interest rates.`\
+https://nytimes.com/2025/09/18/us/politics/trump-supreme-court-fed.html
+
+**How to watch Fever at Dream: Game 3 Time, TV, streaming**\
+`Find out how to watch the Indiana Fever play the Atlanta Dream, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6641091/2025/09/18/fever-vs-dream-stream-how-to-watch-sept-18/
+
 **E.P.A. Keeps Polluters on the Hook to Clean Up ‘Forever Chemicals’**\
 `The decision came despite an effort by a former industry lawyer who is now at the E.P.A. to reverse the regulation.`\
 https://nytimes.com/2025/09/18/climate/epa-pfas-forever-chemicals.html
@@ -13,24 +33,4 @@ https://nytimes.com/2025/09/18/climate/wildfire-smoke-health-deaths.html
 **Fantasy football injuries, cheat sheet Week 3: Backup QBs take center stage**\
 `Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 3 player rankings and more.`\
 https://nytimes.com/athletic/6637184/2025/09/18/fantasy-football-injuries-cheat-sheet-week-3-backup-quarterbacks/
-
-**Obesity Is Killing American Men**\
-`Men seek weight loss treatment far less often than women. Doctors are concerned.`\
-https://nytimes.com/2025/09/18/well/live/obesity-american-men.html
-
-**The Best Song From ‘KPop Demon Hunters’**\
-`The most popular music in the country right now comes from an animated Netflix film. But the big hits aren’t its strongest music, according to our critic.`\
-https://nytimes.com/video/podcasts/100000010404561/the-best-song-from-kpop-demon-hunters.html
-
-**Real Madrid’s Asencio to stand trial over alleged sharing of sex tape**\
-`It has not yet been publicised when the trial will be or if it will be public.`\
-https://nytimes.com/athletic/6640474/2025/09/18/raul-asencio-trial-real-madrid/
-
-**I’ve Written About Loads of Scams. This One Almost Got Me.**\
-`The caller ID said “Chase Bank,” and the man on the line said I might be a victim of fraud. His supervisor would explain.`\
-https://nytimes.com/2025/09/18/nyregion/zelle-chase-banking-scam.html
-
-**Man Dies After Becoming Unresponsive on Roller Coaster at Epic Universe**\
-`The authorities are investigating the death of the visitor to Universal’s new theme park in Orlando, which opened in May.`\
-https://nytimes.com/2025/09/18/travel/universal-ride-death-stardust-racers.html
 
