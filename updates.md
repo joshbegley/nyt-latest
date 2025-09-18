@@ -1,3 +1,7 @@
+**Meta Unveils Smart Glasses With Apps and an Artificial Intelligence Assistant**\
+`At its annual developer conference on Wednesday, Meta showed several new smart glasses, which have been a surprise hit for the company.`\
+https://nytimes.com/2025/09/17/technology/personaltech/meta-smart-glasses-ai.html
+
 **Ash Cloud Over Mount St. Helens Conjures Memories of 1980 Disaster**\
 `A hazy cloud that emerged over the active volcano was the result of high winds rather than a new eruption.`\
 https://nytimes.com/2025/09/17/us/mount-st-helens-volcanic-ash-cloud.html
