@@ -1,3 +1,7 @@
+**Five chances created and playing with a swagger - Wirtz shows exactly why Liverpool wanted him**\
+`The German has been taking time to adjust to life at Anfield but he was their attacking spark against Atletico Madrid`\
+https://nytimes.com/athletic/6638251/2025/09/18/florian-wirtz-liverpool-atletico/
+
 **Against Jacob deGrom, Astros find 'collective approach' and catapult into first place**\
 `Houston’s victory over the Rangers on Wednesday secured the season series and, more importantly, the tiebreaker over its intrastate rival.`\
 https://nytimes.com/athletic/6639884/2025/09/18/astros-collective-approach-first-place-jacob-degrom/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6636723/2025/09/18/fantasy-premier-league-haaland-s
 **Mikel Arteta's two XIs: Arsenal's best starters, finishers and who should face Man City**\
 `Strength in depth is what Arsenal have been lacking in recent seasons - now they have it, Arteta has options and some decisions to make`\
 https://nytimes.com/athletic/6636689/2025/09/18/mikel-arteta-arsenal-starting-xi-options/
-
-**Bruno Guimaraes embodies Newcastle's captaincy. He is a constant driving force**\
-`The Brazilian has been an almost ever-present figure in Eddie Howe's team since joining and is vital to their Champions League hopes`\
-https://nytimes.com/athletic/6636581/2025/09/18/bruno-guimaraes-newcastle-champions-league/
 
