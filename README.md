@@ -1,3 +1,7 @@
+**West Africans Deported by the U.S. Sue Ghana for Rights Violations**\
+`Ghana said it was taking in 14 deported migrants to help its fellow Africans. But it sent three to their country of origin, including one who said he feared for his life.`\
+https://nytimes.com/2025/09/18/world/africa/us-deportees-sue-ghana.html
+
 **NWSL commissioner Jessica Berman on expansion, salary cap and player safety**\
 `The commissioner also indicated her intention to stay with the league as her current contract comes to an end`\
 https://nytimes.com/athletic/6641551/2025/09/18/nwsl-jessica-berman-salary-cap-expansion/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/18/us/alaska-hikers-dead-juneau.html
 **Trump Said Broadcasters Risk Losing Licenses for Criticizing Him**\
 `Also, NATO is looking for an answer to Russian drones. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/09/18/briefing/trump-jimmy-kimmel-russian-drones-lasers.html
-
-**Trump Administration Changes Tone on Free Speech**\
-`In the wake of the assassination of Charlie Kirk, President Trump and some of his top officials have changed their public messaging on free speech.`\
-https://nytimes.com/video/us/politics/100000010407362/trump-administration-free-speech.html
 

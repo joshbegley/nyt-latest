@@ -1,3 +1,11 @@
+**NWSL commissioner Jessica Berman on expansion, salary cap and player safety**\
+`The commissioner also indicated her intention to stay with the league as her current contract comes to an end`\
+https://nytimes.com/athletic/6641551/2025/09/18/nwsl-jessica-berman-salary-cap-expansion/
+
+**Rashford: 'Refreshing' playing with new Barcelona team-mates after first club goals**\
+`Rashford scored both Barcelona's goals in the Champions League win at Newcastle, his first since joining on loan from Manchester United.`\
+https://nytimes.com/athletic/6642231/2025/09/18/rashford-champions-league-barcelona-goals-newcastle/
+
 **Where Will Gazans Go?**\
 `Josh Holder of The New York Times, who has been using satellite images to track the destruction in Gaza, describes how there are few viable places to flee.`\
 https://nytimes.com/video/world/middleeast/100000010405069/where-will-gazans-go.html
@@ -6,7 +14,7 @@ https://nytimes.com/video/world/middleeast/100000010405069/where-will-gazans-go.
 `The club upgraded their revolving credit facilities to a maximum limit of £350m ($474.4m) and extended them to expire in December 2029.`\
 https://nytimes.com/athletic/6642115/2025/09/18/manchester-united-transfer-borrowing-rcf/
 
-**'A lot less NASCAR laps': Flyers note changes, expectations as camp practices begin**\
+**'A lot less NASCAR laps': Flyers note changes, expectations as camp begins**\
 `There’s a different feel to training camp with Rick Tocchet taking charge.`\
 https://nytimes.com/athletic/6642220/2025/09/18/flyers-camp-tocchet-tortorella/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/18/briefing/trump-jimmy-kimmel-russian-drones-lasers
 **Trump Administration Changes Tone on Free Speech**\
 `In the wake of the assassination of Charlie Kirk, President Trump and some of his top officials have changed their public messaging on free speech.`\
 https://nytimes.com/video/us/politics/100000010407362/trump-administration-free-speech.html
-
-**We Want Your Best Breakup Lines**\
-`For a special Modern Love project, we’re looking for your most unforgettable lines from a breakup, either delivered or received — kind, bizarre, profound, haunting or funny.`\
-https://nytimes.com/2025/09/18/style/modern-love-we-want-your-best-breakup-lines.html
-
-**When It Comes to the Left, Ezra Klein Is Frustrated**\
-`The stakes are high. But why aren’t democrats acting like there’s a five alarm fire? On the latest episode of Interesting Times, NYT Opinion columnist Ezra Klein talks about how political inaction is the real reason to despair.`\
-https://nytimes.com/video/opinion/100000010407682/when-it-comes-to-the-left-ezra-klein-is-frustrated.html
 
