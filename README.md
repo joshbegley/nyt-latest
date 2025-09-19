@@ -1,3 +1,11 @@
+**Trump Says the U.S. Will Institute $100,000 Fee for Skilled Worker Visas**\
+`Administration officials said the charge would help American workers’ wages by discouraging companies from using the visas to bring in lower-wage international workers.`\
+https://nytimes.com/2025/09/19/us/politics/trump-h-1b-visas-fee.html
+
+**Jimmy Kimmel and the Rise of Corporate Censorship**\
+`After ABC suspended Jimmy Kimmel from the airwaves, many called it censorship. The journalist Molly Jong-Fast explains that it is censorship, but not the kind you might think.`\
+https://nytimes.com/video/opinion/100000010411146/jimmy-kimmel-and-the-rise-of-corporate-censorship.html
+
 **Court Rules Against Arts Endowment on Trump’s ‘Gender Ideology’ Order**\
 `A new policy for the National Endowment for the Arts to review grant applications to see if they comply with President Trump’s “gender ideology” order violates the Constitution, the court said.`\
 https://nytimes.com/2025/09/19/arts/national-endowment-for-the-arts-trump-gender-ideology.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/19/us/politics/jim-edgar-dead.html
 **Yohe: Sergei Murashov is turning heads, and more of what I'm seeing at Penguins camp**\
 `Murashov, the Penguins' fourth-round pick in 2022, has put on a show in net in the early days of training camp.`\
 https://nytimes.com/athletic/6644894/2025/09/19/penguins-training-camp-sergei-murashov/
-
-**Good riddance to Clayton Kershaw's dominance against the Giants**\
-`Since the Dead Ball Era ended, no pitcher has dominated a single team like Kershaw dominated the Giants. Giants fans won't miss him.`\
-https://nytimes.com/athletic/6644517/2025/09/19/clayton-kershaw-retirement-sf-giants-dominance/
-
-**Heavy Rain Triggers Mudslides, Flash Floods in Southern California**\
-`A two-year-old is missing after floodwaters swept a car off the road. Several homes in San Bernardino County have also been destroyed.`\
-https://nytimes.com/video/weather/100000010410304/southern-california-mudslides-rain.html
 
