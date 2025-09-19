@@ -1,3 +1,7 @@
+**Jack Daniels, Olympic Medalist and ‘World’s Best’ Running Coach, Dies at 92**\
+`Tutoring Olympians, he created a simple workout formula that was said to produce the best results with the least effort, earning accolades across the running world.`\
+https://nytimes.com/2025/09/19/sports/jack-daniels-dead.html
+
 **Hard-Fought Treaty to Protect Ocean Life Clears a Final Hurdle**\
 `The global High Seas Treaty, decades in the making, will become international law. It aims to create vast maritime conservation areas.`\
 https://nytimes.com/2025/09/19/climate/high-seas-treaty-ocean-biodiversity-ratified.html
