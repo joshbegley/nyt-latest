@@ -1,3 +1,7 @@
+**At Heidi Klum’s Oktoberfest, Free-Flowing Beer and Lederhosen**\
+`Ms. Klum hosted her first “Heidi Fest” in Munich, a night of unadulterated German fun.`\
+https://nytimes.com/2025/09/19/style/heidifest-klum-munich-germany.html
+
 **'Bad actors' are stealing, reselling fan tickets swiped from MLB's Ballpark app, MLB acknowledges**\
 `The rash of scams started around Labor Day, with fans owning tickets to large-market teams the most popular targets. `\
 https://nytimes.com/athletic/6644767/2025/09/19/mlb-digital-ticket-theft-ballpark-app/

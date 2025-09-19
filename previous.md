@@ -1,3 +1,7 @@
+**At Heidi Klum’s Oktoberfest, Free-Flowing Beer and Lederhosen**\
+`Ms. Klum hosted her first “Heidi Fest” in Munich, a night of unadulterated German fun.`\
+https://nytimes.com/2025/09/19/style/heidifest-klum-munich-germany.html
+
 **'Bad actors' are stealing, reselling fan tickets swiped from MLB's Ballpark app, MLB acknowledges**\
 `The rash of scams started around Labor Day, with fans owning tickets to large-market teams the most popular targets. `\
 https://nytimes.com/athletic/6644767/2025/09/19/mlb-digital-ticket-theft-ballpark-app/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6644621/2025/09/19/jason-kelce-tush-push-play-comme
 **At City Ballet, Dusting Off a Balanchine Jewel**\
 `The next step, in the case of “Ballade,” coached by its original ballerina, Merrill Ashley, is to keep it in the repertory. Especially with Mira Nadon in the lead.`\
 https://nytimes.com/2025/09/19/arts/dance/new-york-city-ballet-ballade-mira-nadon.html
-
-**U.S.-based Afghan refugees denied access to new Afghanistan women’s soccer team**\
-`Training camps have taken place in Europe and Australia but U.S.-based players have been told safety concerns prevent their access.`\
-https://nytimes.com/athletic/6640594/2025/09/19/afghanistan-women-us-football-team-fifa/
 
