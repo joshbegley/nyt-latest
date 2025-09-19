@@ -1,3 +1,23 @@
+**Texas A&M President to Step Down After Controversy Over ‘Gender Ideology’**\
+`The university had been roiled over a student who filmed herself arguing with the instructor of a children’s literature course that recognized more than two genders.`\
+https://nytimes.com/2025/09/18/us/texas-am-president-gender-ideology-controversy.html
+
+**How to watch Nationals at Mets: Time, TV, streaming for September 19**\
+`Find out how to watch the Washington Nationals play the New York Mets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6642794/2025/09/18/nationals-vs-mets-stream-how-to-watch-sept-19/
+
+**How to watch Padres at White Sox: Time, TV, streaming for September 19**\
+`Find out how to watch the San Diego Padres play the Chicago White Sox, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6642792/2025/09/18/padres-vs-white-sox-stream-how-to-watch-sept-19/
+
+**How to watch Red Sox at Rays: Time, TV, streaming for September 19**\
+`Find out how to watch the Boston Red Sox play the Tampa Bay Rays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6642790/2025/09/18/red-sox-vs-rays-stream-how-to-watch-sept-19/
+
+**How to watch Blue Jays at Royals: Time, TV, streaming for September 19**\
+`Find out how to watch the Toronto Blue Jays play the Kansas City Royals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6642784/2025/09/18/blue-jays-vs-royals-stream-how-to-watch-sept-19/
+
 **How This Mom’s Viral Clips Fueled the ‘The Summer I Turned Pretty’ Fandom**\
 `Tina DiCenso’s reactions to the show, which reflect the anxiety it often inflicts on its fans, have become must-watch programming all their own.`\
 https://nytimes.com/2025/09/18/arts/television/the-summer-i-turned-pretty-reactions-fans.html
