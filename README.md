@@ -1,3 +1,7 @@
+**How to watch Liverpool vs. Everton from the U.S.: Merseyside derby returns to Anfield**\
+`This Saturday marks the 247th edition of the Merseyside derby. Will Liverpool pull off another thrilling victory?`\
+https://nytimes.com/athletic/6642252/2025/09/19/liverpool-vs-everton-merseyside-derby-how-to-watch-us/
+
 **To contend with Eagles, Rams must solve their Saquon Barkley problem**\
 `Barkley had over 200 rushing yards in both games against the Rams last season, including in the NFC divisional round. `\
 https://nytimes.com/athletic/6642172/2025/09/19/rams-eagles-saquon-barkley/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6642141/2025/09/19/andrew-painter-phillies-2025-sea
 **What I'm seeing at Jets camp: Scott Arniel is setting Stanley Cup ambitions**\
 `Plus, Scheifele's focus, new power play personnel and an early look at Winnipeg's lines.`\
 https://nytimes.com/athletic/6642121/2025/09/19/nhl-jets-camp-scott-arniel-stanley-cup-ambitions/
-
-**Who's in first? That depends. Looking at this year's playoff races under older formats**\
-`The two-division era, the wild-card era, the play-in era and others all had their pros and cons when it came to creating exciting races.`\
-https://nytimes.com/athletic/6642241/2025/09/19/mlb-playoff-formats-past-eras/
 
