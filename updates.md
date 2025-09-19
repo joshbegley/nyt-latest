@@ -1,3 +1,11 @@
+**While calls for Jaxson Dart have quieted, Russell Wilson must prove vintage game was no fluke**\
+`Last week's moon-ball barrage set a blueprint for what the Giants hope their offense can be, but KC will be a tougher test than Dallas.`\
+https://nytimes.com/athletic/6643272/2025/09/19/ny-giants-russell-wilson-jaxson-dart-chiefs/
+
+**Noah Lyles matches a Usain Bolt record with fourth straight 200-meter world title**\
+`The American Lyles, on Friday in Tokyo, joined the Jamaican legend with his fourth straight world title over 200 meters.`\
+https://nytimes.com/athletic/6644208/2025/09/19/noah-lyles-200-meter-world-championships-usain-bolt/
+
 **Barcelona's La Liga salary limit reduced by €112m**\
 `The drop is mostly due to issues over the ‘VIP zones’ lever at its Camp Nou stadium.`\
 https://nytimes.com/athletic/6644087/2025/09/19/barcelona-la-liga-salary-limit/

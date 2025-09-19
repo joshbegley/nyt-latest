@@ -1,3 +1,11 @@
+**Can’t Find That Coat You Saw? Or That Sofa? Or That Hat? Get in Touch!**\
+`In our new series, we help readers track down the objects and styles they can’t stop thinking about.`\
+https://nytimes.com/article/style-detective-submission.html
+
+**Forest's Postecoglou not concerned by 'constant' negativity around him**\
+`Meanwhile, defender Murillo is a doubt for the trip to Burnley but Nico Dominguez is close to returning to full training.`\
+https://nytimes.com/athletic/6644225/2025/09/19/ange-postecoglou-nottingham-forest-burnley/
+
 **While calls for Jaxson Dart have quieted, Russell Wilson must prove vintage game was no fluke**\
 `Last week's moon-ball barrage set a blueprint for what the Giants hope their offense can be, but KC will be a tougher test than Dallas.`\
 https://nytimes.com/athletic/6643272/2025/09/19/ny-giants-russell-wilson-jaxson-dart-chiefs/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/19/arts/agnes-gund-dead.html
 **Charlie Kirk’s Base Was Young People. Now His Tent Might Be Expanding.**\
 `Since his death, the parents and grandparents of his original followers are discovering his work. They like what they see.`\
 https://nytimes.com/2025/09/19/us/charlie-kirk-turning-point-usa.html
-
-**Strand Larsen set for new Wolves contract, return vs. Leeds**\
-`Newcastle United had two bids rejected in the summer, the highest of which was worth £55million.`\
-https://nytimes.com/athletic/6644078/2025/09/19/wolves-strand-larsen-contract-new/
-
-**What Phillies prospect Andrew Painter learned from an up-and-down 2025 season**\
-`Painter didn't make it to the majors. But he is 118 innings wiser, 118 innings closer to his debut and helping Philly in future Octobers.`\
-https://nytimes.com/athletic/6642141/2025/09/19/andrew-painter-phillies-2025-season/
 
