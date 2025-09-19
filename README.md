@@ -1,3 +1,7 @@
+**Noah Lyles, Melissa Jefferson-Wooden cap a strong worlds for U.S. sprinters**\
+`This could've been a sluggish world championships for American sprinters. Instead, they'll walk away with six golds in 10 individual events.`\
+https://nytimes.com/athletic/6644869/2025/09/19/noah-lyles-melissa-jefferson-wooden-world-championships-us-sprinters/
+
 **Nicholas Grimshaw, 85, Dies; British Architect Known for High-Tech Designs**\
 `He melded his country’s history of engineering and industrial design with a modern sensibility to help shape the face of 21st-century Britain.`\
 https://nytimes.com/2025/09/19/arts/design/nicholas-grimshaw-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/19/us/harvard-claudine-gay-trump.html
 **Pregnant Women Should Not Use Cannabis, New Medical Guidelines Say**\
 `Marijuana during pregnancy is linked to poor birth outcomes and developmental delays in children, a leading medical society advised.`\
 https://nytimes.com/2025/09/19/health/pregnancy-cannabis-marijuana-guidelines.html
-
-**Jack Daniels, Olympic Medalist and ‘World’s Best’ Running Coach, Dies at 92**\
-`Tutoring Olympians, he created a simple workout formula that was said to produce the best results with the least effort, earning accolades across the running world.`\
-https://nytimes.com/2025/09/19/sports/jack-daniels-dead.html
 
