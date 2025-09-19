@@ -1,3 +1,7 @@
+**Awkward reunion, compelling chess match ahead for Caleb Williams and Matt Eberflus**\
+`Eberflus’ main task Sunday for the Cowboys will be to frustrate the Bears quarterback he was responsible for developing last season.`\
+https://nytimes.com/athletic/6642240/2025/09/19/bears-caleb-williams-matt-eberflus-cowboys/
+
 **Notre Dame-Purdue predictions: Can the Irish defense get on track?**\
 `The most important item on Notre Dame’s to-do list on Saturday afternoon is figuring out what the defense can actually do well.`\
 https://nytimes.com/athletic/6643887/2025/09/19/notre-dame-purdue-predictions-matchups/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/19/business/dealbook/jimmy-kimmel-trump-disney-carr.
 **How fixable are Cowboys' defensive issues? Eliminating major plays tops list**\
 `If the Cowboys continue playing defense the way they did last week against the Giants, they'll be picking in the top 10 of the 2026 draft.`\
 https://nytimes.com/athletic/6643486/2025/09/19/cowboys-defense-big-plays-secondary/
-
-**How to watch Liverpool vs. Everton from the U.S.: Merseyside derby returns to Anfield**\
-`This Saturday marks the 247th edition of the Merseyside derby. Will Liverpool pull off another thrilling victory?`\
-https://nytimes.com/athletic/6642252/2025/09/19/liverpool-vs-everton-merseyside-derby-how-to-watch-us/
 

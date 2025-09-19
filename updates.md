@@ -1,3 +1,7 @@
+**Awkward reunion, compelling chess match ahead for Caleb Williams and Matt Eberflus**\
+`Eberflus’ main task Sunday for the Cowboys will be to frustrate the Bears quarterback he was responsible for developing last season.`\
+https://nytimes.com/athletic/6642240/2025/09/19/bears-caleb-williams-matt-eberflus-cowboys/
+
 **Notre Dame-Purdue predictions: Can the Irish defense get on track?**\
 `The most important item on Notre Dame’s to-do list on Saturday afternoon is figuring out what the defense can actually do well.`\
 https://nytimes.com/athletic/6643887/2025/09/19/notre-dame-purdue-predictions-matchups/
