@@ -1,6 +1,14 @@
+**Mary Roach on the Timeless Appeal of Weird Science**\
+`The popular science author, whose latest is “Replaceable You: Adventures in Human Anatomy,” discusses her approach to the stranger corners of scientific inquiry.`\
+https://nytimes.com/2025/09/19/books/review/podcast-mary-roach-interview.html
+
 **Taliban Bans Books by Women in Afghanistan’s Universities**\
 `More than 600 books, many of them written by women, are being purged, based on a contention that they conflict with Sharia principles.`\
 https://nytimes.com/2025/09/19/world/asia/taliban-ban-women-author-books.html
+
+**Meet the new Ralphie: Latest Colorado mascot to make debut Saturday**\
+`Ralphie VI, known as Ember, retired last month after four seasons due to “an indifference to running.”`\
+https://nytimes.com/athletic/6644891/2025/09/19/ralphie-vii-colorado-bison/
 
 **New to the Fed, Miran Defends Calls for Sharper Reduction in Interest Rates**\
 `In his first comments since joining the Federal Reserve Board, Stephen Miran sought to emphasize his independence from the White House.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6644758/2025/09/19/pinto-senators-contract-extensio
 **Astros to activate Isaac Paredes prior to series against Mariners: Source**\
 `During Parades' 55-game absence, the Astros’ lineup struggled to score runs with any consistency.`\
 https://nytimes.com/athletic/6644783/2025/09/19/astros-activate-isaac-paredes/
-
-**Judge Dismisses Trump’s Lawsuit Against The New York Times**\
-`The judge said that the complaint failed to contain a “short and plain statement of the claim.” Mr. Trump has 28 days to refile.`\
-https://nytimes.com/2025/09/19/business/media/trump-new-york-times-lawsuit.html
-
-**Trump Administration Petitions Supreme Court on Passport Gender Policy**\
-`The administration asked the justices to lift a lower court block on a policy requiring passports to reflect only the holder’s sex on an original birth certificate.`\
-https://nytimes.com/2025/09/19/us/politics/trump-administration-gender-passports.html
 
