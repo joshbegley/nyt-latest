@@ -1,3 +1,7 @@
+**While calls for Jaxson Dart have quieted, Russell Wilson must prove vintage game was no fluke**\
+`Last week's moon-ball barrage set a blueprint for what the Giants hope their offense can be, but KC will be a tougher test than Dallas.`\
+https://nytimes.com/athletic/6643272/2025/09/19/ny-giants-russell-wilson-jaxson-dart-chiefs/
+
 **Noah Lyles matches a Usain Bolt record with fourth straight 200-meter world title**\
 `The American Lyles, on Friday in Tokyo, joined the Jamaican legend with his fourth straight world title over 200 meters.`\
 https://nytimes.com/athletic/6644208/2025/09/19/noah-lyles-200-meter-world-championships-usain-bolt/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6644078/2025/09/19/wolves-strand-larsen-contract-ne
 **What Phillies prospect Andrew Painter learned from an up-and-down 2025 season**\
 `Painter didn't make it to the majors. But he is 118 innings wiser, 118 innings closer to his debut and helping Philly in future Octobers.`\
 https://nytimes.com/athletic/6642141/2025/09/19/andrew-painter-phillies-2025-season/
-
-**MLB playoff watch: Dodgers closing in on postseason berth; bracket, clinching scenarios**\
-`With Clayton Kershaw on the mound to make his the final regular-season home start of his career, the Dodgers could clinch a playoff berth.`\
-https://nytimes.com/athletic/6643397/2025/09/19/mlb-playoff-watch-2025-dodgers-clinching-possibilities/
 
