@@ -1,3 +1,7 @@
+**Penguins' Evgeni Malkin: 'If it's my last year here, I want to show everything'**\
+`Malkin wants to finish his career in Pittsburgh but hasn't shot down the possibility of playing elsewhere. `\
+https://nytimes.com/athletic/6644417/2025/09/19/penguins-evgeni-malkin-retirement-nhl-contract/
+
 **Heat's Tyler Herro will be sidelined to start season following surgery**\
 `The 25-year-old is coming off his first All-Star appearance and is eligible to sign a contract extension next month.`\
 https://nytimes.com/athletic/6644450/2025/09/19/tyler-herro-injury-foot-heat/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/09/19/world/europe/1982-paris-attack-antisemitism-arres
 **House Passes Spending Extension That Democrats Vow to Block**\
 `Republicans pushed through a measure to avert a shutdown, but Democrats plan to block it in the Senate, demanding more than $1 trillion for health programs.`\
 https://nytimes.com/2025/09/19/us/politics/house-spending-extension.html
-
-**Why Leclerc is so good in Baku. Plus, Ferrari leads the early F1 action in Azerbaijan**\
-`Ferrari driver Charles Leclerc has an impressive record of pole positions at the Azerbaijan GP, but he's endured much heartache in Baku too`\
-https://nytimes.com/athletic/6644216/2025/09/19/charles-leclerc-baku-record/
 

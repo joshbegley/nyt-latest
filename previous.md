@@ -1,3 +1,7 @@
+**Heat's Tyler Herro will be sidelined to start season following surgery**\
+`The 25-year-old is coming off his first All-Star appearance and is eligible to sign a contract extension next month.`\
+https://nytimes.com/athletic/6644450/2025/09/19/tyler-herro-injury-foot-heat/
+
 **Russian Fighter Jets Enter Airspace of Estonia, a NATO Member**\
 `Estonia’s foreign minister described the flights as an “unprecedented and brazen intrusion.”`\
 https://nytimes.com/2025/09/19/world/europe/russian-fighter-jets-estonia-nato.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/09/19/us/politics/house-spending-extension.html
 **Why Leclerc is so good in Baku. Plus, Ferrari leads the early F1 action in Azerbaijan**\
 `Ferrari driver Charles Leclerc has an impressive record of pole positions at the Azerbaijan GP, but he's endured much heartache in Baku too`\
 https://nytimes.com/athletic/6644216/2025/09/19/charles-leclerc-baku-record/
-
-**Day 1 with the Ducks for Joel Quenneville: 'Pace and purpose' but no Mason McTavish**\
-`The McTavish contract stalemate is not the ideal way for Quenneville to begin. But it didn’t dim the joy he longed for.`\
-https://nytimes.com/athletic/6643422/2025/09/19/anaheim-ducks-joel-quenneville-mason-mctavish/
 

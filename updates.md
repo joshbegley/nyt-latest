@@ -1,3 +1,7 @@
+**Heat's Tyler Herro will be sidelined to start season following surgery**\
+`The 25-year-old is coming off his first All-Star appearance and is eligible to sign a contract extension next month.`\
+https://nytimes.com/athletic/6644450/2025/09/19/tyler-herro-injury-foot-heat/
+
 **Russian Fighter Jets Enter Airspace of Estonia, a NATO Member**\
 `Estonia’s foreign minister described the flights as an “unprecedented and brazen intrusion.”`\
 https://nytimes.com/2025/09/19/world/europe/russian-fighter-jets-estonia-nato.html
