@@ -1,3 +1,7 @@
+**Man Utd Women's historic Champions League qualification does not hide calls for more spending**\
+`United have overcome the odds to reach their first Champions League group stage`\
+https://nytimes.com/athletic/6642371/2025/09/19/man-utd-women-champions-league-qualification-journey/
+
 **Taliban Rebuffs Trump’s Effort to Regain Air Base in Afghanistan**\
 `An Afghan official rejected the idea of a renewed presence for the U.S. military in the country, but left the door open for “political and economic relations.”`\
 https://nytimes.com/2025/09/19/world/asia/trump-bagram-taliban.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/19/crosswords/spelling-bee-forum.html
 **How Xi Is Using a TikTok Tradeoff to Court Trump**\
 `Agreeing to a deal suggests that the fate of TikTok matters less to Beijing than gaining leverage on issues it cares most about, like tariffs, technology and Taiwan.`\
 https://nytimes.com/2025/09/19/world/asia/tiktok-xi-trump-china.html
-
-**Late Night Responds to Jimmy Kimmel’s Suspension**\
-`Jon Stewart made a special appearance hosting Thursday’s “Daily Show” to address the situation.`\
-https://nytimes.com/2025/09/19/arts/television/late-night-jimmy-kimmel-suspension.html
 
