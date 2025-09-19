@@ -1,3 +1,23 @@
+**Trump Asks the Supreme Court, Again, to Lift Protections for Venezuelans**\
+`The solicitor general accused a federal trial judge of defying an earlier order from the justices, though one that provided no reasoning.`\
+https://nytimes.com/2025/09/19/us/trump-supreme-court-protections-venezuelans.html
+
+**What the TikTok Deal Means for U.S.-China Relations**\
+`What could a TikTok deal mean for the relationship between the U.S. and China? Katrin Bennhold discusses with Lily Kuo, a New York Times reporter covering China`\
+https://nytimes.com/video/world/asia/100000010407536/what-the-tiktok-deal-means-for-us-china-relations.html
+
+**Sabres training camp: Levi's added fire, Ruff's belief in Samuelsson and more**\
+`Plus, Zach Benson's fit on the Sabres' top line and why Zac Jones is making an impression as a depth defender.`\
+https://nytimes.com/athletic/6645240/2025/09/19/sabres-training-camp-levi-ruff-samuelsson/
+
+**Senate Confirms Michael Waltz as U.N. Ambassador**\
+`The former national security adviser came under fire for inadvertently inviting a journalist to a Signal chat in which he and other top officials discussed war plans.`\
+https://nytimes.com/2025/09/19/us/politics/senate-michael-waltz-un-ambassador.html
+
+**Remains Believed to Belong to Man Who Killed 3 Daughters Are Found**\
+`A search team recovered remains believed to be those of Travis Decker in a forest about 120 miles east of Seattle, the authorities said.`\
+https://nytimes.com/2025/09/19/us/travis-decker-remains-found-washington-state.html
+
 **Noah Lyles, Melissa Jefferson-Wooden cap a strong worlds for U.S. sprinters**\
 `This could've been a sluggish world championships for American sprinters. Instead, they'll walk away with six golds in 10 individual events.`\
 https://nytimes.com/athletic/6644869/2025/09/19/noah-lyles-melissa-jefferson-wooden-world-championships-us-sprinters/
@@ -13,28 +33,4 @@ https://nytimes.com/2025/09/19/opinion/vaccines-kennedy-acip-monarez.html
 **Trump Nears Deal for Road Through Alaskan Wildlife Refuge**\
 `Proponents say the road would connect a remote town with an airport used for medical evacuations. Opponents say it would cause irreparable harm to wildlife and Alaska Native tribes.`\
 https://nytimes.com/2025/09/19/climate/trump-deal-izembek-national-wildlife-refuge-alaska.html
-
-**Uber for Business: Driving Growing Brands**\
-`On any given morning, Amrita Bhasin wakes up ready to hop on a flight and make a sale with a new client.`\
-https://nytimes.com/paidpost/uber-for-business/uber-for-business-driving-growing-brands.html
-
-**Heavy Rain Brings Mudslides and Flash Floods to Southern California**\
-`A toddler was missing after he and his father were swept off the road in their vehicle by floodwaters. Officials were still assessing the damage.`\
-https://nytimes.com/2025/09/19/weather/southern-california-mudslides-rain.html
-
-**After 50 Years, the Magic Circle (Finally) Inducts Penn & Teller**\
-`There had been resistance to admitting the duo because of their willingness to reveal the secrets behind their illusions. But it was always more complicated than that.`\
-https://nytimes.com/2025/09/19/arts/penn-teller-magic-circle.html
-
-**Gov. Spencer Cox on the Trump Administration’s Crackdown**\
-`“It’s going to take more speech and more sunlight and more disagreement” to fight political violence, says Gov. Spencer Cox of Utah.`\
-https://nytimes.com/video/opinion/100000010407663/gov-spencer-cox-on-the-trump-administrations-crackdown.html
-
-**Harvard’s Former President Criticizes Its Approach to Trump**\
-`Claudine Gay has rarely spoken out since she was forced to resign, but she recently said that Harvard should not cave to Trump administration demands, including a $500 million payment.`\
-https://nytimes.com/2025/09/19/us/harvard-claudine-gay-trump.html
-
-**Pregnant Women Should Not Use Cannabis, New Medical Guidelines Say**\
-`Marijuana during pregnancy is linked to poor birth outcomes and developmental delays in children, a leading medical society advised.`\
-https://nytimes.com/2025/09/19/health/pregnancy-cannabis-marijuana-guidelines.html
 
