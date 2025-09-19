@@ -1,3 +1,11 @@
+**To contend with Eagles, Rams must solve their Saquon Barkley problem**\
+`Barkley had over 200 rushing yards in both games against the Rams last season, including in the NFC divisional round. `\
+https://nytimes.com/athletic/6642172/2025/09/19/rams-eagles-saquon-barkley/
+
+**How Motor City Cruise offers local hoopers an opportunity for $250 and a dream**\
+`"There are always talented guys that sort of slip through the cracks," Cruise GM Max Unger says of the G League tryout opportunity.`\
+https://nytimes.com/athletic/6639442/2025/09/19/motor-city-cruise-pistons-john-ukomadu-g-league/
+
 **What Jimmy Kimmel’s Suspension Says About Free Speech**\
 `President Trump’s allies now argue that the freedom of speech doesn’t let you say anything you want.`\
 https://nytimes.com/2025/09/19/us/jimmy-kimmel-free-speech.html
