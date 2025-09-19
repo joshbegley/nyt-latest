@@ -1,3 +1,7 @@
+**Trump Warns Television Broadcasters Critical of Him**\
+`President Trump told reporters on Air Force One that regulators should consider revoking the licenses of broadcasters that criticize him.`\
+https://nytimes.com/video/us/100000010409027/trump-fcc-licenses.html
+
 **Jackie Young, A'ja Wilson carry Aces past Storm, into WNBA semifinals**\
 `Las Vegas has advanced to the semifinal round of the playoffs for the eighth straight season.`\
 https://nytimes.com/athletic/6643252/2025/09/19/las-vegas-aces-seattle-storm-wnba-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6640222/2025/09/19/nottingham-forest-uefa-spending-
 **Leeds do not look like they will be prolific, but can they still stay up?**\
 `Leeds have scored one goal in four games so far this season. But an example from their past could make them optimistic`\
 https://nytimes.com/athletic/6641293/2025/09/19/leeds-united-goals-analysis-premier-league/
-
-**Are Guardiola and Arteta copying each other – or adapting to the rest of the Premier League?**\
-`Both Pep Guardiola and Mikel Arteta have changed their styles and ways of operating in recent years, but is it because of the other?`\
-https://nytimes.com/athletic/6640295/2025/09/19/mikel-arteta-pep-guardiola-tactical-analysis-changes/
 
