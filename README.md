@@ -1,3 +1,7 @@
+**Taliban Rebuffs Trump’s Effort to Regain Air Base in Afghanistan**\
+`An Afghan official rejected the idea of a renewed presence for the U.S. military in the country, but left the door open for “political and economic relations.”`\
+https://nytimes.com/2025/09/19/world/asia/trump-bagram-taliban.html
+
 **Sweden named as SailGP's new team for 2026 season**\
 `Artemis SailGP is owned by Swedish billionaire Torbjorn Tornqvist who has bought the team outright. `\
 https://nytimes.com/athletic/6640446/2025/09/19/sail-gp-sweden-team-announcement/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/19/world/asia/tiktok-xi-trump-china.html
 **Late Night Responds to Jimmy Kimmel’s Suspension**\
 `Jon Stewart made a special appearance hosting Thursday’s “Daily Show” to address the situation.`\
 https://nytimes.com/2025/09/19/arts/television/late-night-jimmy-kimmel-suspension.html
-
-**How to watch Cubs at Reds: Time, TV, streaming for September 19**\
-`Find out how to watch the Chicago Cubs play the Cincinnati Reds, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6643479/2025/09/19/cubs-vs-reds-stream-how-to-watch-sept-19/
 
