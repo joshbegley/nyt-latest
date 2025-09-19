@@ -1,40 +1,40 @@
-**‘HIM’ | Anatomy of a Scene**\
-`The director Justin Tipping narrates a scene from “HIM,” featuring Marlon Wayans and Tyriq Withers.`\
-https://nytimes.com/video/movies/100000010408180/him-scene.html
+**Should I Watch a TV Show Recommended by My Robot Vacuum?**\
+`A ruling on an unusual source of viewing advice.`\
+https://nytimes.com/interactive/2025/09/19/magazine/vacuum-show-hodgman-quiz.html
 
-**Man Utd Women's historic Champions League qualification does not hide calls for more spending**\
-`United have overcome the odds to reach their first Champions League group stage`\
-https://nytimes.com/athletic/6642371/2025/09/19/man-utd-women-champions-league-qualification-journey/
+**These New Yorkers Know the Candidate They’ll ‘Never’ Vote For**\
+`The New York Times/Siena poll asked “Never Mamdani” and “Never Cuomo” voters to explain their reasoning. See their responses.`\
+https://nytimes.com/interactive/2025/09/19/nyregion/election-mamdani-cuomo.html
 
-**Taliban Rebuffs Trump’s Effort to Regain Air Base in Afghanistan**\
-`An Afghan official rejected the idea of a renewed presence for the U.S. military in the country, but left the door open for “political and economic relations.”`\
-https://nytimes.com/2025/09/19/world/asia/trump-bagram-taliban.html
+**Trump Has Freedom of Speech. Do You?**\
+`If the American ideal of freedom means anything, it is that we can engage in an extremely wide range of political speech, including the tasteless and the offensive.`\
+https://nytimes.com/2025/09/19/opinion/trump-freedom-of-speech-crackdown-kimmel.html
 
-**Sweden named as SailGP's new team for 2026 season**\
-`Artemis SailGP is owned by Swedish billionaire Torbjorn Tornqvist who has bought the team outright. `\
-https://nytimes.com/athletic/6640446/2025/09/19/sail-gp-sweden-team-announcement/
+**What Charlie Kirk Could Mean for the Future of Marriage and Family**\
+`Erika Kirk said her husband aspired to “revive the American family.” Conservative activists wonder if Charlie Kirk’s legacy will lend new urgency to White House policy discussions.`\
+https://nytimes.com/2025/09/19/us/politics/charlie-kirk-erika-family-marriage-children.html
 
-**Tim Lewis to leave position as Arsenal executive vice-chair**\
-`Managing director Richard Garlick is set to become CEO in a significant shake-up of the club's board`\
-https://nytimes.com/athletic/6618741/2025/09/19/arsenal-tim-lewis-leave-position/
+**Farm Aid Turns 40 and Returns to Crisis Mode**\
+`Saturday’s star-studded concert will air on TV for the first time in years as the hotline for farmers gets more calls about a mix of complicated problems.`\
+https://nytimes.com/2025/09/19/business/farm-aid-40-concert-farmers-crisis-hotline.html
 
-**Curiosity Summons a Reporter to an Island Known for the Occult**\
-`A reporter traveled to a remote island in the Philippines to witness a festival unlike any other.`\
-https://nytimes.com/2025/09/19/insider/philippines-siquijor-island-festival.html
+**Combs Sentencing Focuses Attention on Prostitution Law From 1910**\
+`Acquitted of more serious charges, Sean Combs was found guilty of violating a law enacted during a panic over “white slavery” that is now a common tool in sex crimes prosecutions.`\
+https://nytimes.com/2025/09/19/arts/music/combs-sentencing-focuses-attention-on-prostitution-law-from-1910.html
 
-**Mayor Adams Had a Mixed Year, Annual N.Y.C. Report Shows**\
-`The Mayor’s Management Report, a trove of statistics about crime rates, public health and many other issues, arrived at the tail end of Mayor Eric Adams’s re-election campaign.`\
-https://nytimes.com/2025/09/19/nyregion/nyc-report-eric-adams-mayoral-election.html
+**Spencer Cox Wants to Pull Our Politics Back From the Brink**\
+`The Utah governor is trying to model a different kind of leadership in a very dangerous political moment.`\
+https://nytimes.com/video/opinion/100000010406146/spencer-cox-wants-to-pull-our-politics-back-from-the-brink.html
 
-**Noisy Neighbors**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2025/09/19/learning/noisy-neighbors.html
+**This weekend, Julian Edelman becomes a Patriots Hall of Famer. Is Canton next?**\
+`With his incredible playoff performances and three Super Bowl titles, Edelman is a first-ballot Pats Hall of Famer. But does Canton await?`\
+https://nytimes.com/athletic/6641208/2025/09/19/julian-edelman-patriots-hall-of-fame-canton/
 
-**32 Years After a Brutal Murder, a Man Is on Trial. Again.**\
-`A judge vacated the convictions of two men accused of killing Deborah Meindl in her Tonawanda, N.Y., home. The district attorney is trying to convict them once more.`\
-https://nytimes.com/2025/09/19/nyregion/tonanwanda-murder-retrial.html
+**Five Free Movies to Stream Now**\
+`This month brings coming-of-age stories, from the directionless heroine of “The Worst Person in the World” to the abrasive film fanatic in “I Like Movies.”`\
+https://nytimes.com/2025/09/19/movies/five-free-movies-to-stream-now.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/09/19/crosswords/spelling-bee-forum.html
+**The Discount Data That Some Colleges Still Won’t Publish**\
+`The Common Data Set can help prospective students know how much aid they could get to pay for college. Why don’t all schools provide it?`\
+https://nytimes.com/2025/09/19/business/common-data-set-colleges-financial-aid.html
 
