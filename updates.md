@@ -1,3 +1,7 @@
+**Trump Administration Petitions Supreme Court on Passport Gender Policy**\
+`The administration asked the justices to lift a lower court block on a policy requiring passports to reflect only the holder’s sex on an original birth certificate.`\
+https://nytimes.com/2025/09/19/us/politics/trump-administration-gender-passports.html
+
 **At Heidi Klum’s Oktoberfest, Free-Flowing Beer and Lederhosen**\
 `Ms. Klum hosted her first “Heidi Fest” in Munich, a night of unadulterated German fun.`\
 https://nytimes.com/2025/09/19/style/heidifest-klum-munich-germany.html
