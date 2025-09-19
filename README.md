@@ -1,3 +1,7 @@
+**To contend with Eagles, Rams must solve their Saquon Barkley problem**\
+`Barkley had over 200 rushing yards in both games against the Rams last season, including in the NFC divisional round. `\
+https://nytimes.com/athletic/6642172/2025/09/19/rams-eagles-saquon-barkley/
+
 **What Jimmy Kimmel’s Suspension Says About Free Speech**\
 `President Trump’s allies now argue that the freedom of speech doesn’t let you say anything you want.`\
 https://nytimes.com/2025/09/19/us/jimmy-kimmel-free-speech.html
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/6639185/2025/09/19/nfl-week-3-schedule-bears-cowboy
 `Peter and Barbie Reynolds, 80 and 76, ran a training program in Afghanistan. They chose to remain after the Taliban takeover in 2021.`\
 https://nytimes.com/2025/09/19/world/asia/aghanistan-taliban-britain-detained-couple.html
 
-**How John Ukomadu capitalized on a local tryout with Motor City Cruise**\
+**How Motor City Cruise offers local hoopers an opportunity for $250 and a dream**\
 `"There are always talented guys that sort of slip through the cracks," Cruise GM Max Unger says of the G League tryout opportunity.`\
 https://nytimes.com/athletic/6639442/2025/09/19/motor-city-cruise-pistons-john-ukomadu-g-league/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6642121/2025/09/19/nhl-jets-camp-scott-arniel-stanl
 **Who's in first? That depends. Looking at this year's playoff races under older formats**\
 `The two-division era, the wild-card era, the play-in era and others all had their pros and cons when it came to creating exciting races.`\
 https://nytimes.com/athletic/6642241/2025/09/19/mlb-playoff-formats-past-eras/
-
-**Sliders: In his prime, Clayton Kershaw mastered the 'high-quality start'. As he leaves the stage, it's a lost art**\
-`Plus the biggest critic of 'The Natural,' Twins starter Joe Ryan's command tips and more.`\
-https://nytimes.com/athletic/6640876/2025/09/19/clayton-kershaw-dodgers-sliders-joe-ryan/
 
