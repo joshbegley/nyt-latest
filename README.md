@@ -1,3 +1,7 @@
+**Noah Lyles matches a Usain Bolt record with fourth straight 200-meter world title**\
+`The American Lyles, on Friday in Tokyo, joined the Jamaican legend with his fourth straight world title over 200 meters.`\
+https://nytimes.com/athletic/6644208/2025/09/19/noah-lyles-200-meter-world-championships-usain-bolt/
+
 **Barcelona's La Liga salary limit reduced by €112m**\
 `The drop is mostly due to issues over the ‘VIP zones’ lever at its Camp Nou stadium.`\
 https://nytimes.com/athletic/6644087/2025/09/19/barcelona-la-liga-salary-limit/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6642141/2025/09/19/andrew-painter-phillies-2025-sea
 **MLB playoff watch: Dodgers closing in on postseason berth; bracket, clinching scenarios**\
 `With Clayton Kershaw on the mound to make his the final regular-season home start of his career, the Dodgers could clinch a playoff berth.`\
 https://nytimes.com/athletic/6643397/2025/09/19/mlb-playoff-watch-2025-dodgers-clinching-possibilities/
-
-**Europe Announces New Sanctions to Ramp Up Pressure on Russia**\
-`The latest set of European Union restrictions are aimed at chipping away at Russia’s energy profits and ability to do business globally.`\
-https://nytimes.com/2025/09/19/world/europe/eu-sanctions-russia-ukraine.html
 
