@@ -1,3 +1,7 @@
+**Russian Fighter Jets Enter Airspace of Estonia, a NATO Member**\
+`Estonia’s foreign minister described the flights as an “unprecedented and brazen intrusion.”`\
+https://nytimes.com/2025/09/19/world/europe/russian-fighter-jets-estonia-nato.html
+
 **How to Cook (Better) With Butternut Squash**\
 `These seven tips from Ali Slagle will make sure every day of squash season is a good one.`\
 https://nytimes.com/2025/09/19/dining/butternut-squash-recipe.html
