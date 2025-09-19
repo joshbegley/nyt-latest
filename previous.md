@@ -1,3 +1,23 @@
+**Jim Edgar, 79, Popular and Moderate Republican Governor of Illinois, Dies**\
+`In the 1990s, he compromised with Democrats, backed abortion rights, increased spending for schools and used an income-tax hike to help tame a huge budget deficit.`\
+https://nytimes.com/2025/09/19/us/politics/jim-edgar-dead.html
+
+**Yohe: Sergei Murashov is turning heads, and more of what I'm seeing at Penguins camp**\
+`Murashov, the Penguins' fourth-round pick in 2022, has put on a show in net in the early days of training camp.`\
+https://nytimes.com/athletic/6644894/2025/09/19/penguins-training-camp-sergei-murashov/
+
+**Good riddance to Clayton Kershaw's dominance against the Giants**\
+`Since the Dead Ball era ended, no pitcher has dominated a single team like Kershaw dominated the Giants. Giants fans won't miss him.`\
+https://nytimes.com/athletic/6644517/2025/09/19/clayton-kershaw-retirement-sf-giants-dominance/
+
+**Heavy Rain Triggers Mudslides, Flash Floods in Southern California**\
+`A two-year-old is missing after floodwaters swept a car off the road. Several homes in San Bernardino County have also been destroyed.`\
+https://nytimes.com/video/weather/100000010410304/southern-california-mudslides-rain.html
+
+**‘Haunted Hotel’: A Domestic Dramedy Meets ‘The Shining’**\
+`This animated series from a “Rick and Morty” alumnus debuts Friday on Netflix.`\
+https://nytimes.com/2025/09/19/arts/television/haunted-hotel-netflix.html
+
 **Trump Asks the Supreme Court, Again, to Lift Protections for Venezuelans**\
 `The solicitor general accused a federal trial judge of defying an earlier order from the justices, though one that provided no reasoning.`\
 https://nytimes.com/2025/09/19/us/trump-supreme-court-protections-venezuelans.html
@@ -13,24 +33,4 @@ https://nytimes.com/athletic/6645240/2025/09/19/sabres-training-camp-levi-ruff-s
 **Senate Confirms Michael Waltz as U.N. Ambassador**\
 `The former national security adviser came under fire for inadvertently inviting a journalist to a Signal chat in which he and other top officials discussed war plans.`\
 https://nytimes.com/2025/09/19/us/politics/senate-michael-waltz-un-ambassador.html
-
-**Remains Believed to Belong to Man Who Killed 3 Daughters Are Found**\
-`A search team recovered remains believed to be those of Travis Decker in a forest about 120 miles east of Seattle, the authorities said.`\
-https://nytimes.com/2025/09/19/us/travis-decker-remains-found-washington-state.html
-
-**Noah Lyles, Melissa Jefferson-Wooden cap a strong worlds for U.S. sprinters**\
-`This could've been a sluggish world championships for American sprinters. Instead, they'll walk away with six golds in 10 individual events.`\
-https://nytimes.com/athletic/6644869/2025/09/19/noah-lyles-melissa-jefferson-wooden-world-championships-us-sprinters/
-
-**Nicholas Grimshaw, 85, Dies; British Architect Known for High-Tech Designs**\
-`He melded his country’s history of engineering and industrial design with a modern sensibility to help shape the face of 21st-century Britain.`\
-https://nytimes.com/2025/09/19/arts/design/nicholas-grimshaw-dead.html
-
-**The Confusing Mess at the Vaccine Meeting**\
-`We definitely need to restore America’s trust in vaccines, but the amateur hour A.C.I.P. display isn’t going to do it.`\
-https://nytimes.com/2025/09/19/opinion/vaccines-kennedy-acip-monarez.html
-
-**Trump Nears Deal for Road Through Alaskan Wildlife Refuge**\
-`Proponents say the road would connect a remote town with an airport used for medical evacuations. Opponents say it would cause irreparable harm to wildlife and Alaska Native tribes.`\
-https://nytimes.com/2025/09/19/climate/trump-deal-izembek-national-wildlife-refuge-alaska.html
 
