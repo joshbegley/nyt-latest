@@ -1,3 +1,7 @@
+**House Passes Spending Extension That Democrats Vow to Block**\
+`Republicans pushed through a measure to avert a shutdown, but Democrats plan to block it in the Senate, demanding more than $1 trillion for health programs.`\
+https://nytimes.com/2025/09/19/us/politics/house-spending-extension.html
+
 **Why Leclerc is so good in Baku. Plus, Ferrari leads the early F1 action in Azerbaijan**\
 `Ferrari driver Charles Leclerc has an impressive record of pole positions at the Azerbaijan GP, but he's endured much heartache in Baku too`\
 https://nytimes.com/athletic/6644216/2025/09/19/charles-leclerc-baku-record/

@@ -1,3 +1,7 @@
+**House Passes Spending Extension That Democrats Vow to Block**\
+`Republicans pushed through a measure to avert a shutdown, but Democrats plan to block it in the Senate, demanding more than $1 trillion for health programs.`\
+https://nytimes.com/2025/09/19/us/politics/house-spending-extension.html
+
 **Why Leclerc is so good in Baku. Plus, Ferrari leads the early F1 action in Azerbaijan**\
 `Ferrari driver Charles Leclerc has an impressive record of pole positions at the Azerbaijan GP, but he's endured much heartache in Baku too`\
 https://nytimes.com/athletic/6644216/2025/09/19/charles-leclerc-baku-record/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6644218/2025/09/19/clayton-kershaw-retirement-the-w
 **Melissa Jefferson-Wooden caps historic sprint double with 200-meter world title**\
 `The American on Friday added 200-meter gold to her 100-meter crown, the first world-championship women's double in the events since 2013.`\
 https://nytimes.com/athletic/6644277/2025/09/19/melissa-jefferson-wooden-200-meter-gold-sprint-double-world-championships/
-
-**Can’t Find That Coat You Saw? Or That Sofa? Or That Hat? Get in Touch!**\
-`In our new series, we help readers track down the objects and styles they can’t stop thinking about.`\
-https://nytimes.com/article/style-detective-submission.html
 
