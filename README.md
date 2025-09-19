@@ -1,9 +1,13 @@
+**Cade Horton: Why wouldn't he be the Cubs' Game 1 playoff starter?**\
+`“I love pitching in high-stakes moments,” Horton said. “It’s a lot of fun to go out there and compete when you’re in the thick of it.”`\
+https://nytimes.com/athletic/6643153/2025/09/18/cade-horton-cubs-game-1-playoff-starter/
+
 **Bills vs. Dolphins takeaways: Did Miami quiet McDaniel firing rumors despite loss?**\
-`The Dolphins to 0-3, but a game that was too close for too long — for the Bills — might've prolonged McDaniels' job security.`\
+`The Dolphins drop to 0-3, but a game that was too close for too long — for the Bills — might've prolonged McDaniel's job security.`\
 https://nytimes.com/athletic/6642981/2025/09/18/dolphins-bills-score-result-takeaways-thursday-night-football/
 
 **Cubs rookie Ballesteros OK after being struck in helmet by deflected 105-mph line drive**\
-`CINCINNATI — Chicago Cubs rookie Moisés Ballesteros said he felt fine after taking a 105-mph line drive off the helmet in Thursday’s game against the Cincinnati Reds.`\
+`“When the ball hit my helmet, I felt a little bit nervous,” Moisés Ballesteros said after the Cubs’ 1-0 loss to the Reds.`\
 https://nytimes.com/athletic/6642921/2025/09/18/cubs-rookie-ballesteros-ok-helmet-hit/
 
 **Why now was the time for Clayton Kershaw to retire: 'I'm really at peace with this'**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6642751/2025/09/18/suter-mctavish-roslovic-free-age
 **Trump Pressures Broadcasters Over Critical Coverage, Escalating Attack on Speech**\
 `The president’s suggestion that broadcasters should lose their licenses because of criticism of him indicated that his assault on critics’ language is driven in part by personal animus.`\
 https://nytimes.com/2025/09/18/us/politics/trump-fcc-licenses.html
-
-**Texas A&M President to Step Down After Controversy Over ‘Gender Ideology’**\
-`The university had been roiled after a student filmed herself arguing with the instructor of a children’s literature course that recognized more than two genders.`\
-https://nytimes.com/2025/09/18/us/texas-am-president-gender-ideology-controversy.html
 

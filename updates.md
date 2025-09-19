@@ -1,3 +1,7 @@
+**Bills vs. Dolphins takeaways: Did Miami quiet McDaniel firing rumors despite loss?**\
+`The Dolphins to 0-3, but a game that was too close for too long — for the Bills — might've prolonged McDaniels' job security.`\
+https://nytimes.com/athletic/6642981/2025/09/18/dolphins-bills-score-result-takeaways-thursday-night-football/
+
 **Cubs rookie Ballesteros OK after being struck in helmet by deflected 105-mph line drive**\
 `CINCINNATI — Chicago Cubs rookie Moisés Ballesteros said he felt fine after taking a 105-mph line drive off the helmet in Thursday’s game against the Cincinnati Reds.`\
 https://nytimes.com/athletic/6642921/2025/09/18/cubs-rookie-ballesteros-ok-helmet-hit/
