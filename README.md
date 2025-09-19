@@ -1,3 +1,11 @@
+**The New York Times in Print for Friday, Sep. 19, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/19/todays-new-york-times
+
+**The Arab Spring Gets a Reboot in Asia**\
+`A leaderless, connected and powerful Gen Z is rewriting Asia’s political playbook.`\
+https://nytimes.com/2025/09/19/opinion/asia-protest-youth-nepal-bangladesh.html
+
 **Trump Warns Television Broadcasters Critical of Him**\
 `President Trump told reporters on Air Force One that regulators should consider revoking the licenses of broadcasters that criticize him.`\
 https://nytimes.com/video/us/100000010409027/trump-fcc-licenses.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6631392/2025/09/19/bradford-city-pecked-by-the-chic
 **Aston Villa, the Premier League's oldest squad and a need for Emery to change his approach**\
 `Aston Villa have tended to sign players to win now. That might have to change as they evolve their squad`\
 https://nytimes.com/athletic/6630497/2025/09/19/aston-villa-oldest-squad-premier-league-analysis/
-
-**Forest and UEFA spending rules explained: Might they breach them? What would that mean?**\
-`It is projected Forest will end up on the wrong side of the regulations, but this has not been confirmed officially and won't be for a while`\
-https://nytimes.com/athletic/6640222/2025/09/19/nottingham-forest-uefa-spending-rules-analysis/
-
-**Leeds do not look like they will be prolific, but can they still stay up?**\
-`Leeds have scored one goal in four games so far this season. But an example from their past could make them optimistic`\
-https://nytimes.com/athletic/6641293/2025/09/19/leeds-united-goals-analysis-premier-league/
 
