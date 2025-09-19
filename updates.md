@@ -1,3 +1,11 @@
+**Can’t Find That Coat You Saw? Or That Sofa? Or That Hat? Get in Touch!**\
+`In our new series, we help readers track down the objects and styles they can’t stop thinking about.`\
+https://nytimes.com/article/style-detective-submission.html
+
+**Forest's Postecoglou not concerned by 'constant' negativity around him**\
+`Meanwhile, defender Murillo is a doubt for the trip to Burnley but Nico Dominguez is close to returning to full training.`\
+https://nytimes.com/athletic/6644225/2025/09/19/ange-postecoglou-nottingham-forest-burnley/
+
 **While calls for Jaxson Dart have quieted, Russell Wilson must prove vintage game was no fluke**\
 `Last week's moon-ball barrage set a blueprint for what the Giants hope their offense can be, but KC will be a tougher test than Dallas.`\
 https://nytimes.com/athletic/6643272/2025/09/19/ny-giants-russell-wilson-jaxson-dart-chiefs/
