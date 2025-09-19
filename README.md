@@ -1,3 +1,15 @@
+**Maresca plays down Sterling, Disasi situations at Chelsea**\
+`"I have been in Raheem and Axel’s situation as a player. For sure, I know it is not the best feeling," Maresca said on Friday.`\
+https://nytimes.com/athletic/6643804/2025/09/19/chelsea-sterling-disasi-maresca/
+
+**How Senators are managing 'big' expectations for new season: 'It can be a lot'**\
+`Making the playoffs was last year's goal for the Sens. Expectations have changed for this year's group. How will Ottawa meet the challenge?`\
+https://nytimes.com/athletic/6637344/2025/09/19/senators-expectations-tkachuk-batherson-sanderson/
+
+**A really, really big piece': Gavrikov brings Rangers needed shutdown presence**\
+`The six-year NHL veteran was one of the best defensive-defensemen in the league with Los Angeles in 2024-25.`\
+https://nytimes.com/athletic/6641504/2025/09/19/vladislav-gavrikov-new-york-rangers-future/
+
 **Battered but Undefeated, Hamas Remains a Fighting Force in Gaza**\
 `Some Israeli officials believe the military assault on Gaza City will deliver a decisive blow to the group, which continues to stage ambushes and guerrilla attacks.`\
 https://nytimes.com/2025/09/19/world/middleeast/hamas-remaining-in-gaza.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6640414/2025/09/19/pat-rafter-tennis-life-interview
 **'You are looking live': On Sunday, CBS throwing back to origins of 'The NFL Today'**\
 `The pioneering TV show will celebrate its 50th anniversary during Week 3 with guest appearances, retro graphics and 1970s fashion.`\
 https://nytimes.com/athletic/6631333/2025/09/19/cbs-nfl-today-brent-musberger-anniversary/
-
-**New Bears best-case scenario? Left tackle options? Mailbag plus Week 3 picks**\
-`Can the Bears get Ben Johnson his first win? It might have to come in a shootout. Check out this week's mailbag and our picks for Sunday.`\
-https://nytimes.com/athletic/6642230/2025/09/19/bears-mailbag-cowboys-best-case-scenario/
-
-**Chiefs usually have an easy button with Andy Reid's offense. It vanished last week**\
-`The Chiefs, in one stat, had their worst day in Patrick Mahomes' 134 starts in their loss to the Philadelphia Eagles.`\
-https://nytimes.com/athletic/6641143/2025/09/19/chiefs-receivers-yards-after-catch/
-
-**Hurzeler: Ayto will be 'embraced' at Brighton**\
-`The former Arsenal assistant and interim sporting director has replaced former technical director David Weir at Brighton.`\
-https://nytimes.com/athletic/6643766/2025/09/19/jason-ayto-brighton-fabian-hurzeler/
 

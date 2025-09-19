@@ -1,3 +1,8 @@
+**Is Matias Maccelli ready for prime time with the Maple Leafs?**\
+`At training camp, the Leafs want to see if newcomer Maccelli can hang on their No. 1 line alongside Auston Matthews and Matthew Knies.
+`\
+https://nytimes.com/athletic/6641692/2025/09/19/maple-leafs-matias-maccelli-training-camp/
+
 **Pat Rafter returns to tennis, but not for long: 'Life's too good here, mate'**\
 `The Australian does not live in the shadow of the tennis circuit in retirement, but a call from an old rival brought him to the Laver Cup.`\
 https://nytimes.com/athletic/6640414/2025/09/19/pat-rafter-tennis-life-interview/
