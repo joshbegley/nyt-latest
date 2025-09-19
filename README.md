@@ -1,3 +1,7 @@
+**Trump Administration Will End Deportation Protections for Thousands of Syrians**\
+`A homeland security official said it was “contrary to our national interest to allow Syrians to remain in our country.”`\
+https://nytimes.com/2025/09/19/us/politics/temporary-protected-status-syrians.html
+
 **18-Year-Old Is Fatally Shot During F.B.I. and A.T.F. Operation in Pennsylvania**\
 `A medical examiner’s report said Kendric Curtis, 18, was “shot by law enforcement” on Thursday and died on Friday.`\
 https://nytimes.com/2025/09/19/us/atf-shooting-student-aliquippa-pennsylvania.html
@@ -11,7 +15,7 @@ https://nytimes.com/2025/09/19/science/earth-quasi-moon-asteroid.html
 https://nytimes.com/athletic/6631974/2025/09/19/maddy-cusack-sheffield-united-shirt-number/
 
 **A New Shot for Cancer Is Convenient, but Poised to Keep Prices High**\
-`Merck says an injected version of its blockbuster infusion Keytruda is quicker and easier. But it stands to slow the adoption of cheaper competitors, increasing costs by billions of dollars.`\
+`The F.D.A. approved Merck’s injected version of its blockbuster infusion Keytruda. The company says it will be quicker and easier, but it stands to slow the adoption of cheaper competitors and increase costs by billions of dollars.`\
 https://nytimes.com/2025/09/19/health/keytruda-merck-cancer-patents.html
 
 **Dolphins plan to talk to NFL over final play of first half against Bills**\
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/09/19/business/media/abc-nexstar-kimmel.htm
 **Mary Roach on the Timeless Appeal of Weird Science**\
 `The popular science author, whose latest is “Replaceable You: Adventures in Human Anatomy,” discusses her approach to the stranger corners of scientific inquiry.`\
 https://nytimes.com/2025/09/19/books/review/podcast-mary-roach-interview.html
-
-**Taliban Bans Books by Women in Afghanistan’s Universities**\
-`More than 600 books, many of them written by women, are being purged, based on a contention that they conflict with Sharia principles.`\
-https://nytimes.com/2025/09/19/world/asia/taliban-ban-women-author-books.html
 
