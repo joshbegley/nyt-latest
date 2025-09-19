@@ -1,3 +1,11 @@
+**The New York Times in Print for Friday, Sep. 19, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/19/todays-new-york-times
+
+**The Arab Spring Gets a Reboot in Asia**\
+`A leaderless, connected and powerful Gen Z is rewriting Asia’s political playbook.`\
+https://nytimes.com/2025/09/19/opinion/asia-protest-youth-nepal-bangladesh.html
+
 **Trump Warns Television Broadcasters Critical of Him**\
 `President Trump told reporters on Air Force One that regulators should consider revoking the licenses of broadcasters that criticize him.`\
 https://nytimes.com/video/us/100000010409027/trump-fcc-licenses.html
