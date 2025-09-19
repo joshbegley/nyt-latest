@@ -1,3 +1,11 @@
+**Nicholas Grimshaw, 85, Dies; British Architect Known for High-Tech Designs**\
+`He melded his country’s history of engineering and industrial design with a modern sensibility to help shape the face of 21st-century Britain.`\
+https://nytimes.com/2025/09/19/arts/design/nicholas-grimshaw-dead.html
+
+**The Confusing Mess at the Vaccine Meeting**\
+`We definitely need to restore America’s trust in vaccines, but the amateur hour A.C.I.P. display isn’t going to do it.`\
+https://nytimes.com/2025/09/19/opinion/vaccines-kennedy-acip-monarez.html
+
 **Trump Nears Deal for Road Through Alaskan Wildlife Refuge**\
 `Proponents say the road would connect a remote town with an airport used for medical evacuations. Opponents say it would cause irreparable harm to wildlife and Alaska Native tribes.`\
 https://nytimes.com/2025/09/19/climate/trump-deal-izembek-national-wildlife-refuge-alaska.html
