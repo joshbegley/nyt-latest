@@ -1,3 +1,7 @@
+**Cunha, Mount fit for Chelsea game but Dalot out**\
+`Tyrell Malacia has also returned to training but will be with the Under-21s, not Ruben Amorim's first team.`\
+https://nytimes.com/athletic/6644082/2025/09/19/man-utd-team-news-chelsea-cunha-mount/
+
 **UCLA imploded in 3 weeks, but its problems go back much further. Can the Bruins fix it?**\
 `The biggest issue with UCLA football, according to more than a half-dozen sources, has been a lack of financial resources.`\
 https://nytimes.com/athletic/6642637/2025/09/19/ucla-football-deshaun-foster-martin-jarmond/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6642240/2025/09/19/bears-caleb-williams-matt-eberfl
 **Notre Dame-Purdue predictions: Can the Irish defense get on track?**\
 `The most important item on Notre Dame’s to-do list on Saturday afternoon is figuring out what the defense can actually do well.`\
 https://nytimes.com/athletic/6643887/2025/09/19/notre-dame-purdue-predictions-matchups/
-
-**Trump Administration Live Updates: Taliban Rejects Suggestion of U.S. Return to Afghan Military Base**\
-``\
-https://nytimes.com/live/2025/09/19/us/trump-news
 
