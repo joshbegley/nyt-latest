@@ -1,3 +1,7 @@
+**Why now was the time for Clayton Kershaw to retire: 'I'm really at peace with this'**\
+`Kershaw gave an emotional press conference in Los Angeles on Thursday to announce his retirement from the sport.`\
+https://nytimes.com/athletic/6643025/2025/09/18/clayton-kershaw-retirement-dodgers/
+
 **Fever oust Dream, reach first WNBA semifinal in a decade**\
 `Indiana overcomes a host of injuries to beat the Dream 87-85 and take the first-round playoff series 2-1.`\
 https://nytimes.com/athletic/6643091/2025/09/18/fever-dream-wnba-playoffs/
