@@ -1,3 +1,7 @@
+**Foden is looking like his old self and Manchester City are reaping the rewards**\
+`Manchester City overcame Napoli on Thursday night and Foden deserved credit for his role in that win`\
+https://nytimes.com/athletic/6642221/2025/09/19/phil-foden-manchester-city-napoli-analysis/
+
 **Newcastle learned a lesson the hard way courtesy of Barcelona's wrecking ball**\
 `Newcastle fell to a 2-1 defeat against Barcelona in their opening Champions League game`\
 https://nytimes.com/athletic/6642546/2025/09/19/newcastle-united-barcelona-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/19/briefing/nato-drones-russia.html
 **Joao Palhinha: Problem or problem solver for Tottenham Hotspur?**\
 `To understand the Portuguese midfielder's place at Tottenham, you have to look back at why they signed him...`\
 https://nytimes.com/athletic/6640340/2025/09/19/palhinha-tottenham-hotspur-problem-solver/
-
-**How Bradford City are full-meme ahead in their bid to climb back up the divisions**\
-`The Yorkshire side were expected to consolidate in League One this season, instead they find themselves level with pacesetters Cardiff City`\
-https://nytimes.com/athletic/6631392/2025/09/19/bradford-city-pecked-by-the-chickens/
 
