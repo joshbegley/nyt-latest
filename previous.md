@@ -1,3 +1,15 @@
+**ESPN aims to preserve 'Inside the NBA' format when show debuts next month**\
+`Full details of how ESPN will use "Inside" are likely to emerge over the next three weeks, but the famed crew will be part of opening night.`\
+https://nytimes.com/athletic/6644488/2025/09/19/inside-the-nba-espn-details-changes/
+
+**Champions League post-MD1 projections: Liverpool early favourites but are Inter flying under the radar?**\
+`An analysis of the state of play in Europe's premier club competition following the conclusion of the first round of fixtures`\
+https://nytimes.com/athletic/6644047/2025/09/19/champions-league-2025-26-projections/
+
+**In Pressuring ABC Over Kimmel, Trump May Have Crossed a Constitutional Line**\
+`The Supreme Court has distinguished bully-pulpit persuasion, which is permissible under the First Amendment, from coercion and threats, which are not.`\
+https://nytimes.com/2025/09/19/us/politics/supreme-court-jimmy-kimmel-free-speech.html
+
 **Penguins' Evgeni Malkin: 'If it's my last year here, I want to show everything'**\
 `Malkin wants to finish his career in Pittsburgh but hasn't shot down the possibility of playing elsewhere. `\
 https://nytimes.com/athletic/6644417/2025/09/19/penguins-evgeni-malkin-retirement-nhl-contract/
@@ -21,16 +33,4 @@ https://nytimes.com/2025/09/19/dining/you-barely-need-a-recipe-for-this-top-rate
 **D.C. United hires Mesut Ozil's former agent as new sporting director**\
 `D.C. United is hoping to kick-start a revival, with the club mired among MLS's worst for a lengthy stretch`\
 https://nytimes.com/athletic/6644372/2025/09/19/dc-united-sporting-director-erkut-sogut-mesut-ozil-mls/
-
-**American Rai Benjamin, nearly DQed, wins first 400-meter hurdles world title**\
-`Benjamin got a long-awaited world championship gold medal, Femke Bol repeated hers, and more notes from a busy Day 7 in Tokyo.`\
-https://nytimes.com/athletic/6644361/2025/09/19/rai-benjamin-400-meter-hurdles-femke-bol-world-athletics-championships/
-
-**Suspect in 1982 Attack on Jewish Deli in Paris Is Arrested, France Says**\
-`The man was arrested in the West Bank by Palestinian authorities, President Emmanuel Macron said. The attack killed six people, including two Americans.`\
-https://nytimes.com/2025/09/19/world/europe/1982-paris-attack-antisemitism-arrest.html
-
-**House Passes Spending Extension That Democrats Vow to Block**\
-`Republicans pushed through a measure to avert a shutdown, but Democrats plan to block it in the Senate, demanding more than $1 trillion for health programs.`\
-https://nytimes.com/2025/09/19/us/politics/house-spending-extension.html
 

@@ -1,3 +1,7 @@
+**Susan Xenarios, Who Transformed Rape Crisis Response, Dies at 79**\
+`She helped found New York City’s first rape crisis center after encountering indifference when she herself was assaulted. Then she took on New York State laws.`\
+https://nytimes.com/2025/09/19/nyregion/susan-xenarios-dead.html
+
 **ESPN aims to preserve 'Inside the NBA' format when show debuts next month**\
 `Full details of how ESPN will use "Inside" are likely to emerge over the next three weeks, but the famed crew will be part of opening night.`\
 https://nytimes.com/athletic/6644488/2025/09/19/inside-the-nba-espn-details-changes/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/09/19/movies/international-movies-streaming.html
 **You Barely Need a Recipe for This Top-Rated Salmon**\
 `But I’ll share one anyway, since my roasted salmon glazed with brown sugar and mustard is a five-star favorite with nearly 20,000 ratings.`\
 https://nytimes.com/2025/09/19/dining/you-barely-need-a-recipe-for-this-top-rated-salmon.html
-
-**D.C. United hires Mesut Ozil's former agent as new sporting director**\
-`D.C. United is hoping to kick-start a revival, with the club mired among MLS's worst for a lengthy stretch`\
-https://nytimes.com/athletic/6644372/2025/09/19/dc-united-sporting-director-erkut-sogut-mesut-ozil-mls/
 

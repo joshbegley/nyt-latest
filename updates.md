@@ -1,3 +1,15 @@
+**ESPN aims to preserve 'Inside the NBA' format when show debuts next month**\
+`Full details of how ESPN will use "Inside" are likely to emerge over the next three weeks, but the famed crew will be part of opening night.`\
+https://nytimes.com/athletic/6644488/2025/09/19/inside-the-nba-espn-details-changes/
+
+**Champions League post-MD1 projections: Liverpool early favourites but are Inter flying under the radar?**\
+`An analysis of the state of play in Europe's premier club competition following the conclusion of the first round of fixtures`\
+https://nytimes.com/athletic/6644047/2025/09/19/champions-league-2025-26-projections/
+
+**In Pressuring ABC Over Kimmel, Trump May Have Crossed a Constitutional Line**\
+`The Supreme Court has distinguished bully-pulpit persuasion, which is permissible under the First Amendment, from coercion and threats, which are not.`\
+https://nytimes.com/2025/09/19/us/politics/supreme-court-jimmy-kimmel-free-speech.html
+
 **Penguins' Evgeni Malkin: 'If it's my last year here, I want to show everything'**\
 `Malkin wants to finish his career in Pittsburgh but hasn't shot down the possibility of playing elsewhere. `\
 https://nytimes.com/athletic/6644417/2025/09/19/penguins-evgeni-malkin-retirement-nhl-contract/
