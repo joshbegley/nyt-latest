@@ -1,3 +1,7 @@
+**MLB playoff watch: Dodgers closing in on postseason beth; bracket, clinching scenarios**\
+`With Clayton Kershaw on the mound to make his the final regular-season home start of his career, the Dodgers could clinch a playoff berth.`\
+https://nytimes.com/athletic/6643397/2025/09/19/mlb-playoff-watch-2025-dodgers-clinching-possibilities/
+
 **Europe Announces New Sanctions to Ramp Up Pressure on Russia**\
 `The latest set of European Union restrictions are aimed at chipping away at Russia’s energy profits and ability to do business globally.`\
 https://nytimes.com/2025/09/19/world/europe/eu-sanctions-russia-ukraine.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6642750/2025/09/19/chargers-first-place-chiefs-afc-
 **As Atlanta United flounders, would a Tata Martino reunion be the right play?**\
 `Despite heightened expectations, Atlanta will miss the MLS playoffs, and if a coaching change is in the offing, a familiar face is available`\
 https://nytimes.com/athletic/6635898/2025/09/19/tata-martino-atlanta-united-ronny-deila-mls/
-
-**Why the Media Industry Is Bracing for More Blowback**\
-`Jimmy Kimmel remains off the air. But President Trump, the chair of the F.C.C. and local TV companies are likely to keep up pressure on broadcasters.`\
-https://nytimes.com/2025/09/19/business/dealbook/jimmy-kimmel-trump-disney-carr.html
 
