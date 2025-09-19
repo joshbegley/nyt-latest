@@ -1,3 +1,7 @@
+**MLB playoff watch: Dodgers closing in on postseason beth; bracket, clinching scenarios**\
+`With Clayton Kershaw on the mound to make his the final regular-season home start of his career, the Dodgers could clinch a playoff berth.`\
+https://nytimes.com/athletic/6643397/2025/09/19/mlb-playoff-watch-2025-dodgers-clinching-possibilities/
+
 **Europe Announces New Sanctions to Ramp Up Pressure on Russia**\
 `The latest set of European Union restrictions are aimed at chipping away at Russia’s energy profits and ability to do business globally.`\
 https://nytimes.com/2025/09/19/world/europe/eu-sanctions-russia-ukraine.html
