@@ -1,3 +1,7 @@
+**Curiosity Summons a Reporter to an Island Known for the Occult**\
+`A reporter traveled to a remote island in the Philippines to witness a festival unlike any other.`\
+https://nytimes.com/2025/09/19/insider/philippines-siquijor-island-festival.html
+
 **Mayor Adams Had a Mixed Year, Annual N.Y.C. Report Shows**\
 `The Mayor’s Management Report, a trove of statistics about crime rates, public health and many other issues, arrived at the tail end of Mayor Eric Adams’s re-election campaign.`\
 https://nytimes.com/2025/09/19/nyregion/nyc-report-eric-adams-mayoral-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6643477/2025/09/19/angels-vs-rockies-stream-how-to-
 **How to watch Guardians at Twins: Time, TV, streaming for September 19**\
 `Find out how to watch the Cleveland Guardians play the Minnesota Twins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6643475/2025/09/19/guardians-vs-twins-stream-how-to-watch-sept-19/
-
-**How to watch Yankees at Orioles: Time, TV, streaming for September 19**\
-`Find out how to watch the New York Yankees play the Baltimore Orioles, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6643473/2025/09/19/yankees-vs-orioles-stream-how-to-watch-sept-19/
 

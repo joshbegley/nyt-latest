@@ -1,3 +1,7 @@
+**Curiosity Summons a Reporter to an Island Known for the Occult**\
+`A reporter traveled to a remote island in the Philippines to witness a festival unlike any other.`\
+https://nytimes.com/2025/09/19/insider/philippines-siquijor-island-festival.html
+
 **Mayor Adams Had a Mixed Year, Annual N.Y.C. Report Shows**\
 `The Mayor’s Management Report, a trove of statistics about crime rates, public health and many other issues, arrived at the tail end of Mayor Eric Adams’s re-election campaign.`\
 https://nytimes.com/2025/09/19/nyregion/nyc-report-eric-adams-mayoral-election.html
