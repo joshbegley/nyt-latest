@@ -1,3 +1,7 @@
+**'F--- you' fastballs and Christmas in September: The secrets behind the Guardians' playoff push**\
+`After a tumultuous summer, the Guardians, powered by a cast of mostly unknowns, are defying the odds and fighting for a postseason spot. `\
+https://nytimes.com/athletic/6642386/2025/09/18/cleveland-guardians-mlb-playoffs-unknowns/
+
 **NHL rumblings: Latest on notable free agents as camps open — Suter, McTavish, Roslovic and more**\
 `With training camps opening around the league Thursday, here's what we're hearing about some of the players who haven't found homes yet.`\
 https://nytimes.com/athletic/6642751/2025/09/18/suter-mctavish-roslovic-free-agent-rumblings/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/18/arts/television/the-summer-i-turned-pretty-reacti
 **11 Democratic Officials Arrested Trying to Access ICE Detention Cells**\
 `Federal officers arrested 11 officials in New York on Thursday, after they tried to access cells used by the Immigration and Customs Enforcement agency to detain migrants. Brad Lander, the city comptroller, and Jumaane D. Williams, the public advocate, were among those arrested.`\
 https://nytimes.com/video/us/politics/100000010408808/11-democratic-officials-arrested-trying-to-access-ice-detention-cells.html
-
-**When Did Cancel Culture Become ‘Consequence Culture’?**\
-`As some prominent conservatives target both ordinary people and public figures for their comments about Charlie Kirk, they are trying to rebrand a practice they once maligned.`\
-https://nytimes.com/2025/09/18/style/consequence-culture-kirk-kimmel.html
 

@@ -1,3 +1,7 @@
+**'F--- you' fastballs and Christmas in September: The secrets behind the Guardians' playoff push**\
+`After a tumultuous summer, the Guardians, powered by a cast of mostly unknowns, are defying the odds and fighting for a postseason spot. `\
+https://nytimes.com/athletic/6642386/2025/09/18/cleveland-guardians-mlb-playoffs-unknowns/
+
 **NHL rumblings: Latest on notable free agents as camps open — Suter, McTavish, Roslovic and more**\
 `With training camps opening around the league Thursday, here's what we're hearing about some of the players who haven't found homes yet.`\
 https://nytimes.com/athletic/6642751/2025/09/18/suter-mctavish-roslovic-free-agent-rumblings/
