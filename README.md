@@ -1,3 +1,15 @@
+**The Pulse: A good loss? In this economy?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6643194/2025/09/19/bills-dolphins-mike-mcdaniel-the-pulse/
+
+**The Daniel Jones reclamation project: Why Colts QB is flourishing with Shane Steichen**\
+`We examine what Steichen is doing to allow Jones to play the best football he's played in years at the helm of Indy's explosive offense.`\
+https://nytimes.com/athletic/6641517/2025/09/19/colts-daniel-jones-shane-steichen/
+
+**Weird & Wild MLB history watch: Players, teams that could break wacky records this month**\
+`Here are a heaping handful of players and teams that could be about to make history — in weird ways — before the end of the season. `\
+https://nytimes.com/athletic/6642943/2025/09/19/mlb-weird-records-history-september/
+
 **Maresca plays down Sterling, Disasi situations at Chelsea**\
 `"I have been in Raheem and Axel’s situation as a player. For sure, I know it is not the best feeling," Maresca said on Friday.`\
 https://nytimes.com/athletic/6643804/2025/09/19/chelsea-sterling-disasi-maresca/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/19/us/plane-crash-north-carolina-brett-james.html
 **Bruins preseason depth chart 1.0: Arvidsson gets a top-6 shot with Pastrnak out with tendinitis**\
 `On David Pastrnak's readiness for camp, coach Marco Sturm said: "I’m not worried at all. He’s knocking on my door every day already."`\
 https://nytimes.com/athletic/6640672/2025/09/19/bruins-preseason-depth-chart-arvidsson-pastrnak/
-
-**Ranking the 3 most important MLB series this weekend, headlined by Mariners-Astros**\
-`Here are the weekend series with the highest playoff stakes, including the Mariners and Astros battling for the AL West lead in H-Town.`\
-https://nytimes.com/athletic/6641267/2025/09/19/mlb-playoffs-astros-mariners-al-west-race-how-to-watch/
-
-**Pat Rafter returns to tennis, but not for long: 'Life's too good here, mate'**\
-`The Australian does not live in the shadow of the tennis circuit in retirement, but a call from an old rival brought him to the Laver Cup.`\
-https://nytimes.com/athletic/6640414/2025/09/19/pat-rafter-tennis-life-interview/
-
-**'You are looking live': On Sunday, CBS throwing back to origins of 'The NFL Today'**\
-`The pioneering TV show will celebrate its 50th anniversary during Week 3 with guest appearances, retro graphics and 1970s fashion.`\
-https://nytimes.com/athletic/6631333/2025/09/19/cbs-nfl-today-brent-musberger-anniversary/
 
