@@ -1,3 +1,7 @@
+**Cubs rookie Ballesteros OK after being struck in helmet by deflected 105-mph line drive**\
+`CINCINNATI — Chicago Cubs rookie Moisés Ballesteros said he felt fine after taking a 105-mph line drive off the helmet in Thursday’s game against the Cincinnati Reds.`\
+https://nytimes.com/athletic/6642921/2025/09/18/cubs-rookie-ballesteros-ok-helmet-hit/
+
 **Why now was the time for Clayton Kershaw to retire: 'I'm really at peace with this'**\
 `Kershaw gave an emotional press conference in Los Angeles on Thursday to announce his retirement from the sport.`\
 https://nytimes.com/athletic/6643025/2025/09/18/clayton-kershaw-retirement-dodgers/
