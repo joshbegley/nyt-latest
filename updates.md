@@ -1,3 +1,7 @@
+**Pregnant Women Should Not Use Cannabis, New Medical Guidelines Say**\
+`Marijuana during pregnancy is linked to poor birth outcomes and developmental delays in children, a leading medical society advised.`\
+https://nytimes.com/2025/09/19/health/pregnancy-cannabis-marijuana-guidelines.html
+
 **Jack Daniels, Olympic Medalist and ‘World’s Best’ Running Coach, Dies at 92**\
 `Tutoring Olympians, he created a simple workout formula that was said to produce the best results with the least effort, earning accolades across the running world.`\
 https://nytimes.com/2025/09/19/sports/jack-daniels-dead.html
