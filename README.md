@@ -1,3 +1,23 @@
+**Battered but Undefeated, Hamas Remains a Fighting Force in Gaza**\
+`Some Israeli officials believe the military assault on Gaza City will deliver a decisive blow to the group, which continues to stage ambushes and guerrilla attacks.`\
+https://nytimes.com/2025/09/19/world/middleeast/hamas-remaining-in-gaza.html
+
+**AFC North Whiparound: Could Bengals make the playoffs without Joe Burrow?**\
+`Plus, gauging the confidence level each reporter has in their team's backup quarterback situation following the injury to Burrow. `\
+https://nytimes.com/athletic/6641474/2025/09/19/bengals-joe-burrow-browns-steelers-ravens/
+
+**Plane Crashes in North Carolina With 3 on Board**\
+`The plane crashed into a field in the town of Franklin, in the western part of the state, officials said.`\
+https://nytimes.com/2025/09/19/us/plane-crash-north-carolina-brett-james.html
+
+**Bruins preseason depth chart 1.0: Arvidsson gets a top-6 shot with Pastrnak out with tendinitis**\
+`On David Pastrnak's readiness for camp, coach Marco Sturm said: "I’m not worried at all. He’s knocking on my door every day already."`\
+https://nytimes.com/athletic/6640672/2025/09/19/bruins-preseason-depth-chart-arvidsson-pastrnak/
+
+**Ranking the 3 most important MLB series this weekend, headlined by Mariners-Astros**\
+`Here are the weekend series with the highest playoff stakes, including the Mariners and Astros battling for the AL West lead in H-Town.`\
+https://nytimes.com/athletic/6641267/2025/09/19/mlb-playoffs-astros-mariners-al-west-race-how-to-watch/
+
 **Pat Rafter returns to tennis, but not for long: 'Life's too good here, mate'**\
 `The Australian does not live in the shadow of the tennis circuit in retirement, but a call from an old rival brought him to the Laver Cup.`\
 https://nytimes.com/athletic/6640414/2025/09/19/pat-rafter-tennis-life-interview/
@@ -17,25 +37,4 @@ https://nytimes.com/athletic/6641143/2025/09/19/chiefs-receivers-yards-after-cat
 **Hurzeler: Ayto will be 'embraced' at Brighton**\
 `The former Arsenal assistant and interim sporting director has replaced former technical director David Weir at Brighton.`\
 https://nytimes.com/athletic/6643766/2025/09/19/jason-ayto-brighton-fabian-hurzeler/
-
-**Bengals mailbag: Joe Burrow fallout, pressure on coaches, predictions, more**\
-`The injury to Cincinnati's star quarterback could provide an opportunity for both his replacement and coaches.`\
-https://nytimes.com/athletic/6642351/2025/09/19/bengals-mailbag-joe-burrow-injury-predictions/
-
-**What drives 'psycho' Christian McCaffrey, whose return has rejuvenated the 49ers?**\
-`McCaffrey is back at it after a lost 2024 season and another injury scare. "He looks like OPOY Christian," Trent Williams said.`\
-https://nytimes.com/athletic/6642128/2025/09/19/christian-mccaffrey-49ers-healthy-2025/
-
-**'You have to detach yourself from the fees': Hughes on Liverpool's £450m summer**\
-`Hughes also spoke about Liverpool's multi-club ambitions.`\
-https://nytimes.com/athletic/6643717/2025/09/19/liverpool-transfers-richard-hughes/
-
-**Why Connor McDavid signing a short-term deal could actually benefit Oilers**\
-`The prevailing belief is that a short-term commitment to the Oilers is the most likely outcome for McDavid.`\
-https://nytimes.com/athletic/6642462/2025/09/19/connor-mcdavid-contract-negotiations-oilers/
-
-**Is Matias Maccelli ready for prime time with the Maple Leafs?**\
-`At training camp, the Leafs want to see if newcomer Maccelli can hang on their No. 1 line alongside Auston Matthews and Matthew Knies.
-`\
-https://nytimes.com/athletic/6641692/2025/09/19/maple-leafs-matias-maccelli-training-camp/
 
