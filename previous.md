@@ -1,40 +1,40 @@
-**Foden is looking like his old self and Manchester City are reaping the rewards**\
-`Manchester City overcame Napoli on Thursday night and Foden deserved credit for his role in that win`\
-https://nytimes.com/athletic/6642221/2025/09/19/phil-foden-manchester-city-napoli-analysis/
+**How to watch Cubs at Reds: Time, TV, streaming for September 19**\
+`Find out how to watch the Chicago Cubs play the Cincinnati Reds, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6643479/2025/09/19/cubs-vs-reds-stream-how-to-watch-sept-19/
 
-**Newcastle learned a lesson the hard way courtesy of Barcelona's wrecking ball**\
-`Newcastle fell to a 2-1 defeat against Barcelona in their opening Champions League game`\
-https://nytimes.com/athletic/6642546/2025/09/19/newcastle-united-barcelona-analysis/
+**How to watch Angels at Rockies: Time, TV, streaming for September 19**\
+`Find out how to watch the Los Angeles Angels play the Colorado Rockies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6643477/2025/09/19/angels-vs-rockies-stream-how-to-watch-sept-19-2/
 
-**The New York Times in Print for Friday, Sep. 19, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/09/19/todays-new-york-times
+**How to watch Guardians at Twins: Time, TV, streaming for September 19**\
+`Find out how to watch the Cleveland Guardians play the Minnesota Twins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6643475/2025/09/19/guardians-vs-twins-stream-how-to-watch-sept-19/
 
-**The Arab Spring Gets a Reboot in Asia**\
-`A leaderless, connected and powerful Gen Z is rewriting Asia’s political playbook.`\
-https://nytimes.com/2025/09/19/opinion/asia-protest-youth-nepal-bangladesh.html
+**How to watch Yankees at Orioles: Time, TV, streaming for September 19**\
+`Find out how to watch the New York Yankees play the Baltimore Orioles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6643473/2025/09/19/yankees-vs-orioles-stream-how-to-watch-sept-19/
 
-**Trump Warns Television Broadcasters Critical of Him**\
-`President Trump told reporters on Air Force One that regulators should consider revoking the licenses of broadcasters that criticize him.`\
-https://nytimes.com/video/us/100000010409027/trump-fcc-licenses.html
+**How to watch Brewers at Cardinals: Time, TV, streaming for September 19**\
+`Find out how to watch the Milwaukee Brewers play the St. Louis Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6643474/2025/09/19/brewers-vs-cardinals-stream-how-to-watch-sept-19/
 
-**Jackie Young, A'ja Wilson carry Aces past Storm, into WNBA semifinals**\
-`Las Vegas has advanced to the semifinal round of the playoffs for the eighth straight season.`\
-https://nytimes.com/athletic/6643252/2025/09/19/las-vegas-aces-seattle-storm-wnba-playoffs/
+**How to watch Angels at Rockies: Time, TV, streaming for September 19**\
+`Find out how to watch the Los Angeles Angels play the Colorado Rockies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6643469/2025/09/19/angels-vs-rockies-stream-how-to-watch-sept-19/
 
-**Arne Slot's tactics for Liverpool press conferences? Honesty, insight, and dad jokes**\
-`Liverpool head coach Arne Slot has learned to avoid the pitfalls of the press conference through a combination of calm, insight and humour`\
-https://nytimes.com/athletic/6640763/2025/09/19/arne-slot-liverpool-press-conferences/
+**How to watch Marlins at Rangers: Time, TV, streaming for September 19**\
+`Find out how to watch the Miami Marlins play the Texas Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6643464/2025/09/19/marlins-vs-rangers-stream-how-to-watch-sept-19/
 
-**FPL: The teams to target and the teams to abandon during upcoming fixture swings**\
-`Manchester City and Arsenal are among those with attractive fixtures coming up, but the forecast isn't all that pretty for Liverpool`\
-https://nytimes.com/athletic/6638802/2025/09/19/fantasy-premier-league-gw5-fixture-swings/
+**How to watch Mariners at Astros: Time, TV, streaming for September 19**\
+`Find out how to watch the Seattle Mariners play the Houston Astros, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6643465/2025/09/19/mariners-vs-astros-stream-how-to-watch-sept-19/
 
-**Drones vs. Lasers**\
-`We explore the math problem facing NATO — and one possible solution.`\
-https://nytimes.com/2025/09/19/briefing/nato-drones-russia.html
+**How to watch Phillies at Diamondbacks: Time, TV, streaming for September 19**\
+`Find out how to watch the Philadelphia Phillies play the Arizona Diamondbacks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6643459/2025/09/19/phillies-vs-diamondbacks-stream-how-to-watch-sept-19/
 
-**Joao Palhinha: Problem or problem solver for Tottenham Hotspur?**\
-`To understand the Portuguese midfielder's place at Tottenham, you have to look back at why they signed him...`\
-https://nytimes.com/athletic/6640340/2025/09/19/palhinha-tottenham-hotspur-problem-solver/
+**Word of the Day: posterity**\
+`This word has appeared in 61 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/09/19/learning/word-of-the-day-posterity.html
 
