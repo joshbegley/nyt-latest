@@ -1,3 +1,11 @@
+**What we're hearing about the Mets' pitching plans into the postseason**\
+`"Everything is on the table," manager Carlos Mendoza said pregame Friday.`\
+https://nytimes.com/athletic/6645438/2025/09/19/mets-pitching-plans-into-postseason/
+
+**The 9.21.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/09/19/the-92125-issue
+
 **With Calls for Retribution Over Kirk, Some See Rise of a ‘Woke Right’**\
 `Conservatives have pressed for consequences for those who make negative comments about Charlie Kirk. But a few on the right say they worry about limits on speech.`\
 https://nytimes.com/2025/09/19/us/charlie-kirk-free-speech-republicans.html

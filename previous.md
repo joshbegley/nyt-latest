@@ -1,3 +1,11 @@
+**What we're hearing about the Mets' pitching plans into the postseason**\
+`"Everything is on the table," manager Carlos Mendoza said pregame Friday.`\
+https://nytimes.com/athletic/6645438/2025/09/19/mets-pitching-plans-into-postseason/
+
+**The 9.21.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/09/19/the-92125-issue
+
 **Harris Assails ABC Suspension of Kimmel as ‘Rewarding’ Trump**\
 `In an interview ahead of her new book’s release, former Vice President Kamala Harris warned that President Trump would only grow more emboldened in crushing dissent.`\
 https://nytimes.com/2025/09/19/us/politics/harris-abc-kimmel-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6645434/2025/09/19/rick-ware-racing-legacy-motor-cl
 **Trump Says the U.S. Will Institute $100,000 Fee for Skilled Worker Visas**\
 `Administration officials said the charge would help American workers’ wages by discouraging companies from using the visas to bring in lower-wage international workers.`\
 https://nytimes.com/2025/09/19/us/politics/trump-h-1b-visas-fee.html
-
-**Jimmy Kimmel and the Rise of Corporate Censorship**\
-`After ABC suspended Jimmy Kimmel from the airwaves, many called it censorship. The journalist Molly Jong-Fast explains that it is censorship, but not the kind you might think.`\
-https://nytimes.com/video/opinion/100000010411146/jimmy-kimmel-and-the-rise-of-corporate-censorship.html
-
-**Court Rules Against Arts Endowment on Trump’s ‘Gender Ideology’ Order**\
-`A new policy for the National Endowment for the Arts to review grant applications to see if they comply with President Trump’s “gender ideology” order violates the Constitution, the court said.`\
-https://nytimes.com/2025/09/19/arts/national-endowment-for-the-arts-trump-gender-ideology.html
 
