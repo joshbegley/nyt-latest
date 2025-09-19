@@ -1,3 +1,19 @@
+**Jackie Young, A'ja Wilson carry Aces past Storm, into WNBA semifinals**\
+`Las Vegas has advanced to the semifinal round of the playoffs for the eighth straight season.`\
+https://nytimes.com/athletic/6643252/2025/09/19/las-vegas-aces-seattle-storm-wnba-playoffs/
+
+**Arne Slot's tactics for Liverpool press conferences? Honesty, insight, and dad jokes**\
+`Liverpool head coach Arne Slot has learned to avoid the pitfalls of the press conference through a combination of calm, insight and humour`\
+https://nytimes.com/athletic/6640763/2025/09/19/arne-slot-liverpool-press-conferences/
+
+**FPL: The teams to target and the teams to abandon during upcoming fixture swings**\
+`Manchester City and Arsenal are among those with attractive fixtures coming up, but the forecast isn't all that pretty for Liverpool`\
+https://nytimes.com/athletic/6638802/2025/09/19/fantasy-premier-league-gw5-fixture-swings/
+
+**Drones vs. Lasers**\
+`We explore the math problem facing NATO — and one possible solution.`\
+https://nytimes.com/2025/09/19/briefing/nato-drones-russia.html
+
 **Joao Palhinha: Problem or problem solver for Tottenham Hotspur?**\
 `To understand the Portuguese midfielder's place at Tottenham, you have to look back at why they signed him...`\
 https://nytimes.com/athletic/6640340/2025/09/19/palhinha-tottenham-hotspur-problem-solver/
