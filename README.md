@@ -1,3 +1,7 @@
+**Protesters and federal agents clash outside an ICE detention facility near Chicago.**\
+`By Robert Chiarito and Julie Bosman`\
+https://nytimes.com/live/2025/09/19/us/trump-news/protesters-and-federal-agents-clash-outside-an-ice-detention-facility-near-chicago
+
 **Wesley Morris On Robert Redford’s Most Revealing Movie**\
 `Wesley Morris, the host of “Cannonball” and a critic at large at The New York Times, remembered the career of the late actor Robert Redford, and explained how the fourth film he directed, “Quiz Show,” from 1994, is the perfect metaphor for the legendary actor and director’s career.`\
 https://nytimes.com/video/podcasts/100000010410463/wesley-morris-robert-redford.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/19/books/charley-rosen-dead.html
 **Schumer, Wary of Blowback, Holds Out on Mamdani**\
 `Will the Senate minority leader, the avatar of old New York politics, endorse the young, up-and-coming democratic socialist?`\
 https://nytimes.com/2025/09/19/us/politics/schumer-mamdani.html
-
-**NHL honors late Penguins, Devils GM Ray Shero with Lester Patrick Trophy**\
-`The award is given to a person based on their outstanding service to hockey in the United States.`\
-https://nytimes.com/athletic/6644833/2025/09/19/ray-shero-lester-patrick-trophy-nhl-penguins-devils/
 
