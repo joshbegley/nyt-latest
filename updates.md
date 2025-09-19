@@ -1,3 +1,11 @@
+**How to Cook (Better) With Butternut Squash**\
+`These seven tips from Ali Slagle will make sure every day of squash season is a good one.`\
+https://nytimes.com/2025/09/19/dining/butternut-squash-recipe.html
+
+**Five International Movies to Stream Now**\
+`This month’s picks include a Lithuanian thriller, a Welsh musical, an unusual sports drama from Korea and more.`\
+https://nytimes.com/2025/09/19/movies/international-movies-streaming.html
+
 **You Barely Need a Recipe for This Top-Rated Salmon**\
 `But I’ll share one anyway, since my roasted salmon glazed with brown sugar and mustard is a five-star favorite with nearly 20,000 ratings.`\
 https://nytimes.com/2025/09/19/dining/you-barely-need-a-recipe-for-this-top-rated-salmon.html
