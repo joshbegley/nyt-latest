@@ -1,3 +1,19 @@
+**Jackie Young, A'ja Wilson carry Aces past Storm, into WNBA semifinals**\
+`Las Vegas has advanced to the semifinal round of the playoffs for the eighth straight season.`\
+https://nytimes.com/athletic/6643252/2025/09/19/las-vegas-aces-seattle-storm-wnba-playoffs/
+
+**Arne Slot's tactics for Liverpool press conferences? Honesty, insight, and dad jokes**\
+`Liverpool head coach Arne Slot has learned to avoid the pitfalls of the press conference through a combination of calm, insight and humour`\
+https://nytimes.com/athletic/6640763/2025/09/19/arne-slot-liverpool-press-conferences/
+
+**FPL: The teams to target and the teams to abandon during upcoming fixture swings**\
+`Manchester City and Arsenal are among those with attractive fixtures coming up, but the forecast isn't all that pretty for Liverpool`\
+https://nytimes.com/athletic/6638802/2025/09/19/fantasy-premier-league-gw5-fixture-swings/
+
+**Drones vs. Lasers**\
+`We explore the math problem facing NATO — and one possible solution.`\
+https://nytimes.com/2025/09/19/briefing/nato-drones-russia.html
+
 **Joao Palhinha: Problem or problem solver for Tottenham Hotspur?**\
 `To understand the Portuguese midfielder's place at Tottenham, you have to look back at why they signed him...`\
 https://nytimes.com/athletic/6640340/2025/09/19/palhinha-tottenham-hotspur-problem-solver/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6641293/2025/09/19/leeds-united-goals-analysis-prem
 **Are Guardiola and Arteta copying each other – or adapting to the rest of the Premier League?**\
 `Both Pep Guardiola and Mikel Arteta have changed their styles and ways of operating in recent years, but is it because of the other?`\
 https://nytimes.com/athletic/6640295/2025/09/19/mikel-arteta-pep-guardiola-tactical-analysis-changes/
-
-**Explaining Manchester United's out-of-possession problems and why they are so damaging**\
-`The team's wide centre-backs are still timing their forward jumps badly and as a result the entire pressing apparatus is less effective`\
-https://nytimes.com/athletic/6636649/2025/09/19/manchester-united-out-of-possession-premier-league/
-
-**Premier League Predictions: Arsenal vs Man City, Merseyside derby and the rest of Matchday 5**\
-`Who's leading after MD4? And what do our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 5?`\
-https://nytimes.com/athletic/6631550/2025/09/19/premier-league-predictions-arsenal-man-city-merseyside-derby-and-the-rest-of-matchday-5/
-
-**'We treat every client like their name is Jay Z': How Roc Nation became one of football's leading agencies**\
-`The sports agency's president Michael Yormark talks Romelu Lukaku, Vinicius Jr and the Ballon d'Or and targeting the U.S. soccer market`\
-https://nytimes.com/athletic/6631044/2025/09/19/roc-nation-yormark-lukaku-agency/
-
-**'I love 'Tommy lad' from the fans – even the players greet me with it. The support I get is beautiful'**\
-`Tommy Fleetwood has become one of the most popular golfers in the U.S. - he is more than ready for the Ryder Cup challenge at Bethpage`\
-https://nytimes.com/athletic/6633518/2025/09/19/tommy-fleetwood-interview-ryder-cup-everton-pep-guardiola/
 

@@ -1,3 +1,7 @@
+**Joao Palhinha: Problem or problem solver for Tottenham Hotspur?**\
+`To understand the Portuguese midfielder's place at Tottenham, you have to look back at why they signed him...`\
+https://nytimes.com/athletic/6640340/2025/09/19/palhinha-tottenham-hotspur-problem-solver/
+
 **How Bradford City are full-meme ahead in their bid to climb back up the divisions**\
 `The Yorkshire side were expected to consolidate in League One this season, instead they find themselves level with pacesetters Cardiff City`\
 https://nytimes.com/athletic/6631392/2025/09/19/bradford-city-pecked-by-the-chickens/
