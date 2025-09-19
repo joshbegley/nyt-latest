@@ -1,3 +1,15 @@
+**Shane Pinto doesn't want to be a 'distraction' amid contract extension talks**\
+`Days earlier, Senators GM Steve Staios said he engaged in "discussions" with Pinto's agent, Lewis Gross, "a couple of weeks ago". `\
+https://nytimes.com/athletic/6644758/2025/09/19/pinto-senators-contract-extension/
+
+**Astros to activate Isaac Paredes prior to series against Mariners: Source**\
+`During Parades' 55-game absence, the Astros’ lineup struggled to score runs with any consistency.`\
+https://nytimes.com/athletic/6644783/2025/09/19/astros-activate-isaac-paredes/
+
+**Judge Dismisses Trump’s Lawsuit Against The New York Times**\
+`The judge said that the complaint failed to contain a “short and plain statement of the claim.” Mr. Trump has 28 days to refile.`\
+https://nytimes.com/2025/09/19/business/media/trump-new-york-times-lawsuit.html
+
 **Trump Administration Petitions Supreme Court on Passport Gender Policy**\
 `The administration asked the justices to lift a lower court block on a policy requiring passports to reflect only the holder’s sex on an original birth certificate.`\
 https://nytimes.com/2025/09/19/us/politics/trump-administration-gender-passports.html

@@ -1,3 +1,15 @@
+**Shane Pinto doesn't want to be a 'distraction' amid contract extension talks**\
+`Days earlier, Senators GM Steve Staios said he engaged in "discussions" with Pinto's agent, Lewis Gross, "a couple of weeks ago". `\
+https://nytimes.com/athletic/6644758/2025/09/19/pinto-senators-contract-extension/
+
+**Astros to activate Isaac Paredes prior to series against Mariners: Source**\
+`During Parades' 55-game absence, the Astros’ lineup struggled to score runs with any consistency.`\
+https://nytimes.com/athletic/6644783/2025/09/19/astros-activate-isaac-paredes/
+
+**Judge Dismisses Trump’s Lawsuit Against The New York Times**\
+`The judge said that the complaint failed to contain a “short and plain statement of the claim.” Mr. Trump has 28 days to refile.`\
+https://nytimes.com/2025/09/19/business/media/trump-new-york-times-lawsuit.html
+
 **Trump Administration Petitions Supreme Court on Passport Gender Policy**\
 `The administration asked the justices to lift a lower court block on a policy requiring passports to reflect only the holder’s sex on an original birth certificate.`\
 https://nytimes.com/2025/09/19/us/politics/trump-administration-gender-passports.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/arts/television/100000010409245/jimmy-kimmel-david-let
 **Should We Listen to the A.I. Doomsayers?**\
 `Readers respond to a Business column about a prophet of A.I. who warns about its future. Also: Fighting crime at its roots; the soybean solution.`\
 https://nytimes.com/2025/09/19/opinion/ai-doomsayers.html
-
-**Trump Officials Question Harvard’s Stability, Saying Federal Inquiries Raise Financial Risk**\
-`The administration’s latest attack on the nation’s oldest university comes as negotiations stall for a settlement to restore billions in frozen federal research funds.`\
-https://nytimes.com/2025/09/19/us/politics/trump-harvard-financial-risk.html
-
-**Vaccine Panel Postpones One Vote and Reverses Another Amid Confusion**\
-`Committee members delayed indefinitely a vote on a hepatitis B vaccine for newborns because they did not feel ready to make a decision.`\
-https://nytimes.com/2025/09/19/health/cdc-vaccines-mmrv-hepatitis-b.html
-
-**Jason Kelce, architect of the tush push, believes 'the play is done'**\
-`The play was almost banned in the offseason, missing the threshold by gaining 22 votes in favor of banning instead of the required 24 votes.`\
-https://nytimes.com/athletic/6644621/2025/09/19/jason-kelce-tush-push-play-comments/
 
