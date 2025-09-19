@@ -1,3 +1,11 @@
+**Bills vs. Dolphins takeaways: Did Miami quiet McDaniel firing rumors despite loss?**\
+`The Dolphins fell to 0-3, but a game that was too close for too long — for the Bills — might've prolonged McDaniel's job security.`\
+https://nytimes.com/athletic/6642981/2025/09/18/dolphins-bills-score-result-takeaways-thursday-night-football/
+
+**Fever oust Dream to reach first WNBA semifinal in a decade**\
+`Indiana overcomes a host of injuries to beat the Dream 87-85 and take the first-round playoff series 2-1.`\
+https://nytimes.com/athletic/6643091/2025/09/18/fever-dream-wnba-playoffs/
+
 **Cade Horton: Why wouldn't he be the Cubs' Game 1 playoff starter?**\
 `“I love pitching in high-stakes moments,” Horton said. “It’s a lot of fun to go out there and compete when you’re in the thick of it.”`\
 https://nytimes.com/athletic/6643153/2025/09/18/cade-horton-cubs-game-1-playoff-starter/
