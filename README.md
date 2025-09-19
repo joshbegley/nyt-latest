@@ -1,3 +1,11 @@
+**Harris Assails ABC Suspension of Kimmel as ‘Rewarding’ Trump**\
+`In an interview ahead of her new book’s release, former Vice President Kamala Harris warned that President Trump would only grow more emboldened in crushing dissent.`\
+https://nytimes.com/2025/09/19/us/politics/harris-abc-kimmel-trump.html
+
+**The Debate Over the Kirk Shooting Suspect’s Motive and Ideology**\
+`Spencer Cox, the governor of Utah, reflects on what understanding the Kirk shooting suspect’s ideology can — and can’t — reveal.`\
+https://nytimes.com/video/opinion/100000010407786/the-debate-over-the-kirk-shooting-suspects-motive-and-ideology.html
+
 **Why John Gibson could be Red Wings' answer in goal: Training camp observations**\
 `Gibson was Detroit's top offseason acquisition, and brings some sorely needed upside to the Red Wings' goaltending situation.`\
 https://nytimes.com/athletic/6645020/2025/09/19/red-wings-training-camp-john-gibson-todd-mclellan/
@@ -29,12 +37,4 @@ https://nytimes.com/video/opinion/100000010411146/jimmy-kimmel-and-the-rise-of-c
 **Court Rules Against Arts Endowment on Trump’s ‘Gender Ideology’ Order**\
 `A new policy for the National Endowment for the Arts to review grant applications to see if they comply with President Trump’s “gender ideology” order violates the Constitution, the court said.`\
 https://nytimes.com/2025/09/19/arts/national-endowment-for-the-arts-trump-gender-ideology.html
-
-**Cruz Likens F.C.C. Chair’s ‘Threat’ to That of a Mafia Boss**\
-`The Republican senator warned that retaliating against media outlets over coverage that conservatives view as negative would set a “dangerous” precedent.`\
-https://nytimes.com/2025/09/19/us/politics/ted-cruz-fcc-abc-jimmy-kimmel.html
-
-**Colt Keith goes on IL, a 'concerning' loss for Tigers as they fight for division title**\
-`The infielder left Thursday's game with rib cage inflammation. Detroit called up Jace Jung to fill Keith's roster spot.`\
-https://nytimes.com/athletic/6645388/2025/09/19/detroit-tigers-colt-keith-injury/
 
