@@ -1,3 +1,11 @@
+**Gov. Spencer Cox on the Trump Administration’s Crackdown**\
+`“It’s going to take more speech and more sunlight and more disagreement” to fight political violence, says Gov. Spencer Cox of Utah.`\
+https://nytimes.com/video/opinion/100000010407663/gov-spencer-cox-on-the-trump-administrations-crackdown.html
+
+**Harvard’s Former President Criticizes Its Approach to Trump**\
+`Claudine Gay has rarely spoken out since she was forced to resign, but she recently said that Harvard should not cave to Trump administration demands, including a $500 million payment.`\
+https://nytimes.com/2025/09/19/us/harvard-claudine-gay-trump.html
+
 **Pregnant Women Should Not Use Cannabis, New Medical Guidelines Say**\
 `Marijuana during pregnancy is linked to poor birth outcomes and developmental delays in children, a leading medical society advised.`\
 https://nytimes.com/2025/09/19/health/pregnancy-cannabis-marijuana-guidelines.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/19/theater/mexodus-review-audible.html
 **Uber for Business: Driving Growing Brands**\
 `On any given morning, Amrita Bhasin wakes up ready to hop on a flight and make a sale with a new client.`\
 https://nytimes.com/paidpost/2025-04-22/.html
-
-**Finnish Prime Minister Petteri Orpo on Winning the Debate on Climate Change**\
-`We asked heads of state how they’re steering their countries as America retreats.`\
-https://nytimes.com/interactive/2025/09/19/magazine/petteri-orpo-finland-climate-interview.html
-
-**Irfaan Ali, President of Guyana, on Putting Oil Profits Into Clean Energy**\
-`We asked heads of state how they’re steering their countries as America retreats.`\
-https://nytimes.com/interactive/2025/09/19/magazine/irfaan-ali-guyana-climate-interview.html
 

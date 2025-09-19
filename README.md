@@ -1,3 +1,11 @@
+**Heavy Rain Brings Mudslides and Flash Floods to Southern California**\
+`A toddler was missing after he and his father were swept off the road in their vehicle by floodwaters. Officials were still assessing the damage.`\
+https://nytimes.com/2025/09/19/weather/southern-california-mudslides-rain.html
+
+**After 50 Years, the Magic Circle (Finally) Inducts Penn & Teller**\
+`There had been resistance to admitting the duo because of their willingness to reveal the secrets behind their illusions. But it was always more complicated than that.`\
+https://nytimes.com/2025/09/19/arts/penn-teller-magic-circle.html
+
 **Gov. Spencer Cox on the Trump Administration’s Crackdown**\
 `“It’s going to take more speech and more sunlight and more disagreement” to fight political violence, says Gov. Spencer Cox of Utah.`\
 https://nytimes.com/video/opinion/100000010407663/gov-spencer-cox-on-the-trump-administrations-crackdown.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6644951/2025/09/19/maple-leafs-training-camp-auston
 **Hollywood’s Walk of Shame**\
 `What’s happening to Jimmy Kimmel is what happened to my film “The Apprentice.”`\
 https://nytimes.com/2025/09/19/opinion/hollywood-kimmel-trump-disney.html
-
-**‘Mexodus’ Review: A History Musical With Thrilling Loop-the-Loops**\
-`Brian Quijada and Nygel D. Robinson take viewers south on the Underground Railroad in this electric production that feels like a jam session.`\
-https://nytimes.com/2025/09/19/theater/mexodus-review-audible.html
-
-**Uber for Business: Driving Growing Brands**\
-`On any given morning, Amrita Bhasin wakes up ready to hop on a flight and make a sale with a new client.`\
-https://nytimes.com/paidpost/2025-04-22/.html
 
