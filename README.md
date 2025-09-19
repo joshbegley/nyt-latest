@@ -1,3 +1,11 @@
+**Late Night Takes On Kimmel’s Suspension and Free Speech**\
+`Jon Stewart, host of “The Daily Show,” joked about having an “administration-compliant” show, joining several commentaries on free speech and the suspension of Jimmy Kimmel on ABC.`\
+https://nytimes.com/video/arts/television/100000010409245/jimmy-kimmel-david-letterman-stephen-colbert.html
+
+**Should We Listen to the A.I. Doomsayers?**\
+`Readers respond to a Business column about a prophet of A.I. who warns about its future. Also: Fighting crime at its roots; the soybean solution.`\
+https://nytimes.com/2025/09/19/opinion/ai-doomsayers.html
+
 **Trump Officials Question Harvard’s Stability, Saying Federal Inquiries Raise Financial Risk**\
 `The administration’s latest attack on the nation’s oldest university comes as negotiations stall for a settlement to restore billions in frozen federal research funds.`\
 https://nytimes.com/2025/09/19/us/politics/trump-harvard-financial-risk.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6644502/2025/09/19/trae-young-patrick-beverley-nba-
 **Susan Xenarios, Who Transformed Rape Crisis Response, Dies at 79**\
 `She helped found New York City’s first rape crisis center after encountering indifference when she herself was assaulted. Then she took on New York State laws.`\
 https://nytimes.com/2025/09/19/nyregion/susan-xenarios-dead.html
-
-**ESPN aims to preserve 'Inside the NBA' format when show debuts next month**\
-`Full details of how ESPN will use "Inside" are likely to emerge over the next three weeks, but the famed crew will be part of opening night.`\
-https://nytimes.com/athletic/6644488/2025/09/19/inside-the-nba-espn-details-changes/
-
-**Champions League post-MD1 projections: Liverpool early favourites but are Inter flying under the radar?**\
-`An analysis of the state of play in Europe's premier club competition following the conclusion of the first round of fixtures`\
-https://nytimes.com/athletic/6644047/2025/09/19/champions-league-2025-26-projections/
 
