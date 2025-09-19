@@ -1,3 +1,7 @@
+**Foden is looking like his old self and Manchester City are reaping the rewards**\
+`Manchester City overcame Napoli on Thursday night and Foden deserved credit for his role in that win`\
+https://nytimes.com/athletic/6642221/2025/09/19/phil-foden-manchester-city-napoli-analysis/
+
 **Newcastle learned a lesson the hard way courtesy of Barcelona's wrecking ball**\
 `Newcastle fell to a 2-1 defeat against Barcelona in their opening Champions League game`\
 https://nytimes.com/athletic/6642546/2025/09/19/newcastle-united-barcelona-analysis/
