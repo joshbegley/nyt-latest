@@ -1,3 +1,7 @@
+**18-Year-Old Is Fatally Shot During F.B.I. and A.T.F. Operation in Pennsylvania**\
+`A medical examiner’s report said Kendric Curtis, 18, was “shot by law enforcement” on Thursday and died on Friday.`\
+https://nytimes.com/2025/09/19/us/atf-shooting-student-aliquippa-pennsylvania.html
+
 **Earth Has a New ‘Quasi-Moon,’ and It May Be Very Tiny**\
 `The object shares Earth’s orbit around the sun and could be with us for almost another 60 years.`\
 https://nytimes.com/2025/09/19/science/earth-quasi-moon-asteroid.html
