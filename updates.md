@@ -1,3 +1,11 @@
+**Harris Assails ABC Suspension of Kimmel as ‘Rewarding’ Trump**\
+`In an interview ahead of her new book’s release, former Vice President Kamala Harris warned that President Trump would only grow more emboldened in crushing dissent.`\
+https://nytimes.com/2025/09/19/us/politics/harris-abc-kimmel-trump.html
+
+**The Debate Over the Kirk Shooting Suspect’s Motive and Ideology**\
+`Spencer Cox, the governor of Utah, reflects on what understanding the Kirk shooting suspect’s ideology can — and can’t — reveal.`\
+https://nytimes.com/video/opinion/100000010407786/the-debate-over-the-kirk-shooting-suspects-motive-and-ideology.html
+
 **Why John Gibson could be Red Wings' answer in goal: Training camp observations**\
 `Gibson was Detroit's top offseason acquisition, and brings some sorely needed upside to the Red Wings' goaltending situation.`\
 https://nytimes.com/athletic/6645020/2025/09/19/red-wings-training-camp-john-gibson-todd-mclellan/
