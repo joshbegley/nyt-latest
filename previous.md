@@ -1,3 +1,7 @@
+**TAFC: Multi-club mutiny, Arsenal boardroom shake-up as Lewis leaves, Rashford reborn?**\
+`Today in TAFC: A multi-club move that has caused fans to rebel against their club. Plus: Arsenal shake up their boardroom, Is Rashford back?`\
+https://nytimes.com/athletic/6643521/2025/09/19/chelsea-strasbourg-emegha-arsenal-tim-lewis/
+
 **The Pulse: A good loss? In this economy?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6643194/2025/09/19/bills-dolphins-mike-mcdaniel-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6641474/2025/09/19/bengals-joe-burrow-browns-steele
 **Plane Crashes in North Carolina With 3 on Board**\
 `The plane crashed into a field in the town of Franklin, in the western part of the state, officials said.`\
 https://nytimes.com/2025/09/19/us/plane-crash-north-carolina-brett-james.html
-
-**Bruins preseason depth chart 1.0: Arvidsson gets a top-6 shot with Pastrnak out with tendinitis**\
-`On David Pastrnak's readiness for camp, coach Marco Sturm said: "I’m not worried at all. He’s knocking on my door every day already."`\
-https://nytimes.com/athletic/6640672/2025/09/19/bruins-preseason-depth-chart-arvidsson-pastrnak/
 

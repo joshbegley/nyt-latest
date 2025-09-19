@@ -1,3 +1,7 @@
+**TAFC: Multi-club mutiny, Arsenal boardroom shake-up as Lewis leaves, Rashford reborn?**\
+`Today in TAFC: A multi-club move that has caused fans to rebel against their club. Plus: Arsenal shake up their boardroom, Is Rashford back?`\
+https://nytimes.com/athletic/6643521/2025/09/19/chelsea-strasbourg-emegha-arsenal-tim-lewis/
+
 **The Pulse: A good loss? In this economy?**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6643194/2025/09/19/bills-dolphins-mike-mcdaniel-the-pulse/
