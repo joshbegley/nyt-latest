@@ -1,3 +1,7 @@
+**Colt Keith goes on IL, a 'concerning' loss for Tigers as they fight for division title**\
+`The infielder left Thursday's game with rib cage inflammation. Detroit called up Jace Jung to fill Keith's roster spot.`\
+https://nytimes.com/athletic/6645388/2025/09/19/detroit-tigers-colt-keith-injury/
+
 **A Government Shutdown Is Looming**\
 `Also, Trump officials fought over the fate of a veteran U.S. attorney. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/09/19/briefing/a-government-shutdown-is-looming.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/19/arts/television/haunted-hotel-netflix.html
 **Trump Asks the Supreme Court, Again, to Lift Protections for Venezuelans**\
 `The solicitor general accused a federal trial judge of defying an earlier order from the justices, though one that provided no reasoning.`\
 https://nytimes.com/2025/09/19/us/trump-supreme-court-protections-venezuelans.html
-
-**What the TikTok Deal Means for U.S.-China Relations**\
-`What could a TikTok deal mean for the relationship between the U.S. and China? Katrin Bennhold discusses with Lily Kuo, a New York Times reporter covering China`\
-https://nytimes.com/video/world/asia/100000010407536/what-the-tiktok-deal-means-for-us-china-relations.html
 
