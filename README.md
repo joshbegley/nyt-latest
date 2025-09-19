@@ -1,3 +1,7 @@
+**18-Year-Old Is Fatally Shot During F.B.I. and A.T.F. Operation in Pennsylvania**\
+`A medical examiner’s report said Kendric Curtis, 18, was “shot by law enforcement” on Thursday and died on Friday.`\
+https://nytimes.com/2025/09/19/us/atf-shooting-student-aliquippa-pennsylvania.html
+
 **Earth Has a New ‘Quasi-Moon,’ and It May Be Very Tiny**\
 `The object shares Earth’s orbit around the sun and could be with us for almost another 60 years.`\
 https://nytimes.com/2025/09/19/science/earth-quasi-moon-asteroid.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/19/books/review/podcast-mary-roach-interview.html
 **Taliban Bans Books by Women in Afghanistan’s Universities**\
 `More than 600 books, many of them written by women, are being purged, based on a contention that they conflict with Sharia principles.`\
 https://nytimes.com/2025/09/19/world/asia/taliban-ban-women-author-books.html
-
-**Meet the new Ralphie: Latest Colorado mascot to make debut Saturday**\
-`Ralphie VI, known as Ember, retired last month after four seasons due to “an indifference to running.”`\
-https://nytimes.com/athletic/6644891/2025/09/19/ralphie-vii-colorado-bison/
 
