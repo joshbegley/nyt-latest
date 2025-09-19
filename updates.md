@@ -1,3 +1,7 @@
+**Penguins' Evgeni Malkin: 'If it's my last year here, I want to show everything'**\
+`Malkin wants to finish his career in Pittsburgh but hasn't shot down the possibility of playing elsewhere. `\
+https://nytimes.com/athletic/6644417/2025/09/19/penguins-evgeni-malkin-retirement-nhl-contract/
+
 **Heat's Tyler Herro will be sidelined to start season following surgery**\
 `The 25-year-old is coming off his first All-Star appearance and is eligible to sign a contract extension next month.`\
 https://nytimes.com/athletic/6644450/2025/09/19/tyler-herro-injury-foot-heat/
