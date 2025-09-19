@@ -1,3 +1,11 @@
+**NFL tells refs to watch Eagles’ tush push after missed calls vs. Chiefs**\
+`“We want to officiate it tight," says video sent to NFL game officials and teams.`\
+https://nytimes.com/athletic/6642994/2025/09/18/eagles-chiefs-tush-push-referees-missed-penalties/
+
+**Texas A&M President to Step Down After Controversy Over ‘Gender Ideology’**\
+`The university had been roiled after a student filmed herself arguing with the instructor of a children’s literature course that recognized more than two genders.`\
+https://nytimes.com/2025/09/18/us/texas-am-president-gender-ideology-controversy.html
+
 **Provide That Crucial Spark**\
 `Erica Hsiung Wojcik’s answers light up the grid.`\
 https://nytimes.com/2025/09/18/crosswords/daily-puzzle-2025-09-19.html

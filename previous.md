@@ -1,3 +1,7 @@
+**NFL tells refs to watch Eagles’ tush push after missed calls vs. Chiefs**\
+`“We want to officiate it tight," says video sent to NFL game officials and teams.`\
+https://nytimes.com/athletic/6642994/2025/09/18/eagles-chiefs-tush-push-referees-missed-penalties/
+
 **Provide That Crucial Spark**\
 `Erica Hsiung Wojcik’s answers light up the grid.`\
 https://nytimes.com/2025/09/18/crosswords/daily-puzzle-2025-09-19.html
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/6642751/2025/09/18/suter-mctavish-roslovic-free-age
 https://nytimes.com/2025/09/18/us/politics/trump-fcc-licenses.html
 
 **Texas A&M President to Step Down After Controversy Over ‘Gender Ideology’**\
-`The university had been roiled over a student who filmed herself arguing with the instructor of a children’s literature course that recognized more than two genders.`\
+`The university had been roiled after a student filmed herself arguing with the instructor of a children’s literature course that recognized more than two genders.`\
 https://nytimes.com/2025/09/18/us/texas-am-president-gender-ideology-controversy.html
 
 **How to watch Nationals at Mets: Time, TV, streaming for September 19**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6642790/2025/09/18/red-sox-vs-rays-stream-how-to-wa
 **How to watch Blue Jays at Royals: Time, TV, streaming for September 19**\
 `Find out how to watch the Toronto Blue Jays play the Kansas City Royals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6642784/2025/09/18/blue-jays-vs-royals-stream-how-to-watch-sept-19/
-
-**How This Mom’s Viral Clips Fueled the ‘The Summer I Turned Pretty’ Fandom**\
-`Tina DiCenso’s reactions to the show, which reflect the anxiety it often inflicts on its fans, have become must-watch programming all their own.`\
-https://nytimes.com/2025/09/18/arts/television/the-summer-i-turned-pretty-reactions-fans.html
 
