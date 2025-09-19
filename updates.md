@@ -1,3 +1,8 @@
+**Is Matias Maccelli ready for prime time with the Maple Leafs?**\
+`At training camp, the Leafs want to see if newcomer Maccelli can hang on their No. 1 line alongside Auston Matthews and Matthew Knies.
+`\
+https://nytimes.com/athletic/6641692/2025/09/19/maple-leafs-matias-maccelli-training-camp/
+
 **Hurzeler: Ayto will be 'embraced' at Brighton**\
 `The former Arsenal assistant and interim sporting director has replaced former technical director David Weir at Brighton.`\
 https://nytimes.com/athletic/6643766/2025/09/19/jason-ayto-brighton-fabian-hurzeler/
