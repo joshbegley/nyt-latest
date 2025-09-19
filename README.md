@@ -1,3 +1,7 @@
+**Joao Palhinha: Problem or problem solver for Tottenham Hotspur?**\
+`To understand the Portuguese midfielder's place at Tottenham, you have to look back at why they signed him...`\
+https://nytimes.com/athletic/6640340/2025/09/19/palhinha-tottenham-hotspur-problem-solver/
+
 **How Bradford City are full-meme ahead in their bid to climb back up the divisions**\
 `The Yorkshire side were expected to consolidate in League One this season, instead they find themselves level with pacesetters Cardiff City`\
 https://nytimes.com/athletic/6631392/2025/09/19/bradford-city-pecked-by-the-chickens/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6631044/2025/09/19/roc-nation-yormark-lukaku-agency
 **'I love 'Tommy lad' from the fans – even the players greet me with it. The support I get is beautiful'**\
 `Tommy Fleetwood has become one of the most popular golfers in the U.S. - he is more than ready for the Ryder Cup challenge at Bethpage`\
 https://nytimes.com/athletic/6633518/2025/09/19/tommy-fleetwood-interview-ryder-cup-everton-pep-guardiola/
-
-**Man United interest knocked Baleba out of his stride, but Brighton back him to recover**\
-`The dynamic midfielder was on Amorim’s agenda throughout the summer, but an offer was nowhere near enough to entice Brighton to sell`\
-https://nytimes.com/athletic/6623170/2025/09/19/carlos-baleba-manchester-united-brighton-premier-league-transfer/
 
