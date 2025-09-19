@@ -1,3 +1,7 @@
+**Pregnant Women Should Not Use Cannabis, New Medical Guidelines Say**\
+`Marijuana during pregnancy is linked to poor birth outcomes and developmental delays in children, a leading medical society advised.`\
+https://nytimes.com/2025/09/19/health/pregnancy-cannabis-marijuana-guidelines.html
+
 **Jack Daniels, Olympic Medalist and ‘World’s Best’ Running Coach, Dies at 92**\
 `Tutoring Olympians, he created a simple workout formula that was said to produce the best results with the least effort, earning accolades across the running world.`\
 https://nytimes.com/2025/09/19/sports/jack-daniels-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/09/19/magazine/petteri-orpo-finland-climate
 **Irfaan Ali, President of Guyana, on Putting Oil Profits Into Clean Energy**\
 `We asked heads of state how they’re steering their countries as America retreats.`\
 https://nytimes.com/interactive/2025/09/19/magazine/irfaan-ali-guyana-climate-interview.html
-
-**Anthony Albanese, Prime Minister of Australia, on Getting Past Climate Partisanship**\
-`We asked heads of state how they’re steering their countries as America retreats.`\
-https://nytimes.com/interactive/2025/09/19/magazine/anthony-albanese-australia-climate-interview.html
 
