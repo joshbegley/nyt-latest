@@ -1,3 +1,15 @@
+**President William Ruto of Kenya on Pushing Clean Energy Amid Domestic Unrest**\
+`We asked heads of state how they’re steering their countries as America retreats.`\
+https://nytimes.com/interactive/2025/09/19/magazine/william-ruto-kenya-climate-interview.html
+
+**Muhammad Yunus, Chief Adviser of Bangladesh, on Getting Squeezed by Rising Tides**\
+`We asked heads of state how they’re steering their countries as America retreats.`\
+https://nytimes.com/interactive/2025/09/19/magazine/muhammad-yunus-bangladesh-climate-interview.html
+
+**Six World Leaders on Navigating Climate Change, Without the U.S.**\
+`We asked heads of state how they’re steering their countries as America retreats.`\
+https://nytimes.com/interactive/2025/09/19/magazine/climate-change-world-leaders-interviews.html
+
 **In Mexico, New Mothers Are Seeking Out Old Rituals**\
 `Some women in the country’s capital are turning to midwives who they say offer a more holistic approach to care than hospitals usually provide.`\
 https://nytimes.com/2025/09/19/world/americas/mexico-midwife-postpartum.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/19/science/earth-quasi-moon-asteroid.html
 **Family of Maddy Cusack 'devastated' by Sheffield United's decision not to retire shirt**\
 `Cusack, who was the club’s longest-serving player, took her own life, aged 27, on September 20, 2023`\
 https://nytimes.com/athletic/6631974/2025/09/19/maddy-cusack-sheffield-united-shirt-number/
-
-**A New Shot for Cancer Is Convenient, but Poised to Keep Prices High**\
-`The F.D.A. approved Merck’s injected version of its blockbuster infusion Keytruda. The company says it will be quicker and easier, but it stands to slow the adoption of cheaper competitors and increase costs by billions of dollars.`\
-https://nytimes.com/2025/09/19/health/keytruda-merck-cancer-patents.html
-
-**Dolphins plan to talk to NFL over final play of first half against Bills**\
-`There’s no question that the play was a fumble, as the official box score attributes that to Josh Allen. The concern is how it played out.`\
-https://nytimes.com/athletic/6644873/2025/09/19/dolphins-bills-review-nfl-fumble/
-
-**Protesters and federal agents clash outside an ICE detention facility near Chicago.**\
-`By Robert Chiarito and Julie Bosman`\
-https://nytimes.com/2025/09/19/us/politics/protesters-and-federal-agents-clash-outside-an-ice-detention-facility-near-chicago.html
 

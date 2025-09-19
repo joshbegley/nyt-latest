@@ -1,3 +1,15 @@
+**President William Ruto of Kenya on Pushing Clean Energy Amid Domestic Unrest**\
+`We asked heads of state how they’re steering their countries as America retreats.`\
+https://nytimes.com/interactive/2025/09/19/magazine/william-ruto-kenya-climate-interview.html
+
+**Muhammad Yunus, Chief Adviser of Bangladesh, on Getting Squeezed by Rising Tides**\
+`We asked heads of state how they’re steering their countries as America retreats.`\
+https://nytimes.com/interactive/2025/09/19/magazine/muhammad-yunus-bangladesh-climate-interview.html
+
+**Six World Leaders on Navigating Climate Change, Without the U.S.**\
+`We asked heads of state how they’re steering their countries as America retreats.`\
+https://nytimes.com/interactive/2025/09/19/magazine/climate-change-world-leaders-interviews.html
+
 **In Mexico, New Mothers Are Seeking Out Old Rituals**\
 `Some women in the country’s capital are turning to midwives who they say offer a more holistic approach to care than hospitals usually provide.`\
 https://nytimes.com/2025/09/19/world/americas/mexico-midwife-postpartum.html
