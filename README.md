@@ -1,4 +1,16 @@
-**Calls for Retribution Over Kirk Criticism Make Some Ask: Is There a ‘Woke Right’?**\
+**Why John Gibson could be Red Wings' answer in goal: Training camp observations**\
+`Gibson was Detroit's top offseason acquisition, and brings some sorely needed upside to the Red Wings' goaltending situation.`\
+https://nytimes.com/athletic/6645020/2025/09/19/red-wings-training-camp-john-gibson-todd-mclellan/
+
+**A Week of Deepening Political Divides**\
+`Tempers are always flaring in Washington. But the current level of vitriol has felt especially nasty and intense.`\
+https://nytimes.com/2025/09/19/us/politics/trump-kimmel-charlie-kirk.html
+
+**What we're seeing at Canucks training camp: 10 observations from Penticton**\
+`With two days now in the books, let's get into the weeds on the top developments at Canucks camp.`\
+https://nytimes.com/athletic/6645206/2025/09/19/canucks-training-camp-2025-penticton/
+
+**With Calls for Retribution Over Kirk, Some See Rise of a ‘Woke Right’**\
 `Conservatives have pressed for consequences for those who make negative comments about Charlie Kirk. But a few on the right say they worry about limits on speech.`\
 https://nytimes.com/2025/09/19/us/calls-for-retribution-over-kirk-criticism-make-some-ask-is-there-a-woke-right.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/19/us/politics/ted-cruz-fcc-abc-jimmy-kimmel.html
 **Colt Keith goes on IL, a 'concerning' loss for Tigers as they fight for division title**\
 `The infielder left Thursday's game with rib cage inflammation. Detroit called up Jace Jung to fill Keith's roster spot.`\
 https://nytimes.com/athletic/6645388/2025/09/19/detroit-tigers-colt-keith-injury/
-
-**A Government Shutdown Is Looming**\
-`Also, Trump officials fought over the fate of a veteran U.S. attorney. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2025/09/19/briefing/a-government-shutdown-is-looming.html
-
-**Falcons release kicker Younghoe Koo, sign John Parker Romo to 53-man roster**\
-`Koo had been with the Falcons since 2019 and ranked fourth in the NFL with 178 made field goals during that stretch.`\
-https://nytimes.com/athletic/6645303/2025/09/19/falcons-release-younghoe-koo-sign-john-parker-romo/
-
-**49ers QB Brock Purdy 'highly unlikely' to start Sunday vs. Cardinals**\
-`Mac Jones, who helped lead the 49ers to a Week 2 win over the Saints, is expected to get his second straight start. `\
-https://nytimes.com/athletic/6645330/2025/09/19/49ers-brock-purdy-injury-update-cardinals/
 
