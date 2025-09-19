@@ -1,5 +1,9 @@
+**NHL honors late Penguins, Devils GM Ray Shero with Lester Patrick Trophy**\
+`The award is given to a person based on their outstanding service to hockey in the United States.`\
+https://nytimes.com/athletic/6644833/2025/09/19/ray-shero-lester-patrick-trophy-nhl-penguins-devils/
+
 **Shane Pinto doesn't want to be a 'distraction' amid contract extension talks**\
-`Days earlier, Senators GM Steve Staios said he engaged in "discussions" with Pinto's agent, Lewis Gross, "a couple of weeks ago". `\
+`Days earlier, Senators GM Steve Staios said he engaged in "discussions" with Pinto's agent, Lewis Gross, "a couple of weeks ago." `\
 https://nytimes.com/athletic/6644758/2025/09/19/pinto-senators-contract-extension/
 
 **Astros to activate Isaac Paredes prior to series against Mariners: Source**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6644741/2025/09/19/rasmus-dahlin-carolina-matovac-h
 **Late Night Takes On Kimmel’s Suspension and Free Speech**\
 `Jon Stewart, host of “The Daily Show,” joked about having an “administration-compliant” show, joining several commentaries on free speech and the suspension of Jimmy Kimmel on ABC.`\
 https://nytimes.com/video/arts/television/100000010409245/jimmy-kimmel-david-letterman-stephen-colbert.html
-
-**Should We Listen to the A.I. Doomsayers?**\
-`Readers respond to a Business column about a prophet of A.I. who warns about its future. Also: Fighting crime at its roots; the soybean solution.`\
-https://nytimes.com/2025/09/19/opinion/ai-doomsayers.html
 
