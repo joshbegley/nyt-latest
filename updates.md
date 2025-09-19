@@ -1,3 +1,7 @@
+**Colt Keith goes on IL, a 'concerning' loss for Tigers as they fight for division title**\
+`The infielder left Thursday's game with rib cage inflammation. Detroit called up Jace Jung to fill Keith's roster spot.`\
+https://nytimes.com/athletic/6645388/2025/09/19/detroit-tigers-colt-keith-injury/
+
 **A Government Shutdown Is Looming**\
 `Also, Trump officials fought over the fate of a veteran U.S. attorney. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/09/19/briefing/a-government-shutdown-is-looming.html
