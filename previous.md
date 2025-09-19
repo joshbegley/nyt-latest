@@ -1,3 +1,19 @@
+**You Barely Need a Recipe for This Top-Rated Salmon**\
+`But I’ll share one anyway, since my roasted salmon glazed with brown sugar and mustard is a five-star favorite with nearly 20,000 ratings.`\
+https://nytimes.com/2025/09/19/dining/you-barely-need-a-recipe-for-this-top-rated-salmon.html
+
+**D.C. United hires Mesut Ozil's former agent as new sporting director**\
+`D.C. United is hoping to kick-start a revival, with the club mired among MLS's worst for a lengthy stretch`\
+https://nytimes.com/athletic/6644372/2025/09/19/dc-united-sporting-director-erkut-sogut-mesut-ozil-mls/
+
+**American Rai Benjamin, nearly DQed, wins first 400-meter hurdles world title**\
+`Benjamin got a long-awaited world championship gold medal, Femke Bol repeated hers, and more notes from a busy Day 7 in Tokyo.`\
+https://nytimes.com/athletic/6644361/2025/09/19/rai-benjamin-400-meter-hurdles-femke-bol-world-athletics-championships/
+
+**Suspect in 1982 Attack on Jewish Deli in Paris Is Arrested, France Says**\
+`The man was arrested in the West Bank by Palestinian authorities, President Emmanuel Macron said. The attack killed six people, including two Americans.`\
+https://nytimes.com/2025/09/19/world/europe/1982-paris-attack-antisemitism-arrest.html
+
 **House Passes Spending Extension That Democrats Vow to Block**\
 `Republicans pushed through a measure to avert a shutdown, but Democrats plan to block it in the Senate, demanding more than $1 trillion for health programs.`\
 https://nytimes.com/2025/09/19/us/politics/house-spending-extension.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/09/19/world/trump-jimmy-kimmel-fcc-comedy-autocracy.htm
 **Newcastle's Schar to miss 'a few games' after sustaining head injury vs. Barcelona**\
 `The 33-year-old had initially played on but was eventually substituted in the 63rd minute.`\
 https://nytimes.com/athletic/6644234/2025/09/19/fabian-schar-newcastle-injury-update/
-
-**The S.E.C. Drops Efforts to Recoup Funds From Trump Clemency Recipients**\
-`Devon Archer, Trevor Milton and Carlos Watson were convicted in fraud schemes totaling hundreds of millions of dollars. Now, they will not be required to pay back victims.`\
-https://nytimes.com/2025/09/19/us/politics/sec-trump-clemency.html
-
-**High Five: Ivan Toney vs Darwin Nunez and the Eternal Derby**\
-`Two eternal derbies, a clash of Brazilian titans and … checks notes … Dean Smith. It's quite the weekend of global football action`\
-https://nytimes.com/athletic/6642542/2025/09/19/toney-nunez-eternal-derby-preview/
-
-**The Windup: An all-timer is hanging them up**\
-`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
-https://nytimes.com/athletic/6644218/2025/09/19/clayton-kershaw-retirement-the-windup/
-
-**Melissa Jefferson-Wooden caps historic sprint double with 200-meter world title**\
-`The American on Friday added 200-meter gold to her 100-meter crown, the first world-championship women's double in the events since 2013.`\
-https://nytimes.com/athletic/6644277/2025/09/19/melissa-jefferson-wooden-200-meter-gold-sprint-double-world-championships/
 
