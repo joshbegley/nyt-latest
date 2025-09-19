@@ -1,3 +1,7 @@
+**Melissa Jefferson-Wooden caps historic sprint double with 200-meter world title**\
+`The American on Friday added 200-meter gold to her 100-meter crown, the first world-championship women's double in the events since 1991.`\
+https://nytimes.com/athletic/6644277/2025/09/19/melissa-jefferson-wooden-200-meter-gold-sprint-double-world-championships/
+
 **Can’t Find That Coat You Saw? Or That Sofa? Or That Hat? Get in Touch!**\
 `In our new series, we help readers track down the objects and styles they can’t stop thinking about.`\
 https://nytimes.com/article/style-detective-submission.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6642637/2025/09/19/ucla-football-deshaun-foster-mar
 **Agnes Gund, Who Oversaw a Major Expansion of MoMA, Dies at 87**\
 `A champion of contemporary art, she was the museum’s president for 11 years. She also founded the Art for Justice Fund, donating $100 million.`\
 https://nytimes.com/2025/09/19/arts/agnes-gund-dead.html
-
-**Charlie Kirk’s Base Was Young People. Now His Tent Might Be Expanding.**\
-`Since his death, the parents and grandparents of his original followers are discovering his work. They like what they see.`\
-https://nytimes.com/2025/09/19/us/charlie-kirk-turning-point-usa.html
 

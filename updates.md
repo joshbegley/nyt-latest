@@ -1,3 +1,7 @@
+**Melissa Jefferson-Wooden caps historic sprint double with 200-meter world title**\
+`The American on Friday added 200-meter gold to her 100-meter crown, the first world-championship women's double in the events since 1991.`\
+https://nytimes.com/athletic/6644277/2025/09/19/melissa-jefferson-wooden-200-meter-gold-sprint-double-world-championships/
+
 **Can’t Find That Coat You Saw? Or That Sofa? Or That Hat? Get in Touch!**\
 `In our new series, we help readers track down the objects and styles they can’t stop thinking about.`\
 https://nytimes.com/article/style-detective-submission.html
