@@ -1,3 +1,7 @@
+**Why Leclerc is so good in Baku. Plus, Ferrari leads the early F1 action in Azerbaijan**\
+`Ferrari driver Charles Leclerc has an impressive record of pole positions at the Azerbaijan GP, but he's endured much heartache in Baku too`\
+https://nytimes.com/athletic/6644216/2025/09/19/charles-leclerc-baku-record/
+
 **Day 1 with the Ducks for Joel Quenneville: 'Pace and purpose' but no Mason McTavish**\
 `The McTavish contract stalemate is not the ideal way for Quenneville to begin. But it didn’t dim the joy he longed for.`\
 https://nytimes.com/athletic/6643422/2025/09/19/anaheim-ducks-joel-quenneville-mason-mctavish/
