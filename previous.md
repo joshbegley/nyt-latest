@@ -1,3 +1,7 @@
+**Quote of the Day: Trump Hits the Media With Everything He Has**\
+`Quotation of the Day for Friday, September 19, 2025.`\
+https://nytimes.com/2025/09/18/pageoneplus/quote-of-the-day-trump-hits-the-media-with-everything-he-has.html
+
 **Cade Horton: Why wouldn't he be the Cubs' Game 1 playoff starter?**\
 `“I love pitching in high-stakes moments,” Horton said. “It’s a lot of fun to go out there and compete when you’re in the thick of it.”`\
 https://nytimes.com/athletic/6643153/2025/09/18/cade-horton-cubs-game-1-playoff-starter/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6642386/2025/09/18/cleveland-guardians-mlb-playoffs
 **NHL rumblings: Latest on notable free agents as camps open — Suter, McTavish, Roslovic and more**\
 `With training camps opening around the league Thursday, here's what we're hearing about some of the players who haven't found homes yet.`\
 https://nytimes.com/athletic/6642751/2025/09/18/suter-mctavish-roslovic-free-agent-rumblings/
-
-**Trump Pressures Broadcasters Over Critical Coverage, Escalating Attack on Speech**\
-`The president’s suggestion that broadcasters should lose their licenses because of criticism of him indicated that his assault on critics’ language is driven in part by personal animus.`\
-https://nytimes.com/2025/09/18/us/politics/trump-fcc-licenses.html
 

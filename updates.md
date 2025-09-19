@@ -1,3 +1,7 @@
+**Quote of the Day: Trump Hits the Media With Everything He Has**\
+`Quotation of the Day for Friday, September 19, 2025.`\
+https://nytimes.com/2025/09/18/pageoneplus/quote-of-the-day-trump-hits-the-media-with-everything-he-has.html
+
 **Bills vs. Dolphins takeaways: Did Miami quiet McDaniel firing rumors despite loss?**\
 `The Dolphins fell to 0-3, but a game that was too close for too long — for the Bills — might've prolonged McDaniel's job security.`\
 https://nytimes.com/athletic/6642981/2025/09/18/dolphins-bills-score-result-takeaways-thursday-night-football/
