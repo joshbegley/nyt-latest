@@ -1,3 +1,11 @@
+**NHL rumblings: Latest on notable free agents as camps open — Suter, McTavish, Roslovic and more**\
+`With training camps opening around the league Thursday, here's what we're hearing about some of the players who haven't found homes yet.`\
+https://nytimes.com/athletic/6642751/2025/09/18/suter-mctavish-roslovic-free-agent-rumblings/
+
+**Trump Pressures Broadcasters Over Critical Coverage, Escalating Attack on Speech**\
+`The president’s suggestion that broadcasters should lose their licenses because of criticism of him indicated that his assault on critics’ language is driven in part by personal animus.`\
+https://nytimes.com/2025/09/18/us/politics/trump-fcc-licenses.html
+
 **Texas A&M President to Step Down After Controversy Over ‘Gender Ideology’**\
 `The university had been roiled over a student who filmed herself arguing with the instructor of a children’s literature course that recognized more than two genders.`\
 https://nytimes.com/2025/09/18/us/texas-am-president-gender-ideology-controversy.html

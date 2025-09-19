@@ -1,3 +1,11 @@
+**NHL rumblings: Latest on notable free agents as camps open — Suter, McTavish, Roslovic and more**\
+`With training camps opening around the league Thursday, here's what we're hearing about some of the players who haven't found homes yet.`\
+https://nytimes.com/athletic/6642751/2025/09/18/suter-mctavish-roslovic-free-agent-rumblings/
+
+**Trump Pressures Broadcasters Over Critical Coverage, Escalating Attack on Speech**\
+`The president’s suggestion that broadcasters should lose their licenses because of criticism of him indicated that his assault on critics’ language is driven in part by personal animus.`\
+https://nytimes.com/2025/09/18/us/politics/trump-fcc-licenses.html
+
 **Texas A&M President to Step Down After Controversy Over ‘Gender Ideology’**\
 `The university had been roiled over a student who filmed herself arguing with the instructor of a children’s literature course that recognized more than two genders.`\
 https://nytimes.com/2025/09/18/us/texas-am-president-gender-ideology-controversy.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000010408808/11-democratic-officials-ar
 **When Did Cancel Culture Become ‘Consequence Culture’?**\
 `As some prominent conservatives target both ordinary people and public figures for their comments about Charlie Kirk, they are trying to rebrand a practice they once maligned.`\
 https://nytimes.com/2025/09/18/style/consequence-culture-kirk-kimmel.html
-
-**N.Y.P.D. Officers Face Misconduct Charges in Fatal Shooting of Man, 19**\
-`Police Commissioner Jessica Tisch’s decision to bring departmental charges against the two officers follows a finding that they used excessive force against the man, Win Rozario.`\
-https://nytimes.com/2025/09/18/nyregion/nypd-win-rozario-charges.html
-
-**Charges Dropped Against Man Who Was Beaten at Egypt’s U.N. Mission**\
-`Yasin El Sammak was whipped by a guard, taken down and strangled with his kaffiyeh, his father said. Then, he and his brother were charged by the New York City police.`\
-https://nytimes.com/2025/09/18/nyregion/egypt-mission-beating-charges-dropped.html
 
