@@ -1,3 +1,11 @@
+**Trump Administration Will End Deportation Protections for Thousands of Syrians**\
+`A homeland security official said it was “contrary to our national interest to allow Syrians to remain in our country.”`\
+https://nytimes.com/2025/09/19/us/politics/temporary-protected-status-syrians.html
+
+**A New Shot for Cancer Is Convenient, but Poised to Keep Prices High**\
+`The F.D.A. approved Merck’s injected version of its blockbuster infusion Keytruda. The company says it will be quicker and easier, but it stands to slow the adoption of cheaper competitors and increase costs by billions of dollars.`\
+https://nytimes.com/2025/09/19/health/keytruda-merck-cancer-patents.html
+
 **18-Year-Old Is Fatally Shot During F.B.I. and A.T.F. Operation in Pennsylvania**\
 `A medical examiner’s report said Kendric Curtis, 18, was “shot by law enforcement” on Thursday and died on Friday.`\
 https://nytimes.com/2025/09/19/us/atf-shooting-student-aliquippa-pennsylvania.html
