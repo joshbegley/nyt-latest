@@ -20,7 +20,7 @@ https://nytimes.com/athletic/6645206/2025/09/19/canucks-training-camp-2025-penti
 
 **With Calls for Retribution Over Kirk, Some See Rise of a ‘Woke Right’**\
 `Conservatives have pressed for consequences for those who make negative comments about Charlie Kirk. But a few on the right say they worry about limits on speech.`\
-https://nytimes.com/2025/09/19/us/calls-for-retribution-over-kirk-criticism-make-some-ask-is-there-a-woke-right.html
+https://nytimes.com/2025/09/19/us/charlie-kirk-free-speech-republicans.html
 
 **Rick Ware Racing, Legacy Motor Club settle lawsuit; RWR to sell charter to LMC**\
 `"I'm glad this is behind us and we can all move forward in unison," Legacy Motor Club owner Jimmie Johnson said in a statement.`\
