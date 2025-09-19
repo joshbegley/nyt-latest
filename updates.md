@@ -1,3 +1,7 @@
+**‘HIM’ | Anatomy of a Scene**\
+`The director Justin Tipping narrates a scene from “HIM,” featuring Marlon Wayans and Tyriq Withers.`\
+https://nytimes.com/video/movies/100000010408180/him-scene.html
+
 **Man Utd Women's historic Champions League qualification does not hide calls for more spending**\
 `United have overcome the odds to reach their first Champions League group stage`\
 https://nytimes.com/athletic/6642371/2025/09/19/man-utd-women-champions-league-qualification-journey/
