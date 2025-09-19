@@ -1,3 +1,7 @@
+**How to watch Liverpool vs. Everton from the U.S.: Merseyside derby returns to Anfield**\
+`This Saturday marks the 247th edition of the Merseyside derby. Will Liverpool pull off another thrilling victory?`\
+https://nytimes.com/athletic/6642252/2025/09/19/liverpool-vs-everton-merseyside-derby-how-to-watch-us/
+
 **To contend with Eagles, Rams must solve their Saquon Barkley problem**\
 `Barkley had over 200 rushing yards in both games against the Rams last season, including in the NFC divisional round. `\
 https://nytimes.com/athletic/6642172/2025/09/19/rams-eagles-saquon-barkley/
