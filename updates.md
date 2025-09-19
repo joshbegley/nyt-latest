@@ -1,3 +1,7 @@
+**Hard-Fought Treaty to Protect Ocean Life Clears a Final Hurdle**\
+`The global High Seas Treaty, decades in the making, will become international law. It aims to create vast maritime conservation areas.`\
+https://nytimes.com/2025/09/19/climate/high-seas-treaty-ocean-biodiversity-ratified.html
+
 **How to watch Liberty at Mercury: Game 3 Time, TV, streaming**\
 `Find out how to watch the New York Liberty play the Phoenix Mercury, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6645148/2025/09/19/liberty-vs-mercury-stream-how-to-watch-sept-19/
