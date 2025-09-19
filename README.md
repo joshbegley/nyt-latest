@@ -1,3 +1,7 @@
+**'Bad actors' are stealing, reselling fan tickets swiped from MLB's Ballpark app, MLB acknowledges**\
+`The rash of scams started around Labor Day, with fans owning tickets to large-market teams the most popular targets. `\
+https://nytimes.com/athletic/6644767/2025/09/19/mlb-digital-ticket-theft-ballpark-app/
+
 **Jayden Daniels out vs. Raiders with knee injury, Marcus Mariota to start**\
 `Daniels was injured on a scramble at the start of the fourth quarter against the Packers.`\
 https://nytimes.com/athletic/6641833/2025/09/19/jayden-daniels-knee-raiders/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/19/arts/dance/new-york-city-ballet-ballade-mira-nado
 **U.S.-based Afghan refugees denied access to new Afghanistan women’s soccer team**\
 `Training camps have taken place in Europe and Australia but U.S.-based players have been told safety concerns prevent their access.`\
 https://nytimes.com/athletic/6640594/2025/09/19/afghanistan-women-us-football-team-fifa/
-
-**Trump and China, in Vague Statements, Suggest TikTok Deal Could Move Ahead**\
-`The president wrote on Truth Social, “appreciate the TikTok approval,” after a call with China’s top leader, Xi Jinping. But he also suggested the deal and other issues were still in progress.`\
-https://nytimes.com/2025/09/19/business/trump-tiktok-deal-china.html
 
