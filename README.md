@@ -1,3 +1,7 @@
+**Europe Announces New Sanctions to Ramp Up Pressure on Russia**\
+`The latest set of European Union restrictions are aimed at chipping away at Russia’s energy profits and ability to do business globally.`\
+https://nytimes.com/2025/09/19/world/europe/eu-sanctions-russia-ukraine.html
+
 **Awkward reunion, compelling chess match ahead for Caleb Williams and Matt Eberflus**\
 `Eberflus’ main task Sunday for the Cowboys will be to frustrate the Bears quarterback he was responsible for developing last season.`\
 https://nytimes.com/athletic/6642240/2025/09/19/bears-caleb-williams-matt-eberflus-cowboys/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6635898/2025/09/19/tata-martino-atlanta-united-ronn
 **Why the Media Industry Is Bracing for More Blowback**\
 `Jimmy Kimmel remains off the air. But President Trump, the chair of the F.C.C. and local TV companies are likely to keep up pressure on broadcasters.`\
 https://nytimes.com/2025/09/19/business/dealbook/jimmy-kimmel-trump-disney-carr.html
-
-**How fixable are Cowboys' defensive issues? Eliminating major plays tops list**\
-`If the Cowboys continue playing defense the way they did last week against the Giants, they'll be picking in the top 10 of the 2026 draft.`\
-https://nytimes.com/athletic/6643486/2025/09/19/cowboys-defense-big-plays-secondary/
 
