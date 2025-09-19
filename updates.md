@@ -1,3 +1,7 @@
+**Fever oust Dream, reach WNBA semifinals for first time in a decade**\
+`Indiana overcomes a host of injuries, earns two-point win to advance.`\
+https://nytimes.com/athletic/6643091/2025/09/18/fever-dream-wnba-playoffs/
+
 **NFL tells refs to watch Eagles’ tush push after missed calls vs. Chiefs**\
 `“We want to officiate it tight," says video sent to NFL game officials and teams.`\
 https://nytimes.com/athletic/6642994/2025/09/18/eagles-chiefs-tush-push-referees-missed-penalties/
