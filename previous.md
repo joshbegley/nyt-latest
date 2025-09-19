@@ -1,3 +1,11 @@
+**Court Rules Against Arts Endowment on Trump’s ‘Gender Ideology’ Order**\
+`A new policy for the National Endowment for the Arts to review grant applications to see if they comply with President Trump’s “gender ideology” order violates the Constitution, the court said.`\
+https://nytimes.com/2025/09/19/arts/national-endowment-for-the-arts-trump-gender-ideology.html
+
+**Cruz Likens F.C.C. Chair’s ‘Threat’ to That of a Mafia Boss**\
+`The Republican senator warned that retaliating against media outlets over coverage that conservatives view as negative would set a “dangerous” precedent.`\
+https://nytimes.com/2025/09/19/us/politics/ted-cruz-fcc-abc-jimmy-kimmel.html
+
 **Colt Keith goes on IL, a 'concerning' loss for Tigers as they fight for division title**\
 `The infielder left Thursday's game with rib cage inflammation. Detroit called up Jace Jung to fill Keith's roster spot.`\
 https://nytimes.com/athletic/6645388/2025/09/19/detroit-tigers-colt-keith-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6644517/2025/09/19/clayton-kershaw-retirement-sf-gi
 **Heavy Rain Triggers Mudslides, Flash Floods in Southern California**\
 `A two-year-old is missing after floodwaters swept a car off the road. Several homes in San Bernardino County have also been destroyed.`\
 https://nytimes.com/video/weather/100000010410304/southern-california-mudslides-rain.html
-
-**‘Haunted Hotel’: A Domestic Dramedy Meets ‘The Shining’**\
-`This animated series from a “Rick and Morty” alumnus debuts Friday on Netflix.`\
-https://nytimes.com/2025/09/19/arts/television/haunted-hotel-netflix.html
-
-**Trump Asks the Supreme Court, Again, to Lift Protections for Venezuelans**\
-`The solicitor general accused a federal trial judge of defying an earlier order from the justices, though one that provided no reasoning.`\
-https://nytimes.com/2025/09/19/us/trump-supreme-court-protections-venezuelans.html
 
