@@ -1,3 +1,7 @@
+**Newcastle learned a lesson the hard way courtesy of Barcelona's wrecking ball**\
+`Newcastle fell to a 2-1 defeat against Barcelona in their opening Champions League game`\
+https://nytimes.com/athletic/6642546/2025/09/19/newcastle-united-barcelona-analysis/
+
 **The New York Times in Print for Friday, Sep. 19, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/19/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6640340/2025/09/19/palhinha-tottenham-hotspur-probl
 **How Bradford City are full-meme ahead in their bid to climb back up the divisions**\
 `The Yorkshire side were expected to consolidate in League One this season, instead they find themselves level with pacesetters Cardiff City`\
 https://nytimes.com/athletic/6631392/2025/09/19/bradford-city-pecked-by-the-chickens/
-
-**Aston Villa, the Premier League's oldest squad and a need for Emery to change his approach**\
-`Aston Villa have tended to sign players to win now. That might have to change as they evolve their squad`\
-https://nytimes.com/athletic/6630497/2025/09/19/aston-villa-oldest-squad-premier-league-analysis/
 
