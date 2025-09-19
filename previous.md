@@ -1,3 +1,11 @@
+**Explaining Manchester United's out-of-possession problems and why they are so damaging**\
+`The team's wide centre-backs are still timing their forward jumps badly and as a result the entire pressing apparatus is less effective`\
+https://nytimes.com/athletic/6636649/2025/09/19/manchester-united-out-of-possession-premier-league/
+
+**Premier League Predictions: Arsenal vs Man City, Merseyside derby and the rest of Matchday 5**\
+`Who's leading after MD4? And what do our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 5?`\
+https://nytimes.com/athletic/6631550/2025/09/19/premier-league-predictions-arsenal-man-city-merseyside-derby-and-the-rest-of-matchday-5/
+
 **'We treat every client like their name is Jay Z': How Roc Nation became one of football's leading agencies**\
 `The sports agency's president Michael Yormark talks Romelu Lukaku, Vinicius Jr and the Ballon d'Or and targeting the U.S. soccer market`\
 https://nytimes.com/athletic/6631044/2025/09/19/roc-nation-yormark-lukaku-agency/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/19/world/europe/trump-king-charles-keir-starmer.html
 **From Bi to Beige and Back Again**\
 `I wanted to avoid ending up like my traditional parents. Then my father revealed a long-buried secret.`\
 https://nytimes.com/2025/09/19/style/modern-love-from-bi-to-beige-and-back-again.html
-
-**Trump and Xi Set to Finalize TikTok Deal**\
-`The two leaders are expected to speak Friday to discuss a deal to keep the wildly popular app from going dark in the United States.`\
-https://nytimes.com/2025/09/19/business/media/trump-and-xi-set-to-finalize-tiktok-deal.html
-
-**Connections: Sports Edition Coach: Hints for Sept. 19, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6643078/2025/09/19/connections-sports-edition-hints-for-sept-19-2025/
 
