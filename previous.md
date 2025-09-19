@@ -1,3 +1,11 @@
+**Jayden Daniels out vs. Raiders because of knee injury; Marcus Mariota to start**\
+`Daniels was injured on a scramble at the start of the fourth quarter against the Packers.`\
+https://nytimes.com/athletic/6641833/2025/09/19/jayden-daniels-knee-raiders/
+
+**Sabres' Dahlin says fiancee recovering after emergency heart transplant**\
+`Dahlin shared details of a scary medical emergency his fiancee dealt with while the two were vacationing in France this summer.`\
+https://nytimes.com/athletic/6644741/2025/09/19/rasmus-dahlin-carolina-matovac-heart-transplant-sabres/
+
 **Late Night Takes On Kimmel’s Suspension and Free Speech**\
 `Jon Stewart, host of “The Daily Show,” joked about having an “administration-compliant” show, joining several commentaries on free speech and the suspension of Jimmy Kimmel on ABC.`\
 https://nytimes.com/video/arts/television/100000010409245/jimmy-kimmel-david-letterman-stephen-colbert.html
@@ -26,15 +34,7 @@ https://nytimes.com/2025/09/19/arts/dance/new-york-city-ballet-ballade-mira-nado
 `Training camps have taken place in Europe and Australia but U.S.-based players have been told safety concerns prevent their access.`\
 https://nytimes.com/athletic/6640594/2025/09/19/afghanistan-women-us-football-team-fifa/
 
-**Trump Suggests China Has Approved a TikTok Deal, Without Details**\
-`The president wrote on Truth Social, “appreciate the TikTok approval,” after a call with China’s top leader, Xi Jinping.`\
+**Trump Suggests China May Have Approved a TikTok Deal, Without Details**\
+`The president wrote on Truth Social, “appreciate the TikTok approval,” after a call with China’s top leader, Xi Jinping. But he also suggested the deal and other issues were still in progress.`\
 https://nytimes.com/2025/09/19/business/trump-tiktok-deal-china.html
-
-**The Bounce: Trae Young and Patrick Beverley have beef!**\
-`Keeping you up to date on the latest news and analysis from around the league.`\
-https://nytimes.com/athletic/6644502/2025/09/19/trae-young-patrick-beverley-nba-luka/
-
-**Susan Xenarios, Who Transformed Rape Crisis Response, Dies at 79**\
-`She helped found New York City’s first rape crisis center after encountering indifference when she herself was assaulted. Then she took on New York State laws.`\
-https://nytimes.com/2025/09/19/nyregion/susan-xenarios-dead.html
 
