@@ -1,3 +1,11 @@
+**Jimmy Kimmel and the Rise of Corporate Censorship**\
+`Jimmy Kimmel’s suspension exposes a chilling new reality of the media bowing to political pressure from the Trump administration, the New York Times Opinion columnist M.`\
+https://nytimes.com/video/opinion/100000010411235/jimmy-kimmel-and-the-rise-of-corporate-censorship.html
+
+**The Best Flatware**\
+`Text by Michael Sullivan`\
+https://nytimes.com/card/2025/09/19/smarter-living/wirecutter/
+
 **What we're hearing about the Mets' pitching plans into the postseason**\
 `"Everything is on the table," manager Carlos Mendoza said pregame Friday.`\
 https://nytimes.com/athletic/6645438/2025/09/19/mets-pitching-plans-into-postseason/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6645206/2025/09/19/canucks-training-camp-2025-penti
 **With Calls for Retribution Over Kirk, Some See Rise of a ‘Woke Right’**\
 `Conservatives have pressed for consequences for those who make negative comments about Charlie Kirk. But a few on the right say they worry about limits on speech.`\
 https://nytimes.com/2025/09/19/us/charlie-kirk-free-speech-republicans.html
-
-**Rick Ware Racing, Legacy Motor Club settle lawsuit; RWR to sell charter to LMC**\
-`"I'm glad this is behind us and we can all move forward in unison," Legacy Motor Club owner Jimmie Johnson said in a statement.`\
-https://nytimes.com/athletic/6645434/2025/09/19/rick-ware-racing-legacy-motor-club-settle-lawsuit-charter/
-
-**Trump Says the U.S. Will Institute $100,000 Fee for Skilled Worker Visas**\
-`Administration officials said the charge would help American workers’ wages by discouraging companies from using the visas to bring in lower-wage international workers.`\
-https://nytimes.com/2025/09/19/us/politics/trump-h-1b-visas-fee.html
 
