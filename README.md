@@ -1,40 +1,40 @@
-**Quote of the Day: Trump Hits the Media With Everything He Has**\
-`Quotation of the Day for Friday, September 19, 2025.`\
-https://nytimes.com/2025/09/18/pageoneplus/quote-of-the-day-trump-hits-the-media-with-everything-he-has.html
+**'We treat every client like their name is Jay Z': How Roc Nation became one of football's leading agencies**\
+`The sports agency's president Michael Yormark talks Romelu Lukaku, Vinicius Jr and the Ballon d'Or and targeting the U.S. soccer market`\
+https://nytimes.com/athletic/6631044/2025/09/19/roc-nation-yormark-lukaku-agency/
 
-**Cade Horton: Why wouldn't he be the Cubs' Game 1 playoff starter?**\
-`“I love pitching in high-stakes moments,” Horton said. “It’s a lot of fun to go out there and compete when you’re in the thick of it.”`\
-https://nytimes.com/athletic/6643153/2025/09/18/cade-horton-cubs-game-1-playoff-starter/
+**'I love 'Tommy lad' from the fans – even the players greet me with it. The support I get is beautiful'**\
+`Tommy Fleetwood has become one of the most popular golfers in the U.S. - he is more than ready for the Ryder Cup challenge at Bethpage`\
+https://nytimes.com/athletic/6633518/2025/09/19/tommy-fleetwood-interview-ryder-cup-everton-pep-guardiola/
 
-**Bills vs. Dolphins takeaways: Did Miami quiet McDaniel firing rumors despite loss?**\
-`The Dolphins fell to 0-3, but a game that was too close for too long — for the Bills — might've prolonged McDaniel's job security.`\
-https://nytimes.com/athletic/6642981/2025/09/18/dolphins-bills-score-result-takeaways-thursday-night-football/
+**Man United interest knocked Baleba out of his stride, but Brighton back him to recover**\
+`The dynamic midfielder was on Amorim’s agenda throughout the summer, but an offer was nowhere near enough to entice Brighton to sell`\
+https://nytimes.com/athletic/6623170/2025/09/19/carlos-baleba-manchester-united-brighton-premier-league-transfer/
 
-**Cubs rookie Ballesteros OK after being struck in helmet by deflected 105-mph line drive**\
-`“When the ball hit my helmet, I felt a little bit nervous,” Moisés Ballesteros said after the Cubs’ 1-0 loss to the Reds.`\
-https://nytimes.com/athletic/6642921/2025/09/18/cubs-rookie-ballesteros-ok-helmet-hit/
+**Emanuel Emegha’s move to Chelsea plunges Strasbourg deeper into civil war**\
+`The Club World Cup winners, also owned by BlueCo, riled some supporters by publishing a photograph of the Dutchman posing in a Chelsea shirt`\
+https://nytimes.com/athletic/6641966/2025/09/19/chelsea-strasbourg-blueco-emanuel-emegha/
 
-**Why now was the time for Clayton Kershaw to retire: 'I'm really at peace with this'**\
-`Kershaw gave an emotional press conference in Los Angeles on Thursday to announce his retirement from the sport.`\
-https://nytimes.com/athletic/6643025/2025/09/18/clayton-kershaw-retirement-dodgers/
+**The Prospects: Braiden Graham, Everton**\
+`Our new weekly series on young players making names for themselves in under-21s football takes us first to The Lamb Ground, Tamworth`\
+https://nytimes.com/athletic/6637477/2025/09/19/braiden-graham-everton-prospects/
 
-**Fever oust Dream to reach first WNBA semifinal in a decade**\
-`Indiana overcomes a host of injuries to beat the Dream 87-85 and take the first-round playoff series 2-1.`\
-https://nytimes.com/athletic/6643091/2025/09/18/fever-dream-wnba-playoffs/
+**How Kenyan Villagers Saved Their Sacred Caves From a Mining Company**\
+`An Emirati-backed cement project threatened ancestral prayer caves. The community fought back.`\
+https://nytimes.com/2025/09/19/world/africa/how-kenyan-villagers-saved-their-sacred-caves-from-a-mining-company.html
 
-**NFL tells refs to watch Eagles’ tush push after missed calls vs. Chiefs**\
-`“We want to officiate it tight," says video sent to NFL game officials and teams.`\
-https://nytimes.com/athletic/6642994/2025/09/18/eagles-chiefs-tush-push-referees-missed-penalties/
+**Flattery and Flourish for Trump. For His U.K. Hosts, Relief at Avoiding Strife.**\
+`The president was feted by King Charles III with the sort of pageantry he covets, signed a technology deal and steered clear of big disagreements with Prime Minister Keir Starmer.`\
+https://nytimes.com/2025/09/19/world/europe/trump-king-charles-keir-starmer.html
 
-**Provide That Crucial Spark**\
-`Erica Hsiung Wojcik’s answers light up the grid.`\
-https://nytimes.com/2025/09/18/crosswords/daily-puzzle-2025-09-19.html
+**From Bi to Beige and Back Again**\
+`I wanted to avoid ending up like my traditional parents. Then my father revealed a long-buried secret.`\
+https://nytimes.com/2025/09/19/style/modern-love-from-bi-to-beige-and-back-again.html
 
-**The secrets behind the Guardians' playoff push: Who the heck are these guys?**\
-`After a tumultuous summer, the Guardians, powered by a cast of mostly unknowns, are defying the odds and fighting for a postseason spot. `\
-https://nytimes.com/athletic/6642386/2025/09/18/cleveland-guardians-mlb-playoffs-unknowns/
+**Trump and Xi Set to Finalize TikTok Deal**\
+`The two leaders are expected to speak Friday to discuss a deal to keep the wildly popular app from going dark in the United States.`\
+https://nytimes.com/2025/09/19/business/media/trump-and-xi-set-to-finalize-tiktok-deal.html
 
-**NHL rumblings: Latest on notable free agents as camps open — Suter, McTavish, Roslovic and more**\
-`With training camps opening around the league Thursday, here's what we're hearing about some of the players who haven't found homes yet.`\
-https://nytimes.com/athletic/6642751/2025/09/18/suter-mctavish-roslovic-free-agent-rumblings/
+**Connections: Sports Edition Coach: Hints for Sept. 19, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6643078/2025/09/19/connections-sports-edition-hints-for-sept-19-2025/
 
