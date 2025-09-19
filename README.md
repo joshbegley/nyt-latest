@@ -1,3 +1,7 @@
+**Cubs rookie Ballesteros OK after being struck in helmet by deflected 105-mph line drive**\
+`CINCINNATI — Chicago Cubs rookie Moisés Ballesteros said he felt fine after taking a 105-mph line drive off the helmet in Thursday’s game against the Cincinnati Reds.`\
+https://nytimes.com/athletic/6642921/2025/09/18/cubs-rookie-ballesteros-ok-helmet-hit/
+
 **Why now was the time for Clayton Kershaw to retire: 'I'm really at peace with this'**\
 `Kershaw gave an emotional press conference in Los Angeles on Thursday to announce his retirement from the sport.`\
 https://nytimes.com/athletic/6643025/2025/09/18/clayton-kershaw-retirement-dodgers/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/18/us/texas-am-president-gender-ideology-controversy
 **How to watch Nationals at Mets: Time, TV, streaming for September 19**\
 `Find out how to watch the Washington Nationals play the New York Mets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6642794/2025/09/18/nationals-vs-mets-stream-how-to-watch-sept-19/
-
-**How to watch Padres at White Sox: Time, TV, streaming for September 19**\
-`Find out how to watch the San Diego Padres play the Chicago White Sox, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6642792/2025/09/18/padres-vs-white-sox-stream-how-to-watch-sept-19/
 
