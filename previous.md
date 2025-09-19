@@ -1,3 +1,15 @@
+**Democrats Seek to Limit Trump’s War Powers After Venezuela Boat Strikes**\
+`Lawmakers have said that President Trump has not provided sufficient evidence about the threat posed by the vessels or the legal basis to use force against them.`\
+https://nytimes.com/2025/09/19/us/politics/trump-military-powers-democrats-venezuela.html
+
+**The Race Is on to Make Rare Earth Magnets Outside China**\
+`After Beijing exerted its power over the valuable magnets as leverage, other countries started to add production, but only incrementally. And China is far ahead.`\
+https://nytimes.com/2025/09/19/business/china-rare-earths-magnets.html
+
+**The New York Times International Edition in Print for Saturday, Sep. 20, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/09/19/todays-new-york-times-international-edition
+
 **How to watch Giants at Dodgers: Time, TV, streaming for September 19**\
 `Find out how to watch the San Francisco Giants play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6643648/2025/09/19/giants-vs-dodgers-stream-how-to-watch-sept-19/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/19/well/how-to-make-up-after-a-fight.html
 **The New York Times News Quiz, Sept. 19, 2025**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://nytimes.com/interactive/2025/09/19/briefing/news-quiz-jimmy-kimmel-charlie-kirk.html
-
-**With Jimmy Kimmel’s Firing, the Mask Comes Off**\
-`Laughter is now a government-regulated product.`\
-https://nytimes.com/2025/09/19/opinion/jimmy-kimmel-trump-media-government.html
-
-**Week 3 fantasy football intel, predictions using player prop lines**\
-`Brad Evans looks at sportsbooks to mine fantasy football insights ahead of Week 3. `\
-https://nytimes.com/athletic/6641821/2025/09/19/fantasy-football-week-3-predictions-props/
-
-**Kennedy’s Vaccine Panel Is a Calamity**\
-`“We should be thinking that we’re heading for more damaging changes.”`\
-https://nytimes.com/2025/09/19/opinion/cdc-vaccine-panel-rfk.html
 

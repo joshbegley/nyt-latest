@@ -1,3 +1,15 @@
+**Democrats Seek to Limit Trump’s War Powers After Venezuela Boat Strikes**\
+`Lawmakers have said that President Trump has not provided sufficient evidence about the threat posed by the vessels or the legal basis to use force against them.`\
+https://nytimes.com/2025/09/19/us/politics/trump-military-powers-democrats-venezuela.html
+
+**The Race Is on to Make Rare Earth Magnets Outside China**\
+`After Beijing exerted its power over the valuable magnets as leverage, other countries started to add production, but only incrementally. And China is far ahead.`\
+https://nytimes.com/2025/09/19/business/china-rare-earths-magnets.html
+
+**The New York Times International Edition in Print for Saturday, Sep. 20, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/09/19/todays-new-york-times-international-edition
+
 **How to watch Giants at Dodgers: Time, TV, streaming for September 19**\
 `Find out how to watch the San Francisco Giants play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6643648/2025/09/19/giants-vs-dodgers-stream-how-to-watch-sept-19/
