@@ -1,3 +1,15 @@
+**In Mexico, New Mothers Are Seeking Out Old Rituals**\
+`Some women in the country’s capital are turning to midwives who they say offer a more holistic approach to care than hospitals usually provide.`\
+https://nytimes.com/2025/09/19/world/americas/mexico-midwife-postpartum.html
+
+**8 Ways ‘Black Rabbit’ Channels a Notorious New York Restaurant**\
+`The fictional gastro pub at the heart of a new Netflix series is largely inspired by the Spotted Pig, the V.I.P. spot rocked by a sexual harassment scandal.`\
+https://nytimes.com/2025/09/19/dining/netflix-black-rabbit-spotted-pig.html
+
+**Flashback: Your Weekly History Quiz, Sept. 20, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/09/19/upshot/flashback.html
+
 **Trump Administration Will End Deportation Protections for Thousands of Syrians**\
 `A homeland security official said it was “contrary to our national interest to allow Syrians to remain in our country.”`\
 https://nytimes.com/2025/09/19/us/politics/temporary-protected-status-syrians.html
@@ -24,17 +36,5 @@ https://nytimes.com/athletic/6644873/2025/09/19/dolphins-bills-review-nfl-fumble
 
 **Protesters and federal agents clash outside an ICE detention facility near Chicago.**\
 `By Robert Chiarito and Julie Bosman`\
-https://nytimes.com/live/2025/09/19/us/trump-news/protesters-and-federal-agents-clash-outside-an-ice-detention-facility-near-chicago
-
-**Wesley Morris On Robert Redford’s Most Revealing Movie**\
-`Wesley Morris, the host of “Cannonball” and a critic at large at The New York Times, remembered the career of the late actor Robert Redford, and explained how the fourth film he directed, “Quiz Show,” from 1994, is the perfect metaphor for the legendary actor and director’s career.`\
-https://nytimes.com/video/podcasts/100000010410463/wesley-morris-robert-redford.html
-
-**How a TV Merger Raised the Pressure on ABC to Suspend Kimmel**\
-`Behind ABC’s decision was a display of how influential members of the Trump administration have become in shaping how media companies operate.`\
-https://nytimes.com/interactive/2025/09/19/business/media/abc-nexstar-kimmel.html
-
-**Mary Roach on the Timeless Appeal of Weird Science**\
-`The popular science author, whose latest is “Replaceable You: Adventures in Human Anatomy,” discusses her approach to the stranger corners of scientific inquiry.`\
-https://nytimes.com/2025/09/19/books/review/podcast-mary-roach-interview.html
+https://nytimes.com/2025/09/19/us/politics/protesters-and-federal-agents-clash-outside-an-ice-detention-facility-near-chicago.html
 

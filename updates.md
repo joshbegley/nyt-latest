@@ -1,3 +1,19 @@
+**In Mexico, New Mothers Are Seeking Out Old Rituals**\
+`Some women in the country’s capital are turning to midwives who they say offer a more holistic approach to care than hospitals usually provide.`\
+https://nytimes.com/2025/09/19/world/americas/mexico-midwife-postpartum.html
+
+**8 Ways ‘Black Rabbit’ Channels a Notorious New York Restaurant**\
+`The fictional gastro pub at the heart of a new Netflix series is largely inspired by the Spotted Pig, the V.I.P. spot rocked by a sexual harassment scandal.`\
+https://nytimes.com/2025/09/19/dining/netflix-black-rabbit-spotted-pig.html
+
+**Flashback: Your Weekly History Quiz, Sept. 20, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/09/19/upshot/flashback.html
+
+**Protesters and federal agents clash outside an ICE detention facility near Chicago.**\
+`By Robert Chiarito and Julie Bosman`\
+https://nytimes.com/2025/09/19/us/politics/protesters-and-federal-agents-clash-outside-an-ice-detention-facility-near-chicago.html
+
 **Trump Administration Will End Deportation Protections for Thousands of Syrians**\
 `A homeland security official said it was “contrary to our national interest to allow Syrians to remain in our country.”`\
 https://nytimes.com/2025/09/19/us/politics/temporary-protected-status-syrians.html
