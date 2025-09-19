@@ -1,3 +1,11 @@
+**Strand Larsen set for new Wolves contract, return vs. Leeds**\
+`Newcastle United had two bids rejected in the summer, the highest of which was worth £55million.`\
+https://nytimes.com/athletic/6644078/2025/09/19/wolves-strand-larsen-contract-new/
+
+**What Phillies prospect Andrew Painter learned from an up-and-down 2025 season**\
+`Painter didn't make it to the majors. But he is 118 innings wiser, 118 innings closer to his debut and helping Philly in future Octobers.`\
+https://nytimes.com/athletic/6642141/2025/09/19/andrew-painter-phillies-2025-season/
+
 **MLB playoff watch: Dodgers closing in on postseason beth; bracket, clinching scenarios**\
 `With Clayton Kershaw on the mound to make his the final regular-season home start of his career, the Dodgers could clinch a playoff berth.`\
 https://nytimes.com/athletic/6643397/2025/09/19/mlb-playoff-watch-2025-dodgers-clinching-possibilities/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6637539/2025/09/19/edmonton-oilers-stats-analytics-
 **Broncos mailbag: How can defense fix middle-of-the-field issues vs. Chargers?**\
 `There are encouraging signs from the Broncos so far, even with the uneven start. We answer your questions.`\
 https://nytimes.com/athletic/6640976/2025/09/19/broncos-mailbag-defense-chargers-bo-nix/
-
-**Chargers are hot, Chiefs are not. Can L.A. take advantage of Kansas City's slow start?**\
-`The Chargers are in sole possession of first place for the first time in almost four years but know the Chiefs won't go away easily.`\
-https://nytimes.com/athletic/6642750/2025/09/19/chargers-first-place-chiefs-afc-west/
-
-**As Atlanta United flounders, would a Tata Martino reunion be the right play?**\
-`Despite heightened expectations, Atlanta will miss the MLS playoffs, and if a coaching change is in the offing, a familiar face is available`\
-https://nytimes.com/athletic/6635898/2025/09/19/tata-martino-atlanta-united-ronny-deila-mls/
 

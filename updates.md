@@ -1,3 +1,11 @@
+**Strand Larsen set for new Wolves contract, return vs. Leeds**\
+`Newcastle United had two bids rejected in the summer, the highest of which was worth £55million.`\
+https://nytimes.com/athletic/6644078/2025/09/19/wolves-strand-larsen-contract-new/
+
+**What Phillies prospect Andrew Painter learned from an up-and-down 2025 season**\
+`Painter didn't make it to the majors. But he is 118 innings wiser, 118 innings closer to his debut and helping Philly in future Octobers.`\
+https://nytimes.com/athletic/6642141/2025/09/19/andrew-painter-phillies-2025-season/
+
 **MLB playoff watch: Dodgers closing in on postseason beth; bracket, clinching scenarios**\
 `With Clayton Kershaw on the mound to make his the final regular-season home start of his career, the Dodgers could clinch a playoff berth.`\
 https://nytimes.com/athletic/6643397/2025/09/19/mlb-playoff-watch-2025-dodgers-clinching-possibilities/

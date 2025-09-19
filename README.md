@@ -1,3 +1,7 @@
+**Charlie Kirk’s Base Was Young People. Now His Tent Might Be Expanding.**\
+`Since his death, the parents and grandparents of his original followers are discovering his work. They like what they see.`\
+https://nytimes.com/2025/09/19/us/charlie-kirk-turning-point-usa.html
+
 **Strand Larsen set for new Wolves contract, return vs. Leeds**\
 `Newcastle United had two bids rejected in the summer, the highest of which was worth £55million.`\
 https://nytimes.com/athletic/6644078/2025/09/19/wolves-strand-larsen-contract-new/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6641238/2025/09/19/fantasy-premier-league-live-qa-g
 **Lowetide: Were the Oilers’ summer moves supported by analytics?**\
 `The Oilers lost some famous names this offseason and replaced them with a few intriguing young players.`\
 https://nytimes.com/athletic/6637539/2025/09/19/edmonton-oilers-stats-analytics-bouchard-mangiapane/
-
-**Broncos mailbag: How can defense fix middle-of-the-field issues vs. Chargers?**\
-`There are encouraging signs from the Broncos so far, even with the uneven start. We answer your questions.`\
-https://nytimes.com/athletic/6640976/2025/09/19/broncos-mailbag-defense-chargers-bo-nix/
 
