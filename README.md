@@ -1,3 +1,7 @@
+**The S.E.C. Drops Efforts to Recoup Funds From Trump Clemency Recipients**\
+`Devon Archer, Trevor Milton and Carlos Watson were convicted in fraud schemes totaling hundreds of millions of dollars. Now, they will not be required to pay back victims.`\
+https://nytimes.com/2025/09/19/us/politics/sec-trump-clemency.html
+
 **High Five: Ivan Toney vs Darwin Nunez and the Eternal Derby**\
 `Two eternal derbies, a clash of Brazilian titans and … checks notes … Dean Smith. It's quite the weekend of global football action`\
 https://nytimes.com/athletic/6642542/2025/09/19/toney-nunez-eternal-derby-preview/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6644087/2025/09/19/barcelona-la-liga-salary-limit/
 **The BookKeeper: Explaining Man Utd’s transfer spend, fees owed and growing debts despite cuts**\
 `Manchester United's annual report for 2024-25 was published on Thursday evening`\
 https://nytimes.com/athletic/6643709/2025/09/19/manchester-united-annual-report-analysis/
-
-**Cunha, Mount fit for Chelsea game but Dalot out**\
-`Tyrell Malacia has also returned to training but will be with the Under-21s, not Ruben Amorim's first team.`\
-https://nytimes.com/athletic/6644082/2025/09/19/man-utd-team-news-chelsea-cunha-mount/
 

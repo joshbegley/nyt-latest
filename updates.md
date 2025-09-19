@@ -1,3 +1,15 @@
+**High Five: Ivan Toney vs Darwin Nunez and the Eternal Derby**\
+`Two eternal derbies, a clash of Brazilian titans and … checks notes … Dean Smith. It's quite the weekend of global football action`\
+https://nytimes.com/athletic/6642542/2025/09/19/toney-nunez-eternal-derby-preview/
+
+**The Windup: An all-timer is hanging them up**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6644218/2025/09/19/clayton-kershaw-retirement-the-windup/
+
+**The BookKeeper: Explaining Man Utd’s transfer spend, fees owed and growing debts despite cuts**\
+`Manchester United's annual report for 2024-25 was published on Thursday evening`\
+https://nytimes.com/athletic/6643709/2025/09/19/manchester-united-annual-report-analysis/
+
 **Melissa Jefferson-Wooden caps historic sprint double with 200-meter world title**\
 `The American on Friday added 200-meter gold to her 100-meter crown, the first world-championship women's double in the events since 1991.`\
 https://nytimes.com/athletic/6644277/2025/09/19/melissa-jefferson-wooden-200-meter-gold-sprint-double-world-championships/

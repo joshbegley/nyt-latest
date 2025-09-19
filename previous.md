@@ -1,3 +1,11 @@
+**High Five: Ivan Toney vs Darwin Nunez and the Eternal Derby**\
+`Two eternal derbies, a clash of Brazilian titans and … checks notes … Dean Smith. It's quite the weekend of global football action`\
+https://nytimes.com/athletic/6642542/2025/09/19/toney-nunez-eternal-derby-preview/
+
+**The Windup: An all-timer is hanging them up**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6644218/2025/09/19/clayton-kershaw-retirement-the-windup/
+
 **Melissa Jefferson-Wooden caps historic sprint double with 200-meter world title**\
 `The American on Friday added 200-meter gold to her 100-meter crown, the first world-championship women's double in the events since 1991.`\
 https://nytimes.com/athletic/6644277/2025/09/19/melissa-jefferson-wooden-200-meter-gold-sprint-double-world-championships/
@@ -22,19 +30,11 @@ https://nytimes.com/athletic/6644208/2025/09/19/noah-lyles-200-meter-world-champ
 `The drop is mostly due to issues over the ‘VIP zones’ lever at its Camp Nou stadium.`\
 https://nytimes.com/athletic/6644087/2025/09/19/barcelona-la-liga-salary-limit/
 
-**Man Utd’s annual report shows ongoing transfer excess and growing debts despite cuts**\
+**The BookKeeper: Explaining Man Utd’s transfer spend, fees owed and growing debts despite cuts**\
 `Manchester United's annual report for 2024-25 was published on Thursday evening`\
 https://nytimes.com/athletic/6643709/2025/09/19/manchester-united-annual-report-analysis/
 
 **Cunha, Mount fit for Chelsea game but Dalot out**\
 `Tyrell Malacia has also returned to training but will be with the Under-21s, not Ruben Amorim's first team.`\
 https://nytimes.com/athletic/6644082/2025/09/19/man-utd-team-news-chelsea-cunha-mount/
-
-**UCLA imploded in 3 weeks, but its problems go back much further. Can the Bruins fix it?**\
-`The biggest issue with UCLA football, according to more than a half-dozen sources, has been a lack of financial resources.`\
-https://nytimes.com/athletic/6642637/2025/09/19/ucla-football-deshaun-foster-martin-jarmond/
-
-**Agnes Gund, Who Oversaw a Major Expansion of MoMA, Dies at 87**\
-`A champion of contemporary art, she was the museum’s president for 11 years. She also founded the Art for Justice Fund, donating $100 million.`\
-https://nytimes.com/2025/09/19/arts/agnes-gund-dead.html
 
