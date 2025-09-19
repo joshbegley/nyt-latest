@@ -1,3 +1,7 @@
+**Provide That Crucial Spark**\
+`Erica Hsiung Wojcik’s answers light up the grid.`\
+https://nytimes.com/2025/09/18/crosswords/daily-puzzle-2025-09-19.html
+
 **The secrets behind the Guardians' playoff push: Who the heck are these guys?**\
 `After a tumultuous summer, the Guardians, powered by a cast of mostly unknowns, are defying the odds and fighting for a postseason spot. `\
 https://nytimes.com/athletic/6642386/2025/09/18/cleveland-guardians-mlb-playoffs-unknowns/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6642784/2025/09/18/blue-jays-vs-royals-stream-how-t
 **How This Mom’s Viral Clips Fueled the ‘The Summer I Turned Pretty’ Fandom**\
 `Tina DiCenso’s reactions to the show, which reflect the anxiety it often inflicts on its fans, have become must-watch programming all their own.`\
 https://nytimes.com/2025/09/18/arts/television/the-summer-i-turned-pretty-reactions-fans.html
-
-**11 Democratic Officials Arrested Trying to Access ICE Detention Cells**\
-`Federal officers arrested 11 officials in New York on Thursday, after they tried to access cells used by the Immigration and Customs Enforcement agency to detain migrants. Brad Lander, the city comptroller, and Jumaane D. Williams, the public advocate, were among those arrested.`\
-https://nytimes.com/video/us/politics/100000010408808/11-democratic-officials-arrested-trying-to-access-ice-detention-cells.html
 

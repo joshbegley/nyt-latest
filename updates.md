@@ -1,3 +1,7 @@
+**Provide That Crucial Spark**\
+`Erica Hsiung Wojcik’s answers light up the grid.`\
+https://nytimes.com/2025/09/18/crosswords/daily-puzzle-2025-09-19.html
+
 **The secrets behind the Guardians' playoff push: Who the heck are these guys?**\
 `After a tumultuous summer, the Guardians, powered by a cast of mostly unknowns, are defying the odds and fighting for a postseason spot. `\
 https://nytimes.com/athletic/6642386/2025/09/18/cleveland-guardians-mlb-playoffs-unknowns/
