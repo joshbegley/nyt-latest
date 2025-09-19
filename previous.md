@@ -1,3 +1,7 @@
+**UWCL draw: Holders Arsenal get OL Lyonnes, Chelsea to face Barcelona**\
+`Debutants Manchester United were also drawn against Michele Kang's OL Lyonnes in the first edition of the UWCL using the new format.`\
+https://nytimes.com/athletic/6643778/2025/09/19/womens-champions-league-draw-arsenal-man-utd/
+
 **TAFC: Multi-club mutiny, Arsenal boardroom shake-up as Lewis leaves, Rashford reborn?**\
 `Today in TAFC: A multi-club move that has caused fans to rebel against their club. Plus: Arsenal shake up their boardroom, Is Rashford back?`\
 https://nytimes.com/athletic/6643521/2025/09/19/chelsea-strasbourg-emegha-arsenal-tim-lewis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/19/world/middleeast/hamas-remaining-in-gaza.html
 **AFC North Whiparound: Could Bengals make the playoffs without Joe Burrow?**\
 `Plus, gauging the confidence level each reporter has in their team's backup quarterback situation following the injury to Burrow. `\
 https://nytimes.com/athletic/6641474/2025/09/19/bengals-joe-burrow-browns-steelers-ravens/
-
-**Plane Crashes in North Carolina With 3 on Board**\
-`The plane crashed into a field in the town of Franklin, in the western part of the state, officials said.`\
-https://nytimes.com/2025/09/19/us/plane-crash-north-carolina-brett-james.html
 

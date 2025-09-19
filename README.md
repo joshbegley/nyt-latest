@@ -1,40 +1,40 @@
-**UWCL draw: Holders Arsenal get OL Lyonnes, Chelsea to face Barcelona**\
-`Debutants Manchester United were also drawn against Michele Kang's OL Lyonnes in the first edition of the UWCL using the new format.`\
-https://nytimes.com/athletic/6643778/2025/09/19/womens-champions-league-draw-arsenal-man-utd/
+**Taliban Releases British Couple Detained for Months in Afghanistan**\
+`Peter and Barbie Reynolds, 80 and 76, ran a training program in Afghanistan. They chose to remain after the Taliban takeover in 2021.`\
+https://nytimes.com/2025/09/19/world/asia/aghanistan-taliban-britain-detained-couple.html
 
-**TAFC: Multi-club mutiny, Arsenal boardroom shake-up as Lewis leaves, Rashford reborn?**\
-`Today in TAFC: A multi-club move that has caused fans to rebel against their club. Plus: Arsenal shake up their boardroom, Is Rashford back?`\
-https://nytimes.com/athletic/6643521/2025/09/19/chelsea-strasbourg-emegha-arsenal-tim-lewis/
+**‘Harrowing Beyond Description’: Dozens Killed While at Prayer in Sudan**\
+`A doctor who spoke with The Times last week was among those killed when a missile hit a mosque on Friday as paramilitaries stepped up their brutal siege of the city of El Fasher.`\
+https://nytimes.com/2025/09/19/world/africa/sudan-strike-mosque-rsf.html
 
-**The Pulse: A good loss? In this economy?**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6643194/2025/09/19/bills-dolphins-mike-mcdaniel-the-pulse/
+**A Twins clubbie's app makes outfitting MLB players with new gear easier**\
+`Twins clubhouse assistant manager Tim Burke created a database of player measurements that MLB has adopted and about half of its teams use.`\
+https://nytimes.com/athletic/6641944/2025/09/19/twins-clubhouse-manager-app-for-measurements/
 
-**The Daniel Jones reclamation project: Why Colts QB is flourishing with Shane Steichen**\
-`We examine what Steichen is doing to allow Jones to play the best football he's played in years at the helm of Indy's explosive offense.`\
-https://nytimes.com/athletic/6641517/2025/09/19/colts-daniel-jones-shane-steichen/
+**What Phillies prospect Andrew Painter learned from an up-and-down 2025 season**\
+`Painter didn't make it to the majors. But he is 118 innings wiser, 118 innings closer to his debut and helping Philly in future Octobers.`\
+https://nytimes.com/athletic/6642141/2025/09/19/andrew-painter-phillies-2025-season/
 
-**Weird & Wild MLB history watch: Players, teams that could break wacky records this month**\
-`Here are a heaping handful of players and teams that could be about to make history — in weird ways — before the end of the season. `\
-https://nytimes.com/athletic/6642943/2025/09/19/mlb-weird-records-history-september/
+**What I'm seeing at Jets camp: Scott Arniel is setting Stanley Cup ambitions**\
+`Plus, Scheifele's focus, new power play personnel and an early look at Winnipeg's lines.`\
+https://nytimes.com/athletic/6642121/2025/09/19/nhl-jets-camp-scott-arniel-stanley-cup-ambitions/
 
-**Maresca plays down Sterling, Disasi situations at Chelsea**\
-`"I have been in Raheem and Axel’s situation as a player. For sure, I know it is not the best feeling," Maresca said on Friday.`\
-https://nytimes.com/athletic/6643804/2025/09/19/chelsea-sterling-disasi-maresca/
+**Who's in first? That depends. Looking at this year's playoff races under older formats**\
+`The two-division era, the wild-card era, the play-in era and others all had their pros and cons when it came to creating exciting races.`\
+https://nytimes.com/athletic/6642241/2025/09/19/mlb-playoff-formats-past-eras/
 
-**How Senators are managing 'big' expectations for new season: 'It can be a lot'**\
-`Making the playoffs was last year's goal for the Sens. Expectations have changed for this year's group. How will Ottawa meet the challenge?`\
-https://nytimes.com/athletic/6637344/2025/09/19/senators-expectations-tkachuk-batherson-sanderson/
+**Sliders: In his prime, Clayton Kershaw mastered the 'high-quality start'. As he leaves the stage, it's a lost art**\
+`Plus the biggest critic of 'The Natural,' Twins starter Joe Ryan's command tips and more.`\
+https://nytimes.com/athletic/6640876/2025/09/19/clayton-kershaw-dodgers-sliders-joe-ryan/
 
-**A really, really big piece': Gavrikov brings Rangers needed shutdown presence**\
-`The six-year NHL veteran was one of the best defensive-defensemen in the league with Los Angeles in 2024-25.`\
-https://nytimes.com/athletic/6641504/2025/09/19/vladislav-gavrikov-new-york-rangers-future/
+**Can Dennis Allen's defense turn jeers into cheers for the Bears?**\
+`There’s no rest for this weary, wounded unit because the Cowboys, who are averaging 30 points and 392.5 yards per game, are coming to town.`\
+https://nytimes.com/athletic/6642247/2025/09/19/chicago-bears-defense-dennis-allen-defensive-coordinator/
 
-**Battered but Undefeated, Hamas Remains a Fighting Force in Gaza**\
-`Some Israeli officials believe the military assault on Gaza City will deliver a decisive blow to the group, which continues to stage ambushes and guerrilla attacks.`\
-https://nytimes.com/2025/09/19/world/middleeast/hamas-remaining-in-gaza.html
+**USC mailbag: What's up with the pass defense? Is the O-line exceeding expectations?**\
+`Who is at more of a disadvantage: A West Coast team playing on the East Coast or an East Coast team playing on the West Coast? `\
+https://nytimes.com/athletic/6642657/2025/09/19/usc-football-lincoln-riley-offensive-line/
 
-**AFC North Whiparound: Could Bengals make the playoffs without Joe Burrow?**\
-`Plus, gauging the confidence level each reporter has in their team's backup quarterback situation following the injury to Burrow. `\
-https://nytimes.com/athletic/6641474/2025/09/19/bengals-joe-burrow-browns-steelers-ravens/
+**What are the odds Jayden Daniels plays? Should Josh Conery Jr. sit? Commanders mailbag**\
+`Also covered: the plan for Sam Cosmi, when we might see Chris Rodriguez Jr. or Chase Edmonds, and what the new stadium might look like.`\
+https://nytimes.com/athletic/6643823/2025/09/19/jayden-daniels-status-commanders-conerly-cosmi-2/
 

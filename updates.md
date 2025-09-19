@@ -1,3 +1,7 @@
+**UWCL draw: Holders Arsenal get OL Lyonnes, Chelsea to face Barcelona**\
+`Debutants Manchester United were also drawn against Michele Kang's OL Lyonnes in the first edition of the UWCL using the new format.`\
+https://nytimes.com/athletic/6643778/2025/09/19/womens-champions-league-draw-arsenal-man-utd/
+
 **TAFC: Multi-club mutiny, Arsenal boardroom shake-up as Lewis leaves, Rashford reborn?**\
 `Today in TAFC: A multi-club move that has caused fans to rebel against their club. Plus: Arsenal shake up their boardroom, Is Rashford back?`\
 https://nytimes.com/athletic/6643521/2025/09/19/chelsea-strasbourg-emegha-arsenal-tim-lewis/
