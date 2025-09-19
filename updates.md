@@ -1,3 +1,23 @@
+**Why John Gibson could be Red Wings' answer in goal: Training camp observations**\
+`Gibson was Detroit's top offseason acquisition, and brings some sorely needed upside to the Red Wings' goaltending situation.`\
+https://nytimes.com/athletic/6645020/2025/09/19/red-wings-training-camp-john-gibson-todd-mclellan/
+
+**A Week of Deepening Political Divides**\
+`Tempers are always flaring in Washington. But the current level of vitriol has felt especially nasty and intense.`\
+https://nytimes.com/2025/09/19/us/politics/trump-kimmel-charlie-kirk.html
+
+**What we're seeing at Canucks training camp: 10 observations from Penticton**\
+`With two days now in the books, let's get into the weeds on the top developments at Canucks camp.`\
+https://nytimes.com/athletic/6645206/2025/09/19/canucks-training-camp-2025-penticton/
+
+**With Calls for Retribution Over Kirk, Some See Rise of a ‘Woke Right’**\
+`Conservatives have pressed for consequences for those who make negative comments about Charlie Kirk. But a few on the right say they worry about limits on speech.`\
+https://nytimes.com/2025/09/19/us/calls-for-retribution-over-kirk-criticism-make-some-ask-is-there-a-woke-right.html
+
+**Rick Ware Racing, Legacy Motor Club settle lawsuit; RWR to sell charter to LMC**\
+`"I'm glad this is behind us and we can all move forward in unison," Legacy Motor Club owner Jimmie Johnson said in a statement.`\
+https://nytimes.com/athletic/6645434/2025/09/19/rick-ware-racing-legacy-motor-club-settle-lawsuit-charter/
+
 **Trump Says the U.S. Will Institute $100,000 Fee for Skilled Worker Visas**\
 `Administration officials said the charge would help American workers’ wages by discouraging companies from using the visas to bring in lower-wage international workers.`\
 https://nytimes.com/2025/09/19/us/politics/trump-h-1b-visas-fee.html
