@@ -1,3 +1,7 @@
+**Why Leclerc is so good in Baku. Plus, Ferrari leads the early F1 action in Azerbaijan**\
+`Ferrari driver Charles Leclerc has an impressive record of pole positions at the Azerbaijan GP, but he's endured much heartache in Baku too`\
+https://nytimes.com/athletic/6644216/2025/09/19/charles-leclerc-baku-record/
+
 **Day 1 with the Ducks for Joel Quenneville: 'Pace and purpose' but no Mason McTavish**\
 `The McTavish contract stalemate is not the ideal way for Quenneville to begin. But it didn’t dim the joy he longed for.`\
 https://nytimes.com/athletic/6643422/2025/09/19/anaheim-ducks-joel-quenneville-mason-mctavish/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6644277/2025/09/19/melissa-jefferson-wooden-200-met
 **Can’t Find That Coat You Saw? Or That Sofa? Or That Hat? Get in Touch!**\
 `In our new series, we help readers track down the objects and styles they can’t stop thinking about.`\
 https://nytimes.com/article/style-detective-submission.html
-
-**Forest's Postecoglou not concerned by 'constant' negativity around him**\
-`Meanwhile, defender Murillo is a doubt for the trip to Burnley but Nico Dominguez is close to returning to full training.`\
-https://nytimes.com/athletic/6644225/2025/09/19/ange-postecoglou-nottingham-forest-burnley/
 

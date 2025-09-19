@@ -1,3 +1,15 @@
+**Day 1 with the Ducks for Joel Quenneville: 'Pace and purpose' but no Mason McTavish**\
+`The McTavish contract stalemate is not the ideal way for Quenneville to begin. But it didn’t dim the joy he longed for.`\
+https://nytimes.com/athletic/6643422/2025/09/19/anaheim-ducks-joel-quenneville-mason-mctavish/
+
+**Two veterans could be fantasy football season-wreckers for a pair of rookie RBs**\
+`Andy Behrens discusses the latest NFL news through a fantasy football lens, starting with two big roadblocks for rookie RBs. `\
+https://nytimes.com/athletic/6644158/2025/09/19/fantasy-football-news-stevenson-dobbins/
+
+**Threatening Broadcasters, Trump Takes a Page From the World’s Autocrats**\
+`The tactics President Trump has embraced place the United States in awkward company as freedom of expression is declining in dozens of countries.`\
+https://nytimes.com/2025/09/19/world/trump-jimmy-kimmel-fcc-comedy-autocracy.html
+
 **Newcastle's Schar to miss 'a few games' after sustaining head injury vs. Barcelona**\
 `The 33-year-old had initially played on but was eventually substituted in the 63rd minute.`\
 https://nytimes.com/athletic/6644234/2025/09/19/fabian-schar-newcastle-injury-update/
@@ -15,7 +27,7 @@ https://nytimes.com/athletic/6642542/2025/09/19/toney-nunez-eternal-derby-previe
 https://nytimes.com/athletic/6644218/2025/09/19/clayton-kershaw-retirement-the-windup/
 
 **Melissa Jefferson-Wooden caps historic sprint double with 200-meter world title**\
-`The American on Friday added 200-meter gold to her 100-meter crown, the first world-championship women's double in the events since 1991.`\
+`The American on Friday added 200-meter gold to her 100-meter crown, the first world-championship women's double in the events since 2013.`\
 https://nytimes.com/athletic/6644277/2025/09/19/melissa-jefferson-wooden-200-meter-gold-sprint-double-world-championships/
 
 **Can’t Find That Coat You Saw? Or That Sofa? Or That Hat? Get in Touch!**\
@@ -25,16 +37,4 @@ https://nytimes.com/article/style-detective-submission.html
 **Forest's Postecoglou not concerned by 'constant' negativity around him**\
 `Meanwhile, defender Murillo is a doubt for the trip to Burnley but Nico Dominguez is close to returning to full training.`\
 https://nytimes.com/athletic/6644225/2025/09/19/ange-postecoglou-nottingham-forest-burnley/
-
-**While calls for Jaxson Dart have quieted, Russell Wilson must prove vintage game was no fluke**\
-`Last week's moon-ball barrage set a blueprint for what the Giants hope their offense can be, but KC will be a tougher test than Dallas.`\
-https://nytimes.com/athletic/6643272/2025/09/19/ny-giants-russell-wilson-jaxson-dart-chiefs/
-
-**Noah Lyles matches a Usain Bolt record with fourth straight 200-meter world title**\
-`The American Lyles, on Friday in Tokyo, joined the Jamaican legend with his fourth straight world title over 200 meters.`\
-https://nytimes.com/athletic/6644208/2025/09/19/noah-lyles-200-meter-world-championships-usain-bolt/
-
-**Barcelona's La Liga salary limit reduced by €112m**\
-`The drop is mostly due to issues over the ‘VIP zones’ lever at its Camp Nou stadium.`\
-https://nytimes.com/athletic/6644087/2025/09/19/barcelona-la-liga-salary-limit/
 
