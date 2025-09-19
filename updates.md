@@ -1,3 +1,7 @@
+**Trump Warns Television Broadcasters Critical of Him**\
+`President Trump told reporters on Air Force One that regulators should consider revoking the licenses of broadcasters that criticize him.`\
+https://nytimes.com/video/us/100000010409027/trump-fcc-licenses.html
+
 **Jackie Young, A'ja Wilson carry Aces past Storm, into WNBA semifinals**\
 `Las Vegas has advanced to the semifinal round of the playoffs for the eighth straight season.`\
 https://nytimes.com/athletic/6643252/2025/09/19/las-vegas-aces-seattle-storm-wnba-playoffs/
