@@ -1,3 +1,15 @@
+**Taliban Bans Books by Women in Afghanistan’s Universities**\
+`More than 600 books, many of them written by women, are being purged, based on a contention that they conflict with Sharia principles.`\
+https://nytimes.com/2025/09/19/world/asia/taliban-ban-women-author-books.html
+
+**New to the Fed, Miran Defends Calls for Sharper Reduction in Interest Rates**\
+`In his first comments since joining the Federal Reserve Board, Stephen Miran sought to emphasize his independence from the White House.`\
+https://nytimes.com/2025/09/19/us/politics/stephen-miran-fed-interest-rates.html
+
+**Fight Erupts Over Fate of U.S. Attorney Investigating Two Trump Foes**\
+`Trump officials told Erik S. Siebert that he was likely to be fired. He had hit roadblocks investigating New York’s attorney general, Letitia James, and the former F.B.I. director James B. Comey.`\
+https://nytimes.com/2025/09/19/us/politics/erik-siebert-fired-comey-letitia-james.html
+
 **Charley Rosen, Prolific Writer of Basketball Books, Dies at 84**\
 `A college player and coach who became a best-selling author, he was also a kindred spirit to the Hall of Fame coach Phil Jackson.`\
 https://nytimes.com/2025/09/19/books/charley-rosen-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/19/business/media/trump-new-york-times-lawsuit.html
 **Trump Administration Petitions Supreme Court on Passport Gender Policy**\
 `The administration asked the justices to lift a lower court block on a policy requiring passports to reflect only the holder’s sex on an original birth certificate.`\
 https://nytimes.com/2025/09/19/us/politics/trump-administration-gender-passports.html
-
-**At Heidi Klum’s Oktoberfest, Free-Flowing Beer and Lederhosen**\
-`Ms. Klum hosted her first “Heidi Fest” in Munich, a night of unadulterated German fun.`\
-https://nytimes.com/2025/09/19/style/heidifest-klum-munich-germany.html
-
-**'Bad actors' are stealing, reselling fan tickets swiped from MLB's Ballpark app, MLB acknowledges**\
-`The rash of scams started around Labor Day, with fans owning tickets to large-market teams the most popular targets. `\
-https://nytimes.com/athletic/6644767/2025/09/19/mlb-digital-ticket-theft-ballpark-app/
-
-**Jayden Daniels out vs. Raiders with knee injury, Marcus Mariota to start**\
-`Daniels was injured on a scramble at the start of the fourth quarter against the Packers.`\
-https://nytimes.com/athletic/6641833/2025/09/19/jayden-daniels-knee-raiders/
 
