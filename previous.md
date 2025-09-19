@@ -1,40 +1,40 @@
-**Should I Watch a TV Show Recommended by My Robot Vacuum?**\
-`A ruling on an unusual source of viewing advice.`\
-https://nytimes.com/interactive/2025/09/19/magazine/vacuum-show-hodgman-quiz.html
-
-**These New Yorkers Know the Candidate They’ll ‘Never’ Vote For**\
-`The New York Times/Siena poll asked “Never Mamdani” and “Never Cuomo” voters to explain their reasoning. See their responses.`\
-https://nytimes.com/interactive/2025/09/19/nyregion/election-mamdani-cuomo.html
-
-**Trump Has Freedom of Speech. Do You?**\
-`If the American ideal of freedom means anything, it is that we can engage in an extremely wide range of political speech, including the tasteless and the offensive.`\
-https://nytimes.com/2025/09/19/opinion/trump-freedom-of-speech-crackdown-kimmel.html
-
-**What Charlie Kirk Could Mean for the Future of Marriage and Family**\
-`Erika Kirk said her husband aspired to “revive the American family.” Conservative activists wonder if Charlie Kirk’s legacy will lend new urgency to White House policy discussions.`\
-https://nytimes.com/2025/09/19/us/politics/charlie-kirk-erika-family-marriage-children.html
-
-**Farm Aid Turns 40 and Returns to Crisis Mode**\
-`Saturday’s star-studded concert will air on TV for the first time in years as the hotline for farmers gets more calls about a mix of complicated problems.`\
-https://nytimes.com/2025/09/19/business/farm-aid-40-concert-farmers-crisis-hotline.html
-
-**Combs Sentencing Focuses Attention on Prostitution Law From 1910**\
-`Acquitted of more serious charges, Sean Combs was found guilty of violating a law enacted during a panic over “white slavery” that is now a common tool in sex crimes prosecutions.`\
-https://nytimes.com/2025/09/19/arts/music/combs-sentencing-focuses-attention-on-prostitution-law-from-1910.html
+**Next week’s waiver wire: Cedric Tillman and more players to add — before the Week 4 rush**\
+`John Laghezza gets out in front of the Week 4 waiver wire run by suggesting players to consider grabbing now before they get more popular. `\
+https://nytimes.com/athletic/6619698/2025/09/19/fantasy-football-next-week-waiver-blue-tillman/
 
 **Spencer Cox Wants to Pull Our Politics Back From the Brink**\
 `The Utah governor is trying to model a different kind of leadership in a very dangerous political moment.`\
-https://nytimes.com/video/opinion/100000010406146/spencer-cox-wants-to-pull-our-politics-back-from-the-brink.html
+https://nytimes.com/2025/09/19/opinion/ezra-klein-podcast-spencer-cox.html
 
-**This weekend, Julian Edelman becomes a Patriots Hall of Famer. Is Canton next?**\
-`With his incredible playoff performances and three Super Bowl titles, Edelman is a first-ballot Pats Hall of Famer. But does Canton await?`\
-https://nytimes.com/athletic/6641208/2025/09/19/julian-edelman-patriots-hall-of-fame-canton/
+**As Bryce Young, Michael Penix Jr. meet on Sunday, who will emerge in NFC South?**\
+`Carolina's Bryce Young and Atlanta's Michael Penix played one of Week 18's most entertaining games last season. What's next for these two?`\
+https://nytimes.com/athletic/6641369/2025/09/19/bryce-young-michael-penix-panthers-falcons-nfc-south/
 
-**Five Free Movies to Stream Now**\
-`This month brings coming-of-age stories, from the directionless heroine of “The Worst Person in the World” to the abrasive film fanatic in “I Like Movies.”`\
-https://nytimes.com/2025/09/19/movies/five-free-movies-to-stream-now.html
+**Soros Gives $10 Million to Newsom Redistricting Fight**\
+`The sum makes the Soros family the single largest funder so far in favor of the California effort to counter President Trump.`\
+https://nytimes.com/2025/09/19/us/politics/gavin-newsom-redistricting-california-fundraising.html
 
-**The Discount Data That Some Colleges Still Won’t Publish**\
-`The Common Data Set can help prospective students know how much aid they could get to pay for college. Why don’t all schools provide it?`\
-https://nytimes.com/2025/09/19/business/common-data-set-colleges-financial-aid.html
+**How to Make Up After a Fight**\
+`You’re both rattled. You feel out of sorts. Here’s how to get back on track.`\
+https://nytimes.com/2025/09/19/well/how-to-make-up-after-a-fight.html
+
+**The New York Times News Quiz, Sept. 19, 2025**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2025/09/19/briefing/news-quiz-jimmy-kimmel-charlie-kirk.html
+
+**With Jimmy Kimmel’s Firing, the Mask Comes Off**\
+`Laughter is now a government-regulated product.`\
+https://nytimes.com/2025/09/19/opinion/jimmy-kimmel-trump-media-government.html
+
+**Week 3 fantasy football intel, predictions using player prop lines**\
+`Brad Evans looks at sportsbooks to mine fantasy football insights ahead of Week 3. `\
+https://nytimes.com/athletic/6641821/2025/09/19/fantasy-football-week-3-predictions-props/
+
+**Kennedy’s Vaccine Panel Is a Calamity**\
+`“We should be thinking that we’re heading for more damaging changes.”`\
+https://nytimes.com/2025/09/19/opinion/cdc-vaccine-panel-rfk.html
+
+**How Outrage at Kimmel Grew to a Shout From a Whisper**\
+`Right-wing users on social media on Tuesday were frustrated but not yet apoplectic about Jimmy Kimmel’s monologue. Things changed.`\
+https://nytimes.com/2025/09/19/technology/kimmel-carr-outrage-online.html
 
