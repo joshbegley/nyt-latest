@@ -1,3 +1,7 @@
+**How to watch Giants at Dodgers: Time, TV, streaming for September 19**\
+`Find out how to watch the San Francisco Giants play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6643648/2025/09/19/giants-vs-dodgers-stream-how-to-watch-sept-19/
+
 **Next week’s waiver wire: Cedric Tillman and more players to add — before the Week 4 rush**\
 `John Laghezza gets out in front of the Week 4 waiver wire run by suggesting players to consider grabbing now before they get more popular. `\
 https://nytimes.com/athletic/6619698/2025/09/19/fantasy-football-next-week-waiver-blue-tillman/
