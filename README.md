@@ -1,3 +1,7 @@
+**Earth Has a New ‘Quasi-Moon,’ and It May Be Very Tiny**\
+`The object shares Earth’s orbit around the sun and could be with us for almost another 60 years.`\
+https://nytimes.com/2025/09/19/science/earth-quasi-moon-asteroid.html
+
 **Family of Maddy Cusack 'devastated' by Sheffield United's decision not to retire shirt**\
 `Cusack, who was the club’s longest-serving player, took her own life, aged 27, on September 20, 2023`\
 https://nytimes.com/athletic/6631974/2025/09/19/maddy-cusack-sheffield-united-shirt-number/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/19/world/asia/taliban-ban-women-author-books.html
 **Meet the new Ralphie: Latest Colorado mascot to make debut Saturday**\
 `Ralphie VI, known as Ember, retired last month after four seasons due to “an indifference to running.”`\
 https://nytimes.com/athletic/6644891/2025/09/19/ralphie-vii-colorado-bison/
-
-**New to the Fed, Miran Defends Calls for Sharper Reduction in Interest Rates**\
-`In his first comments since joining the Federal Reserve Board, Stephen Miran sought to emphasize his independence from the White House.`\
-https://nytimes.com/2025/09/19/us/politics/stephen-miran-fed-interest-rates.html
 
