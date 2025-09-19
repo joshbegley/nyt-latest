@@ -1,3 +1,7 @@
+**Newcastle's Schar to miss 'a few games' after sustaining head injury vs. Barcelona**\
+`The 33-year-old had initially played on but was eventually substituted in the 63rd minute.`\
+https://nytimes.com/athletic/6644234/2025/09/19/fabian-schar-newcastle-injury-update/
+
 **The S.E.C. Drops Efforts to Recoup Funds From Trump Clemency Recipients**\
 `Devon Archer, Trevor Milton and Carlos Watson were convicted in fraud schemes totaling hundreds of millions of dollars. Now, they will not be required to pay back victims.`\
 https://nytimes.com/2025/09/19/us/politics/sec-trump-clemency.html
