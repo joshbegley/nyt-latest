@@ -1,3 +1,7 @@
+**Man Utd Women's historic Champions League qualification does not hide calls for more spending**\
+`United have overcome the odds to reach their first Champions League group stage`\
+https://nytimes.com/athletic/6642371/2025/09/19/man-utd-women-champions-league-qualification-journey/
+
 **Taliban Rebuffs Trump’s Effort to Regain Air Base in Afghanistan**\
 `An Afghan official rejected the idea of a renewed presence for the U.S. military in the country, but left the door open for “political and economic relations.”`\
 https://nytimes.com/2025/09/19/world/asia/trump-bagram-taliban.html
