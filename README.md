@@ -1,3 +1,11 @@
+**A Government Shutdown Is Looming**\
+`Also, Trump officials fought over the fate of a veteran U.S. attorney. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/09/19/briefing/a-government-shutdown-is-looming.html
+
+**Falcons release kicker Younghoe Koo, sign John Parker Romo to 53-man roster**\
+`Koo had been with the Falcons since 2019 and ranked fourth in the NFL with 178 made field goals during that stretch.`\
+https://nytimes.com/athletic/6645303/2025/09/19/falcons-release-younghoe-koo-sign-john-parker-romo/
+
 **49ers QB Brock Purdy 'highly unlikely' to start Sunday vs. Cardinals**\
 `Mac Jones, who helped lead the 49ers to a Week 2 win over the Saints, is expected to get his second straight start. `\
 https://nytimes.com/athletic/6645330/2025/09/19/49ers-brock-purdy-injury-update-cardinals/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/19/us/trump-supreme-court-protections-venezuelans.ht
 **What the TikTok Deal Means for U.S.-China Relations**\
 `What could a TikTok deal mean for the relationship between the U.S. and China? Katrin Bennhold discusses with Lily Kuo, a New York Times reporter covering China`\
 https://nytimes.com/video/world/asia/100000010407536/what-the-tiktok-deal-means-for-us-china-relations.html
-
-**Sabres training camp: Levi's added fire, Ruff's belief in Samuelsson and more**\
-`Plus, Zach Benson's fit on the Sabres' top line and why Zac Jones is making an impression as a depth defender.`\
-https://nytimes.com/athletic/6645240/2025/09/19/sabres-training-camp-levi-ruff-samuelsson/
-
-**Senate Confirms Michael Waltz as U.N. Ambassador**\
-`The former national security adviser came under fire for inadvertently inviting a journalist to a Signal chat in which he and other top officials discussed war plans.`\
-https://nytimes.com/2025/09/19/us/politics/senate-michael-waltz-un-ambassador.html
 

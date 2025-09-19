@@ -1,3 +1,7 @@
+**Good riddance to Clayton Kershaw's dominance against the Giants**\
+`Since the Dead Ball Era ended, no pitcher has dominated a single team like Kershaw dominated the Giants. Giants fans won't miss him.`\
+https://nytimes.com/athletic/6644517/2025/09/19/clayton-kershaw-retirement-sf-giants-dominance/
+
 **49ers QB Brock Purdy 'highly unlikely' to start Sunday vs. Cardinals**\
 `Mac Jones, who helped lead the 49ers to a Week 2 win over the Saints, is expected to get his second straight start. `\
 https://nytimes.com/athletic/6645330/2025/09/19/49ers-brock-purdy-injury-update-cardinals/
