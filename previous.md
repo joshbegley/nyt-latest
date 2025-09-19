@@ -1,40 +1,41 @@
-**Democrats Seek to Limit Trump’s War Powers After Venezuela Boat Strikes**\
-`Lawmakers have said that President Trump has not provided sufficient evidence about the threat posed by the vessels or the legal basis to use force against them.`\
-https://nytimes.com/2025/09/19/us/politics/trump-military-powers-democrats-venezuela.html
+**Hurzeler: Ayto will be 'embraced' at Brighton**\
+`The former Arsenal assistant and interim sporting director has replaced former technical director David Weir at Brighton.`\
+https://nytimes.com/athletic/6643766/2025/09/19/jason-ayto-brighton-fabian-hurzeler/
 
-**The Race Is on to Make Rare Earth Magnets Outside China**\
-`After Beijing exerted its power over the valuable magnets as leverage, other countries started to add production, but only incrementally. And China is far ahead.`\
-https://nytimes.com/2025/09/19/business/china-rare-earths-magnets.html
+**Bengals mailbag: Joe Burrow fallout, pressure on coaches, predictions, more**\
+`The injury to Cincinnati's star quarterback could provide an opportunity for both his replacement and coaches.`\
+https://nytimes.com/athletic/6642351/2025/09/19/bengals-mailbag-joe-burrow-injury-predictions/
 
-**The New York Times International Edition in Print for Saturday, Sep. 20, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/09/19/todays-new-york-times-international-edition
+**What drives 'psycho' Christian McCaffrey, whose return has rejuvenated the 49ers?**\
+`McCaffrey is back at it after a lost 2024 season and another injury scare. "He looks like OPOY Christian," Trent Williams said.`\
+https://nytimes.com/athletic/6642128/2025/09/19/christian-mccaffrey-49ers-healthy-2025/
 
-**How to watch Giants at Dodgers: Time, TV, streaming for September 19**\
-`Find out how to watch the San Francisco Giants play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6643648/2025/09/19/giants-vs-dodgers-stream-how-to-watch-sept-19/
+**'You have to detach yourself from the fees': Hughes on Liverpool's £450m summer**\
+`Hughes also spoke about Liverpool's multi-club ambitions.`\
+https://nytimes.com/athletic/6643717/2025/09/19/liverpool-transfers-richard-hughes/
 
-**Next week’s waiver wire: Cedric Tillman and more players to add — before the Week 4 rush**\
-`John Laghezza gets out in front of the Week 4 waiver wire run by suggesting players to consider grabbing now before they get more popular. `\
-https://nytimes.com/athletic/6619698/2025/09/19/fantasy-football-next-week-waiver-blue-tillman/
+**Why Connor McDavid signing a short-term deal could actually benefit Oilers**\
+`The prevailing belief is that a short-term commitment to the Oilers is the most likely outcome for McDavid.`\
+https://nytimes.com/athletic/6642462/2025/09/19/connor-mcdavid-contract-negotiations-oilers/
 
-**Spencer Cox Wants to Pull Our Politics Back From the Brink**\
-`The Utah governor is trying to model a different kind of leadership in a very dangerous political moment.`\
-https://nytimes.com/2025/09/19/opinion/ezra-klein-podcast-spencer-cox.html
+**Is Matias Maccelli ready for prime time with the Maple Leafs?**\
+`At training camp, the Leafs want to see if newcomer Maccelli can hang on their No. 1 line alongside Auston Matthews and Matthew Knies.
+`\
+https://nytimes.com/athletic/6641692/2025/09/19/maple-leafs-matias-maccelli-training-camp/
 
-**As Bryce Young, Michael Penix Jr. meet on Sunday, who will emerge in NFC South?**\
-`Carolina's Bryce Young and Atlanta's Michael Penix played one of Week 18's most entertaining games last season. What's next for these two?`\
-https://nytimes.com/athletic/6641369/2025/09/19/bryce-young-michael-penix-panthers-falcons-nfc-south/
+**Skyballs, diveballs, knuckleballs: Kickers creating new kicks for NFL's new rules**\
+`The new rules have led to some new tricks from kickers and new headaches for returners.`\
+https://nytimes.com/athletic/6641500/2025/09/19/nfl-kicker-rules-skyballs-diveballs-knuckleballs/
 
-**Soros Gives $10 Million to Newsom Redistricting Fight**\
-`The sum makes the Soros family the single largest funder so far in favor of the California effort to counter President Trump.`\
-https://nytimes.com/2025/09/19/us/politics/gavin-newsom-redistricting-california-fundraising.html
+**Can Adam Silver find his resolve with Kawhi Leonard, Clippers investigation?**\
+`As the NBA's investigation into the Clippers and Leonard begins, it would be wise of Silver to keep his cudgel and his outrage sharp.`\
+https://nytimes.com/athletic/6634171/2025/09/19/kawhi-leonard-clippers-investigation-adam-silver-nba/
 
-**How to Make Up After a Fight**\
-`You’re both rattled. You feel out of sorts. Here’s how to get back on track.`\
-https://nytimes.com/2025/09/19/well/how-to-make-up-after-a-fight.html
+**How Fran Brown is trying to raise what's possible for Syracuse football**\
+`An unorthodox hire, Brown won 10 games in his first year at Syracuse, and he's hungry for more.`\
+https://nytimes.com/athletic/6641274/2025/09/19/fran-brown-syracuse-football/
 
-**The New York Times News Quiz, Sept. 19, 2025**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2025/09/19/briefing/news-quiz-jimmy-kimmel-charlie-kirk.html
+**A Josh Allen classic but plenty to work on: Bills observations from win over Dolphins**\
+`The Bills certainly lacked perfection in their 31-21 victory over the Dolphins on 'Thursday Night Football'.`\
+https://nytimes.com/athletic/6643448/2025/09/19/bills-dolphins-tnf-josh-allen/
 
