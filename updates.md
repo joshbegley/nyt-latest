@@ -1,3 +1,11 @@
+**Jayden Daniels out vs. Raiders with knee injury, Marcus Mariota to start**\
+`Daniels was injured on a scramble at the start of the fourth quarter against the Packers.`\
+https://nytimes.com/athletic/6641833/2025/09/19/jayden-daniels-knee-raiders/
+
+**Trump and China, in Vague Statements, Suggest TikTok Deal Could Move Ahead**\
+`The president wrote on Truth Social, “appreciate the TikTok approval,” after a call with China’s top leader, Xi Jinping. But he also suggested the deal and other issues were still in progress.`\
+https://nytimes.com/2025/09/19/business/trump-tiktok-deal-china.html
+
 **Jayden Daniels out vs. Raiders because of knee injury; Marcus Mariota to start**\
 `Daniels was injured on a scramble at the start of the fourth quarter against the Packers.`\
 https://nytimes.com/athletic/6641833/2025/09/19/jayden-daniels-knee-raiders/
