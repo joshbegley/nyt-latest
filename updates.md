@@ -1,3 +1,7 @@
+**Sweden named as SailGP's new team for 2026 season**\
+`Artemis SailGP is owned by Swedish billionaire Torbjorn Tornqvist who has bought the team outright. `\
+https://nytimes.com/athletic/6640446/2025/09/19/sail-gp-sweden-team-announcement/
+
 **Tim Lewis to leave position as Arsenal executive vice-chair**\
 `Managing director Richard Garlick is set to become CEO in a significant shake-up of the club's board`\
 https://nytimes.com/athletic/6618741/2025/09/19/arsenal-tim-lewis-leave-position/
