@@ -1,3 +1,7 @@
+**Susan Xenarios, Who Transformed Rape Crisis Response, Dies at 79**\
+`She helped found New York City’s first rape crisis center after encountering indifference when she herself was assaulted. Then she took on New York State laws.`\
+https://nytimes.com/2025/09/19/nyregion/susan-xenarios-dead.html
+
 **ESPN aims to preserve 'Inside the NBA' format when show debuts next month**\
 `Full details of how ESPN will use "Inside" are likely to emerge over the next three weeks, but the famed crew will be part of opening night.`\
 https://nytimes.com/athletic/6644488/2025/09/19/inside-the-nba-espn-details-changes/
