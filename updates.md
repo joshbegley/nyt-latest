@@ -1,3 +1,7 @@
+**Tim Lewis to leave position as Arsenal executive vice-chair**\
+`Managing director Richard Garlick is set to become CEO in a significant shake-up of the club's board`\
+https://nytimes.com/athletic/6618741/2025/09/19/arsenal-tim-lewis-leave-position/
+
 **Curiosity Summons a Reporter to an Island Known for the Occult**\
 `A reporter traveled to a remote island in the Philippines to witness a festival unlike any other.`\
 https://nytimes.com/2025/09/19/insider/philippines-siquijor-island-festival.html

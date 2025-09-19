@@ -1,3 +1,7 @@
+**Tim Lewis to leave position as Arsenal executive vice-chair**\
+`Managing director Richard Garlick is set to become CEO in a significant shake-up of the club's board`\
+https://nytimes.com/athletic/6618741/2025/09/19/arsenal-tim-lewis-leave-position/
+
 **Curiosity Summons a Reporter to an Island Known for the Occult**\
 `A reporter traveled to a remote island in the Philippines to witness a festival unlike any other.`\
 https://nytimes.com/2025/09/19/insider/philippines-siquijor-island-festival.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6643479/2025/09/19/cubs-vs-reds-stream-how-to-watch
 **How to watch Angels at Rockies: Time, TV, streaming for September 19**\
 `Find out how to watch the Los Angeles Angels play the Colorado Rockies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6643477/2025/09/19/angels-vs-rockies-stream-how-to-watch-sept-19-2/
-
-**How to watch Guardians at Twins: Time, TV, streaming for September 19**\
-`Find out how to watch the Cleveland Guardians play the Minnesota Twins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6643475/2025/09/19/guardians-vs-twins-stream-how-to-watch-sept-19/
 

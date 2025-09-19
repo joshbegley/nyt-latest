@@ -1,3 +1,7 @@
+**Sweden named as SailGP's new team for 2026 season**\
+`Artemis SailGP is owned by Swedish billionaire Torbjorn Tornqvist who has bought the team outright. `\
+https://nytimes.com/athletic/6640446/2025/09/19/sail-gp-sweden-team-announcement/
+
 **Tim Lewis to leave position as Arsenal executive vice-chair**\
 `Managing director Richard Garlick is set to become CEO in a significant shake-up of the club's board`\
 https://nytimes.com/athletic/6618741/2025/09/19/arsenal-tim-lewis-leave-position/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/19/arts/television/late-night-jimmy-kimmel-suspensio
 **How to watch Cubs at Reds: Time, TV, streaming for September 19**\
 `Find out how to watch the Chicago Cubs play the Cincinnati Reds, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6643479/2025/09/19/cubs-vs-reds-stream-how-to-watch-sept-19/
-
-**How to watch Angels at Rockies: Time, TV, streaming for September 19**\
-`Find out how to watch the Los Angeles Angels play the Colorado Rockies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6643477/2025/09/19/angels-vs-rockies-stream-how-to-watch-sept-19-2/
 
