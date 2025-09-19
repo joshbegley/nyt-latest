@@ -1,3 +1,7 @@
+**With Calls for Retribution Over Kirk, Some See Rise of a ‘Woke Right’**\
+`Conservatives have pressed for consequences for those who make negative comments about Charlie Kirk. But a few on the right say they worry about limits on speech.`\
+https://nytimes.com/2025/09/19/us/charlie-kirk-free-speech-republicans.html
+
 **Harris Assails ABC Suspension of Kimmel as ‘Rewarding’ Trump**\
 `In an interview ahead of her new book’s release, former Vice President Kamala Harris warned that President Trump would only grow more emboldened in crushing dissent.`\
 https://nytimes.com/2025/09/19/us/politics/harris-abc-kimmel-trump.html
