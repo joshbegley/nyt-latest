@@ -1,3 +1,7 @@
+**The S.E.C. Drops Efforts to Recoup Funds From Trump Clemency Recipients**\
+`Devon Archer, Trevor Milton and Carlos Watson were convicted in fraud schemes totaling hundreds of millions of dollars. Now, they will not be required to pay back victims.`\
+https://nytimes.com/2025/09/19/us/politics/sec-trump-clemency.html
+
 **High Five: Ivan Toney vs Darwin Nunez and the Eternal Derby**\
 `Two eternal derbies, a clash of Brazilian titans and … checks notes … Dean Smith. It's quite the weekend of global football action`\
 https://nytimes.com/athletic/6642542/2025/09/19/toney-nunez-eternal-derby-preview/
