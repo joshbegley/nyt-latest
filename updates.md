@@ -1,3 +1,11 @@
+**NHL honors late Penguins, Devils GM Ray Shero with Lester Patrick Trophy**\
+`The award is given to a person based on their outstanding service to hockey in the United States.`\
+https://nytimes.com/athletic/6644833/2025/09/19/ray-shero-lester-patrick-trophy-nhl-penguins-devils/
+
+**Shane Pinto doesn't want to be a 'distraction' amid contract extension talks**\
+`Days earlier, Senators GM Steve Staios said he engaged in "discussions" with Pinto's agent, Lewis Gross, "a couple of weeks ago." `\
+https://nytimes.com/athletic/6644758/2025/09/19/pinto-senators-contract-extension/
+
 **Shane Pinto doesn't want to be a 'distraction' amid contract extension talks**\
 `Days earlier, Senators GM Steve Staios said he engaged in "discussions" with Pinto's agent, Lewis Gross, "a couple of weeks ago". `\
 https://nytimes.com/athletic/6644758/2025/09/19/pinto-senators-contract-extension/
