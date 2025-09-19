@@ -11,7 +11,7 @@ https://nytimes.com/2025/09/19/us/politics/jim-edgar-dead.html
 https://nytimes.com/athletic/6644894/2025/09/19/penguins-training-camp-sergei-murashov/
 
 **Good riddance to Clayton Kershaw's dominance against the Giants**\
-`Since the dead ball era ended, no pitcher has dominated a single team like Kershaw dominated the Giants. Giants fans won't miss him.`\
+`Since the Dead Ball Era ended, no pitcher has dominated a single team like Kershaw dominated the Giants. Giants fans won't miss him.`\
 https://nytimes.com/athletic/6644517/2025/09/19/clayton-kershaw-retirement-sf-giants-dominance/
 
 **Heavy Rain Triggers Mudslides, Flash Floods in Southern California**\
