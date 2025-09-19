@@ -1,3 +1,7 @@
+**Europe Announces New Sanctions to Ramp Up Pressure on Russia**\
+`The latest set of European Union restrictions are aimed at chipping away at Russia’s energy profits and ability to do business globally.`\
+https://nytimes.com/2025/09/19/world/europe/eu-sanctions-russia-ukraine.html
+
 **Awkward reunion, compelling chess match ahead for Caleb Williams and Matt Eberflus**\
 `Eberflus’ main task Sunday for the Cowboys will be to frustrate the Bears quarterback he was responsible for developing last season.`\
 https://nytimes.com/athletic/6642240/2025/09/19/bears-caleb-williams-matt-eberflus-cowboys/
