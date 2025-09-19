@@ -1,3 +1,11 @@
+**Jim Edgar, 79, Popular and Moderate Republican Governor of Illinois, Dies**\
+`In the 1990s, he compromised with Democrats, backed abortion rights, increased spending for schools and used an income-tax hike to help tame a huge budget deficit.`\
+https://nytimes.com/2025/09/19/us/politics/jim-edgar-dead.html
+
+**Yohe: Sergei Murashov is turning heads, and more of what I'm seeing at Penguins camp**\
+`Murashov, the Penguins' fourth-round pick in 2022, has put on a show in net in the early days of training camp.`\
+https://nytimes.com/athletic/6644894/2025/09/19/penguins-training-camp-sergei-murashov/
+
 **Good riddance to Clayton Kershaw's dominance against the Giants**\
 `Since the Dead Ball era ended, no pitcher has dominated a single team like Kershaw dominated the Giants. Giants fans won't miss him.`\
 https://nytimes.com/athletic/6644517/2025/09/19/clayton-kershaw-retirement-sf-giants-dominance/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6645240/2025/09/19/sabres-training-camp-levi-ruff-s
 **Senate Confirms Michael Waltz as U.N. Ambassador**\
 `The former national security adviser came under fire for inadvertently inviting a journalist to a Signal chat in which he and other top officials discussed war plans.`\
 https://nytimes.com/2025/09/19/us/politics/senate-michael-waltz-un-ambassador.html
-
-**Remains Believed to Belong to Man Who Killed 3 Daughters Are Found**\
-`A search team recovered remains believed to be those of Travis Decker in a forest about 120 miles east of Seattle, the authorities said.`\
-https://nytimes.com/2025/09/19/us/travis-decker-remains-found-washington-state.html
-
-**Noah Lyles, Melissa Jefferson-Wooden cap a strong worlds for U.S. sprinters**\
-`This could've been a sluggish world championships for American sprinters. Instead, they'll walk away with six golds in 10 individual events.`\
-https://nytimes.com/athletic/6644869/2025/09/19/noah-lyles-melissa-jefferson-wooden-world-championships-us-sprinters/
 
