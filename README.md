@@ -1,3 +1,11 @@
+**Trump Officials Question Harvard’s Stability, Saying Federal Inquiries Raise Financial Risk**\
+`The administration’s latest attack on the nation’s oldest university comes as negotiations stall for a settlement to restore billions in frozen federal research funds.`\
+https://nytimes.com/2025/09/19/us/politics/trump-harvard-financial-risk.html
+
+**Vaccine Panel Postpones One Vote and Reverses Another Amid Confusion**\
+`Committee members delayed indefinitely a vote on a hepatitis B vaccine for newborns because they did not feel ready to make a decision.`\
+https://nytimes.com/2025/09/19/health/cdc-vaccines-mmrv-hepatitis-b.html
+
 **Jason Kelce, architect of the tush push, believes 'the play is done'**\
 `The play was almost banned in the offseason, missing the threshold by gaining 22 votes in favor of banning instead of the required 24 votes.`\
 https://nytimes.com/athletic/6644621/2025/09/19/jason-kelce-tush-push-play-comments/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6644488/2025/09/19/inside-the-nba-espn-details-chan
 **Champions League post-MD1 projections: Liverpool early favourites but are Inter flying under the radar?**\
 `An analysis of the state of play in Europe's premier club competition following the conclusion of the first round of fixtures`\
 https://nytimes.com/athletic/6644047/2025/09/19/champions-league-2025-26-projections/
-
-**In Pressuring ABC Over Kimmel, Trump May Have Crossed a Constitutional Line**\
-`The Supreme Court has distinguished bully-pulpit persuasion, which is permissible under the First Amendment, from coercion and threats, which are not.`\
-https://nytimes.com/2025/09/19/us/politics/supreme-court-jimmy-kimmel-free-speech.html
-
-**Penguins' Evgeni Malkin: 'If it's my last year here, I want to show everything'**\
-`Malkin wants to finish his career in Pittsburgh but hasn't shot down the possibility of playing elsewhere. `\
-https://nytimes.com/athletic/6644417/2025/09/19/penguins-evgeni-malkin-retirement-nhl-contract/
 
