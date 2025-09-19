@@ -1,3 +1,19 @@
+**Trump Nears Deal for Road Through Alaskan Wildlife Refuge**\
+`Proponents say the road would connect a remote town with an airport used for medical evacuations. Opponents say it would cause irreparable harm to wildlife and Alaska Native tribes.`\
+https://nytimes.com/2025/09/19/climate/trump-deal-izembek-national-wildlife-refuge-alaska.html
+
+**Uber for Business: Driving Growing Brands**\
+`On any given morning, Amrita Bhasin wakes up ready to hop on a flight and make a sale with a new client.`\
+https://nytimes.com/paidpost/uber-for-business/uber-for-business-driving-growing-brands.html
+
+**Heavy Rain Brings Mudslides and Flash Floods to Southern California**\
+`A toddler was missing after he and his father were swept off the road in their vehicle by floodwaters. Officials were still assessing the damage.`\
+https://nytimes.com/2025/09/19/weather/southern-california-mudslides-rain.html
+
+**After 50 Years, the Magic Circle (Finally) Inducts Penn & Teller**\
+`There had been resistance to admitting the duo because of their willingness to reveal the secrets behind their illusions. But it was always more complicated than that.`\
+https://nytimes.com/2025/09/19/arts/penn-teller-magic-circle.html
+
 **Gov. Spencer Cox on the Trump Administration’s Crackdown**\
 `“It’s going to take more speech and more sunlight and more disagreement” to fight political violence, says Gov. Spencer Cox of Utah.`\
 https://nytimes.com/video/opinion/100000010407663/gov-spencer-cox-on-the-trump-administrations-crackdown.html

@@ -1,3 +1,11 @@
+**Nicholas Grimshaw, 85, Dies; British Architect Known for High-Tech Designs**\
+`He melded his country’s history of engineering and industrial design with a modern sensibility to help shape the face of 21st-century Britain.`\
+https://nytimes.com/2025/09/19/arts/design/nicholas-grimshaw-dead.html
+
+**The Confusing Mess at the Vaccine Meeting**\
+`We definitely need to restore America’s trust in vaccines, but the amateur hour A.C.I.P. display isn’t going to do it.`\
+https://nytimes.com/2025/09/19/opinion/vaccines-kennedy-acip-monarez.html
+
 **Trump Nears Deal for Road Through Alaskan Wildlife Refuge**\
 `Proponents say the road would connect a remote town with an airport used for medical evacuations. Opponents say it would cause irreparable harm to wildlife and Alaska Native tribes.`\
 https://nytimes.com/2025/09/19/climate/trump-deal-izembek-national-wildlife-refuge-alaska.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/19/health/pregnancy-cannabis-marijuana-guidelines.ht
 **Jack Daniels, Olympic Medalist and ‘World’s Best’ Running Coach, Dies at 92**\
 `Tutoring Olympians, he created a simple workout formula that was said to produce the best results with the least effort, earning accolades across the running world.`\
 https://nytimes.com/2025/09/19/sports/jack-daniels-dead.html
-
-**Hard-Fought Treaty to Protect Ocean Life Clears a Final Hurdle**\
-`The global High Seas Treaty, decades in the making, will become international law. It aims to create vast maritime conservation areas.`\
-https://nytimes.com/2025/09/19/climate/high-seas-treaty-ocean-biodiversity-ratified.html
-
-**How to watch Liberty at Mercury: Game 3 Time, TV, streaming**\
-`Find out how to watch the New York Liberty play the Phoenix Mercury, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6645148/2025/09/19/liberty-vs-mercury-stream-how-to-watch-sept-19/
 
