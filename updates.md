@@ -1,3 +1,15 @@
+**The Pulse: A good loss? In this economy?**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6643194/2025/09/19/bills-dolphins-mike-mcdaniel-the-pulse/
+
+**The Daniel Jones reclamation project: Why Colts QB is flourishing with Shane Steichen**\
+`We examine what Steichen is doing to allow Jones to play the best football he's played in years at the helm of Indy's explosive offense.`\
+https://nytimes.com/athletic/6641517/2025/09/19/colts-daniel-jones-shane-steichen/
+
+**Weird & Wild MLB history watch: Players, teams that could break wacky records this month**\
+`Here are a heaping handful of players and teams that could be about to make history — in weird ways — before the end of the season. `\
+https://nytimes.com/athletic/6642943/2025/09/19/mlb-weird-records-history-september/
+
 **Maresca plays down Sterling, Disasi situations at Chelsea**\
 `"I have been in Raheem and Axel’s situation as a player. For sure, I know it is not the best feeling," Maresca said on Friday.`\
 https://nytimes.com/athletic/6643804/2025/09/19/chelsea-sterling-disasi-maresca/
