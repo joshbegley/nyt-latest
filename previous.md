@@ -1,3 +1,27 @@
+**‘Mexodus’ Review: A History Musical With Thrilling Loop-the-Loops**\
+`Brian Quijada and Nygel D. Robinson take viewers south on the Underground Railroad in this electric production that feels like a jam session.`\
+https://nytimes.com/2025/09/19/theater/mexodus-review-audible.html
+
+**Uber for Business: Driving Growing Brands**\
+`On any given morning, Amrita Bhasin wakes up ready to hop on a flight and make a sale with a new client.`\
+https://nytimes.com/paidpost/2025-04-22/.html
+
+**Finnish Prime Minister Petteri Orpo on Winning the Debate on Climate Change**\
+`We asked heads of state how they’re steering their countries as America retreats.`\
+https://nytimes.com/interactive/2025/09/19/magazine/petteri-orpo-finland-climate-interview.html
+
+**Irfaan Ali, President of Guyana, on Putting Oil Profits Into Clean Energy**\
+`We asked heads of state how they’re steering their countries as America retreats.`\
+https://nytimes.com/interactive/2025/09/19/magazine/irfaan-ali-guyana-climate-interview.html
+
+**Anthony Albanese, Prime Minister of Australia, on Getting Past Climate Partisanship**\
+`We asked heads of state how they’re steering their countries as America retreats.`\
+https://nytimes.com/interactive/2025/09/19/magazine/anthony-albanese-australia-climate-interview.html
+
+**Hilda Heine, President of the Marshall Islands, on Leading a Sinking Country**\
+`We asked heads of state how they’re steering their countries as America retreats.`\
+https://nytimes.com/interactive/2025/09/19/magazine/hilda-heine-marshall-islands-climate-interview.html
+
 **President William Ruto of Kenya on Pushing Clean Energy Amid Domestic Unrest**\
 `We asked heads of state how they’re steering their countries as America retreats.`\
 https://nytimes.com/interactive/2025/09/19/magazine/william-ruto-kenya-climate-interview.html
@@ -13,28 +37,4 @@ https://nytimes.com/interactive/2025/09/19/magazine/climate-change-world-leaders
 **In Mexico, New Mothers Are Seeking Out Old Rituals**\
 `Some women in the country’s capital are turning to midwives who they say offer a more holistic approach to care than hospitals usually provide.`\
 https://nytimes.com/2025/09/19/world/americas/mexico-midwife-postpartum.html
-
-**8 Ways ‘Black Rabbit’ Channels a Notorious New York Restaurant**\
-`The fictional gastro pub at the heart of a new Netflix series is largely inspired by the Spotted Pig, the V.I.P. spot rocked by a sexual harassment scandal.`\
-https://nytimes.com/2025/09/19/dining/netflix-black-rabbit-spotted-pig.html
-
-**Flashback: Your Weekly History Quiz, Sept. 20, 2025**\
-`Can you sort 8 historical events?`\
-https://nytimes.com/interactive/2025/09/19/upshot/flashback.html
-
-**Trump Administration Will End Deportation Protections for Thousands of Syrians**\
-`A homeland security official said it was “contrary to our national interest to allow Syrians to remain in our country.”`\
-https://nytimes.com/2025/09/19/us/politics/temporary-protected-status-syrians.html
-
-**18-Year-Old Is Fatally Shot During F.B.I. and A.T.F. Operation in Pennsylvania**\
-`A medical examiner’s report said Kendric Curtis, 18, was “shot by law enforcement” on Thursday and died on Friday.`\
-https://nytimes.com/2025/09/19/us/atf-shooting-student-aliquippa-pennsylvania.html
-
-**Earth Has a New ‘Quasi-Moon,’ and It May Be Very Tiny**\
-`The object shares Earth’s orbit around the sun and could be with us for almost another 60 years.`\
-https://nytimes.com/2025/09/19/science/earth-quasi-moon-asteroid.html
-
-**Family of Maddy Cusack 'devastated' by Sheffield United's decision not to retire shirt**\
-`Cusack, who was the club’s longest-serving player, took her own life, aged 27, on September 20, 2023`\
-https://nytimes.com/athletic/6631974/2025/09/19/maddy-cusack-sheffield-united-shirt-number/
 
