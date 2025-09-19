@@ -1,3 +1,11 @@
+**A Government Shutdown Is Looming**\
+`Also, Trump officials fought over the fate of a veteran U.S. attorney. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/09/19/briefing/a-government-shutdown-is-looming.html
+
+**Falcons release kicker Younghoe Koo, sign John Parker Romo to 53-man roster**\
+`Koo had been with the Falcons since 2019 and ranked fourth in the NFL with 178 made field goals during that stretch.`\
+https://nytimes.com/athletic/6645303/2025/09/19/falcons-release-younghoe-koo-sign-john-parker-romo/
+
 **Good riddance to Clayton Kershaw's dominance against the Giants**\
 `Since the Dead Ball Era ended, no pitcher has dominated a single team like Kershaw dominated the Giants. Giants fans won't miss him.`\
 https://nytimes.com/athletic/6644517/2025/09/19/clayton-kershaw-retirement-sf-giants-dominance/
