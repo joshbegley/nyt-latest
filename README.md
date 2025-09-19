@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6643153/2025/09/18/cade-horton-cubs-game-1-playoff-starter/
 
 **Bills vs. Dolphins takeaways: Did Miami quiet McDaniel firing rumors despite loss?**\
-`The Dolphins drop to 0-3, but a game that was too close for too long — for the Bills — might've prolonged McDaniel's job security.`\
+`The Dolphins fell to 0-3, but a game that was too close for too long — for the Bills — might've prolonged McDaniel's job security.`\
 https://nytimes.com/athletic/6642981/2025/09/18/dolphins-bills-score-result-takeaways-thursday-night-football/
 
 **Cubs rookie Ballesteros OK after being struck in helmet by deflected 105-mph line drive**\
@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6642921/2025/09/18/cubs-rookie-ballesteros-ok-helme
 `Kershaw gave an emotional press conference in Los Angeles on Thursday to announce his retirement from the sport.`\
 https://nytimes.com/athletic/6643025/2025/09/18/clayton-kershaw-retirement-dodgers/
 
-**Fever oust Dream, reach first WNBA semifinal in a decade**\
+**Fever oust Dream to reach first WNBA semifinal in a decade**\
 `Indiana overcomes a host of injuries to beat the Dream 87-85 and take the first-round playoff series 2-1.`\
 https://nytimes.com/athletic/6643091/2025/09/18/fever-dream-wnba-playoffs/
 
