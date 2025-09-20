@@ -1,3 +1,7 @@
+**Blackhawks settle lawsuit with former player John Doe**\
+`A former player had sued the Blackhawks for failing to act when informed of sexual assault allegations against a former video coach in 2010.`\
+https://nytimes.com/athletic/6647599/2025/09/20/blackhawks-settle-lawsuit-john-doe/
+
 **In another brutal Tigers loss, the bullpen bears the blame**\
 `The Tigers blew a lead in the ninth to seal their eighth defeat in nine games as the Cleveland Guardians close in.`\
 https://nytimes.com/athletic/6647594/2025/09/20/tigers-lose-braves-bullpen-blame/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6560541/2025/09/20/college-football-playoff-bracket
 **Astros sit Christian Walker in pivotal game, deepening questions about future**\
 `The first season of a three-year, $60 million deal has mostly been a struggle for the Astros' first baseman.`\
 https://nytimes.com/athletic/6647603/2025/09/20/astros-sit-christian-walker/
-
-**California Bars ICE Agents From Wearing Masks in the State**\
-`Gov. Gavin Newsom signed a bill to prevent federal agents from concealing their identities with masks. The law is expected to face a legal challenge.`\
-https://nytimes.com/2025/09/20/us/california-ice-agents-masks-law.html
 
