@@ -1,3 +1,11 @@
+**Trump Escalates Attack on Free Speech**\
+`Zolan Kanno-Youngs, a White House correspondent for The New York Times, describes how the Trump administration’s pressuring of ABC to take action against Jimmy Kimmel is part of a broader crackdown by the administration since the assassination of Charlie Kirk.`\
+https://nytimes.com/video/us/politics/100000010409626/trump-escalates-attack-on-free-speech.html
+
+**F1 qualifying went sideways in Azerbaijan, and the underdogs came out on top**\
+`Max Verstappen is inevitable. But how we got to another Red Bull pole on Saturday? That was something to behold`\
+https://nytimes.com/athletic/6646922/2025/09/20/f1-qualifying-azerbaijan-crashes-pole-verstappen/
+
 **Chiefs rule out receiver Xavier Worthy for Sunday night matchup vs. Giants**\
 `Worthy, who was a limited participant in three practices this week while wearing a brace on his shoulder, will miss a second straight game.`\
 https://nytimes.com/athletic/6646971/2025/09/20/chiefs-xavier-worthy-out-giants/
