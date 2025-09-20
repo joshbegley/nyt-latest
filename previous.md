@@ -1,3 +1,11 @@
+**Eagles notes: Accountability from Hurts, Carter's conditioning, Tush Push reaction**\
+`Plus: The return of tight end Dallas Goedert and a prediction ahead of Sunday's game against the Rams.`\
+https://nytimes.com/athletic/6645991/2025/09/20/eagles-jalen-hurts-jalen-carter-tush-push/
+
+**Elizabeth Gilbert Can’t Control the Narrative**\
+`Memoirs don’t have to be guides for living.`\
+https://nytimes.com/2025/09/20/opinion/gilbert-self-help.html
+
 **Examining Mike Gundy’s contract buyout following Oklahoma State’s loss to Tulsa**\
 `Under the restructured contract, Gundy’s buyout is $15 million if he's fired without cause before Dec. 31, 2027.`\
 https://nytimes.com/athletic/6646681/2025/09/20/mike-gundy-oklahoma-state-buyout/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/20/business/dealbook/data-centers-ai.html
 **Beckham, Neville admit Salford were in 'serious trouble' before new buyout**\
 `A delegation — including Beckham — will attend their first match since the buyout when Salford host Swindon Town on Saturday.`\
 https://nytimes.com/athletic/6645292/2025/09/20/david-beckham-gary-neville-salford-city-takeover/
-
-**Nick Castellanos' big night lifts Phillies, but his potential role in playoffs looks limited**\
-`The Phillies have decided they are better without Castellanos in right field every day. The veteran is adjusting to his new reality. `\
-https://nytimes.com/athletic/6646312/2025/09/20/nick-castellanos-phillies-playoff-role/
-
-**Liam Ohgren, Vladimir Tarasenko, Joel Eriksson Ek emerging as a line to watch in Wild camp**\
-`Tarasenko has four goals and two assists in two scrimmages, both wins for his group. Ohgren scored the winner Friday.`\
-https://nytimes.com/athletic/6645249/2025/09/20/ohgren-eriksson-ek-tarasenko-wild-line/
 

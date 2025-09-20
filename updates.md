@@ -1,3 +1,11 @@
+**Eagles notes: Accountability from Hurts, Carter's conditioning, Tush Push reaction**\
+`Plus: The return of tight end Dallas Goedert and a prediction ahead of Sunday's game against the Rams.`\
+https://nytimes.com/athletic/6645991/2025/09/20/eagles-jalen-hurts-jalen-carter-tush-push/
+
+**Elizabeth Gilbert Can’t Control the Narrative**\
+`Memoirs don’t have to be guides for living.`\
+https://nytimes.com/2025/09/20/opinion/gilbert-self-help.html
+
 **Examining Mike Gundy’s contract buyout following Oklahoma State’s loss to Tulsa**\
 `Under the restructured contract, Gundy’s buyout is $15 million if he's fired without cause before Dec. 31, 2027.`\
 https://nytimes.com/athletic/6646681/2025/09/20/mike-gundy-oklahoma-state-buyout/
