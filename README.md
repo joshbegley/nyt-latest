@@ -1,3 +1,11 @@
+**Mets get the Ryan Helsley they need on night Juan Soto hits career-best 42nd homer**\
+`Helsley's seventh-inning relief appearance stood out as the Mets' most important development in Friday's 12-6 win over the Nationals.`\
+https://nytimes.com/athletic/6646027/2025/09/19/juan-soto-42-home-runs-mets-nationals/
+
+**Mercury knock out defending champion Liberty, will face Lynx in semifinals**\
+`Breanna Stewart was a woman possessed in the elimination game, but her team failed to provide much support.`\
+https://nytimes.com/athletic/6646081/2025/09/19/wnba-playoffs-mercury-liberty-game-3/
+
 **Always 'time to ball out' for Braves' Matt Olson, who's close to another 30-100 season**\
 `Olson is finishing the season with such a flurry that he could wind up with his fourth 30-homer, 100-RBI season in the last five.`\
 https://nytimes.com/athletic/6645934/2025/09/19/braves-matt-olson-home-runs-rbis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6645705/2025/09/19/athletics-vs-pirates-stream-how-
 **How to watch Cubs at Reds: Time, TV, streaming for September 20**\
 `Find out how to watch the Chicago Cubs play the Cincinnati Reds, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6645704/2025/09/19/cubs-vs-reds-stream-how-to-watch-sept-20/
-
-**How to watch Braves at Tigers: Time, TV, streaming for September 20**\
-`Find out how to watch the Atlanta Braves play the Detroit Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6645698/2025/09/19/braves-vs-tigers-stream-how-to-watch-sept-20/
-
-**Jimmy Kimmel and the Rise of Corporate Censorship**\
-`Jimmy Kimmel’s suspension exposes a chilling new reality of the media bowing to political pressure from the Trump administration, the New York Times Opinion columnist M.`\
-https://nytimes.com/video/opinion/100000010411235/jimmy-kimmel-and-the-rise-of-corporate-censorship.html
 
