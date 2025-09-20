@@ -1,3 +1,7 @@
+**Trump Says Critical Coverage of Him Is ‘Really Illegal’**\
+`It remained unclear why the president believed negative news coverage, which all of his predecessors have faced and is protected by the Constitution, would be against the law.`\
+https://nytimes.com/2025/09/19/us/politics/trump-media-news-free-speech.html
+
 **How to watch Athletics at Pirates: Time, TV, streaming for September 20**\
 `Find out how to watch the Athletics play the Pittsburgh Pirates, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6645705/2025/09/19/athletics-vs-pirates-stream-how-to-watch-sept-20/
