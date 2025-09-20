@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6646681/2025/09/20/mike-gundy-oklahoma-state-buyout
 `The Phillies have decided they are better without Castellanos in right field every day. The veteran is adjusting to his new reality. `\
 https://nytimes.com/athletic/6646312/2025/09/20/nick-castellanos-phillies-playoff-role/
 
-**MLB Playoff watch: Mariners grab West lead, Dodgers lock up spot; bracket, clinching scenarios**\
+**MLB playoff watch: Mariners grab West lead, Dodgers lock up spot; bracket, clinching scenarios**\
 `The Dodgers clinched a postseason berth and the Blue Jays and Tigers had nights to forget.`\
 https://nytimes.com/athletic/6645715/2025/09/20/mlb-playoff-watch-mariners-lead-dodgers-clinch/
 
