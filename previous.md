@@ -1,3 +1,7 @@
+**Nick Castellanos' big night lifts Phillies, but his potential role in playoffs looks limited**\
+`The Phillies have decided they are better without Castellanos in right field every day. The veteran is adjusting to his new reality. `\
+https://nytimes.com/athletic/6646312/2025/09/20/nick-castellanos-phillies-playoff-role/
+
 **Liam Ohgren, Vladimir Tarasenko, Joel Eriksson Ek emerging as a line to watch in Wild camp**\
 `Tarasenko has four goals and two assists in two scrimmages, both wins for his group. Ohgren scored the winner Friday.`\
 https://nytimes.com/athletic/6645249/2025/09/20/ohgren-eriksson-ek-tarasenko-wild-line/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/20/opinion/jimmy-kimmel-conservative-principle-trump
 **The NHL’s top 10 breakout candidates: Leo Carlsson, Frank Nazar, Jet Greaves and more**\
 `These 10 players are poised to improve thanks to new opportunities, bigger roles or age-related growth.`\
 https://nytimes.com/athletic/6638130/2025/09/20/nhl-top-10-breakout-candidates/
-
-**Why Do We Think We Know Kirk’s Shooter’s Motive?**\
-`Legible meaning doesn’t neatly emerge from the world of online discourse.`\
-https://nytimes.com/2025/09/20/opinion/charlie-kirk-shooter-motive.html
 
