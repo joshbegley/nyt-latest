@@ -1,4 +1,12 @@
-**U.S. reach first Billie Jean King Cup final since 2018 with win over GB**\
+**The Calm Before the Beers**\
+`Until the taps open at Oktoberfest, it’s a nonalcoholic mix of card games, soft drinks and waiting.`\
+https://nytimes.com/2025/09/20/world/europe/germany-munich-oktoberfest.html
+
+**The Briefing: Wolves 1 Leeds 3 – Farke's new boys shine as Wolves enter crisis mode**\
+`Daniel Farke's attack finally click – but where does this defeat leave Vitor Pereira?`\
+https://nytimes.com/athletic/6637226/2025/09/20/wolves-1-leeds-3-calvert-lewin-analysis/
+
+**U.S. reaches first Billie Jean King Cup final since 2018 with win over Great Britain**\
 `Emma Navarro and Jessica Pegula got the better of Sonay Kartal and Katie Boulter to reach Sunday's final.`\
 https://nytimes.com/athletic/6646929/2025/09/20/united-states-billie-jean-cup-final-navarro-pegula/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6646212/2025/09/20/how-the-dodgers-became-something
 **Historic Azerbaijan F1 mayhem sees Verstappen claim pole, Sainz second**\
 `A two-hour epic qualifying session saw six red flags and a stunning jumble for Sunday's grid.`\
 https://nytimes.com/athletic/6646684/2025/09/20/azerbaijan-gp-qualifying-results-max-verstappen-carlos-sainz/
-
-**Russini: What I'm hearing on the NFL's Tom Brady problem, the tush push's future and more**\
-`Also: Inside the Week 3 backup QB bonanza, questions about Travis Hunter, and why the Vikings feel comfortable with Carson Wentz.`\
-https://nytimes.com/athletic/6645327/2025/09/20/nfl-rumors-news-tom-brady-conflict-tush-push-future/
-
-**Why Russia Is Reviving a Cold War-Era Song Contest**\
-`On Saturday, Russia is hosting the Intervision Song Contest, with singers representing countries like China and Cuba. And the United States, too.`\
-https://nytimes.com/2025/09/20/arts/music/intervision-song-contest.html
 
