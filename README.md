@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6646937/2025/09/20/jameson-williams-touchdown-bears
 `Spurs came back from 2-0 down to claim a point at Brighton & Hove Albion, thanks to a vastly improved second-half performance`\
 https://nytimes.com/athletic/6637225/2025/09/20/brighton-2-tottenham-2-xavi-simons/
 
-**F1 qualifying went sideways in Azerbaijan — and the underdogs came out on top**\
+**F1 qualifying went sideways in Azerbaijan, and the underdogs came out on top**\
 `Max Verstappen is inevitable. But how we got to another Red Bull pole on Saturday? That was something to behold`\
 https://nytimes.com/athletic/6646922/2025/09/20/f1-qualifying-azerbaijan-crashes-pole-verstappen/
 
