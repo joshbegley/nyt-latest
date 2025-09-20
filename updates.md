@@ -1,3 +1,15 @@
+**Stanton blasts 450th career home run, moves to 41st all time**\
+`Only four players have hit as many home runs in fewer games than the Yankees' slugger.`\
+https://nytimes.com/athletic/6647810/2025/09/20/giancarlo-stanton-450-home-runs-yankees/
+
+**College Football Playoff 2025 projections: The most likely bracket with Week 4 underway**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/09/20/college-football-playoff-bracket-projections-odds/
+
+**Bill Belichick, UNC struggle again against power conference competition**\
+`UNC started the season getting blown out by TCU. Bill Belichick and company then beat Charlotte and Richmond before falling Saturday to UCF.`\
+https://nytimes.com/athletic/6647792/2025/09/20/bill-belichick-unc-ucf-result-analysis/
+
 **Braves' Nacho Alvarez Jr. on first 2 homers: One of the 'top three days of my life'**\
 `Alvarez, who went 214 plate appearances over two seasons without a home run, hit two homers in a span of six innings in Atlanta's 6-5 win.`\
 https://nytimes.com/athletic/6647627/2025/09/20/nacho-alvarez-jr-braves-tigers-result/
