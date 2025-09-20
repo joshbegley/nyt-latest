@@ -1,3 +1,11 @@
+**Broncos place LB Dre Greenlaw on injured reserve with quad injury: Source**\
+`With Greenlaw unavailable, the Broncos have started veteran Justin Strnad next to Alex Singleton at inside linebacker to begin the season.`\
+https://nytimes.com/athletic/6647395/2025/09/20/broncos-dre-greenlaw-injured-reserve-quad/
+
+**Memphis stuns Arkansas; wild ending leaves Tigers in prime Playoff position**\
+`The loss to Memphis, in the teams' first meeting since 1998, drops Pittman to 32-33 in his sixth season as Arkansas' head coach.`\
+https://nytimes.com/athletic/6647457/2025/09/20/tigers-razorbacks-cfb/
+
 **Justice Alito, in Rome, Says Religious Liberty Is Under Siege**\
 `Justice Samuel A. Alito Jr., a conservative Catholic, has visited Rome for decades, often teaching or participating in academic conferences.`\
 https://nytimes.com/2025/09/20/world/europe/justice-alito-rome-religious-liberty.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6637227/2025/09/20/manchester-united-chelsea-premie
 **White House Outlines a TikTok Deal With a U.S. Board**\
 `A potential deal to reduce TikTok’s ties to China would give the app a new board with six American directors out of seven, the White House press secretary said.`\
 https://nytimes.com/2025/09/20/technology/white-house-tiktok-deal.html
-
-**Australia on top but USA has a day to forget in Geneva**\
-`Australia leads Britain by two points after the first day of racing in Geneva, but it was another "super frustrating" day for the U.S. team`\
-https://nytimes.com/athletic/6647037/2025/09/20/switzerland-sailgp-day-one-report/
-
-**Potter understands West Ham job scrutiny after fourth 2025-26 league loss**\
-`Hundreds of supporters staged a protest march before Potter's side's defeat against Crystal Palace on Saturday`\
-https://nytimes.com/athletic/6647214/2025/09/20/graham-potter-west-ham-job-premier-league-loss/
 
