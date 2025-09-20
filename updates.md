@@ -1,3 +1,11 @@
+**Braves' Nacho Alvarez Jr. on first 2 homers: One of the 'top three days of my life'**\
+`Alvarez, who went 214 plate appearances over two seasons without a home run, hit two homers in a span of six innings in Atlanta's 6-5 win.`\
+https://nytimes.com/athletic/6647627/2025/09/20/nacho-alvarez-jr-braves-tigers-result/
+
+**What I'm seeing at Blues camp: Holloway's next level? Mailloux in D-zone? Lucic a lock?**\
+`After three days of Blues training camp, we're starting to get some answers to a few of the pertinent questions.`\
+https://nytimes.com/athletic/6641268/2025/09/20/blues-training-camp-holloway-mailloux-lucic/
+
 **Michigan runs wild on Nebraska, extending Huskers' Top 25 losing streak**\
 `If the Huskers couldn’t end their extensive losing streak to ranked opponents on Saturday, then when will they?`\
 https://nytimes.com/athletic/6647493/2025/09/20/michigan-nebraska-bryce-underwood-sherrone-moore/

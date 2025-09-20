@@ -1,3 +1,7 @@
+**Bill Belichick, UNC struggle again against power conference competition**\
+`UNC started the season getting blown out by TCU. Bill Belichick and company then beat Charlotte and Richmond before falling Saturday to UCF.`\
+https://nytimes.com/athletic/6647792/2025/09/20/bill-belichick-unc-ucf-result-analysis/
+
 **Braves' Nacho Alvarez Jr. on first 2 homers: One of the 'top three days of my life'**\
 `Alvarez, who went 214 plate appearances over two seasons without a home run, hit two homers in a span of six innings in Atlanta's 6-5 win.`\
 https://nytimes.com/athletic/6647627/2025/09/20/nacho-alvarez-jr-braves-tigers-result/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/20/business/trump-h1b-visas-fee-employees.html
 **Diane Martel, Inventive Director of Music Videos, Dies at 63**\
 `Over three decades, she worked with superstars such as Jennifer Lopez and Mariah Carey, and faced claims of misogyny with her video for Robin Thicke’s “Blurred Lines.”`\
 https://nytimes.com/2025/09/20/arts/diane-martel-dead.html
-
-**Trump Justice Dept. Closed Investigation Into Tom Homan for Accepting Bag of Cash**\
-`Mr. Homan came under scrutiny after he was said to be recorded last year taking $50,000 in cash from undercover F.B.I. agents.`\
-https://nytimes.com/2025/09/20/us/politics/tom-homan-fbi-trump.html
 
