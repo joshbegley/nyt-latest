@@ -1,3 +1,7 @@
+**How Reese Witherspoon Survived the Terrifying Days of Tabloid Celebrity**\
+`The actor and producer booked her first big role when she was 14 years old. More than 30 years later, she’s an entertainment-industry powerhouse.`\
+https://nytimes.com/2025/09/20/magazine/reese-witherspoon-interview.html
+
 **Why Support for Political Violence Is Not as High as It May Seem**\
 `A tiny percentage of Americans support it in any meaningful sense, despite what some polls may show.`\
 https://nytimes.com/2025/09/20/upshot/polls-political-violence.html
