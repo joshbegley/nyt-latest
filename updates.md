@@ -1,3 +1,7 @@
+**Dowman becomes Arsenal Under-21s' youngest ever PL 2 scorer**\
+`Dowman, 15, scored in Saturday's victory over Wolverhampton Wanderers to surpass the record held by Reiss Nelson`\
+https://nytimes.com/athletic/6646909/2025/09/20/max-dowman-arsenal-under-21-goal-scorer/
+
 **Make-Ahead Egg Wraps for Weekday Superheroes**\
 `Look at you, making these protein-packed, spinach-stuffed egg wraps for quick breakfasts and lunches.`\
 https://nytimes.com/2025/09/20/dining/make-ahead-egg-wraps-for-weekday-superheroes.html
