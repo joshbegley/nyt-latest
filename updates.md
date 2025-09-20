@@ -1,3 +1,11 @@
+**The Briefing: Liverpool 2 Everton 1 - How worried should champions' rivals be after five wins from five?**\
+`The big talking points analysed as Liverpool recorded a hard-earned win over their Merseyside rivals`\
+https://nytimes.com/athletic/6637224/2025/09/20/liverpool-everton-result-analysis/
+
+**Nick Castellanos' big night lifts Phillies, but his potential role in playoffs looks limited**\
+`The Phillies have decided they are better without Castellanos in right field every day. The veteran is adjusting to his new reality. `\
+https://nytimes.com/athletic/6646312/2025/09/20/nick-castellanos-phillies-playoff-role/
+
 **Anna Hall wins first U.S. heptathlon world title since Jackie Joyner-Kersee in 1993**\
 `The American won the 800-meter on Saturday to clinch a long-anticipated gold and end a 33-year U.S. drought in the event at worlds.`\
 https://nytimes.com/athletic/6646705/2025/09/20/anna-hall-heptathlon-world-championships-gold-jackie-joyner-kersee/

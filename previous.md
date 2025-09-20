@@ -1,3 +1,7 @@
+**The Briefing: Liverpool 2 Everton 1 - How worried should champions' rivals be after five wins from five?**\
+`The big talking points analysed as Liverpool recorded a hard-earned win over their Merseyside rivals`\
+https://nytimes.com/athletic/6637224/2025/09/20/liverpool-everton-result-analysis/
+
 **Anna Hall wins first U.S. heptathlon world title since Jackie Joyner-Kersee in 1993**\
 `The American won the 800-meter on Saturday to clinch a long-anticipated gold and end a 33-year U.S. drought in the event at worlds.`\
 https://nytimes.com/athletic/6646705/2025/09/20/anna-hall-heptathlon-world-championships-gold-jackie-joyner-kersee/
@@ -14,6 +18,10 @@ https://nytimes.com/2025/09/20/opinion/gilbert-self-help.html
 `Under the restructured contract, Gundy’s buyout is $15 million if he's fired without cause before Dec. 31, 2027.`\
 https://nytimes.com/athletic/6646681/2025/09/20/mike-gundy-oklahoma-state-buyout/
 
+**Nick Castellanos' big night lifts Phillies, but his potential role in playoffs looks limited**\
+`The Phillies have decided they are better without Castellanos in right field every day. The veteran is adjusting to his new reality. `\
+https://nytimes.com/athletic/6646312/2025/09/20/nick-castellanos-phillies-playoff-role/
+
 **MLB Playoff watch: Mariners grab West lead, Dodgers lock up spot; bracket, clinching scenarios**\
 `The Dodgers clinched a postseason berth and the Blue Jays and Tigers had nights to forget.`\
 https://nytimes.com/athletic/6645715/2025/09/20/mlb-playoff-watch-mariners-lead-dodgers-clinch/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6646334/2025/09/20/sf-giants-clayton-kershaw-shohei
 **What we're seeing at Rangers camp: Notable tandems, budding chemistry and more**\
 `Plus Braden Schneider is easing back after surgery, Taylor Raddysh is settling in with his new club and more notes.`\
 https://nytimes.com/athletic/6641129/2025/09/20/rangers-training-camp-miller-zibanejad/
-
-**Meet Peter Aubry, the Oilers' new goalie coach. Here's why he took the job**\
-`Aubry believes he can help Stuart Skinner and Calvin Pickard for the good of the Cup-starved Oilers.`\
-https://nytimes.com/athletic/6645450/2025/09/20/oilers-goalies-skinner-pickard-peter-aubry/
-
-**What Wall Street Sees in the Data Center Boom**\
-`Data center capacity has become a barometer for both the health of the tech market and the risk of an A.I. bubble.`\
-https://nytimes.com/2025/09/20/business/dealbook/data-centers-ai.html
 
