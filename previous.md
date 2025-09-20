@@ -1,4 +1,4 @@
-**West Ham's problems, explained by fans (and a former player)**\
+**West Ham's problems, explained by fans (and a former player): 'We're heading towards the Championship'**\
 `Fans are planning protests against the owners on Saturday. This is what they view as the problems`\
 https://nytimes.com/athletic/6640118/2025/09/20/west-ham-problems-stadium-potter-explained/
 

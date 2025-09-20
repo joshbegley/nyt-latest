@@ -14,7 +14,7 @@ https://nytimes.com/athletic/6643882/2025/09/20/arsenal-board-richard-garlick-be
 `Huijsen was sent off in Madrid's win against Real Sociedad. It provided another flashpoint in the club's long-running battle with referees`\
 https://nytimes.com/athletic/6644377/2025/09/20/real-madrid-dean-huijsen-red-card-explained/
 
-**Why skeletal tracking is football analytics' new chapter**\
+**Skeletal tracking is football analytics' new chapter - this is why**\
 `Tracking footballers' biomechanics generates millions of data points, and can enhance recruitment, player analysis and officiating `\
 https://nytimes.com/athletic/6634217/2025/09/20/skeletal-tracking-football-analysis-premier-league/
 
