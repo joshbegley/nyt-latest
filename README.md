@@ -15,7 +15,7 @@ https://nytimes.com/2025/09/20/opinion/maga-trump-debate-kirk.html
 https://nytimes.com/athletic/6646937/2025/09/20/jameson-williams-touchdown-bears/
 
 **The Briefing: Brighton 2 Tottenham 2 – Simons introduction helps turn tide on south coast**\
-`Spurs came back from 2-0 down to claim a point at Brighton and Hove Albion, thanks to a vastly improved second half performance`\
+`Spurs came back from 2-0 down to claim a point at Brighton & Hove Albion, thanks to a vastly improved second-half performance`\
 https://nytimes.com/athletic/6637225/2025/09/20/brighton-2-tottenham-2-xavi-simons/
 
 **F1 qualifying went sideways in Azerbaijan — and the underdogs came out on top**\
