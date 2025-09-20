@@ -1,3 +1,11 @@
+**Braves' Nacho Alvarez Jr. on first 2 homers: One of the 'top three days of my life'**\
+`Alvarez, who went 214 plate appearances over two seasons without a home run, hit two homers in a span of six innings in Atlanta's 6-5 win.`\
+https://nytimes.com/athletic/6647627/2025/09/20/nacho-alvarez-jr-braves-tigers-result/
+
+**What I'm seeing at Blues camp: Holloway's next level? Mailloux in D-zone? Lucic a lock?**\
+`After three days of Blues training camp, we're starting to get some answers to a few of the pertinent questions.`\
+https://nytimes.com/athletic/6641268/2025/09/20/blues-training-camp-holloway-mailloux-lucic/
+
 **Michigan runs wild on Nebraska, extending Huskers' Top 25 losing streak**\
 `If the Huskers couldn’t end their extensive losing streak to ranked opponents on Saturday, then when will they?`\
 https://nytimes.com/athletic/6647493/2025/09/20/michigan-nebraska-bryce-underwood-sherrone-moore/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/20/arts/diane-martel-dead.html
 **Trump Justice Dept. Closed Investigation Into Tom Homan for Accepting Bag of Cash**\
 `Mr. Homan came under scrutiny after he was said to be recorded last year taking $50,000 in cash from undercover F.B.I. agents.`\
 https://nytimes.com/2025/09/20/us/politics/tom-homan-fbi-trump.html
-
-**How to watch Nationals at Mets: Time, TV, streaming for September 21**\
-`Find out how to watch the Washington Nationals play the New York Mets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6647645/2025/09/20/nationals-vs-mets-stream-how-to-watch-sept-21/
-
-**Gimme a Break!**\
-`Adrianne Baik makes a crispy, delicious Sunday puzzle.`\
-https://nytimes.com/2025/09/20/crosswords/daily-puzzle-2025-09-21.html
 
