@@ -1,3 +1,11 @@
+**Palace's Pino to have knee injury scan after win over West Ham**\
+`The 22-year-old was brought off at half-time after a collision with Callum Wilson in the first half of Saturday's game`\
+https://nytimes.com/athletic/6647174/2025/09/20/yeremy-pino-crystal-palace-knee-injury/
+
+**What I saw at Sabres scrimmage: Jiri Kulich, Josh Doan building chemistry, Alex Tuch returns**\
+`It was fitting that Kulich scored the first goal of the Sabres’ intrasquad scrimmage on Saturday morning.`\
+https://nytimes.com/athletic/6647003/2025/09/20/what-i-saw-sabres-scrimmage-jiri-kulich-josh-doan-alex-tuch/
+
 **What I saw at Sabres scrimmage: Jiri Kulich, Josh Doan building chemistry, Alex Tuch returns**\
 `It was fitting that it was Kulich who scored the first goal of the Sabres’ intrasquad scrimmage on Saturday morning.`\
 https://nytimes.com/athletic/6647003/2025/09/20/what-i-saw-sabres-scrimmage-jiri-kulich-josh-doan-alex-tuch/

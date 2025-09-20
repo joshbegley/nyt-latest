@@ -1,5 +1,9 @@
+**Palace's Pino to have knee injury scan after win over West Ham**\
+`The 22-year-old was brought off at half-time after a collision with Callum Wilson in the first half of Saturday's game`\
+https://nytimes.com/athletic/6647174/2025/09/20/yeremy-pino-crystal-palace-knee-injury/
+
 **What I saw at Sabres scrimmage: Jiri Kulich, Josh Doan building chemistry, Alex Tuch returns**\
-`It was fitting that it was Kulich who scored the first goal of the Sabres’ intrasquad scrimmage on Saturday morning.`\
+`It was fitting that Kulich scored the first goal of the Sabres’ intrasquad scrimmage on Saturday morning.`\
 https://nytimes.com/athletic/6647003/2025/09/20/what-i-saw-sabres-scrimmage-jiri-kulich-josh-doan-alex-tuch/
 
 **Top Democratic Leaders Ask Trump for Meeting to Avert a Shutdown**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6646937/2025/09/20/jameson-williams-touchdown-bears
 **The Briefing: Brighton 2 Tottenham 2 – Simons introduction helps turn tide on south coast**\
 `Spurs came back from 2-0 down to claim a point at Brighton & Hove Albion, thanks to a vastly improved second-half performance`\
 https://nytimes.com/athletic/6637225/2025/09/20/brighton-2-tottenham-2-xavi-simons/
-
-**F1 qualifying went sideways in Azerbaijan, and the underdogs came out on top**\
-`Max Verstappen is inevitable. But how we got to another Red Bull pole on Saturday? That was something to behold`\
-https://nytimes.com/athletic/6646922/2025/09/20/f1-qualifying-azerbaijan-crashes-pole-verstappen/
 
