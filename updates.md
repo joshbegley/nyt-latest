@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6647297/2025/09/20/wild-training-camp-jack-johnson-brett-leason/
 
+**Can Jack Johnson and Brett Leason go from PTOs to Wild contracts?**\
+`Minnesota brought in the two veterans on pro tryout contracts with the knowledge that they would have a real chance to earn roster spots.
+`\
+https://nytimes.com/athletic/6647297/2025/09/20/wild-training-camp-jack-johnson-brett-leason/
+
 **Broncos place LB Dre Greenlaw on injured reserve with quad injury: Source**\
 `With Greenlaw unavailable, the Broncos have started veteran Justin Strnad next to Alex Singleton at inside linebacker to begin the season.`\
 https://nytimes.com/athletic/6647395/2025/09/20/broncos-dre-greenlaw-injured-reserve-quad/
