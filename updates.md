@@ -1,3 +1,7 @@
+**Man Utd 2 Chelsea 1 - Amorim's side hold on to win after red cards for Sanchez and Casemiro**\
+`Our writers break down the key talking points as Manchester United beat Chelsea on a rain-soaked evening at Old Trafford.`\
+https://nytimes.com/athletic/6637227/2025/09/20/manchester-united-chelsea-premier-league-result/
+
 **White House Outlines a TikTok Deal With a U.S. Board**\
 `A potential deal to reduce TikTok’s ties to China would give the app a new board with six American directors out of seven, the White House press secretary said.`\
 https://nytimes.com/2025/09/20/technology/white-house-tiktok-deal.html
