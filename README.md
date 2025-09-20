@@ -1,3 +1,7 @@
+**Examining Mike Gundy’s contract buyout following Oklahoma State’s loss to Tulsa**\
+`Under the restructured contract, Gundy’s buyout is $15 million if he's fired without cause before Dec. 31, 2027.`\
+https://nytimes.com/athletic/6646681/2025/09/20/mike-gundy-oklahoma-state-buyout/
+
 **MLB Playoff watch: Mariners grab West lead, Dodgers lock up spot; bracket, clinching scenarios**\
 `The Dodgers clinched a postseason berth and the Blue Jays and Tigers had nights to forget.`\
 https://nytimes.com/athletic/6645715/2025/09/20/mlb-playoff-watch-mariners-lead-dodgers-clinch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6646312/2025/09/20/nick-castellanos-phillies-playof
 **Liam Ohgren, Vladimir Tarasenko, Joel Eriksson Ek emerging as a line to watch in Wild camp**\
 `Tarasenko has four goals and two assists in two scrimmages, both wins for his group. Ohgren scored the winner Friday.`\
 https://nytimes.com/athletic/6645249/2025/09/20/ohgren-eriksson-ek-tarasenko-wild-line/
-
-**How Packers' Micah Parsons, Browns' Myles Garrett forged an elite edge rusher bond**\
-`Perhaps the two best defensive players of this generation will share the field in Cleveland on Sunday.`\
-https://nytimes.com/athletic/6645470/2025/09/20/micah-parsons-myles-garrett-packers-browns/
 
