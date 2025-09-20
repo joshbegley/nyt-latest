@@ -1,3 +1,19 @@
+**4 Men Are Sentenced in Warrant Scam That Was Run From Prison**\
+`They used a drone to drop cellphones into a Georgia prison yard, where an inmate coordinated a scheme targeting women who were medical workers in multiple states, prosecutors said.`\
+https://nytimes.com/2025/09/20/us/warrant-scam-prison.html
+
+**With Ouster, Justice Dept. Independence Teeters as Trump Exerts Control**\
+`The forcing out of the prosecutor overseeing the cases of two Trump foes magnified questions about the politicization of U.S. attorneys. And it raised one more: Who might be next?`\
+https://nytimes.com/2025/09/20/us/politics/trump-justice-department-us-attorneys.html
+
+**Former Liverpool women head coach Matt Beard dies aged 47**\
+`Beard twice won the WSL with the Merseyside club, in 2013 and 2014`\
+https://nytimes.com/athletic/6647471/2025/09/20/matt-beard-dies-wsl-liverpool-burnley/
+
+**Can Jack Johnson and Brett Leason go from PTOs to Wild contracts?**\
+`Minnesota brought in the two veterans on pro tryout contracts with the knowledge that they would have a real chance to earn roster spots.`\
+https://nytimes.com/athletic/6647297/2025/09/20/wild-training-camp-jack-johnson-brett-leason/
+
 **Can Jack Johnson and Brett Leason go from PTOs to Wild contracts?**\
 `Minnesota brought in the two veterans on pro tryout contracts with the knowledge that they would have a real chance to earn roster spots.
 `\
