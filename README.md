@@ -1,3 +1,7 @@
+**What I saw at Sabres scrimmage: Jiri Kulich, Josh Doan building chemistry, Alex Tuch returns**\
+`It was fitting that it was Kulich who scored the first goal of the Sabres’ intrasquad scrimmage on Saturday morning.`\
+https://nytimes.com/athletic/6647003/2025/09/20/what-i-saw-sabres-scrimmage-jiri-kulich-josh-doan-alex-tuch/
+
 **Top Democratic Leaders Ask Trump for Meeting to Avert a Shutdown**\
 `After a Republican plan to keep funding flowing foundered in the Senate, Representative Hakeem Jeffries and Senator Chuck Schumer accused the president of standing in the way of a solution.`\
 https://nytimes.com/2025/09/20/us/politics/jeffries-schumer-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6637225/2025/09/20/brighton-2-tottenham-2-xavi-simo
 **F1 qualifying went sideways in Azerbaijan, and the underdogs came out on top**\
 `Max Verstappen is inevitable. But how we got to another Red Bull pole on Saturday? That was something to behold`\
 https://nytimes.com/athletic/6646922/2025/09/20/f1-qualifying-azerbaijan-crashes-pole-verstappen/
-
-**The Calm Before the Beers**\
-`Until the taps open at Oktoberfest, it’s a nonalcoholic mix of card games, soft drinks and waiting.`\
-https://nytimes.com/2025/09/20/world/europe/germany-munich-oktoberfest.html
 
