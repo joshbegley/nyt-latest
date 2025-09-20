@@ -1,3 +1,19 @@
+**What happened to Clemson's defense? Syracuse rolls up 500-plus yards in Death Valley**\
+`Prior to Saturday, the Tigers hadn't lost a home game by more than 12 points to an unranked team since 2001 against North Carolina.`\
+https://nytimes.com/athletic/6647502/2025/09/20/clemson-dabo-swinney-syracuse-defense/
+
+**Trump’s $100,000 Visa Fee Spurs Confusion and Chaos**\
+`The White House sought to clarify the proclamation on Saturday, but many companies remained cautious. “We are still flying in somewhat foggy conditions,” one attorney said.`\
+https://nytimes.com/2025/09/20/business/trump-h1b-visas-fee-employees.html
+
+**College Football Playoff 2025 projections: The most likely bracket with Week 4 underway**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/09/20/college-football-playoff-bracket-projections-odds/
+
+**Astros sit Christian Walker in pivotal game, deepening questions about future**\
+`The first season of a three-year, $60 million deal has mostly been a struggle for the Astros' first baseman.`\
+https://nytimes.com/athletic/6647603/2025/09/20/astros-sit-christian-walker/
+
 **Diane Martel, Inventive Director of Music Videos, Dies at 63**\
 `Over three decades, she worked with superstars such as Jennifer Lopez and Mariah Carey, and faced claims of misogyny with her video for Robin Thicke’s “Blurred Lines.”`\
 https://nytimes.com/2025/09/20/arts/diane-martel-dead.html

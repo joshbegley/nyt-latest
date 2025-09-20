@@ -1,3 +1,7 @@
+**In another brutal Tigers loss, the bullpen bears the blame**\
+`The Tigers blew a lead in the ninth to seal their eighth defeat in nine games as the Cleveland Guardians close in.`\
+https://nytimes.com/athletic/6647594/2025/09/20/tigers-lose-braves-bullpen-blame/
+
 **What happened to Clemson's defense? Syracuse rolls up 500-plus yards in Death Valley**\
 `Prior to Saturday, the Tigers hadn't lost a home game by more than 12 points to an unranked team since 2001 against North Carolina.`\
 https://nytimes.com/athletic/6647502/2025/09/20/clemson-dabo-swinney-syracuse-defense/
@@ -11,7 +15,7 @@ https://nytimes.com/2025/09/20/business/trump-h1b-visas-fee-employees.html
 https://nytimes.com/2025/09/20/arts/diane-martel-dead.html
 
 **Trump Justice Dept. Closed Investigation Into Tom Homan for Accepting Bag of Cash**\
-`Mr. Homan came under scrutiny after he was recorded last year taking $50,000 in cash from undercover F.B.I. agents.`\
+`Mr. Homan came under scrutiny after he was said to be recorded last year taking $50,000 in cash from undercover F.B.I. agents.`\
 https://nytimes.com/2025/09/20/us/politics/tom-homan-fbi-trump.html
 
 **How to watch Nationals at Mets: Time, TV, streaming for September 21**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6647603/2025/09/20/astros-sit-christian-walker/
 **California Bars ICE Agents From Wearing Masks in the State**\
 `Gov. Gavin Newsom signed a bill to prevent federal agents from concealing their identities with masks. The law is expected to face a legal challenge.`\
 https://nytimes.com/2025/09/20/us/california-ice-agents-masks-law.html
-
-**What I'm seeing at Flyers camp: York standing out to Tocchet, surprise prospect impresses**\
-`Alexis Gendron, a seventh-round pick in 2022, has been the most pleasant surprise so far.`\
-https://nytimes.com/athletic/6647432/2025/09/20/flyers-training-camp-cam-york-rick-tocchet/
 
