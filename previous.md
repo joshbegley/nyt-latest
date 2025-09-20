@@ -1,40 +1,40 @@
-**How Reese Witherspoon Survived the Terrifying Days of Tabloid Celebrity**\
-`The actor and producer booked her first big role when she was 14 years old. More than 30 years later, she’s an entertainment-industry powerhouse.`\
-https://nytimes.com/2025/09/20/magazine/reese-witherspoon-interview.html
+**Which Bruins are on the bubble? 8 players in camp dogfights**\
+`There are jobs up for grabs at Bruins camp. Here are the players eager to show they can fill them.`\
+https://nytimes.com/athletic/6645363/2025/09/20/which-bruins-are-on-the-bubble-8-players-in-camp-dogfights/
 
-**Why Support for Political Violence Is Not as High as It May Seem**\
-`A tiny percentage of Americans support it in any meaningful sense, despite what some polls may show.`\
-https://nytimes.com/2025/09/20/upshot/polls-political-violence.html
+**Standing Date**\
+`A weekly dinner party sounds so enticing, but establishing a ritual can be a challenge.`\
+https://nytimes.com/2025/09/20/briefing/standing-date.html
 
-**Seeing Through the Reality of Meta’s Smart Glasses**\
-`Mark Zuckerberg’s glitch-filled unveiling of computerized glasses revealed a company that may struggle to deliver on its promise for the future of computing.`\
-https://nytimes.com/2025/09/20/technology/personaltech/meta-smart-glasses-mark-zuckerberg.html
+**How to watch Giants at Dodgers: Time, TV, streaming for September 20**\
+`Find out how to watch the San Francisco Giants play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6646530/2025/09/20/giants-vs-dodgers-stream-how-to-watch-sept-20/
 
-**What to Know About Charlie Kirk’s Memorial Service in Arizona**\
-`The conservative activist will be honored in a public program on Sunday, with President Trump and several top administration officials expected to speak.`\
-https://nytimes.com/2025/09/20/us/charlie-kirk-funeral-memorial-time-guests.html
+**Fascinating sports business recommended reads for your weekend**\
+`A dozen fantastic sports-business reads from the past week, featuring some of the best of The Athletic's reporting and commentary.`\
+https://nytimes.com/athletic/6644439/2025/09/20/great-reads-sports-business-september-20/
 
-**The ‘Manosphere’ Reacts to the Jimmy Kimmel News**\
-`They didn’t like what the host said, but weren’t in agreement on ABC’s handling of the matter.`\
-https://nytimes.com/2025/09/20/style/the-manosphere-reacts-to-the-jimmy-kimmel-news.html
+**Week 3 NFL roundtable: QB injuries, Rams-Eagles, Chiefs meet Giants in winless clash**\
+`While plenty of backup QBs will be busy Sunday, we'll see Rams-Eagles and Lions-Ravens to round out Week 3. Our writers discuss.`\
+https://nytimes.com/athletic/6645633/2025/09/20/week-3-nfl-roundtable-qb-injuries-rams-eagles-chiefs-giants/
 
-**Inside The Times’s Reporting and Judgment Calls on Charlie Kirk’s Assassination**\
-`We gathered some of the journalists closely involved to discuss how we approached coverage and to answer readers’ questions about it.`\
-https://nytimes.com/2025/09/20/us/charlie-kirk-shooting-news-coverage.html
+**Vikings-Bengals predictions: What we're watching in battle of the backups**\
+`For once, the backup QBs are the focus. But could RB Jordan Mason also have a huge day against the Bengals?`\
+https://nytimes.com/athletic/6645393/2025/09/20/vikings-bengals-predictions-backup-quarterbacks/
 
-**What to Know About Jimmy Kimmel’s Show Being Suspended**\
-`Tension grew at ABC after Mr. Kimmel’s remarks about the Charlie Kirk killing angered conservatives.`\
-https://nytimes.com/2025/09/20/business/jimmy-kimmel-show-abc-kirk-fcc.html
+**Elly De La Cruz hit his first homer since July in Reds' win over Cubs**\
+`"I hope it took some weight off of his shoulders because he's the heart of this team," Spencer Steer said.`\
+https://nytimes.com/athletic/6645992/2025/09/20/elly-de-la-cruz-first-homer-since-july-reds-cubs/
 
-**Here Comes the Sun Day**\
-`Fifty-five years after the first Earth Day, climate activists are organizing a nationwide celebration of solar power.`\
-https://nytimes.com/2025/09/20/climate/solar-power-sun-day.html
+**Hall of Fame NFL coach Bill Cowher shares 3 rules for great leadership**\
+`When you think of the NFL coaches who personified leadership in the last 30 years, longtime Steelers coach Bill Cowher easily comes to mind.`\
+https://nytimes.com/athletic/6644391/2025/09/20/bill-cowher-steelers-leadership-rules-hall-of-fame/
 
-**Being a High-Profile Comedian Right Now Is No Joke**\
-`With the suspension of Jimmy Kimmel on the heels of the cancellation of Stephen Colbert’s show, the landscape has unquestionably shifted for comics and hosts.`\
-https://nytimes.com/2025/09/20/arts/television/jimmy-kimmel-fallon-censorship.html
+**Twins lose Pablo López to tight forearm, shut down Matt Wallner for the season**\
+`López is scheduled to undergo further testing, and Wallner's up-and-down season ends with an injury and lots of future questions.`\
+https://nytimes.com/athletic/6645446/2025/09/20/twins-lose-pablo-lopez-shut-down-matt-wallner/
 
-**Inspired by Conservative Tactics, an Obscure Group Seeks Sway for Democrats**\
-`A liberal group that was spun off from a network funded by George Soros is looking to build off 2024 victories in Florida to help elect candidates to school boards and other local offices.`\
-https://nytimes.com/2025/09/20/us/politics/pipeline-fund-democrats-local-elections.html
+**Kirill Kaprizov contract over/under? Superstars on the move? Shocking trades? Ask CJ**\
+`This week's mailbag questions saw a heavy focus on what comes next for a variety of star players whose contracts are up in the air.`\
+https://nytimes.com/athletic/6645213/2025/09/20/kaprizov-mcdavid-cba-trades-nhl/
 
