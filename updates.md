@@ -1,3 +1,7 @@
+**Examining Mike Gundy’s contract buyout following Oklahoma State’s loss to Tulsa**\
+`Under the restructured contract, Gundy’s buyout is $15 million if he's fired without cause before Dec. 31, 2027.`\
+https://nytimes.com/athletic/6646681/2025/09/20/mike-gundy-oklahoma-state-buyout/
+
 **Beckham, Neville admit Salford were in 'serious trouble' before new buyout**\
 `A delegation — including Beckham — will attend their first match since the buyout when Salford host Swindon Town on Saturday.`\
 https://nytimes.com/athletic/6645292/2025/09/20/david-beckham-gary-neville-salford-city-takeover/
