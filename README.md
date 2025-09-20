@@ -1,3 +1,11 @@
+**Justice Alito, in Rome, Says Religious Liberty Is Under Siege**\
+`Justice Samuel A. Alito Jr., a conservative Catholic, has visited Rome for decades, often teaching or participating in academic conferences.`\
+https://nytimes.com/2025/09/20/world/europe/justice-alito-rome-religious-liberty.html
+
+**Texas Tech is different now, thanks to its cash-fueled, transfer-heavy (and very good) defense**\
+`The questions will continue. Is this bad for college football? The Red Raiders won’t hear them. They’re too busy celebrating. `\
+https://nytimes.com/athletic/6647386/2025/09/20/texas-tech-utah-defense-nil-big-12/
+
 **Aziz Olajuwon, son of NBA Hall of Famer Hakeem, commits to Stanford**\
 `The Houston native chose Stanford over Vanderbilt, Houston and Cincinnati, becoming the 10th-highest-rated recruit in program history.`\
 https://nytimes.com/athletic/6646241/2025/09/20/hakeem-olajuwon-son-aziz-stanford-basketball/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6647037/2025/09/20/switzerland-sailgp-day-one-repor
 **Potter understands West Ham job scrutiny after fourth 2025-26 league loss**\
 `Hundreds of supporters staged a protest march before Potter's side's defeat against Crystal Palace on Saturday`\
 https://nytimes.com/athletic/6647214/2025/09/20/graham-potter-west-ham-job-premier-league-loss/
-
-**Gary Busey Sentenced to Two Years’ Probation for Sex Offense**\
-`The 81-year-old actor had admitted touching a woman’s buttocks over her clothing at a horror film convention in New Jersey in 2022.`\
-https://nytimes.com/2025/09/20/nyregion/gary-busey-sentenced-to-two-years-probation-for-sex-offense.html
-
-**Palace's Pino to have knee injury scan after win over West Ham**\
-`The 22-year-old was brought off at half-time after a collision with Callum Wilson in the first half of Saturday's game`\
-https://nytimes.com/athletic/6647174/2025/09/20/yeremy-pino-crystal-palace-knee-injury/
 
