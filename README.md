@@ -1,4 +1,8 @@
-**Chelsea's Palmer 'not 100%' with injury before Man Utd tie, Maresca says**\
+**Aziz Olajuwon, son of NBA Hall of Famer Hakeem, commits to Stanford**\
+`The Houston native chose Stanford over Vanderbilt, Houston and Cincinnati, becoming the 10th-highest-rated recruit in program history.`\
+https://nytimes.com/athletic/6646241/2025/09/20/hakeem-olajuwon-son-aziz-stanford-basketball/
+
+**Maresca: Palmer 'not 100%' with groin injury before Man Utd defeat**\
 `The 23-year-old has missed two games this season with an injury that he has not fully recovered from`\
 https://nytimes.com/athletic/6576736/2025/09/20/cole-palmer-chelsea-injury-manchester-united/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/20/nyregion/gary-busey-sentenced-to-two-years-probat
 **Palace's Pino to have knee injury scan after win over West Ham**\
 `The 22-year-old was brought off at half-time after a collision with Callum Wilson in the first half of Saturday's game`\
 https://nytimes.com/athletic/6647174/2025/09/20/yeremy-pino-crystal-palace-knee-injury/
-
-**What I saw at Sabres scrimmage: Jiri Kulich, Josh Doan building chemistry, Alex Tuch returns**\
-`It was fitting that Kulich scored the first goal of the Sabres’ intrasquad scrimmage on Saturday morning.`\
-https://nytimes.com/athletic/6647003/2025/09/20/what-i-saw-sabres-scrimmage-jiri-kulich-josh-doan-alex-tuch/
 

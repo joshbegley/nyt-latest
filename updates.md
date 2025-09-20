@@ -1,4 +1,8 @@
 **Chelsea's Palmer 'not 100%' with injury before Man Utd tie, Maresca says**\
+`The 23-year-old has missed two games this season with an injury that he has not fully recovered from`\
+https://nytimes.com/athletic/6576736/2025/09/20/cole-palmer-chelsea-injury-manchester-united/
+
+**Chelsea's Palmer 'not 100%' with injury before Man Utd tie, Maresca says**\
 `The 23-year-old has missed two games this season with a groin injury that he has not fully recovered from`\
 https://nytimes.com/athletic/6576736/2025/09/20/cole-palmer-chelsea-injury-manchester-united/
 
