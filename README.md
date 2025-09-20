@@ -1,3 +1,7 @@
+**How to watch Phillies at Diamondbacks: Time, TV, streaming for September 20**\
+`Find out how to watch the Philadelphia Phillies play the Arizona Diamondbacks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6646396/2025/09/20/phillies-vs-diamondbacks-stream-how-to-watch-sept-20/
+
 **Five-Alarm Fire on Brooklyn Waterfront Devastates Artists’ Warehouse**\
 `A row of converted 19th-century buildings filled with artists in the 1990s and transformed Red Hook. Now the work of more than 500 artists may be lost.`\
 https://nytimes.com/2025/09/20/nyregion/red-hook-warehouse-fire.html
@@ -24,17 +28,13 @@ https://nytimes.com/2025/09/20/crosswords/spelling-bee-forum.html
 
 **How to watch Nationals at Mets: Time, TV, streaming for September 20**\
 `Find out how to watch the Washington Nationals play the New York Mets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6646279/2025/09/20/nationals-vs-mets-stream-how-to-watch-sept-20/
+https://nytimes.com/athletic/6646279/2025/09/20/how-to-watch-nationals-at-mets-tv-channel-and-streaming-options-for-september-20/
 
 **How to watch Mariners at Astros: Time, TV, streaming for September 20**\
 `Find out how to watch the Seattle Mariners play the Houston Astros, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6646277/2025/09/20/mariners-vs-astros-stream-how-to-watch-sept-20/
+https://nytimes.com/athletic/6646277/2025/09/20/how-to-watch-mariners-at-astros-tv-channel-and-streaming-options-for-september-20/
 
 **How to watch Angels at Rockies: Time, TV, streaming for September 20**\
 `Find out how to watch the Los Angeles Angels play the Colorado Rockies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6646273/2025/09/20/angels-vs-rockies-stream-how-to-watch-sept-20/
-
-**How to watch Blue Jays at Royals: Time, TV, streaming for September 20**\
-`Find out how to watch the Toronto Blue Jays play the Kansas City Royals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6646274/2025/09/20/blue-jays-vs-royals-stream-how-to-watch-sept-20/
+https://nytimes.com/athletic/6646273/2025/09/20/how-to-watch-angels-at-rockies-tv-channel-and-streaming-options-for-september-20/
 
