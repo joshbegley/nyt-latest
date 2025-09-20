@@ -1,3 +1,19 @@
+**Trump Justice Dept. Closed Investigation Into Tom Homan for Accepting Bag of Cash**\
+`Mr. Homan came under scrutiny after he was recorded last year taking $50,000 in cash from undercover F.B.I. agents.`\
+https://nytimes.com/2025/09/20/us/politics/tom-homan-fbi-trump.html
+
+**How to watch Nationals at Mets: Time, TV, streaming for September 21**\
+`Find out how to watch the Washington Nationals play the New York Mets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6647645/2025/09/20/nationals-vs-mets-stream-how-to-watch-sept-21/
+
+**Gimme a Break!**\
+`Adrianne Baik makes a crispy, delicious Sunday puzzle.`\
+https://nytimes.com/2025/09/20/crosswords/daily-puzzle-2025-09-21.html
+
+**College Football Playoff 2025 projections: The most likely bracket entering Week 3**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/09/20/college-football-playoff-bracket-projections-odds/
+
 **Astros sit Christian Walker in pivotal game, deepening questions about future**\
 `The first season of a three-year, $60 million deal has mostly been a struggle for the Astros' first baseman`\
 https://nytimes.com/athletic/6647603/2025/09/20/astros-sit-christian-walker/
