@@ -1,3 +1,19 @@
+**Chiefs rule out receiver Xavier Worthy for Sunday night matchup vs. Giants**\
+`Worthy, who was a limited participant in three practices this week while wearing a brace on his shoulder, will miss a second straight game.`\
+https://nytimes.com/athletic/6646971/2025/09/20/chiefs-xavier-worthy-out-giants/
+
+**Secular Confessions**\
+`We’re creating a space for you to tell us about your wrongdoings.`\
+https://nytimes.com/2025/09/20/briefing/secular-confessions.html
+
+**The MAGA Movement Is Not a Debating Society**\
+`The Trump administration and its adherents want dominance and obedience.`\
+https://nytimes.com/2025/09/20/opinion/maga-trump-debate-kirk.html
+
+**The Briefing: Brighton 2 Tottenham 2 – Simons introduction helps turn tide on south coast**\
+`Spurs came back from 2-0 down to claim a point at Brighton & Hove Albion, thanks to a vastly improved second-half performance`\
+https://nytimes.com/athletic/6637225/2025/09/20/brighton-2-tottenham-2-xavi-simons/
+
 **WATCH: How the Lions fooled the Bears on this wide-open 44-Yard TD**\
 `Watch how the Lions methodically set up an untouched 44-Yard TD.`\
 https://nytimes.com/athletic/6646937/2025/09/20/jameson-williams-touchdown-bears/
