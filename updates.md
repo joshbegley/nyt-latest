@@ -1,3 +1,7 @@
+**What I saw at Sabres scrimmage: Jiri Kulich, Josh Doan building chemistry, Alex Tuch returns**\
+`It was fitting that it was Kulich who scored the first goal of the Sabres’ intrasquad scrimmage on Saturday morning.`\
+https://nytimes.com/athletic/6647003/2025/09/20/what-i-saw-sabres-scrimmage-jiri-kulich-josh-doan-alex-tuch/
+
 **Top Democratic Leaders Ask Trump for Meeting to Avert a Shutdown**\
 `After a Republican plan to keep funding flowing foundered in the Senate, Representative Hakeem Jeffries and Senator Chuck Schumer accused the president of standing in the way of a solution.`\
 https://nytimes.com/2025/09/20/us/politics/jeffries-schumer-trump.html
