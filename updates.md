@@ -1,3 +1,7 @@
+**Astros sit Christian Walker in pivotal game, deepening questions about future**\
+`The first season of a three-year, $60 million deal has mostly been a struggle for the Astros' first baseman`\
+https://nytimes.com/athletic/6647603/2025/09/20/astros-sit-christian-walker/
+
 **California Bars ICE Agents From Wearing Masks in the State**\
 `Gov. Gavin Newsom signed a bill to prevent federal agents from concealing their identities with masks. The law is expected to face a legal challenge.`\
 https://nytimes.com/2025/09/20/us/california-ice-agents-masks-law.html

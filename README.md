@@ -1,3 +1,19 @@
+**Trump Justice Dept. Closed Investigation Into Tom Homan for Accepting Bag of Cash**\
+`Mr. Homan came under scrutiny after he was recorded last year taking $50,000 in cash from undercover F.B.I. agents.`\
+https://nytimes.com/2025/09/20/us/politics/tom-homan-fbi-trump.html
+
+**How to watch Nationals at Mets: Time, TV, streaming for September 21**\
+`Find out how to watch the Washington Nationals play the New York Mets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6647645/2025/09/20/nationals-vs-mets-stream-how-to-watch-sept-21/
+
+**Gimme a Break!**\
+`Adrianne Baik makes a crispy, delicious Sunday puzzle.`\
+https://nytimes.com/2025/09/20/crosswords/daily-puzzle-2025-09-21.html
+
+**College Football Playoff 2025 projections: The most likely bracket entering Week 3**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/09/20/college-football-playoff-bracket-projections-odds/
+
 **Astros sit Christian Walker in pivotal game, deepening questions about future**\
 `The first season of a three-year, $60 million deal has mostly been a struggle for the Astros' first baseman`\
 https://nytimes.com/athletic/6647603/2025/09/20/astros-sit-christian-walker/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/09/20/us/warrant-scam-prison.html
 **With Ouster, Justice Dept. Independence Teeters as Trump Exerts Control**\
 `The forcing out of the prosecutor overseeing the cases of two Trump foes magnified questions about the politicization of U.S. attorneys. And it raised one more: Who might be next?`\
 https://nytimes.com/2025/09/20/us/politics/trump-justice-department-us-attorneys.html
-
-**Former Liverpool women head coach Matt Beard dies aged 47**\
-`Beard twice won the WSL with the Merseyside club, in 2013 and 2014`\
-https://nytimes.com/athletic/6647471/2025/09/20/matt-beard-dies-wsl-liverpool-burnley/
-
-**Can Jack Johnson and Brett Leason go from PTOs to Wild contracts?**\
-`Minnesota brought in the two veterans on pro tryout contracts with the knowledge that they would have a real chance to earn roster spots.`\
-https://nytimes.com/athletic/6647297/2025/09/20/wild-training-camp-jack-johnson-brett-leason/
-
-**Broncos place LB Dre Greenlaw on injured reserve with quad injury: Source**\
-`With Greenlaw unavailable, the Broncos have started veteran Justin Strnad next to Alex Singleton at inside linebacker to begin the season.`\
-https://nytimes.com/athletic/6647395/2025/09/20/broncos-dre-greenlaw-injured-reserve-quad/
-
-**Memphis stuns Arkansas; wild ending leaves Tigers in prime Playoff position**\
-`The loss to Memphis, in the teams' first meeting since 1998, drops Pittman to 32-33 in his sixth season as Arkansas' head coach.`\
-https://nytimes.com/athletic/6647457/2025/09/20/tigers-razorbacks-cfb/
 
