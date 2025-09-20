@@ -1,3 +1,7 @@
+**Skeletal tracking is football analytics' new chapter - this is why**\
+`Tracking footballers' biomechanics generates millions of data points, and can enhance recruitment, player analysis and officiating `\
+https://nytimes.com/athletic/6634217/2025/09/20/skeletal-tracking-football-analysis-premier-league/
+
 **West Ham's problems, explained by fans (and a former player): 'We're heading towards the Championship'**\
 `Fans are planning protests against the owners on Saturday. This is what they view as the problems`\
 https://nytimes.com/athletic/6640118/2025/09/20/west-ham-problems-stadium-potter-explained/
