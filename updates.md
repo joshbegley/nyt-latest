@@ -1,3 +1,7 @@
+**Chilling**\
+`Katie Hoody’s tough Saturday puzzle will shroud solvers in uncertainty.`\
+https://nytimes.com/2025/09/19/crosswords/daily-puzzle-2025-09-20.html
+
 **Trump Says U.S. Military Attacked a Third Suspected Drug Boat, Killing Three**\
 `It was the third time this month that the president said the United States had struck a vessel in the Caribbean Sea.`\
 https://nytimes.com/2025/09/19/us/politics/trump-boat-strike-drugs.html
