@@ -1,3 +1,7 @@
+**White House Outlines a TikTok Deal With a U.S. Board**\
+`A potential deal to reduce TikTok’s ties to China would give the app a new board with six American directors out of seven, the White House press secretary said.`\
+https://nytimes.com/2025/09/20/technology/white-house-tiktok-deal.html
+
 **Australia on top but USA has a day to forget in Geneva**\
 `Australia leads Britain by two points after the first day of racing in Geneva, but it was another "super frustrating" day for the U.S. team`\
 https://nytimes.com/athletic/6647037/2025/09/20/switzerland-sailgp-day-one-report/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010409626/trump-escalates-attack-on-
 **Chiefs rule out receiver Xavier Worthy for Sunday night matchup vs. Giants**\
 `Worthy, who was a limited participant in three practices this week while wearing a brace on his shoulder, will miss a second straight game.`\
 https://nytimes.com/athletic/6646971/2025/09/20/chiefs-xavier-worthy-out-giants/
-
-**Secular Confessions**\
-`We’re creating a space for you to tell us about your wrongdoings.`\
-https://nytimes.com/2025/09/20/briefing/secular-confessions.html
 

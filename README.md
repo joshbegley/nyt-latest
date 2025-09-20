@@ -1,3 +1,7 @@
+**Man Utd 2 Chelsea 1 - Amorim's side hold on to win after red cards for Sanchez and Casemiro**\
+`Our writers break down the key talking points as Manchester United beat Chelsea on a rain-soaked evening at Old Trafford.`\
+https://nytimes.com/athletic/6637227/2025/09/20/manchester-united-chelsea-premier-league-result/
+
 **White House Outlines a TikTok Deal With a U.S. Board**\
 `A potential deal to reduce TikTok’s ties to China would give the app a new board with six American directors out of seven, the White House press secretary said.`\
 https://nytimes.com/2025/09/20/technology/white-house-tiktok-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/fashion/runway-couture/100000010405380/new-york-fashio
 **Trump Escalates Attack on Free Speech**\
 `Zolan Kanno-Youngs, a White House correspondent for The New York Times, describes how the Trump administration’s pressuring of ABC to take action against Jimmy Kimmel is part of a broader crackdown by the administration since the assassination of Charlie Kirk.`\
 https://nytimes.com/video/us/politics/100000010409626/trump-escalates-attack-on-free-speech.html
-
-**Chiefs rule out receiver Xavier Worthy for Sunday night matchup vs. Giants**\
-`Worthy, who was a limited participant in three practices this week while wearing a brace on his shoulder, will miss a second straight game.`\
-https://nytimes.com/athletic/6646971/2025/09/20/chiefs-xavier-worthy-out-giants/
 
