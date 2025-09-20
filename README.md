@@ -1,3 +1,11 @@
+**How to watch Braves at Tigers: Time, TV, streaming for September 21**\
+`Find out how to watch the Atlanta Braves play the Detroit Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6647338/2025/09/20/braves-vs-tigers-stream-how-to-watch-sept-21/
+
+**Marian Burros, 92, Dies; Food Writer Famed for Her Plum Torte and More**\
+`At The Times and elsewhere, she combined recipe writing with reporting on topics like consumer protection and food safety. Her torte was a longtime fan favorite.`\
+https://nytimes.com/2025/09/20/dining/marian-burros-dead.html
+
 **Man Utd 2 Chelsea 1 - Amorim's side hold on to win after red cards for Sanchez and Casemiro**\
 `Our writers break down the key talking points as Manchester United beat Chelsea on a rain-soaked evening at Old Trafford.`\
 https://nytimes.com/athletic/6637227/2025/09/20/manchester-united-chelsea-premier-league-result/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6647003/2025/09/20/what-i-saw-sabres-scrimmage-jiri
 **Top Democratic Leaders Ask Trump for Meeting to Avert a Shutdown**\
 `After a Republican plan to keep funding flowing foundered in the Senate, Representative Hakeem Jeffries and Senator Chuck Schumer accused the president of standing in the way of a solution.`\
 https://nytimes.com/2025/09/20/us/politics/jeffries-schumer-trump.html
-
-**New York Fashion Week in 30 Seconds**\
-`Our chief fashion critic Vanessa Friedman recaps this year’s New York Fashion Week in 30 seconds with reporter Dodai Stewart.`\
-https://nytimes.com/video/fashion/runway-couture/100000010405380/new-york-fashion-week-in-30-seconds.html
-
-**Trump Escalates Attack on Free Speech**\
-`Zolan Kanno-Youngs, a White House correspondent for The New York Times, describes how the Trump administration’s pressuring of ABC to take action against Jimmy Kimmel is part of a broader crackdown by the administration since the assassination of Charlie Kirk.`\
-https://nytimes.com/video/us/politics/100000010409626/trump-escalates-attack-on-free-speech.html
 
