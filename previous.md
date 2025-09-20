@@ -1,3 +1,11 @@
+**U.S. reach first Billie Jean King Cup final since 2018 with win over GB**\
+`Emma Navarro and Jessica Pegula got the better of Sonay Kartal and Katie Boulter to reach Sunday's final.`\
+https://nytimes.com/athletic/6646929/2025/09/20/united-states-billie-jean-cup-final-navarro-pegula/
+
+**Secret Service Detains Armed Man at Kirk Memorial Site, Officials Say**\
+`The man was posing as a law enforcement officer, the authorities said, and was taken into custody.`\
+https://nytimes.com/2025/09/20/us/charlie-kirk-memorial-security-arizona.html
+
 **Dowman becomes Arsenal Under-21s' youngest ever PL 2 scorer**\
 `Dowman, 15, scored in Saturday's victory over Wolverhampton Wanderers to surpass the record held by Reiss Nelson`\
 https://nytimes.com/athletic/6646909/2025/09/20/max-dowman-arsenal-under-21-goal-scorer/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6645327/2025/09/20/nfl-rumors-news-tom-brady-confli
 **Why Russia Is Reviving a Cold War-Era Song Contest**\
 `On Saturday, Russia is hosting the Intervision Song Contest, with singers representing countries like China and Cuba. And the United States, too.`\
 https://nytimes.com/2025/09/20/arts/music/intervision-song-contest.html
-
-**The Briefing: Liverpool 2 Everton 1 – how worried should champions' rivals be after five wins from five?**\
-`The big talking points analysed as Arne Slot's side recorded a hard-earned win over their Merseyside rivals`\
-https://nytimes.com/athletic/6637224/2025/09/20/liverpool-everton-result-analysis/
-
-**Anna Hall wins first U.S. heptathlon world title since Jackie Joyner-Kersee in 1993**\
-`The American won the 800-meter on Saturday to clinch a long-anticipated gold and end a 33-year U.S. drought in the event at worlds.`\
-https://nytimes.com/athletic/6646705/2025/09/20/anna-hall-heptathlon-world-championships-gold-jackie-joyner-kersee/
 

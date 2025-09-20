@@ -1,3 +1,11 @@
+**U.S. reach first Billie Jean King Cup final since 2018 with win over GB**\
+`Emma Navarro and Jessica Pegula got the better of Sonay Kartal and Katie Boulter to reach Sunday's final.`\
+https://nytimes.com/athletic/6646929/2025/09/20/united-states-billie-jean-cup-final-navarro-pegula/
+
+**Secret Service Detains Armed Man at Kirk Memorial Site, Officials Say**\
+`The man was posing as a law enforcement officer, the authorities said, and was taken into custody.`\
+https://nytimes.com/2025/09/20/us/charlie-kirk-memorial-security-arizona.html
+
 **Dowman becomes Arsenal Under-21s' youngest ever PL 2 scorer**\
 `Dowman, 15, scored in Saturday's victory over Wolverhampton Wanderers to surpass the record held by Reiss Nelson`\
 https://nytimes.com/athletic/6646909/2025/09/20/max-dowman-arsenal-under-21-goal-scorer/
