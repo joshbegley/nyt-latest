@@ -1,3 +1,7 @@
+**Make-Ahead Egg Wraps for Weekday Superheroes**\
+`Look at you, making these protein-packed, spinach-stuffed egg wraps for quick breakfasts and lunches.`\
+https://nytimes.com/2025/09/20/dining/make-ahead-egg-wraps-for-weekday-superheroes.html
+
 **U.S. Military Buildup in Caribbean Signals Broader Campaign Against Venezuela**\
 `Trump officials say the mission aims to disrupt the drug trade. But military officials and analysts say the real goal might be driving Venezuela’s president from power.`\
 https://nytimes.com/2025/09/20/us/politics/trump-venezuela-military-buildup.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6646705/2025/09/20/anna-hall-heptathlon-world-champ
 **Eagles notes: Accountability from Hurts, Carter's conditioning, Tush Push reaction**\
 `Plus: The return of tight end Dallas Goedert and a prediction ahead of Sunday's game against the Rams.`\
 https://nytimes.com/athletic/6645991/2025/09/20/eagles-jalen-hurts-jalen-carter-tush-push/
-
-**Elizabeth Gilbert Can’t Control the Narrative**\
-`Memoirs don’t have to be guides for living.`\
-https://nytimes.com/2025/09/20/opinion/gilbert-self-help.html
 
