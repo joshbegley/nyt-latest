@@ -1,3 +1,15 @@
+**Chiefs rule out receiver Xavier Worthy for Sunday night matchup vs. Giants**\
+`Worthy, who was a limited participant in three practices this week while wearing a brace on his shoulder, will miss a second straight game.`\
+https://nytimes.com/athletic/6646971/2025/09/20/chiefs-xavier-worthy-out-giants/
+
+**Secular Confessions**\
+`We’re creating a space for you to tell us about your wrongdoings.`\
+https://nytimes.com/2025/09/20/briefing/secular-confessions.html
+
+**The MAGA Movement Is Not a Debating Society**\
+`The Trump administration and its adherents want dominance and obedience.`\
+https://nytimes.com/2025/09/20/opinion/maga-trump-debate-kirk.html
+
 **WATCH: How the Lions fooled the Bears on this wide-open 44-Yard TD**\
 `Watch how the Lions methodically set up an untouched 44-Yard TD.`\
 https://nytimes.com/athletic/6646937/2025/09/20/jameson-williams-touchdown-bears/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6646929/2025/09/20/united-states-billie-jean-cup-fi
 **Secret Service Detains Armed Man at Kirk Memorial Site, Officials Say**\
 `The man was posing as a law enforcement officer, the authorities said, and was taken into custody.`\
 https://nytimes.com/2025/09/20/us/charlie-kirk-memorial-security-arizona.html
-
-**Dowman becomes Arsenal Under-21s' youngest ever PL 2 scorer**\
-`Dowman, 15, scored in Saturday's victory over Wolverhampton Wanderers to surpass the record held by Reiss Nelson`\
-https://nytimes.com/athletic/6646909/2025/09/20/max-dowman-arsenal-under-21-goal-scorer/
-
-**Make-Ahead Egg Wraps for Weekday Superheroes**\
-`Look at you, making these protein-packed, spinach-stuffed egg wraps for quick breakfasts and lunches.`\
-https://nytimes.com/2025/09/20/dining/make-ahead-egg-wraps-for-weekday-superheroes.html
-
-**U.S. Military Buildup in Caribbean Signals Broader Campaign Against Venezuela**\
-`Trump officials say the mission aims to disrupt the drug trade. But military officials and analysts say the real goal might be driving Venezuela’s president from power.`\
-https://nytimes.com/2025/09/20/us/politics/trump-venezuela-military-buildup.html
 
