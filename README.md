@@ -1,3 +1,11 @@
+**Stanton blasts 450th career home run, moves to 41st all time**\
+`Only four players have hit as many home runs in fewer games than the Yankees' slugger.`\
+https://nytimes.com/athletic/6647810/2025/09/20/giancarlo-stanton-450-home-runs-yankees/
+
+**College Football Playoff 2025 projections: The most likely bracket with Week 4 underway**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/09/20/college-football-playoff-bracket-projections-odds/
+
 **Bill Belichick, UNC struggle again against power conference competition**\
 `UNC started the season getting blown out by TCU. Bill Belichick and company then beat Charlotte and Richmond before falling Saturday to UCF.`\
 https://nytimes.com/athletic/6647792/2025/09/20/bill-belichick-unc-ucf-result-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6647594/2025/09/20/tigers-lose-braves-bullpen-blame
 **What happened to Clemson's defense? Syracuse rolls up 500-plus yards in Death Valley**\
 `Prior to Saturday, the Tigers hadn't lost a home game by more than 12 points to an unranked team since 2001 against North Carolina.`\
 https://nytimes.com/athletic/6647502/2025/09/20/clemson-dabo-swinney-syracuse-defense/
-
-**Trump’s $100,000 Visa Fee Spurs Confusion and Chaos**\
-`The White House sought to clarify the proclamation on Saturday, but many companies remained cautious. “We are still flying in somewhat foggy conditions,” one attorney said.`\
-https://nytimes.com/2025/09/20/business/trump-h1b-visas-fee-employees.html
-
-**Diane Martel, Inventive Director of Music Videos, Dies at 63**\
-`Over three decades, she worked with superstars such as Jennifer Lopez and Mariah Carey, and faced claims of misogyny with her video for Robin Thicke’s “Blurred Lines.”`\
-https://nytimes.com/2025/09/20/arts/diane-martel-dead.html
 
