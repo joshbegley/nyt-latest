@@ -1,3 +1,7 @@
+**Michigan runs wild on Nebraska, extending Huskers' Top 25 losing streak**\
+`If the Huskers couldn’t end their extensive losing streak to ranked opponents on Saturday, then when will they?`\
+https://nytimes.com/athletic/6647493/2025/09/20/michigan-nebraska-bryce-underwood-sherrone-moore/
+
 **Blue Jays’ health takes another hit ahead of playoffs with Chris Bassitt to IL**\
 `The veteran righty is out for the rest of regular season with lower back inflammation but could return for the ALDS.`\
 https://nytimes.com/athletic/6647628/2025/09/20/blue-jays-chris-bassitt-injury/
