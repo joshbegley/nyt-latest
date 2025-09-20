@@ -1,3 +1,7 @@
+**Equipment Outage Disrupts More Than 1,000 Flights at Dallas Airports**\
+`A problem with telecommunications equipment forced the authorities to slow traffic at the city’s two main airports. Delays extended into Saturday.`\
+https://nytimes.com/2025/09/20/us/dallas-airports-flight-disruptions.html
+
 **How to watch Phillies at Diamondbacks: Time, TV, streaming for September 20**\
 `Find out how to watch the Philadelphia Phillies play the Arizona Diamondbacks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6646396/2025/09/20/phillies-vs-diamondbacks-stream-how-to-watch-sept-20/
