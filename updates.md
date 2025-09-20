@@ -1,3 +1,7 @@
+**Blackhawks settle lawsuit with former player John Doe**\
+`A former player had sued the Blackhawks for failing to act when informed of sexual assault allegations against a former video coach in 2010.`\
+https://nytimes.com/athletic/6647599/2025/09/20/blackhawks-settle-lawsuit-john-doe/
+
 **In another brutal Tigers loss, the bullpen bears the blame**\
 `The Tigers blew a lead in the ninth to seal their eighth defeat in nine games as the Cleveland Guardians close in.`\
 https://nytimes.com/athletic/6647594/2025/09/20/tigers-lose-braves-bullpen-blame/
