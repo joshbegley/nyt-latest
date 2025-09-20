@@ -1,40 +1,40 @@
-**‘We’re in the Most Dangerous Point for Free Speech in America’**\
-`Jimmy Kimmel’s removal looks more like a red scare than a culture clash.`\
-https://nytimes.com/video/opinion/100000010408361/were-in-the-most-dangerous-point-for-free-speech-in-america.html
+**Liam Ohgren, Vladimir Tarasenko, Joel Eriksson Ek emerging as a line to watch in Wild camp**\
+`Tarasenko has four goals and two assists in two scrimmages, both wins for his group. Ohgren scored the winner Friday.`\
+https://nytimes.com/athletic/6645249/2025/09/20/ohgren-eriksson-ek-tarasenko-wild-line/
 
-**Cyberattack Slows Check-Ins and Threatens Delays at European Airports**\
-`A disruption to check-in and boarding systems at airports in Berlin, Brussels and London threatened to snarl travel.`\
-https://nytimes.com/2025/09/20/world/europe/europe-airports-delays-brussels-london-berlin.html
+**How Packers' Micah Parsons, Browns' Myles Garrett forged an elite edge rusher bond**\
+`Perhaps the two best defensive players of this generation will share the field in Cleveland on Sunday.`\
+https://nytimes.com/athletic/6645470/2025/09/20/micah-parsons-myles-garrett-packers-browns/
 
-**How realistic is a Sidney Crosby trade for each NHL team?**\
-`Amid speculation around Crosby's future with the Penguins, we assess how possible a deal involving the star captain might be for each club.`\
-https://nytimes.com/athletic/6640853/2025/09/20/sidney-crosby-trade-options-all-32-nhl-teams/
+**When Bill Parcells arrived, the Patriots were a joke. And then everyone stopped laughing**\
+`To understand and appreciate what Parcells meant to the Patriots, you need to look at the big picture.`\
+https://nytimes.com/athletic/6643119/2025/09/20/bill-parcells-patriots-hall-of-fame-induction/
 
-**Which Bruins are on the bubble? 8 players in camp dogfights**\
-`There are jobs up for grabs at Bruins camp. Here are the players eager to show they can fill them.`\
-https://nytimes.com/athletic/6645363/2025/09/20/which-bruins-are-on-the-bubble-8-players-in-camp-dogfights/
+**What is Matt Grzelcyk's path from tryout to Blackhawks contract?**\
+`After going unsigned after a career-best season, Grzelcyk, 31, is fighting for a roster spot on a team with a stable of young defensemen.`\
+https://nytimes.com/athletic/6644854/2025/09/20/blackhawks-matt-grzelcyks-pto-contract-nhl/
 
-**Standing Date**\
-`A weekly dinner party sounds so enticing, but establishing a ritual can be a challenge.`\
-https://nytimes.com/2025/09/20/briefing/standing-date.html
+**Why Canadiens are looking to Noah Dobson and Mike Matheson to form their top defence pair**\
+`Canadiens coach Martin St. Louis is banking on mobility and transition skill in an effort to avoid having to defend to begin with.`\
+https://nytimes.com/athletic/6645781/2025/09/20/canadiens-noah-dobson-mike-matheson-defense/
 
-**How to watch Giants at Dodgers: Time, TV, streaming for September 20**\
-`Find out how to watch the San Francisco Giants play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6646530/2025/09/20/giants-vs-dodgers-stream-how-to-watch-sept-20/
+**It'll be a short October at Wrigley Field if Cubs’ offense doesn’t show up**\
+`Manager Craig Counsell says the Cubs are capable of playing many October games, but are "going to need some special offensive performances."`\
+https://nytimes.com/athletic/6645986/2025/09/20/cubs-offense-october-pete-crow-armstrong/
 
-**Fascinating sports business recommended reads for your weekend**\
-`A dozen fantastic sports-business reads from the past week, featuring some of the best of The Athletic's reporting and commentary.`\
-https://nytimes.com/athletic/6644439/2025/09/20/great-reads-sports-business-september-20/
+**Kamala Harris Is Out of Time**\
+`“107 days” is not merely the duration of Harris’s campaign; it is also her excuse for losing the election.`\
+https://nytimes.com/2025/09/20/opinion/kamala-harris-is-out-of-time.html
 
-**Week 3 NFL roundtable: QB injuries, Rams-Eagles, Chiefs meet Giants in winless clash**\
-`While plenty of backup QBs will be busy Sunday, we'll see Rams-Eagles and Lions-Ravens to round out Week 3. Our writers discuss.`\
-https://nytimes.com/athletic/6645633/2025/09/20/week-3-nfl-roundtable-qb-injuries-rams-eagles-chiefs-giants/
+**The Conservative Principle Behind the Kimmel Suspension**\
+`A civic-minded purpose is key.`\
+https://nytimes.com/2025/09/20/opinion/jimmy-kimmel-conservative-principle-trump.html
 
-**Vikings-Bengals predictions: What we're watching in battle of the backups**\
-`For once, the backup QBs are the focus. But could RB Jordan Mason also have a huge day against the Bengals?`\
-https://nytimes.com/athletic/6645393/2025/09/20/vikings-bengals-predictions-backup-quarterbacks/
+**The NHL’s top 10 breakout candidates: Leo Carlsson, Frank Nazar, Jet Greaves and more**\
+`These 10 players are poised to improve thanks to new opportunities, bigger roles or age-related growth.`\
+https://nytimes.com/athletic/6638130/2025/09/20/nhl-top-10-breakout-candidates/
 
-**Elly De La Cruz hit his first homer since July in Reds' win over Cubs**\
-`"I hope it took some weight off of his shoulders because he's the heart of this team," Spencer Steer said.`\
-https://nytimes.com/athletic/6645992/2025/09/20/elly-de-la-cruz-first-homer-since-july-reds-cubs/
+**Why Do We Think We Know Kirk’s Shooter’s Motive?**\
+`Legible meaning doesn’t neatly emerge from the world of online discourse.`\
+https://nytimes.com/2025/09/20/opinion/charlie-kirk-shooter-motive.html
 
