@@ -1,3 +1,15 @@
+**How to watch Athletics at Pirates: Time, TV, streaming for September 20**\
+`Find out how to watch the Athletics play the Pittsburgh Pirates, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6645705/2025/09/19/athletics-vs-pirates-stream-how-to-watch-sept-20/
+
+**How to watch Cubs at Reds: Time, TV, streaming for September 20**\
+`Find out how to watch the Chicago Cubs play the Cincinnati Reds, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6645704/2025/09/19/cubs-vs-reds-stream-how-to-watch-sept-20/
+
+**How to watch Braves at Tigers: Time, TV, streaming for September 20**\
+`Find out how to watch the Atlanta Braves play the Detroit Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6645698/2025/09/19/braves-vs-tigers-stream-how-to-watch-sept-20/
+
 **Jimmy Kimmel and the Rise of Corporate Censorship**\
 `Jimmy Kimmel’s suspension exposes a chilling new reality of the media bowing to political pressure from the Trump administration, the New York Times Opinion columnist M.`\
 https://nytimes.com/video/opinion/100000010411235/jimmy-kimmel-and-the-rise-of-corporate-censorship.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/opinion/100000010407786/the-debate-over-the-kirk-shoot
 **Why John Gibson could be Red Wings' answer in goal: Training camp observations**\
 `Gibson was Detroit's top offseason acquisition, and brings some sorely needed upside to the Red Wings' goaltending situation.`\
 https://nytimes.com/athletic/6645020/2025/09/19/red-wings-training-camp-john-gibson-todd-mclellan/
-
-**A Week of Deepening Political Divides**\
-`Tempers are always flaring in Washington. But the current level of vitriol has felt especially nasty and intense.`\
-https://nytimes.com/2025/09/19/us/politics/trump-kimmel-charlie-kirk.html
-
-**What we're seeing at Canucks training camp: 10 observations from Penticton**\
-`With two days now in the books, let's get into the weeds on the top developments at Canucks camp.`\
-https://nytimes.com/athletic/6645206/2025/09/19/canucks-training-camp-2025-penticton/
-
-**With Calls for Retribution Over Kirk, Some See Rise of a ‘Woke Right’**\
-`Conservatives have pressed for consequences for those who make negative comments about Charlie Kirk. But a few on the right say they worry about limits on speech.`\
-https://nytimes.com/2025/09/19/us/charlie-kirk-free-speech-republicans.html
 
