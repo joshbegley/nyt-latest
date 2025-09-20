@@ -1,3 +1,15 @@
+**Historic Azerbaijan F1 mayhem sees Verstappen claim pole, Sainz second**\
+`A two-hour epic qualifying session saw six red flags and a stunning jumble for Sunday's grid.`\
+https://nytimes.com/athletic/6646684/2025/09/20/azerbaijan-gp-qualifying-results-max-verstappen-carlos-sainz/
+
+**Russini: What I'm hearing on the NFL's Tom Brady problem, the tush push's future and more**\
+`Also: Inside the Week 3 backup QB bonanza, questions about Travis Hunter, and why the Vikings feel comfortable with Carson Wentz.`\
+https://nytimes.com/athletic/6645327/2025/09/20/nfl-rumors-news-tom-brady-conflict-tush-push-future/
+
+**Why Russia Is Reviving a Cold War-Era Song Contest**\
+`On Saturday, Russia is hosting the Intervision Song Contest, with singers representing countries like China and Cuba. And the United States, too.`\
+https://nytimes.com/2025/09/20/arts/music/intervision-song-contest.html
+
 **MLB playoff watch: Mariners grab West lead, Dodgers lock up spot; bracket, clinching scenarios**\
 `The Dodgers clinched a postseason berth and the Blue Jays and Tigers had nights to forget.`\
 https://nytimes.com/athletic/6645715/2025/09/20/mlb-playoff-watch-mariners-lead-dodgers-clinch/
