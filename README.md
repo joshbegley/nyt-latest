@@ -1,3 +1,7 @@
+**Blue Jays’ health takes another hit ahead of playoffs with Chris Bassitt to IL**\
+`The veteran righty is out for the rest of regular season with lower back inflammation but could return for the ALDS.`\
+https://nytimes.com/athletic/6647628/2025/09/20/blue-jays-chris-bassitt-injury/
+
 **Blackhawks settle lawsuit with former player John Doe**\
 `A former player had sued the Blackhawks for failing to act when informed of sexual assault allegations against a former video coach in 2010.`\
 https://nytimes.com/athletic/6647599/2025/09/20/blackhawks-settle-lawsuit-john-doe/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/20/crosswords/daily-puzzle-2025-09-21.html
 **College Football Playoff 2025 projections: The most likely bracket with Week 4 underway**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/09/20/college-football-playoff-bracket-projections-odds/
-
-**Astros sit Christian Walker in pivotal game, deepening questions about future**\
-`The first season of a three-year, $60 million deal has mostly been a struggle for the Astros' first baseman.`\
-https://nytimes.com/athletic/6647603/2025/09/20/astros-sit-christian-walker/
 
