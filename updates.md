@@ -1,3 +1,11 @@
+**Justice Alito, in Rome, Says Religious Liberty Is Under Siege**\
+`Justice Samuel A. Alito Jr., a conservative Catholic, has visited Rome for decades, often teaching or participating in academic conferences.`\
+https://nytimes.com/2025/09/20/world/europe/justice-alito-rome-religious-liberty.html
+
+**Texas Tech is different now, thanks to its cash-fueled, transfer-heavy (and very good) defense**\
+`The questions will continue. Is this bad for college football? The Red Raiders won’t hear them. They’re too busy celebrating. `\
+https://nytimes.com/athletic/6647386/2025/09/20/texas-tech-utah-defense-nil-big-12/
+
 **Aziz Olajuwon, son of NBA Hall of Famer Hakeem, commits to Stanford**\
 `The Houston native chose Stanford over Vanderbilt, Houston and Cincinnati, becoming the 10th-highest-rated recruit in program history.`\
 https://nytimes.com/athletic/6646241/2025/09/20/hakeem-olajuwon-son-aziz-stanford-basketball/
