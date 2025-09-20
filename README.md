@@ -1,3 +1,7 @@
+**‘We’re in the Most Dangerous Point for Free Speech in America’**\
+`Jimmy Kimmel’s removal looks more like a red scare than a culture clash.`\
+https://nytimes.com/video/opinion/100000010408361/were-in-the-most-dangerous-point-for-free-speech-in-america.html
+
 **Cyberattack Slows Check-Ins and Threatens Delays at European Airports**\
 `A disruption to check-in and boarding systems at airports in Berlin, Brussels and London threatened to snarl travel.`\
 https://nytimes.com/2025/09/20/world/europe/europe-airports-delays-brussels-london-berlin.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6645393/2025/09/20/vikings-bengals-predictions-back
 **Elly De La Cruz hit his first homer since July in Reds' win over Cubs**\
 `"I hope it took some weight off of his shoulders because he's the heart of this team," Spencer Steer said.`\
 https://nytimes.com/athletic/6645992/2025/09/20/elly-de-la-cruz-first-homer-since-july-reds-cubs/
-
-**Hall of Fame NFL coach Bill Cowher shares 3 rules for great leadership**\
-`When you think of the NFL coaches who personified leadership in the last 30 years, longtime Steelers coach Bill Cowher easily comes to mind.`\
-https://nytimes.com/athletic/6644391/2025/09/20/bill-cowher-steelers-leadership-rules-hall-of-fame/
 

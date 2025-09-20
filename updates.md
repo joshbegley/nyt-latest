@@ -1,3 +1,7 @@
+**Cyberattack Slows Check-Ins and Threatens Delays at European Airports**\
+`A disruption to check-in and boarding systems at airports in Berlin, Brussels and London threatened to snarl travel.`\
+https://nytimes.com/2025/09/20/world/europe/europe-airports-delays-brussels-london-berlin.html
+
 **How realistic is a Sidney Crosby trade for each NHL team?**\
 `Amid speculation around Crosby's future with the Penguins, we assess how possible a deal involving the star captain might be for each club.`\
 https://nytimes.com/athletic/6640853/2025/09/20/sidney-crosby-trade-options-all-32-nhl-teams/
