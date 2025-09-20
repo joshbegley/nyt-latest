@@ -1,3 +1,12 @@
+**Former Liverpool women head coach Matt Beard dies aged 47**\
+`Beard won the WSL with the Merseyside club twice, in 2013 and 2014 `\
+https://nytimes.com/athletic/6647471/2025/09/20/matt-beard-dies-wsl-liverpool-burnley/
+
+**Can Jack Johnson and Brett Leason go from PTOs to Wild contracts?**\
+`Minnesota brought in the two veterans on pro tryout contracts with the knowledge that they would have a real chance to earn roster spots.
+`\
+https://nytimes.com/athletic/6647297/2025/09/20/wild-training-camp-jack-johnson-brett-leason/
+
 **Can Jack Johnson and Brett Leason go from PTOs to Wild contracts?**\
 `Minnesota brought in the two veterans on pro tryout contracts with the knowledge that they would have a real chance to earn roster spots.
 `\

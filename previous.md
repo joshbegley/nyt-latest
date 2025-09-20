@@ -1,3 +1,7 @@
+**Former Liverpool women head coach Matt Beard dies aged 47**\
+`Beard won the WSL with the Merseyside club twice, in 2013 and 2014 `\
+https://nytimes.com/athletic/6647471/2025/09/20/matt-beard-dies-wsl-liverpool-burnley/
+
 **Can Jack Johnson and Brett Leason go from PTOs to Wild contracts?**\
 `Minnesota brought in the two veterans on pro tryout contracts with the knowledge that they would have a real chance to earn roster spots.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6647338/2025/09/20/braves-vs-tigers-stream-how-to-w
 **Marian Burros, 92, Dies; Food Writer Famed for Her Plum Torte and More**\
 `At The Times and elsewhere, she combined recipe writing with reporting on topics like consumer protection and food safety. Her torte was a longtime fan favorite.`\
 https://nytimes.com/2025/09/20/dining/marian-burros-dead.html
-
-**Man Utd 2 Chelsea 1 - Amorim's side hold on to win after red cards for Sanchez and Casemiro**\
-`Our writers break down the key talking points as Manchester United beat Chelsea on a rain-soaked evening at Old Trafford.`\
-https://nytimes.com/athletic/6637227/2025/09/20/manchester-united-chelsea-premier-league-result/
 
