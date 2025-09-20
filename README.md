@@ -1,3 +1,7 @@
+**Astros sit Christian Walker in pivotal game, deepening questions about future**\
+`The first season of a three-year, $60 million deal has mostly been a struggle for the Astros' first baseman`\
+https://nytimes.com/athletic/6647603/2025/09/20/astros-sit-christian-walker/
+
 **California Bars ICE Agents From Wearing Masks in the State**\
 `Gov. Gavin Newsom signed a bill to prevent federal agents from concealing their identities with masks. The law is expected to face a legal challenge.`\
 https://nytimes.com/2025/09/20/us/california-ice-agents-masks-law.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6647395/2025/09/20/broncos-dre-greenlaw-injured-res
 **Memphis stuns Arkansas; wild ending leaves Tigers in prime Playoff position**\
 `The loss to Memphis, in the teams' first meeting since 1998, drops Pittman to 32-33 in his sixth season as Arkansas' head coach.`\
 https://nytimes.com/athletic/6647457/2025/09/20/tigers-razorbacks-cfb/
-
-**Justice Alito, in Rome, Says Religious Liberty Is Under Siege**\
-`Justice Samuel A. Alito Jr., a conservative Catholic, has visited Rome for decades, often teaching or participating in academic conferences.`\
-https://nytimes.com/2025/09/20/world/europe/justice-alito-rome-religious-liberty.html
 

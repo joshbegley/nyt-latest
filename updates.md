@@ -1,3 +1,11 @@
+**California Bars ICE Agents From Wearing Masks in the State**\
+`Gov. Gavin Newsom signed a bill to prevent federal agents from concealing their identities with masks. The law is expected to face a legal challenge.`\
+https://nytimes.com/2025/09/20/us/california-ice-agents-masks-law.html
+
+**What I'm seeing at Flyers camp: York standing out to Tocchet, surprise prospect impresses**\
+`Alexis Gendron, a seventh-round pick in the 2022 draft, has been the biggest pleasant surprise so far.`\
+https://nytimes.com/athletic/6647432/2025/09/20/flyers-training-camp-cam-york-rick-tocchet/
+
 **Should Oklahoma's first touchdown against Auburn have been flagged?**\
 `The NCAA rule book states that 'no tactic associated with substitutes or the substitution process may be used to confuse opponents.'`\
 https://nytimes.com/athletic/6647531/2025/09/20/oklahoma-auburn-isaiah-sategna-touchdown-penalty/
