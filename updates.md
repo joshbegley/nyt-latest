@@ -1,3 +1,7 @@
+**Chelsea's Palmer 'not 100%' with injury before Man Utd tie, Maresca says**\
+`The 23-year-old has missed two games this season with a groin injury that he has not fully recovered from`\
+https://nytimes.com/athletic/6576736/2025/09/20/cole-palmer-chelsea-injury-manchester-united/
+
 **How to watch Braves at Tigers: Time, TV, streaming for September 21**\
 `Find out how to watch the Atlanta Braves play the Detroit Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6647338/2025/09/20/braves-vs-tigers-stream-how-to-watch-sept-21/
