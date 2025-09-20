@@ -1,3 +1,7 @@
+**Gary Busey Sentenced to Two Years’ Probation for Sex Offense**\
+`The 81-year-old actor had admitted touching a woman’s buttocks over her clothing at a horror film convention in New Jersey in 2022.`\
+https://nytimes.com/2025/09/20/nyregion/gary-busey-sentenced-to-two-years-probation-for-sex-offense.html
+
 **Palace's Pino to have knee injury scan after win over West Ham**\
 `The 22-year-old was brought off at half-time after a collision with Callum Wilson in the first half of Saturday's game`\
 https://nytimes.com/athletic/6647174/2025/09/20/yeremy-pino-crystal-palace-knee-injury/
