@@ -1,3 +1,11 @@
+**Diane Martel, Inventive Director of Music Videos, Dies at 63**\
+`Over three decades, she worked with superstars such as Jennifer Lopez and Mariah Carey, and faced claims of misogyny with her video for Robin Thicke’s “Blurred Lines.”`\
+https://nytimes.com/2025/09/20/arts/diane-martel-dead.html
+
+**What I'm seeing at Flyers camp: York standing out to Tocchet, surprise prospect impresses**\
+`Alexis Gendron, a seventh-round pick in 2022, has been the most pleasant surprise so far.`\
+https://nytimes.com/athletic/6647432/2025/09/20/flyers-training-camp-cam-york-rick-tocchet/
+
 **Trump Justice Dept. Closed Investigation Into Tom Homan for Accepting Bag of Cash**\
 `Mr. Homan came under scrutiny after he was recorded last year taking $50,000 in cash from undercover F.B.I. agents.`\
 https://nytimes.com/2025/09/20/us/politics/tom-homan-fbi-trump.html

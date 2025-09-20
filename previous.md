@@ -1,3 +1,7 @@
+**Diane Martel, Inventive Director of Music Videos, Dies at 63**\
+`Over three decades, she worked with superstars such as Jennifer Lopez and Mariah Carey, and faced claims of misogyny with her video for Robin Thicke’s “Blurred Lines.”`\
+https://nytimes.com/2025/09/20/arts/diane-martel-dead.html
+
 **Trump Justice Dept. Closed Investigation Into Tom Homan for Accepting Bag of Cash**\
 `Mr. Homan came under scrutiny after he was recorded last year taking $50,000 in cash from undercover F.B.I. agents.`\
 https://nytimes.com/2025/09/20/us/politics/tom-homan-fbi-trump.html
@@ -23,7 +27,7 @@ https://nytimes.com/athletic/6647603/2025/09/20/astros-sit-christian-walker/
 https://nytimes.com/2025/09/20/us/california-ice-agents-masks-law.html
 
 **What I'm seeing at Flyers camp: York standing out to Tocchet, surprise prospect impresses**\
-`Alexis Gendron, a seventh-round pick in the 2022 draft, has been the biggest pleasant surprise so far.`\
+`Alexis Gendron, a seventh-round pick in 2022, has been the most pleasant surprise so far.`\
 https://nytimes.com/athletic/6647432/2025/09/20/flyers-training-camp-cam-york-rick-tocchet/
 
 **Should Oklahoma's first touchdown against Auburn have been flagged?**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6647531/2025/09/20/oklahoma-auburn-isaiah-sategna-t
 **4 Men Are Sentenced in Warrant Scam That Was Run From Prison**\
 `They used a drone to drop cellphones into a Georgia prison yard, where an inmate coordinated a scheme targeting women who were medical workers in multiple states, prosecutors said.`\
 https://nytimes.com/2025/09/20/us/warrant-scam-prison.html
-
-**With Ouster, Justice Dept. Independence Teeters as Trump Exerts Control**\
-`The forcing out of the prosecutor overseeing the cases of two Trump foes magnified questions about the politicization of U.S. attorneys. And it raised one more: Who might be next?`\
-https://nytimes.com/2025/09/20/us/politics/trump-justice-department-us-attorneys.html
 
