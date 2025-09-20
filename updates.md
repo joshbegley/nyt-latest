@@ -1,3 +1,11 @@
+**How to watch Braves at Tigers: Time, TV, streaming for September 21**\
+`Find out how to watch the Atlanta Braves play the Detroit Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6647338/2025/09/20/braves-vs-tigers-stream-how-to-watch-sept-21/
+
+**Marian Burros, 92, Dies; Food Writer Famed for Her Plum Torte and More**\
+`At The Times and elsewhere, she combined recipe writing with reporting on topics like consumer protection and food safety. Her torte was a longtime fan favorite.`\
+https://nytimes.com/2025/09/20/dining/marian-burros-dead.html
+
 **Man Utd 2 Chelsea 1 - Amorim's side hold on to win after red cards for Sanchez and Casemiro**\
 `Our writers break down the key talking points as Manchester United beat Chelsea on a rain-soaked evening at Old Trafford.`\
 https://nytimes.com/athletic/6637227/2025/09/20/manchester-united-chelsea-premier-league-result/
