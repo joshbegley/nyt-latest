@@ -1,3 +1,7 @@
+**Cyberattack Slows Check-Ins and Threatens Delays at European Airports**\
+`A disruption to check-in and boarding systems at airports in Berlin, Brussels and London threatened to snarl travel.`\
+https://nytimes.com/2025/09/20/world/europe/europe-airports-delays-brussels-london-berlin.html
+
 **How realistic is a Sidney Crosby trade for each NHL team?**\
 `Amid speculation around Crosby's future with the Penguins, we assess how possible a deal involving the star captain might be for each club.`\
 https://nytimes.com/athletic/6640853/2025/09/20/sidney-crosby-trade-options-all-32-nhl-teams/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6645992/2025/09/20/elly-de-la-cruz-first-homer-sinc
 **Hall of Fame NFL coach Bill Cowher shares 3 rules for great leadership**\
 `When you think of the NFL coaches who personified leadership in the last 30 years, longtime Steelers coach Bill Cowher easily comes to mind.`\
 https://nytimes.com/athletic/6644391/2025/09/20/bill-cowher-steelers-leadership-rules-hall-of-fame/
-
-**Twins lose Pablo López to tight forearm, shut down Matt Wallner for the season**\
-`López is scheduled to undergo further testing, and Wallner's up-and-down season ends with an injury and lots of future questions.`\
-https://nytimes.com/athletic/6645446/2025/09/20/twins-lose-pablo-lopez-shut-down-matt-wallner/
 
