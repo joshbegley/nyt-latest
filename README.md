@@ -1,3 +1,7 @@
+**Michigan runs wild on Nebraska, extending Huskers' Top 25 losing streak**\
+`If the Huskers couldn’t end their extensive losing streak to ranked opponents on Saturday, then when will they?`\
+https://nytimes.com/athletic/6647493/2025/09/20/michigan-nebraska-bryce-underwood-sherrone-moore/
+
 **Blue Jays’ health takes another hit ahead of playoffs with Chris Bassitt to IL**\
 `The veteran righty is out for the rest of regular season with lower back inflammation but could return for the ALDS.`\
 https://nytimes.com/athletic/6647628/2025/09/20/blue-jays-chris-bassitt-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6647645/2025/09/20/nationals-vs-mets-stream-how-to-
 **Gimme a Break!**\
 `Adrianne Baik makes a crispy, delicious Sunday puzzle.`\
 https://nytimes.com/2025/09/20/crosswords/daily-puzzle-2025-09-21.html
-
-**College Football Playoff 2025 projections: The most likely bracket with Week 4 underway**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/09/20/college-football-playoff-bracket-projections-odds/
 
