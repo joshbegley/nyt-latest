@@ -1,3 +1,11 @@
+**Read the Pentagon’s New Restrictions on Reporters**\
+`The Pentagon said it would forbid reporters from gathering any information that had not been authorized for release, and would revoke press passes from any journalists who did not obey.`\
+https://nytimes.com/interactive/2025/09/20/us/pentagon-press-restrictions.html
+
+**Pentagon Expands Its Restrictions on Reporter Access**\
+`The Department of Defense will force reporters to pledge not to gather or use any information that had not been formally authorized for release, or risk losing their credential to cover the military.`\
+https://nytimes.com/2025/09/20/business/media/pentagon-restrictions-reporters-hegseth-trump.html
+
 **The New York Times in Print for Saturday, Sep. 20, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/20/todays-new-york-times

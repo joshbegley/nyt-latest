@@ -1,3 +1,11 @@
+**Read the Pentagon’s New Restrictions on Reporters**\
+`The Pentagon said it would forbid reporters from gathering any information that had not been authorized for release, and would revoke press passes from any journalists who did not obey.`\
+https://nytimes.com/interactive/2025/09/20/us/pentagon-press-restrictions.html
+
+**Pentagon Expands Its Restrictions on Reporter Access**\
+`The Department of Defense will force reporters to pledge not to gather or use any information that had not been formally authorized for release, or risk losing their credential to cover the military.`\
+https://nytimes.com/2025/09/20/business/media/pentagon-restrictions-reporters-hegseth-trump.html
+
 **The New York Times in Print for Saturday, Sep. 20, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/20/todays-new-york-times
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6644323/2025/09/20/alejandro-garnacho-chelsea-manch
 **Why is goalscoring down in the Premier League at the start of this season?**\
 `A rate of 2.34 goals per game after four matchweeks is the lowest in any Premier League season in the last decade`\
 https://nytimes.com/athletic/6640018/2025/09/20/premier-league-goalscoring-down-analysis/
-
-**The City That Embodies the U.S.-Korea Bond, Even in the Trump Era**\
-`Incheon, the site of a crucial battle of the Korean War, has a singular place in South Korea’s modern history and in its ties with the United States.`\
-https://nytimes.com/2025/09/20/world/asia/south-korea-incheon-us-bond.html
-
-**Connections: Sports Edition Coach: Hints for Sept. 20, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6645777/2025/09/20/connections-sports-edition-hints-for-sept-20-2025/
 
