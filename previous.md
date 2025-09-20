@@ -1,3 +1,27 @@
+**How to watch Bournemouth vs. Newcastle from U.S.: Eddie Howe faces old club Sunday**\
+`Eddie Howe returns to the ground that launched his managerial career on Sunday, but this is no sentimental reminiscence.`\
+https://nytimes.com/athletic/6645289/2025/09/20/bournemouth-vs-newcastle-how-to-watch-us/
+
+**Giants have endured the last thorn from Clayton Kershaw, but Ohtani torment has just begun**\
+`The Giants are finally done with Kershaw. But Shohei Ohtani provided a reminder that the winning the NL West won't get easier.`\
+https://nytimes.com/athletic/6646334/2025/09/20/sf-giants-clayton-kershaw-shohei-ohtani-torment/
+
+**What we're seeing at Rangers camp: Notable tandems, budding chemistry and more**\
+`Plus Braden Schneider is easing back after surgery, Taylor Raddysh is settling in with his new club and more notes.`\
+https://nytimes.com/athletic/6641129/2025/09/20/rangers-training-camp-miller-zibanejad/
+
+**Meet Peter Aubry, the Oilers' new goalie coach. Here's why he took the job**\
+`Aubry believes he can help Stuart Skinner and Calvin Pickard for the good of the Cup-starved Oilers.`\
+https://nytimes.com/athletic/6645450/2025/09/20/oilers-goalies-skinner-pickard-peter-aubry/
+
+**What Wall Street Sees in the Data Center Boom**\
+`Data center capacity has become a barometer for both the health of the tech market and the risk of an A.I. bubble.`\
+https://nytimes.com/2025/09/20/business/dealbook/data-centers-ai.html
+
+**Beckham, Neville admit Salford in 'serious trouble' before new ownership buyout**\
+`A delegation — including Beckham — will attend their first match since the buyout when Salford host Swindon Town on Saturday.`\
+https://nytimes.com/athletic/6645292/2025/09/20/david-beckham-gary-neville-salford-city-takeover/
+
 **Nick Castellanos' big night lifts Phillies, but his potential role in playoffs looks limited**\
 `The Phillies have decided they are better without Castellanos in right field every day. The veteran is adjusting to his new reality. `\
 https://nytimes.com/athletic/6646312/2025/09/20/nick-castellanos-phillies-playoff-role/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6645470/2025/09/20/micah-parsons-myles-garrett-pack
 **When Bill Parcells arrived, the Patriots were a joke. And then everyone stopped laughing**\
 `To understand and appreciate what Parcells meant to the Patriots, you need to look at the big picture.`\
 https://nytimes.com/athletic/6643119/2025/09/20/bill-parcells-patriots-hall-of-fame-induction/
-
-**What is Matt Grzelcyk's path from tryout to Blackhawks contract?**\
-`After going unsigned after a career-best season, Grzelcyk, 31, is fighting for a roster spot on a team with a stable of young defensemen.`\
-https://nytimes.com/athletic/6644854/2025/09/20/blackhawks-matt-grzelcyks-pto-contract-nhl/
-
-**Why Canadiens are looking to Noah Dobson and Mike Matheson to form their top defence pair**\
-`Canadiens coach Martin St. Louis is banking on mobility and transition skill in an effort to avoid having to defend to begin with.`\
-https://nytimes.com/athletic/6645781/2025/09/20/canadiens-noah-dobson-mike-matheson-defense/
-
-**It'll be a short October at Wrigley Field if Cubs’ offense doesn’t show up**\
-`Manager Craig Counsell says the Cubs are capable of playing many October games, but are "going to need some special offensive performances."`\
-https://nytimes.com/athletic/6645986/2025/09/20/cubs-offense-october-pete-crow-armstrong/
-
-**Kamala Harris Is Out of Time**\
-`“107 days” is not merely the duration of Harris’s campaign; it is also her excuse for losing the election.`\
-https://nytimes.com/2025/09/20/opinion/kamala-harris-is-out-of-time.html
-
-**The Conservative Principle Behind the Kimmel Suspension**\
-`A civic-minded purpose is key.`\
-https://nytimes.com/2025/09/20/opinion/jimmy-kimmel-conservative-principle-trump.html
-
-**The NHL’s top 10 breakout candidates: Leo Carlsson, Frank Nazar, Jet Greaves and more**\
-`These 10 players are poised to improve thanks to new opportunities, bigger roles or age-related growth.`\
-https://nytimes.com/athletic/6638130/2025/09/20/nhl-top-10-breakout-candidates/
 
