@@ -1,3 +1,7 @@
+**How Reese Witherspoon Survived the Terrifying Days of Tabloid Celebrity**\
+`The actor and producer booked her first big role when she was 14 years old. More than 30 years later, she’s an entertainment-industry powerhouse.`\
+https://nytimes.com/2025/09/20/magazine/reese-witherspoon-interview.html
+
 **Why Support for Political Violence Is Not as High as It May Seem**\
 `A tiny percentage of Americans support it in any meaningful sense, despite what some polls may show.`\
 https://nytimes.com/2025/09/20/upshot/polls-political-violence.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/20/arts/television/jimmy-kimmel-fallon-censorship.ht
 **Inspired by Conservative Tactics, an Obscure Group Seeks Sway for Democrats**\
 `A liberal group that was spun off from a network funded by George Soros is looking to build off 2024 victories in Florida to help elect candidates to school boards and other local offices.`\
 https://nytimes.com/2025/09/20/us/politics/pipeline-fund-democrats-local-elections.html
-
-**He Wrote a Biting Post About Charlie Kirk. The Fury Came Fast.**\
-`Residents of Palmetto Bay, Fla., have demanded the resignation of Councilman Stephen Cody, who wrote a post mocking Charlie Kirk’s support for gun rights.`\
-https://nytimes.com/2025/09/20/us/florida-charlie-kirk-free-speech.html
 
