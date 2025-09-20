@@ -1,3 +1,15 @@
+**WATCH: How the Lions fooled the Bears on this wide-open 44-Yard TD**\
+`Watch how the Lions methodically set up an untouched 44-Yard TD.`\
+https://nytimes.com/athletic/6646937/2025/09/20/jameson-williams-touchdown-bears/
+
+**The Briefing: Brighton 2 Tottenham 2 – Simons introduction helps turn tide on south coast**\
+`Spurs came back from 2-0 down to claim a point at Brighton and Hove Albion, thanks to a vastly improved second half performance`\
+https://nytimes.com/athletic/6637225/2025/09/20/brighton-2-tottenham-2-xavi-simons/
+
+**F1 qualifying went sideways in Azerbaijan — and the underdogs came out on top**\
+`Max Verstappen is inevitable. But how we got to another Red Bull pole on Saturday? That was something to behold`\
+https://nytimes.com/athletic/6646922/2025/09/20/f1-qualifying-azerbaijan-crashes-pole-verstappen/
+
 **The Calm Before the Beers**\
 `Until the taps open at Oktoberfest, it’s a nonalcoholic mix of card games, soft drinks and waiting.`\
 https://nytimes.com/2025/09/20/world/europe/germany-munich-oktoberfest.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/20/dining/make-ahead-egg-wraps-for-weekday-superhero
 **U.S. Military Buildup in Caribbean Signals Broader Campaign Against Venezuela**\
 `Trump officials say the mission aims to disrupt the drug trade. But military officials and analysts say the real goal might be driving Venezuela’s president from power.`\
 https://nytimes.com/2025/09/20/us/politics/trump-venezuela-military-buildup.html
-
-**A Benefit for the Palestinian Cause Filled an Arena. Are More Coming?**\
-`Onstage campaigning for an end to the war in Gaza is now common in the British music scene, and pro-Palestinian benefit shows can sell out huge venues.`\
-https://nytimes.com/2025/09/20/arts/music/together-for-palestine-kneecap.html
-
-**The Pulse: A Superteam that didn't quite hit**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6646212/2025/09/20/how-the-dodgers-became-something-other-than-a-superteam/
-
-**Historic Azerbaijan F1 mayhem sees Verstappen claim pole, Sainz second**\
-`A two-hour epic qualifying session saw six red flags and a stunning jumble for Sunday's grid.`\
-https://nytimes.com/athletic/6646684/2025/09/20/azerbaijan-gp-qualifying-results-max-verstappen-carlos-sainz/
 
