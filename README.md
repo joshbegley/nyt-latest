@@ -1,3 +1,7 @@
+**Man Utd's director of football Wilcox: 'I pray we get the opportunity to turn it round'**\
+`"I really feel that it’s not ‘will we win again’ it’s ‘when we’re going to win again’," Wilcox said.`\
+https://nytimes.com/athletic/6646504/2025/09/20/jason-wilcox-manchester-united-time/
+
 **Equipment Outage Disrupts More Than 1,000 Flights at Dallas Airports**\
 `A problem with telecommunications equipment forced the authorities to slow traffic at the city’s two main airports. Delays extended into Saturday.`\
 https://nytimes.com/2025/09/20/us/dallas-airports-flight-disruptions.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/20/crosswords/spelling-bee-forum.html
 **How to watch Nationals at Mets: Time, TV, streaming for September 20**\
 `Find out how to watch the Washington Nationals play the New York Mets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6646279/2025/09/20/how-to-watch-nationals-at-mets-tv-channel-and-streaming-options-for-september-20/
-
-**How to watch Mariners at Astros: Time, TV, streaming for September 20**\
-`Find out how to watch the Seattle Mariners play the Houston Astros, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6646277/2025/09/20/how-to-watch-mariners-at-astros-tv-channel-and-streaming-options-for-september-20/
 
