@@ -1,3 +1,7 @@
+**Mariners' Bryan Woo leaves pivotal AL West clash against Astros after 5 scoreless innings**\
+`Seattle's top starter this season left with the team's trainer before the sixth inning after allowing one hit and striking out seven.`\
+https://nytimes.com/athletic/6645917/2025/09/19/mariners-bryan-woo-leaves-game/
+
 **Chilling**\
 `Katie Hoody’s tough Saturday puzzle will shroud solvers in uncertainty.`\
 https://nytimes.com/2025/09/19/crosswords/daily-puzzle-2025-09-20.html

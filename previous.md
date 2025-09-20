@@ -1,3 +1,7 @@
+**Mariners' Bryan Woo leaves pivotal AL West clash against Astros after 5 scoreless innings**\
+`Seattle's top starter this season left with the team's trainer before the sixth inning after allowing one hit and striking out seven.`\
+https://nytimes.com/athletic/6645917/2025/09/19/mariners-bryan-woo-leaves-game/
+
 **Chilling**\
 `Katie Hoody’s tough Saturday puzzle will shroud solvers in uncertainty.`\
 https://nytimes.com/2025/09/19/crosswords/daily-puzzle-2025-09-20.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010411235/jimmy-kimmel-and-the-rise-of-c
 **The Best Flatware**\
 `Text by Michael Sullivan`\
 https://nytimes.com/card/2025/09/19/smarter-living/wirecutter/
-
-**What we're hearing about the Mets' pitching plans into the postseason**\
-`"Everything is on the table," manager Carlos Mendoza said pregame Friday.`\
-https://nytimes.com/athletic/6645438/2025/09/19/mets-pitching-plans-into-postseason/
 
