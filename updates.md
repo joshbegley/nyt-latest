@@ -1,3 +1,7 @@
+**The Pulse: A Superteam that didn't quite hit**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6646212/2025/09/20/how-the-dodgers-became-something-other-than-a-superteam/
+
 **Historic Azerbaijan F1 mayhem sees Verstappen claim pole, Sainz second**\
 `A two-hour epic qualifying session saw six red flags and a stunning jumble for Sunday's grid.`\
 https://nytimes.com/athletic/6646684/2025/09/20/azerbaijan-gp-qualifying-results-max-verstappen-carlos-sainz/
