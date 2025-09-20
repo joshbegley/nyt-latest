@@ -1,3 +1,7 @@
+**Top Democratic Leaders Ask Trump for Meeting to Avert a Shutdown**\
+`After a Republican plan to keep funding flowing foundered in the Senate, Representative Hakeem Jeffries and Senator Chuck Schumer accused the president of standing in the way of a solution.`\
+https://nytimes.com/2025/09/20/us/politics/jeffries-schumer-trump.html
+
 **New York Fashion Week in 30 Seconds**\
 `Our chief fashion critic Vanessa Friedman recaps this year’s New York Fashion Week in 30 seconds with reporter Dodai Stewart.`\
 https://nytimes.com/video/fashion/runway-couture/100000010405380/new-york-fashion-week-in-30-seconds.html
