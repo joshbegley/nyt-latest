@@ -1,3 +1,7 @@
+**Which Bruins are on the bubble? 8 players in camp dogfights**\
+`There are jobs up for grabs at Bruins camp. Here are the players eager to show they can fill them.`\
+https://nytimes.com/athletic/6645363/2025/09/20/which-bruins-are-on-the-bubble-8-players-in-camp-dogfights/
+
 **Standing Date**\
 `A weekly dinner party sounds so enticing, but establishing a ritual can be a challenge.`\
 https://nytimes.com/2025/09/20/briefing/standing-date.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6645446/2025/09/20/twins-lose-pablo-lopez-shut-down
 **Kirill Kaprizov contract over/under? Superstars on the move? Shocking trades? Ask CJ**\
 `This week's mailbag questions saw a heavy focus on what comes next for a variety of star players whose contracts are up in the air.`\
 https://nytimes.com/athletic/6645213/2025/09/20/kaprizov-mcdavid-cba-trades-nhl/
-
-**Ask your questions for the next Leaf Report podcast**\
-`<p>We&#8217;re back in the full swing of things now at <em>The Athletic</em> with NHL training camps underway and will be recording multiple podcasts in the week to come.`\
-https://nytimes.com/athletic/6644820/2025/09/20/ask-your-questions-for-the-next-leaf-report-podcast/
 
