@@ -1,3 +1,7 @@
+**Always 'time to ball out' for Braves' Matt Olson, who's close to another 30-100 season**\
+`Olson is finishing the season with such a flurry that he could wind up with his fourth 30-homer, 100-RBI season in the last five.`\
+https://nytimes.com/athletic/6645934/2025/09/19/braves-matt-olson-home-runs-rbis/
+
 **Mariners' Bryan Woo leaves pivotal AL West clash against Astros after 5 scoreless innings**\
 `Seattle's top starter this season left with the team's trainer before the sixth inning after allowing one hit and striking out seven.`\
 https://nytimes.com/athletic/6645917/2025/09/19/mariners-bryan-woo-leaves-game/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6645698/2025/09/19/braves-vs-tigers-stream-how-to-w
 **Jimmy Kimmel and the Rise of Corporate Censorship**\
 `Jimmy Kimmel’s suspension exposes a chilling new reality of the media bowing to political pressure from the Trump administration, the New York Times Opinion columnist M.`\
 https://nytimes.com/video/opinion/100000010411235/jimmy-kimmel-and-the-rise-of-corporate-censorship.html
-
-**The Best Flatware**\
-`Text by Michael Sullivan`\
-https://nytimes.com/card/2025/09/19/smarter-living/wirecutter/
 

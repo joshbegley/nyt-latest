@@ -1,3 +1,7 @@
+**Always 'time to ball out' for Braves' Matt Olson, who's close to another 30-100 season**\
+`Olson is finishing the season with such a flurry that he could wind up with his fourth 30-homer, 100-RBI season in the last five.`\
+https://nytimes.com/athletic/6645934/2025/09/19/braves-matt-olson-home-runs-rbis/
+
 **Mariners' Bryan Woo leaves pivotal AL West clash against Astros after 5 scoreless innings**\
 `Seattle's top starter this season left with the team's trainer before the sixth inning after allowing one hit and striking out seven.`\
 https://nytimes.com/athletic/6645917/2025/09/19/mariners-bryan-woo-leaves-game/
