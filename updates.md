@@ -1,3 +1,7 @@
+**Beckham, Neville admit Salford were in 'serious trouble' before new buyout**\
+`A delegation — including Beckham — will attend their first match since the buyout when Salford host Swindon Town on Saturday.`\
+https://nytimes.com/athletic/6645292/2025/09/20/david-beckham-gary-neville-salford-city-takeover/
+
 **MLB Playoff watch: Mariners grab West lead, Dodgers lock up spot; bracket, clinching scenarios**\
 `The Dodgers clinched a postseason berth and the Blue Jays and Tigers had nights to forget.`\
 https://nytimes.com/athletic/6645715/2025/09/20/mlb-playoff-watch-mariners-lead-dodgers-clinch/
