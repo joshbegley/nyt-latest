@@ -1,3 +1,7 @@
+**Gary Busey Sentenced to Two Years’ Probation for Sex Offense**\
+`The 81-year-old actor had admitted touching a woman’s buttocks over her clothing at a horror film convention in New Jersey in 2022.`\
+https://nytimes.com/2025/09/20/nyregion/gary-busey-sentenced-to-two-years-probation-for-sex-offense.html
+
 **Palace's Pino to have knee injury scan after win over West Ham**\
 `The 22-year-old was brought off at half-time after a collision with Callum Wilson in the first half of Saturday's game`\
 https://nytimes.com/athletic/6647174/2025/09/20/yeremy-pino-crystal-palace-knee-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/20/opinion/maga-trump-debate-kirk.html
 **WATCH: How the Lions fooled the Bears on this wide-open 44-Yard TD**\
 `Watch how the Lions methodically set up an untouched 44-Yard TD.`\
 https://nytimes.com/athletic/6646937/2025/09/20/jameson-williams-touchdown-bears/
-
-**The Briefing: Brighton 2 Tottenham 2 – Simons introduction helps turn tide on south coast**\
-`Spurs came back from 2-0 down to claim a point at Brighton & Hove Albion, thanks to a vastly improved second-half performance`\
-https://nytimes.com/athletic/6637225/2025/09/20/brighton-2-tottenham-2-xavi-simons/
 
