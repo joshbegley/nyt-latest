@@ -1,3 +1,11 @@
+**U.S. Military Buildup in Caribbean Signals Broader Campaign Against Venezuela**\
+`Trump officials say the mission aims to disrupt the drug trade. But military officials and analysts say the real goal might be driving Venezuela’s president from power.`\
+https://nytimes.com/2025/09/20/us/politics/trump-venezuela-military-buildup.html
+
+**A Benefit for the Palestinian Cause Filled an Arena. Are More Coming?**\
+`Onstage campaigning for an end to the war in Gaza is now common in the British music scene, and pro-Palestinian benefit shows can sell out huge venues.`\
+https://nytimes.com/2025/09/20/arts/music/together-for-palestine-kneecap.html
+
 **The Pulse: A Superteam that didn't quite hit**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6646212/2025/09/20/how-the-dodgers-became-something-other-than-a-superteam/
