@@ -1,3 +1,7 @@
+**New York Fashion Week in 30 Seconds**\
+`Our chief fashion critic Vanessa Friedman recaps this year’s New York Fashion Week in 30 seconds with reporter Dodai Stewart.`\
+https://nytimes.com/video/fashion/runway-couture/100000010405380/new-york-fashion-week-in-30-seconds.html
+
 **Trump Escalates Attack on Free Speech**\
 `Zolan Kanno-Youngs, a White House correspondent for The New York Times, describes how the Trump administration’s pressuring of ABC to take action against Jimmy Kimmel is part of a broader crackdown by the administration since the assassination of Charlie Kirk.`\
 https://nytimes.com/video/us/politics/100000010409626/trump-escalates-attack-on-free-speech.html
