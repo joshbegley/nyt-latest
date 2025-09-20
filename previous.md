@@ -1,3 +1,11 @@
+**West Ham's problems, explained by fans (and a former player)**\
+`Fans are planning protests against the owners on Saturday. This is what they view as the problems`\
+https://nytimes.com/athletic/6640118/2025/09/20/west-ham-problems-stadium-potter-explained/
+
+**How do Manchester United coax the best from Benjamin Sesko?**\
+`The big-money signing has played only 282 minutes of football for United so far, but there are ways his new team-mates can help him thrive`\
+https://nytimes.com/athletic/6634533/2025/09/20/benjamin-sesko-manchester-united-analysis/
+
 **A new CEO, more KSE influence and an Emmy winner: Who's on Arsenal's new-look board?**\
 `Arsenal have announced a major reshuffle at board level, with former executive vice-chair Tim Lewis leaving the club`\
 https://nytimes.com/athletic/6643882/2025/09/20/arsenal-board-richard-garlick-ben-winston-who/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6645777/2025/09/20/connections-sports-edition-hints
 **Mondo Duplantis exclusive: 14-time pole vault world-record holder analyzes his greatest jumps**\
 `The world and Olympic pole vault champion talks exclusively to The Athletic about his career, and his plans to jump 6.40m`\
 https://nytimes.com/athletic/6642767/2025/09/20/mondo-duplantis-interview-world-records/
-
-**Corrections: Sept. 20, 2025**\
-`Corrections that appeared in print on Saturday, Sept. 20, 2025.`\
-https://nytimes.com/2025/09/20/pageoneplus/corrections-sept-20-2025.html
-
-**Clayton Kershaw gets standing ovation after final regular-season start at Dodger Stadium**\
-`The Dodger Stadium crowd roared after the future Hall of Famer ended his outing with a strikeout.`\
-https://nytimes.com/athletic/6646087/2025/09/19/clayton-kershaw-dodger-stadium-retirement/
 
