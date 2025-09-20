@@ -1,3 +1,7 @@
+**Should Oklahoma's first touchdown against Auburn have been flagged?**\
+`The NCAA rule book states that 'no tactic associated with substitutes or the substitution process may be used to confuse opponents.'`\
+https://nytimes.com/athletic/6647531/2025/09/20/oklahoma-auburn-isaiah-sategna-touchdown-penalty/
+
 **4 Men Are Sentenced in Warrant Scam That Was Run From Prison**\
 `They used a drone to drop cellphones into a Georgia prison yard, where an inmate coordinated a scheme targeting women who were medical workers in multiple states, prosecutors said.`\
 https://nytimes.com/2025/09/20/us/warrant-scam-prison.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6647386/2025/09/20/texas-tech-utah-defense-nil-big-
 **Aziz Olajuwon, son of NBA Hall of Famer Hakeem, commits to Stanford**\
 `The Houston native chose Stanford over Vanderbilt, Houston and Cincinnati, becoming the 10th-highest-rated recruit in program history.`\
 https://nytimes.com/athletic/6646241/2025/09/20/hakeem-olajuwon-son-aziz-stanford-basketball/
-
-**Maresca: Palmer 'not 100%' with groin injury before Man Utd defeat**\
-`The 23-year-old has missed two games this season with an injury that he has not fully recovered from`\
-https://nytimes.com/athletic/6576736/2025/09/20/cole-palmer-chelsea-injury-manchester-united/
 
