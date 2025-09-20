@@ -1,5 +1,5 @@
 **The Briefing: Liverpool 2 Everton 1 – how worried should champions' rivals be after five wins from five?**\
-`The big talking points analysed as Liverpool recorded a hard-earned win over their Merseyside rivals`\
+`The big talking points analysed as Arne Slot's side recorded a hard-earned win over their Merseyside rivals`\
 https://nytimes.com/athletic/6637224/2025/09/20/liverpool-everton-result-analysis/
 
 **Anna Hall wins first U.S. heptathlon world title since Jackie Joyner-Kersee in 1993**\
