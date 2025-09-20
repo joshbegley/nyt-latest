@@ -1,3 +1,7 @@
+**MLB playoff watch: Mariners grab West lead, Dodgers lock up spot; bracket, clinching scenarios**\
+`The Dodgers clinched a postseason berth and the Blue Jays and Tigers had nights to forget.`\
+https://nytimes.com/athletic/6645715/2025/09/20/mlb-playoff-watch-mariners-lead-dodgers-clinch/
+
 **The Briefing: Liverpool 2 Everton 1 – how worried should champions' rivals be after five wins from five?**\
 `The big talking points analysed as Arne Slot's side recorded a hard-earned win over their Merseyside rivals`\
 https://nytimes.com/athletic/6637224/2025/09/20/liverpool-everton-result-analysis/
