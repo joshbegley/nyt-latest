@@ -1,3 +1,11 @@
+**Mets get the Ryan Helsley they need on night Juan Soto hits career-best 42nd homer**\
+`Helsley's seventh-inning relief appearance stood out as the Mets' most important development in Friday's 12-6 win over the Nationals.`\
+https://nytimes.com/athletic/6646027/2025/09/19/juan-soto-42-home-runs-mets-nationals/
+
+**Mercury knock out defending champion Liberty, will face Lynx in semifinals**\
+`Breanna Stewart was a woman possessed in the elimination game, but her team failed to provide much support.`\
+https://nytimes.com/athletic/6646081/2025/09/19/wnba-playoffs-mercury-liberty-game-3/
+
 **Always 'time to ball out' for Braves' Matt Olson, who's close to another 30-100 season**\
 `Olson is finishing the season with such a flurry that he could wind up with his fourth 30-homer, 100-RBI season in the last five.`\
 https://nytimes.com/athletic/6645934/2025/09/19/braves-matt-olson-home-runs-rbis/
