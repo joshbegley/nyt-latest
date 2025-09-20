@@ -1,3 +1,7 @@
+**MLB Playoff watch: Mariners grab West lead, Dodgers lock up spot; bracket, clinching scenarios**\
+`The Dodgers clinched a postseason berth and the Blue Jays and Tigers had nights to forget.`\
+https://nytimes.com/athletic/6645715/2025/09/20/mlb-playoff-watch-mariners-lead-dodgers-clinch/
+
 **How to watch Bournemouth vs. Newcastle from U.S.: Eddie Howe faces old club Sunday**\
 `Eddie Howe returns to the ground that launched his managerial career on Sunday, but this is no sentimental reminiscence.`\
 https://nytimes.com/athletic/6645289/2025/09/20/bournemouth-vs-newcastle-how-to-watch-us/
