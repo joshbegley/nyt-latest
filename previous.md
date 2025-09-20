@@ -1,3 +1,7 @@
+**How realistic is a Sidney Crosby trade for each NHL team?**\
+`Amid speculation around Crosby's future with the Penguins, we assess how possible a deal involving the star captain might be for each club.`\
+https://nytimes.com/athletic/6640853/2025/09/20/sidney-crosby-trade-options-all-32-nhl-teams/
+
 **Which Bruins are on the bubble? 8 players in camp dogfights**\
 `There are jobs up for grabs at Bruins camp. Here are the players eager to show they can fill them.`\
 https://nytimes.com/athletic/6645363/2025/09/20/which-bruins-are-on-the-bubble-8-players-in-camp-dogfights/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6644391/2025/09/20/bill-cowher-steelers-leadership-
 **Twins lose Pablo López to tight forearm, shut down Matt Wallner for the season**\
 `López is scheduled to undergo further testing, and Wallner's up-and-down season ends with an injury and lots of future questions.`\
 https://nytimes.com/athletic/6645446/2025/09/20/twins-lose-pablo-lopez-shut-down-matt-wallner/
-
-**Kirill Kaprizov contract over/under? Superstars on the move? Shocking trades? Ask CJ**\
-`This week's mailbag questions saw a heavy focus on what comes next for a variety of star players whose contracts are up in the air.`\
-https://nytimes.com/athletic/6645213/2025/09/20/kaprizov-mcdavid-cba-trades-nhl/
 
