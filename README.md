@@ -1,4 +1,8 @@
-**The Briefing: Brighton 2 Tottenham 2 - Simons introduction helps turn tide on south coast**\
+**WATCH: How the Lions fooled the Bears on this wide-open 44-Yard TD**\
+`Watch how the Lions methodically set up an untouched 44-Yard TD.`\
+https://nytimes.com/athletic/6646937/2025/09/20/jameson-williams-touchdown-bears/
+
+**The Briefing: Brighton 2 Tottenham 2 – Simons introduction helps turn tide on south coast**\
 `Spurs came back from 2-0 down to claim a point at Brighton and Hove Albion, thanks to a vastly improved second half performance`\
 https://nytimes.com/athletic/6637225/2025/09/20/brighton-2-tottenham-2-xavi-simons/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/20/dining/make-ahead-egg-wraps-for-weekday-superhero
 **U.S. Military Buildup in Caribbean Signals Broader Campaign Against Venezuela**\
 `Trump officials say the mission aims to disrupt the drug trade. But military officials and analysts say the real goal might be driving Venezuela’s president from power.`\
 https://nytimes.com/2025/09/20/us/politics/trump-venezuela-military-buildup.html
-
-**A Benefit for the Palestinian Cause Filled an Arena. Are More Coming?**\
-`Onstage campaigning for an end to the war in Gaza is now common in the British music scene, and pro-Palestinian benefit shows can sell out huge venues.`\
-https://nytimes.com/2025/09/20/arts/music/together-for-palestine-kneecap.html
 
