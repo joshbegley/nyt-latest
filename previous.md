@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, Sep. 20, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/20/todays-new-york-times
+
 **West Ham's problems, explained by fans (and a former player): 'We're heading towards the Championship'**\
 `Fans are planning protests against the owners on Saturday. This is what they view as the problems`\
 https://nytimes.com/athletic/6640118/2025/09/20/west-ham-problems-stadium-potter-explained/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/20/world/asia/south-korea-incheon-us-bond.html
 **Connections: Sports Edition Coach: Hints for Sept. 20, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6645777/2025/09/20/connections-sports-edition-hints-for-sept-20-2025/
-
-**Mondo Duplantis exclusive: 14-time pole vault world-record holder analyzes his greatest jumps**\
-`The world and Olympic pole vault champion talks exclusively to The Athletic about his career, and his plans to jump 6.40m`\
-https://nytimes.com/athletic/6642767/2025/09/20/mondo-duplantis-interview-world-records/
 

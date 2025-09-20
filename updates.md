@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, Sep. 20, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/20/todays-new-york-times
+
 **Chelsea played the long game to sign Alejandro Garnacho from Manchester United**\
 `The 21-year-old is set to return Old Trafford in a blue shirt on Saturday, just three weeks after a £40m move to west London`\
 https://nytimes.com/athletic/6644323/2025/09/20/alejandro-garnacho-chelsea-manchester-united-40-million/
