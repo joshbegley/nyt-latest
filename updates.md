@@ -1,3 +1,7 @@
+**Anna Hall wins first U.S. heptathlon world title since Jackie Joyner-Kersee in 1993**\
+`The American won the 800-meter on Saturday to clinch a long-anticipated gold and end a 33-year U.S. drought in the event at worlds.`\
+https://nytimes.com/athletic/6646705/2025/09/20/anna-hall-heptathlon-world-championships-gold-jackie-joyner-kersee/
+
 **Eagles notes: Accountability from Hurts, Carter's conditioning, Tush Push reaction**\
 `Plus: The return of tight end Dallas Goedert and a prediction ahead of Sunday's game against the Rams.`\
 https://nytimes.com/athletic/6645991/2025/09/20/eagles-jalen-hurts-jalen-carter-tush-push/
