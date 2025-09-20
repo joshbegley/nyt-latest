@@ -1,3 +1,23 @@
+**A new CEO, more KSE influence and an Emmy winner: Who's on Arsenal's new-look board?**\
+`Arsenal have announced a major reshuffle at board level, with former executive vice-chair Tim Lewis leaving the club`\
+https://nytimes.com/athletic/6643882/2025/09/20/arsenal-board-richard-garlick-ben-winston-who/
+
+**Another week of Real Madrid v referees: One red card, three appeals, same result**\
+`Huijsen was sent off in Madrid's win against Real Sociedad. It provided another flashpoint in the club's long-running battle with referees`\
+https://nytimes.com/athletic/6644377/2025/09/20/real-madrid-dean-huijsen-red-card-explained/
+
+**Why skeletal tracking is football analytics' new chapter**\
+`Tracking footballers' biomechanics generates millions of data points, and can enhance recruitment, player analysis and officiating `\
+https://nytimes.com/athletic/6634217/2025/09/20/skeletal-tracking-football-analysis-premier-league/
+
+**How Chelsea bided their time to sign Alejandro Garnacho**\
+`The 21-year-old is set to return Old Trafford in a blue shirt on Saturday, just three weeks after a £40m move to west London`\
+https://nytimes.com/athletic/6644323/2025/09/20/alejandro-garnacho-chelsea-manchester-united-40-million/
+
+**Why is goalscoring down in the Premier League at the start of this season?**\
+`A rate of 2.34 goals per game after four matchweeks is the lowest in any Premier League season in the last decade`\
+https://nytimes.com/athletic/6640018/2025/09/20/premier-league-goalscoring-down-analysis/
+
 **The City That Embodies the U.S.-Korea Bond, Even in the Trump Era**\
 `Incheon, the site of a crucial battle of the Korean War, has a singular place in South Korea’s modern history and in its ties with the United States.`\
 https://nytimes.com/2025/09/20/world/asia/south-korea-incheon-us-bond.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/09/20/pageoneplus/corrections-sept-20-2025.html
 **Clayton Kershaw gets standing ovation after final regular-season start at Dodger Stadium**\
 `The Dodger Stadium crowd roared after the future Hall of Famer ended his outing with a strikeout.`\
 https://nytimes.com/athletic/6646087/2025/09/19/clayton-kershaw-dodger-stadium-retirement/
-
-**Yankees’ ‘upsetting’ loss blows key AL East chance: 'Worst play I’ve ever made'**\
-`With Friday's 4-2 loss to the Orioles, the Yankees squandered a key chance to gain ground on the first-place Blue Jays.`\
-https://nytimes.com/athletic/6646013/2025/09/19/yankees-will-warren-loss-orioles-al-east/
-
-**Quote of the Day: As Farm Aid Reaches 40 Years, It Deals With Some Familiar Crises**\
-`Quotation of the Day for Saturday, September 20, 2025.`\
-https://nytimes.com/2025/09/19/pageoneplus/quote-of-the-day-as-farm-aid-reaches-40-years-it-deals-with-some-familiar-crises.html
-
-**Mets get the Ryan Helsley they need on night Juan Soto hits career-best 42nd homer**\
-`Helsley's seventh-inning relief appearance stood out as the Mets' most important development in Friday's 12-6 win over the Nationals.`\
-https://nytimes.com/athletic/6646027/2025/09/19/juan-soto-42-home-runs-mets-nationals/
-
-**Mercury knock out defending champion Liberty, will face Lynx in semifinals**\
-`Breanna Stewart was a woman possessed in the elimination game, but her team failed to provide much support.`\
-https://nytimes.com/athletic/6646081/2025/09/19/wnba-playoffs-mercury-liberty-game-3/
-
-**Always 'time to ball out' for Braves' Matt Olson, who's close to another 30-100 season**\
-`Olson is finishing the season with such a flurry that he could wind up with his fourth 30-homer, 100-RBI season in the last five.`\
-https://nytimes.com/athletic/6645934/2025/09/19/braves-matt-olson-home-runs-rbis/
 
