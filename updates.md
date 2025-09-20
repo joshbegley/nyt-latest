@@ -1,3 +1,11 @@
+**Aziz Olajuwon, son of NBA Hall of Famer Hakeem, commits to Stanford**\
+`The Houston native chose Stanford over Vanderbilt, Houston and Cincinnati, becoming the 10th-highest-rated recruit in program history.`\
+https://nytimes.com/athletic/6646241/2025/09/20/hakeem-olajuwon-son-aziz-stanford-basketball/
+
+**Maresca: Palmer 'not 100%' with groin injury before Man Utd defeat**\
+`The 23-year-old has missed two games this season with an injury that he has not fully recovered from`\
+https://nytimes.com/athletic/6576736/2025/09/20/cole-palmer-chelsea-injury-manchester-united/
+
 **Chelsea's Palmer 'not 100%' with injury before Man Utd tie, Maresca says**\
 `The 23-year-old has missed two games this season with an injury that he has not fully recovered from`\
 https://nytimes.com/athletic/6576736/2025/09/20/cole-palmer-chelsea-injury-manchester-united/
