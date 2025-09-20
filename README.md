@@ -1,40 +1,40 @@
-**Man Utd's director of football Wilcox: 'I pray we get the opportunity to turn it round'**\
-`"I really feel that it’s not ‘will we win again’ it’s ‘when we’re going to win again’," Wilcox said.`\
-https://nytimes.com/athletic/6646504/2025/09/20/jason-wilcox-manchester-united-time/
+**Why Support for Political Violence Is Not as High as It May Seem**\
+`A tiny percentage of Americans support it in any meaningful sense, despite what some polls may show.`\
+https://nytimes.com/2025/09/20/upshot/polls-political-violence.html
 
-**Equipment Outage Disrupts More Than 1,000 Flights at Dallas Airports**\
-`A problem with telecommunications equipment forced the authorities to slow traffic at the city’s two main airports. Delays extended into Saturday.`\
-https://nytimes.com/2025/09/20/us/dallas-airports-flight-disruptions.html
+**Seeing Through the Reality of Meta’s Smart Glasses**\
+`Mark Zuckerberg’s glitch-filled unveiling of computerized glasses revealed a company that may struggle to deliver on its promise for the future of computing.`\
+https://nytimes.com/2025/09/20/technology/personaltech/meta-smart-glasses-mark-zuckerberg.html
 
-**How to watch Phillies at Diamondbacks: Time, TV, streaming for September 20**\
-`Find out how to watch the Philadelphia Phillies play the Arizona Diamondbacks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6646396/2025/09/20/phillies-vs-diamondbacks-stream-how-to-watch-sept-20/
+**What to Know About Charlie Kirk’s Memorial Service in Arizona**\
+`The conservative activist will be honored in a public program on Sunday, with President Trump and several top administration officials expected to speak.`\
+https://nytimes.com/2025/09/20/us/charlie-kirk-funeral-memorial-time-guests.html
 
-**Five-Alarm Fire on Brooklyn Waterfront Devastates Artists’ Warehouse**\
-`A row of converted 19th-century buildings filled with artists in the 1990s and transformed Red Hook. Now the work of more than 500 artists may be lost.`\
-https://nytimes.com/2025/09/20/nyregion/red-hook-warehouse-fire.html
+**The ‘Manosphere’ Reacts to the Jimmy Kimmel News**\
+`They didn’t like what the host said, but weren’t in agreement on ABC’s handling of the matter.`\
+https://nytimes.com/2025/09/20/style/the-manosphere-reacts-to-the-jimmy-kimmel-news.html
 
-**4 Takeaways From the Times Investigation Into the J-1 Visa Program**\
-`Some American companies have used the cultural exchange program as a supply of cheap, exploitable labor, records and interviews show.`\
-https://nytimes.com/2025/09/20/nyregion/j-1-visa-investigation-takeaways.html
+**Inside The Times’s Reporting and Judgment Calls on Charlie Kirk’s Assassination**\
+`We gathered some of the journalists closely involved to discuss how we approached coverage and to answer readers’ questions about it.`\
+https://nytimes.com/2025/09/20/us/charlie-kirk-shooting-news-coverage.html
 
-**They Were Promised a Taste of America. They Got Abuse and Exploitation.**\
-`Every year, tens of thousands of young people are sent on visas to toil as farmworkers, housekeepers and office interns, all in the name of cultural exchange.`\
-https://nytimes.com/2025/09/20/nyregion/j1-visa-foreign-workers.html
+**What to Know About Jimmy Kimmel’s Show Being Suspended**\
+`Tension grew at ABC after Mr. Kimmel’s remarks about the Charlie Kirk killing angered conservatives.`\
+https://nytimes.com/2025/09/20/business/jimmy-kimmel-show-abc-kirk-fcc.html
 
-**How Jon Lampley Spends a Day Getting Ready for ‘The Late Show’**\
-`Mr. Lampley grabs his running shoes for a day full of music, sushi and maybe a little sci-fi.`\
-https://nytimes.com/2025/09/20/nyregion/jon-lampley-late-show.html
+**Here Comes the Sun Day**\
+`Fifty-five years after the first Earth Day, climate activists are organizing a nationwide celebration of solar power.`\
+https://nytimes.com/2025/09/20/climate/solar-power-sun-day.html
 
-**Why the J-1 Visa Program Is Broken**\
-`Every year, tens of thousands of young people from countries around the world go to work in the United States as part of an exchange program that is supposed to showcase the best that America has to offer.`\
-https://nytimes.com/video/us/100000010391302/why-the-j-1-visa-program-is-broken.html
+**Being a High-Profile Comedian Right Now Is No Joke**\
+`With the suspension of Jimmy Kimmel on the heels of the cancellation of Stephen Colbert’s show, the landscape has unquestionably shifted for comics and hosts.`\
+https://nytimes.com/2025/09/20/arts/television/jimmy-kimmel-fallon-censorship.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/09/20/crosswords/spelling-bee-forum.html
+**Inspired by Conservative Tactics, an Obscure Group Seeks Sway for Democrats**\
+`A liberal group that was spun off from a network funded by George Soros is looking to build off 2024 victories in Florida to help elect candidates to school boards and other local offices.`\
+https://nytimes.com/2025/09/20/us/politics/pipeline-fund-democrats-local-elections.html
 
-**How to watch Nationals at Mets: Time, TV, streaming for September 20**\
-`Find out how to watch the Washington Nationals play the New York Mets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6646279/2025/09/20/how-to-watch-nationals-at-mets-tv-channel-and-streaming-options-for-september-20/
+**He Wrote a Biting Post About Charlie Kirk. The Fury Came Fast.**\
+`Residents of Palmetto Bay, Fla., have demanded the resignation of Councilman Stephen Cody, who wrote a post mocking Charlie Kirk’s support for gun rights.`\
+https://nytimes.com/2025/09/20/us/florida-charlie-kirk-free-speech.html
 

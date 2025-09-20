@@ -1,3 +1,7 @@
+**Man Utd's director of football Wilcox: 'I pray we get the opportunity to turn it round'**\
+`"I really feel that it’s not ‘will we win again’ it’s ‘when we’re going to win again’," Wilcox said.`\
+https://nytimes.com/athletic/6646504/2025/09/20/jason-wilcox-manchester-united-time/
+
 **Equipment Outage Disrupts More Than 1,000 Flights at Dallas Airports**\
 `A problem with telecommunications equipment forced the authorities to slow traffic at the city’s two main airports. Delays extended into Saturday.`\
 https://nytimes.com/2025/09/20/us/dallas-airports-flight-disruptions.html
