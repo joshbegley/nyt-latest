@@ -1,3 +1,7 @@
+**Chilling**\
+`Katie Hoody’s tough Saturday puzzle will shroud solvers in uncertainty.`\
+https://nytimes.com/2025/09/19/crosswords/daily-puzzle-2025-09-20.html
+
 **Trump Says U.S. Military Attacked a Third Suspected Drug Boat, Killing Three**\
 `It was the third time this month that the president said the United States had struck a vessel in the Caribbean Sea.`\
 https://nytimes.com/2025/09/19/us/politics/trump-boat-strike-drugs.html
@@ -33,8 +37,4 @@ https://nytimes.com/card/2025/09/19/smarter-living/wirecutter/
 **What we're hearing about the Mets' pitching plans into the postseason**\
 `"Everything is on the table," manager Carlos Mendoza said pregame Friday.`\
 https://nytimes.com/athletic/6645438/2025/09/19/mets-pitching-plans-into-postseason/
-
-**The 9.21.25 Issue**\
-``\
-https://nytimes.com/issue/magazine/2025/09/19/the-92125-issue
 
