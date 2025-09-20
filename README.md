@@ -1,5 +1,5 @@
 **Australia on top but USA has a day to forget in Geneva**\
-`Australia leads Britain by two points after the first day of racing in Geneva, but it was another day to forget for the U.S. team`\
+`Australia leads Britain by two points after the first day of racing in Geneva, but it was another "super frustrating" day for the U.S. team`\
 https://nytimes.com/athletic/6647037/2025/09/20/switzerland-sailgp-day-one-report/
 
 **Potter understands West Ham job scrutiny after fourth 2025-26 league loss**\
