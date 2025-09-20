@@ -1,3 +1,7 @@
+**Chelsea played the long game to sign Alejandro Garnacho from Manchester United**\
+`The 21-year-old is set to return Old Trafford in a blue shirt on Saturday, just three weeks after a £40m move to west London`\
+https://nytimes.com/athletic/6644323/2025/09/20/alejandro-garnacho-chelsea-manchester-united-40-million/
+
 **Skeletal tracking is football analytics' new chapter - this is why**\
 `Tracking footballers' biomechanics generates millions of data points, and can enhance recruitment, player analysis and officiating `\
 https://nytimes.com/athletic/6634217/2025/09/20/skeletal-tracking-football-analysis-premier-league/
