@@ -1,3 +1,15 @@
+**The Calm Before the Beers**\
+`Until the taps open at Oktoberfest, it’s a nonalcoholic mix of card games, soft drinks and waiting.`\
+https://nytimes.com/2025/09/20/world/europe/germany-munich-oktoberfest.html
+
+**The Briefing: Wolves 1 Leeds 3 – Farke's new boys shine as Wolves enter crisis mode**\
+`Daniel Farke's attack finally click – but where does this defeat leave Vitor Pereira?`\
+https://nytimes.com/athletic/6637226/2025/09/20/wolves-1-leeds-3-calvert-lewin-analysis/
+
+**U.S. reaches first Billie Jean King Cup final since 2018 with win over Great Britain**\
+`Emma Navarro and Jessica Pegula got the better of Sonay Kartal and Katie Boulter to reach Sunday's final.`\
+https://nytimes.com/athletic/6646929/2025/09/20/united-states-billie-jean-cup-final-navarro-pegula/
+
 **U.S. reach first Billie Jean King Cup final since 2018 with win over GB**\
 `Emma Navarro and Jessica Pegula got the better of Sonay Kartal and Katie Boulter to reach Sunday's final.`\
 https://nytimes.com/athletic/6646929/2025/09/20/united-states-billie-jean-cup-final-navarro-pegula/
