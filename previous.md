@@ -1,3 +1,11 @@
+**Trump Says U.S. Military Attacked a Third Suspected Drug Boat, Killing Three**\
+`It was the third time this month that the president said the United States had struck a vessel in the Caribbean Sea.`\
+https://nytimes.com/2025/09/19/us/politics/trump-boat-strike-drugs.html
+
+**Jazz Chisholm Jr. becomes third player in Yankees history to join 30-30 club**\
+`Chisholm is the first Yankee to have 30 home runs and 30 stolen bases in a season since Alfonso Soriano in 2003.`\
+https://nytimes.com/athletic/6631909/2025/09/19/jazz-chisholm-yankees-30-30-club/
+
 **Trump Says Critical Coverage of Him Is ‘Really Illegal’**\
 `It remained unclear why the president believed negative news coverage, which all of his predecessors have faced and is protected by the Constitution, would be against the law.`\
 https://nytimes.com/2025/09/19/us/politics/trump-media-news-free-speech.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6645438/2025/09/19/mets-pitching-plans-into-postsea
 **The 9.21.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/09/19/the-92125-issue
-
-**Harris Assails ABC Suspension of Kimmel as ‘Rewarding’ Trump**\
-`In an interview ahead of her new book’s release, former Vice President Kamala Harris warned that President Trump would only grow more emboldened in crushing dissent.`\
-https://nytimes.com/2025/09/19/us/politics/harris-abc-kimmel-trump.html
-
-**The Debate Over the Kirk Shooting Suspect’s Motive and Ideology**\
-`Spencer Cox, the governor of Utah, reflects on what understanding the Kirk shooting suspect’s ideology can — and can’t — reveal.`\
-https://nytimes.com/video/opinion/100000010407786/the-debate-over-the-kirk-shooting-suspects-motive-and-ideology.html
 
