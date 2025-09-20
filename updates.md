@@ -1,3 +1,11 @@
+**Australia on top but USA has a day to forget in Geneva**\
+`Australia leads Britain by two points after the first day of racing in Geneva, but it was another day to forget for the U.S. team`\
+https://nytimes.com/athletic/6647037/2025/09/20/switzerland-sailgp-day-one-report/
+
+**Potter understands West Ham job scrutiny after fourth 2025-26 league loss**\
+`Hundreds of supporters staged a protest march before Potter's side's defeat against Crystal Palace on Saturday`\
+https://nytimes.com/athletic/6647214/2025/09/20/graham-potter-west-ham-job-premier-league-loss/
+
 **Gary Busey Sentenced to Two Years’ Probation for Sex Offense**\
 `The 81-year-old actor had admitted touching a woman’s buttocks over her clothing at a horror film convention in New Jersey in 2022.`\
 https://nytimes.com/2025/09/20/nyregion/gary-busey-sentenced-to-two-years-probation-for-sex-offense.html
