@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6645450/2025/09/20/oilers-goalies-skinner-pickard-p
 `Data center capacity has become a barometer for both the health of the tech market and the risk of an A.I. bubble.`\
 https://nytimes.com/2025/09/20/business/dealbook/data-centers-ai.html
 
-**Beckham, Neville admit Salford in 'serious trouble' before new ownership buyout**\
+**Beckham, Neville admit Salford in 'serious trouble' before new buyout**\
 `A delegation — including Beckham — will attend their first match since the buyout when Salford host Swindon Town on Saturday.`\
 https://nytimes.com/athletic/6645292/2025/09/20/david-beckham-gary-neville-salford-city-takeover/
 
