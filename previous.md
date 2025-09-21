@@ -1,3 +1,7 @@
+**Minteh is helping Brighton cope without Joao Pedro – but they need to fix away form**\
+`Six players have scored for Fabian Hurzeler's side this season, adding to their unpredictability`\
+https://nytimes.com/athletic/6634496/2025/09/21/minteh-brighton-joao-pedro-carlos-baleba/
+
 **Arsenal vs Manchester City preview: Who has the best chance of winning Sunday's blockbuster?**\
 `Dan Sheldon and Jordan Campbell preview the Premier League showdown between Arsenal and Manchester City`\
 https://nytimes.com/athletic/6644211/2025/09/21/arsenal-manchester-city-preview-arteta-guardiola/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6647225/2025/09/21/connections-sports-edition-hints
 **No Corrections: Sept. 21, 2025**\
 `No corrections appeared in print on Sunday, Sept. 21, 2025.`\
 https://nytimes.com/2025/09/21/pageoneplus/no-corrections-sept-21-2025.html
-
-**Arch Manning totals 5 TDs as Texas gets lopsided win over Sam Houston**\
-`Arch Manning has looked uncomfortable the first few weeks of the season but had his strongest game so far against Sam Houston. `\
-https://nytimes.com/athletic/6648100/2025/09/20/arch-manning-texas-sam-houston/
 

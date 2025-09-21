@@ -1,3 +1,11 @@
+**Defeat to Liverpool shows Everton don't yet have capacity for striking gold**\
+`Even with a new stadium, David Moyes' side are shopping in a different market to their Merseyside rivals`\
+https://nytimes.com/athletic/6647300/2025/09/21/everton-liverpool-strikers-budget/
+
+**How Wrexham shackled USMNT's Sargent**\
+`Phil Parkinson rates Sargent as the "best striker in the league". So how did his side keep the Norwich striker quiet?`\
+https://nytimes.com/athletic/6637192/2025/09/21/how-wrexham-shackled-usmnts-josh-sargent/
+
 **Minteh is helping Brighton cope without Joao Pedro – but they need to fix away form**\
 `Six players have scored for Fabian Hurzeler's side this season, adding to their unpredictability`\
 https://nytimes.com/athletic/6634496/2025/09/21/minteh-brighton-joao-pedro-carlos-baleba/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6648210/2025/09/21/athletics-vs-pirates-stream-how-
 **Quote of the Day: Scathing Post On Kirk Killing Disquiets Town**\
 `Quotation of the Day for Sunday, September 21, 2025.`\
 https://nytimes.com/2025/09/21/pageoneplus/quote-of-the-day-scathing-post-on-kirk-killing-disquiets-town.html
-
-**Connections: Sports Edition Coach: Hints for Sept. 21, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6647225/2025/09/21/connections-sports-edition-hints-for-sept-21-2025/
-
-**No Corrections: Sept. 21, 2025**\
-`No corrections appeared in print on Sunday, Sept. 21, 2025.`\
-https://nytimes.com/2025/09/21/pageoneplus/no-corrections-sept-21-2025.html
 

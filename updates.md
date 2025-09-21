@@ -1,3 +1,7 @@
+**Minteh is helping Brighton cope without Joao Pedro – but they need to fix away form**\
+`Six players have scored for Fabian Hurzeler's side this season, adding to their unpredictability`\
+https://nytimes.com/athletic/6634496/2025/09/21/minteh-brighton-joao-pedro-carlos-baleba/
+
 **Arsenal vs Manchester City preview: Who has the best chance of winning Sunday's blockbuster?**\
 `Dan Sheldon and Jordan Campbell preview the Premier League showdown between Arsenal and Manchester City`\
 https://nytimes.com/athletic/6644211/2025/09/21/arsenal-manchester-city-preview-arteta-guardiola/
