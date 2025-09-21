@@ -1,3 +1,11 @@
+**Texans vs Jaguars takeaways: Jacksonville's gritty defense lifts them 2-1**\
+`Texans fall to 0-3 for the first time since 2018.`\
+https://nytimes.com/athletic/6649148/2025/09/21/texans-jaguars-score-result-takeaways-2/
+
+**Jonathan Taylor's big game leads undefeated Colts past Titans**\
+`Taylor ran for 102 yards and three touchdowns as the Colts improved to 3-0 against the winless Titans.`\
+https://nytimes.com/athletic/6649344/2025/09/21/colts-titans-41-20-result-takeaways/
+
 **Steelers vs. Patriots takeaways: Aaron Rodgers' late TD lifts Pittsburgh**\
 `New England fumbles chances, committing five turnovers as Steelers win defensive struggle.`\
 https://nytimes.com/athletic/6649216/2025/09/21/steelers-patriots-score-result-takeaways/

@@ -1,4 +1,16 @@
-**Texans vs Jaguars takeaways: Jacksonville's gritty defense lifts them 2-1**\
+**Blue Jays clinch postseason berth; eye first AL East title since 2015**\
+`The Blue Jays return to the postseason for the fourth time in the past six seasons, though they haven't won a playoff game since 2016.`\
+https://nytimes.com/athletic/6644958/2025/09/21/blue-jays-clinch-postseason-berth/
+
+**Bengals vs Vikings takeaways: Cincinnati suffers worst loss in franchise history**\
+`Prior to Sunday, the four worst losses in Bengals history each came by 37 points.`\
+https://nytimes.com/athletic/6649468/2025/09/21/bengals-vikings-qb-score-result-takeaways/
+
+**Isaiah Rodgers makes history as Vikings trounce Bengals: Takeaways**\
+`The win brings the Vikings to 2-1 going into Week 4's matchup against the Pittsburgh Steelers in Dublin.`\
+https://nytimes.com/athletic/6649251/2025/09/21/vikings-beat-bengals-score-defense-jordan-mason/
+
+**Texans vs. Jaguars takeaways: Gritty defense lifts Jacksonville to 2-1**\
 `Texans fall to 0-3 for the first time since 2018.`\
 https://nytimes.com/athletic/6649148/2025/09/21/texans-jaguars-score-result-takeaways-2/
 
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/21/business/media/fox-corporation-tiktok-lachlan-rup
 **‘We Are All Charlie’: Thousands Stood in Line for Hours in Hopes of Paying Tribute**\
 `Many endured stifling heat outside the stadium in Glendale, Ariz. Some who were turned away headed to a nearby arena, while others went home.`\
 https://nytimes.com/2025/09/21/us/politics/we-are-all-charlie-thousands-stood-in-line-for-hours-in-hopes-of-paying-tribute.html
-
-**Here’s how TV networks are covering the memorial service.**\
-`By John Koblin`\
-https://nytimes.com/live/2025/09/21/us/charlie-kirk-trump-news/how-tv-networks-are-covering-the-memorial-service
-
-**Commanders' Dan Quinn bloodied in sideline collision with QB Marcus Mariota**\
-`Mariota crashed into his head coach after being hit near the sideline and Quinn was left with a gash across the top of his nose.`\
-https://nytimes.com/athletic/6649348/2025/09/21/commanders-dan-quinn-sideline-collision-marcus-mariota/
-
-**Nepal to Investigate Killings and Arson in Student Protests**\
-`It is a first effort by the country’s new government to understand the sequence of violent events that led to the abrupt downfall of the old one.`\
-https://nytimes.com/2025/09/21/world/asia/nepal-commission-violence-protests.html
 
