@@ -1,5 +1,17 @@
+**It’s Gridlock Week in Manhattan as U.N. General Assembly Starts**\
+`With the United Nations session kicking off Monday, the city is closing some streets and stepping up police presence. It is usually one of the slowest weeks for traffic in Midtown.`\
+https://nytimes.com/2025/09/21/nyregion/unga-traffic-manhattan-midtown.html
+
+**Eagles' opening TD drive vs. Rams features 2 tush pushes, 2 apparent false starts**\
+`Fox rules analyst Mike Pereira said the Eagles got away with false starts on both of their successful tush pushes early in Sunday's game.`\
+https://nytimes.com/athletic/6649187/2025/09/21/eagles-tush-push-false-start-rams/
+
+**Potter's West Ham future: What we're hearing**\
+`The club are already talking to potential replacements for their under-fire manager after a dismal start to the new season`\
+https://nytimes.com/athletic/6646870/2025/09/21/graham-potter-west-ham-future-sack/
+
 **Aaron Rodgers surpasses Brett Favre on career passing touchdowns list**\
-`Rodgers now trails only Tom Brady, Drew Brees and Peyton Manning.`\
+`Rodgers now trails only Tom Brady, Peyton Manning and Drew Brees.`\
 https://nytimes.com/athletic/6649108/2025/09/21/aaron-rodgers-career-passing-tds/
 
 **The Briefing: Arsenal 1 Manchester City 1 - Dramatic, late Gabriel Martinelli equaliser saves point at Emirates**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/21/arts/music/sonny-curtis-dead.html
 **As Nebraska comes up short again, Huskers must confront truths of where they need to improve**\
 `“I feel like these are moments when you see what our team is built of,” running back Emmett Johnson said.`\
 https://nytimes.com/athletic/6649043/2025/09/21/nebraska-michigan-college-football-analysis/
-
-**D.D. Lewis, Durable Linebacker for the Dallas Cowboys, Dies at 79**\
-`When he was in college, the Alabama coach Bear Bryant called him the best linebacker in the country. In 13 seasons with the Cowboys, he played in five Super Bowls.`\
-https://nytimes.com/2025/09/21/sports/football/dd-lewis-dead.html
-
-**Germany celebrates first win as Brazil suffers hole in catamaran after collision**\
-`Germany celebrates a memorable victory in Geneva but Brazil fails to start a race on the second day of the Switzerland SailGP `\
-https://nytimes.com/athletic/6648587/2025/09/21/switzerland-sailgp-day-two-germany-win/
-
-**Mac Jones to start for 49ers as Brock Purdy, Jauan Jennings are both out**\
-`Purdy will miss his second straight game as Jones will have to try to beat the Cardinals without his top receiver from Week 2. `\
-https://nytimes.com/athletic/6649083/2025/09/21/49ers-injuries-brock-purdy-jauan-jennings-mac-jones/
 

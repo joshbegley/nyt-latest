@@ -1,3 +1,19 @@
+**It’s Gridlock Week in Manhattan as U.N. General Assembly Starts**\
+`With the United Nations session kicking off Monday, the city is closing some streets and stepping up police presence. It is usually one of the slowest weeks for traffic in Midtown.`\
+https://nytimes.com/2025/09/21/nyregion/unga-traffic-manhattan-midtown.html
+
+**Eagles' opening TD drive vs. Rams features 2 tush pushes, 2 apparent false starts**\
+`Fox rules analyst Mike Pereira said the Eagles got away with false starts on both of their successful tush pushes early in Sunday's game.`\
+https://nytimes.com/athletic/6649187/2025/09/21/eagles-tush-push-false-start-rams/
+
+**Potter's West Ham future: What we're hearing**\
+`The club are already talking to potential replacements for their under-fire manager after a dismal start to the new season`\
+https://nytimes.com/athletic/6646870/2025/09/21/graham-potter-west-ham-future-sack/
+
+**Aaron Rodgers surpasses Brett Favre on career passing touchdowns list**\
+`Rodgers now trails only Tom Brady, Peyton Manning and Drew Brees.`\
+https://nytimes.com/athletic/6649108/2025/09/21/aaron-rodgers-career-passing-tds/
+
 **Aaron Rodgers surpasses Brett Favre on career passing touchdowns list**\
 `Rodgers now trails only Tom Brady, Drew Brees and Peyton Manning.`\
 https://nytimes.com/athletic/6649108/2025/09/21/aaron-rodgers-career-passing-tds/
