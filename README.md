@@ -1,3 +1,11 @@
+**Arsenal vs Manchester City preview: Who has the best chance of winning Sunday's blockbuster?**\
+`Dan Sheldon and Jordan Campbell preview the Premier League showdown between Arsenal and Manchester City`\
+https://nytimes.com/athletic/6644211/2025/09/21/arsenal-manchester-city-preview-arteta-guardiola/
+
+**Crystal Palace are unbeaten in 17 games. This is how they do it**\
+`Oliver Glasner's side are quietly making history. How far could it take them?`\
+https://nytimes.com/athletic/6635903/2025/09/21/crystal-palace-unbeaten-premier-league/
+
 **Nepal Uprising Is Latest Challenge to India’s Backyard Diplomacy**\
 `The overthrow of Nepal’s government is the latest in a series of uprisings among India’s neighbors, creating a political churn that complicates its ties.`\
 https://nytimes.com/2025/09/21/world/asia/india-nepal-diplomacy-asia.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/21/pageoneplus/no-corrections-sept-21-2025.html
 **Arch Manning totals 5 TDs as Texas gets lopsided win over Sam Houston**\
 `Arch Manning has looked uncomfortable the first few weeks of the season but had his strongest game so far against Sam Houston. `\
 https://nytimes.com/athletic/6648100/2025/09/20/arch-manning-texas-sam-houston/
-
-**Oklahoma's offseason QB swap pays off as Mateer outlasts Arnold, Auburn**\
-`Mateer, the former three-star QB, is now living the path once expected for ex-five-star Jackson Arnold in Norman.`\
-https://nytimes.com/athletic/6648083/2025/09/20/jackson-arnold-john-mateer-oklahoma-auburn/
-
-**College Football Playoff 2025 projections: Miami, Texas Tech rising in most likely bracket**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/09/20/college-football-playoff-bracket-projections-odds/
 
