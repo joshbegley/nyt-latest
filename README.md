@@ -1,3 +1,7 @@
+**Falcons bench Michael Penix Jr. for Kirk Cousins in fourth quarter of blowout loss**\
+`Penix completed just 18 of 36 passes for 172 yards, no touchdowns and two interceptions, including a pick six. `\
+https://nytimes.com/athletic/6649451/2025/09/21/falcons-bench-michael-penix-kirk-cousins/
+
 **Rashford left out of Barcelona line-up after arriving late to training**\
 `Hansi Flick has a policy of not selecting players who are late, with Raphinha and Jules Kounde among those to previously be punished.`\
 https://nytimes.com/athletic/6649435/2025/09/21/marcus-rashford-barcelona-getafe-late/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6649161/2025/09/21/ap-top-25-rankings-miami-oklahom
 **Seattle Storm announce coach Noelle Quinn will not return in 2026**\
 `Seattle's season ended on Thursday when the Las Vegas Aces eliminated the Storm in the first round of the playoffs.`\
 https://nytimes.com/athletic/6649312/2025/09/21/seattle-storm-coach-noelle-quinn/
-
-**It’s Gridlock Week in Manhattan as U.N. General Assembly Starts**\
-`With the United Nations session kicking off Monday, the city is closing some streets and stepping up police presence. It is usually one of the slowest weeks for traffic in Midtown.`\
-https://nytimes.com/2025/09/21/nyregion/unga-traffic-manhattan-midtown.html
 
