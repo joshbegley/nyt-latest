@@ -1,3 +1,7 @@
+**Dodgers' Will Smith 'doubtful' for rest of regular season with hairline fracture**\
+`Dodgers manager Dave Roberts said it's "up in the air" whether the catcher will be ready for the team's first postseason series.`\
+https://nytimes.com/athletic/6647695/2025/09/20/dodgers-will-smith-hand-injury-postseason/
+
 **Stanton blasts 450th career home run, moves to 41st all-time**\
 `Only four players have hit as many home runs in fewer games than the Yankees' slugger.`\
 https://nytimes.com/athletic/6647810/2025/09/20/giancarlo-stanton-450-home-runs-yankees/

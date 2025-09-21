@@ -1,3 +1,7 @@
+**Dodgers' Will Smith 'doubtful' for rest of regular season with hairline fracture**\
+`Dodgers manager Dave Roberts said it's "up in the air" whether the catcher will be ready for the team's first postseason series.`\
+https://nytimes.com/athletic/6647695/2025/09/20/dodgers-will-smith-hand-injury-postseason/
+
 **Stanton blasts 450th career home run, moves to 41st all-time**\
 `Only four players have hit as many home runs in fewer games than the Yankees' slugger.`\
 https://nytimes.com/athletic/6647810/2025/09/20/giancarlo-stanton-450-home-runs-yankees/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6647599/2025/09/20/blackhawks-settle-lawsuit-john-d
 **In another brutal Tigers loss, the bullpen bears the blame**\
 `The Tigers blew a lead in the ninth to seal their eighth defeat in nine games as the Cleveland Guardians close in.`\
 https://nytimes.com/athletic/6647594/2025/09/20/tigers-lose-braves-bullpen-blame/
-
-**What happened to Clemson's defense? Syracuse rolls up 500-plus yards in Death Valley**\
-`Prior to Saturday, the Tigers hadn't lost a home game by more than 12 points to an unranked team since 2001 against North Carolina.`\
-https://nytimes.com/athletic/6647502/2025/09/20/clemson-dabo-swinney-syracuse-defense/
 
