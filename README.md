@@ -1,3 +1,11 @@
+**Israel Keeps Border Crossing to Jordan Closed After Attack**\
+`The Allenby Bridge border crossing is the main gateway for Palestinians to leave the Israeli-occupied West Bank.`\
+https://nytimes.com/2025/09/21/world/middleeast/israel-jordan-allenby-crossing.html
+
+**Hocker wins first U.S. men's 5,000m World Championship gold since 2007**\
+`Hocker, 24, provided a late kick with 200m to go to take gold in a time of 12:58.30 in Tokyo.`\
+https://nytimes.com/athletic/6648556/2025/09/21/cole-hocker-5000m-world-championship-gold/
+
 **USC has its warts, but the Trojans have a path to play meaningful late-season games**\
 `USC has barely broken a sweat in its first four games of the season, winning each by double digits. Soon, this team will be tested.`\
 https://nytimes.com/athletic/6648522/2025/09/21/usc-football-lincoln-riley-college-football-playoff/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6648208/2025/09/21/notre-dame-purdue-defense-marcus
 **Protesters in Manila Accuse Government of Misusing Environmental Funds**\
 `Demonstrations were set off by accusations that flood relief money was embezzled. They are part of a wave of discontent about economic inequality in several countries in Asia.`\
 https://nytimes.com/2025/09/21/world/asia/manila-philippines-rally-protest.html
-
-**Kyle Harrison strong in first Red Sox start as offense rallies late for another big win**\
-`The late offense saved the day, but Boston's 6-3 win wouldn’t have been possible without Harrison’s impressive start.`\
-https://nytimes.com/athletic/6648163/2025/09/21/kyle-harrison-red-sox-win/
-
-**Crony Capitalism Has Reached a New Low**\
-`The TikTok deal is Trumpism 101.`\
-https://nytimes.com/2025/09/21/opinion/tiktok-deal-trump-china-bytedance.html
 
