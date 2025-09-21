@@ -1,6 +1,18 @@
+**Aces' A'ja Wilson named WNBA MVP for record fourth time: Reports**\
+`Aces will play the Indiana Fever Sunday at 3 p.m. ET for Game 1 of the WNBA semifinals.`\
+https://nytimes.com/athletic/6648724/2025/09/21/aces-aja-wilson-wnba-mvp-fourth-time/
+
+**Oscar Piastri admits to 'silly mistakes' as F1 title lead shrinks after Baku crash**\
+`Oscar Piastri crashed out of F1's 2025 Baku race, shortly after he'd jumped the race start`\
+https://nytimes.com/athletic/6648813/2025/09/21/oscar-piastri-baku-crash/
+
 **In Assault on Free Speech, Trump Targets Speech He Hates**\
 `The president’s complaints about negative coverage undermine the rationales offered by his own officials.`\
 https://nytimes.com/2025/09/21/us/politics/trump-free-speech.html
+
+**College Football Playoff 2025 projections: Miami, Texas Tech rising in most likely bracket**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/09/21/college-football-playoff-bracket-projections-odds/
 
 **Italy beats the U.S. to defend Billie Jean King Cup title**\
 `Elisabetta Cocciaretto and Jasmine Paolini beat Emma Navarro and Jessica Pegula respectively in straight sets in Sunday's final.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/21/briefing/the-psychological-value-of-repentance.ht
 **Azerbaijan Grand Prix: Submit your questions for our F1 mailbag**\
 `What questions do you have for our F1 writers after the 2025 Azerbaijan Grand Prix?`\
 https://nytimes.com/athletic/6648710/2025/09/21/f1-mailbag-azerbaijan-grand-prix/
-
-**A Responsible Way to Cool the Planet**\
-`A small, carefully scaled geoengineering program could compensate for the loss of cooling as we eliminate sulfur pollution.`\
-https://nytimes.com/2025/09/21/opinion/geoengineering-planet-cooling-sulfur.html
-
-**What’s the Problem With Profanity?**\
-`Readers respond to a guest essay about cursing. Also: Our “dangerous, surreal and unnerving times.”`\
-https://nytimes.com/2025/09/21/opinion/cursing-profanity.html
-
-**Until Saturday: New contenders emerge**\
-`Until Saturday is The Athletic's free CFB newsletter.`\
-https://nytimes.com/athletic/6648696/2025/09/21/college-football-playoff-odds-until-saturday/
 

@@ -1,3 +1,15 @@
+**Aces' A'ja Wilson named WNBA MVP for record fourth time: Reports**\
+`Aces will play the Indiana Fever Sunday at 3 p.m. ET for Game 1 of the WNBA semifinals.`\
+https://nytimes.com/athletic/6648724/2025/09/21/aces-aja-wilson-wnba-mvp-fourth-time/
+
+**Oscar Piastri admits to 'silly mistakes' as F1 title lead shrinks after Baku crash**\
+`Oscar Piastri crashed out of F1's 2025 Baku race, shortly after he'd jumped the race start`\
+https://nytimes.com/athletic/6648813/2025/09/21/oscar-piastri-baku-crash/
+
+**College Football Playoff 2025 projections: Miami, Texas Tech rising in most likely bracket**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/09/21/college-football-playoff-bracket-projections-odds/
+
 **In Assault on Free Speech, Trump Targets Speech He Hates**\
 `The president’s complaints about negative coverage undermine the rationales offered by his own officials.`\
 https://nytimes.com/2025/09/21/us/politics/trump-free-speech.html
