@@ -1,3 +1,7 @@
+**Michigan State linebacker Wayne Matthews III carted off field after collision against USC**\
+`Wayne Matthews III collided with a teammate after making a tackle and needed immediate medical attention on the field. `\
+https://nytimes.com/athletic/6648323/2025/09/21/wayne-matthews-michigan-state-usc-injury/
+
 **Mariners, diving Victor Robles rob the Astros, rocking their air of inevitability**\
 `Seattle's victory secured the season series between the teams, giving it the tiebreaker over Houston.`\
 https://nytimes.com/athletic/6648276/2025/09/21/seattle-mariners-victor-robles-houston-astros-inevitability/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6634496/2025/09/21/minteh-brighton-joao-pedro-carlo
 **Arsenal vs Manchester City preview: Who has the best chance of winning Sunday's blockbuster?**\
 `Dan Sheldon and Jordan Campbell preview the Premier League showdown between Arsenal and Manchester City`\
 https://nytimes.com/athletic/6644211/2025/09/21/arsenal-manchester-city-preview-arteta-guardiola/
-
-**Crystal Palace are unbeaten in 17 games. This is how they do it**\
-`Oliver Glasner's side are quietly making history. How far could it take them?`\
-https://nytimes.com/athletic/6635903/2025/09/21/crystal-palace-unbeaten-premier-league/
 
