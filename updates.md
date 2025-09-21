@@ -1,3 +1,15 @@
+**Why China Might Give Up TikTok**\
+`Beijing may be buying itself room to negotiate on the matters it cares about most: tariffs, technology and Taiwan.`\
+https://nytimes.com/2025/09/21/briefing/china-tiktok-palestinian-statehood-tariffs.html
+
+**Packers vs. Browns takeaways: Cleveland's improbable comeback stuns Green Bay**\
+`The Browns steal a game from the Packers, walking away with one of the most shocking finishes of the young NFL season.`\
+https://nytimes.com/athletic/6649437/2025/09/21/packers-browns-score-result-takeaways/
+
+**Cowboys WR CeeDee Lamb questionable to return vs. Bears after rolling ankle**\
+`Medical staff tended to Lamb on the sideline and then brought him to the injury tent.`\
+https://nytimes.com/athletic/6649655/2025/09/21/ceedee-lamb-injury-status-dallas-cowboys-chicago-bears/
+
 **Tampa Bay withstands Jets' furious comeback attempt with FG as time expires**\
 `The Jets erased a 17-point lead in the fourth quarter, but Chase McLaughlin's kick kept the Buccaneers undefeated.`\
 https://nytimes.com/athletic/6649314/2025/09/21/buccaneers-jets-29-27-result-takeaways/
