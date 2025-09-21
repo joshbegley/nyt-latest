@@ -1,3 +1,11 @@
+**WNBA semifinals predictions, how to watch, what to know**\
+`The Aces host the Fever, and the Lynx host the Mercury on Sunday to start the semifinals. Sabreena Merchant makes her picks.`\
+https://nytimes.com/athletic/6648130/2025/09/21/wnba-semifinals-playoffs-predictions-aces-fever/
+
+**For your consideration: Missouri in the SEC race … and Ahmad Hardy for Heisman?**\
+`Hardy, an overlooked Louisiana Monroe transfer, powered Missouri past South Carolina to a 4-0 start on Saturday. He's just getting started.`\
+https://nytimes.com/athletic/6648305/2025/09/21/missouri-south-carolina-ahmad-hardy-heisman/
+
 **Israel Keeps Border Crossing to Jordan Closed After Attack**\
 `The Allenby Bridge border crossing is the main gateway for Palestinians to leave the Israeli-occupied West Bank.`\
 https://nytimes.com/2025/09/21/world/middleeast/israel-jordan-allenby-crossing.html
