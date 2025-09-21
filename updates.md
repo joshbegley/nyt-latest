@@ -1,3 +1,7 @@
+**Michigan State linebacker Wayne Matthews III carted off field after collision against USC**\
+`Wayne Matthews III collided with a teammate after making a tackle and needed immediate medical attention on the field. `\
+https://nytimes.com/athletic/6648323/2025/09/21/wayne-matthews-michigan-state-usc-injury/
+
 **Mariners, diving Victor Robles rob the Astros, rocking their air of inevitability**\
 `Seattle's victory secured the season series between the teams, giving it the tiebreaker over Houston.`\
 https://nytimes.com/athletic/6648276/2025/09/21/seattle-mariners-victor-robles-houston-astros-inevitability/
