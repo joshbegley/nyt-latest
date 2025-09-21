@@ -1,3 +1,11 @@
+**Cowboys vs. Bears takeaways: Caleb Williams leads Chicago to first win**\
+`Williams had a career-high four TD passes, each to a different target, to go along with 298 passing yards.`\
+https://nytimes.com/athletic/6649547/2025/09/21/cowboys-bears-score-result-takeaways/
+
+**Rebuilding Patriots fumble away a game they could've won against the Steelers**\
+`The Patriots turned the ball over five times and lost, even on a day when Drake Maye threw for 268 yards and the defense played well.`\
+https://nytimes.com/athletic/6649869/2025/09/21/steelers-patriots-fumbles-drake-maye-turnovers/
+
 **Dissecting Packers' late collapse in a stunning 13-10 loss against the Browns**\
 `The Packers blew a double-digit lead with less than four minutes remaining in a stunning 13-10 loss to the Browns on Sunday in Cleveland.`\
 https://nytimes.com/athletic/6649988/2025/09/21/packers-browns-jordan-love-brandon-mcmanus/
@@ -31,12 +39,4 @@ https://nytimes.com/athletic/6649854/2025/09/21/mets-fall-out-of-playoff-positio
 **Falcons embarrassed by Panthers and their own offensive performance: 'An all-time low'**\
 `Atlanta lost 30-0 at Carolina and benched quarterback Michael Penix Jr. for Kirk Cousins in the fourth quarter.`\
 https://nytimes.com/athletic/6649824/2025/09/21/falcons-panthers-michael-penix-offense/
-
-**Eagles' blocked field goal leads to all-time bad beat for Rams bettors**\
-`Some are already saying this will be the bad beat of the year. See how this last-second TD caused a six-figure swing for one sportsbook.`\
-https://nytimes.com/athletic/6649676/2025/09/21/eagles-rams-blocked-field-goal-bad-beat-betting/
-
-**Trump and Musk Are Seen Together at Kirk Memorial, Months After Falling-Out**\
-`The meeting came just three months after Mr. Musk exited the government in a fit of rage, attacking the president on social media.`\
-https://nytimes.com/2025/09/21/us/politics/trump-musk-kirk-memrorial.html
 

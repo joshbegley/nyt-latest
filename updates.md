@@ -1,3 +1,11 @@
+**Cowboys vs. Bears takeaways: Caleb Williams leads Chicago to first win**\
+`Williams had a career-high four TD passes, each to a different target, to go along with 298 passing yards.`\
+https://nytimes.com/athletic/6649547/2025/09/21/cowboys-bears-score-result-takeaways/
+
+**Rebuilding Patriots fumble away a game they could've won against the Steelers**\
+`The Patriots turned the ball over five times and lost, even on a day when Drake Maye threw for 268 yards and the defense played well.`\
+https://nytimes.com/athletic/6649869/2025/09/21/steelers-patriots-fumbles-drake-maye-turnovers/
+
 **Dissecting Packers' late collapse in a stunning 13-10 loss against the Browns**\
 `The Packers blew a double-digit lead with less than four minutes remaining in a stunning 13-10 loss to the Browns on Sunday in Cleveland.`\
 https://nytimes.com/athletic/6649988/2025/09/21/packers-browns-jordan-love-brandon-mcmanus/

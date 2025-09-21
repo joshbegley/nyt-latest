@@ -1,3 +1,7 @@
+**Red Wings camp thoughts: Emmitt Finnie stands out in scrimmage action**\
+`The Red Wings had a lively week of physical action, culminating in Sunday's Red-White game. Here's who stood out.`\
+https://nytimes.com/athletic/6649654/2025/09/21/red-wings-training-camp-emmitt-finnie-moritz-seider/
+
 **Cowboys vs. Bears takeaways: Caleb Williams leads Chicago to first win**\
 `Williams had a career-high four TD passes, each to a different target, to go along with 298 passing yards.`\
 https://nytimes.com/athletic/6649547/2025/09/21/cowboys-bears-score-result-takeaways/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6649702/2025/09/21/reds-mets-national-league-third-
 **Mets fall out of playoff position with another series loss**\
 `"We've put ourselves in this position," Francisco Lindor said after the Mets' loss Sunday. "We've got to find a way to get out of it."`\
 https://nytimes.com/athletic/6649854/2025/09/21/mets-fall-out-of-playoff-position-series-loss-nationals/
-
-**Falcons embarrassed by Panthers and their own offensive performance: 'An all-time low'**\
-`Atlanta lost 30-0 at Carolina and benched quarterback Michael Penix Jr. for Kirk Cousins in the fourth quarter.`\
-https://nytimes.com/athletic/6649824/2025/09/21/falcons-panthers-michael-penix-offense/
 
