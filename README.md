@@ -1,3 +1,11 @@
+**How to watch Fever at Aces: Game 1 Time, TV, streaming**\
+`Find out how to watch the Indiana Fever play the Las Vegas Aces, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6648692/2025/09/21/fever-vs-aces-stream-how-to-watch-sept-21/
+
+**MLB playoff watch: Astros bumped by Mariners, plus bracket and clinching scenarios**\
+`The Mariners are nearing a sweep of Houston and a first-round bye, and only one game separates the Mets from the Reds in the NL wild card.`\
+https://nytimes.com/athletic/6646805/2025/09/21/mlb-playoff-watch-astros-out-mariners/
+
 **Trump Administration Live Updates: President Trump Expected to Be Among Thousands at Charlie Kirk Memorial**\
 ``\
 https://nytimes.com/live/2025/09/21/us/charlie-kirk-trump-news
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6648130/2025/09/21/wnba-semifinals-playoffs-predict
 **For your consideration: Missouri in the SEC race … and Ahmad Hardy for Heisman?**\
 `Hardy, an overlooked Louisiana Monroe transfer, powered Missouri past South Carolina to a 4-0 start on Saturday. He's just getting started.`\
 https://nytimes.com/athletic/6648305/2025/09/21/missouri-south-carolina-ahmad-hardy-heisman/
-
-**Israel Keeps Border Crossing to Jordan Closed After Attack**\
-`The Allenby Bridge border crossing is the main gateway for Palestinians to leave the Israeli-occupied West Bank.`\
-https://nytimes.com/2025/09/21/world/middleeast/israel-jordan-allenby-crossing.html
-
-**Hocker wins first U.S. men's 5,000m World Championship gold since 2007**\
-`Hocker, 24, provided a late kick with 200m to go to take gold in a time of 12:58.30 in Tokyo.`\
-https://nytimes.com/athletic/6648556/2025/09/21/cole-hocker-5000m-world-championship-gold/
 
