@@ -1,3 +1,7 @@
+**Miami sends Florida to first 1-3 start since 1986 as pressure on Napier rises**\
+`No. 4 Miami beat Florida 26-7 on Saturday night, shutting the door with a pair of late touchdowns to prolong the Gators' rough start.`\
+https://nytimes.com/athletic/6648089/2025/09/20/miami-florida-college-football-score-recap/
+
 **Indiana crushes Illinois as QB Fernando Mendoza, defense dominate**\
 `IU QB Fernando Mendoza completed 21 of 23 passes — including 17 straight — for 267 yards and five touchdowns. `\
 https://nytimes.com/athletic/6647909/2025/09/20/indiana-football-illinois-score-takeaways/
@@ -18,8 +22,8 @@ https://nytimes.com/athletic/6553927/2025/09/20/mike-trout-400-home-runs-485-foo
 `The move strips the government of its main gauge of hunger in America, and will impede efforts to track the impact of aid cuts.`\
 https://nytimes.com/2025/09/20/us/politics/trump-hunger-report-data.html
 
-**Messi double just enough for Miami in 3-2 win over D.C United**\
-`Just as the muggy heat followed by heavy rain was so typical of a South Florida September day, so Inter Miami&#8217;s 3-2 win over D.`\
+**Messi's double just enough for Miami in 3-2 win over D.C. United**\
+`Two goals and an assist from the Argentine helped secure back-to-back wins for Miami and put it on the brink of a place in the playoffs.`\
 https://nytimes.com/athletic/6648012/2025/09/20/lionel-messi-double-as-miami-stay-on-course-for-playoffs/
 
 **Thousands Flock to Phoenix for Charlie Kirk’s Memorial Service**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/20/us/politics/h1b-visa-trump-immigration.html
 **How to watch Brewers at Cardinals: Time, TV, streaming for September 21**\
 `Find out how to watch the Milwaukee Brewers play the St. Louis Cardinals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6647951/2025/09/20/brewers-vs-cardinals-stream-how-to-watch-sept-21/
-
-**How to watch Padres at White Sox: Time, TV, streaming for September 21**\
-`Find out how to watch the San Diego Padres play the Chicago White Sox, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6647948/2025/09/20/padres-vs-white-sox-stream-how-to-watch-sept-21/
 
