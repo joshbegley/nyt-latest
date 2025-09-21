@@ -1,3 +1,17 @@
+**Shutting out the Falcons, avoiding 0-3 start a 'big deal' for Panthers and their defense**\
+`"I was excited to see that zero stay up on that board at the end,” LB Christian Rozeboom said after Carolina picked up its first victory.`\
+https://nytimes.com/athletic/6649982/2025/09/21/panthers-defense-shutout-falcons-first-win/
+
+**Indiana Fever make WNBA semifinals statement with 1-0 series lead at Las Vegas Aces**\
+`Aces star A'ja Wilson was just 6 of 22 shooting after being announced MVP, and Las Vegas couldn't stop the Fever.`\
+https://nytimes.com/athletic/6650045/2025/09/21/indiana-fever-las-vegas-aces-wnba-playoffs-game-1/
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Oregon-Penn State. Alabama-Georgia. LSU-Ole Miss. &#8230; UCLA-Northwestern.</p>
+<p>Week 5 should be a good one. Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6650070/2025/09/21/submit-a-question-for-stewart-mandels-college-football-mailbag-316/
+
 **Saints vs. Seahawks takeaways: Seattle dominates 44-13, New Orleans takes step back**\
 `Seattle didn’t punt until the fourth quarter.`\
 https://nytimes.com/athletic/6649980/2025/09/21/saints-seahawks-score-result-takeaways/
@@ -11,7 +25,7 @@ https://nytimes.com/athletic/6649702/2025/09/21/reds-mets-national-league-third-
 https://nytimes.com/athletic/6649854/2025/09/21/mets-fall-out-of-playoff-position-series-loss-nationals/
 
 **Falcons embarrassed by Panthers and their own offensive performance: 'An all-time low'**\
-`Atlanta lost 30-0 on the road at Carolina and benched quarterback Michael Penix Jr. for Kirk Cousins in the fourth quarter.`\
+`Atlanta lost 30-0 at Carolina and benched quarterback Michael Penix Jr. for Kirk Cousins in the fourth quarter.`\
 https://nytimes.com/athletic/6649824/2025/09/21/falcons-panthers-michael-penix-offense/
 
 **Eagles' blocked field goal leads to all-time bad beat for Rams bettors**\
@@ -25,16 +39,4 @@ https://nytimes.com/2025/09/21/us/politics/trump-musk-kirk-memrorial.html
 **At Kirk Service, an Extraordinary Fusion of Government and Christianity**\
 `The memorial reflected the degree to which conservative Christianity had melded with Republican politics in the Trump era.`\
 https://nytimes.com/2025/09/21/us/politics/kirk-memorial-service-christianity-religion.html
-
-**Field goal blocks steal spotlight at end of Sunday's early NFL games**\
-`The Eagles and Browns earned dramatic wins Sunday thanks to blocked field goals, while the Jets nearly joined them.`\
-https://nytimes.com/athletic/6649821/2025/09/21/nfl-blocked-field-goals-eagles-browns-jets/
-
-**The Lion’s Share**\
-`Dena R. Verkuil and Andrea Carla Michaels get doughnuts.`\
-https://nytimes.com/2025/09/21/crosswords/daily-puzzle-2025-09-22.html
-
-**A World War I Love Story, With a Contemporary Kink (or Two)**\
-`The tricky romantic drama in H.S. Cross’s new novel, “Amanda,” aims for both historical sweep and high erotic tension.`\
-https://nytimes.com/2025/09/21/books/review/h-s-cross-amanda.html
 

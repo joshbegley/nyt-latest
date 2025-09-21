@@ -1,3 +1,7 @@
+**Saints vs. Seahawks takeaways: Seattle dominates 44-13, New Orleans takes step back**\
+`Seattle didn’t punt until the fourth quarter.`\
+https://nytimes.com/athletic/6649980/2025/09/21/saints-seahawks-score-result-takeaways/
+
 **Reds overtake Mets for National League's third wild-card spot**\
 `“We’re not hoping for this, we believe in it,” Jose Trevino said. “We actually really believe we’re a good team."`\
 https://nytimes.com/athletic/6649702/2025/09/21/reds-mets-national-league-third-wild-card/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/21/crosswords/daily-puzzle-2025-09-22.html
 **A World War I Love Story, With a Contemporary Kink (or Two)**\
 `The tricky romantic drama in H.S. Cross’s new novel, “Amanda,” aims for both historical sweep and high erotic tension.`\
 https://nytimes.com/2025/09/21/books/review/h-s-cross-amanda.html
-
-**49ers' Nick Bosa, Cardinals' James Conner ruled out with injury**\
-`Bosa appeared to injure his knee late in the first quarter, while Conner left with an ankle injury after a short run in the third.`\
-https://nytimes.com/athletic/6649728/2025/09/21/49ers-nick-bosa-injury-cardinals/
 

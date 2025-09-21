@@ -1,3 +1,7 @@
+**Saints vs. Seahawks takeaways: Seattle dominates 44-13, New Orleans takes step back**\
+`Seattle didn’t punt until the fourth quarter.`\
+https://nytimes.com/athletic/6649980/2025/09/21/saints-seahawks-score-result-takeaways/
+
 **Reds overtake Mets for National League's third wild-card spot**\
 `“We’re not hoping for this, we believe in it,” Jose Trevino said. “We actually really believe we’re a good team."`\
 https://nytimes.com/athletic/6649702/2025/09/21/reds-mets-national-league-third-wild-card/
