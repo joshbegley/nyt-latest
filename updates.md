@@ -1,3 +1,7 @@
+**How to watch Mercury at Lynx: Game 1 Time, TV, streaming**\
+`Find out how to watch the Phoenix Mercury play the Minnesota Lynx, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6649024/2025/09/21/mercury-vs-lynx-stream-how-to-watch-sept-21/
+
 **Evenepoel, Reusser claim time trial titles at World Road Championships**\
 `Vine and Van Wilder came second and third in the men's event, with Van der Breggen and Vollering second and third in the women's.`\
 https://nytimes.com/athletic/6648967/2025/09/21/cycling-world-road-championships-evenepoel-reusser/
