@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6647227/2025/09/21/blackhawks-jason-dickinson-training-camp-jeff-blashill/
 
+**Why Jason Dickinson's line is essential to Blackhawks coach Jeff Blashill's plan**\
+`Blashill has opened camp with Dickinson as a third-line shutdown center on a line with Ilya Mikheyev and Landon Slaggert.
+`\
+https://nytimes.com/athletic/6647227/2025/09/21/blackhawks-jason-dickinson-training-camp-jeff-blashill/
+
 **Max Verstappen cruises to victory in Baku, Oscar Piastri crashes out**\
 `Max Verstappen makes it back-to-back wins for the first time since the 2024 season as McLaren has a weekend to forget`\
 https://nytimes.com/athletic/6648566/2025/09/21/azerbaijan-grand-prix-max-verstappen-wins-oscar-piastri-crashes-out/
