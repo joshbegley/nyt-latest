@@ -26,7 +26,7 @@ https://nytimes.com/athletic/6649162/2025/09/21/bernie-parent-flyers-hall-of-fam
 `A statement said the incident occurred in a wooded area near Dortmund after people left a train following the emergency brake being used.`\
 https://nytimes.com/athletic/6649000/2025/09/21/bundesliga-schalke-dortmund-fans-police/
 
-**Here is the latest on the memorial.**\
+**Here is the latest.**\
 `By Jack Healy, Tyler Pager and Nicholas Bogel-Burroughs`\
 https://nytimes.com/live/2025/09/21/us/charlie-kirk-trump-news/here-is-the-latest-on-the-memorial
 
