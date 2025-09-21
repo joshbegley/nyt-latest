@@ -1,3 +1,7 @@
+**The Laver Cup is a team event, but each player has their own idea of how to approach it**\
+`The competition has wrestled the tennis world over its identity ever since it began eight years ago.`\
+https://nytimes.com/athletic/6643402/2025/09/20/laver-cup-tennis-competition-teams-importance/
+
 **Man Charged After Drive-by Shooting at Local ABC Station in Sacramento**\
 `Officers responding to the site of the shooting found that at least three rounds had hit the station’s window. No injuries were reported, and a motive was unclear.`\
 https://nytimes.com/2025/09/20/us/sacramento-shooting-tv-news-station.html
@@ -7,7 +11,7 @@ https://nytimes.com/2025/09/20/us/sacramento-shooting-tv-news-station.html
 https://nytimes.com/athletic/6647777/2025/09/20/caitlin-clark-fine-wnba-fever/
 
 **Dodgers' Will Smith 'doubtful' for rest of regular season with hairline fracture**\
-`Dodgers manager Dave Roberts said it's "up in the air" whether the catcher will be ready for the team's first postseason series.`\
+`Dodgers manager Dave Roberts said it's "up in the air" whether the catcher will be ready for the first postseason series.`\
 https://nytimes.com/athletic/6647695/2025/09/20/dodgers-will-smith-hand-injury-postseason/
 
 **Stanton blasts 450th career home run, moves to 41st all-time**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6641268/2025/09/20/blues-training-camp-holloway-mai
 **Michigan runs wild on Nebraska, extending Huskers' Top 25 losing streak**\
 `If the Huskers couldn’t end their extensive losing streak to ranked opponents on Saturday, then when will they?`\
 https://nytimes.com/athletic/6647493/2025/09/20/michigan-nebraska-bryce-underwood-sherrone-moore/
-
-**Blue Jays’ health takes another hit ahead of playoffs with Chris Bassitt to IL**\
-`The veteran righty is out for the rest of regular season with lower back inflammation but could return for the ALDS.`\
-https://nytimes.com/athletic/6647628/2025/09/20/blue-jays-chris-bassitt-injury/
 

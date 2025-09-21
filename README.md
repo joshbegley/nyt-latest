@@ -1,3 +1,7 @@
+**Canucks training camp scrimmage: 3 players who helped themselves and 3 who didn’t**\
+`Three players stood out and helped their cause in Saturday's Team White vs. Team Blue intrasquad scrimmage, and three didn't.`\
+https://nytimes.com/athletic/6647512/2025/09/20/canucks-training-camp-scrimmage-players/
+
 **The Laver Cup is a team event, but each player has their own idea of how to approach it**\
 `The competition has wrestled the tennis world over its identity ever since it began eight years ago.`\
 https://nytimes.com/athletic/6643402/2025/09/20/laver-cup-tennis-competition-teams-importance/
@@ -14,8 +18,8 @@ https://nytimes.com/athletic/6647777/2025/09/20/caitlin-clark-fine-wnba-fever/
 `Dodgers manager Dave Roberts said it's "up in the air" whether the catcher will be ready for the first postseason series.`\
 https://nytimes.com/athletic/6647695/2025/09/20/dodgers-will-smith-hand-injury-postseason/
 
-**Stanton blasts 450th career home run, moves to 41st all-time**\
-`Only four players have hit as many home runs in fewer games than the Yankees' slugger.`\
+**Giancarlo Stanton blasts 450th career home run, moves to 41st all-time**\
+`Only Mark McGwire, Babe Ruth, Alex Rodriguez and Harmon Killebrew have hit as many home runs in fewer games than Stanton.`\
 https://nytimes.com/athletic/6647810/2025/09/20/giancarlo-stanton-450-home-runs-yankees/
 
 **College Football Playoff 2025 projections: The most likely bracket with Week 4 underway**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6647627/2025/09/20/nacho-alvarez-jr-braves-tigers-r
 **What I'm seeing at Blues camp: Holloway's next level? Mailloux in D-zone? Lucic a lock?**\
 `After three days of Blues training camp, we're starting to get some answers to a few of the pertinent questions.`\
 https://nytimes.com/athletic/6641268/2025/09/20/blues-training-camp-holloway-mailloux-lucic/
-
-**Michigan runs wild on Nebraska, extending Huskers' Top 25 losing streak**\
-`If the Huskers couldn’t end their extensive losing streak to ranked opponents on Saturday, then when will they?`\
-https://nytimes.com/athletic/6647493/2025/09/20/michigan-nebraska-bryce-underwood-sherrone-moore/
 
