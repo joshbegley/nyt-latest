@@ -1,3 +1,7 @@
+**Commanders' Dan Quinn left bloodied after sideline collision with QB Marcus Mariota**\
+`Mariota crashed into his head coach after being hit near the sideline and Quinn was left with a gash across the top of his nose.`\
+https://nytimes.com/athletic/6649348/2025/09/21/commanders-dan-quinn-sideline-collision-marcus-mariota/
+
 **Nepal to Investigate Killings and Arson in Student Protests**\
 `It is a first effort by the country’s new government to understand the sequence of violent events that led to the abrupt downfall of the old one.`\
 https://nytimes.com/2025/09/21/world/asia/nepal-commission-violence-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6649108/2025/09/21/aaron-rodgers-career-passing-tds
 **The Briefing: Arsenal 1 Manchester City 1 - Dramatic, late Gabriel Martinelli equaliser saves point at Emirates**\
 `Stuart James, Jordan Campbell and Anantaajith Raghuraman break down the action from the Emirates`\
 https://nytimes.com/athletic/6638151/2025/09/21/arsenal-manchester-city-haaland-martinelli/
-
-**Hall of Fame goalie and Flyers legend Bernie Parent dies at 80**\
-`Parent backstopped the Flyers to a pair of Stanley Cup championships in 1974 and 1975.`\
-https://nytimes.com/athletic/6649162/2025/09/21/bernie-parent-flyers-hall-of-fame-obit/
 
