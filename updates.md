@@ -1,3 +1,7 @@
+**Evenepoel, Reusser claim time trial titles at World Road Championships**\
+`Vine and Van Wilder came second and third in the men's event, with Van der Breggen and Vollering second and third in the women's.`\
+https://nytimes.com/athletic/6648967/2025/09/21/cycling-world-road-championships-evenepoel-reusser/
+
 **The story of the 2025 World Athletics Championships in 17 photos**\
 `The Americans set a gold-medal record, a legend said goodbye, a new men's 100-meter king was crowned, and more highlights from Tokyo.`\
 https://nytimes.com/athletic/6638573/2025/09/21/world-athletics-championships-americans-gold-melissa-jefferson-wooden-noah-lyles/
