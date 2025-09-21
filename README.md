@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Monday, Sep. 22, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/09/21/todays-new-york-times-international-edition
+
 **How to watch Angels at Rockies: Time, TV, streaming for September 21**\
 `Find out how to watch the Los Angeles Angels play the Colorado Rockies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6648480/2025/09/21/angels-vs-rockies-stream-how-to-watch-sept-21/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/21/books/review/woody-allens-whats-with-baum.html
 **How Real Can a Fashion Mag Get?**\
 `Noah Johnson, the new editor of Highsnobiety, wants to bring the glossy down to earth.`\
 https://nytimes.com/2025/09/21/style/highsnobiety-noah-johnson-scene.html
-
-**A Rush to Save Ancient Artifacts in Gaza Highlights All That Has Been Lost**\
-`A bombing delay enabled rescue of some objects, but archaeologists fear the wider loss of antiquities from the many cultures living there over thousands of years.`\
-https://nytimes.com/2025/09/21/world/middleeast/gaza-archeological-heritage.html
 
