@@ -1,3 +1,15 @@
+**Field goal blocks steal the spotlight at the end of Sunday's early slate of games**\
+`The Eagles and Browns both earned dramatic wins Sunday thanks to blocked field goals, while the Jets nearly joined them.`\
+https://nytimes.com/athletic/6649821/2025/09/21/nfl-blocked-field-goals-eagles-browns-jets/
+
+**Chargers RB Najee Harris ruled out with ankle injury vs. Broncos**\
+`Rookie Omarion Hampton will be expected to take on a heavier load for the Chargers after Harris was injured Sunday in the second quarter.`\
+https://nytimes.com/athletic/6649685/2025/09/21/najee-harris-injury-chargers-broncos/
+
+**Cowboys WR CeeDee Lamb ruled out vs. Bears after rolling ankle**\
+`Medical staff tended to Lamb on the sideline and then brought him to the injury tent.`\
+https://nytimes.com/athletic/6649655/2025/09/21/ceedee-lamb-injury-status-dallas-cowboys-chicago-bears/
+
 **The Lion’s Share**\
 `Dena R. Verkuil and Andrea Carla Michaels get doughnuts.`\
 https://nytimes.com/2025/09/21/crosswords/daily-puzzle-2025-09-22.html
