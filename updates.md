@@ -1,3 +1,11 @@
+**Here is the latest on the memorial.**\
+`By Jack Healy, Tyler Pager and Nicholas Bogel-Burroughs`\
+https://nytimes.com/live/2025/09/21/us/charlie-kirk-trump-news/here-is-the-latest-on-the-memorial
+
+**Sonny Curtis Dies at 88; His Songs Included Mary Tyler Moore’s Theme**\
+`A prolific singer-songwriter who got his start with Buddy Holly, he also wrote “I Fought the Law,” “Walk Right Back” and hundreds of other songs.`\
+https://nytimes.com/2025/09/21/arts/music/sonny-curtis-dead.html
+
 **As Nebraska comes up short again, Huskers must confront truths of where they need to improve**\
 `“I feel like these are moments when you see what our team is built of,” running back Emmett Johnson said.`\
 https://nytimes.com/athletic/6649043/2025/09/21/nebraska-michigan-college-football-analysis/
