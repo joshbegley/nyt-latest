@@ -1,5 +1,9 @@
+**Potter's West Ham future: What we're hearing**\
+`The club are already talking to potential replacements for their under-fire manager after a dismal start to the new season`\
+https://nytimes.com/athletic/6646870/2025/09/21/graham-potter-west-ham-future-sack/
+
 **Aaron Rodgers surpasses Brett Favre on career passing touchdowns list**\
-`Rodgers now trails only Tom Brady, Drew Brees and Peyton Manning.`\
+`Rodgers now trails only Tom Brady, Peyton Manning and Drew Brees.`\
 https://nytimes.com/athletic/6649108/2025/09/21/aaron-rodgers-career-passing-tds/
 
 **The Briefing: Arsenal 1 Manchester City 1 - Dramatic, late Gabriel Martinelli equaliser saves point at Emirates**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/21/sports/football/dd-lewis-dead.html
 **Germany celebrates first win as Brazil suffers hole in catamaran after collision**\
 `Germany celebrates a memorable victory in Geneva but Brazil fails to start a race on the second day of the Switzerland SailGP `\
 https://nytimes.com/athletic/6648587/2025/09/21/switzerland-sailgp-day-two-germany-win/
-
-**Mac Jones to start for 49ers as Brock Purdy, Jauan Jennings are both out**\
-`Purdy will miss his second straight game as Jones will have to try to beat the Cardinals without his top receiver from Week 2. `\
-https://nytimes.com/athletic/6649083/2025/09/21/49ers-injuries-brock-purdy-jauan-jennings-mac-jones/
 
