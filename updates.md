@@ -1,3 +1,19 @@
+**Mariners, diving Victor Robles rob the Astros, rocking their air of inevitability**\
+`Seattle’s victory secured the season series between the two teams, giving it the tiebreaker over Houston.`\
+https://nytimes.com/athletic/6648276/2025/09/21/seattle-mariners-victor-robles-houston-astros-inevitability/
+
+**I Look at This Country and I See a Stranger**\
+`This is one of those moments in history.`\
+https://nytimes.com/2025/09/21/opinion/trump-kirk-trans-people-russia.html
+
+**The New York Times in Print for Sunday, Sep. 21, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/21/todays-new-york-times
+
+**The Last of the Larch**\
+`The story of our relationship with our environment condensed into one lovely tree.`\
+https://nytimes.com/2025/09/21/opinion/larch-tree-environment-britain.html
+
 **Frank said Tottenham just delivered their 'most complete performance' yet. Is he right?**\
 `Spurs fell short of a dramatic comeback win at Brighton but their head coach was still thrilled by their display. This is why`\
 https://nytimes.com/athletic/6647213/2025/09/21/tottenham-brighton-analysis/

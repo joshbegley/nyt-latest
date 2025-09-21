@@ -1,3 +1,19 @@
+**Mariners, diving Victor Robles rob the Astros, rocking their air of inevitability**\
+`Seattle’s victory secured the season series between the two teams, giving it the tiebreaker over Houston.`\
+https://nytimes.com/athletic/6648276/2025/09/21/seattle-mariners-victor-robles-houston-astros-inevitability/
+
+**I Look at This Country and I See a Stranger**\
+`This is one of those moments in history.`\
+https://nytimes.com/2025/09/21/opinion/trump-kirk-trans-people-russia.html
+
+**The New York Times in Print for Sunday, Sep. 21, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/21/todays-new-york-times
+
+**The Last of the Larch**\
+`The story of our relationship with our environment condensed into one lovely tree.`\
+https://nytimes.com/2025/09/21/opinion/larch-tree-environment-britain.html
+
 **Frank said Tottenham just delivered their 'most complete performance' yet. Is he right?**\
 `Spurs fell short of a dramatic comeback win at Brighton but their head coach was still thrilled by their display. This is why`\
 https://nytimes.com/athletic/6647213/2025/09/21/tottenham-brighton-analysis/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6644211/2025/09/21/arsenal-manchester-city-preview-
 **Crystal Palace are unbeaten in 17 games. This is how they do it**\
 `Oliver Glasner's side are quietly making history. How far could it take them?`\
 https://nytimes.com/athletic/6635903/2025/09/21/crystal-palace-unbeaten-premier-league/
-
-**Nepal Uprising Is Latest Challenge to India’s Backyard Diplomacy**\
-`The overthrow of Nepal’s government is the latest in a series of uprisings among India’s neighbors, creating a political churn that complicates its ties.`\
-https://nytimes.com/2025/09/21/world/asia/india-nepal-diplomacy-asia.html
-
-**Taylor Fritz stuns Carlos Alcaraz at Laver Cup to hold Team World's lead**\
-`Fritz won 57 points to 37 for Alcaraz, who couldn’t get his typical pinpoint control of his forehand.`\
-https://nytimes.com/athletic/6648195/2025/09/21/laver-cup-taylor-fritz-beats-carlos-alcaraz/
-
-**How to watch Giants at Dodgers: Time, TV, streaming for September 21**\
-`Find out how to watch the San Francisco Giants play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6648217/2025/09/21/giants-vs-dodgers-stream-how-to-watch-sept-21/
-
-**How to watch Athletics at Pirates: Time, TV, streaming for September 21**\
-`Find out how to watch the Athletics play the Pittsburgh Pirates, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6648210/2025/09/21/athletics-vs-pirates-stream-how-to-watch-sept-21/
 
