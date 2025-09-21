@@ -1,3 +1,11 @@
+**Canucks training camp scrimmage: 3 players who helped themselves and 3 who didn’t**\
+`Three players stood out and helped their cause in Saturday's Team White vs. Team Blue intrasquad scrimmage, and three didn't.`\
+https://nytimes.com/athletic/6647512/2025/09/20/canucks-training-camp-scrimmage-players/
+
+**Giancarlo Stanton blasts 450th career home run, moves to 41st all-time**\
+`Only Mark McGwire, Babe Ruth, Alex Rodriguez and Harmon Killebrew have hit as many home runs in fewer games than Stanton.`\
+https://nytimes.com/athletic/6647810/2025/09/20/giancarlo-stanton-450-home-runs-yankees/
+
 **The Laver Cup is a team event, but each player has their own idea of how to approach it**\
 `The competition has wrestled the tennis world over its identity ever since it began eight years ago.`\
 https://nytimes.com/athletic/6643402/2025/09/20/laver-cup-tennis-competition-teams-importance/
