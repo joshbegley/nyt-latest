@@ -1,5 +1,9 @@
-**Michigan State linebacker Wayne Matthews III carted off field after collision against USC**\
-`Wayne Matthews III collided with a teammate after making a tackle and needed immediate medical attention on the field. `\
+**Ruben Amorim demanded more aggression. Manchester United finally delivered**\
+`The head coach had sought to change his team's mindset and, in the hard-fought win over Chelsea, the players responded to his rallying cry`\
+https://nytimes.com/athletic/6647844/2025/09/21/manchester-united-amorim-chelsea-aggression/
+
+**Michigan State LB Wayne Matthews III carted off after collision at USC**\
+`Wayne Matthews III collided with a Michigan State teammate after making a tackle and needed immediate medical attention on the field. `\
 https://nytimes.com/athletic/6648323/2025/09/21/wayne-matthews-michigan-state-usc-injury/
 
 **Mariners, diving Victor Robles rob the Astros, rocking their air of inevitability**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6637192/2025/09/21/how-wrexham-shackled-usmnts-josh
 **Minteh is helping Brighton cope without Joao Pedro – but they need to fix away form**\
 `Six players have scored for Fabian Hurzeler's side this season, adding to their unpredictability`\
 https://nytimes.com/athletic/6634496/2025/09/21/minteh-brighton-joao-pedro-carlos-baleba/
-
-**Arsenal vs Manchester City preview: Who has the best chance of winning Sunday's blockbuster?**\
-`Dan Sheldon and Jordan Campbell preview the Premier League showdown between Arsenal and Manchester City`\
-https://nytimes.com/athletic/6644211/2025/09/21/arsenal-manchester-city-preview-arteta-guardiola/
 
