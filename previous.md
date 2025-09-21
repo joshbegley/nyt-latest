@@ -1,5 +1,5 @@
 **What Is the H-1B Visa Program, and How Is Trump Changing It?**\
-`President Trump signed an order on Friday adding a $100,000 fee to visas for skilled foreign workers. Immigration hard-liners have criticized the program for replacing American workers.`\
+`President Trump signed a proclamation on Friday adding a $100,000 fee to visas for skilled foreign workers. Immigration hard-liners have criticized the program for replacing American workers.`\
 https://nytimes.com/2025/09/20/us/politics/h1b-visa-trump-immigration.html
 
 **How to watch Brewers at Cardinals: Time, TV, streaming for September 21**\
