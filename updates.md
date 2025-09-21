@@ -1,3 +1,20 @@
+**Lowetide: What to expect from the Bakersfield Condors in 2025-26**\
+`The Condors should be wildly entertaining this season and could be the most successful edition of the team.`\
+https://nytimes.com/athletic/6645882/2025/09/21/oilers-ahl-bakersfield-condors-roster-2025/
+
+**Why Jason Dickinson's line is essential to Blackhawks coach Jeff Blashill's plan**\
+`Blashill has opened camp with Dickinson as a third-line shutdown center on a line with Ilya Mikheyev and Landon Slaggert.
+`\
+https://nytimes.com/athletic/6647227/2025/09/21/blackhawks-jason-dickinson-training-camp-jeff-blashill/
+
+**The W.N.B.A.’s Growing Fan-Base**\
+`Boys and men now love women’s basketball, too.`\
+https://nytimes.com/2025/09/21/us/wnba-fans-charlie-kirk-memorial.html
+
+**Pulse: Playoff crashers lining up**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6648180/2025/09/21/playoff-crashers-like-texas-tech-and-indiana-are-lining-up-and-they-arent-alone/
+
 **WNBA semifinals predictions, how to watch, what to know**\
 `The Aces host the Fever, and the Lynx host the Mercury on Sunday to start the semifinals. Sabreena Merchant makes her picks.`\
 https://nytimes.com/athletic/6648130/2025/09/21/wnba-semifinals-playoffs-predictions-aces-fever/

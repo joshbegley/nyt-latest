@@ -1,3 +1,20 @@
+**Lowetide: What to expect from the Bakersfield Condors in 2025-26**\
+`The Condors should be wildly entertaining this season and could be the most successful edition of the team.`\
+https://nytimes.com/athletic/6645882/2025/09/21/oilers-ahl-bakersfield-condors-roster-2025/
+
+**Why Jason Dickinson's line is essential to Blackhawks coach Jeff Blashill's plan**\
+`Blashill has opened camp with Dickinson as a third-line shutdown center on a line with Ilya Mikheyev and Landon Slaggert.
+`\
+https://nytimes.com/athletic/6647227/2025/09/21/blackhawks-jason-dickinson-training-camp-jeff-blashill/
+
+**The W.N.B.A.’s Growing Fan-Base**\
+`Boys and men now love women’s basketball, too.`\
+https://nytimes.com/2025/09/21/us/wnba-fans-charlie-kirk-memorial.html
+
+**Pulse: Playoff crashers lining up**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6648180/2025/09/21/playoff-crashers-like-texas-tech-and-indiana-are-lining-up-and-they-arent-alone/
+
 **WNBA semifinals predictions, how to watch, what to know**\
 `The Aces host the Fever, and the Lynx host the Mercury on Sunday to start the semifinals. Sabreena Merchant makes her picks.`\
 https://nytimes.com/athletic/6648130/2025/09/21/wnba-semifinals-playoffs-predictions-aces-fever/
@@ -21,20 +38,4 @@ https://nytimes.com/athletic/6648522/2025/09/21/usc-football-lincoln-riley-colle
 **Blue Jackets Sunday Gathering: First-round picks Lindstrom, Smith settle into campus life**\
 `When the Blue Jackets started training camp, their two top prospects were hundreds of miles away juggling school and hockey.`\
 https://nytimes.com/athletic/6645414/2025/09/21/blue-jackets-prospects-lindstrom-smith/
-
-**This Maple Leafs prospect may be the dark horse of camp. Does he have an NHL future?**\
-`Haymes, a free agent signed out of the NCAA, was Toronto's top player at the rookie tournament and wants to stand out in training camp, too.`\
-https://nytimes.com/athletic/6647920/2025/09/21/maple-leafs-prospect-luke-haymes-camp-nhl/
-
-**Sherrone Moore returns to a Michigan team that's battle-tested for Big Ten play**\
-`Michigan wasn't fazed by Nebraska's first-half Hail Mary. A more convincing win than the final score suggests bodes well for Big Ten play.`\
-https://nytimes.com/athletic/6648017/2025/09/21/michigan-football-nebraska-biff-poggi-sherrone-moore/
-
-**How the playoff-bound Cubs were built for the long haul**\
-`In recent years, the Cubs changed the leadership structure within their draft room and overhauled how they assess up-and-coming talent.`\
-https://nytimes.com/athletic/6648107/2025/09/21/how-cubs-built-playoff-team-system/
-
-**Blue Jays stay stuck on the brink of a clinch as offence remains cold**\
-`A win would’ve locked up October. Instead, the Blue Jays fell 2-1 to the Royals on Saturday for their fourth straight loss.`\
-https://nytimes.com/athletic/6648109/2025/09/21/blue-jays-brink-playoffs-offense-royals/
 
