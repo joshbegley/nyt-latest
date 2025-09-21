@@ -1,3 +1,11 @@
+**A Who’s Who of the American Right Attends Charlie Kirk’s Memorial**\
+`Led by President Trump, the list of guests included high-ranking members of his administration, conservative influencers and far-right media personalities.`\
+https://nytimes.com/2025/09/21/us/politics/republican-right-wing-charlie-kirk-funeral.html
+
+**Commanders cruise without Jayden Daniels, beating Raiders 41-24**\
+`Jaylin Lane returned a punt 90 yards for a touchdown and Washington took command of a game that was tied at 10 in the first half.`\
+https://nytimes.com/athletic/6649245/2025/09/21/raiders-commanders-41-24-result-takeaways/
+
 **Panthers vs. Falcons takeaways: Carolina nabs first win with blowout**\
 `Carolina broke the game open in the third quarter when cornerback Chau Smith-Wade returned a Michael Penix Jr. interception for a touchdown.`\
 https://nytimes.com/athletic/6649490/2025/09/21/falcons-panthers-score-result-takeaways/

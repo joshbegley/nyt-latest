@@ -1,3 +1,11 @@
+**A Who’s Who of the American Right Attends Charlie Kirk’s Memorial**\
+`Led by President Trump, the list of guests included high-ranking members of his administration, conservative influencers and far-right media personalities.`\
+https://nytimes.com/2025/09/21/us/politics/republican-right-wing-charlie-kirk-funeral.html
+
+**Commanders cruise without Jayden Daniels, beating Raiders 41-24**\
+`Jaylin Lane returned a punt 90 yards for a touchdown and Washington took command of a game that was tied at 10 in the first half.`\
+https://nytimes.com/athletic/6649245/2025/09/21/raiders-commanders-41-24-result-takeaways/
+
 **Panthers vs. Falcons takeaways: Carolina nabs first win with blowout**\
 `Carolina broke the game open in the third quarter when cornerback Chau Smith-Wade returned a Michael Penix Jr. interception for a touchdown.`\
 https://nytimes.com/athletic/6649490/2025/09/21/falcons-panthers-score-result-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6649216/2025/09/21/steelers-patriots-score-result-t
 **Falcons bench Michael Penix Jr. for Kirk Cousins in fourth quarter of blowout loss**\
 `Penix completed just 18 of 36 passes for 172 yards, no touchdowns and two interceptions, including a pick six. `\
 https://nytimes.com/athletic/6649451/2025/09/21/falcons-bench-michael-penix-kirk-cousins/
-
-**Rashford left out of Barcelona line-up after arriving late to training**\
-`Hansi Flick has a policy of not selecting players who are late, with Raphinha and Jules Kounde among those to previously be punished.`\
-https://nytimes.com/athletic/6649435/2025/09/21/marcus-rashford-barcelona-getafe-late/
-
-**Trump Says the Murdochs May Join TikTok Investors**\
-`Fox Corporation is considering investing in the popular video app as part of a bid to avert a U.S. ban, a person familiar with the situation said after the president’s remarks.`\
-https://nytimes.com/2025/09/21/business/media/fox-corporation-tiktok-lachlan-rupert-murdoch-ellison-trump.html
 
