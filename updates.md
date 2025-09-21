@@ -1,3 +1,11 @@
+**How to watch Angels at Rockies: Time, TV, streaming for September 21**\
+`Find out how to watch the Los Angeles Angels play the Colorado Rockies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6648480/2025/09/21/angels-vs-rockies-stream-how-to-watch-sept-21/
+
+**How to watch Phillies at Diamondbacks: Time, TV, streaming for September 21**\
+`Find out how to watch the Philadelphia Phillies play the Arizona Diamondbacks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6648474/2025/09/21/phillies-vs-diamondbacks-stream-how-to-watch-sept-21/
+
 **For Erika Kirk, a Husband’s Life Cut Short by Violence He Seemed to Foresee**\
 `In an interview, the wife of the conservative activist Charlie Kirk said she had implored him to wear a bulletproof vest. But she sees divine work in his death.`\
 https://nytimes.com/2025/09/21/us/politics/erika-kirk.html
