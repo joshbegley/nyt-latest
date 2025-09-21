@@ -1,3 +1,11 @@
+**Defeat to Liverpool shows Everton don't yet have capacity for striking gold**\
+`Even with a new stadium, David Moyes' side are shopping in a different market to their Merseyside rivals`\
+https://nytimes.com/athletic/6647300/2025/09/21/everton-liverpool-strikers-budget/
+
+**How Wrexham shackled USMNT's Sargent**\
+`Phil Parkinson rates Sargent as the "best striker in the league". So how did his side keep the Norwich striker quiet?`\
+https://nytimes.com/athletic/6637192/2025/09/21/how-wrexham-shackled-usmnts-josh-sargent/
+
 **Minteh is helping Brighton cope without Joao Pedro – but they need to fix away form**\
 `Six players have scored for Fabian Hurzeler's side this season, adding to their unpredictability`\
 https://nytimes.com/athletic/6634496/2025/09/21/minteh-brighton-joao-pedro-carlos-baleba/
