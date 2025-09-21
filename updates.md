@@ -1,3 +1,7 @@
+**Marseille vs PSG postponed after storm warnings, game rescheduled for Ballon d'Or ceremony**\
+`Ligue de Football Professionnel said Le Classique will instead be played on Monday, September 22 with kick-off at 8pm local time.`\
+https://nytimes.com/athletic/6648781/2025/09/21/marseille-psg-postponed-storm/
+
 **Fantasy football Week 3 inactives: Jake Browning, backup QBs take the stage**\
 `The latest reports on which players might miss Week 3 due to injury.`\
 https://nytimes.com/athletic/6648776/2025/09/21/fantasy-football-week-3-inactives-jake-browning-backup-qbs-take-the-stage/
