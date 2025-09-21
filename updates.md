@@ -1,3 +1,7 @@
+**Indiana crushes Illinois as QB Fernando Mendoza, defense dominate**\
+`IU QB Fernando Mendoza completed 21 of 23 passes — including 17 straight — for 267 yards and five touchdowns. `\
+https://nytimes.com/athletic/6647909/2025/09/20/indiana-football-illinois-score-takeaways/
+
 **Several People Shot at New Hampshire Country Club**\
 `A suspect was detained after the shooting at the Sky Meadow Country Club in Nashua, the police said. The victims’ conditions were unclear.`\
 https://nytimes.com/2025/09/20/us/new-hampshire-country-club-shooting.html

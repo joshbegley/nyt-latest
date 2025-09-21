@@ -1,3 +1,7 @@
+**Indiana crushes Illinois as QB Fernando Mendoza, defense dominate**\
+`IU QB Fernando Mendoza completed 21 of 23 passes — including 17 straight — for 267 yards and five touchdowns. `\
+https://nytimes.com/athletic/6647909/2025/09/20/indiana-football-illinois-score-takeaways/
+
 **Several People Shot at New Hampshire Country Club**\
 `A suspect was detained after the shooting at the Sky Meadow Country Club in Nashua, the police said. The victims’ conditions were unclear.`\
 https://nytimes.com/2025/09/20/us/new-hampshire-country-club-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6647951/2025/09/20/brewers-vs-cardinals-stream-how-
 **How to watch Padres at White Sox: Time, TV, streaming for September 21**\
 `Find out how to watch the San Diego Padres play the Chicago White Sox, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6647948/2025/09/20/padres-vs-white-sox-stream-how-to-watch-sept-21/
-
-**How to watch Cubs at Reds: Time, TV, streaming for September 21**\
-`Find out how to watch the Chicago Cubs play the Cincinnati Reds, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6647949/2025/09/20/cubs-vs-reds-stream-how-to-watch-sept-21/
 
