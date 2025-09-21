@@ -1,3 +1,7 @@
+**In Assault on Free Speech, Trump Targets Speech He Hates**\
+`The president’s complaints about negative coverage undermine the rationales offered by his own officials.`\
+https://nytimes.com/2025/09/21/us/politics/trump-free-speech.html
+
 **Italy beats the U.S. to defend Billie Jean King Cup title**\
 `Elisabetta Cocciaretto and Jasmine Paolini beat Emma Navarro and Jessica Pegula respectively in straight sets in Sunday's final.`\
 https://nytimes.com/athletic/6648726/2025/09/21/italy-beats-the-united-states-to-defend-billie-jean-king-cup-title/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/21/opinion/cursing-profanity.html
 **Until Saturday: New contenders emerge**\
 `Until Saturday is The Athletic's free CFB newsletter.`\
 https://nytimes.com/athletic/6648696/2025/09/21/college-football-playoff-odds-until-saturday/
-
-**Max Verstappen cruises to victory in Baku, Oscar Piastri crashes out**\
-`Max Verstappen makes it back-to-back wins for the first time since the 2024 season as McLaren has a weekend to forget`\
-https://nytimes.com/athletic/6648566/2025/09/21/azerbaijan-grand-prix-max-verstappen-wins-oscar-piastri-crashes-out/
 
