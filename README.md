@@ -1,3 +1,7 @@
+**Marseille vs PSG postponed after storm warnings, game rescheduled for Ballon d'Or ceremony**\
+`Ligue de Football Professionnel said Le Classique will instead be played on Monday, September 22 with kick-off at 8pm local time.`\
+https://nytimes.com/athletic/6648781/2025/09/21/marseille-psg-postponed-storm/
+
 **Fantasy football Week 3 inactives: Jake Browning, backup QBs take the stage**\
 `The latest reports on which players might miss Week 3 due to injury.`\
 https://nytimes.com/athletic/6648776/2025/09/21/fantasy-football-week-3-inactives-jake-browning-backup-qbs-take-the-stage/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/21/world/europe/starmer-uk-recognize-palestinian-sta
 **United's extra man guided them past Chelsea, but they made their own luck with attacking movement**\
 `The attacking idea is there, but the execution and end product — which are affected by other problems — need to be more consistent`\
 https://nytimes.com/athletic/6646642/2025/09/21/man-united-chelsea-mbeumo-movement/
-
-**The Psychological Value of Repentance**\
-`Every major world religion has a process for moral accounting. That’s something we rarely talk about in secular society.`\
-https://nytimes.com/2025/09/21/briefing/the-psychological-value-of-repentance.html
 

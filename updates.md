@@ -1,3 +1,7 @@
+**Fantasy football Week 3 inactives: Jake Browning, backup QBs take the stage**\
+`The latest reports on which players might miss Week 3 due to injury.`\
+https://nytimes.com/athletic/6648776/2025/09/21/fantasy-football-week-3-inactives-jake-browning-backup-qbs-take-the-stage/
+
 **Aces' A'ja Wilson named WNBA MVP for record fourth time: Reports**\
 `Aces will play the Indiana Fever Sunday at 3 p.m. ET for Game 1 of the WNBA semifinals.`\
 https://nytimes.com/athletic/6648724/2025/09/21/aces-aja-wilson-wnba-mvp-fourth-time/
