@@ -1,3 +1,11 @@
+**Man Charged After Drive-by Shooting at Local ABC Station in Sacramento**\
+`Officers responding to the site of the shooting found that at least three rounds had hit the station’s window. No injuries were reported, and a motive was unclear.`\
+https://nytimes.com/2025/09/20/us/sacramento-shooting-tv-news-station.html
+
+**Caitlin Clark fined $200 for IG comments after Fever advance to WNBA semis**\
+`This is the second known instance of a player or coach being disciplined for comments about officiating during the 2025 postseason.`\
+https://nytimes.com/athletic/6647777/2025/09/20/caitlin-clark-fine-wnba-fever/
+
 **Dodgers' Will Smith 'doubtful' for rest of regular season with hairline fracture**\
 `Dodgers manager Dave Roberts said it's "up in the air" whether the catcher will be ready for the team's first postseason series.`\
 https://nytimes.com/athletic/6647695/2025/09/20/dodgers-will-smith-hand-injury-postseason/
