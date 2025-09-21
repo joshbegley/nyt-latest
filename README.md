@@ -1,3 +1,7 @@
+**How TV networks are covering the memorial service**\
+`By John Koblin`\
+https://nytimes.com/live/2025/09/21/us/charlie-kirk-trump-news/how-tv-networks-are-covering-the-memorial-service
+
 **Commanders' Dan Quinn left bloodied after sideline collision with QB Marcus Mariota**\
 `Mariota crashed into his head coach after being hit near the sideline and Quinn was left with a gash across the top of his nose.`\
 https://nytimes.com/athletic/6649348/2025/09/21/commanders-dan-quinn-sideline-collision-marcus-mariota/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6646870/2025/09/21/graham-potter-west-ham-future-sa
 **Aaron Rodgers surpasses Brett Favre on career passing touchdowns list**\
 `Rodgers now trails only Tom Brady, Peyton Manning and Drew Brees.`\
 https://nytimes.com/athletic/6649108/2025/09/21/aaron-rodgers-career-passing-tds/
-
-**The Briefing: Arsenal 1 Manchester City 1 - Dramatic, late Gabriel Martinelli equaliser saves point at Emirates**\
-`Stuart James, Jordan Campbell and Anantaajith Raghuraman break down the action from the Emirates`\
-https://nytimes.com/athletic/6638151/2025/09/21/arsenal-manchester-city-haaland-martinelli/
 
