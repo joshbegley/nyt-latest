@@ -1,3 +1,7 @@
+**The Briefing: Arsenal 1 Manchester City 1 - Dramatic, late Gabriel Martinelli equaliser saves point at Emirates**\
+`Stuart James, Jordan Campbell and Anantaajith Raghuraman break down the action from the Emirates.`\
+https://nytimes.com/athletic/6638151/2025/09/21/arsenal-manchester-city-haaland-martinelli/
+
 **Hall of Fame goalie and Flyers legend Bernie Parent dies at 80**\
 `Parent backstopped the Flyers to a pair of Stanley Cup championships in 1974 and 1975.`\
 https://nytimes.com/athletic/6649162/2025/09/21/bernie-parent-flyers-hall-of-fame-obit/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6649083/2025/09/21/49ers-injuries-brock-purdy-jauan
 **Emery: Villa were 'lazy' in draw against Sunderland**\
 `Villa remain without a win in this season but Matty Cash did score their first Premier League goal of the campaign.`\
 https://nytimes.com/athletic/6649039/2025/09/21/aston-villa-unai-emery-sunderland/
-
-**Tigers DFA 41-year-old Charlie Morton as playoff race intensifies**\
-`Veteran pitcher, 41, had a 7.09 ERA since coming to the Tigers at the trade deadline.`\
-https://nytimes.com/athletic/6649012/2025/09/21/detroit-tigers-dfa-charlie-morton/
 
