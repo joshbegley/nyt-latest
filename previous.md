@@ -1,3 +1,7 @@
+**Rams vs. Eagles takeaways: Jordan Davis' blocked FG return for TD ices Philly win**\
+`The defending Super Bowl champion Eagles rally from a 26-9 third-quarter deficit to win a playoff rematch and improve to 3-0.`\
+https://nytimes.com/athletic/6649207/2025/09/21/rams-eagles-score-result-takeaways/
+
 **A Who’s Who of the American Right Attends Charlie Kirk’s Memorial**\
 `Led by President Trump, the list of guests included high-ranking members of his administration, conservative influencers and far-right media personalities.`\
 https://nytimes.com/2025/09/21/us/politics/republican-right-wing-charlie-kirk-funeral.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6649344/2025/09/21/colts-titans-41-20-result-takeaw
 **Steelers vs. Patriots takeaways: Aaron Rodgers' late TD lifts Pittsburgh**\
 `New England fumbles chances, committing five turnovers as Steelers win defensive struggle.`\
 https://nytimes.com/athletic/6649216/2025/09/21/steelers-patriots-score-result-takeaways/
-
-**Falcons bench Michael Penix Jr. for Kirk Cousins in fourth quarter of blowout loss**\
-`Penix completed just 18 of 36 passes for 172 yards, no touchdowns and two interceptions, including a pick six. `\
-https://nytimes.com/athletic/6649451/2025/09/21/falcons-bench-michael-penix-kirk-cousins/
 

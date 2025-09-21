@@ -1,3 +1,7 @@
+**Rams vs. Eagles takeaways: Jordan Davis' blocked FG return for TD ices Philly win**\
+`The defending Super Bowl champion Eagles rally from a 26-9 third-quarter deficit to win a playoff rematch and improve to 3-0.`\
+https://nytimes.com/athletic/6649207/2025/09/21/rams-eagles-score-result-takeaways/
+
 **A Who’s Who of the American Right Attends Charlie Kirk’s Memorial**\
 `Led by President Trump, the list of guests included high-ranking members of his administration, conservative influencers and far-right media personalities.`\
 https://nytimes.com/2025/09/21/us/politics/republican-right-wing-charlie-kirk-funeral.html
