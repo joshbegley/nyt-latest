@@ -1,3 +1,11 @@
+**Trump Says the Murdochs May Join TikTok Investors**\
+`Fox Corporation is considering investing in the popular video app as part of a bid to avert a U.S. ban, a person familiar with the situation said after the president’s remarks.`\
+https://nytimes.com/2025/09/21/business/media/fox-corporation-tiktok-lachlan-rupert-murdoch-ellison-trump.html
+
+**Here’s how TV networks are covering the memorial service.**\
+`By John Koblin`\
+https://nytimes.com/live/2025/09/21/us/charlie-kirk-trump-news/how-tv-networks-are-covering-the-memorial-service
+
 **‘We Are All Charlie’: Thousands Stood in Line for Hours in Hopes of Paying Tribute**\
 `Many endured stifling heat outside the stadium in Glendale, Ariz. Some who were turned away headed to a nearby arena, while others went home.`\
 https://nytimes.com/2025/09/21/us/politics/we-are-all-charlie-thousands-stood-in-line-for-hours-in-hopes-of-paying-tribute.html
