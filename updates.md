@@ -1,3 +1,11 @@
+**Eagles blocked field goal leads to all-time bad beat for Rams bettors**\
+`Some are already saying this will be the bad beat of the year. See how this last-second TD caused a six-figure swing for one sportsbook.`\
+https://nytimes.com/athletic/6649676/2025/09/21/eagles-rams-blocked-field-goal-bad-beat-betting/
+
+**49ers' Nick Bosa, Cardinals' James Conner ruled out with injury**\
+`Bosa appeared to injure his knee late in the first quarter, while Conner left with an ankle injury after a short run in the third.`\
+https://nytimes.com/athletic/6649728/2025/09/21/49ers-nick-bosa-injury-cardinals/
+
 **Trump and Musk Are Seen Together at Kirk Memorial, Months After Falling-Out**\
 `The meeting came just three months after Mr. Musk exited the government in a fit of rage, attacking the president on social media.`\
 https://nytimes.com/2025/09/21/us/politics/trump-musk-kirk-memrorial.html

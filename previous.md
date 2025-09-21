@@ -1,3 +1,7 @@
+**Eagles blocked field goal leads to all-time bad beat for Rams bettors**\
+`Some are already saying this will be the bad beat of the year. See how this last-second TD caused a six-figure swing for one sportsbook.`\
+https://nytimes.com/athletic/6649676/2025/09/21/eagles-rams-blocked-field-goal-bad-beat-betting/
+
 **Trump and Musk Are Seen Together at Kirk Memorial, Months After Falling-Out**\
 `The meeting came just three months after Mr. Musk exited the government in a fit of rage, attacking the president on social media.`\
 https://nytimes.com/2025/09/21/us/politics/trump-musk-kirk-memrorial.html
@@ -18,8 +22,8 @@ https://nytimes.com/2025/09/21/crosswords/daily-puzzle-2025-09-22.html
 `The tricky romantic drama in H.S. Cross’s new novel, “Amanda,” aims for both historical sweep and high erotic tension.`\
 https://nytimes.com/2025/09/21/books/review/h-s-cross-amanda.html
 
-**49ers' Nick Bosa ruled out vs. Cardinals with knee injury**\
-`The injury appeared to occur late in the first quarter on a third-and-9.`\
+**49ers' Nick Bosa, Cardinals' James Conner ruled out with injury**\
+`Bosa appeared to injure his knee late in the first quarter, while Conner left with an ankle injury after a short run in the third.`\
 https://nytimes.com/athletic/6649728/2025/09/21/49ers-nick-bosa-injury-cardinals/
 
 **Chargers' Najee Harris, Mekhi Becton ruled out with injuries vs. Broncos**\
@@ -33,8 +37,4 @@ https://nytimes.com/card/2025/09/21/us/chicago-river-swim
 **Brewers clinch NL Central for third straight season, eye MLB's best record**\
 `The Brewers took the division from the Cubs and never looked back.`\
 https://nytimes.com/athletic/6649667/2025/09/21/milwaukee-brewers-nl-central-champions/
-
-**Why China Might Give Up TikTok**\
-`Beijing may be buying itself room to negotiate on the matters it cares about most: tariffs, technology and Taiwan.`\
-https://nytimes.com/2025/09/21/briefing/china-tiktok-palestinian-statehood-tariffs.html
 
