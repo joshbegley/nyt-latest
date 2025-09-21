@@ -1,3 +1,7 @@
+**Protesters in Manila Accuse Government of Misusing Environmental Funds**\
+`Demonstrations were set off by accusations that flood relief money was embezzled. They are part of a wave of discontent about economic inequality in several countries in Asia.`\
+https://nytimes.com/2025/09/21/world/asia/manila-philippines-rally-protest.html
+
 **Kyle Harrison strong in first Red Sox start as offense rallies late for another big win**\
 `The late offense saved the day, but Boston's 6-3 win wouldn’t have been possible without Harrison’s impressive start.`\
 https://nytimes.com/athletic/6648163/2025/09/21/kyle-harrison-red-sox-win/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/21/crosswords/connections-companion-834.html
 **The New York Times International Edition in Print for Monday, Sep. 22, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/09/21/todays-new-york-times-international-edition
-
-**How to watch Angels at Rockies: Time, TV, streaming for September 21**\
-`Find out how to watch the Los Angeles Angels play the Colorado Rockies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6648480/2025/09/21/angels-vs-rockies-stream-how-to-watch-sept-21/
 
