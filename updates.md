@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6647227/2025/09/21/blackhawks-jason-dickinson-training-camp-jeff-blashill/
 
+**Why Jason Dickinson's line is essential to Blackhawks coach Jeff Blashill's plan**\
+`Blashill has opened camp with Dickinson as a third-line shutdown center on a line with Ilya Mikheyev and Landon Slaggert.
+`\
+https://nytimes.com/athletic/6647227/2025/09/21/blackhawks-jason-dickinson-training-camp-jeff-blashill/
+
 **Mandel's Final Thoughts: It's getting sad for Clemson and Dabo — and jubilant at Indiana**\
 `Plus: Oklahoma is establishing itself, what happened to DJ Lagway and what team will represent the G5 in the CFP?`\
 https://nytimes.com/athletic/6648293/2025/09/21/college-football-scores-results-week-4/
