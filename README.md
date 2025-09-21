@@ -1,3 +1,7 @@
+**Fantasy football Week 3 inactives: Jake Browning, backup QBs take the stage**\
+`The latest reports on which players might miss Week 3 due to injury.`\
+https://nytimes.com/athletic/6648776/2025/09/21/fantasy-football-week-3-inactives-jake-browning-backup-qbs-take-the-stage/
+
 **Aces' A'ja Wilson named WNBA MVP for record fourth time: Reports**\
 `Aces will play the Indiana Fever Sunday at 3 p.m. ET for Game 1 of the WNBA semifinals.`\
 https://nytimes.com/athletic/6648724/2025/09/21/aces-aja-wilson-wnba-mvp-fourth-time/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6646642/2025/09/21/man-united-chelsea-mbeumo-moveme
 **The Psychological Value of Repentance**\
 `Every major world religion has a process for moral accounting. That’s something we rarely talk about in secular society.`\
 https://nytimes.com/2025/09/21/briefing/the-psychological-value-of-repentance.html
-
-**Azerbaijan Grand Prix: Submit your questions for our F1 mailbag**\
-`What questions do you have for our F1 writers after the 2025 Azerbaijan Grand Prix?`\
-https://nytimes.com/athletic/6648710/2025/09/21/f1-mailbag-azerbaijan-grand-prix/
 
