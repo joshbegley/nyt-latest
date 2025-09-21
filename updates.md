@@ -1,4 +1,8 @@
 **Mariners, diving Victor Robles rob the Astros, rocking their air of inevitability**\
+`Seattle's victory secured the season series between the teams, giving it the tiebreaker over Houston.`\
+https://nytimes.com/athletic/6648276/2025/09/21/seattle-mariners-victor-robles-houston-astros-inevitability/
+
+**Mariners, diving Victor Robles rob the Astros, rocking their air of inevitability**\
 `Seattle’s victory secured the season series between the two teams, giving it the tiebreaker over Houston.`\
 https://nytimes.com/athletic/6648276/2025/09/21/seattle-mariners-victor-robles-houston-astros-inevitability/
 
