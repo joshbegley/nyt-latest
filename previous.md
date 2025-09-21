@@ -1,4 +1,8 @@
-**Mac Jones to start for 49ers as Brock Purdy, Jauan Jennings are both out: Source**\
+**Germany celebrates first win as Brazil suffers hole in catamaran after collision**\
+`Germany celebrates a memorable victory in Geneva but Brazil fails to start a race on the second day of the Switzerland SailGP `\
+https://nytimes.com/athletic/6648587/2025/09/21/switzerland-sailgp-day-two-germany-win/
+
+**Mac Jones to start for 49ers as Brock Purdy, Jauan Jennings are both out**\
 `Purdy will miss his second straight game as Jones will have to try to beat the Cardinals without his top receiver from Week 2. `\
 https://nytimes.com/athletic/6649083/2025/09/21/49ers-injuries-brock-purdy-jauan-jennings-mac-jones/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6638573/2025/09/21/world-athletics-championships-am
 **The Briefing: Bournemouth 0 Newcastle 0 - Another away clean sheet, but was Eddie Howe's approach justified?**\
 `The wait for a goal away from home this season goes on after this shot-shy stalemate on the south coast`\
 https://nytimes.com/athletic/6638150/2025/09/21/newcastle-bournemouth-howe-woltemade/
-
-**My Oven-Roasted Chicken Shawarma**\
-`Make this often, make this yours. Plus: An announcement.`\
-https://nytimes.com/2025/09/21/dining/my-oven-roasted-chicken-shawarma.html
 

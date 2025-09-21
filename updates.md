@@ -1,3 +1,11 @@
+**Germany celebrates first win as Brazil suffers hole in catamaran after collision**\
+`Germany celebrates a memorable victory in Geneva but Brazil fails to start a race on the second day of the Switzerland SailGP `\
+https://nytimes.com/athletic/6648587/2025/09/21/switzerland-sailgp-day-two-germany-win/
+
+**Mac Jones to start for 49ers as Brock Purdy, Jauan Jennings are both out**\
+`Purdy will miss his second straight game as Jones will have to try to beat the Cardinals without his top receiver from Week 2. `\
+https://nytimes.com/athletic/6649083/2025/09/21/49ers-injuries-brock-purdy-jauan-jennings-mac-jones/
+
 **Mac Jones to start for 49ers as Brock Purdy, Jauan Jennings are both out: Source**\
 `Purdy will miss his second straight game as Jones will have to try to beat the Cardinals without his top receiver from Week 2. `\
 https://nytimes.com/athletic/6649083/2025/09/21/49ers-injuries-brock-purdy-jauan-jennings-mac-jones/
