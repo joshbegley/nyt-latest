@@ -1,3 +1,7 @@
+**Mariners’ Cal Raleigh hits 57th home run to break Ken Griffey Jr.'s franchise record**\
+`Raleigh smacked the run to right-center field at the top of the third inning to put Seattle up 3-0 over Houston.`\
+https://nytimes.com/athletic/6647842/2025/09/20/mariners-cal-raleigh-ken-griffey-jr-record-home-run/
+
 **Canucks training camp scrimmage: 3 players who helped themselves and 3 who didn’t**\
 `Three players stood out and helped their cause in Saturday's Team White vs. Team Blue intrasquad scrimmage, and three didn't.`\
 https://nytimes.com/athletic/6647512/2025/09/20/canucks-training-camp-scrimmage-players/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6647792/2025/09/20/bill-belichick-unc-ucf-result-an
 **Braves' Nacho Alvarez Jr. on first 2 homers: One of the 'top three days of my life'**\
 `Alvarez, who went 214 plate appearances over two seasons without a home run, hit two homers in a span of six innings in Atlanta's 6-5 win.`\
 https://nytimes.com/athletic/6647627/2025/09/20/nacho-alvarez-jr-braves-tigers-result/
-
-**What I'm seeing at Blues camp: Holloway's next level? Mailloux in D-zone? Lucic a lock?**\
-`After three days of Blues training camp, we're starting to get some answers to a few of the pertinent questions.`\
-https://nytimes.com/athletic/6641268/2025/09/20/blues-training-camp-holloway-mailloux-lucic/
 
