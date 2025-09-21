@@ -1,3 +1,7 @@
+**The story of the 2025 World Athletics Championships in 17 photos**\
+`The Americans set a gold-medal record, a legend said goodbye, a new men's 100-meter king was crowned, and more highlights from Tokyo.`\
+https://nytimes.com/athletic/6638573/2025/09/21/world-athletics-championships-americans-gold-melissa-jefferson-wooden-noah-lyles/
+
 **The Briefing: Bournemouth 0 Newcastle 0 - Another away clean sheet, but was Eddie Howe's approach justified?**\
 `The wait for a goal away from home this season goes on after this shot-shy stalemate on the south coast`\
 https://nytimes.com/athletic/6638150/2025/09/21/newcastle-bournemouth-howe-woltemade/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6560541/2025/09/21/college-football-playoff-bracket
 **Italy beats the U.S. to defend Billie Jean King Cup title**\
 `Elisabetta Cocciaretto and Jasmine Paolini beat Emma Navarro and Jessica Pegula respectively in straight sets in Sunday's final.`\
 https://nytimes.com/athletic/6648726/2025/09/21/italy-beats-the-united-states-to-defend-billie-jean-king-cup-title/
-
-**Security Officials Are Treating Charlie Kirk’s Memorial Like a Super Bowl**\
-`The authorities have approached security measures as an “all hands on deck” operation.`\
-https://nytimes.com/2025/09/21/us/politics/charlie-kirk-memorial-security.html
 
