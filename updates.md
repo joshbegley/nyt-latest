@@ -1,3 +1,19 @@
+**Azerbaijan Grand Prix: Submit your questions for our F1 mailbag**\
+`What questions do you have for our F1 writers after the 2025 Azerbaijan Grand Prix?`\
+https://nytimes.com/athletic/6648710/2025/09/21/f1-mailbag-azerbaijan-grand-prix/
+
+**A Responsible Way to Cool the Planet**\
+`A small, carefully scaled geoengineering program could compensate for the loss of cooling as we eliminate sulfur pollution.`\
+https://nytimes.com/2025/09/21/opinion/geoengineering-planet-cooling-sulfur.html
+
+**What’s the Problem With Profanity?**\
+`Readers respond to a guest essay about cursing. Also: Our “dangerous, surreal and unnerving times.”`\
+https://nytimes.com/2025/09/21/opinion/cursing-profanity.html
+
+**Until Saturday: New contenders emerge**\
+`Until Saturday is The Athletic's free CFB newsletter.`\
+https://nytimes.com/athletic/6648696/2025/09/21/college-football-playoff-odds-until-saturday/
+
 **Why Jason Dickinson's line is essential to Blackhawks coach Jeff Blashill's plan**\
 `Blashill has opened camp with Dickinson as a third-line shutdown center on a line with Ilya Mikheyev and Landon Slaggert.
 `\
