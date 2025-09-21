@@ -1,3 +1,15 @@
+**Reds overtake Mets for National League's third wild-card spot**\
+`“We’re not hoping for this, we believe in it,” Jose Trevino said. “We actually really believe we’re a good team."`\
+https://nytimes.com/athletic/6649702/2025/09/21/reds-mets-national-league-third-wild-card/
+
+**At Kirk Service, an Extraordinary Fusion of Government and Christianity**\
+`The memorial reflected the degree to which conservative Christianity had melded with Republican politics in the Trump era.`\
+https://nytimes.com/2025/09/21/us/politics/kirk-memorial-service-christianity-religion.html
+
+**Field goal blocks steal spotlight at end of Sunday's early NFL games**\
+`The Eagles and Browns earned dramatic wins Sunday thanks to blocked field goals, while the Jets nearly joined them.`\
+https://nytimes.com/athletic/6649821/2025/09/21/nfl-blocked-field-goals-eagles-browns-jets/
+
 **Reds overtake Mets for National League's third wild-card spot: 'You can’t kill us'**\
 `“We’re not hoping for this, we believe in it,” Jose Trevino said. “We actually really believe we’re a good team."`\
 https://nytimes.com/athletic/6649702/2025/09/21/reds-mets-national-league-third-wild-card/
