@@ -1,3 +1,7 @@
+**NFL Week 3 top storylines: Avoiding the dreaded 0-3, quarterback health and early statements**\
+`There are 10 winless teams remaining in the NFL, including a pair who meet on "Sunday Night Football" in the Chiefs and Giants.`\
+https://nytimes.com/athletic/6640614/2025/09/21/schedule-nfl-week-3-start-time-games/
+
 **They Held a Rally for Charter Schools. Then Came the Backlash.**\
 `A large demonstration — and a hostile response — could signal a resurgence of a political battle over the publicly funded but privately run schools.`\
 https://nytimes.com/2025/09/21/nyregion/charter-schools-new-york-city.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6648323/2025/09/21/wayne-matthews-michigan-state-us
 **Mariners, diving Victor Robles rob the Astros, rocking their air of inevitability**\
 `Seattle's victory secured the season series between the teams, giving it the tiebreaker over Houston.`\
 https://nytimes.com/athletic/6648276/2025/09/21/seattle-mariners-victor-robles-houston-astros-inevitability/
-
-**I Look at This Country and I See a Stranger**\
-`This is one of those moments in history.`\
-https://nytimes.com/2025/09/21/opinion/trump-kirk-trans-people-russia.html
 
