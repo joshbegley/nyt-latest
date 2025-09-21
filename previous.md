@@ -1,3 +1,7 @@
+**Several People Shot at New Hampshire Country Club**\
+`A suspect was detained after the shooting at the Sky Meadow Country Club in Nashua, the police said. The victims’ conditions were unclear.`\
+https://nytimes.com/2025/09/20/us/new-hampshire-country-club-shooting.html
+
 **Mets' failure to capitalize on Nats' mistakes proves costly — and it's a season-long problem**\
 `The Mets should be firming up their grip on a playoff spot but keep getting in their own way, with a 5-3 loss in extras the latest example.`\
 https://nytimes.com/athletic/6648004/2025/09/20/mets-nationals-extra-innings-loss/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6647948/2025/09/20/padres-vs-white-sox-stream-how-t
 **How to watch Cubs at Reds: Time, TV, streaming for September 21**\
 `Find out how to watch the Chicago Cubs play the Cincinnati Reds, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6647949/2025/09/20/cubs-vs-reds-stream-how-to-watch-sept-21/
-
-**How to watch Red Sox at Rays: Time, TV, streaming for September 21**\
-`Find out how to watch the Boston Red Sox play the Tampa Bay Rays, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6647945/2025/09/20/red-sox-vs-rays-stream-how-to-watch-sept-21/
 

@@ -1,3 +1,7 @@
+**Several People Shot at New Hampshire Country Club**\
+`A suspect was detained after the shooting at the Sky Meadow Country Club in Nashua, the police said. The victims’ conditions were unclear.`\
+https://nytimes.com/2025/09/20/us/new-hampshire-country-club-shooting.html
+
 **Mets' failure to capitalize on Nats' mistakes proves costly — and it's a season-long problem**\
 `The Mets should be firming up their grip on a playoff spot but keep getting in their own way, with a 5-3 loss in extras the latest example.`\
 https://nytimes.com/athletic/6648004/2025/09/20/mets-nationals-extra-innings-loss/
