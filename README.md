@@ -1,40 +1,40 @@
-**Liverpool's WSL match against Aston Villa postponed after Beard's death**\
-`It was announced on Saturday evening that Beard had died at the age of 47.`\
-https://nytimes.com/athletic/6648411/2025/09/21/liverpool-aston-villa-matt-beard-wsl/
+**For Erika Kirk, a Husband’s Life Cut Short by Violence He Seemed to Foresee**\
+`In an interview, the wife of the conservative activist Charlie Kirk said she had implored him to wear a bulletproof vest. But she sees divine work in his death.`\
+https://nytimes.com/2025/09/21/us/politics/erika-kirk.html
 
-**NFL Week 3 top storylines: Avoiding the dreaded 0-3, quarterback health and early statements**\
-`There are 10 winless teams remaining in the NFL, including a pair who meet on "Sunday Night Football" in the Chiefs and Giants.`\
-https://nytimes.com/athletic/6640614/2025/09/21/schedule-nfl-week-3-start-time-games/
+**A Championship, an M.V.P. and a Signature Shoe? He’s Just Getting Started.**\
+`The release of his Converse Shai 001 sneakers — with help from his family and Drake — was a victory lap for Shai Gilgeous-Alexander. He says he has “higher goals.”`\
+https://nytimes.com/2025/09/21/style/sga-converse-shai-001.html
 
-**They Held a Rally for Charter Schools. Then Came the Backlash.**\
-`A large demonstration — and a hostile response — could signal a resurgence of a political battle over the publicly funded but privately run schools.`\
-https://nytimes.com/2025/09/21/nyregion/charter-schools-new-york-city.html
+**Charlie Kirk Memorial to Draw an Outpouring From the Right**\
+`President Trump, JD Vance and other high-profile guests are among the more than 100,000 expected at the service, held at an N.F.L. stadium and an adjoining arena near Phoenix on Sunday.`\
+https://nytimes.com/2025/09/21/us/politics/charlie-kirk-memorial-trump-jd-vance.html
 
-**The Songs of the 2025 New York Mayoral Race**\
-`Music can be a powerful way for political candidates to connect with voters and convey a message. Here are the songs the New York City mayoral candidates chose.`\
-https://nytimes.com/2025/09/21/nyregion/mayor-songs-campaign-nyc.html
+**U.N. Gathers Amid Its 80th Anniversary and a ‘Free Fall’**\
+`The wars in Ukraine, Gaza and Sudan will hang over the annual gathering of the U.N. General Assembly next week in New York. So, too, will budget and identity crises.`\
+https://nytimes.com/2025/09/21/world/middleeast/un-general-assembly-80th-anniversary.html
 
-**They Were Building a Homeless Shelter. But the Land had a Grim Past**\
-`The search for a place to build a shelter in Manhattan resurfaced New York’s often overlooked history of slavery.`\
-https://nytimes.com/2025/09/21/nyregion/inwood-homeless-shelter.html
+**This Geriatrics Training Program Escaped the Ax. For Now.**\
+`The Trump administration has restored promised funds to a program that teaches people in health care how to work with aging Americans.`\
+https://nytimes.com/2025/09/21/health/geriatrics-training-funding.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/09/21/crosswords/spelling-bee-forum.html
+**Woody Allen’s First Novel: Funny-ish, but Very Familiar**\
+`In “What’s With Baum?,” an anxious, jealous and thrice-married writer finds himself stranded in a culture that wants more “schmaltz,” less “wisdom.”`\
+https://nytimes.com/2025/09/21/books/review/woody-allens-whats-with-baum.html
 
-**‘I Slid Into a Tight, Coral-Colored Dress and Three-Inch Nude Heels’**\
-`A big night out at an uncertain time, a tender encounter in Brooklyn and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2025/09/21/nyregion/metropolitan-diary.html
+**How Real Can a Fashion Mag Get?**\
+`Noah Johnson, the new editor of Highsnobiety, wants to bring the glossy down to earth.`\
+https://nytimes.com/2025/09/21/style/highsnobiety-noah-johnson-scene.html
 
-**An Intern Climbs the Stairs, Learning With Every Step**\
-`An early-career journalist should be ready to jump at whatever opportunity arises. Even if that means hiking to the top of a skyscraper.`\
-https://nytimes.com/2025/09/21/insider/internship.html
+**A Rush to Save Ancient Artifacts in Gaza Highlights All That Has Been Lost**\
+`A bombing delay enabled rescue of some objects, but archaeologists fear the wider loss of antiquities from the many cultures living there over thousands of years.`\
+https://nytimes.com/2025/09/21/world/middleeast/gaza-archeological-heritage.html
 
-**Ruben Amorim demanded more aggression. Manchester United finally delivered**\
-`The head coach had sought to change his team's mindset and, in the hard-fought win over Chelsea, the players responded to his rallying cry`\
-https://nytimes.com/athletic/6647844/2025/09/21/manchester-united-amorim-chelsea-aggression/
+**Do You Want a New Job, or Just Some External Validation?**\
+`Plus, how to gently tell your boss you have a better way of doing things.`\
+https://nytimes.com/2025/09/21/business/job-hunting-advice.html
 
-**Michigan State LB Wayne Matthews III carted off after collision at USC**\
-`Wayne Matthews III collided with a Michigan State teammate after making a tackle and needed immediate medical attention on the field. `\
-https://nytimes.com/athletic/6648323/2025/09/21/wayne-matthews-michigan-state-usc-injury/
+**Can the Galápagos Adapt to Airbnb?**\
+`The islands that Charles Darwin made famous have become more accessible. Too accessible, say some residents and researchers, who fear nature is imperiled.`\
+https://nytimes.com/2025/09/21/business/galapagos-airbnb.html
 
