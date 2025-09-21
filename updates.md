@@ -1,3 +1,7 @@
+**Stanton blasts 450th career home run, moves to 41st all-time**\
+`Only four players have hit as many home runs in fewer games than the Yankees' slugger.`\
+https://nytimes.com/athletic/6647810/2025/09/20/giancarlo-stanton-450-home-runs-yankees/
+
 **Stanton blasts 450th career home run, moves to 41st all time**\
 `Only four players have hit as many home runs in fewer games than the Yankees' slugger.`\
 https://nytimes.com/athletic/6647810/2025/09/20/giancarlo-stanton-450-home-runs-yankees/
