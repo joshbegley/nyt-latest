@@ -1,3 +1,19 @@
+**Chargers RB Najee Harris leaves with non-contact injury vs. Broncos**\
+`Rookie Omarion Hampton will be expected to take on a heavier load for the Chargers after Harris was injured Sunday in the second quarter.`\
+https://nytimes.com/athletic/6649685/2025/09/21/najee-harris-injury-chargers-broncos/
+
+**Chicagoans Avoided Their ‘Filthy’ River for Years. On Sunday, They Swam in It.**\
+`Decades of work to clean the Chicago River culminated with the first swim in almost 100 years. It was the latest sign of how the city’s relationship with its river has changed.`\
+https://nytimes.com/card/2025/09/21/us/chicago-river-swim
+
+**Brewers clinch NL Central for third straight season, eye MLB's best record**\
+`The Brewers took the division from the Cubs and never looked back.`\
+https://nytimes.com/athletic/6649667/2025/09/21/milwaukee-brewers-nl-central-champions/
+
+**Packers vs. Browns takeaways: Cleveland's improbable comeback stuns Green Bay**\
+`The Browns stole a game from the Packers, walking away with one of the most shocking finishes of the young NFL season.`\
+https://nytimes.com/athletic/6649437/2025/09/21/packers-browns-score-result-takeaways/
+
 **Why China Might Give Up TikTok**\
 `Beijing may be buying itself room to negotiate on the matters it cares about most: tariffs, technology and Taiwan.`\
 https://nytimes.com/2025/09/21/briefing/china-tiktok-palestinian-statehood-tariffs.html
