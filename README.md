@@ -1,3 +1,11 @@
+**Texans vs Jaguars takeaways: Jacksonville's gritty defense lifts them 2-1**\
+`Texans fall to 0-3 for the first time since 2018.`\
+https://nytimes.com/athletic/6649148/2025/09/21/texans-jaguars-score-result-takeaways-2/
+
+**Jonathan Taylor's big game leads undefeated Colts past Titans**\
+`Taylor ran for 102 yards and three touchdowns as the Colts improved to 3-0 against the winless Titans.`\
+https://nytimes.com/athletic/6649344/2025/09/21/colts-titans-41-20-result-takeaways/
+
 **Steelers vs. Patriots takeaways: Aaron Rodgers' late TD lifts Pittsburgh**\
 `New England fumbles chances, committing five turnovers as Steelers win defensive struggle.`\
 https://nytimes.com/athletic/6649216/2025/09/21/steelers-patriots-score-result-takeaways/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6649348/2025/09/21/commanders-dan-quinn-sideline-co
 **Nepal to Investigate Killings and Arson in Student Protests**\
 `It is a first effort by the country’s new government to understand the sequence of violent events that led to the abrupt downfall of the old one.`\
 https://nytimes.com/2025/09/21/world/asia/nepal-commission-violence-protests.html
-
-**Syracuse QB Steve Angeli out for the season with Achilles injury: Source**\
-`The transfer from Notre Dame ranks fourth nationally with 329 passing yards per game. `\
-https://nytimes.com/athletic/6649287/2025/09/21/steve-angeli-syracuse-qb-achilles-injury/
-
-**AP Top 25: Miami up to No. 2, Oklahoma rises to 7th in poll**\
-`Ohio State, Miami, Penn State, LSU, Georgia and Oregon are atop the latest AP Top 25 college football rankings after Week 4.`\
-https://nytimes.com/athletic/6649161/2025/09/21/ap-top-25-rankings-miami-oklahoma-indiana-football/
 
