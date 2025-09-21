@@ -1,3 +1,15 @@
+**The Lion’s Share**\
+`Dena R. Verkuil and Andrea Carla Michaels get doughnuts.`\
+https://nytimes.com/2025/09/21/crosswords/daily-puzzle-2025-09-22.html
+
+**A World War I Love Story, With a Contemporary Kink (or Two)**\
+`The tricky romantic drama in H.S. Cross’s new novel, “Amanda,” aims for both historical sweep and high erotic tension.`\
+https://nytimes.com/2025/09/21/books/review/h-s-cross-amanda.html
+
+**49ers' Nick Bosa ruled out vs. Cardinals with knee injury**\
+`The injury appeared to occur late in the first quarter on a third-and-9.`\
+https://nytimes.com/athletic/6649728/2025/09/21/49ers-nick-bosa-injury-cardinals/
+
 **Chargers RB Najee Harris leaves with non-contact injury vs. Broncos**\
 `Rookie Omarion Hampton will be expected to take on a heavier load for the Chargers after Harris was injured Sunday in the second quarter.`\
 https://nytimes.com/athletic/6649685/2025/09/21/najee-harris-injury-chargers-broncos/
