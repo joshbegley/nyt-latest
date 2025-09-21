@@ -1,3 +1,27 @@
+**They Held a Rally for Charter Schools. Then Came the Backlash.**\
+`A large demonstration — and a hostile response — could signal a resurgence of a political battle over the publicly funded but privately run schools.`\
+https://nytimes.com/2025/09/21/nyregion/charter-schools-new-york-city.html
+
+**The Songs of the 2025 New York Mayoral Race**\
+`Music can be a powerful way for political candidates to connect with voters and convey a message. Here are the songs the New York City mayoral candidates chose.`\
+https://nytimes.com/2025/09/21/nyregion/mayor-songs-campaign-nyc.html
+
+**They Were Building a Homeless Shelter. But the Land had a Grim Past**\
+`The search for a place to build a shelter in Manhattan resurfaced New York’s often overlooked history of slavery.`\
+https://nytimes.com/2025/09/21/nyregion/inwood-homeless-shelter.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/09/21/crosswords/spelling-bee-forum.html
+
+**‘I Slid Into a Tight, Coral-Colored Dress and Three-Inch Nude Heels’**\
+`A big night out at an uncertain time, a tender encounter in Brooklyn and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/09/21/nyregion/metropolitan-diary.html
+
+**An Intern Climbs the Stairs, Learning With Every Step**\
+`An early-career journalist should be ready to jump at whatever opportunity arises. Even if that means hiking to the top of a skyscraper.`\
+https://nytimes.com/2025/09/21/insider/internship.html
+
 **Minteh is helping Brighton cope without Joao Pedro – but what's up with Carlos Baleba?**\
 `Six players have scored for Fabian Hurzeler's side this season, adding to their unpredictability, but defensive solidity has been lacking`\
 https://nytimes.com/athletic/6634496/2025/09/21/minteh-brighton-joao-pedro-carlos-baleba/
