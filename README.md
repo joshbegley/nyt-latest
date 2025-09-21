@@ -1,3 +1,11 @@
+**Syracuse QB Steve Angeli out for the season with Achilles injury: Source**\
+`The transfer from Notre Dame ranks fourth nationally with 329 passing yards per game. `\
+https://nytimes.com/athletic/6649287/2025/09/21/steve-angeli-syracuse-qb-achilles-injury/
+
+**AP Top 25: Miami up to No. 2, Oklahoma now 7th**\
+`Ohio State, Miami, Penn State, LSU, Georgia and Oregon are atop the latest AP Top 25 college football rankings after Week 4.`\
+https://nytimes.com/athletic/6649161/2025/09/21/ap-top-25-rankings-miami-oklahoma-indiana-football/
+
 **Seattle Storm announce coach Noelle Quinn will not return in 2026**\
 `Seattle's season ended on Thursday when the Las Vegas Aces eliminated the Storm in the first round of the playoffs.`\
 https://nytimes.com/athletic/6649312/2025/09/21/seattle-storm-coach-noelle-quinn/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6649162/2025/09/21/bernie-parent-flyers-hall-of-fam
 **Police investigating clash between hundreds of Schalke, Dortmund and Koln fans**\
 `A statement said the incident occurred in a wooded area near Dortmund after people left a train following the emergency brake being used.`\
 https://nytimes.com/athletic/6649000/2025/09/21/bundesliga-schalke-dortmund-fans-police/
-
-**Here is the latest.**\
-`By Jack Healy, Tyler Pager and Nicholas Bogel-Burroughs`\
-https://nytimes.com/live/2025/09/21/us/charlie-kirk-trump-news/here-is-the-latest-on-the-memorial
-
-**Sonny Curtis Dies at 88; His Songs Included Mary Tyler Moore’s Theme**\
-`A prolific singer-songwriter who got his start with Buddy Holly, he also wrote “I Fought the Law,” “Walk Right Back” and hundreds of other songs.`\
-https://nytimes.com/2025/09/21/arts/music/sonny-curtis-dead.html
 
