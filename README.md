@@ -1,3 +1,7 @@
+**Mandel's Final Thoughts: It's getting sad for Clemson and Dabo — and jubilant at Indiana**\
+`Plus: Oklahoma is establishing itself, what happened to DJ Lagway and what team will represent the G5 in the CFP?`\
+https://nytimes.com/athletic/6648293/2025/09/21/college-football-scores-results-week-4/
+
 **Lowetide: What to expect from the Bakersfield Condors in 2025-26**\
 `The Condors should be wildly entertaining this season and could be the most successful edition of the team.`\
 https://nytimes.com/athletic/6645882/2025/09/21/oilers-ahl-bakersfield-condors-roster-2025/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6648556/2025/09/21/cole-hocker-5000m-world-champion
 **USC has its warts, but the Trojans have a path to play meaningful late-season games**\
 `USC has barely broken a sweat in its first four games of the season, winning each by double digits. Soon, this team will be tested.`\
 https://nytimes.com/athletic/6648522/2025/09/21/usc-football-lincoln-riley-college-football-playoff/
-
-**Blue Jackets Sunday Gathering: First-round picks Lindstrom, Smith settle into campus life**\
-`When the Blue Jackets started training camp, their two top prospects were hundreds of miles away juggling school and hockey.`\
-https://nytimes.com/athletic/6645414/2025/09/21/blue-jackets-prospects-lindstrom-smith/
 

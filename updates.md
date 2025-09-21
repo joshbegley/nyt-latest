@@ -1,3 +1,8 @@
+**Why Jason Dickinson's line is essential to Blackhawks coach Jeff Blashill's plan**\
+`Blashill has opened camp with Dickinson as a third-line shutdown center on a line with Ilya Mikheyev and Landon Slaggert.
+`\
+https://nytimes.com/athletic/6647227/2025/09/21/blackhawks-jason-dickinson-training-camp-jeff-blashill/
+
 **Lowetide: What to expect from the Bakersfield Condors in 2025-26**\
 `The Condors should be wildly entertaining this season and could be the most successful edition of the team.`\
 https://nytimes.com/athletic/6645882/2025/09/21/oilers-ahl-bakersfield-condors-roster-2025/
