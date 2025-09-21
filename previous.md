@@ -1,3 +1,11 @@
+**The Briefing: Bournemouth 0 Newcastle 0 - Another away clean sheet, but was Eddie Howe's approach justified?**\
+`The wait for a goal away from home this season goes on after this shot-shy stalemate on the south coast`\
+https://nytimes.com/athletic/6638150/2025/09/21/newcastle-bournemouth-howe-woltemade/
+
+**My Oven-Roasted Chicken Shawarma**\
+`Make this often, make this yours. Plus: An announcement.`\
+https://nytimes.com/2025/09/21/dining/my-oven-roasted-chicken-shawarma.html
+
 **Marseille vs PSG postponed after storm warnings, game rescheduled for Ballon d'Or ceremony**\
 `Ligue de Football Professionnel said Le Classique will instead be played on Monday, September 22 with kick-off at 8pm local time.`\
 https://nytimes.com/athletic/6648781/2025/09/21/marseille-psg-postponed-storm/
@@ -6,7 +14,7 @@ https://nytimes.com/athletic/6648781/2025/09/21/marseille-psg-postponed-storm/
 `The latest reports on which players might miss Week 3 due to injury.`\
 https://nytimes.com/athletic/6648776/2025/09/21/fantasy-football-week-3-inactives-jake-browning-backup-qbs-take-the-stage/
 
-**Aces' A'ja Wilson named WNBA MVP for record fourth time: Reports**\
+**Aces' A'ja Wilson named WNBA MVP for record fourth time**\
 `Aces will play the Indiana Fever Sunday at 3 p.m. ET for Game 1 of the WNBA semifinals.`\
 https://nytimes.com/athletic/6648724/2025/09/21/aces-aja-wilson-wnba-mvp-fourth-time/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6648726/2025/09/21/italy-beats-the-united-states-to
 **Security Officials Are Treating Charlie Kirk’s Memorial Like a Super Bowl**\
 `The authorities have approached security measures as an “all hands on deck” operation.`\
 https://nytimes.com/2025/09/21/us/politics/charlie-kirk-memorial-security.html
-
-**Britain, Australia and Canada Recognize a Palestinian State**\
-`The announcements came on the eve of the annual gathering of the U.N. General Assembly.`\
-https://nytimes.com/2025/09/21/world/europe/starmer-uk-recognize-palestinian-state.html
-
-**United's extra man guided them past Chelsea, but they made their own luck with attacking movement**\
-`The attacking idea is there, but the execution and end product — which are affected by other problems — need to be more consistent`\
-https://nytimes.com/athletic/6646642/2025/09/21/man-united-chelsea-mbeumo-movement/
 

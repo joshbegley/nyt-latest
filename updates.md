@@ -1,3 +1,15 @@
+**The Briefing: Bournemouth 0 Newcastle 0 - Another away clean sheet, but was Eddie Howe's approach justified?**\
+`The wait for a goal away from home this season goes on after this shot-shy stalemate on the south coast`\
+https://nytimes.com/athletic/6638150/2025/09/21/newcastle-bournemouth-howe-woltemade/
+
+**My Oven-Roasted Chicken Shawarma**\
+`Make this often, make this yours. Plus: An announcement.`\
+https://nytimes.com/2025/09/21/dining/my-oven-roasted-chicken-shawarma.html
+
+**Aces' A'ja Wilson named WNBA MVP for record fourth time**\
+`Aces will play the Indiana Fever Sunday at 3 p.m. ET for Game 1 of the WNBA semifinals.`\
+https://nytimes.com/athletic/6648724/2025/09/21/aces-aja-wilson-wnba-mvp-fourth-time/
+
 **Marseille vs PSG postponed after storm warnings, game rescheduled for Ballon d'Or ceremony**\
 `Ligue de Football Professionnel said Le Classique will instead be played on Monday, September 22 with kick-off at 8pm local time.`\
 https://nytimes.com/athletic/6648781/2025/09/21/marseille-psg-postponed-storm/
