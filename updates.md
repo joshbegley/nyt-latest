@@ -1,3 +1,7 @@
+**Commanders' Dan Quinn bloodied in sideline collision with QB Marcus Mariota**\
+`Mariota crashed into his head coach after being hit near the sideline and Quinn was left with a gash across the top of his nose.`\
+https://nytimes.com/athletic/6649348/2025/09/21/commanders-dan-quinn-sideline-collision-marcus-mariota/
+
 **How TV networks are covering the memorial service**\
 `By John Koblin`\
 https://nytimes.com/live/2025/09/21/us/charlie-kirk-trump-news/how-tv-networks-are-covering-the-memorial-service

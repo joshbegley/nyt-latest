@@ -1,3 +1,7 @@
+**‘We Are All Charlie’: Thousands Stood in Line for Hours in Hopes of Paying Tribute**\
+`Many endured stifling heat outside the stadium in Glendale, Ariz. Some who were turned away headed to a nearby arena, while others went home.`\
+https://nytimes.com/2025/09/21/us/politics/we-are-all-charlie-thousands-stood-in-line-for-hours-in-hopes-of-paying-tribute.html
+
 **How TV networks are covering the memorial service**\
 `By John Koblin`\
 https://nytimes.com/live/2025/09/21/us/charlie-kirk-trump-news/how-tv-networks-are-covering-the-memorial-service
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6649187/2025/09/21/eagles-tush-push-false-start-ram
 **Potter's West Ham future: What we're hearing**\
 `The club are already talking to potential replacements for their under-fire manager after a dismal start to the new season`\
 https://nytimes.com/athletic/6646870/2025/09/21/graham-potter-west-ham-future-sack/
-
-**Aaron Rodgers surpasses Brett Favre on career passing touchdowns list**\
-`Rodgers now trails only Tom Brady, Peyton Manning and Drew Brees.`\
-https://nytimes.com/athletic/6649108/2025/09/21/aaron-rodgers-career-passing-tds/
 
