@@ -1,3 +1,15 @@
+**Commanders' Dan Quinn left bloodied after sideline collision with QB Marcus Mariota**\
+`Mariota crashed into his head coach after being hit near the sideline and Quinn was left with a gash across the top of his nose.`\
+https://nytimes.com/athletic/6649348/2025/09/21/commanders-dan-quinn-sideline-collision-marcus-mariota/
+
+**Nepal to Investigate Killings and Arson in Student Protests**\
+`It is a first effort by the country’s new government to understand the sequence of violent events that led to the abrupt downfall of the old one.`\
+https://nytimes.com/2025/09/21/world/asia/nepal-commission-violence-protests.html
+
+**AP Top 25: Miami up to No. 2, Oklahoma rises to 7th in poll**\
+`Ohio State, Miami, Penn State, LSU, Georgia and Oregon are atop the latest AP Top 25 college football rankings after Week 4.`\
+https://nytimes.com/athletic/6649161/2025/09/21/ap-top-25-rankings-miami-oklahoma-indiana-football/
+
 **Syracuse QB Steve Angeli out for the season with Achilles injury: Source**\
 `The transfer from Notre Dame ranks fourth nationally with 329 passing yards per game. `\
 https://nytimes.com/athletic/6649287/2025/09/21/steve-angeli-syracuse-qb-achilles-injury/
