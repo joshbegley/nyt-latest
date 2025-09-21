@@ -1,3 +1,7 @@
+**How Wrexham shackled the USMNT's Josh Sargent, 'the best striker in the league'**\
+`Phil Parkinson tweaked his selection and, inspired by the excellent Issa Kabore, the visitors found a way to prevail`\
+https://nytimes.com/athletic/6637192/2025/09/21/wrexham-kabore-sargent-usmnt/
+
 **Ruben Amorim demanded more aggression. Manchester United finally delivered**\
 `The head coach had sought to change his team's mindset and, in the hard-fought win over Chelsea, the players responded to his rallying cry`\
 https://nytimes.com/athletic/6647844/2025/09/21/manchester-united-amorim-chelsea-aggression/
