@@ -1,3 +1,11 @@
+**Ruben Amorim demanded more aggression. Manchester United finally delivered**\
+`The head coach had sought to change his team's mindset and, in the hard-fought win over Chelsea, the players responded to his rallying cry`\
+https://nytimes.com/athletic/6647844/2025/09/21/manchester-united-amorim-chelsea-aggression/
+
+**Michigan State LB Wayne Matthews III carted off after collision at USC**\
+`Wayne Matthews III collided with a Michigan State teammate after making a tackle and needed immediate medical attention on the field. `\
+https://nytimes.com/athletic/6648323/2025/09/21/wayne-matthews-michigan-state-usc-injury/
+
 **Michigan State linebacker Wayne Matthews III carted off field after collision against USC**\
 `Wayne Matthews III collided with a teammate after making a tackle and needed immediate medical attention on the field. `\
 https://nytimes.com/athletic/6648323/2025/09/21/wayne-matthews-michigan-state-usc-injury/
