@@ -1,3 +1,7 @@
+**Frank said Tottenham just delivered their 'most complete performance' yet. Is he right?**\
+`Spurs fell short of a dramatic comeback win at Brighton but their head coach was still thrilled by their display. This is why`\
+https://nytimes.com/athletic/6647213/2025/09/21/tottenham-brighton-analysis/
+
 **Defeat to Liverpool shows Everton don't yet have capacity for striking gold**\
 `Even with a new stadium, David Moyes' side are shopping in a different market to their Merseyside rivals`\
 https://nytimes.com/athletic/6647300/2025/09/21/everton-liverpool-strikers-budget/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6648217/2025/09/21/giants-vs-dodgers-stream-how-to-
 **How to watch Athletics at Pirates: Time, TV, streaming for September 21**\
 `Find out how to watch the Athletics play the Pittsburgh Pirates, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6648210/2025/09/21/athletics-vs-pirates-stream-how-to-watch-sept-21/
-
-**Quote of the Day: Scathing Post On Kirk Killing Disquiets Town**\
-`Quotation of the Day for Sunday, September 21, 2025.`\
-https://nytimes.com/2025/09/21/pageoneplus/quote-of-the-day-scathing-post-on-kirk-killing-disquiets-town.html
 

@@ -1,3 +1,7 @@
+**Frank said Tottenham just delivered their 'most complete performance' yet. Is he right?**\
+`Spurs fell short of a dramatic comeback win at Brighton but their head coach was still thrilled by their display. This is why`\
+https://nytimes.com/athletic/6647213/2025/09/21/tottenham-brighton-analysis/
+
 **Defeat to Liverpool shows Everton don't yet have capacity for striking gold**\
 `Even with a new stadium, David Moyes' side are shopping in a different market to their Merseyside rivals`\
 https://nytimes.com/athletic/6647300/2025/09/21/everton-liverpool-strikers-budget/
