@@ -1,3 +1,11 @@
+**Hall of Fame goalie and Flyers legend Bernie Parent dies at 80**\
+`Parent backstopped the Flyers to a pair of Stanley Cup championships in 1974 and 1975.`\
+https://nytimes.com/athletic/6649162/2025/09/21/bernie-parent-flyers-hall-of-fame-obit/
+
+**Police investigating clash between hundreds of Schalke, Dortmund and Koln fans**\
+`A statement said the incident occurred in a wooded area near Dortmund after people left a train following the emergency brake being used.`\
+https://nytimes.com/athletic/6649000/2025/09/21/bundesliga-schalke-dortmund-fans-police/
+
 **Here is the latest on the memorial.**\
 `By Jack Healy, Tyler Pager and Nicholas Bogel-Burroughs`\
 https://nytimes.com/live/2025/09/21/us/charlie-kirk-trump-news/here-is-the-latest-on-the-memorial
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6649039/2025/09/21/aston-villa-unai-emery-sunderlan
 **Tigers DFA 41-year-old Charlie Morton as playoff race intensifies**\
 `Veteran pitcher, 41, had a 7.09 ERA since coming to the Tigers at the trade deadline.`\
 https://nytimes.com/athletic/6649012/2025/09/21/detroit-tigers-dfa-charlie-morton/
-
-**Max Verstappen has suddenly re-entered the F1 championship race chat**\
-`Max Verstappen's brilliant Baku win has relit title hopes many thought extinguished. But a big gap to the McLarens remains `\
-https://nytimes.com/athletic/6648994/2025/09/21/max-verstappen-2025-f1-title-hopes-red-bull/
-
-**SEC vibes: Hope is abundant, unless you're Florida, Arkansas or South Carolina**\
-`There are eight unbeaten SEC teams, plus three one-loss teams with a foreseeable path to the Playoff.`\
-https://nytimes.com/athletic/6648866/2025/09/21/sec-football-rankings-week-5-oklahoma-florida-arkansas/
 
