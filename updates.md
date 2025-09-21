@@ -1,3 +1,11 @@
+**Falcons bench Michael Penix Jr. for Kirk Cousins in fourth quarter of blowout loss**\
+`Penix completed just 18 of 36 passes for 172 yards, no touchdowns and two interceptions, including a pick six. `\
+https://nytimes.com/athletic/6649451/2025/09/21/falcons-bench-michael-penix-kirk-cousins/
+
+**Rashford left out of Barcelona line-up after arriving late to training**\
+`Hansi Flick has a policy of not selecting players who are late, with Raphinha and Jules Kounde among those to previously be punished.`\
+https://nytimes.com/athletic/6649435/2025/09/21/marcus-rashford-barcelona-getafe-late/
+
 **Trump Says the Murdochs May Join TikTok Investors**\
 `Fox Corporation is considering investing in the popular video app as part of a bid to avert a U.S. ban, a person familiar with the situation said after the president’s remarks.`\
 https://nytimes.com/2025/09/21/business/media/fox-corporation-tiktok-lachlan-rupert-murdoch-ellison-trump.html
