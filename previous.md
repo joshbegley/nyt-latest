@@ -1,3 +1,15 @@
+**Mike Trout hits 400th home run, a 485-foot shot at Coors Field**\
+`Trout has 101 more home runs than any other player in Angels history.`\
+https://nytimes.com/athletic/6553927/2025/09/20/mike-trout-400-home-runs-485-foot-homer-coors-field/
+
+**Trump Administration to Stop Measuring Food Insecurity**\
+`The move strips the government of its main gauge of hunger in America, and will impede efforts to track the impact of aid cuts.`\
+https://nytimes.com/2025/09/20/us/politics/trump-hunger-report-data.html
+
+**Messi double just enough for Miami in 3-2 win over D.C United**\
+`Just as the muggy heat followed by heavy rain was so typical of a South Florida September day, so Inter Miami&#8217;s 3-2 win over D.`\
+https://nytimes.com/athletic/6648012/2025/09/20/lionel-messi-double-as-miami-stay-on-course-for-playoffs/
+
 **Thousands Flock to Phoenix for Charlie Kirk’s Memorial Service**\
 `On Saturday a steady stream of people, many who had traveled from other cities, made a pilgrimage to Kirk’s Turning Point USA office and the mortuary where his body lay.`\
 https://nytimes.com/2025/09/20/us/politics/charlie-kirk-memorial-phoenix.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6647945/2025/09/20/red-sox-vs-rays-stream-how-to-wa
 **How to watch Yankees at Orioles: Time, TV, streaming for September 21**\
 `Find out how to watch the New York Yankees play the Baltimore Orioles, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6647942/2025/09/20/yankees-vs-orioles-stream-how-to-watch-sept-21/
-
-**How to watch Guardians at Twins: Time, TV, streaming for September 21**\
-`Find out how to watch the Cleveland Guardians play the Minnesota Twins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6647939/2025/09/20/guardians-vs-twins-stream-how-to-watch-sept-21/
-
-**How to watch Mariners at Astros: Time, TV, streaming for September 21**\
-`Find out how to watch the Seattle Mariners play the Houston Astros, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6647936/2025/09/20/mariners-vs-astros-stream-how-to-watch-sept-21/
-
-**How to watch Marlins at Rangers: Time, TV, streaming for September 21**\
-`Find out how to watch the Miami Marlins play the Texas Rangers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6647933/2025/09/20/marlins-vs-rangers-stream-how-to-watch-sept-21/
 
