@@ -1,3 +1,7 @@
+**Thousands Flock to Phoenix for Charlie Kirk’s Memorial Service**\
+`On Saturday a steady stream of people, many who had traveled from other cities, made a pilgrimage to Kirk’s Turning Point USA office and the mortuary where his body lay.`\
+https://nytimes.com/2025/09/20/us/politics/charlie-kirk-memorial-phoenix.html
+
 **What Is the H-1B Visa Program, and How Is Trump Changing It?**\
 `President Trump signed a proclamation on Friday adding a $100,000 fee to visas for skilled foreign workers. Immigration hard-liners have criticized the program for replacing American workers.`\
 https://nytimes.com/2025/09/20/us/politics/h1b-visa-trump-immigration.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6647936/2025/09/20/mariners-vs-astros-stream-how-to
 **How to watch Marlins at Rangers: Time, TV, streaming for September 21**\
 `Find out how to watch the Miami Marlins play the Texas Rangers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6647933/2025/09/20/marlins-vs-rangers-stream-how-to-watch-sept-21/
-
-**How to watch Blue Jays at Royals: Time, TV, streaming for September 21**\
-`Find out how to watch the Toronto Blue Jays play the Kansas City Royals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6647931/2025/09/20/blue-jays-vs-royals-stream-how-to-watch-sept-21/
 
