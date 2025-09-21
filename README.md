@@ -1,3 +1,11 @@
+**Italy beats the U.S. to defend Billie Jean King Cup title**\
+`Elisabetta Cocciaretto and Jasmine Paolini beat Emma Navarro and Jessica Pegula respectively in straight sets in Sunday's final.`\
+https://nytimes.com/athletic/6648726/2025/09/21/italy-beats-the-united-states-to-defend-billie-jean-king-cup-title/
+
+**Security Officials Are Treating Charlie Kirk’s Memorial Like a Super Bowl**\
+`The authorities have approached security measures as an “all hands on deck” operation.`\
+https://nytimes.com/2025/09/21/us/politics/charlie-kirk-memorial-security.html
+
 **Britain, Australia and Canada Recognize a Palestinian State**\
 `The announcements came on the eve of the annual gathering of the U.N. General Assembly.`\
 https://nytimes.com/2025/09/21/world/europe/starmer-uk-recognize-palestinian-state.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6648696/2025/09/21/college-football-playoff-odds-un
 **Max Verstappen cruises to victory in Baku, Oscar Piastri crashes out**\
 `Max Verstappen makes it back-to-back wins for the first time since the 2024 season as McLaren has a weekend to forget`\
 https://nytimes.com/athletic/6648566/2025/09/21/azerbaijan-grand-prix-max-verstappen-wins-oscar-piastri-crashes-out/
-
-**How to watch Fever at Aces: Game 1 Time, TV, streaming**\
-`Find out how to watch the Indiana Fever play the Las Vegas Aces, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6648692/2025/09/21/fever-vs-aces-stream-how-to-watch-sept-21/
-
-**MLB playoff watch: Astros bumped by Mariners, plus bracket and clinching scenarios**\
-`The Mariners are nearing a sweep of Houston and a first-round bye, and only one game separates the Mets from the Reds in the NL wild card.`\
-https://nytimes.com/athletic/6646805/2025/09/21/mlb-playoff-watch-astros-out-mariners/
 
