@@ -1,3 +1,11 @@
+**How to watch Angels at Rockies: Time, TV, streaming for September 21**\
+`Find out how to watch the Los Angeles Angels play the Colorado Rockies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6648480/2025/09/21/angels-vs-rockies-stream-how-to-watch-sept-21/
+
+**How to watch Phillies at Diamondbacks: Time, TV, streaming for September 21**\
+`Find out how to watch the Philadelphia Phillies play the Arizona Diamondbacks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6648474/2025/09/21/phillies-vs-diamondbacks-stream-how-to-watch-sept-21/
+
 **For Erika Kirk, a Husband’s Life Cut Short by Violence He Seemed to Foresee**\
 `In an interview, the wife of the conservative activist Charlie Kirk said she had implored him to wear a bulletproof vest. But she sees divine work in his death.`\
 https://nytimes.com/2025/09/21/us/politics/erika-kirk.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/21/style/highsnobiety-noah-johnson-scene.html
 **A Rush to Save Ancient Artifacts in Gaza Highlights All That Has Been Lost**\
 `A bombing delay enabled rescue of some objects, but archaeologists fear the wider loss of antiquities from the many cultures living there over thousands of years.`\
 https://nytimes.com/2025/09/21/world/middleeast/gaza-archeological-heritage.html
-
-**Do You Want a New Job, or Just Some External Validation?**\
-`Plus, how to gently tell your boss you have a better way of doing things.`\
-https://nytimes.com/2025/09/21/business/job-hunting-advice.html
-
-**Can the Galápagos Adapt to Airbnb?**\
-`The islands that Charles Darwin made famous have become more accessible. Too accessible, say some residents and researchers, who fear nature is imperiled.`\
-https://nytimes.com/2025/09/21/business/galapagos-airbnb.html
 
