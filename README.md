@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6649988/2025/09/21/packers-browns-jordan-love-brand
 https://nytimes.com/athletic/6649982/2025/09/21/panthers-defense-shutout-falcons-first-win/
 
 **Indiana Fever make WNBA semifinals statement with 1-0 series lead at Las Vegas Aces**\
-`Aces star A'ja Wilson was just 6 of 22 shooting after being announced MVP, and Las Vegas couldn't stop the Fever.`\
+`Aces star A'ja Wilson was just 6-of-22 shooting after being announced MVP, and Las Vegas couldn't stop the Fever.`\
 https://nytimes.com/athletic/6650045/2025/09/21/indiana-fever-las-vegas-aces-wnba-playoffs-game-1/
 
 **Submit a question for Stewart Mandel's College Football Mailbag**\

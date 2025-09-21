@@ -1,3 +1,7 @@
+**Red Wings camp thoughts: Emmitt Finnie stands out in scrimmage action**\
+`The Red Wings had a lively week of physical action, culminating in Sunday's Red-White game. Here's who stood out.`\
+https://nytimes.com/athletic/6649654/2025/09/21/red-wings-training-camp-emmitt-finnie-moritz-seider/
+
 **Cowboys vs. Bears takeaways: Caleb Williams leads Chicago to first win**\
 `Williams had a career-high four TD passes, each to a different target, to go along with 298 passing yards.`\
 https://nytimes.com/athletic/6649547/2025/09/21/cowboys-bears-score-result-takeaways/
