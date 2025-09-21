@@ -1,3 +1,11 @@
+**Emery: Villa were 'lazy' in draw against Sunderland**\
+`Villa remain without a win in this season but Matty Cash did score their first Premier League goal of the campaign.`\
+https://nytimes.com/athletic/6649039/2025/09/21/aston-villa-unai-emery-sunderland/
+
+**Tigers DFA 41-year-old Charlie Morton as playoff race intensifies**\
+`Veteran pitcher, 41, had a 7.09 ERA since coming to the Tigers at the trade deadline.`\
+https://nytimes.com/athletic/6649012/2025/09/21/detroit-tigers-dfa-charlie-morton/
+
 **Max Verstappen has suddenly re-entered the F1 championship race chat**\
 `Max Verstappen's brilliant Baku win has relit title hopes many thought extinguished. But a big gap to the McLarens remains `\
 https://nytimes.com/athletic/6648994/2025/09/21/max-verstappen-2025-f1-title-hopes-red-bull/
