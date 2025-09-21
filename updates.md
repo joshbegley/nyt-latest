@@ -1,3 +1,25 @@
+**Dissecting Packers' late collapse in a stunning 13-10 loss against the Browns**\
+`The Packers blew a double-digit lead with less than four minutes remaining in a stunning 13-10 loss to the Browns on Sunday in Cleveland.`\
+https://nytimes.com/athletic/6649988/2025/09/21/packers-browns-jordan-love-brandon-mcmanus/
+
+**Shutting out the Falcons, avoiding 0-3 start a 'big deal' for Panthers and their defense**\
+`"I was excited to see that zero stay up on that board at the end,” LB Christian Rozeboom said after Carolina picked up its first victory.`\
+https://nytimes.com/athletic/6649982/2025/09/21/panthers-defense-shutout-falcons-first-win/
+
+**Indiana Fever make WNBA semifinals statement with 1-0 series lead at Las Vegas Aces**\
+`Aces star A'ja Wilson was just 6 of 22 shooting after being announced MVP, and Las Vegas couldn't stop the Fever.`\
+https://nytimes.com/athletic/6650045/2025/09/21/indiana-fever-las-vegas-aces-wnba-playoffs-game-1/
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Oregon-Penn State. Alabama-Georgia. LSU-Ole Miss. &#8230; UCLA-Northwestern.</p>
+<p>Week 5 should be a good one. Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6650070/2025/09/21/submit-a-question-for-stewart-mandels-college-football-mailbag-316/
+
+**Falcons embarrassed by Panthers and their own offensive performance: 'An all-time low'**\
+`Atlanta lost 30-0 at Carolina and benched quarterback Michael Penix Jr. for Kirk Cousins in the fourth quarter.`\
+https://nytimes.com/athletic/6649824/2025/09/21/falcons-panthers-michael-penix-offense/
+
 **Saints vs. Seahawks takeaways: Seattle dominates 44-13, New Orleans takes step back**\
 `Seattle didn’t punt until the fourth quarter.`\
 https://nytimes.com/athletic/6649980/2025/09/21/saints-seahawks-score-result-takeaways/
