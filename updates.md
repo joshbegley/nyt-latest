@@ -1,3 +1,7 @@
+**‘We Are All Charlie’: Thousands Stood in Line for Hours in Hopes of Paying Tribute**\
+`Many endured stifling heat outside the stadium in Glendale, Ariz. Some who were turned away headed to a nearby arena, while others went home.`\
+https://nytimes.com/2025/09/21/us/politics/we-are-all-charlie-thousands-stood-in-line-for-hours-in-hopes-of-paying-tribute.html
+
 **Commanders' Dan Quinn bloodied in sideline collision with QB Marcus Mariota**\
 `Mariota crashed into his head coach after being hit near the sideline and Quinn was left with a gash across the top of his nose.`\
 https://nytimes.com/athletic/6649348/2025/09/21/commanders-dan-quinn-sideline-collision-marcus-mariota/
