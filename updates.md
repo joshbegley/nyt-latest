@@ -1,3 +1,7 @@
+**Thousands Flock to Phoenix for Charlie Kirk’s Memorial Service**\
+`On Saturday a steady stream of people, many who had traveled from other cities, made a pilgrimage to Kirk’s Turning Point USA office and the mortuary where his body lay.`\
+https://nytimes.com/2025/09/20/us/politics/charlie-kirk-memorial-phoenix.html
+
 **What Is the H-1B Visa Program, and How Is Trump Changing It?**\
 `President Trump signed a proclamation on Friday adding a $100,000 fee to visas for skilled foreign workers. Immigration hard-liners have criticized the program for replacing American workers.`\
 https://nytimes.com/2025/09/20/us/politics/h1b-visa-trump-immigration.html
