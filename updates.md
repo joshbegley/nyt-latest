@@ -1,3 +1,15 @@
+**Reds overtake Mets for National League's third wild-card spot: 'You can’t kill us'**\
+`“We’re not hoping for this, we believe in it,” Jose Trevino said. “We actually really believe we’re a good team."`\
+https://nytimes.com/athletic/6649702/2025/09/21/reds-mets-national-league-third-wild-card/
+
+**Mets fall out of playoff position with another series loss**\
+`"We've put ourselves in this position," Francisco Lindor said after the Mets' loss Sunday. "We've got to find a way to get out of it."`\
+https://nytimes.com/athletic/6649854/2025/09/21/mets-fall-out-of-playoff-position-series-loss-nationals/
+
+**Eagles' blocked field goal leads to all-time bad beat for Rams bettors**\
+`Some are already saying this will be the bad beat of the year. See how this last-second TD caused a six-figure swing for one sportsbook.`\
+https://nytimes.com/athletic/6649676/2025/09/21/eagles-rams-blocked-field-goal-bad-beat-betting/
+
 **Falcons embarrassed by Panthers and their own offensive performance: 'An all-time low'**\
 `Atlanta lost 30-0 on the road at Carolina and benched quarterback Michael Penix Jr. for Kirk Cousins in the fourth quarter.`\
 https://nytimes.com/athletic/6649824/2025/09/21/falcons-panthers-michael-penix-offense/

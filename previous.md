@@ -1,8 +1,16 @@
+**Reds overtake Mets for National League's third wild-card spot: 'You can’t kill us'**\
+`“We’re not hoping for this, we believe in it,” Jose Trevino said. “We actually really believe we’re a good team."`\
+https://nytimes.com/athletic/6649702/2025/09/21/reds-mets-national-league-third-wild-card/
+
+**Mets fall out of playoff position with another series loss**\
+`"We've put ourselves in this position," Francisco Lindor said after the Mets' loss Sunday. "We've got to find a way to get out of it."`\
+https://nytimes.com/athletic/6649854/2025/09/21/mets-fall-out-of-playoff-position-series-loss-nationals/
+
 **Falcons embarrassed by Panthers and their own offensive performance: 'An all-time low'**\
 `Atlanta lost 30-0 on the road at Carolina and benched quarterback Michael Penix Jr. for Kirk Cousins in the fourth quarter.`\
 https://nytimes.com/athletic/6649824/2025/09/21/falcons-panthers-michael-penix-offense/
 
-**Eagles blocked field goal leads to all-time bad beat for Rams bettors**\
+**Eagles' blocked field goal leads to all-time bad beat for Rams bettors**\
 `Some are already saying this will be the bad beat of the year. See how this last-second TD caused a six-figure swing for one sportsbook.`\
 https://nytimes.com/athletic/6649676/2025/09/21/eagles-rams-blocked-field-goal-bad-beat-betting/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/21/books/review/h-s-cross-amanda.html
 **49ers' Nick Bosa, Cardinals' James Conner ruled out with injury**\
 `Bosa appeared to injure his knee late in the first quarter, while Conner left with an ankle injury after a short run in the third.`\
 https://nytimes.com/athletic/6649728/2025/09/21/49ers-nick-bosa-injury-cardinals/
-
-**Chargers' Najee Harris, Mekhi Becton ruled out with injuries vs. Broncos**\
-`Rookie Omarion Hampton will be expected to take on a heavier load for the Chargers after Harris was injured Sunday in the second quarter.`\
-https://nytimes.com/athletic/6649685/2025/09/21/najee-harris-injury-chargers-broncos/
-
-**Chicagoans Avoided Their ‘Filthy’ River for Years. On Sunday, They Swam in It.**\
-`Decades of work to clean the Chicago River culminated with the first swim in almost 100 years. It was the latest sign of how the city’s relationship with its river has changed.`\
-https://nytimes.com/card/2025/09/21/us/chicago-river-swim
 
