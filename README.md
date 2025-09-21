@@ -1,3 +1,7 @@
+**Seattle Storm announce coach Noelle Quinn will not return in 2026**\
+`Seattle's season ended on Thursday when the Las Vegas Aces eliminated the Storm in the first round of the playoffs.`\
+https://nytimes.com/athletic/6649312/2025/09/21/seattle-storm-coach-noelle-quinn/
+
 **It’s Gridlock Week in Manhattan as U.N. General Assembly Starts**\
 `With the United Nations session kicking off Monday, the city is closing some streets and stepping up police presence. It is usually one of the slowest weeks for traffic in Midtown.`\
 https://nytimes.com/2025/09/21/nyregion/unga-traffic-manhattan-midtown.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/09/21/us/charlie-kirk-trump-news/here-is-the-lates
 **Sonny Curtis Dies at 88; His Songs Included Mary Tyler Moore’s Theme**\
 `A prolific singer-songwriter who got his start with Buddy Holly, he also wrote “I Fought the Law,” “Walk Right Back” and hundreds of other songs.`\
 https://nytimes.com/2025/09/21/arts/music/sonny-curtis-dead.html
-
-**As Nebraska comes up short again, Huskers must confront truths of where they need to improve**\
-`“I feel like these are moments when you see what our team is built of,” running back Emmett Johnson said.`\
-https://nytimes.com/athletic/6649043/2025/09/21/nebraska-michigan-college-football-analysis/
 

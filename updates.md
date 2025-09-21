@@ -1,3 +1,7 @@
+**Here is the latest.**\
+`By Jack Healy, Tyler Pager and Nicholas Bogel-Burroughs`\
+https://nytimes.com/live/2025/09/21/us/charlie-kirk-trump-news/here-is-the-latest-on-the-memorial
+
 **It’s Gridlock Week in Manhattan as U.N. General Assembly Starts**\
 `With the United Nations session kicking off Monday, the city is closing some streets and stepping up police presence. It is usually one of the slowest weeks for traffic in Midtown.`\
 https://nytimes.com/2025/09/21/nyregion/unga-traffic-manhattan-midtown.html
