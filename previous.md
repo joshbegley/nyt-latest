@@ -1,3 +1,7 @@
+**Liverpool's WSL match against Aston Villa postponed after Beard's death**\
+`It was announced on Saturday evening that Beard had died at the age of 47.`\
+https://nytimes.com/athletic/6648411/2025/09/21/liverpool-aston-villa-matt-beard-wsl/
+
 **NFL Week 3 top storylines: Avoiding the dreaded 0-3, quarterback health and early statements**\
 `There are 10 winless teams remaining in the NFL, including a pair who meet on "Sunday Night Football" in the Chiefs and Giants.`\
 https://nytimes.com/athletic/6640614/2025/09/21/schedule-nfl-week-3-start-time-games/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6647844/2025/09/21/manchester-united-amorim-chelsea
 **Michigan State LB Wayne Matthews III carted off after collision at USC**\
 `Wayne Matthews III collided with a Michigan State teammate after making a tackle and needed immediate medical attention on the field. `\
 https://nytimes.com/athletic/6648323/2025/09/21/wayne-matthews-michigan-state-usc-injury/
-
-**Mariners, diving Victor Robles rob the Astros, rocking their air of inevitability**\
-`Seattle's victory secured the season series between the teams, giving it the tiebreaker over Houston.`\
-https://nytimes.com/athletic/6648276/2025/09/21/seattle-mariners-victor-robles-houston-astros-inevitability/
 
