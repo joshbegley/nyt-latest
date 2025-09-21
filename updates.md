@@ -1,3 +1,7 @@
+**Falcons embarrassed by Panthers and their own offensive performance: 'An all-time low'**\
+`Atlanta lost 30-0 on the road at Carolina and benched quarterback Michael Penix Jr. for Kirk Cousins in the fourth quarter.`\
+https://nytimes.com/athletic/6649824/2025/09/21/falcons-panthers-michael-penix-offense/
+
 **Eagles blocked field goal leads to all-time bad beat for Rams bettors**\
 `Some are already saying this will be the bad beat of the year. See how this last-second TD caused a six-figure swing for one sportsbook.`\
 https://nytimes.com/athletic/6649676/2025/09/21/eagles-rams-blocked-field-goal-bad-beat-betting/

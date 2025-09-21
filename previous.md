@@ -1,3 +1,7 @@
+**Falcons embarrassed by Panthers and their own offensive performance: 'An all-time low'**\
+`Atlanta lost 30-0 on the road at Carolina and benched quarterback Michael Penix Jr. for Kirk Cousins in the fourth quarter.`\
+https://nytimes.com/athletic/6649824/2025/09/21/falcons-panthers-michael-penix-offense/
+
 **Eagles blocked field goal leads to all-time bad beat for Rams bettors**\
 `Some are already saying this will be the bad beat of the year. See how this last-second TD caused a six-figure swing for one sportsbook.`\
 https://nytimes.com/athletic/6649676/2025/09/21/eagles-rams-blocked-field-goal-bad-beat-betting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6649685/2025/09/21/najee-harris-injury-chargers-bro
 **Chicagoans Avoided Their ‘Filthy’ River for Years. On Sunday, They Swam in It.**\
 `Decades of work to clean the Chicago River culminated with the first swim in almost 100 years. It was the latest sign of how the city’s relationship with its river has changed.`\
 https://nytimes.com/card/2025/09/21/us/chicago-river-swim
-
-**Brewers clinch NL Central for third straight season, eye MLB's best record**\
-`The Brewers took the division from the Cubs and never looked back.`\
-https://nytimes.com/athletic/6649667/2025/09/21/milwaukee-brewers-nl-central-champions/
 
