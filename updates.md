@@ -1,3 +1,7 @@
+**Mets' failure to capitalize on Nats' mistakes proves costly — and it's a season-long problem**\
+`The Mets should be firming up their grip on a playoff spot but keep getting in their own way, with a 5-3 loss in extras the latest example.`\
+https://nytimes.com/athletic/6648004/2025/09/20/mets-nationals-extra-innings-loss/
+
 **Mike Trout hits 400th home run, a 485-foot shot at Coors Field**\
 `Trout has 101 more home runs than any other player in Angels history.`\
 https://nytimes.com/athletic/6553927/2025/09/20/mike-trout-400-home-runs-485-foot-homer-coors-field/
