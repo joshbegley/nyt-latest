@@ -1,3 +1,7 @@
+**Max Verstappen has suddenly re-entered the F1 championship race chat**\
+`Max Verstappen's brilliant Baku win has relit title hopes many thought extinguished. But a big gap to the McLarens remains `\
+https://nytimes.com/athletic/6648994/2025/09/21/max-verstappen-2025-f1-title-hopes-red-bull/
+
 **SEC vibes: Hope is abundant, unless you're Florida, Arkansas or South Carolina**\
 `There are eight unbeaten SEC teams, plus three one-loss teams with a foreseeable path to the Playoff.`\
 https://nytimes.com/athletic/6648866/2025/09/21/sec-football-rankings-week-5-oklahoma-florida-arkansas/

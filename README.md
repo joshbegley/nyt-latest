@@ -1,3 +1,11 @@
+**Emery: Villa were 'lazy' in draw against Sunderland**\
+`Villa remain without a win in this season but Matty Cash did score their first Premier League goal of the campaign.`\
+https://nytimes.com/athletic/6649039/2025/09/21/aston-villa-unai-emery-sunderland/
+
+**Tigers DFA 41-year-old Charlie Morton as playoff race intensifies**\
+`Veteran pitcher, 41, had a 7.09 ERA since coming to the Tigers at the trade deadline.`\
+https://nytimes.com/athletic/6649012/2025/09/21/detroit-tigers-dfa-charlie-morton/
+
 **Max Verstappen has suddenly re-entered the F1 championship race chat**\
 `Max Verstappen's brilliant Baku win has relit title hopes many thought extinguished. But a big gap to the McLarens remains `\
 https://nytimes.com/athletic/6648994/2025/09/21/max-verstappen-2025-f1-title-hopes-red-bull/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/21/dining/my-oven-roasted-chicken-shawarma.html
 **Marseille vs PSG postponed after storm warnings, game rescheduled for Ballon d'Or ceremony**\
 `Ligue de Football Professionnel said Le Classique will instead be played on Monday, September 22 with kick-off at 8pm local time.`\
 https://nytimes.com/athletic/6648781/2025/09/21/marseille-psg-postponed-storm/
-
-**Fantasy football Week 3 inactives: Jake Browning, backup QBs take the stage**\
-`The latest reports on which players might miss Week 3 due to injury.`\
-https://nytimes.com/athletic/6648776/2025/09/21/fantasy-football-week-3-inactives-jake-browning-backup-qbs-take-the-stage/
-
-**Aces' A'ja Wilson named WNBA MVP for record fourth time**\
-`Aces will play the Indiana Fever Sunday at 3 p.m. ET for Game 1 of the WNBA semifinals.`\
-https://nytimes.com/athletic/6648724/2025/09/21/aces-aja-wilson-wnba-mvp-fourth-time/
 
