@@ -1,3 +1,7 @@
+**The story of the 2025 World Athletics Championships in 17 photos**\
+`The Americans set a gold-medal record, a legend said goodbye, a new men's 100-meter king was crowned, and more highlights from Tokyo.`\
+https://nytimes.com/athletic/6638573/2025/09/21/world-athletics-championships-americans-gold-melissa-jefferson-wooden-noah-lyles/
+
 **The Briefing: Bournemouth 0 Newcastle 0 - Another away clean sheet, but was Eddie Howe's approach justified?**\
 `The wait for a goal away from home this season goes on after this shot-shy stalemate on the south coast`\
 https://nytimes.com/athletic/6638150/2025/09/21/newcastle-bournemouth-howe-woltemade/
