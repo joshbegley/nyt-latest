@@ -1,3 +1,11 @@
+**Italy beats the U.S. to defend Billie Jean King Cup title**\
+`Elisabetta Cocciaretto and Jasmine Paolini beat Emma Navarro and Jessica Pegula respectively in straight sets in Sunday's final.`\
+https://nytimes.com/athletic/6648726/2025/09/21/italy-beats-the-united-states-to-defend-billie-jean-king-cup-title/
+
+**Security Officials Are Treating Charlie Kirk’s Memorial Like a Super Bowl**\
+`The authorities have approached security measures as an “all hands on deck” operation.`\
+https://nytimes.com/2025/09/21/us/politics/charlie-kirk-memorial-security.html
+
 **Britain, Australia and Canada Recognize a Palestinian State**\
 `The announcements came on the eve of the annual gathering of the U.N. General Assembly.`\
 https://nytimes.com/2025/09/21/world/europe/starmer-uk-recognize-palestinian-state.html
