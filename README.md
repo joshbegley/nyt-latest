@@ -1,3 +1,7 @@
+**Max Verstappen has suddenly re-entered the F1 championship race chat**\
+`Max Verstappen's brilliant Baku win has relit title hopes many thought extinguished. But a big gap to the McLarens remains `\
+https://nytimes.com/athletic/6648994/2025/09/21/max-verstappen-2025-f1-title-hopes-red-bull/
+
 **SEC vibes: Hope is abundant, unless you're Florida, Arkansas or South Carolina**\
 `There are eight unbeaten SEC teams, plus three one-loss teams with a foreseeable path to the Playoff.`\
 https://nytimes.com/athletic/6648866/2025/09/21/sec-football-rankings-week-5-oklahoma-florida-arkansas/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6648776/2025/09/21/fantasy-football-week-3-inactive
 **Aces' A'ja Wilson named WNBA MVP for record fourth time**\
 `Aces will play the Indiana Fever Sunday at 3 p.m. ET for Game 1 of the WNBA semifinals.`\
 https://nytimes.com/athletic/6648724/2025/09/21/aces-aja-wilson-wnba-mvp-fourth-time/
-
-**Oscar Piastri admits to 'silly mistakes' as F1 title lead shrinks after Baku crash**\
-`Oscar Piastri crashed out of F1's 2025 Baku race, shortly after he'd jumped the race start`\
-https://nytimes.com/athletic/6648813/2025/09/21/oscar-piastri-baku-crash/
 

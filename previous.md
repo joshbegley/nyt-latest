@@ -1,3 +1,7 @@
+**SEC vibes: Hope is abundant, unless you're Florida, Arkansas or South Carolina**\
+`There are eight unbeaten SEC teams, plus three one-loss teams with a foreseeable path to the Playoff.`\
+https://nytimes.com/athletic/6648866/2025/09/21/sec-football-rankings-week-5-oklahoma-florida-arkansas/
+
 **How to watch Mercury at Lynx: Game 1 Time, TV, streaming**\
 `Find out how to watch the Phoenix Mercury play the Minnesota Lynx, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6649024/2025/09/21/mercury-vs-lynx-stream-how-to-watch-sept-21/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6648724/2025/09/21/aces-aja-wilson-wnba-mvp-fourth-
 **Oscar Piastri admits to 'silly mistakes' as F1 title lead shrinks after Baku crash**\
 `Oscar Piastri crashed out of F1's 2025 Baku race, shortly after he'd jumped the race start`\
 https://nytimes.com/athletic/6648813/2025/09/21/oscar-piastri-baku-crash/
-
-**In Assault on Free Speech, Trump Targets Speech He Hates**\
-`The president’s complaints about negative coverage undermine the rationales offered by his own officials.`\
-https://nytimes.com/2025/09/21/us/politics/trump-free-speech.html
 

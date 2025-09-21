@@ -1,3 +1,7 @@
+**SEC vibes: Hope is abundant, unless you're Florida, Arkansas or South Carolina**\
+`There are eight unbeaten SEC teams, plus three one-loss teams with a foreseeable path to the Playoff.`\
+https://nytimes.com/athletic/6648866/2025/09/21/sec-football-rankings-week-5-oklahoma-florida-arkansas/
+
 **How to watch Mercury at Lynx: Game 1 Time, TV, streaming**\
 `Find out how to watch the Phoenix Mercury play the Minnesota Lynx, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6649024/2025/09/21/mercury-vs-lynx-stream-how-to-watch-sept-21/
