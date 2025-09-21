@@ -30,8 +30,8 @@ https://nytimes.com/athletic/6647213/2025/09/21/tottenham-brighton-analysis/
 `Even with a new stadium, David Moyes' side are shopping in a different market to their Merseyside rivals`\
 https://nytimes.com/athletic/6647300/2025/09/21/everton-liverpool-strikers-budget/
 
-**How Wrexham shackled USMNT's Sargent**\
-`Phil Parkinson rates Sargent as the "best striker in the league". So how did his side keep the Norwich striker quiet?`\
+**How Wrexham shackled USMNT's Josh Sargent and kickstarted their Championship campaign**\
+`Phil Parkinson rates Sargent as the "best striker in the league" but his team, inspired by the excellent Issa Kabore, found a way to prevail`\
 https://nytimes.com/athletic/6637192/2025/09/21/how-wrexham-shackled-usmnts-josh-sargent/
 
 **Minteh is helping Brighton cope without Joao Pedro – but they need to fix away form**\
