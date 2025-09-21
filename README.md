@@ -1,8 +1,12 @@
+**Trump Says the Murdochs May Join TikTok Investors**\
+`Fox Corporation is considering investing in the popular video app as part of a bid to avert a U.S. ban, a person familiar with the situation said after the president’s remarks.`\
+https://nytimes.com/2025/09/21/business/media/fox-corporation-tiktok-lachlan-rupert-murdoch-ellison-trump.html
+
 **‘We Are All Charlie’: Thousands Stood in Line for Hours in Hopes of Paying Tribute**\
 `Many endured stifling heat outside the stadium in Glendale, Ariz. Some who were turned away headed to a nearby arena, while others went home.`\
 https://nytimes.com/2025/09/21/us/politics/we-are-all-charlie-thousands-stood-in-line-for-hours-in-hopes-of-paying-tribute.html
 
-**How TV networks are covering the memorial service**\
+**Here’s how TV networks are covering the memorial service.**\
 `By John Koblin`\
 https://nytimes.com/live/2025/09/21/us/charlie-kirk-trump-news/how-tv-networks-are-covering-the-memorial-service
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/21/nyregion/unga-traffic-manhattan-midtown.html
 **Eagles' opening TD drive vs. Rams features 2 tush pushes, 2 apparent false starts**\
 `Fox rules analyst Mike Pereira said the Eagles got away with false starts on both of their successful tush pushes early in Sunday's game.`\
 https://nytimes.com/athletic/6649187/2025/09/21/eagles-tush-push-false-start-rams/
-
-**Potter's West Ham future: What we're hearing**\
-`The club are already talking to potential replacements for their under-fire manager after a dismal start to the new season`\
-https://nytimes.com/athletic/6646870/2025/09/21/graham-potter-west-ham-future-sack/
 
