@@ -1,5 +1,5 @@
 **Aaron Rodgers surpasses Brett Favre on career passing touchdowns list**\
-`Rodgers now trails only Tom Brady, Peyton Manning and Drew Brees.`\
+`Rodgers now trails only Tom Brady, Drew Brees and Peyton Manning.`\
 https://nytimes.com/athletic/6649108/2025/09/21/aaron-rodgers-career-passing-tds/
 
 **The Briefing: Arsenal 1 Manchester City 1 - Dramatic, late Gabriel Martinelli equaliser saves point at Emirates**\
