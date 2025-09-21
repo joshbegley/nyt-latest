@@ -1,3 +1,7 @@
+**Max Verstappen cruises to victory in Baku, Oscar Piastri crashes out**\
+`Max Verstappen makes it back-to-back wins for the first time since the 2024 season as McLaren has a weekend to forget`\
+https://nytimes.com/athletic/6648566/2025/09/21/azerbaijan-grand-prix-max-verstappen-wins-oscar-piastri-crashes-out/
+
 **How to watch Fever at Aces: Game 1 Time, TV, streaming**\
 `Find out how to watch the Indiana Fever play the Las Vegas Aces, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6648692/2025/09/21/fever-vs-aces-stream-how-to-watch-sept-21/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6648180/2025/09/21/playoff-crashers-like-texas-tech
 **WNBA semifinals predictions, how to watch, what to know**\
 `The Aces host the Fever, and the Lynx host the Mercury on Sunday to start the semifinals. Sabreena Merchant makes her picks.`\
 https://nytimes.com/athletic/6648130/2025/09/21/wnba-semifinals-playoffs-predictions-aces-fever/
-
-**For your consideration: Missouri in the SEC race … and Ahmad Hardy for Heisman?**\
-`Hardy, an overlooked Louisiana Monroe transfer, powered Missouri past South Carolina to a 4-0 start on Saturday. He's just getting started.`\
-https://nytimes.com/athletic/6648305/2025/09/21/missouri-south-carolina-ahmad-hardy-heisman/
 

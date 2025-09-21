@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6647227/2025/09/21/blackhawks-jason-dickinson-train
 `\
 https://nytimes.com/athletic/6647227/2025/09/21/blackhawks-jason-dickinson-training-camp-jeff-blashill/
 
+**Why Jason Dickinson's line is essential to Blackhawks coach Jeff Blashill's plan**\
+`Blashill has opened camp with Dickinson as a third-line shutdown center on a line with Ilya Mikheyev and Landon Slaggert.
+`\
+https://nytimes.com/athletic/6647227/2025/09/21/blackhawks-jason-dickinson-training-camp-jeff-blashill/
+
 **Trump Administration Live Updates: President Trump Expected to Be Among Thousands at Charlie Kirk Memorial**\
 ``\
 https://nytimes.com/live/2025/09/21/us/charlie-kirk-trump-news
