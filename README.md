@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6649108/2025/09/21/aaron-rodgers-career-passing-tds/
 
 **The Briefing: Arsenal 1 Manchester City 1 - Dramatic, late Gabriel Martinelli equaliser saves point at Emirates**\
-`Stuart James, Jordan Campbell and Anantaajith Raghuraman break down the action from the Emirates.`\
+`Stuart James, Jordan Campbell and Anantaajith Raghuraman break down the action from the Emirates`\
 https://nytimes.com/athletic/6638151/2025/09/21/arsenal-manchester-city-haaland-martinelli/
 
 **Hall of Fame goalie and Flyers legend Bernie Parent dies at 80**\

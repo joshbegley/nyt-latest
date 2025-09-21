@@ -1,3 +1,7 @@
+**Aaron Rodgers surpasses Brett Favre on career passing touchdowns list**\
+`Rodgers now trails only Tom Brady, Peyton Manning and Drew Brees.`\
+https://nytimes.com/athletic/6649108/2025/09/21/aaron-rodgers-career-passing-tds/
+
 **The Briefing: Arsenal 1 Manchester City 1 - Dramatic, late Gabriel Martinelli equaliser saves point at Emirates**\
 `Stuart James, Jordan Campbell and Anantaajith Raghuraman break down the action from the Emirates.`\
 https://nytimes.com/athletic/6638151/2025/09/21/arsenal-manchester-city-haaland-martinelli/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6648587/2025/09/21/switzerland-sailgp-day-two-germa
 **Mac Jones to start for 49ers as Brock Purdy, Jauan Jennings are both out**\
 `Purdy will miss his second straight game as Jones will have to try to beat the Cardinals without his top receiver from Week 2. `\
 https://nytimes.com/athletic/6649083/2025/09/21/49ers-injuries-brock-purdy-jauan-jennings-mac-jones/
-
-**Emery: Villa were 'lazy' in draw against Sunderland**\
-`Villa remain without a win in this season but Matty Cash did score their first Premier League goal of the campaign.`\
-https://nytimes.com/athletic/6649039/2025/09/21/aston-villa-unai-emery-sunderland/
 
