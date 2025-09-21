@@ -1,3 +1,27 @@
+**They Held a Rally for Charter Schools. Then Came the Backlash.**\
+`A large demonstration — and a hostile response — could signal a resurgence of a political battle over the publicly funded but privately run schools.`\
+https://nytimes.com/2025/09/21/nyregion/charter-schools-new-york-city.html
+
+**The Songs of the 2025 New York Mayoral Race**\
+`Music can be a powerful way for political candidates to connect with voters and convey a message. Here are the songs the New York City mayoral candidates chose.`\
+https://nytimes.com/2025/09/21/nyregion/mayor-songs-campaign-nyc.html
+
+**They Were Building a Homeless Shelter. But the Land had a Grim Past**\
+`The search for a place to build a shelter in Manhattan resurfaced New York’s often overlooked history of slavery.`\
+https://nytimes.com/2025/09/21/nyregion/inwood-homeless-shelter.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/09/21/crosswords/spelling-bee-forum.html
+
+**‘I Slid Into a Tight, Coral-Colored Dress and Three-Inch Nude Heels’**\
+`A big night out at an uncertain time, a tender encounter in Brooklyn and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/09/21/nyregion/metropolitan-diary.html
+
+**An Intern Climbs the Stairs, Learning With Every Step**\
+`An early-career journalist should be ready to jump at whatever opportunity arises. Even if that means hiking to the top of a skyscraper.`\
+https://nytimes.com/2025/09/21/insider/internship.html
+
 **Ruben Amorim demanded more aggression. Manchester United finally delivered**\
 `The head coach had sought to change his team's mindset and, in the hard-fought win over Chelsea, the players responded to his rallying cry`\
 https://nytimes.com/athletic/6647844/2025/09/21/manchester-united-amorim-chelsea-aggression/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6648276/2025/09/21/seattle-mariners-victor-robles-h
 **I Look at This Country and I See a Stranger**\
 `This is one of those moments in history.`\
 https://nytimes.com/2025/09/21/opinion/trump-kirk-trans-people-russia.html
-
-**The New York Times in Print for Sunday, Sep. 21, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/09/21/todays-new-york-times
-
-**The Last of the Larch**\
-`The story of our relationship with our environment condensed into one lovely tree.`\
-https://nytimes.com/2025/09/21/opinion/larch-tree-environment-britain.html
-
-**Frank said Tottenham just delivered their 'most complete performance' yet. Is he right?**\
-`Spurs fell short of a dramatic comeback win at Brighton but their head coach was still thrilled by their display. This is why`\
-https://nytimes.com/athletic/6647213/2025/09/21/tottenham-brighton-analysis/
-
-**Defeat to Liverpool shows Everton don't yet have capacity for striking gold**\
-`Even with a new stadium, David Moyes' side are shopping in a different market to their Merseyside rivals`\
-https://nytimes.com/athletic/6647300/2025/09/21/everton-liverpool-strikers-budget/
-
-**How Wrexham shackled the USMNT's Josh Sargent, 'the best striker in the league'**\
-`Phil Parkinson tweaked his selection and, inspired by the excellent Issa Kabore, the visitors found a way to prevail`\
-https://nytimes.com/athletic/6637192/2025/09/21/wrexham-kabore-sargent-usmnt/
-
-**Minteh is helping Brighton cope without Joao Pedro – but what's up with Carlos Baleba?**\
-`Six players have scored for Fabian Hurzeler's side this season, adding to their unpredictability, but defensive solidity has been lacking`\
-https://nytimes.com/athletic/6634496/2025/09/21/minteh-brighton-joao-pedro-carlos-baleba/
 
