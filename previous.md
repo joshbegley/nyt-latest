@@ -1,3 +1,11 @@
+**Oklahoma's offseason QB swap pays off as Mateer outlasts Arnold, Auburn**\
+`Mateer, the former three-star QB, is now living the path once expected for ex-five-star Jackson Arnold in Norman.`\
+https://nytimes.com/athletic/6648083/2025/09/20/jackson-arnold-john-mateer-oklahoma-auburn/
+
+**College Football Playoff 2025 projections: The most likely bracket with Week 4 underway**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/09/20/college-football-playoff-bracket-projections-odds/
+
 **Miami sends Florida to first 1-3 start since 1986 as pressure on Napier rises**\
 `No. 4 Miami beat Florida 26-7 on Saturday night, shutting the door with a pair of late touchdowns to prolong the Gators' rough start.`\
 https://nytimes.com/athletic/6648089/2025/09/20/miami-florida-college-football-score-recap/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6648012/2025/09/20/lionel-messi-double-as-miami-sta
 **Thousands Flock to Phoenix for Charlie Kirk’s Memorial Service**\
 `On Saturday a steady stream of people, many who had traveled from other cities, made a pilgrimage to Kirk’s Turning Point USA office and the mortuary where his body lay.`\
 https://nytimes.com/2025/09/20/us/politics/charlie-kirk-memorial-phoenix.html
-
-**What Is the H-1B Visa Program, and How Is Trump Changing It?**\
-`President Trump signed a proclamation on Friday adding a $100,000 fee to visas for skilled foreign workers. Immigration hard-liners have criticized the program for replacing American workers.`\
-https://nytimes.com/2025/09/20/us/politics/h1b-visa-trump-immigration.html
-
-**How to watch Brewers at Cardinals: Time, TV, streaming for September 21**\
-`Find out how to watch the Milwaukee Brewers play the St. Louis Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6647951/2025/09/20/brewers-vs-cardinals-stream-how-to-watch-sept-21/
 

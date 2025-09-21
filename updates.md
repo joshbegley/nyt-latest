@@ -1,3 +1,11 @@
+**Oklahoma's offseason QB swap pays off as Mateer outlasts Arnold, Auburn**\
+`Mateer, the former three-star QB, is now living the path once expected for ex-five-star Jackson Arnold in Norman.`\
+https://nytimes.com/athletic/6648083/2025/09/20/jackson-arnold-john-mateer-oklahoma-auburn/
+
+**College Football Playoff 2025 projections: The most likely bracket with Week 4 underway**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/09/20/college-football-playoff-bracket-projections-odds/
+
 **Miami sends Florida to first 1-3 start since 1986 as pressure on Napier rises**\
 `No. 4 Miami beat Florida 26-7 on Saturday night, shutting the door with a pair of late touchdowns to prolong the Gators' rough start.`\
 https://nytimes.com/athletic/6648089/2025/09/20/miami-florida-college-football-score-recap/
