@@ -1,3 +1,7 @@
+**Mariners’ Cal Raleigh hits 57th home run to break Ken Griffey Jr.'s franchise record**\
+`Raleigh smacked the run to right-center field at the top of the third inning to put Seattle up 3-0 over Houston.`\
+https://nytimes.com/athletic/6647842/2025/09/20/mariners-cal-raleigh-ken-griffey-jr-record-home-run/
+
 **Canucks training camp scrimmage: 3 players who helped themselves and 3 who didn’t**\
 `Three players stood out and helped their cause in Saturday's Team White vs. Team Blue intrasquad scrimmage, and three didn't.`\
 https://nytimes.com/athletic/6647512/2025/09/20/canucks-training-camp-scrimmage-players/
