@@ -1,3 +1,7 @@
+**Trump Administration Live Updates: President Trump Expected to Be Among Thousands at Charlie Kirk Memorial**\
+``\
+https://nytimes.com/live/2025/09/21/us/charlie-kirk-trump-news
+
 **Mandel's Final Thoughts: It's getting sad for Clemson and Dabo — and jubilant at Indiana**\
 `Plus: Oklahoma is establishing itself, what happened to DJ Lagway and what team will represent the G5 in the CFP?`\
 https://nytimes.com/athletic/6648293/2025/09/21/college-football-scores-results-week-4/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/09/21/world/middleeast/israel-jordan-allenby-crossing.h
 **Hocker wins first U.S. men's 5,000m World Championship gold since 2007**\
 `Hocker, 24, provided a late kick with 200m to go to take gold in a time of 12:58.30 in Tokyo.`\
 https://nytimes.com/athletic/6648556/2025/09/21/cole-hocker-5000m-world-championship-gold/
-
-**USC has its warts, but the Trojans have a path to play meaningful late-season games**\
-`USC has barely broken a sweat in its first four games of the season, winning each by double digits. Soon, this team will be tested.`\
-https://nytimes.com/athletic/6648522/2025/09/21/usc-football-lincoln-riley-college-football-playoff/
 
