@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Monday, Sep. 22, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/09/21/todays-new-york-times-international-edition
+
 **How to watch Angels at Rockies: Time, TV, streaming for September 21**\
 `Find out how to watch the Los Angeles Angels play the Colorado Rockies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6648480/2025/09/21/angels-vs-rockies-stream-how-to-watch-sept-21/
