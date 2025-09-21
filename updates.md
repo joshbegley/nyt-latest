@@ -1,3 +1,11 @@
+**Israel Keeps Border Crossing to Jordan Closed After Attack**\
+`The Allenby Bridge border crossing is the main gateway for Palestinians to leave the Israeli-occupied West Bank.`\
+https://nytimes.com/2025/09/21/world/middleeast/israel-jordan-allenby-crossing.html
+
+**Hocker wins first U.S. men's 5,000m World Championship gold since 2007**\
+`Hocker, 24, provided a late kick with 200m to go to take gold in a time of 12:58.30 in Tokyo.`\
+https://nytimes.com/athletic/6648556/2025/09/21/cole-hocker-5000m-world-championship-gold/
+
 **USC has its warts, but the Trojans have a path to play meaningful late-season games**\
 `USC has barely broken a sweat in its first four games of the season, winning each by double digits. Soon, this team will be tested.`\
 https://nytimes.com/athletic/6648522/2025/09/21/usc-football-lincoln-riley-college-football-playoff/
