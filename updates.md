@@ -1,3 +1,7 @@
+**The Briefing: Arsenal 1 Manchester City 1 - Dramatic, late Gabriel Martinelli equaliser saves point at Emirates**\
+`Stuart James, Jordan Campbell and Anantaajith Raghuraman break down the action from the Emirates.`\
+https://nytimes.com/athletic/6638151/2025/09/21/arsenal-manchester-city-haaland-martinelli/
+
 **Hall of Fame goalie and Flyers legend Bernie Parent dies at 80**\
 `Parent backstopped the Flyers to a pair of Stanley Cup championships in 1974 and 1975.`\
 https://nytimes.com/athletic/6649162/2025/09/21/bernie-parent-flyers-hall-of-fame-obit/
