@@ -1,3 +1,7 @@
+**Mac Jones to start for 49ers as Brock Purdy, Jauan Jennings are both out: Source**\
+`Purdy will miss his second straight game as Jones will have to try to beat the Cardinals without his top receiver from Week 2. `\
+https://nytimes.com/athletic/6649083/2025/09/21/49ers-injuries-brock-purdy-jauan-jennings-mac-jones/
+
 **Emery: Villa were 'lazy' in draw against Sunderland**\
 `Villa remain without a win in this season but Matty Cash did score their first Premier League goal of the campaign.`\
 https://nytimes.com/athletic/6649039/2025/09/21/aston-villa-unai-emery-sunderland/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6638150/2025/09/21/newcastle-bournemouth-howe-wolte
 **My Oven-Roasted Chicken Shawarma**\
 `Make this often, make this yours. Plus: An announcement.`\
 https://nytimes.com/2025/09/21/dining/my-oven-roasted-chicken-shawarma.html
-
-**Marseille vs PSG postponed after storm warnings, game rescheduled for Ballon d'Or ceremony**\
-`Ligue de Football Professionnel said Le Classique will instead be played on Monday, September 22 with kick-off at 8pm local time.`\
-https://nytimes.com/athletic/6648781/2025/09/21/marseille-psg-postponed-storm/
 

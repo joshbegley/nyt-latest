@@ -1,3 +1,7 @@
+**Mac Jones to start for 49ers as Brock Purdy, Jauan Jennings are both out: Source**\
+`Purdy will miss his second straight game as Jones will have to try to beat the Cardinals without his top receiver from Week 2. `\
+https://nytimes.com/athletic/6649083/2025/09/21/49ers-injuries-brock-purdy-jauan-jennings-mac-jones/
+
 **Emery: Villa were 'lazy' in draw against Sunderland**\
 `Villa remain without a win in this season but Matty Cash did score their first Premier League goal of the campaign.`\
 https://nytimes.com/athletic/6649039/2025/09/21/aston-villa-unai-emery-sunderland/
