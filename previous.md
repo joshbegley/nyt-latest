@@ -1,3 +1,15 @@
+**Britain, Australia and Canada Recognize a Palestinian State**\
+`The announcements came on the eve of the annual gathering of the U.N. General Assembly.`\
+https://nytimes.com/2025/09/21/world/europe/starmer-uk-recognize-palestinian-state.html
+
+**United's extra man guided them past Chelsea, but they made their own luck with attacking movement**\
+`The attacking idea is there, but the execution and end product — which are affected by other problems — need to be more consistent`\
+https://nytimes.com/athletic/6646642/2025/09/21/man-united-chelsea-mbeumo-movement/
+
+**The Psychological Value of Repentance**\
+`Every major world religion has a process for moral accounting. That’s something we rarely talk about in secular society.`\
+https://nytimes.com/2025/09/21/briefing/the-psychological-value-of-repentance.html
+
 **Azerbaijan Grand Prix: Submit your questions for our F1 mailbag**\
 `What questions do you have for our F1 writers after the 2025 Azerbaijan Grand Prix?`\
 https://nytimes.com/athletic/6648710/2025/09/21/f1-mailbag-azerbaijan-grand-prix/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6648692/2025/09/21/fever-vs-aces-stream-how-to-watc
 **MLB playoff watch: Astros bumped by Mariners, plus bracket and clinching scenarios**\
 `The Mariners are nearing a sweep of Houston and a first-round bye, and only one game separates the Mets from the Reds in the NL wild card.`\
 https://nytimes.com/athletic/6646805/2025/09/21/mlb-playoff-watch-astros-out-mariners/
-
-**Trump Administration Live Updates: President Trump Expected to Be Among Thousands at Charlie Kirk Memorial**\
-``\
-https://nytimes.com/live/2025/09/21/us/charlie-kirk-trump-news
-
-**Mandel's Final Thoughts: It's getting sad for Clemson and Dabo — and jubilant at Indiana**\
-`Plus: Oklahoma is establishing itself, what happened to DJ Lagway and what team will represent the G5 in the CFP?`\
-https://nytimes.com/athletic/6648293/2025/09/21/college-football-scores-results-week-4/
-
-**Lowetide: What to expect from the Bakersfield Condors in 2025-26**\
-`The Condors should be wildly entertaining this season and could be the most successful edition of the team.`\
-https://nytimes.com/athletic/6645882/2025/09/21/oilers-ahl-bakersfield-condors-roster-2025/
 

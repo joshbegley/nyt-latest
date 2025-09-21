@@ -1,3 +1,15 @@
+**Britain, Australia and Canada Recognize a Palestinian State**\
+`The announcements came on the eve of the annual gathering of the U.N. General Assembly.`\
+https://nytimes.com/2025/09/21/world/europe/starmer-uk-recognize-palestinian-state.html
+
+**United's extra man guided them past Chelsea, but they made their own luck with attacking movement**\
+`The attacking idea is there, but the execution and end product — which are affected by other problems — need to be more consistent`\
+https://nytimes.com/athletic/6646642/2025/09/21/man-united-chelsea-mbeumo-movement/
+
+**The Psychological Value of Repentance**\
+`Every major world religion has a process for moral accounting. That’s something we rarely talk about in secular society.`\
+https://nytimes.com/2025/09/21/briefing/the-psychological-value-of-repentance.html
+
 **Azerbaijan Grand Prix: Submit your questions for our F1 mailbag**\
 `What questions do you have for our F1 writers after the 2025 Azerbaijan Grand Prix?`\
 https://nytimes.com/athletic/6648710/2025/09/21/f1-mailbag-azerbaijan-grand-prix/
