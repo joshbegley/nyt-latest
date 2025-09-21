@@ -1,5 +1,9 @@
+**Britain, Australia and Canada Recognize a Palestinian State**\
+`The announcements came on the eve of the annual gathering of the U.N. General Assembly.`\
+https://nytimes.com/2025/09/21/world/europe/starmer-uk-recognize-palestinian-state.html
+
 **United's extra man guided them past Chelsea, but they made their own luck with attacking movement**\
-`The attacking idea is there, but the execution and end product — which are affected by other problems — need to be more consistent.`\
+`The attacking idea is there, but the execution and end product — which are affected by other problems — need to be more consistent`\
 https://nytimes.com/athletic/6646642/2025/09/21/man-united-chelsea-mbeumo-movement/
 
 **The Psychological Value of Repentance**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6648692/2025/09/21/fever-vs-aces-stream-how-to-watc
 **MLB playoff watch: Astros bumped by Mariners, plus bracket and clinching scenarios**\
 `The Mariners are nearing a sweep of Houston and a first-round bye, and only one game separates the Mets from the Reds in the NL wild card.`\
 https://nytimes.com/athletic/6646805/2025/09/21/mlb-playoff-watch-astros-out-mariners/
-
-**Trump Administration Live Updates: President Trump Expected to Be Among Thousands at Charlie Kirk Memorial**\
-``\
-https://nytimes.com/live/2025/09/21/us/charlie-kirk-trump-news
 
