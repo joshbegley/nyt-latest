@@ -1,3 +1,7 @@
+**Steelers vs. Patriots takeaways: Aaron Rodgers' late TD lifts Pittsburgh**\
+`New England fumbles chances, committing five turnovers as Steelers win defensive struggle.`\
+https://nytimes.com/athletic/6649216/2025/09/21/steelers-patriots-score-result-takeaways/
+
 **Falcons bench Michael Penix Jr. for Kirk Cousins in fourth quarter of blowout loss**\
 `Penix completed just 18 of 36 passes for 172 yards, no touchdowns and two interceptions, including a pick six. `\
 https://nytimes.com/athletic/6649451/2025/09/21/falcons-bench-michael-penix-kirk-cousins/

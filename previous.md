@@ -1,3 +1,7 @@
+**Steelers vs. Patriots takeaways: Aaron Rodgers' late TD lifts Pittsburgh**\
+`New England fumbles chances, committing five turnovers as Steelers win defensive struggle.`\
+https://nytimes.com/athletic/6649216/2025/09/21/steelers-patriots-score-result-takeaways/
+
 **Falcons bench Michael Penix Jr. for Kirk Cousins in fourth quarter of blowout loss**\
 `Penix completed just 18 of 36 passes for 172 yards, no touchdowns and two interceptions, including a pick six. `\
 https://nytimes.com/athletic/6649451/2025/09/21/falcons-bench-michael-penix-kirk-cousins/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6649287/2025/09/21/steve-angeli-syracuse-qb-achille
 **AP Top 25: Miami up to No. 2, Oklahoma rises to 7th in poll**\
 `Ohio State, Miami, Penn State, LSU, Georgia and Oregon are atop the latest AP Top 25 college football rankings after Week 4.`\
 https://nytimes.com/athletic/6649161/2025/09/21/ap-top-25-rankings-miami-oklahoma-indiana-football/
-
-**Seattle Storm announce coach Noelle Quinn will not return in 2026**\
-`Seattle's season ended on Thursday when the Las Vegas Aces eliminated the Storm in the first round of the playoffs.`\
-https://nytimes.com/athletic/6649312/2025/09/21/seattle-storm-coach-noelle-quinn/
 
