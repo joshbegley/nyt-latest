@@ -1,3 +1,19 @@
+**Blue Jays clinch postseason berth; eye first AL East title since 2015**\
+`The Blue Jays return to the postseason for the fourth time in the past six seasons, though they haven't won a playoff game since 2016.`\
+https://nytimes.com/athletic/6644958/2025/09/21/blue-jays-clinch-postseason-berth/
+
+**Bengals vs Vikings takeaways: Cincinnati suffers worst loss in franchise history**\
+`Prior to Sunday, the four worst losses in Bengals history each came by 37 points.`\
+https://nytimes.com/athletic/6649468/2025/09/21/bengals-vikings-qb-score-result-takeaways/
+
+**Isaiah Rodgers makes history as Vikings trounce Bengals: Takeaways**\
+`The win brings the Vikings to 2-1 going into Week 4's matchup against the Pittsburgh Steelers in Dublin.`\
+https://nytimes.com/athletic/6649251/2025/09/21/vikings-beat-bengals-score-defense-jordan-mason/
+
+**Texans vs. Jaguars takeaways: Gritty defense lifts Jacksonville to 2-1**\
+`Texans fall to 0-3 for the first time since 2018.`\
+https://nytimes.com/athletic/6649148/2025/09/21/texans-jaguars-score-result-takeaways-2/
+
 **Texans vs Jaguars takeaways: Jacksonville's gritty defense lifts them 2-1**\
 `Texans fall to 0-3 for the first time since 2018.`\
 https://nytimes.com/athletic/6649148/2025/09/21/texans-jaguars-score-result-takeaways-2/

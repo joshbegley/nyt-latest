@@ -1,8 +1,12 @@
+**Panthers vs. Falcons takeaways: Carolina nabs first win with blowout**\
+`Carolina broke the game open in the third quarter when cornerback Chau Smith-Wade returned a Michael Penix Jr. interception for a touchdown.`\
+https://nytimes.com/athletic/6649490/2025/09/21/falcons-panthers-score-result-takeaways/
+
 **Blue Jays clinch postseason berth; eye first AL East title since 2015**\
 `The Blue Jays return to the postseason for the fourth time in the past six seasons, though they haven't won a playoff game since 2016.`\
 https://nytimes.com/athletic/6644958/2025/09/21/blue-jays-clinch-postseason-berth/
 
-**Bengals vs Vikings takeaways: Cincinnati suffers worst loss in franchise history**\
+**Bengals suffer worst loss in franchise history vs. Vikings: Takeaways**\
 `Prior to Sunday, the four worst losses in Bengals history each came by 37 points.`\
 https://nytimes.com/athletic/6649468/2025/09/21/bengals-vikings-qb-score-result-takeaways/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6649435/2025/09/21/marcus-rashford-barcelona-getafe
 **Trump Says the Murdochs May Join TikTok Investors**\
 `Fox Corporation is considering investing in the popular video app as part of a bid to avert a U.S. ban, a person familiar with the situation said after the president’s remarks.`\
 https://nytimes.com/2025/09/21/business/media/fox-corporation-tiktok-lachlan-rupert-murdoch-ellison-trump.html
-
-**‘We Are All Charlie’: Thousands Stood in Line for Hours in Hopes of Paying Tribute**\
-`Many endured stifling heat outside the stadium in Glendale, Ariz. Some who were turned away headed to a nearby arena, while others went home.`\
-https://nytimes.com/2025/09/21/us/politics/we-are-all-charlie-thousands-stood-in-line-for-hours-in-hopes-of-paying-tribute.html
 
