@@ -1,3 +1,11 @@
+**Miami sends Florida to first 1-3 start since 1986 as pressure on Napier rises**\
+`No. 4 Miami beat Florida 26-7 on Saturday night, shutting the door with a pair of late touchdowns to prolong the Gators' rough start.`\
+https://nytimes.com/athletic/6648089/2025/09/20/miami-florida-college-football-score-recap/
+
+**Messi's double just enough for Miami in 3-2 win over D.C. United**\
+`Two goals and an assist from the Argentine helped secure back-to-back wins for Miami and put it on the brink of a place in the playoffs.`\
+https://nytimes.com/athletic/6648012/2025/09/20/lionel-messi-double-as-miami-stay-on-course-for-playoffs/
+
 **Indiana crushes Illinois as QB Fernando Mendoza, defense dominate**\
 `IU QB Fernando Mendoza completed 21 of 23 passes — including 17 straight — for 267 yards and five touchdowns. `\
 https://nytimes.com/athletic/6647909/2025/09/20/indiana-football-illinois-score-takeaways/
