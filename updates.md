@@ -1,3 +1,7 @@
+**Arch Manning scores five touchdowns in best showing this season in win over Sam Houston**\
+`Arch Manning has looked uncomfortable the first few weeks of the season but had his strongest game so far against Sam Houston. `\
+https://nytimes.com/athletic/6648100/2025/09/20/arch-manning-texas-sam-houston/
+
 **College Football Playoff 2025 projections: Miami, Texas Tech rising in most likely bracket**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/09/20/college-football-playoff-bracket-projections-odds/

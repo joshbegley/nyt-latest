@@ -1,3 +1,7 @@
+**Arch Manning scores five touchdowns in best showing this season in win over Sam Houston**\
+`Arch Manning has looked uncomfortable the first few weeks of the season but had his strongest game so far against Sam Houston. `\
+https://nytimes.com/athletic/6648100/2025/09/20/arch-manning-texas-sam-houston/
+
 **Oklahoma's offseason QB swap pays off as Mateer outlasts Arnold, Auburn**\
 `Mateer, the former three-star QB, is now living the path once expected for ex-five-star Jackson Arnold in Norman.`\
 https://nytimes.com/athletic/6648083/2025/09/20/jackson-arnold-john-mateer-oklahoma-auburn/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/20/us/politics/trump-hunger-report-data.html
 **Messi's double just enough for Miami in 3-2 win over D.C. United**\
 `Two goals and an assist from the Argentine helped secure back-to-back wins for Miami and put it on the brink of a place in the playoffs.`\
 https://nytimes.com/athletic/6648012/2025/09/20/lionel-messi-double-as-miami-stay-on-course-for-playoffs/
-
-**Thousands Flock to Phoenix for Charlie Kirk’s Memorial Service**\
-`On Saturday a steady stream of people, many who had traveled from other cities, made a pilgrimage to Kirk’s Turning Point USA office and the mortuary where his body lay.`\
-https://nytimes.com/2025/09/20/us/politics/charlie-kirk-memorial-phoenix.html
 
