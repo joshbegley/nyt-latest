@@ -1,8 +1,12 @@
+**Nepal to Investigate Killings and Arson in Student Protests**\
+`It is a first effort by the country’s new government to understand the sequence of violent events that led to the abrupt downfall of the old one.`\
+https://nytimes.com/2025/09/21/world/asia/nepal-commission-violence-protests.html
+
 **Syracuse QB Steve Angeli out for the season with Achilles injury: Source**\
 `The transfer from Notre Dame ranks fourth nationally with 329 passing yards per game. `\
 https://nytimes.com/athletic/6649287/2025/09/21/steve-angeli-syracuse-qb-achilles-injury/
 
-**AP Top 25: Miami up to No. 2, Oklahoma now 7th**\
+**AP Top 25: Miami up to No. 2, Oklahoma rises to 7th in poll**\
 `Ohio State, Miami, Penn State, LSU, Georgia and Oregon are atop the latest AP Top 25 college football rankings after Week 4.`\
 https://nytimes.com/athletic/6649161/2025/09/21/ap-top-25-rankings-miami-oklahoma-indiana-football/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6638151/2025/09/21/arsenal-manchester-city-haaland-
 **Hall of Fame goalie and Flyers legend Bernie Parent dies at 80**\
 `Parent backstopped the Flyers to a pair of Stanley Cup championships in 1974 and 1975.`\
 https://nytimes.com/athletic/6649162/2025/09/21/bernie-parent-flyers-hall-of-fame-obit/
-
-**Police investigating clash between hundreds of Schalke, Dortmund and Koln fans**\
-`A statement said the incident occurred in a wooded area near Dortmund after people left a train following the emergency brake being used.`\
-https://nytimes.com/athletic/6649000/2025/09/21/bundesliga-schalke-dortmund-fans-police/
 
