@@ -1,5 +1,9 @@
+**At Kirk Service, an Extraordinary Fusion of Government and Christianity**\
+`The memorial reflected the degree to which conservative Christianity had melded with Republican politics in the Trump era.`\
+https://nytimes.com/2025/09/21/us/politics/at-kirk-service-an-extraordinary-fusion-of-government-and-christianity.html
+
 **Field goal blocks steal the spotlight at the end of Sunday's early slate of games**\
-`The Eagles and Browns both earned dramatic wins Sunday thanks to blocked field goals, while the Jets nearly joined them.`\
+`The Eagles and Browns earned dramatic wins Sunday thanks to blocked field goals, while the Jets nearly joined them.`\
 https://nytimes.com/athletic/6649821/2025/09/21/nfl-blocked-field-goals-eagles-browns-jets/
 
 **The Lion’s Share**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/21/briefing/china-tiktok-palestinian-statehood-tarif
 **Packers vs. Browns takeaways: Cleveland's improbable comeback stuns Green Bay**\
 `The Browns stole a game from the Packers, walking away with one of the most shocking finishes of the young NFL season.`\
 https://nytimes.com/athletic/6649437/2025/09/21/packers-browns-score-result-takeaways/
-
-**Cowboys WR CeeDee Lamb ruled out vs. Bears after rolling ankle**\
-`Medical staff tended to Lamb on the sideline and then brought him to the injury tent.`\
-https://nytimes.com/athletic/6649655/2025/09/21/ceedee-lamb-injury-status-dallas-cowboys-chicago-bears/
 
