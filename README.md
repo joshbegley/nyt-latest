@@ -1,4 +1,32 @@
-**Arch Manning scores five touchdowns in best showing this season in win over Sam Houston**\
+**Nepal Uprising Is Latest Challenge to India’s Backyard Diplomacy**\
+`The overthrow of Nepal’s government is the latest in a series of uprisings among India’s neighbors, creating a political churn that complicates its ties.`\
+https://nytimes.com/2025/09/21/world/asia/india-nepal-diplomacy-asia.html
+
+**Taylor Fritz stuns Carlos Alcaraz at Laver Cup to hold Team World's lead**\
+`Fritz won 57 points to 37 for Alcaraz, who couldn’t get his typical pinpoint control of his forehand.`\
+https://nytimes.com/athletic/6648195/2025/09/21/laver-cup-taylor-fritz-beats-carlos-alcaraz/
+
+**How to watch Giants at Dodgers: Time, TV, streaming for September 21**\
+`Find out how to watch the San Francisco Giants play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6648217/2025/09/21/giants-vs-dodgers-stream-how-to-watch-sept-21/
+
+**How to watch Athletics at Pirates: Time, TV, streaming for September 21**\
+`Find out how to watch the Athletics play the Pittsburgh Pirates, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6648210/2025/09/21/athletics-vs-pirates-stream-how-to-watch-sept-21/
+
+**Quote of the Day: Scathing Post On Kirk Killing Disquiets Town**\
+`Quotation of the Day for Sunday, September 21, 2025.`\
+https://nytimes.com/2025/09/21/pageoneplus/quote-of-the-day-scathing-post-on-kirk-killing-disquiets-town.html
+
+**Connections: Sports Edition Coach: Hints for Sept. 21, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6647225/2025/09/21/connections-sports-edition-hints-for-sept-21-2025/
+
+**No Corrections: Sept. 21, 2025**\
+`No corrections appeared in print on Sunday, Sept. 21, 2025.`\
+https://nytimes.com/2025/09/21/pageoneplus/no-corrections-sept-21-2025.html
+
+**Arch Manning totals 5 TDs as Texas gets lopsided win over Sam Houston**\
 `Arch Manning has looked uncomfortable the first few weeks of the season but had his strongest game so far against Sam Houston. `\
 https://nytimes.com/athletic/6648100/2025/09/20/arch-manning-texas-sam-houston/
 
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6648083/2025/09/20/jackson-arnold-john-mateer-oklah
 **College Football Playoff 2025 projections: Miami, Texas Tech rising in most likely bracket**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/09/20/college-football-playoff-bracket-projections-odds/
-
-**Miami sends Florida to first 1-3 start since 1986 as pressure on Napier rises**\
-`No. 4 Miami beat Florida 26-7 on Saturday night, shutting the door with a pair of late touchdowns to prolong the Gators' rough start.`\
-https://nytimes.com/athletic/6648089/2025/09/20/miami-florida-college-football-score-recap/
-
-**Indiana crushes Illinois as QB Fernando Mendoza, defense dominate**\
-`IU QB Fernando Mendoza completed 21 of 23 passes — including 17 straight — for 267 yards and five touchdowns. `\
-https://nytimes.com/athletic/6647909/2025/09/20/indiana-football-illinois-score-takeaways/
-
-**Several People Shot at New Hampshire Country Club**\
-`A suspect was detained after the shooting at the Sky Meadow Country Club in Nashua, the police said. The victims’ conditions were unclear.`\
-https://nytimes.com/2025/09/20/us/new-hampshire-country-club-shooting.html
-
-**Mets' failure to capitalize on Nats' mistakes proves costly — and it's a season-long problem**\
-`The Mets should be firming up their grip on a playoff spot but keep getting in their own way, with a 5-3 loss in extras the latest example.`\
-https://nytimes.com/athletic/6648004/2025/09/20/mets-nationals-extra-innings-loss/
-
-**Mike Trout hits 400th home run, a 485-foot shot at Coors Field**\
-`Trout has 101 more home runs than any other player in Angels history.`\
-https://nytimes.com/athletic/6553927/2025/09/20/mike-trout-400-home-runs-485-foot-homer-coors-field/
-
-**Trump Administration to Stop Measuring Food Insecurity**\
-`The move strips the government of its main gauge of hunger in America, and will impede efforts to track the impact of aid cuts.`\
-https://nytimes.com/2025/09/20/us/politics/trump-hunger-report-data.html
-
-**Messi's double just enough for Miami in 3-2 win over D.C. United**\
-`Two goals and an assist from the Argentine helped secure back-to-back wins for Miami and put it on the brink of a place in the playoffs.`\
-https://nytimes.com/athletic/6648012/2025/09/20/lionel-messi-double-as-miami-stay-on-course-for-playoffs/
 
