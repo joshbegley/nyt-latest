@@ -1,3 +1,11 @@
+**WNBA semifinals predictions, how to watch, what to know**\
+`The Aces host the Fever, and the Lynx host the Mercury on Sunday to start the semifinals. Sabreena Merchant makes her picks.`\
+https://nytimes.com/athletic/6648130/2025/09/21/wnba-semifinals-playoffs-predictions-aces-fever/
+
+**For your consideration: Missouri in the SEC race … and Ahmad Hardy for Heisman?**\
+`Hardy, an overlooked Louisiana Monroe transfer, powered Missouri past South Carolina to a 4-0 start on Saturday. He's just getting started.`\
+https://nytimes.com/athletic/6648305/2025/09/21/missouri-south-carolina-ahmad-hardy-heisman/
+
 **Israel Keeps Border Crossing to Jordan Closed After Attack**\
 `The Allenby Bridge border crossing is the main gateway for Palestinians to leave the Israeli-occupied West Bank.`\
 https://nytimes.com/2025/09/21/world/middleeast/israel-jordan-allenby-crossing.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6648107/2025/09/21/how-cubs-built-playoff-team-syst
 **Blue Jays stay stuck on the brink of a clinch as offence remains cold**\
 `A win would’ve locked up October. Instead, the Blue Jays fell 2-1 to the Royals on Saturday for their fourth straight loss.`\
 https://nytimes.com/athletic/6648109/2025/09/21/blue-jays-brink-playoffs-offense-royals/
-
-**How long can Marcus Freeman stomach this Notre Dame defense?**\
-`Notre Dame has a defensive problem. But it also has a head coach hell-bent on fixing it.`\
-https://nytimes.com/athletic/6648208/2025/09/21/notre-dame-purdue-defense-marcus-freeman/
-
-**Protesters in Manila Accuse Government of Misusing Environmental Funds**\
-`Demonstrations were set off by accusations that flood relief money was embezzled. They are part of a wave of discontent about economic inequality in several countries in Asia.`\
-https://nytimes.com/2025/09/21/world/asia/manila-philippines-rally-protest.html
 
