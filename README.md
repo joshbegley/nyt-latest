@@ -2,7 +2,7 @@
 `Mateer, the former three-star QB, is now living the path once expected for ex-five-star Jackson Arnold in Norman.`\
 https://nytimes.com/athletic/6648083/2025/09/20/jackson-arnold-john-mateer-oklahoma-auburn/
 
-**College Football Playoff 2025 projections: The most likely bracket with Week 4 underway**\
+**College Football Playoff 2025 projections: Miami, Texas Tech rising in most likely bracket**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/09/20/college-football-playoff-bracket-projections-odds/
 
