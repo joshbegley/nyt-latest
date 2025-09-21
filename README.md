@@ -1,3 +1,7 @@
+**Dissecting Packers' late collapse in a stunning 13-10 loss against the Browns**\
+`The Packers blew a double-digit lead with less than four minutes remaining in a stunning 13-10 loss to the Browns on Sunday in Cleveland.`\
+https://nytimes.com/athletic/6649988/2025/09/21/packers-browns-jordan-love-brandon-mcmanus/
+
 **Shutting out the Falcons, avoiding 0-3 start a 'big deal' for Panthers and their defense**\
 `"I was excited to see that zero stay up on that board at the end,” LB Christian Rozeboom said after Carolina picked up its first victory.`\
 https://nytimes.com/athletic/6649982/2025/09/21/panthers-defense-shutout-falcons-first-win/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6649676/2025/09/21/eagles-rams-blocked-field-goal-b
 **Trump and Musk Are Seen Together at Kirk Memorial, Months After Falling-Out**\
 `The meeting came just three months after Mr. Musk exited the government in a fit of rage, attacking the president on social media.`\
 https://nytimes.com/2025/09/21/us/politics/trump-musk-kirk-memrorial.html
-
-**At Kirk Service, an Extraordinary Fusion of Government and Christianity**\
-`The memorial reflected the degree to which conservative Christianity had melded with Republican politics in the Trump era.`\
-https://nytimes.com/2025/09/21/us/politics/kirk-memorial-service-christianity-religion.html
 
