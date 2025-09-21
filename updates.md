@@ -1,3 +1,7 @@
+**Notre Dame takes to ground to pound Purdue, but defensive questions remain**\
+`Jeremiyah Love and Jadarian Price went off, but seeing improvement in the beleaguered Irish defense required at least some squinting.`\
+https://nytimes.com/athletic/6647897/2025/09/20/notre-dame-purdue-highlights-results/
+
 **Mariners’ Cal Raleigh hits 57th home run to break Ken Griffey Jr.'s franchise record**\
 `Raleigh smacked the run to right-center field at the top of the third inning to put Seattle up 3-0 over Houston.`\
 https://nytimes.com/athletic/6647842/2025/09/20/mariners-cal-raleigh-ken-griffey-jr-record-home-run/

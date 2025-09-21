@@ -1,3 +1,7 @@
+**Notre Dame takes to ground to pound Purdue, but defensive questions remain**\
+`Jeremiyah Love and Jadarian Price went off, but seeing improvement in the beleaguered Irish defense required at least some squinting.`\
+https://nytimes.com/athletic/6647897/2025/09/20/notre-dame-purdue-highlights-results/
+
 **Mariners’ Cal Raleigh hits 57th home run to break Ken Griffey Jr.'s franchise record**\
 `Raleigh smacked the run to right-center field at the top of the third inning to put Seattle up 3-0 over Houston.`\
 https://nytimes.com/athletic/6647842/2025/09/20/mariners-cal-raleigh-ken-griffey-jr-record-home-run/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6560541/2025/09/20/college-football-playoff-bracket
 **Bill Belichick, UNC struggle again against power conference competition**\
 `UNC started the season getting blown out by TCU. Bill Belichick and company then beat Charlotte and Richmond before falling Saturday to UCF.`\
 https://nytimes.com/athletic/6647792/2025/09/20/bill-belichick-unc-ucf-result-analysis/
-
-**Braves' Nacho Alvarez Jr. on first 2 homers: One of the 'top three days of my life'**\
-`Alvarez, who went 214 plate appearances over two seasons without a home run, hit two homers in a span of six innings in Atlanta's 6-5 win.`\
-https://nytimes.com/athletic/6647627/2025/09/20/nacho-alvarez-jr-braves-tigers-result/
 
