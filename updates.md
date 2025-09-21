@@ -1,3 +1,11 @@
+**At Kirk Service, an Extraordinary Fusion of Government and Christianity**\
+`The memorial reflected the degree to which conservative Christianity had melded with Republican politics in the Trump era.`\
+https://nytimes.com/2025/09/21/us/politics/at-kirk-service-an-extraordinary-fusion-of-government-and-christianity.html
+
+**Field goal blocks steal the spotlight at the end of Sunday's early slate of games**\
+`The Eagles and Browns earned dramatic wins Sunday thanks to blocked field goals, while the Jets nearly joined them.`\
+https://nytimes.com/athletic/6649821/2025/09/21/nfl-blocked-field-goals-eagles-browns-jets/
+
 **Field goal blocks steal the spotlight at the end of Sunday's early slate of games**\
 `The Eagles and Browns both earned dramatic wins Sunday thanks to blocked field goals, while the Jets nearly joined them.`\
 https://nytimes.com/athletic/6649821/2025/09/21/nfl-blocked-field-goals-eagles-browns-jets/
