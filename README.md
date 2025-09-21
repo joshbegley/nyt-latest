@@ -1,3 +1,11 @@
+**Here is the latest on the memorial.**\
+`By Jack Healy, Tyler Pager and Nicholas Bogel-Burroughs`\
+https://nytimes.com/live/2025/09/21/us/charlie-kirk-trump-news/here-is-the-latest-on-the-memorial
+
+**Sonny Curtis Dies at 88; His Songs Included Mary Tyler Moore’s Theme**\
+`A prolific singer-songwriter who got his start with Buddy Holly, he also wrote “I Fought the Law,” “Walk Right Back” and hundreds of other songs.`\
+https://nytimes.com/2025/09/21/arts/music/sonny-curtis-dead.html
+
 **As Nebraska comes up short again, Huskers must confront truths of where they need to improve**\
 `“I feel like these are moments when you see what our team is built of,” running back Emmett Johnson said.`\
 https://nytimes.com/athletic/6649043/2025/09/21/nebraska-michigan-college-football-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6648994/2025/09/21/max-verstappen-2025-f1-title-hop
 **SEC vibes: Hope is abundant, unless you're Florida, Arkansas or South Carolina**\
 `There are eight unbeaten SEC teams, plus three one-loss teams with a foreseeable path to the Playoff.`\
 https://nytimes.com/athletic/6648866/2025/09/21/sec-football-rankings-week-5-oklahoma-florida-arkansas/
-
-**How to watch Mercury at Lynx: Game 1 Time, TV, streaming**\
-`Find out how to watch the Phoenix Mercury play the Minnesota Lynx, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6649024/2025/09/21/mercury-vs-lynx-stream-how-to-watch-sept-21/
-
-**Evenepoel, Reusser claim time trial titles at World Road Championships**\
-`Vine and Van Wilder came second and third in the men's event, with Van der Breggen and Vollering second and third in the women's.`\
-https://nytimes.com/athletic/6648967/2025/09/21/cycling-world-road-championships-evenepoel-reusser/
 

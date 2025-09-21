@@ -1,3 +1,11 @@
+**As Nebraska comes up short again, Huskers must confront truths of where they need to improve**\
+`“I feel like these are moments when you see what our team is built of,” running back Emmett Johnson said.`\
+https://nytimes.com/athletic/6649043/2025/09/21/nebraska-michigan-college-football-analysis/
+
+**D.D. Lewis, Durable Linebacker for the Dallas Cowboys, Dies at 79**\
+`When he was in college, the Alabama coach Bear Bryant called him the best linebacker in the country. In 13 seasons with the Cowboys, he played in five Super Bowls.`\
+https://nytimes.com/2025/09/21/sports/football/dd-lewis-dead.html
+
 **Germany celebrates first win as Brazil suffers hole in catamaran after collision**\
 `Germany celebrates a memorable victory in Geneva but Brazil fails to start a race on the second day of the Switzerland SailGP `\
 https://nytimes.com/athletic/6648587/2025/09/21/switzerland-sailgp-day-two-germany-win/
