@@ -1,3 +1,7 @@
+**What Is the H-1B Visa Program, and How Is Trump Changing It?**\
+`President Trump signed an order on Friday adding a $100,000 fee to visas for skilled foreign workers. Immigration hard-liners have criticized the program for replacing American workers.`\
+https://nytimes.com/2025/09/20/us/politics/h1b-visa-trump-immigration.html
+
 **How to watch Brewers at Cardinals: Time, TV, streaming for September 21**\
 `Find out how to watch the Milwaukee Brewers play the St. Louis Cardinals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6647951/2025/09/20/brewers-vs-cardinals-stream-how-to-watch-sept-21/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6647933/2025/09/20/marlins-vs-rangers-stream-how-to
 **How to watch Blue Jays at Royals: Time, TV, streaming for September 21**\
 `Find out how to watch the Toronto Blue Jays play the Kansas City Royals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6647931/2025/09/20/blue-jays-vs-royals-stream-how-to-watch-sept-21/
-
-**Notre Dame takes to ground to pound Purdue, but defensive questions remain**\
-`Jeremiyah Love and Jadarian Price went off, but seeing improvement in the beleaguered Irish defense required at least some squinting.`\
-https://nytimes.com/athletic/6647897/2025/09/20/notre-dame-purdue-highlights-results/
 
