@@ -1,3 +1,7 @@
+**Four N.Y. Prison Officers Plead Guilty to Manslaughter in Taped Beating**\
+`Robert Brooks, an inmate of Marcy prison, was forced onto an infirmary examination table and kicked and punched to death. Four officers who rejected plea deals will face trial beginning Oct. 6.`\
+https://nytimes.com/2025/09/22/nyregion/marcy-prison-manslaughter-pleas.html
+
 **Commanders QB Jayden Daniels remains day to day with knee sprain**\
 `Backup QB Marcus Mariota helped lead win over Raiders in Week 3, but coach Dan Quinn says that doesn't impact his decision on Daniels.`\
 https://nytimes.com/athletic/6652823/2025/09/22/jayden-daniels-commanders-day-to-day/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6648802/2025/09/22/ousmane-dembele-ballon-dor-backg
 **Palestinians hope their state won’t remain just ‘ink on paper.’**\
 `By Fatima AbdulKarim`\
 https://nytimes.com/live/2025/09/22/world/united-nations-assembly/palestinians-hope-their-state-wont-remain-just-ink-on-paper
-
-**Protesters calling for solidarity with Palestinians clash with the police in Milan.**\
-`By Elisabetta Povoledo`\
-https://nytimes.com/live/2025/09/22/world/united-nations-assembly/protesters-calling-for-solidarity-with-palestinians-clash-with-the-police-in-milan
 
