@@ -2,7 +2,7 @@
 `A 4.3-magnitude earthquake was strong enough to rattle nerves in the middle of the night, especially in the heavily populated East Bay where it was centered.`\
 https://nytimes.com/2025/09/22/us/earthquake-bay-area-berkeley.html
 
-**49ers DE Nick Bosa out for season with torn ACL: Source**\
+**49ers DE Nick Bosa out for season with torn ACL: Sources**\
 `Bosa left Sunday's game late in the first quarter and did not return.`\
 https://nytimes.com/athletic/6652130/2025/09/22/nick-bosa-acl-injury-update-status-49ers/
 
