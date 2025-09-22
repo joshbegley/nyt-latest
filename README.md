@@ -1,3 +1,14 @@
+**Longtime Patriots, Texans executive Bobby Grier dies at 82**\
+`Grier spent nearly 20 years as a coach and executive with the New England Patriots.`\
+https://nytimes.com/athletic/6652067/2025/09/22/patriots-texans-bobby-grier-dies/
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Oregon-Penn State. Alabama-Georgia. LSU-Ole Miss. &#8230; UCLA-Northwestern.</p>
+<p>Week 5 should be a good one!</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6650070/2025/09/22/submit-a-question-for-stewart-mandels-college-football-mailbag-316/
+
 **Sushi Is Bigger Than Ever in America. There’s One Main Reason.**\
 `Once considered rarefied and exotic in the United States, the Japanese favorite is now a staple in many places across the country.`\
 https://nytimes.com/2025/09/22/dining/america-sushi.html
@@ -29,12 +40,4 @@ https://nytimes.com/athletic/6651869/2025/09/22/nfl-week-4-odds-spreads-bills-ch
 **‘Mexodus’ Tells an Underground Railroad Story You’ve Probably Never Heard**\
 `In this new hip-hop musical from Nygel D. Robinson and Brian Quijada, audiences hear a tale of reverse migration: Slaves leaving the United States for Mexico.`\
 https://nytimes.com/2025/09/22/theater/mexodus-underground-railroad-musical.html
-
-**Texas QB Arch Manning 'ripped' for TD taunt in win vs. Sam Houston State**\
-`In social media posts, the University of Texas seemed to celebrate Manning's "swagger" and "aura."`\
-https://nytimes.com/athletic/6651926/2025/09/22/arch-manning-taunt-sam-houston-state/
-
-**Proposed Gas Pipeline Tests New York’s Allegiance to Green Energy**\
-`The Northeast Supply Enhancement pipeline, which would deliver natural gas into the New York City area, has been shot down three times because of environmental concerns. Supporters hope the fourth time is the charm.`\
-https://nytimes.com/2025/09/22/nyregion/nese-pipeline-nyc-natural-gas.html
 
