@@ -1,3 +1,7 @@
+**USMNT Player Tracker: Pulisic a class apart, Tillman's tonic and Richards still unbeaten**\
+`Our roundup of the weekend action also sees Brenden Aaronson make his mark at Leeds and Lyon's Tanner Tessmann as a match-winner`\
+https://nytimes.com/athletic/6651279/2025/09/22/usmnt-pulisic-tillman-richards-tracker/
+
 **H-1B Visa Upheaval Roils Companies and Geopolitics**\
 `The Trump administration has clarified its new visa policy, but corporate bosses are still trying to sort through the fallout.`\
 https://nytimes.com/2025/09/22/business/dealbook/h1b-visa-trump-india.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6649421/2025/09/22/rod-moore-michigan-injury-return
 **Inside Newcastle Q&A: Chris Waugh answers your questions**\
 `Newcastle are proving tough to score against but are also finding goals hard to come by. Next up, their Carabao Cup defence begins...`\
 https://nytimes.com/athletic/6651200/2025/09/22/inside-newcastle-qa-chris-waugh-answers-your-questions/
-
-**Inside Barcelona: Julian Alvarez targeted, Camp Nou latest, why Marcus Rashford was dropped...**\
-`Our Barca writers bring you the latest news on all the big talking points at the La Liga champions right now`\
-https://nytimes.com/athletic/6651241/2025/09/22/barcelona-rashford-camp-nou-julian-alvarez/
 
