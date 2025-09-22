@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6650588/2025/09/21/caleb-williams-luther-burden-bears-flea-flicker/
 
 **Travis Kelce, Andy Reid have heated exchange on sideline vs. Giants**\
-`Reid bumped into Kelce during the exchange.`\
+`Reid bumped Kelce during the exchange in the first half of the "Sunday Night Football" matchup.`\
 https://nytimes.com/athletic/6650641/2025/09/21/travis-kelce-andy-reid-sideline-exchange-chiefs-giants/
 
 **Did Cowboys' defensive issues get worse against Bears? Big plays do them in again**\

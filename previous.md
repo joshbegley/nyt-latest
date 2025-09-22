@@ -1,3 +1,11 @@
+**How 'White House,' a trick play for a long touchdown, ignited the Bears’ first win**\
+`In a badly needed victory, a well-timed trick play provided the signature moment for Caleb Williams and Ben Johnson.`\
+https://nytimes.com/athletic/6650588/2025/09/21/caleb-williams-luther-burden-bears-flea-flicker/
+
+**Travis Kelce, Andy Reid have heated exchange on sideline vs. Giants**\
+`Reid bumped into Kelce during the exchange.`\
+https://nytimes.com/athletic/6650641/2025/09/21/travis-kelce-andy-reid-sideline-exchange-chiefs-giants/
+
 **Did Cowboys' defensive issues get worse against Bears? Big plays do them in again**\
 `CeeDee Lamb injured his ankle and the defense allowed five pass plays of at least 29 yards in the loss to the Bears.`\
 https://nytimes.com/athletic/6650623/2025/09/21/cowboys-lose-defense-struggles-big-plays-bears/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6650404/2025/09/21/giants-takeaways-bryce-eldridge-
 **See Who Attended Charlie Kirk’s Memorial**\
 `Photos of notable figures who attended the event.`\
 https://nytimes.com/interactive/2025/09/21/us/politics/kirk-memorial-photos.html
-
-**'I just got the ball': How A.J. Brown helped Eagles shed 'conservative' offense**\
-`A.J. Brown's lack of targets had been a storyline through the Eagles' first two games.`\
-https://nytimes.com/athletic/6650307/2025/09/21/aj-brown-sirianni-eagles-rams-comeback-offense-nfl/
-
-**Undefeated Colts, Daniel Jones keep racking up wins, reasons to believe they're for real**\
-`Few outside of the Colts' building believed it would look this good this fast, but Indy knew it had the pieces to be a threat in the AFC. `\
-https://nytimes.com/athletic/6649590/2025/09/21/indianapolis-colts-daniel-jones-undefeated-titans/
 

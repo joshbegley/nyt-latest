@@ -1,3 +1,11 @@
+**How 'White House,' a trick play for a long touchdown, ignited the Bears’ first win**\
+`In a badly needed victory, a well-timed trick play provided the signature moment for Caleb Williams and Ben Johnson.`\
+https://nytimes.com/athletic/6650588/2025/09/21/caleb-williams-luther-burden-bears-flea-flicker/
+
+**Travis Kelce, Andy Reid have heated exchange on sideline vs. Giants**\
+`Reid bumped into Kelce during the exchange.`\
+https://nytimes.com/athletic/6650641/2025/09/21/travis-kelce-andy-reid-sideline-exchange-chiefs-giants/
+
 **Did Cowboys' defensive issues get worse against Bears? Big plays do them in again**\
 `CeeDee Lamb injured his ankle and the defense allowed five pass plays of at least 29 yards in the loss to the Bears.`\
 https://nytimes.com/athletic/6650623/2025/09/21/cowboys-lose-defense-struggles-big-plays-bears/
