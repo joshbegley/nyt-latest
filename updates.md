@@ -1,3 +1,23 @@
+**As U.N. General Assembly Gathers, Here’s What to Watch For**\
+`A look at major figures who will appear during the week and what they might talk about.`\
+https://nytimes.com/2025/09/22/world/americas/un-general-assembly-highlights.html
+
+**Australia, Britain, Canada and Portugal Formally Recognize a Palestinian State**\
+`Statements by the leaders of Australia, Britain, Canada and Portugal recognizing Palestinian statehood came before the annual gathering of the U.N. General Assembly in New York. Israel’s government condemned the moves.`\
+https://nytimes.com/video/world/100000010413323/starmer-uk-recognize-palestinian-state.html
+
+**How to watch Brewers at Padres: Time, TV, streaming for September 22**\
+`Find out how to watch the Milwaukee Brewers play the San Diego Padres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6651193/2025/09/22/brewers-vs-padres-stream-how-to-watch-sept-22/
+
+**How to watch Seahawks at Cardinals: Time, TV, streaming**\
+`Find out how to watch the Seattle Seahawks play the Arizona Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6651191/2025/09/22/seahawks-vs-cardinals-stream-how-to-watch-sept-25/
+
+**How to watch Cardinals at Giants: Time, TV, streaming for September 22**\
+`Find out how to watch the St. Louis Cardinals play the San Francisco Giants, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6651186/2025/09/22/cardinals-vs-giants-stream-how-to-watch-sept-22/
+
 **Knicks' latest roster moves, Mike Brown's rotations and more**\
 `Knicks questions on the latest roster moves, possible trades, expectations and more are answered in this latest mailbag.`\
 https://nytimes.com/athletic/6641792/2025/09/22/knicks-mike-brown-malcolm-brogdan-landry-shamet-roster/
