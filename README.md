@@ -1,3 +1,7 @@
+**Winnipeg Jets training camp: Who's been helping their case to be an NHL player?**\
+`There are good stories to be told, even among players who will be cut.`\
+https://nytimes.com/athletic/6648998/2025/09/22/winnipeg-jets-training-camp-notebook/
+
 **These Patients Got the Cure. Then It Went Away.**\
 `Gene therapies for rare diseases are frequently developed then discarded by drug companies because they can’t afford to produce the treatment for more patients.`\
 https://nytimes.com/2025/09/22/health/gene-editing-rare-diseases-fda.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6651678/2025/09/22/espn-pat-mcafee-contract/
 **‘The Lowdown,’ Plus 7 Things to Watch on TV this Week**\
 `Ethan Hawke stars in a new FX show and “The Golden Bachelor” comes back for another season.`\
 https://nytimes.com/2025/09/22/movies/the-lowdown-plus-7-things-to-watch-on-tv-this-week.html
-
-**After injuries mar Week 3, add these fantasy football RBs now**\
-`KC Joyner assesses several backfields to find which RBs you should prioritize adding this week.`\
-https://nytimes.com/athletic/6651636/2025/09/22/fantasy-football-running-back-add-week-3-injuries/
 
