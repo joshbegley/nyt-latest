@@ -1,3 +1,7 @@
+**Four years in, and Brian Daboll's Giants offense has never looked worse**\
+`Maybe Daboll will be able to sprinkle some magic dust on Jaxson Dart, and everything will change when Dart takes over. We’ll find out soon.`\
+https://nytimes.com/athletic/6651050/2025/09/22/ny-giants-russell-wilson-brian-daboll-offense-chiefs/
+
 **Rosenthal: As Tigers and Mets look to avoid stunning collapses, MLB’s final week should be a doozy**\
 `The Tigers are in jeopardy of blowing a 15 1/2 game AL Central lead while the Mets and their $340 million payroll could miss the playoffs. `\
 https://nytimes.com/athletic/6650826/2025/09/22/new-york-mets-detroit-tigers-mlb-final-week/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6651143/2025/09/22/steelers-defense-decline-patriot
 **Defense carried the Vikings on Sunday, which has become the norm under Brian Flores**\
 `Kevin O'Connell's work with quarterbacks gets plenty of attention, but Flores' unit has had an outsized impact on winning.`\
 https://nytimes.com/athletic/6651124/2025/09/22/vikings-defense-brian-flores-kevin-oconnell/
-
-**The Tom Brady conflict-of-interest calculus is so simple**\
-`NFL coaches downplayed concerns about Tom Brady being both a Raiders part-owner and a Fox broadcaster. Of course they did. Here's why.`\
-https://nytimes.com/athletic/6651139/2025/09/22/tom-brady-raiders-fox-broadcasting/
 
