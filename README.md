@@ -1,3 +1,7 @@
+**This Administration Is Silencing Its Critics**\
+`Jamelle Bouie on why silencing critics is fundamental to the Trump administration’s overall theory of power.`\
+https://nytimes.com/video/opinion/100000010410474/this-administration-is-silencing-its-critics.html
+
 **Christopher Nolan Elected President of the Directors Guild of America**\
 `Nolan, who has been a member of the 19,500-member guild since 2001, has directed blockbuster hits like “Oppenheimer” and “The Dark Knight.”`\
 https://nytimes.com/2025/09/22/movies/christopher-nolan-directors-guild-of-america.html
@@ -15,7 +19,7 @@ https://nytimes.com/2025/09/22/nyregion/mamdani-cancel-abc-town-hall-kimmel.html
 https://nytimes.com/2025/09/22/technology/google-ad-tech-monopoly.html
 
 **Alex Faust to succeed Bob Costas as play-by-play voice for MLB playoffs**\
-`Faust has already broadcast events for TNT Sports, as he is part of their NFL coverage and was on the call for French Open matches`\
+`Faust has already broadcast events for TNT Sports, as he is part of their NHL coverage and was on the call for French Open matches.`\
 https://nytimes.com/athletic/6652199/2025/09/22/tnt-sports-mlb-playoffs-bob-costas-alex-faust/
 
 **Forgiveness and Fury at Kirk’s Memorial**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/22/technology/nvidia-openai-100-billion-investment.h
 **Trump’s H-1B Visa Fee Knocks Down a Bridge Between India and the U.S.**\
 `The H-1B visa lured a generation of Indian professionals to take part in the American dream. A $100,000 fee has forced a rethink of the route.`\
 https://nytimes.com/2025/09/22/business/trump-h-1b-visa-fee-india.html
-
-**As NFL resumes international series, could an overseas Super Bowl be in the future?**\
-`"We're clearly focused on the near term with Super Bowls in the U.S.," NFL executive vice president Peter O'Reilly said Monday.`\
-https://nytimes.com/athletic/6652017/2025/09/22/nfl-international-super-bowl-draft/
 

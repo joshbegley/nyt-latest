@@ -1,3 +1,11 @@
+**Christopher Nolan Elected President of the Directors Guild of America**\
+`Nolan, who has been a member of the 19,500-member guild since 2001, has directed blockbuster hits like “Oppenheimer” and “The Dark Knight.”`\
+https://nytimes.com/2025/09/22/movies/christopher-nolan-directors-guild-of-america.html
+
+**Swimmers Dive Into Chicago River for First Time in Nearly a Century**\
+`After decades of efforts to clean up the Chicago River from the loads of industrial and human waste that were routinely dumped in the water, hundreds of swimmers marked the occasion by swimming in the clean water.`\
+https://nytimes.com/video/us/100000010413864/chicago-river-swim.html
+
 **Mamdani Cancels WABC Town Hall to Protest Kimmel Suspension**\
 `Zohran Mamdani, the front-runner in the New York City mayor’s race, said the suspension of Jimmy Kimmel’s talk show sent a chilling message about free speech.`\
 https://nytimes.com/2025/09/22/nyregion/mamdani-cancel-abc-town-hall-kimmel.html
