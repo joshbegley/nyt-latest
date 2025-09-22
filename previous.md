@@ -1,3 +1,11 @@
+**Inside Real Madrid: Vinicius Jr's anger, Ballon d'Or boycott and Bernabeu bother**\
+`Our expert writers bring you the latest on all the biggest talking points at the Spanish club`\
+https://nytimes.com/athletic/6651194/2025/09/22/real-madrid-vinicius-jr-alonso-ballondor/
+
+**Super Typhoon Ragasa Hits the Philippines, Headed for Hong Kong**\
+`Thousands were evacuated and hundreds of flights have been canceled ahead of the major storm, equivalent in wind speed to a Category 5 hurricane.`\
+https://nytimes.com/2025/09/22/world/asia/super-typhoon-ragasa-hong-kong.html
+
 **How Tyquan Thornton went from castoff to Chiefs savior vs. Giants**\
 `A forgotten man on the practice squad 10 months ago, Thornton was the Chiefs' WR1 on "Sunday Night Football" in the Meadowlands.`\
 https://nytimes.com/athletic/6650142/2025/09/22/tyquan-thornton-catch-chiefs-giants/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6651139/2025/09/22/tom-brady-raiders-fox-broadcasti
 **Sizing up the NFL's six 3-0 teams, from mainstays to newcomers: Sando's Pick Six**\
 `It's no surprise the Bills and Eagles are undefeated, but the Chargers and Colts have done their best to steal the spotlight.`\
 https://nytimes.com/athletic/6648790/2025/09/22/nfl-undefeated-teams-eagles-bills-chargers-bucs-49ers-colts/
-
-**At the most important time of the year, the Tigers’ roster has become a mess**\
-`The Tigers lost their sixth game in a row, using reclamation pitchers and a hitter with a second-half wRC+ of 1 in a crucial spot.`\
-https://nytimes.com/athletic/6649890/2025/09/22/tigers-roster-loss-braves/
-
-**Penguins 2025-26 season preview: Playoff chances, projected points, roster rankings**\
-`The 2025-26 Penguins are going to finish toward the bottom of the standings but are at risk of sitting in limbo for another season.`\
-https://nytimes.com/athletic/6634318/2025/09/22/pittsburgh-penguins-2025-26-season-preview/
 
