@@ -1,3 +1,7 @@
+**Man Who Shined a Laser at Marine One With Trump Aboard Is Arrested, U.S. Says**\
+`Jacob Winkler aimed a laser pointer at the presidential helicopter as it took off from the White House on Saturday, the authorities said. He was charged with a felony.`\
+https://nytimes.com/2025/09/22/us/laser-marine-one-trump-arrest.html
+
 **Egypt’s President Pardons Imprisoned Arab Spring Activist**\
 `Alaa Abd El Fattah, pardoned after spending most of the past 12 years imprisoned, gained prominence through his biting, visionary commentary on Egypt’s 2011 Arab Spring revolution.`\
 https://nytimes.com/video/world/middleeast/100000010415267/egypt-alaa-abd-el-fattah-pardon.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/science/space/100000010414185/nasa-introduces-10-new-a
 **Trump’s Charlie Kirk Eulogy Divided America**\
 `Trump’s first presidential eulogy made no effort to unite the country, which is the traditional goal of a presidential eulogy.`\
 https://nytimes.com/2025/09/22/opinion/culture/trump-charlie-kirk-funeral.html
-
-**N.Y.C. Watchdog Agency Is Investigating Deaths in Police Custody**\
-`Nine people have died this year, about half the toll at this time last year. Advocacy and legal groups say the city is still not doing enough to ensure the safety of its detainees.`\
-https://nytimes.com/2025/09/22/nyregion/doi-police-custody-deaths-investigation.html
 

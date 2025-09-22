@@ -1,3 +1,7 @@
+**Egypt’s President Pardons Imprisoned Arab Spring Activist**\
+`Alaa Abd El Fattah, pardoned after spending most of the past 12 years imprisoned, gained prominence through his biting, visionary commentary on Egypt’s 2011 Arab Spring revolution.`\
+https://nytimes.com/video/world/middleeast/100000010415267/egypt-alaa-abd-el-fattah-pardon.html
+
 **World Leaders Recognize Palestinian State, in a Challenge to U.S. and Israel**\
 `At a meeting ahead of the U.N. General Assembly, France and other U.S. allies made official a breach with Washington that has been years in the making.`\
 https://nytimes.com/2025/09/22/world/middleeast/unga-palestinian-state.html
