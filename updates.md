@@ -1,3 +1,7 @@
+**Word of the Day: monolith**\
+`This word has appeared in 80 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/09/22/learning/word-of-the-day-monolith.html
+
 **Fantasy football Week 3 takeaways: Sam Darnold delivers; Cards, Bolts suffer backfield injuries**\
 `Michael Salfino says Sam Darnold is deserving of the respect afforded a franchise QB as he shares his fantasy football thoughts for Week 3.`\
 https://nytimes.com/athletic/6631703/2025/09/22/fantasy-football-week-3-takeaways-injuries-najee-conner/
