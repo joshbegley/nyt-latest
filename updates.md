@@ -1,3 +1,11 @@
+**The Briefing: Will Arteta's caution cost Arsenal? Could Emery regret 'lazy' rant? Will West Ham and Wolves go down?**\
+`Dissecting the Premier League's big weekend talking points, from safety-first Arsenal to angry times at Aston Villa`\
+https://nytimes.com/athletic/6649485/2025/09/22/mikel-arteta-tactics-arsenal-attack/
+
+**The men's Ballon d'Or debate: Favourite Dembele, Salah's chances and Yamal's youthful brilliance**\
+`Six writers from The Athletic debate who should take home the men's Ballon d'Or in Paris today and what the award says about modern football`\
+https://nytimes.com/athletic/6644763/2025/09/22/ballon-dor-dembele-yamal-award-winners/
+
 **Guardiola, 'anti-football' and a Plan B few saw coming at City**\
 `City adopted a reactive strategy at Arsenal that their manager would once have regarded as a surrender to secure a point`\
 https://nytimes.com/athletic/6649220/2025/09/22/pep-guardiola-manchester-city-low-block/

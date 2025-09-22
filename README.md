@@ -1,40 +1,40 @@
-**The Briefing: Will Arteta's caution cost Arsenal? Could Emery regret 'lazy' rant? Will West Ham and Wolves go down?**\
-`Dissecting the Premier League's big weekend talking points, from safety-first Arsenal to angry times at Aston Villa`\
-https://nytimes.com/athletic/6649485/2025/09/22/mikel-arteta-tactics-arsenal-attack/
+**Are Wolves set to go full circle under Fosun after latest dire display?**\
+`Next summer will mark 10 years at Molineux for the club's Chinese owners - and it looks like bringing a return to the Championship too`\
+https://nytimes.com/athletic/6647545/2025/09/22/wolves-leeds-fosun-championship/
 
-**The men's Ballon d'Or debate: Favourite Dembele, Salah's chances and Yamal's youthful brilliance**\
-`Six writers from The Athletic debate who should take home the men's Ballon d'Or in Paris today and what the award says about modern football`\
-https://nytimes.com/athletic/6644763/2025/09/22/ballon-dor-dembele-yamal-award-winners/
+**How Noah Okafor showed he can be the difference-maker for Leeds United**\
+`Noah Okafor may not be the new Raphinha but the Swiss international showed plenty of promise against Wolverhampton Wanderers`\
+https://nytimes.com/athletic/6647843/2025/09/22/wolverhampton-wanderers-leeds-united-noah-okafor/
 
-**Guardiola, 'anti-football' and a Plan B few saw coming at City**\
-`City adopted a reactive strategy at Arsenal that their manager would once have regarded as a surrender to secure a point`\
-https://nytimes.com/athletic/6649220/2025/09/22/pep-guardiola-manchester-city-low-block/
+**Fantasy football Week 3 takeaways: Sam Darnold delivers; Cards, Bolts suffer backfield injuries**\
+`Michael Salfino says Sam Darnold is deserving of the respect afforded a franchise QB as he shares his fantasy football thoughts for Week 3.`\
+https://nytimes.com/athletic/6631703/2025/09/22/fantasy-football-week-3-takeaways-sam-darnold-delivers-cards-bolts-suffer-backfield-injuries/
 
-**Remembering Matt Beard, the 'special' man who helped transform English women's football**\
-`Women's football in England is in shock after the death of former Liverpool manager Matt Beard`\
-https://nytimes.com/athletic/6649204/2025/09/22/matt-beard-obituary-womens-football-impact/
+**Dissecting Maresca's bad week: Three games, one point and many poor decisions**\
+`The Italian made big decisions in all three games last week and the concern will be he got many of them wrong`\
+https://nytimes.com/athletic/6648326/2025/09/22/enzo-maresca-chelsea-substitutions/
 
-**New-look Arsenal are still deciding who they are. There is little room for error**\
-`Manager's greater options mean big decisions over who makes his starting line-up and he changes things in-game`\
-https://nytimes.com/athletic/6649493/2025/09/22/arsenal-mikel-arteta-man-city/
+**Real Madrid's Ballon d'Or boycott is a story of politics and paranoia**\
+`The Spanish giants are once again not expected to attend Monday's ceremony, the biggest awards night in the game`\
+https://nytimes.com/athletic/6644203/2025/09/22/real-madrid-ballon-dor-vinicius-mbappe/
 
-**We need to talk about Aston Villa...**\
-`This is a team on their knees, far removed from the days of running eventual Champions League winners PSG close in April's quarter-finals`\
-https://nytimes.com/athletic/6648963/2025/09/22/aston-villa-unai-emery-problems/
+**Josh King looked ready to crumple at Fulham. Instead, he flourished**\
+`The teenager was initially distraught after gifting Brentford their opener, but his display thereafter spoke volumes for his character`\
+https://nytimes.com/athletic/6647952/2025/09/22/josh-king-fulham-recovery-silva-iwobi/
 
-**Trump’s Tariffs Are Damaging America’s Biggest Foreign Source of Screws**\
-`Taiwan has long been the top provider of screws to the United States. But its factories are struggling to survive under tariffs on steel and aluminum.`\
-https://nytimes.com/2025/09/22/business/taiwan-manufacturing-trump-tariffs.html
+**Sunderland are doing what previously promoted clubs did not. They are competing**\
+`Regis Le Bris' side showcased their resilience by claiming a point against Aston Villa despite being reduced to 10 men in the first half`\
+https://nytimes.com/athletic/6649106/2025/09/22/sunderland-le-bris-competing-villa/
 
-**Quote of the Day: A Rush to Save Ancient Artifacts in Gaza Highlights All That Has Been Lost**\
-`Quotation of the Day for Monday, September 22, 2025.`\
-https://nytimes.com/2025/09/22/pageoneplus/quote-of-the-day-a-rush-to-save-ancient-artifacts-in-gaza-highlights-all-that-has-been-lost.html
+**Newcastle, slow-drying paint and transitioning to a post-Isak reality**\
+`In terms of balance and brilliance, Eddie Howe's side are still scratching around as they adjust to new players and a cluttered schedule`\
+https://nytimes.com/athletic/6649113/2025/09/22/newcastle-howe-woltemade-bournemouth-attack/
 
-**Novo Nordisk’s Woes Are Slimming Denmark’s Economic Growth**\
-`Because of its size, the drugmaker has an outsize effect on the country. Now, as it sheds jobs, forecasts for Denmark’s growth are falling, too.`\
-https://nytimes.com/2025/09/22/business/novo-nordisk-denmark-economy.html
+**Bruno Fernandes reaches 100 goals for United. But he's given a fractured club much more than that**\
+`Since arriving in 2020, the Old Trafford side's captain has squeezed more creative juice from suboptimal squads than he has any right to`\
+https://nytimes.com/athletic/6243812/2025/09/22/bruno-fernandes-100-goals-manchester-united/
 
-**Taiwan Screw Suppliers Feel Impact of Trump’s Tariffs**\
-`Screws from Taiwan hold together countless everyday American goods. But Trump’s tariffs are threatening the island as a manufacturing leader of the tiny, yet essential, components.`\
-https://nytimes.com/video/business/100000010368290/taiwan-manufacturing-trump-tariffs-screws.html
+**Postecoglou has brought organised chaos to Forest. They must embrace it**\
+`It's gone from organised under Nuno Espirito Santo to organised chaos with his successor. Strap in, this is your new normal...`\
+https://nytimes.com/athletic/6648446/2025/09/22/nottingham-forest-ange-postecoglou-patience/
 
