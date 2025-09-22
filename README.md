@@ -1,3 +1,11 @@
+**New-look Arsenal are still deciding who they are. There is little room for error**\
+`Manager's greater options mean big decisions over who makes his starting line-up and he changes things in-game`\
+https://nytimes.com/athletic/6649493/2025/09/22/arsenal-mikel-arteta-man-city/
+
+**We need to talk about Aston Villa...**\
+`This is a team on their knees, far removed from the days of running eventual Champions League winners PSG close in April's quarter-finals`\
+https://nytimes.com/athletic/6648963/2025/09/22/aston-villa-unai-emery-problems/
+
 **Trump’s Tariffs Are Damaging America’s Biggest Foreign Source of Screws**\
 `Taiwan has long been the top provider of screws to the United States. But its factories are struggling to survive under tariffs on steel and aluminum.`\
 https://nytimes.com/2025/09/22/business/taiwan-manufacturing-trump-tariffs.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6650767/2025/09/21/chargers-beat-broncos-justin-her
 **Chiefs beat Giants to avoid first 0-3 start since 2011: Takeaways**\
 `The Chiefs earn their first victory of the season, beating the winless Giants 22-9.`\
 https://nytimes.com/athletic/6650518/2025/09/21/chiefs-first-win-snf-takeaways/
-
-**Can't win the close one? Mac Jones flips the narrative on 49ers' final drive**\
-`With Jauan Jennings missing from the lineup, Jones targeted either Christian McCaffrey or Ricky Pearsall on 26 of his 38 pass attempts.`\
-https://nytimes.com/athletic/6650674/2025/09/21/49ers-cardinals-mac-jones-flips-narrative/
-
-**Giants vs. Chiefs: Russell Wilson flounders as fans chant 'We want Dart'**\
-`The Giants quarterback went 18-for-32 for 160 yards and two interceptions in the 22-9 loss to the Chiefs on Sunday night.`\
-https://nytimes.com/athletic/6650044/2025/09/21/giants-chiefs-score-result-takeaways-russell-wilson/
 
