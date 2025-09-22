@@ -1,3 +1,7 @@
+**'This is our style of football': With stifling defense, Browns earn gutsy win vs. Packers**\
+`Cleveland's win brings hope that maybe this season of awkward transition and offensive limitation isn’t completely lost.`\
+https://nytimes.com/athletic/6650201/2025/09/21/browns-win-defense-packers/
+
 **Seahawks dreaming bigger after dominating Saints and snapping home skid**\
 `The Seahawks are starting to look like they have no shortage of weapons. "It feels good to dominate somebody," Uchenna Nwosu said.`\
 https://nytimes.com/athletic/6650504/2025/09/21/seahawks-saints-week-3-blowout/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6650458/2025/09/21/kelsey-mitchell-indiana-fever-wn
 **12 Emotional Hours: A Spectator Reflects on One Full Day (Without Caffeine)**\
 `Attending Charlie Kirk’s memorial involved lots of standing, worrying and waiting. But for one Colorado Springs woman, it was all worth it.`\
 https://nytimes.com/2025/09/21/us/politics/spectator-long-day.html
-
-**Needing a spark, the Commanders got two: from their backup QB and their coach**\
-`Jayden Daniels was out, so the Commanders rallied behind backup Marcus Mariota, and the indomitable Dan Quinn.`\
-https://nytimes.com/athletic/6650168/2025/09/21/marcus-mariota-commanders-dan-quinn/
 
