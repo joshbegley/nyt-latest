@@ -1,3 +1,11 @@
+**Long-delayed trial pitting family of Tyler Skaggs against Los Angeles Angels gets underway**\
+`It is rare for MLB teams to see their dirty laundry aired in court. The Angels are about to become an exception to that rule. `\
+https://nytimes.com/athletic/6649617/2025/09/22/angels-tyler-skaggs-trial-primer-mike-trout/
+
+**Breaking down the Guardians' sizzling stretch, postseason odds**\
+`The bottom line for the Guardians is, if they have another good week, they’ll be playing in October. Here's how it breaks down.`\
+https://nytimes.com/athletic/6649229/2025/09/22/cleveland-guardians-playoff-hunt-analysis/
+
 **How Six World Leaders Are Confronting Climate Change**\
 `The leaders told us how they are facing a warming planet in a world where international collaboration on climate change is fraying.`\
 https://nytimes.com/2025/09/22/briefing/climate-change-world-leaders-kirk.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6644688/2025/09/22/nhl-season-previews-2025-26/
 **How the 49ers' defense overcame Nick Bosa's injury to take control of the NFC West**\
 `The walking-wounded Niners gutted out another victory, this time without their star defensive end, as a host of teammates stepped up.`\
 https://nytimes.com/athletic/6650730/2025/09/22/nick-bosa-injury-49ers-defense-cardinals/
-
-**What I’m seeing after Week 1 of Bruins training camp: Offense is hard to come by**\
-`It’s not necessarily a good thing when the fourth-line grunts carry the day.`\
-https://nytimes.com/athletic/6650536/2025/09/22/boston-bruins-training-camp-questions/
-
-**Patrick Mahomes still a man nobody wants to see in postseason**\
-`With one awful play and awesome recovery, Mahomes reminded the league that he is still the same three-time champ and all-time great.`\
-https://nytimes.com/athletic/6651012/2025/09/22/chiefs-giants-patrick-mahomes-big-plays/
 
