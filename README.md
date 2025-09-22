@@ -1,3 +1,7 @@
+**How Dembele won the Ballon d’Or: New role, learning to love tap-ins, and not ‘cheating’**\
+`Ousmane Dembele was named the winner of the 2025 Ballon d'Or on Monday evening. This is how he has developed to earn that honour`\
+https://nytimes.com/athletic/6648802/2025/09/22/ousmane-dembele-ballon-dor-background/
+
 **Palestinians hope their state won’t remain just ‘ink on paper.’**\
 `By Fatima AbdulKarim`\
 https://nytimes.com/live/2025/09/22/world/united-nations-assembly/palestinians-hope-their-state-wont-remain-just-ink-on-paper
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6652857/2025/09/22/bruce-pearl-auburn-basketball-re
 **MLB owners unanimously approve Tampa Bay Rays sale to Patrick Zalupski-led group**\
 `In an expected move, MLB owners gave their green light to the sale of the Rays.`\
 https://nytimes.com/athletic/6652783/2025/09/22/tampa-bay-rays-sale-approval/
-
-**‘The View’ Hosts Criticize Trump Administration Over Kimmel**\
-`The chairman of the Federal Communications Commission has suggested that the daytime talk show should could also come under government scrutiny.`\
-https://nytimes.com/2025/09/22/business/media/the-view-trump-jimmy-kimmel.html
 
