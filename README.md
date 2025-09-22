@@ -1,3 +1,11 @@
+**Guardiola, 'anti-football' and a Plan B few saw coming at City**\
+`City adopted a reactive strategy at Arsenal that their manager would once have regarded as a surrender to secure a point`\
+https://nytimes.com/athletic/6649220/2025/09/22/pep-guardiola-manchester-city-low-block/
+
+**Remembering Matt Beard, the 'special' man who helped transform English women's football**\
+`Women's football in England is in shock after the death of former Liverpool manager Matt Beard`\
+https://nytimes.com/athletic/6649204/2025/09/22/matt-beard-obituary-womens-football-impact/
+
 **New-look Arsenal are still deciding who they are. There is little room for error**\
 `Manager's greater options mean big decisions over who makes his starting line-up and he changes things in-game`\
 https://nytimes.com/athletic/6649493/2025/09/22/arsenal-mikel-arteta-man-city/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/22/world/europe/europe-eu-gaza-israel.html
 **Connections: Sports Edition Coach: Hints for Sept. 22, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6650758/2025/09/22/connections-sports-edition-hints-for-sept-22-2025/
-
-**Chargers channel Jim Harbaugh, show off their 'gravel in the gut' to beat Broncos**\
-`Jim Harbaugh love his pet sayings and clichés. But don't dismiss them as coach speak. In reality, they are his special sauce.`\
-https://nytimes.com/athletic/6650767/2025/09/21/chargers-beat-broncos-justin-herbert-jim-harbaugh/
-
-**Chiefs beat Giants to avoid first 0-3 start since 2011: Takeaways**\
-`The Chiefs earn their first victory of the season, beating the winless Giants 22-9.`\
-https://nytimes.com/athletic/6650518/2025/09/21/chiefs-first-win-snf-takeaways/
 
