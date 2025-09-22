@@ -1,3 +1,19 @@
+**Not So Naked After All**\
+`Things were looking a lot more covered up at New York Fashion Week.`\
+https://nytimes.com/2025/09/22/style/new-york-fashion-week-conservatism-trend.html
+
+**NFL Week 4 odds, spreads: Don't even look, Saints fans**\
+`Odds are up for every Week 4 game, with an eye-popping 16.5-point spread favoring Buffalo against the hapless Saints.`\
+https://nytimes.com/athletic/6651869/2025/09/22/nfl-week-4-odds-spreads-bills-chiefs-ravens/
+
+**‘Mexodus’ Tells an Underground Railroad Story You’ve Probably Never Heard**\
+`In this new hip-hop musical from Nygel D. Robinson and Brian Quijada, audiences hear a tale of reverse migration: Slaves leaving the United States for Mexico.`\
+https://nytimes.com/2025/09/22/theater/mexodus-underground-railroad-musical.html
+
+**Texas QB Arch Manning 'ripped' for TD taunt in win vs. Sam Houston State**\
+`In social media posts, the University of Texas seemed to celebrate Manning's "swagger" and "aura."`\
+https://nytimes.com/athletic/6651926/2025/09/22/arch-manning-taunt-sam-houston-state/
+
 **Proposed Gas Pipeline Tests New York’s Allegiance to Green Energy**\
 `The Northeast Supply Enhancement pipeline, which would deliver natural gas into the New York City area, has been shot down three times because of environmental concerns. Supporters hope the fourth time is the charm.`\
 https://nytimes.com/2025/09/22/nyregion/nese-pipeline-nyc-natural-gas.html
@@ -17,20 +33,4 @@ https://nytimes.com/2025/09/22/business/trumps-fed-pick-outlines-case-for-slashi
 **When ICE Shows Up at a Factory, What Can a Governor Do?**\
 `“I’m used to being able to solve problems,” Gov. Kathy Hochul of New York said as she visited a factory where immigration officials arrested 57 people.`\
 https://nytimes.com/2025/09/22/nyregion/ice-raid-hochul.html
-
-**U.S.-Run TikTok to License Algorithm, White House Says**\
-`The change is part of a deal to bring TikTok under U.S. ownership to avert a looming ban.`\
-https://nytimes.com/2025/09/22/us/politics/tiktok-deal-algorithm-trump.html
-
-**Syracuse fined by ACC for faking injuries vs. Clemson**\
-`Two Syracuse linemen both went to the ground in the fourth quarter at a pivotal moment, drawing the attention of ACC officials. `\
-https://nytimes.com/athletic/6651816/2025/09/22/syracuse-fined-faking-injuries-clemson-upset/
-
-**SEC to release teams' three annual opponents: Alabama-LSU on the outs**\
-`This set of annual opponents will only be applied for a four-year cycle over the 2026 to 2029 seasons and will be revisited for 2030.`\
-https://nytimes.com/athletic/6651845/2025/09/22/sec-football-annual-opponents-rivals-schedule/
-
-**Shawn Clark, UCF O-line coach and former App State HC, dead at 50**\
-`Clark coached offensive line for most of a two-decade career in college football but succeeded Eli Drinkwitz as App State head coach in '19.`\
-https://nytimes.com/athletic/6651642/2025/09/22/shawn-clark-appalachian-state-ucf/
 

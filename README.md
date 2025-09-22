@@ -28,7 +28,7 @@ https://nytimes.com/athletic/6651150/2025/09/22/kara-lawson-olympics-womens-bask
 
 **Trump’s Fed Pick Outlines Case for Slashing Interest Rates**\
 `Stephen Miran, who joined the central bank last week, said he believes rates should be around 2.5 percent, or about 2 percentage points lower than they are currently.`\
-https://nytimes.com/2025/09/22/business/trumps-fed-pick-outlines-case-for-slashing-interest-rates.html
+https://nytimes.com/2025/09/22/business/trump-fed-interest-rates.html
 
 **When ICE Shows Up at a Factory, What Can a Governor Do?**\
 `“I’m used to being able to solve problems,” Gov. Kathy Hochul of New York said as she visited a factory where immigration officials arrested 57 people.`\

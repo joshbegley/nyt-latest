@@ -1,3 +1,19 @@
+**Not So Naked After All**\
+`Things were looking a lot more covered up at New York Fashion Week.`\
+https://nytimes.com/2025/09/22/style/new-york-fashion-week-conservatism-trend.html
+
+**NFL Week 4 odds, spreads: Don't even look, Saints fans**\
+`Odds are up for every Week 4 game, with an eye-popping 16.5-point spread favoring Buffalo against the hapless Saints.`\
+https://nytimes.com/athletic/6651869/2025/09/22/nfl-week-4-odds-spreads-bills-chiefs-ravens/
+
+**‘Mexodus’ Tells an Underground Railroad Story You’ve Probably Never Heard**\
+`In this new hip-hop musical from Nygel D. Robinson and Brian Quijada, audiences hear a tale of reverse migration: Slaves leaving the United States for Mexico.`\
+https://nytimes.com/2025/09/22/theater/mexodus-underground-railroad-musical.html
+
+**Texas QB Arch Manning 'ripped' for TD taunt in win vs. Sam Houston State**\
+`In social media posts, the University of Texas seemed to celebrate Manning's "swagger" and "aura."`\
+https://nytimes.com/athletic/6651926/2025/09/22/arch-manning-taunt-sam-houston-state/
+
 **Proposed Gas Pipeline Tests New York’s Allegiance to Green Energy**\
 `The Northeast Supply Enhancement pipeline, which would deliver natural gas into the New York City area, has been shot down three times because of environmental concerns. Supporters hope the fourth time is the charm.`\
 https://nytimes.com/2025/09/22/nyregion/nese-pipeline-nyc-natural-gas.html
