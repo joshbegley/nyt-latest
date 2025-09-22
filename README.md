@@ -1,3 +1,7 @@
+**Seahawks dreaming bigger after dominating Saints and snapping home skid**\
+`The Seahawks are starting to look like they have no shortage of weapons. "It feels good to dominate somebody," Uchenna Nwosu said.`\
+https://nytimes.com/athletic/6650504/2025/09/21/seahawks-saints-week-3-blowout/
+
 **Brother of Jeremiah Smith, 3-star safety Angelo, commits to Ohio State**\
 `Angelo Smith is the No. 38 ranked safety in his class and will likely slot in as a corner back for the Buckeyes.`\
 https://nytimes.com/athletic/6650574/2025/09/21/jeremiah-angelo-smith-commit-ohio-state/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/21/us/politics/spectator-long-day.html
 **Needing a spark, the Commanders got two: from their backup QB and their coach**\
 `Jayden Daniels was out, so the Commanders rallied behind backup Marcus Mariota, and the indomitable Dan Quinn.`\
 https://nytimes.com/athletic/6650168/2025/09/21/marcus-mariota-commanders-dan-quinn/
-
-**Inside the Blue Jays’ playoff clinch celebration: ‘This year, we did it’**\
-`The Jays knocked on the door of the postseason for three days in Kansas City. After an 8-5 win Sunday, the champagne could finally flow.`\
-https://nytimes.com/athletic/6650366/2025/09/21/blue-jays-playoff-clinch-celebration/
 
