@@ -1,3 +1,14 @@
+**Longtime Patriots, Texans executive Bobby Grier dies at 82**\
+`Grier spent nearly 20 years as a coach and executive with the New England Patriots.`\
+https://nytimes.com/athletic/6652067/2025/09/22/patriots-texans-bobby-grier-dies/
+
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Oregon-Penn State. Alabama-Georgia. LSU-Ole Miss. &#8230; UCLA-Northwestern.</p>
+<p>Week 5 should be a good one!</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6650070/2025/09/22/submit-a-question-for-stewart-mandels-college-football-mailbag-316/
+
 **Sushi Is Bigger Than Ever in America. There’s One Main Reason.**\
 `Once considered rarefied and exotic in the United States, the Japanese favorite is now a staple in many places across the country.`\
 https://nytimes.com/2025/09/22/dining/america-sushi.html
