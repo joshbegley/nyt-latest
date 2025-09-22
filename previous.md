@@ -1,40 +1,40 @@
-**What we learned in NFL Week 3: Caleb Williams impresses, Colts continue surprise start**\
-`Word to the wise: Attempt a last-second field goal in the NFL at your own peril.`\
-https://nytimes.com/athletic/6650200/2025/09/22/bears-caleb-williams-colts-daniel-jones/
+**How Tyquan Thornton went from castoff to Chiefs savior vs. Giants**\
+`A forgotten man on the practice squad 10 months ago, Thornton was the Chiefs' WR1 on "Sunday Night Football" in the Meadowlands.`\
+https://nytimes.com/athletic/6650142/2025/09/22/tyquan-thornton-catch-chiefs-giants/
 
-**How to watch TCU at Arizona State: Time, TV, streaming**\
-`Find out how to watch the TCU Horned Frogs play the Arizona State Sun Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6651228/2025/09/22/tcu-vs-arizona-state-stream-how-to-watch-sept-26/
+**Phillies takeaways: Alec Bohm's swing, lineup shuffling, playoff roster ruminations**\
+`Bohm is not cutting off his swing. It's allowing him to drive the ball again. The more barrels, the better.`\
+https://nytimes.com/athletic/6650263/2025/09/22/phillies-lineup-playoff-roster-alec-bohm/
 
-**How to watch Florida State at Virginia: Time, TV, streaming**\
-`Find out how to watch the Florida State Seminoles play the Virginia Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6651226/2025/09/22/florida-state-vs-virginia-stream-how-to-watch-sept-26/
+**How the Bears made a statement with their 19-play touchdown drive: 'It was torture'**\
+`Late in the third quarter, the Bears took nearly 10 minutes off the clock and scored 7 points, a statement drive in the win.`\
+https://nytimes.com/athletic/6650592/2025/09/22/bears-19-play-touchdown-drive/
 
-**Reuniting the Great Works of the Patron Saint of Artists**\
-`A new exhibition in Italy puts the spotlight on Fra Angelico, whose reputation for piety vied with his undeniable artistic talents.`\
-https://nytimes.com/2025/09/22/arts/design/fra-angelico-florence-italy.html
+**Lions at Ravens: A real prop for Lamar Jackson, fake props for Joe Buck and MNF broadcast**\
+`Will Lamar Jackson continue shining in prime time? Will we see that "Ride the Float" commercial way too many times?`\
+https://nytimes.com/athletic/6645352/2025/09/22/lions-ravens-lamar-jackson-props-monday-night-football-how-to-watch/
 
-**Ravens' young defensive players have to grow up fast vs. high-powered Lions**\
-`With two of its top pass rushers out with injuries, Baltimore will have to rely on some of its rookie defenders against Detroit. `\
-https://nytimes.com/athletic/6647469/2025/09/22/ravens-defense-lions-offense-monday-night-football/
+**The Steelers' defense carries a giant asterisk, and it cuts both ways**\
+`Sunday's takeaway binge in Foxboro slowed a concerning trend for Pittsburgh's defense, but it's hardly a sustainable approach.`\
+https://nytimes.com/athletic/6651143/2025/09/22/steelers-defense-decline-patriots-turnovers/
 
-**The New York Times International Edition in Print for Tuesday, Sep. 23, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/09/22/todays-new-york-times-international-edition
+**Defense carried the Vikings on Sunday, which has become the norm under Brian Flores**\
+`Kevin O'Connell's work with quarterbacks gets plenty of attention, but Flores' unit has had an outsized impact on winning.`\
+https://nytimes.com/athletic/6651124/2025/09/22/vikings-defense-brian-flores-kevin-oconnell/
 
-**As U.N. General Assembly Gathers, Here’s What to Watch For**\
-`A look at major figures who will appear during the week and what they might talk about.`\
-https://nytimes.com/2025/09/22/world/americas/un-general-assembly-highlights.html
+**The Tom Brady conflict-of-interest calculus is so simple**\
+`NFL coaches downplayed concerns about Tom Brady being both a Raiders part-owner and a Fox broadcaster. Of course they did. Here's why.`\
+https://nytimes.com/athletic/6651139/2025/09/22/tom-brady-raiders-fox-broadcasting/
 
-**Australia, Britain, Canada and Portugal Formally Recognize a Palestinian State**\
-`Statements by the leaders of Australia, Britain, Canada and Portugal recognizing Palestinian statehood came before the annual gathering of the U.N. General Assembly in New York. Israel’s government condemned the moves.`\
-https://nytimes.com/video/world/100000010413323/starmer-uk-recognize-palestinian-state.html
+**Sizing up the NFL's six 3-0 teams, from mainstays to newcomers: Sando's Pick Six**\
+`It's no surprise the Bills and Eagles are undefeated, but the Chargers and Colts have done their best to steal the spotlight.`\
+https://nytimes.com/athletic/6648790/2025/09/22/nfl-undefeated-teams-eagles-bills-chargers-bucs-49ers-colts/
 
-**How to watch Brewers at Padres: Time, TV, streaming for September 22**\
-`Find out how to watch the Milwaukee Brewers play the San Diego Padres, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6651193/2025/09/22/brewers-vs-padres-stream-how-to-watch-sept-22/
+**At the most important time of the year, the Tigers’ roster has become a mess**\
+`The Tigers lost their sixth game in a row, using reclamation pitchers and a hitter with a second-half wRC+ of 1 in a crucial spot.`\
+https://nytimes.com/athletic/6649890/2025/09/22/tigers-roster-loss-braves/
 
-**How to watch Seahawks at Cardinals: Time, TV, streaming**\
-`Find out how to watch the Seattle Seahawks play the Arizona Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6651191/2025/09/22/seahawks-vs-cardinals-stream-how-to-watch-sept-25/
+**Penguins 2025-26 season preview: Playoff chances, projected points, roster rankings**\
+`The 2025-26 Penguins are going to finish toward the bottom of the standings but are at risk of sitting in limbo for another season.`\
+https://nytimes.com/athletic/6634318/2025/09/22/pittsburgh-penguins-2025-26-season-preview/
 
