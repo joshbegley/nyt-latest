@@ -1,3 +1,19 @@
+**For the Jets, Will McDonald provides a special moment — but it only lasts a moment**\
+`Will McDonald's blocked field goal touchdown went for naught, and the Jets fell to 0-3 in Tampa Bay.`\
+https://nytimes.com/athletic/6650198/2025/09/21/new-york-jets-tampa-bay-buccaneers/
+
+**Dodger Details: Putting a bow on a weekend honoring Clayton Kershaw**\
+`"Remember," Kershaw said Sunday, "we've got another month left. We'll see you at the end of October."`\
+https://nytimes.com/athletic/6650147/2025/09/21/dodger-details-honoring-clayton-kershaw/
+
+**Raiders struggle in every phase of lopsided loss: 'We were no good today'**\
+`The O-line struggled and the defense had its hands full with backup QB Marcus Mariota, who filled in for the injured Jayden Daniels.`\
+https://nytimes.com/athletic/6649941/2025/09/21/raiders-lose-defense-special-teams-commanders/
+
+**Rams look like a team that's grown before Eagles prove again to have their number**\
+`Los Angeles was again in a battle with the defending champions but suffered its third loss to Philadelphia in the past calendar year.`\
+https://nytimes.com/athletic/6649792/2025/09/21/rams-loss-eagles-jordan-davis/
+
 **Giants kicker Graham Gano questionable to play vs. Chiefs**\
 `Gano headed to the bench, and punter Jamie Gillan started kicking into the net.`\
 https://nytimes.com/athletic/6650389/2025/09/21/ny-giants-graham-gano-kicker/
