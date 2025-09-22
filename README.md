@@ -1,3 +1,7 @@
+**Zubeen Garg, Singer Who Charmed India With a Bollywood Hit, Dies at 52**\
+`Mr. Garg sang in dozens of languages and his music blended folk, pop and rock. His hit song “Ya Ali” was featured in the 2006 film “Gangster.”`\
+https://nytimes.com/2025/09/22/world/asia/zubeen-garg-dead.html
+
 **Ohio State's defense is still elite. Here's how Matt Patricia changed it**\
 `Ohio State enters its Big Ten opener at Washington feeling good about its new-look defense under Patricia. What's changed?`\
 https://nytimes.com/athletic/6649704/2025/09/22/ohio-state-defense-matt-patricia-washington/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/22/us/politics/hillary-clinton-womens-rights-trump.h
 **Long-delayed trial pitting family of Tyler Skaggs against Los Angeles Angels gets underway**\
 `It is rare for MLB teams to see their dirty laundry aired in court. The Angels are about to become an exception to that rule. `\
 https://nytimes.com/athletic/6649617/2025/09/22/angels-tyler-skaggs-trial-primer-mike-trout/
-
-**Breaking down the Guardians' sizzling stretch, postseason odds**\
-`The bottom line for the Guardians is, if they have another good week, they’ll be playing in October. Here's how it breaks down.`\
-https://nytimes.com/athletic/6649229/2025/09/22/cleveland-guardians-playoff-hunt-analysis/
 
