@@ -1,3 +1,27 @@
+**What does it mean to be a state?**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2025/09/22/world/united-nations-live/what-does-it-mean-to-be-a-state
+
+**Here’s what to know about the Palestinian statehood conference.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2025/09/22/world/united-nations-live/what-to-know-about-the-palestinian-statehood-conference
+
+**Live Updates: Palestinian Statehood Takes Center Stage at U.N. Summit**\
+`About 10 countries are expected to join the 147 other member states of the U.N. that consider Palestine a sovereign nation.`\
+https://nytimes.com/live/2025/09/22/world/united-nations-live
+
+**Yet another Seahawks DB is shining off the bench, reinforcing Seattle's defensive identity**\
+`Less than a month after joining Seattle, Derion Kendrick is tied for the NFL lead in interceptions. Here's why the team isn't surprised.`\
+https://nytimes.com/athletic/6652150/2025/09/22/derion-kendrick-seahawks-mike-macdonald/
+
+**Commanders, safety Darnell Savage agree to terms: Sources**\
+`The 28-year-old Savage was a first-round pick out of Maryland in 2019. The Commanders lost Will Harris to a lower leg injury on Sunday.`\
+https://nytimes.com/athletic/6652358/2025/09/22/darnell-savage-commanders-safety/
+
+**The Giants' preseason starting pitching depth was a mirage**\
+`The saying "you can never have too much starting pitching" in baseball may seem trite, but the Giants proved once again how true it is.`\
+https://nytimes.com/athletic/6641395/2025/09/22/sf-giants-starting-pitch-depth-analysis/
+
 **Tech Executive Dies After Falling 2,000 Feet on Mount Shasta**\
 `While the Argentine hiker and tech founder, Matias Augusto Travizano, was descending the mountain, he fell down a glacier, the authorities said.`\
 https://nytimes.com/2025/09/22/us/argentina-tech-ceo-dead-mount-shasta.html
@@ -13,28 +37,4 @@ https://nytimes.com/video/opinion/100000010410493/how-to-defeat-trump.html
 **This Administration Is Silencing Its Critics**\
 `Jamelle Bouie on why silencing critics is fundamental to the Trump administration’s overall theory of power.`\
 https://nytimes.com/video/opinion/100000010410474/this-administration-is-silencing-its-critics.html
-
-**Christopher Nolan Elected President of the Directors Guild of America**\
-`Nolan, who has been a member of the 19,500-member guild since 2001, has directed blockbuster hits like “Oppenheimer” and “The Dark Knight.”`\
-https://nytimes.com/2025/09/22/movies/christopher-nolan-directors-guild-of-america.html
-
-**Swimmers Dive Into Chicago River for First Time in Nearly a Century**\
-`After decades of efforts to clean up the Chicago River from the loads of industrial and human waste that were routinely dumped in the water, hundreds of swimmers marked the occasion by swimming in the clean water.`\
-https://nytimes.com/video/us/100000010413864/chicago-river-swim.html
-
-**Mamdani Cancels WABC Town Hall to Protest Kimmel Suspension**\
-`Zohran Mamdani, the front-runner in the New York City mayor’s race, said the suspension of Jimmy Kimmel’s talk show sent a chilling message about free speech.`\
-https://nytimes.com/2025/09/22/nyregion/mamdani-cancel-abc-town-hall-kimmel.html
-
-**U.S. Asks Judge to Break Up Google’s Advertising Technology Monopoly**\
-`The Justice Department argued that the best way to address the company’s unfair advantage was to force it sell off portions of its business.`\
-https://nytimes.com/2025/09/22/technology/google-ad-tech-monopoly.html
-
-**Alex Faust to succeed Bob Costas as play-by-play voice for MLB playoffs**\
-`Faust has already broadcast events for TNT Sports, as he is part of their NHL coverage and was on the call for French Open matches.`\
-https://nytimes.com/athletic/6652199/2025/09/22/tnt-sports-mlb-playoffs-bob-costas-alex-faust/
-
-**Forgiveness and Fury at Kirk’s Memorial**\
-`Readers react to the memorial for the slain conservative activist Charlie Kirk. Also: Jimmy Kimmel and free speech; a loss of history at PBS.`\
-https://nytimes.com/2025/09/22/opinion/charlie-kirk-memorial-trump.html
 
