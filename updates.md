@@ -1,3 +1,11 @@
+**Long-delayed trial pitting family of Tyler Skaggs against Los Angeles Angels gets underway**\
+`It is rare for MLB teams to see their dirty laundry aired in court. The Angels are about to become an exception to that rule. `\
+https://nytimes.com/athletic/6649617/2025/09/22/angels-tyler-skaggs-trial-primer-mike-trout/
+
+**Breaking down the Guardians' sizzling stretch, postseason odds**\
+`The bottom line for the Guardians is, if they have another good week, they’ll be playing in October. Here's how it breaks down.`\
+https://nytimes.com/athletic/6649229/2025/09/22/cleveland-guardians-playoff-hunt-analysis/
+
 **How Six World Leaders Are Confronting Climate Change**\
 `The leaders told us how they are facing a warming planet in a world where international collaboration on climate change is fraying.`\
 https://nytimes.com/2025/09/22/briefing/climate-change-world-leaders-kirk.html
