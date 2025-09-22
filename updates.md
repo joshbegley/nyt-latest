@@ -1,3 +1,19 @@
+**2018 Panini Select Field Level Lamar Jackson rookie card: Our sports card of the week**\
+`A base rookie card that offers an interesting degree of rarity`\
+https://nytimes.com/athletic/6652312/2025/09/22/lamar-jackson-rookie-card-ravens/
+
+**What I'm hearing about Carter Hart: Hurricanes, Golden Knights among suitors, Mammoth out**\
+`League sources say that the Hurricanes' views on Hart and the other Hockey Canada defendants changed after Justice Maria Carroccia's ruling.`\
+https://nytimes.com/athletic/6652631/2025/09/22/carter-hart-hurricanes-golden-knights-suitors-nhl/
+
+**U.S. Pledges Support for Argentina’s Economy and a Trump Ally in Crisis**\
+`Treasury Secretary Scott Bessent said “all options” are under consideration to help President Javier Milei.`\
+https://nytimes.com/2025/09/22/us/politics/us-argentina-bessent-javier-milei.html
+
+**Deion Sanders confirms Shedeur Sanders asked Ravens not to draft him**\
+`Sanders 'let a cat out of the bag' when he said the Philadelphia Eagles also called Shedeur during the draft. `\
+https://nytimes.com/athletic/6652643/2025/09/22/deion-sanders-shedeur-draft-ravens-eagles/
+
 **Ron DiMenna, Founder of Ron Jon Surf Shop, Dies at 88**\
 `As the founder of a national chain, he was a key figure in surfing’s expansion into mainstream culture, with a life said to be “the stuff of folklore.”`\
 https://nytimes.com/2025/09/22/business/ron-dimenna-dead.html
