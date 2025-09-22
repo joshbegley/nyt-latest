@@ -1,3 +1,7 @@
+**Macron will acknowledge Palestinian statehood in speech at U.N.**\
+`By Catherine Porter`\
+https://nytimes.com/live/2025/09/22/world/united-nations-assembly/macron-france-palestinian-statehood
+
 **Spirit to Put One-Third of Flight Attendants on Leave**\
 `The budget airline said it would furlough hundreds of employee as it waded through its second bankruptcy in a year.`\
 https://nytimes.com/2025/09/22/business/spirit-flight-attendants.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/22/us/earthquake-bay-area-berkeley.html
 **49ers DE Nick Bosa out for season with torn ACL: Sources**\
 `Bosa left Sunday's game late in the first quarter and did not return.`\
 https://nytimes.com/athletic/6652130/2025/09/22/nick-bosa-acl-injury-update-status-49ers/
-
-**Tiger Handler Linked to Joe Exotic Is Fatally Mauled by Tiger**\
-`Ryan Easley, 37, was performing at his family-run private zoo in Hugo, Okla., when a tiger attacked him, the authorities said. He was pronounced dead at the scene.`\
-https://nytimes.com/2025/09/22/us/tiger-handler-mauled-dead-joe-exotic.html
 

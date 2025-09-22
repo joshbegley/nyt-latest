@@ -1,3 +1,11 @@
+**Spirit to Put One-Third of Flight Attendants on Leave**\
+`The budget airline said it would furlough hundreds of employee as it waded through its second bankruptcy in a year.`\
+https://nytimes.com/2025/09/22/business/spirit-flight-attendants.html
+
+**Zelensky Urges ‘Powerful Pressure on Russia’ at U.N. General Assembly**\
+`In a social media post, Ukraine’s president pushed leaders gathering in New York to strengthen their efforts to get Moscow to end the war.`\
+https://nytimes.com/2025/09/22/world/europe/unga-zelensky-ukraine-russia.html
+
 **Canadiens notebook: Demidov's perfectionism, Slafkovský means business**\
 `Also: A window into how skill development works on the ice and an early look at the power-play units.`\
 https://nytimes.com/athletic/6652474/2025/09/22/canadiens-training-camp-demidov-slafkovsky/

@@ -1,3 +1,11 @@
+**Spirit to Put One-Third of Flight Attendants on Leave**\
+`The budget airline said it would furlough hundreds of employee as it waded through its second bankruptcy in a year.`\
+https://nytimes.com/2025/09/22/business/spirit-flight-attendants.html
+
+**Zelensky Urges ‘Powerful Pressure on Russia’ at U.N. General Assembly**\
+`In a social media post, Ukraine’s president pushed leaders gathering in New York to strengthen their efforts to get Moscow to end the war.`\
+https://nytimes.com/2025/09/22/world/europe/unga-zelensky-ukraine-russia.html
+
 **Canadiens notebook: Demidov's perfectionism, Slafkovský means business**\
 `Also: A window into how skill development works on the ice and an early look at the power-play units.`\
 https://nytimes.com/athletic/6652474/2025/09/22/canadiens-training-camp-demidov-slafkovsky/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6652130/2025/09/22/nick-bosa-acl-injury-update-stat
 **Tiger Handler Linked to Joe Exotic Is Fatally Mauled by Tiger**\
 `Ryan Easley, 37, was performing at his family-run private zoo in Hugo, Okla., when a tiger attacked him, the authorities said. He was pronounced dead at the scene.`\
 https://nytimes.com/2025/09/22/us/tiger-handler-mauled-dead-joe-exotic.html
-
-**NASA Picks 10 New Astronauts as Focus Shifts to the Moon and Mars**\
-`The astronaut candidates will begin two years of training before becoming eligible for missions to low-Earth orbit and beyond.`\
-https://nytimes.com/2025/09/22/science/nasa-new-astronauts.html
-
-**Cardi B Rips From Her Own Headlines for ‘Am I the Drama?’**\
-`On an uneven but sometimes inspired second album, the rapper is pugnacious, reflective and rarely short on charisma.`\
-https://nytimes.com/2025/09/22/arts/music/cardi-b-am-i-the-drama-review.html
 
