@@ -1,3 +1,11 @@
+**Mets mailbag: Submit questions heading into regular season's final week**\
+`Our Mets experts will tackle your questions about the Mets' outlook as the 2025 regular season draws to a close.`\
+https://nytimes.com/athletic/6651684/2025/09/22/mets-mailbag-final-week-2025/
+
+**Corrections: Sept. 19, 2025**\
+`Corrections that appeared in print on Friday, Sept. 19, 2025.`\
+https://nytimes.com/2025/09/22/pageoneplus/corrections-sept-19-2025.html
+
 **Egypt Pardons Most Prominent Political Prisoner**\
 `Alaa Abd El Fattah, a British-Egyptian dual citizen, was imprisoned for most of the past 12 years as a dissident. He and his mother went on hunger strike to press for his release.`\
 https://nytimes.com/2025/09/22/world/middleeast/egypt-pardon-alaa-abd-el-fattah-political-prisoner.html
@@ -23,18 +31,10 @@ https://nytimes.com/2025/09/22/us/dominican-republic-cocaine-speedboat-us-navy.h
 https://nytimes.com/video/world/asia/100000010413484/typhoon-ragasa-philippines-taiwan.html
 
 **Giants fans fed up with offensive ineptitude call for Jaxson Dart; when will it be his time?**\
-`QB Russell Wilson has not been able to win over Giants fans, who booed him when he returned to the field at times on Sunday night. `\
+`QB Russell Wilson has not been able to win over Giants fans, who booed him when he returned to the field at times Sunday night. `\
 https://nytimes.com/athletic/6651123/2025/09/22/ny-giants-jaxson-dart-fans-boo-russell-wilson/
 
 **USMNT Player Tracker: Pulisic a class apart, Tillman's tonic and Richards still unbeaten**\
 `Our roundup of the weekend action also sees Brenden Aaronson make his mark at Leeds and Lyon's Tanner Tessmann as a match-winner`\
 https://nytimes.com/athletic/6651279/2025/09/22/usmnt-pulisic-tillman-richards-tracker/
-
-**H-1B Visa Upheaval Roils Companies and Geopolitics**\
-`The Trump administration has clarified its new visa policy, but corporate bosses are still trying to sort through the fallout.`\
-https://nytimes.com/2025/09/22/business/dealbook/h1b-visa-trump-india.html
-
-**The Pulse: The shocking team among the NFL’s undefeated**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6650195/2025/09/22/nfl-undefeated-teams-the-pulse/
 

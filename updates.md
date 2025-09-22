@@ -1,3 +1,15 @@
+**Mets mailbag: Submit questions heading into regular season's final week**\
+`Our Mets experts will tackle your questions about the Mets' outlook as the 2025 regular season draws to a close.`\
+https://nytimes.com/athletic/6651684/2025/09/22/mets-mailbag-final-week-2025/
+
+**Corrections: Sept. 19, 2025**\
+`Corrections that appeared in print on Friday, Sept. 19, 2025.`\
+https://nytimes.com/2025/09/22/pageoneplus/corrections-sept-19-2025.html
+
+**Giants fans fed up with offensive ineptitude call for Jaxson Dart; when will it be his time?**\
+`QB Russell Wilson has not been able to win over Giants fans, who booed him when he returned to the field at times Sunday night. `\
+https://nytimes.com/athletic/6651123/2025/09/22/ny-giants-jaxson-dart-fans-boo-russell-wilson/
+
 **Egypt Pardons Most Prominent Political Prisoner**\
 `Alaa Abd El Fattah, a British-Egyptian dual citizen, was imprisoned for most of the past 12 years as a dissident. He and his mother went on hunger strike to press for his release.`\
 https://nytimes.com/2025/09/22/world/middleeast/egypt-pardon-alaa-abd-el-fattah-political-prisoner.html
