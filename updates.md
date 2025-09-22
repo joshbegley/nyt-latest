@@ -1,3 +1,19 @@
+**Gavi to undergo minor knee surgery, set for one month out**\
+`Gavi has not featured since August due to a meniscus injury and will undergo an arthroscopic examination on Tuesday.`\
+https://nytimes.com/athletic/6651416/2025/09/22/gavi-injury-surgery-barcelona-update/
+
+**Two Accused of Draining Accounts of Couple Who Disappeared From Mansion**\
+`JuanJuan Zwang and Peishuan Fan came from China three years ago to live in a $3.9 million home on Long Island’s North Shore. Then, they were gone — and their money began to vanish, too.`\
+https://nytimes.com/2025/09/22/nyregion/long-island-couple-disappeared-fraud-arraignment.html
+
+**The Firing of Educators Over Kirk Comments Follows a Familiar Playbook**\
+`Conservative efforts to call out and punish educators over liberal ideas have grown for years, led in part by Charlie Kirk himself.`\
+https://nytimes.com/2025/09/22/us/firing-educators-kirk-free-speech.html
+
+**The Wary, Warming, Wildly Consequential Alliance of Ocasio-Cortez and Mamdani**\
+`She was the ‘big sister’ he hoped to impress. He seemed inexperienced to her. Now, they’re the faces of a political movement — and New York is its test case.`\
+https://nytimes.com/2025/09/22/nyregion/ocasio-cortez-mamdani-new-york-mayor.html
+
 **Louise Vincent, Addict Who Led Harm Reduction Movement, Dies at 49**\
 `She was instrumental in helping promote wider use of needle exchanges, naloxone and tests to assist drug users in identifying dangerous ingredients.`\
 https://nytimes.com/2025/09/22/health/louise-vincent-dead.html
