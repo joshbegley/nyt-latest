@@ -1,3 +1,7 @@
+**When ICE Shows Up at a Factory, What Can a Governor Do?**\
+`“I’m used to being able to solve problems,” Gov. Kathy Hochul of New York said as she visited a factory where immigration officials arrested 57 people.`\
+https://nytimes.com/2025/09/22/nyregion/ice-raid-hochul.html
+
 **U.S.-Run TikTok to License Algorithm, White House Says**\
 `The change is part of a deal to bring TikTok under U.S. ownership to avert a looming ban.`\
 https://nytimes.com/2025/09/22/us/politics/tiktok-deal-algorithm-trump.html
