@@ -1,3 +1,7 @@
+**Egypt Pardons Most Prominent Political Prisoner**\
+`Alaa Abd El Fattah, a British-Egyptian dual citizen, was imprisoned for most of the past 12 years as a dissident. He and his mother went on hunger strike to press for his release.`\
+https://nytimes.com/2025/09/22/world/middleeast/egypt-pardon-alaa-abd-el-fattah-political-prisoner.html
+
 **With scars and skeptics, Carson Wentz fits right in among Vikings QB lore**\
 `The veteran quarterback stepped in for J.J. McCarthy and went 14-of-20 passing for 173 yards and two touchdowns in Minnesota's blowout win.`\
 https://nytimes.com/athletic/6650938/2025/09/22/carson-wentz-vikings-qb-bengals/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/22/business/dealbook/h1b-visa-trump-india.html
 **The Pulse: The shocking team among the NFL’s undefeated**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6650195/2025/09/22/nfl-undefeated-teams-the-pulse/
-
-**Trump Administration Live Updates: President to Speak About Autism**\
-``\
-https://nytimes.com/live/2025/09/22/us/trump-news
 
