@@ -1,3 +1,15 @@
+**Ohio State's defense is still elite. Here's how Matt Patricia changed it**\
+`Ohio State enters its Big Ten opener at Washington feeling good about its new-look defense under Patricia. What's changed?`\
+https://nytimes.com/athletic/6649704/2025/09/22/ohio-state-defense-matt-patricia-washington/
+
+**Rod Moore savors his Michigan return after 18 months: 'It’s been such a long haul'**\
+`Moore, a senior safety and Michigan co-captain, returned Saturday at Nebraska in his first game appearance in 621 days.`\
+https://nytimes.com/athletic/6649421/2025/09/22/rod-moore-michigan-injury-return-nebraska/
+
+**Inside Newcastle Q&A: Chris Waugh answers your questions**\
+`Newcastle are proving tough to score against but are also finding goals hard to come by. Next up, their Carabao Cup defence begins...`\
+https://nytimes.com/athletic/6651200/2025/09/22/inside-newcastle-qa-chris-waugh-answers-your-questions/
+
 **Inside Barcelona: Julian Alvarez targeted, Camp Nou latest, why Marcus Rashford was dropped...**\
 `Our Barca writers bring you the latest news on all the big talking points at the La Liga champions right now`\
 https://nytimes.com/athletic/6651241/2025/09/22/barcelona-rashford-camp-nou-julian-alvarez/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6649617/2025/09/22/angels-tyler-skaggs-trial-primer
 **Breaking down the Guardians' sizzling stretch, postseason odds**\
 `The bottom line for the Guardians is, if they have another good week, they’ll be playing in October. Here's how it breaks down.`\
 https://nytimes.com/athletic/6649229/2025/09/22/cleveland-guardians-playoff-hunt-analysis/
-
-**How Six World Leaders Are Confronting Climate Change**\
-`The leaders told us how they are facing a warming planet in a world where international collaboration on climate change is fraying.`\
-https://nytimes.com/2025/09/22/briefing/climate-change-world-leaders-kirk.html
-
-**Map: 4.3-Magnitude Earthquake Strikes the San Francisco Bay Area**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/09/22/us/earthquake-san-francisco-tracker.html
-
-**Filip Gustavsson extension projection: What a contract for Wild's 'clear-cut No. 1' might look like**\
-`Now that Gustavsson has proved he’s a strong starting goaltender, it’ll soon be time to get paid like one.`\
-https://nytimes.com/athletic/6644875/2025/09/22/wild-filip-gustavsson-contract-extension/
 

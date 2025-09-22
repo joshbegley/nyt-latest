@@ -1,3 +1,11 @@
+**Inside Barcelona: Julian Alvarez targeted, Camp Nou latest, why Marcus Rashford was dropped...**\
+`Our Barca writers bring you the latest news on all the big talking points at the La Liga champions right now`\
+https://nytimes.com/athletic/6651241/2025/09/22/barcelona-rashford-camp-nou-julian-alvarez/
+
+**Palmer ‘game by game’ but Maresca ‘doesn’t think’ surgery needed on injury**\
+`Palmer was substituted 21 minutes into Chelsea’s defeat at Manchester United with a groin injury.`\
+https://nytimes.com/athletic/6651326/2025/09/22/cole-palmer-injury-update-chelsea/
+
 **For Arab Nations With Ties to Israel, Attacks on Qatar and Gaza City Raise Anxiety**\
 `The Middle Eastern states closest to Israel see the attack on Hamas officials in Qatar and the invasion of Gaza City as warning signs of potential threats to their own security.`\
 https://nytimes.com/2025/09/22/world/middleeast/arab-israel-conflict-regional-palestinians.html
