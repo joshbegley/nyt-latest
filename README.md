@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Tuesday, Sep. 23, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/09/22/todays-new-york-times-international-edition
+
 **As U.N. General Assembly Gathers, Here’s What to Watch For**\
 `A look at major figures who will appear during the week and what they might talk about.`\
 https://nytimes.com/2025/09/22/world/americas/un-general-assembly-highlights.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/22/us/charlie-kirk-memorial-takeaways.html
 **The Dangers of ‘Consequence Culture’**\
 `Where are the true believers in free speech untainted by the stain of politics?`\
 https://nytimes.com/2025/09/22/opinion/consequence-culture-kimmel-kirk.html
-
-**Al Gore on Trump and the Future of Climate Action**\
-`The former vice president speaks to David Gelles about how the climate movement can move forward after President Trump’s rollback of key environmental regulations and where he finds hope as the planet continues warming.`\
-https://nytimes.com/2025/09/22/climate/al-gore-interview-climate-forward.html
 
