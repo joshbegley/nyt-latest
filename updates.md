@@ -1,3 +1,15 @@
+**A Perfect Spicy-Sweet Chicken Dinner**\
+`Vinegar, lime and chiles keep things from veering too sweet in Yewande Komolafe’s honey-glazed chicken and shallots.`\
+https://nytimes.com/2025/09/22/dining/a-perfect-spicy-sweet-chicken-dinner.html
+
+**Palestinians React to International Recognition of Statehood**\
+`Palestinians in Gaza City and those fleeing south shared mixed views after Britain, Canada, Australia and Portugal confirmed on Sunday that they now formally recognize Palestinian statehood.`\
+https://nytimes.com/video/world/middleeast/100000010413443/palestinians-react-to-international-recognition-of-statehood.html
+
+**A Seafood-Filled Lunch on England’s North Sea Coast**\
+`The British chef Jess Shadbolt, of the New York restaurant King, feted her favorite fisherman — and her soon-to-open restaurant named in his honor.`\
+https://nytimes.com/2025/09/22/t-magazine/jess-shadbolt-lunch.html
+
 **Winnipeg Jets training camp: Who's been helping their case to be an NHL player?**\
 `There are good stories to be told, even among players who will be cut.`\
 https://nytimes.com/athletic/6648998/2025/09/22/winnipeg-jets-training-camp-notebook/
