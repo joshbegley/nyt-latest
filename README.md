@@ -1,3 +1,7 @@
+**NASA Picks 10 New Astronauts as Focus Shifts to the Moon and Mars**\
+`The astronaut candidates will begin two years of training before becoming eligible for missions to low-Earth orbit and beyond.`\
+https://nytimes.com/2025/09/22/science/nasa-new-astronauts.html
+
 **Cardi B Rips From Her Own Headlines for ‘Am I the Drama?’**\
 `On an uneven but sometimes inspired second album, the rapper is pugnacious, reflective and rarely short on charisma.`\
 https://nytimes.com/2025/09/22/arts/music/cardi-b-am-i-the-drama-review.html
@@ -10,7 +14,7 @@ https://nytimes.com/2025/09/22/world/europe/denmark-greenland-baby-reunited.html
 `After 16 NFL seasons in New York, Manning has found a way to fully open up and show his personality — with the help of his older brother.`\
 https://nytimes.com/athletic/6608615/2025/09/22/eli-manning-giants-manningcast-peyton/
 
-**French town halls fly Palestinian flag, defying the government.**\
+**French town halls fly Palestinian flags, defying the government.**\
 `By Aurelien Breeden`\
 https://nytimes.com/live/2025/09/22/world/united-nations-assembly/french-town-halls-fly-palestinian-flag-defying-the-government
 
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/09/22/world/united-nations-assembly
 **Yet another Seahawks DB is shining off the bench, reinforcing Seattle's defensive identity**\
 `Less than a month after joining Seattle, Derion Kendrick is tied for the NFL lead in interceptions. Here's why the team isn't surprised.`\
 https://nytimes.com/athletic/6652150/2025/09/22/derion-kendrick-seahawks-mike-macdonald/
-
-**Commanders, safety Darnell Savage agree to terms: Sources**\
-`The 28-year-old Savage was a first-round pick out of Maryland in 2019. The Commanders lost Will Harris to a lower leg injury on Sunday.`\
-https://nytimes.com/athletic/6652358/2025/09/22/darnell-savage-commanders-safety/
 
