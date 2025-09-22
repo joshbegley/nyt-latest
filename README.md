@@ -1,3 +1,11 @@
+**Christopher Nolan Elected President of the Directors Guild of America**\
+`Nolan, who has been a member of the 19,500-member guild since 2001, has directed blockbuster hits like “Oppenheimer” and “The Dark Knight.”`\
+https://nytimes.com/2025/09/22/movies/christopher-nolan-directors-guild-of-america.html
+
+**Swimmers Dive Into Chicago River for First Time in Nearly a Century**\
+`After decades of efforts to clean up the Chicago River from the loads of industrial and human waste that were routinely dumped in the water, hundreds of swimmers marked the occasion by swimming in the clean water.`\
+https://nytimes.com/video/us/100000010413864/chicago-river-swim.html
+
 **Mamdani Cancels WABC Town Hall to Protest Kimmel Suspension**\
 `Zohran Mamdani, the front-runner in the New York City mayor’s race, said the suspension of Jimmy Kimmel’s talk show sent a chilling message about free speech.`\
 https://nytimes.com/2025/09/22/nyregion/mamdani-cancel-abc-town-hall-kimmel.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/22/business/trump-h-1b-visa-fee-india.html
 **As NFL resumes international series, could an overseas Super Bowl be in the future?**\
 `"We're clearly focused on the near term with Super Bowls in the U.S.," NFL executive vice president Peter O'Reilly said Monday.`\
 https://nytimes.com/athletic/6652017/2025/09/22/nfl-international-super-bowl-draft/
-
-**Sabres depth chart 1.0: Roster battles, where things stand entering preseason**\
-`Here’s our first look at the lines and defensive pairs the Sabres are zeroing in on heading into the regular season.`\
-https://nytimes.com/athletic/6652115/2025/09/22/sabres-depth-chart-2025-season/
-
-**Trump’s Tax Cut Is Underwater. Can a ‘Refund Boom’ Save It?**\
-`Republicans are hoping a new name, along with larger refunds for many Americans next year, can buoy an economic agenda that polls show is unpopular.`\
-https://nytimes.com/2025/09/22/us/politics/trump-tax-cuts.html
 
