@@ -1,3 +1,11 @@
+**Reuniting the Great Works of the Patron Saint of Artists**\
+`A new exhibition in Italy puts the spotlight on Fra Angelico, whose reputation for piety vied with his undeniable artistic talents.`\
+https://nytimes.com/2025/09/22/arts/design/fra-angelico-florence-italy.html
+
+**Ravens' young defensive players have to grow up fast vs. high-powered Lions**\
+`With two of its top pass rushers out with injuries, Baltimore will have to rely on some of its rookie defenders against Detroit. `\
+https://nytimes.com/athletic/6647469/2025/09/22/ravens-defense-lions-offense-monday-night-football/
+
 **The New York Times International Edition in Print for Tuesday, Sep. 23, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/09/22/todays-new-york-times-international-edition
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6641792/2025/09/22/knicks-mike-brown-malcolm-brogda
 **Trump Appointees Roll Back Enforcement of Fair Housing Laws**\
 `Interviews and internal documents show that signature civil rights protections in housing are being dismissed as ideologically driven and D.E.I. in disguise.`\
 https://nytimes.com/2025/09/22/realestate/trump-fair-housing-laws.html
-
-**4 Takeaways From the Charlie Kirk Memorial**\
-`High-profile conservative speakers, including President Trump, addressed a packed stadium in Arizona. Erika Kirk forgave her husband’s killer.`\
-https://nytimes.com/2025/09/22/us/charlie-kirk-memorial-takeaways.html
-
-**The Dangers of ‘Consequence Culture’**\
-`Where are the true believers in free speech untainted by the stain of politics?`\
-https://nytimes.com/2025/09/22/opinion/consequence-culture-kimmel-kirk.html
 

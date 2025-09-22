@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Tuesday, Sep. 23, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/09/22/todays-new-york-times-international-edition
+
 **As U.N. General Assembly Gathers, Here’s What to Watch For**\
 `A look at major figures who will appear during the week and what they might talk about.`\
 https://nytimes.com/2025/09/22/world/americas/un-general-assembly-highlights.html
