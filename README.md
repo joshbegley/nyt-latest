@@ -1,3 +1,7 @@
+**Sushi Is Bigger Than Ever in America. There’s One Main Reason.**\
+`Once considered rarefied and exotic in the United States, the Japanese favorite is now a staple in many places across the country.`\
+https://nytimes.com/2025/09/22/dining/america-sushi.html
+
 **Middle School Boy Accused of Catfishing Classmates in Sextortion Scheme**\
 `The child, at a school north of New York City, is accused of extorting some peers for gift cards after posing as a girl online to trick them into sending sexual pictures.`\
 https://nytimes.com/2025/09/22/nyregion/rockland-sextortion-charges.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6651926/2025/09/22/arch-manning-taunt-sam-houston-s
 **Proposed Gas Pipeline Tests New York’s Allegiance to Green Energy**\
 `The Northeast Supply Enhancement pipeline, which would deliver natural gas into the New York City area, has been shot down three times because of environmental concerns. Supporters hope the fourth time is the charm.`\
 https://nytimes.com/2025/09/22/nyregion/nese-pipeline-nyc-natural-gas.html
-
-**How to Silence Dissent, Bit by Bit Until Fear Takes Over**\
-`In China, journalism and public debate were opening up, and then a leader took over and used a series of steps to dictate speech.`\
-https://nytimes.com/2025/09/22/business/china-censorship-jimmy-kimmel.html
 

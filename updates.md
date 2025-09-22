@@ -1,3 +1,19 @@
+**Middle School Boy Accused of Catfishing Classmates in Sextortion Scheme**\
+`The child, at a school north of New York City, is accused of extorting some peers for gift cards after posing as a girl online to trick them into sending sexual pictures.`\
+https://nytimes.com/2025/09/22/nyregion/rockland-sextortion-charges.html
+
+**Heisman Trophy odds: Indiana's Fernando Mendoza enters the race with a bang**\
+`Fernando Mendoza rocketed up the Heisman Trophy odds board after Indiana's dominant win against Illinois.`\
+https://nytimes.com/athletic/6651863/2025/09/22/heisman-trophy-odds-john-mateer-fernando-mendoza/
+
+**Review: A ‘Kavalier & Clay’ Opera Doesn’t Meet Its Moment**\
+`The Metropolitan Opera opened its season with a superficial adaptation of Michael Chabon’s novel “The Amazing Adventures of Kavalier & Clay.”`\
+https://nytimes.com/2025/09/22/arts/music/kavalier-clay-met-opera-review.html
+
+**Kennedy Said to Focus on Unproven Link Between Common Painkiller and Autism**\
+`A federal report on Monday is expected to point to acetaminophen, the active ingredient in painkillers like Tylenol. But research into a possible connection has yielded mixed results.`\
+https://nytimes.com/2025/09/22/health/kennedy-autism-tylenol-trump.html
+
 **Trump’s Fed Pick Outlines Case for Slashing Interest Rates**\
 `Stephen Miran, who joined the central bank last week, said he believes rates should be around 2.5 percent, or about 2 percentage points lower than they are currently.`\
 https://nytimes.com/2025/09/22/business/trump-fed-interest-rates.html
