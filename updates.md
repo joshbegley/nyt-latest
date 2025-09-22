@@ -1,3 +1,7 @@
+**Rosenthal: As Tigers and Mets look to avoid stunning collapses, MLB’s final week should be a doozy**\
+`The Tigers are in jeopardy of blowing a 15 1/2 game AL Central lead while the Mets and their $340 million payroll could miss the playoffs. `\
+https://nytimes.com/athletic/6650826/2025/09/22/new-york-mets-detroit-tigers-mlb-final-week/
+
 **Inside Real Madrid: Vinicius Jr's anger, Ballon d'Or boycott and Bernabeu bother**\
 `Our expert writers bring you the latest on all the biggest talking points at the Spanish club`\
 https://nytimes.com/athletic/6651194/2025/09/22/real-madrid-vinicius-jr-alonso-ballondor/

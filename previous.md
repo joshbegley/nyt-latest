@@ -1,3 +1,7 @@
+**Rosenthal: As Tigers and Mets look to avoid stunning collapses, MLB’s final week should be a doozy**\
+`The Tigers are in jeopardy of blowing a 15 1/2 game AL Central lead while the Mets and their $340 million payroll could miss the playoffs. `\
+https://nytimes.com/athletic/6650826/2025/09/22/new-york-mets-detroit-tigers-mlb-final-week/
+
 **Inside Real Madrid: Vinicius Jr's anger, Ballon d'Or boycott and Bernabeu bother**\
 `Our expert writers bring you the latest on all the biggest talking points at the Spanish club`\
 https://nytimes.com/athletic/6651194/2025/09/22/real-madrid-vinicius-jr-alonso-ballondor/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6651124/2025/09/22/vikings-defense-brian-flores-kev
 **The Tom Brady conflict-of-interest calculus is so simple**\
 `NFL coaches downplayed concerns about Tom Brady being both a Raiders part-owner and a Fox broadcaster. Of course they did. Here's why.`\
 https://nytimes.com/athletic/6651139/2025/09/22/tom-brady-raiders-fox-broadcasting/
-
-**Sizing up the NFL's six 3-0 teams, from mainstays to newcomers: Sando's Pick Six**\
-`It's no surprise the Bills and Eagles are undefeated, but the Chargers and Colts have done their best to steal the spotlight.`\
-https://nytimes.com/athletic/6648790/2025/09/22/nfl-undefeated-teams-eagles-bills-chargers-bucs-49ers-colts/
 
