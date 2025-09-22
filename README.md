@@ -1,3 +1,27 @@
+**Trump’s Tariffs Are Damaging America’s Biggest Foreign Source of Screws**\
+`Taiwan has long been the top provider of screws to the United States. But its factories are struggling to survive under tariffs on steel and aluminum.`\
+https://nytimes.com/2025/09/22/business/taiwan-manufacturing-trump-tariffs.html
+
+**Quote of the Day: A Rush to Save Ancient Artifacts in Gaza Highlights All That Has Been Lost**\
+`Quotation of the Day for Monday, September 22, 2025.`\
+https://nytimes.com/2025/09/22/pageoneplus/quote-of-the-day-a-rush-to-save-ancient-artifacts-in-gaza-highlights-all-that-has-been-lost.html
+
+**Novo Nordisk’s Woes Are Slimming Denmark’s Economic Growth**\
+`Because of its size, the drugmaker has an outsize effect on the country. Now, as it sheds jobs, forecasts for Denmark’s growth are falling, too.`\
+https://nytimes.com/2025/09/22/business/novo-nordisk-denmark-economy.html
+
+**Taiwan Screw Suppliers Feel Impact of Trump’s Tariffs**\
+`Screws from Taiwan hold together countless everyday American goods. But Trump’s tariffs are threatening the island as a manufacturing leader of the tiny, yet essential, components.`\
+https://nytimes.com/video/business/100000010368290/taiwan-manufacturing-trump-tariffs-screws.html
+
+**Europe Talks Big on Gaza but Struggles to Act**\
+`Even as criticism of Israel ramps up and a growing number of countries say they’ll recognize a Palestinian state, concrete actions remain limited.`\
+https://nytimes.com/2025/09/22/world/europe/europe-eu-gaza-israel.html
+
+**Connections: Sports Edition Coach: Hints for Sept. 22, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6650758/2025/09/22/connections-sports-edition-hints-for-sept-22-2025/
+
 **Chargers channel Jim Harbaugh, show off their 'gravel in the gut' to beat Broncos**\
 `Jim Harbaugh love his pet sayings and clichés. But don't dismiss them as coach speak. In reality, they are his special sauce.`\
 https://nytimes.com/athletic/6650767/2025/09/21/chargers-beat-broncos-justin-herbert-jim-harbaugh/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6650674/2025/09/21/49ers-cardinals-mac-jones-flips-
 **Giants vs. Chiefs: Russell Wilson flounders as fans chant 'We want Dart'**\
 `The Giants quarterback went 18-for-32 for 160 yards and two interceptions in the 22-9 loss to the Chiefs on Sunday night.`\
 https://nytimes.com/athletic/6650044/2025/09/21/giants-chiefs-score-result-takeaways-russell-wilson/
-
-**How 'White House,' a trick play for a long touchdown, ignited the Bears’ first win**\
-`In a badly needed victory, a well-timed trick play provided the signature moment for Caleb Williams and Ben Johnson.`\
-https://nytimes.com/athletic/6650588/2025/09/21/caleb-williams-luther-burden-bears-flea-flicker/
-
-**Travis Kelce, Andy Reid have heated exchange on sideline vs. Giants**\
-`Reid bumped Kelce during the exchange in the first half of the "Sunday Night Football" matchup.`\
-https://nytimes.com/athletic/6650641/2025/09/21/travis-kelce-andy-reid-sideline-exchange-chiefs-giants/
-
-**Did Cowboys' defensive issues get worse against Bears? Big plays do them in again**\
-`CeeDee Lamb injured his ankle and the defense allowed five pass plays of at least 29 yards in the loss to the Bears.`\
-https://nytimes.com/athletic/6650623/2025/09/21/cowboys-lose-defense-struggles-big-plays-bears/
-
-**Bo Nix, Broncos face 'wake-up' call after squandering second-half lead vs. Chargers**\
-`The Broncos blew four second-half chances Sunday to create a winning cushion — and the culprits were vast and varied.`\
-https://nytimes.com/athletic/6650585/2025/09/21/broncos-loss-bo-nix-sean-payton-chargers/
-
-**Bears break out of funk and give Chicago fans a taste of football happiness**\
-`Caleb Williams impressed in a coming-out party for Ben Johnson's offense, which finished with 385 yards, an average of 6.8 per play.`\
-https://nytimes.com/athletic/6650523/2025/09/21/bears-cowboys-caleb-williams-ben-johnson-offense/
-
-**'This is our style of football': With stifling defense, Browns earn gutsy win vs. Packers**\
-`Cleveland's win brings hope that maybe this season of awkward transition and offensive limitation isn’t completely lost.`\
-https://nytimes.com/athletic/6650201/2025/09/21/browns-win-defense-packers/
 
