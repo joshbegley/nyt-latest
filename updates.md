@@ -1,3 +1,7 @@
+**No Corrections: Sept. 22, 2025**\
+`No corrections appeared in print on Monday, Sept. 22, 2025.`\
+https://nytimes.com/2025/09/22/pageoneplus/no-corrections-sept-22-2025.html
+
 **Analysing the fast bowlers with whom England will fight fire with fire in the Ashes**\
 `The national team's quick bowling coach Neil Killeen assesses the qualities of a battery of quicks as England prepare to tour Down Under`\
 https://nytimes.com/athletic/6644186/2025/09/22/england-fast-bowlers-ashes-australia-archer-wood/
