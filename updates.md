@@ -1,3 +1,11 @@
+**White House Denies Homan Took Bag of Cash in F.B.I. Inquiry**\
+`People familiar with an undercover F.B.I. investigation say Trump’s border czar was recorded on audio tape accepting a Cava bag with $50,000 in it last year.`\
+https://nytimes.com/2025/09/22/us/politics/homan-cash.html
+
+**Supreme Court Allows Trump to Fire F.T.C. Commissioner**\
+`The justices said they will consider overruling a landmark Supreme Court precedent that has limited the president’s ability to fire top officials at the agency.`\
+https://nytimes.com/2025/09/22/us/politics/supreme-court-ftc-commissioner-firing.html
+
 **How to watch Auburn at Texas A&M: Time, TV, streaming**\
 `Find out how to watch the Auburn Tigers play the Texas A&M Aggies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6652762/2025/09/22/auburn-vs-texas-a-m-stream-how-to-watch-sept-27/
