@@ -1,40 +1,40 @@
-**TAFC: Martinelli shows vital role of a 'finisher'. Plus: Real Madrid's Ballon d'Or boycott**\
-`Today in TAFC: The role of a 'finisher' in football after Martinelli scores late again. Plus: Why Real Madrid are boycotting the Ballon d'Or`\
-https://nytimes.com/athletic/6651104/2025/09/22/arsenal-martinelli-finisher-real-madrid-ballondor-tafc/
+**How Six World Leaders Are Confronting Climate Change**\
+`The leaders told us how they are facing a warming planet in a world where international collaboration on climate change is fraying.`\
+https://nytimes.com/2025/09/22/briefing/climate-change-world-leaders-kirk.html
 
-**Christian Horner and Red Bull reach agreement over F1 contract termination**\
-`The 51-year-old was relieved of his duties by parent company Red Bull GmbH after the 2025 British Grand Prix`\
-https://nytimes.com/athletic/6651258/2025/09/22/christian-horner-red-bull-f1-contract-agreement/
+**Map: 4.3-Magnitude Earthquake Strikes the San Francisco Bay Area**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/09/22/us/22wea-quake-tracker-san-francisco-bay-area-nytd0eby.html
 
-**Red Sox enter season's final week in the thick of a crowded AL Wild Card race**\
-`“Keep moving forward,” said Alex Bregman. “You cannot dwell on today."`\
-https://nytimes.com/athletic/6650974/2025/09/22/red-sox-wild-card-standings-postseason/
+**Filip Gustavsson extension projection: What a contract for Wild's 'clear-cut No. 1' might look like**\
+`Now that Gustavsson has proved he’s a strong starting goaltender, it’ll soon be time to get paid like one.`\
+https://nytimes.com/athletic/6644875/2025/09/22/wild-filip-gustavsson-contract-extension/
 
-**Four years in, and Brian Daboll's Giants offense has never looked worse**\
-`Maybe Daboll will be able to sprinkle some magic dust on Jaxson Dart, and everything will change when Dart takes over. We’ll find out soon.`\
-https://nytimes.com/athletic/6651050/2025/09/22/ny-giants-russell-wilson-brian-daboll-offense-chiefs/
+**Message board Monday: How fanbases of Texas Tech, Indiana and Vanderbilt feel after the weekend**\
+`What are fanbases saying about Clemson's performance, Clemson's downfall and a big weekend for some historically bad programs. `\
+https://nytimes.com/athletic/6649762/2025/09/22/message-board-monday-texas-tech-indiana-vanderbilt/
 
-**Rosenthal: As Tigers and Mets look to avoid stunning collapses, MLB’s final week should be a doozy**\
-`The Tigers are in jeopardy of blowing a 15 1/2 game AL Central lead while the Mets and their $340 million payroll could miss the playoffs. `\
-https://nytimes.com/athletic/6650826/2025/09/22/new-york-mets-detroit-tigers-mlb-final-week/
+**What we’re hearing about the Cubs' playoff discussions, including Kyle Tucker's status**\
+`Having their best hitter approaching a one-month layoff right before the playoffs is not ideal.`\
+https://nytimes.com/athletic/6650065/2025/09/22/what-were-hearing-about-the-cubs-playoff-discussions-including-kyle-tuckers-status/
 
-**Inside Real Madrid: Vinicius Jr's anger, Ballon d'Or boycott and Bernabeu bother**\
-`Our expert writers bring you the latest on all the biggest talking points at the Spanish club`\
-https://nytimes.com/athletic/6651194/2025/09/22/real-madrid-vinicius-jr-alonso-ballondor/
+**With 2 more power-conference wins, American Conference looks poised to produce Playoff team**\
+`Memphis and Tulsa scored wins over teams from the SEC and Big 12 this week, bolstering a strong start to the season for the American.`\
+https://nytimes.com/athletic/6649780/2025/09/22/american-conference-cfp-contenders-memphis-tulane-navy/
 
-**Super Typhoon Ragasa Hits the Philippines, Headed for Hong Kong**\
-`Thousands were evacuated and hundreds of flights have been canceled ahead of the major storm, equivalent in wind speed to a Category 5 hurricane.`\
-https://nytimes.com/2025/09/22/world/asia/super-typhoon-ragasa-hong-kong.html
+**NHL season previews 2025-26: Projecting each team from worst to first**\
+`The Athletic’s 2025-26 edition of the team season previews, a deep dive into what to expect from each team.`\
+https://nytimes.com/athletic/6644688/2025/09/22/nhl-season-previews-2025-26/
 
-**How Tyquan Thornton went from castoff to Chiefs savior vs. Giants**\
-`A forgotten man on the practice squad 10 months ago, Thornton was the Chiefs' WR1 on "Sunday Night Football" in the Meadowlands.`\
-https://nytimes.com/athletic/6650142/2025/09/22/tyquan-thornton-catch-chiefs-giants/
+**How the 49ers' defense overcame Nick Bosa's injury to take control of the NFC West**\
+`The walking-wounded Niners gutted out another victory, this time without their star defensive end, as a host of teammates stepped up.`\
+https://nytimes.com/athletic/6650730/2025/09/22/nick-bosa-injury-49ers-defense-cardinals/
 
-**Phillies takeaways: Alec Bohm's swing, lineup shuffling, playoff roster ruminations**\
-`Bohm is not cutting off his swing. It's allowing him to drive the ball again. The more barrels, the better.`\
-https://nytimes.com/athletic/6650263/2025/09/22/phillies-lineup-playoff-roster-alec-bohm/
+**What I’m seeing after Week 1 of Bruins training camp: Offense is hard to come by**\
+`It’s not necessarily a good thing when the fourth-line grunts carry the day.`\
+https://nytimes.com/athletic/6650536/2025/09/22/boston-bruins-training-camp-questions/
 
-**How the Bears made a statement with their 19-play touchdown drive: 'It was torture'**\
-`Late in the third quarter, the Bears took nearly 10 minutes off the clock and scored 7 points, a statement drive in the win.`\
-https://nytimes.com/athletic/6650592/2025/09/22/bears-19-play-touchdown-drive/
+**Patrick Mahomes still a man nobody wants to see in postseason**\
+`With one awful play and awesome recovery, Mahomes reminded the league that he is still the same three-time champ and all-time great.`\
+https://nytimes.com/athletic/6651012/2025/09/22/chiefs-giants-patrick-mahomes-big-plays/
 
