@@ -1,3 +1,7 @@
+**Fantasy football Week 3 takeaways: Sam Darnold delivers; Cards, Bolts suffer backfield injuries**\
+`Michael Salfino says Sam Darnold is deserving of the respect afforded a franchise QB as he shares his fantasy football thoughts for Week 3.`\
+https://nytimes.com/athletic/6631703/2025/09/22/fantasy-football-week-3-takeaways-injuries-najee-conner/
+
 **After a Mariners sweep, the Astros' 8-year reign atop the AL West is nearing an end**\
 `Sunday's 7-3 loss to Seattle left Houston in a three-game deficit with six to play. "We have to go out there and win," Carlos Correa said.`\
 https://nytimes.com/athletic/6650941/2025/09/22/mariners-sweep-astros-8-year-reign-atop-al-west-nearing-end/

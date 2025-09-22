@@ -36,5 +36,5 @@ https://nytimes.com/athletic/6647843/2025/09/22/wolverhampton-wanderers-leeds-un
 
 **Fantasy football Week 3 takeaways: Sam Darnold delivers; Cards, Bolts suffer backfield injuries**\
 `Michael Salfino says Sam Darnold is deserving of the respect afforded a franchise QB as he shares his fantasy football thoughts for Week 3.`\
-https://nytimes.com/athletic/6631703/2025/09/22/fantasy-football-week-3-takeaways-sam-darnold-delivers-cards-bolts-suffer-backfield-injuries/
+https://nytimes.com/athletic/6631703/2025/09/22/fantasy-football-week-3-takeaways-injuries-najee-conner/
 
