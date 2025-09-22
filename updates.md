@@ -1,3 +1,11 @@
+**Inside the Blue Jays’ playoff clinch celebration: ‘This year, we did it’**\
+`The Jays knocked on the door of the postseason for three days in Kansas City. After an 8-5 win Sunday, the champagne could finally flow.`\
+https://nytimes.com/athletic/6650366/2025/09/21/blue-jays-playoff-clinch-celebration/
+
+**Cyberattack Forces Brussels Airport to Cancel More Flights**\
+`The announcement signaled that delays and cancellations, which snarled traffic at major European travel hubs over the weekend, would continue into a third day.`\
+https://nytimes.com/2025/09/21/world/europe/brussels-airport-delays-europe-cyberattack.html
+
 **For the Jets, Will McDonald provides a special moment — but it only lasts a moment**\
 `Will McDonald's blocked field goal touchdown went for naught, and the Jets fell to 0-3 in Tampa Bay.`\
 https://nytimes.com/athletic/6650198/2025/09/21/new-york-jets-tampa-bay-buccaneers/

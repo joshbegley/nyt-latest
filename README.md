@@ -1,3 +1,11 @@
+**12 Emotional Hours: A Spectator Reflects on One Full Day (Without Caffeine)**\
+`Attending Charlie Kirk’s memorial involved lots of standing, worrying and waiting. But for one Colorado Springs woman, it was all worth it.`\
+https://nytimes.com/2025/09/21/us/politics/spectator-long-day.html
+
+**Needing a spark, the Commanders got two: From their backup QB and their coach**\
+`Jayden Daniels was out, so the Commanders rallied behind backup Marcus Mariota, and the indomitable Dan Quinn.`\
+https://nytimes.com/athletic/6650168/2025/09/21/marcus-mariota-commanders-dan-quinn/
+
 **Inside the Blue Jays’ playoff clinch celebration: ‘This year, we did it’**\
 `The Jays knocked on the door of the postseason for three days in Kansas City. After an 8-5 win Sunday, the champagne could finally flow.`\
 https://nytimes.com/athletic/6650366/2025/09/21/blue-jays-playoff-clinch-celebration/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6650389/2025/09/21/ny-giants-graham-gano-kicker/
 **Jordan Davis punctuated Eagles' defensive dominance with game-winning FG block**\
 `The 2022 first-round pick recently did a lot of work to get into better shape.`\
 https://nytimes.com/athletic/6649150/2025/09/21/jordan-davis-eagles-defense-rams-nfl/
-
-**Baker Mayfield says Buccaneers' win over Jets was 'personal'**\
-`Mayfield made reference to Jets defensive coordinator Steve Wilks, who was the interim head coach in Carolina was he was released.`\
-https://nytimes.com/athletic/6650271/2025/09/21/buccaneers-baker-mayfield-jets-steve-wilks-personal/
-
-**What it's like to watch tennis with Roger Federer**\
-`At the Laver Cup this week, Federer has likely spent more time courtside watching matches than he has anywhere else.`\
-https://nytimes.com/athletic/6650273/2025/09/21/what-its-like-to-watch-tennis-with-roger-federer/
 
