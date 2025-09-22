@@ -2,7 +2,7 @@
 `Few outside of the Colts' building believed it would look this good this fast, but Indy knew it had the pieces to be a threat in the AFC. `\
 https://nytimes.com/athletic/6649590/2025/09/21/indianapolis-colts-daniel-jones-undefeated-titans/
 
-**Republican Leaders And Kirk Supporters Attend Memorial**\
+**Republican Leaders and Kirk Supporters Attend Memorial**\
 `Tens of thousands of mourners packed a football stadium near Phoenix to honor Charlie Kirk.`\
 https://nytimes.com/video/us/politics/100000010412672/charlie-kirk-memorial-service.html
 

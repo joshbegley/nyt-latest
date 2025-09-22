@@ -1,3 +1,15 @@
+**Undefeated Colts, Daniel Jones keep racking up wins, reasons to believe they're for real**\
+`Few outside of the Colts' building believed it would look this good this fast, but Indy knew it had the pieces to be a threat in the AFC. `\
+https://nytimes.com/athletic/6649590/2025/09/21/indianapolis-colts-daniel-jones-undefeated-titans/
+
+**Republican Leaders And Kirk Supporters Attend Memorial**\
+`Tens of thousands of mourners packed a football stadium near Phoenix to honor Charlie Kirk.`\
+https://nytimes.com/video/us/politics/100000010412672/charlie-kirk-memorial-service.html
+
+**Kelsey Mitchell played in 6 losing seasons with the Indiana Fever. Now? She's thriving**\
+`Mitchell helped propel the Fever to a victory at the Las Vegas Aces for a 1-0 series lead.`\
+https://nytimes.com/athletic/6650458/2025/09/21/kelsey-mitchell-indiana-fever-wnba-semifinals/
+
 **12 Emotional Hours: A Spectator Reflects on One Full Day (Without Caffeine)**\
 `Attending Charlie Kirk’s memorial involved lots of standing, worrying and waiting. But for one Colorado Springs woman, it was all worth it.`\
 https://nytimes.com/2025/09/21/us/politics/spectator-long-day.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6650147/2025/09/21/dodger-details-honoring-clayton-
 **Raiders struggle in every phase of lopsided loss: 'We were no good today'**\
 `The O-line struggled and the defense had its hands full with backup QB Marcus Mariota, who filled in for the injured Jayden Daniels.`\
 https://nytimes.com/athletic/6649941/2025/09/21/raiders-lose-defense-special-teams-commanders/
-
-**Rams look like a team that's grown before Eagles prove again to have their number**\
-`Los Angeles was again in a battle with the defending champions but suffered its third loss to Philadelphia in the past calendar year.`\
-https://nytimes.com/athletic/6649792/2025/09/21/rams-loss-eagles-jordan-davis/
-
-**Giants kicker Graham Gano questionable to play vs. Chiefs**\
-`Gano headed to the bench, and punter Jamie Gillan started kicking into the net.`\
-https://nytimes.com/athletic/6650389/2025/09/21/ny-giants-graham-gano-kicker/
-
-**Jordan Davis punctuated Eagles' defensive dominance with game-winning FG block**\
-`The 2022 first-round pick recently did a lot of work to get into better shape.`\
-https://nytimes.com/athletic/6649150/2025/09/21/jordan-davis-eagles-defense-rams-nfl/
 
