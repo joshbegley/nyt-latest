@@ -1,3 +1,7 @@
+**Travis Kelce, Andy Reid have heated exchange on sideline vs. Giants**\
+`Reid bumped Kelce during the exchange in the first half of the "Sunday Night Football" matchup.`\
+https://nytimes.com/athletic/6650641/2025/09/21/travis-kelce-andy-reid-sideline-exchange-chiefs-giants/
+
 **How 'White House,' a trick play for a long touchdown, ignited the Bears’ first win**\
 `In a badly needed victory, a well-timed trick play provided the signature moment for Caleb Williams and Ben Johnson.`\
 https://nytimes.com/athletic/6650588/2025/09/21/caleb-williams-luther-burden-bears-flea-flicker/
