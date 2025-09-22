@@ -1,3 +1,11 @@
+**What Is Leucovorin, the Medicine Being Approved for Autism Treatment?**\
+`The F.D.A. announced Monday that it would change the drug’s label to reflect potential benefits in reducing autism symptoms.`\
+https://nytimes.com/2025/09/22/well/leucovorin-autism-fda.html
+
+**Chargers' Najee Harris out for season with torn Achilles**\
+`A huge opportunity now awaits Hampton, who had the best game of his career in Sunday’s win.`\
+https://nytimes.com/athletic/6653021/2025/09/22/najee-harris-injury-update-achilles-chargers/
+
 **Brock Purdy could play in Week 4; Mac Jones day to day with knee injury**\
 `The 49ers have gone 2-0 with Mac Jones in the lineup in place of Purdy.`\
 https://nytimes.com/athletic/6652970/2025/09/22/brock-purdy-injury-update-mac-jones-49ers/
