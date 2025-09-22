@@ -1,3 +1,11 @@
+**‘The View’ Hosts Criticize Trump Administration Over Kimmel**\
+`The chairman of the Federal Communications Commission has suggested that the daytime talk show should could also come under government scrutiny.`\
+https://nytimes.com/2025/09/22/business/media/the-view-trump-jimmy-kimmel.html
+
+**The Company Behind Tylenol Tries to Navigate Its Latest Crisis**\
+`Kenvue, a two-year-old spinoff from Johnson & Johnson, is confronting a public-relations nightmare as President Trump and others suggest unproven links between the pain reliever and autism.`\
+https://nytimes.com/2025/09/22/health/tylenol-autism-kenvue.html
+
 **What to Know About Painkillers, Vaccines, Genes and Autism**\
 `For decades, researchers have looked for links. Most believe the disorder springs from a complex interplay of genetics and environmental factors.`\
 https://nytimes.com/2025/09/22/health/autism-tylenol-vaccines-explainer.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/22/world/middleeast/palestinian-recognition-israel.h
 **White House Denies Homan Took Bag of Cash in F.B.I. Inquiry**\
 `People familiar with an undercover F.B.I. investigation say Trump’s border czar was recorded on audio tape accepting a Cava bag with $50,000 in it last year.`\
 https://nytimes.com/2025/09/22/us/politics/homan-cash.html
-
-**Supreme Court Allows Trump to Fire F.T.C. Commissioner**\
-`The justices said they will consider overruling a landmark Supreme Court precedent that has limited the president’s ability to fire top officials at the agency.`\
-https://nytimes.com/2025/09/22/us/politics/supreme-court-ftc-commissioner-firing.html
-
-**How to watch Auburn at Texas A&M: Time, TV, streaming**\
-`Find out how to watch the Auburn Tigers play the Texas A&M Aggies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6652762/2025/09/22/auburn-vs-texas-a-m-stream-how-to-watch-sept-27/
 
