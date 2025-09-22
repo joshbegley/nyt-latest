@@ -1,3 +1,7 @@
+**Winnipeg Jets training camp: Who's been helping their case to be an NHL player?**\
+`There are good stories to be told, even among players who will be cut.`\
+https://nytimes.com/athletic/6648998/2025/09/22/winnipeg-jets-training-camp-notebook/
+
 **These Patients Got the Cure. Then It Went Away.**\
 `Gene therapies for rare diseases are frequently developed then discarded by drug companies because they can’t afford to produce the treatment for more patients.`\
 https://nytimes.com/2025/09/22/health/gene-editing-rare-diseases-fda.html
