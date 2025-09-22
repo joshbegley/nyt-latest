@@ -1,3 +1,11 @@
+**Broncos vs. Chargers takeaways: Cameron Dicker's game-winning FG lifts L.A. to 3-0**\
+`The kicker hits a 43-yard field goal as time expires, helping the Chargers start the season 3-0 for the first time since 2002.`\
+https://nytimes.com/athletic/6647442/2025/09/21/broncos-chargers-score-result-takeaways/
+
+**Matt Shaw misses Cubs game to attend memorial service for Charlie Kirk**\
+`The night of Kirk’s death, Shaw was scratched from Chicago’s starting lineup due to unspecified personal reasons.`\
+https://nytimes.com/athletic/6650083/2025/09/21/chicago-cubs-matt-shaw-absence/
+
 **Red Wings camp thoughts: Emmitt Finnie stands out in scrimmage action**\
 `The Red Wings had a lively week of physical action, culminating in Sunday's Red-White game. Here's who stood out.`\
 https://nytimes.com/athletic/6649654/2025/09/21/red-wings-training-camp-emmitt-finnie-moritz-seider/
