@@ -1,3 +1,7 @@
+**Sabres depth chart 1.0: Roster battles, where things stand entering preseason**\
+`Here’s our first look at the lines and defensive pairs the Sabres are zeroing in on heading into the regular season.`\
+https://nytimes.com/athletic/6652115/2025/09/22/sabres-depth-chart-2025-season/
+
 **Trump’s Tax Cut Is Underwater. Can a ‘Refund Boom’ Save It?**\
 `Republicans are hoping a new name, along with larger refunds for many Americans next year, can buoy an economic agenda that polls show is unpopular.`\
 https://nytimes.com/2025/09/22/us/politics/trump-tax-cuts.html

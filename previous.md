@@ -1,3 +1,7 @@
+**Sabres depth chart 1.0: Roster battles, where things stand entering preseason**\
+`Here’s our first look at the lines and defensive pairs the Sabres are zeroing in on heading into the regular season.`\
+https://nytimes.com/athletic/6652115/2025/09/22/sabres-depth-chart-2025-season/
+
 **Trump’s Tax Cut Is Underwater. Can a ‘Refund Boom’ Save It?**\
 `Republicans are hoping a new name, along with larger refunds for many Americans next year, can buoy an economic agenda that polls show is unpopular.`\
 https://nytimes.com/2025/09/22/us/politics/trump-tax-cuts.html
@@ -36,8 +40,4 @@ https://nytimes.com/2025/09/22/arts/music/kavalier-clay-met-opera-review.html
 **Kennedy Said to Focus on Unproven Link Between Common Painkiller and Autism**\
 `A federal report on Monday is expected to point to acetaminophen, the active ingredient in painkillers like Tylenol. But research into a possible connection has yielded mixed results.`\
 https://nytimes.com/2025/09/22/health/kennedy-autism-tylenol-trump.html
-
-**Not So Naked After All**\
-`Things were looking a lot more covered up at New York Fashion Week.`\
-https://nytimes.com/2025/09/22/style/new-york-fashion-week-conservatism-trend.html
 
