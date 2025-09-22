@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6653316/2025/09/22/white-sox-vs-yankees-stream-how-
 https://nytimes.com/athletic/6653312/2025/09/22/marlins-vs-phillies-stream-how-to-watch-sept-23/
 
 **Cardinals RB James Conner to undergo season-ending foot surgery**\
-`Loss of Conner is big, but Arizona does have depth at the position.`\
+`The loss of Conner is big, but Arizona does have depth at the position.`\
 https://nytimes.com/athletic/6653246/2025/09/22/cardinals-james-conner-season-ending-foot-surgery/
 
 **What Is Leucovorin, the Medicine Being Approved for Autism Treatment?**\

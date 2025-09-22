@@ -1,3 +1,31 @@
+**Autistic People Deserve Better Than This**\
+`The Trump administration misunderstands autism and what autistic people and our families need.`\
+https://nytimes.com/2025/09/22/opinion/autism-kennedy-report.html
+
+**How to watch Tigers at Guardians: Time, TV, streaming for September 23**\
+`Find out how to watch the Detroit Tigers play the Cleveland Guardians, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6653327/2025/09/22/tigers-vs-guardians-stream-how-to-watch-sept-23/
+
+**How to watch Pirates at Reds: Time, TV, streaming for September 23**\
+`Find out how to watch the Pittsburgh Pirates play the Cincinnati Reds, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6653325/2025/09/22/pirates-vs-reds-stream-how-to-watch-sept-23/
+
+**How to watch Rays at Orioles: Time, TV, streaming for September 23**\
+`Find out how to watch the Tampa Bay Rays play the Baltimore Orioles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6653320/2025/09/22/rays-vs-orioles-stream-how-to-watch-sept-23/
+
+**How to watch White Sox at Yankees: Time, TV, streaming for September 23**\
+`Find out how to watch the Chicago White Sox play the New York Yankees, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6653316/2025/09/22/white-sox-vs-yankees-stream-how-to-watch-sept-23/
+
+**How to watch Marlins at Phillies: Time, TV, streaming for September 23**\
+`Find out how to watch the Miami Marlins play the Philadelphia Phillies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6653312/2025/09/22/marlins-vs-phillies-stream-how-to-watch-sept-23/
+
+**Cardinals RB James Conner to undergo season-ending foot surgery**\
+`Loss of Conner is big, but Arizona does have depth at the position.`\
+https://nytimes.com/athletic/6653246/2025/09/22/cardinals-james-conner-season-ending-foot-surgery/
+
 **Cardinals RB James Conner to undergo season-ending foot surgery**\
 `Conner, 30, is a big loss, but Arizona does have depth at the position.`\
 https://nytimes.com/athletic/6653246/2025/09/22/cardinals-james-conner-season-ending-foot-surgery/
