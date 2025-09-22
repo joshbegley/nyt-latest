@@ -1,3 +1,7 @@
+**What Is Leucovorin, the Medicine Being Approved for Autism Treatment?**\
+`The F.D.A. announced Monday that it would change the drug’s label to reflect potential benefits in reducing autism symptoms.`\
+https://nytimes.com/2025/09/22/well/leucovorin-autism-fda.html
+
 **Chargers' Najee Harris out for season with torn Achilles**\
 `A huge opportunity now awaits Hampton, who had the best game of his career in Sunday’s win.`\
 https://nytimes.com/athletic/6653021/2025/09/22/najee-harris-injury-update-achilles-chargers/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/22/us/politics/lindsey-halligan-trump.html
 **Compass to Buy Top Rival, Further Condensing Brokerage Industry**\
 `The proposed merger with Anywhere Real Estate would create a nationwide real estate behemoth.`\
 https://nytimes.com/2025/09/22/realestate/compass-anywhere-real-estate-deal.html
-
-**Jimmy Kimmel’s Show Is Coming Back**\
-`Also, Palestinian statehood took center stage at the U.N. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2025/09/22/briefing/jimmy-kimmel-palestinian-statehood-un.html
 
