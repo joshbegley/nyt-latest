@@ -1,3 +1,7 @@
+**No Corrections: Sept. 22, 2025**\
+`No corrections appeared in print on Monday, Sept. 22, 2025.`\
+https://nytimes.com/2025/09/22/pageoneplus/no-corrections-sept-22-2025.html
+
 **Analysing the fast bowlers with whom England will fight fire with fire in the Ashes**\
 `The national team's quick bowling coach Neil Killeen assesses the qualities of a battery of quicks as England prepare to tour Down Under`\
 https://nytimes.com/athletic/6644186/2025/09/22/england-fast-bowlers-ashes-australia-archer-wood/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6647952/2025/09/22/josh-king-fulham-recovery-silva-
 **Sunderland are doing what previously promoted clubs did not. They are competing**\
 `Regis Le Bris' side showcased their resilience by claiming a point against Aston Villa despite being reduced to 10 men in the first half`\
 https://nytimes.com/athletic/6649106/2025/09/22/sunderland-le-bris-competing-villa/
-
-**Newcastle, slow-drying paint and transitioning to a post-Isak reality**\
-`In terms of balance and brilliance, Eddie Howe's side are still scratching around as they adjust to new players and a cluttered schedule`\
-https://nytimes.com/athletic/6649113/2025/09/22/newcastle-howe-woltemade-bournemouth-attack/
 
