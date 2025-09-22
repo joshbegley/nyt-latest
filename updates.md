@@ -1,3 +1,7 @@
+**Updating the Canucks' depth chart: Roster battles, where things stand after training camp**\
+`A look at who is still in the running to make the Canucks' 23-man roster.`\
+https://nytimes.com/athletic/6650910/2025/09/22/canucks-depth-chart-roster-preseason/
+
 **MLB playoff watch: Blue Jays clinch berth, plus bracket and clinching scenarios**\
 `Plus, the Brewers clinched the NL Central for a third straight year and the Guardians and Tigers are separated by one game in the division.`\
 https://nytimes.com/athletic/6651017/2025/09/22/mlb-playoff-watch-blue-jays-clinch-berth/
