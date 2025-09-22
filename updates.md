@@ -1,3 +1,11 @@
+**MLB playoff watch: Blue Jays clinch berth, plus bracket and clinching scenarios**\
+`Plus, the Brewers clinched the NL Central for a third straight year and the Guardians and Tigers are separated by one game in the division.`\
+https://nytimes.com/athletic/6651017/2025/09/22/mlb-playoff-watch-blue-jays-clinch-berth/
+
+**The Pulse: The shocking team among the NFL’s undefeated**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6650195/2025/09/22/nfl-undefeated-teams-the-pulse/
+
 **Dominican Republic Says It Recovered Cocaine From Boat Struck by U.S.**\
 `The Dominican Republic said it was the first time it had carried out a joint operation against “narcoterrorism” in the Caribbean with the United States.`\
 https://nytimes.com/2025/09/22/us/dominican-republic-cocaine-speedboat-us-navy.html
