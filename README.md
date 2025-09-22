@@ -1,3 +1,7 @@
+**Dembele, Bonmati named 2025 Ballon d'Or winners**\
+`Bonmati claimed the women's award for the third year in a row, while it is the first time Dembele has received the trophy. `\
+https://nytimes.com/athletic/6652160/2025/09/22/2025-ballon-dor-winners-dembele-bonmati/
+
 **Retired Lobbyist in Federal Custody in Shooting at ABC Affiliate**\
 `Prosecutors say that the suspect, a 64-year-old Sacramento man, had a note critical of Trump administration officials and a separate calendar reminder to “Do the Next Scary Thing.”`\
 https://nytimes.com/2025/09/22/us/sacramento-california-tv-station-shooting.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2025/09/22/world/united-nations-assembly/protesters-cal
 **Flights Are Diverted From Copenhagen Airport After Drone Sightings**\
 `The police said the airport was closed after two or three large drones were spotted in the area.`\
 https://nytimes.com/2025/09/22/world/europe/copenhagen-airport-closed-drone.html
-
-**Joe Dumars emphasizing Zion Williamson's 'responsibility' ahead of new season**\
-`The New Orleans Pelicans' executive vice president of basketball operations will measure Williamson's growth by more than statistics.`\
-https://nytimes.com/athletic/6652690/2025/09/22/joe-dumars-zion-williamson-pelicans-nba-season/
 
