@@ -1,3 +1,19 @@
+**After a Mariners sweep, the Astros' 8-year reign atop the AL West is nearing an end**\
+`Sunday's 7-3 loss to Seattle left Houston in a three-game deficit with six to play. "We have to go out there and win," Carlos Correa said.`\
+https://nytimes.com/athletic/6650941/2025/09/22/mariners-sweep-astros-8-year-reign-atop-al-west-nearing-end/
+
+**Silver hair. Magic shots that leave Roger Federer spellbound. Carlos Alcaraz is rolling along**\
+`At the Laver Cup in San Francisco, Carlos Alcaraz didn't know the Silicon Valley. He's bigger than it. This is the world according to him.`\
+https://nytimes.com/athletic/6650609/2025/09/22/carlos-alcaraz-laver-cup-world-no-1/
+
+**Palestinians Need More Than the Gesture of Statehood**\
+`Recognition of the State of Palestine must be accompanied by holding Israel accountable for its actions.`\
+https://nytimes.com/2025/09/22/opinion/palestinian-statehood-united-nations.html
+
+**The New York Times in Print for Monday, Sep. 22, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/22/todays-new-york-times
+
 **No Corrections: Sept. 22, 2025**\
 `No corrections appeared in print on Monday, Sept. 22, 2025.`\
 https://nytimes.com/2025/09/22/pageoneplus/no-corrections-sept-22-2025.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6647843/2025/09/22/wolverhampton-wanderers-leeds-un
 **Fantasy football Week 3 takeaways: Sam Darnold delivers; Cards, Bolts suffer backfield injuries**\
 `Michael Salfino says Sam Darnold is deserving of the respect afforded a franchise QB as he shares his fantasy football thoughts for Week 3.`\
 https://nytimes.com/athletic/6631703/2025/09/22/fantasy-football-week-3-takeaways-sam-darnold-delivers-cards-bolts-suffer-backfield-injuries/
-
-**Dissecting Maresca's bad week: Three games, one point and many poor decisions**\
-`The Italian made big decisions in all three games last week and the concern will be he got many of them wrong`\
-https://nytimes.com/athletic/6648326/2025/09/22/enzo-maresca-chelsea-substitutions/
-
-**Real Madrid's Ballon d'Or boycott is a story of politics and paranoia**\
-`The Spanish giants are once again not expected to attend Monday's ceremony, the biggest awards night in the game`\
-https://nytimes.com/athletic/6644203/2025/09/22/real-madrid-ballon-dor-vinicius-mbappe/
-
-**Josh King looked ready to crumple at Fulham. Instead, he flourished**\
-`The teenager was initially distraught after gifting Brentford their opener, but his display thereafter spoke volumes for his character`\
-https://nytimes.com/athletic/6647952/2025/09/22/josh-king-fulham-recovery-silva-iwobi/
-
-**Sunderland are doing what previously promoted clubs did not. They are competing**\
-`Regis Le Bris' side showcased their resilience by claiming a point against Aston Villa despite being reduced to 10 men in the first half`\
-https://nytimes.com/athletic/6649106/2025/09/22/sunderland-le-bris-competing-villa/
 

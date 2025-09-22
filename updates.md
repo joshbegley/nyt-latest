@@ -1,3 +1,19 @@
+**After a Mariners sweep, the Astros' 8-year reign atop the AL West is nearing an end**\
+`Sunday's 7-3 loss to Seattle left Houston in a three-game deficit with six to play. "We have to go out there and win," Carlos Correa said.`\
+https://nytimes.com/athletic/6650941/2025/09/22/mariners-sweep-astros-8-year-reign-atop-al-west-nearing-end/
+
+**Silver hair. Magic shots that leave Roger Federer spellbound. Carlos Alcaraz is rolling along**\
+`At the Laver Cup in San Francisco, Carlos Alcaraz didn't know the Silicon Valley. He's bigger than it. This is the world according to him.`\
+https://nytimes.com/athletic/6650609/2025/09/22/carlos-alcaraz-laver-cup-world-no-1/
+
+**Palestinians Need More Than the Gesture of Statehood**\
+`Recognition of the State of Palestine must be accompanied by holding Israel accountable for its actions.`\
+https://nytimes.com/2025/09/22/opinion/palestinian-statehood-united-nations.html
+
+**The New York Times in Print for Monday, Sep. 22, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/22/todays-new-york-times
+
 **No Corrections: Sept. 22, 2025**\
 `No corrections appeared in print on Monday, Sept. 22, 2025.`\
 https://nytimes.com/2025/09/22/pageoneplus/no-corrections-sept-22-2025.html
