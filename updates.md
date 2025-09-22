@@ -1,3 +1,7 @@
+**Giants kicker Graham Gano questionable to play vs. Chiefs**\
+`Gano headed to the bench, and punter Jamie Gillan started kicking into the net.`\
+https://nytimes.com/athletic/6650389/2025/09/21/ny-giants-graham-gano-kicker/
+
 **Jordan Davis punctuated Eagles' defensive dominance with game-winning FG block**\
 `The 2022 first-round pick recently did a lot of work to get into better shape.`\
 https://nytimes.com/athletic/6649150/2025/09/21/jordan-davis-eagles-defense-rams-nfl/
