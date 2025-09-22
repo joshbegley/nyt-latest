@@ -1,3 +1,7 @@
+**Sushi Is Bigger Than Ever in America. There’s One Main Reason.**\
+`Once considered rarefied and exotic in the United States, the Japanese favorite is now a staple in many places across the country.`\
+https://nytimes.com/2025/09/22/dining/america-sushi.html
+
 **Middle School Boy Accused of Catfishing Classmates in Sextortion Scheme**\
 `The child, at a school north of New York City, is accused of extorting some peers for gift cards after posing as a girl online to trick them into sending sexual pictures.`\
 https://nytimes.com/2025/09/22/nyregion/rockland-sextortion-charges.html
