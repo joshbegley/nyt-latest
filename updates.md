@@ -1,3 +1,19 @@
+**Zubeen Garg, Singer Who Charmed India With a Bollywood Hit, Dies at 52**\
+`Mr. Garg sang in dozens of languages and his music blended folk, pop and rock. His hit song “Ya Ali” was featured in the 2006 film “Gangster.”`\
+https://nytimes.com/2025/09/22/world/asia/zubeen-garg-dead.html
+
+**Ohio State's defense is still elite. Here's how Matt Patricia changed it**\
+`Ohio State enters its Big Ten opener at Washington feeling good about its new-look defense under Patricia. What's changed?`\
+https://nytimes.com/athletic/6649704/2025/09/22/ohio-state-defense-matt-patricia-washington/
+
+**Rod Moore savors his Michigan return after 18 months: 'It’s been such a long haul'**\
+`Moore, a senior safety and Michigan co-captain, returned Saturday at Nebraska in his first game appearance in 621 days.`\
+https://nytimes.com/athletic/6649421/2025/09/22/rod-moore-michigan-injury-return-nebraska/
+
+**Inside Newcastle Q&A: Chris Waugh answers your questions**\
+`Newcastle are proving tough to score against but are also finding goals hard to come by. Next up, their Carabao Cup defence begins...`\
+https://nytimes.com/athletic/6651200/2025/09/22/inside-newcastle-qa-chris-waugh-answers-your-questions/
+
 **Inside Barcelona: Julian Alvarez targeted, Camp Nou latest, why Marcus Rashford was dropped...**\
 `Our Barca writers bring you the latest news on all the big talking points at the La Liga champions right now`\
 https://nytimes.com/athletic/6651241/2025/09/22/barcelona-rashford-camp-nou-julian-alvarez/
