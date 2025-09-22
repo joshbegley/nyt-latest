@@ -1,3 +1,11 @@
+**Can't win the close one? Mac Jones flips the narrative on 49ers' final drive**\
+`With Jauan Jennings missing from the lineup, Jones targeted either Christian McCaffrey or Ricky Pearsall on 26 of his 38 pass attempts.`\
+https://nytimes.com/athletic/6650674/2025/09/21/49ers-cardinals-mac-jones-flips-narrative/
+
+**Giants vs. Chiefs: Russell Wilson flounders as fans chant 'We want Dart'**\
+`After Wilson's second pick, fans at MetLife Stadium could be heard chanting, "We want Dart."`\
+https://nytimes.com/athletic/6650044/2025/09/21/giants-chiefs-score-result-takeaways-russell-wilson/
+
 **Travis Kelce, Andy Reid have heated exchange on sideline vs. Giants**\
 `Reid bumped Kelce during the exchange in the first half of the "Sunday Night Football" matchup.`\
 https://nytimes.com/athletic/6650641/2025/09/21/travis-kelce-andy-reid-sideline-exchange-chiefs-giants/

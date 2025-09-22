@@ -1,3 +1,11 @@
+**Chargers channel Jim Harbaugh, show off their 'gravel in the gut' to beat Broncos**\
+`Jim Harbaugh love his pet sayings and clichés. But don't dismiss them as coach speak. In reality, they are his special sauce.`\
+https://nytimes.com/athletic/6650767/2025/09/21/chargers-beat-broncos-justin-herbert-jim-harbaugh/
+
+**Chiefs beat Giants to avoid first 0-3 start since 2011: Takeaways**\
+`The Chiefs earn their first win of the season, beating the winless Giants 22-9 to avoid their first 0-3 start since 2011.`\
+https://nytimes.com/athletic/6650518/2025/09/21/chiefs-first-win-snf-takeaways/
+
 **Can't win the close one? Mac Jones flips the narrative on 49ers' final drive**\
 `With Jauan Jennings missing from the lineup, Jones targeted either Christian McCaffrey or Ricky Pearsall on 26 of his 38 pass attempts.`\
 https://nytimes.com/athletic/6650674/2025/09/21/49ers-cardinals-mac-jones-flips-narrative/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6650523/2025/09/21/bears-cowboys-caleb-williams-ben
 **'This is our style of football': With stifling defense, Browns earn gutsy win vs. Packers**\
 `Cleveland's win brings hope that maybe this season of awkward transition and offensive limitation isn’t completely lost.`\
 https://nytimes.com/athletic/6650201/2025/09/21/browns-win-defense-packers/
-
-**Seahawks dreaming bigger after dominating Saints and snapping home skid**\
-`The Seahawks are starting to look like they have no shortage of weapons. "It feels good to dominate somebody," Uchenna Nwosu said.`\
-https://nytimes.com/athletic/6650504/2025/09/21/seahawks-saints-week-3-blowout/
-
-**Brother of Jeremiah Smith, 3-star safety Angelo, commits to Ohio State**\
-`Angelo Smith is the No. 38 ranked safety in his class and will likely slot in as a corner back for the Buckeyes.`\
-https://nytimes.com/athletic/6650574/2025/09/21/jeremiah-angelo-smith-commit-ohio-state/
 
