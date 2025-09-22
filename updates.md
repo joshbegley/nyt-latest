@@ -1,3 +1,15 @@
+**7 Ways the Candidates for New Jersey Governor Would Differ on Day 1**\
+`The race has been heavily influenced by national politics. But in a debate on Sunday, the candidates, Jack Ciattarelli and Representative Mikie Sherrill, also outlined starkly different positions on statewide issues.`\
+https://nytimes.com/2025/09/22/nyregion/new-jersey-governors-race-issues.html
+
+**Mamdani Pushed to Cut 1,300 Officers From a ‘Racist’ N.Y.P.D. in 2022**\
+`Zohran Mamdani has said that critical remarks he made in 2020 about the police do not reflect his views. But as a state assemblyman in 2022, he still held anti-police positions.`\
+https://nytimes.com/2025/09/22/nyregion/mamdani-nypd-officers-police.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/09/22/crosswords/spelling-bee-forum.html
+
 **Kim Jong-un Open to Talks if U.S. Drops Demand to Denuclearize**\
 `The North Korean leader’s comments came days after President Trump said he would travel to South Korea in late October for a regional summit.`\
 https://nytimes.com/2025/09/22/world/asia/kim-north-korea-trump-talks.html
