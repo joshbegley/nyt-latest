@@ -1,3 +1,7 @@
+**Isaiah Rodgers produces all-time defensive performance as Vikings maul Bengals**\
+`The veteran cornerback returned an interception and a fumble for touchdowns and forced two fumbles against the Bengals. In the first half.`\
+https://nytimes.com/athletic/6650067/2025/09/21/isaiah-rodgers-vikings-bengals-week-3/
+
 **Trump Remembers Kirk as a Martyr While Attacking Political Opponents**\
 `President Trump oscillated between honoring Charlie Kirk’s life and promoting his own political agenda in his remarks at the conservative activist’s memorial in Arizona.`\
 https://nytimes.com/2025/09/21/us/elections/trump-charlie-kirk-memorial-service.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6650248/2025/09/21/nationals-vs-braves-stream-how-t
 **The Hand That Rocks The Gavel**\
 `Immigration courthouses were once mostly off limits to ICE. Not anymore.`\
 https://nytimes.com/2025/09/21/podcasts/the-hand-that-rocks-the-gavel.html
-
-**Broncos vs. Chargers takeaways: Cameron Dicker's game-winning FG lifts L.A. to 3-0**\
-`The kicker hits a 43-yard field goal as time expires, helping the Chargers start the season 3-0 for the first time since 2002.`\
-https://nytimes.com/athletic/6647442/2025/09/21/broncos-chargers-score-result-takeaways/
 
