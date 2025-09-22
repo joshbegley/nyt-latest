@@ -1,3 +1,11 @@
+**Commanders QB Jayden Daniels remains day to day with knee sprain**\
+`Backup QB Marcus Mariota helped lead win over Raiders in Week 3, but coach Dan Quinn says that doesn't impact his decision on Daniels.`\
+https://nytimes.com/athletic/6652823/2025/09/22/jayden-daniels-commanders-day-to-day/
+
+**Keegan Bradley finds it isn't easy to put this Ryder Cup decision behind him**\
+`Bradley says his Ryder Cup captaincy is a "bigger cause, to help our guys get ready to play and play at the highest level."`\
+https://nytimes.com/athletic/6652842/2025/09/22/keegan-bradley-ryder-cup-captain-player/
+
 **Dembele, Bonmati named 2025 Ballon d'Or winners**\
 `Bonmati claimed the women's award for the third year in a row, while it is the first time Dembele has received the trophy. `\
 https://nytimes.com/athletic/6652160/2025/09/22/2025-ballon-dor-winners-dembele-bonmati/
@@ -29,8 +37,4 @@ https://nytimes.com/live/2025/09/22/world/united-nations-assembly/palestinians-h
 **Protesters calling for solidarity with Palestinians clash with the police in Milan.**\
 `By Elisabetta Povoledo`\
 https://nytimes.com/live/2025/09/22/world/united-nations-assembly/protesters-calling-for-solidarity-with-palestinians-clash-with-the-police-in-milan
-
-**Flights Are Diverted From Copenhagen Airport After Drone Sightings**\
-`The police said the airport was closed after two or three large drones were spotted in the area.`\
-https://nytimes.com/2025/09/22/world/europe/copenhagen-airport-closed-drone.html
 
