@@ -1,3 +1,7 @@
+**Joe Dumars emphasizing Zion Williamson's 'responsibility' ahead of new season**\
+`The New Orleans Pelicans' executive vice president of basketball operations will measure Williamson's growth by more than statistics.`\
+https://nytimes.com/athletic/6652690/2025/09/22/joe-dumars-zion-williamson-pelicans-nba-season/
+
 **The Incredible Shrinking Men’s Shirt**\
 `Men’s button-ups are becoming brazenly more abbreviated, sometime creeping up above the belt line.`\
 https://nytimes.com/2025/09/22/style/mens-shirts-shorter.html
@@ -29,12 +33,4 @@ https://nytimes.com/2025/09/22/health/autism-tylenol-vaccines-explained.html
 **As a New Year Begins, a Rabbi Reflects on High Tension Among Jews**\
 `“I never would have imagined the splinters inside of the Jewish community,” said Rabbi Elan Babchuck, whose work includes research on polarization.`\
 https://nytimes.com/2025/09/22/us/rosh-hashanah-high-holidays.html
-
-**Rhule wants to talk football when it comes to Raiola, not Mahomes**\
-`Raiola has fashioned his style after the Chiefs' quarterback, from his movements to his haircut to his throwing motion and warm-up routine.`\
-https://nytimes.com/athletic/6652707/2025/09/22/matt-rhule-mahomes-dylan-raiola/
-
-**A Birthday Cake Made Out of Newspaper**\
-`Using just a few basic craft supplies, the artist Nonamey constructs a dessert that looks good enough to eat.`\
-https://nytimes.com/2025/09/22/t-magazine/nonamey-newspaper-birthday-cake.html
 

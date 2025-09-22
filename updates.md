@@ -1,3 +1,7 @@
+**Joe Dumars emphasizing Zion Williamson's 'responsibility' ahead of new season**\
+`The New Orleans Pelicans' executive vice president of basketball operations will measure Williamson's growth by more than statistics.`\
+https://nytimes.com/athletic/6652690/2025/09/22/joe-dumars-zion-williamson-pelicans-nba-season/
+
 **The Incredible Shrinking Men’s Shirt**\
 `Men’s button-ups are becoming brazenly more abbreviated, sometime creeping up above the belt line.`\
 https://nytimes.com/2025/09/22/style/mens-shirts-shorter.html
