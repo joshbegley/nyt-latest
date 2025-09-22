@@ -1,3 +1,7 @@
+**Hamas releases a hostage video on the same day as the Palestinian statehood conference.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2025/09/22/world/united-nations-assembly/hamas-releases-a-hostage-video-on-the-same-day-as-the-palestinian-statehood-conference
+
 **Man Who Shined a Laser at Marine One With Trump Aboard Is Arrested, U.S. Says**\
 `Jacob Winkler aimed a laser pointer at the presidential helicopter as it took off from the White House on Saturday, the authorities said. He was charged with a felony.`\
 https://nytimes.com/2025/09/22/us/laser-marine-one-trump-arrest.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6653081/2025/09/22/acc-football-nine-game-conferenc
 **NASA Introduces New Astronaut Candidates**\
 `NASA announced 10 new candidates to begin training as astronauts as part of a plan to send more astronauts to new space stations, the moon and maybe Mars.`\
 https://nytimes.com/video/science/space/100000010414185/nasa-introduces-10-new-astronaut-candidates.html
-
-**Trump’s Charlie Kirk Eulogy Divided America**\
-`Trump’s first presidential eulogy made no effort to unite the country, which is the traditional goal of a presidential eulogy.`\
-https://nytimes.com/2025/09/22/opinion/culture/trump-charlie-kirk-funeral.html
 
