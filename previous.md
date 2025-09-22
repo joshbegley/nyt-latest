@@ -1,3 +1,27 @@
+**Jaguars rising, Texans stumbling as AFC South rivals are headed in opposite directions**\
+`The Jaguars are off to their best start since 2022 while the Texans' 0-3 mark is their worst start since 2018.`\
+https://nytimes.com/athletic/6650082/2025/09/21/jaguars-beat-texans-afc-south/
+
+**A Patriotic Dress Code for a Political Memorial**\
+`A service for Charlie Kirk called for attendees to wear red, white and blue.`\
+https://nytimes.com/2025/09/21/style/a-patriotic-dress-code-for-a-political-memorial.html
+
+**Bengals' historical loss to Vikings concerning — but not because of the final score**\
+`Turnovers were the main cause of Sunday's disaster, but a total lack of running attack is most ominous for the Bengals' future.`\
+https://nytimes.com/athletic/6650122/2025/09/21/bengals-loss-vikings-running-game-jake-browning/
+
+**49ers vs. Cardinals takeaways: SF edges Arizona on game-winning field goal**\
+`Quarterback Mac Jones led the way as the 49ers edged the Arizona Cardinals 16-15 on Sunday at Levi's Stadium.`\
+https://nytimes.com/athletic/6649668/2025/09/21/49ers-cardinals-score-result-takeaways-2/
+
+**How to watch Nationals at Braves: Time, TV, streaming for September 22**\
+`Find out how to watch the Washington Nationals play the Atlanta Braves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6650248/2025/09/21/nationals-vs-braves-stream-how-to-watch-sept-22/
+
+**The Hand That Rocks The Gavel**\
+`Immigration courthouses were once mostly off limits to ICE. Not anymore.`\
+https://nytimes.com/2025/09/21/podcasts/the-hand-that-rocks-the-gavel.html
+
 **Broncos vs. Chargers takeaways: Cameron Dicker's game-winning FG lifts L.A. to 3-0**\
 `The kicker hits a 43-yard field goal as time expires, helping the Chargers start the season 3-0 for the first time since 2002.`\
 https://nytimes.com/athletic/6647442/2025/09/21/broncos-chargers-score-result-takeaways/
@@ -13,30 +37,4 @@ https://nytimes.com/athletic/6649654/2025/09/21/red-wings-training-camp-emmitt-f
 **Cowboys vs. Bears takeaways: Caleb Williams leads Chicago to first win**\
 `Williams had a career-high four TD passes, each to a different target, to go along with 298 passing yards.`\
 https://nytimes.com/athletic/6649547/2025/09/21/cowboys-bears-score-result-takeaways/
-
-**Rebuilding Patriots fumble away a game they could've won against the Steelers**\
-`The Patriots turned the ball over five times and lost, even on a day when Drake Maye threw for 268 yards and the defense played well.`\
-https://nytimes.com/athletic/6649869/2025/09/21/steelers-patriots-fumbles-drake-maye-turnovers/
-
-**Dissecting Packers' late collapse in a stunning 13-10 loss against the Browns**\
-`The Packers blew a double-digit lead with less than four minutes remaining in a stunning 13-10 loss to the Browns on Sunday in Cleveland.`\
-https://nytimes.com/athletic/6649988/2025/09/21/packers-browns-jordan-love-brandon-mcmanus/
-
-**Shutting out the Falcons, avoiding 0-3 start a 'big deal' for Panthers and their defense**\
-`"I was excited to see that zero stay up on that board at the end,” LB Christian Rozeboom said after Carolina picked up its first victory.`\
-https://nytimes.com/athletic/6649982/2025/09/21/panthers-defense-shutout-falcons-first-win/
-
-**Indiana Fever make WNBA semifinals statement with 1-0 series lead at Las Vegas Aces**\
-`Aces star A'ja Wilson was just 6-of-22 shooting after being announced MVP, and Las Vegas couldn't stop the Fever.`\
-https://nytimes.com/athletic/6650045/2025/09/21/indiana-fever-las-vegas-aces-wnba-playoffs-game-1/
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>Oregon-Penn State. Alabama-Georgia. LSU-Ole Miss. &#8230; UCLA-Northwestern.</p>
-<p>Week 5 should be a good one. Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/6650070/2025/09/21/submit-a-question-for-stewart-mandels-college-football-mailbag-316/
-
-**Saints vs. Seahawks takeaways: Seattle dominates 44-13, New Orleans takes step back**\
-`Seattle didn’t punt until the fourth quarter.`\
-https://nytimes.com/athletic/6649980/2025/09/21/saints-seahawks-score-result-takeaways/
 
