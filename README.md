@@ -1,3 +1,7 @@
+**Cardinals RB James Conner to undergo season-ending foot surgery**\
+`Conner, 30, is a big loss, but Arizona does have depth at the position.`\
+https://nytimes.com/athletic/6653246/2025/09/22/cardinals-james-conner-season-ending-foot-surgery/
+
 **What Is Leucovorin, the Medicine Being Approved for Autism Treatment?**\
 `The F.D.A. announced Monday that it would change the drug’s label to reflect potential benefits in reducing autism symptoms.`\
 https://nytimes.com/2025/09/22/well/leucovorin-autism-fda.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/22/world/middleeast/unga-palestinian-state.html
 **Trump’s Pick to Replace Ousted U.S. Attorney Lacks Prosecutorial Experience**\
 `Lindsey Halligan worked as a personal lawyer for President Trump and then led the effort to scrutinize the Smithsonian for “improper ideology.”`\
 https://nytimes.com/2025/09/22/us/politics/lindsey-halligan-trump.html
-
-**Compass to Buy Top Rival, Further Condensing Brokerage Industry**\
-`The proposed merger with Anywhere Real Estate would create a nationwide real estate behemoth.`\
-https://nytimes.com/2025/09/22/realestate/compass-anywhere-real-estate-deal.html
 
