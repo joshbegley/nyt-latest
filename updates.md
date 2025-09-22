@@ -1,3 +1,7 @@
+**Jordan Davis punctuated Eagles' defensive dominance with game-winning FG block**\
+`The 2022 first-round pick recently did a lot of work to get into better shape.`\
+https://nytimes.com/athletic/6649150/2025/09/21/jordan-davis-eagles-defense-rams-nfl/
+
 **Baker Mayfield says Buccaneers' win over Jets was 'personal'**\
 `Mayfield made reference to Jets defensive coordinator Steve Wilks, who was the interim head coach in Carolina was he was released.`\
 https://nytimes.com/athletic/6650271/2025/09/21/buccaneers-baker-mayfield-jets-steve-wilks-personal/

@@ -1,3 +1,7 @@
+**Jordan Davis punctuated Eagles' defensive dominance with game-winning FG block**\
+`The 2022 first-round pick recently did a lot of work to get into better shape.`\
+https://nytimes.com/athletic/6649150/2025/09/21/jordan-davis-eagles-defense-rams-nfl/
+
 **Baker Mayfield says Buccaneers' win over Jets was 'personal'**\
 `Mayfield made reference to Jets defensive coordinator Steve Wilks, who was the interim head coach in Carolina was he was released.`\
 https://nytimes.com/athletic/6650271/2025/09/21/buccaneers-baker-mayfield-jets-steve-wilks-personal/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/21/style/a-patriotic-dress-code-for-a-political-memo
 **Bengals' historical loss to Vikings concerning — but not because of the final score**\
 `Turnovers were the main cause of Sunday's disaster, but a total lack of running attack is most ominous for the Bengals' future.`\
 https://nytimes.com/athletic/6650122/2025/09/21/bengals-loss-vikings-running-game-jake-browning/
-
-**49ers vs. Cardinals takeaways: SF edges Arizona on game-winning field goal**\
-`Quarterback Mac Jones led the way as the 49ers edged the Arizona Cardinals 16-15 on Sunday at Levi's Stadium.`\
-https://nytimes.com/athletic/6649668/2025/09/21/49ers-cardinals-score-result-takeaways-2/
 
