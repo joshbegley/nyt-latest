@@ -1,3 +1,11 @@
+**Rockets veteran guard Fred VanVleet suffers torn ACL: Source**\
+`The nine-year veteran signed a two-year, $50 million deal this offseason to stay in Houston.`\
+https://nytimes.com/athletic/6652853/2025/09/22/fred-vanvleet-acl-injury-rockets/
+
+**Trump’s Efforts to Punish His Enemies Are Ramping Up**\
+`Some rank-and-file prosecutors are growing alarmed about pressure to bring indictments even when evidence is weak.`\
+https://nytimes.com/2025/09/22/us/politics/trump-justice-department-enemies.html
+
 **Cardinals RB James Conner to undergo season-ending foot surgery**\
 `The loss of Conner is big, but Arizona does have depth at the position.`\
 https://nytimes.com/athletic/6653246/2025/09/22/cardinals-james-conner-season-ending-foot-surgery/
