@@ -1,3 +1,11 @@
+**Trump’s Tax Cut Is Underwater. Can a ‘Refund Boom’ Save It?**\
+`Republicans are hoping a new name, along with larger refunds for many Americans next year, can buoy an economic agenda that polls show is unpopular.`\
+https://nytimes.com/2025/09/22/us/politics/trump-tax-cuts.html
+
+**Scoop City: Risers and fallers after Week 3**\
+`How teams are trending after the Patriots, Texans and Falcons underwhelmed, while the Eagles and Bears impressed`\
+https://nytimes.com/athletic/6652123/2025/09/22/nfl-risers-fallers-week-3-colts-browns-eagles-scoop-city/
+
 **Longtime Patriots, Texans executive Bobby Grier dies at 82**\
 `Grier spent nearly 20 years as a coach and executive with the New England Patriots.`\
 https://nytimes.com/athletic/6652067/2025/09/22/patriots-texans-bobby-grier-dies/
@@ -32,12 +40,4 @@ https://nytimes.com/2025/09/22/health/kennedy-autism-tylenol-trump.html
 **Not So Naked After All**\
 `Things were looking a lot more covered up at New York Fashion Week.`\
 https://nytimes.com/2025/09/22/style/new-york-fashion-week-conservatism-trend.html
-
-**NFL Week 4 odds, spreads: Don't even look, Saints fans**\
-`Odds are up for every Week 4 game, with an eye-popping 16.5-point spread favoring Buffalo against the hapless Saints.`\
-https://nytimes.com/athletic/6651869/2025/09/22/nfl-week-4-odds-spreads-bills-chiefs-ravens/
-
-**‘Mexodus’ Tells an Underground Railroad Story You’ve Probably Never Heard**\
-`In this new hip-hop musical from Nygel D. Robinson and Brian Quijada, audiences hear a tale of reverse migration: Slaves leaving the United States for Mexico.`\
-https://nytimes.com/2025/09/22/theater/mexodus-underground-railroad-musical.html
 
