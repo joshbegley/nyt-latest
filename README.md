@@ -1,3 +1,7 @@
+**U.S. allies’ recognition of a Palestinian state puts them in opposition to the White House.**\
+`By Luke Broadwater`\
+https://nytimes.com/live/2025/09/22/world/united-nations-assembly/us-allies-recognition-of-a-palestinian-state-puts-them-in-opposition-to-the-white-house
+
 **As the U.S. Pulls Back From the U.N., Rivals Stand to Gain**\
 `We explain how Russia, China, Iran and other countries are trying to strengthen their influence as America retreats.`\
 https://nytimes.com/2025/09/22/briefing/un-china-russia-palestine-typhoon.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/22/us/north-carolina-republicans-crime-bill-train-st
 **Villa president of football operations Monchi set to leave club**\
 `Monchi joined Villa in 2023 from Sevilla after a spell with Roma and two stints with Sevilla in La Liga.`\
 https://nytimes.com/athletic/6652984/2025/09/22/monchi-aston-villa-leaves-club/
-
-**How Dembele won the Ballon d’Or: New role, learning to love tap-ins, and not ‘cheating’**\
-`Ousmane Dembele was named the winner of the 2025 Ballon d'Or on Monday evening. This is how he has developed to earn that honour`\
-https://nytimes.com/athletic/6648802/2025/09/22/ousmane-dembele-ballon-dor-background/
 
