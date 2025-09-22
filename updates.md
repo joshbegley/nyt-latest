@@ -1,3 +1,11 @@
+**Chargers channel Jim Harbaugh, show off their 'gravel in the gut' to beat Broncos**\
+`Jim Harbaugh love his pet sayings and clichés. But don't dismiss them as coach speak. In reality, they are his special sauce.`\
+https://nytimes.com/athletic/6650767/2025/09/21/chargers-beat-broncos-justin-herbert-jim-harbaugh/
+
+**Chiefs beat Giants to avoid first 0-3 start since 2011: Takeaways**\
+`The Chiefs earn their first win of the season, beating the winless Giants 22-9 to avoid their first 0-3 start since 2011.`\
+https://nytimes.com/athletic/6650518/2025/09/21/chiefs-first-win-snf-takeaways/
+
 **Can't win the close one? Mac Jones flips the narrative on 49ers' final drive**\
 `With Jauan Jennings missing from the lineup, Jones targeted either Christian McCaffrey or Ricky Pearsall on 26 of his 38 pass attempts.`\
 https://nytimes.com/athletic/6650674/2025/09/21/49ers-cardinals-mac-jones-flips-narrative/

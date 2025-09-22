@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6650767/2025/09/21/chargers-beat-broncos-justin-herbert-jim-harbaugh/
 
 **Chiefs beat Giants to avoid first 0-3 start since 2011: Takeaways**\
-`The Chiefs earn their first win of the season, beating the winless Giants 22-9 to avoid their first 0-3 start since 2011.`\
+`The Chiefs earn their first victory of the season, beating the winless Giants 22-9.`\
 https://nytimes.com/athletic/6650518/2025/09/21/chiefs-first-win-snf-takeaways/
 
 **Can't win the close one? Mac Jones flips the narrative on 49ers' final drive**\
@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6650518/2025/09/21/chiefs-first-win-snf-takeaways/
 https://nytimes.com/athletic/6650674/2025/09/21/49ers-cardinals-mac-jones-flips-narrative/
 
 **Giants vs. Chiefs: Russell Wilson flounders as fans chant 'We want Dart'**\
-`After Wilson's second pick, fans at MetLife Stadium could be heard chanting, "We want Dart."`\
+`The Giants quarterback went 18-for-32 for 160 yards and two interceptions in the 22-9 loss to the Chiefs on Sunday night.`\
 https://nytimes.com/athletic/6650044/2025/09/21/giants-chiefs-score-result-takeaways-russell-wilson/
 
 **How 'White House,' a trick play for a long touchdown, ignited the Bears’ first win**\
