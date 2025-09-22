@@ -1,3 +1,15 @@
+**7 Ways the Candidates for New Jersey Governor Would Differ on Day 1**\
+`The race has been heavily influenced by national politics. But in a debate on Sunday, the candidates, Jack Ciattarelli and Representative Mikie Sherrill, also outlined starkly different positions on statewide issues.`\
+https://nytimes.com/2025/09/22/nyregion/new-jersey-governors-race-issues.html
+
+**Mamdani Pushed to Cut 1,300 Officers From a ‘Racist’ N.Y.P.D. in 2022**\
+`Zohran Mamdani has said that critical remarks he made in 2020 about the police do not reflect his views. But as a state assemblyman in 2022, he still held anti-police positions.`\
+https://nytimes.com/2025/09/22/nyregion/mamdani-nypd-officers-police.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/09/22/crosswords/spelling-bee-forum.html
+
 **Kim Jong-un Open to Talks if U.S. Drops Demand to Denuclearize**\
 `The North Korean leader’s comments came days after President Trump said he would travel to South Korea in late October for a regional summit.`\
 https://nytimes.com/2025/09/22/world/asia/kim-north-korea-trump-talks.html
@@ -25,16 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/09/22/todays-new-york-times
 **No Corrections: Sept. 22, 2025**\
 `No corrections appeared in print on Monday, Sept. 22, 2025.`\
 https://nytimes.com/2025/09/22/pageoneplus/no-corrections-sept-22-2025.html
-
-**Analysing the fast bowlers with whom England will fight fire with fire in the Ashes**\
-`The national team's quick bowling coach Neil Killeen assesses the qualities of a battery of quicks as England prepare to tour Down Under`\
-https://nytimes.com/athletic/6644186/2025/09/22/england-fast-bowlers-ashes-australia-archer-wood/
-
-**Why China Might Give Up TikTok**\
-`Beijing may be buying itself room to negotiate on the matters it cares about most: tariffs, technology and Taiwan.`\
-https://nytimes.com/2025/09/22/briefing/china-tiktok-palestine-statehood.html
-
-**Are Wolves set to go full circle under Fosun after latest dire display?**\
-`Next summer will mark 10 years at Molineux for the club's Chinese owners - and it looks like bringing a return to the Championship too`\
-https://nytimes.com/athletic/6647545/2025/09/22/wolves-leeds-fosun-championship/
 
