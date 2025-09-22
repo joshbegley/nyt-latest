@@ -1,3 +1,11 @@
+**These Patients Got the Cure. Then It Went Away.**\
+`Gene therapies for rare diseases are frequently developed then discarded by drug companies because they can’t afford to produce the treatment for more patients.`\
+https://nytimes.com/2025/09/22/health/gene-editing-rare-diseases-fda.html
+
+**Cowboys face Packers and Micah Parsons in Week 4: Share your thoughts in our quick survey**\
+`The Cowboys and Packers play Sunday at AT&T Stadium in the return of Micah Parsons.`\
+https://nytimes.com/athletic/6651675/2025/09/22/cowboys-survey-micah-parsons-packers/
+
 **Gavi to undergo minor knee surgery, set for one month out**\
 `Gavi has not featured since August due to a meniscus injury and will undergo an arthroscopic examination on Tuesday.`\
 https://nytimes.com/athletic/6651416/2025/09/22/gavi-injury-surgery-barcelona-update/

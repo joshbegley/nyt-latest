@@ -1,3 +1,11 @@
+**These Patients Got the Cure. Then It Went Away.**\
+`Gene therapies for rare diseases are frequently developed then discarded by drug companies because they can’t afford to produce the treatment for more patients.`\
+https://nytimes.com/2025/09/22/health/gene-editing-rare-diseases-fda.html
+
+**Cowboys face Packers and Micah Parsons in Week 4: Share your thoughts in our quick survey**\
+`The Cowboys and Packers play Sunday at AT&T Stadium in the return of Micah Parsons.`\
+https://nytimes.com/athletic/6651675/2025/09/22/cowboys-survey-micah-parsons-packers/
+
 **Gavi to undergo minor knee surgery, set for one month out**\
 `Gavi has not featured since August due to a meniscus injury and will undergo an arthroscopic examination on Tuesday.`\
 https://nytimes.com/athletic/6651416/2025/09/22/gavi-injury-surgery-barcelona-update/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/22/movies/the-lowdown-plus-7-things-to-watch-on-tv-t
 **After injuries mar Week 3, add these fantasy football RBs now**\
 `KC Joyner assesses several backfields to find which RBs you should prioritize adding this week.`\
 https://nytimes.com/athletic/6651636/2025/09/22/fantasy-football-running-back-add-week-3-injuries/
-
-**Do You Recognize These Books From Their Plot Descriptions?**\
-`Some novels stick with you long after you’ve read them. See how many of these classics for young readers you can identify from a one-sentence synopsis.`\
-https://nytimes.com/interactive/2025/09/22/books/review/young-readers-plots.html
-
-**Cardinals' Marvin Harrison Jr.: 'Not doing my job at a high-enough level'**\
-`Harrison had three receptions for 44 yards in Sunday's loss to San Francisco, one week after he had two catches for 27 yards vs. Carolina.`\
-https://nytimes.com/athletic/6651570/2025/09/22/cardinals-marvin-harrison-jr-comments/
 
