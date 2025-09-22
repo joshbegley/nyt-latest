@@ -1,3 +1,7 @@
+**What we learned in NFL Week 3: Caleb Williams impresses, Colts continue surprise start**\
+`Word to the wise: Attempt a last-second field goal in the NFL at your own peril.`\
+https://nytimes.com/athletic/6650200/2025/09/22/bears-caleb-williams-colts-daniel-jones/
+
 **How to watch TCU at Arizona State: Time, TV, streaming**\
 `Find out how to watch the TCU Horned Frogs play the Arizona State Sun Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6651228/2025/09/22/tcu-vs-arizona-state-stream-how-to-watch-sept-26/
