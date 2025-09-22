@@ -1,3 +1,7 @@
+**Egypt’s President Pardons Imprisoned Arab Spring Activist**\
+`Alaa Abd El Fattah, pardoned after spending most of the past 12 years imprisoned, gained prominence through his biting, visionary commentary on Egypt’s 2011 Arab Spring revolution.`\
+https://nytimes.com/video/world/middleeast/100000010415267/egypt-alaa-abd-el-fattah-pardon.html
+
 **World Leaders Recognize Palestinian State, in a Challenge to U.S. and Israel**\
 `At a meeting ahead of the U.N. General Assembly, France and other U.S. allies made official a breach with Washington that has been years in the making.`\
 https://nytimes.com/2025/09/22/world/middleeast/unga-palestinian-state.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/22/opinion/culture/trump-charlie-kirk-funeral.html
 **N.Y.C. Watchdog Agency Is Investigating Deaths in Police Custody**\
 `Nine people have died this year, about half the toll at this time last year. Advocacy and legal groups say the city is still not doing enough to ensure the safety of its detainees.`\
 https://nytimes.com/2025/09/22/nyregion/doi-police-custody-deaths-investigation.html
-
-**U.S. allies’ recognition of a Palestinian state puts them in opposition to the White House.**\
-`By Luke Broadwater`\
-https://nytimes.com/live/2025/09/22/world/united-nations-assembly/us-allies-recognition-of-a-palestinian-state-puts-them-in-opposition-to-the-white-house
 
