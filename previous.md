@@ -1,3 +1,19 @@
+**How to watch TCU at Arizona State: Time, TV, streaming**\
+`Find out how to watch the TCU Horned Frogs play the Arizona State Sun Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6651228/2025/09/22/tcu-vs-arizona-state-stream-how-to-watch-sept-26/
+
+**How to watch Florida State at Virginia: Time, TV, streaming**\
+`Find out how to watch the Florida State Seminoles play the Virginia Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6651226/2025/09/22/florida-state-vs-virginia-stream-how-to-watch-sept-26/
+
+**Reuniting the Great Works of the Patron Saint of Artists**\
+`A new exhibition in Italy puts the spotlight on Fra Angelico, whose reputation for piety vied with his undeniable artistic talents.`\
+https://nytimes.com/2025/09/22/arts/design/fra-angelico-florence-italy.html
+
+**Ravens' young defensive players have to grow up fast vs. high-powered Lions**\
+`With two of its top pass rushers out with injuries, Baltimore will have to rely on some of its rookie defenders against Detroit. `\
+https://nytimes.com/athletic/6647469/2025/09/22/ravens-defense-lions-offense-monday-night-football/
+
 **The New York Times International Edition in Print for Tuesday, Sep. 23, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/09/22/todays-new-york-times-international-edition
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6651191/2025/09/22/seahawks-vs-cardinals-stream-how
 **How to watch Cardinals at Giants: Time, TV, streaming for September 22**\
 `Find out how to watch the St. Louis Cardinals play the San Francisco Giants, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6651186/2025/09/22/cardinals-vs-giants-stream-how-to-watch-sept-22/
-
-**Knicks' latest roster moves, Mike Brown's rotations and more**\
-`Knicks questions on the latest roster moves, possible trades, expectations and more are answered in this latest mailbag.`\
-https://nytimes.com/athletic/6641792/2025/09/22/knicks-mike-brown-malcolm-brogdan-landry-shamet-roster/
-
-**Trump Appointees Roll Back Enforcement of Fair Housing Laws**\
-`Interviews and internal documents show that signature civil rights protections in housing are being dismissed as ideologically driven and D.E.I. in disguise.`\
-https://nytimes.com/2025/09/22/realestate/trump-fair-housing-laws.html
-
-**4 Takeaways From the Charlie Kirk Memorial**\
-`High-profile conservative speakers, including President Trump, addressed a packed stadium in Arizona. Erika Kirk forgave her husband’s killer.`\
-https://nytimes.com/2025/09/22/us/charlie-kirk-memorial-takeaways.html
-
-**The Dangers of ‘Consequence Culture’**\
-`Where are the true believers in free speech untainted by the stain of politics?`\
-https://nytimes.com/2025/09/22/opinion/consequence-culture-kimmel-kirk.html
 
