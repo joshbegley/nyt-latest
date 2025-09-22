@@ -1,3 +1,7 @@
+**TAFC: Martinelli shows vital role of a 'finisher'. Plus: Real Madrid's Ballon d'Or boycott**\
+`Today in TAFC: The role of a 'finisher' in football after Martinelli scores late again. Plus: Why Real Madrid are boycotting the Ballon d'Or`\
+https://nytimes.com/athletic/6651104/2025/09/22/arsenal-martinelli-finisher-real-madrid-ballondor-tafc/
+
 **Christian Horner and Red Bull reach agreement over F1 contract termination**\
 `The 51-year-old was relieved of his duties by parent company Red Bull GmbH after the 2025 British Grand Prix`\
 https://nytimes.com/athletic/6651258/2025/09/22/christian-horner-red-bull-f1-contract-agreement/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6650263/2025/09/22/phillies-lineup-playoff-roster-a
 **How the Bears made a statement with their 19-play touchdown drive: 'It was torture'**\
 `Late in the third quarter, the Bears took nearly 10 minutes off the clock and scored 7 points, a statement drive in the win.`\
 https://nytimes.com/athletic/6650592/2025/09/22/bears-19-play-touchdown-drive/
-
-**Lions at Ravens: A real prop for Lamar Jackson, fake props for Joe Buck and MNF broadcast**\
-`Will Lamar Jackson continue shining in prime time? Will we see that "Ride the Float" commercial way too many times?`\
-https://nytimes.com/athletic/6645352/2025/09/22/lions-ravens-lamar-jackson-props-monday-night-football-how-to-watch/
 

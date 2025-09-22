@@ -1,3 +1,11 @@
+**Christian Horner and Red Bull reach agreement over F1 contract termination**\
+`The 51-year-old was relieved of his duties by parent company Red Bull GmbH after the 2025 British Grand Prix`\
+https://nytimes.com/athletic/6651258/2025/09/22/christian-horner-red-bull-f1-contract-agreement/
+
+**Red Sox enter season's final week in the thick of a crowded AL Wild Card race**\
+`“Keep moving forward,” said Alex Bregman. “You cannot dwell on today."`\
+https://nytimes.com/athletic/6650974/2025/09/22/red-sox-wild-card-standings-postseason/
+
 **Four years in, and Brian Daboll's Giants offense has never looked worse**\
 `Maybe Daboll will be able to sprinkle some magic dust on Jaxson Dart, and everything will change when Dart takes over. We’ll find out soon.`\
 https://nytimes.com/athletic/6651050/2025/09/22/ny-giants-russell-wilson-brian-daboll-offense-chiefs/
