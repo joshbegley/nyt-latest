@@ -1,3 +1,11 @@
+**Trump’s Tax Cut Is Underwater. Can a ‘Refund Boom’ Save It?**\
+`Republicans are hoping a new name, along with larger refunds for many Americans next year, can buoy an economic agenda that polls show is unpopular.`\
+https://nytimes.com/2025/09/22/us/politics/trump-tax-cuts.html
+
+**Scoop City: Risers and fallers after Week 3**\
+`How teams are trending after the Patriots, Texans and Falcons underwhelmed, while the Eagles and Bears impressed`\
+https://nytimes.com/athletic/6652123/2025/09/22/nfl-risers-fallers-week-3-colts-browns-eagles-scoop-city/
+
 **Longtime Patriots, Texans executive Bobby Grier dies at 82**\
 `Grier spent nearly 20 years as a coach and executive with the New England Patriots.`\
 https://nytimes.com/athletic/6652067/2025/09/22/patriots-texans-bobby-grier-dies/
