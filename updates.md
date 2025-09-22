@@ -1,3 +1,7 @@
+**Four years in, and Brian Daboll's Giants offense has never looked worse**\
+`Maybe Daboll will be able to sprinkle some magic dust on Jaxson Dart, and everything will change when Dart takes over. We’ll find out soon.`\
+https://nytimes.com/athletic/6651050/2025/09/22/ny-giants-russell-wilson-brian-daboll-offense-chiefs/
+
 **Rosenthal: As Tigers and Mets look to avoid stunning collapses, MLB’s final week should be a doozy**\
 `The Tigers are in jeopardy of blowing a 15 1/2 game AL Central lead while the Mets and their $340 million payroll could miss the playoffs. `\
 https://nytimes.com/athletic/6650826/2025/09/22/new-york-mets-detroit-tigers-mlb-final-week/

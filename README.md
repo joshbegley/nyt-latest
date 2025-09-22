@@ -1,3 +1,11 @@
+**Christian Horner and Red Bull reach agreement over F1 contract termination**\
+`The 51-year-old was relieved of his duties by parent company Red Bull GmbH after the 2025 British Grand Prix`\
+https://nytimes.com/athletic/6651258/2025/09/22/christian-horner-red-bull-f1-contract-agreement/
+
+**Red Sox enter season's final week in the thick of a crowded AL Wild Card race**\
+`“Keep moving forward,” said Alex Bregman. “You cannot dwell on today."`\
+https://nytimes.com/athletic/6650974/2025/09/22/red-sox-wild-card-standings-postseason/
+
 **Four years in, and Brian Daboll's Giants offense has never looked worse**\
 `Maybe Daboll will be able to sprinkle some magic dust on Jaxson Dart, and everything will change when Dart takes over. We’ll find out soon.`\
 https://nytimes.com/athletic/6651050/2025/09/22/ny-giants-russell-wilson-brian-daboll-offense-chiefs/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6650592/2025/09/22/bears-19-play-touchdown-drive/
 **Lions at Ravens: A real prop for Lamar Jackson, fake props for Joe Buck and MNF broadcast**\
 `Will Lamar Jackson continue shining in prime time? Will we see that "Ride the Float" commercial way too many times?`\
 https://nytimes.com/athletic/6645352/2025/09/22/lions-ravens-lamar-jackson-props-monday-night-football-how-to-watch/
-
-**The Steelers' defense carries a giant asterisk, and it cuts both ways**\
-`Sunday's takeaway binge in Foxboro slowed a concerning trend for Pittsburgh's defense, but it's hardly a sustainable approach.`\
-https://nytimes.com/athletic/6651143/2025/09/22/steelers-defense-decline-patriots-turnovers/
-
-**Defense carried the Vikings on Sunday, which has become the norm under Brian Flores**\
-`Kevin O'Connell's work with quarterbacks gets plenty of attention, but Flores' unit has had an outsized impact on winning.`\
-https://nytimes.com/athletic/6651124/2025/09/22/vikings-defense-brian-flores-kevin-oconnell/
 
