@@ -1,3 +1,7 @@
+**As the U.S. Pulls Back From the U.N., Rivals Stand to Gain**\
+`We explain how Russia, China, Iran and other countries are trying to strengthen their influence as America retreats.`\
+https://nytimes.com/2025/09/22/briefing/un-china-russia-palestine-typhoon.html
+
 **Four N.Y. Prison Officers Plead Guilty to Manslaughter in Taped Beating**\
 `Robert Brooks, an inmate of Marcy prison, was forced onto an infirmary examination table and kicked and punched to death. Four officers who rejected plea deals will face trial beginning Oct. 6.`\
 https://nytimes.com/2025/09/22/nyregion/marcy-prison-manslaughter-pleas.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6652984/2025/09/22/monchi-aston-villa-leaves-club/
 **How Dembele won the Ballon d’Or: New role, learning to love tap-ins, and not ‘cheating’**\
 `Ousmane Dembele was named the winner of the 2025 Ballon d'Or on Monday evening. This is how he has developed to earn that honour`\
 https://nytimes.com/athletic/6648802/2025/09/22/ousmane-dembele-ballon-dor-background/
-
-**Palestinians hope their state won’t remain just ‘ink on paper.’**\
-`By Fatima AbdulKarim`\
-https://nytimes.com/live/2025/09/22/world/united-nations-assembly/palestinians-hope-their-state-wont-remain-just-ink-on-paper
 

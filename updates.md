@@ -1,3 +1,15 @@
+**Four N.Y. Prison Officers Plead Guilty to Manslaughter in Taped Beating**\
+`Robert Brooks, an inmate of Marcy prison, was forced onto an infirmary examination table and kicked and punched to death. Four officers who rejected plea deals will face trial beginning Oct. 6.`\
+https://nytimes.com/2025/09/22/nyregion/marcy-prison-manslaughter-pleas.html
+
+**Commanders QB Jayden Daniels remains day to day with knee sprain**\
+`Backup QB Marcus Mariota helped lead win over Raiders in Week 3, but coach Dan Quinn says that doesn't impact his decision on Daniels.`\
+https://nytimes.com/athletic/6652823/2025/09/22/jayden-daniels-commanders-day-to-day/
+
+**Keegan Bradley finds it isn't easy to put this Ryder Cup decision behind him**\
+`Bradley says his Ryder Cup captaincy is a "bigger cause, to help our guys get ready to play and play at the highest level."`\
+https://nytimes.com/athletic/6652842/2025/09/22/keegan-bradley-ryder-cup-captain-player/
+
 **Dembele, Bonmati named 2025 Ballon d'Or winners**\
 `Bonmati claimed the women's award for the third year in a row, while it is the first time Dembele has received the trophy. `\
 https://nytimes.com/athletic/6652160/2025/09/22/2025-ballon-dor-winners-dembele-bonmati/
