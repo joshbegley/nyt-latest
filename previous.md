@@ -1,3 +1,15 @@
+**Palestinians hope their state won’t remain just ‘ink on paper.’**\
+`By Fatima AbdulKarim`\
+https://nytimes.com/live/2025/09/22/world/united-nations-assembly/palestinians-hope-their-state-wont-remain-just-ink-on-paper
+
+**Protesters calling for solidarity with Palestinians clash with the police in Milan.**\
+`By Elisabetta Povoledo`\
+https://nytimes.com/live/2025/09/22/world/united-nations-assembly/protesters-calling-for-solidarity-with-palestinians-clash-with-the-police-in-milan
+
+**Flights Are Diverted From Copenhagen Airport After Drone Sightings**\
+`The police said the airport was closed after two or three large drones were spotted in the area.`\
+https://nytimes.com/2025/09/22/world/europe/copenhagen-airport-closed-drone.html
+
 **Joe Dumars emphasizing Zion Williamson's 'responsibility' ahead of new season**\
 `The New Orleans Pelicans' executive vice president of basketball operations will measure Williamson's growth by more than statistics.`\
 https://nytimes.com/athletic/6652690/2025/09/22/joe-dumars-zion-williamson-pelicans-nba-season/
@@ -21,16 +33,4 @@ https://nytimes.com/athletic/6652783/2025/09/22/tampa-bay-rays-sale-approval/
 **‘The View’ Hosts Criticize Trump Administration Over Kimmel**\
 `The chairman of the Federal Communications Commission has suggested that the daytime talk show should could also come under government scrutiny.`\
 https://nytimes.com/2025/09/22/business/media/the-view-trump-jimmy-kimmel.html
-
-**The Company Behind Tylenol Tries to Navigate Its Latest Crisis**\
-`Kenvue, a two-year-old spinoff from Johnson & Johnson, is confronting a public-relations nightmare as President Trump and others suggest unproven links between the pain reliever and autism.`\
-https://nytimes.com/2025/09/22/health/tylenol-autism-kenvue.html
-
-**What to Know About Painkillers, Vaccines, Genes and Autism**\
-`For decades, researchers have looked for links. Most believe the disorder springs from a complex interplay of genetics and environmental factors.`\
-https://nytimes.com/2025/09/22/health/autism-tylenol-vaccines-explained.html
-
-**As a New Year Begins, a Rabbi Reflects on High Tension Among Jews**\
-`“I never would have imagined the splinters inside of the Jewish community,” said Rabbi Elan Babchuck, whose work includes research on polarization.`\
-https://nytimes.com/2025/09/22/us/rosh-hashanah-high-holidays.html
 

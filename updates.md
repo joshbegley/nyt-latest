@@ -1,3 +1,15 @@
+**Palestinians hope their state won’t remain just ‘ink on paper.’**\
+`By Fatima AbdulKarim`\
+https://nytimes.com/live/2025/09/22/world/united-nations-assembly/palestinians-hope-their-state-wont-remain-just-ink-on-paper
+
+**Protesters calling for solidarity with Palestinians clash with the police in Milan.**\
+`By Elisabetta Povoledo`\
+https://nytimes.com/live/2025/09/22/world/united-nations-assembly/protesters-calling-for-solidarity-with-palestinians-clash-with-the-police-in-milan
+
+**Flights Are Diverted From Copenhagen Airport After Drone Sightings**\
+`The police said the airport was closed after two or three large drones were spotted in the area.`\
+https://nytimes.com/2025/09/22/world/europe/copenhagen-airport-closed-drone.html
+
 **Joe Dumars emphasizing Zion Williamson's 'responsibility' ahead of new season**\
 `The New Orleans Pelicans' executive vice president of basketball operations will measure Williamson's growth by more than statistics.`\
 https://nytimes.com/athletic/6652690/2025/09/22/joe-dumars-zion-williamson-pelicans-nba-season/
