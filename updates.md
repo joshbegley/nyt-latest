@@ -1,3 +1,7 @@
+**Hamas releases a hostage video on the same day as the Palestinian statehood conference.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2025/09/22/world/united-nations-assembly/hamas-releases-a-hostage-video-on-the-same-day-as-the-palestinian-statehood-conference
+
 **Man Who Shined a Laser at Marine One With Trump Aboard Is Arrested, U.S. Says**\
 `Jacob Winkler aimed a laser pointer at the presidential helicopter as it took off from the White House on Saturday, the authorities said. He was charged with a felony.`\
 https://nytimes.com/2025/09/22/us/laser-marine-one-trump-arrest.html
