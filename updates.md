@@ -1,3 +1,19 @@
+**For Arab Nations With Ties to Israel, Attacks on Qatar and Gaza City Raise Anxiety**\
+`The Middle Eastern states closest to Israel see the attack on Hamas officials in Qatar and the invasion of Gaza City as warning signs of potential threats to their own security.`\
+https://nytimes.com/2025/09/22/world/middleeast/arab-israel-conflict-regional-palestinians.html
+
+**Where do the Dodgers' pitching pieces fit in October?**\
+`The Dodgers are boasting as much high-quality rotation depth as they have entering October in quite some time.`\
+https://nytimes.com/athletic/6650800/2025/09/22/dodgers-pitching-october-playoffs/
+
+**Hillary Clinton Sees a Dangerous Moment for Women’s Rights, and Democracy**\
+`With her rallying cry for gender equality turning 30 this year, Mrs. Clinton says President Trump and autocratic leaders abroad are steadily dismantling decades of progress.`\
+https://nytimes.com/2025/09/22/us/politics/hillary-clinton-womens-rights-trump.html
+
+**Map: 4.3-Magnitude Earthquake Strikes the San Francisco Bay Area**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/09/22/us/earthquake-san-francisco-tracker.html
+
 **Long-delayed trial pitting family of Tyler Skaggs against Los Angeles Angels gets underway**\
 `It is rare for MLB teams to see their dirty laundry aired in court. The Angels are about to become an exception to that rule. `\
 https://nytimes.com/athletic/6649617/2025/09/22/angels-tyler-skaggs-trial-primer-mike-trout/
