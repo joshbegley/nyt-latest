@@ -1,3 +1,7 @@
+**Bears break out of funk and give Chicago fans a taste of football happiness**\
+`Caleb Williams shined in a coming-out party for Ben Johnson's offense, which finished with 385 yards, an average of 6.8 per play.`\
+https://nytimes.com/athletic/6650523/2025/09/21/bears-cowboys-caleb-williams-ben-johnson-offense/
+
 **'This is our style of football': With stifling defense, Browns earn gutsy win vs. Packers**\
 `Cleveland's win brings hope that maybe this season of awkward transition and offensive limitation isn’t completely lost.`\
 https://nytimes.com/athletic/6650201/2025/09/21/browns-win-defense-packers/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010412672/charlie-kirk-memorial-serv
 **Kelsey Mitchell played in 6 losing seasons with the Indiana Fever. Now? She's thriving**\
 `Mitchell helped propel the Fever to a victory at the Las Vegas Aces for a 1-0 series lead.`\
 https://nytimes.com/athletic/6650458/2025/09/21/kelsey-mitchell-indiana-fever-wnba-semifinals/
-
-**12 Emotional Hours: A Spectator Reflects on One Full Day (Without Caffeine)**\
-`Attending Charlie Kirk’s memorial involved lots of standing, worrying and waiting. But for one Colorado Springs woman, it was all worth it.`\
-https://nytimes.com/2025/09/21/us/politics/spectator-long-day.html
 
