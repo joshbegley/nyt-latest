@@ -1,3 +1,7 @@
+**U.S. allies’ recognition of a Palestinian state puts them in opposition to the White House.**\
+`By Luke Broadwater`\
+https://nytimes.com/live/2025/09/22/world/united-nations-assembly/us-allies-recognition-of-a-palestinian-state-puts-them-in-opposition-to-the-white-house
+
 **As the U.S. Pulls Back From the U.N., Rivals Stand to Gain**\
 `We explain how Russia, China, Iran and other countries are trying to strengthen their influence as America retreats.`\
 https://nytimes.com/2025/09/22/briefing/un-china-russia-palestine-typhoon.html
