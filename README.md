@@ -1,3 +1,7 @@
+**U.S.-Run TikTok to License Algorithm, White House Says**\
+`The change is part of a deal to bring TikTok under U.S. ownership to avert a looming ban.`\
+https://nytimes.com/2025/09/22/us/politics/tiktok-deal-algorithm-trump.html
+
 **Syracuse fined by ACC for faking injuries vs. Clemson**\
 `Two Syracuse linemen both went to the ground in the fourth quarter at a pivotal moment, drawing the attention of ACC officials. `\
 https://nytimes.com/athletic/6651816/2025/09/22/syracuse-fined-faking-injuries-clemson-upset/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/22/t-magazine/jess-shadbolt-lunch.html
 **Winnipeg Jets training camp: Who's been helping their case to be an NHL player?**\
 `There are good stories to be told, even among players who will be cut.`\
 https://nytimes.com/athletic/6648998/2025/09/22/winnipeg-jets-training-camp-notebook/
-
-**These Patients Got the Cure. Then It Went Away.**\
-`Gene therapies for rare diseases are frequently developed then discarded by drug companies because they can’t afford to produce the treatment for more patients.`\
-https://nytimes.com/2025/09/22/health/gene-editing-rare-diseases-fda.html
 
