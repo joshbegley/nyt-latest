@@ -1,3 +1,7 @@
+**Gavi to undergo minor knee surgery, set for one month out**\
+`Gavi has not featured since August due to a meniscus injury and will undergo an arthroscopic examination on Tuesday.`\
+https://nytimes.com/athletic/6651416/2025/09/22/gavi-injury-surgery-barcelona-update/
+
 **Two Accused of Draining Accounts of Couple Who Disappeared From Mansion**\
 `JuanJuan Zwang and Peishuan Fan came from China three years ago to live in a $3.9 million home on Long Island’s North Shore. Then, they were gone — and their money began to vanish, too.`\
 https://nytimes.com/2025/09/22/nyregion/long-island-couple-disappeared-fraud-arraignment.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/09/22/books/review/young-readers-plots.html
 **Cardinals' Marvin Harrison Jr.: 'Not doing my job at a high-enough level'**\
 `Harrison had three receptions for 44 yards in Sunday's loss to San Francisco, one week after he had two catches for 27 yards vs. Carolina.`\
 https://nytimes.com/athletic/6651570/2025/09/22/cardinals-marvin-harrison-jr-comments/
-
-**Putin Proposes One More Year of Nuclear Caps With U.S.**\
-`Mr. Putin said Russia didn’t want to provoke a strategic arms race with the United States.`\
-https://nytimes.com/2025/09/22/world/europe/putin-trump-start-nuclear-treaty.html
 
