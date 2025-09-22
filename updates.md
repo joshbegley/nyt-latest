@@ -1,3 +1,19 @@
+**Guardiola, 'anti-football' and a Plan B few saw coming at City**\
+`City adopted a reactive strategy at Arsenal that their manager would once have regarded as a surrender to secure a point`\
+https://nytimes.com/athletic/6649220/2025/09/22/pep-guardiola-manchester-city-low-block/
+
+**Remembering Matt Beard, the 'special' man who helped transform English women's football**\
+`Women's football in England is in shock after the death of former Liverpool manager Matt Beard`\
+https://nytimes.com/athletic/6649204/2025/09/22/matt-beard-obituary-womens-football-impact/
+
+**New-look Arsenal are still deciding who they are. There is little room for error**\
+`Manager's greater options mean big decisions over who makes his starting line-up and he changes things in-game`\
+https://nytimes.com/athletic/6649493/2025/09/22/arsenal-mikel-arteta-man-city/
+
+**We need to talk about Aston Villa...**\
+`This is a team on their knees, far removed from the days of running eventual Champions League winners PSG close in April's quarter-finals`\
+https://nytimes.com/athletic/6648963/2025/09/22/aston-villa-unai-emery-problems/
+
 **Trump’s Tariffs Are Damaging America’s Biggest Foreign Source of Screws**\
 `Taiwan has long been the top provider of screws to the United States. But its factories are struggling to survive under tariffs on steel and aluminum.`\
 https://nytimes.com/2025/09/22/business/taiwan-manufacturing-trump-tariffs.html
