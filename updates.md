@@ -1,3 +1,7 @@
+**Bo Nix, Broncos face 'wake-up' call after squandering second-half lead vs. Chargers**\
+`The Broncos blew four second-half chances Sunday to create a winning cushion — and the culprits were vast and varied.`\
+https://nytimes.com/athletic/6650585/2025/09/21/broncos-loss-bo-nix-sean-payton-chargers/
+
 **Bears break out of funk and give Chicago fans a taste of football happiness**\
 `Caleb Williams shined in a coming-out party for Ben Johnson's offense, which finished with 385 yards, an average of 6.8 per play.`\
 https://nytimes.com/athletic/6650523/2025/09/21/bears-cowboys-caleb-williams-ben-johnson-offense/
