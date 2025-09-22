@@ -1,3 +1,15 @@
+**Seahawks dreaming bigger after dominating Saints and snapping home skid**\
+`The Seahawks are starting to look like they have no shortage of weapons. "It feels good to dominate somebody," Uchenna Nwosu said.`\
+https://nytimes.com/athletic/6650504/2025/09/21/seahawks-saints-week-3-blowout/
+
+**Brother of Jeremiah Smith, 3-star safety Angelo, commits to Ohio State**\
+`Angelo Smith is the No. 38 ranked safety in his class and will likely slot in as a corner back for the Buckeyes.`\
+https://nytimes.com/athletic/6650574/2025/09/21/jeremiah-angelo-smith-commit-ohio-state/
+
+**Giants takeaways: Bryce Eldridge looks like Stretch Junior in debut at first base**\
+`Eldridge made the defensive play of Sunday's game, snagging a line drive and throwing across the diamond for a double play in a 3-1 win.`\
+https://nytimes.com/athletic/6650404/2025/09/21/giants-takeaways-bryce-eldridge-debut-first-base/
+
 **For the Jets, Will McDonald provides a special moment — but it only lasts a moment**\
 `McDonald's blocked field goal touchdown went for naught, and the Jets fell to 0-3 in Tampa Bay.`\
 https://nytimes.com/athletic/6650198/2025/09/21/new-york-jets-tampa-bay-buccaneers/
