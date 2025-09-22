@@ -1,3 +1,7 @@
+**Kim Jong-un Open to Talks if U.S. Drops Demand to Denuclearize**\
+`The North Korean leader’s comments came days after President Trump said he would travel to South Korea in late October for a regional summit.`\
+https://nytimes.com/2025/09/22/world/asia/kim-north-korea-trump-talks.html
+
 **Word of the Day: monolith**\
 `This word has appeared in 80 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/09/22/learning/word-of-the-day-monolith.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/22/briefing/china-tiktok-palestine-statehood.html
 **Are Wolves set to go full circle under Fosun after latest dire display?**\
 `Next summer will mark 10 years at Molineux for the club's Chinese owners - and it looks like bringing a return to the Championship too`\
 https://nytimes.com/athletic/6647545/2025/09/22/wolves-leeds-fosun-championship/
-
-**How Noah Okafor showed he can be the difference-maker for Leeds United**\
-`Noah Okafor may not be the new Raphinha but the Swiss international showed plenty of promise against Wolverhampton Wanderers`\
-https://nytimes.com/athletic/6647843/2025/09/22/wolverhampton-wanderers-leeds-united-noah-okafor/
 

@@ -1,3 +1,7 @@
+**Kim Jong-un Open to Talks if U.S. Drops Demand to Denuclearize**\
+`The North Korean leader’s comments came days after President Trump said he would travel to South Korea in late October for a regional summit.`\
+https://nytimes.com/2025/09/22/world/asia/kim-north-korea-trump-talks.html
+
 **Word of the Day: monolith**\
 `This word has appeared in 80 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/09/22/learning/word-of-the-day-monolith.html
