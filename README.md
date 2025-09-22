@@ -1,3 +1,7 @@
+**Giants kicker Graham Gano questionable to play vs. Chiefs**\
+`Gano headed to the bench, and punter Jamie Gillan started kicking into the net.`\
+https://nytimes.com/athletic/6650389/2025/09/21/ny-giants-graham-gano-kicker/
+
 **Jordan Davis punctuated Eagles' defensive dominance with game-winning FG block**\
 `The 2022 first-round pick recently did a lot of work to get into better shape.`\
 https://nytimes.com/athletic/6649150/2025/09/21/jordan-davis-eagles-defense-rams-nfl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6650082/2025/09/21/jaguars-beat-texans-afc-south/
 **A Patriotic Dress Code for a Political Memorial**\
 `A service for Charlie Kirk called for attendees to wear red, white and blue.`\
 https://nytimes.com/2025/09/21/style/a-patriotic-dress-code-for-a-political-memorial.html
-
-**Bengals' historical loss to Vikings concerning — but not because of the final score**\
-`Turnovers were the main cause of Sunday's disaster, but a total lack of running attack is most ominous for the Bengals' future.`\
-https://nytimes.com/athletic/6650122/2025/09/21/bengals-loss-vikings-running-game-jake-browning/
 
