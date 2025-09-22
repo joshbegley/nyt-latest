@@ -1,3 +1,11 @@
+**Analysing the fast bowlers with whom England will fight fire with fire in the Ashes**\
+`The national team's quick bowling coach Neil Killeen assesses the qualities of a battery of quicks as England prepare to tour Down Under`\
+https://nytimes.com/athletic/6644186/2025/09/22/england-fast-bowlers-ashes-australia-archer-wood/
+
+**Why China Might Give Up TikTok**\
+`Beijing may be buying itself room to negotiate on the matters it cares about most: tariffs, technology and Taiwan.`\
+https://nytimes.com/2025/09/22/briefing/china-tiktok-palestine-statehood.html
+
 **Are Wolves set to go full circle under Fosun after latest dire display?**\
 `Next summer will mark 10 years at Molineux for the club's Chinese owners - and it looks like bringing a return to the Championship too`\
 https://nytimes.com/athletic/6647545/2025/09/22/wolves-leeds-fosun-championship/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6649106/2025/09/22/sunderland-le-bris-competing-vil
 **Newcastle, slow-drying paint and transitioning to a post-Isak reality**\
 `In terms of balance and brilliance, Eddie Howe's side are still scratching around as they adjust to new players and a cluttered schedule`\
 https://nytimes.com/athletic/6649113/2025/09/22/newcastle-howe-woltemade-bournemouth-attack/
-
-**Bruno Fernandes reaches 100 goals for United. But he's given a fractured club much more than that**\
-`Since arriving in 2020, the Old Trafford side's captain has squeezed more creative juice from suboptimal squads than he has any right to`\
-https://nytimes.com/athletic/6243812/2025/09/22/bruno-fernandes-100-goals-manchester-united/
-
-**Postecoglou has brought organised chaos to Forest. They must embrace it**\
-`It's gone from organised under Nuno Espirito Santo to organised chaos with his successor. Strap in, this is your new normal...`\
-https://nytimes.com/athletic/6648446/2025/09/22/nottingham-forest-ange-postecoglou-patience/
 
