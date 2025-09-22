@@ -1,3 +1,7 @@
+**Chargers' Najee Harris out for season with torn Achilles**\
+`A huge opportunity now awaits Hampton, who had the best game of his career in Sunday’s win.`\
+https://nytimes.com/athletic/6653021/2025/09/22/najee-harris-injury-update-achilles-chargers/
+
 **Brock Purdy could play in Week 4; Mac Jones day to day with knee injury**\
 `The 49ers have gone 2-0 with Mac Jones in the lineup in place of Purdy.`\
 https://nytimes.com/athletic/6652970/2025/09/22/brock-purdy-injury-update-mac-jones-49ers/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/22/realestate/compass-anywhere-real-estate-deal.html
 **Jimmy Kimmel’s Show Is Coming Back**\
 `Also, Palestinian statehood took center stage at the U.N. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/09/22/briefing/jimmy-kimmel-palestinian-statehood-un.html
-
-**NFL removes Texans' Jimmie Ward from Commissioner Exempt List**\
-`Texans safety removed from list after a grand jury in Texas decided last week not to indict him on charges of felony family assault.`\
-https://nytimes.com/athletic/6653030/2025/09/22/nfl-texans-jimmie-ward-off-exempt-list/
 

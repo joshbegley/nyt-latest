@@ -1,3 +1,11 @@
+**Brock Purdy could play in Week 4; Mac Jones day to day with knee injury**\
+`The 49ers have gone 2-0 with Mac Jones in the lineup in place of Purdy.`\
+https://nytimes.com/athletic/6652970/2025/09/22/brock-purdy-injury-update-mac-jones-49ers/
+
+**Former Arsenal academy player Billy Vigar in induced coma with brain injury**\
+`Vigar, who plays for Chichester City in the English seventh tier, sustained the injury in a match against Wingate & Finchley on Saturday.`\
+https://nytimes.com/athletic/6653176/2025/09/22/billy-vigar-arsenal-injury/
+
 **Hamas releases a hostage video on the same day as the Palestinian statehood conference.**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2025/09/22/world/united-nations-assembly/hamas-releases-a-hostage-video-on-the-same-day-as-the-palestinian-statehood-conference
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/22/briefing/jimmy-kimmel-palestinian-statehood-un.ht
 **NFL removes Texans' Jimmie Ward from Commissioner Exempt List**\
 `Texans safety removed from list after a grand jury in Texas decided last week not to indict him on charges of felony family assault.`\
 https://nytimes.com/athletic/6653030/2025/09/22/nfl-texans-jimmie-ward-off-exempt-list/
-
-**ACC athletic directors vote for move to 9-game conference football schedule**\
-`The ACC’s decision, assuming it is finalized, comes a month after the SEC announced it is expanding its league slate to nine games.`\
-https://nytimes.com/athletic/6653081/2025/09/22/acc-football-nine-game-conference-schedule/
-
-**NASA Introduces New Astronaut Candidates**\
-`NASA announced 10 new candidates to begin training as astronauts as part of a plan to send more astronauts to new space stations, the moon and maybe Mars.`\
-https://nytimes.com/video/science/space/100000010414185/nasa-introduces-10-new-astronaut-candidates.html
 
