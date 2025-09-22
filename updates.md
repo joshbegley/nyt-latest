@@ -1,3 +1,11 @@
+**12 Emotional Hours: A Spectator Reflects on One Full Day (Without Caffeine)**\
+`Attending Charlie Kirk’s memorial involved lots of standing, worrying and waiting. But for one Colorado Springs woman, it was all worth it.`\
+https://nytimes.com/2025/09/21/us/politics/spectator-long-day.html
+
+**Needing a spark, the Commanders got two: From their backup QB and their coach**\
+`Jayden Daniels was out, so the Commanders rallied behind backup Marcus Mariota, and the indomitable Dan Quinn.`\
+https://nytimes.com/athletic/6650168/2025/09/21/marcus-mariota-commanders-dan-quinn/
+
 **Inside the Blue Jays’ playoff clinch celebration: ‘This year, we did it’**\
 `The Jays knocked on the door of the postseason for three days in Kansas City. After an 8-5 win Sunday, the champagne could finally flow.`\
 https://nytimes.com/athletic/6650366/2025/09/21/blue-jays-playoff-clinch-celebration/
