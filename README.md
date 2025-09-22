@@ -1,3 +1,11 @@
+**Syracuse fined by ACC for faking injuries vs. Clemson**\
+`Two Syracuse linemen both went to the ground in the fourth quarter at a pivotal moment, drawing the attention of ACC officials. `\
+https://nytimes.com/athletic/6651816/2025/09/22/syracuse-fined-faking-injuries-clemson-upset/
+
+**SEC to release teams' three annual opponents: Alabama-LSU on the outs**\
+`This set of annual opponents will only be applied for a four-year cycle over the 2026 to 2029 seasons and will be revisited for 2030.`\
+https://nytimes.com/athletic/6651845/2025/09/22/sec-football-annual-opponents-rivals-schedule/
+
 **Shawn Clark, UCF O-line coach and former App State HC, dead at 50**\
 `Clark coached offensive line for most of a two-decade career in college football but succeeded Eli Drinkwitz as App State head coach in '19.`\
 https://nytimes.com/athletic/6651642/2025/09/22/shawn-clark-appalachian-state-ucf/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6648998/2025/09/22/winnipeg-jets-training-camp-note
 **These Patients Got the Cure. Then It Went Away.**\
 `Gene therapies for rare diseases are frequently developed then discarded by drug companies because they can’t afford to produce the treatment for more patients.`\
 https://nytimes.com/2025/09/22/health/gene-editing-rare-diseases-fda.html
-
-**Cowboys face Packers and Micah Parsons in Week 4: Share your thoughts in our quick survey**\
-`The Cowboys and Packers play Sunday at AT&T Stadium in the return of Micah Parsons.`\
-https://nytimes.com/athletic/6651675/2025/09/22/cowboys-survey-micah-parsons-packers/
-
-**Gavi to undergo minor knee surgery, set for one month out**\
-`Gavi has not featured since August due to a meniscus injury and will undergo an arthroscopic examination on Tuesday.`\
-https://nytimes.com/athletic/6651416/2025/09/22/gavi-injury-surgery-barcelona-update/
 

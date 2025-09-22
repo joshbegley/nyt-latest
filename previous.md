@@ -1,3 +1,15 @@
+**Shawn Clark, UCF O-line coach and former App State HC, dead at 50**\
+`Clark coached offensive line for most of a two-decade career in college football but succeeded Eli Drinkwitz as App State head coach in '19.`\
+https://nytimes.com/athletic/6651642/2025/09/22/shawn-clark-appalachian-state-ucf/
+
+**Fantasy Hockey Ultimate Goalie Guide, Part 2: Wild cards and reliable starters**\
+`In Part 2 of the Ultimate Goalie Guide, Shayna Goldman discusses wild cards and quietly reliable starters to help your fantasy hockey team.`\
+https://nytimes.com/athletic/6650664/2025/09/22/fantasy-hockey-ultimate-goalie-guide-part-2-wild-cards-starters/
+
+**The Last Standing Proposal for a Casino in Manhattan Is Voted Down**\
+`The defeat of a plan to build a casino just south of the United Nations headquarters leaves five remaining proposals, all outside Manhattan.`\
+https://nytimes.com/2025/09/22/nyregion/manhattan-casino-proposal-rejected.html
+
 **A Perfect Spicy-Sweet Chicken Dinner**\
 `Vinegar, lime and chiles keep things from veering too sweet in Yewande Komolafe’s honey-glazed chicken and shallots.`\
 https://nytimes.com/2025/09/22/dining/a-perfect-spicy-sweet-chicken-dinner.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6651675/2025/09/22/cowboys-survey-micah-parsons-pac
 **Gavi to undergo minor knee surgery, set for one month out**\
 `Gavi has not featured since August due to a meniscus injury and will undergo an arthroscopic examination on Tuesday.`\
 https://nytimes.com/athletic/6651416/2025/09/22/gavi-injury-surgery-barcelona-update/
-
-**Two Accused of Draining Accounts of Couple Who Disappeared From Mansion**\
-`JuanJuan Zwang and Peishuan Fan came from China three years ago to live in a $3.9 million home on Long Island’s North Shore. Then, they were gone — and their money began to vanish, too.`\
-https://nytimes.com/2025/09/22/nyregion/long-island-couple-disappeared-fraud-arraignment.html
-
-**The Firing of Educators Over Kirk Comments Follows a Familiar Playbook**\
-`Conservative efforts to call out and punish educators over liberal ideas have grown for years, led in part by Charlie Kirk himself.`\
-https://nytimes.com/2025/09/22/us/firing-educators-kirk-free-speech.html
-
-**Louise Vincent, Addict Who Led Harm Reduction Movement, Dies at 49**\
-`She was instrumental in helping promote wider use of needle exchanges, naloxone and tests to assist drug users in identifying dangerous ingredients.`\
-https://nytimes.com/2025/09/22/health/louise-vincent-dead.html
 
