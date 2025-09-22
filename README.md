@@ -1,3 +1,7 @@
+**Jaguars rising, Texans stumbling as AFC South rivals are headed in opposite directions**\
+`The Jaguars are off to their best start since 2022 while the Texans' 0-3 mark is their worst start since 2018.`\
+https://nytimes.com/athletic/6650082/2025/09/21/jaguars-beat-texans-afc-south/
+
 **A Patriotic Dress Code for a Political Memorial**\
 `A service for Charlie Kirk called for attendees to wear red, white and blue.`\
 https://nytimes.com/2025/09/21/style/a-patriotic-dress-code-for-a-political-memorial.html
@@ -6,7 +10,7 @@ https://nytimes.com/2025/09/21/style/a-patriotic-dress-code-for-a-political-memo
 `Turnovers were the main cause of Sunday's disaster, but a total lack of running attack is most ominous for the Bengals' future.`\
 https://nytimes.com/athletic/6650122/2025/09/21/bengals-loss-vikings-running-game-jake-browning/
 
-**49ers vs Cardinals takeaways: SF edges Arizona on game-winning field goal**\
+**49ers vs. Cardinals takeaways: SF edges Arizona on game-winning field goal**\
 `Quarterback Mac Jones led the way as the 49ers edged the Arizona Cardinals 16-15 on Sunday at Levi's Stadium.`\
 https://nytimes.com/athletic/6649668/2025/09/21/49ers-cardinals-score-result-takeaways-2/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6649654/2025/09/21/red-wings-training-camp-emmitt-f
 **Cowboys vs. Bears takeaways: Caleb Williams leads Chicago to first win**\
 `Williams had a career-high four TD passes, each to a different target, to go along with 298 passing yards.`\
 https://nytimes.com/athletic/6649547/2025/09/21/cowboys-bears-score-result-takeaways/
-
-**Rebuilding Patriots fumble away a game they could've won against the Steelers**\
-`The Patriots turned the ball over five times and lost, even on a day when Drake Maye threw for 268 yards and the defense played well.`\
-https://nytimes.com/athletic/6649869/2025/09/21/steelers-patriots-fumbles-drake-maye-turnovers/
 
