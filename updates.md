@@ -1,3 +1,15 @@
+**U.S.-Run TikTok to License Algorithm, White House Says**\
+`The change is part of a deal to bring TikTok under U.S. ownership to avert a looming ban.`\
+https://nytimes.com/2025/09/22/us/politics/tiktok-deal-algorithm-trump.html
+
+**Syracuse fined by ACC for faking injuries vs. Clemson**\
+`Two Syracuse linemen both went to the ground in the fourth quarter at a pivotal moment, drawing the attention of ACC officials. `\
+https://nytimes.com/athletic/6651816/2025/09/22/syracuse-fined-faking-injuries-clemson-upset/
+
+**SEC to release teams' three annual opponents: Alabama-LSU on the outs**\
+`This set of annual opponents will only be applied for a four-year cycle over the 2026 to 2029 seasons and will be revisited for 2030.`\
+https://nytimes.com/athletic/6651845/2025/09/22/sec-football-annual-opponents-rivals-schedule/
+
 **Shawn Clark, UCF O-line coach and former App State HC, dead at 50**\
 `Clark coached offensive line for most of a two-decade career in college football but succeeded Eli Drinkwitz as App State head coach in '19.`\
 https://nytimes.com/athletic/6651642/2025/09/22/shawn-clark-appalachian-state-ucf/

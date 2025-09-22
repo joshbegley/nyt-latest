@@ -34,7 +34,3 @@ https://nytimes.com/video/world/middleeast/100000010413443/palestinians-react-to
 `The British chef Jess Shadbolt, of the New York restaurant King, feted her favorite fisherman — and her soon-to-open restaurant named in his honor.`\
 https://nytimes.com/2025/09/22/t-magazine/jess-shadbolt-lunch.html
 
-**Winnipeg Jets training camp: Who's been helping their case to be an NHL player?**\
-`There are good stories to be told, even among players who will be cut.`\
-https://nytimes.com/athletic/6648998/2025/09/22/winnipeg-jets-training-camp-notebook/
-
