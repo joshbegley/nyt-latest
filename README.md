@@ -1,5 +1,29 @@
+**Autistic People Deserve Better Than This**\
+`The Trump administration misunderstands autism and what autistic people and our families need.`\
+https://nytimes.com/2025/09/22/opinion/autism-kennedy-report.html
+
+**How to watch Tigers at Guardians: Time, TV, streaming for September 23**\
+`Find out how to watch the Detroit Tigers play the Cleveland Guardians, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6653327/2025/09/22/tigers-vs-guardians-stream-how-to-watch-sept-23/
+
+**How to watch Pirates at Reds: Time, TV, streaming for September 23**\
+`Find out how to watch the Pittsburgh Pirates play the Cincinnati Reds, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6653325/2025/09/22/pirates-vs-reds-stream-how-to-watch-sept-23/
+
+**How to watch Rays at Orioles: Time, TV, streaming for September 23**\
+`Find out how to watch the Tampa Bay Rays play the Baltimore Orioles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6653320/2025/09/22/rays-vs-orioles-stream-how-to-watch-sept-23/
+
+**How to watch White Sox at Yankees: Time, TV, streaming for September 23**\
+`Find out how to watch the Chicago White Sox play the New York Yankees, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6653316/2025/09/22/white-sox-vs-yankees-stream-how-to-watch-sept-23/
+
+**How to watch Marlins at Phillies: Time, TV, streaming for September 23**\
+`Find out how to watch the Miami Marlins play the Philadelphia Phillies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6653312/2025/09/22/marlins-vs-phillies-stream-how-to-watch-sept-23/
+
 **Cardinals RB James Conner to undergo season-ending foot surgery**\
-`Conner, 30, is a big loss, but Arizona does have depth at the position.`\
+`Loss of Conner is big, but Arizona does have depth at the position.`\
 https://nytimes.com/athletic/6653246/2025/09/22/cardinals-james-conner-season-ending-foot-surgery/
 
 **What Is Leucovorin, the Medicine Being Approved for Autism Treatment?**\
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6653021/2025/09/22/najee-harris-injury-update-achil
 **Brock Purdy could play in Week 4; Mac Jones day to day with knee injury**\
 `The 49ers have gone 2-0 with Mac Jones in the lineup in place of Purdy.`\
 https://nytimes.com/athletic/6652970/2025/09/22/brock-purdy-injury-update-mac-jones-49ers/
-
-**Former Arsenal academy player Billy Vigar in induced coma with brain injury**\
-`Vigar, who plays for Chichester City in the English seventh tier, sustained the injury in a match against Wingate & Finchley on Saturday.`\
-https://nytimes.com/athletic/6653176/2025/09/22/billy-vigar-arsenal-injury/
-
-**Hamas releases a hostage video on the same day as the Palestinian statehood conference.**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2025/09/22/world/united-nations-assembly/hamas-releases-a-hostage-video-on-the-same-day-as-the-palestinian-statehood-conference
-
-**Man Who Shined a Laser at Marine One With Trump Aboard Is Arrested, U.S. Says**\
-`Jacob Winkler aimed a laser pointer at the presidential helicopter as it took off from the White House on Saturday, the authorities said. He was charged with a felony.`\
-https://nytimes.com/2025/09/22/us/laser-marine-one-trump-arrest.html
-
-**Egypt’s President Pardons Imprisoned Arab Spring Activist**\
-`Alaa Abd El Fattah, pardoned after spending most of the past 12 years imprisoned, gained prominence through his biting, visionary commentary on Egypt’s 2011 Arab Spring revolution.`\
-https://nytimes.com/video/world/middleeast/100000010415267/egypt-alaa-abd-el-fattah-pardon.html
-
-**World Leaders Recognize Palestinian State, in a Challenge to U.S. and Israel**\
-`At a meeting ahead of the U.N. General Assembly, France and other U.S. allies made official a breach with Washington that has been years in the making.`\
-https://nytimes.com/2025/09/22/world/middleeast/unga-palestinian-state.html
-
-**Trump’s Pick to Replace Ousted U.S. Attorney Lacks Prosecutorial Experience**\
-`Lindsey Halligan worked as a personal lawyer for President Trump and then led the effort to scrutinize the Smithsonian for “improper ideology.”`\
-https://nytimes.com/2025/09/22/us/politics/lindsey-halligan-trump.html
 
