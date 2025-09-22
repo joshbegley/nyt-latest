@@ -1,3 +1,19 @@
+**World Leaders Recognize Palestinian State, in a Challenge to U.S. and Israel**\
+`At a meeting ahead of the U.N. General Assembly, France and other U.S. allies made official a breach with Washington that has been years in the making.`\
+https://nytimes.com/2025/09/22/world/middleeast/unga-palestinian-state.html
+
+**Trump’s Pick to Replace Ousted U.S. Attorney Lacks Prosecutorial Experience**\
+`Lindsey Halligan worked as a personal lawyer for President Trump and then led the effort to scrutinize the Smithsonian for “improper ideology.”`\
+https://nytimes.com/2025/09/22/us/politics/lindsey-halligan-trump.html
+
+**Compass to Buy Top Rival, Further Condensing Brokerage Industry**\
+`The proposed merger with Anywhere Real Estate would create a nationwide real estate behemoth.`\
+https://nytimes.com/2025/09/22/realestate/compass-anywhere-real-estate-deal.html
+
+**Jimmy Kimmel’s Show Is Coming Back**\
+`Also, Palestinian statehood took center stage at the U.N. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/09/22/briefing/jimmy-kimmel-palestinian-statehood-un.html
+
 **NFL removes Texans' Jimmie Ward from Commissioner Exempt List**\
 `Texans safety removed from list after a grand jury in Texas decided last week not to indict him on charges of felony family assault.`\
 https://nytimes.com/athletic/6653030/2025/09/22/nfl-texans-jimmie-ward-off-exempt-list/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/09/22/nyregion/doi-police-custody-deaths-investigation.
 **U.S. allies’ recognition of a Palestinian state puts them in opposition to the White House.**\
 `By Luke Broadwater`\
 https://nytimes.com/live/2025/09/22/world/united-nations-assembly/us-allies-recognition-of-a-palestinian-state-puts-them-in-opposition-to-the-white-house
-
-**As the U.S. Pulls Back From the U.N., Rivals Stand to Gain**\
-`We explain how Russia, China, Iran and other countries are trying to strengthen their influence as America retreats.`\
-https://nytimes.com/2025/09/22/briefing/un-china-russia-palestine-typhoon.html
-
-**Four N.Y. Prison Officers Plead Guilty to Manslaughter in Taped Beating**\
-`Robert Brooks, an inmate of Marcy prison, was forced onto an infirmary examination table and kicked and punched to death. Four officers who rejected plea deals will face trial beginning Oct. 6.`\
-https://nytimes.com/2025/09/22/nyregion/marcy-prison-manslaughter-pleas.html
-
-**Commanders QB Jayden Daniels remains day to day with knee sprain**\
-`Backup QB Marcus Mariota helped lead win over Raiders in Week 3, but coach Dan Quinn says that doesn't impact his decision on Daniels.`\
-https://nytimes.com/athletic/6652823/2025/09/22/jayden-daniels-commanders-day-to-day/
-
-**Keegan Bradley finds it isn't easy to put this Ryder Cup decision behind him**\
-`Bradley says his Ryder Cup captaincy is a "bigger cause, to help our guys get ready to play and play at the highest level."`\
-https://nytimes.com/athletic/6652842/2025/09/22/keegan-bradley-ryder-cup-captain-player/
 
