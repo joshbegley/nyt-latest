@@ -1,6 +1,10 @@
+**Not So Naked After All**\
+`Things were looking a lot more covered up at New York Fashion Week.`\
+https://nytimes.com/2025/09/22/style/new-york-fashion-week-conservatism-trend.html
+
 **NFL Week 4 odds, spreads: Don't even look, Saints fans**\
 `Odds are up for every Week 4 game, with an eye-popping 16.5-point spread favoring Buffalo against the hapless Saints.`\
-https://nytimes.com/athletic/6651869/2025/09/22/nfl-week-4-odds-spreads-a-16-5-point-spread/
+https://nytimes.com/athletic/6651869/2025/09/22/nfl-week-4-odds-spreads-bills-chiefs-ravens/
 
 **‘Mexodus’ Tells an Underground Railroad Story You’ve Probably Never Heard**\
 `In this new hip-hop musical from Nygel D. Robinson and Brian Quijada, audiences hear a tale of reverse migration: Slaves leaving the United States for Mexico.`\
@@ -29,8 +33,4 @@ https://nytimes.com/2025/09/22/business/trumps-fed-pick-outlines-case-for-slashi
 **When ICE Shows Up at a Factory, What Can a Governor Do?**\
 `“I’m used to being able to solve problems,” Gov. Kathy Hochul of New York said as she visited a factory where immigration officials arrested 57 people.`\
 https://nytimes.com/2025/09/22/nyregion/ice-raid-hochul.html
-
-**U.S.-Run TikTok to License Algorithm, White House Says**\
-`The change is part of a deal to bring TikTok under U.S. ownership to avert a looming ban.`\
-https://nytimes.com/2025/09/22/us/politics/tiktok-deal-algorithm-trump.html
 
