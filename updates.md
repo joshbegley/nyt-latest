@@ -1,3 +1,7 @@
+**As the U.S. Pulls Back From the U.N., Rivals Stand to Gain**\
+`We explain how Russia, China, Iran and other countries are trying to strengthen their influence as America retreats.`\
+https://nytimes.com/2025/09/22/briefing/un-china-russia-palestine-typhoon.html
+
 **Four N.Y. Prison Officers Plead Guilty to Manslaughter in Taped Beating**\
 `Robert Brooks, an inmate of Marcy prison, was forced onto an infirmary examination table and kicked and punched to death. Four officers who rejected plea deals will face trial beginning Oct. 6.`\
 https://nytimes.com/2025/09/22/nyregion/marcy-prison-manslaughter-pleas.html
