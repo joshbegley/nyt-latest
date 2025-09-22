@@ -1,3 +1,19 @@
+**Cardinals' Marvin Harrison Jr.: 'Not doing my job at a high-enough level'**\
+`Harrison had three receptions for 44 yards in Sunday's loss to San Francisco, one week after he had two catches for 27 yards vs. Carolina.`\
+https://nytimes.com/athletic/6651570/2025/09/22/cardinals-marvin-harrison-jr-comments/
+
+**Putin Proposes One More Year of Nuclear Caps With U.S.**\
+`Mr. Putin said Russia didn’t want to provoke a strategic arms race with the United States.`\
+https://nytimes.com/2025/09/22/world/europe/putin-trump-start-nuclear-treaty.html
+
+**Tracking Tropical Storm Narda**\
+`See the likely path and wind arrival times for Narda`\
+https://nytimes.com/interactive/2025/weather/narda-map-path-tracker.html
+
+**Mets mailbag: Submit questions heading into regular season's final week**\
+`Our Mets experts will tackle your questions about the team's outlook as the 2025 regular season draws to a close.`\
+https://nytimes.com/athletic/6651684/2025/09/22/mets-mailbag-final-week-2025/
+
 **Mets mailbag: Submit questions heading into regular season's final week**\
 `Our Mets experts will tackle your questions about the Mets' outlook as the 2025 regular season draws to a close.`\
 https://nytimes.com/athletic/6651684/2025/09/22/mets-mailbag-final-week-2025/
