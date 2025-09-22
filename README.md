@@ -1,3 +1,7 @@
+**Palestinians hope their state won’t remain just ‘ink on paper.’**\
+`By Fatima AbdulKarim`\
+https://nytimes.com/live/2025/09/22/world/united-nations-assembly/palestinians-hope-their-state-wont-remain-just-ink-on-paper
+
 **Protesters calling for solidarity with Palestinians clash with the police in Milan.**\
 `By Elisabetta Povoledo`\
 https://nytimes.com/live/2025/09/22/world/united-nations-assembly/protesters-calling-for-solidarity-with-palestinians-clash-with-the-police-in-milan
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6652783/2025/09/22/tampa-bay-rays-sale-approval/
 **‘The View’ Hosts Criticize Trump Administration Over Kimmel**\
 `The chairman of the Federal Communications Commission has suggested that the daytime talk show should could also come under government scrutiny.`\
 https://nytimes.com/2025/09/22/business/media/the-view-trump-jimmy-kimmel.html
-
-**The Company Behind Tylenol Tries to Navigate Its Latest Crisis**\
-`Kenvue, a two-year-old spinoff from Johnson & Johnson, is confronting a public-relations nightmare as President Trump and others suggest unproven links between the pain reliever and autism.`\
-https://nytimes.com/2025/09/22/health/tylenol-autism-kenvue.html
 
