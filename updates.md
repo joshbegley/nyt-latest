@@ -1,3 +1,7 @@
+**White House Frenemies: Biden-Harris Rift Reflects Long Pattern of History**\
+`Many presidents and vice presidents fall out by the end of their tenures, a fraught dynamic that goes back to the early days of the republic.`\
+https://nytimes.com/2025/09/22/us/politics/kamala-harris-joe-biden-rift-history.html
+
 **The World Comes to New York for a Very Different Climate Week**\
 `As world leaders arrive in New York City for Climate Week, the United States has all but left the global fight against climate change under President Trump.`\
 https://nytimes.com/2025/09/22/climate/climate-week.html
