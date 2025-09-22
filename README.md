@@ -1,6 +1,6 @@
 **Mamdani Cancels WABC Town Hall to Protest Kimmel Suspension**\
 `Zohran Mamdani, the front-runner in the New York City mayor’s race, said the suspension of Jimmy Kimmel’s talk show sent a chilling message about free speech.`\
-https://nytimes.com/2025/09/22/us/politics/mamdani-cancel-abc-town-hall-kimmel.html
+https://nytimes.com/2025/09/22/nyregion/mamdani-cancel-abc-town-hall-kimmel.html
 
 **U.S. Asks Judge to Break Up Google’s Advertising Technology Monopoly**\
 `The Justice Department argued that the best way to address the company’s unfair advantage was to force it sell off portions of its business.`\

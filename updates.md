@@ -1,3 +1,15 @@
+**Mamdani Cancels WABC Town Hall to Protest Kimmel Suspension**\
+`Zohran Mamdani, the front-runner in the New York City mayor’s race, said the suspension of Jimmy Kimmel’s talk show sent a chilling message about free speech.`\
+https://nytimes.com/2025/09/22/us/politics/mamdani-cancel-abc-town-hall-kimmel.html
+
+**U.S. Asks Judge to Break Up Google’s Advertising Technology Monopoly**\
+`The Justice Department argued that the best way to address the company’s unfair advantage was to force it sell off portions of its business.`\
+https://nytimes.com/2025/09/22/technology/google-ad-tech-monopoly.html
+
+**Alex Faust to succeed Bob Costas as play-by-play voice for MLB playoffs**\
+`Faust has already broadcast events for TNT Sports, as he is part of their NFL coverage and was on the call for French Open matches`\
+https://nytimes.com/athletic/6652199/2025/09/22/tnt-sports-mlb-playoffs-bob-costas-alex-faust/
+
 **Forgiveness and Fury at Kirk’s Memorial**\
 `Readers react to the memorial for the slain conservative activist Charlie Kirk. Also: Jimmy Kimmel and free speech; a loss of history at PBS.`\
 https://nytimes.com/2025/09/22/opinion/charlie-kirk-memorial-trump.html

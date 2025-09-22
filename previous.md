@@ -1,3 +1,15 @@
+**Mamdani Cancels WABC Town Hall to Protest Kimmel Suspension**\
+`Zohran Mamdani, the front-runner in the New York City mayor’s race, said the suspension of Jimmy Kimmel’s talk show sent a chilling message about free speech.`\
+https://nytimes.com/2025/09/22/us/politics/mamdani-cancel-abc-town-hall-kimmel.html
+
+**U.S. Asks Judge to Break Up Google’s Advertising Technology Monopoly**\
+`The Justice Department argued that the best way to address the company’s unfair advantage was to force it sell off portions of its business.`\
+https://nytimes.com/2025/09/22/technology/google-ad-tech-monopoly.html
+
+**Alex Faust to succeed Bob Costas as play-by-play voice for MLB playoffs**\
+`Faust has already broadcast events for TNT Sports, as he is part of their NFL coverage and was on the call for French Open matches`\
+https://nytimes.com/athletic/6652199/2025/09/22/tnt-sports-mlb-playoffs-bob-costas-alex-faust/
+
 **Forgiveness and Fury at Kirk’s Memorial**\
 `Readers react to the memorial for the slain conservative activist Charlie Kirk. Also: Jimmy Kimmel and free speech; a loss of history at PBS.`\
 https://nytimes.com/2025/09/22/opinion/charlie-kirk-memorial-trump.html
@@ -25,19 +37,4 @@ https://nytimes.com/athletic/6652115/2025/09/22/sabres-depth-chart-2025-season/
 **Trump’s Tax Cut Is Underwater. Can a ‘Refund Boom’ Save It?**\
 `Republicans are hoping a new name, along with larger refunds for many Americans next year, can buoy an economic agenda that polls show is unpopular.`\
 https://nytimes.com/2025/09/22/us/politics/trump-tax-cuts.html
-
-**Scoop City: Risers and fallers after Week 3**\
-`How teams are trending after the Patriots, Texans and Falcons underwhelmed, while the Eagles and Bears impressed`\
-https://nytimes.com/athletic/6652123/2025/09/22/nfl-risers-fallers-week-3-colts-browns-eagles-scoop-city/
-
-**Longtime Patriots, Texans executive Bobby Grier dies at 82**\
-`Grier spent nearly 20 years as a coach and executive with the New England Patriots.`\
-https://nytimes.com/athletic/6652067/2025/09/22/patriots-texans-bobby-grier-dies/
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>Oregon-Penn State. Alabama-Georgia. LSU-Ole Miss. &#8230; UCLA-Northwestern.</p>
-<p>Week 5 should be a good one!</p>
-<p>Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/6650070/2025/09/22/submit-a-question-for-stewart-mandels-college-football-mailbag-316/
 
