@@ -1,3 +1,23 @@
+**Canadiens notebook: Demidov's perfectionism, Slafkovský means business**\
+`Also: A window into how skill development works on the ice and an early look at the power-play units.`\
+https://nytimes.com/athletic/6652474/2025/09/22/canadiens-training-camp-demidov-slafkovsky/
+
+**College football Week 5 odds: Massive matchups all over the country**\
+`College football's Week 5 has some massive games and close spreads in the three biggest games.`\
+https://nytimes.com/athletic/6652164/2025/09/22/college-football-week-5-odds-oregon-penn-state-alabama-georgia-lsu-ole-miss/
+
+**Elizabeth Warren Is Frustrated**\
+`Democrats should have tackled the economic problems affecting working-class families a long time ago, Senator Elizabeth Warren says.`\
+https://nytimes.com/video/opinion/100000010413792/elizabeth-warren-is-frustrated.html
+
+**NFL overreaction Monday: How are the Colts dogs vs. Rams?**\
+`Toby Mergler makes four early Week 4 picks wildly over-indexing on vibes, small sample sizes and comparisons to pop culture classics.`\
+https://nytimes.com/athletic/6652260/2025/09/22/nfl-overreaction-monday-week-4-colts-rams-underdogs-betting/
+
+**Giants won't commit to Russell Wilson as starting QB: 'We're evaluating everything'**\
+`The Giants are off to an 0-3 start with Wilson under center.`\
+https://nytimes.com/athletic/6652287/2025/09/22/ny-giants-russell-wilson-jaxson-dart-chargers/
+
 **Earthquake Jolts Bay Area Residents Awake**\
 `A 4.3-magnitude earthquake was strong enough to rattle nerves in the middle of the night, especially in the heavily populated East Bay where it was centered.`\
 https://nytimes.com/2025/09/22/us/earthquake-bay-area-berkeley.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/09/22/science/nasa-new-astronauts.html
 **Cardi B Rips From Her Own Headlines for ‘Am I the Drama?’**\
 `On an uneven but sometimes inspired second album, the rapper is pugnacious, reflective and rarely short on charisma.`\
 https://nytimes.com/2025/09/22/arts/music/cardi-b-am-i-the-drama-review.html
-
-**Greenlandic Woman Wins Her Baby Back in Denmark**\
-`A young Greenlandic woman living in Denmark will regain custody of the infant girl taken from her shortly after birth. The case has become the latest flashpoint between Denmark and Greenland.`\
-https://nytimes.com/2025/09/22/world/europe/denmark-greenland-baby-reunited.html
-
-**Eli Manning is enjoying post-NFL life, and 'ManningCast' has been his playground**\
-`After 16 NFL seasons in New York, Manning has found a way to fully open up and show his personality — with the help of his older brother.`\
-https://nytimes.com/athletic/6608615/2025/09/22/eli-manning-giants-manningcast-peyton/
-
-**French town halls fly Palestinian flags, defying the government.**\
-`By Aurelien Breeden`\
-https://nytimes.com/live/2025/09/22/world/united-nations-assembly/french-town-halls-fly-palestinian-flag-defying-the-government
-
-**Auburn coach Bruce Pearl retiring weeks before season opener: Reports**\
-`Pearl, 65, would leave college basketball with a 477-224 (.680) overall record`\
-https://nytimes.com/athletic/6652413/2025/09/22/bruce-pearl-retiring-auburn-basketball-coach/
-
-**What does it mean to be a state?**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2025/09/22/world/united-nations-assembly/what-does-it-mean-to-be-a-state
 

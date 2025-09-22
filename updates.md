@@ -1,3 +1,23 @@
+**Canadiens notebook: Demidov's perfectionism, Slafkovský means business**\
+`Also: A window into how skill development works on the ice and an early look at the power-play units.`\
+https://nytimes.com/athletic/6652474/2025/09/22/canadiens-training-camp-demidov-slafkovsky/
+
+**College football Week 5 odds: Massive matchups all over the country**\
+`College football's Week 5 has some massive games and close spreads in the three biggest games.`\
+https://nytimes.com/athletic/6652164/2025/09/22/college-football-week-5-odds-oregon-penn-state-alabama-georgia-lsu-ole-miss/
+
+**Elizabeth Warren Is Frustrated**\
+`Democrats should have tackled the economic problems affecting working-class families a long time ago, Senator Elizabeth Warren says.`\
+https://nytimes.com/video/opinion/100000010413792/elizabeth-warren-is-frustrated.html
+
+**NFL overreaction Monday: How are the Colts dogs vs. Rams?**\
+`Toby Mergler makes four early Week 4 picks wildly over-indexing on vibes, small sample sizes and comparisons to pop culture classics.`\
+https://nytimes.com/athletic/6652260/2025/09/22/nfl-overreaction-monday-week-4-colts-rams-underdogs-betting/
+
+**Giants won't commit to Russell Wilson as starting QB: 'We're evaluating everything'**\
+`The Giants are off to an 0-3 start with Wilson under center.`\
+https://nytimes.com/athletic/6652287/2025/09/22/ny-giants-russell-wilson-jaxson-dart-chargers/
+
 **49ers DE Nick Bosa out for season with torn ACL: Sources**\
 `Bosa left Sunday's game late in the first quarter and did not return.`\
 https://nytimes.com/athletic/6652130/2025/09/22/nick-bosa-acl-injury-update-status-49ers/
