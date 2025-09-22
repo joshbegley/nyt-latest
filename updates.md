@@ -1,3 +1,7 @@
+**How Dembele won the Ballon d’Or: New role, learning to love tap-ins, and not ‘cheating’**\
+`Ousmane Dembele was named the winner of the 2025 Ballon d'Or on Monday evening. This is how he has developed to earn that honour`\
+https://nytimes.com/athletic/6648802/2025/09/22/ousmane-dembele-ballon-dor-background/
+
 **Palestinians hope their state won’t remain just ‘ink on paper.’**\
 `By Fatima AbdulKarim`\
 https://nytimes.com/live/2025/09/22/world/united-nations-assembly/palestinians-hope-their-state-wont-remain-just-ink-on-paper
