@@ -1,3 +1,11 @@
+**New Hampshire Shooting Suspect Is Arraigned on Murder Charge**\
+`Patrons at a country club’s restaurant intervened to stop the gunman, the authorities said. The mother of the man who was killed said he died trying to protect his family.`\
+https://nytimes.com/2025/09/22/us/new-hampshire-shooting.html
+
+**Recognition or Not, a Palestinian State Seems More Remote Than Ever**\
+`Even before the war in Gaza, negotiations failed to produce peace between the Israelis and the Palestinians.`\
+https://nytimes.com/2025/09/22/world/middleeast/palestinian-recognition-israel.html
+
 **White House Denies Homan Took Bag of Cash in F.B.I. Inquiry**\
 `People familiar with an undercover F.B.I. investigation say Trump’s border czar was recorded on audio tape accepting a Cava bag with $50,000 in it last year.`\
 https://nytimes.com/2025/09/22/us/politics/homan-cash.html

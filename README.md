@@ -1,3 +1,23 @@
+**What to Know About Painkillers, Vaccines, Genes and Autism**\
+`For decades, researchers have looked for links. Most believe the disorder springs from a complex interplay of genetics and environmental factors.`\
+https://nytimes.com/2025/09/22/health/autism-tylenol-vaccines-explainer.html
+
+**As a New Year Begins, a Rabbi Reflects on High Tension Among Jews**\
+`“I never would have imagined the splinters inside of the Jewish community,” said Rabbi Elan Babchuck, whose work includes research on polarization.`\
+https://nytimes.com/2025/09/22/us/rosh-hashanah-high-holidays.html
+
+**Rhule wants to talk football when it comes to Raiola, not Mahomes**\
+`Raiola has fashioned his style after the Chiefs' quarterback, from his movements to his haircut to his throwing motion and warm-up routine.`\
+https://nytimes.com/athletic/6652707/2025/09/22/matt-rhule-mahomes-dylan-raiola/
+
+**A Birthday Cake Made Out of Newspaper**\
+`Using just a few basic craft supplies, the artist Nonamey constructs a dessert that looks good enough to eat.`\
+https://nytimes.com/2025/09/22/t-magazine/nonamey-newspaper-birthday-cake.html
+
+**Make T Something | Nonamey**\
+`The artist Nonamey makes a sculpture out of a few craft items and a copy of The New York Times.`\
+https://nytimes.com/video/t-magazine/100000010393401/make-t-something-nonamey.html
+
 **New Hampshire Shooting Suspect Is Arraigned on Murder Charge**\
 `Patrons at a country club’s restaurant intervened to stop the gunman, the authorities said. The mother of the man who was killed said he died trying to protect his family.`\
 https://nytimes.com/2025/09/22/us/new-hampshire-shooting.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/09/22/us/politics/supreme-court-ftc-commissioner-firing
 **How to watch Auburn at Texas A&M: Time, TV, streaming**\
 `Find out how to watch the Auburn Tigers play the Texas A&M Aggies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6652762/2025/09/22/auburn-vs-texas-a-m-stream-how-to-watch-sept-27/
-
-**The most interesting stats from Sunday's NFL special teams bonanza**\
-`A record-tying seven NFL games were decided this weekend with a score in the final three minutes.`\
-https://nytimes.com/athletic/6651999/2025/09/22/nfl-stats-special-teams-blocked-kicks-game-winners/
-
-**How to watch Indiana at Iowa: Time, TV, streaming**\
-`Find out how to watch the Indiana Hoosiers play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6652757/2025/09/22/indiana-vs-iowa-stream-how-to-watch-sept-27/
-
-**How to watch Ohio State at Washington: Time, TV, streaming**\
-`Find out how to watch the Ohio State Buckeyes play the Washington Huskies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6652758/2025/09/22/ohio-state-vs-washington-stream-how-to-watch-sept-27/
-
-**How to watch UCLA at Northwestern: Time, TV, streaming**\
-`Find out how to watch the UCLA Bruins play the Northwestern Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6652752/2025/09/22/ucla-vs-northwestern-stream-how-to-watch-sept-27/
-
-**Jimmy Kimmel’s Show to Return to ABC on Tuesday Night**\
-`The network removal of Mr. Kimmel’s show last week almost immediately morphed into a flashpoint for free speech in America.`\
-https://nytimes.com/2025/09/22/business/media/jimmy-kimmel-returns-abc.html
 

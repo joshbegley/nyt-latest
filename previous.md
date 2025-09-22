@@ -1,3 +1,11 @@
+**New Hampshire Shooting Suspect Is Arraigned on Murder Charge**\
+`Patrons at a country club’s restaurant intervened to stop the gunman, the authorities said. The mother of the man who was killed said he died trying to protect his family.`\
+https://nytimes.com/2025/09/22/us/new-hampshire-shooting.html
+
+**Recognition or Not, a Palestinian State Seems More Remote Than Ever**\
+`Even before the war in Gaza, negotiations failed to produce peace between the Israelis and the Palestinians.`\
+https://nytimes.com/2025/09/22/world/middleeast/palestinian-recognition-israel.html
+
 **White House Denies Homan Took Bag of Cash in F.B.I. Inquiry**\
 `People familiar with an undercover F.B.I. investigation say Trump’s border czar was recorded on audio tape accepting a Cava bag with $50,000 in it last year.`\
 https://nytimes.com/2025/09/22/us/politics/homan-cash.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6652752/2025/09/22/ucla-vs-northwestern-stream-how-
 **Jimmy Kimmel’s Show to Return to ABC on Tuesday Night**\
 `The network removal of Mr. Kimmel’s show last week almost immediately morphed into a flashpoint for free speech in America.`\
 https://nytimes.com/2025/09/22/business/media/jimmy-kimmel-returns-abc.html
-
-**How to watch Notre Dame at Arkansas: Time, TV, streaming**\
-`Find out how to watch the Notre Dame Fighting Irish play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6652748/2025/09/22/notre-dame-vs-arkansas-stream-how-to-watch-sept-27/
-
-**How to watch USC at Illinois: Time, TV, streaming**\
-`Find out how to watch the USC Trojans play the Illinois Fighting Illini, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6652746/2025/09/22/usc-vs-illinois-stream-how-to-watch-sept-27/
 
