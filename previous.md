@@ -1,3 +1,7 @@
+**With scars and skeptics, Carson Wentz fits right in among Vikings QB lore**\
+`The veteran quarterback stepped in for J.J. McCarthy and went 14-of-20 passing for 173 yards and two touchdowns in Minnesota's blowout win.`\
+https://nytimes.com/athletic/6650938/2025/09/22/carson-wentz-vikings-qb-bengals/
+
 **Updating the Canucks' depth chart: Roster battles, where things stand after training camp**\
 `A look at who is still in the running to make the Canucks' 23-man roster.`\
 https://nytimes.com/athletic/6650910/2025/09/22/canucks-depth-chart-roster-preseason/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6650195/2025/09/22/nfl-undefeated-teams-the-pulse/
 **Trump Administration Live Updates: President to Speak About Autism**\
 ``\
 https://nytimes.com/live/2025/09/22/us/trump-news
-
-**Notre Dame-Purdue final thoughts: A win is a win, but moment of truth awaits**\
-`If the first two games were their own season, the five-game stretch from Purdue to USC feels like a second season, with no room for error.`\
-https://nytimes.com/athletic/6651356/2025/09/22/notre-dame-purdue-jadarian-price-chris-ash/
 
