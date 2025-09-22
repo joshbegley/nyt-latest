@@ -1,3 +1,19 @@
+**Proposed Gas Pipeline Tests New York’s Allegiance to Green Energy**\
+`The Northeast Supply Enhancement pipeline, which would deliver natural gas into the New York City area, has been shot down three times because of environmental concerns. Supporters hope the fourth time is the charm.`\
+https://nytimes.com/2025/09/22/nyregion/nese-pipeline-nyc-natural-gas.html
+
+**How to Silence Dissent, Bit by Bit Until Fear Takes Over**\
+`In China, journalism and public debate were opening up, and then a leader took over and used a series of steps to dictate speech.`\
+https://nytimes.com/2025/09/22/business/china-censorship-jimmy-kimmel.html
+
+**Kara Lawson named the next Team USA women's basketball coach**\
+`The Duke coach and former Olympian will lead Team USA in its quest for a ninth consecutive gold medal.`\
+https://nytimes.com/athletic/6651150/2025/09/22/kara-lawson-olympics-womens-basketball/
+
+**Trump’s Fed Pick Outlines Case for Slashing Interest Rates**\
+`Stephen Miran, who joined the central bank last week, said he believes rates should be around 2.5 percent, or about 2 percentage points lower than they are currently.`\
+https://nytimes.com/2025/09/22/business/trumps-fed-pick-outlines-case-for-slashing-interest-rates.html
+
 **When ICE Shows Up at a Factory, What Can a Governor Do?**\
 `“I’m used to being able to solve problems,” Gov. Kathy Hochul of New York said as she visited a factory where immigration officials arrested 57 people.`\
 https://nytimes.com/2025/09/22/nyregion/ice-raid-hochul.html
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/6651845/2025/09/22/sec-football-annual-opponents-ri
 **Shawn Clark, UCF O-line coach and former App State HC, dead at 50**\
 `Clark coached offensive line for most of a two-decade career in college football but succeeded Eli Drinkwitz as App State head coach in '19.`\
 https://nytimes.com/athletic/6651642/2025/09/22/shawn-clark-appalachian-state-ucf/
-
-**Fantasy Hockey Ultimate Goalie Guide, Part 2: Wild cards and reliable starters**\
-`In Part 2 of the Ultimate Goalie Guide, Shayna Goldman discusses wild cards and quietly reliable starters to help your fantasy hockey team.`\
-https://nytimes.com/athletic/6650664/2025/09/22/fantasy-hockey-ultimate-goalie-guide-part-2-wild-cards-starters/
-
-**The Last Standing Proposal for a Casino in Manhattan Is Voted Down**\
-`The defeat of a plan to build a casino just south of the United Nations headquarters leaves five remaining proposals, all outside Manhattan.`\
-https://nytimes.com/2025/09/22/nyregion/manhattan-casino-proposal-rejected.html
-
-**A Perfect Spicy-Sweet Chicken Dinner**\
-`Vinegar, lime and chiles keep things from veering too sweet in Yewande Komolafe’s honey-glazed chicken and shallots.`\
-https://nytimes.com/2025/09/22/dining/a-perfect-spicy-sweet-chicken-dinner.html
-
-**Palestinians React to International Recognition of Statehood**\
-`Palestinians in Gaza City and those fleeing south shared mixed views after Britain, Canada, Australia and Portugal confirmed on Sunday that they now formally recognize Palestinian statehood.`\
-https://nytimes.com/video/world/middleeast/100000010413443/palestinians-react-to-international-recognition-of-statehood.html
 
