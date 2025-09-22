@@ -1,3 +1,15 @@
+**A Perfect Spicy-Sweet Chicken Dinner**\
+`Vinegar, lime and chiles keep things from veering too sweet in Yewande Komolafe’s honey-glazed chicken and shallots.`\
+https://nytimes.com/2025/09/22/dining/a-perfect-spicy-sweet-chicken-dinner.html
+
+**Palestinians React to International Recognition of Statehood**\
+`Palestinians in Gaza City and those fleeing south shared mixed views after Britain, Canada, Australia and Portugal confirmed on Sunday that they now formally recognize Palestinian statehood.`\
+https://nytimes.com/video/world/middleeast/100000010413443/palestinians-react-to-international-recognition-of-statehood.html
+
+**A Seafood-Filled Lunch on England’s North Sea Coast**\
+`The British chef Jess Shadbolt, of the New York restaurant King, feted her favorite fisherman — and her soon-to-open restaurant named in his honor.`\
+https://nytimes.com/2025/09/22/t-magazine/jess-shadbolt-lunch.html
+
 **Winnipeg Jets training camp: Who's been helping their case to be an NHL player?**\
 `There are good stories to be told, even among players who will be cut.`\
 https://nytimes.com/athletic/6648998/2025/09/22/winnipeg-jets-training-camp-notebook/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/22/us/firing-educators-kirk-free-speech.html
 **Louise Vincent, Addict Who Led Harm Reduction Movement, Dies at 49**\
 `She was instrumental in helping promote wider use of needle exchanges, naloxone and tests to assist drug users in identifying dangerous ingredients.`\
 https://nytimes.com/2025/09/22/health/louise-vincent-dead.html
-
-**The Wary, Warming, Wildly Consequential Alliance of Ocasio-Cortez and Mamdani**\
-`She was the ‘big sister’ he hoped to impress. He seemed inexperienced to her. Now, they’re the faces of a political movement — and New York is its test case.`\
-https://nytimes.com/2025/09/22/nyregion/ocasio-cortez-mamdani-new-york-mayor.html
-
-**ESPN top exec wants Pat McAfee to stay with network past current contract**\
-`Pat McAfee’s deal with ESPN doesn't expire for another three years, but the top content person at ESPN already knows that he wants him back.`\
-https://nytimes.com/athletic/6651678/2025/09/22/espn-pat-mcafee-contract/
-
-**‘The Lowdown,’ Plus 7 Things to Watch on TV this Week**\
-`Ethan Hawke stars in a new FX show and “The Golden Bachelor” comes back for another season.`\
-https://nytimes.com/2025/09/22/movies/the-lowdown-plus-7-things-to-watch-on-tv-this-week.html
 
