@@ -1,3 +1,11 @@
+**See Who Attended Charlie Kirk’s Memorial**\
+`Photos of notable figures who attended the event.`\
+https://nytimes.com/interactive/2025/09/21/us/politics/kirk-memorial-photos.html
+
+**'I just got the ball': How A.J. Brown helped Eagles shed 'conservative' offense**\
+`A.J. Brown's lack of targets had been a storyline through the Eagles' first two games.`\
+https://nytimes.com/athletic/6650307/2025/09/21/aj-brown-sirianni-eagles-rams-comeback-offense-nfl/
+
 **Undefeated Colts, Daniel Jones keep racking up wins, reasons to believe they're for real**\
 `Few outside of the Colts' building believed it would look this good this fast, but Indy knew it had the pieces to be a threat in the AFC. `\
 https://nytimes.com/athletic/6649590/2025/09/21/indianapolis-colts-daniel-jones-undefeated-titans/
@@ -14,7 +22,7 @@ https://nytimes.com/athletic/6650458/2025/09/21/kelsey-mitchell-indiana-fever-wn
 `Attending Charlie Kirk’s memorial involved lots of standing, worrying and waiting. But for one Colorado Springs woman, it was all worth it.`\
 https://nytimes.com/2025/09/21/us/politics/spectator-long-day.html
 
-**Needing a spark, the Commanders got two: From their backup QB and their coach**\
+**Needing a spark, the Commanders got two: from their backup QB and their coach**\
 `Jayden Daniels was out, so the Commanders rallied behind backup Marcus Mariota, and the indomitable Dan Quinn.`\
 https://nytimes.com/athletic/6650168/2025/09/21/marcus-mariota-commanders-dan-quinn/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/21/world/europe/brussels-airport-delays-europe-cyber
 **For the Jets, Will McDonald provides a special moment — but it only lasts a moment**\
 `Will McDonald's blocked field goal touchdown went for naught, and the Jets fell to 0-3 in Tampa Bay.`\
 https://nytimes.com/athletic/6650198/2025/09/21/new-york-jets-tampa-bay-buccaneers/
-
-**Dodger Details: Putting a bow on a weekend honoring Clayton Kershaw**\
-`"Remember," Kershaw said Sunday, "we've got another month left. We'll see you at the end of October."`\
-https://nytimes.com/athletic/6650147/2025/09/21/dodger-details-honoring-clayton-kershaw/
-
-**Raiders struggle in every phase of lopsided loss: 'We were no good today'**\
-`The O-line struggled and the defense had its hands full with backup QB Marcus Mariota, who filled in for the injured Jayden Daniels.`\
-https://nytimes.com/athletic/6649941/2025/09/21/raiders-lose-defense-special-teams-commanders/
 

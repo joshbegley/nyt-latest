@@ -1,3 +1,15 @@
+**See Who Attended Charlie Kirk’s Memorial**\
+`Photos of notable figures who attended the event.`\
+https://nytimes.com/interactive/2025/09/21/us/politics/kirk-memorial-photos.html
+
+**'I just got the ball': How A.J. Brown helped Eagles shed 'conservative' offense**\
+`A.J. Brown's lack of targets had been a storyline through the Eagles' first two games.`\
+https://nytimes.com/athletic/6650307/2025/09/21/aj-brown-sirianni-eagles-rams-comeback-offense-nfl/
+
+**Needing a spark, the Commanders got two: from their backup QB and their coach**\
+`Jayden Daniels was out, so the Commanders rallied behind backup Marcus Mariota, and the indomitable Dan Quinn.`\
+https://nytimes.com/athletic/6650168/2025/09/21/marcus-mariota-commanders-dan-quinn/
+
 **Republican Leaders and Kirk Supporters Attend Memorial**\
 `Tens of thousands of mourners packed a football stadium near Phoenix to honor Charlie Kirk.`\
 https://nytimes.com/video/us/politics/100000010412672/charlie-kirk-memorial-service.html

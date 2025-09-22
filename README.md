@@ -35,6 +35,6 @@ https://nytimes.com/athletic/6650366/2025/09/21/blue-jays-playoff-clinch-celebra
 https://nytimes.com/2025/09/21/world/europe/brussels-airport-delays-europe-cyberattack.html
 
 **For the Jets, Will McDonald provides a special moment — but it only lasts a moment**\
-`Will McDonald's blocked field goal touchdown went for naught, and the Jets fell to 0-3 in Tampa Bay.`\
+`McDonald's blocked field goal touchdown went for naught, and the Jets fell to 0-3 in Tampa Bay.`\
 https://nytimes.com/athletic/6650198/2025/09/21/new-york-jets-tampa-bay-buccaneers/
 
