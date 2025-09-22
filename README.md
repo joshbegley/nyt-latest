@@ -1,3 +1,11 @@
+**Inside Barcelona: Julian Alvarez targeted, Camp Nou latest, why Marcus Rashford was dropped...**\
+`Our Barca writers bring you the latest news on all the big talking points at the La Liga champions right now`\
+https://nytimes.com/athletic/6651241/2025/09/22/barcelona-rashford-camp-nou-julian-alvarez/
+
+**Palmer ‘game by game’ but Maresca ‘doesn’t think’ surgery needed on injury**\
+`Palmer was substituted 21 minutes into Chelsea’s defeat at Manchester United with a groin injury.`\
+https://nytimes.com/athletic/6651326/2025/09/22/cole-palmer-injury-update-chelsea/
+
 **For Arab Nations With Ties to Israel, Attacks on Qatar and Gaza City Raise Anxiety**\
 `The Middle Eastern states closest to Israel see the attack on Hamas officials in Qatar and the invasion of Gaza City as warning signs of potential threats to their own security.`\
 https://nytimes.com/2025/09/22/world/middleeast/arab-israel-conflict-regional-palestinians.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/09/22/us/earthquake-san-francisco-tracker.h
 **Filip Gustavsson extension projection: What a contract for Wild's 'clear-cut No. 1' might look like**\
 `Now that Gustavsson has proved he’s a strong starting goaltender, it’ll soon be time to get paid like one.`\
 https://nytimes.com/athletic/6644875/2025/09/22/wild-filip-gustavsson-contract-extension/
-
-**Message board Monday: How fanbases of Texas Tech, Indiana and Vanderbilt feel after the weekend**\
-`What are fanbases saying about Clemson's performance, Clemson's downfall and a big weekend for some historically bad programs. `\
-https://nytimes.com/athletic/6649762/2025/09/22/message-board-monday-texas-tech-indiana-vanderbilt/
-
-**What we’re hearing about the Cubs' playoff discussions, including Kyle Tucker's status**\
-`Having their best hitter approaching a one-month layoff right before the playoffs is not ideal.`\
-https://nytimes.com/athletic/6650065/2025/09/22/what-were-hearing-about-the-cubs-playoff-discussions-including-kyle-tuckers-status/
 
