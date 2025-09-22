@@ -1,3 +1,7 @@
+**As U.N. General Assembly Gathers, Here’s What to Watch For**\
+`A look at major figures who will appear during the week and what they might talk about.`\
+https://nytimes.com/2025/09/22/world/americas/un-general-assembly-highlights.html
+
 **Australia, Britain, Canada and Portugal Formally Recognize a Palestinian State**\
 `Statements by the leaders of Australia, Britain, Canada and Portugal recognizing Palestinian statehood came before the annual gathering of the U.N. General Assembly in New York. Israel’s government condemned the moves.`\
 https://nytimes.com/video/world/100000010413323/starmer-uk-recognize-palestinian-state.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/22/opinion/consequence-culture-kimmel-kirk.html
 **Al Gore on Trump and the Future of Climate Action**\
 `The former vice president speaks to David Gelles about how the climate movement can move forward after President Trump’s rollback of key environmental regulations and where he finds hope as the planet continues warming.`\
 https://nytimes.com/2025/09/22/climate/al-gore-interview-climate-forward.html
-
-**What Is a ‘Business Shoe,’ Anyway?**\
-`Workplace dress codes can be frustratingly vague. Our critic has some guidance on navigating different interpretations and on picking your footwear.`\
-https://nytimes.com/2025/09/22/fashion/shoe-business-work-office.html
 
