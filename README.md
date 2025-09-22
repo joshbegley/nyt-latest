@@ -1,3 +1,11 @@
+**Baker Mayfield says Buccaneers' win over Jets was 'personal'**\
+`Mayfield made reference to Jets defensive coordinator Steve Wilks, who was the interim head coach in Carolina was he was released.`\
+https://nytimes.com/athletic/6650271/2025/09/21/buccaneers-baker-mayfield-jets-steve-wilks-personal/
+
+**What it's like to watch tennis with Roger Federer**\
+`At the Laver Cup this week, Federer has likely spent more time courtside watching matches than he has anywhere else.`\
+https://nytimes.com/athletic/6650273/2025/09/21/what-its-like-to-watch-tennis-with-roger-federer/
+
 **Isaiah Rodgers produces all-time defensive performance as Vikings maul Bengals**\
 `The veteran cornerback returned an interception and a fumble for touchdowns and forced two fumbles against the Bengals. In the first half.`\
 https://nytimes.com/athletic/6650067/2025/09/21/isaiah-rodgers-vikings-bengals-week-3/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6650122/2025/09/21/bengals-loss-vikings-running-gam
 **49ers vs. Cardinals takeaways: SF edges Arizona on game-winning field goal**\
 `Quarterback Mac Jones led the way as the 49ers edged the Arizona Cardinals 16-15 on Sunday at Levi's Stadium.`\
 https://nytimes.com/athletic/6649668/2025/09/21/49ers-cardinals-score-result-takeaways-2/
-
-**How to watch Nationals at Braves: Time, TV, streaming for September 22**\
-`Find out how to watch the Washington Nationals play the Atlanta Braves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6650248/2025/09/21/nationals-vs-braves-stream-how-to-watch-sept-22/
-
-**The Hand That Rocks The Gavel**\
-`Immigration courthouses were once mostly off limits to ICE. Not anymore.`\
-https://nytimes.com/2025/09/21/podcasts/the-hand-that-rocks-the-gavel.html
 
