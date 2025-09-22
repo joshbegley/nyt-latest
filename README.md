@@ -1,3 +1,7 @@
+**Cardi B Rips From Her Own Headlines for ‘Am I the Drama?’**\
+`On an uneven but sometimes inspired second album, the rapper is pugnacious, reflective and rarely short on charisma.`\
+https://nytimes.com/2025/09/22/arts/music/cardi-b-am-i-the-drama-review.html
+
 **Greenlandic Woman Wins Her Baby Back in Denmark**\
 `A young Greenlandic woman living in Denmark will regain custody of the infant girl taken from her shortly after birth. The case has become the latest flashpoint between Denmark and Greenland.`\
 https://nytimes.com/2025/09/22/world/europe/denmark-greenland-baby-reunited.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6652150/2025/09/22/derion-kendrick-seahawks-mike-ma
 **Commanders, safety Darnell Savage agree to terms: Sources**\
 `The 28-year-old Savage was a first-round pick out of Maryland in 2019. The Commanders lost Will Harris to a lower leg injury on Sunday.`\
 https://nytimes.com/athletic/6652358/2025/09/22/darnell-savage-commanders-safety/
-
-**The Giants' preseason starting pitching depth was a mirage**\
-`The saying "You can never have too much starting pitching" in baseball may seem trite, but the Giants proved once again how true it is.`\
-https://nytimes.com/athletic/6641395/2025/09/22/sf-giants-starting-pitch-depth-analysis/
 
