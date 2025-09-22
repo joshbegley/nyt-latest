@@ -1,3 +1,7 @@
+**Linus Ullmark hasn't reached his 'standard' just yet: Sens takeaways**\
+`Despite the loss, the game was ripe for observations, including Travis Green's line combinations and pairings.`\
+https://nytimes.com/athletic/6649214/2025/09/22/takeaways-senators-leafs-preseason/
+
 **Zubeen Garg, Singer Who Charmed India With a Bollywood Hit, Dies at 52**\
 `Mr. Garg sang in dozens of languages and his music blended folk, pop and rock. His hit song “Ya Ali” was featured in the 2006 film “Gangster.”`\
 https://nytimes.com/2025/09/22/world/asia/zubeen-garg-dead.html

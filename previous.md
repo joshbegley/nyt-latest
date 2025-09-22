@@ -1,3 +1,7 @@
+**Linus Ullmark hasn't reached his 'standard' just yet: Sens takeaways**\
+`Despite the loss, the game was ripe for observations, including Travis Green's line combinations and pairings.`\
+https://nytimes.com/athletic/6649214/2025/09/22/takeaways-senators-leafs-preseason/
+
 **Zubeen Garg, Singer Who Charmed India With a Bollywood Hit, Dies at 52**\
 `Mr. Garg sang in dozens of languages and his music blended folk, pop and rock. His hit song “Ya Ali” was featured in the 2006 film “Gangster.”`\
 https://nytimes.com/2025/09/22/world/asia/zubeen-garg-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6650800/2025/09/22/dodgers-pitching-october-playoff
 **Hillary Clinton Sees a Dangerous Moment for Women’s Rights, and Democracy**\
 `With her rallying cry for gender equality turning 30 this year, Mrs. Clinton says President Trump and autocratic leaders abroad are steadily dismantling decades of progress.`\
 https://nytimes.com/2025/09/22/us/politics/hillary-clinton-womens-rights-trump.html
-
-**Long-delayed trial pitting family of Tyler Skaggs against Los Angeles Angels gets underway**\
-`It is rare for MLB teams to see their dirty laundry aired in court. The Angels are about to become an exception to that rule. `\
-https://nytimes.com/athletic/6649617/2025/09/22/angels-tyler-skaggs-trial-primer-mike-trout/
 
