@@ -1,3 +1,11 @@
+**The World Comes to New York for a Very Different Climate Week**\
+`As world leaders arrive in New York City for Climate Week, the United States has all but left the global fight against climate change under President Trump.`\
+https://nytimes.com/2025/09/22/climate/climate-week.html
+
+**France’s Macron will acknowledge Palestinian statehood in a speech at the U.N.**\
+`By Catherine Porter`\
+https://nytimes.com/live/2025/09/22/world/united-nations-assembly/macron-france-palestinian-statehood
+
 **Spirit to Put One-Third of Flight Attendants on Leave**\
 `The budget airline said it would furlough hundreds of employee as it waded through its second bankruptcy in a year.`\
 https://nytimes.com/2025/09/22/business/spirit-flight-attendants.html

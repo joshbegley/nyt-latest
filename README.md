@@ -1,3 +1,11 @@
+**White House Frenemies: Biden-Harris Rift Reflects Long Pattern of History**\
+`Many presidents and vice presidents fall out by the end of their tenures, a fraught dynamic that goes back to the early days of the republic.`\
+https://nytimes.com/2025/09/22/us/politics/kamala-harris-joe-biden-rift-history.html
+
+**Spirit to Put One-Third of Flight Attendants on Leave**\
+`The budget airline said it would furlough hundreds of employee as it waded through its second bankruptcy in a year.`\
+https://nytimes.com/2025/09/22/business/spirit-flight-attendants.html
+
 **The World Comes to New York for a Very Different Climate Week**\
 `As world leaders arrive in New York City for Climate Week, the United States has all but left the global fight against climate change under President Trump.`\
 https://nytimes.com/2025/09/22/climate/climate-week.html
@@ -5,10 +13,6 @@ https://nytimes.com/2025/09/22/climate/climate-week.html
 **France’s Macron will acknowledge Palestinian statehood in a speech at the U.N.**\
 `By Catherine Porter`\
 https://nytimes.com/live/2025/09/22/world/united-nations-assembly/macron-france-palestinian-statehood
-
-**Spirit to Put One-Third of Flight Attendants on Leave**\
-`The budget airline said it would furlough hundreds of employee as it waded through its second bankruptcy in a year.`\
-https://nytimes.com/2025/09/22/business/spirit-flight-attendants.html
 
 **Zelensky Urges ‘Powerful Pressure on Russia’ at U.N. General Assembly**\
 `In a social media post, Ukraine’s president pushed leaders gathering in New York to strengthen their efforts to get Moscow to end the war.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6652260/2025/09/22/nfl-overreaction-monday-week-4-c
 **Giants won't commit to Russell Wilson as starting QB: 'We're evaluating everything'**\
 `The Giants are off to an 0-3 start with Wilson under center.`\
 https://nytimes.com/athletic/6652287/2025/09/22/ny-giants-russell-wilson-jaxson-dart-chargers/
-
-**Earthquake Jolts Bay Area Residents Awake**\
-`A 4.3-magnitude earthquake was strong enough to rattle nerves in the middle of the night, especially in the heavily populated East Bay where it was centered.`\
-https://nytimes.com/2025/09/22/us/earthquake-bay-area-berkeley.html
 

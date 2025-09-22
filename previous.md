@@ -1,3 +1,11 @@
+**The World Comes to New York for a Very Different Climate Week**\
+`As world leaders arrive in New York City for Climate Week, the United States has all but left the global fight against climate change under President Trump.`\
+https://nytimes.com/2025/09/22/climate/climate-week.html
+
+**France’s Macron will acknowledge Palestinian statehood in a speech at the U.N.**\
+`By Catherine Porter`\
+https://nytimes.com/live/2025/09/22/world/united-nations-assembly/macron-france-palestinian-statehood
+
 **Spirit to Put One-Third of Flight Attendants on Leave**\
 `The budget airline said it would furlough hundreds of employee as it waded through its second bankruptcy in a year.`\
 https://nytimes.com/2025/09/22/business/spirit-flight-attendants.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6652287/2025/09/22/ny-giants-russell-wilson-jaxson-
 **Earthquake Jolts Bay Area Residents Awake**\
 `A 4.3-magnitude earthquake was strong enough to rattle nerves in the middle of the night, especially in the heavily populated East Bay where it was centered.`\
 https://nytimes.com/2025/09/22/us/earthquake-bay-area-berkeley.html
-
-**49ers DE Nick Bosa out for season with torn ACL: Sources**\
-`Bosa left Sunday's game late in the first quarter and did not return.`\
-https://nytimes.com/athletic/6652130/2025/09/22/nick-bosa-acl-injury-update-status-49ers/
-
-**Tiger Handler Linked to Joe Exotic Is Fatally Mauled by Tiger**\
-`Ryan Easley, 37, was performing at his family-run private zoo in Hugo, Okla., when a tiger attacked him, the authorities said. He was pronounced dead at the scene.`\
-https://nytimes.com/2025/09/22/us/tiger-handler-mauled-dead-joe-exotic.html
 
