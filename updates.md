@@ -1,3 +1,7 @@
+**For the Jets, Will McDonald provides a special moment — but it only lasts a moment**\
+`McDonald's blocked field goal touchdown went for naught, and the Jets fell to 0-3 in Tampa Bay.`\
+https://nytimes.com/athletic/6650198/2025/09/21/new-york-jets-tampa-bay-buccaneers/
+
 **See Who Attended Charlie Kirk’s Memorial**\
 `Photos of notable figures who attended the event.`\
 https://nytimes.com/interactive/2025/09/21/us/politics/kirk-memorial-photos.html
