@@ -1,3 +1,7 @@
+**Cardinals RB James Conner to undergo season-ending foot surgery**\
+`The loss of Conner is big, but Arizona does have depth at the position.`\
+https://nytimes.com/athletic/6653246/2025/09/22/cardinals-james-conner-season-ending-foot-surgery/
+
 **Autistic People Deserve Better Than This**\
 `The Trump administration misunderstands autism and what autistic people and our families need.`\
 https://nytimes.com/2025/09/22/opinion/autism-kennedy-report.html
