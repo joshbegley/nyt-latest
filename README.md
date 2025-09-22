@@ -1,3 +1,11 @@
+**Can't win the close one? Mac Jones flips the narrative on 49ers' final drive**\
+`With Jauan Jennings missing from the lineup, Jones targeted either Christian McCaffrey or Ricky Pearsall on 26 of his 38 pass attempts.`\
+https://nytimes.com/athletic/6650674/2025/09/21/49ers-cardinals-mac-jones-flips-narrative/
+
+**Giants vs. Chiefs: Russell Wilson flounders as fans chant 'We want Dart'**\
+`After Wilson's second pick, fans at MetLife Stadium could be heard chanting, "We want Dart."`\
+https://nytimes.com/athletic/6650044/2025/09/21/giants-chiefs-score-result-takeaways-russell-wilson/
+
 **How 'White House,' a trick play for a long touchdown, ignited the Bears’ first win**\
 `In a badly needed victory, a well-timed trick play provided the signature moment for Caleb Williams and Ben Johnson.`\
 https://nytimes.com/athletic/6650588/2025/09/21/caleb-williams-luther-burden-bears-flea-flicker/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6650504/2025/09/21/seahawks-saints-week-3-blowout/
 **Brother of Jeremiah Smith, 3-star safety Angelo, commits to Ohio State**\
 `Angelo Smith is the No. 38 ranked safety in his class and will likely slot in as a corner back for the Buckeyes.`\
 https://nytimes.com/athletic/6650574/2025/09/21/jeremiah-angelo-smith-commit-ohio-state/
-
-**Giants takeaways: Bryce Eldridge looks like Stretch Junior in debut at first base**\
-`Eldridge made the defensive play of Sunday's game, snagging a line drive and throwing across the diamond for a double play in a 3-1 win.`\
-https://nytimes.com/athletic/6650404/2025/09/21/giants-takeaways-bryce-eldridge-debut-first-base/
-
-**See Who Attended Charlie Kirk’s Memorial**\
-`Photos of notable figures who attended the event.`\
-https://nytimes.com/interactive/2025/09/21/us/politics/kirk-memorial-photos.html
 
