@@ -1,3 +1,15 @@
+**Trump Remembers Kirk as a Martyr While Attacking Political Opponents**\
+`President Trump oscillated between honoring Charlie Kirk’s life and promoting his own political agenda in his remarks at the conservative activist’s memorial in Arizona.`\
+https://nytimes.com/2025/09/21/us/elections/trump-charlie-kirk-memorial-service.html
+
+**Braves takeaways: Snitker's career decision, Ha-Seong Kim's future, Baldwin's ROY push**\
+`The Braves have an eight-game winning streak after defeating the Tigers 6-2 on Sunday.`\
+https://nytimes.com/athletic/6649948/2025/09/21/braves-brian-snitker-ha-seong-kim-drake-baldwin/
+
+**Steelers steal a win thanks to 'turnover culture' and Cam Heyward's two hands**\
+`It took five turnovers and a late TD drive to get past the Patriots on the road.`\
+https://nytimes.com/athletic/6650112/2025/09/21/pittsburgh-steelers-new-england-patriots/
+
 **Jaguars rising, Texans stumbling as AFC South rivals are headed in opposite directions**\
 `The Jaguars are off to their best start since 2022 while the Texans' 0-3 mark is their worst start since 2018.`\
 https://nytimes.com/athletic/6650082/2025/09/21/jaguars-beat-texans-afc-south/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/21/podcasts/the-hand-that-rocks-the-gavel.html
 **Broncos vs. Chargers takeaways: Cameron Dicker's game-winning FG lifts L.A. to 3-0**\
 `The kicker hits a 43-yard field goal as time expires, helping the Chargers start the season 3-0 for the first time since 2002.`\
 https://nytimes.com/athletic/6647442/2025/09/21/broncos-chargers-score-result-takeaways/
-
-**Matt Shaw misses Cubs game to attend memorial service for Charlie Kirk**\
-`The night of Kirk’s death, Shaw was scratched from Chicago’s starting lineup due to unspecified personal reasons.`\
-https://nytimes.com/athletic/6650083/2025/09/21/chicago-cubs-matt-shaw-absence/
-
-**Red Wings camp thoughts: Emmitt Finnie stands out in scrimmage action**\
-`The Red Wings had a lively week of physical action, culminating in Sunday's Red-White game. Here's who stood out.`\
-https://nytimes.com/athletic/6649654/2025/09/21/red-wings-training-camp-emmitt-finnie-moritz-seider/
-
-**Cowboys vs. Bears takeaways: Caleb Williams leads Chicago to first win**\
-`Williams had a career-high four TD passes, each to a different target, to go along with 298 passing yards.`\
-https://nytimes.com/athletic/6649547/2025/09/21/cowboys-bears-score-result-takeaways/
 

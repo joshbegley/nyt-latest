@@ -1,3 +1,15 @@
+**Trump Remembers Kirk as a Martyr While Attacking Political Opponents**\
+`President Trump oscillated between honoring Charlie Kirk’s life and promoting his own political agenda in his remarks at the conservative activist’s memorial in Arizona.`\
+https://nytimes.com/2025/09/21/us/elections/trump-charlie-kirk-memorial-service.html
+
+**Braves takeaways: Snitker's career decision, Ha-Seong Kim's future, Baldwin's ROY push**\
+`The Braves have an eight-game winning streak after defeating the Tigers 6-2 on Sunday.`\
+https://nytimes.com/athletic/6649948/2025/09/21/braves-brian-snitker-ha-seong-kim-drake-baldwin/
+
+**Steelers steal a win thanks to 'turnover culture' and Cam Heyward's two hands**\
+`It took five turnovers and a late TD drive to get past the Patriots on the road.`\
+https://nytimes.com/athletic/6650112/2025/09/21/pittsburgh-steelers-new-england-patriots/
+
 **Jaguars rising, Texans stumbling as AFC South rivals are headed in opposite directions**\
 `The Jaguars are off to their best start since 2022 while the Texans' 0-3 mark is their worst start since 2018.`\
 https://nytimes.com/athletic/6650082/2025/09/21/jaguars-beat-texans-afc-south/
