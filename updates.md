@@ -1,3 +1,15 @@
+**NASA Picks 10 New Astronauts as Focus Shifts to the Moon and Mars**\
+`The astronaut candidates will begin two years of training before becoming eligible for missions to low-Earth orbit and beyond.`\
+https://nytimes.com/2025/09/22/science/nasa-new-astronauts.html
+
+**Cardi B Rips From Her Own Headlines for ‘Am I the Drama?’**\
+`On an uneven but sometimes inspired second album, the rapper is pugnacious, reflective and rarely short on charisma.`\
+https://nytimes.com/2025/09/22/arts/music/cardi-b-am-i-the-drama-review.html
+
+**French town halls fly Palestinian flags, defying the government.**\
+`By Aurelien Breeden`\
+https://nytimes.com/live/2025/09/22/world/united-nations-assembly/french-town-halls-fly-palestinian-flag-defying-the-government
+
 **Greenlandic Woman Wins Her Baby Back in Denmark**\
 `A young Greenlandic woman living in Denmark will regain custody of the infant girl taken from her shortly after birth. The case has become the latest flashpoint between Denmark and Greenland.`\
 https://nytimes.com/2025/09/22/world/europe/denmark-greenland-baby-reunited.html

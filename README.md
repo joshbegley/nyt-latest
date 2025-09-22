@@ -1,3 +1,15 @@
+**Earthquake Jolts Bay Area Residents Awake**\
+`A 4.3-magnitude earthquake was strong enough to rattle nerves in the middle of the night, especially in the heavily populated East Bay where it was centered.`\
+https://nytimes.com/2025/09/22/us/earthquake-bay-area-berkeley.html
+
+**49ers DE Nick Bosa out for season with torn ACL: Source**\
+`Bosa left Sunday's game late in the first quarter and did not return.`\
+https://nytimes.com/athletic/6652130/2025/09/22/nick-bosa-acl-injury-update-status-49ers/
+
+**Tiger Handler Linked to Joe Exotic Is Fatally Mauled by Tiger**\
+`Ryan Easley, 37, was performing at his family-run private zoo in Hugo, Okla., when a tiger attacked him, the authorities said. He was pronounced dead at the scene.`\
+https://nytimes.com/2025/09/22/us/tiger-handler-mauled-dead-joe-exotic.html
+
 **NASA Picks 10 New Astronauts as Focus Shifts to the Moon and Mars**\
 `The astronaut candidates will begin two years of training before becoming eligible for missions to low-Earth orbit and beyond.`\
 https://nytimes.com/2025/09/22/science/nasa-new-astronauts.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6652413/2025/09/22/bruce-pearl-retiring-auburn-bask
 **What does it mean to be a state?**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2025/09/22/world/united-nations-assembly/what-does-it-mean-to-be-a-state
-
-**Here’s what to know about the Palestinian statehood conference.**\
-`By Farnaz Fassihi`\
-https://nytimes.com/live/2025/09/22/world/united-nations-assembly/what-to-know-about-the-palestinian-statehood-conference
-
-**Live Updates: Palestinian Statehood Takes Center Stage at U.N. Summit**\
-`About 10 countries are expected to join the 147 other member states of the U.N. that consider Palestine a sovereign nation.`\
-https://nytimes.com/live/2025/09/22/world/united-nations-assembly
-
-**Yet another Seahawks DB is shining off the bench, reinforcing Seattle's defensive identity**\
-`Less than a month after joining Seattle, Derion Kendrick is tied for the NFL lead in interceptions. Here's why the team isn't surprised.`\
-https://nytimes.com/athletic/6652150/2025/09/22/derion-kendrick-seahawks-mike-macdonald/
 
