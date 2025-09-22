@@ -1,3 +1,7 @@
+**As NFL resumes international series, could an overseas Super Bowl be in the future?**\
+`"We're clearly focused on the near term with Super Bowls in the U.S.," NFL executive vice president Peter O'Reilly said Monday.`\
+https://nytimes.com/athletic/6652017/2025/09/22/nfl-international-super-bowl-draft/
+
 **Sabres depth chart 1.0: Roster battles, where things stand entering preseason**\
 `Here’s our first look at the lines and defensive pairs the Sabres are zeroing in on heading into the regular season.`\
 https://nytimes.com/athletic/6652115/2025/09/22/sabres-depth-chart-2025-season/
