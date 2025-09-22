@@ -1,3 +1,11 @@
+**Bears break out of funk and give Chicago fans a taste of football happiness**\
+`Caleb Williams shined in a coming-out party for Ben Johnson's offense, which finished with 385 yards, an average of 6.8 per play.`\
+https://nytimes.com/athletic/6650523/2025/09/21/bears-cowboys-caleb-williams-ben-johnson-offense/
+
+**'This is our style of football': With stifling defense, Browns earn gutsy win vs. Packers**\
+`Cleveland's win brings hope that maybe this season of awkward transition and offensive limitation isn’t completely lost.`\
+https://nytimes.com/athletic/6650201/2025/09/21/browns-win-defense-packers/
+
 **Seahawks dreaming bigger after dominating Saints and snapping home skid**\
 `The Seahawks are starting to look like they have no shortage of weapons. "It feels good to dominate somebody," Uchenna Nwosu said.`\
 https://nytimes.com/athletic/6650504/2025/09/21/seahawks-saints-week-3-blowout/
