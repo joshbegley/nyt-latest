@@ -1,3 +1,7 @@
+**Trump’s Fed Pick Outlines Case for Slashing Interest Rates**\
+`Stephen Miran, who joined the central bank last week, said he believes rates should be around 2.5 percent, or about 2 percentage points lower than they are currently.`\
+https://nytimes.com/2025/09/22/business/trump-fed-interest-rates.html
+
 **Not So Naked After All**\
 `Things were looking a lot more covered up at New York Fashion Week.`\
 https://nytimes.com/2025/09/22/style/new-york-fashion-week-conservatism-trend.html
