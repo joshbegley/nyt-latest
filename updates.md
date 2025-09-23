@@ -1,3 +1,7 @@
+**The Bears Are Back and They’re Fatter Than Ever**\
+`It is Fat Bear Week in Alaska. The popular competition lets anyone vote on which of the animals is most prepared for winter.`\
+https://nytimes.com/2025/09/23/style/fat-bear-week-katmai-alaska.html
+
 **Struggles for Free Expression on Campus**\
 `Readers, including the author Jhumpa Lahiri, respond to the Barnard president’s guest essay about speakers at universities. Also: The benefits of trees.`\
 https://nytimes.com/2025/09/23/opinion/free-speech-campus-barnard.html
