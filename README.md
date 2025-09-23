@@ -1,3 +1,7 @@
+**Scottie Scheffler says President Trump calls him after tournament wins**\
+`"He loves the game of golf, he loves supporting golfers," Scheffler said.`\
+https://nytimes.com/athletic/6654680/2025/09/23/scottie-scheffler-president-trump-golf-ryder-cup/
+
 **Her Torte Will Outlast Us All**\
 `Pete Wells remembers Marian Burros, a tenacious food reporter whose plum torte became one of The Times’s most famous recipes.`\
 https://nytimes.com/2025/09/23/dining/plum-torte-marian-burros.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6653830/2025/09/23/jaxson-dart-russell-wilson-ny-gi
 **Kulusevski has 'good chance' to return from injury before end of 2025**\
 `Meanwhile, Spurs coach Thomas Frank said Randal Kolo Muani and Ben Davies will not be fit to face Doncaster Rovers on Wednesday.`\
 https://nytimes.com/athletic/6654646/2025/09/23/dejan-kulusevski-injury-tottenham-latest/
-
-**Guterres warns of ‘relentless’ suffering and says the U.N.’s principles ‘are under siege.’**\
-`By Farnaz Fassihi`\
-https://nytimes.com/live/2025/09/23/world/un-general-assembly-trump/guterres-speech-un-general-assembly
 
