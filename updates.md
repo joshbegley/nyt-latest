@@ -1,3 +1,7 @@
+**How to watch BYU at Colorado: Time, TV, streaming**\
+`Find out how to watch the BYU Cougars play the Colorado Buffaloes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6653967/2025/09/23/byu-vs-colorado-stream-how-to-watch-sept-27/
+
 **How to watch Rockies at Mariners: Time, TV, streaming for September 23**\
 `Find out how to watch the Colorado Rockies play the Seattle Mariners, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6653918/2025/09/23/rockies-vs-mariners-stream-how-to-watch-sept-23/
