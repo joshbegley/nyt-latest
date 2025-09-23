@@ -1,3 +1,15 @@
+**Atletico Madrid coach Simeone facing UEFA disciplinary proceedings after Liverpool red card**\
+`Simeone said after the game that his actions were "not justifiable"`\
+https://nytimes.com/athletic/6640841/2025/09/23/diego-simeone-atletico-madrid-red-card-uefa/
+
+**In Rare China Visit, U.S. Lawmakers Call Lack of Military Talks ‘Dangerous’**\
+`The bipartisan delegation said more conversations were necessary to avoid accidental “miscalculations and misunderstandings” that could lead to conflict.`\
+https://nytimes.com/2025/09/23/world/asia/us-china-trump-xi.html
+
+**China Braces for the Worst as Typhoon Ragasa Barrels Toward Its Coast**\
+`Hong Kong canceled hundreds of flights, Macau shuttered casinos and the city of Shenzhen plans to evacuate 400,000 people.`\
+https://nytimes.com/2025/09/23/world/asia/typhoon-ragasa-hong-kong-china.html
+
 **How to watch Cardinals at Giants: Time, TV, streaming for September 23**\
 `Find out how to watch the St. Louis Cardinals play the San Francisco Giants, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6654110/2025/09/23/cardinals-vs-giants-stream-how-to-watch-sept-23/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/23/technology/larry-ellison-oracle-tiktok.html
 **Elon Musk’s Father Accused of Child Sexual Abuse**\
 `Errol Musk has been accused of sexually abusing five of his children and stepchildren since 1993, a Times investigation found. Family members had appealed to Elon Musk for help.`\
 https://nytimes.com/video/business/100000010404622/elon-musks-father-accused-of-child-sexual-abuse.html
-
-**In Greenwich, Conn., a Bucolic Retreat for a High-Powered Adman**\
-`Andrew Robertson, who ran BBDO Worldwide for 20 years, and his wife, Susan, are selling their six-acre home. The asking price is $13.75 million.`\
-https://nytimes.com/2025/09/23/realestate/andrew-robertson-bbdo-house-for-sale.html
-
-**What Disturbing Art Can Teach Us About Our Own Shame and Fear**\
-`What 18th-century sculptures taught me about my stutter.`\
-https://nytimes.com/2025/09/23/magazine/art-stutter.html
-
-**The Dark Side of a Cultural Exchange Program**\
-`Some workers who came to New York on J-1 visas, hoping for job training and a taste of America, said their employers had exploited and abused them.`\
-https://nytimes.com/2025/09/23/nyregion/the-dark-side-of-a-cultural-exchange-program.html
 
