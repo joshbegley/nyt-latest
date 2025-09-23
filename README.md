@@ -1,3 +1,11 @@
+**Paratici, Agnelli get suspended sentences after entering plea bargain in Prisma case**\
+`The Prisma investigation began in 2021 and led to the executives receiving bans from Italian football in 2023.`\
+https://nytimes.com/athletic/6654193/2025/09/23/former-juventus-executives-financial-investigation-agnelli-paratici/
+
+**Weekly Student News Quiz: Hollywood Icon, Late-Night TV, Braces**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/09/23/learning/22Student-News-Quiz.html
+
 **Aston Villa's new sporting director Roberto Olabe: Who is the man replacing Monchi?**\
 `The 57-year-old Spaniard is best known for his work at Real Sociedad and first worked with Unai Emery back in 2006`\
 https://nytimes.com/athletic/6654206/2025/09/23/aston-villa-sporting-director-roberto-olabe-monchi/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6654195/2025/09/23/dembele-ballon-dor-human-rights-
 **Three Red Sox takeaways ahead of season-defining closing stretch**\
 `At 85-71, the Sox have already secured their most wins since their last trip to the postseason in 2021.`\
 https://nytimes.com/athletic/6651888/2025/09/23/red-sox-takeaways-end-of-season-stretch/
-
-**Orion Kerkering's season hasn't gone to plan: The Phillies need him to find it for October**\
-`It has taken Kerkering time to accept the failures that forced the Phillies to move him down the bullpen list. Now, it's all about October.`\
-https://nytimes.com/athletic/6652330/2025/09/23/orion-kerkering-2025-season-playoffs/
-
-**How the Guardians survived a summer of adversity: Good days, bad days and sleepless nights**\
-`Their season was "over" at least twice, but the Guardians have found a way — thanks to their starters — to get back in the postseason hunt.`\
-https://nytimes.com/athletic/6652388/2025/09/23/cleveland-guardians-season-revival-playoff-chase/
 
