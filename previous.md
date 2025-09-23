@@ -1,40 +1,40 @@
-**Arsenal's Madueke facing around two months out with knee injury**\
-`Madueke was withdrawn for the returning Bukayo Saka at half-time of Sunday's 1-1 draw with Manchester City.`\
-https://nytimes.com/athletic/6651314/2025/09/23/noni-madueke-knee-injury-arsenal/
+**Defense Department Delays Cleanup of ‘Forever Chemicals’ Nationwide**\
+`The new timeline could slow cleanup in some communities by nearly a decade. The chemicals, widely used in the military, are linked to cancers and other health risks.`\
+https://nytimes.com/2025/09/23/climate/military-defense-pfas-forever-chemicals-cleanup-delay.html
 
-**Hong Kong Prepares for Typhoon Ragasa**\
-`Hong Kong residents prepared for the worst as Typhoon Ragasa, the most powerful storm so far this year, prompted thousands of evacuations and hundreds of flight cancellations.`\
-https://nytimes.com/video/world/asia/100000010415862/typhoon-ragasa-hong-kong-china.html
+**Ditch the Dating Apps. Sit at the Bar.**\
+`One influencer’s advice has giving some singles the permission — and confidence — to look for love offline. It’s “Sit at the Bar September.”`\
+https://nytimes.com/2025/09/23/dining/sit-at-the-bar-september.html
 
-**Sunderland's Diarra out until December after undergoing surgery on groin injury**\
-`Sunderland confirmed in a statement that the Senegal international is set to return to action in December.`\
-https://nytimes.com/athletic/6654034/2025/09/23/sunderland-news-diarra-injury-surgery/
+**This Is a Perfect Los Angeles Restaurant for Right Now**\
+`It’s not your regular bistro, it’s Baby Bistro.`\
+https://nytimes.com/2025/09/23/dining/restaurant-review-baby-bistro-los-angeles.html
 
-**Jaguar Land Rover Says Cyberattack Will Halt Production Through Oct. 1**\
-`The company shut down production in early September to contain the breach. It had previously said it planned to resume operations on Sept. 24.`\
-https://nytimes.com/2025/09/23/business/jaguar-land-rover-cyberattack-production.html
+**Trump Could Help the Housing Crisis, if He Just Did Everything Differently**\
+`The administration simply needs to reverse some of its biggest policy items.`\
+https://nytimes.com/2025/09/23/opinion/trump-housing-crisis.html
 
-**Zodiac Sign**\
-`Do you know yours? Do you care about it?`\
-https://nytimes.com/2025/09/23/learning/zodiac-sign.html
+**The Sisters Behind Fragonard Open a Major Fashion Museum in Provence**\
+`After years of amassing French costumes, textiles and other finery, the Costas are sharing that collection publicly, in a renovated mansion in Arles.`\
+https://nytimes.com/2025/09/23/arts/design/fragonard-fashion-museum-provence.html
 
-**N.Y.P.D. Misconduct Complaints Surged Under Adams, Report Says**\
-`The number of misconduct reports to a watchdog agency increased 60 percent under Mayor Eric Adams and last year were the highest in a decade, according to a city report.`\
-https://nytimes.com/2025/09/23/nyregion/nypd-misconduct-complaints-surge.html
+**How Democrats Can Win Back Trust on Immigration**\
+`President Trump has given liberals an opening on a tough issue.`\
+https://nytimes.com/2025/09/23/opinion/democrats-immigration-trump.html
 
-**10 Questions With Curtis Sliwa**\
-`Curtis Sliwa, the Republican nominee for mayor of New York City, visited The New York Times for an interview.`\
-https://nytimes.com/2025/09/23/nyregion/curtis-sliwa-interview.html
+**Were They Abducted by Aliens, or Is Their Memory Just Spotty?**\
+`Ilana Masad’s new novel, “Beings,” weaves together three separate story lines to explore how we process and narrate our lives.`\
+https://nytimes.com/2025/09/23/books/review/beings-ilana-masad.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/09/23/crosswords/spelling-bee-forum.html
+**In Mexico City, a Convent Turned Art Lab Confounds Expectations**\
+`The Alameda Art Laboratory is housed in a cavernous sacred building dating to 1591, providing a sharp contrast to the technology-driven objects on display.`\
+https://nytimes.com/2025/09/23/arts/design/alameda-art-laboratory-mexico-city.html
 
-**A Tiny Seabird Faces Growing Threats in the Forest**\
-`Nesting often high in the redwoods’ canopy, the marbled murrelet faces new and longstanding risks.`\
-https://nytimes.com/2025/09/23/science/marbled-murrelet-endangered-redwoods.html
+**A 300-Year-Old Manor That Epitomizes British Maximalism**\
+`In the gentle hills of the Cotswolds, the accessories designer Lulu Guinness has indulged her magpie tendencies.`\
+https://nytimes.com/2025/09/23/t-magazine/lulu-guinness-maximalist-house.html
 
-**How the N.Y.C. Mayoral Candidates Plan to Tackle Homelessness**\
-`The candidates’ views on addressing homelessness in New York City differ vastly, with calls to expand mental health services, overhaul the shelter system and change policing.`\
-https://nytimes.com/2025/09/23/nyregion/nyc-mayor-homelessness.html
+**The Three-Hour Challenge: 180 Minutes with ‘Las Meninas’**\
+`For years, a professor has assigned her students to spend three hours with an artwork. A reporter tried this “immersive attention” experiment with a Velázquez masterpiece.`\
+https://nytimes.com/2025/09/23/arts/design/art-velazquez-immersive-attention.html
 
