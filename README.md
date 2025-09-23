@@ -1,3 +1,11 @@
+**Ekitike red card vs Southampton 'needless and stupid' - Slot**\
+`"If I had scored a goal like this I would have walked up to Federico Chiesa and said, 'this goal is all about you, not about me'," Slot said`\
+https://nytimes.com/athletic/6655915/2025/09/23/hugo-ekitike-red-card-liverpool-slot/
+
+**‘What Is the Purpose of the United Nations?’ Trump Asks**\
+`During a meandering address, President Trump questioned whether the United Nations should exist and criticized its member states on immigration policies he claimed were ruining their way of life.`\
+https://nytimes.com/video/world/100000010416179/trump-criticizes-united-nations.html
+
 **Harvard Dean Was Paid $150,000 as an Expert Witness in Tylenol Lawsuits**\
 `The Trump administration has cited Dr. Andrea Baccarelli’s expertise to warn against using acetaminophen — the active ingredient in Tylenol — in pregnancy, based on an unproven autism link.`\
 https://nytimes.com/2025/09/23/health/harvard-dean-autism-tylenol-lawsuits-payment.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/23/us/camp-mystic-texas.html
 **What to Expect on ‘Jimmy Kimmel Live!’**\
 `Jimmy Kimmel will break his silence on Tuesday night on the controversy that temporarily sidelined his late-night show.`\
 https://nytimes.com/2025/09/23/business/media/jimmy-kimmel-return-monologue.html
-
-**Trump Lectures the World at the U.N.**\
-`In a scathing speech at the General Assembly, the president complained about immigration, green energy and the United Nations itself.`\
-https://nytimes.com/2025/09/23/briefing/trump-un-world-elon-musk-abuse-ukraine.html
-
-**Joe Stevens, Photographer of Rock’s Intimate Moments, Dies at 87**\
-`After a career shift, he became a fixture in the music world, capturing enduring images of David Bowie, John Lennon, the Sex Pistols and many others.`\
-https://nytimes.com/2025/09/23/arts/music/joe-stevens-dead.html
 
