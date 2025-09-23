@@ -1,3 +1,7 @@
+**Her Torte Will Outlast Us All**\
+`Pete Wells remembers Marian Burros, a tenacious food reporter whose plum torte became one of The Times’s most famous recipes.`\
+https://nytimes.com/2025/09/23/dining/plum-torte-marian-burros.html
+
 **Leafs goalie Joseph Woll taking leave of absence for 'personal family matter'**\
 `GM Brad Treliving said there was no timeline on Woll’s return.`\
 https://nytimes.com/athletic/6654728/2025/09/23/leafs-joseph-woll-leave-absence/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6654646/2025/09/23/dejan-kulusevski-injury-tottenha
 **Guterres warns of ‘relentless’ suffering and says the U.N.’s principles ‘are under siege.’**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2025/09/23/world/un-general-assembly-trump/guterres-speech-un-general-assembly
-
-**Arsenal’s Ballon d'Or win reflects their relentless rise to the forefront of women's game**\
-`While last season's Champions League triumph no doubt played a major part in Arsenal’s award win, there is also a deeper recognition at play`\
-https://nytimes.com/athletic/6654215/2025/09/23/arsenal-ballon-dor-win-slegers-russo-caldentey/
 
