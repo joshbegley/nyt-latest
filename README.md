@@ -1,3 +1,11 @@
+**How to watch Cardinals at Giants: Time, TV, streaming for September 23**\
+`Find out how to watch the St. Louis Cardinals play the San Francisco Giants, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6654110/2025/09/23/cardinals-vs-giants-stream-how-to-watch-sept-23/
+
+**How to watch Brewers at Padres: Time, TV, streaming for September 23**\
+`Find out how to watch the Milwaukee Brewers play the San Diego Padres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6654105/2025/09/23/brewers-vs-padres-stream-how-to-watch-sept-23/
+
 **Sterlin Harjo Isn’t Afraid of the Sophomore Slump**\
 `“The Lowdown,” Harjo’s follow-up to the acclaimed “Reservation Dogs,” is a Tulsa noir steeped in corruption and myth. “I’m trying to put onscreen my ideas of what my home is,” he said.`\
 https://nytimes.com/2025/09/23/arts/television/sterlin-harjo-the-lowdown.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/23/magazine/art-stutter.html
 **The Dark Side of a Cultural Exchange Program**\
 `Some workers who came to New York on J-1 visas, hoping for job training and a taste of America, said their employers had exploited and abused them.`\
 https://nytimes.com/2025/09/23/nyregion/the-dark-side-of-a-cultural-exchange-program.html
-
-**Trump’s Malice Is Not an Instrument of God’s Plan**\
-`If MAGA evangelicals cheer the president’s hatred, if they welcome it, if they adopt it, and if they vote for it, then they are responsible for it.`\
-https://nytimes.com/2025/09/23/opinion/erika-kirk-charlie-trump-miller.html
-
-**The Trump Vengeance Tour Is Coming to a Stadium Near You**\
-`The MAGA movement’s encirclement maneuver is gaining ground.`\
-https://nytimes.com/2025/09/23/opinion/media-trump-ellison-murdoch-kirk.html
 
