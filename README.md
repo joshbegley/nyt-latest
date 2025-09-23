@@ -1,5 +1,17 @@
-**Atletico Madrid coach Simeone facing UEFA disciplinary proceedings after Liverpool red card**\
-`Simeone said after the game that his actions were "not justifiable"`\
+**Week 4 NFL Power Rankings: 49ers, Bears rise as injuries take their toll on QBs**\
+`Justin Herbert, Caleb Williams looked like stars in leading their teams to victory, but not every QB situation inspires as much confidence.`\
+https://nytimes.com/athletic/6652493/2025/09/23/nfl-power-rankings-week-4-caleb-williams-bears-49ers/
+
+**NFL QB stock report, Week 4: Is Texans' C.J. Stroud playing his way out of extension?**\
+`It once seemed like a foregone conclusion that Houston would pay Stroud. Given how poorly he's played lately, maybe it's not a slam dunk.`\
+https://nytimes.com/athletic/6652449/2025/09/23/qb-stock-report-cj-stroud-rankings-texans/
+
+**The New York Times International Edition in Print for Wednesday, Sep. 24, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/09/23/todays-new-york-times-international-edition
+
+**Atletico's Simeone charged by UEFA after Liverpool red card**\
+`Simeone said after the game that his actions were "not justifiable".`\
 https://nytimes.com/athletic/6640841/2025/09/23/diego-simeone-atletico-madrid-red-card-uefa/
 
 **In Rare China Visit, U.S. Lawmakers Call Lack of Military Talks ‘Dangerous’**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/23/arts/television/sterlin-harjo-the-lowdown.html
 **Why African Countries Keep Making Deals to Accept U.S. Deportees**\
 `As the Trump administration exerts pressure on countries to aid in its mass deportation efforts, some nations in Africa have agreed, prompting legal battles.`\
 https://nytimes.com/2025/09/23/world/africa/african-countries-us-deportees.html
-
-**‘Shrekking’? Intelligence Gaps? When Did We Get So Cruel to Our Lovers?**\
-`Social media users have coined new, even meaner terms for “dating down.”`\
-https://nytimes.com/2025/09/23/style/dating-relationships-intelligence-gap-shrekking.html
-
-**Larry Ellison, a Media Mogul Like No Other**\
-`The database billionaire and his son, David, are Trump favorites. The family could soon control an empire that includes CBS, Paramount, Warner, CNN and a piece of TikTok.`\
-https://nytimes.com/2025/09/23/technology/larry-ellison-oracle-tiktok.html
-
-**Elon Musk’s Father Accused of Child Sexual Abuse**\
-`Errol Musk has been accused of sexually abusing five of his children and stepchildren since 1993, a Times investigation found. Family members had appealed to Elon Musk for help.`\
-https://nytimes.com/video/business/100000010404622/elon-musks-father-accused-of-child-sexual-abuse.html
 
