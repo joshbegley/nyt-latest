@@ -1,3 +1,11 @@
+**Aston Villa's new sporting director Roberto Olabe: Who is the man replacing Monchi?**\
+`The 57-year-old Spaniard is best known for his work at Real Sociedad and first worked with Unai Emery back in 2006`\
+https://nytimes.com/athletic/6654206/2025/09/23/aston-villa-sporting-director-roberto-olabe-monchi/
+
+**How Michigan is adapting and evolving: 5 trends to watch after 4 games**\
+`When his suspension ended late Saturday night, Sherrone Moore returned to a team that’s 3-1 with a renewed sense of its own potential.`\
+https://nytimes.com/athletic/6652778/2025/09/23/michigan-bryce-underwood-sherrone-moore/
+
 **Presidents Can Declare Emergencies. How Much Power Should That Give Them?**\
 `President Trump has declared 10 emergencies since being back in office. Legal experts are asking: Are these declarations justified, or is he using them to gain more power?`\
 https://nytimes.com/2025/09/23/learning/presidents-can-declare-emergencies-how-much-power-should-that-give-them.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6652330/2025/09/23/orion-kerkering-2025-season-play
 **How the Guardians survived a summer of adversity: Good days, bad days and sleepless nights**\
 `Their season was "over" at least twice, but the Guardians have found a way — thanks to their starters — to get back in the postseason hunt.`\
 https://nytimes.com/athletic/6652388/2025/09/23/cleveland-guardians-season-revival-playoff-chase/
-
-**49ers minutia minute: Mykel Williams, Bryce Huff stepped up after Nick Bosa went down**\
-`Christian McCaffrey seems to have a legitimate shot at another 1,000-1,000-yard season ... if the 49ers can get their run game going.`\
-https://nytimes.com/athletic/6653043/2025/09/23/nick-bosa-injury-mykel-williams-bryce-huff/
-
-**Submit questions for Nate Atkins' Rams mailbag**\
-`Atkins will consider your questions for his upcoming mailbag following the Rams' heartbreaking loss to the Eagles. `\
-https://nytimes.com/athletic/6654010/2025/09/23/rams-mailbag-eagles-week-3/
 
