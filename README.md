@@ -1,3 +1,7 @@
+**Word of the Day: untrammeled**\
+`This word has appeared in 20 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/09/23/learning/word-of-the-day-untrammeled.html
+
 **Ballon d'Or snub? Bonmati’s third award exposes voting flaws**\
 `Bonmantí is one of the best in the world, but that doesn't mean the door should be closed for players like Mariona Caldentey`\
 https://nytimes.com/athletic/6653632/2025/09/23/aitana-bonmati-third-ballon-dor-expose-superficial-judgment/
@@ -18,7 +22,7 @@ https://nytimes.com/athletic/6650347/2025/09/23/san-diego-padres-postseason-bert
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/23/todays-new-york-times
 
-**The Downside of China’s Death Match Economy**\
+**The New Buzzword That’s Scaring China**\
 `China’s problem with competition is that it’s too brutal.`\
 https://nytimes.com/2025/09/23/opinion/china-economy-deflation-neijuan.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/23/briefing/un-trump-france-palestine.html
 **Putting Crystal Palace's 17-match unbeaten run into a European context**\
 `Oliver Glasner's team have not lost a game since April, an impressive record which Europe's elite teams do not come close to matching`\
 https://nytimes.com/athletic/6647211/2025/09/23/crystal-palace-unbeaten-europe-bayern-barcelona/
-
-**Unification Church Leader Is Arrested on Corruption Charges in South Korea**\
-`Han Hak-ja — the widow of the church’s founder, the Rev. Sun Myung Moon — was accused of bribing a former first lady for business and political favors.`\
-https://nytimes.com/2025/09/23/world/asia/unification-church-leader-han-arrest.html
 

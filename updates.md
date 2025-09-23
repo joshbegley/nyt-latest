@@ -1,3 +1,7 @@
+**Ballon d'Or snub? Bonmati’s third award exposes voting flaws**\
+`Bonmantí is one of the best in the world, but that doesn't mean the door should be closed for players like Mariona Caldentey`\
+https://nytimes.com/athletic/6653632/2025/09/23/aitana-bonmati-third-ballon-dor-expose-superficial-judgment/
+
 **Ballon d'Or takeaways: Partisan Paris crowd, Dembele streaming PSG and Gullit's Wiegman hope**\
 `The Athletic attended the Ballon d'Or ceremony on Monday evening and took in the moments you might not have seen`\
 https://nytimes.com/athletic/6653517/2025/09/23/ballon-dor-ousmane-dembele-takeaways/

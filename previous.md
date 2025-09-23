@@ -1,3 +1,7 @@
+**Ballon d'Or snub? Bonmati’s third award exposes voting flaws**\
+`Bonmantí is one of the best in the world, but that doesn't mean the door should be closed for players like Mariona Caldentey`\
+https://nytimes.com/athletic/6653632/2025/09/23/aitana-bonmati-third-ballon-dor-expose-superficial-judgment/
+
 **Ballon d'Or takeaways: Partisan Paris crowd, Dembele streaming PSG and Gullit's Wiegman hope**\
 `The Athletic attended the Ballon d'Or ceremony on Monday evening and took in the moments you might not have seen`\
 https://nytimes.com/athletic/6653517/2025/09/23/ballon-dor-ousmane-dembele-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6647211/2025/09/23/crystal-palace-unbeaten-europe-b
 **Unification Church Leader Is Arrested on Corruption Charges in South Korea**\
 `Han Hak-ja — the widow of the church’s founder, the Rev. Sun Myung Moon — was accused of bribing a former first lady for business and political favors.`\
 https://nytimes.com/2025/09/23/world/asia/unification-church-leader-han-arrest.html
-
-**Remembering Clough, Tear Gas, Hangovers, and Nottingham Forest's glory years... over a latte**\
-`Every Wednesday for decades, these Nottingham Forest fans have met at a cafe next to a statue of Brian Clough`\
-https://nytimes.com/athletic/6634038/2025/09/23/nottingham-forest-coffee-club/
 
