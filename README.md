@@ -1,3 +1,27 @@
+**Trump Lectures the World at the U.N.**\
+`In a scathing speech at the General Assembly, the president complained about immigration, green energy and the United Nations itself.`\
+https://nytimes.com/2025/09/23/briefing/trump-un-world-elon-musk-abuse-ukraine.html
+
+**Joe Stevens, Photographer of Rock’s Intimate Moments, Dies at 87**\
+`After a career shift, he became a fixture in the music world, capturing enduring images of David Bowie, John Lennon, the Sex Pistols and many others.`\
+https://nytimes.com/2025/09/23/arts/music/joe-stevens-dead.html
+
+**Scoop City: The rookie running back quagmire**\
+`The mystery of the struggling rookie running backs, plus fantasy prep and Jake Ciely's buy-low.`\
+https://nytimes.com/athletic/6655852/2025/09/23/rookie-running-back-questions-ashton-jeanty-fantasy-scoop-city/
+
+**Jamaican Citizen Deported to African Prison by U.S. Returns Home**\
+`The decision by the Trump administration to send Orville Etoria to Eswatini, where he had no ties, raised alarm among rights groups.`\
+https://nytimes.com/2025/09/23/world/africa/us-deportations-eswatini-jamaica.html
+
+**Supreme Leader Says Iran Has No Plans for Nuclear Weapon**\
+`The speech came as Iran and Europe negotiate over sanctions on the sidelines at the U.N. General Assembly. But Ayatollah Ali Khamenei said he opposed talks with the U.S., a key European demand.`\
+https://nytimes.com/2025/09/23/world/supreme-leader-says-iran-has-no-plans-for-nuclear-weapon.html
+
+**Liverpool 2 Southampton 1 - Why was Ekitike sent off? What happened to Leoni? Is Isak up to speed?**\
+`Analysis of Liverpool's Carabao Cup victory over Southampton `\
+https://nytimes.com/athletic/6655392/2025/09/23/liverpool-ekitike-red-card-highlights/
+
 **Joe Rogan Has Some Thoughts About Jimmy Kimmel’s Suspension**\
 `The influential podcaster said, “I definitely don’t think that the government should be involved, ever, in dictating what a comedian can or cannot say in a monologue.”`\
 https://nytimes.com/2025/09/23/arts/joe-rogan-jimmy-kimmel.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/09/23/opinion/free-speech-kimmel-kirk-left.html
 **OpenAI to Join Tech Giants in Building 5 New Data Centers in U.S.**\
 `Working with the Japanese conglomerate SoftBank and the cloud company Oracle, the A.I. start-up will spend $400 billion over the next five years.`\
 https://nytimes.com/2025/09/23/technology/openai-data-centers-united-states.html
-
-**If Only We’d Fight as Hard to Save Our Democracy as Ukrainians Are to Save Theirs**\
-`Ukrainians know that they can no longer count on an American democracy to save them.`\
-https://nytimes.com/2025/09/23/opinion/ukraine-israel-russia-gaza-trump-america.html
-
-**Overreacting to the first 17 at-bats of Bryce Eldridge's career**\
-`Eldridge has seen just 99 pitches in the majors, but they've included almost everything we were told to expect from him.`\
-https://nytimes.com/athletic/6655112/2025/09/23/bryce-eldridge-giants-overreaction/
-
-**Former G League player Thierry Darlan ruled eligible by the NCAA to play at Santa Clara**\
-`Darlan previously declared for the 2025 NBA Draft but later withdrew his name. He is a graduate of the NBA Academy Africa program.`\
-https://nytimes.com/athletic/6655724/2025/09/23/g-league-player-eligible-santa-clara-thierry-darlan/
-
-**Stuck in Traffic, French President Macron Calls Trump About His Motorcade**\
-`The French head of state experienced a frustration that many New Yorkers know all too well. He got stuck during the U.N. General Assembly.`\
-https://nytimes.com/2025/09/23/us/macron-trump-unga-motorcade.html
-
-**Judge Orders N.I.H. to Restore Suspended Research Grants at U.C.L.A.**\
-`The ruling is a preliminary injunction in a lawsuit over the Trump administration’s termination of hundreds of millions of research grants to the California university.`\
-https://nytimes.com/2025/09/23/health/ucla-research-grants.html
-
-**Oklahoma QB John Mateer to undergo hand surgery, return date unclear**\
-`Mateer, who emerged as a leading Heisman Trophy candidate, is expected to return to game action "sometime this season," Oklahoma announced.`\
-https://nytimes.com/athletic/6655742/2025/09/23/john-mateer-oklahoma-injury-hand-surgery/
 
