@@ -1,3 +1,11 @@
+**‘I Hate My Opponent’: Trump’s Remarks at Kirk Memorial Distill His Politics**\
+`President Trump has been fueled by grievance and animosity over the course of his political and public life.`\
+https://nytimes.com/2025/09/22/us/politics/trumps-hate-vengeance-politics.html
+
+**France and Other World Leaders Recognize Palestinian Statehood**\
+`France and three other nations joined an international movement to recognize Palestinian sovereignty at a United Nations summit on Monday.`\
+https://nytimes.com/video/world/middleeast/100000010415454/france-recognizes-palestinian-statehood-unga.html
+
 **How to watch Twins at Rangers: Time, TV, streaming for September 23**\
 `Find out how to watch the Minnesota Twins play the Texas Rangers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6653476/2025/09/22/twins-vs-rangers-stream-how-to-watch-sept-23/
