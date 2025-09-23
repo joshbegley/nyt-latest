@@ -1,3 +1,11 @@
+**Republican Who Has Criticized the Police Wins Major Union’s Endorsement**\
+`The Fraternal Order of Police in New Jersey endorsed Jack Ciattarelli for governor over his Democratic opponent, Representative Mikie Sherrill.`\
+https://nytimes.com/2025/09/23/nyregion/jack-ciattarelli-new-jersey-police-endorsement.html
+
+**Trump Pushes Unproven Link Between Tylenol and Autism**\
+`Top U.S. health officials urged pregnant women not to use acetaminophen, the active ingredient in Tylenol, claiming it could cause autism, though studies have been inconclusive. Azeen Ghorayshi, a science reporter for The New York Times, explains.`\
+https://nytimes.com/video/science/100000010414944/trump-pushes-unproven-link-between-tylenol-and-autism.html
+
 **Why Take Tylenol During Pregnancy? The Risks of Fevers.**\
 `Fevers during pregnancy can be dangerous, and acetaminophen is the go-to treatment for them. Doctors worry what will happen if women are afraid to take it.`\
 https://nytimes.com/2025/09/23/well/tylenol-pregnancy-fevers.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6655207/2025/09/23/jaxson-dart-giants-starting-qb-t
 **Boston to Pay $150,000 to 2 Black Men Wrongly Accused in White Woman’s Killing**\
 `Boston’s mayor, Michelle Wu, apologized in 2023 to Alan Swanson and Willie Bennett for the actions of police after the 1989 killing of Carol Stuart.`\
 https://nytimes.com/2025/09/23/us/black-men-wrongly-accused-1989-murder.html
-
-**Oklahoma State needs a new coach. Here are the top candidates to replace Mike Gundy**\
-`Four current college football head coaches are joined by numerous coordinators among Oklahoma State candidates to replace Gundy.`\
-https://nytimes.com/athletic/6655512/2025/09/23/oklahoma-state-coach-candidates-mike-gundy-fired/
-
-**At the U.N., Trump Bashed World Leaders**\
-`Also, Jimmy Kimmel returns. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2025/09/23/briefing/trump-un-speech-jimmy-kimmel-return.html
 

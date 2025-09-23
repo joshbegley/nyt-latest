@@ -1,3 +1,11 @@
+**Republican Who Has Criticized the Police Wins Major Union’s Endorsement**\
+`The Fraternal Order of Police in New Jersey endorsed Jack Ciattarelli for governor over his Democratic opponent, Representative Mikie Sherrill.`\
+https://nytimes.com/2025/09/23/nyregion/jack-ciattarelli-new-jersey-police-endorsement.html
+
+**Trump Pushes Unproven Link Between Tylenol and Autism**\
+`Top U.S. health officials urged pregnant women not to use acetaminophen, the active ingredient in Tylenol, claiming it could cause autism, though studies have been inconclusive. Azeen Ghorayshi, a science reporter for The New York Times, explains.`\
+https://nytimes.com/video/science/100000010414944/trump-pushes-unproven-link-between-tylenol-and-autism.html
+
 **Why Take Tylenol During Pregnancy? The Risks of Fevers.**\
 `Fevers during pregnancy can be dangerous, and acetaminophen is the go-to treatment for them. Doctors worry what will happen if women are afraid to take it.`\
 https://nytimes.com/2025/09/23/well/tylenol-pregnancy-fevers.html
