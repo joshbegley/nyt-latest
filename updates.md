@@ -1,3 +1,7 @@
+**Trump Signs Order Targeting Antifa Movement**\
+`President Trump’s executive order threatened to prosecute donors who support antifascist philosophy and issued a domestic terrorism designation that doesn’t exist under U.S. law.`\
+https://nytimes.com/2025/09/22/us/politics/trump-antifa-order-terrorism.html
+
 **In Georgia, a ‘Sponge Park’ Floods So the Neighborhood Won’t**\
 `Dozens of houses were razed across a flood-prone neighborhood in Atlanta, mitigating floods and creating a long-desired park in the process.`\
 https://nytimes.com/2025/09/22/climate/climate-georgia-sponge-park-flooding.html
