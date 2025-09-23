@@ -1,3 +1,15 @@
+**French President Is Stopped by Trump’s Motorcade in New York**\
+`President Emmanuel Macron of France, in New York for the 80th United Nations General Assembly, was briefly stopped at a street blocked for President Trump’s motorcade. Mr. Macron called Mr. Trump before eventually being allowed to pass, but had to walk 30 minutes to his destination.`\
+https://nytimes.com/video/us/100000010416097/french-president-stopped-trump-motorcade.html
+
+**How to watch Vikings vs. Steelers: Time, TV, streaming**\
+`Find out how to watch the Minnesota Vikings play the Pittsburgh Steelers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6654871/2025/09/23/vikings-vs-steelers-stream-how-to-watch-sept-28/
+
+**Local TV Giants Boycott Jimmy Kimmel’s Return to Late Night**\
+`Together, the two TV station groups control more than 20 percent of ABC’s local affiliates. They won’t be airing “Jimmy Kimmel Live!”`\
+https://nytimes.com/2025/09/23/business/media/jimmy-kimmel-nexstar-sinclair-boycott.html
+
 **The Megaraptor Had Giant Claws and an Appetite for Crocodilians**\
 `A fossil of the 23-foot-tall predator could help unlock secrets of an order of dinosaurs that remain poorly understood.`\
 https://nytimes.com/2025/09/23/science/megaraptor-fossil-crocodile.html
