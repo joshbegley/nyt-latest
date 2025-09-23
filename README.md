@@ -1,3 +1,7 @@
+**Lions vs. Ravens: Detroit dominates Baltimore physically for statement win**\
+`The Lions sacked QB Lamar Jackson seven times as Detroit's offensive line dominated the Ravens' defensive front.`\
+https://nytimes.com/athletic/6653491/2025/09/22/lions-ravens-score-result-takeaways-mnf/
+
 **Yohe's 10 observations: Young Penguins shine in shootout loss to Canadiens**\
 `In the preseason, it's not the final score that really matters but the way the team played, and Penguins fans saw some young talent.`\
 https://nytimes.com/athletic/6652601/2025/09/22/penguins-preseason-broz-brunicke-canadiens/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/22/well/tylenol-autism-pregnancy-babies.html
 **Charlie Morton's return to Braves is about appreciation, and perhaps a fond farewell**\
 `Morton was one of the most beloved Braves of the past decade, both among teammates and fans.`\
 https://nytimes.com/athletic/6653482/2025/09/22/charlie-morton-braves-return/
-
-**WSU football player shot, Washington student identified as suspect: Police**\
-`Offensive lineman Sone Falealo was acting as security at apartment party when he was shot, according to authorities.`\
-https://nytimes.com/athletic/6653225/2025/09/22/wsu-football-player-shot-washington-student-suspect/
 
