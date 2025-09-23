@@ -1,3 +1,7 @@
+**A Dozen Protesters Are Arrested Outside the U.N. Before Trump’s Speech**\
+`The police swarmed a cluster of anti-Trump protesters ahead of the president’s address to diplomats and world leaders on Tuesday morning.`\
+https://nytimes.com/2025/09/23/nyregion/united-nations-protest-trump.html
+
 **French President Is Stopped by Trump’s Motorcade in New York**\
 `President Emmanuel Macron of France, in New York for the 80th United Nations General Assembly, was briefly stopped at a street blocked for President Trump’s motorcade. Mr. Macron called Mr. Trump before eventually being allowed to pass, but had to walk 30 minutes to his destination.`\
 https://nytimes.com/video/us/100000010416097/french-president-stopped-trump-motorcade.html
