@@ -1,3 +1,11 @@
+**Kulusevski has 'good chance' to return from injury before end of 2025**\
+`Meanwhile, Spurs coach Thomas Frank said Randal Kolo Muani and Ben Davies will not be fit to face Doncaster Rovers on Wednesday.`\
+https://nytimes.com/athletic/6654646/2025/09/23/dejan-kulusevski-injury-tottenham-latest/
+
+**Guterres warns of ‘relentless’ suffering and says the U.N.’s principles ‘are under siege.’**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2025/09/23/world/un-general-assembly-trump/guterres-speech-un-general-assembly
+
 **Arsenal’s Ballon d'Or win reflects their relentless rise to the forefront of women's game**\
 `While last season's Champions League triumph no doubt played a major part in Arsenal’s award win, there is also a deeper recognition at play`\
 https://nytimes.com/athletic/6654215/2025/09/23/arsenal-ballon-dor-win-slegers-russo-caldentey/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/09/23/world/un-general-assembly-trump/heres-what-t
 **Live Updates: Trump Set to Address U.N. General Assembly**\
 `President Trump’s speech, which is expected to include a rebuke of global institutions, comes as the United States has withdrawn funding and support for U.N. programs.`\
 https://nytimes.com/live/2025/09/23/world/un-general-assembly-trump
-
-**Fantasy football Week 4 drops: Bidding farewell to Kyler Murray, Travis Hunter and more**\
-`Gary Davenport gets bold in his latest offering of players worthy of being dropped in fantasy football, which includes rookie Travis Hunter.`\
-https://nytimes.com/athletic/6653644/2025/09/23/fantasy-football-week-4-drops/
-
-**Alaa Abd El Fattah, Egypt’s Most Prominent Activist, Is Freed**\
-`Alaa Abd El Fattah, a prominent pro-democracy Egyptian activist, returned home to his family after a presidential pardon. An Egyptian-British dual citizen, Mr. Abd El Fattah had spent most of the past 12 years in prison.`\
-https://nytimes.com/video/world/middleeast/100000010415917/egypt-activist-released-alaa-abdel-fattah.html
 

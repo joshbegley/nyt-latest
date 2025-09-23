@@ -1,3 +1,11 @@
+**Arsenal’s Ballon d'Or win reflects their relentless rise to the forefront of women's game**\
+`While last season's Champions League triumph no doubt played a major part in Arsenal’s award win, there is also a deeper recognition at play`\
+https://nytimes.com/athletic/6654215/2025/09/23/arsenal-ballon-dor-win-slegers-russo-caldentey/
+
+**Inside Monchi's Villa exit: Window chaos, financial frustration, and where it leaves Emery**\
+`The Spaniard's departure was a shock but not a surprise after a whirlwind few months and a dire start to the season`\
+https://nytimes.com/athletic/6653984/2025/09/23/monchi-aston-villa-exit-unai-emery/
+
 **Djokovic to play at Shanghai Masters**\
 `The 38-year-old is a four-time champion at the event but has generally played a light schedule in the last few years.`\
 https://nytimes.com/athletic/6654540/2025/09/23/novak-djokovic-shanghai-masters/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6653644/2025/09/23/fantasy-football-week-4-drops/
 **Alaa Abd El Fattah, Egypt’s Most Prominent Activist, Is Freed**\
 `Alaa Abd El Fattah, a prominent pro-democracy Egyptian activist, returned home to his family after a presidential pardon. An Egyptian-British dual citizen, Mr. Abd El Fattah had spent most of the past 12 years in prison.`\
 https://nytimes.com/video/world/middleeast/100000010415917/egypt-activist-released-alaa-abdel-fattah.html
-
-**MLB playoff watch: Padres in, Guardians-Tigers rematch; bracket, clinching scenarios**\
-`The Yankees stand just one win away from heading back to the postseason.`\
-https://nytimes.com/athletic/6653860/2025/09/23/mlb-playoff-watch-padres-clinch-guardians-tigers-battle/
-
-**The Potential Consequences of Kimmel’s Comeback**\
-`The return of the late-night host’s show raises questions about how the Trump administration, TV affiliate owners and viewers might react.`\
-https://nytimes.com/2025/09/23/business/dealbook/jimmy-kimmel-returns-trump.html
 

@@ -1,3 +1,11 @@
+**Arsenal’s Ballon d'Or win reflects their relentless rise to the forefront of women's game**\
+`While last season's Champions League triumph no doubt played a major part in Arsenal’s award win, there is also a deeper recognition at play`\
+https://nytimes.com/athletic/6654215/2025/09/23/arsenal-ballon-dor-win-slegers-russo-caldentey/
+
+**Inside Monchi's Villa exit: Window chaos, financial frustration, and where it leaves Emery**\
+`The Spaniard's departure was a shock but not a surprise after a whirlwind few months and a dire start to the season`\
+https://nytimes.com/athletic/6653984/2025/09/23/monchi-aston-villa-exit-unai-emery/
+
 **Djokovic to play at Shanghai Masters**\
 `The 38-year-old is a four-time champion at the event but has generally played a light schedule in the last few years.`\
 https://nytimes.com/athletic/6654540/2025/09/23/novak-djokovic-shanghai-masters/
