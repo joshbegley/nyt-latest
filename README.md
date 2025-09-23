@@ -1,3 +1,11 @@
+**Leafs goalie Joseph Woll taking leave of absence for 'personal family matter'**\
+`GM Brad Treliving said there was no timeline on Woll’s return.`\
+https://nytimes.com/athletic/6654728/2025/09/23/leafs-joseph-woll-leave-absence/
+
+**What I'm hearing about Cootes, Willander and Canucks roster plans after training camp**\
+`The Canucks are early in the process of slowly whittling down their roster as they prepare for the season.`\
+https://nytimes.com/athletic/6653923/2025/09/23/canucks-roster-braeden-cootes-tom-willander/
+
 **Charges dropped against former NBA, UConn player Ben Gordon**\
 `The charges stemmed from Gordon's 2023 arrest in Connecticut hours after UConn won the NCAA men's basketball championship.`\
 https://nytimes.com/athletic/6654552/2025/09/23/ben-gordon-charges-dropped-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/09/23/world/un-general-assembly-trump/guterres-spe
 **Arsenal’s Ballon d'Or win reflects their relentless rise to the forefront of women's game**\
 `While last season's Champions League triumph no doubt played a major part in Arsenal’s award win, there is also a deeper recognition at play`\
 https://nytimes.com/athletic/6654215/2025/09/23/arsenal-ballon-dor-win-slegers-russo-caldentey/
-
-**Inside Monchi's Villa exit: Window chaos, financial frustration, and where it leaves Emery**\
-`The Spaniard's departure was a shock but not a surprise after a whirlwind few months and a dire start to the season`\
-https://nytimes.com/athletic/6653984/2025/09/23/monchi-aston-villa-exit-unai-emery/
-
-**Djokovic to play at Shanghai Masters**\
-`The 38-year-old is a four-time champion at the event but has generally played a light schedule in the last few years.`\
-https://nytimes.com/athletic/6654540/2025/09/23/novak-djokovic-shanghai-masters/
 
