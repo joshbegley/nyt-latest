@@ -1,3 +1,15 @@
+**Here’s what to know today.**\
+`President Trump’swith a rebuke of global institutions,`\
+https://nytimes.com/live/2025/09/23/world/un-general-assembly-trump/heres-what-to-know-today
+
+**Live Updates: Trump Set to Address U.N. General Assembly**\
+`President Trump’s speech, which is expected to include a rebuke of global institutions, comes as the United States has withdrawn funding and support for U.N. programs.`\
+https://nytimes.com/live/2025/09/23/world/un-general-assembly-trump
+
+**MLB playoff watch: Padres in, Guardians-Tigers rematch; bracket, clinching scenarios**\
+`The Yankees stand just one win away from heading back to the postseason.`\
+https://nytimes.com/athletic/6653860/2025/09/23/mlb-playoff-watch-padres-clinch-guardians-tigers-battle/
+
 **Fantasy football Week 4 drops: Bidding farewell to Kyler Murray, Travis Hunter and more**\
 `Gary Davenport gets bold in his latest offering of players worthy of being dropped in fantasy football, which includes rookie Travis Hunter.`\
 https://nytimes.com/athletic/6653644/2025/09/23/fantasy-football-week-4-drops/
