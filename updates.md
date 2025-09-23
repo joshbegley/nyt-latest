@@ -1,3 +1,7 @@
+**Zackery Died Subway Surfing. Is Social Media to Blame?**\
+`Norma Nazario didn’t understand what had motivated her 15-year-old son to climb on top of a train one evening. Then she found his phone.`\
+https://nytimes.com/2025/09/23/style/subway-surfing-death-nyc-tiktok.html
+
 **Local TV Giants Boycott Jimmy Kimmel’s Return to Late Night**\
 `Together, the two TV station groups, Sinclair and Nexstar, control more than 20 percent of ABC’s local affiliates.`\
 https://nytimes.com/2025/09/23/business/media/jimmy-kimmel-nexstar-sinclair-boycott.html
