@@ -1,40 +1,40 @@
-**Leitch: In college football, nostalgia wins you nothing. Just ask Swinney and Gundy**\
-`Dabo Swinney and Mike Gundy are not paid to protect college football. They are paid to win — and currently, they are not. `\
-https://nytimes.com/athletic/6652870/2025/09/23/dabo-swinney-clemson-mike-gundy-oklahoma-state-losing/
+**Will J.J. McCarthy reclaim the Vikings' starting QB job when he's healthy? We'll see**\
+`The Vikings are trying to balance the short-term need to win with the long-term desire to develop McCarthy. How will that play out overseas?`\
+https://nytimes.com/athletic/6653192/2025/09/23/jj-mccarthy-carson-wentz-vikings-qb-situation/
 
-**Jihadist, Rebel, Statesman: The Many Faces of Syria’s Leader**\
-`Ahmed al-Shara has shifted shapes many times during his ascent from rebel commander to national leader. This week, he is expected to be the first Syrian president to address the U.N. General Assembly in 58 years.`\
-https://nytimes.com/2025/09/23/world/middleeast/syria-president-ahmed-al-shara.html
+**Calgary Flames 2025-26 season preview: Playoff chances, projected points, roster rankings**\
+`The focus in Calgary this season has to be on the Flames' up-and-coming talent taking the next steps, not another playoff push.`\
+https://nytimes.com/athletic/6640608/2025/09/23/calgary-flames-2025-26-season-preview/
 
-**Week 4 NFL Power Rankings: 49ers, Bears rise as injuries take their toll on QBs**\
-`Justin Herbert, Caleb Williams looked like stars in leading their teams to victory, but not every QB situation inspires as much confidence.`\
-https://nytimes.com/athletic/6652493/2025/09/23/nfl-power-rankings-week-4-caleb-williams-bears-49ers/
+**Boston Bruins 2025-26 season preview: Playoff chances, projected points, roster rankings**\
+`If Boston gets the best versions of Pastrnak, McAvoy and Swayman some success is possible, but the Bruins' depth will likely hold them back.`\
+https://nytimes.com/athletic/6642111/2025/09/23/boston-bruins-2025-26-season-preview/
 
-**NFL QB stock report, Week 4: Is Texans' C.J. Stroud playing his way out of extension?**\
-`It once seemed like a foregone conclusion that Houston would pay Stroud. Given how poorly he's played lately, maybe it's not a slam dunk.`\
-https://nytimes.com/athletic/6652449/2025/09/23/qb-stock-report-cj-stroud-rankings-texans/
+**Trump, Tylenol and Autism**\
+`President Trump urged pregnant women to avoid acetaminophen, the active ingredient in Tylenol, claiming it could cause autism. Studies about the link have been inconclusive.`\
+https://nytimes.com/2025/09/23/podcasts/the-daily/autism-trump-tylenol.html
 
-**The New York Times International Edition in Print for Wednesday, Sep. 24, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/09/23/todays-new-york-times-international-edition
+**Flyers 2025-26 season preview: Playoff chances, projected points, roster rankings**\
+`The Flyers’ core is still taking shape as they attempt to build around Matvei Michkov. Can they be bad enough to raise their future ceiling?`\
+https://nytimes.com/athletic/6636995/2025/09/23/philadelphia-flyers-2025-26-season-preview/
 
-**Atletico's Simeone charged by UEFA after Liverpool red card**\
-`Simeone said after the game that his actions were "not justifiable".`\
-https://nytimes.com/athletic/6640841/2025/09/23/diego-simeone-atletico-madrid-red-card-uefa/
+**I worked with Pete Carroll for years. Let me tell you how he helped me find my true identity**\
+`Ben Malcolmson, Carroll's longtime right-hand man, shares the loose process Carrol had to help people figure out who they really are.`\
+https://nytimes.com/athletic/6650383/2025/09/23/pete-carroll-leadership-raiders-seahawks/
 
-**In Rare China Visit, U.S. Lawmakers Call Lack of Military Talks ‘Dangerous’**\
-`The bipartisan delegation said more conversations were necessary to avoid accidental “miscalculations and misunderstandings” that could lead to conflict.`\
-https://nytimes.com/2025/09/23/world/asia/us-china-trump-xi.html
+**Fred VanVleet injury hits Rockets in the worst spot, but is there a faint silver lining?**\
+`VanVleet's knee injury makes Houston worse, but the Rockets now have no choice but to let two talented youngsters sink or swim.`\
+https://nytimes.com/athletic/6653617/2025/09/23/fred-van-vleet-injury-rockets-nba/
 
-**China Braces for the Worst as Typhoon Ragasa Barrels Toward Its Coast**\
-`Hong Kong canceled hundreds of flights, Macau shuttered casinos and the city of Shenzhen plans to evacuate 400,000 people.`\
-https://nytimes.com/2025/09/23/world/asia/typhoon-ragasa-hong-kong-china.html
+**Arch Manning's celebrity brings big bucks — and bigger expectations**\
+`Fair or not, “pocket watching” comes with the territory for the Texas QB and adds to the pressure to perform.`\
+https://nytimes.com/athletic/6649100/2025/09/23/arch-manning-texas-nil-money/
 
-**How to watch Cardinals at Giants: Time, TV, streaming for September 23**\
-`Find out how to watch the St. Louis Cardinals play the San Francisco Giants, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6654110/2025/09/23/cardinals-vs-giants-stream-how-to-watch-sept-23/
+**Scouting Indiana QB Fernando Mendoza: What did 2026 NFL Draft prospect show vs. Illinois?**\
+`Mendoza shredded Illinois' defense in his first big test of 2025. How much did we learn about Indiana's QB in the process?`\
+https://nytimes.com/athletic/6652054/2025/09/23/nfl-draft-2026-fernando-mendoza-film-illinois/
 
-**How to watch Brewers at Padres: Time, TV, streaming for September 23**\
-`Find out how to watch the Milwaukee Brewers play the San Diego Padres, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6654105/2025/09/23/brewers-vs-padres-stream-how-to-watch-sept-23/
+**What we learned from Sabres' preseason opener: Georgiev steady, Mrtka's debut and more**\
+`The Sabres shut out the Blue Jackets to start the preseason, but impressive games from several new names and prospects drew eyes.`\
+https://nytimes.com/athletic/6653647/2025/09/23/sabres-preseason-georgiev-mrtka-blue-jackets/
 
