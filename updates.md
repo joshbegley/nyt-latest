@@ -1,3 +1,15 @@
+**Former G League player Thierry Darlan ruled eligible by the NCAA to play at Santa Clara**\
+`Darlan previously declared for the 2025 NBA Draft but later withdrew his name. He is a graduate of the NBA Academy Africa program.`\
+https://nytimes.com/athletic/6655724/2025/09/23/g-league-player-eligible-santa-clara-thierry-darlan/
+
+**Stuck in Traffic, French President Macron Calls Trump About His Motorcade**\
+`The French head of state experienced a frustration that many New Yorkers know all too well. He got stuck during the U.N. General Assembly.`\
+https://nytimes.com/2025/09/23/us/macron-trump-unga-motorcade.html
+
+**Jets acquire CB Jarvis Brownlee Jr. from Titans: Source**\
+`Brownlee, in his second season out of Louisville, was a fifth-round pick by the Titans in 2024.`\
+https://nytimes.com/athletic/6655684/2025/09/23/jets-titans-trade-jarvis-brownlee/
+
 **Stuck in Traffic, French President Macron Calls Trump About His Motorcade**\
 `The French head of state experienced a frustration that many New Yorkers know all too well. He got stuck in traffic during the U.N. General Assembly.`\
 https://nytimes.com/2025/09/23/us/macron-trump-unga-motorcade.html
