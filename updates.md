@@ -1,3 +1,15 @@
+**Her Torte Will Outlast Us All**\
+`Pete Wells remembers Marian Burros, a tenacious food reporter whose plum torte became one of The Times’s most famous recipes.`\
+https://nytimes.com/2025/09/23/dining/plum-torte-marian-burros.html
+
+**Leafs goalie Joseph Woll taking leave of absence for 'personal family matter'**\
+`GM Brad Treliving said there was no timeline on Woll’s return.`\
+https://nytimes.com/athletic/6654728/2025/09/23/leafs-joseph-woll-leave-absence/
+
+**What I'm hearing about Cootes, Willander and Canucks roster plans after training camp**\
+`The Canucks are early in the process of slowly whittling down their roster as they prepare for the season.`\
+https://nytimes.com/athletic/6653923/2025/09/23/canucks-roster-braeden-cootes-tom-willander/
+
 **Charges dropped against former NBA, UConn player Ben Gordon**\
 `The charges stemmed from Gordon's 2023 arrest in Connecticut hours after UConn won the NCAA men's basketball championship.`\
 https://nytimes.com/athletic/6654552/2025/09/23/ben-gordon-charges-dropped-nba/
