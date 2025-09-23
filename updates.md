@@ -1,3 +1,11 @@
+**‘Autism Doesn’t Need a Cure’: Trump’s Message Rankles People Living With the Disability**\
+`Many welcomed more research, and some welcomed possible new treatments. But the administration’s embrace of unproven science and approach to autism as a “crisis” has sown deep mistrust.`\
+https://nytimes.com/2025/09/23/us/trump-autism-tylenol.html
+
+**Saudi Grand Mufti, an Archconservative in a Changing Kingdom, Dies**\
+`The death of Abdulaziz Al Asheikh, Saudi Arabia’s most senior cleric, was the symbolic end of an era as the kingdom transforms.`\
+https://nytimes.com/2025/09/23/world/middleeast/saudi-arabia-grand-mufti-dies.html
+
 **Giants QB decision: Brian Daboll's confidence, caginess suggest Jaxson Dart's time is now**\
 `Having left the door wide open to a QB change on Monday, it seems inevitable that Daboll will walk through it and make the switch to Dart.`\
 https://nytimes.com/athletic/6653830/2025/09/23/jaxson-dart-russell-wilson-ny-giants-qb-decision/
