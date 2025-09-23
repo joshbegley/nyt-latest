@@ -1,3 +1,11 @@
+**Mamdani Lands Endorsement From Kamala Harris, His Biggest Yet**\
+`“I support the Democrat in the race,” Ms. Harris said during an interview with Rachel Maddow. She added of the Democratic Party, “we’ve got a big tent and we’ve got a lot of stars.”`\
+https://nytimes.com/2025/09/22/us/politics/kamala-harris-endorsement-zohran-mamdani.html
+
+**Did voters get Ballon d'Or wrong? Plus: Remembering Matt Beard**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6653622/2025/09/22/ballon-dor-voting-remembering-matt-beard-full-time/
+
 **Line Dance**\
 `Jacob Stulberg makes do.`\
 https://nytimes.com/2025/09/22/crosswords/daily-puzzle-2025-09-23.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/22/us/politics/trump-antifa-order-terrorism.html
 **In Georgia, a ‘Sponge Park’ Floods So the Neighborhood Won’t**\
 `Dozens of houses were razed across a flood-prone neighborhood in Atlanta, mitigating floods and creating a long-desired park in the process.`\
 https://nytimes.com/2025/09/22/climate/climate-georgia-sponge-park-flooding.html
-
-**How to watch Kentucky at South Carolina: Time, TV, streaming**\
-`Find out how to watch the Kentucky Wildcats play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6653548/2025/09/22/kentucky-vs-south-carolina-stream-how-to-watch-sept-27/
-
-**Forget ‘Love Island.’ Tennessee Has an Isle of Goats.**\
-`Eco-grazing goats help clear overgrowth worldwide. But rare is the herd that has to get to work by boat.`\
-https://nytimes.com/2025/09/22/climate/climate-tennessee-goats-invasives.html
 

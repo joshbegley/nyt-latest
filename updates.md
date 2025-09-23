@@ -1,3 +1,7 @@
+**Is It Safe to Take Tylenol While Pregnant? Here’s What Experts Say.**\
+`President Trump said on Monday that Tylenol use during pregnancy could lead to autism, a claim that is unproven.`\
+https://nytimes.com/2025/09/22/well/tylenol-autism-pregnancy-babies.html
+
 **Line Dance**\
 `Jacob Stulberg makes do.`\
 https://nytimes.com/2025/09/22/crosswords/daily-puzzle-2025-09-23.html
