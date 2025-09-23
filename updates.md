@@ -1,3 +1,11 @@
+**Putting Crystal Palace's 17-match unbeaten run into a European context**\
+`Oliver Glasner's team have not lost a game since April, an impressive record which Europe's elite teams do not come close to matching`\
+https://nytimes.com/athletic/6647211/2025/09/23/crystal-palace-unbeaten-europe-bayern-barcelona/
+
+**Unification Church Leader Is Arrested on Corruption Charges in South Korea**\
+`Han Hak-ja — the widow of the church’s founder, the Rev. Sun Myung Moon — was accused of bribing a former first lady for business and political favors.`\
+https://nytimes.com/2025/09/23/world/asia/unification-church-leader-han-arrest.html
+
 **Remembering Clough, Tear Gas, Hangovers, and Nottingham Forest's glory years... over a latte**\
 `Every Wednesday for decades, these Nottingham Forest fans have met at a cafe next to a statue of Brian Clough`\
 https://nytimes.com/athletic/6634038/2025/09/23/nottingham-forest-coffee-club/
