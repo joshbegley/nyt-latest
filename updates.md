@@ -1,3 +1,19 @@
+**Struggles for Free Expression on Campus**\
+`Readers, including the author Jhumpa Lahiri, respond to the Barnard president’s guest essay about speakers at universities. Also: The benefits of trees.`\
+https://nytimes.com/2025/09/23/opinion/free-speech-campus-barnard.html
+
+**Oilers sign Podkolzin to 3-year extension with $2.95 million cap hit**\
+`Podkolzin scored eight goals and 24 points in 82 games in his first season with Edmonton.`\
+https://nytimes.com/athletic/6655036/2025/09/23/oilers-vasily-podkolzin-contract-extension/
+
+**Trump Strikes Softer Tone on Brazil, Following a Scathing Lula Speech**\
+`President Trump said he encountered the Brazilian president at the United Nations General Assembly on Tuesday and they briefly embraced. He said the two would meet next week.`\
+https://nytimes.com/2025/09/23/world/americas/trump-lula-embrace-meeting.html
+
+**Trump Claims Again That He Has Ended Seven Wars. Here’s a Closer Look.**\
+`During his speech, the president also disparaged the work of the United Nations, which, he said, “did not even try to help” in any of the conflicts.`\
+https://nytimes.com/2025/09/23/world/trump-un-seven-wars.html
+
 **Trump rails against clean energy and criticizes Britain for its shift away from drilling.**\
 `By Jenny Gross and Ephrat Livni`\
 https://nytimes.com/live/2025/09/23/world/un-general-assembly-trump/trump-clean-energy-britain-north-sea
