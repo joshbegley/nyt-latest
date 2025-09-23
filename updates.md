@@ -1,3 +1,15 @@
+**The Potential Consequences of Kimmel’s Comeback**\
+`The return of the late-night host’s show raises questions about how the Trump administration, TV affiliate owners and viewers might react.`\
+https://nytimes.com/2025/09/23/business/dealbook/jimmy-kimmel-returns-trump.html
+
+**8 Eagles thoughts: DeSean Jackson comparison, Jordan Davis' upside, improving kick returns**\
+`DeSean Jackson weighs in on which of two Eagles comebacks was better.`\
+https://nytimes.com/athletic/6654237/2025/09/23/eagles-desean-jackson-jordan-davis-kick-returns/
+
+**Explore the Math Behind the Golden Ratio With Steven Strogatz and The New York Times**\
+`What do an apple, a pentagram and a belly button have in common? They all invite students to investigate a famous geometric proportion.`\
+https://nytimes.com/2025/09/23/learning/lesson-plans/explore-the-math-behind-the-golden-ratio-with-steven-strogatz.html
+
 **After a post-clinch letdown, it’s time for the Cubs to lock back in for October**\
 `“The big picture,” manager Craig Counsell said, “is we’ve got something in front of us for this last week."`\
 https://nytimes.com/athletic/6653220/2025/09/23/chicago-cubs-postseason-analysis-urgency/
