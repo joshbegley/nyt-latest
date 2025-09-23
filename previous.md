@@ -1,3 +1,11 @@
+**How to watch Jaguars at 49ers: Time, TV, streaming**\
+`Find out how to watch the Jacksonville Jaguars play the San Francisco 49ers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6656146/2025/09/23/jaguars-vs-49ers-stream-how-to-watch-sept-28/
+
+**How to watch Bears at Raiders: Time, TV, streaming**\
+`Find out how to watch the Chicago Bears play the Las Vegas Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6656142/2025/09/23/bears-vs-raiders-stream-how-to-watch-sept-28/
+
 **How to watch Colts at Rams: Time, TV, streaming**\
 `Find out how to watch the Indianapolis Colts play the Los Angeles Rams, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6656133/2025/09/23/colts-vs-rams-stream-how-to-watch-sept-28/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/23/well/tylenol-pregnancy-fevers.html
 **Fantasy football market share report: Kareem Hunt, Tyquan Thornton are the Chiefs to target**\
 `Michael Salfino mines the touches and targets data from Week 3, which has pointed him in the direction of a couple Chiefs this week.`\
 https://nytimes.com/athletic/6655912/2025/09/23/fantasy-football-market-share-report-week-4-judkins-hunt-thornton/
-
-**Ekitike red card vs Southampton 'needless and stupid' - Slot**\
-`"If I had scored a goal like this I would have walked up to Federico Chiesa and said, 'this goal is all about you, not about me'," Slot said`\
-https://nytimes.com/athletic/6655915/2025/09/23/hugo-ekitike-red-card-liverpool-slot/
-
-**‘What Is the Purpose of the United Nations?’ Trump Asks**\
-`During a meandering address, President Trump questioned whether the United Nations should exist and criticized its member states on immigration policies he claimed were ruining their way of life.`\
-https://nytimes.com/video/world/100000010416179/trump-criticizes-united-nations.html
 

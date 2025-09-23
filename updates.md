@@ -1,3 +1,11 @@
+**How to watch Jaguars at 49ers: Time, TV, streaming**\
+`Find out how to watch the Jacksonville Jaguars play the San Francisco 49ers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6656146/2025/09/23/jaguars-vs-49ers-stream-how-to-watch-sept-28/
+
+**How to watch Bears at Raiders: Time, TV, streaming**\
+`Find out how to watch the Chicago Bears play the Las Vegas Raiders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6656142/2025/09/23/bears-vs-raiders-stream-how-to-watch-sept-28/
+
 **How to watch Colts at Rams: Time, TV, streaming**\
 `Find out how to watch the Indianapolis Colts play the Los Angeles Rams, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6656133/2025/09/23/colts-vs-rams-stream-how-to-watch-sept-28/
