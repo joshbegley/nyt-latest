@@ -1,3 +1,11 @@
+**How to watch Cardinals at Giants: Time, TV, streaming for September 23**\
+`Find out how to watch the St. Louis Cardinals play the San Francisco Giants, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6654110/2025/09/23/cardinals-vs-giants-stream-how-to-watch-sept-23/
+
+**How to watch Brewers at Padres: Time, TV, streaming for September 23**\
+`Find out how to watch the Milwaukee Brewers play the San Diego Padres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6654105/2025/09/23/brewers-vs-padres-stream-how-to-watch-sept-23/
+
 **Sterlin Harjo Isn’t Afraid of the Sophomore Slump**\
 `“The Lowdown,” Harjo’s follow-up to the acclaimed “Reservation Dogs,” is a Tulsa noir steeped in corruption and myth. “I’m trying to put onscreen my ideas of what my home is,” he said.`\
 https://nytimes.com/2025/09/23/arts/television/sterlin-harjo-the-lowdown.html
