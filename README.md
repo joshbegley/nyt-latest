@@ -1,4 +1,8 @@
-**Lions vs. Ravens: Detroit dominates Baltimore physically for statement win**\
+**Quote of the Day: G.O.P. Giving Trump Tax Cut A Rebranding**\
+`Quotation of the Day for Tuesday, September 23, 2025.`\
+https://nytimes.com/2025/09/22/pageoneplus/quote-of-the-day-gop-giving-trump-tax-cut-a-rebranding.html
+
+**Lions vs. Ravens: Detroit dominates Baltimore physically for statement win in heavyweight bout**\
 `The Lions sacked QB Lamar Jackson seven times as Detroit's offensive line dominated the Ravens' defensive front.`\
 https://nytimes.com/athletic/6653491/2025/09/22/lions-ravens-score-result-takeaways-mnf/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/22/us/politics/autism-vaccines-trump-personal.html
 **Is It Safe to Take Tylenol While Pregnant? Here’s What Experts Say.**\
 `President Trump said on Monday that Tylenol use during pregnancy could lead to autism, a claim that is unproven.`\
 https://nytimes.com/2025/09/22/well/tylenol-autism-pregnancy-babies.html
-
-**Charlie Morton's return to Braves is about appreciation, and perhaps a fond farewell**\
-`Morton was one of the most beloved Braves of the past decade, both among teammates and fans.`\
-https://nytimes.com/athletic/6653482/2025/09/22/charlie-morton-braves-return/
 

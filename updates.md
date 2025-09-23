@@ -1,3 +1,7 @@
+**Lions vs. Ravens: Detroit dominates Baltimore physically for statement win**\
+`The Lions sacked QB Lamar Jackson seven times as Detroit's offensive line dominated the Ravens' defensive front.`\
+https://nytimes.com/athletic/6653491/2025/09/22/lions-ravens-score-result-takeaways-mnf/
+
 **Yohe's 10 observations: Young Penguins shine in shootout loss to Canadiens**\
 `In the preseason, it's not the final score that really matters but the way the team played, and Penguins fans saw some young talent.`\
 https://nytimes.com/athletic/6652601/2025/09/22/penguins-preseason-broz-brunicke-canadiens/
