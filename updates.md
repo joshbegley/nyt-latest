@@ -1,3 +1,7 @@
+**Forget ‘Love Island.’ Tennessee Has an Isle of Goats.**\
+`Eco-grazing goats help clear overgrowth worldwide. But rare is the herd that has to get to work by boat.`\
+https://nytimes.com/2025/09/22/climate/climate-tennessee-goats-invasives.html
+
 **A Rhode Island Wind Farm Changed Their View. And Their Lives, for the Better.**\
 `Offshore turbines let Block Island shut down soot-spewing, earsplitting diesel generators. There were other benefits, too.`\
 https://nytimes.com/2025/09/22/climate/block-island-rhode-wind-turbines.html

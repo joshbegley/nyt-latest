@@ -1,3 +1,7 @@
+**Forget ‘Love Island.’ Tennessee Has an Isle of Goats.**\
+`Eco-grazing goats help clear overgrowth worldwide. But rare is the herd that has to get to work by boat.`\
+https://nytimes.com/2025/09/22/climate/climate-tennessee-goats-invasives.html
+
 **A Rhode Island Wind Farm Changed Their View. And Their Lives, for the Better.**\
 `Offshore turbines let Block Island shut down soot-spewing, earsplitting diesel generators. There were other benefits, too.`\
 https://nytimes.com/2025/09/22/climate/block-island-rhode-wind-turbines.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6653473/2025/09/22/mets-vs-cubs-stream-how-to-watch
 **How to watch Red Sox at Blue Jays: Time, TV, streaming for September 23**\
 `Find out how to watch the Boston Red Sox play the Toronto Blue Jays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6653465/2025/09/22/red-sox-vs-blue-jays-stream-how-to-watch-sept-23/
-
-**For Zohran Mamdani, Judaism’s Holiest Days Present a Test**\
-`Mr. Mamdani intends to appear at explicitly Jewish spaces during the High Holy Days, seeking to bridge a divide with some Jewish voters as he runs for mayor.`\
-https://nytimes.com/2025/09/22/nyregion/mamdani-rosh-hashana-jewish-holidays.html
 
