@@ -1,3 +1,27 @@
+**Drones, 'PC Rain' and baseball caps: How a big Manchester United match is policed**\
+`The Athletic went behind the scenes with Greater Manchester Police to see how one of the biggest games of the season is managed`\
+https://nytimes.com/athletic/6648689/2025/09/23/manchester-united-police-old-trafford/
+
+**Liverpool, Everton and the struggle to retain a sense of community**\
+`Merseyside rivals are united in their on- and off-field ambition but that has come at a cost to the areas they represent`\
+https://nytimes.com/athletic/6633772/2025/09/23/liverpool-everton-stadium-community/
+
+**Refreshed Pulisic stars (again), Juventus cry foul, divine intervention...of sorts – James Horncastle's Serie A Briefing**\
+`Not even the beads of a rosary could help one beleagured manager in Italy - but Christian Pulisic continues to light up Serie A`\
+https://nytimes.com/athletic/6651339/2025/09/23/james-horncastles-serie-a-briefing-pulisic-milan-juventus-roma/
+
+**Are Premier League clubs increasingly reluctant to sign Championship players?**\
+`Josh Sargent waited on a phone call that never came, while Viktor Gyokeres was only signed by Arsenal after proving himself abroad`\
+https://nytimes.com/athletic/6643973/2025/09/23/premier-league-transfers-championship/
+
+**England 2026 World Cup watch: Why Aston Villa's creative toils may impact Thomas Tuchel**\
+`Our weekly look at those pushing for inclusion in the England squad also takes in the promise of Nico O'Reilly and Jadon Sancho's hopes`\
+https://nytimes.com/athletic/6651436/2025/09/23/ollie-watkins-villa-kane-oreilly-england-world-cup/
+
+**Viktor Gyokeres: What he's doing right, what he's doing wrong, and how Arsenal can help him**\
+`Arsenal's new centre forward has scored three goals in five Premier League matches - but his form has been questioned. We look at why`\
+https://nytimes.com/athletic/6651165/2025/09/23/viktor-gyokeres-arsenal-analysis/
+
 **Bundesliga Briefing: Record-breaking penalty saves, hat-tricks (or not) and Goldbridge deal success**\
 `Sebastian Stafford-Bloor takes a look at another weekend of action from the Bundesliga and the 2.Bundesliga`\
 https://nytimes.com/athletic/6651391/2025/09/23/bundesliga-briefing-goalkeeper-penalties-hat-tricks-goldbridge/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6653044/2025/09/23/connections-sports-edition-hints
 **How Norway Adopted New Tech in Its Hunt for ‘Missing’ Oil**\
 `Going against conventional wisdom, explorers at a Norwegian energy company drilled horizontally to find oil in an abandoned natural gas field.`\
 https://nytimes.com/2025/09/23/business/norway-oil-exploration.html
-
-**Fantasy football waiver wire Week 4: Trey Benson, Tre Tucker, streamers and more**\
-`Jake Ciely runs through the best of this week's waiver wire options, advising to spend a majority of your FAB for the rights to Trey Benson.`\
-https://nytimes.com/athletic/6653150/2025/09/23/fantasy-football-waiver-wire-week-4-tre-tucker-luther-burden-streamers/
-
-**Corrections: Sept. 23, 2025**\
-`Corrections that appeared in print on Tuesday, Sept. 23, 2025.`\
-https://nytimes.com/2025/09/23/pageoneplus/corrections-sept-23-2025.html
-
-**Quote of the Day: G.O.P. Giving Trump Tax Cut A Rebranding**\
-`Quotation of the Day for Tuesday, September 23, 2025.`\
-https://nytimes.com/2025/09/22/pageoneplus/quote-of-the-day-gop-giving-trump-tax-cut-a-rebranding.html
-
-**Lions vs. Ravens: Detroit dominates Baltimore physically for statement win in heavyweight bout**\
-`The Lions sacked QB Lamar Jackson seven times as Detroit's offensive line dominated the Ravens' defensive front.`\
-https://nytimes.com/athletic/6653491/2025/09/22/lions-ravens-score-result-takeaways-mnf/
-
-**Yohe's 10 observations: Young Penguins shine in shootout loss to Canadiens**\
-`In the preseason, it's not the final score that really matters but the way the team played, and Penguins fans saw some young talent.`\
-https://nytimes.com/athletic/6652601/2025/09/22/penguins-preseason-broz-brunicke-canadiens/
-
-**Braves' Ozzie Albies has fractured left hamate bone, ending 2025 season**\
-`It’s unclear how this latest injury might affect Atlanta's decision of whether or not to pick up Albies' club option.`\
-https://nytimes.com/athletic/6653654/2025/09/22/atlanta-braves-ozzie-albies-hamate-fracture/
 
