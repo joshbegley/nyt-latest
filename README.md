@@ -1,5 +1,9 @@
+**Former G League player Thierry Darlan ruled eligible by the NCAA to play at Santa Clara**\
+`Darlan previously declared for the 2025 NBA Draft but later withdrew his name. He is a graduate of the NBA Academy Africa program.`\
+https://nytimes.com/athletic/6655724/2025/09/23/g-league-player-eligible-santa-clara-thierry-darlan/
+
 **Stuck in Traffic, French President Macron Calls Trump About His Motorcade**\
-`The French head of state experienced a frustration that many New Yorkers know all too well. He got stuck in traffic during the U.N. General Assembly.`\
+`The French head of state experienced a frustration that many New Yorkers know all too well. He got stuck during the U.N. General Assembly.`\
 https://nytimes.com/2025/09/23/us/macron-trump-unga-motorcade.html
 
 **Judge Orders N.I.H. to Restore Suspended Research Grants at U.C.L.A.**\
@@ -23,7 +27,7 @@ https://nytimes.com/athletic/6655335/2025/09/23/fantasy-football-giants-dart-nab
 https://nytimes.com/2025/09/23/weather/hurricane-gabrielle-azores-portugal.html
 
 **Jets acquire CB Jarvis Brownlee Jr. from Titans: Source**\
-`Brownlee Jr., in his second season out of Louisville, was a fifth-round pick by the Titans in 2024.`\
+`Brownlee, in his second season out of Louisville, was a fifth-round pick by the Titans in 2024.`\
 https://nytimes.com/athletic/6655684/2025/09/23/jets-titans-trade-jarvis-brownlee/
 
 **F.D.A.’s Approval of Drug for Autism Upends Review Process**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/23/health/fda-autism-treatment-leucovorin.html
 **How to watch Fever at Aces: Game 2 Time, TV, streaming**\
 `Find out how to watch the Indiana Fever play the Las Vegas Aces, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6655678/2025/09/23/fever-vs-aces-stream-how-to-watch-sept-23/
-
-**Planning Committee for U.S.’ 250th Birthday Fires Director for ‘Breach of Trust’**\
-`The bipartisan commission said the official, Ari Abergel, a Trump ally, had misused a social-media account and improperly pushed some members to resign.`\
-https://nytimes.com/2025/09/23/us/politics/ari-abergel-fired-trump-charlie-kirk.html
 
