@@ -1,3 +1,7 @@
+**Sean Combs’s Lawyers Urge Judge to Free Him Before the End of 2025**\
+`Mr. Combs’s lawyers said in a filing that their incarcerated client deserves to be let go soon after his Oct. 3 sentencing on prostitution-related charges.`\
+https://nytimes.com/2025/09/23/arts/sean-combs-sentence-mann-act.html
+
 **Padres clinch second consecutive postseason berth after often frustrating summer**\
 `The Padres head to the postseason for a second straight year, hoping their bullpen and their lineup core can bring them to the World Series.`\
 https://nytimes.com/athletic/6650347/2025/09/23/san-diego-padres-postseason-berth-clinched/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6634038/2025/09/23/nottingham-forest-coffee-club/
 **Drones, 'PC Rain' and baseball caps: How a big Manchester United match is policed**\
 `The Athletic went behind the scenes with Greater Manchester Police to see how one of the biggest games of the season is managed`\
 https://nytimes.com/athletic/6648689/2025/09/23/manchester-united-police-old-trafford/
-
-**Liverpool, Everton and the struggle to retain a sense of community**\
-`Merseyside rivals are united in their on- and off-field ambition but that has come at a cost to the areas they represent`\
-https://nytimes.com/athletic/6633772/2025/09/23/liverpool-everton-stadium-community/
 
