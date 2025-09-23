@@ -1,3 +1,7 @@
+**Ballon d'Or takeaways: Partisan Paris crowd, Dembele streaming PSG and Gullit's Wiegman hope**\
+`The Athletic attended the Ballon d'Or ceremony on Monday evening and took in the moments you might not have seen`\
+https://nytimes.com/athletic/6653517/2025/09/23/ballon-dor-ousmane-dembele-takeaways/
+
 **Sean Combs’s Lawyers Urge Judge to Free Him Before the End of 2025**\
 `Mr. Combs’s lawyers said in a filing that their incarcerated client deserves to be let go soon after his Oct. 3 sentencing on prostitution-related charges.`\
 https://nytimes.com/2025/09/23/arts/sean-combs-sentence-mann-act.html
