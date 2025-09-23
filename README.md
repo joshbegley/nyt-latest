@@ -1,3 +1,7 @@
+**France and Other World Leaders Recognize Palestinian Statehood**\
+`France and three other nations joined an international movement to recognize Palestinian sovereignty at a United Nations summit on Monday.`\
+https://nytimes.com/video/world/middleeast/100000010415454/france-recognizes-palestinian-statehood-unga.html
+
 **How to watch Twins at Rangers: Time, TV, streaming for September 23**\
 `Find out how to watch the Minnesota Twins play the Texas Rangers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6653476/2025/09/22/twins-vs-rangers-stream-how-to-watch-sept-23/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6653404/2025/09/22/arizona-vs-iowa-state-stream-how
 **How to watch Tennessee at Mississippi State: Time, TV, streaming**\
 `Find out how to watch the Tennessee Volunteers play the Mississippi State Bulldogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6653399/2025/09/22/tennessee-vs-mississippi-state-stream-how-to-watch-sept-27/
-
-**How to watch Alabama at Georgia: Time, TV, streaming**\
-`Find out how to watch the Alabama Crimson Tide play the Georgia Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6653400/2025/09/22/alabama-vs-georgia-stream-how-to-watch-sept-27/
 
