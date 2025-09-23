@@ -1,3 +1,7 @@
+**Eight Eagles thoughts: DeSean Jackson comparison, Jordan Davis' upside, improving kick returns**\
+`DeSean Jackson weighs in on which of two Eagles comebacks was better.`\
+https://nytimes.com/athletic/6654237/2025/09/23/eagles-desean-jackson-jordan-davis-kick-returns/
+
 **Here’s what to know today.**\
 `President Trump’swith a rebuke of global institutions,`\
 https://nytimes.com/live/2025/09/23/world/un-general-assembly-trump/heres-what-to-know-today

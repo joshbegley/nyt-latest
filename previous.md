@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6653860/2025/09/23/mlb-playoff-watch-padres-clinch-
 `The return of the late-night host’s show raises questions about how the Trump administration, TV affiliate owners and viewers might react.`\
 https://nytimes.com/2025/09/23/business/dealbook/jimmy-kimmel-returns-trump.html
 
-**8 Eagles thoughts: DeSean Jackson comparison, Jordan Davis' upside, improving kick returns**\
+**Eight Eagles thoughts: DeSean Jackson comparison, Jordan Davis' upside, improving kick returns**\
 `DeSean Jackson weighs in on which of two Eagles comebacks was better.`\
 https://nytimes.com/athletic/6654237/2025/09/23/eagles-desean-jackson-jordan-davis-kick-returns/
 
