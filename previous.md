@@ -1,3 +1,11 @@
+**Five Pearls of Wisdom From a Legend of Financial Writing**\
+`Jonathan Clements, the longtime Wall Street Journal columnist, died this weekend. Here are some of his best ideas.`\
+https://nytimes.com/2025/09/23/business/jonathan-clements-wsj-personal-finance.html
+
+**Elk Hunters Found Dead Near Colorado Trail Had Been Struck by Lightning**\
+`The two men were found last week after a search operation in the San Juan National Forest that involved hundreds on foot or on horseback and was supported by drones and helicopters.`\
+https://nytimes.com/2025/09/23/us/hunters-dead-colorado-lightning.html
+
 **Titans' Brian Callahan passes play calling to QB coach Bo Hardegree**\
 `Hardegree served as the interim OC for part of 2023 with the Raiders and says his philosophy is to "protect the ball and score points."`\
 https://nytimes.com/athletic/6655071/2025/09/23/tennessee-titans-offense-play-calling-brian-callahan-bo-hardegree/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6606852/2025/09/23/mike-gundy-fired-oklahoma-state-
 **What we learned from Knicks media day as New York opens chase for NBA title**\
 `The Knicks kicked off their 2025-26 season with media day on Tuesday. Here are the most important takeaways. `\
 https://nytimes.com/athletic/6654503/2025/09/23/knicks-media-day-jalen-brunson-mike-brown/
-
-**Dowman needs 'caution' and 'care' with Arsenal first-team minutes, Arteta says**\
-`The 15-year-old could play more as the north London side have picked up injuries in each of their five 2025-26 league games.`\
-https://nytimes.com/athletic/6655027/2025/09/23/max-dowman-arsenal-caution-care-mikel-arteta/
-
-**Golden Knights' Alex Pietrangelo continuing rehab, won't rule out a return to hockey**\
-`“The rehab program we’ve put into place has made my daily life a lot better,” Pietrangelo said.`\
-https://nytimes.com/athletic/6655055/2025/09/23/golden-knights-alex-pietrangelo-hip-rehab/
 

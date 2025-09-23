@@ -1,3 +1,11 @@
+**Five Pearls of Wisdom From a Legend of Financial Writing**\
+`Jonathan Clements, the longtime Wall Street Journal columnist, died this weekend. Here are some of his best ideas.`\
+https://nytimes.com/2025/09/23/business/jonathan-clements-wsj-personal-finance.html
+
+**Elk Hunters Found Dead Near Colorado Trail Had Been Struck by Lightning**\
+`The two men were found last week after a search operation in the San Juan National Forest that involved hundreds on foot or on horseback and was supported by drones and helicopters.`\
+https://nytimes.com/2025/09/23/us/hunters-dead-colorado-lightning.html
+
 **Titans' Brian Callahan passes play calling to QB coach Bo Hardegree**\
 `Hardegree served as the interim OC for part of 2023 with the Raiders and says his philosophy is to "protect the ball and score points."`\
 https://nytimes.com/athletic/6655071/2025/09/23/tennessee-titans-offense-play-calling-brian-callahan-bo-hardegree/

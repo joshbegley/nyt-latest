@@ -1,3 +1,7 @@
+**10 Great Tracks From Major-Label Debuts**\
+`In honor of a gem from Alex G, listen to tracks from Yeah Yeah Yeahs, Modest Mouse, Elliott Smith and more.`\
+https://nytimes.com/2025/09/23/arts/music/amplifier-newsletter-major-label-debuts.html
+
 **Five Pearls of Wisdom From a Legend of Financial Writing**\
 `Jonathan Clements, the longtime Wall Street Journal columnist, died this weekend. Here are some of his best ideas.`\
 https://nytimes.com/2025/09/23/business/jonathan-clements-wsj-personal-finance.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/23/dining/nyc-restaurant-news.html
 **Oklahoma State fires Mike Gundy amid 21st season as head coach**\
 `Gundy, who spent 35 of the last 40 years at Oklahoma State as a player or coach, ended his tenure 1-11 in his last 12 after a loss to Tulsa.`\
 https://nytimes.com/athletic/6606852/2025/09/23/mike-gundy-fired-oklahoma-state-football-news/
-
-**What we learned from Knicks media day as New York opens chase for NBA title**\
-`The Knicks kicked off their 2025-26 season with media day on Tuesday. Here are the most important takeaways. `\
-https://nytimes.com/athletic/6654503/2025/09/23/knicks-media-day-jalen-brunson-mike-brown/
 
