@@ -1,3 +1,11 @@
+**Ravens' defense searching for answers after loss to Lions: 'We’re just not very good'**\
+`The reality is that a crux of Baltimore’s concerns is on the defensive side of the ball, which was evident vs. Detroit. `\
+https://nytimes.com/athletic/6653925/2025/09/23/ravens-defensive-struggles-loss-lions/
+
+**For Browns DT Shelby Harris, blocking field goals 'is 100 percent an art'**\
+`Harris, who has a history of blocking kicks and batting passes during his career, was one of the heroes of Cleveland's win over Green Bay. `\
+https://nytimes.com/athletic/6653448/2025/09/23/browns-shelby-harris-field-goals-packers/
+
 **Egypt’s Most Famous Political Prisoner is Freed, and Reunited With Family**\
 `The dissident Alaa Abd El Fattah, a British-Egyptian dual citizen, was imprisoned for most of the past 12 years. His family waged an international campaign for his release.`\
 https://nytimes.com/2025/09/23/world/europe/egypt-activist-alaa.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/23/world/asia/korea-zealand-suitcase-murders.html
 **For a Glimpse Into Ukraine’s War, Stop at a Gas Station**\
 `Filling stations have become must-stop spots for soldiers traveling to and from the front, helping them win a place in Ukrainians’ hearts.`\
 https://nytimes.com/2025/09/23/world/europe/ukraine-gas-stations.html
-
-**Cal Raleigh homer watch: Can Mariners' slugger reach 60 home runs?**\
-`The "Big Dumper" has set the Mariners' franchise record with his 58th homer. Is 60 next? `\
-https://nytimes.com/athletic/6650982/2025/09/23/seattle-mariners-cal-raleigh-home-run-tracker/
-
-**How some 2-minute magic put the Bears in complete control against the Cowboys**\
-`Sunday's two-minute operation before halftime offered Caleb Williams and the Bears teach tape on clock management, poise and cohesion.`\
-https://nytimes.com/athletic/6653187/2025/09/23/bears-2-minute-drill-caleb-williams-cowboys/
 
