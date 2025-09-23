@@ -1,3 +1,15 @@
+**Fantasy football Week 4 drops: Bidding farewell to Kyler Murray, Travis Hunter and more**\
+`Gary Davenport gets bold in his latest offering of players worthy of being dropped in fantasy football, which includes rookie Travis Hunter.`\
+https://nytimes.com/athletic/6653644/2025/09/23/fantasy-football-week-4-drops/
+
+**Alaa Abd El Fattah, Egypt’s Most Prominent Activist, Is Freed**\
+`Alaa Abd El Fattah, a prominent pro-democracy Egyptian activist, returned home to his family after a presidential pardon. An Egyptian-British dual citizen, Mr. Abd El Fattah had spent most of the past 12 years in prison.`\
+https://nytimes.com/video/world/middleeast/100000010415917/egypt-activist-released-alaa-abdel-fattah.html
+
+**MLB playoff watch: Padres in, Guardians-Tigers to rematch; bracket, clinching scenarios**\
+`The Yankees stand just one win away from heading back to the postseason.`\
+https://nytimes.com/athletic/6653860/2025/09/23/mlb-playoff-watch-padres-clinch-guardians-tigers-battle/
+
 **The Potential Consequences of Kimmel’s Comeback**\
 `The return of the late-night host’s show raises questions about how the Trump administration, TV affiliate owners and viewers might react.`\
 https://nytimes.com/2025/09/23/business/dealbook/jimmy-kimmel-returns-trump.html
