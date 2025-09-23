@@ -1,3 +1,7 @@
+**Jaguar Land Rover Says Cyberattack Will Halt Production Through Oct. 1**\
+`The company shut down production in early September to contain the breach. It had previously said it planned to resume operations on Sept. 24.`\
+https://nytimes.com/2025/09/23/business/jaguar-land-rover-cyberattack-production.html
+
 **Zodiac Sign**\
 `Do you know yours? Do you care about it?`\
 https://nytimes.com/2025/09/23/learning/zodiac-sign.html

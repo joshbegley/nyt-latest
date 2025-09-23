@@ -1,3 +1,7 @@
+**Jaguar Land Rover Says Cyberattack Will Halt Production Through Oct. 1**\
+`The company shut down production in early September to contain the breach. It had previously said it planned to resume operations on Sept. 24.`\
+https://nytimes.com/2025/09/23/business/jaguar-land-rover-cyberattack-production.html
+
 **Zodiac Sign**\
 `Do you know yours? Do you care about it?`\
 https://nytimes.com/2025/09/23/learning/zodiac-sign.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6653967/2025/09/23/byu-vs-colorado-stream-how-to-wa
 **How to watch Rockies at Mariners: Time, TV, streaming for September 23**\
 `Find out how to watch the Colorado Rockies play the Seattle Mariners, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6653918/2025/09/23/rockies-vs-mariners-stream-how-to-watch-sept-23/
-
-**How to watch Dodgers at Diamondbacks: Time, TV, streaming for September 23**\
-`Find out how to watch the Los Angeles Dodgers play the Arizona Diamondbacks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6653910/2025/09/23/dodgers-vs-diamondbacks-stream-how-to-watch-sept-23/
 
