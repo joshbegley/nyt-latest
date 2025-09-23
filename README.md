@@ -1,3 +1,7 @@
+**Trump Strikes Softer Tone on Brazil, Following a Scathing Lula Speech**\
+`President Trump said he encountered the Brazilian president at the United Nations General Assembly on Tuesday and they briefly embraced. He said the two would meet next week.`\
+https://nytimes.com/2025/09/23/world/americas/trump-lula-embrace-meeting.html
+
 **Trump rails against clean energy and criticizes Britain for its shift away from drilling.**\
 `By Jenny Gross and Ephrat Livni`\
 https://nytimes.com/live/2025/09/23/world/un-general-assembly-trump/trump-clean-energy-britain-north-sea
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6654886/2025/09/23/liberty-coach-sandy-brondello-co
 **How to watch Mercury at Lynx: Game 2 Time, TV, streaming**\
 `Find out how to watch the Phoenix Mercury play the Minnesota Lynx, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6654965/2025/09/23/mercury-vs-lynx-stream-how-to-watch-sept-23/
-
-**Critical fantasy football insights for Week 4: Backfields, breakouts and who to start**\
-`Jess Bryant and Brandon Funston check in on year-to-date and Week 3 utilization to help you with lineups in Week 4. `\
-https://nytimes.com/athletic/6651847/2025/09/23/fantasy-football-usage-week-4/
 
