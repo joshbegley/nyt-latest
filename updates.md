@@ -1,3 +1,11 @@
+**In Georgia, a ‘Sponge Park’ Floods So the Neighborhood Won’t**\
+`Dozens of houses were razed across a flood-prone neighborhood in Atlanta, mitigating floods and creating a long-desired park in the process.`\
+https://nytimes.com/2025/09/22/climate/climate-georgia-sponge-park-flooding.html
+
+**How to watch Kentucky at South Carolina: Time, TV, streaming**\
+`Find out how to watch the Kentucky Wildcats play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6653548/2025/09/22/kentucky-vs-south-carolina-stream-how-to-watch-sept-27/
+
 **Forget ‘Love Island.’ Tennessee Has an Isle of Goats.**\
 `Eco-grazing goats help clear overgrowth worldwide. But rare is the herd that has to get to work by boat.`\
 https://nytimes.com/2025/09/22/climate/climate-tennessee-goats-invasives.html
