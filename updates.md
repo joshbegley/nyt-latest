@@ -1,3 +1,7 @@
+**Giants QB decision: Brian Daboll's confidence, caginess suggest Jaxson Dart's time is now**\
+`Having left the door wide open to a QB change on Monday, it seems inevitable that Daboll will walk through it and make the switch to Dart.`\
+https://nytimes.com/athletic/6653830/2025/09/23/jaxson-dart-russell-wilson-ny-giants-qb-decision/
+
 **Kulusevski has 'good chance' to return from injury before end of 2025**\
 `Meanwhile, Spurs coach Thomas Frank said Randal Kolo Muani and Ben Davies will not be fit to face Doncaster Rovers on Wednesday.`\
 https://nytimes.com/athletic/6654646/2025/09/23/dejan-kulusevski-injury-tottenham-latest/

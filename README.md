@@ -1,3 +1,7 @@
+**Saudi Grand Mufti, an Archconservative in a Changing Kingdom, Dies**\
+`The death of Abdulaziz Al Asheikh, Saudi Arabia’s most senior cleric, was the symbolic end of an era as the kingdom transforms.`\
+https://nytimes.com/2025/09/23/world/middleeast/saudi-arabia-grand-mufti-dies.html
+
 **Giants QB decision: Brian Daboll's confidence, caginess suggest Jaxson Dart's time is now**\
 `Having left the door wide open to a QB change on Monday, it seems inevitable that Daboll will walk through it and make the switch to Dart.`\
 https://nytimes.com/athletic/6653830/2025/09/23/jaxson-dart-russell-wilson-ny-giants-qb-decision/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/23/us/politics/tom-homan-democrats-investigation.htm
 **A Graphic Tee, a Tapestry Skirt and a Lucky Color**\
 `An ensemble of mixed and matched pieces reflected a habit of wearing red.`\
 https://nytimes.com/2025/09/23/style/street-style-look-lucky-color-red.html
-
-**Here’s what to know today.**\
-`President Trump’swith a rebuke of global institutions,`\
-https://nytimes.com/live/2025/09/23/world/un-general-assembly-trump/heres-what-to-know-today
 
