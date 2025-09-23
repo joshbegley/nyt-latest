@@ -1,3 +1,11 @@
+**The New York Times in Print for Tuesday, Sep. 23, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/23/todays-new-york-times
+
+**The Downside of China’s Death Match Economy**\
+`China’s problem with competition is that it’s too brutal.`\
+https://nytimes.com/2025/09/23/opinion/china-economy-deflation-neijuan.html
+
 **Inside Newcastle Q&A: Pressure on Pope, Botman's game time and stadium 'updates'**\
 `Chris Waugh answers your Newcastle United questions on Pope v Ramsdale, the future of St James' Park and Howe's new set-piece coach`\
 https://nytimes.com/athletic/6651066/2025/09/23/newcastle-inside-q-a-questions-botman-pope-stadium/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6633772/2025/09/23/liverpool-everton-stadium-commun
 **Refreshed Pulisic stars (again), Juventus cry foul, divine intervention...of sorts – James Horncastle's Serie A Briefing**\
 `Not even the beads of a rosary could help one beleagured manager in Italy - but Christian Pulisic continues to light up Serie A`\
 https://nytimes.com/athletic/6651339/2025/09/23/james-horncastles-serie-a-briefing-pulisic-milan-juventus-roma/
-
-**Are Premier League clubs increasingly reluctant to sign Championship players?**\
-`Josh Sargent waited on a phone call that never came, while Viktor Gyokeres was only signed by Arsenal after proving himself abroad`\
-https://nytimes.com/athletic/6643973/2025/09/23/premier-league-transfers-championship/
-
-**England 2026 World Cup watch: Why Aston Villa's creative toils may impact Thomas Tuchel**\
-`Our weekly look at those pushing for inclusion in the England squad also takes in the promise of Nico O'Reilly and Jadon Sancho's hopes`\
-https://nytimes.com/athletic/6651436/2025/09/23/ollie-watkins-villa-kane-oreilly-england-world-cup/
 

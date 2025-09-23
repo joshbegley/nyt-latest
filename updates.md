@@ -1,3 +1,11 @@
+**The New York Times in Print for Tuesday, Sep. 23, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/23/todays-new-york-times
+
+**The Downside of China’s Death Match Economy**\
+`China’s problem with competition is that it’s too brutal.`\
+https://nytimes.com/2025/09/23/opinion/china-economy-deflation-neijuan.html
+
 **Inside Newcastle Q&A: Pressure on Pope, Botman's game time and stadium 'updates'**\
 `Chris Waugh answers your Newcastle United questions on Pope v Ramsdale, the future of St James' Park and Howe's new set-piece coach`\
 https://nytimes.com/athletic/6651066/2025/09/23/newcastle-inside-q-a-questions-botman-pope-stadium/
