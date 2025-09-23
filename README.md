@@ -1,3 +1,19 @@
+**Trump Administration Live Updates: Jimmy Kimmel’s Show to Return After Free Speech Firestorm**\
+``\
+https://nytimes.com/live/2025/09/23/us/trump-news
+
+**In Israel, Government Backlash Brews Over Palestinian State Recognition**\
+`As more countries moved to formally recognize a Palestinian state, a far-right member of Israel’s government called for “countermeasures” including the annexation of the West Bank.`\
+https://nytimes.com/2025/09/23/world/middleeast/palestinian-statehood-response-israel.html
+
+**Asencio, Valverde again or a more left-field option? How Madrid can solve their right-back crisis**\
+`Madrid's issues on the right flank have returned after Alexander-Arnold's injury and Carvajal's suspension`\
+https://nytimes.com/athletic/6654270/2025/09/23/real-madrid-right-back-injuries-analysis/
+
+**The Pulse: The Lions roar back into the NFL’s elite**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6652265/2025/09/23/lions-ravens-nfl-the-pulse/
+
 **Paratici, Agnelli get suspended sentences after entering plea bargain in Prisma case**\
 `The Prisma investigation began in 2021 and led to the executives receiving bans from Italian football in 2023.`\
 https://nytimes.com/athletic/6654193/2025/09/23/former-juventus-executives-financial-investigation-agnelli-paratici/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/09/23/learning/presidents-can-declare-emergencies-how-m
 **Lesson Plan: Emergency Powers and Presidential Authority**\
 `In this lesson, students consider what qualifies as a national emergency and decide how much power presidents should have.`\
 https://nytimes.com/2025/09/23/learning/lesson-plans/lesson-plan-emergency-powers-and-presidential-authority.html
-
-**Villa agree deal to appoint Olabe as Monchi replacement**\
-`Olabe left Real Sociedad at the end of last season, having built a reputation as one of the game’s leading sporting directors.`\
-https://nytimes.com/athletic/6654046/2025/09/23/roberto-olabe-aston-villa-who/
-
-**A Fact-Check on Trump’s Claims About Tylenol, Vaccines and Autism**\
-`How President Trump ignored science about vaccines in his news conference.`\
-https://nytimes.com/2025/09/23/us/a-fact-check-on-trumps-claims-about-tylenol-vaccines-and-autism.html
-
-**TAFC: How Dembele won the Ballon d'Or. Plus: 145 human rights complaints at Club World Cup**\
-`Today in TAFC: From 'serious mistake' to Dembele's Ballon d'Or win. Plus: Breaking down the complaints made at the Club World Cup.`\
-https://nytimes.com/athletic/6654195/2025/09/23/dembele-ballon-dor-human-rights-club-world-cup/
-
-**Three Red Sox takeaways ahead of season-defining closing stretch**\
-`At 85-71, the Sox have already secured their most wins since their last trip to the postseason in 2021.`\
-https://nytimes.com/athletic/6651888/2025/09/23/red-sox-takeaways-end-of-season-stretch/
 
