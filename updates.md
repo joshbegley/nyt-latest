@@ -1,3 +1,5 @@
+
+
 **Oklahoma State needs a new coach. Here are the top candidates to replace Mike Gundy**\
 `Four current college football head coaches are joined by numerous coordinators among Oklahoma State candidates to replace Gundy.`\
 https://nytimes.com/athletic/6655512/2025/09/23/oklahoma-state-coach-candidates-mike-gundy-fired/
