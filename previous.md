@@ -1,3 +1,7 @@
+**Jihadist, Rebel, Statesman: The Many Faces of Syria’s Leader**\
+`Ahmed al-Shara has shifted shapes many times during his ascent from rebel commander to national leader. This week, he is expected to be the first Syrian president to address the U.N. General Assembly in 58 years.`\
+https://nytimes.com/2025/09/23/world/middleeast/syria-president-ahmed-al-shara.html
+
 **Week 4 NFL Power Rankings: 49ers, Bears rise as injuries take their toll on QBs**\
 `Justin Herbert, Caleb Williams looked like stars in leading their teams to victory, but not every QB situation inspires as much confidence.`\
 https://nytimes.com/athletic/6652493/2025/09/23/nfl-power-rankings-week-4-caleb-williams-bears-49ers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6654105/2025/09/23/brewers-vs-padres-stream-how-to-
 **Sterlin Harjo Isn’t Afraid of the Sophomore Slump**\
 `“The Lowdown,” Harjo’s follow-up to the acclaimed “Reservation Dogs,” is a Tulsa noir steeped in corruption and myth. “I’m trying to put onscreen my ideas of what my home is,” he said.`\
 https://nytimes.com/2025/09/23/arts/television/sterlin-harjo-the-lowdown.html
-
-**Why African Countries Keep Making Deals to Accept U.S. Deportees**\
-`As the Trump administration exerts pressure on countries to aid in its mass deportation efforts, some nations in Africa have agreed, prompting legal battles.`\
-https://nytimes.com/2025/09/23/world/africa/african-countries-us-deportees.html
 

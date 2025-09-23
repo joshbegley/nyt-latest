@@ -1,3 +1,7 @@
+**Leitch: In college football, nostalgia wins you nothing. Just ask Swinney and Gundy**\
+`Dabo Swinney and Mike Gundy are not paid to protect college football. They are paid to win — and currently, they are not. `\
+https://nytimes.com/athletic/6652870/2025/09/23/dabo-swinney-clemson-mike-gundy-oklahoma-state-losing/
+
 **Jihadist, Rebel, Statesman: The Many Faces of Syria’s Leader**\
 `Ahmed al-Shara has shifted shapes many times during his ascent from rebel commander to national leader. This week, he is expected to be the first Syrian president to address the U.N. General Assembly in 58 years.`\
 https://nytimes.com/2025/09/23/world/middleeast/syria-president-ahmed-al-shara.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6654110/2025/09/23/cardinals-vs-giants-stream-how-t
 **How to watch Brewers at Padres: Time, TV, streaming for September 23**\
 `Find out how to watch the Milwaukee Brewers play the San Diego Padres, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6654105/2025/09/23/brewers-vs-padres-stream-how-to-watch-sept-23/
-
-**Sterlin Harjo Isn’t Afraid of the Sophomore Slump**\
-`“The Lowdown,” Harjo’s follow-up to the acclaimed “Reservation Dogs,” is a Tulsa noir steeped in corruption and myth. “I’m trying to put onscreen my ideas of what my home is,” he said.`\
-https://nytimes.com/2025/09/23/arts/television/sterlin-harjo-the-lowdown.html
 
