@@ -1,3 +1,7 @@
+**Padres clinch second consecutive postseason berth after often-frustrating summer**\
+`The Padres head to the postseason for a second straight year, hoping their bullpen and their lineup core can bring them to the World Series.`\
+https://nytimes.com/athletic/6650347/2025/09/23/san-diego-padres-postseason-berth-clinched/
+
 **The New York Times in Print for Tuesday, Sep. 23, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/23/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6648689/2025/09/23/manchester-united-police-old-tra
 **Liverpool, Everton and the struggle to retain a sense of community**\
 `Merseyside rivals are united in their on- and off-field ambition but that has come at a cost to the areas they represent`\
 https://nytimes.com/athletic/6633772/2025/09/23/liverpool-everton-stadium-community/
-
-**Refreshed Pulisic stars (again), Juventus cry foul, divine intervention...of sorts – James Horncastle's Serie A Briefing**\
-`Not even the beads of a rosary could help one beleagured manager in Italy - but Christian Pulisic continues to light up Serie A`\
-https://nytimes.com/athletic/6651339/2025/09/23/james-horncastles-serie-a-briefing-pulisic-milan-juventus-roma/
 
