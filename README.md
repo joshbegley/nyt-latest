@@ -1,7 +1,3 @@
-**Overreacting to the first 17 at-bats of Bryce Eldridge's career**\
-`Eldridge has seen just 99 pitches in the majors, but they've included almost everything we were told to expect from him.`\
-https://nytimes.com/athletic/6655112/2025/09/23/bryce-eldridge-giants-overreaction/
-
 **Former G League player Thierry Darlan ruled eligible by the NCAA to play at Santa Clara**\
 `Darlan previously declared for the 2025 NBA Draft but later withdrew his name. He is a graduate of the NBA Academy Africa program.`\
 https://nytimes.com/athletic/6655724/2025/09/23/g-league-player-eligible-santa-clara-thierry-darlan/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6655684/2025/09/23/jets-titans-trade-jarvis-brownle
 **F.D.A.’s Approval of Drug for Autism Upends Review Process**\
 `The agency revived an old treatment for cancer patients, unilaterally approving it for a subset of people with autism. Experts worry that the narrower scope will get lost in the hype.`\
 https://nytimes.com/2025/09/23/health/fda-autism-treatment-leucovorin.html
+
+**How to watch Fever at Aces: Game 2 Time, TV, streaming**\
+`Find out how to watch the Indiana Fever play the Las Vegas Aces, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6655678/2025/09/23/fever-vs-aces-stream-how-to-watch-sept-23/
 
