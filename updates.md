@@ -1,3 +1,15 @@
+**For Trump, Who Has ‘Strong Feelings’ About Autism, the Issue Is Personal**\
+`The president delivered impassioned — if scientifically dubious — remarks about what he described as one of “the most alarming public health developments in history.”`\
+https://nytimes.com/2025/09/22/us/politics/autism-vaccines-trump-personal.html
+
+**What to Know About Tylenol, Pregnancy and Babies**\
+`President Trump said on Monday that there was a link between Tylenol use during pregnancy and autism, a claim that is unproven.`\
+https://nytimes.com/2025/09/22/well/tylenol-autism-pregnancy-babies.html
+
+**Charlie Morton's return to Braves is about appreciation, and perhaps a fond farewell**\
+`Morton was one of the most beloved Braves of the past decade, both among teammates and fans.`\
+https://nytimes.com/athletic/6653482/2025/09/22/charlie-morton-braves-return/
+
 **WSU football player shot, Washington student identified as suspect: Police**\
 `Offensive lineman Sone Falealo was acting as security at apartment party when he was shot, according to authorities.`\
 https://nytimes.com/athletic/6653225/2025/09/22/wsu-football-player-shot-washington-student-suspect/
