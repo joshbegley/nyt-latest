@@ -1,3 +1,7 @@
+**Despite Trump’s Pressure on Justice Dept., Certain Safeguards Are Beyond His Reach**\
+`The criminal justice system has protections that could ultimately give pause to some of President Trump’s moves for revenge.`\
+https://nytimes.com/2025/09/23/us/politics/trump-justice-department.html
+
 **Oklahoma State job profile: How attractive is the task of replacing Mike Gundy?**\
 `Mike Gundy showed that consistent winning and championships are possible in Stillwater, but the program has to catch up with the times.`\
 https://nytimes.com/athletic/6655146/2025/09/23/oklahoma-state-football-coaching-search-money/
@@ -14,7 +18,7 @@ https://nytimes.com/2025/09/23/world/africa/africa-international-criminal-court.
 `What's on your mind about the Wolverines after a 3-1 start?`\
 https://nytimes.com/athletic/6655328/2025/09/23/michigan-wolverines-football-mailbag-questions-2/
 
-**What I'm hearing about the Penguins: Who's making an impression on Dan Muse?**\
+**Yohe: What I'm hearing about the Penguins: Who's making an impression on Dan Muse?**\
 `Don't be surprised if the Penguins look younger on opening night than expected. `\
 https://nytimes.com/athletic/6654663/2025/09/23/penguins-coach-dan-muse-nhl-prospects/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6655189/2025/09/23/celtics-jayson-tatum-return-achi
 **MLB approves Automated Ball-Strike (ABS) Challenge System for 2026 season**\
 `The league's competition committee voted to implement the system, which has been tested in Triple A since 2022, in all MLB games in 2026.`\
 https://nytimes.com/athletic/6655235/2025/09/23/mlb-automated-ball-strike-robot-umps/
-
-**10 Great Tracks From Major-Label Debuts**\
-`In honor of a gem from Alex G, listen to tracks from Yeah Yeah Yeahs, Modest Mouse, Elliott Smith and more.`\
-https://nytimes.com/2025/09/23/arts/music/amplifier-newsletter-major-label-debuts.html
 
