@@ -1,3 +1,7 @@
+**Gavi ruled out for up to five months with meniscus injury**\
+`Gavi, 21, underwent surgery on a right medial meniscus injury on Tuesday.`\
+https://nytimes.com/athletic/6655466/2025/09/23/barcelona-gavi-knee-injury-update/
+
 **How to watch Browns at Lions: Time, TV, streaming**\
 `Find out how to watch the Cleveland Browns play the Detroit Lions, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6655546/2025/09/23/browns-vs-lions-stream-how-to-watch-sept-28/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/09/23/us/elections/results-arizona-us-house
 **Woman Who Tried to Fraudulently Sell Graceland Gets More Than 4 Years in Prison**\
 `Prosecutors say Lisa Jeanine Findley tried to wrongly foreclose on Elvis Presley’s historic Tennessee home.`\
 https://nytimes.com/2025/09/23/us/graceland-memphis-lisa-jeanine-findley-sentence.html
-
-**Dream GM Dan Padover named WNBA Executive of the Year**\
-`Padover, a former GM of the the Las Vegas Aces, is the first three-time winner since the award was instituted in 2017.`\
-https://nytimes.com/athletic/6655438/2025/09/23/dan-padover-wnba-award-atlanta-dream/
 
