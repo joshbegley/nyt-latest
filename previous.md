@@ -1,3 +1,7 @@
+**Judge: Angels can't argue that employee didn't cause death of Tyler Skaggs**\
+`The Angels were hoping to base their civil defense around re-litigating the conviction of Eric Kay. The judge denied that.`\
+https://nytimes.com/athletic/6653509/2025/09/22/angels-tyler-skaggs-civil-trial-eric-kay/
+
 **For Trump, Who Has ‘Strong Feelings’ About Autism, the Issue Is Personal**\
 `The president delivered impassioned — if scientifically dubious — remarks about what he described as one of “the most alarming public health developments in history.”`\
 https://nytimes.com/2025/09/22/us/politics/autism-vaccines-trump-personal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/22/climate/climate-tennessee-goats-invasives.html
 **A Rhode Island Wind Farm Changed Their View. And Their Lives, for the Better.**\
 `Offshore turbines let Block Island shut down soot-spewing, earsplitting diesel generators. There were other benefits, too.`\
 https://nytimes.com/2025/09/22/climate/block-island-rhode-wind-turbines.html
-
-**Satellites and Drones Are Unlocking Benefits ‘Hidden in Plain Sight’ in Michigan**\
-`Technology is helping farmers use land and fertilizer more strategically. Sometimes, the best practice is no chemicals at all.`\
-https://nytimes.com/2025/09/22/climate/michigan-precision-agriculture.html
 

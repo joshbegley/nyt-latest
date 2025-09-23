@@ -1,3 +1,7 @@
+**Judge: Angels can't argue that employee didn't cause death of Tyler Skaggs**\
+`The Angels were hoping to base their civil defense around re-litigating the conviction of Eric Kay. The judge denied that.`\
+https://nytimes.com/athletic/6653509/2025/09/22/angels-tyler-skaggs-civil-trial-eric-kay/
+
 **What to Know About Tylenol, Pregnancy and Babies**\
 `President Trump said on Monday that Tylenol use during pregnancy could lead to autism, a claim that is unproven.`\
 https://nytimes.com/2025/09/22/well/tylenol-autism-pregnancy-babies.html
