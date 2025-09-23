@@ -1,3 +1,23 @@
+**After a post-clinch letdown, it’s time for the Cubs to lock back in for October**\
+`“The big picture,” manager Craig Counsell said, “is we’ve got something in front of us for this last week."`\
+https://nytimes.com/athletic/6653220/2025/09/23/chicago-cubs-postseason-analysis-urgency/
+
+**Prime Video hires Swin Cash for a unique position — NBA front office analyst**\
+`Cash said her role on Prime Video's WNBA coverage is a work in progress.`\
+https://nytimes.com/athletic/6652717/2025/09/23/swin-cash-prime-video-nba-analyst/
+
+**Why Broncos have far bigger offensive concerns than Bo Nix's overthrown deep balls**\
+`Nix was 1-of-5 on throws of 20 or more air yards in Sunday's loss, but penalties, lack of early-down rush success are bigger concerns.`\
+https://nytimes.com/athletic/6652962/2025/09/23/broncos-bo-nix-deep-balls-offense/
+
+**Atletico: Apollo Global Management moving closer to purchasing stake in club**\
+`Multiple sources said a deal with Apollo could value the entire club at around €2.2billion ($2.6bn).`\
+https://nytimes.com/athletic/6654292/2025/09/23/atletico-madrid-takeover-apollo-ares/
+
+**What I'm hearing about Stuart Skinner, Oilers trade needs and more**\
+`Oilers training camp is now in its second week, and there are a few items to dig into.`\
+https://nytimes.com/athletic/6653181/2025/09/23/oilers-trade-stuart-skinner-hearing/
+
 **Trump Administration Live Updates: Jimmy Kimmel’s Show to Return After Free Speech Firestorm**\
 ``\
 https://nytimes.com/live/2025/09/23/us/trump-news
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6652265/2025/09/23/lions-ravens-nfl-the-pulse/
 **Paratici, Agnelli get suspended sentences after entering plea bargain in Prisma case**\
 `The Prisma investigation began in 2021 and led to the executives receiving bans from Italian football in 2023.`\
 https://nytimes.com/athletic/6654193/2025/09/23/former-juventus-executives-financial-investigation-agnelli-paratici/
-
-**Weekly Student News Quiz: Hollywood Icon, Late-Night TV, Braces**\
-`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2025/09/23/learning/22Student-News-Quiz.html
-
-**Aston Villa's new sporting director Roberto Olabe: Who is the man replacing Monchi?**\
-`The 57-year-old Spaniard is best known for his work at Real Sociedad and first worked with Unai Emery back in 2006`\
-https://nytimes.com/athletic/6654206/2025/09/23/aston-villa-sporting-director-roberto-olabe-monchi/
-
-**How Michigan is adapting and evolving: 5 trends to watch after 4 games**\
-`When his suspension ended late Saturday night, Sherrone Moore returned to a team that’s 3-1 with a renewed sense of its own potential.`\
-https://nytimes.com/athletic/6652778/2025/09/23/michigan-bryce-underwood-sherrone-moore/
-
-**Presidents Can Declare Emergencies. How Much Power Should That Give Them?**\
-`President Trump has declared 10 emergencies since being back in office. Legal experts are asking: Are these declarations justified, or is he using them to gain more power?`\
-https://nytimes.com/2025/09/23/learning/presidents-can-declare-emergencies-how-much-power-should-that-give-them.html
-
-**Lesson Plan: Emergency Powers and Presidential Authority**\
-`In this lesson, students consider what qualifies as a national emergency and decide how much power presidents should have.`\
-https://nytimes.com/2025/09/23/learning/lesson-plans/lesson-plan-emergency-powers-and-presidential-authority.html
 

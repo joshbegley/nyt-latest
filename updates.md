@@ -1,3 +1,19 @@
+**Trump Administration Live Updates: Jimmy Kimmel’s Show to Return After Free Speech Firestorm**\
+``\
+https://nytimes.com/live/2025/09/23/us/trump-news
+
+**In Israel, Government Backlash Brews Over Palestinian State Recognition**\
+`As more countries moved to formally recognize a Palestinian state, a far-right member of Israel’s government called for “countermeasures” including the annexation of the West Bank.`\
+https://nytimes.com/2025/09/23/world/middleeast/palestinian-statehood-response-israel.html
+
+**Asencio, Valverde again or a more left-field option? How Madrid can solve their right-back crisis**\
+`Madrid's issues on the right flank have returned after Alexander-Arnold's injury and Carvajal's suspension`\
+https://nytimes.com/athletic/6654270/2025/09/23/real-madrid-right-back-injuries-analysis/
+
+**The Pulse: The Lions roar back into the NFL’s elite**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6652265/2025/09/23/lions-ravens-nfl-the-pulse/
+
 **Paratici, Agnelli get suspended sentences after entering plea bargain in Prisma case**\
 `The Prisma investigation began in 2021 and led to the executives receiving bans from Italian football in 2023.`\
 https://nytimes.com/athletic/6654193/2025/09/23/former-juventus-executives-financial-investigation-agnelli-paratici/
