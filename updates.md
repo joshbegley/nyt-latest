@@ -1,3 +1,19 @@
+**Week 4 NFL Power Rankings: 49ers, Bears rise as injuries take their toll on QBs**\
+`Justin Herbert, Caleb Williams looked like stars in leading their teams to victory, but not every QB situation inspires as much confidence.`\
+https://nytimes.com/athletic/6652493/2025/09/23/nfl-power-rankings-week-4-caleb-williams-bears-49ers/
+
+**NFL QB stock report, Week 4: Is Texans' C.J. Stroud playing his way out of extension?**\
+`It once seemed like a foregone conclusion that Houston would pay Stroud. Given how poorly he's played lately, maybe it's not a slam dunk.`\
+https://nytimes.com/athletic/6652449/2025/09/23/qb-stock-report-cj-stroud-rankings-texans/
+
+**The New York Times International Edition in Print for Wednesday, Sep. 24, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/09/23/todays-new-york-times-international-edition
+
+**Atletico's Simeone charged by UEFA after Liverpool red card**\
+`Simeone said after the game that his actions were "not justifiable".`\
+https://nytimes.com/athletic/6640841/2025/09/23/diego-simeone-atletico-madrid-red-card-uefa/
+
 **Atletico Madrid coach Simeone facing UEFA disciplinary proceedings after Liverpool red card**\
 `Simeone said after the game that his actions were "not justifiable"`\
 https://nytimes.com/athletic/6640841/2025/09/23/diego-simeone-atletico-madrid-red-card-uefa/
