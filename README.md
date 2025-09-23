@@ -1,3 +1,7 @@
+**YouTube to Reinstate Accounts Banned Over Content Related to the Pandemic and 2020 Election**\
+`The streaming platform unveiled its plan in a letter to the House Judiciary Committee.`\
+https://nytimes.com/2025/09/23/technology/youtube-reinstating-banned-accounts-pandemic-election.html
+
 **Gavi ruled out for up to five months with meniscus injury**\
 `Gavi, 21, underwent surgery on a right medial meniscus injury on Tuesday.`\
 https://nytimes.com/athletic/6655466/2025/09/23/barcelona-gavi-knee-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6655533/2025/09/23/eagles-vs-buccaneers-stream-how-
 **Arizona Seventh Congressional District Special Election Results**\
 `Get live results and maps from the 2025 Arizona special election.`\
 https://nytimes.com/interactive/2025/09/23/us/elections/results-arizona-us-house-7-special.html
-
-**Woman Who Tried to Fraudulently Sell Graceland Gets More Than 4 Years in Prison**\
-`Prosecutors say Lisa Jeanine Findley tried to wrongly foreclose on Elvis Presley’s historic Tennessee home.`\
-https://nytimes.com/2025/09/23/us/graceland-memphis-lisa-jeanine-findley-sentence.html
 
