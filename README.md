@@ -1,3 +1,7 @@
+**Texans release S C.J. Gardner-Johnson after 3 games with franchise**\
+`He came to Houston as part of a trade that sent offensive lineman Kenyon Green to the Philadelphia Eagles.`\
+https://nytimes.com/athletic/6655424/2025/09/23/texans-release-c-j-gardner-johnson-houston/
+
 **Despite Trump’s Pressure on Justice Dept., Certain Safeguards Are Beyond His Reach**\
 `The criminal justice system has protections that could ultimately give pause to some of President Trump’s moves for revenge.`\
 https://nytimes.com/2025/09/23/us/politics/trump-justice-department.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/23/climate/trump-climate-energy-united-nations-unga.
 **Celtics Jayson Tatum not ruling out return this season: Full recovery still most important**\
 `"The most important thing is making the full recovery," Tatum said.`\
 https://nytimes.com/athletic/6655189/2025/09/23/celtics-jayson-tatum-return-achilles-injury/
-
-**MLB approves Automated Ball-Strike (ABS) Challenge System for 2026 season**\
-`The league's competition committee voted to implement the system, which has been tested in Triple A since 2022, in all MLB games in 2026.`\
-https://nytimes.com/athletic/6655235/2025/09/23/mlb-automated-ball-strike-robot-umps/
 

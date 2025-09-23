@@ -1,3 +1,11 @@
+**Despite Trump’s Pressure on Justice Dept., Certain Safeguards Are Beyond His Reach**\
+`The criminal justice system has protections that could ultimately give pause to some of President Trump’s moves for revenge.`\
+https://nytimes.com/2025/09/23/us/politics/trump-justice-department.html
+
+**Yohe: What I'm hearing about the Penguins: Who's making an impression on Dan Muse?**\
+`Don't be surprised if the Penguins look younger on opening night than expected. `\
+https://nytimes.com/athletic/6654663/2025/09/23/penguins-coach-dan-muse-nhl-prospects/
+
 **Oklahoma State job profile: How attractive is the task of replacing Mike Gundy?**\
 `Mike Gundy showed that consistent winning and championships are possible in Stillwater, but the program has to catch up with the times.`\
 https://nytimes.com/athletic/6655146/2025/09/23/oklahoma-state-football-coaching-search-money/
