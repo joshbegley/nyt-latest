@@ -1,3 +1,7 @@
+**Line Dance**\
+`Jacob Stulberg makes do.`\
+https://nytimes.com/2025/09/22/crosswords/daily-puzzle-2025-09-23.html
+
 **Judge: Angels can't argue that employee didn't cause death of Tyler Skaggs**\
 `The Angels were hoping to base their civil defense around re-litigating the conviction of Eric Kay. The judge denied that.`\
 https://nytimes.com/athletic/6653509/2025/09/22/angels-tyler-skaggs-civil-trial-eric-kay/

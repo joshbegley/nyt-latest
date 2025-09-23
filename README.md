@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6653509/2025/09/22/angels-tyler-skaggs-civil-trial-
 `The president delivered impassioned — if scientifically dubious — remarks about what he described as one of “the most alarming public health developments in history.”`\
 https://nytimes.com/2025/09/22/us/politics/autism-vaccines-trump-personal.html
 
-**What to Know About Tylenol, Pregnancy and Babies**\
+**Is It Safe to Take Tylenol While Pregnant? Here’s What Experts Say.**\
 `President Trump said on Monday that Tylenol use during pregnancy could lead to autism, a claim that is unproven.`\
 https://nytimes.com/2025/09/22/well/tylenol-autism-pregnancy-babies.html
 
