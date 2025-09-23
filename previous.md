@@ -1,3 +1,7 @@
+**Remembering Clough, Tear Gas, Hangovers, and Nottingham Forest's glory years... over a latte**\
+`Every Wednesday for decades, these Nottingham Forest fans have met at a cafe next to a statue of Brian Clough`\
+https://nytimes.com/athletic/6634038/2025/09/23/nottingham-forest-coffee-club/
+
 **Drones, 'PC Rain' and baseball caps: How a big Manchester United match is policed**\
 `The Athletic went behind the scenes with Greater Manchester Police to see how one of the biggest games of the season is managed`\
 https://nytimes.com/athletic/6648689/2025/09/23/manchester-united-police-old-trafford/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/23/us/us-news-rankings.html
 **Connections: Sports Edition Coach: Hints for Sept. 23, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6653044/2025/09/23/connections-sports-edition-hints-for-sept-23-2025/
-
-**How Norway Adopted New Tech in Its Hunt for ‘Missing’ Oil**\
-`Going against conventional wisdom, explorers at a Norwegian energy company drilled horizontally to find oil in an abandoned natural gas field.`\
-https://nytimes.com/2025/09/23/business/norway-oil-exploration.html
 

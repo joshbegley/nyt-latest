@@ -1,3 +1,7 @@
+**Remembering Clough, Tear Gas, Hangovers, and Nottingham Forest's glory years... over a latte**\
+`Every Wednesday for decades, these Nottingham Forest fans have met at a cafe next to a statue of Brian Clough`\
+https://nytimes.com/athletic/6634038/2025/09/23/nottingham-forest-coffee-club/
+
 **Drones, 'PC Rain' and baseball caps: How a big Manchester United match is policed**\
 `The Athletic went behind the scenes with Greater Manchester Police to see how one of the biggest games of the season is managed`\
 https://nytimes.com/athletic/6648689/2025/09/23/manchester-united-police-old-trafford/

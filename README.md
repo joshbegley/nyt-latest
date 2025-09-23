@@ -1,3 +1,11 @@
+**Putting Crystal Palace's 17-match unbeaten run into a European context**\
+`Oliver Glasner's team have not lost a game since April, an impressive record which Europe's elite teams do not come close to matching`\
+https://nytimes.com/athletic/6647211/2025/09/23/crystal-palace-unbeaten-europe-bayern-barcelona/
+
+**Unification Church Leader Is Arrested on Corruption Charges in South Korea**\
+`Han Hak-ja — the widow of the church’s founder, the Rev. Sun Myung Moon — was accused of bribing a former first lady for business and political favors.`\
+https://nytimes.com/2025/09/23/world/asia/unification-church-leader-han-arrest.html
+
 **Remembering Clough, Tear Gas, Hangovers, and Nottingham Forest's glory years... over a latte**\
 `Every Wednesday for decades, these Nottingham Forest fans have met at a cafe next to a statue of Brian Clough`\
 https://nytimes.com/athletic/6634038/2025/09/23/nottingham-forest-coffee-club/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6651165/2025/09/23/viktor-gyokeres-arsenal-analysis
 **Bundesliga Briefing: Record-breaking penalty saves, hat-tricks (or not) and Goldbridge deal success**\
 `Sebastian Stafford-Bloor takes a look at another weekend of action from the Bundesliga and the 2.Bundesliga`\
 https://nytimes.com/athletic/6651391/2025/09/23/bundesliga-briefing-goalkeeper-penalties-hat-tricks-goldbridge/
-
-**U.S. News Rankings Are Out After a Tumultuous Year for Colleges**\
-`But despite it all, very little changed on the lists many parents and prospective students turn to as admissions season kicks off.`\
-https://nytimes.com/2025/09/23/us/us-news-rankings.html
-
-**Connections: Sports Edition Coach: Hints for Sept. 23, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6653044/2025/09/23/connections-sports-edition-hints-for-sept-23-2025/
 
