@@ -1,3 +1,7 @@
+**3 West African Nations to Leave International Criminal Court**\
+`The military rulers of Burkina Faso, Mali and Niger said the court had become a tool of neocolonial repression. All three governments have been accused of human rights violations.`\
+https://nytimes.com/2025/09/23/world/africa/africa-international-criminal-court.html
+
 **Submit your Michigan Wolverines questions for Austin Meek's mailbag**\
 `What's on your mind about the Wolverines after a 3-1 start?`\
 https://nytimes.com/athletic/6655328/2025/09/23/michigan-wolverines-football-mailbag-questions-2/
@@ -18,7 +22,7 @@ https://nytimes.com/2025/09/23/climate/trump-climate-energy-united-nations-unga.
 `"The most important thing is making the full recovery," Tatum said.`\
 https://nytimes.com/athletic/6655189/2025/09/23/celtics-jayson-tatum-return-achilles-injury/
 
-**MLB approves Automated Ball Strike (ABS) system for 2026 season**\
+**MLB approves Automated Ball-Strike (ABS) Challenge System for 2026 season**\
 `The league's competition committee voted to implement the system, which has been tested in Triple A since 2022, in all MLB games in 2026.`\
 https://nytimes.com/athletic/6655235/2025/09/23/mlb-automated-ball-strike-robot-umps/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/23/business/jonathan-clements-wsj-personal-finance.h
 **Elk Hunters Found Dead Near Colorado Trail Had Been Struck by Lightning**\
 `The two men were found last week after a search operation in the San Juan National Forest that involved hundreds on foot or on horseback and was supported by drones and helicopters.`\
 https://nytimes.com/2025/09/23/us/hunters-dead-colorado-lightning.html
-
-**Titans' Brian Callahan passes play calling to QB coach Bo Hardegree**\
-`Hardegree served as the interim OC for part of 2023 with the Raiders and says his philosophy is to "protect the ball and score points."`\
-https://nytimes.com/athletic/6655071/2025/09/23/tennessee-titans-offense-play-calling-brian-callahan-bo-hardegree/
 

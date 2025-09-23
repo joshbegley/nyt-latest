@@ -1,3 +1,7 @@
+**Brunson, Hart express fondness for former Knicks coach Thibodeau**\
+`The Knicks fired Thibodeau days after their season ended in the Eastern Conference finals, the franchise's longest playoff run in 25 years.`\
+https://nytimes.com/athletic/6655276/2025/09/23/knicks-nba-jalen-brunson-tom-thibodeau/
+
 **3 West African Nations to Leave International Criminal Court**\
 `The military rulers of Burkina Faso, Mali and Niger said the court had become a tool of neocolonial repression. All three governments have been accused of human rights violations.`\
 https://nytimes.com/2025/09/23/world/africa/africa-international-criminal-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/23/arts/music/amplifier-newsletter-major-label-debut
 **Five Pearls of Wisdom From a Legend of Financial Writing**\
 `Jonathan Clements, the longtime Wall Street Journal columnist, died this weekend. Here are some of his best ideas.`\
 https://nytimes.com/2025/09/23/business/jonathan-clements-wsj-personal-finance.html
-
-**Elk Hunters Found Dead Near Colorado Trail Had Been Struck by Lightning**\
-`The two men were found last week after a search operation in the San Juan National Forest that involved hundreds on foot or on horseback and was supported by drones and helicopters.`\
-https://nytimes.com/2025/09/23/us/hunters-dead-colorado-lightning.html
 

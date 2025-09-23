@@ -1,3 +1,11 @@
+**3 West African Nations to Leave International Criminal Court**\
+`The military rulers of Burkina Faso, Mali and Niger said the court had become a tool of neocolonial repression. All three governments have been accused of human rights violations.`\
+https://nytimes.com/2025/09/23/world/africa/africa-international-criminal-court.html
+
+**MLB approves Automated Ball-Strike (ABS) Challenge System for 2026 season**\
+`The league's competition committee voted to implement the system, which has been tested in Triple A since 2022, in all MLB games in 2026.`\
+https://nytimes.com/athletic/6655235/2025/09/23/mlb-automated-ball-strike-robot-umps/
+
 **Submit your Michigan Wolverines questions for Austin Meek's mailbag**\
 `What's on your mind about the Wolverines after a 3-1 start?`\
 https://nytimes.com/athletic/6655328/2025/09/23/michigan-wolverines-football-mailbag-questions-2/
