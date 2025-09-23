@@ -16,7 +16,7 @@ https://nytimes.com/2025/09/23/world/africa/us-deportations-eswatini-jamaica.htm
 
 **Supreme Leader Says Iran Has No Plans for Nuclear Weapon**\
 `The speech came as Iran and Europe negotiate over sanctions on the sidelines at the U.N. General Assembly. But Ayatollah Ali Khamenei said he opposed talks with the U.S., a key European demand.`\
-https://nytimes.com/2025/09/23/world/supreme-leader-says-iran-has-no-plans-for-nuclear-weapon.html
+https://nytimes.com/2025/09/23/world/iran-nuclear-weapon-khamenei.html
 
 **Liverpool 2 Southampton 1 - Why was Ekitike sent off? What happened to Leoni? Is Isak up to speed?**\
 `Analysis of Liverpool's Carabao Cup victory over Southampton `\
