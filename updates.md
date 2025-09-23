@@ -1,3 +1,11 @@
+**Sean Combs’s Lawyers Urge Judge to Free Him Before the End of 2025**\
+`Mr. Combs’s lawyers said in a filing that their incarcerated client deserves to be let go soon after his Oct. 3 sentencing on prostitution-related charges.`\
+https://nytimes.com/2025/09/23/arts/sean-combs-sentence-mann-act.html
+
+**Padres clinch second consecutive postseason berth after often frustrating summer**\
+`The Padres head to the postseason for a second straight year, hoping their bullpen and their lineup core can bring them to the World Series.`\
+https://nytimes.com/athletic/6650347/2025/09/23/san-diego-padres-postseason-berth-clinched/
+
 **Padres clinch second consecutive postseason berth after often-frustrating summer**\
 `The Padres head to the postseason for a second straight year, hoping their bullpen and their lineup core can bring them to the World Series.`\
 https://nytimes.com/athletic/6650347/2025/09/23/san-diego-padres-postseason-berth-clinched/
