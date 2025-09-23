@@ -1,3 +1,11 @@
+**Democrats Open Inquiries Into Handling of Homan Investigation**\
+`President Trump’s border czar was investigated for potential bribery after accepting a bag with $50,000 in cash, but the case was closed after Mr. Trump took office.`\
+https://nytimes.com/2025/09/23/us/politics/tom-homan-democrats-investigation.html
+
+**A Graphic Tee, a Tapestry Skirt and a Lucky Color**\
+`An ensemble of mixed and matched pieces reflected a habit of wearing red.`\
+https://nytimes.com/2025/09/23/style/street-style-look-lucky-color-red.html
+
 **Here’s what to know today.**\
 `President Trump’swith a rebuke of global institutions,`\
 https://nytimes.com/live/2025/09/23/world/un-general-assembly-trump/heres-what-to-know-today
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6654237/2025/09/23/eagles-desean-jackson-jordan-dav
 **Explore the Math Behind the Golden Ratio With Steven Strogatz and The New York Times**\
 `What do an apple, a pentagram and a belly button have in common? They all invite students to investigate a famous geometric proportion.`\
 https://nytimes.com/2025/09/23/learning/lesson-plans/explore-the-math-behind-the-golden-ratio-with-steven-strogatz.html
-
-**After a post-clinch letdown, it’s time for the Cubs to lock back in for October**\
-`“The big picture,” manager Craig Counsell said, “is we’ve got something in front of us for this last week."`\
-https://nytimes.com/athletic/6653220/2025/09/23/chicago-cubs-postseason-analysis-urgency/
-
-**Prime Video hires Swin Cash for a unique position — NBA front office analyst**\
-`Cash said her role on Prime Video's WNBA coverage is a work in progress.`\
-https://nytimes.com/athletic/6652717/2025/09/23/swin-cash-prime-video-nba-analyst/
 
