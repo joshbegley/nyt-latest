@@ -1,3 +1,11 @@
+**How to watch Fever at Aces: Game 2 Time, TV, streaming**\
+`Find out how to watch the Indiana Fever play the Las Vegas Aces, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6655678/2025/09/23/fever-vs-aces-stream-how-to-watch-sept-23/
+
+**Planning Committee for U.S.’ 250th Birthday Fires Director for ‘Breach of Trust’**\
+`The bipartisan commission said the official, Ari Abergel, a Trump ally, had misused a social-media account and improperly pushed some members to resign.`\
+https://nytimes.com/2025/09/23/us/politics/ari-abergel-fired-trump-charlie-kirk.html
+
 **Brian Daboll is betting it all on Jaxson Dart. Can rookie save Giants' season, coach's job?**\
 `This is it. Making Dart the starting QB is the last card Daboll has to play. If it works, all the failures of the past will be forgotten.`\
 https://nytimes.com/athletic/6655406/2025/09/23/giants-jaxson-dart-brian-daboll-big-bet/
