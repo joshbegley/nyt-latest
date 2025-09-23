@@ -1,3 +1,11 @@
+**In a Sudden Shift, Trump Says Ukraine Can Win the War With Russia**\
+`President Trump’s pivot could give him room to distance himself from a conflict that he once promised to solve in days or weeks.`\
+https://nytimes.com/2025/09/23/us/politics/trump-russia-ukraine.html
+
+**On Covid and Autism, Trump Strays From the Science**\
+`President Trump has used his position of authority to dole out flawed medical advice dating back to his first term, when he mused about injecting bleach to kill off the coronavirus.`\
+https://nytimes.com/2025/09/23/us/politics/trump-covid-autism-science.html
+
 **How to watch Jaguars at 49ers: Time, TV, streaming**\
 `Find out how to watch the Jacksonville Jaguars play the San Francisco 49ers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6656146/2025/09/23/jaguars-vs-49ers-stream-how-to-watch-sept-28/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/23/nyregion/jack-ciattarelli-new-jersey-police-endor
 **Trump Pushes Unproven Link Between Tylenol and Autism**\
 `Top U.S. health officials urged pregnant women not to use acetaminophen, the active ingredient in Tylenol, claiming it could cause autism, though studies have been inconclusive. Azeen Ghorayshi, a science reporter for The New York Times, explains.`\
 https://nytimes.com/video/science/100000010414944/trump-pushes-unproven-link-between-tylenol-and-autism.html
-
-**Why Take Tylenol During Pregnancy? The Risks of Fevers.**\
-`Fevers during pregnancy can be dangerous, and acetaminophen is the go-to treatment for them. Doctors worry what will happen if women are afraid to take it.`\
-https://nytimes.com/2025/09/23/well/tylenol-pregnancy-fevers.html
-
-**Fantasy football market share report: Kareem Hunt, Tyquan Thornton are the Chiefs to target**\
-`Michael Salfino mines the touches and targets data from Week 3, which has pointed him in the direction of a couple Chiefs this week.`\
-https://nytimes.com/athletic/6655912/2025/09/23/fantasy-football-market-share-report-week-4-judkins-hunt-thornton/
 

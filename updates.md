@@ -1,3 +1,11 @@
+**In a Sudden Shift, Trump Says Ukraine Can Win the War With Russia**\
+`President Trump’s pivot could give him room to distance himself from a conflict that he once promised to solve in days or weeks.`\
+https://nytimes.com/2025/09/23/us/politics/trump-russia-ukraine.html
+
+**On Covid and Autism, Trump Strays From the Science**\
+`President Trump has used his position of authority to dole out flawed medical advice dating back to his first term, when he mused about injecting bleach to kill off the coronavirus.`\
+https://nytimes.com/2025/09/23/us/politics/trump-covid-autism-science.html
+
 **How to watch Jaguars at 49ers: Time, TV, streaming**\
 `Find out how to watch the Jacksonville Jaguars play the San Francisco 49ers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6656146/2025/09/23/jaguars-vs-49ers-stream-how-to-watch-sept-28/
