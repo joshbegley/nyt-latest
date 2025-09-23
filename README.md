@@ -1,5 +1,9 @@
+**10 observations: Young Penguins shine in shootout loss to Canadiens**\
+`In the preseason, it's not the final score that really matters but the way the team played, and Penguins fans saw some young talent.`\
+https://nytimes.com/athletic/6652601/2025/09/22/penguins-preseason-broz-brunicke-canadiens/
+
 **Braves' Ozzie Albies has fractured left hamate bone, likely ending 2025 season**\
-`It’s unclear how this latest injury might affect Atlanta's decision whether or not to pick up Albies' club option.`\
+`It’s unclear how this latest injury might affect Atlanta's decision of whether or not to pick up Albies' club option.`\
 https://nytimes.com/athletic/6653654/2025/09/22/atlanta-braves-ozzie-albies-hamate-fracture/
 
 **Mamdani Lands Endorsement From Kamala Harris, His Biggest Yet**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6653482/2025/09/22/charlie-morton-braves-return/
 **WSU football player shot, Washington student identified as suspect: Police**\
 `Offensive lineman Sone Falealo was acting as security at apartment party when he was shot, according to authorities.`\
 https://nytimes.com/athletic/6653225/2025/09/22/wsu-football-player-shot-washington-student-suspect/
-
-**Trump Signs Order Targeting Antifa Movement**\
-`President Trump’s executive order threatened to prosecute donors who support antifascist philosophy and issued a domestic terrorism designation that doesn’t exist under U.S. law.`\
-https://nytimes.com/2025/09/22/us/politics/trump-antifa-order-terrorism.html
 
