@@ -1,3 +1,11 @@
+**The Security Council warns of deteriorating conditions from the war in Gaza.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2025/09/23/world/un-general-assembly-trump/the-security-council-warns-of-deteriorating-conditions-from-the-war-in-gaza
+
+**Claudia Cardinale, Actress Who Was ‘Italy’s Girlfriend,’ Is Dead at 87**\
+`A sex symbol with girl-next-door appeal, she rose to fame in the 1960s and starred in more than 150 films, including the Oscar-winning ‘8½’ and ‘The Leopard.’`\
+https://nytimes.com/2025/09/23/movies/claudia-cardinale-dead.html
+
 **Republican Who Has Criticized the Police Wins Major Union’s Endorsement**\
 `The Fraternal Order of Police in New Jersey endorsed Jack Ciattarelli for governor over his Democratic opponent, Representative Mikie Sherrill.`\
 https://nytimes.com/2025/09/23/nyregion/jack-ciattarelli-new-jersey-police-endorsement.html
