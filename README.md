@@ -1,3 +1,7 @@
+**How to watch BYU at Colorado: Time, TV, streaming**\
+`Find out how to watch the BYU Cougars play the Colorado Buffaloes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6653967/2025/09/23/byu-vs-colorado-stream-how-to-watch-sept-27/
+
 **How to watch Rockies at Mariners: Time, TV, streaming for September 23**\
 `Find out how to watch the Colorado Rockies play the Seattle Mariners, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6653918/2025/09/23/rockies-vs-mariners-stream-how-to-watch-sept-23/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6653517/2025/09/23/ballon-dor-ousmane-dembele-takea
 **Sean Combs’s Lawyers Urge Judge to Free Him Before the End of 2025**\
 `Mr. Combs’s lawyers said in a filing that their incarcerated client deserves to be let go soon after his Oct. 3 sentencing on prostitution-related charges.`\
 https://nytimes.com/2025/09/23/arts/sean-combs-sentence-mann-act.html
-
-**Padres clinch second consecutive postseason berth after often frustrating summer**\
-`The Padres head to the postseason for a second straight year, hoping their bullpen and their lineup core can bring them to the World Series.`\
-https://nytimes.com/athletic/6650347/2025/09/23/san-diego-padres-postseason-berth-clinched/
 
