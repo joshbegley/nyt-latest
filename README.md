@@ -1,3 +1,7 @@
+**Oklahoma State job profile: How attractive is the task of replacing Mike Gundy?**\
+`Mike Gundy showed that consistent winning and championships are possible in Stillwater, but the program has to catch up with the times.`\
+https://nytimes.com/athletic/6655146/2025/09/23/oklahoma-state-football-coaching-search-money/
+
 **Brunson, Hart express fondness for former Knicks coach Thibodeau**\
 `The Knicks fired Thibodeau days after their season ended in the Eastern Conference finals, the franchise's longest playoff run in 25 years.`\
 https://nytimes.com/athletic/6655276/2025/09/23/knicks-nba-jalen-brunson-tom-thibodeau/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6655235/2025/09/23/mlb-automated-ball-strike-robot-
 **10 Great Tracks From Major-Label Debuts**\
 `In honor of a gem from Alex G, listen to tracks from Yeah Yeah Yeahs, Modest Mouse, Elliott Smith and more.`\
 https://nytimes.com/2025/09/23/arts/music/amplifier-newsletter-major-label-debuts.html
-
-**Five Pearls of Wisdom From a Legend of Financial Writing**\
-`Jonathan Clements, the longtime Wall Street Journal columnist, died this weekend. Here are some of his best ideas.`\
-https://nytimes.com/2025/09/23/business/jonathan-clements-wsj-personal-finance.html
 
