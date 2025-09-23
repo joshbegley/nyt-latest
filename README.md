@@ -1,6 +1,22 @@
+**A Rhode Island Wind Farm Changed Their View. And Their Lives, for the Better.**\
+`Offshore turbines let Block Island shut down soot-spewing, earsplitting diesel generators. There were other benefits, too.`\
+https://nytimes.com/2025/09/22/climate/block-island-rhode-wind-turbines.html
+
+**Satellites and Drones Are Unlocking Benefits ‘Hidden in Plain Sight’ in Michigan**\
+`Technology is helping farmers use land and fertilizer more strategically. Sometimes, the best practice is no chemicals at all.`\
+https://nytimes.com/2025/09/22/climate/michigan-precision-agriculture.html
+
+**‘They’re Small but They’re Mighty.’ Meet the Wisconsin Sisters Healing the Land.**\
+`The women of Holy Wisdom Monastery have restored 170 acres of native prairie and oak savanna. “Humans need creation to find ourselves,” one said.`\
+https://nytimes.com/2025/09/22/climate/wisconsin-nuns-prairie-restoration.html
+
+**Trump Promotes Unproven Ties to Autism and Tylenol Use**\
+`President Trump urged pregnant women to avoid taking Tylenol, claiming that there was a link between rising autism rates and painkillers with acetaminophen, contradicting decades of research that says otherwise.`\
+https://nytimes.com/video/us/politics/100000010414909/trump-tyleon-autism-pregnant-women.html
+
 **‘I Hate My Opponent’: Trump’s Remarks at Kirk Memorial Distill His Politics**\
 `President Trump has been fueled by grievance and animosity over the course of his political and public life.`\
-https://nytimes.com/2025/09/22/us/politics/trumps-hate-vengeance-politics.html
+https://nytimes.com/2025/09/22/us/politics/trump-kirk-memorial-hate.html
 
 **France and Other World Leaders Recognize Palestinian Statehood**\
 `France and three other nations joined an international movement to recognize Palestinian sovereignty at a United Nations summit on Monday.`\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6653465/2025/09/22/red-sox-vs-blue-jays-stream-how-
 **For Zohran Mamdani, Judaism’s Holiest Days Present a Test**\
 `Mr. Mamdani intends to appear at explicitly Jewish spaces during the High Holy Days, seeking to bridge a divide with some Jewish voters as he runs for mayor.`\
 https://nytimes.com/2025/09/22/nyregion/mamdani-rosh-hashana-jewish-holidays.html
-
-**Trump’s Handpicked Prosecutor Takes Over Comey and James Cases**\
-`The president is pushing up against the statute of limitations in his pursuit of charges against a former F.B.I. director, and also wants the attorney general of New York and a California senator prosecuted.`\
-https://nytimes.com/2025/09/22/us/politics/trump-lindsey-halligan-james-comey.html
-
-**Christianity After Charlie Kirk**\
-`Will a martyrdom set off a religious revival?`\
-https://nytimes.com/2025/09/22/opinion/charlie-kirk-memorial-christianity.html
-
-**Politicians and Celebrities Weigh In on Jimmy Kimmel’s Return to Late Night**\
-`Some celebrated ABC’s decision to rescind the show’s suspension, while others criticized it.`\
-https://nytimes.com/2025/09/22/us/jimmy-kimmel-show-return-reactions.html
-
-**How to watch Arizona at Iowa State: Time, TV, streaming**\
-`Find out how to watch the Arizona Wildcats play the Iowa State Cyclones, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6653404/2025/09/22/arizona-vs-iowa-state-stream-how-to-watch-sept-27/
 
