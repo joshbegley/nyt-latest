@@ -1,3 +1,15 @@
+**Atletico Madrid coach Simeone facing UEFA disciplinary proceedings after Liverpool red card**\
+`Simeone said after the game that his actions were "not justifiable"`\
+https://nytimes.com/athletic/6640841/2025/09/23/diego-simeone-atletico-madrid-red-card-uefa/
+
+**In Rare China Visit, U.S. Lawmakers Call Lack of Military Talks ‘Dangerous’**\
+`The bipartisan delegation said more conversations were necessary to avoid accidental “miscalculations and misunderstandings” that could lead to conflict.`\
+https://nytimes.com/2025/09/23/world/asia/us-china-trump-xi.html
+
+**China Braces for the Worst as Typhoon Ragasa Barrels Toward Its Coast**\
+`Hong Kong canceled hundreds of flights, Macau shuttered casinos and the city of Shenzhen plans to evacuate 400,000 people.`\
+https://nytimes.com/2025/09/23/world/asia/typhoon-ragasa-hong-kong-china.html
+
 **How to watch Cardinals at Giants: Time, TV, streaming for September 23**\
 `Find out how to watch the St. Louis Cardinals play the San Francisco Giants, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6654110/2025/09/23/cardinals-vs-giants-stream-how-to-watch-sept-23/
