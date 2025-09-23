@@ -1,3 +1,11 @@
+**10 observations: Young Penguins shine in shootout loss to Canadiens**\
+`In the preseason, it's not the final score that really matters but the way the team played, and Penguins fans saw some young talent.`\
+https://nytimes.com/athletic/6652601/2025/09/22/penguins-preseason-broz-brunicke-canadiens/
+
+**Braves' Ozzie Albies has fractured left hamate bone, likely ending 2025 season**\
+`It’s unclear how this latest injury might affect Atlanta's decision of whether or not to pick up Albies' club option.`\
+https://nytimes.com/athletic/6653654/2025/09/22/atlanta-braves-ozzie-albies-hamate-fracture/
+
 **Braves' Ozzie Albies has fractured left hamate bone, likely ending 2025 season**\
 `It’s unclear how this latest injury might affect Atlanta's decision whether or not to pick up Albies' club option.`\
 https://nytimes.com/athletic/6653654/2025/09/22/atlanta-braves-ozzie-albies-hamate-fracture/
