@@ -1,3 +1,15 @@
+**Presidents Can Declare Emergencies. How Much Power Should That Give Them?**\
+`President Trump has declared 10 emergencies since being back in office. Legal experts are asking: Are these declarations justified, or is he using them to gain more power?`\
+https://nytimes.com/2025/09/23/learning/presidents-can-declare-emergencies-how-much-power-should-that-give-them.html
+
+**Lesson Plan: Emergency Powers and Presidential Authority**\
+`In this lesson, students consider what qualifies as a national emergency and decide how much power presidents should have.`\
+https://nytimes.com/2025/09/23/learning/lesson-plans/lesson-plan-emergency-powers-and-presidential-authority.html
+
+**Villa agree deal to appoint Olabe as Monchi replacement**\
+`Olabe left Real Sociedad at the end of last season, having built a reputation as one of the game’s leading sporting directors.`\
+https://nytimes.com/athletic/6654046/2025/09/23/roberto-olabe-aston-villa-who/
+
 **Villa in advanced talks to appoint Olabe as Monchi replacement**\
 `Olabe left Real Sociedad at the end of last season, having built a reputation as one of the game’s leading sporting directors.`\
 https://nytimes.com/athletic/6654046/2025/09/23/roberto-olabe-aston-villa-who/

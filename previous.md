@@ -1,4 +1,12 @@
-**Villa in advanced talks to appoint Olabe as Monchi replacement**\
+**Presidents Can Declare Emergencies. How Much Power Should That Give Them?**\
+`President Trump has declared 10 emergencies since being back in office. Legal experts are asking: Are these declarations justified, or is he using them to gain more power?`\
+https://nytimes.com/2025/09/23/learning/presidents-can-declare-emergencies-how-much-power-should-that-give-them.html
+
+**Lesson Plan: Emergency Powers and Presidential Authority**\
+`In this lesson, students consider what qualifies as a national emergency and decide how much power presidents should have.`\
+https://nytimes.com/2025/09/23/learning/lesson-plans/lesson-plan-emergency-powers-and-presidential-authority.html
+
+**Villa agree deal to appoint Olabe as Monchi replacement**\
 `Olabe left Real Sociedad at the end of last season, having built a reputation as one of the game’s leading sporting directors.`\
 https://nytimes.com/athletic/6654046/2025/09/23/roberto-olabe-aston-villa-who/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6653043/2025/09/23/nick-bosa-injury-mykel-williams-
 **Submit questions for Nate Atkins' Rams mailbag**\
 `Atkins will consider your questions for his upcoming mailbag following the Rams' heartbreaking loss to the Eagles. `\
 https://nytimes.com/athletic/6654010/2025/09/23/rams-mailbag-eagles-week-3/
-
-**Metropolitan Division roundtable: Each team's reason for optimism and concern — and a prediction**\
-`Not surprisingly, the Hurricanes are projected at the top of the division again, but which teams might take steps forward?`\
-https://nytimes.com/athletic/6648844/2025/09/23/metropolitan-division-preview-nhl/
-
-**Red Wings roster battles, prospects and more: 5 big preseason questions**\
-`Who can fill spots at top-line left wing and second-pair right defense? Is Emmitt Finnie the real deal? Will top prospects step up?`\
-https://nytimes.com/athletic/6653020/2025/09/23/red-wings-preseason-questions-emmitt-finnie-nate-danielson/
 
