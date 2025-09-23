@@ -1,3 +1,19 @@
+**Egypt’s Most Famous Political Prisoner is Freed, and Reunited With Family**\
+`The dissident Alaa Abd El Fattah, a British-Egyptian dual citizen, was imprisoned for most of the past 12 years. His family waged an international campaign for his release.`\
+https://nytimes.com/2025/09/23/world/europe/egypt-activist-alaa.html
+
+**Four Seattle Storm head coaching candidates to replace Noelle Quinn**\
+`Would Briann January, a former WNBA player and current Fever assist, fit in Seattle? `\
+https://nytimes.com/athletic/6652163/2025/09/23/seattle-storm-coaching-candidates-wnba-noelle-quinn/
+
+**Sean McVay goes old-school; Browns, Chargers defenses stout: Week 3 film review**\
+`Also, the Eagles offense seems to have figured things out; and how the Browns and Chargers defenses are among the stingiest.`\
+https://nytimes.com/athletic/6652775/2025/09/23/film-review-rams-mcvay-browns-chargers-defense/
+
+**Time-melting TD drives, a punch-out and strip-sack: Lions make statement in beating Ravens**\
+`The Lions had scoring drives of 98 and 96 yards and sacked Lamar Jackson seven times in their second win in a row.`\
+https://nytimes.com/athletic/6654014/2025/09/23/lions-beat-ravens-mnf-dan-campbell/
+
 **The psychology of a Canadiens hopeful through the eyes and ears of Owen Beck**\
 `How Martin St. Louis handled the recall and demotion of Beck last season says a lot about his important role in player development.`\
 https://nytimes.com/athletic/6653870/2025/09/23/canadiens-preseason-opener-owen-beck/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6650982/2025/09/23/seattle-mariners-cal-raleigh-hom
 **How some 2-minute magic put the Bears in complete control against the Cowboys**\
 `Sunday's two-minute operation before halftime offered Caleb Williams and the Bears teach tape on clock management, poise and cohesion.`\
 https://nytimes.com/athletic/6653187/2025/09/23/bears-2-minute-drill-caleb-williams-cowboys/
-
-**Guardians-Tigers series preview: The AL Central battle has a lot at stake**\
-`Here’s what to watch when the Tigers and Guardians collide this week in Cleveland.`\
-https://nytimes.com/athletic/6652861/2025/09/23/cleveland-guardians-detroit-tigers-series-preview/
-
-**Ryan Fitzgerald's knuckleball kickoffs kept the Falcons on their heels Sunday**\
-`The Falcons had trouble handling Fitzgerald's wobbly kickoffs Sunday and averaged just 11.6 yards on five returns.`\
-https://nytimes.com/athletic/6653166/2025/09/23/panthers-ryan-fitzgerald-kickoffs-knuckleball/
-
-**All the Cowboys' problems on defense lead to one thing: Changes need to be made**\
-`The Cowboys have allowed teams to "sling it all over the place" and they're also not forcing turnovers, which used to be a Dallas staple.`\
-https://nytimes.com/athletic/6653603/2025/09/23/cowboys-defense-problems-brian-schottenheimer/
-
-**Will J.J. McCarthy reclaim the Vikings' starting QB job when he's healthy? We'll see**\
-`The Vikings are trying to balance the short-term need to win with the long-term desire to develop McCarthy. How will that play out overseas?`\
-https://nytimes.com/athletic/6653192/2025/09/23/jj-mccarthy-carson-wentz-vikings-qb-situation/
 
