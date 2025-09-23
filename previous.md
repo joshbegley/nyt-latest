@@ -1,4 +1,32 @@
-**Lions vs. Ravens: Detroit dominates Baltimore physically for statement win**\
+**Bundesliga Briefing: Record-breaking penalty saves, hat-tricks (or not) and Goldbridge deal success**\
+`Sebastian Stafford-Bloor takes a look at another weekend of action from the Bundesliga and the 2.Bundesliga`\
+https://nytimes.com/athletic/6651391/2025/09/23/bundesliga-briefing-goalkeeper-penalties-hat-tricks-goldbridge/
+
+**U.S. News Rankings Are Out After a Tumultuous Year for Colleges**\
+`But despite it all, very little changed on the lists many parents and prospective students turn to as admissions season kicks off.`\
+https://nytimes.com/2025/09/23/us/us-news-rankings.html
+
+**Connections: Sports Edition Coach: Hints for Sept. 23, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6653044/2025/09/23/connections-sports-edition-hints-for-sept-23-2025/
+
+**How Norway Adopted New Tech in Its Hunt for ‘Missing’ Oil**\
+`Going against conventional wisdom, explorers at a Norwegian energy company drilled horizontally to find oil in an abandoned natural gas field.`\
+https://nytimes.com/2025/09/23/business/norway-oil-exploration.html
+
+**Fantasy football waiver wire Week 4: Trey Benson, Tre Tucker, streamers and more**\
+`Jake Ciely runs through the best of this week's waiver wire options, advising to spend a majority of your FAB for the rights to Trey Benson.`\
+https://nytimes.com/athletic/6653150/2025/09/23/fantasy-football-waiver-wire-week-4-tre-tucker-luther-burden-streamers/
+
+**Corrections: Sept. 23, 2025**\
+`Corrections that appeared in print on Tuesday, Sept. 23, 2025.`\
+https://nytimes.com/2025/09/23/pageoneplus/corrections-sept-23-2025.html
+
+**Quote of the Day: G.O.P. Giving Trump Tax Cut A Rebranding**\
+`Quotation of the Day for Tuesday, September 23, 2025.`\
+https://nytimes.com/2025/09/22/pageoneplus/quote-of-the-day-gop-giving-trump-tax-cut-a-rebranding.html
+
+**Lions vs. Ravens: Detroit dominates Baltimore physically for statement win in heavyweight bout**\
 `The Lions sacked QB Lamar Jackson seven times as Detroit's offensive line dominated the Ravens' defensive front.`\
 https://nytimes.com/athletic/6653491/2025/09/22/lions-ravens-score-result-takeaways-mnf/
 
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6652601/2025/09/22/penguins-preseason-broz-brunicke
 **Braves' Ozzie Albies has fractured left hamate bone, ending 2025 season**\
 `It’s unclear how this latest injury might affect Atlanta's decision of whether or not to pick up Albies' club option.`\
 https://nytimes.com/athletic/6653654/2025/09/22/atlanta-braves-ozzie-albies-hamate-fracture/
-
-**Mamdani Lands Endorsement From Kamala Harris, His Biggest Yet**\
-`“I support the Democrat in the race,” Ms. Harris said during an interview with Rachel Maddow. She added of the Democratic Party, “we’ve got a big tent and we’ve got a lot of stars.”`\
-https://nytimes.com/2025/09/22/us/politics/kamala-harris-endorsement-zohran-mamdani.html
-
-**Did voters get Ballon d'Or wrong? Plus: Remembering Matt Beard**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/6653622/2025/09/22/ballon-dor-voting-remembering-matt-beard-full-time/
-
-**Line Dance**\
-`Jacob Stulberg makes do.`\
-https://nytimes.com/2025/09/22/crosswords/daily-puzzle-2025-09-23.html
-
-**Judge: Angels can't argue that employee didn't cause death of Tyler Skaggs**\
-`The Angels were hoping to base their civil defense around re-litigating the conviction of Eric Kay. The judge denied that.`\
-https://nytimes.com/athletic/6653509/2025/09/22/angels-tyler-skaggs-civil-trial-eric-kay/
-
-**For Trump, Who Has ‘Strong Feelings’ About Autism, the Issue Is Personal**\
-`The president delivered impassioned — if scientifically dubious — remarks about what he described as one of “the most alarming public health developments in history.”`\
-https://nytimes.com/2025/09/22/us/politics/autism-vaccines-trump-personal.html
-
-**Is It Safe to Take Tylenol While Pregnant? Here’s What Experts Say.**\
-`President Trump said on Monday that Tylenol use during pregnancy could lead to autism, a claim that is unproven.`\
-https://nytimes.com/2025/09/22/well/tylenol-autism-pregnancy-babies.html
-
-**Charlie Morton's return to Braves is about appreciation, and perhaps a fond farewell**\
-`Morton was one of the most beloved Braves of the past decade, both among teammates and fans.`\
-https://nytimes.com/athletic/6653482/2025/09/22/charlie-morton-braves-return/
 
