@@ -1,3 +1,11 @@
+**Titans' Brian Callahan passes play calling to QB coach Bo Hardegree**\
+`Hardegree served as the interim OC for part of 2023 with the Raiders and says his philosophy is to "protect the ball and score points."`\
+https://nytimes.com/athletic/6655071/2025/09/23/tennessee-titans-offense-play-calling-brian-callahan-bo-hardegree/
+
+**Oklahoma State fires Mike Gundy amid 21st season as head coach**\
+`Gundy, who spent 35 of the last 40 years at Oklahoma State as a player or coach, ended his tenure 1-11 in his last 12 after a loss to Tulsa.`\
+https://nytimes.com/athletic/6606852/2025/09/23/mike-gundy-fired-oklahoma-state-football-news/
+
 **Israel, citing Rosh Hashana, said it wouldn’t attend a U.N. Security Council meeting on Gaza.**\
 `By Pranav Baskar`\
 https://nytimes.com/live/2025/09/23/world/un-general-assembly-trump/israel-citing-rosh-hashana-said-it-wouldnt-attend-a-un-security-council-meeting-on-gaza
