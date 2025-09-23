@@ -1,3 +1,15 @@
+**The Rapture Was Predicted to Happen Today. TikTok Has Some Advice.**\
+`There are thousands of videos to help prepare those who may or may not ascend into the heavens on Tuesday.`\
+https://nytimes.com/2025/09/23/us/rapture-tiktok-sept-23.html
+
+**Trump claimed again at the U.N. that he has ended seven wars. Here’s a closer look.**\
+`By Pranav Baskar`\
+https://nytimes.com/live/2025/09/23/world/un-general-assembly-trump/trump-claimed-again-at-the-un-that-he-has-ended-seven-wars-heres-a-closer-look
+
+**Bamford in advanced talks with Getafe after Leeds exit**\
+`The 32-year-old forward scored 60 goals over seven years at Elland Road.`\
+https://nytimes.com/athletic/6654509/2025/09/23/patrick-bamford-getafe-leeds-talks/
+
 **The Bounce: The Rockets lose steam with Fred VanVleet injury**\
 `Keeping you up to date on the latest news and analysis from around the league.`\
 https://nytimes.com/athletic/6654896/2025/09/23/rockets-fred-vanvleet-injury-west-nba/

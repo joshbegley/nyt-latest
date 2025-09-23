@@ -1,3 +1,7 @@
+**Super Bowl odds: Surprise contenders rise to 3-0, 1-2 Ravens don't wobble... yet**\
+`Three unexpected contenders remain undefeated, but the top five in Super Bowl odds have staying power.`\
+https://nytimes.com/athletic/6654766/2025/09/23/super-bowl-odds-week-4-contenders-ravens/
+
 **The Rapture Was Predicted to Happen Today. TikTok Has Some Advice.**\
 `There are thousands of videos to help prepare those who may or may not ascend into the heavens on Tuesday.`\
 https://nytimes.com/2025/09/23/us/rapture-tiktok-sept-23.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/100000010406014/which-countries-recognize-a-pale
 **Zackery Died Subway Surfing. Is Social Media to Blame?**\
 `Norma Nazario didn’t understand what had motivated her 15-year-old son to climb on top of a train one evening. Then she found his phone.`\
 https://nytimes.com/2025/09/23/style/subway-surfing-death-nyc-tiktok.html
-
-**A Dozen Protesters Are Arrested Outside the U.N. Before Trump’s Speech**\
-`The police swarmed a cluster of anti-Trump protesters ahead of the president’s address to diplomats and world leaders on Tuesday morning.`\
-https://nytimes.com/2025/09/23/nyregion/united-nations-protest-trump.html
 
