@@ -1,3 +1,7 @@
+**Malawi’s Former President Set to Return to Power, Early Results Show**\
+`Peter Mutharika, an 85-year-old Yale-educated law professor, looked on course to defeat the incumbent, Lazarus Chakwera.`\
+https://nytimes.com/2025/09/23/world/africa/malawi-president-election-results.html
+
 **‘Autism Doesn’t Need a Cure’: Trump’s Message Rankles People Living With the Disability**\
 `Many welcomed more research, and some welcomed possible new treatments. But the administration’s embrace of unproven science and approach to autism as a “crisis” has sown deep mistrust.`\
 https://nytimes.com/2025/09/23/us/trump-autism-tylenol.html
