@@ -1,3 +1,19 @@
+**Israel, citing Rosh Hashana, said it wouldn’t attend a U.N. Security Council meeting on Gaza.**\
+`By Pranav Baskar`\
+https://nytimes.com/live/2025/09/23/world/un-general-assembly-trump/israel-citing-rosh-hashana-said-it-wouldnt-attend-a-un-security-council-meeting-on-gaza
+
+**Trump’s Comments About London Are ‘Bigoted,’ Mayor’s Office Says**\
+`President Trump lashed out at Mayor Sadiq Khan and made false claims about the British capital and Shariah law during his speech at the U.N. General Assembly.`\
+https://nytimes.com/2025/09/23/world/europe/23unga-blog-trump-london-mayor.html
+
+**Until Saturday: Surprise team No. 2 in computers**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6655229/2025/09/23/indiana-rankings-sec-rivalries-until-saturday/
+
+**Drone Strike in Haiti Kills 8 Children at a Birthday Party**\
+`A drone meant to strike a gang leader hit a celebration where children had gathered. Haiti is using drones to repel gangs that control much of the capital.`\
+https://nytimes.com/2025/09/23/us/haiti-drone-attack-kills-children.html
+
 **This Restaurant Revives the Artistic Spirit of ’70s SoHo**\
 `The original FOOD opened in 1971 with art world names like Donald Judd contributing to the menu. The artist Lucien Smith is trying to recreate it.`\
 https://nytimes.com/2025/09/23/dining/nyc-restaurant-news.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6655055/2025/09/23/golden-knights-alex-pietrangelo-
 **Judge in Gilgo Beach Case Spurns Request to Throw Out DNA Evidence**\
 `Lawyers for Rex Heuermann, who is charged with killing seven women, made last-ditch attempts to toss crucial evidence, but prosecutors are preparing for an expected trial next year.`\
 https://nytimes.com/2025/09/23/nyregion/gilgo-beach-rex-heuermann-hearing.html
-
-**Transgender sprinter sues NCAA, SUNY Geneseo after being barred from races**\
-`A runner says she was denied entry in a track meet after the NCAA's policy banned transgender women from participation in women’s sports.`\
-https://nytimes.com/athletic/6654967/2025/09/23/suny-geneseo-transgender-sprinter-lawsuit/
-
-**Bernie Parent, Hall of Fame Goalie for the Brawling Flyers, Dies at 80**\
-`“Only the Lord saves more than Bernie Parent,” a bumper sticker said of his netminding for Philadelphia, which he led to the Stanley Cup in 1974 and ’75.`\
-https://nytimes.com/2025/09/23/sports/hockey/bernie-parent-dead.html
-
-**Upon Further Review: Cowboys plagued by 'incompetence and incoherence,' defensive incompatibility**\
-`Robert Mays and Derrik Klassen of “The Athletic Football Show” peek under the hood in Dallas to see just how bad things have gotten.`\
-https://nytimes.com/athletic/6654009/2025/09/23/upon-further-review-cowboys/
-
-**Out of Goo Gone? These DIY Adhesive Removers Actually Work.**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/wc-advice-goo-gone-alternatives
 
