@@ -1,3 +1,11 @@
+**Kulusevski has 'good chance' to return from injury before end of 2025**\
+`Meanwhile, Spurs coach Thomas Frank said Randal Kolo Muani and Ben Davies will not be fit to face Doncaster Rovers on Wednesday.`\
+https://nytimes.com/athletic/6654646/2025/09/23/dejan-kulusevski-injury-tottenham-latest/
+
+**Guterres warns of ‘relentless’ suffering and says the U.N.’s principles ‘are under siege.’**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2025/09/23/world/un-general-assembly-trump/guterres-speech-un-general-assembly
+
 **Arsenal’s Ballon d'Or win reflects their relentless rise to the forefront of women's game**\
 `While last season's Champions League triumph no doubt played a major part in Arsenal’s award win, there is also a deeper recognition at play`\
 https://nytimes.com/athletic/6654215/2025/09/23/arsenal-ballon-dor-win-slegers-russo-caldentey/
