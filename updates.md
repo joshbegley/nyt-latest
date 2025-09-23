@@ -1,3 +1,7 @@
+**Arsenal's Madueke facing around two months out with knee injury**\
+`Madueke was withdrawn for the returning Bukayo Saka at half-time of Sunday's 1-1 draw with Manchester City.`\
+https://nytimes.com/athletic/6651314/2025/09/23/noni-madueke-knee-injury-arsenal/
+
 **Hong Kong Prepares for Typhoon Ragasa**\
 `Hong Kong residents prepared for the worst as Typhoon Ragasa, the most powerful storm so far this year, prompted thousands of evacuations and hundreds of flight cancellations.`\
 https://nytimes.com/video/world/asia/100000010415862/typhoon-ragasa-hong-kong-china.html
