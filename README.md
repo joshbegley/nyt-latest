@@ -1,3 +1,15 @@
+**For Trump, Who Has ‘Strong Feelings’ About Autism, the Issue Is Personal**\
+`The president delivered impassioned — if scientifically dubious — remarks about what he described as one of “the most alarming public health developments in history.”`\
+https://nytimes.com/2025/09/22/us/politics/autism-vaccines-trump-personal.html
+
+**What to Know About Tylenol, Pregnancy and Babies**\
+`President Trump said on Monday that there was a link between Tylenol use during pregnancy and autism, a claim that is unproven.`\
+https://nytimes.com/2025/09/22/well/tylenol-autism-pregnancy-babies.html
+
+**Charlie Morton's return to Braves is about appreciation, and perhaps a fond farewell**\
+`Morton was one of the most beloved Braves of the past decade, both among teammates and fans.`\
+https://nytimes.com/athletic/6653482/2025/09/22/charlie-morton-braves-return/
+
 **WSU football player shot, Washington student identified as suspect: Police**\
 `Offensive lineman Sone Falealo was acting as security at apartment party when he was shot, according to authorities.`\
 https://nytimes.com/athletic/6653225/2025/09/22/wsu-football-player-shot-washington-student-suspect/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/22/climate/block-island-rhode-wind-turbines.html
 **Satellites and Drones Are Unlocking Benefits ‘Hidden in Plain Sight’ in Michigan**\
 `Technology is helping farmers use land and fertilizer more strategically. Sometimes, the best practice is no chemicals at all.`\
 https://nytimes.com/2025/09/22/climate/michigan-precision-agriculture.html
-
-**‘They’re Small but They’re Mighty.’ Meet the Wisconsin Sisters Healing the Land.**\
-`The women of Holy Wisdom Monastery have restored 170 acres of native prairie and oak savanna. “Humans need creation to find ourselves,” one said.`\
-https://nytimes.com/2025/09/22/climate/wisconsin-nuns-prairie-restoration.html
-
-**Trump Promotes Unproven Ties to Autism and Tylenol Use**\
-`President Trump urged pregnant women to avoid taking Tylenol, claiming that there was a link between rising autism rates and painkillers with acetaminophen, contradicting decades of research that says otherwise.`\
-https://nytimes.com/video/us/politics/100000010414909/trump-tyleon-autism-pregnant-women.html
-
-**‘I Hate My Opponent’: Trump’s Remarks at Kirk Memorial Distill His Politics**\
-`President Trump has been fueled by grievance and animosity over the course of his political and public life.`\
-https://nytimes.com/2025/09/22/us/politics/trump-kirk-memorial-hate.html
 

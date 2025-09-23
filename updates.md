@@ -1,3 +1,7 @@
+**WSU football player shot, Washington student identified as suspect: Police**\
+`Offensive lineman Sone Falealo was acting as security at apartment party when he was shot, according to authorities.`\
+https://nytimes.com/athletic/6653225/2025/09/22/wsu-football-player-shot-washington-student-suspect/
+
 **Trump Signs Order Targeting Antifa Movement**\
 `President Trump’s executive order threatened to prosecute donors who support antifascist philosophy and issued a domestic terrorism designation that doesn’t exist under U.S. law.`\
 https://nytimes.com/2025/09/22/us/politics/trump-antifa-order-terrorism.html
