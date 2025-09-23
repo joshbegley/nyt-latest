@@ -1,3 +1,7 @@
+**Charges dropped against former NBA, UConn player Ben Gordon**\
+`The charges stemmed from Gordon's 2023 arrest in Connecticut hours after UConn won the NCAA men's basketball championship.`\
+https://nytimes.com/athletic/6654552/2025/09/23/ben-gordon-charges-dropped-nba/
+
 **Malawi’s Former President Set to Return to Power, Early Results Show**\
 `Peter Mutharika, an 85-year-old Yale-educated law professor, looked on course to defeat the incumbent, Lazarus Chakwera.`\
 https://nytimes.com/2025/09/23/world/africa/malawi-president-election-results.html
