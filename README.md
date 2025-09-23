@@ -1,3 +1,7 @@
+**WSU football player shot, Washington student identified as suspect: Police**\
+`Offensive lineman Sone Falealo was acting as security at apartment party when he was shot, according to authorities.`\
+https://nytimes.com/athletic/6653225/2025/09/22/wsu-football-player-shot-washington-student-suspect/
+
 **Trump Signs Order Targeting Antifa Movement**\
 `President Trump’s executive order threatened to prosecute donors who support antifascist philosophy and issued a domestic terrorism designation that doesn’t exist under U.S. law.`\
 https://nytimes.com/2025/09/22/us/politics/trump-antifa-order-terrorism.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010414909/trump-tyleon-autism-pregna
 **‘I Hate My Opponent’: Trump’s Remarks at Kirk Memorial Distill His Politics**\
 `President Trump has been fueled by grievance and animosity over the course of his political and public life.`\
 https://nytimes.com/2025/09/22/us/politics/trump-kirk-memorial-hate.html
-
-**France and Other World Leaders Recognize Palestinian Statehood**\
-`France and three other nations joined an international movement to recognize Palestinian sovereignty at a United Nations summit on Monday.`\
-https://nytimes.com/video/world/middleeast/100000010415454/france-recognizes-palestinian-statehood-unga.html
 
