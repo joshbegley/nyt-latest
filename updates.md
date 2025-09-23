@@ -1,3 +1,11 @@
+**For Zohran Mamdani, Judaism’s Holiest Days Present a Test**\
+`Mr. Mamdani intends to appear at explicitly Jewish spaces during the High Holy Days, seeking to bridge a divide with some Jewish voters as he runs for mayor.`\
+https://nytimes.com/2025/09/22/nyregion/mamdani-rosh-hashana-jewish-holidays.html
+
+**Trump’s Handpicked Prosecutor Takes Over Comey and James Cases**\
+`The president is pushing up against the statute of limitations in his pursuit of charges against a former F.B.I. director, and also wants the attorney general of New York and a California senator prosecuted.`\
+https://nytimes.com/2025/09/22/us/politics/trump-lindsey-halligan-james-comey.html
+
 **Christianity After Charlie Kirk**\
 `Will a martyrdom set off a religious revival?`\
 https://nytimes.com/2025/09/22/opinion/charlie-kirk-memorial-christianity.html

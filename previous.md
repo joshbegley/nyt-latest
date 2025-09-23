@@ -1,3 +1,11 @@
+**For Zohran Mamdani, Judaism’s Holiest Days Present a Test**\
+`Mr. Mamdani intends to appear at explicitly Jewish spaces during the High Holy Days, seeking to bridge a divide with some Jewish voters as he runs for mayor.`\
+https://nytimes.com/2025/09/22/nyregion/mamdani-rosh-hashana-jewish-holidays.html
+
+**Trump’s Handpicked Prosecutor Takes Over Comey and James Cases**\
+`The president is pushing up against the statute of limitations in his pursuit of charges against a former F.B.I. director, and also wants the attorney general of New York and a California senator prosecuted.`\
+https://nytimes.com/2025/09/22/us/politics/trump-lindsey-halligan-james-comey.html
+
 **Christianity After Charlie Kirk**\
 `Will a martyrdom set off a religious revival?`\
 https://nytimes.com/2025/09/22/opinion/charlie-kirk-memorial-christianity.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6653393/2025/09/22/umass-vs-missouri-stream-how-to-
 **Rockets veteran guard Fred VanVleet suffers torn ACL: Source**\
 `The nine-year veteran signed a two-year, $50 million deal this offseason to stay in Houston.`\
 https://nytimes.com/athletic/6652853/2025/09/22/fred-vanvleet-acl-injury-rockets/
-
-**Trump’s Efforts to Punish His Enemies Are Ramping Up**\
-`Some rank-and-file prosecutors are growing alarmed about pressure to bring indictments even when evidence is weak.`\
-https://nytimes.com/2025/09/22/us/politics/trump-justice-department-enemies.html
-
-**Autistic People Deserve Better Than This**\
-`The Trump administration misunderstands autism and what autistic people and our families need.`\
-https://nytimes.com/2025/09/22/opinion/autism-kennedy-report.html
 
