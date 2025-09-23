@@ -1,3 +1,19 @@
+**Tracking Tropical Depression Bualoi**\
+`See the likely path and wind arrival times for Bualoi`\
+https://nytimes.com/interactive/2025/weather/bualoi-map-path-tracker.html
+
+**Jaxson Dart's fantasy football prospects, Malik Nabers impact and more**\
+`Brandon Funston, with some help from his friends The Athletic, looks at what the fantasy future holds for Jaxson Dart and Malik Nabers.`\
+https://nytimes.com/athletic/6655335/2025/09/23/fantasy-football-giants-dart-nabers/
+
+**Portugal’s Azores Islands Are in Hurricane Gabrielle’s Path**\
+`The picturesque island chain has not seen a hurricane make landfall in over a decade.`\
+https://nytimes.com/2025/09/23/weather/hurricane-gabrielle-azores-portugal.html
+
+**Jets acquire CB Jarvis Brownlee Jr. from Titans: Source**\
+`Brownlee Jr., in his second season out of Louisville, was a fifth-round pick by the Titans in 2024.`\
+https://nytimes.com/athletic/6655684/2025/09/23/jets-titans-trade-jarvis-brownlee/
+
 **F.D.A.’s Approval of Drug for Autism Upends Review Process**\
 `The agency revived an old treatment for cancer patients, unilaterally approving it for a subset of people with autism. Experts worry that the narrower scope will get lost in the hype.`\
 https://nytimes.com/2025/09/23/health/fda-autism-treatment-leucovorin.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/09/23/dining/orna-guralnik-couples-therapy-where-to-eat
 **Fact-Checking Trump’s U.N. Speech**\
 `The president made inaccurate claims about the economy, renewable energy and the mayor of London.`\
 https://nytimes.com/2025/09/23/us/politics/trump-speech-unga-fact-check.html
-
-**YouTube to Reinstate Accounts Banned Over Content Related to the Pandemic and 2020 Election**\
-`The streaming platform unveiled its plan in a letter to the House Judiciary Committee.`\
-https://nytimes.com/2025/09/23/technology/youtube-reinstating-banned-accounts-pandemic-election.html
-
-**Gavi ruled out for up to five months with meniscus injury**\
-`Gavi, 21, underwent surgery on a right medial meniscus injury on Tuesday.`\
-https://nytimes.com/athletic/6655466/2025/09/23/barcelona-gavi-knee-injury-update/
-
-**How to watch Browns at Lions: Time, TV, streaming**\
-`Find out how to watch the Cleveland Browns play the Detroit Lions, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6655546/2025/09/23/browns-vs-lions-stream-how-to-watch-sept-28/
-
-**How to watch Panthers at Patriots: Time, TV, streaming**\
-`Find out how to watch the Carolina Panthers play the New England Patriots, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6655544/2025/09/23/panthers-vs-patriots-stream-how-to-watch-sept-28/
 
