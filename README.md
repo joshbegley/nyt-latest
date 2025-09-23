@@ -1,40 +1,40 @@
-**Ravens' defense searching for answers after loss to Lions: 'We’re just not very good'**\
-`The reality is that a crux of Baltimore’s concerns is on the defensive side of the ball, which was evident vs. Detroit. `\
-https://nytimes.com/athletic/6653925/2025/09/23/ravens-defensive-struggles-loss-lions/
+**Orion Kerkering's season hasn't gone to plan: The Phillies need him to find it for October**\
+`It has taken Kerkering time to accept the failures that forced the Phillies to move him down the bullpen list. Now, it's all about October.`\
+https://nytimes.com/athletic/6652330/2025/09/23/orion-kerkering-2025-season-playoffs/
 
-**For Browns DT Shelby Harris, blocking field goals 'is 100 percent an art'**\
-`Harris, who has a history of blocking kicks and batting passes during his career, was one of the heroes of Cleveland's win over Green Bay. `\
-https://nytimes.com/athletic/6653448/2025/09/23/browns-shelby-harris-field-goals-packers/
+**How the Guardians survived a summer of adversity: Good days, bad days and sleepless nights**\
+`Their season was "over" at least twice, but the Guardians have found a way — thanks to their starters — to get back in the postseason hunt.`\
+https://nytimes.com/athletic/6652388/2025/09/23/cleveland-guardians-season-revival-playoff-chase/
 
-**Egypt’s Most Famous Political Prisoner is Freed, and Reunited With Family**\
-`The dissident Alaa Abd El Fattah, a British-Egyptian dual citizen, was imprisoned for most of the past 12 years. His family waged an international campaign for his release.`\
-https://nytimes.com/2025/09/23/world/europe/egypt-activist-alaa.html
+**49ers minutia minute: Mykel Williams, Bryce Huff stepped up after Nick Bosa went down**\
+`Christian McCaffrey seems to have a legitimate shot at another 1,000-1,000-yard season ... if the 49ers can get their run game going.`\
+https://nytimes.com/athletic/6653043/2025/09/23/nick-bosa-injury-mykel-williams-bryce-huff/
 
-**Four Seattle Storm head coaching candidates to replace Noelle Quinn**\
-`Would Briann January, a former WNBA player and current Fever assist, fit in Seattle? `\
-https://nytimes.com/athletic/6652163/2025/09/23/seattle-storm-coaching-candidates-wnba-noelle-quinn/
+**Submit questions for Nate Atkins' Rams mailbag**\
+`Atkins will consider your questions for his upcoming mailbag following the Rams' heartbreaking loss to the Eagles. `\
+https://nytimes.com/athletic/6654010/2025/09/23/rams-mailbag-eagles-week-3/
 
-**Sean McVay goes old-school; Browns, Chargers defenses stout: Week 3 film review**\
-`Also, the Eagles offense seems to have figured things out; and how the Browns and Chargers defenses are among the stingiest.`\
-https://nytimes.com/athletic/6652775/2025/09/23/film-review-rams-mcvay-browns-chargers-defense/
+**Metropolitan Division roundtable: Each team's reason for optimism and concern — and a prediction**\
+`Not surprisingly, the Hurricanes are projected at the top of the division again, but which teams might take steps forward?`\
+https://nytimes.com/athletic/6648844/2025/09/23/metropolitan-division-preview-nhl/
 
-**Time-melting TD drives, a punch-out and strip-sack: Lions make statement in beating Ravens**\
-`The Lions had scoring drives of 98 and 96 yards and sacked Lamar Jackson seven times in their second win in a row.`\
-https://nytimes.com/athletic/6654014/2025/09/23/lions-beat-ravens-mnf-dan-campbell/
+**Red Wings roster battles, prospects and more: 5 big preseason questions**\
+`Who can fill spots at top-line left wing and second-pair right defense? Is Emmitt Finnie the real deal? Will top prospects step up?`\
+https://nytimes.com/athletic/6653020/2025/09/23/red-wings-preseason-questions-emmitt-finnie-nate-danielson/
 
-**The psychology of a Canadiens hopeful through the eyes and ears of Owen Beck**\
-`How Martin St. Louis handled the recall and demotion of Beck last season says a lot about his important role in player development.`\
-https://nytimes.com/athletic/6653870/2025/09/23/canadiens-preseason-opener-owen-beck/
+**At Rangers camp, a Stanley Cup champion tries to resurrect his career**\
+`“I just knew I needed to get out of there,” Conor Sheary said of a "lost" 2024-25 season. On a tryout, he's looking for a home in New York.`\
+https://nytimes.com/athletic/6652539/2025/09/23/conor-sheary-new-york-rangers-nhl-contract/
 
-**Zelensky to Meet With Trump on Sidelines of U.N. General Assembly**\
-`The leaders of Ukraine and the United States will hold talks weeks after President Trump agreed to participate in postwar security guarantees for Ukraine.`\
-https://nytimes.com/2025/09/23/world/europe/zelensky-trump-meeting-un-ukraine-us.html
+**What we're seeing at Wild camp: Who's standing out and who isn't as exhibitions get underway**\
+`Yakov Trenin, Liam Ohgren and Jesper Wallstedt are among the early players impressing, plus injury updates and more.`\
+https://nytimes.com/athletic/6652492/2025/09/23/trenin-ohgren-yurov-wild-training-camp/
 
-**Woman Is Convicted of Killing Her Children and Leaving Them in Suitcases**\
-`Years after Hakyung Lee left New Zealand for her native South Korea, the bodies of her children were found in Auckland. She faces life in prison.`\
-https://nytimes.com/2025/09/23/world/asia/korea-zealand-suitcase-murders.html
+**MLS Supporters' Shield power rankings: superstars, surprises, tricky math**\
+`This season's MLS Supporters' Shield race still has time for even more twists.`\
+https://nytimes.com/athletic/6653237/2025/09/23/mls-supporters-shield-power-rankings-son-muller/
 
-**For a Glimpse Into Ukraine’s War, Stop at a Gas Station**\
-`Filling stations have become must-stop spots for soldiers traveling to and from the front, helping them win a place in Ukrainians’ hearts.`\
-https://nytimes.com/2025/09/23/world/europe/ukraine-gas-stations.html
+**Did Packers make a mistake letting Zach Tom play against the Browns?**\
+`The star right tackle played only one snap Sunday before determining he couldn't go with an injured oblique.`\
+https://nytimes.com/athletic/6653190/2025/09/23/packers-zach-tom-injury-browns/
 

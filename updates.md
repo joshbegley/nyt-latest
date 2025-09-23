@@ -1,3 +1,11 @@
+**Ravens' defense searching for answers after loss to Lions: 'We’re just not very good'**\
+`The reality is that a crux of Baltimore’s concerns is on the defensive side of the ball, which was evident vs. Detroit. `\
+https://nytimes.com/athletic/6653925/2025/09/23/ravens-defensive-struggles-loss-lions/
+
+**For Browns DT Shelby Harris, blocking field goals 'is 100 percent an art'**\
+`Harris, who has a history of blocking kicks and batting passes during his career, was one of the heroes of Cleveland's win over Green Bay. `\
+https://nytimes.com/athletic/6653448/2025/09/23/browns-shelby-harris-field-goals-packers/
+
 **Egypt’s Most Famous Political Prisoner is Freed, and Reunited With Family**\
 `The dissident Alaa Abd El Fattah, a British-Egyptian dual citizen, was imprisoned for most of the past 12 years. His family waged an international campaign for his release.`\
 https://nytimes.com/2025/09/23/world/europe/egypt-activist-alaa.html
