@@ -1,4 +1,4 @@
-**Padres clinch second consecutive postseason berth after often-frustrating summer**\
+**Padres clinch second consecutive postseason berth after often frustrating summer**\
 `The Padres head to the postseason for a second straight year, hoping their bullpen and their lineup core can bring them to the World Series.`\
 https://nytimes.com/athletic/6650347/2025/09/23/san-diego-padres-postseason-berth-clinched/
 
