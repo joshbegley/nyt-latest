@@ -1,3 +1,7 @@
+**The Bears Are Back and They’re Fatter Than Ever**\
+`It is Fat Bear Week in Alaska. The popular competition lets anyone vote on which of the animals is most prepared for winter.`\
+https://nytimes.com/2025/09/23/style/fat-bear-week-katmai-alaska.html
+
 **Struggles for Free Expression on Campus**\
 `Readers, including the author Jhumpa Lahiri, respond to the Barnard president’s guest essay about speakers at universities. Also: The benefits of trees.`\
 https://nytimes.com/2025/09/23/opinion/free-speech-campus-barnard.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/23/world/trump-un-seven-wars.html
 **Bamford in advanced talks with Getafe after Leeds exit**\
 `The 32-year-old forward scored 60 goals over seven years at Elland Road.`\
 https://nytimes.com/athletic/6654509/2025/09/23/patrick-bamford-getafe-leeds-talks/
-
-**The Bounce: The Rockets lose steam with Fred VanVleet injury**\
-`Keeping you up to date on the latest news and analysis from around the league.`\
-https://nytimes.com/athletic/6654896/2025/09/23/rockets-fred-vanvleet-injury-west-nba/
 
