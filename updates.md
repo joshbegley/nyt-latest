@@ -1,3 +1,15 @@
+**What we learned from Knicks media day as New York opens chase for NBA title**\
+`The Knicks kicked off their 2025-26 season with media day on Tuesday. Here are the most important takeaways. `\
+https://nytimes.com/athletic/6654503/2025/09/23/knicks-media-day-jalen-brunson-mike-brown/
+
+**Dowman needs 'caution' and 'care' with Arsenal first-team minutes, Arteta says**\
+`The 15-year-old could play more as the north London side have picked up injuries in each of their five 2025-26 league games.`\
+https://nytimes.com/athletic/6655027/2025/09/23/max-dowman-arsenal-caution-care-mikel-arteta/
+
+**Golden Knights' Alex Pietrangelo continuing rehab, won't rule out a return to hockey**\
+`“The rehab program we’ve put into place has made my daily life a lot better,” Pietrangelo said.`\
+https://nytimes.com/athletic/6655055/2025/09/23/golden-knights-alex-pietrangelo-hip-rehab/
+
 **Judge in Gilgo Beach Case Spurns Request to Throw Out DNA Evidence**\
 `Lawyers for Rex Heuermann, who is charged with killing seven women, made last-ditch attempts to toss crucial evidence, but prosecutors are preparing for an expected trial next year.`\
 https://nytimes.com/2025/09/23/nyregion/gilgo-beach-rex-heuermann-hearing.html
