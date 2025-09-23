@@ -1,3 +1,11 @@
+**Paratici, Agnelli get suspended sentences after entering plea bargain in Prisma case**\
+`The Prisma investigation began in 2021 and led to the executives receiving bans from Italian football in 2023.`\
+https://nytimes.com/athletic/6654193/2025/09/23/former-juventus-executives-financial-investigation-agnelli-paratici/
+
+**Weekly Student News Quiz: Hollywood Icon, Late-Night TV, Braces**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/09/23/learning/22Student-News-Quiz.html
+
 **Aston Villa's new sporting director Roberto Olabe: Who is the man replacing Monchi?**\
 `The 57-year-old Spaniard is best known for his work at Real Sociedad and first worked with Unai Emery back in 2006`\
 https://nytimes.com/athletic/6654206/2025/09/23/aston-villa-sporting-director-roberto-olabe-monchi/
