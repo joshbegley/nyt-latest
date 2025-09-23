@@ -1,3 +1,11 @@
+**Djokovic to play at Shanghai Masters**\
+`The 38-year-old is a four-time champion at the event but has generally played a light schedule in the last few years.`\
+https://nytimes.com/athletic/6654540/2025/09/23/novak-djokovic-shanghai-masters/
+
+**This is not a Beauty Podcast Season 2**\
+`Hosted by the legendary actress Isabella Rossellini, the award-winning “This Is Not a Beauty Podcast” series from L’Oréal Groupe explores the essential role beauty plays in the human experience.`\
+https://nytimes.com/paidpost/loreal-groupe/this-is-not-a-beauty-podcast-season-2.html
+
 **Democrats Open Inquiries Into Handling of Homan Investigation**\
 `President Trump’s border czar was investigated for potential bribery after accepting a bag with $50,000 in cash, but the case was closed after Mr. Trump took office.`\
 https://nytimes.com/2025/09/23/us/politics/tom-homan-democrats-investigation.html

@@ -1,3 +1,11 @@
+**Djokovic to play at Shanghai Masters**\
+`The 38-year-old is a four-time champion at the event but has generally played a light schedule in the last few years.`\
+https://nytimes.com/athletic/6654540/2025/09/23/novak-djokovic-shanghai-masters/
+
+**This is not a Beauty Podcast Season 2**\
+`Hosted by the legendary actress Isabella Rossellini, the award-winning “This Is Not a Beauty Podcast” series from L’Oréal Groupe explores the essential role beauty plays in the human experience.`\
+https://nytimes.com/paidpost/loreal-groupe/this-is-not-a-beauty-podcast-season-2.html
+
 **Democrats Open Inquiries Into Handling of Homan Investigation**\
 `President Trump’s border czar was investigated for potential bribery after accepting a bag with $50,000 in cash, but the case was closed after Mr. Trump took office.`\
 https://nytimes.com/2025/09/23/us/politics/tom-homan-democrats-investigation.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6653860/2025/09/23/mlb-playoff-watch-padres-clinch-
 **The Potential Consequences of Kimmel’s Comeback**\
 `The return of the late-night host’s show raises questions about how the Trump administration, TV affiliate owners and viewers might react.`\
 https://nytimes.com/2025/09/23/business/dealbook/jimmy-kimmel-returns-trump.html
-
-**Eight Eagles thoughts: DeSean Jackson comparison, Jordan Davis' upside, improving kick returns**\
-`DeSean Jackson weighs in on which of two Eagles comebacks was better.`\
-https://nytimes.com/athletic/6654237/2025/09/23/eagles-desean-jackson-jordan-davis-kick-returns/
-
-**Explore the Math Behind the Golden Ratio With Steven Strogatz and The New York Times**\
-`What do an apple, a pentagram and a belly button have in common? They all invite students to investigate a famous geometric proportion.`\
-https://nytimes.com/2025/09/23/learning/lesson-plans/explore-the-math-behind-the-golden-ratio-with-steven-strogatz.html
 
