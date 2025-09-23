@@ -1,3 +1,11 @@
+**Mamdani Lands Endorsement From Kamala Harris, His Biggest Yet**\
+`“I support the Democrat in the race,” Ms. Harris said during an interview with Rachel Maddow. She added of the Democratic Party, “we’ve got a big tent and we’ve got a lot of stars.”`\
+https://nytimes.com/2025/09/22/us/politics/kamala-harris-endorsement-zohran-mamdani.html
+
+**Did voters get Ballon d'Or wrong? Plus: Remembering Matt Beard**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6653622/2025/09/22/ballon-dor-voting-remembering-matt-beard-full-time/
+
 **Is It Safe to Take Tylenol While Pregnant? Here’s What Experts Say.**\
 `President Trump said on Monday that Tylenol use during pregnancy could lead to autism, a claim that is unproven.`\
 https://nytimes.com/2025/09/22/well/tylenol-autism-pregnancy-babies.html

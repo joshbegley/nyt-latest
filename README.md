@@ -1,3 +1,7 @@
+**Braves' Ozzie Albies has fractured left hamate bone, likely ending 2025 season**\
+`It’s unclear how this latest injury might affect Atlanta's decision whether or not to pick up Albies' club option.`\
+https://nytimes.com/athletic/6653654/2025/09/22/atlanta-braves-ozzie-albies-hamate-fracture/
+
 **Mamdani Lands Endorsement From Kamala Harris, His Biggest Yet**\
 `“I support the Democrat in the race,” Ms. Harris said during an interview with Rachel Maddow. She added of the Democratic Party, “we’ve got a big tent and we’ve got a lot of stars.”`\
 https://nytimes.com/2025/09/22/us/politics/kamala-harris-endorsement-zohran-mamdani.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6653225/2025/09/22/wsu-football-player-shot-washing
 **Trump Signs Order Targeting Antifa Movement**\
 `President Trump’s executive order threatened to prosecute donors who support antifascist philosophy and issued a domestic terrorism designation that doesn’t exist under U.S. law.`\
 https://nytimes.com/2025/09/22/us/politics/trump-antifa-order-terrorism.html
-
-**In Georgia, a ‘Sponge Park’ Floods So the Neighborhood Won’t**\
-`Dozens of houses were razed across a flood-prone neighborhood in Atlanta, mitigating floods and creating a long-desired park in the process.`\
-https://nytimes.com/2025/09/22/climate/climate-georgia-sponge-park-flooding.html
 
