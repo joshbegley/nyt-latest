@@ -1,3 +1,15 @@
+**French President Is Stopped by Trump’s Motorcade in New York**\
+`President Emmanuel Macron of France, in New York for the 80th United Nations General Assembly, was briefly stopped at a street blocked for President Trump’s motorcade. Mr. Macron called Mr. Trump before eventually being allowed to pass, but had to walk 30 minutes to his destination.`\
+https://nytimes.com/video/us/100000010416097/french-president-stopped-trump-motorcade.html
+
+**How to watch Vikings vs. Steelers: Time, TV, streaming**\
+`Find out how to watch the Minnesota Vikings play the Pittsburgh Steelers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6654871/2025/09/23/vikings-vs-steelers-stream-how-to-watch-sept-28/
+
+**Local TV Giants Boycott Jimmy Kimmel’s Return to Late Night**\
+`Together, the two TV station groups control more than 20 percent of ABC’s local affiliates. They won’t be airing “Jimmy Kimmel Live!”`\
+https://nytimes.com/2025/09/23/business/media/jimmy-kimmel-nexstar-sinclair-boycott.html
+
 **The Megaraptor Had Giant Claws and an Appetite for Crocodilians**\
 `A fossil of the 23-foot-tall predator could help unlock secrets of an order of dinosaurs that remain poorly understood.`\
 https://nytimes.com/2025/09/23/science/megaraptor-fossil-crocodile.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6654680/2025/09/23/scottie-scheffler-president-trum
 **Her Torte Will Outlast Us All**\
 `Pete Wells remembers Marian Burros, a tenacious food reporter whose plum torte became one of The Times’s most famous recipes.`\
 https://nytimes.com/2025/09/23/dining/plum-torte-marian-burros.html
-
-**Leafs goalie Joseph Woll taking leave of absence for 'personal family matter'**\
-`GM Brad Treliving said there was no timeline on Woll’s return.`\
-https://nytimes.com/athletic/6654728/2025/09/23/leafs-joseph-woll-leave-absence/
-
-**What I'm hearing about Cootes, Willander and Canucks roster plans after training camp**\
-`The Canucks are early in the process of slowly whittling down their roster as they prepare for the season.`\
-https://nytimes.com/athletic/6653923/2025/09/23/canucks-roster-braeden-cootes-tom-willander/
-
-**Charges dropped against former NBA, UConn player Ben Gordon**\
-`The charges stemmed from Gordon's 2023 arrest in Connecticut hours after UConn won the NCAA men's basketball championship.`\
-https://nytimes.com/athletic/6654552/2025/09/23/ben-gordon-charges-dropped-nba/
 
