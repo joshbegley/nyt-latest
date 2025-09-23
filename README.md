@@ -1,3 +1,11 @@
+**The Security Council warns of deteriorating conditions from the war in Gaza.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2025/09/23/world/un-general-assembly-trump/the-security-council-warns-of-deteriorating-conditions-from-the-war-in-gaza
+
+**Claudia Cardinale, Actress Who Was ‘Italy’s Girlfriend,’ Is Dead at 87**\
+`A sex symbol with girl-next-door appeal, she rose to fame in the 1960s and starred in more than 150 films, including the Oscar-winning ‘8½’ and ‘The Leopard.’`\
+https://nytimes.com/2025/09/23/movies/claudia-cardinale-dead.html
+
 **Republican Who Has Criticized the Police Wins Major Union’s Endorsement**\
 `The Fraternal Order of Police in New Jersey endorsed Jack Ciattarelli for governor over his Democratic opponent, Representative Mikie Sherrill.`\
 https://nytimes.com/2025/09/23/nyregion/jack-ciattarelli-new-jersey-police-endorsement.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/23/health/harvard-dean-autism-tylenol-lawsuits-payme
 **How to Watch ‘Jimmy Kimmel Live!’ if Your Station Isn’t Airing the Show**\
 `The show is coming back after backlash from comments Mr. Kimmel made on air last week. But not everyone will be able to view the episode live.`\
 https://nytimes.com/2025/09/23/us/politics/jimmy-kimmel-watch-time-stream.html
-
-**Jaxson Dart is taking over as Giants' starting QB: A timeline of how we got here**\
-`We examined the significant milestones of Dart's journey from Ole Miss prospect to starting QB of the New York Giants.`\
-https://nytimes.com/athletic/6655207/2025/09/23/jaxson-dart-giants-starting-qb-timeline/
-
-**Boston to Pay $150,000 to 2 Black Men Wrongly Accused in White Woman’s Killing**\
-`Boston’s mayor, Michelle Wu, apologized in 2023 to Alan Swanson and Willie Bennett for the actions of police after the 1989 killing of Carol Stuart.`\
-https://nytimes.com/2025/09/23/us/black-men-wrongly-accused-1989-murder.html
 
