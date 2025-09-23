@@ -1,3 +1,7 @@
+**Zackery Died Subway Surfing. Is Social Media to Blame?**\
+`Norma Nazario didn’t understand what had motivated her 15-year-old son to climb on top of a train one evening. Then she found his phone.`\
+https://nytimes.com/2025/09/23/style/subway-surfing-death-nyc-tiktok.html
+
 **A Dozen Protesters Are Arrested Outside the U.N. Before Trump’s Speech**\
 `The police swarmed a cluster of anti-Trump protesters ahead of the president’s address to diplomats and world leaders on Tuesday morning.`\
 https://nytimes.com/2025/09/23/nyregion/united-nations-protest-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/23/us/politics/trump-shutdown-democrats.html
 **Prime Tire: F1 drivers who drove while ill. Plus, where's McLaren's pace?**\
 `Welcome to Prime Tire, The Athletic's Formula 1 newsletter`\
 https://nytimes.com/athletic/6654682/2025/09/23/george-russell-mclaren-f1-newsletter-prime-tire/
-
-**Scottie Scheffler says President Trump calls him after tournament wins**\
-`"He loves the game of golf, he loves supporting golfers," Scheffler said.`\
-https://nytimes.com/athletic/6654680/2025/09/23/scottie-scheffler-president-trump-golf-ryder-cup/
 
