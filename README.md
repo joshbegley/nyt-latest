@@ -1,3 +1,11 @@
+**Hong Kong Prepares for Typhoon Ragasa**\
+`Hong Kong residents prepared for the worst as Typhoon Ragasa, the most powerful storm so far this year, prompted thousands of evacuations and hundreds of flight cancellations.`\
+https://nytimes.com/video/world/asia/100000010415862/typhoon-ragasa-hong-kong-china.html
+
+**Sunderland's Diarra out until December after undergoing surgery on groin injury**\
+`Sunderland confirmed in a statement that the Senegal international is set to return to action in December.`\
+https://nytimes.com/athletic/6654034/2025/09/23/sunderland-news-diarra-injury-surgery/
+
 **Jaguar Land Rover Says Cyberattack Will Halt Production Through Oct. 1**\
 `The company shut down production in early September to contain the breach. It had previously said it planned to resume operations on Sept. 24.`\
 https://nytimes.com/2025/09/23/business/jaguar-land-rover-cyberattack-production.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/23/nyregion/nyc-mayor-homelessness.html
 **For Late Night, Jimmy Kimmel’s Plight Is Personal**\
 `“Once more, I am the only martyr in late night,” Stephen Colbert said, joking about his own canceled show while sharing news of Kimmel’s return to air.`\
 https://nytimes.com/2025/09/23/arts/television/late-night-jimmy-kimmel.html
-
-**How to watch BYU at Colorado: Time, TV, streaming**\
-`Find out how to watch the BYU Cougars play the Colorado Buffaloes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6653967/2025/09/23/byu-vs-colorado-stream-how-to-watch-sept-27/
-
-**How to watch Rockies at Mariners: Time, TV, streaming for September 23**\
-`Find out how to watch the Colorado Rockies play the Seattle Mariners, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6653918/2025/09/23/rockies-vs-mariners-stream-how-to-watch-sept-23/
 
