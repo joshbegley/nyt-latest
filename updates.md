@@ -1,3 +1,19 @@
+**The Megaraptor Had Giant Claws and an Appetite for Crocodilians**\
+`A fossil of the 23-foot-tall predator could help unlock secrets of an order of dinosaurs that remain poorly understood.`\
+https://nytimes.com/2025/09/23/science/megaraptor-fossil-crocodile.html
+
+**Premier League tactical notebook: Five early-season data trends after five games**\
+`We're just a month into the 2025-26 campaign but, from a drop in offsides to a greater emphasis on set pieces, some patterns have emerged`\
+https://nytimes.com/athletic/6649499/2025/09/23/set-pieces-debuts-offside-trends-premier-league/
+
+**People Stop Me to Talk About These Recipes**\
+`Sheet-pan pierogies with brussels sprouts and kimchi and creamy coconut rice with peanuts have received effusive praise from friends.`\
+https://nytimes.com/2025/09/23/dining/sheet-pan-pierogies-and-more-weeknight-recipes.html
+
+**Trump Cancels Meeting With Democrats as Shutdown Nears**\
+`Top Democrats are demanding concessions on health care in exchange for their support on a bill to fund the government. Mr. Trump called the demands “unserious.”`\
+https://nytimes.com/2025/09/23/us/politics/trump-shutdown-democrats.html
+
 **Prime Tire: F1 drivers who drove while ill. Plus, where's McLaren's pace?**\
 `Welcome to Prime Tire, The Athletic's Formula 1 newsletter`\
 https://nytimes.com/athletic/6654682/2025/09/23/george-russell-mclaren-f1-newsletter-prime-tire/

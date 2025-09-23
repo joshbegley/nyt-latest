@@ -1,3 +1,19 @@
+**The Megaraptor Had Giant Claws and an Appetite for Crocodilians**\
+`A fossil of the 23-foot-tall predator could help unlock secrets of an order of dinosaurs that remain poorly understood.`\
+https://nytimes.com/2025/09/23/science/megaraptor-fossil-crocodile.html
+
+**Premier League tactical notebook: Five early-season data trends after five games**\
+`We're just a month into the 2025-26 campaign but, from a drop in offsides to a greater emphasis on set pieces, some patterns have emerged`\
+https://nytimes.com/athletic/6649499/2025/09/23/set-pieces-debuts-offside-trends-premier-league/
+
+**People Stop Me to Talk About These Recipes**\
+`Sheet-pan pierogies with brussels sprouts and kimchi and creamy coconut rice with peanuts have received effusive praise from friends.`\
+https://nytimes.com/2025/09/23/dining/sheet-pan-pierogies-and-more-weeknight-recipes.html
+
+**Trump Cancels Meeting With Democrats as Shutdown Nears**\
+`Top Democrats are demanding concessions on health care in exchange for their support on a bill to fund the government. Mr. Trump called the demands “unserious.”`\
+https://nytimes.com/2025/09/23/us/politics/trump-shutdown-democrats.html
+
 **Prime Tire: F1 drivers who drove while ill. Plus, where's McLaren's pace?**\
 `Welcome to Prime Tire, The Athletic's Formula 1 newsletter`\
 https://nytimes.com/athletic/6654682/2025/09/23/george-russell-mclaren-f1-newsletter-prime-tire/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6653923/2025/09/23/canucks-roster-braeden-cootes-to
 **Charges dropped against former NBA, UConn player Ben Gordon**\
 `The charges stemmed from Gordon's 2023 arrest in Connecticut hours after UConn won the NCAA men's basketball championship.`\
 https://nytimes.com/athletic/6654552/2025/09/23/ben-gordon-charges-dropped-nba/
-
-**Malawi’s Former President Set to Return to Power, Early Results Show**\
-`Peter Mutharika, an 85-year-old Yale-educated law professor, looked on course to defeat the incumbent, Lazarus Chakwera.`\
-https://nytimes.com/2025/09/23/world/africa/malawi-president-election-results.html
-
-**‘Autism Doesn’t Need a Cure’: Trump’s Message Rankles People Living With the Disability**\
-`Many welcomed more research, and some welcomed possible new treatments. But the administration’s embrace of unproven science and approach to autism as a “crisis” has sown deep mistrust.`\
-https://nytimes.com/2025/09/23/us/trump-autism-tylenol.html
-
-**Saudi Grand Mufti, an Archconservative in a Changing Kingdom, Dies**\
-`The death of Abdulaziz Al Asheikh, Saudi Arabia’s most senior cleric, was the symbolic end of an era as the kingdom transforms.`\
-https://nytimes.com/2025/09/23/world/middleeast/saudi-arabia-grand-mufti-dies.html
-
-**Giants QB decision: Brian Daboll's confidence, caginess suggest Jaxson Dart's time is now**\
-`Having left the door wide open to a QB change on Monday, it seems inevitable that Daboll will walk through it and make the switch to Dart.`\
-https://nytimes.com/athletic/6653830/2025/09/23/jaxson-dart-russell-wilson-ny-giants-qb-decision/
 
