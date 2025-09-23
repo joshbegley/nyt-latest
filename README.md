@@ -1,3 +1,7 @@
+**‘Autism Doesn’t Need a Cure’: Trump’s Message Rankles People Living With the Disability**\
+`Many welcomed more research, and some welcomed possible new treatments. But the administration’s embrace of unproven science and approach to autism as a “crisis” has sown deep mistrust.`\
+https://nytimes.com/2025/09/23/us/trump-autism-tylenol.html
+
 **Saudi Grand Mufti, an Archconservative in a Changing Kingdom, Dies**\
 `The death of Abdulaziz Al Asheikh, Saudi Arabia’s most senior cleric, was the symbolic end of an era as the kingdom transforms.`\
 https://nytimes.com/2025/09/23/world/middleeast/saudi-arabia-grand-mufti-dies.html
@@ -33,8 +37,4 @@ https://nytimes.com/paidpost/loreal-groupe/this-is-not-a-beauty-podcast-season-2
 **Democrats Open Inquiries Into Handling of Homan Investigation**\
 `President Trump’s border czar was investigated for potential bribery after accepting a bag with $50,000 in cash, but the case was closed after Mr. Trump took office.`\
 https://nytimes.com/2025/09/23/us/politics/tom-homan-democrats-investigation.html
-
-**A Graphic Tee, a Tapestry Skirt and a Lucky Color**\
-`An ensemble of mixed and matched pieces reflected a habit of wearing red.`\
-https://nytimes.com/2025/09/23/style/street-style-look-lucky-color-red.html
 
