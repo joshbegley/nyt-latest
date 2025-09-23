@@ -1,3 +1,7 @@
+**Prime Tire: F1 drivers who drove while ill. Plus, where's McLaren's pace?**\
+`Welcome to Prime Tire, The Athletic's Formula 1 newsletter`\
+https://nytimes.com/athletic/6654682/2025/09/23/george-russell-mclaren-f1-newsletter-prime-tire/
+
 **Scottie Scheffler says President Trump calls him after tournament wins**\
 `"He loves the game of golf, he loves supporting golfers," Scheffler said.`\
 https://nytimes.com/athletic/6654680/2025/09/23/scottie-scheffler-president-trump-golf-ryder-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/23/world/middleeast/saudi-arabia-grand-mufti-dies.ht
 **Giants QB decision: Brian Daboll's confidence, caginess suggest Jaxson Dart's time is now**\
 `Having left the door wide open to a QB change on Monday, it seems inevitable that Daboll will walk through it and make the switch to Dart.`\
 https://nytimes.com/athletic/6653830/2025/09/23/jaxson-dart-russell-wilson-ny-giants-qb-decision/
-
-**Kulusevski has 'good chance' to return from injury before end of 2025**\
-`Meanwhile, Spurs coach Thomas Frank said Randal Kolo Muani and Ben Davies will not be fit to face Doncaster Rovers on Wednesday.`\
-https://nytimes.com/athletic/6654646/2025/09/23/dejan-kulusevski-injury-tottenham-latest/
 
