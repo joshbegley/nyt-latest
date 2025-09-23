@@ -1,3 +1,15 @@
+**Stuck in Traffic, French President Macron Calls Trump About His Motorcade**\
+`The French head of state experienced a frustration that many New Yorkers know all too well. He got stuck in traffic during the U.N. General Assembly.`\
+https://nytimes.com/2025/09/23/us/macron-trump-unga-motorcade.html
+
+**Judge Orders N.I.H. to Restore Suspended Research Grants at U.C.L.A.**\
+`The ruling is a preliminary injunction in a lawsuit over the Trump administration’s termination of hundreds of millions of research grants to the California university.`\
+https://nytimes.com/2025/09/23/health/ucla-research-grants.html
+
+**Oklahoma QB John Mateer to undergo hand surgery, return date unclear**\
+`Mateer, who emerged as a leading Heisman Trophy candidate, is expected to return to game action "sometime this season," Oklahoma announced.`\
+https://nytimes.com/athletic/6655742/2025/09/23/john-mateer-oklahoma-injury-hand-surgery/
+
 **Tracking Tropical Depression Bualoi**\
 `See the likely path and wind arrival times for Bualoi`\
 https://nytimes.com/interactive/2025/weather/bualoi-map-path-tracker.html

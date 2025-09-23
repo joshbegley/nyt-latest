@@ -1,3 +1,15 @@
+**Stuck in Traffic, French President Macron Calls Trump About His Motorcade**\
+`The French head of state experienced a frustration that many New Yorkers know all too well. He got stuck in traffic during the U.N. General Assembly.`\
+https://nytimes.com/2025/09/23/us/macron-trump-unga-motorcade.html
+
+**Judge Orders N.I.H. to Restore Suspended Research Grants at U.C.L.A.**\
+`The ruling is a preliminary injunction in a lawsuit over the Trump administration’s termination of hundreds of millions of research grants to the California university.`\
+https://nytimes.com/2025/09/23/health/ucla-research-grants.html
+
+**Oklahoma QB John Mateer to undergo hand surgery, return date unclear**\
+`Mateer, who emerged as a leading Heisman Trophy candidate, is expected to return to game action "sometime this season," Oklahoma announced.`\
+https://nytimes.com/athletic/6655742/2025/09/23/john-mateer-oklahoma-injury-hand-surgery/
+
 **Tracking Tropical Depression Bualoi**\
 `See the likely path and wind arrival times for Bualoi`\
 https://nytimes.com/interactive/2025/weather/bualoi-map-path-tracker.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6655678/2025/09/23/fever-vs-aces-stream-how-to-watc
 **Planning Committee for U.S.’ 250th Birthday Fires Director for ‘Breach of Trust’**\
 `The bipartisan commission said the official, Ari Abergel, a Trump ally, had misused a social-media account and improperly pushed some members to resign.`\
 https://nytimes.com/2025/09/23/us/politics/ari-abergel-fired-trump-charlie-kirk.html
-
-**Brian Daboll is betting it all on Jaxson Dart. Can rookie save Giants' season, coach's job?**\
-`This is it. Making Dart the starting QB is the last card Daboll has to play. If it works, all the failures of the past will be forgotten.`\
-https://nytimes.com/athletic/6655406/2025/09/23/giants-jaxson-dart-brian-daboll-big-bet/
-
-**Orna Guralnik’s Father ‘Died a Beautiful Death’ at Bricolage**\
-`The “Couples Therapy” star and longtime Brooklynite answers the first-ever Where to Eat questionnaire.`\
-https://nytimes.com/2025/09/23/dining/orna-guralnik-couples-therapy-where-to-eat.html
-
-**Fact-Checking Trump’s U.N. Speech**\
-`The president made inaccurate claims about the economy, renewable energy and the mayor of London.`\
-https://nytimes.com/2025/09/23/us/politics/trump-speech-unga-fact-check.html
 
