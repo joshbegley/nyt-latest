@@ -1,3 +1,7 @@
+**What to Know About Tylenol, Pregnancy and Babies**\
+`President Trump said on Monday that Tylenol use during pregnancy could lead to autism, a claim that is unproven.`\
+https://nytimes.com/2025/09/22/well/tylenol-autism-pregnancy-babies.html
+
 **For Trump, Who Has ‘Strong Feelings’ About Autism, the Issue Is Personal**\
 `The president delivered impassioned — if scientifically dubious — remarks about what he described as one of “the most alarming public health developments in history.”`\
 https://nytimes.com/2025/09/22/us/politics/autism-vaccines-trump-personal.html
