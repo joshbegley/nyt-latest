@@ -1,3 +1,11 @@
+**How to watch Colts at Rams: Time, TV, streaming**\
+`Find out how to watch the Indianapolis Colts play the Los Angeles Rams, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6656133/2025/09/23/colts-vs-rams-stream-how-to-watch-sept-28/
+
+**How to watch Ravens at Chiefs: Time, TV, streaming**\
+`Find out how to watch the Baltimore Ravens play the Kansas City Chiefs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6656116/2025/09/23/ravens-vs-chiefs-stream-how-to-watch-sept-28/
+
 **The Security Council warns of deteriorating conditions from the war in Gaza.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2025/09/23/world/un-general-assembly-trump/the-security-council-warns-of-deteriorating-conditions-from-the-war-in-gaza
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6655915/2025/09/23/hugo-ekitike-red-card-liverpool-
 **‘What Is the Purpose of the United Nations?’ Trump Asks**\
 `During a meandering address, President Trump questioned whether the United Nations should exist and criticized its member states on immigration policies he claimed were ruining their way of life.`\
 https://nytimes.com/video/world/100000010416179/trump-criticizes-united-nations.html
-
-**Harvard Dean Was Paid $150,000 as an Expert Witness in Tylenol Lawsuits**\
-`The Trump administration has cited Dr. Andrea Baccarelli’s expertise to warn against using acetaminophen — the active ingredient in Tylenol — in pregnancy, based on an unproven autism link.`\
-https://nytimes.com/2025/09/23/health/harvard-dean-autism-tylenol-lawsuits-payment.html
-
-**How to Watch ‘Jimmy Kimmel Live!’ if Your Station Isn’t Airing the Show**\
-`The show is coming back after backlash from comments Mr. Kimmel made on air last week. But not everyone will be able to view the episode live.`\
-https://nytimes.com/2025/09/23/us/politics/jimmy-kimmel-watch-time-stream.html
 
