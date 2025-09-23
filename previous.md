@@ -11,7 +11,7 @@ https://nytimes.com/video/us/100000010416097/french-president-stopped-trump-moto
 https://nytimes.com/athletic/6654871/2025/09/23/vikings-vs-steelers-stream-how-to-watch-sept-28/
 
 **Local TV Giants Boycott Jimmy Kimmel’s Return to Late Night**\
-`Together, the two TV station groups control more than 20 percent of ABC’s local affiliates. They won’t be airing “Jimmy Kimmel Live!”`\
+`Together, the two TV station groups, Sinclair and Nexstar, control more than 20 percent of ABC’s local affiliates.`\
 https://nytimes.com/2025/09/23/business/media/jimmy-kimmel-nexstar-sinclair-boycott.html
 
 **The Megaraptor Had Giant Claws and an Appetite for Crocodilians**\

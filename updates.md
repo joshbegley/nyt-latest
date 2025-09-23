@@ -1,3 +1,7 @@
+**Local TV Giants Boycott Jimmy Kimmel’s Return to Late Night**\
+`Together, the two TV station groups, Sinclair and Nexstar, control more than 20 percent of ABC’s local affiliates.`\
+https://nytimes.com/2025/09/23/business/media/jimmy-kimmel-nexstar-sinclair-boycott.html
+
 **A Dozen Protesters Are Arrested Outside the U.N. Before Trump’s Speech**\
 `The police swarmed a cluster of anti-Trump protesters ahead of the president’s address to diplomats and world leaders on Tuesday morning.`\
 https://nytimes.com/2025/09/23/nyregion/united-nations-protest-trump.html
