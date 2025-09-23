@@ -1,3 +1,7 @@
+**Titans' Brian Callahan passes play calling to QB coach Bo Hardegree**\
+`Hardegree served as the interim OC for part of 2023 with the Raiders and says his philosophy is to "protect the ball and score points."`\
+https://nytimes.com/athletic/6655071/2025/09/23/tennessee-titans-offense-play-calling-brian-callahan-bo-hardegree/
+
 **Israel, citing Rosh Hashana, said it wouldn’t attend a U.N. Security Council meeting on Gaza.**\
 `By Pranav Baskar`\
 https://nytimes.com/live/2025/09/23/world/un-general-assembly-trump/israel-citing-rosh-hashana-said-it-wouldnt-attend-a-un-security-council-meeting-on-gaza
@@ -18,7 +22,7 @@ https://nytimes.com/2025/09/23/us/haiti-drone-attack-kills-children.html
 `The original FOOD opened in 1971 with art world names like Donald Judd contributing to the menu. The artist Lucien Smith is trying to recreate it.`\
 https://nytimes.com/2025/09/23/dining/nyc-restaurant-news.html
 
-**Source: Oklahoma State fires Mike Gundy amid 21st season as head coach**\
+**Oklahoma State fires Mike Gundy amid 21st season as head coach**\
 `Gundy, who spent 35 of the last 40 years at Oklahoma State as a player or coach, ended his tenure 1-11 in his last 12 after a loss to Tulsa.`\
 https://nytimes.com/athletic/6606852/2025/09/23/mike-gundy-fired-oklahoma-state-football-news/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6655027/2025/09/23/max-dowman-arsenal-caution-care-
 **Golden Knights' Alex Pietrangelo continuing rehab, won't rule out a return to hockey**\
 `“The rehab program we’ve put into place has made my daily life a lot better,” Pietrangelo said.`\
 https://nytimes.com/athletic/6655055/2025/09/23/golden-knights-alex-pietrangelo-hip-rehab/
-
-**Judge in Gilgo Beach Case Spurns Request to Throw Out DNA Evidence**\
-`Lawyers for Rex Heuermann, who is charged with killing seven women, made last-ditch attempts to toss crucial evidence, but prosecutors are preparing for an expected trial next year.`\
-https://nytimes.com/2025/09/23/nyregion/gilgo-beach-rex-heuermann-hearing.html
 
