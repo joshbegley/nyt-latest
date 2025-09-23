@@ -1,3 +1,7 @@
+**Arsenal's Madueke facing around two months out with knee injury**\
+`Madueke was withdrawn for the returning Bukayo Saka at half-time of Sunday's 1-1 draw with Manchester City.`\
+https://nytimes.com/athletic/6651314/2025/09/23/noni-madueke-knee-injury-arsenal/
+
 **Hong Kong Prepares for Typhoon Ragasa**\
 `Hong Kong residents prepared for the worst as Typhoon Ragasa, the most powerful storm so far this year, prompted thousands of evacuations and hundreds of flight cancellations.`\
 https://nytimes.com/video/world/asia/100000010415862/typhoon-ragasa-hong-kong-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/23/science/marbled-murrelet-endangered-redwoods.html
 **How the N.Y.C. Mayoral Candidates Plan to Tackle Homelessness**\
 `The candidates’ views on addressing homelessness in New York City differ vastly, with calls to expand mental health services, overhaul the shelter system and change policing.`\
 https://nytimes.com/2025/09/23/nyregion/nyc-mayor-homelessness.html
-
-**For Late Night, Jimmy Kimmel’s Plight Is Personal**\
-`“Once more, I am the only martyr in late night,” Stephen Colbert said, joking about his own canceled show while sharing news of Kimmel’s return to air.`\
-https://nytimes.com/2025/09/23/arts/television/late-night-jimmy-kimmel.html
 
