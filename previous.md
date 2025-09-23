@@ -1,3 +1,11 @@
+**Inside Newcastle Q&A: Pressure on Pope, Botman's game time and stadium 'updates'**\
+`Chris Waugh answers your Newcastle United questions on Pope v Ramsdale, the future of St James' Park and Howe's new set-piece coach`\
+https://nytimes.com/athletic/6651066/2025/09/23/newcastle-inside-q-a-questions-botman-pope-stadium/
+
+**As U.S. Pulls Back From the U.N., Rivals Stand to Gain**\
+`We explain how Russia, China, Iran and other countries are trying to strengthen their influence as America retreats.`\
+https://nytimes.com/2025/09/23/briefing/un-trump-france-palestine.html
+
 **Putting Crystal Palace's 17-match unbeaten run into a European context**\
 `Oliver Glasner's team have not lost a game since April, an impressive record which Europe's elite teams do not come close to matching`\
 https://nytimes.com/athletic/6647211/2025/09/23/crystal-palace-unbeaten-europe-bayern-barcelona/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6643973/2025/09/23/premier-league-transfers-champio
 **England 2026 World Cup watch: Why Aston Villa's creative toils may impact Thomas Tuchel**\
 `Our weekly look at those pushing for inclusion in the England squad also takes in the promise of Nico O'Reilly and Jadon Sancho's hopes`\
 https://nytimes.com/athletic/6651436/2025/09/23/ollie-watkins-villa-kane-oreilly-england-world-cup/
-
-**Viktor Gyokeres: What he's doing right, what he's doing wrong, and how Arsenal can help him**\
-`Arsenal's new centre forward has scored three goals in five Premier League matches - but his form has been questioned. We look at why`\
-https://nytimes.com/athletic/6651165/2025/09/23/viktor-gyokeres-arsenal-analysis/
-
-**Bundesliga Briefing: Record-breaking penalty saves, hat-tricks (or not) and Goldbridge deal success**\
-`Sebastian Stafford-Bloor takes a look at another weekend of action from the Bundesliga and the 2.Bundesliga`\
-https://nytimes.com/athletic/6651391/2025/09/23/bundesliga-briefing-goalkeeper-penalties-hat-tricks-goldbridge/
 
