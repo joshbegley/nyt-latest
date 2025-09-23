@@ -1,3 +1,11 @@
+**How to watch Fever at Aces: Game 2 Time, TV, streaming**\
+`Find out how to watch the Indiana Fever play the Las Vegas Aces, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6655678/2025/09/23/fever-vs-aces-stream-how-to-watch-sept-23/
+
+**Planning Committee for U.S.’ 250th Birthday Fires Director for ‘Breach of Trust’**\
+`The bipartisan commission said the official, Ari Abergel, a Trump ally, had misused a social-media account and improperly pushed some members to resign.`\
+https://nytimes.com/2025/09/23/us/politics/ari-abergel-fired-trump-charlie-kirk.html
+
 **Brian Daboll is betting it all on Jaxson Dart. Can rookie save Giants' season, coach's job?**\
 `This is it. Making Dart the starting QB is the last card Daboll has to play. If it works, all the failures of the past will be forgotten.`\
 https://nytimes.com/athletic/6655406/2025/09/23/giants-jaxson-dart-brian-daboll-big-bet/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6655544/2025/09/23/panthers-vs-patriots-stream-how-
 **How to watch Chargers at Giants: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Chargers play the New York Giants, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6655541/2025/09/23/chargers-vs-giants-stream-how-to-watch-sept-28/
-
-**How to watch Commanders at Falcons: Time, TV, streaming**\
-`Find out how to watch the Washington Commanders play the Atlanta Falcons, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6655539/2025/09/23/commanders-vs-falcons-stream-how-to-watch-sept-28/
-
-**How to watch Titans at Texans: Time, TV, streaming**\
-`Find out how to watch the Tennessee Titans play the Houston Texans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6655537/2025/09/23/titans-vs-texans-stream-how-to-watch-sept-28/
 
