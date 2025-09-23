@@ -1,3 +1,11 @@
+**Prime Tire: F1 drivers who drove while ill. Plus, where's McLaren's pace?**\
+`Welcome to Prime Tire, The Athletic's Formula 1 newsletter`\
+https://nytimes.com/athletic/6654682/2025/09/23/george-russell-mclaren-f1-newsletter-prime-tire/
+
+**Scottie Scheffler says President Trump calls him after tournament wins**\
+`"He loves the game of golf, he loves supporting golfers," Scheffler said.`\
+https://nytimes.com/athletic/6654680/2025/09/23/scottie-scheffler-president-trump-golf-ryder-cup/
+
 **Her Torte Will Outlast Us All**\
 `Pete Wells remembers Marian Burros, a tenacious food reporter whose plum torte became one of The Times’s most famous recipes.`\
 https://nytimes.com/2025/09/23/dining/plum-torte-marian-burros.html
