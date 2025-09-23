@@ -1,3 +1,23 @@
+**A Rhode Island Wind Farm Changed Their View. And Their Lives, for the Better.**\
+`Offshore turbines let Block Island shut down soot-spewing, earsplitting diesel generators. There were other benefits, too.`\
+https://nytimes.com/2025/09/22/climate/block-island-rhode-wind-turbines.html
+
+**Satellites and Drones Are Unlocking Benefits ‘Hidden in Plain Sight’ in Michigan**\
+`Technology is helping farmers use land and fertilizer more strategically. Sometimes, the best practice is no chemicals at all.`\
+https://nytimes.com/2025/09/22/climate/michigan-precision-agriculture.html
+
+**‘They’re Small but They’re Mighty.’ Meet the Wisconsin Sisters Healing the Land.**\
+`The women of Holy Wisdom Monastery have restored 170 acres of native prairie and oak savanna. “Humans need creation to find ourselves,” one said.`\
+https://nytimes.com/2025/09/22/climate/wisconsin-nuns-prairie-restoration.html
+
+**Trump Promotes Unproven Ties to Autism and Tylenol Use**\
+`President Trump urged pregnant women to avoid taking Tylenol, claiming that there was a link between rising autism rates and painkillers with acetaminophen, contradicting decades of research that says otherwise.`\
+https://nytimes.com/video/us/politics/100000010414909/trump-tyleon-autism-pregnant-women.html
+
+**‘I Hate My Opponent’: Trump’s Remarks at Kirk Memorial Distill His Politics**\
+`President Trump has been fueled by grievance and animosity over the course of his political and public life.`\
+https://nytimes.com/2025/09/22/us/politics/trump-kirk-memorial-hate.html
+
 **‘I Hate My Opponent’: Trump’s Remarks at Kirk Memorial Distill His Politics**\
 `President Trump has been fueled by grievance and animosity over the course of his political and public life.`\
 https://nytimes.com/2025/09/22/us/politics/trumps-hate-vengeance-politics.html
