@@ -1,3 +1,15 @@
+**How to watch Twins at Rangers: Time, TV, streaming for September 23**\
+`Find out how to watch the Minnesota Twins play the Texas Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6653476/2025/09/22/twins-vs-rangers-stream-how-to-watch-sept-23/
+
+**How to watch Mets at Cubs: Time, TV, streaming for September 23**\
+`Find out how to watch the New York Mets play the Chicago Cubs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6653473/2025/09/22/mets-vs-cubs-stream-how-to-watch-sept-23/
+
+**How to watch Red Sox at Blue Jays: Time, TV, streaming for September 23**\
+`Find out how to watch the Boston Red Sox play the Toronto Blue Jays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6653465/2025/09/22/red-sox-vs-blue-jays-stream-how-to-watch-sept-23/
+
 **For Zohran Mamdani, Judaism’s Holiest Days Present a Test**\
 `Mr. Mamdani intends to appear at explicitly Jewish spaces during the High Holy Days, seeking to bridge a divide with some Jewish voters as he runs for mayor.`\
 https://nytimes.com/2025/09/22/nyregion/mamdani-rosh-hashana-jewish-holidays.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6653399/2025/09/22/tennessee-vs-mississippi-state-s
 **How to watch Alabama at Georgia: Time, TV, streaming**\
 `Find out how to watch the Alabama Crimson Tide play the Georgia Bulldogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6653400/2025/09/22/alabama-vs-georgia-stream-how-to-watch-sept-27/
-
-**How to watch Oregon at Penn State: Time, TV, streaming**\
-`Find out how to watch the Oregon Ducks play the Penn State Nittany Lions, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6653395/2025/09/22/oregon-vs-penn-state-stream-how-to-watch-sept-27/
-
-**How to watch UMass at Missouri: Time, TV, streaming**\
-`Find out how to watch the UMass Minutemen play the Missouri Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6653393/2025/09/22/umass-vs-missouri-stream-how-to-watch-sept-27/
-
-**Rockets veteran guard Fred VanVleet suffers torn ACL: Source**\
-`The nine-year veteran signed a two-year, $50 million deal this offseason to stay in Houston.`\
-https://nytimes.com/athletic/6652853/2025/09/22/fred-vanvleet-acl-injury-rockets/
 
