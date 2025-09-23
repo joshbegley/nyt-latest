@@ -1,3 +1,15 @@
+**Trump rails against clean energy and criticizes Britain for its shift away from drilling.**\
+`By Jenny Gross and Ephrat Livni`\
+https://nytimes.com/live/2025/09/23/world/un-general-assembly-trump/trump-clean-energy-britain-north-sea
+
+**Iranian Diplomats in the U.S. Are Barred From Shopping at Costco**\
+`As the U.N. General Assembly met in New York, the Trump administration forbade the Iranian delegation from shopping at discount wholesalers, an apparent bid to inflame Iranian public opinion.`\
+https://nytimes.com/2025/09/23/world/middleeast/iran-diplomats-costco-ban-trump.html
+
+**Super Bowl odds: Surprise contenders rise to 3-0, 1-2 Ravens don't wobble... yet**\
+`Three unexpected contenders remain undefeated, but the top five in Super Bowl odds have staying power.`\
+https://nytimes.com/athletic/6654766/2025/09/23/super-bowl-odds-week-4-contenders-ravens/
+
 **The Rapture Was Predicted to Happen Today. TikTok Has Some Advice.**\
 `There are thousands of videos to help prepare those who may or may not ascend into the heavens on Tuesday.`\
 https://nytimes.com/2025/09/23/us/rapture-tiktok-sept-23.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6654965/2025/09/23/mercury-vs-lynx-stream-how-to-wa
 **Critical fantasy football insights for Week 4: Backfields, breakouts and who to start**\
 `Jess Bryant and Brandon Funston check in on year-to-date and Week 3 utilization to help you with lineups in Week 4. `\
 https://nytimes.com/athletic/6651847/2025/09/23/fantasy-football-usage-week-4/
-
-**Which Countries Recognize a Palestinian State?**\
-`Ashley Wu, a graphics reporter for The New York Times, walks us through the changing map of Palestinian recognition.`\
-https://nytimes.com/video/world/100000010406014/which-countries-recognize-a-palestinian-state.html
-
-**Zackery Died Subway Surfing. Is Social Media to Blame?**\
-`Norma Nazario didn’t understand what had motivated her 15-year-old son to climb on top of a train one evening. Then she found his phone.`\
-https://nytimes.com/2025/09/23/style/subway-surfing-death-nyc-tiktok.html
-
-**A Dozen Protesters Are Arrested Outside the U.N. Before Trump’s Speech**\
-`The police swarmed a cluster of anti-Trump protesters ahead of the president’s address to diplomats and world leaders on Tuesday morning.`\
-https://nytimes.com/2025/09/23/nyregion/united-nations-protest-trump.html
 

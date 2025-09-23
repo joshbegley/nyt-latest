@@ -1,3 +1,15 @@
+**Trump rails against clean energy and criticizes Britain for its shift away from drilling.**\
+`By Jenny Gross and Ephrat Livni`\
+https://nytimes.com/live/2025/09/23/world/un-general-assembly-trump/trump-clean-energy-britain-north-sea
+
+**Iranian Diplomats in the U.S. Are Barred From Shopping at Costco**\
+`As the U.N. General Assembly met in New York, the Trump administration forbade the Iranian delegation from shopping at discount wholesalers, an apparent bid to inflame Iranian public opinion.`\
+https://nytimes.com/2025/09/23/world/middleeast/iran-diplomats-costco-ban-trump.html
+
+**Super Bowl odds: Surprise contenders rise to 3-0, 1-2 Ravens don't wobble... yet**\
+`Three unexpected contenders remain undefeated, but the top five in Super Bowl odds have staying power.`\
+https://nytimes.com/athletic/6654766/2025/09/23/super-bowl-odds-week-4-contenders-ravens/
+
 **The Rapture Was Predicted to Happen Today. TikTok Has Some Advice.**\
 `There are thousands of videos to help prepare those who may or may not ascend into the heavens on Tuesday.`\
 https://nytimes.com/2025/09/23/us/rapture-tiktok-sept-23.html
