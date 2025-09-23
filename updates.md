@@ -1,3 +1,15 @@
+**Brian Daboll is betting it all on Jaxson Dart. Can rookie save Giants' season, coach's job?**\
+`This is it. Making Dart the starting QB is the last card Daboll has to play. If it works, all the failures of the past will be forgotten.`\
+https://nytimes.com/athletic/6655406/2025/09/23/giants-jaxson-dart-brian-daboll-big-bet/
+
+**Orna Guralnik’s Father ‘Died a Beautiful Death’ at Bricolage**\
+`The “Couples Therapy” star and longtime Brooklynite answers the first-ever Where to Eat questionnaire.`\
+https://nytimes.com/2025/09/23/dining/orna-guralnik-couples-therapy-where-to-eat.html
+
+**Fact-Checking Trump’s U.N. Speech**\
+`The president made inaccurate claims about the economy, renewable energy and the mayor of London.`\
+https://nytimes.com/2025/09/23/us/politics/trump-speech-unga-fact-check.html
+
 **YouTube to Reinstate Accounts Banned Over Content Related to the Pandemic and 2020 Election**\
 `The streaming platform unveiled its plan in a letter to the House Judiciary Committee.`\
 https://nytimes.com/2025/09/23/technology/youtube-reinstating-banned-accounts-pandemic-election.html
