@@ -1,3 +1,11 @@
+**Judge in Gilgo Beach Case Spurns Request to Throw Out DNA Evidence**\
+`Lawyers for Rex Heuermann, who is charged with killing seven women, made last-ditch attempts to toss crucial evidence, but prosecutors are preparing for an expected trial next year.`\
+https://nytimes.com/2025/09/23/nyregion/gilgo-beach-rex-heuermann-hearing.html
+
+**Transgender sprinter sues NCAA, SUNY Geneseo after being barred from races**\
+`A runner says she was denied entry in a track meet after the NCAA's policy banned transgender women from participation in women’s sports.`\
+https://nytimes.com/athletic/6654967/2025/09/23/suny-geneseo-transgender-sprinter-lawsuit/
+
 **Bernie Parent, Hall of Fame Goalie for the Brawling Flyers, Dies at 80**\
 `“Only the Lord saves more than Bernie Parent,” a bumper sticker said of his netminding for Philadelphia, which he led to the Stanley Cup in 1974 and ’75.`\
 https://nytimes.com/2025/09/23/sports/hockey/bernie-parent-dead.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/09/23/business/global-economy-trump-tariffs.html
 **Trump Pushes Europe to Stop Buying Oil and Gas From Russia**\
 `The European Union has sharply reduced its dependence on Russian energy, but it still imports some supplies.`\
 https://nytimes.com/2025/09/23/business/trump-russia-natural-gas-europe.html
-
-**Barcelona to face Real Sociedad at Montjuic after Camp Nou safety concerns**\
-`The Catalan club have not played at the Camp Nou since June 2023.`\
-https://nytimes.com/athletic/6655002/2025/09/23/barcelona-real-sociedad-montjuic-camp-nou-delay/
-
-**Rudi Johnson, former Bengals Pro Bowl running back, dies at 45**\
-`Johnson ran for at least 1,300 yards in three consecutive seasons from 2004 to 2006.`\
-https://nytimes.com/athletic/6655025/2025/09/23/rudi-johnson-death-bengals/
 
