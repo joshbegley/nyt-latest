@@ -1,3 +1,7 @@
+**Why Take Tylenol During Pregnancy? The Risks of Fevers.**\
+`Fevers during pregnancy can be dangerous, and acetaminophen is the go-to treatment for them. Doctors worry what will happen if women are afraid to take it.`\
+https://nytimes.com/2025/09/23/well/tylenol-pregnancy-fevers.html
+
 **Fantasy football market share report: Kareem Hunt, Tyquan Thornton are the Chiefs to target**\
 `Michael Salfino mines the touches and targets data from Week 3, which has pointed him in the direction of a couple Chiefs this week.`\
 https://nytimes.com/athletic/6655912/2025/09/23/fantasy-football-market-share-report-week-4-judkins-hunt-thornton/

@@ -1,3 +1,7 @@
+**Why Take Tylenol During Pregnancy? The Risks of Fevers.**\
+`Fevers during pregnancy can be dangerous, and acetaminophen is the go-to treatment for them. Doctors worry what will happen if women are afraid to take it.`\
+https://nytimes.com/2025/09/23/well/tylenol-pregnancy-fevers.html
+
 **Fantasy football market share report: Kareem Hunt, Tyquan Thornton are the Chiefs to target**\
 `Michael Salfino mines the touches and targets data from Week 3, which has pointed him in the direction of a couple Chiefs this week.`\
 https://nytimes.com/athletic/6655912/2025/09/23/fantasy-football-market-share-report-week-4-judkins-hunt-thornton/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6655512/2025/09/23/oklahoma-state-coach-candidates-
 **At the U.N., Trump Bashed World Leaders**\
 `Also, Jimmy Kimmel returns. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/09/23/briefing/trump-un-speech-jimmy-kimmel-return.html
-
-**Camp Mystic Will Reopen Over Objections From Parents of the Dead**\
-`Twenty-seven children and counselors died in the Texas Hill Country camp, and many of their families expressed shock that the retreat on the Guadalupe River would be open for its 100th anniversary.`\
-https://nytimes.com/2025/09/23/us/camp-mystic-texas.html
 
