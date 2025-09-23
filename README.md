@@ -1,3 +1,15 @@
+**How to Watch ‘Jimmy Kimmel Live!’ if Your Station Isn’t Airing the Show**\
+`The show is coming back after backlash from comments Mr. Kimmel made on air last week. But not everyone will be able to view the episode live.`\
+https://nytimes.com/2025/09/23/us/politics/jimmy-kimmel-watch-time-stream.html
+
+**Jaxson Dart is taking over as Giants' starting QB: A timeline of how we got here**\
+`We examined the significant milestones of Dart's journey from Ole Miss prospect to starting QB of the New York Giants.`\
+https://nytimes.com/athletic/6655207/2025/09/23/jaxson-dart-giants-starting-qb-timeline/
+
+**Boston to Pay $150,000 to 2 Black Men Wrongly Accused in White Woman’s Killing**\
+`Boston’s mayor, Michelle Wu, apologized in 2023 to Alan Swanson and Willie Bennett for the actions of police after the 1989 killing of Carol Stuart.`\
+https://nytimes.com/2025/09/23/us/black-men-wrongly-accused-1989-murder.html
+
 **Oklahoma State needs a new coach. Here are the top candidates to replace Mike Gundy**\
 `Four current college football head coaches are joined by numerous coordinators among Oklahoma State candidates to replace Gundy.`\
 https://nytimes.com/athletic/6655512/2025/09/23/oklahoma-state-coach-candidates-mike-gundy-fired/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/23/arts/music/joe-stevens-dead.html
 **Scoop City: A quick explainer on Ashton Jeanty's struggles**\
 `The mystery of the struggling rookie running backs, plus fantasy prep and Jake Ciely's buy-low.`\
 https://nytimes.com/athletic/6655852/2025/09/23/rookie-running-back-questions-ashton-jeanty-fantasy-scoop-city/
-
-**Jamaican Citizen Deported to African Prison by U.S. Returns Home**\
-`The decision by the Trump administration to send Orville Etoria to Eswatini, where he had no ties, raised alarm among rights groups.`\
-https://nytimes.com/2025/09/23/world/africa/us-deportations-eswatini-jamaica.html
-
-**Supreme Leader Says Iran Has No Plans for Nuclear Weapon**\
-`The speech came as Iran and Europe negotiate over sanctions on the sidelines at the U.N. General Assembly. But Ayatollah Ali Khamenei said he opposed talks with the U.S., a key European demand.`\
-https://nytimes.com/2025/09/23/world/iran-nuclear-weapon-khamenei.html
-
-**Liverpool 2 Southampton 1: Why was Ekitike sent off? What happened to Leoni? Is Isak up to speed?**\
-`Analysis of Liverpool's Carabao Cup victory over Southampton `\
-https://nytimes.com/athletic/6655392/2025/09/23/liverpool-ekitike-red-card-highlights/
 
