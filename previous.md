@@ -1,3 +1,23 @@
+**The Bounce: The Rockets lose steam with Fred VanVleet injury**\
+`Keeping you up to date on the latest news and analysis from around the league.`\
+https://nytimes.com/athletic/6654896/2025/09/23/rockets-fred-vanvleet-injury-west-nba/
+
+**Liberty part ways with coach Sandy Brondello one season after winning WNBA championship**\
+`Brondello leaves as New York's winningest coach and as the lone coach to lead the franchise to a WNBA championship.`\
+https://nytimes.com/athletic/6654886/2025/09/23/liberty-coach-sandy-brondello-contract/
+
+**How to watch Mercury at Lynx: Game 2 Time, TV, streaming**\
+`Find out how to watch the Phoenix Mercury play the Minnesota Lynx, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6654965/2025/09/23/mercury-vs-lynx-stream-how-to-watch-sept-23/
+
+**Critical fantasy football insights for Week 4: Backfields, breakouts and who to start**\
+`Jess Bryant and Brandon Funston check in on year-to-date and Week 3 utilization to help you with lineups in Week 4. `\
+https://nytimes.com/athletic/6651847/2025/09/23/fantasy-football-usage-week-4/
+
+**Which Countries Recognize a Palestinian State?**\
+`Ashley Wu, a graphics reporter for The New York Times, walks us through the changing map of Palestinian recognition.`\
+https://nytimes.com/video/world/100000010406014/which-countries-recognize-a-palestinian-state.html
+
 **Zackery Died Subway Surfing. Is Social Media to Blame?**\
 `Norma Nazario didn’t understand what had motivated her 15-year-old son to climb on top of a train one evening. Then she found his phone.`\
 https://nytimes.com/2025/09/23/style/subway-surfing-death-nyc-tiktok.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6654871/2025/09/23/vikings-vs-steelers-stream-how-t
 **Local TV Giants Boycott Jimmy Kimmel’s Return to Late Night**\
 `Together, the two TV station groups, Sinclair and Nexstar, control more than 20 percent of ABC’s local affiliates.`\
 https://nytimes.com/2025/09/23/business/media/jimmy-kimmel-nexstar-sinclair-boycott.html
-
-**The Megaraptor Had Giant Claws and an Appetite for Crocodilians**\
-`A fossil of the 23-foot-tall predator could help unlock secrets of an order of dinosaurs that remain poorly understood.`\
-https://nytimes.com/2025/09/23/science/megaraptor-fossil-crocodile.html
-
-**Premier League tactical notebook: Five early-season data trends after five games**\
-`We're just a month into the 2025-26 campaign but, from a drop in offsides to a greater emphasis on set pieces, some patterns have emerged`\
-https://nytimes.com/athletic/6649499/2025/09/23/set-pieces-debuts-offside-trends-premier-league/
-
-**People Stop Me to Talk About These Recipes**\
-`Sheet-pan pierogies with brussels sprouts and kimchi and creamy coconut rice with peanuts have received effusive praise from friends.`\
-https://nytimes.com/2025/09/23/dining/sheet-pan-pierogies-and-more-weeknight-recipes.html
-
-**Trump Cancels Meeting With Democrats as Shutdown Nears**\
-`Top Democrats are demanding concessions on health care in exchange for their support on a bill to fund the government. Mr. Trump called the demands “unserious.”`\
-https://nytimes.com/2025/09/23/us/politics/trump-shutdown-democrats.html
-
-**Prime Tire: F1 drivers who drove while ill. Plus, where's McLaren's pace?**\
-`Welcome to Prime Tire, The Athletic's Formula 1 newsletter`\
-https://nytimes.com/athletic/6654682/2025/09/23/george-russell-mclaren-f1-newsletter-prime-tire/
 
