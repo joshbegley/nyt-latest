@@ -1,3 +1,15 @@
+**The Rapture Was Predicted to Happen Today. TikTok Has Some Advice.**\
+`There are thousands of videos to help prepare those who may or may not ascend into the heavens on Tuesday.`\
+https://nytimes.com/2025/09/23/us/rapture-tiktok-sept-23.html
+
+**Trump claimed again at the U.N. that he has ended seven wars. Here’s a closer look.**\
+`By Pranav Baskar`\
+https://nytimes.com/live/2025/09/23/world/un-general-assembly-trump/trump-claimed-again-at-the-un-that-he-has-ended-seven-wars-heres-a-closer-look
+
+**Bamford in advanced talks with Getafe after Leeds exit**\
+`The 32-year-old forward scored 60 goals over seven years at Elland Road.`\
+https://nytimes.com/athletic/6654509/2025/09/23/patrick-bamford-getafe-leeds-talks/
+
 **The Bounce: The Rockets lose steam with Fred VanVleet injury**\
 `Keeping you up to date on the latest news and analysis from around the league.`\
 https://nytimes.com/athletic/6654896/2025/09/23/rockets-fred-vanvleet-injury-west-nba/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/23/style/subway-surfing-death-nyc-tiktok.html
 **A Dozen Protesters Are Arrested Outside the U.N. Before Trump’s Speech**\
 `The police swarmed a cluster of anti-Trump protesters ahead of the president’s address to diplomats and world leaders on Tuesday morning.`\
 https://nytimes.com/2025/09/23/nyregion/united-nations-protest-trump.html
-
-**French President Is Stopped by Trump’s Motorcade in New York**\
-`President Emmanuel Macron of France, in New York for the 80th United Nations General Assembly, was briefly stopped at a street blocked for President Trump’s motorcade. Mr. Macron called Mr. Trump before eventually being allowed to pass, but had to walk 30 minutes to his destination.`\
-https://nytimes.com/video/us/100000010416097/french-president-stopped-trump-motorcade.html
-
-**How to watch Vikings vs. Steelers: Time, TV, streaming**\
-`Find out how to watch the Minnesota Vikings play the Pittsburgh Steelers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6654871/2025/09/23/vikings-vs-steelers-stream-how-to-watch-sept-28/
-
-**Local TV Giants Boycott Jimmy Kimmel’s Return to Late Night**\
-`Together, the two TV station groups, Sinclair and Nexstar, control more than 20 percent of ABC’s local affiliates.`\
-https://nytimes.com/2025/09/23/business/media/jimmy-kimmel-nexstar-sinclair-boycott.html
 
