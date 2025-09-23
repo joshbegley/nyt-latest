@@ -1,3 +1,11 @@
+**How to watch Colts at Rams: Time, TV, streaming**\
+`Find out how to watch the Indianapolis Colts play the Los Angeles Rams, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6656133/2025/09/23/colts-vs-rams-stream-how-to-watch-sept-28/
+
+**How to watch Ravens at Chiefs: Time, TV, streaming**\
+`Find out how to watch the Baltimore Ravens play the Kansas City Chiefs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6656116/2025/09/23/ravens-vs-chiefs-stream-how-to-watch-sept-28/
+
 **The Security Council warns of deteriorating conditions from the war in Gaza.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2025/09/23/world/un-general-assembly-trump/the-security-council-warns-of-deteriorating-conditions-from-the-war-in-gaza
