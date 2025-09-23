@@ -1,3 +1,7 @@
+**F.D.A.’s Approval of Drug for Autism Upends Review Process**\
+`The agency revived an old treatment for cancer patients, unilaterally approving it for a subset of people with autism. Experts worry that the narrower scope will get lost in the hype.`\
+https://nytimes.com/2025/09/23/health/fda-autism-treatment-leucovorin.html
+
 **How to watch Fever at Aces: Game 2 Time, TV, streaming**\
 `Find out how to watch the Indiana Fever play the Las Vegas Aces, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6655678/2025/09/23/fever-vs-aces-stream-how-to-watch-sept-23/
