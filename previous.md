@@ -1,3 +1,7 @@
+**Fantasy football market share report: Kareem Hunt, Tyquan Thornton are the Chiefs to target**\
+`Michael Salfino mines the touches and targets data from Week 3, which has pointed him in the direction of a couple Chiefs this week.`\
+https://nytimes.com/athletic/6655912/2025/09/23/fantasy-football-market-share-report-week-4-judkins-hunt-thornton/
+
 **Ekitike red card vs Southampton 'needless and stupid' - Slot**\
 `"If I had scored a goal like this I would have walked up to Federico Chiesa and said, 'this goal is all about you, not about me'," Slot said`\
 https://nytimes.com/athletic/6655915/2025/09/23/hugo-ekitike-red-card-liverpool-slot/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/23/briefing/trump-un-speech-jimmy-kimmel-return.html
 **Camp Mystic Will Reopen Over Objections From Parents of the Dead**\
 `Twenty-seven children and counselors died in the Texas Hill Country camp, and many of their families expressed shock that the retreat on the Guadalupe River would be open for its 100th anniversary.`\
 https://nytimes.com/2025/09/23/us/camp-mystic-texas.html
-
-**What to Expect on ‘Jimmy Kimmel Live!’**\
-`Jimmy Kimmel will break his silence on Tuesday night on the controversy that temporarily sidelined his late-night show.`\
-https://nytimes.com/2025/09/23/business/media/jimmy-kimmel-return-monologue.html
 

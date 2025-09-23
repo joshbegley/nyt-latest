@@ -1,3 +1,7 @@
+**Fantasy football market share report: Kareem Hunt, Tyquan Thornton are the Chiefs to target**\
+`Michael Salfino mines the touches and targets data from Week 3, which has pointed him in the direction of a couple Chiefs this week.`\
+https://nytimes.com/athletic/6655912/2025/09/23/fantasy-football-market-share-report-week-4-judkins-hunt-thornton/
+
 **Ekitike red card vs Southampton 'needless and stupid' - Slot**\
 `"If I had scored a goal like this I would have walked up to Federico Chiesa and said, 'this goal is all about you, not about me'," Slot said`\
 https://nytimes.com/athletic/6655915/2025/09/23/hugo-ekitike-red-card-liverpool-slot/
