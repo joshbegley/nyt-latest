@@ -1,3 +1,11 @@
+**Hong Kong Prepares for Typhoon Ragasa**\
+`Hong Kong residents prepared for the worst as Typhoon Ragasa, the most powerful storm so far this year, prompted thousands of evacuations and hundreds of flight cancellations.`\
+https://nytimes.com/video/world/asia/100000010415862/typhoon-ragasa-hong-kong-china.html
+
+**Sunderland's Diarra out until December after undergoing surgery on groin injury**\
+`Sunderland confirmed in a statement that the Senegal international is set to return to action in December.`\
+https://nytimes.com/athletic/6654034/2025/09/23/sunderland-news-diarra-injury-surgery/
+
 **Jaguar Land Rover Says Cyberattack Will Halt Production Through Oct. 1**\
 `The company shut down production in early September to contain the breach. It had previously said it planned to resume operations on Sept. 24.`\
 https://nytimes.com/2025/09/23/business/jaguar-land-rover-cyberattack-production.html
