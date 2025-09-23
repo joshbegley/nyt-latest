@@ -1,3 +1,19 @@
+**Villa in advanced talks to appoint Olabe as Monchi replacement**\
+`Olabe left Real Sociedad at the end of last season, having built a reputation as one of the game’s leading sporting directors.`\
+https://nytimes.com/athletic/6654046/2025/09/23/roberto-olabe-aston-villa-who/
+
+**A Fact-Check on Trump’s Claims About Tylenol, Vaccines and Autism**\
+`How President Trump ignored science about vaccines in his news conference.`\
+https://nytimes.com/2025/09/23/us/a-fact-check-on-trumps-claims-about-tylenol-vaccines-and-autism.html
+
+**TAFC: How Dembele won the Ballon d'Or. Plus: 145 human rights complaints at Club World Cup**\
+`Today in TAFC: From 'serious mistake' to Dembele's Ballon d'Or win. Plus: Breaking down the complaints made at the Club World Cup.`\
+https://nytimes.com/athletic/6654195/2025/09/23/dembele-ballon-dor-human-rights-club-world-cup/
+
+**Three Red Sox takeaways ahead of season-defining closing stretch**\
+`At 85-71, the Sox have already secured their most wins since their last trip to the postseason in 2021.`\
+https://nytimes.com/athletic/6651888/2025/09/23/red-sox-takeaways-end-of-season-stretch/
+
 **Orion Kerkering's season hasn't gone to plan: The Phillies need him to find it for October**\
 `It has taken Kerkering time to accept the failures that forced the Phillies to move him down the bullpen list. Now, it's all about October.`\
 https://nytimes.com/athletic/6652330/2025/09/23/orion-kerkering-2025-season-playoffs/

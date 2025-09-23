@@ -1,4 +1,4 @@
-**Villa in advanced talks to appoint Olabe as Monchi replacement**\
+**Villa agree deal to appoint Olabe as Monchi replacement**\
 `Olabe left Real Sociedad at the end of last season, having built a reputation as one of the game’s leading sporting directors.`\
 https://nytimes.com/athletic/6654046/2025/09/23/roberto-olabe-aston-villa-who/
 

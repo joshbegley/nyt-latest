@@ -1,3 +1,19 @@
+**Villa in advanced talks to appoint Olabe as Monchi replacement**\
+`Olabe left Real Sociedad at the end of last season, having built a reputation as one of the game’s leading sporting directors.`\
+https://nytimes.com/athletic/6654046/2025/09/23/roberto-olabe-aston-villa-who/
+
+**A Fact-Check on Trump’s Claims About Tylenol, Vaccines and Autism**\
+`How President Trump ignored science about vaccines in his news conference.`\
+https://nytimes.com/2025/09/23/us/a-fact-check-on-trumps-claims-about-tylenol-vaccines-and-autism.html
+
+**TAFC: How Dembele won the Ballon d'Or. Plus: 145 human rights complaints at Club World Cup**\
+`Today in TAFC: From 'serious mistake' to Dembele's Ballon d'Or win. Plus: Breaking down the complaints made at the Club World Cup.`\
+https://nytimes.com/athletic/6654195/2025/09/23/dembele-ballon-dor-human-rights-club-world-cup/
+
+**Three Red Sox takeaways ahead of season-defining closing stretch**\
+`At 85-71, the Sox have already secured their most wins since their last trip to the postseason in 2021.`\
+https://nytimes.com/athletic/6651888/2025/09/23/red-sox-takeaways-end-of-season-stretch/
+
 **Orion Kerkering's season hasn't gone to plan: The Phillies need him to find it for October**\
 `It has taken Kerkering time to accept the failures that forced the Phillies to move him down the bullpen list. Now, it's all about October.`\
 https://nytimes.com/athletic/6652330/2025/09/23/orion-kerkering-2025-season-playoffs/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6648844/2025/09/23/metropolitan-division-preview-nh
 **Red Wings roster battles, prospects and more: 5 big preseason questions**\
 `Who can fill spots at top-line left wing and second-pair right defense? Is Emmitt Finnie the real deal? Will top prospects step up?`\
 https://nytimes.com/athletic/6653020/2025/09/23/red-wings-preseason-questions-emmitt-finnie-nate-danielson/
-
-**At Rangers camp, a Stanley Cup champion tries to resurrect his career**\
-`“I just knew I needed to get out of there,” Conor Sheary said of a "lost" 2024-25 season. On a tryout, he's looking for a home in New York.`\
-https://nytimes.com/athletic/6652539/2025/09/23/conor-sheary-new-york-rangers-nhl-contract/
-
-**What we're seeing at Wild camp: Who's standing out and who isn't as exhibitions get underway**\
-`Yakov Trenin, Liam Ohgren and Jesper Wallstedt are among the early players impressing, plus injury updates and more.`\
-https://nytimes.com/athletic/6652492/2025/09/23/trenin-ohgren-yurov-wild-training-camp/
-
-**MLS Supporters' Shield power rankings: superstars, surprises, tricky math**\
-`This season's MLS Supporters' Shield race still has time for even more twists.`\
-https://nytimes.com/athletic/6653237/2025/09/23/mls-supporters-shield-power-rankings-son-muller/
-
-**Did Packers make a mistake letting Zach Tom play against the Browns?**\
-`The star right tackle played only one snap Sunday before determining he couldn't go with an injured oblique.`\
-https://nytimes.com/athletic/6653190/2025/09/23/packers-zach-tom-injury-browns/
 
