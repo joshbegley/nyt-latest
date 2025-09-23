@@ -1,3 +1,7 @@
+**YouTube to Reinstate Accounts Banned Over Content Related to the Pandemic and 2020 Election**\
+`The streaming platform unveiled its plan in a letter to the House Judiciary Committee.`\
+https://nytimes.com/2025/09/23/technology/youtube-reinstating-banned-accounts-pandemic-election.html
+
 **Gavi ruled out for up to five months with meniscus injury**\
 `Gavi, 21, underwent surgery on a right medial meniscus injury on Tuesday.`\
 https://nytimes.com/athletic/6655466/2025/09/23/barcelona-gavi-knee-injury-update/
