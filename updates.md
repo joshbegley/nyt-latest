@@ -1,3 +1,5 @@
+
+
 **Tariff Uncertainty Expected to Slow Global Economic Growth This Year**\
 `President Trump’s trade war is still playing out, and the full effect will be felt heading into next year, the latest projections show.`\
 https://nytimes.com/2025/09/23/business/global-economy-trump-tariffs.html
