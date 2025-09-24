@@ -1,3 +1,7 @@
+**Typhoon Ragasa Floods Hong Kong and Hurtles Toward Southern China**\
+`One million residents of Guangdong, in southern China, were evacuated. The storm left 14 dead in Taiwan.`\
+https://nytimes.com/2025/09/24/world/asia/typhoon-ragasa-hong-kong-china.html
+
 **How to watch Packers at Cowboys: Time, TV, streaming**\
 `Find out how to watch the Green Bay Packers play the Dallas Cowboys, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6657103/2025/09/24/packers-vs-cowboys-stream-how-to-watch-sept-28/

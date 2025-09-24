@@ -1,3 +1,7 @@
+**Typhoon Ragasa Floods Hong Kong and Hurtles Toward Southern China**\
+`One million residents of Guangdong, in southern China, were evacuated. The storm left 14 dead in Taiwan.`\
+https://nytimes.com/2025/09/24/world/asia/typhoon-ragasa-hong-kong-china.html
+
 **How to watch Packers at Cowboys: Time, TV, streaming**\
 `Find out how to watch the Green Bay Packers play the Dallas Cowboys, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6657103/2025/09/24/packers-vs-cowboys-stream-how-to-watch-sept-28/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/24/arts/television/jimmy-kimmel-late-night-return.ht
 **League Cup win could give Wrexham shot at Premier League giant - but is that what they want?**\
 `Tuesday's 2-0 victory over Reading put Wrexham into the fourth round of the League Cup for only the fourth time in their history`\
 https://nytimes.com/athletic/6651203/2025/09/24/wrexham-league-cup-premier-league/
-
-**Word of the Day: horde**\
-`This word has appeared in 83 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/09/24/learning/word-of-the-day-horde.html
 
