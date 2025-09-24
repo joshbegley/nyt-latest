@@ -1,3 +1,15 @@
+**LaCava: 'I'm not looking for any controversy' at this Ryder Cup**\
+`LaCava, Patrick Cantlay's caddie, had words with McIlroy and Shane Lowry after his 18th green celebration at Marco Simone.`\
+https://nytimes.com/athletic/6659104/2025/09/24/ryder-cup-joe-lacava-rory-mcilroy-caddie-hat/
+
+**With Sobs and Doubts, Greenlandic Women Receive Apology for Forced Contraception**\
+`Some Greenlanders asked why an apology had not come decades earlier, and chalked up the timing to tensions over President Trump’s aim of annexing the island.`\
+https://nytimes.com/2025/09/24/world/europe/denmark-greenland-apology-birth-control.html
+
+**Judge Rebukes Trump Officials for Saying Mangione Is a Killer**\
+`They echoed the president’s characterization of Mr. Mangione, even though the judge had warned of endangering a fair trial.`\
+https://nytimes.com/2025/09/24/nyregion/luigi-mangione-statements-judge-explanation.html
+
 **The 9.28.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/09/24/the-92825-issue
