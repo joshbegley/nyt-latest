@@ -1,3 +1,7 @@
+**The Pulse: The Guardians are doing it**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6656180/2025/09/24/guardians-tigers-robot-umps-the-pulse/
+
 **Relief, Grief and Pain as Gaza’s Wounded Are Flown to Safety**\
 `Hungry and injured passengers on a medical evacuation flight showed the toll of nearly two years of bombardment.`\
 https://nytimes.com/2025/09/24/world/middleeast/evacuation-flight-gaza-abu-dhabi.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6655591/2025/09/24/minnesota-vikings-nfl-dublin-lon
 **F1 mailbag: How concerned should McLaren’s drivers be about Max Verstappen?**\
 `How much has the title race shifted after Baku? It's time for our weekly F1 questions from readers`\
 https://nytimes.com/athletic/6656049/2025/09/24/f1-mailbag-max-verstappen-oscar-piastri-lando-norris-championship/
-
-**Anaheim Ducks 2025-26 season preview: Playoff chances, projected points, roster rankings**\
-`A playoff push would be nice for the Ducks, but it's not a necessity so long as they see reasonable growth in key spots.`\
-https://nytimes.com/athletic/6644249/2025/09/24/anaheim-ducks-2025-26-season-preview/
 

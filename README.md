@@ -1,3 +1,7 @@
+**The 2025-26 NHL prospects viewing guide: How to watch the CHL, NCAA, SHL and more**\
+`Bookmark this page as your primer to follow all of the leagues outside the NHL for the 2025-26 season.`\
+https://nytimes.com/athletic/6643845/2025/09/24/nhl-prospects-watch-ncaa-chl-guide/
+
 **The Pulse: The Guardians are doing it**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6656180/2025/09/24/guardians-tigers-robot-umps-the-pulse/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/09/24/podcasts/the-headlines/trump-ukraine-jimmy-kimmel
 **A 10-day stay in Europe? How the Vikings are handling an unprecedented overseas trip**\
 `There are a lot of logistics involved in transporting a football team (and 37,000 pounds of gear) to Dublin and London for two NFL games. `\
 https://nytimes.com/athletic/6655591/2025/09/24/minnesota-vikings-nfl-dublin-london/
-
-**F1 mailbag: How concerned should McLaren’s drivers be about Max Verstappen?**\
-`How much has the title race shifted after Baku? It's time for our weekly F1 questions from readers`\
-https://nytimes.com/athletic/6656049/2025/09/24/f1-mailbag-max-verstappen-oscar-piastri-lando-norris-championship/
 
