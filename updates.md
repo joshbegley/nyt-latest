@@ -1,3 +1,7 @@
+**A fusion energy demo could be coming to the U.S. in the next two years.**\
+`By Brad Plumer`\
+https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/a-fusion-energy-demo-could-be-coming-to-the-us-in-the-next-two-years
+
 **LaCava: 'I'm not looking for any controversy' at this Ryder Cup**\
 `LaCava, Patrick Cantlay's caddie, had words with McIlroy and Shane Lowry after his 18th green celebration at Marco Simone.`\
 https://nytimes.com/athletic/6659104/2025/09/24/ryder-cup-joe-lacava-rory-mcilroy-caddie-hat/
