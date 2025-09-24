@@ -1,3 +1,15 @@
+**Postecoglou, Marinakis, and a European odyssey weighted with expectation**\
+`Following Forest’s promotion in 2022, Marinakis said he wanted to see his team back in Europe. He now sees winning trophies as the next step`\
+https://nytimes.com/athletic/6651998/2025/09/24/nottingham-forest-europa-league-postecoglou/
+
+**Mariners come back late to clinch AL postseason berth; eye AL West title**\
+`The Mariners will make their sixth postseason appearance in the team's 49-year history.`\
+https://nytimes.com/athletic/6655478/2025/09/24/seattle-mariners-postseason-berth-clinched/
+
+**The BookKeeper's mailbag: Why are NFL franchises more valuable than football clubs? What could burst the Premier League bubble?**\
+`The BookKeeper answers your finance questions, including how much of Brighton's transfer spend in their history has been covered by Chelsea`\
+https://nytimes.com/athletic/6615598/2025/09/24/nfl-premier-league-franchise-valuable/
+
 **Man City's new counterattacking style is unlocking Haaland's trademark sucker-punch goal**\
 `After years of trying to navigate deep defences, the Norwegian striker is relish running into space again`\
 https://nytimes.com/athletic/6651542/2025/09/24/man-city-haaland-trademark-goal/
