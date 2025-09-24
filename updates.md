@@ -1,3 +1,19 @@
+**What Nebraska's first 4 games revealed, and what's next in an October that could define the season**\
+`Here are four revelations for Nebraska from the first four games of the season.`\
+https://nytimes.com/athletic/6655760/2025/09/24/nebraska-football-what-we-learned/
+
+**What to know about the 2025 Ryder Cup: Format, scoring system, rosters and history**\
+`Here's what you need to know about this weekend's U.S. vs. Europe golf tournament, now in its 45th installment.`\
+https://nytimes.com/athletic/6655110/2025/09/24/ryder-cup-format-rules-prize-money-rosters-2025/
+
+**Trump Administration Live Updates: Kimmel Returns to Airwaves After Free Speech Firestorm**\
+``\
+https://nytimes.com/live/2025/09/24/us/trump-news
+
+**Red Sox pull out gritty win, holding ground in tumultuous wild-card hunt**\
+`With the win, the Red Sox held onto the second wild-card spot, one game up on floundering Detroit.`\
+https://nytimes.com/athletic/6656851/2025/09/24/red-sox-win-mlb-wild-card-race/
+
 **Keith Law's non-voting picks for top year-end MLB player awards**\
 `Keith Law makes his hypothetical selections for AL and NL MVP and Cy Young, and AL Rookie of the Year.`\
 https://nytimes.com/athletic/6653052/2025/09/24/mlb-player-award-picks-mvp/
