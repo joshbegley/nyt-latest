@@ -1,3 +1,15 @@
+**Cubs' Matt Shaw says friendship with Charlie Kirk led to missing game for memorial service**\
+`Shaw confirmed he also requested some time off immediately after Kirk’s death.`\
+https://nytimes.com/athletic/6656596/2025/09/23/chicago-cubs-matt-shaw-charlie-kirk-absence/
+
+**Yankees clinch playoff spot: After bumpy season, are they peaking at right time?**\
+`This season has been far from a smooth ride for the Yankees, but they're back in the playoffs. And they could be peaking at the right time.`\
+https://nytimes.com/athletic/6656025/2025/09/23/yankees-clinch-mlb-playoff-spot/
+
+**Part of a Flight**\
+`Peter A. Collins won’t give us a straight answer.`\
+https://nytimes.com/2025/09/23/crosswords/daily-puzzle-2025-09-24.html
+
 **Dodgers' Roki Sasaki to pitch out of bullpen when he's activated Wednesday**\
 `It’s still not a lock that Sasaki will be on the postseason roster when the Dodgers open the National League Wild Card Series.`\
 https://nytimes.com/athletic/6656565/2025/09/23/los-angeles-dodgers-roki-sasaki-return/

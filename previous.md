@@ -1,3 +1,15 @@
+**Cubs' Matt Shaw says friendship with Charlie Kirk led to missing game for memorial service**\
+`Shaw confirmed he also requested some time off immediately after Kirk’s death.`\
+https://nytimes.com/athletic/6656596/2025/09/23/chicago-cubs-matt-shaw-charlie-kirk-absence/
+
+**Yankees clinch playoff spot: After bumpy season, are they peaking at right time?**\
+`This season has been far from a smooth ride for the Yankees, but they're back in the playoffs. And they could be peaking at the right time.`\
+https://nytimes.com/athletic/6656025/2025/09/23/yankees-clinch-mlb-playoff-spot/
+
+**Part of a Flight**\
+`Peter A. Collins won’t give us a straight answer.`\
+https://nytimes.com/2025/09/23/crosswords/daily-puzzle-2025-09-24.html
+
 **Dodgers' Roki Sasaki to pitch out of bullpen when he's activated Wednesday**\
 `It’s still not a lock that Sasaki will be on the postseason roster when the Dodgers open the National League Wild Card Series.`\
 https://nytimes.com/athletic/6656565/2025/09/23/los-angeles-dodgers-roki-sasaki-return/
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/09/23/world/un-general-assembly-trump/poland-presi
 **U.N. Escalator Stops Right as Trump Steps On**\
 `An escalator stopped at the U.N. General Assembly as President Trump and the first lady were arriving Tuesday morning.`\
 https://nytimes.com/video/us/100000010417829/trump-escalator-un-conspiracies.html
-
-**Escalator Malfunction at U.N. Sets Off Conspiracy Theories**\
-`A sudden stop just as President Trump stepped on the stairs may have been caused by the triggering of a safety mechanism, the U.N. said.`\
-https://nytimes.com/2025/09/23/world/trump-escalator-un-conspiracies.html
-
-**Arizona Seventh Congressional District Special Election Results**\
-`Get live results and maps from the 2025 Arizona special election.`\
-https://nytimes.com/interactive/2025/09/23/us/elections/results-arizona-us-house-7-special.html
-
-**Storm Rips Part of Roof Off Oklahoma Hospital, Forcing Evacuations**\
-`Some homes in the city of Sallisaw, in the eastern part of the state, were damaged, as were trees, power lines and poles, officials said.`\
-https://nytimes.com/2025/09/23/us/oklahoma-storms-damage.html
 
