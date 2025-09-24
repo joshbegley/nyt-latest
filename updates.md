@@ -1,3 +1,11 @@
+**Breaking News Interrupted Their Date, but Not Their Connection**\
+`As the senior political correspondent for ABC News, Rachel Scott has to be ready at a moment’s notice to cover a big story. Elliott Smith proved early on that he wouldn’t hesitate to do whatever it took to help her.`\
+https://nytimes.com/2025/09/24/style/rachel-scott-wedding-elliot-smith.html
+
+**What is the Dallas ICE field office?**\
+`By Allison McCann`\
+https://nytimes.com/live/2025/09/24/us/dallas-ice-shooting/dallas-texas-ice-facility
+
 **The D.C. Region Has Faced an Outsized Toll From Trump’s Policies**\
 `With the mass layoffs and cancellations of thousands of federal grants and contracts, the region has taken a disproportionate hit.`\
 https://nytimes.com/2025/09/24/us/politics/trump-cuts-washington-dc.html

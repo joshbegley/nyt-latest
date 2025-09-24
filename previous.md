@@ -1,3 +1,11 @@
+**Breaking News Interrupted Their Date, but Not Their Connection**\
+`As the senior political correspondent for ABC News, Rachel Scott has to be ready at a moment’s notice to cover a big story. Elliott Smith proved early on that he wouldn’t hesitate to do whatever it took to help her.`\
+https://nytimes.com/2025/09/24/style/rachel-scott-wedding-elliot-smith.html
+
+**What is the Dallas ICE field office?**\
+`By Allison McCann`\
+https://nytimes.com/live/2025/09/24/us/dallas-ice-shooting/dallas-texas-ice-facility
+
 **The D.C. Region Has Faced an Outsized Toll From Trump’s Policies**\
 `With the mass layoffs and cancellations of thousands of federal grants and contracts, the region has taken a disproportionate hit.`\
 https://nytimes.com/2025/09/24/us/politics/trump-cuts-washington-dc.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/24/world/americas/charlie-kirk-visas-speech.html
 **Newsom Slams Trump’s United Nations Speech**\
 `Gov. Gavin Newsom of California called President Trump’s comments on climate change “an abomination.”`\
 https://nytimes.com/video/admin/100000010419295/climate-conference-gavin-newsom-trump.html
-
-**Despite a slump under Trump, a U.S. wind industry executive sees potential in the long run.**\
-`By Brad Plumer`\
-https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/despite-a-slump-under-trump-a-us-wind-industry-executive-sees-potential-in-the-long-run
-
-**Gov. Gavin Newsom calls Trump’s U.N. speech ‘an abomination.’**\
-`By Maxine Joselow`\
-https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/gov-gavin-newsom-calls-trumps-un-speech-an-abomination
 
