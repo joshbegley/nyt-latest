@@ -1,40 +1,40 @@
-**Jimmy Kimmel Returns to Late Night**\
-`Jimmy Kimmel delivered an emotional monologue focused on free speech in his return to television. ABC had suspended the late-night host after comments he made about the assassination of Charlie Kirk.`\
-https://nytimes.com/video/us/100000010418148/jimmy-kimmel-return-monologue.html
+**Trump Is Building the Blue Scare**\
+`The political theorist Corey Robin walks through the history of the Red Scare and the “fractured mirror” it is to Trump’s attack on the “radical left.”`\
+https://nytimes.com/2025/09/24/opinion/ezra-klein-podcast-corey-robin.html
 
-**One century in Australia, six quicks and an alarming spin figure: England's Ashes squad by numbers**\
-`England's Ashes record Down Under since 2010-11 is miserable: played 15, won 0, lost 13. But what do the numbers say about Stokes' squad?`\
-https://nytimes.com/athletic/6655159/2025/09/24/england-ashes-squad-root-stokes-numbers/
+**Despite Trump, the World Isn’t Slowing on Climate, E.U. Official Says**\
+`Still, European nations are struggling to agree on how much to cut their greenhouse gas emissions, the E.U.’s climate commissioner said in an interview.`\
+https://nytimes.com/2025/09/24/climate/europe-emissions-targets-united-nations.html
 
-**Disney Raises Prices for Streaming Plans in the U.S.**\
-`The price hike goes into effect on Oct. 21 and covers the Disney+ service, as well as plans that bundle it with Hulu, ESPN Select and HBO Max.`\
-https://nytimes.com/2025/09/24/business/media/disney-streaming-price-increase.html
+**This Is About So Much More Than Lisa Cook**\
+`Trump dreams of infinite presidential power.`\
+https://nytimes.com/2025/09/24/opinion/lisa-cook-trump-presidential-power.html
 
-**10 (More) Questions With Zohran Mamdani**\
-`Zohran Mamdani, the Democratic nominee for mayor of New York City, visited The New York Times for an interview.`\
-https://nytimes.com/2025/09/24/nyregion/zohran-mamdani-10-questions.html
+**Screwworm Case Detected Less Than 70 Miles From U.S.-Mexico Border**\
+`The flesh-eating parasite was detected in northern Mexico. It is the northernmost case of the livestock infection, which was eradicated from the United States in the 1960s.`\
+https://nytimes.com/2025/09/24/science/screwworm-cattle-mexico.html
 
-**The Billionaire, the Psychedelics and the Best-Selling Memoir**\
-`Amy Griffin wrote a book based on recovered memories of childhood sexual abuse. Oprah Winfrey and a slew of celebrities promoted it. Then questions arose.`\
-https://nytimes.com/2025/09/24/nyregion/amy-griffin-memoir-psychedelic-drugs.html
+**Smart Glasses**\
+`Meta recently unveiled several new computerized glasses. Would you want a pair?`\
+https://nytimes.com/2025/09/24/learning/smart-glasses.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/09/24/crosswords/spelling-bee-forum.html
+**Brendan Carr Plans to Keep Going After the Media**\
+`While “Jimmy Kimmel Live!” returned to ABC on Tuesday, the chairman of the Federal Communications Commission has promised to continue his campaign against what he sees as liberal bias in broadcasts.`\
+https://nytimes.com/2025/09/24/technology/brendan-carr-fcc-kimmel.html
 
-**A Shop for Black Women Who Love Women Who Love Books**\
-`Though Bedford-Stuyvesant, Brooklyn, has seen an exodus of Black residents over the past 15 years, one woman hopes to create a beacon for her community.`\
-https://nytimes.com/2025/09/24/nyregion/brooklyn-black-lesbian-bookstore.html
+**The Patriots need more from their WRs for Drake Maye, offense to hit their stride**\
+`Maye has played well for the 1-2 Patriots, but imagine what he could do with a legitimate group of wide receivers to throw to.`\
+https://nytimes.com/athletic/6653673/2025/09/24/patriots-wide-receivers-drake-maye/
 
-**Inside Tim Lewis' Arsenal exit and what it means for the club**\
-`The departure of vice-chair Tim Lewis last week came as a shock to many but it heralds the start of a new era at Arsenal`\
-https://nytimes.com/athletic/6648757/2025/09/24/arsenal-tim-lewis-josh-kroenke/
+**A Rare Draft of the Constitution Shows It as a Work in Progress**\
+`A future senator from New York marked changes on the document, which Christie’s plans to sell at auction early next year.`\
+https://nytimes.com/2025/09/24/nyregion/constitution-draft-christies.html
 
-**Typhoon Ragasa Floods Hong Kong and Hurtles Toward Southern China**\
-`One million residents of Guangdong, in southern China, were evacuated. The storm left 15 dead in Taiwan.`\
-https://nytimes.com/2025/09/24/world/asia/typhoon-ragasa-hong-kong-china.html
+**The Pentagon, the Press and the Fight to Control National Security Coverage**\
+`Journalists have long shaped history through scrutiny of the military. Now the Defense Department plans to cut off access for reporters who publish even unclassified information without official approval.`\
+https://nytimes.com/2025/09/24/us/politics/pentagon-reporters.html
 
-**How to watch Packers at Cowboys: Time, TV, streaming**\
-`Find out how to watch the Green Bay Packers play the Dallas Cowboys, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6657103/2025/09/24/packers-vs-cowboys-stream-how-to-watch-sept-28/
+**How to Give Your Older Phone New Software Powers**\
+`Don’t have the latest A.I.-powered model? There are still plenty of new features in Apple’s iOS 26 and Google’s Android 16 to make your own.`\
+https://nytimes.com/2025/09/24/technology/personaltech/apple-ios-26-google-android-16.html
 
