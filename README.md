@@ -1,3 +1,11 @@
+**Collapse of Subway Tunnel in Bangkok Creates Enormous Hole**\
+`The city’s governor said a burst water pipe in an unfinished subway extension appeared to have caused the collapse. A local official said no one was injured.`\
+https://nytimes.com/video/world/asia/100000010418275/bangkok-street-collapse-subway-tunnel-.html
+
+**What are Arsenal's options with Noni Madueke out injured?**\
+`Saka is only just returning from injury himself, so Arteta will not want to throw him in to play every game`\
+https://nytimes.com/athletic/6655139/2025/09/24/noni-madueke-arsenal-injury-options/
+
 **Tennis players send second letters to Grand Slams pushing for reform**\
 `The letter was sent to all four majors on July 30 and was signed by almost all of the world’s leading players.`\
 https://nytimes.com/athletic/6657340/2025/09/24/tennis-reform-letter-grand-slams/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6653052/2025/09/24/mlb-player-award-picks-mvp/
 **The Bengals' run game is historically bad. Can they find answers?**\
 `Bengals coaches look to get the offensive line to be more aggressive and physical to open holes for struggling Chase Brown.`\
 https://nytimes.com/athletic/6655880/2025/09/24/bengals-run-game-chase-brown-ted-karras/
-
-**Jayden Maiava's progress, Georgia Tech's CFP path and more: Don't sleep on these early storylines**\
-`Diego Pavia is back and better than ever. Virginia's offense is much improved with Chandler Morris in charge. Scott Frost is doing … OK!`\
-https://nytimes.com/athletic/6654497/2025/09/24/jayden-maiva-diego-pavia-college-football/
-
-**After summer sit-down, Severson hopes for new path forward with Blue Jackets**\
-`Severson hasn't lit up Columbus the way he or the team had hoped. This season, he wants to play his game.`\
-https://nytimes.com/athletic/6655361/2025/09/24/damon-severson-blue-jackets-defense-preseason/
 
