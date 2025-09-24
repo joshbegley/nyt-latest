@@ -1,3 +1,7 @@
+**As the Astros' collapse continues, an unproductive trade deadline looms large**\
+`Among AL lineups, only the Angels and Orioles have scored fewer runs since the trade deadline than the 187 produced by the Astros.`\
+https://nytimes.com/athletic/6657163/2025/09/24/astros-collapse-mlb-playoffs/
+
 **Here’s the latest.**\
 `By David Gelles`\
 https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/heres-the-latest
