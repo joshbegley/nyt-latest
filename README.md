@@ -1,3 +1,11 @@
+**Which NFL teams have the best front offices? Head coaches and execs cast their votes**\
+`We asked 29 coaches and executives for the "who" and the "why" when it comes to the league’s best in football operations.`\
+https://nytimes.com/athletic/6655181/2025/09/24/nfl-front-office-rankings-vote/
+
+**The New York Times International Edition in Print for Thursday, Sep. 25, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/09/24/todays-new-york-times-international-edition
+
 **Immigration Agents Collected U.S. Citizens’ DNA at Border Checkpoints**\
 `A report said DNA collected at checkpoints from about 2,000 Americans, mostly during the Biden administration, was sent to an F.B.I. database. Hundreds were not charged.`\
 https://nytimes.com/2025/09/24/us/us-border-patrol-dna.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6657278/2025/09/24/cardinals-vs-giants-stream-how-t
 **He May Be a ‘Slow Horse,’ but He’s in Peak Condition**\
 `Christopher Chung, who plays the I.T. whiz Roddy Ho on the Apple TV+ series “Slow Horses,” also works as a personal trainer. In the show’s new Season 5, he’s at the center of the action.`\
 https://nytimes.com/2025/09/24/arts/television/slow-horses-season-5-christopher-chung.html
-
-**Fantasy football best and worst matchups of Week 4: Jordan Love, Breece Hall for the win**\
-`KC Joyner offers the best and worst matchups of the week to help you with start/sit decisions, roster construction and more. `\
-https://nytimes.com/athletic/6654643/2025/09/24/fantasy-football-week-4-matchups-best-worst/
-
-**Trump Is Building the Blue Scare**\
-`The political theorist Corey Robin walks through the history of the Red Scare and the “fractured mirror” it is to Trump’s attack on the “radical left.”`\
-https://nytimes.com/2025/09/24/opinion/ezra-klein-podcast-corey-robin.html
 
