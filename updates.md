@@ -1,3 +1,11 @@
+**Here’s the very simple rule the actor Rainn Wilson uses to reconnect with nature.**\
+`By Claire Brown`\
+https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/heres-the-very-simple-rule-the-actor-rainn-wilson-uses-to-reconnect-with-nature
+
+**Becky Hammon says WNBA playoff physicality is 'out of control'**\
+`Despite a spike in calls — 41 in Game 2 compared with 27 in the opener — Hammon maintained that refs are still allowing too much contact.`\
+https://nytimes.com/athletic/6658666/2025/09/24/becky-hammond-wnba-officiating-physical/
+
 **Woakes may have played last England Test, says Rob Key**\
 `The fifth Test against India this summer could be the 36-year-old's final international appearance.`\
 https://nytimes.com/athletic/6658710/2025/09/24/chris-woakes-rob-key-ashes-test/
