@@ -1,3 +1,7 @@
+**Who is José Caballero? Yankees' 'super gritty' newcomer is obsessed with winning**\
+`Caballero is still unknown to many Yankees fans, but to former teammates and coaches, his instant impact in New York is hardly a surprise.`\
+https://nytimes.com/athletic/6656830/2025/09/24/jose-caballero-yankees-infielder-walk-off/
+
 **Collapse of Subway Tunnel in Bangkok Creates Enormous Hole**\
 `The city’s governor said a burst water pipe in an unfinished subway extension appeared to have caused the collapse. A local official said no one was injured.`\
 https://nytimes.com/video/world/asia/100000010418275/bangkok-street-collapse-subway-tunnel-.html
