@@ -1,3 +1,27 @@
+**Australian Businessman Challenges Trump on Climate Change**\
+`Andrew Forrest, the executive chairman of the mining company Fortescue, invited President Trump to see the damage Australia is experiencing as the planet heats up.`\
+https://nytimes.com/video/climate/100000010418998/climate-conference-andrew-forrest-trump.html
+
+**Tom Brady responds to conflict of interest concerns, blames 'paranoia and distrust'**\
+`While some coaches have said Brady's dual role is not a big deal, others have voiced concern about an unfair advantage.`\
+https://nytimes.com/athletic/6658417/2025/09/24/tom-brady-conflict-interest-fox-raiders-nfl/
+
+**A Diminished Social Security Work Force, and Its Customers, Feel the Strain**\
+`After this year’s staffing cuts, some people wait for hours, others sail through. But overburdened field office workers carry the weight.`\
+https://nytimes.com/2025/09/24/business/social-security-customer-service.html
+
+**Microsoft and Google Say They Remain Committed to Climate Goals**\
+`Speaking at The New York Times’s Climate Forward event, the chief sustainability officers of Microsoft and Google said that their goals to achieve net-zero emissions or better by 2030 are still achievable.`\
+https://nytimes.com/video/climate/100000010418895/microsoft-google-climate-goals.html
+
+**Building The Beast: Oregon, Penn State set for NFL prospect showcase Saturday**\
+`Quarterbacks command the spotlight, so it’s no surprise the main attractions on Saturday are Oregon’s Dante Moore and PSU’s Drew Allar.`\
+https://nytimes.com/athletic/6656828/2025/09/24/building-the-beast-oregon-penn-state-set-for-nfl-prospect-showcase-saturday/
+
+**An Unproven Link to Autism’s Cause**\
+`Readers respond to President Trump’s assertions about autism and acetaminophen. Also: Robert Redford and Paul Newman.`\
+https://nytimes.com/2025/09/24/opinion/autism-trump-kennedy.html
+
 **Giants' Brian Daboll makes Jaxson Dart promotion official: 'It was my decision'**\
 `Russell Wilson will serve as the Giants' No. 2 quarterback behind Dart. `\
 https://nytimes.com/athletic/6658280/2025/09/24/jaxson-dart-giants-brian-daboll-starting-quarterback/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6657041/2025/09/24/nfl-week-4-confidence-picks-bill
 **Her country is sinking. Here’s what she’s asking from the rest of the world.**\
 `By Claire Brown`\
 https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/her-country-is-sinking-heres-what-shes-asking-from-the-rest-of-the-world
-
-**Germany Woos Indian Workers Spooked by U.S. Visa Changes**\
-`Selling the prospect of high wages and stable migration rules, Germany’s ambassador to India makes a pitch to skilled Indian workers.`\
-https://nytimes.com/2025/09/24/business/germany-india-skilled-workers-visa.html
-
-**Roger Goodell signals NFL’s interest in re-doing TV deals in 2026**\
-`The most intriguing question, says Andrew Marchand, is how the NFL will slice and dice its TV packages to match network interest.`\
-https://nytimes.com/athletic/6658622/2025/09/24/roger-goodell-nfl-tv-rights-2026/
-
-**A Federal Shutdown May Be Imminent. How Would It Affect the Economy?**\
-`Congress and the White House have days to fund the government and avert a disruptive and potentially costly lapse in funding.`\
-https://nytimes.com/2025/09/24/us/politics/government-shutdown-us-economy.html
-
-**Terry McLaurin will miss practice with quad injury; Jayden Daniels will participate**\
-`Should McLaurin be ruled out against the Falcons in Week 4, it would be his first missed game since Week 16 of the 2020 season.`\
-https://nytimes.com/athletic/6656534/2025/09/24/terry-mclaurin-quad-injury-falcons/
-
-**Scoop City: Meet the NFL's newest starting QB**\
-`What's next for Dart, the Giants' latest starting quarterback, The Athletic's NFL front office rankings and Mike Sando on Russell Wilson`\
-https://nytimes.com/athletic/6658595/2025/09/24/giants-offense-with-jaxson-dart-scoop-city-nfl/
-
-**An Australian magnate’s challenge to Trump: ‘Come see what’s happening to my land.’**\
-`By Claire Brown and Lisa Friedman`\
-https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/an-australian-magnates-challenge-to-trump-come-see-whats-happening-to-my-land
 
