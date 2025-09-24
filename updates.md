@@ -1,3 +1,19 @@
+**Three People Shot at Dallas ICE Facility**\
+`The circumstances of the shooting were not yet clear. Federal authorities said there were “multiple injuries and fatalities.”`\
+https://nytimes.com/live/2025/09/24/us/dallas-ice-shooting
+
+**Seven thoughts on the Commanders, including how the offense changed in Week 3**\
+`Here are some thoughts on the Commanders’ impressive win over the Raiders and what they're facing next with a banged-up roster.`\
+https://nytimes.com/athletic/6657694/2025/09/24/commanders-offense-mariota-kingsbury/
+
+**A Statue of Trump and Epstein Holding Hands Briefly Appears on the National Mall**\
+`The United States Park Polce said it had removed the statue, which included lines from President Trump’s birthday message to Jeffrey Epstein, the deceased sex offender.`\
+https://nytimes.com/2025/09/24/us/politics/trump-epstein-statue-dc-national-mall.html
+
+**Here’s the latest.**\
+`The circumstances of the shooting were not yet clear. Federal authorities said there were “multiple injuries and fatalities.”`\
+https://nytimes.com/live/2025/09/24/us/dallas-ice-shooting/ice-dallas-shooting
+
 **Multiple People Wounded in Shooting at Dallas ICE Facility**\
 `The circumstances of the shooting were not yet clear. Federal authorities said there were “multiple injuries and fatalities.”`\
 https://nytimes.com/2025/09/24/us/ice-dallas-shooting.html
