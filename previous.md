@@ -1,41 +1,40 @@
-**Wounded Gazan Children Flown to Abu Dhabi for Treatment**\
-`A recent flight to the United Arab Emirates from Israel carried 155 Palestinians in need of medical treatment, most of them children. It was the latest in a string of evacuations facilitated by the Emirates and the World Health Organization.`\
-https://nytimes.com/video/world/middleeast/100000010375764/evacuation-flight-gaza-injured.html
+**College football Week 5 streaming guide: Oregon-Penn State, Bama-Georgia, sleeper games**\
+`Week 5 of the college football season serves up a top-six battle between Oregon and Penn State, plus conference clashes and sleeper games.`\
+https://nytimes.com/athletic/6655479/2025/09/24/alabama-georgia-oregon-penn-state-college-football-how-to-watch/
 
-**They're from here, there and everywhere: How Team Europe has evolved**\
-`"It’s something that happens without us being totally conscious of it or worried about it. It’s organic.”`\
-https://nytimes.com/athletic/6654993/2025/09/24/ryder-cup-2025-europe-where-from/
+**For Notre Dame's football/lacrosse dual-sport star, there's no offseason**\
+`Three years into his Notre Dame career, Faison is no longer a novelty in either sport he plays, he’s a necessity in both.`\
+https://nytimes.com/athletic/6655237/2025/09/24/jordan-faison-notre-dame-football-lacrosse/
 
-**The 2025-26 NHL prospects viewing guide: How to watch the CHL, NCAA, SHL and more**\
-`Bookmark this page as your primer to follow all of the leagues outside the NHL for the 2025-26 season.`\
-https://nytimes.com/athletic/6643845/2025/09/24/nhl-prospects-watch-ncaa-chl-guide/
+**Keith Law's non-voting picks for top year-end MLB player awards**\
+`Keith Law makes his hypothetical selections for AL and NL MVP and Cy Young, and AL Rookie of the Year.`\
+https://nytimes.com/athletic/6653052/2025/09/24/mlb-player-award-picks-mvp/
 
-**The Pulse: The Guardians are doing it**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6656180/2025/09/24/guardians-tigers-robot-umps-the-pulse/
+**The Bengals' run game is historically bad. Can they find answers?**\
+`Bengals coaches look to get the offensive line to be more aggressive and physical to open holes for struggling Chase Brown.`\
+https://nytimes.com/athletic/6655880/2025/09/24/bengals-run-game-chase-brown-ted-karras/
 
-**Relief, Grief and Pain as Gaza’s Wounded Are Flown to Safety**\
-`Hungry and injured passengers on a medical evacuation flight showed the toll of nearly two years of bombardment.`\
-https://nytimes.com/2025/09/24/world/middleeast/evacuation-flight-gaza-abu-dhabi.html
+**Jayden Maiava's progress, Georgia Tech's CFP path and more: Don't sleep on these early storylines**\
+`Diego Pavia is back and better than ever. Virginia's offense is much improved with Chandler Morris in charge. Scott Frost is doing … OK!`\
+https://nytimes.com/athletic/6654497/2025/09/24/jayden-maiva-diego-pavia-college-football/
 
-**How Dylan Cozens is dealing with the 'pressure' to succeed in Ottawa**\
-`Since arriving in Ottawa at the trade deadline, expectations for the centre making $7.1 million a year to perform well remain high.
-`\
-https://nytimes.com/athletic/6647290/2025/09/24/dylan-cozens-senators-sabres-nhl/
+**After summer sit-down, Severson hopes for new path forward with Blue Jackets**\
+`Severson hasn't lit up Columbus the way he or the team had hoped. This season, he wants to play his game.`\
+https://nytimes.com/athletic/6655361/2025/09/24/damon-severson-blue-jackets-defense-preseason/
 
-**'A blessing and a curse' – Denver Summit and Boston Legacy owners on expansion team building**\
-`Down to Business with Asli Pelit takes you through the fast-paced (and sometimes confusing) corporate side of women's soccer.`\
-https://nytimes.com/athletic/6653699/2025/09/24/nwsl-expansion-denver-summit-boston-legacy/
+**Wild player poll: Who will be most stylish and casual under NHL's new dress code?**\
+`The NHL this season will allow players to “dress in a manner consistent with contemporary fashion norms.” What does that mean for the Wild?`\
+https://nytimes.com/athletic/6655163/2025/09/24/wild-player-poll-dress-code/
 
-**Micah Parsons returns: Trade aftermath and what Cowboys fans say about it**\
-`Did Dallas get enough in return? Will fans boo or cheer Parsons on Sunday night? Emotions will be high when the Packers visit the Cowboys.`\
-https://nytimes.com/athletic/6656297/2025/09/24/micah-parsons-cowboys-packers-return-trade/
+**Chiesa on his Liverpool status: 'This season is different'**\
+`The 27-year-old only appeared 14 times in all competitions last season for Liverpool.`\
+https://nytimes.com/athletic/6657210/2025/09/24/federico-chiesa-liverpool-season/
 
-**When MLB adopts ABS challenge system next season who benefits and who loses?**\
-`For Patrick Bailey and other pitch-framing savants, the saving grace is that MLB isn't going full robot.`\
-https://nytimes.com/athletic/6656787/2025/09/24/major-league-baseball-abs-system-reaction-impact/
+**Sabres stock watch: Konsta Helenius and 5 others who helped their case in camp**\
+`Two preseason wins against the Columbus Blue Jackets have given Ruff a chance to evaluate players and prospects.`\
+https://nytimes.com/athletic/6656814/2025/09/24/sabres-preseason-stock-watch-helenius-mrtka/
 
-**Caleb Williams had his best game because the Bears' O-line gave him the gift of time**\
-`For the first time in his career, Williams wasn't sacked. The Cowboys defense hit him just once. He can thank his offensive line.`\
-https://nytimes.com/athletic/6655393/2025/09/24/bears-offensive-line-caleb-williams-cowboys/
+**From Joel Embiid to Quentin Grimes, 5 things to watch as the 76ers open camp**\
+`Heading into training camp, they are a team with a healthy amount of storylines. Or an unhealthy amount. It's a matter of perspective.`\
+https://nytimes.com/athletic/6653257/2025/09/24/joel-embiid-quentin-grimes-sixers-things-to-watch/
 
