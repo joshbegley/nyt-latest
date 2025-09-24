@@ -1,3 +1,11 @@
+**Phoenix Mercury secures OT win against Minnesota Lynx to even WNBA semifinals**\
+`Alyssa Thomas fueled the Mercury's second-half comeback.`\
+https://nytimes.com/athletic/6656595/2025/09/23/phoenix-mercury-overtime-minnesota-lynx-wnba-semifinals/
+
+**Moulton Readies Primary Challenge Against Markey in Massachusetts**\
+`The coming Senate collision in the deep-blue state will be a test of the Democratic Party’s appetite for generational change.`\
+https://nytimes.com/2025/09/23/us/politics/seth-moulton-ed-markey-senate.html
+
 **Trump at the U.N.: ‘Your Countries Are Going to Hell’**\
 `President Trump’s speech at the United Nations took an isolating stance. David Sanger, a White House correspondent for The New York Times, explains what that means for the United States.`\
 https://nytimes.com/video/us/politics/100000010416192/trump-at-the-un-your-countries-are-going-to-hell.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6656045/2025/09/23/reds-pirates-game-1-takeaways-nl
 **‘Alien: Earth’ Season 1 Finale Recap: Ghosts in the Machine**\
 `The hybrid kids have an important revelation about who should be afraid of whom. Just deserts will be served.`\
 https://nytimes.com/2025/09/23/arts/television/alien-earth-recap-season-1-finale.html
-
-**Suns asked employees to sign agreements meant to limit lawsuits: Sources**\
-`Over the last year, the Suns have faced five lawsuits from current and former employees, some alleging discrimination and harassment.`\
-https://nytimes.com/athletic/6656438/2025/09/23/suns-employees-agreements-limit-lawsuits/
-
-**From Poland’s leader, scathing criticism of Russian incursions in a ‘dangerous era of rivalry.’**\
-`By Lara Jakes and Pranav Baskar`\
-https://nytimes.com/live/2025/09/23/world/un-general-assembly-trump/poland-president-russia-ukraine
 
