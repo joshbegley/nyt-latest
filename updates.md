@@ -1,3 +1,11 @@
+**Zion Williamson key to stopping Pelicans from repeating history**\
+`It’s fairly obvious the Pelicans have no shot of staying afloat in the Western Conference if Williamson isn’t there to guide them.`\
+https://nytimes.com/athletic/6656114/2025/09/23/zion-williamson-pelicans-media-day-outlook/
+
+**Blue Jays designate Alek Manoah for assignment, activate Anthony Santander**\
+`At his peak, Manoah posted 196 2/3 innings for the 2022 team, earning MVP votes and finishing third in American League Cy voting.`\
+https://nytimes.com/athletic/6656176/2025/09/23/toronto-blue-jays-alek-manoah-dfa/
+
 **In a Sudden Shift, Trump Says Ukraine Can Win the War With Russia**\
 `President Trump’s pivot could give him room to distance himself from a conflict that he once promised to solve in days or weeks.`\
 https://nytimes.com/2025/09/23/us/politics/trump-russia-ukraine.html

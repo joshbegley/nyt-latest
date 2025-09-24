@@ -1,3 +1,11 @@
+**Zion Williamson key to stopping Pelicans from repeating history**\
+`It’s fairly obvious the Pelicans have no shot of staying afloat in the Western Conference if Williamson isn’t there to guide them.`\
+https://nytimes.com/athletic/6656114/2025/09/23/zion-williamson-pelicans-media-day-outlook/
+
+**Blue Jays designate Alek Manoah for assignment, activate Anthony Santander**\
+`At his peak, Manoah posted 196 2/3 innings for the 2022 team, earning MVP votes and finishing third in American League Cy voting.`\
+https://nytimes.com/athletic/6656176/2025/09/23/toronto-blue-jays-alek-manoah-dfa/
+
 **In a Sudden Shift, Trump Says Ukraine Can Win the War With Russia**\
 `President Trump’s pivot could give him room to distance himself from a conflict that he once promised to solve in days or weeks.`\
 https://nytimes.com/2025/09/23/us/politics/trump-russia-ukraine.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/09/23/world/un-general-assembly-trump/the-security
 **Claudia Cardinale, Actress Who Was ‘Italy’s Girlfriend,’ Is Dead at 87**\
 `A sex symbol with girl-next-door appeal, she rose to fame in the 1960s and starred in more than 150 films, including the Oscar-winning ‘8½’ and ‘The Leopard.’`\
 https://nytimes.com/2025/09/23/movies/claudia-cardinale-dead.html
-
-**Republican Who Has Criticized the Police Wins Major Union’s Endorsement**\
-`The Fraternal Order of Police in New Jersey endorsed Jack Ciattarelli for governor over his Democratic opponent, Representative Mikie Sherrill.`\
-https://nytimes.com/2025/09/23/nyregion/jack-ciattarelli-new-jersey-police-endorsement.html
-
-**Trump Pushes Unproven Link Between Tylenol and Autism**\
-`Top U.S. health officials urged pregnant women not to use acetaminophen, the active ingredient in Tylenol, claiming it could cause autism, though studies have been inconclusive. Azeen Ghorayshi, a science reporter for The New York Times, explains.`\
-https://nytimes.com/video/science/100000010414944/trump-pushes-unproven-link-between-tylenol-and-autism.html
 
