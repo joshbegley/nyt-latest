@@ -1,3 +1,11 @@
+**With Sobs and Doubts, Greenlandic Women Receive Apology for Forced Contraception**\
+`Some Greenlanders asked why an apology had not come decades earlier, and chalked up the timing to tensions over President Trump’s aim of annexing the island.`\
+https://nytimes.com/2025/09/24/world/europe/denmark-greenland-apology-birth-control.html
+
+**Judge Rebukes Trump Officials for Saying Mangione Is a Killer**\
+`They echoed the president’s characterization of Mr. Mangione, even though the judge had warned of endangering a fair trial.`\
+https://nytimes.com/2025/09/24/nyregion/luigi-mangione-statements-judge-explanation.html
+
 **The 9.28.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/09/24/the-92825-issue
@@ -25,12 +33,4 @@ https://nytimes.com/2025/09/24/us/politics/democrat-arizona-epstein-files.html
 **Abdul Gani Bhat Dies at 93; Kashmiri Separatist Championed Dialogue**\
 `Mr. Bhat, a scholar of Persian literature, was a rare and eloquent voice of moderation in Kashmir’s often militant separatist movement.`\
 https://nytimes.com/2025/09/24/world/asia/abdul-gani-bhat-kashmir-dead.html
-
-**This May Be the Easiest Way to Make Ratatouille**\
-`Topped with crispy, spiced chickpeas, this nontraditional sheet-pan ratatouille is a perfect place to use the last of summer’s produce.`\
-https://nytimes.com/2025/09/24/dining/how-to-make-easy-ratatouille.html
-
-**Now Arriving: A New Theory of In-Flight Turbulence**\
-`Physicists have devised a new model to account for the discomfort that airline passengers know all too well.`\
-https://nytimes.com/2025/09/24/science/physics-airplanes-turbulence.html
 
