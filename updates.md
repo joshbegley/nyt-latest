@@ -1,4 +1,8 @@
 **One century in Australia, six quicks and an alarming spin figure: England's Ashes squad by numbers**\
+`England's Ashes record Down Under since 2010-11 is miserable: played 15, won 0, lost 13. But what do the numbers say about Stokes' squad?`\
+https://nytimes.com/athletic/6655159/2025/09/24/england-ashes-squad-root-stokes-numbers/
+
+**One century in Australia, six quicks and an alarming spin figure: England's Ashes squad by numbers**\
 `England's Ashes record Down Under since 2010-11 is miserable: played 15, won 0, lost 13 - so what do the numbers say about Stokes' squad?`\
 https://nytimes.com/athletic/6655159/2025/09/24/england-ashes-squad-root-stokes-numbers/
 
