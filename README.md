@@ -1,3 +1,7 @@
+**This May Be the Easiest Way to Make Ratatouille**\
+`Topped with crispy, spiced chickpeas, this nontraditional sheet-pan ratatouille is a perfect place to use the last of summer’s produce.`\
+https://nytimes.com/2025/09/24/dining/how-to-make-easy-ratatouille.html
+
 **Now Arriving: A New Theory of In-Flight Turbulence**\
 `Physicists have devised a new model to account for the discomfort that airline passengers know all too well.`\
 https://nytimes.com/2025/09/24/science/physics-airplanes-turbulence.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/24/style/rachel-scott-wedding-elliot-smith.html
 **What Is the Dallas ICE Field Office?**\
 `The building that was targeted by a gunman is part office building and part processing center for immigrant detainees.`\
 https://nytimes.com/2025/09/24/us/dallas-texas-ice-facility.html
-
-**The D.C. Region Has Faced an Outsized Toll From Trump’s Policies**\
-`With the mass layoffs and cancellations of thousands of federal grants and contracts, the region has taken a disproportionate hit.`\
-https://nytimes.com/2025/09/24/us/politics/trump-cuts-washington-dc.html
 
