@@ -26,7 +26,7 @@ https://nytimes.com/2025/09/24/us/politics/sec-paul-atkins-devon-archer-trump.ht
 `"That was awesome, a great team win," Nolan Arenado said. "It was a really crazy game."`\
 https://nytimes.com/athletic/6656781/2025/09/24/cardinals-win-mlb-wild-card/
 
-**The Blackhawks want Colton Dach to be the power forward they need**\
+**Blackhawks want Colton Dach to be the power forward they need**\
 `“I like to be physical. I like to play with an edge. I like to chirp," Dach said recently.`\
 https://nytimes.com/athletic/6656950/2025/09/24/blackhawks-colton-dach-nhl-roster/
 

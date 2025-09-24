@@ -1,3 +1,7 @@
+**Why is Gianfranco Zola driving a buggy with Europe's Ryder Cup team?**\
+`The ex-Italy international footballer is assisting countryman Francesco Molinari, Team Europe's vice-captain at Bethpage this week`\
+https://nytimes.com/athletic/6657852/2025/09/24/gianfranco-zola-ryder-cup-buggy/
+
 **Do You Love the W.N.B.A.? Tell Us About Paying for Games.**\
 `The league is nearing the climax of another season of rapid growth. We want to know how that has affected the fan experience.`\
 https://nytimes.com/2025/09/24/your-money/wnba-personal-finance.html
