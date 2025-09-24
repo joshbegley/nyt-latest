@@ -1,3 +1,7 @@
+**Arizona Seventh Congressional District Special Election Results**\
+`Get live results and maps from the 2025 Arizona special election.`\
+https://nytimes.com/interactive/2025/09/23/us/elections/results-arizona-us-house-7-special.html
+
 **Storm Rips Part of Roof Off Oklahoma Hospital, Forcing Evacuations**\
 `Some homes in the city of Sallisaw, in the eastern part of the state, were damaged, as were trees, power lines and poles, officials said.`\
 https://nytimes.com/2025/09/23/us/oklahoma-storms-damage.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6656052/2025/09/23/sec-2026-2029-football-opponents
 **Zion Williamson key to stopping Pelicans from repeating history**\
 `It’s fairly obvious the Pelicans have no shot of staying afloat in the Western Conference if Williamson isn’t there to guide them.`\
 https://nytimes.com/athletic/6656114/2025/09/23/zion-williamson-pelicans-media-day-outlook/
-
-**Blue Jays designate Alek Manoah for assignment, activate Anthony Santander**\
-`At his peak, Manoah posted 196 2/3 innings for the 2022 team, earning MVP votes and finishing third in American League Cy voting.`\
-https://nytimes.com/athletic/6656176/2025/09/23/toronto-blue-jays-alek-manoah-dfa/
 
