@@ -1,3 +1,7 @@
+**Daniel Jones card prices on the rise as questions mount around other QBs**\
+`Aaron Rodgers cards are also benefitting from his New York departure`\
+https://nytimes.com/athletic/6658488/2025/09/24/daniel-jones-cards/
+
 **Trump’s dismissal of climate change puts U.S. at risk, former Biden official says.**\
 `By Brad Plumer`\
 https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/trumps-dismissal-of-climate-change-puts-us-at-risk-former-biden-official-says
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010418701/dallas-ice-shooting.html
 **For First Time in 58 Years, a Syrian Leader Will Address the General Assembly**\
 `When President Ahmed al-Shara speaks at the United Nations in New York today, he will seek to present an updated picture of his turbulent nation.`\
 https://nytimes.com/2025/09/24/world/syria-president-un-general-assembly.html
-
-**Google and Microsoft executives say their climate goals are still achievable.**\
-`By Claire Brown`\
-https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/google-and-microsoft-executives-say-their-climate-goals-are-still-achievable
 
