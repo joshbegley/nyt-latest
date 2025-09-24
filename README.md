@@ -1,3 +1,7 @@
+**Woman, 50, Killed by Midtown Manhattan Driver in Hit-and-Run Crash**\
+`A driver hit the woman and her husband, both pedestrians, near Bryant Park on Wednesday afternoon. Her husband, 55, was injured and was in stable condition at a hospital, the police said.`\
+https://nytimes.com/2025/09/24/nyregion/midtown-hit-run-woman-killed.html
+
 **Federal Judge Declines to Reinstate Government Watchdogs Fired by Trump**\
 `The judge ruled that President Trump had clearly violated the law, but that the impact did not rise to an “irreparable harm” that would justify her intervention.`\
 https://nytimes.com/2025/09/24/us/politics/trump-government-watchdogs.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010415398/trump-is-building-the-blue-sca
 **The Danger of Vengeance After the Kirk Shooting**\
 `The political theorist Corey Robin examines the role of vengeance in the right’s response to the assassination of Charlie Kirk.`\
 https://nytimes.com/video/opinion/100000010415400/the-danger-of-vengeance-after-the-kirk-shooting.html
-
-**Trump says ICE was the target, but immigrants are feeling unsafe.**\
-`By Edgar Sandoval`\
-https://nytimes.com/live/2025/09/24/us/dallas-ice-shooting/ice-dallas-immigrants
 

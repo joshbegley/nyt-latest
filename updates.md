@@ -1,3 +1,7 @@
+**Federal Judge Declines to Reinstate Government Watchdogs Fired by Trump**\
+`The judge ruled that President Trump had clearly violated the law, but that the impact did not rise to an “irreparable harm” that would justify her intervention.`\
+https://nytimes.com/2025/09/24/us/politics/trump-government-watchdogs.html
+
 **Richard Moe, 88, Dies; Led the National Trust for Historic Preservation**\
 `After serving as an aide to Vice President Walter Mondale, he spent 17 years at the forefront of the fight to save numerous endangered landmarks.`\
 https://nytimes.com/2025/09/24/us/politics/richard-moe-dead.html
