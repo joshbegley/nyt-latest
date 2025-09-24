@@ -1,3 +1,7 @@
+**LaCava: 'I'm not looking for any controversy' at this Ryder Cup**\
+`LaCava, Patrick Cantlay's caddie, had words with McIlroy and Shane Lowry after his 18th green celebration at Marco Simone.`\
+https://nytimes.com/athletic/6659104/2025/09/24/ryder-cup-joe-lacava-rory-mcilroy-caddie-hat/
+
 **With Sobs and Doubts, Greenlandic Women Receive Apology for Forced Contraception**\
 `Some Greenlanders asked why an apology had not come decades earlier, and chalked up the timing to tensions over President Trump’s aim of annexing the island.`\
 https://nytimes.com/2025/09/24/world/europe/denmark-greenland-apology-birth-control.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/09/24/weather/hurricane-forecast-humberto-imelda.html
 **Arizona Democrat’s Win Clinches Bid to Force Epstein Files Vote**\
 `Adelita Grijalva’s victory in a special election for a House seat in Arizona appears to give backers of a so-called discharge petition enough signatures to compel action.`\
 https://nytimes.com/2025/09/24/us/politics/democrat-arizona-epstein-files.html
-
-**Abdul Gani Bhat Dies at 93; Kashmiri Separatist Championed Dialogue**\
-`Mr. Bhat, a scholar of Persian literature, was a rare and eloquent voice of moderation in Kashmir’s often militant separatist movement.`\
-https://nytimes.com/2025/09/24/world/asia/abdul-gani-bhat-kashmir-dead.html
 
