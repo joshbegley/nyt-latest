@@ -1,5 +1,5 @@
 **Typhoon Ragasa Floods Hong Kong**\
-`Typhoon Ragasa, which left at least a dozen dead and over a hundred missing in Taiwan, skirted Hong Kong but brought torrential rain to the city.`\
+`Typhoon Ragasa, which caused death and destruction in Taiwan, skirted Hong Kong but brought torrential rain to the city.`\
 https://nytimes.com/video/world/asia/100000010417960/typhoon-ragasa-hong-kong-china.html
 
 **Which NFL teams have the best front offices? Head coaches and execs cast their votes**\
