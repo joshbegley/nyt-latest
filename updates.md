@@ -1,3 +1,12 @@
+**They're from here, there and everywhere: How Team Europe has evolved**\
+`"It’s something that happens without us being totally conscious of it or worried about it. It’s organic.”`\
+https://nytimes.com/athletic/6654993/2025/09/24/ryder-cup-2025-europe-where-from/
+
+**How Dylan Cozens is dealing with the 'pressure' to succeed in Ottawa**\
+`Since arriving in Ottawa at the trade deadline, expectations for the centre making $7.1 million a year to perform well remain high.
+`\
+https://nytimes.com/athletic/6647290/2025/09/24/dylan-cozens-senators-sabres-nhl/
+
 **How Dylan Cozens is dealing with the 'pressure' to succeed in Ottawa**\
 `Since arriving in Ottawa at the trade deadline, expectations for the centre making $7.1 million a year to perform well remain high.
 `\
