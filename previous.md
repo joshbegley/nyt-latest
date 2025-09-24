@@ -1,3 +1,23 @@
+**NJ PBS, New Jersey’s Public Television Network, May Shut Down Next Year**\
+`The announcement of the possible closure comes as federal funding cuts have hurt public broadcasting stations across the United States.`\
+https://nytimes.com/2025/09/24/nyregion/nj-pbs-trump-funding-cuts.html
+
+**Syria’s President Makes His Debut on the World Stage**\
+`In his first U.N. address, Ahmed al-Shara, a former rebel, highlighted his efforts to rebuild Syria and its institutions.`\
+https://nytimes.com/2025/09/24/world/syria-un-ukraine-iran-china-climate.html
+
+**Akiko Tsuruga, Inventive Jazz Organist, Dies at 58**\
+`Known for her vast sonic palette, she made her mark playing with the saxophone master Lou Donaldson and also had a prolific solo career.`\
+https://nytimes.com/2025/09/24/arts/music/akiko-tsuruga-dead.html
+
+**A Flash of Anger on India’s Delicate Border With China**\
+`Protesters demanding statehood for Ladakh, a strategically important Himalayan region, clashed with the police.`\
+https://nytimes.com/2025/09/24/world/asia/ladakh-protests-india.html
+
+**Climate action is the ‘entry fee’ to credibility, Prime Minister Anthony Albanese of Australia says.**\
+`By Claire Brown`\
+https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/climate-action-is-the-entry-fee-to-credibility-prime-minister-anthony-albanese-of-australia-says
+
 **Senator Schatz says Democrats should drop ‘planetary emergency’ talk and focus on the cost of living.**\
 `By Lisa Friedman`\
 https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/senator-schatz-says-democrats-should-drop-planetary-emergency-talk-and-focus-on-the-cost-of-living
@@ -6,8 +26,8 @@ https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/senator-s
 `Jordan Clarkson and Guerschon Yabusele spoke for the first time on Wednesday since joining the Knicks. `\
 https://nytimes.com/athletic/6658963/2025/09/24/knicks-bench-jordan-clarkson-guerschon-yabusele/
 
-**Mel Taub, Creator of a Pun-Loving, Anagram-Making Puzzle, Dies at 97**\
-`He was the main whiz behind a crossword puzzle variation for The Times, whose readers loved his sometimes groan-inducing wordplay. (Try one yourself.)`\
+**Mel Taub, Creator of a Pun-Loving Puzzle, Is Dead at 97**\
+`He was the main whiz behind a crossword  variation for The Times, whose readers loved his anagrams and sometimes groan-inducing wordplay. (Try one yourself.)`\
 https://nytimes.com/2025/09/24/crosswords/mel-taub-dead.html
 
 **Denmark Apologizes to Greenlandic Women Over Forced Contraception**\
@@ -17,24 +37,4 @@ https://nytimes.com/video/world/europe/100000010419556/denmark-greenland-forced-
 **President Trump, Your Aid Cuts Are Costing Lives and Money**\
 `The dismantling of U.S.A.I.D. is leading to the squandering of taxpayer dollars, as well as of large numbers of lives.`\
 https://nytimes.com/2025/09/24/opinion/trump-aid-cuts.html
-
-**Micah Parsons on Dallas return: 'No hard feelings there, at least from me'**\
-`Parsons is still close with his former Cowboys teammates and expects a "great atmosphere" on Monday night.`\
-https://nytimes.com/athletic/6659324/2025/09/24/packers-micah-parsons-return-to-dallas/
-
-**Tracking Tropical Storm Humberto**\
-`See the likely path and wind arrival times for Humberto`\
-https://nytimes.com/interactive/2025/weather/humberto-map-path-tracker.html
-
-**The Briefing: Port Vale 0 Arsenal 2 - Eze's 'special' first goal, Arteta's Saka balancing act, importance of a cup run**\
-`Forward finished off a wonderful team move while some players got valuable minutes in win over third-tier hosts. We break down the action...`\
-https://nytimes.com/athletic/6658021/2025/09/24/arsenal-carabao-cup-port-vale/
-
-**Newsom And Wright Give Diverging Takes on Trump’s Climate Policy**\
-`Speaking at The New York Times’s Climate Forward conference, Gov. Gavin Newsom of California slammed President Trump’s comments on climate change at the United Nations, while Energy Secretary Chris Wright said Trump should get the “hero of the climate” award.`\
-https://nytimes.com/video/climate/100000010419580/newsom-climate-trump-wright.html
-
-**Music Festival in Utah Makes Nature Its Venue**\
-`Floating along the Colorado River, the Moab Music Festival offers some of the purest, most intense listening experiences around.`\
-https://nytimes.com/video/arts/music/100000010419702/moab-music-festival-colorado-river.html
 
