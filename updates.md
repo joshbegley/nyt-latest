@@ -1,3 +1,7 @@
+**Jazz rookie Ace Bailey parts ways with agent: Sources**\
+`Agent Omar Cooper had advised the rookie not to work out for teams with top-five picks.`\
+https://nytimes.com/athletic/6656696/2025/09/23/ace-bailey-agent-jazz-rookie/
+
 **G.O.P. Majority in House Will Shrink After Democrat’s Victory in Arizona**\
 `Adelita Grijalva won a special election on Tuesday in a reliably blue patch of her swing state to fill the seat held by her father before his death this year.`\
 https://nytimes.com/2025/09/23/us/politics/arizona-election-adelita-grijalva-democrat.html
