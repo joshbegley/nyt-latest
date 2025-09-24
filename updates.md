@@ -1,3 +1,15 @@
+**‘Alien: Earth’ Season 1 Finale Recap: Ghosts in the Machine**\
+`The hybrid kids have an important revelation about who should be afraid of whom. Just deserts will be served.`\
+https://nytimes.com/2025/09/23/arts/television/alien-earth-recap-season-1-finale.html
+
+**Suns asked employees to sign agreements meant to limit lawsuits: Sources**\
+`Over the last year, the Suns have faced five lawsuits from current and former employees, some alleging discrimination and harassment.`\
+https://nytimes.com/athletic/6656438/2025/09/23/suns-employees-agreements-limit-lawsuits/
+
+**From Poland’s leader, scathing criticism of Russian incursions in a ‘dangerous era of rivalry.’**\
+`By Lara Jakes and Pranav Baskar`\
+https://nytimes.com/live/2025/09/23/world/un-general-assembly-trump/poland-president-russia-ukraine
+
 **From Poland’s leader, scathing criticism of Russian incursions in a “dangerous era of rivalry.”**\
 `By Lara Jakes and Pranav Baskar`\
 https://nytimes.com/live/2025/09/23/world/un-general-assembly-trump/poland-president-russia-ukraine
