@@ -1,3 +1,7 @@
+**Sister Jean, who cheered on Loyola Chicago's Final Four run, retires at 106**\
+`Sister Jean became a national symbol of the Ramblers' feel-good underdog story in 2018.`\
+https://nytimes.com/athletic/6657866/2025/09/24/sister-jean-loyola-chicago-retires/
+
 **Israel-Premier Tech title sponsor calls for removal of 'Israel' from cycling team name**\
 `Protests directed at the cycling team contributed to three stages of the Vuelta being neutralised due to rider safety concerns.`\
 https://nytimes.com/athletic/6657465/2025/09/24/israel-premier-tech-vuelta-protests-sponsor/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/al-gore-d
 **Should I Leave My 3 Sons Different Amounts in My Will?**\
 `A father is considering leaving more of his estate to his youngest son, anticipating that his elder sons will inherit a substantial amount from their mother.`\
 https://nytimes.com/2025/09/24/style/estate-inheritance-children-unequal-bequests.html
-
-**Here’s the latest.**\
-`The circumstances of the shooting were not yet clear. Federal authorities said there were “multiple injuries and fatalities.”`\
-https://nytimes.com/live/2025/09/24/us/dallas-ice-shooting/ice-dallas-shooting
 
