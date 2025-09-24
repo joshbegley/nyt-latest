@@ -1,3 +1,7 @@
+**Immigration Agents Collected U.S. Citizens’ DNA at Border Checkpoints**\
+`A report said DNA collected at checkpoints from about 2,000 Americans, mostly during the Biden administration, was sent to an F.B.I. database. Hundreds were not charged.`\
+https://nytimes.com/2025/09/24/us/us-border-patrol-dna.html
+
 **How to watch Astros at Athletics: Time, TV, streaming for September 24**\
 `Find out how to watch the Houston Astros play the Athletics, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6657293/2025/09/24/astros-vs-athletics-stream-how-to-watch-sept-24/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6654643/2025/09/24/fantasy-football-week-4-matchups
 **Trump Is Building the Blue Scare**\
 `The political theorist Corey Robin walks through the history of the Red Scare and the “fractured mirror” it is to Trump’s attack on the “radical left.”`\
 https://nytimes.com/2025/09/24/opinion/ezra-klein-podcast-corey-robin.html
-
-**Despite Trump, the World Isn’t Slowing on Climate, E.U. Official Says**\
-`Still, European nations are struggling to agree on how much to cut their greenhouse gas emissions, the E.U.’s climate commissioner said in an interview.`\
-https://nytimes.com/2025/09/24/climate/europe-emissions-targets-united-nations.html
 
