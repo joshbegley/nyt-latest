@@ -3,7 +3,7 @@
 https://nytimes.com/2025/09/23/us/politics/arizona-election-adelita-grijalva-democrat.html
 
 **Jazz rookie Ace Bailey parts ways with agent: Sources**\
-`Agent Omar Cooper had advised rookie not to work out for teams with top-five picks.`\
+`Agent Omar Cooper had advised the rookie not to work out for teams with top-five picks.`\
 https://nytimes.com/athletic/6656696/2025/09/23/ace-bailey-agent-jazz-rookie/
 
 **Aid Flotilla Headed for Gaza Says It’s Under Drone Attack**\

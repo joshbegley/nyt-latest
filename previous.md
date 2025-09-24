@@ -1,3 +1,11 @@
+**G.O.P. Majority in House Will Shrink After Democrat’s Victory in Arizona**\
+`Adelita Grijalva won a special election on Tuesday in a reliably blue patch of her swing state to fill the seat held by her father before his death this year.`\
+https://nytimes.com/2025/09/23/us/politics/arizona-election-adelita-grijalva-democrat.html
+
+**Jazz rookie Ace Bailey parts ways with agent: Sources**\
+`Agent Omar Cooper had advised rookie not to work out for teams with top-five picks.`\
+https://nytimes.com/athletic/6656696/2025/09/23/ace-bailey-agent-jazz-rookie/
+
 **Aid Flotilla Headed for Gaza Says It’s Under Drone Attack**\
 `The vessels were aiming to deliver humanitarian aid to Gaza. The Israelis have asked that the aid be given to them to distribute.`\
 https://nytimes.com/2025/09/23/world/middleeast/gaza-aid-flotilla-drone-attack.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/23/crosswords/daily-puzzle-2025-09-24.html
 **Dodgers' Roki Sasaki to pitch out of bullpen when he's activated Wednesday**\
 `It’s still not a lock that Sasaki will be on the postseason roster when the Dodgers open the National League Wild Card Series.`\
 https://nytimes.com/athletic/6656565/2025/09/23/los-angeles-dodgers-roki-sasaki-return/
-
-**Guardians vs. Tigers: Wild rally vs. Tarik Skubal forges tie atop AL Central**\
-`The Guardians have completely erased a 10-game lead that the Tigers held as recently as Sept. 6.`\
-https://nytimes.com/athletic/6656155/2025/09/23/guardians-tigers-takeaways-game-1-al-central-battle/
-
-**Reds vs. Pirates: How does Cincinnati's loss affect NL wild-card picture?**\
-`Before the game Tuesday, the Reds and Mets were tied for the final NL wild-card spot with records of 80-76.`\
-https://nytimes.com/athletic/6656045/2025/09/23/reds-pirates-game-1-takeaways-nl-wild-card-race/
 
