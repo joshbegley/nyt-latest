@@ -1,3 +1,15 @@
+**Arizona Seventh Congressional District Special Election Results**\
+`Get live results and maps from the 2025 Arizona special election.`\
+https://nytimes.com/interactive/2025/09/23/us/elections/results-arizona-us-house-7-special.html
+
+**Storm Rips Part of Roof Off Oklahoma Hospital, Forcing Evacuations**\
+`Some homes in the city of Sallisaw, in the eastern part of the state, were damaged, as were trees, power lines and poles, officials said.`\
+https://nytimes.com/2025/09/23/us/oklahoma-storms-damage.html
+
+**Astros' Jeremy Peña misses second straight pivotal game with oblique injury**\
+`Houston entered Tuesday three games out of first place in the American League West. `\
+https://nytimes.com/athletic/6656161/2025/09/23/houston-astros-jeremy-pena-oblique-injury/
+
 **Trump’s U-Turn on Ukraine Was a Surprise, Zelensky Says**\
 `The Ukrainian leader said in an interview on Fox News that Russia’s unwillingness to take steps toward peace had impacted the American president.`\
 https://nytimes.com/2025/09/23/world/trump-ukraine-zelensky.html
