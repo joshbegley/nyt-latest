@@ -1,3 +1,7 @@
+**Do You Love the W.N.B.A.? Tell Us About Paying for Games.**\
+`The league is nearing the climax of another season of rapid growth. We want to know how that has affected the fan experience.`\
+https://nytimes.com/2025/09/24/your-money/wnba-personal-finance.html
+
 **Does the environmental movement need to change its strategy?**\
 `By Claire Brown`\
 https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/does-the-environmental-movement-need-to-change-its-strategy

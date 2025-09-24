@@ -1,3 +1,7 @@
+**Why is Gianfranco Zola driving a buggy with Europe's Ryder Cup team?**\
+`The ex-Italy international footballer is assisting countryman Francesco Molinari, Team Europe's vice-captain at Bethpage this week`\
+https://nytimes.com/athletic/6657852/2025/09/24/gianfranco-zola-ryder-cup-buggy/
+
 **Do You Love the W.N.B.A.? Tell Us About Paying for Games.**\
 `The league is nearing the climax of another season of rapid growth. We want to know how that has affected the fan experience.`\
 https://nytimes.com/2025/09/24/your-money/wnba-personal-finance.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/24/world/europe/trump-war-ukraine-reaction.html
 **Can global climate action happen without the U.S.?**\
 `By Claire Brown`\
 https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/can-global-climate-action-happen-without-the-us
-
-**Olabe replacing Monchi a 'normal transition' for Villa, Emery says**\
-`The former president of football operations had been at the club for two years before being replaced on Tuesday.`\
-https://nytimes.com/athletic/6657868/2025/09/24/monchi-aston-villa-unai-emery-normal-transition/
 
