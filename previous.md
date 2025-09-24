@@ -1,3 +1,15 @@
+**Trump Is Building the Blue Scare**\
+`Since Charlie Kirk’s assassination, the Trump administration has been threatening to retaliate against the “radical left.” This response has echoes in American history — in the Red Scare.`\
+https://nytimes.com/video/opinion/100000010415398/trump-is-building-the-blue-scare.html
+
+**The Danger of Vengeance After the Kirk Shooting**\
+`The political theorist Corey Robin examines the role of vengeance in the right’s response to the assassination of Charlie Kirk.`\
+https://nytimes.com/video/opinion/100000010415400/the-danger-of-vengeance-after-the-kirk-shooting.html
+
+**Trump says ICE was the target, but immigrants are feeling unsafe.**\
+`By Edgar Sandoval`\
+https://nytimes.com/live/2025/09/24/us/dallas-ice-shooting/ice-dallas-immigrants
+
 **Ex-Minnesota Lawmaker Gets Six Months in Jail for Burglary**\
 `Nicole Mitchell was found guilty of breaking into her stepmother’s home. She resigned from the State Senate after her conviction, briefly threatening the Democrats’ slim majority.`\
 https://nytimes.com/2025/09/24/us/minnesota-nicole-mitchell-sentenced-burglary.html
@@ -10,11 +22,11 @@ https://nytimes.com/2025/09/24/us/lawsuit-washington-plane-crash.html
 `On social media accounts, the suspect, Joshua Jahn, talked about video games, cars, “South Park” and marijuana — but not so much about politics.`\
 https://nytimes.com/2025/09/24/us/dallas-ice-shooting-suspect.html
 
-**Jimmy Kimmel’s Return Draws 6.2 Million Viewers, Rating Show**\
+**Jimmy Kimmel’s Return Draws 6.2 Million Viewers, Ratings Show**\
 `The first episode of “Jimmy Kimmel Live!” since it was suspended last week by Disney attracted nearly four times its average viewership.`\
 https://nytimes.com/2025/09/24/business/media/jimmy-kimmel-ratings.html
 
-**U.S. and Russian officials meet at the U.N., one day after Trump’s unexpected shift on Ukraine.**\
+**U.S. and Russian Officials Meet at U.N. After Trump’s Unexpected Shift on Ukraine**\
 `American and Russian officials discussed the need for a resolution to the war, according to statements from each side. But their descriptions of the gathering starkly contrasted.`\
 https://nytimes.com/2025/09/24/us/politics/rubio-us-lavrov-russia-meet.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/24/style/tiny-modern-love-stories-i-was-taken-aback-
 **A Shooter Opened Fire on a Dallas ICE Facility**\
 `Also, we answer your vaccine questions. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/09/24/briefing/ice-shooting-vaccine-questions-answered.html
-
-**How Trump Strikes Radically Different Tones in Public and Private**\
-`At the United Nations, world leaders got to see both sides of President Trump: bellicose in public and far more conciliatory in private.`\
-https://nytimes.com/2025/09/24/us/politics/trump-united-nations-tones.html
-
-**Why Did Apple Get Cold Feet About ‘Savant’?**\
-`The company postpones a drama about domestic terrorism on its Apple TV+ streaming service.`\
-https://nytimes.com/2025/09/24/arts/television/the-savant-apple-tv-plus.html
-
-**Tropical Storm Humberto Forms, and Another One Could Be On the Way**\
-`It’s too soon to know how Humberto could affect land. Another potential storm nearby is making for a complicated forecast.`\
-https://nytimes.com/live/2025/09/24/weather/tropical-storm-humberto
 
