@@ -1,3 +1,15 @@
+**Which NFL teams have the best front offices? Head coaches and execs cast their votes**\
+`We asked 29 coaches and executives for the "who" and the "why" when it comes to the league’s best in football operations.`\
+https://nytimes.com/athletic/6655181/2025/09/24/nfl-front-office-rankings-vote/
+
+**The New York Times International Edition in Print for Thursday, Sep. 25, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/09/24/todays-new-york-times-international-edition
+
+**Immigration Agents Collected U.S. Citizens’ DNA at Border Checkpoints**\
+`A report said DNA collected at checkpoints from about 2,000 Americans, mostly during the Biden administration, was sent to an F.B.I. database. Hundreds were not charged.`\
+https://nytimes.com/2025/09/24/us/us-border-patrol-dna.html
+
 **How to watch Astros at Athletics: Time, TV, streaming for September 24**\
 `Find out how to watch the Houston Astros play the Athletics, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6657293/2025/09/24/astros-vs-athletics-stream-how-to-watch-sept-24/
