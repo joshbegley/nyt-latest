@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6657068/2025/09/24/mets-vs-cubs-stream-how-to-watch
 `“I’m not sure who had a weirder 48 hours, me or the C.E.O. of Tylenol,” Kimmel said on Tuesday.`\
 https://nytimes.com/2025/09/24/arts/television/jimmy-kimmel-late-night-return.html
 
-**League Cup win could give Wrexham shot at Premier League giant - but is that what they want?**\
+**Wrexham could now have a League Cup shot at a Premier League giant. Should they want it?**\
 `Tuesday's 2-0 victory over Reading put Wrexham into the fourth round of the League Cup for only the fourth time in their history`\
 https://nytimes.com/athletic/6651203/2025/09/24/wrexham-league-cup-premier-league/
 
