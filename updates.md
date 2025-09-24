@@ -1,3 +1,7 @@
+**Despite a slump under Trump, a U.S. wind industry executive sees potential in the long run.**\
+`By Brad Plumer`\
+https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/despite-a-slump-under-trump-a-us-wind-industry-executive-sees-potential-in-the-long-run
+
 **Gov. Gavin Newsom calls Trump’s U.N. speech ‘an abomination.’**\
 `By Maxine Joselow`\
 https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/gov-gavin-newsom-calls-trumps-un-speech-an-abomination
