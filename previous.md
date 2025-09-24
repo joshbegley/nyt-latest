@@ -1,40 +1,40 @@
-**Typhoon Ragasa Floods Hong Kong**\
-`Typhoon Ragasa, which caused death and destruction in Taiwan, skirted Hong Kong but brought torrential rain to the city.`\
-https://nytimes.com/video/world/asia/100000010417960/typhoon-ragasa-hong-kong-china.html
+**Trump’s Big Flip on Ukraine, and a Defiant Jimmy Kimmel**\
+`Plus, robot fight club.`\
+https://nytimes.com/2025/09/24/podcasts/the-headlines/trump-ukraine-jimmy-kimmel.html
 
-**Which NFL teams have the best front offices? Head coaches and execs cast their votes**\
-`We asked 29 coaches and executives for the "who" and the "why" when it comes to the league’s best in football operations.`\
-https://nytimes.com/athletic/6655181/2025/09/24/nfl-front-office-rankings-vote/
+**A 10-day stay in Europe? How the Vikings are handling an unprecedented overseas trip**\
+`There are a lot of logistics involved in transporting a football team (and 37,000 pounds of gear) to Dublin and London for two NFL games. `\
+https://nytimes.com/athletic/6655591/2025/09/24/minnesota-vikings-nfl-dublin-london/
 
-**The New York Times International Edition in Print for Thursday, Sep. 25, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/09/24/todays-new-york-times-international-edition
+**F1 mailbag: How concerned should McLaren’s drivers be about Max Verstappen?**\
+`How much has the title race shifted after Baku? It's time for our weekly F1 questions from readers`\
+https://nytimes.com/athletic/6656049/2025/09/24/f1-mailbag-max-verstappen-oscar-piastri-lando-norris-championship/
 
-**Immigration Agents Collected U.S. Citizens’ DNA at Border Checkpoints**\
-`A report said DNA collected at checkpoints from about 2,000 Americans, mostly during the Biden administration, was sent to an F.B.I. database. Hundreds were not charged.`\
-https://nytimes.com/2025/09/24/us/us-border-patrol-dna.html
+**Anaheim Ducks 2025-26 season preview: Playoff chances, projected points, roster rankings**\
+`A playoff push would be nice for the Ducks, but it's not a necessity so long as they see reasonable growth in key spots.`\
+https://nytimes.com/athletic/6644249/2025/09/24/anaheim-ducks-2025-26-season-preview/
 
-**How to watch Astros at Athletics: Time, TV, streaming for September 24**\
-`Find out how to watch the Houston Astros play the Athletics, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6657293/2025/09/24/astros-vs-athletics-stream-how-to-watch-sept-24/
+**Charlie Morton appreciates a final week with Braves, who suddenly can't lose**\
+`At the end of a difficult season, 41-year-old says return to Braves is a "chance to kind of feel a little bit at home, a little peace."`\
+https://nytimes.com/athletic/6656498/2025/09/24/charlie-morton-final-week-braves/
 
-**How to watch Dodgers at Diamondbacks: Time, TV, streaming for September 24**\
-`Find out how to watch the Los Angeles Dodgers play the Arizona Diamondbacks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6657292/2025/09/24/dodgers-vs-diamondbacks-stream-how-to-watch-sept-24/
+**New York's Ryder Cup could be the loudest golf tournament ever. That’s a good thing**\
+`There's nothing harder in sports right now than winning a road Ryder Cup, and New Yorkers will almost certainly make sure that stays intact.`\
+https://nytimes.com/athletic/6653337/2025/09/24/ryder-cup-2025-bethpage-black-new-york-fans/
 
-**How to watch Royals at Angels: Time, TV, streaming for September 24**\
-`Find out how to watch the Kansas City Royals play the Los Angeles Angels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6657287/2025/09/24/royals-vs-angels-stream-how-to-watch-sept-24/
+**How Penn State put collective chaos in the past and got its money right for 2025**\
+`At the dawn of the NIL era, key Penn State supporters were working to bring the Nittany Lions up to speed. Just not all together.`\
+https://nytimes.com/athletic/6655800/2025/09/24/penn-state-nil-collectives-football-roster/
 
-**How to watch Rockies at Mariners: Time, TV, streaming for September 24**\
-`Find out how to watch the Colorado Rockies play the Seattle Mariners, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6657281/2025/09/24/rockies-vs-mariners-stream-how-to-watch-sept-24/
+**Las Vegas star A'ja Wilson found another level of leadership to guide Aces to semifinals win**\
+`The Aces throttled the Fever for a Game 2 victory behind Wilson's 25 points.`\
+https://nytimes.com/athletic/6657032/2025/09/24/aja-wilson-las-vegas-aces-leaderhip/
 
-**How to watch Brewers at Padres: Time, TV, streaming for September 24**\
-`Find out how to watch the Milwaukee Brewers play the San Diego Padres, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6657279/2025/09/24/brewers-vs-padres-stream-how-to-watch-sept-24/
+**Ryder Cup 2025 Big Board: The United States and European teams, ranked 1-24**\
+`Scottie Scheffler is the No. 1 player in the world and at this year's Ryder Cup, but which team has more star power? More depth?`\
+https://nytimes.com/athletic/6656019/2025/09/24/ryder-cup-2025-big-board-scheffler-mcilroy/
 
-**How to watch Cardinals at Giants: Time, TV, streaming for September 24**\
-`Find out how to watch the St. Louis Cardinals play the San Francisco Giants, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6657278/2025/09/24/cardinals-vs-giants-stream-how-to-watch-sept-24/
+**What's behind Daniel Jones' breakout success with Colts? The answer is simpler than you think**\
+`Jones’ dedication, paired with his physical gifts as a dual-threat QB, convinced the Colts to take a swing on him in free agency.`\
+https://nytimes.com/athletic/6655879/2025/09/24/daniel-jones-colts-success-breakout/
 
