@@ -1,3 +1,7 @@
+**Tigers' ace Tarik Skubal, Guardians' manager Stephen Vogt come together to visit David Fry**\
+`“When stuff like that happens, that’s real-life stuff,” Skubal said. “Not baseball game stuff.”`\
+https://nytimes.com/athletic/6659574/2025/09/24/guardians-tigers-david-fry-injury-hospital-visit/
+
 **U.N. Security Council raises the alarm on the potential dangers of A.I.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2025/09/24/world/un-general-assembly-ukraine/un-security-council-raises-the-alarm-on-the-potential-dangers-of-ai

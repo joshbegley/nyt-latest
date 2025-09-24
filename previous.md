@@ -1,3 +1,7 @@
+**Tigers' ace Tarik Skubal, Guardians' manager Stephen Vogt come together to visit David Fry**\
+`“When stuff like that happens, that’s real-life stuff,” Skubal said. “Not baseball game stuff.”`\
+https://nytimes.com/athletic/6659574/2025/09/24/guardians-tigers-david-fry-injury-hospital-visit/
+
 **U.N. Security Council raises the alarm on the potential dangers of A.I.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2025/09/24/world/un-general-assembly-ukraine/un-security-council-raises-the-alarm-on-the-potential-dangers-of-ai
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/24/us/dallas-ice-shooting-suspect.html
 **Jimmy Kimmel’s Return Draws 6.2 Million Viewers, Ratings Show**\
 `The first episode of “Jimmy Kimmel Live!” since it was suspended last week by Disney attracted nearly four times its average viewership.`\
 https://nytimes.com/2025/09/24/business/media/jimmy-kimmel-ratings.html
-
-**U.S. and Russian Officials Meet at U.N. After Trump’s Unexpected Shift on Ukraine**\
-`American and Russian officials discussed the need for a resolution to the war, according to statements from each side. But their descriptions of the gathering starkly contrasted.`\
-https://nytimes.com/2025/09/24/us/politics/rubio-us-lavrov-russia-meet.html
 
