@@ -1,3 +1,7 @@
+**Red Sox pull out gritty win, holding ground in tumultuous wild-card hunt**\
+`With the win, the Red Sox held onto the second wild-card spot, one game up on floundering Detroit.`\
+https://nytimes.com/athletic/6656851/2025/09/24/red-sox-win-mlb-wild-card-race/
+
 **Who is José Caballero? Yankees' 'super gritty' newcomer is obsessed with winning**\
 `Caballero is still unknown to many Yankees fans, but to former teammates and coaches, his instant impact in New York is hardly a surprise.`\
 https://nytimes.com/athletic/6656830/2025/09/24/jose-caballero-yankees-infielder-walk-off/
