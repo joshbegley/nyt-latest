@@ -1,3 +1,7 @@
+**Scoop City: Meet the NFL's newest starting QB**\
+`What's next for Dart, the Giants' latest starting quarterback, The Athletic's NFL front office rankings and Mike Sando on Russell Wilson`\
+https://nytimes.com/athletic/6658595/2025/09/24/giants-offense-with-jaxson-dart-scoop-city-nfl/
+
 **An Australian magnate’s challenge to Trump: ‘Come see what’s happening to my land.’**\
 `By Claire Brown and Lisa Friedman`\
 https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/an-australian-magnates-challenge-to-trump-come-see-whats-happening-to-my-land
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/trumps-di
 **102 Roma ultras arrested in Nice on suspicion of carrying weapons and 'brawl'**\
 `Authorities said a "major security operation" would be deployed for Wednesday's Europa League fixture between Nice and Roma. `\
 https://nytimes.com/athletic/6658107/2025/09/24/roma-nice-fan-arrests/
-
-**Barcelona's Lewandowski plan, Alvarez interest and what it means for Torres**\
-`We reported Barca's interest in Alvarez this week, but what's Flick thinking in the short term?`\
-https://nytimes.com/athletic/6657444/2025/09/24/barcelona-transfers-alvarez-lewandowski-torres/
 
