@@ -1,5 +1,9 @@
-**Everton's League Cup snub a missed opportunity to give season extra meaning**\
-`For all the positivity of recent months, Tuesday's League Cup defeat felt like a significant misstep. One that could have been avoided...`\
+**How to watch Packers at Cowboys: Time, TV, streaming**\
+`Find out how to watch the Green Bay Packers play the Dallas Cowboys, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6657103/2025/09/24/packers-vs-cowboys-stream-how-to-watch-sept-28/
+
+**Everton's League Cup snub was a missed opportunity to give season extra meaning**\
+`For all the positivity of recent months, Tuesday's League Cup defeat felt like a significant misstep and one that could have been avoided`\
 https://nytimes.com/athletic/6656487/2025/09/24/everton-league-cup-wolves/
 
 **How to watch Twins at Rangers: Time, TV, streaming for September 24**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6651203/2025/09/24/wrexham-league-cup-premier-leagu
 **Word of the Day: horde**\
 `This word has appeared in 83 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/09/24/learning/word-of-the-day-horde.html
-
-**'A thing of beauty': How Diego Gomez staged his own Goal of the Season contest**\
-`The Paraguay striker proved his quality with two astonishing strikes in a four-goal display at Barnsley. Can he now kick on?`\
-https://nytimes.com/athletic/6655955/2025/09/24/diego-gomez-brighton-goals/
 
