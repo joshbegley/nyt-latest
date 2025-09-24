@@ -1,3 +1,27 @@
+**Disney Raises Prices for Streaming Plans in the U.S.**\
+`The price hike goes into effect on Oct. 21 and covers the Disney+ service, as well as plans that bundle it with Hulu, ESPN Select and HBO Max.`\
+https://nytimes.com/2025/09/24/business/media/disney-streaming-price-increase.html
+
+**10 (More) Questions With Zohran Mamdani**\
+`Zohran Mamdani, the Democratic nominee for mayor of New York City, visited The New York Times for an interview.`\
+https://nytimes.com/2025/09/24/nyregion/zohran-mamdani-10-questions.html
+
+**The Billionaire, the Psychedelics and the Best-Selling Memoir**\
+`Amy Griffin wrote a book based on recovered memories of childhood sexual abuse. Oprah Winfrey and a slew of celebrities promoted it. Then questions arose.`\
+https://nytimes.com/2025/09/24/nyregion/amy-griffin-memoir-psychedelic-drugs.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/09/24/crosswords/spelling-bee-forum.html
+
+**A Shop for Black Women Who Love Women Who Love Books**\
+`Though Bedford-Stuyvesant, Brooklyn, has seen an exodus of Black residents over the past 15 years, one woman hopes to create a beacon for her community.`\
+https://nytimes.com/2025/09/24/nyregion/brooklyn-black-lesbian-bookstore.html
+
+**Inside Tim Lewis' Arsenal exit and what it means for the club**\
+`The departure of vice-chair Tim Lewis last week came as a shock to many but it heralds the start of a new era at Arsenal`\
+https://nytimes.com/athletic/6648757/2025/09/24/arsenal-tim-lewis-josh-kroenke/
+
 **How to watch Red Sox at Blue Jays: Time, TV, streaming for September 24**\
 `Find out how to watch the Boston Red Sox play the Toronto Blue Jays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6657073/2025/09/24/red-sox-vs-blue-jays-stream-how-to-watch-sept-24/
