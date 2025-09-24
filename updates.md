@@ -1,3 +1,11 @@
+**Kuminga-Warriors standoff is nearing an end. The outcome remains unclear**\
+`The 22-year-old has multiple contract options with Golden State, and a sign-and-trade with Sacramento also remains in play.`\
+https://nytimes.com/athletic/6659690/2025/09/24/jonathan-kuminga-warriors-standoff-kings/
+
+**Inquiry Into Ex-C.I.A. Chief John Brennan Stalls After Purge by Gabbard**\
+`The lack of an indictment so far against Mr. Brennan, in the Eastern District of Pennsylvania, is the most recent setback for such prosecutions.`\
+https://nytimes.com/2025/09/24/us/politics/john-brennan-tulsi-gabbard-cia-trump.html
+
 **After Dallas Shooting, a Rush to Score Political Points Before the Facts Are In**\
 `In the aftermath of a violent episode, political figures quickly engaged with one another on social media.`\
 https://nytimes.com/2025/09/24/style/jd-vance-jon-favreau-dallas-shooting.html

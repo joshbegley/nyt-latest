@@ -1,3 +1,11 @@
+**Kuminga-Warriors standoff is nearing an end. The outcome remains unclear**\
+`The 22-year-old has multiple contract options with Golden State, and a sign-and-trade with Sacramento also remains in play.`\
+https://nytimes.com/athletic/6659690/2025/09/24/jonathan-kuminga-warriors-standoff-kings/
+
+**Inquiry Into Ex-C.I.A. Chief John Brennan Stalls After Purge by Gabbard**\
+`The lack of an indictment so far against Mr. Brennan, in the Eastern District of Pennsylvania, is the most recent setback for such prosecutions.`\
+https://nytimes.com/2025/09/24/us/politics/john-brennan-tulsi-gabbard-cia-trump.html
+
 **After Dallas Shooting, a Rush to Score Political Points Before the Facts Are In**\
 `In the aftermath of a violent episode, political figures quickly engaged with one another on social media.`\
 https://nytimes.com/2025/09/24/style/jd-vance-jon-favreau-dallas-shooting.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/24/climate/climate-forward-gavin-newsom-chris-wright
 **Woman, 50, Killed by Midtown Manhattan Driver in Hit-and-Run Crash**\
 `A driver hit the woman and her husband, both pedestrians, near Bryant Park on Wednesday afternoon. Her husband, 55, was injured and was in stable condition at a hospital, the police said.`\
 https://nytimes.com/2025/09/24/nyregion/midtown-hit-run-woman-killed.html
-
-**Federal Judge Declines to Reinstate Government Watchdogs Fired by Trump**\
-`The judge ruled that President Trump had clearly violated the law, but that the impact did not rise to an “irreparable harm” that would justify her intervention.`\
-https://nytimes.com/2025/09/24/us/politics/trump-government-watchdogs.html
-
-**Richard Moe, 88, Dies; Led the National Trust for Historic Preservation**\
-`After serving as an aide to Vice President Walter Mondale, he spent 17 years at the forefront of the fight to save numerous endangered landmarks.`\
-https://nytimes.com/2025/09/24/us/politics/richard-moe-dead.html
 
