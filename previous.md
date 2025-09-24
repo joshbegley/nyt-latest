@@ -1,8 +1,16 @@
+**Sister Jean, who cheered on Loyola Chicago's Final Four run, retires at 106**\
+`Sister Jean became a national symbol of the Ramblers' feel-good underdog story in 2018.`\
+https://nytimes.com/athletic/6657866/2025/09/24/sister-jean-loyola-chicago-retires/
+
+**Israel-Premier Tech title sponsor calls for removal of 'Israel' from cycling team name**\
+`Protests directed at the cycling team contributed to three stages of the Vuelta being neutralised due to rider safety concerns.`\
+https://nytimes.com/athletic/6657465/2025/09/24/israel-premier-tech-vuelta-protests-sponsor/
+
 **In Taiwan, Images of a Town Engulfed by Typhoon Ragasa**\
 `Hundreds of firefighters and soldiers dispatched to Guangfu have gone door to door to check for trapped residents.`\
 https://nytimes.com/2025/09/24/world/asia/typhoon-ragasa-guangfu-taiwan-photos.html
 
-**Three People Shot at Dallas ICE Facility**\
+**Live Updates: Three People Shot at Dallas ICE Facility**\
 `The circumstances of the shooting were not yet clear. Federal authorities said there were “multiple injuries and fatalities.”`\
 https://nytimes.com/live/2025/09/24/us/dallas-ice-shooting
 
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/al-gore-d
 **Should I Leave My 3 Sons Different Amounts in My Will?**\
 `A father is considering leaving more of his estate to his youngest son, anticipating that his elder sons will inherit a substantial amount from their mother.`\
 https://nytimes.com/2025/09/24/style/estate-inheritance-children-unequal-bequests.html
-
-**Here’s the latest.**\
-`The circumstances of the shooting were not yet clear. Federal authorities said there were “multiple injuries and fatalities.”`\
-https://nytimes.com/live/2025/09/24/us/dallas-ice-shooting/ice-dallas-shooting
-
-**Israeli Strike Kills Gazans Sheltering in Warehouse, Local Reports Say**\
-`The Israeli attack in Gaza City killed nearly two dozen Palestinians, the reports said. The Israeli military said it had hit two “Hamas terrorists.”`\
-https://nytimes.com/2025/09/24/world/middleeast/israel-strike-gaza-city-civilians.html
 
