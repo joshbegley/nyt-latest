@@ -1,3 +1,23 @@
+**How to watch Red Sox at Blue Jays: Time, TV, streaming for September 24**\
+`Find out how to watch the Boston Red Sox play the Toronto Blue Jays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6657073/2025/09/24/red-sox-vs-blue-jays-stream-how-to-watch-sept-24/
+
+**How to watch Nationals at Braves: Time, TV, streaming for September 24**\
+`Find out how to watch the Washington Nationals play the Atlanta Braves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6657071/2025/09/24/nationals-vs-braves-stream-how-to-watch-sept-24/
+
+**How to watch Mets at Cubs: Time, TV, streaming for September 24**\
+`Find out how to watch the New York Mets play the Chicago Cubs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6657068/2025/09/24/mets-vs-cubs-stream-how-to-watch-sept-24/
+
+**Jimmy Kimmel Makes a Tearful Return to Late Night**\
+`“I’m not sure who had a weirder 48 hours, me or the C.E.O. of Tylenol,” Kimmel said on Tuesday.`\
+https://nytimes.com/2025/09/24/arts/television/jimmy-kimmel-late-night-return.html
+
+**Wrexham could now have a League Cup shot at a Premier League giant. Should they want it?**\
+`Tuesday's 2-0 victory over Reading put Wrexham into the fourth round of the League Cup for only the fourth time in their history`\
+https://nytimes.com/athletic/6651203/2025/09/24/wrexham-league-cup-premier-league/
+
 **10 (More) Questions With Zohran Mamdani**\
 `Zohran Mamdani, the Democratic nominee for mayor of New York City, visited The New York Times for an interview.`\
 https://nytimes.com/2025/09/24/nyregion/zohran-mamdani-10-questions.html
