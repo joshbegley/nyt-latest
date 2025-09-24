@@ -1,3 +1,7 @@
+**A fusion energy demo could be coming to the U.S. in the next two years.**\
+`By Brad Plumer`\
+https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/a-fusion-energy-demo-could-be-coming-to-the-us-in-the-next-two-years
+
 **LaCava: 'I'm not looking for any controversy' at this Ryder Cup**\
 `LaCava, Patrick Cantlay's caddie, had words with McIlroy and Shane Lowry after his 18th green celebration at Marco Simone.`\
 https://nytimes.com/athletic/6659104/2025/09/24/ryder-cup-joe-lacava-rory-mcilroy-caddie-hat/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6654060/2025/09/24/nhl-prospects-sharks-ducks-kings
 **An ‘Incredibly Complex’ Hurricane Forecast Is Unfolding Right Now**\
 `Two storms may form soon in the Atlantic, but their potential effects remain very uncertain.`\
 https://nytimes.com/2025/09/24/weather/hurricane-forecast-humberto-imelda.html
-
-**Arizona Democrat’s Win Clinches Bid to Force Epstein Files Vote**\
-`Adelita Grijalva’s victory in a special election for a House seat in Arizona appears to give backers of a so-called discharge petition enough signatures to compel action.`\
-https://nytimes.com/2025/09/24/us/politics/democrat-arizona-epstein-files.html
 
