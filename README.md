@@ -1,6 +1,22 @@
+**Here’s the latest.**\
+`By David Gelles`\
+https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/heres-the-latest
+
+**Here’s a look at the speakers at the 2025 Climate Forward Conference.**\
+`By The New York Times`\
+https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/heres-a-look-at-the-speakers-at-the-2025-climate-forward-conference
+
+**Climate Forward Live Updates: How Trump Is Changing Climate Policy Globally**\
+`The New York Times’s annual Climate Forward event will include Energy Secretary Chris Wright and Gov. Gavin Newsom of California, among others. The discussion will focus on how environmental policies are shifting around the globe.`\
+https://nytimes.com/live/2025/09/24/climate/climate-forward-conference
+
+**London’s Mayor Calls Trump Racist and Islamophobic After U.N. Comments**\
+`Sadiq Khan, the mayor of London, was responding to President Trump’s political attack on him during his speech at the United Nations on Tuesday.`\
+https://nytimes.com/2025/09/24/world/europe/london-mayor-trump-comments-sadiq-khan.html
+
 **Iran’s President Arrives at U.N. Seeking to Avoid More Sanctions**\
 `Masoud Pezeshkian will address the General Assembly as he searches for a way to prevent the imposition of sanctions on his country, this time from the United Nations Security Council.`\
-https://nytimes.com/2025/09/24/world/middleeast/irans-president-arrives-at-un-seeking-to-avoid-more-sanctions.html
+https://nytimes.com/2025/09/24/world/middleeast/iran-president-un-assembly-sanctions.html
 
 **Here’s the latest.**\
 `By Farnaz Fassihi`\
@@ -21,20 +37,4 @@ https://nytimes.com/2025/09/24/world/africa/malawi-election.html
 **Surging Diamondbacks, counted out many times over, keep refusing to quit**\
 `On Tuesday night against LA, the Diamondbacks scored five runs in the final three innings, spreading belief beyond their dugout.`\
 https://nytimes.com/athletic/6657116/2025/09/24/arizona-diamondbacks-playoffs-wild-card-dodgers/
-
-**MLB playoff watch: Yankees, Mariners punch tickets; bracket, clinching scenarios**\
-`Plus, the Guardians overtake the Tigers atop the AL Central and matchups to watch on Wednesday.`\
-https://nytimes.com/athletic/6656927/2025/09/24/mlb-playoff-watch-yankees-mariners-clinch-spots/
-
-**What Nebraska's first 4 games revealed, and what's next in an October that could define the season**\
-`Here are four revelations for Nebraska from the first four games of the season.`\
-https://nytimes.com/athletic/6655760/2025/09/24/nebraska-football-what-we-learned/
-
-**What to know about the 2025 Ryder Cup: Format, scoring system, rosters and history**\
-`Here's what you need to know about this weekend's U.S. vs. Europe golf tournament, now in its 45th installment.`\
-https://nytimes.com/athletic/6655110/2025/09/24/ryder-cup-format-rules-prize-money-rosters-2025/
-
-**Trump Administration Live Updates: Kimmel Returns to Airwaves After Free Speech Firestorm**\
-``\
-https://nytimes.com/live/2025/09/24/us/trump-news
 
