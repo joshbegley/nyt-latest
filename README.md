@@ -1,3 +1,15 @@
+**Mel Taub, Creator of a Pun-Loving, Anagram-Making Puzzle, Dies at 97**\
+`He was the main whiz behind a crossword puzzle variation for The Times, whose readers loved his sometimes groan-inducing wordplay. (Try one yourself.)`\
+https://nytimes.com/2025/09/24/crosswords/mel-taub-dead.html
+
+**Denmark Apologizes to Greenlandic Women Over Forced Contraception**\
+`The prime minister of Denmark, Mette Frederiksen, apologized in-person to Greenlandic women who were subjected to forced birth control.`\
+https://nytimes.com/video/world/europe/100000010419556/denmark-greenland-forced-contraception.html
+
+**President Trump, Your Aid Cuts Are Costing Lives and Money**\
+`The dismantling of U.S.A.I.D. is leading to the squandering of taxpayer dollars, as well as of large numbers of lives.`\
+https://nytimes.com/2025/09/24/opinion/trump-aid-cuts.html
+
 **Micah Parsons' Dallas return: 'No hard feelings there, at least from me'**\
 `Parsons is still close with his former Cowboys teammates and expects a "great atmosphere" on Monday night.`\
 https://nytimes.com/athletic/6659324/2025/09/24/packers-micah-parsons-return-to-dallas/
@@ -21,16 +33,4 @@ https://nytimes.com/video/arts/music/100000010419702/moab-music-festival-colorad
 **Mets designate Jose Siri for assignment, as Tyrone Taylor returns for final playoff push**\
 `The Mets swapped one centerfielder for another, cutting Siri while bringing Taylor back from the injured list.`\
 https://nytimes.com/athletic/6659307/2025/09/24/new-york-mets-jose-siri-tyrone-taylor/
-
-**One Dead and Two Wounded in Dallas ICE Facility Shooting**\
-`Law enforcement responded to a shooting at an ICE facility on Wednesday morning in Dallas. At least one detainee was killed and two others were critically wounded, officials said.`\
-https://nytimes.com/video/us/100000010419181/dallas-ice-shooting.html
-
-**For Trump’s energy secretary, the science that links disasters to climate change isn’t really science at all.**\
-`By Lisa Friedman`\
-https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/for-trumps-energy-secretary-the-science-that-links-disasters-to-climate-change-isnt-really-science-at-all
-
-**A fusion energy demo could be coming to the U.S. in the next two years.**\
-`By Brad Plumer`\
-https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/a-fusion-energy-demo-could-be-coming-to-the-us-in-the-next-two-years
 
