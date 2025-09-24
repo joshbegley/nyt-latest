@@ -1,3 +1,11 @@
+**The Rate Debate Dividing the Fed**\
+`Jerome Powell and some of the more dovish policymakers at the central bank are at odds over how to handle “challenging” inflation and unemployment.`\
+https://nytimes.com/2025/09/24/business/dealbook/the-rate-debate-dividing-the-fed.html
+
+**Malawi President Concedes Election to His Predecessor**\
+`Despite reports of irregularities at the polls, President Lazarus Chakwera said that Peter Mutharika had an insurmountable lead after partial vote counts were released.`\
+https://nytimes.com/2025/09/24/world/africa/malawi-election.html
+
 **Surging Diamondbacks, counted out many times over, keep refusing to quit**\
 `On Tuesday night against LA, the Diamondbacks scored five runs in the final three innings, spreading belief beyond their dugout.`\
 https://nytimes.com/athletic/6657116/2025/09/24/arizona-diamondbacks-playoffs-wild-card-dodgers/

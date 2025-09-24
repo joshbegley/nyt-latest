@@ -1,3 +1,15 @@
+**Iran’s President Arrives at U.N. Seeking to Avoid More Sanctions**\
+`Masoud Pezeshkian will address the General Assembly as he searches for a way to prevent the imposition of sanctions on his country, this time from the United Nations Security Council.`\
+https://nytimes.com/2025/09/24/world/middleeast/irans-president-arrives-at-un-seeking-to-avoid-more-sanctions.html
+
+**Here’s the latest.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2025/09/24/world/un-general-assembly-ukraine/heres-the-latest
+
+**U.N. General Assembly Updates: Zelensky to Speak After Trump Signals Shift on War**\
+`The Ukrainian president is expected to ask for more support in his address to the annual U.N. meeting. Appearances by the leaders of Iran and Syria will also be closely watched.`\
+https://nytimes.com/live/2025/09/24/world/un-general-assembly-ukraine
+
 **The Rate Debate Dividing the Fed**\
 `Jerome Powell and some of the more dovish policymakers at the central bank are at odds over how to handle “challenging” inflation and unemployment.`\
 https://nytimes.com/2025/09/24/business/dealbook/the-rate-debate-dividing-the-fed.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6655110/2025/09/24/ryder-cup-format-rules-prize-mon
 **Trump Administration Live Updates: Kimmel Returns to Airwaves After Free Speech Firestorm**\
 ``\
 https://nytimes.com/live/2025/09/24/us/trump-news
-
-**Red Sox pull out gritty win, holding ground in tumultuous wild-card hunt**\
-`With the win, the Red Sox held onto the second wild-card spot, one game up on floundering Detroit.`\
-https://nytimes.com/athletic/6656851/2025/09/24/red-sox-win-mlb-wild-card-race/
-
-**Who is José Caballero? Yankees' 'super gritty' newcomer is obsessed with winning**\
-`Caballero is still unknown to many Yankees fans, but to former teammates and coaches, his instant impact in New York is hardly a surprise.`\
-https://nytimes.com/athletic/6656830/2025/09/24/jose-caballero-yankees-infielder-walk-off/
-
-**Collapse of Subway Tunnel in Bangkok Creates Enormous Hole**\
-`The city’s governor said a burst water pipe in an unfinished subway extension appeared to have caused the collapse. A local official said no one was injured.`\
-https://nytimes.com/video/world/asia/100000010418275/bangkok-street-collapse-subway-tunnel-.html
 
