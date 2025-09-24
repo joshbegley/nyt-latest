@@ -1,4 +1,12 @@
-**From Poland’s leader, scathing criticism of Russian incursions in a “dangerous era of rivalry.”**\
+**‘Alien: Earth’ Season 1 Finale Recap: Ghosts in the Machine**\
+`The hybrid kids have an important revelation about who should be afraid of whom. Just deserts will be served.`\
+https://nytimes.com/2025/09/23/arts/television/alien-earth-recap-season-1-finale.html
+
+**Suns asked employees to sign agreements meant to limit lawsuits: Sources**\
+`Over the last year, the Suns have faced five lawsuits from current and former employees, some alleging discrimination and harassment.`\
+https://nytimes.com/athletic/6656438/2025/09/23/suns-employees-agreements-limit-lawsuits/
+
+**From Poland’s leader, scathing criticism of Russian incursions in a ‘dangerous era of rivalry.’**\
 `By Lara Jakes and Pranav Baskar`\
 https://nytimes.com/live/2025/09/23/world/un-general-assembly-trump/poland-president-russia-ukraine
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/23/world/trump-ukraine-zelensky.html
 **How to watch Tigers at Guardians: Time, TV, streaming for September 24**\
 `Find out how to watch the Detroit Tigers play the Cleveland Guardians, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6656291/2025/09/23/tigers-vs-guardians-stream-how-to-watch-sept-24/
-
-**How to watch Pirates at Reds: Time, TV, streaming for September 24**\
-`Find out how to watch the Pittsburgh Pirates play the Cincinnati Reds, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6656289/2025/09/23/pirates-vs-reds-stream-how-to-watch-sept-24/
-
-**How to watch Rays at Orioles: Time, TV, streaming for September 24**\
-`Find out how to watch the Tampa Bay Rays play the Baltimore Orioles, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6656284/2025/09/23/rays-vs-orioles-stream-how-to-watch-sept-24/
 

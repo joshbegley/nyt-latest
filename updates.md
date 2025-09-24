@@ -1,3 +1,15 @@
+**From Poland’s leader, scathing criticism of Russian incursions in a “dangerous era of rivalry.”**\
+`By Lara Jakes and Pranav Baskar`\
+https://nytimes.com/live/2025/09/23/world/un-general-assembly-trump/poland-president-russia-ukraine
+
+**U.N. Escalator Stops Right as Trump Steps On**\
+`An escalator stopped at the U.N. General Assembly as President Trump and the first lady were arriving Tuesday morning.`\
+https://nytimes.com/video/us/100000010417829/trump-escalator-un-conspiracies.html
+
+**Escalator Malfunction at U.N. Sets Off Conspiracy Theories**\
+`A sudden stop just as President Trump stepped on the stairs may have been caused by the triggering of a safety mechanism, the U.N. said.`\
+https://nytimes.com/2025/09/23/world/trump-escalator-un-conspiracies.html
+
 **Arizona Seventh Congressional District Special Election Results**\
 `Get live results and maps from the 2025 Arizona special election.`\
 https://nytimes.com/interactive/2025/09/23/us/elections/results-arizona-us-house-7-special.html
