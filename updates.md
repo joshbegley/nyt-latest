@@ -1,3 +1,7 @@
+**Inside Tim Lewis' Arsenal exit and what it means for the club**\
+`The departure of vice-chair Tim Lewis last week came as a shock to many but it heralds the start of a new era at Arsenal`\
+https://nytimes.com/athletic/6648757/2025/09/24/arsenal-tim-lewis-josh-kroenke/
+
 **Wrexham could now have a League Cup shot at a Premier League giant. Should they want it?**\
 `Tuesday's 2-0 victory over Reading put Wrexham into the fourth round of the League Cup for only the fourth time in their history`\
 https://nytimes.com/athletic/6651203/2025/09/24/wrexham-league-cup-premier-league/

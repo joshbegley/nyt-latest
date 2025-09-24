@@ -1,7 +1,3 @@
-**Inside Tim Lewis' Arsenal exit and what it means for the club**\
-`The departure of vice-chair Tim Lewis last week came as a shock to many but it heralds the start of a new era at Arsenal`\
-https://nytimes.com/athletic/6648757/2025/09/24/arsenal-tim-lewis-josh-kroenke/
-
 **Typhoon Ragasa Floods Hong Kong and Hurtles Toward Southern China**\
 `One million residents of Guangdong, in southern China, were evacuated. The storm left 14 dead in Taiwan.`\
 https://nytimes.com/2025/09/24/world/asia/typhoon-ragasa-hong-kong-china.html
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6657068/2025/09/24/mets-vs-cubs-stream-how-to-watch
 **Jimmy Kimmel Makes a Tearful Return to Late Night**\
 `“I’m not sure who had a weirder 48 hours, me or the C.E.O. of Tylenol,” Kimmel said on Tuesday.`\
 https://nytimes.com/2025/09/24/arts/television/jimmy-kimmel-late-night-return.html
+
+**Wrexham could now have a League Cup shot at a Premier League giant. Should they want it?**\
+`Tuesday's 2-0 victory over Reading put Wrexham into the fourth round of the League Cup for only the fourth time in their history`\
+https://nytimes.com/athletic/6651203/2025/09/24/wrexham-league-cup-premier-league/
 
