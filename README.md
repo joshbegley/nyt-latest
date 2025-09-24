@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6656696/2025/09/23/ace-bailey-agent-jazz-rookie/
 `The vessels were aiming to deliver humanitarian aid to Gaza. The Israelis have asked that the aid be given to them to distribute.`\
 https://nytimes.com/2025/09/23/world/middleeast/gaza-aid-flotilla-drone-attack.html
 
-**Phoenix Mercury secures OT win against Minnesota Lynx to even WNBA semifinals**\
+**Mercury secures OT win against  Lynx to even WNBA semifinals**\
 `Alyssa Thomas fueled the Mercury's second-half comeback.`\
 https://nytimes.com/athletic/6656595/2025/09/23/phoenix-mercury-overtime-minnesota-lynx-wnba-semifinals/
 
