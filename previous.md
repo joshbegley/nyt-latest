@@ -1,3 +1,15 @@
+**Woakes may have played last England Test, says Rob Key**\
+`The fifth Test against India this summer could be the 36-year-old's final international appearance.`\
+https://nytimes.com/athletic/6658710/2025/09/24/chris-woakes-rob-key-ashes-test/
+
+**U.N. Health Goals Weakened by Industry Pressure, Experts Say**\
+`Public health advocates complained that the final recommendations on combating chronic illness removed calls for taxes on tobacco, alcohol and sweetened drinks.`\
+https://nytimes.com/2025/09/24/health/global-health-sugary-drinks-tobacco.html
+
+**‘It was one shot after another after another after another.’**\
+`By Jazmine Ulloa`\
+https://nytimes.com/live/2025/09/24/us/dallas-ice-shooting/it-was-one-shot-after-another-after-another-after-another
+
 **Shutdown Crisis Tests Trump’s Go-It-Alone Approach to Democrats**\
 `The president has spent his first months in office freezing out Democrats, who have in turn opposed him routinely. Now they need each other to keep the government open.`\
 https://nytimes.com/2025/09/24/us/politics/trump-democrats-government-shutdown.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6656828/2025/09/24/building-the-beast-oregon-penn-s
 **An Unproven Link to Autism’s Cause**\
 `Readers respond to President Trump’s assertions about autism and acetaminophen. Also: Robert Redford and Paul Newman.`\
 https://nytimes.com/2025/09/24/opinion/autism-trump-kennedy.html
-
-**Giants' Brian Daboll makes Jaxson Dart promotion official: 'It was my decision'**\
-`Russell Wilson will serve as the Giants' No. 2 quarterback behind Dart. `\
-https://nytimes.com/athletic/6658280/2025/09/24/jaxson-dart-giants-brian-daboll-starting-quarterback/
-
-**Tess Johnston, Diplomat Who Helped Preserve ‘Old Shanghai,’ Dies at 93**\
-`She worked in American consulates around the world but found a home in China’s “Paris of the East,” where she documented a vanishing colonial architecture.`\
-https://nytimes.com/2025/09/24/world/asia/tess-johnston-dead.html
-
-**NFL Week 4 confidence picks: Bills, Texans, Broncos, Chargers among the strongest choices**\
-`KC Joyner gives his NFL confidence picks, both straight up and against the spread, for every Week 4 game.`\
-https://nytimes.com/athletic/6657041/2025/09/24/nfl-week-4-confidence-picks-bills-texans-broncos-chargers/
 

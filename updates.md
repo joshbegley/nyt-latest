@@ -1,3 +1,15 @@
+**Woakes may have played last England Test, says Rob Key**\
+`The fifth Test against India this summer could be the 36-year-old's final international appearance.`\
+https://nytimes.com/athletic/6658710/2025/09/24/chris-woakes-rob-key-ashes-test/
+
+**U.N. Health Goals Weakened by Industry Pressure, Experts Say**\
+`Public health advocates complained that the final recommendations on combating chronic illness removed calls for taxes on tobacco, alcohol and sweetened drinks.`\
+https://nytimes.com/2025/09/24/health/global-health-sugary-drinks-tobacco.html
+
+**‘It was one shot after another after another after another.’**\
+`By Jazmine Ulloa`\
+https://nytimes.com/live/2025/09/24/us/dallas-ice-shooting/it-was-one-shot-after-another-after-another-after-another
+
 **Shutdown Crisis Tests Trump’s Go-It-Alone Approach to Democrats**\
 `The president has spent his first months in office freezing out Democrats, who have in turn opposed him routinely. Now they need each other to keep the government open.`\
 https://nytimes.com/2025/09/24/us/politics/trump-democrats-government-shutdown.html

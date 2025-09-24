@@ -1,3 +1,7 @@
+**Becky Hammon says WNBA playoff physicality is 'out of control'**\
+`Despite a spike in calls — 41 in Game 2 compared with 27 in the opener — Hammon maintained that refs are still allowing too much contact.`\
+https://nytimes.com/athletic/6658666/2025/09/24/becky-hammond-wnba-officiating-physical/
+
 **Woakes may have played last England Test, says Rob Key**\
 `The fifth Test against India this summer could be the 36-year-old's final international appearance.`\
 https://nytimes.com/athletic/6658710/2025/09/24/chris-woakes-rob-key-ashes-test/
@@ -33,8 +37,4 @@ https://nytimes.com/video/climate/100000010418895/microsoft-google-climate-goals
 **Building The Beast: Oregon, Penn State set for NFL prospect showcase Saturday**\
 `Quarterbacks command the spotlight, so it’s no surprise the main attractions on Saturday are Oregon’s Dante Moore and PSU’s Drew Allar.`\
 https://nytimes.com/athletic/6656828/2025/09/24/building-the-beast-oregon-penn-state-set-for-nfl-prospect-showcase-saturday/
-
-**An Unproven Link to Autism’s Cause**\
-`Readers respond to President Trump’s assertions about autism and acetaminophen. Also: Robert Redford and Paul Newman.`\
-https://nytimes.com/2025/09/24/opinion/autism-trump-kennedy.html
 
