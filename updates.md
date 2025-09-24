@@ -1,3 +1,7 @@
+**Zelensky Issues Call to Arms, Saying Global Institutions Have Failed**\
+`President Volodymyr Zelensky said more weapons were needed to defend his country and the free world, blaming Russia for spurring a dangerous new arms race.`\
+https://nytimes.com/2025/09/24/world/europe/unga-zelensky.html
+
 **London’s Mayor Hits Back at Trump, Calling Him Islamophobic**\
 `After President Trump called him a “terrible, terrible mayor,” Sadiq Khan, who is Muslim, said the president was racist and Islamophobic.`\
 https://nytimes.com/video/world/europe/100000010418412/london-mayor-trump-comments.html
