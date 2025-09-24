@@ -1,3 +1,15 @@
+**Apple Postpones ‘Savant’ Show About Online Hate Groups**\
+`Jessica Chastain, the show’s star and one of its producers, criticized the decision on social media on Wednesday.`\
+https://nytimes.com/2025/09/24/business/media/apple-postpones-savant.html
+
+**Democrats Investigating Law Firms Over Work for Trump’s Commerce Dept.**\
+`In letters to the firms, the lawmakers suggested “that the administration’s coercion of your law firm may be ongoing and escalating.”`\
+https://nytimes.com/2025/09/24/us/politics/democrats-law-firms-trump-investigation.html
+
+**Have the 49ers found their kicker? For journeyman Eddy Piñeiro, so far, so good**\
+`"We don't have any other choice, so he's got our full confidence," Trent Williams said of the Niners' new kicker.`\
+https://nytimes.com/athletic/6657246/2025/09/24/eddy-pineiro-49ers-kicker-cardinals-winner/
+
 **Daniel Jones card prices on the rise as questions mount around other QBs**\
 `Aaron Rodgers cards are also benefitting from his New York departure`\
 https://nytimes.com/athletic/6658488/2025/09/24/daniel-jones-cards/
