@@ -1,3 +1,7 @@
+**China for First Time Promises to Reduce Its Greenhouse Gas Emissions**\
+`President Xi Jinping told a U.N. climate summit that China will reduce emissions across its economy, expand renewables sixfold and make electric cars “mainstream.”`\
+https://nytimes.com/2025/09/24/climate/china-emissions-targets-paris.html
+
 **As China Goes, So Goes the Climate**\
 `China’s green-tech revolution has fueled climate optimism. But now the country seems to be pivoting.`\
 https://nytimes.com/2025/09/24/opinion/china-tech-climate.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6658801/2025/09/24/uefa-news-arsenal-tivat-ban-matc
 **Nats to name Red Sox's Paul Toboni as head of baseball operations: Sources**\
 `Toboni, 35, has moved quickly through the Red Sox organization, moving to senior VP/assistant GM in November 2023.`\
 https://nytimes.com/athletic/6658340/2025/09/24/paul-toboni-nats-front-office-red-sox/
-
-**Guardians' David Fry has multiple facial fractures after being hit by pitch**\
-`Fry was injured on Tuesday when he squared to bunt and the pitch hit him directly in the face, resulting in multiple fractures.`\
-https://nytimes.com/athletic/6658840/2025/09/24/david-fry-facial-fractures-cleveland-guardians/
 
