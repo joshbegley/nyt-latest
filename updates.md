@@ -1,3 +1,11 @@
+**After Dallas Shooting, a Rush to Score Political Points Before the Facts Are In**\
+`In the aftermath of a violent episode, political figures quickly engaged with one another on social media.`\
+https://nytimes.com/2025/09/24/style/jd-vance-jon-favreau-dallas-shooting.html
+
+**Gunman Opens Fire on ICE Office in Dallas, Killing a Detainee**\
+`The shooter, who killed himself, also wounded two detainees in an attack that raised new fears about political violence in the United States.`\
+https://nytimes.com/2025/09/24/us/dallas-ice-shooting.html
+
 **The Politics of ‘Tough It Out’**\
 `His advice on Tylenol has steered President Trump into the politics of pregnancy.`\
 https://nytimes.com/2025/09/24/us/politics/trump-tylenol-pregnancy-women.html
