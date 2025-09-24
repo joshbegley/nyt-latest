@@ -1,3 +1,7 @@
+**Richard Moe, 88, Dies; Led the National Trust for Historic Preservation**\
+`After serving as an aide to Vice President Walter Mondale, he spent 17 years at the forefront of the fight to save numerous endangered landmarks.`\
+https://nytimes.com/2025/09/24/us/politics/richard-moe-dead.html
+
 **Trump Administration Bars Some Giant Brand Bicycles, Citing Forced Labor**\
 `The Trump administration said it would begin seizing Giant brand bicycles manufactured in Taiwan at the U.S. border, after an investigation found evidence of forced labor.`\
 https://nytimes.com/2025/09/24/business/economy/giant-bicycles-forced-labor.html

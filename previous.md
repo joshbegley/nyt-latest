@@ -1,3 +1,7 @@
+**Richard Moe, 88, Dies; Led the National Trust for Historic Preservation**\
+`After serving as an aide to Vice President Walter Mondale, he spent 17 years at the forefront of the fight to save numerous endangered landmarks.`\
+https://nytimes.com/2025/09/24/us/politics/richard-moe-dead.html
+
 **Trump Administration Bars Some Giant Brand Bicycles, Citing Forced Labor**\
 `The Trump administration said it would begin seizing Giant brand bicycles manufactured in Taiwan at the U.S. border, after an investigation found evidence of forced labor.`\
 https://nytimes.com/2025/09/24/business/economy/giant-bicycles-forced-labor.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/09/24/us/dallas-ice-shooting/ice-dallas-immigrants
 **Ex-Minnesota Lawmaker Gets Six Months in Jail for Burglary**\
 `Nicole Mitchell was found guilty of breaking into her stepmother’s home. She resigned from the State Senate after her conviction, briefly threatening the Democrats’ slim majority.`\
 https://nytimes.com/2025/09/24/us/minnesota-nicole-mitchell-sentenced-burglary.html
-
-**First Lawsuit Filed Over Plane-Helicopter Crash in Washington**\
-`The widow of a passenger on the American Airlines jet sued two airlines and the government over the Jan. 29 crash, which killed 67. Lawyers for other victims’ relatives said more suits would follow.`\
-https://nytimes.com/2025/09/24/us/lawsuit-washington-plane-crash.html
 
