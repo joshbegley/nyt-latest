@@ -1,3 +1,7 @@
+**Federal Judge Declines to Reinstate Government Watchdogs Fired by Trump**\
+`The judge ruled that President Trump had clearly violated the law, but that the impact did not rise to an “irreparable harm” that would justify her intervention.`\
+https://nytimes.com/2025/09/24/us/politics/trump-government-watchdogs.html
+
 **Richard Moe, 88, Dies; Led the National Trust for Historic Preservation**\
 `After serving as an aide to Vice President Walter Mondale, he spent 17 years at the forefront of the fight to save numerous endangered landmarks.`\
 https://nytimes.com/2025/09/24/us/politics/richard-moe-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010415400/the-danger-of-vengeance-after-
 **Trump says ICE was the target, but immigrants are feeling unsafe.**\
 `By Edgar Sandoval`\
 https://nytimes.com/live/2025/09/24/us/dallas-ice-shooting/ice-dallas-immigrants
-
-**Ex-Minnesota Lawmaker Gets Six Months in Jail for Burglary**\
-`Nicole Mitchell was found guilty of breaking into her stepmother’s home. She resigned from the State Senate after her conviction, briefly threatening the Democrats’ slim majority.`\
-https://nytimes.com/2025/09/24/us/minnesota-nicole-mitchell-sentenced-burglary.html
 
