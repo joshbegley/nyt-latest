@@ -1,3 +1,15 @@
+**Newsom And Wright Give Diverging Takes on Trump’s Climate Policy**\
+`Speaking at The New York Times’s Climate Forward conference, Gov. Gavin Newsom of California slammed President Trump’s comments on climate change at the United Nations, while Energy Secretary Chris Wright said Trump should get the “hero of the climate” award.`\
+https://nytimes.com/video/climate/100000010419580/newsom-climate-trump-wright.html
+
+**Music Festival in Utah Makes Nature Its Venue**\
+`Floating along the Colorado River, the Moab Music Festival offers some of the purest, most intense listening experiences around.`\
+https://nytimes.com/video/arts/music/100000010419702/moab-music-festival-colorado-river.html
+
+**Mets designate Jose Siri for assignment, as Tyrone Taylor returns for final playoff push**\
+`The Mets swapped one centerfielder for another, cutting Siri while bringing Taylor back from the injured list.`\
+https://nytimes.com/athletic/6659307/2025/09/24/new-york-mets-jose-siri-tyrone-taylor/
+
 **One Dead and Two Wounded in Dallas ICE Facility Shooting**\
 `Law enforcement responded to a shooting at an ICE facility on Wednesday morning in Dallas. At least one detainee was killed and two others were critically wounded, officials said.`\
 https://nytimes.com/video/us/100000010419181/dallas-ice-shooting.html

@@ -1,3 +1,15 @@
+**Micah Parsons' Dallas return: 'No hard feelings there, at least from me'**\
+`Parsons is still close with his former Cowboys teammates and expects a "great atmosphere" on Monday night.`\
+https://nytimes.com/athletic/6659324/2025/09/24/packers-micah-parsons-return-to-dallas/
+
+**Tracking Tropical Storm Humberto**\
+`See the likely path and wind arrival times for Humberto`\
+https://nytimes.com/interactive/2025/weather/humberto-map-path-tracker.html
+
+**The Briefing: Port Vale 0 Arsenal 2 - Eze's 'special' first goal, Arteta's Saka balancing act, importance of cup run**\
+`The forward finished off a wonderful team move while some players got valuable minutes in League Cup win. We break down the action.`\
+https://nytimes.com/athletic/6658021/2025/09/24/arsenal-carabao-cup-port-vale/
+
 **Newsom And Wright Give Diverging Takes on Trump’s Climate Policy**\
 `Speaking at The New York Times’s Climate Forward conference, Gov. Gavin Newsom of California slammed President Trump’s comments on climate change at the United Nations, while Energy Secretary Chris Wright said Trump should get the “hero of the climate” award.`\
 https://nytimes.com/video/climate/100000010419580/newsom-climate-trump-wright.html
@@ -21,16 +33,4 @@ https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/for-trump
 **A fusion energy demo could be coming to the U.S. in the next two years.**\
 `By Brad Plumer`\
 https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/a-fusion-energy-demo-could-be-coming-to-the-us-in-the-next-two-years
-
-**LaCava: 'I'm not looking for any controversy' at this Ryder Cup**\
-`LaCava, Patrick Cantlay's caddie, had words with McIlroy and Shane Lowry after his 18th green celebration at Marco Simone.`\
-https://nytimes.com/athletic/6659104/2025/09/24/ryder-cup-joe-lacava-rory-mcilroy-caddie-hat/
-
-**With Sobs and Doubts, Greenlandic Women Receive Apology for Forced Contraception**\
-`Some Greenlanders asked why an apology had not come decades earlier, and chalked up the timing to tensions over President Trump’s aim of annexing the island.`\
-https://nytimes.com/2025/09/24/world/europe/denmark-greenland-apology-birth-control.html
-
-**Judge Rebukes Trump Officials for Saying Mangione Is a Killer**\
-`They echoed the president’s characterization of Mr. Mangione, even though the judge had warned of endangering a fair trial.`\
-https://nytimes.com/2025/09/24/nyregion/luigi-mangione-statements-judge-explanation.html
 

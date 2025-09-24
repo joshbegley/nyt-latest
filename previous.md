@@ -1,3 +1,15 @@
+**Newsom And Wright Give Diverging Takes on Trump’s Climate Policy**\
+`Speaking at The New York Times’s Climate Forward conference, Gov. Gavin Newsom of California slammed President Trump’s comments on climate change at the United Nations, while Energy Secretary Chris Wright said Trump should get the “hero of the climate” award.`\
+https://nytimes.com/video/climate/100000010419580/newsom-climate-trump-wright.html
+
+**Music Festival in Utah Makes Nature Its Venue**\
+`Floating along the Colorado River, the Moab Music Festival offers some of the purest, most intense listening experiences around.`\
+https://nytimes.com/video/arts/music/100000010419702/moab-music-festival-colorado-river.html
+
+**Mets designate Jose Siri for assignment, as Tyrone Taylor returns for final playoff push**\
+`The Mets swapped one centerfielder for another, cutting Siri while bringing Taylor back from the injured list.`\
+https://nytimes.com/athletic/6659307/2025/09/24/new-york-mets-jose-siri-tyrone-taylor/
+
 **One Dead and Two Wounded in Dallas ICE Facility Shooting**\
 `Law enforcement responded to a shooting at an ICE facility on Wednesday morning in Dallas. At least one detainee was killed and two others were critically wounded, officials said.`\
 https://nytimes.com/video/us/100000010419181/dallas-ice-shooting.html
@@ -21,20 +33,4 @@ https://nytimes.com/2025/09/24/world/europe/denmark-greenland-apology-birth-cont
 **Judge Rebukes Trump Officials for Saying Mangione Is a Killer**\
 `They echoed the president’s characterization of Mr. Mangione, even though the judge had warned of endangering a fair trial.`\
 https://nytimes.com/2025/09/24/nyregion/luigi-mangione-statements-judge-explanation.html
-
-**The 9.28.25 Issue**\
-``\
-https://nytimes.com/issue/magazine/2025/09/24/the-92825-issue
-
-**U.S. energy secretary says other countries should pull out of the Paris Agreement.**\
-`By Brad Plumer and Lisa Friedman`\
-https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/us-energy-secretary-says-other-countries-should-pull-out-of-the-paris-agreement
-
-**Jazz C Walker Kessler heads into contract year without extension as talks stall**\
-`In 58 games, Kessler averaged 11.1 points, 12.2 rebounds and 2.4 blocks per game.`\
-https://nytimes.com/athletic/6659110/2025/09/24/jazz-walker-kessler-contract-extension-2026/
-
-**These prospects might be too good for junior hockey, but not quite ready for the NHL. Now what?**\
-`The Sharks, Ducks and Kings each have a prospect that would benefit from more professional experience.`\
-https://nytimes.com/athletic/6654060/2025/09/24/nhl-prospects-sharks-ducks-kings/
 
