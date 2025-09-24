@@ -1,3 +1,19 @@
+**Man City's new counterattacking style is unlocking Haaland's trademark sucker-punch goal**\
+`After years of trying to navigate deep defences, the Norwegian striker is relish running into space again`\
+https://nytimes.com/athletic/6651542/2025/09/24/man-city-haaland-trademark-goal/
+
+**How Premier League teams block shots - and what it says about them**\
+`Arsenal block aggressively, Liverpool block away and Manchester United are... improving. This is how teams block and what it says of them`\
+https://nytimes.com/athletic/6641594/2025/09/24/premier-league-block-shots/
+
+**'Premier League, corrupt as f***': What do fans really mean when they sing it?**\
+`The chant, which often follows even fairly routine refereeing calls, is not to be taken literally but says much about the state of the game`\
+https://nytimes.com/athletic/6651424/2025/09/24/premier-league-chant-fans/
+
+**How Palace went from one of the Premier League's worst at corners to one of the best**\
+`Palace's main approach on attacking corners isn't complicated, but stopping it is easier said than done, as Liverpool may find on Saturday`\
+https://nytimes.com/athletic/6653988/2025/09/24/crystal-palace-corners-liverpool/
+
 **Connections: Sports Edition Coach: Hints for Sept. 24, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6656500/2025/09/24/connections-sports-edition-hints-for-sept-24-2025/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/09/23/pageoneplus/quote-of-the-day-trumps-take-on-autis
 **Aces vs. Fever: Las Vegas routs Indiana to even WNBA semis**\
 `Wilson ended the game with 25 points, nine rebounds and five steals and saw a huge bounceback from her frontcourt partner NaLyssa Smith.`\
 https://nytimes.com/athletic/6656775/2025/09/23/aces-fever-score-results-takeaways-game-2/
-
-**Las Vegas Aces dominate at home, even WNBA semifinals 1-1 against Indiana Fever**\
-`A'ja Wilson led the way with 25 points with another 18 from NaLyssa Smith for the Aces.`\
-https://nytimes.com/athletic/6656774/2025/09/23/las-vegas-aces-indiana-fever-game-2-wnba-semifinals/
-
-**Kyle Tucker timeline remains unclear with playoffs one week away**\
-`The Cubs have only five games left in the regular season, with Tucker sidelined nearly all of September with a left calf injury.`\
-https://nytimes.com/athletic/6656765/2025/09/23/cubs-kyle-tucker-return-playoff/
-
-**Mets vs. Cubs: Big rally gives New York control of final NL wild-card spot**\
-`After the Reds' 4-2 loss to the Pirates earlier in the night, the Mets are in control of their postseason destiny.`\
-https://nytimes.com/athletic/6656529/2025/09/23/mets-cubs-takeaways-game-1-nl-wild-card-race/
-
-**G.O.P. Majority in House Will Shrink After Democrat’s Victory in Arizona**\
-`Adelita Grijalva won a special election on Tuesday in a reliably blue patch of her swing state to fill the seat held by her father before his death this year.`\
-https://nytimes.com/2025/09/23/us/politics/arizona-election-adelita-grijalva-democrat.html
 
