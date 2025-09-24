@@ -1,3 +1,11 @@
+**Micah Parsons returns: Trade aftermath and what Cowboys fans say about it**\
+`Did Dallas get enough in return? Will fans boo or cheer Parsons on Sunday night? Emotions will be high when the Packers visit the Cowboys.`\
+https://nytimes.com/athletic/6656297/2025/09/24/micah-parsons-cowboys-packers-return-trade/
+
+**When MLB adopts ABS challenge system next season who benefits and who loses?**\
+`For Patrick Bailey and other pitch-framing savants, the saving grace is that MLB isn't going full robot.`\
+https://nytimes.com/athletic/6656787/2025/09/24/major-league-baseball-abs-system-reaction-impact/
+
 **Trump’s Big Flip on Ukraine, and a Defiant Jimmy Kimmel**\
 `Plus, robot fight club.`\
 https://nytimes.com/2025/09/24/podcasts/the-headlines/trump-ukraine-jimmy-kimmel.html

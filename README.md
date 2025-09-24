@@ -1,3 +1,7 @@
+**'A blessing and a curse' – Denver Summit and Boston Legacy owners on expansion team building**\
+`Down to Business with Asli Pelit takes you through the fast-paced (and sometimes confusing) corporate side of women's soccer.`\
+https://nytimes.com/athletic/6653699/2025/09/24/nwsl-expansion-denver-summit-boston-legacy/
+
 **Micah Parsons returns: Trade aftermath and what Cowboys fans say about it**\
 `Did Dallas get enough in return? Will fans boo or cheer Parsons on Sunday night? Emotions will be high when the Packers visit the Cowboys.`\
 https://nytimes.com/athletic/6656297/2025/09/24/micah-parsons-cowboys-packers-return-trade/
@@ -5,6 +9,10 @@ https://nytimes.com/athletic/6656297/2025/09/24/micah-parsons-cowboys-packers-re
 **When MLB adopts ABS challenge system next season who benefits and who loses?**\
 `For Patrick Bailey and other pitch-framing savants, the saving grace is that MLB isn't going full robot.`\
 https://nytimes.com/athletic/6656787/2025/09/24/major-league-baseball-abs-system-reaction-impact/
+
+**Caleb Williams had his best game because the Bears' O-line gave him the gift of time**\
+`For the first time in his career, Williams wasn't sacked. The Cowboys defense hit him just once. He can thank his offensive line.`\
+https://nytimes.com/athletic/6655393/2025/09/24/bears-offensive-line-caleb-williams-cowboys/
 
 **Trump’s Big Flip on Ukraine, and a Defiant Jimmy Kimmel**\
 `Plus, robot fight club.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6656498/2025/09/24/charlie-morton-final-week-braves
 **New York's Ryder Cup could be the loudest golf tournament ever. That’s a good thing**\
 `There's nothing harder in sports right now than winning a road Ryder Cup, and New Yorkers will almost certainly make sure that stays intact.`\
 https://nytimes.com/athletic/6653337/2025/09/24/ryder-cup-2025-bethpage-black-new-york-fans/
-
-**How Penn State put collective chaos in the past and got its money right for 2025**\
-`At the dawn of the NIL era, key Penn State supporters were working to bring the Nittany Lions up to speed. Just not all together.`\
-https://nytimes.com/athletic/6655800/2025/09/24/penn-state-nil-collectives-football-roster/
-
-**Las Vegas star A'ja Wilson found another level of leadership to guide Aces to semifinals win**\
-`The Aces throttled the Fever for a Game 2 victory behind Wilson's 25 points.`\
-https://nytimes.com/athletic/6657032/2025/09/24/aja-wilson-las-vegas-aces-leaderhip/
 
