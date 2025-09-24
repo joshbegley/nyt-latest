@@ -1,3 +1,11 @@
+**Inside the suite when Roger Goodell hung out with YouTube's CEO: MoneyCall**\
+`More in this week's sports business cheat sheet: NFL Front Office Rankings, Ryder Cup, Arch Manning, 64-team World Cup and... Harry Styles?`\
+https://nytimes.com/athletic/6658181/2025/09/24/roger-goodell-neal-mohan-youtube-nfl-moneycall/
+
+**Small Plane Crashes in Brazil, Killing Chinese Architect**\
+`Kongjian Yu, a prominent landscape architect, and three other people were killed when the aircraft crashed in a wetlands region.`\
+https://nytimes.com/2025/09/24/world/americas/brazil-plane-crash-architect-kongjian-yu.html
+
 **Michael Irvin, Sebastian the Ibis are at heart of Miami getting 'its swag back'**\
 `As Miami football reaches its highest ranking in eight seasons, the team is regaining its swagger thanks to Michael Irvin and a mascot.`\
 https://nytimes.com/athletic/6656004/2025/09/24/michael-irvin-sebastian-ibis-miami/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/supplying
 **U.K. Endures a Trump Scolding at U.N., Days After Lavish State Visit**\
 `President Trump said Europe is “going to hell” and implicitly rebuked Britain on immigration, despite making extended visits to the country and enjoying its hospitality.`\
 https://nytimes.com/2025/09/24/world/europe/trump-uk.html
-
-**Why is Gianfranco Zola driving a buggy with Europe's Ryder Cup team?**\
-`The ex-Italy international footballer is assisting countryman Francesco Molinari, Team Europe's vice-captain at Bethpage this week`\
-https://nytimes.com/athletic/6657852/2025/09/24/gianfranco-zola-ryder-cup-buggy/
-
-**Do You Love the W.N.B.A.? Tell Us About Paying for Games.**\
-`The league is nearing the climax of another season of rapid growth. We want to know how that has affected the fan experience.`\
-https://nytimes.com/2025/09/24/your-money/wnba-personal-finance.html
 
