@@ -1,3 +1,15 @@
+**Now Arriving: A New Theory of In-Flight Turbulence**\
+`Physicists have devised a new model to account for the discomfort that airline passengers know all too well.`\
+https://nytimes.com/2025/09/24/science/physics-airplanes-turbulence.html
+
+**Want to Bring a Dog to This Italian City? That Will Be $1.75.**\
+`Bolzano, in northern Italy, is considering taxing tourists’ dogs, and charging resident dog owners an annual fee as well.`\
+https://nytimes.com/2025/09/24/world/europe/bolzano-italy-dog-tax.html
+
+**At Global Climate Summit This Week, U.S. Isolation Was on Full Display**\
+`On Wednesday in New York, countries lined up to say they would accelerate their efforts to cut greenhouse-gas emissions. In staying away, the U.S. was all but alone.`\
+https://nytimes.com/2025/09/24/climate/united-nations-climate-summit-emissions-targets.html
+
 **China for First Time Promises to Reduce Its Greenhouse Gas Emissions**\
 `President Xi Jinping told a U.N. climate summit that China will reduce emissions across its economy, expand renewables sixfold and make electric cars “mainstream.”`\
 https://nytimes.com/2025/09/24/climate/china-emissions-targets-paris.html
