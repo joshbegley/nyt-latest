@@ -1,3 +1,7 @@
+**This May Be the Easiest Way to Make Ratatouille**\
+`Topped with crispy, spiced chickpeas, this nontraditional sheet-pan ratatouille is a perfect place to use the last of summer’s produce.`\
+https://nytimes.com/2025/09/24/dining/how-to-make-easy-ratatouille.html
+
 **Now Arriving: A New Theory of In-Flight Turbulence**\
 `Physicists have devised a new model to account for the discomfort that airline passengers know all too well.`\
 https://nytimes.com/2025/09/24/science/physics-airplanes-turbulence.html
