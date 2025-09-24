@@ -1,3 +1,11 @@
+**Tennis players send second letters to Grand Slams pushing for reform**\
+`The letter was sent to all four majors on July 30 and was signed by almost all of the world’s leading players.`\
+https://nytimes.com/athletic/6657340/2025/09/24/tennis-reform-letter-grand-slams/
+
+**Mirtle: Why the Maple Leafs should still be a dangerous offensive team this season**\
+`The Maple Leafs' scoring was down a year ago. Mitch Marner is gone. Will Toronto's offence fall flat in 2025-26? A statistical analysis.`\
+https://nytimes.com/athletic/6653694/2025/09/24/maple-leafs-preview-offence-goals/
+
 **Can the Justice Department Stay Independent Under Trump?**\
 `The president wants the department to punish his foes and protect his friends.`\
 https://nytimes.com/2025/09/24/us/justice-dept-independence-trump-kimmel.html

@@ -1,3 +1,11 @@
+**Tennis players send second letters to Grand Slams pushing for reform**\
+`The letter was sent to all four majors on July 30 and was signed by almost all of the world’s leading players.`\
+https://nytimes.com/athletic/6657340/2025/09/24/tennis-reform-letter-grand-slams/
+
+**Mirtle: Why the Maple Leafs should still be a dangerous offensive team this season**\
+`The Maple Leafs' scoring was down a year ago. Mitch Marner is gone. Will Toronto's offence fall flat in 2025-26? A statistical analysis.`\
+https://nytimes.com/athletic/6653694/2025/09/24/maple-leafs-preview-offence-goals/
+
 **Can the Justice Department Stay Independent Under Trump?**\
 `The president wants the department to punish his foes and protect his friends.`\
 https://nytimes.com/2025/09/24/us/justice-dept-independence-trump-kimmel.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6654497/2025/09/24/jayden-maiva-diego-pavia-college
 **After summer sit-down, Severson hopes for new path forward with Blue Jackets**\
 `Severson hasn't lit up Columbus the way he or the team had hoped. This season, he wants to play his game.`\
 https://nytimes.com/athletic/6655361/2025/09/24/damon-severson-blue-jackets-defense-preseason/
-
-**Wild player poll: Who will be most stylish and casual under NHL's new dress code?**\
-`The NHL this season will allow players to “dress in a manner consistent with contemporary fashion norms.” What does that mean for the Wild?`\
-https://nytimes.com/athletic/6655163/2025/09/24/wild-player-poll-dress-code/
-
-**Chiesa on his Liverpool status: 'This season is different'**\
-`The 27-year-old only appeared 14 times in all competitions last season for Liverpool.`\
-https://nytimes.com/athletic/6657210/2025/09/24/federico-chiesa-liverpool-season/
 
