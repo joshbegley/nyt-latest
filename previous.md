@@ -1,3 +1,11 @@
+**A Speech and a Shift on Ukraine**\
+`At the United Nations, Trump lectured world leaders — then later abandoned his insistence that Ukraine give up land for a peace deal.`\
+https://nytimes.com/2025/09/24/briefing/donald-trump-un.html
+
+**Inside Yankees’ playoff-clinching celebration: ‘This October, we're coming to prove a point’**\
+`The Yankees' champagne showers were not as wild as they were when they won the AL last season. They say they have unfinished business.`\
+https://nytimes.com/athletic/6656694/2025/09/24/yankees-playoff-clinch-celebration/
+
 **FIFA discusses historic 64-team World Cup expansion at Trump Tower meeting**\
 `Soccer's governing has mulled a historic expansion of the tournament to mark the World Cup's 100th anniversary`\
 https://nytimes.com/athletic/6656846/2025/09/24/world-cup-2030-64-teams-trump/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6641594/2025/09/24/premier-league-block-shots/
 **'Premier League, corrupt as f***': What do fans really mean when they sing it?**\
 `The chant, which often follows even fairly routine refereeing calls, is not to be taken literally but says much about the state of the game`\
 https://nytimes.com/athletic/6651424/2025/09/24/premier-league-chant-fans/
-
-**How Palace went from one of the Premier League's worst at corners to one of the best**\
-`Palace's main approach on attacking corners isn't complicated, but stopping it is easier said than done, as Liverpool may find on Saturday`\
-https://nytimes.com/athletic/6653988/2025/09/24/crystal-palace-corners-liverpool/
-
-**Connections: Sports Edition Coach: Hints for Sept. 24, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6656500/2025/09/24/connections-sports-edition-hints-for-sept-24-2025/
 

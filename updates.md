@@ -1,3 +1,11 @@
+**A Speech and a Shift on Ukraine**\
+`At the United Nations, Trump lectured world leaders — then later abandoned his insistence that Ukraine give up land for a peace deal.`\
+https://nytimes.com/2025/09/24/briefing/donald-trump-un.html
+
+**Inside Yankees’ playoff-clinching celebration: ‘This October, we're coming to prove a point’**\
+`The Yankees' champagne showers were not as wild as they were when they won the AL last season. They say they have unfinished business.`\
+https://nytimes.com/athletic/6656694/2025/09/24/yankees-playoff-clinch-celebration/
+
 **FIFA discusses historic 64-team World Cup expansion at Trump Tower meeting**\
 `Soccer's governing has mulled a historic expansion of the tournament to mark the World Cup's 100th anniversary`\
 https://nytimes.com/athletic/6656846/2025/09/24/world-cup-2030-64-teams-trump/

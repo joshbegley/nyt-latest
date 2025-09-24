@@ -2,7 +2,7 @@
 `At the United Nations, Trump lectured world leaders — then later abandoned his insistence that Ukraine give up land for a peace deal.`\
 https://nytimes.com/2025/09/24/briefing/donald-trump-un.html
 
-**Inside Yankees’ playoff-clinching celebration: ‘This October, we're coming to prove a point’**\
+**Inside Yankees' playoff-clinching celebration: 'This October, we're coming to prove a point'**\
 `The Yankees' champagne showers were not as wild as they were when they won the AL last season. They say they have unfinished business.`\
 https://nytimes.com/athletic/6656694/2025/09/24/yankees-playoff-clinch-celebration/
 
