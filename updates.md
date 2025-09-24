@@ -1,3 +1,7 @@
+**Does the environmental movement need to change its strategy?**\
+`By Claire Brown`\
+https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/does-the-environmental-movement-need-to-change-its-strategy
+
 **Stock watch: Where every Oilers prospect stands entering the season**\
 `The Oilers worked hard to increase the quality and depth in Bakersfield, and that is reflected across this list.`\
 https://nytimes.com/athletic/6653357/2025/09/24/edmonton-oilers-prospects-2025-stock-watch/

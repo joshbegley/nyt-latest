@@ -1,3 +1,7 @@
+**Do You Love the W.N.B.A.? Tell Us About Paying for Games.**\
+`The league is nearing the climax of another season of rapid growth. We want to know how that has affected the fan experience.`\
+https://nytimes.com/2025/09/24/your-money/wnba-personal-finance.html
+
 **Does the environmental movement need to change its strategy?**\
 `By Claire Brown`\
 https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/does-the-environmental-movement-need-to-change-its-strategy
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/can-globa
 **Olabe replacing Monchi a 'normal transition' for Villa, Emery says**\
 `The former president of football operations had been at the club for two years before being replaced on Tuesday.`\
 https://nytimes.com/athletic/6657868/2025/09/24/monchi-aston-villa-unai-emery-normal-transition/
-
-**Sister Jean, who cheered on Loyola Chicago's Final Four run, retires at 106**\
-`Sister Jean became a national symbol of the Ramblers' feel-good underdog story in 2018.`\
-https://nytimes.com/athletic/6657866/2025/09/24/sister-jean-loyola-chicago-retires/
 

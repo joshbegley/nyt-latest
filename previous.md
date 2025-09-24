@@ -1,3 +1,7 @@
+**Does the environmental movement need to change its strategy?**\
+`By Claire Brown`\
+https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/does-the-environmental-movement-need-to-change-its-strategy
+
 **Stock watch: Where every Oilers prospect stands entering the season**\
 `The Oilers worked hard to increase the quality and depth in Bakersfield, and that is reflected across this list.`\
 https://nytimes.com/athletic/6653357/2025/09/24/edmonton-oilers-prospects-2025-stock-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6657868/2025/09/24/monchi-aston-villa-unai-emery-no
 **Sister Jean, who cheered on Loyola Chicago's Final Four run, retires at 106**\
 `Sister Jean became a national symbol of the Ramblers' feel-good underdog story in 2018.`\
 https://nytimes.com/athletic/6657866/2025/09/24/sister-jean-loyola-chicago-retires/
-
-**Israel-Premier Tech title sponsor calls for removal of 'Israel' from cycling team name**\
-`Protests directed at the cycling team contributed to three stages of the Vuelta being neutralised due to rider safety concerns.`\
-https://nytimes.com/athletic/6657465/2025/09/24/israel-premier-tech-vuelta-protests-sponsor/
 
