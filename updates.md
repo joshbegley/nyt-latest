@@ -1,3 +1,11 @@
+**Multiple People Wounded in Shooting at Dallas ICE Facility**\
+`The circumstances of the shooting were not yet clear. Federal authorities said there were “multiple injuries and fatalities.”`\
+https://nytimes.com/2025/09/24/us/ice-dallas-shooting.html
+
+**Israeli Strike Kills Gazans Sheltering in Warehouse, Local Reports Say**\
+`The Israeli attack in Gaza City killed nearly two dozen Palestinians, the reports said. The Israeli military said it had hit two “Hamas terrorists.”`\
+https://nytimes.com/2025/09/24/world/middleeast/israel-strike-gaza-city-civilians.html
+
 **How Did Late-Night Get So Political? It Didn’t Start With Trump**\
 `The hosts’ monologues may feel especially pointed right now, but the trend really took off during the George W. Bush administration before the Iraq war.`\
 https://nytimes.com/2025/09/24/arts/television/jimmy-kimmel-late-night-politics-trump.html
