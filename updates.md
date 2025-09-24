@@ -1,3 +1,7 @@
+**A Shooter Opened Fire on a Dallas ICE Facility**\
+`Also, we answer your vaccine questions. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/09/24/briefing/ice-shooting-vaccine-questions-answered.html
+
 **Why Did Apple Get Cold Feet About ‘Savant’?**\
 `The company postpones a drama about domestic terrorism on its Apple TV+ streaming service.`\
 https://nytimes.com/2025/09/24/arts/television/the-savant-apple-tv-plus.html

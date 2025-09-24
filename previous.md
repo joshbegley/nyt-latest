@@ -1,3 +1,7 @@
+**A Shooter Opened Fire on a Dallas ICE Facility**\
+`Also, we answer your vaccine questions. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/09/24/briefing/ice-shooting-vaccine-questions-answered.html
+
 **How Trump Strikes Radically Different Tones in Public and Private**\
 `At the United Nations, world leaders got to see both sides of President Trump: bellicose in public and far more conciliatory in private.`\
 https://nytimes.com/2025/09/24/us/politics/trump-united-nations-tones.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/24/world/syria-un-ukraine-iran-china-climate.html
 **Akiko Tsuruga, Inventive Jazz Organist, Dies at 58**\
 `Known for her vast sonic palette, she made her mark playing with the saxophone master Lou Donaldson and also had a prolific solo career.`\
 https://nytimes.com/2025/09/24/arts/music/akiko-tsuruga-dead.html
-
-**A Flash of Anger on India’s Delicate Border With China**\
-`Protesters demanding statehood for Ladakh, a strategically important Himalayan region, clashed with the police.`\
-https://nytimes.com/2025/09/24/world/asia/ladakh-protests-india.html
 
