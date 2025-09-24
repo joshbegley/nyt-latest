@@ -1,3 +1,11 @@
+**U.N. Security Council raises the alarm on the potential dangers of A.I.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2025/09/24/world/un-general-assembly-ukraine/un-security-council-raises-the-alarm-on-the-potential-dangers-of-ai
+
+**Lawsuit aims to block Panda Express owners from buying stake in Trail Blazers**\
+`Andrew and Peggy Cherng, who own Panda Express, are among the group led by Carolina Hurricanes owner Tom Dundon to acquire the Blazers.`\
+https://nytimes.com/athletic/6659514/2025/09/24/trail-blazers-sale-lawsuit-minority-stake/
+
 **Trump Is Building the Blue Scare**\
 `Since Charlie Kirk’s assassination, the Trump administration has been threatening to retaliate against the “radical left.” This response has echoes in American history — in the Red Scare.`\
 https://nytimes.com/video/opinion/100000010415398/trump-is-building-the-blue-scare.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/24/business/media/jimmy-kimmel-ratings.html
 **U.S. and Russian Officials Meet at U.N. After Trump’s Unexpected Shift on Ukraine**\
 `American and Russian officials discussed the need for a resolution to the war, according to statements from each side. But their descriptions of the gathering starkly contrasted.`\
 https://nytimes.com/2025/09/24/us/politics/rubio-us-lavrov-russia-meet.html
-
-**Tiny Love Stories: ‘I Was Taken Aback by Her Past’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2025/09/24/style/tiny-modern-love-stories-i-was-taken-aback-by-her-past.html
-
-**A Shooter Opened Fire on a Dallas ICE Facility**\
-`Also, we answer your vaccine questions. Here’s the latest at the end of Wednesday.`\
-https://nytimes.com/2025/09/24/briefing/ice-shooting-vaccine-questions-answered.html
 
