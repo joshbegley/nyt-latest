@@ -1,3 +1,7 @@
+**They're from here, there and everywhere: How Team Europe has evolved**\
+`"It’s something that happens without us being totally conscious of it or worried about it. It’s organic.”`\
+https://nytimes.com/athletic/6654993/2025/09/24/ryder-cup-2025-europe-where-from/
+
 **The 2025-26 NHL prospects viewing guide: How to watch the CHL, NCAA, SHL and more**\
 `Bookmark this page as your primer to follow all of the leagues outside the NHL for the 2025-26 season.`\
 https://nytimes.com/athletic/6643845/2025/09/24/nhl-prospects-watch-ncaa-chl-guide/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6655393/2025/09/24/bears-offensive-line-caleb-willi
 **Trump’s Big Flip on Ukraine, and a Defiant Jimmy Kimmel**\
 `Plus, robot fight club.`\
 https://nytimes.com/2025/09/24/podcasts/the-headlines/trump-ukraine-jimmy-kimmel.html
-
-**A 10-day stay in Europe? How the Vikings are handling an unprecedented overseas trip**\
-`There are a lot of logistics involved in transporting a football team (and 37,000 pounds of gear) to Dublin and London for two NFL games. `\
-https://nytimes.com/athletic/6655591/2025/09/24/minnesota-vikings-nfl-dublin-london/
 
