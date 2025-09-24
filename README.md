@@ -1,3 +1,19 @@
+**Google and Microsoft executives say their climate goals are still achievable.**\
+`By Claire Brown`\
+https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/google-and-microsoft-executives-say-their-climate-goals-are-still-achievable
+
+**Read the Letter to the Inspectors General**\
+`Senators Elizabeth Warren and Elissa Slotkin wrote a letter to the acting inspectors general at State and Commerce, as well as the Office of Government Ethics to investigate whether Trump administration officials violated ethics rules.`\
+https://nytimes.com/interactive/2025/09/24/us/warrenslotkinletterrequestingoiginvestigationintouaechipscorruption.html
+
+**After underachieving Giants get eliminated, Logan Webb looks to future**\
+`Just 11 days earlier, the Giants had taken the field in a virtual tie with the Mets for the third and final wild-card spot. `\
+https://nytimes.com/athletic/6657172/2025/09/24/giants-playoff-wild-card-logan-webb/
+
+**Trump Aides’ Involvement in Giant Chips and Crypto Deals Draws Ethics Scrutiny**\
+`Democrats in Congress and ethics lawyers are calling for an investigation into potential ethics violations related to United Arab Emirates deals.`\
+https://nytimes.com/2025/09/24/us/politics/trump-witkoff-sacks-saudi-chips-crypto.html
+
 **It's early, but Sam Darnold has been as advertised (and more) for the Seahawks so far**\
 `Darnold has hit the checkdowns but also the explosive plays, even without an efficient run game to help him.`\
 https://nytimes.com/athletic/6656492/2025/09/24/sam-darnold-seahawks-klint-kubiak/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6656004/2025/09/24/michael-irvin-sebastian-ibis-mia
 **The Windup: An unprecedented slide continues**\
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/6658218/2025/09/24/tigers-guardians-mlb-playoffs-the-windup/
-
-**Getting ready for the Ballon d'Or with Real Madrid's Caroline Weir**\
-`Weir is the first Scottish woman to be nominated for prestigious award, and was the only Real Madrid player attending the ceremony`\
-https://nytimes.com/athletic/6654131/2025/09/24/ballon-dor-real-madrid-caroline-weir/
-
-**Jimmy Kimmel Rose to the Occasion**\
-`His disappearance from the airwaves was not the worst-case scenario.`\
-https://nytimes.com/2025/09/24/opinion/culture/jimmy-kimmel-rose-to-the-occasion.html
-
-**A Sheet-Pan Salmon Dinner With Plenty of Verve**\
-`Horseradish roasted salmon with mustard potatoes is a bright but comforting dish, perfect for easing into fall.`\
-https://nytimes.com/2025/09/24/dining/a-sheet-pan-salmon-dinner-with-plenty-of-verve.html
-
-**How This Woman Lived to 117**\
-`Spanish researchers say Maria Branyas Morera won a genetic lottery. But experts caution that healthy genes and microbiomes don’t explain longevity on their own.`\
-https://nytimes.com/2025/09/24/health/maria-branyas-longevity-genes-microbiome.html
 
