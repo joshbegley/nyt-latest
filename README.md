@@ -1,3 +1,7 @@
+**Zelensky Issues Call to Arms, Saying Global Institutions Have Failed**\
+`President Volodymyr Zelensky said more weapons were needed to defend his country and the free world, blaming Russia for spurring a dangerous new arms race.`\
+https://nytimes.com/2025/09/24/world/europe/unga-zelensky.html
+
 **London’s Mayor Hits Back at Trump, Calling Him Islamophobic**\
 `After President Trump called him a “terrible, terrible mayor,” Sadiq Khan, who is Muslim, said the president was racist and Islamophobic.`\
 https://nytimes.com/video/world/europe/100000010418412/london-mayor-trump-comments.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6656492/2025/09/24/sam-darnold-seahawks-klint-kubia
 **NFL Week 4 survivor pool picks, strategy: West Coast (teams), best coast**\
 `Our survivor columnists are picking West Coast teams this week for their chalk picks. And picking against Bears, Titans in contrarian picks.`\
 https://nytimes.com/athletic/6655950/2025/09/24/nfl-week-4-survivor-pool-picks-strategy-chargers-rams/
-
-**Inside the suite when Roger Goodell hung out with YouTube's CEO: MoneyCall**\
-`More in this week's sports business cheat sheet: NFL Front Office Rankings, Ryder Cup, Arch Manning, 64-team World Cup and... Harry Styles?`\
-https://nytimes.com/athletic/6658181/2025/09/24/roger-goodell-neal-mohan-youtube-nfl-moneycall/
 
