@@ -1,3 +1,7 @@
+**After Dallas Shooting, a Rush to Score Political Points Before the Facts Are In**\
+`In the aftermath of a violent episode, political figures quickly engaged with one another on social media.`\
+https://nytimes.com/2025/09/24/style/jd-vance-jon-favreau-dallas-shooting.html
+
 **Gunman Opens Fire on ICE Office in Dallas, Killing a Detainee**\
 `The shooter, who killed himself, also wounded two detainees in an attack that raised new fears about political violence in the United States.`\
 https://nytimes.com/2025/09/24/us/dallas-ice-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/24/us/politics/trump-government-watchdogs.html
 **Richard Moe, 88, Dies; Led the National Trust for Historic Preservation**\
 `After serving as an aide to Vice President Walter Mondale, he spent 17 years at the forefront of the fight to save numerous endangered landmarks.`\
 https://nytimes.com/2025/09/24/us/politics/richard-moe-dead.html
-
-**Trump Administration Bars Some Giant Brand Bicycles, Citing Forced Labor**\
-`The Trump administration said it would begin seizing Giant brand bicycles manufactured in Taiwan at the U.S. border, after an investigation found evidence of forced labor.`\
-https://nytimes.com/2025/09/24/business/economy/giant-bicycles-forced-labor.html
 
