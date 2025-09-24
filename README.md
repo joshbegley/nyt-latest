@@ -1,3 +1,15 @@
+**London’s Mayor Hits Back at Trump, Calling Him Islamophobic**\
+`After President Trump called him a “terrible, terrible mayor,” Sadiq Khan, who is Muslim, said the president was racist and Islamophobic.`\
+https://nytimes.com/video/world/europe/100000010418412/london-mayor-trump-comments.html
+
+**Law Enforcement Responds to Shooting at ICE Facility**\
+`Law enforcement vehicles responded to an ICE facility in Dallas after a shooting Wednesday morning.`\
+https://nytimes.com/video/us/100000010418701/dallas-ice-shooting.html
+
+**For First Time in 58 Years, a Syrian Leader Will Address the General Assembly**\
+`When President Ahmed al-Shara speaks at the United Nations in New York today, he will seek to present an updated picture of his turbulent nation.`\
+https://nytimes.com/2025/09/24/world/syria-president-un-general-assembly.html
+
 **Google and Microsoft executives say their climate goals are still achievable.**\
 `By Claire Brown`\
 https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/google-and-microsoft-executives-say-their-climate-goals-are-still-achievable
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6655950/2025/09/24/nfl-week-4-survivor-pool-picks-s
 **Inside the suite when Roger Goodell hung out with YouTube's CEO: MoneyCall**\
 `More in this week's sports business cheat sheet: NFL Front Office Rankings, Ryder Cup, Arch Manning, 64-team World Cup and... Harry Styles?`\
 https://nytimes.com/athletic/6658181/2025/09/24/roger-goodell-neal-mohan-youtube-nfl-moneycall/
-
-**Small Plane Crashes in Brazil, Killing Chinese Architect**\
-`Kongjian Yu, a prominent landscape architect, and three other people were killed when the aircraft crashed in a wetlands region.`\
-https://nytimes.com/2025/09/24/world/americas/brazil-plane-crash-architect-kongjian-yu.html
-
-**Michael Irvin, Sebastian the Ibis are at heart of Miami getting 'its swag back'**\
-`As Miami football reaches its highest ranking in eight seasons, the team is regaining its swagger thanks to Michael Irvin and a mascot.`\
-https://nytimes.com/athletic/6656004/2025/09/24/michael-irvin-sebastian-ibis-miami/
-
-**The Windup: An unprecedented slide continues**\
-`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
-https://nytimes.com/athletic/6658218/2025/09/24/tigers-guardians-mlb-playoffs-the-windup/
 
