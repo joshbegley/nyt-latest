@@ -1,3 +1,7 @@
+**At a Times Event, Opposing Views on Climate Change Collide**\
+`In a day of live journalism, California’s governor assailed President Trump, and the U.S. energy secretary called for countries to quit the Paris Agreement on global warming.`\
+https://nytimes.com/2025/09/24/climate/climate-forward-gavin-newsom-chris-wright.html
+
 **Woman, 50, Killed by Midtown Manhattan Driver in Hit-and-Run Crash**\
 `A driver hit the woman and her husband, both pedestrians, near Bryant Park on Wednesday afternoon. Her husband, 55, was injured and was in stable condition at a hospital, the police said.`\
 https://nytimes.com/2025/09/24/nyregion/midtown-hit-run-woman-killed.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6659514/2025/09/24/trail-blazers-sale-lawsuit-minor
 **Trump Is Building the Blue Scare**\
 `Since Charlie Kirk’s assassination, the Trump administration has been threatening to retaliate against the “radical left.” This response has echoes in American history — in the Red Scare.`\
 https://nytimes.com/video/opinion/100000010415398/trump-is-building-the-blue-scare.html
-
-**The Danger of Vengeance After the Kirk Shooting**\
-`The political theorist Corey Robin examines the role of vengeance in the right’s response to the assassination of Charlie Kirk.`\
-https://nytimes.com/video/opinion/100000010415400/the-danger-of-vengeance-after-the-kirk-shooting.html
 

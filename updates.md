@@ -1,3 +1,7 @@
+**At a Times Event, Opposing Views on Climate Change Collide**\
+`In a day of live journalism, California’s governor assailed President Trump, and the U.S. energy secretary called for countries to quit the Paris Agreement on global warming.`\
+https://nytimes.com/2025/09/24/climate/climate-forward-gavin-newsom-chris-wright.html
+
 **Woman, 50, Killed by Midtown Manhattan Driver in Hit-and-Run Crash**\
 `A driver hit the woman and her husband, both pedestrians, near Bryant Park on Wednesday afternoon. Her husband, 55, was injured and was in stable condition at a hospital, the police said.`\
 https://nytimes.com/2025/09/24/nyregion/midtown-hit-run-woman-killed.html
