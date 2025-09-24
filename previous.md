@@ -1,3 +1,11 @@
+**Can the Justice Department Stay Independent Under Trump?**\
+`The president wants the department to punish his foes and protect his friends.`\
+https://nytimes.com/2025/09/24/us/justice-dept-independence-trump-kimmel.html
+
+**Rams mailbag: What positives from narrow loss to Eagles can be taken into Week 4?**\
+`Plus, we break down the questionable play call by Sean McVay in a key moment and list one free-agent CB who could help the secondary.`\
+https://nytimes.com/athletic/6655703/2025/09/24/rams-mailbag-loss-eagles/
+
 **College football Week 5 streaming guide: Oregon-Penn State, Bama-Georgia, sleeper games**\
 `Week 5 of the college football season serves up a top-six battle between Oregon and Penn State, plus conference clashes and sleeper games.`\
 https://nytimes.com/athletic/6655479/2025/09/24/alabama-georgia-oregon-penn-state-college-football-how-to-watch/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6655163/2025/09/24/wild-player-poll-dress-code/
 **Chiesa on his Liverpool status: 'This season is different'**\
 `The 27-year-old only appeared 14 times in all competitions last season for Liverpool.`\
 https://nytimes.com/athletic/6657210/2025/09/24/federico-chiesa-liverpool-season/
-
-**Sabres stock watch: Konsta Helenius and 5 others who helped their case in camp**\
-`Two preseason wins against the Columbus Blue Jackets have given Ruff a chance to evaluate players and prospects.`\
-https://nytimes.com/athletic/6656814/2025/09/24/sabres-preseason-stock-watch-helenius-mrtka/
-
-**From Joel Embiid to Quentin Grimes, 5 things to watch as the 76ers open camp**\
-`Heading into training camp, they are a team with a healthy amount of storylines. Or an unhealthy amount. It's a matter of perspective.`\
-https://nytimes.com/athletic/6653257/2025/09/24/joel-embiid-quentin-grimes-sixers-things-to-watch/
 

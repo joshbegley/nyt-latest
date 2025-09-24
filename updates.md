@@ -1,3 +1,11 @@
+**Can the Justice Department Stay Independent Under Trump?**\
+`The president wants the department to punish his foes and protect his friends.`\
+https://nytimes.com/2025/09/24/us/justice-dept-independence-trump-kimmel.html
+
+**Rams mailbag: What positives from narrow loss to Eagles can be taken into Week 4?**\
+`Plus, we break down the questionable play call by Sean McVay in a key moment and list one free-agent CB who could help the secondary.`\
+https://nytimes.com/athletic/6655703/2025/09/24/rams-mailbag-loss-eagles/
+
 **College football Week 5 streaming guide: Oregon-Penn State, Bama-Georgia, sleeper games**\
 `Week 5 of the college football season serves up a top-six battle between Oregon and Penn State, plus conference clashes and sleeper games.`\
 https://nytimes.com/athletic/6655479/2025/09/24/alabama-georgia-oregon-penn-state-college-football-how-to-watch/
