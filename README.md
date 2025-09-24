@@ -1,3 +1,11 @@
+**It's early, but Sam Darnold has been as advertised (and more) for the Seahawks so far**\
+`Darnold has hit the checkdowns but also the explosive plays, even without an efficient run game to help him.`\
+https://nytimes.com/athletic/6656492/2025/09/24/sam-darnold-seahawks-klint-kubiak/
+
+**NFL Week 4 survivor pool picks, strategy: West Coast (teams), best coast**\
+`Our survivor columnists are picking West Coast teams this week for their chalk picks. And picking against Bears, Titans in contrarian picks.`\
+https://nytimes.com/athletic/6655950/2025/09/24/nfl-week-4-survivor-pool-picks-strategy-chargers-rams/
+
 **Inside the suite when Roger Goodell hung out with YouTube's CEO: MoneyCall**\
 `More in this week's sports business cheat sheet: NFL Front Office Rankings, Ryder Cup, Arch Manning, 64-team World Cup and... Harry Styles?`\
 https://nytimes.com/athletic/6658181/2025/09/24/roger-goodell-neal-mohan-youtube-nfl-moneycall/
@@ -14,6 +22,10 @@ https://nytimes.com/athletic/6656004/2025/09/24/michael-irvin-sebastian-ibis-mia
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/6658218/2025/09/24/tigers-guardians-mlb-playoffs-the-windup/
 
+**Getting ready for the Ballon d'Or with Real Madrid's Caroline Weir**\
+`Weir is the first Scottish woman to be nominated for prestigious award, and was the only Real Madrid player attending the ceremony`\
+https://nytimes.com/athletic/6654131/2025/09/24/ballon-dor-real-madrid-caroline-weir/
+
 **Jimmy Kimmel Rose to the Occasion**\
 `His disappearance from the airwaves was not the worst-case scenario.`\
 https://nytimes.com/2025/09/24/opinion/culture/jimmy-kimmel-rose-to-the-occasion.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/24/dining/a-sheet-pan-salmon-dinner-with-plenty-of-v
 **How This Woman Lived to 117**\
 `Spanish researchers say Maria Branyas Morera won a genetic lottery. But experts caution that healthy genes and microbiomes don’t explain longevity on their own.`\
 https://nytimes.com/2025/09/24/health/maria-branyas-longevity-genes-microbiome.html
-
-**‘Sharp Corner,’ ‘Last Breath’ and More Streaming Gems**\
-`A handful of this year’s best unsung indies topline our off-the-grid streaming recommendations for this month, along with a handful of star vehicles that might have escaped your attention.`\
-https://nytimes.com/2025/09/24/movies/sharp-corner-last-breath-streaming-surprises.html
-
-**Supplying clean energy so hundreds of millions can ‘live a productive life.’**\
-`By Claire Brown`\
-https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/supplying-clean-energy-so-hundreds-of-millions-can-live-a-productive-life
-
-**U.K. Endures a Trump Scolding at U.N., Days After Lavish State Visit**\
-`President Trump said Europe is “going to hell” and implicitly rebuked Britain on immigration, despite making extended visits to the country and enjoying its hospitality.`\
-https://nytimes.com/2025/09/24/world/europe/trump-uk.html
 
