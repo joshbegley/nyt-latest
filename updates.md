@@ -1,3 +1,7 @@
+**FIFA discusses historic 64-team World Cup expansion at Trump Tower meeting**\
+`Soccer's governing has mulled a historic expansion of the tournament to mark the World Cup's 100th anniversary`\
+https://nytimes.com/athletic/6656846/2025/09/24/world-cup-2030-64-teams-trump/
+
 **Destiny Udogie and Djed Spence are giving Spurs a selection dilemma**\
 `Spurs possess two excellent left-backs, both of whom would be a worthy starter for most teams. But who should be first-choice?`\
 https://nytimes.com/athletic/6654248/2025/09/24/destiny-udogie-djed-spence-spurs/
