@@ -1,3 +1,7 @@
+**Cubs' Matt Shaw says friendship with Charlie Kirk led to missing game for memorial service**\
+`Shaw confirmed he also requested some time off immediately after Kirk’s death.`\
+https://nytimes.com/athletic/6656596/2025/09/23/chicago-cubs-matt-shaw-charlie-kirk-absence/
+
 **Yankees clinch playoff spot: After bumpy season, are they peaking at right time?**\
 `This season has been far from a smooth ride for the Yankees, but they're back in the playoffs. And they could be peaking at the right time.`\
 https://nytimes.com/athletic/6656025/2025/09/23/yankees-clinch-mlb-playoff-spot/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/09/23/world/un-general-assembly-trump/poland-presi
 **U.N. Escalator Stops Right as Trump Steps On**\
 `An escalator stopped at the U.N. General Assembly as President Trump and the first lady were arriving Tuesday morning.`\
 https://nytimes.com/video/us/100000010417829/trump-escalator-un-conspiracies.html
-
-**Escalator Malfunction at U.N. Sets Off Conspiracy Theories**\
-`A sudden stop just as President Trump stepped on the stairs may have been caused by the triggering of a safety mechanism, the U.N. said.`\
-https://nytimes.com/2025/09/23/world/trump-escalator-un-conspiracies.html
 
