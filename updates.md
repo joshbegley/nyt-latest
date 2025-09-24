@@ -1,3 +1,15 @@
+**Aid Flotilla Headed for Gaza Says It’s Under Drone Attack**\
+`The vessels were aiming to deliver humanitarian aid to Gaza. The Israelis have asked that the aid be given to them to distribute.`\
+https://nytimes.com/2025/09/23/world/middleeast/gaza-aid-flotilla-drone-attack.html
+
+**Phoenix Mercury secures OT win against Minnesota Lynx to even WNBA semifinals**\
+`Alyssa Thomas fueled the Mercury's second-half comeback.`\
+https://nytimes.com/athletic/6656595/2025/09/23/phoenix-mercury-overtime-minnesota-lynx-wnba-semifinals/
+
+**Moulton Readies Primary Challenge Against Markey in Massachusetts**\
+`The coming Senate collision in the deep-blue state will be a test of the Democratic Party’s appetite for generational change.`\
+https://nytimes.com/2025/09/23/us/politics/seth-moulton-ed-markey-senate.html
+
 **Trump at the U.N.: ‘Your Countries Are Going to Hell’**\
 `President Trump’s speech at the United Nations took an isolating stance. David Sanger, a White House correspondent for The New York Times, explains what that means for the United States.`\
 https://nytimes.com/video/us/politics/100000010416192/trump-at-the-un-your-countries-are-going-to-hell.html
