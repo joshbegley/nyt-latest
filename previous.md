@@ -1,3 +1,7 @@
+**Wounded Gazan Children Flown to Abu Dhabi for Treatment**\
+`A recent flight to the United Arab Emirates from Israel carried 155 Palestinians in need of medical treatment, most of them children. It was the latest in a string of evacuations facilitated by the Emirates and the World Health Organization.`\
+https://nytimes.com/video/world/middleeast/100000010375764/evacuation-flight-gaza-injured.html
+
 **They're from here, there and everywhere: How Team Europe has evolved**\
 `"It’s something that happens without us being totally conscious of it or worried about it. It’s organic.”`\
 https://nytimes.com/athletic/6654993/2025/09/24/ryder-cup-2025-europe-where-from/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6656787/2025/09/24/major-league-baseball-abs-system
 **Caleb Williams had his best game because the Bears' O-line gave him the gift of time**\
 `For the first time in his career, Williams wasn't sacked. The Cowboys defense hit him just once. He can thank his offensive line.`\
 https://nytimes.com/athletic/6655393/2025/09/24/bears-offensive-line-caleb-williams-cowboys/
-
-**Trump’s Big Flip on Ukraine, and a Defiant Jimmy Kimmel**\
-`Plus, robot fight club.`\
-https://nytimes.com/2025/09/24/podcasts/the-headlines/trump-ukraine-jimmy-kimmel.html
 

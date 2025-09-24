@@ -1,3 +1,12 @@
+**Wounded Gazan Children Flown to Abu Dhabi for Treatment**\
+`A recent flight to the United Arab Emirates from Israel carried 155 Palestinians in need of medical treatment, most of them children. It was the latest in a string of evacuations facilitated by the Emirates and the World Health Organization.`\
+https://nytimes.com/video/world/middleeast/100000010375764/evacuation-flight-gaza-injured.html
+
+**How Dylan Cozens is dealing with the 'pressure' to succeed in Ottawa**\
+`Since arriving in Ottawa at the trade deadline, expectations for the centre making $7.1 million a year to perform well remain high.
+`\
+https://nytimes.com/athletic/6647290/2025/09/24/dylan-cozens-senators-sabres-nhl/
+
 **They're from here, there and everywhere: How Team Europe has evolved**\
 `"It’s something that happens without us being totally conscious of it or worried about it. It’s organic.”`\
 https://nytimes.com/athletic/6654993/2025/09/24/ryder-cup-2025-europe-where-from/

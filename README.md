@@ -1,3 +1,7 @@
+**TAFC: Why are NFL franchise valuations more than EPL clubs? Plus: 64-team World Cup talks**\
+`Today in TAFC: Lack of pro-rel and salary caps are two reasons why EPL clubs lag behind NFL in terms of valuation`\
+https://nytimes.com/athletic/6657257/2025/09/24/nfl-franchises-epl-team-value/
+
 **Wounded Gazan Children Flown to Abu Dhabi for Treatment**\
 `A recent flight to the United Arab Emirates from Israel carried 155 Palestinians in need of medical treatment, most of them children. It was the latest in a string of evacuations facilitated by the Emirates and the World Health Organization.`\
 https://nytimes.com/video/world/middleeast/100000010375764/evacuation-flight-gaza-injured.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6656297/2025/09/24/micah-parsons-cowboys-packers-re
 **When MLB adopts ABS challenge system next season who benefits and who loses?**\
 `For Patrick Bailey and other pitch-framing savants, the saving grace is that MLB isn't going full robot.`\
 https://nytimes.com/athletic/6656787/2025/09/24/major-league-baseball-abs-system-reaction-impact/
-
-**Caleb Williams had his best game because the Bears' O-line gave him the gift of time**\
-`For the first time in his career, Williams wasn't sacked. The Cowboys defense hit him just once. He can thank his offensive line.`\
-https://nytimes.com/athletic/6655393/2025/09/24/bears-offensive-line-caleb-williams-cowboys/
 
