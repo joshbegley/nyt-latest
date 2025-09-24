@@ -1,3 +1,11 @@
+**Surging Diamondbacks, counted out many times over, keep refusing to quit**\
+`On Tuesday night against LA, the Diamondbacks scored five runs in the final three innings, spreading belief beyond their dugout.`\
+https://nytimes.com/athletic/6657116/2025/09/24/arizona-diamondbacks-playoffs-wild-card-dodgers/
+
+**MLB playoff watch: Yankees, Mariners punch tickets; bracket, clinching scenarios**\
+`Plus, the Guardians overtake the Tigers atop the AL Central and matchups to watch on Wednesday.`\
+https://nytimes.com/athletic/6656927/2025/09/24/mlb-playoff-watch-yankees-mariners-clinch-spots/
+
 **What Nebraska's first 4 games revealed, and what's next in an October that could define the season**\
 `Here are four revelations for Nebraska from the first four games of the season.`\
 https://nytimes.com/athletic/6655760/2025/09/24/nebraska-football-what-we-learned/

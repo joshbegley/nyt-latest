@@ -1,3 +1,11 @@
+**Surging Diamondbacks, counted out many times over, keep refusing to quit**\
+`On Tuesday night against LA, the Diamondbacks scored five runs in the final three innings, spreading belief beyond their dugout.`\
+https://nytimes.com/athletic/6657116/2025/09/24/arizona-diamondbacks-playoffs-wild-card-dodgers/
+
+**MLB playoff watch: Yankees, Mariners punch tickets; bracket, clinching scenarios**\
+`Plus, the Guardians overtake the Tigers atop the AL Central and matchups to watch on Wednesday.`\
+https://nytimes.com/athletic/6656927/2025/09/24/mlb-playoff-watch-yankees-mariners-clinch-spots/
+
 **What Nebraska's first 4 games revealed, and what's next in an October that could define the season**\
 `Here are four revelations for Nebraska from the first four games of the season.`\
 https://nytimes.com/athletic/6655760/2025/09/24/nebraska-football-what-we-learned/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6655139/2025/09/24/noni-madueke-arsenal-injury-opti
 **Tennis players send second letters to Grand Slams pushing for reform**\
 `The letter was sent to all four majors on July 30 and was signed by almost all of the world’s leading players.`\
 https://nytimes.com/athletic/6657340/2025/09/24/tennis-reform-letter-grand-slams/
-
-**Mirtle: Why the Maple Leafs should still be a dangerous offensive team this season**\
-`The Maple Leafs' scoring was down a year ago. Mitch Marner is gone. Will Toronto's offence fall flat in 2025-26? A statistical analysis.`\
-https://nytimes.com/athletic/6653694/2025/09/24/maple-leafs-preview-offence-goals/
-
-**Can the Justice Department Stay Independent Under Trump?**\
-`The president wants the department to punish his foes and protect his friends.`\
-https://nytimes.com/2025/09/24/us/justice-dept-independence-trump-kimmel.html
 
