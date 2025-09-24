@@ -1,3 +1,7 @@
+**Wrexham could now have a League Cup shot at a Premier League giant. Should they want it?**\
+`Tuesday's 2-0 victory over Reading put Wrexham into the fourth round of the League Cup for only the fourth time in their history`\
+https://nytimes.com/athletic/6651203/2025/09/24/wrexham-league-cup-premier-league/
+
 **Typhoon Ragasa Floods Hong Kong and Hurtles Toward Southern China**\
 `One million residents of Guangdong, in southern China, were evacuated. The storm left 14 dead in Taiwan.`\
 https://nytimes.com/2025/09/24/world/asia/typhoon-ragasa-hong-kong-china.html
