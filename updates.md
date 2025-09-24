@@ -1,3 +1,15 @@
+**Delays Likely at London Stansted Airport After Small Fire**\
+`The airport’s security area was closed overnight to protect passengers from smoke. It reopened just before dawn, but a spokesman said that disruptions were still likely.`\
+https://nytimes.com/2025/09/24/world/europe/london-stansted-airport-fire.html
+
+**The defensive ploy that is causing Chelsea serious problems**\
+`Enzo Maresca needs to find more creative routes to goal in the continued absence of the injured Cole Palmer`\
+https://nytimes.com/athletic/6656268/2025/09/24/chelsea-tactics-enzo-maresca-problem/
+
+**Like His Suspension, Kimmel’s Return Draws a Partisan Reaction**\
+`Ben Stiller, the actor and comedian, called Mr. Kimmel’s opening words a “brilliant monologue,” while some on the right questioned his authenticity.`\
+https://nytimes.com/2025/09/24/us/politics/jimmy-kimmel-monologue-reaction.html
+
 **Jimmy Kimmel’s Return to Late Night Sparks Reactions From Celebrities and Politicians**\
 `Ben Stiller, the actor and comedian, called Mr. Kimmel’s opening words a “brilliant monologue,” while some on the right questioned his authenticity.`\
 https://nytimes.com/2025/09/24/us/politics/jimmy-kimmel-monologue-reaction.html
