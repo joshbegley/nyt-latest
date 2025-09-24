@@ -1,3 +1,11 @@
+**Collapse of Subway Tunnel in Bangkok Creates Enormous Hole**\
+`The city’s governor said a burst water pipe in an unfinished subway extension appeared to have caused the collapse. A local official said no one was injured.`\
+https://nytimes.com/video/world/asia/100000010418275/bangkok-street-collapse-subway-tunnel-.html
+
+**What are Arsenal's options with Noni Madueke out injured?**\
+`Saka is only just returning from injury himself, so Arteta will not want to throw him in to play every game`\
+https://nytimes.com/athletic/6655139/2025/09/24/noni-madueke-arsenal-injury-options/
+
 **Tennis players send second letters to Grand Slams pushing for reform**\
 `The letter was sent to all four majors on July 30 and was signed by almost all of the world’s leading players.`\
 https://nytimes.com/athletic/6657340/2025/09/24/tennis-reform-letter-grand-slams/
