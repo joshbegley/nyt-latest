@@ -1,3 +1,7 @@
+**Keith Law's non-voting picks for top year-end MLB player awards**\
+`Keith Law makes his hypothetical selections for AL and NL MVP and Cy Young, and AL Rookie of the Year.`\
+https://nytimes.com/athletic/6653052/2025/09/24/mlb-player-award-picks-mvp/
+
 **Red Sox pull out gritty win, holding ground in tumultuous wild-card hunt**\
 `With the win, the Red Sox held onto the second wild-card spot, one game up on floundering Detroit.`\
 https://nytimes.com/athletic/6656851/2025/09/24/red-sox-win-mlb-wild-card-race/

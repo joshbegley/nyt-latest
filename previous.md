@@ -1,7 +1,3 @@
-**Red Sox pull out gritty win, holding ground in tumultuous wild-card hunt**\
-`With the win, the Red Sox held onto the second wild-card spot, one game up on floundering Detroit.`\
-https://nytimes.com/athletic/6656851/2025/09/24/red-sox-win-mlb-wild-card-race/
-
 **Who is José Caballero? Yankees' 'super gritty' newcomer is obsessed with winning**\
 `Caballero is still unknown to many Yankees fans, but to former teammates and coaches, his instant impact in New York is hardly a surprise.`\
 https://nytimes.com/athletic/6656830/2025/09/24/jose-caballero-yankees-infielder-walk-off/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6655479/2025/09/24/alabama-georgia-oregon-penn-stat
 **For Notre Dame's football/lacrosse dual-sport star, there's no offseason**\
 `Three years into his Notre Dame career, Faison is no longer a novelty in either sport he plays, he’s a necessity in both.`\
 https://nytimes.com/athletic/6655237/2025/09/24/jordan-faison-notre-dame-football-lacrosse/
+
+**Keith Law's non-voting picks for top year-end MLB player awards**\
+`Keith Law makes his hypothetical selections for AL and NL MVP and Cy Young, and AL Rookie of the Year.`\
+https://nytimes.com/athletic/6653052/2025/09/24/mlb-player-award-picks-mvp/
 
