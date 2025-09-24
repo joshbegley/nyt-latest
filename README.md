@@ -1,4 +1,12 @@
-**Jimmy Kimmel’s Return to Late Night Sparks Reactions From Celebrities and Politicians**\
+**Delays Likely at London Stansted Airport After Small Fire**\
+`The airport’s security area was closed overnight to protect passengers from smoke. It reopened just before dawn, but a spokesman said that disruptions were still likely.`\
+https://nytimes.com/2025/09/24/world/europe/london-stansted-airport-fire.html
+
+**The defensive ploy that is causing Chelsea serious problems**\
+`Enzo Maresca needs to find more creative routes to goal in the continued absence of the injured Cole Palmer`\
+https://nytimes.com/athletic/6656268/2025/09/24/chelsea-tactics-enzo-maresca-problem/
+
+**Like His Suspension, Kimmel’s Return Draws a Partisan Reaction**\
 `Ben Stiller, the actor and comedian, called Mr. Kimmel’s opening words a “brilliant monologue,” while some on the right questioned his authenticity.`\
 https://nytimes.com/2025/09/24/us/politics/jimmy-kimmel-monologue-reaction.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/24/briefing/donald-trump-un.html
 **Inside Yankees' playoff-clinching celebration: 'This October, we're coming to prove a point'**\
 `The Yankees' champagne showers were not as wild as they were when they won the AL last season. They say they have unfinished business.`\
 https://nytimes.com/athletic/6656694/2025/09/24/yankees-playoff-clinch-celebration/
-
-**FIFA discusses historic 64-team World Cup expansion at Trump Tower meeting**\
-`Soccer's governing has mulled a historic expansion of the tournament to mark the World Cup's 100th anniversary`\
-https://nytimes.com/athletic/6656846/2025/09/24/world-cup-2030-64-teams-trump/
-
-**Destiny Udogie and Djed Spence are giving Spurs a selection dilemma**\
-`Spurs possess two excellent left-backs, both of whom would be a worthy starter for most teams. But who should be first-choice?`\
-https://nytimes.com/athletic/6654248/2025/09/24/destiny-udogie-djed-spence-spurs/
 
