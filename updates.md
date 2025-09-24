@@ -1,3 +1,15 @@
+**An Australian magnate’s challenge to Trump: ‘Come see what’s happening to my land.’**\
+`By Claire Brown and Lisa Friedman`\
+https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/an-australian-magnates-challenge-to-trump-come-see-whats-happening-to-my-land
+
+**What’s in Our Queue? ‘Man’s Best Friend’ and More **\
+`Text by Francesca Regalado`\
+https://nytimes.com/card/2025/09/24/arts/editors-recommendations-mansbestfriend
+
+**Bill McKibben Raises Alarms About U.S. Falling Behind on Green Tech**\
+`In a panel on the future of climate activism, the author Bill McKibben said the U.S. risks falling behind on green tech due to the Trump administration’s rollbacks on environmental initiatives.`\
+https://nytimes.com/video/climate/100000010418801/climate-conference-mckibben-policy.html
+
 **Apple Postpones ‘Savant’ Show About Online Hate Groups**\
 `Jessica Chastain, the show’s star and one of its producers, criticized the decision on social media on Wednesday.`\
 https://nytimes.com/2025/09/24/business/media/apple-postpones-savant.html

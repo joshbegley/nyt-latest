@@ -1,3 +1,15 @@
+**An Australian magnate’s challenge to Trump: ‘Come see what’s happening to my land.’**\
+`By Claire Brown and Lisa Friedman`\
+https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/an-australian-magnates-challenge-to-trump-come-see-whats-happening-to-my-land
+
+**What’s in Our Queue? ‘Man’s Best Friend’ and More **\
+`Text by Francesca Regalado`\
+https://nytimes.com/card/2025/09/24/arts/editors-recommendations-mansbestfriend
+
+**Bill McKibben Raises Alarms About U.S. Falling Behind on Green Tech**\
+`In a panel on the future of climate activism, the author Bill McKibben said the U.S. risks falling behind on green tech due to the Trump administration’s rollbacks on environmental initiatives.`\
+https://nytimes.com/video/climate/100000010418801/climate-conference-mckibben-policy.html
+
 **Apple Postpones ‘Savant’ Show About Online Hate Groups**\
 `Jessica Chastain, the show’s star and one of its producers, criticized the decision on social media on Wednesday.`\
 https://nytimes.com/2025/09/24/business/media/apple-postpones-savant.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6658107/2025/09/24/roma-nice-fan-arrests/
 **Barcelona's Lewandowski plan, Alvarez interest and what it means for Torres**\
 `We reported Barca's interest in Alvarez this week, but what's Flick thinking in the short term?`\
 https://nytimes.com/athletic/6657444/2025/09/24/barcelona-transfers-alvarez-lewandowski-torres/
-
-**A President’s ‘Surreal’ Advice Worries Pregnant Women**\
-`The administration’s guidance to avoid Tylenol and “tough it out” prompted anxiety, especially for expectant women who face pain.`\
-https://nytimes.com/2025/09/24/us/politics/pregnant-women-tylenol-trump.html
-
-**Your Vaccine Questions, Answered**\
-`It can be hard to sort through the conflicting and evolving information about vaccines. Here’s the latest guidance on Covid boosters, flu shots, childhood immunizations and more.`\
-https://nytimes.com/2025/09/24/well/vaccines-covid-flu-mmrv-autism.html
-
-**Zelensky Issues Call to Arms, Saying Global Institutions Have Failed**\
-`President Volodymyr Zelensky said more weapons were needed to defend his country and the free world, blaming Russia for spurring a dangerous new arms race.`\
-https://nytimes.com/2025/09/24/world/europe/unga-zelensky.html
 
