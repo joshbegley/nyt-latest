@@ -1,8 +1,12 @@
+**Destiny Udogie and Djed Spence are giving Spurs a selection dilemma**\
+`Spurs possess two excellent left-backs, both of whom would be a worthy starter for most teams. But who should be first-choice?`\
+https://nytimes.com/athletic/6654248/2025/09/24/destiny-udogie-djed-spence-spurs/
+
 **Postecoglou, Marinakis, and a European odyssey weighted with expectation**\
 `Following Forest’s promotion in 2022, Marinakis said he wanted to see his team back in Europe. He now sees winning trophies as the next step`\
 https://nytimes.com/athletic/6651998/2025/09/24/nottingham-forest-europa-league-postecoglou/
 
-**Mariners come back late to clinch AL postseason berth; eye AL West title**\
+**Mariners come back late to clinch AL postseason berth, eye AL West title**\
 `The Mariners will make their sixth postseason appearance in the team's 49-year history.`\
 https://nytimes.com/athletic/6655478/2025/09/24/seattle-mariners-postseason-berth-clinched/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6656500/2025/09/24/connections-sports-edition-hints
 **‘America Is Not a Safe Place to Work’: Koreans Describe Georgia Raid**\
 `Some of the workers arrested this month at a Hyundai-LG factory said that although they had entered the United States under murky circumstances, they had always planned to return home.`\
 https://nytimes.com/2025/09/24/world/asia/south-korea-georgia-hyundai-ice-raid.html
-
-**Fantasy football rankings Week 4: Sleepers, projections, starts, sits**\
-`Jake Ciely runs through his player rankings for the Week 4 fantasy football slate, eyeing a potential bonanza for the Packers' passing game.`\
-https://nytimes.com/athletic/6655958/2025/09/24/fantasy-football-rankings-week-4-sleepers-projections-starts/
 

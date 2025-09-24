@@ -1,3 +1,11 @@
+**Destiny Udogie and Djed Spence are giving Spurs a selection dilemma**\
+`Spurs possess two excellent left-backs, both of whom would be a worthy starter for most teams. But who should be first-choice?`\
+https://nytimes.com/athletic/6654248/2025/09/24/destiny-udogie-djed-spence-spurs/
+
+**Mariners come back late to clinch AL postseason berth, eye AL West title**\
+`The Mariners will make their sixth postseason appearance in the team's 49-year history.`\
+https://nytimes.com/athletic/6655478/2025/09/24/seattle-mariners-postseason-berth-clinched/
+
 **Postecoglou, Marinakis, and a European odyssey weighted with expectation**\
 `Following Forest’s promotion in 2022, Marinakis said he wanted to see his team back in Europe. He now sees winning trophies as the next step`\
 https://nytimes.com/athletic/6651998/2025/09/24/nottingham-forest-europa-league-postecoglou/
