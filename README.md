@@ -1,3 +1,7 @@
+**One century in Australia, six quicks and an alarming spin figure: England's Ashes squad by numbers**\
+`England's Ashes record Down Under since 2010-11 is miserable: played 15, won 0, lost 13 - so what do the numbers say about Stokes' squad?`\
+https://nytimes.com/athletic/6655159/2025/09/24/england-ashes-squad-root-stokes-numbers/
+
 **Disney Raises Prices for Streaming Plans in the U.S.**\
 `The price hike goes into effect on Oct. 21 and covers the Disney+ service, as well as plans that bundle it with Hulu, ESPN Select and HBO Max.`\
 https://nytimes.com/2025/09/24/business/media/disney-streaming-price-increase.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6657103/2025/09/24/packers-vs-cowboys-stream-how-to
 **Everton's League Cup snub was a missed opportunity to give season extra meaning**\
 `For all the positivity of recent months, Tuesday's League Cup defeat felt like a significant misstep and one that could have been avoided`\
 https://nytimes.com/athletic/6656487/2025/09/24/everton-league-cup-wolves/
-
-**How to watch Twins at Rangers: Time, TV, streaming for September 24**\
-`Find out how to watch the Minnesota Twins play the Texas Rangers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6657077/2025/09/24/twins-vs-rangers-stream-how-to-watch-sept-24/
 
