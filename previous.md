@@ -1,3 +1,11 @@
+**The 9.28.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/09/24/the-92825-issue
+
+**U.S. energy secretary says other countries should pull out of the Paris Agreement.**\
+`By Brad Plumer and Lisa Friedman`\
+https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/us-energy-secretary-says-other-countries-should-pull-out-of-the-paris-agreement
+
 **Jazz C Walker Kessler heads into contract year without extension as talks stall**\
 `In 58 games, Kessler averaged 11.1 points, 12.2 rebounds and 2.4 blocks per game.`\
 https://nytimes.com/athletic/6659110/2025/09/24/jazz-walker-kessler-contract-extension-2026/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/09/24/dining/how-to-make-easy-ratatouille.html
 **Now Arriving: A New Theory of In-Flight Turbulence**\
 `Physicists have devised a new model to account for the discomfort that airline passengers know all too well.`\
 https://nytimes.com/2025/09/24/science/physics-airplanes-turbulence.html
-
-**Want to Bring a Dog to This Italian City? That Will Be $1.75.**\
-`Bolzano, in northern Italy, is considering taxing tourists’ dogs, and charging resident dog owners an annual fee as well.`\
-https://nytimes.com/2025/09/24/world/europe/bolzano-italy-dog-tax.html
-
-**At Global Climate Summit This Week, U.S. Isolation Was on Full Display**\
-`On Wednesday in New York, countries lined up to say they would accelerate their efforts to cut greenhouse-gas emissions. In staying away, the U.S. was all but alone.`\
-https://nytimes.com/2025/09/24/climate/united-nations-climate-summit-emissions-targets.html
 

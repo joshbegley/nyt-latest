@@ -1,3 +1,11 @@
+**The 9.28.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/09/24/the-92825-issue
+
+**U.S. energy secretary says other countries should pull out of the Paris Agreement.**\
+`By Brad Plumer and Lisa Friedman`\
+https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/us-energy-secretary-says-other-countries-should-pull-out-of-the-paris-agreement
+
 **Jazz C Walker Kessler heads into contract year without extension as talks stall**\
 `In 58 games, Kessler averaged 11.1 points, 12.2 rebounds and 2.4 blocks per game.`\
 https://nytimes.com/athletic/6659110/2025/09/24/jazz-walker-kessler-contract-extension-2026/
