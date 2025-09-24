@@ -1,3 +1,15 @@
+**What is the most unpredictable sport and why?**\
+`What are the factors that contribute to the predictability of winning matches - and what does that mean for individual and team sports?`\
+https://nytimes.com/athletic/6653998/2025/09/24/most-unpredictable-sport-golf-tennis-soccer-nfl/
+
+**The S.E.C. Dropped a Complaint Against Its Chairman’s Former Client**\
+`Before Paul Atkins took his position with the regulatory agency, he testified on behalf of Devon Archer. The chairman recused himself when the commission dismissed the case last week.`\
+https://nytimes.com/2025/09/24/us/politics/sec-paul-atkins-devon-archer-trump.html
+
+**Facing elimination, Cardinals young core shows grit in late-inning rally past Giants**\
+`"That was awesome, a great team win," Nolan Arenado said. "It was a really crazy game."`\
+https://nytimes.com/athletic/6656781/2025/09/24/cardinals-win-mlb-wild-card/
+
 **The Blackhawks want Colton Dach to be the power forward they need**\
 `“I like to be physical. I like to play with an edge. I like to chirp," Dach said recently.`\
 https://nytimes.com/athletic/6656950/2025/09/24/blackhawks-colton-dach-nhl-roster/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6657465/2025/09/24/israel-premier-tech-vuelta-prote
 **In Taiwan, Images of a Town Engulfed by Typhoon Ragasa**\
 `Hundreds of firefighters and soldiers dispatched to Guangfu have gone door to door to check for trapped residents.`\
 https://nytimes.com/2025/09/24/world/asia/typhoon-ragasa-guangfu-taiwan-photos.html
-
-**Live Updates: Three People Shot at Dallas ICE Facility**\
-`The circumstances of the shooting were not yet clear. Federal authorities said there were “multiple injuries and fatalities.”`\
-https://nytimes.com/live/2025/09/24/us/dallas-ice-shooting
-
-**Seven thoughts on the Commanders, including how the offense changed in Week 3**\
-`Here are some thoughts on the Commanders’ impressive win over the Raiders and what they're facing next with a banged-up roster.`\
-https://nytimes.com/athletic/6657694/2025/09/24/commanders-offense-mariota-kingsbury/
-
-**A Statue of Trump and Epstein Holding Hands Briefly Appears on the National Mall**\
-`The United States Park Police said it had removed the statue, which included lines from President Trump’s birthday message to Jeffrey Epstein, the deceased sex offender.`\
-https://nytimes.com/2025/09/24/us/politics/trump-epstein-statue-dc-national-mall.html
 

@@ -1,3 +1,15 @@
+**The Blackhawks want Colton Dach to be the power forward they need**\
+`“I like to be physical. I like to play with an edge. I like to chirp," Dach said recently.`\
+https://nytimes.com/athletic/6656950/2025/09/24/blackhawks-colton-dach-nhl-roster/
+
+**Ukrainians Are Grateful but Skeptical After Trump’s Turnabout on the War**\
+`Whereas he once pressed Ukraine to take any deal, President Trump said he now believed that the country could win. Some Ukrainians seemed not to take his position seriously.`\
+https://nytimes.com/2025/09/24/world/europe/trump-war-ukraine-reaction.html
+
+**Can global climate action happen without the U.S.?**\
+`By Claire Brown`\
+https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/can-global-climate-action-happen-without-the-us
+
 **Olabe replacing Monchi a 'normal transition' for Villa, Emery says**\
 `The former president of football operations had been at the club for two years before being replaced on Tuesday.`\
 https://nytimes.com/athletic/6657868/2025/09/24/monchi-aston-villa-unai-emery-normal-transition/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6657694/2025/09/24/commanders-offense-mariota-kings
 **A Statue of Trump and Epstein Holding Hands Briefly Appears on the National Mall**\
 `The United States Park Police said it had removed the statue, which included lines from President Trump’s birthday message to Jeffrey Epstein, the deceased sex offender.`\
 https://nytimes.com/2025/09/24/us/politics/trump-epstein-statue-dc-national-mall.html
-
-**How Did Late-Night Get So Political? It Didn’t Start With Trump**\
-`The hosts’ monologues may feel especially pointed right now, but the trend really took off during the George W. Bush administration before the Iraq war.`\
-https://nytimes.com/2025/09/24/arts/television/jimmy-kimmel-late-night-politics-trump.html
-
-**Washington Post Opinion Writer Says Firing Violated Labor Agreement**\
-`The company fired Karen Attiah this month for her social media posts related to Charlie Kirk’s assassination.`\
-https://nytimes.com/2025/09/24/business/media/washington-post-karen-attiah.html
-
-**Al Gore discusses where the climate movement goes from here.**\
-`By David Gelles`\
-https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/al-gore-discusses-where-the-climate-movement-goes-from-here
 
