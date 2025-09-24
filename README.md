@@ -1,3 +1,7 @@
+**Man City's new counterattacking style is unlocking Haaland's trademark sucker-punch goal**\
+`After years of trying to navigate deep defences, the Norwegian striker is relish running into space again`\
+https://nytimes.com/athletic/6651542/2025/09/24/man-city-haaland-trademark-goal/
+
 **How Premier League teams block shots - and what it says about them**\
 `Arsenal block aggressively, Liverpool block away and Manchester United are... improving. This is how teams block and what it says of them`\
 https://nytimes.com/athletic/6641594/2025/09/24/premier-league-block-shots/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/23/pageoneplus/quote-of-the-day-trumps-take-on-autis
 **Aces vs. Fever: Las Vegas routs Indiana to even WNBA semis**\
 `Wilson ended the game with 25 points, nine rebounds and five steals and saw a huge bounceback from her frontcourt partner NaLyssa Smith.`\
 https://nytimes.com/athletic/6656775/2025/09/23/aces-fever-score-results-takeaways-game-2/
-
-**Las Vegas Aces dominate at home, even WNBA semifinals 1-1 against Indiana Fever**\
-`A'ja Wilson led the way with 25 points with another 18 from NaLyssa Smith for the Aces.`\
-https://nytimes.com/athletic/6656774/2025/09/23/las-vegas-aces-indiana-fever-game-2-wnba-semifinals/
 
