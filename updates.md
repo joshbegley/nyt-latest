@@ -1,3 +1,7 @@
+**Shutdown Crisis Tests Trump’s Go-It-Alone Approach to Democrats**\
+`The president has spent his first months in office freezing out Democrats, who have in turn opposed him routinely. Now they need each other to keep the government open.`\
+https://nytimes.com/2025/09/24/us/politics/trump-democrats-government-shutdown.html
+
 **Australian Businessman Challenges Trump on Climate Change**\
 `Andrew Forrest, the executive chairman of the mining company Fortescue, invited President Trump to see the damage Australia is experiencing as the planet heats up.`\
 https://nytimes.com/video/climate/100000010418998/climate-conference-andrew-forrest-trump.html

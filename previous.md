@@ -1,3 +1,7 @@
+**Shutdown Crisis Tests Trump’s Go-It-Alone Approach to Democrats**\
+`The president has spent his first months in office freezing out Democrats, who have in turn opposed him routinely. Now they need each other to keep the government open.`\
+https://nytimes.com/2025/09/24/us/politics/trump-democrats-government-shutdown.html
+
 **Australian Businessman Challenges Trump on Climate Change**\
 `Andrew Forrest, the executive chairman of the mining company Fortescue, invited President Trump to see the damage Australia is experiencing as the planet heats up.`\
 https://nytimes.com/video/climate/100000010418998/climate-conference-andrew-forrest-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/24/world/asia/tess-johnston-dead.html
 **NFL Week 4 confidence picks: Bills, Texans, Broncos, Chargers among the strongest choices**\
 `KC Joyner gives his NFL confidence picks, both straight up and against the spread, for every Week 4 game.`\
 https://nytimes.com/athletic/6657041/2025/09/24/nfl-week-4-confidence-picks-bills-texans-broncos-chargers/
-
-**Her country is sinking. Here’s what she’s asking from the rest of the world.**\
-`By Claire Brown`\
-https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/her-country-is-sinking-heres-what-shes-asking-from-the-rest-of-the-world
 
