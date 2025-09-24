@@ -4,7 +4,7 @@ https://nytimes.com/2025/09/24/us/politics/trump-united-nations-tones.html
 
 **Why Did Apple Get Cold Feet About ‘Savant’?**\
 `The company postpones a drama about domestic terrorism on its Apple TV+ streaming service.`\
-https://nytimes.com/2025/09/24/arts/television/savant-pulled.html
+https://nytimes.com/2025/09/24/arts/television/the-savant-apple-tv-plus.html
 
 **Tropical Storm Humberto Forms, and Another One Could Be On the Way**\
 `It’s too soon to know how Humberto could affect land. Another potential storm nearby is making for a complicated forecast.`\

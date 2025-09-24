@@ -1,3 +1,7 @@
+**Why Did Apple Get Cold Feet About ‘Savant’?**\
+`The company postpones a drama about domestic terrorism on its Apple TV+ streaming service.`\
+https://nytimes.com/2025/09/24/arts/television/the-savant-apple-tv-plus.html
+
 **How Trump Strikes Radically Different Tones in Public and Private**\
 `At the United Nations, world leaders got to see both sides of President Trump: bellicose in public and far more conciliatory in private.`\
 https://nytimes.com/2025/09/24/us/politics/trump-united-nations-tones.html
