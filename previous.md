@@ -1,3 +1,15 @@
+**Dodgers' Roki Sasaki to pitch out of bullpen when he's activated Wednesday**\
+`It’s still not a lock that Sasaki will be on the postseason roster when the Dodgers open the National League Wild Card Series.`\
+https://nytimes.com/athletic/6656565/2025/09/23/los-angeles-dodgers-roki-sasaki-return/
+
+**Guardians vs. Tigers: Wild rally vs. Tarik Skubal forges tie atop AL Central**\
+`The Guardians have completely erased a 10-game lead that the Tigers held as recently as Sept. 6.`\
+https://nytimes.com/athletic/6656155/2025/09/23/guardians-tigers-takeaways-game-1-al-central-battle/
+
+**Reds vs. Pirates: How does Cincinnati's loss affect NL wild-card picture?**\
+`Before the game Tuesday, the Reds and Mets were tied for the final NL wild-card spot with records of 80-76.`\
+https://nytimes.com/athletic/6656045/2025/09/23/reds-pirates-game-1-takeaways-nl-wild-card-race/
+
 **‘Alien: Earth’ Season 1 Finale Recap: Ghosts in the Machine**\
 `The hybrid kids have an important revelation about who should be afraid of whom. Just deserts will be served.`\
 https://nytimes.com/2025/09/23/arts/television/alien-earth-recap-season-1-finale.html
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2025/09/23/us/elections/results-arizona-us-house
 **Storm Rips Part of Roof Off Oklahoma Hospital, Forcing Evacuations**\
 `Some homes in the city of Sallisaw, in the eastern part of the state, were damaged, as were trees, power lines and poles, officials said.`\
 https://nytimes.com/2025/09/23/us/oklahoma-storms-damage.html
-
-**Astros' Jeremy Peña misses second straight pivotal game with oblique injury**\
-`Houston entered Tuesday three games out of first place in the American League West. `\
-https://nytimes.com/athletic/6656161/2025/09/23/houston-astros-jeremy-pena-oblique-injury/
-
-**Trump’s U-Turn on Ukraine Was a Surprise, Zelensky Says**\
-`The Ukrainian leader said in an interview on Fox News that Russia’s unwillingness to take steps toward peace had impacted the American president.`\
-https://nytimes.com/2025/09/23/world/trump-ukraine-zelensky.html
-
-**How to watch Tigers at Guardians: Time, TV, streaming for September 24**\
-`Find out how to watch the Detroit Tigers play the Cleveland Guardians, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6656291/2025/09/23/tigers-vs-guardians-stream-how-to-watch-sept-24/
 
