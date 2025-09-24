@@ -1,3 +1,7 @@
+**Aid Flotilla Headed for Gaza Says It’s Under Drone Attack**\
+`The vessels were aiming to deliver humanitarian aid to Gaza. The Israelis have asked that the aid be given to them to distribute.`\
+https://nytimes.com/2025/09/23/world/middleeast/gaza-aid-flotilla-drone-attack.html
+
 **Phoenix Mercury secures OT win against Minnesota Lynx to even WNBA semifinals**\
 `Alyssa Thomas fueled the Mercury's second-half comeback.`\
 https://nytimes.com/athletic/6656595/2025/09/23/phoenix-mercury-overtime-minnesota-lynx-wnba-semifinals/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6656155/2025/09/23/guardians-tigers-takeaways-game-
 **Reds vs. Pirates: How does Cincinnati's loss affect NL wild-card picture?**\
 `Before the game Tuesday, the Reds and Mets were tied for the final NL wild-card spot with records of 80-76.`\
 https://nytimes.com/athletic/6656045/2025/09/23/reds-pirates-game-1-takeaways-nl-wild-card-race/
-
-**‘Alien: Earth’ Season 1 Finale Recap: Ghosts in the Machine**\
-`The hybrid kids have an important revelation about who should be afraid of whom. Just deserts will be served.`\
-https://nytimes.com/2025/09/23/arts/television/alien-earth-recap-season-1-finale.html
 
