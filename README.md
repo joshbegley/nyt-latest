@@ -1,3 +1,12 @@
+**Relief, Grief and Pain as Gaza’s Wounded Are Flown to Safety**\
+`Hungry and injured passengers on a medical evacuation flight showed the toll of nearly two years of bombardment.`\
+https://nytimes.com/2025/09/24/world/middleeast/evacuation-flight-gaza-abu-dhabi.html
+
+**How Dylan Cozens is dealing with the 'pressure' to succeed in Ottawa**\
+`Since arriving in Ottawa at the trade deadline, expectations for the centre making $7.1 million a year to perform well remain high.
+`\
+https://nytimes.com/athletic/6647290/2025/09/24/dylan-cozens-senators-sabres-nhl/
+
 **'A blessing and a curse' – Denver Summit and Boston Legacy owners on expansion team building**\
 `Down to Business with Asli Pelit takes you through the fast-paced (and sometimes confusing) corporate side of women's soccer.`\
 https://nytimes.com/athletic/6653699/2025/09/24/nwsl-expansion-denver-summit-boston-legacy/
@@ -29,12 +38,4 @@ https://nytimes.com/athletic/6656049/2025/09/24/f1-mailbag-max-verstappen-oscar-
 **Anaheim Ducks 2025-26 season preview: Playoff chances, projected points, roster rankings**\
 `A playoff push would be nice for the Ducks, but it's not a necessity so long as they see reasonable growth in key spots.`\
 https://nytimes.com/athletic/6644249/2025/09/24/anaheim-ducks-2025-26-season-preview/
-
-**Charlie Morton appreciates a final week with Braves, who suddenly can't lose**\
-`At the end of a difficult season, 41-year-old says return to Braves is a "chance to kind of feel a little bit at home, a little peace."`\
-https://nytimes.com/athletic/6656498/2025/09/24/charlie-morton-final-week-braves/
-
-**New York's Ryder Cup could be the loudest golf tournament ever. That’s a good thing**\
-`There's nothing harder in sports right now than winning a road Ryder Cup, and New Yorkers will almost certainly make sure that stays intact.`\
-https://nytimes.com/athletic/6653337/2025/09/24/ryder-cup-2025-bethpage-black-new-york-fans/
 
