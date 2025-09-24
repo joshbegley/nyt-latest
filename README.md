@@ -1,3 +1,7 @@
+**Malawi President Concedes Election to His Predecessor**\
+`Despite reports of irregularities at the polls, President Lazarus Chakwera said that Peter Mutharika had an insurmountable lead after partial vote counts were released.`\
+https://nytimes.com/2025/09/24/world/africa/malawi-election.html
+
 **Surging Diamondbacks, counted out many times over, keep refusing to quit**\
 `On Tuesday night against LA, the Diamondbacks scored five runs in the final three innings, spreading belief beyond their dugout.`\
 https://nytimes.com/athletic/6657116/2025/09/24/arizona-diamondbacks-playoffs-wild-card-dodgers/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000010418275/bangkok-street-collapse-sub
 **What are Arsenal's options with Noni Madueke out injured?**\
 `Saka is only just returning from injury himself, so Arteta will not want to throw him in to play every game`\
 https://nytimes.com/athletic/6655139/2025/09/24/noni-madueke-arsenal-injury-options/
-
-**Tennis players send second letters to Grand Slams pushing for reform**\
-`The letter was sent to all four majors on July 30 and was signed by almost all of the world’s leading players.`\
-https://nytimes.com/athletic/6657340/2025/09/24/tennis-reform-letter-grand-slams/
 
