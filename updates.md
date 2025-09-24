@@ -1,3 +1,7 @@
+**Typhoon Ragasa Floods Hong Kong and Hurtles Toward Southern China**\
+`One million residents of Guangdong, in southern China, were evacuated. The storm left 15 dead in Taiwan.`\
+https://nytimes.com/2025/09/24/world/asia/typhoon-ragasa-hong-kong-china.html
+
 **Jimmy Kimmel Returns to Late Night**\
 `Jimmy Kimmel delivered an emotional monologue focused on free speech in his return to television. ABC had suspended the late-night host after comments he made about the assassination of Charlie Kirk.`\
 https://nytimes.com/video/us/100000010418148/jimmy-kimmel-return-monologue.html

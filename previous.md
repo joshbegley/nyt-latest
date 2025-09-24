@@ -31,7 +31,7 @@ https://nytimes.com/2025/09/24/nyregion/brooklyn-black-lesbian-bookstore.html
 https://nytimes.com/athletic/6648757/2025/09/24/arsenal-tim-lewis-josh-kroenke/
 
 **Typhoon Ragasa Floods Hong Kong and Hurtles Toward Southern China**\
-`One million residents of Guangdong, in southern China, were evacuated. The storm left 14 dead in Taiwan.`\
+`One million residents of Guangdong, in southern China, were evacuated. The storm left 15 dead in Taiwan.`\
 https://nytimes.com/2025/09/24/world/asia/typhoon-ragasa-hong-kong-china.html
 
 **How to watch Packers at Cowboys: Time, TV, streaming**\
