@@ -1,3 +1,11 @@
+**Storm Rips Part of Roof Off Oklahoma Hospital, Forcing Evacuations**\
+`Some homes in the city of Sallisaw, in the eastern part of the state, were damaged, as were trees, power lines and poles, officials said.`\
+https://nytimes.com/2025/09/23/us/oklahoma-storms-damage.html
+
+**Astros' Jeremy Peña misses second straight pivotal game with oblique injury**\
+`Houston entered Tuesday three games out of first place in the American League West. `\
+https://nytimes.com/athletic/6656161/2025/09/23/houston-astros-jeremy-pena-oblique-injury/
+
 **Trump’s U-Turn on Ukraine Was a Surprise, Zelensky Says**\
 `The Ukrainian leader said in an interview on Fox News that Russia’s unwillingness to take steps toward peace had impacted the American president.`\
 https://nytimes.com/2025/09/23/world/trump-ukraine-zelensky.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6656114/2025/09/23/zion-williamson-pelicans-media-d
 **Blue Jays designate Alek Manoah for assignment, activate Anthony Santander**\
 `At his peak, Manoah posted 196 2/3 innings for the 2022 team, earning MVP votes and finishing third in American League Cy voting.`\
 https://nytimes.com/athletic/6656176/2025/09/23/toronto-blue-jays-alek-manoah-dfa/
-
-**In a Sudden Shift, Trump Says Ukraine Can Win the War With Russia**\
-`President Trump’s pivot could give him room to distance himself from a conflict that he once promised to solve in days or weeks.`\
-https://nytimes.com/2025/09/23/us/politics/trump-russia-ukraine.html
-
-**On Covid and Autism, Trump Strays From the Science**\
-`President Trump has used his position of authority to dole out flawed medical advice dating back to his first term, when he mused about injecting bleach to kill off the coronavirus.`\
-https://nytimes.com/2025/09/23/us/politics/trump-covid-autism-science.html
 
