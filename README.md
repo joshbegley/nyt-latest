@@ -1,3 +1,7 @@
+**Dodgers' Roki Sasaki to pitch out of bullpen when he's activated Wednesday**\
+`It’s still not a lock that Sasaki will be on the postseason roster when the Dodgers open the National League Wild Card Series.`\
+https://nytimes.com/athletic/6656565/2025/09/23/los-angeles-dodgers-roki-sasaki-return/
+
 **Guardians vs. Tigers: Wild rally vs. Tarik Skubal forges tie atop AL Central**\
 `The Guardians have completely erased a 10-game lead that the Tigers held as recently as Sept. 6.`\
 https://nytimes.com/athletic/6656155/2025/09/23/guardians-tigers-takeaways-game-1-al-central-battle/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/09/23/us/elections/results-arizona-us-house
 **Storm Rips Part of Roof Off Oklahoma Hospital, Forcing Evacuations**\
 `Some homes in the city of Sallisaw, in the eastern part of the state, were damaged, as were trees, power lines and poles, officials said.`\
 https://nytimes.com/2025/09/23/us/oklahoma-storms-damage.html
-
-**Astros' Jeremy Peña misses second straight pivotal game with oblique injury**\
-`Houston entered Tuesday three games out of first place in the American League West. `\
-https://nytimes.com/athletic/6656161/2025/09/23/houston-astros-jeremy-pena-oblique-injury/
 
