@@ -1,3 +1,7 @@
+**Delays Expected at London Stansted Airport After Small Fire**\
+`The airport’s security area was closed overnight to protect passengers from smoke. It reopened just before dawn, but a spokesman said there would be flight disruptions.`\
+https://nytimes.com/2025/09/24/world/europe/london-stansted-airport-fire.html
+
 **Delays Likely at London Stansted Airport After Small Fire**\
 `The airport’s security area was closed overnight to protect passengers from smoke. It reopened just before dawn, but a spokesman said that disruptions were still likely.`\
 https://nytimes.com/2025/09/24/world/europe/london-stansted-airport-fire.html
