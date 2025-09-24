@@ -1,3 +1,19 @@
+**10 (More) Questions With Zohran Mamdani**\
+`Zohran Mamdani, the Democratic nominee for mayor of New York City, visited The New York Times for an interview.`\
+https://nytimes.com/2025/09/24/nyregion/zohran-mamdani-10-questions.html
+
+**The Billionaire, the Psychedelics and the Best-Selling Memoir**\
+`Amy Griffin wrote a book based on recovered memories of childhood sexual abuse. Oprah Winfrey and a slew of celebrities promoted it. Then questions arose.`\
+https://nytimes.com/2025/09/24/nyregion/amy-griffin-memoir-psychedelic-drugs.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/09/24/crosswords/spelling-bee-forum.html
+
+**A Shop for Black Women Who Love Women Who Love Books**\
+`Though Bedford-Stuyvesant, Brooklyn, has seen an exodus of Black residents over the past 15 years, one woman hopes to create a beacon for her community.`\
+https://nytimes.com/2025/09/24/nyregion/brooklyn-black-lesbian-bookstore.html
+
 **Inside Tim Lewis' Arsenal exit and what it means for the club**\
 `The departure of vice-chair Tim Lewis last week came as a shock to many but it heralds the start of a new era at Arsenal`\
 https://nytimes.com/athletic/6648757/2025/09/24/arsenal-tim-lewis-josh-kroenke/
