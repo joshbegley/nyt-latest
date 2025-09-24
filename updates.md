@@ -1,3 +1,11 @@
+**He May Be a ‘Slow Horse,’ but He’s in Peak Condition**\
+`Christopher Chung, who plays the I.T. whiz Roddy Ho on the Apple TV+ series “Slow Horses,” also works as a personal trainer. In the show’s new Season 5, he’s at the center of the action.`\
+https://nytimes.com/2025/09/24/arts/television/slow-horses-season-5-christopher-chung.html
+
+**Fantasy football best and worst matchups of Week 4: Jordan Love, Breece Hall for the win**\
+`KC Joyner offers the best and worst matchups of the week to help you with start/sit decisions, roster construction and more. `\
+https://nytimes.com/athletic/6654643/2025/09/24/fantasy-football-week-4-matchups-best-worst/
+
 **Trump Is Building the Blue Scare**\
 `The political theorist Corey Robin walks through the history of the Red Scare and the “fractured mirror” it is to Trump’s attack on the “radical left.”`\
 https://nytimes.com/2025/09/24/opinion/ezra-klein-podcast-corey-robin.html

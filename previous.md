@@ -1,3 +1,11 @@
+**He May Be a ‘Slow Horse,’ but He’s in Peak Condition**\
+`Christopher Chung, who plays the I.T. whiz Roddy Ho on the Apple TV+ series “Slow Horses,” also works as a personal trainer. In the show’s new Season 5, he’s at the center of the action.`\
+https://nytimes.com/2025/09/24/arts/television/slow-horses-season-5-christopher-chung.html
+
+**Fantasy football best and worst matchups of Week 4: Jordan Love, Breece Hall for the win**\
+`KC Joyner offers the best and worst matchups of the week to help you with start/sit decisions, roster construction and more. `\
+https://nytimes.com/athletic/6654643/2025/09/24/fantasy-football-week-4-matchups-best-worst/
+
 **Trump Is Building the Blue Scare**\
 `The political theorist Corey Robin walks through the history of the Red Scare and the “fractured mirror” it is to Trump’s attack on the “radical left.”`\
 https://nytimes.com/2025/09/24/opinion/ezra-klein-podcast-corey-robin.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6653673/2025/09/24/patriots-wide-receivers-drake-ma
 **A Rare Draft of the Constitution Shows It as a Work in Progress**\
 `A future senator from New York marked changes on the document, which Christie’s plans to sell at auction early next year.`\
 https://nytimes.com/2025/09/24/nyregion/constitution-draft-christies.html
-
-**The Pentagon, the Press and the Fight to Control National Security Coverage**\
-`Journalists have long shaped history through scrutiny of the military. Now the Defense Department plans to cut off access for reporters who publish even unclassified information without official approval.`\
-https://nytimes.com/2025/09/24/us/politics/pentagon-reporters.html
-
-**How to Give Your Older Phone New Software Powers**\
-`Don’t have the latest A.I.-powered model? There are still plenty of new features in Apple’s iOS 26 and Google’s Android 16 to make your own.`\
-https://nytimes.com/2025/09/24/technology/personaltech/apple-ios-26-google-android-16.html
 
