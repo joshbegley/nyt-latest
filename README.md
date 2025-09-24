@@ -1,3 +1,7 @@
+**Terry McLaurin will miss practice with quad injury; Jayden Daniels will participate**\
+`Should McLaurin be ruled out against the Falcons in Week 4, it would be his first missed game since Week 16 of the 2020 season.`\
+https://nytimes.com/athletic/6656534/2025/09/24/terry-mclaurin-quad-injury-falcons/
+
 **Scoop City: Meet the NFL's newest starting QB**\
 `What's next for Dart, the Giants' latest starting quarterback, The Athletic's NFL front office rankings and Mike Sando on Russell Wilson`\
 https://nytimes.com/athletic/6658595/2025/09/24/giants-offense-with-jaxson-dart-scoop-city-nfl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6658488/2025/09/24/daniel-jones-cards/
 **Trump’s dismissal of climate change puts U.S. at risk, former Biden official says.**\
 `By Brad Plumer`\
 https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/trumps-dismissal-of-climate-change-puts-us-at-risk-former-biden-official-says
-
-**102 Roma ultras arrested in Nice on suspicion of carrying weapons and 'brawl'**\
-`Authorities said a "major security operation" would be deployed for Wednesday's Europa League fixture between Nice and Roma. `\
-https://nytimes.com/athletic/6658107/2025/09/24/roma-nice-fan-arrests/
 
