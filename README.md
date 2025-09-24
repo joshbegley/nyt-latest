@@ -1,3 +1,27 @@
+**Everton's League Cup snub a missed opportunity to give season extra meaning**\
+`For all the positivity of recent months, Tuesday's League Cup defeat felt like a significant misstep. One that could have been avoided...`\
+https://nytimes.com/athletic/6656487/2025/09/24/everton-league-cup-wolves/
+
+**How to watch Twins at Rangers: Time, TV, streaming for September 24**\
+`Find out how to watch the Minnesota Twins play the Texas Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6657077/2025/09/24/twins-vs-rangers-stream-how-to-watch-sept-24/
+
+**How to watch White Sox at Yankees: Time, TV, streaming for September 24**\
+`Find out how to watch the Chicago White Sox play the New York Yankees, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6657080/2025/09/24/white-sox-vs-yankees-stream-how-to-watch-sept-24/
+
+**How to watch Red Sox at Blue Jays: Time, TV, streaming for September 24**\
+`Find out how to watch the Boston Red Sox play the Toronto Blue Jays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6657073/2025/09/24/red-sox-vs-blue-jays-stream-how-to-watch-sept-24/
+
+**How to watch Nationals at Braves: Time, TV, streaming for September 24**\
+`Find out how to watch the Washington Nationals play the Atlanta Braves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6657071/2025/09/24/nationals-vs-braves-stream-how-to-watch-sept-24/
+
+**How to watch Mets at Cubs: Time, TV, streaming for September 24**\
+`Find out how to watch the New York Mets play the Chicago Cubs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6657068/2025/09/24/mets-vs-cubs-stream-how-to-watch-sept-24/
+
 **Jimmy Kimmel Makes a Tearful Return to Late Night**\
 `“I’m not sure who had a weirder 48 hours, me or the C.E.O. of Tylenol,” Kimmel said on Tuesday.`\
 https://nytimes.com/2025/09/24/arts/television/jimmy-kimmel-late-night-return.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/09/24/learning/word-of-the-day-horde.html
 **'A thing of beauty': How Diego Gomez staged his own Goal of the Season contest**\
 `The Paraguay striker proved his quality with two astonishing strikes in a four-goal display at Barnsley. Can he now kick on?`\
 https://nytimes.com/athletic/6655955/2025/09/24/diego-gomez-brighton-goals/
-
-**Delays Expected at London Stansted Airport After Small Fire**\
-`The airport’s security area was closed overnight to protect passengers from smoke. It reopened just before dawn, but a spokesman said there would be flight disruptions.`\
-https://nytimes.com/2025/09/24/world/europe/london-stansted-airport-fire.html
-
-**The defensive ploy that is causing Chelsea serious problems**\
-`Enzo Maresca needs to find more creative routes to goal in the continued absence of the injured Cole Palmer`\
-https://nytimes.com/athletic/6656268/2025/09/24/chelsea-tactics-enzo-maresca-problem/
-
-**Like His Suspension, Kimmel’s Return Draws a Partisan Reaction**\
-`Ben Stiller, the actor and comedian, called Mr. Kimmel’s opening words a “brilliant monologue,” while some on the right questioned his authenticity.`\
-https://nytimes.com/2025/09/24/us/politics/jimmy-kimmel-monologue-reaction.html
-
-**With playoffs approaching, Cubs pull Cade Horton from his start as a precaution**\
-`The Cubs framed the removal as a precautionary measure to protect Horton, who has emerged as one of the sport’s best young pitchers.`\
-https://nytimes.com/athletic/6656887/2025/09/24/mlb-playoffs-cubs-pull-cade-horton/
-
-**The New York Times in Print for Wednesday, Sep. 24, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/09/24/todays-new-york-times
-
-**Trump Is Pulling the Plug on Puerto Rico’s Economy**\
-`The purge of Puerto Rico’s oversight board could devastate the island’s economy.`\
-https://nytimes.com/2025/09/24/opinion/puerto-rico-bankruptcy-debt.html
 
