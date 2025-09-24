@@ -1,3 +1,7 @@
+**Trump at the U.N.: ‘Your Countries Are Going to Hell’**\
+`President Trump’s speech at the United Nations took an isolating stance. David Sanger, a White House correspondent for The New York Times, explains what that means for the United States.`\
+https://nytimes.com/video/us/politics/100000010416192/trump-at-the-un-your-countries-are-going-to-hell.html
+
 **Cubs' Matt Shaw says friendship with Charlie Kirk led to missing game for memorial service**\
 `Shaw confirmed he also requested some time off immediately after Kirk’s death.`\
 https://nytimes.com/athletic/6656596/2025/09/23/chicago-cubs-matt-shaw-charlie-kirk-absence/
