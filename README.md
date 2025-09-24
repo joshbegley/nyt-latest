@@ -1,3 +1,27 @@
+**FK Arsenal Tivat's match-fixing ban reduced to seven years after appeal**\
+`UEFA issued a statement saying the club's suspension had been reduced by three years, and goalkeeper Dusan Puletic's 10-year ban overturned.`\
+https://nytimes.com/athletic/6658801/2025/09/24/uefa-news-arsenal-tivat-ban-match-fixing/
+
+**Nats to name Red Sox's Paul Toboni as head of baseball operations: Sources**\
+`Toboni, 35, has moved quickly through the Red Sox organization, moving to senior VP/assistant GM in November 2023.`\
+https://nytimes.com/athletic/6658340/2025/09/24/paul-toboni-nats-front-office-red-sox/
+
+**Guardians' David Fry diagnosed with multiple facial fractures after hit by pitch on bunt attempt**\
+`Fry was injured on Tuesday when he squared to bunt and the pitch hit him directly in the face, resulting in multiple fractures.`\
+https://nytimes.com/athletic/6658840/2025/09/24/david-fry-facial-fractures-cleveland-guardians/
+
+**Liverpool fear Leoni facing long spell out with ACL injury**\
+`The 18-year-old sustained the injury in the club's 2-1 Carabao Cup win over Southampton on Tuesday after making a challenge on the touchline`\
+https://nytimes.com/athletic/6657194/2025/09/24/liverpool-giovanni-leoni-injury-update/
+
+**U.S. Threatens to Bar Foreigners Over Remarks About Charlie Kirk**\
+`U.S. officials say they will pull visas and deport people who trivialize Charlie Kirk’s murder, part of intensifying scrutiny of visa applicants’ views.`\
+https://nytimes.com/2025/09/24/world/americas/charlie-kirk-visas-speech.html
+
+**Newsom Slams Trump’s United Nations Speech**\
+`Gov. Gavin Newsom of California called President Trump’s comments on climate change “an abomination.”`\
+https://nytimes.com/video/admin/100000010419295/climate-conference-gavin-newsom-trump.html
+
 **Despite a slump under Trump, a U.S. wind industry executive sees potential in the long run.**\
 `By Brad Plumer`\
 https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/despite-a-slump-under-trump-a-us-wind-industry-executive-sees-potential-in-the-long-run
@@ -13,28 +37,4 @@ https://nytimes.com/live/2025/09/24/us/dallas-ice-shooting/wednesdays-shooting-i
 **Agriculture Department Picks Ben Carson to Be a Policy Adviser**\
 `He has endorsed the MAHA movement’s goals and agreeing with a policy allowing states to stop people from using food stamps for certain junk foods and soda.`\
 https://nytimes.com/2025/09/24/us/politics/ben-carson-policy-adviser.html
-
-**Syria’s leader says his country has transformed from ‘an exporter of crisis.’**\
-`By Christina Goldbaum`\
-https://nytimes.com/live/2025/09/24/world/un-general-assembly-ukraine/syria-president
-
-**A men's World Cup with 64 teams explained – how would it work, what needs to be discussed, who wants it?**\
-`The speed of the promised expansion feels scarcely believable. But several high-profile figures are serious about making it happen.`\
-https://nytimes.com/athletic/6658187/2025/09/24/world-cup-64-teams-explained-fifa/
-
-**Barcelona Is Made of Math**\
-`A virtual tour of the architecture in a city where mathematics and exploration meet.`\
-https://nytimes.com/interactive/2025/09/24/science/barcelona-architecture-math.html
-
-**Here’s the very simple rule the actor Rainn Wilson uses to reconnect with nature.**\
-`By Claire Brown`\
-https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/heres-the-very-simple-rule-the-actor-rainn-wilson-uses-to-reconnect-with-nature
-
-**Becky Hammon says WNBA playoff physicality is 'out of control'**\
-`Despite a spike in calls — 41 in Game 2 compared with 27 in the opener — Hammon maintained that refs are still allowing too much contact.`\
-https://nytimes.com/athletic/6658666/2025/09/24/becky-hammond-wnba-officiating-physical/
-
-**Woakes may have played last England Test, says Rob Key**\
-`The fifth Test against India this summer could be the 36-year-old's final international appearance.`\
-https://nytimes.com/athletic/6658710/2025/09/24/chris-woakes-rob-key-ashes-test/
 
