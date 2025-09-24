@@ -1,3 +1,15 @@
+**Now Arriving: A New Theory of In-Flight Turbulence**\
+`Physicists have devised a new model to account for the discomfort that airline passengers know all too well.`\
+https://nytimes.com/2025/09/24/science/physics-airplanes-turbulence.html
+
+**Want to Bring a Dog to This Italian City? That Will Be $1.75.**\
+`Bolzano, in northern Italy, is considering taxing tourists’ dogs, and charging resident dog owners an annual fee as well.`\
+https://nytimes.com/2025/09/24/world/europe/bolzano-italy-dog-tax.html
+
+**At Global Climate Summit This Week, U.S. Isolation Was on Full Display**\
+`On Wednesday in New York, countries lined up to say they would accelerate their efforts to cut greenhouse-gas emissions. In staying away, the U.S. was all but alone.`\
+https://nytimes.com/2025/09/24/climate/united-nations-climate-summit-emissions-targets.html
+
 **China for First Time Promises to Reduce Its Greenhouse Gas Emissions**\
 `President Xi Jinping told a U.N. climate summit that China will reduce emissions across its economy, expand renewables sixfold and make electric cars “mainstream.”`\
 https://nytimes.com/2025/09/24/climate/china-emissions-targets-paris.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/24/us/dallas-texas-ice-facility.html
 **The D.C. Region Has Faced an Outsized Toll From Trump’s Policies**\
 `With the mass layoffs and cancellations of thousands of federal grants and contracts, the region has taken a disproportionate hit.`\
 https://nytimes.com/2025/09/24/us/politics/trump-cuts-washington-dc.html
-
-**Pregnant Women Are Pressured to ‘Tough It Out,’ Even by the President**\
-`Mr. Trump, who implored pregnant women not to take Tylenol, is only the latest in a long line of people offering unsolicited advice to expectant mothers.`\
-https://nytimes.com/2025/09/24/well/family/trump-tylenol-pregnancy-advice.html
-
-**FK Arsenal Tivat's match-fixing ban reduced to seven years after appeal**\
-`UEFA issued a statement saying the club's suspension had been reduced by three years, and goalkeeper Dusan Puletic's 10-year ban overturned.`\
-https://nytimes.com/athletic/6658801/2025/09/24/uefa-news-arsenal-tivat-ban-match-fixing/
-
-**Nats to name Red Sox's Paul Toboni as head of baseball operations: Sources**\
-`Toboni, 35, has moved quickly through the Red Sox organization, moving to senior VP/assistant GM in November 2023.`\
-https://nytimes.com/athletic/6658340/2025/09/24/paul-toboni-nats-front-office-red-sox/
 
