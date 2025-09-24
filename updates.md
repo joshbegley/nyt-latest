@@ -1,3 +1,15 @@
+**Las Vegas Aces dominate at home, even WNBA semifinals 1-1 against Indiana Fever**\
+`A'ja Wilson led the way with 25 points with another 18 from NaLyssa Smith for the Aces.`\
+https://nytimes.com/athletic/6656774/2025/09/23/las-vegas-aces-indiana-fever-game-2-wnba-semifinals/
+
+**Kyle Tucker timeline remains unclear with Cubs' playoffs one week away**\
+`The Cubs now have only five games left in the regular season with Tucker sidelined nearly all of September with a left calf injury.`\
+https://nytimes.com/athletic/6656765/2025/09/23/cubs-kyle-tucker-return-playoff/
+
+**Mets vs. Cubs: Big rally gives New York control of final NL wild-card spot**\
+`After the Reds' 4-2 loss to the Pirates earlier in the night, the Mets are in control of their postseason destiny.`\
+https://nytimes.com/athletic/6656529/2025/09/23/mets-cubs-takeaways-game-1-nl-wild-card-race/
+
 **Mercury secures OT win against  Lynx to even WNBA semifinals**\
 `Alyssa Thomas fueled the Mercury's second-half comeback.`\
 https://nytimes.com/athletic/6656595/2025/09/23/phoenix-mercury-overtime-minnesota-lynx-wnba-semifinals/

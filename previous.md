@@ -1,3 +1,15 @@
+**Las Vegas Aces dominate at home, even WNBA semifinals 1-1 against Indiana Fever**\
+`A'ja Wilson led the way with 25 points with another 18 from NaLyssa Smith for the Aces.`\
+https://nytimes.com/athletic/6656774/2025/09/23/las-vegas-aces-indiana-fever-game-2-wnba-semifinals/
+
+**Kyle Tucker timeline remains unclear with Cubs' playoffs one week away**\
+`The Cubs now have only five games left in the regular season with Tucker sidelined nearly all of September with a left calf injury.`\
+https://nytimes.com/athletic/6656765/2025/09/23/cubs-kyle-tucker-return-playoff/
+
+**Mets vs. Cubs: Big rally gives New York control of final NL wild-card spot**\
+`After the Reds' 4-2 loss to the Pirates earlier in the night, the Mets are in control of their postseason destiny.`\
+https://nytimes.com/athletic/6656529/2025/09/23/mets-cubs-takeaways-game-1-nl-wild-card-race/
+
 **G.O.P. Majority in House Will Shrink After Democrat’s Victory in Arizona**\
 `Adelita Grijalva won a special election on Tuesday in a reliably blue patch of her swing state to fill the seat held by her father before his death this year.`\
 https://nytimes.com/2025/09/23/us/politics/arizona-election-adelita-grijalva-democrat.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/us/politics/100000010416192/trump-at-the-un-your-count
 **Cubs' Matt Shaw says friendship with Charlie Kirk led to missing game for memorial service**\
 `Shaw confirmed he also requested some time off immediately after Kirk’s death.`\
 https://nytimes.com/athletic/6656596/2025/09/23/chicago-cubs-matt-shaw-charlie-kirk-absence/
-
-**Yankees clinch playoff spot: After bumpy season, are they peaking at right time?**\
-`This season has been far from a smooth ride for the Yankees, but they're back in the playoffs. And they could be peaking at the right time.`\
-https://nytimes.com/athletic/6656025/2025/09/23/yankees-clinch-mlb-playoff-spot/
-
-**Part of a Flight**\
-`Peter A. Collins won’t give us a straight answer.`\
-https://nytimes.com/2025/09/23/crosswords/daily-puzzle-2025-09-24.html
-
-**Dodgers' Roki Sasaki to pitch out of bullpen when he's activated Wednesday**\
-`It’s still not a lock that Sasaki will be on the postseason roster when the Dodgers open the National League Wild Card Series.`\
-https://nytimes.com/athletic/6656565/2025/09/23/los-angeles-dodgers-roki-sasaki-return/
 
