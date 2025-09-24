@@ -1,3 +1,15 @@
+**What is the most unpredictable sport and why?**\
+`What are the factors that contribute to the predictability of winning matches - and what does that mean for individual and team sports?`\
+https://nytimes.com/athletic/6653998/2025/09/24/most-unpredictable-sport-golf-tennis-soccer-nfl/
+
+**The S.E.C. Dropped a Complaint Against Its Chairman’s Former Client**\
+`Before Paul Atkins took his position with the regulatory agency, he testified on behalf of Devon Archer. The chairman recused himself when the commission dismissed the case last week.`\
+https://nytimes.com/2025/09/24/us/politics/sec-paul-atkins-devon-archer-trump.html
+
+**Facing elimination, Cardinals young core shows grit in late-inning rally past Giants**\
+`"That was awesome, a great team win," Nolan Arenado said. "It was a really crazy game."`\
+https://nytimes.com/athletic/6656781/2025/09/24/cardinals-win-mlb-wild-card/
+
 **The Blackhawks want Colton Dach to be the power forward they need**\
 `“I like to be physical. I like to play with an edge. I like to chirp," Dach said recently.`\
 https://nytimes.com/athletic/6656950/2025/09/24/blackhawks-colton-dach-nhl-roster/
