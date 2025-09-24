@@ -1,3 +1,8 @@
+**How Dylan Cozens is dealing with the 'pressure' to succeed in Ottawa**\
+`Since arriving in Ottawa at the trade deadline, expectations for the centre making $7.1 million a year to perform well remain high.
+`\
+https://nytimes.com/athletic/6647290/2025/09/24/dylan-cozens-senators-sabres-nhl/
+
 **Relief, Grief and Pain as Gaza’s Wounded Are Flown to Safety**\
 `Hungry and injured passengers on a medical evacuation flight showed the toll of nearly two years of bombardment.`\
 https://nytimes.com/2025/09/24/world/middleeast/evacuation-flight-gaza-abu-dhabi.html
