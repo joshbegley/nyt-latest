@@ -1,3 +1,11 @@
+**Trump Administration Bars Some Giant Brand Bicycles, Citing Forced Labor**\
+`The Trump administration said it would begin seizing Giant brand bicycles manufactured in Taiwan at the U.S. border, after an investigation found evidence of forced labor.`\
+https://nytimes.com/2025/09/24/business/economy/giant-bicycles-forced-labor.html
+
+**Submit your questions for Kevin Fishbain's Week 4 Bears mailbag**\
+`Ben Johnson earned his first victory with the Bears and had the offense clicking. What's on your mind as they prepare to visit the Raiders?`\
+https://nytimes.com/athletic/6659655/2025/09/24/submit-your-questions-for-kevin-fishbains-week-4-bears-mailbag/
+
 **Tigers' ace Tarik Skubal, Guardians' manager Stephen Vogt come together to visit David Fry**\
 `“When stuff like that happens, that’s real-life stuff,” Skubal said. “Not baseball game stuff.”`\
 https://nytimes.com/athletic/6659574/2025/09/24/guardians-tigers-david-fry-injury-hospital-visit/

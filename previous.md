@@ -1,3 +1,11 @@
+**Trump Administration Bars Some Giant Brand Bicycles, Citing Forced Labor**\
+`The Trump administration said it would begin seizing Giant brand bicycles manufactured in Taiwan at the U.S. border, after an investigation found evidence of forced labor.`\
+https://nytimes.com/2025/09/24/business/economy/giant-bicycles-forced-labor.html
+
+**Submit your questions for Kevin Fishbain's Week 4 Bears mailbag**\
+`Ben Johnson earned his first victory with the Bears and had the offense clicking. What's on your mind as they prepare to visit the Raiders?`\
+https://nytimes.com/athletic/6659655/2025/09/24/submit-your-questions-for-kevin-fishbains-week-4-bears-mailbag/
+
 **Tigers' ace Tarik Skubal, Guardians' manager Stephen Vogt come together to visit David Fry**\
 `“When stuff like that happens, that’s real-life stuff,” Skubal said. “Not baseball game stuff.”`\
 https://nytimes.com/athletic/6659574/2025/09/24/guardians-tigers-david-fry-injury-hospital-visit/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/24/us/minnesota-nicole-mitchell-sentenced-burglary.h
 **First Lawsuit Filed Over Plane-Helicopter Crash in Washington**\
 `The widow of a passenger on the American Airlines jet sued two airlines and the government over the Jan. 29 crash, which killed 67. Lawyers for other victims’ relatives said more suits would follow.`\
 https://nytimes.com/2025/09/24/us/lawsuit-washington-plane-crash.html
-
-**Dallas Shooting Suspect Had Extensive Online Footprint but Little on Politics**\
-`On social media accounts, the suspect, Joshua Jahn, talked about video games, cars, “South Park” and marijuana — but not so much about politics.`\
-https://nytimes.com/2025/09/24/us/dallas-ice-shooting-suspect.html
-
-**Jimmy Kimmel’s Return Draws 6.2 Million Viewers, Ratings Show**\
-`The first episode of “Jimmy Kimmel Live!” since it was suspended last week by Disney attracted nearly four times its average viewership.`\
-https://nytimes.com/2025/09/24/business/media/jimmy-kimmel-ratings.html
 
