@@ -1,3 +1,11 @@
+**Kamala Harris Reinforces Support for Zohran Mamdani in Phone Call**\
+`The conversation came two days after Ms. Harris, the former vice president, gave a muted endorsement to Mr. Mamdani’s bid for mayor of New York City.`\
+https://nytimes.com/2025/09/24/nyregion/kamala-harris-mamdani-phone-call.html
+
+**Quentin Grimes, 76ers in talks on a long-term contract extension: Source**\
+`Grimes has two Philadelphia offers on the table, a qualifying offer valued at $8.7 million and a one-year balloon payment.`\
+https://nytimes.com/athletic/6659616/2025/09/24/quentin-grimes-sixers-contract-extension/
+
 **At a Times Event, Opposing Views on Climate Change Collide**\
 `In a day of live journalism, California’s governor assailed President Trump, and the U.S. energy secretary called for countries to quit the Paris Agreement on global warming.`\
 https://nytimes.com/2025/09/24/climate/climate-forward-gavin-newsom-chris-wright.html

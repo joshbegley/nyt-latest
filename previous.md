@@ -1,3 +1,11 @@
+**Kamala Harris Reinforces Support for Zohran Mamdani in Phone Call**\
+`The conversation came two days after Ms. Harris, the former vice president, gave a muted endorsement to Mr. Mamdani’s bid for mayor of New York City.`\
+https://nytimes.com/2025/09/24/nyregion/kamala-harris-mamdani-phone-call.html
+
+**Quentin Grimes, 76ers in talks on a long-term contract extension: Source**\
+`Grimes has two Philadelphia offers on the table, a qualifying offer valued at $8.7 million and a one-year balloon payment.`\
+https://nytimes.com/athletic/6659616/2025/09/24/quentin-grimes-sixers-contract-extension/
+
 **At a Times Event, Opposing Views on Climate Change Collide**\
 `In a day of live journalism, California’s governor assailed President Trump, and the U.S. energy secretary called for countries to quit the Paris Agreement on global warming.`\
 https://nytimes.com/2025/09/24/climate/climate-forward-gavin-newsom-chris-wright.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6659574/2025/09/24/guardians-tigers-david-fry-injur
 **U.N. Security Council raises the alarm on the potential dangers of A.I.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2025/09/24/world/un-general-assembly-ukraine/un-security-council-raises-the-alarm-on-the-potential-dangers-of-ai
-
-**Lawsuit aims to block Panda Express owners from buying stake in Trail Blazers**\
-`Andrew and Peggy Cherng, who own Panda Express, are among the group led by Carolina Hurricanes owner Tom Dundon to acquire the Blazers.`\
-https://nytimes.com/athletic/6659514/2025/09/24/trail-blazers-sale-lawsuit-minority-stake/
-
-**Trump Is Building the Blue Scare**\
-`Since Charlie Kirk’s assassination, the Trump administration has been threatening to retaliate against the “radical left.” This response has echoes in American history — in the Red Scare.`\
-https://nytimes.com/video/opinion/100000010415398/trump-is-building-the-blue-scare.html
 
