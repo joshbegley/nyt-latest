@@ -1,3 +1,7 @@
+**Barcelona Is Made of Math**\
+`A virtual tour of the architecture in a city where mathematics and exploration meet.`\
+https://nytimes.com/interactive/2025/09/24/science/barcelona-architecture-math.html
+
 **Here’s the very simple rule the actor Rainn Wilson uses to reconnect with nature.**\
 `By Claire Brown`\
 https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/heres-the-very-simple-rule-the-actor-rainn-wilson-uses-to-reconnect-with-nature
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6658417/2025/09/24/tom-brady-conflict-interest-fox-
 **A Diminished Social Security Work Force, and Its Customers, Feel the Strain**\
 `After this year’s staffing cuts, some people wait for hours, others sail through. But overburdened field office workers carry the weight.`\
 https://nytimes.com/2025/09/24/business/social-security-customer-service.html
-
-**Microsoft and Google Say They Remain Committed to Climate Goals**\
-`Speaking at The New York Times’s Climate Forward event, the chief sustainability officers of Microsoft and Google said that their goals to achieve net-zero emissions or better by 2030 are still achievable.`\
-https://nytimes.com/video/climate/100000010418895/microsoft-google-climate-goals.html
 

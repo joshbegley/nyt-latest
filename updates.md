@@ -1,3 +1,7 @@
+**Barcelona Is Made of Math**\
+`A virtual tour of the architecture in a city where mathematics and exploration meet.`\
+https://nytimes.com/interactive/2025/09/24/science/barcelona-architecture-math.html
+
 **Here’s the very simple rule the actor Rainn Wilson uses to reconnect with nature.**\
 `By Claire Brown`\
 https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/heres-the-very-simple-rule-the-actor-rainn-wilson-uses-to-reconnect-with-nature

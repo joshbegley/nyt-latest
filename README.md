@@ -1,3 +1,19 @@
+**Wednesday’s shooting was the second at a Texas ICE facility this year.**\
+`A police officer was shot in July outside a detention center in what prosecutors called an ambush.`\
+https://nytimes.com/live/2025/09/24/us/dallas-ice-shooting/wednesdays-shooting-is-the-second-at-a-texas-ice-facility-this-year
+
+**Agriculture Department Picks Ben Carson to Be a Policy Adviser**\
+`He has endorsed the MAHA movement’s goals and agreeing with a policy allowing states to stop people from using food stamps for certain junk foods and soda.`\
+https://nytimes.com/2025/09/24/us/politics/ben-carson-policy-adviser.html
+
+**Syria’s leader says his country has transformed from ‘an exporter of crisis.’**\
+`By Christina Goldbaum`\
+https://nytimes.com/live/2025/09/24/world/un-general-assembly-ukraine/syria-president
+
+**A men's World Cup with 64 teams explained – how would it work, what needs to be discussed, who wants it?**\
+`The speed of the promised expansion feels scarcely believable. But several high-profile figures are serious about making it happen.`\
+https://nytimes.com/athletic/6658187/2025/09/24/world-cup-64-teams-explained-fifa/
+
 **Barcelona Is Made of Math**\
 `A virtual tour of the architecture in a city where mathematics and exploration meet.`\
 https://nytimes.com/interactive/2025/09/24/science/barcelona-architecture-math.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/09/24/health/global-health-sugary-drinks-tobacco.html
 **‘It was one shot after another after another after another.’**\
 `By Jazmine Ulloa`\
 https://nytimes.com/live/2025/09/24/us/dallas-ice-shooting/it-was-one-shot-after-another-after-another-after-another
-
-**Shutdown Crisis Tests Trump’s Go-It-Alone Approach to Democrats**\
-`The president has spent his first months in office freezing out Democrats, who have in turn opposed him routinely. Now they need each other to keep the government open.`\
-https://nytimes.com/2025/09/24/us/politics/trump-democrats-government-shutdown.html
-
-**Australian Businessman Challenges Trump on Climate Change**\
-`Andrew Forrest, the executive chairman of the mining company Fortescue, invited President Trump to see the damage Australia is experiencing as the planet heats up.`\
-https://nytimes.com/video/climate/100000010418998/climate-conference-andrew-forrest-trump.html
-
-**Tom Brady responds to conflict of interest concerns, blames 'paranoia and distrust'**\
-`While some coaches have said Brady's dual role is not a big deal, others have voiced concern about an unfair advantage.`\
-https://nytimes.com/athletic/6658417/2025/09/24/tom-brady-conflict-interest-fox-raiders-nfl/
-
-**A Diminished Social Security Work Force, and Its Customers, Feel the Strain**\
-`After this year’s staffing cuts, some people wait for hours, others sail through. But overburdened field office workers carry the weight.`\
-https://nytimes.com/2025/09/24/business/social-security-customer-service.html
 
