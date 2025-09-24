@@ -1,3 +1,7 @@
+**Gunman Opens Fire on ICE Office in Dallas, Killing a Detainee**\
+`The shooter, who killed himself, also wounded two detainees in an attack that raised new fears about political violence in the United States.`\
+https://nytimes.com/2025/09/24/us/dallas-ice-shooting.html
+
 **The Politics of ‘Tough It Out’**\
 `His advice on Tylenol has steered President Trump into the politics of pregnancy.`\
 https://nytimes.com/2025/09/24/us/politics/trump-tylenol-pregnancy-women.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/24/us/politics/richard-moe-dead.html
 **Trump Administration Bars Some Giant Brand Bicycles, Citing Forced Labor**\
 `The Trump administration said it would begin seizing Giant brand bicycles manufactured in Taiwan at the U.S. border, after an investigation found evidence of forced labor.`\
 https://nytimes.com/2025/09/24/business/economy/giant-bicycles-forced-labor.html
-
-**Submit your questions for Kevin Fishbain's Week 4 Bears mailbag**\
-`Ben Johnson earned his first victory with the Bears and had the offense clicking. What's on your mind as they prepare to visit the Raiders?`\
-https://nytimes.com/athletic/6659655/2025/09/24/submit-your-questions-for-kevin-fishbains-week-4-bears-mailbag/
 

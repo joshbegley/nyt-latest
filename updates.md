@@ -1,3 +1,11 @@
+**The Politics of ‘Tough It Out’**\
+`His advice on Tylenol has steered President Trump into the politics of pregnancy.`\
+https://nytimes.com/2025/09/24/us/politics/trump-tylenol-pregnancy-women.html
+
+**Dallas Shooting Comes Amid Growing Tensions Over Immigrant Detentions**\
+`The Trump administration has blamed the “demonization” of immigration enforcement officers for recent episodes.`\
+https://nytimes.com/2025/09/24/us/politics/ice-shooting-dallas-tensions.html
+
 **Kamala Harris Reinforces Support for Zohran Mamdani in Phone Call**\
 `The conversation came two days after Ms. Harris, the former vice president, gave a muted endorsement to Mr. Mamdani’s bid for mayor of New York City.`\
 https://nytimes.com/2025/09/24/nyregion/kamala-harris-mamdani-phone-call.html
