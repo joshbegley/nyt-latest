@@ -1,3 +1,7 @@
+**Blackhawks want Colton Dach to be the power forward they need**\
+`“I like to be physical. I like to play with an edge. I like to chirp," Dach said recently.`\
+https://nytimes.com/athletic/6656950/2025/09/24/blackhawks-colton-dach-nhl-roster/
+
 **Why is Gianfranco Zola driving a buggy with Europe's Ryder Cup team?**\
 `The ex-Italy international footballer is assisting countryman Francesco Molinari, Team Europe's vice-captain at Bethpage this week`\
 https://nytimes.com/athletic/6657852/2025/09/24/gianfranco-zola-ryder-cup-buggy/
