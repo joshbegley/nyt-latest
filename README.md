@@ -1,3 +1,7 @@
+**Despite a slump under Trump, a U.S. wind industry executive sees potential in the long run.**\
+`By Brad Plumer`\
+https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/despite-a-slump-under-trump-a-us-wind-industry-executive-sees-potential-in-the-long-run
+
 **Gov. Gavin Newsom calls Trump’s U.N. speech ‘an abomination.’**\
 `By Maxine Joselow`\
 https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/gov-gavin-newsom-calls-trumps-un-speech-an-abomination
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6658666/2025/09/24/becky-hammond-wnba-officiating-p
 **Woakes may have played last England Test, says Rob Key**\
 `The fifth Test against India this summer could be the 36-year-old's final international appearance.`\
 https://nytimes.com/athletic/6658710/2025/09/24/chris-woakes-rob-key-ashes-test/
-
-**U.N. Health Goals Weakened by Industry Pressure, Experts Say**\
-`Public health advocates complained that the final recommendations on combating chronic illness removed calls for taxes on tobacco, alcohol and sweetened drinks.`\
-https://nytimes.com/2025/09/24/health/global-health-sugary-drinks-tobacco.html
 
