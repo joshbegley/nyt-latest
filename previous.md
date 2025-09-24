@@ -1,3 +1,7 @@
+**Jimmy Kimmel Returns to Late Night**\
+`Jimmy Kimmel delivered an emotional monologue focused on free speech in his return to television. ABC had suspended the late-night host after comments he made about the assassination of Charlie Kirk.`\
+https://nytimes.com/video/us/100000010418148/jimmy-kimmel-return-monologue.html
+
 **One century in Australia, six quicks and an alarming spin figure: England's Ashes squad by numbers**\
 `England's Ashes record Down Under since 2010-11 is miserable: played 15, won 0, lost 13. But what do the numbers say about Stokes' squad?`\
 https://nytimes.com/athletic/6655159/2025/09/24/england-ashes-squad-root-stokes-numbers/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/24/world/asia/typhoon-ragasa-hong-kong-china.html
 **How to watch Packers at Cowboys: Time, TV, streaming**\
 `Find out how to watch the Green Bay Packers play the Dallas Cowboys, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6657103/2025/09/24/packers-vs-cowboys-stream-how-to-watch-sept-28/
-
-**Everton's League Cup snub was a missed opportunity to give season extra meaning**\
-`For all the positivity of recent months, Tuesday's League Cup defeat felt like a significant misstep and one that could have been avoided`\
-https://nytimes.com/athletic/6656487/2025/09/24/everton-league-cup-wolves/
 
