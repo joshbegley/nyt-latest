@@ -1,3 +1,7 @@
+**Olabe replacing Monchi a 'normal transition' for Villa, Emery says**\
+`The former president of football operations had been at the club for two years before being replaced on Tuesday.`\
+https://nytimes.com/athletic/6657868/2025/09/24/monchi-aston-villa-unai-emery-normal-transition/
+
 **Sister Jean, who cheered on Loyola Chicago's Final Four run, retires at 106**\
 `Sister Jean became a national symbol of the Ramblers' feel-good underdog story in 2018.`\
 https://nytimes.com/athletic/6657866/2025/09/24/sister-jean-loyola-chicago-retires/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/24/business/media/washington-post-karen-attiah.html
 **Al Gore discusses where the climate movement goes from here.**\
 `By David Gelles`\
 https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/al-gore-discusses-where-the-climate-movement-goes-from-here
-
-**Should I Leave My 3 Sons Different Amounts in My Will?**\
-`A father is considering leaving more of his estate to his youngest son, anticipating that his elder sons will inherit a substantial amount from their mother.`\
-https://nytimes.com/2025/09/24/style/estate-inheritance-children-unequal-bequests.html
 

@@ -1,3 +1,7 @@
+**Olabe replacing Monchi a 'normal transition' for Villa, Emery says**\
+`The former president of football operations had been at the club for two years before being replaced on Tuesday.`\
+https://nytimes.com/athletic/6657868/2025/09/24/monchi-aston-villa-unai-emery-normal-transition/
+
 **Sister Jean, who cheered on Loyola Chicago's Final Four run, retires at 106**\
 `Sister Jean became a national symbol of the Ramblers' feel-good underdog story in 2018.`\
 https://nytimes.com/athletic/6657866/2025/09/24/sister-jean-loyola-chicago-retires/
