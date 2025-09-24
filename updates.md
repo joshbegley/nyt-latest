@@ -1,3 +1,11 @@
+**In Taiwan, Images of a Town Engulfed by Typhoon Ragasa**\
+`Hundreds of firefighters and soldiers dispatched to Guangfu have gone door to door to check for trapped residents.`\
+https://nytimes.com/2025/09/24/world/asia/typhoon-ragasa-guangfu-taiwan-photos.html
+
+**A Statue of Trump and Epstein Holding Hands Briefly Appears on the National Mall**\
+`The United States Park Police said it had removed the statue, which included lines from President Trump’s birthday message to Jeffrey Epstein, the deceased sex offender.`\
+https://nytimes.com/2025/09/24/us/politics/trump-epstein-statue-dc-national-mall.html
+
 **Three People Shot at Dallas ICE Facility**\
 `The circumstances of the shooting were not yet clear. Federal authorities said there were “multiple injuries and fatalities.”`\
 https://nytimes.com/live/2025/09/24/us/dallas-ice-shooting
