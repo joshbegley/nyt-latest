@@ -1,3 +1,7 @@
+**Gov. Gavin Newsom calls Trump’s U.N. speech ‘an abomination.’**\
+`By Maxine Joselow`\
+https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/gov-gavin-newsom-calls-trumps-un-speech-an-abomination
+
 **Wednesday’s shooting was the second at a Texas ICE facility this year.**\
 `A police officer was shot in July outside a detention center in what prosecutors called an ambush.`\
 https://nytimes.com/live/2025/09/24/us/dallas-ice-shooting/wednesdays-shooting-is-the-second-at-a-texas-ice-facility-this-year
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6658710/2025/09/24/chris-woakes-rob-key-ashes-test/
 **U.N. Health Goals Weakened by Industry Pressure, Experts Say**\
 `Public health advocates complained that the final recommendations on combating chronic illness removed calls for taxes on tobacco, alcohol and sweetened drinks.`\
 https://nytimes.com/2025/09/24/health/global-health-sugary-drinks-tobacco.html
-
-**‘It was one shot after another after another after another.’**\
-`By Jazmine Ulloa`\
-https://nytimes.com/live/2025/09/24/us/dallas-ice-shooting/it-was-one-shot-after-another-after-another-after-another
 
