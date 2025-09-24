@@ -1,3 +1,27 @@
+**Mel Taub, Creator of a Pun-Loving, Anagram-Making Puzzle, Dies at 97**\
+`He was the main whiz behind a crossword puzzle variation for The Times, whose readers loved his sometimes groan-inducing wordplay. (Try one yourself.)`\
+https://nytimes.com/2025/09/24/crosswords/mel-taub-dead.html
+
+**Denmark Apologizes to Greenlandic Women Over Forced Contraception**\
+`The prime minister of Denmark, Mette Frederiksen, apologized in-person to Greenlandic women who were subjected to forced birth control.`\
+https://nytimes.com/video/world/europe/100000010419556/denmark-greenland-forced-contraception.html
+
+**President Trump, Your Aid Cuts Are Costing Lives and Money**\
+`The dismantling of U.S.A.I.D. is leading to the squandering of taxpayer dollars, as well as of large numbers of lives.`\
+https://nytimes.com/2025/09/24/opinion/trump-aid-cuts.html
+
+**Micah Parsons' Dallas return: 'No hard feelings there, at least from me'**\
+`Parsons is still close with his former Cowboys teammates and expects a "great atmosphere" on Monday night.`\
+https://nytimes.com/athletic/6659324/2025/09/24/packers-micah-parsons-return-to-dallas/
+
+**Tracking Tropical Storm Humberto**\
+`See the likely path and wind arrival times for Humberto`\
+https://nytimes.com/interactive/2025/weather/humberto-map-path-tracker.html
+
+**The Briefing: Port Vale 0 Arsenal 2 - Eze's 'special' first goal, Arteta's Saka balancing act, importance of cup run**\
+`The forward finished off a wonderful team move while some players got valuable minutes in League Cup win. We break down the action.`\
+https://nytimes.com/athletic/6658021/2025/09/24/arsenal-carabao-cup-port-vale/
+
 **Newsom And Wright Give Diverging Takes on Trump’s Climate Policy**\
 `Speaking at The New York Times’s Climate Forward conference, Gov. Gavin Newsom of California slammed President Trump’s comments on climate change at the United Nations, while Energy Secretary Chris Wright said Trump should get the “hero of the climate” award.`\
 https://nytimes.com/video/climate/100000010419580/newsom-climate-trump-wright.html
@@ -9,28 +33,4 @@ https://nytimes.com/video/arts/music/100000010419702/moab-music-festival-colorad
 **Mets designate Jose Siri for assignment, as Tyrone Taylor returns for final playoff push**\
 `The Mets swapped one centerfielder for another, cutting Siri while bringing Taylor back from the injured list.`\
 https://nytimes.com/athletic/6659307/2025/09/24/new-york-mets-jose-siri-tyrone-taylor/
-
-**One Dead and Two Wounded in Dallas ICE Facility Shooting**\
-`Law enforcement responded to a shooting at an ICE facility on Wednesday morning in Dallas. At least one detainee was killed and two others were critically wounded, officials said.`\
-https://nytimes.com/video/us/100000010419181/dallas-ice-shooting.html
-
-**For Trump’s energy secretary, the science that links disasters to climate change isn’t really science at all.**\
-`By Lisa Friedman`\
-https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/for-trumps-energy-secretary-the-science-that-links-disasters-to-climate-change-isnt-really-science-at-all
-
-**A fusion energy demo could be coming to the U.S. in the next two years.**\
-`By Brad Plumer`\
-https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/a-fusion-energy-demo-could-be-coming-to-the-us-in-the-next-two-years
-
-**LaCava: 'I'm not looking for any controversy' at this Ryder Cup**\
-`LaCava, Patrick Cantlay's caddie, had words with McIlroy and Shane Lowry after his 18th green celebration at Marco Simone.`\
-https://nytimes.com/athletic/6659104/2025/09/24/ryder-cup-joe-lacava-rory-mcilroy-caddie-hat/
-
-**With Sobs and Doubts, Greenlandic Women Receive Apology for Forced Contraception**\
-`Some Greenlanders asked why an apology had not come decades earlier, and chalked up the timing to tensions over President Trump’s aim of annexing the island.`\
-https://nytimes.com/2025/09/24/world/europe/denmark-greenland-apology-birth-control.html
-
-**Judge Rebukes Trump Officials for Saying Mangione Is a Killer**\
-`They echoed the president’s characterization of Mr. Mangione, even though the judge had warned of endangering a fair trial.`\
-https://nytimes.com/2025/09/24/nyregion/luigi-mangione-statements-judge-explanation.html
 
