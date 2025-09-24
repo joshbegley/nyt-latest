@@ -1,3 +1,23 @@
+**How Trump Strikes Radically Different Tones in Public and Private**\
+`At the United Nations, world leaders got to see both sides of President Trump: bellicose in public and far more conciliatory in private.`\
+https://nytimes.com/2025/09/24/us/politics/trump-united-nations-tones.html
+
+**Why Did Apple Get Cold Feet About ‘Savant’?**\
+`The company postpones a drama about domestic terrorism on its Apple TV+ streaming service.`\
+https://nytimes.com/2025/09/24/arts/television/savant-pulled.html
+
+**Tropical Storm Humberto Forms, and Another One Could Be On the Way**\
+`It’s too soon to know how Humberto could affect land. Another potential storm nearby is making for a complicated forecast.`\
+https://nytimes.com/live/2025/09/24/weather/tropical-storm-humberto
+
+**Here is the latest on the storm.**\
+`By Judson Jones`\
+https://nytimes.com/live/2025/09/24/weather/tropical-storm-humberto/here-is-the-latest-on-the-storm
+
+**Braves takeaways: Snitker's future, Hurston Waldrep and Tyler Kinley impress**\
+`The Braves’ 10-game win streak ended Wednesday as questions swirl about manager Brian Snitker’s future heading into the final series.`\
+https://nytimes.com/athletic/6659197/2025/09/24/braves-brian-snitker-hurston-waldrep-tyler-kinley/
+
 **Rainn Wilson Wants Us to Connect With Nature**\
 `“The Office” actor read his essay, “What I Learned at a Fire Ceremony With King Charles,” at The New York Times’s Climate Forward event, encouraging others to re-evaluate their relationship with nature.`\
 https://nytimes.com/video/climate/100000010419348/rainn-wilson-climate-change.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/09/24/arts/music/akiko-tsuruga-dead.html
 **A Flash of Anger on India’s Delicate Border With China**\
 `Protesters demanding statehood for Ladakh, a strategically important Himalayan region, clashed with the police.`\
 https://nytimes.com/2025/09/24/world/asia/ladakh-protests-india.html
-
-**Climate action is the ‘entry fee’ to credibility, Prime Minister Anthony Albanese of Australia says.**\
-`By Claire Brown`\
-https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/climate-action-is-the-entry-fee-to-credibility-prime-minister-anthony-albanese-of-australia-says
-
-**Senator Schatz says Democrats should drop ‘planetary emergency’ talk and focus on the cost of living.**\
-`By Lisa Friedman`\
-https://nytimes.com/live/2025/09/24/climate/climate-forward-conference/senator-schatz-says-democrats-should-drop-planetary-emergency-talk-and-focus-on-the-cost-of-living
-
-**Knicks' Jordan Clarkson, Guerschon Yabusele are here for much needed bench bolstering**\
-`Jordan Clarkson and Guerschon Yabusele spoke for the first time on Wednesday since joining the Knicks. `\
-https://nytimes.com/athletic/6658963/2025/09/24/knicks-bench-jordan-clarkson-guerschon-yabusele/
-
-**Mel Taub, Creator of a Pun-Loving Puzzle, Is Dead at 97**\
-`He was the main whiz behind a crossword  variation for The Times, whose readers delighted in his anagrams and sometimes groan-inducing wordplay. (Try one yourself.)`\
-https://nytimes.com/2025/09/24/crosswords/mel-taub-dead.html
-
-**Denmark Apologizes to Greenlandic Women Over Forced Contraception**\
-`The prime minister of Denmark, Mette Frederiksen, apologized in-person to Greenlandic women who were subjected to forced birth control.`\
-https://nytimes.com/video/world/europe/100000010419556/denmark-greenland-forced-contraception.html
 

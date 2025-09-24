@@ -1,3 +1,11 @@
+**Rainn Wilson Wants Us to Connect With Nature**\
+`“The Office” actor read his essay, “What I Learned at a Fire Ceremony With King Charles,” at The New York Times’s Climate Forward event, encouraging others to re-evaluate their relationship with nature.`\
+https://nytimes.com/video/climate/100000010419348/rainn-wilson-climate-change.html
+
+**Mel Taub, Creator of a Pun-Loving Puzzle, Is Dead at 97**\
+`He was the main whiz behind a crossword  variation for The Times, whose readers delighted in his anagrams and sometimes groan-inducing wordplay. (Try one yourself.)`\
+https://nytimes.com/2025/09/24/crosswords/mel-taub-dead.html
+
 **NJ PBS, New Jersey’s Public Television Network, May Shut Down Next Year**\
 `The announcement of the possible closure comes as federal funding cuts have hurt public broadcasting stations across the United States.`\
 https://nytimes.com/2025/09/24/nyregion/nj-pbs-trump-funding-cuts.html
