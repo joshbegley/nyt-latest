@@ -16,10 +16,10 @@ https://nytimes.com/2025/09/24/style/estate-inheritance-children-unequal-bequest
 
 **Multiple People Wounded in Shooting at Dallas ICE Facility**\
 `The circumstances of the shooting were not yet clear. Federal authorities said there were “multiple injuries and fatalities.”`\
-https://nytimes.com/2025/09/24/us/multiple-people-wounded-in-shooting-at-dallas-ice-facility.html
+https://nytimes.com/2025/09/24/us/ice-dallas-shooting.html
 
-**Israeli Strike on Gaza City Kills Civilians, Local Rescue Service Says**\
-`Local news reports said Israel struck a warehouse where people were sheltering. The Israeli military said it had hit two “Hamas terrorists.”`\
+**Israeli Strike Kills Gazans Sheltering in Warehouse, Local Reports Say**\
+`The Israeli attack in Gaza City killed nearly two dozen Palestinians, the reports said. The Israeli military said it had hit two “Hamas terrorists.”`\
 https://nytimes.com/2025/09/24/world/middleeast/israel-strike-gaza-city-civilians.html
 
 **Dodgers get more from Ohtani but their bullpen collapses again anyway**\
