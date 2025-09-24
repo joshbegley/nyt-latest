@@ -22,7 +22,7 @@ https://nytimes.com/2025/09/24/us/lawsuit-washington-plane-crash.html
 `On social media accounts, the suspect, Joshua Jahn, talked about video games, cars, “South Park” and marijuana — but not so much about politics.`\
 https://nytimes.com/2025/09/24/us/dallas-ice-shooting-suspect.html
 
-**Jimmy Kimmel’s Return Draws 6.2 Million Viewers, Rating Show**\
+**Jimmy Kimmel’s Return Draws 6.2 Million Viewers, Ratings Show**\
 `The first episode of “Jimmy Kimmel Live!” since it was suspended last week by Disney attracted nearly four times its average viewership.`\
 https://nytimes.com/2025/09/24/business/media/jimmy-kimmel-ratings.html
 
