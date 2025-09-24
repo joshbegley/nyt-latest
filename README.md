@@ -1,3 +1,11 @@
+**Micah Parsons returns: Trade aftermath and what Cowboys fans say about it**\
+`Did Dallas get enough in return? Will fans boo or cheer Parsons on Sunday night? Emotions will be high when the Packers visit the Cowboys.`\
+https://nytimes.com/athletic/6656297/2025/09/24/micah-parsons-cowboys-packers-return-trade/
+
+**When MLB adopts ABS challenge system next season who benefits and who loses?**\
+`For Patrick Bailey and other pitch-framing savants, the saving grace is that MLB isn't going full robot.`\
+https://nytimes.com/athletic/6656787/2025/09/24/major-league-baseball-abs-system-reaction-impact/
+
 **Trump’s Big Flip on Ukraine, and a Defiant Jimmy Kimmel**\
 `Plus, robot fight club.`\
 https://nytimes.com/2025/09/24/podcasts/the-headlines/trump-ukraine-jimmy-kimmel.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6655800/2025/09/24/penn-state-nil-collectives-footb
 **Las Vegas star A'ja Wilson found another level of leadership to guide Aces to semifinals win**\
 `The Aces throttled the Fever for a Game 2 victory behind Wilson's 25 points.`\
 https://nytimes.com/athletic/6657032/2025/09/24/aja-wilson-las-vegas-aces-leaderhip/
-
-**Ryder Cup 2025 Big Board: The United States and European teams, ranked 1-24**\
-`Scottie Scheffler is the No. 1 player in the world and at this year's Ryder Cup, but which team has more star power? More depth?`\
-https://nytimes.com/athletic/6656019/2025/09/24/ryder-cup-2025-big-board-scheffler-mcilroy/
-
-**What's behind Daniel Jones' breakout success with Colts? The answer is simpler than you think**\
-`Jones’ dedication, paired with his physical gifts as a dual-threat QB, convinced the Colts to take a swing on him in free agency.`\
-https://nytimes.com/athletic/6655879/2025/09/24/daniel-jones-colts-success-breakout/
 
