@@ -1,3 +1,7 @@
+**Typhoon Ragasa Floods Hong Kong**\
+`Typhoon Ragasa, which left at least a dozen dead and over a hundred missing in Taiwan, skirted Hong Kong but brought torrential rain to the city.`\
+https://nytimes.com/video/world/asia/100000010417960/typhoon-ragasa-hong-kong-china.html
+
 **Which NFL teams have the best front offices? Head coaches and execs cast their votes**\
 `We asked 29 coaches and executives for the "who" and the "why" when it comes to the league’s best in football operations.`\
 https://nytimes.com/athletic/6655181/2025/09/24/nfl-front-office-rankings-vote/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6657279/2025/09/24/brewers-vs-padres-stream-how-to-
 **How to watch Cardinals at Giants: Time, TV, streaming for September 24**\
 `Find out how to watch the St. Louis Cardinals play the San Francisco Giants, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6657278/2025/09/24/cardinals-vs-giants-stream-how-to-watch-sept-24/
-
-**He May Be a ‘Slow Horse,’ but He’s in Peak Condition**\
-`Christopher Chung, who plays the I.T. whiz Roddy Ho on the Apple TV+ series “Slow Horses,” also works as a personal trainer. In the show’s new Season 5, he’s at the center of the action.`\
-https://nytimes.com/2025/09/24/arts/television/slow-horses-season-5-christopher-chung.html
 
