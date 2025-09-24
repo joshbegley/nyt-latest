@@ -1,3 +1,7 @@
+**Stock watch: Where every Oilers prospect stands entering the season**\
+`The Oilers worked hard to increase the quality and depth in Bakersfield, and that is reflected across this list.`\
+https://nytimes.com/athletic/6653357/2025/09/24/edmonton-oilers-prospects-2025-stock-watch/
+
 **What is the most unpredictable sport and why?**\
 `What are the factors that contribute to the predictability of winning matches - and what does that mean for individual and team sports?`\
 https://nytimes.com/athletic/6653998/2025/09/24/most-unpredictable-sport-golf-tennis-soccer-nfl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6657866/2025/09/24/sister-jean-loyola-chicago-retir
 **Israel-Premier Tech title sponsor calls for removal of 'Israel' from cycling team name**\
 `Protests directed at the cycling team contributed to three stages of the Vuelta being neutralised due to rider safety concerns.`\
 https://nytimes.com/athletic/6657465/2025/09/24/israel-premier-tech-vuelta-protests-sponsor/
-
-**In Taiwan, Images of a Town Engulfed by Typhoon Ragasa**\
-`Hundreds of firefighters and soldiers dispatched to Guangfu have gone door to door to check for trapped residents.`\
-https://nytimes.com/2025/09/24/world/asia/typhoon-ragasa-guangfu-taiwan-photos.html
 

@@ -1,3 +1,7 @@
+**Stock watch: Where every Oilers prospect stands entering the season**\
+`The Oilers worked hard to increase the quality and depth in Bakersfield, and that is reflected across this list.`\
+https://nytimes.com/athletic/6653357/2025/09/24/edmonton-oilers-prospects-2025-stock-watch/
+
 **What is the most unpredictable sport and why?**\
 `What are the factors that contribute to the predictability of winning matches - and what does that mean for individual and team sports?`\
 https://nytimes.com/athletic/6653998/2025/09/24/most-unpredictable-sport-golf-tennis-soccer-nfl/
