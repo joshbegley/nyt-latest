@@ -1,3 +1,8 @@
+**How Dylan Cozens is dealing with the 'pressure' to succeed in Ottawa**\
+`Since arriving in Ottawa at the trade deadline, expectations for the centre making $7.1 million a year to perform well remain high.
+`\
+https://nytimes.com/athletic/6647290/2025/09/24/dylan-cozens-senators-sabres-nhl/
+
 **The 2025-26 NHL prospects viewing guide: How to watch the CHL, NCAA, SHL and more**\
 `Bookmark this page as your primer to follow all of the leagues outside the NHL for the 2025-26 season.`\
 https://nytimes.com/athletic/6643845/2025/09/24/nhl-prospects-watch-ncaa-chl-guide/
