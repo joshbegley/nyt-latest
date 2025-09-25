@@ -1,3 +1,7 @@
+**Reds vs. Pirates: Cincinnati remains 1 game behind Mets with extra-inning loss**\
+`With the bases loaded in the 11th inning, Reds' Noelvi Marte grounded out into a fielder's choice, sealing the Pirates' 4-3 win.`\
+https://nytimes.com/athletic/6660168/2025/09/24/reds-pirates-game-takeaways-nl-wild-card-race/
+
 **Off-Duty N.Y.P.D. Officer Shoots Man Who Tried to Rob Her at Penn Station**\
 `The man attempted to rob the police officer and another off-duty officer in plain clothes. The man was in stable condition after being struck in the arm.`\
 https://nytimes.com/2025/09/24/nyregion/penn-station-nypd-officer-robbery.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6655932/2025/09/24/phillies-playoff-bye-nlds-homefi
 **Astros' Luis Garcia to miss 2026 season, heightening need for rotation help**\
 `The right-hander, who has dealt with injury woes since May 2023, will likely be non-tendered in the offseason.`\
 https://nytimes.com/athletic/6660179/2025/09/24/astros-luis-garcia-to-miss-2026-season-heightening-astros/
-
-**Suns owner Mat Ishbia embraces team's identity shift, defends company culture**\
-`The winning has taken longer than expected under owner Ishbia, but the Suns’ workplace culture also is under fire as a new season begins.`\
-https://nytimes.com/athletic/6659543/2025/09/24/phoenix-suns-mat-ishbia-media-day-culture-lawsuits/
 
