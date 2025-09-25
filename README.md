@@ -1,3 +1,31 @@
+**Mets vs. Cubs takeaways: New York buried by Chicago as offense goes cold**\
+`New York's offense was stagnant for most of the game, and the defense did little to slow Chicago.`\
+https://nytimes.com/athletic/6660422/2025/09/25/mets-cubs-takeaways-game-2-nl-wild-card-race/
+
+**Connections: Sports Edition Coach: Hints for Sept. 25, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6659528/2025/09/25/connections-sports-edition-hints-for-sept-25-2025/
+
+**Fantasy football matchup rankings Week 4 | Strength of schedule**\
+`Jake Ciely's Week 4 fantasy football strength of schedule by position matchup rankings can help with tough start/sit decisions. `\
+https://nytimes.com/athletic/6638425/2025/09/25/fantasy-football-matchup-rankings-week-4-strength-of-schedule/
+
+**Apples Are Vital to Kashmir’s Economy. A Landslide Left Them to Rot.**\
+`The Himalayan region supplies most of India’s apples. But when heavy rains left a major highway blocked for weeks, farmers couldn’t get them to markets.`\
+https://nytimes.com/2025/09/25/world/asia/apples-are-vital-to-kashmirs-economy-a-landslide-left-them-to-rot.html
+
+**Corrections: Sept. 25, 2025**\
+`Corrections that appeared in print on Thursday, Sept. 25, 2025.`\
+https://nytimes.com/2025/09/25/pageoneplus/corrections-sept-25-2025.html
+
+**Mariners' Cal Raleigh slugs his way to 60-homer season**\
+`With four games left to play for the Mariners, Raleigh is in position to make a run at the American League’s single-season home run mark.`\
+https://nytimes.com/athletic/6660548/2025/09/24/seattle-mariners-cal-raleigh-60-home-run-season/
+
+**Quote of the Day: Stark Reminder of Toll As Injured Are Extracted**\
+`Quotation of the Day for Thursday, September 25, 2025.`\
+https://nytimes.com/2025/09/24/pageoneplus/quote-of-the-day-stark-reminder-of-toll-as-injured-are-extracted.html
+
 **Were You Assigned Full Books to Read in High School English? Tell Us.**\
 `We’re asking because the reading scores of American 12th graders are at record lows.`\
 https://nytimes.com/2025/09/24/us/education-books-callout.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6660463/2025/09/24/los-angeles-angels-tyler-skaggs-
 **Reds vs. Pirates: Cincinnati remains 1 game behind Mets with extra-inning loss**\
 `With the bases loaded in the 11th inning, Reds' Noelvi Marte grounded out into a fielder's choice, sealing the Pirates' 4-3 win.`\
 https://nytimes.com/athletic/6660168/2025/09/24/reds-pirates-game-takeaways-nl-wild-card-race/
-
-**Off-Duty N.Y.P.D. Officer Shoots Man Who Tried to Rob Her at Penn Station**\
-`The man attempted to rob the police officer and another off-duty officer in plain clothes. The man was in stable condition after being struck in the arm.`\
-https://nytimes.com/2025/09/24/nyregion/penn-station-nypd-officer-robbery.html
-
-**White House Eyes New Round of Mass Layoffs if Government Shuts Down**\
-`The president’s top aides told agencies to prepare for potential firings if Congress cannot extend funding before the end of Sept. 30.`\
-https://nytimes.com/2025/09/24/us/politics/trump-shutdown-layoffs.html
-
-**Tigers vs. Guardians: Valera's HR helps Cleveland take AL Central lead**\
-`Guardians' magic number is three, while Tigers lose eighth straight.`\
-https://nytimes.com/athletic/6660244/2025/09/24/guardians-tigers-takeaways-game-2-al-central-battle/
-
-**In Order to Make Sense**\
-`Jesse Goldberg’s puzzle just seems confusing. Once you get the trick, solving it is smooth sailing.`\
-https://nytimes.com/2025/09/24/crosswords/daily-puzzle-2025-09-25.html
-
-**White House Deputy Chief of Staff Leaving Trump Administration**\
-`Taylor Budowich, a longtime Trump aide, played a large role in the president’s political operation after he left office in 2021.`\
-https://nytimes.com/2025/09/24/us/politics/taylor-budowich-trump-white-house.html
-
-**Henry Jaglom, Indie Director Who Mined the Personal, Dies at 87**\
-`His discursive films, often centered on women and their emotions and relationships, confounded and delighted critics in equal measure.`\
-https://nytimes.com/2025/09/24/movies/henry-jaglom-dead.html
-
-**Journalist Held by ICE Faces ‘Imminent’ Deportation, His Lawyers Say**\
-`The journalist, Mario Guevara, has been in Immigration and Customs Enforcement custody since June, when he was arrested while covering a “No Kings” protest outside Atlanta.`\
-https://nytimes.com/2025/09/24/us/politics/mario-guevara-journalist-deportation.html
 
