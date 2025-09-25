@@ -1,3 +1,11 @@
+**Lionel Messi takes lead in Golden Boot race as Inter Miami thrashes NYCFC**\
+`Messi and Inter Miami clinched their spot in the MLS playoffs thanks to his late-game heroics.`\
+https://nytimes.com/athletic/6660589/2025/09/25/lionel-messi-golden-boot-inter-miami-playoffs/
+
+**Villa, Emery and three days of turmoil: What are players thinking, how will they react?**\
+`Their manager called them 'lazy' and the sporting director has been replaced. It's been a busy week, and now attention turns to Europe.`\
+https://nytimes.com/athletic/6657269/2025/09/25/aston-villa-unai-emery-and-three-days-of-turmoil-what-are-players-thinking-and-how-will-they-react/
+
 **Map: 6.3-Magnitude Earthquake Strikes Venezuela**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/09/25/world/americas/earthquake-venezuela-tracker.html

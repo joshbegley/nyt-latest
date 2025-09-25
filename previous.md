@@ -1,3 +1,7 @@
+**Lionel Messi takes lead in Golden Boot race as Inter Miami thrashes NYCFC**\
+`Messi and Inter Miami clinched their spot in the MLS playoffs thanks to his late-game heroics.`\
+https://nytimes.com/athletic/6660589/2025/09/25/lionel-messi-golden-boot-inter-miami-playoffs/
+
 **Map: 6.3-Magnitude Earthquake Strikes Venezuela**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/09/25/world/americas/earthquake-venezuela-tracker.html
@@ -22,6 +26,10 @@ https://nytimes.com/athletic/6658618/2025/09/25/england-spinners-ashes-selection
 `The German manager has introduced a greater sense of discipline at Barca since his arrival as manager last summer`\
 https://nytimes.com/athletic/6657915/2025/09/25/barcelona-rashford-hansi-flicks-lateness/
 
+**Villa, Emery and three days of turmoil: What are players thinking, how will they react?**\
+`Their manager called them 'lazy' and the sporting director has been replaced. It's been a busy week, and now attention turns to Europe.`\
+https://nytimes.com/athletic/6657269/2025/09/25/aston-villa-unai-emery-and-three-days-of-turmoil-what-are-players-thinking-and-how-will-they-react/
+
 **The Alternative Premier League Table: No 6 – How are teams using long balls?**\
 `When even Pep Guardiola's Manchester City are playing more direct, it's clear the division is going through of a tactical shift`\
 https://nytimes.com/athletic/6657882/2025/09/25/alternative-premier-league-table-no-6-long-ball-use/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6657882/2025/09/25/alternative-premier-league-table
 **The most important transfer of the summer window (that you've never heard about)**\
 `Lucas Ribeiro's move from Mamelodi Sundowns to Cultural Leonesa took advantage of a ruling that could be crucial for global football`\
 https://nytimes.com/athletic/6640988/2025/09/25/transfer-diarra-ribeiro-fifa-news/
-
-**Why Sterling didn't leave Chelsea – and what's happening now**\
-`The 30-year-old forward is out of favour and the major transfer windows are shut. This is the latest on his situation`\
-https://nytimes.com/athletic/6651696/2025/09/25/raheem-sterling-chelsea-where-what-transfer/
-
-**Why has football become so obsessed with the Ballon d'Or?**\
-`The excitement and publicity around this year's awards show how the game has come to view these accolades as increasingly important`\
-https://nytimes.com/athletic/6657620/2025/09/25/ballon-dor-dembele-individual-awards/
 
