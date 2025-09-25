@@ -1,3 +1,7 @@
+**Prosecutor Believes Shooting at ABC Affiliate Was Politically Motivated**\
+`The suspect in the shooting in Sacramento, a retired California lobbyist, was ordered to remain in custody without bail. His lawyer questioned why federal lawyers were involved.`\
+https://nytimes.com/2025/09/25/us/abc-affiliate-shooting-california.html
+
 **Grand Jury Indicts Longtime Trump Target, Former F.B.I. Director James Comey**\
 `The move came after the president intensified his pressure campaign on the Justice Department in recent days, publicly demanding that top officials prosecute Mr. Comey.`\
 https://nytimes.com/2025/09/25/us/politics/james-comey-indicted.html

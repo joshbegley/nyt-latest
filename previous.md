@@ -1,3 +1,7 @@
+**Prosecutor Believes Shooting at ABC Affiliate Was Politically Motivated**\
+`The suspect in the shooting in Sacramento, a retired California lobbyist, was ordered to remain in custody without bail. His lawyer questioned why federal lawyers were involved.`\
+https://nytimes.com/2025/09/25/us/abc-affiliate-shooting-california.html
+
 **Grand Jury Indicts Longtime Trump Target, Former F.B.I. Director James Comey**\
 `The move came after the president intensified his pressure campaign on the Justice Department in recent days, publicly demanding that top officials prosecute Mr. Comey.`\
 https://nytimes.com/2025/09/25/us/politics/james-comey-indicted.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/25/us/chicago-police-settlement-ronald-watts.html
 **The Justice Dept. Is Taking Aim at Trump’s Foes**\
 `Also, Trump waded into bailout politics by offering a lifeline to Argentina. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/09/25/briefing/justice-department-george-soros-us-argentina-bailout.html
-
-**Trump’s War on ‘Hotbeds of Radicalism’**\
-`Universities have an ideology problem, at least according to the Trump administration, and May Mailman is here to fix it.`\
-https://nytimes.com/video/opinion/100000010414442/trumps-war-on-hotbeds-of-radicalism.html
 
