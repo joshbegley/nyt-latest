@@ -1,3 +1,7 @@
+**49ers WR Brandon Aiyuk 'not close' to return, GM John Lynch says**\
+`While Aiyuk's return is not in the offing, Lynch had better news regarding quarterback Brock Purdy and tight end George Kittle.`\
+https://nytimes.com/athletic/6662341/2025/09/25/brandon-aiyuk-injury-update-brock-purdy-george-kittle/
+
 **This Saturday, It’s Bake Time**\
 `Make sure you’re on the list for our new newsletter dedicated to all things delightful and baked (like these apple cider doughnuts).`\
 https://nytimes.com/2025/09/25/dining/this-saturday-its-bake-time.html

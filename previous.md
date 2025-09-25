@@ -1,3 +1,7 @@
+**49ers WR Brandon Aiyuk 'not close' to return, GM John Lynch says**\
+`While Aiyuk's return is not in the offing, Lynch had better news regarding quarterback Brock Purdy and tight end George Kittle.`\
+https://nytimes.com/athletic/6662341/2025/09/25/brandon-aiyuk-injury-update-brock-purdy-george-kittle/
+
 **This Saturday, It’s Bake Time**\
 `Make sure you’re on the list for our new newsletter dedicated to all things delightful and baked (like these apple cider doughnuts).`\
 https://nytimes.com/2025/09/25/dining/this-saturday-its-bake-time.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/25/us/politics/hegseth-generals-admirals-summoned.ht
 **What we know about ‘Uncle Dennis’: A central figure in another Kawhi Leonard, Clippers investigation**\
 `The Athletic conducted interviews with 17 different sources, league and team personnel to learn about Kawhi Leonard's uncle and advisor. `\
 https://nytimes.com/athletic/6658362/2025/09/25/kawhi-leonard-clippers-uncle-dennis-nba-investigation/
-
-**A 64-team World Cup is excessive, but – bear with us – it's better than 48**\
-`The World Cup has already gotten unwieldy in size and scope. Expanding again could actually make for a more tidy tournament`\
-https://nytimes.com/athletic/6661715/2025/09/25/64-team-world-cup-fifa-2030-argument/
 

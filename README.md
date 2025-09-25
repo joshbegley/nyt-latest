@@ -1,3 +1,11 @@
+**Trump at the U.N.: A Bitter Display**\
+`Readers criticize President Trump’s harsh speech. Also: Jimmy Kimmel’s return, and the F.C.C.’s threats; women in Congress; politics at the E.P.A.`\
+https://nytimes.com/2025/09/25/opinion/trump-united-nations.html
+
+**Eurovision Members to Vote on Whether to Exclude Israel**\
+`The event’s organizer has called an extraordinary general meeting for November, with countries like Spain and Ireland saying they will not take part in the contest if Israel does.`\
+https://nytimes.com/2025/09/25/arts/music/eurovision-israel-vote.html
+
 **49ers WR Brandon Aiyuk 'not close' to return, GM John Lynch says**\
 `While Aiyuk's return is not in the offing, Lynch had better news regarding quarterback Brock Purdy and tight end George Kittle.`\
 https://nytimes.com/athletic/6662341/2025/09/25/brandon-aiyuk-injury-update-brock-purdy-george-kittle/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/25/well/ai-chatbots-health.html
 **Panthers' Aleksander Barkov helped off ice after suffering injury at training camp**\
 `Coach Paul Maurice told reporters in South Florida that the team would have more information Friday on the severity of the injury.`\
 https://nytimes.com/athletic/6662308/2025/09/25/aleksander-barkov-injury-panthers-training-camp/
-
-**Hegseth Is Said to Have Summoned U.S. Military Brass From Around the Globe**\
-`The unusual directive, without a stated reason, came after the defense secretary has fired several top officers and ordered a reduction in four-star officers.`\
-https://nytimes.com/2025/09/25/us/politics/hegseth-generals-admirals-summoned.html
-
-**What we know about ‘Uncle Dennis’: A central figure in another Kawhi Leonard, Clippers investigation**\
-`The Athletic conducted interviews with 17 different sources, league and team personnel to learn about Kawhi Leonard's uncle and advisor. `\
-https://nytimes.com/athletic/6658362/2025/09/25/kawhi-leonard-clippers-uncle-dennis-nba-investigation/
 
