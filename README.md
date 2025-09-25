@@ -1,3 +1,7 @@
+**Skaggs-Angels trial: Key details and developments from the first week**\
+`The two sides spent the last two days arguing important motions in front of Orange County Superior Court judge H. Shaina Colover.`\
+https://nytimes.com/athletic/6660463/2025/09/24/los-angeles-angels-tyler-skaggs-trial-week-1-recap/
+
 **Reds vs. Pirates: Cincinnati remains 1 game behind Mets with extra-inning loss**\
 `With the bases loaded in the 11th inning, Reds' Noelvi Marte grounded out into a fielder's choice, sealing the Pirates' 4-3 win.`\
 https://nytimes.com/athletic/6660168/2025/09/24/reds-pirates-game-takeaways-nl-wild-card-race/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/24/us/politics/mario-guevara-journalist-deportation.
 **Phillies bash their way to first-round playoff bye, homefield advantage in NLDS**\
 `With an 11-1 win over the Marlins and a franchise-record eight homers, the Phillies clinched a first-round bye for the second straight year.`\
 https://nytimes.com/athletic/6655932/2025/09/24/phillies-playoff-bye-nlds-homefield-advantage/
-
-**Astros' Luis Garcia to miss 2026 season, heightening need for rotation help**\
-`The right-hander, who has dealt with injury woes since May 2023, will likely be non-tendered in the offseason.`\
-https://nytimes.com/athletic/6660179/2025/09/24/astros-luis-garcia-to-miss-2026-season-heightening-astros/
 

@@ -1,3 +1,7 @@
+**Reds vs. Pirates: Cincinnati remains 1 game behind Mets with extra-inning loss**\
+`With the bases loaded in the 11th inning, Reds' Noelvi Marte grounded out into a fielder's choice, sealing the Pirates' 4-3 win.`\
+https://nytimes.com/athletic/6660168/2025/09/24/reds-pirates-game-takeaways-nl-wild-card-race/
+
 **Off-Duty N.Y.P.D. Officer Shoots Man Who Tried to Rob Her at Penn Station**\
 `The man attempted to rob the police officer and another off-duty officer in plain clothes. The man was in stable condition after being struck in the arm.`\
 https://nytimes.com/2025/09/24/nyregion/penn-station-nypd-officer-robbery.html
