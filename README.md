@@ -1,3 +1,7 @@
+**Wyden Presses JPMorgan Chief Dimon for Answers on Jeffrey Epstein**\
+`Senator Ron Wyden, Democrat of Oregon, sent a list of questions to Jamie Dimon, head of the country’s biggest bank, about its financial relationships with Mr. Epstein, the convicted sex offender.`\
+https://nytimes.com/2025/09/25/us/politics/jpmorgan-jeffrey-epstein-dimon-wyden.html
+
 **Justice Dept. Official Pushes Prosecutors to Investigate George Soros’s Foundation**\
 `The directive suggests department leaders are following orders from the president, a major break from decades of past practice meant to insulate the agency from political interference.`\
 https://nytimes.com/2025/09/25/us/politics/justice-trump-george-soros-foundation.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/25/style/meredith-marks-rhoslc-rumors-nastiness-game
 **Democrats Dig In After White House Threat of Mass Federal Layoffs**\
 `Party leaders said the administration’s plan to fire government workers in the event of a shutdown would not prompt them to drop their demands in their spending standoff with the G.O.P.`\
 https://nytimes.com/2025/09/25/us/politics/democrats-government-shutdown-layoffs-threats.html
-
-**Observations from Hurricanes training camp: How have Nikishin and Ehlers looked?**\
-`There’s understandably a lot of excitement surrounding Nikishin as he moves to full-time NHLer.`\
-https://nytimes.com/athletic/6660718/2025/09/25/hurricanes-nikishin-ehlers-camp/
 

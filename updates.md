@@ -1,3 +1,11 @@
+**Justice Dept. Official Pushes Prosecutors to Investigate George Soros’s Foundation**\
+`The directive suggests department leaders are following orders from the president, a major break from decades of past practice meant to insulate the agency from political interference.`\
+https://nytimes.com/2025/09/25/us/politics/justice-trump-george-soros-foundation.html
+
+**Kerry James Marshall on Making ‘the Paintings Nobody Else Is Making’**\
+`The artist’s blockbuster survey across nearly five decades at the Royal Academy of Art in London tackles Black history in all its complexity.`\
+https://nytimes.com/2025/09/25/arts/design/kerry-james-marshall-royal-academy-london-art-museum.html
+
 **College football picks ATS: Penn State-Oregon, Georgia-Alabama headline loaded Week 5**\
 `There are big games all over the country this week and our staff has picks against the spread for every big Week 5 college football game.`\
 https://nytimes.com/athletic/6655030/2025/09/25/college-football-week-5-picks-spread-georgia-alabama-penn-state-oregon/
