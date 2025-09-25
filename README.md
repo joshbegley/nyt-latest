@@ -1,3 +1,7 @@
+**The New York Times in Print for Thursday, Sep. 25, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/25/todays-new-york-times
+
 **Lionel Messi takes lead in Golden Boot race as Inter Miami thrashes NYCFC**\
 `Messi and Inter Miami clinched their spot in the MLS playoffs thanks to his late-game heroics.`\
 https://nytimes.com/athletic/6660589/2025/09/25/lionel-messi-golden-boot-inter-miami-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6657269/2025/09/25/aston-villa-unai-emery-and-three
 **The Alternative Premier League Table: No 6 – How are teams using long balls?**\
 `When even Pep Guardiola's Manchester City are playing more direct, it's clear the division is going through of a tactical shift`\
 https://nytimes.com/athletic/6657882/2025/09/25/alternative-premier-league-table-no-6-long-ball-use/
-
-**The most important transfer of the summer window (that you've never heard about)**\
-`Lucas Ribeiro's move from Mamelodi Sundowns to Cultural Leonesa took advantage of a ruling that could be crucial for global football`\
-https://nytimes.com/athletic/6640988/2025/09/25/transfer-diarra-ribeiro-fifa-news/
 
