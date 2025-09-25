@@ -1,3 +1,7 @@
+**3 School Districts to Lose $65 Million Over Gender and D.E.I. Policies**\
+`The federal Education Department accused New York, Chicago and Fairfax, Va., of discrimination and said it would pull federal funds from their magnet schools.`\
+https://nytimes.com/2025/09/25/nyregion/trump-dei-schools-federal-money.html
+
 **Sonny Gray says he will reconsider his Cardinals future: 'I came here to win'**\
 `"I signed here two years ago with the expectation of winning and trying to win. That hasn't played out that way," the Cards ace said.`\
 https://nytimes.com/athletic/6660689/2025/09/25/sonny-gray-cardinals-future/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/25/us/ryan-walters-oklahoma-resign.html
 **Tylenol Issues Clarification After White House Resurfaces 2017 Tweet on Usage During Pregnancy**\
 `Tylenol’s parent company, Kenvue, said an eight-year-old social media post was “being taken out of context” as the Trump administration warns pregnant women not to take the drug.`\
 https://nytimes.com/2025/09/25/us/politics/tylenol-tweet-2017-pregnancy-autism.html
-
-**MLB playoff watch: There's a new sheriff in the AL West; bracket, clinching scenarios**\
-`Plus, breaking down the AL East race as the Yankees and Blue Jays are tied atop the division.`\
-https://nytimes.com/athletic/6660629/2025/09/25/mlb-playoff-watch-mariners-al-west-clinch/
 

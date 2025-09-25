@@ -1,3 +1,7 @@
+**Cardinals' Nolan Arenado more open-minded to trade possibilities: 'I think I have to be'**\
+`Arenado said he can still contribute to a contender: "The way I played this year, it looks old and washed. But I don't feel that way."`\
+https://nytimes.com/athletic/6660310/2025/09/25/cardinals-nolan-arenado-trade-clause/
+
 **3 School Districts to Lose $65 Million Over Gender and D.E.I. Policies**\
 `The federal Education Department accused New York, Chicago and Fairfax, Va., of discrimination and said it would pull federal funds from their magnet schools.`\
 https://nytimes.com/2025/09/25/nyregion/trump-dei-schools-federal-money.html
@@ -18,8 +22,8 @@ https://nytimes.com/live/2025/09/25/world/united-nations-palestinian-abbas/heres
 `As far as the season goes, there's nothing on the line this weekend between the Giants and Rockies. But there are milestones to watch for.`\
 https://nytimes.com/athletic/6660598/2025/09/25/giants-rockies-series-preview/
 
-**U.N. General Assembly Updates: Palestinian Authority Leader, Barred by U.S., Set to Appear by Video**\
-`The address by the leader, Mahmoud Abbas, comes days after 10 Western countries joined 150 other nations in recognizing Palestinian statehood.`\
+**U.N. General Assembly Updates: Palestinian Authority Leader, Barred by U.S., Appears by Video**\
+`The address by Mahmoud Abbas comes days after 10 Western countries joined 150 other nations in recognizing Palestinian statehood.`\
 https://nytimes.com/live/2025/09/25/world/united-nations-palestinian-abbas
 
 **Dodgers' bullpen puzzle gets some surprising relief in form of Kershaw, Sasaki**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6661183/2025/09/25/barcelona-gavi-knee-injury-surge
 **Oklahoma Education Chief Who Promoted Bibles in Schools Will Resign**\
 `Ryan Walters had drawn criticism from liberals and conservatives alike over his push to place Bibles in classrooms and bring more prayer into public schools.`\
 https://nytimes.com/2025/09/25/us/ryan-walters-oklahoma-resign.html
-
-**Tylenol Issues Clarification After White House Resurfaces 2017 Tweet on Usage During Pregnancy**\
-`Tylenol’s parent company, Kenvue, said an eight-year-old social media post was “being taken out of context” as the Trump administration warns pregnant women not to take the drug.`\
-https://nytimes.com/2025/09/25/us/politics/tylenol-tweet-2017-pregnancy-autism.html
 

@@ -1,3 +1,7 @@
+**3 School Districts to Lose $65 Million Over Gender and D.E.I. Policies**\
+`The federal Education Department accused New York, Chicago and Fairfax, Va., of discrimination and said it would pull federal funds from their magnet schools.`\
+https://nytimes.com/2025/09/25/nyregion/trump-dei-schools-federal-money.html
+
 **Sonny Gray says he will reconsider his Cardinals future: 'I came here to win'**\
 `"I signed here two years ago with the expectation of winning and trying to win. That hasn't played out that way," the Cards ace said.`\
 https://nytimes.com/athletic/6660689/2025/09/25/sonny-gray-cardinals-future/
