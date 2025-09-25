@@ -1,3 +1,7 @@
+**Gambians Cheer U.S. Denial of Visas for Their Government Officials**\
+`Gambians who see officials’ attendance at international events as taxpayer-funded vacations were grateful when some officials were refused U.S. entry for the U.N. General Assembly.`\
+https://nytimes.com/2025/09/25/world/africa/gambia-us-visas-un.html
+
 **Tiny Memoir Contest for Students: Write a 100-Word Personal Narrative**\
 `We invite teenagers to tell a story about a meaningful life experience in just 100 words. Contest dates: Oct. 22-Dec. 3, 2025.`\
 https://nytimes.com/2025/09/25/learning/tiny-memoir-contest-for-students-write-a-100-word-personal-narrative.html
