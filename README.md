@@ -1,3 +1,7 @@
+**How to watch Jets at Dolphins: Time, TV, streaming**\
+`Find out how to watch the New York Jets play the Miami Dolphins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6660070/2025/09/24/jets-vs-dolphins-stream-how-to-watch-sept-29/
+
 **How to watch Pirates at Reds: Time, TV, streaming for September 25**\
 `Find out how to watch the Pittsburgh Pirates play the Cincinnati Reds, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6660040/2025/09/24/pirates-vs-reds-stream-how-to-watch-sept-25/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/24/us/politics/james-comey-indictment.html
 **Federal Judge Rejects Administration Efforts to Tie State Disaster Funds to Immigration Cooperation**\
 `The ruling came in a suit brought by a coalition of states with sanctuary laws and other policies barring police from helping federal immigration officers.`\
 https://nytimes.com/2025/09/24/us/politics/trump-disaster-aid-immigration.html
-
-**Kuminga-Warriors standoff is nearing an end. The outcome remains unclear**\
-`The 22-year-old has multiple contract options with Golden State, and a sign-and-trade with Sacramento also remains in play.`\
-https://nytimes.com/athletic/6659690/2025/09/24/jonathan-kuminga-warriors-standoff-kings/
 
