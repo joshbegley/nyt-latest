@@ -1,3 +1,7 @@
+**Kimmel Says There’s Plenty of Room in the ‘Bad Ratings’ Club**\
+`The late night host pointed to President Trump’s approval level after he said on social media to “let Jimmy Kimmel rot in his bad ratings.”`\
+https://nytimes.com/2025/09/25/arts/television/late-night-jimmy-kimmel-trump.html
+
 **Mathys Tel has his manager's backing but is still struggling to establish himself at Spurs**\
 `When Kolo Muani and Solanke return to fitness, it is difficult to see Tel receiving game time. He needed a statement performance last night`\
 https://nytimes.com/athletic/6659664/2025/09/25/mathys-tel-tottenham-hotspur-thomas-frank/

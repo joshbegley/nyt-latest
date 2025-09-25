@@ -1,3 +1,7 @@
+**Kimmel Says There’s Plenty of Room in the ‘Bad Ratings’ Club**\
+`The late night host pointed to President Trump’s approval level after he said on social media to “let Jimmy Kimmel rot in his bad ratings.”`\
+https://nytimes.com/2025/09/25/arts/television/late-night-jimmy-kimmel-trump.html
+
 **10 (More) Questions With Andrew Cuomo**\
 `Former Gov. Andrew M. Cuomo, who is running for mayor of New York City as an independent, visited The New York Times for an interview.`\
 https://nytimes.com/2025/09/25/nyregion/andrew-cuomo-10-questions.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6660795/2025/09/25/bengals-vs-broncos-stream-how-to
 **How to watch White Sox at Yankees: Time, TV, streaming for September 25**\
 `Find out how to watch the Chicago White Sox play the New York Yankees, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6660770/2025/09/25/white-sox-vs-yankees-stream-how-to-watch-sept-25/
-
-**How to watch Red Sox at Blue Jays: Time, TV, streaming for September 25**\
-`Find out how to watch the Boston Red Sox play the Toronto Blue Jays, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6660766/2025/09/25/red-sox-vs-blue-jays-stream-how-to-watch-sept-25/
 
