@@ -1,3 +1,15 @@
+**What we know about ‘Uncle Dennis’: A central figure in another Kawhi Leonard, Clippers investigation**\
+`The Athletic conducted interviews with 17 different sources, league and team personnel to learn about Kawhi Leonard's uncle and advisor. `\
+https://nytimes.com/athletic/6658362/2025/09/25/kawhi-leonard-clippers-uncle-dennis-nba-investigation/
+
+**A 64-team World Cup is excessive, but – bear with us – it's better than 48**\
+`The World Cup has already gotten unwieldy in size and scope. Expanding again could actually make for a more tidy tournament`\
+https://nytimes.com/athletic/6661715/2025/09/25/64-team-world-cup-fifa-2030-argument/
+
+**Yonkers Casino Bid Advances in Battle for N.Y. Licenses**\
+`The Empire City Casino is the first applicant to be approved by its local advisory committee after all three Manhattan proposals were eliminated.`\
+https://nytimes.com/2025/09/25/nyregion/empire-casino-yonkers-resorts-world.html
+
 **College football Week 5 best bets: Have (some) faith in Notre Dame's defense**\
 `Austin Mock discusses his best bets for Week 5 of the college football season, including going counter-narrative on Notre Dame's defense.`\
 https://nytimes.com/athletic/6662070/2025/09/25/college-football-best-bets-week-5-indiana-notre-dame/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6659741/2025/09/25/wild-25th-anniversary-jersey/
 **What Teenagers Are Saying About the Rising Cost of Youth Sports**\
 `Students react to an article about the transformation of youth athletics into a multibillion-dollar industry and share how it affects their participation.`\
 https://nytimes.com/2025/09/25/learning/what-teenagers-are-saying-about-the-rising-cost-of-youth-sports.html
-
-**What to expect as President Trump attends the Ryder Cup**\
-`Three weeks ago, Trump’s visit to the U.S. Open men's tennis final led organizers to delay the start of the match.`\
-https://nytimes.com/athletic/6661732/2025/09/25/donald-trump-ryder-cup-visit-bethpage-black-ny/
-
-**Stars captain Jamie Benn undergoes surgery to repair collapsed lung**\
-`Benn was diagnosed with the injury late in the third period of Tuesday night’s preseason game against the Minnesota Wild.`\
-https://nytimes.com/athletic/6662168/2025/09/25/stars-jamie-benn-collapsed-lung-injury-surgery/
-
-**Super PACs Pay $900,000 to Settle Inquiry Tied to Zeldin’s Governor Run**\
-`The settlement, which includes no admission of wrongdoing, ends an inquiry into possible illegal coordination between two super PACs and Lee Zeldin’s 2022 campaign for governor.`\
-https://nytimes.com/2025/09/25/nyregion/lee-zeldin-super-pac.html
 

@@ -1,3 +1,7 @@
+**Hegseth Is Said to Have Summoned U.S. Military Brass From Around the Globe**\
+`The unusual directive, without a stated reason, came after the defense secretary has fired several top officers and ordered a reduction in four-star officers.`\
+https://nytimes.com/2025/09/25/us/politics/hegseth-generals-admirals-summoned.html
+
 **What we know about ‘Uncle Dennis’: A central figure in another Kawhi Leonard, Clippers investigation**\
 `The Athletic conducted interviews with 17 different sources, league and team personnel to learn about Kawhi Leonard's uncle and advisor. `\
 https://nytimes.com/athletic/6658362/2025/09/25/kawhi-leonard-clippers-uncle-dennis-nba-investigation/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/25/books/maxine-clair-dead.html
 **Wild unveil 25th anniversary jersey, pay homage to inaugural season**\
 `The jersey resembles the original white sweater worn by Minnesota in 2000 and will be worn four times during the milestone 2025-26 season.`\
 https://nytimes.com/athletic/6659741/2025/09/25/wild-25th-anniversary-jersey/
-
-**What Teenagers Are Saying About the Rising Cost of Youth Sports**\
-`Students react to an article about the transformation of youth athletics into a multibillion-dollar industry and share how it affects their participation.`\
-https://nytimes.com/2025/09/25/learning/what-teenagers-are-saying-about-the-rising-cost-of-youth-sports.html
 
