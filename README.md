@@ -1,3 +1,11 @@
+**Settlement Agreement in Zeldin Super PAC Coordination Case**\
+`Two super PACs agreed to settle an investigation into possible coordination with Lee Zeldin’s campaign for governor of New York, without admitting wrongdoing.`\
+https://nytimes.com/interactive/2025/09/25/nyregion/settlement-agreement-super-pac-zeldin-campaign.html
+
+**Golf Briefing: Your 2025 Ryder Cup is here**\
+`This is The Athletic’s special-edition newsletter with daily updates and insights from the Ryder Cup.`\
+https://nytimes.com/athletic/6662292/2025/09/25/ryder-cup-preview-2025-golf-briefing/
+
 **Rebuttal on Possible Super PAC Coordination With Zeldin Campaign**\
 `Representatives of two super PACs strongly disputed in writing that they had run afoul of the law while promoting Lee Zeldin’s campaign for governor of New York.`\
 https://nytimes.com/interactive/2025/09/25/nyregion/rebuttal-super-pac-zeldin-campaign.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6662112/2025/09/25/maple-leafs-raptors-ryder-cup-ke
 **AL MVP odds: Cal Raleigh reached 60 home runs, but is it enough to top Aaron Judge?**\
 `Cal Raleigh just reached 60 home runs and the Mariners clinched the AL West. Is that enough to top Aaron Judge for AL MVP?`\
 https://nytimes.com/athletic/6662051/2025/09/25/al-mvp-odds-cal-raleigh-aaron-judge/
-
-**Google Asks Supreme Court to Intervene in Dispute With Fortnite Creator**\
-`The case could rewrite the rules on how businesses make money on Google’s smartphone operating system.`\
-https://nytimes.com/2025/09/25/us/politics/google-supreme-epic-games.html
-
-**How college football 'availability' reports differ from NFL injury reports, and why that's cloudy**\
-`Two instances in two weeks have shown the gray area for what should be revealed on a college football availability report.`\
-https://nytimes.com/athletic/6661822/2025/09/25/college-football-availability-reports-ole-miss-utah/
 
