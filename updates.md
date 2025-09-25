@@ -1,3 +1,11 @@
+**In Order to Make Sense**\
+`Jesse Goldberg’s puzzle just seems confusing. Once you get the trick, solving it is smooth sailing.`\
+https://nytimes.com/2025/09/24/crosswords/daily-puzzle-2025-09-25.html
+
+**White House Deputy Chief of Staff Leaving Trump Administration**\
+`Taylor Budowich, a longtime Trump aide, played a large role in the president’s political operation after he left office in 2021.`\
+https://nytimes.com/2025/09/24/us/politics/taylor-budowich-trump-white-house.html
+
 **Padres' Ramón Laureano (finger) to miss at least NL Wild Card Series**\
 `The Padres (87-72) technically remain in contention for a National League West title and the league's top wild-card berth.`\
 https://nytimes.com/athletic/6660110/2025/09/24/san-diego-padres-ramon-laureano-finger-injury/
