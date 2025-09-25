@@ -1,3 +1,7 @@
+**Trump Wades Into Bailout Politics in Offering a Lifeline to Argentina**\
+`A $20 billion loan to support Argentina’s president, Javier Milei, could come with economic and political risks.`\
+https://nytimes.com/2025/09/25/us/politics/trump-argentina-milei-bailout.html
+
 **House Committee Opens Inquiry Into Uber Over Sexual Abuse**\
 `The inquiry comes weeks after a New York Times investigation found that incidents of sexual assault and sexual misconduct occurred much more frequently than Uber had disclosed.`\
 https://nytimes.com/2025/09/25/business/uber-sexual-assault-house-inquiry.html
