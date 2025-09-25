@@ -1,5 +1,17 @@
-**Israel Attacks Houthi Targets in Yemeni Capital**\
-`The airstrikes came a day after the Houthi militia launched a drone at the Israeli city of Eilat, wounding 20 people.`\
+**‘I’m Always Trying to Make the Paintings Nobody Else Is Making’**\
+`Kerry James Marshall’s blockbuster survey across nearly five decades at the Royal Academy of Art in London tackles Black history in all its complexity.`\
+https://nytimes.com/2025/09/25/arts/design/kerry-james-marshall-royal-academy-london-art-museum.html
+
+**Report Says Museums Post Less Online About Possibly Nazi-Looted Art**\
+`Researchers for the World Jewish Restitution Organization said families whose art was stolen or disappeared in the Holocaust now face a harder time tracking works on the internet.`\
+https://nytimes.com/2025/09/25/arts/design/report-says-museums-post-less-online-about-possibly-nazi-looted-art.html
+
+**Science Practice | A Study on Coolness**\
+`What makes someone cool? A new study offers clues.`\
+https://nytimes.com/2025/09/25/learning/science-practice-a-study-on-coolness.html
+
+**Israel Attacks Yemeni Capital**\
+`The Israeli military said it was targeting sites linked to the Houthi militia. The airstrikes came a day after the Houthis launched a drone at the Israeli city of Eilat, wounding 20 people.`\
 https://nytimes.com/2025/09/25/world/middleeast/israel-yemen-houthis.html
 
 **Manhattan Theater Club Names First New Artistic Director in 53 Years**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6655213/2025/09/25/fantasy-football-injuries-cheat-
 **New Bucks guard Cole Anthony is adjusting, excited about team as 'the energy is high'**\
 `"This feels like, for me, a stepping stone in my career," Anthony said of being in Milwaukee after five seasons with the Orlando Magic.`\
 https://nytimes.com/athletic/6659034/2025/09/25/cole-anthony-bucks-nba-giannis/
-
-**Top Economic Leaders Warn Supreme Court to Allow Lisa Cook to Remain at Fed, for Now**\
-`In a brief filed with the court, former Fed chairs and U.S. Treasury secretaries cautioned of erosion in public confidence in the Fed’s independence.`\
-https://nytimes.com/2025/09/25/us/politics/supreme-court-lisa-cook-secretaries.html
-
-**Trump administration working to stop Israel being banned from 2026 World Cup**\
-`UN experts on Tuesday described an “unfolding genocide” in Gaza, an allegation Israel denies.`\
-https://nytimes.com/athletic/6658687/2025/09/25/israel-fifa-ban-trump-uefa/
-
-**Sarkozy Sentenced to Five Years in Libyan Money Conspiracy Trial**\
-`A Paris court found the former French president Nicolas Sarkozy guilty of criminal conspiracy for using money from Col. Muammar el-Qaddafi’s government in his 2007 campaign. The court sentenced him to five years in prison and a fine of about $117,000.`\
-https://nytimes.com/video/world/europe/100000010420654/sarkozy-libya-money-funding-trial.html
 
