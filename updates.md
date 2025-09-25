@@ -1,3 +1,7 @@
+**Trump Assures Arab Leaders He Won’t Allow West Bank Annexation, Officials Say**\
+`After more countries recognized a Palestinian state, President Trump told Mideast and Muslim powers that he would not permit Israel to annex the territory, people familiar with the matter said.`\
+https://nytimes.com/2025/09/25/world/middleeast/trump-annexation-west-bank.html
+
 **Michigan mailbag: Was Oklahoma loss a blessing in disguise? Which freshmen have impressed?**\
 `Did losing to Oklahoma help Michigan figure out who it is? Plus, questions about freshmen, WR problems and basketball big men.`\
 https://nytimes.com/athletic/6658810/2025/09/25/michigan-football-oklahoma-nebraska-freshmen-mailbag/

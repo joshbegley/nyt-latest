@@ -1,3 +1,7 @@
+**Trump Assures Arab Leaders He Won’t Allow West Bank Annexation, Officials Say**\
+`After more countries recognized a Palestinian state, President Trump told Mideast and Muslim powers that he would not permit Israel to annex the territory, people familiar with the matter said.`\
+https://nytimes.com/2025/09/25/world/middleeast/trump-annexation-west-bank.html
+
 **Michigan mailbag: Was Oklahoma loss a blessing in disguise? Which freshmen have impressed?**\
 `Did losing to Oklahoma help Michigan figure out who it is? Plus, questions about freshmen, WR problems and basketball big men.`\
 https://nytimes.com/athletic/6658810/2025/09/25/michigan-football-oklahoma-nebraska-freshmen-mailbag/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6646240/2025/09/25/tennis-mailbag-atp-wta-tour-pred
 **Inside the Wizards' rebuild: How Washington is trying to construct a contender**\
 `Is an end to Washington's rebuild anywhere in sight? `\
 https://nytimes.com/athletic/6659989/2025/09/25/washington-wizards-roster-construction-plan/
-
-**Garrett Crochet dazzles as Red Sox inch closer to clinching postseason berth**\
-`With an Astros loss, the Red Sox could clinch a spot in the playoffs before taking the field Thursday.`\
-https://nytimes.com/athletic/6660518/2025/09/25/garrett-crochet-dazzles-red-sox-postseason-berth/
 
