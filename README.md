@@ -1,3 +1,23 @@
+**Runway Safety Bed Stops Skidding Plane in Virginia**\
+`The concrete bed stopped a commercial flight that lost control during landing. The safety system slows a runaway aircraft by collapsing under its weight.`\
+https://nytimes.com/2025/09/25/us/virginia-jet-roanoke-blacksburg-airport.html
+
+**Brian Flores left Pittsburgh, the Vikings considered Aaron Rodgers — now they meet in Dublin**\
+`A look at the state of two teams intertwined ahead of their Sunday morning matchup in Ireland.`\
+https://nytimes.com/athletic/6658676/2025/09/25/vikings-steelers-dublin-aaron-rodgers-brian-flores/
+
+**NFL panic meter: Why Chiefs, Ravens should keep faith; Cowboys, Texans are in trouble**\
+`Half of the league's 32 teams have losing records after three games. Which teams have the best chance to turn their seasons around? `\
+https://nytimes.com/athletic/6658780/2025/09/25/nfl-panic-meter-chiefs-ravens-cowboys-texans/
+
+**The New York Times International Edition in Print for Friday, Sep. 26, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/09/25/todays-new-york-times-international-edition
+
+**Sarkozy Guilty of Conspiracy to Use Libyan Money for 2007 Campaign**\
+`Nicolas Sarkozy, former president of France, was convicted of plotting to finance his election bid with help from the government of Col. Muammar el-Qaddafi.`\
+https://nytimes.com/2025/09/25/world/europe/sarkozy-france-verdict-libya-qaddafi.html
+
 **Ayuso joins Lidl-Trek after early UAE Team Emirates exit**\
 `Ayuso, 23, is considered one of the peloton’s best young climbing prospects but endured a turbulent season at UAE.`\
 https://nytimes.com/athletic/6660942/2025/09/25/juan-ayuso-lidl-trek-cycling/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6660972/2025/09/25/rockies-vs-mariners-stream-how-t
 **How to watch Astros at Athletics: Time, TV, streaming for September 25**\
 `Find out how to watch the Houston Astros play the Athletics, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6660968/2025/09/25/astros-vs-athletics-stream-how-to-watch-sept-25/
-
-**Man Utd agree deal to sign 17-year-old midfielder Orozco**\
-`The defensive midfielder is expected to officially move to Old Trafford after turning 18 in July 2026.`\
-https://nytimes.com/athletic/6660960/2025/09/25/cristian-orozco-manchester-united-transfer/
-
-**$100,000 Per Employee: How the H-1B Visa Fee Could Reshape Work Forces**\
-`Because sponsoring a visaship comes with significant upfront costs, employers need higher-earning workers to justify the new expense.`\
-https://nytimes.com/interactive/2025/09/25/business/economy/h1b-visa-fee.html
-
-**Exploring Cleveland’s Historic Homes With $500,000 and an Eye for Character**\
-`A couple combined their resources and senses of style to find a house that evoked the city’s rich architectural heritage — and maybe needed a little work.`\
-https://nytimes.com/interactive/2025/09/25/realestate/cleveland-historic-victorian-homes-sale.html
-
-**Democratic Report Says Disorder at DOGE Jeopardized Americans’ Data**\
-`Members of a Senate panel described a haphazard working and living environment that involved transferring sensitive information to servers “without any verified security controls.”`\
-https://nytimes.com/2025/09/25/us/politics/democratic-report-disorder-doge.html
-
-**What We Know About the Shooting at a Dallas ICE Facility**\
-`One detainee was killed and two others were wounded after a gunman opened fire on Wednesday. The gunman died of a self-inflicted gunshot wound.`\
-https://nytimes.com/2025/09/25/us/dallas-ice-facility-shooting-suspect.html
 

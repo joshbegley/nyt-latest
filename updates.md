@@ -1,3 +1,7 @@
+**Ayuso joins Lidl-Trek after early UAE Team Emirates exit**\
+`Ayuso, 23, is considered one of the peloton’s best young climbing prospects but endured a turbulent season at UAE.`\
+https://nytimes.com/athletic/6660942/2025/09/25/juan-ayuso-lidl-trek-cycling/
+
 **How to watch Royals at Angels: Time, TV, streaming for September 25**\
 `Find out how to watch the Kansas City Royals play the Los Angeles Angels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6661023/2025/09/25/royals-vs-angels-stream-how-to-watch-sept-25/
