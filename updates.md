@@ -1,3 +1,7 @@
+**Elementary-School Teacher Is Accused of Sharing Child Sexual Abuse Images**\
+`Investigators said the teacher had disseminated the material, some of which included children under 12, for at least a year.`\
+https://nytimes.com/2025/09/25/nyregion/elementary-school-teacher-is-accused-of-sharing-child-sexual-abuse-images.html
+
 **Shedeur Sanders confident he should be on the field: 'I’m ready to play right now'**\
 `The Browns (1-2) with travel to Detroit to play the Lions (2-1) Sunday at 1 p.m. ET.`\
 https://nytimes.com/athletic/6662904/2025/09/25/shedeur-sanders-confident-he-should-be-on-the-field-im-ready-to-play-right-now/
