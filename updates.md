@@ -1,3 +1,7 @@
+**Oklahoma Education Chief Who Promoted Bibles in Schools Will Resign**\
+`Ryan Walters had drawn criticism from liberals and conservatives alike over his push to place Bibles in classrooms and bring more prayer into public schools.`\
+https://nytimes.com/2025/09/25/us/ryan-walters-oklahoma-resign.html
+
 **Astros hoped their ace, Hunter Brown, would stop their spiral. He couldn't**\
 `The Astros needed a win. But their ace faltered and their lineup once again provided little to no run support.`\
 https://nytimes.com/athletic/6660753/2025/09/25/hunter-brown-astros-mlb-playoffs/
