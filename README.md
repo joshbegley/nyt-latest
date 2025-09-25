@@ -1,3 +1,7 @@
+**He’s the Next Big Thing Out of the U.K. Underground**\
+`The New York Times critic Jon Caramanica is in the driver’s seat explaining why you need to know the rapper Fakemink.`\
+https://nytimes.com/video/podcasts/100000010420238/hes-the-next-big-thing-out-of-the-uk-underground.html
+
 **Amazon to Pay $2.5 Billion to Settle Claims It Tricked Prime Customers**\
 `The settlement is one of the largest in the history of the Federal Trade Commission, which sued Amazon two years ago.`\
 https://nytimes.com/2025/09/25/technology/amazon-ftc-settlement.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/25/learning/science-practice-a-study-on-coolness.htm
 **Israel Attacks Yemeni Capital**\
 `The Israeli military said it was targeting sites linked to the Houthi militia. The airstrikes came a day after the Houthis launched a drone at the Israeli city of Eilat, wounding 20 people.`\
 https://nytimes.com/2025/09/25/world/middleeast/israel-yemen-houthis.html
-
-**Manhattan Theater Club Names First New Artistic Director in 53 Years**\
-`Nicki Hunter will succeed Lynne Meadow in December, taking charge of a major nonprofit that stages shows on and off Broadway.`\
-https://nytimes.com/2025/09/25/theater/manhattan-theater-club-nicki-hunter.html
 
