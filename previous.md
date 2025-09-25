@@ -1,3 +1,7 @@
+**Nottingham Forest fans in Seville and a European night 30 years in the making**\
+`Forest fans travelled en masse to southern Spain savour their side's return to European football`\
+https://nytimes.com/athletic/6659488/2025/09/25/nottingham-forest-fans-europa-league-betis/
+
 **Grosjean to make F1 test return five years after Bahrain accident**\
 `This comes almost five years after Grosjean sustained severe injuries in an accident at the start of the 2020 Bahrain Grand Prix.`\
 https://nytimes.com/athletic/6658582/2025/09/25/romain-grosjean-f1-return-news-bahrain/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/25/nyregion/mamdani-south-asian-voters.html
 **Newcastle 4 Bradford City 1: Fine outings for Osula and Ramsdale as Howe shuffles his pack successfully**\
 `Chris Waugh analyses the key talking points from Newcastle's 4-1 win over Bradford City in the Carabao Cup`\
 https://nytimes.com/athletic/6640141/2025/09/25/newcastle-carabao-cup-osula-ramsdale-howe/
-
-**Mathys Tel has his manager's backing but is still struggling to establish himself at Spurs**\
-`When Kolo Muani and Solanke return to fitness, it is difficult to see Tel receiving game time. He needed a statement performance last night`\
-https://nytimes.com/athletic/6659664/2025/09/25/mathys-tel-tottenham-hotspur-thomas-frank/
 

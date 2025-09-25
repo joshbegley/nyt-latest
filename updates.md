@@ -1,3 +1,7 @@
+**Nottingham Forest fans in Seville and a European night 30 years in the making**\
+`Forest fans travelled en masse to southern Spain savour their side's return to European football`\
+https://nytimes.com/athletic/6659488/2025/09/25/nottingham-forest-fans-europa-league-betis/
+
 **Grosjean to make F1 test return five years after Bahrain accident**\
 `This comes almost five years after Grosjean sustained severe injuries in an accident at the start of the 2020 Bahrain Grand Prix.`\
 https://nytimes.com/athletic/6658582/2025/09/25/romain-grosjean-f1-return-news-bahrain/
