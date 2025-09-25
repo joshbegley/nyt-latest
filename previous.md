@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6659543/2025/09/24/phoenix-suns-mat-ishbia-media-da
 `The Silicon Valley chipmaker has held talks with Apple about bolstering its finances as it looks to turn around its ailing business.`\
 https://nytimes.com/2025/09/24/technology/intel-apple-talks-investment.html
 
-**Padres' Ramón Laureano (finger) to miss at least first round of postseason**\
+**Padres' Ramón Laureano (finger) to miss at least NL Wild Card Series**\
 `The Padres (87-72) technically remain in contention for a National League West title and the league's top wild-card berth.`\
 https://nytimes.com/athletic/6660110/2025/09/24/san-diego-padres-ramon-laureano-finger-injury/
 

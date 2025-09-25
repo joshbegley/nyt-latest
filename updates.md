@@ -1,3 +1,7 @@
+**Padres' Ramón Laureano (finger) to miss at least NL Wild Card Series**\
+`The Padres (87-72) technically remain in contention for a National League West title and the league's top wild-card berth.`\
+https://nytimes.com/athletic/6660110/2025/09/24/san-diego-padres-ramon-laureano-finger-injury/
+
 **Henry Jaglom, Indie Director Who Mined the Personal, Dies at 87**\
 `His discursive films, often centered on women and their emotions and relationships, confounded and delighted critics in equal measure.`\
 https://nytimes.com/2025/09/24/movies/henry-jaglom-dead.html
