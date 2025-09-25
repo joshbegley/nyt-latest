@@ -1,3 +1,11 @@
+**Sonny Gray says he will reconsider his Cardinals future: 'I came here to win'**\
+`"I signed here two years ago with the expectation of winning and trying to win. That hasn't played out that way," the Cards ace said.`\
+https://nytimes.com/athletic/6660689/2025/09/25/sonny-gray-cardinals-future/
+
+**Mosquito-Borne Illness Rarely Seen in U.S. Is Suspected on Long Island**\
+`Chikungunya, which is endemic in parts of South America, Africa and Asia, may be the cause of a woman’s illness.`\
+https://nytimes.com/2025/09/25/nyregion/chikungunya-mosquito-illness-long-island.html
+
 **Here’s what to know.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2025/09/25/world/united-nations-palestinian-abbas/heres-what-to-know
