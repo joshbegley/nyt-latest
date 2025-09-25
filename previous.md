@@ -1,3 +1,11 @@
+**Trump May Try to Force Drugmakers to Lower Some U.S. Prices**\
+`A notice, quickly deleted by the administration, provides a hint that more aggressive pricing policies may be coming.`\
+https://nytimes.com/2025/09/25/health/drug-prices-trump.html
+
+**Justice Department Sues Six States Seeking Private Voter Data**\
+`The Trump administration has been increasingly focused on an effort to bolster President Trump’s unsubstantiated claims of voter fraud. More than 30 states have received requests for information.`\
+https://nytimes.com/2025/09/25/us/politics/doj-lawsuit-voter-data-trump.html
+
 **Have you seen this man? Mariners searching for fan who gave Raleigh 60th home run to kid**\
 `The club is hoping to track down the generous fan who caught Cal Raleigh's milestone home run ball and gave it away`\
 https://nytimes.com/athletic/6662775/2025/09/25/cal-raleigh-60th-home-run-ball/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/25/us/politics/dallas-ice-shooting.html
 **Israel Launches Deadly Strikes on Yemeni Capital**\
 `Israel’s military bombed several sites across the Yemeni capital, a day after Yemen’s Houthi militia launched a drone attack against Israel that injured 20 people.`\
 https://nytimes.com/video/world/middleeast/100000010421316/israel-drone-strike-yemen-houthis.html
-
-**Georgia Inmate Who Sent Bombs to U.S. Buildings Gets 80-Year Sentence**\
-`The bombs were mailed from a state prison to the Department of Justice and a federal court. The inmate tried to exchange information on the plot for accommodations, prosecutors said in court filings.`\
-https://nytimes.com/2025/09/25/us/georgia-inmate-bombs-mail-sentencing.html
-
-**Palestinian Authority Ready to Take Responsibility for Gaza, Abbas Says**\
-`Mahmoud Abbas, the president of the Palestinian Authority, said Hamas will not govern Gaza and called on the group to lay down its arms.`\
-https://nytimes.com/video/world/100000010421722/abbas-palestine-unga-speech.html
 

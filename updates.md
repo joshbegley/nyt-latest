@@ -1,3 +1,11 @@
+**Trump May Try to Force Drugmakers to Lower Some U.S. Prices**\
+`A notice, quickly deleted by the administration, provides a hint that more aggressive pricing policies may be coming.`\
+https://nytimes.com/2025/09/25/health/drug-prices-trump.html
+
+**Justice Department Sues Six States Seeking Private Voter Data**\
+`The Trump administration has been increasingly focused on an effort to bolster President Trump’s unsubstantiated claims of voter fraud. More than 30 states have received requests for information.`\
+https://nytimes.com/2025/09/25/us/politics/doj-lawsuit-voter-data-trump.html
+
 **Have you seen this man? Mariners searching for fan who gave Raleigh 60th home run to kid**\
 `The club is hoping to track down the generous fan who caught Cal Raleigh's milestone home run ball and gave it away`\
 https://nytimes.com/athletic/6662775/2025/09/25/cal-raleigh-60th-home-run-ball/
