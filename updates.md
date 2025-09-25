@@ -1,3 +1,7 @@
+**Astros hoped their ace, Hunter Brown, would stop their spiral. He couldn't**\
+`The Astros needed a win. But their ace faltered and their lineup once again provided little to no run support.`\
+https://nytimes.com/athletic/6660753/2025/09/25/hunter-brown-astros-mlb-playoffs/
+
 **Tylenol Distances Itself From a 2017 Tweet on Usage During Pregnancy**\
 `Tylenol’s parent company, Kenvue, defended the pain reliever’s safety after the Trump administration highlighted an old social media post.`\
 https://nytimes.com/2025/09/25/us/politics/tylenol-tweet-2017-pregnancy-autism.html
