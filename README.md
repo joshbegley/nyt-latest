@@ -1,3 +1,7 @@
+**Rapper 6ix9ine Ordered Into Home Detention After Violence Erupts at Mall**\
+`The musician, whose real name is Daniel Hernandez, has had serial entanglements with the law. A prosecutor said that he had concerns about Mr. Hernandez’s impulse control.`\
+https://nytimes.com/2025/09/25/nyregion/rapper-tekashi-6ix9ine-home-detention.html
+
 **L.A. Wildfire Evacuations Were Slowed by Poor Visibility and System Weaknesses**\
 `An independent report on the January disaster found that emergency alerts were hampered by flawed policies, aging equipment and high winds.`\
 https://nytimes.com/2025/09/25/us/los-angeles-fires-evacuations-report.html
@@ -29,12 +33,4 @@ https://nytimes.com/athletic/6662600/2025/09/25/college-football-schedule-week-5
 **Trump Says He Wants to Give Aid to Struggling Farmers**\
 `The president said some revenue from tariffs would go to crop farmers, but the agriculture secretary said a plan wasn’t yet ready.`\
 https://nytimes.com/2025/09/25/business/trump-farmer-bailout.html
-
-**Trump Wades Into Bailout Politics in Offering a Lifeline to Argentina**\
-`A $20 billion loan to support Argentina’s president, Javier Milei, could come with economic and political risks.`\
-https://nytimes.com/2025/09/25/us/politics/trump-argentina-milei-bailout.html
-
-**House Committee Opens Inquiry Into Uber Over Sexual Abuse**\
-`The inquiry comes weeks after a New York Times investigation found that incidents of sexual assault and sexual misconduct occurred much more frequently than Uber had disclosed.`\
-https://nytimes.com/2025/09/25/business/uber-sexual-assault-house-inquiry.html
 
