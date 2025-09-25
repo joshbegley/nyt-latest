@@ -1,3 +1,11 @@
+**JJ Redick, Lakers agree to contract extension**\
+`"It's not lost on me this sort of rarity of a first-time head coach getting an extension," Redick said.`\
+https://nytimes.com/athletic/6663338/2025/09/25/jj-redick-lakers-agree-contract-extension/
+
+**Countries Consider A.I.’s Dangers and Benefits at U.N.**\
+`The United Nations announced a new “global dialogue on artificial intelligence governance,” and a new global A.I. panel on the technology’s risks and rewards.`\
+https://nytimes.com/2025/09/25/business/un-artificial-intelligence.html
+
 **Phillies' Trea Turner ready for October, even if he opts against weekend return**\
 `Currently, Turner is taking at-bats against minor-league pitchers. He's running and doing agility drills. He is also taking ground balls.`\
 https://nytimes.com/athletic/6662997/2025/09/25/philadelphia-phillies-trea-turner-october-return/
