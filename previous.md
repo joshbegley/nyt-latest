@@ -1,3 +1,19 @@
+**Have you seen this man? Mariners searching for fan who gave Raleigh 60th home run to kid**\
+`The club is hoping to track down the generous fan who caught Cal Raleigh's milestone home run ball and gave it away`\
+https://nytimes.com/athletic/6662775/2025/09/25/cal-raleigh-60th-home-run-ball/
+
+**Ryder Cup: DeChambeau, Thomas will play together against Rahm, Hatton**\
+`DeChambeau and Thomas have never played together before in the Ryder Cup.`\
+https://nytimes.com/athletic/6662444/2025/09/25/ryder-cup-friday-pairings-dechambeau-thomas/
+
+**76ers guard Jared McCain suffers UCL tear in right thumb**\
+`McCain and the team are consulting specialists to determine the best course of action in dealing with the injury for the second-year guard.`\
+https://nytimes.com/athletic/6662852/2025/09/25/philadelphia-76ers-jared-mccain-ucl-tear-injury/
+
+**NFL Week 4 projected scores: Model predicts point spreads and totals for every game**\
+`Austin Mock's projection model predicts point spreads and point totals for all 16 NFL Week 4 games.`\
+https://nytimes.com/athletic/6662726/2025/09/25/nfl-week-4-projected-scores-model-point-spreads-totals/
+
 **The Future of Climate Activism**\
 `At the Climate Forward live event, Manish Bapna, president of the Natural Resources Defense Council; Abigail Dillen, president of Earthjustice; and Bill McKibben, an author and activist, discussed how the environmental movement needs to change to win over more Americans.`\
 https://nytimes.com/2025/09/25/climate/climate-forward-activist-panel.html
@@ -21,16 +37,4 @@ https://nytimes.com/2025/09/25/us/georgia-inmate-bombs-mail-sentencing.html
 **Palestinian Authority Ready to Take Responsibility for Gaza, Abbas Says**\
 `Mahmoud Abbas, the president of the Palestinian Authority, said Hamas will not govern Gaza and called on the group to lay down its arms.`\
 https://nytimes.com/video/world/100000010421722/abbas-palestine-unga-speech.html
-
-**The Rapper 6ix9ine Is Ordered Into Home Detention After Violence at Mall**\
-`The musician, whose real name is Daniel Hernandez, has had serial entanglements with the law. A prosecutor said that he had concerns about Mr. Hernandez’s impulse control.`\
-https://nytimes.com/2025/09/25/nyregion/rapper-tekashi-6ix9ine-home-detention.html
-
-**L.A. Wildfire Evacuations Were Slowed by Poor Visibility and System Weaknesses**\
-`An independent report on the January disaster found that emergency alerts were hampered by flawed policies, aging equipment and high winds.`\
-https://nytimes.com/2025/09/25/us/los-angeles-fires-evacuations-report.html
-
-**Netflix to stream Yankees-Giants on MLB Opening Day 2026: Sources**\
-`The game will be Netflix’s first exclusive stream, part of the new three-year agreement that MLB and the giant streamer have agreed to,`\
-https://nytimes.com/athletic/6662421/2025/09/25/netflix-stream-yankees-giants-mlb-opening-day-2026/
 

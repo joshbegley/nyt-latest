@@ -1,3 +1,19 @@
+**Have you seen this man? Mariners searching for fan who gave Raleigh 60th home run to kid**\
+`The club is hoping to track down the generous fan who caught Cal Raleigh's milestone home run ball and gave it away`\
+https://nytimes.com/athletic/6662775/2025/09/25/cal-raleigh-60th-home-run-ball/
+
+**Ryder Cup: DeChambeau, Thomas will play together against Rahm, Hatton**\
+`DeChambeau and Thomas have never played together before in the Ryder Cup.`\
+https://nytimes.com/athletic/6662444/2025/09/25/ryder-cup-friday-pairings-dechambeau-thomas/
+
+**76ers guard Jared McCain suffers UCL tear in right thumb**\
+`McCain and the team are consulting specialists to determine the best course of action in dealing with the injury for the second-year guard.`\
+https://nytimes.com/athletic/6662852/2025/09/25/philadelphia-76ers-jared-mccain-ucl-tear-injury/
+
+**NFL Week 4 projected scores: Model predicts point spreads and totals for every game**\
+`Austin Mock's projection model predicts point spreads and point totals for all 16 NFL Week 4 games.`\
+https://nytimes.com/athletic/6662726/2025/09/25/nfl-week-4-projected-scores-model-point-spreads-totals/
+
 **The Future of Climate Activism**\
 `At the Climate Forward live event, Manish Bapna, president of the Natural Resources Defense Council; Abigail Dillen, president of Earthjustice; and Bill McKibben, an author and activist, discussed how the environmental movement needs to change to win over more Americans.`\
 https://nytimes.com/2025/09/25/climate/climate-forward-activist-panel.html
