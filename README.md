@@ -1,3 +1,11 @@
+**Tylenol Distances Itself From a 2017 Tweet on Usage During Pregnancy**\
+`Tylenol’s parent company, Kenvue, defended the pain reliever’s safety after the Trump administration highlighted an old social media post.`\
+https://nytimes.com/2025/09/25/us/politics/tylenol-tweet-2017-pregnancy-autism.html
+
+**MLB playoff watch: There's a new sheriff in the AL West; bracket, clinching scenarios**\
+`Plus, breaking down the AL East race as the Yankees and Blue Jays are tied atop the division.`\
+https://nytimes.com/athletic/6660629/2025/09/25/mlb-playoff-watch-mariners-al-west-clinch/
+
 **Starbucks to Cut Jobs, Close Stores and Take $1 Billion Hit in Revamp Effort**\
 `The coffee chain said it would shutter some underperforming U.S. stores and eliminate 900 corporate jobs as part of a plan to build “a better, stronger and more resilient Starbucks.”`\
 https://nytimes.com/2025/09/25/business/starbucks-job-cuts.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6658401/2025/09/25/broncos-pass-rush-defense-proble
 **What I'm seeing from Trent Frederic, Matt Savoie and more in Oilers preseason**\
 `Midway through preseason, it’s the perfect time to take stock of how things are going for the Oilers.`\
 https://nytimes.com/athletic/6660467/2025/09/25/oilers-preseason-stats-mcdavid-draisaitl-savoie-frederic/
-
-**Trump Administration Live Updates: President to Meet With Turkey’s Leader at the White House**\
-``\
-https://nytimes.com/live/2025/09/25/us/trump-news
-
-**There Are More Robots Working in China Than the Rest of the World Combined**\
-`China has embarked on a campaign to use more robots in its factories, transforming its manufacturing industries and becoming the dominant maker.`\
-https://nytimes.com/2025/09/25/business/china-factory-robots.html
 
