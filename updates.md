@@ -1,3 +1,11 @@
+**House Committee Opens Inquiry Into Uber Over Sexual Abuse**\
+`The inquiry comes weeks after a New York Times investigation found that incidents of sexual assault and sexual misconduct occurred much more frequently than Uber had disclosed.`\
+https://nytimes.com/2025/09/25/business/uber-sexual-assault-house-inquiry.html
+
+**Former Arsenal academy forward Billy Vigar dies aged 21 after sustaining brain injury**\
+`Vigar sustained the injury while playing for Chichester City in the seventh tier of English football against Wingate & Finchley on Saturday.`\
+https://nytimes.com/athletic/6662559/2025/09/25/billy-vigar-dies-arsenal-chichester/
+
 **Gambians Cheer U.S. Denial of Visas for Their Government Officials**\
 `Gambians who see officials’ attendance at international events as taxpayer-funded vacations were grateful when some officials were refused U.S. entry for the U.N. General Assembly.`\
 https://nytimes.com/2025/09/25/world/africa/gambia-us-visas-un.html

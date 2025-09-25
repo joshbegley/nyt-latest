@@ -1,3 +1,11 @@
+**House Committee Opens Inquiry Into Uber Over Sexual Abuse**\
+`The inquiry comes weeks after a New York Times investigation found that incidents of sexual assault and sexual misconduct occurred much more frequently than Uber had disclosed.`\
+https://nytimes.com/2025/09/25/business/uber-sexual-assault-house-inquiry.html
+
+**Former Arsenal academy forward Billy Vigar dies aged 21 after sustaining brain injury**\
+`Vigar sustained the injury while playing for Chichester City in the seventh tier of English football against Wingate & Finchley on Saturday.`\
+https://nytimes.com/athletic/6662559/2025/09/25/billy-vigar-dies-arsenal-chichester/
+
 **Gambians Cheer U.S. Denial of Visas for Their Government Officials**\
 `Gambians who see officials’ attendance at international events as taxpayer-funded vacations were grateful when some officials were refused U.S. entry for the U.N. General Assembly.`\
 https://nytimes.com/2025/09/25/world/africa/gambia-us-visas-un.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/25/nyregion/new-york-official-sanctuary-law.html
 **Roger Goodell says NFL teams 'don't have to disclose information' to Tom Brady**\
 `While some coaches have dismissed the issue, others remain uneasy about it.`\
 https://nytimes.com/athletic/6662335/2025/09/25/roger-goodell-tom-brady-raiders-fox/
-
-**Settlement Agreement in Zeldin Super PAC Coordination Case**\
-`Two super PACs agreed to settle an investigation into possible coordination with Lee Zeldin’s campaign for governor of New York, without admitting wrongdoing.`\
-https://nytimes.com/interactive/2025/09/25/nyregion/settlement-agreement-super-pac-zeldin-campaign.html
-
-**Golf Briefing: Your 2025 Ryder Cup is here**\
-`This is The Athletic’s special-edition newsletter with daily updates and insights from the Ryder Cup.`\
-https://nytimes.com/athletic/6662292/2025/09/25/ryder-cup-preview-2025-golf-briefing/
 

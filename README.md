@@ -1,3 +1,7 @@
+**Trump Wades Into Bailout Politics in Offering a Lifeline to Argentina**\
+`A $20 billion loan to support Argentina’s president, Javier Milei, could come with economic and political risks.`\
+https://nytimes.com/2025/09/25/us/politics/trump-argentina-milei-bailout.html
+
 **House Committee Opens Inquiry Into Uber Over Sexual Abuse**\
 `The inquiry comes weeks after a New York Times investigation found that incidents of sexual assault and sexual misconduct occurred much more frequently than Uber had disclosed.`\
 https://nytimes.com/2025/09/25/business/uber-sexual-assault-house-inquiry.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/25/technology/microsoft-israel-defense-ministry.html
 **N.Y.C. Jail Official Broke Sanctuary Laws by Helping D.H.S., Report Says**\
 `A Department of Correction investigator improperly provided information to federal agents about two immigrants, a city watchdog agency found.`\
 https://nytimes.com/2025/09/25/nyregion/new-york-official-sanctuary-law.html
-
-**Roger Goodell says NFL teams 'don't have to disclose information' to Tom Brady**\
-`While some coaches have dismissed the issue, others remain uneasy about it.`\
-https://nytimes.com/athletic/6662335/2025/09/25/roger-goodell-tom-brady-raiders-fox/
 
