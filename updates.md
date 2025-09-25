@@ -1,3 +1,15 @@
+**South Korea’s New Tattoo Law Legalizes the Practice**\
+`For years, tattoo artists had to work in underground studios or windowless backrooms. They may soon be able to practice their craft in the open.`\
+https://nytimes.com/2025/09/25/world/asia/south-korea-tattoo-law.html
+
+**Four Browns thoughts with Lions up next: The more Quinshon Judkins, the better**\
+`Plus, what to make of Cleveland's O-line following the injury to Dawand Jones. And did the Week 3 victory buy Joe Flacco more time at QB?`\
+https://nytimes.com/athletic/6659646/2025/09/25/browns-quinshon-judkins-lions-week-4/
+
+**Denmark Briefly Closes More Airports After Unexplained Drone Sightings**\
+`Authorities shut a major airport for the second time in days, amid heightened concerns across Europe after Russian planes entered NATO airspace.`\
+https://nytimes.com/2025/09/25/world/europe/drones-denmark-airport.html
+
 **Denmark Briefly Closes More Airports After Unexplained Drone Sightings**\
 `Authorities shut a major airport for the second time in days, amid heightened concerns across Europe over Russian efforts to sow fear and instability.`\
 https://nytimes.com/2025/09/25/world/europe/drones-denmark-airport.html
