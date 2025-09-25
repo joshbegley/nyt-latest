@@ -1,3 +1,11 @@
+**In Order to Make Sense**\
+`Jesse Goldberg’s puzzle just seems confusing. Once you get the trick, solving it is smooth sailing.`\
+https://nytimes.com/2025/09/24/crosswords/daily-puzzle-2025-09-25.html
+
+**White House Deputy Chief of Staff Leaving Trump Administration**\
+`Taylor Budowich, a longtime Trump aide, played a large role in the president’s political operation after he left office in 2021.`\
+https://nytimes.com/2025/09/24/us/politics/taylor-budowich-trump-white-house.html
+
 **Henry Jaglom, Indie Director Who Mined the Personal, Dies at 87**\
 `His discursive films, often centered on women and their emotions and relationships, confounded and delighted critics in equal measure.`\
 https://nytimes.com/2025/09/24/movies/henry-jaglom-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6660110/2025/09/24/san-diego-padres-ramon-laureano-
 **Immigrant Rights Groups Condemn Violent Rhetoric Against Officers, and Immigrants**\
 `In a tense national debate, inflammatory language is being singled out.`\
 https://nytimes.com/2025/09/24/us/ice-dallas-shooting-reaction-response.html
-
-**How to watch Jets at Dolphins: Time, TV, streaming**\
-`Find out how to watch the New York Jets play the Miami Dolphins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6660070/2025/09/24/jets-vs-dolphins-stream-how-to-watch-sept-29/
-
-**How to watch Pirates at Reds: Time, TV, streaming for September 25**\
-`Find out how to watch the Pittsburgh Pirates play the Cincinnati Reds, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6660040/2025/09/24/pirates-vs-reds-stream-how-to-watch-sept-25/
 
