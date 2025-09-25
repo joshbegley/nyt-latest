@@ -1,3 +1,19 @@
+**The Justice Dept. Is Taking Aim at Trump’s Foes**\
+`Also, Trump waded into bailout politics by offering a lifeline to Argentina. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/09/25/briefing/justice-department-george-soros-us-argentina-bailout.html
+
+**Trump’s War on ‘Hotbeds of Radicalism’**\
+`Universities have an ideology problem, at least according to the Trump administration, and May Mailman is here to fix it.`\
+https://nytimes.com/video/opinion/100000010414442/trumps-war-on-hotbeds-of-radicalism.html
+
+**911 Service Is Disrupted Across Louisiana and Mississippi**\
+`Damage to fiber optic lines operated by AT&T was to blame for the outage, the authorities said, but foul play was not suspected.`\
+https://nytimes.com/2025/09/25/us/mississippi-louisiana-outages-911-emergency.html
+
+**Trump Signs Executive Order Related to TikTok Deal**\
+`The administration has been working for months to find non-Chinese investors for a U.S. version of the app.`\
+https://nytimes.com/2025/09/25/technology/trump-tiktok-ban-deal.html
+
 **Canada Orders Postal Service to End Door-to-Door Mail Delivery**\
 `The government’s previous attempts at postal service cuts were politically unpopular but Canada Post’s dire financial situation has expedited them.`\
 https://nytimes.com/2025/09/25/world/americas/canada-postal-service-door-mail-delivery.html
