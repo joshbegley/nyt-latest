@@ -1,40 +1,40 @@
-**Arsenal's Saliba agrees new contract**\
-`Saliba had been the subject of interest from Real Madrid but is expected to sign his new deal in the coming days.`\
-https://nytimes.com/athletic/6344896/2025/09/25/william-saliba-contract-arsenal-new/
+**Patrick Mahomes vowed to make a change. He's been a different QB since**\
+`Mahomes has reversed a years-long trend this season. The work started in the offseason.`\
+https://nytimes.com/athletic/6658490/2025/09/25/chiefs-patrick-mahomes-deep-ball/
 
-**Runway Safety Bed Stops Skidding Plane in Virginia**\
-`The concrete bed stopped a commercial flight that lost control during landing. The safety system slows a runaway aircraft by collapsing under its weight.`\
-https://nytimes.com/2025/09/25/us/virginia-jet-roanoke-blacksburg-airport.html
+**What I'm seeing with the Panthers: Juggling WRs and secondary vs. top-10 QBs**\
+`Brycen Tremayne and David Moore bump up the depth chart with the Panthers' top four receivers missing practice.`\
+https://nytimes.com/athletic/6659719/2025/09/25/panthers-receivers-health-tetairoa-mcmillan-patriots/
 
-**Brian Flores left Pittsburgh, the Vikings considered Aaron Rodgers — now they meet in Dublin**\
-`A look at the state of two teams intertwined ahead of their Sunday morning matchup in Ireland.`\
-https://nytimes.com/athletic/6658676/2025/09/25/vikings-steelers-dublin-aaron-rodgers-brian-flores/
+**What Caleb Williams' explosive game was — and wasn't — for the Bears**\
+`Bears fans know all too well that a quarterback performance can feel significant in the moment but ultimately mean little.`\
+https://nytimes.com/athletic/6659901/2025/09/25/bears-caleb-williams-fact-and-fiction/
 
-**NFL panic meter: Why Chiefs, Ravens should keep faith; Cowboys, Texans are in trouble**\
-`Half of the league's 32 teams have losing records after three games. Which teams have the best chance to turn their seasons around? `\
-https://nytimes.com/athletic/6658780/2025/09/25/nfl-panic-meter-chiefs-ravens-cowboys-texans/
+**Jadeveon Clowney believes he can make notable difference for struggling Cowboys defense**\
+`The Cowboys' four sacks through three games ranks 28th in the NFL. Dallas will welcome anything Clowney can bring to the pass rush.`\
+https://nytimes.com/athletic/6659721/2025/09/25/cowboys-jadeveon-clowney-packers/
 
-**The New York Times International Edition in Print for Friday, Sep. 26, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/09/25/todays-new-york-times-international-edition
+**How the Lions sacked Lamar Jackson 7 times and pressured him all game**\
+`"It takes everybody doing their job, and our guys did that,” Dan Campbell said of his team's pass rush in their Monday night win.`\
+https://nytimes.com/athletic/6660257/2025/09/25/lions-pass-rush-sacks-pressure-lamar-jackson/
 
-**Sarkozy Guilty of Conspiracy to Use Libyan Money for 2007 Campaign**\
-`Nicolas Sarkozy, former president of France, was convicted of plotting to finance his election bid with help from the government of Col. Muammar el-Qaddafi.`\
-https://nytimes.com/2025/09/25/world/europe/sarkozy-france-verdict-libya-qaddafi.html
+**Seahawks at Cardinals on TNF: Darnold vs. Murray, Lil Jon halftime, broadcast predictions**\
+`The Seahawks have won seven straight in this rivalry. The Cardinals will wear sandstorm jerseys. Here's what else to watch for on TNF.`\
+https://nytimes.com/athletic/6653196/2025/09/25/seahawks-cardinals-tnf-kyler-murray-sam-darnold-how-to-watch/
 
-**Ayuso joins Lidl-Trek after early UAE Team Emirates exit**\
-`Ayuso, 23, is considered one of the peloton’s best young climbing prospects but endured a turbulent season at UAE.`\
-https://nytimes.com/athletic/6660942/2025/09/25/juan-ayuso-lidl-trek-cycling/
+**Could NASCAR eliminate its playoff system? Here's why it's being considered**\
+`The championship is currently decided by eliminations, which often do not focus on the best drivers, let alone reward them.`\
+https://nytimes.com/athletic/6658624/2025/09/25/nascar-playoff-system-change-full-season-chase/
 
-**How to watch Royals at Angels: Time, TV, streaming for September 25**\
-`Find out how to watch the Kansas City Royals play the Los Angeles Angels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6661023/2025/09/25/royals-vs-angels-stream-how-to-watch-sept-25/
+**NHL rumblings: Latest on pending UFAs Kempe, Tuch, Necas, Andersson and more**\
+`With Connor McDavid and Kirill Kaprizov potentially available next summer, other pending UFAs are flying under the radar. Here are six.`\
+https://nytimes.com/athletic/6658064/2025/09/25/kempe-tuch-necas-nhl-rumblings/
 
-**How to watch Dodgers at Diamondbacks: Time, TV, streaming for September 25**\
-`Find out how to watch the Los Angeles Dodgers play the Arizona Diamondbacks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6660988/2025/09/25/dodgers-vs-diamondbacks-stream-how-to-watch-sept-25/
+**Early returns on Jets' free-agency class not good — though trades look promising**\
+`A look at how the Jets' veteran additions have fared through the first three weeks of their winless season.`\
+https://nytimes.com/athletic/6658936/2025/09/25/new-york-jets-free-agent-class-performance/
 
-**How to watch Rockies at Mariners: Time, TV, streaming for September 25**\
-`Find out how to watch the Colorado Rockies play the Seattle Mariners, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6660972/2025/09/25/rockies-vs-mariners-stream-how-to-watch-sept-25/
+**Waiver wire targets: Who could be the best pickups when NHL teams trim rosters?**\
+`These 14 young players with potential upside might land on the wire over the next two weeks.`\
+https://nytimes.com/athletic/6637860/2025/09/25/nhl-waivers-targets-2025-preseason/
 
