@@ -1,3 +1,11 @@
+**Tiny Memoir Contest for Students: Write a 100-Word Personal Narrative**\
+`We invite teenagers to tell a story about a meaningful life experience in just 100 words. Contest dates: Oct. 22-Dec. 3, 2025.`\
+https://nytimes.com/2025/09/25/learning/tiny-memoir-contest-for-students-write-a-100-word-personal-narrative.html
+
+**The Boycotts of Jimmy Kimmel Are Political. But in What Way?**\
+`Nexstar and Sinclair say their boycott of the late-night host is all about what he said. But both are exploring deals for their sprawling networks of local TV stations.`\
+https://nytimes.com/2025/09/25/business/media/jimmy-kimmel-boycotts-nexstar-sinclair.html
+
 **Turning to Art After the Storm**\
 `A year after Hurricane Helene ravaged western North Carolina, some are trying to make sense of it all through creative expression, an outlet that has blossomed for centuries in this region.`\
 https://nytimes.com/interactive/2025/09/25/us/hurricane-helene-north-carolina-art.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6662292/2025/09/25/ryder-cup-preview-2025-golf-brie
 **Rebuttal on Possible Super PAC Coordination With Zeldin Campaign**\
 `Representatives of two super PACs strongly disputed in writing that they had run afoul of the law while promoting Lee Zeldin’s campaign for governor of New York.`\
 https://nytimes.com/interactive/2025/09/25/nyregion/rebuttal-super-pac-zeldin-campaign.html
-
-**Report on Possible Super PAC Coordination With Zeldin Campaign**\
-`State investigators spent years combing emails and other records to make a case that Lee Zeldin’s campaign for governor of New York was illicitly coordinating with two super PACs supporting him.`\
-https://nytimes.com/interactive/2025/09/25/nyregion/report-super-pac-zeldin-campaign.html
-
-**Trump at the U.N.: A Bitter Display**\
-`Readers criticize President Trump’s harsh speech. Also: Jimmy Kimmel’s return, and the F.C.C.’s threats; women in Congress; politics at the E.P.A.`\
-https://nytimes.com/2025/09/25/opinion/trump-united-nations.html
 

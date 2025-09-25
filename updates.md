@@ -1,3 +1,11 @@
+**Tiny Memoir Contest for Students: Write a 100-Word Personal Narrative**\
+`We invite teenagers to tell a story about a meaningful life experience in just 100 words. Contest dates: Oct. 22-Dec. 3, 2025.`\
+https://nytimes.com/2025/09/25/learning/tiny-memoir-contest-for-students-write-a-100-word-personal-narrative.html
+
+**The Boycotts of Jimmy Kimmel Are Political. But in What Way?**\
+`Nexstar and Sinclair say their boycott of the late-night host is all about what he said. But both are exploring deals for their sprawling networks of local TV stations.`\
+https://nytimes.com/2025/09/25/business/media/jimmy-kimmel-boycotts-nexstar-sinclair.html
+
 **Turning to Art After the Storm**\
 `A year after Hurricane Helene ravaged western North Carolina, some are trying to make sense of it all through creative expression, an outlet that has blossomed for centuries in this region.`\
 https://nytimes.com/interactive/2025/09/25/us/hurricane-helene-north-carolina-art.html
