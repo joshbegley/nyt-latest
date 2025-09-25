@@ -1,3 +1,15 @@
+**Attack on Dallas ICE Was ‘Very Definition of Terrorism,’ Prosecutor Says**\
+`Federal officials said the gunman intended to shoot immigration agents, calling it a “tragic irony” that three detainees were struck, one fatally.`\
+https://nytimes.com/2025/09/25/us/politics/dallas-ice-shooting.html
+
+**Israel Launches Deadly Strikes on Yemeni Capital**\
+`Israel’s military bombed several sites across the Yemeni capital, a day after Yemen’s Houthi militia launched a drone attack against Israel that injured 20 people.`\
+https://nytimes.com/video/world/middleeast/100000010421316/israel-drone-strike-yemen-houthis.html
+
+**Georgia Inmate Who Sent Bombs to U.S. Buildings Gets 80-Year Sentence**\
+`The bombs were mailed from a state prison to the Department of Justice and a federal court. The inmate tried to exchange information on the plot for accommodations, prosecutors said in court filings.`\
+https://nytimes.com/2025/09/25/us/georgia-inmate-bombs-mail-sentencing.html
+
 **The Rapper 6ix9ine Is Ordered Into Home Detention After Violence at Mall**\
 `The musician, whose real name is Daniel Hernandez, has had serial entanglements with the law. A prosecutor said that he had concerns about Mr. Hernandez’s impulse control.`\
 https://nytimes.com/2025/09/25/nyregion/rapper-tekashi-6ix9ine-home-detention.html
