@@ -1,3 +1,7 @@
+**This Saturday, It’s Bake Time**\
+`Make sure you’re on the list for our new newsletter dedicated to all things delightful and baked (like these apple cider doughnuts).`\
+https://nytimes.com/2025/09/25/dining/this-saturday-its-bake-time.html
+
 **AL MVP odds: Cal Raleigh reached 60 home runs, but is it enough to top Aaron Judge?**\
 `Cal Raleigh just reached 60 home runs and the Mariners clinched the AL West. Is that enough to top Aaron Judge for AL MVP?`\
 https://nytimes.com/athletic/6662051/2025/09/25/al-mvp-odds-cal-raleigh-aaron-judge/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6658362/2025/09/25/kawhi-leonard-clippers-uncle-den
 **A 64-team World Cup is excessive, but – bear with us – it's better than 48**\
 `The World Cup has already gotten unwieldy in size and scope. Expanding again could actually make for a more tidy tournament`\
 https://nytimes.com/athletic/6661715/2025/09/25/64-team-world-cup-fifa-2030-argument/
-
-**Yonkers Casino Bid Advances in Battle for N.Y. Licenses**\
-`The Empire City Casino is the first applicant to be approved by its local advisory committee after all three Manhattan proposals were eliminated.`\
-https://nytimes.com/2025/09/25/nyregion/empire-casino-yonkers-resorts-world.html
 

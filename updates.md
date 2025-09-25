@@ -1,3 +1,7 @@
+**This Saturday, It’s Bake Time**\
+`Make sure you’re on the list for our new newsletter dedicated to all things delightful and baked (like these apple cider doughnuts).`\
+https://nytimes.com/2025/09/25/dining/this-saturday-its-bake-time.html
+
 **AL MVP odds: Cal Raleigh reached 60 home runs, but is it enough to top Aaron Judge?**\
 `Cal Raleigh just reached 60 home runs and the Mariners clinched the AL West. Is that enough to top Aaron Judge for AL MVP?`\
 https://nytimes.com/athletic/6662051/2025/09/25/al-mvp-odds-cal-raleigh-aaron-judge/
