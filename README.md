@@ -1,3 +1,11 @@
+**Canada Orders Postal Service to End Door-to-Door Mail Delivery**\
+`The government’s previous attempts at postal service cuts were politically unpopular but Canada Post’s dire financial situation has expedited them.`\
+https://nytimes.com/2025/09/25/world/americas/canada-postal-service-door-mail-delivery.html
+
+**Savinho close to signing new Man City contract until 2031**\
+`The 21-year-old was linked with a move to Tottenham Hotspur in the summer transfer window.`\
+https://nytimes.com/athletic/6663030/2025/09/25/savinho-man-city-contract/
+
 **How to make water conservation a habit**\
 `Small, everyday actions to minimize water use add up the more people do them.`\
 https://nytimes.com/2025/09/25/headway/how-to-make-water-conservation-a-habit.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6662383/2025/09/25/rory-mcrilroy-bryson-dechambeau-
 **Half Naked, Sweating With Strangers, for Art**\
 `No phones, no street clothing. The artist Rashid Johnson has returned to the Russian and Turkish Baths with Amiri Baraka’s incendiary play “Dutchman.”`\
 https://nytimes.com/2025/09/25/style/rashid-johnson-dutchman-bathouse.html
-
-**USMNT hopeful Tanner Tessmann scores sensational Europa League goal**\
-`Tessmann hasn't featured for the USMNT since last March, but he's making a case for it with his run of form for Lyon.`\
-https://nytimes.com/athletic/6663008/2025/09/25/tanner-tessmann-goal-lyon-europa-league-usmnt/
-
-**What World Leaders Told Us About Trump, China and Climate Change**\
-`At the Climate Forward live event, we spoke to top policymakers about China, the Trump effect on climate policy and the boom in artificial intelligence.`\
-https://nytimes.com/2025/09/25/climate/climate-forward-event-recap.html
 

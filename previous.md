@@ -1,3 +1,7 @@
+**How to make water conservation a habit**\
+`Small, everyday actions to minimize water use add up the more people do them.`\
+https://nytimes.com/2025/09/25/headway/how-to-make-water-conservation-a-habit.html
+
 **Kennedy Says U.S. Rejects Global Health Goals**\
 `The nation’s top federal health official criticized the U.N.’s road map for addressing chronic disease, falsely claiming it promotes abortion and “radical gender ideology.”`\
 https://nytimes.com/2025/09/25/health/rfk-jr-un-chronic-disease.html
@@ -15,7 +19,7 @@ https://nytimes.com/2025/09/25/us/politics/george-soros-foundation-trump.html
 https://nytimes.com/2025/09/25/briefing/abbas-gaza-unga-tiktok-trump-palestine.html
 
 **Rory McIlroy, Bryson DeChambeau and the rivalry golf demands**\
-`From Jones vs. Hagen, to Arnie vs. Jack, to Tiger vs. Phil, professional golf, as a product, is better with rivalries.`\
+`From Jones versus Hagen, to Arnie versus Jack, to Tiger versus Phil, professional golf, as a product, is better with rivalries.`\
 https://nytimes.com/athletic/6662383/2025/09/25/rory-mcrilroy-bryson-dechambeau-ryder-cup-rivalry-golf/
 
 **Half Naked, Sweating With Strangers, for Art**\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6663008/2025/09/25/tanner-tessmann-goal-lyon-europa
 **What World Leaders Told Us About Trump, China and Climate Change**\
 `At the Climate Forward live event, we spoke to top policymakers about China, the Trump effect on climate policy and the boom in artificial intelligence.`\
 https://nytimes.com/2025/09/25/climate/climate-forward-event-recap.html
-
-**13-Year-Old Shot in the Head While Walking to School Dies Days Later**\
-`Sanjay Samuel, who had recently started ninth grade, was shot in Queens in what authorities said was gang-related violence. The police are seeking a 16-year-old suspect.`\
-https://nytimes.com/2025/09/25/nyregion/queens-teen-killing.html
 

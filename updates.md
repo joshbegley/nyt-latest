@@ -1,3 +1,11 @@
+**How to make water conservation a habit**\
+`Small, everyday actions to minimize water use add up the more people do them.`\
+https://nytimes.com/2025/09/25/headway/how-to-make-water-conservation-a-habit.html
+
+**Rory McIlroy, Bryson DeChambeau and the rivalry golf demands**\
+`From Jones versus Hagen, to Arnie versus Jack, to Tiger versus Phil, professional golf, as a product, is better with rivalries.`\
+https://nytimes.com/athletic/6662383/2025/09/25/rory-mcrilroy-bryson-dechambeau-ryder-cup-rivalry-golf/
+
 **Kennedy Says U.S. Rejects Global Health Goals**\
 `The nation’s top federal health official criticized the U.N.’s road map for addressing chronic disease, falsely claiming it promotes abortion and “radical gender ideology.”`\
 https://nytimes.com/2025/09/25/health/rfk-jr-un-chronic-disease.html
