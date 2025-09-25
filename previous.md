@@ -1,3 +1,11 @@
+**The Future of Climate Activism**\
+`At the Climate Forward live event, Manish Bapna, president of the Natural Resources Defense Council; Abigail Dillen, president of Earthjustice; and Bill McKibben, an author and activist, discussed how the environmental movement needs to change to win over more Americans.`\
+https://nytimes.com/2025/09/25/climate/climate-forward-activist-panel.html
+
+**Three New Restaurant Sequels in New York City to Check Out Right Now**\
+`What to expect (and avoid) at the new spinoffs from the Four Horsemen, Yellow Rose and Ernesto’s.`\
+https://nytimes.com/2025/09/25/dining/three-new-restaurant-sequels-in-new-york-city-to-check-out-right-now.html
+
 **Attack on Dallas ICE Was ‘Very Definition of Terrorism,’ Prosecutor Says**\
 `Federal officials said the gunman intended to shoot immigration agents, calling it a “tragic irony” that three detainees were struck, one fatally.`\
 https://nytimes.com/2025/09/25/us/politics/dallas-ice-shooting.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/09/25/us/los-angeles-fires-evacuations-report.html
 **Netflix to stream Yankees-Giants on MLB Opening Day 2026: Sources**\
 `The game will be Netflix’s first exclusive stream, part of the new three-year agreement that MLB and the giant streamer have agreed to,`\
 https://nytimes.com/athletic/6662421/2025/09/25/netflix-stream-yankees-giants-mlb-opening-day-2026/
-
-**5 New Books We Love This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://nytimes.com/2025/09/25/books/review/new-recommended-books.html
-
-**Climate Change Could Pose a National Security Threat**\
-`At the Climate Forward live event, Jake Sullivan, former national security adviser under President Biden, said the Trump administration’s approach to climate posed serious risks to U.S. military operations and interests.`\
-https://nytimes.com/2025/09/25/climate/climate-forward-jake-sullivan.html
 

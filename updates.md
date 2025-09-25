@@ -1,3 +1,11 @@
+**The Future of Climate Activism**\
+`At the Climate Forward live event, Manish Bapna, president of the Natural Resources Defense Council; Abigail Dillen, president of Earthjustice; and Bill McKibben, an author and activist, discussed how the environmental movement needs to change to win over more Americans.`\
+https://nytimes.com/2025/09/25/climate/climate-forward-activist-panel.html
+
+**Three New Restaurant Sequels in New York City to Check Out Right Now**\
+`What to expect (and avoid) at the new spinoffs from the Four Horsemen, Yellow Rose and Ernesto’s.`\
+https://nytimes.com/2025/09/25/dining/three-new-restaurant-sequels-in-new-york-city-to-check-out-right-now.html
+
 **Attack on Dallas ICE Was ‘Very Definition of Terrorism,’ Prosecutor Says**\
 `Federal officials said the gunman intended to shoot immigration agents, calling it a “tragic irony” that three detainees were struck, one fatally.`\
 https://nytimes.com/2025/09/25/us/politics/dallas-ice-shooting.html
