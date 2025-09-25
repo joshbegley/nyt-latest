@@ -1,3 +1,15 @@
+**Map: 6.3-Magnitude Earthquake Strikes Venezuela**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/09/25/world/americas/earthquake-venezuela-tracker.html
+
+**Syria’s President Makes His Debut on the World Stage**\
+`In his first U.N. address, Ahmed al-Shara, a former rebel, highlighted his efforts to rebuild Syria and its institutions.`\
+https://nytimes.com/2025/09/25/briefing/syria-president-un.html
+
+**FPL and the Triple Captain chip: Haaland in Gameweek 6? Or should you look elsewhere?**\
+`The case for triple-captaining the Manchester City striker at home to Burnley, or waiting for another opportunity to use this chip`\
+https://nytimes.com/athletic/6657427/2025/09/25/fantasy-premier-league-triple-captain-haaland-gw6/
+
 **Leeds' Anton Stach: Hitting the right tone with his off-the-wall social media output**\
 `The German has caught the eye since joining Leeds in July: both on the pitch and for his approach to posting online before and after games`\
 https://nytimes.com/athletic/6658149/2025/09/25/anton-stach-social-media-leeds-united/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6651696/2025/09/25/raheem-sterling-chelsea-where-wh
 **Why has football become so obsessed with the Ballon d'Or?**\
 `The excitement and publicity around this year's awards show how the game has come to view these accolades as increasingly important`\
 https://nytimes.com/athletic/6657620/2025/09/25/ballon-dor-dembele-individual-awards/
-
-**Investigating Manchester United's data: What's good, what's bad, what's too early to say**\
-`Ruben Amorim has referenced the data. Senior Old Trafford figures are clearly keeping one eye on the numbers. But what does it all mean?`\
-https://nytimes.com/athletic/6657622/2025/09/25/manchester-united-data/
-
-**Villa, Emery and three days of turmoil: What are players thinking, how will they react?**\
-`Their manager called them 'lazy' and the sporting director has been replaced. It's been a busy week, and now attention turns to Europe.`\
-https://nytimes.com/athletic/6657269/2025/09/25/aston-villa-unai-emery-and-three-days-of-turmoil-what-are-players-thinking-and-how-will-they-react/
-
-**Infantino appeals for world peace, claims conflicts leave him in tears**\
-`The FIFA president filled his Atlantic Council award acceptance speech with emotion - and politics`\
-https://nytimes.com/athletic/6660483/2025/09/25/infantino-world-cup-fifa-peace-gaza-ukraine-sudan/
 
