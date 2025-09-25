@@ -1,3 +1,7 @@
+**Is ‘South Park’ Cancel-Proof Comedy?**\
+`It’s a prickly time for comedy. On “Cannonball” podcast, Wesley Morris and Wyatt Cenac discuss how the TV show has managed to keep the punchlines rolling for over 27 years.`\
+https://nytimes.com/video/podcasts/100000010415158/is-south-park-cancel-proof-comedy.html
+
 **Pablo Torre Finds Out: Should MMA fighters be using tickling 'as a weapon'?**\
 `Absent from the list of MMA no-nos is a time-honored and battle-tested maneuver, both delicate and diabolical: the tickle. `\
 https://nytimes.com/athletic/6653850/2025/09/25/pablo-torre-finds-out-mma-fighters-tickle/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6661561/2025/09/25/nhl-red-light-newsletter-preseas
 **Cardinals' Nolan Arenado more open-minded to trade possibilities: 'I think I have to be'**\
 `Arenado said he can still contribute to a contender: "The way I played this year, it looks old and washed. But I don't feel that way."`\
 https://nytimes.com/athletic/6660310/2025/09/25/cardinals-nolan-arenado-trade-clause/
-
-**3 School Districts to Lose $65 Million Over Gender and D.E.I. Policies**\
-`The federal Education Department accused New York, Chicago and Fairfax, Va., of discrimination and said it would pull federal funds from their magnet schools.`\
-https://nytimes.com/2025/09/25/nyregion/trump-dei-schools-federal-money.html
 
