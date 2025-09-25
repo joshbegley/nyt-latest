@@ -1,3 +1,11 @@
+**Michigan mailbag: Was Oklahoma loss a blessing in disguise? Which freshmen have impressed?**\
+`Did losing to Oklahoma help Michigan figure out who it is? Plus, questions about freshmen, WR problems and basketball big men.`\
+https://nytimes.com/athletic/6658810/2025/09/25/michigan-football-oklahoma-nebraska-freshmen-mailbag/
+
+**Lucky Liverpool? If anything, Slot’s side have been unfortunate**\
+`In five Premier League games, Liverpool have faced just nine shots on target (the division’s fewest), while Alisson has only made four saves`\
+https://nytimes.com/athletic/6651397/2025/09/25/liverpool-lucky-premier-league-top/
+
 **TAFC: A 64-team World Cup - how much is too much? Plus: Messi closes in on MLS Golden Boot**\
 `Today in TAFC: A debate over whether FIFA's proposed 64-team World Cup could actually work`\
 https://nytimes.com/athletic/6660889/2025/09/25/tafc-newsletter-world-cup-messi/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6659989/2025/09/25/washington-wizards-roster-constr
 **Garrett Crochet dazzles as Red Sox inch closer to clinching postseason berth**\
 `With an Astros loss, the Red Sox could clinch a spot in the playoffs before taking the field Thursday.`\
 https://nytimes.com/athletic/6660518/2025/09/25/garrett-crochet-dazzles-red-sox-postseason-berth/
-
-**Packers' Micah Parsons downplays Cowboys matchup: 'We're talking about winning'**\
-`Parsons was the Cowboys' best player from 2021-2024, but now he'll face his former team trying to help the Packers get a much-needed win.`\
-https://nytimes.com/athletic/6659566/2025/09/25/packers-cowboys-micah-parsons-jerry-jones/
-
-**Beau Pribula has outplayed Drew Allar. Did Penn State let the better QB get away?**\
-`If Allar and Penn State figure out the offense, fans will go back to wishing Pribula well at Missouri. If not, the question will persist.`\
-https://nytimes.com/athletic/6659521/2025/09/25/drew-allar-beau-pribula-comparison-penn-state-missouri/
 

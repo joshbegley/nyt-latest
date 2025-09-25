@@ -1,3 +1,11 @@
+**Michigan mailbag: Was Oklahoma loss a blessing in disguise? Which freshmen have impressed?**\
+`Did losing to Oklahoma help Michigan figure out who it is? Plus, questions about freshmen, WR problems and basketball big men.`\
+https://nytimes.com/athletic/6658810/2025/09/25/michigan-football-oklahoma-nebraska-freshmen-mailbag/
+
+**Lucky Liverpool? If anything, Slot’s side have been unfortunate**\
+`In five Premier League games, Liverpool have faced just nine shots on target (the division’s fewest), while Alisson has only made four saves`\
+https://nytimes.com/athletic/6651397/2025/09/25/liverpool-lucky-premier-league-top/
+
 **TAFC: A 64-team World Cup - how much is too much? Plus: Messi closes in on MLS Golden Boot**\
 `Today in TAFC: A debate over whether FIFA's proposed 64-team World Cup could actually work`\
 https://nytimes.com/athletic/6660889/2025/09/25/tafc-newsletter-world-cup-messi/
