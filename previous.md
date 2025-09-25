@@ -1,3 +1,7 @@
+**Power Dressing in an Age of Influencers**\
+`Simone Bellotti makes a convincing debut at Jil Sander.`\
+https://nytimes.com/2025/09/25/style/jil-sander-simone-bellotti-debut.html
+
 **Nottingham Forest fans in Seville and a European night 30 years in the making**\
 `Forest fans travelled en masse to southern Spain savour their side's return to European football`\
 https://nytimes.com/athletic/6659488/2025/09/25/nottingham-forest-fans-europa-league-betis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/25/crosswords/spelling-bee-forum.html
 **As Mamdani Rises, South Asians Emerge as a Political Force in New York**\
 `Zohran Mamdani’s upstart campaign for mayor of New York City is inspiring the growing South Asian community to be more active in politics.`\
 https://nytimes.com/2025/09/25/nyregion/mamdani-south-asian-voters.html
-
-**Newcastle 4 Bradford City 1: Fine outings for Osula and Ramsdale as Howe shuffles his pack successfully**\
-`Chris Waugh analyses the key talking points from Newcastle's win over League One Bradford City in the Carabao Cup third round`\
-https://nytimes.com/athletic/6640141/2025/09/25/newcastle-carabao-cup-osula-ramsdale-howe/
 

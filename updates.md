@@ -1,3 +1,7 @@
+**Power Dressing in an Age of Influencers**\
+`Simone Bellotti makes a convincing debut at Jil Sander.`\
+https://nytimes.com/2025/09/25/style/jil-sander-simone-bellotti-debut.html
+
 **Grosjean to make F1 test return five years after fiery Bahrain crash**\
 `This comes almost five years after Grosjean sustained severe injuries in an accident at the start of the 2020 Bahrain Grand Prix.`\
 https://nytimes.com/athletic/6658582/2025/09/25/romain-grosjean-f1-return-news-bahrain/
