@@ -1,3 +1,7 @@
+**Hegseth Is Said to Have Summoned U.S. Military Brass From Around the Globe**\
+`The unusual directive, without a stated reason, came after the defense secretary has fired several top officers and ordered a reduction in four-star officers.`\
+https://nytimes.com/2025/09/25/us/politics/hegseth-generals-admirals-summoned.html
+
 **What we know about ‘Uncle Dennis’: A central figure in another Kawhi Leonard, Clippers investigation**\
 `The Athletic conducted interviews with 17 different sources, league and team personnel to learn about Kawhi Leonard's uncle and advisor. `\
 https://nytimes.com/athletic/6658362/2025/09/25/kawhi-leonard-clippers-uncle-dennis-nba-investigation/
