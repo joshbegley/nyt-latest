@@ -1,3 +1,11 @@
+**Intel Said to Seek Investment From Apple**\
+`The Silicon Valley chipmaker has held talks with Apple about bolstering its finances as it looks to turn around its ailing business.`\
+https://nytimes.com/2025/09/24/technology/intel-apple-talks-investment.html
+
+**Padres' Ramón Laureano (finger) to miss at least first round of postseason**\
+`The Padres (87-72) technically remain in contention for both a National League West title and the league’s top wild-card berth.`\
+https://nytimes.com/athletic/6660110/2025/09/24/san-diego-padres-ramon-laureano-finger-injury/
+
 **Immigrant Rights Groups Condemn Violent Rhetoric Against Officers, and Immigrants**\
 `In a tense national debate, inflammatory language is being singled out.`\
 https://nytimes.com/2025/09/24/us/ice-dallas-shooting-reaction-response.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6660022/2025/09/24/marlins-vs-phillies-stream-how-t
 **Yankees' Aaron Judge becomes fourth MLB player to have four 50-homer seasons**\
 `Judge joined Babe Ruth, Mark McGwire and Sammy Sosa as the only hitters in history with four 50-home run seasons. `\
 https://nytimes.com/athletic/6656029/2025/09/24/aaron-judge-yankees-50-home-run-season/
-
-**Oilers' Vasily Podkolzin to take leave of absence**\
-`The 24-year-old left winger signed a three-year, $2.95 million AAV deal with Edmonton on Tuesday.`\
-https://nytimes.com/athletic/6659857/2025/09/24/oilers-vasily-podkolzin-absence/
-
-**U.S. Attorney Races to Present Case Against James Comey**\
-`It remains to be seen whether a career prosecutor would be willing to present a case to a grand jury or whether jurors would bring an indictment.`\
-https://nytimes.com/2025/09/24/us/politics/james-comey-indictment.html
 
