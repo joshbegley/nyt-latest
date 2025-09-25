@@ -1,3 +1,7 @@
+**Shedeur Sanders confident he should be on the field: 'I’m ready to play right now'**\
+`The Browns (1-2) with travel to Detroit to play the Lions (2-1) Sunday at 1 p.m. ET.`\
+https://nytimes.com/athletic/6662904/2025/09/25/shedeur-sanders-confident-he-should-be-on-the-field-im-ready-to-play-right-now/
+
 **Trump May Try to Force Drugmakers to Lower Some U.S. Prices**\
 `A notice, quickly deleted by the administration, provides a hint that more aggressive pricing policies may be coming.`\
 https://nytimes.com/2025/09/25/health/drug-prices-trump.html

@@ -1,3 +1,7 @@
+**Shedeur Sanders confident he should be on the field: 'I’m ready to play right now'**\
+`The Browns (1-2) with travel to Detroit to play the Lions (2-1) Sunday at 1 p.m. ET.`\
+https://nytimes.com/athletic/6662904/2025/09/25/shedeur-sanders-confident-he-should-be-on-the-field-im-ready-to-play-right-now/
+
 **Trump May Try to Force Drugmakers to Lower Some U.S. Prices**\
 `A notice, quickly deleted by the administration, provides a hint that more aggressive pricing policies may be coming.`\
 https://nytimes.com/2025/09/25/health/drug-prices-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/25/dining/three-new-restaurant-sequels-in-new-york-c
 **Attack on Dallas ICE Was ‘Very Definition of Terrorism,’ Prosecutor Says**\
 `Federal officials said the gunman intended to shoot immigration agents, calling it a “tragic irony” that three detainees were struck, one fatally.`\
 https://nytimes.com/2025/09/25/us/politics/dallas-ice-shooting.html
-
-**Israel Launches Deadly Strikes on Yemeni Capital**\
-`Israel’s military bombed several sites across the Yemeni capital, a day after Yemen’s Houthi militia launched a drone attack against Israel that injured 20 people.`\
-https://nytimes.com/video/world/middleeast/100000010421316/israel-drone-strike-yemen-houthis.html
 

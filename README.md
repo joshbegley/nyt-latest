@@ -1,3 +1,7 @@
+**Elementary-School Teacher Is Accused of Sharing Child Sexual Abuse Images**\
+`Investigators said the teacher had disseminated the material, some of which included children under 12, for at least a year.`\
+https://nytimes.com/2025/09/25/nyregion/elementary-school-teacher-is-accused-of-sharing-child-sexual-abuse-images.html
+
 **Shedeur Sanders confident he should be on the field: 'I’m ready to play right now'**\
 `The Browns (1-2) with travel to Detroit to play the Lions (2-1) Sunday at 1 p.m. ET.`\
 https://nytimes.com/athletic/6662904/2025/09/25/shedeur-sanders-confident-he-should-be-on-the-field-im-ready-to-play-right-now/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/25/climate/climate-forward-activist-panel.html
 **Three New Restaurant Sequels in New York City to Check Out Right Now**\
 `What to expect (and avoid) at the new spinoffs from the Four Horsemen, Yellow Rose and Ernesto’s.`\
 https://nytimes.com/2025/09/25/dining/three-new-restaurant-sequels-in-new-york-city-to-check-out-right-now.html
-
-**Attack on Dallas ICE Was ‘Very Definition of Terrorism,’ Prosecutor Says**\
-`Federal officials said the gunman intended to shoot immigration agents, calling it a “tragic irony” that three detainees were struck, one fatally.`\
-https://nytimes.com/2025/09/25/us/politics/dallas-ice-shooting.html
 
