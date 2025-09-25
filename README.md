@@ -1,3 +1,7 @@
+**Israel Attacks Houthi Targets in Yemeni Capital**\
+`The airstrikes came a day after the Houthi militia launched a drone at the Israeli city of Eilat, wounding 20 people.`\
+https://nytimes.com/2025/09/25/world/middleeast/israel-yemen-houthis.html
+
 **Manhattan Theater Club Names First New Artistic Director in 53 Years**\
 `Nicki Hunter will succeed Lynne Meadow in December, taking charge of a major nonprofit that stages shows on and off Broadway.`\
 https://nytimes.com/2025/09/25/theater/manhattan-theater-club-nicki-hunter.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6658687/2025/09/25/israel-fifa-ban-trump-uefa/
 **Sarkozy Sentenced to Five Years in Libyan Money Conspiracy Trial**\
 `A Paris court found the former French president Nicolas Sarkozy guilty of criminal conspiracy for using money from Col. Muammar el-Qaddafi’s government in his 2007 campaign. The court sentenced him to five years in prison and a fine of about $117,000.`\
 https://nytimes.com/video/world/europe/100000010420654/sarkozy-libya-money-funding-trial.html
-
-**The Windup: Big Dumper's big number**\
-`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
-https://nytimes.com/athletic/6661740/2025/09/25/cal-raleigh-mlb-playoffs-the-windup/
 
