@@ -1,3 +1,7 @@
+**Half Naked, Sweating With Strangers, for Art**\
+`No phones, no street clothing. The artist Rashid Johnson has returned to the Russian and Turkish Baths with Amiri Baraka’s incendiary play “Dutchman.”`\
+https://nytimes.com/2025/09/25/style/rashid-johnson-dutchman-bathouse.html
+
 **USMNT hopeful Tanner Tessmann scores sensational Europa League goal**\
 `Tessmann hasn't featured for the USMNT since last March, but he's making a case for it with his run of form for Lyon.`\
 https://nytimes.com/athletic/6663008/2025/09/25/tanner-tessmann-goal-lyon-europa-league-usmnt/
@@ -23,7 +27,7 @@ https://nytimes.com/2025/09/25/nyregion/queens-teacher-child-sexual-abuse.html
 https://nytimes.com/athletic/6662904/2025/09/25/shedeur-sanders-confident-he-should-be-on-the-field-im-ready-to-play-right-now/
 
 **Trump May Try to Force Drugmakers to Lower Some U.S. Prices**\
-`A notice, quickly deleted by the administration, provides a hint that more aggressive pricing policies may be coming.`\
+`A notice, deleted and then reposted by the administration, provides a hint that more aggressive pricing policies may be coming.`\
 https://nytimes.com/2025/09/25/health/drug-prices-trump.html
 
 **Justice Department Sues Six States Seeking Private Voter Data**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/25/us/politics/doj-lawsuit-voter-data-trump.html
 **Have you seen this man? Mariners searching for fan who gave Raleigh 60th home run to kid**\
 `The club is hoping to track down the generous fan who caught Cal Raleigh's milestone home run ball and gave it away`\
 https://nytimes.com/athletic/6662775/2025/09/25/cal-raleigh-60th-home-run-ball/
-
-**Ryder Cup: DeChambeau, Thomas will play together against Rahm, Hatton**\
-`DeChambeau and Thomas have never played together before in the Ryder Cup.`\
-https://nytimes.com/athletic/6662444/2025/09/25/ryder-cup-friday-pairings-dechambeau-thomas/
 
