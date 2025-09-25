@@ -1,3 +1,15 @@
+**Behind Cal Raleigh's 60th homer, Mariners clinch first AL West crown since 2001**\
+`Seattle has officially dethroned Houston after seven consecutive full-season division titles for the Astros.`\
+https://nytimes.com/athletic/6660487/2025/09/25/seattle-mariners-al-west-clinched/
+
+**For Trump, Data Is Often ‘Phony,’ Unless It Supports His Views**\
+`The president has ping-ponged between boasts about jobs and crime and attacks on their data sources. Here’s how he is threatening trust in public data.`\
+https://nytimes.com/interactive/2025/09/25/us/politics/trump-data-facts.html
+
+**Mets vs. Cubs: New York buried by Chicago as offense goes cold**\
+`New York's offense was stagnant for most of the game, and the defense did little to slow Chicago.`\
+https://nytimes.com/athletic/6660422/2025/09/25/mets-cubs-takeaways-game-2-nl-wild-card-race/
+
 **Mets vs. Cubs takeaways: New York buried by Chicago as offense goes cold**\
 `New York's offense was stagnant for most of the game, and the defense did little to slow Chicago.`\
 https://nytimes.com/athletic/6660422/2025/09/25/mets-cubs-takeaways-game-2-nl-wild-card-race/

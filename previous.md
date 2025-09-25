@@ -1,4 +1,12 @@
-**Mets vs. Cubs takeaways: New York buried by Chicago as offense goes cold**\
+**Behind Cal Raleigh's 60th homer, Mariners clinch first AL West crown since 2001**\
+`Seattle has officially dethroned Houston after seven consecutive full-season division titles for the Astros.`\
+https://nytimes.com/athletic/6660487/2025/09/25/seattle-mariners-al-west-clinched/
+
+**For Trump, Data Is Often ‘Phony,’ Unless It Supports His Views**\
+`The president has ping-ponged between boasts about jobs and crime and attacks on their data sources. Here’s how he is threatening trust in public data.`\
+https://nytimes.com/interactive/2025/09/25/us/politics/trump-data-facts.html
+
+**Mets vs. Cubs: New York buried by Chicago as offense goes cold**\
 `New York's offense was stagnant for most of the game, and the defense did little to slow Chicago.`\
 https://nytimes.com/athletic/6660422/2025/09/25/mets-cubs-takeaways-game-2-nl-wild-card-race/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/24/pageoneplus/quote-of-the-day-stark-reminder-of-to
 **Were You Assigned Full Books to Read in High School English? Tell Us.**\
 `We’re asking because the reading scores of American 12th graders are at record lows.`\
 https://nytimes.com/2025/09/24/us/education-books-callout.html
-
-**Skaggs-Angels trial: Key details and developments from the first week**\
-`The two sides spent the last two days arguing important motions in front of Orange County Superior Court judge H. Shaina Colover.`\
-https://nytimes.com/athletic/6660463/2025/09/24/los-angeles-angels-tyler-skaggs-trial-week-1-recap/
-
-**Reds vs. Pirates: Cincinnati remains 1 game behind Mets with extra-inning loss**\
-`With the bases loaded in the 11th inning, Reds' Noelvi Marte grounded out into a fielder's choice, sealing the Pirates' 4-3 win.`\
-https://nytimes.com/athletic/6660168/2025/09/24/reds-pirates-game-takeaways-nl-wild-card-race/
 
