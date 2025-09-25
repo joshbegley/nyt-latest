@@ -1,3 +1,7 @@
+**Times Reporters Answer Your Vaccine Questions**\
+`We try to parse the chaotic vaccine landscape in the United States.`\
+https://nytimes.com/2025/09/25/us/times-reporters-answer-your-vaccine-questions.html
+
 **How to watch the 2025 Ryder Cup: Schedule, streaming, weather for U.S.-Europe clash**\
 `Europe has controlled the modern rivalry, but the tournament is back on American soil. The U.S. has won its last two Ryder Cups as the host.`\
 https://nytimes.com/athletic/6659483/2025/09/25/ryder-cup-2025-weather-schedule-how-to-watch/
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/6660441/2025/09/25/jesus-luzardo-phillies-playoffs-
 `Gil appears to face an uphill battle. "When you look at it, like, is this sustainable?" Yankees pitching coach Matt Blake said. `\
 https://nytimes.com/athletic/6659603/2025/09/25/luis-gil-yankees-playoffs/
 
-**Tennis mailbag: Can Djokovic accept being third best? Is Jovic be the next teen phenom?**\
+**Tennis mailbag: Can Djokovic accept being third best? Is Jovic the next teen phenom?**\
 `This week, The Athletic's tennis writers answered subscribers' mailbag questions on the season so far. Here are their responses`\
 https://nytimes.com/athletic/6646240/2025/09/25/tennis-mailbag-atp-wta-tour-predictions/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6659521/2025/09/25/drew-allar-beau-pribula-comparis
 **Inside the freakish football mind of Caleb Downs: 'The best I’ve ever been around'**\
 `Downs' versatility at safety has dazzled from Day 1 at Alabama and now Ohio State thanks to an endless quest for knowledge.`\
 https://nytimes.com/athletic/6659246/2025/09/25/caleb-downs-ohio-state-college-football-nfl/
-
-**Reds fall to Pirates in 11 innings, keeping them 1 game out of last playoff spot**\
-`“Yeah, that one stung,” said catcher Tyler Stephenson, who hit a game-tying HR in the ninth inning. "It was a heart-breaker."`\
-https://nytimes.com/athletic/6660528/2025/09/25/reds-pirates-result-playoffs-mlb/
 
