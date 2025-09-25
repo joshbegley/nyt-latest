@@ -1,3 +1,11 @@
+**Abbas’s Message on Gaza to the United Nations**\
+`The president of the Palestinian Authority addressed the U.N. General Assembly by video after the U.S. denied him a visa.`\
+https://nytimes.com/2025/09/25/briefing/abbas-gaza-unga-tiktok-trump-palestine.html
+
+**Rory McIlroy, Bryson DeChambeau and the rivalry golf demands**\
+`From Jones vs. Hagen, to Arnie vs. Jack, to Tiger vs. Phil, professional golf, as a product, is better with rivalries.`\
+https://nytimes.com/athletic/6662383/2025/09/25/rory-mcrilroy-bryson-dechambeau-ryder-cup-rivalry-golf/
+
 **Half Naked, Sweating With Strangers, for Art**\
 `No phones, no street clothing. The artist Rashid Johnson has returned to the Russian and Turkish Baths with Amiri Baraka’s incendiary play “Dutchman.”`\
 https://nytimes.com/2025/09/25/style/rashid-johnson-dutchman-bathouse.html

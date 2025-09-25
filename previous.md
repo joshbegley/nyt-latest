@@ -1,3 +1,11 @@
+**Abbas’s Message on Gaza to the United Nations**\
+`The president of the Palestinian Authority addressed the U.N. General Assembly by video after the U.S. denied him a visa.`\
+https://nytimes.com/2025/09/25/briefing/abbas-gaza-unga-tiktok-trump-palestine.html
+
+**Rory McIlroy, Bryson DeChambeau and the rivalry golf demands**\
+`From Jones vs. Hagen, to Arnie vs. Jack, to Tiger vs. Phil, professional golf, as a product, is better with rivalries.`\
+https://nytimes.com/athletic/6662383/2025/09/25/rory-mcrilroy-bryson-dechambeau-ryder-cup-rivalry-golf/
+
 **Half Naked, Sweating With Strangers, for Art**\
 `No phones, no street clothing. The artist Rashid Johnson has returned to the Russian and Turkish Baths with Amiri Baraka’s incendiary play “Dutchman.”`\
 https://nytimes.com/2025/09/25/style/rashid-johnson-dutchman-bathouse.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6662904/2025/09/25/shedeur-sanders-confident-he-sho
 **Trump May Try to Force Drugmakers to Lower Some U.S. Prices**\
 `A notice, deleted and then reposted by the administration, provides a hint that more aggressive pricing policies may be coming.`\
 https://nytimes.com/2025/09/25/health/drug-prices-trump.html
-
-**Justice Department Sues Six States Seeking Private Voter Data**\
-`The Trump administration has been increasingly focused on an effort to bolster President Trump’s unsubstantiated claims of voter fraud. More than 30 states have received requests for information.`\
-https://nytimes.com/2025/09/25/us/politics/doj-lawsuit-voter-data-trump.html
-
-**Have you seen this man? Mariners searching for fan who gave Raleigh 60th home run to kid**\
-`The club is hoping to track down the generous fan who caught Cal Raleigh's milestone home run ball and gave it away`\
-https://nytimes.com/athletic/6662775/2025/09/25/cal-raleigh-60th-home-run-ball/
 
