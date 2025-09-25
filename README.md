@@ -1,3 +1,7 @@
+**Liverpool 'pulled through together'' in first game since Beard's death**\
+`Liverpool defender Jenna Clark said her side produced a performance Beard would be proud of in Wednesday's 5-0 win over Sunderland.`\
+https://nytimes.com/athletic/6660823/2025/09/25/liverpool-women-matt-beard-tribute/
+
 **Kimmel Says There’s Plenty of Room in the ‘Bad Ratings’ Club**\
 `The late night host pointed to President Trump’s approval level after he said on social media to “let Jimmy Kimmel rot in his bad ratings.”`\
 https://nytimes.com/2025/09/25/arts/television/late-night-jimmy-kimmel-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6659664/2025/09/25/mathys-tel-tottenham-hotspur-tho
 **How to watch Bengals at Broncos: Time, TV, streaming**\
 `Find out how to watch the Cincinnati Bengals play the Denver Broncos, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6660795/2025/09/25/bengals-vs-broncos-stream-how-to-watch-sept-29/
-
-**How to watch White Sox at Yankees: Time, TV, streaming for September 25**\
-`Find out how to watch the Chicago White Sox play the New York Yankees, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6660770/2025/09/25/white-sox-vs-yankees-stream-how-to-watch-sept-25/
 
