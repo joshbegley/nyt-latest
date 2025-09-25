@@ -1,3 +1,11 @@
+**Gavi's five-month knee injury came as a shock to doctors and the dressing room**\
+`The 21-year-old midfielder has been ruled out of action for Barcelona, having only come back from a serious injury last October`\
+https://nytimes.com/athletic/6661183/2025/09/25/barcelona-gavi-knee-injury-surgery/
+
+**Tylenol Issues Clarification After White House Resurfaces 2017 Tweet on Usage During Pregnancy**\
+`Tylenol’s parent company, Kenvue, said an eight-year-old social media post was “being taken out of context” as the Trump administration warns pregnant women not to take the drug.`\
+https://nytimes.com/2025/09/25/us/politics/tylenol-tweet-2017-pregnancy-autism.html
+
 **Oklahoma Education Chief Who Promoted Bibles in Schools Will Resign**\
 `Ryan Walters had drawn criticism from liberals and conservatives alike over his push to place Bibles in classrooms and bring more prayer into public schools.`\
 https://nytimes.com/2025/09/25/us/ryan-walters-oklahoma-resign.html

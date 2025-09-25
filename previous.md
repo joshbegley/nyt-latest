@@ -1,9 +1,13 @@
+**Gavi's five-month knee injury came as a shock to doctors and the dressing room**\
+`The 21-year-old midfielder has been ruled out of action for Barcelona, having only come back from a serious injury last October`\
+https://nytimes.com/athletic/6661183/2025/09/25/barcelona-gavi-knee-injury-surgery/
+
 **Oklahoma Education Chief Who Promoted Bibles in Schools Will Resign**\
 `Ryan Walters had drawn criticism from liberals and conservatives alike over his push to place Bibles in classrooms and bring more prayer into public schools.`\
 https://nytimes.com/2025/09/25/us/ryan-walters-oklahoma-resign.html
 
-**Tylenol Distances Itself From a 2017 Tweet on Usage During Pregnancy**\
-`Tylenol’s parent company, Kenvue, defended the pain reliever’s safety after the Trump administration highlighted an old social media post.`\
+**Tylenol Issues Clarification After White House Resurfaces 2017 Tweet on Usage During Pregnancy**\
+`Tylenol’s parent company, Kenvue, said an eight-year-old social media post was “being taken out of context” as the Trump administration warns pregnant women not to take the drug.`\
 https://nytimes.com/2025/09/25/us/politics/tylenol-tweet-2017-pregnancy-autism.html
 
 **MLB playoff watch: There's a new sheriff in the AL West; bracket, clinching scenarios**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/25/learning/what-is-a-day-in-your-life-like.html
 **Auburn's Steven Pearl hiring evokes coach-in-waiting skepticism (after much consultation)**\
 `Pearl, who rose through the ranks, may be the best coach to follow his dad. These selections don't always work and they invite scrutiny.`\
 https://nytimes.com/athletic/6659731/2025/09/25/auburn-steve-pearl-bruce-pearl-coach-in-waiting-basketball/
-
-**Broncos' pass rush is elite again — so why is the defense so average?**\
-`Denver has given up more explosive pass plays to running backs than any team in the NFL this season.`\
-https://nytimes.com/athletic/6658401/2025/09/25/broncos-pass-rush-defense-problems/
 
