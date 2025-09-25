@@ -1,3 +1,7 @@
+**James Trafford's anticlimactic Manchester City homecoming**\
+`Trafford's return to City could have been a fairytale but has begun with him relegated to operating as a back-up to Gianluigi Donnarumma`\
+https://nytimes.com/athletic/6660424/2025/09/25/james-trafford-manchester-city-donnarumma/
+
 **3 Strong Earthquakes Strike Venezuela**\
 `The quakes occurred within about five hours and shook cities in Venezuela and Colombia. There were no immediate reports of casualties.`\
 https://nytimes.com/2025/09/25/world/americas/venezuela-earthquakes-maracaibo-colombia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6658618/2025/09/25/england-spinners-ashes-selection
 **The Rashford rule? Hansi Flick's crusade against lateness (and other vices)**\
 `The German manager has introduced a greater sense of discipline at Barca since his arrival as manager last summer`\
 https://nytimes.com/athletic/6657915/2025/09/25/barcelona-rashford-hansi-flicks-lateness/
-
-**Villa, Emery and three days of turmoil: What are players thinking, how will they react?**\
-`Their manager called them 'lazy' and the sporting director has been replaced. It's been a busy week, and now attention turns to Europe.`\
-https://nytimes.com/athletic/6657269/2025/09/25/aston-villa-unai-emery-and-three-days-of-turmoil-what-are-players-thinking-and-how-will-they-react/
 

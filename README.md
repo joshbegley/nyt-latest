@@ -1,3 +1,23 @@
+**How to watch White Sox at Yankees: Time, TV, streaming for September 25**\
+`Find out how to watch the Chicago White Sox play the New York Yankees, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6660770/2025/09/25/white-sox-vs-yankees-stream-how-to-watch-sept-25/
+
+**How to watch Red Sox at Blue Jays: Time, TV, streaming for September 25**\
+`Find out how to watch the Boston Red Sox play the Toronto Blue Jays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6660766/2025/09/25/red-sox-vs-blue-jays-stream-how-to-watch-sept-25/
+
+**How to watch Mets at Cubs: Time, TV, streaming for September 25**\
+`Find out how to watch the New York Mets play the Chicago Cubs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6660764/2025/09/25/mets-vs-cubs-stream-how-to-watch-sept-25/
+
+**How to watch Twins at Rangers: Time, TV, streaming for September 25**\
+`Find out how to watch the Minnesota Twins play the Texas Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6660759/2025/09/25/twins-vs-rangers-stream-how-to-watch-sept-25/
+
+**Word of the Day: mellifluous**\
+`This word has appeared in 16 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/09/25/learning/word-of-the-day-mellifluous.html
+
 **James Trafford's anticlimactic Manchester City homecoming**\
 `Trafford's return to City could have been a fairytale but has begun with him relegated to operating as a back-up to Gianluigi Donnarumma`\
 https://nytimes.com/athletic/6660424/2025/09/25/james-trafford-manchester-city-donnarumma/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6660589/2025/09/25/lionel-messi-golden-boot-inter-m
 **Map: 6.3-Magnitude Earthquake Strikes Venezuela**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/09/25/world/americas/earthquake-venezuela-tracker.html
-
-**Syria’s President Makes His Debut on the World Stage**\
-`In his first U.N. address, Ahmed al-Shara, a former rebel, highlighted his efforts to rebuild Syria and its institutions.`\
-https://nytimes.com/2025/09/25/briefing/syria-president-un.html
-
-**FPL and the Triple Captain chip: Haaland in Gameweek 6? Or should you look elsewhere?**\
-`The case for triple-captaining the Manchester City striker at home to Burnley, or waiting for another opportunity to use this chip`\
-https://nytimes.com/athletic/6657427/2025/09/25/fantasy-premier-league-triple-captain-haaland-gw6/
-
-**Leeds' Anton Stach: Hitting the right tone with his off-the-wall social media output**\
-`The German has caught the eye since joining Leeds in July: both on the pitch and for his approach to posting online before and after games`\
-https://nytimes.com/athletic/6658149/2025/09/25/anton-stach-social-media-leeds-united/
-
-**England have picked one spinner for the Ashes. Good luck, Shoaib Bashir**\
-`Shoaib Bashir is the only specialist slow bowler in their Ashes squad and he faces a tough task`\
-https://nytimes.com/athletic/6658618/2025/09/25/england-spinners-ashes-selection-bashir/
-
-**The Rashford rule? Hansi Flick's crusade against lateness (and other vices)**\
-`The German manager has introduced a greater sense of discipline at Barca since his arrival as manager last summer`\
-https://nytimes.com/athletic/6657915/2025/09/25/barcelona-rashford-hansi-flicks-lateness/
 

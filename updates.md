@@ -1,3 +1,7 @@
+**James Trafford's anticlimactic Manchester City homecoming**\
+`Trafford's return to City could have been a fairytale but has begun with him relegated to operating as a back-up to Gianluigi Donnarumma`\
+https://nytimes.com/athletic/6660424/2025/09/25/james-trafford-manchester-city-donnarumma/
+
 **3 Strong Earthquakes Strike Venezuela**\
 `The quakes occurred within about five hours and shook cities in Venezuela and Colombia. There were no immediate reports of casualties.`\
 https://nytimes.com/2025/09/25/world/americas/venezuela-earthquakes-maracaibo-colombia.html
