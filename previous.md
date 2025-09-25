@@ -1,3 +1,15 @@
+**Kennedy Says U.S. Rejects Global Health Goals**\
+`The nation’s top federal health official criticized the U.N.’s road map for addressing chronic disease, falsely claiming it promotes abortion and “radical gender ideology.”`\
+https://nytimes.com/2025/09/25/health/rfk-jr-un-chronic-disease.html
+
+**College football Week 5 projected scores: Model predicts every FBS vs. FBS game**\
+`Austin Mock's projection model predicts every Week 5 college football game, including Oregon-Penn State, Alabama-Georgia and LSU-Ole Miss.`\
+https://nytimes.com/athletic/6663041/2025/09/25/college-football-week-5-projected-scores-model-spread-total/
+
+**Why Is Trump Targeting George Soros’s Foundation? Here’s What to Know.**\
+`For decades, Mr. Soros’s philanthropic empire has sought to advance a liberal, democratic agenda around the globe. He is a frequent target of right-wing attacks.`\
+https://nytimes.com/2025/09/25/us/politics/george-soros-foundation-trump.html
+
 **Abbas’s Message on Gaza to the United Nations**\
 `The president of the Palestinian Authority addressed the U.N. General Assembly by video after the U.S. denied him a visa.`\
 https://nytimes.com/2025/09/25/briefing/abbas-gaza-unga-tiktok-trump-palestine.html
@@ -21,20 +33,4 @@ https://nytimes.com/2025/09/25/climate/climate-forward-event-recap.html
 **13-Year-Old Shot in the Head While Walking to School Dies Days Later**\
 `Sanjay Samuel, who had recently started ninth grade, was shot in Queens in what authorities said was gang-related violence. The police are seeking a 16-year-old suspect.`\
 https://nytimes.com/2025/09/25/nyregion/queens-teen-killing.html
-
-**Noelvi Marte's home run robbery helps Reds gain ground in wild-card chase**\
-`Cincinnati moves within a 1/2-game of the Mets for the NL's final playoff spot.`\
-https://nytimes.com/athletic/6662931/2025/09/25/reds-pirates-game-3-takeaways-nl-wild-card-race/
-
-**Elementary-School Teacher Is Accused of Sharing Child Sexual Abuse Images**\
-`Investigators said the teacher had disseminated the material, some of which included children under 12, for at least a year.`\
-https://nytimes.com/2025/09/25/nyregion/queens-teacher-child-sexual-abuse.html
-
-**Shedeur Sanders confident he should be on the field: 'I’m ready to play right now'**\
-`The Browns (1-2) with travel to Detroit to play the Lions (2-1) Sunday at 1 p.m. ET.`\
-https://nytimes.com/athletic/6662904/2025/09/25/shedeur-sanders-confident-he-should-be-on-the-field-im-ready-to-play-right-now/
-
-**Trump May Try to Force Drugmakers to Lower Some U.S. Prices**\
-`A notice, deleted and then reposted by the administration, provides a hint that more aggressive pricing policies may be coming.`\
-https://nytimes.com/2025/09/25/health/drug-prices-trump.html
 
