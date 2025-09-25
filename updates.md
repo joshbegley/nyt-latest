@@ -1,3 +1,7 @@
+**Off-Duty N.Y.P.D. Officer Shoots Man Who Tried to Rob Her at Penn Station**\
+`The man attempted to rob the police officer and another off-duty officer in plain clothes. The man was in stable condition after being struck in the arm.`\
+https://nytimes.com/2025/09/24/nyregion/penn-station-nypd-officer-robbery.html
+
 **White House Eyes New Round of Mass Layoffs if Government Shuts Down**\
 `The president’s top aides told agencies to prepare for potential firings if Congress cannot extend funding before the end of Sept. 30.`\
 https://nytimes.com/2025/09/24/us/politics/trump-shutdown-layoffs.html
