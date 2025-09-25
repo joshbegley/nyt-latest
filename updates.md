@@ -1,3 +1,7 @@
+**Dodgers clinch NL West for 12th time in 13 seasons: 'We have an opportunity to make history'**\
+`It didn't happen as easily as most observers predicted it would before the season, but the Dodgers are division champions once again.`\
+https://nytimes.com/athletic/6663006/2025/09/25/dodgers-clinch-national-league-west/
+
 **Trump Clears Way for American-Owned TikTok Valued at $14 Billion**\
 `The administration has been working for months to find non-Chinese investors for a U.S. version of the app.`\
 https://nytimes.com/2025/09/25/technology/trump-tiktok-ban-deal.html

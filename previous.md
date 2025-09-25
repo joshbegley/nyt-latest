@@ -1,3 +1,7 @@
+**Dodgers clinch NL West for 12th time in 13 seasons: 'We have an opportunity to make history'**\
+`It didn't happen as easily as most observers predicted it would before the season, but the Dodgers are division champions once again.`\
+https://nytimes.com/athletic/6663006/2025/09/25/dodgers-clinch-national-league-west/
+
 **Lisa Phillips, Director of New Museum, to Retire**\
 `Her 26-year tenure transformed a curatorial experiment into a global institution. She will depart in April, after a building expansion doubling the museum’s space.`\
 https://nytimes.com/2025/09/25/arts/design/lisa-phillips-director-of-new-museum-to-retire.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/25/world/americas/canada-postal-service-door-mail-de
 **Savinho close to signing new Man City contract until 2031**\
 `The 21-year-old was linked with a move to Tottenham Hotspur in the summer transfer window.`\
 https://nytimes.com/athletic/6663030/2025/09/25/savinho-man-city-contract/
-
-**How to make water conservation a habit**\
-`Small, everyday actions to minimize water use add up the more people do them.`\
-https://nytimes.com/2025/09/25/headway/how-to-make-water-conservation-a-habit.html
 

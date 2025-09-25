@@ -1,3 +1,7 @@
+**Phillies' Trea Turner ready for October, even if he opts against weekend return**\
+`Currently, Turner is taking at-bats against minor-league pitchers. He's running and doing agility drills. He is also taking ground balls.`\
+https://nytimes.com/athletic/6662997/2025/09/25/philadelphia-phillies-trea-turner-october-return/
+
 **Dodgers clinch NL West for 12th time in 13 seasons: 'We have an opportunity to make history'**\
 `It didn't happen as easily as most observers predicted it would before the season, but the Dodgers are division champions once again.`\
 https://nytimes.com/athletic/6663006/2025/09/25/dodgers-clinch-national-league-west/
@@ -22,8 +26,8 @@ https://nytimes.com/2025/09/25/briefing/justice-department-george-soros-us-argen
 `Universities have an ideology problem, at least according to the Trump administration, and May Mailman is here to fix it.`\
 https://nytimes.com/video/opinion/100000010414442/trumps-war-on-hotbeds-of-radicalism.html
 
-**911 Service Is Disrupted Across Louisiana and Mississippi**\
-`Damage to fiber optic lines operated by AT&T was to blame for the outage, the authorities said, but foul play was not suspected.`\
+**911 Service Is Restored in Louisiana and Mississippi**\
+`Damage to fiber optic lines operated by AT&T was to blame for the statewide outages, which lasted more than two hours on Thursday, officials said.`\
 https://nytimes.com/2025/09/25/us/mississippi-louisiana-outages-911-emergency.html
 
 **Trump Clears Way for American-Owned TikTok Valued at $14 Billion**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/25/technology/trump-tiktok-ban-deal.html
 **Canada Orders Postal Service to End Door-to-Door Mail Delivery**\
 `The government’s previous attempts at postal service cuts were politically unpopular but Canada Post’s dire financial situation has expedited them.`\
 https://nytimes.com/2025/09/25/world/americas/canada-postal-service-door-mail-delivery.html
-
-**Savinho close to signing new Man City contract until 2031**\
-`The 21-year-old was linked with a move to Tottenham Hotspur in the summer transfer window.`\
-https://nytimes.com/athletic/6663030/2025/09/25/savinho-man-city-contract/
 
