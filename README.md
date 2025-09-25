@@ -1,3 +1,7 @@
+**Rosenthal: 15 teams that could change their manager or head of baseball operations this offseason**\
+`We've separated the teams into four categories, based on how things currently appear heading into the final four days of the regular season.`\
+https://nytimes.com/athletic/6660012/2025/09/25/mlb-manager-front-office-changes/
+
 **Even Cal Raleigh's peers can't believe 60 HR season: 'What he’s doing is extremely ridiculous'**\
 `Raleigh's name is etched in history. He won’t indulge in the spectacle of his MVP-caliber season, so let's allow others to campaign for him.`\
 https://nytimes.com/athletic/6660549/2025/09/25/cal-raleigh-60-home-run-season-catcher-mariners/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/25/nyregion/lee-zeldin-super-pac.html
 **Ticketmaster U.K. Agrees to Changes After Outrage Over Oasis Sales**\
 `The company agreed to give fans more information during the ticket-buying process to avoid unexpected prices.`\
 https://nytimes.com/2025/09/25/arts/music/ticketmaster-oasis-ticket-prices.html
-
-**Over-analysing the 2026 World Cup mascots Zayu, Maple and Clutch**\
-`An eagle with a brilliantly funny name, a goalkeeping moose and a pretty cool jaguar will see us through the tournament`\
-https://nytimes.com/athletic/6661202/2025/09/25/world-cup-mascots-us-canada-mexico/
 

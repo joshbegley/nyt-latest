@@ -1,3 +1,15 @@
+**Even Cal Raleigh's peers can't believe 60 HR season: 'What he’s doing is extremely ridiculous'**\
+`Raleigh's name is etched in history. He won’t indulge in the spectacle of his MVP-caliber season, so let's allow others to campaign for him.`\
+https://nytimes.com/athletic/6660549/2025/09/25/cal-raleigh-60-home-run-season-catcher-mariners/
+
+**Review: A Tenor With an Affinity for French Poetry and Rugby**\
+`Pene Pati made his New York recital debut at the Armory with a program that showcased his voluptuous voice and revealed a chamber musician’s sensitivity to nuance.`\
+https://nytimes.com/2025/09/25/arts/music/review-pene-pati-armory.html
+
+**Over-analysing the 2026 World Cup mascots Zayu, Maple and Clutch**\
+`An eagle with a brilliantly funny name, a goalkeeping moose and a pretty cool jaguar will see us through the tournament`\
+https://nytimes.com/athletic/6661202/2025/09/25/world-cup-mascots-us-canada-mexico/
+
 **Maxine Clair, Writer Who Came to Her Craft in Middle Age, Dies at 86**\
 `She published her first book of poems at 49 and her first work of prose, the acclaimed novel “Rattlebone,” six years later.`\
 https://nytimes.com/2025/09/25/books/maxine-clair-dead.html
