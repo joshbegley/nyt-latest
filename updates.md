@@ -1,3 +1,15 @@
+**He’s the Next Big Thing Out of the U.K. Underground**\
+`The New York Times critic Jon Caramanica is in the driver’s seat explaining why you need to know the rapper Fakemink.`\
+https://nytimes.com/video/podcasts/100000010420238/hes-the-next-big-thing-out-of-the-uk-underground.html
+
+**Amazon to Pay $2.5 Billion to Settle Claims It Tricked Prime Customers**\
+`The settlement is one of the largest in the history of the Federal Trade Commission, which sued Amazon two years ago.`\
+https://nytimes.com/2025/09/25/technology/amazon-ftc-settlement.html
+
+**Sara Jane Moore, Would-Be Assassin of President Ford, Dies at 95**\
+`A mother of four on the fringes of radical leftist movements, she fired at the president outside a San Francisco hotel in 1975. She had hoped to spark a revolution, she said.`\
+https://nytimes.com/2025/09/25/us/sara-jane-moore-dead.html
+
 **Wyden Presses JPMorgan Chief Dimon for Answers on Jeffrey Epstein**\
 `Senator Ron Wyden, Democrat of Oregon, sent a list of questions to Jamie Dimon, head of the country’s biggest bank, about its financial relationships with Mr. Epstein, the convicted sex offender.`\
 https://nytimes.com/2025/09/25/us/politics/jpmorgan-jeffrey-epstein-dimon-wyden.html
