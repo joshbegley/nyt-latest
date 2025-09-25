@@ -1,3 +1,11 @@
+**Journalist Held by ICE Faces ‘Imminent’ Deportation, His Lawyers Say**\
+`The journalist, Mario Guevara, has been in Immigration and Customs Enforcement custody since June, when he was arrested while covering a “No Kings” protest outside Atlanta.`\
+https://nytimes.com/2025/09/24/us/politics/mario-guevara-journalist-deportation.html
+
+**Padres' Ramón Laureano (finger) to miss at least first round of postseason**\
+`The Padres (87-72) technically remain in contention for a National League West title and the league's top wild-card berth.`\
+https://nytimes.com/athletic/6660110/2025/09/24/san-diego-padres-ramon-laureano-finger-injury/
+
 **Phillies bash their way to first-round playoff bye, homefield advantage in NLDS**\
 `With an 11-1 win over the Marlins and a franchise-record eight homers, the Phillies clinched a first-round bye for the second straight year.`\
 https://nytimes.com/athletic/6655932/2025/09/24/phillies-playoff-bye-nlds-homefield-advantage/
