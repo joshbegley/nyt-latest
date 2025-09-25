@@ -1,3 +1,7 @@
+**President Trump suggests moving World Cup games from cities he deems unsafe**\
+`“If I think it’s not safe, we’re going to move it out of that city,” Trump said.`\
+https://nytimes.com/athletic/6663331/2025/09/25/president-trump-world-cup-games-cities-unsafe/
+
 **Prosecutor Believes Shooting at ABC Affiliate Was Politically Motivated**\
 `The suspect in the shooting in Sacramento, a retired California lobbyist, was ordered to remain in custody without bail. His lawyer questioned why federal lawyers were involved.`\
 https://nytimes.com/2025/09/25/us/abc-affiliate-shooting-california.html

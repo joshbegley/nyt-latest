@@ -1,3 +1,7 @@
+**President Trump suggests moving World Cup games from cities he deems unsafe**\
+`“If I think it’s not safe, we’re going to move it out of that city,” Trump said.`\
+https://nytimes.com/athletic/6663331/2025/09/25/president-trump-world-cup-games-cities-unsafe/
+
 **Prosecutor Believes Shooting at ABC Affiliate Was Politically Motivated**\
 `The suspect in the shooting in Sacramento, a retired California lobbyist, was ordered to remain in custody without bail. His lawyer questioned why federal lawyers were involved.`\
 https://nytimes.com/2025/09/25/us/abc-affiliate-shooting-california.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010414443/trumps-cultural-push-begins-wi
 **Chicago to Pay $90 Million to Settle Cases Tied to an Ex-Police Sergeant’s Team**\
 `The agreement to resolve scores of lawsuits was a significant blow to a city facing budget challenges, but not as pricey as some officials had feared.`\
 https://nytimes.com/2025/09/25/us/chicago-police-settlement-ronald-watts.html
-
-**The Justice Dept. Is Taking Aim at Trump’s Foes**\
-`Also, Trump waded into bailout politics by offering a lifeline to Argentina. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2025/09/25/briefing/justice-department-george-soros-us-argentina-bailout.html
 
