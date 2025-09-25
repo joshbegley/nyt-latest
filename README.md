@@ -1,3 +1,7 @@
+**Immigrant Rights Groups Condemn Violent Rhetoric Against Officers, and Immigrants**\
+`In a tense national debate, inflammatory language is being singled out.`\
+https://nytimes.com/2025/09/24/us/ice-dallas-shooting-reaction-response.html
+
 **How to watch Jets at Dolphins: Time, TV, streaming**\
 `Find out how to watch the New York Jets play the Miami Dolphins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6660070/2025/09/24/jets-vs-dolphins-stream-how-to-watch-sept-29/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6659857/2025/09/24/oilers-vasily-podkolzin-absence/
 **U.S. Attorney Races to Present Case Against James Comey**\
 `It remains to be seen whether a career prosecutor would be willing to present a case to a grand jury or whether jurors would bring an indictment.`\
 https://nytimes.com/2025/09/24/us/politics/james-comey-indictment.html
-
-**Federal Judge Rejects Administration Efforts to Tie State Disaster Funds to Immigration Cooperation**\
-`The ruling came in a suit brought by a coalition of states with sanctuary laws and other policies barring police from helping federal immigration officers.`\
-https://nytimes.com/2025/09/24/us/politics/trump-disaster-aid-immigration.html
 

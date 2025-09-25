@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6656029/2025/09/24/aaron-judge-yankees-50-home-run-
 `The 24-year-old left winger signed a three-year, $2.95 million AAV deal with Edmonton on Tuesday.`\
 https://nytimes.com/athletic/6659857/2025/09/24/oilers-vasily-podkolzin-absence/
 
-**U.S. Attorney Scrambles to Present Case Against James Comey**\
+**U.S. Attorney Races to Present Case Against James Comey**\
 `It remains to be seen whether a career prosecutor would be willing to present a case to a grand jury or whether jurors would bring an indictment.`\
 https://nytimes.com/2025/09/24/us/politics/james-comey-indictment.html
 
