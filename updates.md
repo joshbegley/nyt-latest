@@ -1,3 +1,23 @@
+**Tylenol Distances Itself From a 2017 Tweet on Usage During Pregnancy**\
+`Tylenol’s parent company, Kenvue, defended the pain reliever’s safety after the Trump administration highlighted an old social media post.`\
+https://nytimes.com/2025/09/25/us/politics/tylenol-tweet-2017-pregnancy-autism.html
+
+**MLB playoff watch: There's a new sheriff in the AL West; bracket, clinching scenarios**\
+`Plus, breaking down the AL East race as the Yankees and Blue Jays are tied atop the division.`\
+https://nytimes.com/athletic/6660629/2025/09/25/mlb-playoff-watch-mariners-al-west-clinch/
+
+**Starbucks to Cut Jobs, Close Stores and Take $1 Billion Hit in Revamp Effort**\
+`The coffee chain said it would shutter some underperforming U.S. stores and eliminate 900 corporate jobs as part of a plan to build “a better, stronger and more resilient Starbucks.”`\
+https://nytimes.com/2025/09/25/business/starbucks-job-cuts.html
+
+**Astros hoped their ace, Hunter Brown, would stop the spiral. He couldn't**\
+`The Astros needed a win. But their ace faltered and their lineup once again provided little to no run support.`\
+https://nytimes.com/athletic/6660753/2025/09/25/hunter-brown-astros-mlb-playoffs/
+
+**Auburn's Steven Pearl hiring evokes coach-in-waiting skepticism (after much consultation)**\
+`Pearl, who rose through the ranks, may be the best coach to follow his dad. These selections don't always work and they invite scrutiny.`\
+https://nytimes.com/athletic/6659731/2025/09/25/auburn-steve-pearl-bruce-pearl-coach-in-waiting-basketball/
+
 **The Pulse: The collapse is nearly complete**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6658416/2025/09/25/guardians-tigers-cal-raleigh-the-pulse/
