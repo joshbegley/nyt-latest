@@ -1,3 +1,11 @@
+**Over-analysing the 2026 World Cup mascots  Zayu, Maple and Clutch**\
+`An eagle with a brilliantly funny name, a goalkeeping moose and a pretty cool jaguar will see us through the tournament`\
+https://nytimes.com/athletic/6661202/2025/09/25/world-cup-mascots-us-canada-mexico/
+
+**China Bought $12.6 Billion in U.S. Soybeans Last Year. Now, It’s $0.**\
+`China stopped buying soybeans from America in May, placing a retaliatory tariff on the bumper crop after President Trump increased levies on goods from China.`\
+https://nytimes.com/2025/09/25/business/china-soybean-sales-farmers.html
+
 **He’s the Next Big Thing Out of the U.K. Underground**\
 `The New York Times critic Jon Caramanica is in the driver’s seat explaining why you need to know the rapper Fakemink.`\
 https://nytimes.com/video/podcasts/100000010420238/hes-the-next-big-thing-out-of-the-uk-underground.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/25/arts/design/kerry-james-marshall-royal-academy-lo
 **Report Says Museums Post Less Online About Possibly Nazi-Looted Art**\
 `Researchers for the World Jewish Restitution Organization said families whose art was stolen or disappeared in the Holocaust now face a harder time tracking works on the internet.`\
 https://nytimes.com/2025/09/25/arts/design/museums-nazi-looted-art-report.html
-
-**Science Practice | A Study on Coolness**\
-`What makes someone cool? A new study offers clues.`\
-https://nytimes.com/2025/09/25/learning/science-practice-a-study-on-coolness.html
-
-**Israel Attacks Yemeni Capital**\
-`The Israeli military said it was targeting sites linked to the Houthi militia. The airstrikes came a day after the Houthis launched a drone at the Israeli city of Eilat, wounding 20 people.`\
-https://nytimes.com/2025/09/25/world/middleeast/israel-yemen-houthis.html
 
