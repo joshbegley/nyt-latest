@@ -1,3 +1,7 @@
+**The New York Times in Print for Thursday, Sep. 25, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/25/todays-new-york-times
+
 **Lionel Messi takes lead in Golden Boot race as Inter Miami thrashes NYCFC**\
 `Messi and Inter Miami clinched their spot in the MLS playoffs thanks to his late-game heroics.`\
 https://nytimes.com/athletic/6660589/2025/09/25/lionel-messi-golden-boot-inter-miami-playoffs/
