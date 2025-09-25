@@ -1,3 +1,11 @@
+**Times Reporters Answer Your Vaccine Questions**\
+`We try to parse the chaotic vaccine landscape in the United States.`\
+https://nytimes.com/2025/09/25/us/times-reporters-answer-your-vaccine-questions.html
+
+**Tennis mailbag: Can Djokovic accept being third best? Is Jovic the next teen phenom?**\
+`This week, The Athletic's tennis writers answered subscribers' mailbag questions on the season so far. Here are their responses`\
+https://nytimes.com/athletic/6646240/2025/09/25/tennis-mailbag-atp-wta-tour-predictions/
+
 **How to watch the 2025 Ryder Cup: Schedule, streaming, weather for U.S.-Europe clash**\
 `Europe has controlled the modern rivalry, but the tournament is back on American soil. The U.S. has won its last two Ryder Cups as the host.`\
 https://nytimes.com/athletic/6659483/2025/09/25/ryder-cup-2025-weather-schedule-how-to-watch/
