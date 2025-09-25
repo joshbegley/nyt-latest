@@ -1,3 +1,15 @@
+**Attack on Dallas ICE Was ‘Very Definition of Terrorism,’ Prosecutor Says**\
+`Federal officials said the gunman intended to shoot immigration agents, calling it a “tragic irony” that three detainees were struck, one fatally.`\
+https://nytimes.com/2025/09/25/us/politics/dallas-ice-shooting.html
+
+**Israel Launches Deadly Strikes on Yemeni Capital**\
+`Israel’s military bombed several sites across the Yemeni capital, a day after Yemen’s Houthi militia launched a drone attack against Israel that injured 20 people.`\
+https://nytimes.com/video/world/middleeast/100000010421316/israel-drone-strike-yemen-houthis.html
+
+**Georgia Inmate Who Sent Bombs to U.S. Buildings Gets 80-Year Sentence**\
+`The bombs were mailed from a state prison to the Department of Justice and a federal court. The inmate tried to exchange information on the plot for accommodations, prosecutors said in court filings.`\
+https://nytimes.com/2025/09/25/us/georgia-inmate-bombs-mail-sentencing.html
+
 **Palestinian Authority Ready to Take Responsibility for Gaza, Abbas Says**\
 `Mahmoud Abbas, the president of the Palestinian Authority, said Hamas will not govern Gaza and called on the group to lay down its arms.`\
 https://nytimes.com/video/world/100000010421722/abbas-palestine-unga-speech.html
@@ -21,16 +33,4 @@ https://nytimes.com/2025/09/25/books/review/new-recommended-books.html
 **Climate Change Could Pose a National Security Threat**\
 `At the Climate Forward live event, Jake Sullivan, former national security adviser under President Biden, said the Trump administration’s approach to climate posed serious risks to U.S. military operations and interests.`\
 https://nytimes.com/2025/09/25/climate/climate-forward-jake-sullivan.html
-
-**Climate and the A.I. Revolution**\
-`Will the boom in A.I. drive up greenhouse gas emissions? At the Climate Forward live event, the chief sustainability officers at Google and Microsoft discuss their companies’ net-zero ambitions.`\
-https://nytimes.com/2025/09/25/climate/climateforward-ai-revolution.html
-
-**What’s Going On in This Picture? | Sept. 29, 2025**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2025/09/25/learning/whats-going-on-in-this-picture-sept-29-2025.html
-
-**Until Saturday: Dangerous weekend for ranked teams**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/6662600/2025/09/25/college-football-schedule-week-5-until-saturday/
 

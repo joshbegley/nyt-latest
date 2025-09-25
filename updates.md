@@ -1,3 +1,7 @@
+**The Rapper 6ix9ine Is Ordered Into Home Detention After Violence at Mall**\
+`The musician, whose real name is Daniel Hernandez, has had serial entanglements with the law. A prosecutor said that he had concerns about Mr. Hernandez’s impulse control.`\
+https://nytimes.com/2025/09/25/nyregion/rapper-tekashi-6ix9ine-home-detention.html
+
 **Palestinian Authority Ready to Take Responsibility for Gaza, Abbas Says**\
 `Mahmoud Abbas, the president of the Palestinian Authority, said Hamas will not govern Gaza and called on the group to lay down its arms.`\
 https://nytimes.com/video/world/100000010421722/abbas-palestine-unga-speech.html
