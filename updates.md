@@ -1,3 +1,7 @@
+**Newcastle 4 Bradford City 1: Fine outings for Osula and Ramsdale as Howe shuffles his pack successfully**\
+`Chris Waugh analyses the key talking points from Newcastle's win over League One Bradford City in the Carabao Cup third round`\
+https://nytimes.com/athletic/6640141/2025/09/25/newcastle-carabao-cup-osula-ramsdale-howe/
+
 **Nottingham Forest fans in Seville and a European night 30 years in the making**\
 `Forest fans travelled en masse to southern Spain savour their side's return to European football`\
 https://nytimes.com/athletic/6659488/2025/09/25/nottingham-forest-fans-europa-league-betis/

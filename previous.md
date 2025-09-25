@@ -35,6 +35,6 @@ https://nytimes.com/2025/09/25/crosswords/spelling-bee-forum.html
 https://nytimes.com/2025/09/25/nyregion/mamdani-south-asian-voters.html
 
 **Newcastle 4 Bradford City 1: Fine outings for Osula and Ramsdale as Howe shuffles his pack successfully**\
-`Chris Waugh analyses the key talking points from Newcastle's 4-1 win over Bradford City in the Carabao Cup`\
+`Chris Waugh analyses the key talking points from Newcastle's win over League One Bradford City in the Carabao Cup third round`\
 https://nytimes.com/athletic/6640141/2025/09/25/newcastle-carabao-cup-osula-ramsdale-howe/
 
