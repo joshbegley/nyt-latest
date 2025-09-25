@@ -1,3 +1,15 @@
+**Phillies bash their way to first-round playoff bye, homefield advantage in NLDS**\
+`With an 11-1 win over the Marlins and a franchise-record eight homers, the Phillies clinched a first-round bye for the second straight year.`\
+https://nytimes.com/athletic/6655932/2025/09/24/phillies-playoff-bye-nlds-homefield-advantage/
+
+**Astros' Luis Garcia to miss 2026 season, heightening need for rotation help**\
+`The right-hander, who has dealt with injury woes since May 2023, will likely be non-tendered in the offseason.`\
+https://nytimes.com/athletic/6660179/2025/09/24/astros-luis-garcia-to-miss-2026-season-heightening-astros/
+
+**Suns owner Mat Ishbia embraces team's identity shift, defends company culture**\
+`The winning has taken longer than expected under owner Ishbia, but the Suns’ workplace culture also is under fire as a new season begins.`\
+https://nytimes.com/athletic/6659543/2025/09/24/phoenix-suns-mat-ishbia-media-day-culture-lawsuits/
+
 **Intel Said to Seek Investment From Apple**\
 `The Silicon Valley chipmaker has held talks with Apple about bolstering its finances as it looks to turn around its ailing business.`\
 https://nytimes.com/2025/09/24/technology/intel-apple-talks-investment.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6660033/2025/09/24/rays-vs-orioles-stream-how-to-wa
 **How to watch Tigers at Guardians: Time, TV, streaming for September 25**\
 `Find out how to watch the Detroit Tigers play the Cleveland Guardians, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6660029/2025/09/24/tigers-vs-guardians-stream-how-to-watch-sept-25/
-
-**With His Pivot on Ukraine, Trump May Be Washing His Hands of the War**\
-`President Trump has shown dwindling interest in mediating a peace accord, joining European “security guarantees” for Ukraine or providing aid and intelligence to the Ukrainians.`\
-https://nytimes.com/2025/09/24/us/politics/trump-ukraine.html
-
-**How to watch Marlins at Phillies: Time, TV, streaming for September 25**\
-`Find out how to watch the Miami Marlins play the Philadelphia Phillies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6660022/2025/09/24/marlins-vs-phillies-stream-how-to-watch-sept-25/
-
-**Yankees' Aaron Judge becomes fourth MLB player to have four 50-homer seasons**\
-`Judge joined Babe Ruth, Mark McGwire and Sammy Sosa as the only hitters in history with four 50-home run seasons. `\
-https://nytimes.com/athletic/6656029/2025/09/24/aaron-judge-yankees-50-home-run-season/
 
