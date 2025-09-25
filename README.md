@@ -1,3 +1,27 @@
+**How to watch Pirates at Reds: Time, TV, streaming for September 25**\
+`Find out how to watch the Pittsburgh Pirates play the Cincinnati Reds, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6660040/2025/09/24/pirates-vs-reds-stream-how-to-watch-sept-25/
+
+**How to watch Rays at Orioles: Time, TV, streaming for September 25**\
+`Find out how to watch the Tampa Bay Rays play the Baltimore Orioles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6660033/2025/09/24/rays-vs-orioles-stream-how-to-watch-sept-25/
+
+**How to watch Tigers at Guardians: Time, TV, streaming for September 25**\
+`Find out how to watch the Detroit Tigers play the Cleveland Guardians, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6660029/2025/09/24/tigers-vs-guardians-stream-how-to-watch-sept-25/
+
+**With His Pivot on Ukraine, Trump May Be Washing His Hands of the War**\
+`President Trump has shown dwindling interest in mediating a peace accord, joining European “security guarantees” for Ukraine or providing aid and intelligence to the Ukrainians.`\
+https://nytimes.com/2025/09/24/us/politics/trump-ukraine.html
+
+**How to watch Marlins at Phillies: Time, TV, streaming for September 25**\
+`Find out how to watch the Miami Marlins play the Philadelphia Phillies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6660022/2025/09/24/marlins-vs-phillies-stream-how-to-watch-sept-25/
+
+**Yankees' Aaron Judge becomes fourth MLB player to have four 50-homer seasons**\
+`Judge joined Babe Ruth, Mark McGwire and Sammy Sosa as the only hitters in history with four 50-home run seasons. `\
+https://nytimes.com/athletic/6656029/2025/09/24/aaron-judge-yankees-50-home-run-season/
+
 **Oilers' Vasily Podkolzin to take leave of absence**\
 `The 24-year-old left winger signed a three-year, $2.95 million AAV deal with Edmonton on Tuesday.`\
 https://nytimes.com/athletic/6659857/2025/09/24/oilers-vasily-podkolzin-absence/
@@ -13,28 +37,4 @@ https://nytimes.com/2025/09/24/us/politics/trump-disaster-aid-immigration.html
 **Kuminga-Warriors standoff is nearing an end. The outcome remains unclear**\
 `The 22-year-old has multiple contract options with Golden State, and a sign-and-trade with Sacramento also remains in play.`\
 https://nytimes.com/athletic/6659690/2025/09/24/jonathan-kuminga-warriors-standoff-kings/
-
-**Inquiry Into Ex-C.I.A. Chief John Brennan Stalls After Purge by Gabbard**\
-`The lack of an indictment so far against Mr. Brennan, in the Eastern District of Pennsylvania, is the most recent setback for such prosecutions.`\
-https://nytimes.com/2025/09/24/us/politics/john-brennan-tulsi-gabbard-cia-trump.html
-
-**After Dallas Shooting, a Rush to Score Political Points Before the Facts Are In**\
-`In the aftermath of a violent episode, political figures quickly engaged with one another on social media.`\
-https://nytimes.com/2025/09/24/style/jd-vance-jon-favreau-dallas-shooting.html
-
-**Gunman Opens Fire on ICE Office in Dallas, Killing a Detainee**\
-`The shooter, who killed himself, also wounded two detainees in an attack that raised new fears about political violence in the United States.`\
-https://nytimes.com/2025/09/24/us/dallas-ice-shooting.html
-
-**The Politics of ‘Tough It Out’**\
-`His advice on Tylenol has steered President Trump into the politics of pregnancy.`\
-https://nytimes.com/2025/09/24/us/politics/trump-tylenol-pregnancy-women.html
-
-**Dallas Shooting Comes Amid Growing Tensions Over Immigrant Detentions**\
-`The Trump administration has blamed the “demonization” of immigration enforcement officers for recent episodes.`\
-https://nytimes.com/2025/09/24/us/politics/ice-shooting-dallas-tensions.html
-
-**Kamala Harris Reinforces Support for Zohran Mamdani in Phone Call**\
-`The conversation came two days after Ms. Harris, the former vice president, gave a muted endorsement to Mr. Mamdani’s bid for mayor of New York City.`\
-https://nytimes.com/2025/09/24/nyregion/kamala-harris-mamdani-phone-call.html
 
