@@ -1,3 +1,15 @@
+**Manhattan Theater Club Names First New Artistic Director in 53 Years**\
+`Nicki Hunter will succeed Lynne Meadow in December, taking charge of a major nonprofit that stages shows on and off Broadway.`\
+https://nytimes.com/2025/09/25/theater/manhattan-theater-club-nicki-hunter.html
+
+**Meredith Marks Wants You to Disengage**\
+`The “Real Housewives of Salt Lake City” star is back for Season 6 and has a new party game for her fans aimed at building relationships, rather than drama.`\
+https://nytimes.com/2025/09/25/style/meredith-marks-rhoslc-rumors-nastiness-game.html
+
+**Democrats Dig In After White House Threat of Mass Federal Layoffs**\
+`Party leaders said the administration’s plan to fire government workers in the event of a shutdown would not prompt them to drop their demands in their spending standoff with the G.O.P.`\
+https://nytimes.com/2025/09/25/us/politics/democrats-government-shutdown-layoffs-threats.html
+
 **Observations from Hurricanes training camp: How have Nikishin and Ehlers looked?**\
 `There’s understandably a lot of excitement surrounding Nikishin as he moves to full-time NHLer.`\
 https://nytimes.com/athletic/6660718/2025/09/25/hurricanes-nikishin-ehlers-camp/
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/europe/100000010420654/sarkozy-libya-money-fundi
 **The Windup: Big Dumper's big number**\
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/6661740/2025/09/25/cal-raleigh-mlb-playoffs-the-windup/
-
-**Liverpool issue more than 1,000 lifetime bans in crack down on ticket touting**\
-`The ban total has risen significantly from the 75 handed out in the 2023-24 season.`\
-https://nytimes.com/athletic/6661660/2025/09/25/liverpool-ticket-touts-ban/
-
-**Carlos Alcaraz 'scared' after injuring ankle but wins Japan Open first-round match**\
-`Carlos Alcaraz looked visibly distressed after injuring his ankle at the Japan Open`\
-https://nytimes.com/athletic/6661675/2025/09/25/carlos-alcaraz-injury-japan-open-win/
-
-**Interior Design’s New Stone Age**\
-`What does it take for one of the world’s oldest materials to become the face of luxury design? Discover the art and science of reinventing stone.`\
-https://nytimes.com/paidpost/cosentino/interior-designs-new-stone-age.html
 
