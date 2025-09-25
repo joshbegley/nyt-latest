@@ -1,3 +1,7 @@
+**Were You Assigned Full Books to Read in High School English? Tell Us.**\
+`We’re asking because the reading scores of American 12th graders are at record lows.`\
+https://nytimes.com/2025/09/24/us/education-books-callout.html
+
 **Skaggs-Angels trial: Key details and developments from the first week**\
 `The two sides spent the last two days arguing important motions in front of Orange County Superior Court judge H. Shaina Colover.`\
 https://nytimes.com/athletic/6660463/2025/09/24/los-angeles-angels-tyler-skaggs-trial-week-1-recap/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/24/movies/henry-jaglom-dead.html
 **Journalist Held by ICE Faces ‘Imminent’ Deportation, His Lawyers Say**\
 `The journalist, Mario Guevara, has been in Immigration and Customs Enforcement custody since June, when he was arrested while covering a “No Kings” protest outside Atlanta.`\
 https://nytimes.com/2025/09/24/us/politics/mario-guevara-journalist-deportation.html
-
-**Phillies bash their way to first-round playoff bye, homefield advantage in NLDS**\
-`With an 11-1 win over the Marlins and a franchise-record eight homers, the Phillies clinched a first-round bye for the second straight year.`\
-https://nytimes.com/athletic/6655932/2025/09/24/phillies-playoff-bye-nlds-homefield-advantage/
 
