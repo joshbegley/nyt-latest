@@ -1,3 +1,11 @@
+**Amazon to Pay $2.5 Billion to Settle Claims It Tricked Prime Customers**\
+`The settlement is one of the largest in the history of the Federal Trade Commission, which sued Amazon two years ago.`\
+https://nytimes.com/2025/09/25/technology/amazon-ftc-settlement.html
+
+**Sara Jane Moore, Would-Be Assassin of President Ford, Dies at 95**\
+`A mother of four on the fringes of radical leftist movements, she fired at the president outside a San Francisco hotel in 1975. She had hoped to spark a revolution, she said.`\
+https://nytimes.com/2025/09/25/us/sara-jane-moore-dead.html
+
 **Wyden Presses JPMorgan Chief Dimon for Answers on Jeffrey Epstein**\
 `Senator Ron Wyden, Democrat of Oregon, sent a list of questions to Jamie Dimon, head of the country’s biggest bank, about its financial relationships with Mr. Epstein, the convicted sex offender.`\
 https://nytimes.com/2025/09/25/us/politics/jpmorgan-jeffrey-epstein-dimon-wyden.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/25/world/middleeast/israel-yemen-houthis.html
 **Manhattan Theater Club Names First New Artistic Director in 53 Years**\
 `Nicki Hunter will succeed Lynne Meadow in December, taking charge of a major nonprofit that stages shows on and off Broadway.`\
 https://nytimes.com/2025/09/25/theater/manhattan-theater-club-nicki-hunter.html
-
-**Meredith Marks Wants You to Disengage**\
-`The “Real Housewives of Salt Lake City” star is back for Season 6 and has a new party game for her fans aimed at building relationships, rather than drama.`\
-https://nytimes.com/2025/09/25/style/meredith-marks-rhoslc-rumors-nastiness-game.html
-
-**Democrats Dig In After White House Threat of Mass Federal Layoffs**\
-`Party leaders said the administration’s plan to fire government workers in the event of a shutdown would not prompt them to drop their demands in their spending standoff with the G.O.P.`\
-https://nytimes.com/2025/09/25/us/politics/democrats-government-shutdown-layoffs-threats.html
 

@@ -1,3 +1,7 @@
+**Wyden Presses JPMorgan Chief Dimon for Answers on Jeffrey Epstein**\
+`Senator Ron Wyden, Democrat of Oregon, sent a list of questions to Jamie Dimon, head of the country’s biggest bank, about its financial relationships with Mr. Epstein, the convicted sex offender.`\
+https://nytimes.com/2025/09/25/us/politics/jpmorgan-jeffrey-epstein-dimon-wyden.html
+
 **Justice Dept. Official Pushes Prosecutors to Investigate George Soros’s Foundation**\
 `The directive suggests department leaders are following orders from the president, a major break from decades of past practice meant to insulate the agency from political interference.`\
 https://nytimes.com/2025/09/25/us/politics/justice-trump-george-soros-foundation.html
