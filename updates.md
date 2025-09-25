@@ -1,3 +1,11 @@
+**Cardinals' Nolan Arenado more open-minded to trade possibilities: 'I think I have to be'**\
+`Arenado said he can still contribute to a contender: "The way I played this year, it looks old and washed. But I don't feel that way."`\
+https://nytimes.com/athletic/6660310/2025/09/25/cardinals-nolan-arenado-trade-clause/
+
+**U.N. General Assembly Updates: Palestinian Authority Leader, Barred by U.S., Appears by Video**\
+`The address by Mahmoud Abbas comes days after 10 Western countries joined 150 other nations in recognizing Palestinian statehood.`\
+https://nytimes.com/live/2025/09/25/world/united-nations-palestinian-abbas
+
 **3 School Districts to Lose $65 Million Over Gender and D.E.I. Policies**\
 `The federal Education Department accused New York, Chicago and Fairfax, Va., of discrimination and said it would pull federal funds from their magnet schools.`\
 https://nytimes.com/2025/09/25/nyregion/trump-dei-schools-federal-money.html
