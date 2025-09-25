@@ -1,3 +1,7 @@
+**Oklahoma Education Chief Who Promoted Bibles in Schools Will Resign**\
+`Ryan Walters had drawn criticism from liberals and conservatives alike over his push to place Bibles in classrooms and bring more prayer into public schools.`\
+https://nytimes.com/2025/09/25/us/ryan-walters-oklahoma-resign.html
+
 **Tylenol Distances Itself From a 2017 Tweet on Usage During Pregnancy**\
 `Tylenol’s parent company, Kenvue, defended the pain reliever’s safety after the Trump administration highlighted an old social media post.`\
 https://nytimes.com/2025/09/25/us/politics/tylenol-tweet-2017-pregnancy-autism.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6659731/2025/09/25/auburn-steve-pearl-bruce-pearl-c
 **Broncos' pass rush is elite again — so why is the defense so average?**\
 `Denver has given up more explosive pass plays to running backs than any team in the NFL this season.`\
 https://nytimes.com/athletic/6658401/2025/09/25/broncos-pass-rush-defense-problems/
-
-**What I'm seeing from Trent Frederic, Matt Savoie and more in Oilers preseason**\
-`Midway through preseason, it’s the perfect time to take stock of how things are going for the Oilers.`\
-https://nytimes.com/athletic/6660467/2025/09/25/oilers-preseason-stats-mcdavid-draisaitl-savoie-frederic/
 
