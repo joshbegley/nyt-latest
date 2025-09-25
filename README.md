@@ -1,3 +1,7 @@
+**How to watch Bengals at Broncos: Time, TV, streaming**\
+`Find out how to watch the Cincinnati Bengals play the Denver Broncos, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6660795/2025/09/25/bengals-vs-broncos-stream-how-to-watch-sept-29/
+
 **How to watch White Sox at Yankees: Time, TV, streaming for September 25**\
 `Find out how to watch the Chicago White Sox play the New York Yankees, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6660770/2025/09/25/white-sox-vs-yankees-stream-how-to-watch-sept-25/
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/09/25/todays-new-york-times
 **Lionel Messi takes lead in Golden Boot race as Inter Miami thrashes NYCFC**\
 `Messi and Inter Miami clinched their spot in the MLS playoffs thanks to his late-game heroics.`\
 https://nytimes.com/athletic/6660589/2025/09/25/lionel-messi-golden-boot-inter-miami-playoffs/
-
-**Map: 6.3-Magnitude Earthquake Strikes Venezuela**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/09/25/world/americas/earthquake-venezuela-tracker.html
 
