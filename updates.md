@@ -1,3 +1,7 @@
+**Mathys Tel has his manager's backing but is still struggling to establish himself at Spurs**\
+`When Kolo Muani and Solanke return to fitness, it is difficult to see Tel receiving game time. He needed a statement performance last night`\
+https://nytimes.com/athletic/6659664/2025/09/25/mathys-tel-tottenham-hotspur-thomas-frank/
+
 **10 (More) Questions With Andrew Cuomo**\
 `Former Gov. Andrew M. Cuomo, who is running for mayor of New York City as an independent, visited The New York Times for an interview.`\
 https://nytimes.com/2025/09/25/nyregion/andrew-cuomo-10-questions.html

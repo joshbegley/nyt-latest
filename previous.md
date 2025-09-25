@@ -23,7 +23,7 @@ https://nytimes.com/2025/09/25/nyregion/mamdani-south-asian-voters.html
 https://nytimes.com/athletic/6640141/2025/09/25/newcastle-carabao-cup-osula-ramsdale-howe/
 
 **Mathys Tel has his manager's backing but is still struggling to establish himself at Spurs**\
-`Tel worked hard but was unable to make a significant impact against Doncaster in the Carabao Cup - and future opportunities look scarce`\
+`When Kolo Muani and Solanke return to fitness, it is difficult to see Tel receiving game time. He needed a statement performance last night`\
 https://nytimes.com/athletic/6659664/2025/09/25/mathys-tel-tottenham-hotspur-thomas-frank/
 
 **How to watch Bengals at Broncos: Time, TV, streaming**\
