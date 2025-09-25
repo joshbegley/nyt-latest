@@ -1,40 +1,40 @@
-**Power Dressing in an Age of Influencers**\
-`Simone Bellotti makes a convincing debut at Jil Sander.`\
-https://nytimes.com/2025/09/25/style/jil-sander-simone-bellotti-debut.html
+**$100,000 Per Employee: How the H-1B Visa Fee Could Reshape Work Forces**\
+`Because sponsoring a visaship comes with significant upfront costs, employers need higher-earning workers to justify the new expense.`\
+https://nytimes.com/interactive/2025/09/25/business/economy/h1b-visa-fee.html
 
-**Nottingham Forest fans in Seville and a European night 30 years in the making**\
-`After the club’s long-awaited return to Europe, a new generation of fans will be able to tell their own stories about Forest’s adventures`\
-https://nytimes.com/athletic/6659488/2025/09/25/nottingham-forest-fans-europa-league-betis/
+**Exploring Cleveland’s Historic Homes With $500,000 and an Eye for Character**\
+`A couple combined their resources and senses of style to find a house that evoked the city’s rich architectural heritage — and maybe needed a little work.`\
+https://nytimes.com/interactive/2025/09/25/realestate/cleveland-historic-victorian-homes-sale.html
 
-**Grosjean to make F1 test return five years after fiery Bahrain crash**\
-`This comes almost five years after Grosjean sustained severe injuries in an accident at the start of the 2020 Bahrain Grand Prix.`\
-https://nytimes.com/athletic/6658582/2025/09/25/romain-grosjean-f1-return-news-bahrain/
+**Democratic Report Says Disorder at DOGE Jeopardized Americans’ Data**\
+`Members of a Senate panel described a haphazard working and living environment that involved transferring sensitive information to servers “without any verified security controls.”`\
+https://nytimes.com/2025/09/25/us/politics/democratic-report-disorder-doge.html
 
-**Liverpool 'pulled through together'' in first game since Beard's death**\
-`Liverpool defender Jenna Clark said her side produced a performance Beard would be proud of in Wednesday's 5-0 win over Sunderland.`\
-https://nytimes.com/athletic/6660823/2025/09/25/liverpool-women-matt-beard-tribute/
+**What We Know About the Shooting at a Dallas ICE Facility**\
+`One detainee was killed and two others were wounded after a gunman opened fire on Wednesday. The gunman died of a self-inflicted gunshot wound.`\
+https://nytimes.com/2025/09/25/us/dallas-ice-facility-shooting-suspect.html
 
-**Kimmel Says There’s Plenty of Room in the ‘Bad Ratings’ Club**\
-`The late night host pointed to President Trump’s approval level after he said on social media to “let Jimmy Kimmel rot in his bad ratings.”`\
-https://nytimes.com/2025/09/25/arts/television/late-night-jimmy-kimmel-trump.html
+**How Coco Fusco’s Poetry and Performance Reshaped Contemporary Art**\
+`The first U.S. survey of the Cuban American artist’s films, photographs and installations explore her critical take on political culture.`\
+https://nytimes.com/2025/09/25/arts/design/coco-fusco-poetry-activism-art-el-museo-cuba.html
 
-**10 (More) Questions With Andrew Cuomo**\
-`Former Gov. Andrew M. Cuomo, who is running for mayor of New York City as an independent, visited The New York Times for an interview.`\
-https://nytimes.com/2025/09/25/nyregion/andrew-cuomo-10-questions.html
+**Furniture Inspired by ‘The Flintstones’**\
+`Plus: minimalist Swedish bedding, a David Wojnarowicz exhibition and more recommendations from T Magazine.`\
+https://nytimes.com/2025/09/25/t-magazine/leonard-bessemer-oforo.html
 
-**Pointing**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2025/09/25/learning/pointing.html
+**A U.S. Sale Isn’t Enough. Here’s How to Make TikTok Safer.**\
+`The app should be required to provide searchable databases so propaganda campaigns can be tracked.`\
+https://nytimes.com/2025/09/25/opinion/tiktok-sale-us-china.html
 
-**A Forecast Calling for Plaids, Pleats and Tulle**\
-`At London Fashion Week, all took notable forms on the runways and the streets.`\
-https://nytimes.com/2025/09/25/style/london-fashion-week-style.html
+**He Forgave His Mother’s Killer. Now, He’s Fighting to Spare the Man’s Life.**\
+`William Berry has urged Alabama officials to stop the execution of Geoffrey West, arguing that it would bring neither justice nor closure.`\
+https://nytimes.com/2025/09/25/us/alabama-execution-william-berry-geoffrey-west.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/09/25/crosswords/spelling-bee-forum.html
+**Seahawks vs. Cardinals Thursday Night Football betting: Picks for player props and parlays**\
+`Brad Evans scours Thursday Night Football props and parlays to give you an edge during the first game of the week. `\
+https://nytimes.com/athletic/6657842/2025/09/25/seahawks-cardinals-betting-parlays-props-tnf/
 
-**As Mamdani Rises, South Asians Emerge as a Political Force in New York**\
-`Zohran Mamdani’s upstart campaign for mayor of New York City is inspiring the growing South Asian community to be more active in politics.`\
-https://nytimes.com/2025/09/25/nyregion/mamdani-south-asian-voters.html
+**36 Hours in Litchfield County, Connecticut**\
+`Take a slow weekend exploring farms and hiking trails in Connecticut’s bucolic northwestern corner.`\
+https://nytimes.com/interactive/2025/09/25/travel/things-to-do-litchfield-connecticut.html
 

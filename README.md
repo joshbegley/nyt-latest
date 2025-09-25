@@ -1,3 +1,23 @@
+**How to watch Royals at Angels: Time, TV, streaming for September 25**\
+`Find out how to watch the Kansas City Royals play the Los Angeles Angels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6661023/2025/09/25/royals-vs-angels-stream-how-to-watch-sept-25/
+
+**How to watch Dodgers at Diamondbacks: Time, TV, streaming for September 25**\
+`Find out how to watch the Los Angeles Dodgers play the Arizona Diamondbacks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6660988/2025/09/25/dodgers-vs-diamondbacks-stream-how-to-watch-sept-25/
+
+**How to watch Rockies at Mariners: Time, TV, streaming for September 25**\
+`Find out how to watch the Colorado Rockies play the Seattle Mariners, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6660972/2025/09/25/rockies-vs-mariners-stream-how-to-watch-sept-25/
+
+**How to watch Astros at Athletics: Time, TV, streaming for September 25**\
+`Find out how to watch the Houston Astros play the Athletics, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6660968/2025/09/25/astros-vs-athletics-stream-how-to-watch-sept-25/
+
+**Man Utd agree deal to sign 17-year-old midfielder Orozco**\
+`The defensive midfielder is expected to officially move to Old Trafford after turning 18 in July 2026.`\
+https://nytimes.com/athletic/6660960/2025/09/25/cristian-orozco-manchester-united-transfer/
+
 **$100,000 Per Employee: How the H-1B Visa Fee Could Reshape Work Forces**\
 `Because sponsoring a visaship comes with significant upfront costs, employers need higher-earning workers to justify the new expense.`\
 https://nytimes.com/interactive/2025/09/25/business/economy/h1b-visa-fee.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/09/25/us/dallas-ice-facility-shooting-suspect.html
 **How Coco Fusco’s Poetry and Performance Reshaped Contemporary Art**\
 `The first U.S. survey of the Cuban American artist’s films, photographs and installations explore her critical take on political culture.`\
 https://nytimes.com/2025/09/25/arts/design/coco-fusco-poetry-activism-art-el-museo-cuba.html
-
-**Furniture Inspired by ‘The Flintstones’**\
-`Plus: minimalist Swedish bedding, a David Wojnarowicz exhibition and more recommendations from T Magazine.`\
-https://nytimes.com/2025/09/25/t-magazine/leonard-bessemer-oforo.html
-
-**A U.S. Sale Isn’t Enough. Here’s How to Make TikTok Safer.**\
-`The app should be required to provide searchable databases so propaganda campaigns can be tracked.`\
-https://nytimes.com/2025/09/25/opinion/tiktok-sale-us-china.html
-
-**He Forgave His Mother’s Killer. Now, He’s Fighting to Spare the Man’s Life.**\
-`William Berry has urged Alabama officials to stop the execution of Geoffrey West, arguing that it would bring neither justice nor closure.`\
-https://nytimes.com/2025/09/25/us/alabama-execution-william-berry-geoffrey-west.html
-
-**Seahawks vs. Cardinals Thursday Night Football betting: Picks for player props and parlays**\
-`Brad Evans scours Thursday Night Football props and parlays to give you an edge during the first game of the week. `\
-https://nytimes.com/athletic/6657842/2025/09/25/seahawks-cardinals-betting-parlays-props-tnf/
-
-**36 Hours in Litchfield County, Connecticut**\
-`Take a slow weekend exploring farms and hiking trails in Connecticut’s bucolic northwestern corner.`\
-https://nytimes.com/interactive/2025/09/25/travel/things-to-do-litchfield-connecticut.html
 
