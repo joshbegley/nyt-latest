@@ -1,3 +1,7 @@
+**Liverpool 'pulled through together'' in first game since Beard's death**\
+`Liverpool defender Jenna Clark said her side produced a performance Beard would be proud of in Wednesday's 5-0 win over Sunderland.`\
+https://nytimes.com/athletic/6660823/2025/09/25/liverpool-women-matt-beard-tribute/
+
 **Kimmel Says There’s Plenty of Room in the ‘Bad Ratings’ Club**\
 `The late night host pointed to President Trump’s approval level after he said on social media to “let Jimmy Kimmel rot in his bad ratings.”`\
 https://nytimes.com/2025/09/25/arts/television/late-night-jimmy-kimmel-trump.html
