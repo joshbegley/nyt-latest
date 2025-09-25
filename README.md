@@ -1,3 +1,7 @@
+**Democrats Dig In After White House Threat of Mass Federal Layoffs**\
+`Party leaders said the administration’s plan to fire government workers in the event of a shutdown would not prompt them to drop their demands in their spending standoff with the G.O.P.`\
+https://nytimes.com/2025/09/25/us/politics/democrats-government-shutdown-layoffs-threats.html
+
 **Observations from Hurricanes training camp: How have Nikishin and Ehlers looked?**\
 `There’s understandably a lot of excitement surrounding Nikishin as he moves to full-time NHLer.`\
 https://nytimes.com/athletic/6660718/2025/09/25/hurricanes-nikishin-ehlers-camp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6661660/2025/09/25/liverpool-ticket-touts-ban/
 **Carlos Alcaraz 'scared' after injuring ankle but wins Japan Open first-round match**\
 `Carlos Alcaraz looked visibly distressed after injuring his ankle at the Japan Open`\
 https://nytimes.com/athletic/6661675/2025/09/25/carlos-alcaraz-injury-japan-open-win/
-
-**Interior Design’s New Stone Age**\
-`What does it take for one of the world’s oldest materials to become the face of luxury design? Discover the art and science of reinventing stone.`\
-https://nytimes.com/paidpost/cosentino/interior-designs-new-stone-age.html
 
