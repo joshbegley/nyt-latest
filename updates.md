@@ -1,3 +1,7 @@
+**Rapper 6ix9ine Ordered Into Home Detention After Violence Erupts at Mall**\
+`The musician, whose real name is Daniel Hernandez, has had serial entanglements with the law. A prosecutor said that he had concerns about Mr. Hernandez’s impulse control.`\
+https://nytimes.com/2025/09/25/nyregion/rapper-tekashi-6ix9ine-home-detention.html
+
 **L.A. Wildfire Evacuations Were Slowed by Poor Visibility and System Weaknesses**\
 `An independent report on the January disaster found that emergency alerts were hampered by flawed policies, aging equipment and high winds.`\
 https://nytimes.com/2025/09/25/us/los-angeles-fires-evacuations-report.html
