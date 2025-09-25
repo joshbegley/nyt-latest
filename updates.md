@@ -1,3 +1,7 @@
+**Grosjean to make F1 test return five years after Bahrain accident**\
+`This comes almost five years after Grosjean sustained severe injuries in an accident at the start of the 2020 Bahrain Grand Prix.`\
+https://nytimes.com/athletic/6658582/2025/09/25/romain-grosjean-f1-return-news-bahrain/
+
 **Liverpool 'pulled through together'' in first game since Beard's death**\
 `Liverpool defender Jenna Clark said her side produced a performance Beard would be proud of in Wednesday's 5-0 win over Sunderland.`\
 https://nytimes.com/athletic/6660823/2025/09/25/liverpool-women-matt-beard-tribute/
