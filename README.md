@@ -1,3 +1,23 @@
+**Trump administration working to stop Israel being banned from 2026 World Cup**\
+`UN experts on Tuesday described an “unfolding genocide” in Gaza, an allegation Israel denies.`\
+https://nytimes.com/athletic/6658687/2025/09/25/israel-fifa-ban-trump-uefa/
+
+**Sarkozy Sentenced to Five Years in Libyan Money Conspiracy Trial**\
+`A Paris court found the former French president Nicolas Sarkozy guilty of criminal conspiracy for using money from Col. Muammar el-Qaddafi’s government in his 2007 campaign. The court sentenced him to five years in prison and a fine of about $117,000.`\
+https://nytimes.com/video/world/europe/100000010420654/sarkozy-libya-money-funding-trial.html
+
+**The Windup: Big Dumper's big number**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6661740/2025/09/25/cal-raleigh-mlb-playoffs-the-windup/
+
+**Liverpool issue more than 1,000 lifetime bans in crack down on ticket touting**\
+`The ban total has risen significantly from the 75 handed out in the 2023-24 season.`\
+https://nytimes.com/athletic/6661660/2025/09/25/liverpool-ticket-touts-ban/
+
+**Carlos Alcaraz 'scared' after injuring ankle but wins Japan Open first-round match**\
+`Carlos Alcaraz looked visibly distressed after injuring his ankle at the Japan Open`\
+https://nytimes.com/athletic/6661675/2025/09/25/carlos-alcaraz-injury-japan-open-win/
+
 **Interior Design’s New Stone Age**\
 `What does it take for one of the world’s oldest materials to become the face of luxury design? Discover the art and science of reinventing stone.`\
 https://nytimes.com/paidpost/cosentino/interior-designs-new-stone-age.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6653850/2025/09/25/pablo-torre-finds-out-mma-fighte
 **Betting for (by) dummies: Fading Chiefs, Nittany Lions, both at home!**\
 `Two of our football experts banter about their losses and make increasingly wild picks for this week's slew of games. `\
 https://nytimes.com/athletic/6660087/2025/09/25/nfl-college-football-betting-picks-penn-state-oregon-ravens-chiefs/
-
-**World Cup 2026 mascots Clutch, Zayu and Maple revealed**\
-`The three animals - an eagle, a moose, and a jaguar - represent the three co-hosting nations.`\
-https://nytimes.com/athletic/6659262/2025/09/25/world-cup-2026-mascots/
-
-**Ngumoha signs first professional contract**\
-`The winger, who turned 17 last month, has signed a three-year deal to keep him at Anfield until 2028.`\
-https://nytimes.com/athletic/6661499/2025/09/25/rio-ngumoha-liverpool-contract/
-
-**Elon Musk’s Chatbot Goes to Washington**\
-`The billionaire’s artificial intelligence company, xAI, has secured a deal with the government that will allow federal agencies to use the chatbot Grok for a small fee.`\
-https://nytimes.com/2025/09/25/technology/grok-xai-government-elon-musk.html
-
-**Gavin Newsom on Trump, Climate and California**\
-`At the Climate Forward live event, Gov. Gavin Newsom discussed how he’s pushing back against President Trump’s sweeping rollback of environmental regulations and why he thinks Trump’s latest comments on climate are “an abomination.”`\
-https://nytimes.com/2025/09/25/climate/climate-forward-gavin-newsom.html
-
-**Chris Wright on Politics, Power and Energy Under Trump**\
-`At a Climate Forward live event, Chris Wright defended President Trump’s crackdown on renewable energy, and said he would push for other countries to withdraw from a global climate pact.`\
-https://nytimes.com/2025/09/25/climate/climate-forward-chris-wright.html
 

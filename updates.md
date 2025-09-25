@@ -1,3 +1,11 @@
+**Interior Design’s New Stone Age**\
+`What does it take for one of the world’s oldest materials to become the face of luxury design? Discover the art and science of reinventing stone.`\
+https://nytimes.com/paidpost/cosentino/interior-designs-new-stone-age.html
+
+**Key fantasy football questions for Week 4: Who's the best rookie RB?**\
+`Dalton Del Don asks essential fantasy football relevant questions heading into Week 4, including how Jaxson Dart will fare in his debut. `\
+https://nytimes.com/athletic/6661423/2025/09/25/fantasy-football-week-4-key-questions/
+
 **Is ‘South Park’ Cancel-Proof Comedy?**\
 `It’s a prickly time for comedy. On “Cannonball” podcast, Wesley Morris and Wyatt Cenac discuss how the TV show has managed to keep the punchlines rolling for over 27 years.`\
 https://nytimes.com/video/podcasts/100000010415158/is-south-park-cancel-proof-comedy.html

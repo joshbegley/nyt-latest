@@ -1,3 +1,11 @@
+**Interior Design’s New Stone Age**\
+`What does it take for one of the world’s oldest materials to become the face of luxury design? Discover the art and science of reinventing stone.`\
+https://nytimes.com/paidpost/cosentino/interior-designs-new-stone-age.html
+
+**Key fantasy football questions for Week 4: Who's the best rookie RB?**\
+`Dalton Del Don asks essential fantasy football relevant questions heading into Week 4, including how Jaxson Dart will fare in his debut. `\
+https://nytimes.com/athletic/6661423/2025/09/25/fantasy-football-week-4-key-questions/
+
 **Is ‘South Park’ Cancel-Proof Comedy?**\
 `It’s a prickly time for comedy. On “Cannonball” podcast, Wesley Morris and Wyatt Cenac discuss how the TV show has managed to keep the punchlines rolling for over 27 years.`\
 https://nytimes.com/video/podcasts/100000010415158/is-south-park-cancel-proof-comedy.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/25/climate/climate-forward-gavin-newsom.html
 **Chris Wright on Politics, Power and Energy Under Trump**\
 `At a Climate Forward live event, Chris Wright defended President Trump’s crackdown on renewable energy, and said he would push for other countries to withdraw from a global climate pact.`\
 https://nytimes.com/2025/09/25/climate/climate-forward-chris-wright.html
-
-**A wrinkle among the NHL's Bottom 10. Plus: Cap chicanery and a Hall of Famer's watchful eye**\
-`Two bad NHL teams stand out from the teams near them in our 2025-26 season projections.`\
-https://nytimes.com/athletic/6661561/2025/09/25/nhl-red-light-newsletter-preseason-projections/
-
-**Cardinals' Nolan Arenado more open-minded to trade possibilities: 'I think I have to be'**\
-`Arenado said he can still contribute to a contender: "The way I played this year, it looks old and washed. But I don't feel that way."`\
-https://nytimes.com/athletic/6660310/2025/09/25/cardinals-nolan-arenado-trade-clause/
 
