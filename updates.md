@@ -1,3 +1,11 @@
+**College football picks ATS: Penn State-Oregon, Georgia-Alabama headline loaded Week 5**\
+`There are big games all over the country this week and our staff has picks against the spread for every big Week 5 college football game.`\
+https://nytimes.com/athletic/6655030/2025/09/25/college-football-week-5-picks-spread-georgia-alabama-penn-state-oregon/
+
+**Report Says Museums Post Less Online About Possibly Nazi-Looted Art**\
+`Researchers for the World Jewish Restitution Organization said families whose art was stolen or disappeared in the Holocaust now face a harder time tracking works on the internet.`\
+https://nytimes.com/2025/09/25/arts/design/museums-nazi-looted-art-report.html
+
 **‘I’m Always Trying to Make the Paintings Nobody Else Is Making’**\
 `Kerry James Marshall’s blockbuster survey across nearly five decades at the Royal Academy of Art in London tackles Black history in all its complexity.`\
 https://nytimes.com/2025/09/25/arts/design/kerry-james-marshall-royal-academy-london-art-museum.html

@@ -1,9 +1,13 @@
+**Justice Dept. Official Pushes Prosecutors to Investigate George Soros’s Foundation**\
+`The directive suggests department leaders are following orders from the president, a major break from decades of past practice meant to insulate the agency from political interference.`\
+https://nytimes.com/2025/09/25/us/politics/justice-trump-george-soros-foundation.html
+
 **College football picks ATS: Penn State-Oregon, Georgia-Alabama headline loaded Week 5**\
 `There are big games all over the country this week and our staff has picks against the spread for every big Week 5 college football game.`\
 https://nytimes.com/athletic/6655030/2025/09/25/college-football-week-5-picks-spread-georgia-alabama-penn-state-oregon/
 
-**‘I’m Always Trying to Make the Paintings Nobody Else Is Making’**\
-`Kerry James Marshall’s blockbuster survey across nearly five decades at the Royal Academy of Art in London tackles Black history in all its complexity.`\
+**Kerry James Marshall on Making ‘the Paintings Nobody Else Is Making’**\
+`The artist’s blockbuster survey across nearly five decades at the Royal Academy of Art in London tackles Black history in all its complexity.`\
 https://nytimes.com/2025/09/25/arts/design/kerry-james-marshall-royal-academy-london-art-museum.html
 
 **Report Says Museums Post Less Online About Possibly Nazi-Looted Art**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/25/us/politics/democrats-government-shutdown-layoffs
 **Observations from Hurricanes training camp: How have Nikishin and Ehlers looked?**\
 `There’s understandably a lot of excitement surrounding Nikishin as he moves to full-time NHLer.`\
 https://nytimes.com/athletic/6660718/2025/09/25/hurricanes-nikishin-ehlers-camp/
-
-**Fantasy football injuries, cheat sheet Week 4: Rookies, backups move into star roles**\
-`Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 4 player rankings and more.`\
-https://nytimes.com/athletic/6655213/2025/09/25/fantasy-football-injuries-cheat-sheet-nfl-week-4/
 
