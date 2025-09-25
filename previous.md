@@ -1,3 +1,15 @@
+**Lisa Phillips, Director of New Museum, to Retire**\
+`Her 26-year tenure transformed a curatorial experiment into a global institution. She will depart in April, after a building expansion doubling the museum’s space.`\
+https://nytimes.com/2025/09/25/arts/design/lisa-phillips-director-of-new-museum-to-retire.html
+
+**Trump’s Cultural Push Begins With Universities**\
+`Are universities suffering from “Meghan Markle syndrome”? In this episode of “Interesting Times,” Ross talks to May Mailman, the lawyer on the front lines of the Trump administration’s war on elite universities, about why they’re cracking down on the “glorification of victimhood” in higher education.`\
+https://nytimes.com/video/opinion/100000010414443/trumps-cultural-push-begins-with-universities.html
+
+**Chicago to Pay $90 Million to Settle Cases Tied to an Ex-Police Sergeant’s Team**\
+`The agreement to resolve scores of lawsuits was a significant blow to a city facing budget challenges, but not as pricey as some officials had feared.`\
+https://nytimes.com/2025/09/25/us/chicago-police-settlement-ronald-watts.html
+
 **The Justice Dept. Is Taking Aim at Trump’s Foes**\
 `Also, Trump waded into bailout politics by offering a lifeline to Argentina. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/09/25/briefing/justice-department-george-soros-us-argentina-bailout.html
@@ -25,12 +37,4 @@ https://nytimes.com/athletic/6663030/2025/09/25/savinho-man-city-contract/
 **How to make water conservation a habit**\
 `Small, everyday actions to minimize water use add up the more people do them.`\
 https://nytimes.com/2025/09/25/headway/how-to-make-water-conservation-a-habit.html
-
-**Kennedy Says U.S. Rejects Global Health Goals**\
-`The nation’s top federal health official criticized the U.N.’s road map for addressing chronic disease, falsely claiming it promotes abortion and “radical gender ideology.”`\
-https://nytimes.com/2025/09/25/health/rfk-jr-un-chronic-disease.html
-
-**College football Week 5 projected scores: Model predicts every FBS vs. FBS game**\
-`Austin Mock's projection model predicts every Week 5 college football game, including Oregon-Penn State, Alabama-Georgia and LSU-Ole Miss.`\
-https://nytimes.com/athletic/6663041/2025/09/25/college-football-week-5-projected-scores-model-spread-total/
 
