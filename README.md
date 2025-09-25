@@ -1,3 +1,7 @@
+**Review: A Tenor With an Affinity for French Poetry and Rugby**\
+`Pene Pati made his New York recital debut at the Armory with a program that showcased his voluptuous voice and revealed a chamber musician’s sensitivity to nuance.`\
+https://nytimes.com/2025/09/25/arts/music/review-pene-pati-armory.html
+
 **Maxine Clair, Writer Who Came to Her Craft in Middle Age, Dies at 86**\
 `She published her first book of poems at 49 and her first work of prose, the acclaimed novel “Rattlebone,” six years later.`\
 https://nytimes.com/2025/09/25/books/maxine-clair-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6661202/2025/09/25/world-cup-mascots-us-canada-mexi
 **China Bought $12.6 Billion in U.S. Soybeans Last Year. Now, It’s $0.**\
 `China stopped buying soybeans from America in May, placing a retaliatory tariff on the bumper crop after President Trump increased levies on goods from China.`\
 https://nytimes.com/2025/09/25/business/china-soybean-sales-farmers.html
-
-**He’s the Next Big Thing Out of the U.K. Underground**\
-`The New York Times critic Jon Caramanica is in the driver’s seat explaining why you need to know the rapper Fakemink.`\
-https://nytimes.com/video/podcasts/100000010420238/hes-the-next-big-thing-out-of-the-uk-underground.html
 

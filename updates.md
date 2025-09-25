@@ -1,3 +1,15 @@
+**Maxine Clair, Writer Who Came to Her Craft in Middle Age, Dies at 86**\
+`She published her first book of poems at 49 and her first work of prose, the acclaimed novel “Rattlebone,” six years later.`\
+https://nytimes.com/2025/09/25/books/maxine-clair-dead.html
+
+**Wild unveil 25th anniversary jersey, pay homage to inaugural season**\
+`The jersey resembles the original white sweater worn by Minnesota in 2000 and will be worn four times during the milestone 2025-26 season.`\
+https://nytimes.com/athletic/6659741/2025/09/25/wild-25th-anniversary-jersey/
+
+**What Teenagers Are Saying About the Rising Cost of Youth Sports**\
+`Students react to an article about the transformation of youth athletics into a multibillion-dollar industry and share how it affects their participation.`\
+https://nytimes.com/2025/09/25/learning/what-teenagers-are-saying-about-the-rising-cost-of-youth-sports.html
+
 **What to expect as President Trump attends the Ryder Cup**\
 `Three weeks ago, Trump’s visit to the U.S. Open men's tennis final led organizers to delay the start of the match.`\
 https://nytimes.com/athletic/6661732/2025/09/25/donald-trump-ryder-cup-visit-bethpage-black-ny/
