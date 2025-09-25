@@ -1,3 +1,15 @@
+**How do you feed F1 VIPs? 3,000 lobsters per day and ‘a Hollywood movie on the go’**\
+`Each F1 race is packed with VIPs - usually paying a premium. They expect high hospitality service, which F1 works to deliver`\
+https://nytimes.com/athletic/6658903/2025/09/25/f1-formula-1-vip-food/
+
+**One-on-one: 'Hungry' Adam Fox on down season, summer motivation**\
+`"I've tried to always come in with that, but maybe there's a little notch more motivation after how last year went," Fox told The Athletic.`\
+https://nytimes.com/athletic/6658598/2025/09/25/adam-fox-rangers-team-usa-nhl-olympics/
+
+**Morgan Rielly's summer shift: Inside a Maple Leafs star's quest for a late-career resurgence**\
+`How a conversation with GM Brad Treliving and personal reflection led to a changed mindset and high hopes for the year ahead.`\
+https://nytimes.com/athletic/6655057/2025/09/25/maple-leafs-morgan-rielly-training-mindset/
+
 **Patrick Mahomes vowed to make a change. He's been a different QB since**\
 `Mahomes has reversed a years-long trend this season. The work started in the offseason.`\
 https://nytimes.com/athletic/6658490/2025/09/25/chiefs-patrick-mahomes-deep-ball/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6653196/2025/09/25/seahawks-cardinals-tnf-kyler-mur
 **Could NASCAR eliminate its playoff system? Here's why it's being considered**\
 `The championship is currently decided by eliminations, which often do not focus on the best drivers, let alone reward them.`\
 https://nytimes.com/athletic/6658624/2025/09/25/nascar-playoff-system-change-full-season-chase/
-
-**NHL rumblings: Latest on pending UFAs Kempe, Tuch, Necas, Andersson and more**\
-`With Connor McDavid and Kirill Kaprizov potentially available next summer, other pending UFAs are flying under the radar. Here are six.`\
-https://nytimes.com/athletic/6658064/2025/09/25/kempe-tuch-necas-nhl-rumblings/
-
-**Early returns on Jets' free-agency class not good — though trades look promising**\
-`A look at how the Jets' veteran additions have fared through the first three weeks of their winless season.`\
-https://nytimes.com/athletic/6658936/2025/09/25/new-york-jets-free-agent-class-performance/
-
-**Waiver wire targets: Who could be the best pickups when NHL teams trim rosters?**\
-`These 14 young players with potential upside might land on the wire over the next two weeks.`\
-https://nytimes.com/athletic/6637860/2025/09/25/nhl-waivers-targets-2025-preseason/
 
