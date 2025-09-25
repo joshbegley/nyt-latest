@@ -1,3 +1,11 @@
+**Phillies' Trea Turner ready for October, even if he opts against weekend return**\
+`Currently, Turner is taking at-bats against minor-league pitchers. He's running and doing agility drills. He is also taking ground balls.`\
+https://nytimes.com/athletic/6662997/2025/09/25/philadelphia-phillies-trea-turner-october-return/
+
+**911 Service Is Restored in Louisiana and Mississippi**\
+`Damage to fiber optic lines operated by AT&T was to blame for the statewide outages, which lasted more than two hours on Thursday, officials said.`\
+https://nytimes.com/2025/09/25/us/mississippi-louisiana-outages-911-emergency.html
+
 **Dodgers clinch NL West for 12th time in 13 seasons: 'We have an opportunity to make history'**\
 `It didn't happen as easily as most observers predicted it would before the season, but the Dodgers are division champions once again.`\
 https://nytimes.com/athletic/6663006/2025/09/25/dodgers-clinch-national-league-west/
