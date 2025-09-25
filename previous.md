@@ -1,3 +1,7 @@
+**Grand Jury Indicts Longtime Trump Target, Former F.B.I. Director James Comey**\
+`The move came after the president intensified his pressure campaign on the Justice Department in recent days, publicly demanding that top officials prosecute Mr. Comey.`\
+https://nytimes.com/2025/09/25/us/politics/james-comey-indicted.html
+
 **JJ Redick, Lakers agree to contract extension**\
 `"It's not lost on me this sort of rarity of a first-time head coach getting an extension," Redick said.`\
 https://nytimes.com/athletic/6663338/2025/09/25/jj-redick-lakers-agree-contract-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/25/briefing/justice-department-george-soros-us-argen
 **Trump’s War on ‘Hotbeds of Radicalism’**\
 `Universities have an ideology problem, at least according to the Trump administration, and May Mailman is here to fix it.`\
 https://nytimes.com/video/opinion/100000010414442/trumps-war-on-hotbeds-of-radicalism.html
-
-**911 Service Is Restored in Louisiana and Mississippi**\
-`Damage to fiber optic lines operated by AT&T was to blame for the statewide outages, which lasted more than two hours on Thursday, officials said.`\
-https://nytimes.com/2025/09/25/us/mississippi-louisiana-outages-911-emergency.html
 

@@ -1,3 +1,7 @@
+**Grand Jury Indicts Longtime Trump Target, Former F.B.I. Director James Comey**\
+`The move came after the president intensified his pressure campaign on the Justice Department in recent days, publicly demanding that top officials prosecute Mr. Comey.`\
+https://nytimes.com/2025/09/25/us/politics/james-comey-indicted.html
+
 **JJ Redick, Lakers agree to contract extension**\
 `"It's not lost on me this sort of rarity of a first-time head coach getting an extension," Redick said.`\
 https://nytimes.com/athletic/6663338/2025/09/25/jj-redick-lakers-agree-contract-extension/
