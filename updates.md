@@ -1,3 +1,11 @@
+**College football Week 5 best bets: Have (some) faith in Notre Dame's defense**\
+`Austin Mock discusses his best bets for Week 5 of the college football season, including going counter-narrative on Notre Dame's defense.`\
+https://nytimes.com/athletic/6662070/2025/09/25/college-football-best-bets-week-5-indiana-notre-dame/
+
+**Rosenthal: 15 teams that could change their manager or head of baseball operations this offseason**\
+`We've separated the teams into four categories, based on how things currently appear heading into the final four days of the regular season.`\
+https://nytimes.com/athletic/6660012/2025/09/25/mlb-manager-front-office-changes/
+
 **Even Cal Raleigh's peers can't believe 60 HR season: 'What he’s doing is extremely ridiculous'**\
 `Raleigh's name is etched in history. He won’t indulge in the spectacle of his MVP-caliber season, so let's allow others to campaign for him.`\
 https://nytimes.com/athletic/6660549/2025/09/25/cal-raleigh-60-home-run-season-catcher-mariners/
