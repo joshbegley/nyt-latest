@@ -1,3 +1,7 @@
+**Trump Clears Way for American-Owned TikTok Valued at $14 Billion**\
+`The administration has been working for months to find non-Chinese investors for a U.S. version of the app.`\
+https://nytimes.com/2025/09/25/technology/trump-tiktok-ban-deal.html
+
 **Lisa Phillips, Director of New Museum, to Retire**\
 `Her 26-year tenure transformed a curatorial experiment into a global institution. She will depart in April, after a building expansion doubling the museum’s space.`\
 https://nytimes.com/2025/09/25/arts/design/lisa-phillips-director-of-new-museum-to-retire.html

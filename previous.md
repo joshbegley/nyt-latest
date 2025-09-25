@@ -22,7 +22,7 @@ https://nytimes.com/video/opinion/100000010414442/trumps-war-on-hotbeds-of-radic
 `Damage to fiber optic lines operated by AT&T was to blame for the outage, the authorities said, but foul play was not suspected.`\
 https://nytimes.com/2025/09/25/us/mississippi-louisiana-outages-911-emergency.html
 
-**Trump Signs Executive Order Related to TikTok Deal**\
+**Trump Clears Way for American-Owned TikTok Valued at $14 Billion**\
 `The administration has been working for months to find non-Chinese investors for a U.S. version of the app.`\
 https://nytimes.com/2025/09/25/technology/trump-tiktok-ban-deal.html
 
