@@ -1,3 +1,7 @@
+**Henry Jaglom, Indie Director Who Mined the Personal, Dies at 87**\
+`His discursive films, often centered on women and their emotions and relationships, confounded and delighted critics in equal measure.`\
+https://nytimes.com/2025/09/24/movies/henry-jaglom-dead.html
+
 **Journalist Held by ICE Faces ‘Imminent’ Deportation, His Lawyers Say**\
 `The journalist, Mario Guevara, has been in Immigration and Customs Enforcement custody since June, when he was arrested while covering a “No Kings” protest outside Atlanta.`\
 https://nytimes.com/2025/09/24/us/politics/mario-guevara-journalist-deportation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6660070/2025/09/24/jets-vs-dolphins-stream-how-to-w
 **How to watch Pirates at Reds: Time, TV, streaming for September 25**\
 `Find out how to watch the Pittsburgh Pirates play the Cincinnati Reds, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6660040/2025/09/24/pirates-vs-reds-stream-how-to-watch-sept-25/
-
-**How to watch Rays at Orioles: Time, TV, streaming for September 25**\
-`Find out how to watch the Tampa Bay Rays play the Baltimore Orioles, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6660033/2025/09/24/rays-vs-orioles-stream-how-to-watch-sept-25/
 

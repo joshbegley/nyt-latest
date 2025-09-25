@@ -1,3 +1,7 @@
+**Henry Jaglom, Indie Director Who Mined the Personal, Dies at 87**\
+`His discursive films, often centered on women and their emotions and relationships, confounded and delighted critics in equal measure.`\
+https://nytimes.com/2025/09/24/movies/henry-jaglom-dead.html
+
 **Journalist Held by ICE Faces ‘Imminent’ Deportation, His Lawyers Say**\
 `The journalist, Mario Guevara, has been in Immigration and Customs Enforcement custody since June, when he was arrested while covering a “No Kings” protest outside Atlanta.`\
 https://nytimes.com/2025/09/24/us/politics/mario-guevara-journalist-deportation.html
