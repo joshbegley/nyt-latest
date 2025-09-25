@@ -1,3 +1,7 @@
+**Do You Use A.I. Chatbots for Health Advice?**\
+`We want to hear about it.`\
+https://nytimes.com/2025/09/25/well/ai-chatbots-health.html
+
 **Panthers' Aleksander Barkov helped off ice after suffering injury at training camp**\
 `Coach Paul Maurice told reporters in South Florida that the team would have more information Friday on the severity of the injury.`\
 https://nytimes.com/athletic/6662308/2025/09/25/aleksander-barkov-injury-panthers-training-camp/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6660549/2025/09/25/cal-raleigh-60-home-run-season-c
 **Review: A Tenor With an Affinity for French Poetry and Rugby**\
 `Pene Pati made his New York recital debut at the Armory with a program that showcased his voluptuous voice and revealed a chamber musician’s sensitivity to nuance.`\
 https://nytimes.com/2025/09/25/arts/music/review-pene-pati-armory.html
-
-**Maxine Clair, Writer Who Came to Her Craft in Middle Age, Dies at 86**\
-`She published her first book of poems at 49 and her first work of prose, the acclaimed novel “Rattlebone,” six years later.`\
-https://nytimes.com/2025/09/25/books/maxine-clair-dead.html
 

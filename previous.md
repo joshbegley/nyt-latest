@@ -1,3 +1,7 @@
+**Panthers' Aleksander Barkov helped off ice after suffering injury at training camp**\
+`Coach Paul Maurice told reporters in South Florida that the team would have more information Friday on the severity of the injury.`\
+https://nytimes.com/athletic/6662308/2025/09/25/aleksander-barkov-injury-panthers-training-camp/
+
 **Hegseth Is Said to Have Summoned U.S. Military Brass From Around the Globe**\
 `The unusual directive, without a stated reason, came after the defense secretary has fired several top officers and ordered a reduction in four-star officers.`\
 https://nytimes.com/2025/09/25/us/politics/hegseth-generals-admirals-summoned.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/25/arts/music/review-pene-pati-armory.html
 **Maxine Clair, Writer Who Came to Her Craft in Middle Age, Dies at 86**\
 `She published her first book of poems at 49 and her first work of prose, the acclaimed novel “Rattlebone,” six years later.`\
 https://nytimes.com/2025/09/25/books/maxine-clair-dead.html
-
-**Wild unveil 25th anniversary jersey, pay homage to inaugural season**\
-`The jersey resembles the original white sweater worn by Minnesota in 2000 and will be worn four times during the milestone 2025-26 season.`\
-https://nytimes.com/athletic/6659741/2025/09/25/wild-25th-anniversary-jersey/
 
