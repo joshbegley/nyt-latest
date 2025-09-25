@@ -1,3 +1,5 @@
+
+
 **Cardinals' Nolan Arenado more open-minded to trade possibilities: 'I think I have to be'**\
 `Arenado said he can still contribute to a contender: "The way I played this year, it looks old and washed. But I don't feel that way."`\
 https://nytimes.com/athletic/6660310/2025/09/25/cardinals-nolan-arenado-trade-clause/
