@@ -1,3 +1,7 @@
+**Nottingham Forest fans in Seville and a European night 30 years in the making**\
+`After the club’s long-awaited return to Europe, a new generation of fans will be able to tell their own stories about Forest’s adventures`\
+https://nytimes.com/athletic/6659488/2025/09/25/nottingham-forest-fans-europa-league-betis/
+
 **Power Dressing in an Age of Influencers**\
 `Simone Bellotti makes a convincing debut at Jil Sander.`\
 https://nytimes.com/2025/09/25/style/jil-sander-simone-bellotti-debut.html
