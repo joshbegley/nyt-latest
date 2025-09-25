@@ -1,3 +1,7 @@
+**Grosjean to make F1 test return five years after fiery Bahrain crash**\
+`This comes almost five years after Grosjean sustained severe injuries in an accident at the start of the 2020 Bahrain Grand Prix.`\
+https://nytimes.com/athletic/6658582/2025/09/25/romain-grosjean-f1-return-news-bahrain/
+
 **Newcastle 4 Bradford City 1: Fine outings for Osula and Ramsdale as Howe shuffles his pack successfully**\
 `Chris Waugh analyses the key talking points from Newcastle's win over League One Bradford City in the Carabao Cup third round`\
 https://nytimes.com/athletic/6640141/2025/09/25/newcastle-carabao-cup-osula-ramsdale-howe/
