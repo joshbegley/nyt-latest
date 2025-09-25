@@ -1,3 +1,7 @@
+**College football Week 5 best bets: Have (some) faith in Notre Dame's defense**\
+`Austin Mock discusses his best bets for Week 5 of the college football season, including going counter-narrative on Notre Dame's defense.`\
+https://nytimes.com/athletic/6662070/2025/09/25/college-football-best-bets-week-5-indiana-notre-dame/
+
 **Rosenthal: 15 teams that could change their manager or head of baseball operations this offseason**\
 `We've separated the teams into four categories, based on how things currently appear heading into the final four days of the regular season.`\
 https://nytimes.com/athletic/6660012/2025/09/25/mlb-manager-front-office-changes/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6662168/2025/09/25/stars-jamie-benn-collapsed-lung-
 **Super PACs Pay $900,000 to Settle Inquiry Tied to Zeldin’s Governor Run**\
 `The settlement, which includes no admission of wrongdoing, ends an inquiry into possible illegal coordination between two super PACs and Lee Zeldin’s 2022 campaign for governor.`\
 https://nytimes.com/2025/09/25/nyregion/lee-zeldin-super-pac.html
-
-**Ticketmaster U.K. Agrees to Changes After Outrage Over Oasis Sales**\
-`The company agreed to give fans more information during the ticket-buying process to avoid unexpected prices.`\
-https://nytimes.com/2025/09/25/arts/music/ticketmaster-oasis-ticket-prices.html
 
