@@ -1,3 +1,7 @@
+**Ayuso joins Lidl-Trek after early UAE Team Emirates exit**\
+`Ayuso, 23, is considered one of the peloton’s best young climbing prospects but endured a turbulent season at UAE.`\
+https://nytimes.com/athletic/6660942/2025/09/25/juan-ayuso-lidl-trek-cycling/
+
 **How to watch Royals at Angels: Time, TV, streaming for September 25**\
 `Find out how to watch the Kansas City Royals play the Los Angeles Angels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6661023/2025/09/25/royals-vs-angels-stream-how-to-watch-sept-25/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/25/us/politics/democratic-report-disorder-doge.html
 **What We Know About the Shooting at a Dallas ICE Facility**\
 `One detainee was killed and two others were wounded after a gunman opened fire on Wednesday. The gunman died of a self-inflicted gunshot wound.`\
 https://nytimes.com/2025/09/25/us/dallas-ice-facility-shooting-suspect.html
-
-**How Coco Fusco’s Poetry and Performance Reshaped Contemporary Art**\
-`The first U.S. survey of the Cuban American artist’s films, photographs and installations explore her critical take on political culture.`\
-https://nytimes.com/2025/09/25/arts/design/coco-fusco-poetry-activism-art-el-museo-cuba.html
 
