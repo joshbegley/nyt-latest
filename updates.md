@@ -1,3 +1,7 @@
+**Immigrant Rights Groups Condemn Violent Rhetoric Against Officers, and Immigrants**\
+`In a tense national debate, inflammatory language is being singled out.`\
+https://nytimes.com/2025/09/24/us/ice-dallas-shooting-reaction-response.html
+
 **U.S. Attorney Races to Present Case Against James Comey**\
 `It remains to be seen whether a career prosecutor would be willing to present a case to a grand jury or whether jurors would bring an indictment.`\
 https://nytimes.com/2025/09/24/us/politics/james-comey-indictment.html
