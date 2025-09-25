@@ -1,3 +1,7 @@
+**3 Strong Earthquakes Strike Venezuela**\
+`The quakes occurred within about five hours and shook cities in Venezuela and Colombia. There were no immediate reports of casualties.`\
+https://nytimes.com/2025/09/25/world/americas/venezuela-earthquakes-maracaibo-colombia.html
+
 **The New York Times in Print for Thursday, Sep. 25, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/25/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6657915/2025/09/25/barcelona-rashford-hansi-flicks-
 **Villa, Emery and three days of turmoil: What are players thinking, how will they react?**\
 `Their manager called them 'lazy' and the sporting director has been replaced. It's been a busy week, and now attention turns to Europe.`\
 https://nytimes.com/athletic/6657269/2025/09/25/aston-villa-unai-emery-and-three-days-of-turmoil-what-are-players-thinking-and-how-will-they-react/
-
-**The Alternative Premier League Table: No 6 – How are teams using long balls?**\
-`When even Pep Guardiola's Manchester City are playing more direct, it's clear the division is going through of a tactical shift`\
-https://nytimes.com/athletic/6657882/2025/09/25/alternative-premier-league-table-no-6-long-ball-use/
 

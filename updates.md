@@ -1,3 +1,7 @@
+**3 Strong Earthquakes Strike Venezuela**\
+`The quakes occurred within about five hours and shook cities in Venezuela and Colombia. There were no immediate reports of casualties.`\
+https://nytimes.com/2025/09/25/world/americas/venezuela-earthquakes-maracaibo-colombia.html
+
 **The New York Times in Print for Thursday, Sep. 25, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/25/todays-new-york-times
