@@ -1,3 +1,7 @@
+**Arsenal's Saliba agrees new contract**\
+`Saliba had been the subject of interest from Real Madrid but is expected to sign his new deal in the coming days.`\
+https://nytimes.com/athletic/6344896/2025/09/25/william-saliba-contract-arsenal-new/
+
 **Runway Safety Bed Stops Skidding Plane in Virginia**\
 `The concrete bed stopped a commercial flight that lost control during landing. The safety system slows a runaway aircraft by collapsing under its weight.`\
 https://nytimes.com/2025/09/25/us/virginia-jet-roanoke-blacksburg-airport.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6660988/2025/09/25/dodgers-vs-diamondbacks-stream-h
 **How to watch Rockies at Mariners: Time, TV, streaming for September 25**\
 `Find out how to watch the Colorado Rockies play the Seattle Mariners, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6660972/2025/09/25/rockies-vs-mariners-stream-how-to-watch-sept-25/
-
-**How to watch Astros at Athletics: Time, TV, streaming for September 25**\
-`Find out how to watch the Houston Astros play the Athletics, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6660968/2025/09/25/astros-vs-athletics-stream-how-to-watch-sept-25/
 

@@ -1,3 +1,7 @@
+**Arsenal's Saliba agrees new contract**\
+`Saliba had been the subject of interest from Real Madrid but is expected to sign his new deal in the coming days.`\
+https://nytimes.com/athletic/6344896/2025/09/25/william-saliba-contract-arsenal-new/
+
 **Runway Safety Bed Stops Skidding Plane in Virginia**\
 `The concrete bed stopped a commercial flight that lost control during landing. The safety system slows a runaway aircraft by collapsing under its weight.`\
 https://nytimes.com/2025/09/25/us/virginia-jet-roanoke-blacksburg-airport.html
