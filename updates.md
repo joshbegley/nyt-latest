@@ -1,3 +1,7 @@
+**Israel Attacks Houthi Targets in Yemeni Capital**\
+`The airstrikes came a day after the Houthi militia launched a drone at the Israeli city of Eilat, wounding 20 people.`\
+https://nytimes.com/2025/09/25/world/middleeast/israel-yemen-houthis.html
+
 **Manhattan Theater Club Names First New Artistic Director in 53 Years**\
 `Nicki Hunter will succeed Lynne Meadow in December, taking charge of a major nonprofit that stages shows on and off Broadway.`\
 https://nytimes.com/2025/09/25/theater/manhattan-theater-club-nicki-hunter.html
