@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6660629/2025/09/25/mlb-playoff-watch-mariners-al-we
 `The coffee chain said it would shutter some underperforming U.S. stores and eliminate 900 corporate jobs as part of a plan to build “a better, stronger and more resilient Starbucks.”`\
 https://nytimes.com/2025/09/25/business/starbucks-job-cuts.html
 
-**Astros hoped their ace, Hunter Brown, would stop the spiral. He couldn't**\
+**Astros hoped their ace, Hunter Brown, would stop their spiral. He couldn't**\
 `The Astros needed a win. But their ace faltered and their lineup once again provided little to no run support.`\
 https://nytimes.com/athletic/6660753/2025/09/25/hunter-brown-astros-mlb-playoffs/
 
