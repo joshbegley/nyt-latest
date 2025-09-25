@@ -1,3 +1,7 @@
+**L.A. Wildfire Evacuations Were Slowed by Poor Visibility and System Weaknesses**\
+`An independent report on the January disaster found that emergency alerts were hampered by flawed policies, aging equipment and high winds.`\
+https://nytimes.com/2025/09/25/us/los-angeles-fires-evacuations-report.html
+
 **Netflix to stream Yankees-Giants on MLB Opening Day 2026: Sources**\
 `The game will be Netflix’s first exclusive stream, part of the new three-year agreement that MLB and the giant streamer have agreed to,`\
 https://nytimes.com/athletic/6662421/2025/09/25/netflix-stream-yankees-giants-mlb-opening-day-2026/

@@ -1,3 +1,7 @@
+**L.A. Wildfire Evacuations Were Slowed by Poor Visibility and System Weaknesses**\
+`An independent report on the January disaster found that emergency alerts were hampered by flawed policies, aging equipment and high winds.`\
+https://nytimes.com/2025/09/25/us/los-angeles-fires-evacuations-report.html
+
 **Netflix to stream Yankees-Giants on MLB Opening Day 2026: Sources**\
 `The game will be Netflix’s first exclusive stream, part of the new three-year agreement that MLB and the giant streamer have agreed to,`\
 https://nytimes.com/athletic/6662421/2025/09/25/netflix-stream-yankees-giants-mlb-opening-day-2026/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/25/us/politics/trump-argentina-milei-bailout.html
 **House Committee Opens Inquiry Into Uber Over Sexual Abuse**\
 `The inquiry comes weeks after a New York Times investigation found that incidents of sexual assault and sexual misconduct occurred much more frequently than Uber had disclosed.`\
 https://nytimes.com/2025/09/25/business/uber-sexual-assault-house-inquiry.html
-
-**Former Arsenal academy forward Billy Vigar dies aged 21 after sustaining brain injury**\
-`Vigar sustained the injury while playing for Chichester City in the seventh tier of English football against Wingate & Finchley on Saturday.`\
-https://nytimes.com/athletic/6662559/2025/09/25/billy-vigar-dies-arsenal-chichester/
 
