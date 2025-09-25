@@ -1,3 +1,19 @@
+**Denmark Briefly Closes More Airports After Unexplained Drone Sightings**\
+`Authorities shut a major airport for the second time in days, amid heightened concerns across Europe over Russian efforts to sow fear and instability.`\
+https://nytimes.com/2025/09/25/world/europe/drones-denmark-airport.html
+
+**A distraught Derrick Henry vows he'll find the fix to his fumbling issues**\
+`The 31-year-old running back says he's his own worst critic and has taken full accountability for his fumbling problems this season. `\
+https://nytimes.com/athletic/6659738/2025/09/25/ravens-derrick-henry-fumble-issues/
+
+**What made Ryan Williams the most upbeat star in CFB? It started with a near tragedy**\
+`A near-tragic car accident at 11 and the death of his grandfather motivated the Alabama receiver to find joy wherever he can.`\
+https://nytimes.com/athletic/6658330/2025/09/25/ryan-williams-alabama-football-receiver/
+
+**Long-shot NHL award picks: Quinn Hughes for Hart? Jack Hughes for Art Ross?**\
+`Dom Luszczyszyn, Sean Gentille and Sean McIndoe take their best swing at nailing long-shot winners for the NHL's major awards next season.`\
+https://nytimes.com/athletic/6659820/2025/09/25/nhl-award-picks-hart-art-ross-hughes/
+
 **How do you feed F1 VIPs? 3,000 lobsters per day and ‘a Hollywood movie on the go’**\
 `Each F1 race is packed with VIPs - usually paying a premium. They expect high hospitality service, which F1 works to deliver`\
 https://nytimes.com/athletic/6658903/2025/09/25/f1-formula-1-vip-food/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6659719/2025/09/25/panthers-receivers-health-tetair
 **What Caleb Williams' explosive game was — and wasn't — for the Bears**\
 `Bears fans know all too well that a quarterback performance can feel significant in the moment but ultimately mean little.`\
 https://nytimes.com/athletic/6659901/2025/09/25/bears-caleb-williams-fact-and-fiction/
-
-**Jadeveon Clowney believes he can make notable difference for struggling Cowboys defense**\
-`The Cowboys' four sacks through three games ranks 28th in the NFL. Dallas will welcome anything Clowney can bring to the pass rush.`\
-https://nytimes.com/athletic/6659721/2025/09/25/cowboys-jadeveon-clowney-packers/
-
-**How the Lions sacked Lamar Jackson 7 times and pressured him all game**\
-`"It takes everybody doing their job, and our guys did that,” Dan Campbell said of his team's pass rush in their Monday night win.`\
-https://nytimes.com/athletic/6660257/2025/09/25/lions-pass-rush-sacks-pressure-lamar-jackson/
-
-**Seahawks at Cardinals on TNF: Darnold vs. Murray, Lil Jon halftime, broadcast predictions**\
-`The Seahawks have won seven straight in this rivalry. The Cardinals will wear sandstorm jerseys. Here's what else to watch for on TNF.`\
-https://nytimes.com/athletic/6653196/2025/09/25/seahawks-cardinals-tnf-kyler-murray-sam-darnold-how-to-watch/
-
-**Could NASCAR eliminate its playoff system? Here's why it's being considered**\
-`The championship is currently decided by eliminations, which often do not focus on the best drivers, let alone reward them.`\
-https://nytimes.com/athletic/6658624/2025/09/25/nascar-playoff-system-change-full-season-chase/
 

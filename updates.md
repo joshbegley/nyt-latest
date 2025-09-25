@@ -1,3 +1,19 @@
+**Denmark Briefly Closes More Airports After Unexplained Drone Sightings**\
+`Authorities shut a major airport for the second time in days, amid heightened concerns across Europe over Russian efforts to sow fear and instability.`\
+https://nytimes.com/2025/09/25/world/europe/drones-denmark-airport.html
+
+**A distraught Derrick Henry vows he'll find the fix to his fumbling issues**\
+`The 31-year-old running back says he's his own worst critic and has taken full accountability for his fumbling problems this season. `\
+https://nytimes.com/athletic/6659738/2025/09/25/ravens-derrick-henry-fumble-issues/
+
+**What made Ryan Williams the most upbeat star in CFB? It started with a near tragedy**\
+`A near-tragic car accident at 11 and the death of his grandfather motivated the Alabama receiver to find joy wherever he can.`\
+https://nytimes.com/athletic/6658330/2025/09/25/ryan-williams-alabama-football-receiver/
+
+**Long-shot NHL award picks: Quinn Hughes for Hart? Jack Hughes for Art Ross?**\
+`Dom Luszczyszyn, Sean Gentille and Sean McIndoe take their best swing at nailing long-shot winners for the NHL's major awards next season.`\
+https://nytimes.com/athletic/6659820/2025/09/25/nhl-award-picks-hart-art-ross-hughes/
+
 **How do you feed F1 VIPs? 3,000 lobsters per day and ‘a Hollywood movie on the go’**\
 `Each F1 race is packed with VIPs - usually paying a premium. They expect high hospitality service, which F1 works to deliver`\
 https://nytimes.com/athletic/6658903/2025/09/25/f1-formula-1-vip-food/

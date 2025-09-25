@@ -1,5 +1,13 @@
+**South Korea’s New Tattoo Law Legalizes the Practice**\
+`For years, tattoo artists had to work in underground studios or windowless backrooms. They may soon be able to practice their craft in the open.`\
+https://nytimes.com/2025/09/25/world/asia/south-korea-tattoo-law.html
+
+**Four Browns thoughts with Lions up next: The more Quinshon Judkins, the better**\
+`Plus, what to make of Cleveland's O-line following the injury to Dawand Jones. And did the Week 3 victory buy Joe Flacco more time at QB?`\
+https://nytimes.com/athletic/6659646/2025/09/25/browns-quinshon-judkins-lions-week-4/
+
 **Denmark Briefly Closes More Airports After Unexplained Drone Sightings**\
-`Authorities shut a major airport for the second time in days, amid heightened concerns across Europe over Russian efforts to sow fear and instability.`\
+`Authorities shut a major airport for the second time in days, amid heightened concerns across Europe after Russian planes entered NATO airspace.`\
 https://nytimes.com/2025/09/25/world/europe/drones-denmark-airport.html
 
 **A distraught Derrick Henry vows he'll find the fix to his fumbling issues**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6655057/2025/09/25/maple-leafs-morgan-rielly-traini
 **Patrick Mahomes vowed to make a change. He's been a different QB since**\
 `Mahomes has reversed a years-long trend this season. The work started in the offseason.`\
 https://nytimes.com/athletic/6658490/2025/09/25/chiefs-patrick-mahomes-deep-ball/
-
-**What I'm seeing with the Panthers: Juggling WRs and secondary vs. top-10 QBs**\
-`Brycen Tremayne and David Moore bump up the depth chart with the Panthers' top four receivers missing practice.`\
-https://nytimes.com/athletic/6659719/2025/09/25/panthers-receivers-health-tetairoa-mcmillan-patriots/
-
-**What Caleb Williams' explosive game was — and wasn't — for the Bears**\
-`Bears fans know all too well that a quarterback performance can feel significant in the moment but ultimately mean little.`\
-https://nytimes.com/athletic/6659901/2025/09/25/bears-caleb-williams-fact-and-fiction/
 
