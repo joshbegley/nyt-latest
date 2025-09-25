@@ -1,3 +1,19 @@
+**Here’s what to know.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2025/09/25/world/united-nations-palestinian-abbas/heres-what-to-know
+
+**What to look forward to in a meaningless Giants-Rockies series**\
+`As far as the season goes, there's nothing on the line this weekend between the Giants and Rockies. But there are milestones to watch for.`\
+https://nytimes.com/athletic/6660598/2025/09/25/giants-rockies-series-preview/
+
+**U.N. General Assembly Updates: Palestinian Authority Leader, Barred by U.S., Set to Appear by Video**\
+`The address by the leader, Mahmoud Abbas, comes days after 10 Western countries joined 150 other nations in recognizing Palestinian statehood.`\
+https://nytimes.com/live/2025/09/25/world/united-nations-palestinian-abbas
+
+**Dodgers' bullpen puzzle gets some surprising relief in form of Kershaw, Sasaki**\
+`Late appearances from Kershaw and Sasaki reflected the level of desperation the Dodgers have right now.`\
+https://nytimes.com/athletic/6660811/2025/09/25/clayton-kershaw-roki-sasaki-dodgers-bullpen/
+
 **Gavi's five-month knee injury came as a shock to doctors and the dressing room**\
 `The 21-year-old midfielder has been ruled out of action for Barcelona, having only come back from a serious injury last October`\
 https://nytimes.com/athletic/6661183/2025/09/25/barcelona-gavi-knee-injury-surgery/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/09/25/business/starbucks-job-cuts.html
 **Astros hoped their ace, Hunter Brown, would stop their spiral. He couldn't**\
 `The Astros needed a win. But their ace faltered and their lineup once again provided little to no run support.`\
 https://nytimes.com/athletic/6660753/2025/09/25/hunter-brown-astros-mlb-playoffs/
-
-**The Pulse: The collapse is nearly complete**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6658416/2025/09/25/guardians-tigers-cal-raleigh-the-pulse/
-
-**Apple, Intel and a Potential Trump Factor**\
-`Talks about a potential investment by the iPhone maker raise further questions about the chip giant, which now has close ties to Washington.`\
-https://nytimes.com/2025/09/25/business/dealbook/apple-intel-trump.html
-
-**What Is a Day in Your Life Like?**\
-`If you were to make a video of a typical day, what scenes would you include?`\
-https://nytimes.com/2025/09/25/learning/what-is-a-day-in-your-life-like.html
-
-**Auburn's Steven Pearl hiring evokes coach-in-waiting skepticism (after much consultation)**\
-`Pearl, who rose through the ranks, may be the best coach to follow his dad. These selections don't always work and they invite scrutiny.`\
-https://nytimes.com/athletic/6659731/2025/09/25/auburn-steve-pearl-bruce-pearl-coach-in-waiting-basketball/
 

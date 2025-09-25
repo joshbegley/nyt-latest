@@ -1,3 +1,11 @@
+**Sonny Gray says he will reconsider his Cardinals future: 'I came here to win'**\
+`"I signed here two years ago with the expectation of winning and trying to win. That hasn't played out that way," the Cards ace said.`\
+https://nytimes.com/athletic/6660689/2025/09/25/sonny-gray-cardinals-future/
+
+**Mosquito-Borne Illness Rarely Seen in U.S. Is Suspected on Long Island**\
+`Chikungunya, which is endemic in parts of South America, Africa and Asia, may be the cause of a woman’s illness.`\
+https://nytimes.com/2025/09/25/nyregion/chikungunya-mosquito-illness-long-island.html
+
 **Here’s what to know.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2025/09/25/world/united-nations-palestinian-abbas/heres-what-to-know
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/25/us/politics/tylenol-tweet-2017-pregnancy-autism.h
 **MLB playoff watch: There's a new sheriff in the AL West; bracket, clinching scenarios**\
 `Plus, breaking down the AL East race as the Yankees and Blue Jays are tied atop the division.`\
 https://nytimes.com/athletic/6660629/2025/09/25/mlb-playoff-watch-mariners-al-west-clinch/
-
-**Starbucks to Cut Jobs, Close Stores and Take $1 Billion Hit in Revamp Effort**\
-`The coffee chain said it would shutter some underperforming U.S. stores and eliminate 900 corporate jobs as part of a plan to build “a better, stronger and more resilient Starbucks.”`\
-https://nytimes.com/2025/09/25/business/starbucks-job-cuts.html
-
-**Astros hoped their ace, Hunter Brown, would stop their spiral. He couldn't**\
-`The Astros needed a win. But their ace faltered and their lineup once again provided little to no run support.`\
-https://nytimes.com/athletic/6660753/2025/09/25/hunter-brown-astros-mlb-playoffs/
 

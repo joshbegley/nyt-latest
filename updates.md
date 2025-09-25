@@ -1,3 +1,19 @@
+**Here’s what to know.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2025/09/25/world/united-nations-palestinian-abbas/heres-what-to-know
+
+**What to look forward to in a meaningless Giants-Rockies series**\
+`As far as the season goes, there's nothing on the line this weekend between the Giants and Rockies. But there are milestones to watch for.`\
+https://nytimes.com/athletic/6660598/2025/09/25/giants-rockies-series-preview/
+
+**U.N. General Assembly Updates: Palestinian Authority Leader, Barred by U.S., Set to Appear by Video**\
+`The address by the leader, Mahmoud Abbas, comes days after 10 Western countries joined 150 other nations in recognizing Palestinian statehood.`\
+https://nytimes.com/live/2025/09/25/world/united-nations-palestinian-abbas
+
+**Dodgers' bullpen puzzle gets some surprising relief in form of Kershaw, Sasaki**\
+`Late appearances from Kershaw and Sasaki reflected the level of desperation the Dodgers have right now.`\
+https://nytimes.com/athletic/6660811/2025/09/25/clayton-kershaw-roki-sasaki-dodgers-bullpen/
+
 **Gavi's five-month knee injury came as a shock to doctors and the dressing room**\
 `The 21-year-old midfielder has been ruled out of action for Barcelona, having only come back from a serious injury last October`\
 https://nytimes.com/athletic/6661183/2025/09/25/barcelona-gavi-knee-injury-surgery/
