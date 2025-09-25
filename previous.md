@@ -1,3 +1,7 @@
+**Turning to Art After the Storm**\
+`A year after Hurricane Helene ravaged western North Carolina, some are trying to make sense of it all through creative expression, an outlet that has blossomed for centuries in this region.`\
+https://nytimes.com/interactive/2025/09/25/us/hurricane-helene-north-carolina-art.html
+
 **‘How About a Vegetarian Supper Dish That Has Protein, Carbs and Isn’t Beans and Rice or Beans on Pasta?’**\
 `Welcome (back) to Recipe Matchmaker, where I match hyper-specific reader requests with right-on recipes.`\
 https://nytimes.com/2025/09/25/dining/how-about-a-vegetarian-supper-dish-that-has-protein-carbs-and-isnt-beans-and-rice-or-beans-on-pasta.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/09/25/nyregion/report-super-pac-zeldin-camp
 **Trump at the U.N.: A Bitter Display**\
 `Readers criticize President Trump’s harsh speech. Also: Jimmy Kimmel’s return, and the F.C.C.’s threats; women in Congress; politics at the E.P.A.`\
 https://nytimes.com/2025/09/25/opinion/trump-united-nations.html
-
-**Eurovision Members to Vote on Whether to Exclude Israel**\
-`The event’s organizer has called an extraordinary general meeting for November, with countries like Spain and Ireland saying they will not take part in the contest if Israel does.`\
-https://nytimes.com/2025/09/25/arts/music/eurovision-israel-vote.html
 
