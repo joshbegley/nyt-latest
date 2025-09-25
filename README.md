@@ -1,3 +1,7 @@
+**Journalist Held by ICE Faces ‘Imminent’ Deportation, His Lawyers Say**\
+`The journalist, Mario Guevara, has been in Immigration and Customs Enforcement custody since June, when he was arrested while covering a “No Kings” protest outside Atlanta.`\
+https://nytimes.com/2025/09/24/us/politics/mario-guevara-journalist-deportation.html
+
 **Phillies bash their way to first-round playoff bye, homefield advantage in NLDS**\
 `With an 11-1 win over the Marlins and a franchise-record eight homers, the Phillies clinched a first-round bye for the second straight year.`\
 https://nytimes.com/athletic/6655932/2025/09/24/phillies-playoff-bye-nlds-homefield-advantage/
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/6659543/2025/09/24/phoenix-suns-mat-ishbia-media-da
 https://nytimes.com/2025/09/24/technology/intel-apple-talks-investment.html
 
 **Padres' Ramón Laureano (finger) to miss at least first round of postseason**\
-`The Padres (87-72) technically remain in contention for both a National League West title and the league’s top wild-card berth.`\
+`The Padres (87-72) technically remain in contention for a National League West title and the league's top wild-card berth.`\
 https://nytimes.com/athletic/6660110/2025/09/24/san-diego-padres-ramon-laureano-finger-injury/
 
 **Immigrant Rights Groups Condemn Violent Rhetoric Against Officers, and Immigrants**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6660040/2025/09/24/pirates-vs-reds-stream-how-to-wa
 **How to watch Rays at Orioles: Time, TV, streaming for September 25**\
 `Find out how to watch the Tampa Bay Rays play the Baltimore Orioles, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6660033/2025/09/24/rays-vs-orioles-stream-how-to-watch-sept-25/
-
-**How to watch Tigers at Guardians: Time, TV, streaming for September 25**\
-`Find out how to watch the Detroit Tigers play the Cleveland Guardians, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6660029/2025/09/24/tigers-vs-guardians-stream-how-to-watch-sept-25/
 
