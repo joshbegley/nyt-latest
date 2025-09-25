@@ -1,3 +1,11 @@
+**White House Eyes New Round of Mass Layoffs if Government Shuts Down**\
+`The president’s top aides told agencies to prepare for potential firings if Congress cannot extend funding before the end of Sept. 30.`\
+https://nytimes.com/2025/09/24/us/politics/trump-shutdown-layoffs.html
+
+**Tigers vs. Guardians: Valera's HR helps Cleveland take AL Central lead**\
+`Guardians' magic number is three, while Tigers lose eighth straight.`\
+https://nytimes.com/athletic/6660244/2025/09/24/guardians-tigers-takeaways-game-2-al-central-battle/
+
 **In Order to Make Sense**\
 `Jesse Goldberg’s puzzle just seems confusing. Once you get the trick, solving it is smooth sailing.`\
 https://nytimes.com/2025/09/24/crosswords/daily-puzzle-2025-09-25.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6659543/2025/09/24/phoenix-suns-mat-ishbia-media-da
 **Intel Said to Seek Investment From Apple**\
 `The Silicon Valley chipmaker has held talks with Apple about bolstering its finances as it looks to turn around its ailing business.`\
 https://nytimes.com/2025/09/24/technology/intel-apple-talks-investment.html
-
-**Padres' Ramón Laureano (finger) to miss at least NL Wild Card Series**\
-`The Padres (87-72) technically remain in contention for a National League West title and the league's top wild-card berth.`\
-https://nytimes.com/athletic/6660110/2025/09/24/san-diego-padres-ramon-laureano-finger-injury/
-
-**Immigrant Rights Groups Condemn Violent Rhetoric Against Officers, and Immigrants**\
-`In a tense national debate, inflammatory language is being singled out.`\
-https://nytimes.com/2025/09/24/us/ice-dallas-shooting-reaction-response.html
 

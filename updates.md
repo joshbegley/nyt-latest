@@ -1,3 +1,11 @@
+**White House Eyes New Round of Mass Layoffs if Government Shuts Down**\
+`The president’s top aides told agencies to prepare for potential firings if Congress cannot extend funding before the end of Sept. 30.`\
+https://nytimes.com/2025/09/24/us/politics/trump-shutdown-layoffs.html
+
+**Tigers vs. Guardians: Valera's HR helps Cleveland take AL Central lead**\
+`Guardians' magic number is three, while Tigers lose eighth straight.`\
+https://nytimes.com/athletic/6660244/2025/09/24/guardians-tigers-takeaways-game-2-al-central-battle/
+
 **In Order to Make Sense**\
 `Jesse Goldberg’s puzzle just seems confusing. Once you get the trick, solving it is smooth sailing.`\
 https://nytimes.com/2025/09/24/crosswords/daily-puzzle-2025-09-25.html
