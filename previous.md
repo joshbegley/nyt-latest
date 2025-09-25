@@ -1,5 +1,9 @@
+**TAFC: A 64-team World Cup - how much is too much? Plus: Messi closes in on MLS Golden Boot**\
+`Today in TAFC: A debate over whether FIFA's proposed 64-team World Cup could actually work`\
+https://nytimes.com/athletic/6660889/2025/09/25/tafc-newsletter-world-cup-messi/
+
 **Times Reporters Answer Your Vaccine Questions**\
-`We try to parse the chaotic vaccine landscape in the United States.`\
+`We received hundreds of queries about efficacy, safety, cost and access.`\
 https://nytimes.com/2025/09/25/us/times-reporters-answer-your-vaccine-questions.html
 
 **How to watch the 2025 Ryder Cup: Schedule, streaming, weather for U.S.-Europe clash**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6659566/2025/09/25/packers-cowboys-micah-parsons-je
 **Beau Pribula has outplayed Drew Allar. Did Penn State let the better QB get away?**\
 `If Allar and Penn State figure out the offense, fans will go back to wishing Pribula well at Missouri. If not, the question will persist.`\
 https://nytimes.com/athletic/6659521/2025/09/25/drew-allar-beau-pribula-comparison-penn-state-missouri/
-
-**Inside the freakish football mind of Caleb Downs: 'The best I’ve ever been around'**\
-`Downs' versatility at safety has dazzled from Day 1 at Alabama and now Ohio State thanks to an endless quest for knowledge.`\
-https://nytimes.com/athletic/6659246/2025/09/25/caleb-downs-ohio-state-college-football-nfl/
 

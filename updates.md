@@ -1,3 +1,11 @@
+**TAFC: A 64-team World Cup - how much is too much? Plus: Messi closes in on MLS Golden Boot**\
+`Today in TAFC: A debate over whether FIFA's proposed 64-team World Cup could actually work`\
+https://nytimes.com/athletic/6660889/2025/09/25/tafc-newsletter-world-cup-messi/
+
+**Times Reporters Answer Your Vaccine Questions**\
+`We received hundreds of queries about efficacy, safety, cost and access.`\
+https://nytimes.com/2025/09/25/us/times-reporters-answer-your-vaccine-questions.html
+
 **Times Reporters Answer Your Vaccine Questions**\
 `We try to parse the chaotic vaccine landscape in the United States.`\
 https://nytimes.com/2025/09/25/us/times-reporters-answer-your-vaccine-questions.html
