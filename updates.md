@@ -1,3 +1,7 @@
+**‘How About a Vegetarian Supper Dish That Has Protein, Carbs and Isn’t Beans and Rice or Beans on Pasta?’**\
+`Welcome (back) to Recipe Matchmaker, where I match hyper-specific reader requests with right-on recipes.`\
+https://nytimes.com/2025/09/25/dining/how-about-a-vegetarian-supper-dish-that-has-protein-carbs-and-isnt-beans-and-rice-or-beans-on-pasta.html
+
 **Microsoft Disables Some Services to Israel’s Defense Ministry**\
 `Microsoft said it found that Israel was violating some terms of service for its products and that it does “not provide technology to facilitate mass surveillance of civilians.”`\
 https://nytimes.com/2025/09/25/technology/microsoft-israel-defense-ministry.html
