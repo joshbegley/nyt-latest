@@ -1,3 +1,7 @@
+**Mathys Tel has his manager's backing but is still struggling to establish himself at Spurs**\
+`Tel worked hard but was unable to make a significant impact against Doncaster in the Carabao Cup - and future opportunities look scarce`\
+https://nytimes.com/athletic/6659664/2025/09/25/mathys-tel-tottenham-hotspur-thomas-frank/
+
 **How to watch Bengals at Broncos: Time, TV, streaming**\
 `Find out how to watch the Cincinnati Bengals play the Denver Broncos, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6660795/2025/09/25/bengals-vs-broncos-stream-how-to-watch-sept-29/

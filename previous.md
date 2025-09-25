@@ -1,3 +1,7 @@
+**Mathys Tel has his manager's backing but is still struggling to establish himself at Spurs**\
+`Tel worked hard but was unable to make a significant impact against Doncaster in the Carabao Cup - and future opportunities look scarce`\
+https://nytimes.com/athletic/6659664/2025/09/25/mathys-tel-tottenham-hotspur-thomas-frank/
+
 **How to watch Bengals at Broncos: Time, TV, streaming**\
 `Find out how to watch the Cincinnati Bengals play the Denver Broncos, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6660795/2025/09/25/bengals-vs-broncos-stream-how-to-watch-sept-29/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/25/world/americas/venezuela-earthquakes-maracaibo-co
 **The New York Times in Print for Thursday, Sep. 25, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/25/todays-new-york-times
-
-**Lionel Messi takes lead in Golden Boot race as Inter Miami thrashes NYCFC**\
-`Messi and Inter Miami clinched their spot in the MLS playoffs thanks to his late-game heroics.`\
-https://nytimes.com/athletic/6660589/2025/09/25/lionel-messi-golden-boot-inter-miami-playoffs/
 
