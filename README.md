@@ -1,3 +1,15 @@
+**Leeds' Anton Stach: Hitting the right tone with his off-the-wall social media output**\
+`The German has caught the eye since joining Leeds in July: both on the pitch and for his approach to posting online before and after games`\
+https://nytimes.com/athletic/6658149/2025/09/25/anton-stach-social-media-leeds-united/
+
+**England have picked one spinner for the Ashes. Good luck, Shoaib Bashir**\
+`Shoaib Bashir is the only specialist slow bowler in their Ashes squad and he faces a tough task`\
+https://nytimes.com/athletic/6658618/2025/09/25/england-spinners-ashes-selection-bashir/
+
+**The Rashford rule? Hansi Flick's crusade against lateness (and other vices)**\
+`The German manager has introduced a greater sense of discipline at Barca since his arrival as manager last summer`\
+https://nytimes.com/athletic/6657915/2025/09/25/barcelona-rashford-hansi-flicks-lateness/
+
 **The Alternative Premier League Table: No 6 – How are teams using long balls?**\
 `When even Pep Guardiola's Manchester City are playing more direct, it's clear the division is going through of a tactical shift`\
 https://nytimes.com/athletic/6657882/2025/09/25/alternative-premier-league-table-no-6-long-ball-use/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6657269/2025/09/25/aston-villa-unai-emery-and-three
 **Infantino appeals for world peace, claims conflicts leave him in tears**\
 `The FIFA president filled his Atlantic Council award acceptance speech with emotion - and politics`\
 https://nytimes.com/athletic/6660483/2025/09/25/infantino-world-cup-fifa-peace-gaza-ukraine-sudan/
-
-**Business of Football: What went on at PL meeting? Summer Series falls flat, and multi-club crypto**\
-`Trying to match UEFA spending rules causes issues, U.S. pre-season tournament continues to lose money and the latest crypto investment...`\
-https://nytimes.com/athletic/6657520/2025/09/25/business-of-football-premier-league-shareholders/
-
-**Behind Cal Raleigh's 60th homer, Mariners clinch first AL West crown since 2001**\
-`Seattle has officially dethroned Houston after seven consecutive full-season division titles for the Astros.`\
-https://nytimes.com/athletic/6660487/2025/09/25/seattle-mariners-al-west-clinched/
-
-**For Trump, Data Is Often ‘Phony,’ Unless It Supports His Views**\
-`The president has ping-ponged between boasts about jobs and crime and attacks on their data sources. Here’s how he is threatening trust in public data.`\
-https://nytimes.com/interactive/2025/09/25/us/politics/trump-data-facts.html
 
