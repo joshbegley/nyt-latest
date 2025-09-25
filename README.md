@@ -1,3 +1,15 @@
+**Maxine Clair, Writer Who Came to Her Craft in Middle Age, Dies at 86**\
+`She published her first book of poems at 49 and her first work of prose, the acclaimed novel “Rattlebone,” six years later.`\
+https://nytimes.com/2025/09/25/books/maxine-clair-dead.html
+
+**Wild unveil 25th anniversary jersey, pay homage to inaugural season**\
+`The jersey resembles the original white sweater worn by Minnesota in 2000 and will be worn four times during the milestone 2025-26 season.`\
+https://nytimes.com/athletic/6659741/2025/09/25/wild-25th-anniversary-jersey/
+
+**What Teenagers Are Saying About the Rising Cost of Youth Sports**\
+`Students react to an article about the transformation of youth athletics into a multibillion-dollar industry and share how it affects their participation.`\
+https://nytimes.com/2025/09/25/learning/what-teenagers-are-saying-about-the-rising-cost-of-youth-sports.html
+
 **What to expect as President Trump attends the Ryder Cup**\
 `Three weeks ago, Trump’s visit to the U.S. Open men's tennis final led organizers to delay the start of the match.`\
 https://nytimes.com/athletic/6661732/2025/09/25/donald-trump-ryder-cup-visit-bethpage-black-ny/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/25/business/china-soybean-sales-farmers.html
 **He’s the Next Big Thing Out of the U.K. Underground**\
 `The New York Times critic Jon Caramanica is in the driver’s seat explaining why you need to know the rapper Fakemink.`\
 https://nytimes.com/video/podcasts/100000010420238/hes-the-next-big-thing-out-of-the-uk-underground.html
-
-**Amazon to Pay $2.5 Billion to Settle Claims It Tricked Prime Customers**\
-`The settlement is one of the largest in the history of the Federal Trade Commission, which sued Amazon two years ago.`\
-https://nytimes.com/2025/09/25/technology/amazon-ftc-settlement.html
-
-**Sara Jane Moore, Would-Be Assassin of President Ford, Dies at 95**\
-`A mother of four on the fringes of radical leftist movements, she fired at the president outside a San Francisco hotel in 1975. She had hoped to spark a revolution, she said.`\
-https://nytimes.com/2025/09/25/us/sara-jane-moore-dead.html
-
-**Wyden Presses JPMorgan Chief Dimon for Answers on Jeffrey Epstein**\
-`Senator Ron Wyden, Democrat of Oregon, sent a list of questions to Jamie Dimon, head of the country’s biggest bank, about its financial relationships with Mr. Epstein, the convicted sex offender.`\
-https://nytimes.com/2025/09/25/us/politics/jpmorgan-jeffrey-epstein-dimon-wyden.html
 
