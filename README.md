@@ -1,3 +1,11 @@
+**Stream With a Lot of Shade**\
+`Larry Snyder’s puzzle gave me a run for my money.`\
+https://nytimes.com/2025/09/25/crosswords/daily-puzzle-2025-09-26.html
+
+**‘The Other Americans’ Review: John Leguizamo’s Family Drama Aims Big**\
+`For the first play he’s written, the actor stars as a striving Colombian American patriarch in the mold of Willy Loman or Walter Younger.`\
+https://nytimes.com/2025/09/25/theater/the-other-americans-review-john-leguizamo.html
+
 **Tigers vs. Guardians: Detroit ends 8-game skid, ties Cleveland for AL Central lead**\
 `With three games left, the Tigers and Guardians share first place in the AL Central, but Cleveland holds the head-to-head tiebreaker.`\
 https://nytimes.com/athletic/6663155/2025/09/25/tigers-guardians-takeaways-game-3-al-central-battle/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6663606/2025/09/25/los-angeles-dodgers-clayton-kers
 **U.S. Agent Pushes Woman to Floor in Immigration Courthouse Confrontation**\
 `In a scene caught on video, the woman and a young girl were clinging to a man who was being detained. Agents pulled their hair, then one shoved the woman after she touched his chest.`\
 https://nytimes.com/2025/09/25/nyregion/ice-push-woman-nyc.html
-
-**How to watch Pirates at Braves: Time, TV, streaming for September 26**\
-`Find out how to watch the Pittsburgh Pirates play the Atlanta Braves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6663641/2025/09/25/pirates-vs-braves-stream-how-to-watch-sept-26/
-
-**How to watch Rangers at Guardians: Time, TV, streaming for September 26**\
-`Find out how to watch the Texas Rangers play the Cleveland Guardians, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6663639/2025/09/25/rangers-vs-guardians-stream-how-to-watch-sept-26/
 

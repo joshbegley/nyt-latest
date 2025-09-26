@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6663155/2025/09/25/tigers-guardians-takeaways-game-3-al-central-battle/
 
 **In potentially his final Astros start, Framber Valdez keeps Houston's playoff hopes alive**\
-`If that is Valdez’s last act in an Astros uniform, it is a fitting sendoff for an under-appreciated southpaw that sometimes tested patience.`\
+`If that is Valdez’s last act in an Astros uniform, it is a fitting sendoff for an underappreciated southpaw who sometimes tested patience.`\
 https://nytimes.com/athletic/6663826/2025/09/25/houston-astros-framber-valdez-playoff-hopes/
 
 **Did Noelvi Marte save Reds' season? 'One of the best plays I’ve ever seen'**\
