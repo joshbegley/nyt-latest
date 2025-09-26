@@ -1,3 +1,15 @@
+**Jayden Daniels, Terry McLaurin ruled out for Commanders in Week 4 vs. Falcons**\
+`Daniels was limited in practice for two days as he recovers from a knee sprain, and McLaurin was absent all week because of a quad injury.`\
+https://nytimes.com/athletic/6662879/2025/09/26/jayden-daniels-terry-mclaurin-out-falcons-week-4/
+
+**Explaining the Rare Fujiwhara Effect on Hurricanes**\
+`When two storms swirl around a shared center point, one can absorb another.`\
+https://nytimes.com/2025/09/26/weather/fujiwhara-effect-imelda-humberto.html
+
+**Brief Comey Indictment Prompts Questions and Criticism**\
+`The two-page indictment of James B. Comey, the former F.B.I. director, offered little indication of the evidence that would be presented at a trial. Some legal experts called it flimsy and dangerous.`\
+https://nytimes.com/2025/09/26/us/politics/comey-indictment-legal-reaction.html
+
 **Trump’s New Tariffs Hit Furniture and Home Goods Stocks**\
 `Shares of Williams-Sonoma and RH fell in early trading, while U.S.-based makers like Ethan Allen rose after the president’s latest tariff announcement.`\
 https://nytimes.com/2025/09/26/business/trumps-tariffs-furniture-home-goods-stocks.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6665459/2025/09/26/aleksander-barkov-injury-update-
 **Canadiens defenseman David Reinbacher out 4 weeks with broken finger**\
 `It is the second straight year Reinbacher has been injured in a preseason game against the Maple Leafs.`\
 https://nytimes.com/athletic/6665446/2025/09/26/canadiens-david-reinbacher-out-4-weeks-broken-finger/
-
-**Trump arrives at Ryder Cup with the United States down big**\
-`Air Force One flew over Bethpage Black on Long Island at 11 a.m.`\
-https://nytimes.com/athletic/6665110/2025/09/26/donald-trump-ryder-cup-arrives-attendance-bethpage/
-
-**How to Prepare for the Jungle**\
-`Hear from the wildlife biologist and presenter Lizzie Daly about how she gets ready to tag jaguars in the wetlands of South America.`\
-https://nytimes.com/paidpost/loreal-groupe/how-to-prepare-for-the-jungle.html
-
-**Maple Leafs sign goaltender James Reimer to PTO**\
-`The Maple Leafs are looking for support in the crease following Joseph Woll's leave of absence from the team.`\
-https://nytimes.com/athletic/6665420/2025/09/26/maple-leafs-james-reimer-pto-contract/
 

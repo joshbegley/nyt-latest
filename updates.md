@@ -1,3 +1,7 @@
+**Trump’s New Tariffs Hit Furniture and Home Goods Stocks**\
+`Shares of Williams-Sonoma and RH fell in early trading, while U.S.-based makers like Ethan Allen rose after the president’s latest tariff announcement.`\
+https://nytimes.com/2025/09/26/business/trumps-tariffs-furniture-home-goods-stocks.html
+
 **Boots Made For More Than Just Walking**\
 `A roundup of flat, knee-high styles that are both practical and pleasing to the eye.`\
 https://nytimes.com/2025/09/26/t-magazine/best-flat-boots.html
