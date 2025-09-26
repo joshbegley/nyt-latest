@@ -1,3 +1,7 @@
+**Word of the Day: nemesis**\
+`This word has appeared in 252 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/09/26/learning/word-of-the-day-nemesis.html
+
 **Villa Park's criticism of Rogers will have stung, but this slump could be the making of him**\
 `Rogers is integral to Villa, so his nosedive in form has been felt harshly - can he grow from overcoming this adversity?`\
 https://nytimes.com/athletic/6663256/2025/09/26/morgan-rogers-villa-criticism/

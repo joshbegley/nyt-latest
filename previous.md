@@ -1,3 +1,7 @@
+**Word of the Day: nemesis**\
+`This word has appeared in 252 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/09/26/learning/word-of-the-day-nemesis.html
+
 **Villa Park's criticism of Rogers will have stung, but this slump could be the making of him**\
 `Rogers is integral to Villa, so his nosedive in form has been felt harshly - can he grow from overcoming this adversity?`\
 https://nytimes.com/athletic/6663256/2025/09/26/morgan-rogers-villa-criticism/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6566664/2025/09/26/kadioglu-brighton-interview-inju
 **What's behind Wrexham's poor form at home?**\
 `Wrexham's home form propelled them through the leagues, but has now flatlined. Is it just down to the strength of their Championship rivals?`\
 https://nytimes.com/athletic/6654067/2025/09/26/wrexham-home-form/
-
-**Can Arsenal afford to be more adventurous against Newcastle?**\
-`Since beating Newcastle 2-0 in May 2023, Arsenal have failed to score in their last three visits to St. James' Park in all competitions`\
-https://nytimes.com/athletic/6661142/2025/09/26/arsenal-newcastle-premier-league-arteta/
 

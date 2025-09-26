@@ -1,3 +1,35 @@
+**How to watch White Sox at Nationals: Time, TV, streaming for September 26**\
+`Find out how to watch the Chicago White Sox play the Washington Nationals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6664312/2025/09/26/white-sox-vs-nationals-stream-how-to-watch-sept-26/
+
+**How to watch Reds at Brewers: Time, TV, streaming for September 26**\
+`Find out how to watch the Cincinnati Reds play the Milwaukee Brewers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6664310/2025/09/26/reds-vs-brewers-stream-how-to-watch-sept-26/
+
+**How to watch Orioles at Yankees: Time, TV, streaming for September 26**\
+`Find out how to watch the Baltimore Orioles play the New York Yankees, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6664307/2025/09/26/orioles-vs-yankees-stream-how-to-watch-sept-26/
+
+**How to watch Mets at Marlins: Time, TV, streaming for September 26**\
+`Find out how to watch the New York Mets play the Miami Marlins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6664303/2025/09/26/mets-vs-marlins-stream-how-to-watch-sept-26/
+
+**How to watch Tigers at Red Sox: Time, TV, streaming for September 26**\
+`Find out how to watch the Detroit Tigers play the Boston Red Sox, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6664301/2025/09/26/tigers-vs-red-sox-stream-how-to-watch-sept-26/
+
+**How to watch Diamondbacks at Padres: Time, TV, streaming for September 26**\
+`Find out how to watch the Arizona Diamondbacks play the San Diego Padres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6664299/2025/09/26/diamondbacks-vs-padres-stream-how-to-watch-sept-26/
+
+**How to watch Rays at Blue Jays: Time, TV, streaming for September 26**\
+`Find out how to watch the Tampa Bay Rays play the Toronto Blue Jays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6664293/2025/09/26/rays-vs-blue-jays-stream-how-to-watch-sept-26/
+
+**How to watch Cardinals at Cubs: Time, TV, streaming for September 26**\
+`Find out how to watch the St. Louis Cardinals play the Chicago Cubs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6664289/2025/09/26/cardinals-vs-cubs-stream-how-to-watch-sept-26/
+
 **Word of the Day: nemesis**\
 `This word has appeared in 252 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/09/26/learning/word-of-the-day-nemesis.html
@@ -5,36 +37,4 @@ https://nytimes.com/2025/09/26/learning/word-of-the-day-nemesis.html
 **Villa Park's criticism of Rogers will have stung, but this slump could be the making of him**\
 `Rogers is integral to Villa, so his nosedive in form has been felt harshly - can he grow from overcoming this adversity?`\
 https://nytimes.com/athletic/6663256/2025/09/26/morgan-rogers-villa-criticism/
-
-**The New York Times in Print for Friday, Sep. 26, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/09/26/todays-new-york-times
-
-**China Is the Adult in the Room on Climate Now**\
-`While the West is distracted and divided, China is focused and surging ahead.`\
-https://nytimes.com/2025/09/26/opinion/china-solar-electric-vehicles-climate-change.html
-
-**Abbas’s Message to the United Nations**\
-`The president of the Palestinian Authority addressed the U.N. General Assembly by video after the U.S. denied him a visa.`\
-https://nytimes.com/2025/09/26/briefing/united-nations-trump-comey.html
-
-**As Trump Tries to Limit Foreign Workers, China Woos Them**\
-`A new visa for science and engineering graduates is part of China’s effort to establish itself as the world leader in science and technology.`\
-https://nytimes.com/2025/09/26/world/asia/china-tech-workers-visas-us-h1b.html
-
-**A history of Croke Park, the NFL's latest venue across the Pond**\
-`The Pittsburgh Steelers and Minnesota Vikings will bring NFL to Dublin's iconic arena, a stadium that has been at the heart of Irish history`\
-https://nytimes.com/athletic/6542443/2025/09/26/croke-park-nfl-pittsburgh-steelers-minnesota-vikings/
-
-**Constructing the ideal FPL wildcard draft for Gameweek 6 and beyond**\
-`Abdul Rehman picks a line-up for FPL managers hitting the reset button this gameweek that maximises form, fixtures and flexibility`\
-https://nytimes.com/athletic/6659127/2025/09/26/fantasy-premier-league-constructing-the-ideal-gameweek-6-wildcard-draft/
-
-**Ferdi Kadioglu: 'I had a lot of pain for a long time - it took longer than expected'**\
-`Kadioglu was injured early in his debut season at Brighton - he tells The Athletic exactly how frustrating his road to recovery has been`\
-https://nytimes.com/athletic/6566664/2025/09/26/kadioglu-brighton-interview-injury/
-
-**What's behind Wrexham's poor form at home?**\
-`Wrexham's home form propelled them through the leagues, but has now flatlined. Is it just down to the strength of their Championship rivals?`\
-https://nytimes.com/athletic/6654067/2025/09/26/wrexham-home-form/
 
