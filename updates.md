@@ -1,3 +1,11 @@
+**The New York Times in Print for Friday, Sep. 26, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/26/todays-new-york-times
+
+**China Is the Adult in the Room on Climate Now**\
+`While the West is distracted and divided, China is focused and surging ahead.`\
+https://nytimes.com/2025/09/26/opinion/china-solar-electric-vehicles-climate-change.html
+
 **What should Manchester United and Ruben Amorim be aiming for this season?**\
 `A sixth-place finish should be achievable. Defeats, especially against top sides, will hurt but they shouldn’t herald doom
 `\
