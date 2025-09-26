@@ -1,3 +1,11 @@
+**Garcia out six weeks with knee injury, Raphinha out three weeks with thigh issue, Barca say**\
+`Both players will miss the Champions League match against Paris Saint-Germain on October 1.`\
+https://nytimes.com/athletic/6664708/2025/09/26/raphinha-joan-garcia-injury-barcelona/
+
+**‘Peak SF’ on a Friday Night Is a Robot Fight**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/san-francisco-robot-fight
+
 **Britain Is Introducing a Digital ID. Here’s How It Is Expected to Work.**\
 `The government said the new system would help to curb illegal migration, but opponents said it would infringe on citizens’ privacy.`\
 https://nytimes.com/2025/09/26/world/europe/uk-digital-id-britcard-starmer.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/26/business/europe-pharma-tariffs-trump.html
 **Glasner not worried about Guehi facing Liverpool after failed transfer**\
 `Guehi was close to a move to Liverpool during the transfer window, but the move broke down dramatically on deadline day.`\
 https://nytimes.com/athletic/6665078/2025/09/26/guehi-liverpool-palace-transfer-glasner-game/
-
-**Newcastle owners inject further £111.5 million into club**\
-`This is the ninth cash injection since the Tyneside club's takeover in 2021, by a consortium led by Saudi Arabia’s Public Investment Fund.`\
-https://nytimes.com/athletic/6665073/2025/09/26/newcastle-owners-money-injection/
-
-**Book Club: Let’s Discuss ‘Pride and Prejudice’**\
-`Jane Austen’s classic, about the tortured romance of two people frazzled by miscommunications and assumptions, still feels fresh 250 years after Austen’s birth.`\
-https://nytimes.com/2025/09/26/books/review/podcast-pride-prejudice-book-club.html
 
