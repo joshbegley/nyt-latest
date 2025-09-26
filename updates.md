@@ -1,3 +1,11 @@
+**Tom Cillo, playing college football at 58, signs NIL deal with pain-relief brand**\
+`Tom Cillo, the 58-year-old defensive lineman and powerlifter hoping to become the oldest player to play in a college football game since 2009, is building his own brand.`\
+https://nytimes.com/athletic/6665695/2025/09/26/tom-cillo-nil-deal-player-oldest/
+
+**Guardians AL Central favorites after Tigers’ epic collapse. See how the odds moved**\
+`The AL Central division race has been a rollercoaster of late, thanks to an epic collapse by the Tigers. See all the odds movement here.`\
+https://nytimes.com/athletic/6665536/2025/09/26/guardians-al-central-favorites-over-tigers-odds-movement/
+
 **The World’s 50 Best Restaurants Announces Its North American Picks**\
 `At the top of the new list is Atomix, a refined Korean tasting-menu spot in New York. But other rankings take a surprising turn to the casual.`\
 https://nytimes.com/2025/09/26/dining/worlds-50-best-restaurants-north-america.html
