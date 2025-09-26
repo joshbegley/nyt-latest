@@ -1,3 +1,7 @@
+**Kepner: On MLB’s final weekend, it's all chaos and confusion until the playoff field is set**\
+`Eleven of the 15 series played over the next three days will determine what we're watching in the postseason next week.`\
+https://nytimes.com/athletic/6664122/2025/09/26/mlb-final-weekend-season-playoffs/
+
 **The Pulse: A TNF classic**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6662226/2025/09/26/seahawks-cardinals-tnf-the-pulse/
