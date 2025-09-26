@@ -1,3 +1,11 @@
+**Chiefs' Kelce says heated exchange with Reid vs. Giants is no big deal**\
+`"I love that guy, man," Kelce said about the confrontation with Reid on the sidelines of Sunday's game versus the Giants.`\
+https://nytimes.com/athletic/6666013/2025/09/26/chiefs-travis-kelce-andy-reid-giants/
+
+**Trail Blazers' Scoot Henderson tears hamstring, will miss start of season**\
+`Henderson expected to enter training camp to compete with Jrue Holiday for the starting point guard spot.`\
+https://nytimes.com/athletic/6665904/2025/09/26/trail-blazers-scoot-henderson-tears-hamstring/
+
 **Summoned U.S. Military Officers Are Expected to Hear a Rally-the-Troops Message**\
 `Several generals and admirals said the unusual meeting in the Washington area called by Defense Secretary Pete Hegseth would be both disruptive and expensive.`\
 https://nytimes.com/2025/09/26/us/politics/hegseth-military-summit.html

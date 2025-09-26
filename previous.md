@@ -1,3 +1,7 @@
+**Chiefs' Kelce says heated exchange with Reid vs. Giants is no big deal**\
+`"I love that guy, man," Kelce said about the confrontation with Reid on the sidelines of Sunday's game versus the Giants.`\
+https://nytimes.com/athletic/6666013/2025/09/26/chiefs-travis-kelce-andy-reid-giants/
+
 **Summoned U.S. Military Officers Are Expected to Hear a Rally-the-Troops Message**\
 `Several generals and admirals said the unusual meeting in the Washington area called by Defense Secretary Pete Hegseth would be both disruptive and expensive.`\
 https://nytimes.com/2025/09/26/us/politics/hegseth-military-summit.html
@@ -15,7 +19,7 @@ https://nytimes.com/2025/09/26/us/des-moines-schools-immigration.html
 https://nytimes.com/2025/09/26/well/huntingtons-disease-treatment.html
 
 **Trail Blazers' Scoot Henderson tears hamstring, will miss start of season**\
-`Portland tips off the season Oct. 8 against the Golden State Warriors.`\
+`Henderson expected to enter training camp to compete with Jrue Holiday for the starting point guard spot.`\
 https://nytimes.com/athletic/6665904/2025/09/26/trail-blazers-scoot-henderson-tears-hamstring/
 
 **Aron Bell, Last Surviving Brother of World War II Resistance Group, Dies at 98**\
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/09/26/upshot/flashback.html
 **Jaguars' Liam Coen responds to 49ers' Robert Saleh's comments about signal-stealing system**\
 `"It’s a lot of hard work that goes into game planning and trying to put your players in the best position to be successful," Coen responded.`\
 https://nytimes.com/athletic/6665744/2025/09/26/sign-stealing-robert-saleh-liam-coen-49ers-jaguars/
-
-**Patriots defensive coordinator Terrell Williams diagnosed with prostate cancer**\
-`Williams, 51, has spent time away from the team in recent weeks. Linebackers coach Zak Kuhr will continue to call the plays on defense.`\
-https://nytimes.com/athletic/6665725/2025/09/26/terrell-williams-patriots-prostate-cancer/
 
