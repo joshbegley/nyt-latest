@@ -1,6 +1,10 @@
+**Flashback: Your Weekly History Quiz, Sept. 27, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/09/26/upshot/flashback.html
+
 **Jaguars' Liam Coen responds to 49ers' Robert Saleh's comments about signal-stealing system**\
 `"It’s a lot of hard work that goes into game planning and trying to put your players in the best position to be successful," Coen responded.`\
-https://nytimes.com/athletic/6665744/2025/09/26/jaguars-liam-coen-responds-to-49ers-robert-salehs-comments-about-signal-stealing-system/
+https://nytimes.com/athletic/6665744/2025/09/26/sign-stealing-robert-saleh-liam-coen-49ers-jaguars/
 
 **Patriots defensive coordinator Terrell Williams diagnosed with prostate cancer**\
 `Williams, 51, has spent time away from the team in recent weeks. Linebackers coach Zak Kuhr will continue to call the plays on defense.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/26/us/politics/memphis-national-guard-crime.html
 **Kuwait to host Trophee des Champions between PSG and Marseille**\
 `The fixture will take place at the 58,000-capacity Jaber Al-Ahmad International Stadium in January.`\
 https://nytimes.com/athletic/6665722/2025/09/26/psg-marseille-trophee-des-champions-kuwait/
-
-**MLB playoff tiebreakers: A handy guide to navigate AL, NL postseason race chaos**\
-`We’ve figured out every one of the tiebreakers that could still be in play (hopefully), including for a possible four-way tie in the AL. `\
-https://nytimes.com/athletic/6665763/2025/09/26/mlb-playoff-tiebreakers-al-nl/
 
