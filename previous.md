@@ -1,3 +1,7 @@
+**Sergio Busquets announces retirement: 'These will be my final months on the pitch'**\
+`The former Barcelona and Spain midfielder, 37, made the announcement on Friday `\
+https://nytimes.com/athletic/6664445/2025/09/26/sergio-busquets-retirement-football-news/
+
 **What happens when President Trump attends major sports events - and why he does it**\
 `The U.S. president has attended several major sporting events this year, and will be at the Ryder Cup this weekend `\
 https://nytimes.com/athletic/6659006/2025/09/26/trump-major-sporting-events-ryder-cup-nfl-fifa-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/26/nyregion/hudson-yards-related-companies.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/09/26/crosswords/spelling-bee-forum.html
-
-**The vanishing of Oscar Pistorius**\
-`One of sport's most notorious figures is now an invisible presence, both in his home town and at the championships he once dominated `\
-https://nytimes.com/athletic/6657450/2025/09/26/oscar-pistorius-reeva-steenkamp-legacy/
 

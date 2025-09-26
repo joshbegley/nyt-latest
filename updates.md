@@ -1,3 +1,7 @@
+**Sergio Busquets announces retirement: 'These will be my final months on the pitch'**\
+`The former Barcelona and Spain midfielder, 37, made the announcement on Friday `\
+https://nytimes.com/athletic/6664445/2025/09/26/sergio-busquets-retirement-football-news/
+
 **What happens when President Trump attends major sports events - and why he does it**\
 `The U.S. president has attended several major sporting events this year, and will be at the Ryder Cup this weekend `\
 https://nytimes.com/athletic/6659006/2025/09/26/trump-major-sporting-events-ryder-cup-nfl-fifa-world-cup/
