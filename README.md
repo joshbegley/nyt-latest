@@ -1,10 +1,18 @@
+**Jaguars' Liam Coen responds to 49ers' Robert Saleh's comments about signal-stealing system**\
+`"It’s a lot of hard work that goes into game planning and trying to put your players in the best position to be successful," Coen responded.`\
+https://nytimes.com/athletic/6665744/2025/09/26/jaguars-liam-coen-responds-to-49ers-robert-salehs-comments-about-signal-stealing-system/
+
+**Patriots defensive coordinator Terrell Williams diagnosed with prostate cancer**\
+`Williams, 51, has spent time away from the team in recent weeks. Linebackers coach Zak Kuhr will continue to call the plays on defense.`\
+https://nytimes.com/athletic/6665725/2025/09/26/terrell-williams-patriots-prostate-cancer/
+
 **Gunman from shooting at NFL headquarters had CTE, medical examiner says**\
 `Shane Tamura killed four people in the July shooting at a Midtown Manhattan office building.`\
 https://nytimes.com/athletic/6665817/2025/09/26/nfl-headquarters-gunman-cte/
 
 **The Comey Indictment Plunges the Country Into a Grave New Period**\
 `As despots have done for centuries, Trump is persecuting people he considers his enemies, with little justification other than raw political power.`\
-https://nytimes.com/2025/09/26/opinion/editorials/comey-indictment-justice-department.html
+https://nytimes.com/2025/09/26/opinion/comey-indictment-justice-department.html
 
 **Defiant Netanyahu Denounces Palestine Recognition, to a Mostly Empty U.N. Hall**\
 `A Palestinian state would be “national suicide” for Israel, Prime Minister Benjamin Netanyahu said, but many of the diplomats and leaders at the assembly boycotted his remarks.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6665722/2025/09/26/psg-marseille-trophee-des-champi
 **MLB playoff tiebreakers: A handy guide to navigate AL, NL postseason race chaos**\
 `We’ve figured out every one of the tiebreakers that could still be in play (hopefully), including for a possible four-way tie in the AL. `\
 https://nytimes.com/athletic/6665763/2025/09/26/mlb-playoff-tiebreakers-al-nl/
-
-**NFL to play regular-season games in Rio de Janeiro starting in 2026**\
-`The multi-year commitment comes as the NFL seeks to expand its global footprint.`\
-https://nytimes.com/athletic/6665622/2025/09/26/nfl-2026-rio-de-janeiro-maracana-stadium/
-
-**Local TV Giant Sinclair Ends Jimmy Kimmel Boycott**\
-`The company is one of two that has been pre-empting Mr. Kimmel’s show since he returned this week.`\
-https://nytimes.com/2025/09/26/business/media/sinclair-jimmy-kimmel-boycott.html
 
