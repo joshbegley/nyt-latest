@@ -15,7 +15,7 @@ https://nytimes.com/2025/09/26/your-money/health-insurance-premiums-increase.htm
 https://nytimes.com/2025/09/26/business/stocks-government-shutdown.html
 
 **MLB playoff watch: Dodgers lock up the NL West; bracket, clinching scenarios**\
-`As the 2025 stretch run winds to a close, who holds onto playoff hopes? And whose fate is at the mercy of other teams?`\
+`As the 2025 regular season winds to a close, which teams are in the playoff mix?`\
 https://nytimes.com/athletic/6664228/2025/09/26/mlb-playoff-watch-dodgers-nl-west-title/
 
 **Arteta hopeful on Odegaard fitness for Newcastle trip**\
@@ -34,7 +34,7 @@ https://nytimes.com/2025/09/26/world/europe/europe-frozen-russian-funds-ukraine.
 `Haaland missed the 2-0 Carabao Cup win against Huddersfield Town, having been withdrawn on 76 minutes during City's 1-1 draw against Arsenal`\
 https://nytimes.com/athletic/6664854/2025/09/26/erling-haaland-injury-man-city-marmoush/
 
-**Trump Administration Live Updates: Comey Indicted After Relentless Pressure from President**\
+**Trump Administration Live Updates: President Defends Comey Indictment**\
 ``\
 https://nytimes.com/live/2025/09/26/us/trump-news
 
