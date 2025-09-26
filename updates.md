@@ -1,3 +1,15 @@
+**Kane breaks Ronaldo, Haaland scoring record: 'It's crazy even for me'**\
+`Kane scored his 100th Bayern Munich goal in just his 104th appearance for the club.`\
+https://nytimes.com/athletic/6666311/2025/09/26/harry-kane-goal-record-bayern/
+
+**Trump Fired a U.S. Attorney Who Insisted on Following a Court Order**\
+`The top federal prosecutor in Sacramento was fired hours after she reminded a Border Patrol chief to abide by court-ordered restrictions on immigration raids.`\
+https://nytimes.com/2025/09/26/us/trump-fires-us-attorney-california-immigration.html
+
+**Brock Purdy to start vs. Jaguars after 2-game injury absence**\
+`The 49ers have gone 2-0 with Mac Jones as their starter during Purdy's absence.`\
+https://nytimes.com/athletic/6665671/2025/09/26/brock-purdy-injury-update-49ers-jaguars/
+
 **Detained on Immigration Charges in Dallas, Now Fighting for His Life**\
 `Miguel Ángel García is one of two detainees critically injured by a Dallas gunman who killed another detainee. Officials have not identified the victims, but families are coming forward.`\
 https://nytimes.com/2025/09/26/us/politics/victims-dallas-ice.html

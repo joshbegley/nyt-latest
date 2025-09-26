@@ -26,7 +26,7 @@ https://nytimes.com/2025/09/26/world/middleeast/iran-sanctions-europe-russia-un.
 `Mayor Eric Adams and Zohran Mamdani had starkly different responses to the Israeli prime minister’s visit to the U.N., which drew thousands of protesters.`\
 https://nytimes.com/2025/09/26/nyregion/eric-adams-netanyahu-mamdani.html
 
-**Brutal Killing of 3 Women, Broadcast on Instagram, Shocks Argentina**\
+**Brutal Killing of 3 Women, That the Police Say Was Posted on Instagram, Shocks Argentina**\
 `The live streamed torture and killing of three young women in Buenos Aires has stunned the country, setting off worries about the increasing presence of drug cartels.`\
 https://nytimes.com/2025/09/26/world/americas/argentina-women-murder-instagram.html
 

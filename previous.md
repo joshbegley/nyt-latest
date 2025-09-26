@@ -1,3 +1,15 @@
+**Kane breaks Ronaldo, Haaland scoring record: 'It's crazy even for me'**\
+`Kane scored his 100th Bayern Munich goal in just his 104th appearance for the club.`\
+https://nytimes.com/athletic/6666311/2025/09/26/harry-kane-goal-record-bayern/
+
+**Trump Fired a U.S. Attorney Who Insisted on Following a Court Order**\
+`The top federal prosecutor in Sacramento was fired hours after she reminded a Border Patrol chief to abide by court-ordered restrictions on immigration raids.`\
+https://nytimes.com/2025/09/26/us/trump-fires-us-attorney-california-immigration.html
+
+**Brock Purdy to start vs. Jaguars after 2-game injury absence**\
+`The 49ers have gone 2-0 with Mac Jones as their starter during Purdy's absence.`\
+https://nytimes.com/athletic/6665671/2025/09/26/brock-purdy-injury-update-49ers-jaguars/
+
 **Detained on Immigration Charges in Dallas, Now Fighting for His Life**\
 `Miguel Ángel García is one of two detainees critically injured by a Dallas gunman who killed another detainee. Officials have not identified the victims, but families are coming forward.`\
 https://nytimes.com/2025/09/26/us/politics/victims-dallas-ice.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/26/t-magazine/how-to-use-retinol-guide.html
 **Xavier Worthy set to return from shoulder injury vs. Ravens Sunday**\
 `Wothy did not receive an injury game-status designation, meaning he's expected to be back in the team's starting lineup Sunday.`\
 https://nytimes.com/athletic/6666213/2025/09/26/xavier-worthy-chiefs-return-shoulder-injury-ravens/
-
-**How Trump’s Latest Tariffs May Affect Your Medicines**\
-`The president said he would impose a tariff of 100 percent on certain brand-name drugs. Here’s what we know so far.`\
-https://nytimes.com/2025/09/26/health/trump-drug-tariffs-prescription-costs.html
-
-**Rooney family returns to its roots for first NFL game in Ireland: 'My dad would love this'**\
-`A Steelers regular-season game in Ireland is a dream come true for the Rooney family.`\
-https://nytimes.com/athletic/6665896/2025/09/26/steelers-vikings-dublin-ireland-rooney-family/
-
-**Tom Cillo, playing college football at 58, signs NIL deal with pain-relief brand**\
-`The freshman defensive lineman for Division III Lycoming becomes the oldest player to agree to an NIL deal.`\
-https://nytimes.com/athletic/6665695/2025/09/26/tom-cillo-nil-deal-player-oldest/
 
