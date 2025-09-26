@@ -1,3 +1,15 @@
+**How to watch Pirates at Braves: Time, TV, streaming for September 26**\
+`Find out how to watch the Pittsburgh Pirates play the Atlanta Braves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6663641/2025/09/25/pirates-vs-braves-stream-how-to-watch-sept-26/
+
+**How to watch Rangers at Guardians: Time, TV, streaming for September 26**\
+`Find out how to watch the Texas Rangers play the Cleveland Guardians, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6663639/2025/09/25/rangers-vs-guardians-stream-how-to-watch-sept-26/
+
+**How to watch Twins at Phillies: Time, TV, streaming for September 26**\
+`Find out how to watch the Minnesota Twins play the Philadelphia Phillies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6663637/2025/09/25/twins-vs-phillies-stream-how-to-watch-sept-26/
+
 **Read the Indictment of James Comey**\
 `A federal grand jury on Thursday indicted James B.`\
 https://nytimes.com/interactive/2025/09/25/us/james-comey-indictment.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/25/business/un-artificial-intelligence.html
 **Phillies' Trea Turner ready for October, even if he opts against weekend return**\
 `Currently, Turner is taking at-bats against minor-league pitchers. He's running and doing agility drills. He is also taking ground balls.`\
 https://nytimes.com/athletic/6662997/2025/09/25/philadelphia-phillies-trea-turner-october-return/
-
-**Dodgers clinch NL West for 12th time in 13 seasons: 'We have an opportunity to make history'**\
-`It didn't happen as easily as most observers predicted it would before the season, but the Dodgers are division champions once again.`\
-https://nytimes.com/athletic/6663006/2025/09/25/dodgers-clinch-national-league-west/
-
-**Lisa Phillips, Director of New Museum, to Retire**\
-`Her 26-year tenure transformed a curatorial experiment into a global institution. She will depart in April, after a building expansion doubling the museum’s space.`\
-https://nytimes.com/2025/09/25/arts/design/lisa-phillips-director-of-new-museum-to-retire.html
-
-**Trump’s Cultural Push Begins With Universities**\
-`Are universities suffering from “Meghan Markle syndrome”? In this episode of “Interesting Times,” Ross talks to May Mailman, the lawyer on the front lines of the Trump administration’s war on elite universities, about why they’re cracking down on the “glorification of victimhood” in higher education.`\
-https://nytimes.com/video/opinion/100000010414443/trumps-cultural-push-begins-with-universities.html
 
