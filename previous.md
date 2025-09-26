@@ -1,3 +1,15 @@
+**Lowetide: What we've learned about Oilers rookies Savoie and Howard in preseason**\
+`Since the beginning of training camp, both Savoie and Howard have played two games and had some success.`\
+https://nytimes.com/athletic/6660338/2025/09/26/oilers-matt-savoie-ike-howard-rookies-preseason/
+
+**Forest's Luiz set for scan on hamstring injury**\
+`Murillo is also likely to miss the Sunderland game, but fellow centre-back Nikola Milenkovic will be fit.`\
+https://nytimes.com/athletic/6665181/2025/09/26/douglas-luiz-injury-forest/
+
+**Hundreds Protest in New York City During Netanyahu’s U.N. Speech**\
+`Demonstrators began gathering in Times Square, across town from the United Nations building, early in the morning. They planned to march to the U.N.`\
+https://nytimes.com/2025/09/26/nyregion/nyc-united-nations-netanyahu-protest.html
+
 **I Witnessed A.I. Collide with Climate**\
 `This town’s minerals make A.I. possible. Then came Hurricane Helene.`\
 https://nytimes.com/video/opinion/100000010410190/i-witnessed-ai-collide-with-climate.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/26/books/review/podcast-pride-prejudice-book-club.ht
 **Correcting the Record on Women’s Experiences of War**\
 `A stage adaptation of the Nobel laureate Svetlana Alexievich’s “The Unwomanly Face of War” gives Soviet women credit for their complex roles in World War II.`\
 https://nytimes.com/2025/09/26/theater/svetlana-alexievich-julie-deliquet.html
-
-**Chiefs' Drue Tranquill has daily reminder of Lamar Jackson's ability. It sits in his house**\
-`The Ravens' quarterback won an ESPY for a play against the Chiefs in 2024. Tranquill is the reason it wasn't a touchdown.`\
-https://nytimes.com/athletic/6662164/2025/09/26/chiefs-ravens-lamar-jackson-drue-tranquill/
-
-**The World**\
-`A guide to understanding the news without feeling overwhelmed, made for readers around the globe. <a href="https://www.nytimes.com/newsletters/the-world" target="_blank">Sign up for the World newsletter.</a>`\
-https://nytimes.com/series/the-world
-
-**A Guinness Heiress Goes to Netflix**\
-`Ivana Lowell talks about spinning her high-drama family tales into “House of Guinness” with the “Peaky Blinders” creator Steven Knight.`\
-https://nytimes.com/2025/09/26/style/a-guinness-heiress-goes-to-netflix.html
 

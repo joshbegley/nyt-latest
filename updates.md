@@ -1,3 +1,15 @@
+**Lowetide: What we've learned about Oilers rookies Savoie and Howard in preseason**\
+`Since the beginning of training camp, both Savoie and Howard have played two games and had some success.`\
+https://nytimes.com/athletic/6660338/2025/09/26/oilers-matt-savoie-ike-howard-rookies-preseason/
+
+**Forest's Luiz set for scan on hamstring injury**\
+`Murillo is also likely to miss the Sunderland game, but fellow centre-back Nikola Milenkovic will be fit.`\
+https://nytimes.com/athletic/6665181/2025/09/26/douglas-luiz-injury-forest/
+
+**Hundreds Protest in New York City During Netanyahu’s U.N. Speech**\
+`Demonstrators began gathering in Times Square, across town from the United Nations building, early in the morning. They planned to march to the U.N.`\
+https://nytimes.com/2025/09/26/nyregion/nyc-united-nations-netanyahu-protest.html
+
 **I Witnessed A.I. Collide with Climate**\
 `This town’s minerals make A.I. possible. Then came Hurricane Helene.`\
 https://nytimes.com/video/opinion/100000010410190/i-witnessed-ai-collide-with-climate.html
