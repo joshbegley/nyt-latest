@@ -1,3 +1,11 @@
+**MLB playoff watch: Dodgers lock up the NL West; bracket, clinching scenarios**\
+`As the 2025 regular season winds to a close, which teams are in the playoff mix?`\
+https://nytimes.com/athletic/6664228/2025/09/26/mlb-playoff-watch-dodgers-nl-west-title/
+
+**Trump Administration Live Updates: President Defends Comey Indictment**\
+``\
+https://nytimes.com/live/2025/09/26/us/trump-news
+
 **A Guinness Heiress Goes to Netflix**\
 `Ivana Lowell talks about spinning her high-drama family tales into “House of Guinness” with the “Peaky Blinders” creator Steven Knight.`\
 https://nytimes.com/2025/09/26/style/a-guinness-heiress-goes-to-netflix.html
