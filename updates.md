@@ -1,3 +1,7 @@
+**Federal Agent Pushes Woman to Floor in U.S. Courthouse Confrontation**\
+`In a scene caught on video, the woman and a young girl were clinging to a man who was being detained. Agents pulled their hair, then one shoved the woman after she touched his chest.`\
+https://nytimes.com/2025/09/25/nyregion/ice-push-woman-nyc.html
+
 **How to watch Pirates at Braves: Time, TV, streaming for September 26**\
 `Find out how to watch the Pittsburgh Pirates play the Atlanta Braves, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6663641/2025/09/25/pirates-vs-braves-stream-how-to-watch-sept-26/
