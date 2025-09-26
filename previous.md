@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6663155/2025/09/25/tigers-guardians-takeaways-game-
 https://nytimes.com/athletic/6663826/2025/09/25/houston-astros-framber-valdez-playoff-hopes/
 
 **Did Noelvi Marte save Reds' season? 'One of the best plays I’ve ever seen'**\
-`The Reds are now within a half-game of the Mets for the third and final wild-card spot in the National League.`\
+`The Reds kept pace with the Mets for the third and final wild-card spot in the National League.`\
 https://nytimes.com/athletic/6663360/2025/09/25/reds-noelvi-marte-home-run-robbery-catch/
 
 **Trump Orders Broad Effort to Root Out Groups He Says Organize Political Violence**\

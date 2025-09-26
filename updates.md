@@ -1,3 +1,7 @@
+**Did Noelvi Marte save Reds' season? 'One of the best plays I’ve ever seen'**\
+`The Reds kept pace with the Mets for the third and final wild-card spot in the National League.`\
+https://nytimes.com/athletic/6663360/2025/09/25/reds-noelvi-marte-home-run-robbery-catch/
+
 **Mets vs. Cubs: Francisco Lindor caps 30-30 to help defend wild-card lead**\
 `The Mets' playoff dreams are still alive after their 8-5 win over the Cubs on Wednesday night.`\
 https://nytimes.com/athletic/6663886/2025/09/25/mets-cubs-score-results-takeaways-nl-playoff-standings/
