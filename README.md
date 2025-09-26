@@ -1,40 +1,40 @@
-**Hurzeler backs Welbeck to snap goal drought**\
-`"I don't judge the strikers by scoring goals, I judge the strikers by how they work for their team," Hurzeler said.`\
-https://nytimes.com/athletic/6664687/2025/09/26/danny-welbeck-brighton-hurzeler/
+**Chiesa added to Liverpool's Champions League squad after Leoni's ACL injury**\
+`Chiesa was initially left out of Liverpool's Champions League squad but will replace Leoni who will be "out for around a year"`\
+https://nytimes.com/athletic/6664535/2025/09/26/liverpool-news-leoni-chiesa-injury-champions-league/
 
-**Two cross-country flights and a game all inside 39 hours. What it's like on a Bay FC road trip**\
-`The Athletic traveled with Bay FC for a behind the scenes look at life on the road in NWSL`\
-https://nytimes.com/athletic/6659995/2025/09/26/bay-fc-nwsl-road-trip-behind-the-scenes/
+**For retiring NHL players, ceremonial contracts offer a one-day 'victory lap'**\
+`In a sense, Marc-André Fleury's return to Pittsburgh is unprecedented. In another, it is typical for a league that loves nostalgic deals.`\
+https://nytimes.com/athletic/6662625/2025/09/26/marc-andre-fleury-retirement-nhl-one-day-contract/
 
-**Chiefs player has daily reminder of Lamar Jackson's ability. It sits in his house**\
-`Ravens quarterback Lamar Jackson won an ESPY for a play against the Chiefs in 2024. Drue Tranquill is the reason it wasn't a touchdown.`\
-https://nytimes.com/athletic/6662164/2025/09/26/chiefs-ravens-lamar-jackson-drue-tranquill/
+**The Prada Guide to Dressing for Doomsday**\
+`Bras, bloomers and fancy frocks were all in the mix. But it’s not about the items; it’s about the approach.`\
+https://nytimes.com/2025/09/26/style/prada-spring-2026.html
 
-**Stark's MLB awards: MVP and LVP, Cy Young and Cy Yuk, top rookies, managers of the year**\
-`I look forward to this column every year. You look forward to disagreeing with every word of this column every year. Now, to the awards!  `\
-https://nytimes.com/athletic/6663004/2025/09/26/mlb-awards-2025-mvp-cy-young-rookies/
+**How Mike Gundy's decades-long Oklahoma State run finally came crashing down**\
+`A season that started with Gundy on the thinnest of ice collapsed almost immediately. But the cracks have been forming for some time.`\
+https://nytimes.com/athletic/6663103/2025/09/26/mike-gundy-oklahoma-state-firing/
 
-**Fixing run game? Defending Ashton Jeanty? More reps for Luther Burden? Bears Mailbag, Week 4 picks**\
-`Can the Bears get their own run game going while also finding a way to contain Ashton Jeanty? That leads the mailbag, plus our game picks.`\
-https://nytimes.com/athletic/6662971/2025/09/26/chicago-bears-luther-burden-las-vegas-raiders-week-4/
+**Israel’s isolation deepens with a wave of recognitions of Palestinian statehood.**\
+`By Aaron Boxerman`\
+https://nytimes.com/live/2025/09/26/world/un-general-assembly-netanyahu/israels-isolation-deepens-with-a-wave-of-recognitions-of-palestinian-statehood
 
-**For Carolina native Drake Maye, Patriots-Panthers game has special meaning**\
-`It would have meant more in Charlotte, but Sunday's matchup against the Panthers brings back fond memories for the Pats QB.`\
-https://nytimes.com/athletic/6662591/2025/09/26/carolina-panthers-drake-maye-new-england-patriots-week-4/
+**Here’s what to know.**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2025/09/26/world/un-general-assembly-netanyahu/heres-what-to-know
 
-**How Sam Darnold, JSN rescued the Seahawks from near collapse in Arizona**\
-`After a blown lead, Darnold saved the Seahawks with his first game-winning drive. "Sam's playing out of his mind," Mike Macdonald said.`\
-https://nytimes.com/athletic/6664271/2025/09/26/sam-darnold-jsn-seahawks-cardinals/
+**U.N. General Assembly Live Updates: Netanyahu to Address World Leaders as Gaza War Nears 2-Year Mark**\
+``\
+https://nytimes.com/live/2025/09/26/world/un-general-assembly-netanyahu
 
-**Raiders film review: How Chip Kelly can fix Las Vegas' struggling offense**\
-`Better offensive line play, getting Ashton Jeanty open in space and involving Brock Bowers on run plays are all needed.`\
-https://nytimes.com/athletic/6660803/2025/09/26/raiders-film-review-chip-kelly-offense/
+**AL MVP voters share thoughts on Aaron Judge vs. Cal Raleigh: ‘Kind of stressful’**\
+`Both Judge and Raleigh have delivered impact seasons. But the 30 voters for the AL MVP award can only choose one for first place.`\
+https://nytimes.com/athletic/6664134/2025/09/26/american-league-al-mvp-battle-cal-raleigh-aaron-judge/
 
-**Ndamukong Suh: Since retiring from the NFL, I’ve thought a lot about what fulfills me**\
-`Ndamukong Suh retired from the NFL in July. In the months since, he's spent time trying to answer this question: What fulfills him?`\
-https://nytimes.com/athletic/6652544/2025/09/26/ndamukong-suh-nfl-retire-business/
+**Ejiro Evero, Panthers' D look to build off shutout: 'We did it once. Let's do it again'**\
+`Last week's performance was a cathartic experience for a defense that was the NFL’s worst in 2024 and for Evero, whose job was questioned.`\
+https://nytimes.com/athletic/6663407/2025/09/26/panthers-defense-improvement-patriots/
 
-**Jonathan Taylor was already elite, but he’s lifting Colts offense in new ways**\
-`Already an elite runner, Taylor has taken on a bigger role in the passing game — and it's making a huge difference for Indy's offense. `\
-https://nytimes.com/athletic/6661937/2025/09/26/jonathan-taylor-colts-offense-receiver-blocker/
+**Blood, stitches and football: Jack Campbell is just that guy for the Lions**\
+`"He’s all ball, man. He’s all ball," Lions coach Dan Campbell said of his middle linebacker. `\
+https://nytimes.com/athletic/6664012/2025/09/26/lions-jack-campbell-linebacker-team-leader/
 
