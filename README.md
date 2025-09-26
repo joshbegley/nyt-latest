@@ -1,3 +1,7 @@
+**Texas Tech Moves to Limit Academic Discussion to 2 Genders**\
+`The university system said faculty must comply with President Trump’s order recognizing only two genders, possibly a first for a major public institution of higher education.`\
+https://nytimes.com/2025/09/26/us/politics/texas-tech-gender.html
+
 **Kyle Tucker returns, PCA reaches 30-30 and Cubs inch closer to hosting playoff games**\
 `Crow-Armstrong matches a feat last accomplished by Sammy Sosa in 1995.`\
 https://nytimes.com/athletic/6666550/2025/09/26/kyle-tucker-pete-crow-armstrong-cubs-wild-card/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/26/insider/steve-witkoff-financial-empire-middle-eas
 **On Shutdown, Democrats Turn to Simple Strategy: Do Something**\
 `They want to show their willingness to fight, even if the battle ends in defeat.`\
 https://nytimes.com/2025/09/26/us/politics/democrats-government-shutdown.html
-
-**Despite False Claims, Trump Funnels Millions Into Credible Autism Research**\
-`Many scientists were pleased to learn that N.I.H. funding will go to leading experts examining complex new theories, not only fears over vaccines.`\
-https://nytimes.com/2025/09/26/health/autism-research-trump-kennedy.html
 
