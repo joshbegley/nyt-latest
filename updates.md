@@ -1,3 +1,15 @@
+**Local TV Giant Sinclair Ends Jimmy Kimmel Boycott**\
+`The company is one of two that has been pre-empting Mr. Kimmel’s show since he returned this week.`\
+https://nytimes.com/2025/09/26/business/media/sinclair-jimmy-kimmel-boycott.html
+
+**Where Mideast Envoy Pitched Peace, His Son Pitched Investors**\
+`Steve Witkoff’s son recently sought money from Gulf states including Qatar, which has previously invested in Witkoff family projects to win favor with President Trump.`\
+https://nytimes.com/2025/09/26/business/witkoff-son-qatar-gaza.html
+
+**U.K. Politician Admits Making Pro-Russia Statements in Return for Bribes**\
+`Nathan Gill, a former leader of Reform U.K. in Wales, pleaded guilty on Friday to charges of bribery while he was a member of the European Parliament.`\
+https://nytimes.com/2025/09/26/world/europe/gill-russia-britain-bribery.html
+
 **Milei Vowed to Fix Argentina’s Economy. Then Came a New Crisis.**\
 `President Javier Milei slashed inflation and spending, but it wasn’t enough to stave off an economic crisis. President Trump has offered him a lifeline.`\
 https://nytimes.com/2025/09/26/world/americas/milei-argentina-economy.html

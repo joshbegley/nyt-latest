@@ -1,3 +1,7 @@
+**NFL to play regular-season games in Rio de Janeiro starting in 2026**\
+`The multi-year commitment comes as the NFL seeks to expand its global footprint.`\
+https://nytimes.com/athletic/6665622/2025/09/26/nfl-2026-rio-de-janeiro-maracana-stadium/
+
 **Local TV Giant Sinclair Ends Jimmy Kimmel Boycott**\
 `The company is one of two that has been pre-empting Mr. Kimmel’s show since he returned this week.`\
 https://nytimes.com/2025/09/26/business/media/sinclair-jimmy-kimmel-boycott.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6665643/2025/09/26/how-mlb-mvp-voters-choose-judge-
 **Alec Baldwin Can’t Wait for Dudamel, Either**\
 `“Dudamel is our Bernstein,” Mr. Baldwin said at the New York Philharmonic’s opening night gala on Thursday.`\
 https://nytimes.com/2025/09/26/style/ny-philharmonic-gala-alec-baldwin.html
-
-**gws-small-cruise-ships**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/small-cruise-ships
 
