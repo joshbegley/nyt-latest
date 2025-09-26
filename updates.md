@@ -1,3 +1,19 @@
+**Flashback: Your Weekly History Quiz, Sept. 27, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/09/26/upshot/flashback.html
+
+**Jaguars' Liam Coen responds to 49ers' Robert Saleh's comments about signal-stealing system**\
+`"It’s a lot of hard work that goes into game planning and trying to put your players in the best position to be successful," Coen responded.`\
+https://nytimes.com/athletic/6665744/2025/09/26/sign-stealing-robert-saleh-liam-coen-49ers-jaguars/
+
+**Patriots defensive coordinator Terrell Williams diagnosed with prostate cancer**\
+`Williams, 51, has spent time away from the team in recent weeks. Linebackers coach Zak Kuhr will continue to call the plays on defense.`\
+https://nytimes.com/athletic/6665725/2025/09/26/terrell-williams-patriots-prostate-cancer/
+
+**The Comey Indictment Plunges the Country Into a Grave New Period**\
+`As despots have done for centuries, Trump is persecuting people he considers his enemies, with little justification other than raw political power.`\
+https://nytimes.com/2025/09/26/opinion/comey-indictment-justice-department.html
+
 **Gunman from shooting at NFL headquarters had CTE, medical examiner says**\
 `Shane Tamura killed four people in the July shooting at a Midtown Manhattan office building.`\
 https://nytimes.com/athletic/6665817/2025/09/26/nfl-headquarters-gunman-cte/
