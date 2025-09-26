@@ -1,3 +1,7 @@
+**Thousands Protest in New York City During Netanyahu’s U.N. Speech**\
+`Demonstrators began gathering in Times Square, across town from the United Nations building, early in the morning. They planned to march to the U.N.`\
+https://nytimes.com/2025/09/26/nyregion/nyc-united-nations-netanyahu-protest.html
+
 **Britain Is Introducing a Digital ID. Here’s How It Is Expected to Work.**\
 `The government said the new system would help to curb illegal migration, but opponents said it would infringe on citizens’ privacy.`\
 https://nytimes.com/2025/09/26/world/europe/uk-digital-id-britcard-starmer.html
