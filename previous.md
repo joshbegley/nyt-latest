@@ -1,3 +1,11 @@
+**Marvin Harrison Jr. overcomes another drop and offers hope for struggling Cardinals**\
+`The second-year receiver has a long way to go, but Thursday was an encouraging sign for both the receiver and Arizona's struggling offense.`\
+https://nytimes.com/athletic/6664243/2025/09/26/marvin-harrison-jr-arizona-cardinals-drop-touchdown-seattle-seahawks/
+
+**Kneecap Rapper’s Terrorism Charge Is Dismissed by U.K. Court**\
+`A rapper in the popular Irish-language group was charged over displaying a Hezbollah flag onstage.`\
+https://nytimes.com/2025/09/26/arts/music/kneecap-terrorism-charge.html
+
 **New Tariffs Shock Countries Reeling From Trump’s Chaotic Trade War**\
 `Throughout Asia, the source of about 40 percent of U.S. imports, countries have little to show for weeks of talks trying to finalize deals.`\
 https://nytimes.com/2025/09/26/business/trump-tariffs-asia.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6664566/2025/09/26/rockies-vs-giants-stream-how-to-
 **How to watch Royals at Athletics: Time, TV, streaming for September 26**\
 `Find out how to watch the Kansas City Royals play the Athletics, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6664553/2025/09/26/royals-vs-athletics-stream-how-to-watch-sept-26/
-
-**How to watch Dodgers at Mariners: Time, TV, streaming for September 26**\
-`Find out how to watch the Los Angeles Dodgers play the Seattle Mariners, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6664548/2025/09/26/dodgers-vs-mariners-stream-how-to-watch-sept-26/
-
-**Celtics owner Bill Chisholm on expectations, Brad Stevens' autonomy and WNBA in Boston**\
-`"We’re going to do everything we can to win. That is job No. 1. And not just win games — win championships," says new owner Bill Chisholm.`\
-https://nytimes.com/athletic/6663279/2025/09/26/celtics-owner-jayson-tatum-bill-chisholm/
 

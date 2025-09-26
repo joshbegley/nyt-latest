@@ -1,3 +1,11 @@
+**Marvin Harrison Jr. overcomes another drop and offers hope for struggling Cardinals**\
+`The second-year receiver has a long way to go, but Thursday was an encouraging sign for both the receiver and Arizona's struggling offense.`\
+https://nytimes.com/athletic/6664243/2025/09/26/marvin-harrison-jr-arizona-cardinals-drop-touchdown-seattle-seahawks/
+
+**Kneecap Rapper’s Terrorism Charge Is Dismissed by U.K. Court**\
+`A rapper in the popular Irish-language group was charged over displaying a Hezbollah flag onstage.`\
+https://nytimes.com/2025/09/26/arts/music/kneecap-terrorism-charge.html
+
 **New Tariffs Shock Countries Reeling From Trump’s Chaotic Trade War**\
 `Throughout Asia, the source of about 40 percent of U.S. imports, countries have little to show for weeks of talks trying to finalize deals.`\
 https://nytimes.com/2025/09/26/business/trump-tariffs-asia.html

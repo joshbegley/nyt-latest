@@ -1,40 +1,40 @@
-**Marvin Harrison Jr. overcomes another drop and offers hope for struggling Cardinals**\
-`The second-year receiver has a long way to go, but Thursday was an encouraging sign for both the receiver and Arizona's struggling offense.`\
-https://nytimes.com/athletic/6664243/2025/09/26/marvin-harrison-jr-arizona-cardinals-drop-touchdown-seattle-seahawks/
+**Hurzeler backs Welbeck to snap goal drought**\
+`"I don't judge the strikers by scoring goals, I judge the strikers by how they work for their team," Hurzeler said.`\
+https://nytimes.com/athletic/6664687/2025/09/26/danny-welbeck-brighton-hurzeler/
 
-**Kneecap Rapper’s Terrorism Charge Is Dismissed by U.K. Court**\
-`A rapper in the popular Irish-language group was charged over displaying a Hezbollah flag onstage.`\
-https://nytimes.com/2025/09/26/arts/music/kneecap-terrorism-charge.html
+**Two cross-country flights and a game all inside 39 hours. What it's like on a Bay FC road trip**\
+`The Athletic traveled with Bay FC for a behind the scenes look at life on the road in NWSL`\
+https://nytimes.com/athletic/6659995/2025/09/26/bay-fc-nwsl-road-trip-behind-the-scenes/
 
-**New Tariffs Shock Countries Reeling From Trump’s Chaotic Trade War**\
-`Throughout Asia, the source of about 40 percent of U.S. imports, countries have little to show for weeks of talks trying to finalize deals.`\
-https://nytimes.com/2025/09/26/business/trump-tariffs-asia.html
+**Chiefs player has daily reminder of Lamar Jackson's ability. It sits in his house**\
+`Ravens quarterback Lamar Jackson won an ESPY for a play against the Chiefs in 2024. Drue Tranquill is the reason it wasn't a touchdown.`\
+https://nytimes.com/athletic/6662164/2025/09/26/chiefs-ravens-lamar-jackson-drue-tranquill/
 
-**Howe: Online criticism of Newcastle's Miley 'totally unjustified'**\
-`The 19-year-old had just one Premier League start in the 2024-25 campaign after a series of injuries.`\
-https://nytimes.com/athletic/6664530/2025/09/26/lewis-miley-eddie-howe-newcastle-united-criticism/
+**Stark's MLB awards: MVP and LVP, Cy Young and Cy Yuk, top rookies, managers of the year**\
+`I look forward to this column every year. You look forward to disagreeing with every word of this column every year. Now, to the awards!  `\
+https://nytimes.com/athletic/6663004/2025/09/26/mlb-awards-2025-mvp-cy-young-rookies/
 
-**High Five - around the world in five games**\
-`The pick of this weekend's action - from New York City to Saudi Arabia and Chile, via Belfast and Lisbon`\
-https://nytimes.com/athletic/6663742/2025/09/26/high-five-around-the-world-in-five-games/
+**Fixing run game? Defending Ashton Jeanty? More reps for Luther Burden? Bears Mailbag, Week 4 picks**\
+`Can the Bears get their own run game going while also finding a way to contain Ashton Jeanty? That leads the mailbag, plus our game picks.`\
+https://nytimes.com/athletic/6662971/2025/09/26/chicago-bears-luther-burden-las-vegas-raiders-week-4/
 
-**Micah Parsons trade revisited: Were Cowboys wise to take picks? NFL decision-makers debate**\
-`Trading away a superstar is never a popular decision, but given the state of the Dallas roster, was the Parsons move at least defensible?`\
-https://nytimes.com/athletic/6661807/2025/09/26/micah-parsons-trade-jerry-jones-cowboys-packers-criticism/
+**For Carolina native Drake Maye, Patriots-Panthers game has special meaning**\
+`It would have meant more in Charlotte, but Sunday's matchup against the Panthers brings back fond memories for the Pats QB.`\
+https://nytimes.com/athletic/6662591/2025/09/26/carolina-panthers-drake-maye-new-england-patriots-week-4/
 
-**The New York Times International Edition in Print for Saturday, Sep. 27, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/09/26/todays-new-york-times-international-edition
+**How Sam Darnold, JSN rescued the Seahawks from near collapse in Arizona**\
+`After a blown lead, Darnold saved the Seahawks with his first game-winning drive. "Sam's playing out of his mind," Mike Macdonald said.`\
+https://nytimes.com/athletic/6664271/2025/09/26/sam-darnold-jsn-seahawks-cardinals/
 
-**How to watch Astros at Angels: Time, TV, streaming for September 26**\
-`Find out how to watch the Houston Astros play the Los Angeles Angels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6664572/2025/09/26/astros-vs-angels-stream-how-to-watch-sept-26/
+**Raiders film review: How Chip Kelly can fix Las Vegas' struggling offense**\
+`Better offensive line play, getting Ashton Jeanty open in space and involving Brock Bowers on run plays are all needed.`\
+https://nytimes.com/athletic/6660803/2025/09/26/raiders-film-review-chip-kelly-offense/
 
-**How to watch Rockies at Giants: Time, TV, streaming for September 26**\
-`Find out how to watch the Colorado Rockies play the San Francisco Giants, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6664566/2025/09/26/rockies-vs-giants-stream-how-to-watch-sept-26/
+**Ndamukong Suh: Since retiring from the NFL, I’ve thought a lot about what fulfills me**\
+`Ndamukong Suh retired from the NFL in July. In the months since, he's spent time trying to answer this question: What fulfills him?`\
+https://nytimes.com/athletic/6652544/2025/09/26/ndamukong-suh-nfl-retire-business/
 
-**How to watch Royals at Athletics: Time, TV, streaming for September 26**\
-`Find out how to watch the Kansas City Royals play the Athletics, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6664553/2025/09/26/royals-vs-athletics-stream-how-to-watch-sept-26/
+**Jonathan Taylor was already elite, but he’s lifting Colts offense in new ways**\
+`Already an elite runner, Taylor has taken on a bigger role in the passing game — and it's making a huge difference for Indy's offense. `\
+https://nytimes.com/athletic/6661937/2025/09/26/jonathan-taylor-colts-offense-receiver-blocker/
 
