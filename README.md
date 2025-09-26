@@ -1,3 +1,15 @@
+**The World’s 50 Best Restaurants Announces Its North American Picks**\
+`At the top of the new list is Atomix, a refined Korean tasting-menu spot in New York. But other rankings take a surprising turn to the casual.`\
+https://nytimes.com/2025/09/26/dining/worlds-50-best-restaurants-north-america.html
+
+**Federal Agent Pushes Woman to Floor at Immigration Courthouse**\
+`Federal agents shoved a woman to the floor after she clung to her husband who was being detained at an immigration courthouse in Manhattan. The Department of Homeland Security said the agent was “relieved of his duties” and is under investigation.`\
+https://nytimes.com/video/nyregion/100000010424456/ice-immigration-manhattan.html
+
+**Answers to Puns and Anagrams (Aug. 21, 2011)**\
+`Here are the answers to Mel Taub’s Puns and Anagrams puzzle from Aug. 21, 2011.`\
+https://nytimes.com/interactive/2025/09/26/us/08212011-panda-answers.html
+
 **Answers to Puns and Anagrams (Jan. 5, 2003)**\
 `Here are the answers to Mel Taub’s Puns and Anagrams puzzle from Jan. 5, 2003.`\
 https://nytimes.com/interactive/2025/09/26/us/01052003-panda-answers.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6666218/2025/09/26/lynx-vs-mercury-stream-how-to-wa
 **What to know about J.J. McCarthy, his ankle and the Vikings’ path forward**\
 `McCarthy has yet to return to practice and could also miss the Vikings' Week 5 game against the Browns in London. Carson Wentz would start.`\
 https://nytimes.com/athletic/6665799/2025/09/26/jj-mccarthy-injury-vikings-ireland-carson-wentz/
-
-**Slot confirms Liverpool to pay rest of Jota's contract to his family**\
-`Jota died at the age of 28 and had two years remaining on his Liverpool contract.`\
-https://nytimes.com/athletic/6665961/2025/09/26/diogo-jota-liverpool-contract-family/
-
-**Medical Groups Warn Against Visa Fees for Foreign Doctors**\
-`The United States depends heavily on physicians trained abroad. The Trump administration’s new fees may exacerbate personnel shortages, especially in underserved regions.`\
-https://nytimes.com/2025/09/26/health/trump-h1b-visa-fee-doctors.html
-
-**Ex-Wall Street Star Accused of Abusing Women in Penthouse Sex ‘Dungeon’**\
-`Federal prosecutors say Howard Rubin, who faces sex trafficking charges, brought victims to his apartment, where a bedroom was painted red, soundproofed and fitted with devices to use on the women.`\
-https://nytimes.com/2025/09/26/nyregion/howard-rubin-penthouse-sex-dungeon-charges.html
 
