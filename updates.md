@@ -1,3 +1,7 @@
+**Xavier Worthy set to return from shoulder injury vs. Ravens Sunday**\
+`Wothy did not receive an injury game-status designation, meaning he's expected to be back in the team's starting lineup Sunday.`\
+https://nytimes.com/athletic/6666213/2025/09/26/xavier-worthy-chiefs-return-shoulder-injury-ravens/
+
 **How Trump’s Latest Tariffs May Affect Your Medicines**\
 `The president said he would impose a tariff of 100 percent on certain brand-name drugs. Here’s what we know so far.`\
 https://nytimes.com/2025/09/26/health/trump-drug-tariffs-prescription-costs.html
