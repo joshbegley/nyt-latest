@@ -1,3 +1,7 @@
+**The World**\
+`A guide to understanding the news without feeling overwhelmed, made for readers around the globe. <a href="https://www.nytimes.com/newsletters/the-world" target="_blank">Sign up for the World newsletter.</a>`\
+https://nytimes.com/series/the-world
+
 **A Guinness Heiress Goes to Netflix**\
 `Ivana Lowell talks about spinning her high-drama family tales into “House of Guinness” with the “Peaky Blinders” creator Steven Knight.`\
 https://nytimes.com/2025/09/26/style/a-guinness-heiress-goes-to-netflix.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/26/world/europe/europe-frozen-russian-funds-ukraine.
 **Haaland 'ready' for Burnley; Ait-Nouri, Cherki, Marmoush out**\
 `Haaland missed the 2-0 Carabao Cup win against Huddersfield Town, having been withdrawn on 76 minutes during City's 1-1 draw against Arsenal`\
 https://nytimes.com/athletic/6664854/2025/09/26/erling-haaland-injury-man-city-marmoush/
-
-**Trump Administration Live Updates: President Defends Comey Indictment**\
-``\
-https://nytimes.com/live/2025/09/26/us/trump-news
 

@@ -1,3 +1,15 @@
+**Book Club: Let’s Discuss ‘Pride and Prejudice’**\
+`Jane Austen’s classic, about the tortured romance of two people frazzled by miscommunications and assumptions, still feels fresh 250 years after Austen’s birth.`\
+https://nytimes.com/2025/09/26/books/review/podcast-pride-prejudice-book-club.html
+
+**Correcting the Record on Women’s Experiences of War**\
+`A stage adaptation of the Nobel laureate Svetlana Alexievich’s “The Unwomanly Face of War” gives Soviet women credit for their complex roles in World War II.`\
+https://nytimes.com/2025/09/26/theater/svetlana-alexievich-julie-deliquet.html
+
+**Chiefs' Drue Tranquill has daily reminder of Lamar Jackson's ability. It sits in his house**\
+`The Ravens' quarterback won an ESPY for a play against the Chiefs in 2024. Tranquill is the reason it wasn't a touchdown.`\
+https://nytimes.com/athletic/6662164/2025/09/26/chiefs-ravens-lamar-jackson-drue-tranquill/
+
 **The World**\
 `A guide to understanding the news without feeling overwhelmed, made for readers around the globe. <a href="https://www.nytimes.com/newsletters/the-world" target="_blank">Sign up for the World newsletter.</a>`\
 https://nytimes.com/series/the-world
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6664228/2025/09/26/mlb-playoff-watch-dodgers-nl-wes
 **Arteta hopeful on Odegaard fitness for Newcastle trip**\
 `Odegaard has missed Arsenal's last three games due to a shoulder injury.`\
 https://nytimes.com/athletic/6664686/2025/09/26/martin-odegaard-arsenal-injury-news/
-
-**Spurs have 'unequivocally rejected' Earick's interest to buy club**\
-`Spurs confirmed on Friday that they had rejected Earick's interest, while reiterating that they are not for sale.`\
-https://nytimes.com/athletic/6664872/2025/09/26/tottenham-news-owners-bid-earick/
-
-**Europe Eyes New Use of Frozen Russian Funds to Help Ukraine**\
-`Germany’s chancellor is the latest to back a loan plan that is meant to send a message to Moscow that Ukraine will not collapse. But the idea carries risks.`\
-https://nytimes.com/2025/09/26/world/europe/europe-frozen-russian-funds-ukraine.html
-
-**Haaland 'ready' for Burnley; Ait-Nouri, Cherki, Marmoush out**\
-`Haaland missed the 2-0 Carabao Cup win against Huddersfield Town, having been withdrawn on 76 minutes during City's 1-1 draw against Arsenal`\
-https://nytimes.com/athletic/6664854/2025/09/26/erling-haaland-injury-man-city-marmoush/
 
