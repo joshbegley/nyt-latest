@@ -1,3 +1,15 @@
+**Russia and China Fail to Delay U.N. ‘Snapback’ Sanctions Against Iran**\
+`The unsuccessful bid to put off the sanctions for six months over Iran’s nuclear program means they would go into effect early Sunday in Iran.`\
+https://nytimes.com/2025/09/26/world/middleeast/iran-sanctions-europe-russia-un.html
+
+**Adams Attends Netanyahu’s U.N. Speech as Mamdani Rebukes It**\
+`Mayor Eric Adams and Zohran Mamdani had starkly different responses to the Israeli prime minister’s visit to the U.N., which drew thousands of protesters.`\
+https://nytimes.com/2025/09/26/nyregion/eric-adams-netanyahu-mamdani.html
+
+**Brutal Killing of 3 Women, Broadcast on Instagram, Shocks Argentina**\
+`The live streamed torture and killing of three young women in Buenos Aires has stunned the country, setting off worries about the increasing presence of drug cartels.`\
+https://nytimes.com/2025/09/26/world/americas/argentina-women-murder-instagram.html
+
 **Everything You Need to Know About Retinol, Skin-Care’s ‘Superhero’ Ingredient**\
 `An expert-approved guide to a multitasking cosmetic with a wide range of benefits — from clearing congested pores to reducing the appearance of wrinkles.`\
 https://nytimes.com/2025/09/26/t-magazine/how-to-use-retinol-guide.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6665536/2025/09/26/guardians-al-central-favorites-o
 **The World’s 50 Best Restaurants Announces Its North American Picks**\
 `At the top of the new list is Atomix, a refined Korean tasting-menu spot in New York. But other rankings take a surprising turn to the casual.`\
 https://nytimes.com/2025/09/26/dining/worlds-50-best-restaurants-north-america.html
-
-**Federal Agent Pushes Woman to Floor at Immigration Courthouse**\
-`Federal agents shoved a woman to the floor after she clung to her husband who was being detained at an immigration courthouse in Manhattan. The Department of Homeland Security said the agent was “relieved of his duties” and is under investigation.`\
-https://nytimes.com/video/nyregion/100000010424456/ice-immigration-manhattan.html
-
-**Answers to Puns and Anagrams (Aug. 21, 2011)**\
-`Here are the answers to Mel Taub’s Puns and Anagrams puzzle from Aug. 21, 2011.`\
-https://nytimes.com/interactive/2025/09/26/us/08212011-panda-answers.html
-
-**Answers to Puns and Anagrams (Jan. 5, 2003)**\
-`Here are the answers to Mel Taub’s Puns and Anagrams puzzle from Jan. 5, 2003.`\
-https://nytimes.com/interactive/2025/09/26/us/01052003-panda-answers.html
 
