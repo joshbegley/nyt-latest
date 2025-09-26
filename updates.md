@@ -1,3 +1,15 @@
+**Despite False Claims, Trump Funnels Millions Into Credible Autism Research**\
+`Many scientists were pleased to learn that N.I.H. funding will go to leading experts examining complex new theories, not only fears over vaccines.`\
+https://nytimes.com/2025/09/26/health/autism-research-trump-kennedy.html
+
+**Hurricane Humberto Intensified to a Category 3 in Just a Few Hours**\
+`When hurricanes grow quickly, they can catch forecasters and coastal communities off guard.`\
+https://nytimes.com/2025/09/26/weather/hurricane-humberto-rapid-intensification.html
+
+**Grizzlies' Ja Morant signs with advisory firm led by his uncle, mother**\
+`Morant said he will negotiate his next contract after firing his agent last season and signing with an advisory firm involving his family.`\
+https://nytimes.com/athletic/6666348/2025/09/26/ja-morant-phil-advisory-firm-iloc-kawhi-leonard/
+
 **Kane breaks Ronaldo, Haaland scoring record: 'It's crazy even for me'**\
 `Kane scored his 100th Bayern Munich goal in just his 104th appearance for the club.`\
 https://nytimes.com/athletic/6666311/2025/09/26/harry-kane-goal-record-bayern/

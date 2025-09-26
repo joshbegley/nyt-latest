@@ -1,3 +1,15 @@
+**Despite False Claims, Trump Funnels Millions Into Credible Autism Research**\
+`Many scientists were pleased to learn that N.I.H. funding will go to leading experts examining complex new theories, not only fears over vaccines.`\
+https://nytimes.com/2025/09/26/health/autism-research-trump-kennedy.html
+
+**Hurricane Humberto Intensified to a Category 3 in Just a Few Hours**\
+`When hurricanes grow quickly, they can catch forecasters and coastal communities off guard.`\
+https://nytimes.com/2025/09/26/weather/hurricane-humberto-rapid-intensification.html
+
+**Grizzlies' Ja Morant signs with advisory firm led by his uncle, mother**\
+`Morant said he will negotiate his next contract after firing his agent last season and signing with an advisory firm involving his family.`\
+https://nytimes.com/athletic/6666348/2025/09/26/ja-morant-phil-advisory-firm-iloc-kawhi-leonard/
+
 **Kane breaks Ronaldo, Haaland scoring record: 'It's crazy even for me'**\
 `Kane scored his 100th Bayern Munich goal in just his 104th appearance for the club.`\
 https://nytimes.com/athletic/6666311/2025/09/26/harry-kane-goal-record-bayern/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/26/world/middleeast/iran-sanctions-europe-russia-un.
 **Adams Attends Netanyahu’s U.N. Speech as Mamdani Rebukes It**\
 `Mayor Eric Adams and Zohran Mamdani had starkly different responses to the Israeli prime minister’s visit to the U.N., which drew thousands of protesters.`\
 https://nytimes.com/2025/09/26/nyregion/eric-adams-netanyahu-mamdani.html
-
-**Brutal Killing of 3 Women, Broadcast on Instagram, Shocks Argentina**\
-`The live streamed torture and killing of three young women in Buenos Aires has stunned the country, setting off worries about the increasing presence of drug cartels.`\
-https://nytimes.com/2025/09/26/world/americas/argentina-women-murder-instagram.html
-
-**Everything You Need to Know About Retinol, Skin-Care’s ‘Superhero’ Ingredient**\
-`An expert-approved guide to a multitasking cosmetic with a wide range of benefits — from clearing congested pores to reducing the appearance of wrinkles.`\
-https://nytimes.com/2025/09/26/t-magazine/how-to-use-retinol-guide.html
-
-**Xavier Worthy set to return from shoulder injury vs. Ravens Sunday**\
-`Wothy did not receive an injury game-status designation, meaning he's expected to be back in the team's starting lineup Sunday.`\
-https://nytimes.com/athletic/6666213/2025/09/26/xavier-worthy-chiefs-return-shoulder-injury-ravens/
 
