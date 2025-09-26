@@ -1,3 +1,7 @@
+**Next Time You Consult an A.I. Chatbot, Remember One Thing**\
+`Chatbots want to be your friend, when what you really need is a neutral perspective.`\
+https://nytimes.com/2025/09/26/well/is-ai-validation-healthy.html
+
 **gws-egypt-white-black-deserts**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/egypt-white-black-deserts
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/26/dining/these-smashed-chicken-meatballs-completely
 **Five Science Fiction Movies to Stream Now**\
 `In this month’s picks, the latest in the “28 Days Later” franchise, an aerial phenomenon, and a samurai lost in time.`\
 https://nytimes.com/2025/09/26/movies/five-science-fiction-movies-to-stream-now.html
-
-**Garcia out six weeks with knee injury, Raphinha out three weeks with thigh issue, Barca say**\
-`Both players will miss the Champions League match against Paris Saint-Germain on October 1.`\
-https://nytimes.com/athletic/6664708/2025/09/26/raphinha-joan-garcia-injury-barcelona/
 

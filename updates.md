@@ -1,3 +1,7 @@
+**Next Time You Consult an A.I. Chatbot, Remember One Thing**\
+`Chatbots want to be your friend, when what you really need is a neutral perspective.`\
+https://nytimes.com/2025/09/26/well/is-ai-validation-healthy.html
+
 **gws-egypt-white-black-deserts**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/egypt-white-black-deserts
