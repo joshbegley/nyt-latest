@@ -1,3 +1,7 @@
+**U.N. Human Rights Office Asks Ghana to Halt Deportations of Migrants Sent From U.S.**\
+`At least five migrants recently deported to Ghana from the United States had court-ordered protections meant to keep them from the possibility of being tortured if returned to their home countries.`\
+https://nytimes.com/2025/09/26/us/politics/migrants-ghana-deportations.html
+
 **You Asked for More of Mel Taub’s Puzzles. Here Are Three.**\
 `With his Puns and Anagrams puzzles, Mr. Taub made solvers groan and grin for decades. After he died this month, readers expressed appreciation for his work.`\
 https://nytimes.com/2025/09/26/obituaries/mel-taub-puzzles.html
