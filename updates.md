@@ -1,3 +1,15 @@
+**The World’s 50 Best Restaurants Announces Its North American Picks**\
+`At the top of the new list is Atomix, a refined Korean tasting-menu spot in New York. But other rankings take a surprising turn to the casual.`\
+https://nytimes.com/2025/09/26/dining/worlds-50-best-restaurants-north-america.html
+
+**Federal Agent Pushes Woman to Floor at Immigration Courthouse**\
+`Federal agents shoved a woman to the floor after she clung to her husband who was being detained at an immigration courthouse in Manhattan. The Department of Homeland Security said the agent was “relieved of his duties” and is under investigation.`\
+https://nytimes.com/video/nyregion/100000010424456/ice-immigration-manhattan.html
+
+**Answers to Puns and Anagrams (Aug. 21, 2011)**\
+`Here are the answers to Mel Taub’s Puns and Anagrams puzzle from Aug. 21, 2011.`\
+https://nytimes.com/interactive/2025/09/26/us/08212011-panda-answers.html
+
 **Answers to Puns and Anagrams (Jan. 5, 2003)**\
 `Here are the answers to Mel Taub’s Puns and Anagrams puzzle from Jan. 5, 2003.`\
 https://nytimes.com/interactive/2025/09/26/us/01052003-panda-answers.html
