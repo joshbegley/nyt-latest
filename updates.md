@@ -1,3 +1,15 @@
+**Netanyahu Was Defiant at the U.N.**\
+`Also, what’s next after James Comey’s indictment. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/09/26/briefing/netanyahu-un-comey-trump-indicted.html
+
+**Investigating Steve Witkoff’s Sprawling Financial Empire**\
+`Reporters uncovered the Witkoff family’s efforts to profit off its patriarch’s proximity to the president.`\
+https://nytimes.com/2025/09/26/insider/steve-witkoff-financial-empire-middle-east.html
+
+**On Shutdown, Democrats Turn to Simple Strategy: Do Something**\
+`They want to show their willingness to fight, even if the battle ends in defeat.`\
+https://nytimes.com/2025/09/26/us/politics/democrats-government-shutdown.html
+
 **Despite False Claims, Trump Funnels Millions Into Credible Autism Research**\
 `Many scientists were pleased to learn that N.I.H. funding will go to leading experts examining complex new theories, not only fears over vaccines.`\
 https://nytimes.com/2025/09/26/health/autism-research-trump-kennedy.html
