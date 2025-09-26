@@ -1,3 +1,11 @@
+**Quote of the Day: Students Are Ill Prepared for College and Beyond**\
+`Quotation of the Day for Friday, September 26, 2025.`\
+https://nytimes.com/2025/09/25/pageoneplus/quote-of-the-day-students-are-ill-prepared-for-college-and-beyond.html
+
+**Seahawks vs. Cardinals: Seattle holds off Arizona with 52-yard field goal**\
+`The Seahawks held off the Cardinals' fourth-quarter comeback attempt to win 23-20.`\
+https://nytimes.com/athletic/6663814/2025/09/25/seahawks-cardinals-score-result-takeaways-thursday-night-football/
+
 **'Nothing to gain. Everything to lose': Wild owner dodges Kirill Kaprizov contract questions**\
 `For an organization that has voiced optimism that it would be able to easily lock up Kaprizov, Craig Leipold's silence spoke volumes.`\
 https://nytimes.com/athletic/6663953/2025/09/25/wild-kirill-kaprizov-contract-craig-leipold/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6663360/2025/09/25/reds-noelvi-marte-home-run-robbe
 **Trump Orders Broad Effort to Root Out Groups He Says Organize Political Violence**\
 `President Trump has long maintained that liberal activists and organizations secretly fund political violence. Law enforcement officials say efforts like the antifascist movement are often disparate groups.`\
 https://nytimes.com/2025/09/25/us/politics/trump-memorandum-left-wing-violence.html
-
-**Trump Gets the Retribution He Sought, and Shatters Norms in the Process**\
-`A prosecutor’s drive to indict James Comey trampled over the Justice Department’s long tradition of keeping a distance from politics and the White House, and raised the prospect of more arbitrary charges.`\
-https://nytimes.com/2025/09/25/us/politics/trump-retribution-comey-indictment.html
-
-**Trump Will Slap Tariffs on Imported Drugs, Trucks and Household Furnishings**\
-`The president said his tariffs would range from 25 to 100 percent and go into effect next week.`\
-https://nytimes.com/2025/09/25/business/economy/trump-tariffs-pharmaceuticals-furniture-trucks.html
 
