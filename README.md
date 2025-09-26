@@ -1,3 +1,7 @@
+**Abbas’s Message to the United Nations**\
+`The president of the Palestinian Authority addressed the U.N. General Assembly by video after the U.S. denied him a visa.`\
+https://nytimes.com/2025/09/26/briefing/united-nations-trump-comey.html
+
 **As Trump Tries to Limit Foreign Workers, China Woos Them**\
 `A new visa for science and engineering graduates is part of China’s effort to establish itself as the world leader in science and technology.`\
 https://nytimes.com/2025/09/26/world/asia/china-tech-workers-visas-us-h1b.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6661754/2025/09/26/chelsea-goalkeepers-robert-sanch
 `A sixth-place finish should be achievable. Defeats, especially against top sides, will hurt but they shouldn’t herald doom
 `\
 https://nytimes.com/athletic/6662908/2025/09/26/manchester-united-realistic-goals-2025-26/
-
-**Nuno, O'Neil or Bilic? Which West Ham candidate would most suit their players?**\
-`West Ham have the trio in the frame to replace Graham Potter if he leaves after a tough start to the season`\
-https://nytimes.com/athletic/6660886/2025/09/26/west-ham-which-manager-analysis/
 
