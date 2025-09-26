@@ -1,3 +1,7 @@
+**Summoned U.S. Military Officers Are Expected to Hear a Rally-the-Troops Message**\
+`Several generals and admirals said the unusual meeting in the Washington area called by Defense Secretary Pete Hegseth would be both disruptive and expensive.`\
+https://nytimes.com/2025/09/26/us/politics/hegseth-military-summit.html
+
 **Sexual Misconduct by J.R.O.T.C. Instructors Is Pervasive, Report Finds**\
 `The high school classes taught by military veterans have been under scrutiny following a Times investigation that found repeated instances of sexual predation and little oversight.`\
 https://nytimes.com/2025/09/26/us/jrotc-sex-abuse-gao-report.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6665744/2025/09/26/sign-stealing-robert-saleh-liam-
 **Patriots defensive coordinator Terrell Williams diagnosed with prostate cancer**\
 `Williams, 51, has spent time away from the team in recent weeks. Linebackers coach Zak Kuhr will continue to call the plays on defense.`\
 https://nytimes.com/athletic/6665725/2025/09/26/terrell-williams-patriots-prostate-cancer/
-
-**Gunman from shooting at NFL headquarters had CTE, medical examiner says**\
-`Shane Tamura killed four people in the July shooting at a Midtown Manhattan office building.`\
-https://nytimes.com/athletic/6665817/2025/09/26/nfl-headquarters-gunman-cte/
 
