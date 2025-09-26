@@ -1,3 +1,7 @@
+**Hundreds Protest in New York City During Netanyahu’s U.N. Speech**\
+`Demonstrators began gathering in Times Square, across town from the United Nations building, early in the morning. They planned to march to the U.N.`\
+https://nytimes.com/2025/09/26/nyregion/nyc-united-nations-netanyahu-protest.html
+
 **I Witnessed A.I. Collide with Climate**\
 `This town’s minerals make A.I. possible. Then came Hurricane Helene.`\
 https://nytimes.com/video/opinion/100000010410190/i-witnessed-ai-collide-with-climate.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6662164/2025/09/26/chiefs-ravens-lamar-jackson-drue
 **The World**\
 `A guide to understanding the news without feeling overwhelmed, made for readers around the globe. <a href="https://www.nytimes.com/newsletters/the-world" target="_blank">Sign up for the World newsletter.</a>`\
 https://nytimes.com/series/the-world
-
-**A Guinness Heiress Goes to Netflix**\
-`Ivana Lowell talks about spinning her high-drama family tales into “House of Guinness” with the “Peaky Blinders” creator Steven Knight.`\
-https://nytimes.com/2025/09/26/style/a-guinness-heiress-goes-to-netflix.html
 
