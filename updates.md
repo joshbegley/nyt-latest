@@ -1,3 +1,7 @@
+**Sexual Misconduct by J.R.O.T.C. Instructors Is Pervasive, Report Finds**\
+`The high school classes taught by military veterans have been under scrutiny following a Times investigation that found repeated instances of sexual predation and little oversight.`\
+https://nytimes.com/2025/09/26/us/jrotc-sex-abuse-gao-report.html
+
 **Des Moines Schools Superintendent Detained by ICE, School Officials Say**\
 `The school board president in Iowa’s largest city said she did not know what led to the detention of Superintendent Ian Roberts, who has been in that role since 2023.`\
 https://nytimes.com/2025/09/26/us/des-moines-schools-immigration.html
