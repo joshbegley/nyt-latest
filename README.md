@@ -1,3 +1,19 @@
+**How to watch Astros at Angels: Time, TV, streaming for September 26**\
+`Find out how to watch the Houston Astros play the Los Angeles Angels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6664572/2025/09/26/astros-vs-angels-stream-how-to-watch-sept-26/
+
+**How to watch Rockies at Giants: Time, TV, streaming for September 26**\
+`Find out how to watch the Colorado Rockies play the San Francisco Giants, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6664566/2025/09/26/rockies-vs-giants-stream-how-to-watch-sept-26/
+
+**How to watch Royals at Athletics: Time, TV, streaming for September 26**\
+`Find out how to watch the Kansas City Royals play the Athletics, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6664553/2025/09/26/royals-vs-athletics-stream-how-to-watch-sept-26/
+
+**How to watch Dodgers at Mariners: Time, TV, streaming for September 26**\
+`Find out how to watch the Los Angeles Dodgers play the Seattle Mariners, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6664548/2025/09/26/dodgers-vs-mariners-stream-how-to-watch-sept-26/
+
 **Celtics owner Bill Chisholm on expectations, Brad Stevens' autonomy and WNBA in Boston**\
 `"We’re going to do everything we can to win. That is job No. 1. And not just win games — win championships," says new owner Bill Chisholm.`\
 https://nytimes.com/athletic/6663279/2025/09/26/celtics-owner-jayson-tatum-bill-chisholm/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/09/26/us/politics/comey-indictment-trump-takeaways.html
 **A New Kind of Copycat Killer**\
 `The alienated loners behind left-coded violence.`\
 https://nytimes.com/2025/09/26/opinion/dallas-ice-shooter-kirk-luigi.html
-
-**Give Your Gums Some Love**\
-`Even if you’re diligent about caring for your teeth, you might be overlooking your gums.`\
-https://nytimes.com/2025/09/26/well/gum-health-tips.html
-
-**The New York Times News Quiz, Sept. 26, 2025**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2025/09/26/briefing/quiz-kimmel-ice-tylenol-typhoon.html
-
-**Gabbard Ends Intelligence Report on Future Threats to U.S.**\
-`Some issues in the document, which is issued every four years, had become politically inconvenient, former officials said.`\
-https://nytimes.com/2025/09/26/us/politics/gabbard-intelligence-report-cancellation.html
-
-**Marketing Movies Is Harder Than Ever. And Here Comes ‘One Battle After Another.’**\
-`The film is the kind that isn’t supposed to work in theaters anymore. But Warner Bros., the studio behind it, has successfully bucked trends for months now.`\
-https://nytimes.com/2025/09/26/business/media/marketing-warner-bros-one-battle-after-another.html
 
