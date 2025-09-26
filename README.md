@@ -1,3 +1,7 @@
+**Tom Cillo, playing college football at 58, signs NIL deal with pain-relief brand**\
+`Tom Cillo, the 58-year-old defensive lineman and powerlifter hoping to become the oldest player to play in a college football game since 2009, is building his own brand.`\
+https://nytimes.com/athletic/6665695/2025/09/26/tom-cillo-nil-deal-player-oldest/
+
 **Guardians AL Central favorites after Tigers’ epic collapse. See how the odds moved**\
 `The AL Central division race has been a rollercoaster of late, thanks to an epic collapse by the Tigers. See all the odds movement here.`\
 https://nytimes.com/athletic/6665536/2025/09/26/guardians-al-central-favorites-over-tigers-odds-movement/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/09/26/us/04122015-panda-answersjpg.html
 **Judge in Comey Case Has Presided Over Other Politically Fraught Proceedings**\
 `Judge Michael S. Nachmanoff, a Biden appointee, previously handled the 2019 arraignment of two associates of Rudolph W. Giuliani, among other high-profile cases.`\
 https://nytimes.com/2025/09/26/us/politics/james-comey-indictment-judge.html
-
-**How to watch Lynx at Mercury: Game 3 Time, TV, streaming**\
-`Find out how to watch the Minnesota Lynx play the Phoenix Mercury, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6666218/2025/09/26/lynx-vs-mercury-stream-how-to-watch-sept-26/
 
