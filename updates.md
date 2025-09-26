@@ -1,3 +1,7 @@
+**MLB playoff watch: Dodgers lock up the NL West; bracket, clinching scenarios**\
+`As the 2025 stretch run winds to a close, who holds onto playoff hopes? And whose fate is at the mercy of other teams?`\
+https://nytimes.com/athletic/6664228/2025/09/26/mlb-playoff-watch-dodgers-nl-west-title/
+
 **Spurs have 'unequivocally rejected' Earick's interest to buy club**\
 `Spurs confirmed on Friday that they had rejected Earick's interest, while reiterating that they are not for sale.`\
 https://nytimes.com/athletic/6664872/2025/09/26/tottenham-news-owners-bid-earick/

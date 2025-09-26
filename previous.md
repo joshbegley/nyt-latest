@@ -1,3 +1,7 @@
+**MLB playoff watch: Dodgers lock up the NL West; bracket, clinching scenarios**\
+`As the 2025 stretch run winds to a close, who holds onto playoff hopes? And whose fate is at the mercy of other teams?`\
+https://nytimes.com/athletic/6664228/2025/09/26/mlb-playoff-watch-dodgers-nl-west-title/
+
 **Arteta hopeful on Odegaard fitness for Newcastle trip**\
 `Odegaard has missed Arsenal's last three games due to a shoulder injury.`\
 https://nytimes.com/athletic/6664686/2025/09/26/martin-odegaard-arsenal-injury-news/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6663647/2025/09/26/chargers-keenan-allen-return-jus
 **Bills might have best chance at elusive No. 1 seed this season, plus a look at Saints matchup**\
 `The Bills have long coveted the No. 1 seed and all that comes with it.`\
 https://nytimes.com/athletic/6662906/2025/09/26/bills-afc-no-1-seed-saints/
-
-**Weekend watch guide: MLB playoff push, WNBA semifinals, Alabama-Georgia, Lamar vs. Mahomes**\
-`There's a lot going on in the sports world as September winds down. Let this compilation help you decide what to tune in for this weekend.`\
-https://nytimes.com/athletic/6659900/2025/09/26/mlb-wild-card-wnba-playoffs-mahomes-lamar-alabama-georgia-how-to-watch/
 
