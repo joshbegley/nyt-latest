@@ -1,3 +1,7 @@
+**You Asked for More of Mel Taub’s Puzzles. Here Are Three.**\
+`With his Puns and Anagrams puzzles, Mr. Taub made solvers groan and grin for decades. After he died this month, readers expressed appreciation for his work.`\
+https://nytimes.com/2025/09/26/obituaries/mel-taub-puzzles.html
+
 **Here’s What to Know About Comey’s Indictment**\
 `The former F.B.I. director was indicted Thursday on one count of making a false statement and one count of obstruction in connection with a congressional testimony five years ago.`\
 https://nytimes.com/2025/09/26/us/politics/trump-james-comey-indictment-explained.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6666348/2025/09/26/ja-morant-phil-advisory-firm-ilo
 **Kane breaks Ronaldo, Haaland scoring record: 'It's crazy even for me'**\
 `Kane scored his 100th Bayern Munich goal in just his 104th appearance for the club.`\
 https://nytimes.com/athletic/6666311/2025/09/26/harry-kane-goal-record-bayern/
-
-**Trump Fired a U.S. Attorney Who Insisted on Following a Court Order**\
-`The top federal prosecutor in Sacramento was fired hours after she reminded a Border Patrol chief to abide by court-ordered restrictions on immigration raids.`\
-https://nytimes.com/2025/09/26/us/trump-fires-us-attorney-california-immigration.html
 
