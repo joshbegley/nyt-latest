@@ -1,40 +1,40 @@
-**Quote of the Day: Students Are Ill Prepared for College and Beyond**\
-`Quotation of the Day for Friday, September 26, 2025.`\
-https://nytimes.com/2025/09/25/pageoneplus/quote-of-the-day-students-are-ill-prepared-for-college-and-beyond.html
+**4,000 calories and 600g of carbs a day: Fuelling one of the world's greatest sports teams**\
+`The English are favourites to beat Canada and be crowned champions on home soil this weekend, but what has fuelled their success?`\
+https://nytimes.com/athletic/6548745/2025/09/26/england-women-world-cup-final-nutrition/
 
-**Seahawks vs. Cardinals: Seattle holds off Arizona with 52-yard field goal**\
-`The Seahawks held off the Cardinals' fourth-quarter comeback attempt to win 23-20.`\
-https://nytimes.com/athletic/6663814/2025/09/25/seahawks-cardinals-score-result-takeaways-thursday-night-football/
+**EA Sports FC 26 review: What's new in the world's biggest football simulation game?**\
+`The latest iteration of an EA Sports juggernaut has been released — Ajay Rose explores what's new about this year's game`\
+https://nytimes.com/athletic/6654736/2025/09/26/ea-sports-fc-26-review-gameplay-modes/
 
-**'Nothing to gain. Everything to lose': Wild owner dodges Kirill Kaprizov contract questions**\
-`For an organization that has voiced optimism that it would be able to easily lock up Kaprizov, Craig Leipold's silence spoke volumes.`\
-https://nytimes.com/athletic/6663953/2025/09/25/wild-kirill-kaprizov-contract-craig-leipold/
+**The Prospects: Luca Williams-Barnett, Tottenham Hotspur**\
+`Williams-Barnett impressed for the under-21s at Leicester and went on to make a first-team debut in midweek against Doncaster Rovers`\
+https://nytimes.com/athletic/6657513/2025/09/26/luca-williams-barnett-tottenham-prospects/
 
-**Mets vs. Cubs: Francisco Lindor caps 30-30 to help defend wild-card lead**\
-`The Mets' playoff dreams are still alive after their 8-5 win over the Cubs on Wednesday night.`\
-https://nytimes.com/athletic/6663886/2025/09/25/mets-cubs-score-results-takeaways-nl-playoff-standings/
+**Marco Rossi scores 2 goals in 10 seconds, Zeev Buium struggles: Takeaways**\
+`Minnesota coughed up a two-goal lead and fell 5-2 to Dallas in a preseason game on Thursday.`\
+https://nytimes.com/athletic/6664087/2025/09/26/wild-stars-marco-rossi-zeev-buium-takeaways/
 
-**‘The Other Americans’ Review: John Leguizamo’s Family Drama Aims Big**\
-`For the first play he’s written, the actor stars as a striving Colombian American patriarch in the mold of Willy Loman or Walter Younger.`\
-https://nytimes.com/2025/09/25/theater/the-other-americans-review-john-leguizamo.html
+**As Right-Wing Populism Rises, Progressives Meet to Share Tactics in London**\
+`Center-left figures including Mark Carney, Keir Starmer, Pete Buttigieg and Jacinda Ardern are set to attend a summit on Friday as their brand of politics appears under threat.`\
+https://nytimes.com/2025/09/26/world/europe/progressives-ippr-summit-london-starmer.html
 
-**Stream With a Lot of Shade**\
-`Larry Snyder’s puzzle gave me a run for my money.`\
-https://nytimes.com/2025/09/25/crosswords/daily-puzzle-2025-09-26.html
+**Connections: Sports Edition Coach: Hints for Sept. 26, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6663527/2025/09/26/connections-sports-edition-hints-for-sept-26-2025/
 
-**Tigers vs. Guardians: Detroit ends 8-game skid, ties Cleveland for AL Central lead**\
-`With three games left, the Tigers and Guardians share first place in the AL Central, but Cleveland holds the head-to-head tiebreaker.`\
-https://nytimes.com/athletic/6663155/2025/09/25/tigers-guardians-takeaways-game-3-al-central-battle/
+**Corrections: Sept. 26, 2025**\
+`Corrections that appeared in print on Friday, Sept. 26, 2025.`\
+https://nytimes.com/2025/09/26/pageoneplus/corrections-sept-26-2025.html
 
-**In potentially his final Astros start, Framber Valdez keeps Houston's playoff hopes alive**\
-`If that is Valdez’s last act in an Astros uniform, it is a fitting sendoff for an underappreciated southpaw who sometimes tested patience.`\
-https://nytimes.com/athletic/6663826/2025/09/25/houston-astros-framber-valdez-playoff-hopes/
+**Gender Bending Jewish Traditions With a Little Humor**\
+`Raye Schiller, a standup comedian, could always recognize Jay Nemanpour’s laugh in a crowd.`\
+https://nytimes.com/2025/09/26/style/raye-schiller-joseph-nemanpour-wedding.html
 
-**Did Noelvi Marte save Reds' season? 'One of the best plays I’ve ever seen'**\
-`The Reds kept pace with the Mets for the third and final wild-card spot in the National League.`\
-https://nytimes.com/athletic/6663360/2025/09/25/reds-noelvi-marte-home-run-robbery-catch/
+**A Soul Mate Hidden in Plain Sight**\
+`Nadine Santoro and Lena Wilson met online in 2016 and became close friends. Years later, they realized they were in love.`\
+https://nytimes.com/2025/09/26/style/lena-wilson-nadine-santoro-wedding.html
 
-**Trump Orders Broad Effort to Root Out Groups He Says Organize Political Violence**\
-`President Trump has long maintained that liberal activists and organizations secretly fund political violence. Law enforcement officials say efforts like the antifascist movement are often disparate groups.`\
-https://nytimes.com/2025/09/25/us/politics/trump-memorandum-left-wing-violence.html
+**They Never Expected Their Spanish Lessons to Go Viral**\
+`When Juan Osorio began teaching Wolfgang Ruth his native language, their bond (and their following) quickly grew.`\
+https://nytimes.com/2025/09/26/style/wolfgang-ruth-camilo-osorio-wedding.html
 

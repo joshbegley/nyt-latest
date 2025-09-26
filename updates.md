@@ -1,3 +1,11 @@
+**Quote of the Day: Students Are Ill Prepared for College and Beyond**\
+`Quotation of the Day for Friday, September 26, 2025.`\
+https://nytimes.com/2025/09/25/pageoneplus/quote-of-the-day-students-are-ill-prepared-for-college-and-beyond.html
+
+**Seahawks vs. Cardinals: Seattle holds off Arizona with 52-yard field goal**\
+`The Seahawks held off the Cardinals' fourth-quarter comeback attempt to win 23-20.`\
+https://nytimes.com/athletic/6663814/2025/09/25/seahawks-cardinals-score-result-takeaways-thursday-night-football/
+
 **'Nothing to gain. Everything to lose': Wild owner dodges Kirill Kaprizov contract questions**\
 `For an organization that has voiced optimism that it would be able to easily lock up Kaprizov, Craig Leipold's silence spoke volumes.`\
 https://nytimes.com/athletic/6663953/2025/09/25/wild-kirill-kaprizov-contract-craig-leipold/
