@@ -1,40 +1,40 @@
-**Attack of the Knuckleball: How the Eagles intend to field them (and strike back)**\
-`The kicks are widely regarded as difficult to field.`\
-https://nytimes.com/athletic/6662318/2025/09/26/eagles-kick-return-knuckleball/
+**Spurs have received and 'unequivocally rejected' Earick's interest to buy club**\
+`Spurs confirmed on Friday that they had rejected Earick's interest, while reiterating that they are not for sale.`\
+https://nytimes.com/athletic/6664872/2025/09/26/tottenham-news-owners-bid-earick/
 
-**Rams' defense will again be tested against Daniel Jones and surging Colts**\
-`Los Angeles will have the challenge of slowing RB Jonathan Taylor and an Indianapolis offense that has punted just once all season. `\
-https://nytimes.com/athletic/6663762/2025/09/26/rams-defense-colts-offense-week-4/
+**Europe Eyes New Use of Frozen Russian Funds to Help Ukraine**\
+`Germany’s chancellor is the latest to back a loan plan that is meant to send a message to Moscow that Ukraine will not collapse. But the idea carries risks.`\
+https://nytimes.com/2025/09/26/world/europe/europe-frozen-russian-funds-ukraine.html
 
-**'Crazy energy, extreme passion' and 'a little swagger': The Jaxson Dart era is here**\
-`"When he steps foot on the field, he exudes confidence. He’s the type of dude who makes the people around him better."`\
-https://nytimes.com/athletic/6664222/2025/09/26/jaxson-dart-ny-giants-swagger-debut/
+**Haaland 'ready' for Burnley; Ait-Nouri, Cherki, Marmoush out**\
+`Haaland missed the 2-0 Carabao Cup win against Huddersfield Town, having been withdrawn on 76 minutes during City's 1-1 draw against Arsenal`\
+https://nytimes.com/athletic/6664854/2025/09/26/erling-haaland-injury-man-city-marmoush/
 
-**Netanyahu Took a Circuitous Route to the U.N. Meeting**\
-`The Israeli prime minister, who is subject to an international arrest warrant for war crimes charges, avoided France and Spain, which have sharply criticized the war in Gaza.`\
-https://nytimes.com/2025/09/26/world/middleeast/netanyahu-flight-un-meeting.html
+**Trump Administration Live Updates: Comey Indicted After Relentless Pressure from President**\
+``\
+https://nytimes.com/live/2025/09/26/us/trump-news
 
-**TAFC: Say hello to the new World Cup mascots. Plus: Trump administration rallies against potential Israel ban**\
-`In today's TAFC: The mascots for the 2026 World Cup are revealed plus the Trump administration rallies against any World Cup ban for Israel`\
-https://nytimes.com/athletic/6664716/2025/09/26/athletic-fc-newsletter-world-cup-trump-barcelona/
+**Close National Parks if Government Shuts Down, Former Superintendents Plead**\
+`More than 35 former park superintendents wrote a letter to the Trump administration, saying the lands could be damaged under limited staffing.`\
+https://nytimes.com/2025/09/26/us/politics/national-parks-open-government-shutdown.html
 
-**Vikings-Steelers predictions: What we're watching in the first NFL game in Dublin**\
-`Aaron Rodgers vs. an old nemesis. Mike Tomlin vs. Brian Flores. Here's what we're watching in the NFL's first regular-season game in Dublin.`\
-https://nytimes.com/athletic/6664684/2025/09/26/vikings-steelers-predictions-dublin-aaron-rodgers-carson-wentz/
+**Who Might the Trump Administration Go After Next?**\
+`The president suggested more foes, including the billionaire Democratic donors George Soros and Reid Hoffman, could face legal scrutiny. Could others follow?`\
+https://nytimes.com/2025/09/26/business/dealbook/trump-soros-hoffman.html
 
-**Political Interference at the Justice Department**\
-`We examine James Comey’s indictment and an investigation into George Soros’s foundation.`\
-https://nytimes.com/2025/09/26/briefing/political-interference-at-the-justice-department.html
+**Why Keenan Allen's return to Chargers has been the team's best move of the offseason**\
+`Allen leads the Chargers with 19 receptions, none bigger than his fourth-quarter touchdown against the Broncos to help L.A. get to 3-0.`\
+https://nytimes.com/athletic/6663647/2025/09/26/chargers-keenan-allen-return-justin-herbert/
 
-**NFL Week 4 rankings: Top 5 chaos games, from Ravens-Chiefs to Parsons vs. Cowboys**\
-`Our Week 4 picks are all about unbridled chaos — we're talking about potential vessels for double-digit comebacks and extra-strange endings.`\
-https://nytimes.com/athletic/6656922/2025/09/26/week-4-nfl-ravens-chiefs-micah-parsons-packers-cowboys-how-to-watch/
+**Bills might have best chance at elusive No. 1 seed this season, plus a look at Saints matchup**\
+`The Bills have long coveted the No. 1 seed and all that comes with it.`\
+https://nytimes.com/athletic/6662906/2025/09/26/bills-afc-no-1-seed-saints/
 
-**Palmer to miss Chelsea's next three games due to groin injury**\
-`Head coach Enzo Maresca also said it is unlikely that centre-backs Tosin Adarabioyo and Wesley Fofana will feature in the next few weeks.`\
-https://nytimes.com/athletic/6664770/2025/09/26/cole-palmer-injury-chelsea-tosin-fofana/
+**Weekend watch guide: MLB playoff push, WNBA semifinals, Alabama-Georgia, Lamar vs. Mahomes**\
+`There's a lot going on in the sports world as September winds down. Let this compilation help you decide what to tune in for this weekend.`\
+https://nytimes.com/athletic/6659900/2025/09/26/mlb-wild-card-wnba-playoffs-mahomes-lamar-alabama-georgia-how-to-watch/
 
-**How to watch NASCAR Cup Series at Kansas: TV, streaming for Hollywood Casino 400**\
-`Race 2 of the Round of 12 is set for Kansas Speedway. Kyle Larson is favored to win, but a stacked field provides a significant challenge. `\
-https://nytimes.com/athletic/6663070/2025/09/26/nascar-hollywood-400-kansas-playoffs-how-to-watch/
+**Fantasy Premier League live Q&A: Gameweek 6 advice from Ben Dinnery**\
+`Join Ben Dinnery for a live Gameweek 6 Q&A from 4pm-5pm UK time on Friday`\
+https://nytimes.com/athletic/6661317/2025/09/26/fantasy-premier-league-live-qa-gameweek-6-advice-from-ben-dinnery/
 
