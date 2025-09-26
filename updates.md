@@ -1,3 +1,7 @@
+**Federal Forces to Arrive in Memphis Next Week, Governor Says**\
+`The deployment will eventually include more than a dozen federal agencies, Gov. Bill Lee said, as well as the National Guard.`\
+https://nytimes.com/2025/09/26/us/politics/memphis-national-guard-crime.html
+
 **Kuwait to host Trophee des Champions between PSG and Marseille**\
 `The fixture will take place at the 58,000-capacity Jaber Al-Ahmad International Stadium in January.`\
 https://nytimes.com/athletic/6665722/2025/09/26/psg-marseille-trophee-des-champions-kuwait/

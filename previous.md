@@ -1,3 +1,7 @@
+**Federal Forces to Arrive in Memphis Next Week, Governor Says**\
+`The deployment will eventually include more than a dozen federal agencies, Gov. Bill Lee said, as well as the National Guard.`\
+https://nytimes.com/2025/09/26/us/politics/memphis-national-guard-crime.html
+
 **Kuwait to host Trophee des Champions between PSG and Marseille**\
 `The fixture will take place at the 58,000-capacity Jaber Al-Ahmad International Stadium in January.`\
 https://nytimes.com/athletic/6665722/2025/09/26/psg-marseille-trophee-des-champions-kuwait/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010421265/what-does-nicolas-sarkozy
 **Skier Climbs Everest and Skis Back Down Without Extra Oxygen**\
 `Andrzej Bargiel, a Polish adventure skier, became the first to climb Mount Everest and ski back down without supplemental oxygen, his sponsors said.`\
 https://nytimes.com/video/sports/skiing/100000010423591/first-everest-skier-without-supplemental-oxygen.html
-
-**North Korea Sends Delegation From Pyongyang to General Assembly After Long Absence**\
-`The last time North Korea sent officials directly from the capital was in 2018, a year before direct diplomacy between its leader, Kim Jong-un, and President Trump collapsed.`\
-https://nytimes.com/2025/09/26/world/asia/north-korea-un-general-assembly.html
 
