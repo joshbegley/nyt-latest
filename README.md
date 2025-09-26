@@ -19,8 +19,8 @@ https://nytimes.com/athletic/6664770/2025/09/26/cole-palmer-injury-chelsea-tosin
 https://nytimes.com/athletic/6663070/2025/09/26/nascar-hollywood-400-kansas-playoffs-how-to-watch/
 
 **A Timeline of the Trump-Comey Relationship**\
-`James B. Comey, the former F.B.I. director now under federal indictment, has long been a target of President Trump’s ire.`\
-https://nytimes.com/2025/09/26/world/americas/trump-comey-relationship-timeline.html
+`James B. Comey, the former F.B.I. director now under indictment, has long been a target of President Trump’s ire.`\
+https://nytimes.com/2025/09/26/us/trump-comey-relationship-timeline.html
 
 **For the Yankees, the playoffs need to start right now: 'Pedal is down'**\
 `The Yankees must treat Friday and Saturday like the start of the playoffs, because winning the AL East once again is crucial. `\
