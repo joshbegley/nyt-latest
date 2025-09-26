@@ -1,3 +1,15 @@
+**'Crazy energy, extreme passion' and 'a little swagger': The Jaxson Dart era is here**\
+`"When he steps foot on the field, he exudes confidence. He’s the type of dude who makes the people around him better."`\
+https://nytimes.com/athletic/6664222/2025/09/26/jaxson-dart-ny-giants-swagger-debut/
+
+**Netanyahu Took a Circuitous Route to the U.N. Meeting**\
+`The Israeli prime minister, who is subject to an international arrest warrant for war crimes charges, avoided France and Spain, which have sharply criticized the war in Gaza.`\
+https://nytimes.com/2025/09/26/world/middleeast/netanyahu-flight-un-meeting.html
+
+**TAFC: Say hello to the new World Cup mascots. Plus: Trump administration rallies against potential Israel ban**\
+`In today's TAFC: The mascots for the 2026 World Cup are revealed plus the Trump administration rallies against any World Cup ban for Israel`\
+https://nytimes.com/athletic/6664716/2025/09/26/athletic-fc-newsletter-world-cup-trump-barcelona/
+
 **Vikings-Steelers predictions: What we're watching in the first NFL game in Dublin**\
 `Aaron Rodgers vs. an old nemesis. Mike Tomlin vs. Brian Flores. Here's what we're watching in the NFL's first regular-season game in Dublin.`\
 https://nytimes.com/athletic/6664684/2025/09/26/vikings-steelers-predictions-dublin-aaron-rodgers-carson-wentz/
