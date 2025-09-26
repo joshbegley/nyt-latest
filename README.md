@@ -1,3 +1,7 @@
+**The vanishing of Oscar Pistorius**\
+`One of sport's most notorious figures is now an invisible presence, both in his home town and at the championships he once dominated `\
+https://nytimes.com/athletic/6657450/2025/09/26/oscar-pistorius-reeva-steenkamp-legacy/
+
 **Colbert Investigates Trump’s Claim of Escalator ‘Sabotage’**\
 `“Now he’s focused all of his rage on the one foe who refused to take him up, and that is the U.N.’s escalator,” Colbert said of Trump’s recent post on Truth Social.`\
 https://nytimes.com/2025/09/26/arts/television/colbert-trump-escalator-sabotage.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6664293/2025/09/26/rays-vs-blue-jays-stream-how-to-
 **How to watch Cardinals at Cubs: Time, TV, streaming for September 26**\
 `Find out how to watch the St. Louis Cardinals play the Chicago Cubs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6664289/2025/09/26/cardinals-vs-cubs-stream-how-to-watch-sept-26/
-
-**Word of the Day: nemesis**\
-`This word has appeared in 252 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/09/26/learning/word-of-the-day-nemesis.html
 
