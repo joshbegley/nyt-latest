@@ -1,3 +1,15 @@
+**'Crazy energy, extreme passion' and 'a little swagger': The Jaxson Dart era is here**\
+`"When he steps foot on the field, he exudes confidence. He’s the type of dude who makes the people around him better."`\
+https://nytimes.com/athletic/6664222/2025/09/26/jaxson-dart-ny-giants-swagger-debut/
+
+**Netanyahu Took a Circuitous Route to the U.N. Meeting**\
+`The Israeli prime minister, who is subject to an international arrest warrant for war crimes charges, avoided France and Spain, which have sharply criticized the war in Gaza.`\
+https://nytimes.com/2025/09/26/world/middleeast/netanyahu-flight-un-meeting.html
+
+**TAFC: Say hello to the new World Cup mascots. Plus: Trump administration rallies against potential Israel ban**\
+`In today's TAFC: The mascots for the 2026 World Cup are revealed plus the Trump administration rallies against any World Cup ban for Israel`\
+https://nytimes.com/athletic/6664716/2025/09/26/athletic-fc-newsletter-world-cup-trump-barcelona/
+
 **Vikings-Steelers predictions: What we're watching in the first NFL game in Dublin**\
 `Aaron Rodgers vs. an old nemesis. Mike Tomlin vs. Brian Flores. Here's what we're watching in the NFL's first regular-season game in Dublin.`\
 https://nytimes.com/athletic/6664684/2025/09/26/vikings-steelers-predictions-dublin-aaron-rodgers-carson-wentz/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/26/us/trump-comey-relationship-timeline.html
 **For the Yankees, the playoffs need to start right now: 'Pedal is down'**\
 `The Yankees must treat Friday and Saturday like the start of the playoffs, because winning the AL East once again is crucial. `\
 https://nytimes.com/athletic/6664137/2025/09/26/yankees-playoffs-american-league-east/
-
-**Byron Buxton adds 2 homers to 'historic' season, Bailey Ober finally shines in Twins win**\
-`Buxton continued a career year on Thursday afternoon, one that should earn him plenty of down-ballot MVP votes.`\
-https://nytimes.com/athletic/6663759/2025/09/26/twins-byron-buxton-bailey-ober/
-
-**The U.S. Ryder Cup team is getting paid. Here’s why people are upset**\
-`Team captain Keegan Bradley has said none of the players asked for more money to compete, and most of the Americans have brushed it off.`\
-https://nytimes.com/athletic/6660513/2025/09/26/ryder-cup-american-player-pay-explained/
-
-**Michkov, Tocchet build their relationship through 'hockey language'**\
-`Plus, the Flyers explore new tactics on the power play, which ranked among the league's worst last season.`\
-https://nytimes.com/athletic/6662976/2025/09/26/flyers-michkov-tocchet-language-power-play/
 
