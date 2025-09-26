@@ -1,3 +1,15 @@
+**Gunman Who Attacked Midtown Office Building Had C.T.E.**\
+`Shane Tamura played football in high school but not beyond. Researchers are wary of linking the brain disease to specific actions.`\
+https://nytimes.com/2025/09/26/us/cte-football-tamura-gunman.html
+
+**gws-jeff-tweedy-twilight-override**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/jeff-tweedy-twilight-override
+
+**‘Biometric Exit’ Quietly Expands Across U.S. Airports, Unnerving Some**\
+`The program, in which federal officers take departing international passengers’ photos, is set to grow, raising privacy concerns.`\
+https://nytimes.com/2025/09/26/travel/airports-biometric-exit-program.html
+
 **Judge Rejects Ronald Perelman’s Claim That His Art Had Lost Its ‘Oomph’**\
 `The collector’s holding companies had sued his insurers for $400 million to cover paintings that they say had been damaged in a fire. The insurers said they had survived untouched.`\
 https://nytimes.com/2025/09/26/arts/judge-rejects-ronald-perelmans-claim-that-his-art-had-lost-its-oomph.html
