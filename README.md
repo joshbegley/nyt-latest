@@ -1,3 +1,7 @@
+**What happens when President Trump attends major sports events - and why he does it**\
+`The U.S. president has attended several major sporting events this year, and will be at the Ryder Cup this weekend `\
+https://nytimes.com/athletic/6659006/2025/09/26/trump-major-sporting-events-ryder-cup-nfl-fifa-world-cup/
+
 **China’s Skyscraper Delivery Problem Creates a New Workforce**\
 `Food delivery drivers in Shenzhen are trying to get orders to office workers faster by paying intermediaries to complete the final, upward leg of the journey.`\
 https://nytimes.com/video/world/asia/100000010409171/chinas-skyscraper-delivery-problem-creates-a-new-workforce.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/26/crosswords/spelling-bee-forum.html
 **The vanishing of Oscar Pistorius**\
 `One of sport's most notorious figures is now an invisible presence, both in his home town and at the championships he once dominated `\
 https://nytimes.com/athletic/6657450/2025/09/26/oscar-pistorius-reeva-steenkamp-legacy/
-
-**Colbert Investigates Trump’s Claim of Escalator ‘Sabotage’**\
-`“Now he’s focused all of his rage on the one foe who refused to take him up, and that is the U.N.’s escalator,” Colbert said of Trump’s recent post on Truth Social.`\
-https://nytimes.com/2025/09/26/arts/television/colbert-trump-escalator-sabotage.html
 
