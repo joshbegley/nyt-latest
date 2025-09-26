@@ -1,3 +1,15 @@
+**Des Moines Schools Superintendent Detained by ICE, School Officials Say**\
+`The school board president in Iowa’s largest city said she did not know what led to the detention of Superintendent Ian Roberts, who has been in that role since 2023.`\
+https://nytimes.com/2025/09/26/us/des-moines-schools-immigration.html
+
+**New Treatment Shows Promise for Huntington’s Disease**\
+`A gene therapy injected into patients’ brains slowed progression of the disease by 75 percent, preliminary findings reported.`\
+https://nytimes.com/2025/09/26/well/huntingtons-disease-treatment.html
+
+**Trail Blazers' Scoot Henderson tears hamstring, will miss start of season**\
+`Portland tips off the season Oct. 8 against the Golden State Warriors.`\
+https://nytimes.com/athletic/6665904/2025/09/26/trail-blazers-scoot-henderson-tears-hamstring/
+
 **Aron Bell, Last Surviving Brother of World War II Resistance Group, Dies at 98**\
 `His three older brothers led the Bielski partisans, which attacked Nazi soldiers and saved 1,200 fellow Jews. Aron was a scout who ferried warnings to a nearby ghetto.`\
 https://nytimes.com/2025/09/26/obituaries/aron-bell-dead.html
