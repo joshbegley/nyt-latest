@@ -1,3 +1,11 @@
+**Canadiens defenseman David Reinbacher out 4 weeks with broken finger**\
+`It is the second straight year Reinbacher has been injured in a preseason game against the Maple Leafs.`\
+https://nytimes.com/athletic/6665446/2025/09/26/canadiens-david-reinbacher-out-4-weeks-broken-finger/
+
+**Trump arrives at Ryder Cup with the United States down big**\
+`Air Force One flew over Bethpage Black on Long Island at 11 a.m.`\
+https://nytimes.com/athletic/6665110/2025/09/26/donald-trump-ryder-cup-arrives-attendance-bethpage/
+
 **How to Prepare for the Jungle**\
 `Hear from the wildlife biologist and presenter Lizzie Daly about how she gets ready to tag jaguars in the wetlands of South America.`\
 https://nytimes.com/paidpost/loreal-groupe/how-to-prepare-for-the-jungle.html
