@@ -1,3 +1,11 @@
+**Here’s What to Know About Comey’s Indictment**\
+`The former F.B.I. director was indicted Thursday on one count of making a false statement and one count of obstruction in connection with a congressional testimony five years ago.`\
+https://nytimes.com/2025/09/26/us/politics/trump-james-comey-indictment-explained.html
+
+**Jon Rahm is Europe's talisman. There's no one on either Ryder Cup team quite like him**\
+`On Friday Rahm made sure that Scottie Scheffler and Bryson DeChambeau failed to earn points against him. It wasn't the first time.`\
+https://nytimes.com/athletic/6666499/2025/09/26/ryder-cup-jon-rahm-europe/
+
 **Netanyahu Was Defiant at the U.N.**\
 `Also, what’s next after James Comey’s indictment. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/09/26/briefing/netanyahu-un-comey-trump-indicted.html
