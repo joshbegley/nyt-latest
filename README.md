@@ -1,3 +1,7 @@
+**Maple Leafs sign goaltender James Reimer to PTO**\
+`The Maple Leafs are looking for support in the crease following Joseph Woll's leave of absence from the team.`\
+https://nytimes.com/athletic/6665420/2025/09/26/maple-leafs-james-reimer-pto-contract/
+
 **Netanyahu Highlights QR Code That Links to Gruesome Images of Oct. 7**\
 `During his speech to the U.N., Israel’s prime minister sought to focus attention on the carnage of the Hamas-led attacks on southern Israel that led to the war in Gaza.`\
 https://nytimes.com/2025/09/26/world/middleeast/netanyahu-qr-code.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/26/well/is-ai-validation-healthy.html
 **gws-egypt-white-black-deserts**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/egypt-white-black-deserts
-
-**ICE Officer ‘Relieved of His Duties’ After Pushing Woman to Floor**\
-`The Department of Homeland Security said it was investigating an officer’s action during an altercation at a New York City immigration courthouse.`\
-https://nytimes.com/2025/09/26/nyregion/ice-officer-investigation-woman-shoved.html
 
