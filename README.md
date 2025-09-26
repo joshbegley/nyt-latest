@@ -1,3 +1,11 @@
+**New Tariffs Shock Countries Reeling From Trump’s Chaotic Trade War**\
+`Throughout Asia, the source of about 40 percent of U.S. imports, countries have little to show for weeks of talks trying to finalize deals.`\
+https://nytimes.com/2025/09/26/business/trump-tariffs-asia.html
+
+**Howe: Online criticism of Newcastle's Miley 'totally unjustified'**\
+`The 19-year-old had just one Premier League start in the 2024-25 campaign after a series of injuries.`\
+https://nytimes.com/athletic/6664530/2025/09/26/lewis-miley-eddie-howe-newcastle-united-criticism/
+
 **High Five - around the world in five games**\
 `The pick of this weekend's action - from New York City to Saudi Arabia and Chile, via Belfast and Lisbon`\
 https://nytimes.com/athletic/6663742/2025/09/26/high-five-around-the-world-in-five-games/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6664548/2025/09/26/dodgers-vs-mariners-stream-how-t
 **Celtics owner Bill Chisholm on expectations, Brad Stevens' autonomy and WNBA in Boston**\
 `"We’re going to do everything we can to win. That is job No. 1. And not just win games — win championships," says new owner Bill Chisholm.`\
 https://nytimes.com/athletic/6663279/2025/09/26/celtics-owner-jayson-tatum-bill-chisholm/
-
-**Knicks' plan to add more offense for stars Jalen Brunson and Karl-Anthony Towns**\
-`Knicks head coach Mike Brown has a plan for how he wants to diversify his star players.`\
-https://nytimes.com/athletic/6662151/2025/09/26/knicks-jalen-brunson-karl-anthony-towns-mike-brown/
-
-**Israel Is Flattening Parts of Gaza City**\
-`The city had been spared from widespread demolitions during previous military operations there. This time is different.`\
-https://nytimes.com/interactive/2025/09/26/world/middleeast/israel-gaza-city-destruction-war.html
 
