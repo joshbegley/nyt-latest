@@ -1,3 +1,11 @@
+**Britain Is Introducing a Digital ID. Here’s How It Is Expected to Work.**\
+`The government said the new system would help to curb illegal migration, but opponents said it would infringe on citizens’ privacy.`\
+https://nytimes.com/2025/09/26/world/europe/uk-digital-id-britcard-starmer.html
+
+**I Witnessed A.I. Collide with Climate**\
+`This town’s minerals make A.I. possible. Then came Hurricane Helene. Kate Crawford is a professor at the University of Southern California, a senior principal researcher at Microsoft Research and the author of “Atlas of A.I.”`\
+https://nytimes.com/video/opinion/100000010410190/i-witnessed-ai-collide-with-climate.html
+
 **Lowetide: What we've learned about Oilers rookies Savoie and Howard in preseason**\
 `Since the beginning of training camp, both Savoie and Howard have played two games and had some success.`\
 https://nytimes.com/athletic/6660338/2025/09/26/oilers-matt-savoie-ike-howard-rookies-preseason/
