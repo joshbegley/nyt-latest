@@ -1,3 +1,11 @@
+**Federal Bureau of Prisons Ends Union Protections for Workers**\
+`The union of prison employees condemned the contract’s termination, which is part of the Trump administration’s overhaul of the federal work force.`\
+https://nytimes.com/2025/09/26/us/politics/federal-prisons-workers-union.html
+
+**Celebrating Sergio Busquets — the invisible genius impossible to ignore**\
+`The 37-year-old Inter Miami midfielder, formerly of Barcelona, will retire from football at the end of this MLS season`\
+https://nytimes.com/athletic/6664446/2025/09/26/sergio-busquets-retirement-inter-miami-barcelona/
+
 **Sergio Busquets announces retirement: 'These will be my final months on the pitch'**\
 `The former Barcelona and Spain midfielder, 37, made the announcement on Friday `\
 https://nytimes.com/athletic/6664445/2025/09/26/sergio-busquets-retirement-football-news/

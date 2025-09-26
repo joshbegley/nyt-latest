@@ -1,3 +1,11 @@
+**Federal Bureau of Prisons Ends Union Protections for Workers**\
+`The union of prison employees condemned the contract’s termination, which is part of the Trump administration’s overhaul of the federal work force.`\
+https://nytimes.com/2025/09/26/us/politics/federal-prisons-workers-union.html
+
+**Celebrating Sergio Busquets — the invisible genius impossible to ignore**\
+`The 37-year-old Inter Miami midfielder, formerly of Barcelona, will retire from football at the end of this MLS season`\
+https://nytimes.com/athletic/6664446/2025/09/26/sergio-busquets-retirement-inter-miami-barcelona/
+
 **Sergio Busquets announces retirement: 'These will be my final months on the pitch'**\
 `The former Barcelona and Spain midfielder, 37, made the announcement on Friday `\
 https://nytimes.com/athletic/6664445/2025/09/26/sergio-busquets-retirement-football-news/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/26/learning/lights-in-the-sky.html
 **A Writer Who Delights in Demystifying the Arcane and Obscure**\
 `Franz Lidz is fascinated by the eclectic and global nature of the archaeology beat.`\
 https://nytimes.com/2025/09/26/insider/franz-lidz.html
-
-**Hudson Yards Developer May Get Another $2 Billion Boost From New York**\
-`The tentative deal comes on top of nearly $6 billion in government aid that already benefited the firm, Related Companies, when the first phase was built.`\
-https://nytimes.com/2025/09/26/nyregion/hudson-yards-related-companies.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/09/26/crosswords/spelling-bee-forum.html
 
