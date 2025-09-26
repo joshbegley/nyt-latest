@@ -1,3 +1,7 @@
+**Trump Casts Comey’s Indictment as Justice and Expects More to Come**\
+`The president has cast the indictment as “justice” rather than revenge, but his own words and actions cast doubt on that assertion.`\
+https://nytimes.com/2025/09/26/us/politics/trump-comey-revenge.html
+
 **Gunman Who Attacked Midtown Office Building Had C.T.E.**\
 `Shane Tamura played football in high school but not beyond. Researchers are wary of linking the brain disease to specific actions.`\
 https://nytimes.com/2025/09/26/us/cte-football-tamura-gunman.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/26/realestate/energy-efficient-small-house-sydney.ht
 **Nico O'Reilly signs new Manchester City contract through to 2030**\
 `O'Reilly, 20, had three years remaining on his previous terms, but has now secured his long-term future at Manchester City.`\
 https://nytimes.com/athletic/6527174/2025/09/26/nico-oreilly-manchester-city-contract/
-
-**Boeing Will Regain Ability to Certify Some Planes From F.A.A.**\
-`The Federal Aviation Administration said the aerospace company will be allowed to approve some new 737 Max and 787 Dreamliner jets.`\
-https://nytimes.com/2025/09/26/business/boeing-faa-737-max-certification.html
 
