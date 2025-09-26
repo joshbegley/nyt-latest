@@ -1,3 +1,15 @@
+**Trump Can’t Be the One to Dictate Who Gets Indicted**\
+`The Justice Department and the attorney general are supposed to keep a distance from the president, not be his personal score settlers.`\
+https://nytimes.com/2025/09/26/opinion/james-comey-indicted-trump.html
+
+**Mamdani Foes, Struggling to Raise Money, Have Started Buying Attack Ads**\
+`Several super PACs that oppose Zohran Mamdani’s candidacy for mayor of New York City have banded together to coordinate attack ads.`\
+https://nytimes.com/2025/09/26/nyregion/mamdani-opposition-attack-ads.html
+
+**Man Utd draw up plans for new Old Trafford without canopy**\
+`Issues over purchasing the required land have led to United exploring alternative options for their new stadium.`\
+https://nytimes.com/athletic/6664989/2025/09/26/old-trafford-canopy-manchester-united/
+
 **Clippers haven't yet faced questions on NBA investigation, but that's about to change**\
 `As the Clippers enter training camp, how will they sound out the inevitable noise around them? `\
 https://nytimes.com/athletic/6655995/2025/09/26/clippers-training-camp-nba-investigation/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6662879/2025/09/26/jayden-daniels-terry-mclaurin-ou
 **Explaining the Rare Fujiwhara Effect on Hurricanes**\
 `When two storms swirl around a shared center point, one can absorb another.`\
 https://nytimes.com/2025/09/26/weather/fujiwhara-effect-imelda-humberto.html
-
-**Brief Comey Indictment Prompts Questions and Criticism**\
-`The two-page indictment of James B. Comey, the former F.B.I. director, offered little indication of the evidence that would be presented at a trial. Some legal experts called it flimsy and dangerous.`\
-https://nytimes.com/2025/09/26/us/politics/comey-indictment-legal-reaction.html
-
-**Trump’s New Tariffs Hit Furniture and Home Goods Stocks**\
-`Shares of Williams-Sonoma and RH fell in early trading, while U.S.-based makers like Ethan Allen rose after the president’s latest tariff announcement.`\
-https://nytimes.com/2025/09/26/business/trumps-tariffs-furniture-home-goods-stocks.html
-
-**Boots Made For More Than Just Walking**\
-`A roundup of flat, knee-high styles that are both practical and pleasing to the eye.`\
-https://nytimes.com/2025/09/26/t-magazine/best-flat-boots.html
 

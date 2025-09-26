@@ -1,3 +1,15 @@
+**Trump Can’t Be the One to Dictate Who Gets Indicted**\
+`The Justice Department and the attorney general are supposed to keep a distance from the president, not be his personal score settlers.`\
+https://nytimes.com/2025/09/26/opinion/james-comey-indicted-trump.html
+
+**Mamdani Foes, Struggling to Raise Money, Have Started Buying Attack Ads**\
+`Several super PACs that oppose Zohran Mamdani’s candidacy for mayor of New York City have banded together to coordinate attack ads.`\
+https://nytimes.com/2025/09/26/nyregion/mamdani-opposition-attack-ads.html
+
+**Man Utd draw up plans for new Old Trafford without canopy**\
+`Issues over purchasing the required land have led to United exploring alternative options for their new stadium.`\
+https://nytimes.com/athletic/6664989/2025/09/26/old-trafford-canopy-manchester-united/
+
 **Clippers haven't yet faced questions on NBA investigation, but that's about to change**\
 `As the Clippers enter training camp, how will they sound out the inevitable noise around them? `\
 https://nytimes.com/athletic/6655995/2025/09/26/clippers-training-camp-nba-investigation/
