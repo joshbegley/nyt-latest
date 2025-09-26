@@ -1,3 +1,7 @@
+**In potentially his final Astros start, Framber Valdez keeps Houston's playoff hopes alive**\
+`If that is Valdez’s last act in an Astros uniform, it is a fitting sendoff for an under-appreciated southpaw that sometimes tested patience.`\
+https://nytimes.com/athletic/6663826/2025/09/25/houston-astros-framber-valdez-playoff-hopes/
+
 **Did Noelvi Marte save Reds' season? 'One of the best plays I’ve ever seen'**\
 `The Reds are now within a half-game of the Mets for the third and final wild-card spot in the National League.`\
 https://nytimes.com/athletic/6663360/2025/09/25/reds-noelvi-marte-home-run-robbery-catch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6663639/2025/09/25/rangers-vs-guardians-stream-how-
 **How to watch Twins at Phillies: Time, TV, streaming for September 26**\
 `Find out how to watch the Minnesota Twins play the Philadelphia Phillies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6663637/2025/09/25/twins-vs-phillies-stream-how-to-watch-sept-26/
-
-**Read the Indictment of James Comey**\
-`A federal grand jury on Thursday indicted James B.`\
-https://nytimes.com/interactive/2025/09/25/us/james-comey-indictment.html
 
