@@ -1,3 +1,7 @@
+**Newcastle owners inject further £111.5 million into club**\
+`This is the ninth cash injection since the Tyneside club's takeover in 2021, by a consortium led by Saudi Arabia’s Public Investment Fund.`\
+https://nytimes.com/athletic/6665073/2025/09/26/newcastle-owners-money-injection/
+
 **Book Club: Let’s Discuss ‘Pride and Prejudice’**\
 `Jane Austen’s classic, about the tortured romance of two people frazzled by miscommunications and assumptions, still feels fresh 250 years after Austen’s birth.`\
 https://nytimes.com/2025/09/26/books/review/podcast-pride-prejudice-book-club.html
