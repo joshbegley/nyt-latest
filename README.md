@@ -1,3 +1,7 @@
+**Britain Is Introducing a Digital ID. Here’s How It Is Expected to Work.**\
+`The government said the new system would help to curb illegal migration, but opponents said it would infringe on citizens’ privacy.`\
+https://nytimes.com/2025/09/26/world/europe/uk-digital-id-britcard-starmer.html
+
 **Lowetide: What we've learned about Oilers rookies Savoie and Howard in preseason**\
 `Since the beginning of training camp, both Savoie and Howard have played two games and had some success.`\
 https://nytimes.com/athletic/6660338/2025/09/26/oilers-matt-savoie-ike-howard-rookies-preseason/
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/6665181/2025/09/26/douglas-luiz-injury-forest/
 https://nytimes.com/2025/09/26/nyregion/nyc-united-nations-netanyahu-protest.html
 
 **I Witnessed A.I. Collide with Climate**\
-`This town’s minerals make A.I. possible. Then came Hurricane Helene.`\
+`This town’s minerals make A.I. possible. Then came Hurricane Helene. Kate Crawford is a professor at the University of Southern California, a senior principal researcher at Microsoft Research and the author of “Atlas of A.I.”`\
 https://nytimes.com/video/opinion/100000010410190/i-witnessed-ai-collide-with-climate.html
 
 **Jobe Bellingham’s slow start at Dortmund is nothing to be alarmed about**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6665073/2025/09/26/newcastle-owners-money-injection
 **Book Club: Let’s Discuss ‘Pride and Prejudice’**\
 `Jane Austen’s classic, about the tortured romance of two people frazzled by miscommunications and assumptions, still feels fresh 250 years after Austen’s birth.`\
 https://nytimes.com/2025/09/26/books/review/podcast-pride-prejudice-book-club.html
-
-**Correcting the Record on Women’s Experiences of War**\
-`A stage adaptation of the Nobel laureate Svetlana Alexievich’s “The Unwomanly Face of War” gives Soviet women credit for their complex roles in World War II.`\
-https://nytimes.com/2025/09/26/theater/svetlana-alexievich-julie-deliquet.html
 
