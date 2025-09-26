@@ -1,3 +1,11 @@
+**The Pulse: A TNF classic**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6662226/2025/09/26/seahawks-cardinals-tnf-the-pulse/
+
+**Sliders: As Tigers stumble down the stretch, a carat flop from their last title still lingers**\
+`Plus more on matchup madness in October and a special classic clip for the final Sliders column of the 2025 season.`\
+https://nytimes.com/athletic/6662518/2025/09/26/detroit-tigers-mlb-uniforms-rings-sliders/
+
 **At Jets camp, a prospect left behind tries to prove he belongs in the NHL**\
 `For some players, everything comes together at the right time to earn an NHL roster spot. For others like Ville Heinola, it's not so simple.`\
 https://nytimes.com/athletic/6655470/2025/09/26/nhl-jets-prospect-ville-heinola-preseason-waivers/
