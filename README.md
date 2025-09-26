@@ -1,3 +1,7 @@
+**Xavier Worthy set to return from shoulder injury vs. Ravens Sunday**\
+`Wothy did not receive an injury game-status designation, meaning he's expected to be back in the team's starting lineup Sunday.`\
+https://nytimes.com/athletic/6666213/2025/09/26/xavier-worthy-chiefs-return-shoulder-injury-ravens/
+
 **How Trump’s Latest Tariffs May Affect Your Medicines**\
 `The president said he would impose a tariff of 100 percent on certain brand-name drugs. Here’s what we know so far.`\
 https://nytimes.com/2025/09/26/health/trump-drug-tariffs-prescription-costs.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/09/26/us/01052003-panda-answers.html
 **What Happens When a Pop Star Runs a Marathon in Your Shorts?**\
 `When Harry Styles shocked the running world with a sub-three-hour marathon, he wore Tracksmith shorts. He isn’t sponsored by the company, but they’re big fans.`\
 https://nytimes.com/2025/09/26/style/harry-styles-marathon-tracksmith.html
-
-**We Found the Very Best Boxed Macaroni and Cheese**\
-`Text by Ciara Murray Jordan`\
-https://nytimes.com/card/2025/09/26/smarter-living/wirecutter/
 

@@ -1,5 +1,13 @@
+**How Trump’s Latest Tariffs May Affect Your Medicines**\
+`The president said he would impose a tariff of 100 percent on certain brand-name drugs. Here’s what we know so far.`\
+https://nytimes.com/2025/09/26/health/trump-drug-tariffs-prescription-costs.html
+
+**Rooney family returns to its roots for first NFL game in Ireland: 'My dad would love this'**\
+`A Steelers regular-season game in Ireland is a dream come true for the Rooney family.`\
+https://nytimes.com/athletic/6665896/2025/09/26/steelers-vikings-dublin-ireland-rooney-family/
+
 **Tom Cillo, playing college football at 58, signs NIL deal with pain-relief brand**\
-`Tom Cillo, the 58-year-old defensive lineman and powerlifter hoping to become the oldest player to play in a college football game since 2009, is building his own brand.`\
+`The freshman defensive lineman for Division III Lycoming becomes the oldest player to agree to an NIL deal.`\
 https://nytimes.com/athletic/6665695/2025/09/26/tom-cillo-nil-deal-player-oldest/
 
 **Guardians AL Central favorites after Tigers’ epic collapse. See how the odds moved**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/26/style/harry-styles-marathon-tracksmith.html
 **We Found the Very Best Boxed Macaroni and Cheese**\
 `Text by Ciara Murray Jordan`\
 https://nytimes.com/card/2025/09/26/smarter-living/wirecutter/
-
-**Answers to Puns and Anagrams (April 12, 2015)**\
-`Here are the answers to Mel Taub’s Puns and Anagrams puzzle from April 12, 2015.`\
-https://nytimes.com/interactive/2025/09/26/us/04122015-panda-answersjpg.html
-
-**Judge in Comey Case Has Presided Over Other Politically Fraught Proceedings**\
-`Judge Michael S. Nachmanoff, a Biden appointee, previously handled the 2019 arraignment of two associates of Rudolph W. Giuliani, among other high-profile cases.`\
-https://nytimes.com/2025/09/26/us/politics/james-comey-indictment-judge.html
 
