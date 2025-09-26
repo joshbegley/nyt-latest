@@ -1,3 +1,7 @@
+**Aron Bell, Last Surviving Brother of World War II Resistance Group, Dies at 98**\
+`His three older brothers led the Bielski partisans, which attacked Nazi soldiers and saved 1,200 fellow Jews. Aron was a scout who ferried warnings to a nearby ghetto.`\
+https://nytimes.com/2025/09/26/obituaries/aron-bell-dead.html
+
 **Logan Paul's Michael Jordan memorabilia lawsuit explained**\
 `After winning an auction for a large piece of basketball court signed by Michael Jordan, Paul began to question the item's authenticity `\
 https://nytimes.com/athletic/6665116/2025/09/26/logan-paul-heritage-lawsuit-michael-jordan/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/26/business/media/daily-caller-opinion-violence.html
 **NHL waiver tracker: Best players on the wire throughout 2025-26 preseason**\
 `Corey Pronman and Harman Dayal provide analysis of the top players placed on waivers as the regular season approaches.`\
 https://nytimes.com/athletic/6662091/2025/09/26/nhl-waivers-tracker-preseason-2025/
-
-**Federal Forces Set to Arrive in Memphis Next Week, Governor Says**\
-`The deployment will eventually include more than a dozen federal agencies, Gov. Bill Lee of Tennessee said, as well as the National Guard.`\
-https://nytimes.com/2025/09/26/us/politics/memphis-national-guard-crime.html
 
