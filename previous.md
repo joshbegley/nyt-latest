@@ -1,9 +1,13 @@
+**gws-small-cruise-ships**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/small-cruise-ships
+
 **Trump Casts Comey’s Indictment as Justice and Expects More to Come**\
 `The president has cast the indictment as “justice” rather than revenge, but his own words and actions cast doubt on that assertion.`\
 https://nytimes.com/2025/09/26/us/politics/trump-comey-revenge.html
 
 **Gunman Who Attacked Midtown Office Building Had C.T.E.**\
-`Shane Tamura played football in high school but not beyond. Researchers are wary of linking the brain disease to specific actions.`\
+`Shane Tamura, a former high school football player, shot himself and left behind a note that said his motive was anger at the N.F.L.`\
 https://nytimes.com/2025/09/26/us/cte-football-tamura-gunman.html
 
 **gws-jeff-tweedy-twilight-override**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6665466/2025/09/26/graham-potter-face-swap/
 **A Secret Sauce Keeps This Australian House Hot and Cool**\
 `An architect couple, Carol Marra and Ken Yeh, used tile remnants and mismatched boards to outfit their energy efficient mountain dwelling.`\
 https://nytimes.com/2025/09/26/realestate/energy-efficient-small-house-sydney.html
-
-**Nico O'Reilly signs new Manchester City contract through to 2030**\
-`O'Reilly, 20, had three years remaining on his previous terms, but has now secured his long-term future at Manchester City.`\
-https://nytimes.com/athletic/6527174/2025/09/26/nico-oreilly-manchester-city-contract/
 
