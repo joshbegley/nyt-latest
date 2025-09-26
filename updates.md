@@ -1,3 +1,7 @@
+**Rams' defense will again be tested against Daniel Jones and surging Colts**\
+`Los Angeles will have the challenge of slowing RB Jonathan Taylor and an Indianapolis offense that has punted just once all season. `\
+https://nytimes.com/athletic/6663762/2025/09/26/rams-defense-colts-offense-week-4/
+
 **'Crazy energy, extreme passion' and 'a little swagger': The Jaxson Dart era is here**\
 `"When he steps foot on the field, he exudes confidence. He’s the type of dude who makes the people around him better."`\
 https://nytimes.com/athletic/6664222/2025/09/26/jaxson-dart-ny-giants-swagger-debut/
