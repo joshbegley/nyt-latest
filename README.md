@@ -1,3 +1,7 @@
+**Colbert Investigates Trump’s Claim of Escalator ‘Sabotage’**\
+`“Now he’s focused all of his rage on the one foe who refused to take him up, and that is the U.N.’s escalator,” Colbert said of Trump’s recent post on Truth Social.`\
+https://nytimes.com/2025/09/26/arts/television/colbert-trump-escalator-sabotage.html
+
 **How to watch White Sox at Nationals: Time, TV, streaming for September 26**\
 `Find out how to watch the Chicago White Sox play the Washington Nationals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6664312/2025/09/26/white-sox-vs-nationals-stream-how-to-watch-sept-26/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6664289/2025/09/26/cardinals-vs-cubs-stream-how-to-
 **Word of the Day: nemesis**\
 `This word has appeared in 252 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/09/26/learning/word-of-the-day-nemesis.html
-
-**Villa Park's criticism of Rogers will have stung, but this slump could be the making of him**\
-`Rogers is integral to Villa, so his nosedive in form has been felt harshly - can he grow from overcoming this adversity?`\
-https://nytimes.com/athletic/6663256/2025/09/26/morgan-rogers-villa-criticism/
 
