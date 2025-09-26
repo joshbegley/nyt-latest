@@ -1,3 +1,11 @@
+**Garcia out six weeks with knee injury, Raphinha out three weeks with thigh issue, Barca say**\
+`Both players will miss the Champions League match against Paris Saint-Germain on October 1.`\
+https://nytimes.com/athletic/6664708/2025/09/26/raphinha-joan-garcia-injury-barcelona/
+
+**‘Peak SF’ on a Friday Night Is a Robot Fight**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/san-francisco-robot-fight
+
 **Thousands Protest in New York City During Netanyahu’s U.N. Speech**\
 `Demonstrators began gathering in Times Square, across town from the United Nations building, early in the morning. They planned to march to the U.N.`\
 https://nytimes.com/2025/09/26/nyregion/nyc-united-nations-netanyahu-protest.html
