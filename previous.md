@@ -1,40 +1,40 @@
-**Kepner: On MLB’s final weekend, it's all chaos and confusion until the playoff field is set**\
-`Eleven of the 15 series played over the next three days will determine what we're watching in the postseason next week.`\
-https://nytimes.com/athletic/6664122/2025/09/26/mlb-final-weekend-season-playoffs/
+**Palmer to miss Chelsea's next three games due to groin injury**\
+`Head coach Enzo Maresca also said it is unlikely that centre-backs Tosin Adarabioyo and Wesley Fofana will feature in the next few weeks.`\
+https://nytimes.com/athletic/6664770/2025/09/26/cole-palmer-injury-chelsea-tosin-fofana/
 
-**The Pulse: A TNF classic**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6662226/2025/09/26/seahawks-cardinals-tnf-the-pulse/
+**How to watch NASCAR Cup Series at Kansas: TV, streaming for Hollywood Casino 400**\
+`Race 2 of the Round of 12 is set for Kansas Speedway. Kyle Larson is favored to win, but a stacked field provides a significant challenge. `\
+https://nytimes.com/athletic/6663070/2025/09/26/nascar-hollywood-400-kansas-playoffs-how-to-watch/
 
-**Sliders: As Tigers stumble down the stretch, a carat flop from their last title still lingers**\
-`Plus more on matchup madness in October and a special classic clip for the final Sliders column of the 2025 season.`\
-https://nytimes.com/athletic/6662518/2025/09/26/detroit-tigers-mlb-uniforms-rings-sliders/
+**A Timeline of the Trump-Comey Relationship**\
+`James B. Comey, the former F.B.I. director now under federal indictment, has long been a target of President Trump’s ire.`\
+https://nytimes.com/2025/09/26/world/americas/trump-comey-relationship-timeline.html
 
-**At Jets camp, a prospect left behind tries to prove he belongs in the NHL**\
-`For some players, everything comes together at the right time to earn an NHL roster spot. For others like Ville Heinola, it's not so simple.`\
-https://nytimes.com/athletic/6655470/2025/09/26/nhl-jets-prospect-ville-heinola-preseason-waivers/
+**For the Yankees, the playoffs need to start right now: 'Pedal is down'**\
+`The Yankees must treat Friday and Saturday like the start of the playoffs, because winning the AL East once again is crucial. `\
+https://nytimes.com/athletic/6664137/2025/09/26/yankees-playoffs-american-league-east/
 
-**Under new regime, Islanders players and coaches let down their facial hair**\
-`Out on the Island are the old rules forbidding high jersey numbers and long hair. In are beards. Lots and lots of beards. `\
-https://nytimes.com/athletic/6662342/2025/09/26/nhl-beards-facial-hair-ny-islanders/
+**Byron Buxton adds 2 homers to 'historic' season, Bailey Ober finally shines in Twins win**\
+`Buxton continued a career year on Thursday afternoon, one that should earn him plenty of down-ballot MVP votes.`\
+https://nytimes.com/athletic/6663759/2025/09/26/twins-byron-buxton-bailey-ober/
 
-**Former F.B.I. Chief Responds to Indictment: ‘Let’s Have a Trial’**\
-`James B. Comey, the former F.B.I. director, was indicted in connection with testimony he gave in 2020. In a video, he welcomed the chance to vindicate himself.`\
-https://nytimes.com/video/us/politics/100000010422950/comey-fbi-innocence-after-indictment.html
+**The U.S. Ryder Cup team is getting paid. Here’s why people are upset**\
+`Team captain Keegan Bradley has said none of the players asked for more money to compete, and most of the Americans have brushed it off.`\
+https://nytimes.com/athletic/6660513/2025/09/26/ryder-cup-american-player-pay-explained/
 
-**AFC North Whiparound: What's the division's most surprising storyline entering Week 4?**\
-`Also, how much has the big-picture outlook changed for each team in the division after three weeks?`\
-https://nytimes.com/athletic/6662751/2025/09/26/bengals-browns-ravens-steelers-week-4/
+**Michkov, Tocchet build their relationship through 'hockey language'**\
+`Plus, the Flyers explore new tactics on the power play, which ranked among the league's worst last season.`\
+https://nytimes.com/athletic/6662976/2025/09/26/flyers-michkov-tocchet-language-power-play/
 
-**What it's like to be along for the ride on the Blue Jays' roller-coaster season**\
-`The Blue Jays' broadcasters articulate the unique joy for fans across Canada who are following this year's dramatically successful team.`\
-https://nytimes.com/athletic/6658150/2025/09/26/toronto-blue-jays-mlb-playoffs-buck-martinez-dan-shulman/
+**What we're hearing around college football: Moore, Manning, Bain and more**\
+`Moore has been comfortable against lesser defenses, but whether Oregon can keep him that way amid a raucous White Out remains to be seen.`\
+https://nytimes.com/athletic/6663844/2025/09/26/dante-moore-arch-manning-college-football-news/
 
-**Chiesa added to Liverpool's Champions League squad after Leoni's ACL injury**\
-`Chiesa was initially left out of Liverpool's Champions League squad but will replace Leoni who will be "out for around a year".`\
-https://nytimes.com/athletic/6664535/2025/09/26/liverpool-news-leoni-chiesa-injury-champions-league/
+**Ranking the best and worst Ryder Cup looks**\
+`Time to get into some golf-core fashion and rank the best and worst looks at Bethpage this week.`\
+https://nytimes.com/athletic/6659533/2025/09/26/ryder-cup-fashion-best-and-worst-looks-from-team-usa-and-europe-review/
 
-**For retiring NHL players, ceremonial contracts offer a one-day 'victory lap'**\
-`In a sense, Marc-André Fleury's return to Pittsburgh is unprecedented. In another, it is typical for a league that loves nostalgic deals.`\
-https://nytimes.com/athletic/6662625/2025/09/26/marc-andre-fleury-retirement-nhl-one-day-contract/
+**Micah Parsons' return shouldn't overshadow Kenny Clark's influence on Packers**\
+`Clark was one of the most important Packers of the last decade and will one day enter the Packers Hall of Fame on the first ballot.`\
+https://nytimes.com/athletic/6663734/2025/09/26/kenny-clark-packers-cowboys-parsons-trade/
 
