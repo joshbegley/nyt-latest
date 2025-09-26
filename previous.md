@@ -1,3 +1,7 @@
+**Attack of the Knuckleball: How the Eagles intend to field them (and strike back)**\
+`The kicks are widely regarded as difficult to field.`\
+https://nytimes.com/athletic/6662318/2025/09/26/eagles-kick-return-knuckleball/
+
 **Rams' defense will again be tested against Daniel Jones and surging Colts**\
 `Los Angeles will have the challenge of slowing RB Jonathan Taylor and an Indianapolis offense that has punted just once all season. `\
 https://nytimes.com/athletic/6663762/2025/09/26/rams-defense-colts-offense-week-4/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6664770/2025/09/26/cole-palmer-injury-chelsea-tosin
 **How to watch NASCAR Cup Series at Kansas: TV, streaming for Hollywood Casino 400**\
 `Race 2 of the Round of 12 is set for Kansas Speedway. Kyle Larson is favored to win, but a stacked field provides a significant challenge. `\
 https://nytimes.com/athletic/6663070/2025/09/26/nascar-hollywood-400-kansas-playoffs-how-to-watch/
-
-**A Timeline of the Trump-Comey Relationship**\
-`James B. Comey, the former F.B.I. director now under indictment, has long been a target of President Trump’s ire.`\
-https://nytimes.com/2025/09/26/us/trump-comey-relationship-timeline.html
 
