@@ -27,7 +27,7 @@ https://nytimes.com/2025/09/25/us/politics/trump-memorandum-left-wing-violence.h
 https://nytimes.com/2025/09/25/us/politics/trump-retribution-comey-indictment.html
 
 **Trump Will Slap Tariffs on Imported Drugs, Trucks and Household Furnishings**\
-`The president said his tariffs would range from 25 to 100 percent and would go into effect next week.`\
+`The president said his tariffs would range from 25 to 100 percent and go into effect next week.`\
 https://nytimes.com/2025/09/25/business/economy/trump-tariffs-pharmaceuticals-furniture-trucks.html
 
 **Dodgers, Clayton Kershaw party once more after NL West clinch: 'Best feeling in the world'**\
