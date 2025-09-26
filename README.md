@@ -1,3 +1,7 @@
+**Kepner: On MLB’s final weekend, it's all chaos and confusion until the playoff field is set**\
+`Eleven of the 15 series played over the next three days will determine what we're watching in the postseason next week.`\
+https://nytimes.com/athletic/6664122/2025/09/26/mlb-final-weekend-season-playoffs/
+
 **The Pulse: A TNF classic**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6662226/2025/09/26/seahawks-cardinals-tnf-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6664535/2025/09/26/liverpool-news-leoni-chiesa-inju
 **For retiring NHL players, ceremonial contracts offer a one-day 'victory lap'**\
 `In a sense, Marc-André Fleury's return to Pittsburgh is unprecedented. In another, it is typical for a league that loves nostalgic deals.`\
 https://nytimes.com/athletic/6662625/2025/09/26/marc-andre-fleury-retirement-nhl-one-day-contract/
-
-**The Prada Guide to Dressing for Doomsday**\
-`Bras, bloomers and fancy frocks were all in the mix. But it’s not about the items; it’s about the approach.`\
-https://nytimes.com/2025/09/26/style/prada-spring-2026.html
 
