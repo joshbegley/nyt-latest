@@ -1,3 +1,11 @@
+**Here’s What to Know About Comey’s Indictment**\
+`The former F.B.I. director was indicted Thursday on one count of making a false statement and one count of obstruction in connection with a congressional testimony five years ago.`\
+https://nytimes.com/2025/09/26/us/politics/trump-james-comey-indictment-explained.html
+
+**Jon Rahm is Europe's talisman. There's no one on either Ryder Cup team quite like him**\
+`On Friday Rahm made sure that Scottie Scheffler and Bryson DeChambeau failed to earn points against him. It wasn't the first time.`\
+https://nytimes.com/athletic/6666499/2025/09/26/ryder-cup-jon-rahm-europe/
+
 **Netanyahu Was Defiant at the U.N.**\
 `Also, what’s next after James Comey’s indictment. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/09/26/briefing/netanyahu-un-comey-trump-indicted.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6666311/2025/09/26/harry-kane-goal-record-bayern/
 **Trump Fired a U.S. Attorney Who Insisted on Following a Court Order**\
 `The top federal prosecutor in Sacramento was fired hours after she reminded a Border Patrol chief to abide by court-ordered restrictions on immigration raids.`\
 https://nytimes.com/2025/09/26/us/trump-fires-us-attorney-california-immigration.html
-
-**Brock Purdy to start vs. Jaguars after 2-game injury absence**\
-`The 49ers have gone 2-0 with Mac Jones as their starter during Purdy's absence.`\
-https://nytimes.com/athletic/6665671/2025/09/26/brock-purdy-injury-update-49ers-jaguars/
-
-**Detained on Immigration Charges in Dallas, Now Fighting for His Life**\
-`Miguel Ángel García is one of two detainees critically injured by a Dallas gunman who killed another detainee. Officials have not identified the victims, but families are coming forward.`\
-https://nytimes.com/2025/09/26/us/politics/victims-dallas-ice.html
 
