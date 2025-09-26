@@ -1,3 +1,7 @@
+**Dodgers, Clayton Kershaw party once more after NL West clinch: 'Best feeling in the world'**\
+`Each of the 12 times the Dodgers have celebrated a division during this stretch, Kershaw has been a part of it.`\
+https://nytimes.com/athletic/6663606/2025/09/25/los-angeles-dodgers-clayton-kershaw-nl-west-clinch/
+
 **Federal Agent Pushes Woman to Floor in U.S. Courthouse Confrontation**\
 `In a scene caught on video, the woman and a young girl were clinging to a man who was being detained. Agents pulled their hair, then one shoved the woman after she touched his chest.`\
 https://nytimes.com/2025/09/25/nyregion/ice-push-woman-nyc.html
