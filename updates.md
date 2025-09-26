@@ -1,3 +1,19 @@
+**A Guinness Heiress Goes to Netflix**\
+`Ivana Lowell talks about spinning her high-drama family tales into “House of Guinness” with the “Peaky Blinders” creator Steven Knight.`\
+https://nytimes.com/2025/09/26/style/a-guinness-heiress-goes-to-netflix.html
+
+**A great unknown: Bears are intriguing, scary after 3 weeks**\
+`Every week is a new adventure for Caleb Williams, and anything is possible, which makes games something to look forward to this season.`\
+https://nytimes.com/athletic/6664084/2025/09/26/bears-raiders-week-4-caleb-williams/
+
+**Get Ready for Higher Health Insurance Premiums Next Year**\
+`Employers say they are facing the biggest increase in health costs in more than a decade — almost 9 percent on average. Workers’ best option, experts say, is to carefully weigh various plans.`\
+https://nytimes.com/2025/09/26/your-money/health-insurance-premiums-increase.html
+
+**For Investors, Government Shutdowns Haven’t Mattered. Is This Time Different?**\
+`Shutdowns have long been immaterial for the stock and bond markets, but there’s a risk now that a political confrontation could derail the economy.`\
+https://nytimes.com/2025/09/26/business/stocks-government-shutdown.html
+
 **MLB playoff watch: Dodgers lock up the NL West; bracket, clinching scenarios**\
 `As the 2025 stretch run winds to a close, who holds onto playoff hopes? And whose fate is at the mercy of other teams?`\
 https://nytimes.com/athletic/6664228/2025/09/26/mlb-playoff-watch-dodgers-nl-west-title/

@@ -1,3 +1,19 @@
+**A Guinness Heiress Goes to Netflix**\
+`Ivana Lowell talks about spinning her high-drama family tales into “House of Guinness” with the “Peaky Blinders” creator Steven Knight.`\
+https://nytimes.com/2025/09/26/style/a-guinness-heiress-goes-to-netflix.html
+
+**A great unknown: Bears are intriguing, scary after 3 weeks**\
+`Every week is a new adventure for Caleb Williams, and anything is possible, which makes games something to look forward to this season.`\
+https://nytimes.com/athletic/6664084/2025/09/26/bears-raiders-week-4-caleb-williams/
+
+**Get Ready for Higher Health Insurance Premiums Next Year**\
+`Employers say they are facing the biggest increase in health costs in more than a decade — almost 9 percent on average. Workers’ best option, experts say, is to carefully weigh various plans.`\
+https://nytimes.com/2025/09/26/your-money/health-insurance-premiums-increase.html
+
+**For Investors, Government Shutdowns Haven’t Mattered. Is This Time Different?**\
+`Shutdowns have long been immaterial for the stock and bond markets, but there’s a risk now that a political confrontation could derail the economy.`\
+https://nytimes.com/2025/09/26/business/stocks-government-shutdown.html
+
 **MLB playoff watch: Dodgers lock up the NL West; bracket, clinching scenarios**\
 `As the 2025 stretch run winds to a close, who holds onto playoff hopes? And whose fate is at the mercy of other teams?`\
 https://nytimes.com/athletic/6664228/2025/09/26/mlb-playoff-watch-dodgers-nl-west-title/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6664854/2025/09/26/erling-haaland-injury-man-city-m
 **Trump Administration Live Updates: Comey Indicted After Relentless Pressure from President**\
 ``\
 https://nytimes.com/live/2025/09/26/us/trump-news
-
-**Close National Parks if Government Shuts Down, Former Superintendents Plead**\
-`More than 35 former park superintendents wrote a letter to the Trump administration, saying the lands could be damaged under limited staffing.`\
-https://nytimes.com/2025/09/26/us/politics/national-parks-open-government-shutdown.html
-
-**Who Might the Trump Administration Go After Next?**\
-`The president suggested more foes, including the billionaire Democratic donors George Soros and Reid Hoffman, could face legal scrutiny. Could others follow?`\
-https://nytimes.com/2025/09/26/business/dealbook/trump-soros-hoffman.html
-
-**Why Keenan Allen's return to Chargers has been the team's best move of the offseason**\
-`Allen leads the Chargers with 19 receptions, none bigger than his fourth-quarter touchdown against the Broncos to help L.A. get to 3-0.`\
-https://nytimes.com/athletic/6663647/2025/09/26/chargers-keenan-allen-return-justin-herbert/
-
-**Bills might have best chance at elusive No. 1 seed this season, plus a look at Saints matchup**\
-`The Bills have long coveted the No. 1 seed and all that comes with it.`\
-https://nytimes.com/athletic/6662906/2025/09/26/bills-afc-no-1-seed-saints/
 
