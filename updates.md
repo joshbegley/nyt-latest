@@ -1,3 +1,15 @@
+**Jayden Daniels, Terry McLaurin ruled out for Commanders in Week 4 vs. Falcons**\
+`Daniels was limited in practice for two days as he recovers from a knee sprain, and McLaurin was absent all week because of a quad injury.`\
+https://nytimes.com/athletic/6662879/2025/09/26/jayden-daniels-terry-mclaurin-out-falcons-week-4/
+
+**Explaining the Rare Fujiwhara Effect on Hurricanes**\
+`When two storms swirl around a shared center point, one can absorb another.`\
+https://nytimes.com/2025/09/26/weather/fujiwhara-effect-imelda-humberto.html
+
+**Brief Comey Indictment Prompts Questions and Criticism**\
+`The two-page indictment of James B. Comey, the former F.B.I. director, offered little indication of the evidence that would be presented at a trial. Some legal experts called it flimsy and dangerous.`\
+https://nytimes.com/2025/09/26/us/politics/comey-indictment-legal-reaction.html
+
 **Trump’s New Tariffs Hit Furniture and Home Goods Stocks**\
 `Shares of Williams-Sonoma and RH fell in early trading, while U.S.-based makers like Ethan Allen rose after the president’s latest tariff announcement.`\
 https://nytimes.com/2025/09/26/business/trumps-tariffs-furniture-home-goods-stocks.html

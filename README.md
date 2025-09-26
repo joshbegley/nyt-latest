@@ -1,3 +1,23 @@
+**Clippers haven't yet faced questions on NBA investigation, but that's about to change**\
+`As the Clippers enter training camp, how will they sound out the inevitable noise around them? `\
+https://nytimes.com/athletic/6655995/2025/09/26/clippers-training-camp-nba-investigation/
+
+**The Secret Ingredient That Makes Tomatoes Taste More Like Themselves**\
+`Let late-season tomatoes shine by simmering them whole, vines and all, Eric Kim writes.`\
+https://nytimes.com/2025/09/26/dining/tomato-vine-soup-recipe.html
+
+**U.K. Court Dismisses Kneecap Rapper Terrorism Charge**\
+`A U.K. court dismissed a terrorism charge against the rapper Liam Óg Ó hAnnaidh, also known as Mo Chara, from the Irish-speaking group Kneecap. Prosecutors had accused him of displaying a Hezbollah flag.`\
+https://nytimes.com/video/world/europe/100000010423297/kneecap-gaza-court-terrorism-mo-chara.html
+
+**Trump’s Pharma Tariffs Would Spare Richest Drugmakers While Punishing Some Small Ones**\
+`Big companies like Novartis say new tariffs won’t hit them. “A win for Pharma,” Wall Street analysts said.`\
+https://nytimes.com/2025/09/26/health/trump-tariffs-drug-prices-manufacturing.html
+
+**Assata Shakur Dies at 78; Convicted Revolutionary Found Refuge in Cuba**\
+`A member of a militant Black group, she was found guilty in the 1973 murder of a New Jersey state trooper, escaped from prison and fled to Cuba, where she taught and wrote.`\
+https://nytimes.com/2025/09/26/obituaries/assata-shakur-dead.html
+
 **Jayden Daniels, Terry McLaurin ruled out for Commanders in Week 4 vs. Falcons**\
 `Daniels was limited in practice for two days as he recovers from a knee sprain, and McLaurin was absent all week because of a quad injury.`\
 https://nytimes.com/athletic/6662879/2025/09/26/jayden-daniels-terry-mclaurin-out-falcons-week-4/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/09/26/business/trumps-tariffs-furniture-home-goods-stoc
 **Boots Made For More Than Just Walking**\
 `A roundup of flat, knee-high styles that are both practical and pleasing to the eye.`\
 https://nytimes.com/2025/09/26/t-magazine/best-flat-boots.html
-
-**China’s Premier Seeks to Cast Beijing as Defender of International Order**\
-`Li Qiang, China’s second-highest-ranking official, portrayed Beijing as stable leader at a time when President Trump is pulling back from international institutions.`\
-https://nytimes.com/2025/09/26/world/asia/china-un-trump.html
-
-**Polish Skier Climbs Everest and Skis Down Without Extra Oxygen**\
-`Andrzej Bargiel, 37, became the first person to complete the feat, his sponsors said.`\
-https://nytimes.com/2025/09/26/sports/andrzej-bargiel-mount-everest-oxygen-skiing.html
-
-**Childrens’ Data and Photos Reported Stolen From U.K. Preschool Chain by Hackers**\
-`Kido International, which runs nursery schools, reported the incident to the authorities after hackers posted sensitive data on the dark web and demanded a ransom.`\
-https://nytimes.com/2025/09/26/world/europe/uk-nursery-school-hack.html
-
-**Aleksander Barkov injury update: Panthers captain undergoing right knee surgery**\
-`A timetable for the captain's return is not yet known, coach Paul Maurice said.`\
-https://nytimes.com/athletic/6665459/2025/09/26/aleksander-barkov-injury-update-surgery-florida-panthers/
-
-**Canadiens defenseman David Reinbacher out 4 weeks with broken finger**\
-`It is the second straight year Reinbacher has been injured in a preseason game against the Maple Leafs.`\
-https://nytimes.com/athletic/6665446/2025/09/26/canadiens-david-reinbacher-out-4-weeks-broken-finger/
 
