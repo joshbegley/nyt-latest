@@ -1,3 +1,7 @@
+**'Nothing to gain. Everything to lose': Wild owner dodges Kirill Kaprizov contract questions**\
+`For an organization that has voiced optimism that it would be able to easily lock up Kaprizov, Craig Leipold's silence spoke volumes.`\
+https://nytimes.com/athletic/6663953/2025/09/25/wild-kirill-kaprizov-contract-craig-leipold/
+
 **Did Noelvi Marte save Reds' season? 'One of the best plays I’ve ever seen'**\
 `The Reds kept pace with the Mets for the third and final wild-card spot in the National League.`\
 https://nytimes.com/athletic/6663360/2025/09/25/reds-noelvi-marte-home-run-robbery-catch/

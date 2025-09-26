@@ -1,3 +1,7 @@
+**'Nothing to gain. Everything to lose': Wild owner dodges Kirill Kaprizov contract questions**\
+`For an organization that has voiced optimism that it would be able to easily lock up Kaprizov, Craig Leipold's silence spoke volumes.`\
+https://nytimes.com/athletic/6663953/2025/09/25/wild-kirill-kaprizov-contract-craig-leipold/
+
 **Mets vs. Cubs: Francisco Lindor caps 30-30 to help defend wild-card lead**\
 `The Mets' playoff dreams are still alive after their 8-5 win over the Cubs on Wednesday night.`\
 https://nytimes.com/athletic/6663886/2025/09/25/mets-cubs-score-results-takeaways-nl-playoff-standings/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/25/us/politics/trump-retribution-comey-indictment.ht
 **Trump Will Slap Tariffs on Imported Drugs, Trucks and Household Furnishings**\
 `The president said his tariffs would range from 25 to 100 percent and go into effect next week.`\
 https://nytimes.com/2025/09/25/business/economy/trump-tariffs-pharmaceuticals-furniture-trucks.html
-
-**Dodgers, Clayton Kershaw party once more after NL West clinch: 'Best feeling in the world'**\
-`Each of the 12 times the Dodgers have celebrated a division title during this stretch, Kershaw has been a part of it.`\
-https://nytimes.com/athletic/6663606/2025/09/25/los-angeles-dodgers-clayton-kershaw-nl-west-clinch/
 
