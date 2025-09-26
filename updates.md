@@ -1,3 +1,19 @@
+**Trump Expands Tariffs Beyond Supreme Court’s Reach**\
+`The president’s tariffs on foreign drugs and furniture rely on national security laws outside the scope of current lawsuits.`\
+https://nytimes.com/2025/09/26/us/politics/trump-tariffs-supreme-court.html
+
+**Explaining Trump's threat to relocate World Cup games: What can he actually do?**\
+`World Cup cities have entered President Trump's crosshairs. Here's the likeliest outcome following his unexpected and targeted remarks`\
+https://nytimes.com/athletic/6665455/2025/09/26/world-cup-2026-game-relocation-threat-explained-trump/
+
+**Summoned U.S. Military Officers Are Expected to Hear a ‘Rally the Troops’ Message**\
+`Several generals and admirals said the unusual meeting in the Washington area called by Defense Secretary Pete Hegseth would be both disruptive and expensive.`\
+https://nytimes.com/2025/09/26/us/politics/hegseth-military-summit.html
+
+**Des Moines Schools Superintendent Detained by ICE, School Officials Say**\
+`The school board president in Iowa’s largest city said she did not know what led to the detention of Superintendent Ian Roberts, who has been in that role since 2023.`\
+https://nytimes.com/2025/09/26/us/des-moines-schools-ice-immigration.html
+
 **Chiefs' Kelce says heated exchange with Reid vs. Giants is no big deal**\
 `"I love that guy, man," Kelce said about the confrontation with Reid on the sidelines of Sunday's game versus the Giants.`\
 https://nytimes.com/athletic/6666013/2025/09/26/chiefs-travis-kelce-andy-reid-giants/

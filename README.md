@@ -1,3 +1,27 @@
+**How to watch Lynx at Mercury: Game 3 Time, TV, streaming**\
+`Find out how to watch the Minnesota Lynx play the Phoenix Mercury, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6666218/2025/09/26/lynx-vs-mercury-stream-how-to-watch-sept-26/
+
+**What to know about J.J. McCarthy, his ankle and the Vikings’ path forward**\
+`McCarthy has yet to return to practice and could also miss the Vikings' Week 5 game against the Browns in London. Carson Wentz would start.`\
+https://nytimes.com/athletic/6665799/2025/09/26/jj-mccarthy-injury-vikings-ireland-carson-wentz/
+
+**Slot confirms Liverpool to pay rest of Jota's contract to his family**\
+`Jota died at the age of 28 and had two years remaining on his Liverpool contract.`\
+https://nytimes.com/athletic/6665961/2025/09/26/diogo-jota-liverpool-contract-family/
+
+**Medical Groups Warn Against Visa Fees for Foreign Doctors**\
+`The United States depends heavily on physicians trained abroad. The Trump administration’s new fees may exacerbate personnel shortages, especially in underserved regions.`\
+https://nytimes.com/2025/09/26/health/trump-h1b-visa-fee-doctors.html
+
+**Ex-Wall Street Star Accused of Abusing Women in Penthouse Sex ‘Dungeon’**\
+`Federal prosecutors say Howard Rubin, who faces sex trafficking charges, brought victims to his apartment, where a bedroom was painted red, soundproofed and fitted with devices to use on the women.`\
+https://nytimes.com/2025/09/26/nyregion/howard-rubin-penthouse-sex-dungeon-charges.html
+
+**Dozens Protest Netanyahu’s Speech at the United Nations**\
+`Prime Minister Netanyahu defended Israel’s attacks in his address to the United Nations as dozens of leaders walked out in protest.`\
+https://nytimes.com/video/world/middleeast/100000010424477/israel-netanyahu-united-nations-gaza.html
+
 **Trump Expands Tariffs Beyond Supreme Court’s Reach**\
 `The president’s tariffs on foreign drugs and furniture rely on national security laws outside the scope of current lawsuits.`\
 https://nytimes.com/2025/09/26/us/politics/trump-tariffs-supreme-court.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6666013/2025/09/26/chiefs-travis-kelce-andy-reid-gi
 **Summoned U.S. Military Officers Are Expected to Hear a ‘Rally the Troops’ Message**\
 `Several generals and admirals said the unusual meeting in the Washington area called by Defense Secretary Pete Hegseth would be both disruptive and expensive.`\
 https://nytimes.com/2025/09/26/us/politics/hegseth-military-summit.html
-
-**Sexual Misconduct by J.R.O.T.C. Instructors Is Pervasive, Report Finds**\
-`The high school classes taught by military veterans have been under scrutiny following a Times investigation that found repeated instances of sexual predation and little oversight.`\
-https://nytimes.com/2025/09/26/us/jrotc-sex-abuse-gao-report.html
-
-**Des Moines Schools Superintendent Detained by ICE, School Officials Say**\
-`The school board president in Iowa’s largest city said she did not know what led to the detention of Superintendent Ian Roberts, who has been in that role since 2023.`\
-https://nytimes.com/2025/09/26/us/des-moines-schools-ice-immigration.html
-
-**New Treatment Shows Promise for Huntington’s Disease**\
-`A gene therapy injected into patients’ brains slowed progression of the disease by 75 percent, preliminary findings reported.`\
-https://nytimes.com/2025/09/26/well/huntingtons-disease-treatment.html
-
-**Trail Blazers' Scoot Henderson tears hamstring, will miss start of season**\
-`Henderson expected to enter training camp to compete with Jrue Holiday for the starting point guard spot.`\
-https://nytimes.com/athletic/6665904/2025/09/26/trail-blazers-scoot-henderson-tears-hamstring/
-
-**Aron Bell, Last Surviving Brother of World War II Resistance Group, Dies at 98**\
-`His three older brothers led the Bielski partisans, which attacked Nazi soldiers and saved 1,200 fellow Jews. Aron was a scout who ferried warnings to a nearby ghetto.`\
-https://nytimes.com/2025/09/26/obituaries/aron-bell-dead.html
-
-**Logan Paul's Michael Jordan memorabilia lawsuit explained**\
-`After winning an auction for a large piece of basketball court signed by Michael Jordan, Paul began to question the item's authenticity `\
-https://nytimes.com/athletic/6665116/2025/09/26/logan-paul-heritage-lawsuit-michael-jordan/
 
