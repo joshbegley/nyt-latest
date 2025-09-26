@@ -1,3 +1,7 @@
+**Villa Park's criticism of Rogers will have stung - but this slump could be the making of him**\
+`Rogers is integral to Villa, so his nosedive in form has been felt harshly - can he grow from overcoming this adversity?`\
+https://nytimes.com/athletic/6663256/2025/09/26/morgan-rogers-villa-criticism/
+
 **The New York Times in Print for Friday, Sep. 26, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/26/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6654067/2025/09/26/wrexham-home-form/
 **Can Arsenal afford to be more adventurous against Newcastle?**\
 `Since beating Newcastle 2-0 in May 2023, Arsenal have failed to score in their last three visits to St. James' Park in all competitions`\
 https://nytimes.com/athletic/6661142/2025/09/26/arsenal-newcastle-premier-league-arteta/
-
-**Real Madrid v Atletico Madrid is bigger than ever — and at times it has been toxic**\
-`As Atletico Madrid prepare to host city rivals Real Madrid, we explain the dramatic history behind 'El Derbi'`\
-https://nytimes.com/athletic/6661352/2025/09/26/madrid-atletico-la-liga-simeone-vinicius-jr-history/
 
