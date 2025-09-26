@@ -1,4 +1,12 @@
-**Federal Forces to Arrive in Memphis Next Week, Governor Says**\
+**Daily Caller Opinion Column ‘Explicitly’ Calls for Violence**\
+`The column, by editor at large Geoffrey Ingersoll, calls for “blood in the streets” in response to violence against conservatives.`\
+https://nytimes.com/2025/09/26/business/media/daily-caller-opinion-violence.html
+
+**NHL waiver tracker: Best players on the wire throughout 2025-26 preseason**\
+`Corey Pronman and Harman Dayal provide analysis of the top players placed on waivers as the regular season approaches.`\
+https://nytimes.com/athletic/6662091/2025/09/26/nhl-waivers-tracker-preseason-2025/
+
+**Federal Forces Set to Arrive in Memphis Next Week, Governor Says**\
 `The deployment will eventually include more than a dozen federal agencies, Gov. Bill Lee said, as well as the National Guard.`\
 https://nytimes.com/2025/09/26/us/politics/memphis-national-guard-crime.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/26/world/europe/gill-russia-britain-bribery.html
 **Milei Vowed to Fix Argentina’s Economy. Then Came a New Crisis.**\
 `President Javier Milei slashed inflation and spending, but it wasn’t enough to stave off an economic crisis. President Trump has offered him a lifeline.`\
 https://nytimes.com/2025/09/26/world/americas/milei-argentina-economy.html
-
-**What Does Nicolas Sarkozy’s Conviction Mean?**\
-`Nicolas Sarkozy, president of France from 2007 to 2012, was found guilty on Thursday of plotting to finance his 2007 election bid with help from the government of Col. Muammar el-Qaddafi. Aurelien Breeden, a reporter for The New York Times covering France, explains what led to his conviction.`\
-https://nytimes.com/video/world/europe/100000010421265/what-does-nicolas-sarkozys-conviction-mean.html
-
-**Skier Climbs Everest and Skis Back Down Without Extra Oxygen**\
-`Andrzej Bargiel, a Polish adventure skier, became the first to climb Mount Everest and ski back down without supplemental oxygen, his sponsors said.`\
-https://nytimes.com/video/sports/skiing/100000010423591/first-everest-skier-without-supplemental-oxygen.html
 

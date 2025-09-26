@@ -1,3 +1,15 @@
+**Daily Caller Opinion Column ‘Explicitly’ Calls for Violence**\
+`The column, by editor at large Geoffrey Ingersoll, calls for “blood in the streets” in response to violence against conservatives.`\
+https://nytimes.com/2025/09/26/business/media/daily-caller-opinion-violence.html
+
+**NHL waiver tracker: Best players on the wire throughout 2025-26 preseason**\
+`Corey Pronman and Harman Dayal provide analysis of the top players placed on waivers as the regular season approaches.`\
+https://nytimes.com/athletic/6662091/2025/09/26/nhl-waivers-tracker-preseason-2025/
+
+**Federal Forces Set to Arrive in Memphis Next Week, Governor Says**\
+`The deployment will eventually include more than a dozen federal agencies, Gov. Bill Lee said, as well as the National Guard.`\
+https://nytimes.com/2025/09/26/us/politics/memphis-national-guard-crime.html
+
 **Federal Forces to Arrive in Memphis Next Week, Governor Says**\
 `The deployment will eventually include more than a dozen federal agencies, Gov. Bill Lee said, as well as the National Guard.`\
 https://nytimes.com/2025/09/26/us/politics/memphis-national-guard-crime.html

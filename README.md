@@ -1,3 +1,15 @@
+**Gunman from shooting at NFL headquarters had CTE, medical examiner says**\
+`Shane Tamura killed four people in the July shooting at a Midtown Manhattan office building.`\
+https://nytimes.com/athletic/6665817/2025/09/26/nfl-headquarters-gunman-cte/
+
+**The Comey Indictment Plunges the Country Into a Grave New Period**\
+`As despots have done for centuries, Trump is persecuting people he considers his enemies, with little justification other than raw political power.`\
+https://nytimes.com/2025/09/26/opinion/editorials/comey-indictment-justice-department.html
+
+**Defiant Netanyahu Denounces Palestine Recognition, to a Mostly Empty U.N. Hall**\
+`A Palestinian state would be “national suicide” for Israel, Prime Minister Benjamin Netanyahu said, but many of the diplomats and leaders at the assembly boycotted his remarks.`\
+https://nytimes.com/2025/09/26/world/middleeast/netanyahu-speech-united-nations.html
+
 **Daily Caller Opinion Column ‘Explicitly’ Calls for Violence**\
 `The column, by editor at large Geoffrey Ingersoll, calls for “blood in the streets” in response to violence against conservatives.`\
 https://nytimes.com/2025/09/26/business/media/daily-caller-opinion-violence.html
@@ -7,7 +19,7 @@ https://nytimes.com/2025/09/26/business/media/daily-caller-opinion-violence.html
 https://nytimes.com/athletic/6662091/2025/09/26/nhl-waivers-tracker-preseason-2025/
 
 **Federal Forces Set to Arrive in Memphis Next Week, Governor Says**\
-`The deployment will eventually include more than a dozen federal agencies, Gov. Bill Lee said, as well as the National Guard.`\
+`The deployment will eventually include more than a dozen federal agencies, Gov. Bill Lee of Tennessee said, as well as the National Guard.`\
 https://nytimes.com/2025/09/26/us/politics/memphis-national-guard-crime.html
 
 **Kuwait to host Trophee des Champions between PSG and Marseille**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6665622/2025/09/26/nfl-2026-rio-de-janeiro-maracana
 **Local TV Giant Sinclair Ends Jimmy Kimmel Boycott**\
 `The company is one of two that has been pre-empting Mr. Kimmel’s show since he returned this week.`\
 https://nytimes.com/2025/09/26/business/media/sinclair-jimmy-kimmel-boycott.html
-
-**Where Mideast Envoy Pitched Peace, His Son Pitched Investors**\
-`Steve Witkoff’s son recently sought money from Gulf states including Qatar, which has previously invested in Witkoff family projects to win favor with President Trump.`\
-https://nytimes.com/2025/09/26/business/witkoff-son-qatar-gaza.html
-
-**U.K. Politician Admits Making Pro-Russia Statements in Return for Bribes**\
-`Nathan Gill, a former leader of Reform U.K. in Wales, pleaded guilty on Friday to charges of bribery while he was a member of the European Parliament.`\
-https://nytimes.com/2025/09/26/world/europe/gill-russia-britain-bribery.html
-
-**Milei Vowed to Fix Argentina’s Economy. Then Came a New Crisis.**\
-`President Javier Milei slashed inflation and spending, but it wasn’t enough to stave off an economic crisis. President Trump has offered him a lifeline.`\
-https://nytimes.com/2025/09/26/world/americas/milei-argentina-economy.html
 
