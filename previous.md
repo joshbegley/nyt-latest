@@ -1,5 +1,25 @@
+**At Jets camp, a prospect left behind tries to prove he belongs in the NHL**\
+`For some players, everything comes together at the right time to earn an NHL roster spot. For others like Ville Heinola, it's not so simple.`\
+https://nytimes.com/athletic/6655470/2025/09/26/nhl-jets-prospect-ville-heinola-preseason-waivers/
+
+**Under new regime, Islanders players and coaches let down their facial hair**\
+`Out on the Island are the old rules forbidding high jersey numbers and long hair. In are beards. Lots and lots of beards. `\
+https://nytimes.com/athletic/6662342/2025/09/26/nhl-beards-facial-hair-ny-islanders/
+
+**Former F.B.I. Chief Responds to Indictment: ‘Let’s Have a Trial’**\
+`James B. Comey, the former F.B.I. director, was indicted in connection with testimony he gave in 2020. In a video, he welcomed the chance to vindicate himself.`\
+https://nytimes.com/video/us/politics/100000010422950/comey-fbi-innocence-after-indictment.html
+
+**AFC North Whiparound: What's the division's most surprising storyline entering Week 4?**\
+`Also, how much has the big-picture outlook changed for each team in the division after three weeks?`\
+https://nytimes.com/athletic/6662751/2025/09/26/bengals-browns-ravens-steelers-week-4/
+
+**What it's like to be along for the ride on the Blue Jays' roller-coaster season**\
+`The Blue Jays' broadcasters articulate the unique joy for fans across Canada who are following this year's dramatically successful team.`\
+https://nytimes.com/athletic/6658150/2025/09/26/toronto-blue-jays-mlb-playoffs-buck-martinez-dan-shulman/
+
 **Chiesa added to Liverpool's Champions League squad after Leoni's ACL injury**\
-`Chiesa was initially left out of Liverpool's Champions League squad but will replace Leoni who will be "out for around a year"`\
+`Chiesa was initially left out of Liverpool's Champions League squad but will replace Leoni who will be "out for around a year".`\
 https://nytimes.com/athletic/6664535/2025/09/26/liverpool-news-leoni-chiesa-injury-champions-league/
 
 **For retiring NHL players, ceremonial contracts offer a one-day 'victory lap'**\
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6663103/2025/09/26/mike-gundy-oklahoma-state-firing
 **Israel’s isolation deepens with a wave of recognitions of Palestinian statehood.**\
 `By Aaron Boxerman`\
 https://nytimes.com/live/2025/09/26/world/un-general-assembly-netanyahu/israels-isolation-deepens-with-a-wave-of-recognitions-of-palestinian-statehood
-
-**Here’s what to know.**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2025/09/26/world/un-general-assembly-netanyahu/heres-what-to-know
-
-**U.N. General Assembly Live Updates: Netanyahu to Address World Leaders as Gaza War Nears 2-Year Mark**\
-``\
-https://nytimes.com/live/2025/09/26/world/un-general-assembly-netanyahu
-
-**AL MVP voters share thoughts on Aaron Judge vs. Cal Raleigh: ‘Kind of stressful’**\
-`Both Judge and Raleigh have delivered impact seasons. But the 30 voters for the AL MVP award can only choose one for first place.`\
-https://nytimes.com/athletic/6664134/2025/09/26/american-league-al-mvp-battle-cal-raleigh-aaron-judge/
-
-**Ejiro Evero, Panthers' D look to build off shutout: 'We did it once. Let's do it again'**\
-`Last week's performance was a cathartic experience for a defense that was the NFL’s worst in 2024 and for Evero, whose job was questioned.`\
-https://nytimes.com/athletic/6663407/2025/09/26/panthers-defense-improvement-patriots/
-
-**Blood, stitches and football: Jack Campbell is just that guy for the Lions**\
-`"He’s all ball, man. He’s all ball," Lions coach Dan Campbell said of his middle linebacker. `\
-https://nytimes.com/athletic/6664012/2025/09/26/lions-jack-campbell-linebacker-team-leader/
 

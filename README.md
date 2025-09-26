@@ -1,3 +1,11 @@
+**The Pulse: A TNF classic**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6662226/2025/09/26/seahawks-cardinals-tnf-the-pulse/
+
+**Sliders: As Tigers stumble down the stretch, a carat flop from their last title still lingers**\
+`Plus more on matchup madness in October and a special classic clip for the final Sliders column of the 2025 season.`\
+https://nytimes.com/athletic/6662518/2025/09/26/detroit-tigers-mlb-uniforms-rings-sliders/
+
 **At Jets camp, a prospect left behind tries to prove he belongs in the NHL**\
 `For some players, everything comes together at the right time to earn an NHL roster spot. For others like Ville Heinola, it's not so simple.`\
 https://nytimes.com/athletic/6655470/2025/09/26/nhl-jets-prospect-ville-heinola-preseason-waivers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6662625/2025/09/26/marc-andre-fleury-retirement-nhl
 **The Prada Guide to Dressing for Doomsday**\
 `Bras, bloomers and fancy frocks were all in the mix. But it’s not about the items; it’s about the approach.`\
 https://nytimes.com/2025/09/26/style/prada-spring-2026.html
-
-**How Mike Gundy's decades-long Oklahoma State run finally came crashing down**\
-`A season that started with Gundy on the thinnest of ice collapsed almost immediately. But the cracks have been forming for some time.`\
-https://nytimes.com/athletic/6663103/2025/09/26/mike-gundy-oklahoma-state-firing/
-
-**Israel’s isolation deepens with a wave of recognitions of Palestinian statehood.**\
-`By Aaron Boxerman`\
-https://nytimes.com/live/2025/09/26/world/un-general-assembly-netanyahu/israels-isolation-deepens-with-a-wave-of-recognitions-of-palestinian-statehood
 
