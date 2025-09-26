@@ -1,3 +1,23 @@
+**Answers to Puns and Anagrams (Jan. 5, 2003)**\
+`Here are the answers to Mel Taub’s Puns and Anagrams puzzle from Jan. 5, 2003.`\
+https://nytimes.com/interactive/2025/09/26/us/01052003-panda-answers.html
+
+**What Happens When a Pop Star Runs a Marathon in Your Shorts?**\
+`When Harry Styles shocked the running world with a sub-three-hour marathon, he wore Tracksmith shorts. He isn’t sponsored by the company, but they’re big fans.`\
+https://nytimes.com/2025/09/26/style/harry-styles-marathon-tracksmith.html
+
+**We Found the Very Best Boxed Macaroni and Cheese**\
+`Text by Ciara Murray Jordan`\
+https://nytimes.com/card/2025/09/26/smarter-living/wirecutter/
+
+**Answers to Puns and Anagrams (April 12, 2015)**\
+`Here are the answers to Mel Taub’s Puns and Anagrams puzzle from April 12, 2015.`\
+https://nytimes.com/interactive/2025/09/26/us/04122015-panda-answersjpg.html
+
+**Judge in Comey Case Has Presided Over Other Politically Fraught Proceedings**\
+`Judge Michael S. Nachmanoff, a Biden appointee, previously handled the 2019 arraignment of two associates of Rudolph W. Giuliani, among other high-profile cases.`\
+https://nytimes.com/2025/09/26/us/politics/james-comey-indictment-judge.html
+
 **How to watch Lynx at Mercury: Game 3 Time, TV, streaming**\
 `Find out how to watch the Minnesota Lynx play the Phoenix Mercury, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6666218/2025/09/26/lynx-vs-mercury-stream-how-to-watch-sept-26/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/09/26/health/trump-h1b-visa-fee-doctors.html
 **Ex-Wall Street Star Accused of Abusing Women in Penthouse Sex ‘Dungeon’**\
 `Federal prosecutors say Howard Rubin, who faces sex trafficking charges, brought victims to his apartment, where a bedroom was painted red, soundproofed and fitted with devices to use on the women.`\
 https://nytimes.com/2025/09/26/nyregion/howard-rubin-penthouse-sex-dungeon-charges.html
-
-**Dozens Protest Netanyahu’s Speech at the United Nations**\
-`Prime Minister Netanyahu defended Israel’s attacks in his address to the United Nations as dozens of leaders walked out in protest.`\
-https://nytimes.com/video/world/middleeast/100000010424477/israel-netanyahu-united-nations-gaza.html
-
-**Trump Expands Tariffs Beyond Supreme Court’s Reach**\
-`The president’s tariffs on foreign drugs and furniture rely on national security laws outside the scope of current lawsuits.`\
-https://nytimes.com/2025/09/26/us/politics/trump-tariffs-supreme-court.html
-
-**Explaining Trump's threat to relocate World Cup games: What can he actually do?**\
-`World Cup cities have entered President Trump's crosshairs. Here's the likeliest outcome following his unexpected and targeted remarks`\
-https://nytimes.com/athletic/6665455/2025/09/26/world-cup-2026-game-relocation-threat-explained-trump/
-
-**Chiefs' Kelce says heated exchange with Reid vs. Giants is no big deal**\
-`"I love that guy, man," Kelce said about the confrontation with Reid on the sidelines of Sunday's game versus the Giants.`\
-https://nytimes.com/athletic/6666013/2025/09/26/chiefs-travis-kelce-andy-reid-giants/
-
-**Summoned U.S. Military Officers Are Expected to Hear a ‘Rally the Troops’ Message**\
-`Several generals and admirals said the unusual meeting in the Washington area called by Defense Secretary Pete Hegseth would be both disruptive and expensive.`\
-https://nytimes.com/2025/09/26/us/politics/hegseth-military-summit.html
 
