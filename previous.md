@@ -1,8 +1,16 @@
+**Judge Rejects Ronald Perelman’s Claim That His Art Had Lost Its ‘Oomph’**\
+`The collector’s holding companies had sued his insurers for $400 million to cover paintings that they say had been damaged in a fire. The insurers said they had survived untouched.`\
+https://nytimes.com/2025/09/26/arts/judge-rejects-ronald-perelmans-claim-that-his-art-had-lost-its-oomph.html
+
+**Tua on Cam Newton's criticism: 'I want to see anybody on the streets come play QB'**\
+`Newton criticized Tagovailoa on "First Take" for not living up to a contract that makes him the NFL's sixth-highest paid player.`\
+https://nytimes.com/athletic/6665684/2025/09/26/tua-tagovailoa-cam-newton-criticism/
+
 **An Assault on Speech, Followed by Silence**\
 `Readers discuss President Trump’s attacks on free speech. Also: Pentagon secrecy; a call to ex-presidents; medical advice from the president; mandatory friendliness.`\
 https://nytimes.com/2025/09/26/opinion/free-speech-trump.html
 
-**Prince Charles, the Mona Lisa... what is the Graham Potter face-swap trend?**\
+**King Charles, the Mona Lisa... what is the Graham Potter face-swap trend?**\
 `Why is the West Ham head coach's face being superimposed on celebrities and historical figures? `\
 https://nytimes.com/athletic/6665466/2025/09/26/graham-potter-face-swap/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/26/nyregion/mamdani-opposition-attack-ads.html
 **Man Utd draw up plans for new Old Trafford without canopy**\
 `Issues over purchasing the required land have led to United exploring alternative options for their new stadium.`\
 https://nytimes.com/athletic/6664989/2025/09/26/old-trafford-canopy-manchester-united/
-
-**Clippers haven't yet faced questions on NBA investigation, but that's about to change**\
-`As the Clippers enter training camp, how will they sound out the inevitable noise around them? `\
-https://nytimes.com/athletic/6655995/2025/09/26/clippers-training-camp-nba-investigation/
-
-**The Secret Ingredient That Makes Tomatoes Taste More Like Themselves**\
-`Let late-season tomatoes shine by simmering them whole, vines and all, Eric Kim writes.`\
-https://nytimes.com/2025/09/26/dining/tomato-vine-soup-recipe.html
 

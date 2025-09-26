@@ -1,3 +1,15 @@
+**Gunman Who Attacked Midtown Office Building Had C.T.E.**\
+`Shane Tamura played football in high school but not beyond. Researchers are wary of linking the brain disease to specific actions.`\
+https://nytimes.com/2025/09/26/us/cte-football-tamura-gunman.html
+
+**gws-jeff-tweedy-twilight-override**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/jeff-tweedy-twilight-override
+
+**‘Biometric Exit’ Quietly Expands Across U.S. Airports, Unnerving Some**\
+`The program, in which federal officers take departing international passengers’ photos, is set to grow, raising privacy concerns.`\
+https://nytimes.com/2025/09/26/travel/airports-biometric-exit-program.html
+
 **Judge Rejects Ronald Perelman’s Claim That His Art Had Lost Its ‘Oomph’**\
 `The collector’s holding companies had sued his insurers for $400 million to cover paintings that they say had been damaged in a fire. The insurers said they had survived untouched.`\
 https://nytimes.com/2025/09/26/arts/judge-rejects-ronald-perelmans-claim-that-his-art-had-lost-its-oomph.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6527174/2025/09/26/nico-oreilly-manchester-city-con
 **Boeing Will Regain Ability to Certify Some Planes From F.A.A.**\
 `The Federal Aviation Administration said the aerospace company will be allowed to approve some new 737 Max and 787 Dreamliner jets.`\
 https://nytimes.com/2025/09/26/business/boeing-faa-737-max-certification.html
-
-**Trump Can’t Be the One to Dictate Who Gets Indicted**\
-`The Justice Department and the attorney general are supposed to keep a distance from the president, not be his personal score settlers.`\
-https://nytimes.com/2025/09/26/opinion/james-comey-indicted-trump.html
-
-**Mamdani Foes, Struggling to Raise Money, Have Started Buying Attack Ads**\
-`Several super PACs that oppose Zohran Mamdani’s candidacy for mayor of New York City have banded together to coordinate attack ads.`\
-https://nytimes.com/2025/09/26/nyregion/mamdani-opposition-attack-ads.html
-
-**Man Utd draw up plans for new Old Trafford without canopy**\
-`Issues over purchasing the required land have led to United exploring alternative options for their new stadium.`\
-https://nytimes.com/athletic/6664989/2025/09/26/old-trafford-canopy-manchester-united/
 

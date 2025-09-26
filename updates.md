@@ -1,3 +1,15 @@
+**Judge Rejects Ronald Perelman’s Claim That His Art Had Lost Its ‘Oomph’**\
+`The collector’s holding companies had sued his insurers for $400 million to cover paintings that they say had been damaged in a fire. The insurers said they had survived untouched.`\
+https://nytimes.com/2025/09/26/arts/judge-rejects-ronald-perelmans-claim-that-his-art-had-lost-its-oomph.html
+
+**Tua on Cam Newton's criticism: 'I want to see anybody on the streets come play QB'**\
+`Newton criticized Tagovailoa on "First Take" for not living up to a contract that makes him the NFL's sixth-highest paid player.`\
+https://nytimes.com/athletic/6665684/2025/09/26/tua-tagovailoa-cam-newton-criticism/
+
+**King Charles, the Mona Lisa... what is the Graham Potter face-swap trend?**\
+`Why is the West Ham head coach's face being superimposed on celebrities and historical figures? `\
+https://nytimes.com/athletic/6665466/2025/09/26/graham-potter-face-swap/
+
 **An Assault on Speech, Followed by Silence**\
 `Readers discuss President Trump’s attacks on free speech. Also: Pentagon secrecy; a call to ex-presidents; medical advice from the president; mandatory friendliness.`\
 https://nytimes.com/2025/09/26/opinion/free-speech-trump.html
