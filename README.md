@@ -1,3 +1,19 @@
+**Celtics owner Bill Chisholm on expectations, Brad Stevens' autonomy and WNBA in Boston**\
+`"We’re going to do everything we can to win. That is job No. 1. And not just win games — win championships," says new owner Bill Chisholm.`\
+https://nytimes.com/athletic/6663279/2025/09/26/celtics-owner-jayson-tatum-bill-chisholm/
+
+**Knicks' plan to add more offense for stars Jalen Brunson and Karl-Anthony Towns**\
+`Knicks head coach Mike Brown has a plan for how he wants to diversify his star players.`\
+https://nytimes.com/athletic/6662151/2025/09/26/knicks-jalen-brunson-karl-anthony-towns-mike-brown/
+
+**Israel Is Flattening Parts of Gaza City**\
+`The city had been spared from widespread demolitions during previous military operations there. This time is different.`\
+https://nytimes.com/interactive/2025/09/26/world/middleeast/israel-gaza-city-destruction-war.html
+
+**MLB playoff hunt: 8 series to follow throughout the regular season's final weekend**\
+`It's looking like another wide-open bracket in the MLB playoffs. We're about to know the full field after a nail-biting final weekend. `\
+https://nytimes.com/athletic/6663317/2025/09/26/tigers-guardians-mets-yankees-blue-jays-mlb-playoffs-wild-card-how-to-watch/
+
 **4 Takeaways From Trump’s Securing of an Indictment Against Comey**\
 `The president’s pressure on the Justice Department to charge one of his highest-profile retribution targets could have profound consequences.`\
 https://nytimes.com/2025/09/26/us/politics/comey-indictment-trump-takeaways.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/09/26/us/politics/gabbard-intelligence-report-cancellat
 **Marketing Movies Is Harder Than Ever. And Here Comes ‘One Battle After Another.’**\
 `The film is the kind that isn’t supposed to work in theaters anymore. But Warner Bros., the studio behind it, has successfully bucked trends for months now.`\
 https://nytimes.com/2025/09/26/business/media/marketing-warner-bros-one-battle-after-another.html
-
-**Book Club: Read ‘The Buffalo Hunter Hunter,’ by Stephen Graham Jones, with the Book Review**\
-`In October, the Book Review Book Club will read and discuss Stephen Graham Jones’s latest horror novel, about an Indigenous man who is turned into a vampire.`\
-https://nytimes.com/2025/09/26/books/review/buffalo-hunter-hunter-stephen-graham-jones-book-club.html
-
-**A Broad Wave of Firings Followed Charlie Kirk’s Assassination**\
-`More than 145 people in a wide range of occupations have been fired or disciplined after they made statements about the assassination of Charlie Kirk.`\
-https://nytimes.com/2025/09/26/us/kirk-critics-fired-free-speech.html
-
-**‘One Battle After Another’ Is in VistaVision. Should You Care?**\
-`Filmmakers are giving a format that hasn’t been popular since the 1950s another try.`\
-https://nytimes.com/2025/09/26/movies/one-battle-after-another-vistavision.html
-
-**I’m a Liberal Faculty Adviser for Charlie Kirk’s Group. That’s Not a Contradiction.**\
-`It’s about fostering principled engagement across ideological lines.`\
-https://nytimes.com/2025/09/26/opinion/charlie-kirk-turning-point-usa-liberal.html
 
