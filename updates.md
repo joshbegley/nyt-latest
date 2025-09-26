@@ -1,3 +1,15 @@
+**Paul George to miss start of 76ers' training camp after knee surgery**\
+`George stressed that he’s made significant progress from the injury and that the next few weeks will be important for his recovery.`\
+https://nytimes.com/athletic/6665245/2025/09/26/paul-george-injury-76ers-knee-status/
+
+**Review: Mozart’s ‘Figaro’ Meets Larry Kramer’s Fire Island**\
+`Kevin Carillo dreams up an unlikely combination, with results that are delirious and often persuasive, but also excessive.`\
+https://nytimes.com/2025/09/26/theater/figaro-baryshnikov-arts-center-review.html
+
+**Cinematic Riches Spanning the Globe Converge at the New York Film Festival**\
+`This year’s highlights include Jim Jarmusch’s “Father Mother Sister Brother,” the Italian documentary “Below the Clouds” and the epic “Magellan.”`\
+https://nytimes.com/2025/09/26/movies/new-york-film-festival-jim-jarmusch-father-mother-sister-brother.html
+
 **Next Time You Consult an A.I. Chatbot, Remember One Thing**\
 `Chatbots want to be your friend, when what you really need is a neutral perspective.`\
 https://nytimes.com/2025/09/26/well/is-ai-validation-healthy.html
