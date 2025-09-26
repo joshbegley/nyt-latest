@@ -1,3 +1,7 @@
+**You Asked for More of Mel Taub’s Puzzles. Here Are Three.**\
+`With his Puns and Anagrams puzzles, Mr. Taub made solvers groan and grin for decades. After he died this month, readers expressed appreciation for his work.`\
+https://nytimes.com/2025/09/26/obituaries/mel-taub-puzzles.html
+
 **Here’s What to Know About Comey’s Indictment**\
 `The former F.B.I. director was indicted Thursday on one count of making a false statement and one count of obstruction in connection with a congressional testimony five years ago.`\
 https://nytimes.com/2025/09/26/us/politics/trump-james-comey-indictment-explained.html
