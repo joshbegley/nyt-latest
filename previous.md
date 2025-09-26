@@ -1,3 +1,7 @@
+**A Fashion Week With the Scars of War**\
+`At Ukrainian Fashion Week in Kyiv, the designs and the models reflected a country where tens of thousands of people have lost limbs.`\
+https://nytimes.com/card/2025/09/26/world/europe/ukraine-fashion-week-kyiv-war
+
 **Federal Bureau of Prisons Ends Union Protections for Workers**\
 `The union of prison employees condemned the contract’s termination, which is part of the Trump administration’s overhaul of the federal work force.`\
 https://nytimes.com/2025/09/26/us/politics/federal-prisons-workers-union.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/26/arts/halloween-nyc-2025.html
 **Lights in the Sky**\
 `Tell us a story, real or made up, that is inspired by this image.`\
 https://nytimes.com/2025/09/26/learning/lights-in-the-sky.html
-
-**A Writer Who Delights in Demystifying the Arcane and Obscure**\
-`Franz Lidz is fascinated by the eclectic and global nature of the archaeology beat.`\
-https://nytimes.com/2025/09/26/insider/franz-lidz.html
 

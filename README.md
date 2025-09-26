@@ -1,3 +1,7 @@
+**A.I.’s Environmental Impact Will Threaten Its Own Supply Chain**\
+`This town’s minerals make A.I. possible. Then came Hurricane Helene.`\
+https://nytimes.com/video/opinion/100000010316392/ais-environmental-impact-will-threaten-its-own-supply-chain.html
+
 **A Fashion Week With the Scars of War**\
 `At Ukrainian Fashion Week in Kyiv, the designs and the models reflected a country where tens of thousands of people have lost limbs.`\
 https://nytimes.com/card/2025/09/26/world/europe/ukraine-fashion-week-kyiv-war
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/26/nyregion/jack-ciattarelli-new-jersey-vaccines.htm
 **33 Things to Do for Halloween in New York City**\
 `From now to the end of October, spooky season takes hold in the five boroughs and beyond with parades, horror films and celebrations of “The Rocky Horror Picture Show” at 50.`\
 https://nytimes.com/2025/09/26/arts/halloween-nyc-2025.html
-
-**Lights in the Sky**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2025/09/26/learning/lights-in-the-sky.html
 
