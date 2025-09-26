@@ -1,3 +1,7 @@
+**Trump Will Slap Tariffs on Imported Drugs, Trucks and Household Furnishings**\
+`The president said his tariffs would range from 25 to 100 percent and go into effect next week.`\
+https://nytimes.com/2025/09/25/business/economy/trump-tariffs-pharmaceuticals-furniture-trucks.html
+
 **Stream With a Lot of Shade**\
 `Larry Snyder’s puzzle gave me a run for my money.`\
 https://nytimes.com/2025/09/25/crosswords/daily-puzzle-2025-09-26.html

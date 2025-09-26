@@ -1,10 +1,10 @@
-**Stream With a Lot of Shade**\
-`Larry Snyder’s puzzle gave me a run for my money.`\
-https://nytimes.com/2025/09/25/crosswords/daily-puzzle-2025-09-26.html
-
 **‘The Other Americans’ Review: John Leguizamo’s Family Drama Aims Big**\
 `For the first play he’s written, the actor stars as a striving Colombian American patriarch in the mold of Willy Loman or Walter Younger.`\
 https://nytimes.com/2025/09/25/theater/the-other-americans-review-john-leguizamo.html
+
+**Stream With a Lot of Shade**\
+`Larry Snyder’s puzzle gave me a run for my money.`\
+https://nytimes.com/2025/09/25/crosswords/daily-puzzle-2025-09-26.html
 
 **Tigers vs. Guardians: Detroit ends 8-game skid, ties Cleveland for AL Central lead**\
 `With three games left, the Tigers and Guardians share first place in the AL Central, but Cleveland holds the head-to-head tiebreaker.`\
