@@ -1,3 +1,7 @@
+**Trump Casts Comey’s Indictment as Justice and Expects More to Come**\
+`The president has cast the indictment as “justice” rather than revenge, but his own words and actions cast doubt on that assertion.`\
+https://nytimes.com/2025/09/26/us/politics/trump-comey-revenge.html
+
 **Gunman Who Attacked Midtown Office Building Had C.T.E.**\
 `Shane Tamura played football in high school but not beyond. Researchers are wary of linking the brain disease to specific actions.`\
 https://nytimes.com/2025/09/26/us/cte-football-tamura-gunman.html
