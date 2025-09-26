@@ -1,3 +1,11 @@
+**How to Prepare for the Jungle**\
+`Hear from the wildlife biologist and presenter Lizzie Daly about how she gets ready to tag jaguars in the wetlands of South America.`\
+https://nytimes.com/paidpost/loreal-groupe/how-to-prepare-for-the-jungle.html
+
+**Maple Leafs sign goaltender James Reimer to PTO**\
+`The Maple Leafs are looking for support in the crease following Joseph Woll's leave of absence from the team.`\
+https://nytimes.com/athletic/6665420/2025/09/26/maple-leafs-james-reimer-pto-contract/
+
 **Netanyahu Highlights QR Code That Links to Gruesome Images of Oct. 7**\
 `During his speech to the U.N., Israel’s prime minister sought to focus attention on the carnage of the Hamas-led attacks on southern Israel that led to the war in Gaza.`\
 https://nytimes.com/2025/09/26/world/middleeast/netanyahu-qr-code.html
