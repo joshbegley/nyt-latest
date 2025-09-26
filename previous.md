@@ -1,3 +1,7 @@
+**China’s Skyscraper Delivery Problem Creates a New Workforce**\
+`Food delivery drivers in Shenzhen are trying to get orders to office workers faster by paying intermediaries to complete the final, upward leg of the journey.`\
+https://nytimes.com/video/world/asia/100000010409171/chinas-skyscraper-delivery-problem-creates-a-new-workforce.html
+
 **‘Ruth & Boaz’ Review: A Modern Twist on a Biblical Romance**\
 `The latest drama from Tyler Perry Studios sets the Book of Ruth at a vineyard in Tennessee.`\
 https://nytimes.com/2025/09/26/movies/ruth-boaz-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6657450/2025/09/26/oscar-pistorius-reeva-steenkamp-
 **Colbert Investigates Trump’s Claim of Escalator ‘Sabotage’**\
 `“Now he’s focused all of his rage on the one foe who refused to take him up, and that is the U.N.’s escalator,” Colbert said of Trump’s recent post on Truth Social.`\
 https://nytimes.com/2025/09/26/arts/television/colbert-trump-escalator-sabotage.html
-
-**How to watch White Sox at Nationals: Time, TV, streaming for September 26**\
-`Find out how to watch the Chicago White Sox play the Washington Nationals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6664312/2025/09/26/white-sox-vs-nationals-stream-how-to-watch-sept-26/
 

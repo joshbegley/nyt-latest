@@ -1,3 +1,7 @@
+**China’s Skyscraper Delivery Problem Creates a New Workforce**\
+`Food delivery drivers in Shenzhen are trying to get orders to office workers faster by paying intermediaries to complete the final, upward leg of the journey.`\
+https://nytimes.com/video/world/asia/100000010409171/chinas-skyscraper-delivery-problem-creates-a-new-workforce.html
+
 **‘Ruth & Boaz’ Review: A Modern Twist on a Biblical Romance**\
 `The latest drama from Tyler Perry Studios sets the Book of Ruth at a vineyard in Tennessee.`\
 https://nytimes.com/2025/09/26/movies/ruth-boaz-review.html
