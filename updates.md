@@ -1,3 +1,15 @@
+**Jerry Jones: Cowboys 'didn’t exactly win the Super Bowl' with Micah Parsons in Dallas**\
+`The Cowboys haven't beaten the Packers since 2016, going 0-5 in that span.`\
+https://nytimes.com/athletic/6666751/2025/09/26/jerry-jones-cowboys-didnt-exactly-win-the-super-bowl-with-micah-parsons-in-dallas/
+
+**Jared Kushner’s Firm Is Said to Be Part of $50 Billion Buyout of Electronic Arts**\
+`Mr. Kushner’s private equity firm, Affinity Partners, is said to be in talks with the Saudi sovereign wealth fund and Silver Lake to buy out the video game giant.`\
+https://nytimes.com/2025/09/26/business/electronic-arts-buyout-jared-kushner.html
+
+**Trump Believes ‘We Have a Deal’ on Gaza. But a Host of Obstacles Remain.**\
+`Whether President Trump can help bring the war to an end will probably depend on how much he is willing to push Benjamin Netanyahu.`\
+https://nytimes.com/2025/09/26/us/politics/trump-gaza-deal.html
+
 **Texas Tech Moves to Limit Academic Discussion to 2 Genders**\
 `The university system said faculty must comply with President Trump’s order recognizing only two genders, possibly a first for a major public institution of higher education.`\
 https://nytimes.com/2025/09/26/us/politics/texas-tech-gender.html

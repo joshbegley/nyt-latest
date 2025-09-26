@@ -1,3 +1,15 @@
+**Jerry Jones: Cowboys 'didn’t exactly win the Super Bowl' with Micah Parsons in Dallas**\
+`The Cowboys haven't beaten the Packers since 2016, going 0-5 in that span.`\
+https://nytimes.com/athletic/6666751/2025/09/26/jerry-jones-cowboys-didnt-exactly-win-the-super-bowl-with-micah-parsons-in-dallas/
+
+**Jared Kushner’s Firm Is Said to Be Part of $50 Billion Buyout of Electronic Arts**\
+`Mr. Kushner’s private equity firm, Affinity Partners, is said to be in talks with the Saudi sovereign wealth fund and Silver Lake to buy out the video game giant.`\
+https://nytimes.com/2025/09/26/business/electronic-arts-buyout-jared-kushner.html
+
+**Trump Believes ‘We Have a Deal’ on Gaza. But a Host of Obstacles Remain.**\
+`Whether President Trump can help bring the war to an end will probably depend on how much he is willing to push Benjamin Netanyahu.`\
+https://nytimes.com/2025/09/26/us/politics/trump-gaza-deal.html
+
 **Texas Tech Moves to Limit Academic Discussion to 2 Genders**\
 `The university system said faculty must comply with President Trump’s order recognizing only two genders, possibly a first for a major public institution of higher education.`\
 https://nytimes.com/2025/09/26/us/politics/texas-tech-gender.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/26/us/politics/trump-james-comey-indictment-explaine
 **Jon Rahm is Europe's talisman. There's no one on either Ryder Cup team quite like him**\
 `Friday, Rahm made sure Scottie Scheffler and Bryson DeChambeau failed to earn points against him. It wasn't the first time.`\
 https://nytimes.com/athletic/6666499/2025/09/26/ryder-cup-jon-rahm-europe/
-
-**Netanyahu Was Defiant at the U.N.**\
-`Also, what’s next after James Comey’s indictment. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2025/09/26/briefing/netanyahu-un-comey-trump-indicted.html
-
-**Investigating Steve Witkoff’s Sprawling Financial Empire**\
-`Reporters uncovered the Witkoff family’s efforts to profit off its patriarch’s proximity to the president.`\
-https://nytimes.com/2025/09/26/insider/steve-witkoff-financial-empire-middle-east.html
-
-**On Shutdown, Democrats Turn to Simple Strategy: Do Something**\
-`They want to show their willingness to fight, even if the battle ends in defeat.`\
-https://nytimes.com/2025/09/26/us/politics/democrats-government-shutdown.html
 
