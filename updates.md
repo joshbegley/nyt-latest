@@ -1,3 +1,7 @@
+**Villa Park's criticism of Rogers will have stung - but this slump could be the making of him**\
+`Rogers is integral to Villa, so his nosedive in form has been felt harshly - can he grow from overcoming this adversity?`\
+https://nytimes.com/athletic/6663256/2025/09/26/morgan-rogers-villa-criticism/
+
 **The New York Times in Print for Friday, Sep. 26, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/26/todays-new-york-times
