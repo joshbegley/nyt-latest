@@ -1,3 +1,7 @@
+**Tigers vs. Guardians: Detroit ends 8-game skid, ties Cleveland for AL Central lead**\
+`With three games left, the Tigers and Guardians share first place in the AL Central, but Cleveland holds the head-to-head tiebreaker.`\
+https://nytimes.com/athletic/6663155/2025/09/25/tigers-guardians-takeaways-game-3-al-central-battle/
+
 **In potentially his final Astros start, Framber Valdez keeps Houston's playoff hopes alive**\
 `If that is Valdez’s last act in an Astros uniform, it is a fitting sendoff for an under-appreciated southpaw that sometimes tested patience.`\
 https://nytimes.com/athletic/6663826/2025/09/25/houston-astros-framber-valdez-playoff-hopes/
