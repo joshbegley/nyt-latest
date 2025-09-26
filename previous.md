@@ -1,3 +1,7 @@
+**Robert Barnett, Washington Master of the Book World Megadeal, Dies at 79**\
+`A powerhouse Washington lawyer, he negotiated blockbuster contracts for A-list clients, including the Clintons, the Obamas and the Bushes, while often acting as their consigliere.`\
+https://nytimes.com/2025/09/26/books/robert-barnett-dead.html
+
 **U.N. Human Rights Office Asks Ghana to Halt Deportations of Migrants Sent From U.S.**\
 `At least five migrants recently deported to Ghana from the United States had court-ordered protections meant to keep them from the possibility of being tortured if returned to their home countries.`\
 https://nytimes.com/2025/09/26/us/politics/migrants-ghana-deportations.html
@@ -11,7 +15,7 @@ https://nytimes.com/2025/09/26/obituaries/mel-taub-puzzles.html
 https://nytimes.com/2025/09/26/us/politics/trump-james-comey-indictment-explained.html
 
 **Jon Rahm is Europe's talisman. There's no one on either Ryder Cup team quite like him**\
-`On Friday Rahm made sure that Scottie Scheffler and Bryson DeChambeau failed to earn points against him. It wasn't the first time.`\
+`Friday, Rahm made sure Scottie Scheffler and Bryson DeChambeau failed to earn points against him. It wasn't the first time.`\
 https://nytimes.com/athletic/6666499/2025/09/26/ryder-cup-jon-rahm-europe/
 
 **Netanyahu Was Defiant at the U.N.**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/26/health/autism-research-trump-kennedy.html
 **Hurricane Humberto Intensified to a Category 3 in Just a Few Hours**\
 `When hurricanes grow quickly, they can catch forecasters and coastal communities off guard.`\
 https://nytimes.com/2025/09/26/weather/hurricane-humberto-rapid-intensification.html
-
-**Grizzlies' Ja Morant signs with advisory firm led by his uncle, mother**\
-`Morant said he will negotiate his next contract after firing his agent last season and signing with an advisory firm involving his family.`\
-https://nytimes.com/athletic/6666348/2025/09/26/ja-morant-phil-advisory-firm-iloc-kawhi-leonard/
 

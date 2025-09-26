@@ -1,3 +1,11 @@
+**Robert Barnett, Washington Master of the Book World Megadeal, Dies at 79**\
+`A powerhouse Washington lawyer, he negotiated blockbuster contracts for A-list clients, including the Clintons, the Obamas and the Bushes, while often acting as their consigliere.`\
+https://nytimes.com/2025/09/26/books/robert-barnett-dead.html
+
+**Jon Rahm is Europe's talisman. There's no one on either Ryder Cup team quite like him**\
+`Friday, Rahm made sure Scottie Scheffler and Bryson DeChambeau failed to earn points against him. It wasn't the first time.`\
+https://nytimes.com/athletic/6666499/2025/09/26/ryder-cup-jon-rahm-europe/
+
 **U.N. Human Rights Office Asks Ghana to Halt Deportations of Migrants Sent From U.S.**\
 `At least five migrants recently deported to Ghana from the United States had court-ordered protections meant to keep them from the possibility of being tortured if returned to their home countries.`\
 https://nytimes.com/2025/09/26/us/politics/migrants-ghana-deportations.html
