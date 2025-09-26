@@ -2,7 +2,7 @@
 `Odegaard has missed Arsenal's last three games due to a shoulder injury.`\
 https://nytimes.com/athletic/6664686/2025/09/26/martin-odegaard-arsenal-injury-news/
 
-**Spurs have received and 'unequivocally rejected' Earick's interest to buy club**\
+**Spurs have 'unequivocally rejected' Earick's interest to buy club**\
 `Spurs confirmed on Friday that they had rejected Earick's interest, while reiterating that they are not for sale.`\
 https://nytimes.com/athletic/6664872/2025/09/26/tottenham-news-owners-bid-earick/
 

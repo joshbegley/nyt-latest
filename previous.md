@@ -1,3 +1,7 @@
+**Arteta hopeful on Odegaard fitness for Newcastle trip**\
+`Odegaard has missed Arsenal's last three games due to a shoulder injury.`\
+https://nytimes.com/athletic/6664686/2025/09/26/martin-odegaard-arsenal-injury-news/
+
 **Spurs have received and 'unequivocally rejected' Earick's interest to buy club**\
 `Spurs confirmed on Friday that they had rejected Earick's interest, while reiterating that they are not for sale.`\
 https://nytimes.com/athletic/6664872/2025/09/26/tottenham-news-owners-bid-earick/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6662906/2025/09/26/bills-afc-no-1-seed-saints/
 **Weekend watch guide: MLB playoff push, WNBA semifinals, Alabama-Georgia, Lamar vs. Mahomes**\
 `There's a lot going on in the sports world as September winds down. Let this compilation help you decide what to tune in for this weekend.`\
 https://nytimes.com/athletic/6659900/2025/09/26/mlb-wild-card-wnba-playoffs-mahomes-lamar-alabama-georgia-how-to-watch/
-
-**Fantasy Premier League live Q&A: Gameweek 6 advice from Ben Dinnery**\
-`Join Ben Dinnery for a live Gameweek 6 Q&A from 4pm-5pm UK time on Friday`\
-https://nytimes.com/athletic/6661317/2025/09/26/fantasy-premier-league-live-qa-gameweek-6-advice-from-ben-dinnery/
 
