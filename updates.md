@@ -1,3 +1,8 @@
+**What should Manchester United and Ruben Amorim be aiming for this season?**\
+`A sixth-place finish should be achievable. Defeats, especially against top sides, will hurt but they shouldn’t herald doom
+`\
+https://nytimes.com/athletic/6662908/2025/09/26/manchester-united-realistic-goals-2025-26/
+
 **Ferdi Kadioglu: 'I had a lot of pain for a long time - it took longer than expected'**\
 `Kadioglu was injured early in his debut season at Brighton - he tells The Athletic exactly how frustrating his road to recovery has been`\
 https://nytimes.com/athletic/6566664/2025/09/26/kadioglu-brighton-interview-injury/
