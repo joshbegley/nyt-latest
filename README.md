@@ -1,3 +1,7 @@
+**gws-egypt-white-black-deserts**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/egypt-white-black-deserts
+
 **ICE Officer ‘Relieved of His Duties’ After Pushing Woman to Floor**\
 `The Department of Homeland Security said it was investigating an officer’s action during an altercation at a New York City immigration courthouse.`\
 https://nytimes.com/2025/09/26/nyregion/ice-officer-investigation-woman-shoved.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/26/movies/five-science-fiction-movies-to-stream-now.
 **Garcia out six weeks with knee injury, Raphinha out three weeks with thigh issue, Barca say**\
 `Both players will miss the Champions League match against Paris Saint-Germain on October 1.`\
 https://nytimes.com/athletic/6664708/2025/09/26/raphinha-joan-garcia-injury-barcelona/
-
-**‘Peak SF’ on a Friday Night Is a Robot Fight**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/san-francisco-robot-fight
 
