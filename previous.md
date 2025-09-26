@@ -1,3 +1,11 @@
+**Detained on Immigration Charges in Dallas, Now Fighting for His Life**\
+`Miguel Ángel García is one of two detainees critically injured by a Dallas gunman who killed another detainee. Officials have not identified the victims, but families are coming forward.`\
+https://nytimes.com/2025/09/26/us/politics/victims-dallas-ice.html
+
+**Supreme Court Allows Trump to Slash Foreign Aid**\
+`The Trump administration objects to paying out $4 billion appropriated by Congress.`\
+https://nytimes.com/2025/09/26/us/politics/supreme-court-trump-foreign-aid.html
+
 **Russia and China Fail to Delay U.N. ‘Snapback’ Sanctions Against Iran**\
 `The unsuccessful bid to put off the sanctions for six months over Iran’s nuclear program means they would go into effect early Sunday in Iran.`\
 https://nytimes.com/2025/09/26/world/middleeast/iran-sanctions-europe-russia-un.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6665896/2025/09/26/steelers-vikings-dublin-ireland-
 **Tom Cillo, playing college football at 58, signs NIL deal with pain-relief brand**\
 `The freshman defensive lineman for Division III Lycoming becomes the oldest player to agree to an NIL deal.`\
 https://nytimes.com/athletic/6665695/2025/09/26/tom-cillo-nil-deal-player-oldest/
-
-**Guardians AL Central favorites after Tigers’ epic collapse. See how the odds moved**\
-`The AL Central division race has been a rollercoaster of late, thanks to an epic collapse by the Tigers. See all the odds movement here.`\
-https://nytimes.com/athletic/6665536/2025/09/26/guardians-al-central-favorites-over-tigers-odds-movement/
-
-**The World’s 50 Best Restaurants Announces Its North American Picks**\
-`At the top of the new list is Atomix, a refined Korean tasting-menu spot in New York. But other rankings take a surprising turn to the casual.`\
-https://nytimes.com/2025/09/26/dining/worlds-50-best-restaurants-north-america.html
 

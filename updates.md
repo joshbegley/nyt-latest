@@ -1,3 +1,11 @@
+**Detained on Immigration Charges in Dallas, Now Fighting for His Life**\
+`Miguel Ángel García is one of two detainees critically injured by a Dallas gunman who killed another detainee. Officials have not identified the victims, but families are coming forward.`\
+https://nytimes.com/2025/09/26/us/politics/victims-dallas-ice.html
+
+**Supreme Court Allows Trump to Slash Foreign Aid**\
+`The Trump administration objects to paying out $4 billion appropriated by Congress.`\
+https://nytimes.com/2025/09/26/us/politics/supreme-court-trump-foreign-aid.html
+
 **Russia and China Fail to Delay U.N. ‘Snapback’ Sanctions Against Iran**\
 `The unsuccessful bid to put off the sanctions for six months over Iran’s nuclear program means they would go into effect early Sunday in Iran.`\
 https://nytimes.com/2025/09/26/world/middleeast/iran-sanctions-europe-russia-un.html
