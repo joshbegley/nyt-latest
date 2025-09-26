@@ -1,3 +1,11 @@
+**The New York Times in Print for Friday, Sep. 26, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/26/todays-new-york-times
+
+**China Is the Adult in the Room on Climate Now**\
+`While the West is distracted and divided, China is focused and surging ahead.`\
+https://nytimes.com/2025/09/26/opinion/china-solar-electric-vehicles-climate-change.html
+
 **Abbas’s Message to the United Nations**\
 `The president of the Palestinian Authority addressed the U.N. General Assembly by video after the U.S. denied him a visa.`\
 https://nytimes.com/2025/09/26/briefing/united-nations-trump-comey.html
@@ -29,13 +37,4 @@ https://nytimes.com/athletic/6661142/2025/09/26/arsenal-newcastle-premier-league
 **Real Madrid v Atletico Madrid is bigger than ever — and at times it has been toxic**\
 `As Atletico Madrid prepare to host city rivals Real Madrid, we explain the dramatic history behind 'El Derbi'`\
 https://nytimes.com/athletic/6661352/2025/09/26/madrid-atletico-la-liga-simeone-vinicius-jr-history/
-
-**Sanchez and Jorgensen have both had tough weeks. Do Chelsea stick or twist?**\
-`Robert Sanchez was sent off against Manchester United. Filip Jorgensen had difficult moments at Lincoln. Who should start against Brighton?`\
-https://nytimes.com/athletic/6661754/2025/09/26/chelsea-goalkeepers-robert-sanchez-filip-jorgensen-analysis/
-
-**What should Manchester United and Ruben Amorim be aiming for this season?**\
-`A sixth-place finish should be achievable. Defeats, especially against top sides, will hurt but they shouldn’t herald doom
-`\
-https://nytimes.com/athletic/6662908/2025/09/26/manchester-united-realistic-goals-2025-26/
 
