@@ -1,3 +1,19 @@
+**Abbas’s Message to the United Nations**\
+`The president of the Palestinian Authority addressed the U.N. General Assembly by video after the U.S. denied him a visa.`\
+https://nytimes.com/2025/09/26/briefing/united-nations-trump-comey.html
+
+**As Trump Tries to Limit Foreign Workers, China Woos Them**\
+`A new visa for science and engineering graduates is part of China’s effort to establish itself as the world leader in science and technology.`\
+https://nytimes.com/2025/09/26/world/asia/china-tech-workers-visas-us-h1b.html
+
+**A history of Croke Park, the NFL's latest venue across the Pond**\
+`The Pittsburgh Steelers and Minnesota Vikings will bring NFL to Dublin's iconic arena, a stadium that has been at the heart of Irish history`\
+https://nytimes.com/athletic/6542443/2025/09/26/croke-park-nfl-pittsburgh-steelers-minnesota-vikings/
+
+**Constructing the ideal FPL wildcard draft for Gameweek 6 and beyond**\
+`Abdul Rehman picks a line-up for FPL managers hitting the reset button this gameweek that maximises form, fixtures and flexibility`\
+https://nytimes.com/athletic/6659127/2025/09/26/fantasy-premier-league-constructing-the-ideal-gameweek-6-wildcard-draft/
+
 **Ferdi Kadioglu: 'I had a lot of pain for a long time - it took longer than expected'**\
 `Kadioglu was injured early in his debut season at Brighton - he tells The Athletic exactly how frustrating his road to recovery has been`\
 https://nytimes.com/athletic/6566664/2025/09/26/kadioglu-brighton-interview-injury/
@@ -22,20 +38,4 @@ https://nytimes.com/athletic/6661754/2025/09/26/chelsea-goalkeepers-robert-sanch
 `A sixth-place finish should be achievable. Defeats, especially against top sides, will hurt but they shouldn’t herald doom
 `\
 https://nytimes.com/athletic/6662908/2025/09/26/manchester-united-realistic-goals-2025-26/
-
-**Nuno, O'Neil or Bilic? Which West Ham candidate would most suit their players?**\
-`West Ham have the trio in the frame to replace Graham Potter if he leaves after a tough start to the season`\
-https://nytimes.com/athletic/6660886/2025/09/26/west-ham-which-manager-analysis/
-
-**Anthony Gordon ready for a big Newcastle reset... all over again**\
-`An early-season red card was a setback in Anthony Gordon's ambition to rediscover his top form`\
-https://nytimes.com/athletic/6657724/2025/09/26/anthony-gordon-newcastle-arsenal/
-
-**Palace have struggled to beat the elite teams at home. Winning against Liverpool would buck that trend**\
-`The Premier League's best have emerged with wins from recent trips to Selhurst Park, even if Palace can point to mitigating circumstances`\
-https://nytimes.com/athletic/6651754/2025/09/26/crystal-palace-liverpool-glasner-selhurst/
-
-**Everton are upwardly mobile but still in a building phase. These are the issues Moyes must address**\
-`An encouraging start to the season has been undermined with the last week exposing some of the flaws that still exist in the Everton setup`\
-https://nytimes.com/athletic/6661195/2025/09/26/everton-moyes-grealish-striker-progress/
 

@@ -1,3 +1,24 @@
+**Abbas’s Message to the United Nations**\
+`The president of the Palestinian Authority addressed the U.N. General Assembly by video after the U.S. denied him a visa.`\
+https://nytimes.com/2025/09/26/briefing/united-nations-trump-comey.html
+
+**As Trump Tries to Limit Foreign Workers, China Woos Them**\
+`A new visa for science and engineering graduates is part of China’s effort to establish itself as the world leader in science and technology.`\
+https://nytimes.com/2025/09/26/world/asia/china-tech-workers-visas-us-h1b.html
+
+**A history of Croke Park, the NFL's latest venue across the Pond**\
+`The Pittsburgh Steelers and Minnesota Vikings will bring NFL to Dublin's iconic arena, a stadium that has been at the heart of Irish history`\
+https://nytimes.com/athletic/6542443/2025/09/26/croke-park-nfl-pittsburgh-steelers-minnesota-vikings/
+
+**Constructing the ideal FPL wildcard draft for Gameweek 6 and beyond**\
+`Abdul Rehman picks a line-up for FPL managers hitting the reset button this gameweek that maximises form, fixtures and flexibility`\
+https://nytimes.com/athletic/6659127/2025/09/26/fantasy-premier-league-constructing-the-ideal-gameweek-6-wildcard-draft/
+
+**What should Manchester United and Ruben Amorim be aiming for this season?**\
+`A sixth-place finish should be achievable. Defeats, especially against top sides, will hurt but they shouldn’t herald doom
+`\
+https://nytimes.com/athletic/6662908/2025/09/26/manchester-united-realistic-goals-2025-26/
+
 **What should Manchester United and Ruben Amorim be aiming for this season?**\
 `A sixth-place finish should be achievable. Defeats, especially against top sides, will hurt but they shouldn’t herald doom
 `\
