@@ -1,3 +1,15 @@
+**How to watch Pirates at Braves: Time, TV, streaming for September 26**\
+`Find out how to watch the Pittsburgh Pirates play the Atlanta Braves, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6663641/2025/09/25/pirates-vs-braves-stream-how-to-watch-sept-26/
+
+**How to watch Rangers at Guardians: Time, TV, streaming for September 26**\
+`Find out how to watch the Texas Rangers play the Cleveland Guardians, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6663639/2025/09/25/rangers-vs-guardians-stream-how-to-watch-sept-26/
+
+**How to watch Twins at Phillies: Time, TV, streaming for September 26**\
+`Find out how to watch the Minnesota Twins play the Philadelphia Phillies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6663637/2025/09/25/twins-vs-phillies-stream-how-to-watch-sept-26/
+
 **Read the Indictment of James Comey**\
 `A federal grand jury on Thursday indicted James B.`\
 https://nytimes.com/interactive/2025/09/25/us/james-comey-indictment.html
