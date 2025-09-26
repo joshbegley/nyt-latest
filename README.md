@@ -1,3 +1,15 @@
+**High Five - around the world in five games**\
+`The pick of this weekend's action - from New York City to Saudi Arabia and Chile, via Belfast and Lisbon`\
+https://nytimes.com/athletic/6663742/2025/09/26/high-five-around-the-world-in-five-games/
+
+**Micah Parsons trade revisited: Were Cowboys wise to take picks? NFL decision-makers debate**\
+`Trading away a superstar is never a popular decision, but given the state of the Dallas roster, was the Parsons move at least defensible?`\
+https://nytimes.com/athletic/6661807/2025/09/26/micah-parsons-trade-jerry-jones-cowboys-packers-criticism/
+
+**The New York Times International Edition in Print for Saturday, Sep. 27, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/09/26/todays-new-york-times-international-edition
+
 **How to watch Astros at Angels: Time, TV, streaming for September 26**\
 `Find out how to watch the Houston Astros play the Los Angeles Angels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6664572/2025/09/26/astros-vs-angels-stream-how-to-watch-sept-26/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6662151/2025/09/26/knicks-jalen-brunson-karl-anthon
 **Israel Is Flattening Parts of Gaza City**\
 `The city had been spared from widespread demolitions during previous military operations there. This time is different.`\
 https://nytimes.com/interactive/2025/09/26/world/middleeast/israel-gaza-city-destruction-war.html
-
-**MLB playoff hunt: 8 series to follow throughout the regular season's final weekend**\
-`It's looking like another wide-open bracket in the MLB playoffs. We're about to know the full field after a nail-biting final weekend. `\
-https://nytimes.com/athletic/6663317/2025/09/26/tigers-guardians-mets-yankees-blue-jays-mlb-playoffs-wild-card-how-to-watch/
-
-**4 Takeaways From Trump’s Securing of an Indictment Against Comey**\
-`The president’s pressure on the Justice Department to charge one of his highest-profile retribution targets could have profound consequences.`\
-https://nytimes.com/2025/09/26/us/politics/comey-indictment-trump-takeaways.html
-
-**A New Kind of Copycat Killer**\
-`The alienated loners behind left-coded violence.`\
-https://nytimes.com/2025/09/26/opinion/dallas-ice-shooter-kirk-luigi.html
 
