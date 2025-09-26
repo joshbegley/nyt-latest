@@ -1,3 +1,7 @@
+**The vanishing of Oscar Pistorius**\
+`One of sport's most notorious figures is now an invisible presence, both in his home town and at the championships he once dominated `\
+https://nytimes.com/athletic/6657450/2025/09/26/oscar-pistorius-reeva-steenkamp-legacy/
+
 **Colbert Investigates Trump’s Claim of Escalator ‘Sabotage’**\
 `“Now he’s focused all of his rage on the one foe who refused to take him up, and that is the U.N.’s escalator,” Colbert said of Trump’s recent post on Truth Social.`\
 https://nytimes.com/2025/09/26/arts/television/colbert-trump-escalator-sabotage.html
