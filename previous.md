@@ -1,3 +1,15 @@
+**Kuwait to host Trophee des Champions between PSG and Marseille**\
+`The fixture will take place at the 58,000-capacity Jaber Al-Ahmad International Stadium in January.`\
+https://nytimes.com/athletic/6665722/2025/09/26/psg-marseille-trophee-des-champions-kuwait/
+
+**MLB playoff tiebreakers: A handy guide to navigate AL, NL postseason race chaos**\
+`We’ve figured out every one of the tiebreakers that could still be in play (hopefully), including for a possible four-way tie in the AL. `\
+https://nytimes.com/athletic/6665763/2025/09/26/mlb-playoff-tiebreakers-al-nl/
+
+**NFL to play regular-season games in Rio de Janeiro starting in 2026**\
+`The multi-year commitment comes as the NFL seeks to expand its global footprint.`\
+https://nytimes.com/athletic/6665622/2025/09/26/nfl-2026-rio-de-janeiro-maracana-stadium/
+
 **Local TV Giant Sinclair Ends Jimmy Kimmel Boycott**\
 `The company is one of two that has been pre-empting Mr. Kimmel’s show since he returned this week.`\
 https://nytimes.com/2025/09/26/business/media/sinclair-jimmy-kimmel-boycott.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/sports/skiing/100000010423591/first-everest-skier-with
 **North Korea Sends Delegation From Pyongyang to General Assembly After Long Absence**\
 `The last time North Korea sent officials directly from the capital was in 2018, a year before direct diplomacy between its leader, Kim Jong-un, and President Trump collapsed.`\
 https://nytimes.com/2025/09/26/world/asia/north-korea-un-general-assembly.html
-
-**Aaron Judge or Cal Raleigh for MVP? What voters making that choice will consider**\
-`The Athletic has writers who have voted for MVP. We asked them how they'd choose in the AL race between Aaron Judge and Cal Raleigh.`\
-https://nytimes.com/athletic/6665643/2025/09/26/how-mlb-mvp-voters-choose-judge-raleigh/
-
-**Alec Baldwin Can’t Wait for Dudamel, Either**\
-`“Dudamel is our Bernstein,” Mr. Baldwin said at the New York Philharmonic’s opening night gala on Thursday.`\
-https://nytimes.com/2025/09/26/style/ny-philharmonic-gala-alec-baldwin.html
-
-**gws-small-cruise-ships**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/small-cruise-ships
 
