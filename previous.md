@@ -1,3 +1,7 @@
+**Why are defensive midfielders now scoring so many goals?**\
+`How the holding role has changed in an era where football is more dynamic, particularly without possession`\
+https://nytimes.com/athletic/6661536/2025/09/26/defensive-midfielder-goals-changing-role/
+
 **Premier League Predictions: Newcastle vs Arsenal, Crystal Palace vs Liverpool and the rest of Matchday 6**\
 `Who's leading after MD5? And what does our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 6?`\
 https://nytimes.com/athletic/6651432/2025/09/26/premier-league-predictions-md6/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6663527/2025/09/26/connections-sports-edition-hints
 **Corrections: Sept. 26, 2025**\
 `Corrections that appeared in print on Friday, Sept. 26, 2025.`\
 https://nytimes.com/2025/09/26/pageoneplus/corrections-sept-26-2025.html
-
-**Gender Bending Jewish Traditions With a Little Humor**\
-`Raye Schiller, a standup comedian, could always recognize Jay Nemanpour’s laugh in a crowd.`\
-https://nytimes.com/2025/09/26/style/raye-schiller-joseph-nemanpour-wedding.html
 
