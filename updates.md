@@ -1,3 +1,7 @@
+**Did Noelvi Marte save Reds' season? 'One of the best plays I’ve ever seen'**\
+`The Reds are now within a half-game of the Mets for the third and final wild-card spot in the National League.`\
+https://nytimes.com/athletic/6663360/2025/09/25/reds-noelvi-marte-home-run-robbery-catch/
+
 **Trump Orders Broad Effort to Root Out Groups He Says Organize Political Violence**\
 `President Trump has long maintained that liberal activists and organizations secretly fund political violence. Law enforcement officials say efforts like the antifascist movement are often disparate groups.`\
 https://nytimes.com/2025/09/25/us/politics/trump-memorandum-left-wing-violence.html
