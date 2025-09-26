@@ -1,3 +1,11 @@
+**Stream With a Lot of Shade**\
+`Larry Snyder’s puzzle gave me a run for my money.`\
+https://nytimes.com/2025/09/25/crosswords/daily-puzzle-2025-09-26.html
+
+**‘The Other Americans’ Review: John Leguizamo’s Family Drama Aims Big**\
+`For the first play he’s written, the actor stars as a striving Colombian American patriarch in the mold of Willy Loman or Walter Younger.`\
+https://nytimes.com/2025/09/25/theater/the-other-americans-review-john-leguizamo.html
+
 **In potentially his final Astros start, Framber Valdez keeps Houston's playoff hopes alive**\
 `If that is Valdez’s last act in an Astros uniform, it is a fitting sendoff for an underappreciated southpaw who sometimes tested patience.`\
 https://nytimes.com/athletic/6663826/2025/09/25/houston-astros-framber-valdez-playoff-hopes/
