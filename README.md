@@ -1,3 +1,11 @@
+**Premier League Predictions: Newcastle vs Arsenal, Crystal Palace vs Liverpool and the rest of Matchday 6**\
+`Who's leading after MD5? And what does our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 6?`\
+https://nytimes.com/athletic/6651432/2025/09/26/premier-league-predictions-md6/
+
+**How do you quantify 'tempo' in football?**\
+`Mark Carey uncovers the teams and players who can perform at a 'good tempo' - and explains why it matters`\
+https://nytimes.com/athletic/6623652/2025/09/26/tempo-in-football-analysis/
+
 **4,000 calories and 600g of carbs a day: Fuelling one of the world's greatest sports teams**\
 `The English are favourites to beat Canada and be crowned champions on home soil this weekend, but what has fuelled their success?`\
 https://nytimes.com/athletic/6548745/2025/09/26/england-women-world-cup-final-nutrition/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/26/pageoneplus/corrections-sept-26-2025.html
 **Gender Bending Jewish Traditions With a Little Humor**\
 `Raye Schiller, a standup comedian, could always recognize Jay Nemanpour’s laugh in a crowd.`\
 https://nytimes.com/2025/09/26/style/raye-schiller-joseph-nemanpour-wedding.html
-
-**A Soul Mate Hidden in Plain Sight**\
-`Nadine Santoro and Lena Wilson met online in 2016 and became close friends. Years later, they realized they were in love.`\
-https://nytimes.com/2025/09/26/style/lena-wilson-nadine-santoro-wedding.html
-
-**They Never Expected Their Spanish Lessons to Go Viral**\
-`When Juan Osorio began teaching Wolfgang Ruth his native language, their bond (and their following) quickly grew.`\
-https://nytimes.com/2025/09/26/style/wolfgang-ruth-camilo-osorio-wedding.html
 
