@@ -1,3 +1,7 @@
+**Logan Paul's Michael Jordan memorabilia lawsuit explained**\
+`After winning an auction for a large piece of basketball court signed by Michael Jordan, Paul began to question the item's authenticity `\
+https://nytimes.com/athletic/6665116/2025/09/26/logan-paul-heritage-lawsuit-michael-jordan/
+
 **Flashback: Your Weekly History Quiz, Sept. 27, 2025**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2025/09/26/upshot/flashback.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6662091/2025/09/26/nhl-waivers-tracker-preseason-20
 **Federal Forces Set to Arrive in Memphis Next Week, Governor Says**\
 `The deployment will eventually include more than a dozen federal agencies, Gov. Bill Lee of Tennessee said, as well as the National Guard.`\
 https://nytimes.com/2025/09/26/us/politics/memphis-national-guard-crime.html
-
-**Kuwait to host Trophee des Champions between PSG and Marseille**\
-`The fixture will take place at the 58,000-capacity Jaber Al-Ahmad International Stadium in January.`\
-https://nytimes.com/athletic/6665722/2025/09/26/psg-marseille-trophee-des-champions-kuwait/
 

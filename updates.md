@@ -1,3 +1,7 @@
+**Logan Paul's Michael Jordan memorabilia lawsuit explained**\
+`After winning an auction for a large piece of basketball court signed by Michael Jordan, Paul began to question the item's authenticity `\
+https://nytimes.com/athletic/6665116/2025/09/26/logan-paul-heritage-lawsuit-michael-jordan/
+
 **Flashback: Your Weekly History Quiz, Sept. 27, 2025**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2025/09/26/upshot/flashback.html
