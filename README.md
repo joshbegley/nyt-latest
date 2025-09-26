@@ -1,3 +1,7 @@
+**U.K. Politician Admits Making Pro-Russia Statements in Return for Bribes**\
+`Nathan Gill, a former leader of Reform U.K. in Wales, pleaded guilty on Friday to charges of bribery while he was a member of the European Parliament.`\
+https://nytimes.com/2025/09/26/world/europe/gill-russia-britain-bribery.html
+
 **Milei Vowed to Fix Argentina’s Economy. Then Came a New Crisis.**\
 `President Javier Milei slashed inflation and spending, but it wasn’t enough to stave off an economic crisis. President Trump has offered him a lifeline.`\
 https://nytimes.com/2025/09/26/world/americas/milei-argentina-economy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/26/us/politics/trump-comey-revenge.html
 **Gunman Who Attacked Midtown Office Building Had C.T.E.**\
 `Shane Tamura, a former high school football player, shot himself and left behind a note that said his motive was anger at the N.F.L.`\
 https://nytimes.com/2025/09/26/us/cte-football-tamura-gunman.html
-
-**gws-jeff-tweedy-twilight-override**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/jeff-tweedy-twilight-override
 
