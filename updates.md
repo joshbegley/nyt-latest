@@ -1,3 +1,8 @@
+**What should Manchester United and Ruben Amorim be aiming for this season?**\
+`A sixth-place finish should be achievable. Defeats, especially against top sides, will hurt but they shouldn’t herald doom
+`\
+https://nytimes.com/athletic/6662908/2025/09/26/manchester-united-realistic-goals-2025-26/
+
 **Abbas’s Message to the United Nations**\
 `The president of the Palestinian Authority addressed the U.N. General Assembly by video after the U.S. denied him a visa.`\
 https://nytimes.com/2025/09/26/briefing/united-nations-trump-comey.html
