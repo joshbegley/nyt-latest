@@ -1,3 +1,7 @@
+**Mets vs. Cubs: Francisco Lindor caps 30-30 to help defend wild-card lead**\
+`The Mets' playoff dreams are still alive after their 8-5 win over the Cubs on Wednesday night.`\
+https://nytimes.com/athletic/6663886/2025/09/25/mets-cubs-score-results-takeaways-nl-playoff-standings/
+
 **‘The Other Americans’ Review: John Leguizamo’s Family Drama Aims Big**\
 `For the first play he’s written, the actor stars as a striving Colombian American patriarch in the mold of Willy Loman or Walter Younger.`\
 https://nytimes.com/2025/09/25/theater/the-other-americans-review-john-leguizamo.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/25/business/economy/trump-tariffs-pharmaceuticals-fu
 **Dodgers, Clayton Kershaw party once more after NL West clinch: 'Best feeling in the world'**\
 `Each of the 12 times the Dodgers have celebrated a division title during this stretch, Kershaw has been a part of it.`\
 https://nytimes.com/athletic/6663606/2025/09/25/los-angeles-dodgers-clayton-kershaw-nl-west-clinch/
-
-**U.S. Agent Pushes Woman to Floor in Immigration Courthouse Confrontation**\
-`In a scene caught on video, the woman and a young girl were clinging to a man who was being detained. Agents pulled their hair, then one shoved the woman after she touched his chest.`\
-https://nytimes.com/2025/09/25/nyregion/ice-push-woman-nyc.html
 
