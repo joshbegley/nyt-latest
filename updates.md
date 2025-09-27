@@ -1,3 +1,7 @@
+**'Ohhh, Issa Kabore...' Have Wrexham found a new hero?**\
+`The 24-year-old on loan from Manchester City could be the man to give Wrexham a lift this season`\
+https://nytimes.com/athletic/6667793/2025/09/27/wrexham-kabore-derby-hero-result/
+
 **NC State DC DJ Eliot to miss game vs. Virginia Tech after death of daughter**\
 `Drue Margaret Eliot was diagnosed with pediatric cancer in the spring of 2020, when DJ was coaching at Kansas.`\
 https://nytimes.com/athletic/6668324/2025/09/27/nc-state-defensive-coordinator-dj-eliot/
