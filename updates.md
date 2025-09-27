@@ -1,3 +1,23 @@
+**Atletico 5 Real Madrid 2 - Was this Alvarez's revenge? How big a setback is this for Alonso? Mbappe best as a No 9?**\
+`Xabi Alonso's team suffered an embarrassing defeat to their cross-city rivals`\
+https://nytimes.com/athletic/6664999/2025/09/27/atletico-5-real-madrid-2-alvarez-alonso-mbappe/
+
+**The Briefing: Crystal Palace 2 Liverpool 1 - Palace score late winner, Liverpool's unbeaten run ended**\
+`Liverpool lose for the first time in the Premier League as Crystal Palace score late to secure a memorable win`\
+https://nytimes.com/athletic/6664965/2025/09/27/crystal-palace-beat-liverpool-premier-league-briefing/
+
+**The Briefing: Manchester City 5 Burnley 1 - How did Walker cope with Doku? Did Savinho seize his chance?**\
+`Man City benefitted from two Maxime Esteve own goals to overcome a stubborn Burnley team`\
+https://nytimes.com/athletic/6664967/2025/09/27/manchester-city-v-burnley-premier-league-analysis/
+
+**Justin Fields clears concussion protocol, will start for Jets on Monday night**\
+`The quarterback missed the Jets' Week 3 game at Tampa Bay.`\
+https://nytimes.com/athletic/6662279/2025/09/27/justin-fields-new-york-jets-clears-consussion-protocol/
+
+**The Briefing: Leeds 2 Bournemouth 2 - What happened to Aaronson's draft excluder? Did Adams deserve boos? Longstaff's impact**\
+`Another late, late goal cost Daniel Farke's men two points at Elland Road on Saturday - The Athletic breaks down the action`\
+https://nytimes.com/athletic/6664966/2025/09/27/leeds-2-bournemouth-2-aaronson-draft-excluder-adams-longstaff/
+
 **The Briefing: Chelsea 1 Brighton 3 - Are Maresca's side their own worst enemies? Is it time for Disasi be recalled?**\
 `Simon Johnson analyses a disappointing home defeat for Chelsea against Brighton and Hove Albion on Saturday`\
 https://nytimes.com/athletic/6664964/2025/09/27/chelsea-brighton-premier-league-analysis/
