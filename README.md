@@ -1,3 +1,7 @@
+**Fever's flaws are exposed in the WNBA semifinals as they face elimination**\
+`Injuries have hampered the Fever. But so have some questionable front office decisions.`\
+https://nytimes.com/athletic/6667314/2025/09/27/indiana-fever-wnba-semifinals-loss/
+
 **A year on from Muriel Furrer’s death, is cycling’s attitude to safety shifting?**\
 `A sport that witnesses death too often needs change. There is no shortage of ideas but right now there is a lack of consensus`\
 https://nytimes.com/athletic/6662394/2025/09/27/pro-cycling-safety-muriel-furrer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6661557/2025/09/27/womens-rugby-world-cup-final-how
 **Russia Steps Up Provocations in Europe, Alarming Leaders There**\
 `European officials fear that Moscow is escalating its antagonism of Europe as U.S. support recedes. A focus of worry now: election interference in Moldova.`\
 https://nytimes.com/2025/09/27/world/europe/russia-europe-poland-drones-moldova-election.html
-
-**Quote of the Day: What’s Behind Jones’s Breakout Success With the Colts? It’s Not That Complicated.**\
-`Quotation of the Day for Saturday, September 27, 2025.`\
-https://nytimes.com/2025/09/27/pageoneplus/quote-of-the-day-whats-behind-joness-breakout-success-with-the-colts-its-not-that-complicated.html
 

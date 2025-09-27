@@ -1,3 +1,7 @@
+**A year on from Muriel Furrer’s death, is cycling’s attitude to safety shifting?**\
+`A sport that witnesses death too often needs change. There is no shortage of ideas but right now there is a lack of consensus`\
+https://nytimes.com/athletic/6662394/2025/09/27/pro-cycling-safety-muriel-furrer/
+
 **Analysing Chelsea's left wingers: What different qualities do Neto, Garnacho and Gittens offer?**\
 `The three options available to Enzo Maresca on the left possess different skillsets, from trickery to explosiveness to speed on the counter`\
 https://nytimes.com/athletic/6665372/2025/09/27/chelsea-neto-garnacho-gittens-left-winger/
