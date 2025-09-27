@@ -1,3 +1,7 @@
+**The Briefing: Tottenham 1 Wolves 1 - A late point, but a missed opportunity? Are injuries a growing concern? Why were Spurs so flat?**\
+`Jay Harris and Jack Pitt-Brooke analyse Spurs' Saturday night encounter with Wolves`\
+https://nytimes.com/athletic/6664998/2025/09/27/tottenham-wolves-premier-league-analysis/
+
 **Do Cubs, Padres have enough in rotation to win Wild Card Series? First look**\
 `The Cubs will host the Padres in a series between two teams with starting pitching concerns.`\
 https://nytimes.com/athletic/6666980/2025/09/27/cubs-padres-preview-wild-card/
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/6647098/2025/09/27/ravens-nnamdi-madubuike-injury/
 https://nytimes.com/athletic/6668552/2025/09/27/mlb-al-takeaways-yankees-guardians-tigers/
 
 **Georgia Tech escapes Wake Forest upset in overtime, keeps postseason hopes alive**\
-`Georgia Tech, trailing 20-3 in the third quarter, scored 17 straight points to tie it.`\
+`No. 16 Georgia Tech, trailing 20-3 in the third quarter, rallied late and won 30-29 in overtime to improve to 5-0.`\
 https://nytimes.com/athletic/6668722/2025/09/27/georgia-tech-wake-forest-upset-overtime/
 
 **Lowetide: Can Oilers prospect Noah Philp make the final step to the NHL?**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6668652/2025/09/27/illinois-usc-score-recap-bielema
 **Postecoglou calls referee decision 'poor' over Sunderland's winner against Forest**\
 `The new Forest manager has not won a game yet in his five games in charge. `\
 https://nytimes.com/athletic/6668556/2025/09/27/ange-postecoglou-nottingham-forest-poor-decision-sunderland/
-
-**C.T.E. Looms Over Friday Night Lights**\
-`Parents revealed conflicting emotions after the finding that a gunman who killed four people in July had the brain disease that has been linked with football and other contact sports.`\
-https://nytimes.com/2025/09/27/us/cte-high-school-football.html
 
