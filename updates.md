@@ -1,3 +1,11 @@
+**Mets place infielder Brett Baty on IL with right oblique injury**\
+`“It’s a big blow,” manager Carlos Mendoza said. “This is a guy who established himself in the everyday lineup.”`\
+https://nytimes.com/athletic/6668401/2025/09/27/mets-brett-baty-injured-list/
+
+**Neil Kraft, Visionary Adman Who Sold ‘a Mood and a Lifestyle,’ Dies at 67**\
+`His ads for Calvin Klein and others captured a fizzy moment in the 1980s and ’90s, featuring celebrities like the young rapper Marky Mark wearing nothing but underwear and a grin.`\
+https://nytimes.com/2025/09/27/business/media/neil-kraft-dead.html
+
 **Liverpool 'can only blame ourselves' for Crystal Palace loss, Slot says**\
 `The Premier League champions conceded in the 97th minute after Chiesa had cancelled out Sarr's early goal.`\
 https://nytimes.com/athletic/6668423/2025/09/27/liverpool-arne-slot-blame-ourselves-crystal-palace-loss/
