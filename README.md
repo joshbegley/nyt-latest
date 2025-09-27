@@ -1,3 +1,7 @@
+**England win Women's Rugby World Cup after defeating Canada 33-13**\
+`The tournament hosts secured a record 33rd consecutive win in front of 81,885 people.`\
+https://nytimes.com/athletic/6668278/2025/09/27/england-womens-rugby-world-cup-win-canada/
+
 **'Ohhh, Issa Kabore...' Have Wrexham found a new hero?**\
 `The 24-year-old on loan from Manchester City could be the man to give Wrexham a lift this season`\
 https://nytimes.com/athletic/6667793/2025/09/27/wrexham-kabore-derby-hero-result/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6662279/2025/09/27/justin-fields-new-york-jets-clea
 **The Briefing: Leeds 2 Bournemouth 2 - What happened to Aaronson's draft excluder? Did Adams deserve boos?**\
 `Another late, late goal cost Daniel Farke's men two points at Elland Road on Saturday - The Athletic breaks down the action`\
 https://nytimes.com/athletic/6664966/2025/09/27/leeds-2-bournemouth-2-aaronson-draft-excluder-adams-longstaff/
-
-**Canada's rugby pioneer Olivia DeMerchant's journey back to the World Cup final**\
-`"I actually had to pay to play and live in England the first year I came over in 2013," DeMerchant told The Athletic.`\
-https://nytimes.com/athletic/6667796/2025/09/27/canada-england-rugby-world-cup-olivia-demerchant/
 
