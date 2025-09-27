@@ -1,3 +1,11 @@
+**Yankees' Jazz Chisholm Jr. exits game in clear pain after hit by pitch**\
+`New York's second baseman got drilled on his left forearm by a 97 mph sinker from Grant Wolfram.`\
+https://nytimes.com/athletic/6668447/2025/09/27/yankees-jazz-chisholm-leaves-game-hit-by-pitch/
+
+**How to watch Orioles at Yankees: Time, TV, streaming for September 28**\
+`Find out how to watch the Baltimore Orioles play the New York Yankees, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6668479/2025/09/27/orioles-vs-yankees-stream-how-to-watch-sept-28/
+
 **Cubs place Cade Horton on injured list, taking him out of playoff picture for now**\
 `A fractured right rib will prevent Horton from starting Game 1 of the Wild Card Series. `\
 https://nytimes.com/athletic/6668370/2025/09/27/cubs-cade-horton-injured-list/
