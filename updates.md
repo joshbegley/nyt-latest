@@ -1,3 +1,8 @@
+**Yankees' 4 keys to winning Game 162 and keeping AL East dream alive**\
+`The Yankees have to beat the Baltimore Orioles, who don't seem likely to make it easy for them. Here's how they could do it.
+`\
+https://nytimes.com/athletic/6668871/2025/09/27/yankees-keys-win-game-162-al-east/
+
 **Ohio State passes first road test behind Sayin's best game yet: Key takeaways**\
 `No. 1 Ohio State shook off a slow start to beat Washington 24-6 behind QB Julian Sayin and WR Jeremiah Smith. Here's what we learned.`\
 https://nytimes.com/athletic/6668941/2025/09/27/ohio-state-washington-score-result-football/
