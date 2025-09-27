@@ -1,3 +1,7 @@
+**Inside the Trump Administration’s Push to Prosecute James Comey**\
+`President Trump’s campaign of retribution began to intensify in mid-July and hit fever pitch over the last week, culminating in the indictment of one of his foremost enemies.`\
+https://nytimes.com/2025/09/27/us/politics/trump-comey-justice-department.html
+
 **The Briefing: Tottenham 1 Wolves 1 - A late point, but a missed opportunity? Are injuries a growing concern? Why were Spurs so flat?**\
 `Jay Harris and Jack Pitt-Brooke analyse Saturday night's encounter with the side propping up the Premier League table`\
 https://nytimes.com/athletic/6664998/2025/09/27/tottenham-wolves-premier-league-analysis/
