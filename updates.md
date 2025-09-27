@@ -1,3 +1,11 @@
+**MLB playoff watch: Red Sox secure first spot since 2021; bracket, clinching scenarios**\
+`Plus chaos in the AL Central and the NL Wild Card.`\
+https://nytimes.com/athletic/6665949/2025/09/27/mlb-playoff-watch-red-sox-clinch/
+
+**Arizona State is off to a 4-1 start, but describing the Sun Devils is a difficult exercise**\
+`Champions of chaos? Masters of misfortune? Arizona State may not be the Big 12's best team, but the Sun Devils may be its best flawed team.`\
+https://nytimes.com/athletic/6667428/2025/09/27/arizona-state-tcu-big-12-sam-leavitt-kenny-dillingham/
+
 **Padres' Fernando Tatis Jr. hits grand slam in return from bout with COVID-19**\
 `Tatis was not at Petco Park for three consecutive games due to the illness, but the Padres figure to rely on him in the postseason.`\
 https://nytimes.com/athletic/6667425/2025/09/27/fernando-tatis-jr-covid-padres-grand-slam/
