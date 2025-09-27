@@ -1,40 +1,40 @@
-**U.S. Says It Will Revoke Colombian President’s Visa**\
-`The State Department called President Gustavo Petro of Colombia reckless after he called for U.S. soldiers to disobey President Trump at a pro-Palestinian rally.`\
-https://nytimes.com/2025/09/27/us/colombia-petro-visa-palestine.html
+**Netanyahu’s Defiant U.N. Speech Aimed at Home as Well as the World**\
+`The Israeli prime minister faced walkouts and protests at the United Nations but sent a message to his political base that he won’t bend to international pressure.`\
+https://nytimes.com/2025/09/27/world/middleeast/israel-netanyahu-united-nations.html
 
-**Hegseth Says Honors for Soldiers in Wounded Knee Massacre Will Remain**\
-`Defense Secretary Pete Hegseth said a panel, convened by his predecessor, recommended keeping Medals of Honor for soldiers in the 1890 attack on Native Americans.`\
-https://nytimes.com/2025/09/27/us/hegseth-wounded-knee.html
+**The Debate Style That Propelled Charlie Kirk’s Movement**\
+`A close read of some of Mr. Kirk’s most viral exchanges shows an approach that was polished and skillful — if not always fair.`\
+https://nytimes.com/interactive/2025/09/27/us/politics/charlie-kirk-debate.html
 
-**How to watch Dodgers at Mariners: Time, TV, streaming for September 27**\
-`Find out how to watch the Los Angeles Dodgers play the Seattle Mariners, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6667499/2025/09/27/dodgers-vs-mariners-stream-how-to-watch-sept-27/
+**Home Builders, and Homeowners, Brace for Impact of Kitchen Tariffs**\
+`President Trump’s plan for import taxes on foreign-made cabinets, vanities and furniture is reverberating through the industry.`\
+https://nytimes.com/2025/09/27/realestate/trump-tariffs-cabinets-vanities.html
 
-**How to watch Astros at Angels: Time, TV, streaming for September 27**\
-`Find out how to watch the Houston Astros play the Los Angeles Angels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6667494/2025/09/27/astros-vs-angels-stream-how-to-watch-sept-27/
+**The Human Cost of U.S. Aid Cuts**\
+`The Trump administration’s decision to slash foreign aid has led to the deaths of thousands of children, a reality that officials continue to deny. In our latest video, @nytopinion columnist Nicholas Kristof reports from Uganda on a crisis that is only getting worse.`\
+https://nytimes.com/video/opinion/100000010422702/the-human-cost-of-us-aid-cuts.html
 
-**How to watch Royals at Athletics: Time, TV, streaming for September 27**\
-`Find out how to watch the Kansas City Royals play the Athletics, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6667478/2025/09/27/royals-vs-athletics-stream-how-to-watch-sept-27/
+**Can You Use Your Spouse as a Hand Towel?**\
+`A ruling on a home hygiene dispute.`\
+https://nytimes.com/interactive/2025/09/27/magazine/hand-drying-hodgman-quiz.html
 
-**How to watch Diamondbacks at Padres: Time, TV, streaming for September 27**\
-`Find out how to watch the Arizona Diamondbacks play the San Diego Padres, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6667476/2025/09/27/diamondbacks-vs-padres-stream-how-to-watch-sept-27/
+**Amid Political Violence, Moments of Grace Are Rare and Fleeting**\
+`After an assassination attempt, Gov. George Wallace, the segregationist, got a surprise visitor: Shirley Chisholm, the first Black woman elected to Congress. Could this happen today?`\
+https://nytimes.com/2025/09/27/us/politics/political-violence-kirk-trump.html
 
-**His Parents Disappeared. In a TV Studio, He Confessed to Killing Them.**\
-`After investigators came looking, Lorenz Kraus told a reporter he had strangled Franz and Theresia Kraus eight years ago. Two bodies were buried in their backyard.`\
-https://nytimes.com/2025/09/27/nyregion/albany-parent-murders-interview.html
+**Unexpected Critics of Trump’s Attacks on Wind Energy: Oil Executives**\
+`Business leaders and trade organizations have been especially worried by attempts to stop work on wind farms that had already secured federal approval.`\
+https://nytimes.com/2025/09/27/business/energy-environment/oil-gas-trump-offshore-wind.html
 
-**Catholic School Teacher Says She Was Suspended for Surrogate Pregnancy**\
-`Jadira Bonilla, a kindergarten teacher at a Catholic school in southern New Jersey, was told she might have violated her contract, according to an email shared with The New York Times.`\
-https://nytimes.com/2025/09/27/nyregion/nj-teacher-surrogate-pregnancy.html
+**Iowa Matters Less Than Ever for Democrats, but They Can’t Quit It**\
+`The state no longer goes first for the party’s presidential nomination process, but ambitious politicians with an eye toward 2028 keep showing up. It’s “the gravitational pull,” as one Iowa Democrat put it.`\
+https://nytimes.com/2025/09/27/us/politics/iowa-democrats-president.html
 
-**How John Leguizamo Spends a Day Before Taking the Stage**\
-`The actor fits in tennis with his son, a writing session and lots of dancing before performing his new show at the Public Theater.`\
-https://nytimes.com/2025/09/27/nyregion/john-leguizamo-the-other-americans.html
+**Scaffolding Has Encased My Building for Years. What Can I Do?**\
+`The city has enacted new laws to reduce the length of time for scaffolding and sidewalk shed permits. But you can take more direct action.`\
+https://nytimes.com/2025/09/27/realestate/scaffolding-sidewalk-sheds-nyc.html
 
-**Give In or Fight Back? Colleges Are Torn on How to Respond to Trump.**\
-`The University of California, one of the Trump administration’s biggest targets so far, is in an uproar over how to respond to the president’s attacks. So is the rest of higher education.`\
-https://nytimes.com/2025/09/27/us/trump-university-california-berkeley-tactics.html
+**Jeanne Shaheen Wants to Make Foreign Policy Bipartisan Again**\
+`The Democrat from New Hampshire has worked to find common ground with the Trump administration on foreign affairs.`\
+https://nytimes.com/2025/09/27/us/politics/jeanne-shaheen-foreign-policy.html
 
