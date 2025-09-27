@@ -1,3 +1,7 @@
+**'Ohhh, Issa Kabore...' Have Wrexham found a new hero?**\
+`The 24-year-old on loan from Manchester City could be the man to give Wrexham a lift this season`\
+https://nytimes.com/athletic/6667793/2025/09/27/wrexham-kabore-derby-hero-result/
+
 **NC State DC DJ Eliot to miss game vs. Virginia Tech after death of daughter**\
 `Drue Margaret Eliot was diagnosed with pediatric cancer in the spring of 2020, when DJ was coaching at Kansas.`\
 https://nytimes.com/athletic/6668324/2025/09/27/nc-state-defensive-coordinator-dj-eliot/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6664966/2025/09/27/leeds-2-bournemouth-2-aaronson-d
 **Canada's rugby pioneer Olivia DeMerchant's journey back to the World Cup final**\
 `"I actually had to pay to play and live in England the first year I came over in 2013," DeMerchant told The Athletic.`\
 https://nytimes.com/athletic/6667796/2025/09/27/canada-england-rugby-world-cup-olivia-demerchant/
-
-**Vallieres wins elite women's World Road Championship title in Kigali**\
-`The podium was completed by New Zealand's Niamh Fisher-Black and Spain's Mavi Garcia in silver and bronze respectively.`\
-https://nytimes.com/athletic/6668005/2025/09/27/magdeleine-vallieres-world-road-championship-win-canada/
 
