@@ -1,3 +1,11 @@
+**Take ou college football quiz! What you need to know for Week 5**\
+`Test your pregame college football trivia knowledge and catch up on Penn State-Oregon, Georgia-Alabama, Ole Miss-LSU and more.`\
+https://nytimes.com/athletic/6665049/2025/09/27/college-football-games-trivia-week-5-quiz/
+
+**Are David Kämpf’s days with the Leafs numbered? 'It’s up to management'**\
+`Kämpf is on the bubble at Leafs camp, and his place not just in the lineup but on the team may be in jeopardy this season.`\
+https://nytimes.com/athletic/6665687/2025/09/27/david-kampf-maple-leafs-trade/
+
 **How to watch Rockies at Giants: Time, TV, streaming for September 27**\
 `Find out how to watch the Colorado Rockies play the San Francisco Giants, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6667649/2025/09/27/rockies-vs-giants-stream-how-to-watch-sept-27/
