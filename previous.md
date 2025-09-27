@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6667135/2025/09/26/mets-wild-card-nl-mistakes/
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/09/26/college-football-playoff-bracket-projections-odds/
 
-**Virginia upsets Florida State 46-38 in double overtime thriller**\
+**Virginia students swarm end zone after Cavaliers knock off FSU in double OT**\
 `Florida State's rocket back into the top 10 has quickly crashed.`\
 https://nytimes.com/athletic/6667159/2025/09/26/virginia-florida-state-acc-upset-double-overtime/
 
