@@ -1,3 +1,7 @@
+**U.S. Says It Will Revoke Colombian President’s Visa**\
+`The State Department called President Gustavo Petro of Colombia reckless after he called for U.S. soldiers to disobey President Trump at a pro-Palestinian rally.`\
+https://nytimes.com/2025/09/27/us/colombia-petro-visa-palestine.html
+
 **Hegseth Says Honors for Soldiers in Wounded Knee Massacre Will Remain**\
 `Defense Secretary Pete Hegseth said a panel, convened by his predecessor, recommended keeping Medals of Honor for soldiers in the 1890 attack on Native Americans.`\
 https://nytimes.com/2025/09/27/us/hegseth-wounded-knee.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/27/nyregion/john-leguizamo-the-other-americans.html
 **Give In or Fight Back? Colleges Are Torn on How to Respond to Trump.**\
 `The University of California, one of the Trump administration’s biggest targets so far, is in an uproar over how to respond to the president’s attacks. So is the rest of higher education.`\
 https://nytimes.com/2025/09/27/us/trump-university-california-berkeley-tactics.html
-
-**How 106 People Got Together to Stop a School Shooting — Before It Happened**\
-`A threat on a school bus from an alienated young man united dozens of agencies to answer a single question: Is it possible to stop potential mass shooters before they commit a crime?`\
-https://nytimes.com/2025/09/27/nyregion/mass-shooting-prevention.html
 

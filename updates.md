@@ -1,3 +1,7 @@
+**U.S. Says It Will Revoke Colombian President’s Visa**\
+`The State Department called President Gustavo Petro of Colombia reckless after he called for U.S. soldiers to disobey President Trump at a pro-Palestinian rally.`\
+https://nytimes.com/2025/09/27/us/colombia-petro-visa-palestine.html
+
 **Hegseth Says Honors for Soldiers in Wounded Knee Massacre Will Remain**\
 `Defense Secretary Pete Hegseth said a panel, convened by his predecessor, recommended keeping Medals of Honor for soldiers in the 1890 attack on Native Americans.`\
 https://nytimes.com/2025/09/27/us/hegseth-wounded-knee.html
