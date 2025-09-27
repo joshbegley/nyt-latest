@@ -1,3 +1,11 @@
+**Las Vegas Aces take 2-1 WNBA semifinals advantage, Indiana Fever on brink of elimination**\
+`Dana Evans took over with 10 points and five assists to give the Aces the spark they needed.`\
+https://nytimes.com/athletic/6667085/2025/09/26/las-vegas-aces-indiana-fever-wnba-game-3-semifinals/
+
+**NL playoff race: Mets' defense collapses vs. Marlins amid wild-card chase**\
+`The Mets did themselves no favors in their NL wild-card chase with a 6-2 loss to the Marlins on Friday night.`\
+https://nytimes.com/athletic/6667070/2025/09/26/mlb-nl-wild-card-playoff-race-takeaways/
+
 **Justice Dept. Agents to Protect ICE Facilities, Attorney General Says**\
 `Pam Bondi, the attorney general, announced the deployment two days after a gunman opened fire at an ICE facility in Dallas, killing one detainee and injuring two others.`\
 https://nytimes.com/2025/09/26/us/doj-agents-ice-facilities.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6666912/2025/09/26/braves-roster-alek-manoah-charli
 **The Testimony at the Heart of the Comey Indictment, Examined**\
 `The charges against the former F.B.I. director center on an appearance he made before a Senate committee in September 2020. Here’s a closer look.`\
 https://nytimes.com/2025/09/26/us/politics/james-comey-testimony-trump.html
-
-**What to know about Scottie Scheffler, Bryson DeChambeau and their bad day at the Ryder Cup**\
-`Scheffler is the first reigning top-ranked player to go winless in both Friday matches of a Ryder Cup since Tiger Woods in 2002.`\
-https://nytimes.com/athletic/6666628/2025/09/26/ryder-cup-25-scheffler-dechambeau-what-to-know/
-
-**Police Kill Man Who Shot at Cars Outside Georgia Elementary School**\
-`The gunman, a 25-year-old who lived near the campus, was shot dead as he approached the front of the school, officials said.`\
-https://nytimes.com/2025/09/26/us/valdosta-georgia-school-shooting.html
 

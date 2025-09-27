@@ -1,3 +1,11 @@
+**Las Vegas Aces take 2-1 WNBA semifinals advantage, Indiana Fever on brink of elimination**\
+`Dana Evans took over with 10 points and five assists to give the Aces the spark they needed.`\
+https://nytimes.com/athletic/6667085/2025/09/26/las-vegas-aces-indiana-fever-wnba-game-3-semifinals/
+
+**NL playoff race: Mets' defense collapses vs. Marlins amid wild-card chase**\
+`The Mets did themselves no favors in their NL wild-card chase with a 6-2 loss to the Marlins on Friday night.`\
+https://nytimes.com/athletic/6667070/2025/09/26/mlb-nl-wild-card-playoff-race-takeaways/
+
 **Justice Dept. Agents to Protect ICE Facilities, Attorney General Says**\
 `Pam Bondi, the attorney general, announced the deployment two days after a gunman opened fire at an ICE facility in Dallas, killing one detainee and injuring two others.`\
 https://nytimes.com/2025/09/26/us/doj-agents-ice-facilities.html
