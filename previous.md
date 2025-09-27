@@ -1,3 +1,11 @@
+**SEC commissioner Greg Sankey: 'No excuses' for Auburn-Oklahoma officiating mistake**\
+`Sankey was asked Saturday whether the SEC would consider making in-game replay reviews public, like the ACC.`\
+https://nytimes.com/athletic/6669069/2025/09/27/sec-officiating-auburn-oklahoma-sankey/
+
+**LSU vs. Ole Miss: 3 takeaways from convincing performance by Rebels**\
+`Lane Kiffin has a better football team right now than Brian Kelly. And on Saturday, Ole Miss had the better quarterback, too.`\
+https://nytimes.com/athletic/6669021/2025/09/27/lsu-football-ole-miss-score-result/
+
 **NL playoff race: Cubs clinch home-field advantage in wild-card round**\
 `The Mets beat the Marlins 5-0 to stay competitive in the race for the final NL wild-card spot. They have a half-game lead over the Reds.`\
 https://nytimes.com/athletic/6668721/2025/09/27/nl-wild-card-playoff-race-takeaways/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6668871/2025/09/27/yankees-keys-win-game-162-al-eas
 **Trader Joe’s and Walmart Frozen Meals May Have Listeria Linked to Outbreak**\
 `The outbreak has killed four people and spread to 15 states, with officials linking it to frozen pasta meals sold at Walmart and Kroger.`\
 https://nytimes.com/2025/09/27/us/listeria-outbreak-trader-joes-fettuccine-alfredo.html
-
-**Tigers clinch second straight playoff berth despite second-half slide**\
-`At the end of a brutal second half, the Tigers snuck in the playoffs with a 2-1 win over the Red Sox at Fenway Park.`\
-https://nytimes.com/athletic/6666619/2025/09/27/detroit-tigers-clinch-mlb-postseason-berth/
-
-**How to watch Mets at Marlins: Time, TV, streaming for September 28**\
-`Find out how to watch the New York Mets play the Miami Marlins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6668899/2025/09/27/mets-vs-marlins-stream-how-to-watch-sept-28/
 

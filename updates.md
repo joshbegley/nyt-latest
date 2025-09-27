@@ -1,3 +1,16 @@
+**SEC commissioner Greg Sankey: 'No excuses' for Auburn-Oklahoma officiating mistake**\
+`Sankey was asked Saturday whether the SEC would consider making in-game replay reviews public, like the ACC.`\
+https://nytimes.com/athletic/6669069/2025/09/27/sec-officiating-auburn-oklahoma-sankey/
+
+**LSU vs. Ole Miss: 3 takeaways from convincing performance by Rebels**\
+`Lane Kiffin has a better football team right now than Brian Kelly. And on Saturday, Ole Miss had the better quarterback, too.`\
+https://nytimes.com/athletic/6669021/2025/09/27/lsu-football-ole-miss-score-result/
+
+**Yankees' 4 keys to winning Game 162 and keeping AL East dream alive**\
+`The Yankees have to beat the Baltimore Orioles, who don't seem likely to make it easy for them. Here's how they could do it.
+`\
+https://nytimes.com/athletic/6668871/2025/09/27/yankees-keys-win-game-162-al-east/
+
 **Yankees' 4 keys to winning Game 162 and keeping AL East dream alive**\
 `The Yankees have to beat the Baltimore Orioles, who don't seem likely to make it easy for them. Here's how they could do it.
 `\

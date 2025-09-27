@@ -1,3 +1,7 @@
+**Notre Dame's season feels possible again, thanks to CJ Carr**\
+`The quarterback can take the Fighting Irish from very good to potentially great. Notre Dame beat Arkansas 56-13 on Saturday.`\
+https://nytimes.com/athletic/6668960/2025/09/27/notre-dame-arkansas-cj-carr/
+
 **SEC commissioner Greg Sankey: 'No excuses' for Auburn-Oklahoma officiating mistake**\
 `Sankey was asked Saturday whether the SEC would consider making in-game replay reviews public, like the ACC.`\
 https://nytimes.com/athletic/6669069/2025/09/27/sec-officiating-auburn-oklahoma-sankey/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6668845/2025/09/27/cardinals-cubs-michael-busch-cyc
 `The Yankees have to beat the Baltimore Orioles, who don't seem likely to make it easy for them. Here's how they could do it.
 `\
 https://nytimes.com/athletic/6668871/2025/09/27/yankees-keys-win-game-162-al-east/
-
-**Trader Joe’s and Walmart Frozen Meals May Have Listeria Linked to Outbreak**\
-`The outbreak has killed four people and spread to 15 states, with officials linking it to frozen pasta meals sold at Walmart and Kroger.`\
-https://nytimes.com/2025/09/27/us/listeria-outbreak-trader-joes-fettuccine-alfredo.html
 
