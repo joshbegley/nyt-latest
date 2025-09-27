@@ -1,3 +1,7 @@
+**The Briefing: Crystal Palace 2 Liverpool 1 - Palace score late winner, Liverpool's unbeaten run ended**\
+`Liverpool lose for the first time in the Premier League as Crystal Palace score late to secure a memorable win`\
+https://nytimes.com/athletic/6664965/2025/09/27/crystal-palace-beat-liverpool-premier-league-briefing/
+
 **The Briefing: Chelsea 1 Brighton 3 - Are Maresca's side their own worst enemies? Is it time for Disasi be recalled?**\
 `Simon Johnson analyses a disappointing home defeat for Chelsea against Brighton and Hove Albion on Saturday`\
 https://nytimes.com/athletic/6664964/2025/09/27/chelsea-brighton-premier-league-analysis/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6664964/2025/09/27/chelsea-brighton-premier-league-
 https://nytimes.com/athletic/6664967/2025/09/27/manchester-city-v-burnley-premier-league-analysis/
 
 **Justin Fields clears concussion protocol, will start for Jets on Monday night**\
-`The quarterback missed the Jets' Week 3 game in Tampa Bay.`\
+`The quarterback missed the Jets' Week 3 game at Tampa Bay.`\
 https://nytimes.com/athletic/6662279/2025/09/27/justin-fields-new-york-jets-clears-consussion-protocol/
 
 **The Briefing: Leeds 2 Bournemouth 2 - What happened to Aaronson's draft excluder? Did Adams deserve boos? Longstaff's impact**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6667918/2025/09/27/marcus-mariota-commanders-qb-atl
 **'Everything comes crashing down' for the Astros, who are on the brink of playoff elimination**\
 `One more win by both the Guardians and Tigers will eliminate the Astros from playoff contention for the first time in nine years.`\
 https://nytimes.com/athletic/6667389/2025/09/27/astros-brink-playoff-elimination/
-
-**One game at a time, the Reds inch toward a playoff berth**\
-`The Reds have emphasized keeping an even keel through wins and losses. It's brought them to the precipice of a playoff berth.`\
-https://nytimes.com/athletic/6667284/2025/09/27/reds-near-mlb-playoff-berth/
 
