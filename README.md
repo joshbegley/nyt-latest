@@ -1,3 +1,19 @@
+**How to watch Dodgers at Mariners: Time, TV, streaming for September 27**\
+`Find out how to watch the Los Angeles Dodgers play the Seattle Mariners, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6667499/2025/09/27/dodgers-vs-mariners-stream-how-to-watch-sept-27/
+
+**How to watch Astros at Angels: Time, TV, streaming for September 27**\
+`Find out how to watch the Houston Astros play the Los Angeles Angels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6667494/2025/09/27/astros-vs-angels-stream-how-to-watch-sept-27/
+
+**How to watch Royals at Athletics: Time, TV, streaming for September 27**\
+`Find out how to watch the Kansas City Royals play the Athletics, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6667478/2025/09/27/royals-vs-athletics-stream-how-to-watch-sept-27/
+
+**How to watch Diamondbacks at Padres: Time, TV, streaming for September 27**\
+`Find out how to watch the Arizona Diamondbacks play the San Diego Padres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6667476/2025/09/27/diamondbacks-vs-padres-stream-how-to-watch-sept-27/
+
 **His Parents Disappeared. In a TV Studio, He Confessed to Killing Them.**\
 `After investigators came looking, Lorenz Kraus told a reporter he had strangled Franz and Theresia Kraus eight years ago. Two bodies were buried in their backyard.`\
 https://nytimes.com/2025/09/27/nyregion/albany-parent-murders-interview.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/09/27/nyregion/mass-shooting-prevention.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/09/27/crosswords/spelling-bee-forum.html
-
-**How to watch Pirates at Braves: Time, TV, streaming for September 27**\
-`Find out how to watch the Pittsburgh Pirates play the Atlanta Braves, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6667388/2025/09/27/pirates-vs-braves-stream-how-to-watch-sept-27/
-
-**How to watch Orioles at Yankees: Time, TV, streaming for September 27**\
-`Find out how to watch the Baltimore Orioles play the New York Yankees, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6667386/2025/09/27/orioles-vs-yankees-stream-how-to-watch-sept-27/
-
-**How to watch Rangers at Guardians: Time, TV, streaming for September 27**\
-`Find out how to watch the Texas Rangers play the Cleveland Guardians, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6667384/2025/09/27/rangers-vs-guardians-stream-how-to-watch-sept-27/
-
-**How to watch Tigers at Red Sox: Time, TV, streaming for September 27**\
-`Find out how to watch the Detroit Tigers play the Boston Red Sox, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6667382/2025/09/27/tigers-vs-red-sox-stream-how-to-watch-sept-27/
 

@@ -1,3 +1,27 @@
+**His Parents Disappeared. In a TV Studio, He Confessed to Killing Them.**\
+`After investigators came looking, Lorenz Kraus told a reporter he had strangled Franz and Theresia Kraus eight years ago. Two bodies were buried in their backyard.`\
+https://nytimes.com/2025/09/27/nyregion/albany-parent-murders-interview.html
+
+**Catholic School Teacher Says She Was Suspended for Surrogate Pregnancy**\
+`Jadira Bonilla, a kindergarten teacher at a Catholic school in southern New Jersey, was told she might have violated her contract, according to an email shared with The New York Times.`\
+https://nytimes.com/2025/09/27/nyregion/nj-teacher-surrogate-pregnancy.html
+
+**How John Leguizamo Spends a Day Before Taking the Stage**\
+`The actor fits in tennis with his son, a writing session and lots of dancing before performing his new show at the Public Theater.`\
+https://nytimes.com/2025/09/27/nyregion/john-leguizamo-the-other-americans.html
+
+**Give In or Fight Back? Colleges Are Torn on How to Respond to Trump.**\
+`The University of California, one of the Trump administration’s biggest targets so far, is in an uproar over how to respond to the president’s attacks. So is the rest of higher education.`\
+https://nytimes.com/2025/09/27/us/trump-university-california-berkeley-tactics.html
+
+**How 106 People Got Together to Stop a School Shooting — Before It Happened**\
+`A threat on a school bus from an alienated young man united dozens of agencies to answer a single question: Is it possible to stop potential mass shooters before they commit a crime?`\
+https://nytimes.com/2025/09/27/nyregion/mass-shooting-prevention.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/09/27/crosswords/spelling-bee-forum.html
+
 **How to watch Pirates at Braves: Time, TV, streaming for September 27**\
 `Find out how to watch the Pittsburgh Pirates play the Atlanta Braves, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6667388/2025/09/27/pirates-vs-braves-stream-how-to-watch-sept-27/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6667384/2025/09/27/rangers-vs-guardians-stream-how-
 **How to watch Tigers at Red Sox: Time, TV, streaming for September 27**\
 `Find out how to watch the Detroit Tigers play the Boston Red Sox, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6667382/2025/09/27/tigers-vs-red-sox-stream-how-to-watch-sept-27/
-
-**How to watch Reds at Brewers: Time, TV, streaming for September 27**\
-`Find out how to watch the Cincinnati Reds play the Milwaukee Brewers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6667378/2025/09/27/reds-vs-brewers-stream-how-to-watch-sept-27/
-
-**How to watch Rays at Blue Jays: Time, TV, streaming for September 27**\
-`Find out how to watch the Tampa Bay Rays play the Toronto Blue Jays, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6667379/2025/09/27/rays-vs-blue-jays-stream-how-to-watch-sept-27/
-
-**How to watch Mets at Marlins: Time, TV, streaming for September 27**\
-`Find out how to watch the New York Mets play the Miami Marlins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6667374/2025/09/27/mets-vs-marlins-stream-how-to-watch-sept-27/
-
-**Fire at South Korean Government Building Causes Nationwide Outages**\
-`Hundreds of state services were offline the day after a lithium battery exploded during maintenance work at a data center, officials said.`\
-https://nytimes.com/2025/09/27/world/asia/south-korea-fire-government-data-center.html
-
-**The New York Times in Print for Saturday, Sep. 27, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/09/27/todays-new-york-times
-
-**Fever's flaws are exposed in WNBA semifinals as they face elimination**\
-`Injuries have hampered the Fever. But so have some questionable front-office decisions.`\
-https://nytimes.com/athletic/6667314/2025/09/27/indiana-fever-wnba-semifinals-loss/
 
