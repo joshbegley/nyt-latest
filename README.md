@@ -1,3 +1,15 @@
+**How to watch Mets at Marlins: Time, TV, streaming for September 28**\
+`Find out how to watch the New York Mets play the Miami Marlins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6668899/2025/09/27/mets-vs-marlins-stream-how-to-watch-sept-28/
+
+**How to watch Tigers at Red Sox: Time, TV, streaming for September 28**\
+`Find out how to watch the Detroit Tigers play the Boston Red Sox, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6668895/2025/09/27/tigers-vs-red-sox-stream-how-to-watch-sept-28/
+
+**How to watch White Sox at Nationals: Time, TV, streaming for September 28**\
+`Find out how to watch the Chicago White Sox play the Washington Nationals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6668891/2025/09/27/white-sox-vs-nationals-stream-how-to-watch-sept-28/
+
 **How to watch Rockies at Giants: Time, TV, streaming for September 28**\
 `Find out how to watch the Colorado Rockies play the San Francisco Giants, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6668886/2025/09/27/rockies-vs-giants-stream-how-to-watch-sept-28/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/27/world/asia/jerome-cohen-dead.html
 **The Briefing: Tottenham 1 Wolves 1 - A late point, but a missed opportunity? Are injuries a growing concern? Why were Spurs so flat?**\
 `Jay Harris and Jack Pitt-Brooke analyse Saturday night's encounter with the side propping up the Premier League table`\
 https://nytimes.com/athletic/6664998/2025/09/27/tottenham-wolves-premier-league-analysis/
-
-**Do Cubs, Padres have enough in rotation to win Wild Card Series? First look**\
-`The Cubs will host the Padres in a series between two teams with starting pitching concerns. Which team has the edge?`\
-https://nytimes.com/athletic/6666980/2025/09/27/cubs-padres-preview-wild-card/
-
-**Lynx coach Cheryl Reeve suspended for Game 4 following ejection during loss to Mercury**\
-`The Lynx are looking to stave off elimination and force a Game 5, which would be back in Minnesota.`\
-https://nytimes.com/athletic/6668738/2025/09/27/cheryl-reeve-suspension-lynx-wnba-playoffs/
-
-**Ravens place DT Nnamdi Madubuike on IR with neck injury**\
-`Madubuike, 27, hurt his neck in Baltimore's 41-17 Week 2 victory over the Browns.`\
-https://nytimes.com/athletic/6647098/2025/09/27/ravens-nnamdi-madubuike-injury/
 
