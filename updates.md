@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, Sep. 27, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/27/todays-new-york-times
+
 **Fever's flaws are exposed in the WNBA semifinals as they face elimination**\
 `Injuries have hampered the Fever. But so have some questionable front office decisions.`\
 https://nytimes.com/athletic/6667314/2025/09/27/indiana-fever-wnba-semifinals-loss/
