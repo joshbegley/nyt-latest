@@ -1,3 +1,11 @@
+**The Briefing: Chelsea 1 Brighton 3 - Are Maresca's side their own worst enemies? Is it time for Disasi be recalled?**\
+`Simon Johnson analyses a disappointing home defeat for Chelsea against Brighton and Hove Albion on Saturday`\
+https://nytimes.com/athletic/6664964/2025/09/27/chelsea-brighton-premier-league-analysis/
+
+**The Briefing: Manchester City 5 Burnley 1 - How did Walker cope with Doku? Is Nunes the answer at right back? Did Savinho seize his chance?**\
+`Man City benefitted from two Maxime Esteve own goals to overcome a stubborn Burnley team`\
+https://nytimes.com/athletic/6664967/2025/09/27/manchester-city-v-burnley-premier-league-analysis/
+
 **Justin Fields clears concussion protocol, will start for Jets on Monday night**\
 `The quarterback missed the Jets' Week 3 game in Tampa Bay.`\
 https://nytimes.com/athletic/6662279/2025/09/27/justin-fields-new-york-jets-clears-consussion-protocol/
