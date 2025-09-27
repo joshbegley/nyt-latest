@@ -1,3 +1,7 @@
+**NC State DC DJ Eliot to miss game vs. Virginia Tech after death of daughter**\
+`Drue Margaret Eliot was diagnosed with pediatric cancer in the spring of 2020, when DJ was coaching at Kansas.`\
+https://nytimes.com/athletic/6668324/2025/09/27/nc-state-defensive-coordinator-dj-eliot/
+
 **Trump Says He Has Ordered Troops to Protect ICE Facilities in Portland**\
 `The president characterized Immigration and Customs Enforcement facilities as being under siege from domestic terrorists.`\
 https://nytimes.com/2025/09/27/us/politics/trump-portland-troops.html
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/6664967/2025/09/27/manchester-city-v-burnley-premie
 `The quarterback missed the Jets' Week 3 game at Tampa Bay.`\
 https://nytimes.com/athletic/6662279/2025/09/27/justin-fields-new-york-jets-clears-consussion-protocol/
 
-**The Briefing: Leeds 2 Bournemouth 2 - What happened to Aaronson's draft excluder? Did Adams deserve boos? Longstaff's impact**\
+**The Briefing: Leeds 2 Bournemouth 2 - What happened to Aaronson's draft excluder? Did Adams deserve boos?**\
 `Another late, late goal cost Daniel Farke's men two points at Elland Road on Saturday - The Athletic breaks down the action`\
 https://nytimes.com/athletic/6664966/2025/09/27/leeds-2-bournemouth-2-aaronson-draft-excluder-adams-longstaff/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6667796/2025/09/27/canada-england-rugby-world-cup-o
 **Vallieres wins elite women's World Road Championship title in Kigali**\
 `The podium was completed by New Zealand's Niamh Fisher-Black and Spain's Mavi Garcia in silver and bronze respectively.`\
 https://nytimes.com/athletic/6668005/2025/09/27/magdeleine-vallieres-world-road-championship-win-canada/
-
-**A Minimalist Pasta That Maximizes Garlic**\
-`Carolina Gelen’s one-pot roasted garlic pasta goes big on garlic, not on cook time.`\
-https://nytimes.com/2025/09/27/dining/a-minimalist-pasta-that-maximizes-garlic.html
 

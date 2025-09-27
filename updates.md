@@ -1,3 +1,11 @@
+**NC State DC DJ Eliot to miss game vs. Virginia Tech after death of daughter**\
+`Drue Margaret Eliot was diagnosed with pediatric cancer in the spring of 2020, when DJ was coaching at Kansas.`\
+https://nytimes.com/athletic/6668324/2025/09/27/nc-state-defensive-coordinator-dj-eliot/
+
+**The Briefing: Leeds 2 Bournemouth 2 - What happened to Aaronson's draft excluder? Did Adams deserve boos?**\
+`Another late, late goal cost Daniel Farke's men two points at Elland Road on Saturday - The Athletic breaks down the action`\
+https://nytimes.com/athletic/6664966/2025/09/27/leeds-2-bournemouth-2-aaronson-draft-excluder-adams-longstaff/
+
 **Trump Says He Has Ordered Troops to Protect ICE Facilities in Portland**\
 `The president characterized Immigration and Customs Enforcement facilities as being under siege from domestic terrorists.`\
 https://nytimes.com/2025/09/27/us/politics/trump-portland-troops.html
