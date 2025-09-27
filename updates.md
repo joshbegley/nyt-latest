@@ -1,3 +1,7 @@
+**The Briefing: Chelsea 1 Brighton 3 - Are Maresca's side their own worst enemies? Is it time for Disasi to be recalled?**\
+`Simon Johnson analyses a disappointing home defeat for Chelsea against Brighton and Hove Albion on Saturday`\
+https://nytimes.com/athletic/6664964/2025/09/27/chelsea-brighton-premier-league-analysis/
+
 **Atletico 5 Real Madrid 2 - Was this Alvarez's revenge? How big a setback is this for Alonso? Mbappe best as a No 9?**\
 `Xabi Alonso's team suffered an embarrassing defeat to their cross-city rivals`\
 https://nytimes.com/athletic/6664999/2025/09/27/atletico-5-real-madrid-2-alvarez-alonso-mbappe/

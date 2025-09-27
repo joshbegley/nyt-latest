@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6664999/2025/09/27/atletico-5-real-madrid-2-alvarez
 `Liverpool lose for the first time in the Premier League as Crystal Palace score late to secure a memorable win`\
 https://nytimes.com/athletic/6664965/2025/09/27/crystal-palace-beat-liverpool-premier-league-briefing/
 
-**The Briefing: Chelsea 1 Brighton 3 - Are Maresca's side their own worst enemies? Is it time for Disasi be recalled?**\
+**The Briefing: Chelsea 1 Brighton 3 - Are Maresca's side their own worst enemies? Is it time for Disasi to be recalled?**\
 `Simon Johnson analyses a disappointing home defeat for Chelsea against Brighton and Hove Albion on Saturday`\
 https://nytimes.com/athletic/6664964/2025/09/27/chelsea-brighton-premier-league-analysis/
 
