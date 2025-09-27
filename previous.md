@@ -1,3 +1,7 @@
+**What to know about Scottie Scheffler, Bryson DeChambeu and their bad day at the Ryder Cup**\
+`Scheffler is the first reigning top-ranked player to go winless in both Friday matches of a Ryder Cup since Tiger Woods in 2002.`\
+https://nytimes.com/athletic/6666628/2025/09/26/ryder-cup-25-scheffler-dechambeau-what-to-know/
+
 **Police Kill Man Who Shot at Cars Outside Georgia Elementary School**\
 `The gunman, a 25-year-old who lived near the campus, was shot dead as he approached the front of the school, officials said.`\
 https://nytimes.com/2025/09/26/us/valdosta-georgia-school-shooting.html
@@ -19,7 +23,7 @@ https://nytimes.com/athletic/6666637/2025/09/26/rory-mcilroy-ryder-cup-europe/
 https://nytimes.com/2025/09/26/us/justice-department-fani-willis-trump.html
 
 **Trump Orders Unsealing of All Files on Amelia Earhart and Her Disappearance**\
-`The president has called for the unsealing of documents related to the deaths of prominent historical figures like John and Robert Kennedy and Martin Luther King.`\
+`The president has called for the unsealing of documents related to the deaths of prominent historical figures like John F. Kennedy and Dr. Martin Luther King Jr.`\
 https://nytimes.com/2025/09/26/us/politics/trump-amelia-earhart-files.html
 
 **How to watch White Sox at Nationals: Time, TV, streaming for September 27**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6666884/2025/09/26/twins-vs-phillies-stream-how-to-
 **How to watch Cardinals at Cubs: Time, TV, streaming for September 27**\
 `Find out how to watch the St. Louis Cardinals play the Chicago Cubs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6666880/2025/09/26/cardinals-vs-cubs-stream-how-to-watch-sept-27/
-
-**Europe jumps out to a commanding lead at the Ryder Cup on Day 1**\
-`Europe clearly had a better plan Friday and took the lead 5 1/2 to 2 1/2.`\
-https://nytimes.com/athletic/6666598/2025/09/26/ryder-cup-25-europe-leads-united-states/
 
