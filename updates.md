@@ -1,3 +1,7 @@
+**Liverpool 'can only blame ourselves' for Crystal Palace loss, Slot says**\
+`The Premier League champions conceded in the 97th minute after Chiesa had cancelled out Sarr's early goal.`\
+https://nytimes.com/athletic/6668423/2025/09/27/liverpool-arne-slot-blame-ourselves-crystal-palace-loss/
+
 **Yankees' Jazz Chisholm Jr. exits game in clear pain after hit by pitch**\
 `New York's second baseman got drilled on his left forearm by a 97 mph sinker from Grant Wolfram.`\
 https://nytimes.com/athletic/6668447/2025/09/27/yankees-jazz-chisholm-leaves-game-hit-by-pitch/

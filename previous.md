@@ -1,3 +1,7 @@
+**Liverpool 'can only blame ourselves' for Crystal Palace loss, Slot says**\
+`The Premier League champions conceded in the 97th minute after Chiesa had cancelled out Sarr's early goal.`\
+https://nytimes.com/athletic/6668423/2025/09/27/liverpool-arne-slot-blame-ourselves-crystal-palace-loss/
+
 **Yankees' Jazz Chisholm Jr. exits game in clear pain after hit by pitch**\
 `New York's second baseman got drilled on his left forearm by a 97 mph sinker from Grant Wolfram.`\
 https://nytimes.com/athletic/6668447/2025/09/27/yankees-jazz-chisholm-leaves-game-hit-by-pitch/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/27/world/middleeast/ambassador-huckabee-istael-egypt
 **Notre Dame's Jeremiyah Love goes off for four first-half TDs at Arkansas**\
 `Love's 14 first-half touches covered 128 yards, including a broken tackle almost every time the Irish junior touched the football.`\
 https://nytimes.com/athletic/6668374/2025/09/27/notre-dame-arkansas-highlights-jeremiyah-love/
-
-**England win Women's Rugby World Cup after defeating Canada 33-13**\
-`The tournament hosts secured a record 33rd consecutive win in front of 81,885 people.`\
-https://nytimes.com/athletic/6668278/2025/09/27/england-womens-rugby-world-cup-win-canada/
 
