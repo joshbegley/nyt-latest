@@ -1,3 +1,11 @@
+**NL playoff race: Cubs clinch home-field advantage in wild-card round**\
+`The Mets beat the Marlins 5-0 to stay competitive in the race for the final NL wild-card spot. They have a half-game lead over the Reds.`\
+https://nytimes.com/athletic/6668721/2025/09/27/nl-wild-card-playoff-race-takeaways/
+
+**Giuliani and Dominion Voting Systems Settle $1.3 Billion Defamation Suit**\
+`The election technology company Dominion Voting Systems had accused Rudolph W. Giuliani of waging “a viral disinformation campaign” over the 2020 election.`\
+https://nytimes.com/2025/09/27/us/politics/rudy-giuliani-dominion-case-settlement.html
+
 **Des Moines Schools Superintendent Arrested By ICE Is Placed on Leave**\
 `School Board members in Iowa’s capital made the decision one day after immigration officials accused the superintendent, Ian Roberts, of being in the country illegally.`\
 https://nytimes.com/2025/09/27/us/des-moines-schools-superintendent-ice-leave.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6666619/2025/09/27/detroit-tigers-clinch-mlb-postse
 **How to watch Mets at Marlins: Time, TV, streaming for September 28**\
 `Find out how to watch the New York Mets play the Miami Marlins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6668899/2025/09/27/mets-vs-marlins-stream-how-to-watch-sept-28/
-
-**How to watch Tigers at Red Sox: Time, TV, streaming for September 28**\
-`Find out how to watch the Detroit Tigers play the Boston Red Sox, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6668895/2025/09/27/tigers-vs-red-sox-stream-how-to-watch-sept-28/
-
-**How to watch White Sox at Nationals: Time, TV, streaming for September 28**\
-`Find out how to watch the Chicago White Sox play the Washington Nationals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6668891/2025/09/27/white-sox-vs-nationals-stream-how-to-watch-sept-28/
 
