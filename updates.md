@@ -1,3 +1,12 @@
+**Yankees' 4 keys to winning Game 162 and keeping AL East dream alive**\
+`The Yankees have to beat the Baltimore Orioles, who don't seem likely to make it easy for them. Here's how they could do it.
+`\
+https://nytimes.com/athletic/6668871/2025/09/27/yankees-keys-win-game-162-al-east/
+
+**Trader Joe’s and Walmart Frozen Meals May Have Listeria Linked to Outbreak**\
+`The outbreak has killed four people and spread to 15 states, with officials linking it to frozen pasta meals sold at Walmart and Kroger.`\
+https://nytimes.com/2025/09/27/us/listeria-outbreak-trader-joes-fettuccine-alfredo.html
+
 **Detroit Tigers clinch playoff berth despite second-half slide**\
 `At the end of a brutal second half, the Tigers snuck in the playoffs with a win at Fenway Park.`\
 https://nytimes.com/athletic/6666619/2025/09/27/detroit-tigers-clinch-mlb-postseason-berth/
