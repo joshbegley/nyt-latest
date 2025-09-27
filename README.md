@@ -1,3 +1,7 @@
+**Lowetide: Can Oilers prospect Noah Philp make the final step to the NHL?**\
+`Philp has played well enough through training camp and preseason to secure a spot on the Oilers' opening-night roster.`\
+https://nytimes.com/athletic/6668337/2025/09/27/oilers-prospect-noah-philp-nhl-roster/
+
 **Why Sam Pittman's buyout makes the timing of Arkansas' decision on his future key**\
 `How much would it cost to fire Pittman? For the reeling Razorbacks, it depends when it happens.`\
 https://nytimes.com/athletic/6668277/2025/09/27/arkansas-sam-pittman-contract-buyout/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6668423/2025/09/27/liverpool-arne-slot-blame-oursel
 **Yankees' Jazz Chisholm Jr. exits game in clear pain after hit by pitch**\
 `New York's second baseman got drilled on his left forearm by a 97 mph sinker from Grant Wolfram.`\
 https://nytimes.com/athletic/6668447/2025/09/27/yankees-jazz-chisholm-leaves-game-hit-by-pitch/
-
-**How to watch Orioles at Yankees: Time, TV, streaming for September 28**\
-`Find out how to watch the Baltimore Orioles play the New York Yankees, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6668479/2025/09/27/orioles-vs-yankees-stream-how-to-watch-sept-28/
 
