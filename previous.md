@@ -1,3 +1,7 @@
+**Cardinals intentionally walk Cubs' Michael Busch, who needed a single to complete cycle**\
+`St. Louis manager Oli Marmol was unapologetic about issuing the free pass: "I’m not here for anybody's amusement. I’m trying to win a game."`\
+https://nytimes.com/athletic/6668845/2025/09/27/cardinals-intentionally-walk-michael-busch-cycle-cubs/
+
 **Yankees' 4 keys to winning Game 162 and keeping AL East dream alive**\
 `The Yankees have to beat the Baltimore Orioles, who don't seem likely to make it easy for them. Here's how they could do it.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/2025/09/27/crosswords/daily-puzzle-2025-09-28.html
 **Leo Gerard, Who Led a Growing Steelworkers Union, Dies at 78**\
 `He helped make it the largest industrial union in North America as he fought an influx of cheap metal from China and lobbied for anti-dumping tariffs.`\
 https://nytimes.com/2025/09/27/business/leo-gerard-dead.html
-
-**At Least 3 Killed in Arizona Flood That Swept Away Vehicles Overnight**\
-`The damage was concentrated in Globe, a small city east of Phoenix, where heavy rains overflowed a creek.`\
-https://nytimes.com/2025/09/27/us/arizona-globe-flood.html
 
