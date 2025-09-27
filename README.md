@@ -1,3 +1,11 @@
+**Justin Fields clears concussion protocol, will start for Jets on Monday night**\
+`The quarterback missed the Jets' Week 3 game in Tampa Bay.`\
+https://nytimes.com/athletic/6662279/2025/09/27/justin-fields-new-york-jets-clears-consussion-protocol/
+
+**The Briefing: Leeds 2 Bournemouth 2 - What happened to Aaronson's draft excluder? Did Adams deserve boos? Longstaff's impact**\
+`Another late, late goal cost Leeds three points at home to Bournemouth - The Athletic breaks down the action`\
+https://nytimes.com/athletic/6664966/2025/09/27/leeds-2-bournemouth-2-aaronson-draft-excluder-adams-longstaff/
+
 **Canada's rugby pioneer Olivia DeMerchant's journey back to the World Cup final**\
 `"I actually had to pay to play and live in England the first year I came over in 2013," DeMerchant told The Athletic.`\
 https://nytimes.com/athletic/6667796/2025/09/27/canada-england-rugby-world-cup-olivia-demerchant/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6666465/2025/09/27/nfl-rumors-news-jaxson-dart-bria
 **Inside the Red Sox playoff-clinching celebration: 'It was a total team effort'**\
 `Boston’s major-league-leading 12th walk-off win clinched the team’s first spot in the postseason since 2021.`\
 https://nytimes.com/athletic/6667337/2025/09/27/red-sox-playoff-clinching-celebration/
-
-**The Briefing: Brentford 3 Man Utd 1 - What next for Amorim? Should Fernandes be on penalties? Why the dire defending?**\
-`United's woes continued with a calamitous defeat in west London - The Athletic analyses the action`\
-https://nytimes.com/athletic/6664962/2025/09/27/brentford-3-manchester-united-1-amorim-fernandes-defending/
-
-**College Football Playoff 2025 projections: Florida State drops with big Week 5 underway**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/09/27/college-football-playoff-bracket-projections-odds/
 
