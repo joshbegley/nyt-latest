@@ -1,3 +1,11 @@
+**AL playoff race takeaways: Red Sox clinch playoff berth, Blue Jays and Yankees stay atop East**\
+`Boston clinches first postseason berth since 2021, while Toronto and New York are tied for first in the East with two games remaining.`\
+https://nytimes.com/athletic/6666613/2025/09/26/mlb-al-wild-card-playoff-race-takeaways/
+
+**NL playoff race: Reds take control of their destiny, Mets' defense collapses**\
+`The Mets did themselves no favors in their NL wild-card chase with a 6-2 loss to the Marlins on Friday night.`\
+https://nytimes.com/athletic/6667070/2025/09/26/mlb-nl-wild-card-playoff-race-takeaways/
+
 **Dodgers reliever Brock Stewart to have surgery, ruled out for the postseason**\
 `The Dodgers' injury issues keep piling up, and Will Smith's availability for the Wild Card Series is in doubt.`\
 https://nytimes.com/athletic/6666596/2025/09/26/dodgers-brock-stewart-surgery-ruled-out-postseason/
