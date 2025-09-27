@@ -1,3 +1,19 @@
+**Lowetide: Can Oilers prospect Noah Philp make the final step to the NHL?**\
+`Philp has played well enough through training camp and preseason to secure a spot on the Oilers' opening-night roster.`\
+https://nytimes.com/athletic/6668337/2025/09/27/oilers-prospect-noah-philp-nhl-roster/
+
+**Why Sam Pittman's buyout makes the timing of Arkansas' decision on his future key**\
+`How much would it cost to fire Pittman? For the reeling Razorbacks, it depends when it happens.`\
+https://nytimes.com/athletic/6668277/2025/09/27/arkansas-sam-pittman-contract-buyout/
+
+**Illinois bounces back from blowout loss, beats USC with walk-off field goal**\
+`No. 23 Illinois beat No. 21 USC, 34-32, with a 41-yard field goal as time expired after blowing a 14-point fourth-quarter lead Saturday.`\
+https://nytimes.com/athletic/6668652/2025/09/27/illinois-usc-score-recap-bielema-riley/
+
+**Postecoglou calls referee decision 'poor' over Sunderland's winner against Forest**\
+`The new Forest manager has not won a game yet in his five games in charge. `\
+https://nytimes.com/athletic/6668556/2025/09/27/ange-postecoglou-nottingham-forest-poor-decision-sunderland/
+
 **Postecoglou calls referee decision 'poor' before Sunderland's winner against Forest**\
 `The new Forest manager has not won a game yet in his five games in charge. `\
 https://nytimes.com/athletic/6668556/2025/09/27/ange-postecoglou-nottingham-forest-poor-decision-sunderland/
