@@ -1,3 +1,16 @@
+**NL playoff race: Cubs clinch home-field advantage in wild-card round**\
+`The Mets beat the Marlins 5-0 to stay competitive in the race for the final NL wild-card spot. They have a half-game lead over the Reds.`\
+https://nytimes.com/athletic/6668721/2025/09/27/nl-wild-card-playoff-race-takeaways/
+
+**Giuliani and Dominion Voting Systems Settle $1.3 Billion Defamation Suit**\
+`The election technology company Dominion Voting Systems had accused Rudolph W. Giuliani of waging “a viral disinformation campaign” over the 2020 election.`\
+https://nytimes.com/2025/09/27/us/politics/rudy-giuliani-dominion-case-settlement.html
+
+**Yankees' 4 keys to winning Game 162 and keeping AL East dream alive**\
+`The Yankees have to beat the Baltimore Orioles, who don't seem likely to make it easy for them. Here's how they could do it.
+`\
+https://nytimes.com/athletic/6668871/2025/09/27/yankees-keys-win-game-162-al-east/
+
 **Yankees' 4 keys to winning Game 162 and keeping AL East dream alive**\
 `The Yankees have to beat the Baltimore Orioles, who don't seem likely to make it easy for them. Here's how they could do it.
 `\
