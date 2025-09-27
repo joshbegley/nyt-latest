@@ -1,3 +1,7 @@
+**U.S. Ambassador to Israel Is Expected to Make Rare Visit to Egypt**\
+`Ambassador Mike Huckabee is to travel to Cairo for talks that officials said would focus on the Gaza war and tensions between Israel and Egypt.`\
+https://nytimes.com/2025/09/27/world/middleeast/ambassador-huckabee-istael-egypt-travel.html
+
 **Notre Dame's Jeremiyah Love goes off for four first-half TDs at Arkansas**\
 `Love's 14 first-half touches covered 128 yards, including a broken tackle almost every time the Irish junior touched the football.`\
 https://nytimes.com/athletic/6668374/2025/09/27/notre-dame-arkansas-highlights-jeremiyah-love/
