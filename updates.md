@@ -1,3 +1,7 @@
+**Trump Orders Unsealing of All Files on Amelia Earhart and Her Disappearance**\
+`The president has called for the unsealing of documents related to the deaths of prominent historical figures like John and Robert Kennedy and Martin Luther King.`\
+https://nytimes.com/2025/09/26/us/politics/trump-orders-unsealing-of-all-files-on-amelia-earhart-and-her-disappearance.html
+
 **The U.S. will need to take down Rory McIlroy to win the Ryder Cup**\
 `The Europeans spent the day taking the New York out of the New Yorkers, leaving the Bethpage Black environment best described as subdued.`\
 https://nytimes.com/athletic/6666637/2025/09/26/rory-mcilroy-ryder-cup-europe/
