@@ -1,3 +1,7 @@
+**Ravens place DT Nnamdi Madubuike on IR with neck injury**\
+`Madubuike, 27, hurt his neck in Baltimore's 41-17 Week 2 victory over the Browns.`\
+https://nytimes.com/athletic/6647098/2025/09/27/ravens-nnamdi-madubuike-injury/
+
 **Yankees beat Orioles to stay in AL East title hunt as MLB playoff race continues**\
 `There's a full slate of AL games Saturday with postseason ramifications.`\
 https://nytimes.com/athletic/6668552/2025/09/27/mlb-al-takeaways-yankees-guardians-tigers/
