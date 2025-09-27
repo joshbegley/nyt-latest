@@ -1,3 +1,11 @@
+**Padres' Fernando Tatis Jr. hits grand slam in return from bout with COVID-19**\
+`Tatis was not at Petco Park for three consecutive games due to the illness, but the Padres figure to rely on him in the postseason.`\
+https://nytimes.com/athletic/6667425/2025/09/27/fernando-tatis-jr-covid-padres-grand-slam/
+
+**Leading Medical Charity Closes in Gaza City as Israeli Offensive Intensifies**\
+`Doctors Without Borders pulled its staff from Gaza City as the medical system buckled. The U.N. has warned that more hospitals may have to close.`\
+https://nytimes.com/2025/09/27/world/middleeast/gaza-hospitals-doctors-without-borders.html
+
 **Trump’s Repeated Attacks May Undercut Case Against Comey**\
 `The president’s voluble vitriol could provide defense lawyers with an avenue to protect the very people he most wants to punish.`\
 https://nytimes.com/2025/09/27/us/politics/trump-comey-vindictive-prosecution.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6666349/2025/09/27/travis-hunter-jaguars-49ers-week
 **Why Don’t Data Centers Use More Green Energy?**\
 `Reliance on fossil fuels is almost unavoidable — at least for now.`\
 https://nytimes.com/2025/09/27/business/dealbook/why-dont-data-centers-use-more-green-energy.html
-
-**The Pulse: Different types of MLB collapses**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6667285/2025/09/27/collapses-across-mlb-are-different-up-close-plus-ryder-cup-blues/
-
-**Aaron Judge will be the tallest batting champ in MLB history. Here's how he did it**\
-`The 6-foot-7 Judge has learned to manage his huge strike zone by being one of the smartest, most well-prepared hitters in baseball. `\
-https://nytimes.com/athletic/6663697/2025/09/27/aaron-judge-batting-champ-yankees-tallest-mlb-history/
 

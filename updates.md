@@ -1,3 +1,11 @@
+**Padres' Fernando Tatis Jr. hits grand slam in return from bout with COVID-19**\
+`Tatis was not at Petco Park for three consecutive games due to the illness, but the Padres figure to rely on him in the postseason.`\
+https://nytimes.com/athletic/6667425/2025/09/27/fernando-tatis-jr-covid-padres-grand-slam/
+
+**Leading Medical Charity Closes in Gaza City as Israeli Offensive Intensifies**\
+`Doctors Without Borders pulled its staff from Gaza City as the medical system buckled. The U.N. has warned that more hospitals may have to close.`\
+https://nytimes.com/2025/09/27/world/middleeast/gaza-hospitals-doctors-without-borders.html
+
 **Trump’s Repeated Attacks May Undercut Case Against Comey**\
 `The president’s voluble vitriol could provide defense lawyers with an avenue to protect the very people he most wants to punish.`\
 https://nytimes.com/2025/09/27/us/politics/trump-comey-vindictive-prosecution.html
