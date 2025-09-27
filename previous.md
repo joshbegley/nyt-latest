@@ -1,3 +1,7 @@
+**Vallieres wins elite women's World Road Championship title in Kigali**\
+`The podium was completed by New Zealand's Niamh Fisher-Black and Spain's Mavi Garcia in silver and bronze respectively.`\
+https://nytimes.com/athletic/6668005/2025/09/27/magdeleine-vallieres-world-road-championship-win-canada/
+
 **A Minimalist Pasta That Maximizes Garlic**\
 `Carolina Gelen’s one-pot roasted garlic pasta goes big on garlic, not on cook time.`\
 https://nytimes.com/2025/09/27/dining/a-minimalist-pasta-that-maximizes-garlic.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6560541/2025/09/27/college-football-playoff-bracket
 **Lorenzo Musetti apologizes for rant about Chinese fans in Beijing**\
 `The Italian said that his remarks about coughing spectators “were never in any way meant for the Chinese people.”`\
 https://nytimes.com/athletic/6667676/2025/09/27/lorenzo-musetti-comments-china-coughing-apology-tennis/
-
-**Willy Adames rescued his season, but Giants still have plenty to fix**\
-`After a slow start to his season, the shortstop is more or less delivering what the Giants anticipated when they bet big on him.`\
-https://nytimes.com/athletic/6667422/2025/09/27/willy-adames-san-francisco-giants-mlb/
 

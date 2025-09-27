@@ -1,3 +1,7 @@
+**Vallieres wins elite women's World Road Championship title in Kigali**\
+`The podium was completed by New Zealand's Niamh Fisher-Black and Spain's Mavi Garcia in silver and bronze respectively.`\
+https://nytimes.com/athletic/6668005/2025/09/27/magdeleine-vallieres-world-road-championship-win-canada/
+
 **A Minimalist Pasta That Maximizes Garlic**\
 `Carolina Gelen’s one-pot roasted garlic pasta goes big on garlic, not on cook time.`\
 https://nytimes.com/2025/09/27/dining/a-minimalist-pasta-that-maximizes-garlic.html
