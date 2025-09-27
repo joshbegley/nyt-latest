@@ -1,3 +1,15 @@
+**Jerome Cohen, Lawyer Who Saw a Future in China, Dies at 95**\
+`After pioneering the study of Chinese law in America, he was among the first foreigners to practice commercial law in China, and spoke out about human rights.`\
+https://nytimes.com/2025/09/27/world/asia/jerome-cohen-dead.html
+
+**Do Cubs, Padres have enough in rotation to win Wild Card Series? First look**\
+`The Cubs will host the Padres in a series between two teams with starting pitching concerns. Which team has the edge?`\
+https://nytimes.com/athletic/6666980/2025/09/27/cubs-padres-preview-wild-card/
+
+**Georgia Tech escapes Wake Forest upset in overtime, improves to 5-0**\
+`The Yellow Jackets stayed unbeaten after Clayton Powell-Lee intercepted a pass as Wake Forest went for a two-point conversion and the win.`\
+https://nytimes.com/athletic/6668722/2025/09/27/georgia-tech-wake-forest-upset-overtime/
+
 **The Briefing: Tottenham 1 Wolves 1 - A late point, but a missed opportunity? Are injuries a growing concern? Why were Spurs so flat?**\
 `Jay Harris and Jack Pitt-Brooke analyse Spurs' Saturday night encounter with Wolves`\
 https://nytimes.com/athletic/6664998/2025/09/27/tottenham-wolves-premier-league-analysis/
