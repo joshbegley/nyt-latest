@@ -1,3 +1,7 @@
+**Potter sacked by West Ham after eight months in charge**\
+`Potter only won six of his 25 games with the club.`\
+https://nytimes.com/athletic/6570166/2025/09/27/graham-potter-west-ham-sacked/
+
 **Sean Penn Let Himself Get Away With Things for 15 Years. Not Anymore.**\
 `The actor and instigator is ready for his renaissance.`\
 https://nytimes.com/2025/09/27/magazine/sean-penn-interview.html
