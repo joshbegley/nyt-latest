@@ -1,3 +1,19 @@
+**Police Kill Man Who Shot at Cars Outside Georgia Elementary School**\
+`The gunman, a 25-year-old who lived near the campus, was shot dead as he approached the front of the school, officials said.`\
+https://nytimes.com/2025/09/26/us/valdosta-georgia-school-shooting.html
+
+**How Pressure From Trump Led to Comey’s Indictment**\
+`How did pressure from President Trump lead to this week’s extraordinary indictment of the former F.B.I. director James Comey? Maggie Haberman, White House correspondent at The New York Times, explains.`\
+https://nytimes.com/video/us/politics/100000010423917/how-pressure-from-trump-led-to-comeys-indictment.html
+
+**Nancy Leonard was the 'First Lady' of the Pacers. Here's why players loved her**\
+`Leonard knew how much the Pacers meant to the city of Indianapolis, Reggie Miller says. `\
+https://nytimes.com/athletic/6666558/2025/09/26/nancy-leonard-pacers-first-lady/
+
+**Trump Orders Unsealing of All Files on Amelia Earhart and Her Disappearance**\
+`The president has called for the unsealing of documents related to the deaths of prominent historical figures like John and Robert Kennedy and Martin Luther King.`\
+https://nytimes.com/2025/09/26/us/politics/trump-amelia-earhart-files.html
+
 **Trump Orders Unsealing of All Files on Amelia Earhart and Her Disappearance**\
 `The president has called for the unsealing of documents related to the deaths of prominent historical figures like John and Robert Kennedy and Martin Luther King.`\
 https://nytimes.com/2025/09/26/us/politics/trump-orders-unsealing-of-all-files-on-amelia-earhart-and-her-disappearance.html

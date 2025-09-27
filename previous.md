@@ -1,3 +1,15 @@
+**Police Kill Man Who Shot at Cars Outside Georgia Elementary School**\
+`The gunman, a 25-year-old who lived near the campus, was shot dead as he approached the front of the school, officials said.`\
+https://nytimes.com/2025/09/26/us/valdosta-georgia-school-shooting.html
+
+**How Pressure From Trump Led to Comey’s Indictment**\
+`How did pressure from President Trump lead to this week’s extraordinary indictment of the former F.B.I. director James Comey? Maggie Haberman, White House correspondent at The New York Times, explains.`\
+https://nytimes.com/video/us/politics/100000010423917/how-pressure-from-trump-led-to-comeys-indictment.html
+
+**Nancy Leonard was the 'First Lady' of the Pacers. Here's why players loved her**\
+`Leonard knew how much the Pacers meant to the city of Indianapolis, Reggie Miller says. `\
+https://nytimes.com/athletic/6666558/2025/09/26/nancy-leonard-pacers-first-lady/
+
 **The U.S. will need to take down Rory McIlroy to win the Ryder Cup**\
 `The Europeans spent the day taking the New York out of the New Yorkers, leaving the Bethpage Black environment best described as subdued.`\
 https://nytimes.com/athletic/6666637/2025/09/26/rory-mcilroy-ryder-cup-europe/
@@ -8,7 +20,7 @@ https://nytimes.com/2025/09/26/us/justice-department-fani-willis-trump.html
 
 **Trump Orders Unsealing of All Files on Amelia Earhart and Her Disappearance**\
 `The president has called for the unsealing of documents related to the deaths of prominent historical figures like John and Robert Kennedy and Martin Luther King.`\
-https://nytimes.com/2025/09/26/us/politics/trump-orders-unsealing-of-all-files-on-amelia-earhart-and-her-disappearance.html
+https://nytimes.com/2025/09/26/us/politics/trump-amelia-earhart-files.html
 
 **How to watch White Sox at Nationals: Time, TV, streaming for September 27**\
 `Find out how to watch the Chicago White Sox play the Washington Nationals, with time, TV channel and streaming information.`\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6666880/2025/09/26/cardinals-vs-cubs-stream-how-to-
 **Europe jumps out to a commanding lead at the Ryder Cup on Day 1**\
 `Europe clearly had a better plan Friday and took the lead 5 1/2 to 2 1/2.`\
 https://nytimes.com/athletic/6666598/2025/09/26/ryder-cup-25-europe-leads-united-states/
-
-**Jerry Jones: Cowboys 'didn’t exactly win the Super Bowl' with Micah Parsons in Dallas**\
-`The Cowboys haven't beaten the Packers since 2016, going 0-5 in that span.`\
-https://nytimes.com/athletic/6666751/2025/09/26/jerry-jones-cowboys-didnt-exactly-win-the-super-bowl-with-micah-parsons-in-dallas/
-
-**Jared Kushner’s Firm Is Said to Be Part of $50 Billion Buyout of Electronic Arts**\
-`Mr. Kushner’s private equity firm, Affinity Partners, is said to be in talks with the Saudi sovereign wealth fund and Silver Lake to buy out the video game giant.`\
-https://nytimes.com/2025/09/26/business/electronic-arts-buyout-jared-kushner.html
-
-**Trump Believes ‘We Have a Deal’ on Gaza. But a Host of Obstacles Remain.**\
-`Whether President Trump can help bring the war to an end will probably depend on how much he is willing to push Benjamin Netanyahu.`\
-https://nytimes.com/2025/09/26/us/politics/trump-gaza-deal.html
 
