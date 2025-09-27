@@ -1,3 +1,11 @@
+**Mets place infielder Brett Baty on IL with right oblique injury**\
+`“It’s a big blow,” manager Carlos Mendoza said. “This is a guy who established himself in the everyday lineup.”`\
+https://nytimes.com/athletic/6668401/2025/09/27/mets-brett-baty-injured-list/
+
+**Neil Kraft, Visionary Adman Who Sold ‘a Mood and a Lifestyle,’ Dies at 67**\
+`His ads for Calvin Klein and others captured a fizzy moment in the 1980s and ’90s, featuring celebrities like the young rapper Marky Mark wearing nothing but underwear and a grin.`\
+https://nytimes.com/2025/09/27/business/media/neil-kraft-dead.html
+
 **Liverpool 'can only blame ourselves' for Crystal Palace loss, Slot says**\
 `The Premier League champions conceded in the 97th minute after Chiesa had cancelled out Sarr's early goal.`\
 https://nytimes.com/athletic/6668423/2025/09/27/liverpool-arne-slot-blame-ourselves-crystal-palace-loss/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6668354/2025/09/27/willson-contreras-cardinals-futu
 **Stampede at Actor’s Political Rally Kills at Least 36 People in India**\
 `The stampede took place at an event for Joseph Vijay Chandrasekhar, the popular actor known professionally as Vijay. A health official said the toll was likely to rise.`\
 https://nytimes.com/2025/09/27/world/asia/stampede-vijay-rally-india.html
-
-**U.S. Ambassador to Israel Is Expected to Make Rare Visit to Egypt**\
-`Ambassador Mike Huckabee is to travel to Cairo for talks that officials said would focus on the Gaza war and tensions between Israel and Egypt.`\
-https://nytimes.com/2025/09/27/world/middleeast/ambassador-huckabee-istael-egypt-travel.html
-
-**Notre Dame's Jeremiyah Love goes off for four first-half TDs at Arkansas**\
-`Love's 14 first-half touches covered 128 yards, including a broken tackle almost every time the Irish junior touched the football.`\
-https://nytimes.com/athletic/6668374/2025/09/27/notre-dame-arkansas-highlights-jeremiyah-love/
 
