@@ -1,3 +1,19 @@
+**Justice Dept. Agents to Protect ICE Facilities, Attorney General Says**\
+`Pam Bondi, the attorney general, announced the deployment two days after a gunman opened fire at an ICE facility in Dallas, killing one detainee and injuring two others.`\
+https://nytimes.com/2025/09/26/us/doj-agents-ice-facilities.html
+
+**Lawsuit accuses Madison Square Garden of discrimination, security misconduct**\
+`The former security official is suing over retaliation based on his disabilities and alleges that MSG has wrongly surveilled game attendees.`\
+https://nytimes.com/athletic/6666732/2025/09/26/madison-square-garden-lawsuit-discrimination-security-misconduct/
+
+**Red Sox return to playoffs for first time since 2021 with walk-off win: ‘We cannot wait’**\
+`When teams around them collapsed, the Red Sox did not miss an opportunity to clinch a return to the playoffs.`\
+https://nytimes.com/athletic/6662850/2025/09/26/red-sox-clinch-postseason-berth/
+
+**Zest Source**\
+`Adrian Johnson and Christina Iverson combine forces on a vibrant, themeless challenge.`\
+https://nytimes.com/2025/09/26/crosswords/daily-puzzle-2025-09-27.html
+
 **Trump Administration Asks Supreme Court to Allow End of Birthright Citizenship**\
 `Government lawyers asked the justices to clear the way for the president’s executive order ending birthright citizenship.`\
 https://nytimes.com/2025/09/26/us/politics/supreme-court-birthright-citizenship.html
