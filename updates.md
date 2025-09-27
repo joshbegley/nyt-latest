@@ -1,3 +1,11 @@
+**The Briefing: Tottenham 1 Wolves 1 - A late point, but a missed opportunity? Are injuries a growing concern? Why were Spurs so flat?**\
+`Jay Harris and Jack Pitt-Brooke analyse Spurs' Saturday night encounter with Wolves`\
+https://nytimes.com/athletic/6664998/2025/09/27/tottenham-wolves-premier-league-analysis/
+
+**Georgia Tech escapes Wake Forest upset in overtime, keeps postseason hopes alive**\
+`No. 16 Georgia Tech, trailing 20-3 in the third quarter, rallied late and won 30-29 in overtime to improve to 5-0.`\
+https://nytimes.com/athletic/6668722/2025/09/27/georgia-tech-wake-forest-upset-overtime/
+
 **Do Cubs, Padres have enough in rotation to win Wild Card Series? First look**\
 `The Cubs will host the Padres in a series between two teams with starting pitching concerns.`\
 https://nytimes.com/athletic/6666980/2025/09/27/cubs-padres-preview-wild-card/
