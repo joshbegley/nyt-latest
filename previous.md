@@ -1,9 +1,13 @@
+**Trump Says He Has Ordered Troops to Protect ICE Facilities in Portland**\
+`The president characterized Immigration and Customs Enforcement facilities as being under siege from domestic terrorists.`\
+https://nytimes.com/2025/09/27/us/politics/trump-portland-troops.html
+
 **Atletico 5 Real Madrid 2 - Was this Alvarez's revenge? How big a setback is this for Alonso? Mbappe best as a No 9?**\
 `Xabi Alonso's team suffered an embarrassing defeat to their cross-city rivals`\
 https://nytimes.com/athletic/6664999/2025/09/27/atletico-5-real-madrid-2-alvarez-alonso-mbappe/
 
-**The Briefing: Crystal Palace 2 Liverpool 1 - Palace score late winner, Liverpool's unbeaten run ended**\
-`Liverpool lose for the first time in the Premier League as Crystal Palace score late to secure a memorable win`\
+**The Briefing: Crystal Palace 2 Liverpool 1 - Nketiah's late winner, set-piece concerns for the champions**\
+`Liverpool lose for the first time in the 2025-26 Premier League as the home side score in added time to secure a memorable win`\
 https://nytimes.com/athletic/6664965/2025/09/27/crystal-palace-beat-liverpool-premier-league-briefing/
 
 **The Briefing: Chelsea 1 Brighton 3 - Are Maresca's side their own worst enemies? Is it time for Disasi to be recalled?**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6668005/2025/09/27/magdeleine-vallieres-world-road-
 **A Minimalist Pasta That Maximizes Garlic**\
 `Carolina Gelen’s one-pot roasted garlic pasta goes big on garlic, not on cook time.`\
 https://nytimes.com/2025/09/27/dining/a-minimalist-pasta-that-maximizes-garlic.html
-
-**The Commanders told Marcus Mariota, 'Be you.' It helped change his career**\
-`An NFL career of extreme highs and lows will have another memorable entry when Mariota returns to Atlanta as Washington's starting QB.`\
-https://nytimes.com/athletic/6667918/2025/09/27/marcus-mariota-commanders-qb-atlanta/
 

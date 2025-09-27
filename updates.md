@@ -1,3 +1,11 @@
+**Trump Says He Has Ordered Troops to Protect ICE Facilities in Portland**\
+`The president characterized Immigration and Customs Enforcement facilities as being under siege from domestic terrorists.`\
+https://nytimes.com/2025/09/27/us/politics/trump-portland-troops.html
+
+**The Briefing: Crystal Palace 2 Liverpool 1 - Nketiah's late winner, set-piece concerns for the champions**\
+`Liverpool lose for the first time in the 2025-26 Premier League as the home side score in added time to secure a memorable win`\
+https://nytimes.com/athletic/6664965/2025/09/27/crystal-palace-beat-liverpool-premier-league-briefing/
+
 **The Briefing: Chelsea 1 Brighton 3 - Are Maresca's side their own worst enemies? Is it time for Disasi to be recalled?**\
 `Simon Johnson analyses a disappointing home defeat for Chelsea against Brighton and Hove Albion on Saturday`\
 https://nytimes.com/athletic/6664964/2025/09/27/chelsea-brighton-premier-league-analysis/
