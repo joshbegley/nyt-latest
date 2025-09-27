@@ -1,3 +1,11 @@
+**Trump’s Repeated Attacks May Undercut Case Against Comey**\
+`The president’s voluble vitriol could provide defense lawyers with an avenue to protect the very people he most wants to punish.`\
+https://nytimes.com/2025/09/27/us/politics/trump-comey-vindictive-prosecution.html
+
+**Yamal to return to Barcelona squad against Real Sociedad**\
+`The 18-year-old has been struggling with a groin injury and has not featured since playing for Spain against Bulgaria and Turkey.`\
+https://nytimes.com/athletic/6667754/2025/09/27/lamine-yamal-barcelona-injury-update/
+
 **Are the Jets built for playoff hockey? Prospect timelines? Mailbag, Part 1**\
 `Plus, how the Jets stack up in terms of age and speed around the league, and evaluating the chances of top prospects winning a job.`\
 https://nytimes.com/athletic/6652332/2025/09/27/winnipeg-jets-training-camp-prospects-playoffs/
