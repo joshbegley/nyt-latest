@@ -1,3 +1,7 @@
+**What a Book of Excuses Reveals About the Democrats’ Future**\
+`Three Opinion writers weigh in on Kamala Harris’s campaign memoir.`\
+https://nytimes.com/video/opinion/100000010423765/what-a-book-of-excuses-reveals-about-the-democrats-future.html
+
 **Take ou college football quiz! What you need to know for Week 5**\
 `Test your pregame college football trivia knowledge and catch up on Penn State-Oregon, Georgia-Alabama, Ole Miss-LSU and more.`\
 https://nytimes.com/athletic/6665049/2025/09/27/college-football-games-trivia-week-5-quiz/
