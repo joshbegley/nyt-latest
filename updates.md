@@ -1,3 +1,11 @@
+**Inside the Red Sox playoff clinching celebration: 'It was a total team effort'**\
+`Boston’s major-league-leading 12th walk-off win clinched the team’s first spot in the postseason since 2021.`\
+https://nytimes.com/athletic/6667337/2025/09/27/red-sox-playoff-clinching-celebration/
+
+**College Football Playoff 2025 projections: Florida State drops with big Week 5 underway**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/09/27/college-football-playoff-bracket-projections-odds/
+
 **The Briefing: Brentford 3 Man Utd 1 - What next for Amorim? Should Fernandes be on penalties? Why the dire defending?**\
 `Manchester United woes continued with a calamitous defeat away to Brentford - The Athletic analyses the action`\
 https://nytimes.com/athletic/6664962/2025/09/27/brentford-3-manchester-united-1-amorim-fernandes-defending/
