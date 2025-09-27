@@ -1,3 +1,7 @@
+**The Briefing: Brentford 3 Man Utd 1 - What next for Amorim? Should Fernandes be on penalties? Why the dire defending?**\
+`Manchester United woes continued with a calamitous defeat away to Brentford - The Athletic analyses the action`\
+https://nytimes.com/athletic/6664962/2025/09/27/brentford-3-manchester-united-1-amorim-fernandes-defending/
+
 **Lorenzo Musetti apologizes for rant about Chinese fans in Beijing**\
 `The Italian said that his remarks about coughing spectators “were never in any way meant for the Chinese people.”`\
 https://nytimes.com/athletic/6667676/2025/09/27/lorenzo-musetti-comments-china-coughing-apology-tennis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/27/world/middleeast/gaza-hospitals-doctors-without-b
 **Trump’s Repeated Attacks May Undercut Case Against Comey**\
 `The president’s voluble vitriol could provide defense lawyers with an avenue to protect the very people he most wants to punish.`\
 https://nytimes.com/2025/09/27/us/politics/trump-comey-vindictive-prosecution.html
-
-**Yamal to return to Barcelona squad against Real Sociedad**\
-`The 18-year-old has been struggling with a groin injury and has not featured since playing for Spain against Bulgaria and Turkey.`\
-https://nytimes.com/athletic/6667754/2025/09/27/lamine-yamal-barcelona-injury-update/
 

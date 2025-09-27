@@ -1,3 +1,7 @@
+**Lorenzo Musetti apologizes for rant about Chinese fans in Beijing**\
+`The Italian said that his remarks about coughing spectators “were never in any way meant for the Chinese people.”`\
+https://nytimes.com/athletic/6667676/2025/09/27/lorenzo-musetti-comments-china-coughing-apology-tennis/
+
 **Willy Adames rescued his season, but Giants still have plenty to fix**\
 `After a slow start to his season, the shortstop is more or less delivering what the Giants anticipated when they bet big on him.`\
 https://nytimes.com/athletic/6667422/2025/09/27/willy-adames-san-francisco-giants-mlb/
