@@ -1,3 +1,11 @@
+**C.T.E. Looms Over Friday Night Lights**\
+`Parents revealed conflicting emotions after the finding that a gunman who killed four people in July had the brain disease that has been linked with football and other contact sports.`\
+https://nytimes.com/2025/09/27/us/cte-high-school-football.html
+
+**McIlroy facing verbal abuse at Ryder Cup**\
+`McIlroy directed an obscenity at a fan during his first match Saturday but has had many more shouted to him, along with personal insults.`\
+https://nytimes.com/athletic/6668557/2025/09/27/ryder-cup-rory-mcilroy-abused-bethpage-fans/
+
 **Mets place infielder Brett Baty on IL with right oblique injury**\
 `“It’s a big blow,” manager Carlos Mendoza said. “This is a guy who established himself in the everyday lineup.”`\
 https://nytimes.com/athletic/6668401/2025/09/27/mets-brett-baty-injured-list/

@@ -1,3 +1,11 @@
+**C.T.E. Looms Over Friday Night Lights**\
+`Parents revealed conflicting emotions after the finding that a gunman who killed four people in July had the brain disease that has been linked with football and other contact sports.`\
+https://nytimes.com/2025/09/27/us/cte-high-school-football.html
+
+**McIlroy facing verbal abuse at Ryder Cup**\
+`McIlroy directed an obscenity at a fan during his first match Saturday but has had many more shouted to him, along with personal insults.`\
+https://nytimes.com/athletic/6668557/2025/09/27/ryder-cup-rory-mcilroy-abused-bethpage-fans/
+
 **Mets place infielder Brett Baty on IL with right oblique injury**\
 `“It’s a big blow,” manager Carlos Mendoza said. “This is a guy who established himself in the everyday lineup.”`\
 https://nytimes.com/athletic/6668401/2025/09/27/mets-brett-baty-injured-list/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/27/world/middleeast/sanctions-iran-economy-snapback.
 **Mason McTavish, Anaheim Ducks agree to 6-year, $42 million contract**\
 `McTavish led the Ducks with 22 goals last season.`\
 https://nytimes.com/athletic/6668436/2025/09/27/mason-mctavish-ducks-contract/
-
-**Willson Contreras wants to remain with Cardinals: 'I like challenges'**\
-`Contreras, who has a no-trade clause, told incoming president of baseball operations Chaim Bloom that he wants to stay in St. Louis.`\
-https://nytimes.com/athletic/6668354/2025/09/27/willson-contreras-cardinals-future/
-
-**Stampede at Actor’s Political Rally Kills at Least 36 People in India**\
-`The stampede took place at an event for Joseph Vijay Chandrasekhar, the popular actor known professionally as Vijay. A health official said the toll was likely to rise.`\
-https://nytimes.com/2025/09/27/world/asia/stampede-vijay-rally-india.html
 

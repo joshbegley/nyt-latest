@@ -1,3 +1,7 @@
+**Postecoglou calls referee decision 'poor' before Sunderland's winner against Forest**\
+`The new Forest manager has not won a game yet in his five games in charge. `\
+https://nytimes.com/athletic/6668556/2025/09/27/ange-postecoglou-nottingham-forest-poor-decision-sunderland/
+
 **C.T.E. Looms Over Friday Night Lights**\
 `Parents revealed conflicting emotions after the finding that a gunman who killed four people in July had the brain disease that has been linked with football and other contact sports.`\
 https://nytimes.com/2025/09/27/us/cte-high-school-football.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6668370/2025/09/27/cubs-cade-horton-injured-list/
 **Iranians Brace for Economic Impact of New U.N. Sanctions**\
 `Already suffering a 40 percent inflation rate and critical shortages of power and water, many in Iran expect conditions to get worse.`\
 https://nytimes.com/2025/09/27/world/middleeast/sanctions-iran-economy-snapback.html
-
-**Mason McTavish, Anaheim Ducks agree to 6-year, $42 million contract**\
-`McTavish led the Ducks with 22 goals last season.`\
-https://nytimes.com/athletic/6668436/2025/09/27/mason-mctavish-ducks-contract/
 
