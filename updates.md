@@ -1,3 +1,7 @@
+**What to know about Scottie Scheffler, Bryson DeChambeau and their bad day at the Ryder Cup**\
+`Scheffler is the first reigning top-ranked player to go winless in both Friday matches of a Ryder Cup since Tiger Woods in 2002.`\
+https://nytimes.com/athletic/6666628/2025/09/26/ryder-cup-25-scheffler-dechambeau-what-to-know/
+
 **What to know about Scottie Scheffler, Bryson DeChambeu and their bad day at the Ryder Cup**\
 `Scheffler is the first reigning top-ranked player to go winless in both Friday matches of a Ryder Cup since Tiger Woods in 2002.`\
 https://nytimes.com/athletic/6666628/2025/09/26/ryder-cup-25-scheffler-dechambeau-what-to-know/
