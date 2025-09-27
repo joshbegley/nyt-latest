@@ -1,3 +1,11 @@
+**Willy Adames rescued his season, but Giants still have plenty to fix**\
+`After a slow start to his season, the shortstop is more or less delivering what the Giants anticipated when they bet big on him.`\
+https://nytimes.com/athletic/6667422/2025/09/27/willy-adames-san-francisco-giants-mlb/
+
+**F.B.I. Fires More Agents, Including Those Who Knelt During Racial Justice Protests**\
+`Agents group says the latest dismissals are part of a “dangerous pattern” of weakening the nation’s top law enforcement agency.`\
+https://nytimes.com/2025/09/27/us/politics/kash-patel-fbi-firing.html
+
 **How Moms Got Caught in Trump’s Cross Hairs**\
 `By Jessica Grose`\
 https://nytimes.com/2025/09/27/opinion/trump-blame-moms.html
