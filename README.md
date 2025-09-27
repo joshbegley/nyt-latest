@@ -2,7 +2,7 @@
 `If you wanted to understand how the Mets have lost 78 games this season, take a zoom lens to Friday’s bottom of the fifth inning.`\
 https://nytimes.com/athletic/6667135/2025/09/26/mets-wild-card-nl-mistakes/
 
-**College Football Playoff 2025 projections: Miami, Texas Tech rising in most likely bracket**\
+**College Football Playoff 2025 projections: Florida State drops with big Week 5 underway**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/09/26/college-football-playoff-bracket-projections-odds/
 

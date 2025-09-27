@@ -1,3 +1,15 @@
+**Familiar mistakes doom Mets as season nears the brink**\
+`If you wanted to understand how the Mets have lost 78 games this season, take a zoom lens to Friday’s bottom of the fifth inning.`\
+https://nytimes.com/athletic/6667135/2025/09/26/mets-wild-card-nl-mistakes/
+
+**College Football Playoff 2025 projections: Miami, Texas Tech rising in most likely bracket**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/09/26/college-football-playoff-bracket-projections-odds/
+
+**Virginia upsets Florida State 46-38 in double overtime thriller**\
+`Florida State's rocket back into the top 10 has quickly crashed.`\
+https://nytimes.com/athletic/6667159/2025/09/26/virginia-florida-state-acc-upset-double-overtime/
+
 **Virginia upsets Florida State, 46-38, in double overtime thriller**\
 `Florida State’s rocket back into the top 10 has quickly crashed.`\
 https://nytimes.com/athletic/6667159/2025/09/26/virginia-florida-state-acc-upset-double-overtime/
