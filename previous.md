@@ -1,5 +1,13 @@
+**Leo Gerard, Who Led a Growing Steelworkers Union, Dies at 78**\
+`He helped make it the largest industrial union in North America as he fought an influx of cheap metal from China and lobbied for anti-dumping tariffs.`\
+https://nytimes.com/2025/09/27/business/leo-gerard-dead.html
+
+**At Least 3 Killed in Arizona Flood That Swept Away Vehicles Overnight**\
+`The damage was concentrated in Globe, a small city east of Phoenix, where heavy rains overflowed a creek.`\
+https://nytimes.com/2025/09/27/us/arizona-globe-flood.html
+
 **Inside the Trump Administration’s Push to Prosecute James Comey**\
-`President Trump’s campaign of retribution began to intensify in mid-July and hit fever pitch over the last week, culminating in the indictment of one of his foremost enemies.`\
+`President Trump’s campaign of retribution began to intensify in mid-July and hit a fever pitch over the last week, culminating in the indictment of one of his foremost enemies.`\
 https://nytimes.com/2025/09/27/us/politics/trump-comey-justice-department.html
 
 **Jerome Cohen, Lawyer Who Saw a Future in China, Dies at 95**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6668552/2025/09/27/mlb-al-takeaways-yankees-guardia
 **Georgia Tech escapes Wake Forest upset in overtime, improves to 5-0**\
 `The Yellow Jackets stayed unbeaten after Clayton Powell-Lee intercepted a pass as Wake Forest went for a two-point conversion and the win.`\
 https://nytimes.com/athletic/6668722/2025/09/27/georgia-tech-wake-forest-upset-overtime/
-
-**Lowetide: Can Oilers prospect Noah Philp make the final step to the NHL?**\
-`Philp has played well enough through training camp and preseason to secure a spot on the Oilers' opening-night roster.`\
-https://nytimes.com/athletic/6668337/2025/09/27/oilers-prospect-noah-philp-nhl-roster/
-
-**Why Sam Pittman's buyout makes the timing of Arkansas' decision on his future key**\
-`How much would it cost to fire Pittman? For the reeling Razorbacks, it depends when it happens.`\
-https://nytimes.com/athletic/6668277/2025/09/27/arkansas-sam-pittman-contract-buyout/
 

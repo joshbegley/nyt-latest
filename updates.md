@@ -1,3 +1,15 @@
+**Leo Gerard, Who Led a Growing Steelworkers Union, Dies at 78**\
+`He helped make it the largest industrial union in North America as he fought an influx of cheap metal from China and lobbied for anti-dumping tariffs.`\
+https://nytimes.com/2025/09/27/business/leo-gerard-dead.html
+
+**At Least 3 Killed in Arizona Flood That Swept Away Vehicles Overnight**\
+`The damage was concentrated in Globe, a small city east of Phoenix, where heavy rains overflowed a creek.`\
+https://nytimes.com/2025/09/27/us/arizona-globe-flood.html
+
+**Inside the Trump Administration’s Push to Prosecute James Comey**\
+`President Trump’s campaign of retribution began to intensify in mid-July and hit a fever pitch over the last week, culminating in the indictment of one of his foremost enemies.`\
+https://nytimes.com/2025/09/27/us/politics/trump-comey-justice-department.html
+
 **Inside the Trump Administration’s Push to Prosecute James Comey**\
 `President Trump’s campaign of retribution began to intensify in mid-July and hit fever pitch over the last week, culminating in the indictment of one of his foremost enemies.`\
 https://nytimes.com/2025/09/27/us/politics/trump-comey-justice-department.html
