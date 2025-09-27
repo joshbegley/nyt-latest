@@ -3,7 +3,7 @@
 https://nytimes.com/2025/09/27/world/asia/jerome-cohen-dead.html
 
 **The Briefing: Tottenham 1 Wolves 1 - A late point, but a missed opportunity? Are injuries a growing concern? Why were Spurs so flat?**\
-`Jay Harris and Jack Pitt-Brooke analyse Spurs' Saturday night encounter with Wolves`\
+`Jay Harris and Jack Pitt-Brooke analyse Saturday night's encounter with the side propping up the Premier League table`\
 https://nytimes.com/athletic/6664998/2025/09/27/tottenham-wolves-premier-league-analysis/
 
 **Do Cubs, Padres have enough in rotation to win Wild Card Series? First look**\
