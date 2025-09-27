@@ -1,3 +1,7 @@
+**Dodgers reliever Brock Stewart to have surgery, ruled out for the postseason**\
+`The Dodgers' injury issues keep piling up, and Will Smith's availability for the Wild Card Series is in doubt.`\
+https://nytimes.com/athletic/6666596/2025/09/26/dodgers-brock-stewart-surgery-ruled-out-postseason/
+
 **Las Vegas Aces take 2-1 WNBA semifinals advantage, Indiana Fever on brink of elimination**\
 `Dana Evans took over with 10 points and five assists to give the Aces the spark they needed.`\
 https://nytimes.com/athletic/6667085/2025/09/26/las-vegas-aces-indiana-fever-wnba-game-3-semifinals/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/26/us/politics/trump-soros-foundations-donors.html
 **Braves take a flier on Alek Manoah, plan a send-off for Charlie Morton**\
 `Manoah joins the Braves after being claimed off waivers, Matt Olson wins Brave of the Year and more.`\
 https://nytimes.com/athletic/6666912/2025/09/26/braves-roster-alek-manoah-charlie-morton/
-
-**The Testimony at the Heart of the Comey Indictment, Examined**\
-`The charges against the former F.B.I. director center on an appearance he made before a Senate committee in September 2020. Here’s a closer look.`\
-https://nytimes.com/2025/09/26/us/politics/james-comey-testimony-trump.html
 
