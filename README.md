@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6667284/2025/09/27/reds-near-mlb-playoff-berth/
 `Also: The Patriots' focus on the football, the Chargers' offensive changes and how your favorite NFL coach takes his coffee`\
 https://nytimes.com/athletic/6666465/2025/09/27/nfl-rumors-news-jaxson-dart-brian-daboll-c-j-stroud-texans/
 
-**Inside the Red Sox playoff clinching celebration: 'It was a total team effort'**\
+**Inside the Red Sox playoff-clinching celebration: 'It was a total team effort'**\
 `Boston’s major-league-leading 12th walk-off win clinched the team’s first spot in the postseason since 2021.`\
 https://nytimes.com/athletic/6667337/2025/09/27/red-sox-playoff-clinching-celebration/
 
