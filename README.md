@@ -1,3 +1,11 @@
+**Yankees beat Orioles to stay in AL East title hunt as MLB playoff race continues**\
+`There's a full slate of AL games Saturday with postseason ramifications.`\
+https://nytimes.com/athletic/6668552/2025/09/27/mlb-al-takeaways-yankees-guardians-tigers/
+
+**Georgia Tech escapes Wake Forest upset in overtime, keeps postseason hopes alive**\
+`Georgia Tech, trailing 20-3 in the third quarter, scored 17 straight points to tie it.`\
+https://nytimes.com/athletic/6668722/2025/09/27/georgia-tech-wake-forest-upset-overtime/
+
 **Lowetide: Can Oilers prospect Noah Philp make the final step to the NHL?**\
 `Philp has played well enough through training camp and preseason to secure a spot on the Oilers' opening-night roster.`\
 https://nytimes.com/athletic/6668337/2025/09/27/oilers-prospect-noah-philp-nhl-roster/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6668401/2025/09/27/mets-brett-baty-injured-list/
 **Neil Kraft, Visionary Adman Who Sold ‘a Mood and a Lifestyle,’ Dies at 67**\
 `His ads for Calvin Klein and others captured a fizzy moment in the 1980s and ’90s, featuring celebrities like the young rapper Marky Mark wearing nothing but underwear and a grin.`\
 https://nytimes.com/2025/09/27/business/media/neil-kraft-dead.html
-
-**Liverpool 'can only blame ourselves' for Crystal Palace loss, Slot says**\
-`The Premier League champions conceded in the 97th minute after Chiesa had cancelled out Sarr's early goal.`\
-https://nytimes.com/athletic/6668423/2025/09/27/liverpool-arne-slot-blame-ourselves-crystal-palace-loss/
-
-**Yankees' Jazz Chisholm Jr. exits game in clear pain after hit by pitch**\
-`New York's second baseman got drilled on his left forearm by a 97 mph sinker from Grant Wolfram.`\
-https://nytimes.com/athletic/6668447/2025/09/27/yankees-jazz-chisholm-leaves-game-hit-by-pitch/
 
