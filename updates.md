@@ -1,3 +1,7 @@
+**Detroit Tigers clinch playoff berth despite second-half slide**\
+`At the end of a brutal second half, the Tigers snuck in the playoffs with a win at Fenway Park.`\
+https://nytimes.com/athletic/6666619/2025/09/27/detroit-tigers-clinch-mlb-postseason-berth/
+
 **How to watch Mets at Marlins: Time, TV, streaming for September 28**\
 `Find out how to watch the New York Mets play the Miami Marlins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6668899/2025/09/27/mets-vs-marlins-stream-how-to-watch-sept-28/

@@ -1,3 +1,12 @@
+**Yankees' 4 keys to winning Game 162 and keeping AL East dream alive**\
+`The Yankees have to beat the Baltimore Orioles, who don't seem likely to make it easy for them. Here's how they could do it.
+`\
+https://nytimes.com/athletic/6668871/2025/09/27/yankees-keys-win-game-162-al-east/
+
+**Trader Joe’s and Walmart Frozen Meals May Have Listeria Linked to Outbreak**\
+`The outbreak has killed four people and spread to 15 states, with officials linking it to frozen pasta meals sold at Walmart and Kroger.`\
+https://nytimes.com/2025/09/27/us/listeria-outbreak-trader-joes-fettuccine-alfredo.html
+
 **Detroit Tigers clinch playoff berth despite second-half slide**\
 `At the end of a brutal second half, the Tigers snuck in the playoffs with a win at Fenway Park.`\
 https://nytimes.com/athletic/6666619/2025/09/27/detroit-tigers-clinch-mlb-postseason-berth/
@@ -29,12 +38,4 @@ https://nytimes.com/2025/09/27/business/leo-gerard-dead.html
 **At Least 3 Killed in Arizona Flood That Swept Away Vehicles Overnight**\
 `The damage was concentrated in Globe, a small city east of Phoenix, where heavy rains overflowed a creek.`\
 https://nytimes.com/2025/09/27/us/arizona-globe-flood.html
-
-**Inside the Trump Administration’s Push to Prosecute James Comey**\
-`President Trump’s campaign of retribution began to intensify in mid-July and hit a fever pitch over the last week, culminating in the indictment of one of his foremost enemies.`\
-https://nytimes.com/2025/09/27/us/politics/trump-comey-justice-department.html
-
-**Jerome Cohen, Lawyer Who Saw a Future in China, Dies at 95**\
-`After pioneering the study of Chinese law in America, he was among the first foreigners to practice commercial law in China, and spoke out about human rights.`\
-https://nytimes.com/2025/09/27/world/asia/jerome-cohen-dead.html
 

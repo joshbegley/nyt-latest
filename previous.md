@@ -1,3 +1,7 @@
+**Detroit Tigers clinch playoff berth despite second-half slide**\
+`At the end of a brutal second half, the Tigers snuck in the playoffs with a win at Fenway Park.`\
+https://nytimes.com/athletic/6666619/2025/09/27/detroit-tigers-clinch-mlb-postseason-berth/
+
 **How to watch Mets at Marlins: Time, TV, streaming for September 28**\
 `Find out how to watch the New York Mets play the Miami Marlins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6668899/2025/09/27/mets-vs-marlins-stream-how-to-watch-sept-28/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/27/us/politics/trump-comey-justice-department.html
 **Jerome Cohen, Lawyer Who Saw a Future in China, Dies at 95**\
 `After pioneering the study of Chinese law in America, he was among the first foreigners to practice commercial law in China, and spoke out about human rights.`\
 https://nytimes.com/2025/09/27/world/asia/jerome-cohen-dead.html
-
-**The Briefing: Tottenham 1 Wolves 1 - A late point, but a missed opportunity? Are injuries a growing concern? Why were Spurs so flat?**\
-`Jay Harris and Jack Pitt-Brooke analyse Saturday night's encounter with the side propping up the Premier League table`\
-https://nytimes.com/athletic/6664998/2025/09/27/tottenham-wolves-premier-league-analysis/
 
