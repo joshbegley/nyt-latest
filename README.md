@@ -1,3 +1,7 @@
+**How Moms Got Caught in Trump’s Cross Hairs**\
+`By Jessica Grose`\
+https://nytimes.com/2025/09/27/opinion/trump-blame-moms.html
+
 **MLB playoff watch: Red Sox secure first spot since 2021; bracket, clinching scenarios**\
 `Plus chaos in the AL Central and the NL Wild Card.`\
 https://nytimes.com/athletic/6665949/2025/09/27/mlb-playoff-watch-red-sox-clinch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6663700/2025/09/27/lakers-roster-changes-lineup-ayt
 **Rutherford: What Dom got wrong in his projection for the Blues in 2025-26**\
 `The Athletic's preseason prediction for the Blues is 90.3 points. The numbers are the numbers, but there are reasons why they'll be better.`\
 https://nytimes.com/athletic/6662096/2025/09/27/blues-2025-26-point-projection-nhl/
-
-**Requiem for the NHL fitness test: Why some lament the end of whammies, sprints and the 'Torts Test'**\
-`Under the new CBA, training-camp fitness testing will no longer be permitted starting next year. Here's players' feelings on the change.`\
-https://nytimes.com/athletic/6662186/2025/09/27/nhl-training-camp-fitness-testing-requiem/
 
