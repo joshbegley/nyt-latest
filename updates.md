@@ -1,3 +1,7 @@
+**The Commanders told Marcus Mariota, 'Be you.' It helped change his career**\
+`An NFL career of extreme highs and lows will have another memorable entry when Mariota returns to Atlanta as Washington's starting QB.`\
+https://nytimes.com/athletic/6667918/2025/09/27/marcus-mariota-commanders-qb-atlanta/
+
 **Inside the Red Sox playoff-clinching celebration: 'It was a total team effort'**\
 `Boston’s major-league-leading 12th walk-off win clinched the team’s first spot in the postseason since 2021.`\
 https://nytimes.com/athletic/6667337/2025/09/27/red-sox-playoff-clinching-celebration/

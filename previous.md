@@ -1,3 +1,7 @@
+**The Commanders told Marcus Mariota, 'Be you.' It helped change his career**\
+`An NFL career of extreme highs and lows will have another memorable entry when Mariota returns to Atlanta as Washington's starting QB.`\
+https://nytimes.com/athletic/6667918/2025/09/27/marcus-mariota-commanders-qb-atlanta/
+
 **'Everything comes crashing down' for the Astros, who are on the brink of playoff elimination**\
 `One more win by either the Guardians or Tigers will eliminate the Astros from playoff contention for the first time in nine years.`\
 https://nytimes.com/athletic/6667389/2025/09/27/astros-brink-playoff-elimination/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6667422/2025/09/27/willy-adames-san-francisco-giant
 **F.B.I. Fires More Agents, Including Those Who Knelt During Racial Justice Protests**\
 `Agents group says the latest dismissals are part of a “dangerous pattern” of weakening the nation’s top law enforcement agency.`\
 https://nytimes.com/2025/09/27/us/politics/kash-patel-fbi-firing.html
-
-**How Moms Got Caught in Trump’s Cross Hairs**\
-`By Jessica Grose`\
-https://nytimes.com/2025/09/27/opinion/trump-blame-moms.html
 
