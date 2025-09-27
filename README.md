@@ -1,3 +1,11 @@
+**Willy Adames rescued his season, but Giants still have plenty to fix**\
+`After a slow start to his season, the shortstop is more or less delivering what the Giants anticipated when they bet big on him.`\
+https://nytimes.com/athletic/6667422/2025/09/27/willy-adames-san-francisco-giants-mlb/
+
+**F.B.I. Fires More Agents, Including Those Who Knelt During Racial Justice Protests**\
+`Agents group says the latest dismissals are part of a “dangerous pattern” of weakening the nation’s top law enforcement agency.`\
+https://nytimes.com/2025/09/27/us/politics/kash-patel-fbi-firing.html
+
 **How Moms Got Caught in Trump’s Cross Hairs**\
 `By Jessica Grose`\
 https://nytimes.com/2025/09/27/opinion/trump-blame-moms.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6667754/2025/09/27/lamine-yamal-barcelona-injury-up
 **Are the Jets built for playoff hockey? Prospect timelines? Mailbag, Part 1**\
 `Plus, how the Jets stack up in terms of age and speed around the league, and evaluating the chances of top prospects winning a job.`\
 https://nytimes.com/athletic/6652332/2025/09/27/winnipeg-jets-training-camp-prospects-playoffs/
-
-**Assessing the new-look Lakers after a year of upheaval**\
-`The Lakers won't look much like they did to start last season — and more change could be coming soon.`\
-https://nytimes.com/athletic/6663700/2025/09/27/lakers-roster-changes-lineup-ayton-doncic/
-
-**Rutherford: What Dom got wrong in his projection for the Blues in 2025-26**\
-`The Athletic's preseason prediction for the Blues is 90.3 points. The numbers are the numbers, but there are reasons why they'll be better.`\
-https://nytimes.com/athletic/6662096/2025/09/27/blues-2025-26-point-projection-nhl/
 

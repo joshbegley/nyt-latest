@@ -1,3 +1,7 @@
+**How Moms Got Caught in Trump’s Cross Hairs**\
+`By Jessica Grose`\
+https://nytimes.com/2025/09/27/opinion/trump-blame-moms.html
+
 **MLB playoff watch: Red Sox secure first spot since 2021; bracket, clinching scenarios**\
 `Plus chaos in the AL Central and the NL Wild Card.`\
 https://nytimes.com/athletic/6665949/2025/09/27/mlb-playoff-watch-red-sox-clinch/
