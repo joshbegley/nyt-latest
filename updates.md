@@ -1,3 +1,7 @@
+**How to watch Rockies at Giants: Time, TV, streaming for September 27**\
+`Find out how to watch the Colorado Rockies play the San Francisco Giants, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6667649/2025/09/27/rockies-vs-giants-stream-how-to-watch-sept-27/
+
 **Banner Year**\
 `Milestone birthdays occasion consideration of what we’ve done with our lives, and what we want to do with the time to come.`\
 https://nytimes.com/2025/09/27/briefing/banner-year.html

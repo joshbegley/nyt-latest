@@ -1,3 +1,7 @@
+**How to watch Rockies at Giants: Time, TV, streaming for September 27**\
+`Find out how to watch the Colorado Rockies play the San Francisco Giants, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6667649/2025/09/27/rockies-vs-giants-stream-how-to-watch-sept-27/
+
 **Banner Year**\
 `Milestone birthdays occasion consideration of what we’ve done with our lives, and what we want to do with the time to come.`\
 https://nytimes.com/2025/09/27/briefing/banner-year.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6667167/2025/09/27/tigers-red-sox-missed-opportunit
 **Ravens defensive coordinator Zach Orr again under fire as Patrick Mahomes awaits**\
 `Orr faces mounting pressure as Baltimore's defense struggles, with critics questioning his leadership ahead of another Chiefs clash.`\
 https://nytimes.com/athletic/6666388/2025/09/27/ravens-chiefs-zach-orr-under-fire/
-
-**Shinzawa: Connor McDavid to the Bruins? Dream on**\
-`McDavid would undoubtedly find satisfaction in leading an Original Six turnaround. But the Bruins need time. McDavid wants it now.`\
-https://nytimes.com/athletic/6665691/2025/09/27/connor-mcdavid-bruins-fit/
 
