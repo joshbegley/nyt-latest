@@ -1,3 +1,7 @@
+**Inside the Red Sox playoff-clinching celebration: 'It was a total team effort'**\
+`Boston’s major-league-leading 12th walk-off win clinched the team’s first spot in the postseason since 2021.`\
+https://nytimes.com/athletic/6667337/2025/09/27/red-sox-playoff-clinching-celebration/
+
 **'Everything comes crashing down' for the Astros, who are on the brink of playoff elimination**\
 `One more win by either the Guardians or Tigers will eliminate the Astros from playoff contention for the first time in nine years.`\
 https://nytimes.com/athletic/6667389/2025/09/27/astros-brink-playoff-elimination/
