@@ -1,3 +1,11 @@
+**Virginia upsets Florida State, 46-38, in double overtime thriller**\
+`Florida State’s rocket back into the top 10 has quickly crashed.`\
+https://nytimes.com/athletic/6667159/2025/09/26/virginia-florida-state-acc-upset-double-overtime/
+
+**AL playoff race takeaways: Red Sox clinch playoff berth, Blue Jays and Yankees stay atop East**\
+`Boston clinches its first postseason berth since 2021, and Toronto and New York are tied for first in the East with two games remaining.`\
+https://nytimes.com/athletic/6666613/2025/09/26/mlb-al-wild-card-playoff-race-takeaways/
+
 **AL playoff race takeaways: Red Sox clinch playoff berth, Blue Jays and Yankees stay atop East**\
 `Boston clinches first postseason berth since 2021, while Toronto and New York are tied for first in the East with two games remaining.`\
 https://nytimes.com/athletic/6666613/2025/09/26/mlb-al-wild-card-playoff-race-takeaways/

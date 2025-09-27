@@ -1,5 +1,9 @@
+**Virginia upsets Florida State, 46-38, in double overtime thriller**\
+`Florida State’s rocket back into the top 10 has quickly crashed.`\
+https://nytimes.com/athletic/6667159/2025/09/26/virginia-florida-state-acc-upset-double-overtime/
+
 **AL playoff race takeaways: Red Sox clinch playoff berth, Blue Jays and Yankees stay atop East**\
-`Boston clinches first postseason berth since 2021, while Toronto and New York are tied for first in the East with two games remaining.`\
+`Boston clinches its first postseason berth since 2021, and Toronto and New York are tied for first in the East with two games remaining.`\
 https://nytimes.com/athletic/6666613/2025/09/26/mlb-al-wild-card-playoff-race-takeaways/
 
 **Dodgers reliever Brock Stewart to have surgery, ruled out for the postseason**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/26/crosswords/daily-puzzle-2025-09-27.html
 **Trump Administration Asks Supreme Court to Allow End of Birthright Citizenship**\
 `Government lawyers asked the justices to clear the way for the president’s executive order ending birthright citizenship.`\
 https://nytimes.com/2025/09/26/us/politics/supreme-court-birthright-citizenship.html
-
-**Trump’s Targeting of Soros Foundations Sparks Fear and Defiance on Left**\
-`Facing a nascent administration investigation, Alex Soros privately pledged that the Open Society Foundations would back down only “over my dead body.”`\
-https://nytimes.com/2025/09/26/us/politics/trump-soros-foundations-donors.html
 
