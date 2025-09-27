@@ -1,3 +1,11 @@
+**Mason McTavish, Anaheim Ducks agree to 6-year, $42 million contract**\
+`McTavish led the Ducks with 22 goals last season.`\
+https://nytimes.com/athletic/6668436/2025/09/27/mason-mctavish-ducks-contract/
+
+**Willson Contreras wants to remain with Cardinals: 'I like challenges'**\
+`Contreras, who has a no-trade clause, told incoming president of baseball operations Chaim Bloom that he wants to stay in St. Louis.`\
+https://nytimes.com/athletic/6668354/2025/09/27/willson-contreras-cardinals-future/
+
 **Stampede at Actor’s Political Rally Kills at Least 36 People in India**\
 `The stampede took place at an event for Joseph Vijay Chandrasekhar, the popular actor known professionally as Vijay. A health official said the toll was likely to rise.`\
 https://nytimes.com/2025/09/27/world/asia/stampede-vijay-rally-india.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/27/us/politics/trump-portland-troops.html
 **Atletico 5 Real Madrid 2 - Was this Alvarez's revenge? How big a setback is this for Alonso? Mbappe best as a No 9?**\
 `Xabi Alonso's team suffered an embarrassing defeat to their cross-city rivals`\
 https://nytimes.com/athletic/6664999/2025/09/27/atletico-5-real-madrid-2-alvarez-alonso-mbappe/
-
-**The Briefing: Crystal Palace 2 Liverpool 1 - Nketiah's late winner, set-piece concerns for the champions**\
-`Liverpool lose for the first time in the 2025-26 Premier League as the home side score in added time to secure a memorable win`\
-https://nytimes.com/athletic/6664965/2025/09/27/crystal-palace-beat-liverpool-premier-league-briefing/
-
-**The Briefing: Chelsea 1 Brighton 3 - Are Maresca's side their own worst enemies? Is it time for Disasi to be recalled?**\
-`Simon Johnson analyses a disappointing home defeat for Chelsea against Brighton and Hove Albion on Saturday`\
-https://nytimes.com/athletic/6664964/2025/09/27/chelsea-brighton-premier-league-analysis/
 
