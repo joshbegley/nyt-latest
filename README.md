@@ -1,3 +1,7 @@
+**AL playoff race takeaways: Red Sox clinch playoff berth, Blue Jays and Yankees stay atop East**\
+`Boston clinches first postseason berth since 2021, while Toronto and New York are tied for first in the East with two games remaining.`\
+https://nytimes.com/athletic/6666613/2025/09/26/mlb-al-wild-card-playoff-race-takeaways/
+
 **Dodgers reliever Brock Stewart to have surgery, ruled out for the postseason**\
 `The Dodgers' injury issues keep piling up, and Will Smith's availability for the Wild Card Series is in doubt.`\
 https://nytimes.com/athletic/6666596/2025/09/26/dodgers-brock-stewart-surgery-ruled-out-postseason/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6666596/2025/09/26/dodgers-brock-stewart-surgery-ru
 `Dana Evans took over with 10 points and five assists to give the Aces the spark they needed.`\
 https://nytimes.com/athletic/6667085/2025/09/26/las-vegas-aces-indiana-fever-wnba-game-3-semifinals/
 
-**NL playoff race: Mets' defense collapses vs. Marlins amid wild-card chase**\
+**NL playoff race: Reds take control of their destiny, Mets' defense collapses**\
 `The Mets did themselves no favors in their NL wild-card chase with a 6-2 loss to the Marlins on Friday night.`\
 https://nytimes.com/athletic/6667070/2025/09/26/mlb-nl-wild-card-playoff-race-takeaways/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/26/us/politics/supreme-court-birthright-citizenship.
 **Trump’s Targeting of Soros Foundations Sparks Fear and Defiance on Left**\
 `Facing a nascent administration investigation, Alex Soros privately pledged that the Open Society Foundations would back down only “over my dead body.”`\
 https://nytimes.com/2025/09/26/us/politics/trump-soros-foundations-donors.html
-
-**Braves take a flier on Alek Manoah, plan a send-off for Charlie Morton**\
-`Manoah joins the Braves after being claimed off waivers, Matt Olson wins Brave of the Year and more.`\
-https://nytimes.com/athletic/6666912/2025/09/26/braves-roster-alek-manoah-charlie-morton/
 
