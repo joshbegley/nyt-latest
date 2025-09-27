@@ -1,3 +1,11 @@
+**The U.S. will need to take down Rory McIlroy to win the Ryder Cup**\
+`The Europeans spent the day taking the New York out of the New Yorkers, leaving the Bethpage Black environment best described as subdued.`\
+https://nytimes.com/athletic/6666637/2025/09/26/rory-mcilroy-ryder-cup-europe/
+
+**Justice Department Seeks Information on Georgia D.A. Who Prosecuted Trump**\
+`Federal investigators have subpoenaed records related to travel they believe Fani Willis took around the time of last year’s election, but it was not immediately clear why.`\
+https://nytimes.com/2025/09/26/us/justice-department-fani-willis-trump.html
+
 **Trump Orders Unsealing of All Files on Amelia Earhart and Her Disappearance**\
 `The president, who is under pressure to release files on Jeffrey Epstein, has previously called for the unsealing of documents related to the assassinations of other prominent historical figures.`\
 https://nytimes.com/2025/09/26/us/politics/trump-orders-unsealing-of-all-files-on-amelia-earhart-and-her-disappearance.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/26/business/electronic-arts-buyout-jared-kushner.htm
 **Trump Believes ‘We Have a Deal’ on Gaza. But a Host of Obstacles Remain.**\
 `Whether President Trump can help bring the war to an end will probably depend on how much he is willing to push Benjamin Netanyahu.`\
 https://nytimes.com/2025/09/26/us/politics/trump-gaza-deal.html
-
-**Texas Tech Moves to Limit Academic Discussion to 2 Genders**\
-`The university system said faculty must comply with President Trump’s order recognizing only two genders, possibly a first for a major public institution of higher education.`\
-https://nytimes.com/2025/09/26/us/politics/texas-tech-gender.html
-
-**Kyle Tucker returns, PCA reaches 30-30 and Cubs inch closer to hosting playoff games**\
-`Crow-Armstrong matches a feat last accomplished by Sammy Sosa in 1995.`\
-https://nytimes.com/athletic/6666550/2025/09/26/kyle-tucker-pete-crow-armstrong-cubs-wild-card/
 

@@ -1,3 +1,11 @@
+**The U.S. will need to take down Rory McIlroy to win the Ryder Cup**\
+`The Europeans spent the day taking the New York out of the New Yorkers, leaving the Bethpage Black environment best described as subdued.`\
+https://nytimes.com/athletic/6666637/2025/09/26/rory-mcilroy-ryder-cup-europe/
+
+**Justice Department Seeks Information on Georgia D.A. Who Prosecuted Trump**\
+`Federal investigators have subpoenaed records related to travel they believe Fani Willis took around the time of last year’s election, but it was not immediately clear why.`\
+https://nytimes.com/2025/09/26/us/justice-department-fani-willis-trump.html
+
 **Trump Orders Unsealing of All Files on Amelia Earhart and Her Disappearance**\
 `The president, who is under pressure to release files on Jeffrey Epstein, has previously called for the unsealing of documents related to the assassinations of other prominent historical figures.`\
 https://nytimes.com/2025/09/26/us/politics/trump-orders-unsealing-of-all-files-on-amelia-earhart-and-her-disappearance.html

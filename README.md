@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6666637/2025/09/26/rory-mcilroy-ryder-cup-europe/
 https://nytimes.com/2025/09/26/us/justice-department-fani-willis-trump.html
 
 **Trump Orders Unsealing of All Files on Amelia Earhart and Her Disappearance**\
-`The president, who is under pressure to release files on Jeffrey Epstein, has previously called for the unsealing of documents related to the assassinations of other prominent historical figures.`\
+`The president has called for the unsealing of documents related to the deaths of prominent historical figures like John and Robert Kennedy and Martin Luther King.`\
 https://nytimes.com/2025/09/26/us/politics/trump-orders-unsealing-of-all-files-on-amelia-earhart-and-her-disappearance.html
 
 **How to watch White Sox at Nationals: Time, TV, streaming for September 27**\
