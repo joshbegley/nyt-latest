@@ -1,3 +1,11 @@
+**A Minimalist Pasta That Maximizes Garlic**\
+`Carolina Gelen’s one-pot roasted garlic pasta goes big on garlic, not on cook time.`\
+https://nytimes.com/2025/09/27/dining/a-minimalist-pasta-that-maximizes-garlic.html
+
+**'Everything comes crashing down' for the Astros, who are on the brink of playoff elimination**\
+`One more win by both the Guardians and Tigers will eliminate the Astros from playoff contention for the first time in nine years.`\
+https://nytimes.com/athletic/6667389/2025/09/27/astros-brink-playoff-elimination/
+
 **The Commanders told Marcus Mariota, 'Be you.' It helped change his career**\
 `An NFL career of extreme highs and lows will have another memorable entry when Mariota returns to Atlanta as Washington's starting QB.`\
 https://nytimes.com/athletic/6667918/2025/09/27/marcus-mariota-commanders-qb-atlanta/
