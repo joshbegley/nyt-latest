@@ -1,3 +1,8 @@
+**Yankees' 4 keys to winning Game 162 and keeping AL East dream alive**\
+`The Yankees have to beat the Baltimore Orioles, who don't seem likely to make it easy for them. Here's how they could do it.
+`\
+https://nytimes.com/athletic/6668871/2025/09/27/yankees-keys-win-game-162-al-east/
+
 **NL playoff race: Cubs clinch home-field advantage in wild-card round**\
 `The Mets beat the Marlins 5-0 to stay competitive in the race for the final NL wild-card spot. They have a half-game lead over the Reds.`\
 https://nytimes.com/athletic/6668721/2025/09/27/nl-wild-card-playoff-race-takeaways/
