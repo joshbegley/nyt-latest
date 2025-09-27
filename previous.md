@@ -1,3 +1,11 @@
+**Do Cubs, Padres have enough in rotation to win Wild Card Series? First look**\
+`The Cubs will host the Padres in a series between two teams with starting pitching concerns.`\
+https://nytimes.com/athletic/6666980/2025/09/27/cubs-padres-preview-wild-card/
+
+**Lynx coach Cheryl Reeve suspended for Game 4 following ejection during loss to Mercury**\
+`The Lynx are looking to stave off elimination and force a Game 5, which would be back in Minnesota.`\
+https://nytimes.com/athletic/6668738/2025/09/27/cheryl-reeve-suspension-lynx-wnba-playoffs/
+
 **Ravens place DT Nnamdi Madubuike on IR with neck injury**\
 `Madubuike, 27, hurt his neck in Baltimore's 41-17 Week 2 victory over the Browns.`\
 https://nytimes.com/athletic/6647098/2025/09/27/ravens-nnamdi-madubuike-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6668556/2025/09/27/ange-postecoglou-nottingham-fore
 **C.T.E. Looms Over Friday Night Lights**\
 `Parents revealed conflicting emotions after the finding that a gunman who killed four people in July had the brain disease that has been linked with football and other contact sports.`\
 https://nytimes.com/2025/09/27/us/cte-high-school-football.html
-
-**McIlroy facing verbal abuse at Ryder Cup**\
-`McIlroy directed an obscenity at a fan during his first match Saturday but has had many more shouted to him, along with personal insults.`\
-https://nytimes.com/athletic/6668557/2025/09/27/ryder-cup-rory-mcilroy-abused-bethpage-fans/
-
-**Mets place infielder Brett Baty on IL with right oblique injury**\
-`“It’s a big blow,” manager Carlos Mendoza said. “This is a guy who established himself in the everyday lineup.”`\
-https://nytimes.com/athletic/6668401/2025/09/27/mets-brett-baty-injured-list/
 

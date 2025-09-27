@@ -1,3 +1,11 @@
+**Do Cubs, Padres have enough in rotation to win Wild Card Series? First look**\
+`The Cubs will host the Padres in a series between two teams with starting pitching concerns.`\
+https://nytimes.com/athletic/6666980/2025/09/27/cubs-padres-preview-wild-card/
+
+**Lynx coach Cheryl Reeve suspended for Game 4 following ejection during loss to Mercury**\
+`The Lynx are looking to stave off elimination and force a Game 5, which would be back in Minnesota.`\
+https://nytimes.com/athletic/6668738/2025/09/27/cheryl-reeve-suspension-lynx-wnba-playoffs/
+
 **Ravens place DT Nnamdi Madubuike on IR with neck injury**\
 `Madubuike, 27, hurt his neck in Baltimore's 41-17 Week 2 victory over the Browns.`\
 https://nytimes.com/athletic/6647098/2025/09/27/ravens-nnamdi-madubuike-injury/
