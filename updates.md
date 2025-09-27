@@ -1,3 +1,7 @@
+**Dodgers reliever Brock Stewart to have surgery, ruled out for the postseason**\
+`The Dodgers' injury issues keep piling up, and Will Smith's availability for the Wild Card Series is in doubt.`\
+https://nytimes.com/athletic/6666596/2025/09/26/dodgers-brock-stewart-surgery-ruled-out-postseason/
+
 **Las Vegas Aces take 2-1 WNBA semifinals advantage, Indiana Fever on brink of elimination**\
 `Dana Evans took over with 10 points and five assists to give the Aces the spark they needed.`\
 https://nytimes.com/athletic/6667085/2025/09/26/las-vegas-aces-indiana-fever-wnba-game-3-semifinals/
