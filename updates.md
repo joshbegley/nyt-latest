@@ -1,3 +1,11 @@
+**Justin Fields clears concussion protocol, will start for Jets on Monday night**\
+`The quarterback missed the Jets' Week 3 game in Tampa Bay.`\
+https://nytimes.com/athletic/6662279/2025/09/27/justin-fields-new-york-jets-clears-consussion-protocol/
+
+**The Briefing: Leeds 2 Bournemouth 2 - What happened to Aaronson's draft excluder? Did Adams deserve boos? Longstaff's impact**\
+`Another late, late goal cost Leeds three points at home to Bournemouth - The Athletic breaks down the action`\
+https://nytimes.com/athletic/6664966/2025/09/27/leeds-2-bournemouth-2-aaronson-draft-excluder-adams-longstaff/
+
 **Canada's rugby pioneer Olivia DeMerchant's journey back to the World Cup final**\
 `"I actually had to pay to play and live in England the first year I came over in 2013," DeMerchant told The Athletic.`\
 https://nytimes.com/athletic/6667796/2025/09/27/canada-england-rugby-world-cup-olivia-demerchant/
