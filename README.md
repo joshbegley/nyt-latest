@@ -1,40 +1,40 @@
-**Potter sacked by West Ham after eight months in charge**\
-`Potter only won six of his 25 games with the club.`\
-https://nytimes.com/athletic/6570166/2025/09/27/graham-potter-west-ham-sacked/
+**Banner Year**\
+`Milestone birthdays occasion consideration of what we’ve done with our lives, and what we want to do with the time to come.`\
+https://nytimes.com/2025/09/27/briefing/banner-year.html
 
-**Sean Penn Let Himself Get Away With Things for 15 Years. Not Anymore.**\
-`The actor and instigator is ready for his renaissance.`\
-https://nytimes.com/2025/09/27/magazine/sean-penn-interview.html
+**Eagles notes: Change in travel plans, replacing Nolan Smith, Kelee Ringo's opportunity**\
+`Also, Jordan Davis dishes on his rare award win and the Eagles offense reveals key adjustments in the comeback win over the Rams.`\
+https://nytimes.com/athletic/6666266/2025/09/27/eagles-bucs-week-4-kelee-ringo-nolan-smith/
 
-**Raptors GM Bobby Webster enters first season without the luxury of patience**\
-`With expensive contracts throughout the starting lineup, the new Raptors boss needs to be decisive.`\
-https://nytimes.com/athletic/6666205/2025/09/27/bobby-webster-raptors-gm-media-day/
+**India Detains Popular Leader of Protest Movement**\
+`Sonam Wangchuk, who was arrested on Friday, is the face of resistance to what he says is government overreach in a small but strategically important Himalayan region.`\
+https://nytimes.com/2025/09/27/world/asia/india-ladakh-protests-sonam-wangchuk.html
 
-**Netanyahu’s Defiant U.N. Speech Aimed at Home as Well as the World**\
-`The Israeli prime minister faced walkouts and protests at the United Nations but sent a message to his political base that he won’t bend to international pressure.`\
-https://nytimes.com/2025/09/27/world/middleeast/israel-netanyahu-united-nations.html
+**NFL Week 4 roundtable: Vikings-Steelers in Ireland, Colts' hot start, Micah Parsons vs. Cowboys**\
+`Sunday starts with a showdown in Dublin and ends with Parsons facing his old team one month after being traded. Our writers discuss.`\
+https://nytimes.com/athletic/6665587/2025/09/27/nfl-week-4-roundtable-vikings-steelers-ireland-micah-parsons-cowboys-packers/
 
-**The Debate Style That Propelled Charlie Kirk’s Movement**\
-`A close read of some of Mr. Kirk’s most viral exchanges shows an approach that was polished and skillful — if not always fair.`\
-https://nytimes.com/interactive/2025/09/27/us/politics/charlie-kirk-debate.html
+**Getting Down and Dirty at Versace**\
+`Dario Vitale reinvents the brand with sex, suggestion and a bit of fun.`\
+https://nytimes.com/2025/09/27/style/versace-dario-vitale.html
 
-**Home Builders, and Homeowners, Brace for Impact of Kitchen Tariffs**\
-`President Trump’s plan for import taxes on foreign-made cabinets, vanities and furniture is reverberating through the industry.`\
-https://nytimes.com/2025/09/27/realestate/trump-tariffs-cabinets-vanities.html
+**'We're focused on us': Guardians' path to playoff spot, AL Central title becomes clearer**\
+`"It's nice that that game went the way it did, but we are in control of our own destiny," Slade Cecconi said.`\
+https://nytimes.com/athletic/6667140/2025/09/27/guardians-mlb-playoff-spot-al-central/
 
-**The Human Cost of U.S. Aid Cuts**\
-`The Trump administration’s decision to slash foreign aid has led to the deaths of thousands of children, a reality that officials continue to deny. In our latest video, @nytopinion columnist Nicholas Kristof reports from Uganda on a crisis that is only getting worse.`\
-https://nytimes.com/video/opinion/100000010422702/the-human-cost-of-us-aid-cuts.html
+**Nathan Lukes and the Blue Jays' role players help keep the division race tied**\
+`With two games to play, Bo Bichette injured and Vladimir Guerrero Jr. scuffling, Toronto is again turning to its depth to stay alive.`\
+https://nytimes.com/athletic/6667244/2025/09/27/nathan-lukes-blue-jays-role-players-division-race-tied/
 
-**Can You Use Your Spouse as a Hand Towel?**\
-`A ruling on a home hygiene dispute.`\
-https://nytimes.com/interactive/2025/09/27/magazine/hand-drying-hodgman-quiz.html
+**Missed opportunities keep tanking the Tigers**\
+`Here in September, with the losses mounting, the Tigers have struggled to cash in. "It all counts," A.J. Hinch said. "It all matters."`\
+https://nytimes.com/athletic/6667167/2025/09/27/tigers-red-sox-missed-opportunities-tanking/
 
-**Amid Political Violence, Moments of Grace Are Rare and Fleeting**\
-`After an assassination attempt, Gov. George Wallace, the segregationist, got a surprise visitor: Shirley Chisholm, the first Black woman elected to Congress. Could this happen today?`\
-https://nytimes.com/2025/09/27/us/politics/political-violence-kirk-trump.html
+**Ravens defensive coordinator Zach Orr again under fire as Patrick Mahomes awaits**\
+`Orr faces mounting pressure as Baltimore's defense struggles, with critics questioning his leadership ahead of another Chiefs clash.`\
+https://nytimes.com/athletic/6666388/2025/09/27/ravens-chiefs-zach-orr-under-fire/
 
-**Unexpected Critics of Trump’s Attacks on Wind Energy: Oil Executives**\
-`Business leaders and trade organizations have been especially worried by attempts to stop work on wind farms that had already secured federal approval.`\
-https://nytimes.com/2025/09/27/business/energy-environment/oil-gas-trump-offshore-wind.html
+**Shinzawa: Connor McDavid to the Bruins? Dream on**\
+`McDavid would undoubtedly find satisfaction in leading an Original Six turnaround. But the Bruins need time. McDavid wants it now.`\
+https://nytimes.com/athletic/6665691/2025/09/27/connor-mcdavid-bruins-fit/
 
