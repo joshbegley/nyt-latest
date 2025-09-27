@@ -1,3 +1,7 @@
+**Postecoglou calls referee decision 'poor' before Sunderland's winner against Forest**\
+`The new Forest manager has not won a game yet in his five games in charge. `\
+https://nytimes.com/athletic/6668556/2025/09/27/ange-postecoglou-nottingham-forest-poor-decision-sunderland/
+
 **C.T.E. Looms Over Friday Night Lights**\
 `Parents revealed conflicting emotions after the finding that a gunman who killed four people in July had the brain disease that has been linked with football and other contact sports.`\
 https://nytimes.com/2025/09/27/us/cte-high-school-football.html

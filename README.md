@@ -1,4 +1,12 @@
-**Postecoglou calls referee decision 'poor' before Sunderland's winner against Forest**\
+**Why Sam Pittman's buyout makes the timing of Arkansas' decision on his future key**\
+`How much would it cost to fire Pittman? For the reeling Razorbacks, it depends when it happens.`\
+https://nytimes.com/athletic/6668277/2025/09/27/arkansas-sam-pittman-contract-buyout/
+
+**Illinois bounces back from blowout loss, beats USC with walk-off field goal**\
+`No. 23 Illinois beat No. 21 USC, 34-32, with a 41-yard field goal as time expired after blowing a 14-point fourth-quarter lead Saturday.`\
+https://nytimes.com/athletic/6668652/2025/09/27/illinois-usc-score-recap-bielema-riley/
+
+**Postecoglou calls referee decision 'poor' over Sunderland's winner against Forest**\
 `The new Forest manager has not won a game yet in his five games in charge. `\
 https://nytimes.com/athletic/6668556/2025/09/27/ange-postecoglou-nottingham-forest-poor-decision-sunderland/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6668447/2025/09/27/yankees-jazz-chisholm-leaves-gam
 **How to watch Orioles at Yankees: Time, TV, streaming for September 28**\
 `Find out how to watch the Baltimore Orioles play the New York Yankees, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6668479/2025/09/27/orioles-vs-yankees-stream-how-to-watch-sept-28/
-
-**Cubs place Cade Horton on injured list, taking him out of playoff picture for now**\
-`A fractured right rib will prevent Horton from starting Game 1 of the Wild Card Series. `\
-https://nytimes.com/athletic/6668370/2025/09/27/cubs-cade-horton-injured-list/
-
-**Iranians Brace for Economic Impact of New U.N. Sanctions**\
-`Already suffering a 40 percent inflation rate and critical shortages of power and water, many in Iran expect conditions to get worse.`\
-https://nytimes.com/2025/09/27/world/middleeast/sanctions-iran-economy-snapback.html
 
