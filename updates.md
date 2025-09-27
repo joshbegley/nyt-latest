@@ -1,3 +1,7 @@
+**Fever's flaws are exposed in the WNBA semifinals as they face elimination**\
+`Injuries have hampered the Fever. But so have some questionable front office decisions.`\
+https://nytimes.com/athletic/6667314/2025/09/27/indiana-fever-wnba-semifinals-loss/
+
 **A year on from Muriel Furrer’s death, is cycling’s attitude to safety shifting?**\
 `A sport that witnesses death too often needs change. There is no shortage of ideas but right now there is a lack of consensus`\
 https://nytimes.com/athletic/6662394/2025/09/27/pro-cycling-safety-muriel-furrer/
