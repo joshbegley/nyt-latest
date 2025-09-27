@@ -1,3 +1,20 @@
+**Des Moines Schools Superintendent Arrested By ICE Is Placed on Leave**\
+`School Board members in Iowa’s capital made the decision one day after immigration officials accused the superintendent, Ian Roberts, of being in the country illegally.`\
+https://nytimes.com/2025/09/27/us/des-moines-schools-superintendent-ice-leave.html
+
+**Lynx coach Cheryl Reeve's suspension was warranted ... but many of her points are valid**\
+`Many coaches and executives have voiced displeasure about the way the WNBA is officiated. But Reeve's behavior deserved a punishment.`\
+https://nytimes.com/athletic/6669025/2025/09/27/cheryl-reeve-suspension-minnesota-lynx-wnba-playoffs/
+
+**Cardinals intentionally walk Cubs' Michael Busch, who needed a single to complete cycle**\
+`St. Louis manager Oli Marmol was unapologetic about issuing the free pass: "I’m not here for anybody's amusement. I’m trying to win a game."`\
+https://nytimes.com/athletic/6668845/2025/09/27/cardinals-cubs-michael-busch-cycle/
+
+**Yankees' 4 keys to winning Game 162 and keeping AL East dream alive**\
+`The Yankees have to beat the Baltimore Orioles, who don't seem likely to make it easy for them. Here's how they could do it.
+`\
+https://nytimes.com/athletic/6668871/2025/09/27/yankees-keys-win-game-162-al-east/
+
 **Yankees' 4 keys to winning Game 162 and keeping AL East dream alive**\
 `The Yankees have to beat the Baltimore Orioles, who don't seem likely to make it easy for them. Here's how they could do it.
 `\
