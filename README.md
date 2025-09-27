@@ -1,3 +1,11 @@
+**The Briefing: Chelsea 1 Brighton 3 - Are Maresca's side their own worst enemies? Is it time for Disasi be recalled?**\
+`Simon Johnson analyses a disappointing home defeat for Chelsea against Brighton and Hove Albion on Saturday`\
+https://nytimes.com/athletic/6664964/2025/09/27/chelsea-brighton-premier-league-analysis/
+
+**The Briefing: Manchester City 5 Burnley 1 - How did Walker cope with Doku? Is Nunes the answer at right back? Did Savinho seize his chance?**\
+`Man City benefitted from two Maxime Esteve own goals to overcome a stubborn Burnley team`\
+https://nytimes.com/athletic/6664967/2025/09/27/manchester-city-v-burnley-premier-league-analysis/
+
 **Justin Fields clears concussion protocol, will start for Jets on Monday night**\
 `The quarterback missed the Jets' Week 3 game in Tampa Bay.`\
 https://nytimes.com/athletic/6662279/2025/09/27/justin-fields-new-york-jets-clears-consussion-protocol/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6667389/2025/09/27/astros-brink-playoff-elimination
 **One game at a time, the Reds inch toward a playoff berth**\
 `The Reds have emphasized keeping an even keel through wins and losses. It's brought them to the precipice of a playoff berth.`\
 https://nytimes.com/athletic/6667284/2025/09/27/reds-near-mlb-playoff-berth/
-
-**Russini: What I'm hearing on the Jaxson Dart decision, Houston's problems and more**\
-`Also: The Patriots' focus on the football, the Chargers' offensive changes and how your favorite NFL coach takes his coffee`\
-https://nytimes.com/athletic/6666465/2025/09/27/nfl-rumors-news-jaxson-dart-brian-daboll-c-j-stroud-texans/
-
-**Inside the Red Sox playoff-clinching celebration: 'It was a total team effort'**\
-`Boston’s major-league-leading 12th walk-off win clinched the team’s first spot in the postseason since 2021.`\
-https://nytimes.com/athletic/6667337/2025/09/27/red-sox-playoff-clinching-celebration/
 
