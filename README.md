@@ -1,3 +1,7 @@
+**Lorenzo Musetti apologizes for rant about Chinese fans in Beijing**\
+`The Italian said that his remarks about coughing spectators “were never in any way meant for the Chinese people.”`\
+https://nytimes.com/athletic/6667676/2025/09/27/lorenzo-musetti-comments-china-coughing-apology-tennis/
+
 **Willy Adames rescued his season, but Giants still have plenty to fix**\
 `After a slow start to his season, the shortstop is more or less delivering what the Giants anticipated when they bet big on him.`\
 https://nytimes.com/athletic/6667422/2025/09/27/willy-adames-san-francisco-giants-mlb/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/27/us/politics/trump-comey-vindictive-prosecution.ht
 **Yamal to return to Barcelona squad against Real Sociedad**\
 `The 18-year-old has been struggling with a groin injury and has not featured since playing for Spain against Bulgaria and Turkey.`\
 https://nytimes.com/athletic/6667754/2025/09/27/lamine-yamal-barcelona-injury-update/
-
-**Are the Jets built for playoff hockey? Prospect timelines? Mailbag, Part 1**\
-`Plus, how the Jets stack up in terms of age and speed around the league, and evaluating the chances of top prospects winning a job.`\
-https://nytimes.com/athletic/6652332/2025/09/27/winnipeg-jets-training-camp-prospects-playoffs/
 
