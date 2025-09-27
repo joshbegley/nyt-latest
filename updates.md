@@ -1,3 +1,7 @@
+**The Testimony at the Heart of the Comey Indictment, Examined**\
+`The charges against the former F.B.I. director center on an appearance he made before a Senate committee in September 2020. Here’s a closer look.`\
+https://nytimes.com/2025/09/26/us/politics/james-comey-testimony-trump.html
+
 **What to know about Scottie Scheffler, Bryson DeChambeau and their bad day at the Ryder Cup**\
 `Scheffler is the first reigning top-ranked player to go winless in both Friday matches of a Ryder Cup since Tiger Woods in 2002.`\
 https://nytimes.com/athletic/6666628/2025/09/26/ryder-cup-25-scheffler-dechambeau-what-to-know/
