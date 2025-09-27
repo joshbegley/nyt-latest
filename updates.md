@@ -1,3 +1,7 @@
+**Sean Penn Let Himself Get Away With Things for 15 Years. Not Anymore.**\
+`The actor and instigator is ready for his renaissance.`\
+https://nytimes.com/2025/09/27/magazine/sean-penn-interview.html
+
 **Raptors GM Bobby Webster enters first season without the luxury of patience**\
 `With expensive contracts throughout the starting lineup, the new Raptors boss needs to be decisive.`\
 https://nytimes.com/athletic/6666205/2025/09/27/bobby-webster-raptors-gm-media-day/

@@ -1,3 +1,7 @@
+**Sean Penn Let Himself Get Away With Things for 15 Years. Not Anymore.**\
+`The actor and instigator is ready for his renaissance.`\
+https://nytimes.com/2025/09/27/magazine/sean-penn-interview.html
+
 **Raptors GM Bobby Webster enters first season without the luxury of patience**\
 `With expensive contracts throughout the starting lineup, the new Raptors boss needs to be decisive.`\
 https://nytimes.com/athletic/6666205/2025/09/27/bobby-webster-raptors-gm-media-day/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/27/business/energy-environment/oil-gas-trump-offshor
 **Iowa Matters Less Than Ever for Democrats, but They Can’t Quit It**\
 `The state no longer goes first for the party’s presidential nomination process, but ambitious politicians with an eye toward 2028 keep showing up. It’s “the gravitational pull,” as one Iowa Democrat put it.`\
 https://nytimes.com/2025/09/27/us/politics/iowa-democrats-president.html
-
-**Scaffolding Has Encased My Building for Years. What Can I Do?**\
-`The city has enacted new laws to reduce the length of time for scaffolding and sidewalk shed permits. But you can take more direct action.`\
-https://nytimes.com/2025/09/27/realestate/scaffolding-sidewalk-sheds-nyc.html
 
