@@ -1,3 +1,7 @@
+**U.S. Ambassador to Israel Is Expected to Make Rare Visit to Egypt**\
+`Ambassador Mike Huckabee is to travel to Cairo for talks that officials said would focus on the Gaza war and tensions between Israel and Egypt.`\
+https://nytimes.com/2025/09/27/world/middleeast/ambassador-huckabee-istael-egypt-travel.html
+
 **Notre Dame's Jeremiyah Love goes off for four first-half TDs at Arkansas**\
 `Love's 14 first-half touches covered 128 yards, including a broken tackle almost every time the Irish junior touched the football.`\
 https://nytimes.com/athletic/6668374/2025/09/27/notre-dame-arkansas-highlights-jeremiyah-love/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6664964/2025/09/27/chelsea-brighton-premier-league-
 **The Briefing: Manchester City 5 Burnley 1 - How did Walker cope with Doku? Did Savinho seize his chance?**\
 `Man City benefitted from two Maxime Esteve own goals to overcome a stubborn Burnley team`\
 https://nytimes.com/athletic/6664967/2025/09/27/manchester-city-v-burnley-premier-league-analysis/
-
-**Justin Fields clears concussion protocol, will start for Jets on Monday night**\
-`The quarterback missed the Jets' Week 3 game at Tampa Bay.`\
-https://nytimes.com/athletic/6662279/2025/09/27/justin-fields-new-york-jets-clears-consussion-protocol/
 
