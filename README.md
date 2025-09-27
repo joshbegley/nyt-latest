@@ -1,3 +1,11 @@
+**Take ou college football quiz! What you need to know for Week 5**\
+`Test your pregame college football trivia knowledge and catch up on Penn State-Oregon, Georgia-Alabama, Ole Miss-LSU and more.`\
+https://nytimes.com/athletic/6665049/2025/09/27/college-football-games-trivia-week-5-quiz/
+
+**Are David Kämpf’s days with the Leafs numbered? 'It’s up to management'**\
+`Kämpf is on the bubble at Leafs camp, and his place not just in the lineup but on the team may be in jeopardy this season.`\
+https://nytimes.com/athletic/6665687/2025/09/27/david-kampf-maple-leafs-trade/
+
 **How to watch Rockies at Giants: Time, TV, streaming for September 27**\
 `Find out how to watch the Colorado Rockies play the San Francisco Giants, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6667649/2025/09/27/rockies-vs-giants-stream-how-to-watch-sept-27/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6667140/2025/09/27/guardians-mlb-playoff-spot-al-ce
 **Nathan Lukes and the Blue Jays' role players help keep the division race tied**\
 `With two games to play, Bo Bichette injured and Vladimir Guerrero Jr. scuffling, Toronto is again turning to its depth to stay alive.`\
 https://nytimes.com/athletic/6667244/2025/09/27/nathan-lukes-blue-jays-role-players-division-race-tied/
-
-**Missed opportunities keep tanking the Tigers**\
-`Here in September, with the losses mounting, the Tigers have struggled to cash in. "It all counts," A.J. Hinch said. "It all matters."`\
-https://nytimes.com/athletic/6667167/2025/09/27/tigers-red-sox-missed-opportunities-tanking/
-
-**Ravens defensive coordinator Zach Orr again under fire as Patrick Mahomes awaits**\
-`Orr faces mounting pressure as Baltimore's defense struggles, with critics questioning his leadership ahead of another Chiefs clash.`\
-https://nytimes.com/athletic/6666388/2025/09/27/ravens-chiefs-zach-orr-under-fire/
 
