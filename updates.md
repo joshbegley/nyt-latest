@@ -1,3 +1,15 @@
+**Mason McTavish, Anaheim Ducks agree to 6-year, $42 million contract**\
+`McTavish led the Ducks with 22 goals last season.`\
+https://nytimes.com/athletic/6668436/2025/09/27/mason-mctavish-ducks-contract/
+
+**Willson Contreras wants to remain with Cardinals: 'I like challenges'**\
+`Contreras, who has a no-trade clause, told incoming president of baseball operations Chaim Bloom that he wants to stay in St. Louis.`\
+https://nytimes.com/athletic/6668354/2025/09/27/willson-contreras-cardinals-future/
+
+**Stampede at Actor’s Political Rally Kills at Least 36 People in India**\
+`The stampede took place at an event for Joseph Vijay Chandrasekhar, the popular actor known professionally as Vijay. A health official said the toll was likely to rise.`\
+https://nytimes.com/2025/09/27/world/asia/stampede-vijay-rally-india.html
+
 **U.S. Ambassador to Israel Is Expected to Make Rare Visit to Egypt**\
 `Ambassador Mike Huckabee is to travel to Cairo for talks that officials said would focus on the Gaza war and tensions between Israel and Egypt.`\
 https://nytimes.com/2025/09/27/world/middleeast/ambassador-huckabee-istael-egypt-travel.html
