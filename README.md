@@ -1,3 +1,11 @@
+**Cubs place Cade Horton on injured list, taking him out of playoff picture for now**\
+`A fractured right rib will prevent Horton from starting Game 1 of the Wild Card Series. `\
+https://nytimes.com/athletic/6668370/2025/09/27/cubs-cade-horton-injured-list/
+
+**Iranians Brace for Economic Impact of New U.N. Sanctions**\
+`Already suffering a 40 percent inflation rate and critical shortages of power and water, many in Iran expect conditions to get worse.`\
+https://nytimes.com/2025/09/27/world/middleeast/sanctions-iran-economy-snapback.html
+
 **Mason McTavish, Anaheim Ducks agree to 6-year, $42 million contract**\
 `McTavish led the Ducks with 22 goals last season.`\
 https://nytimes.com/athletic/6668436/2025/09/27/mason-mctavish-ducks-contract/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6667793/2025/09/27/wrexham-kabore-derby-hero-result
 **NC State DC DJ Eliot to miss game vs. Virginia Tech after death of daughter**\
 `Drue Margaret Eliot was diagnosed with pediatric cancer in the spring of 2020, when DJ was coaching at Kansas.`\
 https://nytimes.com/athletic/6668324/2025/09/27/nc-state-defensive-coordinator-dj-eliot/
-
-**Trump Says He Has Ordered Troops to Protect ICE Facilities in Portland**\
-`The president characterized Immigration and Customs Enforcement facilities as being under siege from domestic terrorists.`\
-https://nytimes.com/2025/09/27/us/politics/trump-portland-troops.html
-
-**Atletico 5 Real Madrid 2 - Was this Alvarez's revenge? How big a setback is this for Alonso? Mbappe best as a No 9?**\
-`Xabi Alonso's team suffered an embarrassing defeat to their cross-city rivals`\
-https://nytimes.com/athletic/6664999/2025/09/27/atletico-5-real-madrid-2-alvarez-alonso-mbappe/
 
