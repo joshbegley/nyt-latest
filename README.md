@@ -1,3 +1,7 @@
+**What a Book of Excuses Reveals About the Democrats’ Future**\
+`Three Opinion writers weigh in on Kamala Harris’s campaign memoir.`\
+https://nytimes.com/video/opinion/100000010423765/what-a-book-of-excuses-reveals-about-the-democrats-future.html
+
 **Take ou college football quiz! What you need to know for Week 5**\
 `Test your pregame college football trivia knowledge and catch up on Penn State-Oregon, Georgia-Alabama, Ole Miss-LSU and more.`\
 https://nytimes.com/athletic/6665049/2025/09/27/college-football-games-trivia-week-5-quiz/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/27/style/versace-dario-vitale.html
 **'We're focused on us': Guardians' path to playoff spot, AL Central title becomes clearer**\
 `"It's nice that that game went the way it did, but we are in control of our own destiny," Slade Cecconi said.`\
 https://nytimes.com/athletic/6667140/2025/09/27/guardians-mlb-playoff-spot-al-central/
-
-**Nathan Lukes and the Blue Jays' role players help keep the division race tied**\
-`With two games to play, Bo Bichette injured and Vladimir Guerrero Jr. scuffling, Toronto is again turning to its depth to stay alive.`\
-https://nytimes.com/athletic/6667244/2025/09/27/nathan-lukes-blue-jays-role-players-division-race-tied/
 
