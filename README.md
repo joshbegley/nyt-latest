@@ -1,3 +1,7 @@
+**Potter sacked by West Ham after eight months in charge**\
+`Potter only won six of his 25 games with the club.`\
+https://nytimes.com/athletic/6570166/2025/09/27/graham-potter-west-ham-sacked/
+
 **Sean Penn Let Himself Get Away With Things for 15 Years. Not Anymore.**\
 `The actor and instigator is ready for his renaissance.`\
 https://nytimes.com/2025/09/27/magazine/sean-penn-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/27/us/politics/political-violence-kirk-trump.html
 **Unexpected Critics of Trump’s Attacks on Wind Energy: Oil Executives**\
 `Business leaders and trade organizations have been especially worried by attempts to stop work on wind farms that had already secured federal approval.`\
 https://nytimes.com/2025/09/27/business/energy-environment/oil-gas-trump-offshore-wind.html
-
-**Iowa Matters Less Than Ever for Democrats, but They Can’t Quit It**\
-`The state no longer goes first for the party’s presidential nomination process, but ambitious politicians with an eye toward 2028 keep showing up. It’s “the gravitational pull,” as one Iowa Democrat put it.`\
-https://nytimes.com/2025/09/27/us/politics/iowa-democrats-president.html
 
