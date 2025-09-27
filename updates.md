@@ -1,3 +1,7 @@
+**The Pulse: Different types of MLB collapses**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6667285/2025/09/27/collapses-across-mlb-are-different-up-close-plus-ryder-cup-blues/
+
 **Aaron Judge will be the tallest batting champ in MLB history. Here's how he did it**\
 `The 6-foot-7 Judge has learned to manage his huge strike zone by being one of the smartest, most well-prepared hitters in baseball. `\
 https://nytimes.com/athletic/6663697/2025/09/27/aaron-judge-batting-champ-yankees-tallest-mlb-history/
