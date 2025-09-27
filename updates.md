@@ -1,3 +1,7 @@
+**Raptors GM Bobby Webster enters first season without the luxury of patience**\
+`With expensive contracts throughout the starting lineup, the new Raptors boss needs to be decisive.`\
+https://nytimes.com/athletic/6666205/2025/09/27/bobby-webster-raptors-gm-media-day/
+
 **Netanyahu’s Defiant U.N. Speech Aimed at Home as Well as the World**\
 `The Israeli prime minister faced walkouts and protests at the United Nations but sent a message to his political base that he won’t bend to international pressure.`\
 https://nytimes.com/2025/09/27/world/middleeast/israel-netanyahu-united-nations.html
