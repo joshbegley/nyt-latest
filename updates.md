@@ -1,3 +1,11 @@
+**Cubs place Cade Horton on injured list, taking him out of playoff picture for now**\
+`A fractured right rib will prevent Horton from starting Game 1 of the Wild Card Series. `\
+https://nytimes.com/athletic/6668370/2025/09/27/cubs-cade-horton-injured-list/
+
+**Iranians Brace for Economic Impact of New U.N. Sanctions**\
+`Already suffering a 40 percent inflation rate and critical shortages of power and water, many in Iran expect conditions to get worse.`\
+https://nytimes.com/2025/09/27/world/middleeast/sanctions-iran-economy-snapback.html
+
 **Mason McTavish, Anaheim Ducks agree to 6-year, $42 million contract**\
 `McTavish led the Ducks with 22 goals last season.`\
 https://nytimes.com/athletic/6668436/2025/09/27/mason-mctavish-ducks-contract/
