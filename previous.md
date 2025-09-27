@@ -1,3 +1,7 @@
+**Canada's rugby pioneer Olivia DeMerchant's journey back to the World Cup final**\
+`"I actually had to pay to play and live in England the first year I came over in 2013," DeMerchant told The Athletic.`\
+https://nytimes.com/athletic/6667796/2025/09/27/canada-england-rugby-world-cup-olivia-demerchant/
+
 **Vallieres wins elite women's World Road Championship title in Kigali**\
 `The podium was completed by New Zealand's Niamh Fisher-Black and Spain's Mavi Garcia in silver and bronze respectively.`\
 https://nytimes.com/athletic/6668005/2025/09/27/magdeleine-vallieres-world-road-championship-win-canada/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6664962/2025/09/27/brentford-3-manchester-united-1-
 **College Football Playoff 2025 projections: Florida State drops with big Week 5 underway**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/09/27/college-football-playoff-bracket-projections-odds/
-
-**Lorenzo Musetti apologizes for rant about Chinese fans in Beijing**\
-`The Italian said that his remarks about coughing spectators “were never in any way meant for the Chinese people.”`\
-https://nytimes.com/athletic/6667676/2025/09/27/lorenzo-musetti-comments-china-coughing-apology-tennis/
 
