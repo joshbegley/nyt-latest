@@ -1,3 +1,7 @@
+**Stampede at Actor’s Political Rally Kills at Least 36 People in India**\
+`The stampede took place at an event for Joseph Vijay Chandrasekhar, the popular actor known professionally as Vijay. A health official said the toll was likely to rise.`\
+https://nytimes.com/2025/09/27/world/asia/stampede-vijay-rally-india.html
+
 **U.S. Ambassador to Israel Is Expected to Make Rare Visit to Egypt**\
 `Ambassador Mike Huckabee is to travel to Cairo for talks that officials said would focus on the Gaza war and tensions between Israel and Egypt.`\
 https://nytimes.com/2025/09/27/world/middleeast/ambassador-huckabee-istael-egypt-travel.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6664965/2025/09/27/crystal-palace-beat-liverpool-pr
 **The Briefing: Chelsea 1 Brighton 3 - Are Maresca's side their own worst enemies? Is it time for Disasi to be recalled?**\
 `Simon Johnson analyses a disappointing home defeat for Chelsea against Brighton and Hove Albion on Saturday`\
 https://nytimes.com/athletic/6664964/2025/09/27/chelsea-brighton-premier-league-analysis/
-
-**The Briefing: Manchester City 5 Burnley 1 - How did Walker cope with Doku? Did Savinho seize his chance?**\
-`Man City benefitted from two Maxime Esteve own goals to overcome a stubborn Burnley team`\
-https://nytimes.com/athletic/6664967/2025/09/27/manchester-city-v-burnley-premier-league-analysis/
 
