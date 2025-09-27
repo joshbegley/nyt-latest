@@ -1,3 +1,7 @@
+**Ravens place DT Nnamdi Madubuike on IR with neck injury**\
+`Madubuike, 27, hurt his neck in Baltimore's 41-17 Week 2 victory over the Browns.`\
+https://nytimes.com/athletic/6647098/2025/09/27/ravens-nnamdi-madubuike-injury/
+
 **Yankees beat Orioles to stay in AL East title hunt as MLB playoff race continues**\
 `There's a full slate of AL games Saturday with postseason ramifications.`\
 https://nytimes.com/athletic/6668552/2025/09/27/mlb-al-takeaways-yankees-guardians-tigers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6668557/2025/09/27/ryder-cup-rory-mcilroy-abused-be
 **Mets place infielder Brett Baty on IL with right oblique injury**\
 `“It’s a big blow,” manager Carlos Mendoza said. “This is a guy who established himself in the everyday lineup.”`\
 https://nytimes.com/athletic/6668401/2025/09/27/mets-brett-baty-injured-list/
-
-**Neil Kraft, Visionary Adman Who Sold ‘a Mood and a Lifestyle,’ Dies at 67**\
-`His ads for Calvin Klein and others captured a fizzy moment in the 1980s and ’90s, featuring celebrities like the young rapper Marky Mark wearing nothing but underwear and a grin.`\
-https://nytimes.com/2025/09/27/business/media/neil-kraft-dead.html
 

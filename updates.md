@@ -1,3 +1,11 @@
+**Yankees beat Orioles to stay in AL East title hunt as MLB playoff race continues**\
+`There's a full slate of AL games Saturday with postseason ramifications.`\
+https://nytimes.com/athletic/6668552/2025/09/27/mlb-al-takeaways-yankees-guardians-tigers/
+
+**Georgia Tech escapes Wake Forest upset in overtime, keeps postseason hopes alive**\
+`Georgia Tech, trailing 20-3 in the third quarter, scored 17 straight points to tie it.`\
+https://nytimes.com/athletic/6668722/2025/09/27/georgia-tech-wake-forest-upset-overtime/
+
 **Lowetide: Can Oilers prospect Noah Philp make the final step to the NHL?**\
 `Philp has played well enough through training camp and preseason to secure a spot on the Oilers' opening-night roster.`\
 https://nytimes.com/athletic/6668337/2025/09/27/oilers-prospect-noah-philp-nhl-roster/
