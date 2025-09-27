@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, Sep. 27, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/27/todays-new-york-times
+
 **Fever's flaws are exposed in the WNBA semifinals as they face elimination**\
 `Injuries have hampered the Fever. But so have some questionable front office decisions.`\
 https://nytimes.com/athletic/6667314/2025/09/27/indiana-fever-wnba-semifinals-loss/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6667246/2025/09/27/minnesota-lynx-napheesa-collier-
 **Women's Rugby World Cup final: What you need to know and how to watch**\
 `A record-breaking tournament culminates on Saturday with the world's top two sides facing off in London before 82,000 fans`\
 https://nytimes.com/athletic/6661557/2025/09/27/womens-rugby-world-cup-final-how-to-watch/
-
-**Russia Steps Up Provocations in Europe, Alarming Leaders There**\
-`European officials fear that Moscow is escalating its antagonism of Europe as U.S. support recedes. A focus of worry now: election interference in Moldova.`\
-https://nytimes.com/2025/09/27/world/europe/russia-europe-poland-drones-moldova-election.html
 
