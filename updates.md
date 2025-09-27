@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6668871/2025/09/27/yankees-keys-win-game-162-al-east/
 
+**Yankees' 4 keys to winning Game 162 and keeping AL East dream alive**\
+`The Yankees have to beat the Baltimore Orioles, who don't seem likely to make it easy for them. Here's how they could do it.
+`\
+https://nytimes.com/athletic/6668871/2025/09/27/yankees-keys-win-game-162-al-east/
+
 **Des Moines Schools Superintendent Arrested By ICE Is Placed on Leave**\
 `School Board members in Iowa’s capital made the decision one day after immigration officials accused the superintendent, Ian Roberts, of being in the country illegally.`\
 https://nytimes.com/2025/09/27/us/des-moines-schools-superintendent-ice-leave.html
