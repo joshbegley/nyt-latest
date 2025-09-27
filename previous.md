@@ -1,3 +1,7 @@
+**Football and trains: The vital role railways have played in the English game**\
+`Michael Cox looks at how the passenger train has been fundamental to English football for almost two centuries `\
+https://nytimes.com/athletic/6657755/2025/09/27/english-football-railways-history/
+
 **Minnesota Lynx star Napheesa Collier injured, coach Cheryl Reeve ejected in semifinals loss**\
 `The Phoenix Mercury took a 2-1 lead in the WNBA semifinals. `\
 https://nytimes.com/athletic/6667246/2025/09/27/minnesota-lynx-napheesa-collier-injury-cheryl-reeve-ejection-wnba-semifinals/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6667135/2025/09/26/mets-wild-card-nl-mistakes/
 **College Football Playoff 2025 projections: Florida State drops with big Week 5 underway**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/09/26/college-football-playoff-bracket-projections-odds/
-
-**Virginia students swarm end zone after Cavaliers knock off FSU in double OT**\
-`Florida State's rocket back into the top 10 has quickly crashed.`\
-https://nytimes.com/athletic/6667159/2025/09/26/virginia-florida-state-acc-upset-double-overtime/
 

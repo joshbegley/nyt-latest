@@ -1,3 +1,7 @@
+**Football and trains: The vital role railways have played in the English game**\
+`Michael Cox looks at how the passenger train has been fundamental to English football for almost two centuries `\
+https://nytimes.com/athletic/6657755/2025/09/27/english-football-railways-history/
+
 **Minnesota Lynx star Napheesa Collier injured, coach Cheryl Reeve ejected in semifinals loss**\
 `The Phoenix Mercury took a 2-1 lead in the WNBA semifinals. `\
 https://nytimes.com/athletic/6667246/2025/09/27/minnesota-lynx-napheesa-collier-injury-cheryl-reeve-ejection-wnba-semifinals/
