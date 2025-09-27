@@ -1,3 +1,11 @@
+**Trump’s Targeting of Soros Foundations Sparks Fear and Defiance on Left**\
+`Facing a nascent administration investigation, Alex Soros privately pledged that the Open Society Foundations would back down only “over my dead body.”`\
+https://nytimes.com/2025/09/26/us/politics/trump-soros-foundations-donors.html
+
+**Braves take a flier on Alek Manoah, plan a send-off for Charlie Morton**\
+`Manoah joins the Braves after being claimed off waivers, Matt Olson wins Brave of the Year and more.`\
+https://nytimes.com/athletic/6666912/2025/09/26/braves-roster-alek-manoah-charlie-morton/
+
 **The Testimony at the Heart of the Comey Indictment, Examined**\
 `The charges against the former F.B.I. director center on an appearance he made before a Senate committee in September 2020. Here’s a closer look.`\
 https://nytimes.com/2025/09/26/us/politics/james-comey-testimony-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/26/us/justice-department-fani-willis-trump.html
 **Trump Orders Unsealing of All Files on Amelia Earhart and Her Disappearance**\
 `The president has called for the unsealing of documents related to the deaths of prominent historical figures like John F. Kennedy and Dr. Martin Luther King Jr.`\
 https://nytimes.com/2025/09/26/us/politics/trump-amelia-earhart-files.html
-
-**How to watch White Sox at Nationals: Time, TV, streaming for September 27**\
-`Find out how to watch the Chicago White Sox play the Washington Nationals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6666892/2025/09/26/white-sox-vs-nationals-stream-how-to-watch-sept-27/
-
-**How to watch Twins at Phillies: Time, TV, streaming for September 27**\
-`Find out how to watch the Minnesota Twins play the Philadelphia Phillies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6666884/2025/09/26/twins-vs-phillies-stream-how-to-watch-sept-27/
 
