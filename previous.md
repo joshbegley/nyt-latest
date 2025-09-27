@@ -1,3 +1,7 @@
+**Hegseth Says Honors for Soldiers in Wounded Knee Massacre Will Remain**\
+`Defense Secretary Pete Hegseth said a panel, convened by his predecessor, recommended keeping Medals of Honor for soldiers in the 1890 attack on Native Americans.`\
+https://nytimes.com/2025/09/27/us/hegseth-wounded-knee.html
+
 **How to watch Dodgers at Mariners: Time, TV, streaming for September 27**\
 `Find out how to watch the Los Angeles Dodgers play the Seattle Mariners, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6667499/2025/09/27/dodgers-vs-mariners-stream-how-to-watch-sept-27/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/27/us/trump-university-california-berkeley-tactics.h
 **How 106 People Got Together to Stop a School Shooting — Before It Happened**\
 `A threat on a school bus from an alienated young man united dozens of agencies to answer a single question: Is it possible to stop potential mass shooters before they commit a crime?`\
 https://nytimes.com/2025/09/27/nyregion/mass-shooting-prevention.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/09/27/crosswords/spelling-bee-forum.html
 
