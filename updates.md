@@ -1,3 +1,7 @@
+**'Everything comes crashing down' for the Astros, who are on the brink of playoff elimination**\
+`One more win by either the Guardians or Tigers will eliminate the Astros from playoff contention for the first time in nine years.`\
+https://nytimes.com/athletic/6667389/2025/09/27/astros-brink-playoff-elimination/
+
 **One game at a time, the Reds inch toward a playoff berth**\
 `The Reds have emphasized keeping an even keel through wins and losses. It's brought them to the precipice of a playoff berth.`\
 https://nytimes.com/athletic/6667284/2025/09/27/reds-near-mlb-playoff-berth/
