@@ -1,3 +1,7 @@
+**Ohio State passes first road test behind Sayin's best game yet: Key takeaways**\
+`No. 1 Ohio State shook off a slow start to beat Washington 24-6 behind QB Julian Sayin and WR Jeremiah Smith. Here's what we learned.`\
+https://nytimes.com/athletic/6668941/2025/09/27/ohio-state-washington-score-result-football/
+
 **Cardinals intentionally walk Cubs' Michael Busch, who needed a single to complete cycle**\
 `St. Louis manager Oli Marmol was unapologetic about issuing the free pass: "I’m not here for anybody's amusement. I’m trying to win a game."`\
 https://nytimes.com/athletic/6668845/2025/09/27/cardinals-intentionally-walk-michael-busch-cycle-cubs/
@@ -11,8 +15,8 @@ https://nytimes.com/athletic/6668871/2025/09/27/yankees-keys-win-game-162-al-eas
 `The outbreak has killed four people and spread to 15 states, with officials linking it to frozen pasta meals sold at Walmart and Kroger.`\
 https://nytimes.com/2025/09/27/us/listeria-outbreak-trader-joes-fettuccine-alfredo.html
 
-**Detroit Tigers clinch playoff berth despite second-half slide**\
-`At the end of a brutal second half, the Tigers snuck in the playoffs with a win at Fenway Park.`\
+**Tigers clinch second straight playoff berth despite second-half slide**\
+`At the end of a brutal second half, the Tigers snuck in the playoffs with a 2-1 win over the Red Sox at Fenway Park.`\
 https://nytimes.com/athletic/6666619/2025/09/27/detroit-tigers-clinch-mlb-postseason-berth/
 
 **How to watch Mets at Marlins: Time, TV, streaming for September 28**\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6668886/2025/09/27/rockies-vs-giants-stream-how-to-
 **Central Perk**\
 `Rich Katz has a puzzling job for us that turns out to be very, very cushy.`\
 https://nytimes.com/2025/09/27/crosswords/daily-puzzle-2025-09-28.html
-
-**Leo Gerard, Who Led a Growing Steelworkers Union, Dies at 78**\
-`He helped make it the largest industrial union in North America as he fought an influx of cheap metal from China and lobbied for anti-dumping tariffs.`\
-https://nytimes.com/2025/09/27/business/leo-gerard-dead.html
 

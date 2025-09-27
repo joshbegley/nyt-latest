@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6668871/2025/09/27/yankees-keys-win-game-162-al-east/
 
+**Yankees' 4 keys to winning Game 162 and keeping AL East dream alive**\
+`The Yankees have to beat the Baltimore Orioles, who don't seem likely to make it easy for them. Here's how they could do it.
+`\
+https://nytimes.com/athletic/6668871/2025/09/27/yankees-keys-win-game-162-al-east/
+
 **Cardinals intentionally walk Cubs' Michael Busch, who needed a single to complete cycle**\
 `St. Louis manager Oli Marmol was unapologetic about issuing the free pass: "I’m not here for anybody's amusement. I’m trying to win a game."`\
 https://nytimes.com/athletic/6668845/2025/09/27/cardinals-intentionally-walk-michael-busch-cycle-cubs/
