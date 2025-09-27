@@ -1,3 +1,11 @@
+**Trump’s Repeated Attacks May Undercut Case Against Comey**\
+`The president’s voluble vitriol could provide defense lawyers with an avenue to protect the very people he most wants to punish.`\
+https://nytimes.com/2025/09/27/us/politics/trump-comey-vindictive-prosecution.html
+
+**Yamal to return to Barcelona squad against Real Sociedad**\
+`The 18-year-old has been struggling with a groin injury and has not featured since playing for Spain against Bulgaria and Turkey.`\
+https://nytimes.com/athletic/6667754/2025/09/27/lamine-yamal-barcelona-injury-update/
+
 **Are the Jets built for playoff hockey? Prospect timelines? Mailbag, Part 1**\
 `Plus, how the Jets stack up in terms of age and speed around the league, and evaluating the chances of top prospects winning a job.`\
 https://nytimes.com/athletic/6652332/2025/09/27/winnipeg-jets-training-camp-prospects-playoffs/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6667285/2025/09/27/collapses-across-mlb-are-differe
 **Aaron Judge will be the tallest batting champ in MLB history. Here's how he did it**\
 `The 6-foot-7 Judge has learned to manage his huge strike zone by being one of the smartest, most well-prepared hitters in baseball. `\
 https://nytimes.com/athletic/6663697/2025/09/27/aaron-judge-batting-champ-yankees-tallest-mlb-history/
-
-**For Red Sox, playoff clincher was just how they drew it up. There was no Plan B**\
-`The resilient Sox trailed 3-0, then 3-1, then 3-2, before tying it. Then came Ceddanne Rafaela's walk-off triple and the celebration was on.`\
-https://nytimes.com/athletic/6667301/2025/09/27/red-sox-clinch-wild-card-mlb-playoffs/
-
-**As Eagles prepare for Tampa heat, do Florida teams really have a competitive advantage?**\
-`Bucs QB Baker Mayfield doesn't think the Eagles' travel plans will help, but road teams have held their own in the Florida heat since 2000.`\
-https://nytimes.com/athletic/6666207/2025/09/27/eagles-buccaneers-florida-heat-baker-mayfield/
 
