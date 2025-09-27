@@ -1,3 +1,7 @@
+**Trump Administration Asks Supreme Court to Allow End of Birthright Citizenship**\
+`Government lawyers asked the justices to clear the way for the president’s executive order ending birthright citizenship.`\
+https://nytimes.com/2025/09/26/us/politics/supreme-court-birthright-citizenship.html
+
 **Trump’s Targeting of Soros Foundations Sparks Fear and Defiance on Left**\
 `Facing a nascent administration investigation, Alex Soros privately pledged that the Open Society Foundations would back down only “over my dead body.”`\
 https://nytimes.com/2025/09/26/us/politics/trump-soros-foundations-donors.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6666637/2025/09/26/rory-mcilroy-ryder-cup-europe/
 **Justice Department Seeks Information on Georgia D.A. Who Prosecuted Trump**\
 `Federal investigators have subpoenaed records related to travel they believe Fani Willis took around the time of last year’s election, but it was not immediately clear why.`\
 https://nytimes.com/2025/09/26/us/justice-department-fani-willis-trump.html
-
-**Trump Orders Unsealing of All Files on Amelia Earhart and Her Disappearance**\
-`The president has called for the unsealing of documents related to the deaths of prominent historical figures like John F. Kennedy and Dr. Martin Luther King Jr.`\
-https://nytimes.com/2025/09/26/us/politics/trump-amelia-earhart-files.html
 

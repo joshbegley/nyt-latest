@@ -1,3 +1,19 @@
+**Justice Dept. Agents to Protect ICE Facilities, Attorney General Says**\
+`Pam Bondi, the attorney general, announced the deployment two days after a gunman opened fire at an ICE facility in Dallas, killing one detainee and injuring two others.`\
+https://nytimes.com/2025/09/26/us/doj-agents-ice-facilities.html
+
+**Lawsuit accuses Madison Square Garden of discrimination, security misconduct**\
+`The former security official is suing over retaliation based on his disabilities and alleges that MSG has wrongly surveilled game attendees.`\
+https://nytimes.com/athletic/6666732/2025/09/26/madison-square-garden-lawsuit-discrimination-security-misconduct/
+
+**Red Sox return to playoffs for first time since 2021 with walk-off win: ‘We cannot wait’**\
+`When teams around them collapsed, the Red Sox did not miss an opportunity to clinch a return to the playoffs.`\
+https://nytimes.com/athletic/6662850/2025/09/26/red-sox-clinch-postseason-berth/
+
+**Zest Source**\
+`Adrian Johnson and Christina Iverson combine forces on a vibrant, themeless challenge.`\
+https://nytimes.com/2025/09/26/crosswords/daily-puzzle-2025-09-27.html
+
 **Trump Administration Asks Supreme Court to Allow End of Birthright Citizenship**\
 `Government lawyers asked the justices to clear the way for the president’s executive order ending birthright citizenship.`\
 https://nytimes.com/2025/09/26/us/politics/supreme-court-birthright-citizenship.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6666628/2025/09/26/ryder-cup-25-scheffler-dechambea
 **Police Kill Man Who Shot at Cars Outside Georgia Elementary School**\
 `The gunman, a 25-year-old who lived near the campus, was shot dead as he approached the front of the school, officials said.`\
 https://nytimes.com/2025/09/26/us/valdosta-georgia-school-shooting.html
-
-**How Pressure From Trump Led to Comey’s Indictment**\
-`How did pressure from President Trump lead to this week’s extraordinary indictment of the former F.B.I. director James Comey? Maggie Haberman, White House correspondent at The New York Times, explains.`\
-https://nytimes.com/video/us/politics/100000010423917/how-pressure-from-trump-led-to-comeys-indictment.html
-
-**Nancy Leonard was the 'First Lady' of the Pacers. Here's why players loved her**\
-`Leonard knew how much the Pacers meant to the city of Indianapolis, Reggie Miller says. `\
-https://nytimes.com/athletic/6666558/2025/09/26/nancy-leonard-pacers-first-lady/
-
-**The U.S. will need to take down Rory McIlroy to win the Ryder Cup**\
-`The Europeans spent the day taking the New York out of the New Yorkers, leaving the Bethpage Black environment best described as subdued.`\
-https://nytimes.com/athletic/6666637/2025/09/26/rory-mcilroy-ryder-cup-europe/
-
-**Justice Department Seeks Information on Georgia D.A. Who Prosecuted Trump**\
-`Federal investigators have subpoenaed records related to travel they believe Fani Willis took around the time of last year’s election, but it was not immediately clear why.`\
-https://nytimes.com/2025/09/26/us/justice-department-fani-willis-trump.html
 

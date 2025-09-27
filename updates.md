@@ -1,3 +1,7 @@
+**Trump Administration Asks Supreme Court to Allow End of Birthright Citizenship**\
+`Government lawyers asked the justices to clear the way for the president’s executive order ending birthright citizenship.`\
+https://nytimes.com/2025/09/26/us/politics/supreme-court-birthright-citizenship.html
+
 **Trump’s Targeting of Soros Foundations Sparks Fear and Defiance on Left**\
 `Facing a nascent administration investigation, Alex Soros privately pledged that the Open Society Foundations would back down only “over my dead body.”`\
 https://nytimes.com/2025/09/26/us/politics/trump-soros-foundations-donors.html
