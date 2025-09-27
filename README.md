@@ -1,3 +1,7 @@
+**The Pulse: Different types of MLB collapses**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6667285/2025/09/27/collapses-across-mlb-are-different-up-close-plus-ryder-cup-blues/
+
 **Aaron Judge will be the tallest batting champ in MLB history. Here's how he did it**\
 `The 6-foot-7 Judge has learned to manage his huge strike zone by being one of the smartest, most well-prepared hitters in baseball. `\
 https://nytimes.com/athletic/6663697/2025/09/27/aaron-judge-batting-champ-yankees-tallest-mlb-history/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/27/opinion/james-comey-indictment.html
 **We’re All Going to Die — Soonish!**\
 `Even with big blue eyes or amazing pecs, A.I.’s allure can be deadly.`\
 https://nytimes.com/2025/09/27/opinion/grok-ai-companions-x.html
-
-**What a Book of Excuses Reveals About the Democrats’ Future**\
-`Three Opinion writers weigh in on Kamala Harris’s campaign memoir.`\
-https://nytimes.com/2025/09/27/opinion/kamala-harris-107-days-memoir-democratic-party.html
 
