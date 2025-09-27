@@ -1,3 +1,7 @@
+**Notre Dame's Jeremiyah Love goes off for four first-half TDs at Arkansas**\
+`Love's 14 first-half touches covered 128 yards, including a broken tackle almost every time the Irish junior touched the football.`\
+https://nytimes.com/athletic/6668374/2025/09/27/notre-dame-arkansas-highlights-jeremiyah-love/
+
 **England win Women's Rugby World Cup after defeating Canada 33-13**\
 `The tournament hosts secured a record 33rd consecutive win in front of 81,885 people.`\
 https://nytimes.com/athletic/6668278/2025/09/27/england-womens-rugby-world-cup-win-canada/

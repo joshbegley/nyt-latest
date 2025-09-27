@@ -1,3 +1,7 @@
+**Notre Dame's Jeremiyah Love goes off for four first-half TDs at Arkansas**\
+`Love's 14 first-half touches covered 128 yards, including a broken tackle almost every time the Irish junior touched the football.`\
+https://nytimes.com/athletic/6668374/2025/09/27/notre-dame-arkansas-highlights-jeremiyah-love/
+
 **England win Women's Rugby World Cup after defeating Canada 33-13**\
 `The tournament hosts secured a record 33rd consecutive win in front of 81,885 people.`\
 https://nytimes.com/athletic/6668278/2025/09/27/england-womens-rugby-world-cup-win-canada/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6664967/2025/09/27/manchester-city-v-burnley-premie
 **Justin Fields clears concussion protocol, will start for Jets on Monday night**\
 `The quarterback missed the Jets' Week 3 game at Tampa Bay.`\
 https://nytimes.com/athletic/6662279/2025/09/27/justin-fields-new-york-jets-clears-consussion-protocol/
-
-**The Briefing: Leeds 2 Bournemouth 2 - What happened to Aaronson's draft excluder? Did Adams deserve boos?**\
-`Another late, late goal cost Daniel Farke's men two points at Elland Road on Saturday - The Athletic breaks down the action`\
-https://nytimes.com/athletic/6664966/2025/09/27/leeds-2-bournemouth-2-aaronson-draft-excluder-adams-longstaff/
 
