@@ -1,3 +1,11 @@
+**How to watch Rockies at Giants: Time, TV, streaming for September 28**\
+`Find out how to watch the Colorado Rockies play the San Francisco Giants, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6668886/2025/09/27/rockies-vs-giants-stream-how-to-watch-sept-28/
+
+**Central Perk**\
+`Rich Katz has a puzzling job for us that turns out to be very, very cushy.`\
+https://nytimes.com/2025/09/27/crosswords/daily-puzzle-2025-09-28.html
+
 **Leo Gerard, Who Led a Growing Steelworkers Union, Dies at 78**\
 `He helped make it the largest industrial union in North America as he fought an influx of cheap metal from China and lobbied for anti-dumping tariffs.`\
 https://nytimes.com/2025/09/27/business/leo-gerard-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6668738/2025/09/27/cheryl-reeve-suspension-lynx-wnb
 **Ravens place DT Nnamdi Madubuike on IR with neck injury**\
 `Madubuike, 27, hurt his neck in Baltimore's 41-17 Week 2 victory over the Browns.`\
 https://nytimes.com/athletic/6647098/2025/09/27/ravens-nnamdi-madubuike-injury/
-
-**Yankees beat Orioles to stay in AL East title hunt as MLB playoff race continues**\
-`There's a full slate of AL games Saturday with postseason ramifications.`\
-https://nytimes.com/athletic/6668552/2025/09/27/mlb-al-takeaways-yankees-guardians-tigers/
-
-**Georgia Tech escapes Wake Forest upset in overtime, improves to 5-0**\
-`The Yellow Jackets stayed unbeaten after Clayton Powell-Lee intercepted a pass as Wake Forest went for a two-point conversion and the win.`\
-https://nytimes.com/athletic/6668722/2025/09/27/georgia-tech-wake-forest-upset-overtime/
 
