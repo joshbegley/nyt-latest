@@ -1,3 +1,11 @@
+**Trump’s Targeting of Soros Foundations Sparks Fear and Defiance on Left**\
+`Facing a nascent administration investigation, Alex Soros privately pledged that the Open Society Foundations would back down only “over my dead body.”`\
+https://nytimes.com/2025/09/26/us/politics/trump-soros-foundations-donors.html
+
+**Braves take a flier on Alek Manoah, plan a send-off for Charlie Morton**\
+`Manoah joins the Braves after being claimed off waivers, Matt Olson wins Brave of the Year and more.`\
+https://nytimes.com/athletic/6666912/2025/09/26/braves-roster-alek-manoah-charlie-morton/
+
 **The Testimony at the Heart of the Comey Indictment, Examined**\
 `The charges against the former F.B.I. director center on an appearance he made before a Senate committee in September 2020. Here’s a closer look.`\
 https://nytimes.com/2025/09/26/us/politics/james-comey-testimony-trump.html
