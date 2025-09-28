@@ -1,3 +1,7 @@
+**What Questions Do You Have About Trump and the World?**\
+`“Ask a Correspondent” will take your questions to Peter Baker, our chief White House correspondent.`\
+https://nytimes.com/2025/09/28/world/americas/callout-reader-questions-trump-baker.html
+
 **Steelers QB Skylar Thompson is reportedly jumped, robbed in Ireland**\
 `Thompson is in his fourth NFL season and first in Pittsburgh. He was placed on IR on Sept. 10 after suffering a hamstring injury.`\
 https://nytimes.com/athletic/6670143/2025/09/28/steelers-skylar-thompson-jumped-robbed-ireland/

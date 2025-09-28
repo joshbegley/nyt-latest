@@ -1,3 +1,7 @@
+**What Questions Do You Have About Trump and the World?**\
+`“Ask a Correspondent” will take your questions to Peter Baker, our chief White House correspondent.`\
+https://nytimes.com/2025/09/28/world/americas/callout-reader-questions-trump-baker.html
+
 **Steelers QB Skylar Thompson is reportedly jumped, robbed in Ireland**\
 `Thompson is in his fourth NFL season and first in Pittsburgh. He was placed on IR on Sept. 10 after suffering a hamstring injury.`\
 https://nytimes.com/athletic/6670143/2025/09/28/steelers-skylar-thompson-jumped-robbed-ireland/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6670106/2025/09/28/penn-state-oregon-college-footba
 **Mandel's Final Thoughts: Alabama, Oregon are rolling — and it's Groundhog Day for Penn State**\
 `Plus: Why is Alabama Kirby Smart's kryptonite, LSU's offensive struggles and Trinidad Chambliss and Ole Miss's path to the CFP. `\
 https://nytimes.com/athletic/6669691/2025/09/28/college-football-scores-results-week-5/
-
-**Oilers roster analysis: How should the forward lineup look on opening night?**\
-`The season-opening lineup up front is starting to come into focus as training camp progresses and hints are dropped along the way.`\
-https://nytimes.com/athletic/6667281/2025/09/28/oilers-roster-analysis-lineup-2025/
 
