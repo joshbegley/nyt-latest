@@ -35,6 +35,6 @@ https://nytimes.com/issue/todayspaper/2025/09/28/todays-new-york-times
 https://nytimes.com/2025/09/28/opinion/pesticides-health-food-glyphosate.html
 
 **Gunman Fires on Riverside Bar in North Carolina From Boat, Killing 3**\
-`Eight others were injured in the attack on the bar in Southport, N.C., the authorities said. The gunman escaped on the boat.`\
+`Eight others were injured in the attack on the bar in Southport, N.C., the authorities said. The Coast Guard later detained a person matching a description of the shooter.`\
 https://nytimes.com/2025/09/28/us/north-carolina-boat-shooting.html
 
