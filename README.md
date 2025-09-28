@@ -23,7 +23,7 @@ https://nytimes.com/video/us/100000010426309/michigan-grand-blanc-fire.html
 https://nytimes.com/athletic/6647515/2025/09/28/razorbacks-sam-pittman-fired-bobby-petrino/
 
 **Free agent Al Horford agrees to sign with Warriors: Source**\
-`Horford, 39, spent the last four seasons with Boston. He has averaged 12.9 points and 7.9 rebounds per game in 18 seasons.`\
+`Horford, 39, chooses Warriors after considering the Lakers, Nuggets, other suitors and even retirement.`\
 https://nytimes.com/athletic/6470227/2025/09/28/al-horford-warriors-nba-free-agency-2025/
 
 **Grealish on partying while at Man City: 'I didn't help myself at times'**\

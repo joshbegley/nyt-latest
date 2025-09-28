@@ -1,3 +1,11 @@
+**Steelers vs. Vikings: Pittsburgh holds off Minnesota's comeback attempt**\
+`Minnesota cut Pittsburgh's lead to three with two fourth-quarter touchdowns`\
+https://nytimes.com/athletic/6670475/2025/09/28/vikings-steelers-score-nfl/
+
+**‘One Battle After Another’ Ticket Sales Are Solid (With an Asterisk)**\
+`Paul Thomas Anderson’s film collected $22.4 million in North America over the weekend, enough for No. 1. But its profitability remains a big question.`\
+https://nytimes.com/2025/09/28/business/media/one-battle-after-another-box-office.html
+
 **Maple Leafs, Anthony Stolarz agree to 4-year extension with $3.75 million AAV**\
 `If the goalie can stay healthier this season and continue to perform at a high level, this deal will look like a win next summer.`\
 https://nytimes.com/athletic/6670382/2025/09/28/maple-leafs-anthony-stolarz-extension/
