@@ -1,3 +1,15 @@
+**Trading Punches**\
+`Brian Keller makes his New York Times Crossword debut.`\
+https://nytimes.com/2025/09/28/crosswords/daily-puzzle-2025-09-29.html
+
+**Shohei Ohtani hits career-high 55th home run**\
+`The two-way superstar has hit 109 regular-season homers in his two seasons with the Dodgers.`\
+https://nytimes.com/athletic/6671218/2025/09/28/shohei-ohtani-55-home-runs-career-high/
+
+**Indiana Fever stave off elimination, even WNBA semifinals against Las Vegas Aces**\
+`Aliyah Boston, Kelsey Mitchell and Odyssey Sims combined to score 67 points for the Fever.`\
+https://nytimes.com/athletic/6671283/2025/09/28/indiana-fever-wnba-semifinals-las-vegas-aces/
+
 **How impressive was Jaxson Dart? Has Drake Maye arrived? Our NFL experts' Week 4 takeaways**\
 `The undefeated Eagles and Bucs played a thriller in Tampa Bay, and the seat could be getting awfully hot for one winless team's head coach.`\
 https://nytimes.com/athletic/6670660/2025/09/28/nfl-takeaways-week-4-scores-results/
