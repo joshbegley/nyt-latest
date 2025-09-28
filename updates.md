@@ -1,3 +1,11 @@
+**Mandel's Final Thoughts: Alabama, Oregon are rolling — and it's Groundhog Day for Penn State**\
+`Plus: Why is Alabama's Kirby Smart's kryptonite? LSU's offensive struggles and Trinidad Chambliss and Ole Miss's path to the CFP. `\
+https://nytimes.com/athletic/6669691/2025/09/28/college-football-scores-results-week-5/
+
+**Oilers roster analysis: How should the forward lineup look on opening night?**\
+`The season-opening lineup up front is starting to come into focus as training camp progresses and hints are dropped along the way.`\
+https://nytimes.com/athletic/6667281/2025/09/28/oilers-roster-analysis-lineup-2025/
+
 **Calle Järnkrok has a new lease on his NHL career. Can it help him crack the Leafs?**\
 `Despite an uncertain future with Toronto this season, Järnkrok is in training camp with a new attitude and better health. 
 `\

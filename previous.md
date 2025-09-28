@@ -1,3 +1,11 @@
+**Mandel's Final Thoughts: Alabama, Oregon are rolling — and it's Groundhog Day for Penn State**\
+`Plus: Why is Alabama's Kirby Smart's kryptonite? LSU's offensive struggles and Trinidad Chambliss and Ole Miss's path to the CFP. `\
+https://nytimes.com/athletic/6669691/2025/09/28/college-football-scores-results-week-5/
+
+**Oilers roster analysis: How should the forward lineup look on opening night?**\
+`The season-opening lineup up front is starting to come into focus as training camp progresses and hints are dropped along the way.`\
+https://nytimes.com/athletic/6667281/2025/09/28/oilers-roster-analysis-lineup-2025/
+
 **World Cup win can be England's 'Lionesses moment' - 'We've got the ball rolling and we don't want it to stop'**\
 `The only way is up for English women's rugby after a world-record crowd at Twickenham witnessed them dismantle Canada`\
 https://nytimes.com/athletic/6668847/2025/09/28/england-womens-rugby-world-cup-win/
@@ -29,13 +37,4 @@ https://nytimes.com/athletic/6669720/2025/09/28/georgia-football-alabama-result-
 **Breaking down Chelsea's collapse against Brighton: 'You cannot continue to give away presents'**\
 `Chelsea conceded three goals to lose against Brighton but it was largely the result of their own mistakes - on the pitch and in the build-up`\
 https://nytimes.com/athletic/6668435/2025/09/28/chelsea-brighton-collapse-analysed/
-
-**Calle Järnkrok has a new lease on his NHL career. Can it help him crack the Leafs?**\
-`Despite an uncertain future with Toronto this season, Järnkrok is in training camp with a new attitude and better health. 
-`\
-https://nytimes.com/athletic/6669406/2025/09/28/calle-jarnkrok-maple-leafs-lineup-injury/
-
-**Red Wings stock watch: Who's rising, who's falling this preseason?**\
-`Checking in on which players' stock is up and which players' stock is down at the midway point of the preseason.`\
-https://nytimes.com/athletic/6668660/2025/09/28/red-wings-preseason-players-stock-watch/
 
