@@ -1,3 +1,7 @@
+**Mormon Church on Fire in Michigan After Reported Shooting**\
+`Emergency crews were responding to a reported shooting and fire at a Mormon church in Grand Blanc Township, Mich.`\
+https://nytimes.com/video/us/100000010426309/michigan-grand-blanc-fire.html
+
 **Arkansas fires Pittman, names Petrino interim coach after loss to Notre Dame**\
 `Pittman, who went 32-34 with the Razorbacks, has one of the most unique buyouts in college football.`\
 https://nytimes.com/athletic/6647515/2025/09/28/razorbacks-sam-pittman-fired-bobby-petrino/
