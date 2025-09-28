@@ -1,3 +1,31 @@
+**Colts WR Adonai Mitchell turns dazzling play into blunder with fumble through end zone**\
+`With the undefeated Indianapolis Colts trailing the Los Angeles Rams 13-10 early in the third quarter, second-year wide receiver Adonai Mitchell made a spectacular effort that appeared to give the Colts the lead with a touchdown.`\
+https://nytimes.com/athletic/6671296/2025/09/28/colts-adonai-mitchell-fumble-end-zone-rams/
+
+**Blue Jays survive scramble with Yankees, win first AL East title since 2015**\
+`Bo Bichette on division champion Blue Jays: "Everything this team has is what it takes to win a World Series"`\
+https://nytimes.com/athletic/6670231/2025/09/28/lue-jays-yankees-clinch-al-east/
+
+**With Terry Francona at the helm, Reds return to postseason for first time since 2020**\
+`It took a little bit of help but the Reds are back in the playoffs, and so is manager Terry Francona. `\
+https://nytimes.com/athletic/6671326/2025/09/28/cincinnati-reds-playoff-berth-clinched-nl-wild-card-series/
+
+**Rosenthal: No longer paper tigers, the AL East champion Blue Jays finally put it all together**\
+`After a 74-win last-place season in 2024, the Blue Jays overcame a series of challenges to finish with the AL's best record.`\
+https://nytimes.com/athletic/6671257/2025/09/28/toronto-blue-jays-al-east-champions/
+
+**Mets eliminated from postseason with shutout loss to Marlins**\
+`Despite spending well over $300 million on their roster, the Mets will not play in October.`\
+https://nytimes.com/athletic/6671105/2025/09/28/mets-eliminated-postseason/
+
+**Yankees, Red Sox to rekindle rivalry in Wild Card Series: First look**\
+`The once-fierce rivalry between the Yankees and Red Sox has cooled in recent years, but that could be about to change.`\
+https://nytimes.com/athletic/6671191/2025/09/28/yankees-redsox-wild-card-preview/
+
+**Dodgers, Reds bring strong rotations to matchup in Wild Card series: First look**\
+`It's Shohei Ohtani and the Dodgers taking on Elly De La Cruz and the Reds, who is perhaps the biggest X-factor in the series.`\
+https://nytimes.com/athletic/6670060/2025/09/28/dodgers-reds-wild-card-preview/
+
 **Trading Punches**\
 `Brian Keller makes his New York Times Crossword debut.`\
 https://nytimes.com/2025/09/28/crosswords/daily-puzzle-2025-09-29.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6671218/2025/09/28/shohei-ohtani-55-home-runs-caree
 **How impressive was Jaxson Dart? Has Drake Maye arrived? Our NFL experts' Week 4 takeaways**\
 `The undefeated Eagles and Bucs played a thriller in Tampa Bay, and the seat could be getting awfully hot for one winless team's head coach.`\
 https://nytimes.com/athletic/6670660/2025/09/28/nfl-takeaways-week-4-scores-results/
-
-**Guardians overtake Tigers to win AL Central, a division they once trailed by 15 1/2 games**\
-`The two teams will meet again at Progressive Field in the Wild Card round on Tuesday. `\
-https://nytimes.com/athletic/6670884/2025/09/28/guardians-tigers-al-central-division/
-
-**Indiana Fever stave off elimination, even WNBA semifinals against Las Vegas Aces**\
-`Aliyah Boston, Kelsey Mitchell and Odyssey Sims combined to score 67 points for the Fever.`\
-https://nytimes.com/athletic/6671283/2025/09/28/indiana-fever-wnba-semifinals-las-vegas-aces/
-
-**Rockies set MLB record for worst run differential — minus-424 — in modern era**\
-`No team had been outscored by that many runs in a season since the infamous 1899 Cleveland Spiders. `\
-https://nytimes.com/athletic/6670018/2025/09/28/colorado-rockies-worst-run-differential-mlb-history/
-
-**Venezuela, America and the Specter of Regime Change**\
-`In this first edition of The World newsletter, we explore why a president who campaigned against “foreign wars” is sending warships to Venezuela.`\
-https://nytimes.com/2025/09/28/world/venezuela-trump-comey-russia-ukraine-drones.html
-
-**The Michigan Attack Targeted a Latter-day Saint Church**\
-`The building in Grand Blanc Township served a congregation of about 150 members. And that number was growing, according to a frequent visitor.`\
-https://nytimes.com/2025/09/28/us/latter-day-saints-church-grand-blanc-township.html
-
-**Guardiola: Rodri said he 'could not play' Burnley game due to knee injury**\
-`The Spain international tore his ACL in that same right knee in September 2024.`\
-https://nytimes.com/athletic/6668310/2025/09/28/rodri-manchester-city-injury-latest/
-
-**Vikings' plan for season crumbles as injuries, loss to Steelers highlight team's faults**\
-`The Vikings needed a dependable offensive line to keep them afloat this season. But injuries and poor play have cast a dark shadow thus far.`\
-https://nytimes.com/athletic/6671088/2025/09/28/vikings-steelers-dublin-ireland-offensive-line-carson-wentz/
 
