@@ -1,3 +1,7 @@
+**One Flyers prospect makes an impression, but others struggling to have an impact**\
+`Jack Nesbitt, selected by the Flyers with the 12th pick in the 2025 draft, had a successful first month skating as a legit NHL prospect.`\
+https://nytimes.com/athletic/6669231/2025/09/27/flyers-prospects-jack-nesbitt-preseason/
+
 **Rory McIlroy, Shane Lowry and the anatomy of a beatdown at Bethpage**\
 `The Ryder Cup margin is not only insurmountable, it is, more to the point, a portrait of this European team's ability to punch back.`\
 https://nytimes.com/athletic/6669042/2025/09/27/rory-mcilroy-shane-lowry-ryder-cup-bethpage/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6668670/2025/09/27/marc-andre-fleury-penguins-final
 **What to know about Ryder Cup with the Europeans owning a huge lead**\
 `Through two days, Luke Donald’s European Ryder Cup team has put on one of the most impressive displays in the history of team golf.`\
 https://nytimes.com/athletic/6668990/2025/09/27/ryder-cup-25-what-to-know-europe-lead/
-
-**Brewers clinch NL's top seed, home-field advantage throughout postseason**\
-`Milwaukee clinched the best record in Major League Baseball with the Phillies' loss to the Twins on Saturday.`\
-https://nytimes.com/athletic/6666402/2025/09/27/brewers-postseason-top-seed-home-field-advantage/
 
