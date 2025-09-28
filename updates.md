@@ -1,3 +1,7 @@
+**Gunman Fires on Riverside Bar in North Carolina From Boat, Killing 3**\
+`Eight others were injured in the attack on the bar in Southport, N.C., the authorities said. The Coast Guard later detained a person matching a description of the shooter.`\
+https://nytimes.com/2025/09/28/us/north-carolina-boat-shooting.html
+
 **Why Liverpool's habit of leaving it late finally caught up with them against Crystal Palace**\
 `This was the first time this season Liverpool have found themselves behind and failed to recover. What went wrong?`\
 https://nytimes.com/athletic/6668860/2025/09/28/liverpool-crystal-palace-late-slot-result/
