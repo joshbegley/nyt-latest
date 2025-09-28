@@ -1,3 +1,7 @@
+**Kalen DeBoer gets the win Alabama needed — and sidesteps possible disaster**\
+`On the brink of falling to 2-2 in September, Kalen DeBoer and Alabama hold off Georgia for a crucial win.`\
+https://nytimes.com/athletic/6669705/2025/09/28/kalen-deboer-alabama-georgia-win/
+
 **The New York Times in Print for Sunday, Sep. 28, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/28/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6666073/2025/09/28/mark-townsend-hillsborough-death
 **Inside Graham Potter's eight months at West Ham: Intense pressure, clashes with key figures**\
 `The head coach's position was under scrutiny as early as May, and his gamble to get rid of big characters in the squad counted against him`\
 https://nytimes.com/athletic/6637420/2025/09/28/west-ham-graham-potters-inside-clashes/
-
-**Alonso's youthful rebuild is a work in progress. It showed in Madrid's derby humiliation**\
-`Alonso and his new-look side will have to learn from their historic 5-2 thrashing by their city rivals`\
-https://nytimes.com/athletic/6668605/2025/09/28/real-madrid-youth-xabi-alonso-atletico/
 
