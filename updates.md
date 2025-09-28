@@ -1,3 +1,7 @@
+**Vikings' plan for season crumbles as injuries, loss to Steelers highlight team's faults**\
+`The Vikings needed a dependable offensive line to keep them afloat this season. But injuries and poor play have cast a dark shadow thus far.`\
+https://nytimes.com/athletic/6671088/2025/09/28/vikings-steelers-dublin-ireland-offensive-line-carson-wentz/
+
 **Cubs' Cade Horton on broken rib that will keep him out: 'It was just a perfect storm'**\
 `Horton left Tuesday’s start after three innings with what was described at the time as back tightness.`\
 https://nytimes.com/athletic/6671154/2025/09/28/chicago-cubs-cade-horton-injury-discussion/

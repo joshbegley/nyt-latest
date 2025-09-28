@@ -1,3 +1,7 @@
+**Vikings' plan for season crumbles as injuries, loss to Steelers highlight team's faults**\
+`The Vikings needed a dependable offensive line to keep them afloat this season. But injuries and poor play have cast a dark shadow thus far.`\
+https://nytimes.com/athletic/6671088/2025/09/28/vikings-steelers-dublin-ireland-offensive-line-carson-wentz/
+
 **Cubs' Cade Horton on broken rib that will keep him out: 'It was just a perfect storm'**\
 `Horton left Tuesday’s start after three innings with what was described at the time as back tightness.`\
 https://nytimes.com/athletic/6671154/2025/09/28/chicago-cubs-cade-horton-injury-discussion/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/28/nyregion/eric-adams-profile-personality.html
 **Saints-Bills: Josh Allen accounts for 3 TDs, Buffalo remains undefeated**\
 `Allen led the Bills on a four-play, 60-yard drive in the fourth quarter to pull away from the Saints`\
 https://nytimes.com/athletic/6670914/2025/09/28/saints-bills-josh-allen-score-takeaways/
-
-**Pulisic stars with goal and brilliant assist as Milan beat Napoli to go top of Serie A**\
-`The USMNT forward starred for Milan in their Serie A victory over Napoli on Sunday.`\
-https://nytimes.com/athletic/6671003/2025/09/28/christian-pulisic-milan-usmnt-goal/
 
