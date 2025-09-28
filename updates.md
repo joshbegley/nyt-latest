@@ -1,3 +1,7 @@
+**Dodgers, Reds bring strong rotations to Wild Card Series matchup: First look**\
+`It's Shohei Ohtani and the Dodgers taking on Elly De La Cruz and the Reds, who is perhaps the biggest X-factor in the series.`\
+https://nytimes.com/athletic/6670060/2025/09/28/dodgers-reds-wild-card-preview/
+
 **The MLB postseason bracket is set. Here's every team's best and worst stat**\
 `After all the clinches, comebacks and collapses of late September, the field for the 2025 Major League Baseball postseason is set.`\
 https://nytimes.com/athletic/6663921/2025/09/28/mlb-postseason-bracket-best-worst-stats/
