@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6669257/2025/09/27/pirates-vs-braves-stream-how-to-
 `Find out how to watch the Tampa Bay Rays play the Toronto Blue Jays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6669252/2025/09/27/rays-vs-blue-jays-stream-how-to-watch-sept-28/
 
-**Blues' Cam Fowler agrees to terms on 3-year, $18.3 million extension**\
+**Blues' Cam Fowler agrees to 3-year, $18.3 million extension**\
 `After arriving from Anaheim in 2024-25, Fowler had nine goals and 36 points in 51 games with the Blues last season.`\
 https://nytimes.com/athletic/6669218/2025/09/27/blues-cam-fowler-contract-extension/
 
