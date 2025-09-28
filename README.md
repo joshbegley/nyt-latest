@@ -1,3 +1,19 @@
+**Dodgers give Clayton Kershaw proper send-off, look ahead to Reds postseason test**\
+`“This was perfect,” Kershaw said following a scoreless performance Sunday afternoon in a 6-1 win over the Mariners.`\
+https://nytimes.com/athletic/6671533/2025/09/28/dodgers-clayton-kershaw-reds-postseason/
+
+**Jaguars-49ers: San Francisco's pass rush struggles without Nick Bosa in loss**\
+`Trevor Lawrence wasn’t sacked at all Sunday and had plenty of time to throw in the 26-21 victory.`\
+https://nytimes.com/athletic/6671404/2025/09/28/jaguars-49ers-result-takeaways/
+
+**Dave Canales takes blame after Panthers blown out by Pats — but something has to change**\
+`The Panthers gave back any of the goodwill they’d built with their fan base with an embarrassing road loss Sunday.`\
+https://nytimes.com/athletic/6671486/2025/09/28/panthers-blowout-loss-patriots-dave-canales/
+
+**What We Know About the Suspect in the Michigan Church Shooting**\
+`The suspect, a 40-year-old man, was killed during the attack, officials said.`\
+https://nytimes.com/2025/09/28/us/what-we-know-suspect-michigan-church-shooting.html
+
 **Arkansas running it back with Bobby Petrino seems ludicrous. For now, it's a trial**\
 `There will be good candidates interested in the Arkansas job. So why consider a retread who was fired from the role amid scandal?`\
 https://nytimes.com/athletic/6671497/2025/09/28/arkansas-bobby-petrino-head-coaching-search/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6671409/2025/09/28/patriots-panthers-mike-vrabel-dr
 **'It's something special:' James Cook's hot start shows he was worth the money**\
 `Cook is proving he was right to demand what some considered too much.`\
 https://nytimes.com/athletic/6671450/2025/09/28/bills-james-cook-contract-money/
-
-**Moldova’s Pivotal Election Projected to End in Victory for Pro-Europeans**\
-`The party of President Maia Sandu appeared poised to keep its majority in Parliament, in a vote widely seen as a showdown between Europe and Russia.`\
-https://nytimes.com/2025/09/28/world/europe/moldova-election-russia.html
-
-**Tigers, Guardians put the momentum theory to the test: Key matchups, predictions**\
-`The Tigers endured a horrific collapse but made it anyway. The Guardians pulled off an inspirational comeback. Does any of that matter now?`\
-https://nytimes.com/athletic/6669307/2025/09/28/tigers-guardians-wild-card-series-preview/
-
-**Mets' Pete Alonso will exercise opt-out clause; set to re-enter free agency**\
-`Alonso originally signed a two-year $54 million deal with an opt-out after the 2025 season. `\
-https://nytimes.com/athletic/6671474/2025/09/28/new-york-mets-pete-alonso-opt-out/
-
-**Three themes that will define the Astros' offseason**\
-`The Astros' streak of postseason appearances ended this season. How will they fix what ailed them in 2025?`\
-https://nytimes.com/athletic/6671302/2025/09/28/astros-offseason-injuries-offense-roster/
 

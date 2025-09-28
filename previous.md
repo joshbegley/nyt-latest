@@ -1,3 +1,15 @@
+**Arkansas running it back with Bobby Petrino seems ludicrous. For now, it's a trial**\
+`There will be good candidates interested in the Arkansas job. So why consider a retread who was fired from the role amid scandal?`\
+https://nytimes.com/athletic/6671497/2025/09/28/arkansas-bobby-petrino-head-coaching-search/
+
+**Chiefs stifle Ravens to move within a game of AFC West lead**\
+`Patrick Mahomes looks more comfortable in the offense, in part due to the return of Xavier Worthy.`\
+https://nytimes.com/athletic/6671256/2025/09/28/chiefs-ravens-result-takeaways/
+
+**Nigerian striker Gift Monday scores fastest NWSL hat trick, helping Spirit clinch playoff spot**\
+`Monday's first hat trick with the Spirit was a crucial one for the player and team`\
+https://nytimes.com/athletic/6671377/2025/09/28/nigerian-striker-gift-monday-hat-trick-spirit-nwsl-playoffs/
+
 **At Least 2 Dead After a Shooter Attacked a Mormon Church**\
 `A man crashed his vehicle into a Michigan church on Sunday morning and then opened fire, investigators said.`\
 https://nytimes.com/video/us/100000010426647/michigan-fire-church-shooting.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6671474/2025/09/28/new-york-mets-pete-alonso-opt-ou
 **Three themes that will define the Astros' offseason**\
 `The Astros' streak of postseason appearances ended this season. How will they fix what ailed them in 2025?`\
 https://nytimes.com/athletic/6671302/2025/09/28/astros-offseason-injuries-offense-roster/
-
-**Lamar Jackson leaves with hamstring injury as Ravens routed by Chiefs**\
-`Injuries pile up as Baltimore drops to 1-3 on the season.`\
-https://nytimes.com/athletic/6671471/2025/09/28/lamar-jackson-ravens-hamstring-cooper-rush-chiefs/
-
-**Eric Adams Suspends Re-Election Bid for Mayor of New York City**\
-`Mayor Eric Adams announced his exit from the mayoral race after his campaign faced repeated scandals and low polling numbers.`\
-https://nytimes.com/video/nyregion/100000010426689/nyc-mayor-adams-drops-out.html
-
-**An ocean away in Dublin, the Steelers defense finally arrives**\
-`In the first NFL game played in Ireland, Pittsburgh controlled the bulk of the game before hanging on to beat the Minnesota Vikings.`\
-https://nytimes.com/athletic/6671173/2025/09/28/pittsburgh-steelers-win-vikings-dublin/
 
