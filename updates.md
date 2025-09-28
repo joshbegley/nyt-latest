@@ -1,3 +1,11 @@
+**An ocean away in Dublin, the Steelers defense finally arrives**\
+`In the first NFL game played in Ireland, Pittsburgh controlled the bulk of the game before hanging on to beat the Vikings.`\
+https://nytimes.com/athletic/6671173/2025/09/28/pittsburgh-steelers-win-vikings-dublin/
+
+**Stowaway Found Dead in Wheel Well of American Airlines Jet, Police Say**\
+`The body was found on Sunday at Charlotte Douglas International Airport in the landing gear compartment of a plane that had recently arrived from Europe, the police said.`\
+https://nytimes.com/2025/09/28/us/american-airlines-stowaway-dead-charlotte.html
+
 **Dodgers, Reds bring strong rotations to Wild Card Series matchup: First look**\
 `It's Shohei Ohtani and the Dodgers taking on Elly De La Cruz and the Reds, who is perhaps the biggest X-factor in the series.`\
 https://nytimes.com/athletic/6670060/2025/09/28/dodgers-reds-wild-card-preview/

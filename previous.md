@@ -1,3 +1,11 @@
+**An ocean away in Dublin, the Steelers defense finally arrives**\
+`In the first NFL game played in Ireland, Pittsburgh controlled the bulk of the game before hanging on to beat the Vikings.`\
+https://nytimes.com/athletic/6671173/2025/09/28/pittsburgh-steelers-win-vikings-dublin/
+
+**Stowaway Found Dead in Wheel Well of American Airlines Jet, Police Say**\
+`The body was found on Sunday at Charlotte Douglas International Airport in the landing gear compartment of a plane that had recently arrived from Europe, the police said.`\
+https://nytimes.com/2025/09/28/us/american-airlines-stowaway-dead-charlotte.html
+
 **The MLB postseason bracket is set. Here's every team's best and worst stat**\
 `After all the clinches, comebacks and collapses of late September, the field for the 2025 Major League Baseball postseason is set.`\
 https://nytimes.com/athletic/6663921/2025/09/28/mlb-postseason-bracket-best-worst-stats/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6671191/2025/09/28/yankees-redsox-wild-card-preview
 **Dodgers, Reds bring strong rotations to Wild Card Series matchup: First look**\
 `It's Shohei Ohtani and the Dodgers taking on Elly De La Cruz and the Reds, who is perhaps the biggest X-factor in the series.`\
 https://nytimes.com/athletic/6670060/2025/09/28/dodgers-reds-wild-card-preview/
-
-**Trading Punches**\
-`Brian Keller makes his New York Times Crossword debut.`\
-https://nytimes.com/2025/09/28/crosswords/daily-puzzle-2025-09-29.html
-
-**Shohei Ohtani hits career-high 55th home run**\
-`The two-way superstar has hit 109 regular-season homers in his two seasons with the Dodgers.`\
-https://nytimes.com/athletic/6671218/2025/09/28/shohei-ohtani-55-home-runs-career-high/
 
