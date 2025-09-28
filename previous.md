@@ -1,3 +1,7 @@
+**How to watch Aces at Fever: Game 4 Time, TV, streaming**\
+`Find out how to watch the Las Vegas Aces play the Indiana Fever, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6670126/2025/09/28/aces-vs-fever-stream-how-to-watch-sept-28/
+
 **Until Saturday: It happened again to Penn State and UGA**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6670106/2025/09/28/penn-state-oregon-college-football-results-until-saturday/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6669442/2025/09/28/spencer-strider-braves-pitching-
 **Van Dijk says Liverpool 'have to improve quickly' after loss to Palace**\
 `The Premier League champions lost for the first time this season after conceding a 97th minute goal from Eddie Nketiah.`\
 https://nytimes.com/athletic/6668806/2025/09/28/virgil-van-dijk-liverpool-crystal-palace/
-
-**It's not an Alabama complex. Georgia just isn't very good right now**\
-`The reality is Georgia is not as good as it was three or four years ago, and Saturday showed that.`\
-https://nytimes.com/athletic/6669720/2025/09/28/georgia-football-alabama-result-analysis/
 

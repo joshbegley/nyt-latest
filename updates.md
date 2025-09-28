@@ -1,3 +1,7 @@
+**How to watch Aces at Fever: Game 4 Time, TV, streaming**\
+`Find out how to watch the Las Vegas Aces play the Indiana Fever, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6670126/2025/09/28/aces-vs-fever-stream-how-to-watch-sept-28/
+
 **Until Saturday: It happened again to Penn State and UGA**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6670106/2025/09/28/penn-state-oregon-college-football-results-until-saturday/
