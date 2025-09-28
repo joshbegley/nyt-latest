@@ -1,3 +1,15 @@
+**Steelers QB Skylar Thompson is reportedly jumped, robbed in Ireland**\
+`Thompson is in his fourth NFL season and first in Pittsburgh. He was placed on IR on Sept. 10 after suffering a hamstring injury.`\
+https://nytimes.com/athletic/6670143/2025/09/28/steelers-skylar-thompson-jumped-robbed-ireland/
+
+**Trump to Meet With Congressional Leaders, Aides Say, as Shutdown Deadline Looms**\
+`Lawmakers face a Tuesday deadline to fund the government, which will require them to agree on a spending measure that can win at least 60 votes in the Senate.`\
+https://nytimes.com/2025/09/28/us/politics/schumer-jeffries-trump-shutdown.html
+
+**Trump Administration Live Updates: President to Meet With Congressional Leaders as Shutdown Deadline Looms**\
+``\
+https://nytimes.com/live/2025/09/28/us/trump-news
+
 **Carvajal facing up to five weeks out with calf injury, El Clasico in doubt**\
 `Trent Alexander-Arnold is also out injured, meaning that Madrid are set to be without a recognised right-back for their upcoming fixtures.`\
 https://nytimes.com/athletic/6669945/2025/09/28/real-madrid-dani-carvajal-injury/

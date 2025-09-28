@@ -1,3 +1,15 @@
+**Steelers QB Skylar Thompson is reportedly jumped, robbed in Ireland**\
+`Thompson is in his fourth NFL season and first in Pittsburgh. He was placed on IR on Sept. 10 after suffering a hamstring injury.`\
+https://nytimes.com/athletic/6670143/2025/09/28/steelers-skylar-thompson-jumped-robbed-ireland/
+
+**Trump to Meet With Congressional Leaders, Aides Say, as Shutdown Deadline Looms**\
+`Lawmakers face a Tuesday deadline to fund the government, which will require them to agree on a spending measure that can win at least 60 votes in the Senate.`\
+https://nytimes.com/2025/09/28/us/politics/schumer-jeffries-trump-shutdown.html
+
+**Trump Administration Live Updates: President to Meet With Congressional Leaders as Shutdown Deadline Looms**\
+``\
+https://nytimes.com/live/2025/09/28/us/trump-news
+
 **Carvajal facing up to five weeks out with calf injury, El Clasico in doubt**\
 `Trent Alexander-Arnold is also out injured, meaning that Madrid are set to be without a recognised right-back for their upcoming fixtures.`\
 https://nytimes.com/athletic/6669945/2025/09/28/real-madrid-dani-carvajal-injury/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6669691/2025/09/28/college-football-scores-results-
 **Oilers roster analysis: How should the forward lineup look on opening night?**\
 `The season-opening lineup up front is starting to come into focus as training camp progresses and hints are dropped along the way.`\
 https://nytimes.com/athletic/6667281/2025/09/28/oilers-roster-analysis-lineup-2025/
-
-**World Cup win can be England's 'Lionesses moment' - 'We've got the ball rolling and we don't want it to stop'**\
-`The only way is up for English women's rugby after a world-record crowd at Twickenham witnessed them dismantle Canada`\
-https://nytimes.com/athletic/6668847/2025/09/28/england-womens-rugby-world-cup-win/
-
-**MLB playoff bracket watch: AL East, Central titles on the line in Game 162; clinching scenarios**\
-`Plus the Reds and Mets battle for the final NL wild-card spot on the last day of the regular season. `\
-https://nytimes.com/athletic/6669355/2025/09/28/mlb-playoffs-bracket-standings-matchups/
-
-**A New Approach to Awe**\
-`A psychologist argues that the sensation is not mysterious, but rather an emotion that scientists can detect.`\
-https://nytimes.com/2025/09/28/briefing/a-new-approach-to-awe.html
 
