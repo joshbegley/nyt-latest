@@ -1,3 +1,15 @@
+**How impressive was Jaxson Dart? Has Drake Maye arrived? Our NFL experts' Week 4 takeaways**\
+`The undefeated Eagles and Bucs played a thriller in Tampa Bay, and the seat could be getting awfully hot for one winless team's head coach.`\
+https://nytimes.com/athletic/6670660/2025/09/28/nfl-takeaways-week-4-scores-results/
+
+**Guardians overtake Tigers to win AL Central, a division they once trailed by 15 1/2 games**\
+`The two teams will meet again at Progressive Field in the Wild Card round on Tuesday. `\
+https://nytimes.com/athletic/6670884/2025/09/28/guardians-tigers-al-central-division/
+
+**Indiana Fever stave off elimination, even WNBA semifinals against Las Vegas Aces**\
+`Aliyah Boston, Kelsey Mitchell and Odyssey Sims combined to score 67 points for the Fever.`\
+https://nytimes.com/athletic/6671283/2025/09/28/indiana-fever-stave-off-elimination-even-wnba-semifinals-against-las-vegas-aces/
+
 **Rockies set MLB record for worst run differential — minus-424 — in modern era**\
 `No team had been outscored by that many runs in a season since the infamous 1899 Cleveland Spiders. `\
 https://nytimes.com/athletic/6670018/2025/09/28/colorado-rockies-worst-run-differential-mlb-history/
@@ -22,19 +34,7 @@ https://nytimes.com/athletic/6671088/2025/09/28/vikings-steelers-dublin-ireland-
 `Horton left Tuesday’s start after three innings with what was described at the time as back tightness.`\
 https://nytimes.com/athletic/6671154/2025/09/28/chicago-cubs-cade-horton-injury-discussion/
 
-**Europe retains Ryder Cup after a torrid United States attempted comeback**\
+**Europe wins Ryder Cup after a torrid United States attempted comeback**\
 `Shane Lowry clinched the winning point after the Americans made the Ryder Cup close.`\
 https://nytimes.com/athletic/6670877/2025/09/28/europe-wins-ryder-cup-bethpage/
-
-**Eagles-Buccaneers: Philadelphia defense clamps down on Tampa Bay late**\
-`Baker Mayfield leads Buccaneers on second-half rally, but comes up short.`\
-https://nytimes.com/athletic/6670712/2025/09/28/eagles-buccaneers-score-nfl/
-
-**Missouri Governor Signs Congressional Map Redrawn to Boost Republicans**\
-`Republicans intend to flip a congressional seat in the Kansas City area, but opponents are trying to stop the new map from taking effect.`\
-https://nytimes.com/2025/09/28/us/missouri-redistricting-governor-congress.html
-
-**Shooting in Michigan Is the Latest Attack on a Religious Institution**\
-`Places of worship and religious schools have been the targets of a series of recent shooting attacks across the country.`\
-https://nytimes.com/2025/09/28/us/churches-schools-shootings.html
 
