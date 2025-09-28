@@ -1,3 +1,7 @@
+**Astros' playoff streak is over, but is their championship window closing too?**\
+`Is Houston's depth good enough to compensate for an aging core and a bloated payroll?`\
+https://nytimes.com/athletic/6669729/2025/09/28/astros-playoff-streak-over/
+
 **Marc Maron and Other Comedians Rebuke Peers in Saudi Festival**\
 `The state-sponsored Riyadh Comedy Festival will feature Dave Chappelle, Pete Davidson and other top acts. Human Rights Watch says the event aims to obscure the country’s abuses.`\
 https://nytimes.com/2025/09/28/arts/marc-maron-shane-gillis-riyadh-comedy-festival.html
