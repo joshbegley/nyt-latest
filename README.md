@@ -1,3 +1,11 @@
+**Texans-Titans: Houston shuts out Tennessee 26-0 for first win of season**\
+`With the win, the Texans improve to 1-3. The Titans have yet to win a game at 0-4.`\
+https://nytimes.com/athletic/6671012/2025/09/28/texans-titans-result-nfl/
+
+**Lions-Browns: Detroit dominates on defense to cruise vs. Browns**\
+`Kalif Raymond returned a punt 65 yards for a score and Amon-Ra St. Brown had two touchdown catches for Detroit.`\
+https://nytimes.com/athletic/6670809/2025/09/28/lions-browns-result-takeaways/
+
 **Swaggering, Scandalous, Strange: There Will Never Be Another Eric Adams**\
 `The quotable, luxury-loving, perpetually mysterious mayor took New Yorkers on a wild and unpredictable ride.`\
 https://nytimes.com/2025/09/28/nyregion/eric-adams-profile-personality.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6670863/2025/09/28/falcons-commanders-michael-penix
 **Saquon Barkley scores TD on fake tush push as Eagles flex variations of the play**\
 `The Eagles lined up as if they were going with their patented tush push, but instead handed off to Barkley for an easy touchdown.`\
 https://nytimes.com/athletic/6670908/2025/09/28/eagles-fake-tush-push-saquon-barkley-buccaneers/
-
-**Willy Adames becomes first Giant to hit 30 home runs since Barry Bonds in 2004**\
-`San Francisco's shortstop ended the team's 30-homer drought by driving the first pitch he saw over the center-field wall.`\
-https://nytimes.com/athletic/6670864/2025/09/28/sf-giants-willy-adames-30-home-runs-barry-bonds/
-
-**Q&A: Our New Global Newsletter Host on Creating an ‘Antidote to the Overwhelm’**\
-`Katrin Bennhold is the host of The World, a New York Times newsletter for readers around the globe. It launches this week.`\
-https://nytimes.com/2025/09/28/world/new-newsletter-host-qanda.html
 
