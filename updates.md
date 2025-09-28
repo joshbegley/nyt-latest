@@ -1,3 +1,11 @@
+**How much more misery can Manchester United take?**\
+`What if things don’t improve, and what if Ruben Amorim's expensively-constructed team continue to lose more games than they win?`\
+https://nytimes.com/athletic/6668364/2025/09/28/manchester-united-brentford-premier-league-amorim-sesko/
+
+**Alonso's youthful rebuild is a work in progress. It showed in Madrid's derby humiliation**\
+`Alonso and his new-look side will have to learn from their historic 5-2 thrashing by their city rivals`\
+https://nytimes.com/athletic/6668605/2025/09/28/real-madrid-youth-xabi-alonso-atletico/
+
 **Kalen DeBoer gets the win Alabama needed — and sidesteps possible disaster**\
 `On the brink of falling to 2-2 in September, Kalen DeBoer and Alabama hold off Georgia for a crucial win.`\
 https://nytimes.com/athletic/6669705/2025/09/28/kalen-deboer-alabama-georgia-win/
