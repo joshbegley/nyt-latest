@@ -1,3 +1,11 @@
+**Live Updates: Injuries Reported in Shooting at Mormon Church in Michigan**\
+`The police said that multiple people had been injured in a shooting at a church in Grand Blanc Township, Mich., southwest of Flint. The building was on fire, the authorities said.`\
+https://nytimes.com/live/2025/09/28/us/grand-blanc-shooting-church-michigan
+
+**Here’s the latest.**\
+`The police said that multiple people had been injured`\
+https://nytimes.com/live/2025/09/28/us/grand-blanc-shooting-church-michigan/grand-blanc-shooting-fire-mormon-church
+
 **Road Cycling World Championships: Pogacar solos to another rainbow jersey, but was Evenepoel unlucky?**\
 `The Athletic reviews a memorable week of racing in the Rwandan capital Kigali  `\
 https://nytimes.com/athletic/6670122/2025/09/28/road-cycling-world-championships-pogacar-evenepoel-healy-vallieres-hudson/

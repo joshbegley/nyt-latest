@@ -1,3 +1,7 @@
+**Live Updates: Injuries Reported in Shooting at Mormon Church in Michigan**\
+`The police said that multiple people had been injured in a shooting at a church in Grand Blanc Township, Mich., southwest of Flint. The building was on fire, the authorities said.`\
+https://nytimes.com/live/2025/09/28/us/grand-blanc-shooting-church-michigan
+
 **Road Cycling World Championships: Pogacar solos to another rainbow jersey, but was Evenepoel unlucky?**\
 `The Athletic reviews a memorable week of racing in the Rwandan capital Kigali  `\
 https://nytimes.com/athletic/6670122/2025/09/28/road-cycling-world-championships-pogacar-evenepoel-healy-vallieres-hudson/
@@ -10,9 +14,9 @@ https://nytimes.com/athletic/6670284/2025/09/28/sec-football-rankings-week-6-ole
 `The Sixers are frothing to get Embiid back and erase the taste of last season. However, the Sixers star needs to feel like himself again.`\
 https://nytimes.com/athletic/6668137/2025/09/28/joel-embiid-sixers-training-camp-return/
 
-**Injuries Reported in Shooting at Mormon Church in Michigan**\
-`The police said that multiple people had been injured in a shooting at a church in Grand Blanc Township, Mich., southwest of Flint. The building was on fire, the authorities said`\
-https://nytimes.com/2025/09/28/us/grand-blanc-shooting-fire-mormon-church.html
+**Here’s the latest.**\
+`The police said that multiple people had been injured`\
+https://nytimes.com/live/2025/09/28/us/grand-blanc-shooting-church-michigan/grand-blanc-shooting-fire-mormon-church
 
 **Fred Queller, Lawyer in a Notable Domestic Violence Case, Dies at 93**\
 `His client was 6 years old when her father savagely beat her during a visitation. Her mother had warned police that he was dangerous, but they ignored her.`\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6669640/2025/09/28/these-penn-state-and-georgia-nar
 **Patriots CB Christian Gonzalez to make season debut Sunday vs. Panthers**\
 `The second-team All-Pro cornerback missed the first three games of the season due to a hamstring injury.`\
 https://nytimes.com/athletic/6665605/2025/09/28/christian-gonzalez-patriots-active-panthers-week-4/
-
-**Celtics' Jayson Tatum shares workout footage 4 months after Achilles tear**\
-`In a video published on YouTube, Tatum can be seen running up the court, backpedaling and doing some lateral movement within dribble moves.`\
-https://nytimes.com/athletic/6670261/2025/09/28/jayson-tatum-achilles-workout-celtics/
 
