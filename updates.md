@@ -1,3 +1,19 @@
+**Alabama vs. Georgia: Crimson Tide expose Bulldogs defense in 24-21 upset**\
+`Plus, is Kalen DeBoer off the hot seat?`\
+https://nytimes.com/athletic/6669164/2025/09/27/alabama-georgia-score-result-takeaways/
+
+**Oregon silences Penn State's White Out crowd with 30-24 double OT win**\
+`No. 6 Oregon beat No. 3 Penn State 30-24 in two overtimes after a Drew Allar pass was intercepted on the final play on Saturday night.`\
+https://nytimes.com/athletic/6669361/2025/09/27/penn-state-oregon-score-result-football/
+
+**Marc-Andre Fleury, hockey's beloved entertainer, puts on one final show in Pittsburgh**\
+`Fleury's special sendoff was a perfect farewell to the best goaltender in team history and the greatest generation of Penguins hockey.`\
+https://nytimes.com/athletic/6669347/2025/09/27/marc-andre-fleury-penguins-retirement-preseason-game/
+
+**Son Heung-min brace makes it 8 goals in 8 for LAFC**\
+`Son Heung-min continued his prolific scoring for Los Angeles FC as his irresistible partnership with Denis Bouanga claimed another victim with a 3-0 win at St Louis City in Major League Soccer on Saturday.`\
+https://nytimes.com/athletic/6669394/2025/09/27/son-heung-min-brace-makes-it-eight-goals-in-eight-for-lafc/
+
 **Son Heung-min brace makes it eight goals in eight for LAFC**\
 `Son Heung-min continued his prolific scoring for Los Angeles FC as his irresistible partnership with Denis Bouanga claimed another victim with a 3-0 win at St Louis City in Major League Soccer on Saturday.`\
 https://nytimes.com/athletic/6669394/2025/09/27/son-heung-min-brace-makes-it-eight-goals-in-eight-for-lafc/
