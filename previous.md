@@ -1,3 +1,7 @@
+**Rory McIlroy, Shane Lowry and the anatomy of a beatdown at Bethpage**\
+`The Ryder Cup margin is not only insurmountable, it is, more to the point, a portrait of this European team's ability to punch back.`\
+https://nytimes.com/athletic/6669042/2025/09/27/rory-mcilroy-shane-lowry-ryder-cup-bethpage/
+
 **How to watch Cardinals at Cubs: Time, TV, streaming for September 28**\
 `Find out how to watch the St. Louis Cardinals play the Chicago Cubs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6669272/2025/09/27/cardinals-vs-cubs-stream-how-to-watch-sept-28/
@@ -27,15 +31,11 @@ https://nytimes.com/athletic/6669218/2025/09/27/blues-cam-fowler-contract-extens
 `\
 https://nytimes.com/athletic/6668670/2025/09/27/marc-andre-fleury-penguins-final-game-preseason-retires/
 
-**What to know about the Ryder Cup with the Europeans owning a huge lead**\
+**What to know about Ryder Cup with the Europeans owning a huge lead**\
 `Through two days, Luke Donald’s European Ryder Cup team has put on one of the most impressive displays in the history of team golf.`\
 https://nytimes.com/athletic/6668990/2025/09/27/ryder-cup-25-what-to-know-europe-lead/
 
 **Brewers clinch NL's top seed, home-field advantage throughout postseason**\
 `Milwaukee clinched the best record in Major League Baseball with the Phillies' loss to the Twins on Saturday.`\
 https://nytimes.com/athletic/6666402/2025/09/27/brewers-postseason-top-seed-home-field-advantage/
-
-**Is This L.A. Home the Solution to America’s Growing Energy Crisis?**\
-`Electric grids are increasingly under strain, and demand for energy is soaring. But not everyone sees the virtue in dotting homes across the country with solar panels.`\
-https://nytimes.com/interactive/2025/09/27/business/energy-environment/rooftop-solar-panels.html
 

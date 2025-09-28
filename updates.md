@@ -1,3 +1,16 @@
+**Rory McIlroy, Shane Lowry and the anatomy of a beatdown at Bethpage**\
+`The Ryder Cup margin is not only insurmountable, it is, more to the point, a portrait of this European team's ability to punch back.`\
+https://nytimes.com/athletic/6669042/2025/09/27/rory-mcilroy-shane-lowry-ryder-cup-bethpage/
+
+**Marc-Andre Fleury plays in one last game with Penguins before retiring**\
+`The 2003 No. 1 pick and three-time Stanley Cup champion entered Pittsburgh's preseason game in the third period to a hero's welcome.
+`\
+https://nytimes.com/athletic/6668670/2025/09/27/marc-andre-fleury-penguins-final-game-preseason-retires/
+
+**What to know about Ryder Cup with the Europeans owning a huge lead**\
+`Through two days, Luke Donald’s European Ryder Cup team has put on one of the most impressive displays in the history of team golf.`\
+https://nytimes.com/athletic/6668990/2025/09/27/ryder-cup-25-what-to-know-europe-lead/
+
 **Marc-Andre Fleury plays in one last game with Penguins before retiring**\
 `The 2003 No. 1 pick and three-time Stanley Cup champion entered Pittsburgh's preseason game in the third period to a hero's welcome.
 `\
