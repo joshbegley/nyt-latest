@@ -1,3 +1,19 @@
+**Free agent Al Horford agrees to sign with Warriors: Source**\
+`Horford, 39, spent the last four seasons with Boston. He has averaged 12.9 points and 7.9 rebounds per game in 18 seasons.`\
+https://nytimes.com/athletic/6470227/2025/09/28/al-horford-warriors-nba-free-agency-2025/
+
+**Grealish on partying while at Man City: 'I didn't help myself at times'**\
+`Grealish said he enjoys partying, but added "there's a time and a place to do that in my career," and that he did not find that balance.`\
+https://nytimes.com/athletic/6670491/2025/09/28/jack-grealish-everton-manchester-city-partying/
+
+**Eric Adams Abandons Re-election Bid for Mayor of New York City**\
+`Mayor Adams’s campaign was left foundering after repeated scandals, a federal indictment and his courtship of President Trump.`\
+https://nytimes.com/2025/09/28/nyregion/adams-mayor-drops-out.html
+
+**Viv Prince, Rock’s Original Madman Drummer, Is Dead at 84**\
+`A drummer for the 1960s British band the Pretty Things, “the high priest of lunacy” set a high bar for fiery performances and offstage misbehavior.`\
+https://nytimes.com/2025/09/28/arts/music/viv-prince-dead.html
+
 **Live Updates: Injuries Reported in Shooting at Mormon Church in Michigan**\
 `The police said that multiple people had been injured in a shooting at a church in Grand Blanc Township, Mich., southwest of Flint. The building was on fire, the authorities said.`\
 https://nytimes.com/live/2025/09/28/us/grand-blanc-shooting-church-michigan
@@ -17,20 +33,4 @@ https://nytimes.com/athletic/6668137/2025/09/28/joel-embiid-sixers-training-camp
 **Here’s the latest.**\
 `The police said that multiple people had been injured`\
 https://nytimes.com/live/2025/09/28/us/grand-blanc-shooting-church-michigan/grand-blanc-shooting-fire-mormon-church
-
-**Fred Queller, Lawyer in a Notable Domestic Violence Case, Dies at 93**\
-`His client was 6 years old when her father savagely beat her during a visitation. Her mother had warned police that he was dangerous, but they ignored her.`\
-https://nytimes.com/2025/09/28/nyregion/fred-queller-dead.html
-
-**Europe's Viktor Hovland withdraws from Ryder Cup singles match**\
-`The "envelope rule" was used to give Hovland and Harris English each a half-point and remove them from the singles lineup.`\
-https://nytimes.com/athletic/6670430/2025/09/28/viktor-hovland-europe-ryder-cup-withdraw/
-
-**The Pulse: CFB narratives that simply won't end**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6669640/2025/09/28/these-penn-state-and-georgia-narratives-refuse-to-die-for-good-reason/
-
-**Patriots CB Christian Gonzalez to make season debut Sunday vs. Panthers**\
-`The second-team All-Pro cornerback missed the first three games of the season due to a hamstring injury.`\
-https://nytimes.com/athletic/6665605/2025/09/28/christian-gonzalez-patriots-active-panthers-week-4/
 
