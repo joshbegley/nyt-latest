@@ -1,3 +1,7 @@
+**Fear and Hope in Venezuela as U.S. Warships Lurk**\
+`On a visit to Venezuela, The Times found a nation bracing for potential U.S. military action.`\
+https://nytimes.com/2025/09/28/world/americas/venezuela-mood.html
+
 **How to watch Diamondbacks at Padres: Time, TV, streaming for September 28**\
 `Find out how to watch the Arizona Diamondbacks play the San Diego Padres, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6669870/2025/09/28/diamondbacks-vs-padres-stream-how-to-watch-sept-28/

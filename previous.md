@@ -16,7 +16,7 @@ https://nytimes.com/2025/09/28/magazine/charlie-kirk-rhetoric.html
 
 **Fear and Hope in Venezuela as U.S. Warships Lurk**\
 `On a visit to Venezuela, The Times found a nation bracing for potential U.S. military action.`\
-https://nytimes.com/2025/09/28/world/americas/fear-and-hope-in-venezuela-as-us-warships-lurk.html
+https://nytimes.com/2025/09/28/world/americas/venezuela-mood.html
 
 **With Scant Information, Federal Workers Brace for Possible Shutdown**\
 `After a tumultuous year of staffing cuts, government employees now face the prospect of going without pay — or facing even more layoffs.`\

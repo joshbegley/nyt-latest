@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Monday, Sep. 29, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/09/28/todays-new-york-times-international-edition
+
 **How to watch Diamondbacks at Padres: Time, TV, streaming for September 28**\
 `Find out how to watch the Arizona Diamondbacks play the San Diego Padres, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6669870/2025/09/28/diamondbacks-vs-padres-stream-how-to-watch-sept-28/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010416859/an-israeli-strike-on-
 **Inside Venezuela After U.S. Strikes Boats**\
 `The United States has blown up several boats in the Caribbean Sea and is now increasing its military presence off the coast of Venezuela. Julie Turkewitz, reporting from Caracas, explains how Venezuelans are reacting.`\
 https://nytimes.com/video/world/americas/100000010416376/inside-venezuela-after-us-strikes-boats.html
-
-**Greene, Straying From Trump, Reflects an Emerging MAGA Split**\
-`The right-wing Republican congresswoman from Georgia has grown disillusioned with her own party and with President Trump, and increasingly willing to say so.`\
-https://nytimes.com/2025/09/28/us/politics/marjorie-taylor-greene-maga-split.html
 
