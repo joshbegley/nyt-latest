@@ -1,40 +1,40 @@
-**Ryder Cup MC reportedly steps down after appearing to engage in chant aimed at Rory McIlroy**\
-`Online video footage appeared to show comedian and actress Heather McMahan saying “f**k you Rory” into a microphone before play began.`\
-https://nytimes.com/athletic/6669847/2025/09/28/ryder-cup-rory-mcilroy-heather-mcmahan/
+**Ta-Nehisi Coates on Bridging Gaps vs. Drawing Lines**\
+`The writer Ta-Nehisi Coates joins Ezra Klein on the show to discuss how the left should think about the work of politics and persuasion in this moment.`\
+https://nytimes.com/2025/09/28/opinion/ezra-klein-podcast-ta-nehisi-coates.html
 
-**The New York Times International Edition in Print for Monday, Sep. 29, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/09/28/todays-new-york-times-international-edition
+**College Football Playoff 2025 bracket after Week 5: A wide-open field after a chaos Saturday**\
+`Welcome to the impossible task of selecting the College Football Playoff field after Week 5.`\
+https://nytimes.com/athletic/6669676/2025/09/28/college-football-playoff-2025-bracket-prediction/
 
-**How to watch Diamondbacks at Padres: Time, TV, streaming for September 28**\
-`Find out how to watch the Arizona Diamondbacks play the San Diego Padres, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6669870/2025/09/28/diamondbacks-vs-padres-stream-how-to-watch-sept-28/
+**Kalen DeBoer gets the win Alabama needed — and sidesteps possible disaster**\
+`On the brink of falling to 2-2 in September, Kalen DeBoer and Alabama hold off Georgia for a crucial win.`\
+https://nytimes.com/athletic/6669705/2025/09/28/kalen-deboer-alabama-georgia-win/
 
-**Russia Hammers Kyiv in 12-Hour Drone Assault**\
-`At least four people were killed in the attack, which also wounded dozens of civilians in the capital and around country.`\
-https://nytimes.com/2025/09/28/world/europe/ukraine-kyiv-russia-strikes.html
+**No one tells the Tigers' up-and-down story quite like Javier Báez**\
+`The $140-million shortstop was a key cog in Detroit's 2-1 playoff-clinching win over the Red Sox on Saturday.`\
+https://nytimes.com/athletic/6669342/2025/09/28/javier-baez-tigers-2025-season-playofs/
 
-**Let’s Talk About the Rapture**\
-`It wasn’t just a weird, viral blip — experts say it was actually a sign of a culture in distress.`\
-https://nytimes.com/2025/09/28/briefing/lets-talk-about-the-rapture.html
+**Twins on opposite end of Jhoan Duran's entrance for first time: 'Like the playoffs every day'**\
+`Duran is acclimating to his new, energetic home, one where he's living a life akin to a rockstar. `\
+https://nytimes.com/athletic/6669100/2025/09/28/twins-jhoan-duran-phillies-entrance/
 
-**What the Public Memory of Charlie Kirk Revealed**\
-`For those who felt denigrated by his rhetoric, the bipartisan tributes to him as a champion of free speech augured something dangerous: the mainstreaming of formerly extremist views.`\
-https://nytimes.com/2025/09/28/magazine/charlie-kirk-rhetoric.html
+**‘The Idea of the Beautiful Is a Signature of God’: A Q&A With Marilynne Robinson**\
+`The novelist talks about the theological arc of her novels and the power of Genesis.`\
+https://nytimes.com/2025/09/28/opinion/marilynne-robinson-faith-novels-genesis-literature.html
 
-**Fear and Hope in Venezuela as U.S. Warships Lurk**\
-`On a visit to Venezuela, The Times found a nation bracing for potential U.S. military action.`\
-https://nytimes.com/2025/09/28/world/americas/venezuela-mood.html
+**How do NFL coaches take their coffee? We're glad you asked**\
+`Dianna Russini asked some plugged-in baristas around the league about the caffeine quirks of NFL head coaches.`\
+https://nytimes.com/athletic/6668240/2025/09/28/nfl-coaches-coffee-orders/
 
-**With Scant Information, Federal Workers Brace for Possible Shutdown**\
-`After a tumultuous year of staffing cuts, government employees now face the prospect of going without pay — or facing even more layoffs.`\
-https://nytimes.com/2025/09/28/us/politics/federal-government-shutdown-trump.html
+**For His Enemies, the Law**\
+`The political prosecution of James Comey.`\
+https://nytimes.com/2025/09/28/opinion/comey-indictment-trump.html
 
-**N.C. Stabbing Suspect Had Many Interactions With Police and Little Treatment**\
-`Decarlos Brown Jr. had harbored paranoid delusions for years, yet under state law he was not considered dangerous enough to be treated against his will.`\
-https://nytimes.com/2025/09/28/us/nc-stabbing-suspect-police-mental-health-history.html
+**The Right’s Post-Kirk Crackdown Has a Familiar Mob Logic**\
+`Outrage incidents often drive history.`\
+https://nytimes.com/2025/09/28/opinion/charlie-kirk-republican-reaction.html
 
-**Israel, Iran — and the Family Killed in the Crossfire**\
-`In June, Israel attacked Iran’s nuclear facilities, defense systems and top military officials.`\
-https://nytimes.com/video/world/middleeast/100000010416859/an-israeli-strike-on-iran-killed-her-family-she-wants-answers.html
+**Sunday Special: What We Wear and Why**\
+`Plus, your fashion questions answered.`\
+https://nytimes.com/2025/09/28/podcasts/the-daily/28sunday-special-fashion-week-personal-style-clothes.html
 
