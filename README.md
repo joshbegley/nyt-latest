@@ -1,4 +1,4 @@
-**Why Ohio State only strengthened its national title aspirations at Washington**\
+**What did Ohio State prove at Washington? Its repeat hopes are real**\
 `Yes, the Buckeyes started slow in Saturday's 24-6 win at Washington, but QB Julian Sayin and the defense showed the potential for a repeat.`\
 https://nytimes.com/athletic/6670104/2025/09/28/ohio-state-washington-julian-sayin-college-football-playoff/
 
