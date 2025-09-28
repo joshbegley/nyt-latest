@@ -1,3 +1,7 @@
+**‘Extreme Fear’: Witnesses Describe Scene at Michigan Church Engulfed by Fire**\
+`Congregants and neighbors of the church attacked by a gunman on Sunday said the scene was harrowing.`\
+https://nytimes.com/2025/09/28/us/michigan-mormon-attack-witness.html
+
 **In Going After His Foes, Trump Sets a Precedent That Could Haunt His Allies**\
 `President Trump’s retribution campaign risks ushering in a cycle of retaliation in which each new administration takes aim at the last one.`\
 https://nytimes.com/2025/09/28/us/politics/trump-comey-retribution-precedent.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6670802/2025/09/28/lynx-vs-mercury-stream-how-to-wa
 **New York Giants WR Malik Nabers believed to have torn ACL: Source**\
 `Receiver, injured while trying to catch a deep pass from Jaxson Dart, was helped onto a cart and driven off the field.`\
 https://nytimes.com/athletic/6670721/2025/09/28/malik-nabers-injury-new-york-giants-los-angeles-chargers/
-
-**Abrego Garcia Moved to Detention Center in Pennsylvania**\
-`Kilmar Armando Abrego Garcia, the man sent to El Salvador in violation of a court order, was transferred from an immigration facility in Virginia, his lawyers said Friday.`\
-https://nytimes.com/2025/09/28/us/politics/abrego-garcia-detention-center-pennsylvania.html
 
