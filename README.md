@@ -1,3 +1,7 @@
+**A New Approach to Awe**\
+`A psychologist argues that the sensation is not mysterious, but rather an emotion that scientists can detect.`\
+https://nytimes.com/2025/09/28/briefing/a-new-approach-to-awe.html
+
 **Is redemption coming for Penn State? After another big-game loss, it's harder to imagine**\
 `Expectations soared for Penn State this preseason, but a double-OT White Out loss to Oregon only added to the Nittany Lions' growing angst.`\
 https://nytimes.com/athletic/6669932/2025/09/28/penn-state-oregon-franklin-allar-playoff/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6669662/2025/09/28/mets-sean-manea-mlb-playoffs/
 **Russell M. Nelson, 17th President of the Mormon Church, Dies at 101**\
 `He left a career as a pioneering surgeon to become a church leader, diversifying its policies and its senior ranks. He became its president at 93.`\
 https://nytimes.com/2025/09/28/obituaries/russell-m-nelson-dead.html
-
-**Ta-Nehisi Coates on Bridging Gaps vs. Drawing Lines**\
-`The writer Ta-Nehisi Coates joins Ezra Klein on the show to discuss how the left should think about the work of politics and persuasion in this moment.`\
-https://nytimes.com/2025/09/28/opinion/ezra-klein-podcast-ta-nehisi-coates.html
 
