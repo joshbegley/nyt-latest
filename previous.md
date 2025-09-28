@@ -1,3 +1,11 @@
+**NFL Draft reactions: Ty Simpson and Dante Moore rise, Drew Allar misses an opportunity**\
+`The 2026 NFL Draft carousel continued to spin in some high-profile matchups. Which prospects stood out on Saturday?`\
+https://nytimes.com/athletic/6669324/2025/09/28/nfl-draft-2026-simpson-allar-jeremiyah-love/
+
+**A.I. in School: What It Can and Can’t Do**\
+`Readers discuss artificial intelligence and the roles of students and parents. Also: Infants and screens; prizes for the president.`\
+https://nytimes.com/2025/09/28/opinion/ai-school.html
+
 **How to watch Aces at Fever: Game 4 Time, TV, streaming**\
 `Find out how to watch the Las Vegas Aces play the Indiana Fever, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6670126/2025/09/28/aces-vs-fever-stream-how-to-watch-sept-28/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/28/briefing/a-new-approach-to-awe.html
 **Is redemption coming for Penn State? After another big-game loss, it's harder to imagine**\
 `Expectations soared for Penn State this preseason, but a double-OT White Out loss to Oregon only added to the Nittany Lions' growing angst.`\
 https://nytimes.com/athletic/6669932/2025/09/28/penn-state-oregon-franklin-allar-playoff/
-
-**Braves' 'reinvented' Spencer Strider says there's lots of work to do before 2026**\
-`This season, Strider has made significant improvements in his secondary pitches and added to his pitch mix.`\
-https://nytimes.com/athletic/6669442/2025/09/28/spencer-strider-braves-pitching-improvement/
-
-**Van Dijk says Liverpool 'have to improve quickly' after loss to Palace**\
-`The Premier League champions lost for the first time this season after conceding a 97th minute goal from Eddie Nketiah.`\
-https://nytimes.com/athletic/6668806/2025/09/28/virgil-van-dijk-liverpool-crystal-palace/
 
