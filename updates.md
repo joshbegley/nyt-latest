@@ -1,3 +1,11 @@
+**How to watch Lynx at Mercury: Game 4 Time, TV, streaming**\
+`Find out how to watch the Minnesota Lynx play the Phoenix Mercury, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6670802/2025/09/28/lynx-vs-mercury-stream-how-to-watch-sept-28/
+
+**New York Giants WR Malik Nabers believed to have torn ACL: Source**\
+`Receiver, injured while trying to catch a deep pass from Jaxson Dart, was helped onto a cart and driven off the field.`\
+https://nytimes.com/athletic/6670721/2025/09/28/malik-nabers-injury-new-york-giants-los-angeles-chargers/
+
 **Q&A: Our New Global Newsletter Host on Creating ‘an Antidote to the Overwhelm’**\
 `Katrin Bennhold is the host of The World, a New York Times newsletter for readers around the globe. It launches this week.`\
 https://nytimes.com/2025/09/28/world/new-newsletter-host-qanda.html
