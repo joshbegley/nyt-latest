@@ -1,3 +1,15 @@
+**New York Giants WR Malik Nabers exits with leg injury vs. Chargers**\
+`Receiver, injured while trying to catch a deep pass from Jaxson Dart, was helped onto a cart and driven off the field.`\
+https://nytimes.com/athletic/6670721/2025/09/28/malik-nabers-injury-new-york-giants-los-angeles-chargers/
+
+**Abrego Garcia Moved to Detention Center in Pennsylvania**\
+`Kilmar Armando Abrego Garcia, the man sent to El Salvador in violation of a court order, was transferred from an immigration facility in Virginia, his lawyers said Friday.`\
+https://nytimes.com/2025/09/28/us/politics/abrego-garcia-detention-center-pennsylvania.html
+
+**AP Top 25: Ole Miss vaults to No. 4 amid big poll reshuffle**\
+`Ohio State, Oregon, Miami, Ole Miss and Oklahoma make up the top five of the latest AP Top 25 college football rankings after Week 5.`\
+https://nytimes.com/athletic/6670569/2025/09/28/ap-top-25-rankings-ole-miss-oregon/
+
 **Tracking Tropical Storm Imelda**\
 `See the likely path and wind arrival times for Imelda`\
 https://nytimes.com/interactive/2025/weather/imelda-map-path-tracker.html
