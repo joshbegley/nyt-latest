@@ -1,3 +1,15 @@
+**Maple Leafs, Anthony Stolarz agree to 4-year extension with $3.75 million AAV**\
+`If the goalie can stay healthier this season and continue to perform at a high level, this deal will look like a win next summer.`\
+https://nytimes.com/athletic/6670382/2025/09/28/maple-leafs-anthony-stolarz-extension/
+
+**Newcastle 1 Arsenal 2: Gabriel's redemption? Livramento blow? Calafiori towel incident?**\
+`Arsenal managed a dramatic 2-1 win against Newcastle United on Sunday afternoon`\
+https://nytimes.com/athletic/6670447/2025/09/28/newcastle-arsenal-result-report-analysis/
+
+**Live Updates: At Least 1 Dead, 9 Wounded in Michigan Mormon Church Shooting**\
+`The police said they believe a gunman intentionally set fire to the church in Grand Blanc Township, Mich., southwest of Flint, and that more victims may still be inside. They said officers shot and killed the attacker.`\
+https://nytimes.com/live/2025/09/28/us/grand-blanc-shooting-church-michigan
+
 **Live Updates: 1 Dead, 9 Wounded in Shooting at Mormon Church in Michigan**\
 `More victims may still be inside, the police said, after a gunman attacked and set fire to the church in Grand Blanc Township, Mich., southwest of Flint. The gunman also is deceased.`\
 https://nytimes.com/live/2025/09/28/us/grand-blanc-shooting-church-michigan
