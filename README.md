@@ -1,5 +1,9 @@
-**Colts WR Adonai Mitchell turns dazzling play into blunder with fumble through end zone**\
-`With the undefeated Indianapolis Colts trailing the Los Angeles Rams 13-10 early in the third quarter, second-year wide receiver Adonai Mitchell made a spectacular effort that appeared to give the Colts the lead with a touchdown.`\
+**The MLB postseason bracket is set. Here's every team's best and worst stat**\
+`After all the clinches, comebacks and collapses of late September, the field for the 2025 Major League Baseball postseason is set.`\
+https://nytimes.com/athletic/6663921/2025/09/28/mlb-postseason-bracket-best-worst-stats/
+
+**Colts' Adonai Mitchell turns highlight into blunder, fumbles through end zone**\
+`Mitchell was a yard away from a 76-yard touchdown reception but instead turned it over to the Rams. `\
 https://nytimes.com/athletic/6671296/2025/09/28/colts-adonai-mitchell-fumble-end-zone-rams/
 
 **Blue Jays survive scramble with Yankees, win first AL East title since 2015**\
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6671296/2025/09/28/colts-adonai-mitchell-fumble-end
 https://nytimes.com/athletic/6670231/2025/09/28/lue-jays-yankees-clinch-al-east/
 
 **With Terry Francona at the helm, Reds return to postseason for first time since 2020**\
-`It took a little bit of help but the Reds are back in the playoffs, and so is manager Terry Francona. `\
+`It took a little bit of help, but the Reds are back in the playoffs, and so is manager Francona. `\
 https://nytimes.com/athletic/6671326/2025/09/28/cincinnati-reds-playoff-berth-clinched-nl-wild-card-series/
 
 **Rosenthal: No longer paper tigers, the AL East champion Blue Jays finally put it all together**\
@@ -18,11 +22,11 @@ https://nytimes.com/athletic/6671257/2025/09/28/toronto-blue-jays-al-east-champi
 `Despite spending well over $300 million on their roster, the Mets will not play in October.`\
 https://nytimes.com/athletic/6671105/2025/09/28/mets-eliminated-postseason/
 
-**Yankees, Red Sox to rekindle rivalry in Wild Card Series: First look**\
+**Yankees, Red Sox to rekindle rivalry in AL Wild-Card Series: First look**\
 `The once-fierce rivalry between the Yankees and Red Sox has cooled in recent years, but that could be about to change.`\
 https://nytimes.com/athletic/6671191/2025/09/28/yankees-redsox-wild-card-preview/
 
-**Dodgers, Reds bring strong rotations to matchup in Wild Card series: First look**\
+**Dodgers, Reds bring strong rotations to matchup in Wild Card Series: First look**\
 `It's Shohei Ohtani and the Dodgers taking on Elly De La Cruz and the Reds, who is perhaps the biggest X-factor in the series.`\
 https://nytimes.com/athletic/6670060/2025/09/28/dodgers-reds-wild-card-preview/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/28/crosswords/daily-puzzle-2025-09-29.html
 **Shohei Ohtani hits career-high 55th home run**\
 `The two-way superstar has hit 109 regular-season homers in his two seasons with the Dodgers.`\
 https://nytimes.com/athletic/6671218/2025/09/28/shohei-ohtani-55-home-runs-career-high/
-
-**How impressive was Jaxson Dart? Has Drake Maye arrived? Our NFL experts' Week 4 takeaways**\
-`The undefeated Eagles and Bucs played a thriller in Tampa Bay, and the seat could be getting awfully hot for one winless team's head coach.`\
-https://nytimes.com/athletic/6670660/2025/09/28/nfl-takeaways-week-4-scores-results/
 
