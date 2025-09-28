@@ -1,3 +1,7 @@
+**Man Is Linked to 1991 Murders of 4 Texas Girls**\
+`Police said they used DNA to identify a suspect in the Austin killings known as the yogurt shop murders. The case has haunted the city for decades.`\
+https://nytimes.com/2025/09/27/us/yogurt-shop-murders-dna-serial-killer.html
+
 **Marc-Andre Fleury plays in one last game with Penguins before retiring**\
 `The 2003 No. 1 pick and three-time Stanley Cup champion entered Pittsburgh's game in the third period to a hero's welcome.
 `\

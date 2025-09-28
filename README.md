@@ -1,3 +1,7 @@
+**Justin Verlander won just 4 games as a Giant but didn't harm his Hall of Fame legacy**\
+`Verlander ended his season with a 4-11 record, but he did something to match or top a Hall of Fame pitcher in almost every outing.`\
+https://nytimes.com/athletic/6669335/2025/09/27/justin-verlander-giants-hall-of-fame-legacy/
+
 **Man Is Linked to 1991 Murders of 4 Texas Girls**\
 `Police said they used DNA to identify a suspect in the Austin killings known as the yogurt shop murders. The case has haunted the city for decades.`\
 https://nytimes.com/2025/09/27/us/yogurt-shop-murders-dna-serial-killer.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6669257/2025/09/27/pirates-vs-braves-stream-how-to-
 **How to watch Rays at Blue Jays: Time, TV, streaming for September 28**\
 `Find out how to watch the Tampa Bay Rays play the Toronto Blue Jays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6669252/2025/09/27/rays-vs-blue-jays-stream-how-to-watch-sept-28/
-
-**Blues' Cam Fowler agrees to 3-year, $18.3 million extension**\
-`After arriving from Anaheim in 2024-25, Fowler had nine goals and 36 points in 51 games with the Blues last season.`\
-https://nytimes.com/athletic/6669218/2025/09/27/blues-cam-fowler-contract-extension/
 
