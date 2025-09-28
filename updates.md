@@ -1,3 +1,7 @@
+**Afghanistan Frees a U.S. Citizen Held in Prison**\
+`The move comes as the country seeks to break the international isolation it has faced since the Taliban seized power in 2021.`\
+https://nytimes.com/2025/09/28/world/asia/afghanistan-us-prisoner-freed.html
+
 **‘Extreme Fear’: Witnesses Describe Scene at Michigan Church Engulfed by Fire**\
 `Congregants and neighbors of the church attacked by a gunman on Sunday said the scene was harrowing.`\
 https://nytimes.com/2025/09/28/us/michigan-mormon-attack-witness.html
