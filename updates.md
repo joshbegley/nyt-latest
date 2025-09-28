@@ -1,3 +1,7 @@
+**Man arrested at Ryder Cup, accused of stealing golf cart**\
+`Crescenzo Stasi was charged with unauthorized use of a motor vehicle and criminal possession of stolen property.`\
+https://nytimes.com/athletic/6670806/2025/09/28/ryder-cup-man-arrested-stealing-golf-cart/
+
 **These Are the Wildest, Juiciest Poems You’ll Ever Read**\
 `Our critic A.O. Scott forages the world’s most poetic fruit.`\
 https://nytimes.com/interactive/2025/09/28/books/blackberry-poems.html
