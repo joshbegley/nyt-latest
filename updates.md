@@ -1,3 +1,7 @@
+**Ravens QB Lamar Jackson leaves game vs. Chiefs in third quarter**\
+`Jackson was replaced by Cooper Rush after reported hamstring injury.`\
+https://nytimes.com/athletic/6671471/2025/09/28/lamar-jackson-ravens-hamstring-cooper-rush-chiefs/
+
 **An ocean away in Dublin, the Steelers defense finally arrives**\
 `In the first NFL game played in Ireland, Pittsburgh controlled the bulk of the game before hanging on to beat the Minnesota Vikings.`\
 https://nytimes.com/athletic/6671173/2025/09/28/pittsburgh-steelers-win-vikings-dublin/

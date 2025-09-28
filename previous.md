@@ -1,3 +1,7 @@
+**Ravens QB Lamar Jackson leaves game vs. Chiefs in third quarter**\
+`Jackson was replaced by Cooper Rush after reported hamstring injury.`\
+https://nytimes.com/athletic/6671471/2025/09/28/lamar-jackson-ravens-hamstring-cooper-rush-chiefs/
+
 **Eric Adams Suspends Re-Election Bid for Mayor of New York City**\
 `Mayor Eric Adams announced his exit from the mayoral race after his campaign faced repeated scandals and low polling numbers.`\
 https://nytimes.com/video/nyregion/100000010426689/nyc-mayor-adams-drops-out.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6671257/2025/09/28/toronto-blue-jays-al-east-champi
 **Mets eliminated from postseason with shutout loss to Marlins**\
 `Despite spending well over $300 million on their roster, the Mets will not play in October.`\
 https://nytimes.com/athletic/6671105/2025/09/28/mets-eliminated-postseason/
-
-**Yankees, Red Sox to rekindle rivalry in AL Wild-Card Series: First look**\
-`The once-fierce rivalry between the Yankees and Red Sox has cooled in recent years, but that could be about to change.`\
-https://nytimes.com/athletic/6671191/2025/09/28/yankees-redsox-wild-card-preview/
 
