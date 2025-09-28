@@ -1,3 +1,7 @@
+**Carvajal facing up to five weeks out with calf injury, El Clasico in doubt**\
+`Trent Alexander-Arnold is also out injured, meaning that Madrid are set to be without a recognised right-back for their upcoming fixtures.`\
+https://nytimes.com/athletic/6669945/2025/09/28/real-madrid-dani-carvajal-injury/
+
 **NFL Draft reactions: Ty Simpson and Dante Moore rise, Drew Allar misses an opportunity**\
 `The 2026 NFL Draft carousel continued to spin in some high-profile matchups. Which prospects stood out on Saturday?`\
 https://nytimes.com/athletic/6669324/2025/09/28/nfl-draft-2026-simpson-allar-jeremiyah-love/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6669355/2025/09/28/mlb-playoffs-bracket-standings-m
 **A New Approach to Awe**\
 `A psychologist argues that the sensation is not mysterious, but rather an emotion that scientists can detect.`\
 https://nytimes.com/2025/09/28/briefing/a-new-approach-to-awe.html
-
-**Is redemption coming for Penn State? After another big-game loss, it's harder to imagine**\
-`Expectations soared for Penn State this preseason, but a double-OT White Out loss to Oregon only added to the Nittany Lions' growing angst.`\
-https://nytimes.com/athletic/6669932/2025/09/28/penn-state-oregon-franklin-allar-playoff/
 
