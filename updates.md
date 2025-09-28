@@ -1,3 +1,5 @@
+
+
 **Astros' playoff streak is over, but is their championship window closing too?**\
 `Is Houston's depth good enough to compensate for an aging core and a bloated payroll?`\
 https://nytimes.com/athletic/6669729/2025/09/28/astros-playoff-streak-over/
