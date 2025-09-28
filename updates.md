@@ -1,3 +1,7 @@
+**USWNT’s Korbin Shrader hat trick, Lindsey Heaps' goal help OL Lyonnes surge past PSG**\
+`Korbin Shrader, who joined Lyonnes in July from PSG, scored a hat trick against her former club.`\
+https://nytimes.com/athletic/6669093/2025/09/27/uswnts-korbin-shrader-lindsey-heaps-ol-lyonnes-psg/
+
 **Yankees' 4 keys to winning Game 162 and keeping AL East dream alive**\
 `The Yankees have to beat the Baltimore Orioles, who don't seem likely to make it easy for them. Here's how they could do it.
 `\

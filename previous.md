@@ -1,3 +1,7 @@
+**USWNT’s Korbin Shrader hat trick, Lindsey Heaps' goal help OL Lyonnes surge past PSG**\
+`Korbin Shrader, who joined Lyonnes in July from PSG, scored a hat trick against her former club.`\
+https://nytimes.com/athletic/6669093/2025/09/27/uswnts-korbin-shrader-lindsey-heaps-ol-lyonnes-psg/
+
 **Notre Dame's season feels possible again, thanks to CJ Carr**\
 `The quarterback can take the Fighting Irish from very good to potentially great. Notre Dame beat Arkansas 56-13 on Saturday.`\
 https://nytimes.com/athletic/6668960/2025/09/27/notre-dame-arkansas-cj-carr/
@@ -33,9 +37,4 @@ https://nytimes.com/athletic/6668941/2025/09/27/ohio-state-washington-score-resu
 **Cardinals intentionally walk Cubs' Michael Busch, who needed a single to complete cycle**\
 `St. Louis manager Oli Marmol was unapologetic about issuing the free pass: "I’m not here for anybody's amusement. I’m trying to win a game."`\
 https://nytimes.com/athletic/6668845/2025/09/27/cardinals-cubs-michael-busch-cycle/
-
-**Yankees' 4 keys to winning Game 162 and keeping AL East dream alive**\
-`The Yankees have to beat the Baltimore Orioles, who don't seem likely to make it easy for them. Here's how they could do it.
-`\
-https://nytimes.com/athletic/6668871/2025/09/27/yankees-keys-win-game-162-al-east/
 
