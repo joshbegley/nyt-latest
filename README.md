@@ -1,3 +1,11 @@
+**At Least 2 Dead After a Shooter Attacked a Mormon Church**\
+`A man crashed his vehicle into a Michigan church on Sunday morning and then opened fire, investigators said.`\
+https://nytimes.com/video/us/100000010426647/michigan-fire-church-shooting.html
+
+**Patriots' win over Panthers feels like start of a turnaround for the Mike Vrabel era**\
+`In a total team win, Drake Maye accounted for three touchdowns, the defense held Carolina in check and Marcus Jones had a punt return TD.`\
+https://nytimes.com/athletic/6671409/2025/09/28/patriots-panthers-mike-vrabel-drake-maye/
+
 **'It's something special:' James Cook's hot start shows he was worth the money**\
 `Cook is proving he was right to demand what some considered too much.`\
 https://nytimes.com/athletic/6671450/2025/09/28/bills-james-cook-contract-money/
@@ -29,12 +37,4 @@ https://nytimes.com/video/nyregion/100000010426689/nyc-mayor-adams-drops-out.htm
 **An ocean away in Dublin, the Steelers defense finally arrives**\
 `In the first NFL game played in Ireland, Pittsburgh controlled the bulk of the game before hanging on to beat the Minnesota Vikings.`\
 https://nytimes.com/athletic/6671173/2025/09/28/pittsburgh-steelers-win-vikings-dublin/
-
-**Stowaway Found Dead in Wheel Well of American Airlines Jet, Police Say**\
-`The body was found on Sunday at Charlotte Douglas International Airport in the landing gear compartment of a plane that had recently arrived from Europe, the police said.`\
-https://nytimes.com/2025/09/28/us/american-airlines-stowaway-dead-charlotte.html
-
-**The MLB postseason bracket is set. Here's every team's best and worst stat**\
-`After all the clinches, comebacks and collapses of late September, the field for the 2025 Major League Baseball postseason is set.`\
-https://nytimes.com/athletic/6663921/2025/09/28/mlb-postseason-bracket-best-worst-stats/
 
