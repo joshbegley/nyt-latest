@@ -3,7 +3,7 @@
 https://nytimes.com/video/nyregion/100000010426689/nyc-mayor-adams-drops-out.html
 
 **An ocean away in Dublin, the Steelers defense finally arrives**\
-`In the first NFL game played in Ireland, Pittsburgh controlled the bulk of the game before hanging on to beat the Vikings.`\
+`In the first NFL game played in Ireland, Pittsburgh controlled the bulk of the game before hanging on to beat the Minnesota Vikings.`\
 https://nytimes.com/athletic/6671173/2025/09/28/pittsburgh-steelers-win-vikings-dublin/
 
 **Stowaway Found Dead in Wheel Well of American Airlines Jet, Police Say**\
