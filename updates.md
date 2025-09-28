@@ -1,3 +1,15 @@
+**Lynx rule out Napheesa Collier for Game 4 vs. Mercury**\
+`Collier has played in five games this postseason, averaging 20.6 points 6.8 rebounds and 2.4 assists per game.`\
+https://nytimes.com/athletic/6669165/2025/09/27/napheesa-collier-injury-status-lynx-mercury-game-4/
+
+**Flames' Matt Coronato exits vs. Jets after appearing to take puck to ear**\
+`Flames medical staff rushed to Coronato on the ice and then escorted him down the tunnel to Calgary's dressing room.`\
+https://nytimes.com/athletic/6669178/2025/09/27/matt-coronato-flames-injury-jets/
+
+**Scottie Scheffler has a Ryder Cup problem**\
+`Since Scheffler became an undisputed world No. 1 and a linchpin, he’s 0-6-2 in the Ryder Cup.`\
+https://nytimes.com/athletic/6669034/2025/09/27/scottie-scheffler-ryder-cup-struggle/
+
 **In biggest game of the season, Clay Holmes delivers for Mets**\
 `"Picture perfect," Pete Alonso said of Holmes. "That's the exact outing we needed."`\
 https://nytimes.com/athletic/6669119/2025/09/27/mets-clay-holmes-nl-playoff-race/

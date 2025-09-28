@@ -1,3 +1,11 @@
+**Lynx rule out Napheesa Collier for Game 4 vs. Mercury**\
+`Collier has played in five games this postseason, averaging 20.6 points 6.8 rebounds and 2.4 assists per game.`\
+https://nytimes.com/athletic/6669165/2025/09/27/napheesa-collier-injury-status-lynx-mercury-game-4/
+
+**Flames' Matt Coronato exits vs. Jets after appearing to take puck to ear**\
+`Flames medical staff rushed to Coronato on the ice and then escorted him down the tunnel to Calgary's dressing room.`\
+https://nytimes.com/athletic/6669178/2025/09/27/matt-coronato-flames-injury-jets/
+
 **In biggest game of the season, Clay Holmes delivers for Mets**\
 `"Picture perfect," Pete Alonso said of Holmes. "That's the exact outing we needed."`\
 https://nytimes.com/athletic/6669119/2025/09/27/mets-clay-holmes-nl-playoff-race/
@@ -7,7 +15,7 @@ https://nytimes.com/athletic/6669119/2025/09/27/mets-clay-holmes-nl-playoff-race
 https://nytimes.com/athletic/6669094/2025/09/27/blue-jays-american-league-east-division-race/
 
 **Scottie Scheffler has a Ryder Cup problem**\
-`Since Scheffler became an undisputed world No. 1 and a linchpin he’s 0-6-2 in the Ryder Cup.`\
+`Since Scheffler became an undisputed world No. 1 and a linchpin, he’s 0-6-2 in the Ryder Cup.`\
 https://nytimes.com/athletic/6669034/2025/09/27/scottie-scheffler-ryder-cup-struggle/
 
 **The U.S. needs a Ryder Cup miracle. It has only itself to blame for that**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6669069/2025/09/27/sec-officiating-auburn-oklahoma-
 **LSU vs. Ole Miss: 3 takeaways from convincing performance by Rebels**\
 `Lane Kiffin has a better football team right now than Brian Kelly. And on Saturday, Ole Miss had the better quarterback, too.`\
 https://nytimes.com/athletic/6669021/2025/09/27/lsu-football-ole-miss-score-result/
-
-**NL playoff race: Cubs clinch home-field advantage in wild-card round**\
-`The Mets beat the Marlins 5-0 to stay competitive in the race for the final NL wild-card spot. They have a half-game lead over the Reds.`\
-https://nytimes.com/athletic/6668721/2025/09/27/nl-wild-card-playoff-race-takeaways/
-
-**Giuliani and Dominion Voting Systems Settle $1.3 Billion Defamation Suit**\
-`The election technology company Dominion Voting Systems had accused Rudolph W. Giuliani of waging “a viral disinformation campaign” over the 2020 election.`\
-https://nytimes.com/2025/09/27/us/politics/rudy-giuliani-dominion-case-settlement.html
 
