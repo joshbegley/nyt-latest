@@ -1,3 +1,7 @@
+**College Football Playoff 2025 projections: Florida State drops with big Week 5 underway**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/09/27/college-football-playoff-bracket-projections-odds/
+
 **Alabama vs. Georgia: Crimson Tide expose Bulldogs defense in 24-21 upset**\
 `Plus, is Kalen DeBoer off the hot seat?`\
 https://nytimes.com/athletic/6669164/2025/09/27/alabama-georgia-score-result-takeaways/
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/6669361/2025/09/27/penn-state-oregon-score-result-f
 https://nytimes.com/athletic/6669347/2025/09/27/marc-andre-fleury-penguins-retirement-preseason-game/
 
 **Son Heung-min brace makes it 8 goals in 8 for LAFC**\
-`Son Heung-min continued his prolific scoring for Los Angeles FC as his irresistible partnership with Denis Bouanga claimed another victim with a 3-0 win at St Louis City in Major League Soccer on Saturday.`\
+`Son Heung-min continued his prolific scoring for Los Angeles FC as his irresistible partnership with Denis Bouanga claimed another victim with a 3-0 win Saturday at St.`\
 https://nytimes.com/athletic/6669394/2025/09/27/son-heung-min-brace-makes-it-eight-goals-in-eight-for-lafc/
 
 **Justin Verlander won just 4 games as a Giant but didn't harm his Hall of Fame legacy**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6669231/2025/09/27/flyers-prospects-jack-nesbitt-pr
 **Rory McIlroy, Shane Lowry and the anatomy of a beatdown at Bethpage**\
 `The Ryder Cup margin is not only insurmountable, it is, more to the point, a portrait of this European team's ability to punch back.`\
 https://nytimes.com/athletic/6669042/2025/09/27/rory-mcilroy-shane-lowry-ryder-cup-bethpage/
-
-**How to watch Cardinals at Cubs: Time, TV, streaming for September 28**\
-`Find out how to watch the St. Louis Cardinals play the Chicago Cubs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6669272/2025/09/27/cardinals-vs-cubs-stream-how-to-watch-sept-28/
 

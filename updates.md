@@ -1,3 +1,11 @@
+**College Football Playoff 2025 projections: Florida State drops with big Week 5 underway**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/09/27/college-football-playoff-bracket-projections-odds/
+
+**Son Heung-min brace makes it 8 goals in 8 for LAFC**\
+`Son Heung-min continued his prolific scoring for Los Angeles FC as his irresistible partnership with Denis Bouanga claimed another victim with a 3-0 win Saturday at St.`\
+https://nytimes.com/athletic/6669394/2025/09/27/son-heung-min-brace-makes-it-eight-goals-in-eight-for-lafc/
+
 **Alabama vs. Georgia: Crimson Tide expose Bulldogs defense in 24-21 upset**\
 `Plus, is Kalen DeBoer off the hot seat?`\
 https://nytimes.com/athletic/6669164/2025/09/27/alabama-georgia-score-result-takeaways/
