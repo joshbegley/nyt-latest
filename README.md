@@ -1,3 +1,11 @@
+**Scottie Scheffler has a Ryder Cup problem**\
+`Since Scheffler became an undisputed world No. 1 and a linchpin he’s 0-6-2 in the Ryder Cup.`\
+https://nytimes.com/athletic/6669034/2025/09/27/scottie-scheffler-ryder-cup-struggle/
+
+**The U.S. needs a Ryder Cup miracle. It has only itself to blame for that**\
+`Through two days, from the playing to the coaching to the jeering from the fans, this American effort has been a complete embarrassment.`\
+https://nytimes.com/athletic/6669011/2025/09/27/why-united-states-is-losing-ryder-cup/
+
 **USWNT’s Korbin Shrader hat trick, Lindsey Heaps' goal help OL Lyonnes surge past PSG**\
 `Korbin Shrader, who joined Lyonnes in July from PSG, scored a hat trick against her former club.`\
 https://nytimes.com/athletic/6669093/2025/09/27/uswnts-korbin-shrader-lindsey-heaps-ol-lyonnes-psg/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/27/us/des-moines-schools-superintendent-ice-leave.ht
 **Lynx coach Cheryl Reeve's suspension was warranted ... but many of her points are valid**\
 `Many coaches and executives have voiced displeasure about the way the WNBA is officiated. But Reeve's behavior deserved a punishment.`\
 https://nytimes.com/athletic/6669025/2025/09/27/cheryl-reeve-suspension-minnesota-lynx-wnba-playoffs/
-
-**Ohio State passes first road test behind Sayin's best game yet: Key takeaways**\
-`No. 1 Ohio State shook off a slow start to beat Washington 24-6 behind QB Julian Sayin and WR Jeremiah Smith. Here's what we learned.`\
-https://nytimes.com/athletic/6668941/2025/09/27/ohio-state-washington-score-result-football/
-
-**Cardinals intentionally walk Cubs' Michael Busch, who needed a single to complete cycle**\
-`St. Louis manager Oli Marmol was unapologetic about issuing the free pass: "I’m not here for anybody's amusement. I’m trying to win a game."`\
-https://nytimes.com/athletic/6668845/2025/09/27/cardinals-cubs-michael-busch-cycle/
 
