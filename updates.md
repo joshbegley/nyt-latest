@@ -1,3 +1,11 @@
+**In biggest game of the season, Clay Holmes delivers for Mets**\
+`"Picture perfect," Pete Alonso said of Holmes. "That's the exact outing we needed."`\
+https://nytimes.com/athletic/6669119/2025/09/27/mets-clay-holmes-nl-playoff-race/
+
+**A hat swap, a division race and 1 game to decide the American League East**\
+`Jeff Hoffman sparked an unexpected hat swap. Since then, the Jays won three straight and now face one game for the division title.`\
+https://nytimes.com/athletic/6669094/2025/09/27/blue-jays-american-league-east-division-race/
+
 **A hat swap, a division race and one game to decide the American League East**\
 `Jeff Hoffman sparked an unexpected hat swap. Since then, the Jays won three straight and now face one game for the division.`\
 https://nytimes.com/athletic/6669094/2025/09/27/blue-jays-american-league-east-division-race/
