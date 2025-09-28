@@ -1,3 +1,7 @@
+**Why the Mets are starting Sean Manaea in must-win game**\
+`Right-handed starter Jonah Tong is also available — along with the rest of the Mets’ bullpen.`\
+https://nytimes.com/athletic/6669662/2025/09/28/mets-sean-manea-mlb-playoffs/
+
 **Russell M. Nelson, 17th President of the Mormon Church, Dies at 101**\
 `He left a career as a pioneering surgeon to become a church leader, diversifying its policies and its senior ranks. He became its president at 93.`\
 https://nytimes.com/2025/09/28/obituaries/russell-m-nelson-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6668240/2025/09/28/nfl-coaches-coffee-orders/
 **For His Enemies, the Law**\
 `The political prosecution of James Comey.`\
 https://nytimes.com/2025/09/28/opinion/comey-indictment-trump.html
-
-**The Right’s Post-Kirk Crackdown Has a Familiar Mob Logic**\
-`Outrage incidents often drive history.`\
-https://nytimes.com/2025/09/28/opinion/charlie-kirk-republican-reaction.html
 
