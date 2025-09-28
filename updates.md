@@ -1,3 +1,8 @@
+**Marc-Andre Fleury plays in one last game with Penguins before retiring**\
+`The 2003 No. 1 pick and three-time Stanley Cup champion entered Pittsburgh's preseason game in the third period to a hero's welcome.
+`\
+https://nytimes.com/athletic/6668670/2025/09/27/marc-andre-fleury-penguins-final-game-preseason-retires/
+
 **How to watch Cardinals at Cubs: Time, TV, streaming for September 28**\
 `Find out how to watch the St. Louis Cardinals play the Chicago Cubs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6669272/2025/09/27/cardinals-vs-cubs-stream-how-to-watch-sept-28/
