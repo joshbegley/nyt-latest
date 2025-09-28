@@ -1,3 +1,15 @@
+**Pulisic stars with goal and brilliant assist as Milan beat Napoli to go top of Serie A**\
+`The USMNT forward starred for Milan in their Serie A victory over Napoli on Sunday.`\
+https://nytimes.com/athletic/6671003/2025/09/28/christina-pulisic-milan-usmnt-goal/
+
+**Giants-Chargers takeaways: Dart guides N.Y. to first win; Nabers, Alt hurt**\
+`The Giants' pass rush kept Justin Herbert on the run as the sloppy Chargers endured their first loss.`\
+https://nytimes.com/athletic/6670537/2025/09/28/giants-chargers-takeaways-result-jaxson-dart/
+
+**Patriots-Panthers: New England rolls Carolina in lopsided win**\
+`The Patriots might have the best punt returner in the NFL in Marcus Jones.`\
+https://nytimes.com/athletic/6670421/2025/09/28/patriots-panthers-result-takeaways-nfl/
+
 **Blue Jackets Sunday Gathering: What must Luca Del Bel Belluz do to do to stick in the NHL?**\
 `Plus, the latest on the Blue Jackets' goalie situation, and five questions with Damon Severson.`\
 https://nytimes.com/athletic/6667848/2025/09/28/blue-jackets-roster-del-bel-belluz/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/28/world/asia/afghanistan-us-prisoner-freed.html
 **‘Extreme Fear’: Witnesses Describe Scene at Michigan Church Engulfed by Fire**\
 `Congregants and neighbors of the church attacked by a gunman on Sunday said the scene was harrowing.`\
 https://nytimes.com/2025/09/28/us/michigan-mormon-attack-witness.html
-
-**In Going After His Foes, Trump Sets a Precedent That Could Haunt His Allies**\
-`President Trump’s retribution campaign risks ushering in a cycle of retaliation in which each new administration takes aim at the last one.`\
-https://nytimes.com/2025/09/28/us/politics/trump-comey-retribution-precedent.html
-
-**Astros GM Dana Brown addresses manager Joe Espada's future after missing postseason**\
-`Houston failed to make the playoffs for the first time since 2016.`\
-https://nytimes.com/athletic/6670777/2025/09/28/astros-manager-joe-espada-future/
-
-**Who are the Arkansas coaching candidates with Sam Pittman out?**\
-`Bobby Petrino is running the program again. Does he have a chance at the full-time job? `\
-https://nytimes.com/athletic/6670787/2025/09/28/arkansas-coach-candidates-sam-pittman-fired/
 
