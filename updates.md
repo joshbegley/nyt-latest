@@ -18,6 +18,11 @@ https://nytimes.com/athletic/6668670/2025/09/27/marc-andre-fleury-penguins-final
 `\
 https://nytimes.com/athletic/6668670/2025/09/27/marc-andre-fleury-penguins-final-game-preseason-retires/
 
+**Marc-Andre Fleury plays in one last game with Penguins before retiring**\
+`The 2003 No. 1 pick and three-time Stanley Cup champion entered Pittsburgh's game in the third period to a hero's welcome.
+`\
+https://nytimes.com/athletic/6668670/2025/09/27/marc-andre-fleury-penguins-final-game-preseason-retires/
+
 **Cleveland Guardians clinch postseason berth after September revival**\
 `At the start of September, FanGraphs assigned the Guardians a 2.9 percent chance of capturing a playoff berth of any kind.`\
 https://nytimes.com/athletic/6663139/2025/09/27/cleveland-guardians-clinch-postseason-berth-after-september-revival/
