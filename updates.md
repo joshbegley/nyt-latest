@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6669406/2025/09/28/calle-jarnkrok-maple-leafs-lineu
 `\
 https://nytimes.com/athletic/6669406/2025/09/28/calle-jarnkrok-maple-leafs-lineup-injury/
 
+**Calle Järnkrok has a new lease on his NHL career. Can it help him crack the Leafs?**\
+`Despite an uncertain future with Toronto this season, Järnkrok is in training camp with a new attitude and better health. 
+`\
+https://nytimes.com/athletic/6669406/2025/09/28/calle-jarnkrok-maple-leafs-lineup-injury/
+
 **Is redemption coming for Penn State? After another big-game loss, it's harder to imagine**\
 `Expectations soared for Penn State this preseason, but a double-OT White Out loss to Oregon only added to the Nittany Lions' growing angst.`\
 https://nytimes.com/athletic/6669932/2025/09/28/penn-state-oregon-franklin-allar-playoff/
