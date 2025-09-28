@@ -1,3 +1,7 @@
+**Patriots CB Christian Gonzalez to make season debut Sunday vs. Panthers**\
+`The second-team All-Pro cornerback has missed the first three games of the season due to a hamstring injury.`\
+https://nytimes.com/athletic/6665605/2025/09/28/christian-gonzalez-patriots-active-panthers-week-4/
+
 **Celtics' Jayson Tatum shares workout footage 4 months after Achilles tear**\
 `In a video published on YouTube, Tatum can be seen running up the court, backpedaling and doing some lateral movement within dribble moves.`\
 https://nytimes.com/athletic/6670261/2025/09/28/jayson-tatum-achilles-workout-celtics/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/28/world/americas/callout-reader-questions-trump-bak
 **Steelers QB Skylar Thompson is reportedly jumped, robbed in Ireland**\
 `Thompson is in his fourth NFL season and first in Pittsburgh. He was placed on IR on Sept. 10 after suffering a hamstring injury.`\
 https://nytimes.com/athletic/6670143/2025/09/28/steelers-skylar-thompson-jumped-robbed-ireland/
-
-**Trump to Meet With Congressional Leaders, Aides Say, as Shutdown Deadline Looms**\
-`Lawmakers face a Tuesday deadline to fund the government, which will require them to agree on a spending measure that can win at least 60 votes in the Senate.`\
-https://nytimes.com/2025/09/28/us/politics/schumer-jeffries-trump-shutdown.html
 
