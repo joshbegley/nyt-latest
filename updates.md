@@ -1,3 +1,7 @@
+**Europe's Viktor Hovland withdraws from Ryder Cup singles match**\
+`The "envelope rule" was used to give Hovland and Harris English each a half-point and remove them from the singles lineup.`\
+https://nytimes.com/athletic/6670430/2025/09/28/viktor-hovland-europe-ryder-cup-withdraw/
+
 **Injuries Reported in Shooting at Mormon Church in Michigan**\
 `The police said that multiple people had been injured in a shooting at a church in Grand Blanc Township, Mich., southwest of Flint. The building was on fire, the authorities said`\
 https://nytimes.com/2025/09/28/us/grand-blanc-shooting-fire-mormon-church.html
