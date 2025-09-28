@@ -1,3 +1,19 @@
+**‘Extreme Fear’: Witnesses Describe Scene at Michigan Church Engulfed by Fire**\
+`Congregants and neighbors of the church attacked by a gunman on Sunday said the scene was harrowing.`\
+https://nytimes.com/2025/09/28/us/michigan-mormon-attack-witness.html
+
+**In Going After His Foes, Trump Sets a Precedent That Could Haunt His Allies**\
+`President Trump’s retribution campaign risks ushering in a cycle of retaliation in which each new administration takes aim at the last one.`\
+https://nytimes.com/2025/09/28/us/politics/trump-comey-retribution-precedent.html
+
+**Astros GM Dana Brown addresses manager Joe Espada's future after missing postseason**\
+`Houston failed to make the playoffs for the first time since 2016.`\
+https://nytimes.com/athletic/6670777/2025/09/28/astros-manager-joe-espada-future/
+
+**Who are the Arkansas coaching candidates with Sam Pittman out?**\
+`Bobby Petrino is running the program again. Does he have a chance at the full-time job? `\
+https://nytimes.com/athletic/6670787/2025/09/28/arkansas-coach-candidates-sam-pittman-fired/
+
 **Man arrested at Ryder Cup, accused of stealing golf cart**\
 `Crescenzo Stasi was charged with unauthorized use of a motor vehicle and criminal possession of stolen property.`\
 https://nytimes.com/athletic/6670806/2025/09/28/ryder-cup-man-arrested-stealing-golf-cart/
@@ -12,7 +28,7 @@ https://nytimes.com/2025/09/28/us/portland-trump-ice-protests.html
 
 **Lola Young Cancels a Second Show After Collapsing Onstage**\
 `The British pop star, who has acknowledged mental health issues, fell backward during a performance Saturday. She has canceled shows in New Jersey and Maryland.`\
-https://nytimes.com/2025/09/28/arts/lola-young-collapse-cancellation.html
+https://nytimes.com/2025/09/28/arts/music/lola-young-collapse-cancellation.html
 
 **How to watch Lynx at Mercury: Game 4 Time, TV, streaming**\
 `Find out how to watch the Minnesota Lynx play the Phoenix Mercury, with time, TV channel and streaming information.`\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6670802/2025/09/28/lynx-vs-mercury-stream-how-to-wa
 **New York Giants WR Malik Nabers believed to have torn ACL: Source**\
 `Receiver, injured while trying to catch a deep pass from Jaxson Dart, was helped onto a cart and driven off the field.`\
 https://nytimes.com/athletic/6670721/2025/09/28/malik-nabers-injury-new-york-giants-los-angeles-chargers/
-
-**Abrego Garcia Moved to Detention Center in Pennsylvania**\
-`Kilmar Armando Abrego Garcia, the man sent to El Salvador in violation of a court order, was transferred from an immigration facility in Virginia, his lawyers said Friday.`\
-https://nytimes.com/2025/09/28/us/politics/abrego-garcia-detention-center-pennsylvania.html
-
-**AP Top 25: Ole Miss vaults to No. 4 amid big poll reshuffle**\
-`Ohio State, Oregon, Miami, Ole Miss and Oklahoma make up the top five of the latest AP Top 25 college football rankings after Week 5.`\
-https://nytimes.com/athletic/6670569/2025/09/28/ap-top-25-rankings-ole-miss-oregon/
-
-**Tracking Tropical Storm Imelda**\
-`See the likely path and wind arrival times for Imelda`\
-https://nytimes.com/interactive/2025/weather/imelda-map-path-tracker.html
-
-**How good is the Arkansas job? Analyzing the SEC's first coaching change**\
-`Arkansas will be behind most of its SEC peers, including ones that could change coaches in this cycle. But winning is still possible here.`\
-https://nytimes.com/athletic/6670570/2025/09/28/arkansas-football-coaching-search-job-grade/
 
