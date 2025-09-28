@@ -1,8 +1,16 @@
+**Swaggering, Scandalous, Strange: There Will Never Be Another Eric Adams**\
+`The quotable, luxury-loving, perpetually mysterious mayor took New Yorkers on a wild and unpredictable ride.`\
+https://nytimes.com/2025/09/28/nyregion/eric-adams-profile-personality.html
+
+**Saints-Bills: Josh Allen accounts for 3 TDs, Buffalo remains undefeated**\
+`Allen led the Bills on a four-play, 60-yard drive in the fourth quarter to pull away from the Saints`\
+https://nytimes.com/athletic/6670914/2025/09/28/saints-bills-josh-allen-score-takeaways/
+
 **Pulisic stars with goal and brilliant assist as Milan beat Napoli to go top of Serie A**\
 `The USMNT forward starred for Milan in their Serie A victory over Napoli on Sunday.`\
-https://nytimes.com/athletic/6671003/2025/09/28/christina-pulisic-milan-usmnt-goal/
+https://nytimes.com/athletic/6671003/2025/09/28/christian-pulisic-milan-usmnt-goal/
 
-**Giants-Chargers takeaways: Dart guides N.Y. to first win; Nabers, Alt hurt**\
+**Giants-Chargers: Dart guides N.Y. to first win; Malik Nabers, Joe Alt hurt**\
 `The Giants' pass rush kept Justin Herbert on the run as the sloppy Chargers endured their first loss.`\
 https://nytimes.com/athletic/6670537/2025/09/28/giants-chargers-takeaways-result-jaxson-dart/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6670864/2025/09/28/sf-giants-willy-adames-30-home-r
 **Q&A: Our New Global Newsletter Host on Creating an ‘Antidote to the Overwhelm’**\
 `Katrin Bennhold is the host of The World, a New York Times newsletter for readers around the globe. It launches this week.`\
 https://nytimes.com/2025/09/28/world/new-newsletter-host-qanda.html
-
-**Afghanistan Frees a U.S. Citizen Held in Prison**\
-`The move comes as the country seeks to break the international isolation it has faced since the Taliban seized power in 2021.`\
-https://nytimes.com/2025/09/28/world/asia/afghanistan-us-prisoner-freed.html
-
-**‘Extreme Fear’: Witnesses Describe Scene at Michigan Church Engulfed by Fire**\
-`Congregants and neighbors of the church attacked by a gunman on Sunday said the scene was harrowing.`\
-https://nytimes.com/2025/09/28/us/michigan-mormon-attack-witness.html
 

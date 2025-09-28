@@ -1,3 +1,15 @@
+**Pulisic stars with goal and brilliant assist as Milan beat Napoli to go top of Serie A**\
+`The USMNT forward starred for Milan in their Serie A victory over Napoli on Sunday.`\
+https://nytimes.com/athletic/6671003/2025/09/28/christina-pulisic-milan-usmnt-goal/
+
+**Giants-Chargers takeaways: Dart guides N.Y. to first win; Nabers, Alt hurt**\
+`The Giants' pass rush kept Justin Herbert on the run as the sloppy Chargers endured their first loss.`\
+https://nytimes.com/athletic/6670537/2025/09/28/giants-chargers-takeaways-result-jaxson-dart/
+
+**Patriots-Panthers: New England rolls Carolina in lopsided win**\
+`The Patriots might have the best punt returner in the NFL in Marcus Jones.`\
+https://nytimes.com/athletic/6670421/2025/09/28/patriots-panthers-result-takeaways-nfl/
+
 **Blue Jackets Sunday Gathering: What must Luca Del Bel Belluz do to do to stick in the NHL?**\
 `Plus, the latest on the Blue Jackets' goalie situation, and five questions with Damon Severson.`\
 https://nytimes.com/athletic/6667848/2025/09/28/blue-jackets-roster-del-bel-belluz/
