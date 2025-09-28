@@ -1,3 +1,7 @@
+**Man arrested at Ryder Cup, accused of stealing golf cart**\
+`Crescenzo Stasi was charged with unauthorized use of a motor vehicle and criminal possession of stolen property.`\
+https://nytimes.com/athletic/6670806/2025/09/28/ryder-cup-man-arrested-stealing-golf-cart/
+
 **These Are the Wildest, Juiciest Poems You’ll Ever Read**\
 `Our critic A.O. Scott forages the world’s most poetic fruit.`\
 https://nytimes.com/interactive/2025/09/28/books/blackberry-poems.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/weather/imelda-map-path-tracker.html
 **How good is the Arkansas job? Analyzing the SEC's first coaching change**\
 `Arkansas will be behind most of its SEC peers, including ones that could change coaches in this cycle. But winning is still possible here.`\
 https://nytimes.com/athletic/6670570/2025/09/28/arkansas-football-coaching-search-job-grade/
-
-**Ranking college football's five open P4 head-coaching jobs**\
-`Coaches want to take jobs where they believe they can win, and this ranking reflects how most coaches would view these jobs.`\
-https://nytimes.com/athletic/6662286/2025/09/28/college-football-open-coaching-jobs-rankings/
 

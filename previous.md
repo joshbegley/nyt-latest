@@ -1,3 +1,7 @@
+**These Are the Wildest, Juiciest Poems You’ll Ever Read**\
+`Our critic A.O. Scott forages the world’s most poetic fruit.`\
+https://nytimes.com/interactive/2025/09/28/books/blackberry-poems.html
+
 **Trump Again Focuses on Portland as an Avatar of the Left**\
 `President Trump has made Oregon’s largest city a frequent target of both his rhetoric and his policies. Many residents are rolling their eyes.`\
 https://nytimes.com/2025/09/28/us/portland-trump-ice-protests.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6670570/2025/09/28/arkansas-football-coaching-searc
 **Ranking college football's five open P4 head-coaching jobs**\
 `Coaches want to take jobs where they believe they can win, and this ranking reflects how most coaches would view these jobs.`\
 https://nytimes.com/athletic/6662286/2025/09/28/college-football-open-coaching-jobs-rankings/
-
-**Athletics to wear gold 'Sacramento' alternate jerseys next season**\
-`After a season with the lowest attendance in the league, the Athletics will show their interim home some recognition.`\
-https://nytimes.com/athletic/6670490/2025/09/28/athletics-to-wear-sacramento-alternate-jerseys-next-season/
 
