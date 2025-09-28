@@ -1,3 +1,7 @@
+**A hat swap, a division race and one game to decide the American League East**\
+`Jeff Hoffman sparked an unexpected hat swap. Since then, the Jays won three straight and now face one game for the division.`\
+https://nytimes.com/athletic/6669094/2025/09/27/blue-jays-american-league-east-division-race/
+
 **Scottie Scheffler has a Ryder Cup problem**\
 `Since Scheffler became an undisputed world No. 1 and a linchpin he’s 0-6-2 in the Ryder Cup.`\
 https://nytimes.com/athletic/6669034/2025/09/27/scottie-scheffler-ryder-cup-struggle/
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/6669011/2025/09/27/why-united-states-is-losing-ryde
 https://nytimes.com/athletic/6669093/2025/09/27/uswnts-korbin-shrader-lindsey-heaps-ol-lyonnes-psg/
 
 **Notre Dame's season feels possible again, thanks to CJ Carr**\
-`The quarterback can take the Fighting Irish from very good to potentially great. Notre Dame beat Arkansas 56-13 on Saturday.`\
+`The quarterback can take the Fighting Irish from very good to potentially great. It showed Saturday in Notre Dame's 56-13 win over Arkansas.`\
 https://nytimes.com/athletic/6668960/2025/09/27/notre-dame-arkansas-cj-carr/
 
 **SEC commissioner Greg Sankey: 'No excuses' for Auburn-Oklahoma officiating mistake**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/27/us/politics/rudy-giuliani-dominion-case-settlemen
 **Des Moines Schools Superintendent Arrested By ICE Is Placed on Leave**\
 `School Board members in Iowa’s capital made the decision one day after immigration officials accused the superintendent, Ian Roberts, of being in the country illegally.`\
 https://nytimes.com/2025/09/27/us/des-moines-schools-superintendent-ice-leave.html
-
-**Lynx coach Cheryl Reeve's suspension was warranted ... but many of her points are valid**\
-`Many coaches and executives have voiced displeasure about the way the WNBA is officiated. But Reeve's behavior deserved a punishment.`\
-https://nytimes.com/athletic/6669025/2025/09/27/cheryl-reeve-suspension-minnesota-lynx-wnba-playoffs/
 
