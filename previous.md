@@ -1,3 +1,7 @@
+**Life as a Handbag**\
+`Louise Trotter makes a crafty debut at Bottega Veneta.`\
+https://nytimes.com/2025/09/28/style/louise-trotter-bottega-veneta-spring-2026.html
+
 **Why Liverpool's habit of leaving it late finally caught up with them against Crystal Palace**\
 `This was the first time this season Liverpool have found themselves behind and failed to recover. What went wrong?`\
 https://nytimes.com/athletic/6668860/2025/09/28/liverpool-crystal-palace-late-slot-result/
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/09/28/todays-new-york-times
 **Spraying Roundup on Crops Is Fine. Really.**\
 `This debate is what happens when politics, vibes and hysteria drown out science, facts and data.`\
 https://nytimes.com/2025/09/28/opinion/pesticides-health-food-glyphosate.html
-
-**Gunman Fires on Riverside Bar in North Carolina From Boat, Killing 3**\
-`Eight others were injured in the attack on the bar in Southport, N.C., the authorities said. The Coast Guard later detained a person matching a description of the shooter.`\
-https://nytimes.com/2025/09/28/us/north-carolina-boat-shooting.html
 
