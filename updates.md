@@ -1,3 +1,7 @@
+**Justin Verlander won just 4 games as a Giant but didn't harm his Hall of Fame legacy**\
+`Verlander ended his season with a 4-11 record, but he did something to match or top a Hall of Fame pitcher in almost every outing.`\
+https://nytimes.com/athletic/6669335/2025/09/27/justin-verlander-giants-hall-of-fame-legacy/
+
 **Man Is Linked to 1991 Murders of 4 Texas Girls**\
 `Police said they used DNA to identify a suspect in the Austin killings known as the yogurt shop murders. The case has haunted the city for decades.`\
 https://nytimes.com/2025/09/27/us/yogurt-shop-murders-dna-serial-killer.html
