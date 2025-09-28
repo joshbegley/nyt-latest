@@ -1,3 +1,7 @@
+**MLB playoff bracket watch: AL East, Central titles on the line in Game 162; clinching scenarios**\
+`Plus the Reds and Mets battle for the final NL wild-card spot on the last day of the regular season. `\
+https://nytimes.com/athletic/6669355/2025/09/28/mlb-playoffs-bracket-standings-matchups/
+
 **A New Approach to Awe**\
 `A psychologist argues that the sensation is not mysterious, but rather an emotion that scientists can detect.`\
 https://nytimes.com/2025/09/28/briefing/a-new-approach-to-awe.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6668660/2025/09/28/red-wings-preseason-players-stoc
 **Why the Mets are starting Sean Manaea in must-win game**\
 `Right-handed starter Jonah Tong is also available — along with the rest of the Mets’ bullpen.`\
 https://nytimes.com/athletic/6669662/2025/09/28/mets-sean-manea-mlb-playoffs/
-
-**Russell M. Nelson, 17th President of the Mormon Church, Dies at 101**\
-`He left a career as a pioneering surgeon to become a church leader, diversifying its policies and its senior ranks. He became its president at 93.`\
-https://nytimes.com/2025/09/28/obituaries/russell-m-nelson-dead.html
 

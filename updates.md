@@ -1,3 +1,12 @@
+**A New Approach to Awe**\
+`A psychologist argues that the sensation is not mysterious, but rather an emotion that scientists can detect.`\
+https://nytimes.com/2025/09/28/briefing/a-new-approach-to-awe.html
+
+**Calle Järnkrok has a new lease on his NHL career. Can it help him crack the Leafs?**\
+`Despite an uncertain future with Toronto this season, Järnkrok is in training camp with a new attitude and better health. 
+`\
+https://nytimes.com/athletic/6669406/2025/09/28/calle-jarnkrok-maple-leafs-lineup-injury/
+
 **Calle Järnkrok has a new lease on his NHL career. Can it help him crack the Leafs?**\
 `Despite an uncertain future with Toronto this season, Järnkrok is in training camp with a new attitude and better health. 
 `\
