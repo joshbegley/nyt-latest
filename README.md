@@ -1,3 +1,7 @@
+**Sixers' Joel Embiid is practicing but not rushing a return: 'I'm going to listen to my body'**\
+`The Sixers are frothing to get Embiid back and erase the taste of last season. However, the Sixers star needs to feel like himself again.`\
+https://nytimes.com/athletic/6668137/2025/09/28/joel-embiid-sixers-training-camp-return/
+
 **Injuries Reported in Shooting at Mormon Church in Michigan**\
 `The police said that multiple people had been injured in a shooting at a church in Grand Blanc Township, Mich., southwest of Flint. The building was on fire, the authorities said`\
 https://nytimes.com/2025/09/28/us/grand-blanc-shooting-fire-mormon-church.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/09/28/us/politics/trump-hegseth-military.html
 **Baked Fish With Olives and Ginger, Ina Garten’s Perfect Roast Chicken and One-Pot Shrimp Pulao**\
 `Easy but beautiful dinners to share with friends and family.`\
 https://nytimes.com/2025/09/28/dining/baked-fish-with-olives-and-ginger-ina-gartens-perfect-roast-chicken-and-one-pot-shrimp-pulao.html
-
-**Astros' playoff streak is over, but is their championship window closing too?**\
-`Is Houston's depth good enough to compensate for an aging core and a bloated payroll?`\
-https://nytimes.com/athletic/6669729/2025/09/28/astros-playoff-streak-over/
 
