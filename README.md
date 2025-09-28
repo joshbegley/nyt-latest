@@ -8,7 +8,7 @@ https://nytimes.com/2025/09/28/nyregion/fred-queller-dead.html
 
 **Europe's Viktor Hovland withdraws from Ryder Cup singles match**\
 `The "envelope rule" was used to give Hovland and Harris English each a half-point and remove them from the singles lineup.`\
-https://nytimes.com/athletic/6670430/2025/09/28/viktor-holvand-europe-ryder-cup-withdraw/
+https://nytimes.com/athletic/6670430/2025/09/28/viktor-hovland-europe-ryder-cup-withdraw/
 
 **The Pulse: CFB narratives that simply won't end**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
