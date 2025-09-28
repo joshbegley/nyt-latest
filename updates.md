@@ -1,3 +1,11 @@
+**The New York Times in Print for Sunday, Sep. 28, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/28/todays-new-york-times
+
+**Spraying Roundup on Crops Is Fine. Really.**\
+`This debate is what happens when politics, vibes and hysteria drown out science, facts and data.`\
+https://nytimes.com/2025/09/28/opinion/pesticides-health-food-glyphosate.html
+
 **Gunman Fires on Riverside Bar in North Carolina From Boat, Killing 3**\
 `Eight others were injured in the attack on the bar in Southport, N.C., the authorities said. The gunman escaped on the boat.`\
 https://nytimes.com/2025/09/28/us/north-carolina-boat-shooting.html

@@ -1,3 +1,11 @@
+**The New York Times in Print for Sunday, Sep. 28, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/28/todays-new-york-times
+
+**Spraying Roundup on Crops Is Fine. Really.**\
+`This debate is what happens when politics, vibes and hysteria drown out science, facts and data.`\
+https://nytimes.com/2025/09/28/opinion/pesticides-health-food-glyphosate.html
+
 **Gunman Fires on Riverside Bar in North Carolina From Boat, Killing 3**\
 `Eight others were injured in the attack on the bar in Southport, N.C., the authorities said. The gunman escaped on the boat.`\
 https://nytimes.com/2025/09/28/us/north-carolina-boat-shooting.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6637420/2025/09/28/west-ham-graham-potters-inside-c
 **Alonso's youthful rebuild is a work in progress. It showed in Madrid's derby humiliation**\
 `Alonso and his new-look side will have to learn from their historic 5-2 thrashing by their city rivals`\
 https://nytimes.com/athletic/6668605/2025/09/28/real-madrid-youth-xabi-alonso-atletico/
-
-**How much more misery can Manchester United take?**\
-`What if things don’t improve, and what if Ruben Amorim's expensively-constructed team continue to lose more games than they win?`\
-https://nytimes.com/athletic/6668364/2025/09/28/manchester-united-brentford-premier-league-amorim-sesko/
-
-**Crystal Palace's win against Liverpool was the moment it all clicked**\
-`Oliver Glasner's investment in building a team who are psychologically and tactically robust pays off with a famous win over the champions`\
-https://nytimes.com/athletic/6661525/2025/09/28/cyrstal-palace-liverpool-glasner/
 
