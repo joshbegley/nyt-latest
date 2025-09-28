@@ -1,3 +1,8 @@
+**Calle Järnkrok has a new lease on his NHL career. Can it help him crack the Leafs?**\
+`Despite an uncertain future with Toronto this season, Järnkrok is in training camp with a new attitude and better health. 
+`\
+https://nytimes.com/athletic/6669406/2025/09/28/calle-jarnkrok-maple-leafs-lineup-injury/
+
 **World Cup win can be England's 'Lionesses moment' - 'We've got the ball rolling and we don't want it to stop'**\
 `The only way is up for English women's rugby after a world-record crowd at Twickenham witnessed them dismantle Canada`\
 https://nytimes.com/athletic/6668847/2025/09/28/england-womens-rugby-world-cup-win/
