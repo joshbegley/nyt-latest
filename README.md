@@ -26,7 +26,7 @@ https://nytimes.com/athletic/6671105/2025/09/28/mets-eliminated-postseason/
 `The once-fierce rivalry between the Yankees and Red Sox has cooled in recent years, but that could be about to change.`\
 https://nytimes.com/athletic/6671191/2025/09/28/yankees-redsox-wild-card-preview/
 
-**Dodgers, Reds bring strong rotations to matchup in Wild Card Series: First look**\
+**Dodgers, Reds bring strong rotations to Wild Card Series matchup: First look**\
 `It's Shohei Ohtani and the Dodgers taking on Elly De La Cruz and the Reds, who is perhaps the biggest X-factor in the series.`\
 https://nytimes.com/athletic/6670060/2025/09/28/dodgers-reds-wild-card-preview/
 
