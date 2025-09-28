@@ -1,3 +1,8 @@
+**Calle Järnkrok has a new lease on his NHL career. Can it help him crack the Leafs?**\
+`Despite an uncertain future with Toronto this season, Järnkrok is in training camp with a new attitude and better health. 
+`\
+https://nytimes.com/athletic/6669406/2025/09/28/calle-jarnkrok-maple-leafs-lineup-injury/
+
 **MLB playoff bracket watch: AL East, Central titles on the line in Game 162; clinching scenarios**\
 `Plus the Reds and Mets battle for the final NL wild-card spot on the last day of the regular season. `\
 https://nytimes.com/athletic/6669355/2025/09/28/mlb-playoffs-bracket-standings-matchups/
