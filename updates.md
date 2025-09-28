@@ -1,4 +1,8 @@
 **Injuries Reported in Shooting at Mormon Church in Michigan**\
+`The police said that multiple people had been injured in a shooting at a church in Grand Blanc Township, Mich., southwest of Flint. The building was on fire, the authorities said`\
+https://nytimes.com/2025/09/28/us/grand-blanc-shooting-fire-mormon-church.html
+
+**Injuries Reported in Shooting at Mormon Church in Michigan**\
 `The police said that multiple people had been injured in a shooting at a church in Grand Blanc, Mich., southwest of Flint. The building was on fire, the authorities said`\
 https://nytimes.com/2025/09/28/us/grand-blanc-shooting-fire-mormon-church.html
 
