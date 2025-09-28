@@ -1,3 +1,15 @@
+**What to know about the Ryder Cup with the Europeans owning a huge lead**\
+`Through two days, Luke Donald’s European Ryder Cup team has put on one of the most impressive displays in the history of team golf.`\
+https://nytimes.com/athletic/6668990/2025/09/27/ryder-cup-25-what-to-know-europe-lead/
+
+**Brewers clinch NL's top seed, home-field advantage throughout postseason**\
+`Milwaukee clinched the best record in Major League Baseball with the Phillies' loss to the Twins on Saturday.`\
+https://nytimes.com/athletic/6666402/2025/09/27/brewers-postseason-top-seed-home-field-advantage/
+
+**Is This L.A. Home the Solution to America’s Growing Energy Crisis?**\
+`Electric grids are increasingly under strain, and demand for energy is soaring. But not everyone sees the virtue in dotting homes across the country with solar panels.`\
+https://nytimes.com/interactive/2025/09/27/business/energy-environment/rooftop-solar-panels.html
+
 **Lynx rule out Napheesa Collier for Game 4 vs. Mercury**\
 `Collier has played in five games this postseason, averaging 20.6 points 6.8 rebounds and 2.4 assists per game.`\
 https://nytimes.com/athletic/6669165/2025/09/27/napheesa-collier-injury-status-lynx-mercury-game-4/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6669011/2025/09/27/why-united-states-is-losing-ryde
 **USWNT’s Korbin Shrader hat trick, Lindsey Heaps' goal help OL Lyonnes surge past PSG**\
 `Korbin Shrader, who joined Lyonnes in July from PSG, scored a hat trick against her former club.`\
 https://nytimes.com/athletic/6669093/2025/09/27/uswnts-korbin-shrader-lindsey-heaps-ol-lyonnes-psg/
-
-**Notre Dame's season feels possible again, thanks to CJ Carr**\
-`The quarterback can take the Fighting Irish from very good to potentially great. It showed Saturday in Notre Dame's 56-13 win over Arkansas.`\
-https://nytimes.com/athletic/6668960/2025/09/27/notre-dame-arkansas-cj-carr/
-
-**SEC commissioner Greg Sankey: 'No excuses' for Auburn-Oklahoma officiating mistake**\
-`Sankey was asked Saturday whether the SEC would consider making in-game replay reviews public, like the ACC.`\
-https://nytimes.com/athletic/6669069/2025/09/27/sec-officiating-auburn-oklahoma-sankey/
-
-**LSU vs. Ole Miss: 3 takeaways from convincing performance by Rebels**\
-`Lane Kiffin has a better football team right now than Brian Kelly. And on Saturday, Ole Miss had the better quarterback, too.`\
-https://nytimes.com/athletic/6669021/2025/09/27/lsu-football-ole-miss-score-result/
 
