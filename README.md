@@ -1,3 +1,11 @@
+**Blue Jackets Sunday Gathering: What must Luca Del Bel Belluz do to do to stick in the NHL?**\
+`Plus, the latest on the Blue Jackets' goalie situation, and five questions with Damon Severson.`\
+https://nytimes.com/athletic/6667848/2025/09/28/blue-jackets-roster-del-bel-belluz/
+
+**Penix sparkles with career-best 313 yards to lead Falcons past Commanders**\
+`A week after an embarrassing loss, Penix had perhaps the best game of his young career as Atlanta improved to 2-2.`\
+https://nytimes.com/athletic/6670863/2025/09/28/falcons-commanders-michael-penix-jr-sparkles-in-atlantas-victory-plus-5-takeaways/
+
 **Saquon Barkley scores TD on fake tush push as Eagles flex variations of the play**\
 `The Eagles lined up as if they were going with their patented tush push, but instead handed off to Barkley for an easy touchdown.`\
 https://nytimes.com/athletic/6670908/2025/09/28/eagles-fake-tush-push-saquon-barkley-buccaneers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6670777/2025/09/28/astros-manager-joe-espada-future
 **Who are the Arkansas coaching candidates with Sam Pittman out?**\
 `Bobby Petrino is running the program again. Does he have a chance at the full-time job? `\
 https://nytimes.com/athletic/6670787/2025/09/28/arkansas-coach-candidates-sam-pittman-fired/
-
-**Man arrested at Ryder Cup, accused of stealing golf cart**\
-`Crescenzo Stasi was charged with unauthorized use of a motor vehicle and criminal possession of stolen property.`\
-https://nytimes.com/athletic/6670806/2025/09/28/ryder-cup-man-arrested-stealing-golf-cart/
-
-**These Are the Wildest, Juiciest Poems You’ll Ever Read**\
-`Our critic A.O. Scott forages the world’s most poetic fruit.`\
-https://nytimes.com/interactive/2025/09/28/books/blackberry-poems.html
 
