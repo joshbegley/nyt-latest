@@ -1,5 +1,5 @@
 **Why Liverpool's habit of leaving it late finally caught up with them against Crystal Palace**\
-`This was the first time this season Liverpool have found themselves behind and not been able to recover. What went wrong?`\
+`This was the first time this season Liverpool have found themselves behind and failed to recover. What went wrong?`\
 https://nytimes.com/athletic/6668860/2025/09/28/liverpool-crystal-palace-late-slot-result/
 
 **NFL Week 4 top storylines: Desperate contenders, battles of unbeatens, clashes of winless**\
