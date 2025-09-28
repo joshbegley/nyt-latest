@@ -1,3 +1,7 @@
+**Sixers' Joel Embiid is practicing but not rushing a return: 'I'm going to listen to my body'**\
+`The Sixers are frothing to get Embiid back and erase the taste of last season. However, the Sixers star needs to feel like himself again.`\
+https://nytimes.com/athletic/6668137/2025/09/28/joel-embiid-sixers-training-camp-return/
+
 **Europe's Viktor Hovland withdraws from Ryder Cup singles match**\
 `The "envelope rule" was used to give Hovland and Harris English each a half-point and remove them from the singles lineup.`\
 https://nytimes.com/athletic/6670430/2025/09/28/viktor-hovland-europe-ryder-cup-withdraw/
