@@ -1,3 +1,11 @@
+**Mets' Pete Alonso will exercise opt-out clause; set to re-enter free agency**\
+`Alonso originally signed a two-year $54 million deal with an opt-out after the 2025 season. `\
+https://nytimes.com/athletic/6671474/2025/09/28/new-york-mets-pete-alonso-opt-out/
+
+**Three themes that will define the Astros' offseason**\
+`The Astros' streak of postseason appearances ended this season. How will they fix what ailed them in 2025?`\
+https://nytimes.com/athletic/6671302/2025/09/28/astros-offseason-injuries-offense-roster/
+
 **Ravens QB Lamar Jackson leaves game vs. Chiefs in third quarter**\
 `Jackson was replaced by Cooper Rush after reported hamstring injury.`\
 https://nytimes.com/athletic/6671471/2025/09/28/lamar-jackson-ravens-hamstring-cooper-rush-chiefs/
