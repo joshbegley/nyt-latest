@@ -1,3 +1,19 @@
+**Fred Queller, Lawyer in a Notable Domestic Violence Case, Dies at 93**\
+`His client was 6 years old when her father savagely beat her during a visitation. Her mother had warned police that he was dangerous, but they ignored her.`\
+https://nytimes.com/2025/09/28/nyregion/fred-queller-dead.html
+
+**Europe's Viktor Hovland withdraws from Ryder Cup singles match**\
+`FARMINGDALE, N.`\
+https://nytimes.com/athletic/6670430/2025/09/28/viktor-holvand-europe-ryder-cup-withdraw/
+
+**The Pulse: CFB narratives that simply won't end**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6669640/2025/09/28/these-penn-state-and-georgia-narratives-refuse-to-die-for-good-reason/
+
+**Patriots CB Christian Gonzalez to make season debut Sunday vs. Panthers**\
+`The second-team All-Pro cornerback missed the first three games of the season due to a hamstring injury.`\
+https://nytimes.com/athletic/6665605/2025/09/28/christian-gonzalez-patriots-active-panthers-week-4/
+
 **Patriots CB Christian Gonzalez to make season debut Sunday vs. Panthers**\
 `The second-team All-Pro cornerback has missed the first three games of the season due to a hamstring injury.`\
 https://nytimes.com/athletic/6665605/2025/09/28/christian-gonzalez-patriots-active-panthers-week-4/
