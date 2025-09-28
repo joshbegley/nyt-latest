@@ -1,3 +1,7 @@
+**Marc Maron and Other Comedians Rebuke Peers in Saudi Festival**\
+`The state-sponsored Riyadh Comedy Festival will feature Dave Chappelle, Pete Davidson and other top acts. Human Rights Watch says the event aims to obscure the country’s abuses.`\
+https://nytimes.com/2025/09/28/arts/marc-maron-shane-gillis-riyadh-comedy-festival.html
+
 **What did Ohio State prove at Washington? Its repeat hopes are real**\
 `Yes, the Buckeyes started slow in Saturday's 24-6 win at Washington, but QB Julian Sayin and the defense showed the potential for a repeat.`\
 https://nytimes.com/athletic/6670104/2025/09/28/ohio-state-washington-julian-sayin-college-football-playoff/
