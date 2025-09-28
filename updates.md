@@ -1,3 +1,7 @@
+**Patriots CB Christian Gonzalez to make season debut Sunday vs. Panthers**\
+`The second-team All-Pro cornerback has missed the first three games of the season due to a hamstring injury.`\
+https://nytimes.com/athletic/6665605/2025/09/28/christian-gonzalez-patriots-active-panthers-week-4/
+
 **Celtics' Jayson Tatum shares workout footage 4 months after Achilles tear**\
 `In a video published on YouTube, Tatum can be seen running up the court, backpedaling and doing some lateral movement within dribble moves.`\
 https://nytimes.com/athletic/6670261/2025/09/28/jayson-tatum-achilles-workout-celtics/
