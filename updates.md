@@ -1,3 +1,7 @@
+**Gunman Fires on Riverside Bar in North Carolina From Boat, Killing 3**\
+`Eight others were injured in the attack on the bar in Southport, N.C., the authorities said. The gunman escaped on the boat.`\
+https://nytimes.com/2025/09/28/us/north-carolina-boat-shooting.html
+
 **How ballet and hip-hop helped this American become a track and field great**\
 `At the World Championships in Tokyo Valarie Allman won the one title that had eluded the two-time Olympic champion `\
 https://nytimes.com/athletic/6633197/2025/09/28/valarie-allman-interview-discus-tokyo-2025-world-championships/
