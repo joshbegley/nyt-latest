@@ -1,3 +1,11 @@
+**Missouri Governor Signs Congressional Map Redrawn to Boost Republicans**\
+`Republicans intend to flip a congressional seat in the Kansas City area, but opponents are trying to stop the new map from taking effect.`\
+https://nytimes.com/2025/09/28/us/missouri-redistricting-governor-congress.html
+
+**Shooting in Michigan Is the Latest Attack on a Religious Institution**\
+`Places of worship and religious schools have been the targets of a series of recent shooting attacks across the country.`\
+https://nytimes.com/2025/09/28/us/churches-schools-shootings.html
+
 **Texans-Titans: Houston shuts out Tennessee 26-0 for first win of season**\
 `With the win, the Texans improve to 1-3. The Titans have yet to win a game at 0-4.`\
 https://nytimes.com/athletic/6671012/2025/09/28/texans-titans-result-nfl/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6670421/2025/09/28/patriots-panthers-result-takeawa
 **Blue Jackets Sunday Gathering: What must Luca Del Bel Belluz do to do to stick in the NHL?**\
 `Plus, the latest on the Blue Jackets' goalie situation, and five questions with Damon Severson.`\
 https://nytimes.com/athletic/6667848/2025/09/28/blue-jackets-roster-del-bel-belluz/
-
-**Penix sparkles with career-best 313 yards to lead Falcons past Commanders**\
-`A week after an embarrassing loss, Penix had perhaps the best game of his young career as Atlanta improved to 2-2.`\
-https://nytimes.com/athletic/6670863/2025/09/28/falcons-commanders-michael-penix-jr-sparkles-in-atlantas-victory-plus-5-takeaways/
-
-**Saquon Barkley scores TD on fake tush push as Eagles flex variations of the play**\
-`The Eagles lined up as if they were going with their patented tush push, but instead handed off to Barkley for an easy touchdown.`\
-https://nytimes.com/athletic/6670908/2025/09/28/eagles-fake-tush-push-saquon-barkley-buccaneers/
 

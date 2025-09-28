@@ -1,3 +1,11 @@
+**Missouri Governor Signs Congressional Map Redrawn to Boost Republicans**\
+`Republicans intend to flip a congressional seat in the Kansas City area, but opponents are trying to stop the new map from taking effect.`\
+https://nytimes.com/2025/09/28/us/missouri-redistricting-governor-congress.html
+
+**Shooting in Michigan Is the Latest Attack on a Religious Institution**\
+`Places of worship and religious schools have been the targets of a series of recent shooting attacks across the country.`\
+https://nytimes.com/2025/09/28/us/churches-schools-shootings.html
+
 **Texans-Titans: Houston shuts out Tennessee 26-0 for first win of season**\
 `With the win, the Texans improve to 1-3. The Titans have yet to win a game at 0-4.`\
 https://nytimes.com/athletic/6671012/2025/09/28/texans-titans-result-nfl/
