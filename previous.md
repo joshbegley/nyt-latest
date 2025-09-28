@@ -1,3 +1,7 @@
+**Trump Again Focuses on Portland as an Avatar of the Left**\
+`President Trump has made Oregon’s largest city a frequent target of both his rhetoric and his policies. Many residents are rolling their eyes.`\
+https://nytimes.com/2025/09/28/us/portland-trump-ice-protests.html
+
 **Lola Young Cancels a Second Show After Collapsing Onstage**\
 `The British pop star, who has acknowledged mental health issues, fell backward during a performance Saturday. She has canceled shows in New Jersey and Maryland.`\
 https://nytimes.com/2025/09/28/arts/lola-young-collapse-cancellation.html
@@ -6,7 +10,7 @@ https://nytimes.com/2025/09/28/arts/lola-young-collapse-cancellation.html
 `Find out how to watch the Minnesota Lynx play the Phoenix Mercury, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6670802/2025/09/28/lynx-vs-mercury-stream-how-to-watch-sept-28/
 
-**New York Giants WR Malik Nabers carted off with leg injury vs. Chargers**\
+**New York Giants WR Malik Nabers ruled out with leg injury vs. Chargers**\
 `Receiver, injured while trying to catch a deep pass from Jaxson Dart, was helped onto a cart and driven off the field.`\
 https://nytimes.com/athletic/6670721/2025/09/28/malik-nabers-injury-new-york-giants-los-angeles-chargers/
 
@@ -26,15 +30,11 @@ https://nytimes.com/interactive/2025/weather/imelda-map-path-tracker.html
 `Arkansas will be behind most of its SEC peers, including ones that could change coaches in this cycle. But winning is still possible here.`\
 https://nytimes.com/athletic/6670570/2025/09/28/arkansas-football-coaching-search-job-grade/
 
+**Ranking college football's five open P4 head-coaching jobs**\
+`Coaches want to take jobs where they believe they can win, and this ranking reflects how most coaches would view these jobs.`\
+https://nytimes.com/athletic/6662286/2025/09/28/college-football-open-coaching-jobs-rankings/
+
 **Athletics to wear gold 'Sacramento' alternate jerseys next season**\
 `After a season with the lowest attendance in the league, the Athletics will show their interim home some recognition.`\
 https://nytimes.com/athletic/6670490/2025/09/28/athletics-to-wear-sacramento-alternate-jerseys-next-season/
-
-**Steelers vs. Vikings: Pittsburgh holds off Minnesota's comeback attempt**\
-`Minnesota cut Pittsburgh's lead to three with two fourth-quarter touchdowns`\
-https://nytimes.com/athletic/6670475/2025/09/28/vikings-steelers-score-nfl/
-
-**‘One Battle After Another’ Ticket Sales Are Solid (With an Asterisk)**\
-`Paul Thomas Anderson’s film collected $22.4 million in North America over the weekend, enough for No. 1. But its profitability remains a big question.`\
-https://nytimes.com/2025/09/28/business/media/one-battle-after-another-box-office.html
 

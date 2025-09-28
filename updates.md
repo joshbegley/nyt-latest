@@ -1,3 +1,15 @@
+**Trump Again Focuses on Portland as an Avatar of the Left**\
+`President Trump has made Oregon’s largest city a frequent target of both his rhetoric and his policies. Many residents are rolling their eyes.`\
+https://nytimes.com/2025/09/28/us/portland-trump-ice-protests.html
+
+**New York Giants WR Malik Nabers ruled out with leg injury vs. Chargers**\
+`Receiver, injured while trying to catch a deep pass from Jaxson Dart, was helped onto a cart and driven off the field.`\
+https://nytimes.com/athletic/6670721/2025/09/28/malik-nabers-injury-new-york-giants-los-angeles-chargers/
+
+**Ranking college football's five open P4 head-coaching jobs**\
+`Coaches want to take jobs where they believe they can win, and this ranking reflects how most coaches would view these jobs.`\
+https://nytimes.com/athletic/6662286/2025/09/28/college-football-open-coaching-jobs-rankings/
+
 **Lola Young Cancels a Second Show After Collapsing Onstage**\
 `The British pop star, who has acknowledged mental health issues, fell backward during a performance Saturday. She has canceled shows in New Jersey and Maryland.`\
 https://nytimes.com/2025/09/28/arts/lola-young-collapse-cancellation.html
