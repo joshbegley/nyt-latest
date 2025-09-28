@@ -1,3 +1,11 @@
+**Mormon Church on Fire in Michigan After Reported Shooting**\
+`Emergency crews were responding to a reported shooting and fire at a Mormon church in Grand Blanc Township, Mich.`\
+https://nytimes.com/video/us/100000010426309/michigan-grand-blanc-fire.html
+
+**Arkansas fires Pittman, names Petrino interim coach after loss to Notre Dame**\
+`Pittman, who went 32-34 with the Razorbacks, has one of the most unique buyouts in college football.`\
+https://nytimes.com/athletic/6647515/2025/09/28/razorbacks-sam-pittman-fired-bobby-petrino/
+
 **Free agent Al Horford agrees to sign with Warriors: Source**\
 `Horford, 39, spent the last four seasons with Boston. He has averaged 12.9 points and 7.9 rebounds per game in 18 seasons.`\
 https://nytimes.com/athletic/6470227/2025/09/28/al-horford-warriors-nba-free-agency-2025/

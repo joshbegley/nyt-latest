@@ -22,8 +22,8 @@ https://nytimes.com/2025/09/28/nyregion/adams-mayor-drops-out.html
 `A drummer for the 1960s British band the Pretty Things, “the high priest of lunacy” set a high bar for fiery performances and offstage misbehavior.`\
 https://nytimes.com/2025/09/28/arts/music/viv-prince-dead.html
 
-**Live Updates: Injuries Reported in Shooting at Mormon Church in Michigan**\
-`The police said that multiple people had been injured in a shooting at a church in Grand Blanc Township, Mich., southwest of Flint. The building was on fire, the authorities said.`\
+**Live Updates: 1 Dead, 9 Wounded in Shooting at Mormon Church in Michigan**\
+`More victims may still be inside, the police said, after a gunman attacked and set fire to the church in Grand Blanc Township, Mich., southwest of Flint. The gunman also is deceased.`\
 https://nytimes.com/live/2025/09/28/us/grand-blanc-shooting-church-michigan
 
 **Road Cycling World Championships: Pogacar solos to another rainbow jersey, but was Evenepoel unlucky?**\
