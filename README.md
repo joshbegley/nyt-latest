@@ -1,3 +1,11 @@
+**How to watch Diamondbacks at Padres: Time, TV, streaming for September 28**\
+`Find out how to watch the Arizona Diamondbacks play the San Diego Padres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6669870/2025/09/28/diamondbacks-vs-padres-stream-how-to-watch-sept-28/
+
+**Russia Hammers Kyiv in 12-Hour Drone Assault**\
+`At least four people were killed in the attack, which also wounded dozens of civilians in the capital and around country.`\
+https://nytimes.com/2025/09/28/world/europe/ukraine-kyiv-russia-strikes.html
+
 **Let’s Talk About the Rapture**\
 `It wasn’t just a weird, viral blip — experts say it was actually a sign of a culture in distress.`\
 https://nytimes.com/2025/09/28/briefing/lets-talk-about-the-rapture.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/americas/100000010416376/inside-venezuela-after-
 **Greene, Straying From Trump, Reflects an Emerging MAGA Split**\
 `The right-wing Republican congresswoman from Georgia has grown disillusioned with her own party and with President Trump, and increasingly willing to say so.`\
 https://nytimes.com/2025/09/28/us/politics/marjorie-taylor-greene-maga-split.html
-
-**The Secretly Complex Life of Mayci Neeley**\
-`The star of “The Secret Lives of Mormon Wives” is known as a voice of reason. Her new memoir reveals a difficult past beneath the placid exterior.`\
-https://nytimes.com/2025/09/28/style/mayci-neeley-told-you-so-memoir-secret-lives-mormon-wives.html
-
-**A Stranger Shattered Their Lives. At First, They Didn’t Know Why.**\
-`A family reckons with the devastation left behind after a former N.F.L. player showed up on their property.`\
-https://nytimes.com/2025/09/28/us/phillip-adams-cte.html
 
