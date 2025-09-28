@@ -1,3 +1,11 @@
+**Lola Young Cancels a Second Show After Collapsing Onstage**\
+`The British pop star, who has acknowledged mental health issues, fell backward during a performance Saturday. She has canceled shows in New Jersey and Maryland.`\
+https://nytimes.com/2025/09/28/arts/lola-young-collapse-cancellation.html
+
+**How to watch Lynx at Mercury: Game 4 Time, TV, streaming**\
+`Find out how to watch the Minnesota Lynx play the Phoenix Mercury, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6670802/2025/09/28/lynx-vs-mercury-stream-how-to-watch-sept-28/
+
 **New York Giants WR Malik Nabers carted off with leg injury vs. Chargers**\
 `Receiver, injured while trying to catch a deep pass from Jaxson Dart, was helped onto a cart and driven off the field.`\
 https://nytimes.com/athletic/6670721/2025/09/28/malik-nabers-injury-new-york-giants-los-angeles-chargers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6670475/2025/09/28/vikings-steelers-score-nfl/
 **‘One Battle After Another’ Ticket Sales Are Solid (With an Asterisk)**\
 `Paul Thomas Anderson’s film collected $22.4 million in North America over the weekend, enough for No. 1. But its profitability remains a big question.`\
 https://nytimes.com/2025/09/28/business/media/one-battle-after-another-box-office.html
-
-**Maple Leafs, Anthony Stolarz agree to 4-year extension with $3.75 million AAV**\
-`If the goalie can stay healthier this season and continue to perform at a high level, this deal will look like a win next summer.`\
-https://nytimes.com/athletic/6670382/2025/09/28/maple-leafs-anthony-stolarz-extension/
-
-**Newcastle 1 Arsenal 2: Gabriel's redemption? Livramento blow? Calafiori towel incident?**\
-`Mikel Arteta's men scored a stoppage-time winner at St James' Park on Sunday afternoon`\
-https://nytimes.com/athletic/6670447/2025/09/28/newcastle-arsenal-result-report-analysis/
 
