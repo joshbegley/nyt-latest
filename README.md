@@ -1,4 +1,4 @@
-**New York Giants WR Malik Nabers exits with leg injury vs. Chargers**\
+**New York Giants WR Malik Nabers carted off with leg injury vs. Chargers**\
 `Receiver, injured while trying to catch a deep pass from Jaxson Dart, was helped onto a cart and driven off the field.`\
 https://nytimes.com/athletic/6670721/2025/09/28/malik-nabers-injury-new-york-giants-los-angeles-chargers/
 
@@ -35,6 +35,6 @@ https://nytimes.com/2025/09/28/business/media/one-battle-after-another-box-offic
 https://nytimes.com/athletic/6670382/2025/09/28/maple-leafs-anthony-stolarz-extension/
 
 **Newcastle 1 Arsenal 2: Gabriel's redemption? Livramento blow? Calafiori towel incident?**\
-`Arsenal managed a dramatic 2-1 win against Newcastle United on Sunday afternoon`\
+`Mikel Arteta's men scored a stoppage-time winner at St James' Park on Sunday afternoon`\
 https://nytimes.com/athletic/6670447/2025/09/28/newcastle-arsenal-result-report-analysis/
 
