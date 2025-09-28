@@ -1,3 +1,11 @@
+**Russell M. Nelson, 17th President of the Mormon Church, Dies at 101**\
+`He left a career as a pioneering surgeon to become a church leader, diversifying its policies and its senior ranks. He became its president at 93.`\
+https://nytimes.com/2025/09/28/obituaries/russell-m-nelson-dead.html
+
+**Predicting the College Football Playoff bracket: A wide-open field after a chaotic Week 5**\
+`Welcome to the impossible task of selecting the College Football Playoff field after Week 5.`\
+https://nytimes.com/athletic/6669676/2025/09/28/college-football-playoff-2025-bracket-prediction/
+
 **Ta-Nehisi Coates on Bridging Gaps vs. Drawing Lines**\
 `The writer Ta-Nehisi Coates joins Ezra Klein on the show to discuss how the left should think about the work of politics and persuasion in this moment.`\
 https://nytimes.com/2025/09/28/opinion/ezra-klein-podcast-ta-nehisi-coates.html
