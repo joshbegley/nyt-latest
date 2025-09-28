@@ -1,3 +1,7 @@
+**Step forward Brighton's supersub, Danny Welbeck**\
+`Danny Welbeck's double at Chelsea took him to fourth in the list of goalscoring substitutes in the Premier League`\
+https://nytimes.com/athletic/6668199/2025/09/28/danny-welbeck-brighton-chelsea-premier-league/
+
 **'The amount of pain is very difficult to understand': The brain injuries behind the deaths of two rugby friends**\
 `They were best friends, who took their own lives, after the same career, within three years of each other and their families have questions`\
 https://nytimes.com/athletic/6664753/2025/09/28/shane-christie-billy-guyton-cte/

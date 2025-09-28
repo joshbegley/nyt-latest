@@ -1,3 +1,7 @@
+**Step forward Brighton's supersub, Danny Welbeck**\
+`Danny Welbeck's double at Chelsea took him to fourth in the list of goalscoring substitutes in the Premier League`\
+https://nytimes.com/athletic/6668199/2025/09/28/danny-welbeck-brighton-chelsea-premier-league/
+
 **'The amount of pain is very difficult to understand': The brain injuries behind the deaths of two rugby friends**\
 `They were best friends, who took their own lives, after the same career, within three years of each other and their families have questions`\
 https://nytimes.com/athletic/6664753/2025/09/28/shane-christie-billy-guyton-cte/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6669580/2025/09/28/dodgers-vs-mariners-stream-how-t
 **How to watch Twins at Phillies: Time, TV, streaming for September 28**\
 `Find out how to watch the Minnesota Twins play the Philadelphia Phillies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6669573/2025/09/28/twins-vs-phillies-stream-how-to-watch-sept-28/
-
-**How to watch Royals at Athletics: Time, TV, streaming for September 28**\
-`Find out how to watch the Kansas City Royals play the Athletics, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6669567/2025/09/28/royals-vs-athletics-stream-how-to-watch-sept-28/
 
