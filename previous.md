@@ -1,3 +1,11 @@
+**What did Ohio State prove at Washington? Its repeat hopes are real**\
+`Yes, the Buckeyes started slow in Saturday's 24-6 win at Washington, but QB Julian Sayin and the defense showed the potential for a repeat.`\
+https://nytimes.com/athletic/6670104/2025/09/28/ohio-state-washington-julian-sayin-college-football-playoff/
+
+**Fantasy football Week 4 inactives: Jaylen Warren out for Steelers**\
+`Fantasy managers were jolted awake Sunday with the news the Steelers' RB wouldn't suit up. Here's who else may miss out on Week 4.`\
+https://nytimes.com/athletic/6670152/2025/09/28/fantasy-football-week-4-inactives-jaylen-warren-out-for-steelers/
+
 **What Questions Do You Have About Trump and the World?**\
 `“Ask a Correspondent” will take your questions to Peter Baker, our chief White House correspondent.`\
 https://nytimes.com/2025/09/28/world/americas/callout-reader-questions-trump-baker.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/28/opinion/ai-school.html
 **How to watch Aces at Fever: Game 4 Time, TV, streaming**\
 `Find out how to watch the Las Vegas Aces play the Indiana Fever, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6670126/2025/09/28/aces-vs-fever-stream-how-to-watch-sept-28/
-
-**Until Saturday: It happened again to Penn State and UGA**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/6670106/2025/09/28/penn-state-oregon-college-football-results-until-saturday/
-
-**Mandel's Final Thoughts: Alabama, Oregon are rolling — and it's Groundhog Day for Penn State**\
-`Plus: Why is Alabama Kirby Smart's kryptonite, LSU's offensive struggles and Trinidad Chambliss and Ole Miss's path to the CFP. `\
-https://nytimes.com/athletic/6669691/2025/09/28/college-football-scores-results-week-5/
 

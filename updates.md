@@ -1,3 +1,11 @@
+**What did Ohio State prove at Washington? Its repeat hopes are real**\
+`Yes, the Buckeyes started slow in Saturday's 24-6 win at Washington, but QB Julian Sayin and the defense showed the potential for a repeat.`\
+https://nytimes.com/athletic/6670104/2025/09/28/ohio-state-washington-julian-sayin-college-football-playoff/
+
+**Fantasy football Week 4 inactives: Jaylen Warren out for Steelers**\
+`Fantasy managers were jolted awake Sunday with the news the Steelers' RB wouldn't suit up. Here's who else may miss out on Week 4.`\
+https://nytimes.com/athletic/6670152/2025/09/28/fantasy-football-week-4-inactives-jaylen-warren-out-for-steelers/
+
 **What Questions Do You Have About Trump and the World?**\
 `“Ask a Correspondent” will take your questions to Peter Baker, our chief White House correspondent.`\
 https://nytimes.com/2025/09/28/world/americas/callout-reader-questions-trump-baker.html
