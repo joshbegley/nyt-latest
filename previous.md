@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6560541/2025/09/27/college-football-playoff-bracket-projections-odds/
 
 **Alabama vs. Georgia: Crimson Tide expose Bulldogs defense in 24-21 upset**\
-`Plus, is Kalen DeBoer off the hot seat?`\
+`Is Kalen DeBoer off the hot seat? The biggest win of his Alabama tenure happened last year against Georgia, but Saturday's felt different.`\
 https://nytimes.com/athletic/6669164/2025/09/27/alabama-georgia-score-result-takeaways/
 
 **Oregon silences Penn State's White Out crowd with 30-24 double OT win**\

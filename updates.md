@@ -1,3 +1,7 @@
+**Alabama vs. Georgia: Crimson Tide expose Bulldogs defense in 24-21 upset**\
+`Is Kalen DeBoer off the hot seat? The biggest win of his Alabama tenure happened last year against Georgia, but Saturday's felt different.`\
+https://nytimes.com/athletic/6669164/2025/09/27/alabama-georgia-score-result-takeaways/
+
 **College Football Playoff 2025 projections: Oregon, Ole Miss, Alabama rising after big wins**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/09/27/college-football-playoff-bracket-projections-odds/
