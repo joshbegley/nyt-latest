@@ -1,3 +1,8 @@
+**Yankees' 4 keys to winning Game 162 and keeping AL East dream alive**\
+`The Yankees have to beat the Baltimore Orioles, who don't seem likely to make it easy for them. Here's how they could do it.
+`\
+https://nytimes.com/athletic/6668871/2025/09/27/yankees-keys-win-game-162-al-east/
+
 **Notre Dame's season feels possible again, thanks to CJ Carr**\
 `The quarterback can take the Fighting Irish from very good to potentially great. Notre Dame beat Arkansas 56-13 on Saturday.`\
 https://nytimes.com/athletic/6668960/2025/09/27/notre-dame-arkansas-cj-carr/
