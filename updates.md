@@ -1,3 +1,27 @@
+**Why Liverpool's habit of leaving it late finally caught up with them against Crystal Palace**\
+`This was the first time this season Liverpool have found themselves behind and not been able to recover. What went wrong?`\
+https://nytimes.com/athletic/6668860/2025/09/28/liverpool-crystal-palace-late-slot-result/
+
+**NFL Week 4 top storylines: Desperate contenders, battles of unbeatens, clashes of winless**\
+`Barring a tie, either the Chiefs or Ravens will be facing a tough road back from 1-3 after Sunday's showdown in Kansas City.`\
+https://nytimes.com/athletic/6662916/2025/09/28/nfl-week-4-schedule/
+
+**New York Faces Painful History as It Marks the Erie Canal’s Bicentennial**\
+`As the 200th anniversary of the Erie Canal approaches on Oct. 26, organizers are seeking to temper the celebration with an acknowledgment of the waterway’s dispossession of Native American communities.`\
+https://nytimes.com/2025/09/28/nyregion/erie-canal-bicentennial.html
+
+**How Much Money Do New York’s Mayoral Candidates Actually Have?**\
+`Andrew Cuomo appears to be the wealthiest. Eric Adams faces legal bills. Zohran Mamdani owns land near the Nile. Curtis Sliwa splurges on his cats.`\
+https://nytimes.com/2025/09/28/nyregion/mamdani-cuomo-sliwa-adams-net-worth.html
+
+**‘He Turned West, and I Fell Into Step Beside Him’**\
+`Finding patterns in the West Side streets, a doorman’s routine and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/09/28/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/09/28/crosswords/spelling-bee-forum.html
+
 **How much more misery can Manchester United take?**\
 `What if things don’t improve, and what if Ruben Amorim's expensively-constructed team continue to lose more games than they win?`\
 https://nytimes.com/athletic/6668364/2025/09/28/manchester-united-brentford-premier-league-amorim-sesko/
