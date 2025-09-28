@@ -1,3 +1,7 @@
+**Son Heung-min brace makes it eight goals in eight for LAFC**\
+`Son Heung-min continued his prolific scoring for Los Angeles FC as his irresistible partnership with Denis Bouanga claimed another victim with a 3-0 win at St Louis City in Major League Soccer on Saturday.`\
+https://nytimes.com/athletic/6669394/2025/09/27/son-heung-min-brace-makes-it-eight-goals-in-eight-for-lafc/
+
 **Justin Verlander won just 4 games as a Giant but didn't harm his Hall of Fame legacy**\
 `Verlander ended his season with a 4-11 record, but he did something to match or top a Hall of Fame pitcher in almost every outing.`\
 https://nytimes.com/athletic/6669335/2025/09/27/justin-verlander-giants-hall-of-fame-legacy/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6669259/2025/09/27/reds-vs-brewers-stream-how-to-wa
 **How to watch Pirates at Braves: Time, TV, streaming for September 28**\
 `Find out how to watch the Pittsburgh Pirates play the Atlanta Braves, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6669257/2025/09/27/pirates-vs-braves-stream-how-to-watch-sept-28/
-
-**How to watch Rays at Blue Jays: Time, TV, streaming for September 28**\
-`Find out how to watch the Tampa Bay Rays play the Toronto Blue Jays, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6669252/2025/09/27/rays-vs-blue-jays-stream-how-to-watch-sept-28/
 
