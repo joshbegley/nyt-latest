@@ -1,3 +1,7 @@
+**The New York Times International Edition in Print for Monday, Sep. 29, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/09/28/todays-new-york-times-international-edition
+
 **Fear and Hope in Venezuela as U.S. Warships Lurk**\
 `On a visit to Venezuela, The Times found a nation bracing for potential U.S. military action.`\
 https://nytimes.com/2025/09/28/world/americas/venezuela-mood.html

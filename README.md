@@ -1,3 +1,7 @@
+**Ryder Cup MC reportedly steps down after appearing to engage in chant aimed at Rory McIlroy**\
+`Online video footage appeared to show comedian and actress Heather McMahan saying “f**k you Rory” into a microphone before play began.`\
+https://nytimes.com/athletic/6669847/2025/09/28/ryder-cup-rory-mcilroy-heather-mcmahan/
+
 **The New York Times International Edition in Print for Monday, Sep. 29, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/09/28/todays-new-york-times-international-edition
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/28/us/nc-stabbing-suspect-police-mental-health-histo
 **Israel, Iran — and the Family Killed in the Crossfire**\
 `In June, Israel attacked Iran’s nuclear facilities, defense systems and top military officials.`\
 https://nytimes.com/video/world/middleeast/100000010416859/an-israeli-strike-on-iran-killed-her-family-she-wants-answers.html
-
-**Inside Venezuela After U.S. Strikes Boats**\
-`The United States has blown up several boats in the Caribbean Sea and is now increasing its military presence off the coast of Venezuela. Julie Turkewitz, reporting from Caracas, explains how Venezuelans are reacting.`\
-https://nytimes.com/video/world/americas/100000010416376/inside-venezuela-after-us-strikes-boats.html
 
