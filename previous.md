@@ -1,3 +1,11 @@
+**Road Cycling World Championships: Pogacar solos to another rainbow jersey, but was Evenepoel unlucky?**\
+`The Athletic reviews a memorable week of racing in the Rwandan capital Kigali  `\
+https://nytimes.com/athletic/6670122/2025/09/28/road-cycling-world-championships-pogacar-evenepoel-healy-vallieres-hudson/
+
+**SEC vibes after Week 5: Ole Miss and Alabama rise as unpredictable season continues**\
+`The vibe for those of us covering this conference: Fun. Wild and time-consuming, but fun.`\
+https://nytimes.com/athletic/6670284/2025/09/28/sec-football-rankings-week-6-ole-miss-alabama-georgia/
+
 **Sixers' Joel Embiid is practicing but not rushing a return: 'I'm going to listen to my body'**\
 `The Sixers are frothing to get Embiid back and erase the taste of last season. However, the Sixers star needs to feel like himself again.`\
 https://nytimes.com/athletic/6668137/2025/09/28/joel-embiid-sixers-training-camp-return/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6665605/2025/09/28/christian-gonzalez-patriots-acti
 **Celtics' Jayson Tatum shares workout footage 4 months after Achilles tear**\
 `In a video published on YouTube, Tatum can be seen running up the court, backpedaling and doing some lateral movement within dribble moves.`\
 https://nytimes.com/athletic/6670261/2025/09/28/jayson-tatum-achilles-workout-celtics/
-
-**Trump Plans to Attend Gathering of U.S. Military Officers**\
-`Defense Secretary Pete Hegseth summoned hundreds of generals and admirals from around the world for an unusual gathering.`\
-https://nytimes.com/2025/09/28/us/politics/trump-hegseth-military.html
-
-**Baked Fish With Olives and Ginger, Ina Garten’s Perfect Roast Chicken and One-Pot Shrimp Pulao**\
-`Easy but beautiful dinners to share with friends and family.`\
-https://nytimes.com/2025/09/28/dining/baked-fish-with-olives-and-ginger-ina-gartens-perfect-roast-chicken-and-one-pot-shrimp-pulao.html
 

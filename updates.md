@@ -1,3 +1,11 @@
+**Road Cycling World Championships: Pogacar solos to another rainbow jersey, but was Evenepoel unlucky?**\
+`The Athletic reviews a memorable week of racing in the Rwandan capital Kigali  `\
+https://nytimes.com/athletic/6670122/2025/09/28/road-cycling-world-championships-pogacar-evenepoel-healy-vallieres-hudson/
+
+**SEC vibes after Week 5: Ole Miss and Alabama rise as unpredictable season continues**\
+`The vibe for those of us covering this conference: Fun. Wild and time-consuming, but fun.`\
+https://nytimes.com/athletic/6670284/2025/09/28/sec-football-rankings-week-6-ole-miss-alabama-georgia/
+
 **Sixers' Joel Embiid is practicing but not rushing a return: 'I'm going to listen to my body'**\
 `The Sixers are frothing to get Embiid back and erase the taste of last season. However, the Sixers star needs to feel like himself again.`\
 https://nytimes.com/athletic/6668137/2025/09/28/joel-embiid-sixers-training-camp-return/
