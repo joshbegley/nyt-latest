@@ -1,3 +1,7 @@
+**Until Saturday: It happened again to Penn State and UGA**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6670106/2025/09/28/penn-state-oregon-college-football-results-until-saturday/
+
 **Mandel's Final Thoughts: Alabama, Oregon are rolling — and it's Groundhog Day for Penn State**\
 `Plus: Why is Alabama Kirby Smart's kryptonite, LSU's offensive struggles and Trinidad Chambliss and Ole Miss's path to the CFP. `\
 https://nytimes.com/athletic/6669691/2025/09/28/college-football-scores-results-week-5/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6668806/2025/09/28/virgil-van-dijk-liverpool-crysta
 **It's not an Alabama complex. Georgia just isn't very good right now**\
 `The reality is Georgia is not as good as it was three or four years ago, and Saturday showed that.`\
 https://nytimes.com/athletic/6669720/2025/09/28/georgia-football-alabama-result-analysis/
-
-**Breaking down Chelsea's collapse against Brighton: 'You cannot continue to give away presents'**\
-`Chelsea conceded three goals to lose against Brighton but it was largely the result of their own mistakes - on the pitch and in the build-up`\
-https://nytimes.com/athletic/6668435/2025/09/28/chelsea-brighton-collapse-analysed/
 
