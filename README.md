@@ -1,3 +1,7 @@
+**Cleveland Guardians clinch postseason berth after September revival**\
+`At the start of September, FanGraphs assigned the Guardians a 2.9 percent chance of capturing a playoff berth of any kind.`\
+https://nytimes.com/athletic/6663139/2025/09/27/cleveland-guardians-clinch-postseason-berth-after-september-revival/
+
 **One Flyers prospect makes an impression, but others struggling to have an impact**\
 `Jack Nesbitt, selected by the Flyers with the 12th pick in the 2025 draft, had a successful first month skating as a legit NHL prospect.`\
 https://nytimes.com/athletic/6669231/2025/09/27/flyers-prospects-jack-nesbitt-preseason/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6669218/2025/09/27/blues-cam-fowler-contract-extens
 `The 2003 No. 1 pick and three-time Stanley Cup champion entered Pittsburgh's game in the third period to a hero's welcome.
 `\
 https://nytimes.com/athletic/6668670/2025/09/27/marc-andre-fleury-penguins-final-game-preseason-retires/
-
-**What to know about Ryder Cup with the Europeans owning a huge lead**\
-`Through two days, Luke Donald’s European Ryder Cup team has put on one of the most impressive displays in the history of team golf.`\
-https://nytimes.com/athletic/6668990/2025/09/27/ryder-cup-25-what-to-know-europe-lead/
 
