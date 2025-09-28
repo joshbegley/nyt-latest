@@ -1,3 +1,11 @@
+**How ballet and hip-hop helped this American become a track and field great**\
+`At the World Championships in Tokyo Valarie Allman won the one title that had eluded the two-time Olympic champion `\
+https://nytimes.com/athletic/6633197/2025/09/28/valarie-allman-interview-discus-tokyo-2025-world-championships/
+
+**Newcastle vs Arsenal preview: Can Howe get under Arteta's skin again?**\
+`In Newcastle, Arsenal face an opponent who has frequently got the better of them at St James' Park in recent seasons`\
+https://nytimes.com/athletic/6664762/2025/09/28/newcastle-arsenal-preview-howe-arteta/
+
 **Step forward Brighton's supersub, Danny Welbeck**\
 `Danny Welbeck's double at Chelsea took him to fourth in the list of goalscoring substitutes in the Premier League`\
 https://nytimes.com/athletic/6668199/2025/09/28/danny-welbeck-brighton-chelsea-premier-league/

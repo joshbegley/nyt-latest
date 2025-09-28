@@ -1,3 +1,11 @@
+**How ballet and hip-hop helped this American become a track and field great**\
+`At the World Championships in Tokyo Valarie Allman won the one title that had eluded the two-time Olympic champion `\
+https://nytimes.com/athletic/6633197/2025/09/28/valarie-allman-interview-discus-tokyo-2025-world-championships/
+
+**Newcastle vs Arsenal preview: Can Howe get under Arteta's skin again?**\
+`In Newcastle, Arsenal face an opponent who has frequently got the better of them at St James' Park in recent seasons`\
+https://nytimes.com/athletic/6664762/2025/09/28/newcastle-arsenal-preview-howe-arteta/
+
 **Step forward Brighton's supersub, Danny Welbeck**\
 `Danny Welbeck's double at Chelsea took him to fourth in the list of goalscoring substitutes in the Premier League`\
 https://nytimes.com/athletic/6668199/2025/09/28/danny-welbeck-brighton-chelsea-premier-league/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6661525/2025/09/28/cyrstal-palace-liverpool-glasner
 **How to watch Astros at Angels: Time, TV, streaming for September 28**\
 `Find out how to watch the Houston Astros play the Los Angeles Angels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6669585/2025/09/28/astros-vs-angels-stream-how-to-watch-sept-28/
-
-**How to watch Dodgers at Mariners: Time, TV, streaming for September 28**\
-`Find out how to watch the Los Angeles Dodgers play the Seattle Mariners, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6669580/2025/09/28/dodgers-vs-mariners-stream-how-to-watch-sept-28/
-
-**How to watch Twins at Phillies: Time, TV, streaming for September 28**\
-`Find out how to watch the Minnesota Twins play the Philadelphia Phillies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6669573/2025/09/28/twins-vs-phillies-stream-how-to-watch-sept-28/
 
