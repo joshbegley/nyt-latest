@@ -1,3 +1,7 @@
+**Until Saturday: It happened again to Penn State and UGA**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6670106/2025/09/28/penn-state-oregon-college-football-results-until-saturday/
+
 **Mandel's Final Thoughts: Alabama, Oregon are rolling — and it's Groundhog Day for Penn State**\
 `Plus: Why is Alabama Kirby Smart's kryptonite, LSU's offensive struggles and Trinidad Chambliss and Ole Miss's path to the CFP. `\
 https://nytimes.com/athletic/6669691/2025/09/28/college-football-scores-results-week-5/
