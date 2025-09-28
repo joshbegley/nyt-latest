@@ -1,4 +1,8 @@
-**Blue Jays survive scramble with Yankees, win first AL East title since 2016**\
+**Colts WR Adonai Mitchell turns dazzling play into blunder with fumble through end zone**\
+`With the undefeated Indianapolis Colts trailing the Los Angeles Rams 13-10 early in the third quarter, second-year wide receiver Adonai Mitchell made a spectacular effort that appeared to give the Colts the lead with a touchdown.`\
+https://nytimes.com/athletic/6671296/2025/09/28/colts-adonai-mitchell-fumble-end-zone-rams/
+
+**Blue Jays survive scramble with Yankees, win first AL East title since 2015**\
 `Bo Bichette on division champion Blue Jays: "Everything this team has is what it takes to win a World Series"`\
 https://nytimes.com/athletic/6670231/2025/09/28/lue-jays-yankees-clinch-al-east/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6671218/2025/09/28/shohei-ohtani-55-home-runs-caree
 **How impressive was Jaxson Dart? Has Drake Maye arrived? Our NFL experts' Week 4 takeaways**\
 `The undefeated Eagles and Bucs played a thriller in Tampa Bay, and the seat could be getting awfully hot for one winless team's head coach.`\
 https://nytimes.com/athletic/6670660/2025/09/28/nfl-takeaways-week-4-scores-results/
-
-**Guardians overtake Tigers to win AL Central, a division they once trailed by 15 1/2 games**\
-`The two teams will meet again at Progressive Field in the Wild Card round on Tuesday. `\
-https://nytimes.com/athletic/6670884/2025/09/28/guardians-tigers-al-central-division/
 
