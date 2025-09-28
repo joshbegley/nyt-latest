@@ -1,3 +1,7 @@
+**World Cup win can be England's 'Lionesses moment' - 'We've got the ball rolling and we don't want it to stop'**\
+`The only way is up for English women's rugby after a world-record crowd at Twickenham witnessed them dismantle Canada`\
+https://nytimes.com/athletic/6668847/2025/09/28/england-womens-rugby-world-cup-win/
+
 **MLB playoff bracket watch: AL East, Central titles on the line in Game 162; clinching scenarios**\
 `Plus the Reds and Mets battle for the final NL wild-card spot on the last day of the regular season. `\
 https://nytimes.com/athletic/6669355/2025/09/28/mlb-playoffs-bracket-standings-matchups/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6669406/2025/09/28/calle-jarnkrok-maple-leafs-lineu
 **Red Wings stock watch: Who's rising, who's falling this preseason?**\
 `Checking in on which players' stock is up and which players' stock is down at the midway point of the preseason.`\
 https://nytimes.com/athletic/6668660/2025/09/28/red-wings-preseason-players-stock-watch/
-
-**Why the Mets are starting Sean Manaea in must-win game**\
-`Right-handed starter Jonah Tong is also available — along with the rest of the Mets’ bullpen.`\
-https://nytimes.com/athletic/6669662/2025/09/28/mets-sean-manea-mlb-playoffs/
 
