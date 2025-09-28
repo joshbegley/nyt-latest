@@ -10,7 +10,7 @@ https://nytimes.com/2025/09/28/arts/lola-young-collapse-cancellation.html
 `Find out how to watch the Minnesota Lynx play the Phoenix Mercury, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6670802/2025/09/28/lynx-vs-mercury-stream-how-to-watch-sept-28/
 
-**New York Giants WR Malik Nabers ruled out with leg injury vs. Chargers**\
+**New York Giants WR Malik Nabers believed to have torn ACL: Source**\
 `Receiver, injured while trying to catch a deep pass from Jaxson Dart, was helped onto a cart and driven off the field.`\
 https://nytimes.com/athletic/6670721/2025/09/28/malik-nabers-injury-new-york-giants-los-angeles-chargers/
 

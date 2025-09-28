@@ -1,3 +1,7 @@
+**New York Giants WR Malik Nabers believed to have torn ACL: Source**\
+`Receiver, injured while trying to catch a deep pass from Jaxson Dart, was helped onto a cart and driven off the field.`\
+https://nytimes.com/athletic/6670721/2025/09/28/malik-nabers-injury-new-york-giants-los-angeles-chargers/
+
 **Trump Again Focuses on Portland as an Avatar of the Left**\
 `President Trump has made Oregon’s largest city a frequent target of both his rhetoric and his policies. Many residents are rolling their eyes.`\
 https://nytimes.com/2025/09/28/us/portland-trump-ice-protests.html
