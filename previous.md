@@ -1,3 +1,7 @@
+**Eric Adams Suspends Re-Election Bid for Mayor of New York City**\
+`Mayor Eric Adams announced his exit from the mayoral race after his campaign faced repeated scandals and low polling numbers.`\
+https://nytimes.com/video/nyregion/100000010426689/nyc-mayor-adams-drops-out.html
+
 **An ocean away in Dublin, the Steelers defense finally arrives**\
 `In the first NFL game played in Ireland, Pittsburgh controlled the bulk of the game before hanging on to beat the Vikings.`\
 https://nytimes.com/athletic/6671173/2025/09/28/pittsburgh-steelers-win-vikings-dublin/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6671105/2025/09/28/mets-eliminated-postseason/
 **Yankees, Red Sox to rekindle rivalry in AL Wild-Card Series: First look**\
 `The once-fierce rivalry between the Yankees and Red Sox has cooled in recent years, but that could be about to change.`\
 https://nytimes.com/athletic/6671191/2025/09/28/yankees-redsox-wild-card-preview/
-
-**Dodgers, Reds bring strong rotations to Wild Card Series matchup: First look**\
-`It's Shohei Ohtani and the Dodgers taking on Elly De La Cruz and the Reds, who is perhaps the biggest X-factor in the series.`\
-https://nytimes.com/athletic/6670060/2025/09/28/dodgers-reds-wild-card-preview/
 

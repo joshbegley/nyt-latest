@@ -1,3 +1,7 @@
+**Eric Adams Suspends Re-Election Bid for Mayor of New York City**\
+`Mayor Eric Adams announced his exit from the mayoral race after his campaign faced repeated scandals and low polling numbers.`\
+https://nytimes.com/video/nyregion/100000010426689/nyc-mayor-adams-drops-out.html
+
 **An ocean away in Dublin, the Steelers defense finally arrives**\
 `In the first NFL game played in Ireland, Pittsburgh controlled the bulk of the game before hanging on to beat the Vikings.`\
 https://nytimes.com/athletic/6671173/2025/09/28/pittsburgh-steelers-win-vikings-dublin/
