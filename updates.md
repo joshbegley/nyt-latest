@@ -1,3 +1,7 @@
+**Injuries Reported in Shooting at Mormon Church in Michigan**\
+`The police said that multiple people had been injured in a shooting at a church in Grand Blanc, Mich., southwest of Flint. The building was on fire, the authorities said`\
+https://nytimes.com/2025/09/28/us/grand-blanc-shooting-fire-mormon-church.html
+
 **Fred Queller, Lawyer in a Notable Domestic Violence Case, Dies at 93**\
 `His client was 6 years old when her father savagely beat her during a visitation. Her mother had warned police that he was dangerous, but they ignored her.`\
 https://nytimes.com/2025/09/28/nyregion/fred-queller-dead.html

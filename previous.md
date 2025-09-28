@@ -1,3 +1,7 @@
+**Injuries Reported in Shooting at Mormon Church in Michigan**\
+`The police said that multiple people had been injured in a shooting at a church in Grand Blanc, Mich., southwest of Flint. The building was on fire, the authorities said`\
+https://nytimes.com/2025/09/28/us/grand-blanc-shooting-fire-mormon-church.html
+
 **Fred Queller, Lawyer in a Notable Domestic Violence Case, Dies at 93**\
 `His client was 6 years old when her father savagely beat her during a visitation. Her mother had warned police that he was dangerous, but they ignored her.`\
 https://nytimes.com/2025/09/28/nyregion/fred-queller-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6669729/2025/09/28/astros-playoff-streak-over/
 **Marc Maron and Other Comedians Rebuke Peers in Saudi Festival**\
 `The state-sponsored Riyadh Comedy Festival will feature Dave Chappelle, Pete Davidson and other top acts. Human Rights Watch says the event aims to obscure the country’s abuses.`\
 https://nytimes.com/2025/09/28/arts/marc-maron-shane-gillis-riyadh-comedy-festival.html
-
-**What did Ohio State prove at Washington? Its repeat hopes are real**\
-`Yes, the Buckeyes started slow in Saturday's 24-6 win at Washington, but QB Julian Sayin and the defense showed the potential for a repeat.`\
-https://nytimes.com/athletic/6670104/2025/09/28/ohio-state-washington-julian-sayin-college-football-playoff/
 

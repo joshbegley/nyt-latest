@@ -1,5 +1,5 @@
 **Injuries Reported in Shooting at Mormon Church in Michigan**\
-`The police said that multiple people had been injured in a shooting at a church in Grand Blanc, Mich., southwest of Flint. The building was on fire, the authorities said`\
+`The police said that multiple people had been injured in a shooting at a church in Grand Blanc Township, Mich., southwest of Flint. The building was on fire, the authorities said`\
 https://nytimes.com/2025/09/28/us/grand-blanc-shooting-fire-mormon-church.html
 
 **Fred Queller, Lawyer in a Notable Domestic Violence Case, Dies at 93**\
@@ -33,8 +33,4 @@ https://nytimes.com/2025/09/28/dining/baked-fish-with-olives-and-ginger-ina-gart
 **Astros' playoff streak is over, but is their championship window closing too?**\
 `Is Houston's depth good enough to compensate for an aging core and a bloated payroll?`\
 https://nytimes.com/athletic/6669729/2025/09/28/astros-playoff-streak-over/
-
-**Marc Maron and Other Comedians Rebuke Peers in Saudi Festival**\
-`The state-sponsored Riyadh Comedy Festival will feature Dave Chappelle, Pete Davidson and other top acts. Human Rights Watch says the event aims to obscure the country’s abuses.`\
-https://nytimes.com/2025/09/28/arts/marc-maron-shane-gillis-riyadh-comedy-festival.html
 
