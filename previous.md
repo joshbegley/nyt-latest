@@ -1,3 +1,15 @@
+**Tracking Tropical Storm Imelda**\
+`See the likely path and wind arrival times for Imelda`\
+https://nytimes.com/interactive/2025/weather/imelda-map-path-tracker.html
+
+**How good is the Arkansas job? Analyzing the SEC's first coaching change**\
+`Arkansas will be behind most of its SEC peers, including ones that could change coaches in this cycle. But winning is still possible here.`\
+https://nytimes.com/athletic/6670570/2025/09/28/arkansas-football-coaching-search-job-grade/
+
+**Athletics to wear gold 'Sacramento' alternate jerseys next season**\
+`After a season with the lowest attendance in the league, the Athletics will show their interim home some recognition.`\
+https://nytimes.com/athletic/6670490/2025/09/28/athletics-to-wear-sacramento-alternate-jerseys-next-season/
+
 **Steelers vs. Vikings: Pittsburgh holds off Minnesota's comeback attempt**\
 `Minnesota cut Pittsburgh's lead to three with two fourth-quarter touchdowns`\
 https://nytimes.com/athletic/6670475/2025/09/28/vikings-steelers-score-nfl/
@@ -23,18 +35,6 @@ https://nytimes.com/video/us/100000010426309/michigan-grand-blanc-fire.html
 https://nytimes.com/athletic/6647515/2025/09/28/razorbacks-sam-pittman-fired-bobby-petrino/
 
 **Free agent Al Horford agrees to sign with Warriors: Source**\
-`Horford, 39, spent the last four seasons with Boston. He has averaged 12.9 points and 7.9 rebounds per game in 18 seasons.`\
+`Horford, 39, chooses Warriors after considering the Lakers, Nuggets, other suitors and even retirement.`\
 https://nytimes.com/athletic/6470227/2025/09/28/al-horford-warriors-nba-free-agency-2025/
-
-**Grealish on partying while at Man City: 'I didn't help myself at times'**\
-`Grealish said he enjoys partying, but added "there's a time and a place to do that in my career," and that he did not find that balance.`\
-https://nytimes.com/athletic/6670491/2025/09/28/jack-grealish-everton-manchester-city-partying/
-
-**Eric Adams Abandons Re-election Bid for Mayor of New York City**\
-`Mayor Adams’s campaign was left foundering after repeated scandals, a federal indictment and his courtship of President Trump.`\
-https://nytimes.com/2025/09/28/nyregion/adams-mayor-drops-out.html
-
-**Viv Prince, Rock’s Original Madman Drummer, Is Dead at 84**\
-`A drummer for the 1960s British band the Pretty Things, “the high priest of lunacy” set a high bar for fiery performances and offstage misbehavior.`\
-https://nytimes.com/2025/09/28/arts/music/viv-prince-dead.html
 

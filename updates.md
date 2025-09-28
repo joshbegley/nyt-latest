@@ -1,3 +1,19 @@
+**Tracking Tropical Storm Imelda**\
+`See the likely path and wind arrival times for Imelda`\
+https://nytimes.com/interactive/2025/weather/imelda-map-path-tracker.html
+
+**How good is the Arkansas job? Analyzing the SEC's first coaching change**\
+`Arkansas will be behind most of its SEC peers, including ones that could change coaches in this cycle. But winning is still possible here.`\
+https://nytimes.com/athletic/6670570/2025/09/28/arkansas-football-coaching-search-job-grade/
+
+**Athletics to wear gold 'Sacramento' alternate jerseys next season**\
+`After a season with the lowest attendance in the league, the Athletics will show their interim home some recognition.`\
+https://nytimes.com/athletic/6670490/2025/09/28/athletics-to-wear-sacramento-alternate-jerseys-next-season/
+
+**Free agent Al Horford agrees to sign with Warriors: Source**\
+`Horford, 39, chooses Warriors after considering the Lakers, Nuggets, other suitors and even retirement.`\
+https://nytimes.com/athletic/6470227/2025/09/28/al-horford-warriors-nba-free-agency-2025/
+
 **Steelers vs. Vikings: Pittsburgh holds off Minnesota's comeback attempt**\
 `Minnesota cut Pittsburgh's lead to three with two fourth-quarter touchdowns`\
 https://nytimes.com/athletic/6670475/2025/09/28/vikings-steelers-score-nfl/
