@@ -1,3 +1,15 @@
+**New York Giants WR Malik Nabers exits with leg injury vs. Chargers**\
+`Receiver, injured while trying to catch a deep pass from Jaxson Dart, was helped onto a cart and driven off the field.`\
+https://nytimes.com/athletic/6670721/2025/09/28/malik-nabers-injury-new-york-giants-los-angeles-chargers/
+
+**Abrego Garcia Moved to Detention Center in Pennsylvania**\
+`Kilmar Armando Abrego Garcia, the man sent to El Salvador in violation of a court order, was transferred from an immigration facility in Virginia, his lawyers said Friday.`\
+https://nytimes.com/2025/09/28/us/politics/abrego-garcia-detention-center-pennsylvania.html
+
+**AP Top 25: Ole Miss vaults to No. 4 amid big poll reshuffle**\
+`Ohio State, Oregon, Miami, Ole Miss and Oklahoma make up the top five of the latest AP Top 25 college football rankings after Week 5.`\
+https://nytimes.com/athletic/6670569/2025/09/28/ap-top-25-rankings-ole-miss-oregon/
+
 **Tracking Tropical Storm Imelda**\
 `See the likely path and wind arrival times for Imelda`\
 https://nytimes.com/interactive/2025/weather/imelda-map-path-tracker.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6670382/2025/09/28/maple-leafs-anthony-stolarz-exte
 **Newcastle 1 Arsenal 2: Gabriel's redemption? Livramento blow? Calafiori towel incident?**\
 `Arsenal managed a dramatic 2-1 win against Newcastle United on Sunday afternoon`\
 https://nytimes.com/athletic/6670447/2025/09/28/newcastle-arsenal-result-report-analysis/
-
-**Mormon Church on Fire in Michigan After Reported Shooting**\
-`Emergency crews were responding to a reported shooting and fire at a Mormon church in Grand Blanc Township, Mich.`\
-https://nytimes.com/video/us/100000010426309/michigan-grand-blanc-fire.html
-
-**Arkansas fires Pittman, names Petrino interim coach after loss to Notre Dame**\
-`Pittman, who went 32-34 with the Razorbacks, has one of the most unique buyouts in college football.`\
-https://nytimes.com/athletic/6647515/2025/09/28/razorbacks-sam-pittman-fired-bobby-petrino/
-
-**Free agent Al Horford agrees to sign with Warriors: Source**\
-`Horford, 39, chooses Warriors after considering the Lakers, Nuggets, other suitors and even retirement.`\
-https://nytimes.com/athletic/6470227/2025/09/28/al-horford-warriors-nba-free-agency-2025/
 
