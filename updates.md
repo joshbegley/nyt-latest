@@ -1,3 +1,7 @@
+**Live Updates: 1 Dead, 9 Wounded in Shooting at Mormon Church in Michigan**\
+`More victims may still be inside, the police said, after a gunman attacked and set fire to the church in Grand Blanc Township, Mich., southwest of Flint. The gunman also is deceased.`\
+https://nytimes.com/live/2025/09/28/us/grand-blanc-shooting-church-michigan
+
 **Mormon Church on Fire in Michigan After Reported Shooting**\
 `Emergency crews were responding to a reported shooting and fire at a Mormon church in Grand Blanc Township, Mich.`\
 https://nytimes.com/video/us/100000010426309/michigan-grand-blanc-fire.html
