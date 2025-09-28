@@ -1,3 +1,7 @@
+**Ryder Cup MC reportedly steps down after appearing to engage in chant aimed at Rory McIlroy**\
+`Online video footage appeared to show comedian and actress Heather McMahan saying “f**k you Rory” into a microphone before play began.`\
+https://nytimes.com/athletic/6669847/2025/09/28/ryder-cup-rory-mcilroy-heather-mcmahan/
+
 **The New York Times International Edition in Print for Monday, Sep. 29, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/09/28/todays-new-york-times-international-edition
