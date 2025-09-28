@@ -1,3 +1,11 @@
+**How to watch Diamondbacks at Padres: Time, TV, streaming for September 28**\
+`Find out how to watch the Arizona Diamondbacks play the San Diego Padres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6669870/2025/09/28/diamondbacks-vs-padres-stream-how-to-watch-sept-28/
+
+**Russia Hammers Kyiv in 12-Hour Drone Assault**\
+`At least four people were killed in the attack, which also wounded dozens of civilians in the capital and around country.`\
+https://nytimes.com/2025/09/28/world/europe/ukraine-kyiv-russia-strikes.html
+
 **Let’s Talk About the Rapture**\
 `It wasn’t just a weird, viral blip — experts say it was actually a sign of a culture in distress.`\
 https://nytimes.com/2025/09/28/briefing/lets-talk-about-the-rapture.html
