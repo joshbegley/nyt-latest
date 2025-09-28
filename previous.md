@@ -1,3 +1,7 @@
+**Q&A: Our New Global Newsletter Host on Creating ‘an Antidote to the Overwhelm’**\
+`Katrin Bennhold is the host of The World, a New York Times newsletter for readers around the globe. It launches this week.`\
+https://nytimes.com/2025/09/28/world/new-newsletter-host-qanda.html
+
 **Afghanistan Frees a U.S. Citizen Held in Prison**\
 `The move comes as the country seeks to break the international isolation it has faced since the Taliban seized power in 2021.`\
 https://nytimes.com/2025/09/28/world/asia/afghanistan-us-prisoner-freed.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/28/us/portland-trump-ice-protests.html
 **Lola Young Cancels a Second Show After Collapsing Onstage**\
 `The British pop star, who has acknowledged mental health issues, fell backward during a performance Saturday. She has canceled shows in New Jersey and Maryland.`\
 https://nytimes.com/2025/09/28/arts/music/lola-young-collapse-cancellation.html
-
-**How to watch Lynx at Mercury: Game 4 Time, TV, streaming**\
-`Find out how to watch the Minnesota Lynx play the Phoenix Mercury, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6670802/2025/09/28/lynx-vs-mercury-stream-how-to-watch-sept-28/
 
