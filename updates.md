@@ -1,3 +1,19 @@
+**Blue Jackets Sunday Gathering: What must Luca Del Bel Belluz do to do to stick in the NHL?**\
+`Plus, the latest on the Blue Jackets' goalie situation, and five questions with Damon Severson.`\
+https://nytimes.com/athletic/6667848/2025/09/28/blue-jackets-roster-del-bel-belluz/
+
+**Penix sparkles with career-best 313 yards to lead Falcons past Commanders**\
+`A week after an embarrassing loss, Penix had perhaps the best game of his young career as Atlanta improved to 2-2.`\
+https://nytimes.com/athletic/6670863/2025/09/28/falcons-commanders-michael-penix-jr-sparkles-in-atlantas-victory-plus-5-takeaways/
+
+**Saquon Barkley scores TD on fake tush push as Eagles flex variations of the play**\
+`The Eagles lined up as if they were going with their patented tush push, but instead handed off to Barkley for an easy touchdown.`\
+https://nytimes.com/athletic/6670908/2025/09/28/eagles-fake-tush-push-saquon-barkley-buccaneers/
+
+**Q&A: Our New Global Newsletter Host on Creating an ‘Antidote to the Overwhelm’**\
+`Katrin Bennhold is the host of The World, a New York Times newsletter for readers around the globe. It launches this week.`\
+https://nytimes.com/2025/09/28/world/new-newsletter-host-qanda.html
+
 **Willy Adames becomes first Giant to hit 30 home runs since Barry Bonds in 2004**\
 `San Francisco's shortstop ended the team's 30-homer drought by driving the first pitch he saw over the center-field wall.`\
 https://nytimes.com/athletic/6670864/2025/09/28/sf-giants-willy-adames-30-home-runs-barry-bonds/
