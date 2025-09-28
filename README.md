@@ -1,3 +1,7 @@
+**Marc Maron and Other Comedians Rebuke Peers in Saudi Festival**\
+`The state-sponsored Riyadh Comedy Festival will feature Dave Chappelle, Pete Davidson and other top acts. Human Rights Watch says the event aims to obscure the country’s abuses.`\
+https://nytimes.com/2025/09/28/arts/marc-maron-shane-gillis-riyadh-comedy-festival.html
+
 **What did Ohio State prove at Washington? Its repeat hopes are real**\
 `Yes, the Buckeyes started slow in Saturday's 24-6 win at Washington, but QB Julian Sayin and the defense showed the potential for a repeat.`\
 https://nytimes.com/athletic/6670104/2025/09/28/ohio-state-washington-julian-sayin-college-football-playoff/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6669324/2025/09/28/nfl-draft-2026-simpson-allar-jer
 **A.I. in School: What It Can and Can’t Do**\
 `Readers discuss artificial intelligence and the roles of students and parents. Also: Infants and screens; prizes for the president.`\
 https://nytimes.com/2025/09/28/opinion/ai-school.html
-
-**How to watch Aces at Fever: Game 4 Time, TV, streaming**\
-`Find out how to watch the Las Vegas Aces play the Indiana Fever, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6670126/2025/09/28/aces-vs-fever-stream-how-to-watch-sept-28/
 
