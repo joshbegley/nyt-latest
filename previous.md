@@ -1,3 +1,7 @@
+**Willy Adames becomes first Giant to hit 30 home runs since Barry Bonds in 2004**\
+`San Francisco's shortstop ended the team's 30-homer drought by driving the first pitch he saw over the center-field wall.`\
+https://nytimes.com/athletic/6670864/2025/09/28/sf-giants-willy-adames-30-home-runs-barry-bonds/
+
 **Q&A: Our New Global Newsletter Host on Creating ‘an Antidote to the Overwhelm’**\
 `Katrin Bennhold is the host of The World, a New York Times newsletter for readers around the globe. It launches this week.`\
 https://nytimes.com/2025/09/28/world/new-newsletter-host-qanda.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/09/28/books/blackberry-poems.html
 **Trump Again Focuses on Portland as an Avatar of the Left**\
 `President Trump has made Oregon’s largest city a frequent target of both his rhetoric and his policies. Many residents are rolling their eyes.`\
 https://nytimes.com/2025/09/28/us/portland-trump-ice-protests.html
-
-**Lola Young Cancels a Second Show After Collapsing Onstage**\
-`The British pop star, who has acknowledged mental health issues, fell backward during a performance Saturday. She has canceled shows in New Jersey and Maryland.`\
-https://nytimes.com/2025/09/28/arts/music/lola-young-collapse-cancellation.html
 
