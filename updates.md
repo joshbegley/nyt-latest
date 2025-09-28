@@ -1,3 +1,7 @@
+**Kalen DeBoer gets the win Alabama needed — and sidesteps possible disaster**\
+`On the brink of falling to 2-2 in September, Kalen DeBoer and Alabama hold off Georgia for a crucial win.`\
+https://nytimes.com/athletic/6669705/2025/09/28/kalen-deboer-alabama-georgia-win/
+
 **The New York Times in Print for Sunday, Sep. 28, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/28/todays-new-york-times
