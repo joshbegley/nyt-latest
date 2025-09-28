@@ -1,3 +1,7 @@
+**Cubs' Cade Horton on broken rib that will keep him out: 'It was just a perfect storm'**\
+`Horton left Tuesday’s start after three innings with what was described at the time as back tightness.`\
+https://nytimes.com/athletic/6671154/2025/09/28/chicago-cubs-cade-horton-injury-discussion/
+
 **Europe wins Ryder Cup after a torrid United States attempted comeback**\
 `Shane Lowry clinched the winning point after the Americans made the Ryder Cup close.`\
 https://nytimes.com/athletic/6670877/2025/09/28/europe-wins-ryder-cup-bethpage/

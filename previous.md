@@ -1,3 +1,7 @@
+**Cubs' Cade Horton on broken rib that will keep him out: 'It was just a perfect storm'**\
+`Horton left Tuesday’s start after three innings with what was described at the time as back tightness.`\
+https://nytimes.com/athletic/6671154/2025/09/28/chicago-cubs-cade-horton-injury-discussion/
+
 **Europe wins Ryder Cup after a torrid United States attempted comeback**\
 `Shane Lowry clinched the winning point after the Americans made the Ryder Cup close.`\
 https://nytimes.com/athletic/6670877/2025/09/28/europe-wins-ryder-cup-bethpage/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6670914/2025/09/28/saints-bills-josh-allen-score-ta
 **Pulisic stars with goal and brilliant assist as Milan beat Napoli to go top of Serie A**\
 `The USMNT forward starred for Milan in their Serie A victory over Napoli on Sunday.`\
 https://nytimes.com/athletic/6671003/2025/09/28/christian-pulisic-milan-usmnt-goal/
-
-**Giants-Chargers: Dart guides N.Y. to first win; Malik Nabers, Joe Alt hurt**\
-`The Giants' pass rush kept Justin Herbert on the run as the sloppy Chargers endured their first loss.`\
-https://nytimes.com/athletic/6670537/2025/09/28/giants-chargers-takeaways-result-jaxson-dart/
 
