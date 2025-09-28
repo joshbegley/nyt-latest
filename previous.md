@@ -1,5 +1,5 @@
 **Mandel's Final Thoughts: Alabama, Oregon are rolling — and it's Groundhog Day for Penn State**\
-`Plus: Why is Alabama's Kirby Smart's kryptonite? LSU's offensive struggles and Trinidad Chambliss and Ole Miss's path to the CFP. `\
+`Plus: Why is Alabama Kirby Smart's kryptonite, LSU's offensive struggles and Trinidad Chambliss and Ole Miss's path to the CFP. `\
 https://nytimes.com/athletic/6669691/2025/09/28/college-football-scores-results-week-5/
 
 **Oilers roster analysis: How should the forward lineup look on opening night?**\
