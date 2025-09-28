@@ -1,3 +1,7 @@
+**Nigerian striker Gift Monday scores fastest NWSL hat trick, helping Spirit clinch playoff spot**\
+`Monday's first hat trick with the Spirit was a crucial one for the player and team`\
+https://nytimes.com/athletic/6671377/2025/09/28/nigerian-striker-gift-monday-hat-trick-spirit-nwsl-playoffs/
+
 **At Least 2 Dead After a Shooter Attacked a Mormon Church**\
 `A man crashed his vehicle into a Michigan church on Sunday morning and then opened fire, investigators said.`\
 https://nytimes.com/video/us/100000010426647/michigan-fire-church-shooting.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6671471/2025/09/28/lamar-jackson-ravens-hamstring-c
 **Eric Adams Suspends Re-Election Bid for Mayor of New York City**\
 `Mayor Eric Adams announced his exit from the mayoral race after his campaign faced repeated scandals and low polling numbers.`\
 https://nytimes.com/video/nyregion/100000010426689/nyc-mayor-adams-drops-out.html
-
-**An ocean away in Dublin, the Steelers defense finally arrives**\
-`In the first NFL game played in Ireland, Pittsburgh controlled the bulk of the game before hanging on to beat the Minnesota Vikings.`\
-https://nytimes.com/athletic/6671173/2025/09/28/pittsburgh-steelers-win-vikings-dublin/
 
