@@ -1,5 +1,9 @@
-**A hat swap, a division race and one game to decide the American League East**\
-`Jeff Hoffman sparked an unexpected hat swap. Since then, the Jays won three straight and now face one game for the division.`\
+**In biggest game of the season, Clay Holmes delivers for Mets**\
+`"Picture perfect," Pete Alonso said of Holmes. "That's the exact outing we needed."`\
+https://nytimes.com/athletic/6669119/2025/09/27/mets-clay-holmes-nl-playoff-race/
+
+**A hat swap, a division race and 1 game to decide the American League East**\
+`Jeff Hoffman sparked an unexpected hat swap. Since then, the Jays won three straight and now face one game for the division title.`\
 https://nytimes.com/athletic/6669094/2025/09/27/blue-jays-american-league-east-division-race/
 
 **Scottie Scheffler has a Ryder Cup problem**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6668721/2025/09/27/nl-wild-card-playoff-race-takeaw
 **Giuliani and Dominion Voting Systems Settle $1.3 Billion Defamation Suit**\
 `The election technology company Dominion Voting Systems had accused Rudolph W. Giuliani of waging “a viral disinformation campaign” over the 2020 election.`\
 https://nytimes.com/2025/09/27/us/politics/rudy-giuliani-dominion-case-settlement.html
-
-**Des Moines Schools Superintendent Arrested By ICE Is Placed on Leave**\
-`School Board members in Iowa’s capital made the decision one day after immigration officials accused the superintendent, Ian Roberts, of being in the country illegally.`\
-https://nytimes.com/2025/09/27/us/des-moines-schools-superintendent-ice-leave.html
 

@@ -1,3 +1,11 @@
+**A hat swap, a division race and one game to decide the American League East**\
+`Jeff Hoffman sparked an unexpected hat swap. Since then, the Jays won three straight and now face one game for the division.`\
+https://nytimes.com/athletic/6669094/2025/09/27/blue-jays-american-league-east-division-race/
+
+**Notre Dame's season feels possible again, thanks to CJ Carr**\
+`The quarterback can take the Fighting Irish from very good to potentially great. It showed Saturday in Notre Dame's 56-13 win over Arkansas.`\
+https://nytimes.com/athletic/6668960/2025/09/27/notre-dame-arkansas-cj-carr/
+
 **Scottie Scheffler has a Ryder Cup problem**\
 `Since Scheffler became an undisputed world No. 1 and a linchpin he’s 0-6-2 in the Ryder Cup.`\
 https://nytimes.com/athletic/6669034/2025/09/27/scottie-scheffler-ryder-cup-struggle/
