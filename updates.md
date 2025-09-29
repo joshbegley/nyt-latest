@@ -1,3 +1,11 @@
+**Resilient Guardians head into MLB postseason riding high: 'We'll go shock them'**\
+`Cleveland's playoff journey begins Tuesday afternoon against Tarik Skubal and the Detroit Tigers in a best-of-three matchup. `\
+https://nytimes.com/athletic/6672039/2025/09/28/cleveland-guardians-mlb-postseason-berth-celebration/
+
+**Liam Coen and Robert Saleh exchange words after Jaguars beat 49ers**\
+`Saleh, the 49ers defensive coordinator, said during the week that the Jaguars have “a really advanced signal-stealing type of system."`\
+https://nytimes.com/athletic/6672094/2025/09/28/jaguars-49ers-liam-coen-robert-saleh-sign-stealing/
+
 **Trump Raises Possibility of Inquiry Into Another Former F.B.I. Director**\
 `In a phone interview with NBC, Mr. Trump said an investigation of Christopher Wray could be underway, days after the Justice Department’s indictment of James B. Comey.`\
 https://nytimes.com/2025/09/28/us/politics/trump-wray-fbi.html

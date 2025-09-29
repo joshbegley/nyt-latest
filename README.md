@@ -1,3 +1,7 @@
+**Bad Bunny to perform Super Bowl LX halftime show**\
+`After rumors that Taylor Swift could perform at halftime, instead it's three-time Grammy winner and "Happy Gilmore 2" actor Bad Bunny.`\
+https://nytimes.com/athletic/6671870/2025/09/28/bad-bunny-super-bowl-halftime-show/
+
 **Resilient Guardians head into MLB postseason riding high: 'We'll go shock them'**\
 `Cleveland's playoff journey begins Tuesday afternoon against Tarik Skubal and the Detroit Tigers in a best-of-three matchup. `\
 https://nytimes.com/athletic/6672039/2025/09/28/cleveland-guardians-mlb-postseason-berth-celebration/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6671737/2025/09/28/jaxson-dart-giants-brian-daboll-
 **Ambitious Padres out to write 'new story' after another 90-win regular season**\
 `San Diego looks to build on its success when it faces the Cubs in the National League Wild Card Series.`\
 https://nytimes.com/athletic/6671867/2025/09/28/padres-90-win-regular-season-playoffs/
-
-**How the Commanders' defense was dismantled by the Falcons**\
-`Poor tackling, explosive plays and slow starts have left Washington's defense looking overwhelmed in multiple games this season.`\
-https://nytimes.com/athletic/6671419/2025/09/28/commanders-defense-falcons-michael-penix-bijan-robinson/
 
