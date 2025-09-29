@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6671608/2025/09/28/phillies-playoffs-trea-turner-ky
 https://nytimes.com/athletic/6671413/2025/09/28/st-louis-cardinals-season-ends-kyle-leahy-new-role/
 
 **Yankees' Aaron Judge wins American League batting title**\
-`Judge finished the regular season with a .331 batting average.`\
+`Winning his first AL batting title after finishing with a .331 average was meaningful for the two-time MVP winner.`\
 https://nytimes.com/athletic/6671586/2025/09/28/yankees-aaron-judge-american-league-batting-title/
 
 **Dodgers give Clayton Kershaw proper send-off, look to Reds postseason test**\
