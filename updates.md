@@ -1,3 +1,11 @@
+**Democrats Are Trying the Costanza Strategy**\
+`Democrats need a new plan for 2028, argues the Opinion columnist Carlos Lozada in this round table from “The Opinions.”`\
+https://nytimes.com/video/opinion/100000010423773/democrats-are-trying-the-costanza-strategy.html
+
+**Kamala Harris 2028?**\
+`Harris’s book reveals why she should not be the Democratic presidential nominee in 2028, according to Lydia Polgreen in this week’s round table from “The Opinions.”`\
+https://nytimes.com/video/opinion/100000010423770/kamala-harris-2028.html
+
 **Tony Blair Emerges as Potential Figure in Postwar Gaza**\
 `For the former British prime minister, the Middle East is one of the most consistent, if contentious, chapters in a busy post-Downing Street career.`\
 https://nytimes.com/2025/09/29/world/middleeast/tony-blair-gaza.html

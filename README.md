@@ -1,3 +1,11 @@
+**Giants fire manager Bob Melvin**\
+`The Giants fired Melvin after two seasons as the team's skipper. He went 161-163 and missed the playoffs both seasons.`\
+https://nytimes.com/athletic/6673694/2025/09/29/giants-bob-melvin-manager-fired/
+
+**The Future of New York**\
+`A series on what we can expect over the coming decades, and beyond, for the city.`\
+https://nytimes.com/spotlight/futureNYC
+
 **Democrats Are Trying the Costanza Strategy**\
 `Democrats need a new plan for 2028, argues the Opinion columnist Carlos Lozada in this round table from “The Opinions.”`\
 https://nytimes.com/video/opinion/100000010423773/democrats-are-trying-the-costanza-strategy.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/29/nyregion/eric-adams-black-voters.html
 **A Low-Cost Icelandic Airline Suddenly Folds, Leaving Passengers Stranded**\
 `Play Airlines said it was ceasing operations, becoming the second low-cost airline in Iceland to collapse in the last six years.`\
 https://nytimes.com/2025/09/29/business/play-airline-iceland-shut-down.html
-
-**President Trump responds to Europe's Ryder Cup celebratory chant**\
-`Trump's remarks come after McIlroy's comments Sunday, when he said the abuse from fans at the Ryder Cup 'got to me a few times.'`\
-https://nytimes.com/athletic/6673164/2025/09/29/donald-trump-europe-ryder-cup-truth-social/
-
-**Bruce Springsteen: America Is Not a Land of ‘Government Censorship’**\
-`Bruce Springsteen reflected on the state of America at the premiere of his new biopic, “Springsteen: Deliver Me From Nowhere,” at the New York Film Festival. He then performed “Land of Hope and Dreams.”`\
-https://nytimes.com/video/us/100000010427370/bruce-springsteen-film-america.html
 
