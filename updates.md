@@ -1,3 +1,15 @@
+**Mets offseason takeaways: David Stearns' primary focus will be run prevention**\
+`Stearns took a healthy share of the blame for a disappointing season. “I'm the architect of the team. I'm responsible for it,” he said.`\
+https://nytimes.com/athletic/6674608/2025/09/29/mets-david-stearns-offseason-focus/
+
+**WNBA fines Lynx coach Cheryl Reeve $15,000 for Game 3 ejection, suspension**\
+`Two more coaches, Stephanie White and Becky Hammon, also landed fines of $1,000 after they expressed support for Reeve’s viewpoint.`\
+https://nytimes.com/athletic/6674695/2025/09/29/lynx-cheryl-reeve-fine-suspension-stephanie-white-becky-hammon-wnba-playoffs/
+
+**Fantasy football studs and duds who might flip the script going forward**\
+`KC Joyner looks at whether early season trends can continue for some of fantasy's most impactful players.`\
+https://nytimes.com/athletic/6672724/2025/09/29/fantasy-football-studs-duds-emeka-egbuka-aj-brown/
+
 **Full Time: USWNT’s impact players in France**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6674377/2025/09/29/uswnt-lyon-psg-full-time/
