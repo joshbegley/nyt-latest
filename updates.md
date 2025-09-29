@@ -1,3 +1,11 @@
+**How the Mets lost their groove: Inside baseball's biggest collapse**\
+`Talented, yes, but this year's Mets lacked sizzle. They were MLB's only team never to mount a ninth-inning comeback.`\
+https://nytimes.com/athletic/6672509/2025/09/29/mets-mlb-collapse-mendoza-soto-lindor/
+
+**58 Million Pounds of Corn Dogs Are Recalled Because of Wood in the Batter**\
+`Hillshire Brands voluntarily recalled the products after at least five people reported injuries because of pieces of wood in the products’ batter.`\
+https://nytimes.com/2025/09/29/business/corn-dog-recall.html
+
 **For Jerry Jones, that bonkers tie wasn't vindication, but it could have been worse**\
 `The Cowboys' owner wanted vindication with Micah Parsons back in town. Instead, he got one of the wildest results of this NFL season.`\
 https://nytimes.com/athletic/6672854/2025/09/29/jerry-jones-micah-parsons-cowboys-packers-tie/

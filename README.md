@@ -1,3 +1,7 @@
+**Why the Baltimore Ravens' rough 1-3 start will not hurt NFL TV viewership**\
+`The NFL front-loaded the Ravens' schedule with challenging, made-for-TV opponents to help the league get off to a fast start with ratings.`\
+https://nytimes.com/athletic/6671904/2025/09/29/baltimore-ravens-nfl-tv-ratings/
+
 **How the Mets lost their groove: Inside baseball's biggest collapse**\
 `Talented, yes, but this year's Mets lacked sizzle. They were MLB's only team never to mount a ninth-inning comeback.`\
 https://nytimes.com/athletic/6672509/2025/09/29/mets-mlb-collapse-mendoza-soto-lindor/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6672242/2025/09/29/ravens-loss-chiefs-lamar-jackson
 **The Seahawks' biggest flaw, even at 3-1, is what was supposed to be their strength**\
 `Much has gone right during Seattle's hot start, but a central part of its identity — the run game — has yet to click. How can it be fixed?`\
 https://nytimes.com/athletic/6671123/2025/09/29/seahawks-run-game-offensive-line/
-
-**Message board Monday: What Penn State fans said about James Franklin and Drew Allar on a night of judgement**\
-`Penn State finds themselves in a familiar spot in the James Franklin era after falling to Oregon. How did fans react to the game?`\
-https://nytimes.com/athletic/6671210/2025/09/29/message-board-monday-penn-state-james-franklin/
 

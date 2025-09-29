@@ -1,3 +1,11 @@
+**How the Mets lost their groove: Inside baseball's biggest collapse**\
+`Talented, yes, but this year's Mets lacked sizzle. They were MLB's only team never to mount a ninth-inning comeback.`\
+https://nytimes.com/athletic/6672509/2025/09/29/mets-mlb-collapse-mendoza-soto-lindor/
+
+**58 Million Pounds of Corn Dogs Are Recalled Because of Wood in the Batter**\
+`Hillshire Brands voluntarily recalled the products after at least five people reported injuries because of pieces of wood in the products’ batter.`\
+https://nytimes.com/2025/09/29/business/corn-dog-recall.html
+
 **For Jerry Jones, that bonkers tie wasn't vindication, but it could have been worse**\
 `The Cowboys' owner wanted vindication with Micah Parsons back in town. Instead, he got one of the wildest results of this NFL season.`\
 https://nytimes.com/athletic/6672854/2025/09/29/jerry-jones-micah-parsons-cowboys-packers-tie/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6671123/2025/09/29/seahawks-run-game-offensive-line
 **Message board Monday: What Penn State fans said about James Franklin and Drew Allar on a night of judgement**\
 `Penn State finds themselves in a familiar spot in the James Franklin era after falling to Oregon. How did fans react to the game?`\
 https://nytimes.com/athletic/6671210/2025/09/29/message-board-monday-penn-state-james-franklin/
-
-**Why Mika Zibanejad, the new longest-tenured Ranger, is on an upswing**\
-`With a new coach, a promising summer and chemistry with new captain J.T. Miller, Zibanejad could be key to a Rangers resurgence.`\
-https://nytimes.com/athletic/6670829/2025/09/29/rangers-mika-zibanejad-miller-sullivan/
-
-**Red Sox may lean lefty in ’pen and other roster matters ahead of wild-card series**\
-`A look at the lineup the Red Sox could send out in Game 1 against Yankees lefty Max Fried, and why Brayan Bello lines up for Game 2.`\
-https://nytimes.com/athletic/6672432/2025/09/29/red-sox-roster-projection-yankees-wild-card/
 
