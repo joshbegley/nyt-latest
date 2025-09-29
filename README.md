@@ -1,4 +1,12 @@
-**'Unshakeable' Michael Penix rebounded and brought offense with him to topple Commanders**\
+**The Browns have shown, over and over, how bad they are offensively**\
+`With its lack of offensive explosion or cohesion, Cleveland is starting to feel like a hopeless team. `\
+https://nytimes.com/athletic/6671629/2025/09/28/browns-bad-offense-loss-lions/
+
+**How it all went wrong for the Twins and whether messy 2025 could cost Rocco Baldelli his job**\
+`Baldelli's status as manager is still an open question. What, exactly, turned the 2025 Twins into a train wreck is as well.`\
+https://nytimes.com/athletic/6671309/2025/09/28/minnesota-twins-rocco-baldelli-future-offseason/
+
+**'Unshakeable' Michael Penix rebounded, brought offense to topple Commanders**\
 `The second-year Atlanta quarterback had a career-high 313 passing yards as the Falcons held off the Commanders 34-27 on Sunday.`\
 https://nytimes.com/athletic/6671415/2025/09/28/michael-penix-falcons-commanders-nfl-week-4/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6671413/2025/09/28/st-louis-cardinals-season-ends-k
 **Yankees' Aaron Judge wins American League batting title**\
 `Winning his first AL batting title after finishing with a .331 average was meaningful for the two-time MVP winner.`\
 https://nytimes.com/athletic/6671586/2025/09/28/yankees-aaron-judge-american-league-batting-title/
-
-**Dodgers give Clayton Kershaw proper send-off, look to Reds postseason test**\
-`“This was perfect,” Kershaw said following a scoreless performance Sunday afternoon in a 6-1 win over the Mariners.`\
-https://nytimes.com/athletic/6671533/2025/09/28/dodgers-clayton-kershaw-reds-postseason/
-
-**Jaguars-49ers: San Francisco's pass rush struggles without Nick Bosa in loss**\
-`Trevor Lawrence wasn’t sacked at all Sunday and had plenty of time to throw in the 26-21 victory.`\
-https://nytimes.com/athletic/6671404/2025/09/28/jaguars-49ers-result-takeaways/
 

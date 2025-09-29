@@ -1,3 +1,7 @@
+**Yankees' Aaron Judge wins American League batting title**\
+`Winning his first AL batting title after finishing with a .331 average was meaningful for the two-time MVP winner.`\
+https://nytimes.com/athletic/6671586/2025/09/28/yankees-aaron-judge-american-league-batting-title/
+
 **'Unshakeable' Michael Penix rebounded and brought offense with him to topple Commanders**\
 `The second-year Atlanta quarterback had a career-high 313 passing yards as the Falcons held off the Commanders 34-27 on Sunday.`\
 https://nytimes.com/athletic/6671415/2025/09/28/michael-penix-falcons-commanders-nfl-week-4/
