@@ -1,3 +1,19 @@
+**Bad Bunny Will Headline Super Bowl Halftime Show**\
+`The Latin superstar known for hits including “MIA” and “Me Porto Benito” will perform in February in Santa Clara, Calif.`\
+https://nytimes.com/2025/09/28/arts/music/bad-bunny-super-bowl-halftime.html
+
+**Eagles offense has been great and putrid in recent wins — which one is real?**\
+`Jalen Hurts completed 15 of 16 pass attempts in the first half and had no completions in the second half.`\
+https://nytimes.com/athletic/6671833/2025/09/28/buccaneers-eagles-offense-great-or-putrid-win/
+
+**‘Waiting for Godot’ Review: Cue the Air Guitar**\
+`Jamie Lloyd’s pristinely chic Broadway revival of the existential tragicomedy casts the “Bill & Ted” stars Keanu Reeves and Alex Winter as Samuel Beckett’s clowns.`\
+https://nytimes.com/2025/09/28/theater/waiting-for-godot-review-keanu-reeves.html
+
+**Bad Bunny to perform Super Bowl LX halftime show**\
+`After rumors that Taylor Swift could perform at halftime, instead it's three-time Grammy winner and "Happy Gilmore 2" actor Bad Bunny.`\
+https://nytimes.com/athletic/6671870/2025/09/28/bad-bunny-super-bowl-halftime-show/
+
 **Resilient Guardians head into MLB postseason riding high: 'We'll go shock them'**\
 `Cleveland's playoff journey begins Tuesday afternoon against Tarik Skubal and the Detroit Tigers in a best-of-three matchup. `\
 https://nytimes.com/athletic/6672039/2025/09/28/cleveland-guardians-mlb-postseason-berth-celebration/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6671931/2025/09/28/mets-mlb-playoffs-collapse/
 **Scenes after Blue Jays clinch AL East title — and a needed break ahead of chase**\
 `The Blue Jays await either the Yankees or the Red Sox. In the meantime, Bo Bichette has more time to return from a sprained knee.`\
 https://nytimes.com/athletic/6671989/2025/09/28/blue-jays-al-east-champions/
-
-**'Just hell of a play by him': Cole Bishop's interception revives Bills as they remain undefeated**\
-`Bishop's play helped spark a Bills defense that had been struggling against the winless Saints.`\
-https://nytimes.com/athletic/6671815/2025/09/28/cole-bishop-interception-bills-saints/
-
-**Emotional Brian Daboll couldn't hide what Jaxson Dart's performance, Giants win meant to him**\
-`Daboll pushed his chips to the middle of the table by turning the team, and his career, over to Dart, and on Sunday, the rookie delivered. `\
-https://nytimes.com/athletic/6671737/2025/09/28/jaxson-dart-giants-brian-daboll-chargers/
-
-**Ambitious Padres out to write 'new story' after another 90-win regular season**\
-`San Diego looks to build on its success when it faces the Cubs in the National League Wild Card Series.`\
-https://nytimes.com/athletic/6671867/2025/09/28/padres-90-win-regular-season-playoffs/
-
-**How the Commanders' defense was dismantled by the Falcons**\
-`Poor tackling, explosive plays and slow starts have left Washington's defense looking overwhelmed in multiple games this season.`\
-https://nytimes.com/athletic/6671419/2025/09/28/commanders-defense-falcons-michael-penix-bijan-robinson/
 
