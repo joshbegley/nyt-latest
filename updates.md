@@ -1,3 +1,23 @@
+**'Unshakeable' Michael Penix rebounded and brought offense with him to topple Commanders**\
+`The second-year Atlanta quarterback had a career-high 313 passing yards as the Falcons held off the Commanders 34-27 on Sunday.`\
+https://nytimes.com/athletic/6671415/2025/09/28/michael-penix-falcons-commanders-nfl-week-4/
+
+**Colts-Rams: Los Angeles hands Indianapolis its first loss**\
+`Whether it was a holding penalty that negated a long touchdown run or a fumble on another big play, the Colts made several mistakes Sunday.`\
+https://nytimes.com/athletic/6671468/2025/09/28/colts-rams-score-takeaways/
+
+**What to know about the Europeans' thrilling Ryder Cup win**\
+`A Ryder Cup rout turned dramatic on Sunday, as the Europeans held off a surging American side to win at Bethpage Black.`\
+https://nytimes.com/athletic/6671632/2025/09/28/ryder-cup-25-europe-win/
+
+**Chargers get what they deserve in 'complete team loss' to Giants, Jaxson Dart**\
+`Justin Herbert was intercepted twice and the Chargers committed 14 penalties in suffering their first loss of the season.`\
+https://nytimes.com/athletic/6671634/2025/09/28/chargers-loss-giants-jaxson-dart/
+
+**Phillies have the batting champ and HR king — and as good a shot as anyone to win it all**\
+`"We got a dream — that's to hold the trophy," Kyle Schwarber said to the fans. "Let's see where this takes us, all right?"`\
+https://nytimes.com/athletic/6671608/2025/09/28/phillies-playoffs-trea-turner-kyle-schwarber/
+
 **Chargers get what they deserved in 'complete team loss' to Giants, Jaxson Dart**\
 `Justin Herbert was intercepted twice and the Chargers committed 14 penalties in suffering their first loss of the season.`\
 https://nytimes.com/athletic/6671634/2025/09/28/chargers-loss-giants-jaxson-dart/
