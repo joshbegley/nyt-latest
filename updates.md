@@ -1,3 +1,11 @@
+**World Series odds: Phillies favored ahead of Dodgers, Mariners, Yankees**\
+`The Phillies enter the postseason as the favorite to win the World Series, but the Dodgers aren't far behind despite not getting a bye.`\
+https://nytimes.com/athletic/6674097/2025/09/29/world-series-odds-phillies-dodgers-mariners-yankees/
+
+**Wild Card Series predictions: The Athletic MLB staff picks the winners for each series**\
+`Find out which four teams our staff predicts will make it to the Division Series.`\
+https://nytimes.com/athletic/6674128/2025/09/29/mlb-wild-card-series-staff-predictions/
+
 **California Governor Signs Sweeping A.I. Law**\
 `Gavin Newsom signed a major safety law on artificial intelligence, creating one of the strongest sets of rules about the technology in the nation.`\
 https://nytimes.com/2025/09/29/technology/california-ai-safety-law.html

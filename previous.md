@@ -1,3 +1,11 @@
+**World Series odds: Phillies favored ahead of Dodgers, Mariners, Yankees**\
+`The Phillies enter the postseason as the favorite to win the World Series, but the Dodgers aren't far behind despite not getting a bye.`\
+https://nytimes.com/athletic/6674097/2025/09/29/world-series-odds-phillies-dodgers-mariners-yankees/
+
+**Wild Card Series predictions: The Athletic MLB staff picks the winners for each series**\
+`Find out which four teams our staff predicts will make it to the Division Series.`\
+https://nytimes.com/athletic/6674128/2025/09/29/mlb-wild-card-series-staff-predictions/
+
 **California Governor Signs Sweeping A.I. Law**\
 `Gavin Newsom signed a major safety law on artificial intelligence, creating one of the strongest sets of rules about the technology in the nation.`\
 https://nytimes.com/2025/09/29/technology/california-ai-safety-law.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6674333/2025/09/29/wild-roster-cuts-haight-yurov-bu
 **An Intimate Wedding Onstage in Front of Thousands**\
 `The Grammy-winning musician Lucy Dacus oversaw the marriage of nine couples in the middle of a set at the “All Things Go” music festival on Friday.`\
 https://nytimes.com/2025/09/29/style/lucy-dacus-officiant-all-things-go.html
-
-**Why Yankees' Ben Rice, Jazz Chisholm Jr. may not start in Game 1: Playoff takeaways**\
-`As the players prepared, the front office weighed its options for the 26-man active roster and the Game 1 lineup. Here's what we learned.`\
-https://nytimes.com/athletic/6674160/2025/09/29/yankees-redsox-game-1-ben-rice-jazz-chisholm/
-
-**Tyreek Hill? Jakobi Meyers? What are Giants' options at WR after losing Malik Nabers?**\
-`Would the Giants make a splash trade for a wide receiver for the sake of Jaxson Dart's development?`\
-https://nytimes.com/athletic/6673705/2025/09/29/malik-nabers-giants-injury-trade-tyreek-hill-jakobi-meyers-trade/
 

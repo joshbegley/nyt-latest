@@ -1,3 +1,19 @@
+**Read the document**\
+`The chairwoman of the House subcommittee on cybersecurity, information technology and government innovation demanded information of Uber over its safety practices related to sexual assault.`\
+https://nytimes.com/interactive/2025/09/29/technology/uber-sexual-assault-letter.html
+
+**A Global Crackdown on Free Speech**\
+`We explore how the U.S. has joined all the other countries where leaders have tried to silence speech.`\
+https://nytimes.com/2025/09/29/world/free-speech-crackdown-israel-gaza-trump-proposal.html
+
+**Haters, Waiters and Ghosts at Gracie Mansion: The Quotable Eric Adams**\
+`At an afternoon news conference or a late-night talk show, it has been almost impossible to predict what New York City’s mayor might say next.`\
+https://nytimes.com/2025/09/29/realestate/eric-adams-nyc-mayor.html
+
+**George Hardy, Tuskegee Airman Who Fought in Three Wars, Dies at 100**\
+`At 19, he was one of the youngest pilots in the all-Black unit to see combat in World War II. “I used to say the Army’s No. 1 job was segregation,” he said. “Winning the war was No. 2.”`\
+https://nytimes.com/2025/09/29/us/george-hardy-dead.html
+
 **World Series odds: Phillies favored ahead of Dodgers, Mariners, Yankees**\
 `The Phillies enter the postseason as the favorite to win the World Series, but the Dodgers aren't far behind despite not getting a bye.`\
 https://nytimes.com/athletic/6674097/2025/09/29/world-series-odds-phillies-dodgers-mariners-yankees/
@@ -11,7 +27,7 @@ https://nytimes.com/athletic/6674128/2025/09/29/mlb-wild-card-series-staff-predi
 https://nytimes.com/2025/09/29/technology/california-ai-safety-law.html
 
 **Capricious or decisive? Why Buster Posey reversed course and fired Bob Melvin**\
-`Posey has some candidates to replace Melvin in mind but didn't disclose names. "Someone who's going to be obsessive about the details..."`\
+`Posey has some candidates to replace Melvin in mind but didn't disclose names. "Someone who's going to be obsessive about the details."`\
 https://nytimes.com/athletic/6674463/2025/09/29/sf-giants-buster-posey-bob-melvin-firing/
 
 **See How E.V. Road Trips Went From Impossible to Easy**\
@@ -21,20 +37,4 @@ https://nytimes.com/interactive/2025/09/29/upshot/ev-chargers-road-trip.html
 **Carlos Mendoza to return as Mets manager in 2026**\
 `Despite a season that David Stearns characterized as “tremendously disappointing,” the Mets will bring back Mendoza next year.`\
 https://nytimes.com/athletic/6674424/2025/09/29/carlos-mendoza-mets-manager-return/
-
-**Hegseth and Trump to Meet With Military Brass: What We Know**\
-`Tuesday’s meeting at a Marine Corps base appears to be without precedent, and a lack of explanation for it has led to speculation and fear.`\
-https://nytimes.com/2025/09/29/us/politics/hegseth-trump-military-officers.html
-
-**Rail Operator CSX Ousts Chief Executive After Activist Pressure**\
-`Joe Hinrichs was replaced by Steve Angel, who may be more likely to consider a merger on the heels of the Union Pacific and Norfolk Suffolk deal.`\
-https://nytimes.com/2025/09/29/business/csx-ousts-chief-executive.html
-
-**Explaining the latest Wild roster cuts, and where they leave Haight, Yurov, Buium, other hopefuls**\
-`The roster is effectively down to 27 players — four more than the maximum for the opening night roster.`\
-https://nytimes.com/athletic/6674333/2025/09/29/wild-roster-cuts-haight-yurov-buium/
-
-**An Intimate Wedding Onstage in Front of Thousands**\
-`The Grammy-winning musician Lucy Dacus oversaw the marriage of nine couples in the middle of a set at the “All Things Go” music festival on Friday.`\
-https://nytimes.com/2025/09/29/style/lucy-dacus-officiant-all-things-go.html
 
