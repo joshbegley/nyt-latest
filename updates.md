@@ -1,3 +1,7 @@
+**Passengers Report Delays at Canadian Airports After Tech Outage**\
+`Immigration inspection kiosks were offline at major airports in Montreal, Toronto and Calgary. Some passengers said they were stranded on planes.`\
+https://nytimes.com/2025/09/29/world/americas/outage-canada-airports-flights.html
+
 **The New York Times in Print for Monday, Sep. 29, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/29/todays-new-york-times
