@@ -1,3 +1,7 @@
+**Jerry Jones: Dak Prescott is 'indispensable,' Micah Parsons 'wasn't'**\
+`Jones' comments come after Parsons, now a Packer, faced his former team on Sunday night.`\
+https://nytimes.com/athletic/6672601/2025/09/29/jerry-jones-dak-prescott-micah-parsons-cowboys-packers/
+
 **The New York Times in Print for Monday, Sep. 29, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/29/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6669938/2025/09/29/nuno-west-ham-players-analysis/
 **Buendia cameo brings Villa players and fans back together, but fragility remains**\
 `The substitute came on to a mixed reception and changed the game, but the victory still included concerns for Unai Emery`\
 https://nytimes.com/athletic/6670441/2025/09/29/aston-villa-fragility-buendia-emery/
-
-**Wolves boss Vitor Pereira's big gamble ends Premier League losing streak**\
-`After five straight league defeats the Wolves boss changed nine of his starting XI and the result was an improved performance`\
-https://nytimes.com/athletic/6669838/2025/09/29/wolverhampton-wanderers-wolves-tottenham-hotspur-spurs-pereira-bueno/
 

@@ -1,3 +1,7 @@
+**Jerry Jones: Dak Prescott is 'indispensable,' Micah Parsons 'wasn't'**\
+`Jones' comments come after Parsons, now a Packer, faced his former team on Sunday night.`\
+https://nytimes.com/athletic/6672601/2025/09/29/jerry-jones-dak-prescott-micah-parsons-cowboys-packers/
+
 **Passengers Report Delays at Canadian Airports After Tech Outage**\
 `Immigration inspection kiosks were offline at major airports in Montreal, Toronto and Calgary. Some passengers said they were stranded on planes.`\
 https://nytimes.com/2025/09/29/world/americas/outage-canada-airports-flights.html
