@@ -1,5 +1,17 @@
+**Trump and Comey: An Escalating Conflict With No Off-Ramp**\
+`The yearslong face-off between Donald Trump and James Comey amounts to a case study of how the president grew evermore emboldened to carry out his revenge agenda.`\
+https://nytimes.com/2025/09/29/us/politics/trump-comey-escalating-conflict.html
+
+**Wildfire Burns Over 1.9 Million Acres in Etosha National Park**\
+`Hundreds of Namibian soldiers have been deployed to one of Africa’s largest national parks to combat a wildfire that has burned over one-third of the popular tourist destination and threatened the area’s biodiversity.`\
+https://nytimes.com/video/world/africa/100000010427646/etosha-national-park-wildfire.html
+
+**Explaining the G.O.P.’s Misleading Talking Point on the Looming Shutdown**\
+`Republicans have been falsely asserting that Democrats are shutting down the government to fund free health care for unauthorized immigrants.`\
+https://nytimes.com/2025/09/29/us/politics/republicans-shutdown-fact-check-health-immigration.html
+
 **Government Shutdown Looms Unless Lawmakers Extend Funding**\
-`Democrats and Republicans have not agreed to a deal to extend federal funding to avert a federal shutdown.`\
+`Democrats and Republicans have not agreed to a deal to extend federal funding to avert a government shutdown.`\
 https://nytimes.com/video/us/politics/100000010428029/government-shutdown.html
 
 **The Book That Taught Nonna to Cook Is Coming to America**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/29/world/free-speech-crackdown-israel-gaza-trump-pro
 **Haters, Waiters and Ghosts at Gracie Mansion: The Quotable Eric Adams**\
 `At an afternoon news conference or a late-night talk show, it has been almost impossible to predict what New York City’s mayor might say next.`\
 https://nytimes.com/2025/09/29/realestate/eric-adams-nyc-mayor.html
-
-**George Hardy, Tuskegee Airman Who Fought in Three Wars, Dies at 100**\
-`At 19, he was one of the youngest pilots in the all-Black unit to see combat in World War II. “I used to say the Army’s No. 1 job was segregation,” he said. “Winning the war was No. 2.”`\
-https://nytimes.com/2025/09/29/us/george-hardy-dead.html
-
-**World Series odds: Phillies favored ahead of Dodgers, Mariners, Yankees**\
-`The Phillies enter the postseason as the favorite to win the World Series, but the Dodgers aren't far behind despite not getting a bye.`\
-https://nytimes.com/athletic/6674097/2025/09/29/world-series-odds-phillies-dodgers-mariners-yankees/
-
-**Wild Card Series predictions: The Athletic MLB staff picks the winners for each series**\
-`Find out which four teams our staff predicts will make it to the Division Series.`\
-https://nytimes.com/athletic/6674128/2025/09/29/mlb-wild-card-series-staff-predictions/
 

@@ -1,3 +1,11 @@
+**Government Shutdown Looms Unless Lawmakers Extend Funding**\
+`Democrats and Republicans have not agreed to a deal to extend federal funding to avert a federal shutdown.`\
+https://nytimes.com/video/us/politics/100000010428029/government-shutdown.html
+
+**The Book That Taught Nonna to Cook Is Coming to America**\
+`An English translation of Ada Boni’s “The Talisman of Happiness,” an indispensable guide for Italian home cooks since the 1920s, is finally on its way.`\
+https://nytimes.com/2025/09/29/dining/ada-boni-italian-cookbook.html
+
 **Wembanyama cleared to play after blood clot, 'world-class' summer of training**\
 `The Spurs' star said he is healthy after missing the end of last season with a blood clot. "I feel like I need to play basketball now."`\
 https://nytimes.com/athletic/6674077/2025/09/29/victor-wembanyama-status-spurs-blood-clot/
