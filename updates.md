@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6672220/2025/09/29/bears-josh-blackwell-blocked-field-goal-raiders/
 
+**Bears magic trick: How Josh Blackwell's blocked field goal saved the day in Vegas**\
+`What an ending for the Bears in Sunday's thrilling win, with some Vegas magic right at the end that might make Criss Angel jealous.
+`\
+https://nytimes.com/athletic/6672220/2025/09/29/bears-josh-blackwell-blocked-field-goal-raiders/
+
 **What We Know About the Shooting and Fire at a Michigan Church**\
 `At least four people were killed after an attacker opened fire at a Church of Jesus Christ of Latter-day Saint building and intentionally set fire to the structure.`\
 https://nytimes.com/2025/09/29/us/michigan-mormon-church-shooting-fire.html
