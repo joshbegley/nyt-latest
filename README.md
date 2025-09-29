@@ -1,3 +1,7 @@
+**Lucas Giolito to miss Wild Card Series with elbow issues**\
+`The Red Sox are hopeful Giolito's injury isn't serious, but regardless they will be without him for the Wild Card Series.`\
+https://nytimes.com/athletic/6674072/2025/09/29/boston-red-sox-lucas-giolito-wild-card-elbow-injury/
+
 **How to watch Tigers at Guardians: Game 1 Time, TV, streaming**\
 `Find out how to watch the Detroit Tigers play the Cleveland Guardians, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6674094/2025/09/29/tigers-vs-guardians-stream-how-to-watch-sept-30/
@@ -33,10 +37,4 @@ https://nytimes.com/athletic/6673991/2025/09/29/jose-mourinho-chelsea-champions-
 **Afghanistan Has Nationwide Internet Blackout, Monitors Say**\
 `The nationwide blackout came two weeks after the Taliban shut down the internet in half a dozen provinces, saying they wanted to prevent “immoral acts.”`\
 https://nytimes.com/2025/09/29/world/asia/internet-blackout-afghanistan.html
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>What a fun night watching both Oregon-Penn State and Alabama-Georgia last weekend. How do we top it?</p>
-<p>Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/6673974/2025/09/29/submit-a-question-for-stewart-mandels-college-football-mailbag-317/
 
