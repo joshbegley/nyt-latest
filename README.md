@@ -1,3 +1,7 @@
+**The secrets of Europe's Ryder Cup win, featuring $47 shampoo, Federer and Moneyball**\
+`Revealing the little details that made for an historic triumph for the visitors at Bethpage`\
+https://nytimes.com/athletic/6673109/2025/09/29/europe-ryder-cup-win-how-inside-story/
+
 **Do You Recognize the Authors of These Lyrical, Literary Lines?**\
 `Is that passage from a poem or a popular song? Try this short quiz to see how many writers you can identify.`\
 https://nytimes.com/interactive/2025/09/29/books/review/lyrics-poem-quiz.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/29/insider/un-edition.html
 **Spelling Bee Writing Contest**\
 `Create your own Spelling Bee sentence, with winning entries to appear in this year’s Puzzle Mania!`\
 https://nytimes.com/2025/09/29/crosswords/spelling-bee-writing-contest.html
-
-**Gochugaru Salmon with Crispy Rice**\
-`Gochugaru, a mild, fragrant red-pepper powder, bedazzles in this quick dinner of gochugaru salmon with crispy rice.`\
-https://nytimes.com/video/dining/100000010364845/gochugaru-salmon-with-crispy-rice.html
 
