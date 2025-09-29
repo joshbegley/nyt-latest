@@ -1,3 +1,27 @@
+**Why Nuno's focus on defensive solidity and quick counter-attacks could suit West Ham**\
+`The former Wolves and Forest boss can help a number of players in this squad after the east Londoners' very difficult start to the season`\
+https://nytimes.com/athletic/6669938/2025/09/29/nuno-west-ham-players-analysis/
+
+**Buendia cameo brings Villa players and fans back together, but fragility remains**\
+`The substitute came on to a mixed reception and changed the game, but the victory still included concerns for Unai Emery`\
+https://nytimes.com/athletic/6670441/2025/09/29/aston-villa-fragility-buendia-emery/
+
+**Wolves boss Vitor Pereira's big gamble ends Premier League losing streak**\
+`After five straight league defeats the Wolves boss changed nine of his starting XI and the result was an improved performance`\
+https://nytimes.com/athletic/6669838/2025/09/29/wolverhampton-wanderers-wolves-tottenham-hotspur-spurs-pereira-bueno/
+
+**Is Chelsea's focus on youth and squad churn harming their ability to compete?**\
+`The churn of new signings, many of them under 23, has left Chelsea lacking leadership and knowhow`\
+https://nytimes.com/athletic/6661949/2025/09/29/chelsea-squad-age-churn-recruitment-analysis/
+
+**How Nico O'Reilly has become the direct-running catalyst for Man City's attack**\
+`Pep Guardiola needed Man City to take a different attacking approach in the second half against Burnley and the English left-back stepped up`\
+https://nytimes.com/athletic/6669985/2025/09/29/manchester-city-nico-oreilly-analysis/
+
+**Newcastle can't let 12 minutes of chaos derail their season**\
+`Eddie Howe's side came out worse off after a manic, unrelenting match with Arsenal, but they now must regroup ahead of a vital week`\
+https://nytimes.com/athletic/6669833/2025/09/29/newcastle-premier-league-champions-league/
+
 **Tyler Adams' fiery Leeds return shows why they are 380 days unbeaten in the league at Elland Road**\
 `Adams' every touch of the ball was booed on Saturday. Leeds fans must generate that atmosphere for the 16 home games to come`\
 https://nytimes.com/athletic/6668425/2025/09/29/leeds-tyler-adams-bournemouth-elland-road/
@@ -13,28 +37,4 @@ https://nytimes.com/video/world/europe/100000010427007/ukraine-kyiv-russia-strik
 **The numbers behind Kairat-Real Madrid, the biggest mismatch in Champions League history**\
 `Fifteen continental titles, hundreds of millions of fans, billions of dollars and 4,000 miles separate the sides who will meet on Tuesday `\
 https://nytimes.com/athletic/6658553/2025/09/29/kairat-real-madrid-champions-league-comparison/
-
-**'Maybe Mourinho hasn't upgraded himself' - an interview with Galatasaray manager Okan Buruk**\
-`The 51-year-old has an impressive record domestically and is now hoping to make an impact in Europe as his side host Liverpool`\
-https://nytimes.com/athletic/6644720/2025/09/29/okan-buruk-interview-galatasaray-mourinho/
-
-**Arsenal's credentials were again questioned. This time, they had the answers**\
-`When Liverpool had finally dropped points, it seemed Arsenal were destined not to capitalise - but there was different ending to this story`\
-https://nytimes.com/athletic/6670751/2025/09/29/arsenal-newcastle-gabriel-arteta/
-
-**Fantasy football Week 4 takeaways: Malik Nabers lost for season, Lamar Jackson on injury watch**\
-`Michael Salfino says Nabers' season-ending injury is devastating for the development of rookie quarterback Jaxson Dart.`\
-https://nytimes.com/athletic/6671991/2025/09/29/fantasy-football-week-4-takeaways-injuries-nabers-lamar/
-
-**Man Utd have a serious problem dealing with long balls - this is why**\
-`Ruben Amorim's team struggled when Brentford put the ball in the air on Saturday. Conor O'Neill breaks down the issue...`\
-https://nytimes.com/athletic/6669127/2025/09/29/manchester-united-long-balls-analysis/
-
-**No Corrections: Sept. 29, 2025**\
-`No corrections appeared in print on Monday, Sept. 29, 2025.`\
-https://nytimes.com/2025/09/29/pageoneplus/no-corrections-sept-29-2025.html
-
-**Quote of the Day: A Family Finds a Path to Forgive a Stranger’s Unfathomable Act**\
-`Quotation of the Day for Monday, September 29, 2025.`\
-https://nytimes.com/2025/09/29/pageoneplus/quote-of-the-day-a-family-finds-a-path-to-forgive-a-strangers-unfathomable-act.html
 
