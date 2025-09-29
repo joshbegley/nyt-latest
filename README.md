@@ -1,5 +1,5 @@
 **What We Know About the Shooting and Fire at a Michigan Church**\
-`At least four people were killed after an attacker opened fire at a Church of Jesus Christ of Latter-day Saints building and intentionally set fire to the structure.`\
+`At least four people were killed after an attacker opened fire at a Church of Jesus Christ of Latter-day Saint building and intentionally set fire to the structure.`\
 https://nytimes.com/2025/09/29/us/michigan-mormon-church-shooting-fire.html
 
 **The Pulse: A painful Sunday ... everywhere**\

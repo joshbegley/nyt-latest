@@ -1,3 +1,8 @@
+**Bears magic trick: How Josh Blackwell's blocked field goal saved the day in Vegas**\
+`What an ending for the Bears in Sunday's thrilling win, with some Vegas magic right at the end that might make Criss Angel jealous.
+`\
+https://nytimes.com/athletic/6672220/2025/09/29/bears-josh-blackwell-blocked-field-goal-raiders/
+
 **Analyzing the Knicks preseason: More five-out offense? New lineups?**\
 `Discussing the Knicks' offense, tweaks and added depth as preseason schedule gets underway. `\
 https://nytimes.com/athletic/6667789/2025/09/29/knicks-offense-josh-hart-mitchell-robinson-preseason/
