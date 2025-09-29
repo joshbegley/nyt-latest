@@ -1,3 +1,11 @@
+**Minnesota Lynx eliminated from WNBA playoffs, Phoenix Mercury reach finals**\
+`Alyssa Thomas finished with 23 points, 10 assists and eight rebounds. The Mercury await the winner of the Aces-Fever semifinals.`\
+https://nytimes.com/athletic/6672230/2025/09/28/minnesota-lynx-wnba-playoffs-elimination/
+
+**Giants finish in the .500 doldrums, and Bob Melvin faces an uncertain future**\
+`"He doesn't like to lose," Willy Adames said of Buster Posey. "He's already mad, so I know he's gonna do whatever it takes."`\
+https://nytimes.com/athletic/6672072/2025/09/28/san-francisco-giants-bob-melvin-uncertain-future/
+
 **Jaxson Dart era begins with 'special' win, as young Giants QB vows, 'This is just the start'**\
 `Dart gave the Giants just what they needed on Sunday: a win — and reason to hope. `\
 https://nytimes.com/athletic/6671874/2025/09/28/jaxson-dart-giants-chargers-special-swagger/
