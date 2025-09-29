@@ -1,3 +1,7 @@
+**Coalition of 50 athletes sign letter calling for Israel's suspension from football**\
+`The letter argues "sport cannot stand silent while athletes and civilians including children are indiscriminately killed en masse in Gaza".`\
+https://nytimes.com/athletic/6672769/2025/09/29/israel-gaza-football-suspension-letter/
+
 **What we learned in NFL Week 4: Cowboys and Packers' wild tie, Jaxson Dart sparks Giants**\
 `The Baltimore Ravens find themselves unfamiliar territory, and Brian Callahan might not have much time left in Tennessee.`\
 https://nytimes.com/athletic/6672037/2025/09/29/nfl-week-4-takeaways-cowboys-packers-jaxson-dart/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/29/nyregion/adams-coalition.html
 **Alaska Seized a $95,000 Plane Over Illicit Cargo: A Six-Pack of Beer**\
 `The plane’s owner, an 82-year-old veteran, has asked the Supreme Court to hear his case and set limits on forfeitures of property used to commit crimes.`\
 https://nytimes.com/2025/09/29/us/politics/alaska-plane-beer-supreme-court.html
-
-**Why Do So Many Women Have Long Hair Now?**\
-`More and more women seem to be sporting long, luscious manes. Our critic offers some possible explanations along with a brief history of hair.`\
-https://nytimes.com/2025/09/29/fashion/hair-long.html
 
