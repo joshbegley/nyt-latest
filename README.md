@@ -1,8 +1,28 @@
+**Carlos Mendoza to return as Mets manager in 2026**\
+`Despite a season that David Stearns characterized as “tremendously disappointing,” the Mets will bring back Mendoza next year.`\
+https://nytimes.com/athletic/6674424/2025/09/29/carlos-mendoza-mets-manager-return/
+
+**Hegseth and Trump to Meet With Military Brass: What We Know**\
+`Tuesday’s meeting at a Marine Corps base appears to be without precedent, and a lack of explanation for it has led to speculation and fear.`\
+https://nytimes.com/2025/09/29/us/politics/hegseth-trump-military-officers.html
+
+**Rail Operator CSX Ousts Chief Executive After Activist Pressure**\
+`Joe Hinrichs was replaced by Steve Angel, who may be more likely to consider a merger on the heels of the Union Pacific and Norfolk Suffolk deal.`\
+https://nytimes.com/2025/09/29/business/csx-ousts-chief-executive.html
+
+**Explaining the latest Wild roster cuts, and where they leave Haight, Yurov, Buium, other hopefuls**\
+`The roster is effectively down to 27 players — four more than the maximum for the opening night roster.`\
+https://nytimes.com/athletic/6674333/2025/09/29/wild-roster-cuts-haight-yurov-buium/
+
+**An Intimate Wedding Onstage in Front of Thousands**\
+`The Grammy-winning musician Lucy Dacus oversaw the marriage of nine couples in the middle of a set at the “All Things Go” music festival on Friday.`\
+https://nytimes.com/2025/09/29/style/lucy-dacus-officiant-all-things-go.html
+
 **Why Yankees' Ben Rice, Jazz Chisholm Jr. may not start in Game 1: 3 playoff takeaways**\
 `As the players prepared, the front office weighed its options for the 26-man active roster and the Game 1 lineup. Here's what we learned.`\
 https://nytimes.com/athletic/6674160/2025/09/29/yankees-redsox-game-1-ben-rice-jazz-chisholm/
 
-**Tyreek Hill? Jakobi Meyers? What are Giants options at WR after losing Malik Nabers?**\
+**Tyreek Hill? Jakobi Meyers? What are Giants' options at WR after losing Malik Nabers?**\
 `Would the Giants make a splash trade for a wide receiver for the sake of Jaxson Dart's development?`\
 https://nytimes.com/athletic/6673705/2025/09/29/malik-nabers-giants-injury-trade-tyreek-hill-jakobi-meyers-trade/
 
@@ -17,24 +37,4 @@ https://nytimes.com/2025/09/29/nyregion/mamdani-cuomo-sliwa-nyc-mayor.html
 **49ers minutia minute: How concerning is Brock Purdy's toe soreness?**\
 `Kyle Shanahan said the 49ers' pass rush wasn't a "huge concern," but the numbers from Sunday's loss were strikingly meager.`\
 https://nytimes.com/athletic/6674156/2025/09/29/brock-purdy-injury-49ers-jaguars-loss/
-
-**Florida Man Is Accused of Killing, Cooking and Eating Pet Peacocks**\
-`The man admitted to killing and consuming two of the birds over a feud with a neighbor who was feeding them, according to an affidavit.`\
-https://nytimes.com/2025/09/29/us/florida-pet-peacocks-killed-cooked.html
-
-**Twins fire manager Rocco Baldelli after nightmarish season**\
-`After two years managing a roster on a reduced payroll, Baldelli was fired.`\
-https://nytimes.com/athletic/6672327/2025/09/29/minnesota-twins-rocco-baldelli-firing/
-
-**LeBron James unsure about NBA retirement: 'I know it's sooner than later'**\
-`James remains uncertain about when he'll retire, but he says the end is drawing near. `\
-https://nytimes.com/athletic/6674032/2025/09/29/lebron-james-lakers-media-day-retirement/
-
-**Liverpool's Ekitike apologises for red card, welcomes Isak competition**\
-`The France international missed his side's league defeat to Crystal Palace but could return to the starting line-up against Galatasaray.`\
-https://nytimes.com/athletic/6674196/2025/09/29/hugo-ekitike-liverpool-red-card-apology-alexander-isak/
-
-**Wildfire Rips Through One of Africa’s Largest National Parks**\
-`More than a third of Etosha National Park in Namibia has burned, threatening the rich biodiversity in a popular tourist attraction.`\
-https://nytimes.com/2025/09/29/world/africa/africa-wildfire-etosha-park-namibia-wildlife-reserve.html
 

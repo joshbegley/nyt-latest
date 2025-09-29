@@ -1,4 +1,4 @@
-**Why Yankees' Ben Rice and Jazz Chisholm Jr. may not start in Game 1: 3 takeaways**\
+**Why Yankees' Ben Rice, Jazz Chisholm Jr. may not start in Game 1: 3 playoff takeaways**\
 `As the players prepared, the front office weighed its options for the 26-man active roster and the Game 1 lineup. Here's what we learned.`\
 https://nytimes.com/athletic/6674160/2025/09/29/yankees-redsox-game-1-ben-rice-jazz-chisholm/
 
@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6674156/2025/09/29/brock-purdy-injury-49ers-jaguars
 https://nytimes.com/2025/09/29/us/florida-pet-peacocks-killed-cooked.html
 
 **Twins fire manager Rocco Baldelli after nightmarish season**\
-`After two years managing a roster on reduced payroll, Baldelli was fired.`\
+`After two years managing a roster on a reduced payroll, Baldelli was fired.`\
 https://nytimes.com/athletic/6672327/2025/09/29/minnesota-twins-rocco-baldelli-firing/
 
 **LeBron James unsure about NBA retirement: 'I know it's sooner than later'**\
