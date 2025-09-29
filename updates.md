@@ -1,3 +1,7 @@
+**The secrets of Europe's Ryder Cup win, featuring $47 shampoo, Federer and Moneyball**\
+`Revealing the little details that made for an historic triumph for the visitors at Bethpage`\
+https://nytimes.com/athletic/6673109/2025/09/29/europe-ryder-cup-win-how-inside-story/
+
 **Do You Recognize the Authors of These Lyrical, Literary Lines?**\
 `Is that passage from a poem or a popular song? Try this short quiz to see how many writers you can identify.`\
 https://nytimes.com/interactive/2025/09/29/books/review/lyrics-poem-quiz.html
