@@ -1,3 +1,11 @@
+**Texans trade OT Cam Robinson to Browns: Source**\
+`Robinson, a 2017 second-round pick, will presumably become the immediate starter at left tackle for Cleveland. `\
+https://nytimes.com/athletic/6673477/2025/09/29/texans-browns-cam-robinson-trade/
+
+**UFC, WWE owner TKO announces Paramount streaming deal for Zuffa Boxing**\
+`Zuffa is coming off the promotion of the Canelo Álvarez-Terence Crawford fight that drew more than 41 million viewers, according to Netflix.`\
+https://nytimes.com/athletic/6673307/2025/09/29/ufc-wwe-owner-tko-announces-paramount-streaming-deal-for-zuffa-boxing/
+
 ** The AI Imperative: Mapping What’s Possible**\
 ` Industry leaders are latching onto a new way to use AI—with the power of geography—for business success`\
 https://nytimes.com/paidpost/esri/esri/-the-ai-imperative-mapping-whats-possible.html

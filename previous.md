@@ -1,3 +1,11 @@
+**Texans trade OT Cam Robinson to Browns: Source**\
+`Robinson, a 2017 second-round pick, will presumably become the immediate starter at left tackle for Cleveland. `\
+https://nytimes.com/athletic/6673477/2025/09/29/texans-browns-cam-robinson-trade/
+
+**UFC, WWE owner TKO announces Paramount streaming deal for Zuffa Boxing**\
+`Zuffa is coming off the promotion of the Canelo Álvarez-Terence Crawford fight that drew more than 41 million viewers, according to Netflix.`\
+https://nytimes.com/athletic/6673307/2025/09/29/ufc-wwe-owner-tko-announces-paramount-streaming-deal-for-zuffa-boxing/
+
 ** The AI Imperative: Mapping What’s Possible**\
 ` Industry leaders are latching onto a new way to use AI—with the power of geography—for business success`\
 https://nytimes.com/paidpost/esri/esri/-the-ai-imperative-mapping-whats-possible.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/09/29/world/americas/brazil-digital-payments.html
 **A 102-Year-Old Yoga Teacher’s Simple Approach to Aging Well**\
 `For decades, Charlotte Chopin has been bending and stretching in Léré, a village in France. Here’s how she keeps moving.`\
 https://nytimes.com/2025/09/29/well/move/102-year-old-yogi-charlotte-chopin.html
-
-**Dolly Parton, Citing ‘Health Challenges,’ Postpones Las Vegas Shows**\
-`In delaying her residency until next year, the country music legend joked that a “few procedures” would not be the “usual trip to see my plastic surgeon.”`\
-https://nytimes.com/2025/09/29/arts/music/dolly-parton-las-vegas.html
-
-**NFL Week 5 odds, spreads: Chiefs, Bills, Rams favored in primetime matchups**\
-`Which teams are the biggest favorites and underdogs for Week 5?`\
-https://nytimes.com/athletic/6673230/2025/09/29/nfl-week-5-early-odds-spreads-chiefs-bills-rams/
 
