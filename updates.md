@@ -1,3 +1,19 @@
+**Investigators Seek Motive for Michigan Church Attack That Killed 4**\
+`The F.B.I. is searching homes connected with the attacker, who died at the scene, and his family, who are cooperating with the authorities.`\
+https://nytimes.com/2025/09/29/us/michigan-church-attack.html
+
+**Atletico dominated the derby by exposing Real Madrid in the channels**\
+`Diego Simeone's side thrashed their city rivals by going back to basics — as they often do in the 'derbi'`\
+https://nytimes.com/athletic/6672881/2025/09/29/atletico-real-madrid-derby-tactical-analysis/
+
+**'How many lives have to be lost?': FA accused of risking footballers' safety with concrete pitch barriers**\
+`The FA was warned about the dangers of concrete pitch barriers in 2015 but only opened a review last week after Billy Vigar's death aged 21`\
+https://nytimes.com/athletic/6673263/2025/09/29/vigar-fletcher-hiscox-concrete-fa-barriers/
+
+**‘Mine, Baby, Mine’: Trump Officials Offer $625 Million to Rescue Coal**\
+`The new effort, which includes opening 13.1 million acres of federal land for mining and eliminating pollution limits, aims to save an industry that has been declining for decades.`\
+https://nytimes.com/2025/09/29/climate/trump-coal-revival.html
+
 **Bronx Casino Proposal Advances in Bid for New York Gambling License**\
 `If Bally’s Bronx is awarded a license, it would have to pay $115 million to the Trump Organization, which operated a golf course on the site.`\
 https://nytimes.com/2025/09/29/nyregion/ballys-bronx-casino-bid-brooklyn-ny.html
