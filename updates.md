@@ -1,3 +1,11 @@
+**Twins fire manager Rocco Baldelli after nightmarish season**\
+`After two years managing a roster on reduced payroll, Baldelli was fired `\
+https://nytimes.com/athletic/6672327/2025/09/29/minnesota-twins-rocco-baldelli-firing/
+
+**LeBron James unsure about NBA retirement: 'I know it's sooner than later'**\
+`James remains uncertain about when he'll retire, but he says the end is drawing near. `\
+https://nytimes.com/athletic/6674032/2025/09/29/lebron-james-lakers-media-day-retirement/
+
 **Liverpool's Ekitike apologises for red card, welcomes Isak competition**\
 `The France international missed his side's league defeat to Crystal Palace but could return to the starting line-up against Galatasaray.`\
 https://nytimes.com/athletic/6674196/2025/09/29/hugo-ekitike-liverpool-red-card-apology-alexander-isak/
