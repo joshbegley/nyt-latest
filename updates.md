@@ -1,3 +1,11 @@
+**Spurs forward Solanke to have surgery on ankle problem**\
+`The 28-year-old has not played since their second game of the 2025-26 season against Manchester City.`\
+https://nytimes.com/athletic/6591858/2025/09/29/dominic-solanke-ankle-surgery-tottenham-hotspur/
+
+**Scoop City: Risers and fallers after Week 4**\
+`How teams are trending after the Ravens lost another, Packers tied the Cowboys and the Patriots looked like a complete team`\
+https://nytimes.com/athletic/6673934/2025/09/29/nfl-risers-fallers-trending-week-4-ravens-patriots/
+
 **Two HUD civil rights lawyers were dismissed after raising concerns about Fair Housing Act enforcement.**\
 `By Debra Kamin`\
 https://nytimes.com/live/2025/09/29/us/trump-news-shutdown/hud-lawyers-whistleblowers
