@@ -1,3 +1,7 @@
+**Coalition of 50 athletes sign letter calling for Israel's suspension from football**\
+`The letter argues "sport cannot stand silent while athletes and civilians including children are indiscriminately killed en masse in Gaza".`\
+https://nytimes.com/athletic/6672769/2025/09/29/israel-gaza-football-suspension-letter/
+
 **What we learned in NFL Week 4: Cowboys and Packers' wild tie, Jaxson Dart sparks Giants**\
 `The Baltimore Ravens find themselves unfamiliar territory, and Brian Callahan might not have much time left in Tennessee.`\
 https://nytimes.com/athletic/6672037/2025/09/29/nfl-week-4-takeaways-cowboys-packers-jaxson-dart/
