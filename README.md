@@ -1,3 +1,23 @@
+**For Jerry Jones, that bonkers tie wasn't vindication, but it could have been worse**\
+`The Cowboys' owner wanted vindication with Micah Parsons back in town. Instead, he got one of the wildest results of this NFL season.`\
+https://nytimes.com/athletic/6672854/2025/09/29/jerry-jones-micah-parsons-cowboys-packers-tie/
+
+**After being overlooked and underestimated, Cubs' bullpen will embrace October**\
+`The Cubs have a team within a team, an overlooked group imbued with perspective that could prove to be the difference in October.`\
+https://nytimes.com/athletic/6671091/2025/09/29/chicago-cubs-bullpen-performance/
+
+**Aaron Judge, the Yankees and the burden of greatness: Another postseason test awaits**\
+`Baseball is a game of failure, but success — fairly or not — is a requirement for a player of Judge's caliber. Can he deliver in October?`\
+https://nytimes.com/athletic/6652450/2025/09/29/aaron-judge-yankees-postseason-test/
+
+**Trump’s Tactics on Crime**\
+`We explore the president’s new tough-on-crime tactics and how they’re working.`\
+https://nytimes.com/2025/09/29/briefing/trumps-tactics-on-crime.html
+
+**Inside Real Madrid: How will they react to disastrous Atletico defeat?**\
+`A damaging 5-2 defeat against their city rivals on Saturday has punctured Real Madrid's positive start to the season`\
+https://nytimes.com/athletic/6672851/2025/09/29/inside-real-madrid-how-will-they-react-to-disastrous-atletico-defeat/
+
 **Ravens didn't look like a good team vs. Chiefs — and now Lamar Jackson is hurt**\
 `Baltimore, a popular Super Bowl pick, is watching its season quickly slip away. And the calendar hasn’t turned to October yet.`\
 https://nytimes.com/athletic/6672242/2025/09/29/ravens-loss-chiefs-lamar-jackson-injury/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6670829/2025/09/29/rangers-mika-zibanejad-miller-su
 **Red Sox may lean lefty in ’pen and other roster matters ahead of wild-card series**\
 `A look at the lineup the Red Sox could send out in Game 1 against Yankees lefty Max Fried, and why Brayan Bello lines up for Game 2.`\
 https://nytimes.com/athletic/6672432/2025/09/29/red-sox-roster-projection-yankees-wild-card/
-
-**Five things we've learned about the Big Ten in September: QBs, contenders and more**\
-`The Big Ten’s first major weekend of conference games provided clarity on which teams have championship potential and which have work to do.`\
-https://nytimes.com/athletic/6671556/2025/09/29/big-ten-football-standings-rankings-takeaways/
-
-**Projecting Jets' opening-night roster: Samberg's injury creates new questions**\
-`Which depth defencemen — or even depth forwards — could get an unexpected roster spot to start the season?`\
-https://nytimes.com/athletic/6670470/2025/09/29/jets-samberg-injury-roster-projection/
-
-**Tyler Tucker on his knee injury, biggest fight and telling his twin happy birthday: Q&A**\
-`Blues defenseman Tyler Tucker tore his MCL and dislocated his kneecap in last season's playoffs, but he's back to 100 percent health.`\
-https://nytimes.com/athletic/6540414/2025/09/29/blues-tyler-tucker-injury-preseason-twins/
-
-**Lefty arms will own this postseason. To prepare hitters, some teams are keeping it old school**\
-`To counter the flamethrowing lefties taking over the league, teams prepare with the help of soft-tossing college coaches and retired pros.`\
-https://nytimes.com/athletic/6659776/2025/09/29/lefty-batting-practice-pitchers-mlb-playoffs/
-
-**Entering key season, Austin Reaves is again proving his worth is par for the course**\
-`"I feel like I could be an All-Star," says Reaves, who is set to enter his fifth NBA season and the final year of his Lakers contract. `\
-https://nytimes.com/athletic/6669125/2025/09/29/austin-reaves-lakers-contract-training-camp/
 
