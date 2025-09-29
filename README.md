@@ -1,3 +1,7 @@
+**Analyzing the Knicks preseason: More five-out offense? New lineups?**\
+`Discussing the Knicks' offense, tweaks and added depth as preseason schedule gets underway. `\
+https://nytimes.com/athletic/6667789/2025/09/29/knicks-offense-josh-hart-mitchell-robinson-preseason/
+
 **Why the Chiefs' win brought 'flashback memories.' And how 2 players changed the vibe**\
 `Chiefs running back Kareem Hunt had the best kind of flashback after Sunday's win because the offense was humming.`\
 https://nytimes.com/athletic/6670841/2025/09/29/chiefs-xavier-worthy-kareem-hunt-ravens/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6671863/2025/09/29/yankees-wild-card-series-roster-
 **Packers' lofty expectations waver after tie vs. Cowboys: 'A lot of stuff to clean up'**\
 `The Packers are 2-1-1 entering their bye week after a 40-40 tie with the Cowboys on Sunday night.`\
 https://nytimes.com/athletic/6672696/2025/09/29/packers-cowboys-tie-micah-parsons-jordan-love/
-
-**What we're hearing about Alpine's 2026 F1 plans, and the drivers in contention**\
-`Who will partner with Pierre Gasly next season? Alpine isn't sure yet, but there are clear candidates`\
-https://nytimes.com/athletic/6671939/2025/09/29/alpine-f1-2026-driver-colapinto-doohan-aron/
 
