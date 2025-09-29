@@ -1,3 +1,19 @@
+**Colorado condemns fans' use of 'religious slurs' directed at BYU**\
+`The chants took place during Saturday's football game at Colorado, which BYU won 24-21.`\
+https://nytimes.com/athletic/6673335/2025/09/29/colorado-byu-chant-apology/
+
+**Bruce Springsteen Reflects on ‘Dangerous Times’**\
+`At a New York Film Festival screening of the new film “Springsteen: Deliver Me From Nowhere,” the musician performed his hymn for the country, “Land of Hope and Dreams.”`\
+https://nytimes.com/2025/09/29/style/bruce-springsteen-trump-deliver-me-from-nowhere.html
+
+**Bake Time, All the Time**\
+`Welcome to our new baking newsletter! I’m thrilled to be your host (and the creator of this new boozy apple crunch cake).`\
+https://nytimes.com/2025/09/29/dining/bake-time-boozy-apple-crunch-cake-recipe.html
+
+**Brazil Has a New Digital Spending Habit. Now It’s a Trump Target.**\
+`Brazil’s fast and free homegrown digital payment system, PIX, has become wildly popular. The Trump administration says it unfairly undercuts U.S. companies.`\
+https://nytimes.com/2025/09/29/world/americas/brazil-digital-payments.html
+
 **A 102-Year-Old Yoga Teacher’s Simple Approach to Aging Well**\
 `For decades, Charlotte Chopin has been bending and stretching in Léré, a village in France. Here’s how she keeps moving.`\
 https://nytimes.com/2025/09/29/well/move/102-year-old-yogi-charlotte-chopin.html
@@ -17,20 +33,4 @@ https://nytimes.com/2025/09/29/dining/i-wish-id-had-this-recipe-in-college.html
 **At 102, This Yogi Keeps It Moving. She Teaches Others to Do the Same.**\
 `Charlotte Chopin’s day consists of a simple breakfast, spending time outdoors and teaching yoga.`\
 https://nytimes.com/video/well/move/100000010423399/yoga-teacher-charlotte-chopin.html
-
-**Canucks stock watch: Who's trending up in preseason, and who's trending down?**\
-`These individual performances have crystallized the battle to make the Canucks' 23-man roster for opening night.`\
-https://nytimes.com/athletic/6672335/2025/09/29/canucks-stock-watch-cootes-preseason-2025/
-
-**A Black Man’s Death in Mississippi Strikes the Nation’s Raw Nerves**\
-`The authorities say Trey Reed took his own life on his college campus, but in a nation ready to jump to judgment and in a state with its history of racial violence, that conclusion has not ended the story.`\
-https://nytimes.com/2025/09/29/us/politics/trey-reed-hanging-mississippi.html
-
-**South Africa hit with World Cup blow as FIFA dock points for ineligible player**\
-`Third-placed Nigeria face new leaders Benin on October 14 in a game that could be decisive for World Cup qualification.`\
-https://nytimes.com/athletic/6673238/2025/09/29/world-cup-south-africa-nigeria-benin/
-
-**Packers mailbag: Submit your questions to beat writer Matt Schneidman**\
-`What's on your mind after a Week 4 tie and heading into the bye?`\
-https://nytimes.com/athletic/6673374/2025/09/29/packers-mailbag-bye-week-cowboys-tie/
 

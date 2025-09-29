@@ -1,3 +1,19 @@
+**Colorado condemns fans' use of 'religious slurs' directed at BYU**\
+`The chants took place during Saturday's football game at Colorado, which BYU won 24-21.`\
+https://nytimes.com/athletic/6673335/2025/09/29/colorado-byu-chant-apology/
+
+**Bruce Springsteen Reflects on ‘Dangerous Times’**\
+`At a New York Film Festival screening of the new film “Springsteen: Deliver Me From Nowhere,” the musician performed his hymn for the country, “Land of Hope and Dreams.”`\
+https://nytimes.com/2025/09/29/style/bruce-springsteen-trump-deliver-me-from-nowhere.html
+
+**Bake Time, All the Time**\
+`Welcome to our new baking newsletter! I’m thrilled to be your host (and the creator of this new boozy apple crunch cake).`\
+https://nytimes.com/2025/09/29/dining/bake-time-boozy-apple-crunch-cake-recipe.html
+
+**Brazil Has a New Digital Spending Habit. Now It’s a Trump Target.**\
+`Brazil’s fast and free homegrown digital payment system, PIX, has become wildly popular. The Trump administration says it unfairly undercuts U.S. companies.`\
+https://nytimes.com/2025/09/29/world/americas/brazil-digital-payments.html
+
 **A 102-Year-Old Yoga Teacher’s Simple Approach to Aging Well**\
 `For decades, Charlotte Chopin has been bending and stretching in Léré, a village in France. Here’s how she keeps moving.`\
 https://nytimes.com/2025/09/29/well/move/102-year-old-yogi-charlotte-chopin.html
