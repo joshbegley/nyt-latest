@@ -1,3 +1,7 @@
+**Five games, no wins – Postecoglou must find calm amid the chaos at Forest**\
+`Despite showing signs that it could all click spectacularly, the head coach has not found a way to successfully make his mark`\
+https://nytimes.com/athletic/6669845/2025/09/29/nottingham-forest-postecoglou-sunderland-analysis/
+
 **Tottenham's Palhinha problem**\
 `The Bayern Munich loanee has brought a lot to Thomas Frank's side already but that does not mean he is right for every game`\
 https://nytimes.com/athletic/6661859/2025/09/29/tottenham-hotspur-palhinha-wolves-problem/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6668425/2025/09/29/leeds-tyler-adams-bournemouth-el
 **The Briefing: What did victory say about Arsenal and Arteta? Why more late goals? Who are the 'best team in Europe'?**\
 `Dissecting the Premier League's big weekend talking points, from Arteta proving a point (or three) to an incredible unbeaten run`\
 https://nytimes.com/athletic/6671124/2025/09/29/arsenal-arteta-premier-league/
-
-**Russia Unleashes Hourslong Barrage on Kyiv**\
-`Russia’s hourslong aerial assault on Sunday bombarded Kyiv and other Ukrainian cities, leaving at least four people dead and dozens injured.`\
-https://nytimes.com/video/world/europe/100000010427007/ukraine-kyiv-russia-strikes.html
 

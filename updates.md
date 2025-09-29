@@ -1,3 +1,7 @@
+**Five games, no wins – Postecoglou must find calm amid the chaos at Forest**\
+`Despite showing signs that it could all click spectacularly, the head coach has not found a way to successfully make his mark`\
+https://nytimes.com/athletic/6669845/2025/09/29/nottingham-forest-postecoglou-sunderland-analysis/
+
 **Tottenham's Palhinha problem**\
 `The Bayern Munich loanee has brought a lot to Thomas Frank's side already but that does not mean he is right for every game`\
 https://nytimes.com/athletic/6661859/2025/09/29/tottenham-hotspur-palhinha-wolves-problem/
