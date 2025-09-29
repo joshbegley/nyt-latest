@@ -1,3 +1,7 @@
+**Gochugaru Salmon with Crispy Rice**\
+`Gochugaru, a mild, fragrant red-pepper powder, bedazzles in this quick dinner of gochugaru salmon with crispy rice.`\
+https://nytimes.com/video/dining/100000010364845/gochugaru-salmon-with-crispy-rice.html
+
 **Notre Dame-Arkansas final thoughts: An all-phases improvement one month in**\
 `For the first time all year, the Irish got better on both sides of the ball. That was common last year. It’s been rare this season.`\
 https://nytimes.com/athletic/6673026/2025/09/29/notre-dame-arkansas-marcus-freeman/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/29/world/europe/denmark-drones-eu-summit-airspace-cl
 **Two Major Storms Will Affect the East Coast, Even Without Landfall**\
 `Hurricane Humberto and Tropical Storm Imelda are expected to bring high surf, rip currents and heavy rainfall, though they won’t directly hit the United States.`\
 https://nytimes.com/2025/09/29/weather/humberto-imelda-carolina-florida-forecast.html
-
-**Trump Administration Live Updates: President to Meet With Congressional Leaders as Shutdown Looms**\
-``\
-https://nytimes.com/live/2025/09/29/us/trump-news-shutdown
 
