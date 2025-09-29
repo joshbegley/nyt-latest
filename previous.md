@@ -1,3 +1,11 @@
+**A President’s Remarks Harshly Single Out Men With a Particular Name**\
+`An offhand comment by President Gustavo Petro of Colombia about men with a stigmatized first name has set off a backlash and broader discussions over classism.`\
+https://nytimes.com/2025/09/29/world/americas/gustavo-petro-colombia-president-brayan.html
+
+**Moldova Moves Toward Europe, but Russian Tug-of-War Persists**\
+`Moldova’s pro-European party held onto its absolute majority in Parliament in national elections, but it still has a long road into the European Union.`\
+https://nytimes.com/2025/09/29/world/europe/moldova-elections-russia-europe.html
+
 **Danger and Intrigue Hang Over Power Cut at Russian-Held Nuclear Plant**\
 `The Zaporizhzhia site in southeastern Ukraine has lacked external power to cool its reactors for five days. Kyiv says Moscow has manufactured the crisis.`\
 https://nytimes.com/2025/09/29/world/europe/zaporizhzhia-nuclear-power-plant-russia-ukraine.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6673694/2025/09/29/giants-bob-melvin-manager-fired/
 **The Future of New York**\
 `A series on what we can expect over the coming decades, and beyond, for the city.`\
 https://nytimes.com/spotlight/futureNYC
-
-**Democrats Are Trying the Costanza Strategy**\
-`Democrats need a new plan for 2028, argues the Opinion columnist Carlos Lozada in this round table from “The Opinions.”`\
-https://nytimes.com/video/opinion/100000010423773/democrats-are-trying-the-costanza-strategy.html
-
-**Kamala Harris 2028?**\
-`Harris’s book reveals why she should not be the Democratic presidential nominee in 2028, according to Lydia Polgreen in this week’s round table from “The Opinions.”`\
-https://nytimes.com/video/opinion/100000010423770/kamala-harris-2028.html
 

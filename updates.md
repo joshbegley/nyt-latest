@@ -1,3 +1,11 @@
+**A President’s Remarks Harshly Single Out Men With a Particular Name**\
+`An offhand comment by President Gustavo Petro of Colombia about men with a stigmatized first name has set off a backlash and broader discussions over classism.`\
+https://nytimes.com/2025/09/29/world/americas/gustavo-petro-colombia-president-brayan.html
+
+**Moldova Moves Toward Europe, but Russian Tug-of-War Persists**\
+`Moldova’s pro-European party held onto its absolute majority in Parliament in national elections, but it still has a long road into the European Union.`\
+https://nytimes.com/2025/09/29/world/europe/moldova-elections-russia-europe.html
+
 **Danger and Intrigue Hang Over Power Cut at Russian-Held Nuclear Plant**\
 `The Zaporizhzhia site in southeastern Ukraine has lacked external power to cool its reactors for five days. Kyiv says Moscow has manufactured the crisis.`\
 https://nytimes.com/2025/09/29/world/europe/zaporizhzhia-nuclear-power-plant-russia-ukraine.html
