@@ -1,3 +1,11 @@
+**California Governor Signs Sweeping A.I. Law**\
+`Gavin Newsom signed a major safety law on artificial intelligence, creating one of the strongest sets of rules about the technology in the nation.`\
+https://nytimes.com/2025/09/29/technology/california-ai-safety-law.html
+
+**Capricious or decisive? Why Buster Posey reversed course and fired Bob Melvin**\
+`Posey has some candidates to replace Melvin in mind but didn't disclose names. "Someone who's going to be obsessive about the details..."`\
+https://nytimes.com/athletic/6674463/2025/09/29/sf-giants-buster-posey-bob-melvin-firing/
+
 **See How E.V. Road Trips Went From Impossible to Easy**\
 `There are a lot more fast chargers than there used to be. Look up what that could mean for a route near you.`\
 https://nytimes.com/interactive/2025/09/29/upshot/ev-chargers-road-trip.html
