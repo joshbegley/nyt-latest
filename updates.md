@@ -1,3 +1,23 @@
+**Lucas Giolito to miss Wild Card Series with elbow issues**\
+`The Red Sox are hopeful Giolito's injury isn't serious, but regardless they will be without him for the Wild Card Series.`\
+https://nytimes.com/athletic/6674072/2025/09/29/boston-red-sox-lucas-giolito-wild-card-elbow-injury/
+
+**How to watch Tigers at Guardians: Game 1 Time, TV, streaming**\
+`Find out how to watch the Detroit Tigers play the Cleveland Guardians, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6674094/2025/09/29/tigers-vs-guardians-stream-how-to-watch-sept-30/
+
+**What to Know About the Canada Post Strike**\
+`Postal workers walked off the job to protest cost-cutting measures ordered by the government that are likely to lead to major job losses.`\
+https://nytimes.com/2025/09/29/world/canada/post-canada-strike.html
+
+**Charlie Javice Sentenced to 85 Months in Prison for Fraud**\
+`A federal jury in March had found Ms. Javice guilty for faking customer lists during JPMorgan Chase’s $175 million acquisition of her start-up.`\
+https://nytimes.com/2025/09/29/business/charlie-javice-sentence.html
+
+**Tyrese Haliburton feels rehab will let him 'see the game in a different way'**\
+`Tyrese Haliburton on Achilles rupture recovery: "It’s coming along. I feel like I’m right on cue."`\
+https://nytimes.com/athletic/6673920/2025/09/29/tyrese-haliburton-achilles-rehab-pacers-nba/
+
 **Simple Routine, Remarkable Results**\
 `Great skincare doesn't have to be complicated. Discover the power of Clinique's iconic three-step system.`\
 https://nytimes.com/paidpost/2025-07-07/.html
