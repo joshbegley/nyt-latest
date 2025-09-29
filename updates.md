@@ -1,3 +1,11 @@
+** The AI Imperative: Mapping What’s Possible**\
+` Industry leaders are latching onto a new way to use AI—with the power of geography—for business success`\
+https://nytimes.com/paidpost/esri/esri/-the-ai-imperative-mapping-whats-possible.html
+
+**Tests confirm Giants WR Malik Nabers tore his ACL: Source**\
+`Veteran wide receiver Darius Slayton will be expected to take on a bigger role in Nabers' absence. `\
+https://nytimes.com/athletic/6673441/2025/09/29/malik-nabers-ny-giants-acl-injury/
+
 **Colorado condemns fans' use of 'religious slurs' directed at BYU**\
 `The chants took place during Saturday's football game at Colorado, which BYU won 24-21.`\
 https://nytimes.com/athletic/6673335/2025/09/29/colorado-byu-chant-apology/

@@ -1,3 +1,11 @@
+** The AI Imperative: Mapping What’s Possible**\
+` Industry leaders are latching onto a new way to use AI—with the power of geography—for business success`\
+https://nytimes.com/paidpost/esri/esri/-the-ai-imperative-mapping-whats-possible.html
+
+**Tests confirm Giants WR Malik Nabers tore his ACL: Source**\
+`Veteran wide receiver Darius Slayton will be expected to take on a bigger role in Nabers' absence. `\
+https://nytimes.com/athletic/6673441/2025/09/29/malik-nabers-ny-giants-acl-injury/
+
 **Colorado condemns fans' use of 'religious slurs' directed at BYU**\
 `The chants took place during Saturday's football game at Colorado, which BYU won 24-21.`\
 https://nytimes.com/athletic/6673335/2025/09/29/colorado-byu-chant-apology/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/09/29/arts/music/dolly-parton-las-vegas.html
 **NFL Week 5 odds, spreads: Chiefs, Bills, Rams favored in primetime matchups**\
 `Which teams are the biggest favorites and underdogs for Week 5?`\
 https://nytimes.com/athletic/6673230/2025/09/29/nfl-week-5-early-odds-spreads-chiefs-bills-rams/
-
-**I Wish I’d Had This Recipe in College**\
-`Nargisse Benkabbou’s ras el hanout chickpea and spinach stew is sustaining, inexpensive and full of rich, captivating flavors.`\
-https://nytimes.com/2025/09/29/dining/i-wish-id-had-this-recipe-in-college.html
-
-**At 102, This Yogi Keeps It Moving. She Teaches Others to Do the Same.**\
-`Charlotte Chopin’s day consists of a simple breakfast, spending time outdoors and teaching yoga.`\
-https://nytimes.com/video/well/move/100000010423399/yoga-teacher-charlotte-chopin.html
 
