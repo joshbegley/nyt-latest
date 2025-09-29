@@ -1,3 +1,11 @@
+**Warriors' Jonathan Kuminga misses media day amid contract standoff**\
+`Golden State GM Mike Dunleavy and coach Steve Kerr were also absent Monday, which was unusual for the typically-accessible organization.`\
+https://nytimes.com/athletic/6674550/2025/09/29/jonathan-kuminga-warriors-contract-dispute-media-day-absence/
+
+**Trump Administration Will Deploy 100 National Guard Troops to Illinois**\
+`The Department of Homeland Security requested the deployment over the objections of state officials, including Gov. JB Pritzker, a Democrat.`\
+https://nytimes.com/2025/09/29/us/trump-national-guard-chicago.html
+
 **Police Arrest 3 in Vandalism of New York Times Building**\
 `One person was charged with a hate crime in connection with a social media post that referred to The Times’s executive editor, Joseph Kahn.`\
 https://nytimes.com/2025/09/29/nyregion/new-york-times-building-vandalism-charges.html
