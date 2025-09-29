@@ -1,3 +1,11 @@
+**Bucks' Giannis Antetokounmpo to miss start of training camp with COVID-19**\
+`Antetokounmpo is still in Greece, per general manager Jon Horst, with COVID-19 keeping him from traveling to Milwaukee.`\
+https://nytimes.com/athletic/6673818/2025/09/29/giannis-antetokounmpo-bucks-training-camp/
+
+**Ward-Prowse out of Nuno's first West Ham squad against Everton**\
+`The 30-year-old made ten appearances under Nuno at Forest on loan last season. `\
+https://nytimes.com/athletic/6673874/2025/09/29/james-ward-prowse-west-ham-nuno-espirito-santo-squad-george-earthy/
+
 **Trump Expands Global Technology Net With Rules Covering Subsidiaries**\
 `The Trump administration issued a rule to automatically extend trade restrictions for organizations on the “entity list” to any majority-owned subsidiary.`\
 https://nytimes.com/2025/09/29/business/economy/trump-entity-list-rule-change.html
