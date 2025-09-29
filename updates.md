@@ -1,3 +1,7 @@
+**How to watch West Virginia at BYU: Time, TV, streaming**\
+`Find out how to watch the West Virginia Mountaineers play the BYU Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6672833/2025/09/29/west-virginia-vs-byu-stream-how-to-watch-oct-3/
+
 **Coalition of 50 athletes sign letter calling for Israel's suspension from football**\
 `The letter argues "sport cannot stand silent while athletes and civilians including children are indiscriminately killed en masse in Gaza".`\
 https://nytimes.com/athletic/6672769/2025/09/29/israel-gaza-football-suspension-letter/

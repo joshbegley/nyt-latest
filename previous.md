@@ -1,3 +1,7 @@
+**How to watch West Virginia at BYU: Time, TV, streaming**\
+`Find out how to watch the West Virginia Mountaineers play the BYU Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6672833/2025/09/29/west-virginia-vs-byu-stream-how-to-watch-oct-3/
+
 **Coalition of 50 athletes sign letter calling for Israel's suspension from football**\
 `The letter argues "sport cannot stand silent while athletes and civilians including children are indiscriminately killed en masse in Gaza".`\
 https://nytimes.com/athletic/6672769/2025/09/29/israel-gaza-football-suspension-letter/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6672746/2025/09/29/barcelona-yamal-camp-nou-injurie
 **How Adams Lost His Coalition and Became an Also-Ran**\
 `Eric Adams started with strong support among Black and working-class voters. By the time he dropped out, his re-election effort was polling below 10 percent.`\
 https://nytimes.com/2025/09/29/nyregion/adams-coalition.html
-
-**Alaska Seized a $95,000 Plane Over Illicit Cargo: A Six-Pack of Beer**\
-`The plane’s owner, an 82-year-old veteran, has asked the Supreme Court to hear his case and set limits on forfeitures of property used to commit crimes.`\
-https://nytimes.com/2025/09/29/us/politics/alaska-plane-beer-supreme-court.html
 
