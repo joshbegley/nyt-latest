@@ -1,3 +1,7 @@
+**Afghanistan Has Nationwide Internet Blackout, Monitors Say**\
+`The nationwide blackout came two weeks after the Taliban shut down the internet in half a dozen provinces, saying they wanted to prevent “immoral acts.”`\
+https://nytimes.com/2025/09/29/world/asia/internet-blackout-afghanistan.html
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>What a fun night watching both Oregon-Penn State and Alabama-Georgia last weekend. How do we top it?</p>
 <p>Leave your questions here. Please include your city.</p>
@@ -36,8 +40,4 @@ https://nytimes.com/athletic/6673475/2025/09/29/alex-palou-mclaren-contract-disp
 `In the pristine waters off Vancouver Island, fronds of giant sea kelp begin their journey into La Mer’s storied Miracle Broth™. This fermentation ignites a process of palpable renewal in skin.  
 `\
 https://nytimes.com/paidpost/la-mer/how-transferring-the-energy-of-the-sea-became-beautys-best-kept-secret.html
-
-**NFL overreaction Monday: In Baker we believe (to fight like heck)**\
-`Toby Mergler makes four early Week 5 picks wildly over-indexing on vibes, small sample sizes and comparisons to pop culture classics.`\
-https://nytimes.com/athletic/6673734/2025/09/29/nfl-overreaction-monday-week-5/
 
