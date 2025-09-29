@@ -1,3 +1,15 @@
+**The Rise and Fall of Eric Adams**\
+`Mr. Adams has suspended his re-election campaign, becoming the first mayor of New York City to fail to win a second term since David N. Dinkins.`\
+https://nytimes.com/2025/09/29/nyregion/eric-adams-mayor-history.html
+
+**Welcome to the Jumble: Inside Brooklyn’s Bike Flea Market**\
+`The community of those who love biking in the city keeps growing.`\
+https://nytimes.com/2025/09/29/nyregion/park-slope-bike-jumble.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/09/29/crosswords/spelling-bee-forum.html
+
 **Word of the Day: salubrious**\
 `This word has appeared in 10 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/09/29/learning/word-of-the-day-salubrious.html

@@ -26,7 +26,7 @@ https://nytimes.com/issue/todayspaper/2025/09/29/todays-new-york-times
 `The third season of Ryan Murphy’s anthology series airs, and Glen Powell stars in “Chad Powers.”`\
 https://nytimes.com/2025/09/29/arts/television/monster-the-ed-gein-story.html
 
-**I Beat the Chatbot That Stole My Book**\
+**I Sued Anthropic, and the Unthinkable Happened**\
 `A.I. feels like a runaway train. But we don’t have to let it run over us.`\
 https://nytimes.com/2025/09/29/opinion/anthropic-chatbot-lawsuit-books.html
 
@@ -34,7 +34,7 @@ https://nytimes.com/2025/09/29/opinion/anthropic-chatbot-lawsuit-books.html
 `Green Bay's Brandon McManus kicked a 34-yard field goal as time expired in overtime, resulting in a tied game.`\
 https://nytimes.com/athletic/6671905/2025/09/29/packers-cowboys-snf-score-results/
 
-**Passengers Report Delays at Canadian Airports After Tech Outage**\
-`Immigration inspection kiosks were offline at major airports in Montreal, Toronto and Calgary. Some passengers said they were stranded on planes.`\
+**Tech Outage at Canadian Airports Resolved After Causing Delays**\
+`Immigration kiosks were offline for hours at major airports and some passengers said they were stranded on planes. The outage was resolved early Monday.`\
 https://nytimes.com/2025/09/29/world/americas/outage-canada-airports-flights.html
 
