@@ -1,3 +1,19 @@
+**Investigators Seek Motive for Michigan Church Attack That Killed 4**\
+`The F.B.I. is searching homes connected with the attacker, who died at the scene, and his family, who are cooperating with the authorities.`\
+https://nytimes.com/2025/09/29/us/michigan-church-attack.html
+
+**Atletico dominated the derby by exposing Real Madrid in the channels**\
+`Diego Simeone's side thrashed their city rivals by going back to basics — as they often do in the 'derbi'`\
+https://nytimes.com/athletic/6672881/2025/09/29/atletico-real-madrid-derby-tactical-analysis/
+
+**'How many lives have to be lost?': FA accused of risking footballers' safety with concrete pitch barriers**\
+`The FA was warned about the dangers of concrete pitch barriers in 2015 but only opened a review last week after Billy Vigar's death aged 21`\
+https://nytimes.com/athletic/6673263/2025/09/29/vigar-fletcher-hiscox-concrete-fa-barriers/
+
+**‘Mine, Baby, Mine’: Trump Officials Offer $625 Million to Rescue Coal**\
+`The new effort, which includes opening 13.1 million acres of federal land for mining and eliminating pollution limits, aims to save an industry that has been declining for decades.`\
+https://nytimes.com/2025/09/29/climate/trump-coal-revival.html
+
 **Bronx Casino Proposal Advances in Bid for New York Gambling License**\
 `If Bally’s Bronx is awarded a license, it would have to pay $115 million to the Trump Organization, which operated a golf course on the site.`\
 https://nytimes.com/2025/09/29/nyregion/ballys-bronx-casino-bid-brooklyn-ny.html
@@ -21,20 +37,4 @@ https://nytimes.com/paidpost/esri/esri/-the-ai-imperative-mapping-whats-possible
 **Tests confirm Giants WR Malik Nabers tore his ACL: Source**\
 `Veteran wide receiver Darius Slayton will be expected to take on a bigger role in Nabers' absence. `\
 https://nytimes.com/athletic/6673441/2025/09/29/malik-nabers-ny-giants-acl-injury/
-
-**Colorado condemns fans' use of 'religious slurs' directed at BYU**\
-`The chants took place during Saturday's football game at Colorado, which BYU won 24-21.`\
-https://nytimes.com/athletic/6673335/2025/09/29/colorado-byu-chant-apology/
-
-**Bruce Springsteen Reflects on ‘Dangerous Times’**\
-`At a New York Film Festival screening of the new film “Springsteen: Deliver Me From Nowhere,” the musician performed his hymn for the country, “Land of Hope and Dreams.”`\
-https://nytimes.com/2025/09/29/style/bruce-springsteen-trump-deliver-me-from-nowhere.html
-
-**Bake Time, All the Time**\
-`Welcome to our new baking newsletter! I’m thrilled to be your host (and the creator of this new boozy apple crunch cake).`\
-https://nytimes.com/2025/09/29/dining/bake-time-boozy-apple-crunch-cake-recipe.html
-
-**Brazil Has a New Digital Spending Habit. Now It’s a Trump Target.**\
-`Brazil’s fast and free homegrown digital payment system, PIX, has become wildly popular. The Trump administration says it unfairly undercuts U.S. companies.`\
-https://nytimes.com/2025/09/29/world/americas/brazil-digital-payments.html
 
