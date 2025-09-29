@@ -1,3 +1,11 @@
+**Two HUD civil rights lawyers were dismissed after raising concerns about Fair Housing Act enforcement.**\
+`By Debra Kamin`\
+https://nytimes.com/live/2025/09/29/us/trump-news-shutdown/hud-lawyers-whistleblowers
+
+**The Comey Indictment: A Danger Signal**\
+`Readers react to the indictment of the former F.B.I. director. Also: The Canadian snowbirds’ changing flight patterns; AirPods that translate.`\
+https://nytimes.com/2025/09/29/opinion/james-comey-indictment-trump.html
+
 **IndyCar champion Palou attends court in London over McLaren contract dispute**\
 `The 28-year-old had agreed to join Arrow McLaren for the 2023 season but eventually remained with Chip Ganassi Racing.`\
 https://nytimes.com/athletic/6673475/2025/09/29/alex-palou-mclaren-contract-dispute/

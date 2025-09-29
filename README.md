@@ -1,3 +1,11 @@
+**Spurs forward Solanke to have surgery on ankle problem**\
+`The 28-year-old has not played since their second game of the 2025-26 season against Manchester City.`\
+https://nytimes.com/athletic/6591858/2025/09/29/dominic-solanke-ankle-surgery-tottenham-hotspur/
+
+**Scoop City: Risers and fallers after Week 4**\
+`How teams are trending after the Ravens lost another, Packers tied the Cowboys and the Patriots looked like a complete team`\
+https://nytimes.com/athletic/6673934/2025/09/29/nfl-risers-fallers-trending-week-4-ravens-patriots/
+
 **Two HUD civil rights lawyers were dismissed after raising concerns about Fair Housing Act enforcement.**\
 `By Debra Kamin`\
 https://nytimes.com/live/2025/09/29/us/trump-news-shutdown/hud-lawyers-whistleblowers
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6673874/2025/09/29/james-ward-prowse-west-ham-nuno-
 **Trump Expands Global Technology Net With Rules Covering Subsidiaries**\
 `The Trump administration issued a rule to automatically extend trade restrictions for organizations on the “entity list” to any majority-owned subsidiary.`\
 https://nytimes.com/2025/09/29/business/economy/trump-entity-list-rule-change.html
-
-**Pro-European Party Is Set to Win Moldovan Election**\
-`In an election widely seen as a showdown between Europe and Russia, Moldova’s pro-European party of President Maia Sandu won slightly more than 50 percent of the vote, according to preliminary results. The win could further the country’s bid to enter the European Union.`\
-https://nytimes.com/video/world/europe/100000010427372/moldovan-election-europe-russia.html
-
-**French Open keeps line judges for 2026 tournament, making it a Grand Slam outlier**\
-`It became the last major to reject electronic line calling when Wimbledon removed line judges earlier this year.`\
-https://nytimes.com/athletic/6673736/2025/09/29/tennis-french-open-line-judges-ball-marks/
 

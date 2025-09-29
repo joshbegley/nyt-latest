@@ -1,3 +1,11 @@
+**Two HUD civil rights lawyers were dismissed after raising concerns about Fair Housing Act enforcement.**\
+`By Debra Kamin`\
+https://nytimes.com/live/2025/09/29/us/trump-news-shutdown/hud-lawyers-whistleblowers
+
+**The Comey Indictment: A Danger Signal**\
+`Readers react to the indictment of the former F.B.I. director. Also: The Canadian snowbirds’ changing flight patterns; AirPods that translate.`\
+https://nytimes.com/2025/09/29/opinion/james-comey-indictment-trump.html
+
 **IndyCar champion Palou attends court in London over McLaren contract dispute**\
 `The 28-year-old had agreed to join Arrow McLaren for the 2023 season but eventually remained with Chip Ganassi Racing.`\
 https://nytimes.com/athletic/6673475/2025/09/29/alex-palou-mclaren-contract-dispute/
@@ -30,12 +38,4 @@ https://nytimes.com/video/world/europe/100000010427372/moldovan-election-europe-
 **French Open keeps line judges for 2026 tournament, making it a Grand Slam outlier**\
 `It became the last major to reject electronic line calling when Wimbledon removed line judges earlier this year.`\
 https://nytimes.com/athletic/6673736/2025/09/29/tennis-french-open-line-judges-ball-marks/
-
-**Strike Threats Greet Appointment of Venice Opera’s New Conductor**\
-`Workers at La Fenice say Beatrice Venezi, a favorite of Prime Minister Giorgia Meloni of Italy, lacks the experience to be the storied company’s music director.`\
-https://nytimes.com/2025/09/29/arts/music/beatrice-venezi-la-fenice.html
-
-**A President’s Remarks Harshly Single Out Men With a Particular Name**\
-`An offhand comment by President Gustavo Petro of Colombia about men with a stigmatized first name has set off a backlash and broader discussions over classism.`\
-https://nytimes.com/2025/09/29/world/americas/gustavo-petro-colombia-president-brayan.html
 
