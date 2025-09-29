@@ -1,3 +1,7 @@
+**Shell Casings and DNA on Fingernails Helped Crack ‘Yogurt Shop’ Murder Case**\
+`Old-fashioned detective work and advances in forensic science led to the identification of a suspect in the killings of four teenagers in Austin, Texas, in 1991, officials said.`\
+https://nytimes.com/2025/09/29/us/yogurt-shop-murders-solved-dna.html
+
 **Madagascar’s President Dissolves Government Amid Deadly Protests**\
 `Andry Rajoelina, the leader of the island nation in Africa, acknowledged grievances over power cuts and water shortages that have drawn thousands of young people to the streets.`\
 https://nytimes.com/2025/09/29/world/africa/madagascar-government.html
