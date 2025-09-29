@@ -1,3 +1,15 @@
+**Giants owner John Mara announces cancer diagnosis**\
+`Mara, 70, shared the news in a post on X. He did not say what kind of cancer he has or what stage it is in. `\
+https://nytimes.com/athletic/6673958/2025/09/29/nfl-giants-owner-john-mara-cancer-diagnosis/
+
+**Here Is the Full Text of the Gaza Plan Released by the White House**\
+`“If both sides agree to this proposal, the war will immediately end,” the White House proposal says.`\
+https://nytimes.com/2025/09/29/world/middleeast/-full-text-of-gaza-plan.html
+
+**Mourinho: Chelsea are 'back on track' and can win Champions League**\
+`The Portuguese head coach won five trophies in his two spells with the London side, between 2004-07 and 2012-15.`\
+https://nytimes.com/athletic/6673991/2025/09/29/jose-mourinho-chelsea-champions-league/
+
 **Afghanistan Has Nationwide Internet Blackout, Monitors Say**\
 `The nationwide blackout came two weeks after the Taliban shut down the internet in half a dozen provinces, saying they wanted to prevent “immoral acts.”`\
 https://nytimes.com/2025/09/29/world/asia/internet-blackout-afghanistan.html
@@ -27,17 +39,4 @@ https://nytimes.com/athletic/6673934/2025/09/29/nfl-risers-fallers-trending-week
 **Two HUD civil rights lawyers were dismissed after raising concerns about Fair Housing Act enforcement.**\
 `By Debra Kamin`\
 https://nytimes.com/live/2025/09/29/us/trump-news-shutdown/hud-lawyers-whistleblowers
-
-**The Comey Indictment: A Danger Signal**\
-`Readers react to the indictment of the former F.B.I. director. Also: The Canadian snowbirds’ changing flight patterns; AirPods that translate.`\
-https://nytimes.com/2025/09/29/opinion/james-comey-indictment-trump.html
-
-**IndyCar champion Palou attends court in London over McLaren contract dispute**\
-`The 28-year-old had agreed to join Arrow McLaren for the 2023 season but eventually remained with Chip Ganassi Racing.`\
-https://nytimes.com/athletic/6673475/2025/09/29/alex-palou-mclaren-contract-dispute/
-
-**How Transferring the Energy of the Sea Became Beauty’s Best-Kept Secret**\
-`In the pristine waters off Vancouver Island, fronds of giant sea kelp begin their journey into La Mer’s storied Miracle Broth™. This fermentation ignites a process of palpable renewal in skin.  
-`\
-https://nytimes.com/paidpost/la-mer/how-transferring-the-energy-of-the-sea-became-beautys-best-kept-secret.html
 
