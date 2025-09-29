@@ -1,3 +1,15 @@
+**Inside Newcastle Q&A: Chris Waugh answers your questions**\
+`Supporter concern over Newcastle's attacking output in particular feels increasingly justified. Get your questions in now `\
+https://nytimes.com/athletic/6672742/2025/09/29/inside-newcastle-qa-chris-waugh-livramento-arsenal-forest-usg/
+
+**Tutu Atwell, the forgotten man in Rams' offense, finally had his moment vs. Colts**\
+`Matthew Stafford, who always seems to be at his best in the fourth quarter, connected with Atwell for an 88-yard game-winning score. `\
+https://nytimes.com/athletic/6671944/2025/09/29/tutu-atwell-matthew-stafford-rams-win-colts/
+
+**Why the Baltimore Ravens' rough 1-3 start will not hurt NFL TV viewership**\
+`The NFL front-loaded the Ravens' schedule with challenging, made-for-TV opponents to help the league get off to a fast start with ratings.`\
+https://nytimes.com/athletic/6671904/2025/09/29/baltimore-ravens-nfl-tv-ratings/
+
 **How the Mets lost their groove: Inside baseball's biggest collapse**\
 `Talented, yes, but this year's Mets lacked sizzle. They were MLB's only team never to mount a ninth-inning comeback.`\
 https://nytimes.com/athletic/6672509/2025/09/29/mets-mlb-collapse-mendoza-soto-lindor/
