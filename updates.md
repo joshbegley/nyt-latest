@@ -1,3 +1,7 @@
+**Why Ben Johnson believed in Caleb Williams and the Bears in the final moments**\
+`Williams made plays in the clutch, and the Bears followed their head coach's belief as they pulled off a wild 25-24 victory.`\
+https://nytimes.com/athletic/6672208/2025/09/28/bears-ben-johnson-caleb-williams-raiders/
+
 **Eagles reveal strength in staving off Bucs' comeback attempt**\
 `The Eagles have a bad recent history with games in Tampa.`\
 https://nytimes.com/athletic/6670525/2025/09/28/jihaad-campbell-eagles-offense-comeback/
