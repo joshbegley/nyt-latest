@@ -1,3 +1,7 @@
+**Giorgio Armani’s Last Show**\
+`Richard Gere, Glenn Close and Samuel L. Jackson were among the stars who came out for the 50th anniversary extravaganza Mr. Armani had planned before his death.`\
+https://nytimes.com/2025/09/29/style/giorgio-armani-last-show.html
+
 **Typhoon Bualoi Slams Into Central Vietnam, Bringing Storm’s Death Toll to 22**\
 `It left an additional 21 people missing in Central Vietnam, which is still recovering from another storm. Bualoi’s deadly path started in the Philippines over the weekend.`\
 https://nytimes.com/2025/09/29/world/asia/typhoon-bualoi-vietnam.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/09/29/todays-new-york-times
 **‘Monster: The Ed Gein Story,’ Plus 10 Things to Watch on TV This Week**\
 `The third season of Ryan Murphy’s anthology series airs, and Glen Powell stars in “Chad Powers.”`\
 https://nytimes.com/2025/09/29/arts/television/monster-the-ed-gein-story.html
-
-**I Sued Anthropic, and the Unthinkable Happened**\
-`A.I. feels like a runaway train. But we don’t have to let it run over us.`\
-https://nytimes.com/2025/09/29/opinion/anthropic-chatbot-lawsuit-books.html
 
