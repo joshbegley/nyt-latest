@@ -1,3 +1,7 @@
+**College football transfer portal window could be extended to 15 days**\
+`After the NCAA eliminated the spring transfer portal window for football, committee recommends extending winter window.`\
+https://nytimes.com/athletic/6674598/2025/09/29/college-football-transfer-portal-extend/
+
 **Trump and Comey: An Escalating Conflict With No Off-Ramp**\
 `The yearslong face-off between Donald Trump and James Comey amounts to a case study of how the president grew evermore emboldened to carry out his revenge agenda.`\
 https://nytimes.com/2025/09/29/us/politics/trump-comey-escalating-conflict.html
