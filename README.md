@@ -1,3 +1,11 @@
+**Full Time: USWNT’s impact players in France**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6674377/2025/09/29/uswnt-lyon-psg-full-time/
+
+**Republicans Try Democrats’ Playbook to Stop California Redistricting**\
+`The ad battle is stark: Democracy is under attack, and it’s up to voters to save it.`\
+https://nytimes.com/2025/09/29/us/politics/california-redistricting-ads-trump.html
+
 **Kawhi Leonard dismisses 'conspiracies' with Aspiration endorsement contract**\
 `"None of us did no wrongdoing," Leonard said in his first public comments. "And yeah, I mean, that's it. We invite the investigations."`\
 https://nytimes.com/athletic/6674340/2025/09/29/kawhi-leonard-media-day-aspiration/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/29/briefing/trump-plan-israel-gaza-government-shutdo
 **YouTube Settles Trump Lawsuit for $24.5 Million**\
 `Mr. Trump sued Alphabet, the parent company of YouTube and Google, and other social media companies after the platforms suspended his accounts in 2021.`\
 https://nytimes.com/2025/09/29/technology/youtube-trump-lawsuit-settlement.html
-
-**Lucy Dacus Marries Couples During Music Set**\
-`The Grammy-winning musician Lucy Dacus married nine couples at the “All Things Go” festival in response to efforts by the Trump administration to eliminate programs for L.G.B.T.Q. people.`\
-https://nytimes.com/video/style/100000010428611/lucy-dacus-festival-wedding.html
-
-**Shell Casings and DNA on Fingernails Helped Crack ‘Yogurt Shop’ Murder Case**\
-`Old-fashioned detective work and advances in forensic science led to the identification of a suspect in the killings of four teenagers in Austin, Texas, in 1991, officials said.`\
-https://nytimes.com/2025/09/29/us/yogurt-shop-murders-solved-dna.html
 
