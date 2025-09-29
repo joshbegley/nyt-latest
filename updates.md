@@ -1,3 +1,11 @@
+**Police Arrest 3 in Vandalism of New York Times Building**\
+`One person was charged with a hate crime in connection with a social media post that referred to The Times’s executive editor, Joseph Kahn.`\
+https://nytimes.com/2025/09/29/nyregion/new-york-times-building-vandalism-charges.html
+
+**An Antifascist Movie at a Fascist Moment**\
+`“One Battle After Another” defies Trumpian taboos.`\
+https://nytimes.com/2025/09/29/opinion/one-battle-after-another-fascism.html
+
 **Lakers' LeBron James is happy after tumultuous offseason, at least for now**\
 `Next season is still a huge question mark for LeBron James. But as he goes into his 23rd year, James is not taking anything for granted.`\
 https://nytimes.com/athletic/6674746/2025/09/29/lebron-james-lakers-offseason-media-day/

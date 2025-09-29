@@ -1,3 +1,11 @@
+**Warriors' Jonathan Kuminga misses media day amid contract standoff**\
+`Golden State GM Mike Dunleavy and coach Steve Kerr were also absent Monday, which was unusual for the typically-accessible organization.`\
+https://nytimes.com/athletic/6674550/2025/09/29/jonathan-kuminga-warriors-contract-dispute-media-day-absence/
+
+**Trump Administration Will Deploy 100 National Guard Troops to Illinois**\
+`The Department of Homeland Security requested the deployment over the objections of state officials, including Gov. JB Pritzker, a Democrat.`\
+https://nytimes.com/2025/09/29/us/trump-national-guard-chicago.html
+
 **Police Arrest 3 in Vandalism of New York Times Building**\
 `One person was charged with a hate crime in connection with a social media post that referred to The Times’s executive editor, Joseph Kahn.`\
 https://nytimes.com/2025/09/29/nyregion/new-york-times-building-vandalism-charges.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/29/us/politics/trump-netanyahu-hamas-ultimatum.html
 **Guards Ball, the Gritty Tigs and a rivalry tinged with respect**\
 `The Tigers and Guardians have played six times in two weeks. Entering the AL Wild Card Series, their rivalry has evolved into respect.`\
 https://nytimes.com/athletic/6674580/2025/09/29/tigers-guardians-rivalry-wild-card-series/
-
-**Mets offseason takeaways: David Stearns' primary focus will be run prevention**\
-`Stearns took a healthy share of the blame for a disappointing season. “I'm the architect of the team. I'm responsible for it,” he said.`\
-https://nytimes.com/athletic/6674608/2025/09/29/mets-david-stearns-offseason-focus/
-
-**WNBA fines Lynx coach Cheryl Reeve $15,000 for Game 3 ejection, suspension**\
-`Two more coaches, Stephanie White and Becky Hammon, also landed fines of $1,000 after they expressed support for Reeve's viewpoint.`\
-https://nytimes.com/athletic/6674695/2025/09/29/lynx-cheryl-reeve-fine-suspension-stephanie-white-becky-hammon-wnba-playoffs/
 
