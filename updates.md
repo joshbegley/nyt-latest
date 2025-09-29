@@ -1,3 +1,5 @@
+
+
 **A Black Man’s Death in Mississippi Strikes the Nation’s Raw Nerves**\
 `The authorities say Trey Reed took his own life on his college campus, but in a nation ready to jump to judgment and in a state with its history of racial violence, that conclusion has not ended the story.`\
 https://nytimes.com/2025/09/29/us/politics/trey-reed-hanging-mississippi.html
