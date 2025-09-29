@@ -1,5 +1,17 @@
+**N.Y.C. Mayoral Candidates Move to Capitalize on Adams’s Departure**\
+`Zohran Mamdani and Curtis Sliwa hit the campaign trail on Monday after Eric Adams left the race, while Andrew Cuomo called donors.`\
+https://nytimes.com/2025/09/29/nyregion/mamdani-cuomo-sliwa-nyc-mayor.html
+
+**49ers minutia minute: How concerning is Brock Purdy's toe soreness?**\
+`Kyle Shanahan said the 49ers' pass rush wasn't a "huge concern," but the numbers from Sunday's loss were strikingly meager.`\
+https://nytimes.com/athletic/6674156/2025/09/29/brock-purdy-injury-49ers-jaguars-loss/
+
+**Florida Man Is Accused of Killing, Cooking and Eating Pet Peacocks**\
+`The man admitted to killing and consuming two of the birds over a feud with a neighbor who was feeding them, according to an affidavit.`\
+https://nytimes.com/2025/09/29/us/florida-pet-peacocks-killed-cooked.html
+
 **Twins fire manager Rocco Baldelli after nightmarish season**\
-`After two years managing a roster on reduced payroll, Baldelli was fired `\
+`After two years managing a roster on reduced payroll, Baldelli was fired.`\
 https://nytimes.com/athletic/6672327/2025/09/29/minnesota-twins-rocco-baldelli-firing/
 
 **LeBron James unsure about NBA retirement: 'I know it's sooner than later'**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6674272/2025/09/29/washington-vs-maryland-stream-ho
 **How to watch Vanderbilt at Alabama: Time, TV, streaming**\
 `Find out how to watch the Vanderbilt Commodores play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6674267/2025/09/29/vanderbilt-vs-alabama-stream-how-to-watch-oct-4/
-
-**How to watch Illinois at Purdue: Time, TV, streaming**\
-`Find out how to watch the Illinois Fighting Illini play the Purdue Boilermakers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6674265/2025/09/29/illinois-vs-purdue-stream-how-to-watch-oct-4/
-
-**How to watch Kentucky at Georgia: Time, TV, streaming**\
-`Find out how to watch the Kentucky Wildcats play the Georgia Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6674263/2025/09/29/kentucky-vs-georgia-stream-how-to-watch-oct-4/
-
-**How to watch Clemson at North Carolina: Time, TV, streaming**\
-`Find out how to watch the Clemson Tigers play the North Carolina Tar Heels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6674260/2025/09/29/clemson-vs-north-carolina-stream-how-to-watch-oct-4/
 

@@ -1,3 +1,19 @@
+**N.Y.C. Mayoral Candidates Move to Capitalize on Adams’s Departure**\
+`Zohran Mamdani and Curtis Sliwa hit the campaign trail on Monday after Eric Adams left the race, while Andrew Cuomo called donors.`\
+https://nytimes.com/2025/09/29/nyregion/mamdani-cuomo-sliwa-nyc-mayor.html
+
+**49ers minutia minute: How concerning is Brock Purdy's toe soreness?**\
+`Kyle Shanahan said the 49ers' pass rush wasn't a "huge concern," but the numbers from Sunday's loss were strikingly meager.`\
+https://nytimes.com/athletic/6674156/2025/09/29/brock-purdy-injury-49ers-jaguars-loss/
+
+**Florida Man Is Accused of Killing, Cooking and Eating Pet Peacocks**\
+`The man admitted to killing and consuming two of the birds over a feud with a neighbor who was feeding them, according to an affidavit.`\
+https://nytimes.com/2025/09/29/us/florida-pet-peacocks-killed-cooked.html
+
+**Twins fire manager Rocco Baldelli after nightmarish season**\
+`After two years managing a roster on reduced payroll, Baldelli was fired.`\
+https://nytimes.com/athletic/6672327/2025/09/29/minnesota-twins-rocco-baldelli-firing/
+
 **Twins fire manager Rocco Baldelli after nightmarish season**\
 `After two years managing a roster on reduced payroll, Baldelli was fired `\
 https://nytimes.com/athletic/6672327/2025/09/29/minnesota-twins-rocco-baldelli-firing/
