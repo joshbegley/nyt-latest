@@ -1,3 +1,11 @@
+**I Sued Anthropic, and the Unthinkable Happened**\
+`A.I. feels like a runaway train. But we don’t have to let it run over us.`\
+https://nytimes.com/2025/09/29/opinion/anthropic-chatbot-lawsuit-books.html
+
+**Tech Outage at Canadian Airports Resolved After Causing Delays**\
+`Immigration kiosks were offline for hours at major airports and some passengers said they were stranded on planes. The outage was resolved early Monday.`\
+https://nytimes.com/2025/09/29/world/americas/outage-canada-airports-flights.html
+
 **The Rise and Fall of Eric Adams**\
 `Mr. Adams has suspended his re-election campaign, becoming the first mayor of New York City to fail to win a second term since David N. Dinkins.`\
 https://nytimes.com/2025/09/29/nyregion/eric-adams-mayor-history.html
