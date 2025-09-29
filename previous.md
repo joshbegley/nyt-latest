@@ -1,3 +1,11 @@
+**How to watch Red Sox at Yankees: Game 1 Time, TV, streaming**\
+`Find out how to watch the Boston Red Sox play the New York Yankees, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6674890/2025/09/29/red-sox-vs-yankees-stream-how-to-watch-sept-30/
+
+**How to watch Padres at Cubs: Game 1 Time, TV, streaming**\
+`Find out how to watch the San Diego Padres play the Chicago Cubs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6674888/2025/09/29/padres-vs-cubs-stream-how-to-watch-sept-30/
+
 **Trump and Netanyahu Tell Hamas to Accept Their Peace Plan, or Else**\
 `President Trump said Israel would have a green light to “finish the job” if Hamas refused to agree to the cease-fire deal.`\
 https://nytimes.com/2025/09/29/us/politics/trump-netanyahu-hamas-ultimatum.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/29/us/politics/california-redistricting-ads-trump.ht
 **Kawhi Leonard dismisses 'conspiracies' with Aspiration endorsement contract**\
 `"None of us did no wrongdoing," Leonard said in his first public comments. "And yeah, I mean, that's it. We invite the investigations."`\
 https://nytimes.com/athletic/6674340/2025/09/29/kawhi-leonard-media-day-aspiration/
-
-**John Mozeliak says goodbye, reflects on Cardinals' season: 'Right decision to do what we did'**\
-`Mozeliak finished his Cardinals tenure with 10 postseason berths, six division titles, two pennants and a World Series championship.`\
-https://nytimes.com/athletic/6673997/2025/09/29/john-mozeliak-says-goodbye-reflects-on-cardinals-season-right-decision-to-do-what-we-did/
-
-**Otto Obermaier, Who Succeeded Giuliani as U.S. Attorney, Dies at 89**\
-`His temperate approach was in sharp contrast to his more combative predecessor, but he continued to pursue corrupt unions and financiers.`\
-https://nytimes.com/2025/09/29/us/otto-obermaier-dead.html
 
