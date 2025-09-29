@@ -1,3 +1,11 @@
+**Full Time: USWNT’s impact players in France**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6674377/2025/09/29/uswnt-lyon-psg-full-time/
+
+**Republicans Try Democrats’ Playbook to Stop California Redistricting**\
+`The ad battle is stark: Democracy is under attack, and it’s up to voters to save it.`\
+https://nytimes.com/2025/09/29/us/politics/california-redistricting-ads-trump.html
+
 **Kawhi Leonard dismisses 'conspiracies' with Aspiration endorsement contract**\
 `"None of us did no wrongdoing," Leonard said in his first public comments. "And yeah, I mean, that's it. We invite the investigations."`\
 https://nytimes.com/athletic/6674340/2025/09/29/kawhi-leonard-media-day-aspiration/
