@@ -1,3 +1,19 @@
+**The New York Times in Print for Monday, Sep. 29, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/29/todays-new-york-times
+
+**‘Monster: The Ed Gein Story,’ Plus 10 Things to Watch on TV This Week**\
+`The third season of Ryan Murphy’s anthology series airs, and Glen Powell stars in “Chad Powers.”`\
+https://nytimes.com/2025/09/29/arts/television/monster-the-ed-gein-story.html
+
+**I Beat the Chatbot That Stole My Book**\
+`A.I. feels like a runaway train. But we don’t have to let it run over us.`\
+https://nytimes.com/2025/09/29/opinion/anthropic-chatbot-lawsuit-books.html
+
+**Packers-Cowboys: SNF ends in 40-40 tie as both defenses struggle**\
+`Green Bay's Brandon McManus kicked a 34-yard field goal as time expired in overtime, resulting in a tied game.`\
+https://nytimes.com/athletic/6671905/2025/09/29/packers-cowboys-snf-score-results/
+
 **Kiosk Outage at Major Canadian Airports Causes Delays**\
 `Immigration inspection kiosks were offline at major airports in Montreal, Toronto and Calgary, officials said. There were reports of passengers stranded on planes for hours.`\
 https://nytimes.com/2025/09/29/world/americas/outage-canada-airports-flights.html
