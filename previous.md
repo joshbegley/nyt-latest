@@ -1,5 +1,9 @@
-**Lucas Giolito to miss Wild Card Series with elbow issues**\
-`The Red Sox are hopeful Giolito's injury isn't serious, but regardless they will be without him for the Wild Card Series.`\
+**Bayern board member calls Newcastle foolish for signing Woltemade**\
+`The 23-year-old signed for the Tyneside club in a club-record deal comprising an initial fee of €75m plus €5m in potential add-ons.`\
+https://nytimes.com/athletic/6674048/2025/09/29/nick-woltemade-bayern-munich-rummenigge-newcastle-signing/
+
+**Red Sox's Lucas Giolito to miss wild card vs. Yankees with elbow issues**\
+`Boston is hopeful Giolito's injury isn't serious, but it will be without him in the best-of-three Wild Card Series against New York.`\
 https://nytimes.com/athletic/6674072/2025/09/29/boston-red-sox-lucas-giolito-wild-card-elbow-injury/
 
 **How to watch Tigers at Guardians: Game 1 Time, TV, streaming**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/29/world/middleeast/-full-text-of-gaza-plan.html
 **Mourinho: Chelsea are 'back on track' and can win Champions League**\
 `The Portuguese head coach won five trophies in his two spells with the London side, between 2004-07 and 2012-15.`\
 https://nytimes.com/athletic/6673991/2025/09/29/jose-mourinho-chelsea-champions-league/
-
-**Afghanistan Has Nationwide Internet Blackout, Monitors Say**\
-`The nationwide blackout came two weeks after the Taliban shut down the internet in half a dozen provinces, saying they wanted to prevent “immoral acts.”`\
-https://nytimes.com/2025/09/29/world/asia/internet-blackout-afghanistan.html
 

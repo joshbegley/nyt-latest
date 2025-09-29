@@ -1,3 +1,27 @@
+**Ravens provide no update on Lamar Jackson after hamstring injury vs. Chiefs**\
+`The two-time MVP exited in the third quarter of Baltimore’s 37-20 loss to Kansas City due to the injury. `\
+https://nytimes.com/athletic/6674146/2025/09/29/ravens-lamar-jackson-injury-update/
+
+**Ta-Nehisi Coates on Bridging Gaps vs. Drawing Lines**\
+`The writer discusses what it means to engage across differences in the wake of the Charlie Kirk shooting.`\
+https://nytimes.com/video/opinion/100000010419066/ta-nehisi-coates-on-bridging-gaps-vs-drawing-lines.html
+
+**‘I Don’t Get to Draw the Line’**\
+`Ezra Klein and Ta-Nehisi Coates discuss what happens when you don’t get to draw the boundaries of political conversation.`\
+https://nytimes.com/video/opinion/100000010419080/i-dont-get-to-draw-the-line.html
+
+**Americans’ Support for Israel Dramatically Declines, Times/Siena Poll Finds**\
+`A majority of American voters now oppose sending additional economic and military aid to Israel, a stunning reversal in public opinion since the Oct. 7, 2023, attacks.`\
+https://nytimes.com/2025/09/29/polls/israel-gaza-war-us-poll.html
+
+**Cross-Tabs: September 2025 Times/Siena National Poll of Registered Voters**\
+`Results of a nationwide New York Times/Siena poll of 1,313 registered voters conducted from Sept. 22 to 27, 2025.`\
+https://nytimes.com/interactive/2025/09/29/polls/times-siena-poll-registered-voter-crosstabs.html
+
+**Toplines: September 2025 Times/Siena National Poll of Registered Voters**\
+`Results of a nationwide New York Times/Siena poll of 1,313 registered voters conducted from Sept. 22 to 27, 2025.`\
+https://nytimes.com/interactive/2025/09/29/polls/times-siena-poll-toplines.html
+
 **Bayern board member calls Newcastle foolish for signing Woltemade**\
 `The 23-year-old signed for the Tyneside club in a club-record deal comprising an initial fee of €75m plus €5m in potential add-ons.`\
 https://nytimes.com/athletic/6674048/2025/09/29/nick-woltemade-bayern-munich-rummenigge-newcastle-signing/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6674094/2025/09/29/tigers-vs-guardians-stream-how-t
 **What to Know About the Canada Post Strike**\
 `Postal workers walked off the job to protest cost-cutting measures ordered by the government that are likely to lead to major job losses.`\
 https://nytimes.com/2025/09/29/world/canada/post-canada-strike.html
-
-**Charlie Javice Sentenced to 85 Months in Prison for Fraud**\
-`A federal jury in March had found Ms. Javice guilty for faking customer lists during JPMorgan Chase’s $175 million acquisition of her start-up.`\
-https://nytimes.com/2025/09/29/business/charlie-javice-sentence.html
-
-**Tyrese Haliburton feels rehab will let him 'see the game in a different way'**\
-`Tyrese Haliburton on Achilles rupture recovery: "It’s coming along. I feel like I’m right on cue."`\
-https://nytimes.com/athletic/6673920/2025/09/29/tyrese-haliburton-achilles-rehab-pacers-nba/
-
-**Simple Routine, Remarkable Results**\
-`Great skincare doesn't have to be complicated. Discover the power of Clinique's iconic three-step system.`\
-https://nytimes.com/paidpost/2025-07-07/.html
-
-**Giants owner John Mara announces cancer diagnosis**\
-`Mara, 70, shared the news in a post on X. He did not say what kind of cancer he has or what stage it is in. `\
-https://nytimes.com/athletic/6673958/2025/09/29/nfl-giants-owner-john-mara-cancer-diagnosis/
-
-**Here Is the Full Text of the Gaza Plan Released by the White House**\
-`“If both sides agree to this proposal, the war will immediately end,” the White House proposal says.`\
-https://nytimes.com/2025/09/29/world/middleeast/-full-text-of-gaza-plan.html
-
-**Mourinho: Chelsea are 'back on track' and can win Champions League**\
-`The Portuguese head coach won five trophies in his two spells with the London side, between 2004-07 and 2012-15.`\
-https://nytimes.com/athletic/6673991/2025/09/29/jose-mourinho-chelsea-champions-league/
 

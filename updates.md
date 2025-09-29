@@ -1,3 +1,11 @@
+**Bayern board member calls Newcastle foolish for signing Woltemade**\
+`The 23-year-old signed for the Tyneside club in a club-record deal comprising an initial fee of €75m plus €5m in potential add-ons.`\
+https://nytimes.com/athletic/6674048/2025/09/29/nick-woltemade-bayern-munich-rummenigge-newcastle-signing/
+
+**Red Sox's Lucas Giolito to miss wild card vs. Yankees with elbow issues**\
+`Boston is hopeful Giolito's injury isn't serious, but it will be without him in the best-of-three Wild Card Series against New York.`\
+https://nytimes.com/athletic/6674072/2025/09/29/boston-red-sox-lucas-giolito-wild-card-elbow-injury/
+
 **Lucas Giolito to miss Wild Card Series with elbow issues**\
 `The Red Sox are hopeful Giolito's injury isn't serious, but regardless they will be without him for the Wild Card Series.`\
 https://nytimes.com/athletic/6674072/2025/09/29/boston-red-sox-lucas-giolito-wild-card-elbow-injury/
