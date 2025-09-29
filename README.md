@@ -1,3 +1,7 @@
+**College football transfer portal window could be extended to 15 days**\
+`After the NCAA eliminated the spring transfer portal window for football, committee recommends extending winter window.`\
+https://nytimes.com/athletic/6674598/2025/09/29/college-football-transfer-portal-extend/
+
 **Trump and Comey: An Escalating Conflict With No Off-Ramp**\
 `The yearslong face-off between Donald Trump and James Comey amounts to a case study of how the president grew evermore emboldened to carry out his revenge agenda.`\
 https://nytimes.com/2025/09/29/us/politics/trump-comey-escalating-conflict.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/09/29/technology/uber-sexual-assault-letter
 **A Global Crackdown on Free Speech**\
 `We explore how the U.S. has joined all the other countries where leaders have tried to silence speech.`\
 https://nytimes.com/2025/09/29/world/free-speech-crackdown-israel-gaza-trump-proposal.html
-
-**Haters, Waiters and Ghosts at Gracie Mansion: The Quotable Eric Adams**\
-`At an afternoon news conference or a late-night talk show, it has been almost impossible to predict what New York City’s mayor might say next.`\
-https://nytimes.com/2025/09/29/realestate/eric-adams-nyc-mayor.html
 
