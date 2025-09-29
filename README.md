@@ -1,3 +1,11 @@
+**Resilient Guardians head into MLB postseason riding high: 'We'll go shock them'**\
+`Cleveland's playoff journey begins Tuesday afternoon against Tarik Skubal and the Detroit Tigers in a best-of-three matchup. `\
+https://nytimes.com/athletic/6672039/2025/09/28/cleveland-guardians-mlb-postseason-berth-celebration/
+
+**Liam Coen and Robert Saleh exchange words after Jaguars beat 49ers**\
+`Saleh, the 49ers defensive coordinator, said during the week that the Jaguars have “a really advanced signal-stealing type of system."`\
+https://nytimes.com/athletic/6672094/2025/09/28/jaguars-49ers-liam-coen-robert-saleh-sign-stealing/
+
 **Trump Raises Possibility of Inquiry Into Another Former F.B.I. Director**\
 `In a phone interview with NBC, Mr. Trump said an investigation of Christopher Wray could be underway, days after the Justice Department’s indictment of James B. Comey.`\
 https://nytimes.com/2025/09/28/us/politics/trump-wray-fbi.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6671867/2025/09/28/padres-90-win-regular-season-pla
 **How the Commanders' defense was dismantled by the Falcons**\
 `Poor tackling, explosive plays and slow starts have left Washington's defense looking overwhelmed in multiple games this season.`\
 https://nytimes.com/athletic/6671419/2025/09/28/commanders-defense-falcons-michael-penix-bijan-robinson/
-
-**Dodgers likely to start Blake Snell in Game 1, remain flexible with Shohei Ohtani**\
-`The Dodgers have tried to remain flexible with when Ohtani would make his postseason pitching debut.`\
-https://nytimes.com/athletic/6671898/2025/09/28/los-angeles-dodgers-nl-wild-card-series-game-one-starter/
-
-**The Ryder Cup is the best. But it could be even better**\
-`An absurd rule should be the last thing ripped up and thrown in the trash before everyone says goodbye to Bethpage Black.`\
-https://nytimes.com/athletic/6671827/2025/09/28/ryder-cup-rule-changes-bethpage/
 

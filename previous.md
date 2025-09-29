@@ -1,3 +1,7 @@
+**Trump Raises Possibility of Inquiry Into Another Former F.B.I. Director**\
+`In a phone interview with NBC, Mr. Trump said an investigation of Christopher Wray could be underway, days after the Justice Department’s indictment of James B. Comey.`\
+https://nytimes.com/2025/09/28/us/politics/trump-wray-fbi.html
+
 **USC star JuJu Watkins to miss entire WBB season to focus on ACL recovery**\
 `Watkins tore her ACL in the second round of the 2025 NCAA Tournament on March 24.`\
 https://nytimes.com/athletic/6672001/2025/09/28/usc-juju-watkins-miss-season-acl-recovery/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6671898/2025/09/28/los-angeles-dodgers-nl-wild-card
 **The Ryder Cup is the best. But it could be even better**\
 `An absurd rule should be the last thing ripped up and thrown in the trash before everyone says goodbye to Bethpage Black.`\
 https://nytimes.com/athletic/6671827/2025/09/28/ryder-cup-rule-changes-bethpage/
-
-**Bears-Raiders takeaways: Josh Blackwell's blocked FG seals win for Chicago**\
-`The Bears notched the franchise's 800th win, second most in NFL history.`\
-https://nytimes.com/athletic/6671370/2025/09/28/bears-raiders-result-takeaways/
 

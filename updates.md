@@ -1,3 +1,7 @@
+**Trump Raises Possibility of Inquiry Into Another Former F.B.I. Director**\
+`In a phone interview with NBC, Mr. Trump said an investigation of Christopher Wray could be underway, days after the Justice Department’s indictment of James B. Comey.`\
+https://nytimes.com/2025/09/28/us/politics/trump-wray-fbi.html
+
 **USC star JuJu Watkins to miss entire WBB season to focus on ACL recovery**\
 `Watkins tore her ACL in the second round of the 2025 NCAA Tournament on March 24.`\
 https://nytimes.com/athletic/6672001/2025/09/28/usc-juju-watkins-miss-season-acl-recovery/
