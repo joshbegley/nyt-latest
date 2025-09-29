@@ -1,4 +1,16 @@
-**Chargers get what they deserved in 'complete team loss' to Giants, Jaxson Dart**\
+**'Unshakeable' Michael Penix rebounded and brought offense with him to topple Commanders**\
+`The second-year Atlanta quarterback had a career-high 313 passing yards as the Falcons held off the Commanders 34-27 on Sunday.`\
+https://nytimes.com/athletic/6671415/2025/09/28/michael-penix-falcons-commanders-nfl-week-4/
+
+**Colts-Rams: Los Angeles hands Indianapolis its first loss**\
+`Whether it was a holding penalty that negated a long touchdown run or a fumble on another big play, the Colts made several mistakes Sunday.`\
+https://nytimes.com/athletic/6671468/2025/09/28/colts-rams-score-takeaways/
+
+**What to know about the Europeans' thrilling Ryder Cup win**\
+`A Ryder Cup rout turned dramatic on Sunday, as the Europeans held off a surging American side to win at Bethpage Black.`\
+https://nytimes.com/athletic/6671632/2025/09/28/ryder-cup-25-europe-win/
+
+**Chargers get what they deserve in 'complete team loss' to Giants, Jaxson Dart**\
 `Justin Herbert was intercepted twice and the Chargers committed 14 penalties in suffering their first loss of the season.`\
 https://nytimes.com/athletic/6671634/2025/09/28/chargers-loss-giants-jaxson-dart/
 
@@ -7,7 +19,7 @@ https://nytimes.com/athletic/6671634/2025/09/28/chargers-loss-giants-jaxson-dart
 https://nytimes.com/2025/09/28/nyregion/eric-adams-resignation-political-career.html
 
 **Phillies have the batting champ and HR king — and as good a shot as anyone to win it all**\
-`"We got a dream, that's to hold the trophy," Kyle Schwarber said to the fans. "Let's see where this takes us, all right?"`\
+`"We got a dream — that's to hold the trophy," Kyle Schwarber said to the fans. "Let's see where this takes us, all right?"`\
 https://nytimes.com/athletic/6671608/2025/09/28/phillies-playoffs-trea-turner-kyle-schwarber/
 
 **As Cardinals' season ends, Kyle Leahy's new role first sign of 2026 changes**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6671533/2025/09/28/dodgers-clayton-kershaw-reds-pos
 **Jaguars-49ers: San Francisco's pass rush struggles without Nick Bosa in loss**\
 `Trevor Lawrence wasn’t sacked at all Sunday and had plenty of time to throw in the 26-21 victory.`\
 https://nytimes.com/athletic/6671404/2025/09/28/jaguars-49ers-result-takeaways/
-
-**Dave Canales takes blame after Panthers blown out by Pats — but something has to change**\
-`The Panthers gave back any of the goodwill they’d built with their fan base with an embarrassing road loss Sunday.`\
-https://nytimes.com/athletic/6671486/2025/09/28/panthers-blowout-loss-patriots-dave-canales/
-
-**What We Know About the Suspect in the Michigan Church Shooting**\
-`The suspect, a 40-year-old man, was killed during the attack, officials said.`\
-https://nytimes.com/2025/09/28/us/what-we-know-suspect-michigan-church-shooting.html
-
-**Arkansas running it back with Bobby Petrino seems ludicrous. For now, it's a trial**\
-`There will be good candidates interested in the Arkansas job. So why consider a retread who was fired from the role amid scandal?`\
-https://nytimes.com/athletic/6671497/2025/09/28/arkansas-bobby-petrino-head-coaching-search/
 
