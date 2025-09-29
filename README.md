@@ -1,3 +1,7 @@
+**Minnesota Lynx couldn't get back to WNBA Finals. Next year's quest might get even harder**\
+`Without Napheesa Collier and Cheryl Reeve, the Lynx were eliminated in four games by the Mercury.`\
+https://nytimes.com/athletic/6672537/2025/09/29/minnesota-lynx-wnba-semifinals-loss/
+
 **What We Know About the Shooting and Fire at a Michigan Church**\
 `At least four people were killed after an attacker opened fire at a Church of Jesus Christ of Latter-day Saint building and intentionally set fire to the structure.`\
 https://nytimes.com/2025/09/29/us/michigan-mormon-church-shooting-fire.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6672778/2025/09/29/seahawks-sam-darnold-geno-smith-
 **The Jaguars are stealing more than signs**\
 `Rival coaches mostly dismissed the Liam Coen-Robert Saleh beef, but the Jaguars' takeaways through four games are very real.`\
 https://nytimes.com/athletic/6672777/2025/09/29/jaguars-49ers-sign-stealing-coen-saleh/
-
-**If Jaxson Dart's stuntman debut was any indication, Russell Wilson should stay ready**\
-`Dart was checked for a concussion and strained a hamstring while being exposed to hits on 16 of 34 possible plays. Is that sustainable?`\
-https://nytimes.com/athletic/6672775/2025/09/29/jaxson-dart-debut-giants-hits-injury/
 
