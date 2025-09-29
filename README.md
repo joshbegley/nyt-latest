@@ -1,3 +1,19 @@
+**The New York Times in Print for Monday, Sep. 29, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/29/todays-new-york-times
+
+**‘Monster: The Ed Gein Story,’ Plus 10 Things to Watch on TV This Week**\
+`The third season of Ryan Murphy’s anthology series airs, and Glen Powell stars in “Chad Powers.”`\
+https://nytimes.com/2025/09/29/arts/television/monster-the-ed-gein-story.html
+
+**I Beat the Chatbot That Stole My Book**\
+`A.I. feels like a runaway train. But we don’t have to let it run over us.`\
+https://nytimes.com/2025/09/29/opinion/anthropic-chatbot-lawsuit-books.html
+
+**Packers-Cowboys: SNF ends in 40-40 tie as both defenses struggle**\
+`Green Bay's Brandon McManus kicked a 34-yard field goal as time expired in overtime, resulting in a tied game.`\
+https://nytimes.com/athletic/6671905/2025/09/29/packers-cowboys-snf-score-results/
+
 **Kiosk Outage at Major Canadian Airports Causes Delays**\
 `Immigration inspection kiosks were offline at major airports in Montreal, Toronto and Calgary, officials said. There were reports of passengers stranded on planes for hours.`\
 https://nytimes.com/2025/09/29/world/americas/outage-canada-airports-flights.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6670441/2025/09/29/aston-villa-fragility-buendia-em
 **Wolves boss Vitor Pereira's big gamble ends Premier League losing streak**\
 `After five straight league defeats the Wolves boss changed nine of his starting XI and the result was an improved performance`\
 https://nytimes.com/athletic/6669838/2025/09/29/wolverhampton-wanderers-wolves-tottenham-hotspur-spurs-pereira-bueno/
-
-**Is Chelsea's focus on youth and squad churn harming their ability to compete?**\
-`The churn of new signings, many of them under 23, has left Chelsea lacking leadership and knowhow`\
-https://nytimes.com/athletic/6661949/2025/09/29/chelsea-squad-age-churn-recruitment-analysis/
-
-**How Nico O'Reilly has become the direct-running catalyst for Man City's attack**\
-`Pep Guardiola needed Man City to take a different attacking approach in the second half against Burnley and the English left-back stepped up`\
-https://nytimes.com/athletic/6669985/2025/09/29/manchester-city-nico-oreilly-analysis/
-
-**Newcastle can't let 12 minutes of chaos derail their season**\
-`Eddie Howe's side came out worse off after a manic, unrelenting match with Arsenal, but they now must regroup ahead of a vital week`\
-https://nytimes.com/athletic/6669833/2025/09/29/newcastle-premier-league-champions-league/
-
-**Tyler Adams' fiery Leeds return shows why they are 380 days unbeaten in the league at Elland Road**\
-`Adams' every touch of the ball was booed on Saturday. Leeds fans must generate that atmosphere for the 16 home games to come`\
-https://nytimes.com/athletic/6668425/2025/09/29/leeds-tyler-adams-bournemouth-elland-road/
 
