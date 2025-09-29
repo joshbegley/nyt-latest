@@ -1,9 +1,17 @@
+**Trump and Netanyahu Tell Hamas to Accept Their Peace Plan, or Else**\
+`President Trump said Israel would have a green light to “finish the job” if Hamas refused to agree to the cease-fire deal.`\
+https://nytimes.com/2025/09/29/us/politics/trump-netanyahu-hamas-ultimatum.html
+
+**Guards Ball, the Gritty Tigs and a rivalry tinged with respect**\
+`The Tigers and Guardians have played six times in two weeks. Entering the AL Wild Card Series, their rivalry has evolved into respect.`\
+https://nytimes.com/athletic/6674580/2025/09/29/tigers-guardians-rivalry-wild-card-series/
+
 **Mets offseason takeaways: David Stearns' primary focus will be run prevention**\
 `Stearns took a healthy share of the blame for a disappointing season. “I'm the architect of the team. I'm responsible for it,” he said.`\
 https://nytimes.com/athletic/6674608/2025/09/29/mets-david-stearns-offseason-focus/
 
 **WNBA fines Lynx coach Cheryl Reeve $15,000 for Game 3 ejection, suspension**\
-`Two more coaches, Stephanie White and Becky Hammon, also landed fines of $1,000 after they expressed support for Reeve’s viewpoint.`\
+`Two more coaches, Stephanie White and Becky Hammon, also landed fines of $1,000 after they expressed support for Reeve's viewpoint.`\
 https://nytimes.com/athletic/6674695/2025/09/29/lynx-cheryl-reeve-fine-suspension-stephanie-white-becky-hammon-wnba-playoffs/
 
 **Fantasy football studs and duds who might flip the script going forward**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6673997/2025/09/29/john-mozeliak-says-goodbye-refle
 **Otto Obermaier, Who Succeeded Giuliani as U.S. Attorney, Dies at 89**\
 `His temperate approach was in sharp contrast to his more combative predecessor, but he continued to pursue corrupt unions and financiers.`\
 https://nytimes.com/2025/09/29/us/otto-obermaier-dead.html
-
-**Top Trump Aides Push for Ousting Maduro From Power in Venezuela**\
-`An opposition movement whose figures have met with U.S. officials says it is communicating with Washington on plans to dismantle Nicolás Maduro’s “criminal structure.”`\
-https://nytimes.com/2025/09/29/us/politics/maduro-venezuela-trump-rubio.html
-
-**Trump Releases New Gaza Plan, Demands Hamas Accepts**\
-`President Trump and Prime Minister Benjamin Netanyahu of Israel unveiled a proposal to end the war in Gaza at the White House on Monday.`\
-https://nytimes.com/video/us/politics/100000010428780/trump-netanyahu-gaza-cease-fire-proposal.html
 

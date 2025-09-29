@@ -1,3 +1,15 @@
+**Trump and Netanyahu Tell Hamas to Accept Their Peace Plan, or Else**\
+`President Trump said Israel would have a green light to “finish the job” if Hamas refused to agree to the cease-fire deal.`\
+https://nytimes.com/2025/09/29/us/politics/trump-netanyahu-hamas-ultimatum.html
+
+**Guards Ball, the Gritty Tigs and a rivalry tinged with respect**\
+`The Tigers and Guardians have played six times in two weeks. Entering the AL Wild Card Series, their rivalry has evolved into respect.`\
+https://nytimes.com/athletic/6674580/2025/09/29/tigers-guardians-rivalry-wild-card-series/
+
+**WNBA fines Lynx coach Cheryl Reeve $15,000 for Game 3 ejection, suspension**\
+`Two more coaches, Stephanie White and Becky Hammon, also landed fines of $1,000 after they expressed support for Reeve's viewpoint.`\
+https://nytimes.com/athletic/6674695/2025/09/29/lynx-cheryl-reeve-fine-suspension-stephanie-white-becky-hammon-wnba-playoffs/
+
 **Mets offseason takeaways: David Stearns' primary focus will be run prevention**\
 `Stearns took a healthy share of the blame for a disappointing season. “I'm the architect of the team. I'm responsible for it,” he said.`\
 https://nytimes.com/athletic/6674608/2025/09/29/mets-david-stearns-offseason-focus/
