@@ -1,3 +1,7 @@
+**The Ryder Cup is the best. But it could be even better**\
+`An absurd rule should be the last thing ripped up and thrown in the trash before everyone says goodbye to Bethpage Black.`\
+https://nytimes.com/athletic/6671827/2025/09/28/ryder-cup-rule-changes-bethpage/
+
 **Bears-Raiders takeaways: Josh Blackwell's blocked FG seals win for Chicago**\
 `The Bears notched the franchise's 800th win, second most in NFL history.`\
 https://nytimes.com/athletic/6671370/2025/09/28/bears-raiders-result-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6671632/2025/09/28/ryder-cup-25-europe-win/
 **Chargers get what they deserve in 'complete team loss' to Giants, Jaxson Dart**\
 `Justin Herbert was intercepted twice and the Chargers committed 14 penalties in suffering their first loss of the season.`\
 https://nytimes.com/athletic/6671634/2025/09/28/chargers-loss-giants-jaxson-dart/
-
-**13 Moments That Have Defined Eric Adams’s Political Career**\
-`Mr. Adams served in the New York State Senate and as Brooklyn borough president before becoming mayor of New York City in 2022. Ethical questions have followed him along the way.`\
-https://nytimes.com/2025/09/28/nyregion/eric-adams-resignation-political-career.html
 
