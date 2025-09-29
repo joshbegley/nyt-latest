@@ -1,3 +1,7 @@
+**Snoop Dogg returning to NBC for 2026 Milan Cortina Olympics**\
+`His return to the network comes after his popular run during the 2024 Olympics, appearing at sporting events and various Paris venues.`\
+https://nytimes.com/athletic/6672119/2025/09/28/snoop-dogg-nbc-2026-olympics/
+
 **Bad Bunny Will Headline Super Bowl Halftime Show**\
 `The Latin superstar known for hits including “MIA” and “Me Porto Benito” will perform in February in Santa Clara, Calif.`\
 https://nytimes.com/2025/09/28/arts/music/bad-bunny-super-bowl-halftime.html
