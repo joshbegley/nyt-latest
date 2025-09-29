@@ -1,3 +1,7 @@
+**Fantasy football Week 4 recap and early waivers speed run**\
+`Week 4 introduced several new names fantasy managers need to know.`\
+https://nytimes.com/athletic/6673504/2025/09/29/fantasy-football-week-4-recap-speed-run/
+
 **What Does Adams’s Exit Mean for Black Political Power in New York?**\
 `Eric Adams is just the second Black mayor elected in New York City, and his downfall has been painful for many who supported him.`\
 https://nytimes.com/2025/09/29/nyregion/eric-adams-black-voters.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/29/us/michigan-church-attack.html
 **Atletico dominated the derby by exposing Real Madrid in the channels**\
 `Diego Simeone's side thrashed their city rivals by going back to basics — as they often do in the 'derbi'`\
 https://nytimes.com/athletic/6672881/2025/09/29/atletico-real-madrid-derby-tactical-analysis/
-
-**'How many lives have to be lost?': FA accused of risking footballers' safety with concrete pitch barriers**\
-`The FA was warned about the dangers of concrete pitch barriers in 2015 but only opened a review last week after Billy Vigar's death aged 21`\
-https://nytimes.com/athletic/6673263/2025/09/29/vigar-fletcher-hiscox-concrete-fa-barriers/
 

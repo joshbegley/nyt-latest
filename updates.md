@@ -1,3 +1,7 @@
+**Fantasy football Week 4 recap and early waivers speed run**\
+`Week 4 introduced several new names fantasy managers need to know.`\
+https://nytimes.com/athletic/6673504/2025/09/29/fantasy-football-week-4-recap-speed-run/
+
 **What Does Adams’s Exit Mean for Black Political Power in New York?**\
 `Eric Adams is just the second Black mayor elected in New York City, and his downfall has been painful for many who supported him.`\
 https://nytimes.com/2025/09/29/nyregion/eric-adams-black-voters.html
