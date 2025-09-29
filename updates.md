@@ -1,3 +1,7 @@
+**Jerry Jones was ready to gloat on his big night. Then he saw the clock**\
+`The Cowboys' owner wanted vindication with Micah Parsons back in town. Instead, he got one of the wildest results of this NFL season.`\
+https://nytimes.com/athletic/6672854/2025/09/29/jerry-jones-micah-parsons-cowboys-packers-tie/
+
 **Vietnam Reels as Typhoon Bualoi Hits**\
 `Typhoon Bualoi lashed central Vietnam, making landfall on Sunday evening. The region was already reeling from Typhoon Kajiki which hit a month earlier.`\
 https://nytimes.com/video/world/asia/100000010427253/vietnam-residents-typhoon-bualoi.html
