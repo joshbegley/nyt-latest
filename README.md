@@ -1,3 +1,7 @@
+**Shell Casings and DNA on Fingernails Helped Crack ‘Yogurt Shop’ Murder Case**\
+`Old-fashioned detective work and advances in forensic science led to the identification of a suspect in the killings of four teenagers in Austin, Texas, in 1991, officials said.`\
+https://nytimes.com/2025/09/29/us/yogurt-shop-murders-solved-dna.html
+
 **Madagascar’s President Dissolves Government Amid Deadly Protests**\
 `Andry Rajoelina, the leader of the island nation in Africa, acknowledged grievances over power cuts and water shortages that have drawn thousands of young people to the streets.`\
 https://nytimes.com/2025/09/29/world/africa/madagascar-government.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6674077/2025/09/29/victor-wembanyama-status-spurs-b
 **‘Kpop Demon Hunters’ Noodle Cup Trend May Increase Burn Risks for Kids**\
 `TikTok users have rushed to get their hands on the instant noodles that appear in the film. One prominent Boston hospital has sounded the alarm.`\
 https://nytimes.com/2025/09/29/us/kpop-demon-hunters-noodles-tiktok.html
-
-**Read the document**\
-`The chairwoman of the House subcommittee on cybersecurity, information technology and government innovation demanded information of Uber over its safety practices related to sexual assault.`\
-https://nytimes.com/interactive/2025/09/29/technology/uber-sexual-assault-letter.html
 

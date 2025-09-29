@@ -1,3 +1,7 @@
+**Madagascar’s President Dissolves Government Amid Deadly Protests**\
+`Andry Rajoelina, the leader of the island nation in Africa, acknowledged grievances over power cuts and water shortages that have drawn thousands of young people to the streets.`\
+https://nytimes.com/2025/09/29/world/africa/madagascar-government.html
+
 **College football transfer portal window could be extended to 15 days**\
 `After the NCAA eliminated the spring transfer portal window for football, committee recommends extending winter window.`\
 https://nytimes.com/athletic/6674598/2025/09/29/college-football-transfer-portal-extend/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/29/us/kpop-demon-hunters-noodles-tiktok.html
 **Read the document**\
 `The chairwoman of the House subcommittee on cybersecurity, information technology and government innovation demanded information of Uber over its safety practices related to sexual assault.`\
 https://nytimes.com/interactive/2025/09/29/technology/uber-sexual-assault-letter.html
-
-**A Global Crackdown on Free Speech**\
-`We explore how the U.S. has joined all the other countries where leaders have tried to silence speech.`\
-https://nytimes.com/2025/09/29/world/free-speech-crackdown-israel-gaza-trump-proposal.html
 

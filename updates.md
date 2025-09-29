@@ -1,3 +1,7 @@
+**Madagascar’s President Dissolves Government Amid Deadly Protests**\
+`Andry Rajoelina, the leader of the island nation in Africa, acknowledged grievances over power cuts and water shortages that have drawn thousands of young people to the streets.`\
+https://nytimes.com/2025/09/29/world/africa/madagascar-government.html
+
 **College football transfer portal window could be extended to 15 days**\
 `After the NCAA eliminated the spring transfer portal window for football, committee recommends extending winter window.`\
 https://nytimes.com/athletic/6674598/2025/09/29/college-football-transfer-portal-extend/
