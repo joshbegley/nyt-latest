@@ -1,3 +1,11 @@
+**How to watch 49ers at Rams: Time, TV, streaming**\
+`Find out how to watch the San Francisco 49ers play the Los Angeles Rams, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6672815/2025/09/29/49ers-vs-rams-stream-how-to-watch-oct-2/
+
+**Inside Barcelona: After a week of crisis off the pitch, Yamal provides spark – again**\
+`Our Barcelona correspondents share their latest information on the biggest talking points at the club`\
+https://nytimes.com/athletic/6672746/2025/09/29/barcelona-yamal-camp-nou-injuries-psg/
+
 **How Adams Lost His Coalition and Became an Also-Ran**\
 `Eric Adams started with strong support among Black and working-class voters. By the time he dropped out, his re-election effort was polling below 10 percent.`\
 https://nytimes.com/2025/09/29/nyregion/adams-coalition.html
@@ -26,15 +34,7 @@ https://nytimes.com/2025/09/29/us/politics/congressional-leaders-skeptical-shutd
 `A divisive neckline is popular this season — high, low and in between.`\
 https://nytimes.com/2025/09/29/style/v-neck-sweaters-t-shirts-indie-sleeze.html
 
-**Which federal benefits and services continue during a shutdown?**\
+**Which Federal Benefits and Services Continue During a Government Shutdown?**\
 `Without a deal in Congress by Tuesday, the government will run out of funding.`\
 https://nytimes.com/2025/09/29/us/politics/benefits-shutdown-explainer.html
-
-**Electric Vehicles Face a ‘Pretty Dreadful Year’ in the U.S.**\
-`The end of a federal tax credit is expected to push sales of battery-powered cars down but auto experts believe the market will eventually recover.`\
-https://nytimes.com/2025/09/29/business/electric-vehicles-federal-tax-credit.html
-
-**$4 Million Homes in California**\
-`An Italianate house in San Francisco, a ranch in Solvang and a cedar-shake cottage in Bolinas.`\
-https://nytimes.com/2025/09/29/realestate/4-million-homes-california.html
 
