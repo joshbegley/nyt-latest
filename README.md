@@ -1,3 +1,11 @@
+**Lakers' LeBron James is happy after tumultuous offseason, at least for now**\
+`Next season is still a huge question mark for LeBron James. But as he goes into his 23rd year, James is not taking anything for granted.`\
+https://nytimes.com/athletic/6674746/2025/09/29/lebron-james-lakers-offseason-media-day/
+
+**Health Department Moves to Block Harvard From Future Research Grants**\
+`The White House and Harvard University have struggled to negotiate an end to their monthslong dispute over the administration’s campaign to expunge “woke” ideology from campuses.`\
+https://nytimes.com/2025/09/29/us/politics/trump-administration-harvard-research-grants.html
+
 **How to watch Red Sox at Yankees: Game 1 Time, TV, streaming**\
 `Find out how to watch the Boston Red Sox play the New York Yankees, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6674890/2025/09/29/red-sox-vs-yankees-stream-how-to-watch-sept-30/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6672724/2025/09/29/fantasy-football-studs-duds-emek
 **Full Time: USWNT’s impact players in France**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6674377/2025/09/29/uswnt-lyon-psg-full-time/
-
-**Republicans Try Democrats’ Playbook to Stop California Redistricting**\
-`The ad battle is stark: Democracy is under attack, and it’s up to voters to save it.`\
-https://nytimes.com/2025/09/29/us/politics/california-redistricting-ads-trump.html
-
-**Kawhi Leonard dismisses 'conspiracies' with Aspiration endorsement contract**\
-`"None of us did no wrongdoing," Leonard said in his first public comments. "And yeah, I mean, that's it. We invite the investigations."`\
-https://nytimes.com/athletic/6674340/2025/09/29/kawhi-leonard-media-day-aspiration/
 
