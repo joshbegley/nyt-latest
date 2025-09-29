@@ -1,3 +1,7 @@
+**The Missiles Threatening Taiwan**\
+`China’s rapidly growing missile force threatens Taiwan and the U.S. forces that protect the island.`\
+https://nytimes.com/interactive/2025/09/29/world/asia/china-missiles.html
+
 **Trump and Netanyahu to Discuss Plans for Postwar Gaza**\
 `The president and Prime Minister Benjamin Netanyahu of Israel are set to meet in Washington after a week in which Israel grew more isolated internationally.`\
 https://nytimes.com/2025/09/29/world/middleeast/trump-netanyahu-meet-gaza.html

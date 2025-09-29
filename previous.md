@@ -1,3 +1,7 @@
+**The Missiles Threatening Taiwan**\
+`China’s rapidly growing missile force threatens Taiwan and the U.S. forces that protect the island.`\
+https://nytimes.com/interactive/2025/09/29/world/asia/china-missiles.html
+
 **Trump and Netanyahu to Discuss Plans for Postwar Gaza**\
 `The president and Prime Minister Benjamin Netanyahu of Israel are set to meet in Washington after a week in which Israel grew more isolated internationally.`\
 https://nytimes.com/2025/09/29/world/middleeast/trump-netanyahu-meet-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/29/learning/word-of-the-day-salubrious.html
 **Jerry Jones: Dak Prescott is 'indispensable,' Micah Parsons 'wasn't'**\
 `Jones' comments come after Parsons, now a Packer, faced his former team on Sunday night.`\
 https://nytimes.com/athletic/6672601/2025/09/29/jerry-jones-dak-prescott-micah-parsons-cowboys-packers/
-
-**The New York Times in Print for Monday, Sep. 29, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/09/29/todays-new-york-times
 
