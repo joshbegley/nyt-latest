@@ -1,3 +1,7 @@
+**Word of the Day: salubrious**\
+`This word has appeared in 10 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/09/29/learning/word-of-the-day-salubrious.html
+
 **Jerry Jones: Dak Prescott is 'indispensable,' Micah Parsons 'wasn't'**\
 `Jones' comments come after Parsons, now a Packer, faced his former team on Sunday night.`\
 https://nytimes.com/athletic/6672601/2025/09/29/jerry-jones-dak-prescott-micah-parsons-cowboys-packers/

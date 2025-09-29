@@ -1,3 +1,7 @@
+**Word of the Day: salubrious**\
+`This word has appeared in 10 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/09/29/learning/word-of-the-day-salubrious.html
+
 **Jerry Jones: Dak Prescott is 'indispensable,' Micah Parsons 'wasn't'**\
 `Jones' comments come after Parsons, now a Packer, faced his former team on Sunday night.`\
 https://nytimes.com/athletic/6672601/2025/09/29/jerry-jones-dak-prescott-micah-parsons-cowboys-packers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6661859/2025/09/29/tottenham-hotspur-palhinha-wolve
 **Why Nuno's focus on defensive solidity and quick counter-attacks could suit West Ham**\
 `The former Wolves and Forest boss can help a number of players in this squad after the east Londoners' very difficult start to the season`\
 https://nytimes.com/athletic/6669938/2025/09/29/nuno-west-ham-players-analysis/
-
-**Buendia cameo brings Villa players and fans back together, but fragility remains**\
-`The substitute came on to a mixed reception and changed the game, but the victory still included concerns for Unai Emery`\
-https://nytimes.com/athletic/6670441/2025/09/29/aston-villa-fragility-buendia-emery/
 
