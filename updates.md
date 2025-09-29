@@ -1,3 +1,15 @@
+**'Just hell of a play by him': Cole Bishop's interception revives Bills as they remain undefeated**\
+`Bishop's play helped spark a Bills defense that had been struggling against the winless Saints.`\
+https://nytimes.com/athletic/6671815/2025/09/28/cole-bishop-interception-bills-saints/
+
+**Emotional Brian Daboll couldn't hide what Jaxson Dart's performance, Giants win meant to him**\
+`Daboll pushed his chips to the middle of the table by turning the team, and his career, over to Dart, and on Sunday, the rookie delivered. `\
+https://nytimes.com/athletic/6671737/2025/09/28/jaxson-dart-giants-brian-daboll-chargers/
+
+**Ambitious Padres out to write 'new story' after another 90-win regular season**\
+`San Diego looks to build on its success when it faces the Cubs in the National League Wild-Card Series.`\
+https://nytimes.com/athletic/6671867/2025/09/28/padres-90-win-regular-season-playoffs/
+
 **How the Commanders' defense was dismantled by the Falcons**\
 `Poor tackling, explosive plays and slow starts have left Washington's defense looking overwhelmed in multiple games this season.`\
 https://nytimes.com/athletic/6671419/2025/09/28/commanders-defense-falcons-michael-penix-bijan-robinson/
