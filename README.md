@@ -1,3 +1,7 @@
+**Why Ben Johnson believed in Caleb Williams and the Bears in the final moments**\
+`Williams made plays in the clutch, and the Bears followed their head coach's belief as they pulled off a wild 25-24 victory.`\
+https://nytimes.com/athletic/6672208/2025/09/28/bears-ben-johnson-caleb-williams-raiders/
+
 **Eagles reveal strength in staving off Bucs' comeback attempt**\
 `The Eagles have a bad recent history with games in Tampa.`\
 https://nytimes.com/athletic/6670525/2025/09/28/jihaad-campbell-eagles-offense-comeback/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/28/arts/music/bad-bunny-super-bowl-halftime.html
 **Eagles offense has been great and putrid in recent wins — which one is real?**\
 `Jalen Hurts completed 15 of 16 pass attempts in the first half and had no completions in the second half.`\
 https://nytimes.com/athletic/6671833/2025/09/28/buccaneers-eagles-offense-great-or-putrid-win/
-
-**‘Waiting for Godot’ Review: Cue the Air Guitar**\
-`Jamie Lloyd’s pristinely chic Broadway revival of the existential tragicomedy casts the “Bill & Ted” stars Keanu Reeves and Alex Winter as Samuel Beckett’s clowns.`\
-https://nytimes.com/2025/09/28/theater/waiting-for-godot-review-keanu-reeves.html
 
