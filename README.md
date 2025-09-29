@@ -1,3 +1,7 @@
+**Maresca: 'I could have done better' in Chelsea defeats after red cards**\
+`Maresca insisted "there is no reason to be negative" over Chelsea's form after successive Premier League losses.`\
+https://nytimes.com/athletic/6673009/2025/09/29/enzo-maresca-chelsea-form/
+
 **$55 Billion Deal for Electronic Arts Is Among the Biggest Buyouts Ever**\
 `Jared Kushner’s private equity firm and Saudi Arabia’s sovereign fund are among the investors taking the video game giant private.`\
 https://nytimes.com/2025/09/29/business/dealbook/electronic-arts-buyout-jared-kushner.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6672241/2025/09/29/baltimore-ravens-struggling-inju
 **Footballers not given enough time off between seasons, FIFPro says**\
 `"A minimum of four weeks is what you need (and) it should be closer to six," says Nottingham Forest and New Zealand striker Chris Wood.`\
 https://nytimes.com/athletic/6672948/2025/09/29/football-workload-calendar-fifpro/
-
-**The half-time corner tweak that powered Arsenal's win at Newcastle**\
-`Mikel Arteta's message to his side was to learn from the past – but learning from the first-half proved more important`\
-https://nytimes.com/athletic/6672720/2025/09/29/arsenal-corner-adaption-newcastle-tactics/
 
