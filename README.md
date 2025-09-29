@@ -1,40 +1,40 @@
-**Warriors' Jonathan Kuminga misses media day amid contract standoff**\
-`Golden State GM Mike Dunleavy and coach Steve Kerr were also absent Monday, which was unusual for the typically-accessible organization.`\
-https://nytimes.com/athletic/6674550/2025/09/29/jonathan-kuminga-warriors-contract-dispute-media-day-absence/
+**Iowa Superintendent Arrested by ICE Loses State License and Is Placed on Unpaid Leave**\
+`Immigration officials arrested Ian Roberts, the Des Moines Public Schools superintendent, on Friday and said he was in the country illegally.`\
+https://nytimes.com/2025/09/29/us/des-moines-superintendent-ice-roberts.html
 
-**Trump Administration Will Deploy 100 National Guard Troops to Illinois**\
-`The Department of Homeland Security requested the deployment over the objections of state officials, including Gov. JB Pritzker, a Democrat.`\
-https://nytimes.com/2025/09/29/us/trump-national-guard-chicago.html
+**Vance Says Federal Government Is Probably ‘Headed Into a Shutdown’**\
+`President Trump met with Republican and Democratic leaders at the White House, but they emerged without a deal.`\
+https://nytimes.com/2025/09/29/us/politics/government-shutdown-trump-vance-congress.html
 
-**Police Arrest 3 in Vandalism of New York Times Building**\
-`One person was charged with a hate crime in connection with a social media post that referred to The Times’s executive editor, Joseph Kahn.`\
-https://nytimes.com/2025/09/29/nyregion/new-york-times-building-vandalism-charges.html
+**Lally Weymouth, Globe-Trotting Reporter and Scion of Graham Family, Dies at 82**\
+`The daughter of Washington Post publisher Katharine Graham, she secured hard-to-land interviews with foreign leaders but found few opportunities for a leadership role.`\
+https://nytimes.com/2025/09/29/us/politics/lally-weymouth-dead.html
 
-**An Antifascist Movie at a Fascist Moment**\
-`“One Battle After Another” defies Trumpian taboos.`\
-https://nytimes.com/2025/09/29/opinion/one-battle-after-another-fascism.html
+**Chargers leaky pass protection, now without Joe Alt, is putting Justin Herbert at risk**\
+`Alt could land on injured reserve after suffering a high ankle sprain. Meanwhile, Herbert is taking hits at a record rate. `\
+https://nytimes.com/athletic/6674821/2025/09/29/chargers-joe-alt-injury-offensive-line-struggles/
 
-**Lakers' LeBron James is happy after tumultuous offseason, at least for now**\
-`Next season is still a huge question mark for LeBron James. But as he goes into his 23rd year, James is not taking anything for granted.`\
-https://nytimes.com/athletic/6674746/2025/09/29/lebron-james-lakers-offseason-media-day/
+**Could Guardians' prospect Chase DeLauter debut in October? Here's what to expect**\
+`Rosters are officially due at 10 a.m. Tuesday, and if the Guardians include DeLauter, he'll make his long-awaited debut in the postseason.`\
+https://nytimes.com/athletic/6674832/2025/09/29/cleveland-guardians-prospect-chase-delauter-october-debut-primer/
 
-**Health Department Moves to Block Harvard From Future Research Grants**\
-`The White House and Harvard University have struggled to negotiate an end to their monthslong dispute over the administration’s campaign to expunge “woke” ideology from campuses.`\
-https://nytimes.com/2025/09/29/us/politics/trump-administration-harvard-research-grants.html
+**How to watch Michigan State at Nebraska: Time, TV, streaming**\
+`Find out how to watch the Michigan State Spartans play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6675034/2025/09/29/michigan-state-vs-nebraska-stream-how-to-watch-oct-4/
 
-**How to watch Red Sox at Yankees: Game 1 Time, TV, streaming**\
-`Find out how to watch the Boston Red Sox play the New York Yankees, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6674890/2025/09/29/red-sox-vs-yankees-stream-how-to-watch-sept-30/
+**How to watch Miami (FL) at Florida State: Time, TV, streaming**\
+`Find out how to watch the Miami (FL) Hurricanes play the Florida State Seminoles, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6675026/2025/09/29/miami-fl-vs-florida-state-stream-how-to-watch-oct-4/
 
-**How to watch Padres at Cubs: Game 1 Time, TV, streaming**\
-`Find out how to watch the San Diego Padres play the Chicago Cubs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6674888/2025/09/29/padres-vs-cubs-stream-how-to-watch-sept-30/
+**How to watch Texas Tech at Houston: Time, TV, streaming**\
+`Find out how to watch the Texas Tech Red Raiders play the Houston Cougars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6675019/2025/09/29/texas-tech-vs-houston-stream-how-to-watch-oct-4/
 
-**Trump and Netanyahu Tell Hamas to Accept Their Peace Plan, or Else**\
-`President Trump said Israel would have a green light to “finish the job” if Hamas refused to agree to the cease-fire deal.`\
-https://nytimes.com/2025/09/29/us/politics/trump-netanyahu-hamas-ultimatum.html
+**How to watch Mississippi State at Texas A&M: Time, TV, streaming**\
+`Find out how to watch the Mississippi State Bulldogs play the Texas A&M Aggies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6675016/2025/09/29/mississippi-state-vs-texas-a-m-stream-how-to-watch-oct-4/
 
-**Guards Ball, the Gritty Tigs and a rivalry tinged with respect**\
-`The Tigers and Guardians have played six times in two weeks. Entering the AL Wild Card Series, their rivalry has evolved into respect.`\
-https://nytimes.com/athletic/6674580/2025/09/29/tigers-guardians-rivalry-wild-card-series/
+**How to watch Kent State at Oklahoma: Time, TV, streaming**\
+`Find out how to watch the Kent State Golden Flashes play the Oklahoma Sooners, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6675012/2025/09/29/kent-state-vs-oklahoma-stream-how-to-watch-oct-4/
 
