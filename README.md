@@ -1,3 +1,17 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>What a fun night watching both Oregon-Penn State and Alabama-Georgia last weekend. How do we top it?</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6673974/2025/09/29/submit-a-question-for-stewart-mandels-college-football-mailbag-317/
+
+**A House Music Icon on the Energizing Power of “Wanna Be Startin’ Somethin’ ”**\
+`Crystal Waters praises the subtle orchestration on the track, co-produced by Michael Jackson and Quincy Jones, and the rousing chant at the end.`\
+https://nytimes.com/2025/09/29/t-magazine/crystal-waters-favorite-song.html
+
+**My Favorite Song | Crystal Waters**\
+`The singer-songwriter breaks down the layered rhythms in the Quincy Jones-produced track “Wanna Be Startin’ Somethin’” by Michael Jackson.`\
+https://nytimes.com/video/t-magazine/100000010390258/my-favorite-song-crystal-waters.html
+
 **Spurs forward Solanke to have surgery on ankle problem**\
 `The 28-year-old has not played since their second game of the 2025-26 season against Manchester City.`\
 https://nytimes.com/athletic/6591858/2025/09/29/dominic-solanke-ankle-surgery-tottenham-hotspur/
@@ -26,16 +40,4 @@ https://nytimes.com/paidpost/la-mer/how-transferring-the-energy-of-the-sea-becam
 **NFL overreaction Monday: In Baker we believe (to fight like heck)**\
 `Toby Mergler makes four early Week 5 picks wildly over-indexing on vibes, small sample sizes and comparisons to pop culture classics.`\
 https://nytimes.com/athletic/6673734/2025/09/29/nfl-overreaction-monday-week-5/
-
-**Bucks' Giannis Antetokounmpo to miss start of training camp with COVID-19**\
-`Antetokounmpo is still in Greece, per general manager Jon Horst, with COVID-19 keeping him from traveling to Milwaukee.`\
-https://nytimes.com/athletic/6673818/2025/09/29/giannis-antetokounmpo-bucks-training-camp/
-
-**Ward-Prowse out of Nuno's first West Ham squad against Everton**\
-`The 30-year-old made ten appearances under Nuno at Forest on loan last season. `\
-https://nytimes.com/athletic/6673874/2025/09/29/james-ward-prowse-west-ham-nuno-espirito-santo-squad-george-earthy/
-
-**Trump Expands Global Technology Net With Rules Covering Subsidiaries**\
-`The Trump administration issued a rule to automatically extend trade restrictions for organizations on the “entity list” to any majority-owned subsidiary.`\
-https://nytimes.com/2025/09/29/business/economy/trump-entity-list-rule-change.html
 
