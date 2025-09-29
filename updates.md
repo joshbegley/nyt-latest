@@ -1,3 +1,7 @@
+**Trump and Netanyahu to Discuss Plans for Postwar Gaza**\
+`The president and Prime Minister Benjamin Netanyahu of Israel are set to meet in Washington after a week in which Israel grew more isolated internationally.`\
+https://nytimes.com/2025/09/29/world/middleeast/trump-netanyahu-meet-gaza.html
+
 **Giorgio Armani’s Last Show**\
 `Richard Gere, Glenn Close and Samuel L. Jackson were among the stars who came out for the 50th anniversary extravaganza Mr. Armani had planned before his death.`\
 https://nytimes.com/2025/09/29/style/giorgio-armani-last-show.html
