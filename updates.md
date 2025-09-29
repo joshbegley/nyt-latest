@@ -1,3 +1,7 @@
+**New Ideas Emerge to End Gaza Conflict and Govern After War**\
+`As Prime Minister Benjamin Netanyahu of Israel and President Trump head into a meeting on Monday, new proposals are under discussion.`\
+https://nytimes.com/2025/09/29/world/middleeast/gaza-peace-plans.html
+
 **How to watch 49ers at Rams: Time, TV, streaming**\
 `Find out how to watch the San Francisco 49ers play the Los Angeles Rams, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6672815/2025/09/29/49ers-vs-rams-stream-how-to-watch-oct-2/
