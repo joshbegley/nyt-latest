@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6671815/2025/09/28/cole-bishop-interception-bills-s
 https://nytimes.com/athletic/6671737/2025/09/28/jaxson-dart-giants-brian-daboll-chargers/
 
 **Ambitious Padres out to write 'new story' after another 90-win regular season**\
-`San Diego looks to build on its success when it faces the Cubs in the National League Wild-Card Series.`\
+`San Diego looks to build on its success when it faces the Cubs in the National League Wild Card Series.`\
 https://nytimes.com/athletic/6671867/2025/09/28/padres-90-win-regular-season-playoffs/
 
 **How the Commanders' defense was dismantled by the Falcons**\

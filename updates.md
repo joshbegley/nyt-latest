@@ -1,3 +1,7 @@
+**There's only one word for this Mets collapse: Failure**\
+`Manager Carlos Mendoza said: "It starts with me. I've got to take a long look at how I need to get better."`\
+https://nytimes.com/athletic/6671931/2025/09/28/mets-mlb-playoffs-collapse/
+
 **Scenes after Blue Jays clinch AL East title — and a needed break ahead of chase**\
 `The Blue Jays await either the Yankees or the Red Sox. In the meantime, Bo Bichette has more time to return from a sprained knee.`\
 https://nytimes.com/athletic/6671989/2025/09/28/blue-jays-al-east-champions/
