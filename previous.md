@@ -1,3 +1,7 @@
+**USC star JuJu Watkins to miss entire WBB season to focus on ACL recovery**\
+`Watkins tore her ACL in the second round of the 2025 NCAA Tournament on March 24.`\
+https://nytimes.com/athletic/6672001/2025/09/28/usc-juju-watkins-miss-season-acl-recovery/
+
 **There's only one word for this Mets collapse: Failure**\
 `Manager Carlos Mendoza said: "It starts with me. I've got to take a long look at how I need to get better."`\
 https://nytimes.com/athletic/6671931/2025/09/28/mets-mlb-playoffs-collapse/
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/6671815/2025/09/28/cole-bishop-interception-bills-s
 https://nytimes.com/athletic/6671737/2025/09/28/jaxson-dart-giants-brian-daboll-chargers/
 
 **Ambitious Padres out to write 'new story' after another 90-win regular season**\
-`San Diego looks to build on its success when it faces the Cubs in the National League Wild-Card Series.`\
+`San Diego looks to build on its success when it faces the Cubs in the National League Wild Card Series.`\
 https://nytimes.com/athletic/6671867/2025/09/28/padres-90-win-regular-season-playoffs/
 
 **How the Commanders' defense was dismantled by the Falcons**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6671827/2025/09/28/ryder-cup-rule-changes-bethpage/
 **Bears-Raiders takeaways: Josh Blackwell's blocked FG seals win for Chicago**\
 `The Bears notched the franchise's 800th win, second most in NFL history.`\
 https://nytimes.com/athletic/6671370/2025/09/28/bears-raiders-result-takeaways/
-
-**Rory McIlroy on verbal abuse at Ryder Cup: 'I don't think we should ever accept that in golf'**\
-`"I chirped back a few times because it got to me a few times," McIlroy said after disappointed American fans focused their ire on him.`\
-https://nytimes.com/athletic/6671617/2025/09/28/rory-mcilroy-fans-verbal-abuse-ryder-cup/
 

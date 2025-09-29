@@ -1,3 +1,11 @@
+**USC star JuJu Watkins to miss entire WBB season to focus on ACL recovery**\
+`Watkins tore her ACL in the second round of the 2025 NCAA Tournament on March 24.`\
+https://nytimes.com/athletic/6672001/2025/09/28/usc-juju-watkins-miss-season-acl-recovery/
+
+**Ambitious Padres out to write 'new story' after another 90-win regular season**\
+`San Diego looks to build on its success when it faces the Cubs in the National League Wild Card Series.`\
+https://nytimes.com/athletic/6671867/2025/09/28/padres-90-win-regular-season-playoffs/
+
 **There's only one word for this Mets collapse: Failure**\
 `Manager Carlos Mendoza said: "It starts with me. I've got to take a long look at how I need to get better."`\
 https://nytimes.com/athletic/6671931/2025/09/28/mets-mlb-playoffs-collapse/
