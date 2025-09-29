@@ -1,3 +1,7 @@
+**Vietnam Reels as Typhoon Bualoi Hits**\
+`Typhoon Bualoi lashed central Vietnam, making landfall on Sunday evening. The region was already reeling from Typhoon Kajiki which hit a month earlier.`\
+https://nytimes.com/video/world/asia/100000010427253/vietnam-residents-typhoon-bualoi.html
+
 **Inside Newcastle Q&A: Chris Waugh answers your questions**\
 `Supporter concern over Newcastle's attacking output in particular feels increasingly justified. Get your questions in now `\
 https://nytimes.com/athletic/6672742/2025/09/29/inside-newcastle-qa-chris-waugh-livramento-arsenal-forest-usg/

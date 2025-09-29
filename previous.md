@@ -1,3 +1,7 @@
+**Vietnam Reels as Typhoon Bualoi Hits**\
+`Typhoon Bualoi lashed central Vietnam, making landfall on Sunday evening. The region was already reeling from Typhoon Kajiki which hit a month earlier.`\
+https://nytimes.com/video/world/asia/100000010427253/vietnam-residents-typhoon-bualoi.html
+
 **Inside Newcastle Q&A: Chris Waugh answers your questions**\
 `Supporter concern over Newcastle's attacking output in particular feels increasingly justified. Get your questions in now `\
 https://nytimes.com/athletic/6672742/2025/09/29/inside-newcastle-qa-chris-waugh-livramento-arsenal-forest-usg/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6652450/2025/09/29/aaron-judge-yankees-postseason-t
 **Trump’s Tactics on Crime**\
 `We explore the president’s new tough-on-crime tactics and how they’re working.`\
 https://nytimes.com/2025/09/29/briefing/trumps-tactics-on-crime.html
-
-**Inside Real Madrid: How will they react to disastrous Atletico defeat?**\
-`A damaging 5-2 defeat against their city rivals on Saturday has punctured Real Madrid's positive start to the season`\
-https://nytimes.com/athletic/6672851/2025/09/29/inside-real-madrid-how-will-they-react-to-disastrous-atletico-defeat/
 
