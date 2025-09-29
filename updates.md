@@ -1,3 +1,11 @@
+**Giants fire manager Bob Melvin**\
+`The Giants fired Melvin after two seasons as the team's skipper. He went 161-163 and missed the playoffs both seasons.`\
+https://nytimes.com/athletic/6673694/2025/09/29/giants-bob-melvin-manager-fired/
+
+**The Future of New York**\
+`A series on what we can expect over the coming decades, and beyond, for the city.`\
+https://nytimes.com/spotlight/futureNYC
+
 **Democrats Are Trying the Costanza Strategy**\
 `Democrats need a new plan for 2028, argues the Opinion columnist Carlos Lozada in this round table from “The Opinions.”`\
 https://nytimes.com/video/opinion/100000010423773/democrats-are-trying-the-costanza-strategy.html
