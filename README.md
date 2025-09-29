@@ -14,8 +14,8 @@ https://nytimes.com/2025/09/29/opinion/anthropic-chatbot-lawsuit-books.html
 `Green Bay's Brandon McManus kicked a 34-yard field goal as time expired in overtime, resulting in a tied game.`\
 https://nytimes.com/athletic/6671905/2025/09/29/packers-cowboys-snf-score-results/
 
-**Kiosk Outage at Major Canadian Airports Causes Delays**\
-`Immigration inspection kiosks were offline at major airports in Montreal, Toronto and Calgary, officials said. There were reports of passengers stranded on planes for hours.`\
+**Passengers Report Delays at Canadian Airports After Tech Outage**\
+`Immigration inspection kiosks were offline at major airports in Montreal, Toronto and Calgary. Some passengers said they were stranded on planes.`\
 https://nytimes.com/2025/09/29/world/americas/outage-canada-airports-flights.html
 
 **Five games, no wins – Postecoglou must find calm amid the chaos at Forest**\
