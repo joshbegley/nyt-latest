@@ -1,3 +1,12 @@
+**Analyzing the Knicks preseason: More five-out offense? New lineups?**\
+`Discussing the Knicks' offense, tweaks and added depth as preseason schedule gets underway. `\
+https://nytimes.com/athletic/6667789/2025/09/29/knicks-offense-josh-hart-mitchell-robinson-preseason/
+
+**Bears magic trick: How Josh Blackwell's blocked field goal saved the day in Vegas**\
+`What an ending for the Bears in Sunday's thrilling win, with some Vegas magic right at the end that might make Criss Angel jealous.
+`\
+https://nytimes.com/athletic/6672220/2025/09/29/bears-josh-blackwell-blocked-field-goal-raiders/
+
 **Why the Chiefs' win brought 'flashback memories.' And how 2 players changed the vibe**\
 `Chiefs running back Kareem Hunt had the best kind of flashback after Sunday's win because the offense was humming.`\
 https://nytimes.com/athletic/6670841/2025/09/29/chiefs-xavier-worthy-kareem-hunt-ravens/

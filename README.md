@@ -1,3 +1,11 @@
+**What We Know About the Shooting and Fire at a Michigan Church**\
+`At least four people were killed after an attacker opened fire at a Church of Jesus Christ of Latter-day Saints building and intentionally set fire to the structure.`\
+https://nytimes.com/2025/09/29/us/michigan-mormon-church-shooting-fire.html
+
+**The Pulse: A painful Sunday ... everywhere**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6672152/2025/09/29/nfl-ravens-mlb-mets-ryder-cup-the-pulse/
+
 **Analyzing the Knicks preseason: More five-out offense? New lineups?**\
 `Discussing the Knicks' offense, tweaks and added depth as preseason schedule gets underway. `\
 https://nytimes.com/athletic/6667789/2025/09/29/knicks-offense-josh-hart-mitchell-robinson-preseason/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6672777/2025/09/29/jaguars-49ers-sign-stealing-coen
 **If Jaxson Dart's stuntman debut was any indication, Russell Wilson should stay ready**\
 `Dart was checked for a concussion and strained a hamstring while being exposed to hits on 16 of 34 possible plays. Is that sustainable?`\
 https://nytimes.com/athletic/6672775/2025/09/29/jaxson-dart-debut-giants-hits-injury/
-
-**Yankees' Wild Card Series roster projection: Ben Rice in Game 1? Who's on the bubble?**\
-`Time for the Yankees to fill out their 26-man roster for the American League wild card against the Boston Red Sox, starting Tuesday night.`\
-https://nytimes.com/athletic/6671863/2025/09/29/yankees-wild-card-series-roster-projection/
-
-**Packers' lofty expectations waver after tie vs. Cowboys: 'A lot of stuff to clean up'**\
-`The Packers are 2-1-1 entering their bye week after a 40-40 tie with the Cowboys on Sunday night.`\
-https://nytimes.com/athletic/6672696/2025/09/29/packers-cowboys-tie-micah-parsons-jordan-love/
 
