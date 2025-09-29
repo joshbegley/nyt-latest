@@ -1,3 +1,7 @@
+**Typhoon Bualoi Lashes Vietnam**\
+`Typhoon Bualoi slammed into Vietnam’s central coast on Monday, downing trees and flooding roads.`\
+https://nytimes.com/video/world/asia/100000010427150/typhoon-bualoi-lashes-vietnam.html
+
 **I Sued Anthropic, and the Unthinkable Happened**\
 `A.I. feels like a runaway train. But we don’t have to let it run over us.`\
 https://nytimes.com/2025/09/29/opinion/anthropic-chatbot-lawsuit-books.html

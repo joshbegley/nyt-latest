@@ -1,6 +1,6 @@
 **Typhoon Bualoi Lashes Vietnam**\
 `Typhoon Bualoi slammed into Vietnam’s central coast on Monday, downing trees and flooding roads.`\
-https://nytimes.com/video/world/asia/100000010427150/typhoon-bualoi-lashes-vietnam.html
+https://nytimes.com/video/world/asia/100000010427150/typhoon-bualoi-vietnam.html
 
 **The Rise and Fall of Eric Adams**\
 `Mr. Adams has suspended his re-election campaign, becoming the first mayor of New York City to fail to win a second term since David N. Dinkins.`\
