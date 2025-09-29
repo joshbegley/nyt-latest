@@ -1,3 +1,19 @@
+**Danger and Intrigue Hang Over Power Cut at Russian-Held Nuclear Plant**\
+`The Zaporizhzhia site in southeastern Ukraine has lacked external power to cool its reactors for five days. Kyiv says Moscow has manufactured the crisis.`\
+https://nytimes.com/2025/09/29/world/europe/zaporizhzhia-nuclear-power-plant-russia-ukraine.html
+
+**Mets owner Steve Cohen apologizes to fans: 'We didn't do our part'**\
+`The billionaire offered fans an apology on Monday, a day after the Mets and their $340 million payroll failed to make the playoffs.`\
+https://nytimes.com/athletic/6673732/2025/09/29/mets-steve-cohen-apology-fans/
+
+**Paul Finebaum considering leaving ESPN to run for U.S. Senate seat**\
+`Finebaum said he would run as a Republican and would likely fill the seat vacated by former Auburn and Ole Miss coach Tommy Tuberville.`\
+https://nytimes.com/athletic/6673678/2025/09/29/paul-finebaum-espn-us-senator-alabama/
+
+**Watch Live: Trump and Netanyahu Speak at White House**\
+`President Trump and Prime Minister Benjamin Netanyahu of Israel hold a joint news conference at the White House.`\
+https://nytimes.com/video/us/politics/100000010427948/watch-live-trump-and-netanyahu-speak-at-white-house.html
+
 **China Open injury retirements lay bare tennis schedule complaints from top players**\
 `On a day of many mid-match withdrawals, world No. 2 Iga Świątek said she may have to skip mandatory tournaments to avoid injury.`\
 https://nytimes.com/athletic/6673339/2025/09/29/tennis-china-open-injury-retirements/
@@ -21,20 +37,4 @@ https://nytimes.com/video/opinion/100000010423773/democrats-are-trying-the-costa
 **Kamala Harris 2028?**\
 `Harris’s book reveals why she should not be the Democratic presidential nominee in 2028, according to Lydia Polgreen in this week’s round table from “The Opinions.”`\
 https://nytimes.com/video/opinion/100000010423770/kamala-harris-2028.html
-
-**Tony Blair Emerges as Potential Figure in Postwar Gaza**\
-`For the former British prime minister, the Middle East is one of the most consistent, if contentious, chapters in a busy post-Downing Street career.`\
-https://nytimes.com/2025/09/29/world/middleeast/tony-blair-gaza.html
-
-**College football Week 6 odds: Miami, Alabama favored in top-25 matchups**\
-`Miami is a 4.5-point favorite at Florida State while Alabama is a double-digit favorite against Vanderbilt.`\
-https://nytimes.com/athletic/6673444/2025/09/29/college-football-week-6-odds-miami-florida-state-alabama-vanderbilt/
-
-**For Selena Gomez and Benny Blanco, a Wedding Fit for a ‘Disney Princess’**\
-`From her dramatic veil to her classic gown, the actress and singer was every bit a fairy tale bride at a private ceremony in Santa Barbara, Calif.`\
-https://nytimes.com/2025/09/29/style/selena-gomez-benny-blanco-wedding.html
-
-**Fantasy football Week 4 recap and early waivers speed run**\
-`Week 4 introduced several new names fantasy managers need to know.`\
-https://nytimes.com/athletic/6673504/2025/09/29/fantasy-football-week-4-recap-speed-run/
 
