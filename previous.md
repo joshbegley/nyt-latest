@@ -1,3 +1,27 @@
+**Top Trump Aides Push for Ousting Maduro From Power in Venezuela**\
+`An opposition movement whose figures have met with U.S. officials says it is communicating with Washington on plans to dismantle Nicolás Maduro’s “criminal structure.”`\
+https://nytimes.com/2025/09/29/us/politics/maduro-venezuela-trump-rubio.html
+
+**Trump Releases New Gaza Plan, Demands Hamas Accepts**\
+`President Trump and Prime Minister Benjamin Netanyahu of Israel unveiled a proposal to end the war in Gaza at the White House on Monday.`\
+https://nytimes.com/video/us/politics/100000010428780/trump-netanyahu-gaza-cease-fire-proposal.html
+
+**Mika Immonen, Champion Pool Player Known as the Iceman, Dies at 52**\
+`He won the world nine-ball title in 2001 and the 10-ball title in 2009, as well as back-to-back U.S. Opens, earning his nickname for his steely demeanor.`\
+https://nytimes.com/2025/09/29/sports/mika-immonen-dead.html
+
+**Israel’s Leader Backed Trump’s Plan to End the War in Gaza**\
+`Also, a government shutdown is fast approaching. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/09/29/briefing/trump-plan-israel-gaza-government-shutdown.html
+
+**YouTube Settles Trump Lawsuit for $24.5 Million**\
+`Mr. Trump sued Alphabet, the parent company of YouTube and Google, and other social media companies after the platforms suspended his accounts in 2021.`\
+https://nytimes.com/2025/09/29/technology/youtube-trump-lawsuit-settlement.html
+
+**Lucy Dacus Marries Couples During Music Set**\
+`The Grammy-winning musician Lucy Dacus married nine couples at the “All Things Go” festival in response to efforts by the Trump administration to eliminate programs for L.G.B.T.Q. people.`\
+https://nytimes.com/video/style/100000010428611/lucy-dacus-festival-wedding.html
+
 **Shell Casings and DNA on Fingernails Helped Crack ‘Yogurt Shop’ Murder Case**\
 `Old-fashioned detective work and advances in forensic science led to the identification of a suspect in the killings of four teenagers in Austin, Texas, in 1991, officials said.`\
 https://nytimes.com/2025/09/29/us/yogurt-shop-murders-solved-dna.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6674598/2025/09/29/college-football-transfer-portal
 **Trump and Comey: An Escalating Conflict With No Off-Ramp**\
 `The yearslong face-off between Donald Trump and James Comey amounts to a case study of how the president grew evermore emboldened to carry out his revenge agenda.`\
 https://nytimes.com/2025/09/29/us/politics/trump-comey-escalating-conflict.html
-
-**Wildfire Burns Over 1.9 Million Acres in Etosha National Park**\
-`Hundreds of Namibian soldiers have been deployed to one of Africa’s largest national parks to combat a wildfire that has burned over one-third of the popular tourist destination and threatened the area’s biodiversity.`\
-https://nytimes.com/video/world/africa/100000010427646/etosha-national-park-wildfire.html
-
-**Explaining the G.O.P.’s Misleading Talking Point on the Looming Shutdown**\
-`Republicans have been falsely asserting that Democrats are shutting down the government to fund free health care for unauthorized immigrants.`\
-https://nytimes.com/2025/09/29/us/politics/republicans-shutdown-fact-check-health-immigration.html
-
-**Government Shutdown Looms Unless Lawmakers Extend Funding**\
-`Democrats and Republicans have not agreed to a deal to extend federal funding to avert a government shutdown.`\
-https://nytimes.com/video/us/politics/100000010428029/government-shutdown.html
-
-**The Book That Taught Nonna to Cook Is Coming to America**\
-`An English translation of Ada Boni’s “The Talisman of Happiness,” an indispensable guide for Italian home cooks since the 1920s, is finally on its way.`\
-https://nytimes.com/2025/09/29/dining/ada-boni-italian-cookbook.html
-
-**Wembanyama cleared to play after blood clot, 'world-class' summer of training**\
-`The Spurs' star said he is healthy after missing the end of last season with a blood clot. "I feel like I need to play basketball now."`\
-https://nytimes.com/athletic/6674077/2025/09/29/victor-wembanyama-status-spurs-blood-clot/
-
-**‘Kpop Demon Hunters’ Noodle Cup Trend May Increase Burn Risks for Kids**\
-`TikTok users have rushed to get their hands on the instant noodles that appear in the film. One prominent Boston hospital has sounded the alarm.`\
-https://nytimes.com/2025/09/29/us/kpop-demon-hunters-noodles-tiktok.html
 
