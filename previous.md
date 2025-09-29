@@ -1,3 +1,15 @@
+**Which team is a washed child actor? Which is the Maple Leafs? MLB Postseason Tiers 2025**\
+`Which team will combust without a championship? Whose turn is it to end a drought? Let's tier the MLB playoff field.`\
+https://nytimes.com/athletic/6670484/2025/09/29/mlb-postseason-tiers-2025/
+
+**A Cross-Country Experiment With Global Appeal**\
+`In 1945, delegates and other attendees at a United Nations conference in California received special editions of The Times transmitted from New York.`\
+https://nytimes.com/2025/09/29/insider/un-edition.html
+
+**Spelling Bee Writing Contest**\
+`Create your own Spelling Bee sentence, with winning entries to appear in this year’s Puzzle Mania!`\
+https://nytimes.com/2025/09/29/crosswords/spelling-bee-writing-contest.html
+
 **Gochugaru Salmon with Crispy Rice**\
 `Gochugaru, a mild, fragrant red-pepper powder, bedazzles in this quick dinner of gochugaru salmon with crispy rice.`\
 https://nytimes.com/video/dining/100000010364845/gochugaru-salmon-with-crispy-rice.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6655041/2025/09/29/mlb-postseason-all-quarter-centu
 **The Math Behind Adams’s Exit**\
 `Mayor Eric Adams’s abandoning his re-election bid may please some business leaders opposed to Zohran Mamdani. But it may not change the outcome of the race.`\
 https://nytimes.com/2025/09/29/business/dealbook/eric-adams-mayor-donors.html
-
-**Roscoe, Lewis Hamilton's beloved bulldog and social media star, dies at 12**\
-`Roscoe had become a paddock fixture over the last decade`\
-https://nytimes.com/athletic/6665232/2025/09/29/roscoe-obituary-lewis-hamilton-dog/
-
-**Denmark Bans Civilian Drone Flights Ahead of Major E.U. Summit**\
-`A spate of recent drone sightings near airports in Denmark and Norway has amplified security concerns in Europe.`\
-https://nytimes.com/2025/09/29/world/europe/denmark-drones-eu-summit-airspace-closed.html
-
-**Two Major Storms Will Affect the East Coast, Even Without Landfall**\
-`Hurricane Humberto and Tropical Storm Imelda are expected to bring high surf, rip currents and heavy rainfall, though they won’t directly hit the United States.`\
-https://nytimes.com/2025/09/29/weather/humberto-imelda-carolina-florida-forecast.html
 

@@ -1,3 +1,15 @@
+**Which team is a washed child actor? Which is the Maple Leafs? MLB Postseason Tiers 2025**\
+`Which team will combust without a championship? Whose turn is it to end a drought? Let's tier the MLB playoff field.`\
+https://nytimes.com/athletic/6670484/2025/09/29/mlb-postseason-tiers-2025/
+
+**A Cross-Country Experiment With Global Appeal**\
+`In 1945, delegates and other attendees at a United Nations conference in California received special editions of The Times transmitted from New York.`\
+https://nytimes.com/2025/09/29/insider/un-edition.html
+
+**Spelling Bee Writing Contest**\
+`Create your own Spelling Bee sentence, with winning entries to appear in this year’s Puzzle Mania!`\
+https://nytimes.com/2025/09/29/crosswords/spelling-bee-writing-contest.html
+
 **Gochugaru Salmon with Crispy Rice**\
 `Gochugaru, a mild, fragrant red-pepper powder, bedazzles in this quick dinner of gochugaru salmon with crispy rice.`\
 https://nytimes.com/video/dining/100000010364845/gochugaru-salmon-with-crispy-rice.html
