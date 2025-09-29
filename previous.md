@@ -1,3 +1,11 @@
+**Bronx Casino Proposal Advances in Bid for New York Gambling License**\
+`If Bally’s Bronx is awarded a license, it would have to pay $115 million to the Trump Organization, which operated a golf course on the site.`\
+https://nytimes.com/2025/09/29/nyregion/ballys-bronx-casino-bid-brooklyn-ny.html
+
+**A Triumph Without a Trophy as India-Pakistan Tensions Overshadow Cricket**\
+`Months after a military conflict, a cricket tournament brought the Indian team three victories over its fiercest rival but few signs of an easing in bitterness.`\
+https://nytimes.com/2025/09/29/world/asia/asia-cup-cricket-trophy-india-pakistan.html
+
 **Texans trade OT Cam Robinson to Browns: Source**\
 `Robinson, a 2017 second-round pick, will presumably become the immediate starter at left tackle for Cleveland. `\
 https://nytimes.com/athletic/6673477/2025/09/29/texans-browns-cam-robinson-trade/
@@ -29,8 +37,4 @@ https://nytimes.com/2025/09/29/dining/bake-time-boozy-apple-crunch-cake-recipe.h
 **Brazil Has a New Digital Spending Habit. Now It’s a Trump Target.**\
 `Brazil’s fast and free homegrown digital payment system, PIX, has become wildly popular. The Trump administration says it unfairly undercuts U.S. companies.`\
 https://nytimes.com/2025/09/29/world/americas/brazil-digital-payments.html
-
-**A 102-Year-Old Yoga Teacher’s Simple Approach to Aging Well**\
-`For decades, Charlotte Chopin has been bending and stretching in Léré, a village in France. Here’s how she keeps moving.`\
-https://nytimes.com/2025/09/29/well/move/102-year-old-yogi-charlotte-chopin.html
 

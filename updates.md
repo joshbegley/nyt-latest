@@ -1,3 +1,11 @@
+**Bronx Casino Proposal Advances in Bid for New York Gambling License**\
+`If Bally’s Bronx is awarded a license, it would have to pay $115 million to the Trump Organization, which operated a golf course on the site.`\
+https://nytimes.com/2025/09/29/nyregion/ballys-bronx-casino-bid-brooklyn-ny.html
+
+**A Triumph Without a Trophy as India-Pakistan Tensions Overshadow Cricket**\
+`Months after a military conflict, a cricket tournament brought the Indian team three victories over its fiercest rival but few signs of an easing in bitterness.`\
+https://nytimes.com/2025/09/29/world/asia/asia-cup-cricket-trophy-india-pakistan.html
+
 **Texans trade OT Cam Robinson to Browns: Source**\
 `Robinson, a 2017 second-round pick, will presumably become the immediate starter at left tackle for Cleveland. `\
 https://nytimes.com/athletic/6673477/2025/09/29/texans-browns-cam-robinson-trade/
