@@ -1,3 +1,7 @@
+**Scenes after Blue Jays clinch AL East title — and a needed break ahead of chase**\
+`The Blue Jays await either the Yankees or the Red Sox. In the meantime, Bo Bichette has more time to return from a sprained knee.`\
+https://nytimes.com/athletic/6671989/2025/09/28/blue-jays-al-east-champions/
+
 **'Just hell of a play by him': Cole Bishop's interception revives Bills as they remain undefeated**\
 `Bishop's play helped spark a Bills defense that had been struggling against the winless Saints.`\
 https://nytimes.com/athletic/6671815/2025/09/28/cole-bishop-interception-bills-saints/

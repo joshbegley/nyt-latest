@@ -1,3 +1,7 @@
+**There's only one word for this Mets collapse: Failure**\
+`Manager Carlos Mendoza said: "It starts with me. I've got to take a long look at how I need to get better."`\
+https://nytimes.com/athletic/6671931/2025/09/28/mets-mlb-playoffs-collapse/
+
 **Scenes after Blue Jays clinch AL East title — and a needed break ahead of chase**\
 `The Blue Jays await either the Yankees or the Red Sox. In the meantime, Bo Bichette has more time to return from a sprained knee.`\
 https://nytimes.com/athletic/6671989/2025/09/28/blue-jays-al-east-champions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6671370/2025/09/28/bears-raiders-result-takeaways/
 **Rory McIlroy on verbal abuse at Ryder Cup: 'I don't think we should ever accept that in golf'**\
 `"I chirped back a few times because it got to me a few times," McIlroy said after disappointed American fans focused their ire on him.`\
 https://nytimes.com/athletic/6671617/2025/09/28/rory-mcilroy-fans-verbal-abuse-ryder-cup/
-
-**The Lions didn't play to their standards but still managed comfortable 24-point win**\
-`The Lions created three turnovers and held the Browns to 3-of-14 on third down in picking up the offense Sunday.`\
-https://nytimes.com/athletic/6671675/2025/09/28/lions-beat-browns-dan-campbell-standards/
 

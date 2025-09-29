@@ -1,3 +1,7 @@
+**Scenes after Blue Jays clinch AL East title — and a needed break ahead of chase**\
+`The Blue Jays await either the Yankees or the Red Sox. In the meantime, Bo Bichette has more time to return from a sprained knee.`\
+https://nytimes.com/athletic/6671989/2025/09/28/blue-jays-al-east-champions/
+
 **'Just hell of a play by him': Cole Bishop's interception revives Bills as they remain undefeated**\
 `Bishop's play helped spark a Bills defense that had been struggling against the winless Saints.`\
 https://nytimes.com/athletic/6671815/2025/09/28/cole-bishop-interception-bills-saints/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6671617/2025/09/28/rory-mcilroy-fans-verbal-abuse-r
 **The Lions didn't play to their standards but still managed comfortable 24-point win**\
 `The Lions created three turnovers and held the Browns to 3-of-14 on third down in picking up the offense Sunday.`\
 https://nytimes.com/athletic/6671675/2025/09/28/lions-beat-browns-dan-campbell-standards/
-
-**The Browns have shown, over and over, how bad they are offensively**\
-`With its lack of offensive explosion or cohesion, Cleveland is starting to feel like a hopeless team. `\
-https://nytimes.com/athletic/6671629/2025/09/28/browns-bad-offense-loss-lions/
 
