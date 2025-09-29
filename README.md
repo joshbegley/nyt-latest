@@ -1,3 +1,7 @@
+**Jaxson Dart era begins with 'special' win, as young Giants QB vows, 'This is just the start'**\
+`Dart gave the Giants just what they needed on Sunday: a win — and reason to hope. `\
+https://nytimes.com/athletic/6671874/2025/09/28/jaxson-dart-giants-chargers-special-swagger/
+
 **Brock Purdy, 49ers receivers out of sync, injuries finally take toll in loss to Jaguars**\
 `Purdy, back after a two-week absence, had several sharp passes, but they were sandwiched by a string of underthrows and overthrows.`\
 https://nytimes.com/athletic/6672106/2025/09/28/brock-purdy-49ers-receivers-jaguars/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6672106/2025/09/28/brock-purdy-49ers-receivers-jagu
 https://nytimes.com/athletic/6672119/2025/09/28/snoop-dogg-nbc-2026-olympics/
 
 **Bad Bunny Will Headline Super Bowl Halftime Show**\
-`The Latin superstar known for hits including “MIA,” “I Like It” and “Me Porto Benito” will perform in February in Santa Clara, Calif.`\
+`The Latin superstar known for hits including “MIA,” “I Like It” and “Me Porto Bonito” will perform in February in Santa Clara, Calif.`\
 https://nytimes.com/2025/09/28/arts/music/bad-bunny-super-bowl-halftime.html
 
 **Eagles offense has been great and putrid in recent wins — which one is real?**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6672094/2025/09/28/jaguars-49ers-liam-coen-robert-s
 **Trump Raises Possibility of Inquiry Into Another Former F.B.I. Director**\
 `In a phone interview with NBC, Mr. Trump said an investigation of Christopher Wray could be underway, days after the Justice Department’s indictment of James B. Comey.`\
 https://nytimes.com/2025/09/28/us/politics/trump-wray-fbi.html
-
-**USC star JuJu Watkins to miss entire WBB season to focus on ACL recovery**\
-`Watkins tore her ACL in the second round of the 2025 NCAA Tournament on March 24.`\
-https://nytimes.com/athletic/6672001/2025/09/28/usc-juju-watkins-miss-season-acl-recovery/
 
