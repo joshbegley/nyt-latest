@@ -1,3 +1,11 @@
+**A Black Man’s Death in Mississippi Strikes the Nation’s Raw Nerves**\
+`The authorities say Trey Reed took his own life on his college campus, but in a nation ready to jump to judgment and in a state with its history of racial violence, that conclusion has not ended the story.`\
+https://nytimes.com/2025/09/29/us/politics/trey-reed-hanging-mississippi.html
+
+**South Africa hit with World Cup blow as FIFA dock points for ineligible player**\
+`Third-placed Nigeria face new leaders Benin on October 14 in a game that could be decisive for World Cup qualification.`\
+https://nytimes.com/athletic/6673238/2025/09/29/world-cup-south-africa-nigeria-benin/
+
 **Packers mailbag: Submit your questions to beat writer Matt Schneidman**\
 `What's on your mind after a Week 4 tie and heading into the bye?`\
 https://nytimes.com/athletic/6673374/2025/09/29/packers-mailbag-bye-week-cowboys-tie/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6672706/2025/09/29/game-162-mlb-playoffs-the-windup
 **Her Video Games Aren’t About Winning. They’re About Connecting.**\
 `The artist Danielle Brathwaite-Shirley wants her audience to actively grapple with her ideas. To experience her work, you have to grab a controller and interact.`\
 https://nytimes.com/2025/09/29/arts/design/danielle-brathwaite-shirley-serpentine-london.html
-
-**Mike Cavanagh Named Co-C.E.O. of Comcast**\
-`Mr. Cavanagh will run the media giant alongside Brian L. Roberts, its longtime chairman and chief executive, in a clear sign of succession planning.`\
-https://nytimes.com/2025/09/29/business/media/comcast-mike-cavanagh.html
-
-**Madden, EAFC maker Electronic Arts to go private in record $55bn buyout**\
-`The purchasing consortium consists of Saudi Arabia's PIF, Silver Lake and Jared Kushner's Affinity Partners.`\
-https://nytimes.com/athletic/6673160/2025/09/29/electronic-arts-takeover-pif-kushner/
 
