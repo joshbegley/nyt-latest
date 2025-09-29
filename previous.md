@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6673070/2025/09/29/bills-questions-undefeated-the-s
 `Maresca insisted "there is no reason to be negative" over Chelsea's form after successive Premier League losses.`\
 https://nytimes.com/athletic/6673009/2025/09/29/enzo-maresca-chelsea-form/
 
-**$55 Billion Deal for Electronic Arts Is Among the Biggest Buyouts Ever**\
-`Jared Kushner’s private equity firm and Saudi Arabia’s sovereign fund are among the investors taking the video game giant private.`\
+**$55 Billion Deal for Electronic Arts Is Among Biggest Buyouts Ever**\
+`Jared Kushner’s private equity firm and Saudi Arabia’s sovereign fund are some of the investors teaming up to take the video game giant private.`\
 https://nytimes.com/2025/09/29/business/dealbook/electronic-arts-buyout-jared-kushner.html
 

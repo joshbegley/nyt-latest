@@ -1,3 +1,7 @@
+**$55 Billion Deal for Electronic Arts Is Among Biggest Buyouts Ever**\
+`Jared Kushner’s private equity firm and Saudi Arabia’s sovereign fund are some of the investors teaming up to take the video game giant private.`\
+https://nytimes.com/2025/09/29/business/dealbook/electronic-arts-buyout-jared-kushner.html
+
 **Matt Beard inquest hears initial evidence about death of former WSL manager**\
 `Beard died at the age of 47 on September 20.`\
 https://nytimes.com/athletic/6673157/2025/09/29/matt-beard-death-inquest/
