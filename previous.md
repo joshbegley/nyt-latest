@@ -1,3 +1,7 @@
+**Kiosk Outage at Major Canadian Airports Causes Delays**\
+`Immigration inspection kiosks were offline at major airports in Montreal, Toronto and Calgary, officials said. There were reports of passengers stranded on planes for hours.`\
+https://nytimes.com/2025/09/29/world/americas/outage-canada-airports-flights.html
+
 **Five games, no wins – Postecoglou must find calm amid the chaos at Forest**\
 `Despite showing signs that it could all click spectacularly, the head coach has not found a way to successfully make his mark`\
 https://nytimes.com/athletic/6669845/2025/09/29/nottingham-forest-postecoglou-sunderland-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6669833/2025/09/29/newcastle-premier-league-champio
 **Tyler Adams' fiery Leeds return shows why they are 380 days unbeaten in the league at Elland Road**\
 `Adams' every touch of the ball was booed on Saturday. Leeds fans must generate that atmosphere for the 16 home games to come`\
 https://nytimes.com/athletic/6668425/2025/09/29/leeds-tyler-adams-bournemouth-elland-road/
-
-**The Briefing: What did victory say about Arsenal and Arteta? Why more late goals? Who are the 'best team in Europe'?**\
-`Dissecting the Premier League's big weekend talking points, from Arteta proving a point (or three) to an incredible unbeaten run`\
-https://nytimes.com/athletic/6671124/2025/09/29/arsenal-arteta-premier-league/
 

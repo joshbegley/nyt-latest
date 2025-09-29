@@ -1,3 +1,7 @@
+**Kiosk Outage at Major Canadian Airports Causes Delays**\
+`Immigration inspection kiosks were offline at major airports in Montreal, Toronto and Calgary, officials said. There were reports of passengers stranded on planes for hours.`\
+https://nytimes.com/2025/09/29/world/americas/outage-canada-airports-flights.html
+
 **Five games, no wins – Postecoglou must find calm amid the chaos at Forest**\
 `Despite showing signs that it could all click spectacularly, the head coach has not found a way to successfully make his mark`\
 https://nytimes.com/athletic/6669845/2025/09/29/nottingham-forest-postecoglou-sunderland-analysis/
