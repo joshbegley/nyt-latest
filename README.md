@@ -1,3 +1,11 @@
+**Matt Beard inquest hears initial evidence about death of former WSL manager**\
+`Beard died at the age of 47 on September 20.`\
+https://nytimes.com/athletic/6673157/2025/09/29/matt-beard-death-inquest/
+
+**Penguins 2025-26 roster projection: How will franchise legends meld with extreme youth?**\
+`Attempting to project the Penguins' roster isn't as easy as it used to be, but here goes nothing.`\
+https://nytimes.com/athletic/6672045/2025/09/29/penguins-2025-26-nhl-roster-projection/
+
 **Which team is a washed child actor? Which is the Maple Leafs? MLB Postseason Tiers 2025**\
 `Which team will combust without a championship? Whose turn is it to end a drought? Let's tier the MLB playoff field.`\
 https://nytimes.com/athletic/6670484/2025/09/29/mlb-postseason-tiers-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6673009/2025/09/29/enzo-maresca-chelsea-form/
 **$55 Billion Deal for Electronic Arts Is Among the Biggest Buyouts Ever**\
 `Jared Kushner’s private equity firm and Saudi Arabia’s sovereign fund are among the investors taking the video game giant private.`\
 https://nytimes.com/2025/09/29/business/dealbook/electronic-arts-buyout-jared-kushner.html
-
-**Presenting the MLB Postseason All-Quarter Century Team — just in time for October**\
-`To finish off our season-long All-Quarter Century Team series, here are our picks for the best postseason performers since 2000. `\
-https://nytimes.com/athletic/6655041/2025/09/29/mlb-postseason-all-quarter-century-team/
-
-**The Math Behind Adams’s Exit**\
-`Mayor Eric Adams’s abandoning his re-election bid may please some business leaders opposed to Zohran Mamdani. But it may not change the outcome of the race.`\
-https://nytimes.com/2025/09/29/business/dealbook/eric-adams-mayor-donors.html
 
