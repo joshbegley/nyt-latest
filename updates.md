@@ -1,3 +1,23 @@
+**For Jerry Jones, that bonkers tie wasn't vindication, but it could have been worse**\
+`The Cowboys' owner wanted vindication with Micah Parsons back in town. Instead, he got one of the wildest results of this NFL season.`\
+https://nytimes.com/athletic/6672854/2025/09/29/jerry-jones-micah-parsons-cowboys-packers-tie/
+
+**After being overlooked and underestimated, Cubs' bullpen will embrace October**\
+`The Cubs have a team within a team, an overlooked group imbued with perspective that could prove to be the difference in October.`\
+https://nytimes.com/athletic/6671091/2025/09/29/chicago-cubs-bullpen-performance/
+
+**Aaron Judge, the Yankees and the burden of greatness: Another postseason test awaits**\
+`Baseball is a game of failure, but success — fairly or not — is a requirement for a player of Judge's caliber. Can he deliver in October?`\
+https://nytimes.com/athletic/6652450/2025/09/29/aaron-judge-yankees-postseason-test/
+
+**Trump’s Tactics on Crime**\
+`We explore the president’s new tough-on-crime tactics and how they’re working.`\
+https://nytimes.com/2025/09/29/briefing/trumps-tactics-on-crime.html
+
+**Inside Real Madrid: How will they react to disastrous Atletico defeat?**\
+`A damaging 5-2 defeat against their city rivals on Saturday has punctured Real Madrid's positive start to the season`\
+https://nytimes.com/athletic/6672851/2025/09/29/inside-real-madrid-how-will-they-react-to-disastrous-atletico-defeat/
+
 **Ravens didn't look like a good team vs. Chiefs — and now Lamar Jackson is hurt**\
 `Baltimore, a popular Super Bowl pick, is watching its season quickly slip away. And the calendar hasn’t turned to October yet.`\
 https://nytimes.com/athletic/6672242/2025/09/29/ravens-loss-chiefs-lamar-jackson-injury/

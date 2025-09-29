@@ -1,40 +1,41 @@
-**For Jerry Jones, that bonkers tie wasn't vindication, but it could have been worse**\
-`The Cowboys' owner wanted vindication with Micah Parsons back in town. Instead, he got one of the wildest results of this NFL season.`\
-https://nytimes.com/athletic/6672854/2025/09/29/jerry-jones-micah-parsons-cowboys-packers-tie/
+**Minnesota Lynx couldn't get back to WNBA Finals. Next year's quest might get even harder**\
+`Without Napheesa Collier and Cheryl Reeve, the Lynx were eliminated in four games by the Mercury.`\
+https://nytimes.com/athletic/6672537/2025/09/29/minnesota-lynx-wnba-semifinals-loss/
 
-**After being overlooked and underestimated, Cubs' bullpen will embrace October**\
-`The Cubs have a team within a team, an overlooked group imbued with perspective that could prove to be the difference in October.`\
-https://nytimes.com/athletic/6671091/2025/09/29/chicago-cubs-bullpen-performance/
+**What We Know About the Shooting and Fire at a Michigan Church**\
+`At least four people were killed after an attacker opened fire at a Church of Jesus Christ of Latter-day Saint building and intentionally set fire to the structure.`\
+https://nytimes.com/2025/09/29/us/michigan-mormon-church-shooting-fire.html
 
-**Aaron Judge, the Yankees and the burden of greatness: Another postseason test awaits**\
-`Baseball is a game of failure, but success — fairly or not — is a requirement for a player of Judge's caliber. Can he deliver in October?`\
-https://nytimes.com/athletic/6652450/2025/09/29/aaron-judge-yankees-postseason-test/
+**The Pulse: A painful Sunday ... everywhere**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6672152/2025/09/29/nfl-ravens-mlb-mets-ryder-cup-the-pulse/
 
-**Trump’s Tactics on Crime**\
-`We explore the president’s new tough-on-crime tactics and how they’re working.`\
-https://nytimes.com/2025/09/29/briefing/trumps-tactics-on-crime.html
+**Analyzing the Knicks preseason: More five-out offense? New lineups?**\
+`Discussing the Knicks' offense, tweaks and added depth as preseason schedule gets underway. `\
+https://nytimes.com/athletic/6667789/2025/09/29/knicks-offense-josh-hart-mitchell-robinson-preseason/
 
-**Inside Real Madrid: How will they react to disastrous Atletico defeat?**\
-`A damaging 5-2 defeat against their city rivals on Saturday has punctured Real Madrid's positive start to the season`\
-https://nytimes.com/athletic/6672851/2025/09/29/inside-real-madrid-how-will-they-react-to-disastrous-atletico-defeat/
+**Why the Chiefs' win brought 'flashback memories.' And how 2 players changed the vibe**\
+`Chiefs running back Kareem Hunt had the best kind of flashback after Sunday's win because the offense was humming.`\
+https://nytimes.com/athletic/6670841/2025/09/29/chiefs-xavier-worthy-kareem-hunt-ravens/
 
-**Ravens didn't look like a good team vs. Chiefs — and now Lamar Jackson is hurt**\
-`Baltimore, a popular Super Bowl pick, is watching its season quickly slip away. And the calendar hasn’t turned to October yet.`\
-https://nytimes.com/athletic/6672242/2025/09/29/ravens-loss-chiefs-lamar-jackson-injury/
+**Bears magic trick: How Josh Blackwell's blocked field goal saved the day in Vegas**\
+`What an ending for the Bears in Sunday's thrilling win, with some Vegas magic right at the end that might make Criss Angel jealous.
+`\
+https://nytimes.com/athletic/6672220/2025/09/29/bears-josh-blackwell-blocked-field-goal-raiders/
 
-**The Seahawks' biggest flaw, even at 3-1, is what was supposed to be their strength**\
-`Much has gone right during Seattle's hot start, but a central part of its identity — the run game — has yet to click. How can it be fixed?`\
-https://nytimes.com/athletic/6671123/2025/09/29/seahawks-run-game-offensive-line/
+**Another ‘Monday Night Football’ doubleheader: Where to watch each game as kickoffs overlap**\
+`Like Week 2, there are two "Monday Night Football" games on tonight. Unlike Week 2, the games overlap. Here's what to know about the split.`\
+https://nytimes.com/athletic/6665890/2025/09/29/monday-night-football-jets-dolphins-broncos-bengals-espn-abc-how-to-watch/
 
-**Message board Monday: What Penn State fans said about James Franklin and Drew Allar on a night of judgement**\
-`Penn State finds themselves in a familiar spot in the James Franklin era after falling to Oregon. How did fans react to the game?`\
-https://nytimes.com/athletic/6671210/2025/09/29/message-board-monday-penn-state-james-franklin/
+**Dak Prescott continues to be Cowboys' brightest star, but will he get the help he needs?**\
+`Prescott threw for 319 yards and 3 TDs and ran for another Sunday night, but the overtime tie still wasn't the result the Cowboys wanted.`\
+https://nytimes.com/athletic/6672715/2025/09/29/cowboys-dak-prescott-big-game-packers-tie/
 
-**Why Mika Zibanejad, the new longest-tenured Ranger, is on an upswing**\
-`With a new coach, a promising summer and chemistry with new captain J.T. Miller, Zibanejad could be key to a Rangers resurgence.`\
-https://nytimes.com/athletic/6670829/2025/09/29/rangers-mika-zibanejad-miller-sullivan/
+**Did the Seahawks do it again? What's the key to moving on from a winning QB?**\
+`The Sam Darnold-for-Geno Smith swap is off to a strong start. Plus, a closer look at Russell Wilson's much-debated Hall of Fame case.`\
+https://nytimes.com/athletic/6672778/2025/09/29/seahawks-sam-darnold-geno-smith-russell-wilson/
 
-**Red Sox may lean lefty in ’pen and other roster matters ahead of wild-card series**\
-`A look at the lineup the Red Sox could send out in Game 1 against Yankees lefty Max Fried, and why Brayan Bello lines up for Game 2.`\
-https://nytimes.com/athletic/6672432/2025/09/29/red-sox-roster-projection-yankees-wild-card/
+**The Jaguars are stealing more than signs**\
+`Rival coaches mostly dismissed the Liam Coen-Robert Saleh beef, but the Jaguars' takeaways through four games are very real.`\
+https://nytimes.com/athletic/6672777/2025/09/29/jaguars-49ers-sign-stealing-coen-saleh/
 
