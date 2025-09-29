@@ -1,3 +1,11 @@
+**Do You Recognize the Authors of These Lyrical, Literary Lines?**\
+`Is that passage from a poem or a popular song? Try this short quiz to see how many writers you can identify.`\
+https://nytimes.com/interactive/2025/09/29/books/review/lyrics-poem-quiz.html
+
+**Lowetide: Could the Oilers make a trade before the regular season begins?**\
+`The Oilers have needs in specific and important areas, and there are some attractive trade options available.`\
+https://nytimes.com/athletic/6670503/2025/09/29/edmonton-oilers-trade-preseason-2025/
+
 **Spending Fight Puts Leaders in Congress in a Tough Spot**\
 `The top four leaders on Capitol Hill are each facing high stakes and competing political incentives as they barrel toward a shutdown.`\
 https://nytimes.com/2025/09/29/us/politics/schumer-thune-jeffries-johnson-shutdown.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/29/crosswords/spelling-bee-writing-contest.html
 **Gochugaru Salmon with Crispy Rice**\
 `Gochugaru, a mild, fragrant red-pepper powder, bedazzles in this quick dinner of gochugaru salmon with crispy rice.`\
 https://nytimes.com/video/dining/100000010364845/gochugaru-salmon-with-crispy-rice.html
-
-**Notre Dame-Arkansas final thoughts: An all-phases improvement one month in**\
-`For the first time all year, the Irish got better on both sides of the ball. That was common last year. It’s been rare this season.`\
-https://nytimes.com/athletic/6673026/2025/09/29/notre-dame-arkansas-marcus-freeman/
-
-**The Satchel: Submit your Bills questions to Tim Graham**\
-`Submit your Bills questions to Tim Graham.`\
-https://nytimes.com/athletic/6673070/2025/09/29/bills-questions-undefeated-the-satchel/
 

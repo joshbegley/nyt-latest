@@ -1,3 +1,11 @@
+**Spending Fight Puts Leaders in Congress in a Tough Spot**\
+`The top four leaders on Capitol Hill are each facing high stakes and competing political incentives as they barrel toward a shutdown.`\
+https://nytimes.com/2025/09/29/us/politics/schumer-thune-jeffries-johnson-shutdown.html
+
+**Canadiens notebook: Surprises in first cuts, style of play, Jacob Fowler’s education**\
+`Also: How management plays a role in making preseason lineups with Martin St. Louis.`\
+https://nytimes.com/athletic/6672584/2025/09/29/canadiens-roster-cuts-joshua-roy-vinzenz-rohrer/
+
 **$55 Billion Deal for Electronic Arts Is Among Biggest Buyouts Ever**\
 `Jared Kushner’s private equity firm and Saudi Arabia’s sovereign fund are some of the investors teaming up to take the video game giant private.`\
 https://nytimes.com/2025/09/29/business/dealbook/electronic-arts-buyout-jared-kushner.html
