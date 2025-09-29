@@ -1,3 +1,31 @@
+**Denmark Bans Civilian Drone Flights Ahead of Major E.U. Summit**\
+`A spate of recent drone sightings near airports in Denmark and Norway has amplified security concerns in Europe.`\
+https://nytimes.com/2025/09/29/world/europe/denmark-drones-eu-summit-airspace-closed.html
+
+**Two Major Storms Will Affect the East Coast, Even Without Landfall**\
+`Hurricane Humberto and Tropical Storm Imelda are expected to bring high surf, rip currents and heavy rainfall, though they won’t directly hit the United States.`\
+https://nytimes.com/2025/09/29/weather/humberto-imelda-carolina-florida-forecast.html
+
+**Trump Administration Live Updates: President to Meet With Congressional Leaders as Shutdown Looms**\
+``\
+https://nytimes.com/live/2025/09/29/us/trump-news-shutdown
+
+**Clock is ticking on Ravens, who in bizarre fashion have turned into the Can't Get-Rights**\
+`The Ravens are 1-3, now dealing with a load of injuries — including to Lamar Jackson. Is it too late for them to recover? `\
+https://nytimes.com/athletic/6672241/2025/09/29/baltimore-ravens-struggling-injuries-lamar-jackson/
+
+**Footballers not given enough time off between seasons, FIFPro says**\
+`"A minimum of four weeks is what you need (and) it should be closer to six," says Nottingham Forest and New Zealand striker Chris Wood.`\
+https://nytimes.com/athletic/6672948/2025/09/29/football-workload-calendar-fifpro/
+
+**The half-time corner tweak that powered Arsenal's win at Newcastle**\
+`Mikel Arteta's message to his side was to learn from the past – but learning from the first-half proved more important`\
+https://nytimes.com/athletic/6672720/2025/09/29/arsenal-corner-adaption-newcastle-tactics/
+
+**Bears leave Las Vegas with uplifting victory, feeling of good fortune**\
+`The Bears knew they didn’t play their best game, but they made their luck and got help from an ace when it counted.`\
+https://nytimes.com/athletic/6672490/2025/09/29/bears-raiders-caleb-williams-las-vegas-luck/
+
 **Vietnam Reels as Typhoon Bualoi Hits**\
 `Typhoon Bualoi lashed central Vietnam, making landfall on Sunday evening. The region was already reeling from Typhoon Kajiki which hit a month earlier.`\
 https://nytimes.com/video/world/asia/100000010427253/vietnam-residents-typhoon-bualoi.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6672742/2025/09/29/inside-newcastle-qa-chris-waugh-
 **Tutu Atwell, the forgotten man in Rams' offense, finally had his moment vs. Colts**\
 `Matthew Stafford, who always seems to be at his best in the fourth quarter, connected with Atwell for an 88-yard game-winning score. `\
 https://nytimes.com/athletic/6671944/2025/09/29/tutu-atwell-matthew-stafford-rams-win-colts/
-
-**Why the Baltimore Ravens' rough 1-3 start will not hurt NFL TV viewership**\
-`The NFL front-loaded the Ravens' schedule with challenging, made-for-TV opponents to help the league get off to a fast start with ratings.`\
-https://nytimes.com/athletic/6671904/2025/09/29/baltimore-ravens-nfl-tv-ratings/
-
-**How the Mets lost their groove: Inside baseball's biggest collapse**\
-`Talented, yes, but this year's Mets lacked sizzle. They were MLB's only team never to mount a ninth-inning comeback.`\
-https://nytimes.com/athletic/6672509/2025/09/29/mets-mlb-collapse-mendoza-soto-lindor/
-
-**58 Million Pounds of Corn Dogs Are Recalled Because of Wood in the Batter**\
-`Hillshire Brands voluntarily recalled the products after at least five people reported injuries because of pieces of wood in the products’ batter.`\
-https://nytimes.com/2025/09/29/business/corn-dog-recall.html
-
-**Jerry Jones was ready to gloat on his big night. Then he saw the clock**\
-`The Cowboys' owner wanted vindication with Micah Parsons back in town. Instead, he got one of the wildest results of this NFL season.`\
-https://nytimes.com/athletic/6672854/2025/09/29/jerry-jones-micah-parsons-cowboys-packers-tie/
-
-**After being overlooked and underestimated, Cubs' bullpen will embrace October**\
-`The Cubs have a team within a team, an overlooked group imbued with perspective that could prove to be the difference in October.`\
-https://nytimes.com/athletic/6671091/2025/09/29/chicago-cubs-bullpen-performance/
-
-**Aaron Judge, the Yankees and the burden of greatness: Another postseason test awaits**\
-`Baseball is a game of failure, but success — fairly or not — is a requirement for a player of Judge's caliber. Can he deliver in October?`\
-https://nytimes.com/athletic/6652450/2025/09/29/aaron-judge-yankees-postseason-test/
-
-**Trump’s Tactics on Crime**\
-`We explore the president’s new tough-on-crime tactics and how they’re working.`\
-https://nytimes.com/2025/09/29/briefing/trumps-tactics-on-crime.html
 
