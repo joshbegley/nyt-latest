@@ -1,3 +1,11 @@
+**China Open injury retirements lay bare tennis schedule complaints from top players**\
+`On a day of many mid-match withdrawals, world No. 2 Iga Świątek said she may have to skip mandatory tournaments to avoid injury.`\
+https://nytimes.com/athletic/6673339/2025/09/29/tennis-china-open-injury-retirements/
+
+**Eagles' Ogbo Okoronkwo suffers season-ending triceps tear: Source**\
+`Okoronkwo's injury is a blow to an Eagles edge rusher group searching for more sacks.`\
+https://nytimes.com/athletic/6673690/2025/09/29/eagles-ogbo-okoronkwo-injury-bucs/
+
 **Giants fire manager Bob Melvin**\
 `The Giants fired Melvin after two seasons as the team's skipper. He went 161-163 and missed the playoffs both seasons.`\
 https://nytimes.com/athletic/6673694/2025/09/29/giants-bob-melvin-manager-fired/

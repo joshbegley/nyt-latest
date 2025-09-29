@@ -1,3 +1,11 @@
+**China Open injury retirements lay bare tennis schedule complaints from top players**\
+`On a day of many mid-match withdrawals, world No. 2 Iga Świątek said she may have to skip mandatory tournaments to avoid injury.`\
+https://nytimes.com/athletic/6673339/2025/09/29/tennis-china-open-injury-retirements/
+
+**Eagles' Ogbo Okoronkwo suffers season-ending triceps tear: Source**\
+`Okoronkwo's injury is a blow to an Eagles edge rusher group searching for more sacks.`\
+https://nytimes.com/athletic/6673690/2025/09/29/eagles-ogbo-okoronkwo-injury-bucs/
+
 **Giants fire manager Bob Melvin**\
 `The Giants fired Melvin after two seasons as the team's skipper. He went 161-163 and missed the playoffs both seasons.`\
 https://nytimes.com/athletic/6673694/2025/09/29/giants-bob-melvin-manager-fired/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/29/style/selena-gomez-benny-blanco-wedding.html
 **Fantasy football Week 4 recap and early waivers speed run**\
 `Week 4 introduced several new names fantasy managers need to know.`\
 https://nytimes.com/athletic/6673504/2025/09/29/fantasy-football-week-4-recap-speed-run/
-
-**What Adams’s Exit Means for Black Political Power in New York**\
-`Eric Adams is just the second Black mayor elected in New York City, and his downfall has been painful for many who supported him.`\
-https://nytimes.com/2025/09/29/nyregion/eric-adams-black-voters.html
-
-**A Low-Cost Icelandic Airline Suddenly Folds, Leaving Passengers Stranded**\
-`Play Airlines said it was ceasing operations, becoming the second low-cost airline in Iceland to collapse in the last six years.`\
-https://nytimes.com/2025/09/29/business/play-airline-iceland-shut-down.html
 
