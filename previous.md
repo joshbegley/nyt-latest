@@ -1,3 +1,15 @@
+**Why Yankees' Ben Rice and Jazz Chisholm Jr. may not start in Game 1: 3 takeaways**\
+`As the players prepared, the front office weighed its options for the 26-man active roster and the Game 1 lineup. Here's what we learned.`\
+https://nytimes.com/athletic/6674160/2025/09/29/yankees-redsox-game-1-ben-rice-jazz-chisholm/
+
+**Tyreek Hill? Jakobi Meyers? What are Giants options at WR after losing Malik Nabers?**\
+`Would the Giants make a splash trade for a wide receiver for the sake of Jaxson Dart's development?`\
+https://nytimes.com/athletic/6673705/2025/09/29/malik-nabers-giants-injury-trade-tyreek-hill-jakobi-meyers-trade/
+
+**Kevin Durant sees himself signing extension with Rockets**\
+`“I can’t tell you exactly when it’ll happen. But I do see it happening,” said Durant, who turned 37 on Monday.`\
+https://nytimes.com/athletic/6674194/2025/09/29/kevin-durant-rockets-contract-extension-nba/
+
 **N.Y.C. Mayoral Candidates Move to Capitalize on Adams’s Departure**\
 `Zohran Mamdani and Curtis Sliwa hit the campaign trail on Monday after Eric Adams left the race, while Andrew Cuomo called donors.`\
 https://nytimes.com/2025/09/29/nyregion/mamdani-cuomo-sliwa-nyc-mayor.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6674196/2025/09/29/hugo-ekitike-liverpool-red-card-
 **Wildfire Rips Through One of Africa’s Largest National Parks**\
 `More than a third of Etosha National Park in Namibia has burned, threatening the rich biodiversity in a popular tourist attraction.`\
 https://nytimes.com/2025/09/29/world/africa/africa-wildfire-etosha-park-namibia-wildlife-reserve.html
-
-**How to watch Iowa State at Cincinnati: Time, TV, streaming**\
-`Find out how to watch the Iowa State Cyclones play the Cincinnati Bearcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6674269/2025/09/29/iowa-state-vs-cincinnati-stream-how-to-watch-oct-4/
-
-**How to watch Washington at Maryland: Time, TV, streaming**\
-`Find out how to watch the Washington Huskies play the Maryland Terrapins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6674272/2025/09/29/washington-vs-maryland-stream-how-to-watch-oct-4/
-
-**How to watch Vanderbilt at Alabama: Time, TV, streaming**\
-`Find out how to watch the Vanderbilt Commodores play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6674267/2025/09/29/vanderbilt-vs-alabama-stream-how-to-watch-oct-4/
 

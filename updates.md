@@ -1,3 +1,15 @@
+**Why Yankees' Ben Rice and Jazz Chisholm Jr. may not start in Game 1: 3 takeaways**\
+`As the players prepared, the front office weighed its options for the 26-man active roster and the Game 1 lineup. Here's what we learned.`\
+https://nytimes.com/athletic/6674160/2025/09/29/yankees-redsox-game-1-ben-rice-jazz-chisholm/
+
+**Tyreek Hill? Jakobi Meyers? What are Giants options at WR after losing Malik Nabers?**\
+`Would the Giants make a splash trade for a wide receiver for the sake of Jaxson Dart's development?`\
+https://nytimes.com/athletic/6673705/2025/09/29/malik-nabers-giants-injury-trade-tyreek-hill-jakobi-meyers-trade/
+
+**Kevin Durant sees himself signing extension with Rockets**\
+`“I can’t tell you exactly when it’ll happen. But I do see it happening,” said Durant, who turned 37 on Monday.`\
+https://nytimes.com/athletic/6674194/2025/09/29/kevin-durant-rockets-contract-extension-nba/
+
 **N.Y.C. Mayoral Candidates Move to Capitalize on Adams’s Departure**\
 `Zohran Mamdani and Curtis Sliwa hit the campaign trail on Monday after Eric Adams left the race, while Andrew Cuomo called donors.`\
 https://nytimes.com/2025/09/29/nyregion/mamdani-cuomo-sliwa-nyc-mayor.html
