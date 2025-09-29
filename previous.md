@@ -1,3 +1,15 @@
+**Presenting the MLB Postseason All-Quarter Century Team — just in time for October**\
+`To finish off our season-long All-Quarter Century Team series, here are our picks for the best postseason performers since 2000. `\
+https://nytimes.com/athletic/6655041/2025/09/29/mlb-postseason-all-quarter-century-team/
+
+**The Math Behind Adams’s Exit**\
+`Mayor Eric Adams’s abandoning his re-election bid may please some business leaders opposed to Zohran Mamdani. But it may not change the outcome of the race.`\
+https://nytimes.com/2025/09/29/business/dealbook/eric-adams-mayor-donors.html
+
+**Roscoe, Lewis Hamilton's beloved bulldog and social media star, dies at 12**\
+`Roscoe had become a paddock fixture over the last decade`\
+https://nytimes.com/athletic/6665232/2025/09/29/roscoe-obituary-lewis-hamilton-dog/
+
 **Denmark Bans Civilian Drone Flights Ahead of Major E.U. Summit**\
 `A spate of recent drone sightings near airports in Denmark and Norway has amplified security concerns in Europe.`\
 https://nytimes.com/2025/09/29/world/europe/denmark-drones-eu-summit-airspace-closed.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6672720/2025/09/29/arsenal-corner-adaption-newcastl
 **Bears leave Las Vegas with uplifting victory, feeling of good fortune**\
 `The Bears knew they didn’t play their best game, but they made their luck and got help from an ace when it counted.`\
 https://nytimes.com/athletic/6672490/2025/09/29/bears-raiders-caleb-williams-las-vegas-luck/
-
-**Vietnam Reels as Typhoon Bualoi Hits**\
-`Typhoon Bualoi lashed central Vietnam, making landfall on Sunday evening. The region was already reeling from Typhoon Kajiki which hit a month earlier.`\
-https://nytimes.com/video/world/asia/100000010427253/vietnam-residents-typhoon-bualoi.html
-
-**Inside Newcastle Q&A: Chris Waugh answers your questions**\
-`Supporter concern over Newcastle's attacking output in particular feels increasingly justified. Get your questions in now `\
-https://nytimes.com/athletic/6672742/2025/09/29/inside-newcastle-qa-chris-waugh-livramento-arsenal-forest-usg/
-
-**Tutu Atwell, the forgotten man in Rams' offense, finally had his moment vs. Colts**\
-`Matthew Stafford, who always seems to be at his best in the fourth quarter, connected with Atwell for an 88-yard game-winning score. `\
-https://nytimes.com/athletic/6671944/2025/09/29/tutu-atwell-matthew-stafford-rams-win-colts/
 
