@@ -1,3 +1,19 @@
+**Paul Finebaum considering leaving ESPN to run for U.S. Senate seat**\
+`Finebaum said he would run as a Republican and would likely fill the seat vacated by former Auburn and Ole Miss coach Tommy Tuberville.`\
+https://nytimes.com/athletic/6673678/2025/09/29/paul-finebaum-espn-us-senator-alabama/
+
+**Watch Live: Trump and Netanyahu Speak at White House**\
+`President Trump and Prime Minister Benjamin Netanyahu of Israel hold a joint news conference at the White House.`\
+https://nytimes.com/video/us/politics/100000010427948/watch-live-trump-and-netanyahu-speak-at-white-house.html
+
+**China Open injury retirements lay bare tennis schedule complaints from top players**\
+`On a day of many mid-match withdrawals, world No. 2 Iga Świątek said she may have to skip mandatory tournaments to avoid injury.`\
+https://nytimes.com/athletic/6673339/2025/09/29/tennis-china-open-injury-retirements/
+
+**Eagles' Ogbo Okoronkwo suffers season-ending triceps tear: Source**\
+`Okoronkwo's injury is a blow to an Eagles edge rusher group searching for more sacks.`\
+https://nytimes.com/athletic/6673690/2025/09/29/eagles-ogbo-okoronkwo-injury-bucs/
+
 **Bucks' Giannis Antetokounmpo to miss start of training camp with COVID-19**\
 `Antetokounmpo is still in Greece, per general manager Jon Horst, with COVID-19 keeping him from traveling to Milwaukee.`\
 https://nytimes.com/athletic/6673818/2025/09/29/giannis-antetokounmpo-bucks-training-camp/
