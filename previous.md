@@ -1,3 +1,7 @@
+**Tottenham's Palhinha problem**\
+`The Bayern Munich loanee has brought a lot to Thomas Frank's side already but that does not mean he is right for every game`\
+https://nytimes.com/athletic/6661859/2025/09/29/tottenham-hotspur-palhinha-wolves-problem/
+
 **Why Nuno's focus on defensive solidity and quick counter-attacks could suit West Ham**\
 `The former Wolves and Forest boss can help a number of players in this squad after the east Londoners' very difficult start to the season`\
 https://nytimes.com/athletic/6669938/2025/09/29/nuno-west-ham-players-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6671124/2025/09/29/arsenal-arteta-premier-league/
 **Russia Unleashes Hourslong Barrage on Kyiv**\
 `Russia’s hourslong aerial assault on Sunday bombarded Kyiv and other Ukrainian cities, leaving at least four people dead and dozens injured.`\
 https://nytimes.com/video/world/europe/100000010427007/ukraine-kyiv-russia-strikes.html
-
-**The numbers behind Kairat-Real Madrid, the biggest mismatch in Champions League history**\
-`Fifteen continental titles, hundreds of millions of fans, billions of dollars and 4,000 miles separate the sides who will meet on Tuesday `\
-https://nytimes.com/athletic/6658553/2025/09/29/kairat-real-madrid-champions-league-comparison/
 

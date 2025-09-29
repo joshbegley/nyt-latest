@@ -1,3 +1,7 @@
+**Tottenham's Palhinha problem**\
+`The Bayern Munich loanee has brought a lot to Thomas Frank's side already but that does not mean he is right for every game`\
+https://nytimes.com/athletic/6661859/2025/09/29/tottenham-hotspur-palhinha-wolves-problem/
+
 **Why Nuno's focus on defensive solidity and quick counter-attacks could suit West Ham**\
 `The former Wolves and Forest boss can help a number of players in this squad after the east Londoners' very difficult start to the season`\
 https://nytimes.com/athletic/6669938/2025/09/29/nuno-west-ham-players-analysis/
