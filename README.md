@@ -1,3 +1,15 @@
+**Kawhi Leonard dismisses 'conspiracies' with Aspiration endorsement contract**\
+`"None of us did no wrongdoing," Leonard said in his first public comments. "And yeah, I mean, that's it. We invite the investigations."`\
+https://nytimes.com/athletic/6674340/2025/09/29/kawhi-leonard-media-day-aspiration/
+
+**John Mozeliak says goodbye, reflects on Cardinals' season: 'Right decision to do what we did'**\
+`Mozeliak finished his Cardinals tenure with 10 postseason berths, six division titles, two pennants and a World Series championship.`\
+https://nytimes.com/athletic/6673997/2025/09/29/john-mozeliak-says-goodbye-reflects-on-cardinals-season-right-decision-to-do-what-we-did/
+
+**Otto Obermaier, Who Succeeded Giuliani as U.S. Attorney, Dies at 89**\
+`His temperate approach was in sharp contrast to his more combative predecessor, but he continued to pursue corrupt unions and financiers.`\
+https://nytimes.com/2025/09/29/us/otto-obermaier-dead.html
+
 **Top Trump Aides Push for Ousting Maduro From Power in Venezuela**\
 `An opposition movement whose figures have met with U.S. officials says it is communicating with Washington on plans to dismantle Nicolás Maduro’s “criminal structure.”`\
 https://nytimes.com/2025/09/29/us/politics/maduro-venezuela-trump-rubio.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/style/100000010428611/lucy-dacus-festival-wedding.html
 **Shell Casings and DNA on Fingernails Helped Crack ‘Yogurt Shop’ Murder Case**\
 `Old-fashioned detective work and advances in forensic science led to the identification of a suspect in the killings of four teenagers in Austin, Texas, in 1991, officials said.`\
 https://nytimes.com/2025/09/29/us/yogurt-shop-murders-solved-dna.html
-
-**Madagascar’s President Dissolves Government Amid Deadly Protests**\
-`Andry Rajoelina, the leader of the island nation in Africa, acknowledged grievances over power cuts and water shortages that have drawn thousands of young people to the streets.`\
-https://nytimes.com/2025/09/29/world/africa/madagascar-government.html
-
-**College football transfer portal window could be extended to 15 days**\
-`After the NCAA eliminated the spring transfer portal window for football, committee recommends extending winter window.`\
-https://nytimes.com/athletic/6674598/2025/09/29/college-football-transfer-portal-extend/
-
-**Trump and Comey: An Escalating Conflict With No Off-Ramp**\
-`The yearslong face-off between Donald Trump and James Comey amounts to a case study of how the president grew evermore emboldened to carry out his revenge agenda.`\
-https://nytimes.com/2025/09/29/us/politics/trump-comey-escalating-conflict.html
 
