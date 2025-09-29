@@ -1,3 +1,11 @@
+**Government Shutdown Looms Unless Lawmakers Extend Funding**\
+`Democrats and Republicans have not agreed to a deal to extend federal funding to avert a federal shutdown.`\
+https://nytimes.com/video/us/politics/100000010428029/government-shutdown.html
+
+**The Book That Taught Nonna to Cook Is Coming to America**\
+`An English translation of Ada Boni’s “The Talisman of Happiness,” an indispensable guide for Italian home cooks since the 1920s, is finally on its way.`\
+https://nytimes.com/2025/09/29/dining/ada-boni-italian-cookbook.html
+
 **Wembanyama cleared to play after blood clot, 'world-class' summer of training**\
 `The Spurs' star said he is healthy after missing the end of last season with a blood clot. "I feel like I need to play basketball now."`\
 https://nytimes.com/athletic/6674077/2025/09/29/victor-wembanyama-status-spurs-blood-clot/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6674097/2025/09/29/world-series-odds-phillies-dodge
 **Wild Card Series predictions: The Athletic MLB staff picks the winners for each series**\
 `Find out which four teams our staff predicts will make it to the Division Series.`\
 https://nytimes.com/athletic/6674128/2025/09/29/mlb-wild-card-series-staff-predictions/
-
-**California Governor Signs Sweeping A.I. Law**\
-`Gavin Newsom signed a major safety law on artificial intelligence, creating one of the strongest sets of rules about the technology in the nation.`\
-https://nytimes.com/2025/09/29/technology/california-ai-safety-law.html
-
-**Capricious or decisive? Why Buster Posey reversed course and fired Bob Melvin**\
-`Posey has some candidates to replace Melvin in mind but didn't disclose names. "Someone who's going to be obsessive about the details."`\
-https://nytimes.com/athletic/6674463/2025/09/29/sf-giants-buster-posey-bob-melvin-firing/
 
