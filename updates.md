@@ -1,3 +1,7 @@
+**Giorgio Armani’s Last Show**\
+`Richard Gere, Glenn Close and Samuel L. Jackson were among the stars who came out for the 50th anniversary extravaganza Mr. Armani had planned before his death.`\
+https://nytimes.com/2025/09/29/style/giorgio-armani-last-show.html
+
 **Typhoon Bualoi Slams Into Central Vietnam, Bringing Storm’s Death Toll to 22**\
 `It left an additional 21 people missing in Central Vietnam, which is still recovering from another storm. Bualoi’s deadly path started in the Philippines over the weekend.`\
 https://nytimes.com/2025/09/29/world/asia/typhoon-bualoi-vietnam.html
