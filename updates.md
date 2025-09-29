@@ -1,3 +1,15 @@
+**Eagles reveal strength in staving off Bucs' comeback attempt**\
+`The Eagles have a bad recent history with games in Tampa.`\
+https://nytimes.com/athletic/6670525/2025/09/28/jihaad-campbell-eagles-offense-comeback/
+
+**Charlie Morton's emotional send-off ends Braves' forgettable season**\
+`For several minutes Sunday, a 76-86 record and fourth-place finish in the NL East were out of mind.`\
+https://nytimes.com/athletic/6671859/2025/09/28/charlie-morton-braves-retirement/
+
+**Jaxson Dart era begins with 'special' win as young Giants QB vows, 'This is just the start'**\
+`Dart gave the Giants just what they needed Sunday: a win — and reason to hope. `\
+https://nytimes.com/athletic/6671874/2025/09/28/jaxson-dart-giants-chargers-special-swagger/
+
 **Minnesota Lynx eliminated from WNBA playoffs, Phoenix Mercury reach finals**\
 `Alyssa Thomas finished with 23 points, 10 assists and eight rebounds. The Mercury await the winner of the Aces-Fever semifinals.`\
 https://nytimes.com/athletic/6672230/2025/09/28/minnesota-lynx-wnba-playoffs-elimination/
