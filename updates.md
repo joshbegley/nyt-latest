@@ -1,3 +1,15 @@
+**Kawhi Leonard dismisses 'conspiracies' with Aspiration endorsement contract**\
+`"None of us did no wrongdoing," Leonard said in his first public comments. "And yeah, I mean, that's it. We invite the investigations."`\
+https://nytimes.com/athletic/6674340/2025/09/29/kawhi-leonard-media-day-aspiration/
+
+**John Mozeliak says goodbye, reflects on Cardinals' season: 'Right decision to do what we did'**\
+`Mozeliak finished his Cardinals tenure with 10 postseason berths, six division titles, two pennants and a World Series championship.`\
+https://nytimes.com/athletic/6673997/2025/09/29/john-mozeliak-says-goodbye-reflects-on-cardinals-season-right-decision-to-do-what-we-did/
+
+**Otto Obermaier, Who Succeeded Giuliani as U.S. Attorney, Dies at 89**\
+`His temperate approach was in sharp contrast to his more combative predecessor, but he continued to pursue corrupt unions and financiers.`\
+https://nytimes.com/2025/09/29/us/otto-obermaier-dead.html
+
 **Top Trump Aides Push for Ousting Maduro From Power in Venezuela**\
 `An opposition movement whose figures have met with U.S. officials says it is communicating with Washington on plans to dismantle Nicolás Maduro’s “criminal structure.”`\
 https://nytimes.com/2025/09/29/us/politics/maduro-venezuela-trump-rubio.html
