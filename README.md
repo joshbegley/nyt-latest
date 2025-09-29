@@ -1,3 +1,11 @@
+**Wembanyama cleared to play after blood clot, 'world-class' summer of training**\
+`The Spurs' star said he is healthy after missing the end of last season with a blood clot. "I feel like I need to play basketball now."`\
+https://nytimes.com/athletic/6674077/2025/09/29/victor-wembanyama-status-spurs-blood-clot/
+
+**‘Kpop Demon Hunters’ Noodle Cup Trend May Increase Burn Risks for Kids**\
+`TikTok users have rushed to get their hands on the instant noodles that appear in the film. One prominent Boston hospital has sounded the alarm.`\
+https://nytimes.com/2025/09/29/us/kpop-demon-hunters-noodles-tiktok.html
+
 **Read the document**\
 `The chairwoman of the House subcommittee on cybersecurity, information technology and government innovation demanded information of Uber over its safety practices related to sexual assault.`\
 https://nytimes.com/interactive/2025/09/29/technology/uber-sexual-assault-letter.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/29/technology/california-ai-safety-law.html
 **Capricious or decisive? Why Buster Posey reversed course and fired Bob Melvin**\
 `Posey has some candidates to replace Melvin in mind but didn't disclose names. "Someone who's going to be obsessive about the details."`\
 https://nytimes.com/athletic/6674463/2025/09/29/sf-giants-buster-posey-bob-melvin-firing/
-
-**See How E.V. Road Trips Went From Impossible to Easy**\
-`There are a lot more fast chargers than there used to be. Look up what that could mean for a route near you.`\
-https://nytimes.com/interactive/2025/09/29/upshot/ev-chargers-road-trip.html
-
-**Carlos Mendoza to return as Mets manager in 2026**\
-`Despite a season that David Stearns characterized as “tremendously disappointing,” the Mets will bring back Mendoza next year.`\
-https://nytimes.com/athletic/6674424/2025/09/29/carlos-mendoza-mets-manager-return/
 
