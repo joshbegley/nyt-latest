@@ -1,6 +1,10 @@
+**Typhoon Bualoi Slams Into Central Vietnam, Bringing Storm’s Death Toll to 22**\
+`It left an additional 21 people missing in Central Vietnam, which is still recovering from another storm. Bualoi’s deadly path started in the Philippines over the weekend.`\
+https://nytimes.com/2025/09/29/world/asia/typhoon-bualoi-vietnam.html
+
 **Typhoon Bualoi Lashes Vietnam**\
 `Typhoon Bualoi slammed into Vietnam’s central coast on Monday, downing trees and flooding roads.`\
-https://nytimes.com/video/world/asia/100000010427150/typhoon-bualoi-lashes-vietnam.html
+https://nytimes.com/video/world/asia/100000010427150/typhoon-bualoi-vietnam.html
 
 **The Rise and Fall of Eric Adams**\
 `Mr. Adams has suspended his re-election campaign, becoming the first mayor of New York City to fail to win a second term since David N. Dinkins.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/29/arts/television/monster-the-ed-gein-story.html
 **I Sued Anthropic, and the Unthinkable Happened**\
 `A.I. feels like a runaway train. But we don’t have to let it run over us.`\
 https://nytimes.com/2025/09/29/opinion/anthropic-chatbot-lawsuit-books.html
-
-**Packers-Cowboys: SNF ends in 40-40 tie as both defenses struggle**\
-`Green Bay's Brandon McManus kicked a 34-yard field goal as time expired in overtime, resulting in a tied game.`\
-https://nytimes.com/athletic/6671905/2025/09/29/packers-cowboys-snf-score-results/
 

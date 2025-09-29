@@ -1,3 +1,11 @@
+**Typhoon Bualoi Slams Into Central Vietnam, Bringing Storm’s Death Toll to 22**\
+`It left an additional 21 people missing in Central Vietnam, which is still recovering from another storm. Bualoi’s deadly path started in the Philippines over the weekend.`\
+https://nytimes.com/2025/09/29/world/asia/typhoon-bualoi-vietnam.html
+
+**Typhoon Bualoi Lashes Vietnam**\
+`Typhoon Bualoi slammed into Vietnam’s central coast on Monday, downing trees and flooding roads.`\
+https://nytimes.com/video/world/asia/100000010427150/typhoon-bualoi-vietnam.html
+
 **Typhoon Bualoi Lashes Vietnam**\
 `Typhoon Bualoi slammed into Vietnam’s central coast on Monday, downing trees and flooding roads.`\
 https://nytimes.com/video/world/asia/100000010427150/typhoon-bualoi-lashes-vietnam.html
