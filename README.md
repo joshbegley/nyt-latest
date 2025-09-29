@@ -1,3 +1,15 @@
+**'Maybe Mourinho hasn't upgraded himself' - an interview with Galatasaray manager Okan Buruk**\
+`The 51-year-old has an impressive record domestically and is now hoping to make an impact in Europe as his side host Liverpool`\
+https://nytimes.com/athletic/6644720/2025/09/29/okan-buruk-interview-galatasaray-mourinho/
+
+**Arsenal's credentials were again questioned. This time, they had the answers**\
+`When Liverpool had finally dropped points, it seemed Arsenal were destined not to capitalise - but there was different ending to this story`\
+https://nytimes.com/athletic/6670751/2025/09/29/arsenal-newcastle-gabriel-arteta/
+
+**Fantasy football Week 4 takeaways: Malik Nabers lost for season, Lamar Jackson on injury watch**\
+`Michael Salfino says Nabers' season-ending injury is devastating for the development of rookie quarterback Jaxson Dart.`\
+https://nytimes.com/athletic/6671991/2025/09/29/fantasy-football-week-4-takeaways-injuries-nabers-lamar/
+
 **Man Utd have a serious problem dealing with long balls - this is why**\
 `Ruben Amorim's team struggled when Brentford put the ball in the air on Saturday. Conor O'Neill breaks down the issue...`\
 https://nytimes.com/athletic/6669127/2025/09/29/manchester-united-long-balls-analysis/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/29/business/economy/h1b-visas-problems.html
 **Connections: Sports Edition Coach: Hints for Sept. 29, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6672476/2025/09/29/connections-sports-edition-hints-for-sept-29-2025/
-
-**Why Ben Johnson believed in Caleb Williams and the Bears in the final moments**\
-`Williams made plays in the clutch, and the Bears followed their head coach's belief as they pulled off a wild 25-24 victory.`\
-https://nytimes.com/athletic/6672208/2025/09/28/bears-ben-johnson-caleb-williams-raiders/
-
-**Eagles reveal strength in staving off Bucs' comeback attempt**\
-`The Eagles have a bad recent history with games in Tampa.`\
-https://nytimes.com/athletic/6670525/2025/09/28/jihaad-campbell-eagles-offense-comeback/
-
-**Charlie Morton's emotional send-off ends Braves' forgettable season**\
-`For several minutes Sunday, a 76-86 record and fourth-place finish in the NL East were out of mind.`\
-https://nytimes.com/athletic/6671859/2025/09/28/charlie-morton-braves-retirement/
 
