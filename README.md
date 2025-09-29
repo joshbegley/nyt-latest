@@ -1,3 +1,7 @@
+**California Governor Signs Sweeping A.I. Law**\
+`Gavin Newsom signed a major safety law on artificial intelligence, creating one of the strongest sets of rules about the technology in the nation.`\
+https://nytimes.com/2025/09/29/technology/california-ai-safety-law.html
+
 **Capricious or decisive? Why Buster Posey reversed course and fired Bob Melvin**\
 `Posey has some candidates to replace Melvin in mind but didn't disclose names. "Someone who's going to be obsessive about the details..."`\
 https://nytimes.com/athletic/6674463/2025/09/29/sf-giants-buster-posey-bob-melvin-firing/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6674160/2025/09/29/yankees-redsox-game-1-ben-rice-j
 **Tyreek Hill? Jakobi Meyers? What are Giants' options at WR after losing Malik Nabers?**\
 `Would the Giants make a splash trade for a wide receiver for the sake of Jaxson Dart's development?`\
 https://nytimes.com/athletic/6673705/2025/09/29/malik-nabers-giants-injury-trade-tyreek-hill-jakobi-meyers-trade/
-
-**Kevin Durant sees himself signing extension with Rockets**\
-`“I can’t tell you exactly when it’ll happen. But I do see it happening,” said Durant, who turned 37 on Monday.`\
-https://nytimes.com/athletic/6674194/2025/09/29/kevin-durant-rockets-contract-extension-nba/
 
