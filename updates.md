@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6672220/2025/09/29/bears-josh-blackwell-blocked-field-goal-raiders/
 
+**Bears magic trick: How Josh Blackwell's blocked field goal saved the day in Vegas**\
+`What an ending for the Bears in Sunday's thrilling win, with some Vegas magic right at the end that might make Criss Angel jealous.
+`\
+https://nytimes.com/athletic/6672220/2025/09/29/bears-josh-blackwell-blocked-field-goal-raiders/
+
 **Minnesota Lynx couldn't get back to WNBA Finals. Next year's quest might get even harder**\
 `Without Napheesa Collier and Cheryl Reeve, the Lynx were eliminated in four games by the Mercury.`\
 https://nytimes.com/athletic/6672537/2025/09/29/minnesota-lynx-wnba-semifinals-loss/
