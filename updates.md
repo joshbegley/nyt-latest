@@ -1,3 +1,11 @@
+**See How E.V. Road Trips Went From Impossible to Easy**\
+`There are a lot more fast chargers than there used to be. Look up what that could mean for a route near you.`\
+https://nytimes.com/interactive/2025/09/29/upshot/ev-chargers-road-trip.html
+
+**Why Yankees' Ben Rice, Jazz Chisholm Jr. may not start in Game 1: Playoff takeaways**\
+`As the players prepared, the front office weighed its options for the 26-man active roster and the Game 1 lineup. Here's what we learned.`\
+https://nytimes.com/athletic/6674160/2025/09/29/yankees-redsox-game-1-ben-rice-jazz-chisholm/
+
 **Carlos Mendoza to return as Mets manager in 2026**\
 `Despite a season that David Stearns characterized as “tremendously disappointing,” the Mets will bring back Mendoza next year.`\
 https://nytimes.com/athletic/6674424/2025/09/29/carlos-mendoza-mets-manager-return/

@@ -1,3 +1,7 @@
+**Capricious or decisive? Why Buster Posey reversed course and fired Bob Melvin**\
+`Posey has some candidates to replace Melvin in mind but didn't disclose names. "Someone who's going to be obsessive about the details..."`\
+https://nytimes.com/athletic/6674463/2025/09/29/sf-giants-buster-posey-bob-melvin-firing/
+
 **See How E.V. Road Trips Went From Impossible to Easy**\
 `There are a lot more fast chargers than there used to be. Look up what that could mean for a route near you.`\
 https://nytimes.com/interactive/2025/09/29/upshot/ev-chargers-road-trip.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6673705/2025/09/29/malik-nabers-giants-injury-trade
 **Kevin Durant sees himself signing extension with Rockets**\
 `“I can’t tell you exactly when it’ll happen. But I do see it happening,” said Durant, who turned 37 on Monday.`\
 https://nytimes.com/athletic/6674194/2025/09/29/kevin-durant-rockets-contract-extension-nba/
-
-**N.Y.C. Mayoral Candidates Move to Capitalize on Adams’s Departure**\
-`Zohran Mamdani and Curtis Sliwa hit the campaign trail on Monday after Eric Adams left the race, while Andrew Cuomo called donors.`\
-https://nytimes.com/2025/09/29/nyregion/mamdani-cuomo-sliwa-nyc-mayor.html
 
