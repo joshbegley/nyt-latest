@@ -1,3 +1,11 @@
+**Democrats Are Trying the Costanza Strategy**\
+`Democrats need a new plan for 2028, argues the Opinion columnist Carlos Lozada in this round table from “The Opinions.”`\
+https://nytimes.com/video/opinion/100000010423773/democrats-are-trying-the-costanza-strategy.html
+
+**Kamala Harris 2028?**\
+`Harris’s book reveals why she should not be the Democratic presidential nominee in 2028, according to Lydia Polgreen in this week’s round table from “The Opinions.”`\
+https://nytimes.com/video/opinion/100000010423770/kamala-harris-2028.html
+
 **Tony Blair Emerges as Potential Figure in Postwar Gaza**\
 `For the former British prime minister, the Middle East is one of the most consistent, if contentious, chapters in a busy post-Downing Street career.`\
 https://nytimes.com/2025/09/29/world/middleeast/tony-blair-gaza.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6673164/2025/09/29/donald-trump-europe-ryder-cup-tr
 **Bruce Springsteen: America Is Not a Land of ‘Government Censorship’**\
 `Bruce Springsteen reflected on the state of America at the premiere of his new biopic, “Springsteen: Deliver Me From Nowhere,” at the New York Film Festival. He then performed “Land of Hope and Dreams.”`\
 https://nytimes.com/video/us/100000010427370/bruce-springsteen-film-america.html
-
-**Rape Charge Against Son of Author Michael Chabon Is Dismissed**\
-`Abraham Chabon was arrested after a woman accused him of choking and hitting her while sexually assaulting her. He still faces a count of strangulation, and a prosecutor said that the investigation continues.`\
-https://nytimes.com/2025/09/29/nyregion/rape-charge-chabon-dismissed.html
-
-**A Reborn Concert Hall Provides a Lift for St. Louis at an Uneasy Time**\
-`Powell Hall, home of the St. Louis Symphony Orchestra, has been renovated and expanded, reopening in what the city’s mayor called a “very, very rough year.”`\
-https://nytimes.com/2025/09/29/arts/music/powell-hall-st-louis-renovated-expanded.html
 
