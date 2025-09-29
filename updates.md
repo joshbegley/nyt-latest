@@ -1,3 +1,15 @@
+**How the Commanders' defense was dismantled by the Falcons**\
+`Poor tackling, explosive plays and slow starts have left Washington's defense looking overwhelmed in multiple games this season.`\
+https://nytimes.com/athletic/6671419/2025/09/28/commanders-defense-falcons-michael-penix-bijan-robinson/
+
+**Dodgers likely to start Blake Snell in Game 1, remain flexible with Shohei Ohtani**\
+`The Dodgers have tried to remain flexible with when Ohtani would make his postseason pitching debut.`\
+https://nytimes.com/athletic/6671898/2025/09/28/los-angeles-dodgers-nl-wild-card-series-game-one-starter/
+
+**How it went wrong for Twins and whether Rocco Baldelli could lose his job**\
+`Baldelli's status as manager is still an open question. What, exactly, turned the 2025 Twins into a train wreck is as well.`\
+https://nytimes.com/athletic/6671309/2025/09/28/minnesota-twins-rocco-baldelli-future-offseason/
+
 **The Ryder Cup is the best. But it could be even better**\
 `An absurd rule should be the last thing ripped up and thrown in the trash before everyone says goodbye to Bethpage Black.`\
 https://nytimes.com/athletic/6671827/2025/09/28/ryder-cup-rule-changes-bethpage/
