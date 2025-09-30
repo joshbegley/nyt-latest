@@ -1,3 +1,11 @@
+**Tigers-Guardians takeaways: Tarik Skubal's dominance gives Tigers the series lead**\
+`The Tigers ace struck out 14 and the offense did just enough - with the help of some shoddy Cleveland defense - to give Detroit the edge.`\
+https://nytimes.com/athletic/6677434/2025/09/30/tigers-guardians-score-results-takeaways-mlb-playoffs/
+
+**How to watch Fever at Aces: Game 5 Time, TV, streaming**\
+`Find out how to watch the Indiana Fever play the Las Vegas Aces, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6677547/2025/09/30/fever-vs-aces-stream-how-to-watch-sept-30/
+
 **Trump Administration Defunds Federal Watchdog Office**\
 `Two senators called for “immediate action” to release money the White House blocked for the federal office that oversees dozens of inspectors general.`\
 https://nytimes.com/2025/09/30/us/politics/trump-federal-watchdog-funding.html
@@ -6,7 +14,7 @@ https://nytimes.com/2025/09/30/us/politics/trump-federal-watchdog-funding.html
 `In Lower Manhattan, Trinity Church’s organ was heavily damaged in the Sept. 11 attacks. A new organ, which took nearly 10 years to build and design, was recently unveiled.`\
 https://nytimes.com/video/arts/100000010430758/trinity-church-organ.html
 
-**Earthquake in Philippines Kills at Least 6, Officials and News Reports Say**\
+**Earthquake in Philippines Kills at Least 20, Officials Say**\
 `The 6.9-magnitude earthquake shook the province of Cebu, home to 3.2 million people, just before 10 p.m. local time.`\
 https://nytimes.com/2025/09/30/world/asia/philippines-earthquake-cebu.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/30/us/politics/trump-speech-military-takeaways.html
 **Multiple Federal Agencies Blame ‘Radical’ Left and Democrats for Shutdown**\
 `Agencies including the housing department and Veterans Affairs used unusually partisan language to blame liberals and congressional Democrats for the pending government shutdown.`\
 https://nytimes.com/2025/09/30/us/politics/federal-agencies-government-shutdown.html
-
-**Bernardo Silva: 'Not the time' to discuss Man City future**\
-`The Portuguese midfielder's City contract expires in 2026.`\
-https://nytimes.com/athletic/6677254/2025/09/30/bernardo-silva-manchester-city-future/
-
-**Hundreds of Officers. Two Long Hours of Political Theater.**\
-`The military was once again used as a backdrop for Mr. Trump’s ongoing clashes in America’s culture wars, testing their nonpartisan, apolitical nature.`\
-https://nytimes.com/2025/09/30/opinion/trump-hegseth-generals-speech.html
 
