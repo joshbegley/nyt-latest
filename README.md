@@ -1,3 +1,7 @@
+**Quote of the Day: Reprisals Go Around, And May Come Around**\
+`Quotation of the Day for Tuesday, September 30, 2025.`\
+https://nytimes.com/2025/09/29/pageoneplus/quote-of-the-day-reprisals-go-around-and-may-come-around.html
+
 **Bengals-Broncos takeaways: Denver offense finds a groove in 28-3 win**\
 `After netting a field goal on their first offensive series, the Bengals didn't run another play in the Broncos' territory.`\
 https://nytimes.com/athletic/6675432/2025/09/29/bengals-broncos-denver-cincinnati-score-takeaways-results/
@@ -29,10 +33,6 @@ https://nytimes.com/2025/09/29/crosswords/daily-puzzle-2025-09-30.html
 **In ‘Masquerade,’ You’re There Inside the Phantom’s Mind**\
 `Andrew Lloyd Webber’s “The Phantom of the Opera” returns to New York in an immersive spectacle, as silly as it is thrilling.`\
 https://nytimes.com/2025/09/29/theater/masquerade-review-phantom-of-the-opera.html
-
-**What It Takes to Get Lunch Delivered to the 70th Floor**\
-`An informal network of last-mile runners close the gap between harried delivery drivers and hungry office workers in a Shenzhen skyscraper.`\
-https://nytimes.com/2025/09/29/world/asia/china-delivery-shenzhen.html
 
 **Peace Broker, Arms Supplier: China’s Dual Roles in a Deadly Conflict**\
 `China urged Cambodia and Thailand to end their border war in July. But weeks earlier, it had sent rockets and artillery shells to Cambodia, Thai intelligence documents show.`\
