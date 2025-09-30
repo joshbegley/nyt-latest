@@ -1,3 +1,19 @@
+**Kawhi Leonard's media day response shows the art of the Clippers blocking out the noise**\
+`Players on the Clippers roster the last couple of seasons are conditioned in the art of keeping the main the main thing on media day.`\
+https://nytimes.com/athletic/6675282/2025/09/30/clippers-media-day-kawhi-leonard-aspiration-comments/
+
+**Giants found their blueprint for success vs. Chargers, but is it repeatable?**\
+`The pass rush will need to carry the Giants and hope Jaxson Dart's offense, now without Malik Nabers, can do enough to grind out victories.`\
+https://nytimes.com/athletic/6675604/2025/09/30/ny-giants-pass-rush-brian-burns-jaxson-dart-blueprint/
+
+**Near a Garden Where Popes Go to Pray, Leo Plans to Speak on Climate**\
+`The address comes 10 years after his predecessor’s groundbreaking statement on global warming. His words will be watched for signals on the direction of the new papacy.`\
+https://nytimes.com/2025/09/30/climate/pope-leo-climate-speech-laudato-si.html
+
+**What we've learned about the Commanders: The good, the bad and everything in between**\
+`Before the Commanders head to L.A. to take on Justin Herbert and the Chargers in Week 5, it’s worth zooming out on their start to 2025.`\
+https://nytimes.com/athletic/6676266/2025/09/30/washington-commanders-stock-report/
+
 **Fantasy football Week 5 drops: Moving on from Nick Chubb, Calvin Ridley and more**\
 `Gary Davenport sees the writing on the wall for Nick Chubb in Houston as he's one his players to drop ahead of Week 5.`\
 https://nytimes.com/athletic/6675643/2025/09/30/fantasy-football-week-5-drops/
@@ -6,7 +22,7 @@ https://nytimes.com/athletic/6675643/2025/09/30/fantasy-football-week-5-drops/
 `Turmoil in Washington is distracting from efforts to fix a flood insurance gap and replenish a key disaster relief fund.`\
 https://nytimes.com/2025/09/30/climate/how-shutdown-gridlock-could-impede-disaster-preparedness.html
 
-**Tom Watson ‘ashamed’ of American fan hostility at Ryder Cup**\
+**Golf legend Tom Watson ‘ashamed’ of American fan hostility at Ryder Cup**\
 `Watson played in four Ryder Cups during his career and was a two-time captain for the American team in 1993 and 2014.`\
 https://nytimes.com/athletic/6676307/2025/09/30/ryder-cup-tom-watson-ashamed-america-verbal-abuse/
 
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6676102/2025/09/30/andy-young-athletics-laura-muir-
 **Ranking Fanatics' NFL soccer jerseys from 1-32**\
 `The Fanatics Fest exclusives are now more widely available`\
 https://nytimes.com/athletic/6438021/2025/09/30/nfl-soccer-jerseys-fanatics/
-
-**Unpack the Math of Packing With Steven Strogatz and The New York Times**\
-`Invite students to explore how bees, soda cans and big data all solve the same problem: not enough space.`\
-https://nytimes.com/2025/09/30/learning/lesson-plans/unpack-the-math-of-packing-with-steven-strogatz-and-the-new-york-times.html
-
-**Second Victim of Dallas ICE Shooting Dies**\
-`A house painter who had been in the United States for two decades had been critically injured in Dallas by a gunman who the government said was aiming at federal law enforcement officers.`\
-https://nytimes.com/2025/09/30/us/dallas-ice-shooting-death-miguel-angel-garcia-hernandez.html
-
-**With McTavish back in the fold, Ducks' focus is back on a promising future**\
-`Unlike Trevor Zegras and Jamie Drysdale before him, McTavish will get time in camp to get up to speed before the season begins.`\
-https://nytimes.com/athletic/6675615/2025/09/30/anaheim-ducks-mason-mctavish-contract-carlsson-quenneville/
-
-**All you need to know about the Lakers, one sentence at a time**\
-`EL SEGUNDO, Calif.`\
-https://nytimes.com/athletic/6675629/2025/09/30/lakers-media-day-quotes-nba/
 
