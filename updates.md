@@ -1,3 +1,7 @@
+**With New U.S. Proposal to End Gaza War, a Rare Moment of Triumph for Netanyahu**\
+`In President Trump’s plan, Prime Minister Benjamin Netanyahu got almost everything he hoped for in the end, despite mounting international isolation.`\
+https://nytimes.com/2025/09/30/world/middleeast/trump-netanyahu-israel-gaza-war.html
+
 **Saliba - the boyhood Arsenal fan who convinced Arteta and has gone on to exceed expectations**\
 `The 24-year-old is a central part of Arsenal's defensive unit, along with Gabriel, and should be for years to come after signing a new deal`\
 https://nytimes.com/athletic/6672793/2025/09/30/william-saliba-contract-arteta/
