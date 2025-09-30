@@ -10,7 +10,7 @@ https://nytimes.com/2025/09/30/us/politics/trump-racial-slur-military-speech.htm
 `Purdy missed two weeks with the toe injury before returning Sunday against the Jaguars.`\
 https://nytimes.com/athletic/6674640/2025/09/30/brock-purdy-injury-toe-rams/
 
-**Trump Was Still Unpopular in Our Poll. Why Aren’t Democrats Doing Better?**\
+**Trump Is Still Unpopular in Our Poll. Why Aren’t Democrats Doing Better?**\
 `“Disapproval” of the president does not necessarily translate into support for the opposition.`\
 https://nytimes.com/2025/09/30/upshot/poll-analysis-trump-times-siena.html
 

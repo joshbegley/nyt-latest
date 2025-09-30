@@ -1,3 +1,7 @@
+**Trump Is Still Unpopular in Our Poll. Why Aren’t Democrats Doing Better?**\
+`“Disapproval” of the president does not necessarily translate into support for the opposition.`\
+https://nytimes.com/2025/09/30/upshot/poll-analysis-trump-times-siena.html
+
 **Rep. David Schweikert Will Run for Governor in Arizona**\
 `Mr. Schweikert’s entry into a competitive Republican primary for governor means his battleground House seat will be open, giving Democrats a prime opportunity.`\
 https://nytimes.com/2025/09/30/us/politics/arizona-governor-schweikert-hobbs.html
