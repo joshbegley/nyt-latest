@@ -1,3 +1,11 @@
+**Hear Trinity Church’s New Organ, 10 Years in the Making**\
+`In Lower Manhattan, Trinity Church’s organ was heavily damaged in the Sept. 11 attacks. A new organ, which took nearly 10 years to build and design, was recently unveiled.`\
+https://nytimes.com/video/arts/100000010430758/trinity-church-organ.html
+
+**Earthquake in Philippines Kills at Least 6, Officials and News Reports Say**\
+`The 6.9-magnitude earthquake shook the province of Cebu, home to 3.2 million people, just before 10 p.m. local time.`\
+https://nytimes.com/2025/09/30/world/asia/philippines-earthquake-cebu.html
+
 **Nicole Kidman Files for Divorce From Keith Urban After Nearly 20 Years**\
 `The couple married in Australia in 2006. Their breakup surprised many fans.`\
 https://nytimes.com/2025/09/30/arts/nicole-kidman-keith-urban-divorce.html
