@@ -1,3 +1,7 @@
+**Milan City Council approves San Siro sale to Milan and Inter, clearing way for new stadium plans**\
+`Plans for a new stadium would see San Siro mostly demolished, with only 10 per cent of the existing structure expected to remain.`\
+https://nytimes.com/athletic/6675860/2025/09/30/san-siro-sale-milan-inter/
+
 **NFL QB stock report, Week 5: Is Panthers QB Bryce Young a lost cause?**\
 `Young has failed to carry over the positive momentum he built at the end of 2024. “I don’t think he’s the guy,” a league evaluator said.`\
 https://nytimes.com/athletic/6673658/2025/09/30/qb-stock-report-bryce-young-shedeur-sanders-rankings/

@@ -1,3 +1,7 @@
+**Milan City Council approves San Siro sale to Milan and Inter, clearing way for new stadium plans**\
+`Plans for a new stadium would see San Siro mostly demolished, with only 10 per cent of the existing structure expected to remain.`\
+https://nytimes.com/athletic/6675860/2025/09/30/san-siro-sale-milan-inter/
+
 **NFL QB stock report, Week 5: Is Panthers QB Bryce Young a lost cause?**\
 `Young has failed to carry over the positive momentum he built at the end of 2024. “I don’t think he’s the guy,” a league evaluator said.`\
 https://nytimes.com/athletic/6673658/2025/09/30/qb-stock-report-bryce-young-shedeur-sanders-rankings/
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todaysinyt/2025/09/30/todays-new-york-times-internatio
 **Are NFL scouts pumping the brakes on this hyped-up class of college football QBs?**\
 `These CFB QBs are supposed to be stellar NFL prospects. While some have flourished, most are not living up to the hype — yet.`\
 https://nytimes.com/athletic/6673340/2025/09/30/college-football-quarterback-struggles-nfl-scout-coaches/
-
-**With New U.S. Proposal to End Gaza War, a Rare Moment of Triumph for Netanyahu**\
-`In President Trump’s plan, Prime Minister Benjamin Netanyahu got almost everything he hoped for in the end, despite mounting international isolation.`\
-https://nytimes.com/2025/09/30/world/middleeast/trump-netanyahu-israel-gaza-war.html
 
