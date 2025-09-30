@@ -1,3 +1,7 @@
+**Coco Gauff and Belinda Bencic clash over 'mind games' at China Open**\
+`The incident was forgotten by the end of the match, with Gauff saying “she's entitled to how she felt and I'm entitled to how I respond.”`\
+https://nytimes.com/athletic/6676022/2025/09/30/coco-gauff-belinda-bencic-row-china-open/
+
 **Leeds winger James undergoing assessment on ankle injury**\
 `The club are hopeful the Wales international won't be sidelined long term.`\
 https://nytimes.com/athletic/6675904/2025/09/30/dan-james-injury-update-leeds/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6675599/2025/09/30/reds-mlb-playoffs-trade-deadline
 **Key Flyers defensemen are impressing, but the battle for depth spots is not**\
 `With a new coach to impress, the top two pairings look reasonably set. The bottom pairing, however, could be an issue.`\
 https://nytimes.com/athletic/6675384/2025/09/30/flyers-preseason-defense-york-drysdale-ginning-juulsen/
-
-**Q&A: How the Blue Jays' minor-league system contributed to East title**\
-`"They have wound up having success when given those opportunities," player development director Joe Sclafani says of the minor leaguers.`\
-https://nytimes.com/athletic/6674455/2025/09/30/blue-jays-prospects-joe-sclafani/
 
