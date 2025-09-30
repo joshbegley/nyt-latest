@@ -1,3 +1,11 @@
+**How Many Federal Workers Could Be Furloughed in a Government Shutdown?**\
+`If the government shuts down on Wednesday, hundreds of thousands of workers will be sent home without pay, disrupting a wide range of federal programs. Here’s what we know so far.`\
+https://nytimes.com/interactive/2025/09/30/us/politics/government-shutdown-furloughs.html
+
+**Tracking Tropical Storm Octave**\
+`See the likely path and wind arrival times for Octave`\
+https://nytimes.com/interactive/2025/09/30/weather/octave-map-path-tracker.html
+
 **Nick Sirianni believes A.J. Brown wants to be an Eagle despite cryptic messages**\
 `Brown’s low stat output is not an isolated issue, as the Eagles’ passing offense ranks 31st in the NFL in yards per game with 138.`\
 https://nytimes.com/athletic/6676761/2025/09/30/eagles-nick-sirianni-aj-brown-social/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6676112/2025/09/30/valencia-vinicius-junior-netflix
 **'Kind of otherworldly': Kirill Kaprizov has earned his star reputation — and payday**\
 `"He does all this stuff and it doesn’t even faze him. He’s not wowed by greatness. Because he is great, you know?”`\
 https://nytimes.com/athletic/6443468/2025/09/30/kirill-kaprizov-minnesota-wild-contract-reputation/
-
-**‘And Then We Were No More’ Review: Not Quite Kafka**\
-`The actor Tim Blake Nelson has penned a dystopian drama set in an unspecified future that puts forth a lofty themes. Too bad it’s short on specifics.`\
-https://nytimes.com/2025/09/30/theater/and-then-we-were-no-more-review.html
-
-**The data that illustrates Shohei Ohtani's baseball card domination**\
-`Baseball card collectors remain focused on Ohtani far more than any other active player `\
-https://nytimes.com/athletic/6675369/2025/09/30/shohei-ohtani-ken-griffey-baseball-cards/
 
