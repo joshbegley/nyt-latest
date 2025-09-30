@@ -1,3 +1,7 @@
+**N.Y.C. Subway and Bus Fares Will Rise to $3 in January**\
+`The increase, up from $2.90, will take effect after the city’s transit system ends sales of the MetroCard. Other fares and tolls will also rise.`\
+https://nytimes.com/2025/09/30/nyregion/nyc-subway-bus-fare-price-increase.html
+
 **U.S. Officials See Hostage Release as Promising Sign for Deal With Taliban**\
 `The path to any agreement is complex for several reasons, including the Taliban’s demand that a man accused of being a Qaeda operative be released from Guantánamo Bay.`\
 https://nytimes.com/2025/09/30/world/asia/trump-afghanistan-hostages.html
