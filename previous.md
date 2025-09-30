@@ -1,3 +1,11 @@
+**Schools Superintendent in Iowa Plans to Resign After ICE Arrest**\
+`A lawyer for Ian Roberts, superintendent of Des Moines Public Schools, announced that Dr. Roberts would step down.`\
+https://nytimes.com/2025/09/30/us/des-moines-ian-roberts-resign.html
+
+**Here’s What We Know About Trump’s Plan for Gaza**\
+`It would end the war and secure the release of all hostages. Hamas would give up its arms and its power, while a transitional government is set up. Hamas has not agreed and the terms will be hard for it to swallow.`\
+https://nytimes.com/2025/09/30/world/middleeast/trump-gaza-plan.html
+
 **Harvard Blasts Administration Over ‘Inaccurate’ Civil Rights Investigation**\
 `The Sept. 19 letter came days before the Department of Health and Human Services started the process of cutting off federal funds to the university.`\
 https://nytimes.com/2025/09/30/us/politics/harvard-response-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6675667/2025/09/30/upon-further-review-lions-run-ga
 **Trump and Pfizer Announce Deal to Lower Some Medicaid Drug Prices**\
 `The administration said the drug company would sell many of its products to the government insurance program for lower-income Americans at prices that align with those in Europe.`\
 https://nytimes.com/2025/09/30/health/trump-pfizer-trumprx-medications.html
-
-**Freedom of Speech in Academia Is Under Attack Around the World**\
-`Clashes on university campuses, and administrators’ failures when dealing with them, have triggered actions by some governments meant to limit what universities and their students can say and do.`\
-https://nytimes.com/2025/09/30/world/democracy-forum-athens-freedom-of-speech.html
-
-**Bobby Cain, Barrier Breaker in School Desegregation, Dies at 85**\
-`In 1957, facing down white mobs, he became the first Black student to graduate from a public high school in the South under a court mandate.`\
-https://nytimes.com/2025/09/30/us/bobby-cain-dead.html
 

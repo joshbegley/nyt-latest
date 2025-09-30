@@ -1,3 +1,11 @@
+**Schools Superintendent in Iowa Plans to Resign After ICE Arrest**\
+`A lawyer for Ian Roberts, superintendent of Des Moines Public Schools, announced that Dr. Roberts would step down.`\
+https://nytimes.com/2025/09/30/us/des-moines-ian-roberts-resign.html
+
+**Here’s What We Know About Trump’s Plan for Gaza**\
+`It would end the war and secure the release of all hostages. Hamas would give up its arms and its power, while a transitional government is set up. Hamas has not agreed and the terms will be hard for it to swallow.`\
+https://nytimes.com/2025/09/30/world/middleeast/trump-gaza-plan.html
+
 **Harvard Blasts Administration Over ‘Inaccurate’ Civil Rights Investigation**\
 `The Sept. 19 letter came days before the Department of Health and Human Services started the process of cutting off federal funds to the university.`\
 https://nytimes.com/2025/09/30/us/politics/harvard-response-trump.html
