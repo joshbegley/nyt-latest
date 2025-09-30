@@ -1,3 +1,15 @@
+**Tigers-Guardians takeaways: Tarik Skubal's dominance gives Tigers the series lead**\
+`The Tigers ace struck out 14 and the offense did just enough - with the help of some shoddy Cleveland defense - to give Detroit the edge.`\
+https://nytimes.com/athletic/6677434/2025/09/30/tigers-guardians-score-results-takeaways-mlb-playoffs/
+
+**How to watch Fever at Aces: Game 5 Time, TV, streaming**\
+`Find out how to watch the Indiana Fever play the Las Vegas Aces, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6677547/2025/09/30/fever-vs-aces-stream-how-to-watch-sept-30/
+
+**Earthquake in Philippines Kills at Least 20, Officials Say**\
+`The 6.9-magnitude earthquake shook the province of Cebu, home to 3.2 million people, just before 10 p.m. local time.`\
+https://nytimes.com/2025/09/30/world/asia/philippines-earthquake-cebu.html
+
 **Trump Administration Defunds Federal Watchdog Office**\
 `Two senators called for “immediate action” to release money the White House blocked for the federal office that oversees dozens of inspectors general.`\
 https://nytimes.com/2025/09/30/us/politics/trump-federal-watchdog-funding.html

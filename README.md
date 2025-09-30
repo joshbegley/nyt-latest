@@ -1,3 +1,7 @@
+**Ron Washington says he was let go over performance, not health: 'I have to accept that'**\
+`“Sometimes you’ve got to make chicken salad out of chicken s—,” Washington said of the challenges of managing a roster not equipped to win.`\
+https://nytimes.com/athletic/6677427/2025/09/30/angels-ron-washington-let-go-reasons/
+
 **Tigers-Guardians takeaways: Tarik Skubal's dominance gives Tigers the series lead**\
 `The Tigers ace struck out 14 and the offense did just enough - with the help of some shoddy Cleveland defense - to give Detroit the edge.`\
 https://nytimes.com/athletic/6677434/2025/09/30/tigers-guardians-score-results-takeaways-mlb-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6677387/2025/09/30/atlanta-falcons-bye-week-mailbag
 **5 Takeaways From Trump’s Address to Generals and Admirals**\
 `The president leveraged the meeting as his chance to trumpet his domestic and foreign policy moves.`\
 https://nytimes.com/2025/09/30/us/politics/trump-speech-military-takeaways.html
-
-**Multiple Federal Agencies Blame ‘Radical’ Left and Democrats for Shutdown**\
-`Agencies including the housing department and Veterans Affairs used unusually partisan language to blame liberals and congressional Democrats for the pending government shutdown.`\
-https://nytimes.com/2025/09/30/us/politics/federal-agencies-government-shutdown.html
 
