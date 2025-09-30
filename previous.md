@@ -1,3 +1,19 @@
+**Jerry Jones vs. Micah Parsons becoming the modern day Jerry vs. Jimmy**\
+`Jones responded Tuesday to Parsons' postgame comments Sunday after the Cowboys and Packers played to a 40-40 tie.`\
+https://nytimes.com/athletic/6676610/2025/09/30/cowboys-jerry-jones-micah-parsons-situation/
+
+**Valencia file lawsuit against Netflix over Vinicius Junior documentary**\
+`The ‘Baila, Vini’ film first aired in May and centres on the Brazil international’s calendar year in 2024.`\
+https://nytimes.com/athletic/6676112/2025/09/30/valencia-vinicius-junior-netflix-documentary/
+
+**'Kind of otherworldly': Kirill Kaprizov has earned his star reputation — and payday**\
+`"He does all this stuff and it doesn’t even faze him. He’s not wowed by greatness. Because he is great, you know?”`\
+https://nytimes.com/athletic/6443468/2025/09/30/kirill-kaprizov-minnesota-wild-contract-reputation/
+
+**‘And Then We Were No More’ Review: Not Quite Kafka**\
+`The actor Tim Blake Nelson has penned a dystopian drama set in an unspecified future that puts forth a lofty themes. Too bad it’s short on specifics.`\
+https://nytimes.com/2025/09/30/theater/and-then-we-were-no-more-review.html
+
 **The data that illustrates Shohei Ohtani's baseball card domination**\
 `Baseball card collectors remain focused on Ohtani far more than any other active player `\
 https://nytimes.com/athletic/6675369/2025/09/30/shohei-ohtani-ken-griffey-baseball-cards/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/09/30/us/politics/trump-racial-slur-military-speech.htm
 **Brock Purdy questionable for Thursday vs. Rams due to toe soreness, 49ers optimistic**\
 `Purdy missed two weeks with the toe injury before returning Sunday against the Jaguars.`\
 https://nytimes.com/athletic/6674640/2025/09/30/brock-purdy-injury-toe-rams/
-
-**Trump Is Still Unpopular in Our Poll. Why Aren’t Democrats Doing Better?**\
-`“Disapproval” of the president does not necessarily translate into support for the opposition.`\
-https://nytimes.com/2025/09/30/upshot/poll-analysis-trump-times-siena.html
-
-**The story of the 2025 Ryder Cup in 16 photos**\
-`Europe won the Ryder Cup for the second straight time but that does not begin to tell the story of what happened at Bethpage.`\
-https://nytimes.com/athletic/6673252/2025/09/30/ryder-cup-25-bethpage-photos/
-
-**Jurgen Klopp doesn't miss football, but football misses him**\
-`The former Liverpool manager is a loss to football even if he remains a paradoxical figure`\
-https://nytimes.com/athletic/6670811/2025/09/30/jurgen-klopp-manager-future/
-
-**How to watch Vikings vs. Browns: Time, TV, streaming**\
-`Find out how to watch the Minnesota Vikings play the Cleveland Browns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6676689/2025/09/30/vikings-vs-browns-stream-how-to-watch-oct-5/
 

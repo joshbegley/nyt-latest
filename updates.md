@@ -1,3 +1,19 @@
+**Jerry Jones vs. Micah Parsons becoming the modern day Jerry vs. Jimmy**\
+`Jones responded Tuesday to Parsons' postgame comments Sunday after the Cowboys and Packers played to a 40-40 tie.`\
+https://nytimes.com/athletic/6676610/2025/09/30/cowboys-jerry-jones-micah-parsons-situation/
+
+**Valencia file lawsuit against Netflix over Vinicius Junior documentary**\
+`The ‘Baila, Vini’ film first aired in May and centres on the Brazil international’s calendar year in 2024.`\
+https://nytimes.com/athletic/6676112/2025/09/30/valencia-vinicius-junior-netflix-documentary/
+
+**'Kind of otherworldly': Kirill Kaprizov has earned his star reputation — and payday**\
+`"He does all this stuff and it doesn’t even faze him. He’s not wowed by greatness. Because he is great, you know?”`\
+https://nytimes.com/athletic/6443468/2025/09/30/kirill-kaprizov-minnesota-wild-contract-reputation/
+
+**‘And Then We Were No More’ Review: Not Quite Kafka**\
+`The actor Tim Blake Nelson has penned a dystopian drama set in an unspecified future that puts forth a lofty themes. Too bad it’s short on specifics.`\
+https://nytimes.com/2025/09/30/theater/and-then-we-were-no-more-review.html
+
 **The data that illustrates Shohei Ohtani's baseball card domination**\
 `Baseball card collectors remain focused on Ohtani far more than any other active player `\
 https://nytimes.com/athletic/6675369/2025/09/30/shohei-ohtani-ken-griffey-baseball-cards/
