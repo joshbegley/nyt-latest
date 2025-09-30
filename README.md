@@ -1,40 +1,40 @@
-**Malacia reintegrated into Man Utd squad, will return to first-team training**\
-`The 26-year-old was one of five United players placed in a so-called ‘bomb squad’ this summer`\
-https://nytimes.com/athletic/6675845/2025/09/30/manchester-united-tyrell-malacia-squad/
+**Jaylen Brown prepares Celtics for 'new era' with Al Horford gone and Jayson Tatum injured**\
+`"I'm trying to expedite that chemistry building, that trust building," says Jaylen Brown.`\
+https://nytimes.com/athletic/6674672/2025/09/30/celtics-jaylen-brown-al-horford-jayson-tatum-culture/
 
-**Rescuers in Indonesia Race to Save Students Trapped by Deadly School Collapse**\
-`At least 30 students were missing after an Islamic boarding school collapsed during a prayer service, killing at least three children.`\
-https://nytimes.com/2025/09/30/world/asia/students-trapped-indonesia-school-collapse.html
+**Hundreds of Top Military Officers Gather for Meeting With Trump and Hegseth**\
+`The U.S. generals and admirals summoned from around the world have been given little information about the planned event.`\
+https://nytimes.com/2025/09/30/us/politics/trump-hegseth-military-officers.html
 
-**Breaking down the positives from Nuno Espirito Santo's first game in charge of West Ham**\
-`Nuno's first outing as West Ham head coach saw his team buck the trend of self-destruction as they came back from a goal down `\
-https://nytimes.com/athletic/6674041/2025/09/30/west-ham-nuno-everton-diouf-summerville-potts/
+**Government Shutdown Could Delay Economic Data at a Critical Moment**\
+`“Flying blind amidst heavy fog is a dangerous proposition,” one economist said about the risks of a lapse in official statistics.`\
+https://nytimes.com/2025/09/30/business/government-shutdown-could-delay-economic-data.html
 
-**After Vesuvius Buried Pompeii, Some Survivors Moved Back In**\
-`As many as 30,000 Romans fled the ruined region in A.D. 79. But some returned, a new study reveals, and the city limped on as a fragile, ashen shantytown.`\
-https://nytimes.com/2025/09/30/science/archaeology-vesuvius-pompeii.html
+**From Crisis to Crisis: How Congress Struggles to Fund the Government**\
+`Congress’s persistent inability to write and pass spending bills on time has made government shutdowns like the imminent one a routine threat.`\
+https://nytimes.com/interactive/2025/09/30/us/government-shutdown-funding.html
 
-**How a Real Estate Story Became One About Betrayal of a Community**\
-`A real estate editor assigned a reporter a quirky story on a colorful home in Queens. Then a criminal case turned up.`\
-https://nytimes.com/2025/09/30/insider/queens-house-scam-fraud.html
+**Accessories**\
+`Do you have favorite glasses? Bags? Jewelry? Hats? How do you wear them and what do they say about you?`\
+https://nytimes.com/2025/09/30/learning/accessories.html
 
-**The Best-Dressed Place in the World?**\
-`During Milan Fashion Week, an electric mix of faces, clothes and ideas advanced the city’s reputation as a destination with unrivaled style.`\
-https://nytimes.com/2025/09/30/style/milan-fashion-week-photos.html
+**Why a Government Shutdown Favors Trump**\
+`It’s hard to come out a victor without a clear objective and a clear message.`\
+https://nytimes.com/2025/09/30/opinion/shutdown-trump-schumer-jeffries.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/09/30/crosswords/spelling-bee-forum.html
+**Five interesting quotes from Raptors media day: 'This is one of the most fun times'**\
+`“I think our expectation of our team is definitely to make the playoffs and win some games in the playoffs,” Scottie Barnes said.`\
+https://nytimes.com/athletic/6674304/2025/09/30/raptors-media-day-scottie-barnes/
 
-**Eric Adams’s Campaign Is Over. His Campaign Finance Problems Are Not.**\
-`City regulators are focusing on potential fund-raising irregularities that could result in the clawback of $10 million from Mr. Adams’s 2021 mayoral campaign.`\
-https://nytimes.com/2025/09/30/nyregion/eric-adams-campaign-finance.html
+**After Volatile Summer, Trump’s Approval Remains Low but Stable, Poll Finds**\
+`A new Times/Siena survey shows the president retaining the support of nine out of 10 G.O.P. voters, even as the government races toward a shutdown on Wednesday.`\
+https://nytimes.com/2025/09/30/polls/trump-approval-poll.html
 
-**Klopp: Why I don't miss coaching, my fears for football and a new life at Red Bull**\
-`Exclusive: The ex-Liverpool manager gives his most extensive interview since starting his new role with Red Bull`\
-https://nytimes.com/athletic/6669213/2025/09/30/jurgen-klopp-liverpool-interview-red-bull/
+**Do Shoppers Care About Who Designs the Collections?**\
+`Some on Via Monte Napoleone, Milan’s busiest fashion street, were blissfully ignorant. Others were more cautious.`\
+https://nytimes.com/2025/09/30/style/milan-shopping-gucci-demna.html
 
-**Stephen Colbert: ‘Our Nation Is at War with Oregon. It’s Waregon.’**\
-`The “Late Show” host quipped about Trump’s latest target and plan to deploy federal troops to a “war-ravaged” Pacific Northwest.`\
-https://nytimes.com/2025/09/30/arts/television/stephen-colbert-oregon-war.html
+**Here’s How a Government Shutdown Works**\
+`Federal funding will lapse this week if Congress does not act. Areas across the government will be affected.`\
+https://nytimes.com/2025/09/30/us/politics/government-shutdown-congress.html
 
