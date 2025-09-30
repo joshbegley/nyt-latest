@@ -1,3 +1,7 @@
+**‘And Then We Were No More’ Review: Not Quite Kafka**\
+`The actor Tim Blake Nelson has penned a dystopian drama set in an unspecified future that puts forth a lofty themes. Too bad it’s short on specifics.`\
+https://nytimes.com/2025/09/30/theater/and-then-we-were-no-more-review.html
+
 **The data that illustrates Shohei Ohtani's baseball card domination**\
 `Baseball card collectors remain focused on Ohtani far more than any other active player `\
 https://nytimes.com/athletic/6675369/2025/09/30/shohei-ohtani-ken-griffey-baseball-cards/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6673252/2025/09/30/ryder-cup-25-bethpage-photos/
 **Jurgen Klopp doesn't miss football, but football misses him**\
 `The former Liverpool manager is a loss to football even if he remains a paradoxical figure`\
 https://nytimes.com/athletic/6670811/2025/09/30/jurgen-klopp-manager-future/
-
-**How to watch Vikings vs. Browns: Time, TV, streaming**\
-`Find out how to watch the Minnesota Vikings play the Cleveland Browns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6676689/2025/09/30/vikings-vs-browns-stream-how-to-watch-oct-5/
 
