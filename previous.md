@@ -1,3 +1,11 @@
+**As Jonathan Kuminga deadline nears, Jimmy Butler offers experience and advice**\
+`Butler, drawing from experience with his own contract disputes, can empathize with Kuminga's tough situation. `\
+https://nytimes.com/athletic/6675456/2025/09/30/jimmy-butler-jonathan-kuminga-media-day/
+
+**Inside Newcastle Q&A: Where are the goals coming from? Any January signings?**\
+`Chris Waugh answers the most pressing questions from Newcastle fans`\
+https://nytimes.com/athletic/6672687/2025/09/30/inside-newcastle-qa-where-are-the-goals-coming-from-any-january-signings/
+
 **Brighton spent £50m on two Greek strikers. Why have they barely played?**\
 `Stefanos Tzimas and Charalampos Kostoulas have struggled for minutes in games so far this season`\
 https://nytimes.com/athletic/6657274/2025/09/30/brighton-hurzeler-tzimas-kostoulas-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6613235/2025/09/30/turkey-seuper-lig-spending-2025/
 **How should Tuchel use Arsenal's English contingent? - England 2026 World Cup watch**\
 `The England manager is spoilt for choice in north London while south London could offer up a future captain...`\
 https://nytimes.com/athletic/6673120/2025/09/30/england-arsenal-tuchel-saka-eze/
-
-**Meet Pafos, the first-timers whose owner 'wants to win the Champions League'**\
-`The Cypriot champions have only existed for 11 years. Now, as their owner has long believed they would, they are facing Europe's elite`\
-https://nytimes.com/athletic/6673062/2025/09/30/pafos-champions-league-bayern/
-
-**Jose Mourinho: He meant everything to Chelsea fans in his heyday, but what about now?**\
-`As Mourinho returns to Stamford Bridge with Benfica, his legacy with Chelsea is up for debate `\
-https://nytimes.com/athletic/6672786/2025/09/30/jose-mourinho-chelsea-benfica-champions-league/
 

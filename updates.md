@@ -1,3 +1,11 @@
+**As Jonathan Kuminga deadline nears, Jimmy Butler offers experience and advice**\
+`Butler, drawing from experience with his own contract disputes, can empathize with Kuminga's tough situation. `\
+https://nytimes.com/athletic/6675456/2025/09/30/jimmy-butler-jonathan-kuminga-media-day/
+
+**Inside Newcastle Q&A: Where are the goals coming from? Any January signings?**\
+`Chris Waugh answers the most pressing questions from Newcastle fans`\
+https://nytimes.com/athletic/6672687/2025/09/30/inside-newcastle-qa-where-are-the-goals-coming-from-any-january-signings/
+
 **Brighton spent £50m on two Greek strikers. Why have they barely played?**\
 `Stefanos Tzimas and Charalampos Kostoulas have struggled for minutes in games so far this season`\
 https://nytimes.com/athletic/6657274/2025/09/30/brighton-hurzeler-tzimas-kostoulas-analysis/
