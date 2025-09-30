@@ -1,3 +1,7 @@
+**The New York Times in Print for Tuesday, Sep. 30, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/30/todays-new-york-times
+
 **U.S. Deports Planeload of Iranians After Deal With Tehran, Officials Say**\
 `The deportation flight to Iran is the most stark push yet by the Trump administration to deport migrants even to places with harsh human rights conditions.`\
 https://nytimes.com/2025/09/30/world/middleeast/us-iran-deportation-flight.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6655091/2025/09/30/erling-haaland-champions-league-
 **The art of football chants - and why they were a strange soundtrack to the Ryder Cup**\
 `'Are you watching Donald Trump?' grabbed the headlines, but golfers and spectators at Bethpage leaned on songs developed on the terraces`\
 https://nytimes.com/athletic/6673105/2025/09/30/football-chants-ryder-cup/
-
-**Osimhen, Ederson, Asensio, and a total outlay of €348m. Why are Turkish clubs now spending so big?**\
-`Only the Premier League and the Saudi Pro League had higher net spends than Turkey's Super Lig this summer. What is going on?`\
-https://nytimes.com/athletic/6613235/2025/09/30/turkey-seuper-lig-spending-2025/
 
