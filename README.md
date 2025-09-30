@@ -1,3 +1,11 @@
+**Raiders LT Kolton Miller heading to IR with ankle injury: Reports**\
+`Miller signed a three-year, $66 million extension, including $42.5 million guaranteed, over the summer.`\
+https://nytimes.com/athletic/6677486/2025/09/30/raiders-kolton-miller-ankle-injury/
+
+**Trump and Hegseth Gather U.S. Senior Military Officers in Virginia**\
+`More than 800 generals and admirals, under the direction of President Trump and Defense Secretary Pete Hegseth, were summoned to a military base in Virginia for an unprecedented meeting.`\
+https://nytimes.com/video/us/politics/100000010430095/senior-military-officers-meeting-quantico-virginia.html
+
 **Ron Washington says he was let go over performance, not health: 'I have to accept that'**\
 `"Sometimes you've got to make chicken salad out of chicken s—," Washington said of the challenges of managing a roster not equipped to win.`\
 https://nytimes.com/athletic/6677427/2025/09/30/angels-ron-washington-let-go-reasons/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/30/arts/nicole-kidman-keith-urban-divorce.html
 **Stunning 12,000-Year-Old Rock Art Emerges in Saudi Arabia**\
 `The discovery of huge petroglyphs of camels and donkeys, as well as hundreds of engraving tools, hints at complex early settlement in the region following the Ice Age.`\
 https://nytimes.com/2025/09/30/science/archaeology-petroglyphys-saudi-arabia.html
-
-**Submit your Falcons bye-week mailbag questions now for reporter Josh Kendall**\
-`The Falcons have arrived at their bye week on a roller coaster. Submit your questions now for reporter Josh Kendall.`\
-https://nytimes.com/athletic/6677387/2025/09/30/atlanta-falcons-bye-week-mailbag/
-
-**5 Takeaways From Trump’s Address to Generals and Admirals**\
-`The president leveraged the meeting as his chance to trumpet his domestic and foreign policy moves.`\
-https://nytimes.com/2025/09/30/us/politics/trump-speech-military-takeaways.html
 
