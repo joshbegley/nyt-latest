@@ -1,3 +1,7 @@
+**WNBA players say CBA negotiations are stalling as deadline nears**\
+`One player called the discussions "combative."`\
+https://nytimes.com/athletic/6677805/2025/09/30/wnba-cba-negotiations-stalling/
+
 **Marilyn Knowlden, Child Actress of 1930s Hollywood, Dies at 99**\
 `A spontaneous screen test led to a career that lasted into her teens. She appeared alongside stars like Bette Davis and Katharine Hepburn, played piano with Chico Marx and danced with Charles Laughton.`\
 https://nytimes.com/2025/09/30/movies/marilyn-knowlden-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6670255/2025/09/30/galatasaray-liverpool-highlights
 **Lawrence Moten, Syracuse's all-time leading scorer and Big East star of '90s, dies at 53**\
 `Moten held the Big East's career points record for 25 years.`\
 https://nytimes.com/athletic/6677734/2025/09/30/lawrence-moten-death-syracuse-basketball/
-
-**The Briefing: Chelsea 1 Benfica 0 - Wingers offer flashes of quality to spoil Jose Mourinho's latest homecoming**\
-`Chelsea's first home game in the Champions League since April 2023 was won against the Portuguese, though this was rarely comfortable`\
-https://nytimes.com/athletic/6670253/2025/09/30/chelsea-benfica-mourinho-neto-champions-league/
 

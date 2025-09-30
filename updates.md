@@ -1,3 +1,7 @@
+**WNBA players say CBA negotiations are stalling as deadline nears**\
+`One player called the discussions "combative."`\
+https://nytimes.com/athletic/6677805/2025/09/30/wnba-cba-negotiations-stalling/
+
 **Marilyn Knowlden, Child Actress of 1930s Hollywood, Dies at 99**\
 `A spontaneous screen test led to a career that lasted into her teens. She appeared alongside stars like Bette Davis and Katharine Hepburn, played piano with Chico Marx and danced with Charles Laughton.`\
 https://nytimes.com/2025/09/30/movies/marilyn-knowlden-dead.html
