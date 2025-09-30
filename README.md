@@ -1,3 +1,7 @@
+**Giannis endorses Bucks' offseason makeover, opens up on offseason thinking**\
+`Regarding his future, the two-time MVP was clear: "I want to compete with the best, and I want to win another championship."`\
+https://nytimes.com/athletic/6674312/2025/09/29/giannis-antetokounmpo-bucks-future-nba-media-day/
+
 **Weekly Student News Quiz: Bad Bunny, Typhoon, Broadway**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/09/29/learning/30StudentNewsQuizLN.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/29/us/des-moines-superintendent-ice-roberts.html
 **Trump’s Meeting With Democrats Yields No Progress, With Shutdown a Day Away**\
 `President Trump met with Republican and Democratic leaders at the White House, but they emerged without a deal, as Democrats seek more health care funding.`\
 https://nytimes.com/2025/09/29/us/politics/government-shutdown-trump-vance-congress.html
-
-**Lally Weymouth, Globe-Trotting Reporter and Scion of Graham Family, Dies at 82**\
-`The daughter of Washington Post publisher Katharine Graham, she secured hard-to-land interviews with foreign leaders but found few opportunities for a leadership role.`\
-https://nytimes.com/2025/09/29/us/politics/lally-weymouth-dead.html
 
