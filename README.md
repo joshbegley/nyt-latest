@@ -26,7 +26,7 @@ https://nytimes.com/2025/09/30/us/politics/federal-charges-grand-jury-dc.html
 `Marmol’s job status was in question due to the Cardinals' front office change.`\
 https://nytimes.com/athletic/6676555/2025/09/30/oli-marmol-cardinals-manager-2026/
 
-**WNBA reaches 11-year media rights deal to stream games on Versant**\
+**WNBA reaches 11-year media rights deal to broadcast games on Versant**\
 `The deal will have USA Network airing 50+ WNBA games annually, including a still-to-be-defined number of playoff games in select years`\
 https://nytimes.com/athletic/6676766/2025/09/30/wnba-media-rights-stream-versant-2026/
 
