@@ -1,3 +1,23 @@
+**Coco Gauff and Belinda Bencic clash over 'mind games' at China Open**\
+`The incident was forgotten by the end of the match, with Gauff saying “she's entitled to how she felt and I'm entitled to how I respond.”`\
+https://nytimes.com/athletic/6676022/2025/09/30/coco-gauff-belinda-bencic-row-china-open/
+
+**Leeds winger James undergoing assessment on ankle injury**\
+`The club are hopeful the Wales international won't be sidelined long term.`\
+https://nytimes.com/athletic/6675904/2025/09/30/dan-james-injury-update-leeds/
+
+**Collapse of School Traps Students in Indonesia**\
+`Rescuers raced to save students after a boarding school in East Java caved in. At least three students were killed, officials said, and dozens more were injured.`\
+https://nytimes.com/video/world/asia/100000010429694/collapse-of-school-traps-students-in-indonesia.html
+
+**Cassie Asks Judge to Weigh Her Suffering When Sentencing Sean Combs**\
+`Mr. Combs, who was convicted of transportation to engage in prostitution, is set to be sentenced on Friday. Prosecutors asked the judge to sentence him to more than 11 years in prison.`\
+https://nytimes.com/2025/09/30/arts/music/cassie-sean-combs-diddy-sentencing.html
+
+**Third-down struggles plaguing Cowboys defense as they search for answers**\
+`The Cowboys are struggling to stop opponents on third down and allowing a lot of points, but believe their issues are "fixable."`\
+https://nytimes.com/athletic/6675825/2025/09/30/cowboys-defense-struggles-third-down-points/
+
 **As Ohio State's defense dominates, is the offense ready to hit another gear?**\
 `What I learned about Ohio State from rewatching the top-ranked Buckeyes' film from a 24-6 win at Washington.`\
 https://nytimes.com/athletic/6674359/2025/09/30/ohio-state-washington-sayin-defense-minnesota/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6675599/2025/09/30/reds-mlb-playoffs-trade-deadline
 **Key Flyers defensemen are impressing, but the battle for depth spots is not**\
 `With a new coach to impress, the top two pairings look reasonably set. The bottom pairing, however, could be an issue.`\
 https://nytimes.com/athletic/6675384/2025/09/30/flyers-preseason-defense-york-drysdale-ginning-juulsen/
-
-**Q&A: How the Blue Jays' minor-league system contributed to East title**\
-`"They have wound up having success when given those opportunities," player development director Joe Sclafani says of the minor leaguers.`\
-https://nytimes.com/athletic/6674455/2025/09/30/blue-jays-prospects-joe-sclafani/
-
-**Cam Whitmore's hometown team is giving him a second chance to prove he belongs in the NBA**\
-`After a disappointing two seasons with Houston, Whitmore is getting a second chance with Washington. `\
-https://nytimes.com/athletic/6674802/2025/09/30/cam-whitmore-washington-wizards/
-
-**Behind Anthony Stolarz’s push to become a rising NHL star in his 30s**\
-`Before last year, Stolarz had never started 30 games in an NHL season. In Year 2 with the Leafs, he's aiming for genuine stardom.`\
-https://nytimes.com/athletic/6674125/2025/09/30/maple-leafs-anthony-stolarz-goalie-age-health/
-
-**Surging Noah Laba continues to impress: Rangers stock up, stock down report**\
-`The regular season begins in one week, and plenty of Rangers are still vying for roster spots.`\
-https://nytimes.com/athletic/6675416/2025/09/30/rangers-stock-watch-preseason-laba/
-
-**Why Arkansas, Oklahoma State could seek next head coaches in state of Texas**\
-`Rhett Lashlee could be the favorite at Arkansas. GJ Kinne, Eric Morris and Jeff Traylor would be attractive options for Oklahoma State.`\
-https://nytimes.com/athletic/6675120/2025/09/30/arkansas-oklahoma-coaching-candidates-rhett-lashlee/
 
