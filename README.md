@@ -1,3 +1,11 @@
+**As Ohio State's defense dominates, is the offense ready to hit another gear?**\
+`What I learned about Ohio State from rewatching the top-ranked Buckeyes' film from a 24-6 win at Washington.`\
+https://nytimes.com/athletic/6674359/2025/09/30/ohio-state-washington-sayin-defense-minnesota/
+
+**Grant Newsome is eager to prove he has the answers for Michigan's offensive line**\
+`Nine years ago against Wisconsin, a brutal injury ended Newsome's playing career. Now his Michigan O-line is at a pivotal moment.`\
+https://nytimes.com/athletic/6674179/2025/09/30/grant-newsome-michigan-offensive-line-wisconsin/
+
 **Phillies' energizer Harrison Bader embraces the 'gift' of meaningful baseball**\
 `With his good energy and big contributions on both sides of the ball, Bader has become beloved in less than two months of playing in Philly.`\
 https://nytimes.com/athletic/6674940/2025/09/30/harrison-bader-phillies-energy/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6675416/2025/09/30/rangers-stock-watch-preseason-la
 **Why Arkansas, Oklahoma State could seek next head coaches in state of Texas**\
 `Rhett Lashlee could be the favorite at Arkansas. GJ Kinne, Eric Morris and Jeff Traylor would be attractive options for Oklahoma State.`\
 https://nytimes.com/athletic/6675120/2025/09/30/arkansas-oklahoma-coaching-candidates-rhett-lashlee/
-
-**Ten best things I saw in college football recruiting over the weekend**\
-`Xavier Edwards broke Derrick Henry's state of Florida record with eight rushing touchdowns on Friday night.`\
-https://nytimes.com/athletic/6674218/2025/09/30/college-football-recruiting-thoughts-week-5/
-
-**Could Riq Woolen be traded? Benched? How the Seahawks could shuffle the secondary**\
-`With Josh Jobe's emergence, Derion Kendrick impressing and Nick Emmanwori nearing a return, Woolen could be the odd man out.`\
-https://nytimes.com/athletic/6674811/2025/09/30/riq-woolen-trade-rumors-seahawks/
 
