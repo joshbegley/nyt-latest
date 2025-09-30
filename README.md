@@ -30,7 +30,7 @@ https://nytimes.com/2025/09/30/nyregion/eric-adams-campaign-finance.html
 `Exclusive: The ex-Liverpool manager gives his most extensive interview since starting his new role with Red Bull`\
 https://nytimes.com/athletic/6669213/2025/09/30/jurgen-klopp-liverpool-interview-red-bull/
 
-**Stephen Colbert: ‘Our Nation is at War with Oregon. It’s Waregon.’**\
+**Stephen Colbert: ‘Our Nation Is at War with Oregon. It’s Waregon.’**\
 `The “Late Show” host quipped about Trump’s latest target and plan to deploy federal troops to a “war-ravaged” Pacific Northwest.`\
 https://nytimes.com/2025/09/30/arts/television/stephen-colbert-oregon-war.html
 
