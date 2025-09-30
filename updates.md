@@ -1,3 +1,11 @@
+**Jets-Dolphins takeaways: Miami secures first win, Tyreek Hill injured**\
+`The Jets drop to 0-4 ahead of their Week 5 matchup against the Dallas Cowboys, while the 1-3 Dolphins take on the Carolina Panthers.`\
+https://nytimes.com/athletic/6675068/2025/09/29/jets-dolphins-score-result-takeaways-monday-night-football/
+
+**Trump Officials Flesh Out Tariffs on Kitchen Cabinets, Furniture and Timber**\
+`The White House set a relatively low tariff on imports of timber and lumber, and a significantly higher tariff on furniture and kitchen cabinets.`\
+https://nytimes.com/2025/09/29/business/economy/tariffs-cabinets-furniture-lumber-trump.html
+
 **College Football Playoff 2025 projections: Oregon, Ole Miss, Alabama rising after big wins**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/09/29/college-football-playoff-bracket-projections-odds/
