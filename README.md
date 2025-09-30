@@ -1,4 +1,8 @@
-**U.S. Ambassador to Israel’s Postpones Rare Visit to Egypt**\
+**Daniil Medvedev asks why umpires 'are trying to intimidate' him after best effort warning in Beijing**\
+`Medvedev wanted to “do something bad” after umpire Adel Nour's judgment that he was not trying hard enough while nearly unable to move.`\
+https://nytimes.com/athletic/6676084/2025/09/30/daniil-medvedev-china-open-code-violation-best-effort-rule/
+
+**U.S. Ambassador to Israel Postpones Rare Visit to Egypt**\
 `Ambassador Huckabee said the delay was requested by Egyptian officials. The trip is now expected to take place in the coming weeks.`\
 https://nytimes.com/2025/09/30/world/middleeast/huckabee-egypt-israel-gaza.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6674878/2025/09/30/yang-hansen-blazers-nba-rookie-c
 **Trump Administration Live Updates: Hegseth Addresses Rare Gathering of Top Military Leaders**\
 ``\
 https://nytimes.com/live/2025/09/30/us/trump-government-shutdown-hegseth
-
-**Bayern criticism of Nick Woltemade and Newcastle is ultimately about... Bayern**\
-`The German club's representatives have been blunt in their criticism, but that needs to be understood in context`\
-https://nytimes.com/athletic/6675894/2025/09/30/woltemade-newcastle-bayern-munich-criticism/
 
