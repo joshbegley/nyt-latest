@@ -1,3 +1,11 @@
+**Word of the Day: permutation**\
+`This word has appeared in 17 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/09/30/learning/word-of-the-day-permutation.html
+
+**The Briefing: Everton 1 West Ham 1: Sluggishness exposed, Dewsbury-Hall blow but Garner shines**\
+`Patrick Boyland breaks down the main talking points from Everton's 1-1 draw with West Ham`\
+https://nytimes.com/athletic/6674829/2025/09/30/everton-1-west-ham-1-dewsbury-hall-garner/
+
 **The New York Times in Print for Tuesday, Sep. 30, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/30/todays-new-york-times

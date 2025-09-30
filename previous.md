@@ -1,3 +1,11 @@
+**Word of the Day: permutation**\
+`This word has appeared in 17 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/09/30/learning/word-of-the-day-permutation.html
+
+**The Briefing: Everton 1 West Ham 1: Sluggishness exposed, Dewsbury-Hall blow but Garner shines**\
+`Patrick Boyland breaks down the main talking points from Everton's 1-1 draw with West Ham`\
+https://nytimes.com/athletic/6674829/2025/09/30/everton-1-west-ham-1-dewsbury-hall-garner/
+
 **The New York Times in Print for Tuesday, Sep. 30, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/09/30/todays-new-york-times
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6673311/2025/09/30/liverpool-miracle-of-istanbul-ga
 **Long throws? Parking the bus? How footballers really feel about being asked to 'play ugly'**\
 `Pragmatism can be effective but how do those on the pitch feel about being asked to play in a less aesthetically-pleasing way?`\
 https://nytimes.com/athletic/6654665/2025/09/30/anti-football-what-players-think/
-
-**As Haaland joins the European Cup's top 10 scorers, are yesterday's heroes being forgotten?**\
-`There are no more pre-1992 players in the European Cup/Champions League's list of top 10 scorers. Does it matter?`\
-https://nytimes.com/athletic/6655091/2025/09/30/erling-haaland-champions-league-scorers/
-
-**The art of football chants - and why they were a strange soundtrack to the Ryder Cup**\
-`'Are you watching Donald Trump?' grabbed the headlines, but golfers and spectators at Bethpage leaned on songs developed on the terraces`\
-https://nytimes.com/athletic/6673105/2025/09/30/football-chants-ryder-cup/
 
