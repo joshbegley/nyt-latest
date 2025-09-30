@@ -1,3 +1,7 @@
+**College Football Playoff 2025 projections: Oregon, Ole Miss, Alabama rising after big wins**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/09/29/college-football-playoff-bracket-projections-odds/
+
 **When Nothing Goes Right**\
 `Justin Werfel’s wit is understated.`\
 https://nytimes.com/2025/09/29/crosswords/daily-puzzle-2025-09-30.html
