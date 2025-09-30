@@ -1,3 +1,7 @@
+**The New York Times in Print for Tuesday, Sep. 30, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/09/30/todays-new-york-times
+
 **U.S. Deports Planeload of Iranians After Deal With Tehran, Officials Say**\
 `The deportation flight to Iran is the most stark push yet by the Trump administration to deport migrants even to places with harsh human rights conditions.`\
 https://nytimes.com/2025/09/30/world/middleeast/us-iran-deportation-flight.html
