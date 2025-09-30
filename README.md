@@ -1,3 +1,7 @@
+**Madagascar’s President Dissolves Government**\
+`President Andry Rajoelina of Madagascar dissolved the government on Monday amid deadly youth-led protests that have been sparked by power outages and water shortages.`\
+https://nytimes.com/video/world/africa/100000010429450/madagascar-government.html
+
 **How to watch Reds at Dodgers: Game 1 Time, TV, streaming**\
 `Find out how to watch the Cincinnati Reds play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6675715/2025/09/30/reds-vs-dodgers-stream-how-to-watch-sept-30/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6657274/2025/09/30/brighton-hurzeler-tzimas-kostoul
 **How Tyrick Mitchell took his game to the next level - could it lead to an England recall?**\
 `His career is thriving once again and if his trajectory continues, it will be hard for Tuchel to ignore those calls for a place in his squad`\
 https://nytimes.com/athletic/6668615/2025/09/30/crystal-palace-tyrick-mitchell-england/
-
-**An oral history of the Miracle of Istanbul**\
-`As Liverpool return to the Turkish city to face Galatasaray, the full story of what happened on the club's most famous visit`\
-https://nytimes.com/athletic/6673311/2025/09/30/liverpool-miracle-of-istanbul-galatasaray/
 
