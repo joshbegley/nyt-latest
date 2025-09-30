@@ -1,3 +1,7 @@
+**College Football Playoff 2025 projections: Oregon, Ole Miss, Alabama rising after big wins**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/09/29/college-football-playoff-bracket-projections-odds/
+
 **When Nothing Goes Right**\
 `Justin Werfel’s wit is understated.`\
 https://nytimes.com/2025/09/29/crosswords/daily-puzzle-2025-09-30.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6674312/2025/09/29/giannis-antetokounmpo-bucks-futu
 **Weekly Student News Quiz: Bad Bunny, Typhoon, Broadway**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/09/29/learning/30StudentNewsQuizLN.html
-
-**Dolphins WR Tyreek Hill carted off vs. Jets with leg injury**\
-`Hill's left leg bent awkwardly as he was tackled after making a catch in the third quarter of "Monday Night Football."`\
-https://nytimes.com/athletic/6675251/2025/09/29/tyreek-hill-leg-injury-dolphins/
 
