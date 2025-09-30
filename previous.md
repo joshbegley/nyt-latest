@@ -1,40 +1,40 @@
-**Milan City Council approves San Siro sale to Milan and Inter, clearing way for new stadium plans**\
-`Plans for a new stadium would see San Siro mostly demolished, with only 10 per cent of the existing structure expected to remain.`\
-https://nytimes.com/athletic/6675860/2025/09/30/san-siro-sale-milan-inter/
+**What J.J. McCarthy can learn from Aaron Rodgers’ performance Sunday vs. Vikings**\
+`The veteran quarterback feasted on the Vikings on Sunday with quick and accurate passes. McCarthy could learn a thing or two from him.`\
+https://nytimes.com/athletic/6673665/2025/09/30/jj-mccarthy-aaron-rodgers-vikings-steelers-dublin/
 
-**NFL QB stock report, Week 5: Is Panthers QB Bryce Young a lost cause?**\
-`Young has failed to carry over the positive momentum he built at the end of 2024. “I don’t think he’s the guy,” a league evaluator said.`\
-https://nytimes.com/athletic/6673658/2025/09/30/qb-stock-report-bryce-young-shedeur-sanders-rankings/
+**Are the Bengals cooked? It's a fair question after lifeless 28-3 loss to Broncos**\
+`Another mistake-filled, blowout loss without Joe Burrow makes for a bleak outlook for the remainder of the season.`\
+https://nytimes.com/athletic/6675743/2025/09/30/bengals-loss-mnf-zac-taylor-jake-browning/
 
-**Rosenthal: Shohei Ohtani, Cal Raleigh and 9 more questions that will define the MLB postseason**\
-`This MLB regular season featured a whole lot of craziness. Will October be even wilder? `\
-https://nytimes.com/athletic/6675258/2025/09/30/mlb-playoffs-questions-judge-ohtani-raleigh/
+**Who is David Bednar? Meet the 'Renegade' closer the Yankees will ride in the playoffs**\
+`After so many doubters along the way, Bednar has found believers in the Bronx and won over his new team with his quiet intensity.`\
+https://nytimes.com/athletic/6669529/2025/09/30/david-bednar-yankees-closer-playoffs/
 
-**World Series predictions: The Athletic MLB staff picks the matchup and the winner**\
-`The Athletic's MLB staff takes a swing at predicting which teams will meet in the World Series ... and which one will come home a champion.`\
-https://nytimes.com/athletic/6674549/2025/09/30/mlb-world-series-winner-staff-early-predictions/
+**Kerry James Marshall’s Paintings Are Looking at You**\
+`In the largest European exhibition to date of work by the American painter, the viewer is anything but a passive spectator.`\
+https://nytimes.com/2025/09/30/arts/design/kerry-james-marshall-royal-academy.html
 
-**The Remaking of Aroldis Chapman, the Red Sox closer who is firmly in command**\
-`The Yankees once cut ties with Chapman. He spent the next three years sharpening his command. Now, he faces his former team in the playoffs.`\
-https://nytimes.com/athletic/6674891/2025/09/30/aroldis-chapman-red-sox-yankees-command/
+**MLB wild card watchability: Ranking all 4 playoff series that start Tuesday**\
+`We ranked the national appeal of all four MLB wild-card matchups, from the hectic AL Central to the time-honored Red Sox-Yankees rivalry.`\
+https://nytimes.com/athletic/6673886/2025/09/30/mlb-wild-card-dodgers-yankees-red-sox-cubs-how-to-watch/
 
-**Week 5 NFL Power Rankings: Ravens' fall continues, Giants head over heels after first win**\
-`The Week 5 NFL Power Rankings find the Eagles and Bills still on top, with the Ravens falling. A surprising win has the Giants on the rise.`\
-https://nytimes.com/athletic/6673155/2025/09/30/week-5-nfl-power-rankings-ravens-giants-cam-skattebo/
+**Kings 2025-26 season preview: Playoff chances, projected points, roster rankings**\
+`The star power the Kings have lacked could be on the way, but their position makes it tough to see an easy path to true contender status.`\
+https://nytimes.com/athletic/6668314/2025/09/30/los-angeles-kings-2025-26-season-preview/
 
-**Craig Counsell’s feng shui: How Cubs manager put his imprint on Wrigley Field**\
-`Though decisions are guided by numbers, Counsell still goes by feel, drawing upon the thousands of games he’s experienced.`\
-https://nytimes.com/athletic/6675483/2025/09/30/chicago-cubs-craig-counsell-wrigley-field-impact/
+**What does a spotless locker room have to do with success? For these coaches, everything**\
+`Photos of spotless college football locker rooms have gone viral. Said one coach: "The way we do small things is the way we do all things."`\
+https://nytimes.com/athletic/6673496/2025/09/30/vanderbilt-alabama-cleak-lea-diego-pavia/
 
-**Under Aaron Glenn, another Jets loss — just like so many Jets losses before**\
-`It was a familiar collection of mistakes — with a few new ones mixed in — as the Jets fell to 0-4.`\
-https://nytimes.com/athletic/6675723/2025/09/30/new-york-jets-monday-night-loss-dolphins/
+**Rangers 2025-26 season preview: Playoff chances, projected points, roster rankings**\
+`A playoff return looks possible under new coach Mike Sullivan, but the Rangers have a lot to prove to get back into the contender’s circle.`\
+https://nytimes.com/athletic/6666332/2025/09/30/new-york-rangers-2025-26-season-preview/
 
-**The New York Times International Edition in Print for Wednesday, Oct. 1, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/09/30/todays-new-york-times-international-edition
+**Glen Powell, Manning brothers aim for authenticity in 'Chad Powers,' a comedy about faking it**\
+`How they built a real (fake) quarterback for Hulu's new college football comedy.`\
+https://nytimes.com/athletic/6670344/2025/09/30/chad-powers-glen-powell-peyton-eli-manning-hulu-comedy/
 
-**Are NFL scouts pumping the brakes on this hyped-up class of college football QBs?**\
-`These CFB QBs are supposed to be stellar NFL prospects. While some have flourished, most are not living up to the hype — yet.`\
-https://nytimes.com/athletic/6673340/2025/09/30/college-football-quarterback-struggles-nfl-scout-coaches/
+**Heisman straw poll: Dante Moore, Fernando Mendoza lead wide-open field**\
+`Moore and Mendoza will square off Oct. 11 in a huge game for the Big Ten, Playoff and Heisman races.`\
+https://nytimes.com/athletic/6673277/2025/09/30/heisman-poll-dante-moore-fernando-mendoza-favorites/
 

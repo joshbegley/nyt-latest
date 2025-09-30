@@ -1,3 +1,19 @@
+**Bears' bye week to-do list: Self-assessment, defining O-line roles, getting healthy**\
+`The Bears' glee Sunday was warranted but requires an asterisk. “Everything feels better when you win. But we have to be truth tellers."`\
+https://nytimes.com/athletic/6674736/2025/09/30/bears-bye-week-to-do-list/
+
+**Pistons media day: Cade Cunningham's aspirations, no restrictions on Jaden Ivey**\
+`Cunningham and the Detroit Pistons are ready to move on from last season's success and take the next step in their development. `\
+https://nytimes.com/athletic/6675315/2025/09/30/pistons-media-day-cade-cunningham-nba-2025/
+
+**What happened to the Jared Goff-Jameson Williams connection? Analyzing what went wrong**\
+`Goff and Williams connected on just 2 of 8 throws and missed on several potential big plays against the Browns.`\
+https://nytimes.com/athletic/6674525/2025/09/30/lions-jameson-williams-jared-goff-browns-analysis/
+
+**More Chuba Hubbard and aggressive play calling: 5 ways to fix the Panthers**\
+`Among our suggestions: Dave Canales take more chances on offense and Ejiro Evero blitz more to create pressure.`\
+https://nytimes.com/athletic/6674665/2025/09/30/carolina-panthers-how-to-fix-problems/
+
 **What J.J. McCarthy can learn from Aaron Rodgers’ performance Sunday vs. Vikings**\
 `The veteran quarterback feasted on the Vikings on Sunday with quick and accurate passes. McCarthy could learn a thing or two from him.`\
 https://nytimes.com/athletic/6673665/2025/09/30/jj-mccarthy-aaron-rodgers-vikings-steelers-dublin/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6673886/2025/09/30/mlb-wild-card-dodgers-yankees-re
 **Kings 2025-26 season preview: Playoff chances, projected points, roster rankings**\
 `The star power the Kings have lacked could be on the way, but their position makes it tough to see an easy path to true contender status.`\
 https://nytimes.com/athletic/6668314/2025/09/30/los-angeles-kings-2025-26-season-preview/
-
-**What does a spotless locker room have to do with success? For these coaches, everything**\
-`Photos of spotless college football locker rooms have gone viral. Said one coach: "The way we do small things is the way we do all things."`\
-https://nytimes.com/athletic/6673496/2025/09/30/vanderbilt-alabama-cleak-lea-diego-pavia/
-
-**Rangers 2025-26 season preview: Playoff chances, projected points, roster rankings**\
-`A playoff return looks possible under new coach Mike Sullivan, but the Rangers have a lot to prove to get back into the contender’s circle.`\
-https://nytimes.com/athletic/6666332/2025/09/30/new-york-rangers-2025-26-season-preview/
-
-**Glen Powell, Manning brothers aim for authenticity in 'Chad Powers,' a comedy about faking it**\
-`How they built a real (fake) quarterback for Hulu's new college football comedy.`\
-https://nytimes.com/athletic/6670344/2025/09/30/chad-powers-glen-powell-peyton-eli-manning-hulu-comedy/
-
-**Heisman straw poll: Dante Moore, Fernando Mendoza lead wide-open field**\
-`Moore and Mendoza will square off Oct. 11 in a huge game for the Big Ten, Playoff and Heisman races.`\
-https://nytimes.com/athletic/6673277/2025/09/30/heisman-poll-dante-moore-fernando-mendoza-favorites/
 
