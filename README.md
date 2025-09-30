@@ -1,40 +1,40 @@
+**How should Tuchel use Arsenal's English contingent? - England 2026 World Cup watch**\
+`The England manager is spoilt for choice in north London while south London could offer up a future captain...`\
+https://nytimes.com/athletic/6673120/2025/09/30/england-arsenal-tuchel-saka-eze/
+
+**Meet Pafos, the first-timers whose owner 'wants to win the Champions League'**\
+`The Cypriot champions have only existed for 11 years. Now, as their owner has long believed they would, they are facing Europe's elite`\
+https://nytimes.com/athletic/6673062/2025/09/30/pafos-champions-league-bayern/
+
+**Jose Mourinho: He meant everything to Chelsea fans in his heyday, but what about now?**\
+`As Mourinho returns to Stamford Bridge with Benfica, his legacy with Chelsea is up for debate `\
+https://nytimes.com/athletic/6672786/2025/09/30/jose-mourinho-chelsea-benfica-champions-league/
+
+**Bundesliga Briefing: A defeat that was Gladbach all over, and has Kovac solved the riddle of Adeyemi?**\
+`After a shattering 6-4 defeat by Eintracht Frankfurt, tensions are affecting the club as a whole. Plus, Niko Kovac's discipline is working`\
+https://nytimes.com/athletic/6672937/2025/09/30/bundesliga-briefing-borussia-monchengladbach-karim-adeyemi/
+
+**De Bruyne substituted again, majestic Modric and Svilar's saves – James Horncastle's Serie A Briefing**\
+`Our Italian football expert rounds up and analyses all the key talking points from the weekend's action`\
+https://nytimes.com/athletic/6672870/2025/09/30/serie-a-napoli-milan-roma-inter-italy/
+
+**Hosting Real Madrid in Kazakhstan: The diary of a Champions League underdog**\
+`The Spanish giants' visit has been hugely anticipated in Almaty, nearly 4,000 miles from the Santiago Bernabeu`\
+https://nytimes.com/athletic/6672918/2025/09/30/real-madrid-champions-league-fc-kairat/
+
+**Fantasy football waiver wire Week 5: Woody Marks, Malik Washington, streamers**\
+`Jake Ciely offers up his favorite waiver wire targets ahead of Week 5, which prominently features last week's rookie breakout Woody Marks.`\
+https://nytimes.com/athletic/6673535/2025/09/30/fantasy-football-waiver-wire-week-5-woody-marks-streamers/
+
+**Connections: Sports Edition Coach: Hints for Sept. 30, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6675266/2025/09/30/connections-sports-edition-hints-for-sept-30-2025/
+
+**Corrections: Sept. 30, 2025**\
+`Corrections that appeared in print on Tuesday, Sept. 30, 2025.`\
+https://nytimes.com/2025/09/30/pageoneplus/corrections-sept-30-2025.html
+
 **Quote of the Day: Reprisals Go Around, And May Come Around**\
 `Quotation of the Day for Tuesday, September 30, 2025.`\
 https://nytimes.com/2025/09/29/pageoneplus/quote-of-the-day-reprisals-go-around-and-may-come-around.html
-
-**Bengals-Broncos takeaways: Denver offense finds a groove in 28-3 win**\
-`After netting a field goal on their first offensive series, the Bengals didn't run another play in the Broncos' territory.`\
-https://nytimes.com/athletic/6675432/2025/09/29/bengals-broncos-denver-cincinnati-score-takeaways-results/
-
-**Skaggs-Angels trial: Witness list, featuring current and former MLB players, taking shape**\
-`Court proceedings in the wrongful death case began last week, with jury selection set to start on Oct. 6.`\
-https://nytimes.com/athletic/6675556/2025/09/29/angels-tyler-skaggs-trial-witness-list-developments/
-
-**Judge Reinstates Over 500 Voice of America Journalists and Staff**\
-`The reversal of firings is the latest defeat that the Trump administration has incurred in its effort to close down the federal news organization.`\
-https://nytimes.com/2025/09/29/us/politics/voa-voice-of-america-layoffs.html
-
-**Jets-Dolphins takeaways: Miami secures first win, Tyreek Hill injured**\
-`The Jets drop to 0-4 ahead of their Week 5 matchup against the Dallas Cowboys, while the 1-3 Dolphins take on the Carolina Panthers.`\
-https://nytimes.com/athletic/6675068/2025/09/29/jets-dolphins-score-result-takeaways-monday-night-football/
-
-**Trump Officials Flesh Out Tariffs on Kitchen Cabinets, Furniture and Timber**\
-`The White House set a relatively low tariff on imports of timber and lumber, and a significantly higher tariff on furniture and kitchen cabinets.`\
-https://nytimes.com/2025/09/29/business/economy/tariffs-cabinets-furniture-lumber-trump.html
-
-**College Football Playoff 2025 projections: Oregon, Ole Miss, Alabama rising after big wins**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/09/29/college-football-playoff-bracket-projections-odds/
-
-**When Nothing Goes Right**\
-`Justin Werfel’s wit is understated.`\
-https://nytimes.com/2025/09/29/crosswords/daily-puzzle-2025-09-30.html
-
-**In ‘Masquerade,’ You’re There Inside the Phantom’s Mind**\
-`Andrew Lloyd Webber’s “The Phantom of the Opera” returns to New York in an immersive spectacle, as silly as it is thrilling.`\
-https://nytimes.com/2025/09/29/theater/masquerade-review-phantom-of-the-opera.html
-
-**Peace Broker, Arms Supplier: China’s Dual Roles in a Deadly Conflict**\
-`China urged Cambodia and Thailand to end their border war in July. But weeks earlier, it had sent rockets and artillery shells to Cambodia, Thai intelligence documents show.`\
-https://nytimes.com/2025/09/29/world/asia/thailand-cambodia-china-weapons.html
 
