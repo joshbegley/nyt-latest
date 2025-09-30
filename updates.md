@@ -1,3 +1,15 @@
+**Daniil Medvedev asks why umpires 'are trying to intimidate' him after best effort warning in Beijing**\
+`Medvedev wanted to “do something bad” after umpire Adel Nour's judgment that he was not trying hard enough while nearly unable to move.`\
+https://nytimes.com/athletic/6676084/2025/09/30/daniil-medvedev-china-open-code-violation-best-effort-rule/
+
+**U.S. Ambassador to Israel Postpones Rare Visit to Egypt**\
+`Ambassador Huckabee said the delay was requested by Egyptian officials. The trip is now expected to take place in the coming weeks.`\
+https://nytimes.com/2025/09/30/world/middleeast/huckabee-egypt-israel-gaza.html
+
+**Starmer Describes ‘Fight for the Soul’ of U.K. as Populist Right Rises**\
+`In a speech at an annual Labour conference, the British prime minister will contrast his political project with that of Nigel Farage, whose Reform party promises mass deportations.`\
+https://nytimes.com/2025/09/30/world/europe/starmer-speech-soul-uk.html
+
 **With Monahan, Fantilli and now Coyle, Blue Jackets have center depth like never before**\
 `The Blue Jackets have become the envy of many NHL clubs at the position after struggling for years to strengthen their offensive spine.`\
 https://nytimes.com/athletic/6674382/2025/09/30/with-monahan-fantilli-and-coyle-blue-jackets-have-center-depth-like-never-before/
