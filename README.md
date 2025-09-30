@@ -1,3 +1,7 @@
+**Bruins systems check: Explaining the new D scheme, 4-righty PP, hybrid-diamond PK**\
+`The 2025-26 Bruins will still play zone defense in front of their goalies, but at times they will now switch to man-to-man coverage.`\
+https://nytimes.com/athletic/6674404/2025/09/30/bruins-systems-defensive-scheme-marco-sturm/
+
 **What Elections in Moldova Mean for Europe**\
 `In winning parliamentary elections, Moldova’s incumbent party has kept the country on track to join the European Union, overcoming Russia’s efforts to influence the election. Jeanna Smialek, reporting from Chisinau, explains why the stakes were so high.`\
 https://nytimes.com/video/world/europe/100000010423796/what-moldova-elections-mean-for-europe.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6673665/2025/09/30/jj-mccarthy-aaron-rodgers-viking
 **Are the Bengals cooked? It's a fair question after lifeless 28-3 loss to Broncos**\
 `Another mistake-filled, blowout loss without Joe Burrow makes for a bleak outlook for the remainder of the season.`\
 https://nytimes.com/athletic/6675743/2025/09/30/bengals-loss-mnf-zac-taylor-jake-browning/
-
-**Who is David Bednar? Meet the 'Renegade' closer the Yankees will ride in the playoffs**\
-`After so many doubters along the way, Bednar has found believers in the Bronx and won over his new team with his quiet intensity.`\
-https://nytimes.com/athletic/6669529/2025/09/30/david-bednar-yankees-closer-playoffs/
 

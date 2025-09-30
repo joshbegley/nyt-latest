@@ -1,3 +1,15 @@
+**What Elections in Moldova Mean for Europe**\
+`In winning parliamentary elections, Moldova’s incumbent party has kept the country on track to join the European Union, overcoming Russia’s efforts to influence the election. Jeanna Smialek, reporting from Chisinau, explains why the stakes were so high.`\
+https://nytimes.com/video/world/europe/100000010423796/what-moldova-elections-mean-for-europe.html
+
+**Israelis and Gazans React to U.S. Peace Proposal**\
+`Some Israelis were optimistic and some Palestinians in Gaza were doubtful after President Trump introduced a cease-fire plan for Gaza alongside Prime Minister Benjamin Netanyahu of Israel.`\
+https://nytimes.com/video/world/middleeast/100000010429494/trump-netanyahu-israel-gaza-war.html
+
+**Will the NHL ever return to Quebec City? Dying expansion buzz reflects 'sad reality'**\
+`Quebec City has been without a franchise for 30 years. Their NHL-ready arena is 10 years old. But the NHL is looking elsewhere.`\
+https://nytimes.com/athletic/6668417/2025/09/30/quebec-city-nhl-expansion-ottawa-senators/
+
 **Bears' bye week to-do list: Self-assessment, defining O-line roles, getting healthy**\
 `The Bears' glee Sunday was warranted but requires an asterisk. “Everything feels better when you win. But we have to be truth tellers."`\
 https://nytimes.com/athletic/6674736/2025/09/30/bears-bye-week-to-do-list/

@@ -1,3 +1,15 @@
+**What Elections in Moldova Mean for Europe**\
+`In winning parliamentary elections, Moldova’s incumbent party has kept the country on track to join the European Union, overcoming Russia’s efforts to influence the election. Jeanna Smialek, reporting from Chisinau, explains why the stakes were so high.`\
+https://nytimes.com/video/world/europe/100000010423796/what-moldova-elections-mean-for-europe.html
+
+**Israelis and Gazans React to U.S. Peace Proposal**\
+`Some Israelis were optimistic and some Palestinians in Gaza were doubtful after President Trump introduced a cease-fire plan for Gaza alongside Prime Minister Benjamin Netanyahu of Israel.`\
+https://nytimes.com/video/world/middleeast/100000010429494/trump-netanyahu-israel-gaza-war.html
+
+**Will the NHL ever return to Quebec City? Dying expansion buzz reflects 'sad reality'**\
+`Quebec City has been without a franchise for 30 years. Their NHL-ready arena is 10 years old. But the NHL is looking elsewhere.`\
+https://nytimes.com/athletic/6668417/2025/09/30/quebec-city-nhl-expansion-ottawa-senators/
+
 **Bears' bye week to-do list: Self-assessment, defining O-line roles, getting healthy**\
 `The Bears' glee Sunday was warranted but requires an asterisk. “Everything feels better when you win. But we have to be truth tellers."`\
 https://nytimes.com/athletic/6674736/2025/09/30/bears-bye-week-to-do-list/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6675743/2025/09/30/bengals-loss-mnf-zac-taylor-jake
 **Who is David Bednar? Meet the 'Renegade' closer the Yankees will ride in the playoffs**\
 `After so many doubters along the way, Bednar has found believers in the Bronx and won over his new team with his quiet intensity.`\
 https://nytimes.com/athletic/6669529/2025/09/30/david-bednar-yankees-closer-playoffs/
-
-**Kerry James Marshall’s Paintings Are Looking at You**\
-`In the largest European exhibition to date of work by the American painter, the viewer is anything but a passive spectator.`\
-https://nytimes.com/2025/09/30/arts/design/kerry-james-marshall-royal-academy.html
-
-**MLB wild card watchability: Ranking all 4 playoff series that start Tuesday**\
-`We ranked the national appeal of all four MLB wild-card matchups, from the hectic AL Central to the time-honored Red Sox-Yankees rivalry.`\
-https://nytimes.com/athletic/6673886/2025/09/30/mlb-wild-card-dodgers-yankees-red-sox-cubs-how-to-watch/
-
-**Kings 2025-26 season preview: Playoff chances, projected points, roster rankings**\
-`The star power the Kings have lacked could be on the way, but their position makes it tough to see an easy path to true contender status.`\
-https://nytimes.com/athletic/6668314/2025/09/30/los-angeles-kings-2025-26-season-preview/
 
