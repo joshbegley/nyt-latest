@@ -22,7 +22,7 @@ https://nytimes.com/2025/09/30/us/dallas-ice-shooting-death-miguel-angel-garcia-
 `Unlike Trevor Zegras and Jamie Drysdale before him, McTavish will get time in camp to get up to speed before the season begins.`\
 https://nytimes.com/athletic/6675615/2025/09/30/anaheim-ducks-mason-mctavish-contract-carlsson-quenneville/
 
-**All you need to know about the Lakers, one sentence at a time,,**\
+**All you need to know about the Lakers, one sentence at a time**\
 `EL SEGUNDO, Calif.`\
 https://nytimes.com/athletic/6675629/2025/09/30/lakers-media-day-quotes-nba/
 

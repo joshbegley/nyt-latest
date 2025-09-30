@@ -1,3 +1,7 @@
+**What we learned (and didn't learn) on NBA media day, from Luka to Giannis to Kawhi**\
+`Jokić a Nugget "forever," Giannis' will to win and Kawhi Leonard's "conspiracy" response highlight NBA media days.`\
+https://nytimes.com/athletic/6675855/2025/09/30/nba-media-day-2025-kawhi-leonard-investigation-luka-doncic/
+
 **UK Athletics bans coach for three years over serious misconduct**\
 `The 45-year-old was proven to be guilty of nine charges in total, demonstrating "manipulative and coercive behaviour" to his athletes.`\
 https://nytimes.com/athletic/6676102/2025/09/30/andy-young-athletics-laura-muir-serious-misconduct/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/30/world/europe/russia-budget-military.html
 **South African Ambassador Is Found Dead in Paris**\
 `The ambassador, Nkosinathi Emmanuel Mthethwa, was found outside a hotel on the western edge of the city, a day after his wife reported him missing.`\
 https://nytimes.com/2025/09/30/world/europe/mthethwa-south-africa-ambassador-france-dead.html
-
-**Spaghetti and Chicken Meatball Soup**\
-`Tomato soup meets spaghetti and meatballs in this one-pot, 30-minute crowd-pleaser.`\
-https://nytimes.com/video/dining/100000010366114/spaghetti-and-chicken-meatball-soup.html
 

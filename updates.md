@@ -1,3 +1,7 @@
+**What we learned (and didn't learn) on NBA media day, from Luka to Giannis to Kawhi**\
+`Jokić a Nugget "forever," Giannis' will to win and Kawhi Leonard's "conspiracy" response highlight NBA media days.`\
+https://nytimes.com/athletic/6675855/2025/09/30/nba-media-day-2025-kawhi-leonard-investigation-luka-doncic/
+
 **UK Athletics bans coach for three years over serious misconduct**\
 `The 45-year-old was proven to be guilty of nine charges in total, demonstrating "manipulative and coercive behaviour" to his athletes.`\
 https://nytimes.com/athletic/6676102/2025/09/30/andy-young-athletics-laura-muir-serious-misconduct/
