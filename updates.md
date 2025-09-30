@@ -1,3 +1,11 @@
+**How Many Federal Workers Could Be Furloughed in a Government Shutdown?**\
+`If the government shuts down on Wednesday, hundreds of thousands of workers will be sent home without pay, disrupting a wide range of federal programs. Here’s what we know so far.`\
+https://nytimes.com/interactive/2025/09/30/us/politics/government-shutdown-furloughs.html
+
+**Tracking Tropical Storm Octave**\
+`See the likely path and wind arrival times for Octave`\
+https://nytimes.com/interactive/2025/09/30/weather/octave-map-path-tracker.html
+
 **Nick Sirianni believes A.J. Brown wants to be an Eagle despite cryptic messages**\
 `Brown’s low stat output is not an isolated issue, as the Eagles’ passing offense ranks 31st in the NFL in yards per game with 138.`\
 https://nytimes.com/athletic/6676761/2025/09/30/eagles-nick-sirianni-aj-brown-social/
