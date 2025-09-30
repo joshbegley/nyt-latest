@@ -1,3 +1,7 @@
+**Marilyn Knowlden, Child Actress of 1930s Hollywood, Dies at 99**\
+`A spontaneous screen test led to a career that lasted into her teens. She appeared alongside stars like Bette Davis and Katharine Hepburn, played piano with Chico Marx and danced with Charles Laughton.`\
+https://nytimes.com/2025/09/30/movies/marilyn-knowlden-dead.html
+
 **The Activists and the Anime**\
 `We take a closer look at Gen Z protests raging against the political establishment, from Nepal to Madagascar.`\
 https://nytimes.com/2025/09/30/world/anime-protests-flag-moldova-nepal-indonesia-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6677734/2025/09/30/lawrence-moten-death-syracuse-ba
 **The Briefing: Chelsea 1 Benfica 0 - Wingers offer flashes of quality to spoil Jose Mourinho's latest homecoming**\
 `Chelsea's first home game in the Champions League since April 2023 was won against the Portuguese, though this was rarely comfortable`\
 https://nytimes.com/athletic/6670253/2025/09/30/chelsea-benfica-mourinho-neto-champions-league/
-
-**The Briefing: Bodo/Glimt 2 Tottenham 2 - Spurs show resilience but are they too reliant on Richarlison?**\
-`Bodo/Glimt outplayed Tottenham in their Champions League encounter but Spurs fought back to earn a point`\
-https://nytimes.com/athletic/6670256/2025/09/30/bodo-glimt-2-tottenham-2-briefing/
 
