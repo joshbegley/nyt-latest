@@ -1,13 +1,9 @@
-**U.S. Sues Pro-Palestinian Demonstrators Who Protested Outside Synagogue**\
-`The Justice Department sued participants in a confrontation at a New Jersey synagogue that devolved into violence. An official said there might be more such cases to come.`\
-https://nytimes.com/2025/09/29/nyregion/face-act-palestinian-suit-new-jersey.html
-
 **Iowa Superintendent Arrested by ICE Loses State License and Is Placed on Unpaid Leave**\
 `Immigration officials arrested Ian Roberts, the Des Moines Public Schools superintendent, on Friday and said he was in the country illegally.`\
 https://nytimes.com/2025/09/29/us/des-moines-superintendent-ice-roberts.html
 
-**Government Shutdown Appears Imminent After Trump Meets With Top Lawmakers**\
-`President Trump met with Republican and Democratic leaders at the White House, but they emerged without a deal, as Democrats seek more health care funding.`\
+**Vance Says Federal Government Is Probably ‘Headed Into a Shutdown’**\
+`President Trump met with Republican and Democratic leaders at the White House, but they emerged without a deal.`\
 https://nytimes.com/2025/09/29/us/politics/government-shutdown-trump-vance-congress.html
 
 **Lally Weymouth, Globe-Trotting Reporter and Scion of Graham Family, Dies at 82**\
@@ -18,7 +14,7 @@ https://nytimes.com/2025/09/29/us/politics/lally-weymouth-dead.html
 `Alt could land on injured reserve after suffering a high ankle sprain. Meanwhile, Herbert is taking hits at a record rate. `\
 https://nytimes.com/athletic/6674821/2025/09/29/chargers-joe-alt-injury-offensive-line-struggles/
 
-**Could Guardians prospect Chase DeLauter debut in October? Here's what to expect**\
+**Could Guardians' prospect Chase DeLauter debut in October? Here's what to expect**\
 `Rosters are officially due at 10 a.m. Tuesday, and if the Guardians include DeLauter, he'll make his long-awaited debut in the postseason.`\
 https://nytimes.com/athletic/6674832/2025/09/29/cleveland-guardians-prospect-chase-delauter-october-debut-primer/
 
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6675019/2025/09/29/texas-tech-vs-houston-stream-how
 **How to watch Mississippi State at Texas A&M: Time, TV, streaming**\
 `Find out how to watch the Mississippi State Bulldogs play the Texas A&M Aggies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6675016/2025/09/29/mississippi-state-vs-texas-a-m-stream-how-to-watch-oct-4/
+
+**How to watch Kent State at Oklahoma: Time, TV, streaming**\
+`Find out how to watch the Kent State Golden Flashes play the Oklahoma Sooners, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6675012/2025/09/29/kent-state-vs-oklahoma-stream-how-to-watch-oct-4/
 
