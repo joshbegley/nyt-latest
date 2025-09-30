@@ -1,3 +1,7 @@
+**The Penguins ... in dead last? Plus: Send us your 'dumb' questions**\
+`Good morning to everyone except that one GM in your fantasy league who’s being difficult about when they can draft.`\
+https://nytimes.com/athletic/6676402/2025/09/30/red-light-nhl-newsletter-penguins-no-dumb-questions/
+
 **The Bounce: What to know from media days + previewing the Pelicans, Nets**\
 `Breaking down the most interesting things we saw and heard Monday.`\
 https://nytimes.com/athletic/6676403/2025/09/30/pelicans-nets-preview-nba-media-days/
@@ -33,8 +37,4 @@ https://nytimes.com/newsgraphics/card-story/5-fall-rail-trips-in-europe
 **Wild extend Kirill Kaprizov with 8-year, $136 million deal — NHL's richest ever**\
 `Kaprizov, 28, was a year away from unrestricted free agency, and the Wild made it a priority to get him signed as soon as he was eligible.`\
 https://nytimes.com/athletic/6443469/2025/09/30/wild-kirill-kaprizov-extension/
-
-**gws-choco-taco-ice-cream**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/choco-taco-ice-cream
 

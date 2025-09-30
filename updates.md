@@ -1,3 +1,19 @@
+**The Bounce: What to know from media days + previewing the Pelicans, Nets**\
+`Breaking down the most interesting things we saw and heard Monday.`\
+https://nytimes.com/athletic/6676403/2025/09/30/pelicans-nets-preview-nba-media-days/
+
+**gws-slovenia-road-trip**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/slovenia-road-trip
+
+**Chris Koras, head for Klutch Sports baseball, suddenly resigns: Sources**\
+`Klutch's list of clients includes Rafael Devers, Devin Williams, Andrés Giménez, Gabriel Moreno, Starling Marte and Freddy Peralta.`\
+https://nytimes.com/athletic/6673777/2025/09/30/klutch-sports-chris-koras-resigns/
+
+**Wild extend Kirill Kaprizov with 8-year, $136 million deal — NHL's richest ever**\
+`Kaprizov, 28, was a year away from unrestricted free agency, and the Wild made it a priority to get him signed as soon as he was eligible.`\
+https://nytimes.com/athletic/6443469/2025/09/30/wild-kirill-kaprizov-extension/
+
 **gws-chappell-roan-damsels-dangerous-things-tour**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/chappell-roan-damsels-dangerous-things-tour
