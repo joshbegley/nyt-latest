@@ -1,3 +1,7 @@
+**Trump Refers to Racial Slur During Address to the Military**\
+`“There are two n-words, and you can’t use either of them,” the president said, after saying the word nuclear was not one to “throw around.”`\
+https://nytimes.com/2025/09/30/us/politics/trump-racial-slur-military-speech.html
+
 **Brock Purdy questionable for Thursday vs. Rams due to toe soreness, 49ers optimistic**\
 `Purdy missed two weeks with the toe injury before returning Sunday against the Jaguars.`\
 https://nytimes.com/athletic/6674640/2025/09/30/brock-purdy-injury-toe-rams/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/30/us/politics/trump-documents-case-report.html
 **Three Great Documentaries to Stream**\
 `In this month’s picks, a sharp portrait of a political leader, an intriguing essay film from a renowned novelist and a sensitive look at the impact a gamer had on the lives of his friends.`\
 https://nytimes.com/2025/09/30/movies/documentaries-streaming.html
-
-**Canada World Cup squad coming into view with October roster**\
-`Marsch is leaning on players he knows and can trust against Australia and Colombia.`\
-https://nytimes.com/athletic/6674527/2025/09/30/canada-roster-october-friendlies-colombia-australia-marsch/
 
