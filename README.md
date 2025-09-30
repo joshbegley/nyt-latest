@@ -1,8 +1,16 @@
+**Until Saturday: Petrino shenanigans timeline, updated**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6677050/2025/09/30/bobby-petrino-history-until-saturday/
+
+**CELLRESEARCH ADPOST Q3 25 #2.1**\
+`CELLRESEARCH ADPOST Q3 25 #2.1`\
+https://nytimes.com/paidpost/cellresearch-adpost-q3-25-22/cellresearch-adpost-q3-25-21/cellresearch-adpost-q3-25-21.html
+
 **NFL MVP odds: Lamar Jackson injury shakes up the race**\
 `Josh Allen is the clear favorite, but the contenders are shuffling.`\
 https://nytimes.com/athletic/6676972/2025/09/30/nfl-mvp-odds-josh-allen-lamar-jackson-injury/
 
-**Ali Riley: Angel City, New Zealand captain announces retirement**\
+**Angel City, New Zealand captain Ali Riley announces retirement**\
 `The 37-year-old defender will call time on a career that spanned nearly two decades.`\
 https://nytimes.com/athletic/6676777/2025/09/30/ali-riley-angel-city-new-zealand-retirement/
 
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/09/30/us/warren-letter-930.html
 **Submit your questions for Mike DeFabo's Steelers mailbag**\
 `Pittsburgh heads into the bye week after an impressive win over the Vikings in Dublin.`\
 https://nytimes.com/athletic/6676986/2025/09/30/steelers-mailbag-ireland-game/
-
-**Breaking Down the Mayor’s Race After Adams’s Exit**\
-`Plus, what elected officials from across the country have to say about the race.`\
-https://nytimes.com/2025/09/30/nyregion/nyc-mayor-adams-mamdani.html
-
-**The ideal first-round picks for your fantasy hockey draft**\
-`Here's how to fill out your fantasy hockey roster with the choicest of first-round choices, based on your scoring format.`\
-https://nytimes.com/athletic/6675506/2025/09/30/fantasy-hockey-best-first-round-picks/
 

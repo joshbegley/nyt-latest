@@ -1,3 +1,15 @@
+**NFL MVP odds: Lamar Jackson injury shakes up the race**\
+`Josh Allen is the clear favorite, but the contenders are shuffling.`\
+https://nytimes.com/athletic/6676972/2025/09/30/nfl-mvp-odds-josh-allen-lamar-jackson-injury/
+
+**Ali Riley: Angel City, New Zealand captain announces retirement**\
+`The 37-year-old defender will call time on a career that spanned nearly two decades.`\
+https://nytimes.com/athletic/6676777/2025/09/30/ali-riley-angel-city-new-zealand-retirement/
+
+**Critical fantasy football insights for Week 5: Who's the next Woody Marks?**\
+`Brandon Funston and Jess Bryant look at year-to-date and weekly usage to help you with Week 5 lineup decisions.  `\
+https://nytimes.com/athletic/6673681/2025/09/30/fantasy-football-usage-week-5/
+
 **‘Distressing’ Uses of the President’s Power**\
 `Readers respond to an editorial about President Trump’s troubling use of executive power in the Venezuelan boat strikes. Also: Social Security woes; the importance of Black colleges.`\
 https://nytimes.com/2025/09/30/opinion/trump-venezuela-boat-attacks.html
@@ -6,7 +18,7 @@ https://nytimes.com/2025/09/30/opinion/trump-venezuela-boat-attacks.html
 `The Bills are gaining separation as the favorite to win the Super Bowl while the Chiefs made a move this week.`\
 https://nytimes.com/athletic/6676861/2025/09/30/super-bowl-odds-bills-chiefs-eagles/
 
-**Discontent Has Put Democracy in Jeopardy**\
+**Democracy and Its Discontents**\
 `Experts at the Athens Democracy Forum this week will explore the challenges to democracy, from artificial intelligence and subversion to complacency and inequality.`\
 https://nytimes.com/2025/09/30/world/europe/democracy-athens-forum-discontent.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/30/nyregion/nyc-mayor-adams-mamdani.html
 **The ideal first-round picks for your fantasy hockey draft**\
 `Here's how to fill out your fantasy hockey roster with the choicest of first-round choices, based on your scoring format.`\
 https://nytimes.com/athletic/6675506/2025/09/30/fantasy-hockey-best-first-round-picks/
-
-**Deadlock Grows Uglier as Congress Heads Toward Shutdown**\
-`President Trump’s posting of a deepfake video mocking and insulting the top two Democrats in Congress underscored the lack of progress toward any deal to extend funding.`\
-https://nytimes.com/2025/09/30/us/politics/government-shutdown-deadlock.html
-
-**OfCorsica! (Pun Intended) Is a Vacation That Became a Restaurant**\
-`Miru opens above City Winery on Pier 57, Bar Lumière finally sees the light of day and more restaurant news.`\
-https://nytimes.com/2025/09/30/dining/nyc-restaurant-news.html
-
-**A Novice Defense Secretary Lectures the Brass on What It Takes to Win**\
-`Senior officers, summoned from around the world, are entrusted to manage complex military operations. They got a lecture on fitness and grooming standards.`\
-https://nytimes.com/2025/09/30/us/politics/hegseth-military-officers.html
 
