@@ -1,3 +1,5 @@
+
+
 **Coco Gauff and Belinda Bencic clash over 'mind games' at China Open**\
 `The incident was forgotten by the end of the match, with Gauff saying “she's entitled to how she felt and I'm entitled to how I respond.”`\
 https://nytimes.com/athletic/6676022/2025/09/30/coco-gauff-belinda-bencic-row-china-open/
