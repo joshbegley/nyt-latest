@@ -1,3 +1,27 @@
+**Breaking down the positives from Nuno Espirito Santo's first game in charge of West Ham**\
+`Nuno's first outing as West Ham head coach saw his team buck the trend as they came back from a goal down `\
+https://nytimes.com/athletic/6674041/2025/09/30/west-ham-nuno-everton-diouf-summerville-potts/
+
+**After Vesuvius Buried Pompeii, Some Survivors Moved Back In**\
+`As many as 30,000 Romans fled the ruined region in A.D. 79. But some returned, a new study reveals, and the city limped on as a fragile, ashen shantytown.`\
+https://nytimes.com/2025/09/30/science/archaeology-vesuvius-pompeii.html
+
+**How a Real Estate Story Became One About Betrayal of a Community**\
+`A real estate editor assigned a reporter a quirky story on a colorful home in Queens. Then a criminal case turned up.`\
+https://nytimes.com/2025/09/30/insider/queens-house-scam-fraud.html
+
+**The Best-Dressed Place in the World?**\
+`During Milan Fashion Week, an electric mix of faces, clothes and ideas advanced the city’s reputation as a destination with unrivaled style.`\
+https://nytimes.com/2025/09/30/style/milan-fashion-week-photos.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/09/30/crosswords/spelling-bee-forum.html
+
+**Eric Adams’s Campaign Is Over. His Campaign Finance Problems Are Not.**\
+`City regulators are focusing on potential fund-raising irregularities that could result in the clawback of $10 million from Mr. Adams’s 2021 mayoral campaign.`\
+https://nytimes.com/2025/09/30/nyregion/eric-adams-campaign-finance.html
+
 **Klopp: Why I don't miss coaching, my fears for football and a new life at Red Bull**\
 `Exclusive: The ex-Liverpool manager gives his most extensive interview since starting his new role with Red Bull`\
 https://nytimes.com/athletic/6669213/2025/09/30/jurgen-klopp-liverpool-interview-red-bull/
@@ -13,28 +37,4 @@ https://nytimes.com/video/world/africa/100000010429450/madagascar-government.htm
 **How to watch Reds at Dodgers: Game 1 Time, TV, streaming**\
 `Find out how to watch the Cincinnati Reds play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6675715/2025/09/30/reds-vs-dodgers-stream-how-to-watch-sept-30/
-
-**Word of the Day: permutation**\
-`This word has appeared in 17 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/09/30/learning/word-of-the-day-permutation.html
-
-**The Briefing: Everton 1 West Ham 1: Sluggishness exposed, Dewsbury-Hall blow but Garner shines**\
-`Patrick Boyland breaks down the main talking points from Everton's 1-1 draw with West Ham`\
-https://nytimes.com/athletic/6674829/2025/09/30/everton-1-west-ham-1-dewsbury-hall-garner/
-
-**The New York Times in Print for Tuesday, Sep. 30, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/09/30/todays-new-york-times
-
-**U.S. Deports Planeload of Iranians After Deal With Tehran, Officials Say**\
-`The deportation flight to Iran is the most stark push yet by the Trump administration to deport migrants even to places with harsh human rights conditions.`\
-https://nytimes.com/2025/09/30/world/middleeast/us-iran-deportation-flight.html
-
-**As Jonathan Kuminga deadline nears, Jimmy Butler offers experience and advice**\
-`Butler, drawing from experience with his own contract disputes, can empathize with Kuminga's tough situation. `\
-https://nytimes.com/athletic/6675456/2025/09/30/jimmy-butler-jonathan-kuminga-media-day/
-
-**Inside Newcastle Q&A: Where are the goals coming from? Any January signings?**\
-`Chris Waugh answers the most pressing questions from Newcastle fans`\
-https://nytimes.com/athletic/6672687/2025/09/30/inside-newcastle-qa-where-are-the-goals-coming-from-any-january-signings/
 
