@@ -1,3 +1,7 @@
+**As SCORE Act regains momentum, Senate critics launch new college sports bill**\
+`Just as college sports' most vocal skeptics of the SCORE Act decided to pledge their support for the bill, another bill is being introduced.`\
+https://nytimes.com/athletic/6674856/2025/09/29/college-sports-bills-congress-score-safe-act/
+
 **U.S. Sues Pro-Palestinian Demonstrators Who Protested Outside Synagogue**\
 `The Justice Department sued participants in a confrontation at a New Jersey synagogue that devolved into violence. An official said there might be more such cases to come.`\
 https://nytimes.com/2025/09/29/nyregion/face-act-palestinian-suit-new-jersey.html
@@ -6,7 +10,7 @@ https://nytimes.com/2025/09/29/nyregion/face-act-palestinian-suit-new-jersey.htm
 `Immigration officials arrested Ian Roberts, the Des Moines Public Schools superintendent, on Friday and said he was in the country illegally.`\
 https://nytimes.com/2025/09/29/us/des-moines-superintendent-ice-roberts.html
 
-**Government Shutdown Appears Imminent After Trump Meets With Top Lawmakers**\
+**Trump’s Meeting With Democrats Yields No Progress, With Shutdown a Day Away**\
 `President Trump met with Republican and Democratic leaders at the White House, but they emerged without a deal, as Democrats seek more health care funding.`\
 https://nytimes.com/2025/09/29/us/politics/government-shutdown-trump-vance-congress.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6675026/2025/09/29/miami-fl-vs-florida-state-stream
 **How to watch Texas Tech at Houston: Time, TV, streaming**\
 `Find out how to watch the Texas Tech Red Raiders play the Houston Cougars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6675019/2025/09/29/texas-tech-vs-houston-stream-how-to-watch-oct-4/
-
-**How to watch Mississippi State at Texas A&M: Time, TV, streaming**\
-`Find out how to watch the Mississippi State Bulldogs play the Texas A&M Aggies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6675016/2025/09/29/mississippi-state-vs-texas-a-m-stream-how-to-watch-oct-4/
 

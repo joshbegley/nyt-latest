@@ -1,3 +1,11 @@
+**As SCORE Act regains momentum, Senate critics launch new college sports bill**\
+`Just as college sports' most vocal skeptics of the SCORE Act decided to pledge their support for the bill, another bill is being introduced.`\
+https://nytimes.com/athletic/6674856/2025/09/29/college-sports-bills-congress-score-safe-act/
+
+**Trump’s Meeting With Democrats Yields No Progress, With Shutdown a Day Away**\
+`President Trump met with Republican and Democratic leaders at the White House, but they emerged without a deal, as Democrats seek more health care funding.`\
+https://nytimes.com/2025/09/29/us/politics/government-shutdown-trump-vance-congress.html
+
 **U.S. Sues Pro-Palestinian Demonstrators Who Protested Outside Synagogue**\
 `The Justice Department sued participants in a confrontation at a New Jersey synagogue that devolved into violence. An official said there might be more such cases to come.`\
 https://nytimes.com/2025/09/29/nyregion/face-act-palestinian-suit-new-jersey.html
