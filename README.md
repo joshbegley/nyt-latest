@@ -1,3 +1,11 @@
+**Jets-Dolphins takeaways: Miami secures first win, Tyreek Hill injured**\
+`The Jets drop to 0-4 ahead of their Week 5 matchup against the Dallas Cowboys, while the 1-3 Dolphins take on the Carolina Panthers.`\
+https://nytimes.com/athletic/6675068/2025/09/29/jets-dolphins-score-result-takeaways-monday-night-football/
+
+**Trump Officials Flesh Out Tariffs on Kitchen Cabinets, Furniture and Timber**\
+`The White House set a relatively low tariff on imports of timber and lumber, and a significantly higher tariff on furniture and kitchen cabinets.`\
+https://nytimes.com/2025/09/29/business/economy/tariffs-cabinets-furniture-lumber-trump.html
+
 **College Football Playoff 2025 projections: Oregon, Ole Miss, Alabama rising after big wins**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/09/29/college-football-playoff-bracket-projections-odds/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6675276/2025/09/29/texas-rangers-bruce-bochy-part-w
 **‘Punch’ Review: After a Fatal Blow, an Unlikely Connection**\
 `James Graham’s Broadway play tells the true story of how restorative justice brought together a young man who threw a fatal punch and the parents of the victim.`\
 https://nytimes.com/2025/09/29/theater/punch-review-james-graham.html
-
-**Giannis endorses Bucks' offseason makeover, opens up on summer mindset**\
-`Regarding his future, the two-time MVP was clear: "I want to compete with the best, and I want to win another championship."`\
-https://nytimes.com/athletic/6674312/2025/09/29/giannis-antetokounmpo-bucks-future-nba-media-day/
-
-**Weekly Student News Quiz: Bad Bunny, Typhoon, Broadway**\
-`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2025/09/29/learning/30StudentNewsQuizLN.html
 
