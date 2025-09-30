@@ -1,3 +1,23 @@
+**Lionel Richie Tells the Whole Story**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/truly-lionel-richie
+
+**Mets must revise their thinking on rotation, defense to avoid mistakes of 2025**\
+`The Mets clearly need change, but not in a knee-jerk kind of way. Their future requires hard decisions.`\
+https://nytimes.com/athletic/6675105/2025/09/30/mets-david-stearns-carlos-mendoza/
+
+**College Football Playoff odds: 9 teams currently favored to make 12-team field**\
+`After a number of big games last week, the odds to win the national title only saw minor movement, but playoff odds were more volatile.`\
+https://nytimes.com/athletic/6674035/2025/09/30/college-football-playoff-odds-alabama-ole-miss-oregon/
+
+**The Protection True Whitaker Wears Around Her Neck**\
+`A collection of rosaries and cross necklaces keeps Ms. Whitaker, a star of the upcoming HBO series “I Love LA,” connected to her late mother.`\
+https://nytimes.com/2025/09/30/style/the-protection-true-whitaker-wears-around-her-neck.html
+
+**What I'm hearing about the Canucks' final roster decisions, trade plans and more**\
+`Here's some of what we're hearing about the Canucks as we enter the final week of the NHL preseason slate.`\
+https://nytimes.com/athletic/6674005/2025/09/30/canucks-roster-cootes-hoglander-trade/
+
 **With a heavy heart, Naz Reid returns to the Timberwolves and the normalcy they provide**\
 `On media day, the Wolves forward was sitting for his first interview since the end of last season and there was a heaviness in the room.`\
 https://nytimes.com/athletic/6675597/2025/09/30/imberwolves-naz-reid-nba-media-day/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6675282/2025/09/30/clippers-media-day-kawhi-leonard
 **Giants found their blueprint for success vs. Chargers, but is it repeatable?**\
 `The pass rush will need to carry the Giants and hope Jaxson Dart's offense, now without Malik Nabers, can do enough to grind out victories.`\
 https://nytimes.com/athletic/6675604/2025/09/30/ny-giants-pass-rush-brian-burns-jaxson-dart-blueprint/
-
-**Near a Garden Where Popes Go to Pray, Leo Plans to Speak on Climate**\
-`The address comes 10 years after his predecessor’s groundbreaking statement on global warming. His words will be watched for signals on the direction of the new papacy.`\
-https://nytimes.com/2025/09/30/climate/pope-leo-climate-speech-laudato-si.html
-
-**What we've learned about the Commanders: The good, the bad and everything in between**\
-`Before the Commanders head to L.A. to take on Justin Herbert and the Chargers in Week 5, it’s worth zooming out on their start to 2025.`\
-https://nytimes.com/athletic/6676266/2025/09/30/washington-commanders-stock-report/
-
-**Fantasy football Week 5 drops: Moving on from Nick Chubb, Calvin Ridley and more**\
-`Gary Davenport sees the writing on the wall for Nick Chubb in Houston as he's one his players to drop ahead of Week 5.`\
-https://nytimes.com/athletic/6675643/2025/09/30/fantasy-football-week-5-drops/
-
-**How Shutdown Gridlock Could Impede Disaster Preparedness**\
-`Turmoil in Washington is distracting from efforts to fix a flood insurance gap and replenish a key disaster relief fund.`\
-https://nytimes.com/2025/09/30/climate/government-shutdown-disaster-preparedness-floods.html
-
-**Golf legend Tom Watson ‘ashamed’ of American fan hostility at Ryder Cup**\
-`Watson played in four Ryder Cups during his career and was a two-time captain for the American team in 1993 and 2014.`\
-https://nytimes.com/athletic/6676307/2025/09/30/ryder-cup-tom-watson-ashamed-america-verbal-abuse/
 
