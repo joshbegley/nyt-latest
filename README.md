@@ -6,8 +6,8 @@ https://nytimes.com/video/us/politics/100000010431419/us-government-shutdown.htm
 `Hugo Ekitike also came off injured against Galatasaray but Slot said he could be fit for Saturday’s trip to Stamford Bridge`\
 https://nytimes.com/athletic/6677931/2025/09/30/liverpool-news-alisson-ekitike-injury-update/
 
-**Thomas Perry, Novelist of Unconventional Thrillers, Dies at 78**\
-`His 32 books, including “The Butcher’s Boy” and the Jane Whitefield series, can have readers rooting for both protagonist and antagonist.`\
+**Thomas Perry Dies at 78; Writer of Popular, Unconventional Thrillers**\
+`His many novels, including the prizewinning “The Butcher’s Boy” and the Jane Whitefield series, can have readers rooting for both protagonist and antagonist.`\
 https://nytimes.com/2025/09/30/books/thomas-perry-dead.html
 
 **Trump Gave the Military’s Brass a Rehashed Speech. Until Minute 44.**\

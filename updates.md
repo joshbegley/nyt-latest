@@ -1,3 +1,15 @@
+**Republicans and Democrats Trade Blame as Shutdown Looms**\
+`The federal government barreled toward a shutdown on Tuesday ahead of a midnight deadline, as President Trump and Republicans in Congress remained deadlocked with Democrats in a spending standoff.`\
+https://nytimes.com/video/us/politics/100000010431419/us-government-shutdown.html
+
+**Slot rules Liverpool goalkeeper Alisson out of Chelsea game**\
+`Hugo Ekitike also came off injured against Galatasaray but Slot said he could be fit for Saturday’s trip to Stamford Bridge`\
+https://nytimes.com/athletic/6677931/2025/09/30/liverpool-news-alisson-ekitike-injury-update/
+
+**Thomas Perry, Novelist of Unconventional Thrillers, Dies at 78**\
+`His 32 books, including “The Butcher’s Boy” and the Jane Whitefield series, can have readers rooting for both protagonist and antagonist.`\
+https://nytimes.com/2025/09/30/books/thomas-perry-dead.html
+
 **Trump Gave the Military’s Brass a Rehashed Speech. Until Minute 44.**\
 `On an almost daily basis, thousands of words pour forth from the president’s mouth. Sometimes, he tucks in a wildly revealing insight about the direction he is taking the country.`\
 https://nytimes.com/2025/09/30/us/politics/trump-military-brass-speech.html
