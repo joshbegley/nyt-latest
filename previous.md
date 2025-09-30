@@ -1,3 +1,15 @@
+**Harvard Blasts Administration Over ‘Inaccurate’ Civil Rights Investigation**\
+`The Sept. 19 letter came days before the Department of Health and Human Services started the process of cutting off federal funds to the university.`\
+https://nytimes.com/2025/09/30/us/politics/harvard-response-trump.html
+
+**'Worst leadership in the world': Lynx star Napheesa Collier calls out WNBA commissioner**\
+`Collier was injured in the WNBA semifinals on a play that infuriated Lynx coach Cheryl Reeve, who was fined and suspended.`\
+https://nytimes.com/athletic/6677183/2025/09/30/napheesa-collier-lynx-cathy-engelbert-wnba-leadership/
+
+**Angels will seek new manager for 2026; Ron Washington's option not picked up**\
+`Interim manager Ray Montgomery won't be retained as manager but could remain in the organization in a different capacity.`\
+https://nytimes.com/athletic/6677176/2025/09/30/los-angeles-angels-manager-ron-washington-ray-montgomery/
+
 **11 Classic Paul Thomas Anderson Needle Drops**\
 `Hear songs from “One Battle After Another,” “Inherent Vice” and several of the director’s other films.`\
 https://nytimes.com/2025/09/30/arts/music/amplifier-newsletter-paul-thomas-anderson.html
@@ -11,7 +23,7 @@ https://nytimes.com/2025/09/30/world/africa/congo-president-kabila-sentenced-to-
 https://nytimes.com/2025/09/30/world/asia/trump-afghanistan-hostages.html
 
 **Upon Further Review: Lions run game vs. Browns front was NFL's best chess match**\
-`One of Sunday’s most exciting clashes was the chess match between the Detroit Lions' run game and the Cleveland Browns' defensive front.`\
+`Robert Mays and Derrik Klassen of "The Athletic Football Show" dive into the battle that defined the Cleveland-Detroit matchup in Week 4.`\
 https://nytimes.com/athletic/6675667/2025/09/30/upon-further-review-lions-run-game-browns-front-chess-match/
 
 **Trump and Pfizer Announce Deal to Lower Some Medicaid Drug Prices**\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/30/world/democracy-forum-athens-freedom-of-speech.ht
 **Bobby Cain, Barrier Breaker in School Desegregation, Dies at 85**\
 `In 1957, facing down white mobs, he became the first Black student to graduate from a public high school in the South under a court mandate.`\
 https://nytimes.com/2025/09/30/us/bobby-cain-dead.html
-
-**What does A.J. Brown want? Making sense of the Eagles WR's cryptic tweet**\
-`The receiver has had limited production in three of the Eagles’ first four games. It would make sense if Brown wants better production.`\
-https://nytimes.com/athletic/6676879/2025/09/30/eagles-aj-brown-tweet-contract-trade/
-
-**Governor Wants National Guard Troops Deployed in Louisiana**\
-`Gov. Jeff Landry’s request to the Trump administration highlights how Republican-led states are embracing the president’s push to use the Guard to crack down on crime.`\
-https://nytimes.com/2025/09/30/us/politics/jeff-landry-louisiana-national-guard.html
-
-**Scoop City: Five takeaways ahead of Week 5**\
-`Was choosing J.J. McCarthy over Sam Darnold a mistake? Do the Browns field the league's best defense? Unpacking five trends. `\
-https://nytimes.com/athletic/6677054/2025/09/30/five-nfl-takeaways-week-5-fantasy-football-waivers-scoop-city/
 
