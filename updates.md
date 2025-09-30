@@ -1,3 +1,11 @@
+**‘Distressing’ Uses of the President’s Power**\
+`Readers respond to an editorial about President Trump’s troubling use of executive power in the Venezuelan boat strikes. Also: Social Security woes; the importance of Black colleges.`\
+https://nytimes.com/2025/09/30/opinion/trump-venezuela-boat-attacks.html
+
+**Letter From Senator Warren and Representative Waters**\
+`Elizabeth Warren letter to Chairman Scott and Chairman Hill`\
+https://nytimes.com/interactive/2025/09/30/us/warren-letter-930.html
+
 **Super Bowl odds: Buffalo builds sizable lead while the second tier shrinks**\
 `The Bills are gaining separation as the favorite to win the Super Bowl while the Chiefs made a move this week.`\
 https://nytimes.com/athletic/6676861/2025/09/30/super-bowl-odds-bills-chiefs-eagles/
