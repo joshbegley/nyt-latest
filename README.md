@@ -1,3 +1,7 @@
+**Trump’s Plan to End the War in Gaza**\
+`We look at Trump’s plan and American public opinion polls on the war.`\
+https://nytimes.com/2025/09/30/briefing/trumps-plan-to-end-the-war-in-gaza.html
+
 **What We Know About ChatGPT’s New Parental Controls**\
 `OpenAI said parents can set time and content limits on accounts, and receive notifications if ChatGPT detects signs of potential self-harm.`\
 https://nytimes.com/2025/09/30/technology/chatgpt-teen-parental-controls-openai.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6668417/2025/09/30/quebec-city-nhl-expansion-ottawa
 **Bears' bye week to-do list: Self-assessment, defining O-line roles, getting healthy**\
 `The Bears' glee Sunday was warranted but requires an asterisk. “Everything feels better when you win. But we have to be truth tellers."`\
 https://nytimes.com/athletic/6674736/2025/09/30/bears-bye-week-to-do-list/
-
-**Pistons media day: Cade Cunningham's aspirations, no restrictions on Jaden Ivey**\
-`Cunningham and the Detroit Pistons are ready to move on from last season's success and take the next step in their development. `\
-https://nytimes.com/athletic/6675315/2025/09/30/pistons-media-day-cade-cunningham-nba-2025/
 
