@@ -1,3 +1,11 @@
+**Astros takeaways: An uncertain future for Dana Brown, injury missteps, addressing the offense**\
+`Brown refused to confirm a report that his option for 2026 hadn't been picked up. Injury recovery and impatience at the plate remain issues.`\
+https://nytimes.com/athletic/6677287/2025/09/30/astros-end-of-season-dana-brown-injuries/
+
+**Slot explains Salah omission against Galatasaray: 'We have to utilise our squad'**\
+`Salah, 33, was named on the bench for the league phase fixture in Istanbul`\
+https://nytimes.com/athletic/6677249/2025/09/30/mohamed-salah-liverpool-galatasaray-slot/
+
 **How the Wild got Kirill Kaprizov's extension over the finish line: Exclusive with Craig Leipold**\
 `The Wild owner called it "a big day" for his franchise but also said it won't be the end of the team's work in building a true contender.`\
 https://nytimes.com/athletic/6677224/2025/09/30/kirill-kaprizov-wild-extension-craig-leipold-exclusive/
@@ -14,7 +22,7 @@ https://nytimes.com/2025/09/30/us/beer-kegs-crash-california-freeway.html
 `Hundreds of Democrats showed up in the House chamber for a routine session, seeking to highlight the absence of Republicans as a government funding deadline loomed.`\
 https://nytimes.com/2025/09/30/us/politics/democrats-shutdown-house.html
 
-**MLB Playoff Format: Bracket, Wild Card Series, Best-of Structure**\
+**MLB playoff format: Bracket, Wild Card Series, best-of structure**\
 `MLB unveiled a new postseason format in 2022 to make the playoffs more interesting for teams hoping to make a deep run.`\
 https://nytimes.com/athletic/6676759/2025/09/30/mlb-playoffs-format-bracket-wild-card-series-best-of-structure/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6677016/2025/09/30/fantasy-football-market-share-we
 **NBC, YouTube TV dispute approaches midnight deadline ahead of football slate**\
 `An extended blackout would mean no "Sunday Night Football" for YouTube TV subscribers, who would also miss Ohio State and Notre Dame games.`\
 https://nytimes.com/athletic/6676971/2025/09/30/nbc-youtube-tv-sports-blackout-potential/
-
-**Beer Cans and Kegs Spill Onto California Highway After Crash**\
-`A multivehicle collision caused beer cans and kegs to spill onto a freeway about 20 miles northeast of downtown Los Angeles, snarling traffic during the morning commute.`\
-https://nytimes.com/video/us/100000010430779/beer-spill-highway.html
-
-**Broncos' Sean Payton supports tush push ahead of matchup with Eagles**\
-`Payton expressed admiration for what he calls "a well-run quarterback sneak."`\
-https://nytimes.com/athletic/6677210/2025/09/30/broncos-sean-payton-tush-push-eagles/
 
