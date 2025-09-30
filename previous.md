@@ -1,3 +1,7 @@
+**Rescuers in Indonesia Race to Save Students Trapped by Deadly School Collapse**\
+`At least 30 students were missing after an Islamic boarding school collapsed during a prayer service, killing at least three children.`\
+https://nytimes.com/2025/09/30/world/asia/students-trapped-indonesia-school-collapse.html
+
 **Breaking down the positives from Nuno Espirito Santo's first game in charge of West Ham**\
 `Nuno's first outing as West Ham head coach saw his team buck the trend as they came back from a goal down `\
 https://nytimes.com/athletic/6674041/2025/09/30/west-ham-nuno-everton-diouf-summerville-potts/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/30/arts/television/stephen-colbert-oregon-war.html
 **Madagascar’s President Dissolves Government**\
 `President Andry Rajoelina of Madagascar dissolved the government on Monday amid deadly youth-led protests that have been sparked by power outages and water shortages.`\
 https://nytimes.com/video/world/africa/100000010429450/madagascar-government.html
-
-**How to watch Reds at Dodgers: Game 1 Time, TV, streaming**\
-`Find out how to watch the Cincinnati Reds play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6675715/2025/09/30/reds-vs-dodgers-stream-how-to-watch-sept-30/
 
