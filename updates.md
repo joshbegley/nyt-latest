@@ -1,3 +1,7 @@
+**Explaining a Democratic Talking Point About the Shutdown**\
+`Democrats have misused budget jargon to assail the Republican budget proposal as “dirty,” but the bill is considered “clean.”`\
+https://nytimes.com/2025/09/30/us/politics/democrats-government-shutdown-healthcare.html
+
 **Jonathan Kuminga agrees to 2-year, $48.5 million deal with Warriors: Sources**\
 `The deal with the Warriors ends the protracted standoff over the 22-year-old restricted free agent's immediate future. `\
 https://nytimes.com/athletic/6535175/2025/09/30/jonathan-kuminga-warriors-contract-nba-2025/

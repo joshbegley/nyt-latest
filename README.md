@@ -1,3 +1,23 @@
+**How to watch Lions at Bengals: Time, TV, streaming**\
+`Find out how to watch the Detroit Lions play the Cincinnati Bengals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6678127/2025/09/30/lions-vs-bengals-stream-how-to-watch-oct-5/
+
+**How to watch Buccaneers at Seahawks: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Buccaneers play the Seattle Seahawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6678119/2025/09/30/buccaneers-vs-seahawks-stream-how-to-watch-oct-5/
+
+**How to watch Commanders at Chargers: Time, TV, streaming**\
+`Find out how to watch the Washington Commanders play the Los Angeles Chargers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6678111/2025/09/30/commanders-vs-chargers-stream-how-to-watch-oct-5/
+
+**Morgan Stanley Scores an Easier ‘Stress Test’ From the Fed**\
+`The investment bank had appealed more stringent oversight in dreaded annual exams, and the Federal Reserve agreed.`\
+https://nytimes.com/2025/09/30/business/morgan-stanley-stress-test-fed.html
+
+**How to watch Titans at Cardinals: Time, TV, streaming**\
+`Find out how to watch the Tennessee Titans play the Arizona Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6678109/2025/09/30/titans-vs-cardinals-stream-how-to-watch-oct-5/
+
 **Explaining a Democratic Talking Point About the Shutdown**\
 `Democrats have misused budget jargon to assail the Republican budget proposal as “dirty,” but the bill is considered “clean.”`\
 https://nytimes.com/2025/09/30/us/politics/democrats-government-shutdown-healthcare.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6677947/2025/09/30/lebron-james-sits-lakers-practic
 **Robert Saleh walks back Jaguars 'signal stealing' comments**\
 `"In my heart, I genuinely was trying to give a compliment," Saleh said.`\
 https://nytimes.com/athletic/6677888/2025/09/30/liam-coen-robert-saleh-49ers-jaguars/
-
-**Journalist Injured in Chaotic Scene at New York Immigration Court**\
-`A Turkish journalist was taken away on a stretcher and taken to the hospital after U.S. agents shoved another journalist.`\
-https://nytimes.com/2025/09/30/nyregion/journalist-injured-immigration-courthouse.html
-
-**Federal Agents Shove Journalists at Manhattan Courthouse**\
-`A journalist was injured after an incident between federal agents and journalists at a Manhattan immigration courthouse on Tuesday. The Department of Homeland Security said that the journalists “obstructed operations.”`\
-https://nytimes.com/video/nyregion/newyorktoday/100000010431329/federal-agents-shove-journalists-at-manhattan-courthouse.html
-
-**Long Covid Risk for Children Doubles After a Second Infection, Study Finds**\
-`The new research provides evidence that Covid reinfections can increase the risk of long-term health consequences.`\
-https://nytimes.com/2025/09/30/health/long-covid-children.html
-
-**Republicans and Democrats Trade Blame as Shutdown Looms**\
-`The federal government barreled toward a shutdown on Tuesday ahead of a midnight deadline, as President Trump and Republicans in Congress remained deadlocked with Democrats in a spending standoff.`\
-https://nytimes.com/video/us/politics/100000010431419/us-government-shutdown.html
-
-**Slot rules Liverpool goalkeeper Alisson out of Chelsea game**\
-`Hugo Ekitike also came off injured against Galatasaray but Slot said he could be fit for Saturday’s trip to Stamford Bridge`\
-https://nytimes.com/athletic/6677931/2025/09/30/liverpool-news-alisson-ekitike-injury-update/
 
