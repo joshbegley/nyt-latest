@@ -1,3 +1,15 @@
+**U.S. Sues Pro-Palestinian Demonstrators Who Protested Outside Synagogue**\
+`The Justice Department sued participants in a confrontation at a New Jersey synagogue that devolved into violence. An official said there might be more such cases to come.`\
+https://nytimes.com/2025/09/29/nyregion/face-act-palestinian-suit-new-jersey.html
+
+**Government Shutdown Appears Imminent After Trump Meets With Top Lawmakers**\
+`President Trump met with Republican and Democratic leaders at the White House, but they emerged without a deal, as Democrats seek more health care funding.`\
+https://nytimes.com/2025/09/29/us/politics/government-shutdown-trump-vance-congress.html
+
+**Could Guardians prospect Chase DeLauter debut in October? Here's what to expect**\
+`Rosters are officially due at 10 a.m. Tuesday, and if the Guardians include DeLauter, he'll make his long-awaited debut in the postseason.`\
+https://nytimes.com/athletic/6674832/2025/09/29/cleveland-guardians-prospect-chase-delauter-october-debut-primer/
+
 **Iowa Superintendent Arrested by ICE Loses State License and Is Placed on Unpaid Leave**\
 `Immigration officials arrested Ian Roberts, the Des Moines Public Schools superintendent, on Friday and said he was in the country illegally.`\
 https://nytimes.com/2025/09/29/us/des-moines-superintendent-ice-roberts.html
