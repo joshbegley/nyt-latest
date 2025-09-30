@@ -1,3 +1,19 @@
+**Nicole Kidman Files for Divorce From Keith Urban After Nearly 20 Years**\
+`The couple married in Australia in 2006. Their breakup surprised many fans.`\
+https://nytimes.com/2025/09/30/arts/nicole-kidman-keith-urban-divorce.html
+
+**Stunning 12,000-Year-Old Rock Art Emerges in Saudi Arabia**\
+`The discovery of huge petroglyphs of camels and donkeys, as well as hundreds of engraving tools, hints at complex early settlement in the region following the Ice Age.`\
+https://nytimes.com/2025/09/30/science/archaeology-petroglyphys-saudi-arabia.html
+
+**Submit your Falcons bye-week mailbag questions now for reporter Josh Kendall**\
+`The Falcons have arrived at their bye week on a roller coaster. Submit your questions now for reporter Josh Kendall.`\
+https://nytimes.com/athletic/6677387/2025/09/30/atlanta-falcons-bye-week-mailbag/
+
+**5 Takeaways From Trump’s Address to Generals and Admirals**\
+`The president leveraged the meeting as his chance to trumpet his domestic and foreign policy moves.`\
+https://nytimes.com/2025/09/30/us/politics/trump-speech-military-takeaways.html
+
 **Multiple Federal Agencies Blame ‘Radical’ Left and Democrats for Shutdown**\
 `Agencies including the housing department and Veterans Affairs used unusually partisan language to blame liberals and congressional Democrats for the pending government shutdown.`\
 https://nytimes.com/2025/09/30/us/politics/federal-agencies-government-shutdown.html
