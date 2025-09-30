@@ -1,3 +1,7 @@
+**Explaining a Democratic Talking Point About the Shutdown**\
+`Democrats have misused budget jargon to assail the Republican budget proposal as “dirty,” but the bill is considered “clean.”`\
+https://nytimes.com/2025/09/30/us/politics/democrats-government-shutdown-healthcare.html
+
 **Jonathan Kuminga agrees to 2-year, $48.5 million deal with Warriors: Sources**\
 `The deal with the Warriors ends the protracted standoff over the 22-year-old restricted free agent's immediate future. `\
 https://nytimes.com/athletic/6535175/2025/09/30/jonathan-kuminga-warriors-contract-nba-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010431419/us-government-shutdown.htm
 **Slot rules Liverpool goalkeeper Alisson out of Chelsea game**\
 `Hugo Ekitike also came off injured against Galatasaray but Slot said he could be fit for Saturday’s trip to Stamford Bridge`\
 https://nytimes.com/athletic/6677931/2025/09/30/liverpool-news-alisson-ekitike-injury-update/
-
-**Thomas Perry Dies at 78; Writer of Popular, Unconventional Thrillers**\
-`His many novels, including the prizewinning “The Butcher’s Boy” and the Jane Whitefield series, can have readers rooting for both protagonist and antagonist.`\
-https://nytimes.com/2025/09/30/books/thomas-perry-dead.html
 

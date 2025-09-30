@@ -1,3 +1,15 @@
+**Jonathan Kuminga agrees to 2-year, $48.5 million deal with Warriors: Sources**\
+`The deal with the Warriors ends the protracted standoff over the 22-year-old restricted free agent's immediate future. `\
+https://nytimes.com/athletic/6535175/2025/09/30/jonathan-kuminga-warriors-contract-nba-2025/
+
+**Guardians needed offense or defense in Game 1. They got neither**\
+`This is one of the worst offenses ever to limp into October. It's an offense that can make a manager, or a runner on third, desperate.`\
+https://nytimes.com/athletic/6677975/2025/09/30/guardians-poor-offense-bad-defense-game-1-wild-card/
+
+**LeBron sits out Lakers' first practice as part of unprecedented load management plan**\
+`Coach JJ Redick said unlike last year, this preseason will "be a slower process with (LeBron) leading into the first game."`\
+https://nytimes.com/athletic/6677947/2025/09/30/lebron-james-sits-lakers-practice/
+
 **Robert Saleh walks back Jaguars 'signal stealing' comments**\
 `"In my heart, I genuinely was trying to give a compliment," Saleh said.`\
 https://nytimes.com/athletic/6677888/2025/09/30/liam-coen-robert-saleh-49ers-jaguars/

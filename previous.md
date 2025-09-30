@@ -1,3 +1,15 @@
+**Jonathan Kuminga agrees to 2-year, $48.5 million deal with Warriors: Sources**\
+`The deal with the Warriors ends the protracted standoff over the 22-year-old restricted free agent's immediate future. `\
+https://nytimes.com/athletic/6535175/2025/09/30/jonathan-kuminga-warriors-contract-nba-2025/
+
+**Guardians needed offense or defense in Game 1. They got neither**\
+`This is one of the worst offenses ever to limp into October. It's an offense that can make a manager, or a runner on third, desperate.`\
+https://nytimes.com/athletic/6677975/2025/09/30/guardians-poor-offense-bad-defense-game-1-wild-card/
+
+**LeBron sits out Lakers' first practice as part of unprecedented load management plan**\
+`Coach JJ Redick said unlike last year, this preseason will "be a slower process with (LeBron) leading into the first game."`\
+https://nytimes.com/athletic/6677947/2025/09/30/lebron-james-sits-lakers-practice/
+
 **Robert Saleh walks back Jaguars 'signal stealing' comments**\
 `"In my heart, I genuinely was trying to give a compliment," Saleh said.`\
 https://nytimes.com/athletic/6677888/2025/09/30/liam-coen-robert-saleh-49ers-jaguars/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6677931/2025/09/30/liverpool-news-alisson-ekitike-i
 **Thomas Perry Dies at 78; Writer of Popular, Unconventional Thrillers**\
 `His many novels, including the prizewinning “The Butcher’s Boy” and the Jane Whitefield series, can have readers rooting for both protagonist and antagonist.`\
 https://nytimes.com/2025/09/30/books/thomas-perry-dead.html
-
-**Trump Gave the Military’s Brass a Rehashed Speech. Until Minute 44.**\
-`On an almost daily basis, thousands of words pour forth from the president’s mouth. Sometimes, he tucks in a wildly revealing insight about the direction he is taking the country.`\
-https://nytimes.com/2025/09/30/us/politics/trump-military-brass-speech.html
-
-**Is Milan the Best-Dressed Place in the World?**\
-`During Milan Fashion Week, our photographer, Simbarashe Cha, roamed the city’s streets capturing an electric mix of clothes that made a strong argument for Milan’s reputation as a destination with unrivaled style.`\
-https://nytimes.com/video/style/100000010431063/milan-fashion-week-street-style.html
-
-**Conor Coady was supposed to be integral at Wrexham. His role has shifted already**\
-`The former Wolves and Leicester defender was perhaps Wrexham's highest-profile signing so far - but he has very quickly been sidelined`\
-https://nytimes.com/athletic/6672768/2025/09/30/conor-coady-wrexham-ward-leicester-parkinson/
 
