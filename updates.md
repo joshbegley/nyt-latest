@@ -1,3 +1,7 @@
+**Stephen Colbert: ‘Our Nation is at War with Oregon. It’s Waregon.’**\
+`The “Late Show” host quipped about Trump’s latest target and plan to deploy federal troops to a “war-ravaged” Pacific Northwest.`\
+https://nytimes.com/2025/09/30/arts/television/stephen-colbert-oregon-war.html
+
 **Madagascar’s President Dissolves Government**\
 `President Andry Rajoelina of Madagascar dissolved the government on Monday amid deadly youth-led protests that have been sparked by power outages and water shortages.`\
 https://nytimes.com/video/world/africa/100000010429450/madagascar-government.html

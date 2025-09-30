@@ -1,3 +1,7 @@
+**Stephen Colbert: ‘Our Nation is at War with Oregon. It’s Waregon.’**\
+`The “Late Show” host quipped about Trump’s latest target and plan to deploy federal troops to a “war-ravaged” Pacific Northwest.`\
+https://nytimes.com/2025/09/30/arts/television/stephen-colbert-oregon-war.html
+
 **Madagascar’s President Dissolves Government**\
 `President Andry Rajoelina of Madagascar dissolved the government on Monday amid deadly youth-led protests that have been sparked by power outages and water shortages.`\
 https://nytimes.com/video/world/africa/100000010429450/madagascar-government.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6672687/2025/09/30/inside-newcastle-qa-where-are-th
 **Brighton spent £50m on two Greek strikers. Why have they barely played?**\
 `Stefanos Tzimas and Charalampos Kostoulas have struggled for minutes in games so far this season`\
 https://nytimes.com/athletic/6657274/2025/09/30/brighton-hurzeler-tzimas-kostoulas-analysis/
-
-**How Tyrick Mitchell took his game to the next level - could it lead to an England recall?**\
-`His career is thriving once again and if his trajectory continues, it will be hard for Tuchel to ignore those calls for a place in his squad`\
-https://nytimes.com/athletic/6668615/2025/09/30/crystal-palace-tyrick-mitchell-england/
 
