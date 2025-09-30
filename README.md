@@ -1,3 +1,7 @@
+**Bengals-Broncos takeaways: Denver offense finds a groove in 28-3 win**\
+`After netting a field goal on their first offensive series, the Bengals didn't run another play in the Broncos' territory.`\
+https://nytimes.com/athletic/6675432/2025/09/29/bengals-broncos-denver-cincinnati-score-takeaways-results/
+
 **Skaggs-Angels trial: Witness list, featuring current and former MLB players, taking shape**\
 `Court proceedings in the wrongful death case began last week, with jury selection set to start on Oct. 6.`\
 https://nytimes.com/athletic/6675556/2025/09/29/angels-tyler-skaggs-trial-witness-list-developments/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/29/world/asia/china-delivery-shenzhen.html
 **Peace Broker, Arms Supplier: China’s Dual Roles in a Deadly Conflict**\
 `China urged Cambodia and Thailand to end their border war in July. But weeks earlier, it had sent rockets and artillery shells to Cambodia, Thai intelligence documents show.`\
 https://nytimes.com/2025/09/29/world/asia/thailand-cambodia-china-weapons.html
-
-**MLB touts big viewership, attendance numbers over 2025 season regular season**\
-`MLB said that its viewership and attendance numbers were up for the third straight season. `\
-https://nytimes.com/athletic/6675274/2025/09/29/mlb-2025-viewership-numbers/
 

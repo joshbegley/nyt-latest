@@ -1,3 +1,7 @@
+**Skaggs-Angels trial: Witness list, featuring current and former MLB players, taking shape**\
+`Court proceedings in the wrongful death case began last week, with jury selection set to start on Oct. 6.`\
+https://nytimes.com/athletic/6675556/2025/09/29/angels-tyler-skaggs-trial-witness-list-developments/
+
 **Judge Reinstates Over 500 Voice of America Journalists and Staff**\
 `The reversal of firings is the latest defeat that the Trump administration has incurred in its effort to close down the federal news organization.`\
 https://nytimes.com/2025/09/29/us/politics/voa-voice-of-america-layoffs.html
