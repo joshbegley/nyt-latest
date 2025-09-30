@@ -1,3 +1,15 @@
+**Astros takeaways: An uncertain future for Dana Brown, injury missteps, addressing the offense**\
+`Brown refused to confirm a report that his option for 2026 hadn't been picked up. Injury recovery and impatience at the plate remain issues.`\
+https://nytimes.com/athletic/6677287/2025/09/30/astros-end-of-season-dana-brown-injuries/
+
+**Slot explains Salah omission against Galatasaray: 'We have to utilise our squad'**\
+`Salah, 33, was named on the bench for the league phase fixture in Istanbul`\
+https://nytimes.com/athletic/6677249/2025/09/30/mohamed-salah-liverpool-galatasaray-slot/
+
+**MLB playoff format: Bracket, Wild Card Series, best-of structure**\
+`MLB unveiled a new postseason format in 2022 to make the playoffs more interesting for teams hoping to make a deep run.`\
+https://nytimes.com/athletic/6676759/2025/09/30/mlb-playoffs-format-bracket-wild-card-series-best-of-structure/
+
 **How the Wild got Kirill Kaprizov's extension over the finish line: Exclusive with Craig Leipold**\
 `The Wild owner called it "a big day" for his franchise but also said it won't be the end of the team's work in building a true contender.`\
 https://nytimes.com/athletic/6677224/2025/09/30/kirill-kaprizov-wild-extension-craig-leipold-exclusive/
