@@ -1,3 +1,7 @@
+**Trump Administration Defunds Federal Watchdog Office**\
+`Two senators called for “immediate action” to release money the White House blocked for the federal office that oversees dozens of inspectors general.`\
+https://nytimes.com/2025/09/30/us/politics/trump-federal-watchdog-funding.html
+
 **Hear Trinity Church’s New Organ, 10 Years in the Making**\
 `In Lower Manhattan, Trinity Church’s organ was heavily damaged in the Sept. 11 attacks. A new organ, which took nearly 10 years to build and design, was recently unveiled.`\
 https://nytimes.com/video/arts/100000010430758/trinity-church-organ.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6677254/2025/09/30/bernardo-silva-manchester-city-f
 **Hundreds of Officers. Two Long Hours of Political Theater.**\
 `The military was once again used as a backdrop for Mr. Trump’s ongoing clashes in America’s culture wars, testing their nonpartisan, apolitical nature.`\
 https://nytimes.com/2025/09/30/opinion/trump-hegseth-generals-speech.html
-
-**How to watch Cowboys at Jets: Time, TV, streaming**\
-`Find out how to watch the Dallas Cowboys play the New York Jets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6677414/2025/09/30/cowboys-vs-jets-stream-how-to-watch-oct-5/
 
