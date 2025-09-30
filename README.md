@@ -1,7 +1,3 @@
-**U.S. Officials See Hostage Release as Promising Sign for Deal With Taliban**\
-`The path to any agreement is complex for several reasons, including the Taliban’s demand that a man accused of being a Qaeda operative be released from Guantánamo Bay.`\
-https://nytimes.com/2025/09/30/world/asia/trump-afghanistan-hostages.html
-
 **Upon Further Review: Lions run game vs. Browns front was NFL's best chess match**\
 `One of Sunday’s most exciting clashes was the chess match between the Detroit Lions' run game and the Cleveland Browns' defensive front.`\
 https://nytimes.com/athletic/6675667/2025/09/30/upon-further-review-lions-run-game-browns-front-chess-match/
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6676957/2025/09/30/tottenham-hotspur-rothschild-sal
 **For Kevin Stefanski, making a Browns QB change this early isn't so simple**\
 `With injuries along the O-line and an underwhelming group of pass catchers, Cleveland's offensive problems go beyond just the quarterback.`\
 https://nytimes.com/athletic/6676415/2025/09/30/browns-qb-depth-chart-joe-flacco-dillon-gabriel/
+
+**N.Y.C. Subway and Bus Fares Will Rise to $3 in January**\
+`The increase, up from $2.90, will take effect after the city’s transit system ends sales of the MetroCard. Other fares and tolls will also rise.`\
+https://nytimes.com/2025/09/30/nyregion/nyc-subway-bus-fare-price-increase.html
 
