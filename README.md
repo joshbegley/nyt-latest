@@ -6,7 +6,7 @@ https://nytimes.com/2025/09/29/nyregion/face-act-palestinian-suit-new-jersey.htm
 `Immigration officials arrested Ian Roberts, the Des Moines Public Schools superintendent, on Friday and said he was in the country illegally.`\
 https://nytimes.com/2025/09/29/us/des-moines-superintendent-ice-roberts.html
 
-**Government Shutdown Appears Imminent After Trump Meets With Top Lawmakers**\
+**Trump’s Meeting With Democrats Yields No Progress, With Shutdown a Day Away**\
 `President Trump met with Republican and Democratic leaders at the White House, but they emerged without a deal, as Democrats seek more health care funding.`\
 https://nytimes.com/2025/09/29/us/politics/government-shutdown-trump-vance-congress.html
 
