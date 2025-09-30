@@ -1,3 +1,15 @@
+**With a heavy heart, Naz Reid returns to the Timberwolves and the normalcy they provide**\
+`On media day, the Wolves forward was sitting for his first interview since the end of last season and there was a heaviness in the room.`\
+https://nytimes.com/athletic/6675597/2025/09/30/imberwolves-naz-reid-nba-media-day/
+
+**2026 NFL Draft order projections: Could Titans go back to back? Jets, Giants both in top 5**\
+`Through four weeks of the NFL season, which teams are on track for the top-10 picks in the 2026 draft?`\
+https://nytimes.com/athletic/6674903/2025/09/30/nfl-draft-2026-top-10-giants-jets/
+
+**The Man Who Served Everything**\
+`In “I’m Not Trying to Be Difficult,” the star restaurateur Drew Nieporent evokes a glittering age in Manhattan hospitality.`\
+https://nytimes.com/2025/09/30/books/review/im-not-trying-to-be-difficult-drew-nieporent.html
+
 **Kawhi Leonard's media day response shows the art of the Clippers blocking out the noise**\
 `Players on the Clippers roster the last couple of seasons are conditioned in the art of keeping the main the main thing on media day.`\
 https://nytimes.com/athletic/6675282/2025/09/30/clippers-media-day-kawhi-leonard-aspiration-comments/
@@ -20,21 +32,9 @@ https://nytimes.com/athletic/6675643/2025/09/30/fantasy-football-week-5-drops/
 
 **How Shutdown Gridlock Could Impede Disaster Preparedness**\
 `Turmoil in Washington is distracting from efforts to fix a flood insurance gap and replenish a key disaster relief fund.`\
-https://nytimes.com/2025/09/30/climate/how-shutdown-gridlock-could-impede-disaster-preparedness.html
+https://nytimes.com/2025/09/30/climate/government-shutdown-disaster-preparedness-floods.html
 
 **Golf legend Tom Watson ‘ashamed’ of American fan hostility at Ryder Cup**\
 `Watson played in four Ryder Cups during his career and was a two-time captain for the American team in 1993 and 2014.`\
 https://nytimes.com/athletic/6676307/2025/09/30/ryder-cup-tom-watson-ashamed-america-verbal-abuse/
-
-**What we learned (and didn't learn) on NBA media day, from Luka to Giannis to Kawhi**\
-`Jokić a Nugget "forever," Giannis' will to win and Kawhi Leonard's "conspiracy" response highlight NBA media days.`\
-https://nytimes.com/athletic/6675855/2025/09/30/nba-media-day-2025-kawhi-leonard-investigation-luka-doncic/
-
-**UK Athletics bans coach for three years over serious misconduct**\
-`The 45-year-old was proven to be guilty of nine charges in total, demonstrating "manipulative and coercive behaviour" to his athletes.`\
-https://nytimes.com/athletic/6676102/2025/09/30/andy-young-athletics-laura-muir-serious-misconduct/
-
-**Ranking Fanatics' NFL soccer jerseys from 1-32**\
-`The Fanatics Fest exclusives are now more widely available`\
-https://nytimes.com/athletic/6438021/2025/09/30/nfl-soccer-jerseys-fanatics/
 
