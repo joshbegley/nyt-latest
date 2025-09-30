@@ -1,3 +1,11 @@
+**Trump Refers to Racial Slur During Address to the Military**\
+`“There are two n-words, and you can’t use either of them,” the president said, after saying the word nuclear was not one to “throw around.”`\
+https://nytimes.com/2025/09/30/us/politics/trump-racial-slur-military-speech.html
+
+**Brock Purdy questionable for Thursday vs. Rams due to toe soreness, 49ers optimistic**\
+`Purdy missed two weeks with the toe injury before returning Sunday against the Jaguars.`\
+https://nytimes.com/athletic/6674640/2025/09/30/brock-purdy-injury-toe-rams/
+
 **Trump Was Still Unpopular in Our Poll. Why Aren’t Democrats Doing Better?**\
 `“Disapproval” of the president does not necessarily translate into support for the opposition.`\
 https://nytimes.com/2025/09/30/upshot/poll-analysis-trump-times-siena.html
