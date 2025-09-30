@@ -1,3 +1,7 @@
+**Malacia reintegrated into Man Utd squad, will return to first-team training**\
+`The 26-year-old was one of five United players placed in a so-called ‘bomb squad’ this summer`\
+https://nytimes.com/athletic/6675845/2025/09/30/manchester-united-tyrell-malacia-squad/
+
 **Stephen Colbert: ‘Our Nation Is at War with Oregon. It’s Waregon.’**\
 `The “Late Show” host quipped about Trump’s latest target and plan to deploy federal troops to a “war-ravaged” Pacific Northwest.`\
 https://nytimes.com/2025/09/30/arts/television/stephen-colbert-oregon-war.html
