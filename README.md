@@ -1,3 +1,7 @@
+**Phillies' energizer Harrison Bader embraces the 'gift' of meaningful baseball**\
+`With his good energy and big contributions on both sides of the ball, Bader has become beloved in less than two months of playing in Philly.`\
+https://nytimes.com/athletic/6674940/2025/09/30/harrison-bader-phillies-energy/
+
 **The 3 big trades that helped power Reds into the playoffs: 'We wouldn’t be here'**\
 `Ke’Bryan Hayes and other new arrivals bolstered a club that arrives to the postseason party feeling confident. `\
 https://nytimes.com/athletic/6675599/2025/09/30/reds-mlb-playoffs-trade-deadline/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6674218/2025/09/30/college-football-recruiting-thou
 **Could Riq Woolen be traded? Benched? How the Seahawks could shuffle the secondary**\
 `With Josh Jobe's emergence, Derion Kendrick impressing and Nick Emmanwori nearing a return, Woolen could be the odd man out.`\
 https://nytimes.com/athletic/6674811/2025/09/30/riq-woolen-trade-rumors-seahawks/
-
-**Pinpointing the moment the Giants determined they had to fire Bob Melvin**\
-`Whether it happened in May, June, July or August, at some point, the Giants pile of problems became a heap of problems and Melvin had to go.`\
-https://nytimes.com/athletic/6673954/2025/09/30/san-francisco-giants-bob-melvin-fired-reasoning/
 
