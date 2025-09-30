@@ -1,3 +1,7 @@
+**Judge Reinstates Over 500 Voice of America Journalists and Staff**\
+`The reversal of firings is the latest defeat that the Trump administration has incurred in its effort to close down the federal news organization.`\
+https://nytimes.com/2025/09/29/us/politics/voa-voice-of-america-layoffs.html
+
 **Jets-Dolphins takeaways: Miami secures first win, Tyreek Hill injured**\
 `The Jets drop to 0-4 ahead of their Week 5 matchup against the Dallas Cowboys, while the 1-3 Dolphins take on the Carolina Panthers.`\
 https://nytimes.com/athletic/6675068/2025/09/29/jets-dolphins-score-result-takeaways-monday-night-football/
