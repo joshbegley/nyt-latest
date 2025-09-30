@@ -1,3 +1,7 @@
+**Giannis endorses Bucks' offseason makeover, opens up on offseason thinking**\
+`Regarding his future, the two-time MVP was clear: "I want to compete with the best, and I want to win another championship."`\
+https://nytimes.com/athletic/6674312/2025/09/29/giannis-antetokounmpo-bucks-future-nba-media-day/
+
 **Weekly Student News Quiz: Bad Bunny, Typhoon, Broadway**\
 `Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
 https://nytimes.com/interactive/2025/09/29/learning/30StudentNewsQuizLN.html
