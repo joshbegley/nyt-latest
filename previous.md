@@ -1,3 +1,19 @@
+**Robert Saleh walks back Jaguars 'signal stealing' comments**\
+`"In my heart, I genuinely was trying to give a compliment," Saleh said.`\
+https://nytimes.com/athletic/6677888/2025/09/30/liam-coen-robert-saleh-49ers-jaguars/
+
+**Journalist Injured in Chaotic Scene at New York Immigration Court**\
+`A Turkish journalist was taken away on a stretcher and taken to the hospital after U.S. agents shoved another journalist.`\
+https://nytimes.com/2025/09/30/nyregion/journalist-injured-immigration-courthouse.html
+
+**Federal Agents Shove Journalists at Manhattan Courthouse**\
+`A journalist was injured after an incident between federal agents and journalists at a Manhattan immigration courthouse on Tuesday. The Department of Homeland Security said that the journalists “obstructed operations.”`\
+https://nytimes.com/video/nyregion/newyorktoday/100000010431329/federal-agents-shove-journalists-at-manhattan-courthouse.html
+
+**Long Covid Risk for Children Doubles After a Second Infection, Study Finds**\
+`The new research provides evidence that Covid reinfections can increase the risk of long-term health consequences.`\
+https://nytimes.com/2025/09/30/health/long-covid-children.html
+
 **Republicans and Democrats Trade Blame as Shutdown Looms**\
 `The federal government barreled toward a shutdown on Tuesday ahead of a midnight deadline, as President Trump and Republicans in Congress remained deadlocked with Democrats in a spending standoff.`\
 https://nytimes.com/video/us/politics/100000010431419/us-government-shutdown.html
@@ -21,20 +37,4 @@ https://nytimes.com/video/style/100000010431063/milan-fashion-week-street-style.
 **Conor Coady was supposed to be integral at Wrexham. His role has shifted already**\
 `The former Wolves and Leicester defender was perhaps Wrexham's highest-profile signing so far - but he has very quickly been sidelined`\
 https://nytimes.com/athletic/6672768/2025/09/30/conor-coady-wrexham-ward-leicester-parkinson/
-
-**Trump Threatens to Fire ‘a Lot’ of Federal Workers as Shutdown Looms**\
-`A union representing federal workers filed a lawsuit challenging President Trump’s ability to fire government employees.`\
-https://nytimes.com/2025/09/30/us/politics/trump-shutdown-layoffs.html
-
-**Dallas Wings fire coach Chris Koclanes following 10-34 season**\
-`The Wings have now had six coaches (including interim coaches) over the past eight seasons.`\
-https://nytimes.com/athletic/6677885/2025/09/30/wings-chris-koclanes-fired/
-
-**The Government Nears a Shutdown**\
-`Also, the military’s top brass gathered for an unusual meeting. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2025/09/30/briefing/the-government-nears-a-shutdown.html
-
-**Release of Democrat’s Naval Record Scrambles a Tight Governor’s Race**\
-`In the New Jersey governor’s race, Mikie Sherrill, the Democrat, is locked in a bitter battle with Jack Ciattarelli, the Republican, over the release of records tied to her military service.`\
-https://nytimes.com/2025/09/30/nyregion/nj-governors-race-naval-academy-cheating-scandal.html
 
