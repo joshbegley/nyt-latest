@@ -1,3 +1,7 @@
+**Malacia reintegrated into Man Utd squad, will return to first-team training**\
+`The 26-year-old was one of five United players placed in a so-called ‘bomb squad’ this summer`\
+https://nytimes.com/athletic/6675845/2025/09/30/manchester-united-tyrell-malacia-squad/
+
 **Rescuers in Indonesia Race to Save Students Trapped by Deadly School Collapse**\
 `At least 30 students were missing after an Islamic boarding school collapsed during a prayer service, killing at least three children.`\
 https://nytimes.com/2025/09/30/world/asia/students-trapped-indonesia-school-collapse.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6669213/2025/09/30/jurgen-klopp-liverpool-interview
 **Stephen Colbert: ‘Our Nation Is at War with Oregon. It’s Waregon.’**\
 `The “Late Show” host quipped about Trump’s latest target and plan to deploy federal troops to a “war-ravaged” Pacific Northwest.`\
 https://nytimes.com/2025/09/30/arts/television/stephen-colbert-oregon-war.html
-
-**Madagascar’s President Dissolves Government**\
-`President Andry Rajoelina of Madagascar dissolved the government on Monday amid deadly youth-led protests that have been sparked by power outages and water shortages.`\
-https://nytimes.com/video/world/africa/100000010429450/madagascar-government.html
 
