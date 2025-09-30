@@ -1,3 +1,11 @@
+**Deadlock Grows Uglier as Congress Heads Toward Shutdown**\
+`President Trump’s posting of a deepfake video mocking and insulting the top two Democrats in Congress underscored the lack of progress toward any deal to extend funding.`\
+https://nytimes.com/2025/09/30/us/politics/government-shutdown-deadlock.html
+
+**OfCorsica! (Pun Intended) Is a Vacation That Became a Restaurant**\
+`Miru opens above City Winery on Pier 57, Bar Lumière finally sees the light of day and more restaurant news.`\
+https://nytimes.com/2025/09/30/dining/nyc-restaurant-news.html
+
 **A Novice Defense Secretary Lectures the Brass on What It Takes to Win**\
 `Senior officers, summoned from around the world, are entrusted to manage complex military operations. They got a lecture on fitness and grooming standards.`\
 https://nytimes.com/2025/09/30/us/politics/hegseth-military-officers.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6676555/2025/09/30/oli-marmol-cardinals-manager-202
 **WNBA reaches 11-year media rights deal to broadcast games on Versant**\
 `The deal will have USA Network airing 50+ WNBA games annually, including a still-to-be-defined number of playoff games in select years`\
 https://nytimes.com/athletic/6676766/2025/09/30/wnba-media-rights-stream-versant-2026/
-
-**Proposal for Casino Near Citi Field Moves Forward in Bid for License**\
-`The Hard Rock at Metropolitan Park is the fourth and final entrant to advance. Up to three licenses will be awarded by the end of the year.`\
-https://nytimes.com/2025/09/30/nyregion/citifield-hard-rock-casino-queens.html
-
-**Jerry Jones vs. Micah Parsons becoming the modern day Jerry vs. Jimmy**\
-`Jones responded Tuesday to Parsons' postgame comments Sunday after the Cowboys and Packers played to a 40-40 tie.`\
-https://nytimes.com/athletic/6676610/2025/09/30/cowboys-jerry-jones-micah-parsons-situation/
 
