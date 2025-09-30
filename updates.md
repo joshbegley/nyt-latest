@@ -1,3 +1,15 @@
+**Car Bomb Kills at Least 10 in Pakistan’s Balochistan Province**\
+`The blast outside the local headquarters of a Pakistani paramilitary force in the city of Quetta could be heard miles away.`\
+https://nytimes.com/2025/09/30/world/africa/quetta-pakistan-blast.html
+
+**Carlos Alcaraz beats Taylor Fritz to win Japan Open and push for year-end world No. 1**\
+`Alcaraz kept his composure in moments of frustration against Fritz, who had beaten him in their previous meeting at the Laver Cup.`\
+https://nytimes.com/athletic/6675895/2025/09/30/carlos-alcaraz-taylor-fritz-japan-open-result-analysis/
+
+**Trump’s Plan to End the War in Gaza**\
+`We look at Trump’s plan and American public opinion polls on the war.`\
+https://nytimes.com/2025/09/30/briefing/trumps-plan-to-end-the-war-in-gaza.html
+
 **What We Know About ChatGPT’s New Parental Controls**\
 `OpenAI said parents can set time and content limits on accounts, and receive notifications if ChatGPT detects signs of potential self-harm.`\
 https://nytimes.com/2025/09/30/technology/chatgpt-teen-parental-controls-openai.html

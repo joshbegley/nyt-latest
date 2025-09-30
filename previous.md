@@ -1,3 +1,15 @@
+**Car Bomb Kills at Least 10 in Pakistan’s Balochistan Province**\
+`The blast outside the local headquarters of a Pakistani paramilitary force in the city of Quetta could be heard miles away.`\
+https://nytimes.com/2025/09/30/world/africa/quetta-pakistan-blast.html
+
+**Carlos Alcaraz beats Taylor Fritz to win Japan Open and push for year-end world No. 1**\
+`Alcaraz kept his composure in moments of frustration against Fritz, who had beaten him in their previous meeting at the Laver Cup.`\
+https://nytimes.com/athletic/6675895/2025/09/30/carlos-alcaraz-taylor-fritz-japan-open-result-analysis/
+
+**Trump’s Plan to End the War in Gaza**\
+`We look at Trump’s plan and American public opinion polls on the war.`\
+https://nytimes.com/2025/09/30/briefing/trumps-plan-to-end-the-war-in-gaza.html
+
 **What We Know About ChatGPT’s New Parental Controls**\
 `OpenAI said parents can set time and content limits on accounts, and receive notifications if ChatGPT detects signs of potential self-harm.`\
 https://nytimes.com/2025/09/30/technology/chatgpt-teen-parental-controls-openai.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/europe/100000010423796/what-moldova-elections-me
 **Israelis and Gazans React to U.S. Peace Proposal**\
 `Some Israelis were optimistic and some Palestinians in Gaza were doubtful after President Trump introduced a cease-fire plan for Gaza alongside Prime Minister Benjamin Netanyahu of Israel.`\
 https://nytimes.com/video/world/middleeast/100000010429494/trump-netanyahu-israel-gaza-war.html
-
-**Will the NHL ever return to Quebec City? Dying expansion buzz reflects 'sad reality'**\
-`Quebec City has been without a franchise for 30 years. Their NHL-ready arena is 10 years old. But the NHL is looking elsewhere.`\
-https://nytimes.com/athletic/6668417/2025/09/30/quebec-city-nhl-expansion-ottawa-senators/
-
-**Bears' bye week to-do list: Self-assessment, defining O-line roles, getting healthy**\
-`The Bears' glee Sunday was warranted but requires an asterisk. “Everything feels better when you win. But we have to be truth tellers."`\
-https://nytimes.com/athletic/6674736/2025/09/30/bears-bye-week-to-do-list/
-
-**Pistons media day: Cade Cunningham's aspirations, no restrictions on Jaden Ivey**\
-`Cunningham and the Detroit Pistons are ready to move on from last season's success and take the next step in their development. `\
-https://nytimes.com/athletic/6675315/2025/09/30/pistons-media-day-cade-cunningham-nba-2025/
 
