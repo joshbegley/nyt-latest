@@ -1,4 +1,8 @@
 **Ron Washington says he was let go over performance, not health: 'I have to accept that'**\
+`"Sometimes you've got to make chicken salad out of chicken s—," Washington said of the challenges of managing a roster not equipped to win.`\
+https://nytimes.com/athletic/6677427/2025/09/30/angels-ron-washington-let-go-reasons/
+
+**Ron Washington says he was let go over performance, not health: 'I have to accept that'**\
 `“Sometimes you’ve got to make chicken salad out of chicken s—,” Washington said of the challenges of managing a roster not equipped to win.`\
 https://nytimes.com/athletic/6677427/2025/09/30/angels-ron-washington-let-go-reasons/
 
