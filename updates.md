@@ -1,3 +1,11 @@
+**How Shutdown Gridlock Could Impede Disaster Preparedness**\
+`Turmoil in Washington is distracting from efforts to fix a flood insurance gap and replenish a key disaster relief fund.`\
+https://nytimes.com/2025/09/30/climate/how-shutdown-gridlock-could-impede-disaster-preparedness.html
+
+**Tom Watson ‘ashamed’ of American fan hostility at Ryder Cup**\
+`Watson played in four Ryder Cups during his career and was a two-time captain for the American team in 1993 and 2014.`\
+https://nytimes.com/athletic/6676307/2025/09/30/ryder-cup-tom-watson-ashamed-america-verbal-abuse/
+
 **All you need to know about the Lakers, one sentence at a time**\
 `EL SEGUNDO, Calif.`\
 https://nytimes.com/athletic/6675629/2025/09/30/lakers-media-day-quotes-nba/

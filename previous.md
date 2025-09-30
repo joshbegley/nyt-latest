@@ -1,3 +1,11 @@
+**How Shutdown Gridlock Could Impede Disaster Preparedness**\
+`Turmoil in Washington is distracting from efforts to fix a flood insurance gap and replenish a key disaster relief fund.`\
+https://nytimes.com/2025/09/30/climate/how-shutdown-gridlock-could-impede-disaster-preparedness.html
+
+**Tom Watson ‘ashamed’ of American fan hostility at Ryder Cup**\
+`Watson played in four Ryder Cups during his career and was a two-time captain for the American team in 1993 and 2014.`\
+https://nytimes.com/athletic/6676307/2025/09/30/ryder-cup-tom-watson-ashamed-america-verbal-abuse/
+
 **What we learned (and didn't learn) on NBA media day, from Luka to Giannis to Kawhi**\
 `Jokić a Nugget "forever," Giannis' will to win and Kawhi Leonard's "conspiracy" response highlight NBA media days.`\
 https://nytimes.com/athletic/6675855/2025/09/30/nba-media-day-2025-kawhi-leonard-investigation-luka-doncic/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6675629/2025/09/30/lakers-media-day-quotes-nba/
 **An Oasis Fan in Sweet Soccer Shoes**\
 `Sporty pink footwear completed a Londoner’s colorful look.`\
 https://nytimes.com/2025/09/30/style/street-style-look-oasis-fan-style.html
-
-**Russia’s Military Budget Shrinks as War Costs Hit Kremlin’s Economic Limits**\
-`The budget indicates that Russia will continue to fight largely as it has, locking it in a grinding war of attrition.`\
-https://nytimes.com/2025/09/30/world/europe/russia-budget-military.html
-
-**South African Ambassador Is Found Dead in Paris**\
-`The ambassador, Nkosinathi Emmanuel Mthethwa, was found outside a hotel on the western edge of the city, a day after his wife reported him missing.`\
-https://nytimes.com/2025/09/30/world/europe/mthethwa-south-africa-ambassador-france-dead.html
 

@@ -1,3 +1,7 @@
+**Fantasy football Week 5 drops: Moving on from Nick Chubb, Calvin Ridley and more**\
+`Gary Davenport sees the writing on the wall for Nick Chubb in Houston as he's one his players to drop ahead of Week 5.`\
+https://nytimes.com/athletic/6675643/2025/09/30/fantasy-football-week-5-drops/
+
 **How Shutdown Gridlock Could Impede Disaster Preparedness**\
 `Turmoil in Washington is distracting from efforts to fix a flood insurance gap and replenish a key disaster relief fund.`\
 https://nytimes.com/2025/09/30/climate/how-shutdown-gridlock-could-impede-disaster-preparedness.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6675615/2025/09/30/anaheim-ducks-mason-mctavish-con
 **All you need to know about the Lakers, one sentence at a time**\
 `EL SEGUNDO, Calif.`\
 https://nytimes.com/athletic/6675629/2025/09/30/lakers-media-day-quotes-nba/
-
-**An Oasis Fan in Sweet Soccer Shoes**\
-`Sporty pink footwear completed a Londoner’s colorful look.`\
-https://nytimes.com/2025/09/30/style/street-style-look-oasis-fan-style.html
 
