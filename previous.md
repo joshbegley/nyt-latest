@@ -1,3 +1,11 @@
+**Release of Democrat’s Naval Record Scrambles a Tight Governor’s Race**\
+`In the New Jersey governor’s race, Mikie Sherrill, the Democrat, is locked in a bitter battle with Jack Ciattarelli, the Republican, over the release of records tied to her military service.`\
+https://nytimes.com/2025/09/30/nyregion/nj-governors-race-naval-academy-cheating-scandal.html
+
+**Kirill Kaprizov extension shows his belief in the Wild's future as a Cup contender: 'One day, it’s coming'**\
+`Kaprizov and GM Bill Guerin reflected on the stakes of the historic contract Tuesday: "We’re talking about the rest of his career."`\
+https://nytimes.com/athletic/6677461/2025/09/30/kirill-kaprizov-wild-future-cup-contender/
+
 **Cubs-Padres takeaways: Back-to-back homers power Cubs over Padres in Game 1**\
 `The last time the Cubs hit back-to-back homers in the playoffs was during their 2016 championship season.`\
 https://nytimes.com/athletic/6677658/2025/09/30/cubs-padres-tigers-guardians-score-results-takeaways-mlb-playoffs/
@@ -22,19 +30,11 @@ https://nytimes.com/2025/09/30/business/nike-earnings-tariffs.html
 `In exchange for Sugita the Thorns will receive fullback M.A. Vignola and $600,000 in intraleague transfer funds.`\
 https://nytimes.com/athletic/6677745/2025/09/30/hina-sugita-angel-city-portland-thorns-trade/
 
-**Musah makes key contribution in Atalanta's Champions League win**\
-`Musah's assist provided a welcome lift for the USMNT midfielder as he looks to get back to his best`\
+**Yunus Musah makes key contribution in Atalanta's Champions League win**\
+`Musah's assist provided a welcome lift for the USMNT midfielder as he looks to get back to his best while with Atalanta.`\
 https://nytimes.com/athletic/6677742/2025/09/30/musah-usmnt-atalanta-assist-brugge/
 
 **How Would a Government Shutdown Affect You?**\
 `Shutdowns are complicated and could have wide-ranging consequences. Your input can help steer our coverage.`\
 https://nytimes.com/2025/09/30/us/government-shutdown-callout.html
-
-**Night Trains, Beloved Throwbacks Tying Paris to Berlin and Vienna, Will End**\
-`Facing a budget crunch, France’s government has decided to cut state subsidies for overnight, cross-border routes that had revived a bit of the romance of rail travel.`\
-https://nytimes.com/2025/09/30/world/europe/paris-berlin-night-train-canceled.html
-
-**Galatasaray 1 Liverpool 0 - Did dropping Salah work? How was Alisson injured? How worried should Slot be?**\
-`Analysis of Liverpool's Champions League game away to Galatasaray`\
-https://nytimes.com/athletic/6670255/2025/09/30/galatasaray-liverpool-highlights/
 
