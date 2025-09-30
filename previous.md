@@ -1,3 +1,11 @@
+**Trump Says a Deal Is Close With Harvard**\
+`The agreement, if finalized, would follow months of public acrimony as the school grappled with losing billions in federal dollars as a result of defying President Trump.`\
+https://nytimes.com/2025/09/30/us/trump-says-a-deal-is-close-with-harvard.html
+
+**NHL agents on the Kirill Kaprizov deal and its 'gravitational effect' on the future of salaries**\
+`Seven agents gave The Athletic their thoughts on how the record deal that "will have a dramatic impact on how the best players get paid."`\
+https://nytimes.com/athletic/6677127/2025/09/30/nhl-agents-kirill-kaprizov-free-agency/
+
 **Raiders LT Kolton Miller heading to IR with ankle injury: Reports**\
 `Miller signed a three-year, $66 million extension, including $42.5 million guaranteed, over the summer.`\
 https://nytimes.com/athletic/6677486/2025/09/30/raiders-kolton-miller-ankle-injury/
@@ -29,12 +37,4 @@ https://nytimes.com/video/arts/100000010430758/trinity-church-organ.html
 **Earthquake in Philippines Kills at Least 20, Officials Say**\
 `The 6.9-magnitude earthquake shook the province of Cebu, home to 3.2 million people, just before 10 p.m. local time.`\
 https://nytimes.com/2025/09/30/world/asia/philippines-earthquake-cebu.html
-
-**Nicole Kidman Files for Divorce From Keith Urban After Nearly 20 Years**\
-`The couple married in Australia in 2006. Their breakup surprised many fans.`\
-https://nytimes.com/2025/09/30/arts/nicole-kidman-keith-urban-divorce.html
-
-**Stunning 12,000-Year-Old Rock Art Emerges in Saudi Arabia**\
-`The discovery of huge petroglyphs of camels and donkeys, as well as hundreds of engraving tools, hints at complex early settlement in the region following the Ice Age.`\
-https://nytimes.com/2025/09/30/science/archaeology-petroglyphys-saudi-arabia.html
 
