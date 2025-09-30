@@ -1,3 +1,19 @@
+**Brighton spent £50m on two Greek strikers. Why have they barely played?**\
+`Stefanos Tzimas and Charalampos Kostoulas have struggled for minutes in games so far this season`\
+https://nytimes.com/athletic/6657274/2025/09/30/brighton-hurzeler-tzimas-kostoulas-analysis/
+
+**How Tyrick Mitchell took his game to the next level - could it lead to an England recall?**\
+`His career is thriving once again and if his trajectory continues, it will be hard for Tuchel to ignore those calls for a place in his squad`\
+https://nytimes.com/athletic/6668615/2025/09/30/crystal-palace-tyrick-mitchell-england/
+
+**An oral history of the Miracle of Istanbul**\
+`As Liverpool return to the Turkish city to face Galatasaray, the full story of what happened on the club's most famous visit`\
+https://nytimes.com/athletic/6673311/2025/09/30/liverpool-miracle-of-istanbul-galatasaray/
+
+**Long throws? Parking the bus? How footballers really feel about being asked to 'play ugly'**\
+`Pragmatism can be effective but how do those on the pitch feel about being asked to play in a less aesthetically-pleasing way?`\
+https://nytimes.com/athletic/6654665/2025/09/30/anti-football-what-players-think/
+
 **As Haaland joins the European Cup's top 10 scorers, are yesterday's heroes being forgotten?**\
 `There are no more pre-1992 players in the European Cup/Champions League's list of top 10 scorers. Does it matter?`\
 https://nytimes.com/athletic/6655091/2025/09/30/erling-haaland-champions-league-scorers/
