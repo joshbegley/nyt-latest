@@ -1,3 +1,7 @@
+**Spaghetti and Chicken Meatball Soup**\
+`Tomato soup meets spaghetti and meatballs in this one-pot, 30-minute crowd-pleaser.`\
+https://nytimes.com/video/dining/100000010366114/spaghetti-and-chicken-meatball-soup.html
+
 **Daniil Medvedev asks why umpires 'are trying to intimidate' him after best effort warning in Beijing**\
 `Medvedev wanted to “do something bad” after umpire Adel Nour's judgment that he was not trying hard enough while nearly unable to move.`\
 https://nytimes.com/athletic/6676084/2025/09/30/daniil-medvedev-china-open-code-violation-best-effort-rule/

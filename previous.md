@@ -1,3 +1,7 @@
+**Spaghetti and Chicken Meatball Soup**\
+`Tomato soup meets spaghetti and meatballs in this one-pot, 30-minute crowd-pleaser.`\
+https://nytimes.com/video/dining/100000010366114/spaghetti-and-chicken-meatball-soup.html
+
 **Daniil Medvedev asks why umpires 'are trying to intimidate' him after best effort warning in Beijing**\
 `Medvedev wanted to “do something bad” after umpire Adel Nour's judgment that he was not trying hard enough while nearly unable to move.`\
 https://nytimes.com/athletic/6676084/2025/09/30/daniil-medvedev-china-open-code-violation-best-effort-rule/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6675567/2025/09/30/dogers-mlb-postseason-free-agent
 **Trail Blazers rookie Yang Hansen brings hype, 'Chinglish' to training camp**\
 `The team is looking to capitalize on what figures to be an onslaught of attention on Yang from China.`\
 https://nytimes.com/athletic/6674878/2025/09/30/yang-hansen-blazers-nba-rookie-chinglish/
-
-**Trump Administration Live Updates: Hegseth Addresses Rare Gathering of Top Military Leaders**\
-``\
-https://nytimes.com/live/2025/09/30/us/trump-government-shutdown-hegseth
 
