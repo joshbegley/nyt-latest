@@ -1,3 +1,11 @@
+**Quote of the Day: Reprisals Go Around, And May Come Around**\
+`Quotation of the Day for Tuesday, September 30, 2025.`\
+https://nytimes.com/2025/09/29/pageoneplus/quote-of-the-day-reprisals-go-around-and-may-come-around.html
+
+**Bengals-Broncos takeaways: Denver offense finds a groove in 28-3 win**\
+`After netting a field goal on their first offensive series, the Bengals didn't run another play in the Broncos' territory.`\
+https://nytimes.com/athletic/6675432/2025/09/29/bengals-broncos-denver-cincinnati-score-takeaways-results/
+
 **Skaggs-Angels trial: Witness list, featuring current and former MLB players, taking shape**\
 `Court proceedings in the wrongful death case began last week, with jury selection set to start on Oct. 6.`\
 https://nytimes.com/athletic/6675556/2025/09/29/angels-tyler-skaggs-trial-witness-list-developments/
