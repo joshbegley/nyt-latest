@@ -1,3 +1,7 @@
+**UK Athletics bans coach for three years over serious misconduct**\
+`The 45-year-old was proven to be guilty of nine charges in total, demonstrating "manipulative and coercive behaviour" to his athletes.`\
+https://nytimes.com/athletic/6676102/2025/09/30/andy-young-athletics-laura-muir-serious-misconduct/
+
 **Ranking Fanatics' NFL soccer jerseys from 1-32**\
 `The Fanatics Fest exclusives are now more widely available`\
 https://nytimes.com/athletic/6438021/2025/09/30/nfl-soccer-jerseys-fanatics/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/30/world/europe/mthethwa-south-africa-ambassador-fra
 **Spaghetti and Chicken Meatball Soup**\
 `Tomato soup meets spaghetti and meatballs in this one-pot, 30-minute crowd-pleaser.`\
 https://nytimes.com/video/dining/100000010366114/spaghetti-and-chicken-meatball-soup.html
-
-**Daniil Medvedev asks why umpires 'are trying to intimidate' him after best effort warning in Beijing**\
-`Medvedev wanted to “do something bad” after umpire Adel Nour's judgment that he was not trying hard enough while nearly unable to move.`\
-https://nytimes.com/athletic/6676084/2025/09/30/daniil-medvedev-china-open-code-violation-best-effort-rule/
 

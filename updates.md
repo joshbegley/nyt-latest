@@ -1,3 +1,7 @@
+**UK Athletics bans coach for three years over serious misconduct**\
+`The 45-year-old was proven to be guilty of nine charges in total, demonstrating "manipulative and coercive behaviour" to his athletes.`\
+https://nytimes.com/athletic/6676102/2025/09/30/andy-young-athletics-laura-muir-serious-misconduct/
+
 **Ranking Fanatics' NFL soccer jerseys from 1-32**\
 `The Fanatics Fest exclusives are now more widely available`\
 https://nytimes.com/athletic/6438021/2025/09/30/nfl-soccer-jerseys-fanatics/
