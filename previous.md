@@ -1,3 +1,7 @@
+**U.S. Argues That Detained Protesters Can’t Seek Release in Federal Court**\
+`A federal appeals court heard arguments over whether noncitizens subject to deportation have the right to challenge their detentions using one of the oldest legal precepts.`\
+https://nytimes.com/2025/09/30/nyregion/habeas-corpus-deportation-appeal.html
+
 **Chaim Bloom puts Cardinals' focus on long-term: 'We can't take shortcuts and we won't'**\
 `Bloom laid out his thoughts on the Sonny Gray trade outlook, as well as what's next for Jordan Walker and Nolan Gorman.`\
 https://nytimes.com/athletic/6677488/2025/09/30/cardinals-mlb-chaim-bloom-plan/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/30/us/politics/immigration-fraud-minnesota.html
 **How to watch Lions at Bengals: Time, TV, streaming**\
 `Find out how to watch the Detroit Lions play the Cincinnati Bengals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6678127/2025/09/30/lions-vs-bengals-stream-how-to-watch-oct-5/
-
-**How to watch Buccaneers at Seahawks: Time, TV, streaming**\
-`Find out how to watch the Tampa Bay Buccaneers play the Seattle Seahawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6678119/2025/09/30/buccaneers-vs-seahawks-stream-how-to-watch-oct-5/
 

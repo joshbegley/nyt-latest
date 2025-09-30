@@ -1,3 +1,7 @@
+**U.S. Argues That Detained Protesters Can’t Seek Release in Federal Court**\
+`A federal appeals court heard arguments over whether noncitizens subject to deportation have the right to challenge their detentions using one of the oldest legal precepts.`\
+https://nytimes.com/2025/09/30/nyregion/habeas-corpus-deportation-appeal.html
+
 **Chaim Bloom puts Cardinals' focus on long-term: 'We can't take shortcuts and we won't'**\
 `Bloom laid out his thoughts on the Sonny Gray trade outlook, as well as what's next for Jordan Walker and Nolan Gorman.`\
 https://nytimes.com/athletic/6677488/2025/09/30/cardinals-mlb-chaim-bloom-plan/
