@@ -1,3 +1,19 @@
+**Upon Further Review: Lions run game vs. Browns front was NFL's best chess match**\
+`One of Sunday’s most exciting clashes was the chess match between the Detroit Lions' run game and the Cleveland Browns' defensive front.`\
+https://nytimes.com/athletic/6675667/2025/09/30/upon-further-review-lions-run-game-browns-front-chess-match/
+
+**Trump and Pfizer Announce Deal to Lower Some Medicaid Drug Prices**\
+`The administration said the drug company would sell many of its products to the government insurance program for lower-income Americans at prices that align with those in Europe.`\
+https://nytimes.com/2025/09/30/health/trump-pfizer-trumprx-medications.html
+
+**Freedom of Speech in Academia Is Under Attack Around the World**\
+`Clashes on university campuses, and administrators’ failures when dealing with them, have triggered actions by some governments meant to limit what universities and their students can say and do.`\
+https://nytimes.com/2025/09/30/world/democracy-forum-athens-freedom-of-speech.html
+
+**For Kevin Stefanski, making a Browns QB change this early isn't so simple**\
+`With injuries along the O-line and an underwhelming group of pass catchers, Cleveland's offensive problems go beyond just the quarterback.`\
+https://nytimes.com/athletic/6676415/2025/09/30/browns-qb-depth-chart-joe-flacco-dillon-gabriel/
+
 **Bobby Cain, Barrier Breaker in School Desegregation, Dies at 85**\
 `In 1957, facing down white mobs, he became the first Black student to graduate from a public high school in the South under a court mandate.`\
 https://nytimes.com/2025/09/30/us/bobby-cain-dead.html
