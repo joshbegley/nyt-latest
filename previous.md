@@ -1,3 +1,19 @@
+**NHL agent poll: How should Connor McDavid approach his next contract?**\
+`The Athletic canvassed 10 agents to get their thoughts on what McDavid needs to consider about his NHL future.`\
+https://nytimes.com/athletic/6673624/2025/09/30/connor-mcdavid-contract-nhl-agent-poll/
+
+**Leitch: Why hasn't storming the field  (or court) been stopped? Because it's still awesome**\
+`There are reasonable arguments to be made against field storming. But let's be honest: It speaks to what we love about college sports.`\
+https://nytimes.com/athletic/6674570/2025/09/30/college-football-field-storming-virginia-fsu/
+
+**Why Chiefs offense had its classic look in win vs. Ravens: Week 4 film review**\
+`Also, how Jaxson Dart sparked the Giants offense, and the Falcons' big offensive bounce back.`\
+https://nytimes.com/athletic/6674328/2025/09/30/chiefs-falcons-giants-week-4-film-review/
+
+**Bruins systems check: Explaining the new D scheme, 4-righty PP, hybrid-diamond PK**\
+`The 2025-26 Bruins will still play zone defense in front of their goalies, but at times they will now switch to man-to-man coverage.`\
+https://nytimes.com/athletic/6674404/2025/09/30/bruins-systems-defensive-scheme-marco-sturm/
+
 **What Elections in Moldova Mean for Europe**\
 `In winning parliamentary elections, Moldova’s incumbent party has kept the country on track to join the European Union, overcoming Russia’s efforts to influence the election. Jeanna Smialek, reporting from Chisinau, explains why the stakes were so high.`\
 https://nytimes.com/video/world/europe/100000010423796/what-moldova-elections-mean-for-europe.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6675315/2025/09/30/pistons-media-day-cade-cunningha
 **What happened to the Jared Goff-Jameson Williams connection? Analyzing what went wrong**\
 `Goff and Williams connected on just 2 of 8 throws and missed on several potential big plays against the Browns.`\
 https://nytimes.com/athletic/6674525/2025/09/30/lions-jameson-williams-jared-goff-browns-analysis/
-
-**More Chuba Hubbard and aggressive play calling: 5 ways to fix the Panthers**\
-`Among our suggestions: Dave Canales take more chances on offense and Ejiro Evero blitz more to create pressure.`\
-https://nytimes.com/athletic/6674665/2025/09/30/carolina-panthers-how-to-fix-problems/
-
-**What J.J. McCarthy can learn from Aaron Rodgers’ performance Sunday vs. Vikings**\
-`The veteran quarterback feasted on the Vikings on Sunday with quick and accurate passes. McCarthy could learn a thing or two from him.`\
-https://nytimes.com/athletic/6673665/2025/09/30/jj-mccarthy-aaron-rodgers-vikings-steelers-dublin/
-
-**Are the Bengals cooked? It's a fair question after lifeless 28-3 loss to Broncos**\
-`Another mistake-filled, blowout loss without Joe Burrow makes for a bleak outlook for the remainder of the season.`\
-https://nytimes.com/athletic/6675743/2025/09/30/bengals-loss-mnf-zac-taylor-jake-browning/
-
-**Who is David Bednar? Meet the 'Renegade' closer the Yankees will ride in the playoffs**\
-`After so many doubters along the way, Bednar has found believers in the Bronx and won over his new team with his quiet intensity.`\
-https://nytimes.com/athletic/6669529/2025/09/30/david-bednar-yankees-closer-playoffs/
 

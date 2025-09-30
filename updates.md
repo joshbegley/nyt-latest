@@ -1,3 +1,19 @@
+**NHL agent poll: How should Connor McDavid approach his next contract?**\
+`The Athletic canvassed 10 agents to get their thoughts on what McDavid needs to consider about his NHL future.`\
+https://nytimes.com/athletic/6673624/2025/09/30/connor-mcdavid-contract-nhl-agent-poll/
+
+**Leitch: Why hasn't storming the field  (or court) been stopped? Because it's still awesome**\
+`There are reasonable arguments to be made against field storming. But let's be honest: It speaks to what we love about college sports.`\
+https://nytimes.com/athletic/6674570/2025/09/30/college-football-field-storming-virginia-fsu/
+
+**Why Chiefs offense had its classic look in win vs. Ravens: Week 4 film review**\
+`Also, how Jaxson Dart sparked the Giants offense, and the Falcons' big offensive bounce back.`\
+https://nytimes.com/athletic/6674328/2025/09/30/chiefs-falcons-giants-week-4-film-review/
+
+**Bruins systems check: Explaining the new D scheme, 4-righty PP, hybrid-diamond PK**\
+`The 2025-26 Bruins will still play zone defense in front of their goalies, but at times they will now switch to man-to-man coverage.`\
+https://nytimes.com/athletic/6674404/2025/09/30/bruins-systems-defensive-scheme-marco-sturm/
+
 **What Elections in Moldova Mean for Europe**\
 `In winning parliamentary elections, Moldova’s incumbent party has kept the country on track to join the European Union, overcoming Russia’s efforts to influence the election. Jeanna Smialek, reporting from Chisinau, explains why the stakes were so high.`\
 https://nytimes.com/video/world/europe/100000010423796/what-moldova-elections-mean-for-europe.html
