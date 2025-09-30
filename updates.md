@@ -1,3 +1,15 @@
+**How Every Senator Voted to Avoid a Government Shutdown**\
+`The Senate failed to reach the 60 votes necessary to avoid a shutdown.`\
+https://nytimes.com/interactive/2025/09/30/us/senate-shutdown-vote.html
+
+**Are You Quitting the Military? We Want to Hear From You.**\
+`The New York Times is looking for generals and admirals who are quitting the military following an address from the defense secretary.`\
+https://nytimes.com/2025/09/30/us/politics/military-leaders-quit-callout.html
+
+**Trump Administration Moves to Relax Rules on Climate Super Pollutants**\
+`The E.P.A. plan would allow grocery stores, air-conditioning manufacturers and others to phase out hydrofluorocarbons in cooling equipment more slowly.`\
+https://nytimes.com/2025/09/30/climate/trump-hydrofluorocarbons-hfcs.html
+
 **With all eyes on him, a calm, competitive Tarik Skubal powers the Tigers to Game 1 win**\
 `Tarik Skubal became the first pitcher since Gerrit Cole in 2019 to strike out 14 or more batters in a postseason game.`\
 https://nytimes.com/athletic/6677969/2025/09/30/tigers-tarik-skubal-game-1-win-calm-competitive/

@@ -1,8 +1,16 @@
+**How Every Senator Voted to Avoid a Government Shutdown**\
+`The Senate failed to reach the 60 votes necessary to avoid a shutdown.`\
+https://nytimes.com/interactive/2025/09/30/us/senate-shutdown-vote.html
+
+**Are You Quitting the Military? We Want to Hear From You.**\
+`The New York Times is looking for generals and admirals who are quitting the military following an address from the defense secretary.`\
+https://nytimes.com/2025/09/30/us/politics/military-leaders-quit-callout.html
+
 **With all eyes on him, a calm, competitive Tarik Skubal powers the Tigers to Game 1 win**\
 `Tarik Skubal became the first pitcher since Gerrit Cole in 2019 to strike out 14 or more batters in a postseason game.`\
 https://nytimes.com/athletic/6677969/2025/09/30/tigers-tarik-skubal-game-1-win-calm-competitive/
 
-**Trump Administration Moves to Relax Rules on Climate Superpollutants**\
+**Trump Administration Moves to Relax Rules on Climate Super Pollutants**\
 `The E.P.A. plan would allow grocery stores, air-conditioning manufacturers and others to phase out hydrofluorocarbons in cooling equipment more slowly.`\
 https://nytimes.com/2025/09/30/climate/trump-hydrofluorocarbons-hfcs.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6678111/2025/09/30/commanders-vs-chargers-stream-ho
 **Morgan Stanley Scores an Easier ‘Stress Test’ From the Fed**\
 `The investment bank had appealed more stringent oversight in dreaded annual exams, and the Federal Reserve agreed.`\
 https://nytimes.com/2025/09/30/business/morgan-stanley-stress-test-fed.html
-
-**How to watch Titans at Cardinals: Time, TV, streaming**\
-`Find out how to watch the Tennessee Titans play the Arizona Cardinals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6678109/2025/09/30/titans-vs-cardinals-stream-how-to-watch-oct-5/
-
-**Explaining a Democratic Talking Point About the Shutdown**\
-`Democrats have misused budget jargon to assail the Republican budget proposal as “dirty,” but the bill is considered “clean.”`\
-https://nytimes.com/2025/09/30/us/politics/democrats-government-shutdown-healthcare.html
 
