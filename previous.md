@@ -1,3 +1,15 @@
+**11 Classic Paul Thomas Anderson Needle Drops**\
+`Hear songs from “One Battle After Another,” “Inherent Vice” and several of the director’s other films.`\
+https://nytimes.com/2025/09/30/arts/music/amplifier-newsletter-paul-thomas-anderson.html
+
+**Congo’s Former President Sentenced to Death in Absentia**\
+`Joseph Kabila, who was president of the Democratic Republic of Congo for 18 years, was convicted of treason by a court in Kinshasa.`\
+https://nytimes.com/2025/09/30/world/africa/congo-president-kabila-sentenced-to-death.html
+
+**U.S. Officials See Hostage Release as Promising Sign for Deal With Taliban**\
+`The path to any agreement is complex for several reasons, including the Taliban’s demand that a man accused of being a Qaeda operative be released from Guantánamo Bay.`\
+https://nytimes.com/2025/09/30/world/asia/trump-afghanistan-hostages.html
+
 **Upon Further Review: Lions run game vs. Browns front was NFL's best chess match**\
 `One of Sunday’s most exciting clashes was the chess match between the Detroit Lions' run game and the Cleveland Browns' defensive front.`\
 https://nytimes.com/athletic/6675667/2025/09/30/upon-further-review-lions-run-game-browns-front-chess-match/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/30/us/politics/jeff-landry-louisiana-national-guard.
 **Scoop City: Five takeaways ahead of Week 5**\
 `Was choosing J.J. McCarthy over Sam Darnold a mistake? Do the Browns field the league's best defense? Unpacking five trends. `\
 https://nytimes.com/athletic/6677054/2025/09/30/five-nfl-takeaways-week-5-fantasy-football-waivers-scoop-city/
-
-**Spurs end relationship with Rothschild & Co as club 'not for sale'**\
-`The Premier League club say they do not need the multinational merchant bank’s financial advice`\
-https://nytimes.com/athletic/6676957/2025/09/30/tottenham-hotspur-rothschild-sale/
-
-**For Kevin Stefanski, making a Browns QB change this early isn't so simple**\
-`With injuries along the O-line and an underwhelming group of pass catchers, Cleveland's offensive problems go beyond just the quarterback.`\
-https://nytimes.com/athletic/6676415/2025/09/30/browns-qb-depth-chart-joe-flacco-dillon-gabriel/
-
-**N.Y.C. Subway and Bus Fares Will Rise to $3 in January**\
-`The increase, up from $2.90, will take effect after the city’s transit system ends sales of the MetroCard. Other fares and tolls will also rise.`\
-https://nytimes.com/2025/09/30/nyregion/nyc-subway-bus-fare-price-increase.html
 
