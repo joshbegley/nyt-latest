@@ -1,3 +1,7 @@
+**‘Distressing’ Uses of the President’s Power**\
+`Readers respond to an editorial about President Trump’s troubling use of executive power in the Venezuelan boat strikes. Also: Social Security woes; the importance of Black colleges.`\
+https://nytimes.com/2025/09/30/opinion/trump-venezuela-boat-attacks.html
+
 **Super Bowl odds: Buffalo builds sizable lead while the second tier shrinks**\
 `The Bills are gaining separation as the favorite to win the Super Bowl while the Chiefs made a move this week.`\
 https://nytimes.com/athletic/6676861/2025/09/30/super-bowl-odds-bills-chiefs-eagles/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6676861/2025/09/30/super-bowl-odds-bills-chiefs-eag
 `Experts at the Athens Democracy Forum this week will explore the challenges to democracy, from artificial intelligence and subversion to complacency and inequality.`\
 https://nytimes.com/2025/09/30/world/europe/democracy-athens-forum-discontent.html
 
-**“Letter from Senator Warren and Representative Waters” “Letter from Senator Warren and Representative Waters” “Letter from Senator Warren and Representative Waters” “Letter from Senator Warren and Representative Waters” Letter From Senator Warren and Representative Waters**\
+**Letter From Senator Warren and Representative Waters**\
 `Elizabeth Warren letter to Chairman Scott and Chairman Hill`\
 https://nytimes.com/interactive/2025/09/30/us/warren-letter-930.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/30/dining/nyc-restaurant-news.html
 **A Novice Defense Secretary Lectures the Brass on What It Takes to Win**\
 `Senior officers, summoned from around the world, are entrusted to manage complex military operations. They got a lecture on fitness and grooming standards.`\
 https://nytimes.com/2025/09/30/us/politics/hegseth-military-officers.html
-
-**Bulls media day: Matas Buzelis talks a big game, Coby White's future and more**\
-`"I’m gonna learn something new every day," said Buzelis. "I think that’s how you grow as a person.” `\
-https://nytimes.com/athletic/6675849/2025/09/30/bulls-media-day-matas-buzelis-coby-white-future/
 
