@@ -1,3 +1,7 @@
+**How Cubs team leaders took charge to help turn around a struggling offense**\
+`The timing of it all could prove to be critical as the Cubs enter the postseason once again looking like a strong offensive group.`\
+https://nytimes.com/athletic/6674936/2025/09/29/chicago-cubs-team-leaders-offense-turnaround/
+
 **As SCORE Act regains momentum, Senate critics launch new college sports bill**\
 `Just as college sports' most vocal skeptics of the SCORE Act decided to pledge their support for the bill, another bill is being introduced.`\
 https://nytimes.com/athletic/6674856/2025/09/29/college-sports-bills-congress-score-safe-act/

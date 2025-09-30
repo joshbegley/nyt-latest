@@ -1,3 +1,7 @@
+**How Cubs team leaders took charge to help turn around a struggling offense**\
+`The timing of it all could prove to be critical as the Cubs enter the postseason once again looking like a strong offensive group.`\
+https://nytimes.com/athletic/6674936/2025/09/29/chicago-cubs-team-leaders-offense-turnaround/
+
 **As SCORE Act regains momentum, Senate critics launch new college sports bill**\
 `Just as college sports' most vocal skeptics of the SCORE Act decided to pledge their support for the bill, another bill is being introduced.`\
 https://nytimes.com/athletic/6674856/2025/09/29/college-sports-bills-congress-score-safe-act/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6675034/2025/09/29/michigan-state-vs-nebraska-strea
 **How to watch Miami (FL) at Florida State: Time, TV, streaming**\
 `Find out how to watch the Miami (FL) Hurricanes play the Florida State Seminoles, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6675026/2025/09/29/miami-fl-vs-florida-state-stream-how-to-watch-oct-4/
-
-**How to watch Texas Tech at Houston: Time, TV, streaming**\
-`Find out how to watch the Texas Tech Red Raiders play the Houston Cougars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6675019/2025/09/29/texas-tech-vs-houston-stream-how-to-watch-oct-4/
 

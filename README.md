@@ -1,3 +1,7 @@
+**What we learned about Cooper Flagg, Kyrie Irving and more at Mavericks media day**\
+`Flagg "can do everything on the floor" according to Anthony Davis. But will the rookie be a starter?`\
+https://nytimes.com/athletic/6674858/2025/09/29/cooper-flagg-mavericks-media-day-nba/
+
 **How Cubs team leaders took charge to help turn around a struggling offense**\
 `The timing of it all could prove to be critical as the Cubs enter the postseason once again looking like a strong offensive group.`\
 https://nytimes.com/athletic/6674936/2025/09/29/chicago-cubs-team-leaders-offense-turnaround/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6674832/2025/09/29/cleveland-guardians-prospect-cha
 **How to watch Michigan State at Nebraska: Time, TV, streaming**\
 `Find out how to watch the Michigan State Spartans play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6675034/2025/09/29/michigan-state-vs-nebraska-stream-how-to-watch-oct-4/
-
-**How to watch Miami (FL) at Florida State: Time, TV, streaming**\
-`Find out how to watch the Miami (FL) Hurricanes play the Florida State Seminoles, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6675026/2025/09/29/miami-fl-vs-florida-state-stream-how-to-watch-oct-4/
 
