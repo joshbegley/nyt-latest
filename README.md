@@ -1,3 +1,7 @@
+**U.S. Deports Planeload of Iranians After Deal With Tehran, Officials Say**\
+`The deportation flight to Iran is the most stark push yet by the Trump administration to deport migrants even to places with harsh human rights conditions.`\
+https://nytimes.com/2025/09/30/world/middleeast/us-iran-deportation-flight.html
+
 **As Jonathan Kuminga deadline nears, Jimmy Butler offers experience and advice**\
 `Butler, drawing from experience with his own contract disputes, can empathize with Kuminga's tough situation. `\
 https://nytimes.com/athletic/6675456/2025/09/30/jimmy-butler-jonathan-kuminga-media-day/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6673105/2025/09/30/football-chants-ryder-cup/
 **Osimhen, Ederson, Asensio, and a total outlay of €348m. Why are Turkish clubs now spending so big?**\
 `Only the Premier League and the Saudi Pro League had higher net spends than Turkey's Super Lig this summer. What is going on?`\
 https://nytimes.com/athletic/6613235/2025/09/30/turkey-seuper-lig-spending-2025/
-
-**How should Tuchel use Arsenal's English contingent? - England 2026 World Cup watch**\
-`The England manager is spoilt for choice in north London while south London could offer up a future captain...`\
-https://nytimes.com/athletic/6673120/2025/09/30/england-arsenal-tuchel-saka-eze/
 
