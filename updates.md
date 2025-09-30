@@ -1,3 +1,7 @@
+**Dolphins WR Tyreek Hill carted off vs. Jets with leg injury**\
+`Hill's left leg bent awkwardly as he was tackled after making a catch in the third quarter of "Monday Night Football."`\
+https://nytimes.com/athletic/6675251/2025/09/29/tyreek-hill-leg-injury-dolphins/
+
 **Trump’s Peace Plan: Perhaps Impossible, but Never More Necessary**\
 `Donald Trump’s peace plan will be like solving a diplomatic Rubik’s cube every day — while all the enemies of the deal try to scramble it.`\
 https://nytimes.com/2025/09/29/opinion/trump-israel-gaza-palestinian-peace-plan.html

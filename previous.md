@@ -1,3 +1,7 @@
+**Dolphins WR Tyreek Hill carted off vs. Jets with leg injury**\
+`Hill's left leg bent awkwardly as he was tackled after making a catch in the third quarter of "Monday Night Football."`\
+https://nytimes.com/athletic/6675251/2025/09/29/tyreek-hill-leg-injury-dolphins/
+
 **Trump’s Peace Plan: Perhaps Impossible, but Never More Necessary**\
 `Donald Trump’s peace plan will be like solving a diplomatic Rubik’s cube every day — while all the enemies of the deal try to scramble it.`\
 https://nytimes.com/2025/09/29/opinion/trump-israel-gaza-palestinian-peace-plan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/29/us/politics/lally-weymouth-dead.html
 **Chargers leaky pass protection, now without Joe Alt, is putting Justin Herbert at risk**\
 `Alt could land on injured reserve after suffering a high ankle sprain. Meanwhile, Herbert is taking hits at a record rate. `\
 https://nytimes.com/athletic/6674821/2025/09/29/chargers-joe-alt-injury-offensive-line-struggles/
-
-**Could Guardians prospect Chase DeLauter debut in October? Here's what to expect**\
-`Rosters are officially due at 10 a.m. Tuesday, and if the Guardians include DeLauter, he'll make his long-awaited debut in the postseason.`\
-https://nytimes.com/athletic/6674832/2025/09/29/cleveland-guardians-prospect-chase-delauter-october-debut-primer/
 

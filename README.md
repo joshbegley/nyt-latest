@@ -1,3 +1,7 @@
+**Weekly Student News Quiz: Bad Bunny, Typhoon, Broadway**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/09/29/learning/30StudentNewsQuizLN.html
+
 **Dolphins WR Tyreek Hill carted off vs. Jets with leg injury**\
 `Hill's left leg bent awkwardly as he was tackled after making a catch in the third quarter of "Monday Night Football."`\
 https://nytimes.com/athletic/6675251/2025/09/29/tyreek-hill-leg-injury-dolphins/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/29/us/politics/government-shutdown-trump-vance-congr
 **Lally Weymouth, Globe-Trotting Reporter and Scion of Graham Family, Dies at 82**\
 `The daughter of Washington Post publisher Katharine Graham, she secured hard-to-land interviews with foreign leaders but found few opportunities for a leadership role.`\
 https://nytimes.com/2025/09/29/us/politics/lally-weymouth-dead.html
-
-**Chargers leaky pass protection, now without Joe Alt, is putting Justin Herbert at risk**\
-`Alt could land on injured reserve after suffering a high ankle sprain. Meanwhile, Herbert is taking hits at a record rate. `\
-https://nytimes.com/athletic/6674821/2025/09/29/chargers-joe-alt-injury-offensive-line-struggles/
 
