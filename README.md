@@ -1,3 +1,15 @@
+**gws-chappell-roan-damsels-dangerous-things-tour**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/chappell-roan-damsels-dangerous-things-tour
+
+**What I'm hearing about the Penguins: Sergei Murashov, Harrison Brunicke, trade rumors**\
+`When could some of the Penguins' brightest prospects make their NHL debuts? Plus: Where are the trades?`\
+https://nytimes.com/athletic/6676253/2025/09/30/penguins-trade-rumors-karlsson-rust-rakell/
+
+**Chris Koras, head for Klutch Sports Baseball, suddenly resigns: Sources**\
+`Klutch's list of clients includes Rafael Devers, Devin Williams, Andrés Giménez, Gabriel Moreno, Starling Marte and Freddy Peralta.`\
+https://nytimes.com/athletic/6673777/2025/09/30/klutch-sports-chris-koras-resigns/
+
 **gws-trinity-church-organ**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/trinity-church-organ
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6675729/2025/09/30/black-monday-mlb-playoffs-the-wi
 **Lionel Richie Tells the Whole Story**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/truly-lionel-richie
-
-**Mets must revise their thinking on rotation, defense to avoid mistakes of 2025**\
-`The Mets clearly need change, but not in a knee-jerk kind of way. Their future requires hard decisions.`\
-https://nytimes.com/athletic/6675105/2025/09/30/mets-david-stearns-carlos-mendoza/
-
-**College Football Playoff odds: 9 teams currently favored to make 12-team field**\
-`After a number of big games last week, the odds to win the national title only saw minor movement, but playoff odds were more volatile.`\
-https://nytimes.com/athletic/6674035/2025/09/30/college-football-playoff-odds-alabama-ole-miss-oregon/
-
-**The Protection True Whitaker Wears Around Her Neck**\
-`A collection of rosaries and cross necklaces keeps Ms. Whitaker, a star of the upcoming HBO series “I Love LA,” connected to her late mother.`\
-https://nytimes.com/2025/09/30/style/the-protection-true-whitaker-wears-around-her-neck.html
 
