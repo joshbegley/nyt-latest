@@ -1,3 +1,11 @@
+**Trump Gave the Military’s Brass a Rehashed Speech. Until Minute 44.**\
+`On an almost daily basis, thousands of words pour forth from the president’s mouth. Sometimes, he tucks in a wildly revealing insight about the direction he is taking the country.`\
+https://nytimes.com/2025/09/30/us/politics/trump-military-brass-speech.html
+
+**Is Milan the Best-Dressed Place in the World?**\
+`During Milan Fashion Week, our photographer, Simbarashe Cha, roamed the city’s streets capturing an electric mix of clothes that made a strong argument for Milan’s reputation as a destination with unrivaled style.`\
+https://nytimes.com/video/style/100000010431063/milan-fashion-week-street-style.html
+
 **Conor Coady was supposed to be integral at Wrexham. His role has shifted already**\
 `The former Wolves and Leicester defender was perhaps Wrexham's highest-profile signing so far - but he has very quickly been sidelined`\
 https://nytimes.com/athletic/6672768/2025/09/30/conor-coady-wrexham-ward-leicester-parkinson/

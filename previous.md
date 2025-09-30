@@ -1,3 +1,11 @@
+**Trump Gave the Military’s Brass a Rehashed Speech. Until Minute 44.**\
+`On an almost daily basis, thousands of words pour forth from the president’s mouth. Sometimes, he tucks in a wildly revealing insight about the direction he is taking the country.`\
+https://nytimes.com/2025/09/30/us/politics/trump-military-brass-speech.html
+
+**Is Milan the Best-Dressed Place in the World?**\
+`During Milan Fashion Week, our photographer, Simbarashe Cha, roamed the city’s streets capturing an electric mix of clothes that made a strong argument for Milan’s reputation as a destination with unrivaled style.`\
+https://nytimes.com/video/style/100000010431063/milan-fashion-week-street-style.html
+
 **Conor Coady was supposed to be integral at Wrexham. His role has shifted already**\
 `The former Wolves and Leicester defender was perhaps Wrexham's highest-profile signing so far - but he has very quickly been sidelined`\
 https://nytimes.com/athletic/6672768/2025/09/30/conor-coady-wrexham-ward-leicester-parkinson/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6677658/2025/09/30/cubs-padres-tigers-guardians-sco
 **WNBA players say CBA negotiations are stalling as deadline nears**\
 `One player called the discussions "combative."`\
 https://nytimes.com/athletic/6677805/2025/09/30/wnba-cba-negotiations-stalling/
-
-**Marilyn Knowlden, Child Actress of 1930s Hollywood, Dies at 99**\
-`A spontaneous screen test led to a career that lasted into her teens. She appeared alongside stars like Bette Davis and Katharine Hepburn, played piano with Chico Marx and danced with Charles Laughton.`\
-https://nytimes.com/2025/09/30/movies/marilyn-knowlden-dead.html
-
-**The Activists and the Anime**\
-`We take a closer look at Gen Z protests raging against the political establishment, from Nepal to Madagascar.`\
-https://nytimes.com/2025/09/30/world/anime-protests-flag-moldova-nepal-indonesia-gaza.html
 
