@@ -1,3 +1,7 @@
+**Trump Administration Defunds Federal Watchdog Office**\
+`Two senators called for “immediate action” to release money the White House blocked for the federal office that oversees dozens of inspectors general.`\
+https://nytimes.com/2025/09/30/us/politics/trump-federal-watchdog-funding.html
+
 **Hear Trinity Church’s New Organ, 10 Years in the Making**\
 `In Lower Manhattan, Trinity Church’s organ was heavily damaged in the Sept. 11 attacks. A new organ, which took nearly 10 years to build and design, was recently unveiled.`\
 https://nytimes.com/video/arts/100000010430758/trinity-church-organ.html
