@@ -1,3 +1,7 @@
+**Cubs-Padres takeaways: Back-to-back homers power Cubs over Padres in Game 1**\
+`The last time the Cubs hit back-to-back homers in the playoffs was during their 2016 championship season.`\
+https://nytimes.com/athletic/6677658/2025/09/30/cubs-padres-tigers-guardians-score-results-takeaways-mlb-playoffs/
+
 **WNBA players say CBA negotiations are stalling as deadline nears**\
 `One player called the discussions "combative."`\
 https://nytimes.com/athletic/6677805/2025/09/30/wnba-cba-negotiations-stalling/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/30/world/europe/paris-berlin-night-train-canceled.ht
 **Galatasaray 1 Liverpool 0 - Did dropping Salah work? How was Alisson injured? How worried should Slot be?**\
 `Analysis of Liverpool's Champions League game away to Galatasaray`\
 https://nytimes.com/athletic/6670255/2025/09/30/galatasaray-liverpool-highlights/
-
-**Lawrence Moten, Syracuse's all-time leading scorer and Big East star of '90s, dies at 53**\
-`Moten held the Big East's career points record for 25 years.`\
-https://nytimes.com/athletic/6677734/2025/09/30/lawrence-moten-death-syracuse-basketball/
 

@@ -1,3 +1,7 @@
+**Cubs-Padres takeaways: Back-to-back homers power Cubs over Padres in Game 1**\
+`The last time the Cubs hit back-to-back homers in the playoffs was during their 2016 championship season.`\
+https://nytimes.com/athletic/6677658/2025/09/30/cubs-padres-tigers-guardians-score-results-takeaways-mlb-playoffs/
+
 **WNBA players say CBA negotiations are stalling as deadline nears**\
 `One player called the discussions "combative."`\
 https://nytimes.com/athletic/6677805/2025/09/30/wnba-cba-negotiations-stalling/
