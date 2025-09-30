@@ -1,3 +1,11 @@
+**The Economic Stakes of a Government Shutdown**\
+`Investors have shaken off threats of damage from shutdowns before. But federal layoffs, pauses in economic data and more could make this time different.`\
+https://nytimes.com/2025/09/30/business/dealbook/federal-shutdown-economic-stakes.html
+
+**As Warriors' eventful offseason ends, their old guard once again carries their fate**\
+`Jonathan Kuminga's contract status was the center of attention this offseason. Monday was a reminder who'll run the show for these Warriors.`\
+https://nytimes.com/athletic/6675442/2025/09/30/golden-state-warriors-stephen-curry-draymond-green-jimmy-butler-media-day/
+
 **The Pulse: An MLB frenzy begins today**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6673820/2025/09/30/mlb-playoffs-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6675904/2025/09/30/dan-james-injury-update-leeds/
 **Collapse of School Traps Students in Indonesia**\
 `Rescuers raced to save students after a boarding school in East Java caved in. At least three students were killed, officials said, and dozens more were injured.`\
 https://nytimes.com/video/world/asia/100000010429694/collapse-of-school-traps-students-in-indonesia.html
-
-**Cassie Asks Judge to Weigh Her Suffering When Sentencing Sean Combs**\
-`Mr. Combs, who was convicted of transportation to engage in prostitution, is set to be sentenced on Friday. Prosecutors asked the judge to sentence him to more than 11 years in prison.`\
-https://nytimes.com/2025/09/30/arts/music/cassie-sean-combs-diddy-sentencing.html
-
-**Third-down struggles plaguing Cowboys defense as they search for answers**\
-`The Cowboys are struggling to stop opponents on third down and allowing a lot of points, but believe their issues are "fixable."`\
-https://nytimes.com/athletic/6675825/2025/09/30/cowboys-defense-struggles-third-down-points/
 
