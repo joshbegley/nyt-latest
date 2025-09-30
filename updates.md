@@ -1,3 +1,7 @@
+**Thomas Perry Dies at 78; Writer of Popular, Unconventional Thrillers**\
+`His many novels, including the prizewinning “The Butcher’s Boy” and the Jane Whitefield series, can have readers rooting for both protagonist and antagonist.`\
+https://nytimes.com/2025/09/30/books/thomas-perry-dead.html
+
 **Republicans and Democrats Trade Blame as Shutdown Looms**\
 `The federal government barreled toward a shutdown on Tuesday ahead of a midnight deadline, as President Trump and Republicans in Congress remained deadlocked with Democrats in a spending standoff.`\
 https://nytimes.com/video/us/politics/100000010431419/us-government-shutdown.html
