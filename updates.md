@@ -1,3 +1,11 @@
+**Deadlock Grows Uglier as Congress Heads Toward Shutdown**\
+`President Trump’s posting of a deepfake video mocking and insulting the top two Democrats in Congress underscored the lack of progress toward any deal to extend funding.`\
+https://nytimes.com/2025/09/30/us/politics/government-shutdown-deadlock.html
+
+**OfCorsica! (Pun Intended) Is a Vacation That Became a Restaurant**\
+`Miru opens above City Winery on Pier 57, Bar Lumière finally sees the light of day and more restaurant news.`\
+https://nytimes.com/2025/09/30/dining/nyc-restaurant-news.html
+
 **A Novice Defense Secretary Lectures the Brass on What It Takes to Win**\
 `Senior officers, summoned from around the world, are entrusted to manage complex military operations. They got a lecture on fitness and grooming standards.`\
 https://nytimes.com/2025/09/30/us/politics/hegseth-military-officers.html
