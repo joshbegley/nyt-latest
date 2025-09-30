@@ -1,9 +1,13 @@
+**U.N. Security Council Approves Larger Security Force to Fight Gangs in Haiti**\
+`The vote on Tuesday would establish a force of up to 5,500 soldiers and police officers. It was unclear what countries were willing to contribute personnel.`\
+https://nytimes.com/2025/09/30/world/americas/un-haiti-security-gangs.html
+
 **Trump Says a Deal Is Close With Harvard**\
-`The agreement, if finalized, would follow months of public acrimony as the school grappled with losing billions in federal dollars as a result of defying President Trump.`\
+`The agreement, if finalized, would follow months of grappling over federal dollars as the Trump administration seeks to cow the university.`\
 https://nytimes.com/2025/09/30/us/trump-harvard-deal.html
 
 **NHL agents on the Kirill Kaprizov deal and its 'gravitational effect' on the future of salaries**\
-`Seven agents gave The Athletic their thoughts on how the record deal that "will have a dramatic impact on how the best players get paid."`\
+`Seven agents gave The Athletic their thoughts on how the record deal "will have a dramatic impact on how the best players get paid."`\
 https://nytimes.com/athletic/6677127/2025/09/30/nhl-agents-kirill-kaprizov-free-agency/
 
 **Raiders LT Kolton Miller heading to IR with ankle injury: Reports**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/30/us/politics/trump-federal-watchdog-funding.html
 **Hear Trinity Church’s New Organ, 10 Years in the Making**\
 `In Lower Manhattan, Trinity Church’s organ was heavily damaged in the Sept. 11 attacks. A new organ, which took nearly 10 years to build and design, was recently unveiled.`\
 https://nytimes.com/video/arts/100000010430758/trinity-church-organ.html
-
-**Earthquake in Philippines Kills at Least 20, Officials Say**\
-`The 6.9-magnitude earthquake shook the province of Cebu, home to 3.2 million people, just before 10 p.m. local time.`\
-https://nytimes.com/2025/09/30/world/asia/philippines-earthquake-cebu.html
 
