@@ -1,3 +1,11 @@
+**Trump’s Peace Plan: Perhaps Impossible, but Never More Necessary**\
+`Donald Trump’s peace plan will be like solving a diplomatic Rubik’s cube every day — while all the enemies of the deal try to scramble it.`\
+https://nytimes.com/2025/09/29/opinion/trump-israel-gaza-palestinian-peace-plan.html
+
+**What we learned about Cooper Flagg, Kyrie Irving and more at Mavericks media day**\
+`Flagg "can do everything on the floor," according to Anthony Davis. But will the rookie be a starter?`\
+https://nytimes.com/athletic/6674858/2025/09/29/cooper-flagg-mavericks-media-day-nba/
+
 **How Cubs team leaders took charge to help turn around a struggling offense**\
 `The timing of it all could prove to be critical as the Cubs enter the postseason once again looking like a strong offensive group.`\
 https://nytimes.com/athletic/6674936/2025/09/29/chicago-cubs-team-leaders-offense-turnaround/
