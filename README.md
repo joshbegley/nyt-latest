@@ -1,5 +1,9 @@
+**Trump’s Peace Plan: Perhaps Impossible, but Never More Necessary**\
+`Donald Trump’s peace plan will be like solving a diplomatic Rubik’s cube every day — while all the enemies of the deal try to scramble it.`\
+https://nytimes.com/2025/09/29/opinion/trump-israel-gaza-palestinian-peace-plan.html
+
 **What we learned about Cooper Flagg, Kyrie Irving and more at Mavericks media day**\
-`Flagg "can do everything on the floor" according to Anthony Davis. But will the rookie be a starter?`\
+`Flagg "can do everything on the floor," according to Anthony Davis. But will the rookie be a starter?`\
 https://nytimes.com/athletic/6674858/2025/09/29/cooper-flagg-mavericks-media-day-nba/
 
 **How Cubs team leaders took charge to help turn around a struggling offense**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6674821/2025/09/29/chargers-joe-alt-injury-offensiv
 **Could Guardians prospect Chase DeLauter debut in October? Here's what to expect**\
 `Rosters are officially due at 10 a.m. Tuesday, and if the Guardians include DeLauter, he'll make his long-awaited debut in the postseason.`\
 https://nytimes.com/athletic/6674832/2025/09/29/cleveland-guardians-prospect-chase-delauter-october-debut-primer/
-
-**How to watch Michigan State at Nebraska: Time, TV, streaming**\
-`Find out how to watch the Michigan State Spartans play the Nebraska Cornhuskers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6675034/2025/09/29/michigan-state-vs-nebraska-stream-how-to-watch-oct-4/
 
