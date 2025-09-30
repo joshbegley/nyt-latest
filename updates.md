@@ -1,3 +1,11 @@
+**The Economic Stakes of a Government Shutdown**\
+`Investors have shaken off threats of damage from shutdowns before. But federal layoffs, pauses in economic data and more could make this time different.`\
+https://nytimes.com/2025/09/30/business/dealbook/federal-shutdown-economic-stakes.html
+
+**As Warriors' eventful offseason ends, their old guard once again carries their fate**\
+`Jonathan Kuminga's contract status was the center of attention this offseason. Monday was a reminder who'll run the show for these Warriors.`\
+https://nytimes.com/athletic/6675442/2025/09/30/golden-state-warriors-stephen-curry-draymond-green-jimmy-butler-media-day/
+
 **The Pulse: An MLB frenzy begins today**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6673820/2025/09/30/mlb-playoffs-the-pulse/
