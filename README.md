@@ -1,3 +1,7 @@
+**How to watch Reds at Dodgers: Game 1 Time, TV, streaming**\
+`Find out how to watch the Cincinnati Reds play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6675715/2025/09/30/reds-vs-dodgers-stream-how-to-watch-sept-30/
+
 **Word of the Day: permutation**\
 `This word has appeared in 17 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/09/30/learning/word-of-the-day-permutation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6668615/2025/09/30/crystal-palace-tyrick-mitchell-e
 **An oral history of the Miracle of Istanbul**\
 `As Liverpool return to the Turkish city to face Galatasaray, the full story of what happened on the club's most famous visit`\
 https://nytimes.com/athletic/6673311/2025/09/30/liverpool-miracle-of-istanbul-galatasaray/
-
-**Long throws? Parking the bus? How footballers really feel about being asked to 'play ugly'**\
-`Pragmatism can be effective but how do those on the pitch feel about being asked to play in a less aesthetically-pleasing way?`\
-https://nytimes.com/athletic/6654665/2025/09/30/anti-football-what-players-think/
 
