@@ -1,3 +1,15 @@
+**U.N. Security Council Approves Larger Security Force to Fight Gangs in Haiti**\
+`The vote on Tuesday would establish a force of up to 5,500 soldiers and police officers. It was unclear what countries were willing to contribute personnel.`\
+https://nytimes.com/2025/09/30/world/americas/un-haiti-security-gangs.html
+
+**Trump Says a Deal Is Close With Harvard**\
+`The agreement, if finalized, would follow months of grappling over federal dollars as the Trump administration seeks to cow the university.`\
+https://nytimes.com/2025/09/30/us/trump-harvard-deal.html
+
+**NHL agents on the Kirill Kaprizov deal and its 'gravitational effect' on the future of salaries**\
+`Seven agents gave The Athletic their thoughts on how the record deal "will have a dramatic impact on how the best players get paid."`\
+https://nytimes.com/athletic/6677127/2025/09/30/nhl-agents-kirill-kaprizov-free-agency/
+
 **Trump Says a Deal Is Close With Harvard**\
 `The agreement, if finalized, would follow months of public acrimony as the school grappled with losing billions in federal dollars as a result of defying President Trump.`\
 https://nytimes.com/2025/09/30/us/trump-harvard-deal.html
