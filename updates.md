@@ -1,3 +1,7 @@
+**U.S. Deports Planeload of Iranians After Deal With Tehran, Officials Say**\
+`The deportation flight to Iran is the most stark push yet by the Trump administration to deport migrants even to places with harsh human rights conditions.`\
+https://nytimes.com/2025/09/30/world/middleeast/us-iran-deportation-flight.html
+
 **As Jonathan Kuminga deadline nears, Jimmy Butler offers experience and advice**\
 `Butler, drawing from experience with his own contract disputes, can empathize with Kuminga's tough situation. `\
 https://nytimes.com/athletic/6675456/2025/09/30/jimmy-butler-jonathan-kuminga-media-day/
