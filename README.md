@@ -1,3 +1,15 @@
+**Super Bowl odds: Buffalo builds sizable lead while the second tier shrinks**\
+`The Bills are gaining separation as the favorite to win the Super Bowl while the Chiefs made a move this week.`\
+https://nytimes.com/athletic/6676861/2025/09/30/super-bowl-odds-bills-chiefs-eagles/
+
+**Discontent Has Put Democracy in Jeopardy**\
+`Experts at the Athens Democracy Forum this week will explore the challenges to democracy, from artificial intelligence and subversion to complacency and inequality.`\
+https://nytimes.com/2025/09/30/world/europe/democracy-athens-forum-discontent.html
+
+**“Letter from Senator Warren and Representative Waters” “Letter from Senator Warren and Representative Waters” “Letter from Senator Warren and Representative Waters” “Letter from Senator Warren and Representative Waters” Letter From Senator Warren and Representative Waters**\
+`Elizabeth Warren letter to Chairman Scott and Chairman Hill`\
+https://nytimes.com/interactive/2025/09/30/us/warren-letter-930.html
+
 **Submit your questions for Mike DeFabo's Steelers mailbag**\
 `Pittsburgh heads into the bye week after an impressive win over the Vikings in Dublin.`\
 https://nytimes.com/athletic/6676986/2025/09/30/steelers-mailbag-ireland-game/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/09/30/us/politics/hegseth-military-officers.html
 **Bulls media day: Matas Buzelis talks a big game, Coby White's future and more**\
 `"I’m gonna learn something new every day," said Buzelis. "I think that’s how you grow as a person.” `\
 https://nytimes.com/athletic/6675849/2025/09/30/bulls-media-day-matas-buzelis-coby-white-future/
-
-**How Many Federal Workers Could Be Furloughed in a Government Shutdown?**\
-`If the government shuts down on Wednesday, hundreds of thousands of workers will be sent home without pay, disrupting a wide range of federal programs. Here’s what we know so far.`\
-https://nytimes.com/interactive/2025/09/30/us/politics/government-shutdown-furloughs.html
-
-**Tracking Tropical Storm Octave**\
-`See the likely path and wind arrival times for Octave`\
-https://nytimes.com/interactive/2025/09/30/weather/octave-map-path-tracker.html
-
-**Nick Sirianni believes A.J. Brown wants to be an Eagle despite cryptic messages**\
-`Brown’s low stat output is not an isolated issue, as the Eagles’ passing offense ranks 31st in the NFL in yards per game with 138.`\
-https://nytimes.com/athletic/6676761/2025/09/30/eagles-nick-sirianni-aj-brown-social/
 
