@@ -1,3 +1,7 @@
+**Judge Reinstates Over 500 Voice of America Journalists and Staff**\
+`The reversal of firings is the latest defeat that the Trump administration has incurred in its effort to close down the federal news organization.`\
+https://nytimes.com/2025/09/29/us/politics/voa-voice-of-america-layoffs.html
+
 **Jets-Dolphins takeaways: Miami secures first win, Tyreek Hill injured**\
 `The Jets drop to 0-4 ahead of their Week 5 matchup against the Dallas Cowboys, while the 1-3 Dolphins take on the Carolina Panthers.`\
 https://nytimes.com/athletic/6675068/2025/09/29/jets-dolphins-score-result-takeaways-monday-night-football/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6675274/2025/09/29/mlb-2025-viewership-numbers/
 **Rangers, manager Bruce Bochy mutually agree to end managerial tenure**\
 `Behind Bochy, the Rangers won their first World Series in franchise history in 2023.`\
 https://nytimes.com/athletic/6675276/2025/09/29/texas-rangers-bruce-bochy-part-ways/
-
-**‘Punch’ Review: After a Fatal Blow, an Unlikely Connection**\
-`James Graham’s Broadway play tells the true story of how restorative justice brought together a young man who threw a fatal punch and the parents of the victim.`\
-https://nytimes.com/2025/09/29/theater/punch-review-james-graham.html
 
