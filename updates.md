@@ -1,3 +1,7 @@
+**How to watch Reds at Dodgers: Game 1 Time, TV, streaming**\
+`Find out how to watch the Cincinnati Reds play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6675715/2025/09/30/reds-vs-dodgers-stream-how-to-watch-sept-30/
+
 **Word of the Day: permutation**\
 `This word has appeared in 17 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/09/30/learning/word-of-the-day-permutation.html
