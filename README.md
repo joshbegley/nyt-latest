@@ -1,4 +1,16 @@
-**Giannis endorses Bucks' offseason makeover, opens up on offseason thinking**\
+**MLB touts big viewership, attendance numbers over 2025 season regular season**\
+`MLB said that its viewership and attendance numbers were up for the third straight season. `\
+https://nytimes.com/athletic/6675274/2025/09/29/mlb-2025-viewership-numbers/
+
+**Rangers, manager Bruce Bochy mutually agree to end managerial tenure**\
+`Behind Bochy, the Rangers won their first World Series in franchise history in 2023.`\
+https://nytimes.com/athletic/6675276/2025/09/29/texas-rangers-bruce-bochy-part-ways/
+
+**‘Punch’ Review: After a Fatal Blow, an Unlikely Connection**\
+`James Graham’s Broadway play tells the true story of how restorative justice brought together a young man who threw a fatal punch and the parents of the victim.`\
+https://nytimes.com/2025/09/29/theater/punch-review-james-graham.html
+
+**Giannis endorses Bucks' offseason makeover, opens up on summer mindset**\
 `Regarding his future, the two-time MVP was clear: "I want to compete with the best, and I want to win another championship."`\
 https://nytimes.com/athletic/6674312/2025/09/29/giannis-antetokounmpo-bucks-future-nba-media-day/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6674936/2025/09/29/chicago-cubs-team-leaders-offens
 **As SCORE Act regains momentum, Senate critics launch new college sports bill**\
 `Just as college sports' most vocal skeptics of the SCORE Act decided to pledge their support for the bill, another bill is being introduced.`\
 https://nytimes.com/athletic/6674856/2025/09/29/college-sports-bills-congress-score-safe-act/
-
-**U.S. Sues Pro-Palestinian Demonstrators Who Protested Outside Synagogue**\
-`The Justice Department sued participants in a confrontation at a New Jersey synagogue that devolved into violence. An official said there might be more such cases to come.`\
-https://nytimes.com/2025/09/29/nyregion/face-act-palestinian-suit-new-jersey.html
-
-**Iowa Superintendent Arrested by ICE Loses State License and Is Placed on Unpaid Leave**\
-`Immigration officials arrested Ian Roberts, the Des Moines Public Schools superintendent, on Friday and said he was in the country illegally.`\
-https://nytimes.com/2025/09/29/us/des-moines-superintendent-ice-roberts.html
-
-**Trump’s Meeting With Democrats Yields No Progress, With Shutdown a Day Away**\
-`President Trump met with Republican and Democratic leaders at the White House, but they emerged without a deal, as Democrats seek more health care funding.`\
-https://nytimes.com/2025/09/29/us/politics/government-shutdown-trump-vance-congress.html
 
