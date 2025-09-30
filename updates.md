@@ -1,3 +1,7 @@
+**Rep. David Schweikert Will Run for Governor in Arizona**\
+`Mr. Schweikert’s entry into a competitive Republican primary for governor means his battleground House seat will be open, giving Democrats a prime opportunity.`\
+https://nytimes.com/2025/09/30/us/politics/arizona-governor-schweikert-hobbs.html
+
 **Trump Refers to Racial Slur During Address to the Military**\
 `“There are two n-words, and you can’t use either of them,” the president said, after saying the word nuclear was not one to “throw around.”`\
 https://nytimes.com/2025/09/30/us/politics/trump-racial-slur-military-speech.html

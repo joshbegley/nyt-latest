@@ -1,3 +1,7 @@
+**Rep. David Schweikert Will Run for Governor in Arizona**\
+`Mr. Schweikert’s entry into a competitive Republican primary for governor means his battleground House seat will be open, giving Democrats a prime opportunity.`\
+https://nytimes.com/2025/09/30/us/politics/arizona-governor-schweikert-hobbs.html
+
 **Trump Refers to Racial Slur During Address to the Military**\
 `“There are two n-words, and you can’t use either of them,” the president said, after saying the word nuclear was not one to “throw around.”`\
 https://nytimes.com/2025/09/30/us/politics/trump-racial-slur-military-speech.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6676467/2025/09/30/nfl-best-bets-week-5-dart-nix/
 **Fight Over Hidden Report on Trump Documents Case Goes to Appeals Court**\
 `Meanwhile, previously secret passages in court filings over grand jury fights in two cases against the president have been revealed.`\
 https://nytimes.com/2025/09/30/us/politics/trump-documents-case-report.html
-
-**Three Great Documentaries to Stream**\
-`In this month’s picks, a sharp portrait of a political leader, an intriguing essay film from a renowned novelist and a sensitive look at the impact a gamer had on the lives of his friends.`\
-https://nytimes.com/2025/09/30/movies/documentaries-streaming.html
 
