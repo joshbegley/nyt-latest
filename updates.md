@@ -1,3 +1,7 @@
+**Saliba - the boyhood Arsenal fan who convinced Arteta and has gone on to exceed expectations**\
+`The 24-year-old is a central part of Arsenal's defensive unit, along with Gabriel, and should be for years to come after signing a new deal`\
+https://nytimes.com/athletic/6672793/2025/09/30/william-saliba-contract-arteta/
+
 **Jaylen Brown prepares Celtics for 'new era' with Al Horford gone and Jayson Tatum injured**\
 `"I'm trying to expedite that chemistry building, that trust building," says Jaylen Brown.`\
 https://nytimes.com/athletic/6674672/2025/09/30/celtics-jaylen-brown-al-horford-jayson-tatum-culture/

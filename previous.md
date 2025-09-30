@@ -1,3 +1,7 @@
+**Saliba - the boyhood Arsenal fan who convinced Arteta and has gone on to exceed expectations**\
+`The 24-year-old is a central part of Arsenal's defensive unit, along with Gabriel, and should be for years to come after signing a new deal`\
+https://nytimes.com/athletic/6672793/2025/09/30/william-saliba-contract-arteta/
+
 **Jaylen Brown prepares Celtics for 'new era' with Al Horford gone and Jayson Tatum injured**\
 `"I'm trying to expedite that chemistry building, that trust building," says Jaylen Brown.`\
 https://nytimes.com/athletic/6674672/2025/09/30/celtics-jaylen-brown-al-horford-jayson-tatum-culture/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/30/polls/trump-approval-poll.html
 **Do Shoppers Care About Who Designs the Collections?**\
 `Some on Via Monte Napoleone, Milan’s busiest fashion street, were blissfully ignorant. Others were more cautious.`\
 https://nytimes.com/2025/09/30/style/milan-shopping-gucci-demna.html
-
-**Here’s How a Government Shutdown Works**\
-`Federal funding will lapse this week if Congress does not act. Areas across the government will be affected.`\
-https://nytimes.com/2025/09/30/us/politics/government-shutdown-congress.html
 
