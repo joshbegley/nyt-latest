@@ -1,3 +1,15 @@
+**The data that illustrates Shohei Ohtani's baseball card domination**\
+`Baseball card collectors remain focused on Ohtani far more than any other active player `\
+https://nytimes.com/athletic/6675369/2025/09/30/shohei-ohtani-ken-griffey-baseball-cards/
+
+**Dembele's dominance, a single Slot vote and how Bonmati won: Dissecting the Ballon d'Or voting**\
+`The breakdown of the votes for the main awards have been released, so what do they tell us?`\
+https://nytimes.com/athletic/6674663/2025/09/30/ballon-dor-voting-takeaways/
+
+**The War Business Is Undergoing a ‘Big Revolution’**\
+`Russia’s war on Ukraine changed the course of a generation of start-ups and investors that have applied a new business model to Europe’s military buildup.`\
+https://nytimes.com/2025/09/30/business/economy/defense-spending-startups.html
+
 **Rep. David Schweikert Will Run for Governor in Arizona**\
 `Mr. Schweikert’s entry into a competitive Republican primary for governor means his battleground House seat will be open, giving Democrats a prime opportunity.`\
 https://nytimes.com/2025/09/30/us/politics/arizona-governor-schweikert-hobbs.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6670811/2025/09/30/jurgen-klopp-manager-future/
 **How to watch Vikings vs. Browns: Time, TV, streaming**\
 `Find out how to watch the Minnesota Vikings play the Cleveland Browns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6676689/2025/09/30/vikings-vs-browns-stream-how-to-watch-oct-5/
-
-**Atletico's Simeone given one-match ban after Liverpool red card**\
-`Liverpool have also received a €4,000 ($4,698; £3,490) fine after fans threw objects during the 3-2 victory at Anfield.`\
-https://nytimes.com/athletic/6676469/2025/09/30/diego-simeone-atletico-madrid-liverpool-suspension/
-
-**NFL Week 5 best bets: Fading Dart and Nix and showing belief in Jacksonville**\
-`Austin Mock's NFL Projection Model has helped him to back-to-back winning weeks and a strong start to the season. Can he keep it up?`\
-https://nytimes.com/athletic/6676467/2025/09/30/nfl-best-bets-week-5-dart-nix/
-
-**Fight Over Hidden Report on Trump Documents Case Goes to Appeals Court**\
-`Meanwhile, previously secret passages in court filings over grand jury fights in two cases against the president have been revealed.`\
-https://nytimes.com/2025/09/30/us/politics/trump-documents-case-report.html
 
