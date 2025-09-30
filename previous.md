@@ -1,4 +1,24 @@
-**Schools Superintendent in Iowa Plans to Resign After ICE Arrest**\
+**Fantasy football market share report: Rookies get fed ... except for Matthew Golden**\
+`Michael Salfino mines the touches and targets data from Week 4, and expresses pessimism that Matthew Golden can live up to his draft value.`\
+https://nytimes.com/athletic/6677016/2025/09/30/fantasy-football-market-share-week-5-matthew-golden/
+
+**NBC, YouTube TV dispute approaches midnight deadline ahead of football slate**\
+`An extended blackout would mean no "Sunday Night Football" for YouTube TV subscribers, who would also miss Ohio State and Notre Dame games.`\
+https://nytimes.com/athletic/6676971/2025/09/30/nbc-youtube-tv-sports-blackout-potential/
+
+**Beer Cans and Kegs Spill Onto California Highway After Crash**\
+`A multivehicle collision caused beer cans and kegs to spill onto a freeway about 20 miles northeast of downtown Los Angeles, snarling traffic during the morning commute.`\
+https://nytimes.com/video/us/100000010430779/beer-spill-highway.html
+
+**Broncos' Sean Payton supports tush push ahead of matchup with Eagles**\
+`Payton expressed admiration for what he calls "a well-run quarterback sneak."`\
+https://nytimes.com/athletic/6677210/2025/09/30/broncos-sean-payton-tush-push-eagles/
+
+**Clemson's 1-3 start 'a coaching failure,' says Dabo Swinney, as Tigers prepare for UNC**\
+`“I'm not pointing a finger, I'm pointing a thumb. It starts with me,” said Swinney.`\
+https://nytimes.com/athletic/6677189/2025/09/30/clemson-dabo-swinney-unc/
+
+**Schools Superintendent in Iowa, Arrested by ICE, Plans to Resign**\
 `A lawyer for Ian Roberts, superintendent of Des Moines Public Schools, announced that Dr. Roberts would step down.`\
 https://nytimes.com/2025/09/30/us/des-moines-ian-roberts-resign.html
 
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6677183/2025/09/30/napheesa-collier-lynx-cathy-enge
 **Angels will seek new manager for 2026; Ron Washington's option not picked up**\
 `Interim manager Ray Montgomery won't be retained as manager but could remain in the organization in a different capacity.`\
 https://nytimes.com/athletic/6677176/2025/09/30/los-angeles-angels-manager-ron-washington-ray-montgomery/
-
-**11 Classic Paul Thomas Anderson Needle Drops**\
-`Hear songs from “One Battle After Another,” “Inherent Vice” and several of the director’s other films.`\
-https://nytimes.com/2025/09/30/arts/music/amplifier-newsletter-paul-thomas-anderson.html
-
-**Congo’s Former President Sentenced to Death in Absentia**\
-`Joseph Kabila, who was president of the Democratic Republic of Congo for 18 years, was convicted of treason by a court in Kinshasa.`\
-https://nytimes.com/2025/09/30/world/africa/congo-president-kabila-sentenced-to-death.html
-
-**U.S. Officials See Hostage Release as Promising Sign for Deal With Taliban**\
-`The path to any agreement is complex for several reasons, including the Taliban’s demand that a man accused of being a Qaeda operative be released from Guantánamo Bay.`\
-https://nytimes.com/2025/09/30/world/asia/trump-afghanistan-hostages.html
-
-**Upon Further Review: Lions run game vs. Browns front was NFL's best chess match**\
-`Robert Mays and Derrik Klassen of "The Athletic Football Show" dive into the battle that defined the Cleveland-Detroit matchup in Week 4.`\
-https://nytimes.com/athletic/6675667/2025/09/30/upon-further-review-lions-run-game-browns-front-chess-match/
-
-**Trump and Pfizer Announce Deal to Lower Some Medicaid Drug Prices**\
-`The administration said the drug company would sell many of its products to the government insurance program for lower-income Americans at prices that align with those in Europe.`\
-https://nytimes.com/2025/09/30/health/trump-pfizer-trumprx-medications.html
 
