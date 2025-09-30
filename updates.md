@@ -1,3 +1,11 @@
+**Chaim Bloom puts Cardinals' focus on long-term: 'We can't take shortcuts and we won't'**\
+`Bloom laid out his thoughts on the Sonny Gray trade outlook, as well as what's next for Jordan Walker and Nolan Gorman.`\
+https://nytimes.com/athletic/6677488/2025/09/30/cardinals-mlb-chaim-bloom-plan/
+
+**These Six Charts Tell You Exactly What’s at Stake in This Shutdown**\
+`What the looming shutdown is really about: Republicans trying to repeal Obamacare.`\
+https://nytimes.com/2025/09/30/opinion/government-shutdown-republican-obamacare.html
+
 **How Every Senator Voted to Avoid a Government Shutdown**\
 `The Senate failed to reach the 60 votes necessary to avoid a shutdown.`\
 https://nytimes.com/interactive/2025/09/30/us/senate-shutdown-vote.html

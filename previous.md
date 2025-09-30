@@ -1,3 +1,11 @@
+**Chaim Bloom puts Cardinals' focus on long-term: 'We can't take shortcuts and we won't'**\
+`Bloom laid out his thoughts on the Sonny Gray trade outlook, as well as what's next for Jordan Walker and Nolan Gorman.`\
+https://nytimes.com/athletic/6677488/2025/09/30/cardinals-mlb-chaim-bloom-plan/
+
+**These Six Charts Tell You Exactly What’s at Stake in This Shutdown**\
+`What the looming shutdown is really about: Republicans trying to repeal Obamacare.`\
+https://nytimes.com/2025/09/30/opinion/government-shutdown-republican-obamacare.html
+
 **How Every Senator Voted to Avoid a Government Shutdown**\
 `The Senate failed to reach the 60 votes necessary to avoid a shutdown.`\
 https://nytimes.com/interactive/2025/09/30/us/senate-shutdown-vote.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6678127/2025/09/30/lions-vs-bengals-stream-how-to-w
 **How to watch Buccaneers at Seahawks: Time, TV, streaming**\
 `Find out how to watch the Tampa Bay Buccaneers play the Seattle Seahawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6678119/2025/09/30/buccaneers-vs-seahawks-stream-how-to-watch-oct-5/
-
-**How to watch Commanders at Chargers: Time, TV, streaming**\
-`Find out how to watch the Washington Commanders play the Los Angeles Chargers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6678111/2025/09/30/commanders-vs-chargers-stream-how-to-watch-oct-5/
-
-**Morgan Stanley Scores an Easier ‘Stress Test’ From the Fed**\
-`The investment bank had appealed more stringent oversight in dreaded annual exams, and the Federal Reserve agreed.`\
-https://nytimes.com/2025/09/30/business/morgan-stanley-stress-test-fed.html
 
