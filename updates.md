@@ -1,3 +1,7 @@
+**Ron Washington says he was let go over performance, not health: 'I have to accept that'**\
+`“Sometimes you’ve got to make chicken salad out of chicken s—,” Washington said of the challenges of managing a roster not equipped to win.`\
+https://nytimes.com/athletic/6677427/2025/09/30/angels-ron-washington-let-go-reasons/
+
 **Tigers-Guardians takeaways: Tarik Skubal's dominance gives Tigers the series lead**\
 `The Tigers ace struck out 14 and the offense did just enough - with the help of some shoddy Cleveland defense - to give Detroit the edge.`\
 https://nytimes.com/athletic/6677434/2025/09/30/tigers-guardians-score-results-takeaways-mlb-playoffs/
