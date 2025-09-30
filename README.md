@@ -1,3 +1,7 @@
+**What We Know About ChatGPT’s New Parental Controls**\
+`OpenAI said parents can set time and content limits on accounts, and receive notifications if ChatGPT detects signs of potential self-harm.`\
+https://nytimes.com/2025/09/30/technology/chatgpt-teen-parental-controls-openai.html
+
 **NHL agent poll: How should Connor McDavid approach his next contract?**\
 `The Athletic canvassed 10 agents to get their thoughts on what McDavid needs to consider about his NHL future.`\
 https://nytimes.com/athletic/6673624/2025/09/30/connor-mcdavid-contract-nhl-agent-poll/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6674736/2025/09/30/bears-bye-week-to-do-list/
 **Pistons media day: Cade Cunningham's aspirations, no restrictions on Jaden Ivey**\
 `Cunningham and the Detroit Pistons are ready to move on from last season's success and take the next step in their development. `\
 https://nytimes.com/athletic/6675315/2025/09/30/pistons-media-day-cade-cunningham-nba-2025/
-
-**What happened to the Jared Goff-Jameson Williams connection? Analyzing what went wrong**\
-`Goff and Williams connected on just 2 of 8 throws and missed on several potential big plays against the Browns.`\
-https://nytimes.com/athletic/6674525/2025/09/30/lions-jameson-williams-jared-goff-browns-analysis/
 
