@@ -1,3 +1,7 @@
+**All you need to know about the Lakers, one sentence at a time**\
+`EL SEGUNDO, Calif.`\
+https://nytimes.com/athletic/6675629/2025/09/30/lakers-media-day-quotes-nba/
+
 **What we learned (and didn't learn) on NBA media day, from Luka to Giannis to Kawhi**\
 `Jokić a Nugget "forever," Giannis' will to win and Kawhi Leonard's "conspiracy" response highlight NBA media days.`\
 https://nytimes.com/athletic/6675855/2025/09/30/nba-media-day-2025-kawhi-leonard-investigation-luka-doncic/
