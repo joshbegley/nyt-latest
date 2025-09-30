@@ -1,3 +1,7 @@
+**Stephen Colbert: ‘Our Nation Is at War with Oregon. It’s Waregon.’**\
+`The “Late Show” host quipped about Trump’s latest target and plan to deploy federal troops to a “war-ravaged” Pacific Northwest.`\
+https://nytimes.com/2025/09/30/arts/television/stephen-colbert-oregon-war.html
+
 **Breaking down the positives from Nuno Espirito Santo's first game in charge of West Ham**\
 `Nuno's first outing as West Ham head coach saw his team buck the trend of self-destruction as they came back from a goal down `\
 https://nytimes.com/athletic/6674041/2025/09/30/west-ham-nuno-everton-diouf-summerville-potts/
