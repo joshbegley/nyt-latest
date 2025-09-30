@@ -1,3 +1,11 @@
+**Beer Bust: Crash Sends Kegs and Cans Onto California Freeway, Snarling Traffic**\
+`The crash, which occurred early Tuesday morning in the San Gabriel Valley region of Los Angeles County, closed two lanes on the freeway, according to the authorities.`\
+https://nytimes.com/2025/09/30/us/beer-kegs-crash-california-freeway.html
+
+**Democrats Use Empty House to Shame G.O.P. Ahead of Shutdown**\
+`Hundreds of Democrats showed up in the House chamber for a routine session, seeking to highlight the absence of Republicans as a government funding deadline loomed.`\
+https://nytimes.com/2025/09/30/us/politics/trumprx-drugs-website.html
+
 **MLB Playoff Format: Bracket, Wild Card Series, Best-of Structure**\
 `MLB unveiled a new postseason format in 2022 to make the playoffs more interesting for teams hoping to make a deep run.`\
 https://nytimes.com/athletic/6676759/2025/09/30/mlb-playoffs-format-bracket-wild-card-series-best-of-structure/
