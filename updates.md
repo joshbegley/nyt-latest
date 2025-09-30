@@ -1,3 +1,11 @@
+**As Ohio State's defense dominates, is the offense ready to hit another gear?**\
+`What I learned about Ohio State from rewatching the top-ranked Buckeyes' film from a 24-6 win at Washington.`\
+https://nytimes.com/athletic/6674359/2025/09/30/ohio-state-washington-sayin-defense-minnesota/
+
+**Grant Newsome is eager to prove he has the answers for Michigan's offensive line**\
+`Nine years ago against Wisconsin, a brutal injury ended Newsome's playing career. Now his Michigan O-line is at a pivotal moment.`\
+https://nytimes.com/athletic/6674179/2025/09/30/grant-newsome-michigan-offensive-line-wisconsin/
+
 **Phillies' energizer Harrison Bader embraces the 'gift' of meaningful baseball**\
 `With his good energy and big contributions on both sides of the ball, Bader has become beloved in less than two months of playing in Philly.`\
 https://nytimes.com/athletic/6674940/2025/09/30/harrison-bader-phillies-energy/
