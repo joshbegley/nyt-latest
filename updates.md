@@ -1,3 +1,11 @@
+**Bobby Cain, Barrier Breaker in School Desegregation, Dies at 85**\
+`In 1957, facing down white mobs, he became the first Black student to graduate from a public high school in the South under a court mandate.`\
+https://nytimes.com/2025/09/30/us/bobby-cain-dead.html
+
+**What does A.J. Brown want? Making sense of the Eagles WR's cryptic tweet**\
+`The receiver has had limited production in three of the Eagles’ first four games. It would make sense if Brown wants better production.`\
+https://nytimes.com/athletic/6676879/2025/09/30/eagles-aj-brown-tweet-contract-trade/
+
 **Governor Wants National Guard Troops Deployed in Louisiana**\
 `Gov. Jeff Landry’s request to the Trump administration highlights how Republican-led states are embracing the president’s push to use the Guard to crack down on crime.`\
 https://nytimes.com/2025/09/30/us/politics/jeff-landry-louisiana-national-guard.html

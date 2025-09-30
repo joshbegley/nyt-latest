@@ -1,3 +1,11 @@
+**Bobby Cain, Barrier Breaker in School Desegregation, Dies at 85**\
+`In 1957, facing down white mobs, he became the first Black student to graduate from a public high school in the South under a court mandate.`\
+https://nytimes.com/2025/09/30/us/bobby-cain-dead.html
+
+**What does A.J. Brown want? Making sense of the Eagles WR's cryptic tweet**\
+`The receiver has had limited production in three of the Eagles’ first four games. It would make sense if Brown wants better production.`\
+https://nytimes.com/athletic/6676879/2025/09/30/eagles-aj-brown-tweet-contract-trade/
+
 **Governor Wants National Guard Troops Deployed in Louisiana**\
 `Gov. Jeff Landry’s request to the Trump administration highlights how Republican-led states are embracing the president’s push to use the Guard to crack down on crime.`\
 https://nytimes.com/2025/09/30/us/politics/jeff-landry-louisiana-national-guard.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6676748/2025/09/30/tyreek-hill-injury-nfl-trade-dea
 **The War in Gaza Needs to End**\
 `The war needs to end, for the sake of the Gazan people and for the sake of Israel and its security.`\
 https://nytimes.com/2025/09/30/opinion/gaza-war-end-peace-plan.html
-
-**Until Saturday: Petrino shenanigans timeline, updated**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/6677050/2025/09/30/bobby-petrino-history-until-saturday/
-
-**CELLRESEARCH ADPOST Q3 25 #2.1**\
-`CELLRESEARCH ADPOST Q3 25 #2.1`\
-https://nytimes.com/paidpost/cellresearch-adpost-q3-25-22/cellresearch-adpost-q3-25-21/cellresearch-adpost-q3-25-21.html
 
