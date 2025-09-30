@@ -1,40 +1,40 @@
-**Car Bomb Kills at Least 10 in Pakistan’s Balochistan Province**\
-`The blast outside the local headquarters of a Pakistani paramilitary force in the city of Quetta could be heard miles away.`\
-https://nytimes.com/2025/09/30/world/africa/quetta-pakistan-blast.html
+**Phillies' energizer Harrison Bader embraces the 'gift' of meaningful baseball**\
+`With his good energy and big contributions on both sides of the ball, Bader has become beloved in less than two months of playing in Philly.`\
+https://nytimes.com/athletic/6674940/2025/09/30/harrison-bader-phillies-energy/
 
-**Carlos Alcaraz beats Taylor Fritz to win Japan Open and push for year-end world No. 1**\
-`Alcaraz kept his composure in moments of frustration against Fritz, who had beaten him in their previous meeting at the Laver Cup.`\
-https://nytimes.com/athletic/6675895/2025/09/30/carlos-alcaraz-taylor-fritz-japan-open-result-analysis/
+**The 3 big trades that helped power Reds into the playoffs: 'We wouldn’t be here'**\
+`Ke’Bryan Hayes and other new arrivals bolstered a club that arrives to the postseason party feeling confident. `\
+https://nytimes.com/athletic/6675599/2025/09/30/reds-mlb-playoffs-trade-deadline/
 
-**Trump’s Plan to End the War in Gaza**\
-`We look at Trump’s plan and American public opinion polls on the war.`\
-https://nytimes.com/2025/09/30/briefing/trumps-plan-to-end-the-war-in-gaza.html
+**Key Flyers defensemen are impressing, but the battle for depth spots is not**\
+`With a new coach to impress, the top two pairings look reasonably set. The bottom pairing, however, could be an issue.`\
+https://nytimes.com/athletic/6675384/2025/09/30/flyers-preseason-defense-york-drysdale-ginning-juulsen/
 
-**What We Know About ChatGPT’s New Parental Controls**\
-`OpenAI said parents can set time and content limits on accounts, and receive notifications if ChatGPT detects signs of potential self-harm.`\
-https://nytimes.com/2025/09/30/technology/chatgpt-teen-parental-controls-openai.html
+**Q&A: How the Blue Jays' minor-league system contributed to East title**\
+`"They have wound up having success when given those opportunities," player development director Joe Sclafani says of the minor leaguers.`\
+https://nytimes.com/athletic/6674455/2025/09/30/blue-jays-prospects-joe-sclafani/
 
-**NHL agent poll: How should Connor McDavid approach his next contract?**\
-`The Athletic canvassed 10 agents to get their thoughts on what McDavid needs to consider about his NHL future.`\
-https://nytimes.com/athletic/6673624/2025/09/30/connor-mcdavid-contract-nhl-agent-poll/
+**Cam Whitmore's hometown team is giving him a second chance to prove he belongs in the NBA**\
+`After a disappointing two seasons with Houston, Whitmore is getting a second chance with Washington. `\
+https://nytimes.com/athletic/6674802/2025/09/30/cam-whitmore-washington-wizards/
 
-**Leitch: Why hasn't storming the field  (or court) been stopped? Because it's still awesome**\
-`There are reasonable arguments to be made against field storming. But let's be honest: It speaks to what we love about college sports.`\
-https://nytimes.com/athletic/6674570/2025/09/30/college-football-field-storming-virginia-fsu/
+**Behind Anthony Stolarz’s push to become a rising NHL star in his 30s**\
+`Before last year, Stolarz had never started 30 games in an NHL season. In Year 2 with the Leafs, he's aiming for genuine stardom.`\
+https://nytimes.com/athletic/6674125/2025/09/30/maple-leafs-anthony-stolarz-goalie-age-health/
 
-**Why Chiefs offense had its classic look in win vs. Ravens: Week 4 film review**\
-`Also, how Jaxson Dart sparked the Giants offense, and the Falcons' big offensive bounce back.`\
-https://nytimes.com/athletic/6674328/2025/09/30/chiefs-falcons-giants-week-4-film-review/
+**Surging Noah Laba continues to impress: Rangers stock up, stock down report**\
+`The regular season begins in one week, and plenty of Rangers are still vying for roster spots.`\
+https://nytimes.com/athletic/6675416/2025/09/30/rangers-stock-watch-preseason-laba/
 
-**Bruins systems check: Explaining the new D scheme, 4-righty PP, hybrid-diamond PK**\
-`The 2025-26 Bruins will still play zone defense in front of their goalies, but at times they will now switch to man-to-man coverage.`\
-https://nytimes.com/athletic/6674404/2025/09/30/bruins-systems-defensive-scheme-marco-sturm/
+**Why Arkansas, Oklahoma State could seek next head coaches in state of Texas**\
+`Rhett Lashlee could be the favorite at Arkansas. GJ Kinne, Eric Morris and Jeff Traylor would be attractive options for Oklahoma State.`\
+https://nytimes.com/athletic/6675120/2025/09/30/arkansas-oklahoma-coaching-candidates-rhett-lashlee/
 
-**What Elections in Moldova Mean for Europe**\
-`In winning parliamentary elections, Moldova’s incumbent party has kept the country on track to join the European Union, overcoming Russia’s efforts to influence the election. Jeanna Smialek, reporting from Chisinau, explains why the stakes were so high.`\
-https://nytimes.com/video/world/europe/100000010423796/what-moldova-elections-mean-for-europe.html
+**Ten best things I saw in college football recruiting over the weekend**\
+`Xavier Edwards broke Derrick Henry's state of Florida record with eight rushing touchdowns on Friday night.`\
+https://nytimes.com/athletic/6674218/2025/09/30/college-football-recruiting-thoughts-week-5/
 
-**Israelis and Gazans React to U.S. Peace Proposal**\
-`Some Israelis were optimistic and some Palestinians in Gaza were doubtful after President Trump introduced a cease-fire plan for Gaza alongside Prime Minister Benjamin Netanyahu of Israel.`\
-https://nytimes.com/video/world/middleeast/100000010429494/trump-netanyahu-israel-gaza-war.html
+**Could Riq Woolen be traded? Benched? How the Seahawks could shuffle the secondary**\
+`With Josh Jobe's emergence, Derion Kendrick impressing and Nick Emmanwori nearing a return, Woolen could be the odd man out.`\
+https://nytimes.com/athletic/6674811/2025/09/30/riq-woolen-trade-rumors-seahawks/
 
