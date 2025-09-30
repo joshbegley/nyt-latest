@@ -1,3 +1,11 @@
+**A Novice Defense Secretary Lectures the Brass on What It Takes to Win**\
+`Senior officers, summoned from around the world, are entrusted to manage complex military operations. They got a lecture on fitness and grooming standards.`\
+https://nytimes.com/2025/09/30/us/politics/hegseth-military-officers.html
+
+**Bulls media day: Matas Buzelis talks a big game, Coby White's future and more**\
+`"I’m gonna learn something new every day," said Buzelis. "I think that’s how you grow as a person.” `\
+https://nytimes.com/athletic/6675849/2025/09/30/bulls-media-day-matas-buzelis-coby-white-future/
+
 **How Many Federal Workers Could Be Furloughed in a Government Shutdown?**\
 `If the government shuts down on Wednesday, hundreds of thousands of workers will be sent home without pay, disrupting a wide range of federal programs. Here’s what we know so far.`\
 https://nytimes.com/interactive/2025/09/30/us/politics/government-shutdown-furloughs.html
@@ -18,7 +26,7 @@ https://nytimes.com/2025/09/30/us/politics/federal-charges-grand-jury-dc.html
 `Marmol’s job status was in question due to the Cardinals' front office change.`\
 https://nytimes.com/athletic/6676555/2025/09/30/oli-marmol-cardinals-manager-2026/
 
-**WNBA reaches 11-year media rights deal to stream games on Versant**\
+**WNBA reaches 11-year media rights deal to broadcast games on Versant**\
 `The deal will have USA Network airing 50+ WNBA games annually, including a still-to-be-defined number of playoff games in select years`\
 https://nytimes.com/athletic/6676766/2025/09/30/wnba-media-rights-stream-versant-2026/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/30/nyregion/citifield-hard-rock-casino-queens.html
 **Jerry Jones vs. Micah Parsons becoming the modern day Jerry vs. Jimmy**\
 `Jones responded Tuesday to Parsons' postgame comments Sunday after the Cowboys and Packers played to a 40-40 tie.`\
 https://nytimes.com/athletic/6676610/2025/09/30/cowboys-jerry-jones-micah-parsons-situation/
-
-**Valencia file lawsuit against Netflix over Vinicius Junior documentary**\
-`The ‘Baila, Vini’ film first aired in May and centres on the Brazil international’s calendar year in 2024.`\
-https://nytimes.com/athletic/6676112/2025/09/30/valencia-vinicius-junior-netflix-documentary/
-
-**'Kind of otherworldly': Kirill Kaprizov has earned his star reputation — and payday**\
-`"He does all this stuff and it doesn’t even faze him. He’s not wowed by greatness. Because he is great, you know?”`\
-https://nytimes.com/athletic/6443468/2025/09/30/kirill-kaprizov-minnesota-wild-contract-reputation/
 
