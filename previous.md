@@ -3,7 +3,7 @@
 https://nytimes.com/2025/09/30/world/asia/students-trapped-indonesia-school-collapse.html
 
 **Breaking down the positives from Nuno Espirito Santo's first game in charge of West Ham**\
-`Nuno's first outing as West Ham head coach saw his team buck the trend as they came back from a goal down `\
+`Nuno's first outing as West Ham head coach saw his team buck the trend of self-destruction as they came back from a goal down `\
 https://nytimes.com/athletic/6674041/2025/09/30/west-ham-nuno-everton-diouf-summerville-potts/
 
 **After Vesuvius Buried Pompeii, Some Survivors Moved Back In**\
