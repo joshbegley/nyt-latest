@@ -1,3 +1,7 @@
+**Kimmel and Colbert, Joined in New York, Show a United Front**\
+`The two late-night hosts shared stories on each other’s shows on Tuesday about their recent turmoil, and some criticism of President Trump.`\
+https://nytimes.com/2025/09/30/business/media/kimmel-colbert-trump.html
+
 **The playoff buzz around the Cubs is alive at Wrigley Field — and the team feels it, too**\
 `While bagging their first playoff win since 2017, the Cubs also showed the blueprint for how they can keep advancing.`\
 https://nytimes.com/athletic/6678404/2025/09/30/cubs-wrigley-field-game-1-win/
