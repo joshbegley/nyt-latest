@@ -1,3 +1,11 @@
+**More than ever, Ravens need coach John Harbaugh to lead them out of this mess**\
+`While many of his Baltimore teams have righted the ship in the past, this season may represent one of Harbaugh’s biggest challenges yet.`\
+https://nytimes.com/athletic/6677845/2025/10/01/john-harbaugh-ravens-struggles-injuries/
+
+**Yankees had better not dare lose to the Red Sox again**\
+`Manager Aaron Boone paid dearly for not staying with Max Fried in the seventh and inserting Luke Weaver. Now, the Yanks must win (or else).`\
+https://nytimes.com/athletic/6678756/2025/10/01/yankees-red-sox-game-1-wild-card/
+
 **Tony Blair, Tapped by Trump for Gaza Plan, Brings Peace Expertise and Baggage**\
 `After helping negotiate peace in Northern Ireland, the former prime minister’s reputation was tarnished by his role in the U.S.-led invasion of Iraq. Is he stepping into another diplomatic quagmire?`\
 https://nytimes.com/2025/10/01/world/middleeast/tony-blair-gaza-peace-plan.html

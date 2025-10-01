@@ -1,3 +1,7 @@
+**Internet Blackout in Afghanistan Disrupts Daily Life**\
+`A nationwide internet outage in Afghanistan has made it nearly impossible for people to communicate with one another or the outside world and has disrupted banking services and aid distribution.`\
+https://nytimes.com/video/world/asia/100000010432092/internet-blackout-afghanistan-disruption.html
+
 **More than ever, Ravens need coach John Harbaugh to lead them out of this mess**\
 `While many of his Baltimore teams have righted the ship in the past, this season may represent one of Harbaugh’s biggest challenges yet.`\
 https://nytimes.com/athletic/6677845/2025/10/01/john-harbaugh-ravens-struggles-injuries/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6677281/2025/10/01/bruins-dress-code-nhl/
 **The Pulse: Yesterday’s playoff heroics, ranked**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6678819/2025/10/01/wnba-finals-aces-fever-the-pulse/
-
-**TAFC: What's eating Liverpool? Plus: The cost of Manchester United sacking managers**\
-`Today in TAFC: What is going wrong at Liverpool after defeat in the Champions League? Plus: The cost of Manchester United sacking managers`\
-https://nytimes.com/athletic/6679082/2025/10/01/liverpool-champions-league-defeat-galatasaray/
 
