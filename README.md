@@ -1,3 +1,7 @@
+**Kimmel and Colbert, Joined in New York, Show a United Front**\
+`The two late-night hosts shared stories on each other’s shows on Tuesday about their recent turmoil, and some criticism of President Trump.`\
+https://nytimes.com/2025/09/30/business/media/kimmel-colbert-trump.html
+
 **The playoff buzz around the Cubs is alive at Wrigley Field — and the team feels it, too**\
 `While bagging their first playoff win since 2017, the Cubs also showed the blueprint for how they can keep advancing.`\
 https://nytimes.com/athletic/6678404/2025/09/30/cubs-wrigley-field-game-1-win/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6678179/2025/09/30/yankees-red-sox-game-1-al-wild-c
 **A More Polarized Senate Drives Shutdown Gridlock**\
 `With few senators from conservative states in their ranks, Democrats feel less pressure to capitulate, while more conservative Republicans are not inclined to cut a deal.`\
 https://nytimes.com/2025/09/30/us/politics/polarized-senate-shutdown-gridlock.html
-
-**Judge Denies Sean Combs’s Request to Vacate Conviction**\
-`The music mogul will be sentenced on Friday after a jury found him guilty of transporting people for prostitution.`\
-https://nytimes.com/2025/09/30/arts/music/sean-combs-diddy-conviction-stands.html
 
