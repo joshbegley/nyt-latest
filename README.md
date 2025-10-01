@@ -1,3 +1,15 @@
+**Tina Turner Sculpture Joins List of Scorned Statues**\
+`Not everyone loves the new work unveiled in Brownsville, Tenn., but sponsors say they choose to see the bright side of the passionate responses.`\
+https://nytimes.com/2025/10/01/arts/tina-turner-statue-brownsville-tennessee.html
+
+**NFL Week 5 survivor pool picks, strategy: Who to pick if you already burned the Lions**\
+`Our survivor columnists share strategy and their picks for Week 5, with Cardinals over Titans as the top pick.`\
+https://nytimes.com/athletic/6677864/2025/10/01/nfl-week-5-survivor-pool-picks-strategy-cardinals-vikings/
+
+**How AI Is Redefining Personalized Experiences  –  From Coffee to Healthcare**\
+`AI is ushering in an era of hyper-personalization, anticipating needs, guiding choices and empowering smarter, healthier, more connected lives.`\
+https://nytimes.com/paidpost/nasdaq/nasdaq-30110410/how-ai-is-redefining-personalized-experiences-from-coffee-to-healthcare.html
+
 **Reality TV’s Bad Boyfriend Is Angry Again. This Time, He’s Yelling at Gavin Newsom.**\
 `After losing his house in the Palisades fire, Spencer Pratt has gone from the archetype of celebrity emptiness to community activist — and become a magnet for Republican politicians.`\
 https://nytimes.com/2025/10/01/business/economy/spencer-pratt-palisades-fire-gavin-newsom.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6676454/2025/10/01/eva-lys-tennis-player-wta/
 **The Bounce: What a day across the WNBA; previewing the Suns and Hornets**\
 `One of the WNBA's biggest stars had several choice words to share Tuesday. Plus, what to expect in Phoenix and Charlotte?`\
 https://nytimes.com/athletic/6679740/2025/10/01/napheesa-collier-wnba-suns-hornets-nba-preview/
-
-**Supreme Court Allows Lisa Cook to Remain at Fed, for Now**\
-`The justices deferred a decision on the president’s efforts to oust Ms. Cook and instead set oral arguments in the case for January.`\
-https://nytimes.com/2025/10/01/us/politics/supreme-court-lisa-cook-fed.html
-
-**Guardians prospect Chase DeLauter set to make MLB debut in playoffs**\
-`DeLauter will be the sixth player to debut during the playoffs in MLB’s modern era and first since 2020.`\
-https://nytimes.com/athletic/6679784/2025/10/01/guardians-chase-delauter-mlb-debut-playoffs-wild-card/
-
-**Spam and Scams Proliferate in Facebook’s Political Ads**\
-`A new analysis of political advertisers found that the platform profits from ads that include deepfakes and other content prohibited by its own policies.`\
-https://nytimes.com/2025/10/01/technology/facebooks-political-ads-deepfakes-scams.html
 
