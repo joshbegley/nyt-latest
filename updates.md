@@ -1,3 +1,11 @@
+**She Loved Eric Adams. She Kept It a Secret. Now She’s Talking.**\
+`Jasmine Ray, who served at City Hall in a $160,000-a-year job, had an undisclosed romance with Eric Adams years before he became mayor. In her memoir, she describes their relationship.`\
+https://nytimes.com/2025/10/01/nyregion/jasmine-ray-memoir-eric-adams.html
+
+**A.J. Hinch pulled every lever he could find. His weakened Tigers still face elimination**\
+`The Tigers went 1-for-15 with runners in scoring position and pinch-hit for a slumping All-Star in Wednesday's loss to the Guardians.`\
+https://nytimes.com/athletic/6681444/2025/10/01/tigers-aj-hinch-manager-moves-wild-card/
+
 **A.J. Brown clarifies social media post, says he let frustrations 'boil over'**\
 `Brown said he is optimistic the Eagles will figure out how to fix their offense.`\
 https://nytimes.com/athletic/6681413/2025/10/01/aj-brown-eagles-addresses-social-media/
