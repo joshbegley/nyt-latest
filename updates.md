@@ -1,3 +1,7 @@
+**A surging pro sports league suddenly finds itself in crisis: MoneyCall**\
+`More in this week's sports business cheat sheet: MLB surging, Bad Bunny, Senator Paul Finebaum, Chad Powers, Jurgen Klopp and Steve Cohen.`\
+https://nytimes.com/athletic/6680065/2025/10/01/napheesa-collier-wnba-engelbert-moneycall/
+
 **Internet Returns to Afghanistan**\
 `Internet services were restored in Afghanistan on Wednesday after a two-day nationwide blackout that paralyzed the economy and grounded planes. The Taliban government gave no reason for the outage, or the resumption of services.`\
 https://nytimes.com/video/world/asia/100000010432566/internet-returns-to-afghanistan.html
