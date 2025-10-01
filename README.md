@@ -1,9 +1,21 @@
+**How Diamonds Are Born**\
+`Southern Africa’s “desert diamonds,” forged millions of years ago, continue to transform the region today.`\
+https://nytimes.com/paidpost/de-beers/how-diamonds-are-born.html
+
+**‘He needs some help’: When the NHL dress code expires, Bruins players have a clear-cut fashion suspect**\
+`This season, players will have to wear clothes that are “consistent with contemporary fashion norms.” That phrase is open to interpretation.`\
+https://nytimes.com/athletic/6677281/2025/10/01/bruins-dress-code-nhl/
+
+**The Pulse: Yesterday’s playoff heroics, ranked**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6678819/2025/10/01/wnba-finals-aces-fever-the-pulse/
+
 **TAFC: What's eating Liverpool? Plus: The cost of Manchester United sacking managers**\
 `Today in TAFC: What is going wrong at Liverpool after defeat in the Champions League? Plus: The cost of Manchester United sacking managers`\
 https://nytimes.com/athletic/6679082/2025/10/01/liverpool-champions-league-defeat-galatasaray/
 
 **Tottenham confident on agreeing new Bentancur contract**\
-`Bentancur's existing deal had been due to expire in the summer of 2026.`\
+`The Uruguay international's existing deal had been due to expire in the summer of 2026.`\
 https://nytimes.com/athletic/6679116/2025/10/01/tottenham-confident-on-agreeing-new-rodrigo-bentancur-contract/
 
 **Chiefs' outlook after 4 games: Breakout player, best development and updated odds**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6674505/2025/10/01/wizards-170-days-of-offseason-wo
 **Ties in the NFL are unpopular. How about these alternatives instead?**\
 `“Raise your hand if you like ending in a tie? So, nobody,” Bills coach Sean McDermott said this week. We can do better.`\
 https://nytimes.com/athletic/6675307/2025/10/01/nfl-ties-overtime-rules/
-
-**How reinventing F1 engines drives big power gains and 'Piranha Club' strife**\
-`In 2026, F1 engines are being reinvented. Just like in 2014, technological and political uncertainty will follow`\
-https://nytimes.com/athletic/6661191/2025/10/01/2026-new-f1-engines/
-
-**New Jersey Devils 2025-26 season preview: Playoff chances, projected points, roster rankings**\
-`Elite talent is one of many reasons to believe in the Devils, but until they put it all together they should be approached with caution.`\
-https://nytimes.com/athletic/6673267/2025/10/01/new-jersey-devils-2025-26-season-preview/
-
-**Why Jackson Hawes might be the Bills' future at tight end**\
-`The fifth-round pick has becoming the most impactful rookie this season.`\
-https://nytimes.com/athletic/6677533/2025/10/01/jackson-hawes-bills-tight-end-future/
 
