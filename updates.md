@@ -1,3 +1,19 @@
+**Trump and Hegseth: The Quantico Campaign**\
+`Readers sharply criticize the speeches by the president and the secretary of defense. Also: A cynical order from the Supreme Court.`\
+https://nytimes.com/2025/10/01/opinion/trump-hegseth-military.html
+
+**Pujols believed to be Angels owner's top choice for next manager: Sources**\
+`Pujols, 45, spent a decade of his legendary 22-year career with the Angels, and is currently on their payroll.`\
+https://nytimes.com/athletic/6680234/2025/10/01/albert-pujols-angels-manager/
+
+**Congress Remains Deadlocked as Shutdown Enters First Day**\
+`Dueling proposals to extend government funding both failed for the third time in two weeks, as neither party could muster the bipartisan coalition needed to move forward.`\
+https://nytimes.com/2025/10/01/us/politics/congress-shutdown-deadlock.html
+
+**Republicans Demand Information From Firms That Help Set College Prices**\
+`In letters to consultants and the College Board, House and Senate Judiciary leaders invoked antitrust law and asked how student data feeds pricing algorithms.`\
+https://nytimes.com/2025/10/01/business/republicans-college-tuition-consultants.html
+
 **NFL Week 5 confidence picks: Here's why we're fading Chiefs and Bills ATS**\
 `KC Joyner gives his NFL confidence picks, both straight up and against the spread, for every Week 5 game.`\
 https://nytimes.com/athletic/6679161/2025/10/01/nfl-week-5-confidence-picks-chiefs-bills/
