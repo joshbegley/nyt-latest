@@ -1,3 +1,7 @@
+**Kerr 'very comfortable' as he enters final year of his contract**\
+`Kerr, who just turned 60 years old on Sept. 27, is in his 12th season as Warriors coach`\
+https://nytimes.com/athletic/6678675/2025/09/30/warriors-coach-steve-kerr-very-comfortable-as-he-enters-final-year-of-his-contract/
+
 **Judge denies Mountain West's motion to dismiss Pac-12's conference realignment lawsuit**\
 `The lawsuit stems from the poaching fees surrounding the Pac-12 adding five Mountain West schools for next season. `\
 https://nytimes.com/athletic/6678583/2025/09/30/mountain-west-pac-12-realignment-lawsuit/
