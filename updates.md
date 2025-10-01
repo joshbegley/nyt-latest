@@ -1,3 +1,11 @@
+**Spirit embraces 'unique power' in a community hit heavily by U.S. government shutdown**\
+`The team has also allowed chants of "free D.C." during matches in reference to the city's push for statehood.`\
+https://nytimes.com/athletic/6680662/2025/10/01/washington-spirit-free-tickets-government-shutdown/
+
+**Jane Goodall: A Life in Pictures**\
+`The primatologist gained scientific acclaim for her work with chimpanzees and then later used her fame to champion conservation.`\
+https://nytimes.com/2025/10/01/science/jane-goodall-photos.html
+
 **Eagles WR A.J. Brown clarifies intention of social media post**\
 `Brown said he is optimistic the Eagles will figure out how to fix their offense.`\
 https://nytimes.com/athletic/6681413/2025/10/01/aj-brown-eagles-addresses-social-media/
