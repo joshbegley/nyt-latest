@@ -1,3 +1,7 @@
+**City forward Fowler extends deal to 2027**\
+`The 22-year-old was named in last season's PFA WSL team of the year despite picking up an ACL injury in April.`\
+https://nytimes.com/athletic/6679055/2025/10/01/mary-fowler-manchester-city-contract-extension/
+
 **Gaël Monfils to retire from tennis at end of 2026 season: 'I am tremendously at peace'**\
 `Monfils, 39, said that he felt luck and gratitude to have played during such a legendary era of men's tennis.`\
 https://nytimes.com/athletic/6679047/2025/10/01/gael-monfils-tennis-retirement-date-last-tournament/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/01/arts/television/ronny-chieng-shades-pete-hegseths
 **How to watch Padres at Cubs: Game 2 Time, TV, streaming**\
 `Find out how to watch the San Diego Padres play the Chicago Cubs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6678913/2025/10/01/padres-vs-cubs-stream-how-to-watch-oct-1/
-
-**Word of the Day: cohesive**\
-`This word has appeared in 317 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/10/01/learning/word-of-the-day-cohesive.html
 
