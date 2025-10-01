@@ -1,3 +1,7 @@
+**E.P.A. Employees Still Working Despite Shutdown Plan Calling for Furloughs**\
+`E.P.A. employees said that they were working without pay, and that Trump administration officials had not told them how long the funding would last. Union officials said they were “highly confused.”`\
+https://nytimes.com/2025/10/01/us/politics/government-shutdown-epa-working.html
+
 **What’s in Our Queue? ‘KPop Demon Hunters’ and More **\
 `Text by Brian X. Chen`\
 https://nytimes.com/card/2025/10/01/arts/editors-recommendations-kpopdemon
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6680294/2025/10/01/browns-dillon-gabriel-starter-nf
 **How Much Smaller Is the Federal Work Force? Shutdown Plans Offer a Clue.**\
 `The number of federal employees has been trimmed by thousands since President Trump took office, according to contingency plans drawn up by federal agencies.`\
 https://nytimes.com/interactive/2025/10/01/us/trump-government-shutdown-federal-cuts.html
-
-**Jayden Daniels medically cleared, will practice in full for Commanders**\
-`Barring a setback this week, the move should put Daniels in position to start on Sunday against the L.A. Chargers.`\
-https://nytimes.com/athletic/6680256/2025/10/01/jayden-daniels-cleared-knee-practice/
 
