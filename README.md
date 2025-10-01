@@ -1,3 +1,7 @@
+**Repacks bringing in big money in sports card industry despite concerns**\
+`As trading card enthusiasts look for a new thrill, repacks have taken a sizable market share`\
+https://nytimes.com/athletic/6678412/2025/10/01/sports-card-repacks/
+
 **Search Teams Scour Rubble for Survivors of Deadly Philippine Quake**\
 `At least 69 people were killed in Cebu Province by the 6.9-magnitude temblor — including 10 in a village built as a haven for survivors of a previous disaster.`\
 https://nytimes.com/2025/10/01/world/asia/philippines-earthquake-cebu.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/01/us/politics/stocks-gold-government-shutdown.html
 **Biggest transfer portal disappointments after the first month of the season**\
 `Two of the most coveted offensive players in the portal — Makhi Hughes and Jaydn Ott — have combined to rush for 87 yards this season.`\
 https://nytimes.com/athletic/6677094/2025/10/01/transfer-portal-disappointments-hughes-ott-iamaleava/
-
-**Mandel's Mailbag: Is Georgia's golden era over? How far can Trinidad Chambliss take Ole Miss?**\
-`Plus: Is the ACC mediocre and has there ever been a coach like James Franklin?`\
-https://nytimes.com/athletic/6678272/2025/10/01/ole-miss-georgia-trinidad-chambliss/
 
