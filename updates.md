@@ -1,3 +1,11 @@
+**Video Captures Debris Falling From 20-Story Bronx Building**\
+`A public housing building in the Bronx partly collapsed on Wednesday after an explosion in the chimney, officials said. No injuries were reported.`\
+https://nytimes.com/video/nyregion/newyorktoday/100000010433437/bronx-building-explosion.html
+
+**When a Driverless Car Makes an Illegal U-Turn, Who Gets the Ticket?**\
+`California approved a law last year allowing the police to cite autonomous vehicles, but it did not specify any penalties, and the law doesn’t take effect until 2026.`\
+https://nytimes.com/2025/10/01/us/waymo-tickets-san-bruno.html
+
 **'I've always been ready': Dillon Gabriel steps in as Browns' starter drenched in confidence**\
 `With Cleveland's offensive struggles through four weeks, naming Gabriel the starter was a decision coach Kevin Stefanski had to make. `\
 https://nytimes.com/athletic/6680499/2025/10/01/browns-starting-quarterback-dillon-gabriel/
