@@ -1,3 +1,11 @@
+**Oktoberfest Closed Because of Bomb Threat in Munich**\
+`The German authorities said the rare decision was taken after an earlier explosion in a residential area of the city.`\
+https://nytimes.com/2025/10/01/world/europe/oktoberfest-munich-bomb-threat-explosion.html
+
+**Time Running Out for Trapped Students After School Collapse in Indonesia**\
+`Workers rushed to free potential survivors two days after an Islamic boarding school collapsed during a prayer service, killing at least three students.`\
+https://nytimes.com/2025/10/01/world/asia/trapped-school-collapse-indonesia.html
+
 **Fantasy football best and worst matchups of Week 5: Justin Fields, Trey Benson could cook**\
 `KC Joyner reviews Week 5's best and worst matchups to help you with tough start/sit decisions. `\
 https://nytimes.com/athletic/6675891/2025/10/01/fantasy-football-week-5-matchups-best-worst-fields/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/01/learning/locking-in.html
 **Shutdown Puts a Divided Fed in a Perilous Position**\
 `Some policymakers at the central bank are in a rush to lower interest rates after the Federal Reserve’s first cut this year, while others are urging caution.`\
 https://nytimes.com/2025/10/01/business/federal-reserve-shutdown.html
-
-**The ‘Thursday Murder Club’ Author Wants Us to Rethink Aging**\
-`Richard Osman, the author of a beloved murder mystery series, discusses the revolutionary act of growing old.`\
-https://nytimes.com/2025/10/01/opinion/richard-osman-aging.html
-
-**For New York Taxpayers, the Check’s in the Mail**\
-`The state is sending out “inflation refund” checks of up to $400. Gov. Kathy Hochul pushed the program.`\
-https://nytimes.com/2025/10/01/nyregion/inflation-refund-checks-ny.html
 
