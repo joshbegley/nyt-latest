@@ -1,3 +1,7 @@
+**Republicans Demand Information From Firms That Help Set College Tuition**\
+`In letters to consultants and the College Board, House and Senate Judiciary leaders invoked antitrust law and asked how student data feeds pricing algorithms.`\
+https://nytimes.com/2025/10/01/business/republicans-college-tuition-consultants.html
+
 **Pope Leo Calls for Unity on Climate at a Divided Moment**\
 `The pope invoked his predecessor, Francis, for whom the environment was a core issue, but stopped short of criticizing world leaders dismissive of climate change.`\
 https://nytimes.com/2025/10/01/world/europe/pope-leo-climate-speech-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/01/arts/tina-turner-statue-brownsville-tennessee.htm
 **NFL Week 5 survivor pool picks, strategy: Who to pick if you already burned the Lions**\
 `Our survivor columnists share strategy and their picks for Week 5, with Cardinals over Titans as the top pick.`\
 https://nytimes.com/athletic/6677864/2025/10/01/nfl-week-5-survivor-pool-picks-strategy-cardinals-vikings/
-
-**How AI Is Redefining Personalized Experiences  –  From Coffee to Healthcare**\
-`AI is ushering in an era of hyper-personalization, anticipating needs, guiding choices and empowering smarter, healthier, more connected lives.`\
-https://nytimes.com/paidpost/nasdaq/nasdaq-30110410/how-ai-is-redefining-personalized-experiences-from-coffee-to-healthcare.html
 
