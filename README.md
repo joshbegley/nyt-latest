@@ -1,3 +1,11 @@
+**U.S. airports report few delays as the shutdown begins.**\
+`By Gabe Castro-Root`\
+https://nytimes.com/live/2025/10/01/us/government-shutdown-trump-news/us-airports-report-few-delays-as-the-shutdown-begins
+
+**Mings targeting injury return after October international break**\
+`Mings, 32, underwent assessments on Wednesday after being forced off against Fulham.`\
+https://nytimes.com/athletic/6670629/2025/10/01/aston-villa-tyrone-mings-injury-update/
+
 **The Windup: Aces (mostly) rule Game 1s**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6679600/2025/10/01/mlb-wild-card-game-1-the-windup/
@@ -14,8 +22,8 @@ https://nytimes.com/athletic/6679584/2025/10/01/world-cup-kick-off-tv-heat-monta
 `Israel’s government has said it will do whatever is necessary to keep the Global Sumud Flotilla from reaching the Gaza Strip.`\
 https://nytimes.com/2025/10/01/world/middleeast/gaza-flotilla-aid-global-sumud-israel.html
 
-**20-Story Apartment Building in the Bronx Partially Collapses**\
-`Fire officials said an incinerator shaft in the Alexander Avenue building had collapsed after reports of an explosion. There were no reports of injuries.`\
+**20-Story Public Housing Building in the Bronx Partly Collapses**\
+`Fire officials said an incinerator shaft in the Alexander Avenue building had fallen in after reports of an explosion. There were no reports of injuries.`\
 https://nytimes.com/2025/10/01/nyregion/bronx-explosion-building-collapse.html
 
 **Repacks bringing in big money in sports card industry despite concerns**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/01/world/asia/philippines-earthquake-cebu.html
 **Connor McDavid and the L.A. Kings: A fantasy, or history repeating itself?**\
 `McDavid's future in Edmonton remains cloudy. Is a move to Los Angeles feasible?`\
 https://nytimes.com/athletic/6672692/2025/10/01/connor-mcdavid-kings-oilers/
-
-**The Erasure of American Working Women**\
-`With the gutting of a federal agency, we’ll never know why the number of unemployed women is rising.`\
-https://nytimes.com/2025/10/01/opinion/erasure-working-women-federal-agency.html
-
-**Should I Tell an Acquaintance That Her Husband Is Leading a Double Life?**\
-`A reader is conflicted about whether to share what she knows of a husband’s whereabouts while he’s meant to be traveling for work.`\
-https://nytimes.com/2025/10/01/style/secrets-discretion-marriage.html
 
