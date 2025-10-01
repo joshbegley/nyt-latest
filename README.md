@@ -1,3 +1,7 @@
+**White House Uses Shutdown to Maximize Pain and Punish Political Foes**\
+`The Trump administration forged ahead with plans to conduct mass layoffs, as the fiscal standoff appeared to intensify.`\
+https://nytimes.com/2025/10/01/us/politics/white-house-shutdown-punishment.html
+
 **Vance Laughs Off Deepfake Video of Hakeem Jeffries: ‘I Think It’s Funny’**\
 `President Trump posted the meme, which Representative Hakeem Jeffries called racist and bigoted. Vice President JD Vance said the president was “joking, and we’re having a good time.”`\
 https://nytimes.com/2025/10/01/us/politics/vance-jeffries-deepfake-video.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/01/arts/music/nirvana-nevermind-baby-lawsuit.html
 **N.Y.C. Immigration Courts Go Quiet Amid Shutdown but Detentions Persist**\
 `The federal building in Lower Manhattan known as 26 Federal Plaza has become a national flashpoint in the Trump administration’s immigration crackdown.`\
 https://nytimes.com/2025/10/01/nyregion/immigration-court-government-shutdown-new-york.html
-
-**Voice of America Stops All Broadcasting After Government Shuts Down**\
-`During past shutdowns, the federal news agency continued broadcasting to authoritarian countries, as it was considered essential to national security.`\
-https://nytimes.com/2025/10/01/us/politics/voice-america-shutdown.html
 
