@@ -1,3 +1,11 @@
+**Oktoberfest Closed Because of Bomb Threat in Munich**\
+`The German authorities said the rare decision was taken after an earlier explosion in a residential area of the city.`\
+https://nytimes.com/2025/10/01/world/europe/oktoberfest-munich-bomb-threat-explosion.html
+
+**Time Running Out for Trapped Students After School Collapse in Indonesia**\
+`Workers rushed to free potential survivors two days after an Islamic boarding school collapsed during a prayer service, killing at least three students.`\
+https://nytimes.com/2025/10/01/world/asia/trapped-school-collapse-indonesia.html
+
 **Fantasy football best and worst matchups of Week 5: Justin Fields, Trey Benson could cook**\
 `KC Joyner reviews Week 5's best and worst matchups to help you with tough start/sit decisions. `\
 https://nytimes.com/athletic/6675891/2025/10/01/fantasy-football-week-5-matchups-best-worst-fields/
