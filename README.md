@@ -1,3 +1,11 @@
+**Did the Yankees Try to Keep Red Sox Fans Out of the Bronx?**\
+`Not exactly, but to the thousands of Boston fans who attended the first game of the Wild Card series at Yankee Stadium, it was a welcome reason to root against the home team.`\
+https://nytimes.com/2025/10/01/nyregion/yankees-red-sox-wild-card-bronx.html
+
+**Scoop City: Meet the Browns latest QB**\
+`Answering four questions about the 40-year-old Joe Flacco's 24-year-old replacement, in whom Cleveland invested April's 94th pick.`\
+https://nytimes.com/athletic/6680294/2025/10/01/browns-dillon-gabriel-starter-nfl-scoop-city/
+
 **How Much Smaller Is the Federal Work Force? Shutdown Plans Offer a Clue.**\
 `The number of federal employees has been trimmed by thousands since President Trump took office, according to contingency plans drawn up by federal agencies.`\
 https://nytimes.com/interactive/2025/10/01/us/trump-government-shutdown-federal-cuts.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6679161/2025/10/01/nfl-week-5-confidence-picks-chie
 **How Government Shutdowns Got More Severe and Further Reaching**\
 `Shutdowns started having significant effects after an attorney general in the 1980s argued that it was illegal for the government to spend money without congressional appropriations.`\
 https://nytimes.com/2025/10/01/us/past-government-shutdowns-length.html
-
-**Can the Colorado Rockies be saved? Executives explain how they'd fix MLB’s laughingstock**\
-`The Rockies parted ways with general manager Bill Schmidt on Wednesday. That leaves them with an opportunity to finally turn things around.`\
-https://nytimes.com/athletic/6680162/2025/10/01/colorado-rockies-mlb-monfort-schmidt-fix/
-
-**A surging pro sports league suddenly finds itself in crisis: MoneyCall**\
-`More in this week's sports business cheat sheet: MLB surging, Bad Bunny, Senator Paul Finebaum, Chad Powers, Jurgen Klopp and Steve Cohen.`\
-https://nytimes.com/athletic/6680065/2025/10/01/napheesa-collier-wnba-engelbert-moneycall/
 

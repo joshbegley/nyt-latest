@@ -1,3 +1,11 @@
+**How Much Smaller Is the Federal Work Force? Shutdown Plans Offer a Clue.**\
+`The number of federal employees has been trimmed by thousands since President Trump took office, according to contingency plans drawn up by federal agencies.`\
+https://nytimes.com/interactive/2025/10/01/us/trump-government-shutdown-federal-cuts.html
+
+**Jayden Daniels medically cleared, will practice in full for Commanders**\
+`Barring a setback this week, the move should put Daniels in position to start on Sunday against the L.A. Chargers.`\
+https://nytimes.com/athletic/6680256/2025/10/01/jayden-daniels-cleared-knee-practice/
+
 **How Much Smaller is the Federal Work Force? Shutdown Plans Offer a Clue.**\
 `The number of federal employees has been trimmed by thousands since President Trump took office, according to contingency plans drawn up by federal agencies.`\
 https://nytimes.com/interactive/2025/10/01/us/trump-government-shutdown-federal-cuts.html
