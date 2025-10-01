@@ -1,3 +1,11 @@
+**She Loved Eric Adams. She Kept It a Secret. Now She’s Talking.**\
+`Jasmine Ray, who served at City Hall in a $160,000-a-year job, had an undisclosed romance with Eric Adams years before he became mayor. In her memoir, she describes their relationship.`\
+https://nytimes.com/2025/10/01/nyregion/jasmine-ray-memoir-eric-adams.html
+
+**A.J. Hinch pulled every lever he could find. His weakened Tigers still face elimination**\
+`The Tigers went 1-for-15 with runners in scoring position and pinch-hit for a slumping All-Star in Wednesday's loss to the Guardians.`\
+https://nytimes.com/athletic/6681444/2025/10/01/tigers-aj-hinch-manager-moves-wild-card/
+
 **Spirit embraces 'unique power' in a community hit heavily by U.S. government shutdown**\
 `The team has also allowed chants of "free D.C." during matches in reference to the city's push for statehood.`\
 https://nytimes.com/athletic/6680662/2025/10/01/washington-spirit-free-tickets-government-shutdown/
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/politics/100000010433229/republicans-democrats-dead
 **Jane Goodall, a Revered Conservationist, Dies at 91**\
 `Jane Goodall, the renowned primate expert, has died. She was 91. Her discoveries about how wild chimpanzees raised their young, established leadership, socialized and communicated broke new ground and attracted immense attention and respect among researchers.`\
 https://nytimes.com/video/obituaries/100000010433798/jane-goodall-death.html
-
-**How Trump’s Online Drugstore May Affect Your Drug Costs**\
-`President Trump and top health officials announced a deal with Pfizer to try to lower Medicaid prices, and a website to help consumers buy drugs directly from manufacturers.`\
-https://nytimes.com/2025/10/01/health/trump-pfizer-prescription-drug-prices.html
-
-**Man Charged After Mass Shooting at Brooklyn Bar That Was Caught on Video**\
-`Footage showed bar patrons crawling for cover amid gang-related violence in August that killed three people. Elijah Roy, 25, is accused of assault in aid of racketeering.`\
-https://nytimes.com/2025/10/01/nyregion/brooklyn-bar-shooting-charges.html
 
