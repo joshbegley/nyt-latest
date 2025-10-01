@@ -1,3 +1,7 @@
+**E.P.A. Employees Still Working Despite Shutdown Plan Calling for Furloughs**\
+`E.P.A. employees said that they were working without pay, and that Trump administration officials had not told them how long the funding would last. Union officials said they were “highly confused.”`\
+https://nytimes.com/2025/10/01/us/politics/government-shutdown-epa-working.html
+
 **What’s in Our Queue? ‘KPop Demon Hunters’ and More **\
 `Text by Brian X. Chen`\
 https://nytimes.com/card/2025/10/01/arts/editors-recommendations-kpopdemon
@@ -6,12 +10,12 @@ https://nytimes.com/card/2025/10/01/arts/editors-recommendations-kpopdemon
 `Simpson was clean all game against Georgia, completing 24-of38 passes for 276 yards, two touchdowns, zero interceptions and zero sacks.`\
 https://nytimes.com/athletic/6678611/2025/10/01/ty-simpson-passes-first-big-test/
 
-**Lamar Jackson (hamstring) misses practices as Ravens prepare for Texans**\
+**Lamar Jackson misses Ravens practices with hamstring strain ahead of Texans**\
 `Jackson left Baltimore's Week 4 game against Kansas City in the third quarter and did not return.`\
 https://nytimes.com/athletic/6677147/2025/10/01/lamar-jackson-injury-status-ravens/
 
 **Arizona Cardinals lose another running back to injury as Trey Benson hits IR**\
-`Benson will miss at least four weeks with a knee injury, though Gannon said the team expects him to return from IR.`\
+`Benson will miss at least four weeks with a knee injury, though Gannon said the team expects him to return.`\
 https://nytimes.com/athletic/6680308/2025/10/01/cardinals-trey-benson-ir-knee-injury/
 
 **How Washington Became a Testing Ground for ICE**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6680294/2025/10/01/browns-dillon-gabriel-starter-nf
 **How Much Smaller Is the Federal Work Force? Shutdown Plans Offer a Clue.**\
 `The number of federal employees has been trimmed by thousands since President Trump took office, according to contingency plans drawn up by federal agencies.`\
 https://nytimes.com/interactive/2025/10/01/us/trump-government-shutdown-federal-cuts.html
-
-**Jayden Daniels medically cleared, will practice in full for Commanders**\
-`Barring a setback this week, the move should put Daniels in position to start on Sunday against the L.A. Chargers.`\
-https://nytimes.com/athletic/6680256/2025/10/01/jayden-daniels-cleared-knee-practice/
 

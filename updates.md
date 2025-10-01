@@ -1,3 +1,15 @@
+**E.P.A. Employees Still Working Despite Shutdown Plan Calling for Furloughs**\
+`E.P.A. employees said that they were working without pay, and that Trump administration officials had not told them how long the funding would last. Union officials said they were “highly confused.”`\
+https://nytimes.com/2025/10/01/us/politics/government-shutdown-epa-working.html
+
+**Lamar Jackson misses Ravens practices with hamstring strain ahead of Texans**\
+`Jackson left Baltimore's Week 4 game against Kansas City in the third quarter and did not return.`\
+https://nytimes.com/athletic/6677147/2025/10/01/lamar-jackson-injury-status-ravens/
+
+**Arizona Cardinals lose another running back to injury as Trey Benson hits IR**\
+`Benson will miss at least four weeks with a knee injury, though Gannon said the team expects him to return.`\
+https://nytimes.com/athletic/6680308/2025/10/01/cardinals-trey-benson-ir-knee-injury/
+
 **What’s in Our Queue? ‘KPop Demon Hunters’ and More **\
 `Text by Brian X. Chen`\
 https://nytimes.com/card/2025/10/01/arts/editors-recommendations-kpopdemon
