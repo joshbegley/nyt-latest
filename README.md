@@ -1,3 +1,7 @@
+**Some Furloughed Federal Staff Use Automated Replies to Blame Senate Democrats**\
+`The inboxes of some employees of the Small Business Administration are returning automated email replies that deliver a partisan message on the shutdown.`\
+https://nytimes.com/2025/10/01/us/politics/furlough-small-business-administration-emails.html
+
 **Trump Fires Members of Humanities Council**\
 `The White House told members of a group of scholars who advise the National Endowment for the Humanities that their positions had been terminated.`\
 https://nytimes.com/2025/10/01/arts/trump-neh-firings.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/01/arts/design/corvi-mora-gallery-frieze-london.html
 **Shedeur Sanders literally speechless over Browns quarterback situation**\
 `The Browns announced on Wednesday that third-round pick Dillon Gabriel will start Sunday against the Minnesota Vikings.`\
 https://nytimes.com/athletic/6680393/2025/10/01/shedeur-sanders-cleveland-browns-quarterback-gabriel-flacco/
-
-**A Treasure Trove of Art Is Uncovered in a Hong Kong Apartment**\
-`Print plates and collagraphs by Ha Bik Chuen have drawn increasing interest from collectors and will be shown at Frieze Masters.`\
-https://nytimes.com/2025/10/01/arts/design/frieze-london-ha-bik-chuen-apartment.html
 

@@ -1,3 +1,19 @@
+**Trump Fires Members of Humanities Council**\
+`The White House told members of a group of scholars who advise the National Endowment for the Humanities that their positions had been terminated.`\
+https://nytimes.com/2025/10/01/arts/trump-neh-firings.html
+
+**T's Oct. 19 Greats Issue**\
+``\
+https://nytimes.com/issue/t-magazine/2025/10/01/ts-oct-19-greats-issue-2025
+
+**Oregon running back Makhi Hughes plans to sit out rest of 2025 season and redshirt**\
+`Hughes rushed for 2,779 yards and 22 touchdowns over the previous two seasons while at Tulane.`\
+https://nytimes.com/athletic/6680545/2025/10/01/makhi-hughes-oregon-transfer-redshirt/
+
+**Heaviest Users of Snapchat Will Face a Small Charge for Storage**\
+`The social media company will charge after users reach five gigabytes of free storage, which is in line with other tech giants’ policies.`\
+https://nytimes.com/2025/10/01/business/heaviest-users-of-snapchat-will-face-a-small-charge-for-storage.html
+
 **Israel Escalates Gaza Offensive as Hamas Mulls Trump Plan**\
 `Hundreds of thousands of Palestinians have fled Israel’s assault on Gaza City, but many are believed to remain, having nowhere to go or no means to leave.`\
 https://nytimes.com/2025/10/01/world/middleeast/israel-gaza-trump-hamas.html
@@ -6,7 +22,7 @@ https://nytimes.com/2025/10/01/world/middleeast/israel-gaza-trump-hamas.html
 `Seven men in all were sentenced on Wednesday over their roles in a decades-old national scandal in Britain involving child sexual abuse.`\
 https://nytimes.com/2025/10/01/world/europe/uk-grooming-gang-sentencing.html
 
-**The Briefing: USG 0 Newcastle 4: Woltemade central as Howe's side kickstart Champions League campaign**\
+**The Briefing: USG 0 Newcastle 4: How did Woltemade get on? Was this Elanga's best game? Who replaces Livramento?**\
 `We break down the talking points as Newcastle picked up three points in Belgium`\
 https://nytimes.com/athletic/6679877/2025/10/01/newcastle-tonali-woltemade-champions-league/
 
@@ -21,16 +37,4 @@ https://nytimes.com/athletic/6680393/2025/10/01/shedeur-sanders-cleveland-browns
 **A Treasure Trove of Art Is Uncovered in a Hong Kong Apartment**\
 `Print plates and collagraphs by Ha Bik Chuen have drawn increasing interest from collectors and will be shown at Frieze Masters.`\
 https://nytimes.com/2025/10/01/arts/design/frieze-london-ha-bik-chuen-apartment.html
-
-**Hayley Williams Had to Tear Down Paramore to Grow Up**\
-`Hayley Williams on how the evolution of her long-running band, Paramore, has shaped her third solo release and her grown-up identity.`\
-https://nytimes.com/video/podcasts/100000010431578/hayley-williams-had-to-tear-down-paramore-to-grow-up.html
-
-**Ana Segovia Wants You to Take Another, Closer, Look at that Cowboy**\
-`The Mexican painter is a master at directing viewers’ gaze. Now, he is using that power to turn gender roles and machismo upside-down.`\
-https://nytimes.com/2025/10/01/arts/design/ana-segovia-frieze-london.html
-
-**WNBA star Kelsey Plum will join Unrivaled's second season**\
-`The two-time Olympic gold medalist and two-time WNBA champion had committed to join the startup league in 2025, but opted out for rest.`\
-https://nytimes.com/athletic/6678646/2025/10/01/kelsey-plum-unrivaled-wnba/
 
