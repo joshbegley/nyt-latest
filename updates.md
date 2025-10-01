@@ -1,3 +1,15 @@
+**What West Ham can expect from Nuno: Compact squad, several subs, and straight talk**\
+`West Ham fans got a welcome introduction to their new head coach on Monday, but there is more to the former Forest boss than meets the eye`\
+https://nytimes.com/athletic/6673578/2025/10/01/west-ham-nuno-espirito-santo-premier-league-analysis/
+
+**How Newcastle are bringing a savvier approach to the Champions League**\
+`After struggling in Europe two seasons ago, Eddie Howe and his team are adapting their approach`\
+https://nytimes.com/athletic/6676425/2025/10/01/newcastle-champions-league-eddie-howe-changes/
+
+**Las Vegas Aces advance to WNBA Finals with semifinals OT victory over Indiana Fever**\
+`They'll face the Phoenix Mercury on Friday. This is the Aces' third trip to the finals in four years. `\
+https://nytimes.com/athletic/6678725/2025/10/01/las-vegas-aces-wnba-finals-ot-win-indiana-fever/
+
 **Las Vegas Aces advance to WNBA Finals with semifinals OT victory over Indiana Fever**\
 `They'll face the Phoenix Mercury on Friday. This is the Aces third trip to the finals in four years. `\
 https://nytimes.com/athletic/6678725/2025/10/01/las-vegas-aces-advance-to-wnba-finals-with-semifinals-ot-victory-over-indiana-fever/

@@ -1,6 +1,14 @@
+**What West Ham can expect from Nuno: Compact squad, several subs, and straight talk**\
+`West Ham fans got a welcome introduction to their new head coach on Monday, but there is more to the former Forest boss than meets the eye`\
+https://nytimes.com/athletic/6673578/2025/10/01/west-ham-nuno-espirito-santo-premier-league-analysis/
+
+**How Newcastle are bringing a savvier approach to the Champions League**\
+`After struggling in Europe two seasons ago, Eddie Howe and his team are adapting their approach`\
+https://nytimes.com/athletic/6676425/2025/10/01/newcastle-champions-league-eddie-howe-changes/
+
 **Las Vegas Aces advance to WNBA Finals with semifinals OT victory over Indiana Fever**\
-`They'll face the Phoenix Mercury on Friday. This is the Aces third trip to the finals in four years. `\
-https://nytimes.com/athletic/6678725/2025/10/01/las-vegas-aces-advance-to-wnba-finals-with-semifinals-ot-victory-over-indiana-fever/
+`They'll face the Phoenix Mercury on Friday. This is the Aces' third trip to the finals in four years. `\
+https://nytimes.com/athletic/6678725/2025/10/01/las-vegas-aces-wnba-finals-ot-win-indiana-fever/
 
 **Reds-Dodgers takeaways: Teoscar Hernández, Blake Snell dazzle in Game 1 rout**\
 `Snell delivered the longest postseason outing of his career while Hernández belted two homers to spark the Dodgers.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6676495/2025/10/01/barcelona-camp-nou-fans-players-
 **The BookKeeper - How much Manchester United have spent on sacking managers since Sir Alex Ferguson retired**\
 `As pressure mounts on United's head coach, the BookKeeper explores the true costs of sacking their post-Alex Ferguson managers `\
 https://nytimes.com/athletic/6673151/2025/10/01/amorim-manchester-united-cost-sacking/
-
-**Arsenal's corners carry weight, but their footballing heft is created in open play**\
-`Only teams as dominant on the ball as Mikel Arteta's side can reliably plan a set-piece strategy `\
-https://nytimes.com/athletic/6676933/2025/10/01/arsenal-corners-set-pieces-open-play-premier-league/
-
-**Twins want new manager well-versed in player development, president says**\
-`Derek Falvey said there’s no specific deadline for when the Twins will hire a new manager.`\
-https://nytimes.com/athletic/6678699/2025/10/01/rocco-baldelli-fired-twins/
 
