@@ -1,3 +1,7 @@
+**Stock Markets Slip and Gold Rises as Shutdown Takes Effect**\
+`Investors have typically been unfazed by government closures, but the longer a shutdown runs, the greater the chance of longer-lasting effects.`\
+https://nytimes.com/2025/10/01/us/politics/stocks-gold-government-shutdown.html
+
 **Biggest transfer portal disappointments after the first month of the season**\
 `Two of the most coveted offensive players in the portal — Makhi Hughes and Jaydn Ott — have combined to rush for 87 yards this season.`\
 https://nytimes.com/athletic/6677094/2025/10/01/transfer-portal-disappointments-hughes-ott-iamaleava/

@@ -1,3 +1,7 @@
+**Stock Markets Slip and Gold Rises as Shutdown Takes Effect**\
+`Investors have typically been unfazed by government closures, but the longer a shutdown runs, the greater the chance of longer-lasting effects.`\
+https://nytimes.com/2025/10/01/us/politics/stocks-gold-government-shutdown.html
+
 **Biggest transfer portal disappointments after the first month of the season**\
 `Two of the most coveted offensive players in the portal — Makhi Hughes and Jaydn Ott — have combined to rush for 87 yards this season.`\
 https://nytimes.com/athletic/6677094/2025/10/01/transfer-portal-disappointments-hughes-ott-iamaleava/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/01/world/middleeast/qatar-trump-executive-order.html
 **The Shutdown Will Not Stop Flights but Could Hurt Air Travel if It Persists**\
 `During the last government shutdown, which began in late 2018, many demoralized workers called out sick or did not show up to work.`\
 https://nytimes.com/2025/10/01/business/government-shutdown-flights-air-travel.html
-
-**Man Utd considering Saudi Arabia as venue for mid-season friendly**\
-`United are considering ways to raise revenue and, given they have several free midweeks, travelling to the Middle East is seen as an option`\
-https://nytimes.com/athletic/6623737/2025/10/01/manchester-united-saudi-arabia-friendly/
 
