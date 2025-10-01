@@ -1,3 +1,7 @@
+**NFL Week 5 confidence picks: Here's why we're fading Chiefs and Bills ATS**\
+`KC Joyner gives his NFL confidence picks, both straight up and against the spread, for every Week 5 game.`\
+https://nytimes.com/athletic/6679161/2025/10/01/nfl-week-5-confidence-picks-chiefs-bills/
+
 **How Government Shutdowns Got More Severe and Further Reaching**\
 `Shutdowns started having significant effects after an attorney general in the 1980s argued that it was illegal for the government to spend money without congressional appropriations.`\
 https://nytimes.com/2025/10/01/us/past-government-shutdowns-length.html
