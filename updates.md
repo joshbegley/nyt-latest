@@ -1,4 +1,8 @@
 **Browns bench Joe Flacco, name rookie Dillon Gabriel starting QB**\
+`At 1-3, Cleveland is going with Gabriel over the 40-year-old Flacco, who threw two touchdowns and six interceptions over four starts. `\
+https://nytimes.com/athletic/6674480/2025/10/01/dillon-gabriel-browns-starting-quarterback/
+
+**Browns bench Joe Flacco, name rookie Dillon Gabriel starting QB**\
 `At 1-3, Cleveland is going with Gabriel over the 40-year-old Joe Flacco, who threw two touchdowns and six interceptions over four starts. `\
 https://nytimes.com/athletic/6674480/2025/10/01/dillon-gabriel-browns-starting-quarterback/
 
