@@ -1,3 +1,7 @@
+**Gaël Monfils to retire from tennis at end of 2026 season: 'I am tremendously at peace'**\
+`Monfils, 39, said that he felt luck and gratitude to have played during such a legendary era of men's tennis.`\
+https://nytimes.com/athletic/6679047/2025/10/01/gael-monfils-tennis-retirement-date-last-tournament/
+
 **Does Your Backyard Need a Stegosaurus?**\
 `A popular theme park is closing. That’s good news for dinosaur fans who want their own life-size animatronic attraction.`\
 https://nytimes.com/2025/10/01/nyregion/new-jersey-dinosaur-sale.html
