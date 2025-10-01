@@ -1,3 +1,11 @@
+**Man Charged After Mass Shooting at Brooklyn Bar That Was Caught on Video**\
+`Footage showed bar patrons crawling for cover amid gang-related violence in August that killed three people. Elijah Roy, 25, is accused of assault in aid of racketeering.`\
+https://nytimes.com/2025/10/01/nyregion/brooklyn-bar-shooting-charges.html
+
+**Cubs-Padres Game 2 takeaways: Manny Machado, Padres pitchers lock in and stave off elimination**\
+`Behind a two-run homer by third baseman Manny Machado, the Padres muscled their way to a 3-0 shutout of the Chicago Cubs in a must-win game.`\
+https://nytimes.com/athletic/6681172/2025/10/01/cubs-padres-score-results-game-2-takeaways-mlb-playoffs/
+
 **20-Story Building in the Bronx Partly Collapses**\
 `The partial collapse of the public housing building in the Bronx followed an explosion in a ventilation shaft connected to the boiler room.`\
 https://nytimes.com/video/nyregion/100000010434055/bronx-building-collapse.html
