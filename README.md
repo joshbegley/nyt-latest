@@ -1,3 +1,23 @@
+**Ty Simpson passes first big test, plays his way into early-round draft discussion**\
+`Simpson was clean all game against Georgia, completing 24-of38 passes for 276 yards, two touchdowns, zero interceptions and zero sacks.`\
+https://nytimes.com/athletic/6678611/2025/10/01/ty-simpson-passes-first-big-test/
+
+**Lamar Jackson (hamstring) misses practices as Ravens prepare for Texans**\
+`Jackson left Baltimore's Week 4 game against Kansas City in the third quarter and did not return.`\
+https://nytimes.com/athletic/6677147/2025/10/01/lamar-jackson-injury-status-ravens/
+
+**Arizona Cardinals lose another running back to injury as Trey Benson hits IR**\
+`Benson will miss at least four weeks with a knee injury, though Gannon said the team does expect him to return from IR.`\
+https://nytimes.com/athletic/6680308/2025/10/01/cardinals-trey-benson-ir-knee-injury/
+
+**How Washington Became a Testing Ground for ICE**\
+`A series of arrests captured on video reveal how immigration officers have worked with other law enforcement agencies to identify migrants during stops for minor infractions.`\
+https://nytimes.com/2025/10/01/us/politics/washington-dc-ice.html
+
+**Even the Statue of Liberty’s Torch Could Go Dark During Shutdown**\
+`New York Democrats, led by Gov. Kathy Hochul, warned of the damage the government shutdown could cause across the state and blamed Republicans.`\
+https://nytimes.com/2025/10/01/nyregion/government-shutdown-affects-new-york.html
+
 **Did the Yankees Try to Keep Red Sox Fans Out of the Bronx?**\
 `Not exactly, but to the thousands of Boston fans who attended the first game of the Wild Card series at Yankee Stadium, it was a welcome reason to root against the home team.`\
 https://nytimes.com/2025/10/01/nyregion/yankees-red-sox-wild-card-bronx.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6680256/2025/10/01/jayden-daniels-cleared-knee-prac
 **Why Nicolás Maduro Faces Criminal Charges in the U.S.**\
 `Secretary of State Marco Rubio has called Mr. Maduro, the Venezuelan leader who faces narco-terrorism charges, a “fugitive from American justice.”`\
 https://nytimes.com/2025/10/01/nyregion/nicolas-maduro-venezuela-charges-explainer.html
-
-**Trump and Hegseth: The Quantico Campaign**\
-`Readers sharply criticize the speeches by the president and the secretary of defense. Also: A cynical order from the Supreme Court.`\
-https://nytimes.com/2025/10/01/opinion/trump-hegseth-military.html
-
-**Pujols believed to be Angels owner's top choice for next manager: Sources**\
-`Pujols, 45, spent a decade of his legendary 22-year career with the Angels, and is currently on their payroll.`\
-https://nytimes.com/athletic/6680234/2025/10/01/albert-pujols-angels-manager/
-
-**Congress Remains Deadlocked as Shutdown Enters First Day**\
-`Dueling proposals to extend government funding both failed for the third time in two weeks, as neither party could muster the bipartisan coalition needed to move forward.`\
-https://nytimes.com/2025/10/01/us/politics/congress-shutdown-deadlock.html
-
-**NFL Week 5 confidence picks: Here's why we're fading Chiefs and Bills ATS**\
-`KC Joyner gives his NFL confidence picks, both straight up and against the spread, for every Week 5 game.`\
-https://nytimes.com/athletic/6679161/2025/10/01/nfl-week-5-confidence-picks-chiefs-bills/
-
-**How Government Shutdowns Got More Severe and Further Reaching**\
-`Shutdowns started having significant effects after an attorney general in the 1980s argued that it was illegal for the government to spend money without congressional appropriations.`\
-https://nytimes.com/2025/10/01/us/past-government-shutdowns-length.html
 
