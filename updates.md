@@ -1,3 +1,11 @@
+**Judge Denies Sean Combs’s Request to Vacate Conviction**\
+`The music mogul will be sentenced on Friday after a jury found him guilty of transporting people for prostitution.`\
+https://nytimes.com/2025/09/30/arts/music/sean-combs-diddy-conviction-stands.html
+
+**White House Pulls Pick to Lead Labor Data Agency**\
+`E.J. Antoni, a conservative economist, had faced bipartisan criticism as President Trump’s nominee to lead the Bureau of Labor Statistics.`\
+https://nytimes.com/2025/09/30/business/bls-nominee-withdrawn.html
+
 **'Momentum's a real thing' for Cubs, who win first playoff game in a long time**\
 `The buzz turned into a boom at Wrigley after Seiya Suzuki and Carson Kelly hit back-to-back homers. Daniel Palencia took charge from there.`\
 https://nytimes.com/athletic/6678171/2025/09/30/cubs-padres-heroics-nl-wild-card/
