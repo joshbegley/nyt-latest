@@ -1,40 +1,40 @@
-**Internet Blackout in Afghanistan Disrupts Daily Life**\
-`A nationwide internet outage in Afghanistan has made it nearly impossible for people to communicate with one another or the outside world and has disrupted banking services and aid distribution.`\
-https://nytimes.com/video/world/asia/100000010432092/internet-blackout-afghanistan-disruption.html
+**CFB Week 6 streaming guide: Miami vs. FSU, Vandy vs. Bama and sleeper games**\
+`Our weekly column sorts the college football slate by kickoff blocks, with a marquee choice and a "chaos agent" pick for each window.`\
+https://nytimes.com/athletic/6675182/2025/10/01/college-football-week-6-miami-fsu-alabama-vanderbilt-how-to-watch/
 
-**More than ever, Ravens need coach John Harbaugh to lead them out of this mess**\
-`While many of his Baltimore teams have righted the ship in the past, this season may represent one of Harbaugh’s biggest challenges yet.`\
-https://nytimes.com/athletic/6677845/2025/10/01/john-harbaugh-ravens-struggles-injuries/
+**The Las Vegas Aces heard your doubts. ... It fueled their run back to the WNBA Finals**\
+`The Aces looked like a middling team midway through the season. Then they found the right gear and didn't let up.`\
+https://nytimes.com/athletic/6679057/2025/10/01/las-vegas-aces-wnba-finals-return/
 
-**Yankees had better not dare lose to the Red Sox again**\
-`Manager Aaron Boone paid dearly for not staying with Max Fried in the seventh and inserting Luke Weaver. Now, the Yanks must win (or else).`\
-https://nytimes.com/athletic/6678756/2025/10/01/yankees-red-sox-game-1-wild-card/
+**The biggest Wild questions heading into the final week of training camp**\
+`The Wild capped off an exhilarating Tuesday with a 3-2 win over the Jets, but the roster and lineup are still in flux.`\
+https://nytimes.com/athletic/6678701/2025/10/01/wild-training-camp-zuccarello-power-play-wallstedt/
 
-**Tony Blair, Tapped by Trump for Gaza Plan, Brings Peace Expertise and Baggage**\
-`After helping negotiate peace in Northern Ireland, the former prime minister’s reputation was tarnished by his role in the U.S.-led invasion of Iraq. Is he stepping into another diplomatic quagmire?`\
-https://nytimes.com/2025/10/01/world/middleeast/tony-blair-gaza-peace-plan.html
+**Blackhawks show progress, pitfalls in preseason loss, plus 5 questions for Frank Nazar**\
+`Progress is the name of the game in the preseason, and a 3-1 loss to the Red Wings came with highs and lows.`\
+https://nytimes.com/athletic/6678678/2025/10/01/blackhawks-frank-nazar-preseason-power-play/
 
-**A closer look at Jihaad Campbell, Quinyon Mitchell, Kelee Ringo, and their Week 4 performances**\
-`Campbell, a rookie, had his most impactful game so far.`\
-https://nytimes.com/athletic/6674297/2025/10/01/eagles-defense-jihaad-campbell-quinyon-mitchell-kelee-ringo/
+**Yohe: Penguins need to keep Harrison Brunicke in Pittsburgh**\
+`The Penguins would be wise to promote the precocious Brunicke to the NHL now. `\
+https://nytimes.com/athletic/6677935/2025/10/01/harrison-brunicke-penguins-prospect-training-camp/
 
-**As Cubs return to the playoffs, David Ross wants another shot as a big-league manager**\
-`Two years after the Cubs fired him to hire Craig Counsell, Ross "badly" wants to manage again. "It’s an itch that hasn’t gone away."`\
-https://nytimes.com/athletic/6678283/2025/10/01/david-ross-cubs-mlb-manager/
+**Gleeman: Rocco Baldelli's final act as fired Twins manager is shielding the front office**\
+`Baldelli took the fall for back-to-back ugly seasons, but what does that solve if the Twins' ownership and front office remain unchanged?`\
+https://nytimes.com/athletic/6674556/2025/10/01/twins-rocco-baldelli-firing-front-office/
 
-**From Stanley Cup contenders to bottom-feeders: The 2025-26 McIndoe divisions**\
-`These aren't your typical divisions. Like every fall, let's split up the teams based on whether they're actually expected to be good or not.`\
-https://nytimes.com/athletic/6677565/2025/10/01/nhl-predictions-2025-26-divisions/
+**Trevor Lawrence settles in, Puka Nacua keeps producing, more Week 4 thoughts: Quick Outs**\
+`Lawrence has found renewed life in Liam Coem's scheme, while Nacua keeps leveling up his game.`\
+https://nytimes.com/athletic/6676312/2025/10/01/nfl-week-4-nacua-lawrence-quick-outs/
 
-**How Diamonds Are Born**\
-`Southern Africa’s “desert diamonds,” forged millions of years ago, continue to transform the region today.`\
-https://nytimes.com/paidpost/de-beers/how-diamonds-are-born.html
+**Mets' playoff hopes came down to one game. Here are 10 of their most difficult losses**\
+`The Mets lost 79 games this season, and at least a handful felt like they should have ended differently.`\
+https://nytimes.com/athletic/6677655/2025/10/01/mets-worst-10-losses/
 
-**‘He needs some help’: When the NHL dress code expires, Bruins players have a clear-cut fashion suspect**\
-`This season, players will have to wear clothes that are “consistent with contemporary fashion norms.” That phrase is open to interpretation.`\
-https://nytimes.com/athletic/6677281/2025/10/01/bruins-dress-code-nhl/
+**Milan Lucic shows some improvement in tryout bid to make Blues: 'I have more'**\
+`The 37-year-old had five hits in the Blues' 5-3 loss to the Dallas Stars on Tuesday at Enterprise Center.`\
+https://nytimes.com/athletic/6676586/2025/10/01/st-louis-blues-milan-lucic-tryout/
 
-**The Pulse: Yesterday’s playoff heroics, ranked**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6678819/2025/10/01/wnba-finals-aces-fever-the-pulse/
+**What's wrong with Georgia's defense? Identifying what's behind an uncharacteristic start**\
+`Through four games, Georgia now ranks 14th in the SEC in yards-per-play allowed.`\
+https://nytimes.com/athletic/6677610/2025/10/01/georgia-defense-issues-college-football/
 
