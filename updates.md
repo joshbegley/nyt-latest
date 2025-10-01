@@ -1,3 +1,7 @@
+**The centre-forward crisis that could undermine Chelsea's Champions League challenge**\
+`Enzo Maresca started with Tyrique George up front, but his side needed an own goal to get a win against Benfica on Tuesday evening`\
+https://nytimes.com/athletic/6678276/2025/10/01/chelsea-striker-options-champions-league-benfica/
+
 **Liverpool's defence, Wirtz impact on midfield and rotation: The problems Slot needs to solve**\
 `Liverpool fell to a second defeat in a row against Galatasaray on Tuesday night. There are problems — despite them topping the league`\
 https://nytimes.com/athletic/6678154/2025/10/01/liverpool-galatasaray-analysis-defence-attack/

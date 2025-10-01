@@ -1,3 +1,7 @@
+**The centre-forward crisis that could undermine Chelsea's Champions League challenge**\
+`Enzo Maresca started with Tyrique George up front, but his side needed an own goal to get a win against Benfica on Tuesday evening`\
+https://nytimes.com/athletic/6678276/2025/10/01/chelsea-striker-options-champions-league-benfica/
+
 **Liverpool's defence, Wirtz impact on midfield and rotation: The problems Slot needs to solve**\
 `Liverpool fell to a second defeat in a row against Galatasaray on Tuesday night. There are problems — despite them topping the league`\
 https://nytimes.com/athletic/6678154/2025/10/01/liverpool-galatasaray-analysis-defence-attack/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6676425/2025/10/01/newcastle-champions-league-eddie
 **Las Vegas Aces advance to WNBA Finals with semifinals OT victory over Indiana Fever**\
 `They'll face the Phoenix Mercury on Friday. This is the Aces' third trip to the finals in four years. `\
 https://nytimes.com/athletic/6678725/2025/10/01/las-vegas-aces-wnba-finals-ot-win-indiana-fever/
-
-**Reds-Dodgers takeaways: Teoscar Hernández, Blake Snell dazzle in Game 1 rout**\
-`Snell delivered the longest postseason outing of his career while Hernández belted two homers to spark the Dodgers.`\
-https://nytimes.com/athletic/6678613/2025/10/01/dodgers-reds-game-1-score-results-nl-wild-card-2025/
 
