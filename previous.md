@@ -1,40 +1,40 @@
+**Las Vegas Aces advance to WNBA Finals with semifinals OT victory over Indiana Fever**\
+`They'll face the Phoenix Mercury on Friday. This is the Aces third trip to the finals in four years. `\
+https://nytimes.com/athletic/6678725/2025/10/01/las-vegas-aces-advance-to-wnba-finals-with-semifinals-ot-victory-over-indiana-fever/
+
+**Reds-Dodgers takeaways: Teoscar Hernández, Blake Snell dazzle in Game 1 rout**\
+`Snell delivered the longest postseason outing of his career while Hernández belted two homers to spark the Dodgers.`\
+https://nytimes.com/athletic/6678613/2025/10/01/dodgers-reds-game-1-score-results-nl-wild-card-2025/
+
+**Dean Smith interview: Trying to stop Messi, his time at Villa and his relationship with Emery**\
+`It can be easy for an English manager to become one-tracked – but across the Atlantic, Smith has bounced back from his Premier League exits`\
+https://nytimes.com/athletic/6672840/2025/10/01/dean-smith-messi-aston-villa-charlotte-fc-mls/
+
+**Growing pains: How football clubs protect teenage prodigies**\
+`The emergence of young superstars is thrilling but also poses challenges in how to look after them`\
+https://nytimes.com/athletic/6663137/2025/10/01/lamine-yamal-max-dowman-rio-ngumoha/
+
+**San Siro: Why one of Europe's most iconic stadiums is to be demolished and rebuilt**\
+`In a world where FFP means clubs can only spend what they earn, a €1.2bn new San Siro is a wake-up call that keeps Milan and Inter relevant`\
+https://nytimes.com/athletic/6676465/2025/10/01/san-siro-inter-milan-stadium-demolish/
+
+**How 'mind-boggling' were Kiernan Dewsbury-Hall's five yellow cards?**\
+`The midfielder did not have a reputation for cheap yellow cards at previous clubs but is already serving a one-match ban for five cautions`\
+https://nytimes.com/athletic/6676140/2025/10/01/dewsbury-hall-everton-five-bookings-boggling/
+
+**What Barcelona fans, players and coaches think about the constant Camp Nou chaos**\
+`Barcelona’s messaging and management around their Camp Nou return has been chaotic, to say the least`\
+https://nytimes.com/athletic/6676495/2025/10/01/barcelona-camp-nou-fans-players-coaches/
+
+**The BookKeeper - How much Manchester United have spent on sacking managers since Sir Alex Ferguson retired**\
+`As pressure mounts on United's head coach, the BookKeeper explores the true costs of sacking their post-Alex Ferguson managers `\
+https://nytimes.com/athletic/6673151/2025/10/01/amorim-manchester-united-cost-sacking/
+
+**Arsenal's corners carry weight, but their footballing heft is created in open play**\
+`Only teams as dominant on the ball as Mikel Arteta's side can reliably plan a set-piece strategy `\
+https://nytimes.com/athletic/6676933/2025/10/01/arsenal-corners-set-pieces-open-play-premier-league/
+
 **Twins want new manager well-versed in player development, president says**\
 `Derek Falvey said there’s no specific deadline for when the Twins will hire a new manager.`\
 https://nytimes.com/athletic/6678699/2025/10/01/rocco-baldelli-fired-twins/
-
-**UK Black History Month 2025: What does the future of Black British sport look like?**\
-`It's UK Black History Month and here's what to expect from The Athletic`\
-https://nytimes.com/athletic/6676595/2025/10/01/uk-black-history-month-2025-future/
-
-**Why the Premier League's carnival of bogey fixtures last weekend was unusual**\
-`Were Saturday's results for Tottenham and Manchester United surprising – or just the continuation of a strong trend?`\
-https://nytimes.com/athletic/6676003/2025/10/01/premier-league-bogey-fixtures-arsenal-newcastle-liverpool-man-utd/
-
-**What Are the Effects of a Government Shutdown?**\
-`Ben Casselman, the chief economics correspondent for The New York Times, describes the economic effects of a government shutdown.`\
-https://nytimes.com/video/us/100000010431360/government-shutdown-economic-effects.html
-
-**What Is Europe’s ‘Drone Wall’?**\
-`The European Union is talking about shoring up defenses in its eastern airspace. Recent Russian drone incursions have lent urgency to the project.`\
-https://nytimes.com/2025/10/01/world/europe/drone-wall-european-union-russia.html
-
-**Fantasy football rankings Week 5: Sleepers, projections, starts, DeVonta Smith, Darren Waller and more**\
-`Jake Ciely runs through his player rankings for Week 5, and reveals he's getting Mark Andrews vibes from Miami tight end Darren Waller. `\
-https://nytimes.com/athletic/6677958/2025/10/01/fantasy-football-rankings-week-5-sleepers-projections-starts-sits/
-
-**Corrections: Oct. 1, 2025**\
-`Corrections that appeared in print on Wednesday, Oct. 1, 2025.`\
-https://nytimes.com/2025/10/01/pageoneplus/corrections-oct-1-2025.html
-
-**Connections: Sports Edition Coach: Hints for Oct. 1, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6678549/2025/10/01/connections-sports-edition-hints-for-oct-1-2025/
-
-**China Displays Its Gizmos and Ambition, but Fewer Answers on Trade**\
-`The vast Global Digital Trade Expo in Hangzhou stood as a rebuke to U.S. efforts to hem in China’s technology. But the real competition is internal, and profits are hard to find.`\
-https://nytimes.com/2025/10/01/world/asia/china-tech-trade.html
-
-**Can This City Make Residents Put Down Their Smartphones?**\
-`The authorities in Toyoake, Japan, introduced a rule limiting the use of digital devices to two hours per day outside of work and school. Some residents say it is an overreach.`\
-https://nytimes.com/2025/10/01/world/asia/japan-smartphones-ban-toyoake.html
 
