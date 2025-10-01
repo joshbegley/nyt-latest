@@ -1,3 +1,11 @@
+**Internet Returns to Afghanistan**\
+`Internet services were restored in Afghanistan on Wednesday after a two-day nationwide blackout that paralyzed the economy and grounded planes. The Taliban government gave no reason for the outage, or the resumption of services.`\
+https://nytimes.com/video/world/asia/100000010432566/internet-returns-to-afghanistan.html
+
+**50 Pianos Rumble With the Sound of ‘11,000 Strings’**\
+`Georg Friedrich Haas has written a piece of almost ridiculous scale and complexity. The effect is awe-inspiring.`\
+https://nytimes.com/2025/10/01/arts/music/11000-strings-park-avenue-armory.html
+
 **Republicans Demand Information From Firms That Help Set College Tuition**\
 `In letters to consultants and the College Board, House and Senate Judiciary leaders invoked antitrust law and asked how student data feeds pricing algorithms.`\
 https://nytimes.com/2025/10/01/business/republicans-college-tuition-consultants.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6665702/2025/10/01/rockies-bill-schmidt-steps-down/
 **Edmonton Oilers pick up Connor Ingram in trade with Utah Mammoth**\
 `The Oilers said Ingram will report to its AHL team, the Bakersfield Condors.`\
 https://nytimes.com/athletic/6679972/2025/10/01/connor-ingram-edmonton-oilers-utah-mammoth-trade/
-
-**Tina Turner Sculpture Joins List of Scorned Statues**\
-`Not everyone loves the new work unveiled in Brownsville, Tenn., but sponsors say they choose to see the bright side of the passionate responses.`\
-https://nytimes.com/2025/10/01/arts/tina-turner-statue-brownsville-tennessee.html
-
-**NFL Week 5 survivor pool picks, strategy: Who to pick if you already burned the Lions**\
-`Our survivor columnists share strategy and their picks for Week 5, with Cardinals over Titans as the top pick.`\
-https://nytimes.com/athletic/6677864/2025/10/01/nfl-week-5-survivor-pool-picks-strategy-cardinals-vikings/
 
