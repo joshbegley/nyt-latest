@@ -1,3 +1,7 @@
+**‘Rampant’ Book Bans Are Being Taken for Granted, Free Speech Group Warns**\
+`A new report from PEN America tracks restrictions on school books across 45 states.`\
+https://nytimes.com/2025/10/01/books/book-bans-pen-america.html
+
 **Stock Markets Slip and Gold Rises as Shutdown Takes Effect**\
 `Investors have typically been unfazed by government closures, but the longer a shutdown runs, the greater the chance of longer-lasting effects.`\
 https://nytimes.com/2025/10/01/us/politics/stocks-gold-government-shutdown.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6676681/2025/10/01/nba-amazon-new-stats-fans/
 **Trump Promises to Defend Qatar, a Reassurance After Israel’s Strike**\
 `An executive order says an attack on Qatar would be treated as a threat to the U.S., bolstering security commitments to a key Gulf ally after Israel’s strike on Doha last month.`\
 https://nytimes.com/2025/10/01/world/middleeast/qatar-trump-executive-order.html
-
-**The Shutdown Will Not Stop Flights but Could Hurt Air Travel if It Persists**\
-`During the last government shutdown, which began in late 2018, many demoralized workers called out sick or did not show up to work.`\
-https://nytimes.com/2025/10/01/business/government-shutdown-flights-air-travel.html
 
