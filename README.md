@@ -1,9 +1,17 @@
+**Spotted Attending**\
+`Neville Fogarty helps us experience altered states.`\
+https://nytimes.com/2025/09/30/crosswords/daily-puzzle-2025-10-01.html
+
+**Uber Not Responsible for Sex Assault, Jury Finds, as More Cases Follow**\
+`The company is facing similar lawsuits in federal and state courts from people who claim their drivers sexually assaulted or harassed them.`\
+https://nytimes.com/2025/09/30/technology/uber-sexual-assualt-bellwether-lawsuit.html
+
 **Padres' season on the brink after missed chances and a familiar decision to bunt in Game 1 loss**\
 `After heavy shadows loomed and a few opportunities were squandered, the Padres now face an uphill battle in Game 2 against the Cubs. `\
 https://nytimes.com/athletic/6678326/2025/09/30/padres-wild-card-loss-game-1/
 
 **Shohei Ohtani kicks off Dodgers' postseason with homer**\
-`LOS ANGELES — That didn’t take long.`\
+`In his first at-bat of this postseason, Ohtani launched a home run into the right-field stands in Game 1 of the Wild Card Series.`\
 https://nytimes.com/athletic/6678459/2025/09/30/ohtani-dodgers-reds-leadoff-homer/
 
 **All of the Bears Were Fat, but Chunk Was the Fattest of All**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/30/business/bls-nominee-withdrawn.html
 **'Momentum's a real thing' for Cubs, who win first playoff game in a long time**\
 `The buzz turned into a boom at Wrigley after Seiya Suzuki and Carson Kelly hit back-to-back homers. Daniel Palencia took charge from there.`\
 https://nytimes.com/athletic/6678171/2025/09/30/cubs-padres-heroics-nl-wild-card/
-
-**No longer the Cubs closer, Daniel Palencia's 'electric' stuff swings momentum in Game 1 win**\
-`After an injury forced him from his closer role just three weeks ago, Palencia regrouped and found his groove working in middle relief. `\
-https://nytimes.com/athletic/6678177/2025/09/30/daniel-palencia-cubs-wildcard-win/
-
-**Full Federal Appeals Court to Hear Alien Enemies Act Case**\
-`The decision vacated a finding by a panel of the court’s judges regarding President Trump’s use of the Alien Enemies Act to deport immigrants, but did not clear the way for such expulsions to resume.`\
-https://nytimes.com/2025/09/30/us/politics/appeals-court-alien-enemies-act.html
 
