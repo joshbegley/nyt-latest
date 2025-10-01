@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6679909/2025/10/01/man-city-haaland-foden-penalty/
 `Orphaned in a massacre in Congo, a onetime elementary school dropout is now an American and can teach us something about resilience.`\
 https://nytimes.com/2025/10/01/opinion/congo-refugee-us-albinism.html
 
-**Judges Dismisses Lawsuit Over Naked Baby on Nirvana’s ‘Nevermind’**\
+**Judge Dismisses Lawsuit Over Naked Baby on Nirvana’s ‘Nevermind’**\
 `The man pictured as a naked baby on the cover of Nirvana’s seminal second album argued that the band had engaged in child sex abuse imagery.`\
 https://nytimes.com/2025/10/01/arts/music/nirvana-nevermind-baby-lawsuit.html
 
