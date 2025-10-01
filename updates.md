@@ -1,3 +1,19 @@
+**Why Ichiro won’t stop working like a player: ‘Seeing makes the message so much more believable’**\
+`Whether in his role working with the Mariners, or in his efforts to promote girls baseball in Japan, Ichiro works like he's still a player`\
+https://nytimes.com/athletic/6662447/2025/10/01/ichiro-mariners-pitching-girls-baseball/
+
+**Red Sox strike first in AL Wild Card Series against Yankees: ‘We needed this game’**\
+`Since the Wild Card Series entered its current format in 2022, all 12 teams that have won the first game have gone on to win the series.`\
+https://nytimes.com/athletic/6678835/2025/10/01/red-sox-yankees-wild-card-game-1/
+
+**Making sense of 4-0 start and Tush Push variations: 8 Eagles thoughts**\
+`C.J. Gardner-Johnson does not appear in the Eagles’ plans at the moment.`\
+https://nytimes.com/athletic/6676365/2025/10/01/making-sense-of-4-0-start-and-tush-push-variations-8-eagles-thoughts/
+
+**The New York Times International Edition in Print for Thursday, Oct. 2, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/10/01/todays-new-york-times-international-edition
+
 **Oktoberfest Closed Because of Bomb Threat in Munich**\
 `The German authorities said the rare decision was taken after an earlier explosion in a residential area of the city.`\
 https://nytimes.com/2025/10/01/world/europe/oktoberfest-munich-bomb-threat-explosion.html

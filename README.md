@@ -1,3 +1,11 @@
+**A Family’s Struggle to Build Shelter After Fleeing Gaza City**\
+`Bassem al-Qedra and his family had trouble finding adequate shelter and food after heading south, having fled Israel’s offensive in northern Gaza City. The Israeli military had said it would provide tents, food and medical care to those evacuating to the south.`\
+https://nytimes.com/video/world/middleeast/100000010425584/gaza-city-operation-displacement-shelter.html
+
+**Gaza City Exodus Is Overwhelming Relief Efforts, Aid Agencies Say**\
+`Hospitals are overflowing, water is low and diseases are spreading as hundreds of thousands of Palestinians flee south to escape Israel’s expanded ground offensive.`\
+https://nytimes.com/2025/10/01/world/middleeast/gaza-city-exodus-aid.html
+
 **Why Ichiro won’t stop working like a player: ‘Seeing makes the message so much more believable’**\
 `Whether in his role working with the Mariners, or in his efforts to promote girls baseball in Japan, Ichiro works like he's still a player`\
 https://nytimes.com/athletic/6662447/2025/10/01/ichiro-mariners-pitching-girls-baseball/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6675891/2025/10/01/fantasy-football-week-5-matchups
 **Knicks final roster spot: Does New York make trade to keep two veteran players?**\
 `If the Knicks want to keep two veterans, they have to make a trade. Who might be on the move?`\
 https://nytimes.com/athletic/6673506/2025/10/01/knicks-roster-spot-trade-landry-shamet-malcolm-brogdon/
-
-**How to watch Reds at Dodgers: Game 2 Time, TV, streaming**\
-`Find out how to watch the Cincinnati Reds play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6679123/2025/10/01/reds-vs-dodgers-stream-how-to-watch-oct-1/
-
-**Payton Pritchard on Celtics' new pace: 'Don't matter who gets it, we're flying'**\
-`Jaylen Brown has wanted the Celtics to play with more pace for years, but this season it might actually be happening. `\
-https://nytimes.com/athletic/6677928/2025/10/01/celtics-payton-pritchard-pace/
 
