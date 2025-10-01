@@ -1,3 +1,15 @@
+**Moscow Indicates Retaliation if Europe Uses Russian Assets for Ukraine**\
+`Amid a plan to lend $165 billion to Ukraine using Russian state assets, European officials are mindful of the possibility of Russian blowback as they gather Wednesday to discuss the idea.`\
+https://nytimes.com/2025/10/01/world/europe/russia-frozen-assets-ukraine-loan.html
+
+**Fashion is Teetering on a Relevancy Brink**\
+`As Paris Fashion Week begins, nostalgia sometimes comes at the expense of impact.`\
+https://nytimes.com/2025/10/01/style/saint-laurent-louis-vuitton-spring-2026-paris.html
+
+**How Yankees' Aaron Boone defended questionable decisions in Game 1 loss**\
+`Why pull Max Fried with one out in the seventh inning for Luke Weaver? And why sit Ben Rice and Jazz Chisholm Jr.? Boone defended the moves.`\
+https://nytimes.com/athletic/6678724/2025/10/01/aaron-boone-yankees-wild-card-game-1-decisions/
+
 **A Family’s Struggle to Build Shelter After Fleeing Gaza City**\
 `Bassem al-Qedra and his family had trouble finding adequate shelter and food after heading south, having fled Israel’s offensive in northern Gaza City. The Israeli military had said it would provide tents, food and medical care to those evacuating to the south.`\
 https://nytimes.com/video/world/middleeast/100000010425584/gaza-city-operation-displacement-shelter.html
@@ -25,16 +37,4 @@ https://nytimes.com/issue/todaysinyt/2025/10/01/todays-new-york-times-internatio
 **Oktoberfest Closed Because of Bomb Threat in Munich**\
 `The German authorities said the rare decision was taken after an earlier explosion in a residential area of the city.`\
 https://nytimes.com/2025/10/01/world/europe/oktoberfest-munich-bomb-threat-explosion.html
-
-**Time Running Out for Trapped Students After School Collapse in Indonesia**\
-`Workers rushed to free potential survivors two days after an Islamic boarding school collapsed during a prayer service, killing at least three students.`\
-https://nytimes.com/2025/10/01/world/asia/trapped-school-collapse-indonesia.html
-
-**Fantasy football best and worst matchups of Week 5: Justin Fields, Trey Benson could cook**\
-`KC Joyner reviews Week 5's best and worst matchups to help you with tough start/sit decisions. `\
-https://nytimes.com/athletic/6675891/2025/10/01/fantasy-football-week-5-matchups-best-worst-fields/
-
-**Knicks final roster spot: Does New York make trade to keep two veteran players?**\
-`If the Knicks want to keep two veterans, they have to make a trade. Who might be on the move?`\
-https://nytimes.com/athletic/6673506/2025/10/01/knicks-roster-spot-trade-landry-shamet-malcolm-brogdon/
 

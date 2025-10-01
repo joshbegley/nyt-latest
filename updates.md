@@ -1,3 +1,11 @@
+**A Family’s Struggle to Build Shelter After Fleeing Gaza City**\
+`Bassem al-Qedra and his family had trouble finding adequate shelter and food after heading south, having fled Israel’s offensive in northern Gaza City. The Israeli military had said it would provide tents, food and medical care to those evacuating to the south.`\
+https://nytimes.com/video/world/middleeast/100000010425584/gaza-city-operation-displacement-shelter.html
+
+**Gaza City Exodus Is Overwhelming Relief Efforts, Aid Agencies Say**\
+`Hospitals are overflowing, water is low and diseases are spreading as hundreds of thousands of Palestinians flee south to escape Israel’s expanded ground offensive.`\
+https://nytimes.com/2025/10/01/world/middleeast/gaza-city-exodus-aid.html
+
 **Why Ichiro won’t stop working like a player: ‘Seeing makes the message so much more believable’**\
 `Whether in his role working with the Mariners, or in his efforts to promote girls baseball in Japan, Ichiro works like he's still a player`\
 https://nytimes.com/athletic/6662447/2025/10/01/ichiro-mariners-pitching-girls-baseball/
