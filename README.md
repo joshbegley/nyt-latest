@@ -1,3 +1,7 @@
+**NFL Week 5 confidence picks: Here's why we're fading Chiefs and Bills ATS**\
+`KC Joyner gives his NFL confidence picks, both straight up and against the spread, for every Week 5 game.`\
+https://nytimes.com/athletic/6679161/2025/10/01/nfl-week-5-confidence-picks-chiefs-bills/
+
 **How Government Shutdowns Got More Severe and Further Reaching**\
 `Shutdowns started having significant effects after an attorney general in the 1980s argued that it was illegal for the government to spend money without congressional appropriations.`\
 https://nytimes.com/2025/10/01/us/past-government-shutdowns-length.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6680059/2025/10/01/remco-evenepoel-european-champio
 **Submit a question for James Boyd's Indianapolis Colts mailbag**\
 `Despite a tough loss last weekend, the Colts are still sitting atop the AFC South standings with a 3-1 record. `\
 https://nytimes.com/athletic/6679711/2025/10/01/colts-mailbag-james-boyd/
-
-**Is It OK to Talk to My Daughter About Her Weight?**\
-`She may be headed for a serious problem. How can we raise this with her without pushing her away?`\
-https://nytimes.com/2025/10/01/magazine/magazine-email/talk-to-daughter-about-weight-ethics.html
 
