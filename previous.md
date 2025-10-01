@@ -1,3 +1,11 @@
+**Iga Świątek's bagel defeat to Emma Navarro and the difficulties of changing style in real time**\
+`Świątek lost to Emma Navarro 6-4, 4-6, 6-0 in a match reminiscent of her defeats in the second half of 2024.`\
+https://nytimes.com/athletic/6679627/2025/10/01/iga-swiatek-emma-navarro-china-open-result-analysis/
+
+**After Kirk’s Death, Turning Point Vows to Go On. That May Be Easier Said Than Done.**\
+`Despite a surge in new campus chapters, there is a void left by Charlie Kirk’s murder that has implications for the entire MAGA movement.`\
+https://nytimes.com/2025/10/01/us/politics/charlie-kirk.html
+
 **Lowetide: The Oilers' second line will be key to success. Who will be on it?**\
 `The Oilers' biggest pressure point will be the second line. It will be, at the very least, a challenge for the coaching staff.`\
 https://nytimes.com/athletic/6675322/2025/10/01/oilers-players-lines-second-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6679584/2025/10/01/world-cup-kick-off-tv-heat-monta
 **A Flotilla of Aid and Activists Is Approaching Gaza. Here’s What to Know.**\
 `Israel’s government has said it will do whatever is necessary to keep the Global Sumud Flotilla from reaching the Gaza Strip.`\
 https://nytimes.com/2025/10/01/world/middleeast/gaza-flotilla-aid-global-sumud-israel.html
-
-**20-Story Public Housing Building in the Bronx Partly Collapses**\
-`Fire officials said an incinerator shaft in the Alexander Avenue building had fallen in after reports of an explosion. There were no reports of injuries.`\
-https://nytimes.com/2025/10/01/nyregion/bronx-explosion-building-collapse.html
-
-**Repacks bringing in big money in sports card industry despite concerns**\
-`As trading card enthusiasts look for a new thrill, repacks have taken a sizable market share`\
-https://nytimes.com/athletic/6678412/2025/10/01/sports-card-repacks/
 
