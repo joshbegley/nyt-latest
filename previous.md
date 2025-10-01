@@ -1,3 +1,7 @@
+**Markets Brace for the Costs of a Shutdown**\
+`An economic data blackout, potential delays to I.P.O.s, and a furlough tab of perhaps $400 million dollars a day could add volatility, investors fear.`\
+https://nytimes.com/2025/10/01/business/dealbook/markets-shutdown-costs.html
+
 **NBA, Amazon partner to offer new stats such as player 'gravity' and shot difficulty**\
 `Not all shots are made equal. A new stat from the NBA and Amazon will allow fans to gauge the best shooters in the league.`\
 https://nytimes.com/athletic/6676681/2025/10/01/nba-amazon-new-stats-fans/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6678701/2025/10/01/wild-training-camp-zuccarello-po
 **Blackhawks show progress, pitfalls in preseason loss, plus 5 questions for Frank Nazar**\
 `Progress is the name of the game in the preseason, and a 3-1 loss to the Red Wings came with highs and lows.`\
 https://nytimes.com/athletic/6678678/2025/10/01/blackhawks-frank-nazar-preseason-power-play/
-
-**Yohe: Penguins need to keep Harrison Brunicke in Pittsburgh**\
-`The Penguins would be wise to promote the precocious Brunicke to the NHL now. `\
-https://nytimes.com/athletic/6677935/2025/10/01/harrison-brunicke-penguins-prospect-training-camp/
 

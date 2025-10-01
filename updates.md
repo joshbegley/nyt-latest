@@ -1,3 +1,7 @@
+**Markets Brace for the Costs of a Shutdown**\
+`An economic data blackout, potential delays to I.P.O.s, and a furlough tab of perhaps $400 million dollars a day could add volatility, investors fear.`\
+https://nytimes.com/2025/10/01/business/dealbook/markets-shutdown-costs.html
+
 **NBA, Amazon partner to offer new stats such as player 'gravity' and shot difficulty**\
 `Not all shots are made equal. A new stat from the NBA and Amazon will allow fans to gauge the best shooters in the league.`\
 https://nytimes.com/athletic/6676681/2025/10/01/nba-amazon-new-stats-fans/
