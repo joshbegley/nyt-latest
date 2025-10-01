@@ -1,3 +1,7 @@
+**Israel Escalates Gaza Offensive as Hamas Mulls Trump Plan**\
+`Hundreds of thousands of Palestinians have fled Israel’s assault on Gaza City, but many are believed to remain, having nowhere to go or no means to leave.`\
+https://nytimes.com/2025/10/01/world/middleeast/israel-gaza-trump-hamas.html
+
 **U.K. ‘Grooming Gang’ Leader Sentenced to 35 Years for Rape**\
 `Seven men in all were sentenced on Wednesday over their roles in a decades-old national scandal in Britain involving child sexual abuse.`\
 https://nytimes.com/2025/10/01/world/europe/uk-grooming-gang-sentencing.html
