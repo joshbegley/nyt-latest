@@ -1,3 +1,7 @@
+**Gaël Monfils to retire from tennis at end of 2026 season: 'I am tremendously at peace'**\
+`Monfils, 39, said that he felt luck and gratitude to have played during such a legendary era of men's tennis.`\
+https://nytimes.com/athletic/6679047/2025/10/01/gael-monfils-tennis-retirement-date-last-tournament/
+
 **Does Your Backyard Need a Stegosaurus?**\
 `A popular theme park is closing. That’s good news for dinosaur fans who want their own life-size animatronic attraction.`\
 https://nytimes.com/2025/10/01/nyregion/new-jersey-dinosaur-sale.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6678913/2025/10/01/padres-vs-cubs-stream-how-to-wat
 **Word of the Day: cohesive**\
 `This word has appeared in 317 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/10/01/learning/word-of-the-day-cohesive.html
-
-**Tottenham need to control games better. They are too reactive**\
-`Tottenham needed a late equaliser against Bodo/Glimt to take a point from their Champions League match`\
-https://nytimes.com/athletic/6678434/2025/10/01/tottenham-bodo-glimt-analysis/
 
