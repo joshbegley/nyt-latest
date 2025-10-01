@@ -1,6 +1,14 @@
+**N.Y.C. Immigration Courts Go Quiet Amid Shutdown but Detentions Persist**\
+`The federal building in Lower Manhattan known as 26 Federal Plaza has become a national flashpoint in the Trump administration’s immigration crackdown.`\
+https://nytimes.com/2025/10/01/nyregion/immigration-court-government-shutdown-new-york.html
+
+**Voice of America Stops All Broadcasting After Government Shuts Down**\
+`During past shutdowns, the federal news agency continued broadcasting to authoritarian countries, as it was considered essential to national security.`\
+https://nytimes.com/2025/10/01/us/politics/voice-america-shutdown.html
+
 **Tigers-Guardians Game 2 takeaways: Guardians bats explode at key moment to tie series**\
 `The Guardians broke through against the Detroit bullpen to even the series and send it to a climactic Game 3. `\
-https://nytimes.com/athletic/6680733/2025/10/01/tigers-guardians-score-results-game-3-takeaways-mlb/
+https://nytimes.com/athletic/6680733/2025/10/01/tigers-guardians-score-results-game-2-takeaways-mlb/
 
 **World Cup ticket prices revealed as lucky few win right to buy first**\
 `Breaking down the earliest information as the first batch of fans gained the chance to buy tickets for next summer`\
@@ -29,12 +37,4 @@ https://nytimes.com/video/dining/100000010427952/mango-basque-cheesecake.html
 **Bo Bichette’s uncertain status and other Blue Jays ALDS notes**\
 `Bichette is hitting in the cage but has yet to start running. A potential return for the ALDS looks unlikely. `\
 https://nytimes.com/athletic/6680596/2025/10/01/bo-bichette-blue-jays-division-series-notes/
-
-**49ers' Brock Purdy, Ricky Pearsall, Jauan Jennings out vs. Rams on TNF**\
-`Mac Jones will make his third start of the season in Purdy's place.`\
-https://nytimes.com/athletic/6680927/2025/10/01/brock-purdy-injury-rams-ricky-pearsall-jauan-jennings/
-
-**Quentin Grimes, 76ers agree to one-year contract: Sources**\
-`Grimes has signed the 76ers' qualifying offer with a no-trade clause to be an unrestricted free agent next summer.`\
-https://nytimes.com/athletic/6529975/2025/10/01/quentin-grimes-sixers-contract-nba-2025/
 

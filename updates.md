@@ -1,3 +1,15 @@
+**N.Y.C. Immigration Courts Go Quiet Amid Shutdown but Detentions Persist**\
+`The federal building in Lower Manhattan known as 26 Federal Plaza has become a national flashpoint in the Trump administration’s immigration crackdown.`\
+https://nytimes.com/2025/10/01/nyregion/immigration-court-government-shutdown-new-york.html
+
+**Voice of America Stops All Broadcasting After Government Shuts Down**\
+`During past shutdowns, the federal news agency continued broadcasting to authoritarian countries, as it was considered essential to national security.`\
+https://nytimes.com/2025/10/01/us/politics/voice-america-shutdown.html
+
+**Tigers-Guardians Game 2 takeaways: Guardians bats explode at key moment to tie series**\
+`The Guardians broke through against the Detroit bullpen to even the series and send it to a climactic Game 3. `\
+https://nytimes.com/athletic/6680733/2025/10/01/tigers-guardians-score-results-game-2-takeaways-mlb/
+
 **Tigers-Guardians Game 2 takeaways: Guardians bats explode at key moment to tie series**\
 `The Guardians broke through against the Detroit bullpen to even the series and send it to a climactic Game 3. `\
 https://nytimes.com/athletic/6680733/2025/10/01/tigers-guardians-score-results-game-3-takeaways-mlb/
