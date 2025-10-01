@@ -1,3 +1,23 @@
+**20-Story Building in the Bronx Partly Collapses**\
+`The partial collapse of the public housing building in the Bronx followed an explosion in a ventilation shaft connected to the boiler room.`\
+https://nytimes.com/video/nyregion/100000010434055/bronx-building-collapse.html
+
+**Trump’s Chicago ICE Crackdown Intensifies With Drones, Helicopters and Trucks**\
+`The administration announced a federal operation in the Chicago area more than three weeks ago. Agents have appeared along downtown streets, and National Guard troops are expected.`\
+https://nytimes.com/2025/10/01/us/trump-chicago-immigration-national-guard.html
+
+**What I'm hearing about the Hockey Canada players as Day 1 passes in their potential NHL returns**\
+`The first day for the reinstated players can sign with NHL teams will pass without any finding a new job, per league sources.`\
+https://nytimes.com/athletic/6681213/2025/10/01/hockey-canada-players-golden-knights-hurricanes/
+
+**Cardinals prepared for spending change as Chaim Bloom era begins: 'Going to provide the resources'**\
+`For the Cardinals to be successful under Bloom, ownership must be open to ideas. The early consensus is that will be the case.`\
+https://nytimes.com/athletic/6680584/2025/10/01/cardinals-prepared-payroll-chaim-bloom-era-begins/
+
+**South African Politician, Target of Trump Attacks, Is Convicted of Gun Charge**\
+`The verdict against Julius Malema came a month after a separate court convicted him of hate speech. This year, President Trump played a video montage at the White House of Mr. Malema leading chants of “Kill the Boer,” a protest song.`\
+https://nytimes.com/2025/10/01/world/africa/malema-south-africa-trump-guilty.html
+
 **London Police Chief Apologizes Over Officers’ ‘Reprehensible’ Behavior**\
 `The police commissioner spoke after the BBC broadcast video showing officers making sexualized comments, reveling in the use of violence and expressing racist views.`\
 https://nytimes.com/2025/10/01/world/europe/london-police-chief-apology-officer-comments.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/10/01/world/americas/marine-biologist-shark-bite-costa-
 **White House Uses Shutdown to Maximize Pain and Punish Political Foes**\
 `The Trump administration forged ahead with plans to conduct mass layoffs, as the fiscal standoff appeared to intensify.`\
 https://nytimes.com/2025/10/01/us/politics/white-house-shutdown-punishment.html
-
-**Vance Laughs Off Deepfake Video of Hakeem Jeffries: ‘I Think It’s Funny’**\
-`President Trump posted the meme, which Representative Hakeem Jeffries called racist and bigoted. Vice President JD Vance said the president was “joking, and we’re having a good time.”`\
-https://nytimes.com/2025/10/01/us/politics/vance-jeffries-deepfake-video.html
-
-**How Broken Politics Breaks Courts**\
-`We look at the difficult position of independent courts and judges at a time when countries around the world are deeply divided.`\
-https://nytimes.com/2025/10/01/world/courts-polarized-gaza-flotilla-israel-blockade-jane-goodall.html
-
-**Liverpool waiting on Alisson scan to establish severity of hamstring injury**\
-`The 32-year-old appeared to sustain the problem while running back to make a save during the Champions League loss against Galatasaray.`\
-https://nytimes.com/athletic/6679162/2025/10/01/liverpool-alisson-injury-brazil/
-
-**Barca 1 PSG 2 - More Yamal magic, 45-game scoring record, Barca's high line hurts them late**\
-`Barca dropped points in agonising fashion against PSG as their dangerous approach was exploited`\
-https://nytimes.com/athletic/6679977/2025/10/01/barcelona-1-psg-2-yamal-high-line/
-
-**The Briefing: Arsenal 2-0 Olympiacos - an Odegaard passing masterclass and a superb Raya save**\
-`Arsenal came flying out of the blocks against Olympiacos. Here, we dissect the key talking points`\
-https://nytimes.com/athletic/6680694/2025/10/01/arsenal-olympiacos-odegaard-raya-champions-league-result/
 
