@@ -1,3 +1,15 @@
+**Twins want new manager well-versed in player development, president says**\
+`Derek Falvey said there’s no specific deadline for when the Twins will hire a new manager.`\
+https://nytimes.com/athletic/6678699/2025/10/01/rocco-baldelli-fired-twins/
+
+**UK Black History Month 2025: What does the future of Black British sport look like?**\
+`It's UK Black History Month and here's what to expect from The Athletic`\
+https://nytimes.com/athletic/6676595/2025/10/01/uk-black-history-month-2025-future/
+
+**Why the Premier League's carnival of bogey fixtures last weekend was unusual**\
+`Were Saturday's results for Tottenham and Manchester United surprising – or just the continuation of a strong trend?`\
+https://nytimes.com/athletic/6676003/2025/10/01/premier-league-bogey-fixtures-arsenal-newcastle-liverpool-man-utd/
+
 **What Are the Effects of a Government Shutdown?**\
 `Ben Casselman, the chief economics correspondent for The New York Times, describes the economic effects of a government shutdown.`\
 https://nytimes.com/video/us/100000010431360/government-shutdown-economic-effects.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/01/world/asia/china-tech-trade.html
 **Can This City Make Residents Put Down Their Smartphones?**\
 `The authorities in Toyoake, Japan, introduced a rule limiting the use of digital devices to two hours per day outside of work and school. Some residents say it is an overreach.`\
 https://nytimes.com/2025/10/01/world/asia/japan-smartphones-ban-toyoake.html
-
-**Quote of the Day: Can College Students Mingle For an Hour Without Phones?**\
-`Quotation of the Day for Wednesday, October 1, 2025.`\
-https://nytimes.com/2025/09/30/pageoneplus/quote-of-the-day-can-college-students-mingle-for-an-hour-without-phones.html
-
-**Yankees' Jazz Chisholm Jr. displeased with being out of Game 1 starting lineup**\
-`Ever loquacious, Chisholm did not need to say many words to get his point across: Being on the bench appeared not to sit well with him.`\
-https://nytimes.com/athletic/6678568/2025/09/30/jazz-chisholm-yankees-game-1-wild-card-lineup/
-
-**Kerr 'very comfortable' as he enters final year of his contract**\
-`Kerr, who just turned 60 years old on Sept. 27, is in his 12th season as Warriors coach`\
-https://nytimes.com/athletic/6678675/2025/09/30/warriors-coach-steve-kerr-very-comfortable-as-he-enters-final-year-of-his-contract/
 

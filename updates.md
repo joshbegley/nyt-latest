@@ -1,3 +1,15 @@
+**Twins want new manager well-versed in player development, president says**\
+`Derek Falvey said there’s no specific deadline for when the Twins will hire a new manager.`\
+https://nytimes.com/athletic/6678699/2025/10/01/rocco-baldelli-fired-twins/
+
+**UK Black History Month 2025: What does the future of Black British sport look like?**\
+`It's UK Black History Month and here's what to expect from The Athletic`\
+https://nytimes.com/athletic/6676595/2025/10/01/uk-black-history-month-2025-future/
+
+**Why the Premier League's carnival of bogey fixtures last weekend was unusual**\
+`Were Saturday's results for Tottenham and Manchester United surprising – or just the continuation of a strong trend?`\
+https://nytimes.com/athletic/6676003/2025/10/01/premier-league-bogey-fixtures-arsenal-newcastle-liverpool-man-utd/
+
 **What Are the Effects of a Government Shutdown?**\
 `Ben Casselman, the chief economics correspondent for The New York Times, describes the economic effects of a government shutdown.`\
 https://nytimes.com/video/us/100000010431360/government-shutdown-economic-effects.html
