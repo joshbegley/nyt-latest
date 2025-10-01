@@ -6,12 +6,12 @@ https://nytimes.com/card/2025/10/01/arts/editors-recommendations-kpopdemon
 `Simpson was clean all game against Georgia, completing 24-of38 passes for 276 yards, two touchdowns, zero interceptions and zero sacks.`\
 https://nytimes.com/athletic/6678611/2025/10/01/ty-simpson-passes-first-big-test/
 
-**Lamar Jackson (hamstring) misses practices as Ravens prepare for Texans**\
+**Lamar Jackson misses Ravens practices with hamstring strain ahead of Texans**\
 `Jackson left Baltimore's Week 4 game against Kansas City in the third quarter and did not return.`\
 https://nytimes.com/athletic/6677147/2025/10/01/lamar-jackson-injury-status-ravens/
 
 **Arizona Cardinals lose another running back to injury as Trey Benson hits IR**\
-`Benson will miss at least four weeks with a knee injury, though Gannon said the team expects him to return from IR.`\
+`Benson will miss at least four weeks with a knee injury, though Gannon said the team expects him to return.`\
 https://nytimes.com/athletic/6680308/2025/10/01/cardinals-trey-benson-ir-knee-injury/
 
 **How Washington Became a Testing Ground for ICE**\
