@@ -1,3 +1,23 @@
+**Biggest transfer portal disappointments after the first month of the season**\
+`Two of the most coveted offensive players in the portal — Makhi Hughes and Jaydn Ott — have combined to rush for 87 yards this season.`\
+https://nytimes.com/athletic/6677094/2025/10/01/transfer-portal-disappointments-hughes-ott-iamaleava/
+
+**Mandel's Mailbag: Is Georgia's golden era over? How far can Trinidad Chambliss take Ole Miss?**\
+`Plus: Is the ACC mediocre and has there ever been a coach like James Franklin?`\
+https://nytimes.com/athletic/6678272/2025/10/01/ole-miss-georgia-trinidad-chambliss/
+
+**What Bo Nix can build on after career-best passing performance vs. Bengals**\
+`Nix trusted his protection while completing 22-of-28 passes for 238 yards and two TDs from a "set" position, according to Next Gen Stats.`\
+https://nytimes.com/athletic/6676900/2025/10/01/bo-nix-broncos-bengals-sean-payton/
+
+**What I've learned about the Rams after 4 weeks: Matthew Stafford's new style and more**\
+`From Stafford's effectiveness as an older vet to coach Sean McVay's under-the-radar strength, here are some things that have stood out. `\
+https://nytimes.com/athletic/6677953/2025/10/01/rams-matthew-stafford-sean-mcvay-jared-verse/
+
+**Dynamic, record-setting Son-Bouanga duo makes LAFC an MLS Cup favorite**\
+`The two have combined to score LAFC's last 17 goals, taking no time at all to become one of MLS's all-time great tandems`\
+https://nytimes.com/athletic/6677201/2025/10/01/lafc-son-heung-min-denis-bouanga-mls-cup/
+
 **Markets Brace for the Costs of a Shutdown**\
 `An economic data blackout, potential delays to I.P.O.s, and a furlough tab of perhaps $400 million dollars a day could add volatility, investors fear.`\
 https://nytimes.com/2025/10/01/business/dealbook/markets-shutdown-costs.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/10/01/business/government-shutdown-flights-air-travel.h
 **Man Utd considering Saudi Arabia as venue for mid-season friendly**\
 `United are considering ways to raise revenue and, given they have several free midweeks, travelling to the Middle East is seen as an option`\
 https://nytimes.com/athletic/6623737/2025/10/01/manchester-united-saudi-arabia-friendly/
-
-**The Federal Government Shut Down Overnight**\
-`We also look at a gathering of generals in Washington.`\
-https://nytimes.com/2025/10/01/briefing/the-federal-government-shut-down-overnight.html
-
-**CFB Week 6 streaming guide: Miami vs. FSU, Vandy vs. Bama and sleeper games**\
-`Our weekly column sorts the college football slate by kickoff blocks, with a marquee choice and a "chaos agent" pick for each window.`\
-https://nytimes.com/athletic/6675182/2025/10/01/college-football-week-6-miami-fsu-alabama-vanderbilt-how-to-watch/
-
-**The Las Vegas Aces heard your doubts. ... It fueled their run back to the WNBA Finals**\
-`The Aces looked like a middling team midway through the season. Then they found the right gear and didn't let up.`\
-https://nytimes.com/athletic/6679057/2025/10/01/las-vegas-aces-wnba-finals-return/
-
-**The biggest Wild questions heading into the final week of training camp**\
-`The Wild capped off an exhilarating Tuesday with a 3-2 win over the Jets, but the roster and lineup are still in flux.`\
-https://nytimes.com/athletic/6678701/2025/10/01/wild-training-camp-zuccarello-power-play-wallstedt/
-
-**Blackhawks show progress, pitfalls in preseason loss, plus 5 questions for Frank Nazar**\
-`Progress is the name of the game in the preseason, and a 3-1 loss to the Red Wings came with highs and lows.`\
-https://nytimes.com/athletic/6678678/2025/10/01/blackhawks-frank-nazar-preseason-power-play/
 

@@ -1,3 +1,23 @@
+**Biggest transfer portal disappointments after the first month of the season**\
+`Two of the most coveted offensive players in the portal — Makhi Hughes and Jaydn Ott — have combined to rush for 87 yards this season.`\
+https://nytimes.com/athletic/6677094/2025/10/01/transfer-portal-disappointments-hughes-ott-iamaleava/
+
+**Mandel's Mailbag: Is Georgia's golden era over? How far can Trinidad Chambliss take Ole Miss?**\
+`Plus: Is the ACC mediocre and has there ever been a coach like James Franklin?`\
+https://nytimes.com/athletic/6678272/2025/10/01/ole-miss-georgia-trinidad-chambliss/
+
+**What Bo Nix can build on after career-best passing performance vs. Bengals**\
+`Nix trusted his protection while completing 22-of-28 passes for 238 yards and two TDs from a "set" position, according to Next Gen Stats.`\
+https://nytimes.com/athletic/6676900/2025/10/01/bo-nix-broncos-bengals-sean-payton/
+
+**What I've learned about the Rams after 4 weeks: Matthew Stafford's new style and more**\
+`From Stafford's effectiveness as an older vet to coach Sean McVay's under-the-radar strength, here are some things that have stood out. `\
+https://nytimes.com/athletic/6677953/2025/10/01/rams-matthew-stafford-sean-mcvay-jared-verse/
+
+**Dynamic, record-setting Son-Bouanga duo makes LAFC an MLS Cup favorite**\
+`The two have combined to score LAFC's last 17 goals, taking no time at all to become one of MLS's all-time great tandems`\
+https://nytimes.com/athletic/6677201/2025/10/01/lafc-son-heung-min-denis-bouanga-mls-cup/
+
 **Markets Brace for the Costs of a Shutdown**\
 `An economic data blackout, potential delays to I.P.O.s, and a furlough tab of perhaps $400 million dollars a day could add volatility, investors fear.`\
 https://nytimes.com/2025/10/01/business/dealbook/markets-shutdown-costs.html
