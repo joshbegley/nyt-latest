@@ -1,3 +1,23 @@
+**'I've always been ready': Dillon Gabriel steps in as Browns' starter drenched in confidence**\
+`With Cleveland's offensive struggles through four weeks, naming Gabriel the starter was a decision coach Kevin Stefanski had to make. `\
+https://nytimes.com/athletic/6680499/2025/10/01/browns-starting-quarterback-dillon-gabriel/
+
+**How the Government Shutdown Is Slowing Down the Federal Courts**\
+`Justice Department lawyers are asking judges to pause their cases until funding resumes.`\
+https://nytimes.com/2025/10/01/us/politics/federal-courts-slowing-shutdown.html
+
+**Rescuers Search for Survivors After Deadly Philippines Quake**\
+`Dozens were killed after a 6.9-magnitude earthquake struck in the Cebu Province of the Philippines on Tuesday.`\
+https://nytimes.com/video/world/asia/100000010433535/philippines-earthquake-cebu-rescues.html
+
+**Guehi says he is 'focused' on Palace after failed Liverpool transfer**\
+`Guehi was close to joining the Premier League champions before Palace pulled the plug on a £35million deal late on deadline day.`\
+https://nytimes.com/athletic/6680632/2025/10/01/marc-guehi-future-palace-liverpool/
+
+**These Democrats Voted With Republicans Against a Shutdown**\
+`Two Democratic senators and one independent who caucuses with them crossed party lines to support the G.O.P. plan to keep government funding flowing.`\
+https://nytimes.com/2025/10/01/us/politics/democrats-shutdown-vote.html
+
 **Seventeen-year NHL veteran Erik Johnson retires**\
 `Johnson is one of two American-born defensemen to be a No. 1 draft choice. He won a silver medal with Team USA at the 2010 Winter Olympics.`\
 https://nytimes.com/athletic/6680557/2025/10/01/erik-johnson-retires-nhl/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/10/01/arts/trump-neh-firings.html
 **T's Oct. 19 Greats Issue**\
 ``\
 https://nytimes.com/issue/t-magazine/2025/10/01/ts-oct-19-greats-issue-2025
-
-**Oregon running back Makhi Hughes plans to sit out rest of 2025 season and redshirt**\
-`Hughes rushed for 2,779 yards and 22 touchdowns over the previous two seasons while at Tulane.`\
-https://nytimes.com/athletic/6680545/2025/10/01/makhi-hughes-oregon-transfer-redshirt/
-
-**Heaviest Users of Snapchat Will Face a Small Charge for Storage**\
-`The social media company will charge after users reach five gigabytes of free storage, which is in line with other tech giants’ policies.`\
-https://nytimes.com/2025/10/01/business/heaviest-users-of-snapchat-will-face-a-small-charge-for-storage.html
-
-**Israel Escalates Gaza Offensive as Hamas Mulls Trump Plan**\
-`Hundreds of thousands of Palestinians have fled Israel’s assault on Gaza City, but many are believed to remain, having nowhere to go or no means to leave.`\
-https://nytimes.com/2025/10/01/world/middleeast/israel-gaza-trump-hamas.html
-
-**U.K. ‘Grooming Gang’ Leader Sentenced to 35 Years for Rape**\
-`Seven men in all were sentenced on Wednesday over their roles in a decades-old national scandal in Britain involving child sexual abuse.`\
-https://nytimes.com/2025/10/01/world/europe/uk-grooming-gang-sentencing.html
-
-**The Briefing: USG 0 Newcastle 4: How did Woltemade get on? Was this Elanga's best game? Who replaces Livramento?**\
-`We break down the talking points as Newcastle picked up three points in Belgium`\
-https://nytimes.com/athletic/6679877/2025/10/01/newcastle-tonali-woltemade-champions-league/
 
