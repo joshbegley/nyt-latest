@@ -1,3 +1,11 @@
+**Did the Yankees Try to Keep Red Sox Fans Out of the Bronx?**\
+`Not exactly, but to the thousands of Boston fans who attended the first game of the Wild Card series at Yankee Stadium, it was a welcome reason to root against the home team.`\
+https://nytimes.com/2025/10/01/nyregion/yankees-red-sox-wild-card-bronx.html
+
+**Scoop City: Meet the Browns latest QB**\
+`Answering four questions about the 40-year-old Joe Flacco's 24-year-old replacement, in whom Cleveland invested April's 94th pick.`\
+https://nytimes.com/athletic/6680294/2025/10/01/browns-dillon-gabriel-starter-nfl-scoop-city/
+
 **How Much Smaller Is the Federal Work Force? Shutdown Plans Offer a Clue.**\
 `The number of federal employees has been trimmed by thousands since President Trump took office, according to contingency plans drawn up by federal agencies.`\
 https://nytimes.com/interactive/2025/10/01/us/trump-government-shutdown-federal-cuts.html
