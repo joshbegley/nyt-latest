@@ -1,3 +1,19 @@
+**Bake Time**\
+`Baking recipes, videos, inspiration and advice from Vaughn Vreeland. <a href="https://www.nytimes.com/newsletters/bake-time" target="_blank">Sign up for the Bake Time newsletter.</a>`\
+https://nytimes.com/series/bake-time
+
+**Braves will not bring back Brian Snitker as manager in 2026**\
+`Snitker, who just completed his 49th season with Atlanta, will remain in the organization in an advisory role.`\
+https://nytimes.com/athletic/6679428/2025/10/01/brian-snitker-braves-manager/
+
+**Ex-Colts linebacker Shaq Leonard announces retirement**\
+`Leonard was a three-time first-team All-Pro linebacker and the 2018 Defensive Rookie of the Year`\
+https://nytimes.com/athletic/6679725/2025/10/01/colts-shaq-leonard-retirement/
+
+**Devils extend RFA defenseman Luke Hughes with 7-year, $63 million contract**\
+`With Hughes signed, the Devils now have eight defensemen under team control through the 2026-27 season. `\
+https://nytimes.com/athletic/6538503/2025/10/01/luke-hughes-devils-extension/
+
 **Iga Świątek's bagel defeat to Emma Navarro and the difficulties of changing style in real time**\
 `Świątek lost to Emma Navarro 6-4, 4-6, 6-0 in a match reminiscent of her defeats in the second half of 2024.`\
 https://nytimes.com/athletic/6679627/2025/10/01/iga-swiatek-emma-navarro-china-open-result-analysis/
