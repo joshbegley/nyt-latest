@@ -1,3 +1,23 @@
+**Internet Blackout in Afghanistan Enters 3rd Day**\
+`Banking services have stopped, planes are grounded and aid distribution has been halted. The scope of the blackout is rare, even for a government that has increasingly rolled back freedoms.`\
+https://nytimes.com/2025/10/01/world/asia/afghanistan-internet-blackout-taliban.html
+
+**The night Jose Mourinho got the Stamford Bridge reception his legacy deserves**\
+`After some difficult visits to west London, especially with Tottenham, this was a much warmer return for the former Chelsea boss`\
+https://nytimes.com/athletic/6678607/2025/10/01/jose-mourinho-chelsea-legacy-champions-league/
+
+**How to watch Patriots at Bills: Time, TV, streaming**\
+`Find out how to watch the New England Patriots play the Buffalo Bills, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6678934/2025/10/01/patriots-vs-bills-stream-how-to-watch-oct-5/
+
+**Ronny Chieng Shades Pete Hegseth’s Military Address**\
+`“Listen, we all do weird things when we’re drunk, OK?" Chieng said. “Some of us slide into an ex’s DMs, and some of us call every U.S. general to a meeting at Quantico.”`\
+https://nytimes.com/2025/10/01/arts/television/ronny-chieng-shades-pete-hegseths-military-address.html
+
+**How to watch Padres at Cubs: Game 2 Time, TV, streaming**\
+`Find out how to watch the San Diego Padres play the Chicago Cubs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6678913/2025/10/01/padres-vs-cubs-stream-how-to-watch-oct-1/
+
 **Word of the Day: cohesive**\
 `This word has appeared in 317 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/10/01/learning/word-of-the-day-cohesive.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6678154/2025/10/01/liverpool-galatasaray-analysis-d
 **The U.S. Eases Visa Restrictions on South Korean Workers**\
 `The agreement came after an ICE raid on a factory in Georgia outraged one of America’s key allies.`\
 https://nytimes.com/2025/10/01/world/asia/south-korea-georgia-factory-visa.html
-
-**The New York Times in Print for Wednesday, Oct. 1, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/10/01/todays-new-york-times
-
-**Regime Change Was Always the Plan for Venezuela**\
-`The Trump administration’s Venezuela policy is driven by a desire for vindication and revenge.`\
-https://nytimes.com/2025/10/01/opinion/venezuela-trump-maduro-regime-boats.html
-
-**The U.S. Is Sweeping Away Human Rights Protections**\
-`Sanctions on small human rights groups are the latest Trump attack on global efforts to protect civil liberties.`\
-https://nytimes.com/2025/10/01/opinion/human-rights-palestinians-international-criminal-court.html
-
-**The sad decline of West Indian Test cricket: 'We seem to have given up'**\
-`West Indies travel to India with their Test team at its lowest ebb and memories fading of their world dominance from the 1970s and '80s `\
-https://nytimes.com/athletic/6658044/2025/10/01/west-indies-test-cricket-decline-roberts-adams/
-
-**What West Ham can expect from Nuno: Compact squad, several subs, and straight talk**\
-`West Ham fans got a welcome introduction to their new head coach on Monday, but there is more to the former Forest boss than meets the eye`\
-https://nytimes.com/athletic/6673578/2025/10/01/west-ham-nuno-espirito-santo-premier-league-analysis/
 

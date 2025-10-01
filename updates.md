@@ -1,3 +1,23 @@
+**Internet Blackout in Afghanistan Enters 3rd Day**\
+`Banking services have stopped, planes are grounded and aid distribution has been halted. The scope of the blackout is rare, even for a government that has increasingly rolled back freedoms.`\
+https://nytimes.com/2025/10/01/world/asia/afghanistan-internet-blackout-taliban.html
+
+**The night Jose Mourinho got the Stamford Bridge reception his legacy deserves**\
+`After some difficult visits to west London, especially with Tottenham, this was a much warmer return for the former Chelsea boss`\
+https://nytimes.com/athletic/6678607/2025/10/01/jose-mourinho-chelsea-legacy-champions-league/
+
+**How to watch Patriots at Bills: Time, TV, streaming**\
+`Find out how to watch the New England Patriots play the Buffalo Bills, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6678934/2025/10/01/patriots-vs-bills-stream-how-to-watch-oct-5/
+
+**Ronny Chieng Shades Pete Hegseth’s Military Address**\
+`“Listen, we all do weird things when we’re drunk, OK?" Chieng said. “Some of us slide into an ex’s DMs, and some of us call every U.S. general to a meeting at Quantico.”`\
+https://nytimes.com/2025/10/01/arts/television/ronny-chieng-shades-pete-hegseths-military-address.html
+
+**How to watch Padres at Cubs: Game 2 Time, TV, streaming**\
+`Find out how to watch the San Diego Padres play the Chicago Cubs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6678913/2025/10/01/padres-vs-cubs-stream-how-to-watch-oct-1/
+
 **Word of the Day: cohesive**\
 `This word has appeared in 317 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/10/01/learning/word-of-the-day-cohesive.html
