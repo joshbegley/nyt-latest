@@ -1,3 +1,11 @@
+**How Government Shutdowns Got More Severe and Further Reaching**\
+`Shutdowns started having significant effects after an attorney general in the 1980s argued that it was illegal for the government to spend money without congressional appropriations.`\
+https://nytimes.com/2025/10/01/us/past-government-shutdowns-length.html
+
+**Can the Colorado Rockies be saved? Executives explain how they'd fix MLB’s laughingstock**\
+`The Rockies parted ways with general manager Bill Schmidt on Wednesday. That leaves them with an opportunity to finally turn things around.`\
+https://nytimes.com/athletic/6680162/2025/10/01/colorado-rockies-mlb-monfort-schmidt-fix/
+
 **A surging pro sports league suddenly finds itself in crisis: MoneyCall**\
 `More in this week's sports business cheat sheet: MLB surging, Bad Bunny, Senator Paul Finebaum, Chad Powers, Jurgen Klopp and Steve Cohen.`\
 https://nytimes.com/athletic/6680065/2025/10/01/napheesa-collier-wnba-engelbert-moneycall/
