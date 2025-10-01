@@ -1,3 +1,7 @@
+**Judges Dismisses Lawsuit Over Naked Baby on Nirvana’s ‘Nevermind’**\
+`The man pictured as a naked baby on the cover of Nirvana’s seminal second album argued that the band had engaged in child sex abuse imagery.`\
+https://nytimes.com/2025/10/01/arts/music/nirvana-nevermind-baby-lawsuit.html
+
 **N.Y.C. Immigration Courts Go Quiet Amid Shutdown but Detentions Persist**\
 `The federal building in Lower Manhattan known as 26 Federal Plaza has become a national flashpoint in the Trump administration’s immigration crackdown.`\
 https://nytimes.com/2025/10/01/nyregion/immigration-court-government-shutdown-new-york.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/dining/100000010427962/sticky-date-and-brown-butter-oa
 **Mango Basque Cheesecake**\
 `Intensely creamy with a shiny burnished top, the rustic Basque cheesecake is the perfect format for aromatic mango.`\
 https://nytimes.com/video/dining/100000010427952/mango-basque-cheesecake.html
-
-**Bo Bichette’s uncertain status and other Blue Jays ALDS notes**\
-`Bichette is hitting in the cage but has yet to start running. A potential return for the ALDS looks unlikely. `\
-https://nytimes.com/athletic/6680596/2025/10/01/bo-bichette-blue-jays-division-series-notes/
 
