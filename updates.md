@@ -1,3 +1,11 @@
+**As Cubs return to the playoffs, David Ross wants another shot as a big-league manager**\
+`Two years after the Cubs fired him to hire Craig Counsell, Ross "badly" wants to manage again. "It’s an itch that hasn’t gone away."`\
+https://nytimes.com/athletic/6678283/2025/10/01/david-ross-cubs-mlb-manager/
+
+**From Stanley Cup contenders to bottom-feeders: The 2025-26 McIndoe divisions**\
+`These aren't your typical divisions. Like every fall, let's split up the teams based on whether they're actually expected to be good or not.`\
+https://nytimes.com/athletic/6677565/2025/10/01/nhl-predictions-2025-26-divisions/
+
 **How Diamonds Are Born**\
 `Southern Africa’s “desert diamonds,” forged millions of years ago, continue to transform the region today.`\
 https://nytimes.com/paidpost/de-beers/how-diamonds-are-born.html

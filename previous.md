@@ -1,3 +1,11 @@
+**As Cubs return to the playoffs, David Ross wants another shot as a big-league manager**\
+`Two years after the Cubs fired him to hire Craig Counsell, Ross "badly" wants to manage again. "It’s an itch that hasn’t gone away."`\
+https://nytimes.com/athletic/6678283/2025/10/01/david-ross-cubs-mlb-manager/
+
+**From Stanley Cup contenders to bottom-feeders: The 2025-26 McIndoe divisions**\
+`These aren't your typical divisions. Like every fall, let's split up the teams based on whether they're actually expected to be good or not.`\
+https://nytimes.com/athletic/6677565/2025/10/01/nhl-predictions-2025-26-divisions/
+
 **How Diamonds Are Born**\
 `Southern Africa’s “desert diamonds,” forged millions of years ago, continue to transform the region today.`\
 https://nytimes.com/paidpost/de-beers/how-diamonds-are-born.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6679087/2025/10/01/mlb-wild-card-game-1-yankees-red
 **Vikings’ myriad of injuries gives them tiny margin for error vs. Browns in London**\
 `Set to face another talented defense, the Vikings would benefit from getting out to an early lead and avoiding third-and-long situations.`\
 https://nytimes.com/athletic/6676720/2025/10/01/vikings-injuries-kevin-oconnell-browns-london/
-
-**Wizards' 170 days of offseason work has to start showing when lights are brightest**\
-`Wizards fans have the right to see growth from this group, even as many of them can't legally buy beer at the arena in which they play.`\
-https://nytimes.com/athletic/6674505/2025/10/01/wizards-170-days-of-offseason-work-has-to-start-showing-when-lights-are-brightest/
-
-**Ties in the NFL are unpopular. How about these alternatives instead?**\
-`“Raise your hand if you like ending in a tie? So, nobody,” Bills coach Sean McDermott said this week. We can do better.`\
-https://nytimes.com/athletic/6675307/2025/10/01/nfl-ties-overtime-rules/
 
