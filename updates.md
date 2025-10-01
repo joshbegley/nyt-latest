@@ -1,3 +1,11 @@
+**Yankees-Red Sox takeaways: Garrett Crochet deals, Yanks' ’pen reels as Sox take series lead**\
+`Crochet's masterful 7 2/3 innings and career-high 117 pitches carried Boston to a tense 3-1 win to take a 1-0 series lead. `\
+https://nytimes.com/athletic/6678179/2025/09/30/yankees-red-sox-game-1-al-wild-card-2025/
+
+**A More Polarized Senate Drives Shutdown Gridlock**\
+`With few senators from conservative states in their ranks, Democrats feel less pressure to capitulate, while more conservative Republicans are not inclined to cut a deal.`\
+https://nytimes.com/2025/09/30/us/politics/polarized-senate-shutdown-gridlock.html
+
 **Judge Denies Sean Combs’s Request to Vacate Conviction**\
 `The music mogul will be sentenced on Friday after a jury found him guilty of transporting people for prostitution.`\
 https://nytimes.com/2025/09/30/arts/music/sean-combs-diddy-conviction-stands.html

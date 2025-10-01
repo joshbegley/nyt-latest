@@ -1,3 +1,11 @@
+**Yankees-Red Sox takeaways: Garrett Crochet deals, Yanks' ’pen reels as Sox take series lead**\
+`Crochet's masterful 7 2/3 innings and career-high 117 pitches carried Boston to a tense 3-1 win to take a 1-0 series lead. `\
+https://nytimes.com/athletic/6678179/2025/09/30/yankees-red-sox-game-1-al-wild-card-2025/
+
+**A More Polarized Senate Drives Shutdown Gridlock**\
+`With few senators from conservative states in their ranks, Democrats feel less pressure to capitulate, while more conservative Republicans are not inclined to cut a deal.`\
+https://nytimes.com/2025/09/30/us/politics/polarized-senate-shutdown-gridlock.html
+
 **Judge Denies Sean Combs’s Request to Vacate Conviction**\
 `The music mogul will be sentenced on Friday after a jury found him guilty of transporting people for prostitution.`\
 https://nytimes.com/2025/09/30/arts/music/sean-combs-diddy-conviction-stands.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6678053/2025/09/30/tigers-guardians-tarik-skubal-al
 **How to watch Red Sox at Yankees: Game 1 Time, TV, streaming**\
 `Find out how to watch the Boston Red Sox play the New York Yankees, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6678269/2025/09/30/red-sox-vs-yankees-stream-how-to-watch-oct-1/
-
-**Dulcy Caylor clinches first spot on U.S. gymnastics World Championship team**\
-`Caylor scored a career-high, beating out gymnasts with much more world experience on their resumes.`\
-https://nytimes.com/athletic/6677647/2025/09/30/dulcy-caylor-usa-gymnastics-world-championship-team/
-
-**Judge Blocks Trump’s Move to Cut Federal Funds Over Immigration Policy**\
-`A coalition of blue states and Washington, D.C., accused the Trump administration of illegally “taking money from its enemies” in freezing emergency preparedness grants.`\
-https://nytimes.com/2025/09/30/us/politics/trump-fema-funds-immigration.html
 
