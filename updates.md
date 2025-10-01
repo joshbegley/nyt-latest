@@ -1,3 +1,15 @@
+**U.S. airports report few delays as the shutdown begins.**\
+`By Gabe Castro-Root`\
+https://nytimes.com/live/2025/10/01/us/government-shutdown-trump-news/us-airports-report-few-delays-as-the-shutdown-begins
+
+**Mings targeting injury return after October international break**\
+`Mings, 32, underwent assessments on Wednesday after being forced off against Fulham.`\
+https://nytimes.com/athletic/6670629/2025/10/01/aston-villa-tyrone-mings-injury-update/
+
+**20-Story Public Housing Building in the Bronx Partly Collapses**\
+`Fire officials said an incinerator shaft in the Alexander Avenue building had fallen in after reports of an explosion. There were no reports of injuries.`\
+https://nytimes.com/2025/10/01/nyregion/bronx-explosion-building-collapse.html
+
 **The Windup: Aces (mostly) rule Game 1s**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6679600/2025/10/01/mlb-wild-card-game-1-the-windup/
