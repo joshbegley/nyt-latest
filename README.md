@@ -1,3 +1,11 @@
+**Judge Denies Sean Combs’s Request to Vacate Conviction**\
+`The music mogul will be sentenced on Friday after a jury found him guilty of transporting people for prostitution.`\
+https://nytimes.com/2025/09/30/arts/music/sean-combs-diddy-conviction-stands.html
+
+**White House Pulls Pick to Lead Labor Data Agency**\
+`E.J. Antoni, a conservative economist, had faced bipartisan criticism as President Trump’s nominee to lead the Bureau of Labor Statistics.`\
+https://nytimes.com/2025/09/30/business/bls-nominee-withdrawn.html
+
 **'Momentum's a real thing' for Cubs, who win first playoff game in a long time**\
 `The buzz turned into a boom at Wrigley after Seiya Suzuki and Carson Kelly hit back-to-back homers. Daniel Palencia took charge from there.`\
 https://nytimes.com/athletic/6678171/2025/09/30/cubs-padres-heroics-nl-wild-card/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6677647/2025/09/30/dulcy-caylor-usa-gymnastics-worl
 **Judge Blocks Trump’s Move to Cut Federal Funds Over Immigration Policy**\
 `A coalition of blue states and Washington, D.C., accused the Trump administration of illegally “taking money from its enemies” in freezing emergency preparedness grants.`\
 https://nytimes.com/2025/09/30/us/politics/trump-fema-funds-immigration.html
-
-**U.S. Argues That Detained Protesters Can’t Seek Release in Federal Court**\
-`A federal appeals court heard arguments over whether noncitizens subject to deportation have the right to challenge their detentions using one of the oldest legal precepts.`\
-https://nytimes.com/2025/09/30/nyregion/habeas-corpus-deportation-appeal.html
-
-**Chaim Bloom puts Cardinals' focus on long term: 'We can't take shortcuts, and we won't'**\
-`Bloom laid out his thoughts on the Sonny Gray trade outlook, as well as what's next for Jordan Walker and Nolan Gorman.`\
-https://nytimes.com/athletic/6677488/2025/09/30/cardinals-mlb-chaim-bloom-plan/
 
