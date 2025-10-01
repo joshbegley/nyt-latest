@@ -1,3 +1,11 @@
+**A Flotilla of Aid and Activists Is Approaching Gaza. Here’s What to Know.**\
+`Israel’s government has said it will do whatever is necessary to keep the Global Sumud Flotilla from reaching the Gaza Strip.`\
+https://nytimes.com/2025/10/01/world/middleeast/gaza-flotilla-aid-global-sumud-israel.html
+
+**20-Story Apartment Building in the Bronx Partially Collapses**\
+`Fire officials said an incinerator shaft in the Alexander Avenue building had collapsed after reports of an explosion. There were no reports of injuries.`\
+https://nytimes.com/2025/10/01/nyregion/bronx-explosion-building-collapse.html
+
 **Repacks bringing in big money in sports card industry despite concerns**\
 `As trading card enthusiasts look for a new thrill, repacks have taken a sizable market share`\
 https://nytimes.com/athletic/6678412/2025/10/01/sports-card-repacks/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6679334/2025/10/01/uefa-israel-football-vote-fifa/
 **‘Rampant’ Book Bans Are Being Taken for Granted, Free Speech Group Warns**\
 `A new report from PEN America tracks restrictions on school books across 45 states.`\
 https://nytimes.com/2025/10/01/books/book-bans-pen-america.html
-
-**Stock Markets Slip and Gold Rises as Shutdown Takes Effect**\
-`Investors have typically been unfazed by government closures, but the longer a shutdown runs, the greater the chance of longer-lasting effects.`\
-https://nytimes.com/2025/10/01/us/politics/stocks-gold-government-shutdown.html
-
-**Biggest transfer portal disappointments after the first month of the season**\
-`Two of the most coveted offensive players in the portal — Makhi Hughes and Jaydn Ott — have combined to rush for 87 yards this season.`\
-https://nytimes.com/athletic/6677094/2025/10/01/transfer-portal-disappointments-hughes-ott-iamaleava/
 

@@ -1,3 +1,11 @@
+**A Flotilla of Aid and Activists Is Approaching Gaza. Here’s What to Know.**\
+`Israel’s government has said it will do whatever is necessary to keep the Global Sumud Flotilla from reaching the Gaza Strip.`\
+https://nytimes.com/2025/10/01/world/middleeast/gaza-flotilla-aid-global-sumud-israel.html
+
+**20-Story Apartment Building in the Bronx Partially Collapses**\
+`Fire officials said an incinerator shaft in the Alexander Avenue building had collapsed after reports of an explosion. There were no reports of injuries.`\
+https://nytimes.com/2025/10/01/nyregion/bronx-explosion-building-collapse.html
+
 **Repacks bringing in big money in sports card industry despite concerns**\
 `As trading card enthusiasts look for a new thrill, repacks have taken a sizable market share`\
 https://nytimes.com/athletic/6678412/2025/10/01/sports-card-repacks/

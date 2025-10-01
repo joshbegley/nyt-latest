@@ -1,3 +1,15 @@
+**The Windup: Aces (mostly) rule Game 1s**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6679600/2025/10/01/mlb-wild-card-game-1-the-windup/
+
+**Government Shutdown: Democrats Did the Smart Thing**\
+`The U.S. government is shut down. Democrats and Republicans failed to agree on a stopgap funding bill, leading to the shutdown. The journalist Molly Jong-Fast argues that the Democrats did the smart thing by refusing to acquiesce to President Trump.`\
+https://nytimes.com/video/opinion/100000010431697/government-shutdown-democrats-did-the-smart-thing.html
+
+**European teams not guaranteed TV-friendly 2026 World Cup kick-off times**\
+`High temperatures in North America affected players at the Club World Cup this summer and the 1994 World Cup.`\
+https://nytimes.com/athletic/6679584/2025/10/01/world-cup-kick-off-tv-heat-montagliani-fifa/
+
 **A Flotilla of Aid and Activists Is Approaching Gaza. Here’s What to Know.**\
 `Israel’s government has said it will do whatever is necessary to keep the Global Sumud Flotilla from reaching the Gaza Strip.`\
 https://nytimes.com/2025/10/01/world/middleeast/gaza-flotilla-aid-global-sumud-israel.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/01/opinion/erasure-working-women-federal-agency.html
 **Should I Tell an Acquaintance That Her Husband Is Leading a Double Life?**\
 `A reader is conflicted about whether to share what she knows of a husband’s whereabouts while he’s meant to be traveling for work.`\
 https://nytimes.com/2025/10/01/style/secrets-discretion-marriage.html
-
-**Browns bench Joe Flacco, name rookie Dillon Gabriel starting QB**\
-`At 1-3, Cleveland is going with Gabriel over the 40-year-old Flacco, who threw two touchdowns and six interceptions over four starts. `\
-https://nytimes.com/athletic/6674480/2025/10/01/dillon-gabriel-browns-starting-quarterback/
-
-**UEFA delays vote on Israel suspension, FIFA vice-president says**\
-`Victor Montagliani said Israel’s immediate future was also not on the agenda for Thursday’s FIFA Council meeting.`\
-https://nytimes.com/athletic/6679334/2025/10/01/uefa-israel-football-vote-fifa/
-
-**‘Rampant’ Book Bans Are Being Taken for Granted, Free Speech Group Warns**\
-`A new report from PEN America tracks restrictions on school books across 45 states.`\
-https://nytimes.com/2025/10/01/books/book-bans-pen-america.html
 
