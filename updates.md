@@ -1,3 +1,7 @@
+**Reality TV’s Bad Boyfriend Is Angry Again. This Time, He’s Yelling at Gavin Newsom.**\
+`After losing his house in the Palisades fire, Spencer Pratt has gone from the archetype of celebrity emptiness to community activist — and become a magnet for Republican politicians.`\
+https://nytimes.com/2025/10/01/business/economy/spencer-pratt-palisades-fire-gavin-newsom.html
+
 **Can an Ancient Ritual Fix Our Loneliness Problem?**\
 `A reporter plunged in to find out.`\
 https://nytimes.com/2025/10/01/well/bathhouses-social-loneliness.html

@@ -1,3 +1,7 @@
+**Reality TV’s Bad Boyfriend Is Angry Again. This Time, He’s Yelling at Gavin Newsom.**\
+`After losing his house in the Palisades fire, Spencer Pratt has gone from the archetype of celebrity emptiness to community activist — and become a magnet for Republican politicians.`\
+https://nytimes.com/2025/10/01/business/economy/spencer-pratt-palisades-fire-gavin-newsom.html
+
 **Can an Ancient Ritual Fix Our Loneliness Problem?**\
 `A reporter plunged in to find out.`\
 https://nytimes.com/2025/10/01/well/bathhouses-social-loneliness.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6679784/2025/10/01/guardians-chase-delauter-mlb-deb
 **Spam and Scams Proliferate in Facebook’s Political Ads**\
 `A new analysis of political advertisers found that the platform profits from ads that include deepfakes and other content prohibited by its own policies.`\
 https://nytimes.com/2025/10/01/technology/facebooks-political-ads-deepfakes-scams.html
-
-**Newcastle's Livramento faces up to eight weeks out with knee injury**\
-`The 22-year-old has started all six of Newcastle's Premier League games this season.`\
-https://nytimes.com/athletic/6670568/2025/10/01/tino-livramento-injury-newcastle/
 
