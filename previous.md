@@ -1,40 +1,40 @@
+**Spicy Vinegar Chicken Over Artichokes**\
+`There’s something undeniably comforting about the combination of chicken and artichokes.`\
+https://nytimes.com/video/dining/100000010432769/spicy-vinegar-chicken-over-artichokes.html
+
+**Crab Rice**\
+`Crab rice is a prized dish of the Gullah Geechee people of the Carolina Lowcountry, a region of the United States that is synonymous with seafood.`\
+https://nytimes.com/video/dining/100000010427988/crab-rice.html
+
+**Sticky Date and Brown Butter Oatmeal**\
+`This sticky date and brown butter oatmeal relies entirely on the caramel-like flavor of medjool dates for sweetness. Briefly cooking the dates first allows them to almost completely dissolve into the oatmeal, permeating every bite.`\
+https://nytimes.com/video/dining/100000010427962/sticky-date-and-brown-butter-oatmeal.html
+
+**Mango Basque Cheesecake**\
+`Intensely creamy with a shiny burnished top, the rustic Basque cheesecake is the perfect format for aromatic mango.`\
+https://nytimes.com/video/dining/100000010427952/mango-basque-cheesecake.html
+
+**Bo Bichette’s uncertain status and other Blue Jays ALDS notes**\
+`Bichette is hitting in the cage but has yet to start running. A potential return for the ALDS looks unlikely. `\
+https://nytimes.com/athletic/6680596/2025/10/01/bo-bichette-blue-jays-division-series-notes/
+
+**49ers' Brock Purdy, Ricky Pearsall, Jauan Jennings out vs. Rams on TNF**\
+`Mac Jones will make his third start of the season in Purdy's place.`\
+https://nytimes.com/athletic/6680927/2025/10/01/brock-purdy-injury-rams-ricky-pearsall-jauan-jennings/
+
+**Quentin Grimes, 76ers agree to one-year contract: Sources**\
+`Grimes has signed the 76ers' qualifying offer with a no-trade clause to be an unrestricted free agent next summer.`\
+https://nytimes.com/athletic/6529975/2025/10/01/quentin-grimes-sixers-contract-nba-2025/
+
+**Florida Court Rejects Free Speech Argument in Book Removal Case**\
+`The lawsuit was an effort to keep ‘And Tango Makes Three,’ about two male penguins raising a chick, in a county’s school libraries.`\
+https://nytimes.com/2025/10/01/books/and-tango-makes-three-escambia-county.html
+
+**The average NHL franchise is now reportedly worth $2.1 billion. What does it mean for the league?**\
+`According to Sportico's annual rankings, the average team valuation has more than doubled over the past two years.`\
+https://nytimes.com/athletic/6680260/2025/10/01/nhl-franchise-valuations-team-worth-sportico/
+
 **Activists Say Israel Has Intercepted Boats Headed to Gaza With Aid**\
 `The vessels are part of a flotilla carrying activists, including Greta Thunberg, who are trying to deliver humanitarian goods and protest Israel’s war.`\
 https://nytimes.com/2025/10/01/world/middleeast/gaza-flotilla-israel.html
-
-**Video Captures Debris Falling From 20-Story Bronx Building**\
-`A public housing building in the Bronx partly collapsed on Wednesday after an explosion in the chimney, officials said. No injuries were reported.`\
-https://nytimes.com/video/nyregion/newyorktoday/100000010433437/bronx-building-explosion.html
-
-**When a Driverless Car Makes an Illegal U-Turn, Who Gets the Ticket?**\
-`California approved a law last year allowing the police to cite autonomous vehicles, but it did not specify any penalties, and the law doesn’t take effect until 2026.`\
-https://nytimes.com/2025/10/01/us/waymo-tickets-san-bruno.html
-
-**'I've always been ready': Dillon Gabriel steps in as Browns' starter drenched in confidence**\
-`With Cleveland's offensive struggles through four weeks, naming Gabriel the starter was a decision coach Kevin Stefanski had to make. `\
-https://nytimes.com/athletic/6680499/2025/10/01/browns-starting-quarterback-dillon-gabriel/
-
-**How the Government Shutdown Is Slowing the Federal Courts**\
-`Justice Department lawyers are asking judges to pause their cases until funding resumes.`\
-https://nytimes.com/2025/10/01/us/politics/federal-courts-slowing-shutdown.html
-
-**Rescuers Search for Survivors After Deadly Philippines Quake**\
-`Dozens were killed after a 6.9-magnitude earthquake struck in the Cebu Province of the Philippines on Tuesday.`\
-https://nytimes.com/video/world/asia/100000010433535/philippines-earthquake-cebu-rescues.html
-
-**Guehi says he is 'focused' on Palace after failed Liverpool transfer**\
-`Guehi was close to joining the Premier League champions before Palace pulled the plug on a £35million deal late on deadline day.`\
-https://nytimes.com/athletic/6680632/2025/10/01/marc-guehi-future-palace-liverpool/
-
-**These Democrats Voted With Republicans Against a Shutdown**\
-`Two Democratic senators and one independent who caucuses with them crossed party lines to support the G.O.P. plan to keep government funding flowing.`\
-https://nytimes.com/2025/10/01/us/politics/democrats-shutdown-vote.html
-
-**Seventeen-year NHL veteran Erik Johnson retires**\
-`Johnson is one of two American-born defensemen to be a No. 1 draft choice. He won a silver medal with Team USA at the 2010 Winter Olympics.`\
-https://nytimes.com/athletic/6680557/2025/10/01/erik-johnson-retires-nhl/
-
-**Is Kennedy’s War on Vaccination Over?**\
-`The health secretary promised a revolution but delivered minor changes. Why?`\
-https://nytimes.com/2025/10/01/opinion/kennedy-vaccines-autism.html
 
