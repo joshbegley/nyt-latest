@@ -1,3 +1,15 @@
+**Tigers-Guardians Game 2 takeaways: Guardians bats explode at key moment to tie series**\
+`The Guardians broke through against the Detroit bullpen to even the series and send it to a climactic Game 3. `\
+https://nytimes.com/athletic/6680733/2025/10/01/tigers-guardians-score-results-game-3-takeaways-mlb/
+
+**World Cup ticket prices revealed as lucky few win right to buy first**\
+`Breaking down the earliest information as the first batch of fans gained the chance to buy tickets for next summer`\
+https://nytimes.com/athletic/6680752/2025/10/01/world-cup-ticket-prices-usmnt/
+
+**Where to Eat in N.Y.C.: Best Restaurant Sequels**\
+`This week, Luke Fortney takes a closer look at three restaurant sequels to see how they stack up to the originals.`\
+https://nytimes.com/video/dining/100000010432778/where-to-eat-in-nyc-best-restaurant-sequels.html
+
 **Spicy Vinegar Chicken Over Artichokes**\
 `There’s something undeniably comforting about the combination of chicken and artichokes.`\
 https://nytimes.com/video/dining/100000010432769/spicy-vinegar-chicken-over-artichokes.html

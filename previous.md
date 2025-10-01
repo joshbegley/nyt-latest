@@ -1,3 +1,15 @@
+**Tigers-Guardians Game 2 takeaways: Guardians bats explode at key moment to tie series**\
+`The Guardians broke through against the Detroit bullpen to even the series and send it to a climactic Game 3. `\
+https://nytimes.com/athletic/6680733/2025/10/01/tigers-guardians-score-results-game-3-takeaways-mlb/
+
+**World Cup ticket prices revealed as lucky few win right to buy first**\
+`Breaking down the earliest information as the first batch of fans gained the chance to buy tickets for next summer`\
+https://nytimes.com/athletic/6680752/2025/10/01/world-cup-ticket-prices-usmnt/
+
+**Where to Eat in N.Y.C.: Best Restaurant Sequels**\
+`This week, Luke Fortney takes a closer look at three restaurant sequels to see how they stack up to the originals.`\
+https://nytimes.com/video/dining/100000010432778/where-to-eat-in-nyc-best-restaurant-sequels.html
+
 **Spicy Vinegar Chicken Over Artichokes**\
 `There’s something undeniably comforting about the combination of chicken and artichokes.`\
 https://nytimes.com/video/dining/100000010432769/spicy-vinegar-chicken-over-artichokes.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6680927/2025/10/01/brock-purdy-injury-rams-ricky-pe
 **Quentin Grimes, 76ers agree to one-year contract: Sources**\
 `Grimes has signed the 76ers' qualifying offer with a no-trade clause to be an unrestricted free agent next summer.`\
 https://nytimes.com/athletic/6529975/2025/10/01/quentin-grimes-sixers-contract-nba-2025/
-
-**Florida Court Rejects Free Speech Argument in Book Removal Case**\
-`The lawsuit was an effort to keep ‘And Tango Makes Three,’ about two male penguins raising a chick, in a county’s school libraries.`\
-https://nytimes.com/2025/10/01/books/and-tango-makes-three-escambia-county.html
-
-**The average NHL franchise is now reportedly worth $2.1 billion. What does it mean for the league?**\
-`According to Sportico's annual rankings, the average team valuation has more than doubled over the past two years.`\
-https://nytimes.com/athletic/6680260/2025/10/01/nhl-franchise-valuations-team-worth-sportico/
-
-**Activists Say Israel Has Intercepted Boats Headed to Gaza With Aid**\
-`The vessels are part of a flotilla carrying activists, including Greta Thunberg, who are trying to deliver humanitarian goods and protest Israel’s war.`\
-https://nytimes.com/2025/10/01/world/middleeast/gaza-flotilla-israel.html
 
