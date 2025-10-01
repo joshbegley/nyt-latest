@@ -1,4 +1,12 @@
-**Government shutdown will not impact service academy sports, officials say**\
+**Can an Ancient Ritual Fix Our Loneliness Problem?**\
+`A reporter plunged in to find out.`\
+https://nytimes.com/2025/10/01/well/bathhouses-social-loneliness.html
+
+**Qatari Royals Schemed to Get Free Labor for Luxury Properties, Hotelier Says**\
+`A lawsuit accuses members of the emirate’s ruling family of stringing the Irish hotelier, Patrick McKillen, along on high-end developments as “part of a yearslong pattern of illegal racketeering.”`\
+https://nytimes.com/2025/10/01/world/middleeast/qatar-royals-lawsuit-labor-racketeering.html
+
+**U.S. government shutdown will not impact service academy sports, officials say**\
 `Navy and Air Force play each other in football this Saturday.`\
 https://nytimes.com/athletic/6679840/2025/10/01/army-navy-air-force-sports-government-shutdown-impact/
 
@@ -7,7 +15,7 @@ https://nytimes.com/athletic/6679840/2025/10/01/army-navy-air-force-sports-gover
 https://nytimes.com/athletic/6679823/2025/10/01/olekansandr-zinchenko-forest-injury-update/
 
 **Eva Lys' tennis rise up the WTA Tour is built on a 'less is more' approach. She explains why**\
-`The 23-year-old German, diagnosed with spondyloarthritis in 2020, cracked the world’s top 50 for the first time this week`\
+`The 23-year-old German, diagnosed with spondyloarthritis in 2020, cracked the world’s top 50 for the first time this week.`\
 https://nytimes.com/athletic/6676454/2025/10/01/eva-lys-tennis-player-wta/
 
 **The Bounce: What a day across the WNBA; previewing the Suns and Hornets**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/01/technology/facebooks-political-ads-deepfakes-scam
 **Newcastle's Livramento faces up to eight weeks out with knee injury**\
 `The 22-year-old has started all six of Newcastle's Premier League games this season.`\
 https://nytimes.com/athletic/6670568/2025/10/01/tino-livramento-injury-newcastle/
-
-**U.S. airports report few delays as the shutdown begins.**\
-`By Gabe Castro-Root`\
-https://nytimes.com/live/2025/10/01/us/government-shutdown-trump-news/us-airports-report-few-delays-as-the-shutdown-begins
-
-**Canucks 23-man roster projection 2.0: Who's still on the roster bubble?**\
-`Let's set the stakes for the final week of preseason by breaking down the Canucks roster as it currently stands.`\
-https://nytimes.com/athletic/6678653/2025/10/01/canucks-roster-projection-2025/
 
