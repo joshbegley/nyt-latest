@@ -1,3 +1,7 @@
+**Man Utd exploring Saudi Arabia as venue for mid-season friendly**\
+`United are considering ways to raise revenue and given they have several free midweeks, travelling to the Middle East is seen as an option`\
+https://nytimes.com/athletic/6623737/2025/10/01/manchester-united-saudi-arabia-friendly/
+
 **The Federal Government Shut Down Overnight**\
 `We also look at a gathering of generals in Washington.`\
 https://nytimes.com/2025/10/01/briefing/the-federal-government-shut-down-overnight.html

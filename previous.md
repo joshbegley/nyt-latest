@@ -1,3 +1,7 @@
+**Man Utd exploring Saudi Arabia as venue for mid-season friendly**\
+`United are considering ways to raise revenue and given they have several free midweeks, travelling to the Middle East is seen as an option`\
+https://nytimes.com/athletic/6623737/2025/10/01/manchester-united-saudi-arabia-friendly/
+
 **The Federal Government Shut Down Overnight**\
 `We also look at a gathering of generals in Washington.`\
 https://nytimes.com/2025/10/01/briefing/the-federal-government-shut-down-overnight.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6676312/2025/10/01/nfl-week-4-nacua-lawrence-quick-
 **Mets' playoff hopes came down to one game. Here are 10 of their most difficult losses**\
 `The Mets lost 79 games this season, and at least a handful felt like they should have ended differently.`\
 https://nytimes.com/athletic/6677655/2025/10/01/mets-worst-10-losses/
-
-**Milan Lucic shows some improvement in tryout bid to make Blues: 'I have more'**\
-`The 37-year-old had five hits in the Blues' 5-3 loss to the Dallas Stars on Tuesday at Enterprise Center.`\
-https://nytimes.com/athletic/6676586/2025/10/01/st-louis-blues-milan-lucic-tryout/
 
