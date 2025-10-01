@@ -1,3 +1,19 @@
+**Fantasy football best and worst matchups of Week 5: Justin Fields, Trey Benson could cook**\
+`KC Joyner reviews Week 5's best and worst matchups to help you with tough start/sit decisions. `\
+https://nytimes.com/athletic/6675891/2025/10/01/fantasy-football-week-5-matchups-best-worst-fields/
+
+**Knicks final roster spot: Does New York make trade to keep two veteran players?**\
+`If the Knicks want to keep two veterans, they have to make a trade. Who might be on the move?`\
+https://nytimes.com/athletic/6673506/2025/10/01/knicks-roster-spot-trade-landry-shamet-malcolm-brogdon/
+
+**How to watch Reds at Dodgers: Game 2 Time, TV, streaming**\
+`Find out how to watch the Cincinnati Reds play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6679123/2025/10/01/reds-vs-dodgers-stream-how-to-watch-oct-1/
+
+**Payton Pritchard on Celtics' new pace: 'Don't matter who gets it, we're flying'**\
+`Jaylen Brown has wanted the Celtics to play with more pace for years, but this season it might actually be happening. `\
+https://nytimes.com/athletic/6677928/2025/10/01/celtics-payton-pritchard-pace/
+
 **Does Hayley Williams Want to Escape Paramore’s Shadow? It Depends.**\
 `The frontwoman and songwriter on how the evolution of her long-running band has shaped her third solo release, and what might come next.`\
 https://nytimes.com/2025/10/01/arts/music/hayley-williams-paramore-popcast-interview.html
