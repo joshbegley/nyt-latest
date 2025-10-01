@@ -11,7 +11,7 @@ https://nytimes.com/2025/10/01/us/politics/politics-shutdown-democrats-trump.htm
 https://nytimes.com/2025/10/01/science/jane-goodall-a-life-in-pictures.html
 
 **Republicans and Democrats in Deadlock Over Federal Funding**\
-`On Wednesday, dueling proposals to end the government shutdown failed in the Senate for the third time in two weeks. Most of the House’s Democrats also blocked the House-passed G.O.P. stopgap spending bill.`\
+`Dueling proposals to end the government shutdown failed in the Senate on Wednesday. There was no end in sight to the deadlock as neither party showed signs of bowing to the other’s government spending demands.`\
 https://nytimes.com/video/us/politics/100000010433229/republicans-democrats-deadlock-government-shutdown.html
 
 **Jane Goodall, a Revered Conservationist, Dies at 91**\
