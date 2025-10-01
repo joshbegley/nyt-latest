@@ -1,3 +1,19 @@
+**How Diamonds Are Born**\
+`Southern Africa’s “desert diamonds,” forged millions of years ago, continue to transform the region today.`\
+https://nytimes.com/paidpost/de-beers/how-diamonds-are-born.html
+
+**‘He needs some help’: When the NHL dress code expires, Bruins players have a clear-cut fashion suspect**\
+`This season, players will have to wear clothes that are “consistent with contemporary fashion norms.” That phrase is open to interpretation.`\
+https://nytimes.com/athletic/6677281/2025/10/01/bruins-dress-code-nhl/
+
+**The Pulse: Yesterday’s playoff heroics, ranked**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6678819/2025/10/01/wnba-finals-aces-fever-the-pulse/
+
+**Tottenham confident on agreeing new Bentancur contract**\
+`The Uruguay international's existing deal had been due to expire in the summer of 2026.`\
+https://nytimes.com/athletic/6679116/2025/10/01/tottenham-confident-on-agreeing-new-rodrigo-bentancur-contract/
+
 **TAFC: What's eating Liverpool? Plus: The cost of Manchester United sacking managers**\
 `Today in TAFC: What is going wrong at Liverpool after defeat in the Champions League? Plus: The cost of Manchester United sacking managers`\
 https://nytimes.com/athletic/6679082/2025/10/01/liverpool-champions-league-defeat-galatasaray/
