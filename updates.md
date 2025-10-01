@@ -1,3 +1,7 @@
+**The Federal Government Shut Down Overnight**\
+`We also look at a gathering of generals in Washington.`\
+https://nytimes.com/2025/10/01/briefing/the-federal-government-shut-down-overnight.html
+
 **CFB Week 6 streaming guide: Miami vs. FSU, Vandy vs. Bama and sleeper games**\
 `Our weekly column sorts the college football slate by kickoff blocks, with a marquee choice and a "chaos agent" pick for each window.`\
 https://nytimes.com/athletic/6675182/2025/10/01/college-football-week-6-miami-fsu-alabama-vanderbilt-how-to-watch/

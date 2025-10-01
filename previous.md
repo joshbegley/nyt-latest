@@ -1,3 +1,7 @@
+**The Federal Government Shut Down Overnight**\
+`We also look at a gathering of generals in Washington.`\
+https://nytimes.com/2025/10/01/briefing/the-federal-government-shut-down-overnight.html
+
 **CFB Week 6 streaming guide: Miami vs. FSU, Vandy vs. Bama and sleeper games**\
 `Our weekly column sorts the college football slate by kickoff blocks, with a marquee choice and a "chaos agent" pick for each window.`\
 https://nytimes.com/athletic/6675182/2025/10/01/college-football-week-6-miami-fsu-alabama-vanderbilt-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6677655/2025/10/01/mets-worst-10-losses/
 **Milan Lucic shows some improvement in tryout bid to make Blues: 'I have more'**\
 `The 37-year-old had five hits in the Blues' 5-3 loss to the Dallas Stars on Tuesday at Enterprise Center.`\
 https://nytimes.com/athletic/6676586/2025/10/01/st-louis-blues-milan-lucic-tryout/
-
-**What's wrong with Georgia's defense? Identifying what's behind an uncharacteristic start**\
-`Through four games, Georgia now ranks 14th in the SEC in yards-per-play allowed.`\
-https://nytimes.com/athletic/6677610/2025/10/01/georgia-defense-issues-college-football/
 
