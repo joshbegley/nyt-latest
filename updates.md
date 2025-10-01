@@ -1,3 +1,7 @@
+**Did Premier League clubs miss an opportunity by not signing Victor Osimhen?**\
+`Victor Osimhen scored against Liverpool after a summer in which interest from the Premier League never took serious shape`\
+https://nytimes.com/athletic/6678039/2025/10/01/victor-osimhen-transfer-premier-league-analysis/
+
 **Internet Blackout in Afghanistan Enters 3rd Day**\
 `Banking services have stopped, planes are grounded and aid distribution has been halted. The scope of the blackout is rare, even for a government that has increasingly rolled back freedoms.`\
 https://nytimes.com/2025/10/01/world/asia/afghanistan-internet-blackout-taliban.html
