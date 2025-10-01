@@ -1,3 +1,7 @@
+**TAFC: What's eating Liverpool? Plus: The cost of Manchester United sacking managers**\
+`Today in TAFC: What is going wrong at Liverpool after defeat in the Champions League? Plus: The cost of Manchester United sacking managers`\
+https://nytimes.com/athletic/6679082/2025/10/01/liverpool-champions-league-defeat-galatasaray/
+
 **Tottenham confident on agreeing new Bentancur contract**\
 `Bentancur's existing deal had been due to expire in the summer of 2026.`\
 https://nytimes.com/athletic/6679116/2025/10/01/tottenham-confident-on-agreeing-new-rodrigo-bentancur-contract/
