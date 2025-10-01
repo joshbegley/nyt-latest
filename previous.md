@@ -1,3 +1,7 @@
+**PWHL 2025-26 schedule: More games, new franchises and a break for Olympics**\
+`The league’s third season will feature 120 games — up from 90 last year — and the PWHL’s arrival on the West Coast.`\
+https://nytimes.com/athletic/6678319/2025/10/01/pwhl-schedule-release-2025-26/
+
 **U.S. airports report few delays as the shutdown begins.**\
 `By Gabe Castro-Root`\
 https://nytimes.com/live/2025/10/01/us/government-shutdown-trump-news/us-airports-report-few-delays-as-the-shutdown-begins
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6678412/2025/10/01/sports-card-repacks/
 **Search Teams Scour Rubble for Survivors of Deadly Philippine Quake**\
 `At least 69 people were killed in Cebu Province by the 6.9-magnitude temblor — including 10 in a village built as a haven for survivors of a previous disaster.`\
 https://nytimes.com/2025/10/01/world/asia/philippines-earthquake-cebu.html
-
-**Connor McDavid and the L.A. Kings: A fantasy, or history repeating itself?**\
-`McDavid's future in Edmonton remains cloudy. Is a move to Los Angeles feasible?`\
-https://nytimes.com/athletic/6672692/2025/10/01/connor-mcdavid-kings-oilers/
 
