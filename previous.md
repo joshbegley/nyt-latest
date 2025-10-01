@@ -1,3 +1,11 @@
+**Eagles WR A.J. Brown clarifies intention of social media post**\
+`Brown said he is optimistic the Eagles will figure out how to fix their offense.`\
+https://nytimes.com/athletic/6681413/2025/10/01/aj-brown-eagles-addresses-social-media/
+
+**How to watch Tigers at Guardians: Game 3 Time, TV, streaming**\
+`Find out how to watch the Detroit Tigers play the Cleveland Guardians, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6681527/2025/10/01/tigers-vs-guardians-stream-how-to-watch-oct-2/
+
 **What Happens When a Fashion Show Goes Wrong**\
 `Seven designers on their biggest mishaps.`\
 https://nytimes.com/2025/10/01/t-magazine/fashion-show-mishaps.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/01/nyregion/brooklyn-bar-shooting-charges.html
 **Cubs-Padres Game 2 takeaways: Manny Machado, Padres pitchers lock in to stave off elimination**\
 `Fueled by a two-run homer by Manny Machado, the Padres muscled their way to a 3-0 shutout of the Cubs in a must-win game.`\
 https://nytimes.com/athletic/6681172/2025/10/01/cubs-padres-score-results-game-2-takeaways-mlb-playoffs/
-
-**20-Story Building in the Bronx Partly Collapses**\
-`The partial collapse of the public housing building in the Bronx followed an explosion in a ventilation shaft connected to the boiler room.`\
-https://nytimes.com/video/nyregion/100000010434055/bronx-building-collapse.html
-
-**Drones, Helicopters, Hundreds of Arrests: Trump’s Immigration Crackdown in Chicago So Far**\
-`The administration announced a federal operation in the Chicago area more than three weeks ago. Agents have appeared along downtown streets, and National Guard troops are expected.`\
-https://nytimes.com/2025/10/01/us/trump-chicago-immigration-national-guard.html
 

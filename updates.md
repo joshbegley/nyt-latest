@@ -1,3 +1,11 @@
+**Eagles WR A.J. Brown clarifies intention of social media post**\
+`Brown said he is optimistic the Eagles will figure out how to fix their offense.`\
+https://nytimes.com/athletic/6681413/2025/10/01/aj-brown-eagles-addresses-social-media/
+
+**How to watch Tigers at Guardians: Game 3 Time, TV, streaming**\
+`Find out how to watch the Detroit Tigers play the Cleveland Guardians, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6681527/2025/10/01/tigers-vs-guardians-stream-how-to-watch-oct-2/
+
 **Drones, Helicopters, Hundreds of Arrests: Trump’s Immigration Crackdown in Chicago So Far**\
 `The administration announced a federal operation in the Chicago area more than three weeks ago. Agents have appeared along downtown streets, and National Guard troops are expected.`\
 https://nytimes.com/2025/10/01/us/trump-chicago-immigration-national-guard.html
