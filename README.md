@@ -1,3 +1,7 @@
+**Republicans and Democrats in Deadlock Over Federal Funding**\
+`On Wednesday, dueling proposals to end the government shutdown failed in the Senate for the third time in two weeks. Most of the House’s Democrats also blocked the House-passed G.O.P. stopgap spending bill.`\
+https://nytimes.com/video/us/politics/100000010433229/republicans-democrats-deadlock-government-shutdown.html
+
 **Jane Goodall, a Revered Conservationist, Dies at 91**\
 `Jane Goodall, the renowned primate expert, has died. She was 91. Her discoveries about how wild chimpanzees raised their young, established leadership, socialized and communicated broke new ground and attracted immense attention and respect among researchers.`\
 https://nytimes.com/video/obituaries/100000010433798/jane-goodall-death.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6680584/2025/10/01/cardinals-prepared-payroll-chaim
 **South African Politician, Target of Trump Attacks, Is Convicted of Gun Charge**\
 `The verdict against Julius Malema came a month after a separate court convicted him of hate speech. This year, President Trump played a video montage at the White House of Mr. Malema leading chants of “Kill the Boer,” a protest song.`\
 https://nytimes.com/2025/10/01/world/africa/malema-south-africa-trump-guilty.html
-
-**London Police Chief Apologizes Over Officers’ ‘Reprehensible’ Behavior**\
-`The police commissioner spoke after the BBC broadcast video showing officers making sexualized comments, reveling in the use of violence and expressing racist views.`\
-https://nytimes.com/2025/10/01/world/europe/london-police-chief-apology-officer-comments.html
 
