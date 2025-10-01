@@ -1,3 +1,23 @@
+**Forest's Zinchenko to miss Midtjylland game with groin injury**\
+`The Ukraine international is also unlikely to be available for the trip to Newcastle United on Sunday.`\
+https://nytimes.com/athletic/6679823/2025/10/01/olekansandr-zinchenko-forest-injury-update/
+
+**Eva Lys' tennis rise up the WTA Tour is built on a 'less is more' approach. She explains why**\
+`The 23-year-old German, diagnosed with spondyloarthritis in 2020, cracked the world’s top 50 for the first time this week`\
+https://nytimes.com/athletic/6676454/2025/10/01/eva-lys-tennis-player-wta/
+
+**The Bounce: What a day across the WNBA; previewing the Suns and Hornets**\
+`One of the WNBA's biggest stars had several choice words to share Tuesday. Plus, what to expect in Phoenix and Charlotte?`\
+https://nytimes.com/athletic/6679740/2025/10/01/napheesa-collier-wnba-suns-hornets-nba-preview/
+
+**Supreme Court Allows Lisa Cook to Remain at Fed, for Now**\
+`The justices deferred a decision on the president’s efforts to oust Ms. Cook and instead set oral arguments in the case for January.`\
+https://nytimes.com/2025/10/01/us/politics/supreme-court-lisa-cook-fed.html
+
+**Guardians prospect Chase DeLauter set to make MLB debut in playoffs**\
+`DeLauter will be the sixth player to debut during the playoffs in MLB’s modern era and first since 2020.`\
+https://nytimes.com/athletic/6679784/2025/10/01/guardians-chase-delauter-mlb-debut-playoffs-wild-card/
+
 **Spam and Scams Proliferate in Facebook’s Political Ads**\
 `A new analysis of political advertisers found that the platform profits from ads that include deepfakes and other content prohibited by its own policies.`\
 https://nytimes.com/2025/10/01/technology/facebooks-political-ads-deepfakes-scams.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6678653/2025/10/01/canucks-roster-projection-2025/
 **Bake Time**\
 `Baking recipes, videos, inspiration and advice from Vaughn Vreeland. <a href="https://www.nytimes.com/newsletters/bake-time" target="_blank">Sign up for the Bake Time newsletter.</a>`\
 https://nytimes.com/series/bake-time
-
-**Braves will not bring back Brian Snitker as manager in 2026**\
-`Snitker, who just completed his 49th season with Atlanta, will remain in the organization in an advisory role.`\
-https://nytimes.com/athletic/6679428/2025/10/01/brian-snitker-braves-manager/
-
-**Ex-Colts linebacker Shaq Leonard announces retirement**\
-`Leonard was a three-time first-team All-Pro linebacker and the 2018 Defensive Rookie of the Year`\
-https://nytimes.com/athletic/6679725/2025/10/01/colts-shaq-leonard-retirement/
-
-**Devils extend RFA defenseman Luke Hughes with 7-year, $63 million contract**\
-`With Hughes signed, the Devils now have eight defensemen under team control through the 2026-27 season. `\
-https://nytimes.com/athletic/6538503/2025/10/01/luke-hughes-devils-extension/
-
-**Iga Świątek's bagel defeat to Emma Navarro and the difficulties of changing style in real time**\
-`Świątek lost to Emma Navarro 6-4, 4-6, 6-0 in a match reminiscent of her defeats in the second half of 2024.`\
-https://nytimes.com/athletic/6679627/2025/10/01/iga-swiatek-emma-navarro-china-open-result-analysis/
-
-**After Kirk’s Death, Turning Point Vows to Go On. That May Be Easier Said Than Done.**\
-`Despite a surge in new campus chapters, there is a void left by Charlie Kirk’s murder that has implications for the entire MAGA movement.`\
-https://nytimes.com/2025/10/01/us/politics/charlie-kirk.html
 
