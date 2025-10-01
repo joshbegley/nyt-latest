@@ -1,3 +1,7 @@
+**‘She Could Have Killed Me’: Scientist Survives Shark Bite to His Head**\
+`“My whole head was inside of her mouth,” Mauricio Hoyos, a marine scientist from Mexico, said from a hospital in Costa Rica.`\
+https://nytimes.com/2025/10/01/world/americas/marine-biologist-shark-bite-costa-rica.html
+
 **White House Uses Shutdown to Maximize Pain and Punish Political Foes**\
 `The Trump administration forged ahead with plans to conduct mass layoffs, as the fiscal standoff appeared to intensify.`\
 https://nytimes.com/2025/10/01/us/politics/white-house-shutdown-punishment.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/01/opinion/congo-refugee-us-albinism.html
 **Judges Dismisses Lawsuit Over Naked Baby on Nirvana’s ‘Nevermind’**\
 `The man pictured as a naked baby on the cover of Nirvana’s seminal second album argued that the band had engaged in child sex abuse imagery.`\
 https://nytimes.com/2025/10/01/arts/music/nirvana-nevermind-baby-lawsuit.html
-
-**N.Y.C. Immigration Courts Go Quiet Amid Shutdown but Detentions Persist**\
-`The federal building in Lower Manhattan known as 26 Federal Plaza has become a national flashpoint in the Trump administration’s immigration crackdown.`\
-https://nytimes.com/2025/10/01/nyregion/immigration-court-government-shutdown-new-york.html
 
