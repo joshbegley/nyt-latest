@@ -1,3 +1,19 @@
+**Spam and Scams Proliferate in Facebook’s Political Ads**\
+`A new analysis of political advertisers found that the platform profits from ads that include deepfakes and other content prohibited by its own policies.`\
+https://nytimes.com/2025/10/01/technology/facebooks-political-ads-deepfakes-scams.html
+
+**Newcastle's Livramento faces up to eight weeks out with knee injury**\
+`The 22-year-old has started all six of Newcastle's Premier League games this season.`\
+https://nytimes.com/athletic/6670568/2025/10/01/tino-livramento-injury-newcastle/
+
+**U.S. airports report few delays as the shutdown begins.**\
+`By Gabe Castro-Root`\
+https://nytimes.com/live/2025/10/01/us/government-shutdown-trump-news/us-airports-report-few-delays-as-the-shutdown-begins
+
+**Canucks 23-man roster projection 2.0: Who's still on the roster bubble?**\
+`Let's set the stakes for the final week of preseason by breaking down the Canucks roster as it currently stands.`\
+https://nytimes.com/athletic/6678653/2025/10/01/canucks-roster-projection-2025/
+
 **Bake Time**\
 `Baking recipes, videos, inspiration and advice from Vaughn Vreeland. <a href="https://www.nytimes.com/newsletters/bake-time" target="_blank">Sign up for the Bake Time newsletter.</a>`\
 https://nytimes.com/series/bake-time
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6679627/2025/10/01/iga-swiatek-emma-navarro-china-o
 **After Kirk’s Death, Turning Point Vows to Go On. That May Be Easier Said Than Done.**\
 `Despite a surge in new campus chapters, there is a void left by Charlie Kirk’s murder that has implications for the entire MAGA movement.`\
 https://nytimes.com/2025/10/01/us/politics/charlie-kirk.html
-
-**Lowetide: The Oilers' second line will be key to success. Who will be on it?**\
-`The Oilers' biggest pressure point will be the second line. It will be, at the very least, a challenge for the coaching staff.`\
-https://nytimes.com/athletic/6675322/2025/10/01/oilers-players-lines-second-2025/
-
-**PWHL 2025-26 schedule: More games, new franchises and a break for Olympics**\
-`The league’s third season will feature 120 games — up from 90 last year — and the PWHL’s arrival on the West Coast.`\
-https://nytimes.com/athletic/6678319/2025/10/01/pwhl-schedule-release-2025-26/
-
-**U.S. airports report few delays as the shutdown begins.**\
-`By Gabe Castro-Root`\
-https://nytimes.com/live/2025/10/01/us/government-shutdown-trump-news/us-airports-report-few-delays-as-the-shutdown-begins
-
-**Mings targeting injury return after October international break**\
-`Mings, 32, underwent assessments on Wednesday after being forced off against Fulham.`\
-https://nytimes.com/athletic/6670629/2025/10/01/aston-villa-tyrone-mings-injury-update/
 
