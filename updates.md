@@ -1,3 +1,15 @@
+**How Much Smaller is the Federal Work Force? Shutdown Plans Offer a Clue.**\
+`The number of federal employees has been trimmed by thousands since President Trump took office, according to contingency plans drawn up by federal agencies.`\
+https://nytimes.com/interactive/2025/10/01/us/trump-government-shutdown-federal-cuts.html
+
+**Jayden Daniels medically cleared, will practice in full for Commanders**\
+`The move should put Daniels in position to start on Sunday against the L.A. Chargers.`\
+https://nytimes.com/athletic/6680256/2025/10/01/jayden-daniels-cleared-knee-practice/
+
+**Why Nicolás Maduro Faces Criminal Charges in the U.S.**\
+`Secretary of State Marco Rubio has called Mr. Maduro, the Venezuelan leader who faces narco-terrorism charges, a “fugitive from American justice.”`\
+https://nytimes.com/2025/10/01/nyregion/nicolas-maduro-venezuela-charges-explainer.html
+
 **Trump and Hegseth: The Quantico Campaign**\
 `Readers sharply criticize the speeches by the president and the secretary of defense. Also: A cynical order from the Supreme Court.`\
 https://nytimes.com/2025/10/01/opinion/trump-hegseth-military.html
