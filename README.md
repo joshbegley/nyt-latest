@@ -1,3 +1,15 @@
+**The New York Times in Print for Wednesday, Oct. 1, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/01/todays-new-york-times
+
+**Regime Change Was Always the Plan for Venezuela**\
+`The Trump administration’s Venezuela policy is driven by a desire for vindication and revenge.`\
+https://nytimes.com/2025/10/01/opinion/venezuela-trump-maduro-regime-boats.html
+
+**The U.S. Is Sweeping Away Human Rights Protections**\
+`Sanctions on small human rights groups are the latest Trump attack on global efforts to protect civil liberties.`\
+https://nytimes.com/2025/10/01/opinion/human-rights-palestinians-international-criminal-court.html
+
 **The sad decline of West Indian Test cricket: 'We seem to have given up'**\
 `West Indies travel to India with their Test team at its lowest ebb and memories fading of their world dominance from the 1970s and '80s `\
 https://nytimes.com/athletic/6658044/2025/10/01/west-indies-test-cricket-decline-roberts-adams/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6672840/2025/10/01/dean-smith-messi-aston-villa-cha
 **Growing pains: How football clubs protect teenage prodigies**\
 `The emergence of young superstars is thrilling but also poses challenges in how to look after them`\
 https://nytimes.com/athletic/6663137/2025/10/01/lamine-yamal-max-dowman-rio-ngumoha/
-
-**San Siro: Why one of Europe's most iconic stadiums is to be demolished and rebuilt**\
-`In a world where FFP means clubs can only spend what they earn, a €1.2bn new San Siro is a wake-up call that keeps Milan and Inter relevant`\
-https://nytimes.com/athletic/6676465/2025/10/01/san-siro-inter-milan-stadium-demolish/
-
-**How 'mind-boggling' were Kiernan Dewsbury-Hall's five yellow cards?**\
-`The midfielder did not have a reputation for cheap yellow cards at previous clubs but is already serving a one-match ban for five cautions`\
-https://nytimes.com/athletic/6676140/2025/10/01/dewsbury-hall-everton-five-bookings-boggling/
-
-**What Barcelona fans, players and coaches think about the constant Camp Nou chaos**\
-`Barcelona’s messaging and management around their Camp Nou return has been chaotic, to say the least`\
-https://nytimes.com/athletic/6676495/2025/10/01/barcelona-camp-nou-fans-players-coaches/
 
