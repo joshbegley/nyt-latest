@@ -1,3 +1,7 @@
+**Republicans Demand Information From Firms That Help Set College Tuition**\
+`In letters to consultants and the College Board, House and Senate Judiciary leaders invoked antitrust law and asked how student data feeds pricing algorithms.`\
+https://nytimes.com/2025/10/01/business/republicans-college-tuition-consultants.html
+
 **Pope Leo Calls for Unity on Climate at a Divided Moment**\
 `The pope invoked his predecessor, Francis, for whom the environment was a core issue, but stopped short of criticizing world leaders dismissive of climate change.`\
 https://nytimes.com/2025/10/01/world/europe/pope-leo-climate-speech-trump.html
