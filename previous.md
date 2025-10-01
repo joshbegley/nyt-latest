@@ -1,3 +1,7 @@
+**Activists Say Israel Has Intercepted Boats Headed to Gaza With Aid**\
+`The vessels are part of a flotilla carrying activists, including Greta Thunberg, who are trying to deliver humanitarian goods and protest Israel’s war.`\
+https://nytimes.com/2025/10/01/world/middleeast/gaza-flotilla-israel.html
+
 **Video Captures Debris Falling From 20-Story Bronx Building**\
 `A public housing building in the Bronx partly collapsed on Wednesday after an explosion in the chimney, officials said. No injuries were reported.`\
 https://nytimes.com/video/nyregion/newyorktoday/100000010433437/bronx-building-explosion.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6680557/2025/10/01/erik-johnson-retires-nhl/
 **Is Kennedy’s War on Vaccination Over?**\
 `The health secretary promised a revolution but delivered minor changes. Why?`\
 https://nytimes.com/2025/10/01/opinion/kennedy-vaccines-autism.html
-
-**Some Furloughed Federal Staff Use Automated Replies to Blame Senate Democrats**\
-`The inboxes of some employees of the Small Business Administration are returning automated email replies that deliver a partisan message on the shutdown.`\
-https://nytimes.com/2025/10/01/us/politics/furlough-small-business-administration-emails.html
 
