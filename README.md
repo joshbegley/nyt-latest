@@ -1,3 +1,11 @@
+**A Tokyo Gallery Gears Up for a Busy London Arts Season**\
+`Tommaso Corvi-Mora’s Frieze London booth will include ceramic works by Sam Bakewell and pieces by the Japanese sculptor Tomoaki Suzuki.`\
+https://nytimes.com/2025/10/01/arts/design/corvi-mora-gallery-frieze-london.html
+
+**Shedeur Sanders literally speechless over Browns quarterback situation**\
+`The Browns announced on Wednesday that third-round pick Dillon Gabriel will start Sunday against the Minnesota Vikings.`\
+https://nytimes.com/athletic/6680393/2025/10/01/shedeur-sanders-cleveland-browns-quarterback-gabriel-flacco/
+
 **A Treasure Trove of Art Is Uncovered in a Hong Kong Apartment**\
 `Print plates and collagraphs by Ha Bik Chuen have drawn increasing interest from collectors and will be shown at Frieze Masters.`\
 https://nytimes.com/2025/10/01/arts/design/frieze-london-ha-bik-chuen-apartment.html
@@ -25,12 +33,4 @@ https://nytimes.com/newsgraphics/card-story/fall-baking-recipes
 **gws-zohran-mamdani-nyc-mayor-food**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/zohran-mamdani-nyc-mayor-food
-
-**London’s Cultural Scene Abides, Despite the Shaky Art Market**\
-`Yes, there is less cash floating around. But museums are still mounting big shows, Frieze continues apace and local artists say there is nowhere they would rather be.`\
-https://nytimes.com/2025/10/01/arts/design/london-art-scene-today.html
-
-**Why Pete Hegseth Summoned Top Military Leaders**\
-`Secretary of Defense Pete Hegseth faced a room of hundreds of generals and admirals whom he had summoned from across the globe, and made his case for shaking up a force that he said had gone soft and “woke.” Greg Jaffe, the Pentagon reporter for The New York Times, discusses Hegseth’s speech.`\
-https://nytimes.com/video/us/politics/100000010431240/why-pete-hegseth-summoned-top-military-leaders.html
 
