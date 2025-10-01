@@ -1,3 +1,19 @@
+**London Police Chief Apologizes Over Officers’ ‘Reprehensible’ Behavior**\
+`The police commissioner spoke after the BBC broadcast video showing officers making sexualized comments, reveling in the use of violence and expressing racist views.`\
+https://nytimes.com/2025/10/01/world/europe/london-police-chief-apology-officer-comments.html
+
+**Edward T. Blake, 80, Dies; Forensic Expert Sparked Innocence Movement**\
+`He was the first to use PCR testing on crime-scene DNA, inspiring a practice that has freed thousands of wrongfully convicted people.`\
+https://nytimes.com/2025/10/01/science/edward-t-blake-dead.html
+
+**Congress Is Deadlocked on the Shutdown**\
+`Also, Jane Goodall died at 91. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/10/01/briefing/congress-shutdown-jane-goodall.html
+
+**Liverpool waiting on Alisson scan to establish severity of hamstring injury**\
+`The 32-year-old appeared to sustain the problem while running back to make a save during the Champions League loss against Galatasaray.`\
+https://nytimes.com/athletic/6679162/2025/10/01/liverpool-alisson-injury-brazil/
+
 **‘She Could Have Killed Me’: Scientist Survives Shark Bite to His Head**\
 `“My whole head was inside of her mouth,” Mauricio Hoyos, a marine scientist from Mexico, said from a hospital in Costa Rica.`\
 https://nytimes.com/2025/10/01/world/americas/marine-biologist-shark-bite-costa-rica.html
