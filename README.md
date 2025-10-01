@@ -1,3 +1,11 @@
+**Vance Laughs Off Deepfake Video of Hakeem Jeffries: ‘I Think It’s Funny’**\
+`President Trump posted the meme, which Representative Hakeem Jeffries called racist and bigoted. Vice President JD Vance said the president was “joking, and we’re having a good time.”`\
+https://nytimes.com/2025/10/01/us/politics/vance-jeffries-deepfake-video.html
+
+**How Broken Politics Breaks Courts**\
+`We look at the difficult position of independent courts and judges at a time when countries around the world are deeply divided.`\
+https://nytimes.com/2025/10/01/world/courts-polarized-gaza-flotilla-israel-blockade-jane-goodall.html
+
 **Liverpool waiting on Alisson scan to establish severity of hamstring injury**\
 `The 32-year-old appeared to sustain the problem will running back to make a save during Tuesday's Champions League loss against Galatasaray.`\
 https://nytimes.com/athletic/6679162/2025/10/01/liverpool-alisson-injury-brazil/
@@ -11,7 +19,7 @@ https://nytimes.com/athletic/6679977/2025/10/01/barcelona-1-psg-2-yamal-high-lin
 https://nytimes.com/athletic/6680694/2025/10/01/arsenal-olympiacos-odegaard-raya-champions-league-result/
 
 **The Briefing: Monaco 2 Man City 2: Was late Dier penalty the right call? How did Haaland score that header?**\
-`We break down the talking points from City's draw with Monaco after a late penalty from Eric Dier denied them victory.`\
+`We break down the talking points from City's draw with Monaco after a late penalty from Eric Dier denied them victory`\
 https://nytimes.com/athletic/6679909/2025/10/01/man-city-haaland-foden-penalty/
 
 **One Girl’s Journey After Her Grandma Said to Kill Her**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/01/nyregion/immigration-court-government-shutdown-ne
 **Voice of America Stops All Broadcasting After Government Shuts Down**\
 `During past shutdowns, the federal news agency continued broadcasting to authoritarian countries, as it was considered essential to national security.`\
 https://nytimes.com/2025/10/01/us/politics/voice-america-shutdown.html
-
-**Tigers-Guardians Game 2 takeaways: Guardians bats explode at key moment to tie series**\
-`The Guardians broke through against the Detroit bullpen to even the series and send it to a climactic Game 3. `\
-https://nytimes.com/athletic/6680733/2025/10/01/tigers-guardians-score-results-game-2-takeaways-mlb/
-
-**World Cup ticket prices revealed as lucky few win right to buy first**\
-`Breaking down the earliest information as the first batch of fans gained the chance to buy tickets for next summer`\
-https://nytimes.com/athletic/6680752/2025/10/01/world-cup-ticket-prices-usmnt/
 

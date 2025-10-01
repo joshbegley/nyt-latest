@@ -1,3 +1,11 @@
+**Liverpool waiting on Alisson scan to establish severity of hamstring injury**\
+`The 32-year-old appeared to sustain the problem will running back to make a save during Tuesday's Champions League loss against Galatasaray.`\
+https://nytimes.com/athletic/6679162/2025/10/01/liverpool-alisson-injury-brazil/
+
+**The Briefing: Monaco 2 Man City 2: Was late Dier penalty the right call? How did Haaland score that header?**\
+`We break down the talking points from City's draw with Monaco after a late penalty from Eric Dier denied them victory.`\
+https://nytimes.com/athletic/6679909/2025/10/01/man-city-haaland-foden-penalty/
+
 **Barca 1 PSG 2 - More Yamal magic, 45-game scoring record, Barca's high line hurts them late**\
 `Barca dropped points in agonising fashion against PSG as their dangerous approach was exploited`\
 https://nytimes.com/athletic/6679977/2025/10/01/barcelona-1-psg-2-yamal-high-line/
