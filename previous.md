@@ -1,3 +1,7 @@
+**Lowetide: The Oilers' second line will be key to success. Who will be on it?**\
+`The Oilers' biggest pressure point will be the second line. It will be, at the very least, a challenge for the coaching staff.`\
+https://nytimes.com/athletic/6675322/2025/10/01/oilers-players-lines-second-2025/
+
 **PWHL 2025-26 schedule: More games, new franchises and a break for Olympics**\
 `The league’s third season will feature 120 games — up from 90 last year — and the PWHL’s arrival on the West Coast.`\
 https://nytimes.com/athletic/6678319/2025/10/01/pwhl-schedule-release-2025-26/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/01/nyregion/bronx-explosion-building-collapse.html
 **Repacks bringing in big money in sports card industry despite concerns**\
 `As trading card enthusiasts look for a new thrill, repacks have taken a sizable market share`\
 https://nytimes.com/athletic/6678412/2025/10/01/sports-card-repacks/
-
-**Search Teams Scour Rubble for Survivors of Deadly Philippine Quake**\
-`At least 69 people were killed in Cebu Province by the 6.9-magnitude temblor — including 10 in a village built as a haven for survivors of a previous disaster.`\
-https://nytimes.com/2025/10/01/world/asia/philippines-earthquake-cebu.html
 

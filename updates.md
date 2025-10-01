@@ -1,3 +1,7 @@
+**Lowetide: The Oilers' second line will be key to success. Who will be on it?**\
+`The Oilers' biggest pressure point will be the second line. It will be, at the very least, a challenge for the coaching staff.`\
+https://nytimes.com/athletic/6675322/2025/10/01/oilers-players-lines-second-2025/
+
 **PWHL 2025-26 schedule: More games, new franchises and a break for Olympics**\
 `The league’s third season will feature 120 games — up from 90 last year — and the PWHL’s arrival on the West Coast.`\
 https://nytimes.com/athletic/6678319/2025/10/01/pwhl-schedule-release-2025-26/
