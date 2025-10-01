@@ -1,3 +1,11 @@
+**Does Your Backyard Need a Stegosaurus?**\
+`A popular theme park is closing. That’s good news for dinosaur fans who want their own life-size animatronic attraction.`\
+https://nytimes.com/2025/10/01/nyregion/new-jersey-dinosaur-sale.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/10/01/crosswords/spelling-bee-forum.html
+
 **Did Premier League clubs miss an opportunity by not signing Victor Osimhen?**\
 `Victor Osimhen scored against Liverpool after a summer in which interest from the Premier League never took serious shape`\
 https://nytimes.com/athletic/6678039/2025/10/01/victor-osimhen-transfer-premier-league-analysis/

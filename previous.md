@@ -1,3 +1,11 @@
+**Does Your Backyard Need a Stegosaurus?**\
+`A popular theme park is closing. That’s good news for dinosaur fans who want their own life-size animatronic attraction.`\
+https://nytimes.com/2025/10/01/nyregion/new-jersey-dinosaur-sale.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/10/01/crosswords/spelling-bee-forum.html
+
 **Did Premier League clubs miss an opportunity by not signing Victor Osimhen?**\
 `Victor Osimhen scored against Liverpool after a summer in which interest from the Premier League never took serious shape`\
 https://nytimes.com/athletic/6678039/2025/10/01/victor-osimhen-transfer-premier-league-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/01/learning/word-of-the-day-cohesive.html
 **Tottenham need to control games better. They are too reactive**\
 `Tottenham needed a late equaliser against Bodo/Glimt to take a point from their Champions League match`\
 https://nytimes.com/athletic/6678434/2025/10/01/tottenham-bodo-glimt-analysis/
-
-**The centre-forward crisis that could undermine Chelsea's Champions League challenge**\
-`Enzo Maresca started with Tyrique George up front, but his side needed an own goal to get a win against Benfica on Tuesday evening`\
-https://nytimes.com/athletic/6678276/2025/10/01/chelsea-striker-options-champions-league-benfica/
-
-**Liverpool's defence, Wirtz impact on midfield and rotation: The problems Slot needs to solve**\
-`Liverpool fell to a second defeat in a row against Galatasaray on Tuesday night. There are problems — despite them topping the league`\
-https://nytimes.com/athletic/6678154/2025/10/01/liverpool-galatasaray-analysis-defence-attack/
 
