@@ -14,7 +14,7 @@ https://nytimes.com/2025/10/01/us/waymo-tickets-san-bruno.html
 `With Cleveland's offensive struggles through four weeks, naming Gabriel the starter was a decision coach Kevin Stefanski had to make. `\
 https://nytimes.com/athletic/6680499/2025/10/01/browns-starting-quarterback-dillon-gabriel/
 
-**How the Government Shutdown Is Slowing Down the Federal Courts**\
+**How the Government Shutdown Is Slowing the Federal Courts**\
 `Justice Department lawyers are asking judges to pause their cases until funding resumes.`\
 https://nytimes.com/2025/10/01/us/politics/federal-courts-slowing-shutdown.html
 

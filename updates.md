@@ -1,3 +1,7 @@
+**How the Government Shutdown Is Slowing the Federal Courts**\
+`Justice Department lawyers are asking judges to pause their cases until funding resumes.`\
+https://nytimes.com/2025/10/01/us/politics/federal-courts-slowing-shutdown.html
+
 **Activists Say Israel Has Intercepted Boats Headed to Gaza With Aid**\
 `The vessels are part of a flotilla carrying activists, including Greta Thunberg, who are trying to deliver humanitarian goods and protest Israel’s war.`\
 https://nytimes.com/2025/10/01/world/middleeast/gaza-flotilla-israel.html
