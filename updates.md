@@ -1,3 +1,7 @@
+**City forward Fowler extends deal to 2027**\
+`The 22-year-old was named in last season's PFA WSL team of the year despite picking up an ACL injury in April.`\
+https://nytimes.com/athletic/6679055/2025/10/01/mary-fowler-manchester-city-contract-extension/
+
 **Gaël Monfils to retire from tennis at end of 2026 season: 'I am tremendously at peace'**\
 `Monfils, 39, said that he felt luck and gratitude to have played during such a legendary era of men's tennis.`\
 https://nytimes.com/athletic/6679047/2025/10/01/gael-monfils-tennis-retirement-date-last-tournament/
