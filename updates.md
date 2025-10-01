@@ -1,3 +1,11 @@
+**How Trump’s Online Drugstore May Affect Your Drug Costs**\
+`President Trump and top health officials announced a deal with Pfizer to try to lower Medicaid prices, and a website to help consumers buy drugs directly from manufacturers.`\
+https://nytimes.com/2025/10/01/health/trump-pfizer-prescription-drug-prices.html
+
+**Cubs-Padres Game 2 takeaways: Manny Machado, Padres pitchers lock in to stave off elimination**\
+`Fueled by a two-run homer by Manny Machado, the Padres muscled their way to a 3-0 shutout of the Cubs in a must-win game.`\
+https://nytimes.com/athletic/6681172/2025/10/01/cubs-padres-score-results-game-2-takeaways-mlb-playoffs/
+
 **Man Charged After Mass Shooting at Brooklyn Bar That Was Caught on Video**\
 `Footage showed bar patrons crawling for cover amid gang-related violence in August that killed three people. Elijah Roy, 25, is accused of assault in aid of racketeering.`\
 https://nytimes.com/2025/10/01/nyregion/brooklyn-bar-shooting-charges.html
