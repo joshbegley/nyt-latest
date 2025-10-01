@@ -1,3 +1,11 @@
+**Seventeen-year NHL veteran Erik Johnson retires**\
+`Johnson is one of two American-born defensemen to be a No. 1 draft choice. He won a silver medal with Team USA at the 2010 Winter Olympics.`\
+https://nytimes.com/athletic/6680557/2025/10/01/erik-johnson-retires-nhl/
+
+**Is Kennedy’s War on Vaccination Over?**\
+`The health secretary promised a revolution but delivered minor changes. Why?`\
+https://nytimes.com/2025/10/01/opinion/kennedy-vaccines-autism.html
+
 **Some Furloughed Federal Staff Use Automated Replies to Blame Senate Democrats**\
 `The inboxes of some employees of the Small Business Administration are returning automated email replies that deliver a partisan message on the shutdown.`\
 https://nytimes.com/2025/10/01/us/politics/furlough-small-business-administration-emails.html
