@@ -1,3 +1,7 @@
+**Jane Goodall, a Revered Conservationist, Dies at 91**\
+`Jane Goodall, the renowned primate expert, has died. She was 91. Her discoveries about how wild chimpanzees raised their young, established leadership, socialized and communicated broke new ground and attracted immense attention and respect among researchers.`\
+https://nytimes.com/video/obituaries/100000010433798/jane-goodall-death.html
+
 **How Trump’s Online Drugstore May Affect Your Drug Costs**\
 `President Trump and top health officials announced a deal with Pfizer to try to lower Medicaid prices, and a website to help consumers buy drugs directly from manufacturers.`\
 https://nytimes.com/2025/10/01/health/trump-pfizer-prescription-drug-prices.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/01/world/africa/malema-south-africa-trump-guilty.htm
 **London Police Chief Apologizes Over Officers’ ‘Reprehensible’ Behavior**\
 `The police commissioner spoke after the BBC broadcast video showing officers making sexualized comments, reveling in the use of violence and expressing racist views.`\
 https://nytimes.com/2025/10/01/world/europe/london-police-chief-apology-officer-comments.html
-
-**Edward T. Blake, 80, Dies; Forensic Expert Sparked Innocence Movement**\
-`He was the first to use PCR testing on crime-scene DNA, inspiring a practice that has freed thousands of wrongfully convicted people.`\
-https://nytimes.com/2025/10/01/science/edward-t-blake-dead.html
 
