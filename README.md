@@ -1,3 +1,11 @@
+**U.K. ‘Grooming Gang’ Leader Sentenced to 35 Years for Rape**\
+`Seven men in all were sentenced on Wednesday over their roles in a decades-old national scandal in Britain involving child sexual abuse.`\
+https://nytimes.com/2025/10/01/world/europe/uk-grooming-gang-sentencing.html
+
+**The Briefing: USG 0 Newcastle 4: Woltemade central as Howe's side kickstart Champions League campaign**\
+`We break down the talking points as Newcastle picked up three points in Belgium`\
+https://nytimes.com/athletic/6679877/2025/10/01/newcastle-tonali-woltemade-champions-league/
+
 **A Tokyo Gallery Gears Up for a Busy London Arts Season**\
 `Tommaso Corvi-Mora’s Frieze London booth will include ceramic works by Sam Bakewell and pieces by the Japanese sculptor Tomoaki Suzuki.`\
 https://nytimes.com/2025/10/01/arts/design/corvi-mora-gallery-frieze-london.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6678646/2025/10/01/kelsey-plum-unrivaled-wnba/
 **Just Outside Frieze London, Visitors Can Explore Key Moments in Spy History**\
 `Around Regent’s Park, the venue of the art fair, the making of double agents and sabotage plans was once commonplace.`\
 https://nytimes.com/2025/10/01/arts/design/frieze-london-regents-park-spy-history.html
-
-**Our Best Fall Baking Recipes**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/fall-baking-recipes
-
-**gws-zohran-mamdani-nyc-mayor-food**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/zohran-mamdani-nyc-mayor-food
 
