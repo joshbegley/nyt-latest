@@ -1,3 +1,19 @@
+**Why Ichiro won’t stop working like a player: ‘Seeing makes the message so much more believable’**\
+`Whether in his role working with the Mariners, or in his efforts to promote girls baseball in Japan, Ichiro works like he's still a player`\
+https://nytimes.com/athletic/6662447/2025/10/01/ichiro-mariners-pitching-girls-baseball/
+
+**Red Sox strike first in AL Wild Card Series against Yankees: ‘We needed this game’**\
+`Since the Wild Card Series entered its current format in 2022, all 12 teams that have won the first game have gone on to win the series.`\
+https://nytimes.com/athletic/6678835/2025/10/01/red-sox-yankees-wild-card-game-1/
+
+**Making sense of 4-0 start and Tush Push variations: 8 Eagles thoughts**\
+`C.J. Gardner-Johnson does not appear in the Eagles’ plans at the moment.`\
+https://nytimes.com/athletic/6676365/2025/10/01/making-sense-of-4-0-start-and-tush-push-variations-8-eagles-thoughts/
+
+**The New York Times International Edition in Print for Thursday, Oct. 2, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/10/01/todays-new-york-times-international-edition
+
 **Oktoberfest Closed Because of Bomb Threat in Munich**\
 `The German authorities said the rare decision was taken after an earlier explosion in a residential area of the city.`\
 https://nytimes.com/2025/10/01/world/europe/oktoberfest-munich-bomb-threat-explosion.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6679123/2025/10/01/reds-vs-dodgers-stream-how-to-wa
 **Payton Pritchard on Celtics' new pace: 'Don't matter who gets it, we're flying'**\
 `Jaylen Brown has wanted the Celtics to play with more pace for years, but this season it might actually be happening. `\
 https://nytimes.com/athletic/6677928/2025/10/01/celtics-payton-pritchard-pace/
-
-**Does Hayley Williams Want to Escape Paramore’s Shadow? It Depends.**\
-`The frontwoman and songwriter on how the evolution of her long-running band has shaped her third solo release, and what might come next.`\
-https://nytimes.com/2025/10/01/arts/music/hayley-williams-paramore-popcast-interview.html
-
-**How Social Security Will Be Affected by a Government Shutdown**\
-`Retirement, survivor and disability payments will continue, but some services may be temporarily unavailable.`\
-https://nytimes.com/2025/10/01/business/government-shutdown-social-security-trump.html
-
-**Locking In**\
-`Are you trying to meet a goal this fall? What is it, and what steps are you taking toward it?`\
-https://nytimes.com/2025/10/01/learning/locking-in.html
-
-**Shutdown Puts a Divided Fed in a Perilous Position**\
-`Some policymakers at the central bank are in a rush to lower interest rates after the Federal Reserve’s first cut this year, while others are urging caution.`\
-https://nytimes.com/2025/10/01/business/federal-reserve-shutdown.html
 
