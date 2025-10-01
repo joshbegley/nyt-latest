@@ -1,3 +1,11 @@
+**How Government Shutdowns Got More Severe and Further Reaching**\
+`Shutdowns started having significant effects after an attorney general in the 1980s argued that it was illegal for the government to spend money without congressional appropriations.`\
+https://nytimes.com/2025/10/01/us/past-government-shutdowns-length.html
+
+**Can the Colorado Rockies be saved? Executives explain how they'd fix MLB’s laughingstock**\
+`The Rockies parted ways with general manager Bill Schmidt on Wednesday. That leaves them with an opportunity to finally turn things around.`\
+https://nytimes.com/athletic/6680162/2025/10/01/colorado-rockies-mlb-monfort-schmidt-fix/
+
 **A surging pro sports league suddenly finds itself in crisis: MoneyCall**\
 `More in this week's sports business cheat sheet: MLB surging, Bad Bunny, Senator Paul Finebaum, Chad Powers, Jurgen Klopp and Steve Cohen.`\
 https://nytimes.com/athletic/6680065/2025/10/01/napheesa-collier-wnba-engelbert-moneycall/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6679711/2025/10/01/colts-mailbag-james-boyd/
 **Is It OK to Talk to My Daughter About Her Weight?**\
 `She may be headed for a serious problem. How can we raise this with her without pushing her away?`\
 https://nytimes.com/2025/10/01/magazine/magazine-email/talk-to-daughter-about-weight-ethics.html
-
-**Trump Administration to Withhold $18 Billion for N.Y.C. Infrastructure**\
-`The transportation secretary said previously awarded funds for two major projects, the expansion of the Second Avenue subway and the construction of train tunnels under the Hudson River, would not be distributed.`\
-https://nytimes.com/2025/10/01/nyregion/trump-nyc-subway-gateway-infrastructure-funding.html
-
-**Rockies GM Bill Schmidt steps down, team to look for 'right leader' from outside organization**\
-`Colorado's stated desire to look outside for "a fresh perspective" is a departure from its usual operations.`\
-https://nytimes.com/athletic/6665702/2025/10/01/rockies-bill-schmidt-steps-down/
 
