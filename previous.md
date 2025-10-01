@@ -1,3 +1,7 @@
+**The U.S. Eases Visa Restrictions on South Korean Workers**\
+`The agreement came after an ICE raid on a factory in Georgia outraged one of America’s key allies.`\
+https://nytimes.com/2025/10/01/world/asia/south-korea-georgia-factory-visa.html
+
 **The New York Times in Print for Wednesday, Oct. 1, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/01/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6678613/2025/10/01/dodgers-reds-game-1-score-result
 **Dean Smith interview: Trying to stop Messi, his time at Villa and his relationship with Emery**\
 `It can be easy for an English manager to become one-tracked – but across the Atlantic, Smith has bounced back from his Premier League exits`\
 https://nytimes.com/athletic/6672840/2025/10/01/dean-smith-messi-aston-villa-charlotte-fc-mls/
-
-**Growing pains: How football clubs protect teenage prodigies**\
-`The emergence of young superstars is thrilling but also poses challenges in how to look after them`\
-https://nytimes.com/athletic/6663137/2025/10/01/lamine-yamal-max-dowman-rio-ngumoha/
 

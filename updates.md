@@ -1,3 +1,7 @@
+**The U.S. Eases Visa Restrictions on South Korean Workers**\
+`The agreement came after an ICE raid on a factory in Georgia outraged one of America’s key allies.`\
+https://nytimes.com/2025/10/01/world/asia/south-korea-georgia-factory-visa.html
+
 **The New York Times in Print for Wednesday, Oct. 1, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/01/todays-new-york-times
