@@ -1,3 +1,11 @@
+**Word of the Day: cohesive**\
+`This word has appeared in 317 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/10/01/learning/word-of-the-day-cohesive.html
+
+**Tottenham need to control games better. They are too reactive**\
+`Tottenham needed a late equaliser against Bodo/Glimt to take a point from their Champions League match`\
+https://nytimes.com/athletic/6678434/2025/10/01/tottenham-bodo-glimt-analysis/
+
 **The centre-forward crisis that could undermine Chelsea's Champions League challenge**\
 `Enzo Maresca started with Tyrique George up front, but his side needed an own goal to get a win against Benfica on Tuesday evening`\
 https://nytimes.com/athletic/6678276/2025/10/01/chelsea-striker-options-champions-league-benfica/
