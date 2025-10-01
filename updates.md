@@ -1,3 +1,15 @@
+**Shohei Ohtani kicks off Dodgers' postseason with homer**\
+`LOS ANGELES — That didn’t take long.`\
+https://nytimes.com/athletic/6678459/2025/09/30/ohtani-dodgers-reds-leadoff-homer/
+
+**All of the Bears Were Fat, but Chunk Was the Fattest of All**\
+`As Alaska’s Fat Bear Week came to a close, the winner was a 1,200-pound bruiser who showed “adaptability” after a major injury.`\
+https://nytimes.com/2025/09/30/style/fat-bear-week-winner-alaska-chunk.html
+
+**Yankees-Red Sox takeaways: Garrett Crochet deals, Yanks' ’pen reels as Sox take series lead**\
+`Crochet was dominant, the Yankees wasted Fried's strong start, Cora pulled the right strings and Chapman closed the door on his former team.`\
+https://nytimes.com/athletic/6678179/2025/09/30/yankees-red-sox-game-1-al-wild-card-2025/
+
 **Yankees-Red Sox takeaways: Garrett Crochet deals, Yanks' ’pen reels as Sox take series lead**\
 `Crochet's masterful 7 2/3 innings and career-high 117 pitches carried Boston to a tense 3-1 win to take a 1-0 series lead. `\
 https://nytimes.com/athletic/6678179/2025/09/30/yankees-red-sox-game-1-al-wild-card-2025/

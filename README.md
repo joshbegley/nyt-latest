@@ -1,3 +1,7 @@
+**Padres' season on the brink after missed chances and a familiar decision to bunt in Game 1 loss**\
+`After heavy shadows loomed and a few opportunities were squandered, the Padres now face an uphill battle in Game 2 against the Cubs. `\
+https://nytimes.com/athletic/6678326/2025/09/30/padres-wild-card-loss-game-1/
+
 **Shohei Ohtani kicks off Dodgers' postseason with homer**\
 `LOS ANGELES — That didn’t take long.`\
 https://nytimes.com/athletic/6678459/2025/09/30/ohtani-dodgers-reds-leadoff-homer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6678177/2025/09/30/daniel-palencia-cubs-wildcard-wi
 **Full Federal Appeals Court to Hear Alien Enemies Act Case**\
 `The decision vacated a finding by a panel of the court’s judges regarding President Trump’s use of the Alien Enemies Act to deport immigrants, but did not clear the way for such expulsions to resume.`\
 https://nytimes.com/2025/09/30/us/politics/appeals-court-alien-enemies-act.html
-
-**Judge Disqualifies Nevada’s Acting U.S. Attorney From Handling Cases**\
-`A federal judge said Sigal Chattah was not “validly serving as acting U.S. attorney.” The Trump administration had appointed her to the post in a way that circumvented federal procedures.`\
-https://nytimes.com/2025/09/30/us/nevada-acting-us-attorney-chattah-disqualified.html
 
