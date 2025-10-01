@@ -1,3 +1,7 @@
+**Judge denies Mountain West's motion to dismiss conference realignment lawsuit from Pac-12**\
+`The lawsuit stems from the poaching fees surrounding the Pac-12 adding five Mountain West schools for next season. `\
+https://nytimes.com/athletic/6678583/2025/09/30/mountain-west-pac-12-realignment-lawsuit/
+
 **Kimmel and Colbert, Joined in New York, Show a United Front**\
 `The two late-night hosts shared stories on each other’s shows on Tuesday about their recent turmoil, and some criticism of President Trump.`\
 https://nytimes.com/2025/09/30/business/media/kimmel-colbert-trump.html
