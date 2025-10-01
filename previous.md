@@ -1,3 +1,11 @@
+**'Momentum's a real thing' for Cubs, who win first playoff game in a long time**\
+`The buzz turned into a boom at Wrigley after Seiya Suzuki and Carson Kelly hit back-to-back homers. Daniel Palencia took charge from there.`\
+https://nytimes.com/athletic/6678171/2025/09/30/cubs-padres-heroics-nl-wild-card/
+
+**No longer the Cubs closer, Daniel Palencia's 'electric' stuff swings momentum in Game 1 win**\
+`After an injury forced him from his closer role just three weeks ago, Palencia regrouped and found his groove working in middle relief. `\
+https://nytimes.com/athletic/6678177/2025/09/30/daniel-palencia-cubs-wildcard-win/
+
 **Full Federal Appeals Court to Hear Alien Enemies Act Case**\
 `The decision vacated a finding by a panel of the court’s judges regarding President Trump’s use of the Alien Enemies Act to deport immigrants, but did not clear the way for such expulsions to resume.`\
 https://nytimes.com/2025/09/30/us/politics/appeals-court-alien-enemies-act.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/30/nyregion/habeas-corpus-deportation-appeal.html
 **Chaim Bloom puts Cardinals' focus on long term: 'We can't take shortcuts, and we won't'**\
 `Bloom laid out his thoughts on the Sonny Gray trade outlook, as well as what's next for Jordan Walker and Nolan Gorman.`\
 https://nytimes.com/athletic/6677488/2025/09/30/cardinals-mlb-chaim-bloom-plan/
-
-**These Six Charts Tell You Exactly What’s at Stake in This Shutdown**\
-`What the looming shutdown is really about: Republicans trying to repeal Obamacare.`\
-https://nytimes.com/2025/09/30/opinion/government-shutdown-republican-obamacare.html
-
-**How the Senate Voted on the Failed Effort to Prevent a Government Shutdown**\
-`The Senate failed to reach the 60 votes necessary to avoid a shutdown.`\
-https://nytimes.com/interactive/2025/09/30/us/senate-shutdown-vote.html
 

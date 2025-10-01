@@ -1,3 +1,11 @@
+**'Momentum's a real thing' for Cubs, who win first playoff game in a long time**\
+`The buzz turned into a boom at Wrigley after Seiya Suzuki and Carson Kelly hit back-to-back homers. Daniel Palencia took charge from there.`\
+https://nytimes.com/athletic/6678171/2025/09/30/cubs-padres-heroics-nl-wild-card/
+
+**No longer the Cubs closer, Daniel Palencia's 'electric' stuff swings momentum in Game 1 win**\
+`After an injury forced him from his closer role just three weeks ago, Palencia regrouped and found his groove working in middle relief. `\
+https://nytimes.com/athletic/6678177/2025/09/30/daniel-palencia-cubs-wildcard-win/
+
 **Full Federal Appeals Court to Hear Alien Enemies Act Case**\
 `The decision vacated a finding by a panel of the court’s judges regarding President Trump’s use of the Alien Enemies Act to deport immigrants, but did not clear the way for such expulsions to resume.`\
 https://nytimes.com/2025/09/30/us/politics/appeals-court-alien-enemies-act.html
