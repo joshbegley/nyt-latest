@@ -1,3 +1,7 @@
+**The sad decline of West Indian Test cricket: 'We seem to have given up'**\
+`West Indies travel to India with their Test team at its lowest ebb and memories fading of their world dominance from the 1970s and '80s `\
+https://nytimes.com/athletic/6658044/2025/10/01/west-indies-test-cricket-decline-roberts-adams/
+
 **What West Ham can expect from Nuno: Compact squad, several subs, and straight talk**\
 `West Ham fans got a welcome introduction to their new head coach on Monday, but there is more to the former Forest boss than meets the eye`\
 https://nytimes.com/athletic/6673578/2025/10/01/west-ham-nuno-espirito-santo-premier-league-analysis/

@@ -1,3 +1,7 @@
+**The sad decline of West Indian Test cricket: 'We seem to have given up'**\
+`West Indies travel to India with their Test team at its lowest ebb and memories fading of their world dominance from the 1970s and '80s `\
+https://nytimes.com/athletic/6658044/2025/10/01/west-indies-test-cricket-decline-roberts-adams/
+
 **What West Ham can expect from Nuno: Compact squad, several subs, and straight talk**\
 `West Ham fans got a welcome introduction to their new head coach on Monday, but there is more to the former Forest boss than meets the eye`\
 https://nytimes.com/athletic/6673578/2025/10/01/west-ham-nuno-espirito-santo-premier-league-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6676140/2025/10/01/dewsbury-hall-everton-five-booki
 **What Barcelona fans, players and coaches think about the constant Camp Nou chaos**\
 `Barcelona’s messaging and management around their Camp Nou return has been chaotic, to say the least`\
 https://nytimes.com/athletic/6676495/2025/10/01/barcelona-camp-nou-fans-players-coaches/
-
-**The BookKeeper - How much Manchester United have spent on sacking managers since Sir Alex Ferguson retired**\
-`As pressure mounts on United's head coach, the BookKeeper explores the true costs of sacking their post-Alex Ferguson managers `\
-https://nytimes.com/athletic/6673151/2025/10/01/amorim-manchester-united-cost-sacking/
 
