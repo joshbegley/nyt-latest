@@ -1,3 +1,11 @@
+**The playoff buzz around the Cubs is alive at Wrigley Field — and the team feels it, too**\
+`While bagging their first playoff win since 2017, the Cubs also showed the blueprint for how they can keep advancing.`\
+https://nytimes.com/athletic/6678404/2025/09/30/cubs-wrigley-field-game-1-win/
+
+**Chicago Fire end MLS playoff drought, while Miami's Shield hopes slip away**\
+`Gregg Berhalter's Chicago Fire are back into the MLS playoffs after winning an eight-goal thriller over Messi & Co. in South Florida`\
+https://nytimes.com/athletic/6678517/2025/09/30/chicago-fire-mls-playoffs-inter-miami-supporters-shield/
+
 **Spotted Attending**\
 `Neville Fogarty helps us experience altered states.`\
 https://nytimes.com/2025/09/30/crosswords/daily-puzzle-2025-10-01.html
