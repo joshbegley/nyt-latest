@@ -1,3 +1,7 @@
+**Yankees' Jazz Chisholm Jr. displeased with being out of Game 1 starting lineup**\
+`Ever loquacious, Chisholm did not need to say many words to get his point across: Being on the bench appeared to not sit well with him.`\
+https://nytimes.com/athletic/6678568/2025/09/30/jazz-chisholm-yankees-game-1-wild-card-lineup/
+
 **Kerr 'very comfortable' as he enters final year of his contract**\
 `Kerr, who just turned 60 years old on Sept. 27, is in his 12th season as Warriors coach`\
 https://nytimes.com/athletic/6678675/2025/09/30/warriors-coach-steve-kerr-very-comfortable-as-he-enters-final-year-of-his-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/30/technology/uber-sexual-assualt-bellwether-lawsuit
 **Padres' season on the brink after missed chances and a familiar decision to bunt in Game 1 loss**\
 `After heavy shadows loomed and a few opportunities were squandered, the Padres now face an uphill battle in Game 2 against the Cubs. `\
 https://nytimes.com/athletic/6678326/2025/09/30/padres-wild-card-loss-game-1/
-
-**Shohei Ohtani opens Dodgers' postseason with epic power display**\
-`In his first at-bat of this postseason, Ohtani launched a home run into the right-field stands in Game 1 of the Wild Card Series.`\
-https://nytimes.com/athletic/6678459/2025/09/30/ohtani-dodgers-reds-leadoff-homer/
 

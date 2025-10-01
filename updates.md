@@ -1,3 +1,7 @@
+**Yankees' Jazz Chisholm Jr. displeased with being out of Game 1 starting lineup**\
+`Ever loquacious, Chisholm did not need to say many words to get his point across: Being on the bench appeared to not sit well with him.`\
+https://nytimes.com/athletic/6678568/2025/09/30/jazz-chisholm-yankees-game-1-wild-card-lineup/
+
 **Kerr 'very comfortable' as he enters final year of his contract**\
 `Kerr, who just turned 60 years old on Sept. 27, is in his 12th season as Warriors coach`\
 https://nytimes.com/athletic/6678675/2025/09/30/warriors-coach-steve-kerr-very-comfortable-as-he-enters-final-year-of-his-contract/
