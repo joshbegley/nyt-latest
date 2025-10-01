@@ -1,3 +1,7 @@
+**A.J. Brown clarifies social media post, says he let frustrations 'boil over'**\
+`Brown said he is optimistic the Eagles will figure out how to fix their offense.`\
+https://nytimes.com/athletic/6681413/2025/10/01/aj-brown-eagles-addresses-social-media/
+
 **Spirit embraces 'unique power' in a community hit heavily by U.S. government shutdown**\
 `The team has also allowed chants of "free D.C." during matches in reference to the city's push for statehood.`\
 https://nytimes.com/athletic/6680662/2025/10/01/washington-spirit-free-tickets-government-shutdown/
