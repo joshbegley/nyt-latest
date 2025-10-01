@@ -1,3 +1,7 @@
+**Drones, Helicopters, Hundreds of Arrests: Trump’s Immigration Crackdown in Chicago So Far**\
+`The administration announced a federal operation in the Chicago area more than three weeks ago. Agents have appeared along downtown streets, and National Guard troops are expected.`\
+https://nytimes.com/2025/10/01/us/trump-chicago-immigration-national-guard.html
+
 **Republicans and Democrats in Deadlock Over Federal Funding**\
 `Dueling proposals to end the government shutdown failed in the Senate on Wednesday. There was no end in sight to the deadlock as neither party showed signs of bowing to the other’s government spending demands.`\
 https://nytimes.com/video/us/politics/100000010433229/republicans-democrats-deadlock-government-shutdown.html
