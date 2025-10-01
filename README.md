@@ -1,3 +1,15 @@
+**What Happens When a Fashion Show Goes Wrong**\
+`Seven designers on their biggest mishaps.`\
+https://nytimes.com/2025/10/01/t-magazine/fashion-show-mishaps.html
+
+**The Be-Careful-What-You-Wish-For Shutdown**\
+`Unlike in shutdowns past, President Trump is the wild card.`\
+https://nytimes.com/2025/10/01/us/politics/politics-shutdown-democrats-trump.html
+
+**Jane Goodall: A Life in Pictures**\
+`The primatologist gained scientific acclaim for her work with chimpanzees and then later used her fame to champion conservation.`\
+https://nytimes.com/2025/10/01/science/jane-goodall-a-life-in-pictures.html
+
 **Republicans and Democrats in Deadlock Over Federal Funding**\
 `On Wednesday, dueling proposals to end the government shutdown failed in the Senate for the third time in two weeks. Most of the House’s Democrats also blocked the House-passed G.O.P. stopgap spending bill.`\
 https://nytimes.com/video/us/politics/100000010433229/republicans-democrats-deadlock-government-shutdown.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/nyregion/100000010434055/bronx-building-collapse.html
 **Trump’s Chicago ICE Crackdown Intensifies With Drones, Helicopters and Trucks**\
 `The administration announced a federal operation in the Chicago area more than three weeks ago. Agents have appeared along downtown streets, and National Guard troops are expected.`\
 https://nytimes.com/2025/10/01/us/trump-chicago-immigration-national-guard.html
-
-**What I'm hearing about the Hockey Canada players as Day 1 passes in their potential NHL returns**\
-`The first day for the reinstated players can sign with NHL teams will pass without any finding a new job, per league sources.`\
-https://nytimes.com/athletic/6681213/2025/10/01/hockey-canada-players-golden-knights-hurricanes/
-
-**Cardinals prepared for spending change as Chaim Bloom era begins: 'Going to provide the resources'**\
-`For the Cardinals to be successful under Bloom, ownership must be open to ideas. The early consensus is that will be the case.`\
-https://nytimes.com/athletic/6680584/2025/10/01/cardinals-prepared-payroll-chaim-bloom-era-begins/
-
-**South African Politician, Target of Trump Attacks, Is Convicted of Gun Charge**\
-`The verdict against Julius Malema came a month after a separate court convicted him of hate speech. This year, President Trump played a video montage at the White House of Mr. Malema leading chants of “Kill the Boer,” a protest song.`\
-https://nytimes.com/2025/10/01/world/africa/malema-south-africa-trump-guilty.html
 

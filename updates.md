@@ -1,3 +1,7 @@
+**Republicans and Democrats in Deadlock Over Federal Funding**\
+`On Wednesday, dueling proposals to end the government shutdown failed in the Senate for the third time in two weeks. Most of the House’s Democrats also blocked the House-passed G.O.P. stopgap spending bill.`\
+https://nytimes.com/video/us/politics/100000010433229/republicans-democrats-deadlock-government-shutdown.html
+
 **Jane Goodall, a Revered Conservationist, Dies at 91**\
 `Jane Goodall, the renowned primate expert, has died. She was 91. Her discoveries about how wild chimpanzees raised their young, established leadership, socialized and communicated broke new ground and attracted immense attention and respect among researchers.`\
 https://nytimes.com/video/obituaries/100000010433798/jane-goodall-death.html
