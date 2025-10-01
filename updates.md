@@ -1,3 +1,15 @@
+**Spam and Scams Proliferate in Facebook’s Political Ads**\
+`A new analysis of political advertisers found that the platform profits from ads that include deepfakes and other content prohibited by its own policies.`\
+https://nytimes.com/2025/10/01/technology/facebooks-political-ads-deepfakes-scams.html
+
+**Newcastle's Livramento faces up to eight weeks out with knee injury**\
+`The 22-year-old has started all six of Newcastle's Premier League games this season.`\
+https://nytimes.com/athletic/6670568/2025/10/01/tino-livramento-injury-newcastle/
+
+**Canucks 23-man roster projection 2.0: Who's still on the roster bubble?**\
+`Let's set the stakes for the final week of preseason by breaking down the Canucks roster as it currently stands.`\
+https://nytimes.com/athletic/6678653/2025/10/01/canucks-roster-projection-2025/
+
 **Bake Time**\
 `Baking recipes, videos, inspiration and advice from Vaughn Vreeland. <a href="https://www.nytimes.com/newsletters/bake-time" target="_blank">Sign up for the Bake Time newsletter.</a>`\
 https://nytimes.com/series/bake-time
