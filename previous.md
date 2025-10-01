@@ -1,3 +1,7 @@
+**Judge Disqualifies Nevada’s Acting U.S. Attorney From Handling Cases**\
+`A federal judge said Sigal Chattah was not “validly serving as acting U.S. attorney.” The Trump administration had appointed her to the post in a way that circumvented federal procedures.`\
+https://nytimes.com/2025/09/30/us/nevada-acting-us-attorney-chattah-disqualified.html
+
 **Despair has been replaced with delight as Tarik Skubal, Tigers take series lead**\
 `“It doesn’t really matter how we got here,” Skubal said after striking out 14 in a 2-1 win. It’s too bad more people didn’t get to see it.`\
 https://nytimes.com/athletic/6678053/2025/09/30/tigers-guardians-tarik-skubal-al-wild-card/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/09/30/us/senate-shutdown-vote.html
 **Are You Quitting the Military? We Want to Hear From You.**\
 `The New York Times is looking for generals and admirals who are quitting the military following an address from the defense secretary.`\
 https://nytimes.com/2025/09/30/us/politics/military-leaders-quit-callout.html
-
-**With all eyes on him, a calm, competitive Tarik Skubal powers the Tigers to Game 1 win**\
-`Tarik Skubal became the first pitcher since Gerrit Cole in 2019 to strike out 14 or more batters in a postseason game.`\
-https://nytimes.com/athletic/6677969/2025/09/30/tigers-tarik-skubal-game-1-win-calm-competitive/
 

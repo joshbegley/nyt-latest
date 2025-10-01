@@ -1,3 +1,7 @@
+**Judge Disqualifies Nevada’s Acting U.S. Attorney From Handling Cases**\
+`A federal judge said Sigal Chattah was not “validly serving as acting U.S. attorney.” The Trump administration had appointed her to the post in a way that circumvented federal procedures.`\
+https://nytimes.com/2025/09/30/us/nevada-acting-us-attorney-chattah-disqualified.html
+
 **Despair has been replaced with delight as Tarik Skubal, Tigers take series lead**\
 `“It doesn’t really matter how we got here,” Skubal said after striking out 14 in a 2-1 win. It’s too bad more people didn’t get to see it.`\
 https://nytimes.com/athletic/6678053/2025/09/30/tigers-guardians-tarik-skubal-al-wild-card/
