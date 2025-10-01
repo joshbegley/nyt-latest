@@ -1,3 +1,7 @@
+**Israel Escalates Gaza Offensive as Hamas Mulls Trump Plan**\
+`Hundreds of thousands of Palestinians have fled Israel’s assault on Gaza City, but many are believed to remain, having nowhere to go or no means to leave.`\
+https://nytimes.com/2025/10/01/world/middleeast/israel-gaza-trump-hamas.html
+
 **U.K. ‘Grooming Gang’ Leader Sentenced to 35 Years for Rape**\
 `Seven men in all were sentenced on Wednesday over their roles in a decades-old national scandal in Britain involving child sexual abuse.`\
 https://nytimes.com/2025/10/01/world/europe/uk-grooming-gang-sentencing.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/10/01/arts/design/ana-segovia-frieze-london.html
 **WNBA star Kelsey Plum will join Unrivaled's second season**\
 `The two-time Olympic gold medalist and two-time WNBA champion had committed to join the startup league in 2025, but opted out for rest.`\
 https://nytimes.com/athletic/6678646/2025/10/01/kelsey-plum-unrivaled-wnba/
-
-**Just Outside Frieze London, Visitors Can Explore Key Moments in Spy History**\
-`Around Regent’s Park, the venue of the art fair, the making of double agents and sabotage plans was once commonplace.`\
-https://nytimes.com/2025/10/01/arts/design/frieze-london-regents-park-spy-history.html
 
