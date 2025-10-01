@@ -1,3 +1,7 @@
+**White House Uses Shutdown to Maximize Pain and Punish Political Foes**\
+`The Trump administration forged ahead with plans to conduct mass layoffs, as the fiscal standoff appeared to intensify.`\
+https://nytimes.com/2025/10/01/us/politics/white-house-shutdown-punishment.html
+
 **Vance Laughs Off Deepfake Video of Hakeem Jeffries: ‘I Think It’s Funny’**\
 `President Trump posted the meme, which Representative Hakeem Jeffries called racist and bigoted. Vice President JD Vance said the president was “joking, and we’re having a good time.”`\
 https://nytimes.com/2025/10/01/us/politics/vance-jeffries-deepfake-video.html
