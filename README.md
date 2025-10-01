@@ -1,3 +1,15 @@
+**London Police Chief Apologizes Over Officers’ ‘Reprehensible’ Behavior**\
+`The police commissioner spoke after the BBC broadcast video showing officers making sexualized comments, reveling in the use of violence and expressing racist views.`\
+https://nytimes.com/2025/10/01/world/europe/london-police-chief-apology-officer-comments.html
+
+**Edward T. Blake, 80, Dies; Forensic Expert Sparked Innocence Movement**\
+`He was the first to use PCR testing on crime-scene DNA, inspiring a practice that has freed thousands of wrongfully convicted people.`\
+https://nytimes.com/2025/10/01/science/edward-t-blake-dead.html
+
+**Congress Is Deadlocked on the Shutdown**\
+`Also, Jane Goodall died at 91. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/10/01/briefing/congress-shutdown-jane-goodall.html
+
 **‘She Could Have Killed Me’: Scientist Survives Shark Bite to His Head**\
 `“My whole head was inside of her mouth,” Mauricio Hoyos, a marine scientist from Mexico, said from a hospital in Costa Rica.`\
 https://nytimes.com/2025/10/01/world/americas/marine-biologist-shark-bite-costa-rica.html
@@ -15,7 +27,7 @@ https://nytimes.com/2025/10/01/us/politics/vance-jeffries-deepfake-video.html
 https://nytimes.com/2025/10/01/world/courts-polarized-gaza-flotilla-israel-blockade-jane-goodall.html
 
 **Liverpool waiting on Alisson scan to establish severity of hamstring injury**\
-`The 32-year-old appeared to sustain the problem will running back to make a save during Tuesday's Champions League loss against Galatasaray.`\
+`The 32-year-old appeared to sustain the problem while running back to make a save during the Champions League loss against Galatasaray.`\
 https://nytimes.com/athletic/6679162/2025/10/01/liverpool-alisson-injury-brazil/
 
 **Barca 1 PSG 2 - More Yamal magic, 45-game scoring record, Barca's high line hurts them late**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6679977/2025/10/01/barcelona-1-psg-2-yamal-high-lin
 **The Briefing: Arsenal 2-0 Olympiacos - an Odegaard passing masterclass and a superb Raya save**\
 `Arsenal came flying out of the blocks against Olympiacos. Here, we dissect the key talking points`\
 https://nytimes.com/athletic/6680694/2025/10/01/arsenal-olympiacos-odegaard-raya-champions-league-result/
-
-**The Briefing: Monaco 2 Man City 2: Was late Dier penalty the right call? How did Haaland score that header?**\
-`We break down the talking points from City's draw with Monaco after a late penalty from Eric Dier denied them victory`\
-https://nytimes.com/athletic/6679909/2025/10/01/man-city-haaland-foden-penalty/
-
-**One Girl’s Journey After Her Grandma Said to Kill Her**\
-`Orphaned in a massacre in Congo, a onetime elementary school dropout is now an American and can teach us something about resilience.`\
-https://nytimes.com/2025/10/01/opinion/congo-refugee-us-albinism.html
-
-**Judge Dismisses Lawsuit Over Naked Baby on Nirvana’s ‘Nevermind’**\
-`The man pictured as a naked baby on the cover of Nirvana’s seminal second album argued that the band had engaged in child sex abuse imagery.`\
-https://nytimes.com/2025/10/01/arts/music/nirvana-nevermind-baby-lawsuit.html
 
