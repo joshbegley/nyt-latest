@@ -1,3 +1,15 @@
+**Dulcy Caylor clinches first spot on U.S. gymnastics World Championship team**\
+`Caylor scored a career-high, beating out gymnasts with much more world experience on their resumes.`\
+https://nytimes.com/athletic/6677647/2025/09/30/dulcy-caylor-usa-gymnastics-world-championship-team/
+
+**Judge Blocks Trump’s Move to Cut Federal Funds Over Immigration Policy**\
+`A coalition of blue states and Washington, D.C., accused the Trump administration of illegally “taking money from its enemies” in freezing emergency preparedness grants.`\
+https://nytimes.com/2025/09/30/us/politics/trump-fema-funds-immigration.html
+
+**How the Senate Voted on the Failed Effort to Prevent a Government Shutdown**\
+`The Senate failed to reach the 60 votes necessary to avoid a shutdown.`\
+https://nytimes.com/interactive/2025/09/30/us/senate-shutdown-vote.html
+
 **U.S. Argues That Detained Protesters Can’t Seek Release in Federal Court**\
 `A federal appeals court heard arguments over whether noncitizens subject to deportation have the right to challenge their detentions using one of the oldest legal precepts.`\
 https://nytimes.com/2025/09/30/nyregion/habeas-corpus-deportation-appeal.html
