@@ -1,3 +1,15 @@
+**The New York Times in Print for Wednesday, Oct. 1, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/01/todays-new-york-times
+
+**Regime Change Was Always the Plan for Venezuela**\
+`The Trump administration’s Venezuela policy is driven by a desire for vindication and revenge.`\
+https://nytimes.com/2025/10/01/opinion/venezuela-trump-maduro-regime-boats.html
+
+**The U.S. Is Sweeping Away Human Rights Protections**\
+`Sanctions on small human rights groups are the latest Trump attack on global efforts to protect civil liberties.`\
+https://nytimes.com/2025/10/01/opinion/human-rights-palestinians-international-criminal-court.html
+
 **The sad decline of West Indian Test cricket: 'We seem to have given up'**\
 `West Indies travel to India with their Test team at its lowest ebb and memories fading of their world dominance from the 1970s and '80s `\
 https://nytimes.com/athletic/6658044/2025/10/01/west-indies-test-cricket-decline-roberts-adams/
