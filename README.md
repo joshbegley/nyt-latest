@@ -1,3 +1,11 @@
+**Dulcy Caylor clinches first spot on U.S. gymnastics World Championship team**\
+`Caylor scored a career-high, beating out gymnasts with much more world experience on their resumes.`\
+https://nytimes.com/athletic/6677647/2025/09/30/dulcy-caylor-usa-gymnastics-world-championship-team/
+
+**Judge Blocks Trump’s Move to Cut Federal Funds Over Immigration Policy**\
+`A coalition of blue states and Washington, D.C., accused the Trump administration of illegally “taking money from its enemies” in freezing emergency preparedness grants.`\
+https://nytimes.com/2025/09/30/us/politics/trump-fema-funds-immigration.html
+
 **U.S. Argues That Detained Protesters Can’t Seek Release in Federal Court**\
 `A federal appeals court heard arguments over whether noncitizens subject to deportation have the right to challenge their detentions using one of the oldest legal precepts.`\
 https://nytimes.com/2025/09/30/nyregion/habeas-corpus-deportation-appeal.html
@@ -10,7 +18,7 @@ https://nytimes.com/athletic/6677488/2025/09/30/cardinals-mlb-chaim-bloom-plan/
 `What the looming shutdown is really about: Republicans trying to repeal Obamacare.`\
 https://nytimes.com/2025/09/30/opinion/government-shutdown-republican-obamacare.html
 
-**How Every Senator Voted to Avoid a Government Shutdown**\
+**How the Senate Voted on the Failed Effort to Prevent a Government Shutdown**\
 `The Senate failed to reach the 60 votes necessary to avoid a shutdown.`\
 https://nytimes.com/interactive/2025/09/30/us/senate-shutdown-vote.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/30/climate/trump-hydrofluorocarbons-hfcs.html
 **Trump Cuts to Counterterrorism Funds for New York Reach $187 Million**\
 `Gov. Kathy Hochul of New York asked that the funding be restored, accusing the Trump administration of “walking away from the fight against terrorism.”`\
 https://nytimes.com/2025/09/30/nyregion/terrorism-funds-hochul-noem.html
-
-**Scores Accused of Immigration Fraud in Federal Sweep in Minnesota**\
-`The investigation is the “first of many” targeted at U.S. cities, said Joseph B. Edlow, the director of U.S.C.I.S.`\
-https://nytimes.com/2025/09/30/us/politics/immigration-fraud-minnesota.html
-
-**How to watch Lions at Bengals: Time, TV, streaming**\
-`Find out how to watch the Detroit Lions play the Cincinnati Bengals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6678127/2025/09/30/lions-vs-bengals-stream-how-to-watch-oct-5/
 
