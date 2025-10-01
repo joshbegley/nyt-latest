@@ -1,3 +1,15 @@
+**Despair has been replaced with delight as Tarik Skubal, Tigers take series lead**\
+`“It doesn’t really matter how we got here,” Skubal said after striking out 14 in a 2-1 win. It’s too bad more people didn’t get to see it.`\
+https://nytimes.com/athletic/6678053/2025/09/30/tigers-guardians-tarik-skubal-al-wild-card/
+
+**How to watch Red Sox at Yankees: Game 1 Time, TV, streaming**\
+`Find out how to watch the Boston Red Sox play the New York Yankees, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6678269/2025/09/30/red-sox-vs-yankees-stream-how-to-watch-oct-1/
+
+**Chaim Bloom puts Cardinals' focus on long term: 'We can't take shortcuts, and we won't'**\
+`Bloom laid out his thoughts on the Sonny Gray trade outlook, as well as what's next for Jordan Walker and Nolan Gorman.`\
+https://nytimes.com/athletic/6677488/2025/09/30/cardinals-mlb-chaim-bloom-plan/
+
 **Dulcy Caylor clinches first spot on U.S. gymnastics World Championship team**\
 `Caylor scored a career-high, beating out gymnasts with much more world experience on their resumes.`\
 https://nytimes.com/athletic/6677647/2025/09/30/dulcy-caylor-usa-gymnastics-world-championship-team/
