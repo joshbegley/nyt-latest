@@ -1,3 +1,7 @@
+**Liverpool's defence, Wirtz impact on midfield and rotation: The problems Slot needs to solve**\
+`Liverpool fell to a second defeat in a row against Galatasaray on Tuesday night. There are problems — despite them topping the league`\
+https://nytimes.com/athletic/6678154/2025/10/01/liverpool-galatasaray-analysis-defence-attack/
+
 **The U.S. Eases Visa Restrictions on South Korean Workers**\
 `The agreement came after an ICE raid on a factory in Georgia outraged one of America’s key allies.`\
 https://nytimes.com/2025/10/01/world/asia/south-korea-georgia-factory-visa.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6678725/2025/10/01/las-vegas-aces-wnba-finals-ot-wi
 **Reds-Dodgers takeaways: Teoscar Hernández, Blake Snell dazzle in Game 1 rout**\
 `Snell delivered the longest postseason outing of his career while Hernández belted two homers to spark the Dodgers.`\
 https://nytimes.com/athletic/6678613/2025/10/01/dodgers-reds-game-1-score-results-nl-wild-card-2025/
-
-**Dean Smith interview: Trying to stop Messi, his time at Villa and his relationship with Emery**\
-`It can be easy for an English manager to become one-tracked – but across the Atlantic, Smith has bounced back from his Premier League exits`\
-https://nytimes.com/athletic/6672840/2025/10/01/dean-smith-messi-aston-villa-charlotte-fc-mls/
 

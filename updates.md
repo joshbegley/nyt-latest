@@ -1,3 +1,7 @@
+**Liverpool's defence, Wirtz impact on midfield and rotation: The problems Slot needs to solve**\
+`Liverpool fell to a second defeat in a row against Galatasaray on Tuesday night. There are problems — despite them topping the league`\
+https://nytimes.com/athletic/6678154/2025/10/01/liverpool-galatasaray-analysis-defence-attack/
+
 **The U.S. Eases Visa Restrictions on South Korean Workers**\
 `The agreement came after an ICE raid on a factory in Georgia outraged one of America’s key allies.`\
 https://nytimes.com/2025/10/01/world/asia/south-korea-georgia-factory-visa.html
