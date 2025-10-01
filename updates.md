@@ -1,3 +1,7 @@
+**City forward Fowler extends deal through to 2027**\
+`The 22-year-old was named in last season's PFA WSL team of the year despite picking up an ACL injury in April.`\
+https://nytimes.com/athletic/6679055/2025/10/01/mary-fowler-manchester-city-contract-extension/
+
 **City forward Fowler extends deal to 2027**\
 `The 22-year-old was named in last season's PFA WSL team of the year despite picking up an ACL injury in April.`\
 https://nytimes.com/athletic/6679055/2025/10/01/mary-fowler-manchester-city-contract-extension/
