@@ -1,3 +1,7 @@
+**Padres' season on the brink after missed chances and a familiar decision to bunt in Game 1 loss**\
+`After heavy shadows loomed and a few opportunities were squandered, the Padres now face an uphill battle in Game 2 against the Cubs. `\
+https://nytimes.com/athletic/6678326/2025/09/30/padres-wild-card-loss-game-1/
+
 **Shohei Ohtani kicks off Dodgers' postseason with homer**\
 `LOS ANGELES — That didn’t take long.`\
 https://nytimes.com/athletic/6678459/2025/09/30/ohtani-dodgers-reds-leadoff-homer/
