@@ -1,3 +1,7 @@
+**Internet Blackout in Afghanistan Enters 3rd Day**\
+`Banking services have stopped, planes are grounded and aid distribution has been halted. The scope of the blackout is rare, even for a government that has increasingly rolled back freedoms.`\
+https://nytimes.com/2025/10/01/world/asia/afghanistan-internet-blackout-taliban.html
+
 **The night Jose Mourinho got the Stamford Bridge reception his legacy deserves**\
 `After some difficult visits to west London, especially with Tottenham, this was a much warmer return for the former Chelsea boss`\
 https://nytimes.com/athletic/6678607/2025/10/01/jose-mourinho-chelsea-legacy-champions-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6678154/2025/10/01/liverpool-galatasaray-analysis-d
 **The U.S. Eases Visa Restrictions on South Korean Workers**\
 `The agreement came after an ICE raid on a factory in Georgia outraged one of America’s key allies.`\
 https://nytimes.com/2025/10/01/world/asia/south-korea-georgia-factory-visa.html
-
-**The New York Times in Print for Wednesday, Oct. 1, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/10/01/todays-new-york-times
 
