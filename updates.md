@@ -1,3 +1,7 @@
+**Some Furloughed Federal Staff Use Automated Replies to Blame Senate Democrats**\
+`The inboxes of some employees of the Small Business Administration are returning automated email replies that deliver a partisan message on the shutdown.`\
+https://nytimes.com/2025/10/01/us/politics/furlough-small-business-administration-emails.html
+
 **Trump Fires Members of Humanities Council**\
 `The White House told members of a group of scholars who advise the National Endowment for the Humanities that their positions had been terminated.`\
 https://nytimes.com/2025/10/01/arts/trump-neh-firings.html
