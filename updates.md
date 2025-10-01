@@ -1,3 +1,7 @@
+**Jannik Sinner's China Open title and the rankings chasm between the best and the rest**\
+`Sinner's China Open win over Learner Tien was more notable for its impact on the world rankings than for the result.`\
+https://nytimes.com/athletic/6679043/2025/10/01/tennis-rankings-alcaraz-sinner-no-1/
+
 **City forward Fowler extends deal through to 2027**\
 `The 22-year-old was named in last season's PFA WSL team of the year despite picking up an ACL injury in April.`\
 https://nytimes.com/athletic/6679055/2025/10/01/mary-fowler-manchester-city-contract-extension/

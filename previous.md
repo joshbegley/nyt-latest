@@ -1,3 +1,7 @@
+**Jannik Sinner's China Open title and the rankings chasm between the best and the rest**\
+`Sinner's China Open win over Learner Tien was more notable for its impact on the world rankings than for the result.`\
+https://nytimes.com/athletic/6679043/2025/10/01/tennis-rankings-alcaraz-sinner-no-1/
+
 **City forward Fowler extends deal through to 2027**\
 `The 22-year-old was named in last season's PFA WSL team of the year despite picking up an ACL injury in April.`\
 https://nytimes.com/athletic/6679055/2025/10/01/mary-fowler-manchester-city-contract-extension/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6678934/2025/10/01/patriots-vs-bills-stream-how-to-
 **Ronny Chieng Shades Pete Hegseth’s Military Address**\
 `“Listen, we all do weird things when we’re drunk, OK?" Chieng said. “Some of us slide into an ex’s DMs, and some of us call every U.S. general to a meeting at Quantico.”`\
 https://nytimes.com/2025/10/01/arts/television/ronny-chieng-shades-pete-hegseths-military-address.html
-
-**How to watch Padres at Cubs: Game 2 Time, TV, streaming**\
-`Find out how to watch the San Diego Padres play the Chicago Cubs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6678913/2025/10/01/padres-vs-cubs-stream-how-to-watch-oct-1/
 
