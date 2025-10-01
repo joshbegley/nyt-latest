@@ -1,3 +1,7 @@
+**TAFC: What's eating Liverpool? Plus: The cost of Manchester United sacking managers**\
+`Today in TAFC: What is going wrong at Liverpool after defeat in the Champions League? Plus: The cost of Manchester United sacking managers`\
+https://nytimes.com/athletic/6679082/2025/10/01/liverpool-champions-league-defeat-galatasaray/
+
 **Tottenham confident on agreeing new Bentancur contract**\
 `Bentancur's existing deal had been due to expire in the summer of 2026.`\
 https://nytimes.com/athletic/6679116/2025/10/01/tottenham-confident-on-agreeing-new-rodrigo-bentancur-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6673267/2025/10/01/new-jersey-devils-2025-26-season
 **Why Jackson Hawes might be the Bills' future at tight end**\
 `The fifth-round pick has becoming the most impactful rookie this season.`\
 https://nytimes.com/athletic/6677533/2025/10/01/jackson-hawes-bills-tight-end-future/
-
-**What will Caitlin Clark's offseason look like? Her options are plentiful**\
-`Fully rehabbing from an injury-plagued season will be her priority. Then what? Unrivaled? Team USA? `\
-https://nytimes.com/athletic/6671136/2025/10/01/caitlin-clarks-wnba-offseason-unrivaled/
 
