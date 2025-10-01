@@ -1,3 +1,15 @@
+**NBA, Amazon partner to offer new stats such as player 'gravity' and shot difficulty**\
+`Not all shots are made equal. A new stat from the NBA and Amazon will allow fans to gauge the best shooters in the league.`\
+https://nytimes.com/athletic/6676681/2025/10/01/nba-amazon-new-stats-fans/
+
+**Trump Promises to Defend Qatar, a Reassurance After Israel’s Strike**\
+`An executive order says an attack on Qatar would be treated as a threat to the U.S., bolstering security commitments to a key Gulf ally after Israel’s strike on Doha last month.`\
+https://nytimes.com/2025/10/01/world/middleeast/qatar-trump-executive-order.html
+
+**Man Utd considering Saudi Arabia as venue for mid-season friendly**\
+`United are considering ways to raise revenue and, given they have several free midweeks, travelling to the Middle East is seen as an option`\
+https://nytimes.com/athletic/6623737/2025/10/01/manchester-united-saudi-arabia-friendly/
+
 **The Shutdown Will Not Stop Flights but Could Hurt Air Travel if It Persists**\
 `During the last government shutdown, which began in late 2018, many demoralized workers called out sick or did not show up to work.`\
 https://nytimes.com/2025/10/01/business/government-shutdown-flights-air-travel.html
