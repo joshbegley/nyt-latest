@@ -1,3 +1,11 @@
+**The Shutdown Will Not Stop Flights but Could Hurt Air Travel if It Persists**\
+`During the last government shutdown, which began in late 2018, many demoralized workers called out sick or did not show up to work.`\
+https://nytimes.com/2025/10/01/business/government-shutdown-flights-air-travel.html
+
+**Man Utd considering Saudi Arabia as venue for mid-season friendly**\
+`United are considering ways to raise revenue and given they have several free midweeks, travelling to the Middle East is seen as an option`\
+https://nytimes.com/athletic/6623737/2025/10/01/manchester-united-saudi-arabia-friendly/
+
 **Man Utd exploring Saudi Arabia as venue for mid-season friendly**\
 `United are considering ways to raise revenue and given they have several free midweeks, travelling to the Middle East is seen as an option`\
 https://nytimes.com/athletic/6623737/2025/10/01/manchester-united-saudi-arabia-friendly/

@@ -1,4 +1,8 @@
-**Man Utd exploring Saudi Arabia as venue for mid-season friendly**\
+**The Shutdown Will Not Stop Flights but Could Hurt Air Travel if It Persists**\
+`During the last government shutdown, which began in late 2018, many demoralized workers called out sick or did not show up to work.`\
+https://nytimes.com/2025/10/01/business/government-shutdown-flights-air-travel.html
+
+**Man Utd considering Saudi Arabia as venue for mid-season friendly**\
 `United are considering ways to raise revenue and given they have several free midweeks, travelling to the Middle East is seen as an option`\
 https://nytimes.com/athletic/6623737/2025/10/01/manchester-united-saudi-arabia-friendly/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6674556/2025/10/01/twins-rocco-baldelli-firing-fron
 **Trevor Lawrence settles in, Puka Nacua keeps producing, more Week 4 thoughts: Quick Outs**\
 `Lawrence has found renewed life in Liam Coem's scheme, while Nacua keeps leveling up his game.`\
 https://nytimes.com/athletic/6676312/2025/10/01/nfl-week-4-nacua-lawrence-quick-outs/
-
-**Mets' playoff hopes came down to one game. Here are 10 of their most difficult losses**\
-`The Mets lost 79 games this season, and at least a handful felt like they should have ended differently.`\
-https://nytimes.com/athletic/6677655/2025/10/01/mets-worst-10-losses/
 

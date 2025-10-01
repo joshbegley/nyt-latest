@@ -1,9 +1,17 @@
+**NBA, Amazon partner to offer new stats such as player 'gravity' and shot difficulty**\
+`Not all shots are made equal. A new stat from the NBA and Amazon will allow fans to gauge the best shooters in the league.`\
+https://nytimes.com/athletic/6676681/2025/10/01/nba-amazon-new-stats-fans/
+
+**Trump Promises to Defend Qatar, a Reassurance After Israel’s Strike**\
+`An executive order says an attack on Qatar would be treated as a threat to the U.S., bolstering security commitments to a key Gulf ally after Israel’s strike on Doha last month.`\
+https://nytimes.com/2025/10/01/world/middleeast/qatar-trump-executive-order.html
+
 **The Shutdown Will Not Stop Flights but Could Hurt Air Travel if It Persists**\
 `During the last government shutdown, which began in late 2018, many demoralized workers called out sick or did not show up to work.`\
 https://nytimes.com/2025/10/01/business/government-shutdown-flights-air-travel.html
 
 **Man Utd considering Saudi Arabia as venue for mid-season friendly**\
-`United are considering ways to raise revenue and given they have several free midweeks, travelling to the Middle East is seen as an option`\
+`United are considering ways to raise revenue and, given they have several free midweeks, travelling to the Middle East is seen as an option`\
 https://nytimes.com/athletic/6623737/2025/10/01/manchester-united-saudi-arabia-friendly/
 
 **The Federal Government Shut Down Overnight**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6678678/2025/10/01/blackhawks-frank-nazar-preseason
 **Yohe: Penguins need to keep Harrison Brunicke in Pittsburgh**\
 `The Penguins would be wise to promote the precocious Brunicke to the NHL now. `\
 https://nytimes.com/athletic/6677935/2025/10/01/harrison-brunicke-penguins-prospect-training-camp/
-
-**Gleeman: Rocco Baldelli's final act as fired Twins manager is shielding the front office**\
-`Baldelli took the fall for back-to-back ugly seasons, but what does that solve if the Twins' ownership and front office remain unchanged?`\
-https://nytimes.com/athletic/6674556/2025/10/01/twins-rocco-baldelli-firing-front-office/
-
-**Trevor Lawrence settles in, Puka Nacua keeps producing, more Week 4 thoughts: Quick Outs**\
-`Lawrence has found renewed life in Liam Coem's scheme, while Nacua keeps leveling up his game.`\
-https://nytimes.com/athletic/6676312/2025/10/01/nfl-week-4-nacua-lawrence-quick-outs/
 
