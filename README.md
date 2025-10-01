@@ -1,3 +1,7 @@
+**What’s in Our Queue? ‘KPop Demon Hunters’ and More **\
+`Text by Brian X. Chen`\
+https://nytimes.com/card/2025/10/01/arts/editors-recommendations-kpopdemon
+
 **Ty Simpson passes first big test, plays his way into early-round draft discussion**\
 `Simpson was clean all game against Georgia, completing 24-of38 passes for 276 yards, two touchdowns, zero interceptions and zero sacks.`\
 https://nytimes.com/athletic/6678611/2025/10/01/ty-simpson-passes-first-big-test/
@@ -7,14 +11,14 @@ https://nytimes.com/athletic/6678611/2025/10/01/ty-simpson-passes-first-big-test
 https://nytimes.com/athletic/6677147/2025/10/01/lamar-jackson-injury-status-ravens/
 
 **Arizona Cardinals lose another running back to injury as Trey Benson hits IR**\
-`Benson will miss at least four weeks with a knee injury, though Gannon said the team does expect him to return from IR.`\
+`Benson will miss at least four weeks with a knee injury, though Gannon said the team expects him to return from IR.`\
 https://nytimes.com/athletic/6680308/2025/10/01/cardinals-trey-benson-ir-knee-injury/
 
 **How Washington Became a Testing Ground for ICE**\
 `A series of arrests captured on video reveal how immigration officers have worked with other law enforcement agencies to identify migrants during stops for minor infractions.`\
 https://nytimes.com/2025/10/01/us/politics/washington-dc-ice.html
 
-**Even the Statue of Liberty’s Torch Could Go Dark During Shutdown**\
+**Even the Statue of Liberty’s Torch Could Go Dark During the Shutdown**\
 `New York Democrats, led by Gov. Kathy Hochul, warned of the damage the government shutdown could cause across the state and blamed Republicans.`\
 https://nytimes.com/2025/10/01/nyregion/government-shutdown-affects-new-york.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/10/01/us/trump-government-shutdown-federal-
 **Jayden Daniels medically cleared, will practice in full for Commanders**\
 `Barring a setback this week, the move should put Daniels in position to start on Sunday against the L.A. Chargers.`\
 https://nytimes.com/athletic/6680256/2025/10/01/jayden-daniels-cleared-knee-practice/
-
-**Why Nicolás Maduro Faces Criminal Charges in the U.S.**\
-`Secretary of State Marco Rubio has called Mr. Maduro, the Venezuelan leader who faces narco-terrorism charges, a “fugitive from American justice.”`\
-https://nytimes.com/2025/10/01/nyregion/nicolas-maduro-venezuela-charges-explainer.html
 
