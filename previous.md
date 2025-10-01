@@ -1,3 +1,7 @@
+**Pope Leo Calls for Unity on Climate at a Divided Moment**\
+`The pope invoked his predecessor, Francis, for whom the environment was a core issue, but stopped short of criticizing world leaders dismissive of climate change.`\
+https://nytimes.com/2025/10/01/world/europe/pope-leo-climate-speech-trump.html
+
 **Remco Evenepoel wins second European time-trial title**\
 `Switzerland's Marlen Reusser held off Anna van der Breggen and Demi Vollering to win in the women's race.`\
 https://nytimes.com/athletic/6680059/2025/10/01/remco-evenepoel-european-championship-time-trial/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6677864/2025/10/01/nfl-week-5-survivor-pool-picks-s
 **How AI Is Redefining Personalized Experiences  –  From Coffee to Healthcare**\
 `AI is ushering in an era of hyper-personalization, anticipating needs, guiding choices and empowering smarter, healthier, more connected lives.`\
 https://nytimes.com/paidpost/nasdaq/nasdaq-30110410/how-ai-is-redefining-personalized-experiences-from-coffee-to-healthcare.html
-
-**Reality TV’s Bad Boyfriend Is Angry Again. This Time, He’s Yelling at Gavin Newsom.**\
-`After losing his house in the Palisades fire, Spencer Pratt has gone from the archetype of celebrity emptiness to community activist — and become a magnet for Republican politicians.`\
-https://nytimes.com/2025/10/01/business/economy/spencer-pratt-palisades-fire-gavin-newsom.html
 
