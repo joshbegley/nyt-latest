@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6681172/2025/10/01/cubs-padres-score-results-game-2
 `The partial collapse of the public housing building in the Bronx followed an explosion in a ventilation shaft connected to the boiler room.`\
 https://nytimes.com/video/nyregion/100000010434055/bronx-building-collapse.html
 
-**Trump’s Chicago ICE Crackdown Intensifies With Drones, Helicopters and Trucks**\
+**Drones, Helicopters, Hundreds of Arrests: Trump’s Immigration Crackdown in Chicago So Far**\
 `The administration announced a federal operation in the Chicago area more than three weeks ago. Agents have appeared along downtown streets, and National Guard troops are expected.`\
 https://nytimes.com/2025/10/01/us/trump-chicago-immigration-national-guard.html
 

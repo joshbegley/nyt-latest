@@ -1,3 +1,7 @@
+**Republicans and Democrats in Deadlock Over Federal Funding**\
+`Dueling proposals to end the government shutdown failed in the Senate on Wednesday. There was no end in sight to the deadlock as neither party showed signs of bowing to the other’s government spending demands.`\
+https://nytimes.com/video/us/politics/100000010433229/republicans-democrats-deadlock-government-shutdown.html
+
 **What Happens When a Fashion Show Goes Wrong**\
 `Seven designers on their biggest mishaps.`\
 https://nytimes.com/2025/10/01/t-magazine/fashion-show-mishaps.html
