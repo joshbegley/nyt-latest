@@ -1,3 +1,15 @@
+**Trump and Hegseth: The Quantico Campaign**\
+`Readers sharply criticize the speeches by the president and the secretary of defense. Also: A cynical order from the Supreme Court.`\
+https://nytimes.com/2025/10/01/opinion/trump-hegseth-military.html
+
+**Pujols believed to be Angels owner's top choice for next manager: Sources**\
+`Pujols, 45, spent a decade of his legendary 22-year career with the Angels, and is currently on their payroll.`\
+https://nytimes.com/athletic/6680234/2025/10/01/albert-pujols-angels-manager/
+
+**Congress Remains Deadlocked as Shutdown Enters First Day**\
+`Dueling proposals to extend government funding both failed for the third time in two weeks, as neither party could muster the bipartisan coalition needed to move forward.`\
+https://nytimes.com/2025/10/01/us/politics/congress-shutdown-deadlock.html
+
 **NFL Week 5 confidence picks: Here's why we're fading Chiefs and Bills ATS**\
 `KC Joyner gives his NFL confidence picks, both straight up and against the spread, for every Week 5 game.`\
 https://nytimes.com/athletic/6679161/2025/10/01/nfl-week-5-confidence-picks-chiefs-bills/
@@ -22,19 +34,7 @@ https://nytimes.com/video/world/asia/100000010432566/internet-returns-to-afghani
 `Georg Friedrich Haas has written a piece of almost ridiculous scale and complexity. The effect is awe-inspiring.`\
 https://nytimes.com/2025/10/01/arts/music/11000-strings-park-avenue-armory.html
 
-**Republicans Demand Information From Firms That Help Set College Tuition**\
+**Republicans Demand Information From Firms That Help Set College Prices**\
 `In letters to consultants and the College Board, House and Senate Judiciary leaders invoked antitrust law and asked how student data feeds pricing algorithms.`\
 https://nytimes.com/2025/10/01/business/republicans-college-tuition-consultants.html
-
-**Pope Leo Calls for Unity on Climate at a Divided Moment**\
-`The pope invoked his predecessor, Francis, for whom the environment was a core issue, but stopped short of criticizing world leaders dismissive of climate change.`\
-https://nytimes.com/2025/10/01/world/europe/pope-leo-climate-speech-trump.html
-
-**Remco Evenepoel wins second European time-trial title**\
-`Switzerland's Marlen Reusser held off Anna van der Breggen and Demi Vollering to win in the women's race.`\
-https://nytimes.com/athletic/6680059/2025/10/01/remco-evenepoel-european-championship-time-trial/
-
-**Submit a question for James Boyd's Indianapolis Colts mailbag**\
-`Despite a tough loss last weekend, the Colts are still sitting atop the AFC South standings with a 3-1 record. `\
-https://nytimes.com/athletic/6679711/2025/10/01/colts-mailbag-james-boyd/
 
