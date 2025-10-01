@@ -1,3 +1,7 @@
+**Full Federal Appeals Court to Hear Alien Enemies Act Case**\
+`The decision vacated a finding by a panel of the court’s judges regarding President Trump’s use of the Alien Enemies Act to deport immigrants, but did not clear the way for such expulsions to resume.`\
+https://nytimes.com/2025/09/30/us/politics/appeals-court-alien-enemies-act.html
+
 **Judge Disqualifies Nevada’s Acting U.S. Attorney From Handling Cases**\
 `A federal judge said Sigal Chattah was not “validly serving as acting U.S. attorney.” The Trump administration had appointed her to the post in a way that circumvented federal procedures.`\
 https://nytimes.com/2025/09/30/us/nevada-acting-us-attorney-chattah-disqualified.html
