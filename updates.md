@@ -1,3 +1,15 @@
+**Browns bench Joe Flacco, name rookie Dillon Gabriel starting QB**\
+`At 1-3, Cleveland is going with Gabriel over the 40-year-old Joe Flacco, who threw two touchdowns and six interceptions over four starts. `\
+https://nytimes.com/athletic/6674480/2025/10/01/dillon-gabriel-browns-starting-quarterback/
+
+**UEFA delays vote on Israel suspension, FIFA vice-president says**\
+`Victor Montagliani said Israel’s immediate future was also not on the agenda for Thursday’s FIFA Council meeting.`\
+https://nytimes.com/athletic/6679334/2025/10/01/uefa-israel-football-vote-fifa/
+
+**‘Rampant’ Book Bans Are Being Taken for Granted, Free Speech Group Warns**\
+`A new report from PEN America tracks restrictions on school books across 45 states.`\
+https://nytimes.com/2025/10/01/books/book-bans-pen-america.html
+
 **Stock Markets Slip and Gold Rises as Shutdown Takes Effect**\
 `Investors have typically been unfazed by government closures, but the longer a shutdown runs, the greater the chance of longer-lasting effects.`\
 https://nytimes.com/2025/10/01/us/politics/stocks-gold-government-shutdown.html
