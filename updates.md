@@ -1,3 +1,15 @@
+**Moscow Indicates Retaliation if Europe Uses Russian Assets for Ukraine**\
+`Amid a plan to lend $165 billion to Ukraine using Russian state assets, European officials are mindful of the possibility of Russian blowback as they gather Wednesday to discuss the idea.`\
+https://nytimes.com/2025/10/01/world/europe/russia-frozen-assets-ukraine-loan.html
+
+**Fashion is Teetering on a Relevancy Brink**\
+`As Paris Fashion Week begins, nostalgia sometimes comes at the expense of impact.`\
+https://nytimes.com/2025/10/01/style/saint-laurent-louis-vuitton-spring-2026-paris.html
+
+**How Yankees' Aaron Boone defended questionable decisions in Game 1 loss**\
+`Why pull Max Fried with one out in the seventh inning for Luke Weaver? And why sit Ben Rice and Jazz Chisholm Jr.? Boone defended the moves.`\
+https://nytimes.com/athletic/6678724/2025/10/01/aaron-boone-yankees-wild-card-game-1-decisions/
+
 **A Family’s Struggle to Build Shelter After Fleeing Gaza City**\
 `Bassem al-Qedra and his family had trouble finding adequate shelter and food after heading south, having fled Israel’s offensive in northern Gaza City. The Israeli military had said it would provide tents, food and medical care to those evacuating to the south.`\
 https://nytimes.com/video/world/middleeast/100000010425584/gaza-city-operation-displacement-shelter.html
