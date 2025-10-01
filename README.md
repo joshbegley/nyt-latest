@@ -1,3 +1,11 @@
+**Despair has been replaced with delight as Tarik Skubal, Tigers take series lead**\
+`“It doesn’t really matter how we got here,” Skubal said after striking out 14 in a 2-1 win. It’s too bad more people didn’t get to see it.`\
+https://nytimes.com/athletic/6678053/2025/09/30/tigers-guardians-tarik-skubal-al-wild-card/
+
+**How to watch Red Sox at Yankees: Game 1 Time, TV, streaming**\
+`Find out how to watch the Boston Red Sox play the New York Yankees, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6678269/2025/09/30/red-sox-vs-yankees-stream-how-to-watch-oct-1/
+
 **Dulcy Caylor clinches first spot on U.S. gymnastics World Championship team**\
 `Caylor scored a career-high, beating out gymnasts with much more world experience on their resumes.`\
 https://nytimes.com/athletic/6677647/2025/09/30/dulcy-caylor-usa-gymnastics-world-championship-team/
@@ -10,7 +18,7 @@ https://nytimes.com/2025/09/30/us/politics/trump-fema-funds-immigration.html
 `A federal appeals court heard arguments over whether noncitizens subject to deportation have the right to challenge their detentions using one of the oldest legal precepts.`\
 https://nytimes.com/2025/09/30/nyregion/habeas-corpus-deportation-appeal.html
 
-**Chaim Bloom puts Cardinals' focus on long-term: 'We can't take shortcuts and we won't'**\
+**Chaim Bloom puts Cardinals' focus on long term: 'We can't take shortcuts, and we won't'**\
 `Bloom laid out his thoughts on the Sonny Gray trade outlook, as well as what's next for Jordan Walker and Nolan Gorman.`\
 https://nytimes.com/athletic/6677488/2025/09/30/cardinals-mlb-chaim-bloom-plan/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/09/30/us/politics/military-leaders-quit-callout.html
 **With all eyes on him, a calm, competitive Tarik Skubal powers the Tigers to Game 1 win**\
 `Tarik Skubal became the first pitcher since Gerrit Cole in 2019 to strike out 14 or more batters in a postseason game.`\
 https://nytimes.com/athletic/6677969/2025/09/30/tigers-tarik-skubal-game-1-win-calm-competitive/
-
-**Trump Administration Moves to Relax Rules on Climate Super Pollutants**\
-`The E.P.A. plan would allow grocery stores, air-conditioning manufacturers and others to phase out hydrofluorocarbons in cooling equipment more slowly.`\
-https://nytimes.com/2025/09/30/climate/trump-hydrofluorocarbons-hfcs.html
-
-**Trump Cuts to Counterterrorism Funds for New York Reach $187 Million**\
-`Gov. Kathy Hochul of New York asked that the funding be restored, accusing the Trump administration of “walking away from the fight against terrorism.”`\
-https://nytimes.com/2025/09/30/nyregion/terrorism-funds-hochul-noem.html
 
