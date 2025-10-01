@@ -2,7 +2,7 @@
 `A 6.9-magnitude earthquake shook the central part of the Philippines, forcing people to huddle for stability.`\
 https://nytimes.com/video/world/asia/100000010431919/philippines-earthquake-cebu.html
 
-**Judge denies Mountain West's motion to dismiss conference realignment lawsuit from Pac-12**\
+**Judge denies Mountain West's motion to dismiss Pac-12's conference realignment lawsuit**\
 `The lawsuit stems from the poaching fees surrounding the Pac-12 adding five Mountain West schools for next season. `\
 https://nytimes.com/athletic/6678583/2025/09/30/mountain-west-pac-12-realignment-lawsuit/
 
@@ -30,7 +30,7 @@ https://nytimes.com/2025/09/30/technology/uber-sexual-assualt-bellwether-lawsuit
 `After heavy shadows loomed and a few opportunities were squandered, the Padres now face an uphill battle in Game 2 against the Cubs. `\
 https://nytimes.com/athletic/6678326/2025/09/30/padres-wild-card-loss-game-1/
 
-**Shohei Ohtani kicks off Dodgers' postseason with homer**\
+**Shohei Ohtani opens Dodgers' postseason with epic power display**\
 `In his first at-bat of this postseason, Ohtani launched a home run into the right-field stands in Game 1 of the Wild Card Series.`\
 https://nytimes.com/athletic/6678459/2025/09/30/ohtani-dodgers-reds-leadoff-homer/
 
