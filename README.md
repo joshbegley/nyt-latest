@@ -1,5 +1,9 @@
+**Quote of the Day: Can College Students Mingle For an Hour Without Phones?**\
+`Quotation of the Day for Wednesday, October 1, 2025.`\
+https://nytimes.com/2025/09/30/pageoneplus/quote-of-the-day-can-college-students-mingle-for-an-hour-without-phones.html
+
 **Yankees' Jazz Chisholm Jr. displeased with being out of Game 1 starting lineup**\
-`Ever loquacious, Chisholm did not need to say many words to get his point across: Being on the bench appeared to not sit well with him.`\
+`Ever loquacious, Chisholm did not need to say many words to get his point across: Being on the bench appeared not to sit well with him.`\
 https://nytimes.com/athletic/6678568/2025/09/30/jazz-chisholm-yankees-game-1-wild-card-lineup/
 
 **Kerr 'very comfortable' as he enters final year of his contract**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/09/30/crosswords/daily-puzzle-2025-10-01.html
 **Uber Not Responsible for Sex Assault, Jury Finds, as More Cases Follow**\
 `The company is facing similar lawsuits in federal and state courts from people who claim their drivers sexually assaulted or harassed them.`\
 https://nytimes.com/2025/09/30/technology/uber-sexual-assualt-bellwether-lawsuit.html
-
-**Padres' season on the brink after missed chances and a familiar decision to bunt in Game 1 loss**\
-`After heavy shadows loomed and a few opportunities were squandered, the Padres now face an uphill battle in Game 2 against the Cubs. `\
-https://nytimes.com/athletic/6678326/2025/09/30/padres-wild-card-loss-game-1/
 
