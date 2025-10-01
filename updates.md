@@ -1,3 +1,15 @@
+**What Happens When a Fashion Show Goes Wrong**\
+`Seven designers on their biggest mishaps.`\
+https://nytimes.com/2025/10/01/t-magazine/fashion-show-mishaps.html
+
+**The Be-Careful-What-You-Wish-For Shutdown**\
+`Unlike in shutdowns past, President Trump is the wild card.`\
+https://nytimes.com/2025/10/01/us/politics/politics-shutdown-democrats-trump.html
+
+**Jane Goodall: A Life in Pictures**\
+`The primatologist gained scientific acclaim for her work with chimpanzees and then later used her fame to champion conservation.`\
+https://nytimes.com/2025/10/01/science/jane-goodall-a-life-in-pictures.html
+
 **Republicans and Democrats in Deadlock Over Federal Funding**\
 `On Wednesday, dueling proposals to end the government shutdown failed in the Senate for the third time in two weeks. Most of the House’s Democrats also blocked the House-passed G.O.P. stopgap spending bill.`\
 https://nytimes.com/video/us/politics/100000010433229/republicans-democrats-deadlock-government-shutdown.html
