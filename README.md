@@ -1,3 +1,15 @@
+**How Much Smaller is the Federal Work Force? Shutdown Plans Offer a Clue.**\
+`The number of federal employees has been trimmed by thousands since President Trump took office, according to contingency plans drawn up by federal agencies.`\
+https://nytimes.com/interactive/2025/10/01/us/trump-government-shutdown-federal-cuts.html
+
+**Jayden Daniels medically cleared, will practice in full for Commanders**\
+`The move should put Daniels in position to start on Sunday against the L.A. Chargers.`\
+https://nytimes.com/athletic/6680256/2025/10/01/jayden-daniels-cleared-knee-practice/
+
+**Why Nicolás Maduro Faces Criminal Charges in the U.S.**\
+`Secretary of State Marco Rubio has called Mr. Maduro, the Venezuelan leader who faces narco-terrorism charges, a “fugitive from American justice.”`\
+https://nytimes.com/2025/10/01/nyregion/nicolas-maduro-venezuela-charges-explainer.html
+
 **Trump and Hegseth: The Quantico Campaign**\
 `Readers sharply criticize the speeches by the president and the secretary of defense. Also: A cynical order from the Supreme Court.`\
 https://nytimes.com/2025/10/01/opinion/trump-hegseth-military.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6680162/2025/10/01/colorado-rockies-mlb-monfort-sch
 **A surging pro sports league suddenly finds itself in crisis: MoneyCall**\
 `More in this week's sports business cheat sheet: MLB surging, Bad Bunny, Senator Paul Finebaum, Chad Powers, Jurgen Klopp and Steve Cohen.`\
 https://nytimes.com/athletic/6680065/2025/10/01/napheesa-collier-wnba-engelbert-moneycall/
-
-**Internet Returns to Afghanistan**\
-`Internet services were restored in Afghanistan on Wednesday after a two-day nationwide blackout that paralyzed the economy and grounded planes. The Taliban government gave no reason for the outage, or the resumption of services.`\
-https://nytimes.com/video/world/asia/100000010432566/internet-returns-to-afghanistan.html
-
-**50 Pianos Rumble With the Sound of ‘11,000 Strings’**\
-`Georg Friedrich Haas has written a piece of almost ridiculous scale and complexity. The effect is awe-inspiring.`\
-https://nytimes.com/2025/10/01/arts/music/11000-strings-park-avenue-armory.html
-
-**Republicans Demand Information From Firms That Help Set College Prices**\
-`In letters to consultants and the College Board, House and Senate Judiciary leaders invoked antitrust law and asked how student data feeds pricing algorithms.`\
-https://nytimes.com/2025/10/01/business/republicans-college-tuition-consultants.html
 
