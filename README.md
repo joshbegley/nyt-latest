@@ -1,3 +1,11 @@
+**More than ever, Ravens need coach John Harbaugh to lead them out of this mess**\
+`While many of his Baltimore teams have righted the ship in the past, this season may represent one of Harbaugh’s biggest challenges yet.`\
+https://nytimes.com/athletic/6677845/2025/10/01/john-harbaugh-ravens-struggles-injuries/
+
+**Yankees had better not dare lose to the Red Sox again**\
+`Manager Aaron Boone paid dearly for not staying with Max Fried in the seventh and inserting Luke Weaver. Now, the Yanks must win (or else).`\
+https://nytimes.com/athletic/6678756/2025/10/01/yankees-red-sox-game-1-wild-card/
+
 **Tony Blair, Tapped by Trump for Gaza Plan, Brings Peace Expertise and Baggage**\
 `After helping negotiate peace in Northern Ireland, the former prime minister’s reputation was tarnished by his role in the U.S.-led invasion of Iraq. Is he stepping into another diplomatic quagmire?`\
 https://nytimes.com/2025/10/01/world/middleeast/tony-blair-gaza-peace-plan.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6678819/2025/10/01/wnba-finals-aces-fever-the-pulse
 **TAFC: What's eating Liverpool? Plus: The cost of Manchester United sacking managers**\
 `Today in TAFC: What is going wrong at Liverpool after defeat in the Champions League? Plus: The cost of Manchester United sacking managers`\
 https://nytimes.com/athletic/6679082/2025/10/01/liverpool-champions-league-defeat-galatasaray/
-
-**Tottenham confident on agreeing new Bentancur contract**\
-`The Uruguay international's existing deal had been due to expire in the summer of 2026.`\
-https://nytimes.com/athletic/6679116/2025/10/01/tottenham-confident-on-agreeing-new-rodrigo-bentancur-contract/
-
-**Chiefs' outlook after 4 games: Breakout player, best development and updated odds**\
-`The Kansas City Chiefs' playoff and Super Bowl chances have shifted over the first four weeks.`\
-https://nytimes.com/athletic/6677295/2025/10/01/chiefs-after-4-games-patrick-mahomes-tyquan-thornton/
 

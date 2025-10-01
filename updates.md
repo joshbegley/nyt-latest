@@ -1,3 +1,11 @@
+**Tony Blair, Tapped by Trump for Gaza Plan, Brings Peace Expertise and Baggage**\
+`After helping negotiate peace in Northern Ireland, the former prime minister’s reputation was tarnished by his role in the U.S.-led invasion of Iraq. Is he stepping into another diplomatic quagmire?`\
+https://nytimes.com/2025/10/01/world/middleeast/tony-blair-gaza-peace-plan.html
+
+**A closer look at Jihaad Campbell, Quinyon Mitchell, Kelee Ringo, and their Week 4 performances**\
+`Campbell, a rookie, had his most impactful game so far.`\
+https://nytimes.com/athletic/6674297/2025/10/01/eagles-defense-jihaad-campbell-quinyon-mitchell-kelee-ringo/
+
 **As Cubs return to the playoffs, David Ross wants another shot as a big-league manager**\
 `Two years after the Cubs fired him to hire Craig Counsell, Ross "badly" wants to manage again. "It’s an itch that hasn’t gone away."`\
 https://nytimes.com/athletic/6678283/2025/10/01/david-ross-cubs-mlb-manager/

@@ -1,3 +1,11 @@
+**Tony Blair, Tapped by Trump for Gaza Plan, Brings Peace Expertise and Baggage**\
+`After helping negotiate peace in Northern Ireland, the former prime minister’s reputation was tarnished by his role in the U.S.-led invasion of Iraq. Is he stepping into another diplomatic quagmire?`\
+https://nytimes.com/2025/10/01/world/middleeast/tony-blair-gaza-peace-plan.html
+
+**A closer look at Jihaad Campbell, Quinyon Mitchell, Kelee Ringo, and their Week 4 performances**\
+`Campbell, a rookie, had his most impactful game so far.`\
+https://nytimes.com/athletic/6674297/2025/10/01/eagles-defense-jihaad-campbell-quinyon-mitchell-kelee-ringo/
+
 **As Cubs return to the playoffs, David Ross wants another shot as a big-league manager**\
 `Two years after the Cubs fired him to hire Craig Counsell, Ross "badly" wants to manage again. "It’s an itch that hasn’t gone away."`\
 https://nytimes.com/athletic/6678283/2025/10/01/david-ross-cubs-mlb-manager/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6679116/2025/10/01/tottenham-confident-on-agreeing-
 **Chiefs' outlook after 4 games: Breakout player, best development and updated odds**\
 `The Kansas City Chiefs' playoff and Super Bowl chances have shifted over the first four weeks.`\
 https://nytimes.com/athletic/6677295/2025/10/01/chiefs-after-4-games-patrick-mahomes-tyquan-thornton/
-
-**Weird & Wild: Yanks-Red Sox loads up drama, Skubal strikes again, Ohtani's 829 ft. of homers**\
-`I don’t know how you spent your day Tuesday. But I know how I spent mine … by watching postseason baseball for 11 hours and eight minutes. `\
-https://nytimes.com/athletic/6679087/2025/10/01/mlb-wild-card-game-1-yankees-redsox-ohtani-skubal/
-
-**Vikings’ myriad of injuries gives them tiny margin for error vs. Browns in London**\
-`Set to face another talented defense, the Vikings would benefit from getting out to an early lead and avoiding third-and-long situations.`\
-https://nytimes.com/athletic/6676720/2025/10/01/vikings-injuries-kevin-oconnell-browns-london/
 
