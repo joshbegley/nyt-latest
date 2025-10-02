@@ -1,3 +1,11 @@
+**Trump Administration Asks Colleges to Sign ‘Compact’ to Get Funding Preference**\
+`Demands sent to nine top schools included pledging not to use race or sex in hiring or admissions and to freeze tuition for five years.`\
+https://nytimes.com/2025/10/02/us/politics/trump-college-funding.html
+
+**Two Planes Collide on LaGuardia Airport Taxiway**\
+`An inbound flight was taxiing to the gate when it was struck by an outbound plane, the authorities said. One passenger was injured.`\
+https://nytimes.com/2025/10/02/nyregion/delta-plane-collision-laguardia.html
+
 **Leeds are happy without a specialist set-piece coach. But can they improve from corners?**\
 `Leeds's Joe Rodon and Pascal Struijk get a lot of opportunities from corners. Are they making the most of them?`\
 https://nytimes.com/athletic/6679829/2025/10/02/leeds-set-piece-corners-analysis/
