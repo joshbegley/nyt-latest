@@ -1,3 +1,35 @@
+**For Britain’s Jews, a New and Deadly Sign of Rising Antisemitism**\
+`In the hours after an attack, a blanket of fear and grief fell over synagogues and Jewish community centers across the country.`\
+https://nytimes.com/2025/10/02/world/europe/britain-antisemitism-manchester.html
+
+**Tigers-Guardians Game 3 takeaways: Explosive inning sends Detroit to ALDS**\
+`The Tigers will take on the Seattle Mariners in Game 1 of the AL Division Series on Saturday.`\
+https://nytimes.com/athletic/6684259/2025/10/02/tigers-guardians-score-results-game-3-takeaways-mlb/
+
+**Partisan Language Inserted Into Education Dept. Workers’ Automated Emails**\
+`The out-of-office responses from the accounts of employees on furlough cast blame for the shutdown on Democrats.`\
+https://nytimes.com/2025/10/02/us/politics/education-dept-shutdown-emails.html
+
+**What ‘One Battle After Another’ Achieves**\
+`Paul Thomas Anderson uses Leonardo DiCaprio as a bait and switch that might add up to the director’s best movie yet.`\
+https://nytimes.com/video/podcasts/100000010428564/what-one-battle-after-another-achieves.html
+
+**U.K. Police Identify Attacker in Deadly Synagogue Stabbing**\
+`A man attacked a synagogue in Manchester, England, ramming his car into people and stabbing others with a knife. The police fatally shot the assailant who was identified as a 35-year-old British citizen of Syrian descent.`\
+https://nytimes.com/video/world/europe/100000010436083/terrorist-attack-uk-synagogue-manchester.html
+
+**Lakers trying to run their way into 'championship shape'**\
+`Redick wants the Lakers to show that they’ve taken the commitment to “championship shape” seriously.`\
+https://nytimes.com/athletic/6684537/2025/10/02/lakers-jj-redick-training-camp-championship/
+
+**Sean Combs’s Letter to the Judge**\
+`The full text of Sean Combs’s letter to the judge,`\
+https://nytimes.com/interactive/2025/10/02/arts/music/combs-letter.html
+
+**Quilts That Play with Color and Pattern**\
+`Whether striped, checked or neither, these textiles are sure to enhance any room.`\
+https://nytimes.com/2025/10/02/t-magazine/best-quilts-colorful-pattern.html
+
 **Commanders rule out WRs Terry McLaurin, Noah Brown vs. Chargers**\
 `McLaurin has already missed two games with a quad injury, and Brown's missed three while dealing with groin and knee injuries.`\
 https://nytimes.com/athletic/6684581/2025/10/02/terry-mclaurin-noah-brown-injury-status-commanders-chargers/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6684581/2025/10/02/terry-mclaurin-noah-brown-injury
 **Sean Combs Asks Judge for Mercy: ‘I Lost My Way’**\
 `The music mogul submitted a letter to the court ahead of his sentencing on Friday for his conviction on two prostitution-related counts.`\
 https://nytimes.com/2025/10/02/arts/music/sean-combs-diddy-sentencing-letter-judge.html
-
-**Trump Decided the U.S. Is in a War With Drug Cartels**\
-`Also, the president promised cuts to “Democrat agencies.” Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2025/10/02/briefing/trump-drug-cartels-taylor-swift-album.html
-
-**American Soldiers in American Cities**\
-`Our Pentagon reporter explains how President Trump has tapped into a fear that resonates in many places around the world.`\
-https://nytimes.com/2025/10/02/world/american-military-trump-manchester-synagogue-taylor-swift.html
-
-**Breaking down the moment Lille’s goalkeeper saved the same penalty three times**\
-`European nights in Rome have delivered plenty of drama, but tonight produced something so wildly improbable it might just top them all`\
-https://nytimes.com/athletic/6684453/2025/10/02/roma-lille-penalty-retaken-analysis/
-
-**‘Bummed’ Visitors Are Turned Away From Closed Presidential Library**\
-`Several would-be visitors were turned away from the museum honoring former President Jimmy Carter in Atlanta, one of many presidential libraries affected by the shutdown.`\
-https://nytimes.com/2025/10/02/us/politics/jimmy-carter-presidential-library-shutdown.html
-
-**Tesla Is Sued by Family Who Says Faulty Doors Led to Daughter’s Death**\
-`A college student was trapped in a burning Cybertruck because electronic doors made it difficult for her to get out or be rescued, a lawsuit claims.`\
-https://nytimes.com/2025/10/02/business/tesla-cybertruck-doors-lawsuit-california.html
-
-**Caitlin Clark, Sophie Cunningham back Napheesa Collier's critique of WNBA**\
-`Clark also said she is recovering from her injuries: "I’ve been working really hard to get back to full health.”`\
-https://nytimes.com/athletic/6684275/2025/10/02/caitlin-clark-sophie-cunningham-fever-wnba-commissioner/
-
-**Politics Threaten a Crucial N.Y. Area Tunnel Project. Again.**\
-`Two of the largest infrastructure initiatives in the United States were still moving forward this week despite the battles over a government shutdown surrounding them.`\
-https://nytimes.com/2025/10/02/nyregion/trump-infrastructure-hudson-river-tunnel.html
-
-**Ohgren, Yurov and Jiricek get one last shot to impress as Wild roster starts to get 'locked'**\
-`There’s only one preseason game left for the Wild, Friday in Chicago, and it’ll be an important one for roster hopefuls.`\
-https://nytimes.com/athletic/6684361/2025/10/02/wild-roster-ohgren-yurov-jiricek/
 
