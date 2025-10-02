@@ -1,3 +1,15 @@
+**The New York Times in Print for Thursday, Oct. 2, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/02/todays-new-york-times
+
+**My City Is the Heart of Europe, and It’s Not Going Well**\
+`Brussels is nearing the end of its experiment in urban autonomy.`\
+https://nytimes.com/2025/10/02/opinion/brussels-belgium-european-union.html
+
+**This Is How You Defeat an Autocrat**\
+`Authoritarians have lost elections before, and they will again.`\
+https://nytimes.com/2025/10/02/opinion/poland-election-autocrat-russia-hungary.html
+
 **Trump Administration Asks Colleges to Sign ‘Compact’ to Get Funding Preference**\
 `Demands sent to nine top schools included pledging to freeze tuition for five years and to commit to strict definitions of gender.`\
 https://nytimes.com/2025/10/02/us/politics/trump-college-funding.html

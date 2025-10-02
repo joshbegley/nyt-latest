@@ -1,3 +1,15 @@
+**The New York Times in Print for Thursday, Oct. 2, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/02/todays-new-york-times
+
+**My City Is the Heart of Europe, and It’s Not Going Well**\
+`Brussels is nearing the end of its experiment in urban autonomy.`\
+https://nytimes.com/2025/10/02/opinion/brussels-belgium-european-union.html
+
+**This Is How You Defeat an Autocrat**\
+`Authoritarians have lost elections before, and they will again.`\
+https://nytimes.com/2025/10/02/opinion/poland-election-autocrat-russia-hungary.html
+
 **Trump Administration Asks Colleges to Sign ‘Compact’ to Get Funding Preference**\
 `Demands sent to nine top schools included pledging to freeze tuition for five years and to commit to strict definitions of gender.`\
 https://nytimes.com/2025/10/02/us/politics/trump-college-funding.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6680880/2025/10/02/newcastle-woltemade-champions-le
 **The Alternative Premier League Table: No 7 – Attacking performance versus expected goals**\
 `How Manchester United are underperforming, Spurs and Liverpool are overperforming, and why Crystal Palace could be even higher than they are`\
 https://nytimes.com/athletic/6679514/2025/10/02/the-alternative-premier-league-table-expected-goals/
-
-**Reds-Dodgers Game 2 takeaways: Yoshinobu Yamamoto and relentless offense complete sweep**\
-`Yamamoto didn’t allow an earned run over his 6 2/3 innings, lowering his career postseason ERA to 2.84.`\
-https://nytimes.com/athletic/6682041/2025/10/02/dodgers-reds-score-results-game-2-takeaways-mlb-playoffs/
-
-**What was behind Federico Valverde's angry social media post?**\
-`The Uruguayan hit back at critics on Wednesday, and it all stems from a debate over the position he plays for new coach Xabi Alonso`\
-https://nytimes.com/athletic/6680339/2025/10/02/federico-valverde-social-media-controvery-explained/
-
-**Wirtz is struggling. Here's why - and what Liverpool can do to help him**\
-`The German has had a faltering start to life at Anfield after a £116m summer move but there is no need to panic, yet`\
-https://nytimes.com/athletic/6679764/2025/10/02/florian-wirtz-stats-form-liverpool/
 
