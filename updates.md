@@ -1,3 +1,11 @@
+**Mauricio Pochettino drops World Cup hint with USMNT squad as Robinson, McKennie return**\
+`The USMNT coach appears to be getting closer to landing on his first-choice squad for next summer's tournament`\
+https://nytimes.com/athletic/6683281/2025/10/02/pochettino-usmnt-world-cup-robinson-mckennie/
+
+**Premier League chief outlines 'struggle' with FIFA over football calendar: 'There is no more space'**\
+`Masters contrasted the growth in the number of games FIFA and UEFA now stage with a Premier League schedule that has not changed since 1994`\
+https://nytimes.com/athletic/6683334/2025/10/02/premier-league-fixture-calendar-fifa/
+
 **How ‘South Park’ Draws Trump, Satan and People in ICE**\
 `It’s a prickly time for comedy, but “South Park” is going harder than ever. The “Cannonball” host Wesley Morris explains.`\
 https://nytimes.com/video/podcasts/100000010432657/how-south-park-draws-trump-satan-and-people-in-ice.html
