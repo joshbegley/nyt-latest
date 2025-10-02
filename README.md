@@ -1,3 +1,7 @@
+**Des Moines Schools Superintendent Arrested by ICE Faces New Gun Charge**\
+`Ian Roberts, who resigned from the post after his arrest last week, was charged with possessing firearms while in the country without legal authorization.`\
+https://nytimes.com/2025/10/02/us/des-moines-superintendent-ice-gun-charge.html
+
 **6 New Books We Love This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://nytimes.com/2025/10/02/books/review/recommended-new-books.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6684060/2025/10/02/nfl-week-5-projected-scores-mode
 **Until Saturday: Vandy's rise or Goliath's revenge?**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6684091/2025/10/02/college-football-schedule-week-6-until-saturday/
-
-**College football Week 6 best bets: Iowa State on the road plus a Friday night pick**\
-`Austin Mock had a winning record last week and is back with more best bets for Week 6 of college football.`\
-https://nytimes.com/athletic/6683979/2025/10/02/college-football-best-bets-week-6-iowa-state/
 
