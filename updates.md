@@ -1,3 +1,15 @@
+**What to See in Galleries in October**\
+`This week in Newly Reviewed, Will Heinrich covers Zoe Leonard’s armor, explosive paintings from Assume Vivid Astro Focus, Max Schumann’s paper bag art and Ed Bereal’s skeletal demon.`\
+https://nytimes.com/2025/10/02/arts/what-to-see-in-galleries-in-october.html
+
+**It’s Time to Join Brooklyn’s Patty Party**\
+`Great patties are even more abundant than before in the historically Caribbean heart of the city’s most populous borough.`\
+https://nytimes.com/2025/10/02/dining/its-time-to-join-brooklyns-patty-party.html
+
+**As Russian Drones Menace Europe, Putin Says Moscow Has No Plans to Invade**\
+`President Vladimir V. Putin lashed out at “European elites” for “whipping up the hysteria” about the “Russian threat.”`\
+https://nytimes.com/2025/10/02/world/europe/putin-russia-drones.html
+
 **What are your financial goals? We want to hear about them.**\
 `Inching toward a long-term money milestone can be full of highs and lows, and we want to come along for the ride.`\
 https://nytimes.com/2025/10/02/business/financial-goals.html
