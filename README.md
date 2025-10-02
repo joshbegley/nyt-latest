@@ -1,3 +1,15 @@
+**Ann Fagan Ginger, Venerable Defender of Civil Liberties, Dies at 100**\
+`She was among the last of a generation of activists and lawyers who weathered the Red Scare, and then helped train a new cohort in the decades that followed.`\
+https://nytimes.com/2025/10/02/us/ann-fagan-ginger-dead.html
+
+**The U.K. police say they believe they know the attacker’s identity.**\
+`By Lizzie Dearden`\
+https://nytimes.com/live/2025/10/02/world/manchester-synagogue-stabbing-uk/the-uk-police-say-they-believe-they-know-the-attackers-identity
+
+**Security is increased at Jewish sites across the U.K.**\
+`By Lizzie Dearden`\
+https://nytimes.com/live/2025/10/02/world/manchester-synagogue-stabbing-uk/security-is-increased-at-jewish-sites-across-the-uk
+
 **Key fantasy football questions for Week 5: Who takes the lead at RB for Cardinals, Bucs?**\
 `The NFL's vaunted rookie RB class might finally be meeting its great expectations.`\
 https://nytimes.com/athletic/6683328/2025/10/02/key-fantasy-football-questions-for-week-5-whos-the-lead-rb-for-cardinals-bucs/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6683443/2025/10/02/nba-contract-years-kings-raptors
 **Noodle Soup’s On**\
 `Christian Reynoso’s five-star, khao-soi-like creamy butternut squash and coconut noodle soup comes together in just over half an hour.`\
 https://nytimes.com/2025/10/02/dining/noodle-soups-on.html
-
-**Covid Shots Protect Pregnant Women, but Getting Them Now Can Be Hard**\
-`The vaccines are proven to help protect pregnant women and their babies. But regulatory chaos and mixed messaging have made for a confusing landscape.`\
-https://nytimes.com/2025/10/02/well/covid-shots-pregnant-women.html
-
-**The Big Bad Wolf Is Afraid of You**\
-`Researchers found that the predatory canines were far more likely to flee recordings of human voices than they were to run away from other sounds.`\
-https://nytimes.com/2025/10/02/science/wolves-humans-fear-study.html
-
-**Energy Dept. Cancels Hundreds of Clean-Energy Projects, Mostly in Blue States**\
-`The cuts disproportionally affect Democrats as the two parties fight over the shutdown of the federal government.`\
-https://nytimes.com/2025/10/02/climate/doe-clean-energy-programs-shutdown.html
 
