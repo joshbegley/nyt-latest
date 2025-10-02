@@ -1,3 +1,11 @@
+**Barcelona to play second UCL home match at Montjuic**\
+`The Spanish champions have insisted for months that they are close to returning to the Camp Nou but have yet to receive council approval.`\
+https://nytimes.com/athletic/6682945/2025/10/02/barcelona-montjuic-camp-nou-delay/
+
+**Is ‘One Battle After Another’ the Best Movie of the Year?**\
+`Paul Thomas Anderson is a very rare figure in Hollywood — he’s widely considered to be one of the very best directors of his generation, but he has never really had a hit when it comes to making money. “One Battle After Another” might change that.`\
+https://nytimes.com/video/podcasts/100000010434494/is-one-battle-after-another-the-best-movie-of-the-year.html
+
 **What We Know About the Attack on a U.K. Synagogue**\
 `Two people were killed and at least three others were in serious condition after the vehicle ramming and stabbing attack on Yom Kippur.`\
 https://nytimes.com/2025/10/02/world/europe/uk-manchester-synagogue-attack.html
