@@ -1,3 +1,11 @@
+**Caitlin Clark will not play in Unrivaled this winter: Source**\
+`The league has announced all but two of the 48 players for the upcoming season.`\
+https://nytimes.com/athletic/6684777/2025/10/02/caitlin-clark-unrivaled-not-joining/
+
+**What Women Heard in Hegseth’s Remarks About Physical Standards**\
+`The defense secretary raised the issue suggesting women were getting into combat not because they met high standards, but because they were given a pass.`\
+https://nytimes.com/2025/10/02/us/politics/women-military-hegseth-physical-standards.html
+
 **Trionda ... Adidas' new World Cup ball and everything you need to know about it**\
 `The reveal of the official match ball always sparks pre-World Cup anticipation, and this time was no different`\
 https://nytimes.com/athletic/6684748/2025/10/02/trionda-adidas-world-cup-ball/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/02/nyregion/newark-police-federal-oversight.html
 **Postecoglou ‘not surprised’ by Forest fans calling for his sacking after Midtjylland defeat**\
 `Fans booed the team off at half-time and full time, while some supporters appeared to chant "sacked in the morning" during the game.`\
 https://nytimes.com/athletic/6684660/2025/10/02/ange-postecoglou-forest-fans-reaction/
-
-**Trump Name-Checks Project 2025 as He Threatens to Dismantle Agencies**\
-`President Trump, who once insisted he had “nothing to do with Project 2025,” has implemented many of the proposals from the right-wing policy document.`\
-https://nytimes.com/2025/10/02/us/politics/trump-project-2025-vought.html
-
-**Overlooked No More: Bessie Margolin, Lawyer Who Turned Workers’ Hopes Into Law**\
-`Her streak of Supreme Court victories, which began during the New Deal era, benefited millions of workers and continue to shape labor rights today.`\
-https://nytimes.com/2025/10/02/obituaries/bessie-margolin-overlooked.html
 
