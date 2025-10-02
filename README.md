@@ -1,3 +1,19 @@
+**How ‘South Park’ Draws Trump, Satan and People in ICE**\
+`It’s a prickly time for comedy, but “South Park” is going harder than ever. The “Cannonball” host Wesley Morris explains.`\
+https://nytimes.com/video/podcasts/100000010432657/how-south-park-draws-trump-satan-and-people-in-ice.html
+
+**Israel Intercepts Gaza-Bound Activist Boats**\
+`Israel said it had intercepted several boats trying to bring humanitarian aid to Gaza. The boats were part of the Global Sumud Flotilla, a group of activists protesting the war in Gaza.`\
+https://nytimes.com/video/world/middleeast/100000010434645/israel-intercepts-gaza-bound-activist-boats.html
+
+**H-1B Visa Fee Could Have Huge Implications for Start-Ups**\
+`The “Hard Fork” co-hosts Kevin Roose and Casey Newton speak with Jeremy Neufeld, the director of immigration policy at the Institute for Progress, about how changes to the H-1B visa program may affect the tech industry.`\
+https://nytimes.com/video/podcasts/100000010432817/h-1b-visa-fee-could-have-huge-implications-for-start-ups.html
+
+**What Jane Goodall Taught Us About Living a Long Life**\
+`The scientist, who died at 91 on Wednesday, was a model for healthy aging.`\
+https://nytimes.com/2025/10/02/well/jane-goodall-aging-long-life.html
+
 **Here Are the Dueling Plans Behind the Shutdown Impasse**\
 `Republicans are proposing a straight extension of government spending, while Democrats are demanding the addition of over $1 trillion for health programs.`\
 https://nytimes.com/2025/10/02/us/politics/government-shutdown-spending-bill-impasse.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6680370/2025/10/02/mike-conley-timberwolves-trainin
 **A 2017 terror attack in Manchester was one of Britain’s deadliest.**\
 `A suicide bombing at Manchester Arena killed twenty-two people, several of them children, and injured hundreds more.`\
 https://nytimes.com/live/2025/10/02/world/manchester-synagogue-stabbing-uk/a-2017-terror-attack-in-manchester-was-one-of-britains-deadliest
-
-**The Windup: Today’s stacked baseball schedule**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6682638/2025/10/02/mlb-wild-card-game-3-the-windup/
-
-**Fantasy football matchup rankings Week 5 | Strength of schedule**\
-`Jake Ciely's Week 5 fantasy football strength of schedule by position matchup rankings can help with tough start/sit decisions. `\
-https://nytimes.com/athletic/6683213/2025/10/02/fantasy-football-matchup-rankings-week-5-strength-of-schedule/
-
-**Hasan Piker Wants a ‘Post-Liberal’ America**\
-`On “Interesting Times,” the Twitch and YouTube star Hasan Piker tells Ross Douthat how he thinks America’s political system should transform, and why he advocates for more people to get involved in the democratic process.`\
-https://nytimes.com/video/opinion/100000010423872/hasan-piker-wants-a-post-liberal-america.html
-
-**Jake Browning remains Bengals' starting quarterback, but how short is his leash?**\
-`Zac Taylor continues to express faith in Joe Burrow's backup, but two anemic offensive performances raise questions about other options.`\
-https://nytimes.com/athletic/6681539/2025/10/02/jake-browning-bengals-quarterback-lions/
 
