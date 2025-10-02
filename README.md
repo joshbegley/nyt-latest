@@ -1,3 +1,7 @@
+**Government Shutdown Disruptions Begin**\
+`The government shutdown has affected visits to some sites like Everglades National Park and the Liberty Bell and left some infrastructure projects in limbo.`\
+https://nytimes.com/video/us/politics/100000010434397/government-shutdown-disruptions-begin.html
+
 **For Blue Jays stars Vladimir Guerrero Jr. and Bo Bichette, one last chance at October glory together?**\
 `For seven years, Bichette and Guerrero Jr. have been the core of the franchise. Can they finally erase their shared playoff heartbreak?`\
 https://nytimes.com/athletic/6677809/2025/10/02/blue-jays-vladimir-guerrero-jr-bo-bichette-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6681280/2025/10/02/toronto-raptors-pressure-darko-r
 **Eastern Conference storylines to watch, from Mike Brown's impact to Detroit's next step**\
 `With injuries hobbling the Pacers and Celtics, Fred Katz looks at some of the storylines he's watching in the Eastern Conference.`\
 https://nytimes.com/athletic/6656340/2025/10/02/cleveland-cavaliers-core-magic-offense-storylines/
-
-**The High Stakes of the U.N. Climate Talks**\
-`At a Climate Forward Live event, André Corrêa do Lago, the head of the United Nations climate negotiations this year, about the United States’ evolving role in the discussions.`\
-https://nytimes.com/2025/10/02/climate/climate-forward-andre-correa-do-lago.html
 

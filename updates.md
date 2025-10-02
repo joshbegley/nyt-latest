@@ -1,3 +1,15 @@
+**For Blue Jays stars Vladimir Guerrero Jr. and Bo Bichette, one last chance at October glory together?**\
+`For seven years, Bichette and Guerrero Jr. have been the core of the franchise. Can they finally erase their shared playoff heartbreak?`\
+https://nytimes.com/athletic/6677809/2025/10/02/blue-jays-vladimir-guerrero-jr-bo-bichette-playoffs/
+
+**Was Mike Tomlin 'living in his fears' in Dublin? Steelers bye-week mailbag**\
+`Also, more on the future at QB, plus the tight end, wide receiver and outside linebackers rotations after a 3-1 start to the regular season.`\
+https://nytimes.com/athletic/6680030/2025/10/02/steelers-mike-tomlin-fourth-downs/
+
+**The New York Times International Edition in Print for Friday, Oct. 3, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/10/02/todays-new-york-times-international-edition
+
 **A Run on Canned Mackerel and Emergency Radios. The Reason? Drones.**\
 `The Danish public has been unsettled by a wave of mysterious drone incursions, which has underscored the country’s vulnerability.`\
 https://nytimes.com/2025/10/02/world/europe/denmark-drones-prepping.html

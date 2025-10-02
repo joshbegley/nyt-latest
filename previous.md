@@ -1,3 +1,15 @@
+**For Blue Jays stars Vladimir Guerrero Jr. and Bo Bichette, one last chance at October glory together?**\
+`For seven years, Bichette and Guerrero Jr. have been the core of the franchise. Can they finally erase their shared playoff heartbreak?`\
+https://nytimes.com/athletic/6677809/2025/10/02/blue-jays-vladimir-guerrero-jr-bo-bichette-playoffs/
+
+**Was Mike Tomlin 'living in his fears' in Dublin? Steelers bye-week mailbag**\
+`Also, more on the future at QB, plus the tight end, wide receiver and outside linebackers rotations after a 3-1 start to the regular season.`\
+https://nytimes.com/athletic/6680030/2025/10/02/steelers-mike-tomlin-fourth-downs/
+
+**The New York Times International Edition in Print for Friday, Oct. 3, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/10/02/todays-new-york-times-international-edition
+
 **A Run on Canned Mackerel and Emergency Radios. The Reason? Drones.**\
 `The Danish public has been unsettled by a wave of mysterious drone incursions, which has underscored the country’s vulnerability.`\
 https://nytimes.com/2025/10/02/world/europe/denmark-drones-prepping.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6656340/2025/10/02/cleveland-cavaliers-core-magic-o
 **The High Stakes of the U.N. Climate Talks**\
 `At a Climate Forward Live event, André Corrêa do Lago, the head of the United Nations climate negotiations this year, about the United States’ evolving role in the discussions.`\
 https://nytimes.com/2025/10/02/climate/climate-forward-andre-correa-do-lago.html
-
-**At Stake in the Shutdown Fight: Obamacare Prices That Could Rise by Thousands of Dollars**\
-`Here’s where Affordable Care Act premiums could increase the most.`\
-https://nytimes.com/interactive/2025/10/02/upshot/shutdown-obamacare-subsidies.html
-
-**Pearls to Wear Every Day**\
-`Plus: a Surrealist exhibition in New York, floating saunas and more recommendations from T Magazine.`\
-https://nytimes.com/2025/10/02/t-magazine/amane-pearl-jewelry.html
-
-**Incompetence Isn’t an Upgrade Over D.E.I.**\
-`The Trump administration is a mockery of the idea of meritocracy.`\
-https://nytimes.com/2025/10/02/opinion/pete-hegseth-speech-dei.html
 
