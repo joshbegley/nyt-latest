@@ -1,3 +1,11 @@
+**Barcelona to play second UCL home match at Montjuic**\
+`The Spanish champions have insisted for months that they are close to returning to the Camp Nou but have yet to receive council approval.`\
+https://nytimes.com/athletic/6682945/2025/10/02/barcelona-montjuic-camp-nou-delay/
+
+**Is ‘One Battle After Another’ the Best Movie of the Year?**\
+`Paul Thomas Anderson is a very rare figure in Hollywood — he’s widely considered to be one of the very best directors of his generation, but he has never really had a hit when it comes to making money. “One Battle After Another” might change that.`\
+https://nytimes.com/video/podcasts/100000010434494/is-one-battle-after-another-the-best-movie-of-the-year.html
+
 **What We Know About the Attack on a U.K. Synagogue**\
 `Two people were killed and at least three others were in serious condition after the vehicle ramming and stabbing attack on Yom Kippur.`\
 https://nytimes.com/2025/10/02/world/europe/uk-manchester-synagogue-attack.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6681529/2025/10/02/oilers-connor-ingram-trade-goali
 **Buster Posey puts a quick end to a Bruce Bochy-Giants reunion, which is probably for the best**\
 `Posey appears ready to move the Giants into the future rather than focusing on the past, and he isn't alone.`\
 https://nytimes.com/athletic/6680358/2025/10/02/giants-manager-opening-bruce-bochy-buster-posey/
-
-**'Hugely valuable right away': Al Horford is a perfect fit for Warriors**\
-`It took Steve Kerr all of one practice to know it for sure, after watching the 39-year-old evolve in the NBA for almost 20 years.`\
-https://nytimes.com/athletic/6682390/2025/10/02/al-horford-warriors-perfect-fit/
-
-**WNBA Finals streaming primer: Schedule, lineups, odds and legacies for Aces-Mercury**\
-`Here's a brief overview of what to know and what to expect from the WNBA Finals, plus championship and MVP odds.`\
-https://nytimes.com/athletic/6681255/2025/10/02/wnba-finals-aces-mercury-aja-wilson-alyssa-thomas-how-to-watch/
 
