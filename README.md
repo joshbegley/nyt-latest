@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6682520/2025/10/02/padres-vs-cubs-stream-how-to-wat
 https://nytimes.com/athletic/6682518/2025/10/02/red-sox-vs-yankees-stream-how-to-watch-oct-2/
 
 **Seven seconds, seven touches, 70 yards... a slaloming assist that showed De Bruyne has still got it**\
-`The Belgian set up two goals for Rasmus Hojlund against Sporting, the first a particularly beautiful run and pass`\
+`The Belgian set up two goals for Rasmus Hojlund as Napoli beat Sporting CP, the first with a particularly beautiful run and pass...`\
 https://nytimes.com/athletic/6681253/2025/10/02/de-bruyne-assist-napoli-hojlund/
 
 **Word of the Day: extol**\
