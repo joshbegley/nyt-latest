@@ -1,3 +1,7 @@
+**An appreciation of an Arsenal defence that has conceded one open-play goal this season**\
+`Much of the focus has been on the forward line after heavy summer spending but the defence is providing a platform for them to excel`\
+https://nytimes.com/athletic/6681576/2025/10/02/arsenal-defence-olympiacos-arteta/
+
 **The New York Times in Print for Thursday, Oct. 2, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/02/todays-new-york-times
