@@ -1,3 +1,15 @@
+**‘There Will Always Only Be One Jane Goodall’**\
+`Scientists reflect on the life and work of a researcher whose discoveries made them rethink what it means to be human.`\
+https://nytimes.com/2025/10/01/science/jane-goodall-chimpanzees-career.html
+
+**Jane Goodall’s Thoughts for a Reporter: ‘Hope Isn’t Just Wishful Thinking’**\
+`A Times correspondent who interviewed Dr. Goodall recalled their conversations about the state of the planet.`\
+https://nytimes.com/2025/10/01/climate/jane-goodall-interviews.html
+
+**Pochettino joins actor McConaughey to channel emotion of World Cup prep**\
+`The national team coach and the Hollywood actor spoke to CBS ahead of the US Open Cup final`\
+https://nytimes.com/athletic/6681824/2025/10/01/usmnt-pochettino-mcconaughey-austin-world-cup/
+
 **For Workers, Mixed Signals. For the Public, Limited Impact on Shutdown’s First Day.**\
 `Federal agencies gave shifting and mixed guidance to their work forces about who should come to work and who shouldn’t, but the initial effect on services appeared scattered and limited.`\
 https://nytimes.com/2025/10/01/us/politics/for-workers-mixed-signals-for-the-public-limited-impact-on-shutdowns-first-day.html
