@@ -1,3 +1,11 @@
+**Heading to L.A. for the Olympics? If You’re Into These Sports, You’re in the Wrong State.**\
+`Much of the Summer Games in 2028 will take place in Southern California. But two events, softball and canoe slalom, will be held in Oklahoma.`\
+https://nytimes.com/2025/10/02/us/los-angeles-olympics-oklahoma-city.html
+
+**Here’s how the U.K. police determine whether an attack is terrorism.**\
+`The authorities have not yet said whether an attack at a synagogue in Manchester is considered to be an act of terrorism.`\
+https://nytimes.com/live/2025/10/02/world/manchester-synagogue-stabbing-uk/heres-how-the-uk-police-determine-whether-an-attack-is-terrorism
+
 **James out for up to six weeks with ankle injury, Farke confirms**\
 `The injury will likely sideline James until the November international break.`\
 https://nytimes.com/athletic/6683130/2025/10/02/dan-james-leeds-injury-update/
