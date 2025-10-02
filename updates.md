@@ -1,3 +1,11 @@
+**Fantasy football matchup rankings Week 5 | Strength of schedule**\
+`Jake Ciely's Week 5 fantasy football strength of schedule by position matchup rankings can help with tough start/sit decisions. `\
+https://nytimes.com/athletic/6683213/2025/10/02/fantasy-football-matchup-rankings-week-5-strength-of-schedule/
+
+**Hasan Piker Wants a ‘Post-Liberal’ America**\
+`On “Interesting Times,” the Twitch and YouTube star Hasan Piker tells Ross Douthat how he thinks America’s political system should transform, and why he advocates for more people to get involved in the democratic process.`\
+https://nytimes.com/video/opinion/100000010423872/hasan-piker-wants-a-post-liberal-america.html
+
 **Jake Browning remains Bengals' starting quarterback, but how short is his leash?**\
 `Zac Taylor continues to express faith in Joe Burrow's backup, but two anemic offensive performances raise questions about other options.`\
 https://nytimes.com/athletic/6681539/2025/10/02/jake-browning-bengals-quarterback-lions/
