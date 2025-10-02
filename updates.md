@@ -1,3 +1,11 @@
+**Commanders rule out WRs Terry McLaurin, Noah Brown vs. Chargers**\
+`McLaurin has already missed two games with a quad injury, and Brown's missed three while dealing with groin and knee injuries.`\
+https://nytimes.com/athletic/6684581/2025/10/02/terry-mclaurin-noah-brown-injury-status-commanders-chargers/
+
+**‘Bummed’ Visitors Are Turned Away From Closed Presidential Library**\
+`Several would-be visitors were turned away from the museum honoring former President Jimmy Carter in Atlanta, one of many presidential libraries affected by the shutdown.`\
+https://nytimes.com/2025/10/02/us/politics/jimmy-carter-presidential-library-shutdown.html
+
 **Sean Combs Asks Judge for Mercy: ‘I Lost My Way’**\
 `The music mogul submitted a letter to the court ahead of his sentencing on Friday for his conviction on two prostitution-related counts.`\
 https://nytimes.com/2025/10/02/arts/music/sean-combs-diddy-sentencing-letter-judge.html

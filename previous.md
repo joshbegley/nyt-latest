@@ -1,3 +1,7 @@
+**Commanders rule out WRs Terry McLaurin, Noah Brown vs. Chargers**\
+`McLaurin has already missed two games with a quad injury, and Brown's missed three while dealing with groin and knee injuries.`\
+https://nytimes.com/athletic/6684581/2025/10/02/terry-mclaurin-noah-brown-injury-status-commanders-chargers/
+
 **Sean Combs Asks Judge for Mercy: ‘I Lost My Way’**\
 `The music mogul submitted a letter to the court ahead of his sentencing on Friday for his conviction on two prostitution-related counts.`\
 https://nytimes.com/2025/10/02/arts/music/sean-combs-diddy-sentencing-letter-judge.html
@@ -16,7 +20,7 @@ https://nytimes.com/athletic/6684453/2025/10/02/roma-lille-penalty-retaken-analy
 
 **‘Bummed’ Visitors Are Turned Away From Closed Presidential Library**\
 `Several would-be visitors were turned away from the museum honoring former President Jimmy Carter in Atlanta, one of many presidential libraries affected by the shutdown.`\
-https://nytimes.com/2025/10/02/us/politics/bummed-visitors-are-turned-away-from-closed-presidential-library.html
+https://nytimes.com/2025/10/02/us/politics/jimmy-carter-presidential-library-shutdown.html
 
 **Tesla Is Sued by Family Who Says Faulty Doors Led to Daughter’s Death**\
 `A college student was trapped in a burning Cybertruck because electronic doors made it difficult for her to get out or be rescued, a lawsuit claims.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/02/nyregion/trump-infrastructure-hudson-river-tunnel
 **Ohgren, Yurov and Jiricek get one last shot to impress as Wild roster starts to get 'locked'**\
 `There’s only one preseason game left for the Wild, Friday in Chicago, and it’ll be an important one for roster hopefuls.`\
 https://nytimes.com/athletic/6684361/2025/10/02/wild-roster-ohgren-yurov-jiricek/
-
-**‘A Crazy Moment’: Shock and Terror Spreads in Manchester Synagogue’s Community**\
-`Many Orthodox Jews who live in the area reacted with horror to an attack that killed two people and seriously injured three on Yom Kippur, Judaism’s holiest day.`\
-https://nytimes.com/2025/10/02/world/europe/manchester-synagogue-neighborhood.html
 
