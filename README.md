@@ -1,3 +1,11 @@
+**A 2017 terror attack in Manchester was one of Britain’s deadliest.**\
+`A suicide bombing at Manchester Arena killed twenty-two people, several of them children, and injured hundreds more.`\
+https://nytimes.com/live/2025/10/02/world/manchester-synagogue-stabbing-uk/a-2017-terror-attack-in-manchester-was-one-of-britains-deadliest
+
+**The Windup: Today’s stacked baseball schedule**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6682638/2025/10/02/mlb-wild-card-game-3-the-windup/
+
 **Fantasy football matchup rankings Week 5 | Strength of schedule**\
 `Jake Ciely's Week 5 fantasy football strength of schedule by position matchup rankings can help with tough start/sit decisions. `\
 https://nytimes.com/athletic/6683213/2025/10/02/fantasy-football-matchup-rankings-week-5-strength-of-schedule/
@@ -22,19 +30,11 @@ https://nytimes.com/video/world/europe/100000010434814/attack-stabbing-synagogue
 `The president plans to meet with the White House budget chief to slash what he described as “Democratic agencies.”`\
 https://nytimes.com/2025/10/02/business/trump-vought-shutdown-cuts.html
 
-**Tesla’s Car Sales Rise 7% as U.S. E.V. Tax Credit Ends**\
+**Tesla’s Car Sales Rose 7% as U.S. E.V. Tax Credit Was Ending**\
 `The company benefited from a surge in U.S. demand for electric vehicles after Republicans in Congress voted to end a $7,500 incentive at the end of September. But other carmakers benefited more.`\
 https://nytimes.com/2025/10/02/business/tesla-evs-auto-sales.html
 
 **President Trump, Please Extend the A.C.A. Tax Credits**\
 `Insurance through the Affordable Care Act is about to get much more expensive for millions of Americans.`\
 https://nytimes.com/video/opinion/100000010433742/president-trump-please-extend-the-aca-tax-credits.html
-
-**Five things we learned from Canucks' dominant 8-1 preseason win in Calgary**\
-`The Canucks were absolutely flying in their penultimate preseason game on Wednesday night in Calgary.`\
-https://nytimes.com/athletic/6682377/2025/10/02/canucks-flames-preseason-score-highlights/
-
-**Petrit Halilaj Is the Winner of the Nasher Prize for Sculpture**\
-`The Kosovar learned he’d won a top art world honor as he was dealing with a suspected arson before the Kosovo premiere of his opera.`\
-https://nytimes.com/2025/10/02/arts/design/petrit-halilaj-wins-nasher-prize-for-sculpture.html
 
