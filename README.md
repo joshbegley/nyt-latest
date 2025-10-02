@@ -1,3 +1,7 @@
+**Trionda ... Adidas' new World Cup ball and everything you need to know about it**\
+`The reveal of the official match ball always sparks pre-World Cup anticipation, and this time was no different`\
+https://nytimes.com/athletic/6684748/2025/10/02/trionda-adidas-world-cup-ball/
+
 **Judge Rejects Trump’s Argument and Throws Out Suit Against U.N. Agency**\
 `Survivors of the Oct. 7 attack on Israel accused the United Nations Relief and Works Agency of helping fund Hamas. The federal judge in Manhattan found that the agency has immunity.`\
 https://nytimes.com/2025/10/02/nyregion/sdny-unrwa-lawsuit-dismissed.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/02/us/politics/trump-project-2025-vought.html
 **Overlooked No More: Bessie Margolin, Lawyer Who Turned Workers’ Hopes Into Law**\
 `Her streak of Supreme Court victories, which began during the New Deal era, benefited millions of workers and continue to shape labor rights today.`\
 https://nytimes.com/2025/10/02/obituaries/bessie-margolin-overlooked.html
-
-**For Britain’s Jews, a New and Deadly Sign of Rising Antisemitism**\
-`In the hours after an attack, a blanket of fear and grief fell over synagogues and Jewish community centers across the country.`\
-https://nytimes.com/2025/10/02/world/europe/britain-antisemitism-manchester.html
 
