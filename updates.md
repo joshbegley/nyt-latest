@@ -1,3 +1,7 @@
+**Australia Expands Sunscreen Recalls Over False SPF Claims**\
+`Regulators removed more sunscreens from shelves after they found multiple brands using a base formulation that failed to meet testing requirements.`\
+https://nytimes.com/2025/10/02/world/australia/australia-sunscreen-recall.html
+
 **The Lions' secondary challenge: Replacing D.J. Reed and holding their own in coverage**\
 `With Reed out and Terrion Arnold potentially missing Sunday's game, the Lions will turn to Amik Robertson and Rock Ya-Sin.`\
 https://nytimes.com/athletic/6681749/2025/10/02/lions-secondary-injuries-dj-reed-terrion-arnold/
