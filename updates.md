@@ -13,6 +13,11 @@ https://nytimes.com/athletic/6683464/2025/10/02/gareth-viccars-sentence-trial-ef
 `\
 https://nytimes.com/athletic/6683464/2025/10/02/gareth-viccars-sentence-trial-efl/
 
+**Ex-EFL match official sentenced to 13.5 years over 16 child sex offences**\
+`In her sentencing remarks in court today, Judge Caroline English told Viccars his behaviour was “persistent, manipulative and predatory”.
+`\
+https://nytimes.com/athletic/6683464/2025/10/02/gareth-viccars-sentence-trial-efl/
+
 **Champions League post-MD2 projections: Arsenal are now favourites but PSG on the rise**\
 `An analysis of the state of play in Europe's premier club competition following the conclusion of the second round of fixtures`\
 https://nytimes.com/athletic/6683016/2025/10/02/champions-league-projections-arsenal-psg-real-madrid-liverpool/
