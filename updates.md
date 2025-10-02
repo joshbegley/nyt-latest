@@ -1,3 +1,16 @@
+**‘Anemone’ Review: Daniel Day-Lewis Is Too Big for Some Movies**\
+`After announcing his retirement from acting eight years ago, the performer returns in a drama directed by his son Ronan Day-Lewis.`\
+https://nytimes.com/2025/10/02/movies/anemone-review-daniel-day-lewis.html
+
+**Trump ‘Determined’ the U.S. Is Now in a War With Drug Cartels, Congress Is Told**\
+`A notice calls the people the U.S. military recently killed on suspicion of drug smuggling in the Caribbean Sea “unlawful combatants.”`\
+https://nytimes.com/2025/10/02/us/politics/trump-drug-cartels-war.html
+
+**Ex-EFL match official sentenced to 13.5 years over 16 child sex offences**\
+`In her sentencing remarks in court today, Judge Caroline English told Viccars his behaviour was “persistent, manipulative and predatory”.
+`\
+https://nytimes.com/athletic/6683464/2025/10/02/gareth-viccars-sentence-trial-efl/
+
 **Ex-EFL match official sentenced to 13.5 years over 16 child sex offences**\
 `In her sentencing remarks in court today, Judge Caroline English told Viccars his behaviour was “persistent, manipulative and predatory”.
 `\

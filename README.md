@@ -1,3 +1,7 @@
+**'You want milk?': Alex Ovechkin serves up new cereal to commemorate scoring milestone**\
+`Ovi's Great Crunch comes in a "collector's edition" box that is selling on the secondary market`\
+https://nytimes.com/athletic/6679614/2025/10/02/alex-ovechkin-cereal-memorabilia/
+
 **‘Anemone’ Review: Daniel Day-Lewis Is Too Big for Some Movies**\
 `After announcing his retirement from acting eight years ago, the performer returns in a drama directed by his son Ronan Day-Lewis.`\
 https://nytimes.com/2025/10/02/movies/anemone-review-daniel-day-lewis.html
@@ -34,8 +38,4 @@ https://nytimes.com/video/well/100000010430621/the-covid-shot-is-safe-for-pregna
 **Does Max Verstappen's sports car racing make him better? His F1 rivals think so**\
 `Verstappen took a break from F1 to race GT cars. His F1 peers say this can only enhance the champion's "toolbox"`\
 https://nytimes.com/athletic/6683354/2025/10/02/max-verstappen-sports-car-f1-racing/
-
-**Italy Backs Trump’s Cease-Fire Plan as Public Demands More Help for Gaza**\
-`Italian lawmakers say they will recognize a Palestinian state if Hamas releases Israeli hostages and is kept out of any eventual government.`\
-https://nytimes.com/2025/10/02/world/europe/italy-palestinian-state-gaza-plan.html
 
