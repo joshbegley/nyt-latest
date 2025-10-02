@@ -1,3 +1,11 @@
+**Live Updates: 4 People Injured After Stabbing Outside Synagogue in U.K., Police Say**\
+`The stabbing in Manchester, England, happened on Yom Kippur, the holiest day in the Jewish calendar.`\
+https://nytimes.com/live/2025/10/02/world/manchester-synagogue-stabbing-uk
+
+**Bruins training camp: 5 questions that need answering before the regular season**\
+`The Bruins do not have much time to address their remaining issues before they face off against the Capitals to open the regular season.`\
+https://nytimes.com/athletic/6680846/2025/10/02/bruins-training-camp-questions-zacha-poitras/
+
 **Projecting the 2025-26 Maple Leafs: How many goals will every player score?**\
 `Will Auston Matthews score 60? How many will Nicolas Roy add? Predicting goal totals for every Maple Leaf who figures to play this season.`\
 https://nytimes.com/athletic/6679596/2025/10/02/maple-leafs-goals-prediction-nhl/
