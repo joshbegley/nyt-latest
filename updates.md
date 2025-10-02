@@ -1,3 +1,15 @@
+**Conservatives vs. Hasan Piker**\
+`Hasan Piker argues Democrats are struggling to construct effective media narratives. On “Interesting Times,” he tells Ross Douthat why he thinks conservatives are better at pushing their message.`\
+https://nytimes.com/video/opinion/100000010423877/conservatives-vs-hasan-piker.html
+
+**Behind the U.S. Deportation Flight to Iran**\
+`The deportation flight to Iran signals the Trump administration’s determination to remove migrants, even to places with harsh human rights conditions. Hamed Aleaziz, a reporter covering immigration for The New York Times, explains what we know about the effort.`\
+https://nytimes.com/video/us/100000010432925/behind-the-us-deportation-flight-to-iran.html
+
+**Deadly Attack Outside U.K. Synagogue on Yom Kippur Is Declared Terrorism**\
+`The police identified the attacker as Jihad al-Shamie, 35, a British citizen of Syrian descent. They said he had driven a car into people outside the synagogue in Manchester and stabbed others before he was shot and killed by the police.`\
+https://nytimes.com/2025/10/02/world/europe/terrorist-attack-uk-synagogue-manchester.html
+
 **What to See in Galleries in October**\
 `This week in Newly Reviewed, Will Heinrich covers Zoe Leonard’s armor, explosive paintings from Assume Vivid Astro Focus, Max Schumann’s paper bag art and Ed Bereal’s skeletal demon.`\
 https://nytimes.com/2025/10/02/arts/what-to-see-in-galleries-in-october.html
