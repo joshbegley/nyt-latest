@@ -1,3 +1,7 @@
+**Pep Guardiola has established Manchester City's trusted base. Now all he craves is consistency**\
+`This remodelled team has the quality to play brilliant football, but there are still too many moving parts to achieve 90-minute dominance`\
+https://nytimes.com/athletic/6681248/2025/10/02/manchester-city-monaco-guardiola-champions-league/
+
 **An appreciation of an Arsenal defence that has conceded one open-play goal this season**\
 `Much of the focus has been on the forward line after heavy summer spending but the defence is providing a platform for them to excel`\
 https://nytimes.com/athletic/6681576/2025/10/02/arsenal-defence-olympiacos-arteta/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6679990/2025/10/02/nottingham-forest-elliot-anderso
 **You need some Arsenal players in your FPL team, so who are the ones to target?**\
 `Six of Mikel Arteta's squad make the top 20 most transferred-in players ahead of Friday's deadline at time of writing - and for good reason`\
 https://nytimes.com/athletic/6679101/2025/10/02/fantasy-premier-league-arsenal-gameweek-7-gyokeres-saka/
-
-**Nick Woltemade is ignoring the noise**\
-`Woltemade's Champions League debut for Newcastle was another riposte to the hubbub that has surrounded his move to St James’ Park`\
-https://nytimes.com/athletic/6680880/2025/10/02/newcastle-woltemade-champions-league/
 
