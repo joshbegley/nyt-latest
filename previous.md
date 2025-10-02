@@ -1,3 +1,7 @@
+**Nashville SC clinches US Open Cup to claim Tennessee's first pro sports title**\
+`A controversial penalty helped the Tennessee club to its finest hour`\
+https://nytimes.com/athletic/6682295/2025/10/01/us-open-cup-nashville-surridge-austin/
+
 **In East Timor, U.S. Retreats From Plan to Build ‘Lifesaving’ Sewage Plant**\
 `A U.S. aid agency had committed hundreds of millions of dollars to the project, which could help provide clean water. Now its board wants to pull out of the agreement.`\
 https://nytimes.com/2025/10/01/world/asia/east-timor-us-aid-sewage.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6681970/2025/10/01/cubs-pete-crow-armstrong-postsea
 **Yankees-Red Sox Game 2 takeaways: Yankees slide past Sox late to force Game 3**\
 `Both teams' seasons are on the brink with the elimination Game 3 looming Thursday.`\
 https://nytimes.com/athletic/6681761/2025/10/01/yankees-red-sox-score-results-game-2-takeaways-mlb-playoffs/
-
-**Why did the Cubs pitch to Machado with a base open? Craig Counsell explains the controversial decision**\
-`An unexpected decision by the Cubs manager in the fifth inning of Game 2 helped the Padres secure their lead in a must-win game.`\
-https://nytimes.com/athletic/6681633/2025/10/01/cubs-loss-machado-pitch-imanaga/
 

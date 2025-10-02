@@ -1,3 +1,7 @@
+**Nashville SC clinches US Open Cup to claim Tennessee's first pro sports title**\
+`A controversial penalty helped the Tennessee club to its finest hour`\
+https://nytimes.com/athletic/6682295/2025/10/01/us-open-cup-nashville-surridge-austin/
+
 **In East Timor, U.S. Retreats From Plan to Build ‘Lifesaving’ Sewage Plant**\
 `A U.S. aid agency had committed hundreds of millions of dollars to the project, which could help provide clean water. Now its board wants to pull out of the agreement.`\
 https://nytimes.com/2025/10/01/world/asia/east-timor-us-aid-sewage.html
