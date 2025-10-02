@@ -1,3 +1,11 @@
+**Deadly Attack at U.K. Synagogue on Yom Kippur Is Declared Terrorism**\
+`The police said a man drove a car into people in front of the synagogue in Manchester, England, and stabbed others. The assailant was shot dead by the police.`\
+https://nytimes.com/2025/10/02/world/europe/terrorist-attack-uk-synagogue-manchester.html
+
+**Rescuers Stop Search for Survivors in Indonesia School Collapse**\
+`Rescuers said that they detected no more signs of life from under the rubble and would now focus on recovering bodies, three days after a school collapsed in Indonesia.`\
+https://nytimes.com/video/world/asia/100000010435742/indonesia-school-collapse.html
+
 **Veterans See Costs and Risks in Hegseth’s Military Rewind to 1990**\
 `Defense Secretary Pete Hegseth has identified real problems, veteran officers say, but by looking back 35 years for policy cues, he risks hurting, not helping, military readiness.`\
 https://nytimes.com/2025/10/02/us/hegseth-military-veterans-standards.html
