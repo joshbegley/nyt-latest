@@ -1,3 +1,7 @@
+**Trionda ... Adidas' new World Cup ball and everything you need to know about it**\
+`The reveal of the official match ball always sparks pre-World Cup anticipation, and this time was no different`\
+https://nytimes.com/athletic/6684748/2025/10/02/trionda-adidas-world-cup-ball/
+
 **Judge Rejects Trump’s Argument and Throws Out Suit Against U.N. Agency**\
 `Survivors of the Oct. 7 attack on Israel accused the United Nations Relief and Works Agency of helping fund Hamas. The federal judge in Manhattan found that the agency has immunity.`\
 https://nytimes.com/2025/10/02/nyregion/sdny-unrwa-lawsuit-dismissed.html
