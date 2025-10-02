@@ -1,3 +1,7 @@
+**How to watch 2025 F1 Singapore Grand Prix: Will Verstappen finally win at Marina Bay?**\
+`Max Verstappen is back in the title hunt, but he's yet to secure a victory at Marina Bay Street Circuit. Can he keep the momentum going?`\
+https://nytimes.com/athletic/6681154/2025/10/02/f1-singapore-grand-prix-odds-2025-how-to-watch/
+
 **49ers at Rams on TNF: McVay vs. Shanahan, rivalry history, broadcast predictions**\
 `Here are a few things to anticipate ahead of Thursday's Niners-Rams showcase in prime time.`\
 https://nytimes.com/athletic/6680631/2025/10/02/49ers-rams-tnf-mccaffrey-nacua-tv-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/02/crosswords/spelling-bee-forum.html
 **NFL quarter-season superlatives: Bills on the run, Dak for MVP, Brian Callahan's hot seat**\
 `The Bills, showing off better support for Josh Allen with a strong running game, look like top Super Bowl contenders along with the Eagles.`\
 https://nytimes.com/athletic/6680161/2025/10/02/nfl-quarter-season-superlatives-bills-dak-prescott-brian-callahan/
-
-**It’s far too early to question the Vikings’ QB decision. But have you seen Sam Darnold?**\
-`The early returns on Minnesota's unprecedented move are shaky, with Darnold thriving in Seattle and the win-now Vikings limited by QB play.`\
-https://nytimes.com/athletic/6677047/2025/10/02/jj-mccarthy-sam-darnold-vikings-seahawks/
 
