@@ -1,3 +1,7 @@
+**Does Max Verstappen's sports car racing make him better? His F1 rivals think so**\
+`Verstappen took a break from F1 to race GT cars. His F1 peers say this can only enhance the champion's "toolbox"`\
+https://nytimes.com/athletic/6683354/2025/10/02/max-verstappen-sports-car-f1-racing/
+
 **Italy Backs Trump’s Cease-Fire Plan as Public Demands More Help for Gaza**\
 `Italian lawmakers say they will recognize a Palestinian state if Hamas releases Israeli hostages and is kept out of any eventual government.`\
 https://nytimes.com/2025/10/02/world/europe/italy-palestinian-state-gaza-plan.html
@@ -15,7 +19,7 @@ https://nytimes.com/2025/10/02/us/ann-fagan-ginger-dead.html
 https://nytimes.com/live/2025/10/02/world/manchester-synagogue-stabbing-uk/the-uk-police-say-they-believe-they-know-the-attackers-identity
 
 **Security is increased at Jewish sites across the U.K.**\
-`By Lizzie Dearden`\
+`By Lizzie Dearden, Megan Specia and Stephen Castle`\
 https://nytimes.com/live/2025/10/02/world/manchester-synagogue-stabbing-uk/security-is-increased-at-jewish-sites-across-the-uk
 
 **Key fantasy football questions for Week 5: Who takes the lead at RB for Cardinals, Bucs?**\
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/weather/matmo-map-path-tracker.html
 **How to Make Sense of Your Relationship Attachment Style**\
 `Four books — recommended by psychologists and therapists — can help you strengthen your connections.`\
 https://nytimes.com/2025/10/02/well/attachment-style-books.html
-
-**Deadly U.K. Synagogue Attack Comes Amid Rising Wave of Antisemitism**\
-`Community organizations have reported higher levels of anti-Jewish incidents in Britain and around the world.`\
-https://nytimes.com/2025/10/02/world/europe/manchester-uk-synagogue-attack-antisemitism.html
 
