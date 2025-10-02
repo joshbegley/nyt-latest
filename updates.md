@@ -1,3 +1,7 @@
+**In East Timor, U.S. Retreats From Plan to Build ‘Lifesaving’ Sewage Plant**\
+`A U.S. aid agency had committed hundreds of millions of dollars to the project, which could help provide clean water. Now its board wants to pull out of the agreement.`\
+https://nytimes.com/2025/10/01/world/asia/east-timor-us-aid-sewage.html
+
 **Yohe's 10 observations: Penguins' youth movement on full display once again**\
 `The young Penguins prospects led the way again in a 5-3 preseason win over Buffalo on Wednesday. `\
 https://nytimes.com/athletic/6680327/2025/10/01/penguins-sabres-nhl-preseason-prospects/
