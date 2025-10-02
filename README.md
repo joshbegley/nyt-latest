@@ -1,3 +1,11 @@
+**Fantasy football matchup rankings Week 5 | Strength of schedule**\
+`Jake Ciely's Week 5 fantasy football strength of schedule by position matchup rankings can help with tough start/sit decisions. `\
+https://nytimes.com/athletic/6683213/2025/10/02/fantasy-football-matchup-rankings-week-5-strength-of-schedule/
+
+**Hasan Piker Wants a ‘Post-Liberal’ America**\
+`On “Interesting Times,” the Twitch and YouTube star Hasan Piker tells Ross Douthat how he thinks America’s political system should transform, and why he advocates for more people to get involved in the democratic process.`\
+https://nytimes.com/video/opinion/100000010423872/hasan-piker-wants-a-post-liberal-america.html
+
 **Jake Browning remains Bengals' starting quarterback, but how short is his leash?**\
 `Zac Taylor continues to express faith in Joe Burrow's backup, but two anemic offensive performances raise questions about other options.`\
 https://nytimes.com/athletic/6681539/2025/10/02/jake-browning-bengals-quarterback-lions/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6682377/2025/10/02/canucks-flames-preseason-score-h
 **Petrit Halilaj Is the Winner of the Nasher Prize for Sculpture**\
 `The Kosovar learned he’d won a top art world honor as he was dealing with a suspected arson before the Kosovo premiere of his opera.`\
 https://nytimes.com/2025/10/02/arts/design/petrit-halilaj-wins-nasher-prize-for-sculpture.html
-
-**Science Practice | A Study on Asteroid Samples and Life’s Building Blocks**\
-`Scientists studied samples that NASA collected from the asteroid Bennu. What clues did they reveal about life outside of Earth?`\
-https://nytimes.com/2025/10/02/learning/science-practice-a-study-on-asteroid-samples-and-lifes-building-blocks.html
-
-**Phillies, Dodgers match up stars galore in NL Division Series: key matchups, prediction**\
-`It's been 16 years since the Philadelphia Phillies and Los Angeles Dodgers met in the postseason.`\
-https://nytimes.com/athletic/6683057/2025/10/02/phillies-dodgers-preview-division-series/
 
