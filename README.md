@@ -1,3 +1,7 @@
+**Here Are the Dueling Plans Behind the Shutdown Impasse**\
+`Republicans are proposing a straight extension of government spending, while Democrats are demanding the addition of over $1 trillion for health programs.`\
+https://nytimes.com/2025/10/02/us/politics/government-shutdown-spending-bill-impasse.html
+
 **Heading to L.A. for the Olympics? If You’re Into These Sports, You’re in the Wrong State.**\
 `Much of the Summer Games in 2028 will take place in Southern California. But two events, softball and canoe slalom, will be held in Oklahoma.`\
 https://nytimes.com/2025/10/02/us/los-angeles-olympics-oklahoma-city.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010423872/hasan-piker-wants-a-post-liber
 **Jake Browning remains Bengals' starting quarterback, but how short is his leash?**\
 `Zac Taylor continues to express faith in Joe Burrow's backup, but two anemic offensive performances raise questions about other options.`\
 https://nytimes.com/athletic/6681539/2025/10/02/jake-browning-bengals-quarterback-lions/
-
-**2 Killed in Antigovernment Protests in Morocco**\
-`Demonstrators, mostly younger people, vented anger against heavy spending on preparations for the 2030 soccer World Cup instead of on public services.`\
-https://nytimes.com/2025/10/02/world/africa/morocco-protests-gen-z.html
 
