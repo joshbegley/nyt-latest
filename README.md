@@ -1,3 +1,11 @@
+**Costly and Deadly Wildfires Really Are on the Rise, New Research Finds**\
+`The past decade in particular has seen an uptick in devastating blazes linked to climate change, according to the study.`\
+https://nytimes.com/2025/10/02/climate/wildfire-damage-increasing.html
+
+**What a Signal in a Failed Star’s Clouds Means for the Search for Life**\
+`The detection of the molecule phosphine in a brown dwarf’s atmosphere may help astronomers in their search for life elsewhere in the Milky Way.`\
+https://nytimes.com/2025/10/02/science/brown-dwarf-phosphine-life.html
+
 **Immigration Judge Rejects Abrego Garcia’s Efforts to Seek Asylum in U.S.**\
 `The decision foreclosed one of the options that lawyers for Kilmar Armando Abrego Garcia had tried in an effort to keep him in the country.`\
 https://nytimes.com/2025/10/02/us/politics/abrego-garcia-asylum.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/podcasts/100000010435369/when-cardi-b-raps-the-way-she
 **Liverpool's Alisson likely out until November international break**\
 `Summer arrival Giorgi Mamardashvili will deputise in place of Alisson for the next few weeks.`\
 https://nytimes.com/athletic/6681156/2025/10/02/alisson-hamstring-injury-liverpool-update/
-
-**OpenAI Finalizes Deal That Values It at $500 Billion**\
-`With the agreement, OpenAI becomes the world’s most valuable privately-held company, surpassing the rocket maker SpaceX.`\
-https://nytimes.com/2025/10/02/technology/openai-deal-500-billion.html
-
-**Mauricio Pochettino says he's fighting to avoid entitlement on USMNT roster**\
-`The USMNT coach announced he wants to "change the culture, change the vision" of the program`\
-https://nytimes.com/athletic/6683871/2025/10/02/usmnt-mauricio-pochettino-entitlement/
 
