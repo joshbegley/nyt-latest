@@ -1,3 +1,11 @@
+**Pulisic back in form and back in favor as USMNT's most important player**\
+`The Milan star's summer controversy now seems to be behind him`\
+https://nytimes.com/athletic/6684100/2025/10/02/pulisic-usmnt-milan-pochettino/
+
+**After Declining to Give Trump a Sword for King Charles, a Museum Leader Is Out**\
+`The departure of Todd Arrington, who led the Dwight D. Eisenhower Presidential Library and Museum, came after the administration sought a sword from its collection as a gift for King Charles.`\
+https://nytimes.com/2025/10/02/arts/design/trump-eisenhower-king-charles-sword.html
+
 **Deadly Attack at U.K. Synagogue on Yom Kippur Is Declared Terrorism**\
 `The police said a man drove a car into people in front of the synagogue in Manchester, England, and stabbed others. The assailant was shot dead by the police.`\
 https://nytimes.com/2025/10/02/world/europe/terrorist-attack-uk-synagogue-manchester.html

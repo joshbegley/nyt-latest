@@ -1,3 +1,11 @@
+**Pulisic back in form and back in favor as USMNT's most important player**\
+`The Milan star's summer controversy now seems to be behind him`\
+https://nytimes.com/athletic/6684100/2025/10/02/pulisic-usmnt-milan-pochettino/
+
+**After Declining to Give Trump a Sword for King Charles, a Museum Leader Is Out**\
+`The departure of Todd Arrington, who led the Dwight D. Eisenhower Presidential Library and Museum, came after the administration sought a sword from its collection as a gift for King Charles.`\
+https://nytimes.com/2025/10/02/arts/design/trump-eisenhower-king-charles-sword.html
+
 **Deadly Attack at U.K. Synagogue on Yom Kippur Is Declared Terrorism**\
 `The police said a man drove a car into people in front of the synagogue in Manchester, England, and stabbed others. The assailant was shot dead by the police.`\
 https://nytimes.com/2025/10/02/world/europe/terrorist-attack-uk-synagogue-manchester.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/10/02/us/des-moines-superintendent-ice-gun-charge.html
 **6 New Books We Love This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://nytimes.com/2025/10/02/books/review/recommended-new-books.html
-
-**What’s Going On in This Graph? | Oct. 8, 2025**\
-`Have you ever heard a sonic boom? Can you imagine what it might be like to hear one every day?`\
-https://nytimes.com/2025/10/02/learning/whats-going-on-in-this-graph-oct-8-2025.html
-
-**What’s Going On in This Picture? | Oct. 6, 2025**\
-`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
-https://nytimes.com/2025/10/02/learning/whats-going-on-in-this-picture-oct-6-2025.html
 
