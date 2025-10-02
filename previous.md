@@ -1,4 +1,4 @@
-**When the calendar turns to “Rocctober,” Cleveland's unlikeliest playoff hero emerges**\
+**Once in 'Rocctober', Cleveland's unlikeliest playoff hero emerges**\
 `The tension of postseason baseball can consume a player. Or, it can fuel a player. Every October, unlikely heroes emerge.`\
 https://nytimes.com/athletic/6681604/2025/10/01/cleveland-guardians-brayan-rocchio-october-pressure/
 
@@ -32,7 +32,7 @@ https://nytimes.com/athletic/6681413/2025/10/01/aj-brown-eagles-addresses-social
 
 **How to watch Tigers at Guardians: Game 3 Time, TV, streaming**\
 `Find out how to watch the Detroit Tigers play the Cleveland Guardians, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6681527/2025/10/01/tigers-vs-guardians-stream-how-to-watch-oct-2/
+https://nytimes.com/athletic/6681527/2025/10/01/how-to-watch-tigers-vs-guardians-game-3-tv-channel-and-streaming-options-for-october-2/
 
 **What Happens When a Fashion Show Goes Wrong**\
 `Seven designers on their biggest mishaps.`\
