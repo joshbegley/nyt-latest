@@ -1,3 +1,15 @@
+**Norovirus Outbreak Sickens Nearly 100 on Royal Caribbean Cruise**\
+`Four crew members and 94 passengers came down with norovirus while sailing from San Diego to Miami.`\
+https://nytimes.com/2025/10/02/travel/norovirus-cruise-royal-caribbean.html
+
+**Tracking Tropical Storm Matmo**\
+`See the likely path and wind arrival times for Matmo`\
+https://nytimes.com/interactive/2025/weather/matmo-map-path-tracker.html
+
+**How to Make Sense of Your Relationship Attachment Style**\
+`Four books — recommended by psychologists and therapists — can help you strengthen your connections.`\
+https://nytimes.com/2025/10/02/well/attachment-style-books.html
+
 **Deadly U.K. Synagogue Attack Comes Amid Rising Wave of Antisemitism**\
 `Community organizations have reported higher levels of anti-Jewish incidents in Britain and around the world.`\
 https://nytimes.com/2025/10/02/world/europe/manchester-uk-synagogue-attack-antisemitism.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/02/climate/doe-clean-energy-programs-shutdown.html
 **Niko Mikkola, Panthers agree to 8-year extension**\
 `The extension continues a trend for the Panthers, with Sam Reinhart and Sam Bennett forgoing bigger paydays on the UFA market to stay put.`\
 https://nytimes.com/athletic/6683351/2025/10/02/niko-mikkola-panthers-extention-contract/
-
-**MLB analyst Ben McDonald says controversial ESPN NHL comments were 'a joke'**\
-`“It was not a bang on hockey at all,” McDonald told The Athletic of quipping that there was "zero chance" he'd watch ESPN's hockey coverage.`\
-https://nytimes.com/athletic/6683350/2025/10/02/ben-mcdonald-espn-mlb-nhl-hockey/
-
-**Two Planes Collide at LaGuardia Airport in New York City**\
-`A plane that was preparing to take off at LaGuardia Airport struck a plane that had landed on Wednesday evening, according to authorities. One person was injured, officials said.`\
-https://nytimes.com/video/us/100000010434919/delta-plane-collision-laguardia.html
-
-**Mauricio Pochettino drops World Cup hint with USMNT squad as Robinson, McKennie return**\
-`The USMNT coach appears to be getting closer to landing on his first-choice squad for next summer's tournament`\
-https://nytimes.com/athletic/6683281/2025/10/02/pochettino-usmnt-world-cup-robinson-mckennie/
 
