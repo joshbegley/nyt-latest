@@ -1,3 +1,15 @@
+**Liverpool's Alisson likely out until November international break**\
+`Summer arrival Giorgi Mamardashvili will deputise in place of Alisson for the next few weeks.`\
+https://nytimes.com/athletic/6681156/2025/10/02/alisson-hamstring-injury-liverpool-update/
+
+**OpenAI Finalizes Deal That Values It at $500 Billion**\
+`With the agreement, OpenAI becomes the world’s most valuable privately-held company, surpassing the rocket maker SpaceX.`\
+https://nytimes.com/2025/10/02/technology/openai-deal-500-billion.html
+
+**Mauricio Pochettino says he's fighting to avoid entitlement on USMNT roster**\
+`The USMNT coach announced he wants to "change the culture, change the vision" of the program`\
+https://nytimes.com/athletic/6683871/2025/10/02/usmnt-mauricio-pochettino-entitlement/
+
 **Do the Trump Reprisals Set a Precedent?**\
 `Responses to a news analysis about the possible effects of President Trump’s reprisals. Also: Cultural exchanges; roots of political violence; A.I.`\
 https://nytimes.com/2025/10/02/opinion/trump-reprisals.html
