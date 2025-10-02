@@ -1,3 +1,7 @@
+**Judge Rejects Trump’s Argument and Throws Out Suit Against U.N. Agency**\
+`Survivors of the Oct. 7 attack on Israel accused the United Nations Relief and Works Agency of helping fund Hamas. The federal judge in Manhattan found that the agency has immunity.`\
+https://nytimes.com/2025/10/02/nyregion/sdny-unrwa-lawsuit-dismissed.html
+
 **Three questions for the Guardians' offseason**\
 `Could an extension or trade be on the table for Steven Kwan this winter? `\
 https://nytimes.com/athletic/6684184/2025/10/02/cleveland-guardians-offseason-questions/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/02/obituaries/bessie-margolin-overlooked.html
 **For Britain’s Jews, a New and Deadly Sign of Rising Antisemitism**\
 `In the hours after an attack, a blanket of fear and grief fell over synagogues and Jewish community centers across the country.`\
 https://nytimes.com/2025/10/02/world/europe/britain-antisemitism-manchester.html
-
-**Tigers-Guardians Game 3 takeaways: Explosive inning sends Detroit to ALDS**\
-`The Tigers will take on the Seattle Mariners in Game 1 of the AL Division Series on Saturday.`\
-https://nytimes.com/athletic/6684259/2025/10/02/tigers-guardians-score-results-game-3-takeaways-mlb/
 
