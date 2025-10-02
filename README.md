@@ -1,3 +1,11 @@
+**Manchester’s Mayor Had Criticized Starmer. The Synagogue Attack Could Unite Them.**\
+`Violent attacks often bring even fierce political rivals together in the hours and days after they occur.`\
+https://nytimes.com/2025/10/02/world/europe/uk-synagogue-attack-manchester-mayor-burnham-starmer.html
+
+**A Day in the Life of a Teenager**\
+`Students share their average and not-so-average daily routines.`\
+https://nytimes.com/2025/10/02/learning/a-day-in-the-life-of-a-teenager.html
+
 **Leo Hindery Jr., Dealmaking Power in the Cable TV Industry, Dies at 77**\
 `He was president of one of the nation’s largest cable operators and chairman of the Yankees’ YES Network. He also drove his sports car to victory in the 24 Hours of Le Mans.`\
 https://nytimes.com/2025/10/02/business/dealbook/leo-hindery-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6683414/2025/10/02/scott-hanson-nfl-redzone-sports-
 **12 Restaurants Where Ordering a Bottle Won’t Make You Cry**\
 `Too many wine lists cater solely to the wealthy, but these lists in New York City offer terrific values at all points along the price scale.`\
 https://nytimes.com/2025/10/02/dining/drinks/nyc-restaurant-affordable-wine-lists.html
-
-**What We Know About the Protests in Madagascar**\
-`A youth-led movement against the president of Madagascar is sustaining protests across the country. John Eligon, the Johannesburg bureau chief for The New York Times, explains what’s happened.`\
-https://nytimes.com/video/world/africa/100000010433171/what-we-know-about-the-protests-in-madagascar.html
-
-**Suns, Mercury arena renamed Mortgage Matchup Center in $115 million deal**\
-`Opened in 1992, the downtown Phoenix arena has hosted major sports, concerts, with multiple name changes and renovations over time.`\
-https://nytimes.com/athletic/6683834/2025/10/02/suns-mercury-arena-renamed-mortgage-matchup-center/
 
