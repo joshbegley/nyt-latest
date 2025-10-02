@@ -1,3 +1,19 @@
+**How to watch Chiefs at Jaguars: Time, TV, streaming**\
+`Find out how to watch the Kansas City Chiefs play the Jacksonville Jaguars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6682535/2025/10/02/chiefs-vs-jaguars-stream-how-to-watch-oct-6/
+
+**How to watch Padres at Cubs: Game 3 Time, TV, streaming**\
+`Find out how to watch the San Diego Padres play the Chicago Cubs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6682520/2025/10/02/padres-vs-cubs-stream-how-to-watch-oct-2/
+
+**How to watch Red Sox at Yankees: Game 3 Time, TV, streaming**\
+`Find out how to watch the Boston Red Sox play the New York Yankees, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6682518/2025/10/02/red-sox-vs-yankees-stream-how-to-watch-oct-2/
+
+**Seven seconds, seven touches, 70 yards... a slaloming assist that showed De Bruyne has still got it**\
+`The Belgian set up two goals for Rasmus Hojlund against Sporting, the first a particularly beautiful run and pass`\
+https://nytimes.com/athletic/6681253/2025/10/02/de-bruyne-assist-napoli-hojlund/
+
 **Word of the Day: extol**\
 `This word has appeared in 21 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/10/02/learning/word-of-the-day-extol.html
