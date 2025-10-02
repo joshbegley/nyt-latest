@@ -1,40 +1,40 @@
-**4 People Injured After Stabbing Outside Synagogue in U.K., Police Say**\
-`The stabbing in Manchester, England, came on Yom Kippur, the holiest day in the Jewish calendar.`\
-https://nytimes.com/2025/10/02/world/europe/manchester-synagogue-stabbing-uk.html
+**Does Dave Canales' play calling reflect a lack of trust in Panthers QB Bryce Young?**\
+`The Panthers' 18 explosive plays are tied for 28th and their percentage of pass game explosives are 29th in the NFL.`\
+https://nytimes.com/athletic/6680924/2025/10/02/panthers-play-calling-bryce-young-dave-canales/
 
-**Government Shutdown Disruptions Begin**\
-`The government shutdown has affected visits to some sites like Everglades National Park and the Liberty Bell and left some infrastructure projects in limbo.`\
-https://nytimes.com/video/us/politics/100000010434397/government-shutdown-disruptions-begin.html
+**Baby wipes and 'Nudie': A Vikings travel guide for their 10-day European vacation**\
+`Vikings players riffed on three travel-related topics, including baby wipes, chargers and why Dwight McGlothern isn't a good tour guide.`\
+https://nytimes.com/athletic/6680417/2025/10/02/vikings-europe-london-dublin-nudie-mcglothern/
 
-**For Blue Jays stars Vladimir Guerrero Jr. and Bo Bichette, one last chance at October glory together?**\
-`For seven years, Bichette and Guerrero Jr. have been the core of the franchise. Can they finally erase their shared playoff heartbreak?`\
-https://nytimes.com/athletic/6677809/2025/10/02/blue-jays-vladimir-guerrero-jr-bo-bichette-playoffs/
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/10/02/crosswords/spelling-bee-forum.html
 
-**Was Mike Tomlin 'living in his fears' in Dublin? Steelers bye-week mailbag**\
-`Also, more on the future at QB, plus the tight end, wide receiver and outside linebackers rotations after a 3-1 start to the regular season.`\
-https://nytimes.com/athletic/6680030/2025/10/02/steelers-mike-tomlin-fourth-downs/
+**NFL quarter-season superlatives: Bills on the run, Dak for MVP, Brian Callahan's hot seat**\
+`The Bills, showing off better support for Josh Allen with a strong running game, look like top Super Bowl contenders along with the Eagles.`\
+https://nytimes.com/athletic/6680161/2025/10/02/nfl-quarter-season-superlatives-bills-dak-prescott-brian-callahan/
 
-**The New York Times International Edition in Print for Friday, Oct. 3, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/10/02/todays-new-york-times-international-edition
+**It’s far too early to question the Vikings’ QB decision. But have you seen Sam Darnold?**\
+`The early returns on Minnesota's unprecedented move are shaky, with Darnold thriving in Seattle and the win-now Vikings limited by QB play.`\
+https://nytimes.com/athletic/6677047/2025/10/02/jj-mccarthy-sam-darnold-vikings-seahawks/
 
-**A Run on Canned Mackerel and Emergency Radios. The Reason? Drones.**\
-`The Danish public has been unsettled by a wave of mysterious drone incursions, which has underscored the country’s vulnerability.`\
-https://nytimes.com/2025/10/02/world/europe/denmark-drones-prepping.html
+**Inside Victor Wembanyama’s ‘violent’ offseason training to get his mind and body back**\
+`After experiencing a blood clot diagnosis, Victor Wembanyama set out to experience the world. When he returned, he trained with a vengeance.`\
+https://nytimes.com/athletic/6676113/2025/10/02/victory-wembanyama-offseason-training-regiment-cla-spurs/
 
-**Starling Marte provided calm amid Mets; storm, but will free agent be back?**\
-`Marte delivered his best OPS in years and emerged as an experienced voice in a clubhouse that needed guidance.`\
-https://nytimes.com/athletic/6681057/2025/10/02/mets-starling-marte-mlb-free-agent/
+**Khris Middleton is the old head the young Washington Wizards need right now**\
+`The Wizards will have one of the NBA's youngest rosters this season. Middleton and CJ McCollum should provide a critical counterbalance.`\
+https://nytimes.com/athletic/6681423/2025/10/02/khris-middleton-is-the-old-head-the-young-washington-wizards-need-right-now/
 
-**Philippines President Says Tents Needed to Shelter Quake Survivors**\
-`Officials were optimistic on Thursday that most of the missing had been accounted for. But severe damage to the area means many people lack shelter, water and electricity.`\
-https://nytimes.com/2025/10/02/world/asia/tphilippines-earthquake-marcos-tents.html
+**Vic's Picks, Week 5: Who wins the Baker Mayfield-Sam Darnold duel?**\
+`We like Mayfield in the clash of former Carolina QB teammates. Meanwhile, we're buying the Chiefs and Eagles but fading the Cowboys.`\
+https://nytimes.com/athletic/6677049/2025/10/02/nfl-week-5-picks-predictions-betting-2025/
 
-**College football picks ATS: FSU-Miami, Alabama-Vanderbilt rematch highlight Week 6**\
-`Miami at Florida State and Vanderbilt at Alabama are the highlight games this week. Our staff picks those games and more against the spread.`\
-https://nytimes.com/athletic/6677890/2025/10/02/college-football-picks-spread-florida-state-miami-week-6/
+**Vegas Golden Knights 2025-26 season preview: Playoff chances, projected points, roster rankings**\
+`Vegas is as all in on the Stanley Cup as ever, and anything short of a serious run will be both a surprise and a disappointment.`\
+https://nytimes.com/athletic/6679429/2025/10/02/vegas-golden-knights-2025-26-season-preview/
 
-**Raptors trying to produce even more pressure this year: 'We're not going to die on the court'**\
-`The Raptors say they're going all out when it comes to on-ball intensity this season. `\
-https://nytimes.com/athletic/6681280/2025/10/02/toronto-raptors-pressure-darko-rajakovic-ochai-agbaji/
+**Why the Yankees should have key advantages over the Red Sox in Game 3**\
+`New York has plenty of reason to expect Cam Schlittler to outduel fellow rookie Connelly Early, and also could have edges in the bullpen.`\
+https://nytimes.com/athletic/6682289/2025/10/02/yankees-advantages-redsox-game-3-wild-card/
 

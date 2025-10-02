@@ -1,3 +1,7 @@
+**4 People Injured After Stabbing Outside Synagogue in U.K., Police Say**\
+`The stabbing in Manchester, England, came on Yom Kippur, the holiest day in the Jewish calendar.`\
+https://nytimes.com/2025/10/02/world/europe/manchester-synagogue-stabbing-uk.html
+
 **Government Shutdown Disruptions Begin**\
 `The government shutdown has affected visits to some sites like Everglades National Park and the Liberty Bell and left some infrastructure projects in limbo.`\
 https://nytimes.com/video/us/politics/100000010434397/government-shutdown-disruptions-begin.html
