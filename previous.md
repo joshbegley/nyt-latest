@@ -1,3 +1,19 @@
+**Caitlin Clark, Sophie Cunningham back Napheesa Collier's critique of WNBA**\
+`Clark also said she is recovering from her injuries: "I’ve been working really hard to get back to full health.”`\
+https://nytimes.com/athletic/6684275/2025/10/02/caitlin-clark-sophie-cunningham-fever-wnba-commissioner/
+
+**Politics Threaten a Crucial N.Y. Area Tunnel Project. Again.**\
+`Two of the largest infrastructure initiatives in the United States were still moving forward this week despite the battles over a government shutdown surrounding them.`\
+https://nytimes.com/2025/10/02/nyregion/trump-infrastructure-hudson-river-tunnel.html
+
+**Ohgren, Yurov and Jiricek get one last shot to impress as Wild roster starts to get 'locked'**\
+`There’s only one preseason game left for the Wild, Friday in Chicago, and it’ll be an important one for roster hopefuls.`\
+https://nytimes.com/athletic/6684361/2025/10/02/wild-roster-ohgren-yurov-jiricek/
+
+**‘A Crazy Moment’: Shock and Terror Spreads in Manchester Synagogue’s Community**\
+`Many Orthodox Jews who live in the area reacted with horror to an attack that killed two people and seriously injured three on Yom Kippur, Judaism’s holiest day.`\
+https://nytimes.com/2025/10/02/world/europe/manchester-synagogue-neighborhood.html
+
 **F.D.A. Approves a New Generic Abortion Pill**\
 `The decision enraged opponents of abortion, who have been pressuring the administration to restrict access to abortion medication.`\
 https://nytimes.com/2025/10/02/health/abortion-pill-generic-fda.html
@@ -21,20 +37,4 @@ https://nytimes.com/video/world/africa/100000010435194/three-killed-during-moroc
 **Tiny Love Stories: ‘I Saw a Beautiful Man Captivating the Room’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/10/02/style/tiny-modern-love-stories-a-beautiful-man-captivating-the-room.html
-
-**College football Week 6 projected scores: Model predicts every FBS vs. FBS game**\
-`Austin Mock's College Football Projection Model tackles Week 6's games with projected scores and point totals for every FBS vs. FBS game.`\
-https://nytimes.com/athletic/6683903/2025/10/02/college-football-week-6-projected-scores-model/
-
-**A.I. and a Riff on ‘The Bachelor’? N.Y.C. Mayoral Ads Get Creative.**\
-`Zohran Mamdani, Andrew Cuomo and Curtis Sliwa are now all running television ads in the critical race for New York City mayor, hoping to sway voters with less than five weeks to go.`\
-https://nytimes.com/2025/10/02/nyregion/nyc-mayor-ads-mamdani-cuomo-sliwa.html
-
-**Conservatives vs. Hasan Piker**\
-`Hasan Piker argues Democrats are struggling to construct effective media narratives. On “Interesting Times,” he tells Ross Douthat why he thinks conservatives are better at pushing their message.`\
-https://nytimes.com/video/opinion/100000010423877/conservatives-vs-hasan-piker.html
-
-**Behind the U.S. Deportation Flight to Iran**\
-`The deportation flight to Iran signals the Trump administration’s determination to remove migrants, even to places with harsh human rights conditions. Hamed Aleaziz, a reporter covering immigration for The New York Times, explains what we know about the effort.`\
-https://nytimes.com/video/us/100000010432925/behind-the-us-deportation-flight-to-iran.html
 
