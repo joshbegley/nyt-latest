@@ -1,3 +1,11 @@
+**No More Signs of Life From Rubble of Collapsed School in Indonesia**\
+`Rescuers saved five more students from under the building on Thursday but said they would end the search three days after the deadly accident.`\
+https://nytimes.com/2025/10/02/world/asia/indonesia-school-collapse.html
+
+**Champions League 2025-26 Projections: Who will lift the trophy in Budapest on May 30?**\
+`Our Opta-powered Champions League projections update after each matchday`\
+https://nytimes.com/athletic/6630404/2025/10/02/champions-league-projections-2025-26/
+
 **Knives Out at the New Dior**\
 `Jonathan Anderson showed his first women’s wear collection for the brand, and it was a scream.`\
 https://nytimes.com/2025/10/02/style/dior-jonathan-anderson-spring-2026.html
