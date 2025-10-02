@@ -1,3 +1,5 @@
+
+
 **How the Government Shutdown Could Affect Environmental Agencies**\
 `If a shutdown continues, it could interrupt the Environmental Protection Agency’s work and pull workers from maintaining national parks.`\
 https://nytimes.com/2025/10/02/climate/how-the-government-shutdown-could-affect-environmental-agencies.html
