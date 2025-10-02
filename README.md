@@ -1,3 +1,11 @@
+**Trump Offered Universities an Invitation for a Deal. Some See a Trap.**\
+`Trump officials want universities to sign on to conservative priorities to get special treatment. Some in higher education say agreeing would end academic freedom.`\
+https://nytimes.com/2025/10/02/us/trump-universities-compact-funding.html
+
+**Trump’s ‘Compact’ With Universities Is Just Extortion**\
+`There seems to be no limit to the president’s odious attempts to control higher education.`\
+https://nytimes.com/2025/10/02/opinion/trump-compact-universities-constitution.html
+
 **Kennedy Fires N.I.H. Scientist Who Filed Whistle-Blower Complaint**\
 `Dr. Jeanne Marrazzo, who was on administrative leave, alleged that the Trump administration had defied court orders and undermined vaccine research.`\
 https://nytimes.com/2025/10/02/health/kennedy-marrazzo-nih.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6684259/2025/10/02/tigers-guardians-score-results-g
 **Mammoth v. Mammoth: Unpacking the NHL team's legal dispute with a hockey bag company**\
 `How did the newly formed Utah Mammoth become embroiled in a legal battle with an Oregon company?`\
 https://nytimes.com/athletic/6683633/2025/10/02/utah-mammoth-nickname-hockey-trademark-dispute/
-
-**Partisan Language Inserted Into Education Dept. Workers’ Automated Emails**\
-`The out-of-office responses from the accounts of employees on furlough cast blame for the shutdown on Democrats.`\
-https://nytimes.com/2025/10/02/us/politics/education-dept-shutdown-emails.html
-
-**What ‘One Battle After Another’ Achieves**\
-`Paul Thomas Anderson uses Leonardo DiCaprio as a bait and switch that might add up to the director’s best movie yet.`\
-https://nytimes.com/video/podcasts/100000010428564/what-one-battle-after-another-achieves.html
 
