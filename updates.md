@@ -1,3 +1,7 @@
+**Padres' Mason Miller sets two postseason records in win over Cubs: ‘Have never seen dominance like that’**\
+`Just a little over two months after Mason Miller was acquired by the Padres at the deadline, he put on a postseason show to remember.`\
+https://nytimes.com/athletic/6682149/2025/10/01/padres-mason-miller-postseason-mlb/
+
 **Social Media’s Changing Narrative of the Israel-Gaza War**\
 `Nearly two years into the conflict, social media is increasingly capturing the day-to-day toll in Gaza, as U.S. public opinion on the war shifts.`\
 https://nytimes.com/2025/10/01/business/israel-gaza-war-social-media.html
