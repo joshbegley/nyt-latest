@@ -1,3 +1,15 @@
+**Manchester’s Mayor Had Criticized Starmer. The Synagogue Attack Could Unite Them.**\
+`Violent attacks often bring even fierce political rivals together in the hours and days after they occur.`\
+https://nytimes.com/2025/10/02/world/europe/uk-synagogue-attack-manchester-mayor-burnham-starmer.html
+
+**A Day in the Life of a Teenager**\
+`Students share their average and not-so-average daily routines.`\
+https://nytimes.com/2025/10/02/learning/a-day-in-the-life-of-a-teenager.html
+
+**Leo Hindery Jr., Dealmaking Power in the Cable TV Industry, Dies at 77**\
+`He was president of one of the nation’s largest cable operators and chairman of the Yankees’ YES Network. He also drove his sports car to victory in the 24 Hours of Le Mans.`\
+https://nytimes.com/2025/10/02/business/dealbook/leo-hindery-dead.html
+
 **‘Appalled,’ ‘horrified,’ ‘sickening’: Leaders and residents condemn the Manchester attack.**\
 `By Johnatan Reiss, Jeanna Smialek, Emma Bubola and Stephen Castle`\
 https://nytimes.com/live/2025/10/02/world/manchester-synagogue-stabbing-uk/appalled-horrified-sickening-leaders-and-residents-condemn-the-manchester-attack
