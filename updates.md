@@ -1,3 +1,11 @@
+**‘The Honey Trap’ Review: A Thriller That Keeps Audiences Rapt Until the End**\
+`For a British soldier, a fatal night out breeds a hunger for revenge in Leo McGann’s suspenseful play at Irish Repertory Theater.`\
+https://nytimes.com/2025/10/02/theater/the-honey-trap-review-irish-rep.html
+
+**Champions League projections: Arsenal are now favourites but PSG on the rise after round two**\
+`An analysis of the state of play in Europe's premier club competition following the conclusion of the second round of fixtures`\
+https://nytimes.com/athletic/6683016/2025/10/02/champions-league-projections-arsenal-psg-real-madrid-liverpool/
+
 **Coach Ryan Huska, Flames agree to 2-year contract extension**\
 `The Cranbrook, B.C., native has been head coach of the Flames since June 2023, when he succeeded Darryl Sutter.`\
 https://nytimes.com/athletic/6683750/2025/10/02/flames-ryan-huska-contract-extension/

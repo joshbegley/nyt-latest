@@ -1,3 +1,11 @@
+**Do the Trump Reprisals Set a Precedent?**\
+`Responses to a news analysis about the possible effects of President Trump’s reprisals. Also: Cultural exchanges; roots of political violence; A.I.`\
+https://nytimes.com/2025/10/02/opinion/trump-reprisals.html
+
+**Singapore Grand Prix declared a heat hazard: What does it mean for the race?**\
+`It’s forecast that temperatures will reach above 31ºC (87.8º F) during the Singapore Grand Prix`\
+https://nytimes.com/athletic/6683387/2025/10/02/f1-singapore-gp-heat-hazard-race-weather/
+
 **‘The Honey Trap’ Review: A Thriller That Keeps Audiences Rapt Until the End**\
 `For a British soldier, a fatal night out breeds a hunger for revenge in Leo McGann’s suspenseful play at Irish Repertory Theater.`\
 https://nytimes.com/2025/10/02/theater/the-honey-trap-review-irish-rep.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6679614/2025/10/02/alex-ovechkin-cereal-memorabilia
 **‘Anemone’ Review: Daniel Day-Lewis Is Too Big for Some Movies**\
 `After announcing his retirement from acting eight years ago, the performer returns in a drama directed by his son Ronan Day-Lewis.`\
 https://nytimes.com/2025/10/02/movies/anemone-review-daniel-day-lewis.html
-
-**Trump ‘Determined’ the U.S. Is Now in a War With Drug Cartels, Congress Is Told**\
-`A notice calls the people the U.S. military recently killed on suspicion of drug smuggling in the Caribbean Sea “unlawful combatants.”`\
-https://nytimes.com/2025/10/02/us/politics/trump-drug-cartels-war.html
-
-**Champions League projections: Arsenal are now favourites but PSG on the rise after round two**\
-`An analysis of the state of play in Europe's premier club competition following the conclusion of the second round of fixtures`\
-https://nytimes.com/athletic/6683016/2025/10/02/champions-league-projections-arsenal-psg-real-madrid-liverpool/
 
