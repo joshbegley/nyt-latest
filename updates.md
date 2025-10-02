@@ -1,3 +1,7 @@
+**Here’s the latest.**\
+`By Shawn McCreesh and Tony Romm`\
+https://nytimes.com/live/2025/10/02/us/trump-government-shutdown/here-is-the-latest
+
 **Fantasy football redraft trade value chart: Puka Nacua, CMC command top dollar**\
 `Jakob Sanderson crunches the numbers to provide a fantasy football player valuation guide for those looking to shop in the trade market.`\
 https://nytimes.com/athletic/6680231/2025/10/02/fantasy-football-trade-value-tiers-chart-puka-nacua-christian-mccaffrey/
