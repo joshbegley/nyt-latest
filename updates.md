@@ -1,3 +1,7 @@
+**For Workers, Mixed Signals. For the Public, Limited Impact on Shutdown’s First Day.**\
+`Federal agencies gave shifting and mixed guidance to their work forces about who should come to work and who shouldn’t, but the initial effect on services appeared scattered and limited.`\
+https://nytimes.com/2025/10/01/us/politics/for-workers-mixed-signals-for-the-public-limited-impact-on-shutdowns-first-day.html
+
 **‘Dangerous Cities,’ the Military, Trump and the Founding Fathers**\
 `The U.S. armed services have long sought to preserve the tradition of a nonpartisan military.`\
 https://nytimes.com/2025/10/01/us/politics/trump-military-founding-fathers.html
