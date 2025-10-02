@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6683464/2025/10/02/gareth-viccars-sentence-trial-efl/
 
+**Ex-EFL match official sentenced to 13.5 years over 16 child sex offences**\
+`In her sentencing remarks in court today, Judge Caroline English told Viccars his behaviour was “persistent, manipulative and predatory”.
+`\
+https://nytimes.com/athletic/6683464/2025/10/02/gareth-viccars-sentence-trial-efl/
+
 **Why the Covid Shot Is Safe for Pregnant Women**\
 `Mixed messaging from federal health officials has caused confusion around the safety of the Covid vaccine for pregnant women. But the shot has been proven to protect women and their babies. Maggie Astor, a Times reporter for Well, explains.`\
 https://nytimes.com/video/well/100000010430621/the-covid-shot-is-safe-for-pregnant-women-heres-why.html
