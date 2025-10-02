@@ -1,3 +1,15 @@
+**What was behind Federico Valverde's angry social media post?**\
+`The Uruguayan hit back at critics on Wednesday, and it all stems from a debate over the position he plays for new coach Xabi Alonso`\
+https://nytimes.com/athletic/6680339/2025/10/02/federico-valverde-social-media-controvery-explained/
+
+**Wirtz is struggling. Here's why - and what Liverpool can do to help him**\
+`The German has had a faltering start to life at Anfield after a £116m summer move but there is no need to panic, yet`\
+https://nytimes.com/athletic/6679764/2025/10/02/florian-wirtz-stats-form-liverpool/
+
+**Graham Potter and a sacked manager's next steps. What if he just did… nothing?**\
+`How refreshing it would be if he chose a different path to just searching for a way back onto the coaching merry-go-round`\
+https://nytimes.com/athletic/6676739/2025/10/02/graham-potter-sacked-mananger-next-steps/
+
 **Crystal Palace are on the cusp of their longest-ever unbeaten run. What is your club's?**\
 `Palace last lost a match on April 16 — 5-0 away at Newcastle United — and since then have gone unbeaten to move level with the 1969 team`\
 https://nytimes.com/athletic/6676385/2025/10/02/crystal-palace-unbeaten-run-premier-league/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6682295/2025/10/01/us-open-cup-nashville-surridge-a
 **In East Timor, U.S. Retreats From Plan to Build ‘Lifesaving’ Sewage Plant**\
 `A U.S. aid agency had committed hundreds of millions of dollars to the project, which could help provide clean water. Now its board wants to pull out of the agreement.`\
 https://nytimes.com/2025/10/01/world/asia/east-timor-us-aid-sewage.html
-
-**Yohe's 10 observations: Penguins' youth movement on full display once again**\
-`The young Penguins prospects led the way again in a 5-3 preseason win over Buffalo on Wednesday. `\
-https://nytimes.com/athletic/6680327/2025/10/01/penguins-sabres-nhl-preseason-prospects/
-
-**Comedian Heather McMahan apologizes for participating in Rory McIlroy chant**\
-`"Even just saying it once, was so foolish and so silly of me," McMahan said on her podcast about the incident.`\
-https://nytimes.com/athletic/6682145/2025/10/01/heather-mcmahan-rory-mcilroy-chant-apology/
-
-**'Have never seen dominance like that': Padres' Mason Miller sets 2 postseason records in win over Cubs**\
-`Just a little over two months after Miller was acquired by the Padres at the deadline, he put on a postseason show to remember.`\
-https://nytimes.com/athletic/6682149/2025/10/01/padres-mason-miller-postseason-mlb/
 
