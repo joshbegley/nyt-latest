@@ -1,3 +1,7 @@
+**When Cardi B Raps the Way She Tweets**\
+`The New York rapper is at her best when she’s emotionally direct, as on her new track “Man of Your Word,” our critic’s latest song of the week.`\
+https://nytimes.com/video/podcasts/100000010435369/when-cardi-b-raps-the-way-she-tweets.html
+
 **Liverpool's Alisson likely out until November international break**\
 `Summer arrival Giorgi Mamardashvili will deputise in place of Alisson for the next few weeks.`\
 https://nytimes.com/athletic/6681156/2025/10/02/alisson-hamstring-injury-liverpool-update/

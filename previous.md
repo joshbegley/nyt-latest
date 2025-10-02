@@ -1,3 +1,7 @@
+**When Cardi B Raps the Way She Tweets**\
+`The New York rapper is at her best when she’s emotionally direct, as on her new track “Man of Your Word,” our critic’s latest song of the week.`\
+https://nytimes.com/video/podcasts/100000010435369/when-cardi-b-raps-the-way-she-tweets.html
+
 **Liverpool's Alisson likely out until November international break**\
 `Summer arrival Giorgi Mamardashvili will deputise in place of Alisson for the next few weeks.`\
 https://nytimes.com/athletic/6681156/2025/10/02/alisson-hamstring-injury-liverpool-update/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6683750/2025/10/02/flames-ryan-huska-contract-exten
 **Manchester Has Long Been Home to Diverse Communities**\
 `Manchester is home to Britain’s largest Jewish community outside London, as well as many other ethnic and religious groups.`\
 https://nytimes.com/2025/10/02/world/europe/manchester-diverse-communities.html
-
-**OpenAI’s New Video App Is Jaw-Dropping (for Better and Worse)**\
-`Sora, OpenAI’s new video-generating app, is really a social network in disguise that can bring creative A.I. to the masses — and its problems, too.`\
-https://nytimes.com/2025/10/02/technology/openai-sora-video-app.html
 
