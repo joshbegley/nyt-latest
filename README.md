@@ -1,3 +1,7 @@
+**Leo Hindery Jr., Dealmaking Power in the Cable TV Industry, Dies at 77**\
+`He was president of one of the nation’s largest cable operators and chairman of the Yankees’ YES Network. He also drove his sports car to victory in the 24 Hours of Le Mans.`\
+https://nytimes.com/2025/10/02/business/dealbook/leo-hindery-dead.html
+
 **‘Appalled,’ ‘horrified,’ ‘sickening’: Leaders and residents condemn the Manchester attack.**\
 `By Johnatan Reiss, Jeanna Smialek, Emma Bubola and Stephen Castle`\
 https://nytimes.com/live/2025/10/02/world/manchester-synagogue-stabbing-uk/appalled-horrified-sickening-leaders-and-residents-condemn-the-manchester-attack
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/africa/100000010433171/what-we-know-about-the-pr
 **Suns, Mercury arena renamed Mortgage Matchup Center in $115 million deal**\
 `Opened in 1992, the downtown Phoenix arena has hosted major sports, concerts, with multiple name changes and renovations over time.`\
 https://nytimes.com/athletic/6683834/2025/10/02/suns-mercury-arena-renamed-mortgage-matchup-center/
-
-**When Cardi B Raps the Way She Tweets**\
-`The New York rapper is at her best when she’s emotionally direct, as on her new track “Man of Your Word,” our critic’s latest song of the week.`\
-https://nytimes.com/video/podcasts/100000010435369/when-cardi-b-raps-the-way-she-tweets.html
 

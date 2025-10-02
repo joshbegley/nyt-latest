@@ -1,3 +1,7 @@
+**‘Appalled,’ ‘horrified,’ ‘sickening’: Leaders and residents condemn the Manchester attack.**\
+`By Johnatan Reiss, Jeanna Smialek, Emma Bubola and Stephen Castle`\
+https://nytimes.com/live/2025/10/02/world/manchester-synagogue-stabbing-uk/appalled-horrified-sickening-leaders-and-residents-condemn-the-manchester-attack
+
 **Costly and Deadly Wildfires Really Are on the Rise, New Research Finds**\
 `The past decade in particular has seen an uptick in devastating blazes linked to climate change, according to the study.`\
 https://nytimes.com/2025/10/02/climate/wildfire-damage-increasing.html
