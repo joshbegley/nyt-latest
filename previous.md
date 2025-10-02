@@ -1,3 +1,7 @@
+**Coach Ryan Huska, Flames agree to 2-year contract extension**\
+`The Cranbrook, B.C., native has been head coach of the Flames since June 2023, when he succeeded Darryl Sutter.`\
+https://nytimes.com/athletic/6683750/2025/10/02/flames-ryan-huska-contract-extension/
+
 **Manchester Has Long Been Home to Diverse Communities**\
 `Manchester is home to Britain’s largest Jewish community outside London, as well as many other ethnic and religious groups.`\
 https://nytimes.com/2025/10/02/world/europe/manchester-diverse-communities.html
@@ -29,12 +33,4 @@ https://nytimes.com/athletic/6683016/2025/10/02/champions-league-projections-ars
 **Six rising 2026 NFL Draft prospects who belong in top 50 conversation**\
 `Arvell Reese, Dante Moore and other draft hopefuls have made a big impact early in the college football season.`\
 https://nytimes.com/athletic/6681047/2025/10/02/nfl-draft-2026-risers-dante-moore-arvell-reese/
-
-**It’s a Bad Time to Cut the Information Coming From Corporate America**\
-`President Trump wants the S.E.C. to reduce the frequency of corporate earnings reports. Our columnist says it’s a reasonable experiment, but at a dangerous time.`\
-https://nytimes.com/2025/10/02/business/trump-earnings-reports-investing-stocks.html
-
-**Democrats Pull Away From AIPAC, Reflecting a Broader Shift**\
-`A quiet retreat by Democrats from the pre-eminent pro-Israel lobbying group is the latest evidence of a realignment underway in Congress on Israel.`\
-https://nytimes.com/2025/10/02/us/politics/democrats-aipac.html
 

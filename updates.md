@@ -1,3 +1,7 @@
+**Coach Ryan Huska, Flames agree to 2-year contract extension**\
+`The Cranbrook, B.C., native has been head coach of the Flames since June 2023, when he succeeded Darryl Sutter.`\
+https://nytimes.com/athletic/6683750/2025/10/02/flames-ryan-huska-contract-extension/
+
 **Manchester Has Long Been Home to Diverse Communities**\
 `Manchester is home to Britain’s largest Jewish community outside London, as well as many other ethnic and religious groups.`\
 https://nytimes.com/2025/10/02/world/europe/manchester-diverse-communities.html
