@@ -1,3 +1,7 @@
+**Knives Out at the New Dior**\
+`Jonathan Anderson showed his first women’s wear collection for the brand, and it was a scream.`\
+https://nytimes.com/2025/10/02/style/dior-jonathan-anderson-spring-2026.html
+
 **Colbert Suggests Unplugging the Government Then Turning It on Again**\
 `“If that doesn’t work, maybe toss it in a bag of rice,” the “Late Show” host Stephen Colbert said a day after the U.S. government shut down.`\
 https://nytimes.com/2025/10/02/arts/television/colbert-government-shutdown.html

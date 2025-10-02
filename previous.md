@@ -1,3 +1,7 @@
+**Knives Out at the New Dior**\
+`Jonathan Anderson showed his first women’s wear collection for the brand, and it was a scream.`\
+https://nytimes.com/2025/10/02/style/dior-jonathan-anderson-spring-2026.html
+
 **Colbert Suggests Unplugging the Government Then Turning It on Again**\
 `“If that doesn’t work, maybe toss it in a bag of rice,” the “Late Show” host Stephen Colbert said a day after the U.S. government shut down.`\
 https://nytimes.com/2025/10/02/arts/television/colbert-government-shutdown.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/02/learning/word-of-the-day-extol.html
 **Pep Guardiola has established Manchester City's trusted base. Now all he craves is consistency**\
 `This remodelled team have the quality to play brilliant football, but there are still too many moving parts to achieve 90-minute dominance`\
 https://nytimes.com/athletic/6681248/2025/10/02/manchester-city-monaco-guardiola-champions-league/
-
-**An appreciation of an Arsenal defence that has conceded one open-play goal this season**\
-`Much of the focus has been on the forward line after heavy summer spending but the defence is providing a platform for them to excel`\
-https://nytimes.com/athletic/6681576/2025/10/02/arsenal-defence-olympiacos-arteta/
 

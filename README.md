@@ -1,6 +1,14 @@
+**No More Signs of Life From Rubble of Collapsed School in Indonesia**\
+`Rescuers saved five more students from under the building on Thursday but said they would end the search three days after the deadly accident.`\
+https://nytimes.com/2025/10/02/world/asia/indonesia-school-collapse.html
+
 **Knives Out at the New Dior**\
 `Jonathan Anderson showed his first women’s wear collection for the brand, and it was a scream.`\
 https://nytimes.com/2025/10/02/style/dior-jonathan-anderson-spring-2026.html
+
+**Champions League 2025-26 Projections: Who will lift the trophy in Budapest on May 30?**\
+`Our Opta-powered Champions League projections update after each matchday`\
+https://nytimes.com/athletic/6630404/2025/10/02/champions-league-projections-2025-26/
 
 **Colbert Suggests Unplugging the Government Then Turning It on Again**\
 `“If that doesn’t work, maybe toss it in a bag of rice,” the “Late Show” host Stephen Colbert said a day after the U.S. government shut down.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6682518/2025/10/02/red-sox-vs-yankees-stream-how-to
 **Seven seconds, seven touches, 70 yards... a slaloming assist that showed De Bruyne has still got it**\
 `The Belgian set up two goals for Rasmus Hojlund as Napoli beat Sporting CP, the first with a particularly beautiful run and pass...`\
 https://nytimes.com/athletic/6681253/2025/10/02/de-bruyne-assist-napoli-hojlund/
-
-**Word of the Day: extol**\
-`This word has appeared in 21 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/10/02/learning/word-of-the-day-extol.html
-
-**Pep Guardiola has established Manchester City's trusted base. Now all he craves is consistency**\
-`This remodelled team have the quality to play brilliant football, but there are still too many moving parts to achieve 90-minute dominance`\
-https://nytimes.com/athletic/6681248/2025/10/02/manchester-city-monaco-guardiola-champions-league/
 
