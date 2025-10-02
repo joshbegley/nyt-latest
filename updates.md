@@ -1,3 +1,11 @@
+**Do the Trump Reprisals Set a Precedent?**\
+`Responses to a news analysis about the possible effects of President Trump’s reprisals. Also: Cultural exchanges; roots of political violence; A.I.`\
+https://nytimes.com/2025/10/02/opinion/trump-reprisals.html
+
+**Singapore Grand Prix declared a heat hazard: What does it mean for the race?**\
+`It’s forecast that temperatures will reach above 31ºC (87.8º F) during the Singapore Grand Prix`\
+https://nytimes.com/athletic/6683387/2025/10/02/f1-singapore-gp-heat-hazard-race-weather/
+
 **‘The Honey Trap’ Review: A Thriller That Keeps Audiences Rapt Until the End**\
 `For a British soldier, a fatal night out breeds a hunger for revenge in Leo McGann’s suspenseful play at Irish Repertory Theater.`\
 https://nytimes.com/2025/10/02/theater/the-honey-trap-review-irish-rep.html
