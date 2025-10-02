@@ -1,3 +1,15 @@
+**College football picks ATS: FSU-Miami, Alabama-Vanderbilt rematch highlight Week 6**\
+`Miami at Florida State and Vanderbilt at Alabama are the highlight games this week. Our staff picks those games and more against the spread.`\
+https://nytimes.com/athletic/6677890/2025/10/02/college-football-picks-spread-florida-state-miami-week-6/
+
+**Raptors trying to produce even more pressure this year: 'We're not going to die on the court'**\
+`The Raptors say they're going all out when it comes to on-ball intensity this season. `\
+https://nytimes.com/athletic/6681280/2025/10/02/toronto-raptors-pressure-darko-rajakovic-ochai-agbaji/
+
+**Eastern Conference storylines to watch, from Mike Brown's impact to Detroit's next step**\
+`With injuries hobbling the Pacers and Celtics, Fred Katz looks at some of the storylines he's watching in the Eastern Conference.`\
+https://nytimes.com/athletic/6656340/2025/10/02/cleveland-cavaliers-core-magic-offense-storylines/
+
 **The High Stakes of the U.N. Climate Talks**\
 `At a Climate Forward Live event, André Corrêa do Lago, the head of the United Nations climate negotiations this year, about the United States’ evolving role in the discussions.`\
 https://nytimes.com/2025/10/02/climate/climate-forward-andre-correa-do-lago.html
