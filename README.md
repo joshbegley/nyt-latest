@@ -1,3 +1,7 @@
+**‘A Crazy Moment’: Shock and Terror Spreads in Manchester Synagogue’s Community**\
+`Many Orthodox Jews who live in the area reacted with horror to an attack that killed two people and seriously injured three on Yom Kippur, Judaism’s holiest day.`\
+https://nytimes.com/2025/10/02/world/europe/manchester-synagogue-neighborhood.html
+
 **F.D.A. Approves a New Generic Abortion Pill**\
 `The decision enraged opponents of abortion, who have been pressuring the administration to restrict access to abortion medication.`\
 https://nytimes.com/2025/10/02/health/abortion-pill-generic-fda.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/02/nyregion/nyc-mayor-ads-mamdani-cuomo-sliwa.html
 **Conservatives vs. Hasan Piker**\
 `Hasan Piker argues Democrats are struggling to construct effective media narratives. On “Interesting Times,” he tells Ross Douthat why he thinks conservatives are better at pushing their message.`\
 https://nytimes.com/video/opinion/100000010423877/conservatives-vs-hasan-piker.html
-
-**Behind the U.S. Deportation Flight to Iran**\
-`The deportation flight to Iran signals the Trump administration’s determination to remove migrants, even to places with harsh human rights conditions. Hamed Aleaziz, a reporter covering immigration for The New York Times, explains what we know about the effort.`\
-https://nytimes.com/video/us/100000010432925/behind-the-us-deportation-flight-to-iran.html
 
