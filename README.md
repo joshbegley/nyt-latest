@@ -1,3 +1,7 @@
+**Here’s how the U.K. police determine whether an attack is terrorism.**\
+`The authorities have not yet said whether an attack at a synagogue in Manchester is considered to be an act of terrorism.`\
+https://nytimes.com/live/2025/10/02/world/manchester-synagogue-stabbing-uk/heres-how-the-uk-police-determine-whether-an-attack-is-terrorism
+
 **James out for up to six weeks with ankle injury, Farke confirms**\
 `The injury will likely sideline James until the November international break.`\
 https://nytimes.com/athletic/6683130/2025/10/02/dan-james-leeds-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/02/world/africa/morocco-protests-gen-z.html
 **Two Killed in Attack Outside Synagogue in Manchester, England**\
 `The police said two people had been killed and others injured in a vehicle ramming and stabbing attack outside a synagogue in Manchester, in northwestern England. The attack happened on Yom Kippur, the holiest day on the Jewish calendar.`\
 https://nytimes.com/video/world/europe/100000010434814/attack-stabbing-synagogue-manchester-england.html
-
-**Trump Calls Shutdown an ‘Unprecedented Opportunity,’ and Eyes Deep Cuts**\
-`The president plans to meet with the White House budget chief to slash what he described as “Democratic agencies.”`\
-https://nytimes.com/2025/10/02/business/trump-vought-shutdown-cuts.html
 
