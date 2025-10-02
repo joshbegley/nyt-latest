@@ -1,3 +1,7 @@
+**Key fantasy football questions for Week 5: Who takes the lead at RB for Cardinals, Bucs?**\
+`The NFL's vaunted rookie RB class might finally be meeting its great expectations.`\
+https://nytimes.com/athletic/6683328/2025/10/02/key-fantasy-football-questions-for-week-5-whos-the-lead-rb-for-cardinals-bucs/
+
 **Norovirus Outbreak Sickens Nearly 100 on Royal Caribbean Cruise**\
 `Four crew members and 94 passengers came down with norovirus while sailing from San Diego to Miami.`\
 https://nytimes.com/2025/10/02/travel/norovirus-cruise-royal-caribbean.html
