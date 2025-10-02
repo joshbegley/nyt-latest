@@ -19,7 +19,7 @@ https://nytimes.com/athletic/6681253/2025/10/02/de-bruyne-assist-napoli-hojlund/
 https://nytimes.com/2025/10/02/learning/word-of-the-day-extol.html
 
 **Pep Guardiola has established Manchester City's trusted base. Now all he craves is consistency**\
-`This remodelled team has the quality to play brilliant football, but there are still too many moving parts to achieve 90-minute dominance`\
+`This remodelled team have the quality to play brilliant football, but there are still too many moving parts to achieve 90-minute dominance`\
 https://nytimes.com/athletic/6681248/2025/10/02/manchester-city-monaco-guardiola-champions-league/
 
 **An appreciation of an Arsenal defence that has conceded one open-play goal this season**\

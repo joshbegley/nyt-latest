@@ -1,3 +1,7 @@
+**Pep Guardiola has established Manchester City's trusted base. Now all he craves is consistency**\
+`This remodelled team have the quality to play brilliant football, but there are still too many moving parts to achieve 90-minute dominance`\
+https://nytimes.com/athletic/6681248/2025/10/02/manchester-city-monaco-guardiola-champions-league/
+
 **How to watch Chiefs at Jaguars: Time, TV, streaming**\
 `Find out how to watch the Kansas City Chiefs play the Jacksonville Jaguars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6682535/2025/10/02/chiefs-vs-jaguars-stream-how-to-watch-oct-6/
