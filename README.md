@@ -1,3 +1,11 @@
+**Breaking down the moment Lille’s goalkeeper saved the same penalty three times**\
+`European nights in Rome have delivered plenty of drama, but tonight produced something so wildly improbable it might just top them all`\
+https://nytimes.com/athletic/6684453/2025/10/02/roma-lille-penalty-retaken-analysis/
+
+**‘Bummed’ Visitors Are Turned Away From Closed Presidential Library**\
+`Several would-be visitors were turned away from the museum honoring former President Jimmy Carter in Atlanta, one of many presidential libraries affected by the shutdown.`\
+https://nytimes.com/2025/10/02/us/politics/bummed-visitors-are-turned-away-from-closed-presidential-library.html
+
 **Tesla Is Sued by Family Who Says Faulty Doors Led to Daughter’s Death**\
 `A college student was trapped in a burning Cybertruck because electronic doors made it difficult for her to get out or be rescued, a lawsuit claims.`\
 https://nytimes.com/2025/10/02/business/tesla-cybertruck-doors-lawsuit-california.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/02/dining/government-shutdown-restaurants-discounts.
 **Karl-Anthony Towns' movement, Mitchell Robinson starts and more: Knicks observations**\
 `The Knicks opened their preseason with a win over the Sixers, here's what we learned. `\
 https://nytimes.com/athletic/6683605/2025/10/02/knicks-preseason-observations-sixers-abu-dhabi/
-
-**Police Seize Possible Forgeries From Dalí Show in Italy**\
-`The show’s curator stands by the authenticity of lithographs by the Surrealist artist, saying he has the documents to prove it.`\
-https://nytimes.com/2025/10/02/arts/design/dali-fakes-forgeries-italy.html
-
-**Three Killed During Anti-Government Protests in Morocco**\
-`Demonstrators across Morocco, upset over heavy government spending on the 2030 World Cup rather than public services, clashed with the police during protests, resulting in the deaths of three people.`\
-https://nytimes.com/video/world/africa/100000010435194/three-killed-during-morocco-anti-government-protests.html
 
