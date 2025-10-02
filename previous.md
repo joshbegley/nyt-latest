@@ -1,3 +1,7 @@
+**Three questions for the Guardians' offseason**\
+`Could an extension or trade be on the table for Steven Kwan this winter? `\
+https://nytimes.com/athletic/6684184/2025/10/02/cleveland-guardians-offseason-questions/
+
 **Trump Offered Universities an Invitation for a Deal. Some See a Trap.**\
 `Trump officials want universities to sign on to conservative priorities to get special treatment. Some in higher education say agreeing would end academic freedom.`\
 https://nytimes.com/2025/10/02/us/trump-universities-compact-funding.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/02/world/europe/britain-antisemitism-manchester.html
 **Tigers-Guardians Game 3 takeaways: Explosive inning sends Detroit to ALDS**\
 `The Tigers will take on the Seattle Mariners in Game 1 of the AL Division Series on Saturday.`\
 https://nytimes.com/athletic/6684259/2025/10/02/tigers-guardians-score-results-game-3-takeaways-mlb/
-
-**Mammoth v. Mammoth: Unpacking the NHL team's legal dispute with a hockey bag company**\
-`How did the newly formed Utah Mammoth become embroiled in a legal battle with an Oregon company?`\
-https://nytimes.com/athletic/6683633/2025/10/02/utah-mammoth-nickname-hockey-trademark-dispute/
 

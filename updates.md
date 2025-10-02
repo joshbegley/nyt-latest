@@ -1,3 +1,7 @@
+**Three questions for the Guardians' offseason**\
+`Could an extension or trade be on the table for Steven Kwan this winter? `\
+https://nytimes.com/athletic/6684184/2025/10/02/cleveland-guardians-offseason-questions/
+
 **Trump Offered Universities an Invitation for a Deal. Some See a Trap.**\
 `Trump officials want universities to sign on to conservative priorities to get special treatment. Some in higher education say agreeing would end academic freedom.`\
 https://nytimes.com/2025/10/02/us/trump-universities-compact-funding.html
