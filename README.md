@@ -1,5 +1,13 @@
-**Padres' Mason Miller sets two postseason records in win over Cubs: ‘Have never seen dominance like that’**\
-`Just a little over two months after Mason Miller was acquired by the Padres at the deadline, he put on a postseason show to remember.`\
+**Yohe's 10 observations: Penguins' youth movement on full display once again**\
+`The young Penguins prospects led the way again in a 5-3 preseason win over Buffalo on Wednesday. `\
+https://nytimes.com/athletic/6680327/2025/10/01/penguins-sabres-nhl-preseason-prospects/
+
+**Comedian Heather McMahan apologizes for participating in Rory McIlroy chant**\
+`"Even just saying it once, was so foolish and so silly of me," McMahan said on her podcast about the incident.`\
+https://nytimes.com/athletic/6682145/2025/10/01/heather-mcmahan-rory-mcilroy-chant-apology/
+
+**'Have never seen dominance like that': Padres' Mason Miller sets 2 postseason records in win over Cubs**\
+`Just a little over two months after Miller was acquired by the Padres at the deadline, he put on a postseason show to remember.`\
 https://nytimes.com/athletic/6682149/2025/10/01/padres-mason-miller-postseason-mlb/
 
 **Social Media’s Changing Narrative of the Israel-Gaza War**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6681633/2025/10/01/cubs-loss-machado-pitch-imanaga/
 **Federal Agency Faults Philadelphia Transit Agency Over Train Fires**\
 `The National Transportation Safety Board said hundreds of aging rail cars should be taken out of service until they can be replaced or retrofitted.`\
 https://nytimes.com/2025/10/01/us/ntsb-philadelphia-septa-train-cars.html
-
-**The Guardians waited all year for George Valera, Chase DeLauter. They arrived just in time**\
-`They've been two of Cleveland’s best prospects for several years, but injuries prevented them from debuting. Now, the gang's all here.`\
-https://nytimes.com/athletic/6681710/2025/10/01/guardians-tigers-al-wild-card-game-2-george-valera-chase-delauter/
-
-**Can Cubs find their hitting mojo in winner-take-all Game 3?**\
-`One team will seize the opportunity and head to Milwaukee for the NLDS. The Cubs are hoping they'll meet the moment at Wrigley.`\
-https://nytimes.com/athletic/6681617/2025/10/01/cubs-padres-nl-wild-card-series-game-2/
 
