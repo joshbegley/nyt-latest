@@ -1,3 +1,7 @@
+**Padres' Mason Miller sets two postseason records in win over Cubs: ‘Have never seen dominance like that’**\
+`Just a little over two months after Mason Miller was acquired by the Padres at the deadline, he put on a postseason show to remember.`\
+https://nytimes.com/athletic/6682149/2025/10/01/padres-mason-miller-postseason-mlb/
+
 **Social Media’s Changing Narrative of the Israel-Gaza War**\
 `Nearly two years into the conflict, social media is increasingly capturing the day-to-day toll in Gaza, as U.S. public opinion on the war shifts.`\
 https://nytimes.com/2025/10/01/business/israel-gaza-war-social-media.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6681710/2025/10/01/guardians-tigers-al-wild-card-ga
 **Can Cubs find their hitting mojo in winner-take-all Game 3?**\
 `One team will seize the opportunity and head to Milwaukee for the NLDS. The Cubs are hoping they'll meet the moment at Wrigley.`\
 https://nytimes.com/athletic/6681617/2025/10/01/cubs-padres-nl-wild-card-series-game-2/
-
-**Warriors confident Jonathan Kuminga will be focused after contract saga**\
-`Steve Kerr says that with "alpha" leaders on roster, "I'm not worried about anything."`\
-https://nytimes.com/athletic/6681678/2025/10/01/jonathan-kuminga-camp-golden-state-warriors/
 
