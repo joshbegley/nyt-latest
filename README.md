@@ -22,8 +22,8 @@ https://nytimes.com/athletic/6680715/2025/10/02/florida-gators-billy-napier-hot-
 `Derek Sprague, in his first year as CEO, said he has apologized to Rory and Erica McIlroy for what happened at Bethpage.`\
 https://nytimes.com/athletic/6681377/2025/10/02/ryder-cup-pga-america-ceo-sprague-apologize/
 
-**Live Updates: 4 People Injured After Stabbing Outside Synagogue in U.K., Police Say**\
-`The stabbing in Manchester, England, happened on Yom Kippur, the holiest day in the Jewish calendar.`\
+**Live Updates: 4 Injured in Car Ramming and Stabbing Outside U.K. Synagogue**\
+`The attack in Manchester, England, happened on Yom Kippur, the holiest day on the Jewish calendar. Police said the assailant had been shot.`\
 https://nytimes.com/live/2025/10/02/world/manchester-synagogue-stabbing-uk
 
 **Bruins training camp: 5 questions that need answering before the regular season**\
