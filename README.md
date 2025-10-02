@@ -1,3 +1,11 @@
+**‘Anemone’ Review: Daniel Day-Lewis Is Too Big for Some Movies**\
+`After announcing his retirement from acting eight years ago, the performer returns in a drama directed by his son Ronan Day-Lewis.`\
+https://nytimes.com/2025/10/02/movies/anemone-review-daniel-day-lewis.html
+
+**Trump ‘Determined’ the U.S. Is Now in a War With Drug Cartels, Congress Is Told**\
+`A notice calls the people the U.S. military recently killed on suspicion of drug smuggling in the Caribbean Sea “unlawful combatants.”`\
+https://nytimes.com/2025/10/02/us/politics/trump-drug-cartels-war.html
+
 **Champions League post-MD2 projections: Arsenal are now favourites but PSG on the rise**\
 `An analysis of the state of play in Europe's premier club competition following the conclusion of the second round of fixtures`\
 https://nytimes.com/athletic/6683016/2025/10/02/champions-league-projections-arsenal-psg-real-madrid-liverpool/
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6683354/2025/10/02/max-verstappen-sports-car-f1-rac
 **Italy Backs Trump’s Cease-Fire Plan as Public Demands More Help for Gaza**\
 `Italian lawmakers say they will recognize a Palestinian state if Hamas releases Israeli hostages and is kept out of any eventual government.`\
 https://nytimes.com/2025/10/02/world/europe/italy-palestinian-state-gaza-plan.html
-
-**Fantasy football injuries, cheat sheet Week 5: Purdy, Jennings and Pearsall out for TNF**\
-`Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 5 player rankings and more.`\
-https://nytimes.com/athletic/6679698/2025/10/02/fantasy-football-injuries-cheat-sheet-nfl-week-5/
-
-**Ann Fagan Ginger, Venerable Defender of Civil Liberties, Dies at 100**\
-`She was among the last of a generation of activists and lawyers who weathered the Red Scare, and then helped train a new cohort in the decades that followed.`\
-https://nytimes.com/2025/10/02/us/ann-fagan-ginger-dead.html
 
