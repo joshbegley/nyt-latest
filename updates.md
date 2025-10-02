@@ -1,3 +1,7 @@
+**Veterans See Costs and Risks in Hegseth’s Military Rewind to 1990**\
+`Defense Secretary Pete Hegseth has identified real problems, veteran officers say, but by looking back 35 years for policy cues, he risks hurting, not helping, military readiness.`\
+https://nytimes.com/2025/10/02/us/hegseth-military-veterans-standards.html
+
 **I.C.E. Transfers 18 Migrants From Guantánamo, Emptying Detention Site**\
 `Fewer than 700 migrants have been held at the U.S. Navy base under a crackdown on illegal immigration, though the detention site was envisioned to hold tens of thousands in tent cities.`\
 https://nytimes.com/2025/10/02/us/politics/migrants-guantanamo-detention-removal.html
