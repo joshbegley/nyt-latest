@@ -1,4 +1,8 @@
 **Trump Administration Asks Colleges to Sign ‘Compact’ to Get Funding Preference**\
+`Demands sent to nine top schools included pledging to freeze tuition for five years and to commit to strict definitions of gender.`\
+https://nytimes.com/2025/10/02/us/politics/trump-college-funding.html
+
+**Trump Administration Asks Colleges to Sign ‘Compact’ to Get Funding Preference**\
 `Demands sent to nine top schools included pledging not to use race or sex in hiring or admissions and to freeze tuition for five years.`\
 https://nytimes.com/2025/10/02/us/politics/trump-college-funding.html
 
