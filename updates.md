@@ -1,3 +1,7 @@
+**Two Planes Collide at LaGuardia Airport in New York City**\
+`A plane that was preparing to take off at LaGuardia Airport struck a plane that had landed on Wednesday evening, according to authorities. One person was injured, officials said.`\
+https://nytimes.com/video/us/100000010434919/delta-plane-collision-laguardia.html
+
 **Mauricio Pochettino drops World Cup hint with USMNT squad as Robinson, McKennie return**\
 `The USMNT coach appears to be getting closer to landing on his first-choice squad for next summer's tournament`\
 https://nytimes.com/athletic/6683281/2025/10/02/pochettino-usmnt-world-cup-robinson-mckennie/

@@ -1,3 +1,7 @@
+**MLB analyst Ben McDonald says controversial ESPN NHL comments were 'a joke'**\
+`“It was not a bang on hockey at all,” McDonald told The Athletic of quipping that there was "zero chance" he'd watch ESPN's hockey coverage.`\
+https://nytimes.com/athletic/6683350/2025/10/02/ben-mcdonald-espn-mlb-nhl-hockey/
+
 **Two Planes Collide at LaGuardia Airport in New York City**\
 `A plane that was preparing to take off at LaGuardia Airport struck a plane that had landed on Wednesday evening, according to authorities. One person was injured, officials said.`\
 https://nytimes.com/video/us/100000010434919/delta-plane-collision-laguardia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/02/us/politics/government-shutdown-spending-bill-imp
 **Heading to L.A. for the Olympics? If You’re Into These Sports, You’re in the Wrong State.**\
 `Much of the Summer Games in 2028 will take place in Southern California. But two events, softball and canoe slalom, will be held in Oklahoma.`\
 https://nytimes.com/2025/10/02/us/los-angeles-olympics-oklahoma-city.html
-
-**Here’s how the U.K. police determine whether an attack is terrorism.**\
-`The authorities have not yet said whether an attack at a synagogue in Manchester is considered to be an act of terrorism.`\
-https://nytimes.com/live/2025/10/02/world/manchester-synagogue-stabbing-uk/heres-how-the-uk-police-determine-whether-an-attack-is-terrorism
 
