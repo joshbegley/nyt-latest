@@ -1,3 +1,7 @@
+**This Is What Autocrats Dread**\
+`Authoritarians have lost elections before, and they will again.`\
+https://nytimes.com/2025/10/02/opinion/poland-election-autocrat-russia-hungary.html
+
 **Pep Guardiola has established Manchester City's trusted base. Now all he craves is consistency**\
 `This remodelled team has the quality to play brilliant football, but there are still too many moving parts to achieve 90-minute dominance`\
 https://nytimes.com/athletic/6681248/2025/10/02/manchester-city-monaco-guardiola-champions-league/

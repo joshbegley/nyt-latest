@@ -14,7 +14,7 @@ https://nytimes.com/issue/todayspaper/2025/10/02/todays-new-york-times
 `Brussels is nearing the end of its experiment in urban autonomy.`\
 https://nytimes.com/2025/10/02/opinion/brussels-belgium-european-union.html
 
-**This Is How You Defeat an Autocrat**\
+**This Is What Autocrats Dread**\
 `Authoritarians have lost elections before, and they will again.`\
 https://nytimes.com/2025/10/02/opinion/poland-election-autocrat-russia-hungary.html
 
