@@ -1,3 +1,7 @@
+**Overlooked No More: Bessie Margolin, Lawyer Who Turned Workers’ Hopes Into Law**\
+`Her streak of Supreme Court victories, which began during the New Deal era, benefited millions of workers and continue to shape labor rights today.`\
+https://nytimes.com/2025/10/02/obituaries/bessie-margolin-overlooked.html
+
 **For Britain’s Jews, a New and Deadly Sign of Rising Antisemitism**\
 `In the hours after an attack, a blanket of fear and grief fell over synagogues and Jewish community centers across the country.`\
 https://nytimes.com/2025/10/02/world/europe/britain-antisemitism-manchester.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/02/t-magazine/best-quilts-colorful-pattern.html
 **Commanders rule out WRs Terry McLaurin, Noah Brown vs. Chargers**\
 `McLaurin has already missed two games with a quad injury, and Brown's missed three while dealing with groin and knee injuries.`\
 https://nytimes.com/athletic/6684581/2025/10/02/terry-mclaurin-noah-brown-injury-status-commanders-chargers/
-
-**Sean Combs Asks Judge for Mercy: ‘I Lost My Way’**\
-`The music mogul submitted a letter to the court ahead of his sentencing on Friday for his conviction on two prostitution-related counts.`\
-https://nytimes.com/2025/10/02/arts/music/sean-combs-diddy-sentencing-letter-judge.html
 

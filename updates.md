@@ -1,3 +1,7 @@
+**Overlooked No More: Bessie Margolin, Lawyer Who Turned Workers’ Hopes Into Law**\
+`Her streak of Supreme Court victories, which began during the New Deal era, benefited millions of workers and continue to shape labor rights today.`\
+https://nytimes.com/2025/10/02/obituaries/bessie-margolin-overlooked.html
+
 **For Britain’s Jews, a New and Deadly Sign of Rising Antisemitism**\
 `In the hours after an attack, a blanket of fear and grief fell over synagogues and Jewish community centers across the country.`\
 https://nytimes.com/2025/10/02/world/europe/britain-antisemitism-manchester.html
