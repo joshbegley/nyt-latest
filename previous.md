@@ -1,3 +1,19 @@
+**Three Killed During Anti-Government Protests in Morocco**\
+`Demonstrators across Morocco, upset over heavy government spending on the 2030 World Cup rather than public services, clashed with the police during protests, resulting in the deaths of three people.`\
+https://nytimes.com/video/world/africa/100000010435194/three-killed-during-morocco-anti-government-protests.html
+
+**Tiny Love Stories: ‘I Saw a Beautiful Man Captivating the Room’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/10/02/style/tiny-modern-love-stories-a-beautiful-man-captivating-the-room.html
+
+**College football Week 6 projected scores: Model predicts every FBS vs. FBS game**\
+`Austin Mock's College Football Projection Model tackles Week 6's games with projected scores and point totals for every FBS vs. FBS game.`\
+https://nytimes.com/athletic/6683903/2025/10/02/college-football-week-6-projected-scores-model/
+
+**Roses, A.I., Tough Talk on Crime: The N.Y.C. Mayoral Campaign Ads Begin**\
+`Zohran Mamdani, Andrew Cuomo and Curtis Sliwa are now all running television ads in the critical race for New York City mayor, hoping to sway voters with less than five weeks to go.`\
+https://nytimes.com/2025/10/02/nyregion/nyc-mayor-ads-mamdani-cuomo-sliwa.html
+
 **Conservatives vs. Hasan Piker**\
 `Hasan Piker argues Democrats are struggling to construct effective media narratives. On “Interesting Times,” he tells Ross Douthat why he thinks conservatives are better at pushing their message.`\
 https://nytimes.com/video/opinion/100000010423877/conservatives-vs-hasan-piker.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/02/world/europe/putin-russia-drones.html
 **What are your financial goals? We want to hear about them.**\
 `Inching toward a long-term money milestone can be full of highs and lows, and we want to come along for the ride.`\
 https://nytimes.com/2025/10/02/business/financial-goals.html
-
-**Pulisic back in form and back in favor as USMNT's most important player**\
-`The Milan star's summer controversy now seems to be behind him`\
-https://nytimes.com/athletic/6684100/2025/10/02/pulisic-usmnt-milan-pochettino/
-
-**After Declining to Give Trump a Sword for King Charles, a Museum Leader Is Out**\
-`The departure of Todd Arrington, who led the Dwight D. Eisenhower Presidential Library and Museum, came after the administration sought a sword from its collection as a gift for King Charles.`\
-https://nytimes.com/2025/10/02/arts/design/trump-eisenhower-king-charles-sword.html
-
-**Deadly Attack Outside U.K. Synagogue on Yom Kippur Is Declared Terrorism**\
-`The police identified the attacker as Jihad al-Shamie, 35, a British citizen of Syrian descent. They said he had driven a car into people outside the synagogue in Manchester and stabbed others before he was shot and killed by the police.`\
-https://nytimes.com/2025/10/02/world/europe/terrorist-attack-uk-synagogue-manchester.html
-
-**Rescuers Stop Search for Survivors in Indonesia School Collapse**\
-`Rescuers said that they detected no more signs of life from under the rubble and would now focus on recovering bodies, three days after a school collapsed in Indonesia.`\
-https://nytimes.com/video/world/asia/100000010435742/indonesia-school-collapse.html
 
