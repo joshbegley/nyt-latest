@@ -1,3 +1,7 @@
+**Government Shutdown Disruptions Begin**\
+`The government shutdown has affected visits to some sites like Everglades National Park and the Liberty Bell and left some infrastructure projects in limbo.`\
+https://nytimes.com/video/us/politics/100000010434397/government-shutdown-disruptions-begin.html
+
 **For Blue Jays stars Vladimir Guerrero Jr. and Bo Bichette, one last chance at October glory together?**\
 `For seven years, Bichette and Guerrero Jr. have been the core of the franchise. Can they finally erase their shared playoff heartbreak?`\
 https://nytimes.com/athletic/6677809/2025/10/02/blue-jays-vladimir-guerrero-jr-bo-bichette-playoffs/
