@@ -1,3 +1,11 @@
+**Mamdani Says He Would Phase Out N.Y.C. Gifted Program for Early Grades**\
+`Zohran Mamdani, the Democratic front-runner in the mayor’s race, plans if elected to replace the selective program, which became a symbol of segregation in public schools.`\
+https://nytimes.com/2025/10/02/nyregion/mamdani-schools-gifted-and-talented-program.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/10/02/crosswords/spelling-bee-forum.html
+
 **Pep Guardiola has established Manchester City's trusted base. Now all he craves is consistency**\
 `This remodelled team have the quality to play brilliant football, but there are still too many moving parts to achieve 90-minute dominance`\
 https://nytimes.com/athletic/6681248/2025/10/02/manchester-city-monaco-guardiola-champions-league/
