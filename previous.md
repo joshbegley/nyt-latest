@@ -1,3 +1,7 @@
+**Tesla Is Sued by Family Who Says Faulty Doors Led to Daughter’s Death**\
+`A college student was trapped in a burning Cybertruck because electronic doors made it difficult for her to get out or be rescued, a lawsuit claims.`\
+https://nytimes.com/2025/10/02/business/tesla-cybertruck-doors-lawsuit-california.html
+
 **Caitlin Clark, Sophie Cunningham back Napheesa Collier's critique of WNBA**\
 `Clark also said she is recovering from her injuries: "I’ve been working really hard to get back to full health.”`\
 https://nytimes.com/athletic/6684275/2025/10/02/caitlin-clark-sophie-cunningham-fever-wnba-commissioner/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/02/arts/design/dali-fakes-forgeries-italy.html
 **Three Killed During Anti-Government Protests in Morocco**\
 `Demonstrators across Morocco, upset over heavy government spending on the 2030 World Cup rather than public services, clashed with the police during protests, resulting in the deaths of three people.`\
 https://nytimes.com/video/world/africa/100000010435194/three-killed-during-morocco-anti-government-protests.html
-
-**Tiny Love Stories: ‘I Saw a Beautiful Man Captivating the Room’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2025/10/02/style/tiny-modern-love-stories-a-beautiful-man-captivating-the-room.html
 

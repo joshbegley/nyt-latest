@@ -1,3 +1,7 @@
+**Tesla Is Sued by Family Who Says Faulty Doors Led to Daughter’s Death**\
+`A college student was trapped in a burning Cybertruck because electronic doors made it difficult for her to get out or be rescued, a lawsuit claims.`\
+https://nytimes.com/2025/10/02/business/tesla-cybertruck-doors-lawsuit-california.html
+
 **Caitlin Clark, Sophie Cunningham back Napheesa Collier's critique of WNBA**\
 `Clark also said she is recovering from her injuries: "I’ve been working really hard to get back to full health.”`\
 https://nytimes.com/athletic/6684275/2025/10/02/caitlin-clark-sophie-cunningham-fever-wnba-commissioner/
