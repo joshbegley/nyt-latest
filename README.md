@@ -1,3 +1,7 @@
+**‘Appalled,’ ‘horrified,’ ‘sickening’: Leaders and residents condemn the Manchester attack.**\
+`By Johnatan Reiss, Jeanna Smialek, Emma Bubola and Stephen Castle`\
+https://nytimes.com/live/2025/10/02/world/manchester-synagogue-stabbing-uk/appalled-horrified-sickening-leaders-and-residents-condemn-the-manchester-attack
+
 **Costly and Deadly Wildfires Really Are on the Rise, New Research Finds**\
 `The past decade in particular has seen an uptick in devastating blazes linked to climate change, according to the study.`\
 https://nytimes.com/2025/10/02/climate/wildfire-damage-increasing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6683834/2025/10/02/suns-mercury-arena-renamed-mortg
 **When Cardi B Raps the Way She Tweets**\
 `The New York rapper is at her best when she’s emotionally direct, as on her new track “Man of Your Word,” our critic’s latest song of the week.`\
 https://nytimes.com/video/podcasts/100000010435369/when-cardi-b-raps-the-way-she-tweets.html
-
-**Liverpool's Alisson likely out until November international break**\
-`Summer arrival Giorgi Mamardashvili will deputise in place of Alisson for the next few weeks.`\
-https://nytimes.com/athletic/6681156/2025/10/02/alisson-hamstring-injury-liverpool-update/
 
