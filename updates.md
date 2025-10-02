@@ -1,3 +1,7 @@
+**Projecting the 2025-26 Maple Leafs: How many goals will every player score?**\
+`Will Auston Matthews score 60? How many will Nicolas Roy add? Predicting goal totals for every Maple Leaf who figures to play this season.`\
+https://nytimes.com/athletic/6679596/2025/10/02/maple-leafs-goals-prediction-nhl/
+
 **How to watch 2025 F1 Singapore Grand Prix: Will Verstappen finally win at Marina Bay?**\
 `Max Verstappen is back in the title hunt, but he's yet to secure a victory at Marina Bay Street Circuit. Can he keep the momentum going?`\
 https://nytimes.com/athletic/6681154/2025/10/02/f1-singapore-grand-prix-odds-2025-how-to-watch/

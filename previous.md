@@ -1,3 +1,7 @@
+**Projecting the 2025-26 Maple Leafs: How many goals will every player score?**\
+`Will Auston Matthews score 60? How many will Nicolas Roy add? Predicting goal totals for every Maple Leaf who figures to play this season.`\
+https://nytimes.com/athletic/6679596/2025/10/02/maple-leafs-goals-prediction-nhl/
+
 **How to watch 2025 F1 Singapore Grand Prix: Will Verstappen finally win at Marina Bay?**\
 `Max Verstappen is back in the title hunt, but he's yet to secure a victory at Marina Bay Street Circuit. Can he keep the momentum going?`\
 https://nytimes.com/athletic/6681154/2025/10/02/f1-singapore-grand-prix-odds-2025-how-to-watch/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6680417/2025/10/02/vikings-europe-london-dublin-nud
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/10/02/crosswords/spelling-bee-forum.html
-
-**NFL quarter-season superlatives: Bills on the run, Dak for MVP, Brian Callahan's hot seat**\
-`The Bills, showing off better support for Josh Allen with a strong running game, look like top Super Bowl contenders along with the Eagles.`\
-https://nytimes.com/athletic/6680161/2025/10/02/nfl-quarter-season-superlatives-bills-dak-prescott-brian-callahan/
 
