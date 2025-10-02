@@ -1,3 +1,11 @@
+**12 Restaurants Where Ordering a Bottle Won’t Make You Cry**\
+`Too many wine lists cater solely to the wealthy, but these lists in New York City offer terrific values at all points along the price scale.`\
+https://nytimes.com/2025/10/02/dining/drinks/nyc-restaurant-affordable-wine-lists.html
+
+**What we know about the protests in Madagascar**\
+`A youth-led movement against the president of Madagascar is sustaining protests across the country. John Eligon, the Johannesburg bureau chief for The New York Times, explains what’s happened.`\
+https://nytimes.com/video/world/africa/100000010433171/what-we-know-about-the-protests-in-madagascar.html
+
 **Suns, Mercury arena renamed Mortgage Matchup Center in $115 million deal**\
 `Opened in 1992, the downtown Phoenix arena has hosted major sports, concerts, with multiple name changes and renovations over time.`\
 https://nytimes.com/athletic/6683834/2025/10/02/suns-mercury-arena-renamed-mortgage-matchup-center/
