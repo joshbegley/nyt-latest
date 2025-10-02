@@ -1,3 +1,15 @@
+**College football picks ATS: FSU-Miami, Alabama-Vanderbilt rematch highlight Week 6**\
+`Miami at Florida State and Vanderbilt at Alabama are the highlight games this week. Our staff picks those games and more against the spread.`\
+https://nytimes.com/athletic/6677890/2025/10/02/college-football-picks-spread-florida-state-miami-week-6/
+
+**Raptors trying to produce even more pressure this year: 'We're not going to die on the court'**\
+`The Raptors say they're going all out when it comes to on-ball intensity this season. `\
+https://nytimes.com/athletic/6681280/2025/10/02/toronto-raptors-pressure-darko-rajakovic-ochai-agbaji/
+
+**Eastern Conference storylines to watch, from Mike Brown's impact to Detroit's next step**\
+`With injuries hobbling the Pacers and Celtics, Fred Katz looks at some of the storylines he's watching in the Eastern Conference.`\
+https://nytimes.com/athletic/6656340/2025/10/02/cleveland-cavaliers-core-magic-offense-storylines/
+
 **The High Stakes of the U.N. Climate Talks**\
 `At a Climate Forward Live event, André Corrêa do Lago, the head of the United Nations climate negotiations this year, about the United States’ evolving role in the discussions.`\
 https://nytimes.com/2025/10/02/climate/climate-forward-andre-correa-do-lago.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/02/business/federal-reserve-independence-lisa-cook.h
 **Goose Is a Jam Band. Geese Is Indie Rock. They Both Have New Albums.**\
 `They’re also both on tour. Confused? We can help.`\
 https://nytimes.com/2025/10/02/style/goose-geese-bands.html
-
-**‘Enough Is Enough’: Many Palestinians Say Hamas Must Accept Cease-Fire Plan**\
-`Interviews in Gaza suggest wide support for a proposal that calls for an immediate end to a war that has brought immense civilian suffering.`\
-https://nytimes.com/2025/10/02/world/middleeast/palestinian-voices-hamas-cease-fire.html
-
-**Is ‘One Battle After Another’ the Best Movie of the Year?**\
-`“Vivá la Revolución!”`\
-https://nytimes.com/2025/10/02/podcasts/is-one-battle-after-another-the-best-movie-of-the-year.html
-
-**New Tariffs Could Worsen America’s Housing Crisis**\
-`President Trump’s tariffs on timber, wood, furniture and kitchen cabinets could raise the cost of building and buying a home.`\
-https://nytimes.com/2025/10/02/business/tariffs-lumber-furniture-housing-crisis.html
 
