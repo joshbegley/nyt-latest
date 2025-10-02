@@ -1,3 +1,11 @@
+**How the Government Shutdown Could Affect Environmental Agencies**\
+`If a shutdown continues, it could interrupt the Environmental Protection Agency’s work and pull workers from maintaining national parks.`\
+https://nytimes.com/2025/10/02/climate/how-the-government-shutdown-could-affect-environmental-agencies.html
+
+**Jackson LaCombe signs 8-year, $72 million contract extension with Ducks: Report**\
+`LaCombe is important to what the Ducks hope will be a bright future.`\
+https://nytimes.com/athletic/6684086/2025/10/02/jackson-lacombe-contract-ducks/
+
 **As Unrest in Pakistani Kashmir Turns Deadly, Prime Minister Urges Calm**\
 `Days of protest in the regional capital, set off by a convergence of rival marches, are fueled by familiar complaints like high prices and demands for electoral reform.`\
 https://nytimes.com/2025/10/02/world/asia/pakistan-kashmir-unrest-sharif.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/02/business/dealbook/leo-hindery-dead.html
 **‘Appalled,’ ‘horrified,’ ‘sickening’: Leaders and residents condemn the Manchester attack.**\
 `By Johnatan Reiss, Jeanna Smialek, Emma Bubola and Stephen Castle`\
 https://nytimes.com/live/2025/10/02/world/manchester-synagogue-stabbing-uk/appalled-horrified-sickening-leaders-and-residents-condemn-the-manchester-attack
-
-**Costly and Deadly Wildfires Really Are on the Rise, New Research Finds**\
-`The past decade in particular has seen an uptick in devastating blazes linked to climate change, according to the study.`\
-https://nytimes.com/2025/10/02/climate/wildfire-damage-increasing.html
-
-**What a Signal in a Failed Star’s Clouds Means for the Search for Life**\
-`The detection of the molecule phosphine in a brown dwarf’s atmosphere may help astronomers in their search for life elsewhere in the Milky Way.`\
-https://nytimes.com/2025/10/02/science/brown-dwarf-phosphine-life.html
 

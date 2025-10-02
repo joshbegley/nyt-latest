@@ -1,3 +1,11 @@
+**How the Government Shutdown Could Affect Environmental Agencies**\
+`If a shutdown continues, it could interrupt the Environmental Protection Agency’s work and pull workers from maintaining national parks.`\
+https://nytimes.com/2025/10/02/climate/how-the-government-shutdown-could-affect-environmental-agencies.html
+
+**Jackson LaCombe signs 8-year, $72 million contract extension with Ducks: Report**\
+`LaCombe is important to what the Ducks hope will be a bright future.`\
+https://nytimes.com/athletic/6684086/2025/10/02/jackson-lacombe-contract-ducks/
+
 **As Unrest in Pakistani Kashmir Turns Deadly, Prime Minister Urges Calm**\
 `Days of protest in the regional capital, set off by a convergence of rival marches, are fueled by familiar complaints like high prices and demands for electoral reform.`\
 https://nytimes.com/2025/10/02/world/asia/pakistan-kashmir-unrest-sharif.html
