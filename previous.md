@@ -1,3 +1,27 @@
+**The Athletic FC: PSG beating Barca was never in doubt. Plus: World Cup ticket prices released**\
+`Today in TAFC: PSG show their class by beating Barca, World Cup ticket prices hit $2,000, LAFC eye MLS Cup.`\
+https://nytimes.com/athletic/6682706/2025/10/02/psg-barca-champions-league-result/
+
+**The Pulse: The MLB playoffs are already a huge win**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6680420/2025/10/02/mlb-playoffs-shedeur-sanders-the-pulse/
+
+**Madagascar’s Youth Won’t Back Down, Demanding President’s Resignation**\
+`A growing protest movement on the African island, despite deadly clashes with security forces, vows to keep fighting until Andry Rajoelina is ousted.`\
+https://nytimes.com/2025/10/02/world/africa/madagascar-protests-president.html
+
+**The Yankees fought for Aaron Boone … that should count for something**\
+`Boone outcoached Alex Cora in Game 2, and pushed the right buttons with his pitchers and with Jazz Chisholm, whom he had benched in Game 1.`\
+https://nytimes.com/athletic/6682358/2025/10/02/yankees-red-sox-aaron-boone-al-wild-card-game-2/
+
+**Are Florida's expectations too high? 6 theories on why Gators coaches keep flopping**\
+`Florida has won three national championships, but Billy Napier is the latest coaching tenure going wrong. So why can't the Gators win?`\
+https://nytimes.com/athletic/6680715/2025/10/02/florida-gators-billy-napier-hot-seat-coaching-changes/
+
+**PGA of America CEO on Ryder Cup verbal abuse: 'We will do better'**\
+`Derek Sprague, in his first year as CEO, said he has apologized to Rory and Erica McIlroy for what happened at Bethpage.`\
+https://nytimes.com/athletic/6681377/2025/10/02/ryder-cup-pga-america-ceo-sprague-apologize/
+
 **Live Updates: 4 People Injured After Stabbing Outside Synagogue in U.K., Police Say**\
 `The stabbing in Manchester, England, happened on Yom Kippur, the holiest day in the Jewish calendar.`\
 https://nytimes.com/live/2025/10/02/world/manchester-synagogue-stabbing-uk
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6679596/2025/10/02/maple-leafs-goals-prediction-nhl
 **How to watch 2025 F1 Singapore Grand Prix: Will Verstappen finally win at Marina Bay?**\
 `Max Verstappen is back in the title hunt, but he's yet to secure a victory at Marina Bay Street Circuit. Can he keep the momentum going?`\
 https://nytimes.com/athletic/6681154/2025/10/02/f1-singapore-grand-prix-odds-2025-how-to-watch/
-
-**49ers at Rams on TNF: McVay vs. Shanahan, rivalry history, broadcast predictions**\
-`Here are a few things to anticipate ahead of Thursday's Niners-Rams showcase in prime time.`\
-https://nytimes.com/athletic/6680631/2025/10/02/49ers-rams-tnf-mccaffrey-nacua-tv-how-to-watch/
-
-**How Jazz Chisholm Jr. cleared his head after getting benched and saved the Yankees' season**\
-`Playing "MLB The Show" helped Chisholm get right after Game 1. Then he willed his way to a win, in a real life, to keep the Yankees alive. `\
-https://nytimes.com/athletic/6682142/2025/10/02/jazz-chisholm-jr-yankees-game-2-wild-card-win/
-
-**Where Caleb Williams ranks at the bye, and where Bears' passing game can improve**\
-`While the Bears defense has a litany of corrections to make, the quarterback and offense are showing signs of ascending.`\
-https://nytimes.com/athletic/6679949/2025/10/02/bears-caleb-williams-improvement-bye-week/
-
-**Cowboys not looking for George Pickens to fit in, they want him to stand out**\
-`Could Pickens stay in Dallas beyond 2025? Jerry Jones says the Cowboys have "outstanding structure in our cap space" to do so.`\
-https://nytimes.com/athletic/6681748/2025/10/02/cowboys-george-pickens-top-receiver/
-
-**What to know about the NBA preseason games in Abu Dhabi between the Knicks and 76ers**\
-`The Knicks and 76ers will play two games in the United Arab Emirates as part of the NBA's preseason international slate. `\
-https://nytimes.com/athletic/6680257/2025/10/02/knicks-76ers-abu-dhabi-games-nba-preseason/
-
-**Does Dave Canales' play calling reflect a lack of trust in Panthers QB Bryce Young?**\
-`The Panthers' 18 explosive plays are tied for 28th and their percentage of pass game explosives are 29th in the NFL.`\
-https://nytimes.com/athletic/6680924/2025/10/02/panthers-play-calling-bryce-young-dave-canales/
 
