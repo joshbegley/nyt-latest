@@ -1,3 +1,7 @@
+**4 People Injured After Stabbing Outside Synagogue in U.K., Police Say**\
+`The stabbing in Manchester, England, came on Yom Kippur, the holiest day in the Jewish calendar.`\
+https://nytimes.com/2025/10/02/world/europe/manchester-synagogue-stabbing-uk.html
+
 **Government Shutdown Disruptions Begin**\
 `The government shutdown has affected visits to some sites like Everglades National Park and the Liberty Bell and left some infrastructure projects in limbo.`\
 https://nytimes.com/video/us/politics/100000010434397/government-shutdown-disruptions-begin.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6677890/2025/10/02/college-football-picks-spread-fl
 **Raptors trying to produce even more pressure this year: 'We're not going to die on the court'**\
 `The Raptors say they're going all out when it comes to on-ball intensity this season. `\
 https://nytimes.com/athletic/6681280/2025/10/02/toronto-raptors-pressure-darko-rajakovic-ochai-agbaji/
-
-**Eastern Conference storylines to watch, from Mike Brown's impact to Detroit's next step**\
-`With injuries hobbling the Pacers and Celtics, Fred Katz looks at some of the storylines he's watching in the Eastern Conference.`\
-https://nytimes.com/athletic/6656340/2025/10/02/cleveland-cavaliers-core-magic-offense-storylines/
 
