@@ -1,3 +1,7 @@
+**Two Planes Collide at LaGuardia Airport in New York City**\
+`A plane that was preparing to take off at LaGuardia Airport struck a plane that had landed on Wednesday evening, according to authorities. One person was injured, officials said.`\
+https://nytimes.com/video/us/100000010434919/delta-plane-collision-laguardia.html
+
 **Mauricio Pochettino drops World Cup hint with USMNT squad as Robinson, McKennie return**\
 `The USMNT coach appears to be getting closer to landing on his first-choice squad for next summer's tournament`\
 https://nytimes.com/athletic/6683281/2025/10/02/pochettino-usmnt-world-cup-robinson-mckennie/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/02/us/los-angeles-olympics-oklahoma-city.html
 **Here’s how the U.K. police determine whether an attack is terrorism.**\
 `The authorities have not yet said whether an attack at a synagogue in Manchester is considered to be an act of terrorism.`\
 https://nytimes.com/live/2025/10/02/world/manchester-synagogue-stabbing-uk/heres-how-the-uk-police-determine-whether-an-attack-is-terrorism
-
-**James out for up to six weeks with ankle injury, Farke confirms**\
-`The injury will likely sideline James until the November international break.`\
-https://nytimes.com/athletic/6683130/2025/10/02/dan-james-leeds-injury-update/
 
