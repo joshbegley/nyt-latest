@@ -1,40 +1,40 @@
-**The Athletic FC: PSG beating Barca was never in doubt. Plus: World Cup ticket prices released**\
-`Today in TAFC: PSG show their class by beating Barca, World Cup ticket prices hit $2,000, LAFC eye MLS Cup.`\
-https://nytimes.com/athletic/6682706/2025/10/02/psg-barca-champions-league-result/
+**The Lions' secondary challenge: Replacing D.J. Reed and holding their own in coverage**\
+`With Reed out and Terrion Arnold potentially missing Sunday's game, the Lions will turn to Amik Robertson and Rock Ya-Sin.`\
+https://nytimes.com/athletic/6681749/2025/10/02/lions-secondary-injuries-dj-reed-terrion-arnold/
 
-**The Pulse: The MLB playoffs are already a huge win**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6680420/2025/10/02/mlb-playoffs-shedeur-sanders-the-pulse/
+**Whelan steps down as Leicester CEO**\
+`The 62-year-old joined Leicester in 2010 but in recent years has been less involved in the football affairs at the club.`\
+https://nytimes.com/athletic/6682875/2025/10/02/susan-whelan-leicester-city/
 
-**Madagascar’s Youth Won’t Back Down, Demanding President’s Resignation**\
-`A growing protest movement on the African island, despite deadly clashes with security forces, vows to keep fighting until Andry Rajoelina is ousted.`\
-https://nytimes.com/2025/10/02/world/africa/madagascar-protests-president.html
+**Phillies' lineup is peaking at the right time. Now, can they prove it in October?**\
+`"They've done what they needed to do to make small, little adjustments to be ready for this moment," hitting coach Kevin Long said. `\
+https://nytimes.com/athletic/6682076/2025/10/02/phillies-lineup-improvement-playoffs/
 
-**The Yankees fought for Aaron Boone … that should count for something**\
-`Boone outcoached Alex Cora in Game 2, and pushed the right buttons with his pitchers and with Jazz Chisholm, whom he had benched in Game 1.`\
-https://nytimes.com/athletic/6682358/2025/10/02/yankees-red-sox-aaron-boone-al-wild-card-game-2/
+**Grim toilets, queueing chaos and no Galatasaray caps: A Liverpool fan's Istanbul diary**\
+`A trip to Galatasaray was fruitless on the field for Liverpool, while off it their supporters did not fare much better`\
+https://nytimes.com/athletic/6680152/2025/10/02/liverpool-fans-galatasaray-istanbul/
 
-**Are Florida's expectations too high? 6 theories on why Gators coaches keep flopping**\
-`Florida has won three national championships, but Billy Napier is the latest coaching tenure going wrong. So why can't the Gators win?`\
-https://nytimes.com/athletic/6680715/2025/10/02/florida-gators-billy-napier-hot-seat-coaching-changes/
+**What's Trending in the NFL: Early season storylines we got completely wrong**\
+`As it turns out, the Cowboys defense without Micah Parsons is not OK. `\
+https://nytimes.com/athletic/6681343/2025/10/02/nfl-trends-week-5-early-season-storylines/
 
-**PGA of America CEO on Ryder Cup verbal abuse: 'We will do better'**\
-`Derek Sprague, in his first year as CEO, said he has apologized to Rory and Erica McIlroy for what happened at Bethpage.`\
-https://nytimes.com/athletic/6681377/2025/10/02/ryder-cup-pga-america-ceo-sprague-apologize/
+**For the 49ers to contain Puka Nacua and Davante Adams, a rookie must play a key role**\
+`Nacua outweighs Upton Stout by 31 pounds, but the Niners' third-round rookie cornerback is hardly backing down.`\
+https://nytimes.com/athletic/6681528/2025/10/02/49ers-rams-puka-nacua-davante-adams-upton-stout/
 
-**Live Updates: 4 Injured in Car Ramming and Stabbing Outside U.K. Synagogue**\
-`The attack in Manchester, England, happened on Yom Kippur, the holiest day on the Jewish calendar. Police said the assailant had been shot.`\
-https://nytimes.com/live/2025/10/02/world/manchester-synagogue-stabbing-uk
+**How much did Kyle Connor's next AAV just jump? Jets mailbag, Part 2**\
+`Plus, breaking down a potential trend in Winnipeg's drafts and pondering the hole in the second defence pair.`\
+https://nytimes.com/athletic/6666722/2025/10/02/jets-mailbag-connor-contract-draft-defence/
 
-**Bruins training camp: 5 questions that need answering before the regular season**\
-`The Bruins do not have much time to address their remaining issues before they face off against the Capitals to open the regular season.`\
-https://nytimes.com/athletic/6680846/2025/10/02/bruins-training-camp-questions-zacha-poitras/
+**'It's a huge job': Why Riley Armstrong is crucial to the Flyers' rebuild**\
+`The Flyers have restocked their pool of prospects. It's up to Armstrong and his staff to help them develop.`\
+https://nytimes.com/athletic/6680321/2025/10/02/flyers-prospects-riley-armstrong/
 
-**Projecting the 2025-26 Maple Leafs: How many goals will every player score?**\
-`Will Auston Matthews score 60? How many will Nicolas Roy add? Predicting goal totals for every Maple Leaf who figures to play this season.`\
-https://nytimes.com/athletic/6679596/2025/10/02/maple-leafs-goals-prediction-nhl/
+**Inside Mike Sullivan's systems: New Rangers coach brings plan for 'hybrid' identity**\
+`What can fans expect on the ice from New York in 2025-26, both on the forecheck and in the defensive zone? `\
+https://nytimes.com/athletic/6680099/2025/10/02/mike-sullivan-rangers-coach-systems/
 
-**How to watch 2025 F1 Singapore Grand Prix: Will Verstappen finally win at Marina Bay?**\
-`Max Verstappen is back in the title hunt, but he's yet to secure a victory at Marina Bay Street Circuit. Can he keep the momentum going?`\
-https://nytimes.com/athletic/6681154/2025/10/02/f1-singapore-grand-prix-odds-2025-how-to-watch/
+**Lingering questions for the Sabres: Luukkonen injury uncertainty and more**\
+`The Sabres are dealing with a rash of injuries with one preseason game left before the opener against the Rangers.`\
+https://nytimes.com/athletic/6682292/2025/10/02/sabres-ukko-pekka-luukkonen-injury-questions/
 
