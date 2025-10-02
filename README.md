@@ -1,3 +1,7 @@
+**Tesla’s Car Sales Rise 7% as U.S. E.V. Tax Credit Ends**\
+`The company benefited from a surge in U.S. demand for electric vehicles after Republicans in Congress voted to end a $7,500 incentive at the end of September. But other carmakers benefited more.`\
+https://nytimes.com/2025/10/02/business/tesla-evs-auto-sales.html
+
 **President Trump, Please Extend the A.C.A. Tax Credits**\
 `Insurance through the Affordable Care Act is about to get much more expensive for millions of Americans.`\
 https://nytimes.com/video/opinion/100000010433742/president-trump-please-extend-the-aca-tax-credits.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/02/world/middleeast/saudi-comedy-festival-riyadh-fre
 **Barcelona to play second UCL home match at Montjuic**\
 `The Spanish champions have insisted for months that they are close to returning to the Camp Nou but have yet to receive council approval.`\
 https://nytimes.com/athletic/6682945/2025/10/02/barcelona-montjuic-camp-nou-delay/
-
-**Is ‘One Battle After Another’ the Best Movie of the Year?**\
-`The Ringer’s Sean Fennessey joins Wesley Morris to discuss the filmmaker Paul Thomas Anderson and his latest movie.`\
-https://nytimes.com/video/podcasts/100000010434494/is-one-battle-after-another-the-best-movie-of-the-year.html
 

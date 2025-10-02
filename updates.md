@@ -1,3 +1,19 @@
+**President Trump, Please Extend the A.C.A. Tax Credits**\
+`Insurance through the Affordable Care Act is about to get much more expensive for millions of Americans.`\
+https://nytimes.com/video/opinion/100000010433742/president-trump-please-extend-the-aca-tax-credits.html
+
+**Five things we learned from Canucks' dominant 8-1 preseason win in Calgary**\
+`The Canucks were absolutely flying in their penultimate preseason game on Wednesday night in Calgary.`\
+https://nytimes.com/athletic/6682377/2025/10/02/canucks-flames-preseason-score-highlights/
+
+**Petrit Halilaj Is the Winner of the Nasher Prize for Sculpture**\
+`The Kosovar learned he’d won a top art world honor as he was dealing with a suspected arson before the Kosovo premiere of his opera.`\
+https://nytimes.com/2025/10/02/arts/design/petrit-halilaj-wins-nasher-prize-for-sculpture.html
+
+**Phillies, Dodgers match up stars galore in NL Division Series: key matchups, prediction**\
+`It's been 16 years since the Philadelphia Phillies and Los Angeles Dodgers met in the postseason.`\
+https://nytimes.com/athletic/6683057/2025/10/02/phillies-dodgers-preview-division-series/
+
 **Science Practice | A Study on Asteroid Samples and Life’s Building Blocks**\
 `Scientists studied samples that NASA collected from the asteroid Bennu. What clues did they reveal about life outside of Earth?`\
 https://nytimes.com/2025/10/02/learning/science-practice-a-study-on-asteroid-samples-and-lifes-building-blocks.html

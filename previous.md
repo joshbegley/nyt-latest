@@ -1,8 +1,20 @@
+**President Trump, Please Extend the A.C.A. Tax Credits**\
+`Insurance through the Affordable Care Act is about to get much more expensive for millions of Americans.`\
+https://nytimes.com/video/opinion/100000010433742/president-trump-please-extend-the-aca-tax-credits.html
+
+**Five things we learned from Canucks' dominant 8-1 preseason win in Calgary**\
+`The Canucks were absolutely flying in their penultimate preseason game on Wednesday night in Calgary.`\
+https://nytimes.com/athletic/6682377/2025/10/02/canucks-flames-preseason-score-highlights/
+
+**Petrit Halilaj Is the Winner of the Nasher Prize for Sculpture**\
+`The Kosovar learned he’d won a top art world honor as he was dealing with a suspected arson before the Kosovo premiere of his opera.`\
+https://nytimes.com/2025/10/02/arts/design/petrit-halilaj-wins-nasher-prize-for-sculpture.html
+
 **Science Practice | A Study on Asteroid Samples and Life’s Building Blocks**\
 `Scientists studied samples that NASA collected from the asteroid Bennu. What clues did they reveal about life outside of Earth?`\
 https://nytimes.com/2025/10/02/learning/science-practice-a-study-on-asteroid-samples-and-lifes-building-blocks.html
 
-**Phillies, Dodgers match up stars galore in NL Division Series: first look**\
+**Phillies, Dodgers match up stars galore in NL Division Series: key matchups, prediction**\
 `It's been 16 years since the Philadelphia Phillies and Los Angeles Dodgers met in the postseason.`\
 https://nytimes.com/athletic/6683057/2025/10/02/phillies-dodgers-preview-division-series/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6682945/2025/10/02/barcelona-montjuic-camp-nou-dela
 **Is ‘One Battle After Another’ the Best Movie of the Year?**\
 `The Ringer’s Sean Fennessey joins Wesley Morris to discuss the filmmaker Paul Thomas Anderson and his latest movie.`\
 https://nytimes.com/video/podcasts/100000010434494/is-one-battle-after-another-the-best-movie-of-the-year.html
-
-**What We Know About the Attack on a U.K. Synagogue**\
-`Two people were killed and at least three others were in serious condition after the vehicle ramming and stabbing attack on Yom Kippur.`\
-https://nytimes.com/2025/10/02/world/europe/uk-manchester-synagogue-attack.html
-
-**Europe is just better at Ryder Cups. That’s not changing anytime soon**\
-`You do not win 6 of 8 and 9 of the last 12 without institutional advantages that your opponent will not or cannot match.`\
-https://nytimes.com/athletic/6681793/2025/10/02/ryder-cup-united-states-europe-advantage/
-
-**What does history show about 'sequel' CFB coaches? Beware. It doesn't end well**\
-`With Arkansas promoting Bobby Petrino to interim head coach, let's revisit how "sequel" coaches have down in the past. `\
-https://nytimes.com/athletic/6681859/2025/10/02/bobby-petrino-arkansas-sequel-coach/
 
