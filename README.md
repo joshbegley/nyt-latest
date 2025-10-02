@@ -1,3 +1,15 @@
+**Kennedy Fires N.I.H. Scientist Who Filed Whistle-Blower Complaint**\
+`Dr. Jeanne Marrazzo, who was on administrative leave, alleged that the Trump administration had defied court orders and undermined vaccine research.`\
+https://nytimes.com/2025/10/02/health/kennedy-marrazzo-nih.html
+
+**This City Was Forced to Overhaul Its Police Department. Crime Plummeted.**\
+`A federal judge said she was prepared to release Newark from a 2016 consent decree imposed after investigators found the city’s police routinely used excessive force and conducted unconstitutional stops and searches.`\
+https://nytimes.com/2025/10/02/nyregion/newark-police-federal-oversight.html
+
+**Postecoglou ‘not surprised’ by Forest fans calling for his sacking after Midtjylland defeat**\
+`Fans booed the team off at half-time and full time, while some supporters appeared to chant "sacked in the morning" during the game.`\
+https://nytimes.com/athletic/6684660/2025/10/02/ange-postecoglou-forest-fans-reaction/
+
 **Trump Name-Checks Project 2025 as He Threatens to Dismantle Agencies**\
 `President Trump, who once insisted he had “nothing to do with Project 2025,” has implemented many of the proposals from the right-wing policy document.`\
 https://nytimes.com/2025/10/02/us/politics/trump-project-2025-vought.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/02/us/politics/education-dept-shutdown-emails.html
 **What ‘One Battle After Another’ Achieves**\
 `Paul Thomas Anderson uses Leonardo DiCaprio as a bait and switch that might add up to the director’s best movie yet.`\
 https://nytimes.com/video/podcasts/100000010428564/what-one-battle-after-another-achieves.html
-
-**U.K. Police Identify Attacker in Deadly Synagogue Stabbing**\
-`A man attacked a synagogue in Manchester, England, ramming his car into people and stabbing others with a knife. The police fatally shot the assailant who was identified as a 35-year-old British citizen of Syrian descent.`\
-https://nytimes.com/video/world/europe/100000010436083/terrorist-attack-uk-synagogue-manchester.html
-
-**Lakers trying to run their way into 'championship shape'**\
-`Redick wants the Lakers to show that they’ve taken the commitment to “championship shape” seriously.`\
-https://nytimes.com/athletic/6684537/2025/10/02/lakers-jj-redick-training-camp-championship/
-
-**Sean Combs’s Letter to the Judge**\
-`The full text of Sean Combs’s letter to the judge,`\
-https://nytimes.com/interactive/2025/10/02/arts/music/combs-letter.html
 

@@ -1,3 +1,11 @@
+**Trump Name-Checks Project 2025 as He Threatens to Dismantle Agencies**\
+`President Trump, who once insisted he had “nothing to do with Project 2025,” has implemented many of the proposals from the right-wing policy document.`\
+https://nytimes.com/2025/10/02/us/politics/trump-project-2025-vought.html
+
+**Mammoth v. Mammoth: Unpacking the NHL team's legal dispute with a hockey bag company**\
+`How did the newly formed Utah Mammoth become embroiled in a legal battle with an Oregon company?`\
+https://nytimes.com/athletic/6683633/2025/10/02/utah-mammoth-nickname-hockey-trademark-dispute/
+
 **Overlooked No More: Bessie Margolin, Lawyer Who Turned Workers’ Hopes Into Law**\
 `Her streak of Supreme Court victories, which began during the New Deal era, benefited millions of workers and continue to shape labor rights today.`\
 https://nytimes.com/2025/10/02/obituaries/bessie-margolin-overlooked.html
