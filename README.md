@@ -1,3 +1,11 @@
+**Conservatives vs. Hasan Piker**\
+`Hasan Piker argues Democrats are struggling to construct effective media narratives. On “Interesting Times,” he tells Ross Douthat why he thinks conservatives are better at pushing their message.`\
+https://nytimes.com/video/opinion/100000010423877/conservatives-vs-hasan-piker.html
+
+**Behind the U.S. Deportation Flight to Iran**\
+`The deportation flight to Iran signals the Trump administration’s determination to remove migrants, even to places with harsh human rights conditions. Hamed Aleaziz, a reporter covering immigration for The New York Times, explains what we know about the effort.`\
+https://nytimes.com/video/us/100000010432925/behind-the-us-deportation-flight-to-iran.html
+
 **What to See in Galleries in October**\
 `This week in Newly Reviewed, Will Heinrich covers Zoe Leonard’s armor, explosive paintings from Assume Vivid Astro Focus, Max Schumann’s paper bag art and Ed Bereal’s skeletal demon.`\
 https://nytimes.com/2025/10/02/arts/what-to-see-in-galleries-in-october.html
@@ -22,19 +30,11 @@ https://nytimes.com/athletic/6684100/2025/10/02/pulisic-usmnt-milan-pochettino/
 `The departure of Todd Arrington, who led the Dwight D. Eisenhower Presidential Library and Museum, came after the administration sought a sword from its collection as a gift for King Charles.`\
 https://nytimes.com/2025/10/02/arts/design/trump-eisenhower-king-charles-sword.html
 
-**Deadly Attack at U.K. Synagogue on Yom Kippur Is Declared Terrorism**\
-`The police said a man drove a car into people in front of the synagogue in Manchester, England, and stabbed others. The assailant was shot dead by the police.`\
+**Deadly Attack Outside U.K. Synagogue on Yom Kippur Is Declared Terrorism**\
+`The police identified the attacker as Jihad al-Shamie, 35, a British citizen of Syrian descent. They said he had driven a car into people outside the synagogue in Manchester and stabbed others before he was shot and killed by the police.`\
 https://nytimes.com/2025/10/02/world/europe/terrorist-attack-uk-synagogue-manchester.html
 
 **Rescuers Stop Search for Survivors in Indonesia School Collapse**\
 `Rescuers said that they detected no more signs of life from under the rubble and would now focus on recovering bodies, three days after a school collapsed in Indonesia.`\
 https://nytimes.com/video/world/asia/100000010435742/indonesia-school-collapse.html
-
-**Veterans See Costs and Risks in Hegseth’s Military Rewind to 1990**\
-`Defense Secretary Pete Hegseth has identified real problems, veteran officers say, but by looking back 35 years for policy cues, he risks hurting, not helping, military readiness.`\
-https://nytimes.com/2025/10/02/us/hegseth-military-veterans-standards.html
-
-**I.C.E. Transfers 18 Migrants From Guantánamo, Emptying Detention Site**\
-`Fewer than 700 migrants have been held at the U.S. Navy base under a crackdown on illegal immigration, though the detention site was envisioned to hold tens of thousands in tent cities.`\
-https://nytimes.com/2025/10/02/us/politics/migrants-guantanamo-detention-removal.html
 
