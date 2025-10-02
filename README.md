@@ -1,3 +1,7 @@
+**Veterans See Costs and Risks in Hegseth’s Military Rewind to 1990**\
+`Defense Secretary Pete Hegseth has identified real problems, veteran officers say, but by looking back 35 years for policy cues, he risks hurting, not helping, military readiness.`\
+https://nytimes.com/2025/10/02/us/hegseth-military-veterans-standards.html
+
 **I.C.E. Transfers 18 Migrants From Guantánamo, Emptying Detention Site**\
 `Fewer than 700 migrants have been held at the U.S. Navy base under a crackdown on illegal immigration, though the detention site was envisioned to hold tens of thousands in tent cities.`\
 https://nytimes.com/2025/10/02/us/politics/migrants-guantanamo-detention-removal.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/10/02/climate/how-the-government-shutdown-could-affect-
 **Jackson LaCombe signs 8-year, $72 million contract extension with Ducks**\
 `LaCombe is important to what the Ducks hope will be a bright future.`\
 https://nytimes.com/athletic/6684086/2025/10/02/jackson-lacombe-contract-ducks/
-
-**As Unrest in Pakistani Kashmir Turns Deadly, Prime Minister Urges Calm**\
-`Days of protest in the regional capital, set off by a convergence of rival marches, are fueled by familiar complaints like high prices and demands for electoral reform.`\
-https://nytimes.com/2025/10/02/world/asia/pakistan-kashmir-unrest-sharif.html
 
