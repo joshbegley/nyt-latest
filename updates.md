@@ -1,3 +1,7 @@
+**Live Updates: 4 Injured in Car Ramming and Stabbing Outside U.K. Synagogue**\
+`The attack in Manchester, England, happened on Yom Kippur, the holiest day on the Jewish calendar. Police said the assailant had been shot.`\
+https://nytimes.com/live/2025/10/02/world/manchester-synagogue-stabbing-uk
+
 **The Athletic FC: PSG beating Barca was never in doubt. Plus: World Cup ticket prices released**\
 `Today in TAFC: PSG show their class by beating Barca, World Cup ticket prices hit $2,000, LAFC eye MLS Cup.`\
 https://nytimes.com/athletic/6682706/2025/10/02/psg-barca-champions-league-result/
