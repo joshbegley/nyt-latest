@@ -1,3 +1,7 @@
+**Crystal Palace are on the cusp of their longest-ever unbeaten run. What is your club's?**\
+`Palace last lost a match on April 16 — 5-0 away at Newcastle United — and since then have gone unbeaten to move level with the 1969 team`\
+https://nytimes.com/athletic/6676385/2025/10/02/crystal-palace-unbeaten-run-premier-league/
+
 **What it was like to be a European in the Ryder Cup crowd at Bethpage Black**\
 `It was hot in more ways than one to be a European fan at the Ryder Cup.`\
 https://nytimes.com/athletic/6679441/2025/10/02/ryder-cup-european-fan-mcilroy/
@@ -15,7 +19,7 @@ https://nytimes.com/2025/10/02/pageoneplus/corrections-oct-2-2025.html
 https://nytimes.com/2025/10/01/pageoneplus/quote-of-the-day-300-hitters-become-endangered-species-as-power-rules-all.html
 
 **Nashville SC clinches US Open Cup to claim Tennessee's first pro sports title**\
-`A controversial penalty helped the Tennessee club to its finest hour`\
+`A controversial penalty helped the Tennessee club to its finest hour.`\
 https://nytimes.com/athletic/6682295/2025/10/01/us-open-cup-nashville-surridge-austin/
 
 **In East Timor, U.S. Retreats From Plan to Build ‘Lifesaving’ Sewage Plant**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6682145/2025/10/01/heather-mcmahan-rory-mcilroy-cha
 **'Have never seen dominance like that': Padres' Mason Miller sets 2 postseason records in win over Cubs**\
 `Just a little over two months after Miller was acquired by the Padres at the deadline, he put on a postseason show to remember.`\
 https://nytimes.com/athletic/6682149/2025/10/01/padres-mason-miller-postseason-mlb/
-
-**Social Media’s Changing Narrative of the Israel-Gaza War**\
-`Nearly two years into the conflict, social media is increasingly capturing the day-to-day toll in Gaza, as U.S. public opinion on the war shifts.`\
-https://nytimes.com/2025/10/01/business/israel-gaza-war-social-media.html
 
