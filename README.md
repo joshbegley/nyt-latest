@@ -1,3 +1,7 @@
+**Heading to L.A. for the Olympics? If You’re Into These Sports, You’re in the Wrong State.**\
+`Much of the Summer Games in 2028 will take place in Southern California. But two events, softball and canoe slalom, will be held in Oklahoma.`\
+https://nytimes.com/2025/10/02/us/los-angeles-olympics-oklahoma-city.html
+
 **Here’s how the U.K. police determine whether an attack is terrorism.**\
 `The authorities have not yet said whether an attack at a synagogue in Manchester is considered to be an act of terrorism.`\
 https://nytimes.com/live/2025/10/02/world/manchester-synagogue-stabbing-uk/heres-how-the-uk-police-determine-whether-an-attack-is-terrorism
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6681539/2025/10/02/jake-browning-bengals-quarterbac
 **2 Killed in Antigovernment Protests in Morocco**\
 `Demonstrators, mostly younger people, vented anger against heavy spending on preparations for the 2030 soccer World Cup instead of on public services.`\
 https://nytimes.com/2025/10/02/world/africa/morocco-protests-gen-z.html
-
-**Two Killed in Attack Outside Synagogue in Manchester, England**\
-`The police said two people had been killed and others injured in a vehicle ramming and stabbing attack outside a synagogue in Manchester, in northwestern England. The attack happened on Yom Kippur, the holiest day on the Jewish calendar.`\
-https://nytimes.com/video/world/europe/100000010434814/attack-stabbing-synagogue-manchester-england.html
 
