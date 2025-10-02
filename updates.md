@@ -1,3 +1,11 @@
+**Warriors confident Jonathan Kuminga will be focused after contract saga**\
+`Steve Kerr says that with "alpha" leaders on roster, "I'm not worried about anything."`\
+https://nytimes.com/athletic/6681678/2025/10/01/jonathan-kuminga-camp-golden-state-warriors/
+
+**For Workers, Mixed Signals. For the Public, Limited Impact on Shutdown’s First Day.**\
+`Federal agencies gave shifting and mixed guidance to their work forces about who should come to work and who shouldn’t, but the initial effect on services appeared scattered and limited.`\
+https://nytimes.com/2025/10/01/us/politics/shutdown-federal-workers-agencies.html
+
 **Mauricio Pochettino joins actor McConaughey to channel emotion of World Cup prep**\
 `The national team coach and the Hollywood actor spoke to CBS ahead of the US Open Cup final.`\
 https://nytimes.com/athletic/6681824/2025/10/01/usmnt-pochettino-mcconaughey-austin-world-cup/
