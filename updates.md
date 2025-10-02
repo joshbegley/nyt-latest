@@ -1,3 +1,19 @@
+**Fantasy football redraft trade value chart: Puka Nacua, CMC command top dollar**\
+`Jakob Sanderson crunches the numbers to provide a fantasy football player valuation guide for those looking to shop in the trade market.`\
+https://nytimes.com/athletic/6680231/2025/10/02/fantasy-football-trade-value-tiers-chart-puka-nacua-christian-mccaffrey/
+
+**At Saudi Comedy Fest, American Free Speech Becomes the Punchline**\
+`American comics used Saudi Arabia’s first global comedy festival to skewer a debate raging at home. Critics said the event was part of Saudi efforts to draw attention away from a political crackdown.`\
+https://nytimes.com/2025/10/02/world/middleeast/saudi-comedy-festival-riyadh-free-speech.html
+
+**Is ‘One Battle After Another’ the Best Movie of the Year?**\
+`The Ringer’s Sean Fennessey joins Wesley Morris to discuss the filmmaker Paul Thomas Anderson and his latest movie.`\
+https://nytimes.com/video/podcasts/100000010434494/is-one-battle-after-another-the-best-movie-of-the-year.html
+
+**Government Shutdown Live Updates: Deadlock Drags On With No Sign of Agreement**\
+`Democrats and Republicans were digging in for an extended battle as President Trump redoubled his threat to use the shutdown to slash to the federal bureaucracy.`\
+https://nytimes.com/live/2025/10/02/us/trump-government-shutdown
+
 **Barcelona to play second UCL home match at Montjuic**\
 `The Spanish champions have insisted for months that they are close to returning to the Camp Nou but have yet to receive council approval.`\
 https://nytimes.com/athletic/6682945/2025/10/02/barcelona-montjuic-camp-nou-delay/

@@ -1,9 +1,17 @@
+**Fantasy football redraft trade value chart: Puka Nacua, CMC command top dollar**\
+`Jakob Sanderson crunches the numbers to provide a fantasy football player valuation guide for those looking to shop in the trade market.`\
+https://nytimes.com/athletic/6680231/2025/10/02/fantasy-football-trade-value-tiers-chart-puka-nacua-christian-mccaffrey/
+
+**At Saudi Comedy Fest, American Free Speech Becomes the Punchline**\
+`American comics used Saudi Arabia’s first global comedy festival to skewer a debate raging at home. Critics said the event was part of Saudi efforts to draw attention away from a political crackdown.`\
+https://nytimes.com/2025/10/02/world/middleeast/saudi-comedy-festival-riyadh-free-speech.html
+
 **Barcelona to play second UCL home match at Montjuic**\
 `The Spanish champions have insisted for months that they are close to returning to the Camp Nou but have yet to receive council approval.`\
 https://nytimes.com/athletic/6682945/2025/10/02/barcelona-montjuic-camp-nou-delay/
 
 **Is ‘One Battle After Another’ the Best Movie of the Year?**\
-`Paul Thomas Anderson is a very rare figure in Hollywood — he’s widely considered to be one of the very best directors of his generation, but he has never really had a hit when it comes to making money. “One Battle After Another” might change that.`\
+`The Ringer’s Sean Fennessey joins Wesley Morris to discuss the filmmaker Paul Thomas Anderson and his latest movie.`\
 https://nytimes.com/video/podcasts/100000010434494/is-one-battle-after-another-the-best-movie-of-the-year.html
 
 **What We Know About the Attack on a U.K. Synagogue**\
@@ -27,14 +35,6 @@ https://nytimes.com/live/2025/10/02/us/trump-government-shutdown/here-is-the-lat
 https://nytimes.com/athletic/6680739/2025/10/02/klay-thompson-mavericks-leader-championship/
 
 **Government Shutdown Live Updates: Deadlock Drags On With No Sign of Agreement**\
-`Democrats and Republicans were digging in for an extended battle as President Trump said he saw the shutdown as a tool to make long-lasting changes to the federal bureaucracy.`\
+`Democrats and Republicans were digging in for an extended battle as President Trump redoubled his threat to use the shutdown to slash to the federal bureaucracy.`\
 https://nytimes.com/live/2025/10/02/us/trump-government-shutdown
-
-**Inside the Oilers' Connor Ingram addition, and how it could pay off**\
-`The Oilers can be patient with Ingram, who has a reasonable NHL track record and the potential for more.`\
-https://nytimes.com/athletic/6681529/2025/10/02/oilers-connor-ingram-trade-goalie-depth-chart/
-
-**Buster Posey puts a quick end to a Bruce Bochy-Giants reunion, which is probably for the best**\
-`Posey appears ready to move the Giants into the future rather than focusing on the past, and he isn't alone.`\
-https://nytimes.com/athletic/6680358/2025/10/02/giants-manager-opening-bruce-bochy-buster-posey/
 
