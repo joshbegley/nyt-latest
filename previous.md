@@ -1,3 +1,19 @@
+**As Unrest in Pakistani Kashmir Turns Deadly, Prime Minister Urges Calm**\
+`Days of protest in the regional capital, set off by a convergence of rival marches, are fueled by familiar complaints like high prices and demands for electoral reform.`\
+https://nytimes.com/2025/10/02/world/asia/pakistan-kashmir-unrest-sharif.html
+
+**NFL Week 5 projected scores: Model predicts point spreads and totals for every game**\
+`Austin Mock's projection model predicts point spreads and point totals for all 14 NFL Week 5 games.`\
+https://nytimes.com/athletic/6684060/2025/10/02/nfl-week-5-projected-scores-model-predicts-point-spreads-totals/
+
+**Until Saturday: Vandy's rise or Goliath's revenge?**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6684091/2025/10/02/college-football-schedule-week-6-until-saturday/
+
+**College football Week 6 best bets: Iowa State on the road plus a Friday night pick**\
+`Austin Mock had a winning record last week and is back with more best bets for Week 6 of college football.`\
+https://nytimes.com/athletic/6683979/2025/10/02/college-football-best-bets-week-6-iowa-state/
+
 **Manchester’s Mayor Had Criticized Starmer. The Synagogue Attack Could Unite Them.**\
 `Violent attacks often bring even fierce political rivals together in the hours and days after they occur.`\
 https://nytimes.com/2025/10/02/world/europe/uk-synagogue-attack-manchester-mayor-burnham-starmer.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/02/climate/wildfire-damage-increasing.html
 **What a Signal in a Failed Star’s Clouds Means for the Search for Life**\
 `The detection of the molecule phosphine in a brown dwarf’s atmosphere may help astronomers in their search for life elsewhere in the Milky Way.`\
 https://nytimes.com/2025/10/02/science/brown-dwarf-phosphine-life.html
-
-**Immigration Judge Rejects Abrego Garcia’s Efforts to Seek Asylum in U.S.**\
-`The decision foreclosed one of the options that lawyers for Kilmar Armando Abrego Garcia had tried in an effort to keep him in the country.`\
-https://nytimes.com/2025/10/02/us/politics/abrego-garcia-asylum.html
-
-**Booming World Cup ticket prices outstrip everything except the Super Bowl**\
-`The 2026 World Cup final could be the single most lucrative match in soccer history.`\
-https://nytimes.com/athletic/6683842/2025/10/02/world-cup-ticket-prices-usmnt-super-bowl/
-
-**What we learned from NFL RedZone cult hero Scott Hanson on 'The Sports Gossip Show'**\
-`Hanson (who understands gossip's value) is built for his job. There's a special talent to focusing on multiple screens and news all at once.`\
-https://nytimes.com/athletic/6683414/2025/10/02/scott-hanson-nfl-redzone-sports-gossip-show/
-
-**12 Restaurants Where Ordering a Bottle Won’t Make You Cry**\
-`Too many wine lists cater solely to the wealthy, but these lists in New York City offer terrific values at all points along the price scale.`\
-https://nytimes.com/2025/10/02/dining/drinks/nyc-restaurant-affordable-wine-lists.html
 

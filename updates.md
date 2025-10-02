@@ -1,3 +1,19 @@
+**As Unrest in Pakistani Kashmir Turns Deadly, Prime Minister Urges Calm**\
+`Days of protest in the regional capital, set off by a convergence of rival marches, are fueled by familiar complaints like high prices and demands for electoral reform.`\
+https://nytimes.com/2025/10/02/world/asia/pakistan-kashmir-unrest-sharif.html
+
+**NFL Week 5 projected scores: Model predicts point spreads and totals for every game**\
+`Austin Mock's projection model predicts point spreads and point totals for all 14 NFL Week 5 games.`\
+https://nytimes.com/athletic/6684060/2025/10/02/nfl-week-5-projected-scores-model-predicts-point-spreads-totals/
+
+**Until Saturday: Vandy's rise or Goliath's revenge?**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6684091/2025/10/02/college-football-schedule-week-6-until-saturday/
+
+**College football Week 6 best bets: Iowa State on the road plus a Friday night pick**\
+`Austin Mock had a winning record last week and is back with more best bets for Week 6 of college football.`\
+https://nytimes.com/athletic/6683979/2025/10/02/college-football-best-bets-week-6-iowa-state/
+
 **Manchester’s Mayor Had Criticized Starmer. The Synagogue Attack Could Unite Them.**\
 `Violent attacks often bring even fierce political rivals together in the hours and days after they occur.`\
 https://nytimes.com/2025/10/02/world/europe/uk-synagogue-attack-manchester-mayor-burnham-starmer.html
