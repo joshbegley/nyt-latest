@@ -1,3 +1,7 @@
+**Colbert Suggests Unplugging the Government Then Turning It on Again**\
+`“If that doesn’t work, maybe toss it in a bag of rice,” the “Late Show” host Stephen Colbert said a day after the U.S. government shut down.`\
+https://nytimes.com/2025/10/02/arts/television/colbert-government-shutdown.html
+
 **Seven seconds, seven touches, 70 yards... a slaloming assist that showed De Bruyne has still got it**\
 `The Belgian set up two goals for Rasmus Hojlund as Napoli beat Sporting CP, the first with a particularly beautiful run and pass...`\
 https://nytimes.com/athletic/6681253/2025/10/02/de-bruyne-assist-napoli-hojlund/

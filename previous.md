@@ -1,3 +1,7 @@
+**Colbert Suggests Unplugging the Government Then Turning It on Again**\
+`“If that doesn’t work, maybe toss it in a bag of rice,” the “Late Show” host Stephen Colbert said a day after the U.S. government shut down.`\
+https://nytimes.com/2025/10/02/arts/television/colbert-government-shutdown.html
+
 **Mamdani Says He Would Phase Out N.Y.C. Gifted Program for Early Grades**\
 `Zohran Mamdani, the Democratic front-runner in the mayor’s race, plans if elected to replace the selective program, which became a symbol of segregation in public schools.`\
 https://nytimes.com/2025/10/02/nyregion/mamdani-schools-gifted-and-talented-program.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6681248/2025/10/02/manchester-city-monaco-guardiola
 **An appreciation of an Arsenal defence that has conceded one open-play goal this season**\
 `Much of the focus has been on the forward line after heavy summer spending but the defence is providing a platform for them to excel`\
 https://nytimes.com/athletic/6681576/2025/10/02/arsenal-defence-olympiacos-arteta/
-
-**The New York Times in Print for Thursday, Oct. 2, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/10/02/todays-new-york-times
 
