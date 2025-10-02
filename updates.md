@@ -1,3 +1,11 @@
+**Word of the Day: extol**\
+`This word has appeared in 21 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/10/02/learning/word-of-the-day-extol.html
+
+**Two Planes Collide on LaGuardia Airport Taxiway**\
+`A plane that was preparing to take off struck a plane that had landed, the authorities said. One passenger was injured.`\
+https://nytimes.com/2025/10/02/nyregion/delta-plane-collision-laguardia.html
+
 **This Is What Autocrats Dread**\
 `Authoritarians have lost elections before, and they will again.`\
 https://nytimes.com/2025/10/02/opinion/poland-election-autocrat-russia-hungary.html

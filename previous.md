@@ -1,3 +1,7 @@
+**Word of the Day: extol**\
+`This word has appeared in 21 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/10/02/learning/word-of-the-day-extol.html
+
 **Pep Guardiola has established Manchester City's trusted base. Now all he craves is consistency**\
 `This remodelled team has the quality to play brilliant football, but there are still too many moving parts to achieve 90-minute dominance`\
 https://nytimes.com/athletic/6681248/2025/10/02/manchester-city-monaco-guardiola-champions-league/
@@ -23,7 +27,7 @@ https://nytimes.com/2025/10/02/opinion/poland-election-autocrat-russia-hungary.h
 https://nytimes.com/2025/10/02/us/politics/trump-college-funding.html
 
 **Two Planes Collide on LaGuardia Airport Taxiway**\
-`An inbound flight was taxiing to the gate when it was struck by an outbound plane, the authorities said. One passenger was injured.`\
+`A plane that was preparing to take off struck a plane that had landed, the authorities said. One passenger was injured.`\
 https://nytimes.com/2025/10/02/nyregion/delta-plane-collision-laguardia.html
 
 **Leeds are happy without a specialist set-piece coach. But can they improve from corners?**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6679829/2025/10/02/leeds-set-piece-corners-analysis
 **Brilliant, versatile Anderson is fast becoming Nottingham Forest's difference-maker**\
 `The midfielder has been the side's stand-out player so far this season and new manager Ange Postecoglou can't stop singing his praises`\
 https://nytimes.com/athletic/6679990/2025/10/02/nottingham-forest-elliot-anderson-europa-league/
-
-**You need some Arsenal players in your FPL team, so who are the ones to target?**\
-`Six of Mikel Arteta's squad make the top 20 most transferred-in players ahead of Friday's deadline at time of writing - and for good reason`\
-https://nytimes.com/athletic/6679101/2025/10/02/fantasy-premier-league-arsenal-gameweek-7-gyokeres-saka/
 
