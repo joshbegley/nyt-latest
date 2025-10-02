@@ -1,3 +1,7 @@
+**What are your financial goals? We want to hear about them.**\
+`Inching toward a long-term money milestone can be full of highs and lows, and we want to come along for the ride.`\
+https://nytimes.com/2025/10/02/business/financial-goals.html
+
 **Pulisic back in form and back in favor as USMNT's most important player**\
 `The Milan star's summer controversy now seems to be behind him`\
 https://nytimes.com/athletic/6684100/2025/10/02/pulisic-usmnt-milan-pochettino/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6684166/2025/10/02/nfl-schedule-tough-easy-so-far-r
 **Des Moines Schools Superintendent Arrested by ICE Faces New Gun Charge**\
 `Ian Roberts, who resigned from the post after his arrest last week, was charged with possessing firearms while in the country without legal authorization.`\
 https://nytimes.com/2025/10/02/us/des-moines-superintendent-ice-gun-charge.html
-
-**6 New Books We Love This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://nytimes.com/2025/10/02/books/review/recommended-new-books.html
 

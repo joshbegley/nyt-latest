@@ -1,3 +1,7 @@
+**What are your financial goals? We want to hear about them.**\
+`Inching toward a long-term money milestone can be full of highs and lows, and we want to come along for the ride.`\
+https://nytimes.com/2025/10/02/business/financial-goals.html
+
 **Pulisic back in form and back in favor as USMNT's most important player**\
 `The Milan star's summer controversy now seems to be behind him`\
 https://nytimes.com/athletic/6684100/2025/10/02/pulisic-usmnt-milan-pochettino/
