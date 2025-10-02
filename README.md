@@ -1,3 +1,7 @@
+**An appreciation of an Arsenal defence that has conceded one open-play goal this season**\
+`Much of the focus has been on the forward line after heavy summer spending but the defence is providing a platform for them to excel`\
+https://nytimes.com/athletic/6681576/2025/10/02/arsenal-defence-olympiacos-arteta/
+
 **The New York Times in Print for Thursday, Oct. 2, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/02/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6679101/2025/10/02/fantasy-premier-league-arsenal-g
 **Nick Woltemade is ignoring the noise**\
 `Woltemade's Champions League debut for Newcastle was another riposte to the hubbub that has surrounded his move to St James’ Park`\
 https://nytimes.com/athletic/6680880/2025/10/02/newcastle-woltemade-champions-league/
-
-**The Alternative Premier League Table: No 7 – Attacking performance versus expected goals**\
-`How Manchester United are underperforming, Spurs and Liverpool are overperforming, and why Crystal Palace could be even higher than they are`\
-https://nytimes.com/athletic/6679514/2025/10/02/the-alternative-premier-league-table-expected-goals/
 
