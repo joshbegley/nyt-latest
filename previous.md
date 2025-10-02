@@ -1,3 +1,15 @@
+**Science Practice | A Study on Asteroid Samples and Life’s Building Blocks**\
+`Scientists studied samples that NASA collected from the asteroid Bennu. What clues did they reveal about life outside of Earth?`\
+https://nytimes.com/2025/10/02/learning/science-practice-a-study-on-asteroid-samples-and-lifes-building-blocks.html
+
+**Phillies, Dodgers match up stars galore in NL Division Series: first look**\
+`It's been 16 years since the Philadelphia Phillies and Los Angeles Dodgers met in the postseason.`\
+https://nytimes.com/athletic/6683057/2025/10/02/phillies-dodgers-preview-division-series/
+
+**Palace forward Mateta handed first senior France call-up**\
+`The 28-year-old has been rewarded for his fine form with Palace.`\
+https://nytimes.com/athletic/6683018/2025/10/02/france-squad-mateta-crystal-palace/
+
 **Fantasy football redraft trade value chart: Puka Nacua, CMC command top dollar**\
 `Jakob Sanderson crunches the numbers to provide a fantasy football player valuation guide for those looking to shop in the trade market.`\
 https://nytimes.com/athletic/6680231/2025/10/02/fantasy-football-trade-value-tiers-chart-puka-nacua-christian-mccaffrey/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6681793/2025/10/02/ryder-cup-united-states-europe-a
 **What does history show about 'sequel' CFB coaches? Beware. It doesn't end well**\
 `With Arkansas promoting Bobby Petrino to interim head coach, let's revisit how "sequel" coaches have down in the past. `\
 https://nytimes.com/athletic/6681859/2025/10/02/bobby-petrino-arkansas-sequel-coach/
-
-**Here’s the latest.**\
-`By Shawn McCreesh and Tony Romm`\
-https://nytimes.com/live/2025/10/02/us/trump-government-shutdown/here-is-the-latest
-
-**Klay Thompson believes Mavericks are championship worthy after last season's injuries**\
-`Thompson badly wants to win a fifth title. And he believes Dallas is good enough if it can get healthy this season.`\
-https://nytimes.com/athletic/6680739/2025/10/02/klay-thompson-mavericks-leader-championship/
-
-**Government Shutdown Live Updates: Deadlock Drags On With No Sign of Agreement**\
-`Democrats and Republicans were digging in for an extended battle as President Trump redoubled his threat to use the shutdown to slash to the federal bureaucracy.`\
-https://nytimes.com/live/2025/10/02/us/trump-government-shutdown
 
