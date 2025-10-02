@@ -1,3 +1,11 @@
+**Trump Administration Asks Colleges to Sign ‘Compact’ to Get Funding Preference**\
+`Demands sent to nine top schools included pledging not to use race or sex in hiring or admissions and to freeze tuition for five years.`\
+https://nytimes.com/2025/10/02/us/politics/trump-college-funding.html
+
+**Two Planes Collide on LaGuardia Airport Taxiway**\
+`An inbound flight was taxiing to the gate when it was struck by an outbound plane, the authorities said. One passenger was injured.`\
+https://nytimes.com/2025/10/02/nyregion/delta-plane-collision-laguardia.html
+
 **Leeds are happy without a specialist set-piece coach. But can they improve from corners?**\
 `Leeds's Joe Rodon and Pascal Struijk get a lot of opportunities from corners. Are they making the most of them?`\
 https://nytimes.com/athletic/6679829/2025/10/02/leeds-set-piece-corners-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6680339/2025/10/02/federico-valverde-social-media-c
 **Wirtz is struggling. Here's why - and what Liverpool can do to help him**\
 `The German has had a faltering start to life at Anfield after a £116m summer move but there is no need to panic, yet`\
 https://nytimes.com/athletic/6679764/2025/10/02/florian-wirtz-stats-form-liverpool/
-
-**Graham Potter and a sacked manager's next steps. What if he just did… nothing?**\
-`How refreshing it would be if he chose a different path to just searching for a way back onto the coaching merry-go-round`\
-https://nytimes.com/athletic/6676739/2025/10/02/graham-potter-sacked-mananger-next-steps/
-
-**Crystal Palace are on the cusp of their longest-ever unbeaten run. What is your club's?**\
-`Palace last lost a match on April 16 — 5-0 away at Newcastle United — and since then have gone unbeaten to move level with the 1969 team`\
-https://nytimes.com/athletic/6676385/2025/10/02/crystal-palace-unbeaten-run-premier-league/
 
