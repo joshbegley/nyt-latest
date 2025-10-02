@@ -1,3 +1,7 @@
+**Can Cubs find their hitting mojo in winner-take-all Game 3?**\
+`One team will seize the opportunity and head to Milwaukee for the NLDS. The Cubs are hoping they'll meet the moment at Wrigley.`\
+https://nytimes.com/athletic/6681617/2025/10/01/cubs-padres-nl-wild-card-series-game-2-their-mojo-bats-in-winner-take-all-game-3/
+
 **Warriors confident Jonathan Kuminga will be focused after contract saga**\
 `Steve Kerr says that with "alpha" leaders on roster, "I'm not worried about anything."`\
 https://nytimes.com/athletic/6681678/2025/10/01/jonathan-kuminga-camp-golden-state-warriors/

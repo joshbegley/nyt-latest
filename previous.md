@@ -1,3 +1,7 @@
+**Can Cubs find their hitting mojo in winner-take-all Game 3?**\
+`One team will seize the opportunity and head to Milwaukee for the NLDS. The Cubs are hoping they'll meet the moment at Wrigley.`\
+https://nytimes.com/athletic/6681617/2025/10/01/cubs-padres-nl-wild-card-series-game-2-their-mojo-bats-in-winner-take-all-game-3/
+
 **Warriors confident Jonathan Kuminga will be focused after contract saga**\
 `Steve Kerr says that with "alpha" leaders on roster, "I'm not worried about anything."`\
 https://nytimes.com/athletic/6681678/2025/10/01/jonathan-kuminga-camp-golden-state-warriors/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/01/us/politics/trump-democrats-health-care.html
 **What to Do With All Those Apples**\
 `By Melissa Clark`\
 https://nytimes.com/2025/10/01/dining/what-to-do-with-all-those-apples.html
-
-**Colts' Xavien Howard retires amid ninth NFL season: 'My dream has now changed'**\
-`Howard signed a one-year deal with the Colts in August, but he struggled mightily in his four games with the franchise.`\
-https://nytimes.com/athletic/6681619/2025/10/01/xavien-howard-retires-colts-nfl-news/
 
