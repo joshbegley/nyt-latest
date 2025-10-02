@@ -1,3 +1,7 @@
+**Tesla’s Car Sales Rise 7% as U.S. E.V. Tax Credit Ends**\
+`The company benefited from a surge in U.S. demand for electric vehicles after Republicans in Congress voted to end a $7,500 incentive at the end of September. But other carmakers benefited more.`\
+https://nytimes.com/2025/10/02/business/tesla-evs-auto-sales.html
+
 **President Trump, Please Extend the A.C.A. Tax Credits**\
 `Insurance through the Affordable Care Act is about to get much more expensive for millions of Americans.`\
 https://nytimes.com/video/opinion/100000010433742/president-trump-please-extend-the-aca-tax-credits.html
