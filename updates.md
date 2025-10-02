@@ -1,3 +1,11 @@
+**Caitlin Clark will not play in Unrivaled this winter: Source**\
+`The league has announced all but two of the 48 players for the upcoming season.`\
+https://nytimes.com/athletic/6684777/2025/10/02/caitlin-clark-unrivaled-not-joining/
+
+**What Women Heard in Hegseth’s Remarks About Physical Standards**\
+`The defense secretary raised the issue suggesting women were getting into combat not because they met high standards, but because they were given a pass.`\
+https://nytimes.com/2025/10/02/us/politics/women-military-hegseth-physical-standards.html
+
 **Trionda ... Adidas' new World Cup ball and everything you need to know about it**\
 `The reveal of the official match ball always sparks pre-World Cup anticipation, and this time was no different`\
 https://nytimes.com/athletic/6684748/2025/10/02/trionda-adidas-world-cup-ball/

@@ -1,3 +1,7 @@
+**Warriors' Jonathan Kuminga acknowledges unclear long-term future despite new contract**\
+`"All that matters is we got it done, and I'm excited to be here," Kuminga said of his two-year, $48.5 million contract.`\
+https://nytimes.com/athletic/6684981/2025/10/02/jonathan-kuminga-warriors-contract-future/
+
 **Caitlin Clark will not play in Unrivaled this winter: Source**\
 `The league has announced all but two of the 48 players for the upcoming season.`\
 https://nytimes.com/athletic/6684777/2025/10/02/caitlin-clark-unrivaled-not-joining/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/02/health/kennedy-marrazzo-nih.html
 **This City Was Forced to Overhaul Its Police Department. Crime Plummeted.**\
 `A federal judge said she was prepared to release Newark from a 2016 consent decree imposed after investigators found the city’s police routinely used excessive force and conducted unconstitutional stops and searches.`\
 https://nytimes.com/2025/10/02/nyregion/newark-police-federal-oversight.html
-
-**Postecoglou ‘not surprised’ by Forest fans calling for his sacking after Midtjylland defeat**\
-`Fans booed the team off at half-time and full time, while some supporters appeared to chant "sacked in the morning" during the game.`\
-https://nytimes.com/athletic/6684660/2025/10/02/ange-postecoglou-forest-fans-reaction/
 
