@@ -1,3 +1,24 @@
+**Champions League post-MD2 projections: Arsenal are now favourites but PSG on the rise**\
+`An analysis of the state of play in Europe's premier club competition following the conclusion of the second round of fixtures`\
+https://nytimes.com/athletic/6683016/2025/10/02/champions-league-projections-arsenal-psg-real-madrid-liverpool/
+
+**Six rising 2026 NFL Draft prospects who belong in top 50 conversation**\
+`Arvell Reese, Dante Moore and other draft hopefuls have made a big impact early in the college football season.`\
+https://nytimes.com/athletic/6681047/2025/10/02/nfl-draft-2026-risers-dante-moore-arvell-reese/
+
+**It’s a Bad Time to Cut the Information Coming From Corporate America**\
+`President Trump wants the S.E.C. to reduce the frequency of corporate earnings reports. Our columnist says it’s a reasonable experiment, but at a dangerous time.`\
+https://nytimes.com/2025/10/02/business/trump-earnings-reports-investing-stocks.html
+
+**Democrats Pull Away From AIPAC, Reflecting a Broader Shift**\
+`A quiet retreat by Democrats from the pre-eminent pro-Israel lobbying group is the latest evidence of a realignment underway in Congress on Israel.`\
+https://nytimes.com/2025/10/02/us/politics/democrats-aipac.html
+
+**Ex-EFL match official sentenced to 13.5 years over 16 child sex offences**\
+`In her sentencing remarks in court today, Judge Caroline English told Viccars his behaviour was “persistent, manipulative and predatory”.
+`\
+https://nytimes.com/athletic/6683464/2025/10/02/gareth-viccars-sentence-trial-efl/
+
 **Ex-EFL match official sentenced to 13.5 years over 16 child sex offences**\
 `In her sentencing remarks in court today, Judge Caroline English told Viccars his behaviour was “persistent, manipulative and predatory”.
 `\

@@ -1,3 +1,19 @@
+**Champions League post-MD2 projections: Arsenal are now favourites but PSG on the rise**\
+`An analysis of the state of play in Europe's premier club competition following the conclusion of the second round of fixtures`\
+https://nytimes.com/athletic/6683016/2025/10/02/champions-league-projections-arsenal-psg-real-madrid-liverpool/
+
+**Six rising 2026 NFL Draft prospects who belong in top 50 conversation**\
+`Arvell Reese, Dante Moore and other draft hopefuls have made a big impact early in the college football season.`\
+https://nytimes.com/athletic/6681047/2025/10/02/nfl-draft-2026-risers-dante-moore-arvell-reese/
+
+**It’s a Bad Time to Cut the Information Coming From Corporate America**\
+`President Trump wants the S.E.C. to reduce the frequency of corporate earnings reports. Our columnist says it’s a reasonable experiment, but at a dangerous time.`\
+https://nytimes.com/2025/10/02/business/trump-earnings-reports-investing-stocks.html
+
+**Democrats Pull Away From AIPAC, Reflecting a Broader Shift**\
+`A quiet retreat by Democrats from the pre-eminent pro-Israel lobbying group is the latest evidence of a realignment underway in Congress on Israel.`\
+https://nytimes.com/2025/10/02/us/politics/democrats-aipac.html
+
 **Ex-EFL match official sentenced to 13.5 years over 16 child sex offences**\
 `In her sentencing remarks in court today, Judge Caroline English told Viccars his behaviour was “persistent, manipulative and predatory”.
 `\
@@ -22,20 +38,4 @@ https://nytimes.com/athletic/6679698/2025/10/02/fantasy-football-injuries-cheat-
 **Ann Fagan Ginger, Venerable Defender of Civil Liberties, Dies at 100**\
 `She was among the last of a generation of activists and lawyers who weathered the Red Scare, and then helped train a new cohort in the decades that followed.`\
 https://nytimes.com/2025/10/02/us/ann-fagan-ginger-dead.html
-
-**The U.K. police say they believe they know the attacker’s identity.**\
-`By Lizzie Dearden`\
-https://nytimes.com/live/2025/10/02/world/manchester-synagogue-stabbing-uk/the-uk-police-say-they-believe-they-know-the-attackers-identity
-
-**Security is increased at Jewish sites across the U.K.**\
-`By Lizzie Dearden, Megan Specia and Stephen Castle`\
-https://nytimes.com/live/2025/10/02/world/manchester-synagogue-stabbing-uk/security-is-increased-at-jewish-sites-across-the-uk
-
-**Key fantasy football questions for Week 5: Who takes the lead at RB for Cardinals, Bucs?**\
-`The NFL's vaunted rookie RB class might finally be meeting its great expectations.`\
-https://nytimes.com/athletic/6683328/2025/10/02/key-fantasy-football-questions-for-week-5-whos-the-lead-rb-for-cardinals-bucs/
-
-**Norovirus Outbreak Sickens Nearly 100 on Royal Caribbean Cruise**\
-`Four crew members and 94 passengers came down with norovirus while sailing from San Diego to Miami.`\
-https://nytimes.com/2025/10/02/travel/norovirus-cruise-royal-caribbean.html
 
