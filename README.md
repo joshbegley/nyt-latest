@@ -1,3 +1,19 @@
+**What it was like to be a European in the Ryder Cup crowd at Bethpage Black**\
+`It was hot in more ways than one to be a European fan at the Ryder Cup.`\
+https://nytimes.com/athletic/6679441/2025/10/02/ryder-cup-european-fan-mcilroy/
+
+**Connections: Sports Edition Coach: Hints for Oct. 2, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6682155/2025/10/02/connections-sports-edition-hints-for-oct-2-2025/
+
+**Corrections: Oct. 2, 2025**\
+`Corrections that appeared in print on Thursday, Oct. 2, 2025.`\
+https://nytimes.com/2025/10/02/pageoneplus/corrections-oct-2-2025.html
+
+**Quote of the Day: .300 Hitters Become Endangered Species As Power Rules All**\
+`Quotation of the Day for Thursday, October 2, 2025`\
+https://nytimes.com/2025/10/01/pageoneplus/quote-of-the-day-300-hitters-become-endangered-species-as-power-rules-all.html
+
 **Nashville SC clinches US Open Cup to claim Tennessee's first pro sports title**\
 `A controversial penalty helped the Tennessee club to its finest hour`\
 https://nytimes.com/athletic/6682295/2025/10/01/us-open-cup-nashville-surridge-austin/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6682149/2025/10/01/padres-mason-miller-postseason-m
 **Social Media’s Changing Narrative of the Israel-Gaza War**\
 `Nearly two years into the conflict, social media is increasingly capturing the day-to-day toll in Gaza, as U.S. public opinion on the war shifts.`\
 https://nytimes.com/2025/10/01/business/israel-gaza-war-social-media.html
-
-**Out of the Park**\
-`Aidan Deshong’s puzzle is the cruciverbal equivalent of a home run. One tip: Exercise caution when writing in the answers.`\
-https://nytimes.com/2025/10/01/crosswords/daily-puzzle-2025-10-02.html
-
-**Giants offseason to-do list: Hire a manager (not Bruce Bochy), stockpile pitching**\
-`Buster Posey's management style is direct: Identify an issue and address it. Here's what should be on his agenda.`\
-https://nytimes.com/athletic/6681532/2025/10/01/giants-offseason-to-do-list/
-
-**With elimination game looming, Cubs wait for Pete Crow-Armstrong's signature postseason moment**\
-`The Cub lost to the San Diego Padres 3-0 at Wrigley Field where chants of "P-C-A! P-C-A!" echoed.`\
-https://nytimes.com/athletic/6681970/2025/10/01/cubs-pete-crow-armstrong-postseason-moment/
-
-**Yankees-Red Sox Game 2 takeaways: Yankees slide past Sox late to force Game 3**\
-`Both teams' seasons are on the brink with the elimination Game 3 looming Thursday.`\
-https://nytimes.com/athletic/6681761/2025/10/01/yankees-red-sox-score-results-game-2-takeaways-mlb-playoffs/
 
