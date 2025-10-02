@@ -1,3 +1,15 @@
+**A 2017 terror attack in Manchester was one of Britain’s deadliest.**\
+`A suicide bombing at Manchester Arena killed twenty-two people, several of them children, and injured hundreds more.`\
+https://nytimes.com/live/2025/10/02/world/manchester-synagogue-stabbing-uk/a-2017-terror-attack-in-manchester-was-one-of-britains-deadliest
+
+**The Windup: Today’s stacked baseball schedule**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6682638/2025/10/02/mlb-wild-card-game-3-the-windup/
+
+**Tesla’s Car Sales Rose 7% as U.S. E.V. Tax Credit Was Ending**\
+`The company benefited from a surge in U.S. demand for electric vehicles after Republicans in Congress voted to end a $7,500 incentive at the end of September. But other carmakers benefited more.`\
+https://nytimes.com/2025/10/02/business/tesla-evs-auto-sales.html
+
 **Fantasy football matchup rankings Week 5 | Strength of schedule**\
 `Jake Ciely's Week 5 fantasy football strength of schedule by position matchup rankings can help with tough start/sit decisions. `\
 https://nytimes.com/athletic/6683213/2025/10/02/fantasy-football-matchup-rankings-week-5-strength-of-schedule/
