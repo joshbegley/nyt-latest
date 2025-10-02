@@ -1,9 +1,17 @@
+**Giants offseason to-do list: Hire a manager (not Bruce Bochy), stockpile pitching**\
+`Buster Posey's management style is direct: Identify an issue and address it. Here's what should be on his agenda.`\
+https://nytimes.com/athletic/6681532/2025/10/01/giants-offseason-to-do-list/
+
+**With elimination game looming, Cubs wait for Pete Crow-Armstrong's signature postseason moment**\
+`The Cub lost to the San Diego Padres 3-0 at Wrigley Field where chants of "P-C-A! P-C-A!" echoed.`\
+https://nytimes.com/athletic/6681970/2025/10/01/cubs-pete-crow-armstrong-postseason-moment/
+
 **Yankees-Red Sox Game 2 takeaways: Yankees slide past Sox late to force Game 3**\
 `Both teams' seasons are on the brink with the elimination Game 3 looming Thursday.`\
 https://nytimes.com/athletic/6681761/2025/10/01/yankees-red-sox-score-results-game-2-takeaways-mlb-playoffs/
 
 **Why did the Cubs pitch to Machado with a base open? Craig Counsell explains the controversial decision**\
-`An unexpected decision by the Cubs manager in the fifth inning of Game 2 gave the Padres a lead they did not relinquish. `\
+`An unexpected decision by the Cubs manager in the fifth inning of Game 2 helped the Padres secure their lead in a must-win game.`\
 https://nytimes.com/athletic/6681633/2025/10/01/cubs-loss-machado-pitch-imanaga/
 
 **Federal Agency Faults Philadelphia Transit Agency Over Train Fires**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/01/science/jane-goodall-chimpanzees-career.html
 **Jane Goodall’s Thoughts for a Reporter: ‘Hope Isn’t Just Wishful Thinking’**\
 `A Times correspondent who interviewed Dr. Goodall recalled their conversations about the state of the planet.`\
 https://nytimes.com/2025/10/01/climate/jane-goodall-interviews.html
-
-**Mauricio Pochettino, Matthew McConaughey channel emotion of USMNT World Cup prep**\
-`The national team coach and the Hollywood actor spoke to CBS ahead of the US Open Cup final.`\
-https://nytimes.com/athletic/6681824/2025/10/01/usmnt-pochettino-mcconaughey-austin-world-cup/
-
-**For Workers, Mixed Signals. For the Public, Limited Impact on Shutdown’s First Day.**\
-`Federal agencies gave shifting and mixed guidance to their work forces about who should come to work and who shouldn’t, but the initial effect on services appeared scattered and limited.`\
-https://nytimes.com/2025/10/01/us/politics/shutdown-federal-workers-agencies.html
 

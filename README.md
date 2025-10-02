@@ -1,3 +1,11 @@
+**Social Media’s Changing Narrative of the Israel-Gaza War**\
+`Nearly two years into the conflict, social media is increasingly capturing the day-to-day toll in Gaza, as U.S. public opinion on the war shifts.`\
+https://nytimes.com/2025/10/01/business/israel-gaza-war-social-media.html
+
+**Out of the Park**\
+`Aidan Deshong’s puzzle is the cruciverbal equivalent of a home run. One tip: Exercise caution when writing in the answers.`\
+https://nytimes.com/2025/10/01/crosswords/daily-puzzle-2025-10-02.html
+
 **Giants offseason to-do list: Hire a manager (not Bruce Bochy), stockpile pitching**\
 `Buster Posey's management style is direct: Identify an issue and address it. Here's what should be on his agenda.`\
 https://nytimes.com/athletic/6681532/2025/10/01/giants-offseason-to-do-list/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6681617/2025/10/01/cubs-padres-nl-wild-card-series-
 **Warriors confident Jonathan Kuminga will be focused after contract saga**\
 `Steve Kerr says that with "alpha" leaders on roster, "I'm not worried about anything."`\
 https://nytimes.com/athletic/6681678/2025/10/01/jonathan-kuminga-camp-golden-state-warriors/
-
-**‘There Will Always Only Be One Jane Goodall’**\
-`Scientists reflect on the life and work of a researcher whose discoveries made them rethink what it means to be human.`\
-https://nytimes.com/2025/10/01/science/jane-goodall-chimpanzees-career.html
-
-**Jane Goodall’s Thoughts for a Reporter: ‘Hope Isn’t Just Wishful Thinking’**\
-`A Times correspondent who interviewed Dr. Goodall recalled their conversations about the state of the planet.`\
-https://nytimes.com/2025/10/01/climate/jane-goodall-interviews.html
 
