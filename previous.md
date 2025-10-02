@@ -1,40 +1,40 @@
-**No More Signs of Life From Rubble of Collapsed School in Indonesia**\
-`Rescuers saved five more students from under the building on Thursday but said they would end the search three days after the deadly accident.`\
-https://nytimes.com/2025/10/02/world/asia/indonesia-school-collapse.html
+**The High Stakes of the U.N. Climate Talks**\
+`At a Climate Forward Live event, André Corrêa do Lago, the head of the United Nations climate negotiations this year, about the United States’ evolving role in the discussions.`\
+https://nytimes.com/2025/10/02/climate/climate-forward-andre-correa-do-lago.html
 
-**Knives Out at the New Dior**\
-`Jonathan Anderson showed his first women’s wear collection for the brand, and it was a scream.`\
-https://nytimes.com/2025/10/02/style/dior-jonathan-anderson-spring-2026.html
+**At Stake in the Shutdown Fight: Obamacare Prices That Could Rise by Thousands of Dollars**\
+`Here’s where Affordable Care Act premiums could increase the most.`\
+https://nytimes.com/interactive/2025/10/02/upshot/shutdown-obamacare-subsidies.html
 
-**Champions League 2025-26 Projections: Who will lift the trophy in Budapest on May 30?**\
-`Our Opta-powered Champions League projections update after each matchday`\
-https://nytimes.com/athletic/6630404/2025/10/02/champions-league-projections-2025-26/
+**Pearls to Wear Every Day**\
+`Plus: a Surrealist exhibition in New York, floating saunas and more recommendations from T Magazine.`\
+https://nytimes.com/2025/10/02/t-magazine/amane-pearl-jewelry.html
 
-**Colbert Suggests Unplugging the Government Then Turning It on Again**\
-`“If that doesn’t work, maybe toss it in a bag of rice,” the “Late Show” host Stephen Colbert said a day after the U.S. government shut down.`\
-https://nytimes.com/2025/10/02/arts/television/colbert-government-shutdown.html
+**Incompetence Isn’t an Upgrade Over D.E.I.**\
+`The Trump administration is a mockery of the idea of meritocracy.`\
+https://nytimes.com/2025/10/02/opinion/pete-hegseth-speech-dei.html
 
-**Mamdani Says He Would Phase Out N.Y.C. Gifted Program for Early Grades**\
-`Zohran Mamdani, the Democratic front-runner in the mayor’s race, plans if elected to replace the selective program, which became a symbol of segregation in public schools.`\
-https://nytimes.com/2025/10/02/nyregion/mamdani-schools-gifted-and-talented-program.html
+**He Wanted to Stay Close to Family in Queens. But How Close Was Too Close?**\
+`After years of diligent saving, a longtime renter with a $250,000 budget weighed whether to take his parents’ advice and return to his childhood building in Elmhurst, or branch out.`\
+https://nytimes.com/interactive/2025/10/02/realestate/queens-elmhurst-apartment-sale.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/10/02/crosswords/spelling-bee-forum.html
+**Fed’s Independence Remains at Risk Despite Temporary Legal Victory**\
+`A Supreme Court order keeping Lisa Cook on the Federal Reserve Board for now is “a time to exhale but not breathe easy,” one expert said.`\
+https://nytimes.com/2025/10/02/business/federal-reserve-independence-lisa-cook.html
 
-**How to watch Chiefs at Jaguars: Time, TV, streaming**\
-`Find out how to watch the Kansas City Chiefs play the Jacksonville Jaguars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6682535/2025/10/02/chiefs-vs-jaguars-stream-how-to-watch-oct-6/
+**Goose Is a Jam Band. Geese Is Indie Rock. They Both Have New Albums.**\
+`They’re also both on tour. Confused? We can help.`\
+https://nytimes.com/2025/10/02/style/goose-geese-bands.html
 
-**How to watch Padres at Cubs: Game 3 Time, TV, streaming**\
-`Find out how to watch the San Diego Padres play the Chicago Cubs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6682520/2025/10/02/padres-vs-cubs-stream-how-to-watch-oct-2/
+**‘Enough Is Enough’: Many Palestinians Say Hamas Must Accept Cease-Fire Plan**\
+`Interviews in Gaza suggest wide support for a proposal that calls for an immediate end to a war that has brought immense civilian suffering.`\
+https://nytimes.com/2025/10/02/world/middleeast/palestinian-voices-hamas-cease-fire.html
 
-**How to watch Red Sox at Yankees: Game 3 Time, TV, streaming**\
-`Find out how to watch the Boston Red Sox play the New York Yankees, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6682518/2025/10/02/red-sox-vs-yankees-stream-how-to-watch-oct-2/
+**Is ‘One Battle After Another’ the Best Movie of the Year?**\
+`“Vivá la Revolución!”`\
+https://nytimes.com/2025/10/02/podcasts/is-one-battle-after-another-the-best-movie-of-the-year.html
 
-**Seven seconds, seven touches, 70 yards... a slaloming assist that showed De Bruyne has still got it**\
-`The Belgian set up two goals for Rasmus Hojlund as Napoli beat Sporting CP, the first with a particularly beautiful run and pass...`\
-https://nytimes.com/athletic/6681253/2025/10/02/de-bruyne-assist-napoli-hojlund/
+**New Tariffs Could Worsen America’s Housing Crisis**\
+`President Trump’s tariffs on timber, wood, furniture and kitchen cabinets could raise the cost of building and buying a home.`\
+https://nytimes.com/2025/10/02/business/tariffs-lumber-furniture-housing-crisis.html
 
