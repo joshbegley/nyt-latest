@@ -26,8 +26,8 @@ https://nytimes.com/athletic/6681793/2025/10/02/ryder-cup-united-states-europe-a
 `With Arkansas promoting Bobby Petrino to interim head coach, let's revisit how "sequel" coaches have down in the past. `\
 https://nytimes.com/athletic/6681859/2025/10/02/bobby-petrino-arkansas-sequel-coach/
 
-**Here is the latest.**\
-`By Shawn McCreesh`\
+**Here’s the latest.**\
+`By Shawn McCreesh and Tony Romm`\
 https://nytimes.com/live/2025/10/02/us/trump-government-shutdown/here-is-the-latest
 
 **Klay Thompson believes Mavericks are championship worthy after last season's injuries**\
