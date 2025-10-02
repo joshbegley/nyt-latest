@@ -1,3 +1,15 @@
+**Yohe's 10 observations: Penguins' youth movement on full display once again**\
+`The young Penguins prospects led the way again in a 5-3 preseason win over Buffalo on Wednesday. `\
+https://nytimes.com/athletic/6680327/2025/10/01/penguins-sabres-nhl-preseason-prospects/
+
+**Comedian Heather McMahan apologizes for participating in Rory McIlroy chant**\
+`"Even just saying it once, was so foolish and so silly of me," McMahan said on her podcast about the incident.`\
+https://nytimes.com/athletic/6682145/2025/10/01/heather-mcmahan-rory-mcilroy-chant-apology/
+
+**'Have never seen dominance like that': Padres' Mason Miller sets 2 postseason records in win over Cubs**\
+`Just a little over two months after Miller was acquired by the Padres at the deadline, he put on a postseason show to remember.`\
+https://nytimes.com/athletic/6682149/2025/10/01/padres-mason-miller-postseason-mlb/
+
 **Padres' Mason Miller sets two postseason records in win over Cubs: ‘Have never seen dominance like that’**\
 `Just a little over two months after Mason Miller was acquired by the Padres at the deadline, he put on a postseason show to remember.`\
 https://nytimes.com/athletic/6682149/2025/10/01/padres-mason-miller-postseason-mlb/
