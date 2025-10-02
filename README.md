@@ -1,3 +1,11 @@
+**Mamdani Says He Would Phase Out N.Y.C. Gifted Program for Early Grades**\
+`Zohran Mamdani, the Democratic front-runner in the mayor’s race, plans if elected to replace the selective program, which became a symbol of segregation in public schools.`\
+https://nytimes.com/2025/10/02/nyregion/mamdani-schools-gifted-and-talented-program.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/10/02/crosswords/spelling-bee-forum.html
+
 **How to watch Chiefs at Jaguars: Time, TV, streaming**\
 `Find out how to watch the Kansas City Chiefs play the Jacksonville Jaguars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6682535/2025/10/02/chiefs-vs-jaguars-stream-how-to-watch-oct-6/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6681576/2025/10/02/arsenal-defence-olympiacos-artet
 **The New York Times in Print for Thursday, Oct. 2, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/02/todays-new-york-times
-
-**My City Is the Heart of Europe, and It’s Not Going Well**\
-`Brussels is nearing the end of its experiment in urban autonomy.`\
-https://nytimes.com/2025/10/02/opinion/brussels-belgium-european-union.html
-
-**This Is What Autocrats Dread**\
-`Authoritarians have lost elections before, and they will again.`\
-https://nytimes.com/2025/10/02/opinion/poland-election-autocrat-russia-hungary.html
 
