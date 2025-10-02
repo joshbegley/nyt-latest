@@ -1,3 +1,7 @@
+**Here Are the Dueling Plans Behind the Shutdown Impasse**\
+`Republicans are proposing a straight extension of government spending, while Democrats are demanding the addition of over $1 trillion for health programs.`\
+https://nytimes.com/2025/10/02/us/politics/government-shutdown-spending-bill-impasse.html
+
 **Heading to L.A. for the Olympics? If You’re Into These Sports, You’re in the Wrong State.**\
 `Much of the Summer Games in 2028 will take place in Southern California. But two events, softball and canoe slalom, will be held in Oklahoma.`\
 https://nytimes.com/2025/10/02/us/los-angeles-olympics-oklahoma-city.html
