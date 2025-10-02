@@ -1,3 +1,7 @@
+**Warriors' Jonathan Kuminga acknowledges unclear long-term future despite new contract**\
+`"All that matters is we got it done, and I'm excited to be here," Kuminga said of his two-year, $48.5 million contract.`\
+https://nytimes.com/athletic/6684981/2025/10/02/jonathan-kuminga-warriors-contract-future/
+
 **Caitlin Clark will not play in Unrivaled this winter: Source**\
 `The league has announced all but two of the 48 players for the upcoming season.`\
 https://nytimes.com/athletic/6684777/2025/10/02/caitlin-clark-unrivaled-not-joining/
