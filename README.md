@@ -1,3 +1,7 @@
+**F.D.A. Approves a New Generic Abortion Pill**\
+`The decision enraged opponents of abortion, who have been pressuring the administration to restrict access to abortion medication.`\
+https://nytimes.com/2025/10/02/health/abortion-pill-generic-fda.html
+
 **A Shutdown Silver Lining: Federal Workers Eat and Drink at a Discount**\
 `Washington watering holes and restaurants are showing solidarity and seizing an opportunity to draw in out-of-work government employees.`\
 https://nytimes.com/2025/10/02/dining/government-shutdown-restaurants-discounts.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010423877/conservatives-vs-hasan-piker.h
 **Behind the U.S. Deportation Flight to Iran**\
 `The deportation flight to Iran signals the Trump administration’s determination to remove migrants, even to places with harsh human rights conditions. Hamed Aleaziz, a reporter covering immigration for The New York Times, explains what we know about the effort.`\
 https://nytimes.com/video/us/100000010432925/behind-the-us-deportation-flight-to-iran.html
-
-**What to See in Galleries in October**\
-`This week in Newly Reviewed, Will Heinrich covers Zoe Leonard’s armor, explosive paintings from Assume Vivid Astro Focus, Max Schumann’s paper bag art and Ed Bereal’s skeletal demon.`\
-https://nytimes.com/2025/10/02/arts/what-to-see-in-galleries-in-october.html
 
