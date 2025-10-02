@@ -6,8 +6,8 @@ https://nytimes.com/2025/10/01/science/jane-goodall-chimpanzees-career.html
 `A Times correspondent who interviewed Dr. Goodall recalled their conversations about the state of the planet.`\
 https://nytimes.com/2025/10/01/climate/jane-goodall-interviews.html
 
-**Pochettino joins actor McConaughey to channel emotion of World Cup prep**\
-`The national team coach and the Hollywood actor spoke to CBS ahead of the US Open Cup final`\
+**Mauricio Pochettino joins actor McConaughey to channel emotion of World Cup prep**\
+`The national team coach and the Hollywood actor spoke to CBS ahead of the US Open Cup final.`\
 https://nytimes.com/athletic/6681824/2025/10/01/usmnt-pochettino-mcconaughey-austin-world-cup/
 
 **For Workers, Mixed Signals. For the Public, Limited Impact on Shutdown’s First Day.**\

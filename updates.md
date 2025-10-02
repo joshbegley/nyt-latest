@@ -1,3 +1,7 @@
+**Mauricio Pochettino joins actor McConaughey to channel emotion of World Cup prep**\
+`The national team coach and the Hollywood actor spoke to CBS ahead of the US Open Cup final.`\
+https://nytimes.com/athletic/6681824/2025/10/01/usmnt-pochettino-mcconaughey-austin-world-cup/
+
 **‘There Will Always Only Be One Jane Goodall’**\
 `Scientists reflect on the life and work of a researcher whose discoveries made them rethink what it means to be human.`\
 https://nytimes.com/2025/10/01/science/jane-goodall-chimpanzees-career.html
