@@ -1,3 +1,7 @@
+**Pistons hope to keep turning good defense into 'explosive' offense**\
+`Detroit hopes to use its athleticism to create turnovers and lead to easy transition baskets this season.`\
+https://nytimes.com/athletic/6686747/2025/10/03/pistons-jb-bickerstaff-defense-offense/
+
 **The Fuel Behind Trump’s $100,000 Visa Fee: Lost U.S. Tech Jobs**\
 `The president’s decision to charge employers $100,000 per visa for skilled workers seemed to come out of nowhere. But the grievance behind it has been simmering.`\
 https://nytimes.com/2025/10/03/business/h1b-visas-tech-jobs-layoffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/03/arts/music/metropolitan-opera-kavalier-clay-switc
 **Barcelona announce Yamal injury hours after he's named in Spain squad**\
 `Yamal is out of Sunday's La Liga fixture against Sevilla and faces a race to be fit for the season's first Clasico against Real Madrid.`\
 https://nytimes.com/athletic/6686895/2025/10/03/lamine-yamal-injury-update-barcelona-spain/
-
-**Dan Dan Noodles, but Make Them a Big Salad**\
-`Sturdy salads, like these new recipes from Hetty Lui McKinnon, make entertaining and meal prep easier for busy cooks.`\
-https://nytimes.com/2025/10/03/dining/dan-dan-noodles-but-make-them-a-big-salad.html
 

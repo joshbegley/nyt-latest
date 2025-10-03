@@ -1,3 +1,7 @@
+**Betting for (by) dummies: Riding Vanderbilt, Saints, Ravens to cover and the under in London**\
+`Too many bets to make, too little time. Here are nine picks our football writers are making across college and NFL.`\
+https://nytimes.com/athletic/6686758/2025/10/03/nfl-college-football-betting-picks-vanderbilt-saints-ravens/
+
 **Pistons hope to keep turning good defense into 'explosive' offense**\
 `Detroit hopes to use its athleticism to create turnovers and lead to easy transition baskets this season.`\
 https://nytimes.com/athletic/6686747/2025/10/03/pistons-jb-bickerstaff-defense-offense/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/03/climate/sounds-of-climate-change.html
 **737 Videos, 141 Cues: What It Takes to Make ‘Kavalier & Clay’ Lift Off**\
 `At the Metropolitan Opera, a cramped studio at the back of the hall is a command tower, controlling the show’s elaborate video and effects.`\
 https://nytimes.com/2025/10/03/arts/music/metropolitan-opera-kavalier-clay-switchboard.html
-
-**Barcelona announce Yamal injury hours after he's named in Spain squad**\
-`Yamal is out of Sunday's La Liga fixture against Sevilla and faces a race to be fit for the season's first Clasico against Real Madrid.`\
-https://nytimes.com/athletic/6686895/2025/10/03/lamine-yamal-injury-update-barcelona-spain/
 

@@ -1,3 +1,7 @@
+**Pistons hope to keep turning good defense into 'explosive' offense**\
+`Detroit hopes to use its athleticism to create turnovers and lead to easy transition baskets this season.`\
+https://nytimes.com/athletic/6686747/2025/10/03/pistons-jb-bickerstaff-defense-offense/
+
 **The Fuel Behind Trump’s $100,000 Visa Fee: Lost U.S. Tech Jobs**\
 `The president’s decision to charge employers $100,000 per visa for skilled workers seemed to come out of nowhere. But the grievance behind it has been simmering.`\
 https://nytimes.com/2025/10/03/business/h1b-visas-tech-jobs-layoffs.html
