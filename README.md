@@ -1,3 +1,27 @@
+**Why hasn't Shedeur Sanders moved up Browns' depth chart? The non-answers speak volumes**\
+`While Dillon Gabriel received a promotion as Cleveland's starter, Sanders remains No. 3 in the team's quarterback pecking order. `\
+https://nytimes.com/athletic/6687318/2025/10/03/shedeur-sanders-browns-quarterback-depth-chart-reasoning/
+
+**North Carolina Governor Signs Crime Bill Passed After Stabbing**\
+`The bill, approved last month by the Republican-dominated legislature in the wake of the brutal killing of a Ukrainian refugee, will tighten bail rules and may restart executions.`\
+https://nytimes.com/2025/10/03/us/north-carolina-crime-bill-stein.html
+
+**How will the Clippers 11-man rotation work? Analyzing assignments and expectations**\
+`The Clippers enter the season with one of the NBA's deepest rotations. Can they finally break out of the West?`\
+https://nytimes.com/athletic/6686255/2025/10/03/kawhi-leonard-clippers-rotation-tyronn-lue-nba/
+
+**Taylor Swift Fans Try to Decode ‘The Life of a Showgirl’**\
+`Speculation abounds as to which songs have references to the various celebrities in Ms. Swift’s life.`\
+https://nytimes.com/2025/10/03/style/taylor-swift-showgirl-charli-xcx-actually-romantic.html
+
+**In the Arctic, the U.S. Shifts Focus From Climate Research to Security**\
+`The Trump administration is emphasizing defense concerns instead of climate research in the rapidly warming Arctic region.`\
+https://nytimes.com/2025/10/03/climate/arctic-research-security.html
+
+**Canada and the U.S. to Hold Trade and Security Talks**\
+`Prime Minister Mark Carney of Canada will travel to Washington next week to meet with President Trump to try to ease some of the tariffs imposed by the United States.`\
+https://nytimes.com/2025/10/03/world/canada/trump-carney-meeting-tariffs-canada.html
+
 **Statue of Trump and Epstein Returns to National Mall**\
 `A statue depicting President Trump and Jeffrey Epstein was reinstalled near the Capitol after it was briefly removed by the National Park Service last week.`\
 https://nytimes.com/video/us/100000010438176/trump-epstein-washington-statue.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/10/03/world/europe/ukraine-drone-attack-journalist-kill
 **Are You Playing the Technology or Is the Technology Playing You?**\
 `Are you playing the technology or is the technology playing you? In a recent episode of “The Ezra Klein Show,” the musician Brian Eno and the Opinion columnist Ezra Klein discuss how generative A.I. changes our relationship with agency.`\
 https://nytimes.com/video/opinion/100000010416836/are-you-playing-the-technology-or-is-the-technology-playing-you.html
-
-**Speaker Johnson Says Trump Is ‘Trolling’ Democrats With Cuts**\
-`Speaker Mike Johnson said the shutdown shifted authority to the president to determine what parts of the government are essential and also downplayed the president’s previous statements about using that authority to hurt his political opponents.`\
-https://nytimes.com/video/us/politics/100000010438109/trump-trolling-democrats-mike-johnson.html
-
-**Division Series predictions: Our experts pick the winners for each series**\
-`Our staff is somewhat divided over which teams will advance in the NL, but they have a vision of a 2001 ALCS rematch on the AL side.`\
-https://nytimes.com/athletic/6687256/2025/10/03/mlb-division-series-staff-predictions/
-
-**U.S. Military Attacked Boat Off Venezuela, Killing Four Men, Hegseth Says**\
-`It was the fourth strike in the Trump administration’s legally disputed campaign targeting suspected drug runners in the Caribbean Sea.`\
-https://nytimes.com/2025/10/03/us/politics/hegseth-military-boat-venezuela.html
-
-**Wild reacquire Daemon Hunt, claiming former Minnesota defenseman off waivers**\
-`Hunt, 23, a third-round pick by the Wild in 2022, was traded to the Blue Jackets in November as part of the package to get David Jiricek.`\
-https://nytimes.com/athletic/6687160/2025/10/03/wild-daemon-hunt-waivers-claim/
-
-**Tuchel favours late World Cup kick-off times despite broadcast drawbacks**\
-`“I know the fans will not like it but for us it's better if we play later,” Tuchel said. "We have to protect the game."`\
-https://nytimes.com/athletic/6686685/2025/10/03/thomas-tuchel-england-world-cup-kick-offs/
-
-**Mamdani Condemns Trump’s $18 Billion Funding Freeze for New York-Area Projects**\
-`The Democratic front-runner for mayor of New York said that “these are the actions of one who is cruel to this city.”`\
-https://nytimes.com/2025/10/03/us/politics/mamdani-trump-funding-freeze-new-york-projects.html
 
