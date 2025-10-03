@@ -1,3 +1,7 @@
+**Have familiar flaws put Ange Postecoglou's future at Nottingham Forest in jeopardy already?**\
+`The start to the Australian's tenure is the worst of any permanent Forest manager in a hundred years `\
+https://nytimes.com/athletic/6685370/2025/10/03/nottingham-forest-europa-league-postecoglou-struggles/
+
 **Large Fire Burns at Chevron Refinery in El Segundo**\
 `It was not immediately clear what caused the blast. But the blaze, near Los Angeles, could be seen from miles away.`\
 https://nytimes.com/2025/10/03/us/el-segundo-refinery-fire-chevron.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6682944/2025/10/03/archie-gray-tottenham-midfield-l
 **Fantasy Premier League: The best captaincy options for Gameweek 7**\
 `There are multiple captaincy choices to consider for Gameweek 7. Here's how to marry consistency, fixture and ceiling in your decision`\
 https://nytimes.com/athletic/6680304/2025/10/03/fantasy-premier-league-gw7-captain/
-
-**Michael Keane. Finisher**\
-`The 32-year-old centre-half has revived under David Moyes this season and is playing a key role - at both ends of the pitch`\
-https://nytimes.com/athletic/6682842/2025/10/03/michael-keane-everton-finisher-moyes/
 
