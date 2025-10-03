@@ -1,3 +1,11 @@
+**What we still don't know about the Penguins' final roster just days before NHL season start**\
+`The Penguins' roster situation has grown more interesting in recent days. We know some things, but there's still a lot of mystery.`\
+https://nytimes.com/athletic/6686996/2025/10/03/penguins-2025-26-roster-nhl-season-schedule/
+
+**Jane Fonda Revives Her Father’s McCarthy-Era Free Speech Group**\
+`The actress joined Spike Lee, Billie Eilish, Pedro Pascal and others in reviving the Committee for the First Amendment, a group that her father, Henry Fonda, was a member of in the 1940s.`\
+https://nytimes.com/2025/10/03/arts/jane-fonda-henry-fonda-free-speech.html
+
 **F1 Cars Need Fuel. So Do Their Drivers.**\
 `What and when to eat are important when taking into account Formula 1’s complex global calendar.`\
 https://nytimes.com/2025/10/03/sports/f1-drivers-diet-food.html

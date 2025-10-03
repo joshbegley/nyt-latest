@@ -1,3 +1,7 @@
+**What we still don't know about the Penguins' final roster just days before NHL season start**\
+`The Penguins' roster situation has grown more interesting in recent days. We know some things, but there's still a lot of mystery.`\
+https://nytimes.com/athletic/6686996/2025/10/03/penguins-2025-26-roster-nhl-season-schedule/
+
 **F1 Cars Need Fuel. So Do Their Drivers.**\
 `What and when to eat are important when taking into account Formula 1’s complex global calendar.`\
 https://nytimes.com/2025/10/03/sports/f1-drivers-diet-food.html
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/6687155/2025/10/03/strength-of-schedule-for-all-32-
 https://nytimes.com/2025/10/03/theater/off-broadway-shows-october.html
 
 **Jane Fonda Revives Her Father’s McCarthy-Era Free Speech Group**\
-`The actress is leading the revival of the Committee for the First Amendment, a free-expression group that Hollywood stars including her father, Henry Fonda, formed in the 1940s.`\
+`The actress joined Spike Lee, Billie Eilish, Pedro Pascal and others in reviving the Committee for the First Amendment, a group that her father, Henry Fonda, was a member of in the 1940s.`\
 https://nytimes.com/2025/10/03/arts/jane-fonda-henry-fonda-free-speech.html
 
 **The Windup: Each Division Series in focus**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/03/your-money/ira-vanguard-merrill-acats-fraud.html
 **The Bounce: WNBA Finals start tonight! Plus: Previewing the Trail Blazers and Bulls**\
 `Welcome to The Bounce, The Athletic's basketball newsletter.`\
 https://nytimes.com/athletic/6683786/2025/10/03/wnba-finals-bulls-blazers-the-bounce/
-
-**Vikings' J.J. McCarthy, Andrew Van Ginkel, 3 O-line starters out vs. Browns**\
-`Minnesota's roster has been decimated by injuries. It's down to a third-string left guard and center, and a second-string right tackle.`\
-https://nytimes.com/athletic/6686800/2025/10/03/vikings-mccarthy-van-ginkel-out-browns/
 
