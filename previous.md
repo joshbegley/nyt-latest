@@ -1,3 +1,7 @@
+**2 Victims Named After Manchester Synagogue Terrorist Attack**\
+`Adrian Daulby, 53, and Melvin Cravitz, 66, were named as the two people killed Thursday outside the Heaton Park Congregation synagogue in northwestern England.`\
+https://nytimes.com/2025/10/03/world/europe/2-victims-named-after-manchester-synagogue-terrorist-attack.html
+
 **How Marco Bizot channelled his inner Nigel Spink to help Aston Villa beat Feyenoord**\
 `Just as in 1982, Villa's second-choice goalkeeper ended up playing a crucial role in a victory in Rotterdam`\
 https://nytimes.com/athletic/6684738/2025/10/03/aston-villa-marco-bizot-rotterdam-spink/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6673214/2025/10/03/crystal-palace-europe-fans/
 **How Chiesa came in from the cold**\
 `The Italian was already a cult hero after one season at Anfield but now he is an increasingly important attacking option for Arne Slot`\
 https://nytimes.com/athletic/6675997/2025/10/03/federico-chiesa-liverpool-analysis/
-
-**Why Newcastle's chance creation is down – and how they can evolve to get even more from Woltemade**\
-`Newcastle are creating fewer chances in the Premier League than ever before under Eddie Howe. This is why and how they aim to fix it`\
-https://nytimes.com/athletic/6679810/2025/10/03/newcastle-united-xg-woltemade/
 
