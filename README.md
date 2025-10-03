@@ -1,3 +1,15 @@
+**On a magical night for the Cubs, Pete Crow-Armstrong salutes his Wrigley Field fans**\
+`An elimination game found Crow-Armstrong in the second inning, with the bases loaded and his Beastie Boys walk-up music blaring.`\
+https://nytimes.com/athletic/6685899/2025/10/03/chicago-cubs-pete-crow-armstrong-wrigley-field-fans/
+
+**AFC North Whiparound: Recalibrating the race with Ravens reeling, Joe Burrow hurt**\
+`The Steelers could be in the division driver's seat as the Browns, Bengals and Ravens all deal with quarterback questions.`\
+https://nytimes.com/athletic/6684030/2025/10/03/afc-north-whiparound-browns-ravens-bengals-steelers/
+
+**Does WNBA have 'worst leadership in the world'? A timeline of Cathy Engelbert's tenure**\
+`Engelbert has been the WNBA commissioner since 2019, and she and the league have experienced ups and downs during her tenure. `\
+https://nytimes.com/athletic/6680206/2025/10/03/wnba-cathy-engelbert-leadership-tenure/
+
 **The Pulse: A baseball dream realized**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6684355/2025/10/03/cam-schlittler-yankees-the-pulse/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6682885/2025/10/03/vikings-browns-predictions-carso
 **Devin Booker is the Suns' undisputed leader. He has a perfect role model in Steve Nash**\
 `Nash, the two-time MVP in Phoenix, has joined the Suns as a senior advisor, but he's not only person in the gym with a new role. `\
 https://nytimes.com/athletic/6677960/2025/10/03/devin-booker-phoenix-suns-leader-steve-nash/
-
-**You have questions about youth sports. Former NFL player Greg Olsen has answers**\
-`Every month, former NFL player Greg Olsen will answer questions related to youth sports. Readers are encouraged to submit questions.`\
-https://nytimes.com/athletic/6684423/2025/10/03/greg-olsen-nfl-youth-sports-fox/
-
-**Battered 49ers fight and claw past Rams with game-saving punchout, fourth-down stand**\
-`A 49ers defense on its last legs and littered with backups dug deep when it mattered most, epitomized by rookie Alfred Collins' big play.`\
-https://nytimes.com/athletic/6685900/2025/10/03/49ers-rams-alfred-collins-fumble-fourth-down/
-
-**As UNC and Clemson's miserable seasons collide, can coaching titans turn things around?**\
-`The move to college has not been kind to Bill Belichick. And Dabo Swinney's Tigers plummeted from preseason No. 4 to 1-3 and unranked.`\
-https://nytimes.com/athletic/6683971/2025/10/03/bill-belichick-dabo-swinney-unc-clemson/
 
