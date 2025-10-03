@@ -1,3 +1,15 @@
+**49ers minutia minute: Mac Jones went bananas as offense ran up huge snap count**\
+`McCaffrey’s 76 snaps were the second most of his career, surpassed only by an 83-snap game in 2018 when he was with the Carolina Panthers.`\
+https://nytimes.com/athletic/6687575/2025/10/03/49ers-minutia-minute-mac-jones-rams-tnf/
+
+**Homemade as Good As the Ice Cream Shop’s**\
+`In tribute to the world’s favorite frozen treat, makers of the Ninja Swirl™ by CREAMi® teamed with the owners of New York’s Soft Swerve for a series of exclusive Asian-inspired ice cream recipes to make at home.`\
+https://nytimes.com/paidpost/wirecutter/ninja-kitchen/homemade-as-good-as-the-ice-cream-shops.html
+
+**Arizona Man Is Arrested in Murders of 2 Teens Camping at National Forest**\
+`The man had also been at Tonto National Forest in Arizona around the time that the bodies were found in May, the authorities said.`\
+https://nytimes.com/2025/10/03/us/arizona-murders-tonto-national-forests.html
+
 **Former Jets employee accuses team of retaliation amid sexual misconduct investigation**\
 `The team’s former vice president of finance said the Jets fired her as it reviewed allegations of misconduct by the team president.`\
 https://nytimes.com/athletic/6687401/2025/10/03/jets-lawsuit-retaliation-sexual-misconduct-investigation/
@@ -21,16 +33,4 @@ https://nytimes.com/2025/10/03/us/billionaire-marc-rowan-trump-deal-universities
 **Blue Jays ALDS Notes: Don’t expect Bo Bichette to do a Kirk Gibson impression, Game 1 starter**\
 `Jays manager John Schneider declined to name a Game 2 starter or map out any future pitching plans Friday.`\
 https://nytimes.com/athletic/6687543/2025/10/03/blue-jays-alds-starter-gausman/
-
-**With Adams Out, Cuomo Reports Rush in Donations but Still Trails Mamdani**\
-`As the New York City mayor’s race enters its final phase, Former Gov. Andrew M. Cuomo hopes the capitalize on Mayor Eric Adams’s decision to end his campaign.`\
-https://nytimes.com/2025/10/03/nyregion/mamdani-cuomo-nyc-mayor-fundraising.html
-
-**Brian Eno’s Creative Motivations**\
-`What motivates Brian Eno to create? The prolific artist and musician joined the Opinion columnist Ezra Klein to discuss art, life and the strange inspiration for his album “Music for Airports.”`\
-https://nytimes.com/video/opinion/100000010428213/brian-enos-creative-motivations.html
-
-**Journalists at 3 Newspapers Quit Over Edits to a Charlie Kirk Story**\
-`The publications in Alaska lost significant staffing after the owners made changes to an article that had drawn criticism from a Republican state lawmaker.`\
-https://nytimes.com/2025/10/03/us/politics/alaska-newspapers-resignations-charlie-kirk.html
 
