@@ -1,3 +1,7 @@
+**Padres' offense, core of stars fizzle again in short October run**\
+`For a second consecutive year, the Padres won at least 90 regular-season games. Then, rather quickly, were dispatched in the postseason.`\
+https://nytimes.com/athletic/6685782/2025/10/03/san-diego-padres-offensive-struggles-october/
+
 **How Palace fans began their European party with songs, solidarity... and lots of beer**\
 `The London club had waited its whole history for a first game in the main draw of a European competition. It was never going to be quiet`\
 https://nytimes.com/athletic/6673214/2025/10/03/crystal-palace-europe-fans/
