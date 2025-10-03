@@ -1,4 +1,8 @@
 **Former Jets employee accuses team of retaliation amid sexual misconduct investigation**\
+`The team’s former vice president of finance said the Jets fired her as it reviewed allegations of misconduct by the team president.`\
+https://nytimes.com/athletic/6687401/2025/10/03/jets-lawsuit-retaliation-sexual-misconduct-investigation/
+
+**Former Jets employee accuses team of retaliation amid sexual misconduct investigation**\
 `A former New York Jets vice president has filed a lawsuit against the team, saying she was fired as part of the franchise&#8217;s response to allegations of sexual misconduct against team president Hymie Elhai.`\
 https://nytimes.com/athletic/6687401/2025/10/03/jets-lawsuit-retaliation-sexual-misconduct-investigation/
 
