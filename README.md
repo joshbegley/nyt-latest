@@ -1,3 +1,15 @@
+**French Photojournalist Killed in Drone Attack in Ukraine**\
+`Antoni Lallican, a Paris-based photographer, is the first working journalist to be killed by a remotely piloted drone during the war, according to press associations.`\
+https://nytimes.com/2025/10/03/world/europe/ukraine-drone-attack-journalist-killed.html
+
+**Are You Playing the Technology or Is the Technology Playing You?**\
+`Are you playing the technology or is the technology playing you? In a recent episode of “The Ezra Klein Show,” the musician Brian Eno and the Opinion columnist Ezra Klein discuss how generative A.I. changes our relationship with agency.`\
+https://nytimes.com/video/opinion/100000010416836/are-you-playing-the-technology-or-is-the-technology-playing-you.html
+
+**Speaker Johnson Says Trump Is ‘Trolling’ Democrats With Cuts**\
+`Speaker Mike Johnson said the shutdown shifted authority to the president to determine what parts of the government are essential and also downplayed the president’s previous statements about using that authority to hurt his political opponents.`\
+https://nytimes.com/video/us/politics/100000010438109/trump-trolling-democrats-mike-johnson.html
+
 **Division Series predictions: Our experts pick the winners for each series**\
 `Our staff is somewhat divided over which teams will advance in the NL, but they have a vision of a 2001 ALCS rematch on the AL side.`\
 https://nytimes.com/athletic/6687256/2025/10/03/mlb-division-series-staff-predictions/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/03/us/donald-trump-jeffrey-epstein-statue-washington
 **Skip Schumaker considered top candidate for Rangers' managerial job**\
 `Rangers president of baseball operations Chris Young said Friday that Schumaker was "the focus" of the club's search for a new manager.`\
 https://nytimes.com/athletic/6687293/2025/10/03/skip-schumaker-rangers-manager-mlb/
-
-**Israel, Palestine and the Peace Option**\
-`Readers, including a former Israeli diplomat, respond to a guest essay by the Israeli politician Benny Gantz. Also: Care for young and old; trucks and trains.`\
-https://nytimes.com/2025/10/03/opinion/israel-palestine-netanyahu.html
-
-**7 Americans Tell Us Whom They Blame for the Shutdown**\
-`In the first few days of the government shutdown, many voters expressed frustration over the inability of Republicans and Democrats to compromise.`\
-https://nytimes.com/2025/10/03/us/government-shutdown-democrats-republicans-blame.html
-
-**The Best Movies and TV Shows Coming to Netflix in October**\
-`“Nobody Wants This” is back and so is Kathryn Bigelow, with a new political thriller starring Idris Elba.`\
-https://nytimes.com/2025/10/03/arts/television/netflix-new-october.html
 
