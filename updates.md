@@ -1,3 +1,7 @@
+**5 Takeaways From Taylor Swift’s ‘Showgirl’ Movie**\
+`The pop star’s new album arrived with a limited-run film in which she debuts a video for “The Fate of Ophelia” and chats about the LP’s songs.`\
+https://nytimes.com/2025/10/03/arts/music/taylor-swift-showgirl-release-party-movie.html
+
 **Phillies-Dodgers NLDS: What we're watching in the series, starting with Cristopher Sánchez**\
 `Of the 32 starts Sánchez made in 2025, his changeup usage was lowest in the two games he pitched against Los Angeles.`\
 https://nytimes.com/athletic/6687936/2025/10/03/phillies-dodgers-nlds-matchup-cristopher-sanchez/
