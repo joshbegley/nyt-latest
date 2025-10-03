@@ -1,3 +1,11 @@
+**The Pulse: A baseball dream realized**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6684355/2025/10/03/cam-schlittler-yankees-the-pulse/
+
+**Israel Premier-Tech withdraws from three Italian cycling races due to security concerns**\
+`Thousands have gathered across Italy on Friday to protest in support of Palestinians and against the Italian government.`\
+https://nytimes.com/athletic/6686251/2025/10/03/israel-premier-tech-cycling-italy-protests/
+
 **What to Know About Japan’s Leadership Election**\
 `Japan’s beleaguered governing party will convene for a crucial election that could pave the way for the first female prime minister or the youngest leader in 140 years.`\
 https://nytimes.com/2025/10/03/world/asia/japan-election-leader-what-to-know.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6685900/2025/10/03/49ers-rams-alfred-collins-fumble
 **As UNC and Clemson's miserable seasons collide, can coaching titans turn things around?**\
 `The move to college has not been kind to Bill Belichick. And Dabo Swinney's Tigers plummeted from preseason No. 4 to 1-3 and unranked.`\
 https://nytimes.com/athletic/6683971/2025/10/03/bill-belichick-dabo-swinney-unc-clemson/
-
-**Oilers 2025-26 season preview: Playoff chances, projected points, roster rankings**\
-`The Oilers look like the same team that made it to back-to-back Stanley Cup Finals. But this year might be their last shot.`\
-https://nytimes.com/athletic/6681500/2025/10/03/edmonton-oilers-2025-26-season-preview/
-
-**Eagles film review: Why A.J. Brown has been underused and the offense is sputtering**\
-`The defending champs are undefeated, but first-year offensive coordinator Kevin Patullo's conservative approach raises questions.`\
-https://nytimes.com/athletic/6682636/2025/10/03/eagles-film-offense-aj-brown-jalen-hurts/
 

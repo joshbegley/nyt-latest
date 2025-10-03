@@ -1,3 +1,11 @@
+**The Pulse: A baseball dream realized**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6684355/2025/10/03/cam-schlittler-yankees-the-pulse/
+
+**Israel Premier-Tech withdraws from three Italian cycling races due to security concerns**\
+`Thousands have gathered across Italy on Friday to protest in support of Palestinians and against the Italian government.`\
+https://nytimes.com/athletic/6686251/2025/10/03/israel-premier-tech-cycling-italy-protests/
+
 **What to Know About Japan’s Leadership Election**\
 `Japan’s beleaguered governing party will convene for a crucial election that could pave the way for the first female prime minister or the youngest leader in 140 years.`\
 https://nytimes.com/2025/10/03/world/asia/japan-election-leader-what-to-know.html
