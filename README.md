@@ -1,3 +1,7 @@
+**Arthur Jones, Former Baltimore Ravens Player, Dies at 39**\
+`He played for the Ravens when the team won the Super Bowl in 2013.`\
+https://nytimes.com/2025/10/03/sports/arthur-jones-dead.html
+
 **Reaching for a Connection to Taylor Swift**\
 `A Democrat in a crowded House primary in Colorado is far from the only politician grasping for Taylor Swift-related straws.`\
 https://nytimes.com/2025/10/03/us/politics/evan-munsing-taylor-swift.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/03/us/politics/abrego-garcia-vindictive-prosecution.
 **Judge Says Trump Wrongly Removed Puerto Rico Oversight Board Members**\
 `A federal judge found that the president failed to comply with a law Congress passed in 2016 to restructure the debt of the bankrupt government.`\
 https://nytimes.com/2025/10/03/us/trump-puerto-rico-oversight-board.html
-
-**Rite Aid, Once One of America’s Biggest Pharmacy Chains, Closes Its Last Stores**\
-`The company said it had closed its remaining 89 stores this week after struggling for years to stay in business and filing for bankruptcy protection twice.`\
-https://nytimes.com/2025/10/03/business/rite-aid-closes-stores-bankruptcy.html
 

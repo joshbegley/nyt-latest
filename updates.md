@@ -1,3 +1,7 @@
+**Reaching for a Connection to Taylor Swift**\
+`A Democrat in a crowded House primary in Colorado is far from the only politician grasping for Taylor Swift-related straws.`\
+https://nytimes.com/2025/10/03/us/politics/evan-munsing-taylor-swift.html
+
 **Treasury Plans to Mint $1 Commemorative Trump Coin**\
 `The coin, bearing President Trump’s face, would honor the 250th birthday of the United States.`\
 https://nytimes.com/2025/10/03/business/trump-commemorative-coin-treasury.html

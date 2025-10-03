@@ -1,3 +1,7 @@
+**Reaching for a Connection to Taylor Swift**\
+`A Democrat in a crowded House primary in Colorado is far from the only politician grasping for Taylor Swift-related straws.`\
+https://nytimes.com/2025/10/03/us/politics/evan-munsing-taylor-swift.html
+
 **Treasury Plans to Mint $1 Commemorative Trump Coin**\
 `The coin, bearing President Trump’s face, would honor the 250th birthday of the United States.`\
 https://nytimes.com/2025/10/03/business/trump-commemorative-coin-treasury.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/03/us/trump-puerto-rico-oversight-board.html
 **Rite Aid, Once One of America’s Biggest Pharmacy Chains, Closes Its Last Stores**\
 `The company said it had closed its remaining 89 stores this week after struggling for years to stay in business and filing for bankruptcy protection twice.`\
 https://nytimes.com/2025/10/03/business/rite-aid-closes-stores-bankruptcy.html
-
-**Gig Drivers Win the Right to Unionize in California**\
-`The measure, a compromise with companies like Uber, could serve as a model for other states.`\
-https://nytimes.com/2025/10/03/business/uber-lyft-drivers-unionize-california-newsom.html
 
