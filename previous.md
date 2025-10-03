@@ -1,5 +1,5 @@
 **Juventus bans Parma fans after racist abuse of Weston McKennie**\
-`The statement said law enforcement officers identified the individuals with help from "the state-of-the-art video surveillance system."`\
+`A statement said law enforcement officers identified the individuals with help from "the state-of-the-art video surveillance system."`\
 https://nytimes.com/athletic/6686767/2025/10/03/juventus-weston-mckennie-racism/
 
 **Trump Administration Reverses $187 Million in N.Y. Counterterrorism Cuts**\
