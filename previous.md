@@ -1,3 +1,27 @@
+**Long-throw tactics: How Premier League teams profit from back-post runs and second balls**\
+`The tactic is on the rise, but it's not as simple as just launching the ball into the penalty box`\
+https://nytimes.com/athletic/6676061/2025/10/03/premier-league-long-throw-tactics/
+
+**The Prospects: Olabade Aluko, Leicester City**\
+`The teenage right-back has already made a first-team debut and showcased his attacking potential with bursts up the flank in the under-21s`\
+https://nytimes.com/athletic/6676337/2025/10/03/olabade-aluko-leicester-city-prospects/
+
+**Lamine Yamal and Vicky Lopez, a Barcelona friendship**\
+`The two young stars of Barcelona's men's and women's teams have developed a bond having first met at a youth tournament years ago`\
+https://nytimes.com/athletic/6679451/2025/10/03/barcelona-yamal-lopez-friendship/
+
+**‘Uncle Rigobert and Alex had success in their careers but I want to overtake them’**\
+`The 6ft 5in forward says he had two left feet as a footballer — unlike his uncle and cousin — so took up rugby league. He's not looked back`\
+https://nytimes.com/athletic/6662087/2025/10/03/junior-nsemba-wigan-rigobert-song-bhm/
+
+**Eberechi Eze, as told by his former Arsenal youth team-mates**\
+`Eze's willingness to try things has been refreshing since he returned to north London. It’s familiar to those who have played with him`\
+https://nytimes.com/athletic/6675970/2025/10/03/eberechi-arsenal-academy-youth/
+
+**Chelsea have started playing music after the team scores – and some fans aren't happy**\
+`An online petition to stop the club from playing music after Chelsea score a goal at Stamford Bridge has garnered over 1,500 signatures`\
+https://nytimes.com/athletic/6683751/2025/10/03/chelsea-goal-music-fans/
+
 **A.I. Is Driving a Stock Market Rally in China, Too**\
 `Surging interest in artificial intelligence is generating huge gains for Chinese tech stocks like Alibaba, which has more than doubled this year.`\
 https://nytimes.com/2025/10/03/business/china-tech-stocks-artificial-intelligence.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/10/03/style/taylor-swift-bob-mackie-showgirl-costumes.h
 **Corrections: Oct. 3, 2025**\
 `Corrections that appeared in print on Friday, Oct. 3, 2025.`\
 https://nytimes.com/2025/10/03/pageoneplus/corrections-oct-3-2025.html
-
-**A Romantic First Date? Depends on Whom You Ask.**\
-`Corey Paris, a state representative in Connecticut, and Symphonie Privett, a TV anchor, met at a fund-raiser. He saw a romantic connection. She wasn’t so sure.`\
-https://nytimes.com/2025/10/03/style/symphonie-privett-corey-paris-wedding.html
-
-**As Soon as They Met, They Were Sweet on Each Other**\
-`Maria Oveysi and Moe Kamal met at her family’s Iranian restaurant. Now they’re selling the ice cream that was inspired by it.`\
-https://nytimes.com/2025/10/03/style/maria-oveysi-moe-kamal-wedding.html
-
-**They Planned Their Wedding in 3 Weeks**\
-`Though they grew up just 10 blocks apart, Naim Bhuiyan and Anna Zhang never met until years later. When he proposed, he sent her a video via AirDrop of her parents giving their blessing.`\
-https://nytimes.com/2025/10/03/style/anna-zhang-naim-bhuiyan-wedding.html
-
-**On ‘Showgirl,’ Taylor Swift Has a Lust for Love (and Her Foes)**\
-`On her 12th original album, the pop superstar sounds hungry to embrace her future — but not until she attends to some unfinished business.`\
-https://nytimes.com/2025/10/03/arts/music/taylor-swift-the-life-of-a-showgirl-review.html
-
-**He Loves ‘Every Ounce of Light and Darkness Inside of Her’**\
-`Early in their relationship, Genevieve Wheeler, a novelist, told Iain Naylor, a lawyer, that she battles bipolar disorder. He was undeterred.`\
-https://nytimes.com/2025/10/03/style/genevieve-wheeler-iain-naylor-wedding.html
-
-**The Woman Who Always Paid for Dinner**\
-`She kept grabbing the check, and men kept letting her, until she landed on a (possibly) brilliant idea.`\
-https://nytimes.com/2025/10/03/style/modern-love-when-the-woman-pays-for-dinner-every-time.html
 

@@ -1,3 +1,15 @@
+**'It's fantastic we’re criticised. It means people care about what we're doing' - England's Charlie Dean**\
+`The England off-spinner talks captaincy, life under Charlotte Edwards and Nat Sciver-Brunt, and the team's World Cup prospects in India `\
+https://nytimes.com/athletic/6658047/2025/10/03/england-charlie-dean-odi-world-cup-exclusive/
+
+**Premier League Predictions: Chelsea vs Liverpool, Arsenal vs West Ham and the rest of Matchday 7**\
+`Who's leading after MD6? And what does our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 7?`\
+https://nytimes.com/athletic/6676838/2025/10/03/premier-league-predictions-matchday-7/
+
+**In series-clinching victory, Jameson Taillon gave the Cubs what they needed: 'He set the tone'**\
+`It took all of three pitches before Taillon and the Cubs knew something special was going to happen at Wrigley Field on Thursday night.`\
+https://nytimes.com/athletic/6685632/2025/10/03/cubs-game-3-jameson-taillon-win/
+
 **Long-throw tactics: How Premier League teams profit from back-post runs and second balls**\
 `The tactic is on the rise, but it's not as simple as just launching the ball into the penalty box`\
 https://nytimes.com/athletic/6676061/2025/10/03/premier-league-long-throw-tactics/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6683751/2025/10/03/chelsea-goal-music-fans/
 **A.I. Is Driving a Stock Market Rally in China, Too**\
 `Surging interest in artificial intelligence is generating huge gains for Chinese tech stocks like Alibaba, which has more than doubled this year.`\
 https://nytimes.com/2025/10/03/business/china-tech-stocks-artificial-intelligence.html
-
-**Connections: Sports Edition Coach: Hints for Oct. 3, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6685361/2025/10/03/connections-sports-edition-hints-for-oct-3-2025/
-
-**Taylor Swift Is Now One of His Showgirls**\
-`Bob Mackie, whose bejeweled designs have appeared on a list of performers that now includes the singer, reflects on a role he has dressed many for.`\
-https://nytimes.com/2025/10/03/style/taylor-swift-bob-mackie-showgirl-costumes.html
-
-**Corrections: Oct. 3, 2025**\
-`Corrections that appeared in print on Friday, Oct. 3, 2025.`\
-https://nytimes.com/2025/10/03/pageoneplus/corrections-oct-3-2025.html
 
