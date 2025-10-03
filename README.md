@@ -14,8 +14,8 @@ https://nytimes.com/2025/10/03/us/politics/mamdani-trump-funding-freeze-new-york
 `The statue, titled “Best Friends Forever,” was reinstalled after it was removed last week. An anonymous group of artists has taken credit for the work.`\
 https://nytimes.com/2025/10/03/us/donald-trump-jeffrey-epstein-statue-washington.html
 
-**Skip Schumaker considered top candidate for Texas Rangers managerial job**\
-`Rangers president of baseball operations Chris Young said Friday that Schumaker was "the focus" of the club's search for a new manager. `\
+**Skip Schumaker considered top candidate for Rangers' managerial job**\
+`Rangers president of baseball operations Chris Young said Friday that Schumaker was "the focus" of the club's search for a new manager.`\
 https://nytimes.com/athletic/6687293/2025/10/03/skip-schumaker-rangers-manager-mlb/
 
 **Israel, Palestine and the Peace Option**\
