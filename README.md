@@ -1,3 +1,7 @@
+**FEMA Withholds $300 Million in Grants Until States Account for Deportations**\
+`The agency is demanding certification that population counts, used to determine grant allocations, exclude people who have been recently removed from the country.`\
+https://nytimes.com/2025/10/03/climate/fema-emergency-grants-immigration-population.html
+
 **Brewers' righty Brandon Woodruff will not be available for NL Division Series**\
 `Woodruff, a 32-year-old right-hander, is one of the longest-tenured Brewers, having been with the franchise since getting drafted in 2014.`\
 https://nytimes.com/athletic/6687531/2025/10/03/milwaukee-brewers-brandon-woodruff-out/
@@ -29,12 +33,4 @@ https://nytimes.com/2025/10/03/us/politics/trump-michael-benary-letter-comey.htm
 **Savinho signs Manchester City contract extension**\
 `The 21-year-old played 48 games for City last season after signing in July 2024 from French side Troyes.`\
 https://nytimes.com/athletic/6664793/2025/10/03/savinho-manchester-city-contract-extension/
-
-**Why hasn't Shedeur Sanders moved up Browns' depth chart? The non-answers speak volumes**\
-`While Dillon Gabriel received a promotion as Cleveland's starter, Sanders remains No. 3 in the team's quarterback pecking order. `\
-https://nytimes.com/athletic/6687318/2025/10/03/shedeur-sanders-browns-quarterback-depth-chart-reasoning/
-
-**North Carolina Governor Signs Crime Bill Passed After Stabbing**\
-`The bill, approved last month by the Republican-dominated legislature in the wake of the brutal killing of a Ukrainian refugee, will tighten bail rules and may restart executions.`\
-https://nytimes.com/2025/10/03/us/north-carolina-crime-bill-stein.html
 
