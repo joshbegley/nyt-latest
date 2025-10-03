@@ -1,3 +1,15 @@
+**U.S. stuns France with 3 late goals in U-20 World Cup, clinches knockout round spot**\
+`Zavier Gozo, Brooklyn Raines and Marcos Zambrano scored goals after the 85th minute to lead the Americans to the top of their group.`\
+https://nytimes.com/athletic/6685177/2025/10/02/us-france-score-result-u20-world-cup/
+
+**Deepfakes, Insults and Job Cuts: A Government Shutdown Like No Other**\
+`Shutdowns are always unpleasant affairs. But President Trump has used his power in aggressive and strikingly personal ways.`\
+https://nytimes.com/2025/10/02/us/politics/shutdown-trump-clinton-gingrich.html
+
+**Paramount Nears a Deal to Buy Bari Weiss’s Free Press**\
+`Ms. Weiss, a co-founder of the site, would become editor in chief of CBS News, people briefed on the talks said.`\
+https://nytimes.com/2025/10/02/business/media/paramount-free-press-bari-weiss-deal.html
+
 **Warriors' Jonathan Kuminga acknowledges unclear long-term future despite new contract**\
 `"All that matters is we got it done, and I'm excited to be here," Kuminga said of his two-year, $48.5 million contract.`\
 https://nytimes.com/athletic/6684981/2025/10/02/jonathan-kuminga-warriors-contract-future/
