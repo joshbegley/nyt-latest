@@ -1,3 +1,15 @@
+**Statue of Trump and Epstein Holding Hands Returns to National Mall**\
+`The statue, titled “Best Friends Forever,” was reinstalled after it was removed last week. An anonymous group of artists has taken credit for the work.`\
+https://nytimes.com/2025/10/03/us/donald-trump-jeffrey-epstein-statue-washington.html
+
+**Skip Schumaker considered top candidate for Texas Rangers managerial job**\
+`Rangers president of baseball operations Chris Young said Friday that Schumaker was "the focus" of the club's search for a new manager. `\
+https://nytimes.com/athletic/6687293/2025/10/03/skip-schumaker-considered-top-candidate-for-texas-rangers-managerial-job/
+
+**Mets overhaul coaching staff after missing playoffs: 'As a whole, we failed'**\
+`Pitching coach Jeremy Hefner and co-hitting coaches Eric Chavez and Jeremy Barnes are among the coaches who will not return to New York.`\
+https://nytimes.com/athletic/6687258/2025/10/03/mets-coaching-staff-overhaul-mlb/
+
 **Israel, Palestine and the Peace Option**\
 `Readers, including a former Israeli diplomat, respond to a guest essay by the Israeli politician Benny Gantz. Also: Care for young and old; trucks and trains.`\
 https://nytimes.com/2025/10/03/opinion/israel-palestine-netanyahu.html
