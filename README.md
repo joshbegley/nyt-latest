@@ -1,3 +1,7 @@
+**Oktoberfest’s New Drip**\
+`At Bavaria’s annual celebration of autumn and beer, new generations of partyers and new arrivals to Germany are adding their own twists to traditional fashion.`\
+https://nytimes.com/card/2025/10/03/world/europe/oktoberfests-new-drip
+
 **The White House Can’t Decide: Is the Shutdown Bad or Good?**\
 `Is it “fun” and an “unprecedented opportunity,” or is it “madness” that must end? Depends who’s talking.`\
 https://nytimes.com/2025/10/03/us/politics/white-house-trump-shutdown.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6687852/2025/10/03/cam-schlittler-red-sox-fans-yank
 **Hamas Said It Agreed to Release Hostages in Gaza**\
 `Also, the U.S. attacked a fourth boat in the Caribbean Sea. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/10/03/briefing/hamas-said-it-agreed-to-release-hostages-in-gaza.html
-
-**Tarleton State puts coach Billy Gillispie on temporary leave after anonymous complaint**\
-`The school said it initiated an employee conduct review after receiving the complaint.`\
-https://nytimes.com/athletic/6687810/2025/10/03/tarleton-state-basketball-billy-gillispie-leave-complaint/
 
