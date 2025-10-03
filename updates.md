@@ -1,3 +1,11 @@
+**F1 Cars Need Fuel. So Do Their Drivers.**\
+`What and when to eat are important when taking into account Formula 1’s complex global calendar.`\
+https://nytimes.com/2025/10/03/sports/f1-drivers-diet-food.html
+
+**The F1 Drivers’ Championship Could Come Down to a Battle of Teammates**\
+`The McLaren drivers Oscar Piastri and Lando Norris lead the standings with seven races left in the season.`\
+https://nytimes.com/2025/10/03/sports/f1-mclaren-piastri-norris-title.html
+
 **Scoop City: Remaining strength of schedule for all 32 teams**\
 `Strength of schedule rankings for all 32 teams, plus three Sunday matchups to watch`\
 https://nytimes.com/athletic/6687155/2025/10/03/strength-of-schedule-for-all-32-teams-plus-a-j-browns-struggles-and-week-5-matchups/

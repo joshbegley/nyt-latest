@@ -1,3 +1,11 @@
+**F1 Cars Need Fuel. So Do Their Drivers.**\
+`What and when to eat are important when taking into account Formula 1’s complex global calendar.`\
+https://nytimes.com/2025/10/03/sports/f1-drivers-diet-food.html
+
+**The F1 Drivers’ Championship Could Come Down to a Battle of Teammates**\
+`The McLaren drivers Oscar Piastri and Lando Norris lead the standings with seven races left in the season.`\
+https://nytimes.com/2025/10/03/sports/f1-mclaren-piastri-norris-title.html
+
 **Scoop City: Remaining strength of schedule for all 32 teams**\
 `Strength of schedule rankings for all 32 teams, plus three Sunday matchups to watch`\
 https://nytimes.com/athletic/6687155/2025/10/03/strength-of-schedule-for-all-32-teams-plus-a-j-browns-struggles-and-week-5-matchups/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6683786/2025/10/03/wnba-finals-bulls-blazers-the-bo
 **Vikings' J.J. McCarthy, Andrew Van Ginkel, 3 O-line starters out vs. Browns**\
 `Minnesota's roster has been decimated by injuries. It's down to a third-string left guard and center, and a second-string right tackle.`\
 https://nytimes.com/athletic/6686800/2025/10/03/vikings-mccarthy-van-ginkel-out-browns/
-
-**World Series odds: Dodgers once again favorites ahead of Yankees, Phillies**\
-`After advancing past Cincinnati in two games, the Dodgers are the favorites to win the World Series again.`\
-https://nytimes.com/athletic/6686858/2025/10/03/world-series-odds-dodgers-yankees-phillies/
-
-**Belgian journalist Virginie Philipott announces candidacy for FIA presidency**\
-`"The importance of female leadership cannot be overstated. For decades, motorsport has been shaped almost exclusively by men," she said.`\
-https://nytimes.com/athletic/6687110/2025/10/03/virginie-philippot-fia-president-who-is/
 
