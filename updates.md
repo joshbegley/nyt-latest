@@ -1,3 +1,7 @@
+**Large Fire Burns at Chevron’s Refinery in El Segundo**\
+`It was not immediately clear what caused the blast. But the blaze, near Los Angeles, could be seen from miles away.`\
+https://nytimes.com/2025/10/03/us/el-segundo-refinery-fire-chevron.html
+
 **The New York Times in Print for Friday, Oct. 3, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/03/todays-new-york-times

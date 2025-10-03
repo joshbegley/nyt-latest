@@ -1,3 +1,7 @@
+**Large Fire Burns at Chevron’s Refinery in El Segundo**\
+`It was not immediately clear what caused the blast. But the blaze, near Los Angeles, could be seen from miles away.`\
+https://nytimes.com/2025/10/03/us/el-segundo-refinery-fire-chevron.html
+
 **The New York Times in Print for Friday, Oct. 3, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/03/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6680304/2025/10/03/fantasy-premier-league-gw7-capta
 **Michael Keane. Finisher**\
 `The 32-year-old centre-half has revived under David Moyes this season and is playing a key role - at both ends of the pitch`\
 https://nytimes.com/athletic/6682842/2025/10/03/michael-keane-everton-finisher-moyes/
-
-**Could Tommy Watson capitalise on Kaoru Mitoma's slow start to the season?**\
-`It would be foolish to read too much into Japan winger's sluggish form but newcomer is edging towards a bigger role in Brighton's plans`\
-https://nytimes.com/athletic/6657264/2025/10/03/watson-mitoma-brighton/
 
