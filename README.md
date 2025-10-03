@@ -1,3 +1,7 @@
+**LIV Golf Ltd lost £461.8m in 2024, brings total deficit to £1.1bn**\
+`LIV Golf Ltd, the United Kingdom-based entity which manages the upstart golf league’s activities outside of the United States, lost £461.`\
+https://nytimes.com/athletic/6686158/2025/10/03/liv-golf-ltd-financial-losses/
+
 **Tottenham announce new Bentancur contract**\
 `"Winning the Europa League was a fantastic moment and we want to build on this now," Bentancur said.`\
 https://nytimes.com/athletic/6683719/2025/10/03/rodrigo-bentancur-new-contract-tottenham/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6685853/2025/10/03/cubs-brewers-preview-division-se
 **Why the NFL is buzzing about the new ‘K-ball’ rules**\
 `Is a subtle rule change made by the NFL this offseason changing the field goal math?`\
 https://nytimes.com/athletic/6680455/2025/10/03/nfl-field-goal-rules-kicking-balls/
-
-**Wissa suffers minor setback in knee injury recovery**\
-`The 29-year-old, who joined Newcastle from Brentford at the start of last month, has not yet trained with his new team-mates.`\
-https://nytimes.com/athletic/6686189/2025/10/03/newcastle-wissa-injury-latest/
 

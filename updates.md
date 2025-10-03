@@ -1,3 +1,15 @@
+**Tottenham announce new Bentancur contract**\
+`"Winning the Europa League was a fantastic moment and we want to build on this now," Bentancur said.`\
+https://nytimes.com/athletic/6683719/2025/10/03/rodrigo-bentancur-new-contract-tottenham/
+
+**Tigers, Mariners meet for first time in AL Division Series: Key matchups, prediction**\
+`MLB's 2025 home run leader Cal Raleigh and his Mariners will take on arguably the league's best pitcher in Tigers ace Tarik Skubal.`\
+https://nytimes.com/athletic/6685760/2025/10/03/tigers-mariners-preview-division-series/
+
+**The 9 Lives of Lee Miller**\
+`Her biography spans some of the 20th century’s most artistically compelling and politically harrowing moments, but it also overshadows her contribution to photography.`\
+https://nytimes.com/2025/10/03/arts/design/lee-miller-tate-britain.html
+
 **Ranking the Division Series matchups in each league from must-watch to bad writing**\
 `Not all Division Series are created equal. All of them are fantastic matchups, but some are more fantastical than others.`\
 https://nytimes.com/athletic/6685143/2025/10/03/mlb-postseason-division-series-ranking/
