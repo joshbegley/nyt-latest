@@ -1,3 +1,15 @@
+**Treasury Plans to Mint $1 Commemorative Trump Coin**\
+`The coin, bearing President Trump’s face, would honor the 250th birthday of the United States.`\
+https://nytimes.com/2025/10/03/business/trump-commemorative-coin-treasury.html
+
+**How to watch Dodgers at Phillies: Game 1 Time, TV, streaming**\
+`Find out how to watch the Los Angeles Dodgers play the Philadelphia Phillies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6688016/2025/10/03/dodgers-vs-phillies-stream-how-to-watch-oct-4/
+
+**How to watch Yankees at Blue Jays: Game 1 Time, TV, streaming**\
+`Find out how to watch the New York Yankees play the Toronto Blue Jays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6688014/2025/10/03/yankees-vs-blue-jays-stream-how-to-watch-oct-4/
+
 **Oktoberfest’s New Drip**\
 `At Bavaria’s annual celebration of autumn and beer, new generations of partyers and new arrivals to Germany are adding their own twists to traditional fashion.`\
 https://nytimes.com/card/2025/10/03/world/europe/oktoberfests-new-drip
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/03/business/rite-aid-closes-stores-bankruptcy.html
 **Gig Drivers Win the Right to Unionize in California**\
 `The measure, a compromise with companies like Uber, could serve as a model for other states.`\
 https://nytimes.com/2025/10/03/business/uber-lyft-drivers-unionize-california-newsom.html
-
-**The Star of These American Air Shows Will Be … Canada?**\
-`The government shutdown has prevented a U.S. Air Force group and possibly a Navy squadron from attending signature air shows in California. Instead, a Canadian team is set to be the headliner.`\
-https://nytimes.com/2025/10/03/us/california-air-show-fleet-week-canada.html
-
-**Cam Schlittler says Red Sox fans ‘crossed a line’ attacking his family on social media**\
-`Schlittler said the online harassment got him a little more “locked in” before his critical Game 3 start Thursday.`\
-https://nytimes.com/athletic/6687852/2025/10/03/cam-schlittler-red-sox-fans-yankees/
-
-**Hamas Said It Agreed to Release Hostages in Gaza**\
-`Also, the U.S. attacked a fourth boat in the Caribbean Sea. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2025/10/03/briefing/hamas-said-it-agreed-to-release-hostages-in-gaza.html
 
