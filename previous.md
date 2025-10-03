@@ -1,3 +1,7 @@
+**One lawyer was glaringly absent from the prosecutors’s table.**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2025/10/03/arts/sean-combs-diddy-sentencing/one-lawyer-was-glaringly-absent-from-the-prosecutorss-table
+
 **Beyond Wall Street**\
 `How the private sector, often overlooked in the shadows of financial giants, is unlocking unprecedented growth and innovation, driving the future of the U.S. economy`\
 https://nytimes.com/paidpost/bny-wealth/beyond-wall-street.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6686825/2025/10/03/kris-knoblauch-oilers-contract-e
 **In jail, Combs has gotten sober and developed a self-help course.**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2025/10/03/arts/sean-combs-diddy-sentencing/in-jail-combs-has-gotten-sober-and-developed-a-self-help-course
-
-**Shouts and Pounding at the Doors: How a U.K. Synagogue Came Under Attack**\
-`A congregant in Manchester, England, described how fellow worshipers, including the rabbi, used their bodies to barricade the entrance as the assailant tried to force his way in.`\
-https://nytimes.com/2025/10/03/world/europe/manchester-synagogue-terrorist-attack-uk.html
 

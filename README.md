@@ -1,3 +1,23 @@
+**737 Videos, 141 Cues: What It Takes to Make ‘Kavalier & Clay’ Lift Off**\
+`At the Metropolitan Opera, a cramped studio at the back of the hall is a command tower, controlling the show’s elaborate video and effects.`\
+https://nytimes.com/2025/10/03/arts/music/metropolitan-opera-kavalier-clay-switchboard.html
+
+**Barcelona announce Yamal injury hours after he's named in Spain squad**\
+`Yamal is out of Sunday's La Liga fixture against Sevilla and faces a race to be fit for the season's first Clasico against Real Madrid.`\
+https://nytimes.com/athletic/6686895/2025/10/03/lamine-yamal-injury-update-barcelona-spain/
+
+**Dan Dan Noodles, but Make Them a Big Salad**\
+`Sturdy salads, like these new recipes from Hetty Lui McKinnon, make entertaining and meal prep easier for busy cooks.`\
+https://nytimes.com/2025/10/03/dining/dan-dan-noodles-but-make-them-a-big-salad.html
+
+**This Traditional Yogurt Recipe’s Secret Ingredient Has 6 Legs**\
+`Scientists recreated a formula involving ants and milk that is used in Bulgarian villages to yield yogurt with an herbaceous flavor.`\
+https://nytimes.com/2025/10/03/science/ants-yogurt-bulgaria.html
+
+**Five Action Movies to Stream Now**\
+`This month’s picks include convicted swordsmen, crooked cops, and more.`\
+https://nytimes.com/2025/10/03/movies/five-action-movies-to-stream-now.html
+
 **One lawyer was glaringly absent from the prosecutors’s table.**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2025/10/03/arts/sean-combs-diddy-sentencing/one-lawyer-was-glaringly-absent-from-the-prosecutorss-table
@@ -17,24 +37,4 @@ https://nytimes.com/video/us/100000010436285/treasure-hunters-discover-lost-1715
 **It Begins With a Joke. Comics in the World’s Largest Democracy Know Where It Ends.**\
 `The Indian comedian Kunal Kamra was forced offstage after a political joke led to a mob attack. Unlike Jimmy Kimmel, he is unlikely to return anytime soon.`\
 https://nytimes.com/2025/10/03/world/asia/india-comedian-kunal-kamra.html
-
-**Juventus bans Parma fans after racist abuse of Weston McKennie**\
-`A statement said law enforcement officers identified the individuals with help from "the state-of-the-art video surveillance system."`\
-https://nytimes.com/athletic/6686767/2025/10/03/juventus-weston-mckennie-racism/
-
-**Trump Administration Reverses $187 Million in N.Y. Counterterrorism Cuts**\
-`Gov. Kathy Hochul had described the cuts, which would have devastated New York’s intelligence and counterterrorism operations, as “utterly shocking.”`\
-https://nytimes.com/2025/10/03/nyregion/trump-new-york-counterterrorism-funds.html
-
-**Video emerges of Padres berating umps after blown call in season-ending loss to Cubs**\
-`CHICAGO — In the moments after the final game of their National League Wild Card Series, members of the San Diego Padres engaged in a brief shouting match with members of the umpiring crew that, the players felt, had hastened the end of their season.`\
-https://nytimes.com/athletic/6686788/2025/10/03/padres-umpires-missed-calls-frustration/
-
-**Oilers sign coach Kris Knoblauch to 3-year contract extension**\
-`Knoblauch's deal with the Oilers will now run through the 2028-29 season.`\
-https://nytimes.com/athletic/6686825/2025/10/03/kris-knoblauch-oilers-contract-extension/
-
-**In jail, Combs has gotten sober and developed a self-help course.**\
-`By Julia Jacobs`\
-https://nytimes.com/live/2025/10/03/arts/sean-combs-diddy-sentencing/in-jail-combs-has-gotten-sober-and-developed-a-self-help-course
 

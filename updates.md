@@ -1,3 +1,7 @@
+**One lawyer was glaringly absent from the prosecutors’s table.**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2025/10/03/arts/sean-combs-diddy-sentencing/one-lawyer-was-glaringly-absent-from-the-prosecutorss-table
+
 **Beyond Wall Street**\
 `How the private sector, often overlooked in the shadows of financial giants, is unlocking unprecedented growth and innovation, driving the future of the U.S. economy`\
 https://nytimes.com/paidpost/bny-wealth/beyond-wall-street.html
