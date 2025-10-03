@@ -1,3 +1,7 @@
+**ICE will be at Super Bowl where Bad Bunny is halftime show headliner, Trump adviser says**\
+`Corey Lewandowski, a Trump administration official, says ICE will be at Super Bowl LX, where Bad Bunny is the halftime show's headliner.`\
+https://nytimes.com/athletic/6684352/2025/10/02/ice-super-bowl-bad-bunny-corey-lewandowski/
+
 **Texas Megachurch Pastor Pleads Guilty to Child Sex Abuse**\
 `Robert Morris, the founder of Gateway Church, which has one of the nation’s largest congregations, admitted to sexually abusing a child in the 1980s.`\
 https://nytimes.com/2025/10/02/world/asia/robert-morris-pastor-sex-abuse.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6684777/2025/10/02/caitlin-clark-unrivaled-not-join
 **What Women Heard in Hegseth’s Remarks About Physical Standards**\
 `The defense secretary raised the issue suggesting women were getting into combat not because they met high standards, but because they were given a pass.`\
 https://nytimes.com/2025/10/02/us/politics/women-military-hegseth-physical-standards.html
-
-**Trionda ... Adidas' new World Cup ball and everything you need to know about it**\
-`The reveal of the official match ball always sparks pre-World Cup anticipation, and this time was no different`\
-https://nytimes.com/athletic/6684748/2025/10/02/trionda-adidas-world-cup-ball/
 
