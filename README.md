@@ -1,3 +1,7 @@
+**Red Light: New season, new faces … maybe. Plus: Our projected Presidents' Trophy winner ͏‌**\
+`It’s four days until the regular season begins, which means you just might be put on waivers shortly.`\
+https://nytimes.com/athletic/6686910/2025/10/03/red-light-presidents-trophy/
+
 **Cardinals to add to professional scouting department, retain current staff: Sources**\
 `The additions will allow for more separation between amateur scouting and pro scouting in the organization.`\
 https://nytimes.com/athletic/6686769/2025/10/03/st-louis-cardinals-scouting/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/10/03/arts/sean-combs-diddy-sentencing/one-lawyer-
 **Beyond Wall Street**\
 `How the private sector, often overlooked in the shadows of financial giants, is unlocking unprecedented growth and innovation, driving the future of the U.S. economy`\
 https://nytimes.com/paidpost/bny-wealth/beyond-wall-street.html
-
-**Over $1 Million Worth of Treasure Is Recovered From 1715 Spanish Shipwreck**\
-`Treasure hunters found roughly 1,000 silver and gold coins off the east coast of Florida this summer. Many have visible dates and mint marks.`\
-https://nytimes.com/2025/10/03/us/shipwreck-florida-silver-gold-coins.html
 
