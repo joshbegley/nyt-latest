@@ -1,3 +1,15 @@
+**49ers minutia minute: Mac Jones went bananas as offense ran up huge snap count**\
+`McCaffrey’s 76 snaps were the second most of his career, surpassed only by an 83-snap game in 2018 when he was with the Carolina Panthers.`\
+https://nytimes.com/athletic/6687575/2025/10/03/49ers-minutia-minute-mac-jones-rams-tnf/
+
+**Homemade as Good As the Ice Cream Shop’s**\
+`In tribute to the world’s favorite frozen treat, makers of the Ninja Swirl™ by CREAMi® teamed with the owners of New York’s Soft Swerve for a series of exclusive Asian-inspired ice cream recipes to make at home.`\
+https://nytimes.com/paidpost/wirecutter/ninja-kitchen/homemade-as-good-as-the-ice-cream-shops.html
+
+**Arizona Man Is Arrested in Murders of 2 Teens Camping at National Forest**\
+`The man had also been at Tonto National Forest in Arizona around the time that the bodies were found in May, the authorities said.`\
+https://nytimes.com/2025/10/03/us/arizona-murders-tonto-national-forests.html
+
 **Former Jets employee accuses team of retaliation amid sexual misconduct investigation**\
 `The team’s former vice president of finance said the Jets fired her as it reviewed allegations of misconduct by the team president.`\
 https://nytimes.com/athletic/6687401/2025/10/03/jets-lawsuit-retaliation-sexual-misconduct-investigation/
