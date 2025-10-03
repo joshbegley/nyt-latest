@@ -1,3 +1,23 @@
+**In jail, Combs has gotten sober and developed a self-help course.**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2025/10/03/arts/sean-combs-diddy-sentencing/in-jail-combs-has-gotten-sober-and-developed-a-self-help-course
+
+**Shouts and Pounding at the Doors: How a U.K. Synagogue Came Under Attack**\
+`A congregant in Manchester, England, described how fellow worshipers, including the rabbi, used their bodies to barricade the entrance as the assailant tried to force his way in.`\
+https://nytimes.com/2025/10/03/world/europe/manchester-synagogue-terrorist-attack-uk.html
+
+**Postecoglou ignores noise over future: 'It didn't stop me winning something at Spurs'**\
+`Postecoglou is without a win in six games in charge at Forest and faced backlash from supporters after Thursday's Europa League loss.`\
+https://nytimes.com/athletic/6686778/2025/10/03/ange-postecoglou-nottingham-forest-future/
+
+**Read Cassie’s letter to the judge.**\
+`(No description)`\
+https://nytimes.com/live/2025/10/03/arts/sean-combs-diddy-sentencing/read-cassies-letter-to-the-judge
+
+**Read Sean Combs’s letter to the judge.**\
+`(No description)`\
+https://nytimes.com/live/2025/10/03/arts/sean-combs-diddy-sentencing/read-sean-combss-letter-to-the-judge
+
 **Read the document**\
 `Cassie’s Letter to the Judge`\
 https://nytimes.com/interactive/2025/10/03/arts/music/cassie-letter.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6686651/2025/10/03/fantasy-football-news-trades-wee
 **49ers Outlast Rams In Overtime Thriller**\
 `The San Francisco 49ers, led by backup quarterback Mac Jones, pulled off a road upset over the division rival L.A. Rams Thursday.`\
 https://nytimes.com/video/sports/100000010437236/49ers-outlast-rams-in-overtime-thriller.html
-
-**Meet the judge deciding Combs’s fate: Arun Subramanian.**\
-`By Ben Sisario`\
-https://nytimes.com/live/2025/10/03/arts/sean-combs-diddy-sentencing/meet-the-judge-deciding-combss-fate-arun-subramanian
-
-**Thomas Tuchel warns big names there are 'no guarantees' on England World Cup places**\
-`Players like Jude Bellingham, Phil Foden and Jack Grealish told they must be at their best to be selected for future squads`\
-https://nytimes.com/athletic/6668945/2025/10/03/thomas-tuchel-england-analysis/
-
-**Arsenal open contract talks with Timber**\
-`Timber's existing deal runs until June 2028 and the 24-year-old has been one of Arsenal's most consistent players this season.`\
-https://nytimes.com/athletic/6686690/2025/10/03/jurrien-timber-arsenal-contract-arteta/
-
-**Finnish Court Dismisses Case Against Crew Accused of Cutting Undersea Cables**\
-`A judge ruled that Finland did not have jurisdiction to prosecute a case against a ship believed to be a part of Russia’s “shadow fleet.”`\
-https://nytimes.com/2025/10/03/world/europe/finland-court-baltic-sea-undersea-cables-sabotage.html
-
-**Fantasy trends and hidden gems: Spotting NHL schedule advantages in 2025**\
-`Shayna Goldman breaks down the NHL schedule for the next three months to aid late-round draft decisions and early-season roster moves.`\
-https://nytimes.com/athletic/6685608/2025/10/03/fantasy-hockey-trends-nhl-schedule-advantages/
 

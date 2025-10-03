@@ -1,3 +1,23 @@
+**In jail, Combs has gotten sober and developed a self-help course.**\
+`By Julia Jacobs`\
+https://nytimes.com/live/2025/10/03/arts/sean-combs-diddy-sentencing/in-jail-combs-has-gotten-sober-and-developed-a-self-help-course
+
+**Shouts and Pounding at the Doors: How a U.K. Synagogue Came Under Attack**\
+`A congregant in Manchester, England, described how fellow worshipers, including the rabbi, used their bodies to barricade the entrance as the assailant tried to force his way in.`\
+https://nytimes.com/2025/10/03/world/europe/manchester-synagogue-terrorist-attack-uk.html
+
+**Postecoglou ignores noise over future: 'It didn't stop me winning something at Spurs'**\
+`Postecoglou is without a win in six games in charge at Forest and faced backlash from supporters after Thursday's Europa League loss.`\
+https://nytimes.com/athletic/6686778/2025/10/03/ange-postecoglou-nottingham-forest-future/
+
+**Read Cassie’s letter to the judge.**\
+`(No description)`\
+https://nytimes.com/live/2025/10/03/arts/sean-combs-diddy-sentencing/read-cassies-letter-to-the-judge
+
+**Read Sean Combs’s letter to the judge.**\
+`(No description)`\
+https://nytimes.com/live/2025/10/03/arts/sean-combs-diddy-sentencing/read-sean-combss-letter-to-the-judge
+
 **Read the document**\
 `Cassie’s Letter to the Judge`\
 https://nytimes.com/interactive/2025/10/03/arts/music/cassie-letter.html
