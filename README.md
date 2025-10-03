@@ -1,3 +1,15 @@
+**Body Camera Video Shows Police Confronting Michigan Church Gunman**\
+`In the newly released video, two officers can be seen outside of the Latter-day Saints church, along with a bystander holding a handgun. The shooter died in an exchange of gunfire.`\
+https://nytimes.com/2025/10/03/us/michigan-church-attack-body-camera-video.html
+
+**Boston Legacy signs Ballon d'Or nominee Amanda Gutierres**\
+`The 24-year-old arrives from Brazilian club Palmeiras on a permanent pre-transfer.`\
+https://nytimes.com/athletic/6687276/2025/10/03/boston-legacy-amanda-gutierres-transfer/
+
+**Flashback: Your Weekly History Quiz, Oct. 4, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/10/03/upshot/flashback.html
+
 **White House Suspends $2.1 Billion in Funding for Chicago Transit Projects**\
 `The money had been designated to modernize the city’s “L” trains. Illinois officials condemned the move, saying it was motivated by political revenge.`\
 https://nytimes.com/2025/10/03/us/trump-chicago-transit-funding.html
@@ -21,16 +33,4 @@ https://nytimes.com/2025/10/03/sports/f1-drivers-diet-food.html
 **The F1 Drivers’ Championship Could Come Down to a Battle of Teammates**\
 `The McLaren drivers Oscar Piastri and Lando Norris lead the standings with seven races left in the season.`\
 https://nytimes.com/2025/10/03/sports/f1-mclaren-piastri-norris-title.html
-
-**Scoop City: Remaining strength of schedule for all 32 teams**\
-`Strength of schedule rankings for all 32 teams, plus three Sunday matchups to watch`\
-https://nytimes.com/athletic/6687155/2025/10/03/strength-of-schedule-for-all-32-teams-plus-a-j-browns-struggles-and-week-5-matchups/
-
-**17 Off Broadway Shows to Enliven Your October**\
-`André De Shields does Molière, Romy and Michele take the stage and Bat Boy makes his return just in time for Halloween.`\
-https://nytimes.com/2025/10/03/theater/off-broadway-shows-october.html
-
-**Jane Fonda Revives Her Father’s McCarthy-Era Free Speech Group**\
-`The actress joined Spike Lee, Billie Eilish, Pedro Pascal and others in reviving the Committee for the First Amendment, a group that her father, Henry Fonda, was a member of in the 1940s.`\
-https://nytimes.com/2025/10/03/arts/jane-fonda-henry-fonda-free-speech.html
 
