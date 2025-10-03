@@ -1,3 +1,11 @@
+**Division Series predictions: Our experts pick the winners for each series**\
+`Our staff is somewhat divided over which teams will advance in the NL, but they have a vision of a 2001 ALCS rematch on the AL side.`\
+https://nytimes.com/athletic/6687256/2025/10/03/mlb-division-series-staff-predictions/
+
+**U.S. Military Attacked Boat Off Venezuela, Killing Four Men, Hegseth Says**\
+`It was the fourth strike in the Trump administration’s legally disputed campaign targeting suspected drug runners in the Caribbean Sea.`\
+https://nytimes.com/2025/10/03/us/politics/hegseth-military-boat-venezuela.html
+
 **Wild reacquire Daemon Hunt, claiming former Minnesota defenseman off waivers**\
 `Hunt, 23, a third-round pick by the Wild in 2022, was traded to the Blue Jackets in November as part of the package to get David Jiricek.`\
 https://nytimes.com/athletic/6687160/2025/10/03/wild-daemon-hunt-waivers-claim/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/03/us/government-shutdown-democrats-republicans-blam
 **The Best Movies and TV Shows Coming to Netflix in October**\
 `“Nobody Wants This” is back and so is Kathryn Bigelow, with a new political thriller starring Idris Elba.`\
 https://nytimes.com/2025/10/03/arts/television/netflix-new-october.html
-
-**An ex-girlfriend of Combs recently rejected being labeled a ‘victim.’**\
-`By Julia Jacobs`\
-https://nytimes.com/live/2025/10/03/arts/sean-combs-diddy-sentencing/an-ex-girlfriend-of-combs-recently-rejected-being-labeled-a-victim
-
-**NFL 'committed' to launching professional flag football leagues, Roger Goodell says**\
-`With the league continuing to support the growth of flag football, Goodell says 20 million kids are playing the sport globally. `\
-https://nytimes.com/athletic/6687119/2025/10/03/flag-football-roger-goodell-professional-leagues/
 

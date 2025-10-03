@@ -1,3 +1,11 @@
+**Division Series predictions: Our experts pick the winners for each series**\
+`Our staff is somewhat divided over which teams will advance in the NL, but they have a vision of a 2001 ALCS rematch on the AL side.`\
+https://nytimes.com/athletic/6687256/2025/10/03/mlb-division-series-staff-predictions/
+
+**U.S. Military Attacked Boat Off Venezuela, Killing Four Men, Hegseth Says**\
+`It was the fourth strike in the Trump administration’s legally disputed campaign targeting suspected drug runners in the Caribbean Sea.`\
+https://nytimes.com/2025/10/03/us/politics/hegseth-military-boat-venezuela.html
+
 **Skip Schumaker considered top candidate for Rangers' managerial job**\
 `Rangers president of baseball operations Chris Young said Friday that Schumaker was "the focus" of the club's search for a new manager.`\
 https://nytimes.com/athletic/6687293/2025/10/03/skip-schumaker-rangers-manager-mlb/
