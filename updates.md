@@ -1,3 +1,15 @@
+**Her Stocks Were Quietly Stolen From Her I.R.A.**\
+`A retiree logged into his wife’s Roth I.R.A. to make a trade, and stumbled upon a crime scene.`\
+https://nytimes.com/2025/10/03/your-money/ira-vanguard-merrill-acats-fraud.html
+
+**The Bounce: WNBA Finals start tonight! Plus: Previewing the Trail Blazers and Bulls**\
+`Welcome to The Bounce, The Athletic's basketball newsletter.`\
+https://nytimes.com/athletic/6683786/2025/10/03/wnba-finals-bulls-blazers-the-bounce/
+
+**Belgian journalist Virginie Philipott announces candidacy for FIA presidency**\
+`"The importance of female leadership cannot be overstated. For decades, motorsport has been shaped almost exclusively by men," she said.`\
+https://nytimes.com/athletic/6687110/2025/10/03/virginie-philippot-fia-president-who-is/
+
 **Vikings' J.J. McCarthy, Andrew Van Ginkel, three starters on O-line all out vs. Browns**\
 `Minnesota's roster has been decimated by injuries this season.`\
 https://nytimes.com/athletic/6686800/2025/10/03/vikings-j-j-mccarthy-andrew-van-ginkel-three-starters-on-o-line-all-out-vs-browns/
