@@ -1,3 +1,11 @@
+**Vikings' J.J. McCarthy, Andrew Van Ginkel, three starters on O-line all out vs. Browns**\
+`Minnesota's roster has been decimated by injuries this season.`\
+https://nytimes.com/athletic/6686800/2025/10/03/vikings-j-j-mccarthy-andrew-van-ginkel-three-starters-on-o-line-all-out-vs-browns/
+
+**World Series odds: Dodgers once again favorites ahead of Yankees, Phillies**\
+`After advancing past Cincinnati in two games, the Dodgers are the favorites to win the World Series again.`\
+https://nytimes.com/athletic/6686858/2025/10/03/world-series-odds-dodgers-yankees-phillies/
+
 **Belgian journalist Virginie Philipott announces candidacy for FIA presidency**\
 `"The importance of female leadership cannot be overstated. For decades, motorsport has been shaped almost exclusively by men," she said.`\
 https://nytimes.com/athletic/6687110/2025/10/03/virginie-philippot-fia-president-who/
