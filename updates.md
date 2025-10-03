@@ -1,3 +1,7 @@
+**Putin Says He Doubts U.S. Will Send Tomahawk Missiles to Ukraine**\
+`The Russian president warned against fulfilling a Ukrainian request for more powerful long-range missiles, while also suggesting President Trump would decide against the idea.`\
+https://nytimes.com/2025/10/03/world/europe/putin-trump-ukraine-tomahawk-missiles.html
+
 **Her Stocks Were Quietly Stolen From Her I.R.A.**\
 `A retiree logged into his wife’s Roth I.R.A. to make a trade, and stumbled upon a crime scene.`\
 https://nytimes.com/2025/10/03/your-money/ira-vanguard-merrill-acats-fraud.html
