@@ -1,3 +1,11 @@
+**The Shutdown Leaves Wall Street Flying Blind**\
+`Investors are grappling with a blackout of official government economic data that’s forcing them to rely more heavily on reports that usually get far less attention.`\
+https://nytimes.com/2025/10/03/business/dealbook/shutdown-wall-street-data.html
+
+**Even as Red Sox season ends, there is now a feeling hope: ‘The future is bright’**\
+`“It sucks to say right now that we’re looking forward," Garrett Crochet said. "But ultimately, that’s our reality.”`\
+https://nytimes.com/athletic/6686450/2025/10/03/red-sox-yankees-wild-card/
+
 **Mookie Betts endured a career-worst season. Then his 'thought process on failing changed'**\
 `Betts led major-league shortstops with Defensive Runs Saved this season while battling back from an early-season stomach virus.`\
 https://nytimes.com/athletic/6684212/2025/10/03/dodgers-phillies-mlb-mookie-betts/
