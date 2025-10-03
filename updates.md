@@ -1,3 +1,7 @@
+**It Begins With a Joke. Comics in the World’s Largest Democracy Know Where It Ends.**\
+`The Indian comedian Kunal Kamra was forced offstage after a political joke led to a mob attack. Unlike Jimmy Kimmel, he is unlikely to return anytime soon.`\
+https://nytimes.com/2025/10/03/world/asia/india-comedian-kunal-kamra.html
+
 **Juventus bans Parma fans after racist abuse of Weston McKennie**\
 `A statement said law enforcement officers identified the individuals with help from "the state-of-the-art video surveillance system."`\
 https://nytimes.com/athletic/6686767/2025/10/03/juventus-weston-mckennie-racism/
