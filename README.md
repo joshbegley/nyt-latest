@@ -1,5 +1,5 @@
-**Hurricanes will not sign either Michael McLeod or Carter Hart: Sources**\
-`Carolina showed interest in McLeod and Hart in recent weeks, but couldn't "get to something both sides would be comfortable with."`\
+**Hurricanes will not sign Michael McLeod or Carter Hart: Sources**\
+`Carolina showed interest in McLeod and Hart in recent weeks but couldn't "get to something both sides would be comfortable with."`\
 https://nytimes.com/athletic/6685481/2025/10/02/hurricanes-michael-mcleod-carter-hart-hockey-canada/
 
 **Flights Halted at Munich Airport After Drone Sightings**\

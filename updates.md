@@ -1,3 +1,7 @@
+**Hurricanes will not sign either Michael McLeod or Carter Hart: Sources**\
+`Carolina showed interest in McLeod and Hart in recent weeks, but couldn't "get to something both sides would be comfortable with."`\
+https://nytimes.com/athletic/6685481/2025/10/02/hurricanes-michael-mcleod-carter-hart-hockey-canada/
+
 **Flights Halted at Munich Airport After Drone Sightings**\
 `The airport in Germany was the latest in Europe to shut because of drone sightings that officials have blamed on Russia, which has denied the accusations.`\
 https://nytimes.com/2025/10/02/world/europe/munich-airport-drones.html

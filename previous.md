@@ -1,3 +1,7 @@
+**Hurricanes will not sign either Michael McLeod or Carter Hart: Sources**\
+`Carolina showed interest in McLeod and Hart in recent weeks, but couldn't "get to something both sides would be comfortable with."`\
+https://nytimes.com/athletic/6685481/2025/10/02/hurricanes-michael-mcleod-carter-hart-hockey-canada/
+
 **Flights Halted at Munich Airport After Drone Sightings**\
 `The airport in Germany was the latest in Europe to shut because of drone sightings that officials have blamed on Russia, which has denied the accusations.`\
 https://nytimes.com/2025/10/02/world/europe/munich-airport-drones.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6685185/2025/10/02/detroit-tigers-october-redemptio
 **U.S. stuns France with 3 late goals in U-20 World Cup, clinches knockout round spot**\
 `Zavier Gozo, Brooklyn Raines and Marcos Zambrano scored goals after the 85th minute to lead the Americans to the top of their group.`\
 https://nytimes.com/athletic/6685177/2025/10/02/us-france-score-result-u20-world-cup/
-
-**Deepfakes, Insults and Job Cuts: A Government Shutdown Like No Other**\
-`Shutdowns are always unpleasant affairs. But President Trump has used his power in aggressive and strikingly personal ways.`\
-https://nytimes.com/2025/10/02/us/politics/shutdown-trump-clinton-gingrich.html
 
