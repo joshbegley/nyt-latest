@@ -6,6 +6,10 @@ https://nytimes.com/athletic/6684212/2025/10/03/dodgers-phillies-mlb-mookie-bett
 `Four days after the collapse, families of the school’s students in East Java were in shock, demanding answers as the search for bodies churned on.`\
 https://nytimes.com/2025/10/03/world/asia/indonesia-school-collapse-families.html
 
+**Yankees' Aaron Boone proved in wild-card win he can outmanage Alex Cora**\
+`There has been a never-ending narrative swirling in the Yankees' fan base that Cora runs circles around Boone. He quieted those critics. `\
+https://nytimes.com/athletic/6685746/2025/10/03/aaron-boone-yankees-outmanage-alex-cora-redsox/
+
 **Hamas Still Considering Trump Gaza Plan but Rejects ‘Take It or Leave It’ Deal**\
 `A senior member of the Palestinian group said that the group would soon announce its position on President Trump’s plan to end the war in Gaza.`\
 https://nytimes.com/2025/10/03/world/middleeast/hamas-response-trump-gaza-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/03/briefing/president-trumps-war-on-cartels.html
 **How Phillies star Kyle Schwarber became one of MLB’s elite left-on-left hitters**\
 `"What else can I improve on?" Schwarber is obsessed with the minutia of hitting, with figuring out what to fix and how to challenge himself.`\
 https://nytimes.com/athletic/6684791/2025/10/03/kyle-schwarber-phillies-left-handed/
-
-**The Athletic’s Friday football quiz question #75**\
-`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/6684090/2025/10/03/the-athletics-friday-football-quiz-question-75/
 
