@@ -1,3 +1,15 @@
+**Journalists at 3 Newspapers Quit Over Edits to a Charlie Kirk Story**\
+`The publications in Alaska lost significant staffing after the owners made changes to an article that had drawn criticism from a Republican state lawmaker.`\
+https://nytimes.com/2025/10/03/us/politics/alaska-newspapers-resignations-charlie-kirk.html
+
+**Live Updates: Hamas Says It Agrees to Release All Hostages in Gaza**\
+`The militant group responded to a proposal by President Trump to end the war in Gaza.`\
+https://nytimes.com/live/2025/10/03/world/hamas-hostages-israel-gaza
+
+**Here’s the latest.**\
+`The militant group responded to a proposal by President Trump to end the war in Gaza.`\
+https://nytimes.com/live/2025/10/03/world/hamas-hostages-israel-gaza/hamas-hostage-release-gaza-trump
+
 **How to watch Mercury at Aces: WNBA Finals Game 1 Time, TV, streaming**\
 `Find out how to watch the Phoenix Mercury play the Las Vegas Aces, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6687626/2025/10/03/mercury-vs-aces-stream-how-to-watch-oct-3/
@@ -21,16 +33,4 @@ https://nytimes.com/2025/10/03/us/politics/trump-israel-qatar-gaza.html
 **Senators Again Block Plans to Reopen Government as Shutdown Drags On**\
 `The federal shutdown was set to stretch through the weekend after Republicans and Democrats failed to win test votes on their competing plans to extend federal funding.`\
 https://nytimes.com/2025/10/03/us/politics/senate-government-shutdown.html
-
-**How to watch Cubs at Brewers: Game 1 Time, TV, streaming**\
-`Find out how to watch the Chicago Cubs play the Milwaukee Brewers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6687476/2025/10/03/cubs-vs-brewers-stream-how-to-watch-oct-4/
-
-**Groups File Suit Over Trump’s $100,000 H-1B Visa Fee**\
-`The suit argues that the new fee would harm schools, hospitals, churches and small businesses across the country.`\
-https://nytimes.com/2025/10/03/us/politics/h-1b-visa-fee-lawsuit.html
-
-**Fired Prosecutor Assails Justice Dept.’s Pursuit of Trump’s Enemies**\
-`The dismissal showed the extent of the fallout from the charges against James B. Comey, damaging a crucial unit to the U.S. attorney’s office in the Eastern District of Virginia.`\
-https://nytimes.com/2025/10/03/us/politics/trump-michael-benary-letter-comey.html
 
