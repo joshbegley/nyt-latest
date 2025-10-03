@@ -19,7 +19,7 @@ https://nytimes.com/2025/10/03/nyregion/my-reporting-led-to-a-landmark-lawsuit-t
 https://nytimes.com/2025/10/03/crosswords/spelling-bee-forum.html
 
 **2 Victims Named After Manchester Synagogue Terrorist Attack**\
-`Adrian Daulby, 53, and Melvin Cravitz, 66, were named as the two people killed Thursday outside the Heaton Park Congregation synagogue in northwestern England.`\
+`The police said Adrian Daulby, 53, and Melvin Cravitz, 66, were killed Thursday outside the Heaton Park Congregation synagogue in northwestern England.`\
 https://nytimes.com/2025/10/03/world/europe/uk-manchester-synagogue-attack.html
 
 **How Marco Bizot channelled his inner Nigel Spink to help Aston Villa beat Feyenoord**\
