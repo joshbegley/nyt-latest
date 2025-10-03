@@ -1,3 +1,7 @@
+**Have familiar flaws put Ange Postecoglou's future at Nottingham Forest in jeopardy already?**\
+`The start to the Australian's tenure is the worst of any permanent Forest manager in a hundred years `\
+https://nytimes.com/athletic/6685370/2025/10/03/nottingham-forest-europa-league-postecoglou-struggles/
+
 **Large Fire Burns at Chevron Refinery in El Segundo**\
 `It was not immediately clear what caused the blast. But the blaze, near Los Angeles, could be seen from miles away.`\
 https://nytimes.com/2025/10/03/us/el-segundo-refinery-fire-chevron.html
