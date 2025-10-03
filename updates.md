@@ -1,3 +1,7 @@
+**Grand Slam Track receives funding to cover half of what it owes to athletes**\
+`Athletes have also been told that Grand Slam Track will be working on securing additional funding in the next 60 days.`\
+https://nytimes.com/athletic/6687024/2025/10/03/grand-slam-track-funding-gst/
+
 **What we still don't know about the Penguins' final roster just days before NHL season start**\
 `The Penguins' roster situation has grown more interesting in recent days. We know some things, but there's still a lot of mystery.`\
 https://nytimes.com/athletic/6686996/2025/10/03/penguins-2025-26-roster-nhl-season-schedule/

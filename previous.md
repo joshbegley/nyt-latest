@@ -1,3 +1,7 @@
+**Grand Slam Track receives funding to cover half of what it owes to athletes**\
+`Athletes have also been told that Grand Slam Track will be working on securing additional funding in the next 60 days.`\
+https://nytimes.com/athletic/6687024/2025/10/03/grand-slam-track-funding-gst/
+
 **What we still don't know about the Penguins' final roster just days before NHL season start**\
 `The Penguins' roster situation has grown more interesting in recent days. We know some things, but there's still a lot of mystery.`\
 https://nytimes.com/athletic/6686996/2025/10/03/penguins-2025-26-roster-nhl-season-schedule/
@@ -29,12 +33,4 @@ https://nytimes.com/athletic/6687144/2025/10/03/mlb-division-series-preview-the-
 **Putin Says He Doubts U.S. Will Send Tomahawk Missiles to Ukraine**\
 `The Russian president warned against fulfilling a Ukrainian request for more powerful long-range missiles, while also suggesting President Trump would decide against the idea.`\
 https://nytimes.com/2025/10/03/world/europe/putin-trump-ukraine-tomahawk-missiles.html
-
-**Her Stocks Were Quietly Stolen From Her I.R.A.**\
-`A retiree logged into his wife’s Roth I.R.A. to make a trade, and stumbled upon a crime scene.`\
-https://nytimes.com/2025/10/03/your-money/ira-vanguard-merrill-acats-fraud.html
-
-**The Bounce: WNBA Finals start tonight! Plus: Previewing the Trail Blazers and Bulls**\
-`Welcome to The Bounce, The Athletic's basketball newsletter.`\
-https://nytimes.com/athletic/6683786/2025/10/03/wnba-finals-bulls-blazers-the-bounce/
 
