@@ -1,3 +1,5 @@
+
+
 **Statue of Trump and Epstein Holding Hands Returns to National Mall**\
 `The statue, titled “Best Friends Forever,” was reinstalled after it was removed last week. An anonymous group of artists has taken credit for the work.`\
 https://nytimes.com/2025/10/03/us/donald-trump-jeffrey-epstein-statue-washington.html
