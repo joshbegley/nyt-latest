@@ -1,3 +1,7 @@
+**Padres' offense, core of stars fizzle again in short October run**\
+`For a second consecutive year, the Padres won at least 90 regular-season games. Then, rather quickly, were dispatched in the postseason.`\
+https://nytimes.com/athletic/6685782/2025/10/03/san-diego-padres-offensive-struggles-october/
+
 **How Palace fans began their European party with songs, solidarity... and lots of beer**\
 `The London club had waited its whole history for a first game in the main draw of a European competition. It was never going to be quiet`\
 https://nytimes.com/athletic/6673214/2025/10/03/crystal-palace-europe-fans/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6657264/2025/10/03/watson-mitoma-brighton/
 **Why Hollywood actors are investing in SailGP – 'Ryan is a marketing genius'**\
 `A-list actors and famous sports stars, such as Kylian Mbappe, have invested in the international sailing championship SailGP`\
 https://nytimes.com/athletic/6682969/2025/10/03/sailgp-investment-ryan-reynolds-anne-hathaway/
-
-**'It's fantastic we’re criticised. It means people care about what we're doing' - England's Charlie Dean**\
-`The England off-spinner talks captaincy, life under Charlotte Edwards and Nat Sciver-Brunt, and the team's World Cup prospects in India `\
-https://nytimes.com/athletic/6658047/2025/10/03/england-charlie-dean-odi-world-cup-exclusive/
 

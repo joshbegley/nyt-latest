@@ -1,3 +1,11 @@
+**How Palace fans began their European party with songs, solidarity... and lots of beer**\
+`The London club had waited its whole history for a first game in the main draw of a European competition. It was never going to be quiet`\
+https://nytimes.com/athletic/6673214/2025/10/03/crystal-palace-europe-fans/
+
+**How Chiesa came in from the cold**\
+`The Italian was already a cult hero after one season at Anfield but now he is an increasingly important attacking option for Arne Slot`\
+https://nytimes.com/athletic/6675997/2025/10/03/federico-chiesa-liverpool-analysis/
+
 **Why Newcastle's chance creation is down – and how they can evolve to get even more from Woltemade**\
 `Newcastle are creating fewer chances in the Premier League than ever before under Eddie Howe. This is why and how they aim to fix it`\
 https://nytimes.com/athletic/6679810/2025/10/03/newcastle-united-xg-woltemade/

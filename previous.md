@@ -1,3 +1,11 @@
+**How Palace fans began their European party with songs, solidarity... and lots of beer**\
+`The London club had waited its whole history for a first game in the main draw of a European competition. It was never going to be quiet`\
+https://nytimes.com/athletic/6673214/2025/10/03/crystal-palace-europe-fans/
+
+**How Chiesa came in from the cold**\
+`The Italian was already a cult hero after one season at Anfield but now he is an increasingly important attacking option for Arne Slot`\
+https://nytimes.com/athletic/6675997/2025/10/03/federico-chiesa-liverpool-analysis/
+
 **Why Newcastle's chance creation is down – and how they can evolve to get even more from Woltemade**\
 `Newcastle are creating fewer chances in the Premier League than ever before under Eddie Howe. This is why and how they aim to fix it`\
 https://nytimes.com/athletic/6679810/2025/10/03/newcastle-united-xg-woltemade/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6682969/2025/10/03/sailgp-investment-ryan-reynolds-
 **'It's fantastic we’re criticised. It means people care about what we're doing' - England's Charlie Dean**\
 `The England off-spinner talks captaincy, life under Charlotte Edwards and Nat Sciver-Brunt, and the team's World Cup prospects in India `\
 https://nytimes.com/athletic/6658047/2025/10/03/england-charlie-dean-odi-world-cup-exclusive/
-
-**Premier League Predictions: Chelsea vs Liverpool, Arsenal vs West Ham and the rest of Matchday 7**\
-`Who's leading after MD6? And what does our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 7?`\
-https://nytimes.com/athletic/6676838/2025/10/03/premier-league-predictions-matchday-7/
-
-**In series-clinching victory, Jameson Taillon gave the Cubs what they needed: 'He set the tone'**\
-`It took all of three pitches before Taillon and the Cubs knew something special was going to happen at Wrigley Field on Thursday night.`\
-https://nytimes.com/athletic/6685632/2025/10/03/cubs-game-3-jameson-taillon-win/
 
