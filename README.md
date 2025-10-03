@@ -1,3 +1,7 @@
+**Investor Convicted of Stealing Homes Is Jailed**\
+`Sanford Solny, a real estate investor charged with stealing properties in New York, was jailed this week for violating his probation.`\
+https://nytimes.com/2025/10/03/realestate/sanford-solny-deed-thief-jailed.html
+
 **Judge Finds ‘Likelihood’ That Charges Against Abrego Garcia Are Vindictive**\
 `The ruling was an astonishing rebuke of both the Justice Department and some of its top officials, including Todd Blanche, the deputy attorney general.`\
 https://nytimes.com/2025/10/03/us/politics/abrego-garcia-vindictive-prosecution.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6687810/2025/10/03/tarleton-state-basketball-billy-
 **Tajh Ariza, 5-star recruit and son of NBA veteran, commits to Oregon**\
 `Five-star forward Tajh Ariza, the son of 18-year NBA veteran Trevor Ariza, verbally committed to Oregon on Friday.`\
 https://nytimes.com/athletic/6687269/2025/10/03/tajh-ariza-commits-oregon-basketball-trevor/
-
-**Billionaire Trump Ally Emerges as Key Broker in Harvard Fight**\
-`Stephen A. Schwarzman, the leader of the Blackstone Group, one of the world’s largest investment firms, has taken a direct role in Harvard’s negotiations with the White House.`\
-https://nytimes.com/2025/10/03/us/politics/schwarzman-harvard-trump.html
 

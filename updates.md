@@ -1,3 +1,11 @@
+**Judge Finds ‘Likelihood’ That Charges Against Abrego Garcia Are Vindictive**\
+`The ruling was an astonishing rebuke of both the Justice Department and some of its top officials, including Todd Blanche, the deputy attorney general.`\
+https://nytimes.com/2025/10/03/us/politics/abrego-garcia-vindictive-prosecution.html
+
+**Cam Schlittler says Red Sox fans ‘crossed a line’ attacking his family on social media**\
+`Schlittler said the online harassment got him a little more “locked in” before his critical Game 3 start Thursday.`\
+https://nytimes.com/athletic/6687852/2025/10/03/cam-schlittler-red-sox-fans-yankees/
+
 **Judge Says Trump Wrongly Removed Puerto Rico Oversight Board Members**\
 `A federal judge found that the president failed to comply with a law Congress passed in 2016 to restructure the debt of the bankrupt government.`\
 https://nytimes.com/2025/10/03/us/trump-puerto-rico-oversight-board.html

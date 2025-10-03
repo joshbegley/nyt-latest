@@ -1,3 +1,7 @@
+**Judge Finds ‘Likelihood’ That Charges Against Abrego Garcia Are Vindictive**\
+`The ruling was an astonishing rebuke of both the Justice Department and some of its top officials, including Todd Blanche, the deputy attorney general.`\
+https://nytimes.com/2025/10/03/us/politics/abrego-garcia-vindictive-prosecution.html
+
 **Judge Says Trump Wrongly Removed Puerto Rico Oversight Board Members**\
 `A federal judge found that the president failed to comply with a law Congress passed in 2016 to restructure the debt of the bankrupt government.`\
 https://nytimes.com/2025/10/03/us/trump-puerto-rico-oversight-board.html
@@ -15,7 +19,7 @@ https://nytimes.com/2025/10/03/business/uber-lyft-drivers-unionize-california-ne
 https://nytimes.com/2025/10/03/us/california-air-show-fleet-week-canada.html
 
 **Cam Schlittler says Red Sox fans ‘crossed a line’ attacking his family on social media**\
-`Schlittler said the harassment got him a little more “locked in” before his critical Game 3 start Thursday.`\
+`Schlittler said the online harassment got him a little more “locked in” before his critical Game 3 start Thursday.`\
 https://nytimes.com/athletic/6687852/2025/10/03/cam-schlittler-red-sox-fans-yankees/
 
 **Hamas Said It Agreed to Release Hostages in Gaza**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6687269/2025/10/03/tajh-ariza-commits-oregon-basket
 **Billionaire Trump Ally Emerges as Key Broker in Harvard Fight**\
 `Stephen A. Schwarzman, the leader of the Blackstone Group, one of the world’s largest investment firms, has taken a direct role in Harvard’s negotiations with the White House.`\
 https://nytimes.com/2025/10/03/us/politics/schwarzman-harvard-trump.html
-
-**Ruben Amorim: Man Utd players shouldn't believe media criticism of system**\
-`Scrutiny on Amorim is rising, with his preferred 3-4-2-1 formation a particular focus.`\
-https://nytimes.com/athletic/6687214/2025/10/03/manchester-united-ruben-amorim-system-criticism/
 
