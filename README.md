@@ -1,3 +1,19 @@
+**‘A Hornet’s Nest:’ Mamdani’s Gifted Education Plan Divides New Yorkers**\
+`Zohran Mamdani wants to phase out the city’s gifted program for kindergarten students if elected, a proposal that drew intense criticism and praise.`\
+https://nytimes.com/2025/10/03/nyregion/gifted-program-new-york-mamdani-criticism.html
+
+**140,000 N.Y.C. Students Are Homeless. Can the Next Mayor Change That?**\
+`The city’s housing crisis has contributed to an education crisis, with more children than ever living in temporary housing. They face dismal outcomes.`\
+https://nytimes.com/2025/10/03/nyregion/nyc-homeless-students-can-mayor-fix.html
+
+**My Reporting Led to a Landmark Lawsuit. The Case Took 22 Years.**\
+`A class-action lawsuit, spurred by an investigative series in The Times, came to a close, having helped thousands of mentally ill residents of adult homes.`\
+https://nytimes.com/2025/10/03/nyregion/my-reporting-led-to-a-landmark-lawsuit-the-case-took-22-years.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/10/03/crosswords/spelling-bee-forum.html
+
 **2 Victims Named After Manchester Synagogue Terrorist Attack**\
 `Adrian Daulby, 53, and Melvin Cravitz, 66, were named as the two people killed Thursday outside the Heaton Park Congregation synagogue in northwestern England.`\
 https://nytimes.com/2025/10/03/world/europe/uk-manchester-synagogue-attack.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6685370/2025/10/03/nottingham-forest-europa-league-
 **Large Fire Burns at Chevron Refinery in El Segundo**\
 `It was not immediately clear what caused the blast. But the blaze, near Los Angeles, could be seen from miles away.`\
 https://nytimes.com/2025/10/03/us/el-segundo-refinery-fire-chevron.html
-
-**The New York Times in Print for Friday, Oct. 3, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/10/03/todays-new-york-times
-
-**Padres' offense, core of stars fizzle again in short October run**\
-`For a second consecutive year, the Padres won at least 90 regular-season games — then, rather quickly, were dispatched in the postseason.`\
-https://nytimes.com/athletic/6685782/2025/10/03/san-diego-padres-offensive-struggles-october/
-
-**How Palace fans began their European party with songs, solidarity... and lots of beer**\
-`The London club had waited its whole history for a first game in the main draw of a European competition. It was never going to be quiet`\
-https://nytimes.com/athletic/6673214/2025/10/03/crystal-palace-europe-fans/
-
-**How Chiesa came in from the cold**\
-`The Italian was already a cult hero after one season at Anfield but now he is an increasingly important attacking option for Arne Slot`\
-https://nytimes.com/athletic/6675997/2025/10/03/federico-chiesa-liverpool-analysis/
 
