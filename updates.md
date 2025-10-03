@@ -1,3 +1,7 @@
+**Word of the Day: tact**\
+`This word has appeared in 39 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/10/03/learning/word-of-the-day-tact.html
+
 **Have familiar flaws put Ange Postecoglou's future at Nottingham Forest in jeopardy already?**\
 `The start to the Australian's tenure is the worst of any permanent Forest manager in a hundred years `\
 https://nytimes.com/athletic/6685370/2025/10/03/nottingham-forest-europa-league-postecoglou-struggles/
