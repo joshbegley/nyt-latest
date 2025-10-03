@@ -1,3 +1,11 @@
+**The White House Can’t Decide: Is the Shutdown Bad or Good?**\
+`Is it “fun” and an “unprecedented opportunity,” or is it “madness” that must end? Depends who’s talking.`\
+https://nytimes.com/2025/10/03/us/politics/white-house-trump-shutdown.html
+
+**Investor Convicted of Stealing Homes Is Jailed**\
+`Sanford Solny, a real estate investor charged with stealing properties in New York, was jailed this week for violating his probation.`\
+https://nytimes.com/2025/10/03/realestate/sanford-solny-deed-thief-jailed.html
+
 **Judge Finds ‘Likelihood’ That Charges Against Abrego Garcia Are Vindictive**\
 `The ruling was an astonishing rebuke of both the Justice Department and some of its top officials, including Todd Blanche, the deputy attorney general.`\
 https://nytimes.com/2025/10/03/us/politics/abrego-garcia-vindictive-prosecution.html
