@@ -1,3 +1,7 @@
+**2 Victims Named After Manchester Synagogue Terrorist Attack**\
+`The police said Adrian Daulby, 53, and Melvin Cravitz, 66, were killed Thursday outside the Heaton Park Congregation synagogue in northwestern England.`\
+https://nytimes.com/2025/10/03/world/europe/uk-manchester-synagogue-attack.html
+
 **How Marco Bizot channelled his inner Nigel Spink to help Aston Villa beat Feyenoord**\
 `Just as in the 1982 European Cup final, the club's second-choice goalkeeper ended up playing a crucial role in a win in Rotterdam`\
 https://nytimes.com/athletic/6684738/2025/10/03/aston-villa-marco-bizot-rotterdam-spink/
