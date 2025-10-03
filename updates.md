@@ -1,3 +1,15 @@
+**Indonesia School Collapse Leaves Families Gripped by Grief and Fury**\
+`Four days after the collapse, families of the school’s students in East Java were in shock, demanding answers as the search for bodies churned on.`\
+https://nytimes.com/2025/10/03/world/asia/indonesia-school-collapse-families.html
+
+**Hamas Still Considering Trump Gaza Plan but Rejects ‘Take It or Leave It’ Deal**\
+`A senior member of the Palestinian group said that the group would soon announce its position on President Trump’s plan to end the war in Gaza.`\
+https://nytimes.com/2025/10/03/world/middleeast/hamas-response-trump-gaza-deal.html
+
+**NFL Week 5 schedule rankings: Top 5 Sunday games with the potential for points**\
+`Our NFL Week 5 schedule rankings are in search of scoring — points, points, points.`\
+https://nytimes.com/athletic/6682105/2025/10/03/nfl-week-5-schedule-jets-cowboys-bills-patriots-how-to-watch/
+
 **The Big Ten PE question: Can billions keep Ohio State and Michigan happy for 20 years?**\
 `The Big Ten’s stability is more important for some within the league than for others.`\
 https://nytimes.com/athletic/6685750/2025/10/03/big-ten-private-equity-rights-realignment/

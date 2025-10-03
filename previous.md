@@ -1,3 +1,15 @@
+**Indonesia School Collapse Leaves Families Gripped by Grief and Fury**\
+`Four days after the collapse, families of the school’s students in East Java were in shock, demanding answers as the search for bodies churned on.`\
+https://nytimes.com/2025/10/03/world/asia/indonesia-school-collapse-families.html
+
+**Hamas Still Considering Trump Gaza Plan but Rejects ‘Take It or Leave It’ Deal**\
+`A senior member of the Palestinian group said that the group would soon announce its position on President Trump’s plan to end the war in Gaza.`\
+https://nytimes.com/2025/10/03/world/middleeast/hamas-response-trump-gaza-deal.html
+
+**NFL Week 5 schedule rankings: Top 5 Sunday games with the potential for points**\
+`Our NFL Week 5 schedule rankings are in search of scoring — points, points, points.`\
+https://nytimes.com/athletic/6682105/2025/10/03/nfl-week-5-schedule-jets-cowboys-bills-patriots-how-to-watch/
+
 **The Big Ten PE question: Can billions keep Ohio State and Michigan happy for 20 years?**\
 `The Big Ten’s stability is more important for some within the league than for others.`\
 https://nytimes.com/athletic/6685750/2025/10/03/big-ten-private-equity-rights-realignment/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6684090/2025/10/03/the-athletics-friday-football-qu
 **After Guardians' season ended, nobody wanted to say goodbye. It was time to process things**\
 `The question for next season is whether this team will hit enough to be a contender. A low batting average and no power isn't sustainable.`\
 https://nytimes.com/athletic/6685461/2025/10/03/guardians-tigers-al-wild-card-series-game/
-
-**Blue Jackets bold predictions: Playoff drought ends? Boone Jenner extension?**\
-`Plus, is Jet Greaves cleared for takeoff? And could a familiar face return to the lineup at the trade deadline?`\
-https://nytimes.com/athletic/6680368/2025/10/03/blue-jackets-2025-26-predictions-playoff-boone-jenner/
-
-**Projecting the New York Rangers roster and lineup for opening night**\
-`Who makes the top six? What about third-line center? Here's how we think New York's depth chart looks to start the 2025-26 season.`\
-https://nytimes.com/athletic/6684159/2025/10/03/rangers-roster-lineup-depth-chart-2025-26/
-
-**Blue Jays' biggest ALDS decisions: Rotation order and lefty relievers**\
-`Kevin Gausman appears the clear choice to start Game 1. After that, things get murky for Toronto's rotation against New York. `\
-https://nytimes.com/athletic/6685700/2025/10/03/blue-jays-division-series-roster-projection/
 
