@@ -1,3 +1,11 @@
+**Judge Says Trump Wrongly Removed Puerto Rico Oversight Board Members**\
+`A federal judge found that the president failed to comply with a law Congress passed in 2016 to restructure the debt of the bankrupt government.`\
+https://nytimes.com/2025/10/03/us/trump-puerto-rico-oversight-board.html
+
+**Rite Aid, Once One of America’s Biggest Pharmacy Chains, Closes Its Last Stores**\
+`The company said it had closed its remaining 89 stores this week after struggling for years to stay in business and filing for bankruptcy protection twice.`\
+https://nytimes.com/2025/10/03/business/rite-aid-closes-stores-bankruptcy.html
+
 **Gig Drivers Win the Right to Unionize in California**\
 `The measure, a compromise with companies like Uber, could serve as a model for other states.`\
 https://nytimes.com/2025/10/03/business/uber-lyft-drivers-unionize-california-newsom.html

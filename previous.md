@@ -1,3 +1,11 @@
+**Judge Says Trump Wrongly Removed Puerto Rico Oversight Board Members**\
+`A federal judge found that the president failed to comply with a law Congress passed in 2016 to restructure the debt of the bankrupt government.`\
+https://nytimes.com/2025/10/03/us/trump-puerto-rico-oversight-board.html
+
+**Rite Aid, Once One of America’s Biggest Pharmacy Chains, Closes Its Last Stores**\
+`The company said it had closed its remaining 89 stores this week after struggling for years to stay in business and filing for bankruptcy protection twice.`\
+https://nytimes.com/2025/10/03/business/rite-aid-closes-stores-bankruptcy.html
+
 **Gig Drivers Win the Right to Unionize in California**\
 `The measure, a compromise with companies like Uber, could serve as a model for other states.`\
 https://nytimes.com/2025/10/03/business/uber-lyft-drivers-unionize-california-newsom.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/03/us/politics/schwarzman-harvard-trump.html
 **Ruben Amorim: Man Utd players shouldn't believe media criticism of system**\
 `Scrutiny on Amorim is rising, with his preferred 3-4-2-1 formation a particular focus.`\
 https://nytimes.com/athletic/6687214/2025/10/03/manchester-united-ruben-amorim-system-criticism/
-
-**The Comics Artist Who Sees Monsters in Museums, and in the Mirror**\
-`In her two-volume classic, “My Favorite Thing Is Monsters,” Emil Ferris explores a girl’s journey to understand the world, and herself.`\
-https://nytimes.com/interactive/2025/10/03/books/emil-ferris-monsters-horror-comics.html
-
-**Could freak losing streak strike Spurs again at Leeds on Saturday?**\
-`Spurs have lost the last seven matches immediately before international break - Thomas Frank has demanded his players stop the pattern`\
-https://nytimes.com/athletic/6686355/2025/10/03/spurs-lose-international-break/
 
