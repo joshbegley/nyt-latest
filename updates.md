@@ -1,3 +1,7 @@
+**Statue of Trump and Epstein Returns to National Mall**\
+`A statue depicting President Trump and Jeffrey Epstein was reinstalled near the Capitol after it was briefly removed by the National Park Service last week.`\
+https://nytimes.com/video/us/100000010438176/trump-epstein-washington-statue.html
+
 **Margaret Markey, Who Championed Victims of Sexual Abuse, Dies at 83**\
 `As a New York State assemblywoman, she began a campaign that finally bore fruit in 2019, when the Legislature extended the deadlines for victims to file claims.`\
 https://nytimes.com/2025/10/03/nyregion/margaret-markey-dead.html

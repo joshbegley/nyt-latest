@@ -1,3 +1,7 @@
+**Statue of Trump and Epstein Returns to National Mall**\
+`A statue depicting President Trump and Jeffrey Epstein was reinstalled near the Capitol after it was briefly removed by the National Park Service last week.`\
+https://nytimes.com/video/us/100000010438176/trump-epstein-washington-statue.html
+
 **Margaret Markey, Who Championed Victims of Sexual Abuse, Dies at 83**\
 `As a New York State assemblywoman, she began a campaign that finally bore fruit in 2019, when the Legislature extended the deadlines for victims to file claims.`\
 https://nytimes.com/2025/10/03/nyregion/margaret-markey-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6686685/2025/10/03/thomas-tuchel-england-world-cup-
 **Mamdani Condemns Trump’s $18 Billion Funding Freeze for New York-Area Projects**\
 `The Democratic front-runner for mayor of New York said that “these are the actions of one who is cruel to this city.”`\
 https://nytimes.com/2025/10/03/us/politics/mamdani-trump-funding-freeze-new-york-projects.html
-
-**Statue of Trump and Epstein Holding Hands Returns to National Mall**\
-`The statue, titled “Best Friends Forever,” was reinstalled after it was removed last week. An anonymous group of artists has taken credit for the work.`\
-https://nytimes.com/2025/10/03/us/donald-trump-jeffrey-epstein-statue-washington.html
 
