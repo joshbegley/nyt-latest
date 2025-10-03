@@ -1,3 +1,15 @@
+**Trump to Reverse $187 Million in N.Y. Counterterrorism Cuts**\
+`Gov. Kathy Hochul had described the cuts, which would have devastated New York’s intelligence and counterterrorism operations, as “utterly shocking.”`\
+https://nytimes.com/2025/10/03/nyregion/trump-new-york-counterterrorism-funds.html
+
+**Video emerges of Padres berating umps after blown call in season-ending loss to Cubs**\
+`CHICAGO — In the moments after the final game of their National League Wild Card Series, members of the San Diego Padres engaged in a brief shouting match with members of the umpiring crew that, the players felt, had hastened the end of their season.`\
+https://nytimes.com/athletic/6686788/2025/10/03/padres-umpires-missed-calls-frustration/
+
+**Oilers sign coach Kris Knoblauch to 3-year contract extension**\
+`Knoblauch's deal with the Oilers will now run through the 2028-29 season.`\
+https://nytimes.com/athletic/6686825/2025/10/03/kris-knoblauch-oilers-contract-extension/
+
 **In jail, Combs has gotten sober and developed a self-help course.**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2025/10/03/arts/sean-combs-diddy-sentencing/in-jail-combs-has-gotten-sober-and-developed-a-self-help-course
@@ -25,16 +37,4 @@ https://nytimes.com/interactive/2025/10/03/arts/music/cassie-letter.html
 **What Jaxson Dart must improve in second start; examining Russell Wilson's trade market**\
 `Dart won his starting debut, but it wasn't a flawless victory. There's plenty of room to grow. `\
 https://nytimes.com/athletic/6685656/2025/10/03/ny-giants-jaxson-dart-saints-russell-wilson-trade/
-
-**French Prime Minister Vows to Let Parliament Decide on Budget Bill**\
-`Prime Minister Sébastien Lecornu ruled out using a constitutional tool that would avoid a full parliamentary vote, hoping for compromise among divided lawmakers.`\
-https://nytimes.com/2025/10/03/world/europe/france-prime-minister-parliament-budget.html
-
-**Four players who could get big fantasy football boosts from an NFL trade**\
-`Andy Behrens talks NFL news and its impacts on fantasy football, including Bourne's big game, Hubbard's injury and Arizona's backfield.`\
-https://nytimes.com/athletic/6686651/2025/10/03/fantasy-football-news-trades-week-5-alvin-kamara/
-
-**49ers Outlast Rams In Overtime Thriller**\
-`The San Francisco 49ers, led by backup quarterback Mac Jones, pulled off a road upset over the division rival L.A. Rams Thursday.`\
-https://nytimes.com/video/sports/100000010437236/49ers-outlast-rams-in-overtime-thriller.html
 
