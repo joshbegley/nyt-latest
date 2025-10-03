@@ -1,3 +1,7 @@
+**Margaret Markey, Who Championed Victims of Sexual Abuse, Dies at 83**\
+`As a New York State assemblywoman, she began a campaign that finally bore fruit in 2019, when the Legislature extended the deadlines for victims to file claims.`\
+https://nytimes.com/2025/10/03/nyregion/margaret-markey-dead.html
+
 **French Photojournalist Killed in Drone Attack in Ukraine**\
 `Antoni Lallican, a Paris-based photographer, is the first working journalist to be killed by a remotely piloted drone during the war, according to press associations.`\
 https://nytimes.com/2025/10/03/world/europe/ukraine-drone-attack-journalist-killed.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/03/us/politics/mamdani-trump-funding-freeze-new-york
 **Statue of Trump and Epstein Holding Hands Returns to National Mall**\
 `The statue, titled “Best Friends Forever,” was reinstalled after it was removed last week. An anonymous group of artists has taken credit for the work.`\
 https://nytimes.com/2025/10/03/us/donald-trump-jeffrey-epstein-statue-washington.html
-
-**Skip Schumaker considered top candidate for Rangers' managerial job**\
-`Rangers president of baseball operations Chris Young said Friday that Schumaker was "the focus" of the club's search for a new manager.`\
-https://nytimes.com/athletic/6687293/2025/10/03/skip-schumaker-rangers-manager-mlb/
 

@@ -1,3 +1,7 @@
+**Margaret Markey, Who Championed Victims of Sexual Abuse, Dies at 83**\
+`As a New York State assemblywoman, she began a campaign that finally bore fruit in 2019, when the Legislature extended the deadlines for victims to file claims.`\
+https://nytimes.com/2025/10/03/nyregion/margaret-markey-dead.html
+
 **French Photojournalist Killed in Drone Attack in Ukraine**\
 `Antoni Lallican, a Paris-based photographer, is the first working journalist to be killed by a remotely piloted drone during the war, according to press associations.`\
 https://nytimes.com/2025/10/03/world/europe/ukraine-drone-attack-journalist-killed.html
