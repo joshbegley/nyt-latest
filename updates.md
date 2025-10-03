@@ -1,3 +1,7 @@
+**LIV Golf Ltd lost £461.8m in 2024, brings total deficit to £1.1bn**\
+`LIV Golf Ltd, the United Kingdom-based entity which manages the upstart golf league’s activities outside of the United States, lost £461.`\
+https://nytimes.com/athletic/6686158/2025/10/03/liv-golf-ltd-financial-losses/
+
 **Tottenham announce new Bentancur contract**\
 `"Winning the Europa League was a fantastic moment and we want to build on this now," Bentancur said.`\
 https://nytimes.com/athletic/6683719/2025/10/03/rodrigo-bentancur-new-contract-tottenham/
