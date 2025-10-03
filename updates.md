@@ -1,3 +1,7 @@
+**Texas Megachurch Pastor Pleads Guilty to Child Sex Abuse**\
+`Robert Morris, the founder of Gateway Church, which has one of the nation’s largest congregations, admitted to sexually abusing a child in the 1980s.`\
+https://nytimes.com/2025/10/02/world/asia/robert-morris-pastor-sex-abuse.html
+
 **Cubs-Padres Game 3 takeaways: Cubs' defense puts on a show as team advances to NLDS**\
 `A tense ninth inning almost flipped the script, but Chicago was able to close out San Diego with a 3-1 win that sends the Cubs to the NLDS.`\
 https://nytimes.com/athletic/6684908/2025/10/02/cubs-padres-score-results-game-3-takeaways-mlb-playoffs/
