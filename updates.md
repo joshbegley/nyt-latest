@@ -1,3 +1,11 @@
+**Is Taylor Swift’s ‘Actually Romantic’ About Charli XCX?**\
+`Jon Caramanica and Joe Coscarelli, the hosts of “Popcast” at The New York Times, spoke about Taylor Swift’s alleged diss track, “Actually Romantic,” aimed at her fellow pop star Charli XCX.`\
+https://nytimes.com/video/podcasts/100000010438715/is-taylor-swifts-actually-romantic-about-charli-xcx.html
+
+**Krazy Klean Claims to Keep Your Toilet Stainless for 10 Years. It Couldn’t Even Handle 6 Weeks. **\
+`Text by Caroline Mullen`\
+https://nytimes.com/card/2025/10/03/smarter-living/wirecutter/
+
 **Sean Combs Begged Judge for Mercy Before Sentencing**\
 `“My domestic violence will always be a heavy burden that I will have to forever carry,” Mr. Combs said in a 12-minute presentation.`\
 https://nytimes.com/2025/10/03/arts/music/sean-combs-diddy-sentencing-hearing.html
