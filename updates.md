@@ -1,3 +1,7 @@
+**The New York Times in Print for Friday, Oct. 3, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/03/todays-new-york-times
+
 **Padres' offense, core of stars fizzle again in short October run**\
 `For a second consecutive year, the Padres won at least 90 regular-season games — then, rather quickly, were dispatched in the postseason.`\
 https://nytimes.com/athletic/6685782/2025/10/03/san-diego-padres-offensive-struggles-october/

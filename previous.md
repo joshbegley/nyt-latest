@@ -1,3 +1,7 @@
+**The New York Times in Print for Friday, Oct. 3, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/03/todays-new-york-times
+
 **Padres' offense, core of stars fizzle again in short October run**\
 `For a second consecutive year, the Padres won at least 90 regular-season games — then, rather quickly, were dispatched in the postseason.`\
 https://nytimes.com/athletic/6685782/2025/10/03/san-diego-padres-offensive-struggles-october/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6682842/2025/10/03/michael-keane-everton-finisher-m
 **Could Tommy Watson capitalise on Kaoru Mitoma's slow start to the season?**\
 `It would be foolish to read too much into Japan winger's sluggish form but newcomer is edging towards a bigger role in Brighton's plans`\
 https://nytimes.com/athletic/6657264/2025/10/03/watson-mitoma-brighton/
-
-**Why Hollywood actors are investing in SailGP – 'Ryan is a marketing genius'**\
-`A-list actors and famous sports stars, such as Kylian Mbappe, have invested in the international sailing championship SailGP`\
-https://nytimes.com/athletic/6682969/2025/10/03/sailgp-investment-ryan-reynolds-anne-hathaway/
 
