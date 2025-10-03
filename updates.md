@@ -1,3 +1,11 @@
+**Apple Takes Down ICE Tracking Apps Amid Trump Pressure Campaign**\
+`Trump administration officials have issued several legal threats over ICEBlock, a popular app that allows users to alert others to the presence of nearby immigration agents.`\
+https://nytimes.com/2025/10/02/us/politics/apple-iceblock-app-store-trump.html
+
+**There was joy in Wrigleyville on Thursday as the Cubs clinched a playoff series**\
+`This Cubs team was joyful and frustrating all season, and this could be the last time they celebrate anything. But the moment was special.`\
+https://nytimes.com/athletic/6685592/2025/10/02/cubs-padres-nl-wild-card-game-3-victory-celebration/
+
 **Yankees-Red Sox Game 3 takeaways: Cam Schlittler shines as Yanks advance to face Blue Jays**\
 `In the biggest start of his life, Schlittler delivered a masterful performance, striking out 12 in Game 3 to lead New York into the ALDS.`\
 https://nytimes.com/athletic/6685535/2025/10/02/yankees-red-sox-score-results-game-3-takeaways-mlb-playoffs/
