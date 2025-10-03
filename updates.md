@@ -1,3 +1,7 @@
+**Red Light: New season, new faces … maybe. Plus: Our projected Presidents' Trophy winner ͏‌**\
+`It’s four days until the regular season begins, which means you just might be put on waivers shortly.`\
+https://nytimes.com/athletic/6686910/2025/10/03/red-light-presidents-trophy/
+
 **Cardinals to add to professional scouting department, retain current staff: Sources**\
 `The additions will allow for more separation between amateur scouting and pro scouting in the organization.`\
 https://nytimes.com/athletic/6686769/2025/10/03/st-louis-cardinals-scouting/
