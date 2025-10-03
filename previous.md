@@ -1,3 +1,7 @@
+**With their spirits revived, the Tigers make a bid for October redemption**\
+`Wenceel Pérez and A.J. Hinch reversed their scorn, and the Tigers finally got the hits they needed to beat the Guardians. `\
+https://nytimes.com/athletic/6685185/2025/10/02/detroit-tigers-october-redemption-wild-card/
+
 **U.S. stuns France with 3 late goals in U-20 World Cup, clinches knockout round spot**\
 `Zavier Gozo, Brooklyn Raines and Marcos Zambrano scored goals after the 85th minute to lead the Americans to the top of their group.`\
 https://nytimes.com/athletic/6685177/2025/10/02/us-france-score-result-u20-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/02/nyregion/sdny-unrwa-lawsuit-dismissed.html
 **Three questions for the Guardians' offseason**\
 `Could an extension or trade be on the table for Steven Kwan this winter? `\
 https://nytimes.com/athletic/6684184/2025/10/02/cleveland-guardians-offseason-questions/
-
-**Trump Offered Universities an Invitation for a Deal. Some See a Trap.**\
-`Trump officials want universities to sign on to conservative priorities to get special treatment. Some in higher education say agreeing would end academic freedom.`\
-https://nytimes.com/2025/10/02/us/trump-universities-compact-funding.html
 
