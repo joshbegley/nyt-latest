@@ -1,3 +1,15 @@
+**Trump to Reverse $187 Million in N.Y. Counterterrorism Cuts**\
+`Gov. Kathy Hochul had described the cuts, which would have devastated New York’s intelligence and counterterrorism operations, as “utterly shocking.”`\
+https://nytimes.com/2025/10/03/nyregion/trump-new-york-counterterrorism-funds.html
+
+**Video emerges of Padres berating umps after blown call in season-ending loss to Cubs**\
+`CHICAGO — In the moments after the final game of their National League Wild Card Series, members of the San Diego Padres engaged in a brief shouting match with members of the umpiring crew that, the players felt, had hastened the end of their season.`\
+https://nytimes.com/athletic/6686788/2025/10/03/padres-umpires-missed-calls-frustration/
+
+**Oilers sign coach Kris Knoblauch to 3-year contract extension**\
+`Knoblauch's deal with the Oilers will now run through the 2028-29 season.`\
+https://nytimes.com/athletic/6686825/2025/10/03/kris-knoblauch-oilers-contract-extension/
+
 **In jail, Combs has gotten sober and developed a self-help course.**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2025/10/03/arts/sean-combs-diddy-sentencing/in-jail-combs-has-gotten-sober-and-developed-a-self-help-course
