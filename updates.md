@@ -1,3 +1,7 @@
+**MLB Division Series matchups are set. Here’s your team’s path to the World Series**\
+`The Mariners as the '96 Yankees? The Dodgers as the '93 Jays? The Brewers as the '02 Angels? Using historical comps to find a world champion`\
+https://nytimes.com/athletic/6684187/2025/10/02/mlb-playoffs-bracket-matchups-2025-division-series/
+
 **Hurricanes will not sign Michael McLeod or Carter Hart: Sources**\
 `Carolina showed interest in McLeod and Hart in recent weeks but couldn't "get to something both sides would be comfortable with."`\
 https://nytimes.com/athletic/6685481/2025/10/02/hurricanes-michael-mcleod-carter-hart-hockey-canada/
