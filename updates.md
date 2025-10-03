@@ -1,3 +1,11 @@
+**Read the document**\
+`Cassie’s Letter to the Judge`\
+https://nytimes.com/interactive/2025/10/03/arts/music/cassie-letter.html
+
+**What Jaxson Dart must improve in second start; examining Russell Wilson's trade market**\
+`Dart won his starting debut, but it wasn't a flawless victory. There's plenty of room to grow. `\
+https://nytimes.com/athletic/6685656/2025/10/03/ny-giants-jaxson-dart-saints-russell-wilson-trade/
+
 **French Prime Minister Vows to Let Parliament Decide on Budget Bill**\
 `Prime Minister Sébastien Lecornu ruled out using a constitutional tool that would avoid a full parliamentary vote, hoping for compromise among divided lawmakers.`\
 https://nytimes.com/2025/10/03/world/europe/france-prime-minister-parliament-budget.html

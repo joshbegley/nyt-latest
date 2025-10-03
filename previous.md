@@ -1,3 +1,11 @@
+**Read the document**\
+`Cassie’s Letter to the Judge`\
+https://nytimes.com/interactive/2025/10/03/arts/music/cassie-letter.html
+
+**What Jaxson Dart must improve in second start; examining Russell Wilson's trade market**\
+`Dart won his starting debut, but it wasn't a flawless victory. There's plenty of room to grow. `\
+https://nytimes.com/athletic/6685656/2025/10/03/ny-giants-jaxson-dart-saints-russell-wilson-trade/
+
 **French Prime Minister Vows to Let Parliament Decide on Budget Bill**\
 `Prime Minister Sébastien Lecornu ruled out using a constitutional tool that would avoid a full parliamentary vote, hoping for compromise among divided lawmakers.`\
 https://nytimes.com/2025/10/03/world/europe/france-prime-minister-parliament-budget.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/03/world/europe/finland-court-baltic-sea-undersea-ca
 **Fantasy trends and hidden gems: Spotting NHL schedule advantages in 2025**\
 `Shayna Goldman breaks down the NHL schedule for the next three months to aid late-round draft decisions and early-season roster moves.`\
 https://nytimes.com/athletic/6685608/2025/10/03/fantasy-hockey-trends-nhl-schedule-advantages/
-
-**“Do you want to be treated, or do you want to be cured?"**\
-`A young mother. An ‘inoperable’ brain condition. A mission-driven neurosurgeon. And the patient-focused hospital system that saved her life.`\
-https://nytimes.com/paidpost/mass-general-brigham/do-you-want-to-be-treated-or-do-you-want-to-be-cured.html
-
-**Hayley Williams Tackles the South’s Racist History**\
-`Hayley Williams revealed to “Popcast” which country musician she’s singing about on her new album’s title track — and why she felt the need to write plainly about racial issues in the South.`\
-https://nytimes.com/video/podcasts/100000010436245/hayley-williams-tackles-the-souths-racist-history.html
 
