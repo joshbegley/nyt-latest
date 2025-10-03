@@ -1,3 +1,7 @@
+**Journalist Mario Guevara Is Deported After Being Held for Over 100 Days**\
+`The Salvadoran journalist was arrested in June while covering a “No Kings” protest outside Atlanta. Those charges were dropped, his lawyers said.`\
+https://nytimes.com/2025/10/03/us/mario-guevara-journalist-deported.html
+
 **5 Takeaways From Taylor Swift’s ‘Showgirl’ Movie**\
 `The pop star’s new album arrived with a limited-run film in which she debuts a video for “The Fate of Ophelia” and chats about the LP’s songs.`\
 https://nytimes.com/2025/10/03/arts/music/taylor-swift-showgirl-release-party-movie.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6688016/2025/10/03/dodgers-vs-phillies-stream-how-t
 **How to watch Yankees at Blue Jays: Game 1 Time, TV, streaming**\
 `Find out how to watch the New York Yankees play the Toronto Blue Jays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6688014/2025/10/03/yankees-vs-blue-jays-stream-how-to-watch-oct-4/
-
-**Oktoberfest’s New Drip**\
-`At Bavaria’s annual celebration of autumn and beer, new generations of partyers and new arrivals to Germany are adding their own twists to traditional fashion.`\
-https://nytimes.com/card/2025/10/03/world/europe/oktoberfests-new-drip
 
