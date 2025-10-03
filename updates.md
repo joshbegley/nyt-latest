@@ -1,3 +1,11 @@
+**Supreme Court Lets Trump Revoke Deportation Protections for Venezuelans**\
+`The Trump administration has tried to end deportation protections for more than 300,000 Venezuelan immigrants.`\
+https://nytimes.com/2025/10/03/us/politics/supreme-court-deportation-protections-venezuelans.html
+
+**Nutrition Program for Mothers and Infants May Run Out of Money Within Weeks**\
+`Nearly 41 percent of U.S.-born infants participate in the Special Supplemental Nutrition Program for Women, Infants and Children, which may not have enough funding for an extended government shutdown.`\
+https://nytimes.com/2025/10/03/us/politics/nutrition-program-for-mothers-and-infants-may-run-out-of-money-within-weeks.html
+
 **49ers minutia minute: Mac Jones went bananas as offense ran up huge snap count**\
 `McCaffrey’s 76 snaps were the second most of his career, surpassed only by an 83-snap game in 2018 when he was with the Carolina Panthers.`\
 https://nytimes.com/athletic/6687575/2025/10/03/49ers-minutia-minute-mac-jones-rams-tnf/

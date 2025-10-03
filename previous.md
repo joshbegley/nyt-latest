@@ -1,3 +1,11 @@
+**Supreme Court Lets Trump Revoke Deportation Protections for Venezuelans**\
+`The Trump administration has tried to end deportation protections for more than 300,000 Venezuelan immigrants.`\
+https://nytimes.com/2025/10/03/us/politics/supreme-court-deportation-protections-venezuelans.html
+
+**Nutrition Program for Mothers and Infants May Run Out of Money Within Weeks**\
+`Nearly 41 percent of U.S.-born infants participate in the Special Supplemental Nutrition Program for Women, Infants and Children, which may not have enough funding for an extended government shutdown.`\
+https://nytimes.com/2025/10/03/us/politics/nutrition-program-for-mothers-and-infants-may-run-out-of-money-within-weeks.html
+
 **49ers minutia minute: Mac Jones went bananas as offense ran up huge snap count**\
 `McCaffrey’s 76 snaps were the second most of his career, surpassed only by an 83-snap game in 2018 when he was with the Carolina Panthers.`\
 https://nytimes.com/athletic/6687575/2025/10/03/49ers-minutia-minute-mac-jones-rams-tnf/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/10/03/opinion/venezuela-armed-conflict-boats-drones.htm
 **Two games, 336 penalty minutes: Is the era of fight-filled NHL preseasons almost over?**\
 `A Lady Byng Award showcase of gentlemanly play, NHL preseasons are not. But a shortened schedule figures to lead to less brutality.`\
 https://nytimes.com/athletic/6687285/2025/10/03/nhl-preseason-fights-penalties-lightning-panthers/
-
-**The Billionaire Behind Trump’s Deal for Universities**\
-`The conservative ideas behind the Trump administration’s “compact” for universities were developed in part by Marc Rowan, a wealthy financier who has sought to shape higher education.`\
-https://nytimes.com/2025/10/03/us/billionaire-marc-rowan-trump-deal-universities.html
-
-**Blue Jays ALDS Notes: Don’t expect Bo Bichette to do a Kirk Gibson impression, Game 1 starter**\
-`Jays manager John Schneider declined to name a Game 2 starter or map out any future pitching plans Friday.`\
-https://nytimes.com/athletic/6687543/2025/10/03/blue-jays-alds-starter-gausman/
 
