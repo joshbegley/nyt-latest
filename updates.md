@@ -1,3 +1,7 @@
+**Skip Schumaker considered top candidate for Rangers' managerial job**\
+`Rangers president of baseball operations Chris Young said Friday that Schumaker was "the focus" of the club's search for a new manager.`\
+https://nytimes.com/athletic/6687293/2025/10/03/skip-schumaker-rangers-manager-mlb/
+
 **Wild reacquire Daemon Hunt, claiming former Minnesota defenseman off waivers**\
 `Hunt, 23, a third-round pick by the Wild in 2022, was traded to the Blue Jackets in November as part of the package to get David Jiricek.`\
 https://nytimes.com/athletic/6687160/2025/10/03/wild-daemon-hunt-waivers-claim/
