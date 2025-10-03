@@ -1,40 +1,40 @@
-**The Shutdown Leaves Wall Street Flying Blind**\
-`Investors are grappling with a blackout of official government economic data that’s forcing them to rely more heavily on reports that usually get far less attention.`\
-https://nytimes.com/2025/10/03/business/dealbook/shutdown-wall-street-data.html
+**'Warrior' Mac Jones lifts 49ers again, vindicating Kyle Shanahan and buying Brock Purdy time**\
+`Imagine if Kyle Shanahan had gotten his way and the 49ers had just drafted Mac Jones back in 2021. We're joking (we think).`\
+https://nytimes.com/athletic/6685997/2025/10/03/mac-jones-kyle-shanahan-49ers-rams/
 
-**Even as Red Sox season ends, there is now a feeling hope: ‘The future is bright’**\
-`“It sucks to say right now that we’re looking forward," Garrett Crochet said. "But ultimately, that’s our reality.”`\
-https://nytimes.com/athletic/6686450/2025/10/03/red-sox-yankees-wild-card/
+**Seth Curry is finally ready for the long-awaited reunion with his brother**\
+`"The family reunion is great," Steve Kerr said, "but it's also great to get such an accomplished player and shooter on our team."`\
+https://nytimes.com/athletic/6685764/2025/10/03/seth-curry-steph-curry-warriors-family-reunion/
 
-**Mookie Betts endured a career-worst season. Then his 'thought process on failing changed'**\
-`Betts led major-league shortstops with Defensive Runs Saved this season while battling back from an early-season stomach virus.`\
-https://nytimes.com/athletic/6684212/2025/10/03/dodgers-phillies-mlb-mookie-betts/
+**Notre Dame-Boise State predictions: Will Irish O-line hold up, and can defense keep momentum?**\
+`Boise State will bring enough winning DNA for its first visit to Notre Dame Stadium to provide an honest test for the Irish defense.`\
+https://nytimes.com/athletic/6684576/2025/10/03/notre-dame-boise-state-predictions-matchups/
 
-**Indonesia School Collapse Leaves Families Gripped by Grief and Fury**\
-`Four days after the collapse, families of the school’s students in East Java were in shock, demanding answers as the search for bodies churned on.`\
-https://nytimes.com/2025/10/03/world/asia/indonesia-school-collapse-families.html
+**Tuli Tuipulotu has arrived for the Chargers, right when they needed him most**\
+`With Joey Bosa in Buffalo and Khalil Mack on injured reserve, Tuipulotu has become the pass-rushing force the Chargers envisioned.`\
+https://nytimes.com/athletic/6685186/2025/10/03/chargers-tuli-tuipulotu-breakout-commanders/
 
-**Yankees' Aaron Boone proved in wild-card win he can outmanage Alex Cora**\
-`There has been a never-ending narrative swirling in the Yankees' fan base that Cora runs circles around Boone. He quieted those critics. `\
-https://nytimes.com/athletic/6685746/2025/10/03/aaron-boone-yankees-outmanage-alex-cora-redsox/
+**Here’s the latest.**\
+`By Christina Morales`\
+https://nytimes.com/live/2025/10/03/us/trump-news-government-shutdown/heres-the-latest
 
-**Hamas Still Considering Trump Gaza Plan but Rejects ‘Take It or Leave It’ Deal**\
-`A senior member of the Palestinian group said that the group would soon announce its position on President Trump’s plan to end the war in Gaza.`\
-https://nytimes.com/2025/10/03/world/middleeast/hamas-response-trump-gaza-deal.html
+**Government Shutdown Live Updates: Senate to Return For Votes as Spending Deadlock Reaches 3rd Day**\
+`The Senate was set to vote on advancing bills that need to pass for the government to reopen. President Trump mocked Democrats in social media posts, adding to the partisan conflict.`\
+https://nytimes.com/live/2025/10/03/us/trump-news-government-shutdown
 
-**NFL Week 5 schedule rankings: Top 5 Sunday games with the potential for points**\
-`Our NFL Week 5 schedule rankings are in search of scoring — points, points, points.`\
-https://nytimes.com/athletic/6682105/2025/10/03/nfl-week-5-schedule-jets-cowboys-bills-patriots-how-to-watch/
+**Predicting Bad Bunny's Super Bowl setlist, based on sports and vibes**\
+`El Conejo Malo doesn't lack stadium-rocking pleasers in his discography, paving the way for some of our wild guest star ideas.`\
+https://nytimes.com/athletic/6681410/2025/10/03/bad-bunny-super-bowl-halftime-setlist-songs-prediction/
 
-**The Big Ten PE question: Can billions keep Ohio State and Michigan happy for 20 years?**\
-`The Big Ten’s stability is more important for some within the league than for others.`\
-https://nytimes.com/athletic/6685750/2025/10/03/big-ten-private-equity-rights-realignment/
+**What I'm seeing and hearing about the Oilers as final roster cuts approach**\
+`A few young players have made things interesting for the Oilers' decision-makers ahead of the regular season.`\
+https://nytimes.com/athletic/6684868/2025/10/03/oilers-roster-matt-savoie-ike-howard/
 
-**Welcome back to to the national stage, Florida State-Miami. We've missed you**\
-`Two top-20 teams. ACC championship and CFP implications. A sold-out, prime-time atmosphere. It's not the glory days, but welcome back.`\
-https://nytimes.com/athletic/6684231/2025/10/03/florida-state-miami-acc-rivalry-history-playoff/
+**Can Sixers survive without Embiid and George if Quentin Grimes, Trendon Watford get up to speed?**\
+`With Joel Embiid and Paul George still sidelined, Philly needs to see what its roster can look like with Grimes and Watford in the rotation.`\
+https://nytimes.com/athletic/6685407/2025/10/03/sixers-knicks-preseason-grimes-watford/
 
-**Rams’ self-inflicted errors against 49ers were unbecoming of a contending team**\
-`The Rams are bona fide contenders, but Thursday's mistake-filled loss to the 49ers didn't help that argument.`\
-https://nytimes.com/athletic/6686338/2025/10/03/rams-mistakes-49ers-overtime-loss/
+**Broncos' Courtland Sutton has become a red zone monster. Can he crack Eagles' defense?**\
+`The 16 touchdown catches for Sutton from the 20-yard line and in since 2023 are the second-most among NFL wide receivers in that span.`\
+https://nytimes.com/athletic/6684787/2025/10/03/broncos-courtland-sutton-red-zone-eagles/
 
