@@ -23,7 +23,7 @@ https://nytimes.com/2025/10/03/crosswords/spelling-bee-forum.html
 https://nytimes.com/2025/10/03/world/europe/uk-manchester-synagogue-attack.html
 
 **How Marco Bizot channelled his inner Nigel Spink to help Aston Villa beat Feyenoord**\
-`Just as in 1982, Villa's second-choice goalkeeper ended up playing a crucial role in a victory in Rotterdam`\
+`Just as in the 1982 European Cup final, the club's second-choice goalkeeper ended up playing a crucial role in a win in Rotterdam`\
 https://nytimes.com/athletic/6684738/2025/10/03/aston-villa-marco-bizot-rotterdam-spink/
 
 **Late Night Sums Up Day Two of the Shutdown**\
