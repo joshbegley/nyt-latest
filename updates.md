@@ -1,3 +1,15 @@
+**French Photojournalist Killed in Drone Attack in Ukraine**\
+`Antoni Lallican, a Paris-based photographer, is the first working journalist to be killed by a remotely piloted drone during the war, according to press associations.`\
+https://nytimes.com/2025/10/03/world/europe/ukraine-drone-attack-journalist-killed.html
+
+**Are You Playing the Technology or Is the Technology Playing You?**\
+`Are you playing the technology or is the technology playing you? In a recent episode of “The Ezra Klein Show,” the musician Brian Eno and the Opinion columnist Ezra Klein discuss how generative A.I. changes our relationship with agency.`\
+https://nytimes.com/video/opinion/100000010416836/are-you-playing-the-technology-or-is-the-technology-playing-you.html
+
+**Speaker Johnson Says Trump Is ‘Trolling’ Democrats With Cuts**\
+`Speaker Mike Johnson said the shutdown shifted authority to the president to determine what parts of the government are essential and also downplayed the president’s previous statements about using that authority to hurt his political opponents.`\
+https://nytimes.com/video/us/politics/100000010438109/trump-trolling-democrats-mike-johnson.html
+
 **Division Series predictions: Our experts pick the winners for each series**\
 `Our staff is somewhat divided over which teams will advance in the NL, but they have a vision of a 2001 ALCS rematch on the AL side.`\
 https://nytimes.com/athletic/6687256/2025/10/03/mlb-division-series-staff-predictions/
