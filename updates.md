@@ -1,3 +1,11 @@
+**Slot defends Konate after back-to-back losses: 'We made a few errors, not only him'**\
+`The France defender struggled in the back-to-back defeats to Crystal Palace and Galatasaray.`\
+https://nytimes.com/athletic/6686172/2025/10/03/ibrahima-konate-liverpool-slot/
+
+**England name squad for Wales, Latvia with no Bellingham, Foden or Grealish**\
+`England play Wales at Wembley Stadium on October 9 and travel to Latvia on October 14.`\
+https://nytimes.com/athletic/6686097/2025/10/03/england-squad-bellingham-foden-grealish/
+
 **Next week’s waiver wire: Kendre Miller and more players to add — before the Week 6 rush**\
 `John Laghezza gets in front of the Week 6 waiver wire run by suggesting players to consider grabbing now before they become more popular. `\
 https://nytimes.com/athletic/6683250/2025/10/03/fantasy-football-next-week-waiver-kendre-miller-jaxson-dart/

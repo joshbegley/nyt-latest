@@ -1,3 +1,7 @@
+**Slot defends Konate after back-to-back losses: 'We made a few errors, not only him'**\
+`The France defender struggled in the back-to-back defeats to Crystal Palace and Galatasaray.`\
+https://nytimes.com/athletic/6686172/2025/10/03/ibrahima-konate-liverpool-slot/
+
 **Next week’s waiver wire: Kendre Miller and more players to add — before the Week 6 rush**\
 `John Laghezza gets in front of the Week 6 waiver wire run by suggesting players to consider grabbing now before they become more popular. `\
 https://nytimes.com/athletic/6683250/2025/10/03/fantasy-football-next-week-waiver-kendre-miller-jaxson-dart/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6683250/2025/10/03/fantasy-football-next-week-waive
 https://nytimes.com/2025/10/03/world/europe/uk-archbishop-canterbury-woman-church-sarah-mullally.html
 
 **England name squad for Wales, Latvia with no Bellingham, Foden or Grealish**\
-`England play Wales at Wembley Stadium on October 9 and Latvia on October 14.`\
+`England play Wales at Wembley Stadium on October 9 and travel to Latvia on October 14.`\
 https://nytimes.com/athletic/6686097/2025/10/03/england-squad-bellingham-foden-grealish/
 
 **Week 5 fantasy football intel, predictions using player prop lines**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/03/well/solve-problem-tips-fixable.html
 **The Jobs Report That Wasn’t Leaves Economists Guessing**\
 `Policymakers will enter uncharted territory without employment data that the government is expected to withhold because of its shutdown.`\
 https://nytimes.com/2025/10/03/business/economy/jobs-report-unemployment-shutdown.html
-
-**As Drake Maye's breakout continues, a test — and Josh Allen comps — arrive in Buffalo**\
-`The Patriots' second-year quarterback has taken a big step forward this season. But can he keep it going Sunday night against the Bills?`\
-https://nytimes.com/athletic/6683787/2025/10/03/drake-maye-patriots-breakout-josh-allen-bills/
 
