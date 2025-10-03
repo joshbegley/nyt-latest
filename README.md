@@ -1,3 +1,7 @@
+**Tottenham announce new Bentancur contract**\
+`"Winning the Europa League was a fantastic moment and we want to build on this now," Bentancur said.`\
+https://nytimes.com/athletic/6683719/2025/10/03/rodrigo-bentancur-new-contract-tottenham/
+
 **Tigers, Mariners meet for first time in AL Division Series: Key matchups, prediction**\
 `MLB's 2025 home run leader Cal Raleigh and his Mariners will take on arguably the league's best pitcher in Tigers ace Tarik Skubal.`\
 https://nytimes.com/athletic/6685760/2025/10/03/tigers-mariners-preview-division-series/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6680455/2025/10/03/nfl-field-goal-rules-kicking-bal
 **Wissa suffers minor setback in knee injury recovery**\
 `The 29-year-old, who joined Newcastle from Brentford at the start of last month, has not yet trained with his new team-mates.`\
 https://nytimes.com/athletic/6686189/2025/10/03/newcastle-wissa-injury-latest/
-
-**After Boston's exit, here are three key offseason questions for the Red Sox**\
-`The most successful season in four years for the Boston Red Sox came to an end in the AL Wild Card Series.`\
-https://nytimes.com/athletic/6685519/2025/10/03/boston-red-sox-offseason-questions/
 
