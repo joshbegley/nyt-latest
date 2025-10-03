@@ -1,3 +1,11 @@
+**With Adams Out, Cuomo Reports Rush in Donations but Still Trails Mamdani**\
+`As the New York City mayor’s race enters its final phase, Former Gov. Andrew M. Cuomo hopes the capitalize on Mayor Eric Adams’s decision to end his campaign.`\
+https://nytimes.com/2025/10/03/nyregion/mamdani-cuomo-nyc-mayor-fundraising.html
+
+**Brian Eno’s Creative Motivations**\
+`What motivates Brian Eno to create? The prolific artist and musician joined the Opinion columnist Ezra Klein to discuss art, life and the strange inspiration for his album “Music for Airports.”`\
+https://nytimes.com/video/opinion/100000010428213/brian-enos-creative-motivations.html
+
 **Journalists at 3 Newspapers Quit Over Edits to a Charlie Kirk Story**\
 `The publications in Alaska lost significant staffing after the owners made changes to an article that had drawn criticism from a Republican state lawmaker.`\
 https://nytimes.com/2025/10/03/us/politics/alaska-newspapers-resignations-charlie-kirk.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6687531/2025/10/03/milwaukee-brewers-brandon-woodru
 **Kennedy’s Ties to Ally Leading Vaccine Lawsuits Raise Ethical Concerns**\
 `Aaron Siri is leading legal efforts on policies that dovetail with parts of Health Secretary Robert F. Kennedy Jr.’s government agenda.`\
 https://nytimes.com/2025/10/03/health/kennedy-aaron-siri-vaccines-lawsuits.html
-
-**How Trump Used Fury Over Israel’s Qatar Attack to Push Netanyahu on Gaza**\
-`President Trump unveiled a proposal to end the war in Gaza and gave Hamas until Sunday to agree, after which he has said that Israel would have his “full backing” to eliminate Hamas.`\
-https://nytimes.com/2025/10/03/us/politics/trump-israel-qatar-gaza.html
-
-**Senators Again Block Plans to Reopen Government as Shutdown Drags On**\
-`The federal shutdown was set to stretch through the weekend after Republicans and Democrats failed to win test votes on their competing plans to extend federal funding.`\
-https://nytimes.com/2025/10/03/us/politics/senate-government-shutdown.html
 

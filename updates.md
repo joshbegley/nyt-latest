@@ -1,3 +1,15 @@
+**Journalists at 3 Newspapers Quit Over Edits to a Charlie Kirk Story**\
+`The publications in Alaska lost significant staffing after the owners made changes to an article that had drawn criticism from a Republican state lawmaker.`\
+https://nytimes.com/2025/10/03/us/politics/alaska-newspapers-resignations-charlie-kirk.html
+
+**Live Updates: Hamas Says It Agrees to Release All Hostages in Gaza**\
+`The militant group responded to a proposal by President Trump to end the war in Gaza.`\
+https://nytimes.com/live/2025/10/03/world/hamas-hostages-israel-gaza
+
+**Here’s the latest.**\
+`The militant group responded to a proposal by President Trump to end the war in Gaza.`\
+https://nytimes.com/live/2025/10/03/world/hamas-hostages-israel-gaza/hamas-hostage-release-gaza-trump
+
 **How to watch Mercury at Aces: WNBA Finals Game 1 Time, TV, streaming**\
 `Find out how to watch the Phoenix Mercury play the Las Vegas Aces, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6687626/2025/10/03/mercury-vs-aces-stream-how-to-watch-oct-3/
