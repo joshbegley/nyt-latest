@@ -1,3 +1,11 @@
+**Cardinals to add to professional scouting department, retain current staff: Sources**\
+`The additions will allow for more separation between amateur scouting and pro scouting in the organization.`\
+https://nytimes.com/athletic/6686769/2025/10/03/st-louis-cardinals-scouting/
+
+**Listen to the Sounds of Climate Change**\
+`For the Climate Forward live event, we gathered recordings of a melting glacier, the Amazon jungle and the underwater Arctic, all soundscapes that are rapidly changing.`\
+https://nytimes.com/2025/10/03/climate/sounds-of-climate-change.html
+
 **737 Videos, 141 Cues: What It Takes to Make ‘Kavalier & Clay’ Lift Off**\
 `At the Metropolitan Opera, a cramped studio at the back of the hall is a command tower, controlling the show’s elaborate video and effects.`\
 https://nytimes.com/2025/10/03/arts/music/metropolitan-opera-kavalier-clay-switchboard.html
@@ -29,12 +37,4 @@ https://nytimes.com/paidpost/bny-wealth/beyond-wall-street.html
 **Over $1 Million Worth of Treasure Is Recovered From 1715 Spanish Shipwreck**\
 `Treasure hunters found roughly 1,000 silver and gold coins off the east coast of Florida this summer. Many have visible dates and mint marks.`\
 https://nytimes.com/2025/10/03/us/shipwreck-florida-silver-gold-coins.html
-
-**Treasure Hunters Discover Coins Lost in a 1715 Shipwreck**\
-`More than 1,000 gold and silver coins, worth more than $1 million, were recovered from the site of a 1715 Spanish shipwreck off the southeast coast of Florida.`\
-https://nytimes.com/video/us/100000010436285/treasure-hunters-discover-lost-1715-shipwreck-coins.html
-
-**It Begins With a Joke. Comics in the World’s Largest Democracy Know Where It Ends.**\
-`The Indian comedian Kunal Kamra was forced offstage after a political joke led to a mob attack. Unlike Jimmy Kimmel, he is unlikely to return anytime soon.`\
-https://nytimes.com/2025/10/03/world/asia/india-comedian-kunal-kamra.html
 
