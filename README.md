@@ -1,3 +1,7 @@
+**Hayley Williams Tackles the South’s Racist History**\
+`Hayley Williams revealed to “Popcast” which country musician she’s singing about on her new album’s title track — and why she felt the need to write plainly about racial issues in the South.`\
+https://nytimes.com/video/podcasts/100000010436245/hayley-williams-tackles-the-souths-racist-history.html
+
 **Three questions for the Padres' offseason**\
 `Another largely successful season has ended with relatively few answers and at least these three questions.`\
 https://nytimes.com/athletic/6685473/2025/10/03/san-diego-padres-offseason-questions/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/10/03/arts/sean-combs-diddy-sentencing/the-convict
 **Live Updates: Sean Combs Faces Sentencing in Prostitution Case**\
 `The hip-hop mogul is expected to be sentenced Friday on two counts of transporting people across state lines for prostitution. He was acquitted of sex-trafficking two of his girlfriends.`\
 https://nytimes.com/live/2025/10/03/arts/sean-combs-diddy-sentencing
-
-**Who is Sean Combs?**\
-`By Ben Sisario`\
-https://nytimes.com/live/2025/10/03/arts/sean-combs-diddy-sentencing/who-is-sean-combs
 
