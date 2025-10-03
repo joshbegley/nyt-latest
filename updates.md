@@ -1,3 +1,7 @@
+**Betting for (by) dummies: Riding Vanderbilt, Saints, Ravens to cover and the under in London**\
+`Too many bets to make, too little time. Here are nine picks our football writers are making across college and NFL.`\
+https://nytimes.com/athletic/6686758/2025/10/03/nfl-college-football-betting-picks-vanderbilt-saints-ravens/
+
 **Pistons hope to keep turning good defense into 'explosive' offense**\
 `Detroit hopes to use its athleticism to create turnovers and lead to easy transition baskets this season.`\
 https://nytimes.com/athletic/6686747/2025/10/03/pistons-jb-bickerstaff-defense-offense/
