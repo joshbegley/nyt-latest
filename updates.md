@@ -1,3 +1,15 @@
+**French Prime Minister Vows to Let Parliament Decide on Budget Bill**\
+`Prime Minister Sébastien Lecornu ruled out using a constitutional tool that would avoid a full parliamentary vote, hoping for compromise among divided lawmakers.`\
+https://nytimes.com/2025/10/03/world/europe/france-prime-minister-parliament-budget.html
+
+**Four players who could get big fantasy football boosts from an NFL trade**\
+`Andy Behrens talks NFL news and its impacts on fantasy football, including Bourne's big game, Hubbard's injury and Arizona's backfield.`\
+https://nytimes.com/athletic/6686651/2025/10/03/fantasy-football-news-trades-week-5-alvin-kamara/
+
+**49ers Outlast Rams In Overtime Thriller**\
+`The San Francisco 49ers, led by backup quarterback Mac Jones, pulled off a road upset over the division rival L.A. Rams Thursday.`\
+https://nytimes.com/video/sports/100000010437236/49ers-outlast-rams-in-overtime-thriller.html
+
 **Meet the judge deciding Combs’s fate: Arun Subramanian.**\
 `By Ben Sisario`\
 https://nytimes.com/live/2025/10/03/arts/sean-combs-diddy-sentencing/meet-the-judge-deciding-combss-fate-arun-subramanian
