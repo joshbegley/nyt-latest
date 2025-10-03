@@ -1,3 +1,11 @@
+**Tigers, Mariners meet for first time in AL Division Series: Key matchups, prediction**\
+`MLB's 2025 home run leader Cal Raleigh and his Mariners will take on arguably the league's best pitcher in Tigers ace Tarik Skubal.`\
+https://nytimes.com/athletic/6685760/2025/10/03/tigers-mariners-preview-division-series/
+
+**The 9 Lives of Lee Miller**\
+`Her biography spans some of the 20th century’s most artistically compelling and politically harrowing moments, but it also overshadows her contribution to photography.`\
+https://nytimes.com/2025/10/03/arts/design/lee-miller-tate-britain.html
+
 **Ranking the Division Series matchups in each league from must-watch to bad writing**\
 `Not all Division Series are created equal. All of them are fantastic matchups, but some are more fantastical than others.`\
 https://nytimes.com/athletic/6685143/2025/10/03/mlb-postseason-division-series-ranking/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6686189/2025/10/03/newcastle-wissa-injury-latest/
 **After Boston's exit, here are three key offseason questions for the Red Sox**\
 `The most successful season in four years for the Boston Red Sox came to an end in the AL Wild Card Series.`\
 https://nytimes.com/athletic/6685519/2025/10/03/boston-red-sox-offseason-questions/
-
-**Is Sauce Right? Have the Jets gotten a raw deal from NFL officials?**\
-`The star cornerback aired his grievances after a series of questionable calls and non-calls on Monday night in Miami.`\
-https://nytimes.com/athletic/6684505/2025/10/03/new-york-jets-officiating-calls/
-
-**MLB's best postseason starters somehow still have surprises waiting for hitters**\
-`Whether it's increased velocity or different pitch mixes, starters are always looking for ways to provide different looks in the playoffs.`\
-https://nytimes.com/athletic/6681449/2025/10/03/mlb-playoffs-best-starting-pitchers-surprises/
 

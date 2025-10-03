@@ -1,40 +1,40 @@
-**Slot defends Konate after back-to-back losses: 'We made a few errors, not only him'**\
-`The France defender struggled in the back-to-back defeats to Crystal Palace and Galatasaray.`\
-https://nytimes.com/athletic/6686172/2025/10/03/ibrahima-konate-liverpool-slot/
+**Ranking the Division Series matchups in each league from must-watch to bad writing**\
+`Not all Division Series are created equal. All of them are fantastic matchups, but some are more fantastical than others.`\
+https://nytimes.com/athletic/6685143/2025/10/03/mlb-postseason-division-series-ranking/
 
-**Next week’s waiver wire: Kendre Miller and more players to add — before the Week 6 rush**\
-`John Laghezza gets in front of the Week 6 waiver wire run by suggesting players to consider grabbing now before they become more popular. `\
-https://nytimes.com/athletic/6683250/2025/10/03/fantasy-football-next-week-waiver-kendre-miller-jaxson-dart/
+**All Wild Card team: From Skubal to Schlittler, pitching dominated the first round**\
+`The Wild Card Series was short but thrilling, with some of the game’s biggest names asserting themselves right out of the gate.`\
+https://nytimes.com/athletic/6685582/2025/10/03/mlb-wild-card-series-team/
 
-**First Woman Appointed Archbishop of Canterbury**\
-`Sarah Mullally, the bishop of London, will lead the Church of England. She has been a vocal supporter of the rights of women in the church.`\
-https://nytimes.com/2025/10/03/world/europe/uk-archbishop-canterbury-woman-church-sarah-mullally.html
+**Yankees, Blue Jays meet in slug-filled AL Division Series: Key matchups, prediction**\
+`For a fifth and final series, the Yankees and Blue Jays will meet again. The winner will head to the ALCS.`\
+https://nytimes.com/athletic/6685990/2025/10/03/yankees-blue-jays-series-preview/
 
-**England name squad for Wales, Latvia with no Bellingham, Foden or Grealish**\
-`England play Wales at Wembley Stadium on October 9 and travel to Latvia on October 14.`\
-https://nytimes.com/athletic/6686097/2025/10/03/england-squad-bellingham-foden-grealish/
+**Rosenthal: In latest Red Sox-Yankees chapter, Alex Cora and Aaron Boone’s decisions flip the narrative**\
+`The margins between good and bad managerial moves in the postseason often are thin, with outcomes heavily influencing opinions.`\
+https://nytimes.com/athletic/6685877/2025/10/03/yankees-red-sox-alex-cora-aaron-boone/
 
-**Week 5 fantasy football intel, predictions using player prop lines**\
-`Brad Evans looks at sportsbooks to make Week 5 fantasy football predictions, including more happy returns from breakout QB Drake Maye.`\
-https://nytimes.com/athletic/6684268/2025/10/03/fantasy-football-week-5-predictions-props/
+**Cubs, Brewers meet again in NL Division Series: Key matchups, prediction**\
+`It's a battle of fundamentals between these NL Central rivals, one that will also see the return of ex-Brewers manager Craig Counsell.`\
+https://nytimes.com/athletic/6685853/2025/10/03/cubs-brewers-preview-division-series/
 
-**What I'm hearing about the Panthers: Chuba Hubbard's calf and a message sent**\
-`The Panthers won't see Tyreek Hill on Sunday after the Dolphins' star suffered a gruesome injury, but Darren Waller poses a challenge.`\
-https://nytimes.com/athletic/6684872/2025/10/03/carolina-panthers-chuba-hubbard-dolphins/
+**Why the NFL is buzzing about the new ‘K-ball’ rules**\
+`Is a subtle rule change made by the NFL this offseason changing the field goal math?`\
+https://nytimes.com/athletic/6680455/2025/10/03/nfl-field-goal-rules-kicking-balls/
 
-**Brandon Ingram, Raptors are evading external doubt and embracing self-belief**\
-`"It really does not matter what the outside world thinks about you," says coach Darko Rajaković dropping some life wisdom.`\
-https://nytimes.com/athletic/6684781/2025/10/03/brandon-ingram-raptors-self-belief/
+**Wissa suffers minor setback in knee injury recovery**\
+`The 29-year-old, who joined Newcastle from Brentford at the start of last month, has not yet trained with his new team-mates.`\
+https://nytimes.com/athletic/6686189/2025/10/03/newcastle-wissa-injury-latest/
 
-**A Breath of Fresh Air With Brian Eno**\
-`The musician and record producer Brian Eno delves into his experiments with ambient music, his thoughts on generative A.I. and his deep gratitude for the uniqueness of human life.`\
-https://nytimes.com/2025/10/03/opinion/ezra-klein-podcast-brian-eno.html
+**After Boston's exit, here are three key offseason questions for the Red Sox**\
+`The most successful season in four years for the Boston Red Sox came to an end in the AL Wild Card Series.`\
+https://nytimes.com/athletic/6685519/2025/10/03/boston-red-sox-offseason-questions/
 
-**5 Steps to Solve (Almost) Any Problem**\
-`You probably don’t need more time.`\
-https://nytimes.com/2025/10/03/well/solve-problem-tips-fixable.html
+**Is Sauce Right? Have the Jets gotten a raw deal from NFL officials?**\
+`The star cornerback aired his grievances after a series of questionable calls and non-calls on Monday night in Miami.`\
+https://nytimes.com/athletic/6684505/2025/10/03/new-york-jets-officiating-calls/
 
-**The Jobs Report That Wasn’t Leaves Economists Guessing**\
-`Policymakers will enter uncharted territory without employment data that the government is expected to withhold because of its shutdown.`\
-https://nytimes.com/2025/10/03/business/economy/jobs-report-unemployment-shutdown.html
+**MLB's best postseason starters somehow still have surprises waiting for hitters**\
+`Whether it's increased velocity or different pitch mixes, starters are always looking for ways to provide different looks in the playoffs.`\
+https://nytimes.com/athletic/6681449/2025/10/03/mlb-playoffs-best-starting-pitchers-surprises/
 
