@@ -1,3 +1,11 @@
+**Cubs-Padres Game 3 takeaways: Cubs' defense puts on a show as team advances to NLDS**\
+`A tense ninth inning almost flipped the script, but Chicago was able to close out San Diego with a 3-1 win that sends the Cubs to the NLDS.`\
+https://nytimes.com/athletic/6684908/2025/10/02/cubs-padres-score-results-game-3-takeaways-mlb-playoffs/
+
+**With their spirits revived, Tigers make a bid for October redemption**\
+`Wenceel Pérez and A.J. Hinch reversed their scorn, and the Tigers finally got the hits they needed to beat the Guardians. `\
+https://nytimes.com/athletic/6685185/2025/10/02/detroit-tigers-october-redemption-wild-card/
+
 **With their spirits revived, the Tigers make a bid for October redemption**\
 `Wenceel Pérez and A.J. Hinch reversed their scorn, and the Tigers finally got the hits they needed to beat the Guardians. `\
 https://nytimes.com/athletic/6685185/2025/10/02/detroit-tigers-october-redemption-wild-card/
