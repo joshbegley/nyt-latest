@@ -1,3 +1,19 @@
+**Scoop City: Remaining strength of schedule for all 32 teams**\
+`Strength of schedule rankings for all 32 teams, plus three Sunday matchups to watch`\
+https://nytimes.com/athletic/6687155/2025/10/03/strength-of-schedule-for-all-32-teams-plus-a-j-browns-struggles-and-week-5-matchups/
+
+**17 Off Broadway Shows to Enliven Your October**\
+`André De Shields does Molière, Romy and Michele take the stage and Bat Boy makes his return just in time for Halloween.`\
+https://nytimes.com/2025/10/03/theater/off-broadway-shows-october.html
+
+**Jane Fonda Revives Her Father’s McCarthy-Era Free Speech Group**\
+`The actress is leading the revival of the Committee for the First Amendment, a free-expression group that Hollywood stars including her father, Henry Fonda, formed in the 1940s.`\
+https://nytimes.com/2025/10/03/arts/jane-fonda-henry-fonda-free-speech.html
+
+**The Windup: Each Division Series in focus**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6687144/2025/10/03/mlb-division-series-preview-the-windup/
+
 **Putin Says He Doubts U.S. Will Send Tomahawk Missiles to Ukraine**\
 `The Russian president warned against fulfilling a Ukrainian request for more powerful long-range missiles, while also suggesting President Trump would decide against the idea.`\
 https://nytimes.com/2025/10/03/world/europe/putin-trump-ukraine-tomahawk-missiles.html
@@ -10,9 +26,9 @@ https://nytimes.com/2025/10/03/your-money/ira-vanguard-merrill-acats-fraud.html
 `Welcome to The Bounce, The Athletic's basketball newsletter.`\
 https://nytimes.com/athletic/6683786/2025/10/03/wnba-finals-bulls-blazers-the-bounce/
 
-**Vikings' J.J. McCarthy, Andrew Van Ginkel, three starters on O-line all out vs. Browns**\
-`Minnesota's roster has been decimated by injuries this season.`\
-https://nytimes.com/athletic/6686800/2025/10/03/vikings-j-j-mccarthy-andrew-van-ginkel-three-starters-on-o-line-all-out-vs-browns/
+**Vikings' J.J. McCarthy, Andrew Van Ginkel, 3 O-line starters out vs. Browns**\
+`Minnesota's roster has been decimated by injuries. It's down to a third-string left guard and center, and a second-string right tackle.`\
+https://nytimes.com/athletic/6686800/2025/10/03/vikings-mccarthy-van-ginkel-out-browns/
 
 **World Series odds: Dodgers once again favorites ahead of Yankees, Phillies**\
 `After advancing past Cincinnati in two games, the Dodgers are the favorites to win the World Series again.`\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6686858/2025/10/03/world-series-odds-dodgers-yankee
 **Belgian journalist Virginie Philipott announces candidacy for FIA presidency**\
 `"The importance of female leadership cannot be overstated. For decades, motorsport has been shaped almost exclusively by men," she said.`\
 https://nytimes.com/athletic/6687110/2025/10/03/virginie-philippot-fia-president-who-is/
-
-**James Grashow, Who Turned Cardboard Into Art, Dies at 83**\
-`He was best known for huge, fantastical installations that were not always built to last, including a version of the Trevi Fountain in Rome.`\
-https://nytimes.com/2025/10/03/arts/design/james-grashow-dead.html
-
-**Supreme Court to Hear Challenge to Hawaii Law Limiting Guns on Private Property**\
-`The Second Amendment case involves a Hawaii law that generally prohibits firearms on private property that is accessible to the public.`\
-https://nytimes.com/2025/10/03/us/politics/supreme-court-hawaii-gun-law.html
-
-**Betting for (by) dummies: Riding Vanderbilt, Saints, Ravens to cover and the under in London**\
-`Too many bets to make, too little time. Here are nine picks our football writers are making across college and NFL.`\
-https://nytimes.com/athletic/6686758/2025/10/03/nfl-college-football-betting-picks-vanderbilt-saints-ravens/
-
-**Pistons hope to keep turning good defense into 'explosive' offense**\
-`Detroit hopes to use its athleticism to create turnovers and lead to easy transition baskets this season.`\
-https://nytimes.com/athletic/6686747/2025/10/03/pistons-jb-bickerstaff-defense-offense/
 

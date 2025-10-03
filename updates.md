@@ -1,3 +1,23 @@
+**Scoop City: Remaining strength of schedule for all 32 teams**\
+`Strength of schedule rankings for all 32 teams, plus three Sunday matchups to watch`\
+https://nytimes.com/athletic/6687155/2025/10/03/strength-of-schedule-for-all-32-teams-plus-a-j-browns-struggles-and-week-5-matchups/
+
+**17 Off Broadway Shows to Enliven Your October**\
+`André De Shields does Molière, Romy and Michele take the stage and Bat Boy makes his return just in time for Halloween.`\
+https://nytimes.com/2025/10/03/theater/off-broadway-shows-october.html
+
+**Jane Fonda Revives Her Father’s McCarthy-Era Free Speech Group**\
+`The actress is leading the revival of the Committee for the First Amendment, a free-expression group that Hollywood stars including her father, Henry Fonda, formed in the 1940s.`\
+https://nytimes.com/2025/10/03/arts/jane-fonda-henry-fonda-free-speech.html
+
+**The Windup: Each Division Series in focus**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6687144/2025/10/03/mlb-division-series-preview-the-windup/
+
+**Vikings' J.J. McCarthy, Andrew Van Ginkel, 3 O-line starters out vs. Browns**\
+`Minnesota's roster has been decimated by injuries. It's down to a third-string left guard and center, and a second-string right tackle.`\
+https://nytimes.com/athletic/6686800/2025/10/03/vikings-mccarthy-van-ginkel-out-browns/
+
 **Putin Says He Doubts U.S. Will Send Tomahawk Missiles to Ukraine**\
 `The Russian president warned against fulfilling a Ukrainian request for more powerful long-range missiles, while also suggesting President Trump would decide against the idea.`\
 https://nytimes.com/2025/10/03/world/europe/putin-trump-ukraine-tomahawk-missiles.html
