@@ -1,3 +1,11 @@
+**Juventus bans Parma fans after racist abuse of Weston McKennie**\
+`The statement said law enforcement officers identified the individuals with help from "the state-of-the-art video surveillance system."`\
+https://nytimes.com/athletic/6686767/2025/10/03/juventus-weston-mckennie-racism/
+
+**Trump Administration Reverses $187 Million in N.Y. Counterterrorism Cuts**\
+`Gov. Kathy Hochul had described the cuts, which would have devastated New York’s intelligence and counterterrorism operations, as “utterly shocking.”`\
+https://nytimes.com/2025/10/03/nyregion/trump-new-york-counterterrorism-funds.html
+
 **Trump to Reverse $187 Million in N.Y. Counterterrorism Cuts**\
 `Gov. Kathy Hochul had described the cuts, which would have devastated New York’s intelligence and counterterrorism operations, as “utterly shocking.”`\
 https://nytimes.com/2025/10/03/nyregion/trump-new-york-counterterrorism-funds.html
