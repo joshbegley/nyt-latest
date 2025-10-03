@@ -1,3 +1,11 @@
+**Forced to Flee Two Homes, a Painter Finds a Refuge on Canvas**\
+`The Iraqi-born artist Hayv Kahraman explores displacement from Baghdad and Altadena in her New York show, “Ghost Fires.”`\
+https://nytimes.com/2025/10/03/arts/design/hayv-kahraman-artist-altadena.html
+
+**Fantasy Premier League live Q&A: Gameweek 7 advice from Ben Dinnery**\
+`Join Ben Dinnery for a live Gameweek 7 Q&A from 2pm-3pm UK time today`\
+https://nytimes.com/athletic/6679425/2025/10/03/fantasy-premier-league-live-qa-gameweek-7-advice-from-ben-dinnery/
+
 **Climber Dies in Fall After Scaling Yosemite’s El Capitan**\
 `The death of Balin Miller, 23, shocked his family and onlookers who were watching his ascent of the famed rock face.`\
 https://nytimes.com/2025/10/03/us/climber-dies-yosemite-el-capitan.html
