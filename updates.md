@@ -1,3 +1,11 @@
+**Trump Offers Universities a Deal: Follow Demands, Get Special Treatment**\
+`The Trump administration gave nine universities a set of terms to follow for better access to federal funds. At least one said it wanted to sign up, but some students wanted college officials to say no.`\
+https://nytimes.com/video/us/100000010436759/trump-universities-compact-funding.html
+
+**Sex in a Power Suit**\
+`What’s seduction now? At Tom Ford and Mugler, two possible answers.`\
+https://nytimes.com/2025/10/03/style/tom-ford-haider-ackermann-mugler-spring-2026.html
+
 **Forced to Flee Two Homes, a Painter Finds a Refuge on Canvas**\
 `The Iraqi-born artist Hayv Kahraman explores displacement from Baghdad and Altadena in her New York show, “Ghost Fires.”`\
 https://nytimes.com/2025/10/03/arts/design/hayv-kahraman-artist-altadena.html
