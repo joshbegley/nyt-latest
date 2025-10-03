@@ -1,3 +1,7 @@
+**Meet the judge deciding Combs’s fate: Arun Subramanian.**\
+`By Ben Sisario`\
+https://nytimes.com/live/2025/10/03/arts/sean-combs-diddy-sentencing/meet-the-judge-deciding-combss-fate-arun-subramanian
+
 **Thomas Tuchel warns big names there are 'no guarantees' on England World Cup places**\
 `Players like Jude Bellingham, Phil Foden and Jack Grealish told they must be at their best to be selected for future squads`\
 https://nytimes.com/athletic/6668945/2025/10/03/thomas-tuchel-england-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6684418/2025/10/03/brendan-shanahan-maple-leafs-ama
 **Sarah Mullally Is the First Female Leader of the Church of England**\
 `The Church of England on Friday appointed Sarah Mullally as the Archbishop of Canterbury, the spiritual leader of 85 million Anglican Christians worldwide. Mullally, a onetime cancer nurse, was also the first female Anglican bishop of London.`\
 https://nytimes.com/video/world/europe/100000010437014/sarah-mullally-first-woman-archbishop-church-of-england.html
-
-**Reviewing Prime Video's 'Faceoff: Inside the NHL' season 2: Special moments, missed chances**\
-`Here is how our staff assessed each episode of Prime Video's second season of “Faceoff: Inside the NHL.”`\
-https://nytimes.com/athletic/6680427/2025/10/03/nhl-amazon-prime-series-faceoff-season-2-review/
 

@@ -1,3 +1,19 @@
+**Thomas Tuchel warns big names there are 'no guarantees' on England World Cup places**\
+`Players like Jude Bellingham, Phil Foden and Jack Grealish told they must be at their best to be selected for future squads`\
+https://nytimes.com/athletic/6668945/2025/10/03/thomas-tuchel-england-analysis/
+
+**Arsenal open contract talks with Timber**\
+`Timber's existing deal runs until June 2028 and the 24-year-old has been one of Arsenal's most consistent players this season.`\
+https://nytimes.com/athletic/6686690/2025/10/03/jurrien-timber-arsenal-contract-arteta/
+
+**Finnish Court Dismisses Case Against Crew Accused of Cutting Undersea Cables**\
+`A judge ruled that Finland did not have jurisdiction to prosecute a case against a ship believed to be a part of Russia’s “shadow fleet.”`\
+https://nytimes.com/2025/10/03/world/europe/finland-court-baltic-sea-undersea-cables-sabotage.html
+
+**Fantasy trends and hidden gems: Spotting NHL schedule advantages in 2025**\
+`Shayna Goldman breaks down the NHL schedule for the next three months to aid late-round draft decisions and early-season roster moves.`\
+https://nytimes.com/athletic/6685608/2025/10/03/fantasy-hockey-trends-nhl-schedule-advantages/
+
 **“Do you want to be treated, or do you want to be cured?"**\
 `A young mother. An ‘inoperable’ brain condition. A mission-driven neurosurgeon. And the patient-focused hospital system that saved her life.`\
 https://nytimes.com/paidpost/mass-general-brigham/do-you-want-to-be-treated-or-do-you-want-to-be-cured.html
