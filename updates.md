@@ -1,3 +1,15 @@
+**Live Updates: Sean Combs Faces Sentencing in Prostitution Case**\
+`The hip-hop mogul is expected to be sentenced Friday on two counts of transporting people across state lines for prostitution. He was acquitted of sex-trafficking two of his girlfriends.`\
+https://nytimes.com/live/2025/10/03/arts/sean-combs-diddy-sentencing
+
+**Who is Sean Combs?**\
+`By Ben Sisario`\
+https://nytimes.com/live/2025/10/03/arts/sean-combs-diddy-sentencing/who-is-sean-combs
+
+**Here is the latest.**\
+`By Ben Sisario`\
+https://nytimes.com/live/2025/10/03/arts/sean-combs-diddy-sentencing/here-is-the-latest
+
 **Who is Sean Combs?**\
 `By Ben Sisario`\
 https://nytimes.com/2025/10/03/arts/music/who-is-sean-combs.html

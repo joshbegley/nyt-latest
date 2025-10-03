@@ -1,10 +1,14 @@
+**Live Updates: Sean Combs Faces Sentencing in Prostitution Case**\
+`The hip-hop mogul is expected to be sentenced Friday on two counts of transporting people across state lines for prostitution. He was acquitted of sex-trafficking two of his girlfriends.`\
+https://nytimes.com/live/2025/10/03/arts/sean-combs-diddy-sentencing
+
 **Who is Sean Combs?**\
 `By Ben Sisario`\
-https://nytimes.com/2025/10/03/arts/music/who-is-sean-combs.html
+https://nytimes.com/live/2025/10/03/arts/sean-combs-diddy-sentencing/who-is-sean-combs
 
 **Here is the latest.**\
 `By Ben Sisario`\
-https://nytimes.com/2025/10/03/arts/music/here-is-the-latest.html
+https://nytimes.com/live/2025/10/03/arts/sean-combs-diddy-sentencing/here-is-the-latest
 
 **Manchester Community Reels From Synagogue Attack**\
 `Residents were left in shock after a driver rammed a vehicle into people and stabbed others Thursday at a synagogue in Manchester. Three people died, including the attacker. The police on Friday said one victim died from police gunfire.`\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/10/03/us/trump-news-government-shutdown/heres-the-
 **Government Shutdown Live Updates: Senate to Return for Votes as Spending Deadlock Reaches 3rd Day**\
 `The Senate was set to vote on advancing bills that need to pass for the government to reopen. President Trump mocked Democrats in social media posts, adding to the partisan conflict.`\
 https://nytimes.com/live/2025/10/03/us/trump-news-government-shutdown
-
-**Predicting Bad Bunny's Super Bowl setlist, based on sports and vibes**\
-`El Conejo Malo doesn't lack stadium-rocking pleasers in his discography, paving the way for some of our wild guest star ideas.`\
-https://nytimes.com/athletic/6681410/2025/10/03/bad-bunny-super-bowl-halftime-setlist-songs-prediction/
 
