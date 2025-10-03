@@ -1,3 +1,7 @@
+**TAFC: Ex-Miss Paraguay petitions Trump over World Cup, FIFA's 15% cut on resale tickets**\
+`Today in TAFC: The petition over visas for the World Cup by a former Miss Universe entrant. Plus: FIFA slap 15% commission on resale tickets`\
+https://nytimes.com/athletic/6686203/2025/10/03/trump-world-cup-miss-paraguay/
+
 **On a magical night for the Cubs, Pete Crow-Armstrong salutes his Wrigley Field fans**\
 `An elimination game found Crow-Armstrong in the second inning, with the bases loaded and his Beastie Boys walk-up music blaring.`\
 https://nytimes.com/athletic/6685899/2025/10/03/chicago-cubs-pete-crow-armstrong-wrigley-field-fans/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6683682/2025/10/03/chiefs-patrick-mahomes-riskier-f
 **Vikings-Browns predictions: What we're watching with Carson Wentz vs. Dillon Gabriel**\
 `Alec Lewis and Jon Krawczynski preview the Minnesota-Cleveland matchup in London, where points are expected to be at a premium.`\
 https://nytimes.com/athletic/6682885/2025/10/03/vikings-browns-predictions-carson-wentz-dillon-gabriel/
-
-**Devin Booker is the Suns' undisputed leader. He has a perfect role model in Steve Nash**\
-`Nash, the two-time MVP in Phoenix, has joined the Suns as a senior advisor, but he's not only person in the gym with a new role. `\
-https://nytimes.com/athletic/6677960/2025/10/03/devin-booker-phoenix-suns-leader-steve-nash/
 

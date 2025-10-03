@@ -1,3 +1,15 @@
+**On a magical night for the Cubs, Pete Crow-Armstrong salutes his Wrigley Field fans**\
+`An elimination game found Crow-Armstrong in the second inning, with the bases loaded and his Beastie Boys walk-up music blaring.`\
+https://nytimes.com/athletic/6685899/2025/10/03/chicago-cubs-pete-crow-armstrong-wrigley-field-fans/
+
+**AFC North Whiparound: Recalibrating the race with Ravens reeling, Joe Burrow hurt**\
+`The Steelers could be in the division driver's seat as the Browns, Bengals and Ravens all deal with quarterback questions.`\
+https://nytimes.com/athletic/6684030/2025/10/03/afc-north-whiparound-browns-ravens-bengals-steelers/
+
+**Does WNBA have 'worst leadership in the world'? A timeline of Cathy Engelbert's tenure**\
+`Engelbert has been the WNBA commissioner since 2019, and she and the league have experienced ups and downs during her tenure. `\
+https://nytimes.com/athletic/6680206/2025/10/03/wnba-cathy-engelbert-leadership-tenure/
+
 **The Pulse: A baseball dream realized**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6684355/2025/10/03/cam-schlittler-yankees-the-pulse/
