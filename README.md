@@ -1,3 +1,7 @@
+**How to watch Mercury at Aces: WNBA Finals Game 1 Time, TV, streaming**\
+`Find out how to watch the Phoenix Mercury play the Las Vegas Aces, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6687626/2025/10/03/mercury-vs-aces-stream-how-to-watch-oct-3/
+
 **FEMA Withholds $300 Million in Grants Until States Account for Deportations**\
 `The agency is demanding certification that population counts, used to determine grant allocations, exclude people who have been recently removed from the country.`\
 https://nytimes.com/2025/10/03/climate/fema-emergency-grants-immigration-population.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/10/03/us/politics/h-1b-visa-fee-lawsuit.html
 **Fired Prosecutor Assails Justice Dept.’s Pursuit of Trump’s Enemies**\
 `The dismissal showed the extent of the fallout from the charges against James B. Comey, damaging a crucial unit to the U.S. attorney’s office in the Eastern District of Virginia.`\
 https://nytimes.com/2025/10/03/us/politics/trump-michael-benary-letter-comey.html
-
-**Savinho signs Manchester City contract extension**\
-`The 21-year-old played 48 games for City last season after signing in July 2024 from French side Troyes.`\
-https://nytimes.com/athletic/6664793/2025/10/03/savinho-manchester-city-contract-extension/
 

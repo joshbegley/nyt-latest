@@ -1,3 +1,7 @@
+**FEMA Withholds $300 Million in Grants Until States Account for Deportations**\
+`The agency is demanding certification that population counts, used to determine grant allocations, exclude people who have been recently removed from the country.`\
+https://nytimes.com/2025/10/03/climate/fema-emergency-grants-immigration-population.html
+
 **Brewers' righty Brandon Woodruff will not be available for NL Division Series**\
 `Woodruff, a 32-year-old right-hander, is one of the longest-tenured Brewers, having been with the franchise since getting drafted in 2014.`\
 https://nytimes.com/athletic/6687531/2025/10/03/milwaukee-brewers-brandon-woodruff-out/
