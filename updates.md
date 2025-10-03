@@ -1,3 +1,7 @@
+**How to watch Mercury at Aces: WNBA Finals Game 1 Time, TV, streaming**\
+`Find out how to watch the Phoenix Mercury play the Las Vegas Aces, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6687626/2025/10/03/mercury-vs-aces-stream-how-to-watch-oct-3/
+
 **FEMA Withholds $300 Million in Grants Until States Account for Deportations**\
 `The agency is demanding certification that population counts, used to determine grant allocations, exclude people who have been recently removed from the country.`\
 https://nytimes.com/2025/10/03/climate/fema-emergency-grants-immigration-population.html
