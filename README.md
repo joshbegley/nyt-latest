@@ -1,3 +1,27 @@
+**Former Jets employee accuses team of retaliation amid sexual misconduct investigation**\
+`A former New York Jets vice president has filed a lawsuit against the team, saying she was fired as part of the franchise&#8217;s response to allegations of sexual misconduct against team president Hymie Elhai.`\
+https://nytimes.com/athletic/6687401/2025/10/03/jets-lawsuit-retaliation-sexual-misconduct-investigation/
+
+**Ravens rule Lamar Jackson out vs. Texans with hamstring injury**\
+`This will be the first time Jackson misses a game due to injury since December 2022. `\
+https://nytimes.com/athletic/6685763/2025/10/03/ravens-lamar-jackson-out-injury-texans/
+
+**If We’re in an Armed Conflict, Americans Deserve to Know More About It**\
+`From what little we do know about the airstrikes in the Caribbean, the operation doesn’t make much sense.`\
+https://nytimes.com/2025/10/03/opinion/venezuela-armed-conflict-boats-drones.html
+
+**Two games, 336 penalty minutes: Is the era of fight-filled NHL preseasons almost over?**\
+`A Lady Byng Award showcase of gentlemanly play, NHL preseasons are not. But a shortened schedule figures to lead to less brutality.`\
+https://nytimes.com/athletic/6687285/2025/10/03/nhl-preseason-fights-penalties-lightning-panthers/
+
+**The Billionaire Behind Trump’s Deal for Universities**\
+`The conservative ideas behind the Trump administration’s “compact” for universities were developed in part by Marc Rowan, a wealthy financier who has sought to shape higher education.`\
+https://nytimes.com/2025/10/03/us/billionaire-marc-rowan-trump-deal-universities.html
+
+**Blue Jays ALDS Notes: Don’t expect Bo Bichette to do a Kirk Gibson impression, Game 1 starter**\
+`Jays manager John Schneider declined to name a Game 2 starter or map out any future pitching plans Friday.`\
+https://nytimes.com/athletic/6687543/2025/10/03/blue-jays-alds-starter-gausman/
+
 **With Adams Out, Cuomo Reports Rush in Donations but Still Trails Mamdani**\
 `As the New York City mayor’s race enters its final phase, Former Gov. Andrew M. Cuomo hopes the capitalize on Mayor Eric Adams’s decision to end his campaign.`\
 https://nytimes.com/2025/10/03/nyregion/mamdani-cuomo-nyc-mayor-fundraising.html
@@ -9,28 +33,4 @@ https://nytimes.com/video/opinion/100000010428213/brian-enos-creative-motivation
 **Journalists at 3 Newspapers Quit Over Edits to a Charlie Kirk Story**\
 `The publications in Alaska lost significant staffing after the owners made changes to an article that had drawn criticism from a Republican state lawmaker.`\
 https://nytimes.com/2025/10/03/us/politics/alaska-newspapers-resignations-charlie-kirk.html
-
-**Live Updates: Hamas Says It Agrees to Release All Hostages in Gaza**\
-`The militant group responded to a proposal by President Trump to end the war in Gaza.`\
-https://nytimes.com/live/2025/10/03/world/hamas-hostages-israel-gaza
-
-**Here’s the latest.**\
-`The militant group responded to a proposal by President Trump to end the war in Gaza.`\
-https://nytimes.com/live/2025/10/03/world/hamas-hostages-israel-gaza/hamas-hostage-release-gaza-trump
-
-**How to watch Mercury at Aces: WNBA Finals Game 1 Time, TV, streaming**\
-`Find out how to watch the Phoenix Mercury play the Las Vegas Aces, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6687626/2025/10/03/mercury-vs-aces-stream-how-to-watch-oct-3/
-
-**FEMA Withholds $300 Million in Grants Until States Account for Deportations**\
-`The agency is demanding certification that population counts, used to determine grant allocations, exclude people who have been recently removed from the country.`\
-https://nytimes.com/2025/10/03/climate/fema-emergency-grants-immigration-population.html
-
-**Brewers' righty Brandon Woodruff will not be available for NL Division Series**\
-`Woodruff, a 32-year-old right-hander, is one of the longest-tenured Brewers, having been with the franchise since getting drafted in 2014.`\
-https://nytimes.com/athletic/6687531/2025/10/03/milwaukee-brewers-brandon-woodruff-out/
-
-**Kennedy’s Ties to Ally Leading Vaccine Lawsuits Raise Ethical Concerns**\
-`Aaron Siri is leading legal efforts on policies that dovetail with parts of Health Secretary Robert F. Kennedy Jr.’s government agenda.`\
-https://nytimes.com/2025/10/03/health/kennedy-aaron-siri-vaccines-lawsuits.html
 
