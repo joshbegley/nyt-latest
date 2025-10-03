@@ -1,40 +1,40 @@
-**Explosion Causes Large Fire at Chevron Refinery**\
-`An explosion at a Chevron refinery in El Segundo, Calif., produced a giant fireball that lit up the sky on Thursday night. Nearby residents were urged to stay inside as crews battled multiple blazes at the facility.`\
-https://nytimes.com/video/us/100000010436927/chevron-refinery-explosion-fire.html
+**Week 5 fantasy football intel, predictions using player prop lines**\
+`Brad Evans looks at sportsbooks to make Week 5 fantasy football predictions, including more happy returns from breakout QB Drake Maye.`\
+https://nytimes.com/athletic/6684268/2025/10/03/fantasy-football-week-5-predictions-props/
 
-**Trump Offers Universities a Deal: Follow Demands, Get Special Treatment**\
-`The Trump administration gave nine universities a set of terms to follow for better access to federal funds. At least one said it wanted to sign up, but some students wanted college officials to say no.`\
-https://nytimes.com/video/us/100000010436759/trump-universities-compact-funding.html
+**What I'm hearing about the Panthers: Chuba Hubbard's calf and a message sent**\
+`The Panthers won't see Tyreek Hill on Sunday after the Dolphins' star suffered a gruesome injury, but Darren Waller poses a challenge.`\
+https://nytimes.com/athletic/6684872/2025/10/03/carolina-panthers-chuba-hubbard-dolphins/
 
-**Sex in a Power Suit**\
-`What’s seduction now? At Tom Ford and Mugler, two possible answers.`\
-https://nytimes.com/2025/10/03/style/tom-ford-haider-ackermann-mugler-spring-2026.html
+**Brandon Ingram, Raptors are evading external doubt and embracing self-belief**\
+`"It really does not matter what the outside world thinks about you," says coach Darko Rajaković dropping some life wisdom.`\
+https://nytimes.com/athletic/6684781/2025/10/03/brandon-ingram-raptors-self-belief/
 
-**Forced to Flee Two Homes, a Painter Finds a Refuge on Canvas**\
-`The Iraqi-born artist Hayv Kahraman explores displacement from Baghdad and Altadena in her New York show, “Ghost Fires.”`\
-https://nytimes.com/2025/10/03/arts/design/hayv-kahraman-artist-altadena.html
+**A Breath of Fresh Air With Brian Eno**\
+`The musician and record producer Brian Eno delves into his experiments with ambient music, his thoughts on generative A.I. and his deep gratitude for the uniqueness of human life.`\
+https://nytimes.com/2025/10/03/opinion/ezra-klein-podcast-brian-eno.html
 
-**Fantasy Premier League live Q&A: Gameweek 7 advice from Ben Dinnery**\
-`Join Ben Dinnery for a live Gameweek 7 Q&A from 2pm-3pm UK time today`\
-https://nytimes.com/athletic/6679425/2025/10/03/fantasy-premier-league-live-qa-gameweek-7-advice-from-ben-dinnery/
+**5 Steps to Solve (Almost) Any Problem**\
+`You probably don’t need more time.`\
+https://nytimes.com/2025/10/03/well/solve-problem-tips-fixable.html
 
-**Climber Dies in Fall After Scaling Yosemite’s El Capitan**\
-`The death of Balin Miller, 23, shocked his family and onlookers who were watching his ascent of the famed rock face.`\
-https://nytimes.com/2025/10/03/us/climber-dies-yosemite-el-capitan.html
+**The Jobs Report That Wasn’t Leaves Economists Guessing**\
+`Policymakers will enter uncharted territory without employment data that the government is expected to withhold because of its shutdown.`\
+https://nytimes.com/2025/10/03/business/economy/jobs-report-unemployment-shutdown.html
 
-**World Cup ticket resale madness begins as FIFA takes two 15% fees on each sale**\
-`FIFA looks set to profit heavily from the World Cup resale ticket market`\
-https://nytimes.com/athletic/6685993/2025/10/03/world-cup-ticket-resale-fifa/
+**As Drake Maye's breakout continues, a test — and Josh Allen comps — arrive in Buffalo**\
+`The Patriots' second-year quarterback has taken a big step forward this season. But can he keep it going Sunday night against the Bills?`\
+https://nytimes.com/athletic/6683787/2025/10/03/drake-maye-patriots-breakout-josh-allen-bills/
 
-**‘A Hornet’s Nest:’ Mamdani’s Gifted Education Plan Divides New Yorkers**\
-`Zohran Mamdani wants to phase out the city’s gifted program for kindergarten students if elected, a proposal that drew intense criticism and praise.`\
-https://nytimes.com/2025/10/03/nyregion/gifted-program-new-york-mamdani-criticism.html
+**OpenAI’s Sora Makes Disinformation Extremely Easy and Extremely Real**\
+`The new A.I. app generated videos of store robberies and home intrusions — even bomb explosions on city streets — that never happened.`\
+https://nytimes.com/2025/10/03/technology/sora-openai-video-disinformation.html
 
-**140,000 N.Y.C. Students Are Homeless. Can the Next Mayor Change That?**\
-`The city’s housing crisis has contributed to an education crisis, with more children than ever living in temporary housing. They face dismal outcomes.`\
-https://nytimes.com/2025/10/03/nyregion/nyc-homeless-students-can-mayor-fix.html
+**Can Your Spouse Put Limits on Knuckle-Cracking?**\
+`A ruling on a dispute over body noises.`\
+https://nytimes.com/interactive/2025/10/03/magazine/knuckle-cracking-hodgman-quiz.html
 
-**My Reporting Led to a Landmark Lawsuit. The Case Took 22 Years.**\
-`A class-action lawsuit, spurred by an investigative series in The Times, came to a close, having helped thousands of mentally ill residents of adult homes.`\
-https://nytimes.com/2025/10/03/nyregion/my-reporting-led-to-a-landmark-lawsuit-the-case-took-22-years.html
+**The New York Times News Quiz, Oct. 3, 2025**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2025/10/03/briefing/shutdown-hegseth-gaza-plan-news-quiz.html
 
