@@ -1,3 +1,7 @@
+**Brewers' righty Brandon Woodruff will not be available for NL Division Series**\
+`Woodruff, a 32-year-old right-hander, is one of the longest-tenured Brewers, having been with the franchise since getting drafted in 2014.`\
+https://nytimes.com/athletic/6687531/2025/10/03/milwaukee-brewers-brandon-woodruff-out/
+
 **Kennedy’s Ties to Ally Leading Vaccine Lawsuits Raise Ethical Concerns**\
 `Aaron Siri is leading legal efforts on policies that dovetail with parts of Health Secretary Robert F. Kennedy Jr.’s government agenda.`\
 https://nytimes.com/2025/10/03/health/kennedy-aaron-siri-vaccines-lawsuits.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6687318/2025/10/03/shedeur-sanders-browns-quarterba
 **North Carolina Governor Signs Crime Bill Passed After Stabbing**\
 `The bill, approved last month by the Republican-dominated legislature in the wake of the brutal killing of a Ukrainian refugee, will tighten bail rules and may restart executions.`\
 https://nytimes.com/2025/10/03/us/north-carolina-crime-bill-stein.html
-
-**How will the Clippers 11-man rotation work? Analyzing assignments and expectations**\
-`The Clippers enter the season with one of the NBA's deepest rotations. Can they finally break out of the West?`\
-https://nytimes.com/athletic/6686255/2025/10/03/kawhi-leonard-clippers-rotation-tyronn-lue-nba/
 
