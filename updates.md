@@ -1,3 +1,7 @@
+**Explosion Causes Large Fire at Chevron Refinery**\
+`An explosion at a Chevron refinery in El Segundo, Calif., produced a giant fireball that lit up the sky on Thursday night. Nearby residents were urged to stay inside as crews battled multiple blazes at the facility.`\
+https://nytimes.com/video/us/100000010436927/chevron-refinery-explosion-fire.html
+
 **Trump Offers Universities a Deal: Follow Demands, Get Special Treatment**\
 `The Trump administration gave nine universities a set of terms to follow for better access to federal funds. At least one said it wanted to sign up, but some students wanted college officials to say no.`\
 https://nytimes.com/video/us/100000010436759/trump-universities-compact-funding.html

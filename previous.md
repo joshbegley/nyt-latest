@@ -1,3 +1,7 @@
+**Explosion Causes Large Fire at Chevron Refinery**\
+`An explosion at a Chevron refinery in El Segundo, Calif., produced a giant fireball that lit up the sky on Thursday night. Nearby residents were urged to stay inside as crews battled multiple blazes at the facility.`\
+https://nytimes.com/video/us/100000010436927/chevron-refinery-explosion-fire.html
+
 **Trump Offers Universities a Deal: Follow Demands, Get Special Treatment**\
 `The Trump administration gave nine universities a set of terms to follow for better access to federal funds. At least one said it wanted to sign up, but some students wanted college officials to say no.`\
 https://nytimes.com/video/us/100000010436759/trump-universities-compact-funding.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/03/nyregion/nyc-homeless-students-can-mayor-fix.html
 **My Reporting Led to a Landmark Lawsuit. The Case Took 22 Years.**\
 `A class-action lawsuit, spurred by an investigative series in The Times, came to a close, having helped thousands of mentally ill residents of adult homes.`\
 https://nytimes.com/2025/10/03/nyregion/my-reporting-led-to-a-landmark-lawsuit-the-case-took-22-years.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/10/03/crosswords/spelling-bee-forum.html
 
