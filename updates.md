@@ -1,3 +1,7 @@
+**Meet the judge deciding Combs’s fate: Arun Subramanian.**\
+`By Ben Sisario`\
+https://nytimes.com/live/2025/10/03/arts/sean-combs-diddy-sentencing/meet-the-judge-deciding-combss-fate-arun-subramanian
+
 **Thomas Tuchel warns big names there are 'no guarantees' on England World Cup places**\
 `Players like Jude Bellingham, Phil Foden and Jack Grealish told they must be at their best to be selected for future squads`\
 https://nytimes.com/athletic/6668945/2025/10/03/thomas-tuchel-england-analysis/
