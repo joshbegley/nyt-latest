@@ -1,3 +1,7 @@
+**Vic Fangio is short on sentimentality — not success — before facing Broncos he once coached**\
+`Fangio coached the Broncos for three seasons. `\
+https://nytimes.com/athletic/6684075/2025/10/03/eagles-broncos-vic-fangio-coach/
+
 **TAFC: Ex-Miss Paraguay petitions Trump over World Cup, FIFA's 15% cut on resale tickets**\
 `Today in TAFC: The petition over visas for the World Cup by a former Miss Universe entrant. Plus: FIFA slap 15% commission on resale tickets`\
 https://nytimes.com/athletic/6686203/2025/10/03/trump-world-cup-miss-paraguay/
