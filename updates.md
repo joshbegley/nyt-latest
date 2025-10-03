@@ -1,3 +1,7 @@
+**Government Shutdown Live Updates: Senate to Return for Votes as Spending Deadlock Reaches 3rd Day**\
+`The Senate was set to vote on advancing bills that need to pass for the government to reopen. President Trump mocked Democrats in social media posts, adding to the partisan conflict.`\
+https://nytimes.com/live/2025/10/03/us/trump-news-government-shutdown
+
 **'Warrior' Mac Jones lifts 49ers again, vindicating Kyle Shanahan and buying Brock Purdy time**\
 `Imagine if Kyle Shanahan had gotten his way and the 49ers had just drafted Mac Jones back in 2021. We're joking (we think).`\
 https://nytimes.com/athletic/6685997/2025/10/03/mac-jones-kyle-shanahan-49ers-rams/
