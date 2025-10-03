@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6685186/2025/10/03/chargers-tuli-tuipulotu-breakout
 `By Christina Morales`\
 https://nytimes.com/live/2025/10/03/us/trump-news-government-shutdown/heres-the-latest
 
-**Government Shutdown Live Updates: Senate to Return For Votes as Spending Deadlock Reaches 3rd Day**\
+**Government Shutdown Live Updates: Senate to Return for Votes as Spending Deadlock Reaches 3rd Day**\
 `The Senate was set to vote on advancing bills that need to pass for the government to reopen. President Trump mocked Democrats in social media posts, adding to the partisan conflict.`\
 https://nytimes.com/live/2025/10/03/us/trump-news-government-shutdown
 
