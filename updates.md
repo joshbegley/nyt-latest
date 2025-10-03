@@ -1,3 +1,7 @@
+**Cubs-Padres Game 3 takeaways: Cubs' defense puts on a show as team advances to NLDS**\
+`A tense ninth inning almost flipped the script, but Chicago held on to beat San Diego and secure its first postseason series win since 2017.`\
+https://nytimes.com/athletic/6684908/2025/10/02/cubs-padres-score-results-game-3-takeaways-mlb-playoffs/
+
 **Nevada Supreme Court denies NFL rehearing in Jon Gruden case**\
 `The ruling could the send case to a public trial instead of the league's arbitration process.`\
 https://nytimes.com/athletic/6685133/2025/10/02/jon-gruden-nfl-nevada-supreme-court-denies-rehearing/

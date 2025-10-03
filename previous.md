@@ -11,7 +11,7 @@ https://nytimes.com/athletic/6684352/2025/10/02/ice-super-bowl-bad-bunny-corey-l
 https://nytimes.com/2025/10/02/world/asia/robert-morris-pastor-sex-abuse.html
 
 **Cubs-Padres Game 3 takeaways: Cubs' defense puts on a show as team advances to NLDS**\
-`A tense ninth inning almost flipped the script, but Chicago was able to close out San Diego with a 3-1 win that sends the Cubs to the NLDS.`\
+`A tense ninth inning almost flipped the script, but Chicago held on to beat San Diego and secure its first postseason series win since 2017.`\
 https://nytimes.com/athletic/6684908/2025/10/02/cubs-padres-score-results-game-3-takeaways-mlb-playoffs/
 
 **With their spirits revived, Tigers make a bid for October redemption**\
