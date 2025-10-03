@@ -1,3 +1,7 @@
+**Trump Sets Sunday Deadline for Hamas to Agree to Cease-fire Plan With Israel**\
+`President Trump said Hamas would be “extinguished” if it did not agree to a cease-fire proposed by the United States.`\
+https://nytimes.com/2025/10/03/us/politics/trump-hamas-israel-cease-fire.html
+
 **Red Light: New season, new faces … maybe. Plus: Our projected Presidents' Trophy winner ͏‌**\
 `It’s four days until the regular season begins, which means you just might be put on waivers shortly.`\
 https://nytimes.com/athletic/6686910/2025/10/03/red-light-presidents-trophy/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/03/movies/five-action-movies-to-stream-now.html
 **One lawyer was glaringly absent from the prosecutors’s table.**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2025/10/03/arts/sean-combs-diddy-sentencing/one-lawyer-was-glaringly-absent-from-the-prosecutorss-table
-
-**Beyond Wall Street**\
-`How the private sector, often overlooked in the shadows of financial giants, is unlocking unprecedented growth and innovation, driving the future of the U.S. economy`\
-https://nytimes.com/paidpost/bny-wealth/beyond-wall-street.html
 

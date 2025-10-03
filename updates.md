@@ -1,3 +1,7 @@
+**Trump Sets Sunday Deadline for Hamas to Agree to Cease-fire Plan With Israel**\
+`President Trump said Hamas would be “extinguished” if it did not agree to a cease-fire proposed by the United States.`\
+https://nytimes.com/2025/10/03/us/politics/trump-hamas-israel-cease-fire.html
+
 **Red Light: New season, new faces … maybe. Plus: Our projected Presidents' Trophy winner ͏‌**\
 `It’s four days until the regular season begins, which means you just might be put on waivers shortly.`\
 https://nytimes.com/athletic/6686910/2025/10/03/red-light-presidents-trophy/
