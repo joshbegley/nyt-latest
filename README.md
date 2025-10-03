@@ -1,3 +1,23 @@
+**Senators Again Block Plans to Reopen Government as Shutdown Drags On**\
+`The federal shutdown was set to stretch through the weekend after Republicans and Democrats failed to win test votes on their competing plans to extend federal funding.`\
+https://nytimes.com/2025/10/03/us/politics/senate-government-shutdown.html
+
+**How to watch Cubs at Brewers: Game 1 Time, TV, streaming**\
+`Find out how to watch the Chicago Cubs play the Milwaukee Brewers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6687476/2025/10/03/cubs-vs-brewers-stream-how-to-watch-oct-4/
+
+**Groups File Suit Over Trump’s $100,000 H-1B Visa Fee**\
+`The suit argues that the new fee would harm schools, hospitals, churches and small businesses across the country.`\
+https://nytimes.com/2025/10/03/us/politics/h-1b-visa-fee-lawsuit.html
+
+**Fired Prosecutor Assails Justice Dept.’s Pursuit of Trump’s Enemies**\
+`The dismissal showed the extent of the fallout from the charges against James B. Comey, damaging a crucial unit to the U.S. attorney’s office in the Eastern District of Virginia.`\
+https://nytimes.com/2025/10/03/us/politics/trump-michael-benary-letter-comey.html
+
+**Savinho signs Manchester City contract extension**\
+`The 21-year-old played 48 games for City last season after signing in July 2024 from French side Troyes.`\
+https://nytimes.com/athletic/6664793/2025/10/03/savinho-manchester-city-contract-extension/
+
 **Why hasn't Shedeur Sanders moved up Browns' depth chart? The non-answers speak volumes**\
 `While Dillon Gabriel received a promotion as Cleveland's starter, Sanders remains No. 3 in the team's quarterback pecking order. `\
 https://nytimes.com/athletic/6687318/2025/10/03/shedeur-sanders-browns-quarterback-depth-chart-reasoning/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/10/03/style/taylor-swift-showgirl-charli-xcx-actually-r
 **In the Arctic, the U.S. Shifts Focus From Climate Research to Security**\
 `The Trump administration is emphasizing defense concerns instead of climate research in the rapidly warming Arctic region.`\
 https://nytimes.com/2025/10/03/climate/arctic-research-security.html
-
-**Canada and the U.S. to Hold Trade and Security Talks**\
-`Prime Minister Mark Carney of Canada will travel to Washington next week to meet with President Trump to try to ease some of the tariffs imposed by the United States.`\
-https://nytimes.com/2025/10/03/world/canada/trump-carney-meeting-tariffs-canada.html
-
-**Statue of Trump and Epstein Returns to National Mall**\
-`A statue depicting President Trump and Jeffrey Epstein was reinstalled near the Capitol after it was briefly removed by the National Park Service last week.`\
-https://nytimes.com/video/us/100000010438176/trump-epstein-washington-statue.html
-
-**Margaret Markey, Who Championed Victims of Sexual Abuse, Dies at 83**\
-`As a New York State assemblywoman, she began a campaign that finally bore fruit in 2019, when the Legislature extended the deadlines for victims to file claims.`\
-https://nytimes.com/2025/10/03/nyregion/margaret-markey-dead.html
-
-**French Photojournalist Killed in Drone Attack in Ukraine**\
-`Antoni Lallican, a Paris-based photographer, is the first working journalist to be killed by a remotely piloted drone during the war, according to press associations.`\
-https://nytimes.com/2025/10/03/world/europe/ukraine-drone-attack-journalist-killed.html
-
-**Are You Playing the Technology or Is the Technology Playing You?**\
-`Are you playing the technology or is the technology playing you? In a recent episode of “The Ezra Klein Show,” the musician Brian Eno and the Opinion columnist Ezra Klein discuss how generative A.I. changes our relationship with agency.`\
-https://nytimes.com/video/opinion/100000010416836/are-you-playing-the-technology-or-is-the-technology-playing-you.html
 
