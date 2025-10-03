@@ -1,3 +1,7 @@
+**The White House Can’t Decide: Is the Shutdown Bad or Good?**\
+`Is it “fun” and an “unprecedented opportunity,” or is it “madness” that must end? Depends who’s talking.`\
+https://nytimes.com/2025/10/03/us/politics/white-house-trump-shutdown.html
+
 **Investor Convicted of Stealing Homes Is Jailed**\
 `Sanford Solny, a real estate investor charged with stealing properties in New York, was jailed this week for violating his probation.`\
 https://nytimes.com/2025/10/03/realestate/sanford-solny-deed-thief-jailed.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/03/briefing/hamas-said-it-agreed-to-release-hostages
 **Tarleton State puts coach Billy Gillispie on temporary leave after anonymous complaint**\
 `The school said it initiated an employee conduct review after receiving the complaint.`\
 https://nytimes.com/athletic/6687810/2025/10/03/tarleton-state-basketball-billy-gillispie-leave-complaint/
-
-**Tajh Ariza, 5-star recruit and son of NBA veteran, commits to Oregon**\
-`Five-star forward Tajh Ariza, the son of 18-year NBA veteran Trevor Ariza, verbally committed to Oregon on Friday.`\
-https://nytimes.com/athletic/6687269/2025/10/03/tajh-ariza-commits-oregon-basketball-trevor/
 
