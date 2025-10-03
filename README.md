@@ -1,3 +1,7 @@
+**5 Takeaways From Taylor Swift’s ‘Showgirl’ Movie**\
+`The pop star’s new album arrived with a limited-run film in which she debuts a video for “The Fate of Ophelia” and chats about the LP’s songs.`\
+https://nytimes.com/2025/10/03/arts/music/taylor-swift-showgirl-release-party-movie.html
+
 **Phillies-Dodgers NLDS: What we're watching in the series, starting with Cristopher Sánchez**\
 `Of the 32 starts Sánchez made in 2025, his changeup usage was lowest in the two games he pitched against Los Angeles.`\
 https://nytimes.com/athletic/6687936/2025/10/03/phillies-dodgers-nlds-matchup-cristopher-sanchez/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6688014/2025/10/03/yankees-vs-blue-jays-stream-how-
 **Oktoberfest’s New Drip**\
 `At Bavaria’s annual celebration of autumn and beer, new generations of partyers and new arrivals to Germany are adding their own twists to traditional fashion.`\
 https://nytimes.com/card/2025/10/03/world/europe/oktoberfests-new-drip
-
-**The White House Can’t Decide: Is the Shutdown Bad or Good?**\
-`Is it “fun” and an “unprecedented opportunity,” or is it “madness” that must end? Depends who’s talking.`\
-https://nytimes.com/2025/10/03/us/politics/white-house-trump-shutdown.html
 
