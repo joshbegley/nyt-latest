@@ -1,3 +1,7 @@
+**Manchester Community Reels From Synagogue Attack**\
+`Residents were left in shock after a driver rammed a vehicle into people and stabbed others Thursday at a synagogue in Manchester. Three people died, including the attacker. The police on Friday said one victim died from police gunfire.`\
+https://nytimes.com/video/world/europe/100000010436976/manchester-community-reels-from-synagogue-attack.html
+
 **Government Shutdown Live Updates: Senate to Return for Votes as Spending Deadlock Reaches 3rd Day**\
 `The Senate was set to vote on advancing bills that need to pass for the government to reopen. President Trump mocked Democrats in social media posts, adding to the partisan conflict.`\
 https://nytimes.com/live/2025/10/03/us/trump-news-government-shutdown

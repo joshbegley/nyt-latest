@@ -1,3 +1,7 @@
+**Manchester Community Reels From Synagogue Attack**\
+`Residents were left in shock after a driver rammed a vehicle into people and stabbed others Thursday at a synagogue in Manchester. Three people died, including the attacker. The police on Friday said one victim died from police gunfire.`\
+https://nytimes.com/video/world/europe/100000010436976/manchester-community-reels-from-synagogue-attack.html
+
 **'Warrior' Mac Jones lifts 49ers again, vindicating Kyle Shanahan and buying Brock Purdy time**\
 `Imagine if Kyle Shanahan had gotten his way and the 49ers had just drafted Mac Jones back in 2021. We're joking (we think).`\
 https://nytimes.com/athletic/6685997/2025/10/03/mac-jones-kyle-shanahan-49ers-rams/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6684868/2025/10/03/oilers-roster-matt-savoie-ike-ho
 **Can Sixers survive without Embiid and George if Quentin Grimes, Trendon Watford get up to speed?**\
 `With Joel Embiid and Paul George still sidelined, Philly needs to see what its roster can look like with Grimes and Watford in the rotation.`\
 https://nytimes.com/athletic/6685407/2025/10/03/sixers-knicks-preseason-grimes-watford/
-
-**Broncos' Courtland Sutton has become a red zone monster. Can he crack Eagles' defense?**\
-`The 16 touchdown catches for Sutton from the 20-yard line and in since 2023 are the second-most among NFL wide receivers in that span.`\
-https://nytimes.com/athletic/6684787/2025/10/03/broncos-courtland-sutton-red-zone-eagles/
 
