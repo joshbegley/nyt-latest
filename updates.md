@@ -1,3 +1,7 @@
+**Brewers' righty Brandon Woodruff will not be available for NL Division Series**\
+`Woodruff, a 32-year-old right-hander, is one of the longest-tenured Brewers, having been with the franchise since getting drafted in 2014.`\
+https://nytimes.com/athletic/6687531/2025/10/03/milwaukee-brewers-brandon-woodruff-out/
+
 **Kennedy’s Ties to Ally Leading Vaccine Lawsuits Raise Ethical Concerns**\
 `Aaron Siri is leading legal efforts on policies that dovetail with parts of Health Secretary Robert F. Kennedy Jr.’s government agenda.`\
 https://nytimes.com/2025/10/03/health/kennedy-aaron-siri-vaccines-lawsuits.html
