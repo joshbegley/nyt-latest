@@ -1,3 +1,7 @@
+**Putin Says He Doubts U.S. Will Send Tomahawk Missiles to Ukraine**\
+`The Russian president warned against fulfilling a Ukrainian request for more powerful long-range missiles, while also suggesting President Trump would decide against the idea.`\
+https://nytimes.com/2025/10/03/world/europe/putin-trump-ukraine-tomahawk-missiles.html
+
 **Her Stocks Were Quietly Stolen From Her I.R.A.**\
 `A retiree logged into his wife’s Roth I.R.A. to make a trade, and stumbled upon a crime scene.`\
 https://nytimes.com/2025/10/03/your-money/ira-vanguard-merrill-acats-fraud.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6686758/2025/10/03/nfl-college-football-betting-pic
 **Pistons hope to keep turning good defense into 'explosive' offense**\
 `Detroit hopes to use its athleticism to create turnovers and lead to easy transition baskets this season.`\
 https://nytimes.com/athletic/6686747/2025/10/03/pistons-jb-bickerstaff-defense-offense/
-
-**The Fuel Behind Trump’s $100,000 Visa Fee: Lost U.S. Tech Jobs**\
-`The president’s decision to charge employers $100,000 per visa for skilled workers seemed to come out of nowhere. But the grievance behind it has been simmering.`\
-https://nytimes.com/2025/10/03/business/h1b-visas-tech-jobs-layoffs.html
 
