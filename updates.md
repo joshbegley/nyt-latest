@@ -1,3 +1,7 @@
+**Israel, Palestine and the Peace Option**\
+`Readers, including a former Israeli diplomat, respond to a guest essay by the Israeli politician Benny Gantz. Also: Care for young and old; trucks and trains.`\
+https://nytimes.com/2025/10/03/opinion/israel-palestine-netanyahu.html
+
 **7 Americans Tell Us Whom They Blame for the Shutdown**\
 `In the first few days of the government shutdown, many voters expressed frustration over the inability of Republicans and Democrats to compromise.`\
 https://nytimes.com/2025/10/03/us/government-shutdown-democrats-republicans-blame.html

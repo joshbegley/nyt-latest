@@ -1,3 +1,7 @@
+**Israel, Palestine and the Peace Option**\
+`Readers, including a former Israeli diplomat, respond to a guest essay by the Israeli politician Benny Gantz. Also: Care for young and old; trucks and trains.`\
+https://nytimes.com/2025/10/03/opinion/israel-palestine-netanyahu.html
+
 **7 Americans Tell Us Whom They Blame for the Shutdown**\
 `In the first few days of the government shutdown, many voters expressed frustration over the inability of Republicans and Democrats to compromise.`\
 https://nytimes.com/2025/10/03/us/government-shutdown-democrats-republicans-blame.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/10/03/upshot/flashback.html
 **White House Suspends $2.1 Billion in Funding for Chicago Transit Projects**\
 `The money had been designated to modernize the city’s “L” trains. Illinois officials condemned the move, saying it was motivated by political revenge.`\
 https://nytimes.com/2025/10/03/us/trump-chicago-transit-funding.html
-
-**This Lemony, Garlicky Chicken Is the Ultimate Fall Dinner**\
-`Paired with a persimmon salad and followed by a plum-cardamom upside-down cake, this vibrant David Tanis menu is one for the ages.`\
-https://nytimes.com/2025/10/03/dining/lemon-garlic-chicken-fall-dinner-recipe.html
 
