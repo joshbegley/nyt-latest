@@ -1,10 +1,18 @@
+**Sean Combs Begged Judge for Mercy Before Sentencing**\
+`“My domestic violence will always be a heavy burden that I will have to forever carry,” Mr. Combs said in a 12-minute presentation.`\
+https://nytimes.com/2025/10/03/arts/music/sean-combs-diddy-sentencing-hearing.html
+
+**Sabres part ways with director of player development Adam Mair after DWI charges**\
+`Mair was arrested in September for allegedly driving while intoxicated with his children in the car.`\
+https://nytimes.com/athletic/6687526/2025/10/03/sabres-adam-mair-dwi-charges/
+
 **Supreme Court Lets Trump Revoke Deportation Protections for Venezuelans**\
 `The Trump administration has tried to end deportation protections for more than 300,000 Venezuelan immigrants.`\
 https://nytimes.com/2025/10/03/us/politics/supreme-court-deportation-protections-venezuelans.html
 
 **Nutrition Program for Mothers and Infants May Run Out of Money Within Weeks**\
 `Nearly 41 percent of U.S.-born infants participate in the Special Supplemental Nutrition Program for Women, Infants and Children, which may not have enough funding for an extended government shutdown.`\
-https://nytimes.com/2025/10/03/us/politics/nutrition-program-for-mothers-and-infants-may-run-out-of-money-within-weeks.html
+https://nytimes.com/2025/10/03/us/politics/wic-nutrition-program-shutdown.html
 
 **49ers minutia minute: Mac Jones went bananas as offense ran up huge snap count**\
 `McCaffrey’s 76 snaps were the second most of his career, surpassed only by an 83-snap game in 2018 when he was with the Carolina Panthers.`\
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6687401/2025/10/03/jets-lawsuit-retaliation-sexual-
 **Ravens rule Lamar Jackson out vs. Texans with hamstring injury**\
 `This will be the first time Jackson misses a game due to injury since December 2022. `\
 https://nytimes.com/athletic/6685763/2025/10/03/ravens-lamar-jackson-out-injury-texans/
-
-**If We’re in an Armed Conflict, Americans Deserve to Know More About It**\
-`From what little we do know about the airstrikes in the Caribbean, the operation doesn’t make much sense.`\
-https://nytimes.com/2025/10/03/opinion/venezuela-armed-conflict-boats-drones.html
-
-**Two games, 336 penalty minutes: Is the era of fight-filled NHL preseasons almost over?**\
-`A Lady Byng Award showcase of gentlemanly play, NHL preseasons are not. But a shortened schedule figures to lead to less brutality.`\
-https://nytimes.com/athletic/6687285/2025/10/03/nhl-preseason-fights-penalties-lightning-panthers/
 

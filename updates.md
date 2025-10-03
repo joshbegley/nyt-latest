@@ -1,3 +1,15 @@
+**Sean Combs Begged Judge for Mercy Before Sentencing**\
+`“My domestic violence will always be a heavy burden that I will have to forever carry,” Mr. Combs said in a 12-minute presentation.`\
+https://nytimes.com/2025/10/03/arts/music/sean-combs-diddy-sentencing-hearing.html
+
+**Sabres part ways with director of player development Adam Mair after DWI charges**\
+`Mair was arrested in September for allegedly driving while intoxicated with his children in the car.`\
+https://nytimes.com/athletic/6687526/2025/10/03/sabres-adam-mair-dwi-charges/
+
+**Nutrition Program for Mothers and Infants May Run Out of Money Within Weeks**\
+`Nearly 41 percent of U.S.-born infants participate in the Special Supplemental Nutrition Program for Women, Infants and Children, which may not have enough funding for an extended government shutdown.`\
+https://nytimes.com/2025/10/03/us/politics/wic-nutrition-program-shutdown.html
+
 **Supreme Court Lets Trump Revoke Deportation Protections for Venezuelans**\
 `The Trump administration has tried to end deportation protections for more than 300,000 Venezuelan immigrants.`\
 https://nytimes.com/2025/10/03/us/politics/supreme-court-deportation-protections-venezuelans.html
