@@ -1,3 +1,19 @@
+**Hamas Said It Agreed to Release Hostages in Gaza**\
+`Also, the U.S. attacked a fourth boat in the Caribbean Sea. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/10/03/briefing/hamas-said-it-agreed-to-release-hostages-in-gaza.html
+
+**Tarleton State puts coach Billy Gillispie on temporary leave after anonymous complaint**\
+`The school said it initiated an employee conduct review after receiving the complaint.`\
+https://nytimes.com/athletic/6687810/2025/10/03/tarleton-state-basketball-billy-gillispie-leave-complaint/
+
+**Tajh Ariza, 5-star recruit and son of NBA veteran, commits to Oregon**\
+`Five-star forward Tajh Ariza, the son of 18-year NBA veteran Trevor Ariza, verbally committed to Oregon on Friday.`\
+https://nytimes.com/athletic/6687269/2025/10/03/tajh-ariza-commits-oregon-basketball-trevor/
+
+**The Briefing: Wrexham 1 Birmingham 1 – No Hollywood visitors, but what is the aim for these clubs this season?**\
+`Last season's League One big-hitters scrapped to a 1-1 draw in their first meeting in the Championship this season`\
+https://nytimes.com/athletic/6680468/2025/10/03/wrexham-1-birmingham-1-analysis/
+
 **Billionaire Trump Ally Emerges as Key Broker in Harvard Fight**\
 `Stephen A. Schwarzman, the leader of the Blackstone Group, one of the world’s largest investment firms, has taken a direct role in Harvard’s negotiations with the White House.`\
 https://nytimes.com/2025/10/03/us/politics/schwarzman-harvard-trump.html
