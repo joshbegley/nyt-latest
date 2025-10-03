@@ -1,5 +1,9 @@
 **2 Victims Named After Manchester Synagogue Terrorist Attack**\
 `Adrian Daulby, 53, and Melvin Cravitz, 66, were named as the two people killed Thursday outside the Heaton Park Congregation synagogue in northwestern England.`\
+https://nytimes.com/2025/10/03/world/europe/uk-manchester-synagogue-attack.html
+
+**2 Victims Named After Manchester Synagogue Terrorist Attack**\
+`Adrian Daulby, 53, and Melvin Cravitz, 66, were named as the two people killed Thursday outside the Heaton Park Congregation synagogue in northwestern England.`\
 https://nytimes.com/2025/10/03/world/europe/2-victims-named-after-manchester-synagogue-terrorist-attack.html
 
 **How Marco Bizot channelled his inner Nigel Spink to help Aston Villa beat Feyenoord**\
