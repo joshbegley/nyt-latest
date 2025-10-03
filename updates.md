@@ -1,3 +1,7 @@
+**How Marco Bizot channelled his inner Nigel Spink to help Aston Villa beat Feyenoord**\
+`Just as in the 1982 European Cup final, the club's second-choice goalkeeper ended up playing a crucial role in a win in Rotterdam`\
+https://nytimes.com/athletic/6684738/2025/10/03/aston-villa-marco-bizot-rotterdam-spink/
+
 **World Cup ticket resale madness begins as FIFA takes two 15% fees on each sale**\
 `FIFA looks set to profit heavily from the World Cup resale ticket market`\
 https://nytimes.com/athletic/6685993/2025/10/03/world-cup-ticket-resale-fifa/
