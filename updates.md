@@ -1,3 +1,11 @@
+**Nevada Supreme Court denies NFL rehearing in Jon Gruden case**\
+`The ruling could the send case to a public trial instead of the league's arbitration process.`\
+https://nytimes.com/athletic/6685133/2025/10/02/jon-gruden-nfl-nevada-supreme-court-denies-rehearing/
+
+**ICE will be at Super Bowl where Bad Bunny is halftime show headliner, Trump adviser says**\
+`Corey Lewandowski, a Trump administration official, says ICE will be at Super Bowl LX, where Bad Bunny is the halftime show's headliner.`\
+https://nytimes.com/athletic/6684352/2025/10/02/ice-super-bowl-bad-bunny-corey-lewandowski/
+
 **Texas Megachurch Pastor Pleads Guilty to Child Sex Abuse**\
 `Robert Morris, the founder of Gateway Church, which has one of the nation’s largest congregations, admitted to sexually abusing a child in the 1980s.`\
 https://nytimes.com/2025/10/02/world/asia/robert-morris-pastor-sex-abuse.html
