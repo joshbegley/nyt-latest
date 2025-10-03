@@ -1,3 +1,15 @@
+**Flights Halted at Munich Airport After Drone Sightings**\
+`The airport in Germany was the latest in Europe to shut because of drone sightings that officials have blamed on Russia, which has denied the accusations.`\
+https://nytimes.com/2025/10/02/world/europe/munich-airport-drones.html
+
+**Stops on a World Tour**\
+`Rebecca Goldstein and Rafael Musa open our solving weekend.`\
+https://nytimes.com/2025/10/02/crosswords/daily-puzzle-2025-10-03.html
+
+**For Stephen Vogt, a complicated Guardians season ends with 'a lot more gray' hairs**\
+`The 2025 campaign tested the second-year manager in ways he couldn't have anticipated.`\
+https://nytimes.com/athletic/6685438/2025/10/02/cleveland-guardians-stephen-vogt-season/
+
 **Cubs-Padres Game 3 takeaways: Cubs' defense puts on a show as team advances to NLDS**\
 `A tense ninth inning almost flipped the script, but Chicago held on to beat San Diego and secure its first postseason series win since 2017.`\
 https://nytimes.com/athletic/6684908/2025/10/02/cubs-padres-score-results-game-3-takeaways-mlb-playoffs/

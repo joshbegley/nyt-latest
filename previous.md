@@ -1,3 +1,15 @@
+**Flights Halted at Munich Airport After Drone Sightings**\
+`The airport in Germany was the latest in Europe to shut because of drone sightings that officials have blamed on Russia, which has denied the accusations.`\
+https://nytimes.com/2025/10/02/world/europe/munich-airport-drones.html
+
+**Stops on a World Tour**\
+`Rebecca Goldstein and Rafael Musa open our solving weekend.`\
+https://nytimes.com/2025/10/02/crosswords/daily-puzzle-2025-10-03.html
+
+**For Stephen Vogt, a complicated Guardians season ends with 'a lot more gray' hairs**\
+`The 2025 campaign tested the second-year manager in ways he couldn't have anticipated.`\
+https://nytimes.com/athletic/6685438/2025/10/02/cleveland-guardians-stephen-vogt-season/
+
 **Nevada Supreme Court denies NFL rehearing in Jon Gruden case**\
 `The ruling could the send case to a public trial instead of the league's arbitration process.`\
 https://nytimes.com/athletic/6685133/2025/10/02/jon-gruden-nfl-nevada-supreme-court-denies-rehearing/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6685177/2025/10/02/us-france-score-result-u20-world
 **Deepfakes, Insults and Job Cuts: A Government Shutdown Like No Other**\
 `Shutdowns are always unpleasant affairs. But President Trump has used his power in aggressive and strikingly personal ways.`\
 https://nytimes.com/2025/10/02/us/politics/shutdown-trump-clinton-gingrich.html
-
-**Paramount Nears a Deal to Buy Bari Weiss’s Free Press**\
-`Ms. Weiss, a co-founder of the site, would become editor in chief of CBS News, people briefed on the talks said.`\
-https://nytimes.com/2025/10/02/business/media/paramount-free-press-bari-weiss-deal.html
-
-**Warriors' Jonathan Kuminga acknowledges unclear long-term future despite new contract**\
-`"All that matters is we got it done, and I'm excited to be here," Kuminga said of his two-year, $48.5 million contract.`\
-https://nytimes.com/athletic/6684981/2025/10/02/jonathan-kuminga-warriors-contract-future/
-
-**Caitlin Clark will not play in Unrivaled this winter: Source**\
-`The league has announced all but two of the 48 players for the upcoming season.`\
-https://nytimes.com/athletic/6684777/2025/10/02/caitlin-clark-unrivaled-not-joining/
 
