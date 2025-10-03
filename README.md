@@ -1,3 +1,27 @@
+**49ers-Rams: San Francisco, Mac Jones hold off Los Angeles in overtime**\
+`The Rams failed to score on their final possession when Kyren Williams got stuffed on fourth-and-1 to seal the 49ers' win.`\
+https://nytimes.com/athletic/6685394/2025/10/03/49ers-rams-score-result-takeaways-thursday-night-football/
+
+**Archie Gray is still waiting for his breakout moment at Spurs**\
+`The 19-year-old's talent is clear for all to see but working out the best way to harness it is proving to be an awkward challenge`\
+https://nytimes.com/athletic/6682944/2025/10/03/archie-gray-tottenham-midfield-leeds/
+
+**Fantasy Premier League: The best captaincy options for Gameweek 7**\
+`There are multiple captaincy choices to consider for Gameweek 7. Here's how to marry consistency, fixture and ceiling in your decision`\
+https://nytimes.com/athletic/6680304/2025/10/03/fantasy-premier-league-gw7-captain/
+
+**Michael Keane. Finisher**\
+`The 32-year-old centre-half has revived under David Moyes this season and is playing a key role - at both ends of the pitch`\
+https://nytimes.com/athletic/6682842/2025/10/03/michael-keane-everton-finisher-moyes/
+
+**Could Tommy Watson capitalise on Kaoru Mitoma's slow start to the season?**\
+`It would be foolish to read too much into Japan winger's sluggish form but newcomer is edging towards a bigger role in Brighton's plans`\
+https://nytimes.com/athletic/6657264/2025/10/03/watson-mitoma-brighton/
+
+**Why Hollywood actors are investing in SailGP – 'Ryan is a marketing genius'**\
+`A-list actors and famous sports stars, such as Kylian Mbappe, have invested in the international sailing championship SailGP`\
+https://nytimes.com/athletic/6682969/2025/10/03/sailgp-investment-ryan-reynolds-anne-hathaway/
+
 **'It's fantastic we’re criticised. It means people care about what we're doing' - England's Charlie Dean**\
 `The England off-spinner talks captaincy, life under Charlotte Edwards and Nat Sciver-Brunt, and the team's World Cup prospects in India `\
 https://nytimes.com/athletic/6658047/2025/10/03/england-charlie-dean-odi-world-cup-exclusive/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6685632/2025/10/03/cubs-game-3-jameson-taillon-win/
 **Long-throw tactics: How Premier League teams profit from back-post runs and second balls**\
 `The tactic is on the rise, but it's not as simple as just launching the ball into the penalty box`\
 https://nytimes.com/athletic/6676061/2025/10/03/premier-league-long-throw-tactics/
-
-**The Prospects: Olabade Aluko, Leicester City**\
-`The teenage right-back has already made a first-team debut and showcased his attacking potential with bursts up the flank in the under-21s`\
-https://nytimes.com/athletic/6676337/2025/10/03/olabade-aluko-leicester-city-prospects/
-
-**Lamine Yamal and Vicky Lopez, a Barcelona friendship**\
-`The two young stars of Barcelona's men's and women's teams have developed a bond having first met at a youth tournament years ago`\
-https://nytimes.com/athletic/6679451/2025/10/03/barcelona-yamal-lopez-friendship/
-
-**‘Uncle Rigobert and Alex had success in their careers but I want to overtake them’**\
-`The 6ft 5in forward says he had two left feet as a footballer — unlike his uncle and cousin — so took up rugby league. He's not looked back`\
-https://nytimes.com/athletic/6662087/2025/10/03/junior-nsemba-wigan-rigobert-song-bhm/
-
-**Eberechi Eze, as told by his former Arsenal youth team-mates**\
-`Eze's willingness to try things has been refreshing since he returned to north London. It’s familiar to those who have played with him`\
-https://nytimes.com/athletic/6675970/2025/10/03/eberechi-arsenal-academy-youth/
-
-**Chelsea have started playing music after the team scores – and some fans aren't happy**\
-`An online petition to stop the club from playing music after Chelsea score a goal at Stamford Bridge has garnered over 1,500 signatures`\
-https://nytimes.com/athletic/6683751/2025/10/03/chelsea-goal-music-fans/
-
-**A.I. Is Driving a Stock Market Rally in China, Too**\
-`Surging interest in artificial intelligence is generating huge gains for Chinese tech stocks like Alibaba, which has more than doubled this year.`\
-https://nytimes.com/2025/10/03/business/china-tech-stocks-artificial-intelligence.html
 
