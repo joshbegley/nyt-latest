@@ -1,3 +1,7 @@
+**Yankees-Red Sox Game 3 takeaways: Cam Schlittler shines as Yanks advance to face Blue Jays**\
+`In the biggest start of his life, Schlittler delivered a masterful performance, striking out 12 in Game 3 to lead New York into the ALDS.`\
+https://nytimes.com/athletic/6685535/2025/10/02/yankees-red-sox-score-results-game-3-takeaways-mlb-playoffs/
+
 **MLB Division Series matchups are set. Here’s your team’s path to the World Series**\
 `The Mariners as the '96 Yankees? The Dodgers as the '93 Jays? The Brewers as the '02 Angels? Using historical comps to find a world champion`\
 https://nytimes.com/athletic/6684187/2025/10/02/mlb-playoffs-bracket-matchups-2025-division-series/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/02/world/asia/robert-morris-pastor-sex-abuse.html
 **Cubs-Padres Game 3 takeaways: Cubs' defense puts on a show as team advances to NLDS**\
 `A tense ninth inning almost flipped the script, but Chicago held on to beat San Diego and secure its first postseason series win since 2017.`\
 https://nytimes.com/athletic/6684908/2025/10/02/cubs-padres-score-results-game-3-takeaways-mlb-playoffs/
-
-**With their spirits revived, Tigers make a bid for October redemption**\
-`Wenceel Pérez and A.J. Hinch reversed their scorn, and the Tigers finally got the hits they needed to beat the Guardians. `\
-https://nytimes.com/athletic/6685185/2025/10/02/detroit-tigers-october-redemption-wild-card/
 
