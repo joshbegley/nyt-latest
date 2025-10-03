@@ -1,3 +1,7 @@
+**“Do you want to be treated, or do you want to be cured?"**\
+`A young mother. An ‘inoperable’ brain condition. A mission-driven neurosurgeon. And the patient-focused hospital system that saved her life.`\
+https://nytimes.com/paidpost/mass-general-brigham/do-you-want-to-be-treated-or-do-you-want-to-be-cured.html
+
 **Hayley Williams Tackles the South’s Racist History**\
 `Hayley Williams revealed to “Popcast” which country musician she’s singing about on her new album’s title track — and why she felt the need to write plainly about racial issues in the South.`\
 https://nytimes.com/video/podcasts/100000010436245/hayley-williams-tackles-the-souths-racist-history.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/03/your-money/cash-advance-apps-workers-expenses.htm
 **The convictions stem from a 1910 anti-prostitution law.**\
 `By Julia Jacobs`\
 https://nytimes.com/live/2025/10/03/arts/sean-combs-diddy-sentencing/the-convictions-stem-from-a-1910-anti-prostitution-law
-
-**Live Updates: Sean Combs Faces Sentencing in Prostitution Case**\
-`The hip-hop mogul is expected to be sentenced Friday on two counts of transporting people across state lines for prostitution. He was acquitted of sex-trafficking two of his girlfriends.`\
-https://nytimes.com/live/2025/10/03/arts/sean-combs-diddy-sentencing
 

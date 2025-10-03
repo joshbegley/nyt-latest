@@ -1,3 +1,19 @@
+**Thomas Tuchel warns big names there are 'no guarantees' on England World Cup places**\
+`Players like Jude Bellingham, Phil Foden and Jack Grealish told they must be at their best to be selected for future squads`\
+https://nytimes.com/athletic/6668945/2025/10/03/thomas-tuchel-england-analysis/
+
+**Arsenal open contract talks with Timber**\
+`Timber's existing deal runs until June 2028 and the 24-year-old has been one of Arsenal's most consistent players this season.`\
+https://nytimes.com/athletic/6686690/2025/10/03/jurrien-timber-arsenal-contract-arteta/
+
+**Finnish Court Dismisses Case Against Crew Accused of Cutting Undersea Cables**\
+`A judge ruled that Finland did not have jurisdiction to prosecute a case against a ship believed to be a part of Russia’s “shadow fleet.”`\
+https://nytimes.com/2025/10/03/world/europe/finland-court-baltic-sea-undersea-cables-sabotage.html
+
+**Fantasy trends and hidden gems: Spotting NHL schedule advantages in 2025**\
+`Shayna Goldman breaks down the NHL schedule for the next three months to aid late-round draft decisions and early-season roster moves.`\
+https://nytimes.com/athletic/6685608/2025/10/03/fantasy-hockey-trends-nhl-schedule-advantages/
+
 **“Do you want to be treated, or do you want to be cured?"**\
 `A young mother. An ‘inoperable’ brain condition. A mission-driven neurosurgeon. And the patient-focused hospital system that saved her life.`\
 https://nytimes.com/paidpost/mass-general-brigham/do-you-want-to-be-treated-or-do-you-want-to-be-cured.html
@@ -21,20 +37,4 @@ https://nytimes.com/video/world/europe/100000010437014/sarah-mullally-first-woma
 **Reviewing Prime Video's 'Faceoff: Inside the NHL' season 2: Special moments, missed chances**\
 `Here is how our staff assessed each episode of Prime Video's second season of “Faceoff: Inside the NHL.”`\
 https://nytimes.com/athletic/6680427/2025/10/03/nhl-amazon-prime-series-faceoff-season-2-review/
-
-**Why Wilson Bjorck could be a late-round 'steal' for the Canucks**\
-`Bjorck, Vancouver's 2025 fifth-round pick, is playing at Colorado College and expected to be part of Sweden's World Junior team.`\
-https://nytimes.com/athletic/6651957/2025/10/03/canucks-prospect-wilson-bjorck-colorado-college/
-
-**Enter the NHL prediction contest that’s so easy it’s almost impossible**\
-`It's our annual reminder that an NHL season is basically impossible to project.`\
-https://nytimes.com/athletic/6683059/2025/10/03/nhl-prediction-contest-2025-26-season/
-
-**Some Workers Are Turning to Pay-Advance Apps for Basic Expenses**\
-`Rising use “is not a signal of satisfaction,” an author of a new report says. Rather, heavy users of the apps are under “financial strain.”`\
-https://nytimes.com/2025/10/03/your-money/cash-advance-apps-workers-expenses.html
-
-**The convictions stem from a 1910 anti-prostitution law.**\
-`By Julia Jacobs`\
-https://nytimes.com/live/2025/10/03/arts/sean-combs-diddy-sentencing/the-convictions-stem-from-a-1910-anti-prostitution-law
 

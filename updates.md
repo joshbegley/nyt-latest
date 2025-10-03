@@ -1,3 +1,7 @@
+**“Do you want to be treated, or do you want to be cured?"**\
+`A young mother. An ‘inoperable’ brain condition. A mission-driven neurosurgeon. And the patient-focused hospital system that saved her life.`\
+https://nytimes.com/paidpost/mass-general-brigham/do-you-want-to-be-treated-or-do-you-want-to-be-cured.html
+
 **Hayley Williams Tackles the South’s Racist History**\
 `Hayley Williams revealed to “Popcast” which country musician she’s singing about on her new album’s title track — and why she felt the need to write plainly about racial issues in the South.`\
 https://nytimes.com/video/podcasts/100000010436245/hayley-williams-tackles-the-souths-racist-history.html
