@@ -1,3 +1,19 @@
+**Treasury Plans to Mint $1 Commemorative Trump Coin**\
+`The coin, bearing President Trump’s face, would honor the 250th birthday of the United States.`\
+https://nytimes.com/2025/10/03/business/trump-commemorative-coin-treasury.html
+
+**How to watch Dodgers at Phillies: Game 1 Time, TV, streaming**\
+`Find out how to watch the Los Angeles Dodgers play the Philadelphia Phillies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6688016/2025/10/03/dodgers-vs-phillies-stream-how-to-watch-oct-4/
+
+**How to watch Yankees at Blue Jays: Game 1 Time, TV, streaming**\
+`Find out how to watch the New York Yankees play the Toronto Blue Jays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6688014/2025/10/03/yankees-vs-blue-jays-stream-how-to-watch-oct-4/
+
+**Oktoberfest’s New Drip**\
+`At Bavaria’s annual celebration of autumn and beer, new generations of partyers and new arrivals to Germany are adding their own twists to traditional fashion.`\
+https://nytimes.com/card/2025/10/03/world/europe/oktoberfests-new-drip
+
 **The White House Can’t Decide: Is the Shutdown Bad or Good?**\
 `Is it “fun” and an “unprecedented opportunity,” or is it “madness” that must end? Depends who’s talking.`\
 https://nytimes.com/2025/10/03/us/politics/white-house-trump-shutdown.html
