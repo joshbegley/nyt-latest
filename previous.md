@@ -1,6 +1,22 @@
+**The Big Ten PE question: Can billions keep Ohio State and Michigan happy for 20 years?**\
+`The Big Ten’s stability is more important for some within the league than for others.`\
+https://nytimes.com/athletic/6685750/2025/10/03/big-ten-private-equity-rights-realignment/
+
+**Welcome back to to the national stage, Florida State-Miami. We've missed you**\
+`Two top-20 teams. ACC championship and CFP implications. A sold-out, prime-time atmosphere. It's not the glory days, but welcome back.`\
+https://nytimes.com/athletic/6684231/2025/10/03/florida-state-miami-acc-rivalry-history-playoff/
+
+**Rams’ self-inflicted errors against 49ers were unbecoming of a contending team**\
+`The Rams are bona fide contenders, but Thursday's mistake-filled loss to the 49ers didn't help that argument.`\
+https://nytimes.com/athletic/6686338/2025/10/03/rams-mistakes-49ers-overtime-loss/
+
 **President Trump’s War on Cartels**\
 `Plus, we’re covering the government shutdown.`\
 https://nytimes.com/2025/10/03/briefing/president-trumps-war-on-cartels.html
+
+**How Phillies star Kyle Schwarber became one of MLB’s elite left-on-left hitters**\
+`"What else can I improve on?" Schwarber is obsessed with the minutia of hitting, with figuring out what to fix and how to challenge himself.`\
+https://nytimes.com/athletic/6684791/2025/10/03/kyle-schwarber-phillies-left-handed/
 
 **The Athletic’s Friday football quiz question #75**\
 `Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6684159/2025/10/03/rangers-roster-lineup-depth-char
 **Blue Jays' biggest ALDS decisions: Rotation order and lefty relievers**\
 `Kevin Gausman appears the clear choice to start Game 1. After that, things get murky for Toronto's rotation against New York. `\
 https://nytimes.com/athletic/6685700/2025/10/03/blue-jays-division-series-roster-projection/
-
-**ESPN needs to take on tense topics in WNBA Finals coverage**\
-`Richard Deitsch says ESPN should try to arrange an interview with commissioner Cathy Englebert and press her on important issues.`\
-https://nytimes.com/athletic/6679726/2025/10/03/wnba-finals-espn-coverage/
-
-**The cluttered SEC football race, and why it may be the new normal**\
-`The SEC is no longer Alabama, Georgia and everyone else. It’s Alabama, Georgia ... and plenty of other teams.`\
-https://nytimes.com/athletic/6683177/2025/10/03/sec-football-race-ole-miss-lsu-alabama-texas/
-
-**Mets free-agent notes: If Edwin Díaz opts out, can they afford not to re-sign him?**\
-`Díaz can opt out of the final two years and $37 million of his contract, becoming the market’s best reliever.`\
-https://nytimes.com/athletic/6685277/2025/10/03/mets-free-agent-notes-edwin-diaz-contract/
-
-**Cecilia Braekhus has been fighting all her life. Now she's ready for a 'perfect ending'**\
-`The Norwegian fighter ends her glorious career on Saturday, having broken down barriers and amassed a slew of titles`\
-https://nytimes.com/athletic/6684158/2025/10/03/cecilia-braekhus-final-fight-interview/
 

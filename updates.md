@@ -1,3 +1,19 @@
+**The Big Ten PE question: Can billions keep Ohio State and Michigan happy for 20 years?**\
+`The Big Ten’s stability is more important for some within the league than for others.`\
+https://nytimes.com/athletic/6685750/2025/10/03/big-ten-private-equity-rights-realignment/
+
+**Welcome back to to the national stage, Florida State-Miami. We've missed you**\
+`Two top-20 teams. ACC championship and CFP implications. A sold-out, prime-time atmosphere. It's not the glory days, but welcome back.`\
+https://nytimes.com/athletic/6684231/2025/10/03/florida-state-miami-acc-rivalry-history-playoff/
+
+**Rams’ self-inflicted errors against 49ers were unbecoming of a contending team**\
+`The Rams are bona fide contenders, but Thursday's mistake-filled loss to the 49ers didn't help that argument.`\
+https://nytimes.com/athletic/6686338/2025/10/03/rams-mistakes-49ers-overtime-loss/
+
+**How Phillies star Kyle Schwarber became one of MLB’s elite left-on-left hitters**\
+`"What else can I improve on?" Schwarber is obsessed with the minutia of hitting, with figuring out what to fix and how to challenge himself.`\
+https://nytimes.com/athletic/6684791/2025/10/03/kyle-schwarber-phillies-left-handed/
+
 **President Trump’s War on Cartels**\
 `Plus, we’re covering the government shutdown.`\
 https://nytimes.com/2025/10/03/briefing/president-trumps-war-on-cartels.html
