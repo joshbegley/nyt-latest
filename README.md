@@ -1,3 +1,7 @@
+**MLB Division Series matchups are set. Here’s your team’s path to the World Series**\
+`The Mariners as the '96 Yankees? The Dodgers as the '93 Jays? The Brewers as the '02 Angels? Using historical comps to find a world champion`\
+https://nytimes.com/athletic/6684187/2025/10/02/mlb-playoffs-bracket-matchups-2025-division-series/
+
 **Hurricanes will not sign Michael McLeod or Carter Hart: Sources**\
 `Carolina showed interest in McLeod and Hart in recent weeks but couldn't "get to something both sides would be comfortable with."`\
 https://nytimes.com/athletic/6685481/2025/10/02/hurricanes-michael-mcleod-carter-hart-hockey-canada/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6684908/2025/10/02/cubs-padres-score-results-game-3
 **With their spirits revived, Tigers make a bid for October redemption**\
 `Wenceel Pérez and A.J. Hinch reversed their scorn, and the Tigers finally got the hits they needed to beat the Guardians. `\
 https://nytimes.com/athletic/6685185/2025/10/02/detroit-tigers-october-redemption-wild-card/
-
-**U.S. stuns France with 3 late goals in U-20 World Cup, clinches knockout round spot**\
-`Zavier Gozo, Brooklyn Raines and Marcos Zambrano scored goals after the 85th minute to lead the Americans to the top of their group.`\
-https://nytimes.com/athletic/6685177/2025/10/02/us-france-score-result-u20-world-cup/
 
