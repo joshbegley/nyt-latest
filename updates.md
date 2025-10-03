@@ -1,3 +1,11 @@
+**Mookie Betts endured a career-worst season. Then his 'thought process on failing changed'**\
+`Betts led major-league shortstops with Defensive Runs Saved this season while battling back from an early-season stomach virus.`\
+https://nytimes.com/athletic/6684212/2025/10/03/dodgers-phillies-mlb-mookie-betts/
+
+**Yankees' Aaron Boone proved in wild-card win he can outmanage Alex Cora**\
+`There has been a never-ending narrative swirling in the Yankees' fan base that Cora runs circles around Boone. He quieted those critics. `\
+https://nytimes.com/athletic/6685746/2025/10/03/aaron-boone-yankees-outmanage-alex-cora-redsox/
+
 **Indonesia School Collapse Leaves Families Gripped by Grief and Fury**\
 `Four days after the collapse, families of the school’s students in East Java were in shock, demanding answers as the search for bodies churned on.`\
 https://nytimes.com/2025/10/03/world/asia/indonesia-school-collapse-families.html

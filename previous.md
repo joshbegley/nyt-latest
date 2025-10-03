@@ -1,6 +1,14 @@
+**Mookie Betts endured a career-worst season. Then his 'thought process on failing changed'**\
+`Betts led major-league shortstops with Defensive Runs Saved this season while battling back from an early-season stomach virus.`\
+https://nytimes.com/athletic/6684212/2025/10/03/dodgers-phillies-mlb-mookie-betts/
+
 **Indonesia School Collapse Leaves Families Gripped by Grief and Fury**\
 `Four days after the collapse, families of the school’s students in East Java were in shock, demanding answers as the search for bodies churned on.`\
 https://nytimes.com/2025/10/03/world/asia/indonesia-school-collapse-families.html
+
+**Yankees' Aaron Boone proved in wild-card win he can outmanage Alex Cora**\
+`There has been a never-ending narrative swirling in the Yankees' fan base that Cora runs circles around Boone. He quieted those critics. `\
+https://nytimes.com/athletic/6685746/2025/10/03/aaron-boone-yankees-outmanage-alex-cora-redsox/
 
 **Hamas Still Considering Trump Gaza Plan but Rejects ‘Take It or Leave It’ Deal**\
 `A senior member of the Palestinian group said that the group would soon announce its position on President Trump’s plan to end the war in Gaza.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/03/briefing/president-trumps-war-on-cartels.html
 **How Phillies star Kyle Schwarber became one of MLB’s elite left-on-left hitters**\
 `"What else can I improve on?" Schwarber is obsessed with the minutia of hitting, with figuring out what to fix and how to challenge himself.`\
 https://nytimes.com/athletic/6684791/2025/10/03/kyle-schwarber-phillies-left-handed/
-
-**The Athletic’s Friday football quiz question #75**\
-`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
-https://nytimes.com/athletic/6684090/2025/10/03/the-athletics-friday-football-quiz-question-75/
-
-**After Guardians' season ended, nobody wanted to say goodbye. It was time to process things**\
-`The question for next season is whether this team will hit enough to be a contender. A low batting average and no power isn't sustainable.`\
-https://nytimes.com/athletic/6685461/2025/10/03/guardians-tigers-al-wild-card-series-game/
 
