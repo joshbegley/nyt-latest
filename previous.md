@@ -1,40 +1,40 @@
-**Vic Fangio is short on sentimentality — not success — before facing Broncos he once coached**\
-`Fangio coached the Broncos for three seasons. `\
-https://nytimes.com/athletic/6684075/2025/10/03/eagles-broncos-vic-fangio-coach/
+**President Trump’s War on Cartels**\
+`Plus, we’re covering the government shutdown.`\
+https://nytimes.com/2025/10/03/briefing/president-trumps-war-on-cartels.html
 
-**TAFC: Ex-Miss Paraguay petitions Trump over World Cup, FIFA's 15% cut on resale tickets**\
-`Today in TAFC: The petition over visas for the World Cup by a former Miss Universe entrant. Plus: FIFA slap 15% commission on resale tickets`\
-https://nytimes.com/athletic/6686203/2025/10/03/trump-world-cup-miss-paraguay/
+**The Athletic’s Friday football quiz question #75**\
+`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/6684090/2025/10/03/the-athletics-friday-football-quiz-question-75/
 
-**On a magical night for the Cubs, Pete Crow-Armstrong salutes his Wrigley Field fans**\
-`An elimination game found Crow-Armstrong in the second inning, with the bases loaded and his Beastie Boys walk-up music blaring.`\
-https://nytimes.com/athletic/6685899/2025/10/03/chicago-cubs-pete-crow-armstrong-wrigley-field-fans/
+**After Guardians' season ended, nobody wanted to say goodbye. It was time to process things**\
+`The question for next season is whether this team will hit enough to be a contender. A low batting average and no power isn't sustainable.`\
+https://nytimes.com/athletic/6685461/2025/10/03/guardians-tigers-al-wild-card-series-game/
 
-**AFC North Whiparound: Recalibrating the race with Ravens reeling, Joe Burrow hurt**\
-`The Steelers could be in the division driver's seat as the Browns, Bengals and Ravens all deal with quarterback questions.`\
-https://nytimes.com/athletic/6684030/2025/10/03/afc-north-whiparound-browns-ravens-bengals-steelers/
+**Blue Jackets bold predictions: Playoff drought ends? Boone Jenner extension?**\
+`Plus, is Jet Greaves cleared for takeoff? And could a familiar face return to the lineup at the trade deadline?`\
+https://nytimes.com/athletic/6680368/2025/10/03/blue-jackets-2025-26-predictions-playoff-boone-jenner/
 
-**Does WNBA have 'worst leadership in the world'? A timeline of Cathy Engelbert's tenure**\
-`Engelbert has been the WNBA commissioner since 2019, and she and the league have experienced ups and downs during her tenure. `\
-https://nytimes.com/athletic/6680206/2025/10/03/wnba-cathy-engelbert-leadership-tenure/
+**Projecting the New York Rangers roster and lineup for opening night**\
+`Who makes the top six? What about third-line center? Here's how we think New York's depth chart looks to start the 2025-26 season.`\
+https://nytimes.com/athletic/6684159/2025/10/03/rangers-roster-lineup-depth-chart-2025-26/
 
-**The Pulse: A baseball dream realized**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6684355/2025/10/03/cam-schlittler-yankees-the-pulse/
+**Blue Jays' biggest ALDS decisions: Rotation order and lefty relievers**\
+`Kevin Gausman appears the clear choice to start Game 1. After that, things get murky for Toronto's rotation against New York. `\
+https://nytimes.com/athletic/6685700/2025/10/03/blue-jays-division-series-roster-projection/
 
-**Israel Premier-Tech withdraws from three Italian cycling races due to security concerns**\
-`Thousands have gathered across Italy on Friday to protest in support of Palestinians and against the Italian government.`\
-https://nytimes.com/athletic/6686251/2025/10/03/israel-premier-tech-cycling-italy-protests/
+**ESPN needs to take on tense topics in WNBA Finals coverage**\
+`Richard Deitsch says ESPN should try to arrange an interview with commissioner Cathy Englebert and press her on important issues.`\
+https://nytimes.com/athletic/6679726/2025/10/03/wnba-finals-espn-coverage/
 
-**What to Know About Japan’s Leadership Election**\
-`Japan’s beleaguered governing party will convene for a crucial election that could pave the way for the first female prime minister or the youngest leader in 140 years.`\
-https://nytimes.com/2025/10/03/world/asia/japan-election-leader-what-to-know.html
+**The cluttered SEC football race, and why it may be the new normal**\
+`The SEC is no longer Alabama, Georgia and everyone else. It’s Alabama, Georgia ... and plenty of other teams.`\
+https://nytimes.com/athletic/6683177/2025/10/03/sec-football-race-ole-miss-lsu-alabama-texas/
 
-**Yankees scout saw glimpses of greatness in Cam Schlittler years before historic Game 3 start**\
-`It all came together Thursday: the arsenal the Yankees taught him, the heart-rate work he taught himself and the desire he's had all along. `\
-https://nytimes.com/athletic/6685910/2025/10/03/cam-schlittler-yankees-history-game-3-wild-card-red-sox/
+**Mets free-agent notes: If Edwin Díaz opts out, can they afford not to re-sign him?**\
+`Díaz can opt out of the final two years and $37 million of his contract, becoming the market’s best reliever.`\
+https://nytimes.com/athletic/6685277/2025/10/03/mets-free-agent-notes-edwin-diaz-contract/
 
-**Chiefs QB Patrick Mahomes is playing riskier football. Here's why it's working**\
-`Here's how the Chiefs are playing with more fire on offense — while still avoiding the burn.`\
-https://nytimes.com/athletic/6683682/2025/10/03/chiefs-patrick-mahomes-riskier-football/
+**Cecilia Braekhus has been fighting all her life. Now she's ready for a 'perfect ending'**\
+`The Norwegian fighter ends her glorious career on Saturday, having broken down barriers and amassed a slew of titles`\
+https://nytimes.com/athletic/6684158/2025/10/03/cecilia-braekhus-final-fight-interview/
 
