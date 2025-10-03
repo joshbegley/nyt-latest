@@ -1,3 +1,11 @@
+**Who is Sean Combs?**\
+`By Ben Sisario`\
+https://nytimes.com/2025/10/03/arts/music/who-is-sean-combs.html
+
+**Here is the latest.**\
+`By Ben Sisario`\
+https://nytimes.com/2025/10/03/arts/music/here-is-the-latest.html
+
 **Manchester Community Reels From Synagogue Attack**\
 `Residents were left in shock after a driver rammed a vehicle into people and stabbed others Thursday at a synagogue in Manchester. Three people died, including the attacker. The police on Friday said one victim died from police gunfire.`\
 https://nytimes.com/video/world/europe/100000010436976/manchester-community-reels-from-synagogue-attack.html
