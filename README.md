@@ -1,3 +1,7 @@
+**World Cup ticket resale madness begins as FIFA takes two 15% fees on each sale**\
+`FIFA looks set to profit heavily from the World Cup resale ticket market`\
+https://nytimes.com/athletic/6685993/2025/10/03/world-cup-ticket-resale-fifa/
+
 **‘A Hornet’s Nest:’ Mamdani’s Gifted Education Plan Divides New Yorkers**\
 `Zohran Mamdani wants to phase out the city’s gifted program for kindergarten students if elected, a proposal that drew intense criticism and praise.`\
 https://nytimes.com/2025/10/03/nyregion/gifted-program-new-york-mamdani-criticism.html
@@ -31,10 +35,6 @@ https://nytimes.com/2025/10/03/arts/television/late-night-government-shutdown.ht
 https://nytimes.com/2025/10/03/learning/word-of-the-day-tact.html
 
 **Have familiar flaws put Ange Postecoglou's future at Nottingham Forest in jeopardy already?**\
-`The start to the Australian's tenure is the worst of any permanent Forest manager in a hundred years `\
+`The start to the Australian's tenure is the worst of any permanent manager at the club in a hundred years `\
 https://nytimes.com/athletic/6685370/2025/10/03/nottingham-forest-europa-league-postecoglou-struggles/
-
-**Large Fire Burns at Chevron Refinery in El Segundo**\
-`It was not immediately clear what caused the blast. But the blaze, near Los Angeles, could be seen from miles away.`\
-https://nytimes.com/2025/10/03/us/el-segundo-refinery-fire-chevron.html
 
