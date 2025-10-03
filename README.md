@@ -1,3 +1,15 @@
+**Belgian journalist Virginie Philipott announces candidacy for FIA presidency**\
+`"The importance of female leadership cannot be overstated. For decades, motorsport has been shaped almost exclusively by men," she said.`\
+https://nytimes.com/athletic/6687110/2025/10/03/virginie-philippot-fia-president-who/
+
+**James Grashow, Who Turned Cardboard Into Art, Dies at 83**\
+`He was best known for huge, fantastical installations that were not always built to last, including a version of the Trevi Fountain in Rome.`\
+https://nytimes.com/2025/10/03/arts/design/james-grashow-dead.html
+
+**Supreme Court to Hear Challenge to Hawaii Law Limiting Guns on Private Property**\
+`The Second Amendment case involves a Hawaii law that generally prohibits firearms on private property that is accessible to the public.`\
+https://nytimes.com/2025/10/03/us/politics/supreme-court-hawaii-gun-law.html
+
 **Betting for (by) dummies: Riding Vanderbilt, Saints, Ravens to cover and the under in London**\
 `Too many bets to make, too little time. Here are nine picks our football writers are making across college and NFL.`\
 https://nytimes.com/athletic/6686758/2025/10/03/nfl-college-football-betting-picks-vanderbilt-saints-ravens/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/03/us/politics/trump-hamas-israel-cease-fire.html
 **Red Light: New season, new faces … maybe. Plus: Our projected Presidents' Trophy winner ͏‌**\
 `It’s four days until the regular season begins, which means you just might be put on waivers shortly.`\
 https://nytimes.com/athletic/6686910/2025/10/03/red-light-presidents-trophy/
-
-**Cardinals to add to professional scouting department, retain current staff: Sources**\
-`The additions will allow for more separation between amateur scouting and pro scouting in the organization.`\
-https://nytimes.com/athletic/6686769/2025/10/03/st-louis-cardinals-scouting/
-
-**Listen to the Sounds of Climate Change**\
-`For the Climate Forward live event, we gathered recordings of a melting glacier, the Amazon jungle and the underwater Arctic, all soundscapes that are rapidly changing.`\
-https://nytimes.com/2025/10/03/climate/sounds-of-climate-change.html
-
-**737 Videos, 141 Cues: What It Takes to Make ‘Kavalier & Clay’ Lift Off**\
-`At the Metropolitan Opera, a cramped studio at the back of the hall is a command tower, controlling the show’s elaborate video and effects.`\
-https://nytimes.com/2025/10/03/arts/music/metropolitan-opera-kavalier-clay-switchboard.html
 
