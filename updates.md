@@ -1,3 +1,7 @@
+**TAFC: Ex-Miss Paraguay petitions Trump over World Cup, FIFA's 15% cut on resale tickets**\
+`Today in TAFC: The petition over visas for the World Cup by a former Miss Universe entrant. Plus: FIFA slap 15% commission on resale tickets`\
+https://nytimes.com/athletic/6686203/2025/10/03/trump-world-cup-miss-paraguay/
+
 **On a magical night for the Cubs, Pete Crow-Armstrong salutes his Wrigley Field fans**\
 `An elimination game found Crow-Armstrong in the second inning, with the bases loaded and his Beastie Boys walk-up music blaring.`\
 https://nytimes.com/athletic/6685899/2025/10/03/chicago-cubs-pete-crow-armstrong-wrigley-field-fans/
