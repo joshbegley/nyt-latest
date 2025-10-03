@@ -1,3 +1,7 @@
+**Why Newcastle's chance creation is down – and how they can evolve to get even more from Woltemade**\
+`Newcastle are creating fewer chances in the Premier League than ever before under Eddie Howe. This is why and how they aim to fix it`\
+https://nytimes.com/athletic/6679810/2025/10/03/newcastle-united-xg-woltemade/
+
 **49ers-Rams: San Francisco, Mac Jones hold off Los Angeles in overtime**\
 `The Rams failed to score on their final possession when Kyren Williams got stuffed on fourth-and-1 to seal the 49ers' win.`\
 https://nytimes.com/athletic/6685394/2025/10/03/49ers-rams-score-result-takeaways-thursday-night-football/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6676838/2025/10/03/premier-league-predictions-match
 **In series-clinching victory, Jameson Taillon gave the Cubs what they needed: 'He set the tone'**\
 `It took all of three pitches before Taillon and the Cubs knew something special was going to happen at Wrigley Field on Thursday night.`\
 https://nytimes.com/athletic/6685632/2025/10/03/cubs-game-3-jameson-taillon-win/
-
-**Long-throw tactics: How Premier League teams profit from back-post runs and second balls**\
-`The tactic is on the rise, but it's not as simple as just launching the ball into the penalty box`\
-https://nytimes.com/athletic/6676061/2025/10/03/premier-league-long-throw-tactics/
 
