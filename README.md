@@ -1,3 +1,7 @@
+**Indonesia School Collapse Leaves Families Gripped by Grief and Fury**\
+`Four days after the collapse, families of the school’s students in East Java were in shock, demanding answers as the search for bodies churned on.`\
+https://nytimes.com/2025/10/03/world/asia/indonesia-school-collapse-families.html
+
 **Hamas Still Considering Trump Gaza Plan but Rejects ‘Take It or Leave It’ Deal**\
 `A senior member of the Palestinian group said that the group would soon announce its position on President Trump’s plan to end the war in Gaza.`\
 https://nytimes.com/2025/10/03/world/middleeast/hamas-response-trump-gaza-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6684090/2025/10/03/the-athletics-friday-football-qu
 **After Guardians' season ended, nobody wanted to say goodbye. It was time to process things**\
 `The question for next season is whether this team will hit enough to be a contender. A low batting average and no power isn't sustainable.`\
 https://nytimes.com/athletic/6685461/2025/10/03/guardians-tigers-al-wild-card-series-game/
-
-**Blue Jackets bold predictions: Playoff drought ends? Boone Jenner extension?**\
-`Plus, is Jet Greaves cleared for takeoff? And could a familiar face return to the lineup at the trade deadline?`\
-https://nytimes.com/athletic/6680368/2025/10/03/blue-jackets-2025-26-predictions-playoff-boone-jenner/
 
