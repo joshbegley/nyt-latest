@@ -1,3 +1,11 @@
+**Forced to Flee Two Homes, a Painter Finds a Refuge on Canvas**\
+`The Iraqi-born artist Hayv Kahraman explores displacement from Baghdad and Altadena in her New York show, “Ghost Fires.”`\
+https://nytimes.com/2025/10/03/arts/design/hayv-kahraman-artist-altadena.html
+
+**Fantasy Premier League live Q&A: Gameweek 7 advice from Ben Dinnery**\
+`Join Ben Dinnery for a live Gameweek 7 Q&A from 2pm-3pm UK time today`\
+https://nytimes.com/athletic/6679425/2025/10/03/fantasy-premier-league-live-qa-gameweek-7-advice-from-ben-dinnery/
+
 **Climber Dies in Fall After Scaling Yosemite’s El Capitan**\
 `The death of Balin Miller, 23, shocked his family and onlookers who were watching his ascent of the famed rock face.`\
 https://nytimes.com/2025/10/03/us/climber-dies-yosemite-el-capitan.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/03/world/europe/uk-manchester-synagogue-attack.html
 **How Marco Bizot channelled his inner Nigel Spink to help Aston Villa beat Feyenoord**\
 `Just as in the 1982 European Cup final, the club's second-choice goalkeeper ended up playing a crucial role in a win in Rotterdam`\
 https://nytimes.com/athletic/6684738/2025/10/03/aston-villa-marco-bizot-rotterdam-spink/
-
-**Late Night Sums Up Day Two of the Shutdown**\
-`“No one has any idea how long it will last,” Jimmy Fallon said. “People are calling it the ‘Grey’s Anatomy’ of government shutdowns.”`\
-https://nytimes.com/2025/10/03/arts/television/late-night-government-shutdown.html
-
-**Word of the Day: tact**\
-`This word has appeared in 39 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/10/03/learning/word-of-the-day-tact.html
 

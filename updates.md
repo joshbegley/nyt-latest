@@ -1,3 +1,7 @@
+**Climber Dies in Fall After Scaling Yosemite’s El Capitan**\
+`The death of Balin Miller, 23, shocked his family and onlookers who were watching his ascent of the famed rock face.`\
+https://nytimes.com/2025/10/03/us/climber-dies-yosemite-el-capitan.html
+
 **2 Victims Named After Manchester Synagogue Terrorist Attack**\
 `The police said Adrian Daulby, 53, and Melvin Cravitz, 66, were killed Thursday outside the Heaton Park Congregation synagogue in northwestern England.`\
 https://nytimes.com/2025/10/03/world/europe/uk-manchester-synagogue-attack.html

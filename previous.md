@@ -1,3 +1,7 @@
+**Climber Dies in Fall After Scaling Yosemite’s El Capitan**\
+`The death of Balin Miller, 23, shocked his family and onlookers who were watching his ascent of the famed rock face.`\
+https://nytimes.com/2025/10/03/us/climber-dies-yosemite-el-capitan.html
+
 **World Cup ticket resale madness begins as FIFA takes two 15% fees on each sale**\
 `FIFA looks set to profit heavily from the World Cup resale ticket market`\
 https://nytimes.com/athletic/6685993/2025/10/03/world-cup-ticket-resale-fifa/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/03/arts/television/late-night-government-shutdown.ht
 **Word of the Day: tact**\
 `This word has appeared in 39 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/10/03/learning/word-of-the-day-tact.html
-
-**Have familiar flaws put Ange Postecoglou's future at Nottingham Forest in jeopardy already?**\
-`The start to the Australian's tenure is the worst of any permanent manager at the club in a hundred years `\
-https://nytimes.com/athletic/6685370/2025/10/03/nottingham-forest-europa-league-postecoglou-struggles/
 
