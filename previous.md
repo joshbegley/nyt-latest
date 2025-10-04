@@ -1,3 +1,11 @@
+**WNBA Finals: Las Vegas Aces take Game 1 with comeback victory against Phoenix Mercury**\
+`The Aces' reserves made the difference in the series opener. `\
+https://nytimes.com/athletic/6688341/2025/10/03/wnba-finals-las-vegas-aces-comeback-game-1/
+
+**The 10.5.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/10/03/the-10525-issue
+
 **Group of NASCAR team owners urge settlement in antitrust lawsuit**\
 `As the trial date approaches, many of the team owners expressed a feeling of urgency to see the litigation resolved.`\
 https://nytimes.com/athletic/6688250/2025/10/03/nascar-antitrust-lawsuit-michael-jordan-settlement/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6688187/2025/10/03/wnba-commissioner-cathy-engelber
 **Marjorie Taylor Greene Criticizes Senate Republicans for Government Shutdown**\
 `In a social media post, the far-right Georgia congresswoman called on Senate Republicans to eliminate the filibuster, lowering the threshold on future legislation to a simple majority.`\
 https://nytimes.com/2025/10/03/us/politics/marjorie-taylor-greene-shutdown.html
-
-**2 Teen Girls Died In a Hit-And-Run. Another Teen Faces Murder Charges.**\
-`The 17-year-old friends in a small New Jersey town were killed on their way to get ice cream. Prosecutors said the crash was intentional.`\
-https://nytimes.com/2025/10/03/nyregion/hit-and-run-deaths-girls-new-jersey.html
-
-**Pressure's on Cubs, Brewers with NLCS berth at stake. But who's feeling it more?**\
-`With NLDS opening Saturday in Milwaukee, maybe some pressure has shifted to Brewers? The Cubs are just a plucky wild-card team, after all.`\
-https://nytimes.com/athletic/6687999/2025/10/03/cubs-brewers-nlds-craig-counsell-nl-division-series-game-1/
 

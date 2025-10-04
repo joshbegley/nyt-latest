@@ -1,3 +1,11 @@
+**WNBA Finals: Las Vegas Aces take Game 1 with comeback victory against Phoenix Mercury**\
+`The Aces' reserves made the difference in the series opener. `\
+https://nytimes.com/athletic/6688341/2025/10/03/wnba-finals-las-vegas-aces-comeback-game-1/
+
+**The 10.5.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/10/03/the-10525-issue
+
 **Group of NASCAR team owners urge settlement in antitrust lawsuit**\
 `As the trial date approaches, many of the team owners expressed a feeling of urgency to see the litigation resolved.`\
 https://nytimes.com/athletic/6688250/2025/10/03/nascar-antitrust-lawsuit-michael-jordan-settlement/
