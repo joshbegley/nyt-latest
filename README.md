@@ -1,3 +1,11 @@
+**Former Portsmouth, Leicester City owner Mandaric dies at 87**\
+`Mandaric also saw success as the first owner of the San Jose Earthquakes, where George Best later played.`\
+https://nytimes.com/athletic/6689930/2025/10/04/milan-mandaric-portsmouth-leicester-city-dies/
+
+**Kristi Noem Says ICE Will Be ‘All Over’ the Super Bowl**\
+`The homeland security secretary told a podcaster that immigration agents would be at the N.F.L. event, where Bad Bunny, a Puerto Rican rapper and Trump critic, will perform.`\
+https://nytimes.com/2025/10/04/arts/ice-bad-bunny-super-bowl.html
+
 **Federal Agents Fire Pepper Balls to Disperse Crowds Protesting in Chicago**\
 `Dozens of people gathered on Chicago’s Southwest Side on Saturday afternoon to protest federal immigration activity, which has escalated sharply in the city in recent days.`\
 https://nytimes.com/video/us/politics/100000010439696/chicago-protests-immigration-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6560541/2025/10/04/college-football-playoff-bracket
 **Trapped in the Homes They Thought Would Protect Them**\
 `Some victims of the Cebu earthquake in the Philippines lived in homes that were supposed to withstand natural disasters.`\
 https://nytimes.com/2025/10/04/world/asia/cebu-earthquake-philippines.html
-
-**Cubs-Brewers Game 1 takeaways: Brewers string together offensive onslaught**\
-`The Cubs struck first, but the Brewers answered back with nine runs in the game's first two innings.`\
-https://nytimes.com/athletic/6689812/2025/10/04/cubs-brewers-game-1-score-results-takeaways-playoffs-mlb/
-
-**Bryan Woo left off Mariners' postseason roster, might be available if Seattle advances**\
-`The Mariners will carry a third catcher on their ALDS roster, along with Ben Williamson, who can provide solid defense at third base.`\
-https://nytimes.com/athletic/6689866/2025/10/04/mariners-playoff-roster-alds-bryan-woo/
 
