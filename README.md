@@ -6,8 +6,8 @@ https://nytimes.com/athletic/6689866/2025/10/04/mariners-playoff-roster-alds-bry
 `Overcoming poverty and prejudice, she was the first Black woman to be hired as a television reporter in the region and later became a popular anchor.`\
 https://nytimes.com/2025/10/04/business/media/belva-davis-dead.html
 
-**Why Flyers training camp was underwhelming in one important aspect**\
-`Flyers training camp was underwhelming in regard to the lack of impact from young prospects. What does it indicate about the future?`\
+**Why Flyers training camp was underwhelming in one important way**\
+`The young prospects expected to compete for several open spots in the lineup didn't make an impact. What does it indicate about the future?`\
 https://nytimes.com/athletic/6688364/2025/10/04/flyers-training-camp-prospects-nhl-preseason/
 
 **At a Protest for a Deal, Israelis Wrestle With a Mix of Emotions**\
