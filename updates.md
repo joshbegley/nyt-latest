@@ -1,3 +1,7 @@
+**Cubs will try to keep proper perspective after blowout Game 1 loss: 'One won’t kill ya'**\
+`"The task remains the same and the group’s confidence is incredibly high, even though today wasn’t what we wanted.”`\
+https://nytimes.com/athletic/6690002/2025/10/04/cubs-nlds-game-1-blowout-loss-brewers/
+
 **Yankees-Blue Jays Game 1 takeaways: Jays bash rivals to emphatically end playoff drought**\
 `After three playoff sweeps and six postseason losses, Vladimir Guerrero Jr. gave his home fans an October moment to cheer.`\
 https://nytimes.com/athletic/6689977/2025/10/04/yankees-blue-jays-game-1-score-results-takeaways-playoffs-mlb/
