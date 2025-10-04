@@ -1,5 +1,9 @@
+**Trump Administration Is Said to Plan to Cut Refugee Admissions to a Record Low**\
+`Most of the slots would go to white South Africans and others facing “unjust discrimination,” according to people familiar with the matter and documents obtained by The New York Times.`\
+https://nytimes.com/2025/10/03/us/politics/trump-refugee-admissions-south-africa.html
+
 **WNBA commissioner Cathy Engelbert addresses player criticism, CBA, officiating, job security**\
-`Engelbert denied Napheesa's Collier's account of a conversation that involved Caitlin Clark's value.`\
+`Engelbert denied Napheesa Collier's account of a conversation that involved comments about Caitlin Clark's value.`\
 https://nytimes.com/athletic/6688187/2025/10/03/wnba-commissioner-cathy-engelbert-addresses-player-criticism-cba-officiating-job-security/
 
 **Marjorie Taylor Greene Criticizes Senate Republicans for Government Shutdown**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/03/us/mario-guevara-journalist-deported.html
 **5 Takeaways From Taylor Swift’s ‘Showgirl’ Movie**\
 `The pop star’s new album arrived with a limited-run film in which she debuts a video for “The Fate of Ophelia” and chats about the LP’s songs.`\
 https://nytimes.com/2025/10/03/arts/music/taylor-swift-showgirl-release-party-movie.html
-
-**Phillies-Dodgers NLDS: What we're watching in the series, starting with Cristopher Sánchez**\
-`Of the 32 starts Sánchez made in 2025, his changeup usage was lowest in the two games he pitched against Los Angeles.`\
-https://nytimes.com/athletic/6687936/2025/10/03/phillies-dodgers-nlds-matchup-cristopher-sanchez/
 
