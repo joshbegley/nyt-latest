@@ -1,3 +1,7 @@
+**The Briefing: Leeds 1 Tottenham 2 - Spurs end international break curse? Nearly Beachball-gate 2?**\
+`Beren Cross and Elias Burke break down the key talking points from Saturday afternoon's game`\
+https://nytimes.com/athletic/6680469/2025/10/04/leeds-tottenham-result-score-report-analysis/
+
 **Sanae Takaichi Is Likely to Be Japan’s Next Leader. Who Is She?**\
 `Ms. Takaichi would be Japan’s first female prime minister in a country where women are drastically underrepresented at the highest levels of power.`\
 https://nytimes.com/2025/10/04/world/asia/sanae-takaichi-japan.html

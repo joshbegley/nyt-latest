@@ -1,3 +1,7 @@
+**The Briefing: Leeds 1 Tottenham 2 - Spurs end international break curse? Nearly Beachball-gate 2?**\
+`Beren Cross and Elias Burke break down the key talking points from Saturday afternoon's game`\
+https://nytimes.com/athletic/6680469/2025/10/04/leeds-tottenham-result-score-report-analysis/
+
 **Sanae Takaichi Is Likely to Be Japan’s Next Leader. Who Is She?**\
 `Ms. Takaichi would be Japan’s first female prime minister in a country where women are drastically underrepresented at the highest levels of power.`\
 https://nytimes.com/2025/10/04/world/asia/sanae-takaichi-japan.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6679808/2025/10/04/edmonton-oilers-ahl-bakersfield-
 **Your Wealthiest Friend Has a Private Concierge**\
 `The services, which can cost more than $50,000 a year, make impossible dinner reservations and finagle special treatment. In certain circles, they’ve become a common luxury.`\
 https://nytimes.com/2025/10/04/business/dealbook/your-wealthiest-friend-has-a-private-concierge.html
-
-**For the New Archbishop of Canterbury, Nursing Roots Could Bring a Pastoral Sensibility**\
-`As bishop of London, Sarah Mullally placed herself in the middle of the church’s most charged issues. But experts predict that her years treating cancer patients could inform how she approaches her new role.`\
-https://nytimes.com/2025/10/04/world/europe/sarah-mullally-archbishop-of-canterbury.html
 
