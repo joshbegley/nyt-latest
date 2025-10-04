@@ -1,3 +1,11 @@
+**Guardiola voices support for pro-Gazan demonstration in Barcelona**\
+`This is not the first time Guardiola has shared his views on the conflict as he said in June: "It's so painful what we see in Gaza."`\
+https://nytimes.com/athletic/6688809/2025/10/04/guardiola-gaza-israel-palestine-news/
+
+**Federal Agent in Chicago Shot Person in a Confrontation With Motorist, Officials Say**\
+`The wounded individual had non-life-threatening injuries, according to federal authorities.`\
+https://nytimes.com/2025/10/04/us/federal-agent-shooting-chicago.html
+
 **Mark Sanchez 'in stable condition' after reported stabbing in Indianapolis**\
 `Fox Sports, for whom Sanchez works as a broadcaster, said he was injured during an incident on Saturday.`\
 https://nytimes.com/athletic/6689578/2025/10/04/mark-sanchez-news-injury-stabbed-indianapolis/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/04/us/texas-shooting-children.html
 **Sean Combs Sentenced to More Than 4 Years in Prison**\
 `Sean Combs, the fallen hip-hop mogul, was sentenced to more than four years in prison for prostitution-related offenses. Ben Sisario, a New York Times reporter covering music and the music industry, explains the sentence.`\
 https://nytimes.com/video/nyregion/100000010435193/sean-combs-sentenced-to-more-than-4-years-in-prison.html
-
-**Penguins keep Ben Kindel, Harrison Brunicke; Ryan Graves headed to AHL**\
-`Two teenagers could be on the ice when the Penguins start the regular season. `\
-https://nytimes.com/athletic/6689500/2025/10/04/penguins-kindel-brunicke-graves-roster/
-
-**The Clooneys Draw an A-List Crowd in London, for Justice**\
-`Amal and George Clooney were joined at the Albie Awards by celebrities including Meryl Streep and Meg Ryan, with performances by John Legend and Brandi Carlile.`\
-https://nytimes.com/2025/10/04/style/albie-awards-george-clooney-london.html
 

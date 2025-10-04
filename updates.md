@@ -1,3 +1,11 @@
+**Guardiola voices support for pro-Gazan demonstration in Barcelona**\
+`This is not the first time Guardiola has shared his views on the conflict as he said in June: "It's so painful what we see in Gaza."`\
+https://nytimes.com/athletic/6688809/2025/10/04/guardiola-gaza-israel-palestine-news/
+
+**Federal Agent in Chicago Shot Person in a Confrontation With Motorist, Officials Say**\
+`The wounded individual had non-life-threatening injuries, according to federal authorities.`\
+https://nytimes.com/2025/10/04/us/federal-agent-shooting-chicago.html
+
 **The Briefing: Chelsea 2 Liverpool 1 - Estevao winner, Caicedo's stunner, third defeat in a row for Slot's side**\
 `Estevao gave Chelsea a late 2-1 win over Liverpool at Stamford Bridge. Our writers break down the key talking points`\
 https://nytimes.com/athletic/6682828/2025/10/04/chelsea-liverpool-premier-league-result-estavao/
