@@ -1,3 +1,7 @@
+**All Too Wise**\
+`John Kugelman’s puzzle asks a lot of tough questions.`\
+https://nytimes.com/2025/10/04/crosswords/daily-puzzle-2025-10-05.html
+
 **Mbappe sprains ankle during Madrid's win against Villarreal**\
 `Mastantuono also came off in pain during their 3-1 win in La Liga. `\
 https://nytimes.com/athletic/6689852/2025/10/04/kylian-mbappe-real-madrid-franco-mastantuono-injury/

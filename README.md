@@ -1,3 +1,7 @@
+**How to watch Yankees at Blue Jays: Game 1 Time, TV, streaming**\
+`Find out how to watch the New York Yankees play the Toronto Blue Jays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6689938/2025/10/04/yankees-vs-blue-jays-stream-how-to-watch-oct-5/
+
 **All Too Wise**\
 `John Kugelman’s puzzle asks a lot of tough questions.`\
 https://nytimes.com/2025/10/04/crosswords/daily-puzzle-2025-10-05.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6688364/2025/10/04/flyers-training-camp-prospects-n
 **At a Protest for a Deal, Israelis Wrestle With a Mix of Emotions**\
 `Along with optimism that President Trump can lock Israel and Hamas into a deal, many expressed anxiety about being disappointed once more.`\
 https://nytimes.com/2025/10/04/world/middleeast/israel-protest-hostages-tel-aviv.html
-
-**Netanyahu Defends Wartime Leadership, Saying Hostage Deal Is Within Reach**\
-`In a speech that lasted just minutes, the Israeli prime minister boasted that he had defied his critics to secure the release of the remaining hostages in Gaza.`\
-https://nytimes.com/2025/10/04/world/middleeast/israel-gaza-war-hostage-deal-netanyahu.html
 
