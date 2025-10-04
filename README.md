@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6689578/2025/10/04/mark-sanchez-news-injury-stabbed
 https://nytimes.com/2025/10/04/us/mark-sanchez-stabbing.html
 
 **The Briefing: Chelsea 2 Liverpool 1 - Estevao winner, Caicedo's stunner, third defeat in a row for Slot's side**\
-`Estevao gave Chelsea a late 2-1 win over Liverpool at Stamford Bridge - our writers break down the key talking points.`\
+`Estevao gave Chelsea a late 2-1 win over Liverpool at Stamford Bridge. Our writers break down the key talking points`\
 https://nytimes.com/athletic/6682828/2025/10/04/chelsea-liverpool-premier-league-result-estavao/
 
 **NHL waiver tracker: Best players on the wire throughout 2025-26 preseason**\
