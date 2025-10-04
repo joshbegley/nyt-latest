@@ -1,3 +1,7 @@
+**Luke Evangelista signs 2-year, $3 million AAV contract with Predators: Sources**\
+`Evangelista, who was the NHL's last remaining unsigned RFA, had 10 goals and 22 assists in 68 games last season.`\
+https://nytimes.com/athletic/6682256/2025/10/03/luke-evangelista-contract-predators/
+
 **Journalist Mario Guevara Is Deported After Being Held for Over 100 Days**\
 `The Salvadoran journalist was arrested in June while covering a “No Kings” protest outside Atlanta. Those charges were dropped, his lawyers said.`\
 https://nytimes.com/2025/10/03/us/mario-guevara-journalist-deported.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/03/business/trump-commemorative-coin-treasury.html
 **How to watch Dodgers at Phillies: Game 1 Time, TV, streaming**\
 `Find out how to watch the Los Angeles Dodgers play the Philadelphia Phillies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6688016/2025/10/03/how-to-watch-dodgers-vs-phillies-game-1-tv-channel-and-streaming-options-for-october-4/
-
-**How to watch Yankees at Blue Jays: Game 1 Time, TV, streaming**\
-`Find out how to watch the New York Yankees play the Toronto Blue Jays, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6688014/2025/10/03/how-to-watch-yankees-vs-blue-jays-game-1-tv-channel-and-streaming-options-for-october-4/
 
