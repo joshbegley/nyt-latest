@@ -1,3 +1,7 @@
+**What to Know About Hamas’s Response to Trump’s Peace Plan**\
+`Hamas’s statement inspired optimism for an end to the war, but did not address several elements of the plan that it has deemed unacceptable.`\
+https://nytimes.com/2025/10/04/world/middleeast/hamas-trump-gaza-deal.html
+
 **The New York Times in Print for Saturday, Oct. 4, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/04/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6686404/2025/10/04/chelsea-liverpool-preview-predic
 **Taylor Swift, NFL and Starbucks: Real Madrid's big plan for their Bernabeu brand**\
 `Concerts, sporting events and corporate clients are all being targeted in the Spanish club's new commercial plan `\
 https://nytimes.com/athletic/6686175/2025/10/04/taylor-swift-nfl-real-madrid-bernabeu/
-
-**A Japanese Ski Resort Town Is Roiled by a Debate Over Immigration**\
-`Residents are protesting a planned housing facility for foreign workers, exposing the conflict between Japan’s need for labor and anxieties over immigration.`\
-https://nytimes.com/2025/10/04/business/japan-foreign-workers-hokkaido.html
 
