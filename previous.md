@@ -1,3 +1,11 @@
+**Lammens makes first Man United start against Sunderland**\
+`Prior to Saturday, Bayindir had started in all of United's Premier League matches of the 2025-26 season.`\
+https://nytimes.com/athletic/6688858/2025/10/04/man-united-sunderland-team-news-lammens/
+
+**The Pulse: Picking an MLB drought to end**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6688467/2025/10/04/an-mlb-playoffs-full-of-droughts-that-could-end-so-lets-pick-one/
+
 **Without Luka or LeBron, the Lakers preseason opener went as you'd expect**\
 `The Lakers being deliberate with James' ramp up, said the plan with Dončić wasn’t about anything other than the team taking real caution.`\
 https://nytimes.com/athletic/6688497/2025/10/04/lakers-lebron-james-luka-doncic-preseason/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6688702/2025/10/04/alyssa-thomas-missed-free-throws
 **How to watch Chelsea vs. Liverpool for U.S. fans: EPL leaders looking to bounce back**\
 `Liverpool is coming off back-to-back frustrating losses and heads into an away match against a Chelsea side still finding its form. `\
 https://nytimes.com/athletic/6682667/2025/10/04/chelsea-liverpool-epl-usa-how-to-watch/
-
-**Mr. President, May We Interest You in a Naked Bike Ride?**\
-`Trump’s dispatch of National Guard troops to Portland is another dangerous step toward politicizing America’s military forces.`\
-https://nytimes.com/2025/10/04/opinion/trump-national-guard-portland-naked-bike.html
-
-**Logan Stankoven's checklist for success as the Hurricanes' No. 2 center**\
-`Stankoven's contract could become a bargain if he can overcome the next hurdle in his career: thriving at center.`\
-https://nytimes.com/athletic/6687829/2025/10/04/logan-stankoven-hurricanes-contract/
 

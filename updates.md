@@ -1,3 +1,11 @@
+**Lammens makes first Man United start against Sunderland**\
+`Prior to Saturday, Bayindir had started in all of United's Premier League matches of the 2025-26 season.`\
+https://nytimes.com/athletic/6688858/2025/10/04/man-united-sunderland-team-news-lammens/
+
+**The Pulse: Picking an MLB drought to end**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6688467/2025/10/04/an-mlb-playoffs-full-of-droughts-that-could-end-so-lets-pick-one/
+
 **Without Luka or LeBron, the Lakers preseason opener went as you'd expect**\
 `The Lakers being deliberate with James' ramp up, said the plan with Dončić wasn’t about anything other than the team taking real caution.`\
 https://nytimes.com/athletic/6688497/2025/10/04/lakers-lebron-james-luka-doncic-preseason/
