@@ -1,3 +1,7 @@
+**Will Adrian Kempe become the next eight-figure King? Is he a $10 million player?**\
+`Where does Kempe fit into a skyrocketing NHL salary cap environment?`\
+https://nytimes.com/athletic/6686084/2025/10/04/adrian-kempe-kings-contract-million/
+
 **Lammens makes first Man United start against Sunderland**\
 `Prior to Saturday, Bayindir had started in all of United's Premier League matches of the 2025-26 season.`\
 https://nytimes.com/athletic/6688858/2025/10/04/man-united-sunderland-team-news-lammens/
