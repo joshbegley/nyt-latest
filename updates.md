@@ -1,3 +1,15 @@
+**Trapped in the Homes They Thought Would Protect Them**\
+`Some victims of the Cebu earthquake in the Philippines lived in homes that they thought were built to withstand natural disasters.`\
+https://nytimes.com/2025/10/04/world/asia/cebu-earthquake-philippines.html
+
+**Cubs-Brewers Game 1 takeaways: Brewers string together offensive onslaught**\
+`The Cubs struck first, but the Brewers answered back with nine runs in the game's first two innings.`\
+https://nytimes.com/athletic/6689812/2025/10/04/cubs-brewers-game-1-score-results-takeaways-playoffs-mlb/
+
+**Why Flyers training camp was underwhelming in one important way**\
+`The young prospects expected to compete for several open spots in the lineup didn't make an impact. What does it indicate about the future?`\
+https://nytimes.com/athletic/6688364/2025/10/04/flyers-training-camp-prospects-nhl-preseason/
+
 **Bryan Woo left off Mariners' postseason roster, might be available if Seattle advances**\
 `The Mariners will carry a third catcher on their ALDS roster, along with Ben Williamson, who can provide solid defense at third base.`\
 https://nytimes.com/athletic/6689866/2025/10/04/mariners-playoff-roster-alds-bryan-woo/
