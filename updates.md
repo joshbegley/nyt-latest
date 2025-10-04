@@ -1,3 +1,19 @@
+**Eagles notes: Checking in on DeVonta Smith, facing Patrick Surtain II, missing Nakobe Dean**\
+`There’s too much talent on this team to think Philadelphia's offense won't get it together soon.`\
+https://nytimes.com/athletic/6688872/2025/10/04/eagles-notes-devonta-smith-patrick-surtain-nakobe-dean/
+
+**Russini: What I’m Hearing on A.J. Brown’s future, J.J. McCarthy, MetLife turf and more**\
+`Also: A harrowing morning for Mac Jones before his big night, and why Tyreek Hill was never heading back to Kansas City.`\
+https://nytimes.com/athletic/6688437/2025/10/04/nfl-rumors-news-brock-purdy-body-aj-brown-devonta-smith-jalen-hurts/
+
+**Pumpkin Is Not a Spice**\
+`These three pumpkin treats — chewy chocolate chip bars, maple-scented cornbread and a showstopping layer cake — let the gourd’s sweetness shine.`\
+https://nytimes.com/2025/10/04/dining/pumpkin-is-not-a-spice.html
+
+**WNBA: Las Vegas Aces take Game One from Phoenix Mercury**\
+`The Las Vegas Aces jumped out to an early lead in the WNBA Finals behind 21 points from MVP A’ja Wilson.`\
+https://nytimes.com/video/the-athletic/100000010439373/wnba-las-vegas-aces-take-game-one-from-phoenix-mercury.html
+
 **The Briefing: Leeds 1 Tottenham 2 - Spurs end international break curse, and nearly Beachball-gate II**\
 `Beren Cross and Elias Burke break down the key talking points from the early Premier League kick off at Elland Road`\
 https://nytimes.com/athletic/6680469/2025/10/04/leeds-tottenham-result-score-report-analysis/
