@@ -1,3 +1,7 @@
+**Israel Says It Will Work With Trump Gaza Plan; Hamas Says It Will Release Hostages**\
+`Prime Minister Benjamin Netanyahu said Israel was ready to work with the White House to end the war, but questions remain about Hamas’s future in Gaza and whether it will agree to disarm.`\
+https://nytimes.com/2025/10/04/world/middleeast/israel-hamas-trump-netanyahu.html
+
 **Mamdani Is More Foe Than Friend in the Suburbs, Even Among Democrats**\
 `Just outside New York City, Republicans are using Zohran Mamdani as an attack line for the 2026 midterms, much as they vilified the city in 2022.`\
 https://nytimes.com/2025/10/04/nyregion/mamdani-suburbs-voters-republicans.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/04/world/middleeast/hamas-trump-gaza-deal.html
 **The New York Times in Print for Saturday, Oct. 4, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/04/todays-new-york-times
-
-**Las Vegas Aces get in a (defensive) zone to stage WNBA Finals comeback win in opener**\
-`Dana Evans, a 5-foot-6 guard, used her speed to exploit the Mercuy's defense and disrupt them on offense. `\
-https://nytimes.com/athletic/6688459/2025/10/04/las-vegas-aces-dana-evans-zone-defense/
 

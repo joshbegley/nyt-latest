@@ -1,3 +1,7 @@
+**Israel Says It Will Work With Trump Gaza Plan; Hamas Says It Will Release Hostages**\
+`Prime Minister Benjamin Netanyahu said Israel was ready to work with the White House to end the war, but questions remain about Hamas’s future in Gaza and whether it will agree to disarm.`\
+https://nytimes.com/2025/10/04/world/middleeast/israel-hamas-trump-netanyahu.html
+
 **Mamdani Is More Foe Than Friend in the Suburbs, Even Among Democrats**\
 `Just outside New York City, Republicans are using Zohran Mamdani as an attack line for the 2026 midterms, much as they vilified the city in 2022.`\
 https://nytimes.com/2025/10/04/nyregion/mamdani-suburbs-voters-republicans.html
