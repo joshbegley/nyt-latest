@@ -1,3 +1,11 @@
+**For the New Archbishop of Canterbury, Nursing Roots Could Bring a Pastoral Sensibility**\
+`As bishop of London, Sarah Mullally placed herself in the middle of the church’s most charged issues. But experts predict that her years treating cancer patients could inform how she approaches her new role.`\
+https://nytimes.com/2025/10/04/world/europe/sarah-mullally-archbishop-of-canterbury.html
+
+**Mercury star Alyssa Thomas won't be defined by missed free throws, but by how she responds**\
+`Thomas shoulders the burden of powering the Mercury to a championship. Falling in Game 1 might only fuel her.`\
+https://nytimes.com/athletic/6688702/2025/10/04/alyssa-thomas-missed-free-throws-wnba-finals/
+
 **How to watch Chelsea vs. Liverpool for U.S. fans: EPL leaders looking to bounce back**\
 `Liverpool is coming off back-to-back frustrating losses and heads into an away match against a Chelsea side still finding its form. `\
 https://nytimes.com/athletic/6682667/2025/10/04/chelsea-liverpool-epl-usa-how-to-watch/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6688352/2025/10/04/blackhawks-preseason-wild-nhl-ta
 **New York Rangers try to walk fine line between contending and developing**\
 `Returning to the postseason should be a priority for the Rangers. So too should be working toward a sustainable future. But how?`\
 https://nytimes.com/athletic/6686791/2025/10/04/new-york-rangers-prospects-roster-lineup-2025-26/
-
-**Experts react to Dom's point total projections for all 32 NHL teams**\
-`From the Blackhawks to the Oilers, do experts think each team's projected 2025-26 point total is too high, too low or just about right?`\
-https://nytimes.com/athletic/6687473/2025/10/04/nhl-2025-26-preview-point-totals-projections-analysis/
-
-**Can Left and Right Understand the Other Side’s Fears?**\
-`Getting past the urge to reduce all politics to existential conflict.`\
-https://nytimes.com/2025/10/04/opinion/progressives-populists-post-liberal-fear.html
 
