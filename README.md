@@ -1,3 +1,7 @@
+**Why Brittle Bones Aren’t Just a Woman’s Problem**\
+`More men are now living long enough to develop osteoporosis. But few are aware of the risk, and fewer still are screened and treated.`\
+https://nytimes.com/2025/10/04/health/osteoporosis-men.html
+
 **Ivan Klima, Czech Novelist Who Chafed Under Totalitarian Regimes, Dies at 94**\
 `A writer, dissident, teacher and critic, he was deeply affected by an early experience of his life: incarceration as a boy in a concentration camp near Prague.`\
 https://nytimes.com/2025/10/04/world/europe/ivan-klima-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/04/dining/pumpkin-is-not-a-spice.html
 **WNBA: Las Vegas Aces take Game One from Phoenix Mercury**\
 `The Las Vegas Aces jumped out to an early lead in the WNBA Finals behind 21 points from MVP A’ja Wilson.`\
 https://nytimes.com/video/the-athletic/100000010439373/wnba-las-vegas-aces-take-game-one-from-phoenix-mercury.html
-
-**The Briefing: Leeds 1 Tottenham 2 - Spurs end international break curse, and nearly Beachball-gate II**\
-`Beren Cross and Elias Burke break down the key talking points from the early Premier League kick off at Elland Road`\
-https://nytimes.com/athletic/6680469/2025/10/04/leeds-tottenham-result-score-report-analysis/
 

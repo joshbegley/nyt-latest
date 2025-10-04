@@ -1,3 +1,7 @@
+**Ivan Klima, Czech Novelist Who Chafed Under Totalitarian Regimes, Dies at 94**\
+`A writer, dissident, teacher and critic, he was deeply affected by an early experience of his life: incarceration as a boy in a concentration camp near Prague.`\
+https://nytimes.com/2025/10/04/world/europe/ivan-klima-dead.html
+
 **WATCH:A Brock Purdy strength has turned into a weakness this season**\
 `This three-play sequence shows how it's supposed to look for the offense, and how it's looked at other points in the season.`\
 https://nytimes.com/athletic/6687284/2025/10/04/brock-purdy-49ers-analysis-interception/
