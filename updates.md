@@ -1,3 +1,11 @@
+**It’s Chili Weather**\
+`And this reader-favorite slow cooker chili is ready when you are.`\
+https://nytimes.com/2025/10/04/dining/its-chili-weather.html
+
+**Who Is Donald Trump Responsible To?**\
+`Trump’s exclusionary view of the country strains the bonds of union.`\
+https://nytimes.com/2025/10/04/opinion/trump-responsible-president-job-military.html
+
 **Why Brittle Bones Aren’t Just a Woman’s Problem**\
 `More men are now living long enough to develop osteoporosis. But few are aware of the risk, and fewer still are screened and treated.`\
 https://nytimes.com/2025/10/04/health/osteoporosis-men.html
