@@ -1,3 +1,7 @@
+**Baby Steps**\
+`Ryan McCarty spins up another quick-witted themeless puzzle.`\
+https://nytimes.com/2025/10/03/crosswords/daily-puzzle-2025-10-04.html
+
 **Man Drives Car Onto Sidewalk Outside L.A. City Hall, Barricading Himself Inside**\
 `A man in a vehicle displaying a handwritten sign referring to President Trump refused to exit his car as the authorities shut down surrounding streets. The man was taken into custody.`\
 https://nytimes.com/2025/10/03/us/la-city-hall-car.html
