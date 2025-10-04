@@ -1,3 +1,7 @@
+**Stars 'evaluating all options' for next arena, including potential relocation in North Texas**\
+`The Dallas Stars are considering a move outside city limits when their lease at American Airlines Center expires in 2031.`\
+https://nytimes.com/athletic/6688270/2025/10/03/dallas-stars-relocation-arena-plano-texas/
+
 **Baby Steps**\
 `Ryan McCarty spins up another quick-witted themeless puzzle.`\
 https://nytimes.com/2025/10/03/crosswords/daily-puzzle-2025-10-04.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6687999/2025/10/03/cubs-brewers-nlds-craig-counsell
 **Federal Workers’ Union Sues Administration Over Partisan Email Language**\
 `Department of Education employees this week found that their out-of-office emails during the government shutdown had been edited to include partisan language.`\
 https://nytimes.com/2025/10/03/us/politics/partisan-emails-education-dept-workers-lawsuit.html
-
-**Dodger Details: Lingering questions ahead of NLDS against the Phillies**\
-`Shohei Ohtani preps for his Game 1 start, a Will Smith health update, the outlook for Clayton Kershaw and more news in advance of the NLDS.`\
-https://nytimes.com/athletic/6688125/2025/10/03/dodgers-phillies-nlds-shohei-ohtani-start/
 

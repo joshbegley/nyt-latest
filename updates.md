@@ -1,3 +1,7 @@
+**Stars 'evaluating all options' for next arena, including potential relocation in North Texas**\
+`The Dallas Stars are considering a move outside city limits when their lease at American Airlines Center expires in 2031.`\
+https://nytimes.com/athletic/6688270/2025/10/03/dallas-stars-relocation-arena-plano-texas/
+
 **Baby Steps**\
 `Ryan McCarty spins up another quick-witted themeless puzzle.`\
 https://nytimes.com/2025/10/03/crosswords/daily-puzzle-2025-10-04.html

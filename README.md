@@ -1,3 +1,7 @@
+**Group of NASCAR team owners urge settlement in antitrust lawsuit**\
+`As the trial date approaches, many of the team owners expressed a feeling of urgency to see the litigation resolved.`\
+https://nytimes.com/athletic/6688250/2025/10/03/nascar-antitrust-lawsuit-michael-jordan-settlement/
+
 **Stars 'evaluating all options' for next arena, including potential relocation in North Texas**\
 `The Dallas Stars are considering a move outside city limits when their lease at American Airlines Center expires in 2031.`\
 https://nytimes.com/athletic/6688270/2025/10/03/dallas-stars-relocation-arena-plano-texas/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/03/nyregion/hit-and-run-deaths-girls-new-jersey.html
 **Pressure's on Cubs, Brewers with NLCS berth at stake. But who's feeling it more?**\
 `With NLDS opening Saturday in Milwaukee, maybe some pressure has shifted to Brewers? The Cubs are just a plucky wild-card team, after all.`\
 https://nytimes.com/athletic/6687999/2025/10/03/cubs-brewers-nlds-craig-counsell-nl-division-series-game-1/
-
-**Federal Workers’ Union Sues Administration Over Partisan Email Language**\
-`Department of Education employees this week found that their out-of-office emails during the government shutdown had been edited to include partisan language.`\
-https://nytimes.com/2025/10/03/us/politics/partisan-emails-education-dept-workers-lawsuit.html
 
