@@ -1,3 +1,7 @@
+**Submit your questions for Andrew Baggarly's upcoming Giants Mailbagg**\
+`Giants beat writer Andrew Baggarly will answer questions from subscribers. How will Buster Posey reshape the team after a .500 season?`\
+https://nytimes.com/athletic/6689428/2025/10/04/sf-giants-offseason-mailbagg-questions/
+
 **Ex-Prime Minister Set to Return to Power in Czech Republic**\
 `The party of Andrej Babis, a billionaire and a skeptic of military support to Ukraine, prevailed in parliamentary elections by focusing on the economy.`\
 https://nytimes.com/2025/10/04/world/europe/ex-prime-minister-set-to-return-to-power-in-czech-republic.html
