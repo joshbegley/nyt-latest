@@ -1,3 +1,15 @@
+**Lando Norris cost Max Verstappen pole in Singapore — a sign of Red Bull's progress**\
+`Max Verstappen's growing momentum only puts further pressure on McLaren in the title race`\
+https://nytimes.com/athletic/6689319/2025/10/04/max-verstappen-lando-norris-f1-singapore-gp-qualifying/
+
+**Here’s the latest.**\
+`Israel said it would cooperate with the White House to end the war, but much is still unclear about Hamas’s future and whether it will agree to disarm.`\
+https://nytimes.com/live/2025/10/04/world/israel-hamas-gaza-trump/heres-the-latest
+
+**2 Girls Found Dead Atop a J Train in Suspected Subway Surfing Accident**\
+`The teenagers, found unconscious on the roof of a train in Brooklyn, appear to be the latest casualties of a popular and deadly game.`\
+https://nytimes.com/2025/10/04/nyregion/teenage-girls-dead-subway-surfing.html
+
 **Who Still Has Temporary Protected Status?**\
 `Conflicting court rulings have plunged hundreds of thousands of people with temporary protection from deportation into uncertainty.`\
 https://nytimes.com/2025/10/04/us/politics/temporary-protected-status-scotus.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/04/world/europe/manchester-synagogue-palestine-antis
 **Blue Jays leave Bo Bichette, Max Scherzer and Chris Bassitt off ALDS roster**\
 `The Jays will enter their season-defining matchup against the Yankees without their star shortstop and veteran starters.`\
 https://nytimes.com/athletic/6689208/2025/10/04/blue-jays-bichette-scherzer-bassitt-alds-roster/
-
-**Man Taken Into Custody After Driving Onto Sidewalk Outside Los Angeles City Hall**\
-`In a two-hour standoff, Los Angeles police officers sought to make contact with the driver, who appeared to be suffering a mental health crisis.`\
-https://nytimes.com/video/us/100000010439395/los-angeles-city-hall-car-crash.html
-
-**Trump’s Approach on Gaza: Deal First, Details Later**\
-`“We’ll see how it all turns out,” President Trump said after Hamas agreed to portions of his cease-fire plan, with conditions.`\
-https://nytimes.com/2025/10/04/us/politics/trump-gaza-diplomacy.html
-
-**It’s Chili Weather**\
-`And this reader-favorite slow cooker chili is ready when you are.`\
-https://nytimes.com/2025/10/04/dining/its-chili-weather.html
 
