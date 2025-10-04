@@ -1,3 +1,7 @@
+**Submit your questions for Andrew Baggarly's upcoming Giants Mailbagg**\
+`Giants beat writer Andrew Baggarly will answer questions from subscribers. How will Buster Posey reshape the team after a .500 season?`\
+https://nytimes.com/athletic/6689428/2025/10/04/sf-giants-offseason-mailbagg-questions/
+
 **Ex-Prime Minister Set to Return to Power in Czech Republic**\
 `The party of Andrej Babis, a billionaire and a skeptic of military support to Ukraine, prevailed in parliamentary elections by focusing on the economy.`\
 https://nytimes.com/2025/10/04/world/europe/ex-prime-minister-set-to-return-to-power-in-czech-republic.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6689420/2025/10/04/martin-odegaard-arsenal-injury-d
 **Russian Drones Hit 2 Passenger Trains, Ukraine Says**\
 `The drone strikes killed at least one person and injured dozens of others, officials said. The attack came amid rising alarm about the status of a nuclear plant relying solely on generators.`\
 https://nytimes.com/2025/10/04/world/europe/ukraine-russia-train-drones.html
-
-**Spain SailGP: Denmark shine in tough conditions as GB surge to the top**\
-`Denmark won two of the four races in Cadiz, while Great Britain took the overall lead.`\
-https://nytimes.com/athletic/6689282/2025/10/04/spain-sail-grand-prix-denmark-great-britain/
 
