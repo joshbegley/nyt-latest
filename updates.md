@@ -1,3 +1,11 @@
+**WATCH:A Brock Purdy strength has turned into a weakness this season**\
+`This three-play sequence shows how it's supposed to look for the offense, and how it's looked at other points in the season.`\
+https://nytimes.com/athletic/6687284/2025/10/04/brock-purdy-49ers-analysis-interception/
+
+**Brilliant George Russell takes Singapore pole but Max Verstappen unhappy with Lando Norris**\
+`George Russell was impressive in qualifying, while Max Verstappen seemed unhappy with a struggling Lando Norris`\
+https://nytimes.com/athletic/6688856/2025/10/04/singapore-grand-prix-qualifying-george-russell-pole/
+
 **Brilliant George Russell takes Singapore pole as Lando Norris struggles**\
 `George Russell was impressive in qualifying, while Max Verstappen seemed unhappy with a struggling Lando Norris`\
 https://nytimes.com/athletic/6688856/2025/10/04/singapore-grand-prix-qualifying-george-russell-pole/
