@@ -1,3 +1,11 @@
+**Alex Pereira vows revenge against Magomed Ankalaev ahead of UFC 320**\
+`"It's just a matter of coming back and going in there and winning," Pereira said of reclaiming his light heavyweight title.`\
+https://nytimes.com/athletic/6688448/2025/10/04/alex-pereira-magomed-ankalaev-ufc-320/
+
+**Wild sign Filip Gustavsson to five-year, $34 million extension**\
+`In his final preseason start Friday night in Chicago during a 3-2 win, Gustavsson made 15 of his 26 saves to preserve the Wild's lead.`\
+https://nytimes.com/athletic/6689099/2025/10/04/minnesota-wild-filip-gustavsson-contract-extension/
+
 **Eagles notes: Checking in on DeVonta Smith, facing Patrick Surtain II, missing Nakobe Dean**\
 `There’s too much talent on this team to think Philadelphia's offense won't get it together soon.`\
 https://nytimes.com/athletic/6688872/2025/10/04/eagles-notes-devonta-smith-patrick-surtain-nakobe-dean/
