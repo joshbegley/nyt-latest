@@ -1,3 +1,7 @@
+**What to Know About Hamas’s Response to Trump’s Peace Plan**\
+`Hamas’s statement inspired optimism for an end to the war, but did not address several elements of the plan that it has deemed unacceptable.`\
+https://nytimes.com/2025/10/04/world/middleeast/hamas-trump-gaza-deal.html
+
 **The New York Times in Print for Saturday, Oct. 4, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/04/todays-new-york-times
