@@ -1,3 +1,7 @@
+**In Milwaukee, where connections endure, even family enjoys booing Craig Counsell**\
+`As the saying goes: They don’t boo nobodies. Counsell is no exception, with even his brother-in-law joining in on the jeers.`\
+https://nytimes.com/athletic/6688361/2025/10/04/chicago-cubs-milwaukee-brewers-craig-counsell-reaction/
+
 **Everything fantasy football managers need to know for Week 5**\
 `Couldn't keep up with all of the NFL news during the week? Don't worry, Andy Behrens has you covered with his essential fantasy notes.`\
 https://nytimes.com/athletic/6687882/2025/10/04/fantasy-football-week-5-tips-news/
