@@ -1,3 +1,7 @@
+**The Briefing: Leeds 1 Tottenham 2 - Spurs end international break curse, and nearly Beachball-gate II**\
+`Beren Cross and Elias Burke break down the key talking points from the early Premier League kick off at Elland Road`\
+https://nytimes.com/athletic/6680469/2025/10/04/leeds-tottenham-result-score-report-analysis/
+
 **The Briefing: Leeds 1 Tottenham 2 - Spurs end international break curse? Nearly Beachball-gate 2?**\
 `Beren Cross and Elias Burke break down the key talking points from the early Premier League kick off at Elland Road`\
 https://nytimes.com/athletic/6680469/2025/10/04/leeds-tottenham-result-score-report-analysis/
