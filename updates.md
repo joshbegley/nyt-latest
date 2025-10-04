@@ -1,3 +1,11 @@
+**For the New Archbishop of Canterbury, Nursing Roots Could Bring a Pastoral Sensibility**\
+`As bishop of London, Sarah Mullally placed herself in the middle of the church’s most charged issues. But experts predict that her years treating cancer patients could inform how she approaches her new role.`\
+https://nytimes.com/2025/10/04/world/europe/sarah-mullally-archbishop-of-canterbury.html
+
+**Mercury star Alyssa Thomas won't be defined by missed free throws, but by how she responds**\
+`Thomas shoulders the burden of powering the Mercury to a championship. Falling in Game 1 might only fuel her.`\
+https://nytimes.com/athletic/6688702/2025/10/04/alyssa-thomas-missed-free-throws-wnba-finals/
+
 **How to watch Chelsea vs. Liverpool for U.S. fans: EPL leaders looking to bounce back**\
 `Liverpool is coming off back-to-back frustrating losses and heads into an away match against a Chelsea side still finding its form. `\
 https://nytimes.com/athletic/6682667/2025/10/04/chelsea-liverpool-epl-usa-how-to-watch/
