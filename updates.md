@@ -1,3 +1,7 @@
+**Why Brittle Bones Aren’t Just a Woman’s Problem**\
+`More men are now living long enough to develop osteoporosis. But few are aware of the risk, and fewer still are screened and treated.`\
+https://nytimes.com/2025/10/04/health/osteoporosis-men.html
+
 **Ivan Klima, Czech Novelist Who Chafed Under Totalitarian Regimes, Dies at 94**\
 `A writer, dissident, teacher and critic, he was deeply affected by an early experience of his life: incarceration as a boy in a concentration camp near Prague.`\
 https://nytimes.com/2025/10/04/world/europe/ivan-klima-dead.html
