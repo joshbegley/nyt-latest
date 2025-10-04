@@ -1,3 +1,19 @@
+**Michigan takeaways: Wolverines' win against Wisconsin still raised familiar questions**\
+`Wisconsin's defense gave Michigan some problems, but the Wolverines still pulled away behind Justice Haynes and Bryce Underwood.`\
+https://nytimes.com/athletic/6689659/2025/10/04/michigan-wisconsin-score-result-football/
+
+**Clemson routs UNC in latest blowout loss for Tar Heels under Bill Belichick**\
+`In three games against Power 4 competition, UNC has yet to be competitive, losing by 34, 25 and 28 points.`\
+https://nytimes.com/athletic/6689607/2025/10/04/clemson-unc-score-result/
+
+**Brewers' Jackson Chourio exits NL Division Series Game 1 with apparent injury**\
+`The 21-year-old leadoff hitter and aspiring face of Milwaukee’s franchise missed most of August after suffering a right hamstring strain.`\
+https://nytimes.com/athletic/6689744/2025/10/04/brewers-cubs-jackson-chourio-early-exit/
+
+**Federal Agent in Chicago Shot Motorist in Confrontation, Officials Say**\
+`The wounded individual had non-life-threatening injuries, according to federal authorities. The clash touched off more protests in the city over immigration enforcement.`\
+https://nytimes.com/2025/10/04/us/federal-agent-shooting-chicago.html
+
 **Brewers' Jackson Chourio exits NL Division Series Game 1 with apparent injury**\
 `The 21-year-old leadoff hitter and aspiring face of Milwaukee’s franchise, missed most of August after suffering a right hamstring strain.`\
 https://nytimes.com/athletic/6689744/2025/10/04/brewers-cubs-jackson-chourio-early-exit/
