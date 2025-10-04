@@ -1,3 +1,7 @@
+**Hamas News Brings Hope, but No Guarantees, That Peace in Gaza Is Close**\
+`Hamas’s statement inspired optimism for an end to the war, but did not address several elements of the plan that it had deemed unacceptable.`\
+https://nytimes.com/2025/10/04/world/middleeast/hamas-trump-gaza-deal.html
+
 **Is Antoine Semenyo the best player in the Premier League right now?**\
 `The Bournemouth player is equally threatening with his left and right feet, as Fulham found out on Friday night `\
 https://nytimes.com/athletic/6688284/2025/10/04/antoine-semenyo-premier-league-bournemouth/
