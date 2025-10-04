@@ -1,3 +1,11 @@
+**Mark Sanchez 'in stable condition' after reported stabbing in Indianapolis**\
+`Fox Sports, for whom Sanchez works as a broadcaster, said he was injured during an incident on Saturday.`\
+https://nytimes.com/athletic/6689578/2025/10/04/mark-sanchez-news-injury-stabbed-indianapolis/
+
+**Mark Sanchez, Ex-N.F.L. Quarterback, Is Hospitalized After Injury**\
+`Fox Sports, the network where Mr. Sanchez works as a commentator, said he was in stable condition.`\
+https://nytimes.com/2025/10/04/us/mark-sanchez-stabbing.html
+
 **The Briefing: Chelsea 2 Liverpool 1 - Estevao winner, Caicedo's stunner, third defeat in a row for Slot's side**\
 `Estevao gave Chelsea a late 2-1 win over Liverpool at Stamford Bridge - our writers break down the key talking points.`\
 https://nytimes.com/athletic/6682828/2025/10/04/chelsea-liverpool-premier-league-result-estavao/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6689500/2025/10/04/penguins-kindel-brunicke-graves-
 **The Clooneys Draw an A-List Crowd in London, for Justice**\
 `Amal and George Clooney were joined at the Albie Awards by celebrities including Meryl Streep and Meg Ryan, with performances by John Legend and Brandi Carlile.`\
 https://nytimes.com/2025/10/04/style/albie-awards-george-clooney-london.html
-
-**Jane Goodall Taught You How to ‘Look’**\
-`The conservationist used her own style to reveal the hidden lives of animals, to reveal that they, too, had style: individuality, identities, quirks and foibles.`\
-https://nytimes.com/2025/10/04/style/jane-goodall-fashion.html
-
-**In Taylor’s Version, Ophelia Has a Fairy-Tale Ending**\
-`Taylor Swift reimagines the fate of the tragic “Hamlet” heroine on her new album, “The Life of a Showgirl.” But did she really need saving?`\
-https://nytimes.com/2025/10/04/arts/music/taylor-swift-fate-of-ophelia.html
 
