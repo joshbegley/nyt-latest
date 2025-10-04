@@ -1,3 +1,7 @@
+**Without Luka or LeBron, the Lakers preseason opener went as you'd expect**\
+`The Lakers being deliberate with James' ramp up, said the plan with Dončić wasn’t about anything other than the team taking real caution.`\
+https://nytimes.com/athletic/6688497/2025/10/04/lakers-lebron-james-luka-doncic-preseason/
+
 **Flick: 'I don't regret' criticism of Spain over Yamal injury**\
 `Yamal is set to be sidelined for up to three weeks after sustaining a recurrence of the groin injury he picked up on international duty.`\
 https://nytimes.com/athletic/6688808/2025/10/04/lamine-yamal-injury-spain-barcelona-flick-criticism/
