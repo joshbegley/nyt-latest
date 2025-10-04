@@ -1,3 +1,7 @@
+**Michigan takeaways: Wolverines' win against Wisconsin still raised familiar questions**\
+`Wisconsin's defense gave Michigan some problems, but the Wolverines still pulled away behind Justice Haynes and Bryce Underwood.`\
+https://nytimes.com/athletic/6689659/2025/10/04/michigan-wisconsin-score-result-football/
+
 **Clemson routs UNC in latest blowout loss for Tar Heels under Bill Belichick**\
 `In three games against Power 4 competition, UNC has yet to be competitive, losing by 34, 25 and 28 points.`\
 https://nytimes.com/athletic/6689607/2025/10/04/clemson-unc-score-result/
@@ -14,8 +18,8 @@ https://nytimes.com/athletic/6688822/2025/10/04/lakers-suns-preseason-opener/
 `This is not the first time Guardiola has shared his views on the conflict as he said in June: "It's so painful what we see in Gaza."`\
 https://nytimes.com/athletic/6688809/2025/10/04/guardiola-gaza-israel-palestine-news/
 
-**Federal Agent in Chicago Shot Person in a Confrontation With Motorist, Officials Say**\
-`The wounded individual had non-life-threatening injuries, according to federal authorities.`\
+**Federal Agent in Chicago Shot Motorist in Confrontation, Officials Say**\
+`The wounded individual had non-life-threatening injuries, according to federal authorities. The clash touched off more protests in the city over immigration enforcement.`\
 https://nytimes.com/2025/10/04/us/federal-agent-shooting-chicago.html
 
 **Mark Sanchez 'in stable condition' after reported stabbing in Indianapolis**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6682828/2025/10/04/chelsea-liverpool-premier-league
 **NHL waiver tracker: Best players on the wire throughout 2025-26 preseason**\
 `Corey Pronman and Harman Dayal provide analysis of the top players placed on waivers as the regular season approaches.`\
 https://nytimes.com/athletic/6662091/2025/10/04/nhl-waivers-tracker-preseason-2025/
-
-**Submit your questions for Andrew Baggarly's upcoming Giants Mailbagg**\
-`Giants beat writer Andrew Baggarly will answer questions from subscribers. How will Buster Posey reshape the team after a .500 season?`\
-https://nytimes.com/athletic/6689428/2025/10/04/sf-giants-offseason-mailbagg-questions/
 
