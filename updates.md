@@ -1,3 +1,7 @@
+**Is Antoine Semenyo the best player in the Premier League right now?**\
+`The Bournemouth player is equally threatening with his left and right feet, as Fulham found out on Friday night `\
+https://nytimes.com/athletic/6688284/2025/10/04/antoine-semenyo-premier-league-bournemouth/
+
 **Japan Set for First Female Prime Minister**\
 `Sanae Takaichi, a hard-line conservative, was elected as leader by Japan’s governing party, paving the way for her to become prime minister of the coalition government.`\
 https://nytimes.com/2025/10/04/world/asia/japan-female-leader.html

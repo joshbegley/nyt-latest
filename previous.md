@@ -1,3 +1,7 @@
+**Is Antoine Semenyo the best player in the Premier League right now?**\
+`The Bournemouth player is equally threatening with his left and right feet, as Fulham found out on Friday night `\
+https://nytimes.com/athletic/6688284/2025/10/04/antoine-semenyo-premier-league-bournemouth/
+
 **Japan Set for First Female Prime Minister**\
 `Sanae Takaichi, a hard-line conservative, was elected as leader by Japan’s governing party, paving the way for her to become prime minister of the coalition government.`\
 https://nytimes.com/2025/10/04/world/asia/japan-female-leader.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6682769/2025/10/04/007-wirtz-slow-starts/
 **Why do footballers spit?**\
 `Many players think nothing of spitting multiple times during a game. It does not happen in lots of other sports, so what is going on?`\
 https://nytimes.com/athletic/6210158/2025/10/04/why-do-footballers-spit/
-
-**Mikel Arteta, nearly 300 games in charge of Arsenal, and a quest for the 'extraordinary'**\
-`Saturday's game against with West Ham will be Arteta's 300th as Arsenal manager. The club are unrecognisable from the day his journey began`\
-https://nytimes.com/athletic/6686811/2025/10/04/mikel-arteta-arsenal-manager-300-games/
 
