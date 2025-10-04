@@ -1,3 +1,7 @@
+**Notre Dame defense arrives as Irish shut down Boise State to win third straight**\
+`This was the kind of performance Chris Ash and the Irish needed, with USC coming to South Bend in two weeks.`\
+https://nytimes.com/athletic/6689789/2025/10/04/notre-dame-boise-state-score-result/
+
 **UCLA shocks No. 7 Penn State for first win after 0-4 start**\
 `Previously winless UCLA shocked No. 7 Penn State 42-37 on Saturday afternoon at the Rose Bowl behind Nico Iamaleava's five touchdowns.`\
 https://nytimes.com/athletic/6689923/2025/10/04/ucla-penn-state-score-result-football/
