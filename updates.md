@@ -1,3 +1,7 @@
+**WNBA commissioner Cathy Engelbert addresses player criticism, CBA, officiating, job security**\
+`Engelbert denied Napheesa's Collier's account of a conversation that involved Caitlin Clark's value.`\
+https://nytimes.com/athletic/6688187/2025/10/03/wnba-commissioner-cathy-engelbert-addresses-player-criticism-cba-officiating-job-security/
+
 **Marjorie Taylor Greene Criticizes Senate Republicans for Government Shutdown**\
 `In a social media post, the far-right Georgia congresswoman called on Senate Republicans to eliminate the filibuster, lowering the threshold on future legislation to a simple majority.`\
 https://nytimes.com/2025/10/03/us/politics/marjorie-taylor-greene-shutdown.html

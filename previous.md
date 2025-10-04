@@ -1,3 +1,7 @@
+**WNBA commissioner Cathy Engelbert addresses player criticism, CBA, officiating, job security**\
+`Engelbert denied Napheesa's Collier's account of a conversation that involved Caitlin Clark's value.`\
+https://nytimes.com/athletic/6688187/2025/10/03/wnba-commissioner-cathy-engelbert-addresses-player-criticism-cba-officiating-job-security/
+
 **Marjorie Taylor Greene Criticizes Senate Republicans for Government Shutdown**\
 `In a social media post, the far-right Georgia congresswoman called on Senate Republicans to eliminate the filibuster, lowering the threshold on future legislation to a simple majority.`\
 https://nytimes.com/2025/10/03/us/politics/marjorie-taylor-greene-shutdown.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/03/arts/music/taylor-swift-showgirl-release-party-mo
 **Phillies-Dodgers NLDS: What we're watching in the series, starting with Cristopher Sánchez**\
 `Of the 32 starts Sánchez made in 2025, his changeup usage was lowest in the two games he pitched against Los Angeles.`\
 https://nytimes.com/athletic/6687936/2025/10/03/phillies-dodgers-nlds-matchup-cristopher-sanchez/
-
-**Trump Responds After Hamas Agrees to Release Hostages**\
-`In a short video statement posted on Truth Social, President Trump thanked several Arab and Muslim nations and expressed hope that the hostages would return home soon.`\
-https://nytimes.com/video/us/politics/100000010438964/trump-hamas-gaza-hostages-response.html
 
