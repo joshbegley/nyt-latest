@@ -1,3 +1,7 @@
+**Spain SailGP: Denmark shine in tough conditions as GB surge to the top**\
+`Denmark won two of the four races in Cadiz, while Great Britain took the overall lead.`\
+https://nytimes.com/athletic/6689282/2025/10/04/spain-sail-grand-prix-denmark-great-britain/
+
 **Lando Norris cost Max Verstappen pole in Singapore — a sign of Red Bull's progress**\
 `Max Verstappen's growing momentum only puts further pressure on McLaren in the title race`\
 https://nytimes.com/athletic/6689319/2025/10/04/max-verstappen-lando-norris-f1-singapore-gp-qualifying/
