@@ -1,3 +1,7 @@
+**Democrats Lost the Debate on Immigration. Unless You Ask Senator Alex Padilla.**\
+`The California politician on his “wake-up call” at an earlier moment of political upheaval, and the one he’s experiencing today.`\
+https://nytimes.com/2025/10/04/magazine/alex-padilla-interview.html
+
 **The Sprint for City Hall: What Happened This Week in the NYC Mayoral Race**\
 `Mayor Eric Adams’s exit from the race may have helped former Gov. Andrew Cuomo, but it’s clear he has much work to do.`\
 https://nytimes.com/card/2025/10/04/nyregion/newyorktoday/nyc-mayor-adams-mamdani
