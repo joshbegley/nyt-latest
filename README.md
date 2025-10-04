@@ -1,3 +1,7 @@
+**Federal Agents Fire Pepper Balls to Disperse Crowds Protesting in Chicago**\
+`Dozens of people gathered on Chicago’s Southwest Side on Saturday afternoon to protest federal immigration activity, which has escalated sharply in the city in recent days.`\
+https://nytimes.com/video/us/politics/100000010439696/chicago-protests-immigration-trump.html
+
 **The Mark Stoops dilemma: Is it time to move on, or are the coach and Kentucky stuck?**\
 `The results sure make it seem like it’s over. The money, on the other hand, makes it hard to see Kentucky making a move.`\
 https://nytimes.com/athletic/6689909/2025/10/04/kentucky-football-mark-stoops-georgia/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6689812/2025/10/04/cubs-brewers-game-1-score-result
 **Bryan Woo left off Mariners' postseason roster, might be available if Seattle advances**\
 `The Mariners will carry a third catcher on their ALDS roster, along with Ben Williamson, who can provide solid defense at third base.`\
 https://nytimes.com/athletic/6689866/2025/10/04/mariners-playoff-roster-alds-bryan-woo/
-
-**Belva Davis, West Coast Trailblazer in TV News, Dies at 92**\
-`Overcoming poverty and prejudice, she was the first Black woman to be hired as a television reporter in the region and later became a popular anchor.`\
-https://nytimes.com/2025/10/04/business/media/belva-davis-dead.html
 
