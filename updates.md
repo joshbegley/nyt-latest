@@ -1,3 +1,7 @@
+**Sanae Takaichi Is Likely to Be Japan’s Next Leader. Who Is She?**\
+`Ms. Takaichi would be Japan’s first female prime minister in a country where women are drastically underrepresented at the highest levels of power.`\
+https://nytimes.com/2025/10/04/world/asia/sanae-takaichi-japan.html
+
 **Will Adrian Kempe become the next eight-figure King? Is he a $10 million player?**\
 `Where does Kempe fit into a skyrocketing NHL salary cap environment?`\
 https://nytimes.com/athletic/6686084/2025/10/04/adrian-kempe-kings-contract-million/

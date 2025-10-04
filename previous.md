@@ -1,3 +1,7 @@
+**Sanae Takaichi Is Likely to Be Japan’s Next Leader. Who Is She?**\
+`Ms. Takaichi would be Japan’s first female prime minister in a country where women are drastically underrepresented at the highest levels of power.`\
+https://nytimes.com/2025/10/04/world/asia/sanae-takaichi-japan.html
+
 **Will Adrian Kempe become the next eight-figure King? Is he a $10 million player?**\
 `Where does Kempe fit into a skyrocketing NHL salary cap environment?`\
 https://nytimes.com/athletic/6686084/2025/10/04/adrian-kempe-kings-contract-million/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/04/business/dealbook/your-wealthiest-friend-has-a-pr
 **For the New Archbishop of Canterbury, Nursing Roots Could Bring a Pastoral Sensibility**\
 `As bishop of London, Sarah Mullally placed herself in the middle of the church’s most charged issues. But experts predict that her years treating cancer patients could inform how she approaches her new role.`\
 https://nytimes.com/2025/10/04/world/europe/sarah-mullally-archbishop-of-canterbury.html
-
-**Mercury star Alyssa Thomas won't be defined by missed free throws, but by how she responds**\
-`Thomas shoulders the burden of powering the Mercury to a championship. Falling in Game 1 might only fuel her.`\
-https://nytimes.com/athletic/6688702/2025/10/04/alyssa-thomas-missed-free-throws-wnba-finals/
 
