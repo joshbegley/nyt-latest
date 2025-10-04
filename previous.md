@@ -1,3 +1,7 @@
+**Vollering wins European Championship road race after 37km solo attack**\
+`The Dutchwoman earned her 11th victory of the 2025 season after a decisive move on the Cote de Saint-Romain-de Lerps climb.`\
+https://nytimes.com/athletic/6689011/2025/10/04/demi-vollering-european-championship-cycling/
+
 **Synagogue Attack Increases Pressure on Starmer in the U.K.**\
 `The prime minister vowed to rid the Labour Party of antisemitism. But a competing political reality, activist anger over the war in Gaza, has complicated that effort.`\
 https://nytimes.com/2025/10/04/world/europe/manchester-synagogue-palestine-antisemitism-starmer-labour-party.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/04/world/europe/ivan-klima-dead.html
 **WATCH:A Brock Purdy strength has turned into a weakness this season**\
 `This three-play sequence shows how it's supposed to look for the offense, and how it's looked at other points in the season.`\
 https://nytimes.com/athletic/6687284/2025/10/04/brock-purdy-49ers-analysis-interception/
-
-**Brilliant George Russell takes Singapore pole but Max Verstappen unhappy with Lando Norris**\
-`George Russell was impressive in qualifying, while Max Verstappen seemed unhappy with a struggling Lando Norris`\
-https://nytimes.com/athletic/6688856/2025/10/04/singapore-grand-prix-qualifying-george-russell-pole/
 
