@@ -1,3 +1,7 @@
+**Who Still Has Temporary Protected Status?**\
+`Conflicting court rulings have plunged hundreds of thousands of people with temporary protection from deportation into uncertainty.`\
+https://nytimes.com/2025/10/04/us/politics/temporary-protected-status-scotus.html
+
 **Middle East Updates: Israel and Hamas Signal Readiness to Accept Parts of Trump’s Gaza Plan**\
 `Significant gaps remain to be negotiated. Israel said it would cooperate with the White House to end the war, but much is still unclear about Hamas’s future and whether it will agree to disarm.`\
 https://nytimes.com/live/2025/10/04/world/israel-hamas-gaza-trump
