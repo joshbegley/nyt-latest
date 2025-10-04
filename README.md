@@ -1,3 +1,7 @@
+**Democrats Lost the Debate on Immigration. Unless You Ask Senator Alex Padilla.**\
+`The California politician on his “wake-up call” at an earlier moment of political upheaval, and the one he’s experiencing today.`\
+https://nytimes.com/2025/10/04/magazine/alex-padilla-interview.html
+
 **The Sprint for City Hall: What Happened This Week in the NYC Mayoral Race**\
 `Mayor Eric Adams’s exit from the race may have helped former Gov. Andrew Cuomo, but it’s clear he has much work to do.`\
 https://nytimes.com/card/2025/10/04/nyregion/newyorktoday/nyc-mayor-adams-mamdani
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/04/style/reading-rainbow-mychal-threets-interview.ht
 **Sean Combs Now Faces Not Just Prison and a Fine, but Shunning**\
 `Many who have tracked the music mogul’s career think his reputation has been irreparably damaged by testimony that cast him as an abusive boss and boyfriend.`\
 https://nytimes.com/2025/10/04/arts/music/sean-combs-diddy-sentenced-prison.html
-
-**The Tech Jester Who Pranks San Francisco**\
-`Riley Walz, 23, has gained fame for his online antics. His latest stunt has upset city officials.`\
-https://nytimes.com/2025/10/04/us/the-tech-jester-who-pranks-san-francisco.html
 
