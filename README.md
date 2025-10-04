@@ -1,3 +1,7 @@
+**Baby Steps**\
+`Ryan McCarty spins up another quick-witted themeless puzzle.`\
+https://nytimes.com/2025/10/03/crosswords/daily-puzzle-2025-10-04.html
+
 **Man Drives Car Onto Sidewalk Outside L.A. City Hall, Barricading Himself Inside**\
 `A man in a vehicle displaying a handwritten sign referring to President Trump refused to exit his car as the authorities shut down surrounding streets. The man was taken into custody.`\
 https://nytimes.com/2025/10/03/us/la-city-hall-car.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/03/us/politics/partisan-emails-education-dept-worker
 **Dodger Details: Lingering questions ahead of NLDS against the Phillies**\
 `Shohei Ohtani preps for his Game 1 start, a Will Smith health update, the outlook for Clayton Kershaw and more news in advance of the NLDS.`\
 https://nytimes.com/athletic/6688125/2025/10/03/dodgers-phillies-nlds-shohei-ohtani-start/
-
-**Luke Evangelista signs 2-year, $3 million AAV contract with Predators: Sources**\
-`Evangelista, who was the NHL's last remaining unsigned RFA, had 10 goals and 22 assists in 68 games last season.`\
-https://nytimes.com/athletic/6682256/2025/10/03/luke-evangelista-contract-predators/
 
