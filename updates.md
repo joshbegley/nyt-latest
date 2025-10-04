@@ -1,3 +1,11 @@
+**Netanyahu Defends Wartime Leadership, Saying Hostage Deal Is Within Reach**\
+`In a speech that lasted just minutes, the Israeli prime minister boasted that he had defied his critics to secure the release of the remaining hostages in Gaza.`\
+https://nytimes.com/2025/10/04/world/middleeast/netanyahu-defends-wartime-leadership-saying-hostage-deal-is-within-reach.html
+
+**Liverpool's Konate taken off due to quad injury, Slot says**\
+`Andy Robertson caused another concern to Slot's back line as he was limping heavily after a blow to the shin during their 2-1 loss.`\
+https://nytimes.com/athletic/6689808/2025/10/04/ibrahima-konate-liverpool-injury-slot/
+
 **After illness, Giannis Antetokounmpo joins Bucks at training camp, practices**\
 `The two-time NBA MVP who was sidelined with COVID-19 did a light workout with the Bucks in Miami. "I'm not feeling 100 percent yet."`\
 https://nytimes.com/athletic/6689723/2025/10/04/giannis-antetokounmpo-bucks-practice-training-camp/
