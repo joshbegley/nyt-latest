@@ -1,3 +1,7 @@
+**2 Children Are Dead and 2 Are in Critical Condition in Texas Shooting**\
+`A 13-year-old and 4-year-old were killed, officials said. A 9-year-old and 8-year-old were airlifted for medical care and were in critical condition.`\
+https://nytimes.com/2025/10/04/us/texas-shooting-children.html
+
 **Sean Combs Sentenced to More Than 4 Years in Prison**\
 `Sean Combs, the fallen hip-hop mogul, was sentenced to more than four years in prison for prostitution-related offenses. Ben Sisario, a New York Times reporter covering music and the music industry, explains the sentence.`\
 https://nytimes.com/video/nyregion/100000010435193/sean-combs-sentenced-to-more-than-4-years-in-prison.html
