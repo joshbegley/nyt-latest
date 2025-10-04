@@ -1,3 +1,7 @@
+**The Mark Stoops dilemma: Is it time to move on, or are the coach and Kentucky stuck?**\
+`The results sure make it seem like it’s over. The money, on the other hand, makes it hard to see Kentucky making a move.`\
+https://nytimes.com/athletic/6689909/2025/10/04/kentucky-football-mark-stoops-georgia/
+
 **Hamas Partially Accepts Trump’s Peace Plan**\
 `Hamas said it would release all Israeli hostages but wants to negotiate elements of President Trump’s peace plan for Gaza. Adam Rasgon, a reporter for The New York Times in Jerusalem, explains where negotiations stand.`\
 https://nytimes.com/video/world/middleeast/100000010438653/hamas-partially-accepts-trumps-peace-plan.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6689866/2025/10/04/mariners-playoff-roster-alds-bry
 **Belva Davis, West Coast Trailblazer in TV News, Dies at 92**\
 `Overcoming poverty and prejudice, she was the first Black woman to be hired as a television reporter in the region and later became a popular anchor.`\
 https://nytimes.com/2025/10/04/business/media/belva-davis-dead.html
-
-**Why Flyers training camp was underwhelming in one important way**\
-`The young prospects expected to compete for several open spots in the lineup didn't make an impact. What does it indicate about the future?`\
-https://nytimes.com/athletic/6688364/2025/10/04/flyers-training-camp-prospects-nhl-preseason/
 

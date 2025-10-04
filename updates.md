@@ -1,3 +1,7 @@
+**Hamas Partially Accepts Trump’s Peace Plan**\
+`Hamas said it would release all Israeli hostages but wants to negotiate elements of President Trump’s peace plan for Gaza. Adam Rasgon, a reporter for The New York Times in Jerusalem, explains where negotiations stand.`\
+https://nytimes.com/video/world/middleeast/100000010438653/hamas-partially-accepts-trumps-peace-plan.html
+
 **How to watch Yankees at Blue Jays: Game 1 Time, TV, streaming**\
 `Find out how to watch the New York Yankees play the Toronto Blue Jays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6689938/2025/10/04/yankees-vs-blue-jays-stream-how-to-watch-oct-5/
