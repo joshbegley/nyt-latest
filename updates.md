@@ -1,3 +1,11 @@
+**Mateta's first France call-up is a reward for putting Palace first**\
+`After improving dramatically over the last two seasons, the Palace striker is being recognised as much for his hard work as his goalscoring`\
+https://nytimes.com/athletic/6684616/2025/10/04/mateta-france-crystal-palace-deschamps/
+
+**Doku 2.0: Unrivalled dribbling, more freedom and extra training with Haaland**\
+`The Manchester City winger had lacked an end product, but his decision-making has improved notably this season`\
+https://nytimes.com/athletic/6680366/2025/10/04/jeremy-doku-manchester-city-pep-guardiola/
+
 **The '007' insult: What is it and why is it an unfair way to judge new players?**\
 `No goals and no assists after seven games has become a social-media marker of a transfer failure but it is no way to judge a player`\
 https://nytimes.com/athletic/6682769/2025/10/04/007-wirtz-slow-starts/
