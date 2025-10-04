@@ -1,3 +1,7 @@
+**Who Still Has Temporary Protected Status?**\
+`Conflicting court rulings have plunged hundreds of thousands of people with temporary protection from deportation into uncertainty.`\
+https://nytimes.com/2025/10/04/us/politics/temporary-protected-status-scotus.html
+
 **Middle East Updates: Israel and Hamas Signal Readiness to Accept Parts of Trump’s Gaza Plan**\
 `Significant gaps remain to be negotiated. Israel said it would cooperate with the White House to end the war, but much is still unclear about Hamas’s future and whether it will agree to disarm.`\
 https://nytimes.com/live/2025/10/04/world/israel-hamas-gaza-trump
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/04/us/politics/trump-gaza-diplomacy.html
 **It’s Chili Weather**\
 `And this reader-favorite slow cooker chili is ready when you are.`\
 https://nytimes.com/2025/10/04/dining/its-chili-weather.html
-
-**Who Is Donald Trump Responsible To?**\
-`Trump’s exclusionary view of the country strains the bonds of union.`\
-https://nytimes.com/2025/10/04/opinion/trump-responsible-president-job-military.html
 
