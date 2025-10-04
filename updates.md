@@ -1,3 +1,7 @@
+**Brewers' Jackson Chourio exits NL Division Series Game 1 with apparent injury**\
+`The 21-year-old leadoff hitter and aspiring face of Milwaukee’s franchise, missed most of August after suffering a right hamstring strain.`\
+https://nytimes.com/athletic/6689744/2025/10/04/brewers-cubs-jackson-chourio-early-exit/
+
 **Lakers struggle in preseason debut but JJ Redick says, ‘We’ll get there’: 5 observations**\
 `The Lakers showed effort on the glass and flashes from Reaves and Vanderbilt, but couldn't find a rhythm in their first preseason game.`\
 https://nytimes.com/athletic/6688822/2025/10/04/lakers-suns-preseason-opener/

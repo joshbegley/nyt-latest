@@ -1,3 +1,7 @@
+**Brewers' Jackson Chourio exits NL Division Series Game 1 with apparent injury**\
+`The 21-year-old leadoff hitter and aspiring face of Milwaukee’s franchise, missed most of August after suffering a right hamstring strain.`\
+https://nytimes.com/athletic/6689744/2025/10/04/brewers-cubs-jackson-chourio-early-exit/
+
 **Lakers struggle in preseason debut but JJ Redick says, ‘We’ll get there’: 5 observations**\
 `The Lakers showed effort on the glass and flashes from Reaves and Vanderbilt, but couldn't find a rhythm in their first preseason game.`\
 https://nytimes.com/athletic/6688822/2025/10/04/lakers-suns-preseason-opener/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6689428/2025/10/04/sf-giants-offseason-mailbagg-que
 **Ex-Prime Minister Set to Return to Power in Czech Republic**\
 `The party of Andrej Babis, a billionaire and a skeptic of military support to Ukraine, prevailed in parliamentary elections by focusing on the economy.`\
 https://nytimes.com/2025/10/04/world/europe/ex-prime-minister-set-to-return-to-power-in-czech-republic.html
-
-**2 Children Are Dead and 2 Are in Critical Condition in Texas Shooting**\
-`A 13-year-old and 4-year-old were killed, officials said. A 9-year-old and 8-year-old were airlifted for medical care and were in critical condition.`\
-https://nytimes.com/2025/10/04/us/texas-shooting-children.html
 

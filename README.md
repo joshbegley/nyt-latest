@@ -1,5 +1,9 @@
+**Clemson routs UNC in latest blowout loss for Tar Heels under Bill Belichick**\
+`In three games against Power 4 competition, UNC has yet to be competitive, losing by 34, 25 and 28 points.`\
+https://nytimes.com/athletic/6689607/2025/10/04/clemson-unc-score-result/
+
 **Brewers' Jackson Chourio exits NL Division Series Game 1 with apparent injury**\
-`The 21-year-old leadoff hitter and aspiring face of Milwaukee’s franchise, missed most of August after suffering a right hamstring strain.`\
+`The 21-year-old leadoff hitter and aspiring face of Milwaukee’s franchise missed most of August after suffering a right hamstring strain.`\
 https://nytimes.com/athletic/6689744/2025/10/04/brewers-cubs-jackson-chourio-early-exit/
 
 **Lakers struggle in preseason debut but JJ Redick says, ‘We’ll get there’: 5 observations**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6662091/2025/10/04/nhl-waivers-tracker-preseason-20
 **Submit your questions for Andrew Baggarly's upcoming Giants Mailbagg**\
 `Giants beat writer Andrew Baggarly will answer questions from subscribers. How will Buster Posey reshape the team after a .500 season?`\
 https://nytimes.com/athletic/6689428/2025/10/04/sf-giants-offseason-mailbagg-questions/
-
-**Ex-Prime Minister Set to Return to Power in Czech Republic**\
-`The party of Andrej Babis, a billionaire and a skeptic of military support to Ukraine, prevailed in parliamentary elections by focusing on the economy.`\
-https://nytimes.com/2025/10/04/world/europe/ex-prime-minister-set-to-return-to-power-in-czech-republic.html
 
