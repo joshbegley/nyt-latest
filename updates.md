@@ -1,3 +1,15 @@
+**The Briefing: Chelsea 2 Liverpool 1 - Estevao winner, Caicedo's stunner, third defeat in a row for Slot's side**\
+`Estevao gave Chelsea a late 2-1 win over Liverpool at Stamford Bridge - our writers break down the key talking points.`\
+https://nytimes.com/athletic/6682828/2025/10/04/chelsea-liverpool-premier-league-result-estavao/
+
+**NHL waiver tracker: Best players on the wire throughout 2025-26 preseason**\
+`Corey Pronman and Harman Dayal provide analysis of the top players placed on waivers as the regular season approaches.`\
+https://nytimes.com/athletic/6662091/2025/10/04/nhl-waivers-tracker-preseason-2025/
+
+**Jane Goodall Taught You How to ‘Look’**\
+`The conservationist used her own style to reveal the hidden lives of animals, to reveal that they, too, had style: individuality, identities, quirks and foibles.`\
+https://nytimes.com/2025/10/04/style/jane-goodall-fashion.html
+
 **Submit your questions for Andrew Baggarly's upcoming Giants Mailbagg**\
 `Giants beat writer Andrew Baggarly will answer questions from subscribers. How will Buster Posey reshape the team after a .500 season?`\
 https://nytimes.com/athletic/6689428/2025/10/04/sf-giants-offseason-mailbagg-questions/
