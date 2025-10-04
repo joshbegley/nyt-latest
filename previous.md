@@ -1,3 +1,7 @@
+**Lakers struggle in preseason debut but JJ Redick says, ‘We’ll get there’: 5 observations**\
+`The Lakers showed effort on the glass and flashes from Reaves and Vanderbilt, but couldn't find a rhythm in their first preseason game.`\
+https://nytimes.com/athletic/6688822/2025/10/04/lakers-suns-preseason-opener/
+
 **Guardiola voices support for pro-Gazan demonstration in Barcelona**\
 `This is not the first time Guardiola has shared his views on the conflict as he said in June: "It's so painful what we see in Gaza."`\
 https://nytimes.com/athletic/6688809/2025/10/04/guardiola-gaza-israel-palestine-news/
@@ -10,7 +14,7 @@ https://nytimes.com/2025/10/04/us/federal-agent-shooting-chicago.html
 `Fox Sports, for whom Sanchez works as a broadcaster, said he was injured during an incident on Saturday.`\
 https://nytimes.com/athletic/6689578/2025/10/04/mark-sanchez-news-injury-stabbed-indianapolis/
 
-**Mark Sanchez, Ex-N.F.L. Quarterback, Is Hospitalized After Injury**\
+**Mark Sanchez, Ex-N.F.L. Quarterback, Is Injured in Stabbing**\
 `Fox Sports, the network where Mr. Sanchez works as a commentator, said he was in stable condition.`\
 https://nytimes.com/2025/10/04/us/mark-sanchez-stabbing.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/04/world/europe/ex-prime-minister-set-to-return-to-p
 **2 Children Are Dead and 2 Are in Critical Condition in Texas Shooting**\
 `A 13-year-old and 4-year-old were killed, officials said. A 9-year-old and 8-year-old were airlifted for medical care and were in critical condition.`\
 https://nytimes.com/2025/10/04/us/texas-shooting-children.html
-
-**Sean Combs Sentenced to More Than 4 Years in Prison**\
-`Sean Combs, the fallen hip-hop mogul, was sentenced to more than four years in prison for prostitution-related offenses. Ben Sisario, a New York Times reporter covering music and the music industry, explains the sentence.`\
-https://nytimes.com/video/nyregion/100000010435193/sean-combs-sentenced-to-more-than-4-years-in-prison.html
 

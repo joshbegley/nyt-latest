@@ -1,3 +1,11 @@
+**Lakers struggle in preseason debut but JJ Redick says, ‘We’ll get there’: 5 observations**\
+`The Lakers showed effort on the glass and flashes from Reaves and Vanderbilt, but couldn't find a rhythm in their first preseason game.`\
+https://nytimes.com/athletic/6688822/2025/10/04/lakers-suns-preseason-opener/
+
+**Mark Sanchez, Ex-N.F.L. Quarterback, Is Injured in Stabbing**\
+`Fox Sports, the network where Mr. Sanchez works as a commentator, said he was in stable condition.`\
+https://nytimes.com/2025/10/04/us/mark-sanchez-stabbing.html
+
 **Guardiola voices support for pro-Gazan demonstration in Barcelona**\
 `This is not the first time Guardiola has shared his views on the conflict as he said in June: "It's so painful what we see in Gaza."`\
 https://nytimes.com/athletic/6688809/2025/10/04/guardiola-gaza-israel-palestine-news/
