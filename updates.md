@@ -1,3 +1,7 @@
+**Synagogue Attack Increases Pressure on Starmer in the U.K.**\
+`The prime minister vowed to rid the Labour Party of antisemitism. But a competing political reality, activist anger over the war in Gaza, has complicated that effort.`\
+https://nytimes.com/2025/10/04/world/europe/manchester-synagogue-palestine-antisemitism-starmer-labour-party.html
+
 **Blue Jays leave Bo Bichette, Max Scherzer and Chris Bassitt off ALDS roster**\
 `The Jays will enter their season-defining matchup against the Yankees without their star shortstop and veteran starters.`\
 https://nytimes.com/athletic/6689208/2025/10/04/blue-jays-bichette-scherzer-bassitt-alds-roster/
