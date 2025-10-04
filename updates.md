@@ -1,3 +1,7 @@
+**How to watch Yankees at Blue Jays: Game 1 Time, TV, streaming**\
+`Find out how to watch the New York Yankees play the Toronto Blue Jays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6689938/2025/10/04/yankees-vs-blue-jays-stream-how-to-watch-oct-5/
+
 **All Too Wise**\
 `John Kugelman’s puzzle asks a lot of tough questions.`\
 https://nytimes.com/2025/10/04/crosswords/daily-puzzle-2025-10-05.html
