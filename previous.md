@@ -1,40 +1,40 @@
-**An American Way of Dress**\
-`At Loewe, Jack McCollough and Lazaro Hernandez celebrated the art of sportswear.`\
-https://nytimes.com/2025/10/04/style/loewe-schiaparelli-spring-2026.html
+**Trump Seizes On Shutdown to Punish Political Foes**\
+`The White House has cut or paused billions in funding to Democratic-run cities and states since the federal government came to a halt.`\
+https://nytimes.com/2025/10/04/us/politics/trump-shutdown-punish-foes.html
 
-**Amanda Anisimova rolls over Coco Gauff at China Open with main-character display**\
-`Gauff, one of the best defenders on the WTA Tour, had no answer to Anisimova's attack.`\
-https://nytimes.com/athletic/6688625/2025/10/04/amanda-anisimova-coco-gauff-china-open-result-analysis/
+**Partisan Shutdown Messages Could Hurt Civil Service, Experts Warn**\
+`Messages on official government channels blaming Democrats for the shutdown are one of the most significant hits yet to the longstanding wall between federal workers and politics, historians said.`\
+https://nytimes.com/2025/10/04/us/politics/partisan-messages-shutdown-trump.html
 
-**Israel Says It Will Work With Trump Gaza Plan; Hamas Says It Will Release Hostages**\
-`Prime Minister Benjamin Netanyahu said Israel was ready to work with the White House to end the war, but questions remain about Hamas’s future in Gaza and whether it will agree to disarm.`\
-https://nytimes.com/2025/10/04/world/middleeast/israel-hamas-trump-netanyahu.html
+**Breaking Down Taylor Swift’s ‘The Life of a Showgirl’**\
+`For a rapid-response episode of Popcast, we journeyed track-by-track through the pop star’s new album, assessing the highs, lows and hot gossip.`\
+https://nytimes.com/2025/10/04/arts/music/taylor-swift-showgirl-popcast.html
 
-**Mamdani Is More Foe Than Friend in the Suburbs, Even Among Democrats**\
-`Just outside New York City, Republicans are using Zohran Mamdani as an attack line for the 2026 midterms, much as they vilified the city in 2022.`\
-https://nytimes.com/2025/10/04/nyregion/mamdani-suburbs-voters-republicans.html
+**How a Chaotic ‘Network’-Style Outburst Plays Out in ‘Weather Girl’**\
+`In this dark comedy about climate change, a meteorologist meant to maintain a “happy voice” can no longer reassure viewers that it’s going to be all right.`\
+https://nytimes.com/2025/10/04/theater/weather-girl-st-anns-warehouse.html
 
-**In Central Park, Pedestrians, Horses and E-Bikes Battle for Space**\
-`Critics say the park’s drives have become increasingly chaotic as e-bike riders move through at high speeds.`\
-https://nytimes.com/2025/10/04/nyregion/central-park-e-bikes-walking.html
+**Discount Airlines Changed Flying. Now They’re in Trouble.**\
+`Carriers like Spirit and Frontier have lost customers to bigger competitors and seen their costs balloon. Some are in financial distress.`\
+https://nytimes.com/2025/10/04/business/spirit-frontier-low-cost-airlines.html
 
-**How a LaGuardia Airport Chief Spends Her Day Beyond T.S.A.**\
-`Suzette Noble wakes up to the sound of airplanes taking off, then makes time for her children and cheesecake as she strolls around the airport all day.`\
-https://nytimes.com/2025/10/04/nyregion/suzette-noble-laguardia-airport.html
+**In the Far North, Canada Post Is Not Just the Mail. It’s a Lifeline.**\
+`A strike, and growing prospects of drastic cuts to the state-owned postal service, make life very hard for Canada’s remote communities.`\
+https://nytimes.com/2025/10/04/world/canada/canada-post-strike-fort-simpson.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/10/04/crosswords/spelling-bee-forum.html
+**‘Reading Rainbow’ Comes Back With a New Host, but the Same Mission**\
+`The popular children’s television show has returned, with Mychal Threets trying to recapture the magic of the original show for a streaming audience.`\
+https://nytimes.com/2025/10/04/style/reading-rainbow-mychal-threets-interview.html
 
-**Is Antoine Semenyo the best player in the Premier League right now?**\
-`The Bournemouth player is equally threatening with his left and right feet, as Fulham found out on Friday night `\
-https://nytimes.com/athletic/6688284/2025/10/04/antoine-semenyo-premier-league-bournemouth/
+**Sean Combs Now Faces Not Just Prison and a Fine, but Shunning**\
+`Many who have tracked the music mogul’s career think his reputation has been irreparably damaged by testimony that cast him as an abusive boss and boyfriend.`\
+https://nytimes.com/2025/10/04/arts/music/sean-combs-diddy-sentenced-prison.html
 
-**Japan Set for First Female Prime Minister**\
-`Sanae Takaichi, a hard-line conservative, was elected as leader by Japan’s governing party, paving the way for her to become prime minister of the coalition government.`\
-https://nytimes.com/2025/10/04/world/asia/japan-female-leader.html
+**The Tech Jester Who Pranks San Francisco**\
+`Riley Walz, 23, has gained fame for his online antics. His latest stunt has upset city officials.`\
+https://nytimes.com/2025/10/04/us/the-tech-jester-who-pranks-san-francisco.html
 
-**How to watch Tigers at Mariners: Game 1 Time, TV, streaming**\
-`Find out how to watch the Detroit Tigers play the Seattle Mariners, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6688509/2025/10/04/how-to-watch-tigers-vs-mariners-game-1-tv-channel-and-streaming-options-for-october-4/
+**A Freeze on Medicaid Payments Is Forcing Cuts to Rural Health Care**\
+`The Trump administration has cut off funding for certain providers around the country whose offerings include abortion. Patients in Maine are among those who will feel the fallout.`\
+https://nytimes.com/2025/10/04/us/medicaid-cuts-trump-maine-clinics.html
 
