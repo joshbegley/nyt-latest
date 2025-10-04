@@ -1,3 +1,11 @@
+**Mateta's first France call-up is a reward for putting Palace first**\
+`After improving dramatically over the last two seasons, the Palace striker is being recognised as much for his hard work as his goalscoring`\
+https://nytimes.com/athletic/6684616/2025/10/04/mateta-france-crystal-palace-deschamps/
+
+**Doku 2.0: Unrivalled dribbling, more freedom and extra training with Haaland**\
+`The Manchester City winger had lacked an end product, but his decision-making has improved notably this season`\
+https://nytimes.com/athletic/6680366/2025/10/04/jeremy-doku-manchester-city-pep-guardiola/
+
 **The '007' insult: What is it and why is it an unfair way to judge new players?**\
 `No goals and no assists after seven games has become a social-media marker of a transfer failure but it is no way to judge a player`\
 https://nytimes.com/athletic/6682769/2025/10/04/007-wirtz-slow-starts/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6687904/2025/10/04/connections-sports-edition-hints
 **Corrections: Oct. 4, 2025**\
 `Corrections that appeared in print on Saturday, Oct. 4, 2025.`\
 https://nytimes.com/2025/10/04/pageoneplus/corrections-oct-4-2025.html
-
-**Quote of the Day: Worshipers Grappling With Shock and Anger After Manchester Attack**\
-`Quotation of the Day for Saturday, October 4, 2025.`\
-https://nytimes.com/2025/10/03/pageoneplus/quote-of-the-day-worshipers-grappling-with-shock-and-anger-after-manchester-attack.html
-
-**WNBA Finals: Las Vegas Aces take Game 1 with comeback victory against Phoenix Mercury**\
-`The Aces' reserves made the difference in the series opener. `\
-https://nytimes.com/athletic/6688341/2025/10/03/wnba-finals-las-vegas-aces-comeback-game-1/
 

@@ -1,3 +1,15 @@
+**The '007' insult: What is it and why is it an unfair way to judge new players?**\
+`No goals and no assists after seven games has become a social-media marker of a transfer failure but it is no way to judge a player`\
+https://nytimes.com/athletic/6682769/2025/10/04/007-wirtz-slow-starts/
+
+**Why do footballers spit?**\
+`Many players think nothing of spitting multiple times during a game. It does not happen in lots of other sports, so what is going on?`\
+https://nytimes.com/athletic/6210158/2025/10/04/why-do-footballers-spit/
+
+**Mikel Arteta, nearly 300 games in charge of Arsenal, and a quest for the 'extraordinary'**\
+`Saturday's game against with West Ham will be Arteta's 300th as Arsenal manager. The club are unrecognisable from the day his journey began`\
+https://nytimes.com/athletic/6686811/2025/10/04/mikel-arteta-arsenal-manager-300-games/
+
 **Chelsea vs Liverpool preview: New signings, rotation woes, rivalry and predictions**\
 `The Premier League and Club World Cup champions meet in the English top flight on Saturday. Two of our experts have previewed the match...`\
 https://nytimes.com/athletic/6686404/2025/10/04/chelsea-liverpool-preview-predictions/
