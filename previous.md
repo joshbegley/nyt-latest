@@ -1,3 +1,11 @@
+**Best Intentions**\
+`Everyone’s “intentional” these days, but don’t let the word’s wholesale application to every activity of modern life deprive you of its benefits.`\
+https://nytimes.com/2025/10/04/briefing/best-intentions.html
+
+**Yohe's 10 observations: Penguins' preseason finale produces more lineup questions**\
+`The Penguins have some tough decisions to make after the impressive play of their youngsters in a 5-4 win over Buffalo on Friday.`\
+https://nytimes.com/athletic/6688357/2025/10/04/penguins-sabres-preseason-nhl-lineup/
+
 **Five keys to Bo Nix and the Broncos authoring an upset in marquee matchup vs. Eagles**\
 `The Broncos' will need to be stout on the interior of the offensive line against mammoth D-lineman Jordan Davis.`\
 https://nytimes.com/athletic/6686868/2025/10/04/broncos-eagles-jk-dobbins-bo-nix-sean-payton/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6687023/2025/10/04/college-football-week-6-preview-
 **I’m a Screenwriter. Is It All Right if I Use A.I.?**\
 `This new tool has been a game changer.`\
 https://nytimes.com/2025/10/04/magazine/magazine-email/screenwriter-ai-ethics.html
-
-**What You Want to See Emerge from the Canada Post Walkout**\
-`Newsletter readers shared their thoughts about the future of Canada’s postal service.`\
-https://nytimes.com/2025/10/04/world/canada/canada-post-mail-strike.html
-
-**Wordle Review No. 1,569**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 5, 2025.`\
-https://nytimes.com/2025/10/04/crosswords/wordle-review-1569.html
 
