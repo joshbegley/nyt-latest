@@ -1,3 +1,7 @@
+**Arsenal duo Odegaard, Rice need more assessment after injuries - Arteta**\
+`Both players had been called up to their national teams before being forced off during their 2-0 win against West Ham.`\
+https://nytimes.com/athletic/6689420/2025/10/04/martin-odegaard-arsenal-injury-declan-rice/
+
 **Russian Drones Hit 2 Passenger Trains, Ukraine Says**\
 `The drone strikes killed at least one person and injured dozens of others, officials said. The attack came amid rising alarm about the status of a nuclear plant relying solely on generators.`\
 https://nytimes.com/2025/10/04/world/europe/ukraine-russia-train-drones.html
