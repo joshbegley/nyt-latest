@@ -1,3 +1,15 @@
+**Why Flyers training camp was underwhelming in one important aspect**\
+`Flyers training camp was underwhelming in regard to the lack of impact from young prospects. What does it indicate about the future?`\
+https://nytimes.com/athletic/6688364/2025/10/04/flyers-training-camp-prospects-nhl-preseason/
+
+**At a Protest for a Deal, Israelis Wrestle With a Mix of Emotions**\
+`Along with optimism that President Trump can lock Israel and Hamas into a deal, many expressed anxiety about being disappointed once more.`\
+https://nytimes.com/2025/10/04/world/middleeast/israel-protest-hostages-tel-aviv.html
+
+**Netanyahu Defends Wartime Leadership, Saying Hostage Deal Is Within Reach**\
+`In a speech that lasted just minutes, the Israeli prime minister boasted that he had defied his critics to secure the release of the remaining hostages in Gaza.`\
+https://nytimes.com/2025/10/04/world/middleeast/israel-gaza-war-hostage-deal-netanyahu.html
+
 **Netanyahu Defends Wartime Leadership, Saying Hostage Deal Is Within Reach**\
 `In a speech that lasted just minutes, the Israeli prime minister boasted that he had defied his critics to secure the release of the remaining hostages in Gaza.`\
 https://nytimes.com/2025/10/04/world/middleeast/netanyahu-defends-wartime-leadership-saying-hostage-deal-is-within-reach.html
