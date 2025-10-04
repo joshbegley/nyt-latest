@@ -1,3 +1,7 @@
+**College Football Playoff 2025 projections: Where the bracket stands as Week 6 begins**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/10/04/college-football-playoff-bracket-projections-odds/
+
 **Texas-Florida takeaways: Gators wreak havoc on Manning to down No. 9 Longhorns**\
 `It might sound crazy, but there is no reason the Gators can’t be a factor in what’s looking like a wide-open SEC race.`\
 https://nytimes.com/athletic/6689890/2025/10/04/florida-texas-score-result-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6689924/2025/10/04/braves-manager-search-alex-antho
 **Former Portsmouth, Leicester City owner Mandaric dies at 87**\
 `Mandaric also saw success as the first owner of the San Jose Earthquakes, where George Best later played.`\
 https://nytimes.com/athletic/6689930/2025/10/04/milan-mandaric-portsmouth-leicester-city-dies/
-
-**Kristi Noem Says ICE Will Be ‘All Over’ the Super Bowl**\
-`The homeland security secretary told a podcaster that immigration agents would be at the N.F.L. event, where Bad Bunny, a Puerto Rican rapper and Trump critic, will perform.`\
-https://nytimes.com/2025/10/04/arts/ice-bad-bunny-super-bowl.html
 
