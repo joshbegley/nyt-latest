@@ -1,3 +1,15 @@
+**Blue Jays leave Bo Bichette, Max Scherzer and Chris Bassitt off ALDS roster**\
+`The Jays will enter their season-defining matchup against the Yankees without their star shortstop and veteran starters.`\
+https://nytimes.com/athletic/6689208/2025/10/04/blue-jays-bichette-scherzer-bassitt-alds-roster/
+
+**Man Taken Into Custody After Driving Onto Sidewalk Outside Los Angeles City Hall**\
+`In a two-hour standoff, Los Angeles police officers sought to make contact with the driver, who appeared to be suffering a mental health crisis.`\
+https://nytimes.com/video/us/100000010439395/los-angeles-city-hall-car-crash.html
+
+**Trump’s Approach on Gaza: Deal First, Details Later**\
+`“We’ll see how it all turns out,” President Trump said after Hamas agreed to portions of his cease-fire plan, with conditions.`\
+https://nytimes.com/2025/10/04/us/politics/trump-gaza-diplomacy.html
+
 **It’s Chili Weather**\
 `And this reader-favorite slow cooker chili is ready when you are.`\
 https://nytimes.com/2025/10/04/dining/its-chili-weather.html
