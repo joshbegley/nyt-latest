@@ -1,3 +1,15 @@
+**UCLA shocks No. 7 Penn State for first win after 0-4 start**\
+`Previously winless UCLA shocked No. 7 Penn State 42-37 on Saturday afternoon at the Rose Bowl behind Nico Iamaleava's five touchdowns.`\
+https://nytimes.com/athletic/6689923/2025/10/04/ucla-penn-state-score-result-football/
+
+**Alex Anthopoulos on the Braves' managerial search: 'Integrity is a must'**\
+`Integrity is what endeared Brian Snitker to Anthopoulos, and it is the quality the GM will be looking for in Snitker's replacement.`\
+https://nytimes.com/athletic/6689924/2025/10/04/braves-manager-search-alex-anthopoulos/
+
+**The Mark Stoops dilemma: Is it time to move on, or are the coach and Kentucky stuck?**\
+`The results sure make it seem like it's over. The money, on the other hand, makes it hard to see Kentucky making a move.`\
+https://nytimes.com/athletic/6689909/2025/10/04/kentucky-football-mark-stoops-georgia/
+
 **Former Portsmouth, Leicester City owner Mandaric dies at 87**\
 `Mandaric also saw success as the first owner of the San Jose Earthquakes, where George Best later played.`\
 https://nytimes.com/athletic/6689930/2025/10/04/milan-mandaric-portsmouth-leicester-city-dies/
