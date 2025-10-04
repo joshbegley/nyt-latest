@@ -1,3 +1,7 @@
+**In Taylor’s Version, Ophelia Has a Fairy-Tale Ending**\
+`Taylor Swift reimagines the fate of the tragic “Hamlet” heroine on her new album, “The Life of a Showgirl.” But did she really need saving?`\
+https://nytimes.com/2025/10/04/arts/music/taylor-swift-fate-of-ophelia.html
+
 **Arsenal duo Odegaard, Rice need more assessment after injuries - Arteta**\
 `Both players had been called up to their national teams before being forced off during their 2-0 win against West Ham.`\
 https://nytimes.com/athletic/6689420/2025/10/04/martin-odegaard-arsenal-injury-declan-rice/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/10/04/world/israel-hamas-gaza-trump
 **The Briefing: Man Utd 2 Sunderland 0 - How did Lammens do? Are long throws a new weapon? Should Mount get more starts?**\
 `Mark Critchley breaks down the key moments from United's win against Sunderland `\
 https://nytimes.com/athletic/6682777/2025/10/04/man-utd-sunderland-premier-league-analysis/
-
-**The Briefing: Arsenal 2 West Ham 0 - Saka marks 200th league game and Calafiori justifies status**\
-`Arsenal have climbed to first place in the Premier League courtesy of a comfortable home win over West Ham`\
-https://nytimes.com/athletic/6682728/2025/10/04/arsenal-west-ham-score-result-report-analysis/
 
