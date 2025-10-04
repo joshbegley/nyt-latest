@@ -1,3 +1,15 @@
+**After illness, Giannis Antetokounmpo joins Bucks at training camp, practices**\
+`The two-time NBA MVP who was sidelined with COVID-19 did a light workout with the Bucks in Miami. "I'm not feeling 100 percent yet."`\
+https://nytimes.com/athletic/6689723/2025/10/04/giannis-antetokounmpo-bucks-practice-training-camp/
+
+**Kane 'fine' for England duty after limping off during Bayern win**\
+`The 32-year-old scored in the first half of his side's 3-0 win against Eintracht Frankfurt, but was substituted following a collision. `\
+https://nytimes.com/athletic/6689743/2025/10/04/harry-kane-england-bayern-munich-injury/
+
+**Brewers' Jackson Chourio (right hamstring tightness) exits NLDS Game 1 early**\
+`The 21-year-old leadoff hitter and aspiring face of Milwaukee’s franchise missed most of August after suffering a right hamstring strain.`\
+https://nytimes.com/athletic/6689744/2025/10/04/brewers-cubs-jackson-chourio-early-exit/
+
 **Michigan takeaways: Wolverines' win against Wisconsin still raised familiar questions**\
 `Wisconsin's defense gave Michigan some problems, but the Wolverines still pulled away behind Justice Haynes and Bryce Underwood.`\
 https://nytimes.com/athletic/6689659/2025/10/04/michigan-wisconsin-score-result-football/

@@ -1,3 +1,11 @@
+**After illness, Giannis Antetokounmpo joins Bucks at training camp, practices**\
+`The two-time NBA MVP who was sidelined with COVID-19 did a light workout with the Bucks in Miami. "I'm not feeling 100 percent yet."`\
+https://nytimes.com/athletic/6689723/2025/10/04/giannis-antetokounmpo-bucks-practice-training-camp/
+
+**Kane 'fine' for England duty after limping off during Bayern win**\
+`The 32-year-old scored in the first half of his side's 3-0 win against Eintracht Frankfurt, but was substituted following a collision. `\
+https://nytimes.com/athletic/6689743/2025/10/04/harry-kane-england-bayern-munich-injury/
+
 **Michigan takeaways: Wolverines' win against Wisconsin still raised familiar questions**\
 `Wisconsin's defense gave Michigan some problems, but the Wolverines still pulled away behind Justice Haynes and Bryce Underwood.`\
 https://nytimes.com/athletic/6689659/2025/10/04/michigan-wisconsin-score-result-football/
@@ -6,7 +14,7 @@ https://nytimes.com/athletic/6689659/2025/10/04/michigan-wisconsin-score-result-
 `In three games against Power 4 competition, UNC has yet to be competitive, losing by 34, 25 and 28 points.`\
 https://nytimes.com/athletic/6689607/2025/10/04/clemson-unc-score-result/
 
-**Brewers' Jackson Chourio exits NL Division Series Game 1 with apparent injury**\
+**Brewers' Jackson Chourio (right hamstring tightness) exits NLDS Game 1 early**\
 `The 21-year-old leadoff hitter and aspiring face of Milwaukee’s franchise missed most of August after suffering a right hamstring strain.`\
 https://nytimes.com/athletic/6689744/2025/10/04/brewers-cubs-jackson-chourio-early-exit/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6689578/2025/10/04/mark-sanchez-news-injury-stabbed
 **Mark Sanchez, Ex-N.F.L. Quarterback, Is Injured in Stabbing**\
 `Fox Sports, the network where Mr. Sanchez works as a commentator, said he was in stable condition.`\
 https://nytimes.com/2025/10/04/us/mark-sanchez-stabbing.html
-
-**The Briefing: Chelsea 2 Liverpool 1 - Estevao winner, Caicedo's stunner, third defeat in a row for Slot's side**\
-`Estevao gave Chelsea a late 2-1 win over Liverpool at Stamford Bridge. Our writers break down the key talking points`\
-https://nytimes.com/athletic/6682828/2025/10/04/chelsea-liverpool-premier-league-result-estavao/
-
-**NHL waiver tracker: Best players on the wire throughout 2025-26 preseason**\
-`Corey Pronman and Harman Dayal provide analysis of the top players placed on waivers as the regular season approaches.`\
-https://nytimes.com/athletic/6662091/2025/10/04/nhl-waivers-tracker-preseason-2025/
 
