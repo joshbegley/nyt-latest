@@ -1,3 +1,11 @@
+**An American Way of Dress**\
+`At Loewe, Jack McCollough and Lazaro Hernandez celebrated the art of sportswear.`\
+https://nytimes.com/2025/10/04/style/loewe-schiaparelli-spring-2026.html
+
+**Amanda Anisimova rolls over Coco Gauff at China Open with main-character display**\
+`Gauff, one of the best defenders on the WTA Tour, had no answer to Anisimova's attack.`\
+https://nytimes.com/athletic/6688625/2025/10/04/amanda-anisimova-coco-gauff-china-open-result-analysis/
+
 **Israel Says It Will Work With Trump Gaza Plan; Hamas Says It Will Release Hostages**\
 `Prime Minister Benjamin Netanyahu said Israel was ready to work with the White House to end the war, but questions remain about Hamas’s future in Gaza and whether it will agree to disarm.`\
 https://nytimes.com/2025/10/04/world/middleeast/israel-hamas-trump-netanyahu.html
