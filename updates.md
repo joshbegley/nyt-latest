@@ -1,3 +1,7 @@
+**Yankees-Blue Jays Game 1 takeaways: Jays bash rivals to emphatically end playoff drought**\
+`After three playoff sweeps and six postseason losses, Vladimir Guerrero Jr. gave his home fans an October moment to cheer.`\
+https://nytimes.com/athletic/6689977/2025/10/04/yankees-blue-jays-game-1-score-results-takeaways-playoffs-mlb/
+
 **Notre Dame defense arrives as Irish shut down Boise State to win third straight**\
 `This was the kind of performance Chris Ash and the Irish needed, with USC coming to South Bend in two weeks.`\
 https://nytimes.com/athletic/6689789/2025/10/04/notre-dame-boise-state-score-result/
