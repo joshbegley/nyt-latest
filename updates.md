@@ -1,3 +1,7 @@
+**Mbappe sprains ankle during Madrid's win against Villarreal**\
+`Mastantuono also came off in pain during their 3-1 win in La Liga. `\
+https://nytimes.com/athletic/6689852/2025/10/04/kylian-mbappe-real-madrid-franco-mastantuono-injury/
+
 **College Football Playoff 2025 projections: Where the bracket stands as Week 6 begins**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/10/04/college-football-playoff-bracket-projections-odds/
