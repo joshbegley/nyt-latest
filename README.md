@@ -1,3 +1,7 @@
+**Las Vegas Aces got in a (defensive) zone to stage WNBA Finals comeback win in opener**\
+`Dana Evans, a 5-foot-6 guard, used her speed to exploit the Mercuy's defense and disrupt them on offense. `\
+https://nytimes.com/athletic/6688459/2025/10/04/las-vegas-aces-dana-evans-zone-defense/
+
 **Mateta's first France call-up is a reward for putting Palace first**\
 `After improving dramatically over the last two seasons, the Palace striker is being recognised as much for his hard work as his goalscoring`\
 https://nytimes.com/athletic/6684616/2025/10/04/mateta-france-crystal-palace-deschamps/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/04/business/japan-foreign-workers-hokkaido.html
 **Connections: Sports Edition Coach: Hints for Oct. 4, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6687904/2025/10/04/connections-sports-edition-hints-for-oct-4-2025/
-
-**Corrections: Oct. 4, 2025**\
-`Corrections that appeared in print on Saturday, Oct. 4, 2025.`\
-https://nytimes.com/2025/10/04/pageoneplus/corrections-oct-4-2025.html
 
