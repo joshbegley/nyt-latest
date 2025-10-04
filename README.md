@@ -1,3 +1,7 @@
+**Bryan Woo left off Mariners' postseason roster, might be available if Seattle advances**\
+`The Mariners will carry a third catcher on their ALDS roster, along with Ben Williamson, who can provide solid defense at third base.`\
+https://nytimes.com/athletic/6689866/2025/10/04/mariners-playoff-roster-alds-bryan-woo/
+
 **Belva Davis, West Coast Trailblazer in TV News, Dies at 92**\
 `Overcoming poverty and prejudice, she was the first Black woman to be hired as a television reporter in the region and later became a popular anchor.`\
 https://nytimes.com/2025/10/04/business/media/belva-davis-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6689659/2025/10/04/michigan-wisconsin-score-result-
 **Clemson routs UNC in latest blowout loss for Tar Heels under Bill Belichick**\
 `In three games against Power 4 competition, UNC has yet to be competitive, losing by 34, 25 and 28 points.`\
 https://nytimes.com/athletic/6689607/2025/10/04/clemson-unc-score-result/
-
-**Brewers' Jackson Chourio (right hamstring tightness) exits NLDS Game 1 early**\
-`The 21-year-old leadoff hitter and aspiring face of Milwaukee’s franchise missed most of August after suffering a right hamstring strain.`\
-https://nytimes.com/athletic/6689744/2025/10/04/brewers-cubs-jackson-chourio-early-exit/
 

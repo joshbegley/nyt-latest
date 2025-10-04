@@ -1,3 +1,7 @@
+**Belva Davis, West Coast Trailblazer in TV News, Dies at 92**\
+`Overcoming poverty and prejudice, she was the first Black woman to be hired as a television reporter in the region and later became a popular anchor.`\
+https://nytimes.com/2025/10/04/business/media/belva-davis-dead.html
+
 **Why Flyers training camp was underwhelming in one important aspect**\
 `Flyers training camp was underwhelming in regard to the lack of impact from young prospects. What does it indicate about the future?`\
 https://nytimes.com/athletic/6688364/2025/10/04/flyers-training-camp-prospects-nhl-preseason/
