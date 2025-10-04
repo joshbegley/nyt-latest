@@ -1,3 +1,7 @@
+**Group of NASCAR team owners urge settlement in antitrust lawsuit**\
+`As the trial date approaches, many of the team owners expressed a feeling of urgency to see the litigation resolved.`\
+https://nytimes.com/athletic/6688250/2025/10/03/nascar-antitrust-lawsuit-michael-jordan-settlement/
+
 **Stars 'evaluating all options' for next arena, including potential relocation in North Texas**\
 `The Dallas Stars are considering a move outside city limits when their lease at American Airlines Center expires in 2031.`\
 https://nytimes.com/athletic/6688270/2025/10/03/dallas-stars-relocation-arena-plano-texas/
