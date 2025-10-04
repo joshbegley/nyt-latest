@@ -1,3 +1,7 @@
+**Yankees-Blue Jays Game 1 takeaways: Jays bash rivals to emphatically end playoff drought**\
+`After three playoff sweeps and six postseason losses, Vladimir Guerrero Jr. gave his home fans an October moment to cheer.`\
+https://nytimes.com/athletic/6689977/2025/10/04/yankees-blue-jays-game-1-score-results-takeaways-playoffs-mlb/
+
 **Notre Dame defense arrives as Irish shut down Boise State to win third straight**\
 `This was the kind of performance Chris Ash and the Irish needed, with USC coming to South Bend in two weeks.`\
 https://nytimes.com/athletic/6689789/2025/10/04/notre-dame-boise-state-score-result/
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010438653/hamas-partially-accep
 **How to watch Yankees at Blue Jays: Game 1 Time, TV, streaming**\
 `Find out how to watch the New York Yankees play the Toronto Blue Jays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6689938/2025/10/04/yankees-vs-blue-jays-stream-how-to-watch-oct-5/
-
-**All Too Wise**\
-`John Kugelman’s puzzle asks a lot of tough questions.`\
-https://nytimes.com/2025/10/04/crosswords/daily-puzzle-2025-10-05.html
 
