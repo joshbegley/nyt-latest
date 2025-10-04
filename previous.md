@@ -1,3 +1,11 @@
+**The Clooneys Draw an A-List Crowd in London, for Justice**\
+`Amal and George Clooney were joined at the Albie Awards by celebrities including Meryl Streep and Meg Ryan, with performances by John Legend and Brandi Carlile.`\
+https://nytimes.com/2025/10/04/style/albie-awards-george-clooney-london.html
+
+**Jane Goodall Taught You How to ‘Look’**\
+`The conservationist used her own style to reveal the hidden lives of animals, to reveal that they, too, had style: individuality, identities, quirks and foibles.`\
+https://nytimes.com/2025/10/04/style/jane-goodall-taught-you-how-to-look.html
+
 **In Taylor’s Version, Ophelia Has a Fairy-Tale Ending**\
 `Taylor Swift reimagines the fate of the tragic “Hamlet” heroine on her new album, “The Life of a Showgirl.” But did she really need saving?`\
 https://nytimes.com/2025/10/04/arts/music/taylor-swift-fate-of-ophelia.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/04/nyregion/teenage-girls-dead-subway-surfing.html
 **Who Still Has Temporary Protected Status?**\
 `Conflicting court rulings have plunged hundreds of thousands of people with temporary protection from deportation into uncertainty.`\
 https://nytimes.com/2025/10/04/us/politics/temporary-protected-status-scotus.html
-
-**Middle East Updates: Netanyahu to Speak After Hamas Accepts Parts of Trump’s Gaza Plan**\
-`Significant gaps remain to be negotiated. Hamas has said it is ready to exchange hostages for prisoners but has not said if it will disarm.`\
-https://nytimes.com/live/2025/10/04/world/israel-hamas-gaza-trump
-
-**The Briefing: Man Utd 2 Sunderland 0 - How did Lammens do? Are long throws a new weapon? Should Mount get more starts?**\
-`Mark Critchley breaks down the key moments from United's win against Sunderland `\
-https://nytimes.com/athletic/6682777/2025/10/04/man-utd-sunderland-premier-league-analysis/
 

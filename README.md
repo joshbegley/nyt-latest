@@ -1,3 +1,11 @@
+**Sean Combs Sentenced to More Than 4 Years in Prison**\
+`Sean Combs, the fallen hip-hop mogul, was sentenced to more than four years in prison for prostitution-related offenses. Ben Sisario, a New York Times reporter covering music and the music industry, explains the sentence.`\
+https://nytimes.com/video/nyregion/100000010435193/sean-combs-sentenced-to-more-than-4-years-in-prison.html
+
+**Penguins keep Ben Kindel, Harrison Brunicke; Ryan Graves headed to AHL**\
+`Two teenagers could be on the ice when the Penguins start the regular season. `\
+https://nytimes.com/athletic/6689500/2025/10/04/penguins-kindel-brunicke-graves-roster/
+
 **The Clooneys Draw an A-List Crowd in London, for Justice**\
 `Amal and George Clooney were joined at the Albie Awards by celebrities including Meryl Streep and Meg Ryan, with performances by John Legend and Brandi Carlile.`\
 https://nytimes.com/2025/10/04/style/albie-awards-george-clooney-london.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6689319/2025/10/04/max-verstappen-lando-norris-f1-s
 **Here’s the latest.**\
 `Israel said it would cooperate with the White House to end the war, but much is still unclear about Hamas’s future and whether it will agree to disarm.`\
 https://nytimes.com/live/2025/10/04/world/israel-hamas-gaza-trump/heres-the-latest
-
-**2 Girls Found Dead Atop a J Train in Suspected Subway Surfing Accident**\
-`The teenagers, found unconscious on the roof of a train in Brooklyn, appear to be the latest casualties of a popular and deadly game.`\
-https://nytimes.com/2025/10/04/nyregion/teenage-girls-dead-subway-surfing.html
-
-**Who Still Has Temporary Protected Status?**\
-`Conflicting court rulings have plunged hundreds of thousands of people with temporary protection from deportation into uncertainty.`\
-https://nytimes.com/2025/10/04/us/politics/temporary-protected-status-scotus.html
 
