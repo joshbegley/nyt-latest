@@ -1,3 +1,7 @@
+**Will Adrian Kempe become the next eight-figure King? Is he a $10 million player?**\
+`Where does Kempe fit into a skyrocketing NHL salary cap environment?`\
+https://nytimes.com/athletic/6686084/2025/10/04/adrian-kempe-kings-contract-million/
+
 **Lammens makes first Man United start against Sunderland**\
 `Prior to Saturday, Bayindir had started in all of United's Premier League matches of the 2025-26 season.`\
 https://nytimes.com/athletic/6688858/2025/10/04/man-united-sunderland-team-news-lammens/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/04/world/europe/sarah-mullally-archbishop-of-canterb
 **Mercury star Alyssa Thomas won't be defined by missed free throws, but by how she responds**\
 `Thomas shoulders the burden of powering the Mercury to a championship. Falling in Game 1 might only fuel her.`\
 https://nytimes.com/athletic/6688702/2025/10/04/alyssa-thomas-missed-free-throws-wnba-finals/
-
-**How to watch Chelsea vs. Liverpool for U.S. fans: EPL leaders looking to bounce back**\
-`Liverpool is coming off back-to-back frustrating losses and heads into an away match against a Chelsea side still finding its form. `\
-https://nytimes.com/athletic/6682667/2025/10/04/chelsea-liverpool-epl-usa-how-to-watch/
 
