@@ -1,3 +1,7 @@
+**Dodger Details: Lingering questions ahead of NLDS against the Phillies**\
+`Shohei Ohtani preps for his Game 1 start, a Will Smith health update, the outlook for Clayton Kershaw and more news in advance of the NLDS.`\
+https://nytimes.com/athletic/6688125/2025/10/03/dodgers-phillies-nlds-shohei-ohtani-start/
+
 **Trump Administration Is Said to Plan to Cut Refugee Admissions to a Record Low**\
 `Most of the slots would go to white South Africans and others facing “unjust discrimination,” according to people familiar with the matter and documents obtained by The New York Times.`\
 https://nytimes.com/2025/10/03/us/politics/trump-refugee-admissions-south-africa.html

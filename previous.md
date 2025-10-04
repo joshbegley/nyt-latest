@@ -22,7 +22,7 @@ https://nytimes.com/athletic/6687999/2025/10/03/cubs-brewers-nlds-craig-counsell
 `Department of Education employees this week found that their out-of-office emails during the government shutdown had been edited to include partisan language.`\
 https://nytimes.com/2025/10/03/us/politics/partisan-emails-education-dept-workers-lawsuit.html
 
-**Dodger Details: Lingering questions ahead of the NLDS against the Phillies**\
+**Dodger Details: Lingering questions ahead of NLDS against the Phillies**\
 `Shohei Ohtani preps for his Game 1 start, a Will Smith health update, the outlook for Clayton Kershaw and more news in advance of the NLDS.`\
 https://nytimes.com/athletic/6688125/2025/10/03/dodgers-phillies-nlds-shohei-ohtani-start/
 
