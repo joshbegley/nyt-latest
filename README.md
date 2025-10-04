@@ -1,3 +1,7 @@
+**Wild sign Filip Gustavsson to five-year, $34 million extension**\
+`In his final preseason start Friday night in Chicago during a 3-2 win, Gustavsson made 15 of his 26 saves to preserve the Wild's lead.`\
+https://nytimes.com/athletic/6689099/2025/10/04/minnesota-wild-filip-gustavsson-contract-extension/
+
 **Eagles notes: Checking in on DeVonta Smith, facing Patrick Surtain II, missing Nakobe Dean**\
 `There’s too much talent on this team to think Philadelphia's offense won't get it together soon.`\
 https://nytimes.com/athletic/6688872/2025/10/04/eagles-notes-devonta-smith-patrick-surtain-nakobe-dean/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6688858/2025/10/04/man-united-sunderland-team-news-
 **The Pulse: Picking an MLB drought to end**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6688467/2025/10/04/an-mlb-playoffs-full-of-droughts-that-could-end-so-lets-pick-one/
-
-**Without Luka or LeBron, the Lakers preseason opener went as you'd expect**\
-`The Lakers being deliberate with James' ramp up, said the plan with Dončić wasn’t about anything other than the team taking real caution.`\
-https://nytimes.com/athletic/6688497/2025/10/04/lakers-lebron-james-luka-doncic-preseason/
 
