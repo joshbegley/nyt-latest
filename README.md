@@ -1,3 +1,11 @@
+**Trapped in the Homes They Thought Would Protect Them**\
+`Some victims of the Cebu earthquake in the Philippines lived in homes that they thought were built to withstand natural disasters.`\
+https://nytimes.com/2025/10/04/world/asia/cebu-earthquake-philippines.html
+
+**Cubs-Brewers Game 1 takeaways: Brewers string together offensive onslaught**\
+`The Cubs struck first, but the Brewers answered back with nine runs in the game's first two innings.`\
+https://nytimes.com/athletic/6689812/2025/10/04/cubs-brewers-game-1-score-results-takeaways-playoffs-mlb/
+
 **Bryan Woo left off Mariners' postseason roster, might be available if Seattle advances**\
 `The Mariners will carry a third catcher on their ALDS roster, along with Ben Williamson, who can provide solid defense at third base.`\
 https://nytimes.com/athletic/6689866/2025/10/04/mariners-playoff-roster-alds-bryan-woo/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6689723/2025/10/04/giannis-antetokounmpo-bucks-prac
 **Kane 'fine' for England duty after limping off during Bayern win**\
 `The 32-year-old scored in the first half of his side's 3-0 win against Eintracht Frankfurt, but was substituted following a collision. `\
 https://nytimes.com/athletic/6689743/2025/10/04/harry-kane-england-bayern-munich-injury/
-
-**Michigan takeaways: Wolverines' win against Wisconsin still raised familiar questions**\
-`Wisconsin's defense gave Michigan some problems, but the Wolverines still pulled away behind Justice Haynes and Bryce Underwood.`\
-https://nytimes.com/athletic/6689659/2025/10/04/michigan-wisconsin-score-result-football/
-
-**Clemson routs UNC in latest blowout loss for Tar Heels under Bill Belichick**\
-`In three games against Power 4 competition, UNC has yet to be competitive, losing by 34, 25 and 28 points.`\
-https://nytimes.com/athletic/6689607/2025/10/04/clemson-unc-score-result/
 
