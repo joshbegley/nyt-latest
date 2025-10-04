@@ -1,3 +1,7 @@
+**Arsenal duo Odegaard, Rice need more assessment after injuries - Arteta**\
+`Both players had been called up to their national teams before being forced off during their 2-0 win against West Ham.`\
+https://nytimes.com/athletic/6689420/2025/10/04/martin-odegaard-arsenal-injury-declan-rice/
+
 **Russian Drones Hit 2 Passenger Trains, Ukraine Says**\
 `The drone strikes killed at least one person and injured dozens of others, officials said. The attack came amid rising alarm about the status of a nuclear plant relying solely on generators.`\
 https://nytimes.com/2025/10/04/world/europe/ukraine-russia-train-drones.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6682777/2025/10/04/man-utd-sunderland-premier-leagu
 **The Briefing: Arsenal 2 West Ham 0 - Saka marks 200th league game and Calafiori justifies status**\
 `Arsenal have climbed to first place in the Premier League courtesy of a comfortable home win over West Ham`\
 https://nytimes.com/athletic/6682728/2025/10/04/arsenal-west-ham-score-result-report-analysis/
-
-**Vollering wins European Championship road race after 37km solo attack**\
-`The Dutchwoman earned her 11th victory of the 2025 season after a decisive move on the Cote de Saint-Romain-de Lerps climb.`\
-https://nytimes.com/athletic/6689011/2025/10/04/demi-vollering-european-championship-cycling/
 
