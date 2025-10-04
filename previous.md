@@ -1,3 +1,7 @@
+**Cubs make Cade Horton unavailable for NLDS, name Matthew Boyd as Game 1 starter**\
+`The earliest Horton could have returned was Game 5 of the NLDS, but that was always a long shot.`\
+https://nytimes.com/athletic/6688174/2025/10/03/cubs-cade-horton-injury-matthew-boyd-nlds-game-1-starter/
+
 **Trump Administration Is Said to Plan to Cut Refugee Admissions to a Record Low**\
 `Many of the slots would go to white South Africans and others facing “unjust discrimination,” according to people familiar with the matter and documents obtained by The New York Times.`\
 https://nytimes.com/2025/10/03/us/politics/trump-refugee-admissions-south-africa.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6682256/2025/10/03/luke-evangelista-contract-predat
 **Journalist Mario Guevara Is Deported After Being Held for Over 100 Days**\
 `The Salvadoran journalist was arrested in June while covering a “No Kings” protest outside Atlanta. Those charges were dropped, his lawyers said.`\
 https://nytimes.com/2025/10/03/us/mario-guevara-journalist-deported.html
-
-**5 Takeaways From Taylor Swift’s ‘Showgirl’ Movie**\
-`The pop star’s new album arrived with a limited-run film in which she debuts a video for “The Fate of Ophelia” and chats about the LP’s songs.`\
-https://nytimes.com/2025/10/03/arts/music/taylor-swift-showgirl-release-party-movie.html
 

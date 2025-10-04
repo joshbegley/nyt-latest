@@ -1,3 +1,7 @@
+**Cubs make Cade Horton unavailable for NLDS, name Matthew Boyd as Game 1 starter**\
+`The earliest Horton could have returned was Game 5 of the NLDS, but that was always a long shot.`\
+https://nytimes.com/athletic/6688174/2025/10/03/cubs-cade-horton-injury-matthew-boyd-nlds-game-1-starter/
+
 **Trump Administration Is Said to Plan to Cut Refugee Admissions to a Record Low**\
 `Many of the slots would go to white South Africans and others facing “unjust discrimination,” according to people familiar with the matter and documents obtained by The New York Times.`\
 https://nytimes.com/2025/10/03/us/politics/trump-refugee-admissions-south-africa.html
