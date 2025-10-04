@@ -1,3 +1,7 @@
+**Man Drives Car Onto Sidewalk Outside L.A. City Hall, Barricading Himself Inside**\
+`A man in a vehicle displaying a handwritten sign referring to President Trump refused to exit his car as the authorities shut down surrounding streets. The man was taken into custody.`\
+https://nytimes.com/2025/10/03/us/la-city-hall-car.html
+
 **Cubs make Cade Horton unavailable for NLDS, name Matthew Boyd as Game 1 starter**\
 `The earliest Horton could have returned was Game 5 of the NLDS, but that was always a long shot.`\
 https://nytimes.com/athletic/6688174/2025/10/03/cubs-cade-horton-injury-matthew-boyd-nlds-game-1-starter/
