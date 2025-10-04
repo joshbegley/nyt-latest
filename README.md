@@ -1,3 +1,7 @@
+**In Milwaukee, where connections endure, even family enjoys booing Craig Counsell**\
+`As the saying goes: They don’t boo nobodies. Counsell is no exception, with even his brother-in-law joining in on the jeers.`\
+https://nytimes.com/athletic/6688361/2025/10/04/chicago-cubs-milwaukee-brewers-craig-counsell-reaction/
+
 **Everything fantasy football managers need to know for Week 5**\
 `Couldn't keep up with all of the NFL news during the week? Don't worry, Andy Behrens has you covered with his essential fantasy notes.`\
 https://nytimes.com/athletic/6687882/2025/10/04/fantasy-football-week-5-tips-news/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6673854/2025/10/04/chase-priskie-linkedin-jobs-nhl-
 **Starstruck by Stephen Curry, two Warriors rookies went viral: 'We got to frame this'**\
 `"Honestly, when I think about it I'm speechless," said one Warriors rookie of his close-up with teammate, Steph Curry. `\
 https://nytimes.com/athletic/6688374/2025/10/04/stephen-curry-warriors-rookie-pictures-chance-mcmillian/
-
-**Take our college football quiz: What you need to know about Week 6**\
-`Test your knowledge ahead of Vanderbilt-Alabama, Miami-Florida State and more in college football's Week 6.`\
-https://nytimes.com/athletic/6687023/2025/10/04/college-football-week-6-preview-quiz-links/
 
