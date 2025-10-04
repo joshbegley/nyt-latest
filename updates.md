@@ -1,3 +1,11 @@
+**Trump Administration Is Said to Plan to Cut Refugee Admissions to a Record Low**\
+`Many of the slots would go to white South Africans and others facing “unjust discrimination,” according to people familiar with the matter and documents obtained by The New York Times.`\
+https://nytimes.com/2025/10/03/us/politics/trump-refugee-admissions-south-africa.html
+
+**2 Teen Girls Died In a Hit-And-Run. Another Teen Faces Murder Charges.**\
+`The 17-year-old friends in a small New Jersey town were killed on their way to get ice cream. Prosecutors said the crash was intentional.`\
+https://nytimes.com/2025/10/03/nyregion/hit-and-run-deaths-girls-new-jersey.html
+
 **Dodger Details: Lingering questions ahead of NLDS against the Phillies**\
 `Shohei Ohtani preps for his Game 1 start, a Will Smith health update, the outlook for Clayton Kershaw and more news in advance of the NLDS.`\
 https://nytimes.com/athletic/6688125/2025/10/03/dodgers-phillies-nlds-shohei-ohtani-start/
