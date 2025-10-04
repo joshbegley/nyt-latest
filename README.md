@@ -1,40 +1,40 @@
-**Democrats Lost the Debate on Immigration. Unless You Ask Senator Alex Padilla.**\
-`The California politician on his “wake-up call” at an earlier moment of political upheaval, and the one he’s experiencing today.`\
-https://nytimes.com/2025/10/04/magazine/alex-padilla-interview.html
+**NFL Week 5 roundtable: Dillon Gabriel's Browns debut, struggling Ravens, Chiefs-Jaguars**\
+`Our writers also touch on the tush push staying in the headlines and Jaxson Dart's second start for the Giants.`\
+https://nytimes.com/athletic/6686914/2025/10/04/nfl-week-5-roundtable-browns-ravens-chiefs-jaguars/
 
-**The Sprint for City Hall: What Happened This Week in the NYC Mayoral Race**\
-`Mayor Eric Adams’s exit from the race may have helped former Gov. Andrew Cuomo, but it’s clear he has much work to do.`\
-https://nytimes.com/card/2025/10/04/nyregion/newyorktoday/nyc-mayor-adams-mamdani
+**Tigers' Dillon Dingler has earned his place as a notable catcher in the ALDS**\
+`Only two catchers were worth more fWAR than Detroit's first-year backstop Dillon Dingler this season.`\
+https://nytimes.com/athletic/6688203/2025/10/04/dillon-dingler-tigers-alds-mlb/
 
-**Trump Seizes On Shutdown to Punish Political Foes**\
-`The White House has cut or paused billions in funding to Democratic-run cities and states since the federal government came to a halt.`\
-https://nytimes.com/2025/10/04/us/politics/trump-shutdown-punish-foes.html
+**How to watch Manchester United vs. Sunderland from U.S.: United's chance to stem the tide**\
+`Sunderland has the momentum ahead of this weekend's tilt at Old Trafford. Can Manchester United find its footing?`\
+https://nytimes.com/athletic/6687315/2025/10/04/manchester-united-vs-sunderland-how-to-watch-us/
 
-**Partisan Shutdown Messages Could Hurt Civil Service, Experts Warn**\
-`Messages on official government channels blaming Democrats for the shutdown are one of the most significant hits yet to the longstanding wall between federal workers and politics, historians said.`\
-https://nytimes.com/2025/10/04/us/politics/partisan-messages-shutdown-trump.html
+**RinkedIn: Congratulate Chase Priskie on his new position in professional hockey!**\
+`This 29-year-old minor-league defenseman has amassed a social media cult following for ... changing his employment status. `\
+https://nytimes.com/athletic/6673854/2025/10/04/chase-priskie-linkedin-jobs-nhl-ahl-khl/
 
-**Breaking Down Taylor Swift’s ‘The Life of a Showgirl’**\
-`For a rapid-response episode of Popcast, we journeyed track-by-track through the pop star’s new album, assessing the highs, lows and hot gossip.`\
-https://nytimes.com/2025/10/04/arts/music/taylor-swift-showgirl-popcast.html
+**Starstruck by Stephen Curry, two Warriors rookies went viral: 'We got to frame this'**\
+`"Honestly, when I think about it I'm speechless," said one Warriors rookie of his close-up with teammate, Steph Curry. `\
+https://nytimes.com/athletic/6688374/2025/10/04/stephen-curry-warriors-rookie-pictures-chance-mcmillian/
 
-**How a Chaotic ‘Network’-Style Outburst Plays Out in ‘Weather Girl’**\
-`In this dark comedy about climate change, a meteorologist meant to maintain a “happy voice” can no longer reassure viewers that it’s going to be all right.`\
-https://nytimes.com/2025/10/04/theater/weather-girl-st-anns-warehouse.html
+**Take our college football quiz: What you need to know about Week 6**\
+`Test your knowledge ahead of Vanderbilt-Alabama, Miami-Florida State and more in college football's Week 6.`\
+https://nytimes.com/athletic/6687023/2025/10/04/college-football-week-6-preview-quiz-links/
 
-**Discount Airlines Changed Flying. Now They’re in Trouble.**\
-`Carriers like Spirit and Frontier have lost customers to bigger competitors and seen their costs balloon. Some are in financial distress.`\
-https://nytimes.com/2025/10/04/business/spirit-frontier-low-cost-airlines.html
+**I’m a Screenwriter. Is It All Right if I Use A.I.?**\
+`This new tool has been a game changer.`\
+https://nytimes.com/2025/10/04/magazine/magazine-email/screenwriter-ai-ethics.html
 
-**In the Far North, Canada Post Is Not Just the Mail. It’s a Lifeline.**\
-`A strike, and growing prospects of drastic cuts to the state-owned postal service, make life very hard for Canada’s remote communities.`\
-https://nytimes.com/2025/10/04/world/canada/canada-post-strike-fort-simpson.html
+**What You Want to See Emerge from the Canada Post Walkout**\
+`Newsletter readers shared their thoughts about the future of Canada’s postal service.`\
+https://nytimes.com/2025/10/04/world/canada/canada-post-mail-strike.html
 
-**‘Reading Rainbow’ Comes Back With a New Host, but the Same Mission**\
-`The popular children’s television show has returned, with Mychal Threets trying to recapture the magic of the original show for a streaming audience.`\
-https://nytimes.com/2025/10/04/style/reading-rainbow-mychal-threets-interview.html
+**Wordle Review No. 1,569**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 5, 2025.`\
+https://nytimes.com/2025/10/04/crosswords/wordle-review-1569.html
 
-**Sean Combs Now Faces Not Just Prison and a Fine, but Shunning**\
-`Many who have tracked the music mogul’s career think his reputation has been irreparably damaged by testimony that cast him as an abusive boss and boyfriend.`\
-https://nytimes.com/2025/10/04/arts/music/sean-combs-diddy-sentenced-prison.html
+**Strands Sidekick No. 581**\
+`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 5, 2025.`\
+https://nytimes.com/2025/10/04/crosswords/strands-sidekick-581.html
 
