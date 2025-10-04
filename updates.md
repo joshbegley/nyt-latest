@@ -1,3 +1,11 @@
+**Russian Drones Hit 2 Passenger Trains, Ukraine Says**\
+`The drone strikes killed at least one person and injured dozens of others, officials said. The attack came amid rising alarm about the status of a nuclear plant relying solely on generators.`\
+https://nytimes.com/2025/10/04/world/europe/ukraine-russia-train-drones.html
+
+**Middle East Updates: Netanyahu to Speak After Hamas Accepts Parts of Trump’s Gaza Plan**\
+`Significant gaps remain to be negotiated. Hamas has said it is ready to exchange hostages for prisoners but has not said if it will disarm.`\
+https://nytimes.com/live/2025/10/04/world/israel-hamas-gaza-trump
+
 **Spain SailGP: Denmark shine in tough conditions as GB surge to the top**\
 `Denmark won two of the four races in Cadiz, while Great Britain took the overall lead.`\
 https://nytimes.com/athletic/6689282/2025/10/04/spain-sail-grand-prix-denmark-great-britain/

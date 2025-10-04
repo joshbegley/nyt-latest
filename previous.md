@@ -1,3 +1,7 @@
+**Russian Drones Hit 2 Passenger Trains, Ukraine Says**\
+`The drone strikes killed at least one person and injured dozens of others, officials said. The attack came amid rising alarm about the status of a nuclear plant relying solely on generators.`\
+https://nytimes.com/2025/10/04/world/europe/ukraine-russia-train-drones.html
+
 **Spain SailGP: Denmark shine in tough conditions as GB surge to the top**\
 `Denmark won two of the four races in Cadiz, while Great Britain took the overall lead.`\
 https://nytimes.com/athletic/6689282/2025/10/04/spain-sail-grand-prix-denmark-great-britain/
@@ -18,8 +22,8 @@ https://nytimes.com/2025/10/04/nyregion/teenage-girls-dead-subway-surfing.html
 `Conflicting court rulings have plunged hundreds of thousands of people with temporary protection from deportation into uncertainty.`\
 https://nytimes.com/2025/10/04/us/politics/temporary-protected-status-scotus.html
 
-**Middle East Updates: Israel and Hamas Signal Readiness to Accept Parts of Trump’s Gaza Plan**\
-`Significant gaps remain to be negotiated. Israel said it would cooperate with the White House to end the war, but much is still unclear about Hamas’s future and whether it will agree to disarm.`\
+**Middle East Updates: Netanyahu to Speak After Hamas Accepts Parts of Trump’s Gaza Plan**\
+`Significant gaps remain to be negotiated. Hamas has said it is ready to exchange hostages for prisoners but has not said if it will disarm.`\
 https://nytimes.com/live/2025/10/04/world/israel-hamas-gaza-trump
 
 **The Briefing: Man Utd 2 Sunderland 0 - How did Lammens do? Are long throws a new weapon? Should Mount get more starts?**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6682728/2025/10/04/arsenal-west-ham-score-result-re
 **Vollering wins European Championship road race after 37km solo attack**\
 `The Dutchwoman earned her 11th victory of the 2025 season after a decisive move on the Cote de Saint-Romain-de Lerps climb.`\
 https://nytimes.com/athletic/6689011/2025/10/04/demi-vollering-european-championship-cycling/
-
-**Synagogue Attack Increases Pressure on Starmer in the U.K.**\
-`The prime minister vowed to rid the Labour Party of antisemitism. But a competing political reality, activist anger over the war in Gaza, has complicated that effort.`\
-https://nytimes.com/2025/10/04/world/europe/manchester-synagogue-palestine-antisemitism-starmer-labour-party.html
 
