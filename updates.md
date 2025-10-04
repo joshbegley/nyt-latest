@@ -1,3 +1,11 @@
+**College Football Playoff 2025 projections: Where the bracket stands as Week 6 begins**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/10/04/college-football-playoff-bracket-projections-odds/
+
+**Trapped in the Homes They Thought Would Protect Them**\
+`Some victims of the Cebu earthquake in the Philippines lived in homes that were supposed to withstand natural disasters.`\
+https://nytimes.com/2025/10/04/world/asia/cebu-earthquake-philippines.html
+
 **Trapped in the Homes They Thought Would Protect Them**\
 `Some victims of the Cebu earthquake in the Philippines lived in homes that they thought were built to withstand natural disasters.`\
 https://nytimes.com/2025/10/04/world/asia/cebu-earthquake-philippines.html

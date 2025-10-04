@@ -1,5 +1,9 @@
+**College Football Playoff 2025 projections: Where the bracket stands as Week 6 begins**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/10/04/college-football-playoff-bracket-projections-odds/
+
 **Trapped in the Homes They Thought Would Protect Them**\
-`Some victims of the Cebu earthquake in the Philippines lived in homes that they thought were built to withstand natural disasters.`\
+`Some victims of the Cebu earthquake in the Philippines lived in homes that were supposed to withstand natural disasters.`\
 https://nytimes.com/2025/10/04/world/asia/cebu-earthquake-philippines.html
 
 **Cubs-Brewers Game 1 takeaways: Brewers string together offensive onslaught**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6689808/2025/10/04/ibrahima-konate-liverpool-injury
 **After illness, Giannis Antetokounmpo joins Bucks at training camp, practices**\
 `The two-time NBA MVP who was sidelined with COVID-19 did a light workout with the Bucks in Miami. "I'm not feeling 100 percent yet."`\
 https://nytimes.com/athletic/6689723/2025/10/04/giannis-antetokounmpo-bucks-practice-training-camp/
-
-**Kane 'fine' for England duty after limping off during Bayern win**\
-`The 32-year-old scored in the first half of his side's 3-0 win against Eintracht Frankfurt, but was substituted following a collision. `\
-https://nytimes.com/athletic/6689743/2025/10/04/harry-kane-england-bayern-munich-injury/
 
