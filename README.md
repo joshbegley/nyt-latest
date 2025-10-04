@@ -1,3 +1,11 @@
+**It’s Chili Weather**\
+`And this reader-favorite slow cooker chili is ready when you are.`\
+https://nytimes.com/2025/10/04/dining/its-chili-weather.html
+
+**Who Is Donald Trump Responsible To?**\
+`Trump’s exclusionary view of the country strains the bonds of union.`\
+https://nytimes.com/2025/10/04/opinion/trump-responsible-president-job-military.html
+
 **Why Brittle Bones Aren’t Just a Woman’s Problem**\
 `More men are now living long enough to develop osteoporosis. But few are aware of the risk, and fewer still are screened and treated.`\
 https://nytimes.com/2025/10/04/health/osteoporosis-men.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6688872/2025/10/04/eagles-notes-devonta-smith-patri
 **Russini: What I’m Hearing on A.J. Brown’s future, J.J. McCarthy, MetLife turf and more**\
 `Also: A harrowing morning for Mac Jones before his big night, and why Tyreek Hill was never heading back to Kansas City.`\
 https://nytimes.com/athletic/6688437/2025/10/04/nfl-rumors-news-brock-purdy-body-aj-brown-devonta-smith-jalen-hurts/
-
-**Pumpkin Is Not a Spice**\
-`These three pumpkin treats — chewy chocolate chip bars, maple-scented cornbread and a showstopping layer cake — let the gourd’s sweetness shine.`\
-https://nytimes.com/2025/10/04/dining/pumpkin-is-not-a-spice.html
-
-**WNBA: Las Vegas Aces take Game One from Phoenix Mercury**\
-`The Las Vegas Aces jumped out to an early lead in the WNBA Finals behind 21 points from MVP A’ja Wilson.`\
-https://nytimes.com/video/the-athletic/100000010439373/wnba-las-vegas-aces-take-game-one-from-phoenix-mercury.html
 
