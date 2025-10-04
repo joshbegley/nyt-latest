@@ -1,3 +1,7 @@
+**Everything fantasy football managers need to know for Week 5**\
+`Couldn't keep up with all of the NFL news during the week? Don't worry, Andy Behrens has you covered with his essential fantasy notes.`\
+https://nytimes.com/athletic/6687882/2025/10/04/fantasy-football-week-5-tips-news/
+
 **Best Intentions**\
 `Everyone’s “intentional” these days, but don’t let the word’s wholesale application to every activity of modern life deprive you of its benefits.`\
 https://nytimes.com/2025/10/04/briefing/best-intentions.html

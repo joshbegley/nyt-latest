@@ -1,3 +1,7 @@
+**Everything fantasy football managers need to know for Week 5**\
+`Couldn't keep up with all of the NFL news during the week? Don't worry, Andy Behrens has you covered with his essential fantasy notes.`\
+https://nytimes.com/athletic/6687882/2025/10/04/fantasy-football-week-5-tips-news/
+
 **Best Intentions**\
 `Everyone’s “intentional” these days, but don’t let the word’s wholesale application to every activity of modern life deprive you of its benefits.`\
 https://nytimes.com/2025/10/04/briefing/best-intentions.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6688374/2025/10/04/stephen-curry-warriors-rookie-pi
 **Take our college football quiz: What you need to know about Week 6**\
 `Test your knowledge ahead of Vanderbilt-Alabama, Miami-Florida State and more in college football's Week 6.`\
 https://nytimes.com/athletic/6687023/2025/10/04/college-football-week-6-preview-quiz-links/
-
-**I’m a Screenwriter. Is It All Right if I Use A.I.?**\
-`This new tool has been a game changer.`\
-https://nytimes.com/2025/10/04/magazine/magazine-email/screenwriter-ai-ethics.html
 
