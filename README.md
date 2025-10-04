@@ -1,8 +1,12 @@
+**Brilliant George Russell takes Singapore pole as Lando Norris struggles**\
+`George Russell was impressive in qualifying, while Max Verstappen seemed unhappy with a struggling Lando Norris`\
+https://nytimes.com/athletic/6688856/2025/10/04/singapore-grand-prix-qualifying-george-russell-pole/
+
 **Alex Pereira vows revenge against Magomed Ankalaev ahead of UFC 320**\
 `"It's just a matter of coming back and going in there and winning," Pereira said of reclaiming his light heavyweight title.`\
 https://nytimes.com/athletic/6688448/2025/10/04/alex-pereira-magomed-ankalaev-ufc-320/
 
-**Wild sign Filip Gustavsson to five-year, $34 million extension**\
+**Wild sign Filip Gustavsson to 5-year, $34 million extension**\
 `In his final preseason start Friday night in Chicago during a 3-2 win, Gustavsson made 15 of his 26 saves to preserve the Wild's lead.`\
 https://nytimes.com/athletic/6689099/2025/10/04/minnesota-wild-filip-gustavsson-contract-extension/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/04/world/asia/sanae-takaichi-japan.html
 **Will Adrian Kempe become the next eight-figure King? Is he a $10 million player?**\
 `Where does Kempe fit into a skyrocketing NHL salary cap environment?`\
 https://nytimes.com/athletic/6686084/2025/10/04/adrian-kempe-kings-contract-million/
-
-**Lammens makes first Man United start against Sunderland**\
-`Prior to Saturday, Bayindir had started in all of United's Premier League matches of the 2025-26 season.`\
-https://nytimes.com/athletic/6688858/2025/10/04/man-united-sunderland-team-news-lammens/
 
