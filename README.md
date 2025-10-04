@@ -1,6 +1,14 @@
+**Why Flyers training camp was underwhelming in one important aspect**\
+`Flyers training camp was underwhelming in regard to the lack of impact from young prospects. What does it indicate about the future?`\
+https://nytimes.com/athletic/6688364/2025/10/04/flyers-training-camp-prospects-nhl-preseason/
+
+**At a Protest for a Deal, Israelis Wrestle With a Mix of Emotions**\
+`Along with optimism that President Trump can lock Israel and Hamas into a deal, many expressed anxiety about being disappointed once more.`\
+https://nytimes.com/2025/10/04/world/middleeast/israel-protest-hostages-tel-aviv.html
+
 **Netanyahu Defends Wartime Leadership, Saying Hostage Deal Is Within Reach**\
 `In a speech that lasted just minutes, the Israeli prime minister boasted that he had defied his critics to secure the release of the remaining hostages in Gaza.`\
-https://nytimes.com/2025/10/04/world/middleeast/netanyahu-defends-wartime-leadership-saying-hostage-deal-is-within-reach.html
+https://nytimes.com/2025/10/04/world/middleeast/israel-gaza-war-hostage-deal-netanyahu.html
 
 **Liverpool's Konate taken off due to quad injury, Slot says**\
 `Andy Robertson caused another concern to Slot's back line as he was limping heavily after a blow to the shin during their 2-1 loss.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6689744/2025/10/04/brewers-cubs-jackson-chourio-ear
 **Lakers struggle in preseason debut but JJ Redick says, ‘We’ll get there’: 5 observations**\
 `The Lakers showed effort on the glass and flashes from Reaves and Vanderbilt, but couldn't find a rhythm in their first preseason game.`\
 https://nytimes.com/athletic/6688822/2025/10/04/lakers-suns-preseason-opener/
-
-**Guardiola voices support for pro-Gazan demonstration in Barcelona**\
-`This is not the first time Guardiola has shared his views on the conflict as he said in June: "It's so painful what we see in Gaza."`\
-https://nytimes.com/athletic/6688809/2025/10/04/guardiola-gaza-israel-palestine-news/
-
-**Federal Agent in Chicago Shot Motorist in Confrontation, Officials Say**\
-`The wounded individual had non-life-threatening injuries, according to federal authorities. The clash touched off more protests in the city over immigration enforcement.`\
-https://nytimes.com/2025/10/04/us/federal-agent-shooting-chicago.html
 
