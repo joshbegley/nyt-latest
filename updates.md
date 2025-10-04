@@ -1,3 +1,7 @@
+**Japan Set for First Female Prime Minister**\
+`Sanae Takaichi, a hard-line conservative, was elected as leader by Japan’s governing party, paving the way for her to become prime minister of the coalition government.`\
+https://nytimes.com/2025/10/04/world/asia/japan-female-leader.html
+
 **How to watch Tigers at Mariners: Game 1 Time, TV, streaming**\
 `Find out how to watch the Detroit Tigers play the Seattle Mariners, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6688509/2025/10/04/tigers-vs-mariners-stream-how-to-watch-oct-4/
