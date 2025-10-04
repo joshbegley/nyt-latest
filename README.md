@@ -32,9 +32,9 @@ https://nytimes.com/2025/10/03/business/trump-commemorative-coin-treasury.html
 
 **How to watch Dodgers at Phillies: Game 1 Time, TV, streaming**\
 `Find out how to watch the Los Angeles Dodgers play the Philadelphia Phillies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6688016/2025/10/03/dodgers-vs-phillies-stream-how-to-watch-oct-4/
+https://nytimes.com/athletic/6688016/2025/10/03/how-to-watch-dodgers-vs-phillies-game-1-tv-channel-and-streaming-options-for-october-4/
 
 **How to watch Yankees at Blue Jays: Game 1 Time, TV, streaming**\
 `Find out how to watch the New York Yankees play the Toronto Blue Jays, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6688014/2025/10/03/yankees-vs-blue-jays-stream-how-to-watch-oct-4/
+https://nytimes.com/athletic/6688014/2025/10/03/how-to-watch-yankees-vs-blue-jays-game-1-tv-channel-and-streaming-options-for-october-4/
 
