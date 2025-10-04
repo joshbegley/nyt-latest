@@ -1,3 +1,11 @@
+**Sean Combs Sentenced to More Than 4 Years in Prison**\
+`Sean Combs, the fallen hip-hop mogul, was sentenced to more than four years in prison for prostitution-related offenses. Ben Sisario, a New York Times reporter covering music and the music industry, explains the sentence.`\
+https://nytimes.com/video/nyregion/100000010435193/sean-combs-sentenced-to-more-than-4-years-in-prison.html
+
+**Penguins keep Ben Kindel, Harrison Brunicke; Ryan Graves headed to AHL**\
+`Two teenagers could be on the ice when the Penguins start the regular season. `\
+https://nytimes.com/athletic/6689500/2025/10/04/penguins-kindel-brunicke-graves-roster/
+
 **The Clooneys Draw an A-List Crowd in London, for Justice**\
 `Amal and George Clooney were joined at the Albie Awards by celebrities including Meryl Streep and Meg Ryan, with performances by John Legend and Brandi Carlile.`\
 https://nytimes.com/2025/10/04/style/albie-awards-george-clooney-london.html
