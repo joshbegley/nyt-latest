@@ -24,7 +24,7 @@ https://nytimes.com/2025/10/04/style/albie-awards-george-clooney-london.html
 
 **Jane Goodall Taught You How to ‘Look’**\
 `The conservationist used her own style to reveal the hidden lives of animals, to reveal that they, too, had style: individuality, identities, quirks and foibles.`\
-https://nytimes.com/2025/10/04/style/jane-goodall-taught-you-how-to-look.html
+https://nytimes.com/2025/10/04/style/jane-goodall-fashion.html
 
 **In Taylor’s Version, Ophelia Has a Fairy-Tale Ending**\
 `Taylor Swift reimagines the fate of the tragic “Hamlet” heroine on her new album, “The Life of a Showgirl.” But did she really need saving?`\
