@@ -1,3 +1,11 @@
+**Trump Administration Is Said to Plan to Cut Refugee Admissions to a Record Low**\
+`Most of the slots would go to white South Africans and others facing “unjust discrimination,” according to people familiar with the matter and documents obtained by The New York Times.`\
+https://nytimes.com/2025/10/03/us/politics/trump-refugee-admissions-south-africa.html
+
+**WNBA commissioner Cathy Engelbert addresses player criticism, CBA, officiating, job security**\
+`Engelbert denied Napheesa Collier's account of a conversation that involved comments about Caitlin Clark's value.`\
+https://nytimes.com/athletic/6688187/2025/10/03/wnba-commissioner-cathy-engelbert-addresses-player-criticism-cba-officiating-job-security/
+
 **WNBA commissioner Cathy Engelbert addresses player criticism, CBA, officiating, job security**\
 `Engelbert denied Napheesa's Collier's account of a conversation that involved Caitlin Clark's value.`\
 https://nytimes.com/athletic/6688187/2025/10/03/wnba-commissioner-cathy-engelbert-addresses-player-criticism-cba-officiating-job-security/
