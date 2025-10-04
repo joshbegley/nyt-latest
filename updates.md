@@ -1,3 +1,7 @@
+**Luke Evangelista signs 2-year, $3 million AAV contract with Predators: Sources**\
+`Evangelista, who was the NHL's last remaining unsigned RFA, had 10 goals and 22 assists in 68 games last season.`\
+https://nytimes.com/athletic/6682256/2025/10/03/luke-evangelista-contract-predators/
+
 **How to watch Dodgers at Phillies: Game 1 Time, TV, streaming**\
 `Find out how to watch the Los Angeles Dodgers play the Philadelphia Phillies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6688016/2025/10/03/how-to-watch-dodgers-vs-phillies-game-1-tv-channel-and-streaming-options-for-october-4/

@@ -1,3 +1,23 @@
+**Marjorie Taylor Greene Criticizes Senate Republicans for Government Shutdown**\
+`In a social media post, the far-right Georgia congresswoman called on Senate Republicans to eliminate the filibuster, lowering the threshold on future legislation to a simple majority.`\
+https://nytimes.com/2025/10/03/us/politics/marjorie-taylor-greene-shutdown.html
+
+**2 Teen Girls Were Run Over on Their Way to Get Ice Cream. Was It Murder?**\
+`Residents of a small New Jersey town mourned the deaths of the 17-year-old friends as a third teenager was charged with hitting them intentionally at 70 miles per hour.`\
+https://nytimes.com/2025/10/03/nyregion/hit-and-run-deaths-girls-new-jersey.html
+
+**Pressure's on Cubs, Brewers with NLCS berth at stake. But who's feeling it more?**\
+`With NLDS opening Saturday in Milwaukee, maybe some pressure has shifted to Brewers? The Cubs are just a plucky wild-card team, after all.`\
+https://nytimes.com/athletic/6687999/2025/10/03/cubs-brewers-nlds-craig-counsell-nl-division-series-game-1/
+
+**Federal Workers’ Union Sues Administration Over Partisan Email Language**\
+`Department of Education employees this week found that their out-of-office emails during the government shutdown had been edited to include partisan language.`\
+https://nytimes.com/2025/10/03/us/politics/partisan-emails-education-dept-workers-lawsuit.html
+
+**Dodger Details: Lingering questions ahead of the NLDS against the Phillies**\
+`Shohei Ohtani preps for his Game 1 start, a Will Smith health update, the outlook for Clayton Kershaw and more news in advance of the NLDS.`\
+https://nytimes.com/athletic/6688125/2025/10/03/dodgers-phillies-nlds-shohei-ohtani-start/
+
 **Luke Evangelista signs 2-year, $3 million AAV contract with Predators: Sources**\
 `Evangelista, who was the NHL's last remaining unsigned RFA, had 10 goals and 22 assists in 68 games last season.`\
 https://nytimes.com/athletic/6682256/2025/10/03/luke-evangelista-contract-predators/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6687936/2025/10/03/phillies-dodgers-nlds-matchup-cr
 **Trump Responds After Hamas Agrees to Release Hostages**\
 `In a short video statement posted on Truth Social, President Trump thanked several Arab and Muslim nations and expressed hope that the hostages would return home soon.`\
 https://nytimes.com/video/us/politics/100000010438964/trump-hamas-gaza-hostages-response.html
-
-**Aaron Boone fires back at Jays broadcaster who said Yankees ‘are not a good team'**\
-`Boone made a comment before the ALDS that was clearly directed at something Buck Martinez said during a Sept. 9 broadcast.`\
-https://nytimes.com/athletic/6688063/2025/10/03/aaron-boone-buck-martinez-yankees-blue-jays/
-
-**Arthur Jones, Former Baltimore Ravens Player, Dies at 39**\
-`He played for the Ravens when the team won the Super Bowl in 2013.`\
-https://nytimes.com/2025/10/03/sports/arthur-jones-dead.html
-
-**Reaching for a Connection to Taylor Swift**\
-`A Democrat in a crowded House primary in Colorado is far from the only politician grasping for Taylor Swift-related straws.`\
-https://nytimes.com/2025/10/03/us/politics/evan-munsing-taylor-swift.html
-
-**Treasury Plans to Mint $1 Commemorative Trump Coin**\
-`The coin, bearing President Trump’s face, would honor the 250th birthday of the United States.`\
-https://nytimes.com/2025/10/03/business/trump-commemorative-coin-treasury.html
-
-**How to watch Dodgers at Phillies: Game 1 Time, TV, streaming**\
-`Find out how to watch the Los Angeles Dodgers play the Philadelphia Phillies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6688016/2025/10/03/how-to-watch-dodgers-vs-phillies-game-1-tv-channel-and-streaming-options-for-october-4/
 
