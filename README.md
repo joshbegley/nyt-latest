@@ -1,3 +1,7 @@
+**Five keys to Bo Nix and the Broncos authoring an upset in marquee matchup vs. Eagles**\
+`The Broncos' will need to be stout on the interior of the offensive line against mammoth D-lineman Jordan Davis.`\
+https://nytimes.com/athletic/6686868/2025/10/04/broncos-eagles-jk-dobbins-bo-nix-sean-payton/
+
 **NFL Week 5 roundtable: Dillon Gabriel's Browns debut, struggling Ravens, Chiefs-Jaguars**\
 `Our writers also touch on the tush push staying in the headlines and Jaxson Dart's second start for the Giants.`\
 https://nytimes.com/athletic/6686914/2025/10/04/nfl-week-5-roundtable-browns-ravens-chiefs-jaguars/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/04/world/canada/canada-post-mail-strike.html
 **Wordle Review No. 1,569**\
 `Scroll down for hints and conversation about the puzzle for Sunday, Oct. 5, 2025.`\
 https://nytimes.com/2025/10/04/crosswords/wordle-review-1569.html
-
-**Strands Sidekick No. 581**\
-`Scroll down for hints and conversation about the puzzle for Sunday, Oct. 5, 2025.`\
-https://nytimes.com/2025/10/04/crosswords/strands-sidekick-581.html
 
