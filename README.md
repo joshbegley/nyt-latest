@@ -1,3 +1,15 @@
+**Eagles notes: Checking in on DeVonta Smith, facing Patrick Surtain II, missing Nakobe Dean**\
+`There’s too much talent on this team to think Philadelphia's offense won't get it together soon.`\
+https://nytimes.com/athletic/6688872/2025/10/04/eagles-notes-devonta-smith-patrick-surtain-nakobe-dean/
+
+**Russini: What I’m Hearing on A.J. Brown’s future, J.J. McCarthy, MetLife turf and more**\
+`Also: A harrowing morning for Mac Jones before his big night, and why Tyreek Hill was never heading back to Kansas City.`\
+https://nytimes.com/athletic/6688437/2025/10/04/nfl-rumors-news-brock-purdy-body-aj-brown-devonta-smith-jalen-hurts/
+
+**Pumpkin Is Not a Spice**\
+`These three pumpkin treats — chewy chocolate chip bars, maple-scented cornbread and a showstopping layer cake — let the gourd’s sweetness shine.`\
+https://nytimes.com/2025/10/04/dining/pumpkin-is-not-a-spice.html
+
 **WNBA: Las Vegas Aces take Game One from Phoenix Mercury**\
 `The Las Vegas Aces jumped out to an early lead in the WNBA Finals behind 21 points from MVP A’ja Wilson.`\
 https://nytimes.com/video/the-athletic/100000010439373/wnba-las-vegas-aces-take-game-one-from-phoenix-mercury.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6688467/2025/10/04/an-mlb-playoffs-full-of-droughts
 **Without Luka or LeBron, the Lakers preseason opener went as you'd expect**\
 `The Lakers being deliberate with James' ramp up, said the plan with Dončić wasn’t about anything other than the team taking real caution.`\
 https://nytimes.com/athletic/6688497/2025/10/04/lakers-lebron-james-luka-doncic-preseason/
-
-**Flick: 'I don't regret' criticism of Spain over Yamal injury**\
-`Yamal is set to be sidelined for up to three weeks after sustaining a recurrence of the groin injury he picked up on international duty.`\
-https://nytimes.com/athletic/6688808/2025/10/04/lamine-yamal-injury-spain-barcelona-flick-criticism/
-
-**Blues player poll: Who will be most stylish and casual under NHL’s new dress code?**\
-`The NHL's collective bargaining agreement will allow a more relaxed dress code for players. Which Blues will be the most stylish and casual?`\
-https://nytimes.com/athletic/6661906/2025/10/04/blues-player-poll-dress-code/
-
-**Lowetide: How the Oilers' AHL team has emerged as vitally important**\
-`The hockey in Bakersfield will be wildly entertaining this season, and fans will be watching several future NHL players.`\
-https://nytimes.com/athletic/6679808/2025/10/04/edmonton-oilers-ahl-bakersfield-condors-2025/
 
