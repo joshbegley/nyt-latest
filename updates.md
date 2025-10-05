@@ -1,3 +1,11 @@
+**Bear Fatally Mauls Camper in the Ozarks in Arkansas**\
+`The authorities, joined by local hunters and their dogs, are searching for the bear after a 60-year-old man was found dead.`\
+https://nytimes.com/2025/10/05/us/deadly-bear-attack-arkansas.html
+
+**White House to send delegation to Egypt for Gaza cease-fire talks.**\
+`By Shawn McCreesh, Aaron Boxerman and Ashley Ahn`\
+https://nytimes.com/live/2025/10/05/us/trump-news/white-house-to-send-delegation-to-egypt-for-gaza-cease-fire-talks
+
 **One-Pot Beans, Greens and Grains; Citrusy Miso-Butter Chicken; Everyday Dal**\
 `And more Weeknight 100 hits, because the days are getting both shorter and busier.`\
 https://nytimes.com/2025/10/05/dining/one-pot-beans-greens-and-grains-citrusy-miso-butter-chicken-everyday-dal.html

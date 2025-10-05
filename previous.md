@@ -1,3 +1,11 @@
+**Bear Fatally Mauls Camper in the Ozarks in Arkansas**\
+`The authorities, joined by local hunters and their dogs, are searching for the bear after a 60-year-old man was found dead.`\
+https://nytimes.com/2025/10/05/us/deadly-bear-attack-arkansas.html
+
+**White House to send delegation to Egypt for Gaza cease-fire talks.**\
+`By Shawn McCreesh, Aaron Boxerman and Ashley Ahn`\
+https://nytimes.com/live/2025/10/05/us/trump-news/white-house-to-send-delegation-to-egypt-for-gaza-cease-fire-talks
+
 **One-Pot Beans, Greens and Grains; Citrusy Miso-Butter Chicken; Everyday Dal**\
 `And more Weeknight 100 hits, because the days are getting both shorter and busier.`\
 https://nytimes.com/2025/10/05/dining/one-pot-beans-greens-and-grains-citrusy-miso-butter-chicken-everyday-dal.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6690927/2025/10/05/tottenham-leeds-fans-investigati
 **McLaren's latest F1 title was utterly dominant — and more records await**\
 `By every metric, McLaren has secured an impressive title-winning season, rivaling Red Bull's recent runs`\
 https://nytimes.com/athletic/6640850/2025/10/05/mclaren-2025-f1-constructors-title-by-the-numbers/
-
-**Submit a question for Pete Sampson's Notre Dame mailbag**\
-`As Notre Dame approaches the 2025 season's midpoint, the Irish have turned in a wide range of performances through five games.`\
-https://nytimes.com/athletic/6677208/2025/10/05/submit-a-question-for-pete-sampsons-notre-dame-mailbag-106/
-
-**F1 2025 promised a tight championship. McLaren's bold car design made it a rout**\
-`McLaren has clinched a 10th F1 constructors' title. Here's how it did it so early, and so thoroughly `\
-https://nytimes.com/athletic/6644988/2025/10/05/mclaren-win-f1-constructors-championship/
 
