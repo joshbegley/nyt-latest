@@ -1,3 +1,7 @@
+**Macron Appoints French Cabinet, but Doubts Over Government’s Stability Persist**\
+`There were significant holdovers from the previous cabinet, but President Emmanuel Macron also named several newcomers, including Bruno Le Maire, a veteran centrist politician as defense minister.`\
+https://nytimes.com/2025/10/05/world/europe/france-macron-cabinet.html
+
 **Costco to Sell Ozempic and Wegovy, Weight-Loss Wonder Drugs**\
 `Costco members will pay $499 a month out of pocket, the same price offered at CVS and Walmart, and on the manufacturer’s direct-to-consumer website.`\
 https://nytimes.com/2025/10/05/health/ozempic-wegovy-costco.html
