@@ -35,6 +35,6 @@ https://nytimes.com/video/world/asia/100000010440258/nepal-floods-rescues-rains.
 https://nytimes.com/athletic/6691623/2025/10/05/ap-top-25-poll-texas-penn-state-unranked/
 
 **Macron Appoints French Cabinet, but Doubts Over Government’s Stability Persist**\
-`There were significant holdovers from the previous cabinet, but President Emmanuel Macron also named several newcomers, including Bruno Le Maire, a veteran centrist politician, as defense minister.`\
+`There were significant holdovers from the previous cabinet, but President Emmanuel Macron also named several newcomers, including Bruno Le Maire, a veteran centrist politician as defense minister.`\
 https://nytimes.com/2025/10/05/world/europe/france-macron-cabinet.html
 
