@@ -1,3 +1,11 @@
+**Postecoglou says he 'loves a fight' after Forest extend winless run**\
+`Forest suffered a 2-0 defeat at St. James' Park and have yet to win in seven games under Postecoglou.`\
+https://nytimes.com/athletic/6691397/2025/10/05/ange-postecoglou-nottingham-forest-newcastle/
+
+**Pritzker Says Federal Agents Are Trying to Make Chicago a ‘War Zone’**\
+`Gov. JB Pritzker of Illinois said he had ordered state agencies to investigate a raid on a Chicago apartment building where there had been reports of children zip tied “nearly naked” by federal officers.`\
+https://nytimes.com/2025/10/05/us/politics/pritzker-chicago-immigration.html
+
 **Jannik Sinner retires from Shanghai Masters match with right leg issue**\
 `The defending champion could not finish his match against Tallon Griekspoor after struggling with cramps in brutal humidity.`\
 https://nytimes.com/athletic/6691493/2025/10/05/jannik-sinner-shanghai-masters-injury-out/
