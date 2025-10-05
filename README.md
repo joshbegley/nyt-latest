@@ -1,3 +1,7 @@
+**Macron Appoints French Cabinet, but Doubts Over Government’s Stability Persist**\
+`There were significant holdovers from the previous cabinet, but President Emmanuel Macron also named several newcomers, including Bruno Le Maire, a veteran centrist politician, as defense minister.`\
+https://nytimes.com/2025/10/05/world/europe/france-macron-cabinet.html
+
 **Vikings vs. Browns: Minnesota's go-ahead TD spoils Dillon Gabriel's debut**\
 `With three minutes left, quarterback Carson Wentz led Minnesota down the field in 10 plays, capping the drive with a touchdown.`\
 https://nytimes.com/athletic/6691262/2025/10/05/browns-vikings-london-score-result-takeaways-nfl-international/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6691262/2025/10/05/browns-vikings-london-score-resu
 `The move follows a judge’s order on Saturday that blocked the Oregon National Guard from deploying there. California’s governor said the state would sue.`\
 https://nytimes.com/2025/10/05/us/trump-national-guard-california-oregon-newsom.html
 
-**The Briefing: Brentford 0 Manchester City 1 - The unbeaten run goes on, but was it right to risk Rodri?**\
+**The Briefing: Brentford 0 Manchester City 1 – The unbeaten run goes on, but was it right to risk Rodri?**\
 `Pep Guardiola's side were initially slick and incisive, then fell back on solidity after the break to move three points from the top`\
 https://nytimes.com/athletic/6686461/2025/10/05/manchester-city-brentford-haaland-rodri/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6691397/2025/10/05/ange-postecoglou-nottingham-fore
 **Pritzker Says Federal Agents Are Trying to Make Chicago a ‘War Zone’**\
 `Gov. JB Pritzker of Illinois said he had ordered state agencies to investigate a raid on a Chicago apartment building where there had been reports of children zip tied “nearly naked” by federal officers.`\
 https://nytimes.com/2025/10/05/us/politics/pritzker-chicago-immigration.html
-
-**Jannik Sinner retires from Shanghai Masters match with right leg issue**\
-`The defending champion could not finish his match against Tallon Griekspoor after struggling with cramps in brutal humidity.`\
-https://nytimes.com/athletic/6691493/2025/10/05/jannik-sinner-shanghai-masters-injury-out/
 
