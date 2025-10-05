@@ -1,3 +1,7 @@
+**Arsenal confirm Odegaard MCL injury, midfielder out of Norway squad**\
+`Odegaard came off in the 30th minute of Saturday's game against West Ham after colliding his left knee with Crysencio Summerville’s leg.`\
+https://nytimes.com/athletic/6689236/2025/10/05/martin-odegaard-injury-update-norway/
+
 **Strong-Armed by Trump, Netanyahu Embraces Gaza Deal as a Personal Win**\
 `Prime Minister Benjamin Netanyahu of Israel took credit for an emerging agreement, but it was clear that President Trump was calling the shots.`\
 https://nytimes.com/2025/10/05/world/middleeast/trump-netanyahu-gaza-deal.html
