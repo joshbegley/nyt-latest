@@ -8,7 +8,7 @@ https://nytimes.com/athletic/6690225/2025/10/04/panthers-lightning-preseason-pen
 https://nytimes.com/athletic/6690425/2025/10/04/messi-assists-miami-rare-double/
 
 **Yankees' problems vs. Blue Jays run deeper than Aaron Judge failing in clutch again**\
-`Judge's sixth-inning at-bat was a killer, but there were many culprits for the Yankees — and lingering questions about whom they can trust. `\
+`Judge's sixth-inning at-bat was a killer, but there were many culprits for the Yankees — and lingering questions about whom they can trust.`\
 https://nytimes.com/athletic/6690386/2025/10/04/yankees-alds-problems-blue-jays-aaron-judge/
 
 **Miami holds off FSU, sending message in ACC, CFP race: Takeaways**\

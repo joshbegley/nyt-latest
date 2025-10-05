@@ -3,6 +3,15 @@
 `\
 https://nytimes.com/athletic/6690225/2025/10/04/panthers-lightning-preseason-penalties-ejections/
 
+**Yankees' problems vs. Blue Jays run deeper than Aaron Judge failing in clutch again**\
+`Judge's sixth-inning at-bat was a killer, but there were many culprits for the Yankees — and lingering questions about whom they can trust.`\
+https://nytimes.com/athletic/6690386/2025/10/04/yankees-alds-problems-blue-jays-aaron-judge/
+
+**Panthers, Lightning preseason finale ends with 312 penalty minutes, 16 ejections**\
+`The Panthers’ eighth goal was taken off the board after Niko Mikkola was ruled ineligible due to a game misconduct.
+`\
+https://nytimes.com/athletic/6690225/2025/10/04/panthers-lightning-preseason-penalties-ejections/
+
 **Panthers, Lightning preseason finale ends with 312 penalty minutes, 16 ejections**\
 `The Panthers’ eighth goal was taken off the board after Niko Mikkola was ruled ineligible due to a game misconduct.
 `\
