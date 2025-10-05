@@ -1,3 +1,19 @@
+**Fantasy football Week 5 inactives: Bucky Irving, Terry McLaurin out**\
+`Fantasy managers are in tears after Malik Nabers and Tyreek Hill were lost for the season. Lamar Jackson is likely out too. And who else?`\
+https://nytimes.com/athletic/6686846/2025/10/05/fantasy-football-week-5-inactives-bucky-irving-terry-mclaurin-out/
+
+**On the ‘S.N.L.’ Season Premiere, Trump Warns: ‘Daddy’s Watching’**\
+`And the show’s host, Bad Bunny, is just what the president and his ICE posse will be looking for at the Super Bowl.`\
+https://nytimes.com/2025/10/05/arts/television/05cul-snl-bad-bunny-season51.html
+
+**Trump Administration Live Updates: Judge Blocks Deployment of National Guard in Oregon**\
+``\
+https://nytimes.com/live/2025/10/05/us/trump-news
+
+**Civility and Disagreement in American Politics**\
+`Readers respond to a guest essay by Roxane Gay. Also: A Canadian’s lament.`\
+https://nytimes.com/2025/10/05/opinion/civility-american-politics.html
+
 **Tracking Tropical Storm Halong**\
 `See the likely path and wind arrival times for Halong`\
 https://nytimes.com/interactive/2025/weather/halong-map-path-tracker.html

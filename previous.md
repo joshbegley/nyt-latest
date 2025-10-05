@@ -1,3 +1,19 @@
+**Fantasy football Week 5 inactives: Bucky Irving, Terry McLaurin out**\
+`Fantasy managers are in tears after Malik Nabers and Tyreek Hill were lost for the season. Lamar Jackson is likely out too. And who else?`\
+https://nytimes.com/athletic/6686846/2025/10/05/fantasy-football-week-5-inactives-bucky-irving-terry-mclaurin-out/
+
+**On the ‘S.N.L.’ Season Premiere, Trump Warns: ‘Daddy’s Watching’**\
+`And the show’s host, Bad Bunny, is just what the president and his ICE posse will be looking for at the Super Bowl.`\
+https://nytimes.com/2025/10/05/arts/television/05cul-snl-bad-bunny-season51.html
+
+**Trump Administration Live Updates: Judge Blocks Deployment of National Guard in Oregon**\
+``\
+https://nytimes.com/live/2025/10/05/us/trump-news
+
+**Civility and Disagreement in American Politics**\
+`Readers respond to a guest essay by Roxane Gay. Also: A Canadian’s lament.`\
+https://nytimes.com/2025/10/05/opinion/civility-american-politics.html
+
 **Tracking Tropical Storm Halong**\
 `See the likely path and wind arrival times for Halong`\
 https://nytimes.com/interactive/2025/weather/halong-map-path-tracker.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6689385/2025/10/05/edmonton-oilers-roster-2025-lowe
 **Mandel's Final Thoughts: Miami is surging as Penn State and Texas squander high hopes**\
 `Teams like Texas Tech, Cincinnati and Virginia are off to surprisingly good starts while preseason No. 1 Texas and No. 2 Penn State fade.`\
 https://nytimes.com/athletic/6690688/2025/10/05/college-football-scores-results-week-6/
-
-**Aces' Becky Hammon, Mercury's Nate Tibbetts on South Dakota's Mount Rushmore of coaching**\
-`Tibbetts and Hammon are competing in the WNBA Finals. As a player, Hammon faced Tibbetts' dad, who coached high school basketball.`\
-https://nytimes.com/athletic/6690336/2025/10/05/wnba-finals-becky-hammon-nate-tibbetts-south-dakota/
-
-**Donald Trump, the Sports Fan**\
-`Today, we take a look at the president’s sports fandom and what it reveals about his worldview.`\
-https://nytimes.com/2025/10/05/world/hostage-deal-israel-hamas-portland-syria.html
-
-**At 60, Mario Lemieux remains Pittsburgh's most important and interesting sports figure**\
-`No athlete in the history of North American pro sports has been more synonymous with a franchise than Lemieux has been with the Penguins.`\
-https://nytimes.com/athletic/6690236/2025/10/05/mario-lemieux-penguins-nhl-sports/
-
-**Michigan final thoughts: Donaven McCulley's breakout, improving CFP odds and more**\
-`Michigan isn’t a great team right now, but there aren’t a lot of those in college football at the moment. Everybody has flaws.`\
-https://nytimes.com/athletic/6690186/2025/10/05/michigan-wisconsin-donoven-mcculley-colllege-football-playoff/
 
