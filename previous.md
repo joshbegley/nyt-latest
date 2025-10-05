@@ -1,9 +1,17 @@
+**Until Saturday: The most disastrous loss since ...?**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6691094/2025/10/05/james-franklin-penn-state-ucla-until-saturday/
+
+**Predicting the College Football Playoff after Week 6: Hello Bama! Goodbye Penn State!**\
+`Right now, three of the SEC’s four unbeatens are in — Oklahoma, Ole Miss and Texas A&M. Alabama, Georgia and LSU are also in the field.`\
+https://nytimes.com/athletic/6690596/2025/10/05/college-football-playoff-2025-bracket-prediction-week-6/
+
 **As preseason favorites crumble, Ryan Day and Ohio State keep winning at a record pace**\
 `After Penn State and Texas suffered upset losses, Ohio State's win over Minnesota pushed Day's win percentage past Knute Rockne.`\
 https://nytimes.com/athletic/6690987/2025/10/05/ohio-state-ryan-day-coaching-record/
 
 **Amanda Anisimova beats fading Linda Nosková to win China Open**\
-`Anisimova ended a run of three final defeats by overcoming a second-set wobble against the Czech.`\
+`The American ended a run of three final defeats by overcoming a second-set wobble against her Czech opponent.`\
 https://nytimes.com/athletic/6690933/2025/10/05/amanda-anisimova-linda-noskova-china-open-result-analysis/
 
 **The Pulse: More than your average upset**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/05/opinion/civility-american-politics.html
 **Tracking Tropical Storm Halong**\
 `See the likely path and wind arrival times for Halong`\
 https://nytimes.com/interactive/2025/weather/halong-map-path-tracker.html
-
-**How to watch Mercury at Aces: WNBA Finals Game 2 Time, TV, streaming**\
-`Find out how to watch the Phoenix Mercury play the Las Vegas Aces, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6691011/2025/10/05/mercury-vs-aces-stream-how-to-watch-oct-5/
-
-**OPEC Plus Agrees to Small Boost in Oil Production**\
-`Saudi Arabia, the de facto leader of the oil cartel, sees advantages in increasing output despite market risks.`\
-https://nytimes.com/2025/10/05/business/opec-plus-oil-production-increase.html
 

@@ -1,3 +1,15 @@
+**Until Saturday: The most disastrous loss since ...?**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6691094/2025/10/05/james-franklin-penn-state-ucla-until-saturday/
+
+**Predicting the College Football Playoff after Week 6: Hello Bama! Goodbye Penn State!**\
+`Right now, three of the SEC’s four unbeatens are in — Oklahoma, Ole Miss and Texas A&M. Alabama, Georgia and LSU are also in the field.`\
+https://nytimes.com/athletic/6690596/2025/10/05/college-football-playoff-2025-bracket-prediction-week-6/
+
+**Amanda Anisimova beats fading Linda Nosková to win China Open**\
+`The American ended a run of three final defeats by overcoming a second-set wobble against her Czech opponent.`\
+https://nytimes.com/athletic/6690933/2025/10/05/amanda-anisimova-linda-noskova-china-open-result-analysis/
+
 **As preseason favorites crumble, Ryan Day and Ohio State keep winning at a record pace**\
 `After Penn State and Texas suffered upset losses, Ohio State's win over Minnesota pushed Day's win percentage past Knute Rockne.`\
 https://nytimes.com/athletic/6690987/2025/10/05/ohio-state-ryan-day-coaching-record/
