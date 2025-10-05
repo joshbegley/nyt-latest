@@ -1,3 +1,7 @@
+**Cubs takeaways: Chicago needs to lean into its advantage, no Kyle Tucker in right and more**\
+`Plus notes on how the Cubs' high-leverage arms got a break on Saturday, which could help their chances in Game 2.`\
+https://nytimes.com/athletic/6692136/2025/10/05/cubs-nlds-takeaways-power-advantage-kyle-tucker-right-field/
+
 **Israel and Hamas Show Signs of Embracing Parts of Trump’s Cease-Fire Deal**\
 `Both sides have reacted positively to a U.S. proposal to release Israeli hostages as part of a cease-fire agreement, but reaching a full deal that would require Hamas to disarm remains a serious challenge.`\
 https://nytimes.com/video/world/100000010440586/international-middle-east-israel-hamas.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6691825/2025/10/05/broncos-eagles-score-result-take
 **Panthers-Dolphins takeaways: Down 17-0, Carolina rallies behind Rico Dowdle**\
 `The Carolina Panthers tied their franchise record for biggest comeback.`\
 https://nytimes.com/athletic/6692098/2025/10/05/dolphins-panthers-score-result-takeaways-nfl-2/
-
-**Chargers' Keenan Allen becomes fastest in NFL history to 1,000 catches**\
-`Allen reached the century mark in 159 games, surpassing the record of 167 games set by Hall of Fame receiver Marvin Harrison. `\
-https://nytimes.com/athletic/6670442/2025/10/05/chargers-keenan-allen-nfl-record-1000-catches/
 
