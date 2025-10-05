@@ -1,3 +1,7 @@
+**Costco to Sell Popular Weight-Loss Drugs Ozempic and Wegovy**\
+`Costco members will pay $499 a month out of pocket, the same price offered at CVS and Walmart, and on the manufacturer’s direct-to-consumer website.`\
+https://nytimes.com/2025/10/05/health/ozempic-wegovy-costco.html
+
 **Jets lose chance at end zone after pass hits Skycam, officials botch rule**\
 `When Justin Fields' pass was deflected and hit the Skycam, the play was erroneously called an incomplete pass.`\
 https://nytimes.com/athletic/6691863/2025/10/05/jets-skycam-botched-rule-officials-cowboys/
