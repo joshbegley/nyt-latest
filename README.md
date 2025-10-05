@@ -1,3 +1,7 @@
+**Israel and Hamas Show Signs of Embracing Parts of Trump’s Cease-Fire Deal**\
+`Both sides have reacted positively to a U.S. proposal to release Israeli hostages as part of a cease-fire agreement, but reaching a full deal that would require Hamas to disarm remains a serious challenge.`\
+https://nytimes.com/video/embedded/world/middleeast/100000010440586/international-middle-east-israel-hamas.html
+
 **Moise Bombito injury: What comes next for Canada?**\
 `Canada’s World Cup hopes were dealt a severe blow as star centre-back Moise Bombito suffered a fractured left tibia on Sunday.`\
 https://nytimes.com/athletic/6692162/2025/10/05/moise-bombito-injury-what-comes-next-for-canada/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6692098/2025/10/05/dolphins-panthers-score-result-t
 **Chargers' Keenan Allen becomes fastest in NFL history to 1,000 catches**\
 `Allen reached the century mark in 159 games, surpassing the record of 167 games set by Hall of Fame receiver Marvin Harrison. `\
 https://nytimes.com/athletic/6670442/2025/10/05/chargers-keenan-allen-nfl-record-1000-catches/
-
-**Are the Ravens hopeless? Do the Jets or Giants have it worse? Our NFL experts' Week 5 takeaways**\
-`The Broncos registered an impressive road win in Philadelphia, and the AFC South suddenly looks like a competitive division.`\
-https://nytimes.com/athletic/6691685/2025/10/05/nfl-takeaways-week-5-scores-results/
 
