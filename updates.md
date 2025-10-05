@@ -1,3 +1,11 @@
+**After Cristobal, Caines claim Florida — the Canes cement themselves as contenders**\
+`The Canes are now back-to-back state champs in Florida and are cementing themselves as national championship contenders. `\
+https://nytimes.com/athletic/6690692/2025/10/05/miami-florida-championship-contender/
+
+**What's with the NFL's uptick in blocked kicks? Coaches, players offer theories**\
+`The use of front-line starters on kick block teams and coaches diverting their focus toward dynamic kickoffs are two potential reasons.`\
+https://nytimes.com/athletic/6683327/2025/10/05/nfl-blocked-field-goals-theories/
+
 **Fire at U.K. Mosque Is Being Treated as Hate Crime, Police Say**\
 `The attack came at a time of heightened anxiety after a deadly terrorist attack at a synagogue in Manchester.`\
 https://nytimes.com/2025/10/05/world/europe/peacehaven-arson-mosque-england.html
