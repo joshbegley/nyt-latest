@@ -3,6 +3,11 @@
 `\
 https://nytimes.com/athletic/6690225/2025/10/04/panthers-lightning-preseason-penalties-ejections/
 
+**Panthers, Lightning preseason finale ends with 312 penalty minutes, 16 ejections**\
+`The Panthers’ eighth goal was taken off the board after Niko Mikkola was ruled ineligible due to a game misconduct.
+`\
+https://nytimes.com/athletic/6690225/2025/10/04/panthers-lightning-preseason-penalties-ejections/
+
 **Messi delivers 3 assists for Miami to close in on rare double**\
 `Lionel Messi didn't score but he created three more goals for Inter Miami which moved him one off top spot in the MLS assist rankings.`\
 https://nytimes.com/athletic/6690425/2025/10/04/messi-assists-miami-rare-double/
