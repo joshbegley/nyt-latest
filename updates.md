@@ -1,3 +1,7 @@
+**While Dillon Gabriel provided hope, Browns' loss to Vikings felt all too familiar**\
+`Cleveland's offense appeared to get a boost with the rookie QB behind center, but the team again failed to reach the 20-point mark. `\
+https://nytimes.com/athletic/6692191/2025/10/05/browns-loss-vikings-dillon-gabriel/
+
 **Cubs takeaways: Chicago needs to lean into its advantage, no Kyle Tucker in right and more**\
 `Plus notes on how the Cubs' high-leverage arms got a break on Saturday, which could help their chances in Game 2.`\
 https://nytimes.com/athletic/6692136/2025/10/05/cubs-nlds-takeaways-power-advantage-kyle-tucker-right-field/
