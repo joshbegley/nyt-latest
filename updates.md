@@ -1,3 +1,7 @@
+**A Tel-tale sign: Is goal the first step in Mathys coming good for Tottenham?**\
+`Mathys Tel has not hit his best form at Tottenham so far, but his goal against Leeds United shows he could become a crucial player`\
+https://nytimes.com/athletic/6689404/2025/10/05/mathys-tel-goal-tottenham-leeds/
+
 **Deion Sanders believes his blood clots may have returned**\
 `Sanders, who coached part of Colorado's loss to TCU with one shoe on his left foot, said he has a doctor's appointment scheduled.`\
 https://nytimes.com/athletic/6690646/2025/10/05/deion-sanders-blood-clots-comments-colorado/

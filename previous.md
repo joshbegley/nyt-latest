@@ -1,3 +1,7 @@
+**A Tel-tale sign: Is goal the first step in Mathys coming good for Tottenham?**\
+`Mathys Tel has not hit his best form at Tottenham so far, but his goal against Leeds United shows he could become a crucial player`\
+https://nytimes.com/athletic/6689404/2025/10/05/mathys-tel-goal-tottenham-leeds/
+
 **Deion Sanders believes his blood clots may have returned**\
 `Sanders, who coached part of Colorado's loss to TCU with one shoe on his left foot, said he has a doctor's appointment scheduled.`\
 https://nytimes.com/athletic/6690646/2025/10/05/deion-sanders-blood-clots-comments-colorado/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6689297/2025/10/05/leeds-dominic-calvert-lewin-anal
 **Tigers-Mariners Game 1 takeaways: Detroit comes back in extra-innings win**\
 `The Mariners now have to deal with Cy Young favorite Tarik Skubal in Game 2 on Sunday.`\
 https://nytimes.com/athletic/6690220/2025/10/05/tigers-mariners-game-1-score-results-takeaways-playoffs-mlb/
-
-**European football has never looked so English**\
-`Never before have so many English players appeared in major European leagues in one season - it is evidence of a growing trend`\
-https://nytimes.com/athletic/6676674/2025/10/05/english-players-europe-bellingham-quansah-morton/
 
