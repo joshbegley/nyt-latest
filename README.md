@@ -1,3 +1,7 @@
+**Landslides Kill Dozens in Nepal During Political Transition**\
+`Deadly rainfall, which also hit neighboring India, added to the woes of interim leaders in Nepal who took over last month after nationwide protests.`\
+https://nytimes.com/2025/10/05/world/asia/landslides-floods-nepal-india.html
+
 **Not All National Parks Remain Open in the Shutdown. Here’s What to Know.**\
 `Some underground attractions are closed, and many outdoor sites have reduced their services.`\
 https://nytimes.com/2025/10/05/us/shutdown-national-parks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/05/us/politics/texas-lgbtq-schools.html
 **How to watch NASCAR Cup Series at Charlotte: TV, streaming for Roval 400 cutdown race**\
 `Roval is unlike any other course on the schedule. It will also determine which drivers move on to the Round of 8 and which go home.`\
 https://nytimes.com/athletic/6684575/2025/10/05/nascar-roval-400-charlotte-playoffs-how-to-watch-2025/
-
-**Beyond the Nobel Prizes Is a World of Scientific Awards**\
-`Nobels are awarded in only three scientific categories, but other awards honor researchers across different fields.`\
-https://nytimes.com/2025/10/05/science/awards-prizes-non-nobels.html
 

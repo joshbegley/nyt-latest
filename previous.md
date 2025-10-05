@@ -1,40 +1,40 @@
-**Typhoon Matmo Makes Landfall in Southern China**\
-`The tropical cyclone disrupted transportation, forced more than 151,000 evacuations and raised fears of flooding as it barreled toward Guangdong province.`\
-https://nytimes.com/2025/10/05/world/asia/typhoon-matmo-china-guangdong.html
+**Not All National Parks Remain Open in the Shutdown. Here’s What to Know.**\
+`Some underground attractions are closed, and many outdoor sites have reduced their services.`\
+https://nytimes.com/2025/10/05/us/shutdown-national-parks.html
 
-**Israel at War With Itself**\
-`The longest war of an endless Israeli-Palestinian conflict has come to challenge Israel’s own image and understanding of itself.`\
-https://nytimes.com/2025/10/05/world/middleeast/israel-challenges-gaza-war.html
+**The Paradox of Violence**\
+`We explain why religious attacks can incline people toward faith.`\
+https://nytimes.com/2025/10/05/briefing/the-paradox-of-violence.html
 
-**New York City Is Full of Green Space. You Just Have to Find It.**\
-`The city’s millions of residents are crammed together, competing for space to live, play, work and rest.`\
-https://nytimes.com/2025/10/05/nyregion/new-york-city-green-space.html
+**How ‘American Girl’ Enhances a Scene in ‘One Battle After Another’**\
+`The Tom Petty hit has a rich cinematic legacy that Paul Thomas Anderson draws on for the closing moments of his tale of radical revolutionaries.`\
+https://nytimes.com/2025/10/05/movies/one-battle-after-another-american-girl.html
 
-**‘As I Contemplated What to Do Next, I Heard a Voice Behind Me’**\
-`Passing a baton in an urban relay race, some familiar footwear and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2025/10/05/nyregion/metropolitan-diary.html
+**Quiet! I’m Working Here.**\
+`Why does anyone expect me to get anything done amid the noise and constant pings of my workplace?`\
+https://nytimes.com/2025/10/05/business/quiet-im-working-here.html
 
-**A Pacific Gateway Shows the Kremlin’s Grip on Russia’s Vast Expanse**\
-`In a country where power is highly centralized, Moscow sets the tone for Vladivostok, 4,000 miles away, complicating longstanding ambitions to make it a trading powerhouse.`\
-https://nytimes.com/2025/10/05/world/europe/vladivostok-moscow-kremlin-rule.html
+**‘The Gold’ Review: British Crime the Old-Fashioned Way**\
+`A true-crime story on PBS’s “Masterpiece” harks back to a hard-boiled tradition.`\
+https://nytimes.com/2025/10/05/arts/television/the-gold-masterpiece-review.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/10/05/crosswords/spelling-bee-forum.html
+**What I Learned From a 102-Year-Old Yoga Master**\
+`When a fitness reporter traveled to a village in France to meet centenarian yoga teacher Charlotte Chopin, she was reminded that movement didn’t have to be complicated.`\
+https://nytimes.com/2025/10/05/insider/what-i-learned-from-a-102-year-old-yoga-master.html
 
-**A Tel-tale sign: Is goal the first step in Mathys coming good for Tottenham?**\
-`Mathys Tel has not hit his best form at Tottenham so far, but his goal against Leeds United shows he could become a crucial player`\
-https://nytimes.com/athletic/6689404/2025/10/05/mathys-tel-goal-tottenham-leeds/
+**Craft Breweries Struggle as Sales and Appetites Wane**\
+`Once the darling of the alcohol industry, small-batch beer makers are shutting down because of increased competition and flagging interest.`\
+https://nytimes.com/2025/10/05/business/craft-breweries-close-sales-decline.html
 
-**Deion Sanders believes his blood clots may have returned**\
-`Sanders, who coached part of Colorado's loss to TCU with one shoe on his left foot, said he has a doctor's appointment scheduled.`\
-https://nytimes.com/athletic/6690646/2025/10/05/deion-sanders-blood-clots-comments-colorado/
+**Texas L.G.B.T.Q. Teenagers and Families Navigate a Public School Clampdown**\
+`Under a new state law, public schools can no longer sponsor gay and gender clubs or “assist” with transitioning, but implementation appears to be varying by the politics of the districts.`\
+https://nytimes.com/2025/10/05/us/politics/texas-lgbtq-schools.html
 
-**The New York Times in Print for Sunday, Oct. 5, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/10/05/todays-new-york-times
+**How to watch NASCAR Cup Series at Charlotte: TV, streaming for Roval 400 cutdown race**\
+`Roval is unlike any other course on the schedule. It will also determine which drivers move on to the Round of 8 and which go home.`\
+https://nytimes.com/athletic/6684575/2025/10/05/nascar-roval-400-charlotte-playoffs-how-to-watch-2025/
 
-**They Have Waited Two Years for the Hostages. These Are Their Rituals.**\
-`Families of captives in Gaza find private ways to stay connected to their loved ones.`\
-https://nytimes.com/2025/10/05/opinion/israel-gaza-hostages-october-7-anniversary.html
+**Beyond the Nobel Prizes Is a World of Scientific Awards**\
+`Nobels are awarded in only three scientific categories, but other awards honor researchers across different fields.`\
+https://nytimes.com/2025/10/05/science/awards-prizes-non-nobels.html
 
