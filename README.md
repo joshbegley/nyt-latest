@@ -1,3 +1,7 @@
+**Deion Sanders believes his blood clots may have returned**\
+`Sanders, who coached part of Colorado's loss to TCU with one shoe on his left foot, said he has a doctor's appointment scheduled.`\
+https://nytimes.com/athletic/6690646/2025/10/05/deion-sanders-blood-clots-comments-colorado/
+
 **The New York Times in Print for Sunday, Oct. 5, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/05/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6690220/2025/10/05/tigers-mariners-game-1-score-res
 **European football has never looked so English**\
 `Never before have so many English players appeared in major European leagues in one season - it is evidence of a growing trend`\
 https://nytimes.com/athletic/6676674/2025/10/05/english-players-europe-bellingham-quansah-morton/
-
-**How to watch Tigers at Mariners: Game 1 Time, TV, streaming**\
-`Find out how to watch the Detroit Tigers play the Seattle Mariners, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6690562/2025/10/05/tigers-vs-mariners-stream-how-to-watch-oct-5/
 
