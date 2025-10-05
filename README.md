@@ -1,3 +1,7 @@
+**Typhoon Matmo Makes Landfall in Southern China**\
+`The tropical cyclone disrupted transportation, forced more than 151,000 evacuations and raised fears of flooding as it barreled toward Guangdong province.`\
+https://nytimes.com/2025/10/05/world/asia/typhoon-matmo-china-guangdong.html
+
 **Israel at War With Itself**\
 `The longest war of an endless Israeli-Palestinian conflict has come to challenge Israel’s own image and understanding of itself.`\
 https://nytimes.com/2025/10/05/world/middleeast/israel-challenges-gaza-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/10/05/todays-new-york-times
 **They Have Waited Two Years for the Hostages. These Are Their Rituals.**\
 `Families of captives in Gaza find private ways to stay connected to their loved ones.`\
 https://nytimes.com/2025/10/05/opinion/israel-gaza-hostages-october-7-anniversary.html
-
-**The West Is Lost**\
-`Loss has become a pervasive condition of life in Europe and America.`\
-https://nytimes.com/2025/10/05/opinion/west-europe-america-lost.html
 
