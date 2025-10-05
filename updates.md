@@ -1,3 +1,7 @@
+**FA investigating after objects thrown at Spurs players during win at Leeds**\
+`In separate incidents, Spurs duo Pedro Porro and Mohammed Kudus appeared to be targeted with objects thrown from the Elland Road home end.`\
+https://nytimes.com/athletic/6690927/2025/10/05/tottenham-leeds-fans-investigation/
+
 **McLaren's latest F1 title was utterly dominant — and more records await**\
 `By every metric, McLaren has secured an impressive title-winning season, rivaling Red Bull's recent runs`\
 https://nytimes.com/athletic/6640850/2025/10/05/mclaren-2025-f1-constructors-title-by-the-numbers/
