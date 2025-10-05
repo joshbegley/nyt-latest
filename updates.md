@@ -1,3 +1,7 @@
+**Wild's opening night roster all but set after three players cut Sunday**\
+`Young forwards Danila Yurov and Liam Ohgren and young defensemen Zeev Buium and David Jiricek appear to have made the team out of camp.`\
+https://nytimes.com/athletic/6691751/2025/10/05/wild-nhl-opening-night-roster/
+
 **NHL waiver tracker: Best players on the wire throughout 2025-26 preseason**\
 `Corey Pronman and Harman Dayal provide analysis of the top players placed on waivers as the regular season approaches.`\
 https://nytimes.com/athletic/6662091/2025/10/05/nhl-waivers-tracker-preseason-2025/
