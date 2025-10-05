@@ -1,3 +1,7 @@
+**Taylor Swift’s ‘Showgirl’ Promotional Film Collects $33 Million**\
+`“The Official Release Party of a Showgirl” drastically outperformed “The Smashing Machine,” a vehicle for Dwayne Johnson, known to fans as the Rock.`\
+https://nytimes.com/2025/10/05/business/media/taylor-swift-showgirl-film-box-office.html
+
 **Spain Sail Grand Prix: A shocking weekend for Australia as Britain tops the standings**\
 `Britain tops the overall SailGP standings after Dylan Fletcher's team secured a dramatic victory in the winner-takes-all final in Cadiz`\
 https://nytimes.com/athletic/6691115/2025/10/05/spain-sail-grand-prix-britain-win/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6690649/2025/10/05/matt-grzelcyk-chicago-blackhawks
 **Both Parties Are Resigned to Deadlock as Shutdown Takes Hold**\
 `Republicans, who hold a governing trifecta, have adopted a mostly passive stance while Democrats dig in for a fight, with both feeling they have the political upper hand.`\
 https://nytimes.com/2025/10/05/us/politics/parties-deadlock-shutdown.html
-
-**Bear Fatally Mauls Camper in the Ozarks in Arkansas**\
-`The authorities, joined by local hunters and their dogs, are searching for the bear after a 60-year-old man was found dead.`\
-https://nytimes.com/2025/10/05/us/deadly-bear-attack-arkansas.html
 
