@@ -1,3 +1,11 @@
+**Texans vs. Ravens takeaways: C.J. Stroud and Houston dominate as Baltimore hits rock bottom**\
+`Stroud threw four touchdowns as Houston rolled. Now, even a healthy Lamar Jackson might not be enough to save the lifeless Ravens.`\
+https://nytimes.com/athletic/6691689/2025/10/05/texans-ravens-score-result-takeaways-nfl/
+
+**Brewers' Jackson Chourio uncertain for Game 2, reliever Aaron Ashby to open**\
+`The MRI results on Chourio's hamstring were "inconclusive" according to Milwaukee manager Pat Murphy.`\
+https://nytimes.com/athletic/6691942/2025/10/05/brewers-jackson-chourio-injury-nlds/
+
 **Trump Renews Layoff Threats as Shutdown Accusations Continue to Fly**\
 `Senator Chuck Schumer and Speaker Mike Johnson each accused the other of not being “serious” about talks to end the shutdown as the government was closed for a fifth day.`\
 https://nytimes.com/2025/10/05/us/politics/trump-democrats-shutdown.html
