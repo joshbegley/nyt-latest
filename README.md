@@ -2,7 +2,7 @@
 `Simpson was the best player on the field, befuddling Vanderbilt with his elusiveness and creativity.`\
 https://nytimes.com/athletic/6690283/2025/10/04/ty-simpson-alabama-diego-pavia-vanderbilt/
 
-**Vannini: If this Penn State team can't get it done under James Franklin, can any?**\
+**If this Penn State team can't get it done under James Franklin, can any?**\
 `If this Penn State team can't get it done, what James Franklin-led PSU team can? `\
 https://nytimes.com/athletic/6690210/2025/10/04/penn-state-ucla-loss-james-franklin/
 
