@@ -1,3 +1,7 @@
+**Wild's opening night roster all but set after three players cut Sunday**\
+`Young forwards Danila Yurov and Liam Ohgren and young defensemen Zeev Buium and David Jiricek appear to have made the team out of camp.`\
+https://nytimes.com/athletic/6691751/2025/10/05/wild-nhl-opening-night-roster/
+
 **NHL waiver tracker: Best players on the wire throughout 2025-26 preseason**\
 `Corey Pronman and Harman Dayal provide analysis of the top players placed on waivers as the regular season approaches.`\
 https://nytimes.com/athletic/6662091/2025/10/05/nhl-waivers-tracker-preseason-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6691624/2025/10/05/barcelona-sevilla-hansi-flick/
 **Leader of U.K. Conservatives Vows to Deport 150,000 People a Year**\
 `Kemi Badenoch, whose party is sinking in polls, outlined plans resembling Trump policies against those accused of being in the United States illegally.`\
 https://nytimes.com/2025/10/05/world/europe/kemi-badenoch-uk-conservative-party-deportations.html
-
-**Taylor Swift’s ‘Showgirl’ Promotional Film Collects $33 Million**\
-`“The Official Release Party of a Showgirl” drastically outperformed “The Smashing Machine,” a vehicle for Dwayne Johnson, known to fans as the Rock.`\
-https://nytimes.com/2025/10/05/business/media/taylor-swift-showgirl-film-box-office.html
 
