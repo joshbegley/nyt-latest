@@ -1,3 +1,11 @@
+**McLaren's latest F1 title was utterly dominant — and more records await**\
+`By every metric, McLaren has secured an impressive title-winning season, rivaling Red Bull's recent runs`\
+https://nytimes.com/athletic/6640850/2025/10/05/mclaren-2025-f1-constructors-title-by-the-numbers/
+
+**Submit a question for Pete Sampson's Notre Dame mailbag**\
+`As Notre Dame approaches the 2025 season's midpoint, the Irish have turned in a wide range of performances through five games.`\
+https://nytimes.com/athletic/6677208/2025/10/05/submit-a-question-for-pete-sampsons-notre-dame-mailbag-106/
+
 **F1 2025 promised a tight championship. McLaren's bold car design made it a rout**\
 `McLaren has clinched a 10th F1 constructors' title. Here's how it did it so early, and so thoroughly `\
 https://nytimes.com/athletic/6644988/2025/10/05/mclaren-win-f1-constructors-championship/

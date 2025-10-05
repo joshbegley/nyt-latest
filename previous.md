@@ -1,3 +1,11 @@
+**McLaren's latest F1 title was utterly dominant — and more records await**\
+`By every metric, McLaren has secured an impressive title-winning season, rivaling Red Bull's recent runs`\
+https://nytimes.com/athletic/6640850/2025/10/05/mclaren-2025-f1-constructors-title-by-the-numbers/
+
+**Submit a question for Pete Sampson's Notre Dame mailbag**\
+`As Notre Dame approaches the 2025 season's midpoint, the Irish have turned in a wide range of performances through five games.`\
+https://nytimes.com/athletic/6677208/2025/10/05/submit-a-question-for-pete-sampsons-notre-dame-mailbag-106/
+
 **F1 2025 promised a tight championship. McLaren's bold car design made it a rout**\
 `McLaren has clinched a 10th F1 constructors' title. Here's how it did it so early, and so thoroughly `\
 https://nytimes.com/athletic/6644988/2025/10/05/mclaren-win-f1-constructors-championship/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6690443/2025/10/05/penn-states-loss-at-ucla-was-mor
 **Fantasy football Week 5 inactives: Bucky Irving, Terry McLaurin out**\
 `Fantasy managers are in tears after Malik Nabers and Tyreek Hill were lost for the season. Lamar Jackson is likely out too. And who else?`\
 https://nytimes.com/athletic/6686846/2025/10/05/fantasy-football-week-5-inactives-bucky-irving-terry-mclaurin-out/
-
-**On the ‘S.N.L.’ Season Premiere, Trump Warns: ‘Daddy’s Watching’**\
-`And the show’s host, Bad Bunny, is just what the president and his ICE posse will be looking for at the Super Bowl.`\
-https://nytimes.com/2025/10/05/arts/television/05cul-snl-bad-bunny-season51.html
-
-**Trump Administration Live Updates: Judge Blocks Deployment of National Guard in Oregon**\
-``\
-https://nytimes.com/live/2025/10/05/us/trump-news
 
