@@ -1,3 +1,7 @@
+**From CBS studio, Rick Neuheisel reveled in his son's play calling in UCLA win: ‘Don’t make me cry’**\
+`Rick Neuheisel went from neutral studio analyst to passionate dad in one afternoon, and we got to see it live on Saturday afternoon.`\
+https://nytimes.com/athletic/6690391/2025/10/04/rick-neuheisel-jerry-ucla-penn-state/
+
 **Philadelphia Union wins MLS Supporters' Shield**\
 `The Philadelphia Union&#8217;s 1-0 win  over New York City on Saturday secured the club the MLS Supporters&#8217; Shield title for the second time in the franchise&#8217;s history, completing an impressive turnaround under coach Bradley Carnell.`\
 https://nytimes.com/athletic/6690307/2025/10/04/philadelphia-union-wins-mls-supporters-shield/
