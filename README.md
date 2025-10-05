@@ -1,3 +1,11 @@
+**Texans vs. Ravens takeaways: C.J. Stroud and Houston dominate as Baltimore hits rock bottom**\
+`Stroud threw four touchdowns as Houston rolled. Now, even a healthy Lamar Jackson might not be enough to save the lifeless Ravens.`\
+https://nytimes.com/athletic/6691689/2025/10/05/texans-ravens-score-result-takeaways-nfl/
+
+**Brewers' Jackson Chourio uncertain for Game 2, reliever Aaron Ashby to open**\
+`The MRI results on Chourio's hamstring were "inconclusive" according to Milwaukee manager Pat Murphy.`\
+https://nytimes.com/athletic/6691942/2025/10/05/brewers-jackson-chourio-injury-nlds/
+
 **Trump Renews Layoff Threats as Shutdown Accusations Continue to Fly**\
 `Senator Chuck Schumer and Speaker Mike Johnson each accused the other of not being “serious” about talks to end the shutdown as the government was closed for a fifth day.`\
 https://nytimes.com/2025/10/05/us/politics/trump-democrats-shutdown.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/05/us/politics/chicago-motorists-charged-border-patr
 **The Superintendent’s Bio Seemed Too Good to Be True. It Was.**\
 `Ian Roberts rose through the ranks of American education with talent, charm and a riveting back story. He was also hiding a shocking secret.`\
 https://nytimes.com/2025/10/05/us/des-moines-iowa-superintendent-ian-roberts-immigration-ice.html
-
-**Darleane Hoffman, Innovator in Nuclear Chemistry, Dies at 98**\
-`Hailed as one of the 50 most important women in science, she found ways to study rare radioactive isotopes and advanced the understanding of nuclear fission.`\
-https://nytimes.com/2025/10/05/science/darleane-hoffman-dead.html
-
-**Rodri to withdraw from Spain squad after injury in Brentford win**\
-`The 29-year-old missed the majority of the 2024-25 season due to an ACL injury and is still working his way back.`\
-https://nytimes.com/athletic/6691823/2025/10/05/rodri-injury-spain-manchester-city/
 
