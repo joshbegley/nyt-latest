@@ -1,3 +1,11 @@
+**Postecoglou says he 'loves a fight' after Forest extend winless run**\
+`Forest suffered a 2-0 defeat at St. James' Park and have yet to win in seven games under Postecoglou.`\
+https://nytimes.com/athletic/6691397/2025/10/05/ange-postecoglou-nottingham-forest-newcastle/
+
+**Pritzker Says Federal Agents Are Trying to Make Chicago a ‘War Zone’**\
+`Gov. JB Pritzker of Illinois said he had ordered state agencies to investigate a raid on a Chicago apartment building where there had been reports of children zip tied “nearly naked” by federal officers.`\
+https://nytimes.com/2025/10/05/us/politics/pritzker-chicago-immigration.html
+
 **Jannik Sinner retires from Shanghai Masters match with right leg issue**\
 `The defending champion could not finish his match against Tallon Griekspoor after struggling with cramps in brutal humidity.`\
 https://nytimes.com/athletic/6691493/2025/10/05/jannik-sinner-shanghai-masters-injury-out/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/05/us/deadly-bear-attack-arkansas.html
 **White House to send delegation to Egypt for Gaza cease-fire talks.**\
 `By Ashley Ahn, Shawn McCreesh and Aaron Boxerman`\
 https://nytimes.com/live/2025/10/05/us/trump-news/white-house-to-send-delegation-to-egypt-for-gaza-cease-fire-talks
-
-**One-Pot Beans, Greens and Grains; Citrusy Miso-Butter Chicken; Everyday Dal**\
-`And more Weeknight 100 hits, because the days are getting both shorter and busier.`\
-https://nytimes.com/2025/10/05/dining/one-pot-beans-greens-and-grains-citrusy-miso-butter-chicken-everyday-dal.html
-
-**The Briefing: Newcastle 2 Forest 0 – What did Guimaraes strike say about attacking threat? How has season started?**\
-`Chris Waugh and George Caulkin analyse the talking points from the game at St James' Park`\
-https://nytimes.com/athletic/6686460/2025/10/05/newcastle-forest-guimaraes-howe/
 
