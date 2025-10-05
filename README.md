@@ -1,6 +1,26 @@
-**Miami proved against FSU that it's time to talk about the Canes as title contenders**\
+**At 60, Mario Lemieux remains Pittsburgh's most important and interesting sports figure**\
+`No athlete in the history of North American pro sports has been more synonymous with a franchise than Lemieux has been with the Penguins.`\
+https://nytimes.com/athletic/6690236/2025/10/05/mario-lemieux-penguins-nhl-sports/
+
+**Michigan final thoughts: Donaven McCulley's breakout, improving CFP odds and more**\
+`Michigan isn’t a great team right now, but there aren’t a lot of those in college football at the moment. Everybody has flaws.`\
+https://nytimes.com/athletic/6690186/2025/10/05/michigan-wisconsin-donoven-mcculley-colllege-football-playoff/
+
+**Blue Jackets Sunday Gathering: Feisty, disruptive Miles Wood looks the part**\
+`Also, will a tepid preseason lead to any roster changes before the season opener?`\
+https://nytimes.com/athletic/6688061/2025/10/05/blue-jackets-preseason-opener/
+
+**Slot wanted Liverpool to evolve, now he faces biggest test of his career**\
+`Three successive defeats for the first time in his managerial career and a truckload of issues for the Liverpool head coach to address.`\
+https://nytimes.com/athletic/6689410/2025/10/05/liverpool-slot-analysis-chelsea/
+
+**Russia Targets Ukraine’s Energy Infrastructure With Deadly Bombardment**\
+`At least five people were killed before dawn in another large-scale and wide-ranging assault.`\
+https://nytimes.com/2025/10/05/world/europe/russia-ukraine-strikes-energy-lviv.html
+
+**Miami owns the state of Florida again. Now it's time to talk national championship**\
 `After beating Florida State in Saturday night's rivalry game, Miami has as strong a resume as anyone in the country.`\
-https://nytimes.com/athletic/6690692/2025/10/05/miami-florida-championship-contender/
+https://nytimes.com/athletic/6690692/2025/10/05/miami-fsu-cristobal-playoff-national-championship/
 
 **What's with the NFL's uptick in blocked kicks? Coaches, players offer theories**\
 `The use of front-line starters on kick block teams and coaches diverting their focus toward dynamic kickoffs are two potential reasons.`\
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6690730/2025/10/05/seattle-mariners-alds-julio-rodr
 **Phillies' stars silent in Game 1 gut-punch, another blow to The Bank's October invincibility**\
 `They have lost four of their last five postseason games at home — a painful reality. It's the opponents who supply the dramatic homers now.`\
 https://nytimes.com/athletic/6690556/2025/10/05/phillies-stars-game-1-loss-dodgers/
-
-**Israel and Hamas Prepare for Talks on Trump’s Plan to End Gaza War**\
-`Indirect negotiations through mediators are planned for Monday in Egypt, but serious obstacles remain to any deal that would free hostages in Gaza in exchange for Palestinian prisoners.`\
-https://nytimes.com/2025/10/05/world/middleeast/trump-israel-hamas-gaza.html
-
-**Notre Dame's defense is making it feel like 2024 again**\
-`One game doesn’t cure everything, but the Irish have played 10 consecutive quarters of good defense.`\
-https://nytimes.com/athletic/6690601/2025/10/05/notre-dame-defense-boise-state/
-
-**Making sense of the Senators' acquisition of Kurtis MacDermid from New Jersey**\
-`Kurtis MacDermid made his preseason debut with the Senators a little over 24 hours after he was traded, in a 3-1 win over Montreal.`\
-https://nytimes.com/athletic/6688302/2025/10/05/kurtis-macdermid-senators-enforcers/
-
-**Did Red Wings' rookie trio earn spots?: Final preseason thoughts**\
-`Michael Brandsegg-Nygård, Emmitt Finnie and Axel Sandin-Pellikka had strong preseasons. Will they make the Red Wings?`\
-https://nytimes.com/athletic/6689906/2025/10/05/red-wings-rookie-trio-preseason-finnie-brandsegg-nygard-sandin-pellikka/
-
-**Oliver Kapanen, Joe Veleno are indicative of what's important to Canadiens this season**\
-`Martin St. Louis wants the Canadiens to stack ordinary actions on top of each other, and that's what Kapanen and Veleno have shown.`\
-https://nytimes.com/athletic/6690640/2025/10/05/oliver-kapanen-joe-veleno-canadiens/
 
