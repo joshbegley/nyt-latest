@@ -1,3 +1,7 @@
+**Tracking Tropical Storm Priscilla**\
+`See the likely path and wind arrival times for Priscilla`\
+https://nytimes.com/interactive/2025/weather/priscilla-map-path-tracker.html
+
 **Lowetide: Making the final call on Oilers' season-opening 2025-26 roster**\
 `The Oilers are through the preseason and must make some important roster decisions in the days before the season opens.`\
 https://nytimes.com/athletic/6689385/2025/10/05/edmonton-oilers-roster-2025-lowetide/

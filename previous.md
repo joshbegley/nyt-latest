@@ -1,3 +1,7 @@
+**Tracking Tropical Storm Priscilla**\
+`See the likely path and wind arrival times for Priscilla`\
+https://nytimes.com/interactive/2025/weather/priscilla-map-path-tracker.html
+
 **Lowetide: Making the final call on Oilers' season-opening 2025-26 roster**\
 `The Oilers are through the preseason and must make some important roster decisions in the days before the season opens.`\
 https://nytimes.com/athletic/6689385/2025/10/05/edmonton-oilers-roster-2025-lowetide/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6689410/2025/10/05/liverpool-slot-analysis-chelsea/
 **Russia Targets Ukraine’s Energy Infrastructure With Deadly Bombardment**\
 `At least five people were killed before dawn in another large-scale and wide-ranging assault.`\
 https://nytimes.com/2025/10/05/world/europe/russia-ukraine-strikes-energy-lviv.html
-
-**Miami owns the state of Florida again. Now it's time to talk national championship**\
-`After beating Florida State in Saturday night's rivalry game, Miami has as strong a resume as anyone in the country.`\
-https://nytimes.com/athletic/6690692/2025/10/05/miami-fsu-cristobal-playoff-national-championship/
 
