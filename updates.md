@@ -1,3 +1,7 @@
+**Cubs takeaways: Chicago needs to lean into its advantage, no Kyle Tucker in right and more**\
+`Plus notes on how the Cubs' high-leverage arms got a break on Saturday, which could help their chances in Game 2.`\
+https://nytimes.com/athletic/6692136/2025/10/05/cubs-nlds-takeaways-power-advantage-kyle-tucker-right-field/
+
 **Israel and Hamas Show Signs of Embracing Parts of Trump’s Cease-Fire Deal**\
 `Both sides have reacted positively to a U.S. proposal to release Israeli hostages as part of a cease-fire agreement, but reaching a full deal that would require Hamas to disarm remains a serious challenge.`\
 https://nytimes.com/video/world/100000010440586/international-middle-east-israel-hamas.html
