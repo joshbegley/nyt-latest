@@ -1,3 +1,7 @@
+**Angels GM Perry Minasian lacks answers, accountability after another failed season**\
+`Minasian declined to assess his performance after another losing season: "That would be a question for somebody else.”`\
+https://nytimes.com/athletic/6690121/2025/10/04/angels-gm-perry-minasian-accountability/
+
 **Napheesa Collier cancels meeting with Cathy Engelbert**\
 `Engelbert told reporters on Friday about the planned meeting as she discussed her hope to clear the air with Collier.`\
 https://nytimes.com/athletic/6690178/2025/10/04/napheesa-collier-cathy-engelbert-meeting-canceled/

@@ -1,3 +1,7 @@
+**Vannini: If this Penn State team can't get it done under James Franklin, can any?**\
+`If this Penn State team can't get it done, what James Franklin-led PSU team can? `\
+https://nytimes.com/athletic/6690210/2025/10/04/penn-state-ucla-loss-james-franklin/
+
 **Napheesa Collier cancels meeting with Cathy Engelbert**\
 `Engelbert told reporters on Friday about the planned meeting as she discussed her hope to clear the air with Collier.`\
 https://nytimes.com/athletic/6690178/2025/10/04/napheesa-collier-cathy-engelbert-meeting-canceled/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6689890/2025/10/04/florida-texas-score-result-takea
 **In NLDS Game 1 rout, Brewers show how they became baseball’s best team**\
 `For the national audience who only caught glimpses of the Brewers in 2025, consider Saturday's emphatic first inning a primer.`\
 https://nytimes.com/athletic/6690047/2025/10/04/brewers-cubs-nlds-game-1-offense-analysis/
-
-**Ubben: Unfortunately for Bill Belichick, 'patience' is no longer required to win in CFB**\
-`None of the issues with the roster are unique to North Carolina. Every program deals with it. Every first-year coach deals with it.`\
-https://nytimes.com/athletic/6689983/2025/10/04/bill-belichick-unc-clemson-inexcusable/
 
