@@ -1,3 +1,5 @@
+
+
 **Aces' Becky Hammon, Mercury's Nate Tibbetts on South Dakota's Mount Rushmore of coaching**\
 `Tibbetts and Hammon are competing in the WNBA Finals. As a player, Hammon faced Tibbetts' dad, who coached high school basketball.`\
 https://nytimes.com/athletic/6690336/2025/10/05/wnba-finals-becky-hammon-nate-tibbetts-south-dakota/
