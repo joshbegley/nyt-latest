@@ -1,3 +1,11 @@
+**Trump Renews Layoff Threats as Shutdown Accusations Continue to Fly**\
+`Senator Chuck Schumer and Speaker Mike Johnson each accused the other of not being “serious” about talks to end the shutdown as the government was closed for a fifth day.`\
+https://nytimes.com/2025/10/05/us/politics/trump-democrats-shutdown.html
+
+**2 Motorists Charged in Chicago, Including One Shot by Federal Agent**\
+`The account in the federal criminal complaint, which differs significantly from an earlier homeland security statement, says the motorists rammed officers’ vehicle and that an agent shot one when she drove her car at him.`\
+https://nytimes.com/2025/10/05/us/politics/chicago-motorists-charged-border-patrol.html
+
 **Deputy Charged With Murder Knelt on Inmate’s Back, Affidavit Says**\
 `A recently released affidavit relates new details about the July death in a Kansas jail of a man with medical problems who was handcuffed and face down on a bunk.`\
 https://nytimes.com/2025/10/05/us/inmate-murder-kansas-adair-fatherley.html

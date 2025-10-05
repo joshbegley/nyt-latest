@@ -1,3 +1,7 @@
+**Trump Renews Layoff Threats as Shutdown Accusations Continue to Fly**\
+`Senator Chuck Schumer and Speaker Mike Johnson each accused the other of not being “serious” about talks to end the shutdown as the government was closed for a fifth day.`\
+https://nytimes.com/2025/10/05/us/politics/trump-democrats-shutdown.html
+
 **Deputy Charged With Murder Knelt on Inmate’s Back, Affidavit Says**\
 `A recently released affidavit relates new details about the July death in a Kansas jail of a man with medical problems who was handcuffed and face down on a bunk.`\
 https://nytimes.com/2025/10/05/us/inmate-murder-kansas-adair-fatherley.html
@@ -19,7 +23,7 @@ https://nytimes.com/athletic/6691764/2025/10/05/phillies-dodgers-nlds-harrison-b
 https://nytimes.com/2025/10/05/health/ozempic-wegovy-costco.html
 
 **2 Motorists Charged in Chicago, Including One Shot by Federal Agent**\
-`The account in the federal criminal complaint, which differs significantly from an earlier homeland security statement, says the motorists  rammed officers’ vehicle and that an agent shot one when she drove her car at him.`\
+`The account in the federal criminal complaint, which differs significantly from an earlier homeland security statement, says the motorists rammed officers’ vehicle and that an agent shot one when she drove her car at him.`\
 https://nytimes.com/2025/10/05/us/politics/chicago-motorists-charged-border-patrol.html
 
 **The Superintendent’s Bio Seemed Too Good to Be True. It Was.**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/05/science/darleane-hoffman-dead.html
 **Rodri to withdraw from Spain squad after injury in Brentford win**\
 `The 29-year-old missed the majority of the 2024-25 season due to an ACL injury and is still working his way back.`\
 https://nytimes.com/athletic/6691823/2025/10/05/rodri-injury-spain-manchester-city/
-
-**Wild's opening night roster all but set after three players cut Sunday**\
-`Young forwards Danila Yurov and Liam Ohgren and young defensemen Zeev Buium and David Jiricek appear to have made the team out of camp.`\
-https://nytimes.com/athletic/6691751/2025/10/05/wild-nhl-opening-night-roster/
 
