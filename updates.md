@@ -1,3 +1,11 @@
+**U.S. into U-20 World Cup last 16 despite loss to South Africa**\
+`The U.`\
+https://nytimes.com/athletic/6692249/2025/10/05/u-s-into-u-20-world-cup-last-16-despite-loss-to-south-africa/
+
+**Yankees-Blue Jays Game 2 takeaways: Toronto batters Yanks again, pushing them to the brink**\
+`It didn’t seem like things could get much better for the Blue Jays after a 10-1 win in Game 1. Somehow, they found new heights.`\
+https://nytimes.com/athletic/6692307/2025/10/05/yankees-blue-jays-game-2-score-results-takeaways-playoffs-mlb/
+
 **Yankees-Blue Jays Game 2 takeaways: Blue Jays batter Yanks again, pushing them to the brink**\
 `It didn’t seem like things could get much better for the Blue Jays after a 10-1 win in Game 1. Somehow, they found new heights.`\
 https://nytimes.com/athletic/6692307/2025/10/05/yankees-blue-jays-game-2-score-results-takeaways-playoffs-mlb/
