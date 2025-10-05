@@ -1,3 +1,11 @@
+**F1 2025 promised a tight championship. McLaren's bold car design made it a rout**\
+`McLaren has clinched a 10th F1 constructors' title. Here's how it did it so early, and so thoroughly `\
+https://nytimes.com/athletic/6644988/2025/10/05/mclaren-win-f1-constructors-championship/
+
+**McLaren secures constructors' title as superb George Russell wins Singapore Grand Prix**\
+`George Russell secures his second win of the season with a superb performance in Singapore`\
+https://nytimes.com/athletic/6690981/2025/10/05/singapore-grand-prix-briefing-mclaren-constructors-title-george-russell-wins/
+
 **Until Saturday: The most disastrous loss since ...?**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6691094/2025/10/05/james-franklin-penn-state-ucla-until-saturday/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/05/arts/television/05cul-snl-bad-bunny-season51.html
 **Trump Administration Live Updates: Judge Blocks Deployment of National Guard in Oregon**\
 ``\
 https://nytimes.com/live/2025/10/05/us/trump-news
-
-**Civility and Disagreement in American Politics**\
-`Readers respond to a guest essay by Roxane Gay. Also: A Canadian’s lament.`\
-https://nytimes.com/2025/10/05/opinion/civility-american-politics.html
-
-**Tracking Tropical Storm Halong**\
-`See the likely path and wind arrival times for Halong`\
-https://nytimes.com/interactive/2025/weather/halong-map-path-tracker.html
 
