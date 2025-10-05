@@ -1,3 +1,7 @@
+**In NLDS Game 1, Nico Hoerner's early error proves extremely costly for Cubs**\
+`The official time of Game 1 was 3 hours and 5 minutes, but by the first inning, it felt like “Game Over.”`\
+https://nytimes.com/athletic/6690147/2025/10/04/cubs-brewers-nlds-game-1-nico-hoerner-error/
+
 **Angels GM Perry Minasian lacks answers, accountability after another failed season: Blum**\
 `Minasian declined to assess his performance after another losing season: "That would be a question for somebody else.”`\
 https://nytimes.com/athletic/6690121/2025/10/04/angels-gm-perry-minasian-accountability/
