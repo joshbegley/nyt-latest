@@ -1,10 +1,14 @@
-**From CBS studio, Rick Neuheisel reveled in his son's play calling in UCLA win: ‘Don’t make me cry’**\
-`Rick Neuheisel went from neutral studio analyst to passionate dad in one afternoon, and we got to see it live on Saturday afternoon.`\
+**No. 1 Ohio State unleashes downfield attack in dismantling Minnesota: Key takeways**\
+`Ohio State ran away from Minnesota 42-3 behind Julian Sayin, Carnell Tate and a newly unleashed explosive passing attack.`\
+https://nytimes.com/athletic/6690429/2025/10/04/ohio-state-minnesota-score-result-football/
+
+**From CBS studio, Rick Neuheisel revels in his son's play calling in UCLA win: ‘Don’t make me cry’**\
+`Rick Neuheisel went from neutral studio analyst to passionate dad in one afternoon, and we got to see it live Saturday afternoon.`\
 https://nytimes.com/athletic/6690391/2025/10/04/rick-neuheisel-jerry-ucla-penn-state/
 
 **Philadelphia Union wins MLS Supporters' Shield**\
-`The Philadelphia Union&#8217;s 1-0 win  over New York City on Saturday secured the club the MLS Supporters&#8217; Shield title for the second time in the franchise&#8217;s history, completing an impressive turnaround under coach Bradley Carnell.`\
-https://nytimes.com/athletic/6690307/2025/10/04/philadelphia-union-wins-mls-supporters-shield/
+`Securing the Shield ensures the top seed for Philly and home-field advantage throughout the MLS Cup playoffs.`\
+https://nytimes.com/athletic/6690307/2025/10/04/philadelphia-union-mls-supporters-shield/
 
 **Forget a championship for Arch Manning and Texas. What are the Longhorns good at now?**\
 `Texas started the season atop the polls with a Heisman candidate in Arch Manning. A loss at Florida shows nothing is going as planned.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6690178/2025/10/04/napheesa-collier-cathy-engelbert
 **In NLDS Game 1, Nico Hoerner's early error proves extremely costly for Cubs**\
 `The official time of Game 1 was 3 hours and 5 minutes, but by the first inning, it felt like “Game Over.”`\
 https://nytimes.com/athletic/6690147/2025/10/04/cubs-brewers-nlds-game-1-nico-hoerner-error/
-
-**Angels GM Perry Minasian lacks answers, accountability after another failed season**\
-`Minasian declined to assess his performance after another losing season: "That would be a question for somebody else.”`\
-https://nytimes.com/athletic/6690121/2025/10/04/angels-gm-perry-minasian-accountability/
 

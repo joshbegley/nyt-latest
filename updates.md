@@ -1,3 +1,15 @@
+**No. 1 Ohio State unleashes downfield attack in dismantling Minnesota: Key takeways**\
+`Ohio State ran away from Minnesota 42-3 behind Julian Sayin, Carnell Tate and a newly unleashed explosive passing attack.`\
+https://nytimes.com/athletic/6690429/2025/10/04/ohio-state-minnesota-score-result-football/
+
+**From CBS studio, Rick Neuheisel revels in his son's play calling in UCLA win: ‘Don’t make me cry’**\
+`Rick Neuheisel went from neutral studio analyst to passionate dad in one afternoon, and we got to see it live Saturday afternoon.`\
+https://nytimes.com/athletic/6690391/2025/10/04/rick-neuheisel-jerry-ucla-penn-state/
+
+**Philadelphia Union wins MLS Supporters' Shield**\
+`Securing the Shield ensures the top seed for Philly and home-field advantage throughout the MLS Cup playoffs.`\
+https://nytimes.com/athletic/6690307/2025/10/04/philadelphia-union-mls-supporters-shield/
+
 **Forget a championship for Arch Manning and Texas. What are the Longhorns good at now?**\
 `Texas started the season atop the polls with a Heisman candidate in Arch Manning. A loss at Florida shows nothing is going as planned.`\
 https://nytimes.com/athletic/6690285/2025/10/04/texas-florida-arch-manning-steve-sarkisian-sec/
