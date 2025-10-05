@@ -1,3 +1,11 @@
+**Chargers' Keenan Allen becomes fastest in NFL history to 1,000 catches**\
+`Allen reached the century mark in 159 games, surpassing the record of 167 games set by Hall of Fame receiver Marvin Harrison. `\
+https://nytimes.com/athletic/6670442/2025/10/05/chargers-keenan-allen-nfl-record-1000-catches/
+
+**Are the Ravens hopeless? Do the Jets or Giants have it worse? Our NFL experts' Week 5 takeaways**\
+`The Broncos registered an impressive road win in Philadelphia, and the AFC South suddenly looks like a competitive division.`\
+https://nytimes.com/athletic/6691685/2025/10/05/nfl-takeaways-week-5-scores-results/
+
 **Giants-Saints takeaways: Jaxson Dart falters after fast start as N.Y. falls**\
 `Giants commit turnovers on five straight possessions as Saints rally for first win of season.`\
 https://nytimes.com/athletic/6691432/2025/10/05/giants-saints-score-result-takeaways-nfl/
