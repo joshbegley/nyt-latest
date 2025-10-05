@@ -1,3 +1,15 @@
+**Tracking Tropical Storm Halong**\
+`See the likely path and wind arrival times for Halong`\
+https://nytimes.com/interactive/2025/weather/halong-map-path-tracker.html
+
+**How to watch Mercury at Aces: WNBA Finals Game 2 Time, TV, streaming**\
+`Find out how to watch the Phoenix Mercury play the Las Vegas Aces, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6691011/2025/10/05/mercury-vs-aces-stream-how-to-watch-oct-5/
+
+**OPEC Plus Agrees to Small Boost in Oil Production**\
+`Saudi Arabia, the de facto leader of the oil cartel, sees advantages in increasing output despite market risks.`\
+https://nytimes.com/2025/10/05/business/opec-plus-oil-production-increase.html
+
 **Tracking Tropical Storm Priscilla**\
 `See the likely path and wind arrival times for Priscilla`\
 https://nytimes.com/interactive/2025/weather/priscilla-map-path-tracker.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6690236/2025/10/05/mario-lemieux-penguins-nhl-sport
 **Michigan final thoughts: Donaven McCulley's breakout, improving CFP odds and more**\
 `Michigan isn’t a great team right now, but there aren’t a lot of those in college football at the moment. Everybody has flaws.`\
 https://nytimes.com/athletic/6690186/2025/10/05/michigan-wisconsin-donoven-mcculley-colllege-football-playoff/
-
-**Blue Jackets Sunday Gathering: Feisty, disruptive Miles Wood looks the part**\
-`Also, will a tepid preseason lead to any roster changes before the season opener?`\
-https://nytimes.com/athletic/6688061/2025/10/05/blue-jackets-preseason-opener/
-
-**Slot wanted Liverpool to evolve, now he faces biggest test of his career**\
-`Three successive defeats for the first time in his managerial career and a truckload of issues for the Liverpool head coach to address.`\
-https://nytimes.com/athletic/6689410/2025/10/05/liverpool-slot-analysis-chelsea/
-
-**Russia Targets Ukraine’s Energy Infrastructure With Deadly Bombardment**\
-`At least five people were killed before dawn in another large-scale and wide-ranging assault.`\
-https://nytimes.com/2025/10/05/world/europe/russia-ukraine-strikes-energy-lviv.html
 

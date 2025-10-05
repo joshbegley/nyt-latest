@@ -1,3 +1,15 @@
+**Tracking Tropical Storm Halong**\
+`See the likely path and wind arrival times for Halong`\
+https://nytimes.com/interactive/2025/weather/halong-map-path-tracker.html
+
+**How to watch Mercury at Aces: WNBA Finals Game 2 Time, TV, streaming**\
+`Find out how to watch the Phoenix Mercury play the Las Vegas Aces, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6691011/2025/10/05/mercury-vs-aces-stream-how-to-watch-oct-5/
+
+**OPEC Plus Agrees to Small Boost in Oil Production**\
+`Saudi Arabia, the de facto leader of the oil cartel, sees advantages in increasing output despite market risks.`\
+https://nytimes.com/2025/10/05/business/opec-plus-oil-production-increase.html
+
 **Tracking Tropical Storm Priscilla**\
 `See the likely path and wind arrival times for Priscilla`\
 https://nytimes.com/interactive/2025/weather/priscilla-map-path-tracker.html
