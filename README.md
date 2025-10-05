@@ -1,3 +1,7 @@
+**Donald Trump, the Sports Fan**\
+`Today, we take a look at the president’s sports fandom and what it reveals about his worldview.`\
+https://nytimes.com/2025/10/05/world/hostage-deal-israel-hamas-portland-syria.html
+
 **At 60, Mario Lemieux remains Pittsburgh's most important and interesting sports figure**\
 `No athlete in the history of North American pro sports has been more synonymous with a franchise than Lemieux has been with the Penguins.`\
 https://nytimes.com/athletic/6690236/2025/10/05/mario-lemieux-penguins-nhl-sports/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/05/world/europe/peacehaven-arson-mosque-england.html
 **For Mariners, September sprint hits an October obstacle**\
 `The Mariners, the team with the most one-run wins in the majors this season, lost by that margin in their first game of the playoffs.`\
 https://nytimes.com/athletic/6690730/2025/10/05/seattle-mariners-alds-julio-rodriguez/
-
-**Phillies' stars silent in Game 1 gut-punch, another blow to The Bank's October invincibility**\
-`They have lost four of their last five postseason games at home — a painful reality. It's the opponents who supply the dramatic homers now.`\
-https://nytimes.com/athletic/6690556/2025/10/05/phillies-stars-game-1-loss-dodgers/
 
