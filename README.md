@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6690495/2025/10/05/dodgers-teoscar-hernandez-philli
 https://nytimes.com/athletic/6689625/2025/10/05/arsenal-west-ham-zubimendi/
 
 **Manchester United ease pressure with win, yet Amorim sticks with brutal honesty policy**\
-`Beating Sunderland has eased the pressure on Manchester United boss Amorim - but being he still admitted to 'frustrations'...`\
+`Beating Sunderland has eased the pressure on Manchester United head coach Amorim - but being he still admitted to 'frustrations'...`\
 https://nytimes.com/athletic/6689623/2025/10/05/manchester-united-sunderland-amorim-honesty/
 
 **Leeds are benefitting from Calvert-Lewin leading the line – but goals are needed**\
