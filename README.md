@@ -1,3 +1,7 @@
+**Fire at U.K. Mosque Is Being Treated as Hate Crime, Police Say**\
+`The attack came at a time of heightened anxiety after a deadly terrorist attack at a synagogue in Manchester.`\
+https://nytimes.com/2025/10/05/world/europe/peacehaven-arson-mosque-england.html
+
 **For Mariners, September sprint hits an October obstacle**\
 `The Mariners, the team with the most one-run wins in the majors this season, lost by that margin in their first game of the playoffs.`\
 https://nytimes.com/athletic/6690730/2025/10/05/seattle-mariners-alds-julio-rodriguez/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6690713/2025/10/05/zach-mckinstry-detroit-tigers-al
 **NFL Week 5 top storylines: Dillon Gabriel's debut, Ravens' fading hopes, A.J. Brown's frustrations**\
 `Also worth looking forward to: Sunday's Seahawks-Buccaneers game featuring two of the top picks from 2018 draft at quarterback.`\
 https://nytimes.com/athletic/6684032/2025/10/05/nfl-week-5-storylines-chiefs-aj-brown-dillon-gabriel/
-
-**The Grace That Gives Us Hope**\
-`There’s a way out of this, and people in despair are leading the way.`\
-https://nytimes.com/2025/10/05/opinion/hope-grace-michigan-shooting.html
 
