@@ -2,7 +2,7 @@
 `After Penn State and Texas suffered upset losses, Ohio State's win over Minnesota pushed Day's win percentage past Knute Rockne.`\
 https://nytimes.com/athletic/6690987/2025/10/05/ohio-state-ryan-day-coaching-record/
 
-**Amanda Anisimova beats fading Linda Nosková to win China Open, second WTA 1000 title**\
+**Amanda Anisimova beats fading Linda Nosková to win China Open**\
 `Anisimova ended a run of three final defeats by overcoming a second-set wobble against the Czech.`\
 https://nytimes.com/athletic/6690933/2025/10/05/amanda-anisimova-linda-noskova-china-open-result-analysis/
 
