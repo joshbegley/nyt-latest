@@ -1,3 +1,7 @@
+**The Pulse: More than your average upset**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6690443/2025/10/05/penn-states-loss-at-ucla-was-more-than-your-average-upset/
+
 **Fantasy football Week 5 inactives: Bucky Irving, Terry McLaurin out**\
 `Fantasy managers are in tears after Malik Nabers and Tyreek Hill were lost for the season. Lamar Jackson is likely out too. And who else?`\
 https://nytimes.com/athletic/6686846/2025/10/05/fantasy-football-week-5-inactives-bucky-irving-terry-mclaurin-out/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/weather/priscilla-map-path-tracker.html
 **Lowetide: Making the final call on Oilers' season-opening 2025-26 roster**\
 `The Oilers are through the preseason and must make some important roster decisions in the days before the season opens.`\
 https://nytimes.com/athletic/6689385/2025/10/05/edmonton-oilers-roster-2025-lowetide/
-
-**Mandel's Final Thoughts: Miami is surging as Penn State and Texas squander high hopes**\
-`Teams like Texas Tech, Cincinnati and Virginia are off to surprisingly good starts while preseason No. 1 Texas and No. 2 Penn State fade.`\
-https://nytimes.com/athletic/6690688/2025/10/05/college-football-scores-results-week-6/
 

@@ -1,3 +1,7 @@
+**The Pulse: More than your average upset**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6690443/2025/10/05/penn-states-loss-at-ucla-was-more-than-your-average-upset/
+
 **Fantasy football Week 5 inactives: Bucky Irving, Terry McLaurin out**\
 `Fantasy managers are in tears after Malik Nabers and Tyreek Hill were lost for the season. Lamar Jackson is likely out too. And who else?`\
 https://nytimes.com/athletic/6686846/2025/10/05/fantasy-football-week-5-inactives-bucky-irving-terry-mclaurin-out/
