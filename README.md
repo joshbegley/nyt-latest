@@ -3,9 +3,9 @@
 `\
 https://nytimes.com/athletic/6690225/2025/10/04/panthers-lightning-preseason-penalties-ejections/
 
-**Messi delivers three assists for Miami to close in on rare double**\
+**Messi delivers 3 assists for Miami to close in on rare double**\
 `Lionel Messi didn't score but he created three more goals for Inter Miami which moved him one off top spot in the MLS assist rankings.`\
-https://nytimes.com/athletic/6690425/2025/10/04/messi-delivers-three-assists-for-miami-to-close-in-on-rare-double/
+https://nytimes.com/athletic/6690425/2025/10/04/messi-assists-miami-rare-double/
 
 **Yankees' problems vs. Blue Jays run deeper than Aaron Judge failing in clutch again**\
 `Judge's sixth-inning at-bat was a killer, but there were many culprits for the Yankees — and lingering questions about whom they can trust. `\
