@@ -1,3 +1,7 @@
+**Typhoon Matmo Makes Landfall in Southern China**\
+`The tropical cyclone disrupted transportation, forced more than 151,000 evacuations and raised fears of flooding as it barreled toward Guangdong province.`\
+https://nytimes.com/2025/10/05/world/asia/typhoon-matmo-china-guangdong.html
+
 **Israel at War With Itself**\
 `The longest war of an endless Israeli-Palestinian conflict has come to challenge Israel’s own image and understanding of itself.`\
 https://nytimes.com/2025/10/05/world/middleeast/israel-challenges-gaza-war.html
