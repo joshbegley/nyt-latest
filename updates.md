@@ -1,3 +1,11 @@
+**Vikings vs. Browns: Minnesota's go-ahead TD spoils Dillon Gabriel's debut**\
+`With three minutes left, quarterback Carson Wentz led Minnesota down the field in 10 plays, capping the drive with a touchdown.`\
+https://nytimes.com/athletic/6691262/2025/10/05/browns-vikings-london-score-result-takeaways-nfl-international/
+
+**Trump Sends California Guard Troops to Portland, Ore., Newsom Says**\
+`The move follows a judge’s order on Saturday that blocked the Oregon National Guard from deploying there. California’s governor said the state would sue.`\
+https://nytimes.com/2025/10/05/us/trump-national-guard-california-oregon-newsom.html
+
 **The Briefing: Brentford 0 Manchester City 1 - The unbeaten run goes on, but was it right to risk Rodri?**\
 `Pep Guardiola's side were initially slick and incisive, then fell back on solidity after the break to move three points from the top`\
 https://nytimes.com/athletic/6686461/2025/10/05/manchester-city-brentford-haaland-rodri/
