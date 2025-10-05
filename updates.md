@@ -1,3 +1,7 @@
+**Justin Jefferson wills Vikings to victory over Browns in game they had to have**\
+`After nearly two weeks in Europe, the Vikings needed a wake-up call. On Sunday, behind late against the Browns, Jefferson provided it.`\
+https://nytimes.com/athletic/6692016/2025/10/05/justin-jefferson-vikings-browns-london-nfl/
+
 **Drones, Democracy and the War in Ukraine**\
 `Back from a trip to Ukraine, our international editor Philip Pan explains how this is a new kind of war.`\
 https://nytimes.com/2025/10/05/world/ukaine-russia-drones-war-ceasefire-gaza.html
