@@ -1,5 +1,17 @@
+**With Odegaard injured, Zubimendi made all the difference for Arsenal**\
+`In one of his best performances in an Arsenal shirt so far, Zubimendi quickly went about making a difference after his introduction`\
+https://nytimes.com/athletic/6689625/2025/10/05/arsenal-west-ham-zubimendi/
+
+**Manchester United ease pressure with win, yet Amorim sticks with brutal honesty policy**\
+`Beating Sunderland has eased the pressure on Manchester United boss Amorim - but being he still admitted to 'frustrations'...`\
+https://nytimes.com/athletic/6689623/2025/10/05/manchester-united-sunderland-amorim-honesty/
+
+**Leeds are benefitting from Calvert-Lewin leading the line – but goals are needed**\
+`The former Everton forward has been so effective in making Farke’s system work at Leeds, even if he should have more than one goal by now`\
+https://nytimes.com/athletic/6689297/2025/10/05/leeds-dominic-calvert-lewin-analysis/
+
 **Tigers-Mariners Game 1 takeaways: Detroit comes back in extra-innings win**\
-`SEATTLE &#8211; Before Saturday night, T-Mobile Park had hosted only one playoff game in the past 24 years.`\
+`The Mariners now have to deal with Cy Young favorite Tarik Skubal in Game 2 on Sunday.`\
 https://nytimes.com/athletic/6690220/2025/10/05/tigers-mariners-game-1-score-results-takeaways-playoffs-mlb/
 
 **European football has never looked so English**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6684073/2025/10/05/vikings-browns-london-dillon-gab
 **Quote of the Day: How Much Would You Pay for an Apatosaurus?**\
 `Quotation of the Day for Sunday, October 5, 2025.`\
 https://nytimes.com/2025/10/05/pageoneplus/quote-of-the-day-how-much-would-you-pay-for-an-apatosaurus.html
-
-**Syria Holds First Parliamentary Elections Since End of Civil War**\
-`Supporters argue the vote could be a milestone for the country, but critics say it is a divisive move by President Ahmed al-Shara to consolidate power.`\
-https://nytimes.com/2025/10/05/world/middleeast/syria-elections.html
-
-**Connections: Sports Edition Coach: Hints for Oct. 5, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6689878/2025/10/05/connections-sports-edition-hints-for-oct-5-2025/
-
-**No Corrections: Oct. 5, 2025**\
-`No corrections appeared in print on Sunday, Oct. 5, 2025.`\
-https://nytimes.com/2025/10/05/pageoneplus/no-corrections-oct-5-2025.html
 
