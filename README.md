@@ -1,3 +1,7 @@
+**In NLDS Game 1, Nico Hoerner's early error proves extremely costly for Cubs**\
+`The official time of Game 1 was 3 hours and 5 minutes, but by the first inning, it felt like “Game Over.”`\
+https://nytimes.com/athletic/6690147/2025/10/04/cubs-brewers-nlds-game-1-nico-hoerner-error/
+
 **Angels GM Perry Minasian lacks answers, accountability after another failed season: Blum**\
 `Minasian declined to assess his performance after another losing season: "That would be a question for somebody else.”`\
 https://nytimes.com/athletic/6690121/2025/10/04/angels-gm-perry-minasian-accountability/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6689983/2025/10/04/bill-belichick-unc-clemson-inexc
 **Cubs will try to keep proper perspective after blowout Game 1 loss: 'One won’t kill ya'**\
 `"The task remains the same, and the group’s confidence is incredibly high, even though today wasn't what we wanted."`\
 https://nytimes.com/athletic/6690002/2025/10/04/cubs-nlds-game-1-blowout-loss-brewers/
-
-**Yankees-Blue Jays Game 1 takeaways: Jays bash rivals to emphatically end playoff drought**\
-`After three playoff sweeps and six postseason losses, Vladimir Guerrero Jr. gave his home fans an October moment to cheer.`\
-https://nytimes.com/athletic/6689977/2025/10/04/yankees-blue-jays-game-1-score-results-takeaways-playoffs-mlb/
 
