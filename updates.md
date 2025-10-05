@@ -1,3 +1,7 @@
+**Donald Trump, the Sports Fan**\
+`Today, we take a look at the president’s sports fandom and what it reveals about his worldview.`\
+https://nytimes.com/2025/10/05/world/hostage-deal-israel-hamas-portland-syria.html
+
 **At 60, Mario Lemieux remains Pittsburgh's most important and interesting sports figure**\
 `No athlete in the history of North American pro sports has been more synonymous with a franchise than Lemieux has been with the Penguins.`\
 https://nytimes.com/athletic/6690236/2025/10/05/mario-lemieux-penguins-nhl-sports/
