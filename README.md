@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6691863/2025/10/05/jets-skycam-botched-rule-officia
 `The Phillies saw a higher percentage of pitches in the strike zone in Game 1 than they have in almost every postseason game since 2022. `\
 https://nytimes.com/athletic/6691764/2025/10/05/phillies-dodgers-nlds-harrison-bader-blake-snell/
 
-**Costco to Sell Ozempic and Wegovy, Weight-Loss Wonder Drugs**\
+**Costco to Sell Popular Weight-Loss Drugs Ozempic and Wegovy**\
 `Costco members will pay $499 a month out of pocket, the same price offered at CVS and Walmart, and on the manufacturer’s direct-to-consumer website.`\
 https://nytimes.com/2025/10/05/health/ozempic-wegovy-costco.html
 
