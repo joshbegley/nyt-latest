@@ -1,3 +1,7 @@
+**Miami proved against FSU that it's time to talk about the Canes as title contenders**\
+`After beating Florida State in Saturday night's rivalry game, Miami has as strong a resume as anyone in the country.`\
+https://nytimes.com/athletic/6690692/2025/10/05/miami-florida-championship-contender/
+
 **After Cristobal, Caines claim Florida — the Canes cement themselves as contenders**\
 `The Canes are now back-to-back state champs in Florida and are cementing themselves as national championship contenders. `\
 https://nytimes.com/athletic/6690692/2025/10/05/miami-florida-championship-contender/
