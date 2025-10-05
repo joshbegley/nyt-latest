@@ -1,3 +1,7 @@
+**Philadelphia Union wins MLS Supporters' Shield**\
+`The Philadelphia Union&#8217;s 1-0 win  over New York City on Saturday secured the club the MLS Supporters&#8217; Shield title for the second time in the franchise&#8217;s history, completing an impressive turnaround under coach Bradley Carnell.`\
+https://nytimes.com/athletic/6690307/2025/10/04/philadelphia-union-wins-mls-supporters-shield/
+
 **Forget a championship for Arch Manning and Texas. What are the Longhorns good at now?**\
 `Texas started the season atop the polls with a Heisman candidate in Arch Manning. A loss at Florida shows nothing is going to plan.`\
 https://nytimes.com/athletic/6690285/2025/10/04/texas-florida-arch-manning-steve-sarkisian-sec/
