@@ -1,3 +1,7 @@
+**Jets lose chance at end zone after pass hits Skycam, officials botch rule**\
+`When Justin Fields' pass was deflected and hit the Skycam, the play was erroneously called an incomplete pass.`\
+https://nytimes.com/athletic/6691863/2025/10/05/jets-skycam-botched-rule-officials-cowboys/
+
 **Phillies NLDS notes: Harrison Bader in play, in-zone whiffs, solving Blake Snell in Game 2**\
 `The Phillies saw a higher percentage of pitches in the strike zone in Game 1 than they have in almost every postseason game since 2022. `\
 https://nytimes.com/athletic/6691764/2025/10/05/phillies-dodgers-nlds-harrison-bader-blake-snell/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6662091/2025/10/05/nhl-waivers-tracker-preseason-20
 **Heavy Rains in Nepal Cause Deadly Floods and Landslides**\
 `Nepal’s interim leaders are dealing with flooding that has killed dozens and snarled transportation.`\
 https://nytimes.com/video/world/asia/100000010440258/nepal-floods-rescues-rains.html
-
-**AP Top 25: Ohio State, Miami lead poll as Texas, PSU fall out**\
-`Preseason No. 1 Texas and No. 2 Penn State are out of the AP poll, while Ohio State, Miami, Oregon, Ole Miss and Texas A&M form the top 5.`\
-https://nytimes.com/athletic/6691623/2025/10/05/ap-top-25-poll-texas-penn-state-unranked/
 
