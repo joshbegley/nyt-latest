@@ -1,3 +1,7 @@
+**Manchester United ease pressure with win, yet Amorim sticks with brutal honesty policy**\
+`Beating Sunderland has eased the pressure on Manchester United head coach Amorim - but being he still admitted to 'frustrations'...`\
+https://nytimes.com/athletic/6689623/2025/10/05/manchester-united-sunderland-amorim-honesty/
+
 **A Tel-tale sign: Is goal the first step in Mathys coming good for Tottenham?**\
 `Mathys Tel has not hit his best form at Tottenham so far, but his goal against Leeds United shows he could become a crucial player`\
 https://nytimes.com/athletic/6689404/2025/10/05/mathys-tel-goal-tottenham-leeds/
