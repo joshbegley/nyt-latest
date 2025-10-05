@@ -1,3 +1,15 @@
+**The New York Times in Print for Sunday, Oct. 5, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/05/todays-new-york-times
+
+**They Have Waited Two Years for the Hostages. These Are Their Rituals.**\
+`Families of captives in Gaza find private ways to stay connected to their loved ones.`\
+https://nytimes.com/2025/10/05/opinion/israel-gaza-hostages-october-7-anniversary.html
+
+**The West Is Lost**\
+`Loss has become a pervasive condition of life in Europe and America.`\
+https://nytimes.com/2025/10/05/opinion/west-europe-america-lost.html
+
 **Dodgers, Teoscar Hernández silence Phillies crowd to take NLDS Game 1**\
 `Hitting coach Aaron Bates warned the Dodgers about the crowd noise and told them: "Just build momentum for yourself."`\
 https://nytimes.com/athletic/6690495/2025/10/05/dodgers-teoscar-hernandez-phillies-nlds/

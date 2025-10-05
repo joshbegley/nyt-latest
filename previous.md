@@ -1,3 +1,15 @@
+**The New York Times in Print for Sunday, Oct. 5, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/05/todays-new-york-times
+
+**They Have Waited Two Years for the Hostages. These Are Their Rituals.**\
+`Families of captives in Gaza find private ways to stay connected to their loved ones.`\
+https://nytimes.com/2025/10/05/opinion/israel-gaza-hostages-october-7-anniversary.html
+
+**The West Is Lost**\
+`Loss has become a pervasive condition of life in Europe and America.`\
+https://nytimes.com/2025/10/05/opinion/west-europe-america-lost.html
+
 **Dodgers, Teoscar Hernández silence Phillies crowd to take NLDS Game 1**\
 `Hitting coach Aaron Bates warned the Dodgers about the crowd noise and told them: "Just build momentum for yourself."`\
 https://nytimes.com/athletic/6690495/2025/10/05/dodgers-teoscar-hernandez-phillies-nlds/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6676674/2025/10/05/english-players-europe-bellingha
 **How to watch Tigers at Mariners: Game 1 Time, TV, streaming**\
 `Find out how to watch the Detroit Tigers play the Seattle Mariners, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6690562/2025/10/05/tigers-vs-mariners-stream-how-to-watch-oct-5/
-
-**A crucial 24 hours in Manchester that exposed each WSL title contender's vulnerabilities**\
-`Two games that pitched the league’s four title contenders in a frenzied cage fight would always produce lines for us to draw back to in May`\
-https://nytimes.com/athletic/6689489/2025/10/05/womens-super-league-arsenal-chelsea-manchester-city-manchester-united/
-
-**How Argentina won the 1978 World Cup: Home-based talent, free-flowing football and peak Mario Kempes**\
-`Michael Cox's history of World Cup winners reaches Argentina's triumph on home turf in 1978`\
-https://nytimes.com/athletic/6686855/2025/10/05/world-cup-winners-argentina-1978/
-
-**Vikings vs. Browns in London: What to know about the NFL's next international game**\
-`The NFL's next export goes to London, where the Vikings and Browns tangle in Tottenham Hotspur Stadium. Here's what viewers need to know.`\
-https://nytimes.com/athletic/6684073/2025/10/05/vikings-browns-london-dillon-gabriel-nfl-how-to-watch/
 
