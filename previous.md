@@ -1,3 +1,7 @@
+**Ty Simpson and Alabama, not Diego Pavia and Vanderbilt, end up with the last word**\
+`Simpson was the best player on the field, befuddling Vanderbilt with his elusiveness and creativity.`\
+https://nytimes.com/athletic/6690283/2025/10/04/ty-simpson-alabama-diego-pavia-vanderbilt/
+
 **Vannini: If this Penn State team can't get it done under James Franklin, can any?**\
 `If this Penn State team can't get it done, what James Franklin-led PSU team can? `\
 https://nytimes.com/athletic/6690210/2025/10/04/penn-state-ucla-loss-james-franklin/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6560541/2025/10/04/college-football-playoff-bracket
 **Texas-Florida takeaways: Gators wreak havoc on Manning to down No. 9 Longhorns**\
 `It might sound crazy, but there is no reason the Gators can’t be a factor in what’s looking like a wide-open SEC race.`\
 https://nytimes.com/athletic/6689890/2025/10/04/florida-texas-score-result-takeaways/
-
-**In NLDS Game 1 rout, Brewers show how they became baseball’s best team**\
-`For the national audience who only caught glimpses of the Brewers in 2025, consider Saturday's emphatic first inning a primer.`\
-https://nytimes.com/athletic/6690047/2025/10/04/brewers-cubs-nlds-game-1-offense-analysis/
 
