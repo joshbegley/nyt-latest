@@ -1,3 +1,11 @@
+**As preseason favorites crumble, Ryan Day and Ohio State keep winning at a record pace**\
+`After Penn State and Texas suffered upset losses, Ohio State's win over Minnesota pushed Day's win percentage past Knute Rockne.`\
+https://nytimes.com/athletic/6690987/2025/10/05/ohio-state-ryan-day-coaching-record/
+
+**Amanda Anisimova beats fading Linda Nosková to win China Open**\
+`Anisimova ended a run of three final defeats by overcoming a second-set wobble against the Czech.`\
+https://nytimes.com/athletic/6690933/2025/10/05/amanda-anisimova-linda-noskova-china-open-result-analysis/
+
 **The Pulse: More than your average upset**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6690443/2025/10/05/penn-states-loss-at-ucla-was-more-than-your-average-upset/

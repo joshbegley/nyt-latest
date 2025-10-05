@@ -1,3 +1,11 @@
+**As preseason favorites crumble, Ryan Day and Ohio State keep winning at a record pace**\
+`After Penn State and Texas suffered upset losses, Ohio State's win over Minnesota pushed Day's win percentage past Knute Rockne.`\
+https://nytimes.com/athletic/6690987/2025/10/05/ohio-state-ryan-day-coaching-record/
+
+**Amanda Anisimova beats fading Linda Nosková to win China Open**\
+`Anisimova ended a run of three final defeats by overcoming a second-set wobble against the Czech.`\
+https://nytimes.com/athletic/6690933/2025/10/05/amanda-anisimova-linda-noskova-china-open-result-analysis/
+
 **The Pulse: More than your average upset**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6690443/2025/10/05/penn-states-loss-at-ucla-was-more-than-your-average-upset/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6691011/2025/10/05/mercury-vs-aces-stream-how-to-wa
 **OPEC Plus Agrees to Small Boost in Oil Production**\
 `Saudi Arabia, the de facto leader of the oil cartel, sees advantages in increasing output despite market risks.`\
 https://nytimes.com/2025/10/05/business/opec-plus-oil-production-increase.html
-
-**Tracking Tropical Storm Priscilla**\
-`See the likely path and wind arrival times for Priscilla`\
-https://nytimes.com/interactive/2025/weather/priscilla-map-path-tracker.html
-
-**Lowetide: Making the final call on Oilers' season-opening 2025-26 roster**\
-`The Oilers are through the preseason and must make some important roster decisions in the days before the season opens.`\
-https://nytimes.com/athletic/6689385/2025/10/05/edmonton-oilers-roster-2025-lowetide/
 
