@@ -1,6 +1,6 @@
 **Israel and Hamas Show Signs of Embracing Parts of Trump’s Cease-Fire Deal**\
 `Both sides have reacted positively to a U.S. proposal to release Israeli hostages as part of a cease-fire agreement, but reaching a full deal that would require Hamas to disarm remains a serious challenge.`\
-https://nytimes.com/video/embedded/world/middleeast/100000010440586/international-middle-east-israel-hamas.html
+https://nytimes.com/video/world/100000010440586/international-middle-east-israel-hamas.html
 
 **Moise Bombito injury: What comes next for Canada?**\
 `Canada’s World Cup hopes were dealt a severe blow as star centre-back Moise Bombito suffered a fractured left tibia on Sunday.`\
