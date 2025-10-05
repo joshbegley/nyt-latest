@@ -1,3 +1,12 @@
+**Panthers, Lightning preseason finale ends with 312 penalty minutes, 16 ejections**\
+`The Panthers’ eighth goal was taken off the board after Niko Mikkola was ruled ineligible due to a game misconduct.
+`\
+https://nytimes.com/athletic/6690225/2025/10/04/panthers-lightning-preseason-penalties-ejections/
+
+**Messi delivers 3 assists for Miami to close in on rare double**\
+`Lionel Messi didn't score but he created three more goals for Inter Miami which moved him one off top spot in the MLS assist rankings.`\
+https://nytimes.com/athletic/6690425/2025/10/04/messi-assists-miami-rare-double/
+
 **Yankees' problems vs. Blue Jays run deeper than Aaron Judge failing in clutch again**\
 `Judge's sixth-inning at-bat was a killer, but there were many culprits for the Yankees — and lingering questions about whom they can trust. `\
 https://nytimes.com/athletic/6690386/2025/10/04/yankees-alds-problems-blue-jays-aaron-judge/
@@ -29,12 +38,4 @@ https://nytimes.com/athletic/6690309/2025/10/04/blue-jays-yankees-alds-game-1-an
 **Dodgers-Phillies Game 1 takeaways: Teoscar Hernández flips script with big blast**\
 `Dave Roberts calls it the “Teo Tax,” and the Phillies paid a steep price in the series opener.`\
 https://nytimes.com/athletic/6690003/2025/10/04/dodgers-phillies-game-1-score-results-takeaways-playoffs-mlb/
-
-**Ty Simpson and Alabama, not Diego Pavia and Vanderbilt, end up with the last word**\
-`Simpson was the best player on the field, befuddling Vanderbilt with his elusiveness and creativity.`\
-https://nytimes.com/athletic/6690283/2025/10/04/ty-simpson-alabama-diego-pavia-vanderbilt/
-
-**If this Penn State team can't get it done under James Franklin, can any?**\
-`If this Penn State team can't get it done, what James Franklin-led PSU team can? `\
-https://nytimes.com/athletic/6690210/2025/10/04/penn-state-ucla-loss-james-franklin/
 
