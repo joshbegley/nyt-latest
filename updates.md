@@ -1,3 +1,11 @@
+**Jackie Young scores 32, Las Vegas takes 2-0 lead over Phoenix in WNBA Finals**\
+`Guard sets franchise record for scoring in a finals game, while A'ja Wilson adds 28 points.`\
+https://nytimes.com/athletic/6692155/2025/10/05/aces-mercury-wnba-finals-game-2/
+
+**Giants-Saints takeaways: Jaxson Dart falters after fast start as N.Y. falls**\
+`The Giants committed turnovers on five straight possessions as the Saints rallied for their first win of season.`\
+https://nytimes.com/athletic/6691432/2025/10/05/giants-saints-score-result-takeaways-nfl/
+
 **Justin Jefferson wills Vikings to victory over Browns in game they had to have**\
 `After nearly two weeks in Europe, the Vikings needed a wake-up call. On Sunday, behind late against the Browns, Jefferson provided it.`\
 https://nytimes.com/athletic/6692016/2025/10/05/justin-jefferson-vikings-browns-london-nfl/
