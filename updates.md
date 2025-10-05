@@ -1,3 +1,11 @@
+**Spain Sail Grand Prix: A shocking weekend for Australia as Britain tops the standings**\
+`Britain tops the overall SailGP standings after Dylan Fletcher's team secured a dramatic victory in the winner-takes-all final in Cadiz`\
+https://nytimes.com/athletic/6691115/2025/10/05/spain-sail-grand-prix-britain-win/
+
+**Tadej Pogacar launches 75km solo attack to win European Championships road race**\
+`The Slovenian is now the reigning champion at the Tour de France, the Worlds, and the European Championships`\
+https://nytimes.com/athletic/6691360/2025/10/05/tadej-pogacar-european-champion/
+
 **Postecoglou says he 'loves a fight' after Forest extend winless run**\
 `Forest suffered a 2-0 defeat at St. James' Park and have yet to win in seven games under Postecoglou.`\
 https://nytimes.com/athletic/6691397/2025/10/05/ange-postecoglou-nottingham-forest-newcastle/
