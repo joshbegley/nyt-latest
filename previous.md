@@ -1,3 +1,7 @@
+**Angels GM Perry Minasian lacks answers, accountability after another failed season: Blum**\
+`Minasian declined to assess his performance after another losing season: "That would be a question for somebody else.”`\
+https://nytimes.com/athletic/6690121/2025/10/04/angels-gm-perry-minasian-accountability/
+
 **Craig Counsell should've been cheered by Brewers fans in Game 1**\
 `Starting a pitcher on three days' rest was the nicest belated apology gift that Counsell could’ve delivered to Milwaukee.`\
 https://nytimes.com/athletic/6690022/2025/10/04/cubs-brewers-craig-counsell-nlds-game-1/
@@ -22,7 +26,7 @@ https://nytimes.com/athletic/6689890/2025/10/04/florida-texas-score-result-takea
 `For the national audience who only caught glimpses of the Brewers in 2025, consider Saturday's emphatic first inning a primer.`\
 https://nytimes.com/athletic/6690047/2025/10/04/brewers-cubs-nlds-game-1-offense-analysis/
 
-**Ubben: Bill Belichick's disastrous start at UNC is inexcusable**\
+**Ubben: Unfortunately for Bill Belichick, 'patience' is no longer required to win in CFB**\
 `None of the issues with the roster are unique to North Carolina. Every program deals with it. Every first-year coach deals with it.`\
 https://nytimes.com/athletic/6689983/2025/10/04/bill-belichick-unc-clemson-inexcusable/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6690002/2025/10/04/cubs-nlds-game-1-blowout-loss-br
 **Yankees-Blue Jays Game 1 takeaways: Jays bash rivals to emphatically end playoff drought**\
 `After three playoff sweeps and six postseason losses, Vladimir Guerrero Jr. gave his home fans an October moment to cheer.`\
 https://nytimes.com/athletic/6689977/2025/10/04/yankees-blue-jays-game-1-score-results-takeaways-playoffs-mlb/
-
-**Notre Dame defense arrives as Irish shut down Boise State to win third straight**\
-`This was the kind of performance Chris Ash and the Irish needed, with USC coming to South Bend in two weeks.`\
-https://nytimes.com/athletic/6689789/2025/10/04/notre-dame-boise-state-score-result/
 

@@ -1,3 +1,11 @@
+**Angels GM Perry Minasian lacks answers, accountability after another failed season: Blum**\
+`Minasian declined to assess his performance after another losing season: "That would be a question for somebody else.”`\
+https://nytimes.com/athletic/6690121/2025/10/04/angels-gm-perry-minasian-accountability/
+
+**Ubben: Unfortunately for Bill Belichick, 'patience' is no longer required to win in CFB**\
+`None of the issues with the roster are unique to North Carolina. Every program deals with it. Every first-year coach deals with it.`\
+https://nytimes.com/athletic/6689983/2025/10/04/bill-belichick-unc-clemson-inexcusable/
+
 **Craig Counsell should've been cheered by Brewers fans in Game 1**\
 `Starting a pitcher on three days' rest was the nicest belated apology gift that Counsell could’ve delivered to Milwaukee.`\
 https://nytimes.com/athletic/6690022/2025/10/04/cubs-brewers-craig-counsell-nlds-game-1/
