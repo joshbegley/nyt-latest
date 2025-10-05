@@ -1,3 +1,7 @@
+**Yankees-Blue Jays Game 2 takeaways: Blue Jays batter Yanks again, pushing them to the brink**\
+`It didn’t seem like things could get much better for the Blue Jays after a 10-1 win in Game 1. Somehow, they found new heights.`\
+https://nytimes.com/athletic/6692307/2025/10/05/yankees-blue-jays-game-2-score-results-takeaways-playoffs-mlb/
+
 **10-Minute Challenge: A Modern Master Takes Us Inside an Artist’s Studio**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://nytimes.com/interactive/2025/10/05/upshot/ten-minute-challenge-marshall.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6692155/2025/10/05/aces-mercury-wnba-finals-game-2/
 **Justin Jefferson wills Vikings to win over Browns in game they had to have**\
 `After nearly two weeks in Europe, the Vikings needed a wake-up call. On Sunday, behind late against the Browns, Jefferson provided it.`\
 https://nytimes.com/athletic/6692016/2025/10/05/justin-jefferson-vikings-browns-london-nfl/
-
-**Drones, Democracy and the War in Ukraine**\
-`Back from a trip to Ukraine, our international editor Philip Pan explains how this is a new kind of war.`\
-https://nytimes.com/2025/10/05/world/ukaine-russia-drones-war-ceasefire-gaza.html
 
