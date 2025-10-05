@@ -1,3 +1,7 @@
+**Aces' Becky Hammon, Mercury's Nate Tibbetts on South Dakota's Mount Rushmore of coaching**\
+`Tibbetts and Hammon are competing in the WNBA Finals. As a player, Hammon faced Tibbetts' dad, who coached high school basketball.`\
+https://nytimes.com/athletic/6690336/2025/10/05/wnba-finals-becky-hammon-nate-tibbetts-south-dakota/
+
 **Donald Trump, the Sports Fan**\
 `Today, we take a look at the president’s sports fandom and what it reveals about his worldview.`\
 https://nytimes.com/2025/10/05/world/hostage-deal-israel-hamas-portland-syria.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6683327/2025/10/05/nfl-blocked-field-goals-theories
 **Fire at U.K. Mosque Is Being Treated as Hate Crime, Police Say**\
 `The attack came at a time of heightened anxiety after a deadly terrorist attack at a synagogue in Manchester.`\
 https://nytimes.com/2025/10/05/world/europe/peacehaven-arson-mosque-england.html
-
-**For Mariners, September sprint hits an October obstacle**\
-`The Mariners, the team with the most one-run wins in the majors this season, lost by that margin in their first game of the playoffs.`\
-https://nytimes.com/athletic/6690730/2025/10/05/seattle-mariners-alds-julio-rodriguez/
 
