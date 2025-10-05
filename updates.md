@@ -1,3 +1,15 @@
+**Dodger Details: A different angle on Teoscar Hernández's homer, a pitching plan and more**\
+`Andy Pages denied that he had been relaying signals to Hernández during his pivotal Game 1 at-bat.`\
+https://nytimes.com/athletic/6692074/2025/10/05/dodgers-teoscar-hernandez-home-run-andy-pages-nlds-phillies/
+
+**Cold One**\
+`Hannah Binney gets cooking with us.`\
+https://nytimes.com/2025/10/05/crosswords/daily-puzzle-2025-10-06.html
+
+**Justin Jefferson wills Vikings to win over Browns in game they had to have**\
+`After nearly two weeks in Europe, the Vikings needed a wake-up call. On Sunday, behind late against the Browns, Jefferson provided it.`\
+https://nytimes.com/athletic/6692016/2025/10/05/justin-jefferson-vikings-browns-london-nfl/
+
 **Jackie Young scores 32, Las Vegas takes 2-0 lead over Phoenix in WNBA Finals**\
 `Guard sets franchise record for scoring in a finals game, while A'ja Wilson adds 28 points.`\
 https://nytimes.com/athletic/6692155/2025/10/05/aces-mercury-wnba-finals-game-2/
