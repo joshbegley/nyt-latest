@@ -1,3 +1,7 @@
+**The Briefing: Brentford 0 Manchester City 1 - The unbeaten run goes on, but was it right to risk Rodri?**\
+`Pep Guardiola's side were initially slick and incisive, then fell back on solidity after the break to move three points from the top`\
+https://nytimes.com/athletic/6686461/2025/10/05/manchester-city-brentford-haaland-rodri/
+
 **'We made serious mistakes': Flick defends Barca system after 4-1 loss at Sevilla**\
 `The defeat marks only the second time Barcelona have lost two games in a row under Flick.`\
 https://nytimes.com/athletic/6691624/2025/10/05/barcelona-sevilla-hansi-flick/

@@ -1,3 +1,7 @@
+**The Briefing: Brentford 0 Manchester City 1 - The unbeaten run goes on, but was it right to risk Rodri?**\
+`Pep Guardiola's side were initially slick and incisive, then fell back on solidity after the break to move three points from the top`\
+https://nytimes.com/athletic/6686461/2025/10/05/manchester-city-brentford-haaland-rodri/
+
 **'We made serious mistakes': Flick defends Barca system after 4-1 loss at Sevilla**\
 `The defeat marks only the second time Barcelona have lost two games in a row under Flick.`\
 https://nytimes.com/athletic/6691624/2025/10/05/barcelona-sevilla-hansi-flick/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6691315/2025/10/05/sec-football-teams-week-6-rankin
 **Newcastle's Hall injury 'not short term' - Howe**\
 `The 21-year-old previously missed five months from March due to a broken bone in his foot and was gradually being reintroduced into the side`\
 https://nytimes.com/athletic/6691401/2025/10/05/lewis-hall-injury-update-newcastle/
-
-**Tadej Pogacar launches 75km solo attack to win European Championships road race**\
-`The Slovenian is now the reigning champion at the Tour de France, the Worlds, and the European Championships`\
-https://nytimes.com/athletic/6691360/2025/10/05/tadej-pogacar-european-champion/
 
