@@ -1,3 +1,7 @@
+**Dodgers, Teoscar Hernández silence Phillies crowd to take NLDS Game 1**\
+`Hitting coach Aaron Bates warned the Dodgers about the crowd noise and told them: "Just build momentum for yourself."`\
+https://nytimes.com/athletic/6690495/2025/10/05/dodgers-teoscar-hernandez-phillies-nlds/
+
 **With Odegaard injured, Zubimendi made all the difference for Arsenal**\
 `In one of his best performances in an Arsenal shirt so far, Zubimendi quickly went about making a difference after his introduction`\
 https://nytimes.com/athletic/6689625/2025/10/05/arsenal-west-ham-zubimendi/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6686855/2025/10/05/world-cup-winners-argentina-1978
 **Vikings vs. Browns in London: What to know about the NFL's next international game**\
 `The NFL's next export goes to London, where the Vikings and Browns tangle in Tottenham Hotspur Stadium. Here's what viewers need to know.`\
 https://nytimes.com/athletic/6684073/2025/10/05/vikings-browns-london-dillon-gabriel-nfl-how-to-watch/
-
-**Quote of the Day: How Much Would You Pay for an Apatosaurus?**\
-`Quotation of the Day for Sunday, October 5, 2025.`\
-https://nytimes.com/2025/10/05/pageoneplus/quote-of-the-day-how-much-would-you-pay-for-an-apatosaurus.html
 
