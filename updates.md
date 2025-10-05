@@ -1,3 +1,7 @@
+**Yankees-Blue Jays Game 2 takeaways: Toronto batters Yanks again, pushing them to the brink**\
+`It didn’t seem like things could get much better for the Blue Jays after their Game 1 rout. Somehow, they found new heights Sunday.`\
+https://nytimes.com/athletic/6692307/2025/10/05/yankees-blue-jays-game-2-score-results-takeaways-playoffs-mlb/
+
 **Cubs takeaways: Chicago needs to lean into its advantage, no Kyle Tucker in right and more**\
 `Plus notes on how the Cubs' high-leverage arms got a break Saturday, which could help their chances in Game 2.`\
 https://nytimes.com/athletic/6692136/2025/10/05/cubs-nlds-takeaways-power-advantage-kyle-tucker-right-field/
