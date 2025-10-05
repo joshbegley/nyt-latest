@@ -1,3 +1,7 @@
+**'We made serious mistakes': Flick defends Barca system after 4-1 loss at Sevilla**\
+`The defeat marks only the second time Barcelona have lost two games in a row under Flick.`\
+https://nytimes.com/athletic/6691624/2025/10/05/barcelona-sevilla-hansi-flick/
+
 **Leader of U.K. Conservatives Vows to Deport 150,000 People a Year**\
 `Kemi Badenoch, whose party is sinking in polls, outlined plans resembling Trump policies against those accused of being in the United States illegally.`\
 https://nytimes.com/2025/10/05/world/europe/kemi-badenoch-uk-conservative-party-deportations.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6691401/2025/10/05/lewis-hall-injury-update-newcast
 **Tadej Pogacar launches 75km solo attack to win European Championships road race**\
 `The Slovenian is now the reigning champion at the Tour de France, the Worlds, and the European Championships`\
 https://nytimes.com/athletic/6691360/2025/10/05/tadej-pogacar-european-champion/
-
-**Defenseman Matt Grzelcyk signs 1-year deal with Blackhawks**\
-`Without an NHL contract after the offseason, defenseman Matt Grzelcyk knew he had to be strategic if he was going to earn another one.`\
-https://nytimes.com/athletic/6690649/2025/10/05/matt-grzelcyk-chicago-blackhawks-deal-analysis/
 

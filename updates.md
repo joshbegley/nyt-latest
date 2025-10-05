@@ -1,3 +1,7 @@
+**'We made serious mistakes': Flick defends Barca system after 4-1 loss at Sevilla**\
+`The defeat marks only the second time Barcelona have lost two games in a row under Flick.`\
+https://nytimes.com/athletic/6691624/2025/10/05/barcelona-sevilla-hansi-flick/
+
 **Leader of U.K. Conservatives Vows to Deport 150,000 People a Year**\
 `Kemi Badenoch, whose party is sinking in polls, outlined plans resembling Trump policies against those accused of being in the United States illegally.`\
 https://nytimes.com/2025/10/05/world/europe/kemi-badenoch-uk-conservative-party-deportations.html
