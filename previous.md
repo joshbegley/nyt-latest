@@ -1,3 +1,11 @@
+**One-Pot Beans, Greens and Grains; Citrusy Miso-Butter Chicken; Everyday Dal**\
+`And more Weeknight 100 hits, because the days are getting both shorter and busier.`\
+https://nytimes.com/2025/10/05/dining/one-pot-beans-greens-and-grains-citrusy-miso-butter-chicken-everyday-dal.html
+
+**The Briefing: Newcastle 2 Forest 0 - What did Guimaraes strike say about attacking threat? How has season started?**\
+`Chris Waugh and George Caulkin analyse the talking points from the game at St James' Park.`\
+https://nytimes.com/athletic/6686460/2025/10/05/newcastle-forest-guimaraes-howe/
+
 **Strong-Armed by Trump, Netanyahu Embraces Gaza Deal as a Personal Win**\
 `Prime Minister Benjamin Netanyahu of Israel took credit for an emerging agreement, but it was clear that President Trump was calling the shots.`\
 https://nytimes.com/2025/10/05/world/middleeast/trump-netanyahu-gaza-deal.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6677208/2025/10/05/submit-a-question-for-pete-samps
 **F1 2025 promised a tight championship. McLaren's bold car design made it a rout**\
 `McLaren has clinched a 10th F1 constructors' title. Here's how it did it so early, and so thoroughly `\
 https://nytimes.com/athletic/6644988/2025/10/05/mclaren-win-f1-constructors-championship/
-
-**McLaren secures constructors' title as superb George Russell wins Singapore Grand Prix**\
-`George Russell secures his second win of the season with a superb performance in Singapore`\
-https://nytimes.com/athletic/6690981/2025/10/05/singapore-grand-prix-briefing-mclaren-constructors-title-george-russell-wins/
-
-**Until Saturday: The most disastrous loss since ...?**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/6691094/2025/10/05/james-franklin-penn-state-ucla-until-saturday/
 

@@ -1,3 +1,11 @@
+**One-Pot Beans, Greens and Grains; Citrusy Miso-Butter Chicken; Everyday Dal**\
+`And more Weeknight 100 hits, because the days are getting both shorter and busier.`\
+https://nytimes.com/2025/10/05/dining/one-pot-beans-greens-and-grains-citrusy-miso-butter-chicken-everyday-dal.html
+
+**The Briefing: Newcastle 2 Forest 0 - What did Guimaraes strike say about attacking threat? How has season started?**\
+`Chris Waugh and George Caulkin analyse the talking points from the game at St James' Park.`\
+https://nytimes.com/athletic/6686460/2025/10/05/newcastle-forest-guimaraes-howe/
+
 **Arsenal confirm Odegaard MCL injury, midfielder out of Norway squad**\
 `Odegaard came off in the 30th minute of Saturday's game against West Ham after colliding his left knee with Crysencio Summerville’s leg.`\
 https://nytimes.com/athletic/6689236/2025/10/05/martin-odegaard-injury-update-norway/
