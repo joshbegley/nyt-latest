@@ -1,3 +1,7 @@
+**Jets lose chance at end zone after pass hits Skycam, officials botch rule**\
+`When Justin Fields' pass was deflected and hit the Skycam, the play was erroneously called an incomplete pass.`\
+https://nytimes.com/athletic/6691863/2025/10/05/jets-skycam-botched-rule-officials-cowboys/
+
 **Phillies NLDS notes: Harrison Bader in play, in-zone whiffs, solving Blake Snell in Game 2**\
 `The Phillies saw a higher percentage of pitches in the strike zone in Game 1 than they have in almost every postseason game since 2022. `\
 https://nytimes.com/athletic/6691764/2025/10/05/phillies-dodgers-nlds-harrison-bader-blake-snell/
