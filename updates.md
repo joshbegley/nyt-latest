@@ -1,3 +1,11 @@
+**In improbable win over Penn State, Jerry Neuheisel and UCLA pull off a Rose Bowl miracle**\
+`After never holding a lead in any of their first four games, UCLA pulls off a shocking upset with a first-time offensive coordinator.`\
+https://nytimes.com/athletic/6690548/2025/10/05/ucla-jerry-neuheisel-win-penn-state/
+
+**The New York Times International Edition in Print for Monday, Oct. 6, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/10/05/todays-new-york-times-international-edition
+
 **Landslides Kill Dozens in Nepal During Political Transition**\
 `Deadly rainfall, which also hit neighboring India, added to the woes of interim leaders in Nepal who took over last month after nationwide protests.`\
 https://nytimes.com/2025/10/05/world/asia/landslides-floods-nepal-india.html

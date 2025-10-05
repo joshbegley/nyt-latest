@@ -1,3 +1,11 @@
+**In improbable win over Penn State, Jerry Neuheisel and UCLA pull off a Rose Bowl miracle**\
+`After never holding a lead in any of their first four games, UCLA pulls off a shocking upset with a first-time offensive coordinator.`\
+https://nytimes.com/athletic/6690548/2025/10/05/ucla-jerry-neuheisel-win-penn-state/
+
+**The New York Times International Edition in Print for Monday, Oct. 6, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/10/05/todays-new-york-times-international-edition
+
 **Landslides Kill Dozens in Nepal During Political Transition**\
 `Deadly rainfall, which also hit neighboring India, added to the woes of interim leaders in Nepal who took over last month after nationwide protests.`\
 https://nytimes.com/2025/10/05/world/asia/landslides-floods-nepal-india.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/05/insider/what-i-learned-from-a-102-year-old-yoga-m
 **Craft Breweries Struggle as Sales and Appetites Wane**\
 `Once the darling of the alcohol industry, small-batch beer makers are shutting down because of increased competition and flagging interest.`\
 https://nytimes.com/2025/10/05/business/craft-breweries-close-sales-decline.html
-
-**Texas L.G.B.T.Q. Teenagers and Families Navigate a Public School Clampdown**\
-`Under a new state law, public schools can no longer sponsor gay and gender clubs or “assist” with transitioning, but implementation appears to be varying by the politics of the districts.`\
-https://nytimes.com/2025/10/05/us/politics/texas-lgbtq-schools.html
-
-**How to watch NASCAR Cup Series at Charlotte: TV, streaming for Roval 400 cutdown race**\
-`Roval is unlike any other course on the schedule. It will also determine which drivers move on to the Round of 8 and which go home.`\
-https://nytimes.com/athletic/6684575/2025/10/05/nascar-roval-400-charlotte-playoffs-how-to-watch-2025/
 
