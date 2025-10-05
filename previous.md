@@ -1,3 +1,7 @@
+**Nebraska-Michigan State takeaways: Huskers nab first Big Ten win on late surge**\
+`Nebraska scored 24 consecutive late points to beat Michigan State 38-27.`\
+https://nytimes.com/athletic/6690080/2025/10/04/nebraska-michigan-state-score-result-football/
+
 **Judge Blocks Trump’s Deployment of National Guard in Portland, Ore.**\
 `A federal judge appointed by President Trump issued a temporary restraining order, siding for now with Oregon and Portland lawyers who called federalizing the guard a presidential overreach.`\
 https://nytimes.com/2025/10/04/us/politics/judge-blocks-national-guard-portland.html
@@ -11,7 +15,7 @@ https://nytimes.com/athletic/6560541/2025/10/04/college-football-playoff-bracket
 https://nytimes.com/athletic/6689890/2025/10/04/florida-texas-score-result-takeaways/
 
 **In NLDS Game 1 rout, Brewers show how they became baseball’s best team**\
-`For the national audience who only caught glimpses of the Brewers in 2025, consider the emphatic first inning a primer.`\
+`For the national audience who only caught glimpses of the Brewers in 2025, consider Saturday's emphatic first inning a primer.`\
 https://nytimes.com/athletic/6690047/2025/10/04/brewers-cubs-nlds-game-1-offense-analysis/
 
 **Ubben: Bill Belichick's disastrous start at UNC is inexcusable**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6689789/2025/10/04/notre-dame-boise-state-score-res
 **UCLA shocks No. 7 Penn State for first win after 0-4 start**\
 `Previously winless UCLA shocked No. 7 Penn State 42-37 on Saturday afternoon at the Rose Bowl behind Nico Iamaleava's five touchdowns.`\
 https://nytimes.com/athletic/6689923/2025/10/04/ucla-penn-state-score-result-football/
-
-**Alex Anthopoulos on the Braves' managerial search: 'Integrity is a must'**\
-`Integrity is what endeared Brian Snitker to Anthopoulos, and it is the quality the GM will be looking for in Snitker's replacement.`\
-https://nytimes.com/athletic/6689924/2025/10/04/braves-manager-search-alex-anthopoulos/
 

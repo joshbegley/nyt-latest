@@ -1,3 +1,11 @@
+**Nebraska-Michigan State takeaways: Huskers nab first Big Ten win on late surge**\
+`Nebraska scored 24 consecutive late points to beat Michigan State 38-27.`\
+https://nytimes.com/athletic/6690080/2025/10/04/nebraska-michigan-state-score-result-football/
+
+**In NLDS Game 1 rout, Brewers show how they became baseball’s best team**\
+`For the national audience who only caught glimpses of the Brewers in 2025, consider Saturday's emphatic first inning a primer.`\
+https://nytimes.com/athletic/6690047/2025/10/04/brewers-cubs-nlds-game-1-offense-analysis/
+
 **Judge Blocks Trump’s Deployment of National Guard in Portland, Ore.**\
 `A federal judge appointed by President Trump issued a temporary restraining order, siding for now with Oregon and Portland lawyers who called federalizing the guard a presidential overreach.`\
 https://nytimes.com/2025/10/04/us/politics/judge-blocks-national-guard-portland.html
