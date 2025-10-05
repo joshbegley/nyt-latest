@@ -1,3 +1,7 @@
+**SEC vibes: It just means more ... College Football Playoff chances**\
+`The SEC was wide open going into this weekend and is now even more so, with preseason favorite Texas taking another loss.`\
+https://nytimes.com/athletic/6691315/2025/10/05/sec-football-teams-week-6-rankings-vibes/
+
 **Newcastle's Hall injury 'not short term' - Howe**\
 `The 21-year-old previously missed five months from March due to a broken bone in his foot and was gradually being reintroduced into the side`\
 https://nytimes.com/athletic/6691401/2025/10/05/lewis-hall-injury-update-newcastle/
