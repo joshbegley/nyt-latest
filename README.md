@@ -1,3 +1,7 @@
+**Yankees' problems vs. Blue Jays run deeper than Aaron Judge failing in clutch again**\
+`Judge's sixth-inning at-bat was a killer, but there were many culprits for the Yankees — and lingering questions about whom they can trust. `\
+https://nytimes.com/athletic/6690386/2025/10/04/yankees-alds-problems-blue-jays-aaron-judge/
+
 **Miami holds off FSU, sending message in ACC, CFP race: Takeaways**\
 `After relying heavily on its rushing attack through nonconference play, Miami opened up its passing game Saturday.`\
 https://nytimes.com/athletic/6690348/2025/10/04/miami-florida-state-score-result/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6690283/2025/10/04/ty-simpson-alabama-diego-pavia-v
 **If this Penn State team can't get it done under James Franklin, can any?**\
 `If this Penn State team can't get it done, what James Franklin-led PSU team can? `\
 https://nytimes.com/athletic/6690210/2025/10/04/penn-state-ucla-loss-james-franklin/
-
-**Napheesa Collier cancels meeting with Cathy Engelbert**\
-`Engelbert told reporters on Friday about the planned meeting as she discussed her hope to clear the air with Collier.`\
-https://nytimes.com/athletic/6690178/2025/10/04/napheesa-collier-cathy-engelbert-meeting-canceled/
 
