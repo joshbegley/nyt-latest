@@ -1,3 +1,7 @@
+**Phillies NLDS notes: Harrison Bader in play, in-zone whiffs, solving Blake Snell in Game 2**\
+`The Phillies saw a higher percentage of pitches in the strike zone in Game 1 than they have in almost every postseason game since 2022. `\
+https://nytimes.com/athletic/6691764/2025/10/05/phillies-dodgers-nlds-harrison-bader-blake-snell/
+
 **Macron Appoints French Cabinet, but Doubts Over Government’s Stability Persist**\
 `There were significant holdovers from the previous cabinet, but President Emmanuel Macron also named several newcomers, including Bruno Le Maire, a veteran centrist politician as defense minister.`\
 https://nytimes.com/2025/10/05/world/europe/france-macron-cabinet.html
