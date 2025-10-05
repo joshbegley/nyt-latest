@@ -15,7 +15,7 @@ https://nytimes.com/interactive/2025/10/05/upshot/ten-minute-challenge-marshall.
 https://nytimes.com/athletic/6692191/2025/10/05/browns-loss-vikings-dillon-gabriel/
 
 **Cubs takeaways: Chicago needs to lean into its advantage, no Kyle Tucker in right and more**\
-`Plus notes on how the Cubs' high-leverage arms got a break on Saturday, which could help their chances in Game 2.`\
+`Plus notes on how the Cubs' high-leverage arms got a break Saturday, which could help their chances in Game 2.`\
 https://nytimes.com/athletic/6692136/2025/10/05/cubs-nlds-takeaways-power-advantage-kyle-tucker-right-field/
 
 **Israel and Hamas Show Signs of Embracing Parts of Trump’s Cease-Fire Deal**\

@@ -1,3 +1,7 @@
+**Cubs takeaways: Chicago needs to lean into its advantage, no Kyle Tucker in right and more**\
+`Plus notes on how the Cubs' high-leverage arms got a break Saturday, which could help their chances in Game 2.`\
+https://nytimes.com/athletic/6692136/2025/10/05/cubs-nlds-takeaways-power-advantage-kyle-tucker-right-field/
+
 **U.S. into U-20 World Cup last 16 despite loss to South Africa**\
 `The U.`\
 https://nytimes.com/athletic/6692249/2025/10/05/u-s-into-u-20-world-cup-last-16-despite-loss-to-south-africa/

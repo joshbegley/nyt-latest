@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6692249/2025/10/05/u-s-into-u-20-world-cup-last-16-despite-loss-to-south-africa/
 
 **Yankees-Blue Jays Game 2 takeaways: Toronto batters Yanks again, pushing them to the brink**\
-`It didn’t seem like things could get much better for the Blue Jays after a 10-1 win in Game 1. Somehow, they found new heights.`\
+`It didn’t seem like things could get much better for the Blue Jays after their Game 1 rout. Somehow, they found new heights Sunday.`\
 https://nytimes.com/athletic/6692307/2025/10/05/yankees-blue-jays-game-2-score-results-takeaways-playoffs-mlb/
 
 **10-Minute Challenge: A Modern Master Takes Us Inside an Artist’s Studio**\
