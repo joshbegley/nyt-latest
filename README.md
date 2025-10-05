@@ -1,3 +1,7 @@
+**While Dillon Gabriel provided hope, Browns' loss to Vikings felt all too familiar**\
+`Cleveland's offense appeared to get a boost with the rookie QB behind center, but the team again failed to reach the 20-point mark. `\
+https://nytimes.com/athletic/6692191/2025/10/05/browns-loss-vikings-dillon-gabriel/
+
 **Cubs takeaways: Chicago needs to lean into its advantage, no Kyle Tucker in right and more**\
 `Plus notes on how the Cubs' high-leverage arms got a break on Saturday, which could help their chances in Game 2.`\
 https://nytimes.com/athletic/6692136/2025/10/05/cubs-nlds-takeaways-power-advantage-kyle-tucker-right-field/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/05/world/ukaine-russia-drones-war-ceasefire-gaza.htm
 **Eagles vs. Broncos takeaways: Bo Nix, Denver hand Philadelphia its first loss**\
 `The Broncos’ second-year quarterback was tied in knots by Vic Fangio’s defense for three quarters. Then, Nix came alive.`\
 https://nytimes.com/athletic/6691825/2025/10/05/broncos-eagles-score-result-takeaways-nfl/
-
-**Panthers-Dolphins takeaways: Down 17-0, Carolina rallies behind Rico Dowdle**\
-`The Carolina Panthers tied their franchise record for biggest comeback.`\
-https://nytimes.com/athletic/6692098/2025/10/05/dolphins-panthers-score-result-takeaways-nfl-2/
 
