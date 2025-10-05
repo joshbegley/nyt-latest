@@ -1,3 +1,11 @@
+**Drones, Democracy and the War in Ukraine**\
+`Back from a trip to Ukraine, our international editor Philip Pan explains how this is a new kind of war.`\
+https://nytimes.com/2025/10/05/world/ukaine-russia-drones-war-ceasefire-gaza.html
+
+**Eagles vs. Broncos takeaways: Bo Nix, Denver hand Philadelphia its first loss**\
+`The Broncos’ second-year quarterback was tied in knots by Vic Fangio’s defense for three quarters. Then, Nix came alive.`\
+https://nytimes.com/athletic/6691825/2025/10/05/broncos-eagles-score-result-takeaways-nfl/
+
 **Panthers-Dolphins takeaways: Down 17-0, Carolina rallies behind Rico Dowdle**\
 `The Carolina Panthers tied their franchise record for biggest comeback.`\
 https://nytimes.com/athletic/6692098/2025/10/05/dolphins-panthers-score-result-takeaways-nfl-2/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6691641/2025/10/05/raiders-colts-score-result-takea
 **Cowboys-Jets takeaways: Dallas dominates N.Y. for much-needed win**\
 `Cowboys recover from wild tie vs. Green Bay, drop struggling Jets to 0-5.`\
 https://nytimes.com/athletic/6691437/2025/10/05/cowboys-jets-score-result-takeaways-nfl/
-
-**Texans vs. Ravens takeaways: C.J. Stroud and Houston dominate as Baltimore hits rock bottom**\
-`Stroud threw four touchdowns as Houston rolled. Now, even a healthy Lamar Jackson might not be enough to save the lifeless Ravens.`\
-https://nytimes.com/athletic/6691689/2025/10/05/texans-ravens-score-result-takeaways-nfl/
-
-**Brewers' Jackson Chourio uncertain for Game 2, reliever Aaron Ashby to open**\
-`The MRI results on Chourio's hamstring were "inconclusive" according to Milwaukee manager Pat Murphy.`\
-https://nytimes.com/athletic/6691942/2025/10/05/brewers-jackson-chourio-injury-nlds/
 

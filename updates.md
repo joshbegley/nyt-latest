@@ -1,3 +1,11 @@
+**Drones, Democracy and the War in Ukraine**\
+`Back from a trip to Ukraine, our international editor Philip Pan explains how this is a new kind of war.`\
+https://nytimes.com/2025/10/05/world/ukaine-russia-drones-war-ceasefire-gaza.html
+
+**Eagles vs. Broncos takeaways: Bo Nix, Denver hand Philadelphia its first loss**\
+`The Broncos’ second-year quarterback was tied in knots by Vic Fangio’s defense for three quarters. Then, Nix came alive.`\
+https://nytimes.com/athletic/6691825/2025/10/05/broncos-eagles-score-result-takeaways-nfl/
+
 **Panthers-Dolphins takeaways: Down 17-0, Carolina rallies behind Rico Dowdle**\
 `The Carolina Panthers tied their franchise record for biggest comeback.`\
 https://nytimes.com/athletic/6692098/2025/10/05/dolphins-panthers-score-result-takeaways-nfl-2/
