@@ -1,3 +1,7 @@
+**Forget a championship for Arch Manning and Texas. What are the Longhorns good at now?**\
+`Texas started the season atop the polls with a Heisman candidate in Arch Manning. A loss at Florida shows nothing is going as planned.`\
+https://nytimes.com/athletic/6690285/2025/10/04/texas-florida-arch-manning-steve-sarkisian-sec/
+
 **From CBS studio, Rick Neuheisel reveled in his son's play calling in UCLA win: ‘Don’t make me cry’**\
 `Rick Neuheisel went from neutral studio analyst to passionate dad in one afternoon, and we got to see it live on Saturday afternoon.`\
 https://nytimes.com/athletic/6690391/2025/10/04/rick-neuheisel-jerry-ucla-penn-state/

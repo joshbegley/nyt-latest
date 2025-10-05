@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6690391/2025/10/04/rick-neuheisel-jerry-ucla-penn-s
 https://nytimes.com/athletic/6690307/2025/10/04/philadelphia-union-wins-mls-supporters-shield/
 
 **Forget a championship for Arch Manning and Texas. What are the Longhorns good at now?**\
-`Texas started the season atop the polls with a Heisman candidate in Arch Manning. A loss at Florida shows nothing is going to plan.`\
+`Texas started the season atop the polls with a Heisman candidate in Arch Manning. A loss at Florida shows nothing is going as planned.`\
 https://nytimes.com/athletic/6690285/2025/10/04/texas-florida-arch-manning-steve-sarkisian-sec/
 
 **Blue Jays begin chasing away October demons by thrashing Yankees: 'Everybody's ready'**\
