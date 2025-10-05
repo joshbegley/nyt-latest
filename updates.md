@@ -1,4 +1,8 @@
 **Dodgers-Phillies Game 1 takeaways: Teoscar Hernández flips script with big blast**\
+`Dave Roberts calls it the “Teo Tax,” and the Phillies paid a steep price in the series opener.`\
+https://nytimes.com/athletic/6690003/2025/10/04/dodgers-phillies-game-1-score-results-takeaways-playoffs-mlb/
+
+**Dodgers-Phillies Game 1 takeaways: Teoscar Hernández flips script with big blast**\
 `Dave Roberts calls it the “Teo Tax,” and the Phillies paid a steep price in the series opener. `\
 https://nytimes.com/athletic/6690003/2025/10/04/dodgers-phillies-game-1-score-results-takeaways-playoffs-mlb/
 
