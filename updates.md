@@ -1,8 +1,4 @@
-**Judge Blocks Trump’s Deployment of National Guard in Portland, Ore.**\
-`A federal judge appointed by President Trump issued a temporary restraining order, siding for now with Oregon and Portland lawyers who called federalizing the guard a presidential overreach.`\
-https://nytimes.com/2025/10/04/us/politics/judge-blocks-national-guard-portland.html
-
-**College Football Playoff 2025 projections: Penn State, Texas stumble out of bracket**\
+**College Football Playoff 2025 projections: Where the bracket stands as Week 6 begins**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/10/04/college-football-playoff-bracket-projections-odds/
 
@@ -19,7 +15,7 @@ https://nytimes.com/athletic/6690047/2025/10/04/brewers-cubs-nlds-game-1-offense
 https://nytimes.com/athletic/6689983/2025/10/04/bill-belichick-unc-clemson-inexcusable/
 
 **Cubs will try to keep proper perspective after blowout Game 1 loss: 'One won’t kill ya'**\
-`"The task remains the same, and the group’s confidence is incredibly high, even though today wasn't what we wanted."`\
+`"The task remains the same and the group’s confidence is incredibly high, even though today wasn’t what we wanted.”`\
 https://nytimes.com/athletic/6690002/2025/10/04/cubs-nlds-game-1-blowout-loss-brewers/
 
 **Yankees-Blue Jays Game 1 takeaways: Jays bash rivals to emphatically end playoff drought**\
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6689923/2025/10/04/ucla-penn-state-score-result-foo
 **Alex Anthopoulos on the Braves' managerial search: 'Integrity is a must'**\
 `Integrity is what endeared Brian Snitker to Anthopoulos, and it is the quality the GM will be looking for in Snitker's replacement.`\
 https://nytimes.com/athletic/6689924/2025/10/04/braves-manager-search-alex-anthopoulos/
+
+**Former Portsmouth, Leicester City owner Mandaric dies at 87**\
+`Mandaric also saw success as the first owner of the San Jose Earthquakes, where George Best later played.`\
+https://nytimes.com/athletic/6689930/2025/10/04/milan-mandaric-portsmouth-leicester-city-dies/
 
