@@ -1,3 +1,7 @@
+**Newcastle's Hall injury 'not short term' - Howe**\
+`The 21-year-old previously missed five months from March due to a broken bone in his foot and was gradually being reintroduced into the side`\
+https://nytimes.com/athletic/6691401/2025/10/05/lewis-hall-injury-update-newcastle/
+
 **Tadej Pogacar launches 75km solo attack to win European Championships road race**\
 `Pogacar is now the reigning champion at the Tour de France, the Worlds, and the European Championships`\
 https://nytimes.com/athletic/6691360/2025/10/05/tadej-pogacar-european-champion/
