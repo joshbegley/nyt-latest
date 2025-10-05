@@ -1,3 +1,11 @@
+**Macron Appoints French Cabinet, but Doubts Over Government’s Stability Persist**\
+`There were significant holdovers from the previous cabinet, but President Emmanuel Macron also named several newcomers, including Bruno Le Maire, a veteran centrist politician, as defense minister.`\
+https://nytimes.com/2025/10/05/world/europe/france-macron-cabinet.html
+
+**The Briefing: Brentford 0 Manchester City 1 – The unbeaten run goes on, but was it right to risk Rodri?**\
+`Pep Guardiola's side were initially slick and incisive, then fell back on solidity after the break to move three points from the top`\
+https://nytimes.com/athletic/6686461/2025/10/05/manchester-city-brentford-haaland-rodri/
+
 **Vikings vs. Browns: Minnesota's go-ahead TD spoils Dillon Gabriel's debut**\
 `With three minutes left, quarterback Carson Wentz led Minnesota down the field in 10 plays, capping the drive with a touchdown.`\
 https://nytimes.com/athletic/6691262/2025/10/05/browns-vikings-london-score-result-takeaways-nfl-international/
