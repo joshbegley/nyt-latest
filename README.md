@@ -1,3 +1,7 @@
+**Jackie Young scores 32, Las Vegas takes 2-0 lead over Phoenix in WNBA Finals**\
+`Guard sets franchise record for scoring in a finals game, while A'ja Wilson adds 28 points.`\
+https://nytimes.com/athletic/6692155/2025/10/05/aces-mercury-wnba-finals-game-2/
+
 **Justin Jefferson wills Vikings to victory over Browns in game they had to have**\
 `After nearly two weeks in Europe, the Vikings needed a wake-up call. On Sunday, behind late against the Browns, Jefferson provided it.`\
 https://nytimes.com/athletic/6692016/2025/10/05/justin-jefferson-vikings-browns-london-nfl/
@@ -23,7 +27,7 @@ https://nytimes.com/athletic/6670442/2025/10/05/chargers-keenan-allen-nfl-record
 https://nytimes.com/athletic/6691685/2025/10/05/nfl-takeaways-week-5-scores-results/
 
 **Giants-Saints takeaways: Jaxson Dart falters after fast start as N.Y. falls**\
-`Giants commit turnovers on five straight possessions as Saints rally for first win of season.`\
+`The Giants committed turnovers on five straight possessions as the Saints rallied for their first win of season.`\
 https://nytimes.com/athletic/6691432/2025/10/05/giants-saints-score-result-takeaways-nfl/
 
 **Skydiving Instructor Dies After Being Separated From Student, Officials Say**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/05/us/skydiving-instructor-dead-nashville.html
 **Rangers sack Martin after just one league win**\
 `"While all transition periods require some time, results have not met the club's expectations," a Rangers statement on Sunday night read.`\
 https://nytimes.com/athletic/6580815/2025/10/05/russell-martin-rangers-sacked/
-
-**Raiders-Colts takeaways: Indianapolis bounces back with 40-6 rout**\
-`The Colts exploded with 20 points in the second quarter — and 20 points in the third quarter — to improve to 4-1. Las Vegas dropped to 1-4.`\
-https://nytimes.com/athletic/6691641/2025/10/05/raiders-colts-score-result-takeaways-nfl/
 
