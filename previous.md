@@ -1,3 +1,11 @@
+**Strong-Armed by Trump, Netanyahu Embraces Gaza Deal as a Personal Win**\
+`Prime Minister Benjamin Netanyahu of Israel took credit for an emerging agreement, but it was clear that President Trump was calling the shots.`\
+https://nytimes.com/2025/10/05/world/middleeast/trump-netanyahu-gaza-deal.html
+
+**Arsenal's Odegaard out of Norway squad with ligament injury**\
+`Odegaard came off in the 30th minute of Saturday's game against West Ham after colliding his left knee with Crysencio Summerville’s leg.`\
+https://nytimes.com/athletic/6689236/2025/10/05/martin-odegaard-injury-update-norway/
+
 **Creamy Tomato Spaghetti With Preserved Lemon**\
 `Something magical happens when preserved lemon and tomato are cooked together. In this quick and simple pasta, fragrant lemon permeates the tomato paste, creating a beautifully aromatic (and pantry-friendly) sauce with the addition of heavy cream.`\
 https://nytimes.com/video/dining/100000010435018/creamy-tomato-spaghetti-with-preserved-lemon.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6690981/2025/10/05/singapore-grand-prix-briefing-mc
 **Until Saturday: The most disastrous loss since ...?**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6691094/2025/10/05/james-franklin-penn-state-ucla-until-saturday/
-
-**Predicting the College Football Playoff after Week 6: Hello Bama! Goodbye Penn State!**\
-`Right now, three of the SEC’s four unbeatens are in — Oklahoma, Ole Miss and Texas A&M. Alabama, Georgia and LSU are also in the field.`\
-https://nytimes.com/athletic/6690596/2025/10/05/college-football-playoff-2025-bracket-prediction-week-6/
-
-**As preseason favorites crumble, Ryan Day and Ohio State keep winning at a record pace**\
-`After Penn State and Texas suffered upset losses, Ohio State's win over Minnesota pushed Day's win percentage past Knute Rockne.`\
-https://nytimes.com/athletic/6690987/2025/10/05/ohio-state-ryan-day-coaching-record/
 
