@@ -1,3 +1,7 @@
+**Dodgers, Teoscar Hernández silence Phillies crowd to take NLDS Game 1**\
+`Hitting coach Aaron Bates warned the Dodgers about the crowd noise and told them: "Just build momentum for yourself."`\
+https://nytimes.com/athletic/6690495/2025/10/05/dodgers-teoscar-hernandez-phillies-nlds/
+
 **With Odegaard injured, Zubimendi made all the difference for Arsenal**\
 `In one of his best performances in an Arsenal shirt so far, Zubimendi quickly went about making a difference after his introduction`\
 https://nytimes.com/athletic/6689625/2025/10/05/arsenal-west-ham-zubimendi/
