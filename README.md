@@ -1,3 +1,7 @@
+**Philadelphia Union wins MLS Supporters' Shield**\
+`The Philadelphia Union&#8217;s 1-0 win  over New York City on Saturday secured the club the MLS Supporters&#8217; Shield title for the second time in the franchise&#8217;s history, completing an impressive turnaround under coach Bradley Carnell.`\
+https://nytimes.com/athletic/6690307/2025/10/04/philadelphia-union-wins-mls-supporters-shield/
+
 **Forget a championship for Arch Manning and Texas. What are the Longhorns good at now?**\
 `Texas started the season atop the polls with a Heisman candidate in Arch Manning. A loss at Florida shows nothing is going to plan.`\
 https://nytimes.com/athletic/6690285/2025/10/04/texas-florida-arch-manning-steve-sarkisian-sec/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6690121/2025/10/04/angels-gm-perry-minasian-account
 **Craig Counsell should've been cheered by Brewers fans in Game 1**\
 `Starting a pitcher on three days' rest was the nicest belated apology gift that Counsell could’ve delivered to Milwaukee.`\
 https://nytimes.com/athletic/6690022/2025/10/04/cubs-brewers-craig-counsell-nlds-game-1/
-
-**Nebraska-Michigan State takeaways: Huskers nab first Big Ten win on late surge**\
-`Nebraska scored 24 consecutive late points to beat Michigan State 38-27.`\
-https://nytimes.com/athletic/6690080/2025/10/04/nebraska-michigan-state-score-result-football/
 

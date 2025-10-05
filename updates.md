@@ -1,3 +1,11 @@
+**Forget a championship for Arch Manning and Texas. What are the Longhorns good at now?**\
+`Texas started the season atop the polls with a Heisman candidate in Arch Manning. A loss at Florida shows nothing is going to plan.`\
+https://nytimes.com/athletic/6690285/2025/10/04/texas-florida-arch-manning-steve-sarkisian-sec/
+
+**Blue Jays begin chasing away October demons by thrashing Yankees: 'Everybody's ready'**\
+`After nine years and seven straight playoff losses, the Blue Jays felt victory in the postseason.`\
+https://nytimes.com/athletic/6690309/2025/10/04/blue-jays-yankees-alds-game-1-analysis/
+
 **Dodgers-Phillies Game 1 takeaways: Teoscar Hernández flips script with big blast**\
 `Dave Roberts calls it the “Teo Tax,” and the Phillies paid a steep price in the series opener.`\
 https://nytimes.com/athletic/6690003/2025/10/04/dodgers-phillies-game-1-score-results-takeaways-playoffs-mlb/

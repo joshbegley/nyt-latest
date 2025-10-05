@@ -1,3 +1,11 @@
+**Forget a championship for Arch Manning and Texas. What are the Longhorns good at now?**\
+`Texas started the season atop the polls with a Heisman candidate in Arch Manning. A loss at Florida shows nothing is going to plan.`\
+https://nytimes.com/athletic/6690285/2025/10/04/texas-florida-arch-manning-steve-sarkisian-sec/
+
+**Blue Jays begin chasing away October demons by thrashing Yankees: 'Everybody's ready'**\
+`After nine years and seven straight playoff losses, the Blue Jays felt victory in the postseason.`\
+https://nytimes.com/athletic/6690309/2025/10/04/blue-jays-yankees-alds-game-1-analysis/
+
 **Dodgers-Phillies Game 1 takeaways: Teoscar Hernández flips script with big blast**\
 `Dave Roberts calls it the “Teo Tax,” and the Phillies paid a steep price in the series opener.`\
 https://nytimes.com/athletic/6690003/2025/10/04/dodgers-phillies-game-1-score-results-takeaways-playoffs-mlb/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6690022/2025/10/04/cubs-brewers-craig-counsell-nlds
 **Nebraska-Michigan State takeaways: Huskers nab first Big Ten win on late surge**\
 `Nebraska scored 24 consecutive late points to beat Michigan State 38-27.`\
 https://nytimes.com/athletic/6690080/2025/10/04/nebraska-michigan-state-score-result-football/
-
-**Judge Blocks Trump’s Deployment of National Guard in Portland, Ore.**\
-`A federal judge appointed by President Trump issued a temporary restraining order, siding for now with Oregon and Portland lawyers who called federalizing the guard a presidential overreach.`\
-https://nytimes.com/2025/10/04/us/politics/judge-blocks-national-guard-portland.html
-
-**College Football Playoff 2025 projections: Penn State, Texas stumble out of bracket**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/10/04/college-football-playoff-bracket-projections-odds/
 
