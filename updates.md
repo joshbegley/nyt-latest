@@ -1,3 +1,23 @@
+**Israel at War With Itself**\
+`The longest war of an endless Israeli-Palestinian conflict has come to challenge Israel’s own image and understanding of itself.`\
+https://nytimes.com/2025/10/05/world/middleeast/israel-challenges-gaza-war.html
+
+**New York City Is Full of Green Space. You Just Have to Find It.**\
+`The city’s millions of residents are crammed together, competing for space to live, play, work and rest.`\
+https://nytimes.com/2025/10/05/nyregion/new-york-city-green-space.html
+
+**‘As I Contemplated What to Do Next, I Heard a Voice Behind Me’**\
+`Passing a baton in an urban relay race, some familiar footwear and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/10/05/nyregion/metropolitan-diary.html
+
+**A Pacific Gateway Shows the Kremlin’s Grip on Russia’s Vast Expanse**\
+`In a country where power is highly centralized, Moscow sets the tone for Vladivostok, 4,000 miles away, complicating longstanding ambitions to make it a trading powerhouse.`\
+https://nytimes.com/2025/10/05/world/europe/vladivostok-moscow-kremlin-rule.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/10/05/crosswords/spelling-bee-forum.html
+
 **Manchester United ease pressure with win, yet Amorim sticks with brutal honesty policy**\
 `Beating Sunderland has eased the pressure on Manchester United head coach Amorim - but being he still admitted to 'frustrations'...`\
 https://nytimes.com/athletic/6689623/2025/10/05/manchester-united-sunderland-amorim-honesty/
