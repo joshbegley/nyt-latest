@@ -1,3 +1,11 @@
+**Creamy Tomato Spaghetti With Preserved Lemon**\
+`Something magical happens when preserved lemon and tomato are cooked together. In this quick and simple pasta, fragrant lemon permeates the tomato paste, creating a beautifully aromatic (and pantry-friendly) sauce with the addition of heavy cream.`\
+https://nytimes.com/video/dining/100000010435018/creamy-tomato-spaghetti-with-preserved-lemon.html
+
+**Timberwolves preseason debut positives: Rudy Gobert looks smooth, Bones Hyland looks sharp**\
+`The Timberwolves' preseason win Saturday against the Nuggets brought a few early positives and negatives to examine.`\
+https://nytimes.com/athletic/6690659/2025/10/05/rudy-gobert-timberwolves-bones-hyland-nba-preseason/
+
 **FA investigating after objects thrown at Spurs players during win at Leeds**\
 `In separate incidents, Spurs duo Pedro Porro and Mohammed Kudus appeared to be targeted with objects thrown from the Elland Road home end.`\
 https://nytimes.com/athletic/6690927/2025/10/05/tottenham-leeds-fans-investigation/
