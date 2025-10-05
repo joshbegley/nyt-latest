@@ -1,40 +1,40 @@
-**Enzo Maresca's wild celebration against Liverpool will endear him to Chelsea fans**\
-`Enzo Maresca allowed his guarded mask to slip against Liverpool and the crowd responded to his passion`\
-https://nytimes.com/athletic/6690721/2025/10/05/chelsea-liverpool-enzo-maresca-celebration/
+**Israel and Hamas Prepare for Talks on Trump’s Plan to End Gaza War**\
+`Indirect negotiations through mediators are planned for Monday in Egypt, but serious obstacles remain to any deal that would free hostages in Gaza in exchange for Palestinian prisoners.`\
+https://nytimes.com/2025/10/05/world/middleeast/trump-israel-hamas-gaza.html
 
-**What we learned about the College Football Playoff chase in Week 6**\
-`Led by well-traveled QB Chandler Morris, Virginia has a path to double-digit victories and a potential spot in the CFP.`\
-https://nytimes.com/athletic/6690647/2025/10/05/college-football-playoff-chase-virginia-alabama-texas-tech/
+**Notre Dame's defense is making it feel like 2024 again**\
+`One game doesn’t cure everything, but the Irish have played 10 consecutive quarters of good defense.`\
+https://nytimes.com/athletic/6690601/2025/10/05/notre-dame-defense-boise-state/
 
-**Everyday Clothes for New World Royalty**\
-`Meghan, Duchess of Sussex, made a surprise appearance for Pierpaolo Piccioli’s Balenciaga debut, along with Lauren Sánchez Bezos, Anne Hathaway and others. At Alaïa, a different message.`\
-https://nytimes.com/2025/10/05/style/balenciaga-pierpaolo-piccioli-alaia.html
+**Making sense of the Senators' acquisition of Kurtis MacDermid from New Jersey**\
+`Kurtis MacDermid made his preseason debut with the Senators a little over 24 hours after he was traded, in a 3-1 win over Montreal.`\
+https://nytimes.com/athletic/6688302/2025/10/05/kurtis-macdermid-senators-enforcers/
 
-**West Ham have a Niclas Fullkrug-sized problem**\
-`The Germany international is one of the highest earners at the club, but he has yet to justify the club's significant investment`\
-https://nytimes.com/athletic/6689004/2025/10/05/west-ham-niclas-fullkrug-problem/
+**Did Red Wings' rookie trio earn spots?: Final preseason thoughts**\
+`Michael Brandsegg-Nygård, Emmitt Finnie and Axel Sandin-Pellikka had strong preseasons. Will they make the Red Wings?`\
+https://nytimes.com/athletic/6689906/2025/10/05/red-wings-rookie-trio-preseason-finnie-brandsegg-nygard-sandin-pellikka/
 
-**In improbable win over Penn State, Jerry Neuheisel and UCLA pull off a Rose Bowl miracle**\
-`After never holding a lead in any of their first four games, UCLA pulls off a shocking upset with a first-time offensive coordinator.`\
-https://nytimes.com/athletic/6690548/2025/10/05/ucla-jerry-neuheisel-win-penn-state/
+**Oliver Kapanen, Joe Veleno are indicative of what's important to Canadiens this season**\
+`Martin St. Louis wants the Canadiens to stack ordinary actions on top of each other, and that's what Kapanen and Veleno have shown.`\
+https://nytimes.com/athletic/6690640/2025/10/05/oliver-kapanen-joe-veleno-canadiens/
 
-**The New York Times International Edition in Print for Monday, Oct. 6, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/10/05/todays-new-york-times-international-edition
+**Despite their strange journey, Zach McKinstry and the Tigers were built for games like this**\
+`Zach McKinstry, Keider Montero and many others combined to outmatch the Seattle Mariners' star power in ALDS Game 1.`\
+https://nytimes.com/athletic/6690713/2025/10/05/zach-mckinstry-detroit-tigers-alds/
 
-**Landslides Kill Dozens in Nepal During Political Transition**\
-`Deadly rainfall, which also hit neighboring India, added to the woes of interim leaders in Nepal who took over last month after nationwide protests.`\
-https://nytimes.com/2025/10/05/world/asia/landslides-floods-nepal-india.html
+**NFL Week 5 top storylines: Dillon Gabriel's debut, Ravens' fading hopes, A.J. Brown's frustrations**\
+`Also worth looking forward to: Sunday's Seahawks-Buccaneers game featuring two of the top picks from 2018 draft at quarterback.`\
+https://nytimes.com/athletic/6684032/2025/10/05/nfl-week-5-storylines-chiefs-aj-brown-dillon-gabriel/
 
-**Not All National Parks Remain Open in the Shutdown. Here’s What to Know.**\
-`Some underground attractions are closed, and many outdoor sites have reduced their services.`\
-https://nytimes.com/2025/10/05/us/shutdown-national-parks.html
+**The Grace That Gives Us Hope**\
+`There’s a way out of this, and people in despair are leading the way.`\
+https://nytimes.com/2025/10/05/opinion/hope-grace-michigan-shooting.html
 
-**The Paradox of Violence**\
-`We explain why religious attacks can incline people toward faith.`\
-https://nytimes.com/2025/10/05/briefing/the-paradox-of-violence.html
+**Republicans Are Making Health Care Unaffordable for Young Americans**\
+`If Democrats don’t win the shutdown fight, millions of young Americans may lose coverage because of higher prices.`\
+https://nytimes.com/2025/10/05/opinion/shutdown-health-care-republicans-young.html
 
-**How ‘American Girl’ Enhances a Scene in ‘One Battle After Another’**\
-`The Tom Petty hit has a rich cinematic legacy that Paul Thomas Anderson draws on for the closing moments of his tale of radical revolutionaries.`\
-https://nytimes.com/2025/10/05/movies/one-battle-after-another-american-girl.html
+**Sudden Pop Stardom After 50**\
+`My song went viral on TikTok, and then I was touring the world.`\
+https://nytimes.com/2025/10/05/opinion/princess-superstar-rock-aging-perfect.html
 
