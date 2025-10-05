@@ -1,3 +1,11 @@
+**Everyday Clothes for New World Royalty**\
+`Meghan, Duchess of Sussex, made a surprise appearance for Pierpaolo Piccioli’s Balenciaga debut, along with Lauren Sánchez Bezos, Anne Hathaway and others. At Alaïa, a different message.`\
+https://nytimes.com/2025/10/05/style/balenciaga-pierpaolo-piccioli-alaia.html
+
+**West Ham have a Niclas Fullkrug-sized problem**\
+`The Germany international is one of the highest earners at the club, but he has yet to justify the club's significant investment`\
+https://nytimes.com/athletic/6689004/2025/10/05/west-ham-niclas-fullkrug-problem/
+
 **In improbable win over Penn State, Jerry Neuheisel and UCLA pull off a Rose Bowl miracle**\
 `After never holding a lead in any of their first four games, UCLA pulls off a shocking upset with a first-time offensive coordinator.`\
 https://nytimes.com/athletic/6690548/2025/10/05/ucla-jerry-neuheisel-win-penn-state/

@@ -1,3 +1,11 @@
+**Enzo Maresca's wild celebration against Liverpool will endear him to Chelsea fans**\
+`Enzo Maresca allowed his guarded mask to slip against Liverpool and the crowd responded to his passion`\
+https://nytimes.com/athletic/6690721/2025/10/05/chelsea-liverpool-enzo-maresca-celebration/
+
+**What we learned about the College Football Playoff chase in Week 6**\
+`Led by well-traveled QB Chandler Morris, Virginia has a path to double-digit victories and a potential spot in the CFP.`\
+https://nytimes.com/athletic/6690647/2025/10/05/college-football-playoff-chase-virginia-alabama-texas-tech/
+
 **Everyday Clothes for New World Royalty**\
 `Meghan, Duchess of Sussex, made a surprise appearance for Pierpaolo Piccioli’s Balenciaga debut, along with Lauren Sánchez Bezos, Anne Hathaway and others. At Alaïa, a different message.`\
 https://nytimes.com/2025/10/05/style/balenciaga-pierpaolo-piccioli-alaia.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/05/briefing/the-paradox-of-violence.html
 **How ‘American Girl’ Enhances a Scene in ‘One Battle After Another’**\
 `The Tom Petty hit has a rich cinematic legacy that Paul Thomas Anderson draws on for the closing moments of his tale of radical revolutionaries.`\
 https://nytimes.com/2025/10/05/movies/one-battle-after-another-american-girl.html
-
-**Quiet! I’m Working Here.**\
-`Why does anyone expect me to get anything done amid the noise and constant pings of my workplace?`\
-https://nytimes.com/2025/10/05/business/quiet-im-working-here.html
-
-**‘The Gold’ Review: British Crime the Old-Fashioned Way**\
-`A true-crime story on PBS’s “Masterpiece” harks back to a hard-boiled tradition.`\
-https://nytimes.com/2025/10/05/arts/television/the-gold-masterpiece-review.html
 
