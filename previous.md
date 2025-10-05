@@ -1,3 +1,7 @@
+**AP Top 25: Ohio State, Miami lead poll as Texas, PSU fall out**\
+`Preseason No. 1 Texas and No. 2 Penn State are out of the AP poll, while Ohio State, Miami, Oregon, Ole Miss and Texas A&M form the top 5.`\
+https://nytimes.com/athletic/6691623/2025/10/05/ap-top-25-poll-texas-penn-state-unranked/
+
 **Macron Appoints French Cabinet, but Doubts Over Government’s Stability Persist**\
 `There were significant holdovers from the previous cabinet, but President Emmanuel Macron also named several newcomers, including Bruno Le Maire, a veteran centrist politician, as defense minister.`\
 https://nytimes.com/2025/10/05/world/europe/france-macron-cabinet.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6691115/2025/10/05/spain-sail-grand-prix-britain-wi
 **Postecoglou says he 'loves a fight' after Forest extend winless run**\
 `Forest suffered a 2-0 defeat at St. James' Park and have yet to win in seven games under Postecoglou.`\
 https://nytimes.com/athletic/6691397/2025/10/05/ange-postecoglou-nottingham-forest-newcastle/
-
-**Pritzker Says Federal Agents Are Trying to Make Chicago a ‘War Zone’**\
-`Gov. JB Pritzker of Illinois said he had ordered state agencies to investigate a raid on a Chicago apartment building where there had been reports of children zip tied “nearly naked” by federal officers.`\
-https://nytimes.com/2025/10/05/us/politics/pritzker-chicago-immigration.html
 
