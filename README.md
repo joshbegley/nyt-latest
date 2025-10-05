@@ -1,3 +1,7 @@
+**Dodgers-Phillies Game 1 takeaways: Teoscar Hernández flips script with big blast**\
+`Dave Roberts calls it the “Teo Tax,” and the Phillies paid a steep price in the series opener. `\
+https://nytimes.com/athletic/6690003/2025/10/04/dodgers-phillies-game-1-score-results-takeaways-playoffs-mlb/
+
 **Ty Simpson and Alabama, not Diego Pavia and Vanderbilt, end up with the last word**\
 `Simpson was the best player on the field, befuddling Vanderbilt with his elusiveness and creativity.`\
 https://nytimes.com/athletic/6690283/2025/10/04/ty-simpson-alabama-diego-pavia-vanderbilt/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/04/us/politics/judge-blocks-national-guard-portland.
 **College Football Playoff 2025 projections: Penn State, Texas stumble out of bracket**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/10/04/college-football-playoff-bracket-projections-odds/
-
-**Texas-Florida takeaways: Gators wreak havoc on Manning to down No. 9 Longhorns**\
-`It might sound crazy, but there is no reason the Gators can’t be a factor in what’s looking like a wide-open SEC race.`\
-https://nytimes.com/athletic/6689890/2025/10/04/florida-texas-score-result-takeaways/
 
