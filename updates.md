@@ -1,3 +1,11 @@
+**Costco to Sell Ozempic and Wegovy, Weight-Loss Wonder Drugs**\
+`Costco members will pay $499 a month out of pocket, the same price offered at CVS and Walmart, and on the manufacturer’s direct-to-consumer website.`\
+https://nytimes.com/2025/10/05/health/ozempic-wegovy-costco.html
+
+**2 Motorists Charged in Chicago, Including One Shot by Federal Agent**\
+`The account in the federal criminal complaint, which differs significantly from an earlier homeland security statement, says the motorists  rammed officers’ vehicle and that an agent shot one when she drove her car at him.`\
+https://nytimes.com/2025/10/05/us/politics/chicago-motorists-charged-border-patrol.html
+
 **The Superintendent’s Bio Seemed Too Good to Be True. It Was.**\
 `Ian Roberts rose through the ranks of American education with talent, charm and a riveting back story. He was also hiding a shocking secret.`\
 https://nytimes.com/2025/10/05/us/des-moines-iowa-superintendent-ian-roberts-immigration-ice.html
