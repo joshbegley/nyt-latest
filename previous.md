@@ -1,3 +1,15 @@
+**The Superintendent’s Bio Seemed Too Good to Be True. It Was.**\
+`Ian Roberts rose through the ranks of American education with talent, charm and a riveting back story. He was also hiding a shocking secret.`\
+https://nytimes.com/2025/10/05/us/des-moines-iowa-superintendent-ian-roberts-immigration-ice.html
+
+**Darleane Hoffman, Innovator in Nuclear Chemistry, Dies at 98**\
+`Hailed as one of the 50 most important women in science, she found ways to study rare radioactive isotopes and advanced the understanding of nuclear fission.`\
+https://nytimes.com/2025/10/05/science/darleane-hoffman-dead.html
+
+**Rodri to withdraw from Spain squad after injury in Brentford win**\
+`The 29-year-old missed the majority of the 2024-25 season due to an ACL injury and is still working his way back.`\
+https://nytimes.com/athletic/6691823/2025/10/05/rodri-injury-spain-manchester-city/
+
 **Wild's opening night roster all but set after three players cut Sunday**\
 `Young forwards Danila Yurov and Liam Ohgren and young defensemen Zeev Buium and David Jiricek appear to have made the team out of camp.`\
 https://nytimes.com/athletic/6691751/2025/10/05/wild-nhl-opening-night-roster/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6691262/2025/10/05/browns-vikings-london-score-resu
 **Trump Sends California Guard Troops to Portland, Ore., Newsom Says**\
 `The move follows a judge’s order on Saturday blocked the Oregon National Guard from deploying there. California’s governor said the state would sue.`\
 https://nytimes.com/2025/10/05/us/trump-national-guard-california-oregon-newsom.html
-
-**The Briefing: Brentford 0 Manchester City 1 – The unbeaten run goes on, but was it right to risk Rodri?**\
-`Pep Guardiola's side were initially slick and incisive, then fell back on solidity after the break to move three points from the top`\
-https://nytimes.com/athletic/6686461/2025/10/05/manchester-city-brentford-haaland-rodri/
-
-**'We made serious mistakes': Flick defends Barca system after 4-1 loss at Sevilla**\
-`The defeat marks only the second time Barcelona have lost two games in a row under Flick.`\
-https://nytimes.com/athletic/6691624/2025/10/05/barcelona-sevilla-hansi-flick/
-
-**Leader of U.K. Conservatives Vows to Deport 150,000 People a Year**\
-`Kemi Badenoch, whose party is sinking in polls, outlined plans resembling Trump policies against those accused of being in the United States illegally.`\
-https://nytimes.com/2025/10/05/world/europe/kemi-badenoch-uk-conservative-party-deportations.html
 

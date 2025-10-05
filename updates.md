@@ -1,3 +1,15 @@
+**The Superintendent’s Bio Seemed Too Good to Be True. It Was.**\
+`Ian Roberts rose through the ranks of American education with talent, charm and a riveting back story. He was also hiding a shocking secret.`\
+https://nytimes.com/2025/10/05/us/des-moines-iowa-superintendent-ian-roberts-immigration-ice.html
+
+**Darleane Hoffman, Innovator in Nuclear Chemistry, Dies at 98**\
+`Hailed as one of the 50 most important women in science, she found ways to study rare radioactive isotopes and advanced the understanding of nuclear fission.`\
+https://nytimes.com/2025/10/05/science/darleane-hoffman-dead.html
+
+**Rodri to withdraw from Spain squad after injury in Brentford win**\
+`The 29-year-old missed the majority of the 2024-25 season due to an ACL injury and is still working his way back.`\
+https://nytimes.com/athletic/6691823/2025/10/05/rodri-injury-spain-manchester-city/
+
 **Wild's opening night roster all but set after three players cut Sunday**\
 `Young forwards Danila Yurov and Liam Ohgren and young defensemen Zeev Buium and David Jiricek appear to have made the team out of camp.`\
 https://nytimes.com/athletic/6691751/2025/10/05/wild-nhl-opening-night-roster/
