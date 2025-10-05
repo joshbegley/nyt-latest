@@ -1,3 +1,7 @@
+**NHL waiver targets: The 8 biggest names available after final roster cuts**\
+`Let’s take a look at some of the most intriguing players available on the NHL waiver wire ahead of the regular season.`\
+https://nytimes.com/athletic/6689618/2025/10/05/nhl-waivers-2025-season-heinola/
+
 **Costco to Sell Popular Weight-Loss Drugs Ozempic and Wegovy**\
 `Costco members will pay $499 a month out of pocket, the same price offered at CVS and Walmart, and on the manufacturer’s direct-to-consumer website.`\
 https://nytimes.com/2025/10/05/health/ozempic-wegovy-costco.html

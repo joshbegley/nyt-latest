@@ -1,3 +1,7 @@
+**NHL waiver targets: The 8 biggest names available after final roster cuts**\
+`Let’s take a look at some of the most intriguing players available on the NHL waiver wire ahead of the regular season.`\
+https://nytimes.com/athletic/6689618/2025/10/05/nhl-waivers-2025-season-heinola/
+
 **Jets lose chance at end zone after pass hits Skycam, officials botch rule**\
 `When Justin Fields' pass was deflected and hit the Skycam, the play was erroneously called an incomplete pass.`\
 https://nytimes.com/athletic/6691863/2025/10/05/jets-skycam-botched-rule-officials-cowboys/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6691751/2025/10/05/wild-nhl-opening-night-roster/
 **NHL waiver tracker: Best players on the wire throughout 2025-26 preseason**\
 `Corey Pronman and Harman Dayal provide analysis of the top players placed on waivers as the regular season approaches.`\
 https://nytimes.com/athletic/6662091/2025/10/05/nhl-waivers-tracker-preseason-2025/
-
-**Heavy Rains in Nepal Cause Deadly Floods and Landslides**\
-`Nepal’s interim leaders are dealing with flooding that has killed dozens and snarled transportation.`\
-https://nytimes.com/video/world/asia/100000010440258/nepal-floods-rescues-rains.html
 

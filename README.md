@@ -1,3 +1,7 @@
+**Deputy Charged With Murder Knelt on Inmate’s Back, Affidavit Says**\
+`A recently released affidavit relates new details about the July death in a Kansas jail of a man with medical problems who was handcuffed and face down on a bunk.`\
+https://nytimes.com/2025/10/05/us/inmate-murder-kansas-adair-fatherley.html
+
 **NHL waiver targets: The 8 biggest names available after final roster cuts**\
 `Let’s take a look at some of the most intriguing players available on the NHL waiver wire ahead of the regular season.`\
 https://nytimes.com/athletic/6689618/2025/10/05/nhl-waivers-2025-season-heinola/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6691823/2025/10/05/rodri-injury-spain-manchester-ci
 **Wild's opening night roster all but set after three players cut Sunday**\
 `Young forwards Danila Yurov and Liam Ohgren and young defensemen Zeev Buium and David Jiricek appear to have made the team out of camp.`\
 https://nytimes.com/athletic/6691751/2025/10/05/wild-nhl-opening-night-roster/
-
-**NHL waiver tracker: Best players on the wire throughout 2025-26 preseason**\
-`Corey Pronman and Harman Dayal provide analysis of the top players placed on waivers as the regular season approaches.`\
-https://nytimes.com/athletic/6662091/2025/10/05/nhl-waivers-tracker-preseason-2025/
 
