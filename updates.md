@@ -1,3 +1,7 @@
+**Panthers-Dolphins takeaways: Down 17-0, Carolina rallies behind Rico Dowdle**\
+`The Carolina Panthers tied their franchise record for biggest comeback.`\
+https://nytimes.com/athletic/6692098/2025/10/05/dolphins-panthers-score-result-takeaways-nfl-2/
+
 **Chargers' Keenan Allen becomes fastest in NFL history to 1,000 catches**\
 `Allen reached the century mark in 159 games, surpassing the record of 167 games set by Hall of Fame receiver Marvin Harrison. `\
 https://nytimes.com/athletic/6670442/2025/10/05/chargers-keenan-allen-nfl-record-1000-catches/
