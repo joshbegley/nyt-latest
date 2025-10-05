@@ -1,3 +1,11 @@
+**For Mariners, September sprint hits an October obstacle**\
+`The Mariners, the team with the most one-run wins in the majors this season, lost by that margin in their first game of the playoffs.`\
+https://nytimes.com/athletic/6690730/2025/10/05/seattle-mariners-alds-julio-rodriguez/
+
+**Phillies' stars silent in Game 1 gut-punch, another blow to The Bank's October invincibility**\
+`They have lost four of their last five postseason games at home — a painful reality. It's the opponents who supply the dramatic homers now.`\
+https://nytimes.com/athletic/6690556/2025/10/05/phillies-stars-game-1-loss-dodgers/
+
 **Israel and Hamas Prepare for Talks on Trump’s Plan to End Gaza War**\
 `Indirect negotiations through mediators are planned for Monday in Egypt, but serious obstacles remain to any deal that would free hostages in Gaza in exchange for Palestinian prisoners.`\
 https://nytimes.com/2025/10/05/world/middleeast/trump-israel-hamas-gaza.html

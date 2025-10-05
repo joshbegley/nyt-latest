@@ -1,3 +1,11 @@
+**For Mariners, September sprint hits an October obstacle**\
+`The Mariners, the team with the most one-run wins in the majors this season, lost by that margin in their first game of the playoffs.`\
+https://nytimes.com/athletic/6690730/2025/10/05/seattle-mariners-alds-julio-rodriguez/
+
+**Phillies' stars silent in Game 1 gut-punch, another blow to The Bank's October invincibility**\
+`They have lost four of their last five postseason games at home — a painful reality. It's the opponents who supply the dramatic homers now.`\
+https://nytimes.com/athletic/6690556/2025/10/05/phillies-stars-game-1-loss-dodgers/
+
 **Israel and Hamas Prepare for Talks on Trump’s Plan to End Gaza War**\
 `Indirect negotiations through mediators are planned for Monday in Egypt, but serious obstacles remain to any deal that would free hostages in Gaza in exchange for Palestinian prisoners.`\
 https://nytimes.com/2025/10/05/world/middleeast/trump-israel-hamas-gaza.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6684032/2025/10/05/nfl-week-5-storylines-chiefs-aj-
 **The Grace That Gives Us Hope**\
 `There’s a way out of this, and people in despair are leading the way.`\
 https://nytimes.com/2025/10/05/opinion/hope-grace-michigan-shooting.html
-
-**Republicans Are Making Health Care Unaffordable for Young Americans**\
-`If Democrats don’t win the shutdown fight, millions of young Americans may lose coverage because of higher prices.`\
-https://nytimes.com/2025/10/05/opinion/shutdown-health-care-republicans-young.html
-
-**Sudden Pop Stardom After 50**\
-`My song went viral on TikTok, and then I was touring the world.`\
-https://nytimes.com/2025/10/05/opinion/princess-superstar-rock-aging-perfect.html
 
