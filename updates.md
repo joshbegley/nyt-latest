@@ -1,3 +1,11 @@
+**Leader of U.K. Conservatives Vows to Deport 150,000 People a Year**\
+`Kemi Badenoch, whose party is sinking in polls, outlined plans resembling Trump policies against those accused of being in the United States illegally.`\
+https://nytimes.com/2025/10/05/world/europe/kemi-badenoch-uk-conservative-party-deportations.html
+
+**Taylor Swift’s ‘Showgirl’ Promotional Film Collects $33 Million**\
+`“The Official Release Party of a Showgirl” drastically outperformed “The Smashing Machine,” a vehicle for Dwayne Johnson, known to fans as the Rock.`\
+https://nytimes.com/2025/10/05/business/media/taylor-swift-showgirl-film-box-office.html
+
 **Spain Sail Grand Prix: A shocking weekend for Australia as Britain tops the standings**\
 `Britain tops the overall SailGP standings after Dylan Fletcher's team secured a dramatic victory in the winner-takes-all final in Cadiz`\
 https://nytimes.com/athletic/6691115/2025/10/05/spain-sail-grand-prix-britain-win/
