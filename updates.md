@@ -1,3 +1,7 @@
+**Tadej Pogacar launches 75km solo attack to win European Championships road race**\
+`Pogacar is now the reigning champion at the Tour de France, the Worlds, and the European Championships`\
+https://nytimes.com/athletic/6691360/2025/10/05/tadej-pogacar-european-champion/
+
 **Defenseman Matt Grzelcyk signs 1-year deal with Blackhawks**\
 `Without an NHL contract after the offseason, defenseman Matt Grzelcyk knew he had to be strategic if he was going to earn another one.`\
 https://nytimes.com/athletic/6690649/2025/10/05/matt-grzelcyk-chicago-blackhawks-deal-analysis/

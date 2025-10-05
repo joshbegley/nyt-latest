@@ -1,3 +1,7 @@
+**Tadej Pogacar launches 75km solo attack to win European Championships road race**\
+`Pogacar is now the reigning champion at the Tour de France, the Worlds, and the European Championships`\
+https://nytimes.com/athletic/6691360/2025/10/05/tadej-pogacar-european-champion/
+
 **Defenseman Matt Grzelcyk signs 1-year deal with Blackhawks**\
 `Without an NHL contract after the offseason, defenseman Matt Grzelcyk knew he had to be strategic if he was going to earn another one.`\
 https://nytimes.com/athletic/6690649/2025/10/05/matt-grzelcyk-chicago-blackhawks-deal-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6689236/2025/10/05/martin-odegaard-injury-update-no
 **Creamy Tomato Spaghetti With Preserved Lemon**\
 `Something magical happens when preserved lemon and tomato are cooked together. In this quick and simple pasta, fragrant lemon permeates the tomato paste, creating a beautifully aromatic (and pantry-friendly) sauce with the addition of heavy cream.`\
 https://nytimes.com/video/dining/100000010435018/creamy-tomato-spaghetti-with-preserved-lemon.html
-
-**Timberwolves preseason debut positives: Rudy Gobert looks smooth, Bones Hyland looks sharp**\
-`The Timberwolves' preseason win Saturday against the Nuggets brought a few early positives and negatives to examine.`\
-https://nytimes.com/athletic/6690659/2025/10/05/rudy-gobert-timberwolves-bones-hyland-nba-preseason/
 

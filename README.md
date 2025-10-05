@@ -1,3 +1,7 @@
+**Newcastle's Hall injury 'not short term' - Howe**\
+`The 21-year-old previously missed five months from March due to a broken bone in his foot and was gradually being reintroduced into the side`\
+https://nytimes.com/athletic/6691401/2025/10/05/lewis-hall-injury-update-newcastle/
+
 **Tadej Pogacar launches 75km solo attack to win European Championships road race**\
 `Pogacar is now the reigning champion at the Tour de France, the Worlds, and the European Championships`\
 https://nytimes.com/athletic/6691360/2025/10/05/tadej-pogacar-european-champion/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/05/world/middleeast/trump-netanyahu-gaza-deal.html
 **Arsenal confirm Odegaard MCL injury, midfielder out of Norway squad**\
 `Odegaard came off in the 30th minute of Saturday's game against West Ham after colliding his left knee with Crysencio Summerville’s leg.`\
 https://nytimes.com/athletic/6689236/2025/10/05/martin-odegaard-injury-update-norway/
-
-**Creamy Tomato Spaghetti With Preserved Lemon**\
-`Something magical happens when preserved lemon and tomato are cooked together. In this quick and simple pasta, fragrant lemon permeates the tomato paste, creating a beautifully aromatic (and pantry-friendly) sauce with the addition of heavy cream.`\
-https://nytimes.com/video/dining/100000010435018/creamy-tomato-spaghetti-with-preserved-lemon.html
 
