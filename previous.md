@@ -1,3 +1,11 @@
+**NHL waiver tracker: Best players on the wire throughout 2025-26 preseason**\
+`Corey Pronman and Harman Dayal provide analysis of the top players placed on waivers as the regular season approaches.`\
+https://nytimes.com/athletic/6662091/2025/10/05/nhl-waivers-tracker-preseason-2025/
+
+**Heavy Rains in Nepal Cause Deadly Floods and Landslides**\
+`Nepal’s interim leaders are dealing with flooding that has killed dozens and snarled transportation.`\
+https://nytimes.com/video/world/asia/100000010440258/nepal-floods-rescues-rains.html
+
 **AP Top 25: Ohio State, Miami lead poll as Texas, PSU fall out**\
 `Preseason No. 1 Texas and No. 2 Penn State are out of the AP poll, while Ohio State, Miami, Oregon, Ole Miss and Texas A&M form the top 5.`\
 https://nytimes.com/athletic/6691623/2025/10/05/ap-top-25-poll-texas-penn-state-unranked/
@@ -11,7 +19,7 @@ https://nytimes.com/2025/10/05/world/europe/france-macron-cabinet.html
 https://nytimes.com/athletic/6691262/2025/10/05/browns-vikings-london-score-result-takeaways-nfl-international/
 
 **Trump Sends California Guard Troops to Portland, Ore., Newsom Says**\
-`The move follows a judge’s order on Saturday that blocked the Oregon National Guard from deploying there. California’s governor said the state would sue.`\
+`The move follows a judge’s order on Saturday blocked the Oregon National Guard from deploying there. California’s governor said the state would sue.`\
 https://nytimes.com/2025/10/05/us/trump-national-guard-california-oregon-newsom.html
 
 **The Briefing: Brentford 0 Manchester City 1 – The unbeaten run goes on, but was it right to risk Rodri?**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/05/world/europe/kemi-badenoch-uk-conservative-party-
 **Taylor Swift’s ‘Showgirl’ Promotional Film Collects $33 Million**\
 `“The Official Release Party of a Showgirl” drastically outperformed “The Smashing Machine,” a vehicle for Dwayne Johnson, known to fans as the Rock.`\
 https://nytimes.com/2025/10/05/business/media/taylor-swift-showgirl-film-box-office.html
-
-**Spain Sail Grand Prix: A shocking weekend for Australia as Britain tops the standings**\
-`Britain tops the overall SailGP standings after Dylan Fletcher's team secured a dramatic victory in the winner-takes-all final in Cadiz`\
-https://nytimes.com/athletic/6691115/2025/10/05/spain-sail-grand-prix-britain-win/
-
-**Postecoglou says he 'loves a fight' after Forest extend winless run**\
-`Forest suffered a 2-0 defeat at St. James' Park and have yet to win in seven games under Postecoglou.`\
-https://nytimes.com/athletic/6691397/2025/10/05/ange-postecoglou-nottingham-forest-newcastle/
 

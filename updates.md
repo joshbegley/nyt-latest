@@ -1,3 +1,15 @@
+**NHL waiver tracker: Best players on the wire throughout 2025-26 preseason**\
+`Corey Pronman and Harman Dayal provide analysis of the top players placed on waivers as the regular season approaches.`\
+https://nytimes.com/athletic/6662091/2025/10/05/nhl-waivers-tracker-preseason-2025/
+
+**Heavy Rains in Nepal Cause Deadly Floods and Landslides**\
+`Nepal’s interim leaders are dealing with flooding that has killed dozens and snarled transportation.`\
+https://nytimes.com/video/world/asia/100000010440258/nepal-floods-rescues-rains.html
+
+**Trump Sends California Guard Troops to Portland, Ore., Newsom Says**\
+`The move follows a judge’s order on Saturday blocked the Oregon National Guard from deploying there. California’s governor said the state would sue.`\
+https://nytimes.com/2025/10/05/us/trump-national-guard-california-oregon-newsom.html
+
 **AP Top 25: Ohio State, Miami lead poll as Texas, PSU fall out**\
 `Preseason No. 1 Texas and No. 2 Penn State are out of the AP poll, while Ohio State, Miami, Oregon, Ole Miss and Texas A&M form the top 5.`\
 https://nytimes.com/athletic/6691623/2025/10/05/ap-top-25-poll-texas-penn-state-unranked/
