@@ -1,3 +1,15 @@
+**Judge Blocks Trump’s Deployment of National Guard in Portland, Ore.**\
+`A federal judge appointed by President Trump issued a temporary restraining order, siding for now with Oregon and Portland lawyers who called federalizing the guard a presidential overreach.`\
+https://nytimes.com/2025/10/04/us/politics/judge-blocks-national-guard-portland.html
+
+**College Football Playoff 2025 projections: Penn State, Texas stumble out of bracket**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/10/04/college-football-playoff-bracket-projections-odds/
+
+**Cubs will try to keep proper perspective after blowout Game 1 loss: 'One won’t kill ya'**\
+`"The task remains the same, and the group’s confidence is incredibly high, even though today wasn't what we wanted."`\
+https://nytimes.com/athletic/6690002/2025/10/04/cubs-nlds-game-1-blowout-loss-brewers/
+
 **College Football Playoff 2025 projections: Where the bracket stands as Week 6 begins**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/10/04/college-football-playoff-bracket-projections-odds/
