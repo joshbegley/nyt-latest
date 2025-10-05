@@ -1,3 +1,11 @@
+**Yankees' problems vs. Blue Jays run deeper than Aaron Judge failing in clutch again**\
+`Judge's sixth-inning at-bat was a killer, but there were many culprits for the Yankees — and lingering questions about whom they can trust. `\
+https://nytimes.com/athletic/6690386/2025/10/04/yankees-alds-problems-blue-jays-aaron-judge/
+
+**Miami holds off FSU, sending message in ACC, CFP race: Takeaways**\
+`After relying heavily on its rushing attack through nonconference play, Miami opened up its passing game Saturday.`\
+https://nytimes.com/athletic/6690348/2025/10/04/miami-florida-state-score-result/
+
 **No. 1 Ohio State unleashes downfield attack in dismantling Minnesota: Key takeways**\
 `Ohio State ran away from Minnesota 42-3 behind Julian Sayin, Carnell Tate and a newly unleashed explosive passing attack.`\
 https://nytimes.com/athletic/6690429/2025/10/04/ohio-state-minnesota-score-result-football/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6690283/2025/10/04/ty-simpson-alabama-diego-pavia-v
 **If this Penn State team can't get it done under James Franklin, can any?**\
 `If this Penn State team can't get it done, what James Franklin-led PSU team can? `\
 https://nytimes.com/athletic/6690210/2025/10/04/penn-state-ucla-loss-james-franklin/
-
-**Napheesa Collier cancels meeting with Cathy Engelbert**\
-`Engelbert told reporters on Friday about the planned meeting as she discussed her hope to clear the air with Collier.`\
-https://nytimes.com/athletic/6690178/2025/10/04/napheesa-collier-cathy-engelbert-meeting-canceled/
-
-**In NLDS Game 1, Nico Hoerner's early error proves extremely costly for Cubs**\
-`The official time of Game 1 was 3 hours and 5 minutes, but by the first inning, it felt like “Game Over.”`\
-https://nytimes.com/athletic/6690147/2025/10/04/cubs-brewers-nlds-game-1-nico-hoerner-error/
 

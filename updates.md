@@ -1,3 +1,11 @@
+**Yankees' problems vs. Blue Jays run deeper than Aaron Judge failing in clutch again**\
+`Judge's sixth-inning at-bat was a killer, but there were many culprits for the Yankees — and lingering questions about whom they can trust. `\
+https://nytimes.com/athletic/6690386/2025/10/04/yankees-alds-problems-blue-jays-aaron-judge/
+
+**Miami holds off FSU, sending message in ACC, CFP race: Takeaways**\
+`After relying heavily on its rushing attack through nonconference play, Miami opened up its passing game Saturday.`\
+https://nytimes.com/athletic/6690348/2025/10/04/miami-florida-state-score-result/
+
 **No. 1 Ohio State unleashes downfield attack in dismantling Minnesota: Key takeways**\
 `Ohio State ran away from Minnesota 42-3 behind Julian Sayin, Carnell Tate and a newly unleashed explosive passing attack.`\
 https://nytimes.com/athletic/6690429/2025/10/04/ohio-state-minnesota-score-result-football/
