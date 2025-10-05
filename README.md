@@ -1,3 +1,11 @@
+**Giants-Saints takeaways: Jaxson Dart falters after fast start as N.Y. falls**\
+`Giants commit turnovers on five straight possessions as Saints rally for first win of season.`\
+https://nytimes.com/athletic/6691432/2025/10/05/giants-saints-score-result-takeaways-nfl/
+
+**Skydiving Instructor Dies After Being Separated From Student, Officials Say**\
+`The student, who had minor injuries, was rescued after being lodged in a tree in Nashville. The instructor was “presumed to have fallen from the sky without a parachute,” the police said.`\
+https://nytimes.com/2025/10/05/us/skydiving-instructor-dead-nashville.html
+
 **Rangers sack Martin after just one league win**\
 `"While all transition periods require some time, results have not met the club's expectations," a Rangers statement on Sunday night read.`\
 https://nytimes.com/athletic/6580815/2025/10/05/russell-martin-rangers-sacked/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/05/us/inmate-murder-kansas-adair-fatherley.html
 **NHL waiver targets: The 8 biggest names available after final roster cuts**\
 `Let’s take a look at some of the most intriguing players available on the NHL waiver wire ahead of the regular season.`\
 https://nytimes.com/athletic/6689618/2025/10/05/nhl-waivers-2025-season-heinola/
-
-**Jets lose chance at end zone after pass hits Skycam, officials botch rule**\
-`A Vikings' field-goal attempt in London also appeared to strike a camera wire but officials similarly did not rule the play dead.`\
-https://nytimes.com/athletic/6691863/2025/10/05/jets-skycam-botched-rule-officials-cowboys/
-
-**Phillies NLDS notes: Harrison Bader in play, in-zone whiffs, solving Blake Snell in Game 2**\
-`The Phillies saw a higher percentage of pitches in the strike zone in Game 1 than they have in almost every postseason game since 2022. `\
-https://nytimes.com/athletic/6691764/2025/10/05/phillies-dodgers-nlds-harrison-bader-blake-snell/
 
