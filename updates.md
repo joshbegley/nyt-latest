@@ -1,3 +1,7 @@
+**Deion Sanders believes his blood clots may have returned**\
+`Sanders, who coached part of Colorado's loss to TCU with one shoe on his left foot, said he has a doctor's appointment scheduled.`\
+https://nytimes.com/athletic/6690646/2025/10/05/deion-sanders-blood-clots-comments-colorado/
+
 **The New York Times in Print for Sunday, Oct. 5, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/05/todays-new-york-times
