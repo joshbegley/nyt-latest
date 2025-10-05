@@ -1,3 +1,11 @@
+**Giants-Saints takeaways: Jaxson Dart falters after fast start as N.Y. falls**\
+`Giants commit turnovers on five straight possessions as Saints rally for first win of season.`\
+https://nytimes.com/athletic/6691432/2025/10/05/giants-saints-score-result-takeaways-nfl/
+
+**Skydiving Instructor Dies After Being Separated From Student, Officials Say**\
+`The student, who had minor injuries, was rescued after being lodged in a tree in Nashville. The instructor was “presumed to have fallen from the sky without a parachute,” the police said.`\
+https://nytimes.com/2025/10/05/us/skydiving-instructor-dead-nashville.html
+
 **Rangers sack Martin after just one league win**\
 `"While all transition periods require some time, results have not met the club's expectations," a Rangers statement on Sunday night read.`\
 https://nytimes.com/athletic/6580815/2025/10/05/russell-martin-rangers-sacked/
