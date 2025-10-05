@@ -1,3 +1,7 @@
+**Chargers' Keenan Allen becomes fastest in NFL history to 1,000 catches**\
+`Allen reached the century mark in 159 games, surpassing the record of 167 games set by Hall of Fame receiver Marvin Harrison. `\
+https://nytimes.com/athletic/6670442/2025/10/05/chargers-keenan-allen-nfl-record-1000-catches/
+
 **Are the Ravens hopeless? Do the Jets or Giants have it worse? Our NFL experts' Week 5 takeaways**\
 `The Broncos registered an impressive road win in Philadelphia, and the AFC South suddenly looks like a competitive division.`\
 https://nytimes.com/athletic/6691685/2025/10/05/nfl-takeaways-week-5-scores-results/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6691942/2025/10/05/brewers-jackson-chourio-injury-n
 **Trump Renews Layoff Threats as Shutdown Accusations Continue to Fly**\
 `Senator Chuck Schumer and Speaker Mike Johnson each accused the other of not being “serious” about talks to end the shutdown as the government was closed for a fifth day.`\
 https://nytimes.com/2025/10/05/us/politics/trump-democrats-shutdown.html
-
-**Deputy Charged With Murder Knelt on Inmate’s Back, Affidavit Says**\
-`A recently released affidavit relates new details about the July death in a Kansas jail of a man with medical problems who was handcuffed and face down on a bunk.`\
-https://nytimes.com/2025/10/05/us/inmate-murder-kansas-adair-fatherley.html
 
