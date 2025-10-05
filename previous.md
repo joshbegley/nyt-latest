@@ -1,3 +1,7 @@
+**Tigers-Mariners Game 1 takeaways: Detroit comes back in extra-innings win**\
+`SEATTLE &#8211; Before Saturday night, T-Mobile Park had hosted only one playoff game in the past 24 years.`\
+https://nytimes.com/athletic/6690220/2025/10/05/tigers-mariners-game-1-score-results-takeaways-playoffs-mlb/
+
 **European football has never looked so English**\
 `Never before have so many English players appeared in major European leagues in one season - it is evidence of a growing trend`\
 https://nytimes.com/athletic/6676674/2025/10/05/english-players-europe-bellingham-quansah-morton/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6689878/2025/10/05/connections-sports-edition-hints
 **No Corrections: Oct. 5, 2025**\
 `No corrections appeared in print on Sunday, Oct. 5, 2025.`\
 https://nytimes.com/2025/10/05/pageoneplus/no-corrections-oct-5-2025.html
-
-**Rosenthal: In Division Series opener, Vladimir Guerrero Jr. finally gets his postseason moment**\
-`On the eve of Game 1, Blue Jays manager John Schneider told his superstar to 'play free.'`\
-https://nytimes.com/athletic/6690189/2025/10/04/vladimir-guerrero-blue-jays-alds/
 

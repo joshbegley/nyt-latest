@@ -1,3 +1,7 @@
+**Tigers-Mariners Game 1 takeaways: Detroit comes back in extra-innings win**\
+`SEATTLE &#8211; Before Saturday night, T-Mobile Park had hosted only one playoff game in the past 24 years.`\
+https://nytimes.com/athletic/6690220/2025/10/05/tigers-mariners-game-1-score-results-takeaways-playoffs-mlb/
+
 **European football has never looked so English**\
 `Never before have so many English players appeared in major European leagues in one season - it is evidence of a growing trend`\
 https://nytimes.com/athletic/6676674/2025/10/05/english-players-europe-bellingham-quansah-morton/
