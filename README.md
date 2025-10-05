@@ -1,3 +1,7 @@
+**SEC vibes: It just means more ... College Football Playoff chances**\
+`The SEC was wide open going into this weekend and is now even more so, with preseason favorite Texas taking another loss.`\
+https://nytimes.com/athletic/6691315/2025/10/05/sec-football-teams-week-6-rankings-vibes/
+
 **Newcastle's Hall injury 'not short term' - Howe**\
 `The 21-year-old previously missed five months from March due to a broken bone in his foot and was gradually being reintroduced into the side`\
 https://nytimes.com/athletic/6691401/2025/10/05/lewis-hall-injury-update-newcastle/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6686460/2025/10/05/newcastle-forest-guimaraes-howe/
 **Strong-Armed by Trump, Netanyahu Embraces Gaza Deal as a Personal Win**\
 `Prime Minister Benjamin Netanyahu of Israel took credit for an emerging agreement, but it was clear that President Trump was calling the shots.`\
 https://nytimes.com/2025/10/05/world/middleeast/trump-netanyahu-gaza-deal.html
-
-**Arsenal confirm Odegaard MCL injury, midfielder out of Norway squad**\
-`Odegaard came off in the 30th minute of Saturday's game against West Ham after colliding his left knee with Crysencio Summerville’s leg.`\
-https://nytimes.com/athletic/6689236/2025/10/05/martin-odegaard-injury-update-norway/
 
