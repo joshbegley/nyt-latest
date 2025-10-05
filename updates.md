@@ -1,3 +1,7 @@
+**Vannini: If this Penn State team can't get it done under James Franklin, can any?**\
+`If this Penn State team can't get it done, what James Franklin-led PSU team can? `\
+https://nytimes.com/athletic/6690210/2025/10/04/penn-state-ucla-loss-james-franklin/
+
 **Angels GM Perry Minasian lacks answers, accountability after another failed season**\
 `Minasian declined to assess his performance after another losing season: "That would be a question for somebody else.”`\
 https://nytimes.com/athletic/6690121/2025/10/04/angels-gm-perry-minasian-accountability/
