@@ -1,3 +1,11 @@
+**After Cristobal, Caines claim Florida — the Canes cement themselves as contenders**\
+`The Canes are now back-to-back state champs in Florida and are cementing themselves as national championship contenders. `\
+https://nytimes.com/athletic/6690692/2025/10/05/miami-florida-championship-contender/
+
+**What's with the NFL's uptick in blocked kicks? Coaches, players offer theories**\
+`The use of front-line starters on kick block teams and coaches diverting their focus toward dynamic kickoffs are two potential reasons.`\
+https://nytimes.com/athletic/6683327/2025/10/05/nfl-blocked-field-goals-theories/
+
 **Fire at U.K. Mosque Is Being Treated as Hate Crime, Police Say**\
 `The attack came at a time of heightened anxiety after a deadly terrorist attack at a synagogue in Manchester.`\
 https://nytimes.com/2025/10/05/world/europe/peacehaven-arson-mosque-england.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6689906/2025/10/05/red-wings-rookie-trio-preseason-
 **Oliver Kapanen, Joe Veleno are indicative of what's important to Canadiens this season**\
 `Martin St. Louis wants the Canadiens to stack ordinary actions on top of each other, and that's what Kapanen and Veleno have shown.`\
 https://nytimes.com/athletic/6690640/2025/10/05/oliver-kapanen-joe-veleno-canadiens/
-
-**Despite their strange journey, Zach McKinstry and the Tigers were built for games like this**\
-`Zach McKinstry, Keider Montero and many others combined to outmatch the Seattle Mariners' star power in ALDS Game 1.`\
-https://nytimes.com/athletic/6690713/2025/10/05/zach-mckinstry-detroit-tigers-alds/
-
-**NFL Week 5 top storylines: Dillon Gabriel's debut, Ravens' fading hopes, A.J. Brown's frustrations**\
-`Also worth looking forward to: Sunday's Seahawks-Buccaneers game featuring two of the top picks from 2018 draft at quarterback.`\
-https://nytimes.com/athletic/6684032/2025/10/05/nfl-week-5-storylines-chiefs-aj-brown-dillon-gabriel/
 

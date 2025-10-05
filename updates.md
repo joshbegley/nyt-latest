@@ -1,3 +1,7 @@
+**Fire at U.K. Mosque Is Being Treated as Hate Crime, Police Say**\
+`The attack came at a time of heightened anxiety after a deadly terrorist attack at a synagogue in Manchester.`\
+https://nytimes.com/2025/10/05/world/europe/peacehaven-arson-mosque-england.html
+
 **For Mariners, September sprint hits an October obstacle**\
 `The Mariners, the team with the most one-run wins in the majors this season, lost by that margin in their first game of the playoffs.`\
 https://nytimes.com/athletic/6690730/2025/10/05/seattle-mariners-alds-julio-rodriguez/
