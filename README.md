@@ -1,3 +1,7 @@
+**Heavy Rains in Nepal Cause Deadly Floods and Landslides**\
+`Nepal’s interim leaders are dealing with flooding that has killed dozens and snarled transportation.`\
+https://nytimes.com/video/world/asia/100000010440258/nepal-floods-rescues-rains.html
+
 **AP Top 25: Ohio State, Miami lead poll as Texas, PSU fall out**\
 `Preseason No. 1 Texas and No. 2 Penn State are out of the AP poll, while Ohio State, Miami, Oregon, Ole Miss and Texas A&M form the top 5.`\
 https://nytimes.com/athletic/6691623/2025/10/05/ap-top-25-poll-texas-penn-state-unranked/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/05/business/media/taylor-swift-showgirl-film-box-off
 **Spain Sail Grand Prix: A shocking weekend for Australia as Britain tops the standings**\
 `Britain tops the overall SailGP standings after Dylan Fletcher's team secured a dramatic victory in the winner-takes-all final in Cadiz`\
 https://nytimes.com/athletic/6691115/2025/10/05/spain-sail-grand-prix-britain-win/
-
-**Postecoglou says he 'loves a fight' after Forest extend winless run**\
-`Forest suffered a 2-0 defeat at St. James' Park and have yet to win in seven games under Postecoglou.`\
-https://nytimes.com/athletic/6691397/2025/10/05/ange-postecoglou-nottingham-forest-newcastle/
 
