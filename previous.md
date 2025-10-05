@@ -1,3 +1,7 @@
+**Craig Counsell should've been cheered by Brewers fans in Game 1**\
+`Starting a pitcher on three days' rest was the nicest belated apology gift that Counsell could’ve delivered to Milwaukee.`\
+https://nytimes.com/athletic/6690022/2025/10/04/cubs-brewers-craig-counsell-nlds-game-1/
+
 **Nebraska-Michigan State takeaways: Huskers nab first Big Ten win on late surge**\
 `Nebraska scored 24 consecutive late points to beat Michigan State 38-27.`\
 https://nytimes.com/athletic/6690080/2025/10/04/nebraska-michigan-state-score-result-football/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6689977/2025/10/04/yankees-blue-jays-game-1-score-r
 **Notre Dame defense arrives as Irish shut down Boise State to win third straight**\
 `This was the kind of performance Chris Ash and the Irish needed, with USC coming to South Bend in two weeks.`\
 https://nytimes.com/athletic/6689789/2025/10/04/notre-dame-boise-state-score-result/
-
-**UCLA shocks No. 7 Penn State for first win after 0-4 start**\
-`Previously winless UCLA shocked No. 7 Penn State 42-37 on Saturday afternoon at the Rose Bowl behind Nico Iamaleava's five touchdowns.`\
-https://nytimes.com/athletic/6689923/2025/10/04/ucla-penn-state-score-result-football/
 
