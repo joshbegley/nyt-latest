@@ -1,3 +1,7 @@
+**Leader of U.K. Conservatives Vows to Deport 150,000 People a Year**\
+`Kemi Badenoch, whose party is sinking in polls, outlined plans resembling Trump policies against those accused of being in the United States illegally.`\
+https://nytimes.com/2025/10/05/world/europe/kemi-badenoch-uk-conservative-party-deportations.html
+
 **Taylor Swift’s ‘Showgirl’ Promotional Film Collects $33 Million**\
 `“The Official Release Party of a Showgirl” drastically outperformed “The Smashing Machine,” a vehicle for Dwayne Johnson, known to fans as the Rock.`\
 https://nytimes.com/2025/10/05/business/media/taylor-swift-showgirl-film-box-office.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6691360/2025/10/05/tadej-pogacar-european-champion/
 **Defenseman Matt Grzelcyk signs 1-year deal with Blackhawks**\
 `Without an NHL contract after the offseason, defenseman Matt Grzelcyk knew he had to be strategic if he was going to earn another one.`\
 https://nytimes.com/athletic/6690649/2025/10/05/matt-grzelcyk-chicago-blackhawks-deal-analysis/
-
-**Both Parties Are Resigned to Deadlock as Shutdown Takes Hold**\
-`Republicans, who hold a governing trifecta, have adopted a mostly passive stance while Democrats dig in for a fight, with both feeling they have the political upper hand.`\
-https://nytimes.com/2025/10/05/us/politics/parties-deadlock-shutdown.html
 
