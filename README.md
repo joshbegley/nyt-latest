@@ -1,3 +1,7 @@
+**FA investigating after objects thrown at Spurs players during win at Leeds**\
+`In separate incidents, Spurs duo Pedro Porro and Mohammed Kudus appeared to be targeted with objects thrown from the Elland Road home end.`\
+https://nytimes.com/athletic/6690927/2025/10/05/tottenham-leeds-fans-investigation/
+
 **McLaren's latest F1 title was utterly dominant — and more records await**\
 `By every metric, McLaren has secured an impressive title-winning season, rivaling Red Bull's recent runs`\
 https://nytimes.com/athletic/6640850/2025/10/05/mclaren-2025-f1-constructors-title-by-the-numbers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6690933/2025/10/05/amanda-anisimova-linda-noskova-c
 **The Pulse: More than your average upset**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6690443/2025/10/05/penn-states-loss-at-ucla-was-more-than-your-average-upset/
-
-**Fantasy football Week 5 inactives: Bucky Irving, Terry McLaurin out**\
-`Fantasy managers are in tears after Malik Nabers and Tyreek Hill were lost for the season. Lamar Jackson is likely out too. And who else?`\
-https://nytimes.com/athletic/6686846/2025/10/05/fantasy-football-week-5-inactives-bucky-irving-terry-mclaurin-out/
 
