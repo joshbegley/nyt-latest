@@ -1,3 +1,7 @@
+**Jannik Sinner retires from Shanghai Masters match with right leg issue**\
+`The defending champion could not finish his match against Tallon Griekspoor after struggling with cramps in brutal humidity.`\
+https://nytimes.com/athletic/6691493/2025/10/05/jannik-sinner-shanghai-masters-injury-out/
+
 **SEC vibes: It just means more ... College Football Playoff chances**\
 `The SEC was wide open going into this weekend and is now even more so, with preseason favorite Texas taking another loss.`\
 https://nytimes.com/athletic/6691315/2025/10/05/sec-football-teams-week-6-rankings-vibes/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/05/dining/one-pot-beans-greens-and-grains-citrusy-mi
 **The Briefing: Newcastle 2 Forest 0 – What did Guimaraes strike say about attacking threat? How has season started?**\
 `Chris Waugh and George Caulkin analyse the talking points from the game at St James' Park`\
 https://nytimes.com/athletic/6686460/2025/10/05/newcastle-forest-guimaraes-howe/
-
-**Strong-Armed by Trump, Netanyahu Embraces Gaza Deal as a Personal Win**\
-`Prime Minister Benjamin Netanyahu of Israel took credit for an emerging agreement, but it was clear that President Trump was calling the shots.`\
-https://nytimes.com/2025/10/05/world/middleeast/trump-netanyahu-gaza-deal.html
 

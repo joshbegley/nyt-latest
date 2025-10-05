@@ -1,3 +1,7 @@
+**Jannik Sinner retires from Shanghai Masters match with right leg issue**\
+`The defending champion could not finish his match against Tallon Griekspoor after struggling with cramps in brutal humidity.`\
+https://nytimes.com/athletic/6691493/2025/10/05/jannik-sinner-shanghai-masters-injury-out/
+
 **SEC vibes: It just means more ... College Football Playoff chances**\
 `The SEC was wide open going into this weekend and is now even more so, with preseason favorite Texas taking another loss.`\
 https://nytimes.com/athletic/6691315/2025/10/05/sec-football-teams-week-6-rankings-vibes/
