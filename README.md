@@ -1,3 +1,7 @@
+**Panthers-Dolphins takeaways: Down 17-0, Carolina rallies behind Rico Dowdle**\
+`The Carolina Panthers tied their franchise record for biggest comeback.`\
+https://nytimes.com/athletic/6692098/2025/10/05/dolphins-panthers-score-result-takeaways-nfl-2/
+
 **Chargers' Keenan Allen becomes fastest in NFL history to 1,000 catches**\
 `Allen reached the century mark in 159 games, surpassing the record of 167 games set by Hall of Fame receiver Marvin Harrison. `\
 https://nytimes.com/athletic/6670442/2025/10/05/chargers-keenan-allen-nfl-record-1000-catches/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6691689/2025/10/05/texans-ravens-score-result-takea
 **Brewers' Jackson Chourio uncertain for Game 2, reliever Aaron Ashby to open**\
 `The MRI results on Chourio's hamstring were "inconclusive" according to Milwaukee manager Pat Murphy.`\
 https://nytimes.com/athletic/6691942/2025/10/05/brewers-jackson-chourio-injury-nlds/
-
-**Trump Renews Layoff Threats as Shutdown Accusations Continue to Fly**\
-`Senator Chuck Schumer and Speaker Mike Johnson each accused the other of not being “serious” about talks to end the shutdown as the government was closed for a fifth day.`\
-https://nytimes.com/2025/10/05/us/politics/trump-democrats-shutdown.html
 
