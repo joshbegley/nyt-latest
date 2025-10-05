@@ -1,3 +1,7 @@
+**Moise Bombito injury: What comes next for Canada?**\
+`Canada’s World Cup hopes were dealt a severe blow as star centre-back Moise Bombito suffered a fractured left tibia on Sunday.`\
+https://nytimes.com/athletic/6692162/2025/10/05/moise-bombito-injury-what-comes-next-for-canada/
+
 **Dodger Details: A different angle on Teoscar Hernández's homer, a pitching plan and more**\
 `Andy Pages denied that he had been relaying signals to Hernández during his pivotal Game 1 at-bat.`\
 https://nytimes.com/athletic/6692074/2025/10/05/dodgers-teoscar-hernandez-home-run-andy-pages-nlds-phillies/
