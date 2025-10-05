@@ -1,3 +1,7 @@
+**10-Minute Challenge: A Modern Master Takes Us Inside an Artist’s Studio**\
+`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
+https://nytimes.com/interactive/2025/10/05/upshot/ten-minute-challenge-marshall.html
+
 **While Dillon Gabriel provided hope, Browns' loss to Vikings felt all too familiar**\
 `Cleveland's offense appeared to get a boost with the rookie QB behind center, but the team again failed to reach the 20-point mark. `\
 https://nytimes.com/athletic/6692191/2025/10/05/browns-loss-vikings-dillon-gabriel/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6692016/2025/10/05/justin-jefferson-vikings-browns-
 **Drones, Democracy and the War in Ukraine**\
 `Back from a trip to Ukraine, our international editor Philip Pan explains how this is a new kind of war.`\
 https://nytimes.com/2025/10/05/world/ukaine-russia-drones-war-ceasefire-gaza.html
-
-**Eagles vs. Broncos takeaways: Bo Nix, Denver hand Philadelphia its first loss**\
-`The Broncos’ second-year quarterback was tied in knots by Vic Fangio’s defense for three quarters. Then, Nix came alive.`\
-https://nytimes.com/athletic/6691825/2025/10/05/broncos-eagles-score-result-takeaways-nfl/
 
