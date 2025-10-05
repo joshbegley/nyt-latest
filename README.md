@@ -1,3 +1,23 @@
+**Israel at War With Itself**\
+`The longest war of an endless Israeli-Palestinian conflict has come to challenge Israel’s own image and understanding of itself.`\
+https://nytimes.com/2025/10/05/world/middleeast/israel-challenges-gaza-war.html
+
+**New York City Is Full of Green Space. You Just Have to Find It.**\
+`The city’s millions of residents are crammed together, competing for space to live, play, work and rest.`\
+https://nytimes.com/2025/10/05/nyregion/new-york-city-green-space.html
+
+**‘As I Contemplated What to Do Next, I Heard a Voice Behind Me’**\
+`Passing a baton in an urban relay race, some familiar footwear and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/10/05/nyregion/metropolitan-diary.html
+
+**A Pacific Gateway Shows the Kremlin’s Grip on Russia’s Vast Expanse**\
+`In a country where power is highly centralized, Moscow sets the tone for Vladivostok, 4,000 miles away, complicating longstanding ambitions to make it a trading powerhouse.`\
+https://nytimes.com/2025/10/05/world/europe/vladivostok-moscow-kremlin-rule.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/10/05/crosswords/spelling-bee-forum.html
+
 **A Tel-tale sign: Is goal the first step in Mathys coming good for Tottenham?**\
 `Mathys Tel has not hit his best form at Tottenham so far, but his goal against Leeds United shows he could become a crucial player`\
 https://nytimes.com/athletic/6689404/2025/10/05/mathys-tel-goal-tottenham-leeds/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/10/05/opinion/israel-gaza-hostages-october-7-anniversar
 **The West Is Lost**\
 `Loss has become a pervasive condition of life in Europe and America.`\
 https://nytimes.com/2025/10/05/opinion/west-europe-america-lost.html
-
-**Dodgers, Teoscar Hernández silence Phillies crowd to take NLDS Game 1**\
-`Hitting coach Aaron Bates warned the Dodgers about the crowd noise and told them: "Just build momentum for yourself."`\
-https://nytimes.com/athletic/6690495/2025/10/05/dodgers-teoscar-hernandez-phillies-nlds/
-
-**With Odegaard injured, Zubimendi made all the difference for Arsenal**\
-`In one of his best performances in an Arsenal shirt so far, Zubimendi quickly went about making a difference after his introduction`\
-https://nytimes.com/athletic/6689625/2025/10/05/arsenal-west-ham-zubimendi/
-
-**Manchester United ease pressure with win, yet Amorim sticks with brutal honesty policy**\
-`Beating Sunderland has eased the pressure on Manchester United head coach Amorim - but being he still admitted to 'frustrations'...`\
-https://nytimes.com/athletic/6689623/2025/10/05/manchester-united-sunderland-amorim-honesty/
-
-**Leeds are benefitting from Calvert-Lewin leading the line – but goals are needed**\
-`The former Everton forward has been so effective in making Farke’s system work at Leeds, even if he should have more than one goal by now`\
-https://nytimes.com/athletic/6689297/2025/10/05/leeds-dominic-calvert-lewin-analysis/
-
-**Tigers-Mariners Game 1 takeaways: Detroit comes back in extra-innings win**\
-`The Mariners now have to deal with Cy Young favorite Tarik Skubal in Game 2 on Sunday.`\
-https://nytimes.com/athletic/6690220/2025/10/05/tigers-mariners-game-1-score-results-takeaways-playoffs-mlb/
 
