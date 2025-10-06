@@ -1,3 +1,7 @@
+**Connor McDavid agrees to extension with Oilers: Sources**\
+`McDavid’s extension will kick in at the start of the 2026-27 campaign, keeping the 28-year-old megastar in Edmonton.`\
+https://nytimes.com/athletic/6474073/2025/10/06/connor-mcdavid-contract-oilers-extension/
+
 **Jury Fails to Reach a Verdict in Retrial of Man Accused in 1993 Murder**\
 `Brian Scott Lorenz’s conviction in the strangling of Deborah Meindl in a Buffalo suburb was overturned in 2023, but prosecutors had forged ahead with a new trial.`\
 https://nytimes.com/2025/10/06/nyregion/buffalo-murder-verdict-meindl.html

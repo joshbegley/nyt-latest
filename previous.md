@@ -1,3 +1,7 @@
+**Connor McDavid agrees to extension with Oilers: Sources**\
+`McDavid’s extension will kick in at the start of the 2026-27 campaign, keeping the 28-year-old megastar in Edmonton.`\
+https://nytimes.com/athletic/6474073/2025/10/06/connor-mcdavid-contract-oilers-extension/
+
 **Jury Fails to Reach a Verdict in Retrial of Man Accused in 1993 Murder**\
 `Brian Scott Lorenz’s conviction in the strangling of Deborah Meindl in a Buffalo suburb was overturned in 2023, but prosecutors had forged ahead with a new trial.`\
 https://nytimes.com/2025/10/06/nyregion/buffalo-murder-verdict-meindl.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/europe/100000010441598/gisele-pelicot-france-rap
 **How Elon Musk Is Bringing Sexy A.I. Chatbots to the Mainstream**\
 `In July, the billionaire’s A.I. company introduced two sexually explicit chatbots, pushing a new version of intimacy.`\
 https://nytimes.com/2025/10/06/technology/elon-musk-grok-sexy-chatbot.html
-
-**NFL Week 6 odds, spreads: Chiefs-Lions and an NFC reckoning**\
-`Which teams are the biggest favorites and underdogs for Week 6?`\
-https://nytimes.com/athletic/6693848/2025/10/06/nfl-week-6-odds-spreads-chiefs-lions/
 
