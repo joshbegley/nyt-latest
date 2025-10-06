@@ -1,3 +1,11 @@
+**U.S. v. Google: What Each Side Argued for Fixing Google’s Ad Tech Monopoly**\
+`The Justice Department and Google wrapped up a two-week hearing that could have a major effect on online advertising.`\
+https://nytimes.com/2025/10/06/technology/google-ad-tech-arguments.html
+
+**Prosecutors add felony assault charge against Sanchez over alleged attack**\
+`Prosecutors said the additional felony charge was due to the alleged assault “involving serious bodily injury.”`\
+https://nytimes.com/athletic/6693931/2025/10/06/mark-sanchez-felony-charges/
+
 **Fire Consumes the Home of a South Carolina State Judge**\
 `Three people, who had to be rescued by kayak, were injured. The cause of the fire is under investigation.`\
 https://nytimes.com/2025/10/06/us/politics/goodstein-house-fire-south-carolina-judge-senator.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/06/world/europe/russia-trump-putin-nuclear-caps.html
 **Wayne Gretzky signs multi-year extension with Turner Sports**\
 `Gretzky joined Turner Sports as a studio analyst for the 2021-22 season, the first of a seven-year broadcast deal with the NHL.`\
 https://nytimes.com/athletic/6693915/2025/10/06/wayne-gretzky-extension-turner-sports-media/
-
-**Taylor Swift Keeps Getting Bigger. Can the Music Keep Up?**\
-`“The Life of a Showgirl” dominated streaming, conversation and movie theaters this weekend. But reaction to the album — especially its lyrics — was mixed.`\
-https://nytimes.com/2025/10/06/arts/music/taylor-swift-the-life-of-a-showgirl-analysis.html
-
-**Heisman Trophy odds: Top group of favorites starting to form**\
-`Miami's big win at Florida State vaulted Carson Beck back into the favorite slot for the Heisman Trophy.`\
-https://nytimes.com/athletic/6691693/2025/10/06/heisman-trophy-odds-carson-beck-dante-moore/
 
