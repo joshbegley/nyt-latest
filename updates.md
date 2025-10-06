@@ -1,3 +1,7 @@
+**ICE Protests Continue as Trump Pushes to Deploy National Guard**\
+`The Trump administration pushed to deploy National Guard troops in Democrat-led cities as protesters gathered outside of the Immigration and Customs Enforcement building in Portland, Ore.`\
+https://nytimes.com/video/us/100000010440957/portland-national-guard-trump-chicago.html
+
 **Can Fashion Still Be Provocative?**\
 `Duran Lantink’s ridiculous debut at Jean Paul Gaultier raises the question.`\
 https://nytimes.com/2025/10/06/style/jean-paul-gaultier-duran-lantink.html
