@@ -1,3 +1,7 @@
+**As two-time champion Panthers enter uncharted territory, fatigue is no match for fun**\
+`It's been over 40 years since a team last made four consecutive Stanley Cup finals. The Panthers are determined to reset that counter.`\
+https://nytimes.com/athletic/6691500/2025/10/06/florida-panthers-nhl-stanley-cup-fatigue-2025-26/
+
 **Giancarlo Stanton’s 'kick in the ass' team meeting sparked Yankees. Can his message fuel them again?**\
 `In the Aug. 4 meeting, Stanton laid into his teammates and challenged them to play up to their talent. Can they channel his message again? `\
 https://nytimes.com/athletic/6692887/2025/10/06/giancarlo-stanton-yankees-team-meeting-texas-mlb-playoffs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/06/podcasts/the-headlines/supreme-court-llinois-trum
 **As the Tigers come home, can the lessons of a long voyage carry them through the ALDS?**\
 `With the series tied at one game apiece, the Tigers will return home for the first time in 14 days for Game 3 of the ALDS.`\
 https://nytimes.com/athletic/6693064/2025/10/06/detroit-tigers-alds-lessons-seattle-mariners/
-
-**One burning question for each NBA team as preseason heats up**\
-`With every squad, there's at least one thing that has us scratching our heads as the regular season looms.`\
-https://nytimes.com/athletic/6658580/2025/10/06/nba-preseason-burning-questions-giannis-ja-morant/
 
