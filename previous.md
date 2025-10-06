@@ -1,3 +1,7 @@
+**Panthers' latest Stanley Cup ring features 450 gems, a rat and a whole lot of palm trees**\
+`The Panthers received their rings in a private ceremony the day before the 2025-26 season begins.`\
+https://nytimes.com/athletic/6687538/2025/10/06/florida-panthers-stanley-cup-ring-ceremony/
+
 **Cardinals collapse vs. Titans 'worst Survivor beat of all time,' good for sportsbooks**\
 `The improbable Titans comeback led to a brutal day for both Survivor players who picked the Cardinals and bettors who backed them.`\
 https://nytimes.com/athletic/6694487/2025/10/06/cardinals-collapse-titans-survivor-nfl-week-5-betting/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6695067/2025/10/06/sabres-depth-chart-analysis-colt
 **Inside the Connor McDavid extension: Months of negotiations that ended with a shocking phone call**\
 `Even after months of talks between the Oilers and McDavid's camp, the team didn't know what he wanted in his contract until Monday morning.`\
 https://nytimes.com/athletic/6695072/2025/10/06/oilers-connor-mcdavid-extension-negotiations/
-
-**Dogs Killed 2-Year-Old at Day Care Center While Owner Slept, Police Say**\
-`The owner of the unlicensed facility in Valdosta, Ga., was charged with second-degree murder, the authorities said.`\
-https://nytimes.com/2025/10/06/us/illegal-daycare-center-child-killed-dog-attack.html
 

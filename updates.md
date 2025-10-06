@@ -1,3 +1,7 @@
+**Panthers' latest Stanley Cup ring features 450 gems, a rat and a whole lot of palm trees**\
+`The Panthers received their rings in a private ceremony the day before the 2025-26 season begins.`\
+https://nytimes.com/athletic/6687538/2025/10/06/florida-panthers-stanley-cup-ring-ceremony/
+
 **Cardinals collapse vs. Titans 'worst Survivor beat of all time,' good for sportsbooks**\
 `The improbable Titans comeback led to a brutal day for both Survivor players who picked the Cardinals and bettors who backed them.`\
 https://nytimes.com/athletic/6694487/2025/10/06/cardinals-collapse-titans-survivor-nfl-week-5-betting/

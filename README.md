@@ -1,3 +1,7 @@
+**Federal agents accuse a Chicago man of offering money to kill a Border Patrol official.**\
+`By Mitch Smith`\
+https://nytimes.com/live/2025/10/06/us/national-guard-trump-oregon-chicago/federal-agents-accuse-a-chicago-man-of-offering-money-to-kill-a-border-patrol-official
+
 **Panthers' latest Stanley Cup ring features 450 gems, a rat and a whole lot of palm trees**\
 `The Panthers received their rings in a private ceremony the day before the 2025-26 season begins.`\
 https://nytimes.com/athletic/6687538/2025/10/06/florida-panthers-stanley-cup-ring-ceremony/
@@ -10,8 +14,8 @@ https://nytimes.com/athletic/6694487/2025/10/06/cardinals-collapse-titans-surviv
 `Experts reassessed the damage from a tornado that left three people dead in June, and gave it the strongest possible rating on the tornado scale.`\
 https://nytimes.com/2025/10/06/weather/enderlin-nd-tornado-ef5.html
 
-**Trump Blinks, Saying for First Time He’s Willing to Negotiate on Shutdown**\
-`President Trump said he was open to making “the right deal.” Senator Chuck Schumer, the minority leader, denied any talks were underway.`\
+**Trump Raises the Possibility of a Shutdown Deal, Then Walks It Back**\
+`President Trump said he was open to making “the right deal” on health care with Democrats. Senator Chuck Schumer, the minority leader, denied any talks were underway.`\
 https://nytimes.com/2025/10/06/us/politics/trump-democrats-negotiation-shutdown.html
 
 **How to watch Mariners at Tigers: Game 3 Time, TV, streaming**\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/10/06/us/national-guard-trump-oregon-chicago/trump
 **Sabres depth chart analysis: Colten Ellis claimed off waivers amid injury, goalie issues**\
 `The Sabres are already dealing with a bit of adversity ahead of their regular-season opener on Thursday night.`\
 https://nytimes.com/athletic/6695067/2025/10/06/sabres-depth-chart-analysis-colten-ellis/
-
-**Inside the Connor McDavid extension: Months of negotiations that ended with a shocking phone call**\
-`Even after months of talks between the Oilers and McDavid's camp, the team didn't know what he wanted in his contract until Monday morning.`\
-https://nytimes.com/athletic/6695072/2025/10/06/oilers-connor-mcdavid-extension-negotiations/
 
