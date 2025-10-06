@@ -1,3 +1,7 @@
+**Miami, South Carolina cancel home-and-home series scheduled for 2026-27**\
+`The schools, which mutually cancelled, scheduled the series in 2019, before either of their conferences considered adding a ninth game.`\
+https://nytimes.com/athletic/6694744/2025/10/06/miami-south-carolina-ncaa-football-home-series-cancel/
+
 **Shutdown Politics Has G.O.P. Singing Government’s Praises**\
 `As Republicans try to pin blame for shutdown damage on Democrats, they are hailing a federal bureaucracy they normally bash as wasteful and overreaching.`\
 https://nytimes.com/2025/10/06/us/politics/shutdown-republicans-trump-government.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6691456/2025/10/06/ny-rangers-roster-lineup-thought
 **How to watch North Carolina State at Notre Dame: Time, TV, streaming**\
 `Find out how to watch the North Carolina State Wolfpack play the Notre Dame Fighting Irish, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6694715/2025/10/06/north-carolina-state-vs-notre-dame-stream-how-to-watch-oct-11/
-
-**How to watch Washington State at Ole Miss: Time, TV, streaming**\
-`Find out how to watch the Washington State Cougars play the Ole Miss Rebels, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6694712/2025/10/06/washington-state-vs-ole-miss-stream-how-to-watch-oct-11/
 

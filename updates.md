@@ -1,3 +1,7 @@
+**Shutdown Politics Has G.O.P. Singing Government’s Praises**\
+`As Republicans try to pin blame for shutdown damage on Democrats, they are hailing a federal bureaucracy they normally bash as wasteful and overreaching.`\
+https://nytimes.com/2025/10/06/us/politics/shutdown-republicans-trump-government.html
+
 **A Marine Park in Canada Warns That It May Euthanize 30 Beluga Whales**\
 `The government has barred Marineland from shipping its whales to an aquarium in China so the park is threatening to put the whales down.`\
 https://nytimes.com/2025/10/06/world/canada/marineland-canada-beluga-whales.html
