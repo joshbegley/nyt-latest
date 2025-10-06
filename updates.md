@@ -1,3 +1,11 @@
+**Arizona Cardinals find one of the worst possible ways to lose a football game**\
+`Players don't rank their worst losses, but after Sunday's collapse against Tennessee, Arizona QB Kyler Murray said this might top the list.`\
+https://nytimes.com/athletic/6692795/2025/10/05/arizona-cardinals-tennessee-titans-emari-demercado-fumble/
+
+**Chargers aren't playing like a Jim Harbaugh-coached team: 'Sloppy errors'**\
+`"We're a good football team," Harbaugh said after a 27-10 loss. "We're not good enough in some of the areas that you need to win games."`\
+https://nytimes.com/athletic/6692877/2025/10/05/chargers-jim-harbaugh-loss-commanders/
+
 **What will the Bengals do with Jake Browning?**\
 `The backup QB is 0-3 in starts since Joe Burrow's toe injury with devastating turnovers piling up each week.`\
 https://nytimes.com/athletic/6692895/2025/10/05/bengals-jake-browning-lions-zac-taylor/
