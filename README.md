@@ -1,3 +1,7 @@
+**What will it take for the Ducks to make the playoffs?**\
+`Here are the five major things that will have to break the Ducks' way in order for them to end their seven-year postseason drought.`\
+https://nytimes.com/athletic/6692143/2025/10/06/ducks-playoffs-quenneville-season/
+
 **A'ja Wilson is on another level as Aces step closer to another WNBA title**\
 `The MVP flexed her might in Game 2 as the Aces took a commanding 2-0 lead in this best-of-seven series.`\
 https://nytimes.com/athletic/6692340/2025/10/06/aja-wilson-aces-mercury-wnba-finals-game-2/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/10/06/us/trump-news
 **Ranking ACC men's basketball teams: Are Duke, Louisville in a class of their own?**\
 `After getting just four teams in the NCAA Tournament last season, are things looking up for ACC basketball?`\
 https://nytimes.com/athletic/6692152/2025/10/06/acc-basketball-preview-rankings-duke-louisville/
-
-**Q&A: Ryan Nugent-Hopkins, the Oilers' constant, says there's 'urgency' to win**\
-`Nugent-Hopkins spoke to The Athletic about his Oilers legacy, how to be effective and finding the ultimate team success.`\
-https://nytimes.com/athletic/6692290/2025/10/06/ryan-nugent-hopkins-oilers-interview/
 
