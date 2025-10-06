@@ -1,3 +1,15 @@
+**NFL Week 6 odds, spreads: Chiefs-Lions and an NFC reckoning**\
+`Which teams are the biggest favorites and underdogs for Week 6?`\
+https://nytimes.com/athletic/6693848/2025/10/06/nfl-week-6-odds-spreads-chiefs-lions/
+
+**Teach Triangular Numbers With Steven Strogatz and The New York Times**\
+`Invite students to uncover how a centuries-old math puzzle helped us see inside the human brain.`\
+https://nytimes.com/2025/10/06/learning/lesson-plans/teach-triangular-numbers-with-steven-strogatz-and-the-new-york-times.html
+
+**Harvard Students Skip Class and Still Get High Grades, Faculty Say**\
+`Many students don’t do the reading and don’t speak up in class, according to a report. Now, professors are trying to change a campus culture they say hurts achievement and stifles speech.`\
+https://nytimes.com/2025/10/06/us/harvard-students-absenteeism.html
+
 **Kremlin Welcomes Trump’s Blessing of Proposal to Extend Nuclear Caps**\
 `President Trump said a Russian proposal to extend by one year the limits on long-range nuclear weapons sounded “like a good idea to me.”`\
 https://nytimes.com/2025/10/06/world/europe/russia-trump-putin-nuclear-caps.html

@@ -1,3 +1,15 @@
+**NFL Week 6 odds, spreads: Chiefs-Lions and an NFC reckoning**\
+`Which teams are the biggest favorites and underdogs for Week 6?`\
+https://nytimes.com/athletic/6693848/2025/10/06/nfl-week-6-odds-spreads-chiefs-lions/
+
+**Teach Triangular Numbers With Steven Strogatz and The New York Times**\
+`Invite students to uncover how a centuries-old math puzzle helped us see inside the human brain.`\
+https://nytimes.com/2025/10/06/learning/lesson-plans/teach-triangular-numbers-with-steven-strogatz-and-the-new-york-times.html
+
+**Harvard Students Skip Class and Still Get High Grades, Faculty Say**\
+`Many students don’t do the reading and don’t speak up in class, according to a report. Now, professors are trying to change a campus culture they say hurts achievement and stifles speech.`\
+https://nytimes.com/2025/10/06/us/harvard-students-absenteeism.html
+
 **Kremlin Welcomes Trump’s Blessing of Proposal to Extend Nuclear Caps**\
 `President Trump said a Russian proposal to extend by one year the limits on long-range nuclear weapons sounded “like a good idea to me.”`\
 https://nytimes.com/2025/10/06/world/europe/russia-trump-putin-nuclear-caps.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/06/arts/music/don-giovanni-met-opera-review.html
 **Bessent Taps Social Security Chief to Serve as C.E.O. of I.R.S.**\
 `Frank Bisignano, who already leads the Social Security Administration, will also take on the day-to-day duties of the tax collector.`\
 https://nytimes.com/2025/10/06/business/frank-bisignano-social-security-chief-irs.html
-
-**The Pressure of Dating With a Fertility Deadline**\
-`For some single women in their 30s and 40s, their biological clocks add unwelcome stress to an already fraught process.`\
-https://nytimes.com/2025/10/06/well/family/dating-fertility-babies.html
-
-**Greta Thunberg Among Hundreds From Gaza Aid Flotilla Deported by Israel**\
-`Israel intercepted the boats at sea and detained the participants for days before expelling them. Some of the activists said they were mistreated, which Israel denied.`\
-https://nytimes.com/2025/10/06/world/middleeast/greta-thunberg-israel-deportation-gaza-flotilla.html
-
-**Reevaluating tight end talent for the rest of the fantasy football season**\
-`Things don't look great for the Raiders' young start, while a pair of young TEs in New York may be on the rise.`\
-https://nytimes.com/athletic/6693385/2025/10/06/fantasy-football-tight-ends-rest-of-season/
 
