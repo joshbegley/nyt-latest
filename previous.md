@@ -1,3 +1,7 @@
+**Deadly North Dakota Tornado Was a Rare EF5, Weather Service Says**\
+`Experts reassessed the damage from a tornado that left three people dead in June, and gave it the strongest possible rating on the tornado scale.`\
+https://nytimes.com/2025/10/06/weather/enderlin-nd-tornado-ef5.html
+
 **Trump Blinks, Saying for First Time He’s Willing to Negotiate on Shutdown**\
 `President Trump said he was open to making “the right deal.” Senator Chuck Schumer, the minority leader, denied any talks were underway.`\
 https://nytimes.com/2025/10/06/us/politics/trump-democrats-negotiation-shutdown.html
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/6695249/2025/10/06/lightning-panthers-suspensions-f
 `Reichard had been perfect on field goals this season before Sunday's kick in London took an odd and sharp turn to the right. `\
 https://nytimes.com/athletic/6694489/2025/10/06/field-goal-camera-wire-london-vikings-will-reichard/
 
-**After pushback from courts on troops, Trump threatens to invoke Insurrection Act.**\
+**After pushback from courts on troops, Trump threatens to invoke the Insurrection Act.**\
 `The president said he would invoke emergency powers to deploy the National Guard if “people were being killed, and courts were holding us up.”`\
 https://nytimes.com/live/2025/10/06/us/national-guard-trump-oregon-chicago/trump-insurrection-act-national-guard
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/06/us/illegal-daycare-center-child-killed-dog-attack
 **World Cup price jumps kick in early as FIFA raises costs amid high demand**\
 `The effects of variable pricing are already being felt on the World Cup ticket market`\
 https://nytimes.com/athletic/6695187/2025/10/06/2026-world-cup-tickets-pricing-demand/
-
-**Chicago and Portland had low rates of immigration arrests before federal operations ramped up.**\
-`By Albert Sun`\
-https://nytimes.com/live/2025/10/06/us/national-guard-trump-oregon-chicago/chicago-and-portland-had-low-rates-of-immigration-arrests-before-federal-operations-ramped-up
 

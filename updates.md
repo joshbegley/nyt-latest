@@ -1,3 +1,11 @@
+**Deadly North Dakota Tornado Was a Rare EF5, Weather Service Says**\
+`Experts reassessed the damage from a tornado that left three people dead in June, and gave it the strongest possible rating on the tornado scale.`\
+https://nytimes.com/2025/10/06/weather/enderlin-nd-tornado-ef5.html
+
+**After pushback from courts on troops, Trump threatens to invoke the Insurrection Act.**\
+`The president said he would invoke emergency powers to deploy the National Guard if “people were being killed, and courts were holding us up.”`\
+https://nytimes.com/live/2025/10/06/us/national-guard-trump-oregon-chicago/trump-insurrection-act-national-guard
+
 **Trump Blinks, Saying for First Time He’s Willing to Negotiate on Shutdown**\
 `President Trump said he was open to making “the right deal.” Senator Chuck Schumer, the minority leader, denied any talks were underway.`\
 https://nytimes.com/2025/10/06/us/politics/trump-democrats-negotiation-shutdown.html
