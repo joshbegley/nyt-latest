@@ -1,3 +1,35 @@
+**No Corrections: Oct. 06, 2025**\
+`No corrections appeared in print on Monday, Oct. 6, 2025.`\
+https://nytimes.com/2025/10/06/pageoneplus/no-corrections-oct-06-2025.html
+
+**The Pelicot Trial: A Timeline**\
+`Dominique Pelicot was convicted of drugging and raping his wife, Gisèle Pelicot, and of inviting dozens of men to rape her. Here is how the events unfolded.`\
+https://nytimes.com/2025/10/06/world/europe/pelicot-trial-timeline.html
+
+**Quote of the Day: Remaking Wembanyama With Meditation and Kung Fu**\
+`Quotation of the Day for Monday, October 6, 2025.`\
+https://nytimes.com/2025/10/06/pageoneplus/quote-of-the-day-remaking-wembanyama-with-meditation-and-kung-fu.html
+
+**Appeal Trial Opens in Gisèle Pelicot Rape Case**\
+`One man has appealed his conviction in a case in which a Frenchman drugged his wife and invited scores of men to rape her.`\
+https://nytimes.com/2025/10/06/appeal-trial-opens-in-gisele-pelicot-rape-case.html
+
+**Disrupting Car Production and Grocery Access, Cyberattacks Upset British Life**\
+`Jaguar Land Rover is the third big British brand to have its operations severely affected by a breach this year.`\
+https://nytimes.com/2025/10/06/business/jaguar-range-rover-cyberattacks-britain.html
+
+**Pakistan Fights Its Fiercest Taliban Insurgency in a Decade**\
+`Pakistan uprooted the Taliban with U.S. help in the 2010s. But the insurgency has resurfaced with assistance from the Afghan Taliban.`\
+https://nytimes.com/2025/10/06/world/asia/pakistan-taliban.html
+
+**What to Know as Gisèle Pelicot Returns to Court for Man’s Appeal**\
+`The Frenchwoman who became a feminist icon will confront one of the men convicted after her husband drugged her and invited them to rape her over nearly 10 years.`\
+https://nytimes.com/2025/10/06/what-to-know-as-gisele-pelicot-returns-to-court-for-mans-appeal.html
+
+**Connections: Sports Edition Coach: Hints for Oct. 6, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6691608/2025/10/06/connections-sports-edition-hints-for-oct-6-2025/
+
 **Arizona Cardinals find one of the worst possible ways to lose a football game**\
 `Players don't rank their worst losses, but after Sunday's collapse against Tennessee, Arizona QB Kyler Murray said this might top the list.`\
 https://nytimes.com/athletic/6692795/2025/10/05/arizona-cardinals-tennessee-titans-emari-demercado-fumble/
@@ -5,36 +37,4 @@ https://nytimes.com/athletic/6692795/2025/10/05/arizona-cardinals-tennessee-tita
 **What will the Bengals do with Jake Browning?**\
 `The backup QB is 0-3 in starts since Joe Burrow's toe injury with devastating turnovers piling up each week.`\
 https://nytimes.com/athletic/6692895/2025/10/05/bengals-jake-browning-lions-zac-taylor/
-
-**Chargers aren't playing like a Jim Harbaugh-coached team: 'Sloppy errors'**\
-`"We're a good football team," Harbaugh said after a 27-10 loss. "We're not good enough in some of the areas that you need to win games."`\
-https://nytimes.com/athletic/6692877/2025/10/05/chargers-jim-harbaugh-loss-commanders/
-
-**Tigers-Mariners Game 2 takeaways: Polanco powers Seattle past Skubal, Detroit**\
-`The series shifts to Detroit for Game 3 on Tuesday, when the Mariners’ Logan Gilbert will face the Tigers’ Jack Flaherty.`\
-https://nytimes.com/athletic/6692632/2025/10/05/tigers-mariners-game-2-score-results-takeaways-playoffs-mlb/
-
-**Seahawks’ defensive meltdown spoils Sam Darnold’s near-perfect day: ‘It hurts’**\
-`Darnold's late interception was costly, but it wouldn't have come to that if the Seahawks' defense had played anywhere near its standard.`\
-https://nytimes.com/athletic/6692710/2025/10/05/seahawks-bucs-sam-darnold-baker-mayfield/
-
-**Buccaneers Beat Seahawks in Thriller**\
-`Baker Mayfield sparked Tampa Bay’s comeback in a high-scoring Week 5 game.`\
-https://nytimes.com/video/the-athletic/100000010440840/buccaneers-beat-seahawks-in-thriller.html
-
-**Eagles offense stalls after 'shooting ourselves in the foot' following initial spark**\
-`The Eagles failed to change their approach when they needed to.`\
-https://nytimes.com/athletic/6691561/2025/10/05/eagles-offense-struggles-vs-broncos/
-
-**The making of Trey Yesavage, the Blue Jays’ newly minted October phenom**\
-`Drafted 20th overall last year, Yesavage climbed from Low-A to deliver one of the most memorable starts in Toronto history.`\
-https://nytimes.com/athletic/6692627/2025/10/05/who-is-trey-yesavage-blue-jays-october/
-
-**Yen Plummets, Stocks Rally: Markets Greet Japan’s Next Leader**\
-`The governing party’s unexpected choice of Sanae Takaichi to lead it rattled markets on Monday, causing the yen to weaken and sending Japanese stocks sharply higher.`\
-https://nytimes.com/2025/10/05/business/japan-stocks-yen-takaichi.html
-
-**After another Colts rout, it's time to acknowledge them for what they are: contenders**\
-`With Daniel Jones playing at a near-MVP level and the defense generating eight turnovers in five weeks, the Colts look like contenders.`\
-https://nytimes.com/athletic/6692076/2025/10/05/colts-contenders-raiders-daniel-jones-jonathan-taylor/
 
