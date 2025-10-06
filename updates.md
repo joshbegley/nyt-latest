@@ -1,3 +1,23 @@
+**Trump, Drug Cartels, Venezuela and War: What We Know**\
+`The Trump administration is ratcheting up pressure on Nicolás Maduro, Venezuela’s president, while attacking boats in the Caribbean Sea.`\
+https://nytimes.com/2025/10/06/us/politics/trump-cartels-what-we-know.html
+
+**Where in the World Is Eric Adams? Try Albania.**\
+`The decision by Mr. Adams, a lame-duck mayor, to spend nearly a week of his remaining time in office visiting the Balkan nation raised eyebrows back in New York.`\
+https://nytimes.com/2025/10/06/nyregion/eric-adams-albania.html
+
+**Senators owner Michael Andlauer takes shot at Canadiens in discussing Quebec City trip**\
+`Andlauer also provided updates about the team's ongoing LeBreton Flats arena saga, having met with members of the Algonquin community.`\
+https://nytimes.com/athletic/6694394/2025/10/06/senators-owner-michael-andlauer-canadiens-quebec-city/
+
+**Bills benched WR Keon Coleman for first series vs. Patriots**\
+`The Bills disciplined Coleman last season for not being on time.`\
+https://nytimes.com/athletic/6694953/2025/10/06/bills-keon-coleman-benched-patriots/
+
+**Are You Struggling to Find the Right Gift? Ask Us for Help!**\
+`Ahead of the holidays, we’re responding to readers’ hardest gifting quandaries.`\
+https://nytimes.com/2025/10/06/t-magazine/holiday-gifts-presents.html
+
 **Israel at War With Itself**\
 `On the second anniversary of the Oct. 7 attacks, Roger Cohen explains how the war in Gaza has left Israel divided and isolated.`\
 https://nytimes.com/2025/10/06/world/israel-war-france-resignation-everest-oktoberfest.html

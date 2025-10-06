@@ -1,3 +1,11 @@
+**Treasury Defends Lawfulness of Minting a $1 Trump Coin**\
+`The Treasury Department said that a 2020 collectible coinage law allows a living person to appear on U.S. currency.`\
+https://nytimes.com/2025/10/06/us/politics/treasury-trump-coin.html
+
+**Kane less keen on Premier League return than when he left Spurs**\
+`"I have been there (Germany) a couple of years I would probably say that (desire to return) has gone down a little bit," Kane said.`\
+https://nytimes.com/athletic/6693979/2025/10/06/harry-kane-england-premier-league/
+
 **Trump, Drug Cartels, Venezuela and War: What We Know**\
 `The Trump administration is ratcheting up pressure on Nicolás Maduro, Venezuela’s president, while attacking boats in the Caribbean Sea.`\
 https://nytimes.com/2025/10/06/us/politics/trump-cartels-what-we-know.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6694677/2025/10/06/flyers-depth-chart-3-0-zegras-th
 **A Campaign to ‘Bring Back Bullying’**\
 `On social media, some are arguing that bullying deserves a second look. Trolling or not, the push seems to reflect a general turn away from sensitivity.`\
 https://nytimes.com/2025/10/06/style/bullying-tiktok-social-media.html
-
-**Kimberly Hébert Gregory, Actress on HBO’s ‘Vice Principals,’ Dies at 52**\
-`She was known as the brash principal on the show, a dark comedy set at a high school that debuted in 2016.`\
-https://nytimes.com/2025/10/06/arts/kimberly-hebert-gregory-dead-vice-principals.html
-
-**Are You Struggling to Find the Right Gift? Ask Us for Help!**\
-`Ahead of the holidays, we’re responding to readers’ hardest gifting quandaries.`\
-https://nytimes.com/2025/10/06/t-magazine/holiday-gifts-presents.html
 
