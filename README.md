@@ -1,3 +1,7 @@
+**Gaza Peace Talks Are Set to Take Place in Egypt**\
+`Though significant issues remain to be hashed out between Israel and Hamas, some are saying that after two years of death and destruction, a breakthrough may be near.`\
+https://nytimes.com/2025/10/06/world/middleeast/israel-gaza-hamas-peace-talks.html
+
 **ICE Protests Continue as Trump Pushes to Deploy National Guard**\
 `The Trump administration pushed to deploy National Guard troops in Democrat-led cities as protesters gathered outside of the Immigration and Customs Enforcement building in Portland, Ore.`\
 https://nytimes.com/video/us/100000010440957/portland-national-guard-trump-chicago.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/06/world/asia/everest-hikers-trapped-snowstorm.html
 **Hikers Stranded on Mount Everest**\
 `The snow reduced visibility and left hundreds of hikers stuck on Mount Everest.`\
 https://nytimes.com/video/world/asia/100000010440923/everest-hikers-trapped-snowstorm.html
-
-**Al Horford fits right in with Warriors in preseason debut, win against Lakers**\
-`Horford is the stabilizing veteran who would fit with any team, but his ability to make this group of Warriors better already shows.`\
-https://nytimes.com/athletic/6693085/2025/10/06/al-horford-warriors-lakers-preseason-debut/
 
