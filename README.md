@@ -1,3 +1,7 @@
+**After another Colts rout, it's time to acknowledge them for what they are: contenders**\
+`INDIANAPOLIS — Braden Smith remembers how things used to be and the scars those failures have left behind.`\
+https://nytimes.com/athletic/6692076/2025/10/05/colts-contenders-raiders-daniel-jones-jonathan-taylor/
+
 **It took 147 seconds for the Jets to unravel against the Cowboys**\
 `A familiar fumble started a change reaction of mistakes that sparked a blowout loss.`\
 https://nytimes.com/athletic/6692693/2025/10/05/new-york-jets-blowout-loss-dallas-cowboys/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6692318/2025/10/05/ravens-loss-john-harbaugh-texans
 **Broncos' big fourth quarter topples Eagles, gives credence to team's lofty internal goals**\
 `Bo Nix completed 9 of 10 passes in the fourth quarter and led three straight scoring drives. "We spoke it into existence," he said.`\
 https://nytimes.com/athletic/6692408/2025/10/05/broncos-eagles-nix-bonitto-sutton-payton/
-
-**How to watch Dodgers at Phillies: Game 2 Time, TV, streaming**\
-`Find out how to watch the Los Angeles Dodgers play the Philadelphia Phillies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6692547/2025/10/05/dodgers-vs-phillies-stream-how-to-watch-oct-6/
 
