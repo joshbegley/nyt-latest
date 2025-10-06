@@ -1,3 +1,5 @@
+
+
 **Inside Newcastle Q&A: Chris Waugh answers your questions**\
 `Back-to-back wins in a week have changed the mood and opened up the rest of the season - get your queries in now`\
 https://nytimes.com/athletic/6693232/2025/10/06/inside-newcastle-chris-waugh-answers-questions/
