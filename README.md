@@ -14,6 +14,10 @@ https://nytimes.com/athletic/6689493/2025/10/06/chiefs-kingsley-suamataia-develo
 `Here's one real prop and a few broadcast predictions for tonight's "Monday Night Football" game down in Jacksonville.`\
 https://nytimes.com/athletic/6684917/2025/10/06/chiefs-jaguars-mnf-nfl-taylor-swift-travis-kelce-how-to-watch/
 
+**The Yankees have been embarrassed by Blue Jays in ALDS. Is there any hope left?**\
+`It's been a historic embarrassment for the Yankees, who are facing elimination in Tuesday's Game 3. Now what? `\
+https://nytimes.com/athletic/6692598/2025/10/06/yankees-embarrassed-bluejays-alds/
+
 **Emotions, support and TDs: David Montgomery's return to Cincinnati brings it all out**\
 `Montgomery played in his hometown in front of friends and family, including his sister Kiki, and called it "super meaningful."`\
 https://nytimes.com/athletic/6692962/2025/10/06/lions-david-montgomery-hometown-emotional-return/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6693249/2025/10/06/eagles-broncos-jalen-hurts-saquo
 **Supreme Court Starts Consequential Term, and Illinois Governor Warns of ‘Trump’s Invasion’**\
 `Plus, when Silicon Valley comes to the farm.`\
 https://nytimes.com/2025/10/06/podcasts/the-headlines/supreme-court-llinois-trump.html
-
-**As the Tigers come home, can the lessons of a long voyage carry them through the ALDS?**\
-`With the series tied at one game apiece, the Tigers will return home for the first time in 14 days for Game 3 of the ALDS.`\
-https://nytimes.com/athletic/6693064/2025/10/06/detroit-tigers-alds-lessons-seattle-mariners/
 
