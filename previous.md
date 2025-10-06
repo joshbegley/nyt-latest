@@ -1,40 +1,40 @@
-**Gaza Peace Talks Are Set to Take Place in Egypt**\
-`Though significant issues remain to be hashed out between Israel and Hamas, some are saying that after two years of death and destruction, a breakthrough may be near.`\
-https://nytimes.com/2025/10/06/world/middleeast/israel-gaza-hamas-peace-talks.html
+**How to watch Cubs at Brewers: Game 2 Time, TV, streaming**\
+`Find out how to watch the Chicago Cubs play the Milwaukee Brewers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6693264/2025/10/06/cubs-vs-brewers-stream-how-to-watch-oct-6/
 
-**ICE Protests Continue as Trump Pushes to Deploy National Guard**\
-`The Trump administration pushed to deploy National Guard troops in Democrat-led cities as protesters gathered outside of the Immigration and Customs Enforcement building in Portland, Ore.`\
-https://nytimes.com/video/us/100000010440957/portland-national-guard-trump-chicago.html
+**Pistons preview: Jaden Ivey could be secret weapon for Detroit this season**\
+`"He looks explosive, he looks comfortable out there. He looks like himself," says coach J.B. Bickerstaff of Ivey. `\
+https://nytimes.com/athletic/6692095/2025/10/06/detroit-pistons-preview-nba-jaden-ivey/
 
-**Can Fashion Still Be Provocative?**\
-`Duran Lantink’s ridiculous debut at Jean Paul Gaultier raises the question.`\
-https://nytimes.com/2025/10/06/style/jean-paul-gaultier-duran-lantink.html
+**Falcons mailbag: Atlanta's uneven offense, Kyle Pitts, injury issues and more**\
+`Under OC Zac Robinson, the Falcons were a disappointing 25th in the NFL in scoring with 19 points per game through their first four games.`\
+https://nytimes.com/athletic/6686659/2025/10/06/falcons-offense-kyle-pitts-zac-robinson-injury/
 
-**French Prime Minister Resigns in Surprise Move**\
-`Sébastien Lecornu stepped down less than 24 hours after he had formed his cabinet.`\
-https://nytimes.com/2025/10/06/world/europe/france-lecornu-resigns-macron.html
+**Forget the Patriots' rebuild. After beating the Bills, they should be playoff contenders**\
+`Drake Maye is turning into a high-end QB, Stefon Diggs is playing like a No. 1 WR and Mike Vrabel is raising the level of play everywhere.`\
+https://nytimes.com/athletic/6693093/2025/10/06/patriots-bills-rebuild-playoffs-mike-vrabel/
 
-**In Ashes of Amazon Fight, Tensions Emerge in Huge Bet on N.Y.C. Housing**\
-`Years ago, progressives defeated a plan to build an Amazon warehouse in Queens. Now a new kind of development is gaining their support.`\
-https://nytimes.com/2025/10/06/nyregion/amazon-rezoning-queens.html
+**Trump’s Shutdown Glee Could Come Back to Bite Him**\
+`Republicans’ exploitation of government’s closure is the tell that they prefer it this way.`\
+https://nytimes.com/2025/10/06/opinion/shutdown-republicans-trump-democrats.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/10/06/crosswords/spelling-bee-forum.html
+**Does Manhattan Need More Luxury Towers?**\
+`Proposed towers in Greenwich Village and on the Upper West Side have generated opposition. A tower on West 66th Street would be about 1,200 feet tall.`\
+https://nytimes.com/2025/10/06/nyregion/luxury-supertalls-development-manhattan.html
 
-**Pilots Demand Air India Ground Boeing 787s After Emergency System Used**\
-`Officials are investigating why the power source, used when electrical or hydraulic pressure fails, was deployed over the weekend. The same system was activated during a deadly crash in June.`\
-https://nytimes.com/2025/10/06/world/asia/air-india-boeing-planes.html
+**Why Is Everyone Talking About Brown?**\
+`Pantone, InStyle and Vogue have all declared it the color of the moment. Our critic offers tips for styling it without looking like you stepped out of the 1970s.`\
+https://nytimes.com/2025/10/06/fashion/brown-fall-fashion.html
 
-**Word of the Day: turgid**\
-`This word has appeared in 22 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/10/06/learning/word-of-the-day-turgid.html
+**What Animal Would You Like to Learn More About?**\
+`Jane Goodall, the renowned primate expert who died last week, spent her life studying chimpanzees. Is there a species you have always wanted to know more about?`\
+https://nytimes.com/2025/10/06/learning/what-animal-would-you-like-to-learn-more-about.html
 
-**Hundreds of Hikers Stranded on Mount Everest by Snowstorm**\
-`The snowfall buried tents and reduced visibility. The local authorities said that they were in contact with the hikers and that rescue efforts were underway.`\
-https://nytimes.com/2025/10/06/world/asia/everest-hikers-trapped-snowstorm.html
+**Trumpism After Trump: The Future of the Right**\
+`A conservative’s vision for MAGA beyond Trump.`\
+https://nytimes.com/2025/10/06/opinion/gladden-pappin-next-american-story.html
 
-**Hikers Stranded on Mount Everest**\
-`The snow reduced visibility and left hundreds of hikers stuck on Mount Everest.`\
-https://nytimes.com/video/world/asia/100000010440923/everest-hikers-trapped-snowstorm.html
+**Chris Kraus on Cancel Culture, Murder and Other American Pastimes**\
+`The author of “I Love Dick” returns with a novel that combines autobiography and true crime.`\
+https://nytimes.com/2025/10/06/books/review/chris-kraus-four-spent-the-day-together.html
 
