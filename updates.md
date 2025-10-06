@@ -1,3 +1,15 @@
+**TAFC: Life in the Premier League pressure cooker and a wind-assisted own goal**\
+`Today in TAFC: Mixed fortunes for under-pressure Premier League managers and the twisted logic of the '007' jibe `\
+https://nytimes.com/athletic/6693300/2025/10/06/athletic-fc-newsletter-postecoglou-premier-league/
+
+**What we're hearing about the Cubs' pitching outlook ahead of NLDS Game 2**\
+`Injured rookie Cade Horton is scheduled to throw off the mound this week at Wrigley Field. `\
+https://nytimes.com/athletic/6692156/2025/10/06/chicago-cubs-nlds-game-2-pitching-outlook/
+
+**The Pulse: NFL musical chairs**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6692783/2025/10/06/buccaneers-seahawks-bills-patriots-the-pulse/
+
 **The Yankees have been embarrassed by Blue Jays in ALDS. Is there any hope left?**\
 `It's been a historic embarrassment for the Yankees, who are facing elimination in Tuesday's Game 3. Now what? `\
 https://nytimes.com/athletic/6692598/2025/10/06/yankees-embarrassed-bluejays-alds/

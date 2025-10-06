@@ -1,3 +1,15 @@
+**TAFC: Life in the Premier League pressure cooker and a wind-assisted own goal**\
+`Today in TAFC: Mixed fortunes for under-pressure Premier League managers and the twisted logic of the '007' jibe `\
+https://nytimes.com/athletic/6693300/2025/10/06/athletic-fc-newsletter-postecoglou-premier-league/
+
+**What we're hearing about the Cubs' pitching outlook ahead of NLDS Game 2**\
+`Injured rookie Cade Horton is scheduled to throw off the mound this week at Wrigley Field. `\
+https://nytimes.com/athletic/6692156/2025/10/06/chicago-cubs-nlds-game-2-pitching-outlook/
+
+**The Pulse: NFL musical chairs**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6692783/2025/10/06/buccaneers-seahawks-bills-patriots-the-pulse/
+
 **As two-time champion Panthers enter uncharted territory, fatigue is no match for fun**\
 `It's been over 40 years since a team last made four consecutive Stanley Cup finals. The Panthers are determined to reset that counter.`\
 https://nytimes.com/athletic/6691500/2025/10/06/florida-panthers-nhl-stanley-cup-fatigue-2025-26/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6692962/2025/10/06/lions-david-montgomery-hometown-
 **Baker Mayfield-Sam Darnold duel brings shades of Peyton Manning-Tony Romo**\
 `The former Panthers teammates lit up the scoreboard much in the way that Manning and Romo did in Dallas in an epic 2013 meeting.`\
 https://nytimes.com/athletic/6693245/2025/10/06/baker-mayfield-sam-darnold-duel-brings-shades-of-peyton-manning-tony-romo/
-
-**These aren't Peyton Manning's Colts, but you'd never know it from the efficiency**\
-`The Colts are off to one of their best five-game starts this century, which is saying something considering the standard Manning set.`\
-https://nytimes.com/athletic/6693252/2025/10/06/colts-daniel-jones-peyton-manning/
-
-**The Eagles' offensive issues finally cost them a game. What's the deal?**\
-`The Eagles ran the ball shockingly little on Sunday. Why? And how much worse are they this season than at the start of 2024?`\
-https://nytimes.com/athletic/6693249/2025/10/06/eagles-broncos-jalen-hurts-saquon-barkley/
-
-**Supreme Court Starts Consequential Term, and Illinois Governor Warns of ‘Trump’s Invasion’**\
-`Plus, when Silicon Valley comes to the farm.`\
-https://nytimes.com/2025/10/06/podcasts/the-headlines/supreme-court-llinois-trump.html
 

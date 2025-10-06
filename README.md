@@ -1,3 +1,7 @@
+**Daria Kasatkina becomes latest tennis player to end season early: 'I am at breaking point'**\
+`Kasatkina described the tennis schedule as 'too much' in announcing that she will not play again until 2026.`\
+https://nytimes.com/athletic/6693298/2025/10/06/tennis-schedule-daria-kasatkina-ends-season-early/
+
 **TAFC: Life in the Premier League pressure cooker and a wind-assisted own goal**\
 `Today in TAFC: Mixed fortunes for under-pressure Premier League managers and the twisted logic of the '007' jibe `\
 https://nytimes.com/athletic/6693300/2025/10/06/athletic-fc-newsletter-postecoglou-premier-league/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6692598/2025/10/06/yankees-embarrassed-bluejays-ald
 **Emotions, support and TDs: David Montgomery's return to Cincinnati brings it all out**\
 `Montgomery played in his hometown in front of friends and family, including his sister Kiki, and called it "super meaningful."`\
 https://nytimes.com/athletic/6692962/2025/10/06/lions-david-montgomery-hometown-emotional-return/
-
-**Baker Mayfield-Sam Darnold duel brings shades of Peyton Manning-Tony Romo**\
-`The former Panthers teammates lit up the scoreboard much in the way that Manning and Romo did in Dallas in an epic 2013 meeting.`\
-https://nytimes.com/athletic/6693245/2025/10/06/baker-mayfield-sam-darnold-duel-brings-shades-of-peyton-manning-tony-romo/
 
