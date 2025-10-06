@@ -1,40 +1,40 @@
-**What's next for Packers' Christian Watson after returning to practice from torn ACL?**\
-`Watson practiced Monday for the first time since tearing his ACL nine months and one day ago against the Bears.`\
-https://nytimes.com/athletic/6694517/2025/10/06/christian-watson-packers-return-acl/
+**How to watch North Carolina State at Notre Dame: Time, TV, streaming**\
+`Find out how to watch the North Carolina State Wolfpack play the Notre Dame Fighting Irish, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6694715/2025/10/06/north-carolina-state-vs-notre-dame-stream-how-to-watch-oct-11/
 
-**Maryland Judges Weigh Whether Cities Can Sue Over Climate Change**\
-`Communities including Baltimore and Annapolis are asking the state’s top court to revive a case accusing oil companies of spreading disinformation.`\
-https://nytimes.com/2025/10/06/climate/maryland-climate-lawsuit.html
+**How to watch Washington State at Ole Miss: Time, TV, streaming**\
+`Find out how to watch the Washington State Cougars play the Ole Miss Rebels, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6694712/2025/10/06/washington-state-vs-ole-miss-stream-how-to-watch-oct-11/
 
-**Syria Chooses a Parliament of Revolutionaries**\
-`In the first elections since the Assad regime was ousted, there was no popular vote and women and minorities won few seats. Still, many Syrians saw it as progress toward ending authoritarian rule.`\
-https://nytimes.com/2025/10/06/world/middleeast/syria-elections-parliament.html
+**How to watch Alabama at Missouri: Time, TV, streaming**\
+`Find out how to watch the Alabama Crimson Tide play the Missouri Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6694710/2025/10/06/alabama-vs-missouri-stream-how-to-watch-oct-11/
 
-**Candace Parker, Michael Grady to be Prime Video's lead WNBA broadcasters**\
-`Parker was the first woman to serve as a color commentator for the NBA All-Star game in 2023.`\
-https://nytimes.com/athletic/6694492/2025/10/06/candace-parker-michael-grady-prime-video-wnba/
+**How to watch Nebraska at Maryland: Time, TV, streaming**\
+`Find out how to watch the Nebraska Cornhuskers play the Maryland Terrapins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6694709/2025/10/06/nebraska-vs-maryland-stream-how-to-watch-oct-11/
 
-**Scoop City: Risers and fallers after Sunday of Week 5**\
-`How teams are trending after Sunday of Week 5 resulted in stunning upsets and improbable comebacks — often in the same game. `\
-https://nytimes.com/athletic/6694535/2025/10/06/nfl-risers-fallers-week-5-scoop-city/
+**How to watch Iowa State at Colorado: Time, TV, streaming**\
+`Find out how to watch the Iowa State Cyclones play the Colorado Buffaloes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6694706/2025/10/06/iowa-state-vs-colorado-stream-how-to-watch-oct-11/
 
-**Commercial Aviation May Soon Feel Shutdown’s Impact, Official Warns**\
-`The Essential Air Service, which subsidizes flights to small airports, will run out of money on Sunday, and air traffic controllers who have been working without pay have begun calling in sick.`\
-https://nytimes.com/2025/10/06/us/politics/faa-essential-air-service-controllers.html
+**How to watch Northwestern at Penn State: Time, TV, streaming**\
+`Find out how to watch the Northwestern Wildcats play the Penn State Nittany Lions, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6694704/2025/10/06/northwestern-vs-penn-state-stream-how-to-watch-oct-11/
 
-**What I'm seeing with Rangers: Noah Laba, Conor Sheary in good spots, power-play updates**\
-`"It's always nice to get rewarded for performing well and your hard work," Laba said.`\
-https://nytimes.com/athletic/6694305/2025/10/06/rangers-noah-laba-conor-sheary-roster/
+**How to watch UCLA at Michigan State: Time, TV, streaming**\
+`Find out how to watch the UCLA Bruins play the Michigan State Spartans, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6694702/2025/10/06/ucla-vs-michigan-state-stream-how-to-watch-oct-11/
 
-**How to watch NHL games in 2025-26: TV channels, streaming info and broadcast schedules**\
-`National and local broadcasts will be scattered across over-the-air antennas, cable packages and a variety of streaming services.`\
-https://nytimes.com/athletic/6689390/2025/10/06/nhl-television-broadcast-streaming-2025/
+**How to watch Virginia Tech at Georgia Tech: Time, TV, streaming**\
+`Find out how to watch the Virginia Tech Hokies play the Georgia Tech Yellow Jackets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6694699/2025/10/06/virginia-tech-vs-georgia-tech-stream-how-to-watch-oct-11/
 
-**D.E.I. Helps Everyone (White Men Included)**\
-`It’s easy to understand why the Trump administration’s funding cuts to D.E.I.-related research will harm the overall health of underrepresented groups, including women, people of color and L.G.B.T.Q. people. But they could actually hurt white men too.`\
-https://nytimes.com/video/opinion/100000010441484/dei-helps-everyone-white-men-included.html
+**How to watch Oklahoma vs. Texas: Time, TV, streaming**\
+`Find out how to watch the Oklahoma Sooners play the Texas Longhorns, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6694698/2025/10/06/oklahoma-vs-texas-stream-how-to-watch-oct-11/
 
-**Maple Leafs claim goalie Cayden Primeau, winger Sammy Blais off waivers**\
-`It is likely both players will be added to the Leafs' roster to fill depth roles.`\
-https://nytimes.com/athletic/6694445/2025/10/06/maple-leafs-cayden-primeau-sammy-blais-waivers/
+**How to watch Indiana at Oregon: Time, TV, streaming**\
+`Find out how to watch the Indiana Hoosiers play the Oregon Ducks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6694693/2025/10/06/indiana-vs-oregon-stream-how-to-watch-oct-11/
 
