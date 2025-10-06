@@ -1,3 +1,27 @@
+**Disjointed Bills can't get back on script en route to surprising loss**\
+`Josh Allen: "ti was a pretty pivotal game in terms of what we could have done with this. And we didn't take advantage of our opportunity."`\
+https://nytimes.com/athletic/6693211/2025/10/06/disjointed-bills-surprising-loss-patriots/
+
+**There’s No Precedent for This Shutdown**\
+`Congress may seem dysfunctional from the outside, but the government shutdown is a sign that something more sinister is going on, says the Opinion columnist Michelle Goldberg.`\
+https://nytimes.com/video/opinion/100000010435133/theres-no-precedent-for-this-shutdown.html
+
+**What to Know About the 2025 Nobel Prizes**\
+`The awards are being announced this week.`\
+https://nytimes.com/2025/10/06/world/europe/nobel-prize.html
+
+**Anxiety and Uncertainty Pushes Gold Near $4,000 an Ounce**\
+`Approaching the milestone for the first time, the precious metal is on course for its best year since the 1970s, highlighting unease among investors.`\
+https://nytimes.com/2025/10/06/business/gold-price-us-economy.html
+
+**French Prime Minister Resigns After Less Than a Month in Office**\
+`Sébastien Lecornu resigned as France’s prime minister after serving for less than a month, the shortest tenure in the country’s history. The resignation also came amid growing concern that he would not be able to get a budget passed.`\
+https://nytimes.com/video/world/europe/100000010441051/france-prime-minister-resignation-lecornu.html
+
+**What will it take for the Ducks to make the playoffs?**\
+`Here are the five major things that will have to break the Ducks' way in order for them to end their seven-year postseason drought.`\
+https://nytimes.com/athletic/6692143/2025/10/06/ducks-playoffs-quenneville-season/
+
 **Q&A: Ryan Nugent-Hopkins, the Oilers' constant, says there's 'urgency' to win**\
 `Nugent-Hopkins spoke to The Athletic about his Oilers legacy, how to be effective and finding the ultimate team success.`\
 https://nytimes.com/athletic/6692290/2025/10/06/ryan-nugent-hopkins-oilers-interview/
