@@ -1,3 +1,15 @@
+**Eagles offense stalls after 'shooting ourselves in the foot' following initial spark**\
+`The Eagles failed to change their approach when they needed to.`\
+https://nytimes.com/athletic/6691561/2025/10/05/eagles-offense-struggles-vs-broncos/
+
+**The making of Trey Yesavage, the Blue Jays’ newly-minted October phenom**\
+`Drafted 20th overall last year, Trey Yesavage climbed from Low-A to deliver one of the most memorable starts in franchise history`\
+https://nytimes.com/athletic/6692627/2025/10/05/who-is-trey-yesavage-blue-jays-october/
+
+**Yen Plummets, Stocks Rally: Markets Greet Japan’s Next Leader**\
+`The governing party’s unexpected choice of Sanae Takaichi to lead it rattled markets on Monday, causing the yen to weaken and sending Japanese stocks sharply higher.`\
+https://nytimes.com/2025/10/05/business/japan-stocks-yen-takaichi.html
+
 **After another Colts rout, it's time to acknowledge them for what they are: contenders**\
 `INDIANAPOLIS — Braden Smith remembers how things used to be and the scars those failures have left behind.`\
 https://nytimes.com/athletic/6692076/2025/10/05/colts-contenders-raiders-daniel-jones-jonathan-taylor/

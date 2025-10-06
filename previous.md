@@ -1,3 +1,15 @@
+**Eagles offense stalls after 'shooting ourselves in the foot' following initial spark**\
+`The Eagles failed to change their approach when they needed to.`\
+https://nytimes.com/athletic/6691561/2025/10/05/eagles-offense-struggles-vs-broncos/
+
+**The making of Trey Yesavage, the Blue Jays’ newly-minted October phenom**\
+`Drafted 20th overall last year, Trey Yesavage climbed from Low-A to deliver one of the most memorable starts in franchise history`\
+https://nytimes.com/athletic/6692627/2025/10/05/who-is-trey-yesavage-blue-jays-october/
+
+**Yen Plummets, Stocks Rally: Markets Greet Japan’s Next Leader**\
+`The governing party’s unexpected choice of Sanae Takaichi to lead it rattled markets on Monday, causing the yen to weaken and sending Japanese stocks sharply higher.`\
+https://nytimes.com/2025/10/05/business/japan-stocks-yen-takaichi.html
+
 **After another Colts rout, it's time to acknowledge them for what they are: contenders**\
 `INDIANAPOLIS — Braden Smith remembers how things used to be and the scars those failures have left behind.`\
 https://nytimes.com/athletic/6692076/2025/10/05/colts-contenders-raiders-daniel-jones-jonathan-taylor/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6692440/2025/10/05/cowboys-brian-schottenheimer-dak
 **Are the Las Vegas Aces unstoppable? So far, the Mercury can't figure them out**\
 `The Aces put on another masterclass to take a 2-0 WNBA Finals lead.`\
 https://nytimes.com/athletic/6692556/2025/10/05/las-vegas-aces-phoenix-mercury-wnba-finals-game-2/
-
-**Aaron Glenn is buried under the monumental challenge of being the Jets coach**\
-`Glenn has found out the hard way that you don’t reverse the Jets' fortunes merely by firing Aaron Rodgers and acting like a tough guy.`\
-https://nytimes.com/athletic/6692394/2025/10/05/aaron-glenn-jets-head-coach-challenge-nfl/
-
-**In latest blowout loss, Ravens look and sound like a team without any answers**\
-`At 1-4, John Harbaugh's Ravens have matched the 2015 team for the worst start in franchise history.`\
-https://nytimes.com/athletic/6692318/2025/10/05/ravens-loss-john-harbaugh-texans/
-
-**Broncos' big fourth quarter topples Eagles, gives credence to team's lofty internal goals**\
-`Bo Nix completed 9 of 10 passes in the fourth quarter and led three straight scoring drives. "We spoke it into existence," he said.`\
-https://nytimes.com/athletic/6692408/2025/10/05/broncos-eagles-nix-bonitto-sutton-payton/
 
