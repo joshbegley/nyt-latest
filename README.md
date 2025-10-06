@@ -1,4 +1,12 @@
-**What is the National Guard?**\
+**Grizzlies guard Ja Morant listed as week-to-week with ankle sprain**\
+`Morant is listed as week-to-week with a left ankle sprain, according to a team spokesman.`\
+https://nytimes.com/athletic/6694198/2025/10/06/ja-morant-week-to-week-ankle-sprain/
+
+**Why UNC's social media silence during Drake Maye's big night started a firestorm**\
+`It has become common practice for college football programs’ social media accounts to post highlights of their alums’ NFL exploits.`\
+https://nytimes.com/athletic/6693795/2025/10/06/drake-maye-bill-belichick-unc-patriots-ban/
+
+**What Is the National Guard?**\
 `The state-based military force is made up from part-time soldiers and can be activated by a governor or the president.`\
 https://nytimes.com/2025/10/06/us/what-is-national-guard.html
 
@@ -29,14 +37,4 @@ https://nytimes.com/2025/10/06/arts/music/chris-dreja-dead.html
 **Worried, Frazzled, Indifferent: Processing the Shutdown in a Divided America**\
 `As the government shutdown entered its first full week, emotions across the country ranged from uneasy to unconcerned.`\
 https://nytimes.com/2025/10/06/us/government-shutdown-reactions.html
-
-**Israel Premier-Tech to 'rename and rebrand' after protests**\
-`The cycling team have been the subject of many pro-Palestine protests this season leading to two of their sponsors requesting a name change.`\
-https://nytimes.com/athletic/6693947/2025/10/06/israel-premier-tech-rebrand-cycling-protests/
-
-**Submit a question for Stewart Mandel's Week 7 College Football Mailbag**\
-`<p>Holy cow, Week 7 already? Time flies. Unless you&#8217;re a Penn State or Texas fan.</p>
-<p>Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/6694130/2025/10/06/submit-a-question-for-stewart-mandels-week-7-college-football-mailbag/
 
