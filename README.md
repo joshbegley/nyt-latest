@@ -1,3 +1,7 @@
+**The truth about tennis court speed and Roger Federer's comments on Alcaraz and Sinner**\
+`The tennis great's comments on how fast tennis courts are and whether they benefit Carlos Alcaraz and Jannik Sinner provoked discussion.`\
+https://nytimes.com/athletic/6682720/2025/10/06/tennis-court-speed-federer-zverev-sinner-alcaraz/
+
 **Ravaged by War: Trying to Survive Gaza’s Present, Hoping for a Future**\
 `Two years of intense warfare in Gaza have left its people with a dismembered and disordered society. The destruction is vast and many Gazans have mental and physical wounds that could scar a generation.`\
 https://nytimes.com/2025/10/06/world/middleeast/israel-gaza-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/06/nyregion/luxury-supertalls-development-manhattan.
 **Why Is Everyone Talking About Brown?**\
 `Pantone, InStyle and Vogue have all declared it the color of the moment. Our critic offers tips for styling it without looking like you stepped out of the 1970s.`\
 https://nytimes.com/2025/10/06/fashion/brown-fall-fashion.html
-
-**What Animal Would You Like to Learn More About?**\
-`Jane Goodall, the renowned primate expert who died last week, spent her life studying chimpanzees. Is there a species you have always wanted to know more about?`\
-https://nytimes.com/2025/10/06/learning/what-animal-would-you-like-to-learn-more-about.html
 
