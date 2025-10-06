@@ -1,3 +1,23 @@
+**Syria Chooses a Parliament of Revolutionaries**\
+`In the first elections since the Assad regime was ousted, there was no popular vote and women and minorities won few seats. Still, many Syrians saw it as progress toward ending authoritarian rule.`\
+https://nytimes.com/2025/10/06/world/middleeast/syria-elections-parliament.html
+
+**Candace Parker, Michael Grady to be Prime Video's lead WNBA broadcasters**\
+`Parker was the first woman to serve as a color commentator for the NBA All-Star game in 2023.`\
+https://nytimes.com/athletic/6694492/2025/10/06/candace-parker-michael-grady-prime-video-wnba/
+
+**Scoop City: Risers and fallers after Sunday of Week 5**\
+`How teams are trending after Sunday of Week 5 resulted in stunning upsets and improbable comebacks — often in the same game. `\
+https://nytimes.com/athletic/6694535/2025/10/06/nfl-risers-fallers-week-5-scoop-city/
+
+**Commercial Aviation May Soon Feel Shutdown’s Impact, Official Warns**\
+`The Essential Air Service, which subsidizes flights to small airports, will run out of money on Sunday, and air traffic controllers who have been working without pay have begun calling in sick.`\
+https://nytimes.com/2025/10/06/us/politics/faa-essential-air-service-controllers.html
+
+**What I'm seeing with Rangers: Noah Laba, Conor Sheary in good spots, power-play updates**\
+`"It's always nice to get rewarded for performing well and your hard work," Laba said.`\
+https://nytimes.com/athletic/6694305/2025/10/06/rangers-noah-laba-conor-sheary-roster/
+
 **How to watch NHL games in 2025-26: TV channels, streaming info and broadcast schedules**\
 `National and local broadcasts will be scattered across over-the-air antennas, cable packages and a variety of streaming services.`\
 https://nytimes.com/athletic/6689390/2025/10/06/nhl-television-broadcast-streaming-2025/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/10/06/us/politics/abrego-garcia-court-hearing.html
 **Trump Gave a Partisan Speech to Navy Troops, to Mixed Reactions**\
 `President Trump’s attempts to politicize the military have become more overt as he makes the case for having troops at his disposal in American cities.`\
 https://nytimes.com/2025/10/06/us/politics/trump-navy-portland-troops.html
-
-**Winners and losers of Connor McDavid's contract extension: Oilers get a discount, Leafs miss out**\
-`The fallout from this extension will be felt league-wide, as one of hockey's best players ever has given his team a huge hometown discount.`\
-https://nytimes.com/athletic/6694128/2025/10/06/connor-mcdavid-contract-extension-oilers-winners-losers/
-
-**Panthers' Seth Jones 'taken aback' by Blackhawks' Nick Foligno's post-trade swipes, but no ill will**\
-`Jones said he talked to Foligno about it, and Foligno had no ill will toward Jones on Monday.`\
-https://nytimes.com/athletic/6694457/2025/10/06/panthers-seth-jones-blackhawks-nick-foligno-post-trade-swipes/
-
-**Trump Aimed Shutdown Cuts at Democrats, but G.O.P. Districts Are Hit, Too**\
-`As the president cancels projects in Democratic-run states, he is cutting money that benefits his own party’s lawmakers in some of the most competitive House districts.`\
-https://nytimes.com/2025/10/06/us/politics/republican-districts-political-pain-program-cancellations.html
-
-**Submit questions for Vic Tafur's 49ers mailbag**\
-`I stole the San Francisco 49ers mailbag from Matt Barrows this week, but it’s empty. Help me fill it up!`\
-https://nytimes.com/athletic/6694437/2025/10/06/49ers-mailbag-questions-vic-tafur/
-
-**Why did Connor McDavid take such a discount? Does this re-set the NHL market? Johnston and LeBrun**\
-`The Athletic's NHL insiders react to McDavid's two-year, $12.5 million AAV contract extension with the Oilers.`\
-https://nytimes.com/athletic/6694303/2025/10/06/connor-mcdavid-extension-insider-analysis/
 
