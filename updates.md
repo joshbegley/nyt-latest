@@ -1,3 +1,11 @@
+**Verizon Bets on PayPal’s Former Chief to Lead Its Next Chapter**\
+`Dan Schulman takes over as the telecoms giant faces slowing subscriber growth and rising competition.`\
+https://nytimes.com/2025/10/06/business/new-verizon-ceo-dan-schulman.html
+
+**Why this October international break is the last of its kind**\
+`From 2026 onwards, two breaks will be condensed into one two-week period which covers the final full week of September into early October.`\
+https://nytimes.com/athletic/6630433/2025/10/06/fifa-international-break-change-length/
+
 **Why this October international break is the last of its kind**\
 `From 2026 onwards, this will be condensed into a two-week period which covers the final full week of September into early October.`\
 https://nytimes.com/athletic/6630433/2025/10/06/fifa-international-break-change-length/
