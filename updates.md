@@ -1,4 +1,8 @@
 **Disjointed Bills can't get back on script en route to surprising loss**\
+`Josh Allen: "It was a pretty pivotal game in terms of what we could have done with this. And we didn't take advantage of our opportunity."`\
+https://nytimes.com/athletic/6693211/2025/10/06/disjointed-bills-surprising-loss-patriots/
+
+**Disjointed Bills can't get back on script en route to surprising loss**\
 `Josh Allen: "ti was a pretty pivotal game in terms of what we could have done with this. And we didn't take advantage of our opportunity."`\
 https://nytimes.com/athletic/6693211/2025/10/06/disjointed-bills-surprising-loss-patriots/
 
