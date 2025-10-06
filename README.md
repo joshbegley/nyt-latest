@@ -1,3 +1,11 @@
+**Pushback at Trump and Troops in Portland**\
+`Readers object to President Trump’s use of the military in American cities. Also: ICE at the Super Bowl.`\
+https://nytimes.com/2025/10/06/opinion/portland-national-guard-trump.html
+
+**Elected but Not Seated, Grijalva Waits to Sign Epstein Petition**\
+`The Democratic representative-elect won her Arizona seat overwhelmingly. But so far, the Republican speaker will not swear her in.`\
+https://nytimes.com/2025/10/06/us/politics/adelita-grijalva-house-epstein.html
+
 **2026 Stanley Cup odds: Oilers, Golden Knights favored, Panthers drop due to injuries**\
 `The favorites to win the Stanley Cup are the usual contenders for the last few years, but injuries dropped the Florida Panthers a few spots.`\
 https://nytimes.com/athletic/6694145/2025/10/06/stanley-cup-odds-golden-knights-oilers-panthers/
@@ -24,18 +32,10 @@ https://nytimes.com/athletic/6694198/2025/10/06/ja-morant-week-to-week-ankle-spr
 https://nytimes.com/athletic/6693795/2025/10/06/drake-maye-bill-belichick-unc-patriots-ban/
 
 **What Is the National Guard?**\
-`The state-based military force is made up from part-time soldiers and can be activated by a governor or the president.`\
+`The state-based military force is made up mainly of part-time soldiers and organized by state. It can be activated by the state governor or by the president.`\
 https://nytimes.com/2025/10/06/us/what-is-national-guard.html
 
 **College football Week 7 odds: Several ranked teams on upset alert**\
 `There are three top-25 matchups and several ranked teams favored by less than a touchdown or underdogs this week.`\
 https://nytimes.com/athletic/6693898/2025/10/06/college-football-week-7-odds-ranked-teams-upset-alert/
-
-**Fire at Home of South Carolina Judge Injures Three**\
-`Authorities are investigating the cause of a fire that engulfed the home of Circuit Court Judge Diane Goodstein. Last month, the judge temporarily blocked South Carolina from giving the Department of Justice its entire state voter database.`\
-https://nytimes.com/video/us/politics/100000010441597/south-carolina-judge-home-fire-injures-three.html
-
-**U.S. soccer 'monitoring' North African protests ahead of Women's World Cup**\
-`The demonstrations have been fueled by growing anger over heavy spending on preparations for FIFA’s 2030 men’s World Cup.`\
-https://nytimes.com/athletic/6694058/2025/10/06/us-soccer-north-african-protests-womens-world-cup/
 

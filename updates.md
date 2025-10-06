@@ -1,3 +1,8 @@
+**Earick 'does not intend to make a firm offer' to buy Spurs**\
+`Earick’s statement, released on Monday evening, brings an end to 11 days of speculation over a possible move to buy Tottenham.
+`\
+https://nytimes.com/athletic/6694304/2025/10/06/tottenham-news-ownership-earick-offer/
+
 **2026 Stanley Cup odds: Oilers, Golden Knights favored, Panthers drop due to injuries**\
 `The favorites to win the Stanley Cup are the usual contenders for the last few years, but injuries dropped the Florida Panthers a few spots.`\
 https://nytimes.com/athletic/6694145/2025/10/06/stanley-cup-odds-golden-knights-oilers-panthers/
