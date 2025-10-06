@@ -1,3 +1,15 @@
+**More injury woes for Chargers, as rookie RB Omarion Hampton heads to IR**\
+`Already playing without both starting offensive tackles, L.A.'s offense now loses its promising rookie back for at least four weeks.`\
+https://nytimes.com/athletic/6695046/2025/10/06/omarion-hampton-chargers-ir-ankle-injury/
+
+**Neighbors Warn Neighbors as Fear of ICE Ripples Across Chicago**\
+`Parents are standing guard at schools. Restaurants have stopped delivering food or simply closed. “Every single person who looks brown is scared,” a lawyer said.`\
+https://nytimes.com/2025/10/06/us/fear-ice-chicago.html
+
+**Supreme Court, for Now, Rejects Google Bid to Block Changes to App Store**\
+`The emergency order is the latest turn in a longstanding legal dispute between the tech giant and the creator of the popular game Fortnite.`\
+https://nytimes.com/2025/10/06/us/politics/supreme-court-google-fortnite.html
+
 **Danila Yurov, Liam Ohgren make Wild opening night roster, but not in second-line spot team hoped**\
 `With Mats Zuccarello out, Minnesota challenged its top forward prospects to grab his lineup spot. Neither did.`\
 https://nytimes.com/athletic/6694946/2025/10/06/wild-opening-night-roster-yurov-ohgren/

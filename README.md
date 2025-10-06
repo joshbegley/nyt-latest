@@ -1,3 +1,7 @@
+**Troops Head to Chicago, Despite Efforts to Block Them**\
+`Also, Gaza peace talks took place in Egypt. Here’s the latest at the end of Monday.`\
+https://nytimes.com/2025/10/06/briefing/trump-national-guard-chicago-international-students.html
+
 **More injury woes for Chargers, as rookie RB Omarion Hampton heads to IR**\
 `Already playing without both starting offensive tackles, L.A.'s offense now loses its promising rookie back for at least four weeks.`\
 https://nytimes.com/athletic/6695046/2025/10/06/omarion-hampton-chargers-ir-ankle-injury/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/06/nyregion/eric-adams-albania.html
 **Senators owner Michael Andlauer takes shot at Canadiens in discussing Quebec City trip**\
 `Andlauer also provided updates about the team's ongoing LeBreton Flats arena saga, having met with members of the Algonquin community.`\
 https://nytimes.com/athletic/6694394/2025/10/06/senators-owner-michael-andlauer-canadiens-quebec-city/
-
-**Israel at War With Itself**\
-`On the second anniversary of the Oct. 7 attacks, Roger Cohen explains how the war in Gaza has left Israel divided and isolated.`\
-https://nytimes.com/2025/10/06/world/israel-war-france-resignation-everest-oktoberfest.html
 
