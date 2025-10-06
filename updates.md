@@ -1,3 +1,11 @@
+**OpenAI’s Team of Rivals**\
+`The artificial intelligence giant just announced a major partnership with AMD — weeks after striking a big deal with the chipmaker’s competitor, Nvidia.`\
+https://nytimes.com/2025/10/06/business/dealbook/openai-amd-nvidia.html
+
+**USMNT Player Tracker: Pulisic's penalty woe, Wright on top, and Banks impresses grandma**\
+`Our roundup of the weekend's European action also includes Patrick Agyemang opening his Derby account, while James Sands impresses again`\
+https://nytimes.com/athletic/6693334/2025/10/06/usmnt-pulisic-wright-banks-tracker/
+
 **Notre Dame final thoughts: The Leonard Moore Effect and more October optimism**\
 `With the top Irish DB looking healthy and the defensive line stepping up, Notre Dame appears to have it together after a shaky September.`\
 https://nytimes.com/athletic/6693396/2025/10/06/notre-dame-boise-state-leonard-moore/

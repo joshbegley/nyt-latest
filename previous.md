@@ -1,3 +1,11 @@
+**OpenAI’s Team of Rivals**\
+`The artificial intelligence giant just announced a major partnership with AMD — weeks after striking a big deal with the chipmaker’s competitor, Nvidia.`\
+https://nytimes.com/2025/10/06/business/dealbook/openai-amd-nvidia.html
+
+**USMNT Player Tracker: Pulisic's penalty woe, Wright on top, and Banks impresses grandma**\
+`Our roundup of the weekend's European action also includes Patrick Agyemang opening his Derby account, while James Sands impresses again`\
+https://nytimes.com/athletic/6693334/2025/10/06/usmnt-pulisic-wright-banks-tracker/
+
 **Notre Dame final thoughts: The Leonard Moore Effect and more October optimism**\
 `With the top Irish DB looking healthy and the defensive line stepping up, Notre Dame appears to have it together after a shaky September.`\
 https://nytimes.com/athletic/6693396/2025/10/06/notre-dame-boise-state-leonard-moore/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6693232/2025/10/06/inside-newcastle-chris-waugh-ans
 **Inside Real Madrid: Vinicius Jr's return to form (with help from Mbappe), international break injury fears**\
 `The Brazilian is firing on all cylinders again, but Madrid will be hoping their stars remain fit while away with their countries`\
 https://nytimes.com/athletic/6693325/2025/10/06/inside-real-madrid-vinicius-mbappe/
-
-**After years waiting, 'Mr. UCLA' finally got his chance to call plays. It was worth the wait**\
-`For college football coaches who know UCLA "institution" Jerry Neuheisel, Saturday's miracle win is that much sweeter.`\
-https://nytimes.com/athletic/6692196/2025/10/06/ucla-jerry-neuheisel-penn-state-upset-win/
-
-**Fears of Economic Turmoil Deepen in France as Another Prime Minister Quits**\
-`The surprise resignation of Sébastien Lecornu after less than a month in office intensified concerns that France would be unable to tackle its enormous debt pile.`\
-https://nytimes.com/2025/10/06/business/france-economy-markets-politics.html
 
