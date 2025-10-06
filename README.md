@@ -1,40 +1,40 @@
-**Jilly Cooper, British Romance Novelist, Is Dead at 88**\
-`A prolific writer and keen observer, she sold millions of copies of her juicy, sometimes racy “Rutshire Chronicles” series.`\
-https://nytimes.com/2025/10/06/books/jilly-cooper-dead.html
+**Giancarlo Stanton’s 'kick in the ass' team meeting sparked Yankees. Can his message fuel them again?**\
+`In the Aug. 4 meeting, Stanton laid into his teammates and challenged them to play up to their talent. Can they channel his message again? `\
+https://nytimes.com/athletic/6692887/2025/10/06/giancarlo-stanton-yankees-team-meeting-texas-mlb-playoffs/
 
-**Internal Audits Shed Light on Ukraine’s Secret Weapons Spending**\
-`The government reviews show the country’s challenge as U.S. support wanes and Kyiv pivots to production from a domestic arms industry with a long history of corruption.`\
-https://nytimes.com/2025/10/06/world/europe/ukraine-war-weapons-defense-contracts-payments.html
+**Chiefs say Kingsley Suamataia was 'on fire.' It's one of K.C.'s best developments**\
+`The Chiefs' second-year offensive lineman says memories from a challenging rookie season have been the fuel for his quick rise in 2025.`\
+https://nytimes.com/athletic/6689493/2025/10/06/chiefs-kingsley-suamataia-development/
 
-**Rosenthal: The Yankees' season is on the line. So are their chances to maximize peak Aaron Judge**\
-`The Yankees will need to win three in a row over the Blue Jays to overcome a 2-0 deficit in the American League Division Series.`\
-https://nytimes.com/athletic/6692913/2025/10/06/aaron-judge-yankees-window-alds/
+**Chiefs at Jaguars on MNF: Mahomes vs. Lawrence, odds and broadcast predictions**\
+`Here's one real prop and a few broadcast predictions for tonight's "Monday Night Football" game down in Jacksonville.`\
+https://nytimes.com/athletic/6684917/2025/10/06/chiefs-jaguars-mnf-nfl-taylor-swift-travis-kelce-how-to-watch/
 
-**How to watch South Florida at North Texas: Time, TV, streaming**\
-`Find out how to watch the South Florida Bulls play the North Texas Mean Green, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6693284/2025/10/06/south-florida-vs-north-texas-stream-how-to-watch-oct-10/
+**Emotions, support and TDs: David Montgomery's return to Cincinnati brings it all out**\
+`Montgomery played in his hometown in front of friends and family, including his sister Kiki, and called it "super meaningful."`\
+https://nytimes.com/athletic/6692962/2025/10/06/lions-david-montgomery-hometown-emotional-return/
 
-**Nobel Prize in Physiology or Medicine Is Awarded for Work on Immune Systems**\
-`Mary E. Brunkow, Fred Ramsdell and Shimon Sakaguchi were awarded the prize for research showing how the body regulates its immune responses.`\
-https://nytimes.com/2025/10/06/health/nobel-prize-medicine-physiology.html
+**Baker Mayfield-Sam Darnold duel brings shades of Peyton Manning-Tony Romo**\
+`The former Panthers teammates lit up the scoreboard much in the way that Manning and Romo did in Dallas in an epic 2013 meeting.`\
+https://nytimes.com/athletic/6693245/2025/10/06/baker-mayfield-sam-darnold-duel-brings-shades-of-peyton-manning-tony-romo/
 
-**What we learned in NFL Week 5: More Buccaneers late-game magic, Jets hit new low**\
-`It was a Sunday of comebacks across the NFL, and after the dust finally settled, there wasn't an unbeaten left.`\
-https://nytimes.com/athletic/6692670/2025/10/06/nfl-week-5-takeaways-baker-mayfield-buccaneers/
+**These aren't Peyton Manning's Colts, but you'd never know it from the efficiency**\
+`The Colts are off to one of their best five-game starts this century, which is saying something considering the standard Manning set.`\
+https://nytimes.com/athletic/6693252/2025/10/06/colts-daniel-jones-peyton-manning/
 
-**Singapore Grand Prix: Submit your questions for our F1 mailbag**\
-`What questions do you have for our F1 writers after the 2025 Azerbaijan Grand Prix?`\
-https://nytimes.com/athletic/6693026/2025/10/06/singapore-grand-prix-f1-mailbag/
+**The Eagles' offensive issues finally cost them a game. What's the deal?**\
+`The Eagles ran the ball shockingly little on Sunday. Why? And how much worse are they this season than at the start of 2024?`\
+https://nytimes.com/athletic/6693249/2025/10/06/eagles-broncos-jalen-hurts-saquon-barkley/
 
-**‘More eyeballs on you:’ Cameras, iPads, the pitch clock feed MLB’s growing pitch-tipping paranoia**\
-`Long sleeves, chewing gum, and fake tells for hitters seeking an edge — it’s all tradecraft in the secret battle raging within every game.`\
-https://nytimes.com/athletic/6691711/2025/10/06/mlb-pitch-tipping-paranoia-camera-ipads-pitch-clock/
+**Supreme Court Starts Consequential Term, and Illinois Governor Warns of ‘Trump’s Invasion’**\
+`Plus, when Silicon Valley comes to the farm.`\
+https://nytimes.com/2025/10/06/podcasts/the-headlines/supreme-court-llinois-trump.html
 
-**The New York Times International Edition in Print for Tuesday, Oct. 7, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/10/06/todays-new-york-times-international-edition
+**As the Tigers come home, can the lessons of a long voyage carry them through the ALDS?**\
+`With the series tied at one game apiece, the Tigers will return home for the first time in 14 days for Game 3 of the ALDS.`\
+https://nytimes.com/athletic/6693064/2025/10/06/detroit-tigers-alds-lessons-seattle-mariners/
 
-**The truth about tennis court speed and Roger Federer's comments on Alcaraz and Sinner**\
-`The tennis great's comments on whether slower courts benefit the two top men's players provoked heated discussion.`\
-https://nytimes.com/athletic/6682720/2025/10/06/tennis-court-speed-federer-zverev-sinner-alcaraz/
+**One burning question for each NBA team as preseason heats up**\
+`With every squad, there's at least one thing that has us scratching our heads as the regular season looms.`\
+https://nytimes.com/athletic/6658580/2025/10/06/nba-preseason-burning-questions-giannis-ja-morant/
 

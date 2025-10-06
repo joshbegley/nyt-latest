@@ -1,3 +1,7 @@
+**Jilly Cooper, British Romance Novelist, Is Dead at 88**\
+`A prolific writer and keen observer, she sold millions of copies of her juicy, sometimes racy “Rutshire Chronicles” series.`\
+https://nytimes.com/2025/10/06/books/jilly-cooper-dead.html
+
 **Internal Audits Shed Light on Ukraine’s Secret Weapons Spending**\
 `The government reviews show the country’s challenge as U.S. support wanes and Kyiv pivots to production from a domestic arms industry with a long history of corruption.`\
 https://nytimes.com/2025/10/06/world/europe/ukraine-war-weapons-defense-contracts-payments.html

@@ -1,3 +1,7 @@
+**Jilly Cooper, British Romance Novelist, Is Dead at 88**\
+`A prolific writer and keen observer, she sold millions of copies of her juicy, sometimes racy “Rutshire Chronicles” series.`\
+https://nytimes.com/2025/10/06/books/jilly-cooper-dead.html
+
 **Internal Audits Shed Light on Ukraine’s Secret Weapons Spending**\
 `The government reviews show the country’s challenge as U.S. support wanes and Kyiv pivots to production from a domestic arms industry with a long history of corruption.`\
 https://nytimes.com/2025/10/06/world/europe/ukraine-war-weapons-defense-contracts-payments.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todaysinyt/2025/10/06/todays-new-york-times-internatio
 **The truth about tennis court speed and Roger Federer's comments on Alcaraz and Sinner**\
 `The tennis great's comments on whether slower courts benefit the two top men's players provoked heated discussion.`\
 https://nytimes.com/athletic/6682720/2025/10/06/tennis-court-speed-federer-zverev-sinner-alcaraz/
-
-**Ravaged by War: Trying to Survive Gaza’s Present, Hoping for a Future**\
-`Two years of intense warfare in Gaza have left its people with a dismembered and disordered society. The destruction is vast and many Gazans have mental and physical wounds that could scar a generation.`\
-https://nytimes.com/2025/10/06/world/middleeast/israel-gaza-war.html
 
