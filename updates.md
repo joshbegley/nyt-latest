@@ -1,3 +1,11 @@
+**President Trump and the Supreme Court**\
+`Today, we look ahead at the potential consequences of the Supreme Court term that begins today.`\
+https://nytimes.com/2025/10/06/world/middleeast/trump-supreme-court-government-shutdown.html
+
+**Inside Barcelona: Flick's plans to fill the leadership void, Yamal fitness row continues**\
+`With Barca suffering a dip in form leading to back-to-back defeats, how is the manager intending to fix things?`\
+https://nytimes.com/athletic/6693282/2025/10/06/inside-barcelona-hansi-flick-lamine-yamal/
+
 **Daria Kasatkina becomes latest tennis player to end season early: 'I am at breaking point'**\
 `Kasatkina described the tennis schedule as 'too much' in announcing that she will not play again until 2026.`\
 https://nytimes.com/athletic/6693298/2025/10/06/tennis-schedule-daria-kasatkina-ends-season-early/
