@@ -1,3 +1,20 @@
+**Pushback at Trump and Troops in Portland**\
+`Readers object to President Trump’s use of the military in American cities. Also: ICE at the Super Bowl.`\
+https://nytimes.com/2025/10/06/opinion/portland-national-guard-trump.html
+
+**Elected but Not Seated, Grijalva Waits to Sign Epstein Petition**\
+`The Democratic representative-elect won her Arizona seat overwhelmingly. But so far, the Republican speaker will not swear her in.`\
+https://nytimes.com/2025/10/06/us/politics/adelita-grijalva-house-epstein.html
+
+**Earick 'does not intend to make a firm offer' to buy Spurs**\
+`Earick’s statement, released on Monday evening, brings an end to 11 days of speculation over a possible move to buy Tottenham.
+`\
+https://nytimes.com/athletic/6694304/2025/10/06/tottenham-news-ownership-earick-offer/
+
+**What Is the National Guard?**\
+`The state-based military force is made up mainly of part-time soldiers and organized by state. It can be activated by the state governor or by the president.`\
+https://nytimes.com/2025/10/06/us/what-is-national-guard.html
+
 **Earick 'does not intend to make a firm offer' to buy Spurs**\
 `Earick’s statement, released on Monday evening, brings an end to 11 days of speculation over a possible move to buy Tottenham.
 `\
