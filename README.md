@@ -1,3 +1,7 @@
+**One thought for every player who made the Rangers' opening-night roster**\
+`Now that we know how New York is starting, let's discuss the state of the team by offering one observation per roster member.`\
+https://nytimes.com/athletic/6691456/2025/10/06/ny-rangers-roster-lineup-thoughts-2025-26/
+
 **How to watch North Carolina State at Notre Dame: Time, TV, streaming**\
 `Find out how to watch the North Carolina State Wolfpack play the Notre Dame Fighting Irish, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6694715/2025/10/06/north-carolina-state-vs-notre-dame-stream-how-to-watch-oct-11/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6694699/2025/10/06/virginia-tech-vs-georgia-tech-st
 **How to watch Oklahoma vs. Texas: Time, TV, streaming**\
 `Find out how to watch the Oklahoma Sooners play the Texas Longhorns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6694698/2025/10/06/oklahoma-vs-texas-stream-how-to-watch-oct-11/
-
-**How to watch Indiana at Oregon: Time, TV, streaming**\
-`Find out how to watch the Indiana Hoosiers play the Oregon Ducks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6694693/2025/10/06/indiana-vs-oregon-stream-how-to-watch-oct-11/
 
