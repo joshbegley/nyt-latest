@@ -1,3 +1,15 @@
+**Inside Real Madrid: Vinicius Jr's return to form (with help from Mbappe), international break injury fears**\
+`The Brazilian is firing on all cylinders again, but Madrid will be hoping their stars remain fit while away with their countries`\
+https://nytimes.com/athletic/6693325/2025/10/06/inside-real-madrid-vinicius-mbappe/
+
+**After years waiting, 'Mr. UCLA' finally got his chance to call plays. It was worth the wait**\
+`For college football coaches who know UCLA "institution" Jerry Neuheisel, Saturday's miracle win is that much sweeter.`\
+https://nytimes.com/athletic/6692196/2025/10/06/ucla-jerry-neuheisel-penn-state-upset-win/
+
+**Fears of Economic Turmoil Deepen in France as Another Prime Minister Quits**\
+`The surprise resignation of Sébastien Lecornu after less than a month in office intensified concerns that France would be unable to tackle its enormous debt pile.`\
+https://nytimes.com/2025/10/06/business/france-economy-markets-politics.html
+
 **Emari Demercado joins a dubious list. Why do NFL players keep committing goal-line goofs?**\
 `Yet another NFL player had difficulty figuring out how far he had to run to complete the act of scoring a touchdown on Sunday.`\
 https://nytimes.com/athletic/6692745/2025/10/06/nfl-dropped-ball-goal-line-fumble-emari-demercardo/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6691393/2025/10/06/49ers-rookies-alfred-collins-myk
 **Message Board Monday: Bobby Petrino-obsessed Arkansas fans and others on islands of shame**\
 `Yes, there are still Ohio State fans who think Ryan Day is a problem. And Florida fans who believe in Billy Napier. `\
 https://nytimes.com/athletic/6691297/2025/10/06/bobby-petrino-arkansas-ryan-day-ohio-state-message-boards/
-
-**How Texas A&M is thriving despite little impact from record-setting '22 recruiting class**\
-`Only six of the 30 signees in the Aggies' 2022 class signed by previous coach Jimbo Fisher are still on campus. `\
-https://nytimes.com/athletic/6683344/2025/10/06/texas-am-recruiting-2022-class/
-
-**What we learned at Blues camp and why it'll matter in 2025-26 and beyond**\
-`From lineup flexibility to where the prospects complement established NHL players, the Blues figured out a lot at training camp.`\
-https://nytimes.com/athletic/6685207/2025/10/06/blues-training-camp-montgomery-2025-26/
-
-**FPL Gameweek 7 Review: Semenyo is now non-negotiable and Saka steps up**\
-`Abdul Rehman has the latest analysis after another important Premier League weekend for FPL players`\
-https://nytimes.com/athletic/6691566/2025/10/06/fantasy-premier-league-gameweek-7-review-fpl/
 
