@@ -1,3 +1,7 @@
+**After another Colts rout, it's time to acknowledge them for what they are: contenders**\
+`INDIANAPOLIS — Braden Smith remembers how things used to be and the scars those failures have left behind.`\
+https://nytimes.com/athletic/6692076/2025/10/05/colts-contenders-raiders-daniel-jones-jonathan-taylor/
+
 **It took 147 seconds for the Jets to unravel against the Cowboys**\
 `A familiar fumble started a change reaction of mistakes that sparked a blowout loss.`\
 https://nytimes.com/athletic/6692693/2025/10/05/new-york-jets-blowout-loss-dallas-cowboys/
