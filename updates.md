@@ -1,3 +1,11 @@
+**Fire Consumes the Home of a South Carolina State Judge**\
+`Three people, who had to be rescued by kayak, were injured. The cause of the fire is under investigation.`\
+https://nytimes.com/2025/10/06/us/politics/goodstein-house-fire-south-carolina-judge-senator.html
+
+**Gisèle Pelicot Returns to French Court for Man’s Appeal**\
+`Gisèle Pelicot appeared in court to face the appeal of one of the men convicted of raping her while she was in a drugged state — encounters that her husband set up and recorded.`\
+https://nytimes.com/video/world/europe/100000010441598/gisele-pelicot-france-rape-trial.html
+
 **How Elon Musk Is Bringing Sexy A.I. Chatbots to the Mainstream**\
 `In July, the billionaire’s A.I. company introduced two sexually explicit chatbots, pushing a new version of intimacy.`\
 https://nytimes.com/2025/10/06/technology/elon-musk-grok-sexy-chatbot.html
