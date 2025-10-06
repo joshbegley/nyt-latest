@@ -1,3 +1,15 @@
+**Review: A ‘Don Giovanni’ Revival at the Met Must Be Heard**\
+`Ivo van Hove’s stark production of Mozart’s classic has returned to the Metropolitan Opera with a uniformly excellent cast.`\
+https://nytimes.com/2025/10/06/arts/music/don-giovanni-met-opera-review.html
+
+**Bessent Taps Social Security Chief to Serve as C.E.O. of I.R.S.**\
+`Frank Bisignano, who already leads the Social Security Administration, will also take on the day-to-day duties of the tax collector.`\
+https://nytimes.com/2025/10/06/business/frank-bisignano-social-security-chief-irs.html
+
+**The Pressure of Dating With a Fertility Deadline**\
+`For some single women in their 30s and 40s, their biological clocks add unwelcome stress to an already fraught process.`\
+https://nytimes.com/2025/10/06/well/family/dating-fertility-babies.html
+
 **Greta Thunberg Among Hundreds From Gaza Aid Flotilla Deported by Israel**\
 `Israel intercepted the boats at sea and detained the participants for days before expelling them. Some of the activists said they were mistreated, which Israel denied.`\
 https://nytimes.com/2025/10/06/world/middleeast/greta-thunberg-israel-deportation-gaza-flotilla.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/06/dining/a-better-broccoli-soup.html
 **Are You a True New Yorker? Take Our Quiz**\
 `Think you know the landmarks, legends and lore of the city that never stops reinventing itself? See how well you measure up.`\
 https://nytimes.com/interactive/2025/10/06/nyregion/07futureNYC-quiz.html
-
-**Aces Take 2-0 Finals Lead**\
-`The Las Vegas Aces beat the Phoenix Mercury 91-78 to take a 2-0 lead in the W.N.B.A. Finals.`\
-https://nytimes.com/video/the-athletic/100000010441268/aces-take-2-0-finals-lead.html
-
-**Williamson's Arsenal return expected before Christmas, Slegers says**\
-`The 28-year-old injured her knee during England's 2025 European Championship-winning campaign.`\
-https://nytimes.com/athletic/6693754/2025/10/06/leah-williamson-arsenal-knee-injury/
-
-**Here’s the latest.**\
-`By Julie Bosman, Shawn Hubler, Anna Griffin and Eric Schmitt`\
-https://nytimes.com/live/2025/10/06/us/national-guard-trump-oregon-chicago/heres-the-latest
 
