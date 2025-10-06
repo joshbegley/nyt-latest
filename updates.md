@@ -1,3 +1,7 @@
+**Brian Schottenheimer 'back in my bag' as Cowboys win big without multiple starters**\
+`Jerry Jones called it a "great coaching job" with six offensive starters, including four offensive linemen, out against the Jets.`\
+https://nytimes.com/athletic/6692440/2025/10/05/cowboys-brian-schottenheimer-dak-prescott-jets/
+
 **Are the Las Vegas Aces unstoppable? So far, the Phoenix Mercury can't figured them out**\
 `The Aces put on another masterclass to take a 2-0 WNBA Finals lead.`\
 https://nytimes.com/athletic/6692556/2025/10/05/las-vegas-aces-phoenix-mercury-wnba-finals-game-2/
