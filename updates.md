@@ -1,3 +1,7 @@
+**Cardinals collapse vs. Titans 'worst Survivor beat of all time,' good for sportsbooks**\
+`The improbable Titans comeback led to a brutal day for both Survivor players who picked the Cardinals and bettors who backed them.`\
+https://nytimes.com/athletic/6694487/2025/10/06/cardinals-collapse-titans-survivor-nfl-week-5-betting/
+
 **Deadly North Dakota Tornado Was a Rare EF5, Weather Service Says**\
 `Experts reassessed the damage from a tornado that left three people dead in June, and gave it the strongest possible rating on the tornado scale.`\
 https://nytimes.com/2025/10/06/weather/enderlin-nd-tornado-ef5.html
