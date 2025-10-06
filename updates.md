@@ -1,3 +1,23 @@
+**Hutson’s ‘hands-off’ approach to contract talks lets him focus on improving on the ice**\
+`Lane Hutson's next contract is top of mind in Montreal, but his focus remains on his pursuit of becoming a finished product.`\
+https://nytimes.com/athletic/6695132/2025/10/06/canadiens-lane-hutson-contract-defence-size/
+
+**Opening a Restaurant in New York Is No Picnic. Here’s What It Takes.**\
+`A year in the making of a rookie’s first restaurant.`\
+https://nytimes.com/interactive/2025/10/06/dining/how-to-open-restaurant-nyc.html
+
+**Trump Signs Order to Approve Mining Road Through Alaskan Wilderness**\
+`The executive order also made the federal government a 10 percent shareholder in the mining company Trilogy Metals.`\
+https://nytimes.com/2025/10/06/climate/mining-ambler-road-alaska-executive-order.html
+
+**Ken Jacobs, Visionary of Avant-Garde Film, Is Dead at 92**\
+`Using found footage and toying with dimensions (2-D could seem like dazzling 3-D), he sought to explode cinema’s traditional boundaries.`\
+https://nytimes.com/2025/10/06/movies/ken-jacobs-dead.html
+
+**Connor McDavid's 'extremely unusual' extension clearly defines stakes for Oilers**\
+`The Oilers must show McDavid the future can be bright beyond 2028, when his new contract is set to conclude.`\
+https://nytimes.com/athletic/6694956/2025/10/06/connor-mcdavid-contract-extension-oilers-roster/
+
 **Trump Calls Off Diplomatic Outreach to Venezuela**\
 `The move paves the way for a possible military escalation against drug traffickers or the government of Nicolás Maduro.`\
 https://nytimes.com/2025/10/06/us/politics/trump-venezuela-maduro.html
