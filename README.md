@@ -1,3 +1,7 @@
+**Aaron Glenn is buried under the monumental challenge of being the Jets coach**\
+`Glenn has found out the hard way that you don’t reverse the Jets' fortunes merely by firing Aaron Rodgers and acting like a tough guy.`\
+https://nytimes.com/athletic/6692394/2025/10/05/aaron-glenn-jets-head-coach-challenge-nfl/
+
 **In latest blowout loss, Ravens look and sound like a team without any answers**\
 `At 1-4, John Harbaugh's Ravens have matched the 2015 team for the worst start in franchise history.`\
 https://nytimes.com/athletic/6692318/2025/10/05/ravens-loss-john-harbaugh-texans/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6691946/2025/10/05/commanders-chargers-score-result
 **After a new low, Geno Smith, Pete Carroll and the Raiders have nowhere to look but in**\
 `“I’m processing it poorly, to tell you the truth,” Carroll said. “Because I did expect to win right out of the chute.”`\
 https://nytimes.com/athletic/6692390/2025/10/05/las-vegas-raiders-loss-indianapolis-colts/
-
-**Buccaneers-Seahawks takeaways: Baker Mayfield, late pick spark walk-off win**\
-`Sam Darnold's brilliant day (341 yards and four touchdown passes) marred by late interception in 38-35 loss. `\
-https://nytimes.com/athletic/6692149/2025/10/05/buccaneers-seahawks-score-result-takeaways-nfl/
 
