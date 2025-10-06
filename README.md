@@ -1,40 +1,40 @@
-**President Trump and the Supreme Court**\
-`Today, we look ahead at the potential consequences of the Supreme Court term that begins today.`\
-https://nytimes.com/2025/10/06/world/middleeast/trump-supreme-court-government-shutdown.html
+**Emari Demercado joins a dubious list. Why do NFL players keep committing goal-line goofs?**\
+`Yet another NFL player had difficulty figuring out how far he had to run to complete the act of scoring a touchdown on Sunday.`\
+https://nytimes.com/athletic/6692745/2025/10/06/nfl-dropped-ball-goal-line-fumble-emari-demercardo/
 
-**Inside Barcelona: Flick's plans to fill the leadership void, Yamal fitness row continues**\
-`With Barca suffering a dip in form leading to back-to-back defeats, how is the manager intending to fix things?`\
-https://nytimes.com/athletic/6693282/2025/10/06/inside-barcelona-hansi-flick-lamine-yamal/
+**2025-26 NHL Goalie Tiers: Anonymous panel of coaches and goalies rates every starter**\
+`Let's dive into analyzing 38 NHL goalies, with expert insights into their strengths and weaknesses.`\
+https://nytimes.com/athletic/6680723/2025/10/06/2025-26-nhl-goalie-tiers-anonymous-panel-of-coaches-and-goalies-rate-every-starter/
 
-**Daria Kasatkina becomes latest tennis player to end season early: 'I am at breaking point'**\
-`Kasatkina described the tennis schedule as 'too much' in announcing that she will not play again until 2026.`\
-https://nytimes.com/athletic/6693298/2025/10/06/tennis-schedule-daria-kasatkina-ends-season-early/
+**Collin Murray-Boyles is here to annoy star forwards, even if they play for the Raptors**\
+`The ninth pick in the 2025 NBA draft has proven himself to be an irritant, in a good way, to Scottie Barnes during training camp.`\
+https://nytimes.com/athletic/6689406/2025/10/06/collin-murray-boyles-raptors-training-camp/
 
-**TAFC: Life in the Premier League pressure cooker and a wind-assisted own goal**\
-`Today in TAFC: Mixed fortunes for under-pressure Premier League managers and the twisted logic of the '007' jibe `\
-https://nytimes.com/athletic/6693300/2025/10/06/athletic-fc-newsletter-postecoglou-premier-league/
+**Is Texas done? Taking stock of where 2024 College Football Playoff teams stand**\
+`Five of the 12 teams that made the CFP field in 2024 are unranked after five weeks of the 2025 season. `\
+https://nytimes.com/athletic/6692269/2025/10/06/college-football-playoff-texas-penn-state-notre-dame/
 
-**What we're hearing about the Cubs' pitching outlook ahead of NLDS Game 2**\
-`Injured rookie Cade Horton is scheduled to throw off the mound this week at Wrigley Field. `\
-https://nytimes.com/athletic/6692156/2025/10/06/chicago-cubs-nlds-game-2-pitching-outlook/
+**WATCH: NFL highlights from all of Sunday's games**\
+`If upsets and blowouts are your thing, Sunday of Week 5 delivered. `\
+https://nytimes.com/athletic/6692325/2025/10/06/nfl-highlights-week-5-video/
 
-**The Pulse: NFL musical chairs**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6692783/2025/10/06/buccaneers-seahawks-bills-patriots-the-pulse/
+**49ers rookie review: Win over Rams added luster to an already promising class**\
+`Three 49ers rookies were on the field for the game's two most pivotal plays, and three others also played significant roles Thursday.`\
+https://nytimes.com/athletic/6691393/2025/10/06/49ers-rookies-alfred-collins-mykel-williams/
 
-**As two-time champion Panthers enter uncharted territory, fatigue is no match for fun**\
-`It's been over 40 years since a team last made four consecutive Stanley Cup finals. The Panthers are determined to reset that counter.`\
-https://nytimes.com/athletic/6691500/2025/10/06/florida-panthers-nhl-stanley-cup-fatigue-2025-26/
+**Message Board Monday: Bobby Petrino-obsessed Arkansas fans and others on islands of shame**\
+`Yes, there are still Ohio State fans who think Ryan Day is a problem. And Florida fans who believe in Billy Napier. `\
+https://nytimes.com/athletic/6691297/2025/10/06/bobby-petrino-arkansas-ryan-day-ohio-state-message-boards/
 
-**Giancarlo Stanton’s 'kick in the ass' team meeting sparked Yankees. Can his message fuel them again?**\
-`In the Aug. 4 meeting, Stanton laid into his teammates and challenged them to play up to their talent. Can they channel his message again? `\
-https://nytimes.com/athletic/6692887/2025/10/06/giancarlo-stanton-yankees-team-meeting-texas-mlb-playoffs/
+**How Texas A&M is thriving despite little impact from record-setting '22 recruiting class**\
+`Only six of the 30 signees in the Aggies' 2022 class signed by previous coach Jimbo Fisher are still on campus. `\
+https://nytimes.com/athletic/6683344/2025/10/06/texas-am-recruiting-2022-class/
 
-**Chiefs say Kingsley Suamataia was 'on fire.' It's one of K.C.'s best developments**\
-`The Chiefs' second-year offensive lineman says memories from a challenging rookie season have been the fuel for his quick rise in 2025.`\
-https://nytimes.com/athletic/6689493/2025/10/06/chiefs-kingsley-suamataia-development/
+**What we learned at Blues camp and why it'll matter in 2025-26 and beyond**\
+`From lineup flexibility to where the prospects complement established NHL players, the Blues figured out a lot at training camp.`\
+https://nytimes.com/athletic/6685207/2025/10/06/blues-training-camp-montgomery-2025-26/
 
-**Chiefs at Jaguars on MNF: Mahomes vs. Lawrence, odds and broadcast predictions**\
-`Here's one real prop and a few broadcast predictions for tonight's "Monday Night Football" game down in Jacksonville.`\
-https://nytimes.com/athletic/6684917/2025/10/06/chiefs-jaguars-mnf-nfl-taylor-swift-travis-kelce-how-to-watch/
+**FPL Gameweek 7 Review: Semenyo is now non-negotiable and Saka steps up**\
+`Abdul Rehman has the latest analysis after another important Premier League weekend for FPL players`\
+https://nytimes.com/athletic/6691566/2025/10/06/fantasy-premier-league-gameweek-7-review-fpl/
 
