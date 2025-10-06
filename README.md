@@ -1,9 +1,17 @@
+**Israel at War With Itself**\
+`On the second anniversary of the Oct. 7 attacks, Roger Cohen explains how the war in Gaza has left Israel divided and isolated.`\
+https://nytimes.com/2025/10/06/world/israel-war-france-resignation-everest-oktoberfest.html
+
+**Max Scherzer’s advice for taming Yankee Stadium in October and other Blue Jays notes**\
+`Scherzer isn't on the Jays' ALDS roster but he has plenty of wisdom to pass on to his teammates about pitching in New York in October.`\
+https://nytimes.com/athletic/6694223/2025/10/06/blue-jays-alds-max-scherzer-yankee-stadium-notes/
+
 **Bills benched WR Keon Coleman for first series vs. Patriots**\
 `Coleman was disciplined last season for not being on time.`\
 https://nytimes.com/athletic/6694953/2025/10/06/bills-keon-coleman-benched-patriots/
 
 **Flyers depth chart 3.0: Zegras the 1C; Luchanko makes the cut; Bump, Andrae fall short**\
-`VOORHEES, New Jersey — Philadelphia Flyers general manager Daniel Briere dropped an unfortunate bit of news on Monday morning.`\
+`Philadelphia has settled its key questions ahead of Thursday's season opener against the Panthers.`\
 https://nytimes.com/athletic/6694677/2025/10/06/flyers-depth-chart-3-0-zegras-the-top-center-luchanko-makes-the-cut-bump-andrae-fall-short/
 
 **A Campaign to ‘Bring Back Bullying’**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/06/us/politics/shutdown-republicans-trump-government
 **A Marine Park in Canada Warns That It May Euthanize 30 Beluga Whales**\
 `The government has barred Marineland from shipping its whales to an aquarium in China so the park is threatening to put the whales down.`\
 https://nytimes.com/2025/10/06/world/canada/marineland-canada-beluga-whales.html
-
-**C.I.A. Deputy Director Has Replaced Agency’s Top Legal Official With Himself**\
-`It is not clear what is behind the move by Michael Ellis, a Trump loyalist. A legal ethics specialist said it could raise conflict-of-interest issues.`\
-https://nytimes.com/2025/10/06/us/politics/michael-ellis-cia-trump.html
-
-**Man Breaks Into Washington State Capitol, Toppling Statues and Setting Fire**\
-`The vandalism did not appear to have been politically motivated, according to the Washington State Patrol, which said that a suspect was in custody.`\
-https://nytimes.com/2025/10/06/us/washington-state-capitol-vandalized.html
 
