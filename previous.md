@@ -1,3 +1,7 @@
+**Are You a True New Yorker? Take Our Quiz**\
+`Think you know the landmarks, legends and lore of the city that never stops reinventing itself? See how well you measure up.`\
+https://nytimes.com/interactive/2025/10/06/nyregion/07futureNYC-quiz.html
+
 **Aces Take 2-0 Finals Lead**\
 `The Las Vegas Aces beat the Phoenix Mercury 91-78 to take a 2-0 lead in the W.N.B.A. Finals.`\
 https://nytimes.com/video/the-athletic/100000010441268/aces-take-2-0-finals-lead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/06/business/new-verizon-ceo-dan-schulman.html
 **Why this October international break is the last of its kind**\
 `From 2026 onwards, two breaks will be condensed into one two-week period which covers the final full week of September into early October.`\
 https://nytimes.com/athletic/6630433/2025/10/06/fifa-international-break-change-length/
-
-**Groups Sue E.P.A. Over Canceled $7 Billion for Solar Energy**\
-`The lawsuit accused the Environmental Protection Agency of illegally revoking the money without congressional approval.`\
-https://nytimes.com/2025/10/06/climate/epa-solar-for-all-lawsuit.html
 

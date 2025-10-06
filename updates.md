@@ -1,3 +1,7 @@
+**Are You a True New Yorker? Take Our Quiz**\
+`Think you know the landmarks, legends and lore of the city that never stops reinventing itself? See how well you measure up.`\
+https://nytimes.com/interactive/2025/10/06/nyregion/07futureNYC-quiz.html
+
 **Aces Take 2-0 Finals Lead**\
 `The Las Vegas Aces beat the Phoenix Mercury 91-78 to take a 2-0 lead in the W.N.B.A. Finals.`\
 https://nytimes.com/video/the-athletic/100000010441268/aces-take-2-0-finals-lead.html

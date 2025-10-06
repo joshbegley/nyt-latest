@@ -1,3 +1,27 @@
+**Greta Thunberg Among Hundreds From Gaza Aid Flotilla Deported by Israel**\
+`Israel intercepted the boats at sea and detained the participants for days before expelling them. Some of the activists said they were mistreated, which Israel denied.`\
+https://nytimes.com/2025/10/06/world/middleeast/israel-deports-greta-thunberg-gaza.html
+
+**Reevaluating tight end talent for the rest of the fantasy football season**\
+`Things don't look great for the Raiders' young start, while a pair of young TEs in New York may be on the rise.`\
+https://nytimes.com/athletic/6693385/2025/10/06/fantasy-football-tight-ends-rest-of-season/
+
+**Jerry Jones gives middle finger to Jets fans. Will he be reprimanded?**\
+`In 2009, former Tennessee Titans owner Bud Adams was fined $250,000 for making an "obscene gesture" toward Buffalo Bills fans.`\
+https://nytimes.com/athletic/6693683/2025/10/06/jerry-jones-middle-finger-dallas-cowboys-jets/
+
+**Dan Muse knows the situation, and is prepared to work Penguins back to contention**\
+`Dan Muse, the new coach of the Penguins, is working to will his new team back to the top. `\
+https://nytimes.com/athletic/6680310/2025/10/06/pittsburgh-penguins-dan-muse-coach/
+
+**Man Utd head of academy recruitment Luke Fedorenko to leave club**\
+`Fedorenko, 35, joined the Old Trafford side in 2017 from Sheffield United.`\
+https://nytimes.com/athletic/6693611/2025/10/06/manchester-united-academy-luke-fedorenko/
+
+**A Better Broccoli Soup**\
+`A confident sear on the florets adds deep, caramelized notes to this complexly flavored (but easy to make) soup.`\
+https://nytimes.com/2025/10/06/dining/a-better-broccoli-soup.html
+
 **Are You a True New Yorker? Take Our Quiz**\
 `Think you know the landmarks, legends and lore of the city that never stops reinventing itself? See how well you measure up.`\
 https://nytimes.com/interactive/2025/10/06/nyregion/07futureNYC-quiz.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6693754/2025/10/06/leah-williamson-arsenal-knee-inj
 **Here’s the latest.**\
 `By Julie Bosman, Shawn Hubler, Anna Griffin and Eric Schmitt`\
 https://nytimes.com/live/2025/10/06/us/national-guard-trump-oregon-chicago/heres-the-latest
-
-**Live Updates: Illinois Sues Trump Over Guard Deployments, Expanding Multistate Fight**\
-`The lawsuit seeks to block the White House from sending Texas National Guard troops to Chicago. It came hours after a federal judge blocked deployments to Portland, Ore.`\
-https://nytimes.com/live/2025/10/06/us/national-guard-trump-oregon-chicago
-
-**Fighting in Gaza Continues Before Hamas-Israel Talks**\
-`Smoke rose above Gaza, where fighting has continued as Hamas and Israel planned to hold indirect talks in Egypt on the war in Gaza. Significant issues remain to be hashed out.`\
-https://nytimes.com/video/world/middleeast/100000010441020/gaza-fighting-israel-hamas-talks.html
-
-**Broncos run game has found its groove, but a key injury could test its sustainability**\
-`Starting guard Ben Powers, who hasn't missed a game since signing with Denver in 2023, suffered a biceps injury and didn't travel to London.`\
-https://nytimes.com/athletic/6691513/2025/10/06/broncos-ben-powers-injury-london/
-
-**Vikings mailbag: Submit your bye-week questions now for reporter Alec Lewis**\
-`The team has navigated an onslaught of injuries, including to young QB J.J. McCarthy. Any questions you want to ask, I’ll answer. Let's go!`\
-https://nytimes.com/athletic/6693827/2025/10/06/vikings-mailbag-bye-week-jj-mccarthy/
-
-**Verizon Bets on PayPal’s Former Chief to Lead Its Next Chapter**\
-`Dan Schulman takes over as the telecoms giant faces slowing subscriber growth and rising competition.`\
-https://nytimes.com/2025/10/06/business/new-verizon-ceo-dan-schulman.html
-
-**Why this October international break is the last of its kind**\
-`From 2026 onwards, two breaks will be condensed into one two-week period which covers the final full week of September into early October.`\
-https://nytimes.com/athletic/6630433/2025/10/06/fifa-international-break-change-length/
 
