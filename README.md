@@ -1,3 +1,7 @@
+**Are the Las Vegas Aces unstoppable? So far, the Phoenix Mercury can't figured them out**\
+`The Aces put on another masterclass to take a 2-0 WNBA Finals lead.`\
+https://nytimes.com/athletic/6692556/2025/10/05/las-vegas-aces-phoenix-mercury-wnba-finals-game-2/
+
 **Aaron Glenn is buried under the monumental challenge of being the Jets coach**\
 `Glenn has found out the hard way that you don’t reverse the Jets' fortunes merely by firing Aaron Rodgers and acting like a tough guy.`\
 https://nytimes.com/athletic/6692394/2025/10/05/aaron-glenn-jets-head-coach-challenge-nfl/
@@ -19,7 +23,7 @@ https://nytimes.com/athletic/6692547/2025/10/05/dodgers-vs-phillies-stream-how-t
 https://nytimes.com/athletic/6692381/2025/10/05/panthers-rico-dowdle-comeback-dolphins/
 
 **Lions-Bengals takeaways: Detroit's Jahmyr Gibbs, David Montgomery tie NFL record in win**\
-`Gibbs and Montgomery each scored a touchdown, marking this as the 14th game both scored, tying an NFL record.`\
+`Gibbs and Montgomery each had a touchdown, marking this as the 14th game both scored, tying an NFL record, according to Detroit's PR staff.`\
 https://nytimes.com/athletic/6692391/2025/10/05/lions-bengals-score-result-takeaways-nfl/
 
 **Titans-Cardinals takeaways: Tennessee rallies after Emari Demercado's blunder**\
@@ -27,14 +31,10 @@ https://nytimes.com/athletic/6692391/2025/10/05/lions-bengals-score-result-takea
 https://nytimes.com/athletic/6692257/2025/10/05/titans-cardinals-score-result-takeaways-nfl/
 
 **Christian Pulisic misses penalty in AC Milan's 0-0 draw with Juventus**\
-`U.`\
+`The USMNT star missed a chance to give Milan the lead over Juventus, and the two ultimately played to a scoreless draw`\
 https://nytimes.com/athletic/6692041/2025/10/05/christian-pulisic-misses-penalty-in-ac-milans-0-0-draw-with-juventus/
 
 **Commanders-Chargers takeaways: Jayden Daniels returns from injury to rally Washington**\
 `In his first start in Southern California, Daniels led the Commanders to a win at SoFi Stadium, 75 miles away from where he grew up.`\
 https://nytimes.com/athletic/6691946/2025/10/05/commanders-chargers-score-result-takeaways-nfl/
-
-**After a new low, Geno Smith, Pete Carroll and the Raiders have nowhere to look but in**\
-`“I’m processing it poorly, to tell you the truth,” Carroll said. “Because I did expect to win right out of the chute.”`\
-https://nytimes.com/athletic/6692390/2025/10/05/las-vegas-raiders-loss-indianapolis-colts/
 
