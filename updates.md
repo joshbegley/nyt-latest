@@ -1,3 +1,11 @@
+**Freed From Hamas, but Not Captivity**\
+`In the tunnels of Gaza where she was held captive, Emily Damari learned how to survive. These photos show her learning to be alive again.`\
+https://nytimes.com/2025/10/06/world/middleeast/emily-damari-hostage-israel.html
+
+**Trump Signs Order to Approve Mining Road Through Alaskan Wilderness**\
+`The executive order also made the federal government a 10 percent shareholder in the mining company Trilogy Metals.`\
+https://nytimes.com/2025/10/06/climate/trump-executive-order-mining-road-alaska.html
+
 **Hutson’s ‘hands-off’ approach to contract talks lets him focus on improving on the ice**\
 `Lane Hutson's next contract is top of mind in Montreal, but his focus remains on his pursuit of becoming a finished product.`\
 https://nytimes.com/athletic/6695132/2025/10/06/canadiens-lane-hutson-contract-defence-size/
