@@ -1,6 +1,6 @@
 **Greta Thunberg Among Hundreds From Gaza Aid Flotilla Deported by Israel**\
 `Israel intercepted the boats at sea and detained the participants for days before expelling them. Some of the activists said they were mistreated, which Israel denied.`\
-https://nytimes.com/2025/10/06/world/middleeast/israel-deports-greta-thunberg-gaza.html
+https://nytimes.com/2025/10/06/world/middleeast/greta-thunberg-israel-deportation-gaza-flotilla.html
 
 **Reevaluating tight end talent for the rest of the fantasy football season**\
 `Things don't look great for the Raiders' young start, while a pair of young TEs in New York may be on the rise.`\
