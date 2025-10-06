@@ -1,3 +1,11 @@
+**Giants fumble away win, remind us how adept they are at killing good vibes, beating themselves**\
+`The players change. An exciting rookie QB can even provide a jolt for a week. But these are still the Giants.`\
+https://nytimes.com/athletic/6692504/2025/10/05/giants-fumble-turnovers-jaxson-dart-saints/
+
+**Are the Las Vegas Aces unstoppable? So far, the Mercury can't figure them out**\
+`The Aces put on another masterclass to take a 2-0 WNBA Finals lead.`\
+https://nytimes.com/athletic/6692556/2025/10/05/las-vegas-aces-phoenix-mercury-wnba-finals-game-2/
+
 **Trump Calls Deadly Strikes on Boats in Caribbean an ‘Act of Kindness’**\
 `The president, speaking aboard an aircraft carrier off Norfolk, Va., repeated his claims that the boats were trafficking drugs bound for the United States.`\
 https://nytimes.com/2025/10/05/us/politics/trump-caribbean-strikes-drugs-kindness.html

@@ -1,3 +1,7 @@
+**Giants fumble away win, remind us how adept they are at killing good vibes, beating themselves**\
+`The players change. An exciting rookie QB can even provide a jolt for a week. But these are still the Giants.`\
+https://nytimes.com/athletic/6692504/2025/10/05/giants-fumble-turnovers-jaxson-dart-saints/
+
 **Trump Calls Deadly Strikes on Boats in Caribbean an ‘Act of Kindness’**\
 `The president, speaking aboard an aircraft carrier off Norfolk, Va., repeated his claims that the boats were trafficking drugs bound for the United States.`\
 https://nytimes.com/2025/10/05/us/politics/trump-caribbean-strikes-drugs-kindness.html
@@ -6,7 +10,7 @@ https://nytimes.com/2025/10/05/us/politics/trump-caribbean-strikes-drugs-kindnes
 `Jerry Jones called it a "great coaching job" with six offensive starters, including four offensive linemen, out against the Jets.`\
 https://nytimes.com/athletic/6692440/2025/10/05/cowboys-brian-schottenheimer-dak-prescott-jets/
 
-**Are the Las Vegas Aces unstoppable? So far, the Mercury can't figured them out**\
+**Are the Las Vegas Aces unstoppable? So far, the Mercury can't figure them out**\
 `The Aces put on another masterclass to take a 2-0 WNBA Finals lead.`\
 https://nytimes.com/athletic/6692556/2025/10/05/las-vegas-aces-phoenix-mercury-wnba-finals-game-2/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6692381/2025/10/05/panthers-rico-dowdle-comeback-do
 **Lions' Jahmyr Gibbs, David Montgomery tie NFL record in win over Bengals**\
 `Gibbs and Montgomery scored a touchdown in the same game for the 14th time, helping the Lions improve to 4-1.`\
 https://nytimes.com/athletic/6692391/2025/10/05/lions-bengals-score-result-takeaways-nfl/
-
-**Titans-Cardinals takeaways: Tennessee rallies after Emari Demercado's blunder**\
-`Instead of a likely game-sealing touchdown, Arizona's Emari Demercado fumbled through the end zone, setting the stage for a Titans win.`\
-https://nytimes.com/athletic/6692257/2025/10/05/titans-cardinals-score-result-takeaways-nfl/
 
