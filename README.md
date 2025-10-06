@@ -1,3 +1,7 @@
+**Danila Yurov, Liam Ohgren make Wild opening night roster, but not in second-line spot team hoped**\
+`With Mats Zuccarello out, Minnesota challenged its top forward prospects to grab his lineup spot. Neither did.`\
+https://nytimes.com/athletic/6694946/2025/10/06/wild-opening-night-roster-yurov-ohgren/
+
 **Treasury Defends Lawfulness of Minting a $1 Trump Coin**\
 `The Treasury Department said that a 2020 collectible coinage law allows a living person to appear on U.S. currency.`\
 https://nytimes.com/2025/10/06/us/politics/treasury-trump-coin.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6694953/2025/10/06/bills-keon-coleman-benched-patri
 **Flyers depth chart 3.0: Zegras the 1C; Luchanko makes the cut; Bump, Andrae fall short**\
 `Philadelphia has settled its key questions ahead of Thursday's season opener against the Panthers.`\
 https://nytimes.com/athletic/6694677/2025/10/06/flyers-depth-chart-3-0-zegras-the-top-center-luchanko-makes-the-cut-bump-andrae-fall-short/
-
-**A Campaign to ‘Bring Back Bullying’**\
-`On social media, some are arguing that bullying deserves a second look. Trolling or not, the push seems to reflect a general turn away from sensitivity.`\
-https://nytimes.com/2025/10/06/style/bullying-tiktok-social-media.html
 

@@ -1,3 +1,11 @@
+**Treasury Defends Lawfulness of Minting a $1 Trump Coin**\
+`The Treasury Department said that a 2020 collectible coinage law allows a living person to appear on U.S. currency.`\
+https://nytimes.com/2025/10/06/us/politics/treasury-trump-coin.html
+
+**Kane less keen on Premier League return than when he left Spurs**\
+`"I have been there (Germany) a couple of years I would probably say that (desire to return) has gone down a little bit," Kane said.`\
+https://nytimes.com/athletic/6693979/2025/10/06/harry-kane-england-premier-league/
+
 **Trump, Drug Cartels, Venezuela and War: What We Know**\
 `The Trump administration is ratcheting up pressure on Nicolás Maduro, Venezuela’s president, while attacking boats in the Caribbean Sea.`\
 https://nytimes.com/2025/10/06/us/politics/trump-cartels-what-we-know.html
