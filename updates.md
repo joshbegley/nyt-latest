@@ -1,3 +1,11 @@
+**Broncos run game has found it's groove, but a key injury could test its sustainability**\
+`Starting guard Ben Powers, who hasn't missed a game since signing with Denver in 2023, suffered a biceps injury and didn't travel to London.`\
+https://nytimes.com/athletic/6691513/2025/10/06/broncos-ben-powers-injury-london/
+
+**Vikings mailbag: Submit your bye-week questions now for reporter Alec Lewis**\
+`The team has navigated an onslaught of injuries, including to young QB J.J. McCarthy. Any questions you want to ask, I’ll answer. Let's go!`\
+https://nytimes.com/athletic/6693827/2025/10/06/vikings-mailbag-bye-week-jj-mccarthy/
+
 **Verizon Bets on PayPal’s Former Chief to Lead Its Next Chapter**\
 `Dan Schulman takes over as the telecoms giant faces slowing subscriber growth and rising competition.`\
 https://nytimes.com/2025/10/06/business/new-verizon-ceo-dan-schulman.html

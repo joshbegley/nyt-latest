@@ -1,3 +1,11 @@
+**Broncos run game has found it's groove, but a key injury could test its sustainability**\
+`Starting guard Ben Powers, who hasn't missed a game since signing with Denver in 2023, suffered a biceps injury and didn't travel to London.`\
+https://nytimes.com/athletic/6691513/2025/10/06/broncos-ben-powers-injury-london/
+
+**Vikings mailbag: Submit your bye-week questions now for reporter Alec Lewis**\
+`The team has navigated an onslaught of injuries, including to young QB J.J. McCarthy. Any questions you want to ask, I’ll answer. Let's go!`\
+https://nytimes.com/athletic/6693827/2025/10/06/vikings-mailbag-bye-week-jj-mccarthy/
+
 **Verizon Bets on PayPal’s Former Chief to Lead Its Next Chapter**\
 `Dan Schulman takes over as the telecoms giant faces slowing subscriber growth and rising competition.`\
 https://nytimes.com/2025/10/06/business/new-verizon-ceo-dan-schulman.html
@@ -25,12 +33,4 @@ https://nytimes.com/interactive/2025/10/06/books/review/horror-book-quiz.html
 **The Bounce: Aces, Wemby play bully, and we preview the Spurs and Sixers**\
 `Welcome to The Bounce, The Athletic's basketball newsletter.`\
 https://nytimes.com/athletic/6693651/2025/10/06/aces-victor-wembanyama-sixers-spurs-the-bounce/
-
-**The Left Has Its Rabbit Holes**\
-`On the left-leaning podcast “TrueAnon,” three friends take a true-crime approach to subjects often thought too risky for liberals to touch.`\
-https://nytimes.com/2025/10/06/style/trueanon-podcast-left-conspiracy-theories.html
-
-**If Your North Star Is Lost, New Techniques Can Point You South**\
-`The writer Tristan Gooley describes how a pair of familiar constellations can help a person navigate in darkness when other methods fail.`\
-https://nytimes.com/2025/10/06/science/southern-stars-constellation-compass.html
 
