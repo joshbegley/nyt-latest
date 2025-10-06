@@ -1,3 +1,11 @@
+**A'ja Wilson is on another level as Aces step closer to another WNBA title**\
+`The MVP flexed her might in Game 2 as the Aces took a commanding 2-0 lead in this best-of-seven series.`\
+https://nytimes.com/athletic/6692340/2025/10/06/aja-wilson-aces-mercury-wnba-finals-game-2/
+
+**Paramount Buys The Free Press, Ushering in New Era at CBS News**\
+`Bari Weiss, a co-founder of The Free Press, will become editor in chief of CBS News.`\
+https://nytimes.com/2025/10/06/business/media/paramount-bari-weiss-free-press-cbs-news.html
+
 **Ilona Maher: U.S. rugby star honored with Barbie doll**\
 `Team Barbie — made up of four professional women's rugby players, including Maher — will launch next year.`\
 https://nytimes.com/athletic/6693389/2025/10/06/ilona-maher-barbie-rugby/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6692152/2025/10/06/acc-basketball-preview-rankings-
 **Q&A: Ryan Nugent-Hopkins, the Oilers' constant, says there's 'urgency' to win**\
 `Nugent-Hopkins spoke to The Athletic about his Oilers legacy, how to be effective and finding the ultimate team success.`\
 https://nytimes.com/athletic/6692290/2025/10/06/ryan-nugent-hopkins-oilers-interview/
-
-**Cannavaro appointed Uzbekistan coach ahead of nation's World Cup debut**\
-`Cannavaro, 52, has been out of football since he was dismissed by Dinamo Zagreb in April and is now set to coach Uzbekistan at the World Cup`\
-https://nytimes.com/athletic/6687327/2025/10/06/uzbekistan-manager-cannavaro-world-cup/
-
-**Lowetide: How Oilers could approach waiver wire ahead of regular season**\
-`In the history of the Oilers, the waiver wire has had a significant impact over the years.`\
-https://nytimes.com/athletic/6691491/2025/10/06/edmonton-oilers-waivers-wire-2025/
 

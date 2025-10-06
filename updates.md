@@ -1,3 +1,15 @@
+**Ilona Maher: U.S. rugby star honored with Barbie doll**\
+`Team Barbie — made up of four professional women's rugby players, including Maher — will launch next year.`\
+https://nytimes.com/athletic/6693389/2025/10/06/ilona-maher-barbie-rugby/
+
+**With win over Bills, Drake Maye takes Patriots back to the future**\
+`The second-year quarterback isn't going to make New England fans forget Tom Brady, but he doesn't have to.`\
+https://nytimes.com/athletic/6693488/2025/10/06/new-england-patriots-drake-maye/
+
+**Trump Administration Live Updates: President Renews Layoff Threats as Parties Trade Accusations Over Shutdown**\
+``\
+https://nytimes.com/live/2025/10/06/us/trump-news
+
 **OpenAI’s Team of Rivals**\
 `The artificial intelligence giant just announced a major partnership with AMD — weeks after striking a big deal with the chipmaker’s competitor, Nvidia.`\
 https://nytimes.com/2025/10/06/business/dealbook/openai-amd-nvidia.html
