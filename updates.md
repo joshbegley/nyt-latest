@@ -1,3 +1,7 @@
+**How Elon Musk Is Bringing Sexy A.I. Chatbots to the Mainstream**\
+`In July, the billionaire’s A.I. company introduced two sexually explicit chatbots, pushing a new version of intimacy.`\
+https://nytimes.com/2025/10/06/technology/elon-musk-grok-sexy-chatbot.html
+
 **NFL Week 6 odds, spreads: Chiefs-Lions and an NFC reckoning**\
 `Which teams are the biggest favorites and underdogs for Week 6?`\
 https://nytimes.com/athletic/6693848/2025/10/06/nfl-week-6-odds-spreads-chiefs-lions/
