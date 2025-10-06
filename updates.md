@@ -1,3 +1,11 @@
+**Federal agents accuse a Chicago man of offering money to kill a Border Patrol official.**\
+`By Mitch Smith`\
+https://nytimes.com/live/2025/10/06/us/national-guard-trump-oregon-chicago/federal-agents-accuse-a-chicago-man-of-offering-money-to-kill-a-border-patrol-official
+
+**Trump Raises the Possibility of a Shutdown Deal, Then Walks It Back**\
+`President Trump said he was open to making “the right deal” on health care with Democrats. Senator Chuck Schumer, the minority leader, denied any talks were underway.`\
+https://nytimes.com/2025/10/06/us/politics/trump-democrats-negotiation-shutdown.html
+
 **Panthers' latest Stanley Cup ring features 450 gems, a rat and a whole lot of palm trees**\
 `The Panthers received their rings in a private ceremony the day before the 2025-26 season begins.`\
 https://nytimes.com/athletic/6687538/2025/10/06/florida-panthers-stanley-cup-ring-ceremony/
