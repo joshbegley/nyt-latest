@@ -1,3 +1,7 @@
+**The truth about tennis court speed and Roger Federer's comments on Alcaraz and Sinner**\
+`The tennis great's comments on how fast tennis courts are and whether they benefit Carlos Alcaraz and Jannik Sinner provoked discussion.`\
+https://nytimes.com/athletic/6682720/2025/10/06/tennis-court-speed-federer-zverev-sinner-alcaraz/
+
 **Ravaged by War: Trying to Survive Gaza’s Present, Hoping for a Future**\
 `Two years of intense warfare in Gaza have left its people with a dismembered and disordered society. The destruction is vast and many Gazans have mental and physical wounds that could scar a generation.`\
 https://nytimes.com/2025/10/06/world/middleeast/israel-gaza-war.html
