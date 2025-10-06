@@ -1,3 +1,7 @@
+**Shutdown Politics Has G.O.P. Singing Government’s Praises**\
+`As Republicans try to pin blame for shutdown damage on Democrats, they are hailing a federal bureaucracy they normally bash as wasteful and overreaching.`\
+https://nytimes.com/2025/10/06/us/politics/shutdown-republicans-trump-government.html
+
 **A Marine Park in Canada Warns That It May Euthanize 30 Beluga Whales**\
 `The government has barred Marineland from shipping its whales to an aquarium in China so the park is threatening to put the whales down.`\
 https://nytimes.com/2025/10/06/world/canada/marineland-canada-beluga-whales.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6694715/2025/10/06/north-carolina-state-vs-notre-da
 **How to watch Washington State at Ole Miss: Time, TV, streaming**\
 `Find out how to watch the Washington State Cougars play the Ole Miss Rebels, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6694712/2025/10/06/washington-state-vs-ole-miss-stream-how-to-watch-oct-11/
-
-**How to watch Alabama at Missouri: Time, TV, streaming**\
-`Find out how to watch the Alabama Crimson Tide play the Missouri Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6694710/2025/10/06/alabama-vs-missouri-stream-how-to-watch-oct-11/
 
