@@ -1,3 +1,11 @@
+**Maple Leafs claim goalie Cayden Primeau, winger Sammy Blais off waivers**\
+`It is likely both players will be added to the Leafs' roster to fill depth roles.`\
+https://nytimes.com/athletic/6694445/2025/10/06/maple-leafs-cayden-primeau-sammy-blais-waivers/
+
+**Judge Poised to Free Abrego Garcia if Officials Can’t Supply Deportation Plans**\
+`The judge expressed exasperation at government lawyers’ failure to answer “basic questions” or produce evidence during what she called a “topsy-turvy, inside-out day.”`\
+https://nytimes.com/2025/10/06/us/politics/abrego-garcia-court-hearing.html
+
 **Trump Gave a Partisan Speech to Navy Troops, to Mixed Reactions**\
 `President Trump’s attempts to politicize the military have become more overt as he makes the case for having troops at his disposal in American cities.`\
 https://nytimes.com/2025/10/06/us/politics/trump-navy-portland-troops.html
