@@ -1,3 +1,11 @@
+**Why did Connor McDavid take such a discount? Does this re-set the NHL market? Johnston and LeBrun**\
+`The Athletic's NHL insiders react to McDavid's two-year, $12.5 million contract extension with the Oilers.`\
+https://nytimes.com/athletic/6694303/2025/10/06/connor-mcdavid-extension-insider-analysis/
+
+**Colts kicker Spencer Shrader out for the year with torn ACL, MCL**\
+`Shrader had only missed one of his 14 field-goal attempts this season. `\
+https://nytimes.com/athletic/6694358/2025/10/06/colts-kicker-spencer-shrader-injury/
+
 **Phillies' Harrison Bader to miss Game 2 of the NLDS with groin injury**\
 `Bader injured his groin in the Game 1 loss to the Dodgers. The Phillies believed the injury isn't serious but he's not in the Game 2 lineup.`\
 https://nytimes.com/athletic/6694409/2025/10/06/phillies-harrison-bader-groin-injury-nlds/
