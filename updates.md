@@ -1,3 +1,11 @@
+**Can Fashion Still Be Provocative?**\
+`Duran Lantink’s ridiculous debut at Jean Paul Gaultier raises the question.`\
+https://nytimes.com/2025/10/06/style/jean-paul-gaultier-duran-lantink.html
+
+**French Prime Minister Resigns in Surprise Move**\
+`Sébastien Lecornu stepped down less than 24 hours after he had formed his cabinet.`\
+https://nytimes.com/2025/10/06/world/europe/france-lecornu-resigns-macron.html
+
 **In Ashes of Amazon Fight, Tensions Emerge in Huge Bet on N.Y.C. Housing**\
 `Years ago, progressives defeated a plan to build an Amazon warehouse in Queens. Now a new kind of development is gaining their support.`\
 https://nytimes.com/2025/10/06/nyregion/amazon-rezoning-queens.html

@@ -1,3 +1,11 @@
+**Can Fashion Still Be Provocative?**\
+`Duran Lantink’s ridiculous debut at Jean Paul Gaultier raises the question.`\
+https://nytimes.com/2025/10/06/style/jean-paul-gaultier-duran-lantink.html
+
+**French Prime Minister Resigns in Surprise Move**\
+`Sébastien Lecornu stepped down less than 24 hours after he had formed his cabinet.`\
+https://nytimes.com/2025/10/06/world/europe/france-lecornu-resigns-macron.html
+
 **In Ashes of Amazon Fight, Tensions Emerge in Huge Bet on N.Y.C. Housing**\
 `Years ago, progressives defeated a plan to build an Amazon warehouse in Queens. Now a new kind of development is gaining their support.`\
 https://nytimes.com/2025/10/06/nyregion/amazon-rezoning-queens.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6693085/2025/10/06/al-horford-warriors-lakers-prese
 **‘Boots,’ Plus 7 More Things to Watch on TV this Week**\
 `A new series airs on Netflix and the long-running medical show “Grey’s Anatomy” returns for its 22nd season.`\
 https://nytimes.com/2025/10/06/arts/television/tv-this-week-boots-greys-anatomy.html
-
-**The New York Times in Print for Monday, Oct. 6, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/10/06/todays-new-york-times
-
-**Are too many games catching up with Crystal Palace?**\
-`With Palace's brilliant unbeaten run now over, it is time to look at how Glasner manages his squad and what could be done differently.`\
-https://nytimes.com/athletic/6686917/2025/10/06/crystal-palace-everton-analysis/
 
