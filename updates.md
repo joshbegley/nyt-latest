@@ -1,3 +1,7 @@
+**Buccaneers Beat Seahawks in Thriller**\
+`Baker Mayfield sparked Tampa Bay’s comeback in a high-scoring Week 5 game.`\
+https://nytimes.com/video/the-athletic/100000010440840/buccaneers-beat-seahawks-in-thriller.html
+
 **Eagles offense stalls after 'shooting ourselves in the foot' following initial spark**\
 `The Eagles failed to change their approach when they needed to.`\
 https://nytimes.com/athletic/6691561/2025/10/05/eagles-offense-struggles-vs-broncos/

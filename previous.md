@@ -1,3 +1,7 @@
+**Buccaneers Beat Seahawks in Thriller**\
+`Baker Mayfield sparked Tampa Bay’s comeback in a high-scoring Week 5 game.`\
+https://nytimes.com/video/the-athletic/100000010440840/buccaneers-beat-seahawks-in-thriller.html
+
 **Eagles offense stalls after 'shooting ourselves in the foot' following initial spark**\
 `The Eagles failed to change their approach when they needed to.`\
 https://nytimes.com/athletic/6691561/2025/10/05/eagles-offense-struggles-vs-broncos/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/05/us/politics/trump-caribbean-strikes-drugs-kindnes
 **Brian Schottenheimer 'back in my bag' as Cowboys win big without multiple starters**\
 `Jerry Jones called it a "great coaching job" with six offensive starters, including four offensive linemen, out against the Jets.`\
 https://nytimes.com/athletic/6692440/2025/10/05/cowboys-brian-schottenheimer-dak-prescott-jets/
-
-**Are the Las Vegas Aces unstoppable? So far, the Mercury can't figure them out**\
-`The Aces put on another masterclass to take a 2-0 WNBA Finals lead.`\
-https://nytimes.com/athletic/6692556/2025/10/05/las-vegas-aces-phoenix-mercury-wnba-finals-game-2/
 
