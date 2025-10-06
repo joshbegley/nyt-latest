@@ -1,3 +1,7 @@
+**The Chargers are not playing like a Jim Harbaugh-coached team**\
+`“We’re a good football team,” Harbaugh said. “We’re not good enough in some of the areas that you need to win games.”`\
+https://nytimes.com/athletic/6692877/2025/10/05/chargers-jim-harbaugh-loss-commanders/
+
 **Tigers-Mariners Game 2 takeaways: Polanco powers Seattle past Skubal, Detroit**\
 `The series shifts to Detroit for Game 3 on Tuesday, when the Mariners’ Logan Gilbert will face the Tigers’ Jack Flaherty.`\
 https://nytimes.com/athletic/6692632/2025/10/05/tigers-mariners-game-2-score-results-takeaways-playoffs-mlb/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6692693/2025/10/05/new-york-jets-blowout-loss-dalla
 **Inside the penalties — and non-calls — that contributed to the Eagles' first loss of the season**\
 `The Eagles said they weren't detailed enough during the game.`\
 https://nytimes.com/athletic/6692622/2025/10/05/eagles-loss-broncos-penalties/
-
-**Giants fumble away win, remind us how adept they are at killing good vibes, beating themselves**\
-`The players change. An exciting rookie QB can even provide a jolt for a week. But these are still the Giants.`\
-https://nytimes.com/athletic/6692504/2025/10/05/giants-fumble-turnovers-jaxson-dart-saints/
 
