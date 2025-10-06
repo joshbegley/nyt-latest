@@ -1,4 +1,8 @@
 **The Chargers are not playing like a Jim Harbaugh-coached team**\
+`"We're a good football team," Harbaugh said. "We're not good enough in some of the areas that you need to win games."`\
+https://nytimes.com/athletic/6692877/2025/10/05/chargers-jim-harbaugh-loss-commanders/
+
+**The Chargers are not playing like a Jim Harbaugh-coached team**\
 `“We’re a good football team,” Harbaugh said. “We’re not good enough in some of the areas that you need to win games.”`\
 https://nytimes.com/athletic/6692877/2025/10/05/chargers-jim-harbaugh-loss-commanders/
 

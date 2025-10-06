@@ -1,3 +1,7 @@
+**What will the Bengals do with Jake Browning?**\
+`The backup QB is 0-3 in starts since Joe Burrow's toe injury with devastating turnovers piling up each week.`\
+https://nytimes.com/athletic/6692895/2025/10/05/bengals-jake-browning-lions-zac-taylor/
+
 **The Chargers are not playing like a Jim Harbaugh-coached team**\
 `"We're a good football team," Harbaugh said. "We're not good enough in some of the areas that you need to win games."`\
 https://nytimes.com/athletic/6692877/2025/10/05/chargers-jim-harbaugh-loss-commanders/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6692076/2025/10/05/colts-contenders-raiders-daniel-
 **It took 147 seconds for the Jets to unravel against the Cowboys**\
 `A familiar fumble started a chain reaction of mistakes that sparked a blowout loss.`\
 https://nytimes.com/athletic/6692693/2025/10/05/new-york-jets-blowout-loss-dallas-cowboys/
-
-**Inside the penalties — and non-calls — that contributed to the Eagles' first loss of the season**\
-`The Eagles said they weren't detailed enough during the game.`\
-https://nytimes.com/athletic/6692622/2025/10/05/eagles-loss-broncos-penalties/
 
