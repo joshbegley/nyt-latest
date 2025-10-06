@@ -1,3 +1,11 @@
+**U.S. v. Google: What Each Side Argued for Fixing Google’s Ad Tech Monopoly**\
+`The Justice Department and Google wrapped up a two-week hearing that could have a major effect on online advertising.`\
+https://nytimes.com/2025/10/06/technology/google-ad-tech-arguments.html
+
+**Prosecutors add felony assault charge against Sanchez over alleged attack**\
+`Prosecutors said the additional felony charge was due to the alleged assault “involving serious bodily injury.”`\
+https://nytimes.com/athletic/6693931/2025/10/06/mark-sanchez-felony-charges/
+
 **Fire Consumes the Home of a South Carolina State Judge**\
 `Three people, who had to be rescued by kayak, were injured. The cause of the fire is under investigation.`\
 https://nytimes.com/2025/10/06/us/politics/goodstein-house-fire-south-carolina-judge-senator.html
