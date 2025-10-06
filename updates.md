@@ -1,3 +1,11 @@
+**It took 147 seconds for the Jets to unravel against the Cowboys**\
+`A familiar fumble started a change reaction of mistakes that sparked a blowout loss.`\
+https://nytimes.com/athletic/6692693/2025/10/05/new-york-jets-blowout-loss-dallas-cowboys/
+
+**Inside the penalties — and non-calls — that contributed to the Eagles' first loss of the season**\
+`The Eagles said they weren't detailed enough during the game.`\
+https://nytimes.com/athletic/6692622/2025/10/05/eagles-loss-broncos-penalties/
+
 **Giants fumble away win, remind us how adept they are at killing good vibes, beating themselves**\
 `The players change. An exciting rookie QB can even provide a jolt for a week. But these are still the Giants.`\
 https://nytimes.com/athletic/6692504/2025/10/05/giants-fumble-turnovers-jaxson-dart-saints/

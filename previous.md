@@ -1,3 +1,11 @@
+**It took 147 seconds for the Jets to unravel against the Cowboys**\
+`A familiar fumble started a change reaction of mistakes that sparked a blowout loss.`\
+https://nytimes.com/athletic/6692693/2025/10/05/new-york-jets-blowout-loss-dallas-cowboys/
+
+**Inside the penalties — and non-calls — that contributed to the Eagles' first loss of the season**\
+`The Eagles said they weren't detailed enough during the game.`\
+https://nytimes.com/athletic/6692622/2025/10/05/eagles-loss-broncos-penalties/
+
 **Giants fumble away win, remind us how adept they are at killing good vibes, beating themselves**\
 `The players change. An exciting rookie QB can even provide a jolt for a week. But these are still the Giants.`\
 https://nytimes.com/athletic/6692504/2025/10/05/giants-fumble-turnovers-jaxson-dart-saints/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6692408/2025/10/05/broncos-eagles-nix-bonitto-sutto
 **How to watch Dodgers at Phillies: Game 2 Time, TV, streaming**\
 `Find out how to watch the Los Angeles Dodgers play the Philadelphia Phillies, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6692547/2025/10/05/dodgers-vs-phillies-stream-how-to-watch-oct-6/
-
-**Violent and ferocious: Down 17-0, Rico Dowdle and the Panthers were not going to be denied**\
-`Dowdle ran for 206 yards and the Panthers held the Dolphins to 19 rushing yards in rallying to their second win of the season. `\
-https://nytimes.com/athletic/6692381/2025/10/05/panthers-rico-dowdle-comeback-dolphins/
-
-**Lions' Jahmyr Gibbs, David Montgomery tie NFL record in win over Bengals**\
-`Gibbs and Montgomery scored a touchdown in the same game for the 14th time, helping the Lions improve to 4-1.`\
-https://nytimes.com/athletic/6692391/2025/10/05/lions-bengals-score-result-takeaways-nfl/
 
