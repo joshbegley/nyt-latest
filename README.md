@@ -1,3 +1,19 @@
+**Trump Gave a Partisan Speech to Navy Troops, to Mixed Reactions**\
+`President Trump’s attempts to politicize the military have become more overt as he makes the case for having troops at his disposal in American cities.`\
+https://nytimes.com/2025/10/06/us/politics/trump-navy-portland-troops.html
+
+**Winners and losers of Connor McDavid's contract extension: Oilers get a discount, Leafs miss out**\
+`The fallout from this extension will be felt league-wide, as one of hockey's best players ever has given his team a huge hometown discount.`\
+https://nytimes.com/athletic/6694128/2025/10/06/connor-mcdavid-contract-extension-oilers-winners-losers/
+
+**Panthers' Seth Jones 'taken aback' by Blackhawks' Nick Foligno's post-trade swipes, but no ill will**\
+`Jones said he talked to Foligno about it, and Foligno had no ill will toward Jones on Monday.`\
+https://nytimes.com/athletic/6694457/2025/10/06/panthers-seth-jones-blackhawks-nick-foligno-post-trade-swipes/
+
+**Trump Aimed Shutdown Cuts at Democrats, but G.O.P. Districts Are Hit, Too**\
+`As the president cancels projects in Democratic-run states, he is cutting money that benefits his own party’s lawmakers in some of the most competitive House districts.`\
+https://nytimes.com/2025/10/06/us/politics/republican-districts-political-pain-program-cancellations.html
+
 **Submit questions for Vic Tafur's 49ers mailbag**\
 `I stole the San Francisco 49ers mailbag from Matt Barrows this week, but it’s empty. Help me fill it up!`\
 https://nytimes.com/athletic/6694437/2025/10/06/49ers-mailbag-questions-vic-tafur/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6662091/2025/10/06/nhl-waivers-tracker-preseason-20
 **Trump says Portland is ‘burning.’ Here’s the reality.**\
 `By Anna Griffin and Jacey Fortin`\
 https://nytimes.com/live/2025/10/06/us/national-guard-trump-oregon-chicago/trump-portland-crime-reality
-
-**Wesley Hunt Enters Texas G.O.P. Senate Race, Complicating Path for Cornyn**\
-`Mr. Hunt, a U.S. House member, and Senator John Cornyn will be competing for voters who dislike the state’s attorney general, Ken Paxton, who has led in many polls.`\
-https://nytimes.com/2025/10/06/us/politics/wesley-hunt-senate-texas-cornyn-paxton.html
-
-**In 2019, Trump Made Her a Judge. In 2025, She Blocked His Troop Deployment.**\
-`Judge Karin Immergut worked on Ken Starr’s investigation of Bill Clinton. Now she’s ruled against Trump’s attempt to send troops to Portland.`\
-https://nytimes.com/2025/10/06/us/politics/trump-judge-oregon-immergut.html
-
-**Oilers sign D Jake Walman to 7-year contract extension**\
-`Walman, who was acquired by the Oilers at the trade deadline, will have a cap hit of $7 million starting in 2026-27.`\
-https://nytimes.com/athletic/6694173/2025/10/06/oilers-jake-walman-contract-extension/
-
-**Pushback at Trump and Troops in Portland**\
-`Readers object to President Trump’s use of the military in American cities. Also: ICE at the Super Bowl.`\
-https://nytimes.com/2025/10/06/opinion/portland-national-guard-trump.html
 

@@ -1,3 +1,15 @@
+**Submit questions for Vic Tafur's 49ers mailbag**\
+`I stole the San Francisco 49ers mailbag from Matt Barrows this week, but it’s empty. Help me fill it up!`\
+https://nytimes.com/athletic/6694437/2025/10/06/49ers-mailbag-questions-vic-tafur/
+
+**Why did Connor McDavid take such a discount? Does this re-set the NHL market? Johnston and LeBrun**\
+`The Athletic's NHL insiders react to McDavid's two-year, $12.5 million AAV contract extension with the Oilers.`\
+https://nytimes.com/athletic/6694303/2025/10/06/connor-mcdavid-extension-insider-analysis/
+
+**Phillies' Harrison Bader to miss Game 2 of the NLDS with groin injury**\
+`Bader injured his groin in the Game 1 loss to the Dodgers. The Phillies believe the injury isn't serious, but he's not in the Game 2 lineup.`\
+https://nytimes.com/athletic/6694409/2025/10/06/phillies-harrison-bader-groin-injury-nlds/
+
 **Why did Connor McDavid take such a discount? Does this re-set the NHL market? Johnston and LeBrun**\
 `The Athletic's NHL insiders react to McDavid's two-year, $12.5 million contract extension with the Oilers.`\
 https://nytimes.com/athletic/6694303/2025/10/06/connor-mcdavid-extension-insider-analysis/
