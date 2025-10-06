@@ -1,3 +1,15 @@
+**Israel at War With Itself**\
+`On the second anniversary of the Oct. 7 attacks, Roger Cohen explains how the war in Gaza has left Israel divided and isolated.`\
+https://nytimes.com/2025/10/06/world/israel-war-france-resignation-everest-oktoberfest.html
+
+**Max Scherzer’s advice for taming Yankee Stadium in October and other Blue Jays notes**\
+`Scherzer isn't on the Jays' ALDS roster but he has plenty of wisdom to pass on to his teammates about pitching in New York in October.`\
+https://nytimes.com/athletic/6694223/2025/10/06/blue-jays-alds-max-scherzer-yankee-stadium-notes/
+
+**Flyers depth chart 3.0: Zegras the 1C; Luchanko makes the cut; Bump, Andrae fall short**\
+`Philadelphia has settled its key questions ahead of Thursday's season opener against the Panthers.`\
+https://nytimes.com/athletic/6694677/2025/10/06/flyers-depth-chart-3-0-zegras-the-top-center-luchanko-makes-the-cut-bump-andrae-fall-short/
+
 **Bills benched WR Keon Coleman for first series vs. Patriots**\
 `Coleman was disciplined last season for not being on time.`\
 https://nytimes.com/athletic/6694953/2025/10/06/bills-keon-coleman-benched-patriots/

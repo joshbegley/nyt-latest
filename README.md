@@ -1,3 +1,11 @@
+**Where in the World Is Eric Adams? Try Albania.**\
+`The decision by Mr. Adams, a lame-duck mayor, to spend nearly a week of his remaining time in office visiting the Balkan nation raised eyebrows back in New York.`\
+https://nytimes.com/2025/10/06/nyregion/eric-adams-albania.html
+
+**Senators owner Michael Andlauer takes shot at Canadiens in discussing Quebec City trip**\
+`Andlauer also provided updates about the team's ongoing LeBreton Flats arena saga, having met with members of the Algonquin community.`\
+https://nytimes.com/athletic/6694394/2025/10/06/senators-owner-michael-andlauer-canadiens-quebec-city/
+
 **Israel at War With Itself**\
 `On the second anniversary of the Oct. 7 attacks, Roger Cohen explains how the war in Gaza has left Israel divided and isolated.`\
 https://nytimes.com/2025/10/06/world/israel-war-france-resignation-everest-oktoberfest.html
@@ -7,7 +15,7 @@ https://nytimes.com/2025/10/06/world/israel-war-france-resignation-everest-oktob
 https://nytimes.com/athletic/6694223/2025/10/06/blue-jays-alds-max-scherzer-yankee-stadium-notes/
 
 **Bills benched WR Keon Coleman for first series vs. Patriots**\
-`Coleman was disciplined last season for not being on time.`\
+`The Bills disciplined Coleman last season for not being on time.`\
 https://nytimes.com/athletic/6694953/2025/10/06/bills-keon-coleman-benched-patriots/
 
 **Flyers depth chart 3.0: Zegras the 1C; Luchanko makes the cut; Bump, Andrae fall short**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/06/t-magazine/holiday-gifts-presents.html
 **Miami, South Carolina cancel home-and-home series scheduled for 2026-27**\
 `The schools, which mutually cancelled, scheduled the series in 2019, before either of their conferences considered adding a ninth game.`\
 https://nytimes.com/athletic/6694744/2025/10/06/miami-south-carolina-ncaa-football-home-series-cancel/
-
-**Shutdown Politics Has G.O.P. Singing Government’s Praises**\
-`As Republicans try to pin blame for shutdown damage on Democrats, they are hailing a federal bureaucracy they normally bash as wasteful and overreaching.`\
-https://nytimes.com/2025/10/06/us/politics/shutdown-republicans-trump-government.html
-
-**A Marine Park in Canada Warns That It May Euthanize 30 Beluga Whales**\
-`The government has barred Marineland from shipping its whales to an aquarium in China so the park is threatening to put the whales down.`\
-https://nytimes.com/2025/10/06/world/canada/marineland-canada-beluga-whales.html
 
