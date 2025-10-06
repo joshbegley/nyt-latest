@@ -1,3 +1,15 @@
+**Aaron Glenn is buried under the monumental challenge of being the Jets coach**\
+`Glenn has found out the hard way that you don’t reverse the Jets' fortunes merely by firing Aaron Rodgers and acting like a tough guy.`\
+https://nytimes.com/athletic/6692394/2025/10/05/aaron-glenn-jets-head-coach-challenge-nfl/
+
+**Broncos' big fourth quarter topples Eagles, gives credence to team's lofty internal goals**\
+`Bo Nix completed 9 of 10 passes in the fourth quarter and led three straight scoring drives. "We spoke it into existence," he said.`\
+https://nytimes.com/athletic/6692408/2025/10/05/broncos-eagles-nix-bonitto-sutton-payton/
+
+**Lions-Bengals takeaways: Detroit's Jahmyr Gibbs, David Montgomery tie NFL record in win**\
+`Gibbs and Montgomery each scored a touchdown, marking this as the 14th game both scored, tying an NFL record.`\
+https://nytimes.com/athletic/6692391/2025/10/05/lions-bengals-score-result-takeaways-nfl/
+
 **In latest blowout loss, Ravens look and sound like a team without any answers**\
 `At 1-4, John Harbaugh's Ravens have matched the 2015 team for the worst start in franchise history.`\
 https://nytimes.com/athletic/6692318/2025/10/05/ravens-loss-john-harbaugh-texans/

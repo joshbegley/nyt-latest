@@ -1,9 +1,13 @@
+**Aaron Glenn is buried under the monumental challenge of being the Jets coach**\
+`Glenn has found out the hard way that you don’t reverse the Jets' fortunes merely by firing Aaron Rodgers and acting like a tough guy.`\
+https://nytimes.com/athletic/6692394/2025/10/05/aaron-glenn-jets-head-coach-challenge-nfl/
+
 **In latest blowout loss, Ravens look and sound like a team without any answers**\
 `At 1-4, John Harbaugh's Ravens have matched the 2015 team for the worst start in franchise history.`\
 https://nytimes.com/athletic/6692318/2025/10/05/ravens-loss-john-harbaugh-texans/
 
-**Broncos' big 4th quarter topples Eagles, gives credence to team's lofty internal goals**\
-`Bo Nix completed 9-of-10 passes in the fourth quarter and led three straight scoring drives. "We spoke it into existence," he said.`\
+**Broncos' big fourth quarter topples Eagles, gives credence to team's lofty internal goals**\
+`Bo Nix completed 9 of 10 passes in the fourth quarter and led three straight scoring drives. "We spoke it into existence," he said.`\
 https://nytimes.com/athletic/6692408/2025/10/05/broncos-eagles-nix-bonitto-sutton-payton/
 
 **How to watch Dodgers at Phillies: Game 2 Time, TV, streaming**\
@@ -14,8 +18,8 @@ https://nytimes.com/athletic/6692547/2025/10/05/dodgers-vs-phillies-stream-how-t
 `Dowdle ran for 206 yards and the Panthers held the Dolphins to 19 rushing yards in rallying to their second win of the season. `\
 https://nytimes.com/athletic/6692381/2025/10/05/panthers-rico-dowdle-comeback-dolphins/
 
-**Lions-Bengals: Jahmyr Gibbs, David Montgomery tie NFL record in win vs. Bengals**\
-`The local products came through for the Lions today.`\
+**Lions-Bengals takeaways: Detroit's Jahmyr Gibbs, David Montgomery tie NFL record in win**\
+`Gibbs and Montgomery each scored a touchdown, marking this as the 14th game both scored, tying an NFL record.`\
 https://nytimes.com/athletic/6692391/2025/10/05/lions-bengals-score-result-takeaways-nfl/
 
 **Titans-Cardinals takeaways: Tennessee rallies after Emari Demercado's blunder**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6691946/2025/10/05/commanders-chargers-score-result
 **After a new low, Geno Smith, Pete Carroll and the Raiders have nowhere to look but in**\
 `“I’m processing it poorly, to tell you the truth,” Carroll said. “Because I did expect to win right out of the chute.”`\
 https://nytimes.com/athletic/6692390/2025/10/05/las-vegas-raiders-loss-indianapolis-colts/
-
-**Buccaneers-Seahawks takeaways: Baker Mayfield, late pick spark walk-off win**\
-`Sam Darnold's brilliant day (341 yards and four touchdown passes) marred by late interception in 38-35 loss. `\
-https://nytimes.com/athletic/6692149/2025/10/05/buccaneers-seahawks-score-result-takeaways-nfl/
 
