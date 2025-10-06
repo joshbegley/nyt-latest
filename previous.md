@@ -1,3 +1,11 @@
+**Sources: Vikings believe Will Reichard's missed FG vs. Browns hit camera wire in London**\
+`Reichard had been perfect on field goals this season before Sunday's kick in London took an odd and sharp turn to the right. `\
+https://nytimes.com/athletic/6694489/2025/10/06/field-goal-camera-wire-london-vikings-will-reichard/
+
+**Trump Threatens to Invoke Insurrection Act After Courts Push Back on Troops**\
+`The president said he would invoke emergency powers to deploy the National Guard if “people were being killed, and courts were holding us up.”`\
+https://nytimes.com/2025/10/06/us/trump-insurrection-act-national-guard.html
+
 **Sabres depth chart analysis: Colten Ellis claimed off waivers amid injury, goalie issues**\
 `The Sabres are already dealing with a bit of adversity ahead of their regular-season opener on Thursday night.`\
 https://nytimes.com/athletic/6695067/2025/10/06/sabres-depth-chart-analysis-colten-ellis/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/06/opinion/contributors/energy-cost-ai.html
 **Cardinals coach Jonathan Gannon apologizes for sideline confrontation**\
 `Gannon was seen screaming at — and appearing to strike — Demercado after the running back dropped the football just before scoring a TD.`\
 https://nytimes.com/athletic/6695191/2025/10/06/cardinals-jonathan-gannon-apology-emari-demercado/
-
-**Weekly Student News Quiz: National Guard, Taylor Swift, Comets**\
-`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
-https://nytimes.com/interactive/2025/10/06/learning/07StudentNewsQuiz.html
-
-**How Will Bad Bunny’s Super Bowl Show Shape U.S. Politics?**\
-`President Trump made major inroads with Latino voters last year. Whether they stick with Republicans in the midterms is a crucial question.`\
-https://nytimes.com/2025/10/06/us/politics/bad-bunny-super-bowl-politics.html
 

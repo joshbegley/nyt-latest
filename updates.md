@@ -1,3 +1,11 @@
+**Sources: Vikings believe Will Reichard's missed FG vs. Browns hit camera wire in London**\
+`Reichard had been perfect on field goals this season before Sunday's kick in London took an odd and sharp turn to the right. `\
+https://nytimes.com/athletic/6694489/2025/10/06/field-goal-camera-wire-london-vikings-will-reichard/
+
+**Trump Threatens to Invoke Insurrection Act After Courts Push Back on Troops**\
+`The president said he would invoke emergency powers to deploy the National Guard if “people were being killed, and courts were holding us up.”`\
+https://nytimes.com/2025/10/06/us/trump-insurrection-act-national-guard.html
+
 **Sabres depth chart analysis: Colten Ellis claimed off waivers amid injury, goalie issues**\
 `The Sabres are already dealing with a bit of adversity ahead of their regular-season opener on Thursday night.`\
 https://nytimes.com/athletic/6695067/2025/10/06/sabres-depth-chart-analysis-colten-ellis/
