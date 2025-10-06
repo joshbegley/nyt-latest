@@ -1,3 +1,7 @@
+**Daria Kasatkina becomes latest tennis player to end season early: 'I am at breaking point'**\
+`Kasatkina described the tennis schedule as 'too much' in announcing that she will not play again until 2026.`\
+https://nytimes.com/athletic/6693298/2025/10/06/tennis-schedule-daria-kasatkina-ends-season-early/
+
 **TAFC: Life in the Premier League pressure cooker and a wind-assisted own goal**\
 `Today in TAFC: Mixed fortunes for under-pressure Premier League managers and the twisted logic of the '007' jibe `\
 https://nytimes.com/athletic/6693300/2025/10/06/athletic-fc-newsletter-postecoglou-premier-league/

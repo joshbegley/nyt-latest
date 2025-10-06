@@ -1,3 +1,11 @@
+**President Trump and the Supreme Court**\
+`Today, we look ahead at the potential consequences of the Supreme Court term that begins today.`\
+https://nytimes.com/2025/10/06/world/middleeast/trump-supreme-court-government-shutdown.html
+
+**Inside Barcelona: Flick's plans to fill the leadership void, Yamal fitness row continues**\
+`With Barca suffering a dip in form leading to back-to-back defeats, how is the manager intending to fix things?`\
+https://nytimes.com/athletic/6693282/2025/10/06/inside-barcelona-hansi-flick-lamine-yamal/
+
 **Daria Kasatkina becomes latest tennis player to end season early: 'I am at breaking point'**\
 `Kasatkina described the tennis schedule as 'too much' in announcing that she will not play again until 2026.`\
 https://nytimes.com/athletic/6693298/2025/10/06/tennis-schedule-daria-kasatkina-ends-season-early/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6689493/2025/10/06/chiefs-kingsley-suamataia-develo
 **Chiefs at Jaguars on MNF: Mahomes vs. Lawrence, odds and broadcast predictions**\
 `Here's one real prop and a few broadcast predictions for tonight's "Monday Night Football" game down in Jacksonville.`\
 https://nytimes.com/athletic/6684917/2025/10/06/chiefs-jaguars-mnf-nfl-taylor-swift-travis-kelce-how-to-watch/
-
-**The Yankees have been embarrassed by Blue Jays in ALDS. Is there any hope left?**\
-`It's been a historic embarrassment for the Yankees, who are facing elimination in Tuesday's Game 3. Now what? `\
-https://nytimes.com/athletic/6692598/2025/10/06/yankees-embarrassed-bluejays-alds/
-
-**Emotions, support and TDs: David Montgomery's return to Cincinnati brings it all out**\
-`Montgomery played in his hometown in front of friends and family, including his sister Kiki, and called it "super meaningful."`\
-https://nytimes.com/athletic/6692962/2025/10/06/lions-david-montgomery-hometown-emotional-return/
 
