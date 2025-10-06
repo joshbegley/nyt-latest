@@ -1,3 +1,7 @@
+**Internal Audits Shed Light on Ukraine’s Secret Weapons Spending**\
+`The government reviews show the country’s challenge as U.S. support wanes and Kyiv pivots to production from a domestic arms industry with a long history of corruption.`\
+https://nytimes.com/2025/10/06/world/europe/ukraine-war-weapons-defense-contracts-payments.html
+
 **Rosenthal: The Yankees' season is on the line. So are their chances to maximize peak Aaron Judge**\
 `The Yankees will need to win three in a row over the Blue Jays to overcome a 2-0 deficit in the American League Division Series.`\
 https://nytimes.com/athletic/6692913/2025/10/06/aaron-judge-yankees-window-alds/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6692913/2025/10/06/aaron-judge-yankees-window-alds/
 https://nytimes.com/athletic/6693284/2025/10/06/south-florida-vs-north-texas-stream-how-to-watch-oct-10/
 
 **Nobel Prize in Physiology or Medicine Is Awarded for Work on Immune Systems**\
-`Mary E. Brunkow, Fred Ramsdell and Shimon Sakaguchi were awarded the prize on Monday.`\
+`Mary E. Brunkow, Fred Ramsdell and Shimon Sakaguchi were awarded the prize for research showing how the body regulates its immune responses.`\
 https://nytimes.com/2025/10/06/health/nobel-prize-medicine-physiology.html
 
 **What we learned in NFL Week 5: More Buccaneers late-game magic, Jets hit new low**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6682720/2025/10/06/tennis-court-speed-federer-zvere
 **Ravaged by War: Trying to Survive Gaza’s Present, Hoping for a Future**\
 `Two years of intense warfare in Gaza have left its people with a dismembered and disordered society. The destruction is vast and many Gazans have mental and physical wounds that could scar a generation.`\
 https://nytimes.com/2025/10/06/world/middleeast/israel-gaza-war.html
-
-**How to watch Eagles at Giants: Time, TV, streaming**\
-`Find out how to watch the Philadelphia Eagles play the New York Giants, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6693269/2025/10/06/eagles-vs-giants-stream-how-to-watch-oct-9/
 

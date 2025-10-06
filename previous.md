@@ -1,4 +1,12 @@
-**Nobel Prize in Physiology or Medicine Is Awarded for Work in Peripheral Immune Tolerance**\
+**Rosenthal: The Yankees' season is on the line. So are their chances to maximize peak Aaron Judge**\
+`The Yankees will need to win three in a row over the Blue Jays to overcome a 2-0 deficit in the American League Division Series.`\
+https://nytimes.com/athletic/6692913/2025/10/06/aaron-judge-yankees-window-alds/
+
+**How to watch South Florida at North Texas: Time, TV, streaming**\
+`Find out how to watch the South Florida Bulls play the North Texas Mean Green, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6693284/2025/10/06/south-florida-vs-north-texas-stream-how-to-watch-oct-10/
+
+**Nobel Prize in Physiology or Medicine Is Awarded for Work on Immune Systems**\
 `Mary E. Brunkow, Fred Ramsdell and Shimon Sakaguchi were awarded the prize on Monday.`\
 https://nytimes.com/2025/10/06/health/nobel-prize-medicine-physiology.html
 
@@ -19,7 +27,7 @@ https://nytimes.com/athletic/6691711/2025/10/06/mlb-pitch-tipping-paranoia-camer
 https://nytimes.com/issue/todaysinyt/2025/10/06/todays-new-york-times-international-edition
 
 **The truth about tennis court speed and Roger Federer's comments on Alcaraz and Sinner**\
-`The tennis great's comments on whether slower courts benefit the two top players provoked heated discussion.`\
+`The tennis great's comments on whether slower courts benefit the two top men's players provoked heated discussion.`\
 https://nytimes.com/athletic/6682720/2025/10/06/tennis-court-speed-federer-zverev-sinner-alcaraz/
 
 **Ravaged by War: Trying to Survive Gaza’s Present, Hoping for a Future**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/06/world/middleeast/israel-gaza-war.html
 **How to watch Eagles at Giants: Time, TV, streaming**\
 `Find out how to watch the Philadelphia Eagles play the New York Giants, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6693269/2025/10/06/eagles-vs-giants-stream-how-to-watch-oct-9/
-
-**How to watch Cubs at Brewers: Game 2 Time, TV, streaming**\
-`Find out how to watch the Chicago Cubs play the Milwaukee Brewers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6693264/2025/10/06/cubs-vs-brewers-stream-how-to-watch-oct-6/
-
-**Pistons preview: Jaden Ivey could be secret weapon for Detroit this season**\
-`"He looks explosive, he looks comfortable out there. He looks like himself," says coach J.B. Bickerstaff of Ivey. `\
-https://nytimes.com/athletic/6692095/2025/10/06/detroit-pistons-preview-nba-jaden-ivey/
 
