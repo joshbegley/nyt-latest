@@ -1,3 +1,11 @@
+**Ravaged by War: Trying to Survive Gaza’s Present, Hoping for a Future**\
+`Two years of intense warfare in Gaza have left its people with a dismembered and disordered society. The destruction is vast and many Gazans have mental and physical wounds that could scar a generation.`\
+https://nytimes.com/2025/10/06/world/middleeast/israel-gaza-war.html
+
+**How to watch Eagles at Giants: Time, TV, streaming**\
+`Find out how to watch the Philadelphia Eagles play the New York Giants, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6693269/2025/10/06/eagles-vs-giants-stream-how-to-watch-oct-9/
+
 **How to watch Cubs at Brewers: Game 2 Time, TV, streaming**\
 `Find out how to watch the Chicago Cubs play the Milwaukee Brewers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6693264/2025/10/06/cubs-vs-brewers-stream-how-to-watch-oct-6/
