@@ -1,3 +1,15 @@
+**Canadiens season-opening notebook: Final cuts, lines shaping up, Newhook’s importance**\
+`We also examine Cole Caufield's Olympic ambitions, Jayden Struble's healthy outlook and more.`\
+https://nytimes.com/athletic/6693091/2025/10/06/canadiens-alex-newhook-final-cuts/
+
+**Oh, the Horror! Do You Know the Books That Inspired These Movies and TV Shows?**\
+`Feeling the Halloween spirit already? Try this quiz on scary novels and their screen adaptations.`\
+https://nytimes.com/interactive/2025/10/06/books/review/horror-book-quiz.html
+
+**The Bounce: Aces, Wemby play bully, and we preview the Spurs and Sixers**\
+`Welcome to The Bounce, The Athletic's basketball newsletter.`\
+https://nytimes.com/athletic/6693651/2025/10/06/aces-victor-wembanyama-sixers-spurs-the-bounce/
+
 **The Left Has Its Rabbit Holes**\
 `On the left-leaning podcast “TrueAnon,” three friends take a true-crime approach to subjects often thought too risky for liberals to touch.`\
 https://nytimes.com/2025/10/06/style/trueanon-podcast-left-conspiracy-theories.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6693211/2025/10/06/disjointed-bills-surprising-loss
 **There’s No Precedent for This Shutdown**\
 `Congress may seem dysfunctional from the outside, but the government shutdown is a sign that something more sinister is going on, says the Opinion columnist Michelle Goldberg.`\
 https://nytimes.com/video/opinion/100000010435133/theres-no-precedent-for-this-shutdown.html
-
-**What to Know About the 2025 Nobel Prizes**\
-`The awards are being announced this week.`\
-https://nytimes.com/2025/10/06/world/europe/nobel-prize.html
-
-**Anxiety and Uncertainty Pushes Gold Near $4,000 an Ounce**\
-`Approaching the milestone for the first time, the precious metal is on course for its best year since the 1970s, highlighting unease among investors.`\
-https://nytimes.com/2025/10/06/business/gold-price-us-economy.html
-
-**French Prime Minister Resigns After Less Than a Month in Office**\
-`Sébastien Lecornu resigned as France’s prime minister after serving for less than a month, the shortest tenure in the country’s history. The resignation also came amid growing concern that he would not be able to get a budget passed.`\
-https://nytimes.com/video/world/europe/100000010441051/france-prime-minister-resignation-lecornu.html
 
