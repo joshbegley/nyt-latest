@@ -1,3 +1,11 @@
+**A'ja Wilson is on another level as Aces step closer to another WNBA title**\
+`The MVP flexed her might in Game 2 as the Aces took a commanding 2-0 lead in this best-of-seven series.`\
+https://nytimes.com/athletic/6692340/2025/10/06/aja-wilson-aces-mercury-wnba-finals-game-2/
+
+**Paramount Buys The Free Press, Ushering in New Era at CBS News**\
+`Bari Weiss, a co-founder of The Free Press, will become editor in chief of CBS News.`\
+https://nytimes.com/2025/10/06/business/media/paramount-bari-weiss-free-press-cbs-news.html
+
 **Ilona Maher: U.S. rugby star honored with Barbie doll**\
 `Team Barbie — made up of four professional women's rugby players, including Maher — will launch next year.`\
 https://nytimes.com/athletic/6693389/2025/10/06/ilona-maher-barbie-rugby/
