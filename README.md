@@ -1,3 +1,11 @@
+**Maple Leafs claim goalie Cayden Primeau, winger Sammy Blais off waivers**\
+`It is likely both players will be added to the Leafs' roster to fill depth roles.`\
+https://nytimes.com/athletic/6694445/2025/10/06/maple-leafs-cayden-primeau-sammy-blais-waivers/
+
+**Judge Poised to Free Abrego Garcia if Officials Can’t Supply Deportation Plans**\
+`The judge expressed exasperation at government lawyers’ failure to answer “basic questions” or produce evidence during what she called a “topsy-turvy, inside-out day.”`\
+https://nytimes.com/2025/10/06/us/politics/abrego-garcia-court-hearing.html
+
 **Trump Gave a Partisan Speech to Navy Troops, to Mixed Reactions**\
 `President Trump’s attempts to politicize the military have become more overt as he makes the case for having troops at his disposal in American cities.`\
 https://nytimes.com/2025/10/06/us/politics/trump-navy-portland-troops.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6694358/2025/10/06/colts-kicker-spencer-shrader-inj
 **Phillies' Harrison Bader to miss Game 2 of the NLDS with groin injury**\
 `Bader injured his groin in the Game 1 loss to the Dodgers. The Phillies believe the injury isn't serious, but he's not in the Game 2 lineup.`\
 https://nytimes.com/athletic/6694409/2025/10/06/phillies-harrison-bader-groin-injury-nlds/
-
-**NHL waiver tracker: Best players on the wire throughout 2025-26 preseason**\
-`Corey Pronman and Harman Dayal provide analysis of the top players placed on waivers as the regular season approaches.`\
-https://nytimes.com/athletic/6662091/2025/10/06/nhl-waivers-tracker-preseason-2025/
-
-**Trump says Portland is ‘burning.’ Here’s the reality.**\
-`By Anna Griffin and Jacey Fortin`\
-https://nytimes.com/live/2025/10/06/us/national-guard-trump-oregon-chicago/trump-portland-crime-reality
 

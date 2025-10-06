@@ -1,3 +1,19 @@
+**Trump Gave a Partisan Speech to Navy Troops, to Mixed Reactions**\
+`President Trump’s attempts to politicize the military have become more overt as he makes the case for having troops at his disposal in American cities.`\
+https://nytimes.com/2025/10/06/us/politics/trump-navy-portland-troops.html
+
+**Winners and losers of Connor McDavid's contract extension: Oilers get a discount, Leafs miss out**\
+`The fallout from this extension will be felt league-wide, as one of hockey's best players ever has given his team a huge hometown discount.`\
+https://nytimes.com/athletic/6694128/2025/10/06/connor-mcdavid-contract-extension-oilers-winners-losers/
+
+**Panthers' Seth Jones 'taken aback' by Blackhawks' Nick Foligno's post-trade swipes, but no ill will**\
+`Jones said he talked to Foligno about it, and Foligno had no ill will toward Jones on Monday.`\
+https://nytimes.com/athletic/6694457/2025/10/06/panthers-seth-jones-blackhawks-nick-foligno-post-trade-swipes/
+
+**Trump Aimed Shutdown Cuts at Democrats, but G.O.P. Districts Are Hit, Too**\
+`As the president cancels projects in Democratic-run states, he is cutting money that benefits his own party’s lawmakers in some of the most competitive House districts.`\
+https://nytimes.com/2025/10/06/us/politics/republican-districts-political-pain-program-cancellations.html
+
 **Submit questions for Vic Tafur's 49ers mailbag**\
 `I stole the San Francisco 49ers mailbag from Matt Barrows this week, but it’s empty. Help me fill it up!`\
 https://nytimes.com/athletic/6694437/2025/10/06/49ers-mailbag-questions-vic-tafur/
