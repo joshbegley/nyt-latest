@@ -1,3 +1,15 @@
+**Are the Las Vegas Aces unstoppable? So far, the Phoenix Mercury can't figured them out**\
+`The Aces put on another masterclass to take a 2-0 WNBA Finals lead.`\
+https://nytimes.com/athletic/6692556/2025/10/05/las-vegas-aces-phoenix-mercury-wnba-finals-game-2/
+
+**Lions-Bengals takeaways: Detroit's Jahmyr Gibbs, David Montgomery tie NFL record in win**\
+`Gibbs and Montgomery each had a touchdown, marking this as the 14th game both scored, tying an NFL record, according to Detroit's PR staff.`\
+https://nytimes.com/athletic/6692391/2025/10/05/lions-bengals-score-result-takeaways-nfl/
+
+**Christian Pulisic misses penalty in AC Milan's 0-0 draw with Juventus**\
+`The USMNT star missed a chance to give Milan the lead over Juventus, and the two ultimately played to a scoreless draw`\
+https://nytimes.com/athletic/6692041/2025/10/05/christian-pulisic-misses-penalty-in-ac-milans-0-0-draw-with-juventus/
+
 **Aaron Glenn is buried under the monumental challenge of being the Jets coach**\
 `Glenn has found out the hard way that you don’t reverse the Jets' fortunes merely by firing Aaron Rodgers and acting like a tough guy.`\
 https://nytimes.com/athletic/6692394/2025/10/05/aaron-glenn-jets-head-coach-challenge-nfl/
