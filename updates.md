@@ -1,3 +1,7 @@
+**Miami, South Carolina cancel home-and-home series scheduled for 2026-27**\
+`The schools, which mutually cancelled, scheduled the series in 2019, before either of their conferences considered adding a ninth game.`\
+https://nytimes.com/athletic/6694744/2025/10/06/miami-south-carolina-ncaa-football-home-series-cancel/
+
 **Shutdown Politics Has G.O.P. Singing Government’s Praises**\
 `As Republicans try to pin blame for shutdown damage on Democrats, they are hailing a federal bureaucracy they normally bash as wasteful and overreaching.`\
 https://nytimes.com/2025/10/06/us/politics/shutdown-republicans-trump-government.html
