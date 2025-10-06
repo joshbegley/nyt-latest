@@ -1,3 +1,11 @@
+**How to watch NHL games in 2025-26: TV channels, streaming info and broadcast schedules**\
+`National and local broadcasts will be scattered across over-the-air antennas, cable packages and a variety of streaming services.`\
+https://nytimes.com/athletic/6689390/2025/10/06/nhl-television-broadcast-streaming-2025/
+
+**D.E.I. Helps Everyone (White Men Included)**\
+`It’s easy to understand why the Trump administration’s funding cuts to D.E.I.-related research will harm the overall health of underrepresented groups, including women, people of color and L.G.B.T.Q. people. But they could actually hurt white men too.`\
+https://nytimes.com/video/opinion/100000010441484/dei-helps-everyone-white-men-included.html
+
 **Maple Leafs claim goalie Cayden Primeau, winger Sammy Blais off waivers**\
 `It is likely both players will be added to the Leafs' roster to fill depth roles.`\
 https://nytimes.com/athletic/6694445/2025/10/06/maple-leafs-cayden-primeau-sammy-blais-waivers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6694437/2025/10/06/49ers-mailbag-questions-vic-tafu
 **Why did Connor McDavid take such a discount? Does this re-set the NHL market? Johnston and LeBrun**\
 `The Athletic's NHL insiders react to McDavid's two-year, $12.5 million AAV contract extension with the Oilers.`\
 https://nytimes.com/athletic/6694303/2025/10/06/connor-mcdavid-extension-insider-analysis/
-
-**Colts kicker Spencer Shrader out for the year with torn ACL, MCL**\
-`Shrader had only missed one of his 14 field-goal attempts this season. `\
-https://nytimes.com/athletic/6694358/2025/10/06/colts-kicker-spencer-shrader-injury/
-
-**Phillies' Harrison Bader to miss Game 2 of the NLDS with groin injury**\
-`Bader injured his groin in the Game 1 loss to the Dodgers. The Phillies believe the injury isn't serious, but he's not in the Game 2 lineup.`\
-https://nytimes.com/athletic/6694409/2025/10/06/phillies-harrison-bader-groin-injury-nlds/
 

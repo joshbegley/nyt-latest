@@ -1,3 +1,11 @@
+**How to watch NHL games in 2025-26: TV channels, streaming info and broadcast schedules**\
+`National and local broadcasts will be scattered across over-the-air antennas, cable packages and a variety of streaming services.`\
+https://nytimes.com/athletic/6689390/2025/10/06/nhl-television-broadcast-streaming-2025/
+
+**D.E.I. Helps Everyone (White Men Included)**\
+`It’s easy to understand why the Trump administration’s funding cuts to D.E.I.-related research will harm the overall health of underrepresented groups, including women, people of color and L.G.B.T.Q. people. But they could actually hurt white men too.`\
+https://nytimes.com/video/opinion/100000010441484/dei-helps-everyone-white-men-included.html
+
 **Maple Leafs claim goalie Cayden Primeau, winger Sammy Blais off waivers**\
 `It is likely both players will be added to the Leafs' roster to fill depth roles.`\
 https://nytimes.com/athletic/6694445/2025/10/06/maple-leafs-cayden-primeau-sammy-blais-waivers/
