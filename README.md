@@ -1,3 +1,7 @@
+**Nobel Prize in Physiology or Medicine Is Awarded for Work in Peripheral Immune Tolerance**\
+`Mary E. Brunkow, Fred Ramsdell and Shimon Sakaguchi were awarded the prize on Monday.`\
+https://nytimes.com/2025/10/06/health/nobel-prize-medicine-physiology.html
+
 **What we learned in NFL Week 5: More Buccaneers late-game magic, Jets hit new low**\
 `It was a Sunday of comebacks across the NFL, and after the dust finally settled, there wasn't an unbeaten left.`\
 https://nytimes.com/athletic/6692670/2025/10/06/nfl-week-5-takeaways-baker-mayfield-buccaneers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6693264/2025/10/06/cubs-vs-brewers-stream-how-to-wa
 **Pistons preview: Jaden Ivey could be secret weapon for Detroit this season**\
 `"He looks explosive, he looks comfortable out there. He looks like himself," says coach J.B. Bickerstaff of Ivey. `\
 https://nytimes.com/athletic/6692095/2025/10/06/detroit-pistons-preview-nba-jaden-ivey/
-
-**Falcons mailbag: Atlanta's uneven offense, Kyle Pitts, injury issues and more**\
-`Under OC Zac Robinson, the Falcons were a disappointing 25th in the NFL in scoring with 19 points per game through their first four games.`\
-https://nytimes.com/athletic/6686659/2025/10/06/falcons-offense-kyle-pitts-zac-robinson-injury/
 
