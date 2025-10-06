@@ -1,3 +1,7 @@
+**Seahawks’ defensive meltdown spoils Sam Darnold’s near-perfect day: ‘It hurts’**\
+`Darnold's late interception was costly, but it wouldn't have come to that if the Seahawks' defense had played anywhere near its standard.`\
+https://nytimes.com/athletic/6692710/2025/10/05/seahawks-bucs-sam-darnold-baker-mayfield/
+
 **Buccaneers Beat Seahawks in Thriller**\
 `Baker Mayfield sparked Tampa Bay’s comeback in a high-scoring Week 5 game.`\
 https://nytimes.com/video/the-athletic/100000010440840/buccaneers-beat-seahawks-in-thriller.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6692504/2025/10/05/giants-fumble-turnovers-jaxson-d
 **Trump Calls Deadly Strikes on Boats in Caribbean an ‘Act of Kindness’**\
 `The president, speaking aboard an aircraft carrier off Norfolk, Va., repeated his claims that the boats were trafficking drugs bound for the United States.`\
 https://nytimes.com/2025/10/05/us/politics/trump-caribbean-strikes-drugs-kindness.html
-
-**Brian Schottenheimer 'back in my bag' as Cowboys win big without multiple starters**\
-`Jerry Jones called it a "great coaching job" with six offensive starters, including four offensive linemen, out against the Jets.`\
-https://nytimes.com/athletic/6692440/2025/10/05/cowboys-brian-schottenheimer-dak-prescott-jets/
 
