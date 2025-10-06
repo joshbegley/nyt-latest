@@ -1,3 +1,7 @@
+**Sabres depth chart analysis: Colten Ellis claimed off waivers amid injury, goalie issues**\
+`The Sabres are already dealing with a bit of adversity ahead of their regular-season opener on Thursday night.`\
+https://nytimes.com/athletic/6695067/2025/10/06/sabres-depth-chart-analysis-colten-ellis/
+
 **Inside the Connor McDavid extension: Months of negotiations that ended with a shocking phone call**\
 `Even after months of talks between the Oilers and McDavid's camp, the team didn't know what he wanted in his contract until Monday morning.`\
 https://nytimes.com/athletic/6695072/2025/10/06/oilers-connor-mcdavid-extension-negotiations/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/10/06/learning/07StudentNewsQuiz.html
 **How Will Bad Bunny’s Super Bowl Show Shape U.S. Politics?**\
 `President Trump made major inroads with Latino voters last year. Whether they stick with Republicans in the midterms is a crucial question.`\
 https://nytimes.com/2025/10/06/us/politics/bad-bunny-super-bowl-politics.html
-
-**Who Is Taylor Swift’s “Actually Romantic” About?**\
-`Who is Taylor Swift’s diss track “Actually Romantic” actually about? Our critic Jon Caramanica breaks it down.`\
-https://nytimes.com/video/podcasts/100000010442311/who-is-taylor-swifts-actually-romantic-about.html
 

@@ -1,3 +1,7 @@
+**Sabres depth chart analysis: Colten Ellis claimed off waivers amid injury, goalie issues**\
+`The Sabres are already dealing with a bit of adversity ahead of their regular-season opener on Thursday night.`\
+https://nytimes.com/athletic/6695067/2025/10/06/sabres-depth-chart-analysis-colten-ellis/
+
 **Inside the Connor McDavid extension: Months of negotiations that ended with a shocking phone call**\
 `Even after months of talks between the Oilers and McDavid's camp, the team didn't know what he wanted in his contract until Monday morning.`\
 https://nytimes.com/athletic/6695072/2025/10/06/oilers-connor-mcdavid-extension-negotiations/
