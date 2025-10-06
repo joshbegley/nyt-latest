@@ -1,3 +1,11 @@
+**Inside the Connor McDavid extension: Months of negotiations that ended with a shocking phone call**\
+`Even after months of talks between the Oilers and McDavid's camp, the team didn't know what he wanted in his contract until Monday morning.`\
+https://nytimes.com/athletic/6695072/2025/10/06/oilers-connor-mcdavid-extension-negotiations/
+
+**Dogs Killed 2-Year-Old at Day Care Center While Owner Slept, Police Say**\
+`The owner of the unlicensed facility in Valdosta, Ga., was charged with second-degree murder, the authorities said.`\
+https://nytimes.com/2025/10/06/us/illegal-daycare-center-child-killed-dog-attack.html
+
 **World Cup price jumps kick in early as FIFA raises costs amid high demand**\
 `The effects of variable pricing are already being felt on the World Cup ticket market`\
 https://nytimes.com/athletic/6695187/2025/10/06/2026-world-cup-tickets-pricing-demand/
