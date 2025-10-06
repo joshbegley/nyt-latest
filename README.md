@@ -1,3 +1,15 @@
+**A Marine Park in Canada Warns That It May Euthanize 30 Beluga Whales**\
+`The government has barred Marineland from shipping its whales to an aquarium in China so the park is threatening to put the whales down.`\
+https://nytimes.com/2025/10/06/world/canada/marineland-canada-beluga-whales.html
+
+**C.I.A. Deputy Director Has Replaced Agency’s Top Legal Official With Himself**\
+`It is not clear what is behind the move by Michael Ellis, a Trump loyalist. A legal ethics specialist said it could raise conflict-of-interest issues.`\
+https://nytimes.com/2025/10/06/us/politics/michael-ellis-cia-trump.html
+
+**Man Breaks Into Washington State Capitol, Toppling Statues and Setting Fire**\
+`The vandalism did not appear to have been politically motivated, according to the Washington State Patrol, which said that a suspect was in custody.`\
+https://nytimes.com/2025/10/06/us/washington-state-capitol-vandalized.html
+
 **Lions to lose Terrion Arnold 'for a long time,' Dan Campbell says**\
 `The Lions already are without D.J. Reed, who went on IR. They'll have to find a solution with both corners out before playing the Chiefs.`\
 https://nytimes.com/athletic/6694716/2025/10/06/terrion-arnold-injury-update-lions/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6694712/2025/10/06/washington-state-vs-ole-miss-str
 **How to watch Alabama at Missouri: Time, TV, streaming**\
 `Find out how to watch the Alabama Crimson Tide play the Missouri Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6694710/2025/10/06/alabama-vs-missouri-stream-how-to-watch-oct-11/
-
-**How to watch Nebraska at Maryland: Time, TV, streaming**\
-`Find out how to watch the Nebraska Cornhuskers play the Maryland Terrapins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6694709/2025/10/06/nebraska-vs-maryland-stream-how-to-watch-oct-11/
-
-**How to watch Iowa State at Colorado: Time, TV, streaming**\
-`Find out how to watch the Iowa State Cyclones play the Colorado Buffaloes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6694706/2025/10/06/iowa-state-vs-colorado-stream-how-to-watch-oct-11/
-
-**How to watch Northwestern at Penn State: Time, TV, streaming**\
-`Find out how to watch the Northwestern Wildcats play the Penn State Nittany Lions, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6694704/2025/10/06/northwestern-vs-penn-state-stream-how-to-watch-oct-11/
 
