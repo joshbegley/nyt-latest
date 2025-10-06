@@ -1,3 +1,19 @@
+**Violent and ferocious: Down 17-0, Rico Dowdle and the Panthers were not going to be denied**\
+`Dowdle ran for 206 yards and the Panthers held the Dolphins to 19 rushing yards in rallying to their second win of the season. `\
+https://nytimes.com/athletic/6692381/2025/10/05/panthers-rico-dowdle-comeback-dolphins/
+
+**Lions-Bengals: Jahmyr Gibbs, David Montgomery tie NFL record in win vs. Bengals**\
+`The local products came through for the Lions today.`\
+https://nytimes.com/athletic/6692391/2025/10/05/lions-bengals-score-result-takeaways-nfl/
+
+**Titans-Cardinals takeaways: Tennessee rallies after Emari Demercado's blunder**\
+`Instead of a likely game-sealing touchdown, Arizona's Emari Demercado fumbled through the end zone, setting the stage for a Titans win.`\
+https://nytimes.com/athletic/6692257/2025/10/05/titans-cardinals-score-result-takeaways-nfl/
+
+**Christian Pulisic misses penalty in AC Milan's 0-0 draw with Juventus**\
+`U.`\
+https://nytimes.com/athletic/6692041/2025/10/05/christian-pulisic-misses-penalty-in-ac-milans-0-0-draw-with-juventus/
+
 **Commanders-Chargers takeaways: Jayden Daniels returns from injury to rally Washington**\
 `In his first start in Southern California, Daniels led the Commanders to a win at SoFi Stadium, 75 miles away from where he grew up.`\
 https://nytimes.com/athletic/6691946/2025/10/05/commanders-chargers-score-result-takeaways-nfl/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6692307/2025/10/05/yankees-blue-jays-game-2-score-r
 **10-Minute Challenge: A Modern Master Takes Us Inside an Artist’s Studio**\
 `We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
 https://nytimes.com/interactive/2025/10/05/upshot/ten-minute-challenge-marshall.html
-
-**While Dillon Gabriel provided hope, Browns' loss to Vikings felt all too familiar**\
-`Cleveland's offense appeared to get a boost with the rookie QB behind center, but the team again failed to reach the 20-point mark. `\
-https://nytimes.com/athletic/6692191/2025/10/05/browns-loss-vikings-dillon-gabriel/
-
-**Cubs takeaways: Chicago needs to lean into its advantage, no Kyle Tucker in right and more**\
-`Plus notes on how the Cubs' high-leverage arms got a break Saturday, which could help their chances in Game 2.`\
-https://nytimes.com/athletic/6692136/2025/10/05/cubs-nlds-takeaways-power-advantage-kyle-tucker-right-field/
-
-**Israel and Hamas Show Signs of Embracing Parts of Trump’s Cease-Fire Deal**\
-`Both sides have reacted positively to a U.S. proposal to release Israeli hostages as part of a cease-fire agreement, but reaching a full deal that would require Hamas to disarm remains a serious challenge.`\
-https://nytimes.com/video/world/100000010440586/international-middle-east-israel-hamas.html
-
-**Moise Bombito injury: What comes next for Canada?**\
-`Canada’s World Cup hopes were dealt a severe blow as star centre-back Moise Bombito suffered a fractured left tibia on Sunday.`\
-https://nytimes.com/athletic/6692162/2025/10/05/moise-bombito-injury-what-comes-next-for-canada/
 

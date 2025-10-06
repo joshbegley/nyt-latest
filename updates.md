@@ -1,3 +1,15 @@
+**Commanders-Chargers takeaways: Jayden Daniels returns from injury to rally Washington**\
+`In his first start in Southern California, Daniels led the Commanders to a win at SoFi Stadium, 75 miles away from where he grew up.`\
+https://nytimes.com/athletic/6691946/2025/10/05/commanders-chargers-score-result-takeaways-nfl/
+
+**After a new low, Geno Smith, Pete Carroll and the Raiders have nowhere to look but in**\
+`“I’m processing it poorly, to tell you the truth,” Carroll said. “Because I did expect to win right out of the chute.”`\
+https://nytimes.com/athletic/6692390/2025/10/05/las-vegas-raiders-loss-indianapolis-colts/
+
+**Buccaneers-Seahawks takeaways: Baker Mayfield, late pick spark walk-off win**\
+`Sam Darnold's brilliant day (341 yards and four touchdown passes) marred by late interception in 38-35 loss. `\
+https://nytimes.com/athletic/6692149/2025/10/05/buccaneers-seahawks-score-result-takeaways-nfl/
+
 **U.S. into U-20 World Cup last 16 despite loss to South Africa**\
 `The U.`\
 https://nytimes.com/athletic/6692249/2025/10/05/u-s-into-u-20-world-cup-last-16-despite-loss-to-south-africa/
