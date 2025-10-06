@@ -1,3 +1,15 @@
+**The making of Trey Yesavage, the Blue Jays’ newly minted October phenom**\
+`Drafted 20th overall last year, Yesavage climbed from Low-A to deliver one of the most memorable starts in Toronto history.`\
+https://nytimes.com/athletic/6692627/2025/10/05/who-is-trey-yesavage-blue-jays-october/
+
+**After another Colts rout, it's time to acknowledge them for what they are: contenders**\
+`With Daniel Jones playing at a near-MVP level and the defense generating eight turnovers in five weeks, the Colts look like contenders.`\
+https://nytimes.com/athletic/6692076/2025/10/05/colts-contenders-raiders-daniel-jones-jonathan-taylor/
+
+**It took 147 seconds for the Jets to unravel against the Cowboys**\
+`A familiar fumble started a chain reaction of mistakes that sparked a blowout loss.`\
+https://nytimes.com/athletic/6692693/2025/10/05/new-york-jets-blowout-loss-dallas-cowboys/
+
 **Buccaneers Beat Seahawks in Thriller**\
 `Baker Mayfield sparked Tampa Bay’s comeback in a high-scoring Week 5 game.`\
 https://nytimes.com/video/the-athletic/100000010440840/buccaneers-beat-seahawks-in-thriller.html
