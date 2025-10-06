@@ -1,3 +1,15 @@
+**Inside Real Madrid: Vinicius Jr's return to form (with help from Mbappe), international break injury fears**\
+`The Brazilian is firing on all cylinders again, but Madrid will be hoping their stars remain fit while away with their countries`\
+https://nytimes.com/athletic/6693325/2025/10/06/inside-real-madrid-vinicius-mbappe/
+
+**After years waiting, 'Mr. UCLA' finally got his chance to call plays. It was worth the wait**\
+`For college football coaches who know UCLA "institution" Jerry Neuheisel, Saturday's miracle win is that much sweeter.`\
+https://nytimes.com/athletic/6692196/2025/10/06/ucla-jerry-neuheisel-penn-state-upset-win/
+
+**Fears of Economic Turmoil Deepen in France as Another Prime Minister Quits**\
+`The surprise resignation of Sébastien Lecornu after less than a month in office intensified concerns that France would be unable to tackle its enormous debt pile.`\
+https://nytimes.com/2025/10/06/business/france-economy-markets-politics.html
+
 **Emari Demercado joins a dubious list. Why do NFL players keep committing goal-line goofs?**\
 `Yet another NFL player had difficulty figuring out how far he had to run to complete the act of scoring a touchdown on Sunday.`\
 https://nytimes.com/athletic/6692745/2025/10/06/nfl-dropped-ball-goal-line-fumble-emari-demercardo/
