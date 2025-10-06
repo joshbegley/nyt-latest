@@ -1,3 +1,11 @@
+**Phillies' Harrison Bader to miss Game 2 of the NLDS with groin injury**\
+`Bader injured his groin in the Game 1 loss to the Dodgers. The Phillies believed the injury isn't serious but he's not in the Game 2 lineup.`\
+https://nytimes.com/athletic/6694409/2025/10/06/phillies-harrison-bader-groin-injury-nlds/
+
+**NHL waiver tracker: Best players on the wire throughout 2025-26 preseason**\
+`Corey Pronman and Harman Dayal provide analysis of the top players placed on waivers as the regular season approaches.`\
+https://nytimes.com/athletic/6662091/2025/10/06/nhl-waivers-tracker-preseason-2025/
+
 **Trump says Portland is ‘burning.’ Here’s the reality.**\
 `By Anna Griffin and Jacey Fortin`\
 https://nytimes.com/live/2025/10/06/us/national-guard-trump-oregon-chicago/trump-portland-crime-reality
@@ -29,13 +37,4 @@ https://nytimes.com/athletic/6694145/2025/10/06/stanley-cup-odds-golden-knights-
 **Easton Cowan's status with the Leafs takes a turn: 'He's here right now'**\
 `It seemed like a sure thing that Cowan would make the opening-night lineup out of training camp. Now? Not so much.`\
 https://nytimes.com/athletic/6694164/2025/10/06/easton-cowan-status-maple-leafs/
-
-**Earick 'does not intend to make a firm offer' to buy Spurs**\
-`Earick’s statement, released on Monday evening, brings an end to 11 days of speculation over a possible move to buy Tottenham.
-`\
-https://nytimes.com/athletic/6694304/2025/10/06/tottenham-news-ownership-earick-offer/
-
-**A judge’s order blocked Trump from sending troops to Portland. It doesn’t apply to Chicago.**\
-`By Shawn Hubler, Anna Griffin and Eric Schmitt`\
-https://nytimes.com/live/2025/10/06/us/national-guard-trump-oregon-chicago/a-judges-order-blocked-trump-from-sending-troops-in-portland-it-doesnt-apply-to-chicago
 

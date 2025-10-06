@@ -1,3 +1,11 @@
+**Phillies' Harrison Bader to miss Game 2 of the NLDS with groin injury**\
+`Bader injured his groin in the Game 1 loss to the Dodgers. The Phillies believed the injury isn't serious but he's not in the Game 2 lineup.`\
+https://nytimes.com/athletic/6694409/2025/10/06/phillies-harrison-bader-groin-injury-nlds/
+
+**NHL waiver tracker: Best players on the wire throughout 2025-26 preseason**\
+`Corey Pronman and Harman Dayal provide analysis of the top players placed on waivers as the regular season approaches.`\
+https://nytimes.com/athletic/6662091/2025/10/06/nhl-waivers-tracker-preseason-2025/
+
 **Earick 'does not intend to make a firm offer' to buy Spurs**\
 `Earick’s statement, released on Monday evening, brings an end to 11 days of speculation over a possible move to buy Tottenham.
 `\
