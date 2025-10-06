@@ -1,3 +1,7 @@
+**Aces Take 2-0 Finals Lead**\
+`The Las Vegas Aces beat the Phoenix Mercury 91-78 to take a 2-0 lead in the W.N.B.A. Finals.`\
+https://nytimes.com/video/the-athletic/100000010441268/aces-take-2-0-finals-lead.html
+
 **Williamson's Arsenal return expected before Christmas, Slegers says**\
 `The 28-year-old injured her knee during England's 2025 European Championship-winning campaign.`\
 https://nytimes.com/athletic/6693754/2025/10/06/leah-williamson-arsenal-knee-injury/
@@ -6,8 +10,8 @@ https://nytimes.com/athletic/6693754/2025/10/06/leah-williamson-arsenal-knee-inj
 `By Julie Bosman, Shawn Hubler, Anna Griffin and Eric Schmitt`\
 https://nytimes.com/live/2025/10/06/us/national-guard-trump-oregon-chicago/heres-the-latest
 
-**Live Updates: Illinois Sues Trump Over National Guard Deployments**\
-`The lawsuit seeks to block the White House from sending Texas national guard troops to Chicago. It came hours after a federal judge blocked similar deployments to Portland, Ore.`\
+**Live Updates: Illinois Sues Trump Over Guard Deployments, Expanding Multistate Fight**\
+`The lawsuit seeks to block the White House from sending Texas National Guard troops to Chicago. It came hours after a federal judge blocked deployments to Portland, Ore.`\
 https://nytimes.com/live/2025/10/06/us/national-guard-trump-oregon-chicago
 
 **Fighting in Gaza Continues Before Hamas-Israel Talks**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6630433/2025/10/06/fifa-international-break-change-
 **Groups Sue E.P.A. Over Canceled $7 Billion for Solar Energy**\
 `The lawsuit accused the Environmental Protection Agency of illegally revoking the money without congressional approval.`\
 https://nytimes.com/2025/10/06/climate/epa-solar-for-all-lawsuit.html
-
-**Arsenal in discussions over extending Visit Rwanda sponsorship deal**\
-`The sponsorship deal has been the subject of supporter protests.`\
-https://nytimes.com/athletic/6682910/2025/10/06/arsenal-visit-rwanda-sponsorship-deal-extend/
 

@@ -1,3 +1,11 @@
+**Aces Take 2-0 Finals Lead**\
+`The Las Vegas Aces beat the Phoenix Mercury 91-78 to take a 2-0 lead in the W.N.B.A. Finals.`\
+https://nytimes.com/video/the-athletic/100000010441268/aces-take-2-0-finals-lead.html
+
+**Live Updates: Illinois Sues Trump Over Guard Deployments, Expanding Multistate Fight**\
+`The lawsuit seeks to block the White House from sending Texas National Guard troops to Chicago. It came hours after a federal judge blocked deployments to Portland, Ore.`\
+https://nytimes.com/live/2025/10/06/us/national-guard-trump-oregon-chicago
+
 **Williamson's Arsenal return expected before Christmas, Slegers says**\
 `The 28-year-old injured her knee during England's 2025 European Championship-winning campaign.`\
 https://nytimes.com/athletic/6693754/2025/10/06/leah-williamson-arsenal-knee-injury/
