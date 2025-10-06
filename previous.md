@@ -1,3 +1,19 @@
+**Trump says Portland is ‘burning.’ Here’s the reality.**\
+`By Anna Griffin and Jacey Fortin`\
+https://nytimes.com/live/2025/10/06/us/national-guard-trump-oregon-chicago/trump-portland-crime-reality
+
+**Wesley Hunt Enters Texas G.O.P. Senate Race, Complicating Path for Cornyn**\
+`Mr. Hunt, a U.S. House member, and Senator John Cornyn will be competing for voters who dislike the state’s attorney general, Ken Paxton, who has led in many polls.`\
+https://nytimes.com/2025/10/06/us/politics/wesley-hunt-senate-texas-cornyn-paxton.html
+
+**In 2019, Trump Made Her a Judge. In 2025, She Blocked His Troop Deployment.**\
+`Judge Karin Immergut worked on Ken Starr’s investigation of Bill Clinton. Now she’s ruled against Trump’s attempt to send troops to Portland.`\
+https://nytimes.com/2025/10/06/us/politics/trump-judge-oregon-immergut.html
+
+**Oilers sign D Jake Walman to 7-year contract extension**\
+`Walman, who was acquired by the Oilers at the trade deadline, will have a cap hit of $7 million starting in 2026-27.`\
+https://nytimes.com/athletic/6694173/2025/10/06/oilers-jake-walman-contract-extension/
+
 **Pushback at Trump and Troops in Portland**\
 `Readers object to President Trump’s use of the military in American cities. Also: ICE at the Super Bowl.`\
 https://nytimes.com/2025/10/06/opinion/portland-national-guard-trump.html
@@ -22,20 +38,4 @@ https://nytimes.com/athletic/6694304/2025/10/06/tottenham-news-ownership-earick-
 **A judge’s order blocked Trump from sending troops to Portland. It doesn’t apply to Chicago.**\
 `By Shawn Hubler, Anna Griffin and Eric Schmitt`\
 https://nytimes.com/live/2025/10/06/us/national-guard-trump-oregon-chicago/a-judges-order-blocked-trump-from-sending-troops-in-portland-it-doesnt-apply-to-chicago
-
-**Grizzlies guard Ja Morant listed as week-to-week with ankle sprain**\
-`Morant is listed as week-to-week with a left ankle sprain, according to a team spokesman.`\
-https://nytimes.com/athletic/6694198/2025/10/06/ja-morant-week-to-week-ankle-sprain/
-
-**Why UNC's social media silence during Drake Maye's big night started a firestorm**\
-`It has become common practice for college football programs’ social media accounts to post highlights of their alums’ NFL exploits.`\
-https://nytimes.com/athletic/6693795/2025/10/06/drake-maye-bill-belichick-unc-patriots-ban/
-
-**What Is the National Guard?**\
-`The state-based military force is made up mainly of part-time soldiers and organized by state. It can be activated by the state governor or by the president.`\
-https://nytimes.com/2025/10/06/us/what-is-national-guard.html
-
-**College football Week 7 odds: Several ranked teams on upset alert**\
-`There are three top-25 matchups and several ranked teams favored by less than a touchdown or underdogs this week.`\
-https://nytimes.com/athletic/6693898/2025/10/06/college-football-week-7-odds-ranked-teams-upset-alert/
 

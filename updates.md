@@ -1,3 +1,24 @@
+**Trump says Portland is ‘burning.’ Here’s the reality.**\
+`By Anna Griffin and Jacey Fortin`\
+https://nytimes.com/live/2025/10/06/us/national-guard-trump-oregon-chicago/trump-portland-crime-reality
+
+**Wesley Hunt Enters Texas G.O.P. Senate Race, Complicating Path for Cornyn**\
+`Mr. Hunt, a U.S. House member, and Senator John Cornyn will be competing for voters who dislike the state’s attorney general, Ken Paxton, who has led in many polls.`\
+https://nytimes.com/2025/10/06/us/politics/wesley-hunt-senate-texas-cornyn-paxton.html
+
+**In 2019, Trump Made Her a Judge. In 2025, She Blocked His Troop Deployment.**\
+`Judge Karin Immergut worked on Ken Starr’s investigation of Bill Clinton. Now she’s ruled against Trump’s attempt to send troops to Portland.`\
+https://nytimes.com/2025/10/06/us/politics/trump-judge-oregon-immergut.html
+
+**Oilers sign D Jake Walman to 7-year contract extension**\
+`Walman, who was acquired by the Oilers at the trade deadline, will have a cap hit of $7 million starting in 2026-27.`\
+https://nytimes.com/athletic/6694173/2025/10/06/oilers-jake-walman-contract-extension/
+
+**Earick 'does not intend to make a firm offer' to buy Spurs**\
+`Earick’s statement, released on Monday evening, brings an end to 11 days of speculation over a possible move to buy Tottenham.
+`\
+https://nytimes.com/athletic/6694304/2025/10/06/tottenham-news-ownership-earick-offer/
+
 **Earick 'does not intend to make a firm offer' to buy Spurs**\
 `Earick’s statement, released on Monday evening, brings an end to 11 days of speculation over a possible move to buy Tottenham.
 `\
