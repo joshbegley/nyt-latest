@@ -1,3 +1,11 @@
+**Why did Connor McDavid take such a discount? Does this re-set the NHL market? Johnston and LeBrun**\
+`The Athletic's NHL insiders react to McDavid's two-year, $12.5 million contract extension with the Oilers.`\
+https://nytimes.com/athletic/6694303/2025/10/06/connor-mcdavid-extension-insider-analysis/
+
+**Colts kicker Spencer Shrader out for the year with torn ACL, MCL**\
+`Shrader had only missed one of his 14 field-goal attempts this season. `\
+https://nytimes.com/athletic/6694358/2025/10/06/colts-kicker-spencer-shrader-injury/
+
 **Phillies' Harrison Bader to miss Game 2 of the NLDS with groin injury**\
 `Bader injured his groin in the Game 1 loss to the Dodgers. The Phillies believed the injury isn't serious but he's not in the Game 2 lineup.`\
 https://nytimes.com/athletic/6694409/2025/10/06/phillies-harrison-bader-groin-injury-nlds/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/06/opinion/portland-national-guard-trump.html
 **Elected but Not Seated, Grijalva Waits to Sign Epstein Petition**\
 `The Democratic representative-elect won her Arizona seat overwhelmingly. But so far, the Republican speaker will not swear her in.`\
 https://nytimes.com/2025/10/06/us/politics/adelita-grijalva-house-epstein.html
-
-**2026 Stanley Cup odds: Oilers, Golden Knights favored, Panthers drop due to injuries**\
-`The favorites to win the Stanley Cup are the usual contenders for the last few years, but injuries dropped the Florida Panthers a few spots.`\
-https://nytimes.com/athletic/6694145/2025/10/06/stanley-cup-odds-golden-knights-oilers-panthers/
-
-**Easton Cowan's status with the Leafs takes a turn: 'He's here right now'**\
-`It seemed like a sure thing that Cowan would make the opening-night lineup out of training camp. Now? Not so much.`\
-https://nytimes.com/athletic/6694164/2025/10/06/easton-cowan-status-maple-leafs/
 
