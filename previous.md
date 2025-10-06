@@ -1,3 +1,23 @@
+**The Left Has Its Rabbit Holes**\
+`On the left-leaning podcast “TrueAnon,” three friends take a true-crime approach to subjects often thought too risky for liberals to touch.`\
+https://nytimes.com/2025/10/06/style/trueanon-podcast-left-conspiracy-theories.html
+
+**If Your North Star Is Lost, New Techniques Can Point You South**\
+`The writer Tristan Gooley describes how a pair of familiar constellations can help a person navigate in darkness when other methods fail.`\
+https://nytimes.com/2025/10/06/science/southern-stars-constellation-compass.html
+
+**A more aggressive Deandre Ayton isn't necessarily more effective for the Lakers**\
+`Ayton was assertive early in Sunday's preseason game against the Warriors, but he's going to need playmakers around him.`\
+https://nytimes.com/athletic/6693021/2025/10/06/deandre-ayton-lakers-preseason/
+
+**How Bari Weiss Won**\
+`At The Free Press, she battled “wokeness” and buddied up with billionaires. Now she’s the editor in chief of CBS News.`\
+https://nytimes.com/2025/10/06/business/media/bari-weiss-free-press-cbs-news.html
+
+**Supreme Court Rejects Appeal From Ghislaine Maxwell**\
+`The onetime employee and friend of Jeffrey Epstein argued that a secret agreement between prosecutors and the multimillionaire financier invalidated her conviction.`\
+https://nytimes.com/2025/10/06/us/politics/supreme-court-ghislaine-maxwell-epstein-appeal.html
+
 **Disjointed Bills can't get back on script en route to surprising loss**\
 `Josh Allen: "It was a pretty pivotal game in terms of what we could have done with this. And we didn't take advantage of our opportunity."`\
 https://nytimes.com/athletic/6693211/2025/10/06/disjointed-bills-surprising-loss-patriots/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/10/06/business/gold-price-us-economy.html
 **French Prime Minister Resigns After Less Than a Month in Office**\
 `Sébastien Lecornu resigned as France’s prime minister after serving for less than a month, the shortest tenure in the country’s history. The resignation also came amid growing concern that he would not be able to get a budget passed.`\
 https://nytimes.com/video/world/europe/100000010441051/france-prime-minister-resignation-lecornu.html
-
-**What will it take for the Ducks to make the playoffs?**\
-`Here are the five major things that will have to break the Ducks' way in order for them to end their seven-year postseason drought.`\
-https://nytimes.com/athletic/6692143/2025/10/06/ducks-playoffs-quenneville-season/
-
-**A'ja Wilson is on another level as Aces step closer to another WNBA title**\
-`The MVP flexed her might in Game 2 as the Aces took a commanding 2-0 lead in this best-of-seven series.`\
-https://nytimes.com/athletic/6692340/2025/10/06/aja-wilson-aces-mercury-wnba-finals-game-2/
-
-**Paramount Buys The Free Press, Ushering in a New Era at CBS News**\
-`Bari Weiss, a co-founder of The Free Press, will become editor in chief of CBS News.`\
-https://nytimes.com/2025/10/06/business/media/paramount-bari-weiss-free-press-cbs-news.html
-
-**Ilona Maher: U.S. rugby star honored with Barbie doll**\
-`Team Barbie — made up of four professional women's rugby players, including Maher — will launch next year.`\
-https://nytimes.com/athletic/6693389/2025/10/06/ilona-maher-barbie-rugby/
-
-**With win over Bills, Drake Maye takes Patriots back to the future**\
-`The second-year quarterback isn't going to make New England fans forget Tom Brady, but he doesn't have to.`\
-https://nytimes.com/athletic/6693488/2025/10/06/new-england-patriots-drake-maye/
 
