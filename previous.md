@@ -1,3 +1,11 @@
+**‘Boots,’ Plus 7 More Things to Watch on TV this Week**\
+`A new series airs on Netflix and the long-running medical show “Grey’s Anatomy” returns for its 22nd season.`\
+https://nytimes.com/2025/10/06/arts/television/tv-this-week-boots-greys-anatomy.html
+
+**The New York Times in Print for Monday, Oct. 6, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/06/todays-new-york-times
+
 **Are too many games catching up with Crystal Palace?**\
 `With Palace's brilliant unbeaten run now over, it is time to look at how Glasner manages his squad and what could be done differently.`\
 https://nytimes.com/athletic/6686917/2025/10/06/crystal-palace-everton-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6691369/2025/10/06/haaland-donnarumma-manchester-ci
 **How Romero and Porro’s long passes have been integral to Tottenham’s attack**\
 `With the lack of a progressive passer in central midfield, Romero and Porro have taken on additional tasks to move the ball up the pitch`\
 https://nytimes.com/athletic/6690787/2025/10/06/romero-porro-tottenham-hotspur-premier-league-analysis/
-
-**At last, Newcastle's attack is moving on from the Isak era**\
-`It has taken a little while – and a dollop of angst – but Eddie Howe's side are clicking up front without their former star striker`\
-https://nytimes.com/athletic/6691559/2025/10/06/newcastle-nottingham-forest-analysis-isak/
-
-**The Briefing: A deliciously imperfect title race? Has Forest's folly been exposed?**\
-`Dissecting the Premier League's big talking points from the weekend, from an intriguing title pursuit to the return of thunderous penalties`\
-https://nytimes.com/athletic/6691134/2025/10/06/premier-league-title-forest-stutter-penalty-briefing/
 
