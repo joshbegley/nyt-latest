@@ -1,4 +1,20 @@
-**Broncos run game has found it's groove, but a key injury could test its sustainability**\
+**Williamson's Arsenal return expected before Christmas, Slegers says**\
+`The 28-year-old injured her knee during England's 2025 European Championship-winning campaign.`\
+https://nytimes.com/athletic/6693754/2025/10/06/leah-williamson-arsenal-knee-injury/
+
+**Here’s the latest.**\
+`By Julie Bosman, Shawn Hubler, Anna Griffin and Eric Schmitt`\
+https://nytimes.com/live/2025/10/06/us/national-guard-trump-oregon-chicago/heres-the-latest
+
+**Live Updates: Illinois Sues Trump Over National Guard Deployments**\
+`The lawsuit seeks to block the White House from sending Texas national guard troops to Chicago. It came hours after a federal judge blocked similar deployments to Portland, Ore.`\
+https://nytimes.com/live/2025/10/06/us/national-guard-trump-oregon-chicago
+
+**Fighting in Gaza Continues Before Hamas-Israel Talks**\
+`Smoke rose above Gaza, where fighting has continued as Hamas and Israel planned to hold indirect talks in Egypt on the war in Gaza. Significant issues remain to be hashed out.`\
+https://nytimes.com/video/world/middleeast/100000010441020/gaza-fighting-israel-hamas-talks.html
+
+**Broncos run game has found its groove, but a key injury could test its sustainability**\
 `Starting guard Ben Powers, who hasn't missed a game since signing with Denver in 2023, suffered a biceps injury and didn't travel to London.`\
 https://nytimes.com/athletic/6691513/2025/10/06/broncos-ben-powers-injury-london/
 
@@ -21,16 +37,4 @@ https://nytimes.com/2025/10/06/climate/epa-solar-for-all-lawsuit.html
 **Arsenal in discussions over extending Visit Rwanda sponsorship deal**\
 `The sponsorship deal has been the subject of supporter protests.`\
 https://nytimes.com/athletic/6682910/2025/10/06/arsenal-visit-rwanda-sponsorship-deal-extend/
-
-**Canadiens season-opening notebook: Final cuts, lines shaping up, Newhook’s importance**\
-`We also examine Cole Caufield's Olympic ambitions, Jayden Struble's healthy outlook and more.`\
-https://nytimes.com/athletic/6693091/2025/10/06/canadiens-alex-newhook-final-cuts/
-
-**Oh, the Horror! Do You Know the Books That Inspired These Movies and TV Shows?**\
-`Feeling the Halloween spirit already? Try this quiz on scary novels and their screen adaptations.`\
-https://nytimes.com/interactive/2025/10/06/books/review/horror-book-quiz.html
-
-**The Bounce: Aces, Wemby play bully, and we preview the Spurs and Sixers**\
-`Welcome to The Bounce, The Athletic's basketball newsletter.`\
-https://nytimes.com/athletic/6693651/2025/10/06/aces-victor-wembanyama-sixers-spurs-the-bounce/
 
