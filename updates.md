@@ -1,3 +1,8 @@
+**Earick 'does not intend to make a firm offer' to buy Spurs**\
+`Earick’s statement, released on Monday evening, brings an end to 11 days of speculation over a possible move to buy Tottenham.
+`\
+https://nytimes.com/athletic/6694304/2025/10/06/tottenham-news-ownership-earick-offer/
+
 **Trump says Portland is ‘burning.’ Here’s the reality.**\
 `By Anna Griffin and Jacey Fortin`\
 https://nytimes.com/live/2025/10/06/us/national-guard-trump-oregon-chicago/trump-portland-crime-reality
