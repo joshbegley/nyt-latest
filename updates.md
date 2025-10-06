@@ -1,3 +1,11 @@
+**Lions to lose Terrion Arnold 'for a long time,' Dan Campbell says**\
+`The Lions already are without D.J. Reed, who went on IR. They'll have to find a solution with both corners out before playing the Chiefs.`\
+https://nytimes.com/athletic/6694716/2025/10/06/terrion-arnold-injury-update-lions/
+
+**A Harvard Professor Is Placed on Leave After Firing a Pellet Gun**\
+`The episode initially raised concerns because it happened near a synagogue, but the police say it was unrelated to antisemitism.`\
+https://nytimes.com/2025/10/06/us/harvard-professor-pellet-gun-synagogue.html
+
 **NFL overreaction Monday: How is Colts-Cardinals spread under a touchdown?**\
 `Toby Mergler makes early Week 6 picks wildly over-indexing on vibes, small sample sizes and comparisons to pop culture classics.`\
 https://nytimes.com/athletic/6694112/2025/10/06/nfl-overreaction-monday-week-6-betting/

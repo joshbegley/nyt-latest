@@ -1,3 +1,11 @@
+**Lions to lose Terrion Arnold 'for a long time,' Dan Campbell says**\
+`The Lions already are without D.J. Reed, who went on IR. They'll have to find a solution with both corners out before playing the Chiefs.`\
+https://nytimes.com/athletic/6694716/2025/10/06/terrion-arnold-injury-update-lions/
+
+**A Harvard Professor Is Placed on Leave After Firing a Pellet Gun**\
+`The episode initially raised concerns because it happened near a synagogue, but the police say it was unrelated to antisemitism.`\
+https://nytimes.com/2025/10/06/us/harvard-professor-pellet-gun-synagogue.html
+
 **NFL overreaction Monday: How is Colts-Cardinals spread under a touchdown?**\
 `Toby Mergler makes early Week 6 picks wildly over-indexing on vibes, small sample sizes and comparisons to pop culture classics.`\
 https://nytimes.com/athletic/6694112/2025/10/06/nfl-overreaction-monday-week-6-betting/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6694706/2025/10/06/iowa-state-vs-colorado-stream-ho
 **How to watch Northwestern at Penn State: Time, TV, streaming**\
 `Find out how to watch the Northwestern Wildcats play the Penn State Nittany Lions, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6694704/2025/10/06/northwestern-vs-penn-state-stream-how-to-watch-oct-11/
-
-**How to watch UCLA at Michigan State: Time, TV, streaming**\
-`Find out how to watch the UCLA Bruins play the Michigan State Spartans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6694702/2025/10/06/ucla-vs-michigan-state-stream-how-to-watch-oct-11/
-
-**How to watch Virginia Tech at Georgia Tech: Time, TV, streaming**\
-`Find out how to watch the Virginia Tech Hokies play the Georgia Tech Yellow Jackets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6694699/2025/10/06/virginia-tech-vs-georgia-tech-stream-how-to-watch-oct-11/
 
