@@ -1,3 +1,7 @@
+**Gaza Peace Talks Are Set to Take Place in Egypt**\
+`Though significant issues remain to be hashed out between Israel and Hamas, some are saying that after two years of death and destruction, a breakthrough may be near.`\
+https://nytimes.com/2025/10/06/world/middleeast/israel-gaza-hamas-peace-talks.html
+
 **ICE Protests Continue as Trump Pushes to Deploy National Guard**\
 `The Trump administration pushed to deploy National Guard troops in Democrat-led cities as protesters gathered outside of the Immigration and Customs Enforcement building in Portland, Ore.`\
 https://nytimes.com/video/us/100000010440957/portland-national-guard-trump-chicago.html
