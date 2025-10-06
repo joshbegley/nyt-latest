@@ -1,3 +1,7 @@
+**The Yankees have been embarrassed by Blue Jays in ALDS. Is there any hope left?**\
+`It's been a historic embarrassment for the Yankees, who are facing elimination in Tuesday's Game 3. Now what? `\
+https://nytimes.com/athletic/6692598/2025/10/06/yankees-embarrassed-bluejays-alds/
+
 **As two-time champion Panthers enter uncharted territory, fatigue is no match for fun**\
 `It's been over 40 years since a team last made four consecutive Stanley Cup finals. The Panthers are determined to reset that counter.`\
 https://nytimes.com/athletic/6691500/2025/10/06/florida-panthers-nhl-stanley-cup-fatigue-2025-26/
