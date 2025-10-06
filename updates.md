@@ -1,3 +1,7 @@
+**What will it take for the Ducks to make the playoffs?**\
+`Here are the five major things that will have to break the Ducks' way in order for them to end their seven-year postseason drought.`\
+https://nytimes.com/athletic/6692143/2025/10/06/ducks-playoffs-quenneville-season/
+
 **Paramount Buys The Free Press, Ushering in a New Era at CBS News**\
 `Bari Weiss, a co-founder of The Free Press, will become editor in chief of CBS News.`\
 https://nytimes.com/2025/10/06/business/media/paramount-bari-weiss-free-press-cbs-news.html
