@@ -1,3 +1,11 @@
+**Cannavaro appointed Uzbekistan coach ahead of naiton's World Cup debut**\
+`Cannavaro, 52, has been out of a job since he was dismissed by Dinamo Zagreb in April and is now set to coach Uzbekistan at the World Cup.`\
+https://nytimes.com/athletic/6687327/2025/10/06/uzbekistan-manager-cannavaro-world-cup/
+
+**Lowetide: How Oilers could approach waiver wire ahead of regular season**\
+`In the history of the Oilers, the waiver wire has had a significant impact over the years.`\
+https://nytimes.com/athletic/6691491/2025/10/06/edmonton-oilers-waivers-wire-2025/
+
 **Inside Newcastle Q&A: Chris Waugh answers your questions**\
 `Back-to-back wins in a week have changed the mood and opened up the rest of the season - get your queries in now`\
 https://nytimes.com/athletic/6693232/2025/10/06/inside-newcastle-chris-waugh-answers-questions/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6689406/2025/10/06/collin-murray-boyles-raptors-tra
 **Is Texas done? Taking stock of where 2024 College Football Playoff teams stand**\
 `Five of the 12 teams that made the CFP field in 2024 are unranked after five weeks of the 2025 season. `\
 https://nytimes.com/athletic/6692269/2025/10/06/college-football-playoff-texas-penn-state-notre-dame/
-
-**WATCH: NFL highlights from all of Sunday's games**\
-`If upsets and blowouts are your thing, Sunday of Week 5 delivered. `\
-https://nytimes.com/athletic/6692325/2025/10/06/nfl-highlights-week-5-video/
-
-**49ers rookie review: Win over Rams added luster to an already promising class**\
-`Three 49ers rookies were on the field for the game's two most pivotal plays, and three others also played significant roles Thursday.`\
-https://nytimes.com/athletic/6691393/2025/10/06/49ers-rookies-alfred-collins-mykel-williams/
 
