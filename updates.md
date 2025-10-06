@@ -1,3 +1,8 @@
+**Earick 'does not intend to make a firm offer' to buy Spurs**\
+`Earick’s statement, released on Monday evening, brings an end to 11 days of speculation over a possible move to buy Tottenham.
+`\
+https://nytimes.com/athletic/6694304/2025/10/06/tottenham-news-ownership-earick-offer/
+
 **Pushback at Trump and Troops in Portland**\
 `Readers object to President Trump’s use of the military in American cities. Also: ICE at the Super Bowl.`\
 https://nytimes.com/2025/10/06/opinion/portland-national-guard-trump.html
