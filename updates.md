@@ -1,3 +1,15 @@
+**Canadiens season-opening notebook: Final cuts, lines shaping up, Newhook’s importance**\
+`We also examine Cole Caufield's Olympic ambitions, Jayden Struble's healthy outlook and more.`\
+https://nytimes.com/athletic/6693091/2025/10/06/canadiens-alex-newhook-final-cuts/
+
+**Oh, the Horror! Do You Know the Books That Inspired These Movies and TV Shows?**\
+`Feeling the Halloween spirit already? Try this quiz on scary novels and their screen adaptations.`\
+https://nytimes.com/interactive/2025/10/06/books/review/horror-book-quiz.html
+
+**The Bounce: Aces, Wemby play bully, and we preview the Spurs and Sixers**\
+`Welcome to The Bounce, The Athletic's basketball newsletter.`\
+https://nytimes.com/athletic/6693651/2025/10/06/aces-victor-wembanyama-sixers-spurs-the-bounce/
+
 **The Left Has Its Rabbit Holes**\
 `On the left-leaning podcast “TrueAnon,” three friends take a true-crime approach to subjects often thought too risky for liberals to touch.`\
 https://nytimes.com/2025/10/06/style/trueanon-podcast-left-conspiracy-theories.html
