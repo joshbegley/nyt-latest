@@ -1,3 +1,15 @@
+**In latest blowout loss, Ravens look and sound like a team without any answers**\
+`At 1-4, John Harbaugh's Ravens have matched the 2015 team for the worst start in franchise history.`\
+https://nytimes.com/athletic/6692318/2025/10/05/ravens-loss-john-harbaugh-texans/
+
+**Broncos' big 4th quarter topples Eagles, gives credence to team's lofty internal goals**\
+`Bo Nix completed 9-of-10 passes in the fourth quarter and led three straight scoring drives. "We spoke it into existence," he said.`\
+https://nytimes.com/athletic/6692408/2025/10/05/broncos-eagles-nix-bonitto-sutton-payton/
+
+**How to watch Dodgers at Phillies: Game 2 Time, TV, streaming**\
+`Find out how to watch the Los Angeles Dodgers play the Philadelphia Phillies, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6692547/2025/10/05/dodgers-vs-phillies-stream-how-to-watch-oct-6/
+
 **Violent and ferocious: Down 17-0, Rico Dowdle and the Panthers were not going to be denied**\
 `Dowdle ran for 206 yards and the Panthers held the Dolphins to 19 rushing yards in rallying to their second win of the season. `\
 https://nytimes.com/athletic/6692381/2025/10/05/panthers-rico-dowdle-comeback-dolphins/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6692390/2025/10/05/las-vegas-raiders-loss-indianapo
 **Buccaneers-Seahawks takeaways: Baker Mayfield, late pick spark walk-off win**\
 `Sam Darnold's brilliant day (341 yards and four touchdown passes) marred by late interception in 38-35 loss. `\
 https://nytimes.com/athletic/6692149/2025/10/05/buccaneers-seahawks-score-result-takeaways-nfl/
-
-**U.S. into U-20 World Cup last 16 despite loss to South Africa**\
-`The U.`\
-https://nytimes.com/athletic/6692249/2025/10/05/u-s-into-u-20-world-cup-last-16-despite-loss-to-south-africa/
-
-**Yankees-Blue Jays Game 2 takeaways: Toronto batters Yanks again, pushing them to the brink**\
-`It didn’t seem like things could get much better for the Blue Jays after their Game 1 rout. Somehow, they found new heights Sunday.`\
-https://nytimes.com/athletic/6692307/2025/10/05/yankees-blue-jays-game-2-score-results-takeaways-playoffs-mlb/
-
-**10-Minute Challenge: A Modern Master Takes Us Inside an Artist’s Studio**\
-`We’d like you to look at one piece of art for 10 minutes, uninterrupted.`\
-https://nytimes.com/interactive/2025/10/05/upshot/ten-minute-challenge-marshall.html
 
