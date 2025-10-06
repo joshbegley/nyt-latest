@@ -1,3 +1,7 @@
+**NFL overreaction Monday: How is Colts-Cardinals spread under a touchdown?**\
+`Toby Mergler makes early Week 6 picks wildly over-indexing on vibes, small sample sizes and comparisons to pop culture classics.`\
+https://nytimes.com/athletic/6694112/2025/10/06/nfl-overreaction-monday-week-6-betting/
+
 **One thought for every player who made the Rangers' opening-night roster**\
 `Now that we know how New York is starting, let's discuss the state of the team by offering one observation per roster member.`\
 https://nytimes.com/athletic/6691456/2025/10/06/ny-rangers-roster-lineup-thoughts-2025-26/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6694702/2025/10/06/ucla-vs-michigan-state-stream-ho
 **How to watch Virginia Tech at Georgia Tech: Time, TV, streaming**\
 `Find out how to watch the Virginia Tech Hokies play the Georgia Tech Yellow Jackets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6694699/2025/10/06/virginia-tech-vs-georgia-tech-stream-how-to-watch-oct-11/
-
-**How to watch Oklahoma vs. Texas: Time, TV, streaming**\
-`Find out how to watch the Oklahoma Sooners play the Texas Longhorns, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6694698/2025/10/06/oklahoma-vs-texas-stream-how-to-watch-oct-11/
 
