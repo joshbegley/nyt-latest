@@ -1,40 +1,40 @@
+**Are too many games catching up with Crystal Palace?**\
+`With Palace's brilliant unbeaten run now over, it is time to look at how Glasner manages his squad and what could be done differently.`\
+https://nytimes.com/athletic/6686917/2025/10/06/crystal-palace-everton-analysis/
+
+**As Everton’s search for front line fluency goes on, their supporting cast steps up**\
+`Moyes’ decision to replace Barry and Dibling, over £60m worth of signings, at half-time was an admission of error. It also changed the game`\
+https://nytimes.com/athletic/6691532/2025/10/06/everton-premier-league-grealish-david-moyes/
+
+**Unai Emery’s chessboard: How Aston Villa’s No 10s dictate every move**\
+`On Sunday, Emery became the quickest Villa manager to earn 80 wins. Several ingredients have contributed to such prolonged consistency`\
+https://nytimes.com/athletic/6686142/2025/10/06/aston-villa-unai-emery-chess-rogers/
+
+**Is fear wrecking Wolves' chances of a win?**\
+`Jorgen Strand Larsen's angry words were the final moment of fractiousness on another afternoon of intense frustration for Wolves`\
+https://nytimes.com/athletic/6691556/2025/10/06/wolves-brighton-premier-league-pereira/
+
+**Jan Paul van Hecke is leading Brighton from the front and back**\
+`Jan Paul van Hecke has grown into a crucial player at Brighton — stopping star forwards and now scoring goals of his own`\
+https://nytimes.com/athletic/6667638/2025/10/06/brighton-wolves-premier-league-van-hecke/
+
+**Postecoglou up for the 'fight' at Forest – but needs a landmark moment fast**\
+`Ange Postecoglou is still searching for a landmark display to prove himself to Forest's fans and hierarchy... and he needs it fast.`\
+https://nytimes.com/athletic/6691644/2025/10/06/nottingham-forest-postecoglou-newcastle/
+
+**Haaland and Donnarumma have Manchester City in contention, but can they thrive without Rodri?**\
+`Opponents continue to shrink in the shadow of the prolific striker and imposing goalkeeper, but midfield remains an issue for Pep Guardiola`\
+https://nytimes.com/athletic/6691369/2025/10/06/haaland-donnarumma-manchester-city-rodri-brentford/
+
+**How Romero and Porro’s long passes have been integral to Tottenham’s attack**\
+`With the lack of a progressive passer in central midfield, Romero and Porro have taken on additional tasks to move the ball up the pitch`\
+https://nytimes.com/athletic/6690787/2025/10/06/romero-porro-tottenham-hotspur-premier-league-analysis/
+
+**At last, Newcastle's attack is moving on from the Isak era**\
+`It has taken a little while – and a dollop of angst – but Eddie Howe's side are clicking up front without their former star striker`\
+https://nytimes.com/athletic/6691559/2025/10/06/newcastle-nottingham-forest-analysis-isak/
+
 **The Briefing: A deliciously imperfect title race? Has Forest's folly been exposed?**\
 `Dissecting the Premier League's big talking points from the weekend, from an intriguing title pursuit to the return of thunderous penalties`\
 https://nytimes.com/athletic/6691134/2025/10/06/premier-league-title-forest-stutter-penalty-briefing/
-
-**Patriots-Bills takeaways: New England hands Buffalo its first loss**\
-`Buffalo's loss comes hours after the Denver Broncos gave the Philadelphia Eagles their first loss of the season.`\
-https://nytimes.com/athletic/6692597/2025/10/06/patriots-bills-score-result-takeaways-sunday-night-football/
-
-**Fantasy football Week 5 takeaways: Emeka Egbuka seizes the day, JCM breaks out**\
-`Michael Salfino shares his observations for Week 5, including a bullish take on Tampa Bay rookie wideout Emeka Egbuka.`\
-https://nytimes.com/athletic/6692834/2025/10/06/fantasy-football-week-5-takeaways-egbuka-jcm/
-
-**No Corrections: Oct. 06, 2025**\
-`No corrections appeared in print on Monday, Oct. 6, 2025.`\
-https://nytimes.com/2025/10/06/pageoneplus/no-corrections-oct-06-2025.html
-
-**The Pelicot Trial: A Timeline**\
-`Dominique Pelicot was convicted of drugging and raping his wife, Gisèle Pelicot, and of inviting dozens of men to rape her. Here is how the events unfolded.`\
-https://nytimes.com/2025/10/06/world/europe/pelicot-trial-timeline.html
-
-**Quote of the Day: Remaking Wembanyama With Meditation and Kung Fu**\
-`Quotation of the Day for Monday, October 6, 2025.`\
-https://nytimes.com/2025/10/06/pageoneplus/quote-of-the-day-remaking-wembanyama-with-meditation-and-kung-fu.html
-
-**Appeal Trial Opens in Gisèle Pelicot Rape Case**\
-`One man has appealed his conviction in a case in which a Frenchman drugged his wife and invited scores of men to rape her.`\
-https://nytimes.com/2025/10/06/appeal-trial-opens-in-gisele-pelicot-rape-case.html
-
-**Disrupting Car Production and Grocery Access, Cyberattacks Upset British Life**\
-`Jaguar Land Rover is the third big British brand to have its operations severely affected by a breach this year.`\
-https://nytimes.com/2025/10/06/business/jaguar-range-rover-cyberattacks-britain.html
-
-**Pakistan Fights Its Fiercest Taliban Insurgency in a Decade**\
-`Pakistan uprooted the Taliban with U.S. help in the 2010s. But the insurgency has resurfaced with assistance from the Afghan Taliban.`\
-https://nytimes.com/2025/10/06/world/asia/pakistan-taliban.html
-
-**What to Know as Gisèle Pelicot Returns to Court for Man’s Appeal**\
-`The Frenchwoman who became a feminist icon will confront one of the men convicted after her husband drugged her and invited them to rape her over nearly 10 years.`\
-https://nytimes.com/2025/10/06/what-to-know-as-gisele-pelicot-returns-to-court-for-mans-appeal.html
 
