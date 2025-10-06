@@ -1,3 +1,7 @@
+**Seahawks’ defensive meltdown spoils Sam Darnold’s near-perfect day: ‘It hurts’**\
+`Darnold's late interception was costly, but it wouldn't have come to that if the Seahawks' defense had played anywhere near its standard.`\
+https://nytimes.com/athletic/6692710/2025/10/05/seahawks-bucs-sam-darnold-baker-mayfield/
+
 **The making of Trey Yesavage, the Blue Jays’ newly minted October phenom**\
 `Drafted 20th overall last year, Yesavage climbed from Low-A to deliver one of the most memorable starts in Toronto history.`\
 https://nytimes.com/athletic/6692627/2025/10/05/who-is-trey-yesavage-blue-jays-october/
