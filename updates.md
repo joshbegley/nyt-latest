@@ -1,3 +1,7 @@
+**Word of the Day: turgid**\
+`This word has appeared in 22 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/10/06/learning/word-of-the-day-turgid.html
+
 **Hundreds of Hikers Stranded on Mount Everest by Snowstorm**\
 `The snowfall buried tents and reduced visibility. The local authorities said that they were in contact with the hikers and that rescue efforts were underway.`\
 https://nytimes.com/2025/10/06/world/asia/everest-hikers-trapped-snowstorm.html

@@ -1,3 +1,7 @@
+**Word of the Day: turgid**\
+`This word has appeared in 22 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/10/06/learning/word-of-the-day-turgid.html
+
 **Hundreds of Hikers Stranded on Mount Everest by Snowstorm**\
 `The snowfall buried tents and reduced visibility. The local authorities said that they were in contact with the hikers and that rescue efforts were underway.`\
 https://nytimes.com/2025/10/06/world/asia/everest-hikers-trapped-snowstorm.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6686142/2025/10/06/aston-villa-unai-emery-chess-rog
 **Is fear wrecking Wolves' chances of a win?**\
 `Jorgen Strand Larsen's angry words were the final moment of fractiousness on another afternoon of intense frustration for Wolves`\
 https://nytimes.com/athletic/6691556/2025/10/06/wolves-brighton-premier-league-pereira/
-
-**Jan Paul van Hecke is leading Brighton from the front and back**\
-`Jan Paul van Hecke has grown into a crucial player at Brighton — stopping star forwards and now scoring goals of his own`\
-https://nytimes.com/athletic/6667638/2025/10/06/brighton-wolves-premier-league-van-hecke/
 
