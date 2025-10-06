@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's Week 7 College Football Mailbag**\
+`<p>Holy cow, Week 7 already? Time flies. Unless you&#8217;re a Penn State or Texas fan.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6694130/2025/10/06/submit-a-question-for-stewart-mandels-week-7-college-football-mailbag/
+
 **Connor McDavid agrees to extension with Oilers: Sources**\
 `McDavid’s extension will kick in at the start of the 2026-27 campaign, keeping the 28-year-old megastar in Edmonton.`\
 https://nytimes.com/athletic/6474073/2025/10/06/connor-mcdavid-contract-oilers-extension/
@@ -33,8 +39,4 @@ https://nytimes.com/2025/10/06/us/politics/goodstein-house-fire-south-carolina-j
 **Gisèle Pelicot Returns to French Court for Man’s Appeal**\
 `Gisèle Pelicot appeared in court to face the appeal of one of the men convicted of raping her while she was in a drugged state — encounters that her husband set up and recorded.`\
 https://nytimes.com/video/world/europe/100000010441598/gisele-pelicot-france-rape-trial.html
-
-**How Elon Musk Is Bringing Sexy A.I. Chatbots to the Mainstream**\
-`In July, the billionaire’s A.I. company introduced two sexually explicit chatbots, pushing a new version of intimacy.`\
-https://nytimes.com/2025/10/06/technology/elon-musk-grok-sexy-chatbot.html
 
