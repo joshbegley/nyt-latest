@@ -2,8 +2,8 @@
 `At 1-4, John Harbaugh's Ravens have matched the 2015 team for the worst start in franchise history.`\
 https://nytimes.com/athletic/6692318/2025/10/05/ravens-loss-john-harbaugh-texans/
 
-**Broncos' big 4th quarter topples Eagles, gives credence to team's lofty internal goals**\
-`Bo Nix completed 9-of-10 passes in the fourth quarter and led three straight scoring drives. "We spoke it into existence," he said.`\
+**Broncos' big fourth quarter topples Eagles, gives credence to team's lofty internal goals**\
+`Bo Nix completed 9 of 10 passes in the fourth quarter and led three straight scoring drives. "We spoke it into existence," he said.`\
 https://nytimes.com/athletic/6692408/2025/10/05/broncos-eagles-nix-bonitto-sutton-payton/
 
 **How to watch Dodgers at Phillies: Game 2 Time, TV, streaming**\
@@ -14,8 +14,8 @@ https://nytimes.com/athletic/6692547/2025/10/05/dodgers-vs-phillies-stream-how-t
 `Dowdle ran for 206 yards and the Panthers held the Dolphins to 19 rushing yards in rallying to their second win of the season. `\
 https://nytimes.com/athletic/6692381/2025/10/05/panthers-rico-dowdle-comeback-dolphins/
 
-**Lions-Bengals: Jahmyr Gibbs, David Montgomery tie NFL record in win vs. Bengals**\
-`The local products came through for the Lions today.`\
+**Lions-Bengals takeaways: Detroit's Jahmyr Gibbs, David Montgomery tie NFL record in win**\
+`Gibbs and Montgomery each scored a touchdown, marking this as the 14th game both scored, tying an NFL record.`\
 https://nytimes.com/athletic/6692391/2025/10/05/lions-bengals-score-result-takeaways-nfl/
 
 **Titans-Cardinals takeaways: Tennessee rallies after Emari Demercado's blunder**\
