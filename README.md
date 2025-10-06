@@ -1,3 +1,7 @@
+**Trump, Drug Cartels, Venezuela and War: What We Know**\
+`The Trump administration is ratcheting up pressure on Nicolás Maduro, Venezuela’s president, while attacking boats in the Caribbean Sea.`\
+https://nytimes.com/2025/10/06/us/politics/trump-cartels-what-we-know.html
+
 **Where in the World Is Eric Adams? Try Albania.**\
 `The decision by Mr. Adams, a lame-duck mayor, to spend nearly a week of his remaining time in office visiting the Balkan nation raised eyebrows back in New York.`\
 https://nytimes.com/2025/10/06/nyregion/eric-adams-albania.html
@@ -30,11 +34,7 @@ https://nytimes.com/2025/10/06/style/bullying-tiktok-social-media.html
 `She was known as the brash principal on the show, a dark comedy set at a high school that debuted in 2016.`\
 https://nytimes.com/2025/10/06/arts/kimberly-hebert-gregory-dead-vice-principals.html
 
-**Can’t Find the Right Present? Ask Us!**\
+**Are You Struggling to Find the Right Gift? Ask Us for Help!**\
 `Ahead of the holidays, we’re responding to readers’ hardest gifting quandaries.`\
 https://nytimes.com/2025/10/06/t-magazine/holiday-gifts-presents.html
-
-**Miami, South Carolina cancel home-and-home series scheduled for 2026-27**\
-`The schools, which mutually cancelled, scheduled the series in 2019, before either of their conferences considered adding a ninth game.`\
-https://nytimes.com/athletic/6694744/2025/10/06/miami-south-carolina-ncaa-football-home-series-cancel/
 
