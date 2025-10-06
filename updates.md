@@ -1,3 +1,12 @@
+**Earick 'does not intend to make a firm offer' to buy Spurs**\
+`Earick’s statement, released on Monday evening, brings an end to 11 days of speculation over a possible move to buy Tottenham.
+`\
+https://nytimes.com/athletic/6694304/2025/10/06/tottenham-news-ownership-earick-offer/
+
+**A judge’s order blocked Trump from sending troops in Portland. It doesn’t apply to Chicago.**\
+`By Shawn Hubler, Anna Griffin, Eric Schmitt and Talya Minsberg`\
+https://nytimes.com/live/2025/10/06/us/national-guard-trump-oregon-chicago/a-judges-order-blocked-trump-from-sending-troops-in-portland-it-doesnt-apply-to-chicago
+
 **Grizzlies guard Ja Morant listed as week-to-week with ankle sprain**\
 `Morant is listed as week-to-week with a left ankle sprain, according to a team spokesman.`\
 https://nytimes.com/athletic/6694198/2025/10/06/ja-morant-week-to-week-ankle-sprain/
