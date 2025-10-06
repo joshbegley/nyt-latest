@@ -1,3 +1,11 @@
+**Hundreds of Hikers Stranded on Mount Everest by Snowstorm**\
+`The snowfall buried tents and reduced visibility. The local authorities said that they were in contact with the hikers and that rescue efforts were underway.`\
+https://nytimes.com/2025/10/06/world/asia/everest-hikers-trapped-snowstorm.html
+
+**Hikers Stranded on Mount Everest**\
+`The snow reduced visibility and left hundreds of hikers stuck on Mount Everest.`\
+https://nytimes.com/video/world/asia/100000010440923/everest-hikers-trapped-snowstorm.html
+
 **Al Horford fits right in with Warriors in preseason debut, win against Lakers**\
 `Horford is the stabilizing veteran who would fit with any team, but his ability to make this group of Warriors better already shows.`\
 https://nytimes.com/athletic/6693085/2025/10/06/al-horford-warriors-lakers-preseason-debut/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6691556/2025/10/06/wolves-brighton-premier-league-p
 **Jan Paul van Hecke is leading Brighton from the front and back**\
 `Jan Paul van Hecke has grown into a crucial player at Brighton — stopping star forwards and now scoring goals of his own`\
 https://nytimes.com/athletic/6667638/2025/10/06/brighton-wolves-premier-league-van-hecke/
-
-**Postecoglou up for the 'fight' at Forest – but needs a landmark moment fast**\
-`Ange Postecoglou is still searching for a landmark display to prove himself to Forest's fans and hierarchy... and he needs it fast.`\
-https://nytimes.com/athletic/6691644/2025/10/06/nottingham-forest-postecoglou-newcastle/
-
-**The Briefing: A deliciously imperfect title race? Has Forest's folly been exposed?**\
-`Dissecting the Premier League's big talking points from the weekend, from an intriguing title pursuit to the return of thunderous penalties`\
-https://nytimes.com/athletic/6691134/2025/10/06/premier-league-title-forest-stutter-penalty-briefing/
 
