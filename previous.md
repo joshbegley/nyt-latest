@@ -1,3 +1,7 @@
+**Pilots Demand Air India Ground Boeing 787s After Emergency System Used**\
+`Officials are investigating why the power source, used when electrical or hydraulic pressure fails, was deployed over the weekend. The same system was activated during a deadly crash in June.`\
+https://nytimes.com/2025/10/06/world/asia/air-india-boeing-planes.html
+
 **Word of the Day: turgid**\
 `This word has appeared in 22 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/10/06/learning/word-of-the-day-turgid.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6691532/2025/10/06/everton-premier-league-grealish-
 **Unai Emery’s chessboard: How Aston Villa’s No 10s dictate every move**\
 `On Sunday, Emery became the quickest Villa manager to earn 80 wins. Several ingredients have contributed to such prolonged consistency`\
 https://nytimes.com/athletic/6686142/2025/10/06/aston-villa-unai-emery-chess-rogers/
-
-**Is fear wrecking Wolves' chances of a win?**\
-`Jorgen Strand Larsen's angry words were the final moment of fractiousness on another afternoon of intense frustration for Wolves`\
-https://nytimes.com/athletic/6691556/2025/10/06/wolves-brighton-premier-league-pereira/
 

@@ -1,3 +1,7 @@
+**Pilots Demand Air India Ground Boeing 787s After Emergency System Used**\
+`Officials are investigating why the power source, used when electrical or hydraulic pressure fails, was deployed over the weekend. The same system was activated during a deadly crash in June.`\
+https://nytimes.com/2025/10/06/world/asia/air-india-boeing-planes.html
+
 **Word of the Day: turgid**\
 `This word has appeared in 22 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/10/06/learning/word-of-the-day-turgid.html
