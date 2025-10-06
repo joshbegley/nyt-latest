@@ -1,3 +1,7 @@
+**U.S. soccer 'monitoring' North African protests ahead of Women's World Cup**\
+`The demonstrations have been fueled by growing anger over heavy spending on preparations for FIFA’s 2030 men’s World Cup.`\
+https://nytimes.com/athletic/6694058/2025/10/06/us-soccer-north-african-protests-womens-world-cup/
+
 **Fantasy football Week 5 recap and early waivers speed run**\
 `Injury struck in Los Angeles, while it looks like Washington's backfield might belong to Bill Croskey-Merritt.`\
 https://nytimes.com/athletic/6693940/2025/10/06/fantasy-football-week-5-recap-and-early-waivers-speed-run-breaking-down-key-backfields/
@@ -35,8 +39,4 @@ https://nytimes.com/2025/10/06/nyregion/buffalo-murder-verdict-meindl.html
 **UEFA 'regrettably' approves La Liga, Serie A requests to play league games abroad**\
 `UEFA president Ceferin said the decision is not "setting a precedent" and added that "league matches should be played on home soil".`\
 https://nytimes.com/athletic/6694029/2025/10/06/uefa-la-liga-serie-a-abroad/
-
-**NASCAR Charlotte Roval takeaways: Should Denny Hamlin have let Ross Chastain advance?**\
-`Hamlin's pass of Chastain helped put the ever-dangerous Joey Logano into the Round of 8, SVG wins again, and more from the Charlotte Roval.`\
-https://nytimes.com/athletic/6692742/2025/10/06/nascar-charlotte-roval-denny-hamlin-ross-chastain-joey-logano-takeaways/
 
