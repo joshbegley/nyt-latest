@@ -1,3 +1,11 @@
+**Al Horford fits right in with Warriors in preseason debut, win against Lakers**\
+`Horford is the stabilizing veteran who would fit with any team, but his ability to make this group of Warriors better already shows.`\
+https://nytimes.com/athletic/6693085/2025/10/06/al-horford-warriors-lakers-preseason-debut/
+
+**The Briefing: A deliciously imperfect title race? Has Forest's folly been exposed?**\
+`Dissecting the Premier League's big talking points from the weekend, from an intriguing title pursuit to the return of thunderous penalties`\
+https://nytimes.com/athletic/6691134/2025/10/06/premier-league-title-forest-stutter-penalty-briefing/
+
 **‘Boots,’ Plus 7 More Things to Watch on TV this Week**\
 `A new series airs on Netflix and the long-running medical show “Grey’s Anatomy” returns for its 22nd season.`\
 https://nytimes.com/2025/10/06/arts/television/tv-this-week-boots-greys-anatomy.html
