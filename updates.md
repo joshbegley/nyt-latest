@@ -1,3 +1,7 @@
+**Inside Newcastle Q&A: Chris Waugh answers your questions**\
+`Back-to-back wins in a week have changed the mood and opened up the rest of the season - get your queries in now`\
+https://nytimes.com/athletic/6693232/2025/10/06/inside-newcastle-chris-waugh-answers-questions/
+
 **Inside Real Madrid: Vinicius Jr's return to form (with help from Mbappe), international break injury fears**\
 `The Brazilian is firing on all cylinders again, but Madrid will be hoping their stars remain fit while away with their countries`\
 https://nytimes.com/athletic/6693325/2025/10/06/inside-real-madrid-vinicius-mbappe/

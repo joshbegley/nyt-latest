@@ -1,3 +1,7 @@
+**Inside Newcastle Q&A: Chris Waugh answers your questions**\
+`Back-to-back wins in a week have changed the mood and opened up the rest of the season - get your queries in now`\
+https://nytimes.com/athletic/6693232/2025/10/06/inside-newcastle-chris-waugh-answers-questions/
+
 **Inside Real Madrid: Vinicius Jr's return to form (with help from Mbappe), international break injury fears**\
 `The Brazilian is firing on all cylinders again, but Madrid will be hoping their stars remain fit while away with their countries`\
 https://nytimes.com/athletic/6693325/2025/10/06/inside-real-madrid-vinicius-mbappe/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6692325/2025/10/06/nfl-highlights-week-5-video/
 **49ers rookie review: Win over Rams added luster to an already promising class**\
 `Three 49ers rookies were on the field for the game's two most pivotal plays, and three others also played significant roles Thursday.`\
 https://nytimes.com/athletic/6691393/2025/10/06/49ers-rookies-alfred-collins-mykel-williams/
-
-**Message Board Monday: Bobby Petrino-obsessed Arkansas fans and others on islands of shame**\
-`Yes, there are still Ohio State fans who think Ryan Day is a problem. And Florida fans who believe in Billy Napier. `\
-https://nytimes.com/athletic/6691297/2025/10/06/bobby-petrino-arkansas-ryan-day-ohio-state-message-boards/
 
