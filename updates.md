@@ -1,3 +1,7 @@
+**Q&A: Ryan Nugent-Hopkins, the Oilers' constant, says there's 'urgency' to win**\
+`Nugent-Hopkins spoke to The Athletic about his Oilers legacy, how to be effective and finding the ultimate team success.`\
+https://nytimes.com/athletic/6692290/2025/10/06/ryan-nugent-hopkins-oilers-interview/
+
 **What will it take for the Ducks to make the playoffs?**\
 `Here are the five major things that will have to break the Ducks' way in order for them to end their seven-year postseason drought.`\
 https://nytimes.com/athletic/6692143/2025/10/06/ducks-playoffs-quenneville-season/
