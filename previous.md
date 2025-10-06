@@ -1,3 +1,7 @@
+**Arsenal in discussions over extending Visit Rwanda sponsorship deal**\
+`The sponsorship deal has been the subject of supporter protests.`\
+https://nytimes.com/athletic/6682910/2025/10/06/arsenal-visit-rwanda-sponsorship-deal-extend/
+
 **Canadiens season-opening notebook: Final cuts, lines shaping up, Newhook’s importance**\
 `We also examine Cole Caufield's Olympic ambitions, Jayden Struble's healthy outlook and more.`\
 https://nytimes.com/athletic/6693091/2025/10/06/canadiens-alex-newhook-final-cuts/
@@ -29,12 +33,4 @@ https://nytimes.com/2025/10/06/business/media/bari-weiss-free-press-cbs-news.htm
 **Supreme Court Rejects Appeal From Ghislaine Maxwell**\
 `The onetime employee and friend of Jeffrey Epstein argued that a secret agreement between prosecutors and the multimillionaire financier invalidated her conviction.`\
 https://nytimes.com/2025/10/06/us/politics/supreme-court-ghislaine-maxwell-epstein-appeal.html
-
-**Disjointed Bills can't get back on script en route to surprising loss**\
-`Josh Allen: "It was a pretty pivotal game in terms of what we could have done with this. And we didn't take advantage of our opportunity."`\
-https://nytimes.com/athletic/6693211/2025/10/06/disjointed-bills-surprising-loss-patriots/
-
-**There’s No Precedent for This Shutdown**\
-`Congress may seem dysfunctional from the outside, but the government shutdown is a sign that something more sinister is going on, says the Opinion columnist Michelle Goldberg.`\
-https://nytimes.com/video/opinion/100000010435133/theres-no-precedent-for-this-shutdown.html
 

@@ -1,3 +1,7 @@
+**Arsenal in discussions over extending Visit Rwanda sponsorship deal**\
+`The sponsorship deal has been the subject of supporter protests.`\
+https://nytimes.com/athletic/6682910/2025/10/06/arsenal-visit-rwanda-sponsorship-deal-extend/
+
 **Canadiens season-opening notebook: Final cuts, lines shaping up, Newhook’s importance**\
 `We also examine Cole Caufield's Olympic ambitions, Jayden Struble's healthy outlook and more.`\
 https://nytimes.com/athletic/6693091/2025/10/06/canadiens-alex-newhook-final-cuts/

@@ -1,3 +1,11 @@
+**Why this October international break is the last of its kind**\
+`From 2026 onwards, this will be condensed into a two-week period which covers the final full week of September into early October.`\
+https://nytimes.com/athletic/6630433/2025/10/06/fifa-international-break-change-length/
+
+**Groups Sue E.P.A. Over Canceled $7 Billion for Solar Energy**\
+`The lawsuit accused the Environmental Protection Agency of illegally revoking the money without congressional approval.`\
+https://nytimes.com/2025/10/06/climate/epa-solar-for-all-lawsuit.html
+
 **Arsenal in discussions over extending Visit Rwanda sponsorship deal**\
 `The sponsorship deal has been the subject of supporter protests.`\
 https://nytimes.com/athletic/6682910/2025/10/06/arsenal-visit-rwanda-sponsorship-deal-extend/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/10/06/science/southern-stars-constellation-compass.html
 **A more aggressive Deandre Ayton isn't necessarily more effective for the Lakers**\
 `Ayton was assertive early in Sunday's preseason game against the Warriors, but he's going to need playmakers around him.`\
 https://nytimes.com/athletic/6693021/2025/10/06/deandre-ayton-lakers-preseason/
-
-**How Bari Weiss Won**\
-`At The Free Press, she battled “wokeness” and buddied up with billionaires. Now she’s the editor in chief of CBS News.`\
-https://nytimes.com/2025/10/06/business/media/bari-weiss-free-press-cbs-news.html
-
-**Supreme Court Rejects Appeal From Ghislaine Maxwell**\
-`The onetime employee and friend of Jeffrey Epstein argued that a secret agreement between prosecutors and the multimillionaire financier invalidated her conviction.`\
-https://nytimes.com/2025/10/06/us/politics/supreme-court-ghislaine-maxwell-epstein-appeal.html
 
