@@ -1,8 +1,12 @@
+**Trump Calls Deadly Strikes on Boats in Caribbean an ‘Act of Kindness’**\
+`The president, speaking aboard an aircraft carrier off Norfolk, Va., repeated his claims that the boats were trafficking drugs bound for the United States.`\
+https://nytimes.com/2025/10/05/us/politics/trump-caribbean-strikes-drugs-kindness.html
+
 **Brian Schottenheimer 'back in my bag' as Cowboys win big without multiple starters**\
 `Jerry Jones called it a "great coaching job" with six offensive starters, including four offensive linemen, out against the Jets.`\
 https://nytimes.com/athletic/6692440/2025/10/05/cowboys-brian-schottenheimer-dak-prescott-jets/
 
-**Are the Las Vegas Aces unstoppable? So far, the Phoenix Mercury can't figured them out**\
+**Are the Las Vegas Aces unstoppable? So far, the Mercury can't figured them out**\
 `The Aces put on another masterclass to take a 2-0 WNBA Finals lead.`\
 https://nytimes.com/athletic/6692556/2025/10/05/las-vegas-aces-phoenix-mercury-wnba-finals-game-2/
 
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/6692547/2025/10/05/dodgers-vs-phillies-stream-how-t
 `Dowdle ran for 206 yards and the Panthers held the Dolphins to 19 rushing yards in rallying to their second win of the season. `\
 https://nytimes.com/athletic/6692381/2025/10/05/panthers-rico-dowdle-comeback-dolphins/
 
-**Lions-Bengals takeaways: Detroit's Jahmyr Gibbs, David Montgomery tie NFL record in win**\
-`Gibbs and Montgomery each had a touchdown, marking this as the 14th game both scored, tying an NFL record, according to Detroit's PR staff.`\
+**Lions' Jahmyr Gibbs, David Montgomery tie NFL record in win over Bengals**\
+`Gibbs and Montgomery scored a touchdown in the same game for the 14th time, helping the Lions improve to 4-1.`\
 https://nytimes.com/athletic/6692391/2025/10/05/lions-bengals-score-result-takeaways-nfl/
 
 **Titans-Cardinals takeaways: Tennessee rallies after Emari Demercado's blunder**\
 `Instead of a likely game-sealing touchdown, Arizona's Emari Demercado fumbled through the end zone, setting the stage for a Titans win.`\
 https://nytimes.com/athletic/6692257/2025/10/05/titans-cardinals-score-result-takeaways-nfl/
-
-**Christian Pulisic misses penalty in AC Milan's 0-0 draw with Juventus**\
-`The USMNT star missed a chance to give Milan the lead over Juventus, and the two ultimately played to a scoreless draw`\
-https://nytimes.com/athletic/6692041/2025/10/05/christian-pulisic-misses-penalty-in-ac-milans-0-0-draw-with-juventus/
 
