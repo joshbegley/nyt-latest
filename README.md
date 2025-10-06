@@ -1,3 +1,7 @@
+**ICE Protests Continue as Trump Pushes to Deploy National Guard**\
+`The Trump administration pushed to deploy National Guard troops in Democrat-led cities as protesters gathered outside of the Immigration and Customs Enforcement building in Portland, Ore.`\
+https://nytimes.com/video/us/100000010440957/portland-national-guard-trump-chicago.html
+
 **Can Fashion Still Be Provocative?**\
 `Duran Lantink’s ridiculous debut at Jean Paul Gaultier raises the question.`\
 https://nytimes.com/2025/10/06/style/jean-paul-gaultier-duran-lantink.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/asia/100000010440923/everest-hikers-trapped-snow
 **Al Horford fits right in with Warriors in preseason debut, win against Lakers**\
 `Horford is the stabilizing veteran who would fit with any team, but his ability to make this group of Warriors better already shows.`\
 https://nytimes.com/athletic/6693085/2025/10/06/al-horford-warriors-lakers-preseason-debut/
-
-**‘Boots,’ Plus 7 More Things to Watch on TV this Week**\
-`A new series airs on Netflix and the long-running medical show “Grey’s Anatomy” returns for its 22nd season.`\
-https://nytimes.com/2025/10/06/arts/television/tv-this-week-boots-greys-anatomy.html
 
