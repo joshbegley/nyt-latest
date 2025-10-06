@@ -10,8 +10,8 @@ https://nytimes.com/athletic/6694303/2025/10/06/connor-mcdavid-extension-insider
 `Shrader had only missed one of his 14 field-goal attempts this season. `\
 https://nytimes.com/athletic/6694358/2025/10/06/colts-kicker-spencer-shrader-injury/
 
-**Phillies' Harrison Bader out of NLDS Game 2 lineup due to groin injury**\
-`Bader injured his groin in the Game 1 loss to the Dodgers. The Phillies believed the injury isn't serious but he's not in the Game 2 lineup.`\
+**Phillies' Harrison Bader to miss Game 2 of the NLDS with groin injury**\
+`Bader injured his groin in the Game 1 loss to the Dodgers. The Phillies believe the injury isn't serious, but he's not in the Game 2 lineup.`\
 https://nytimes.com/athletic/6694409/2025/10/06/phillies-harrison-bader-groin-injury-nlds/
 
 **NHL waiver tracker: Best players on the wire throughout 2025-26 preseason**\
