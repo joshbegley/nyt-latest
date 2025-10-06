@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6692627/2025/10/05/who-is-trey-yesavage-blue-jays-o
 https://nytimes.com/2025/10/05/business/japan-stocks-yen-takaichi.html
 
 **After another Colts rout, it's time to acknowledge them for what they are: contenders**\
-`INDIANAPOLIS — Braden Smith remembers how things used to be and the scars those failures have left behind.`\
+`With Daniel Jones playing at a near-MVP level and the defense generating eight turnovers in five weeks, the Colts look like contenders.`\
 https://nytimes.com/athletic/6692076/2025/10/05/colts-contenders-raiders-daniel-jones-jonathan-taylor/
 
 **It took 147 seconds for the Jets to unravel against the Cowboys**\
