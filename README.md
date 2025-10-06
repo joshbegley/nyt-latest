@@ -1,5 +1,9 @@
+**Verizon Bets on PayPal’s Former Chief to Lead Its Next Chapter**\
+`Dan Schulman takes over as the telecoms giant faces slowing subscriber growth and rising competition.`\
+https://nytimes.com/2025/10/06/business/new-verizon-ceo-dan-schulman.html
+
 **Why this October international break is the last of its kind**\
-`From 2026 onwards, this will be condensed into a two-week period which covers the final full week of September into early October.`\
+`From 2026 onwards, two breaks will be condensed into one two-week period which covers the final full week of September into early October.`\
 https://nytimes.com/athletic/6630433/2025/10/06/fifa-international-break-change-length/
 
 **Groups Sue E.P.A. Over Canceled $7 Billion for Solar Energy**\
@@ -29,8 +33,4 @@ https://nytimes.com/2025/10/06/style/trueanon-podcast-left-conspiracy-theories.h
 **If Your North Star Is Lost, New Techniques Can Point You South**\
 `The writer Tristan Gooley describes how a pair of familiar constellations can help a person navigate in darkness when other methods fail.`\
 https://nytimes.com/2025/10/06/science/southern-stars-constellation-compass.html
-
-**A more aggressive Deandre Ayton isn't necessarily more effective for the Lakers**\
-`Ayton was assertive early in Sunday's preseason game against the Warriors, but he's going to need playmakers around him.`\
-https://nytimes.com/athletic/6693021/2025/10/06/deandre-ayton-lakers-preseason/
 

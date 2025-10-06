@@ -1,3 +1,11 @@
+**Why this October international break is the last of its kind**\
+`From 2026 onwards, this will be condensed into a two-week period which covers the final full week of September into early October.`\
+https://nytimes.com/athletic/6630433/2025/10/06/fifa-international-break-change-length/
+
+**Groups Sue E.P.A. Over Canceled $7 Billion for Solar Energy**\
+`The lawsuit accused the Environmental Protection Agency of illegally revoking the money without congressional approval.`\
+https://nytimes.com/2025/10/06/climate/epa-solar-for-all-lawsuit.html
+
 **Arsenal in discussions over extending Visit Rwanda sponsorship deal**\
 `The sponsorship deal has been the subject of supporter protests.`\
 https://nytimes.com/athletic/6682910/2025/10/06/arsenal-visit-rwanda-sponsorship-deal-extend/
