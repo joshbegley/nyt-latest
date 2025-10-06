@@ -1,3 +1,11 @@
+**In Ashes of Amazon Fight, Tensions Emerge in Huge Bet on N.Y.C. Housing**\
+`Years ago, progressives defeated a plan to build an Amazon warehouse in Queens. Now a new kind of development is gaining their support.`\
+https://nytimes.com/2025/10/06/nyregion/amazon-rezoning-queens.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/10/06/crosswords/spelling-bee-forum.html
+
 **Pilots Demand Air India Ground Boeing 787s After Emergency System Used**\
 `Officials are investigating why the power source, used when electrical or hydraulic pressure fails, was deployed over the weekend. The same system was activated during a deadly crash in June.`\
 https://nytimes.com/2025/10/06/world/asia/air-india-boeing-planes.html
@@ -29,12 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/10/06/todays-new-york-times
 **Are too many games catching up with Crystal Palace?**\
 `With Palace's brilliant unbeaten run now over, it is time to look at how Glasner manages his squad and what could be done differently.`\
 https://nytimes.com/athletic/6686917/2025/10/06/crystal-palace-everton-analysis/
-
-**As Everton’s search for front line fluency goes on, their supporting cast steps up**\
-`Moyes’ decision to replace Barry and Dibling, over £60m worth of signings, at half-time was an admission of error. It also changed the game`\
-https://nytimes.com/athletic/6691532/2025/10/06/everton-premier-league-grealish-david-moyes/
-
-**Unai Emery’s chessboard: How Aston Villa’s No 10s dictate every move**\
-`On Sunday, Emery became the quickest Villa manager to earn 80 wins. Several ingredients have contributed to such prolonged consistency`\
-https://nytimes.com/athletic/6686142/2025/10/06/aston-villa-unai-emery-chess-rogers/
 

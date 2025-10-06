@@ -1,3 +1,11 @@
+**In Ashes of Amazon Fight, Tensions Emerge in Huge Bet on N.Y.C. Housing**\
+`Years ago, progressives defeated a plan to build an Amazon warehouse in Queens. Now a new kind of development is gaining their support.`\
+https://nytimes.com/2025/10/06/nyregion/amazon-rezoning-queens.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/10/06/crosswords/spelling-bee-forum.html
+
 **Pilots Demand Air India Ground Boeing 787s After Emergency System Used**\
 `Officials are investigating why the power source, used when electrical or hydraulic pressure fails, was deployed over the weekend. The same system was activated during a deadly crash in June.`\
 https://nytimes.com/2025/10/06/world/asia/air-india-boeing-planes.html
