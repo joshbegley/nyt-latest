@@ -1,40 +1,40 @@
+**World Cup price jumps kick in early as FIFA raises costs amid high demand**\
+`The effects of variable pricing are already being felt on the World Cup ticket market`\
+https://nytimes.com/athletic/6695187/2025/10/06/2026-world-cup-tickets-pricing-demand/
+
+**Chicago and Portland had low rates of immigration arrests before federal operations ramped up.**\
+`By Albert Sun`\
+https://nytimes.com/live/2025/10/06/us/national-guard-trump-oregon-chicago/chicago-and-portland-had-low-rates-of-immigration-arrests-before-federal-operations-ramped-up
+
+**Brewers’ Jackson Chourio expected to return for NLDS Game 2 after hamstring scare**\
+`Chourio exited Milwaukee’s Game 1 romp after re-aggravating a strained muscle while legging out an infield single.`\
+https://nytimes.com/athletic/6695202/2025/10/06/brewers-jackson-chourio-nlds-game-2-hamstring/
+
+**Has Your Energy Bill Gone Up? Show Us.**\
+`Share your energy bills for a forthcoming project about the demand of A.I. on the grid.`\
+https://nytimes.com/2025/10/06/opinion/contributors/energy-cost-ai.html
+
+**Cardinals coach Jonathan Gannon apologizes for sideline confrontation**\
+`Gannon was seen screaming at — and appearing to strike — Demercado after the running back dropped the football just before scoring a TD.`\
+https://nytimes.com/athletic/6695191/2025/10/06/cardinals-jonathan-gannon-apology-emari-demercado/
+
+**Weekly Student News Quiz: National Guard, Taylor Swift, Comets**\
+`Have you been paying attention to current events recently? See how many of these 10 questions you can get right.`\
+https://nytimes.com/interactive/2025/10/06/learning/07StudentNewsQuiz.html
+
+**How Will Bad Bunny’s Super Bowl Show Shape U.S. Politics?**\
+`President Trump made major inroads with Latino voters last year. Whether they stick with Republicans in the midterms is a crucial question.`\
+https://nytimes.com/2025/10/06/us/politics/bad-bunny-super-bowl-politics.html
+
+**Who Is Taylor Swift’s “Actually Romantic” About?**\
+`Who is Taylor Swift’s diss track “Actually Romantic” actually about? Our critic Jon Caramanica breaks it down.`\
+https://nytimes.com/video/podcasts/100000010442311/who-is-taylor-swifts-actually-romantic-about.html
+
 **Freed From Hamas, but Not Captivity**\
 `In the tunnels of Gaza where she was held captive, Emily Damari learned how to survive. These photos show her learning to be alive again.`\
 https://nytimes.com/2025/10/06/world/middleeast/emily-damari-hostage-israel.html
 
-**Hutson’s ‘hands-off’ approach to contract talks lets him focus on improving on the ice**\
-`Lane Hutson's next contract is top of mind in Montreal, but his focus remains on his pursuit of becoming a finished product.`\
+**Lane Hutson's 'hands-off' approach to contract talks lets him focus on improving on the ice**\
+`Hutson's next contract is top of mind in Montreal, but his focus remains on his pursuit of becoming a finished product.`\
 https://nytimes.com/athletic/6695132/2025/10/06/canadiens-lane-hutson-contract-defence-size/
-
-**Opening a Restaurant in New York Is No Picnic. Here’s What It Takes.**\
-`A year in the making of a rookie’s first restaurant.`\
-https://nytimes.com/interactive/2025/10/06/dining/how-to-open-restaurant-nyc.html
-
-**Trump Signs Order to Approve Mining Road Through Alaskan Wilderness**\
-`The executive order also made the federal government a 10 percent shareholder in the mining company Trilogy Metals.`\
-https://nytimes.com/2025/10/06/climate/trump-executive-order-mining-road-alaska.html
-
-**Ken Jacobs, Visionary of Avant-Garde Film, Is Dead at 92**\
-`Using found footage and toying with dimensions (2-D could seem like dazzling 3-D), he sought to explode cinema’s traditional boundaries.`\
-https://nytimes.com/2025/10/06/movies/ken-jacobs-dead.html
-
-**Connor McDavid's 'extremely unusual' extension clearly defines stakes for Oilers**\
-`The Oilers must show McDavid the future can be bright beyond 2028, when his new contract is set to conclude.`\
-https://nytimes.com/athletic/6694956/2025/10/06/connor-mcdavid-contract-extension-oilers-roster/
-
-**Trump Calls Off Diplomatic Outreach to Venezuela**\
-`The move paves the way for a possible military escalation against drug traffickers or the government of Nicolás Maduro.`\
-https://nytimes.com/2025/10/06/us/politics/trump-venezuela-maduro.html
-
-**Troops Head to Chicago, Despite Efforts to Block Them**\
-`Also, Gaza peace talks took place in Egypt. Here’s the latest at the end of Monday.`\
-https://nytimes.com/2025/10/06/briefing/trump-national-guard-chicago-international-students.html
-
-**More injury woes for Chargers as rookie RB Omarion Hampton heads to IR**\
-`Already playing without both starting offensive tackles, L.A.'s offense now loses its promising rookie back for at least four weeks.`\
-https://nytimes.com/athletic/6695046/2025/10/06/omarion-hampton-chargers-ir-ankle-injury/
-
-**Neighbors Warn Neighbors as Fear of ICE Ripples Across Chicago**\
-`Parents are standing guard at schools. Restaurants have stopped delivering food or simply closed. “Every single person who looks brown is scared,” a lawyer said.`\
-https://nytimes.com/2025/10/06/us/fear-ice-chicago.html
 
