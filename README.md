@@ -1,3 +1,12 @@
+**Earick 'does not intend to make a firm offer' to buy Spurs**\
+`Earick’s statement, released on Monday evening, brings an end to 11 days of speculation over a possible move to buy Tottenham.
+`\
+https://nytimes.com/athletic/6694304/2025/10/06/tottenham-news-ownership-earick-offer/
+
+**A judge’s order blocked Trump from sending troops in Portland. It doesn’t apply to Chicago.**\
+`By Shawn Hubler, Anna Griffin, Eric Schmitt and Talya Minsberg`\
+https://nytimes.com/live/2025/10/06/us/national-guard-trump-oregon-chicago/a-judges-order-blocked-trump-from-sending-troops-in-portland-it-doesnt-apply-to-chicago
+
 **Grizzlies guard Ja Morant listed as week-to-week with ankle sprain**\
 `Morant is listed as week-to-week with a left ankle sprain, according to a team spokesman.`\
 https://nytimes.com/athletic/6694198/2025/10/06/ja-morant-week-to-week-ankle-sprain/
@@ -29,12 +38,4 @@ https://nytimes.com/athletic/6693940/2025/10/06/fantasy-football-week-5-recap-an
 **What the Giants should be looking for in their managerial search**\
 `The Giants should be able to cast a wide net when looking for their next manager. `\
 https://nytimes.com/athletic/6692891/2025/10/06/sf-giants-manager-search-criteria/
-
-**Chris Dreja, a Founding Member of the Yardbirds, Dies at 78**\
-`A rhythm guitarist and bassist, he was a “rock” for a band whose fiery lead players, Eric Clapton, Jeff Beck and Jimmy Page, had no shortage of ego.`\
-https://nytimes.com/2025/10/06/arts/music/chris-dreja-dead.html
-
-**Worried, Frazzled, Indifferent: Processing the Shutdown in a Divided America**\
-`As the government shutdown entered its first full week, emotions across the country ranged from uneasy to unconcerned.`\
-https://nytimes.com/2025/10/06/us/government-shutdown-reactions.html
 
