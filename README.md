@@ -1,3 +1,11 @@
+**Commercial Aviation May Soon Feel Shutdown’s Impact, Official Warns**\
+`The Essential Air Service, which subsidizes flights to small airports, will run out of money on Sunday, and air traffic controllers who have been working without pay have begun calling in sick.`\
+https://nytimes.com/2025/10/06/us/politics/faa-essential-air-service-controllers.html
+
+**What I'm seeing with Rangers: Noah Laba, Conor Sheary in good spots, power-play updates**\
+`"It's always nice to get rewarded for performing well and your hard work," Laba said.`\
+https://nytimes.com/athletic/6694305/2025/10/06/rangers-noah-laba-conor-sheary-roster/
+
 **How to watch NHL games in 2025-26: TV channels, streaming info and broadcast schedules**\
 `National and local broadcasts will be scattered across over-the-air antennas, cable packages and a variety of streaming services.`\
 https://nytimes.com/athletic/6689390/2025/10/06/nhl-television-broadcast-streaming-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6694457/2025/10/06/panthers-seth-jones-blackhawks-n
 **Trump Aimed Shutdown Cuts at Democrats, but G.O.P. Districts Are Hit, Too**\
 `As the president cancels projects in Democratic-run states, he is cutting money that benefits his own party’s lawmakers in some of the most competitive House districts.`\
 https://nytimes.com/2025/10/06/us/politics/republican-districts-political-pain-program-cancellations.html
-
-**Submit questions for Vic Tafur's 49ers mailbag**\
-`I stole the San Francisco 49ers mailbag from Matt Barrows this week, but it’s empty. Help me fill it up!`\
-https://nytimes.com/athletic/6694437/2025/10/06/49ers-mailbag-questions-vic-tafur/
-
-**Why did Connor McDavid take such a discount? Does this re-set the NHL market? Johnston and LeBrun**\
-`The Athletic's NHL insiders react to McDavid's two-year, $12.5 million AAV contract extension with the Oilers.`\
-https://nytimes.com/athletic/6694303/2025/10/06/connor-mcdavid-extension-insider-analysis/
 
