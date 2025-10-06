@@ -1,3 +1,11 @@
+**Ravaged by War: Trying to Survive Gaza’s Present, Hoping for a Future**\
+`Two years of intense warfare in Gaza have left its people with a dismembered and disordered society. The destruction is vast and many Gazans have mental and physical wounds that could scar a generation.`\
+https://nytimes.com/2025/10/06/world/middleeast/israel-gaza-war.html
+
+**How to watch Eagles at Giants: Time, TV, streaming**\
+`Find out how to watch the Philadelphia Eagles play the New York Giants, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6693269/2025/10/06/eagles-vs-giants-stream-how-to-watch-oct-9/
+
 **How to watch Cubs at Brewers: Game 2 Time, TV, streaming**\
 `Find out how to watch the Chicago Cubs play the Milwaukee Brewers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6693264/2025/10/06/cubs-vs-brewers-stream-how-to-watch-oct-6/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/06/fashion/brown-fall-fashion.html
 **What Animal Would You Like to Learn More About?**\
 `Jane Goodall, the renowned primate expert who died last week, spent her life studying chimpanzees. Is there a species you have always wanted to know more about?`\
 https://nytimes.com/2025/10/06/learning/what-animal-would-you-like-to-learn-more-about.html
-
-**Trumpism After Trump: The Future of the Right**\
-`A conservative’s vision for MAGA beyond Trump.`\
-https://nytimes.com/2025/10/06/opinion/gladden-pappin-next-american-story.html
-
-**Chris Kraus on Cancel Culture, Murder and Other American Pastimes**\
-`The author of “I Love Dick” returns with a novel that combines autobiography and true crime.`\
-https://nytimes.com/2025/10/06/books/review/chris-kraus-four-spent-the-day-together.html
 
