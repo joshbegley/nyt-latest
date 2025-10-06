@@ -1,3 +1,5 @@
+
+
 **Worried, Frazzled, Indifferent: Processing the Shutdown in a Divided America**\
 `As the government shutdown entered its first full week, emotions across the country ranged from uneasy to unconcerned.`\
 https://nytimes.com/2025/10/06/us/government-shutdown-reactions.html
