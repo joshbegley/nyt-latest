@@ -1,3 +1,7 @@
+**NFL overreaction Monday: How is Colts-Cardinals spread under a touchdown?**\
+`Toby Mergler makes early Week 6 picks wildly over-indexing on vibes, small sample sizes and comparisons to pop culture classics.`\
+https://nytimes.com/athletic/6694112/2025/10/06/nfl-overreaction-monday-week-6-betting/
+
 **One thought for every player who made the Rangers' opening-night roster**\
 `Now that we know how New York is starting, let's discuss the state of the team by offering one observation per roster member.`\
 https://nytimes.com/athletic/6691456/2025/10/06/ny-rangers-roster-lineup-thoughts-2025-26/
