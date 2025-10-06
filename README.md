@@ -34,7 +34,7 @@ https://nytimes.com/athletic/6667638/2025/10/06/brighton-wolves-premier-league-v
 `Ange Postecoglou is still searching for a landmark display to prove himself to Forest's fans and hierarchy... and he needs it fast.`\
 https://nytimes.com/athletic/6691644/2025/10/06/nottingham-forest-postecoglou-newcastle/
 
-**Haaland and Donnarumma have Manchester City in contention, but can they thrive without Rodri?**\
-`Opponents continue to shrink in the shadow of the prolific striker and imposing goalkeeper, but midfield remains an issue for Pep Guardiola`\
-https://nytimes.com/athletic/6691369/2025/10/06/haaland-donnarumma-manchester-city-rodri-brentford/
+**The Briefing: A deliciously imperfect title race? Has Forest's folly been exposed?**\
+`Dissecting the Premier League's big talking points from the weekend, from an intriguing title pursuit to the return of thunderous penalties`\
+https://nytimes.com/athletic/6691134/2025/10/06/premier-league-title-forest-stutter-penalty-briefing/
 
