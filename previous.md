@@ -1,3 +1,11 @@
+**What's next for Packers' Christian Watson after returning to practice from torn ACL?**\
+`Watson practiced Monday for the first time since tearing his ACL nine months and one day ago against the Bears.`\
+https://nytimes.com/athletic/6694517/2025/10/06/christian-watson-packers-return-acl/
+
+**Maryland Judges Weigh Whether Cities Can Sue Over Climate Change**\
+`Communities including Baltimore and Annapolis are asking the state’s top court to revive a case accusing oil companies of spreading disinformation.`\
+https://nytimes.com/2025/10/06/climate/maryland-climate-lawsuit.html
+
 **Syria Chooses a Parliament of Revolutionaries**\
 `In the first elections since the Assad regime was ousted, there was no popular vote and women and minorities won few seats. Still, many Syrians saw it as progress toward ending authoritarian rule.`\
 https://nytimes.com/2025/10/06/world/middleeast/syria-elections-parliament.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/opinion/100000010441484/dei-helps-everyone-white-men-i
 **Maple Leafs claim goalie Cayden Primeau, winger Sammy Blais off waivers**\
 `It is likely both players will be added to the Leafs' roster to fill depth roles.`\
 https://nytimes.com/athletic/6694445/2025/10/06/maple-leafs-cayden-primeau-sammy-blais-waivers/
-
-**Judge Poised to Free Abrego Garcia if Officials Can’t Supply Deportation Plans**\
-`The judge expressed exasperation at government lawyers’ failure to answer “basic questions” or produce evidence during what she called a “topsy-turvy, inside-out day.”`\
-https://nytimes.com/2025/10/06/us/politics/abrego-garcia-court-hearing.html
-
-**Trump Gave a Partisan Speech to Navy Troops, to Mixed Reactions**\
-`President Trump’s attempts to politicize the military have become more overt as he makes the case for having troops at his disposal in American cities.`\
-https://nytimes.com/2025/10/06/us/politics/trump-navy-portland-troops.html
 

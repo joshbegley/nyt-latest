@@ -1,3 +1,11 @@
+**What's next for Packers' Christian Watson after returning to practice from torn ACL?**\
+`Watson practiced Monday for the first time since tearing his ACL nine months and one day ago against the Bears.`\
+https://nytimes.com/athletic/6694517/2025/10/06/christian-watson-packers-return-acl/
+
+**Maryland Judges Weigh Whether Cities Can Sue Over Climate Change**\
+`Communities including Baltimore and Annapolis are asking the state’s top court to revive a case accusing oil companies of spreading disinformation.`\
+https://nytimes.com/2025/10/06/climate/maryland-climate-lawsuit.html
+
 **Syria Chooses a Parliament of Revolutionaries**\
 `In the first elections since the Assad regime was ousted, there was no popular vote and women and minorities won few seats. Still, many Syrians saw it as progress toward ending authoritarian rule.`\
 https://nytimes.com/2025/10/06/world/middleeast/syria-elections-parliament.html
