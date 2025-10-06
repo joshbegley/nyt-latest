@@ -1,3 +1,7 @@
+**Worried, Frazzled, Indifferent: Processing the Shutdown in a Divided America**\
+`As the government shutdown entered its first full week, emotions across the country ranged from uneasy to unconcerned.`\
+https://nytimes.com/2025/10/06/us/government-shutdown-reactions.html
+
 **Israel Premier-Tech to 'rename and rebrand' after protests**\
 `The cycling team have been the subject of many pro-Palestine protests this season leading to two of their sponsors requesting a name change.`\
 https://nytimes.com/athletic/6693947/2025/10/06/israel-premier-tech-rebrand-cycling-protests/
@@ -35,8 +39,4 @@ https://nytimes.com/2025/10/06/technology/google-ad-tech-arguments.html
 **Prosecutors add felony battery charge against Sanchez over alleged attack**\
 `Prosecutors said the additional felony charge was due to the alleged assault “involving serious bodily injury.”`\
 https://nytimes.com/athletic/6693931/2025/10/06/mark-sanchez-felony-charges/
-
-**Fire Consumes the Home of a South Carolina State Judge**\
-`Three people, who had to be rescued by kayak, were injured. The cause of the fire is under investigation.`\
-https://nytimes.com/2025/10/06/us/politics/goodstein-house-fire-south-carolina-judge-senator.html
 

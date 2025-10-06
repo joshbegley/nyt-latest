@@ -1,3 +1,7 @@
+**Worried, Frazzled, Indifferent: Processing the Shutdown in a Divided America**\
+`As the government shutdown entered its first full week, emotions across the country ranged from uneasy to unconcerned.`\
+https://nytimes.com/2025/10/06/us/government-shutdown-reactions.html
+
 **Israel Premier-Tech to 'rename and rebrand' after protests**\
 `The cycling team have been the subject of many pro-Palestine protests this season leading to two of their sponsors requesting a name change.`\
 https://nytimes.com/athletic/6693947/2025/10/06/israel-premier-tech-rebrand-cycling-protests/

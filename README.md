@@ -1,3 +1,7 @@
+**Chris Dreja, a Founding Member of the Yardbirds, Dies at 78**\
+`A rhythm guitarist and bassist, he was a “rock” for a band whose fiery lead players, Eric Clapton, Jeff Beck and Jimmy Page, had no shortage of ego.`\
+https://nytimes.com/2025/10/06/arts/music/chris-dreja-dead.html
+
 **Worried, Frazzled, Indifferent: Processing the Shutdown in a Divided America**\
 `As the government shutdown entered its first full week, emotions across the country ranged from uneasy to unconcerned.`\
 https://nytimes.com/2025/10/06/us/government-shutdown-reactions.html
@@ -12,7 +16,7 @@ https://nytimes.com/athletic/6693947/2025/10/06/israel-premier-tech-rebrand-cycl
 `\
 https://nytimes.com/athletic/6694130/2025/10/06/submit-a-question-for-stewart-mandels-week-7-college-football-mailbag/
 
-**Connor McDavid agrees to 2-year contract extension with Oilers: Sources**\
+**Connor McDavid agrees to 2-year contract extension with Oilers**\
 `McDavid’s extension will kick in at the start of the 2026-27 campaign, keeping the 28-year-old megastar in Edmonton.`\
 https://nytimes.com/athletic/6474073/2025/10/06/connor-mcdavid-contract-oilers-extension/
 
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6693175/2025/10/06/mlb-alds-nlds-toronto-the-windup
 **U.S. v. Google: What Each Side Argued for Fixing Google’s Ad Tech Monopoly**\
 `The Justice Department and Google wrapped up a two-week hearing that could have a major effect on online advertising.`\
 https://nytimes.com/2025/10/06/technology/google-ad-tech-arguments.html
-
-**Prosecutors add felony battery charge against Sanchez over alleged attack**\
-`Prosecutors said the additional felony charge was due to the alleged assault “involving serious bodily injury.”`\
-https://nytimes.com/athletic/6693931/2025/10/06/mark-sanchez-felony-charges/
 
