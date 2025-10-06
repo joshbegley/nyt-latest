@@ -1,3 +1,15 @@
+**The Briefing: A deliciously imperfect title race? Has Forest's folly been exposed?**\
+`Dissecting the Premier League's big talking points from the weekend, from an intriguing title pursuit to the return of thunderous penalties`\
+https://nytimes.com/athletic/6691134/2025/10/06/premier-league-title-forest-stutter-penalty-briefing/
+
+**Patriots-Bills takeaways: New England hands Buffalo its first loss**\
+`Buffalo's loss comes hours after the Denver Broncos gave the Philadelphia Eagles their first loss of the season.`\
+https://nytimes.com/athletic/6692597/2025/10/06/patriots-bills-score-result-takeaways-sunday-night-football/
+
+**Fantasy football Week 5 takeaways: Emeka Egbuka seizes the day, JCM breaks out**\
+`Michael Salfino shares his observations for Week 5, including a bullish take on Tampa Bay rookie wideout Emeka Egbuka.`\
+https://nytimes.com/athletic/6692834/2025/10/06/fantasy-football-week-5-takeaways-egbuka-jcm/
+
 **No Corrections: Oct. 06, 2025**\
 `No corrections appeared in print on Monday, Oct. 6, 2025.`\
 https://nytimes.com/2025/10/06/pageoneplus/no-corrections-oct-06-2025.html
