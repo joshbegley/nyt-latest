@@ -1,3 +1,11 @@
+**Trump Calls Off Diplomatic Outreach to Venezuela**\
+`The move paves the way for a possible military escalation against drug traffickers or the government of Nicolás Maduro.`\
+https://nytimes.com/2025/10/06/us/politics/trump-venezuela-maduro.html
+
+**More injury woes for Chargers as rookie RB Omarion Hampton heads to IR**\
+`Already playing without both starting offensive tackles, L.A.'s offense now loses its promising rookie back for at least four weeks.`\
+https://nytimes.com/athletic/6695046/2025/10/06/omarion-hampton-chargers-ir-ankle-injury/
+
 **Troops Head to Chicago, Despite Efforts to Block Them**\
 `Also, Gaza peace talks took place in Egypt. Here’s the latest at the end of Monday.`\
 https://nytimes.com/2025/10/06/briefing/trump-national-guard-chicago-international-students.html
