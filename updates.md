@@ -1,3 +1,11 @@
+**Internal Audits Shed Light on Ukraine’s Secret Weapons Spending**\
+`The government reviews show the country’s challenge as U.S. support wanes and Kyiv pivots to production from a domestic arms industry with a long history of corruption.`\
+https://nytimes.com/2025/10/06/world/europe/ukraine-war-weapons-defense-contracts-payments.html
+
+**Nobel Prize in Physiology or Medicine Is Awarded for Work on Immune Systems**\
+`Mary E. Brunkow, Fred Ramsdell and Shimon Sakaguchi were awarded the prize for research showing how the body regulates its immune responses.`\
+https://nytimes.com/2025/10/06/health/nobel-prize-medicine-physiology.html
+
 **Rosenthal: The Yankees' season is on the line. So are their chances to maximize peak Aaron Judge**\
 `The Yankees will need to win three in a row over the Blue Jays to overcome a 2-0 deficit in the American League Division Series.`\
 https://nytimes.com/athletic/6692913/2025/10/06/aaron-judge-yankees-window-alds/
