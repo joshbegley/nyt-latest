@@ -1,3 +1,7 @@
+**Tigers-Mariners Game 2 takeaways: Polanco powers Seattle past Skubal, Detroit**\
+`The series shifts to Detroit for Game 3 on Tuesday, when the Mariners’ Logan Gilbert will face the Tigers’ Jack Flaherty.`\
+https://nytimes.com/athletic/6692632/2025/10/05/tigers-mariners-game-2-score-results-takeaways-playoffs-mlb/
+
 **Seahawks’ defensive meltdown spoils Sam Darnold’s near-perfect day: ‘It hurts’**\
 `Darnold's late interception was costly, but it wouldn't have come to that if the Seahawks' defense had played anywhere near its standard.`\
 https://nytimes.com/athletic/6692710/2025/10/05/seahawks-bucs-sam-darnold-baker-mayfield/

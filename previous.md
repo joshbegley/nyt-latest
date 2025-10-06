@@ -1,3 +1,7 @@
+**Tigers-Mariners Game 2 takeaways: Polanco powers Seattle past Skubal, Detroit**\
+`The series shifts to Detroit for Game 3 on Tuesday, when the Mariners’ Logan Gilbert will face the Tigers’ Jack Flaherty.`\
+https://nytimes.com/athletic/6692632/2025/10/05/tigers-mariners-game-2-score-results-takeaways-playoffs-mlb/
+
 **Seahawks’ defensive meltdown spoils Sam Darnold’s near-perfect day: ‘It hurts’**\
 `Darnold's late interception was costly, but it wouldn't have come to that if the Seahawks' defense had played anywhere near its standard.`\
 https://nytimes.com/athletic/6692710/2025/10/05/seahawks-bucs-sam-darnold-baker-mayfield/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6692622/2025/10/05/eagles-loss-broncos-penalties/
 **Giants fumble away win, remind us how adept they are at killing good vibes, beating themselves**\
 `The players change. An exciting rookie QB can even provide a jolt for a week. But these are still the Giants.`\
 https://nytimes.com/athletic/6692504/2025/10/05/giants-fumble-turnovers-jaxson-dart-saints/
-
-**Trump Calls Deadly Strikes on Boats in Caribbean an ‘Act of Kindness’**\
-`The president, speaking aboard an aircraft carrier off Norfolk, Va., repeated his claims that the boats were trafficking drugs bound for the United States.`\
-https://nytimes.com/2025/10/05/us/politics/trump-caribbean-strikes-drugs-kindness.html
 
