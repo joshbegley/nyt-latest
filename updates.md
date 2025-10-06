@@ -1,3 +1,7 @@
+**Danila Yurov, Liam Ohgren make Wild opening night roster, but not in second-line spot team hoped**\
+`With Mats Zuccarello out, Minnesota challenged its top forward prospects to grab his lineup spot. Neither did.`\
+https://nytimes.com/athletic/6694946/2025/10/06/wild-opening-night-roster-yurov-ohgren/
+
 **Treasury Defends Lawfulness of Minting a $1 Trump Coin**\
 `The Treasury Department said that a 2020 collectible coinage law allows a living person to appear on U.S. currency.`\
 https://nytimes.com/2025/10/06/us/politics/treasury-trump-coin.html

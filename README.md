@@ -1,3 +1,15 @@
+**More injury woes for Chargers, as rookie RB Omarion Hampton heads to IR**\
+`Already playing without both starting offensive tackles, L.A.'s offense now loses its promising rookie back for at least four weeks.`\
+https://nytimes.com/athletic/6695046/2025/10/06/omarion-hampton-chargers-ir-ankle-injury/
+
+**Neighbors Warn Neighbors as Fear of ICE Ripples Across Chicago**\
+`Parents are standing guard at schools. Restaurants have stopped delivering food or simply closed. “Every single person who looks brown is scared,” a lawyer said.`\
+https://nytimes.com/2025/10/06/us/fear-ice-chicago.html
+
+**Supreme Court, for Now, Rejects Google Bid to Block Changes to App Store**\
+`The emergency order is the latest turn in a longstanding legal dispute between the tech giant and the creator of the popular game Fortnite.`\
+https://nytimes.com/2025/10/06/us/politics/supreme-court-google-fortnite.html
+
 **Danila Yurov, Liam Ohgren make Wild opening night roster, but not in second-line spot team hoped**\
 `With Mats Zuccarello out, Minnesota challenged its top forward prospects to grab his lineup spot. Neither did.`\
 https://nytimes.com/athletic/6694946/2025/10/06/wild-opening-night-roster-yurov-ohgren/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6694394/2025/10/06/senators-owner-michael-andlauer-
 **Israel at War With Itself**\
 `On the second anniversary of the Oct. 7 attacks, Roger Cohen explains how the war in Gaza has left Israel divided and isolated.`\
 https://nytimes.com/2025/10/06/world/israel-war-france-resignation-everest-oktoberfest.html
-
-**Max Scherzer’s advice for taming Yankee Stadium in October and other Blue Jays notes**\
-`Scherzer isn't on the Jays' ALDS roster but he has plenty of wisdom to pass on to his teammates about pitching in New York in October.`\
-https://nytimes.com/athletic/6694223/2025/10/06/blue-jays-alds-max-scherzer-yankee-stadium-notes/
-
-**Bills benched WR Keon Coleman for first series vs. Patriots**\
-`The Bills disciplined Coleman last season for not being on time.`\
-https://nytimes.com/athletic/6694953/2025/10/06/bills-keon-coleman-benched-patriots/
-
-**Flyers depth chart 3.0: Zegras the 1C; Luchanko makes the cut; Bump, Andrae fall short**\
-`Philadelphia has settled its key questions ahead of Thursday's season opener against the Panthers.`\
-https://nytimes.com/athletic/6694677/2025/10/06/flyers-depth-chart-3-0-zegras-the-top-center-luchanko-makes-the-cut-bump-andrae-fall-short/
 
