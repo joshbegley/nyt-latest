@@ -1,3 +1,11 @@
+**NCAA approves 15-day CFB transfer portal window starting Jan. 2**\
+`The change comes less than a month after the NCAA eliminated the spring transfer portal window for football players.`\
+https://nytimes.com/athletic/6698257/2025/10/07/ncaa-college-football-transfer-portal-window/
+
+**Guardians postmortem takeaways: Carl Willis, José Ramírez, Emmanuel Clase, Luis Ortiz and more**\
+`The Guardians intend for the entire coaching staff to return in 2026 — but there could be some caveats.`\
+https://nytimes.com/athletic/6696888/2025/10/07/guardians-postmortem-takeaways-carl-willis-jose-ramirez-emmanuel-clase-luis-ortiz/
+
 **How Trump Is Using the Justice Department to Target His Enemies**\
 `President Trump has long spoken of seeking vengeance against his political enemies. Here’s a list of whom he is targeting.`\
 https://nytimes.com/interactive/2025/10/07/us/politics/trump-enemies-justice-department-investigations.html

@@ -1,3 +1,11 @@
+**NCAA approves 15-day CFB transfer portal window starting Jan. 2**\
+`The change comes less than a month after the NCAA eliminated the spring transfer portal window for football players.`\
+https://nytimes.com/athletic/6698257/2025/10/07/ncaa-college-football-transfer-portal-window/
+
+**Guardians postmortem takeaways: Carl Willis, José Ramírez, Emmanuel Clase, Luis Ortiz and more**\
+`The Guardians intend for the entire coaching staff to return in 2026 — but there could be some caveats.`\
+https://nytimes.com/athletic/6696888/2025/10/07/guardians-postmortem-takeaways-carl-willis-jose-ramirez-emmanuel-clase-luis-ortiz/
+
 **How Trump Is Using the Justice Department to Target His Enemies**\
 `President Trump has long spoken of seeking vengeance against his political enemies. Here’s a list of whom he is targeting.`\
 https://nytimes.com/interactive/2025/10/07/us/politics/trump-enemies-justice-department-investigations.html
@@ -17,12 +25,4 @@ https://nytimes.com/video/us/politics/100000010444978/furloughed-federal-workers
 **Bondi Refuses Democrats’ Questions During Senate Hearing**\
 `Attorney General Pam Bondi refused to take questions from Democrats during a combative Senate Judiciary Committee hearing on Tuesday.`\
 https://nytimes.com/video/us/politics/100000010445134/bondi-attacks-democrats-senate-hearing.html
-
-**N.J. Attorney General Investigating Uber Over Handling of Sexual Assaults**\
-`The investigation, according to people with knowledge of the inquiry, is focused on whether Uber committed consumer fraud in how it promoted consumer safeguards.`\
-https://nytimes.com/2025/10/07/business/uber-nj-attorney-general-sexual-assaults.html
-
-**OBJ will serve 6-game PED suspension, aims to return to NFL this season**\
-`Receiver says he aims to play in 2025, mentioning interest in the Steelers, Chiefs, Giants or Rams. `\
-https://nytimes.com/athletic/6698093/2025/10/07/odell-beckham-jr-ped-suspension-comeback/
 
