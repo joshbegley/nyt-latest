@@ -1,3 +1,7 @@
+**What People in Gaza Told Us About Two Years of War**\
+`In the two years since Hamas militants attacked Israel, we’ve interviewed more than 700 people in Gaza. Their stories stayed with us. So we tried to find them again.`\
+https://nytimes.com/video/world/middleeast/100000010430534/what-people-in-gaza-told-us-about-two-years-of-war.html
+
 **Where to Eat in N.Y.C.: Patties**\
 `This week, New York Times Food contributor Luke Fortney recommends three Caribbean patty spots around N.Y.C.`\
 https://nytimes.com/video/dining/100000010441385/where-to-eat-in-nyc-patties.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6696779/2025/10/07/fantasy-football-week-6-drops-it
 **The Supreme Court upheld a ban on transgender care for minors during the last term.**\
 `By Ann E. Marimow`\
 https://nytimes.com/live/2025/10/07/us/supreme-court-conversion-therapy/the-supreme-court-upheld-a-ban-on-transgender-care-for-minors-during-the-last-term
-
-**Taking Too Much Tylenol Has Proven Risks. Trump Didn’t Talk About Those.**\
-`Acetaminophen’s link to autism is unproven. But hundreds of Americans accidentally overdose on the drug each year, suffering liver damage that can require a transplant or even be fatal.`\
-https://nytimes.com/2025/10/07/health/tylenol-acetominophen-liver-damage-kenvue.html
 
