@@ -1,3 +1,7 @@
+**In NLDS Game 2 loss, Cubs see vaunted process fall apart against rival Brewers**\
+`As a team built on solid pitching and Gold Glove defense, the Cubs have come up short in both those phases of the game.`\
+https://nytimes.com/athletic/6695995/2025/10/07/cubs-brewers-nlds-game-2-process-development/
+
 **His Off-the-Grid Vacation Was Interrupted by Winning a Nobel Prize**\
 `Fred Ramsdell found out about his Nobel Prize nearly 12 hours after it was announced because he was on vacation in the Rockies.`\
 https://nytimes.com/2025/10/07/science/nobel-prize-medicine-fred-ramsdell.html
