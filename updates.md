@@ -1,3 +1,7 @@
+**President Trump and the Military**\
+`Today, we look at how Trump melds his politics with his role as head of the armed forces.`\
+https://nytimes.com/2025/10/07/world/oct-7-anniversary-trump-military-france.html
+
 **Big on will, short on skill: Meet the bottom-six Bruins**\
 `Fraser Minten is one of five fresh faces in the Boston bottom six. All are tasked to be first on pucks, heavy on sticks and fearless.`\
 https://nytimes.com/athletic/6695056/2025/10/07/bruins-roster-cuts-bottom-six/

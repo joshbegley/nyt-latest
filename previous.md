@@ -1,3 +1,7 @@
+**President Trump and the Military**\
+`Today, we look at how Trump melds his politics with his role as head of the armed forces.`\
+https://nytimes.com/2025/10/07/world/oct-7-anniversary-trump-military-france.html
+
 **Stars as Stanley Cup champs? Connor McDavid as MVP? NHL 2025-26 season predictions**\
 `The 2025-26 NHL season is finally upon us, and that means it’s time for The Athletic to ask its staff for their predictions.`\
 https://nytimes.com/athletic/6690057/2025/10/07/nhl-predictions-stanley-cup-stars-connor-mcdavid/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6695942/2025/10/07/cubs-brewers-nlds-game-2-milwauk
 **What the Chiefs said after loss to the Jaguars — and what's been missing in 2-3 start**\
 `Chiefs defensive back Chamarri Conner described his viewpoint of a late defensive pass-interference call, one of 13 K.C. penalties.`\
 https://nytimes.com/athletic/6695126/2025/10/07/chiefs-jaguars-patrick-mahomes-chamarri-conner/
-
-**Huge in Canada, the Toronto Blue Jays get their TV spotlight with U.S. fans**\
-`The Jays are making their U.S. debut on Fox this season during their playoff series with New York. The TV team is ready to make the intro.`\
-https://nytimes.com/athletic/6689516/2025/10/07/toronto-blue-jays-alds-yankees-mlb/
 
