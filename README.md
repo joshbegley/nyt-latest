@@ -1,3 +1,11 @@
+**Quote of the Day: Worried, Frazzled, Indifferent: Americans Process Shutdown**\
+`Quotation of the Day for Tuesday, October 7, 2025.`\
+https://nytimes.com/2025/10/06/pageoneplus/quote-of-the-day-worried-frazzled-indifferent-americans-process-shutdown.html
+
+**Chiefs-Jaguars: Trevor Lawrence stumbles, scores late TD in Jacksonville's MNF win**\
+`Lawrence fell over twice, got back up and scrambled into the end zone from 1 yard out to give the Jaguars the lead with 23 seconds left.`\
+https://nytimes.com/athletic/6695579/2025/10/06/chiefs-jaguars-score-result-takeaways-mnf/
+
 **Full Time: The impetus Angel City needs?**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6695248/2025/10/06/ali-riley-retirement-full-time/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/06/us/politics/flight-delays-faa-shutdown.html
 **How to watch South Carolina vs. LSU: Time, TV, streaming**\
 `Find out how to watch the South Carolina Gamecocks play the LSU Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6695563/2025/10/06/south-carolina-vs-lsu-stream-how-to-watch-oct-11/
-
-**How to watch BYU vs. Arizona: Time, TV, streaming**\
-`Find out how to watch the BYU Cougars play the Arizona Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6695554/2025/10/06/byu-vs-arizona-stream-how-to-watch-oct-11/
-
-**Megyn Kelly Knows Which Way the Winds Are Blowing**\
-`MAGA is tearing itself apart over who really killed Charlie Kirk.`\
-https://nytimes.com/2025/10/06/opinion/republicans-conspiracies-charlie-kirk.html
 
