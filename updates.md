@@ -1,3 +1,15 @@
+**An Interstellar Comet Flew Past Mars, and Spacecraft Took Pictures**\
+`3I/ATLAS, only the third object from beyond our solar system ever spotted from Earth, was viewed from Mars by an orbiting European spacecraft.`\
+https://nytimes.com/2025/10/07/science/mars-interstellar-comet-3i-atlas.html
+
+**In Israel, the Anniversary of Oct. 7 Was Quiet but Inescapable**\
+`Also, the Supreme Court seemed skeptical of a ban on conversion therapy. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/10/07/briefing/anniversary-of-oct-7-pets-health-watchdogs.html
+
+**OBJ will serve 6-game PED suspension, aims to return to NFL this season**\
+`Receiver says he aims to play in 2025, mentioning interest in the Steelers, Chiefs, Giants or Rams. `\
+https://nytimes.com/athletic/6698093/2025/10/07/odell-beckham-jr-ped-suspension-comeback/
+
 **Back Pay May Be Withheld From Some Furloughed Federal Workers**\
 `The White House has stated that many federal employees may not be entitled to immediate back pay when the government reopens, contradicting a 2019 law that guarantees back pay for furloughed workers.`\
 https://nytimes.com/video/us/politics/100000010444978/furloughed-federal-workers-back-pay.html
