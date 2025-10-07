@@ -1,40 +1,40 @@
-**Man City's Stones considered retiring last season**\
-`The 31-year-old has made 283 City appearances but only played 11 times in the top flight last season.`\
-https://nytimes.com/athletic/6696156/2025/10/07/john-stones-manchester-city-retirement/
+**Trump Is Not Afraid of Civil War. Neither Is Stephen Miller.**\
+`After all, there is “an enemy within.”`\
+https://nytimes.com/2025/10/07/opinion/trump-miller-kirk-aftermath.html
 
-**Not Your Grandmother’s Chanel**\
-`Matthieu Blazy made his debut for the brand, and it’s a whole new world.`\
-https://nytimes.com/2025/10/07/style/chanel-matthieu-blazy.html
+**No, Trump Can’t Deploy Troops to Wherever He Wants**\
+`The president’s claims about cities don’t hold up.`\
+https://nytimes.com/2025/10/07/opinion/trump-national-guard-cities.html
 
-**Israel Marks a Somber Two-Year Milestone in Subdued Fashion**\
-`The second anniversary of the Oct. 7 attacks comes with peace talks underway, but with hostages still in Gaza, more than 67,000 Palestinians dead and Israel more isolated than ever before.`\
-https://nytimes.com/2025/10/07/world/middleeast/october-7-anniversary-israel.html
+**Supreme Court Hears Free Speech Challenge to Ban on Conversion Therapy**\
+`The court’s ruling in the Colorado case will have implications for more than 20 other states with similar laws.`\
+https://nytimes.com/2025/10/07/us/politics/supreme-court-colorado-conversion-therapy.html
 
-**How to Protect Your Pets From Pollution**\
-`Wildfire smoke, lead paint and other environmental toxins are health hazards for animals, too.`\
-https://nytimes.com/2025/10/07/science/pets-health-pollution.html
+**Boys Are Spending More Time Gaming. Is That a Problem?**\
+`Some say video games are a chief reason boys and young men are struggling. Others say games serve an important role in teens’ lives. What do you think?`\
+https://nytimes.com/2025/10/07/learning/boys-are-spending-more-time-gaming-is-that-a-problem.html
 
-**Stamps**\
-`Do you ever pay attention to the little rectangles that adorn our mail? Have you ever collected them?`\
-https://nytimes.com/2025/10/07/learning/stamps.html
+**What to Know About Carney and Trump’s White House Meeting**\
+`President Trump on Tuesday is hosting Prime Minister Mark Carney of Canada, who is seeking relief from U.S. tariffs. Few people expect any major concessions.`\
+https://nytimes.com/2025/10/07/world/canada/carney-trump-white-house-meeting.html
 
-**As Trump’s Justice Dept. Pursues His Enemies, an Ally Goes on Trial**\
-`Xinyue Lou is accused of funneling foreign campaign donations to President Trump’s campaign. The president has said the justice system has been used against him and his supporters.`\
-https://nytimes.com/2025/10/07/nyregion/daniel-lou-campaign-contributions.html
+**Trump to Unveil Farmer Aid as China Shuns U.S. Crops**\
+`As it did in 2018, the White House plans to dole out relief funds to struggling U.S. farmers who have lost their biggest customer.`\
+https://nytimes.com/2025/10/07/us/politics/trump-farmers-aid-china-trade-war.html
 
-**Is Adams’s Exit a Game-Changer for Cuomo? Not So Far.**\
-`There has been little evidence that Mayor Eric Adams’s decision to end his re-election bid has had a major effect on Andrew Cuomo’s bid to attract donors or voters.`\
-https://nytimes.com/2025/10/07/nyregion/cuomo-campaign-mayor.html
+**What Clowns! (That’s a Compliment)**\
+`Natalie Palamides and Julia Masli are among the stars of a new clowning movement that revels in the comedy of failure. How did these fools become prestige?`\
+https://nytimes.com/2025/10/07/arts/television/natalie-palamides-weer-julia-masli.html
 
-**‘Unfortunately, Your Hotel Has Gone Out of Business.’**\
-`A travel reporter investigated a hotel chain that had filed for bankruptcy — and when the guests showed up, he was the one who told them there was no room at this inn.`\
-https://nytimes.com/2025/10/07/insider/new-york-luxurban-hotels-bankruptcy.html
+**In 2020, Trump Intervened in Portland’s Protests. They Got Even Worse.**\
+`Here are five lessons for cities in the president’s sights, like Chicago and Memphis, drawn from the one city targeted by Mr. Trump in his first term, Portland, Ore.`\
+https://nytimes.com/2025/10/07/us/politics/portland-trump.html
 
-**In a Toxic World, Pets Could Be Vital Health Watchdogs**\
-`A better understanding of how pollution affects pets could benefit humans and animals alike.`\
-https://nytimes.com/2025/10/07/science/pets-health-pollution.html
+**How Bernie Williams Got to Carnegie Hall**\
+`The former Yankees center fielder has played the guitar since he was a teenager. Now he’s appearing in concert.`\
+https://nytimes.com/2025/10/07/nyregion/bernie-williams-yankees-carnegie-hall.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/10/07/crosswords/spelling-bee-forum.html
+**As Blue Jays Advance, America’s Pastime Is in Canada’s Cross Hairs**\
+`Political tensions remain high between the United States and Canada, making this a striking moment for the Toronto Blue Jays to be dominating the New York Yankees in October.`\
+https://nytimes.com/2025/10/07/us/politics/trump-canada-blue-jays-yankees.html
 
