@@ -1,3 +1,7 @@
+**A Debate About A.I. Plays Out on the Subway Walls**\
+`An ad campaign for a wearable A.I. companion has blanketed New York City, starting conversations and inspiring vandalism.`\
+https://nytimes.com/2025/10/07/style/friend-ai-subway-ads-new-york.html
+
 **Nobel Prize in Physics Recognizes Work in Quantum Mechanics**\
 `John Clarke, Michel H. Devoret and John M. Martinis were awarded the Nobel Prize in Physics for showing that two properties of quantum mechanics, the physical laws that rule the subatomic realm, could be observed in a system large enough to see with the naked eye.`\
 https://nytimes.com/video/science/100000010445023/nobel-prize-physics.html
@@ -25,8 +29,4 @@ https://nytimes.com/2025/10/07/us/judge-perry-national-guard-chicago.html
 **Crossplay Game Review**\
 `Information about Crossplay Game Review.`\
 https://nytimes.com/interactive/2025/upshot/crossplay-game-review.html
-
-**Fantasy football market share report: Rachaad White hits top 10, Stefon Diggs reanimates**\
-`Michael Salfino mines the touches and targets data from Week 5, and says he wrote of Patriots receiver Stefon Diggs too soon..`\
-https://nytimes.com/athletic/6697795/2025/10/07/fantasy-football-market-share-week-6-dowdle-diggs/
 
