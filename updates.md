@@ -1,3 +1,5 @@
+
+
 **Deadly Clashes Erupt Between Syrian Government Forces and Kurdish Fighters**\
 `Tensions have been building over government attempts to bring the Kurdish-led region in northeastern Syria under its authority. Kurdish leaders have so far resisted.`\
 https://nytimes.com/2025/10/07/world/middleeast/syria-sdf-clashes.html
