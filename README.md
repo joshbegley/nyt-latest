@@ -1,3 +1,7 @@
+**Carney and Trump: A Collision Avoided, Save for a Nasty Comment or Two**\
+`The Canadian prime minister came to Washington determined to take the heat out of the relationship. He mostly succeeded, at least for now.`\
+https://nytimes.com/2025/10/07/us/politics/carney-trump-canada-trade-relationship.html
+
 **3 Key Takeaways From the Bondi Hearing**\
 `The session before a Senate panel featured more fireworks than facts as Democrats and the attorney general repeatedly clashed.`\
 https://nytimes.com/2025/10/07/us/politics/bondi-hearing-takeaways.html
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/6698376/2025/10/07/unc-armond-hawkins-suspended/
 **How to watch 49ers vs. Buccaneers: Time, TV, streaming**\
 `Find out how to watch the San Francisco 49ers play the Tampa Bay Buccaneers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6698512/2025/10/07/49ers-vs-buccaneers-stream-how-to-watch-oct-12/
-
-**How to watch Titans vs. Raiders: Time, TV, streaming**\
-`Find out how to watch the Tennessee Titans play the Las Vegas Raiders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6698510/2025/10/07/titans-vs-raiders-stream-how-to-watch-oct-12/
 
