@@ -1,3 +1,7 @@
+**Big on will, short on skill: Meet the bottom-six Bruins**\
+`Fraser Minten is one of five fresh faces in the Boston bottom six. All are tasked to be first on pucks, heavy on sticks and fearless.`\
+https://nytimes.com/athletic/6695056/2025/10/07/bruins-roster-cuts-bottom-six/
+
 **Stars as Stanley Cup champs? Connor McDavid as MVP? NHL 2025-26 season predictions**\
 `The 2025-26 NHL season is finally upon us, and that means it’s time for The Athletic to ask its staff for their predictions.`\
 https://nytimes.com/athletic/6690057/2025/10/07/nhl-predictions-stanley-cup-stars-connor-mcdavid/

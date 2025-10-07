@@ -6,6 +6,10 @@ https://nytimes.com/athletic/6690057/2025/10/07/nhl-predictions-stanley-cup-star
 `Gustavsson: “I think we have some very good potential to be a top-five goalie tandem in the league."`\
 https://nytimes.com/athletic/6694837/2025/10/07/wild-filip-gustavsson-extension-jesper-wallstedt/
 
+**Big on will, short on skill: Meet the bottom-six Bruins**\
+`Fraser Minten is one of five fresh faces in the Boston bottom six. All are tasked to be first on pucks, heavy on sticks and fearless.`\
+https://nytimes.com/athletic/6695056/2025/10/07/bruins-roster-cuts-bottom-six/
+
 **How Cowboys, 49ers, Vikings prove injuries don't always equal doom: Week 5 film review**\
 `Also, the Eagles continue to struggle with offensive balance, and Baker Mayfield impresses again in Buccaneers' win.`\
 https://nytimes.com/athletic/6693205/2025/10/07/film-review-week-5-cowboys-49ers-vikings/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6695126/2025/10/07/chiefs-jaguars-patrick-mahomes-c
 **Huge in Canada, the Toronto Blue Jays get their TV spotlight with U.S. fans**\
 `The Jays are making their U.S. debut on Fox this season during their playoff series with New York. The TV team is ready to make the intro.`\
 https://nytimes.com/athletic/6689516/2025/10/07/toronto-blue-jays-alds-yankees-mlb/
-
-**From coach-QB trust to a good RB problem: 5 Panthers' developments to watch**\
-`Bryce Young said it "means the world" to him that Dave Canales called a pass play late in the fourth quarter with a chance to ice the game.`\
-https://nytimes.com/athletic/6695074/2025/10/07/panthers-bryce-young-rico-dowdle/
 
