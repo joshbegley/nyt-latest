@@ -1,3 +1,7 @@
+**Trump Threatens to Use Insurrection Act to Deploy National Guard**\
+`On Monday, the president said that he was considering invoking the Insurrection Act to send National Guard troops to Chicago and Portland, Ore. The act would grant him emergency powers to deploy troops and bypass court rulings.`\
+https://nytimes.com/video/us/politics/100000010442336/trump-threatens-to-use-insurrection-act-to-deploy-national-guard.html
+
 **Flight Delays Begin as Air Traffic Staffing Shortages Worsen**\
 `The delays came just hours after the transportation secretary warned that flying could be disrupted by the government shutdown.`\
 https://nytimes.com/2025/10/06/us/politics/flight-delays-faa-shutdown.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6695429/2025/10/06/how-to-watch-purdue-vs-minnesota
 **How to watch Iowa vs. Wisconsin: Time, TV, streaming**\
 `Find out how to watch the Iowa Hawkeyes play the Wisconsin Badgers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6695426/2025/10/06/how-to-watch-iowa-vs-wisconsin-tv-channel-and-streaming-options-for-october-11/
-
-**How to watch Kansas vs. Texas Tech: Time, TV, streaming**\
-`Find out how to watch the Kansas Jayhawks play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6695424/2025/10/06/how-to-watch-kansas-vs-no-9-texas-tech-tv-channel-and-streaming-options-for-october-11/
 
