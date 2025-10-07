@@ -1,3 +1,7 @@
+**The Right’s Civil War Over Charlie Kirk and Israel**\
+`Megyn Kelly knows which way the winds are blowing.`\
+https://nytimes.com/2025/10/06/opinion/republicans-conspiracies-charlie-kirk.html
+
 **We Tried to Reach Gazans We Interviewed Over Two Years of War. Here’s What Happened to Them.**\
 `We kept wondering: Did they find their missing relatives? Were they even still alive?`\
 https://nytimes.com/interactive/2025/10/06/world/middleeast/gaza-loss.html
