@@ -1,3 +1,7 @@
+**LeBron announces liquor brand partnership after teasing 'The Decision'**\
+`James, who begins his 23rd season in the NBA later this month, poked fun at his 2010 free agency reveal in an advertisement.`\
+https://nytimes.com/athletic/6697148/2025/10/07/lebron-decision-hennessy-partnership-lakers/
+
 **Priscilla Expected to Bring Heavy Rain to the Southwest United States**\
 `Forecasters expect moisture from the far-off hurricane to move inland through the West this week. Here’s where it could bring flooding.`\
 https://nytimes.com/2025/10/07/weather/hurricane-priscilla-us-rain-arizona-southwest-forecast.html
