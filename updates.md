@@ -1,3 +1,7 @@
+**UEFA has approved league games being staged abroad. So what now?**\
+`Explaining UEFA's decision yesterday and how the world game views the prospect of playing league games overseas`\
+https://nytimes.com/athletic/6696205/2025/10/07/european-league-games-abroad-explained/
+
 **The Windup: NLDS heading toward 2 quick series**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6696126/2025/10/07/mlb-nlds-game-2-the-windup/
