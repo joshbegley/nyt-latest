@@ -1,3 +1,15 @@
+**NFL Week 6 best bets: Bears to cover at Commanders and a couple big scores**\
+`Austin Mock's NFL Projection Model gave us a 6-1 Week 5 and a strong start to the season. Can he keep it up?`\
+https://nytimes.com/athletic/6697492/2025/10/07/nfl-best-bets-week-6-bears-commanders/
+
+**Super Bowl odds: Can these four contenders challenge the top tier?**\
+`A quartet of contenders is rising in Super Bowl odds. Can they challenge the favorites?`\
+https://nytimes.com/athletic/6697424/2025/10/07/super-bowl-odds-week-6-bills-lions-colts-buccaneers/
+
+**NBA's Adam Silver says WNBA conflict has 'become too personal'**\
+`Silver said he will step in if need be to CBA negotiations but has not yet.`\
+https://nytimes.com/athletic/6697436/2025/10/07/wnba-nba-adam-silver-cathy-engelbert-cba/
+
 **Priscilla Expected to Bring Heavy Rain to the Southwest United States**\
 `Forecasters expect moisture from the far-off hurricane to move inland through the West this week. Here’s where it could bring flooding.`\
 https://nytimes.com/2025/10/07/weather/hurricane-priscilla-us-rain-arizona-southwest-forecast.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6697498/2025/10/07/bill-belichick-north-carolina-ro
 **LeBron announces liquor brand partnership after teasing 'The Decision'**\
 `James, who begins his 23rd season in the NBA later this month, poked fun at his 2010 free agency reveal in an advertisement.`\
 https://nytimes.com/athletic/6697148/2025/10/07/lebron-decision-hennessy-partnership-lakers/
-
-**Republican Senators Denounce Jack Smith Over Jan. 6 Scrutiny of Phone Records**\
-`At a hearing with Attorney General Pam Bondi, Republican senators seized on the collection of their phone records by the F.B.I. as proof of politicization by the Biden administration.`\
-https://nytimes.com/2025/10/07/us/politics/republican-senators-jack-smith-phone-records.html
-
-**Deputy Sheriff Is Killed by Suspect at Louisiana Courthouse**\
-`Another deputy was wounded, and the suspect was dead, the authorities said.`\
-https://nytimes.com/2025/10/07/us/louisiana-courthouse-shooting-sheriff-deputy.html
-
-**Prime Video Scrubs Guns From James Bond Artwork, and 007 Fans Are Shaken**\
-`The world’s most famous spy does, after all, have a license to kill.`\
-https://nytimes.com/2025/10/07/arts/amazon-james-bond-artwork.html
 
