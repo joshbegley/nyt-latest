@@ -1,3 +1,11 @@
+**Oct. 7 Anniversary Arrives During Heated Final Stretch of Mayor’s Race**\
+`Both Zohran Mamdani and Andrew Cuomo planned to attend events marking the anniversary of the Hamas attacks and honoring the victims.`\
+https://nytimes.com/2025/10/07/nyregion/mamdani-israel-gaza-nyc-mayor.html
+
+**The Strangely Beautiful Realities You Can Discover in a Ken Jacobs Film**\
+`The avant-garde director, who died Sunday, changed our ideas of what cinema was and could be while showing us the old, lost New York.`\
+https://nytimes.com/2025/10/07/movies/ken-jacobs-appreciation.html
+
 **How to watch Rams vs. Ravens: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Rams play the Baltimore Ravens, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6697845/2025/10/07/rams-vs-ravens-stream-how-to-watch-oct-12/
