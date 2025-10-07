@@ -1,3 +1,15 @@
+**What’s Behind the Dispute Over Extending Health Care Subsidies**\
+`The government shutdown fight has spotlighted a debate between Republicans and Democrats about whether and how much the government should subsidize health care.`\
+https://nytimes.com/2025/10/07/us/politics/shutdown-trump-health-care-subsidies.html
+
+**Does the Knicks trading for Giannis Antetokounmpo even make sense?**\
+`Should the Bucks trade Antetokounmpo to New York? Should New York want him?`\
+https://nytimes.com/athletic/6697232/2025/10/07/knicks-giannis-antetokounmpo-trade-bucks-nba-news/
+
+**Is ‘South Park’ Trump-Proof?**\
+`It’s a prickly time for comedy, but one show is going harder than ever. The comedian Wyatt Cenac joins Wesley Morris to talk about the latest season of “South Park.”`\
+https://nytimes.com/video/podcasts/100000010444238/is-south-park-trump-proof.html
+
 **Feared Sudanese Warlord Is Convicted of War Crimes**\
 `A former Janjaweed militia commander was the first person found guilty by the International Criminal Court for atrocities in Darfur two decades ago.`\
 https://nytimes.com/2025/10/07/world/europe/sudan-darfur-icc-genocide-guilty.html
