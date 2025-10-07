@@ -2,7 +2,7 @@
 `Down 4-1 entering the ninth, the Phillies rallied and got the tying run to third base, but the Dodgers hung on for the win. `\
 https://nytimes.com/athletic/6694327/2025/10/06/dodgers-phillies-game-2-score-results-takeaways-playoffs-mlb/
 
-**Trump Threatens to Use Insurrection Act to Deploy National Guard**\
+**Trump Considers Invoking Insurrection Act**\
 `On Monday, the president said that he was considering invoking the Insurrection Act to send National Guard troops to Chicago and Portland, Ore. The act would grant him emergency powers to deploy troops and bypass court rulings.`\
 https://nytimes.com/video/us/politics/100000010442336/trump-threatens-to-use-insurrection-act-to-deploy-national-guard.html
 
