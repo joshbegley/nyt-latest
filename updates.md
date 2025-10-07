@@ -1,3 +1,11 @@
+**Pressed on Justice Dept. Politicization, Bondi Goes on Attack**\
+`At a Senate committee hearing, the attorney general avoided answering pointed queries by repeatedly laying into her questioners and casting her responses as a defense of the Trump administration.`\
+https://nytimes.com/2025/10/07/us/politics/pam-bondi-hearing.html
+
+**Donald Trump calls Bad Bunny ‘absolutely ridiculous’ choice for Super Bowl halftime show**\
+`Bad Bunny was announced as this year's Super Bowl halftime performer in late September.`\
+https://nytimes.com/athletic/6697371/2025/10/07/donald-trump-bad-bunny-super-bowl-halftime/
+
 **NHL waiver tracker: Best players on the wire throughout 2025-26 preseason**\
 `Corey Pronman and Harman Dayal provide analysis of the top players placed on waivers as the regular season approaches.`\
 https://nytimes.com/athletic/6662091/2025/10/07/nhl-waivers-tracker-preseason-2025/

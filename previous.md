@@ -1,8 +1,12 @@
+**Pressed on Justice Dept. Politicization, Bondi Goes on Attack**\
+`At a Senate committee hearing, the attorney general avoided answering pointed queries by repeatedly laying into her questioners and casting her responses as a defense of the Trump administration.`\
+https://nytimes.com/2025/10/07/us/politics/pam-bondi-hearing.html
+
 **NHL waiver tracker: Best players on the wire throughout 2025-26 preseason**\
 `Corey Pronman and Harman Dayal provide analysis of the top players placed on waivers as the regular season approaches.`\
 https://nytimes.com/athletic/6662091/2025/10/07/nhl-waivers-tracker-preseason-2025/
 
-**Donald Trump on Super Bowl halftime performer Bad Bunny: 'I don't know who he is'**\
+**Donald Trump calls Bad Bunny ‘absolutely ridiculous’ choice for Super Bowl halftime show**\
 `Bad Bunny was announced as this year's Super Bowl halftime performer in late September.`\
 https://nytimes.com/athletic/6697371/2025/10/07/donald-trump-bad-bunny-super-bowl-halftime/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6697492/2025/10/07/nfl-best-bets-week-6-bears-comma
 **Super Bowl odds: Can these four contenders challenge the top tier?**\
 `A quartet of contenders is rising in Super Bowl odds. Can they challenge the favorites?`\
 https://nytimes.com/athletic/6697424/2025/10/07/super-bowl-odds-week-6-bills-lions-colts-buccaneers/
-
-**NBA's Adam Silver says WNBA conflict has 'become too personal'**\
-`Silver said he will step in if need be to CBA negotiations but has not yet.`\
-https://nytimes.com/athletic/6697436/2025/10/07/wnba-nba-adam-silver-cathy-engelbert-cba/
 
