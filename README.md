@@ -1,3 +1,11 @@
+**How Giants leadership helped fumble away Saints game long before it started**\
+`The Giants continue to be plagued by a lack of attention to detail under the watch of coach Brian Daboll and GM Joe Schoen.`\
+https://nytimes.com/athletic/6695927/2025/10/07/ny-giants-brian-daboll-joe-schoen-fumble-saints/
+
+**Fantasy football Week 6 drops: It's time to cut Chase Brown, Jerry Jeudy and more**\
+`Gary Davenport offers some uncomplicated drops and those that might have you shifting in your seat. The choice is yours. `\
+https://nytimes.com/athletic/6696779/2025/10/07/fantasy-football-week-6-drops-its-time-to-cut-chase-brown-jerry-jeudy-and-more/
+
 **The Supreme Court upheld a ban on transgender care for minors during the last term.**\
 `By Ann E. Marimow`\
 https://nytimes.com/live/2025/10/07/us/supreme-court-conversion-therapy/the-supreme-court-upheld-a-ban-on-transgender-care-for-minors-during-the-last-term
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/07/us/politics/conversion-therapy-supreme-court.html
 **Here’s the latest.**\
 `By Ann E. Marimow`\
 https://nytimes.com/live/2025/10/07/us/supreme-court-conversion-therapy/heres-the-latest
-
-**Supreme Court Live Updates: Justices to Hear Conversion Therapy Case**\
-`Colorado and over 20 other states have banned the practice aimed at changing the sexual orientation or gender identity of young people.`\
-https://nytimes.com/live/2025/10/07/us/supreme-court-conversion-therapy
-
-**UEFA has approved league games being staged abroad. So what now?**\
-`Explaining UEFA's decision yesterday and how the world game views the prospect of playing league games overseas`\
-https://nytimes.com/athletic/6696205/2025/10/07/european-league-games-abroad-explained/
 
