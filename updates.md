@@ -1,3 +1,15 @@
+**Full Time: The impetus Angel City needs?**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6695248/2025/10/06/ali-riley-retirement-full-time/
+
+**Beluga Whales at Risk of Euthanasia**\
+`Marineland, a once popular marine park in Niagara Falls, Ontario, asked the Canadian government for emergency funding to care for its beluga whales, saying that otherwise, it would have to euthanize them.`\
+https://nytimes.com/video/world/canada/100000010443161/marineland-canada-beluga-whales.html
+
+**Megyn Kelly Knows Which Way the Winds Are Blowing**\
+`MAGA is tearing itself apart over who really killed Charlie Kirk.`\
+https://nytimes.com/2025/10/06/opinion/republicans-conspiracies-charlie-kirk.html
+
 **Megyn Kelly Knows Which Way the Winds Are Blowing**\
 `Megyn Kelly knows which way the winds are blowing.`\
 https://nytimes.com/2025/10/06/opinion/republicans-conspiracies-charlie-kirk.html
