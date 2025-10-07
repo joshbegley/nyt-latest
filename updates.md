@@ -1,3 +1,7 @@
+**Medical Helicopter Crashes on Highway in Sacramento**\
+`About 15 bystanders helped to lift the aircraft off a critically injured woman after it crashed in California’s capital on Monday evening, officials said.`\
+https://nytimes.com/2025/10/07/us/sacramento-california-medical-helicopter-crash.html
+
 **Australia's opening dilemma: Weatherald, Konstas or a left-field pick? And is Khawaja still a shoo-in?**\
 `A dizzying number of openers have been tried since the retirement of David Warner but the make-up of the top two remains a work in progress`\
 https://nytimes.com/athletic/6633566/2025/10/07/australia-ashes-opener-khawaja-weatherald-konstas-harris/
