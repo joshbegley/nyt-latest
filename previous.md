@@ -1,3 +1,7 @@
+**Who Is the Judge Hearing Arguments Over the Guard’s Deployment in Illinois?**\
+`Judge April M. Perry is a Biden appointee who has been a federal judge for less than a year.`\
+https://nytimes.com/2025/10/07/us/judge-perry-national-guard-chicago.html
+
 **Crossplay Game Review**\
 `Information about Crossplay Game Review.`\
 https://nytimes.com/interactive/2025/upshot/crossplay-game-review.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6697825/2025/10/07/f1-singapore-gp-ferrari-prime-ti
 **Oct. 7 Anniversary Arrives During Heated Final Stretch of Mayor’s Race**\
 `Both Zohran Mamdani and Andrew Cuomo planned to attend events marking the anniversary of the Hamas attacks and honoring the victims.`\
 https://nytimes.com/2025/10/07/nyregion/mamdani-israel-gaza-nyc-mayor.html
-
-**The Strangely Beautiful Realities You Can Discover in a Ken Jacobs Film**\
-`The avant-garde director, who died Sunday, changed our ideas of what cinema was and could be while showing us the old, lost New York.`\
-https://nytimes.com/2025/10/07/movies/ken-jacobs-appreciation.html
 

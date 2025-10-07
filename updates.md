@@ -1,3 +1,7 @@
+**Who Is the Judge Hearing Arguments Over the Guard’s Deployment in Illinois?**\
+`Judge April M. Perry is a Biden appointee who has been a federal judge for less than a year.`\
+https://nytimes.com/2025/10/07/us/judge-perry-national-guard-chicago.html
+
 **Crossplay Game Review**\
 `Information about Crossplay Game Review.`\
 https://nytimes.com/interactive/2025/upshot/crossplay-game-review.html
