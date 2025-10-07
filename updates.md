@@ -1,3 +1,7 @@
+**Hijab bans in sports 'deny a space for women', say human rights advocates**\
+`France's ban of the Muslim head covering has been criticised, despite the country's president, Emmanuel Macron, supporting it.`\
+https://nytimes.com/athletic/6696650/2025/10/07/hijab-ban-sports-france-amnesty/
+
 **Who is the therapist behind the lawsuit challenging Colorado’s conversion therapy law?**\
 `By Ann E. Marimow`\
 https://nytimes.com/live/2025/10/07/us/supreme-court-conversion-therapy/who-is-the-therapist-behind-the-lawsuit-challenging-colorados-conversion-therapy-law
