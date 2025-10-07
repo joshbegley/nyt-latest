@@ -1,3 +1,7 @@
+**TAFC: Get ready for a La Liga game in Miami. Plus: World Cup ticket prices rise after a day**\
+`Today in TAFC: UEFA opens the door to La Liga and Serie A matches being played abroad. Plus: World Cup ticket price hikes on day one`\
+https://nytimes.com/athletic/6696133/2025/10/07/liga-barca-miami-approved/
+
 **President Trump and the Military**\
 `Today, we look at how Trump melds his politics with his role as head of the armed forces.`\
 https://nytimes.com/2025/10/07/world/oct-7-anniversary-trump-military-france.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6694253/2025/10/07/sam-reinhart-panthers-barkov-sel
 **Big-market Cubs have no answers against dominant, small-market Brewers**\
 `Chicago led both games of this series after a home run in the top of the first inning and was outscored 16-4 after that.`\
 https://nytimes.com/athletic/6695942/2025/10/07/cubs-brewers-nlds-game-2-milwaukee-dominance/
-
-**What the Chiefs said after loss to the Jaguars — and what's been missing in 2-3 start**\
-`Chiefs defensive back Chamarri Conner described his viewpoint of a late defensive pass-interference call, one of 13 K.C. penalties.`\
-https://nytimes.com/athletic/6695126/2025/10/07/chiefs-jaguars-patrick-mahomes-chamarri-conner/
 

@@ -1,3 +1,7 @@
+**TAFC: Get ready for a La Liga game in Miami. Plus: World Cup ticket prices rise after a day**\
+`Today in TAFC: UEFA opens the door to La Liga and Serie A matches being played abroad. Plus: World Cup ticket price hikes on day one`\
+https://nytimes.com/athletic/6696133/2025/10/07/liga-barca-miami-approved/
+
 **President Trump and the Military**\
 `Today, we look at how Trump melds his politics with his role as head of the armed forces.`\
 https://nytimes.com/2025/10/07/world/oct-7-anniversary-trump-military-france.html
