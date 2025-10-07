@@ -1,3 +1,15 @@
+**NFL Week 6 best bets: Bears to cover at Commanders and a couple big scores**\
+`Austin Mock's NFL Projection Model gave us a 6-1 Week 5 and a strong start to the season. Can he keep it up?`\
+https://nytimes.com/athletic/6697492/2025/10/07/nfl-best-bets-week-6-bears-commanders/
+
+**Super Bowl odds: Can these four contenders challenge the top tier?**\
+`A quartet of contenders is rising in Super Bowl odds. Can they challenge the favorites?`\
+https://nytimes.com/athletic/6697424/2025/10/07/super-bowl-odds-week-6-bills-lions-colts-buccaneers/
+
+**NBA's Adam Silver says WNBA conflict has 'become too personal'**\
+`Silver said he will step in if need be to CBA negotiations but has not yet.`\
+https://nytimes.com/athletic/6697436/2025/10/07/wnba-nba-adam-silver-cathy-engelbert-cba/
+
 **LeBron announces liquor brand partnership after teasing 'The Decision'**\
 `James, who begins his 23rd season in the NBA later this month, poked fun at his 2010 free agency reveal in an advertisement.`\
 https://nytimes.com/athletic/6697148/2025/10/07/lebron-decision-hennessy-partnership-lakers/
