@@ -1,3 +1,15 @@
+**Priscilla Expected to Bring Heavy Rain to the Southwest United States**\
+`Forecasters expect moisture from the far-off hurricane to move inland through the West this week. Here’s where it could bring flooding.`\
+https://nytimes.com/2025/10/07/weather/hurricane-priscilla-us-rain-arizona-southwest-forecast.html
+
+**Browns trade veteran QB Joe Flacco to Bengals: Source**\
+`Flacco, 40, was benched by Cleveland ahead of its Week 5 game vs. Minnesota. `\
+https://nytimes.com/athletic/6697535/2025/10/07/bengals-joe-flacco-trade-browns-nfl-news/
+
+**Lions starting CB Terrion Arnold could return this month: Source**\
+`The news for Arnold was much better Tuesday after Dan Campbell pointed to a long-term absence for the starting cornerback.`\
+https://nytimes.com/athletic/6697423/2025/10/07/terrion-arnold-lions-shoulder-injury-update/
+
 **Tennessee Seventh Congressional District Election Results**\
 `Get live results and maps from the 2025 Tennessee special primary election.`\
 https://nytimes.com/interactive/2025/10/07/us/elections/results-tennessee-us-house-7-special.html
