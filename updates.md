@@ -1,3 +1,7 @@
+**Megyn Kelly Knows Which Way the Winds Are Blowing**\
+`Megyn Kelly knows which way the winds are blowing.`\
+https://nytimes.com/2025/10/06/opinion/republicans-conspiracies-charlie-kirk.html
+
 **Pentagon Relaxes Press Access Rules**\
 `Under new guidelines, journalists will not need approval from the Defense Department before publishing articles containing information not officially released.`\
 https://nytimes.com/2025/10/06/business/media/trump-pentagon-reporters-press.html
