@@ -1,3 +1,7 @@
+**Cardinals fine Gannon for sideline confrontation with Demercado: Source**\
+`The incident took place early in the fourth quarter of Arizona’s 22-21 loss to the Tennessee Titans.`\
+https://nytimes.com/athletic/6698492/2025/10/07/jonathan-gannon-fined-demercado-cardinals-nfl/
+
 **UNC CB coach suspended in relation to extra benefits allegations: Source**\
 `Hawkins is a first-year Tar Heels assistant and former recruiting analyst and secondary coach at Washington.`\
 https://nytimes.com/athletic/6698376/2025/10/07/unc-armond-hawkins-suspended/
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/6698389/2025/10/07/lebron-james-ad-tease-teammates/
 **How to watch Brewers at Cubs: Game 3 Time, TV, streaming**\
 `Find out how to watch the Milwaukee Brewers play the Chicago Cubs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6698484/2025/10/07/brewers-vs-cubs-stream-how-to-watch-oct-8/
-
-**Odafe Oweh trade grades: Chargers bolster pass rush; Ravens add Alohi Gilman, cap space**\
-`With Khalil Mack sidelined, the Chargers needed to find a complementary edge rusher for Tuli Tuipulotu. `\
-https://nytimes.com/athletic/6698263/2025/10/07/odafe-oweh-trade-grades-chargers-ravens/
 
