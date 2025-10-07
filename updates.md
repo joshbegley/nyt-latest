@@ -1,3 +1,7 @@
+**UNC CB coach suspended in relation to extra benefits allegations: Source**\
+`Hawkins is a first-year Tar Heels assistant and former recruiting analyst and secondary coach at Washington.`\
+https://nytimes.com/athletic/6698376/2025/10/07/unc-armond-hawkins-suspended/
+
 **How to watch 49ers vs. Buccaneers: Time, TV, streaming**\
 `Find out how to watch the San Francisco 49ers play the Tampa Bay Buccaneers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6698512/2025/10/07/49ers-vs-buccaneers-stream-how-to-watch-oct-12/
