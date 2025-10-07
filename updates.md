@@ -1,3 +1,7 @@
+**Pentagon Relaxes Press Access Rules**\
+`Under new guidelines, journalists will not need approval from the Defense Department before publishing articles containing information not officially released.`\
+https://nytimes.com/2025/10/06/business/media/trump-pentagon-reporters-press.html
+
 **Shorthand Pro**\
 `Drop into Corry Cropper’s New York Times Crossword debut.`\
 https://nytimes.com/2025/10/06/crosswords/daily-puzzle-2025-10-07.html

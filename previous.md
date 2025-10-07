@@ -1,3 +1,7 @@
+**Pentagon Relaxes Press Access Rules**\
+`Under new guidelines, journalists will not need approval from the Defense Department before publishing articles containing information not officially released.`\
+https://nytimes.com/2025/10/06/business/media/trump-pentagon-reporters-press.html
+
 **Shorthand Pro**\
 `Drop into Corry Cropper’s New York Times Crossword debut.`\
 https://nytimes.com/2025/10/06/crosswords/daily-puzzle-2025-10-07.html
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/10/06/world/middleeast/gaza-loss.html
 **How to watch Georgia vs. Auburn: Time, TV, streaming**\
 `Find out how to watch the Georgia Bulldogs play the Auburn Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6695442/2025/10/06/how-to-watch-no-10-georgia-vs-auburn-tv-channel-and-streaming-options-for-october-11/
-
-**How to watch Michigan vs. USC: Time, TV, streaming**\
-`Find out how to watch the Michigan Wolverines play the USC Trojans, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6695437/2025/10/06/how-to-watch-no-15-michigan-vs-usc-tv-channel-and-streaming-options-for-october-11/
 

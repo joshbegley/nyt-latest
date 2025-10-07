@@ -26,7 +26,7 @@ https://nytimes.com/athletic/6695563/2025/10/06/south-carolina-vs-lsu-stream-how
 `Find out how to watch the BYU Cougars play the Arizona Wildcats, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6695554/2025/10/06/byu-vs-arizona-stream-how-to-watch-oct-11/
 
-**The Right’s Civil War Over Charlie Kirk and Israel**\
+**Megyn Kelly Knows Which Way the Winds Are Blowing**\
 `Megyn Kelly knows which way the winds are blowing.`\
 https://nytimes.com/2025/10/06/opinion/republicans-conspiracies-charlie-kirk.html
 
