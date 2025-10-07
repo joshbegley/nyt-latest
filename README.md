@@ -1,3 +1,11 @@
+**Bill Belichick-North Carolina docuseries no longer being developed: Source**\
+`The idea of a Belichick/North Carolina media project dates back to at least January.`\
+https://nytimes.com/athletic/6698493/2025/10/07/bill-belichick-unc-docuseries-no-longer-developed/
+
+**Senate Confirms ‘Sharpiegate’ Meteorologist to Lead NOAA**\
+`Neil Jacobs was found to have violated NOAA’s code of ethics after an investigation into an incident that centered on an altered hurricane forecast map in 2019.`\
+https://nytimes.com/2025/10/07/us/politics/senate-neil-jacobs-noaa.html
+
 **Cardinals fine Gannon for sideline confrontation with Demercado: Source**\
 `The incident took place early in the fourth quarter of Arizona’s 22-21 loss to the Tennessee Titans.`\
 https://nytimes.com/athletic/6698492/2025/10/07/jonathan-gannon-fined-demercado-cardinals-nfl/
@@ -17,12 +25,4 @@ https://nytimes.com/athletic/6698510/2025/10/07/titans-vs-raiders-stream-how-to-
 **How to watch Bengals vs. Packers: Time, TV, streaming**\
 `Find out how to watch the Cincinnati Bengals play the Green Bay Packers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6698502/2025/10/07/bengals-vs-packers-stream-how-to-watch-oct-12/
-
-**LeBron James' tease had his teammates texting, guessing — and then laughing**\
-`James triggered a social media firestorm, all by teasing a partnership with the liquor brand Hennessy.`\
-https://nytimes.com/athletic/6698389/2025/10/07/lebron-james-ad-tease-teammates/
-
-**How to watch Brewers at Cubs: Game 3 Time, TV, streaming**\
-`Find out how to watch the Milwaukee Brewers play the Chicago Cubs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6698484/2025/10/07/brewers-vs-cubs-stream-how-to-watch-oct-8/
 
