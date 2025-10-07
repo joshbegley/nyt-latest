@@ -1,3 +1,7 @@
+**Odafe Oweh trade grades: Chargers bolster pass rush; Ravens add Alohi Gilman, cap space**\
+`With Khalil Mack sidelined, the Chargers needed to find a complementary edge rusher for Tuli Tuipulotu. `\
+https://nytimes.com/athletic/6698263/2025/10/07/odafe-oweh-trade-grades-chargers-ravens/
+
 **Health Care Politics Bolster Democrats in Shutdown Fight**\
 `Even President Trump has conceded that he and his party could face political pain from rising premiums, stiffening Democrats’ spines as they demand a subsidy extension.`\
 https://nytimes.com/2025/10/07/us/politics/trump-democrats-shutdown-obamacare.html
