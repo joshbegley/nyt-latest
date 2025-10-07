@@ -1,3 +1,27 @@
+**As France Faces Political Turmoil, Macron Is Backed Into a Corner**\
+`The record-fast collapse of yet another government confronts President Emmanuel Macron and his country with an intensifying crisis.`\
+https://nytimes.com/2025/10/07/world/europe/france-government-turmoil-sebastien-lecornu.html
+
+**Fantasy football waiver wire Week 6: Kimani Vidal, Rico Dowdle, streamers**\
+`Jake Ciely ranks a thin Week 6 waiver wire, and tries to make sense of the Chargers' backfield in Omarion Hampton's potential absence.`\
+https://nytimes.com/athletic/6695274/2025/10/07/fantasy-football-waiver-wire-week-6-kimani-vidal-rico-dowdle-streamers/
+
+**Connections: Sports Edition Coach: Hints for Oct. 7, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6695790/2025/10/07/connections-sports-edition-hints-for-oct-7-2025/
+
+**France’s Energy Giant Sees Opportunity in the Volatile Electricity Market**\
+`Hoping to help grid operators adapt to changes buffeting the power markets, TotalEnergies is assembling a portfolio of battery farms and natural-gas-fired power plants.`\
+https://nytimes.com/2025/10/07/business/totalenergies-investing-in-electricity.html
+
+**Corrections: Oct. 7, 2025**\
+`Corrections that appeared in print on Tuesday, Oct. 7, 2025.`\
+https://nytimes.com/2025/10/07/pageoneplus/corrections-oct-7-2025.html
+
+**One Hostage’s Path to Healing and Advocacy**\
+`Emily Damari spent 471 days in captivity in Gaza.`\
+https://nytimes.com/video/world/middleeast/100000010415988/emily-damari.html
+
 **Quote of the Day: Worried, Frazzled, Indifferent: Americans Process Shutdown**\
 `Quotation of the Day for Tuesday, October 7, 2025.`\
 https://nytimes.com/2025/10/06/pageoneplus/quote-of-the-day-worried-frazzled-indifferent-americans-process-shutdown.html
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6695248/2025/10/06/ali-riley-retirement-full-time/
 **Beluga Whales at Risk of Euthanasia**\
 `Marineland, a once popular marine park in Niagara Falls, Ontario, asked the Canadian government for emergency funding to care for its beluga whales, saying that otherwise, it would have to euthanize them.`\
 https://nytimes.com/video/world/canada/100000010443161/marineland-canada-beluga-whales.html
-
-**Pentagon Relaxes Press Access Rules**\
-`Under new guidelines, journalists will not need approval from the Defense Department before publishing articles containing information not officially released.`\
-https://nytimes.com/2025/10/06/business/media/trump-pentagon-reporters-press.html
-
-**Shorthand Pro**\
-`Drop into Corry Cropper’s New York Times Crossword debut.`\
-https://nytimes.com/2025/10/06/crosswords/daily-puzzle-2025-10-07.html
-
-**Dodgers-Phillies Game 2 takeaways: L.A. hangs on in nail-biting ninth, takes 2-0 series lead**\
-`Down 4-1 entering the ninth, the Phillies rallied and got the tying run to third base, but the Dodgers hung on for the win. `\
-https://nytimes.com/athletic/6694327/2025/10/06/dodgers-phillies-game-2-score-results-takeaways-playoffs-mlb/
-
-**Trump Considers Invoking Insurrection Act**\
-`On Monday, the president said that he was considering invoking the Insurrection Act to send National Guard troops to American cities. The act would grant him emergency powers to deploy troops and bypass court rulings.`\
-https://nytimes.com/video/us/politics/100000010442336/trump-threatens-to-use-insurrection-act-to-deploy-national-guard.html
-
-**Flight Delays Begin as Air Traffic Staffing Shortages Worsen**\
-`The delays came just hours after the transportation secretary warned that flying could be disrupted by the government shutdown.`\
-https://nytimes.com/2025/10/06/us/politics/flight-delays-faa-shutdown.html
-
-**How to watch South Carolina vs. LSU: Time, TV, streaming**\
-`Find out how to watch the South Carolina Gamecocks play the LSU Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6695563/2025/10/06/south-carolina-vs-lsu-stream-how-to-watch-oct-11/
 
