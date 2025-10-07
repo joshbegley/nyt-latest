@@ -1,3 +1,7 @@
+**Flight Delays Begin as Air Traffic Staffing Shortages Worsen**\
+`The delays came just hours after the transportation secretary warned that flying could be disrupted by the government shutdown.`\
+https://nytimes.com/2025/10/06/us/politics/flight-delays-faa-shutdown.html
+
 **How to watch South Carolina vs. LSU: Time, TV, streaming**\
 `Find out how to watch the South Carolina Gamecocks play the LSU Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6695563/2025/10/06/south-carolina-vs-lsu-stream-how-to-watch-oct-11/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6695426/2025/10/06/how-to-watch-iowa-vs-wisconsin-t
 **How to watch Kansas vs. Texas Tech: Time, TV, streaming**\
 `Find out how to watch the Kansas Jayhawks play the Texas Tech Red Raiders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6695424/2025/10/06/how-to-watch-kansas-vs-no-9-texas-tech-tv-channel-and-streaming-options-for-october-11/
-
-**How to watch Florida vs. Texas A&M: Time, TV, streaming**\
-`Find out how to watch the Florida Gators play the Texas A&M Aggies, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6695421/2025/10/06/how-to-watch-florida-vs-no-5-texas-am-tv-channel-and-streaming-options-for-october-11/
 
