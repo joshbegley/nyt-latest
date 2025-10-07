@@ -1,3 +1,15 @@
+**Is This the End of an Era for Soul Food in Washington?**\
+`As several of the city’s classic Black-owned restaurants close, some historians worry about the passing of a beloved tradition.`\
+https://nytimes.com/2025/10/07/dining/soul-food-washington.html
+
+**Myles Turner's debut, starting lineup questions and other Bucks preseason takeaways**\
+`Three main takeaways stood out after the Milwaukee Bucks played their first NBA preseason game Monday night against the Miami Heat.`\
+https://nytimes.com/athletic/6694000/2025/10/07/myles-turner-bucks-nba-preseason-heat/
+
+**Mayor-Elect in Critical Condition After Stabbing in Western Germany**\
+`Iris Stalzer, the incoming mayor of Herdecke, was found stabbed in her home, officials said. It was initially unclear whether it had been a targeted attack.`\
+https://nytimes.com/2025/10/07/world/europe/germany-herdecke-stalzer-attack.html
+
 **A Key Precedent Overturned Limits on Professionals’ Speech**\
 `The ruling, usually referred to as NIFLA, arose from a First Amendment challenge to California law regulating “crisis pregnancy centers.”`\
 https://nytimes.com/2025/10/07/us/politics/conversion-therapy-abortion-supreme-court-speech.html
