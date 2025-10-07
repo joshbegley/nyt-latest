@@ -1,3 +1,11 @@
+**How to watch Blue Jays at Yankees: Game 3 Time, TV, streaming**\
+`Find out how to watch the Toronto Blue Jays play the New York Yankees, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6696004/2025/10/07/blue-jays-vs-yankees-stream-how-to-watch-oct-7/
+
+**Word of the Day: iconoclast**\
+`This word has appeared in 16 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/10/07/learning/word-of-the-day-iconoclast.html
+
 **Lessons From a Long War**\
 `The only viable path to a Palestinian state is an end to the fantasy of Israel’s destruction.`\
 https://nytimes.com/2025/10/07/opinion/lessons-from-a-long-war.html
