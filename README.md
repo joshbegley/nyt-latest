@@ -1,3 +1,11 @@
+**Priscilla Expected to Bring Heavy Rain to the Southwest United States**\
+`Forecasters expect moisture from the far-off hurricane to move inland through the West this week. Here’s where it could bring flooding.`\
+https://nytimes.com/2025/10/07/weather/hurricane-priscilla-us-rain-arizona-southwest-forecast.html
+
+**Browns trade veteran QB Joe Flacco to Bengals: Source**\
+`Flacco, 40, was benched by Cleveland ahead of its Week 5 game vs. Minnesota. `\
+https://nytimes.com/athletic/6697535/2025/10/07/bengals-joe-flacco-trade-browns-nfl-news/
+
 **Lions starting CB Terrion Arnold could return this month: Source**\
 `The news for Arnold was much better Tuesday after Dan Campbell pointed to a long-term absence for the starting cornerback.`\
 https://nytimes.com/athletic/6697423/2025/10/07/terrion-arnold-lions-shoulder-injury-update/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/07/us/louisiana-courthouse-shooting-sheriff-deputy.h
 **Prime Video Scrubs Guns From James Bond Artwork, and 007 Fans Are Shaken**\
 `The world’s most famous spy does, after all, have a license to kill.`\
 https://nytimes.com/2025/10/07/arts/amazon-james-bond-artwork.html
-
-**Critical fantasy football insights for Week 6: The Nickname Effect for Indiana Jones, Bill**\
-`Brandon Funston and Jess Bryant scour season-long and weekly utilization to help you with tough start/sit decisions. `\
-https://nytimes.com/athletic/6693891/2025/10/07/fantasy-football-usage-week-6/
-
-**Death of 1-Year-Old Boy in Brooklyn Is Ruled a Homicide**\
-`Anthony Casey was found unresponsive at his home in Brownsville on Friday. New York City’s chief medical examiner determined that he had died because of blows to his torso.`\
-https://nytimes.com/2025/10/07/nyregion/brooklyn-boy-homicide.html
 
