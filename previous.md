@@ -1,3 +1,7 @@
+**Shorthand Pro**\
+`Drop into Corry Cropper’s New York Times Crossword debut.`\
+https://nytimes.com/2025/10/06/crosswords/daily-puzzle-2025-10-07.html
+
 **Dodgers-Phillies Game 2 takeaways: L.A. hangs on in nail-biting ninth, takes 2-0 series lead**\
 `Down 4-1 entering the ninth, the Phillies rallied and got the tying run to third base, but the Dodgers hung on for the win. `\
 https://nytimes.com/athletic/6694327/2025/10/06/dodgers-phillies-game-2-score-results-takeaways-playoffs-mlb/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6695442/2025/10/06/how-to-watch-no-10-georgia-vs-au
 **How to watch Michigan vs. USC: Time, TV, streaming**\
 `Find out how to watch the Michigan Wolverines play the USC Trojans, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6695437/2025/10/06/how-to-watch-no-15-michigan-vs-usc-tv-channel-and-streaming-options-for-october-11/
-
-**How to watch Purdue vs. Minnesota: Time, TV, streaming**\
-`Find out how to watch the Purdue Boilermakers play the Minnesota Golden Gophers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6695429/2025/10/06/how-to-watch-purdue-vs-minnesota-tv-channel-and-streaming-options-for-october-11/
 

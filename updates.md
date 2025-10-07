@@ -1,3 +1,7 @@
+**Shorthand Pro**\
+`Drop into Corry Cropper’s New York Times Crossword debut.`\
+https://nytimes.com/2025/10/06/crosswords/daily-puzzle-2025-10-07.html
+
 **Trump Considers Invoking Insurrection Act**\
 `On Monday, the president said that he was considering invoking the Insurrection Act to send National Guard troops to American cities. The act would grant him emergency powers to deploy troops and bypass court rulings.`\
 https://nytimes.com/video/us/politics/100000010442336/trump-threatens-to-use-insurrection-act-to-deploy-national-guard.html
