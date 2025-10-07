@@ -1,3 +1,7 @@
+**Leo to Visit Lebanon and Turkey in First Trip Abroad as Pope**\
+`The choice signals that Pope Leo XIV aims to press for peace in the Middle East and show support for Christians in the region.`\
+https://nytimes.com/2025/10/07/world/europe/pope-leo-lebanon-turkey.html
+
 **The Pulse: The messiest game-winning TD**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6694277/2025/10/07/nlds-dodgers-brewers-jaguars-chiefs-the-pulse/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6695632/2025/10/07/cowboys-javonte-williams-nfc-top
 **Passion project: How Bears' Tyrique Stevenson has worked to improve after Hail Mary debacle**\
 `Stevenson and the Bears are headed back to Washington, where they were embarrassed last October. He's learned a lot since then.`\
 https://nytimes.com/athletic/6693520/2025/10/07/bears-tyrique-stevenson-improvement-hail-mary/
-
-**Jayden Daniels is still improving Just look at these 6 plays vs. Chargers**\
-`Washington's second-year star returned in Week 5, and a handful of plays showed the breadth of his ability and his growth as a quarterback.`\
-https://nytimes.com/athletic/6694978/2025/10/07/jayden-daniels-return-highlights-chargers/
 
