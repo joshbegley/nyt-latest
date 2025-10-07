@@ -1,3 +1,7 @@
+**Man City's Stones considered retiring last season**\
+`The 31-year-old has made 283 City appearances but only played 11 times in the top flight last season.`\
+https://nytimes.com/athletic/6696156/2025/10/07/john-stones-manchester-city-retirement/
+
 **Not Your Grandmother’s Chanel**\
 `Matthieu Blazy made his debut for the brand, and it’s a whole new world.`\
 https://nytimes.com/2025/10/07/style/chanel-matthieu-blazy.html

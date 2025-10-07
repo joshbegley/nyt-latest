@@ -1,3 +1,7 @@
+**Man City's Stones considered retiring last season**\
+`The 31-year-old has made 283 City appearances but only played 11 times in the top flight last season.`\
+https://nytimes.com/athletic/6696156/2025/10/07/john-stones-manchester-city-retirement/
+
 **Not Your Grandmother’s Chanel**\
 `Matthieu Blazy made his debut for the brand, and it’s a whole new world.`\
 https://nytimes.com/2025/10/07/style/chanel-matthieu-blazy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/07/science/pets-health-pollution.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/10/07/crosswords/spelling-bee-forum.html
-
-**Revealed: Man Utd's £50m training base lacks the space for young talent**\
-`United are planning a new bespoke academy building but until then conditions for some younger players are in a state of flux`\
-https://nytimes.com/athletic/6693884/2025/10/07/manchester-united-academy-players-training-ground/
 
