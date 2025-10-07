@@ -1,3 +1,11 @@
+**Inter Miami's Jordi Alba announces retirement, team close to signing Sergio Reguilon**\
+`Alba had signed a contract extension until 2027 in May, while Reguilon is a free agent following his summer exit from Tottenham Hotspur.`\
+https://nytimes.com/athletic/6687859/2025/10/07/jordi-alba-inter-miami-sergio-reguilon/
+
+**Seeking Covid Shots for Their Children, Some Parents Hit a Wall**\
+`Children under 12 need different versions of Covid vaccines, but many pharmacies and pediatricians’ offices aren’t stocking them.`\
+https://nytimes.com/2025/10/07/well/covid-vaccine-children-parents-issues-rfk-jr.html
+
 **How to watch Broncos vs. Jets: Time, TV, streaming**\
 `Find out how to watch the Denver Broncos play the New York Jets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6697097/2025/10/07/broncos-vs-jets-stream-how-to-watch-oct-12/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/weather/jerry-map-path-tracker.html
 **The Lawyer Who Secured Sweeping Presidential Power Now Helps Trump Deploy It**\
 `As the administration’s top advocate before the justices, D. John Sauer has notched several recent Supreme Court victories.`\
 https://nytimes.com/2025/10/07/us/politics/trump-lawyer-supreme-court.html
-
-**Cade Cunningham spearheads Pistons' comeback to beat Grizzlies**\
-`Cunningham looked to be in midseason form as Detroit got several players involved in a preseason victory.`\
-https://nytimes.com/athletic/6695644/2025/10/07/detroit-pistons-cade-cunningham-grizzlies-win/
-
-**Why this Penguins season is their most refreshing in years**\
-`The Penguins are surrounded by hope, even if it's still in the distance.`\
-https://nytimes.com/athletic/6696717/2025/10/07/penguins-2025-26-nhl-schedule-projection/
 

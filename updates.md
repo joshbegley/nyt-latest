@@ -1,3 +1,11 @@
+**Inter Miami's Jordi Alba announces retirement, team close to signing Sergio Reguilon**\
+`Alba had signed a contract extension until 2027 in May, while Reguilon is a free agent following his summer exit from Tottenham Hotspur.`\
+https://nytimes.com/athletic/6687859/2025/10/07/jordi-alba-inter-miami-sergio-reguilon/
+
+**Seeking Covid Shots for Their Children, Some Parents Hit a Wall**\
+`Children under 12 need different versions of Covid vaccines, but many pharmacies and pediatricians’ offices aren’t stocking them.`\
+https://nytimes.com/2025/10/07/well/covid-vaccine-children-parents-issues-rfk-jr.html
+
 **How to watch Broncos vs. Jets: Time, TV, streaming**\
 `Find out how to watch the Denver Broncos play the New York Jets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6697097/2025/10/07/broncos-vs-jets-stream-how-to-watch-oct-12/
