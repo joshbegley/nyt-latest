@@ -1,3 +1,7 @@
+**How to watch Brewers at Cubs: Game 3 Time, TV, streaming**\
+`Find out how to watch the Milwaukee Brewers play the Chicago Cubs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6698484/2025/10/07/brewers-vs-cubs-stream-how-to-watch-oct-8/
+
 **Odafe Oweh trade grades: Chargers bolster pass rush; Ravens add Alohi Gilman, cap space**\
 `With Khalil Mack sidelined, the Chargers needed to find a complementary edge rusher for Tuli Tuipulotu. `\
 https://nytimes.com/athletic/6698263/2025/10/07/odafe-oweh-trade-grades-chargers-ravens/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6698263/2025/10/07/odafe-oweh-trade-grades-chargers
 https://nytimes.com/2025/10/07/us/politics/trump-democrats-shutdown-obamacare.html
 
 **As Browns' QB carousel continues, how close is Shedeur Sanders to getting his chance?**\
-`With Joe Flacco traded one week after being benched, who's next in line for Cleveland if Dillon Gabriel isn't playing up to par?  `\
+`With Flacco traded one week after being benched, who's next in line for Cleveland if Dillon Gabriel isn't playing up to par?  `\
 https://nytimes.com/athletic/6698151/2025/10/07/browns-quarterbacks-shedeur-sanders-joe-flacco/
 
 **Chinese Hackers Said to Target U.S. Law Firms**\
@@ -21,8 +25,4 @@ https://nytimes.com/2025/10/07/us/climber-dies-devils-lake-state-park.html
 **NCAA approves 15-day CFB transfer portal window starting Jan. 2**\
 `The change comes less than a month after the NCAA eliminated the spring transfer portal window for football players.`\
 https://nytimes.com/athletic/6698257/2025/10/07/ncaa-college-football-transfer-portal-window/
-
-**Guardians postmortem takeaways: Carl Willis, José Ramírez, Emmanuel Clase, Luis Ortiz and more**\
-`The Guardians intend for the entire coaching staff to return in 2026 — but there could be some caveats.`\
-https://nytimes.com/athletic/6696888/2025/10/07/guardians-postmortem-takeaways-carl-willis-jose-ramirez-emmanuel-clase-luis-ortiz/
 
