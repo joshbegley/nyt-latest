@@ -1,3 +1,7 @@
+**After summer of struggles, Phillies' Jesús Luzardo shines in playoffs — but it wasn't enough**\
+`The Phillies’ star, if there was one in a crushing Game 2 loss, was their starter, who persevered through rough stretches this season.`\
+https://nytimes.com/athletic/6695878/2025/10/07/jesus-luzardo-phillies-nlds-dodgers-2025-season/
+
 **How dominant is Ohio State's defense? Final thoughts on Minnesota and what's next**\
 `Ohio State leaned on defense while the offense took the training wheels off. Now it's showing what happens when it all comes together.`\
 https://nytimes.com/athletic/6695016/2025/10/07/ohio-state-defense-stats-minnesota-illinois/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6693845/2025/10/07/blues-bold-predictions-central-d
 **Every NHL team's defense ranked: Avalanche and Panthers top the 2025-26 list**\
 `Welcome to the third iteration of The Athletic’s annual defense ranking tiers. There’s a surprising shortage of truly high-end blue lines.`\
 https://nytimes.com/athletic/6692187/2025/10/07/nhl-defense-rankings-2025-26/
-
-**The 2025 Red Sox were successful, frustrating and undeniably compelling**\
-`Boston's season was filled with so many interesting storylines, you could have turned it into a docuseries.`\
-https://nytimes.com/athletic/6695479/2025/10/07/red-sox-2025-successful-season-column/
 

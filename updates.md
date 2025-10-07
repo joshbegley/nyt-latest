@@ -1,3 +1,7 @@
+**How dominant is Ohio State's defense? Final thoughts on Minnesota and what's next**\
+`Ohio State leaned on defense while the offense took the training wheels off. Now it's showing what happens when it all comes together.`\
+https://nytimes.com/athletic/6695016/2025/10/07/ohio-state-defense-stats-minnesota-illinois/
+
 **Giants Mailbagg: What does Bob Melvin's dismissal say about Buster Posey's offseason goals?**\
 `What will the 2026 starting lineup look like? How likely are the Giants to re-sign Justin Verlander? We answer those questions and more.`\
 https://nytimes.com/athletic/6695157/2025/10/07/sf-giants-buster-posey-goals-mailbagg/
