@@ -1,3 +1,7 @@
+**Not Your Grandmother’s Chanel**\
+`Matthieu Blazy made his debut for the brand, and it’s a whole new world.`\
+https://nytimes.com/2025/10/07/style/chanel-matthieu-blazy.html
+
 **Israel Marks a Somber Two-Year Milestone in Subdued Fashion**\
 `The second anniversary of the Oct. 7 attacks comes with peace talks underway, but with hostages still in Gaza, more than 67,000 Palestinians dead and Israel more isolated than ever before.`\
 https://nytimes.com/2025/10/07/world/middleeast/october-7-anniversary-israel.html
