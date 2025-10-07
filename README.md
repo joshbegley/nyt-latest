@@ -1,3 +1,23 @@
+**Where to Eat in N.Y.C.: Patties**\
+`This week, New York Times Food contributor Luke Fortney recommends three Caribbean patty spots around N.Y.C.`\
+https://nytimes.com/video/dining/100000010441385/where-to-eat-in-nyc-patties.html
+
+**Mayor-Elect in Critical Condition After Stabbing in Western Germany**\
+`Iris Stalzer, the incoming mayor of Herdecke, was found stabbed in her home on Tuesday, officials said. It was initially unclear whether it had been a targeted attack.`\
+https://nytimes.com/2025/10/07/world/europe/germany-herdecke-stalzer-attack.html
+
+**Duke names Celtics star Jayson Tatum as inaugural chief basketball officer**\
+`In the newly-created role, Celtics star Jayson Tatum will volunteer his time as a special advisor to coach Jon Scheyer and the Duke program.`\
+https://nytimes.com/athletic/6696857/2025/10/07/duke-celtics-jayson-tatum-chief-basketball-officer/
+
+**The Bounce: Which 2022 draftees should get extensions? Plus, previewing the Mavs and Heat**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6696822/2025/10/07/nba-extensions-mavericks-heat-the-bounce/
+
+**Here Are the Finalists for the 2025 National Book Awards**\
+`Novels by Karen Russell and Bryan Washington are among those vying for the award in fiction, while books about Gaza, foster care and women in Russia are up for the nonfiction prize.`\
+https://nytimes.com/2025/10/07/books/2025-national-book-award-finalists.html
+
 **Israel Mourns Oct. 7 Victims as Fighting in Gaza Continues**\
 `Quiet commemorations took place across Israel on the second anniversary of the Hamas-led Oct. 7 attacks. In Gaza, the fighting continued, and Israeli and Hamas delegations were set to meet in Egypt for a second day of indirect negotiations.`\
 https://nytimes.com/video/world/middleeast/100000010443398/israel-mourns-oct-7-victims-as-fighting-in-gaza-continues.html
@@ -17,24 +37,4 @@ https://nytimes.com/live/2025/10/07/us/supreme-court-conversion-therapy/the-supr
 **Taking Too Much Tylenol Has Proven Risks. Trump Didn’t Talk About Those.**\
 `Acetaminophen’s link to autism is unproven. But hundreds of Americans accidentally overdose on the drug each year, suffering liver damage that can require a transplant or even be fatal.`\
 https://nytimes.com/2025/10/07/health/tylenol-acetominophen-liver-damage-kenvue.html
-
-**Global Trade Growth to Slow Sharply Next Year, W.T.O. Says**\
-`The World Trade Organization said trade growth had proved more resilient in 2025 than expected, but would slow next year as result of President Trump’s tariffs.`\
-https://nytimes.com/2025/10/07/business/economy/global-trade-growth-wto.html
-
-**The federal government may be shut down, but the Supreme Court is open.**\
-`By Ann E. Marimow`\
-https://nytimes.com/live/2025/10/07/us/supreme-court-conversion-therapy/the-federal-government-may-be-shut-down-but-the-supreme-court-is-open
-
-**Hijab bans in sports 'deny a space for women', say human rights advocates**\
-`France's ban of the Muslim head covering has been criticised, despite the country's president, Emmanuel Macron, supporting it.`\
-https://nytimes.com/athletic/6696650/2025/10/07/hijab-ban-sports-france-amnesty/
-
-**Who is the therapist behind the lawsuit challenging Colorado’s conversion therapy law?**\
-`By Ann E. Marimow`\
-https://nytimes.com/live/2025/10/07/us/supreme-court-conversion-therapy/who-is-the-therapist-behind-the-lawsuit-challenging-colorados-conversion-therapy-law
-
-**What Is Conversion Therapy? A History of the Practice.**\
-`The practice surged in the 1980s and 1990s, before medical groups began warning it was harmful.`\
-https://nytimes.com/2025/10/07/us/politics/conversion-therapy-supreme-court.html
 

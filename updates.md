@@ -1,3 +1,7 @@
+**Israel Mourns Oct. 7 Victims as Fighting in Gaza Continues**\
+`Quiet commemorations took place across Israel on the second anniversary of the Hamas-led Oct. 7 attacks. In Gaza, the fighting continued, and Israeli and Hamas delegations were set to meet in Egypt for a second day of indirect negotiations.`\
+https://nytimes.com/video/world/middleeast/100000010443398/israel-mourns-oct-7-victims-as-fighting-in-gaza-continues.html
+
 **How Giants leadership helped fumble away Saints game long before it started**\
 `The Giants continue to be plagued by a lack of attention to detail under the watch of coach Brian Daboll and GM Joe Schoen.`\
 https://nytimes.com/athletic/6695927/2025/10/07/ny-giants-brian-daboll-joe-schoen-fumble-saints/
