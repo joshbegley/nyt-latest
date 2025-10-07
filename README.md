@@ -1,3 +1,15 @@
+**Map: 6.6-Magnitude Earthquake Strikes Papua New Guinea**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/10/07/world/papua-new-guinea-quake-tracker.html
+
+**Here’s the latest.**\
+`By Shawn Hubler, Eric Schmitt and Julie Bosman`\
+https://nytimes.com/live/2025/10/07/us/trump-national-guard-illinois-texas/heres-the-latest
+
+**Live Updates: National Guard Troops Are Set to Arrive in Illinois**\
+`The mobilization includes some 200 Guard troops from Texas. President Trump said he would consider invoking emergency powers to “get around” legal obstacles.`\
+https://nytimes.com/live/2025/10/07/us/trump-national-guard-illinois-texas
+
 **Malaysia to appeal FIFA sanction over alleged fake documents for seven players**\
 `FAM claimed that players had grandparents born in Malaysia, FIFA found that they were born in Argentina, Brazil, Spain and the Netherlands.`\
 https://nytimes.com/athletic/6696558/2025/10/07/malaysia-fifa-ban-suspension-news/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6696352/2025/10/07/ashleigh-plumptre-al-ittihad-lei
 **How dominant is Ohio State's defense? Final thoughts on Minnesota and what's next**\
 `Ohio State leaned on defense while the offense took the training wheels off. Now it's showing what happens when it all comes together.`\
 https://nytimes.com/athletic/6695016/2025/10/07/ohio-state-defense-stats-minnesota-illinois/
-
-**Giants Mailbagg: What does Bob Melvin's dismissal say about Buster Posey's offseason goals?**\
-`What will the 2026 starting lineup look like? How likely are the Giants to re-sign Justin Verlander? We answer those questions and more.`\
-https://nytimes.com/athletic/6695157/2025/10/07/sf-giants-buster-posey-goals-mailbagg/
-
-**The teetering Phillies confront a harsh truth: They have not been good enough in October. Again**\
-`The Phillies know there will be widespread changes if they cannot do the improbable and win the next three against the defending champions. `\
-https://nytimes.com/athletic/6695843/2025/10/07/phillies-game-2-nlds-loss-dodgers-mllb-playoffs/
-
-**After summer of struggles, Phillies' Jesús Luzardo shines in playoffs — but it wasn't enough**\
-`The Phillies’ star, if there was one in a crushing Game 2 loss, was their starter, who persevered through rough stretches this season.`\
-https://nytimes.com/athletic/6695878/2025/10/07/jesus-luzardo-phillies-nlds-dodgers-2025-season/
 
