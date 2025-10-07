@@ -1,3 +1,7 @@
+**Eight Eagles Thoughts: Saquon Barkley's touches, offense's 3-and-out rate, and more**\
+`Plus, why the Eagles are talking about getting to the line quicker.`\
+https://nytimes.com/athletic/6696614/2025/10/07/philadelphia-eagles-saquon-barkleys-touches-offense/
+
 **This Erotic Epic Is Marina Abramovic at Her Most ‘Insane’**\
 `The Serbian artist’s latest piece is a four-hour exploration of folklore and sexuality, featuring singers, dancers, musicians and film.`\
 https://nytimes.com/2025/10/07/theater/marina-abramovic-balkan-erotic-epic.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/07/us/politics/conversion-therapy-abortion-supreme-c
 **Sean Payton's first Broncos weeklong trip changed a season. Could this one, too?**\
 `The Broncos sandwiched two wins around a weeklong trip to West Virginia last season and have a chance to replicate that result in London.`\
 https://nytimes.com/athletic/6696458/2025/10/07/sean-payton-broncos-london-jets/
-
-**N.Y. Stock Exchange Parent to Buy Stake in Polymarket, as Prediction Markets Go Mainstream**\
-`The $2 billion deal values the crypto-powered betting site, where users can wager on politics, sports and more, at about $8 billion.`\
-https://nytimes.com/2025/10/07/business/dealbook/polymarket-nyse-prediction-markets.html
 
