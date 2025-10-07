@@ -1,3 +1,7 @@
+**Feared Sudanese Warlord Is Convicted of War Crimes**\
+`A former Janjaweed militia commander was the first person found guilty by the International Criminal Court for atrocities in Darfur two decades ago.`\
+https://nytimes.com/2025/10/07/world/europe/sudan-darfur-icc-genocide-guilty.html
+
 **Johnson & Johnson Ordered to Pay $966 Million in Latest Talc Lawsuit**\
 `The case involves a California woman who died from mesothelioma, a rare cancer. Her family claimed Johnson and Johnson’s talc powder products were to blame.`\
 https://nytimes.com/2025/10/07/business/johnson-johnson-talc-lawsuit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6697516/2025/10/07/john-mateer-oklahoma-injury-stat
 **The Sound of ‘Ophelia’**\
 `Inspired by Taylor Swift’s “Showgirl” single, listen to a playlist of songs that use the tragic “Hamlet” heroine as inspiration.`\
 https://nytimes.com/2025/10/07/arts/music/amplifier-newsletter-ophelia-songs.html
-
-**New York Jets say deleted texts show conspiracy to defame team president**\
-`The Jets are accusing a former employee of scheming to fabricate sexual misconduct allegations and defaming the team with her husband.`\
-https://nytimes.com/athletic/6696975/2025/10/07/ny-jets-sexual-harassment-team-president-text-messages/
 

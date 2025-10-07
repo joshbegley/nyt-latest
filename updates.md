@@ -1,3 +1,7 @@
+**Feared Sudanese Warlord Is Convicted of War Crimes**\
+`A former Janjaweed militia commander was the first person found guilty by the International Criminal Court for atrocities in Darfur two decades ago.`\
+https://nytimes.com/2025/10/07/world/europe/sudan-darfur-icc-genocide-guilty.html
+
 **Johnson & Johnson Ordered to Pay $966 Million in Latest Talc Lawsuit**\
 `The case involves a California woman who died from mesothelioma, a rare cancer. Her family claimed Johnson and Johnson’s talc powder products were to blame.`\
 https://nytimes.com/2025/10/07/business/johnson-johnson-talc-lawsuit.html

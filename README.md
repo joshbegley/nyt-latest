@@ -1,3 +1,15 @@
+**What’s Behind the Dispute Over Extending Health Care Subsidies**\
+`The government shutdown fight has spotlighted a debate between Republicans and Democrats about whether and how much the government should subsidize health care.`\
+https://nytimes.com/2025/10/07/us/politics/shutdown-trump-health-care-subsidies.html
+
+**Does the Knicks trading for Giannis Antetokounmpo even make sense?**\
+`Should the Bucks trade Antetokounmpo to New York? Should New York want him?`\
+https://nytimes.com/athletic/6697232/2025/10/07/knicks-giannis-antetokounmpo-trade-bucks-nba-news/
+
+**Is ‘South Park’ Trump-Proof?**\
+`It’s a prickly time for comedy, but one show is going harder than ever. The comedian Wyatt Cenac joins Wesley Morris to talk about the latest season of “South Park.”`\
+https://nytimes.com/video/podcasts/100000010444238/is-south-park-trump-proof.html
+
 **Feared Sudanese Warlord Is Convicted of War Crimes**\
 `A former Janjaweed militia commander was the first person found guilty by the International Criminal Court for atrocities in Darfur two decades ago.`\
 https://nytimes.com/2025/10/07/world/europe/sudan-darfur-icc-genocide-guilty.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6697371/2025/10/07/donald-trump-bad-bunny-super-bow
 **On eve of the Maple Leafs season, one mystery remains: What's next for Easton Cowan?**\
 `After an excellent training camp, it looked as if Cowan had rightfully won an NHL spot.`\
 https://nytimes.com/athletic/6697430/2025/10/07/maple-leafs-lineup-easton-cowan/
-
-**Deion Sanders to have 'procedure' on blood clots, expects to remain with team**\
-`Sanders, who coached part of Colorado's loss to TCU with one shoe on his left foot, said he has a doctor's appointment scheduled.`\
-https://nytimes.com/athletic/6690646/2025/10/07/deion-sanders-blood-clots-comments-colorado/
-
-**Oklahoma QB John Mateer progressing, not fully practicing ahead of Texas**\
-`Reports say John Mateer is trying to return from hand surgery vs. Texas, but Oklahoma coach Brent Venables said his status is still unclear.`\
-https://nytimes.com/athletic/6697516/2025/10/07/john-mateer-oklahoma-injury-status-texas/
-
-**The Sound of ‘Ophelia’**\
-`Inspired by Taylor Swift’s “Showgirl” single, listen to a playlist of songs that use the tragic “Hamlet” heroine as inspiration.`\
-https://nytimes.com/2025/10/07/arts/music/amplifier-newsletter-ophelia-songs.html
 
