@@ -1,3 +1,11 @@
+**Saudi Arabia life 'like a peace bubble', says former WSL player Plumptre**\
+`"It does not mean I condone certain things, even if the move means I am associated with certain things," the Nigeria international said.`\
+https://nytimes.com/athletic/6696352/2025/10/07/ashleigh-plumptre-al-ittihad-leicester/
+
+**The teetering Phillies confront a harsh truth: They have not been good enough in October. Again**\
+`The Phillies know there will be widespread changes if they cannot do the improbable and win the next three against the defending champions. `\
+https://nytimes.com/athletic/6695843/2025/10/07/phillies-game-2-nlds-loss-dodgers-mllb-playoffs/
+
 **After summer of struggles, Phillies' Jesús Luzardo shines in playoffs — but it wasn't enough**\
 `The Phillies’ star, if there was one in a crushing Game 2 loss, was their starter, who persevered through rough stretches this season.`\
 https://nytimes.com/athletic/6695878/2025/10/07/jesus-luzardo-phillies-nlds-dodgers-2025-season/
