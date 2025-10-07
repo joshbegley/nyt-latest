@@ -1,3 +1,15 @@
+**Stock Exchange Parent to Buy Stake in Polymarket, as Prediction Markets Go Mainstream**\
+`The $2 billion deal values the crypto-powered betting site, where users can wager on politics, sports and more, at about $8 billion.`\
+https://nytimes.com/2025/10/07/business/dealbook/polymarket-nyse-prediction-markets.html
+
+**Novak Djokovic overcomes left leg injury to win Shanghai Masters match against Jaume Munar**\
+`Djokovic had pulled up after breaking Munar's serve in their round-of-16 match.`\
+https://nytimes.com/athletic/6696540/2025/10/07/novak-djokovic-shanghai-masters-leg-injury-jaume-munar/
+
+**Where to Eat in N.Y.C.: Patties**\
+`This week, New York Times Food contributor Luke Fortney recommends three Caribbean patty spots around N.Y.C.`\
+https://nytimes.com/video/embedded/dining/100000010441385/where-to-eat-in-nyc-patties.html
+
 **What People in Gaza Told Us About Two Years of War**\
 `In the two years since Hamas militants attacked Israel, we’ve interviewed more than 700 people in Gaza. Their stories stayed with us. So we tried to find them again.`\
 https://nytimes.com/video/world/middleeast/100000010430534/what-people-in-gaza-told-us-about-two-years-of-war.html
