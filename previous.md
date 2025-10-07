@@ -1,3 +1,11 @@
+**Hunter Biden Pursued a Deal to Sell Land Around the U.S. Embassy in Romania**\
+`The proposed transaction, stemming from relationships that started while his father was vice president and involving a Chinese partner, underscores the extent of Mr. Biden’s questionable business dealings abroad.`\
+https://nytimes.com/2025/10/07/us/politics/hunter-biden-embassy-romania.html
+
+**The hope left for Ferrari. Plus, the first lap aces of Formula 1**\
+`Welcome to Prime Tire, The Athletic's Formula 1 newsletter`\
+https://nytimes.com/athletic/6697825/2025/10/07/f1-singapore-gp-ferrari-prime-tire/
+
 **Oct. 7 Anniversary Arrives During Heated Final Stretch of Mayor’s Race**\
 `Both Zohran Mamdani and Andrew Cuomo planned to attend events marking the anniversary of the Hamas attacks and honoring the victims.`\
 https://nytimes.com/2025/10/07/nyregion/mamdani-israel-gaza-nyc-mayor.html
@@ -25,16 +33,4 @@ https://nytimes.com/athletic/6697837/2025/10/07/browns-vs-steelers-stream-how-to
 **How to watch Cowboys vs. Panthers: Time, TV, streaming**\
 `Find out how to watch the Dallas Cowboys play the Carolina Panthers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6697835/2025/10/07/cowboys-vs-panthers-stream-how-to-watch-oct-12/
-
-**How to watch Chargers vs. Dolphins: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Chargers play the Miami Dolphins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6697833/2025/10/07/chargers-vs-dolphins-stream-how-to-watch-oct-12/
-
-**How to watch Seahawks vs. Jaguars: Time, TV, streaming**\
-`Find out how to watch the Seattle Seahawks play the Jacksonville Jaguars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6697830/2025/10/07/seahawks-vs-jaguars-stream-how-to-watch-oct-12/
-
-**Joe Flacco trade grades: Bengals get desperate; Browns find free money**\
-`The Jake Browning situation was no longer tenable for Cincinnati, but how much of an upgrade is Flacco? `\
-https://nytimes.com/athletic/6697615/2025/10/07/joe-flacco-trade-grade-bengals-browns/
 

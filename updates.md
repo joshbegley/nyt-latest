@@ -1,3 +1,11 @@
+**Hunter Biden Pursued a Deal to Sell Land Around the U.S. Embassy in Romania**\
+`The proposed transaction, stemming from relationships that started while his father was vice president and involving a Chinese partner, underscores the extent of Mr. Biden’s questionable business dealings abroad.`\
+https://nytimes.com/2025/10/07/us/politics/hunter-biden-embassy-romania.html
+
+**The hope left for Ferrari. Plus, the first lap aces of Formula 1**\
+`Welcome to Prime Tire, The Athletic's Formula 1 newsletter`\
+https://nytimes.com/athletic/6697825/2025/10/07/f1-singapore-gp-ferrari-prime-tire/
+
 **Oct. 7 Anniversary Arrives During Heated Final Stretch of Mayor’s Race**\
 `Both Zohran Mamdani and Andrew Cuomo planned to attend events marking the anniversary of the Hamas attacks and honoring the victims.`\
 https://nytimes.com/2025/10/07/nyregion/mamdani-israel-gaza-nyc-mayor.html
