@@ -1,3 +1,7 @@
+**Big-market Cubs have no answers against dominant, small-market Brewers**\
+`Chicago led both games of this series after a home run in the top of the first inning and was outscored 16-4 after that.`\
+https://nytimes.com/athletic/6695942/2025/10/07/cubs-brewers-nlds-game-2-milwaukee-dominance/
+
 **What the Chiefs said after loss to the Jaguars — and what's been missing in 2-3 start**\
 `Chiefs defensive back Chamarri Conner described his viewpoint of a late defensive pass-interference call, one of 13 K.C. penalties.`\
 https://nytimes.com/athletic/6695126/2025/10/07/chiefs-jaguars-patrick-mahomes-chamarri-conner/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6692040/2025/10/07/nhl-oddly-specific-predictions-2
 **The teetering Phillies confront a harsh truth: They have not been good enough in October. Again**\
 `The Phillies know there will be widespread changes if they cannot do the improbable and win the next three against the defending champions. `\
 https://nytimes.com/athletic/6695843/2025/10/07/phillies-game-2-nlds-loss-dodgers-mllb-playoffs/
-
-**The Brewers beat the Cubs at their own game, and now Chicago is on the brink**\
-`The Brewers ranked 22nd in in homers this season. The Cubs were sixth. In the end, Milwaukee outslugged Chicago in Game 2 of the NLDS.`\
-https://nytimes.com/athletic/6695963/2025/10/07/cubs-brewers-nlds-game-2-power-formula/
 
