@@ -1,4 +1,8 @@
 **Trump Considers Invoking Insurrection Act**\
+`On Monday, the president said that he was considering invoking the Insurrection Act to send National Guard troops to American cities. The act would grant him emergency powers to deploy troops and bypass court rulings.`\
+https://nytimes.com/video/us/politics/100000010442336/trump-threatens-to-use-insurrection-act-to-deploy-national-guard.html
+
+**Trump Considers Invoking Insurrection Act**\
 `On Monday, the president said that he was considering invoking the Insurrection Act to send National Guard troops to Chicago and Portland, Ore. The act would grant him emergency powers to deploy troops and bypass court rulings.`\
 https://nytimes.com/video/us/politics/100000010442336/trump-threatens-to-use-insurrection-act-to-deploy-national-guard.html
 
