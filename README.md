@@ -1,3 +1,7 @@
+**Not Your Grandmother’s Chanel**\
+`Matthieu Blazy made his debut for the brand, and it’s a whole new world.`\
+https://nytimes.com/2025/10/07/style/chanel-matthieu-blazy.html
+
 **Israel Marks a Somber Two-Year Milestone in Subdued Fashion**\
 `The second anniversary of the Oct. 7 attacks comes with peace talks underway, but with hostages still in Gaza, more than 67,000 Palestinians dead and Israel more isolated than ever before.`\
 https://nytimes.com/2025/10/07/world/middleeast/october-7-anniversary-israel.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/07/crosswords/spelling-bee-forum.html
 **Revealed: Man Utd's £50m training base lacks the space for young talent**\
 `United are planning a new bespoke academy building but until then conditions for some younger players are in a state of flux`\
 https://nytimes.com/athletic/6693884/2025/10/07/manchester-united-academy-players-training-ground/
-
-**How to watch Arizona State vs. Utah: Time, TV, streaming**\
-`Find out how to watch the Arizona State Sun Devils play the Utah Utes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6696114/2025/10/07/arizona-state-vs-utah-stream-how-to-watch-oct-11/
 
