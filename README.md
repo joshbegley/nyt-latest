@@ -1,3 +1,31 @@
+**How to Protect Your Pets From Pollution**\
+`Wildfire smoke, lead paint and other environmental toxins are health hazards for animals, too.`\
+https://nytimes.com/2025/10/07/science/pets-health-pollution.html
+
+**Stamps**\
+`Do you ever pay attention to the little rectangles that adorn our mail? Have you ever collected them?`\
+https://nytimes.com/2025/10/07/learning/stamps.html
+
+**As Trump’s Justice Dept. Pursues His Enemies, an Ally Goes on Trial**\
+`Xinyue Lou is accused of funneling foreign campaign donations to President Trump’s campaign. The president has said the justice system has been used against him and his supporters.`\
+https://nytimes.com/2025/10/07/nyregion/daniel-lou-campaign-contributions.html
+
+**Is Adams’s Exit a Game-Changer for Cuomo? Not So Far.**\
+`There has been little evidence that Mayor Eric Adams’s decision to end his re-election bid has had a major effect on Andrew Cuomo’s bid to attract donors or voters.`\
+https://nytimes.com/2025/10/07/nyregion/cuomo-campaign-mayor.html
+
+**‘Unfortunately, Your Hotel Has Gone Out of Business.’**\
+`A travel reporter investigated a hotel chain that had filed for bankruptcy — and when the guests showed up, he was the one who told them there was no room at this inn.`\
+https://nytimes.com/2025/10/07/insider/new-york-luxurban-hotels-bankruptcy.html
+
+**In a Toxic World, Pets Could Be Vital Health Watchdogs**\
+`A better understanding of how pollution affects pets could benefit humans and animals alike.`\
+https://nytimes.com/2025/10/07/science/pets-health-pollution.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/10/07/crosswords/spelling-bee-forum.html
+
 **Revealed: Man Utd's £50m training base lacks the space for young talent**\
 `United are planning a new bespoke academy building but until then conditions for some younger players are in a state of flux`\
 https://nytimes.com/athletic/6693884/2025/10/07/manchester-united-academy-players-training-ground/
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6696114/2025/10/07/arizona-state-vs-utah-stream-how
 **Opponents wise to Gravenberch and Salah gamble backfiring – why Liverpool are struggling**\
 `Three straight defeats have raised some questions over Liverpool's chances of another trophy-winning season. But what has caused this dip?`\
 https://nytimes.com/athletic/6694911/2025/10/07/liverpool-premier-league-salah-gravenberch-slot/
-
-**Staff Shortages Lead to Delayed Flights Amid Government Shutdown**\
-`Airports across the country experienced ground delays because of a shortage of air traffic staff during the government shutdown. Transportation officials said that there was a slight uptick in controllers calling in sick.`\
-https://nytimes.com/video/us/politics/100000010443174/air-traffic-staff-shortage-government-shutdown.html
-
-**Jimmy Kimmel Says His Numbers Are Better Than Trump’s**\
-`Kimmel is keeping the results of a new poll in perspective: “At this point, finding a toenail in your salad has a seven-point lead over Donald Trump.”`\
-https://nytimes.com/2025/10/07/arts/television/jimmy-kimmel-trump-poll.html
-
-**How to watch Blue Jays at Yankees: Game 3 Time, TV, streaming**\
-`Find out how to watch the Toronto Blue Jays play the New York Yankees, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6696004/2025/10/07/blue-jays-vs-yankees-stream-how-to-watch-oct-7/
-
-**Word of the Day: iconoclast**\
-`This word has appeared in 16 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/10/07/learning/word-of-the-day-iconoclast.html
-
-**The New York Times in Print for Tuesday, Oct. 7, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/10/07/todays-new-york-times
-
-**Lessons From a Long War**\
-`The only viable path to a Palestinian state is an end to the fantasy of Israel’s destruction.`\
-https://nytimes.com/2025/10/07/opinion/lessons-from-a-long-war.html
-
-**Medical Helicopter Crashes on Highway in Sacramento**\
-`About 15 bystanders helped to lift the aircraft off a critically injured woman after it crashed in California’s capital on Monday evening, officials said.`\
-https://nytimes.com/2025/10/07/us/sacramento-california-medical-helicopter-crash.html
 
