@@ -1,3 +1,7 @@
+**Malaysia to appeal FIFA sanction over alleged fake documents for seven players**\
+`FAM claimed that players had grandparents born in Malaysia, FIFA found that they were born in Argentina, Brazil, Spain and the Netherlands.`\
+https://nytimes.com/athletic/6696558/2025/10/07/malaysia-fifa-ban-suspension-news/
+
 **Is A.I. Investment Getting Too Circular?**\
 `Skeptics of a recent investment spree involving OpenAI and others say deals raise questions about the robustness of the artificial intelligence boom.`\
 https://nytimes.com/2025/10/07/business/dealbook/openai-nvidia-amd-investments-circular.html
