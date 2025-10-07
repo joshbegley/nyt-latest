@@ -1,3 +1,7 @@
+**Is A.I. Investment Getting Too Circular?**\
+`Skeptics of a recent investment spree involving OpenAI and others say deals raise questions about the robustness of the artificial intelligence boom.`\
+https://nytimes.com/2025/10/07/business/dealbook/openai-nvidia-amd-investments-circular.html
+
 **Kyren Williams must put fumbles behind him to be the running back Rams need**\
 `Williams has had his share of fumbles since becoming a starter in 2023, but he's a player the Rams need to reach their goals this season. `\
 https://nytimes.com/athletic/6695265/2025/10/07/rams-kyren-williams-fumble-issue/

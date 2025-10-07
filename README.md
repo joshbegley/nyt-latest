@@ -1,3 +1,7 @@
+**Malaysia to appeal FIFA sanction over alleged fake documents for seven players**\
+`FAM claimed that players had grandparents born in Malaysia, FIFA found that they were born in Argentina, Brazil, Spain and the Netherlands.`\
+https://nytimes.com/athletic/6696558/2025/10/07/malaysia-fifa-ban-suspension-news/
+
 **Is A.I. Investment Getting Too Circular?**\
 `Skeptics of a recent investment spree involving OpenAI and others say deals raise questions about the robustness of the artificial intelligence boom.`\
 https://nytimes.com/2025/10/07/business/dealbook/openai-nvidia-amd-investments-circular.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6695843/2025/10/07/phillies-game-2-nlds-loss-dodger
 **After summer of struggles, Phillies' Jesús Luzardo shines in playoffs — but it wasn't enough**\
 `The Phillies’ star, if there was one in a crushing Game 2 loss, was their starter, who persevered through rough stretches this season.`\
 https://nytimes.com/athletic/6695878/2025/10/07/jesus-luzardo-phillies-nlds-dodgers-2025-season/
-
-**Howard: USMNT players must show reason to believe in them to avoid critics**\
-`The former national team goalkeeper says the squad can't expect blind faith from former players and the public`\
-https://nytimes.com/athletic/6689342/2025/10/07/howard-usmnt-pochettino-goalkeepers/
 
