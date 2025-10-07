@@ -1,3 +1,15 @@
+**Map: 6.6-Magnitude Earthquake Strikes Papua New Guinea**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/10/07/world/papua-new-guinea-quake-tracker.html
+
+**Here’s the latest.**\
+`By Shawn Hubler, Eric Schmitt and Julie Bosman`\
+https://nytimes.com/live/2025/10/07/us/trump-national-guard-illinois-texas/heres-the-latest
+
+**Live Updates: National Guard Troops Are Set to Arrive in Illinois**\
+`The mobilization includes some 200 Guard troops from Texas. President Trump said he would consider invoking emergency powers to “get around” legal obstacles.`\
+https://nytimes.com/live/2025/10/07/us/trump-national-guard-illinois-texas
+
 **Malaysia to appeal FIFA sanction over alleged fake documents for seven players**\
 `FAM claimed that players had grandparents born in Malaysia, FIFA found that they were born in Argentina, Brazil, Spain and the Netherlands.`\
 https://nytimes.com/athletic/6696558/2025/10/07/malaysia-fifa-ban-suspension-news/
