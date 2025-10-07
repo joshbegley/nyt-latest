@@ -1,3 +1,19 @@
+**Who is the therapist behind the lawsuit challenging Colorado’s conversion therapy law?**\
+`By Ann E. Marimow`\
+https://nytimes.com/live/2025/10/07/us/supreme-court-conversion-therapy/who-is-the-therapist-behind-the-lawsuit-challenging-colorados-conversion-therapy-law
+
+**What Is Conversion Therapy? A History of the Practice.**\
+`The practice surged in the 1980s and 1990s, before medical groups began warning it was harmful.`\
+https://nytimes.com/2025/10/07/us/politics/conversion-therapy-supreme-court.html
+
+**Here’s the latest.**\
+`By Ann E. Marimow`\
+https://nytimes.com/live/2025/10/07/us/supreme-court-conversion-therapy/heres-the-latest
+
+**Supreme Court Live Updates: Justices to Hear Conversion Therapy Case**\
+`Colorado and over 20 other states have banned the practice aimed at changing the sexual orientation or gender identity of young people.`\
+https://nytimes.com/live/2025/10/07/us/supreme-court-conversion-therapy
+
 **UEFA has approved league games being staged abroad. So what now?**\
 `Explaining UEFA's decision yesterday and how the world game views the prospect of playing league games overseas`\
 https://nytimes.com/athletic/6696205/2025/10/07/european-league-games-abroad-explained/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/07/style/street-style-look-cool-timeless-mens-clothe
 **Why Democrats Aren’t Fighters**\
 `“We are in a time that demands political creativity and a willingness to take risks,” the columnist Jamelle Bouie says.`\
 https://nytimes.com/video/opinion/100000010435135/why-democrats-arent-fighters.html
-
-**Shrimp Fra Diavolo**\
-`This rich, spicy tomato sauce is traditionally studded with lobster, but this version becomes easier and less expensive with shrimp.`\
-https://nytimes.com/video/admin/100000010437691/shrimp-fra-diavolo.html
-
-**Map: 6.6-Magnitude Earthquake Strikes Papua New Guinea**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/10/07/world/papua-new-guinea-quake-tracker.html
-
-**Here’s the latest.**\
-`By Shawn Hubler, Eric Schmitt and Julie Bosman`\
-https://nytimes.com/live/2025/10/07/us/trump-national-guard-illinois-texas/heres-the-latest
-
-**Live Updates: National Guard Troops Are Set to Arrive in Illinois**\
-`The mobilization includes some 200 Guard troops from Texas. President Trump said he would consider invoking emergency powers to “get around” legal obstacles.`\
-https://nytimes.com/live/2025/10/07/us/trump-national-guard-illinois-texas
 

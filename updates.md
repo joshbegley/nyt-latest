@@ -1,3 +1,19 @@
+**Who is the therapist behind the lawsuit challenging Colorado’s conversion therapy law?**\
+`By Ann E. Marimow`\
+https://nytimes.com/live/2025/10/07/us/supreme-court-conversion-therapy/who-is-the-therapist-behind-the-lawsuit-challenging-colorados-conversion-therapy-law
+
+**What Is Conversion Therapy? A History of the Practice.**\
+`The practice surged in the 1980s and 1990s, before medical groups began warning it was harmful.`\
+https://nytimes.com/2025/10/07/us/politics/conversion-therapy-supreme-court.html
+
+**Here’s the latest.**\
+`By Ann E. Marimow`\
+https://nytimes.com/live/2025/10/07/us/supreme-court-conversion-therapy/heres-the-latest
+
+**Supreme Court Live Updates: Justices to Hear Conversion Therapy Case**\
+`Colorado and over 20 other states have banned the practice aimed at changing the sexual orientation or gender identity of young people.`\
+https://nytimes.com/live/2025/10/07/us/supreme-court-conversion-therapy
+
 **UEFA has approved league games being staged abroad. So what now?**\
 `Explaining UEFA's decision yesterday and how the world game views the prospect of playing league games overseas`\
 https://nytimes.com/athletic/6696205/2025/10/07/european-league-games-abroad-explained/

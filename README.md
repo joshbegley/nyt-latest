@@ -1,3 +1,7 @@
+**Hijab bans in sports 'deny a space for women', say human rights advocates**\
+`France's ban of the Muslim head covering has been criticised, despite the country's president, Emmanuel Macron, supporting it.`\
+https://nytimes.com/athletic/6696650/2025/10/07/hijab-ban-sports-france-amnesty/
+
 **Who is the therapist behind the lawsuit challenging Colorado’s conversion therapy law?**\
 `By Ann E. Marimow`\
 https://nytimes.com/live/2025/10/07/us/supreme-court-conversion-therapy/who-is-the-therapist-behind-the-lawsuit-challenging-colorados-conversion-therapy-law
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010443577/sacramento-helicopter-crash-califor
 **Men’s Clothes That Never Get Old**\
 `An outfit of tailored blazer, boot cut jeans and dress shirt opened wide at the collar had retro and modern appeal.`\
 https://nytimes.com/2025/10/07/style/street-style-look-cool-timeless-mens-clothes.html
-
-**Why Democrats Aren’t Fighters**\
-`“We are in a time that demands political creativity and a willingness to take risks,” the columnist Jamelle Bouie says.`\
-https://nytimes.com/video/opinion/100000010435135/why-democrats-arent-fighters.html
 
