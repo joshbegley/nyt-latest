@@ -1,3 +1,7 @@
+**Jimmy Kimmel Says His Numbers Are Better Than Trump’s**\
+`Kimmel is keeping the results of a new poll in perspective: “At this point, finding a toenail in your salad has a seven-point lead over Donald Trump.”`\
+https://nytimes.com/2025/10/07/arts/television/jimmy-kimmel-trump-poll.html
+
 **How to watch Blue Jays at Yankees: Game 3 Time, TV, streaming**\
 `Find out how to watch the Toronto Blue Jays play the New York Yankees, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6696004/2025/10/07/blue-jays-vs-yankees-stream-how-to-watch-oct-7/

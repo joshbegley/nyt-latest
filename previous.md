@@ -1,3 +1,7 @@
+**Jimmy Kimmel Says His Numbers Are Better Than Trump’s**\
+`Kimmel is keeping the results of a new poll in perspective: “At this point, finding a toenail in your salad has a seven-point lead over Donald Trump.”`\
+https://nytimes.com/2025/10/07/arts/television/jimmy-kimmel-trump-poll.html
+
 **How to watch Blue Jays at Yankees: Game 3 Time, TV, streaming**\
 `Find out how to watch the Toronto Blue Jays play the New York Yankees, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6696004/2025/10/07/blue-jays-vs-yankees-stream-how-to-watch-oct-7/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6693809/2025/10/07/real-madrid-mailbag-questions/
 **Arsenal are making 'bounce' passes important**\
 `The more these patterns are put into practice, the more Arsenal can threaten teams - will they make the difference this season?`\
 https://nytimes.com/athletic/6693262/2025/10/07/arsenal-arteta-bounce-pass/
-
-**Women's Champions League: This season's five key storylines**\
-`The Women's Champions League starts on Tuesday with a new format and many of the frontrunners stronger than ever`\
-https://nytimes.com/athletic/6693360/2025/10/07/womens-champions-league-stream-format-predictions/
 
