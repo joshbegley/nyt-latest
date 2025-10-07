@@ -1,3 +1,7 @@
+**After summer of struggles, Phillies' Jesús Luzardo shines in playoffs — but it wasn't enough**\
+`The Phillies’ star, if there was one in a crushing Game 2 loss, was their starter, who persevered through rough stretches this season.`\
+https://nytimes.com/athletic/6695878/2025/10/07/jesus-luzardo-phillies-nlds-dodgers-2025-season/
+
 **How dominant is Ohio State's defense? Final thoughts on Minnesota and what's next**\
 `Ohio State leaned on defense while the offense took the training wheels off. Now it's showing what happens when it all comes together.`\
 https://nytimes.com/athletic/6695016/2025/10/07/ohio-state-defense-stats-minnesota-illinois/
