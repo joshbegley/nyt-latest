@@ -1,3 +1,7 @@
+**The Next Leader of a Key N.Y.C. Business Group? He’s From New Jersey.**\
+`Steven Fulop, the mayor of Jersey City, will take over as the head of the Partnership for New York City. Kathryn Wylde, a city power broker, has held the position for decades.`\
+https://nytimes.com/2025/10/07/nyregion/steven-fulop-partnership-for-new-york-city.html
+
 **Who Is the Judge Hearing Arguments Over the Guard’s Deployment in Illinois?**\
 `Judge April M. Perry is a Biden appointee who has been a federal judge for less than a year.`\
 https://nytimes.com/2025/10/07/us/judge-perry-national-guard-chicago.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/10/07/us/politics/hunter-biden-embassy-romania.html
 **The hope left for Ferrari. Plus, the first lap aces of Formula 1**\
 `Welcome to Prime Tire, The Athletic's Formula 1 newsletter`\
 https://nytimes.com/athletic/6697825/2025/10/07/f1-singapore-gp-ferrari-prime-tire/
-
-**Oct. 7 Anniversary Arrives During Heated Final Stretch of Mayor’s Race**\
-`Both Zohran Mamdani and Andrew Cuomo planned to attend events marking the anniversary of the Hamas attacks and honoring the victims.`\
-https://nytimes.com/2025/10/07/nyregion/mamdani-israel-gaza-nyc-mayor.html
 
