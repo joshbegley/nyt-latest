@@ -1,3 +1,11 @@
+**Serie A plan to play game in Australia is 'crazy, absurd' - Milan's Rabiot**\
+`The Italian top flight is hopeful of playing February’s league fixture between Milan and Como in Perth, Australia.`\
+https://nytimes.com/athletic/6698106/2025/10/07/milan-como-australia-criticism-rabiot/
+
+**Astros to retain Dana Brown, Joe Espada for at least 2026 season**\
+`Both Brown and Espada will return in 2026 but on existing contracts, raising questions about what their future will be beyond next year.`\
+https://nytimes.com/athletic/6698071/2025/10/07/astros-dana-brown-joe-espada-2026-contract/
+
 **The Next Leader of a Key N.Y.C. Business Group? He’s From New Jersey.**\
 `Steven Fulop, the mayor of Jersey City, will take over as the head of the Partnership for New York City. Kathryn Wylde, a city power broker, has held the position for decades.`\
 https://nytimes.com/2025/10/07/nyregion/steven-fulop-partnership-for-new-york-city.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6697542/2025/10/07/connor-mcdavid-oilers-contract-e
 **Mass Layoffs Trump Is Threatening in Shutdown Fight May Be Illegal**\
 `Unions have sued to block any firings, which budget experts believe are not even needed to protect essential federal services.`\
 https://nytimes.com/2025/10/07/us/politics/trump-government-shutdown-layoffs.html
-
-**Hunter Biden Pursued a Deal to Sell Land Around the U.S. Embassy in Romania**\
-`The proposed transaction, stemming from relationships that started while his father was vice president and involving a Chinese partner, underscores the extent of Mr. Biden’s questionable business dealings abroad.`\
-https://nytimes.com/2025/10/07/us/politics/hunter-biden-embassy-romania.html
-
-**The hope left for Ferrari. Plus, the first lap aces of Formula 1**\
-`Welcome to Prime Tire, The Athletic's Formula 1 newsletter`\
-https://nytimes.com/athletic/6697825/2025/10/07/f1-singapore-gp-ferrari-prime-tire/
 
