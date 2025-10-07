@@ -1,3 +1,7 @@
+**Flight Delays Begin as Air Traffic Staffing Shortages Worsen**\
+`The delays came just hours after the transportation secretary warned that flying could be disrupted by the government shutdown.`\
+https://nytimes.com/2025/10/06/us/politics/flight-delays-faa-shutdown.html
+
 **How to watch South Carolina vs. LSU: Time, TV, streaming**\
 `Find out how to watch the South Carolina Gamecocks play the LSU Tigers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6695563/2025/10/06/south-carolina-vs-lsu-stream-how-to-watch-oct-11/
