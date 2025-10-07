@@ -1,3 +1,11 @@
+**Gerrard describes 'hating' England international duty: 'We were egotistical losers'**\
+`Gerrard made 114 international appearances and featured in six major tournaments for his country.`\
+https://nytimes.com/athletic/6697246/2025/10/07/steven-gerrard-england-career-criticism/
+
+**Why wasn’t Chiefs’ Chris Jones hustling on Jaguars' final TD? His words provide some clues**\
+`Jones deactivated his social media accounts Tuesday after drawing criticism for "standing and watching" on the game-deciding play.`\
+https://nytimes.com/athletic/6697295/2025/10/07/chiefs-chris-jones-not-hustling-jaguars/
+
 **NFL MVP odds: Mayfield, Mahomes move up, but Prescott is the dark horse**\
 `Is now the time to buy low on Prescott? Will Mayfield challenge Allen at the top?`\
 https://nytimes.com/athletic/6696994/2025/10/07/nfl-mvp-odds-week-6-mayfield-prescott/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/07/arts/music/la-sonnambula-met-opera-review.html
 **Maya Rudolph Takes the Mel Brooks Questionnaire**\
 `The comedy legend devised a personality test for us. This time: the star of “Loot,” the third season of which premieres this month.`\
 https://nytimes.com/interactive/2025/10/07/t-magazine/brooks-rudolph-questionnaire.html
-
-**Taylor Swift reveals why she wasn't interested in Super Bowl LX halftime**\
-`During her interview with Jimmy Fallon, Swift also revealed how the "New Heights" podcast played a part in Travis Kelce's proposal. `\
-https://nytimes.com/athletic/6696957/2025/10/07/taylor-swift-super-bowl-performance/
-
-**Cowboys owner Jerry Jones says middle finger was accidental at Jets game**\
-`Jones said his middle finger gesture was “unfortunate" and not intended during the Cowboys' win against the Jets.`\
-https://nytimes.com/athletic/6697125/2025/10/07/jerry-jones-middle-finger-dallas-cowboys-new-york-jets/
 
