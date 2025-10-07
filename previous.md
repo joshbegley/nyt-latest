@@ -1,3 +1,7 @@
+**Blues opening-night roster projection: How Oskar Sundqvist's injury impacts the lineup**\
+`The Blues have moved Brayden Schenn back to his normal spot on the No. 2 line and Mathieu Joseph may play after Oskar Sundqvist's injury.`\
+https://nytimes.com/athletic/6697116/2025/10/07/blues-roster-projection-oskar-sundqvist/
+
 **A Debate About A.I. Plays Out on the Subway Walls**\
 `An ad campaign for a wearable A.I. companion has blanketed New York City, starting conversations and inspiring vandalism.`\
 https://nytimes.com/2025/10/07/style/friend-ai-subway-ads-new-york.html
@@ -21,12 +25,4 @@ https://nytimes.com/athletic/6698071/2025/10/07/astros-dana-brown-joe-espada-202
 **The Next Leader of a Key N.Y.C. Business Group? He’s From New Jersey.**\
 `Steven Fulop, the mayor of Jersey City, will take over as the head of the Partnership for New York City. Kathryn Wylde, a city power broker, has held the position for decades.`\
 https://nytimes.com/2025/10/07/nyregion/steven-fulop-partnership-for-new-york-city.html
-
-**Who Is the Judge Hearing Arguments Over the Guard’s Deployment in Illinois?**\
-`Judge April M. Perry is a Biden appointee who has been a federal judge for less than a year.`\
-https://nytimes.com/2025/10/07/us/judge-perry-national-guard-chicago.html
-
-**Crossplay Game Review**\
-`Information about Crossplay Game Review.`\
-https://nytimes.com/interactive/2025/upshot/crossplay-game-review.html
 

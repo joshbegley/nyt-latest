@@ -1,3 +1,7 @@
+**Blues opening-night roster projection: How Oskar Sundqvist's injury impacts the lineup**\
+`The Blues have moved Brayden Schenn back to his normal spot on the No. 2 line and Mathieu Joseph may play after Oskar Sundqvist's injury.`\
+https://nytimes.com/athletic/6697116/2025/10/07/blues-roster-projection-oskar-sundqvist/
+
 **A Debate About A.I. Plays Out on the Subway Walls**\
 `An ad campaign for a wearable A.I. companion has blanketed New York City, starting conversations and inspiring vandalism.`\
 https://nytimes.com/2025/10/07/style/friend-ai-subway-ads-new-york.html
