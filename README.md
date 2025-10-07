@@ -1,3 +1,7 @@
+**3 Key Takeaways From the Bondi Hearing**\
+`The session before a Senate panel featured more fireworks than facts as Democrats and the attorney general repeatedly clashed.`\
+https://nytimes.com/2025/10/07/us/politics/bondi-hearing-takeaways.html
+
 **Bill Belichick-North Carolina docuseries no longer being developed: Source**\
 `The idea of a Belichick/North Carolina media project dates back to at least January.`\
 https://nytimes.com/athletic/6698493/2025/10/07/bill-belichick-unc-docuseries-no-longer-developed/
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/6698512/2025/10/07/49ers-vs-buccaneers-stream-how-t
 **How to watch Titans vs. Raiders: Time, TV, streaming**\
 `Find out how to watch the Tennessee Titans play the Las Vegas Raiders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6698510/2025/10/07/titans-vs-raiders-stream-how-to-watch-oct-12/
-
-**How to watch Bengals vs. Packers: Time, TV, streaming**\
-`Find out how to watch the Cincinnati Bengals play the Green Bay Packers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6698502/2025/10/07/bengals-vs-packers-stream-how-to-watch-oct-12/
 
