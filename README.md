@@ -1,3 +1,11 @@
+**Lessons From a Long War**\
+`The only viable path to a Palestinian state is an end to the fantasy of Israel’s destruction.`\
+https://nytimes.com/2025/10/07/opinion/lessons-from-a-long-war.html
+
+**The New York Times in Print for Tuesday, Oct. 7, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/07/todays-new-york-times
+
 **Medical Helicopter Crashes on Highway in Sacramento**\
 `About 15 bystanders helped to lift the aircraft off a critically injured woman after it crashed in California’s capital on Monday evening, officials said.`\
 https://nytimes.com/2025/10/07/us/sacramento-california-medical-helicopter-crash.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6693569/2025/10/07/vuskovic-hamburg-tottenham-loan/
 **Newcastle Q&A: Can Woltemade hit 20 goals? Is Ramsey better than Joelinton?**\
 `Newcastle reporter Chris Waugh answers readers' questions about all the most pressing issues at St James' Park`\
 https://nytimes.com/athletic/6690747/2025/10/07/inside-newcastle-woltemade-ramsey-joelinton/
-
-**Does Tuchel lack defensive depth? Why is Wharton absent? England 2026 World Cup watch**\
-`While England are blessed with many attacking options, Thomas Tuchel is more limited when it comes to central defenders`\
-https://nytimes.com/athletic/6693531/2025/10/07/england-2026-world-cup-watch-wharton-analysis/
-
-**James Horncastle's Serie A Briefing: Italian fans getting high on Serie A supply**\
-`Italian football is enjoying a renaissance in popularity, with a competitive league leading to packed stadiums `\
-https://nytimes.com/athletic/6693243/2025/10/07/james-horncastles-serie-a-briefing-italian-fans-are-getting-high-on-serie-a-supply/
 
