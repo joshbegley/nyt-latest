@@ -1,3 +1,7 @@
+**3 Key Takeaways From the Bondi Hearing**\
+`The session before a Senate panel featured more fireworks than facts as Democrats and the attorney general repeatedly clashed.`\
+https://nytimes.com/2025/10/07/us/politics/bondi-hearing-takeaways.html
+
 **Bill Belichick-North Carolina docuseries no longer being developed: Source**\
 `The idea of a Belichick/North Carolina media project dates back to at least January.`\
 https://nytimes.com/athletic/6698493/2025/10/07/bill-belichick-unc-docuseries-no-longer-developed/
