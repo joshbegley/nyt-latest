@@ -1,3 +1,11 @@
+**NFL MVP odds: Mayfield, Mahomes move up, but Prescott is the dark horse**\
+`Is now the time to buy low on Prescott? Will Mayfield challenge Allen at the top?`\
+https://nytimes.com/athletic/6696994/2025/10/07/nfl-mvp-odds-week-6-mayfield-prescott/
+
+**What is the Alliance Defending Freedom?**\
+`The conservative Christian law firm and advocacy group has been involved in a number of recent cases, including challenges to abortion access and gay and transgender rights.`\
+https://nytimes.com/2025/10/07/us/politics/alliance-defending-freedom.html
+
 **Wild Cherry Does Dinner and a Movie A24 Style**\
 `The restaurant, a collaboration between the movie studio and the Frenchette chefs, is in a 100-year-old West Village theater.`\
 https://nytimes.com/2025/10/07/dining/nyc-restaurant-news.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6696957/2025/10/07/taylor-swift-super-bowl-performa
 **Cowboys owner Jerry Jones says middle finger was accidental at Jets game**\
 `Jones said his middle finger gesture was “unfortunate" and not intended during the Cowboys' win against the Jets.`\
 https://nytimes.com/athletic/6697125/2025/10/07/jerry-jones-middle-finger-dallas-cowboys-new-york-jets/
-
-**E.U. Proposes 50% Steel Tariffs as Trump Effect Ripples Around World**\
-`European officials want to sharply lower the bloc’s quota on tariff-free steel imports, while doubling levies to 50 percent, as President Trump’s tariffs create domino effects.`\
-https://nytimes.com/2025/10/07/business/eu-steel-tariffs-quotas.html
-
-**NHL 2025-26 Stanley Cup playoff chances and projected standings**\
-`Welcome to our 2025-26 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
-https://nytimes.com/athletic/6694758/2025/10/07/nhl-2025-26-stanley-cup-playoff-chances-and-projected-standings/
 

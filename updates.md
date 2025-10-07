@@ -1,3 +1,11 @@
+**Wild Cherry Does Dinner and a Movie A24 Style**\
+`The restaurant, a collaboration between the movie studio and the Frenchette chefs, is in a 100-year-old West Village theater.`\
+https://nytimes.com/2025/10/07/dining/nyc-restaurant-news.html
+
+**NBA has no plans to move 2026 All-Star Game from Clippers arena amid Kawhi investigation**\
+`Commissioner Adam Silver said the NBA isn't considering moving the All-Star Game, despite a league investigation into the LA Clippers.`\
+https://nytimes.com/athletic/6697025/2025/10/07/nba-all-star-game-2026-clippers-move-kawhi/
+
 **200 Animals and a 95-Year-Old Are Found Inside a Squalid Suburban Home**\
 `The woman was confined to her room by clutter, and a Long Island wildlife rehabilitator faces charges. The authorities found everything from cats to voles, many of them in dire conditions.`\
 https://nytimes.com/2025/10/07/nyregion/long-island-animal-hoarding-charges.html

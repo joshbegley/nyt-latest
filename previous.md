@@ -1,3 +1,11 @@
+**Wild Cherry Does Dinner and a Movie A24 Style**\
+`The restaurant, a collaboration between the movie studio and the Frenchette chefs, is in a 100-year-old West Village theater.`\
+https://nytimes.com/2025/10/07/dining/nyc-restaurant-news.html
+
+**NBA has no plans to move 2026 All-Star Game from Clippers arena amid Kawhi investigation**\
+`Commissioner Adam Silver said the NBA isn't considering moving the All-Star Game, despite a league investigation into the LA Clippers.`\
+https://nytimes.com/athletic/6697025/2025/10/07/nba-all-star-game-2026-clippers-move-kawhi/
+
 **200 Animals and a 95-Year-Old Are Found Inside a Squalid Suburban Home**\
 `The woman was confined to her room by clutter, and a Long Island wildlife rehabilitator faces charges. The authorities found everything from cats to voles, many of them in dire conditions.`\
 https://nytimes.com/2025/10/07/nyregion/long-island-animal-hoarding-charges.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/07/business/eu-steel-tariffs-quotas.html
 **NHL 2025-26 Stanley Cup playoff chances and projected standings**\
 `Welcome to our 2025-26 NHL projections where you will find each team’s projected point total and chances of winning the Stanley Cup.`\
 https://nytimes.com/athletic/6694758/2025/10/07/nhl-2025-26-stanley-cup-playoff-chances-and-projected-standings/
-
-**Saul Zabar, Smoked Fish Czar of Upper West Side, Dies at 97**\
-`He led his parents’ appetizing store, Zabar’s, for more than 70 years, turning it into an institution synonymous with New York.`\
-https://nytimes.com/2025/10/07/dining/saul-zabar-dead.html
-
-**This TikTok Food Trend Is More Than 10,000 Years Old**\
-`It looks shiny and new on social media, but smoked salmon has been part of Indigenous tradition for centuries.`\
-https://nytimes.com/2025/10/07/dining/smoked-salmon-tiktok.html
 
