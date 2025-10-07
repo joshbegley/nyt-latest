@@ -1,3 +1,15 @@
+**Crossplay Game Review**\
+`Information about Crossplay Game Review.`\
+https://nytimes.com/interactive/2025/upshot/crossplay-game-review.html
+
+**Fantasy football market share report: Rachaad White hits top 10, Stefon Diggs reanimates**\
+`Michael Salfino mines the touches and targets data from Week 5, and says he wrote of Patriots receiver Stefon Diggs too soon..`\
+https://nytimes.com/athletic/6697795/2025/10/07/fantasy-football-market-share-week-6-dowdle-diggs/
+
+**New Race-Day Worry for the Chicago Marathon: Immigration Enforcement**\
+`Tensions over the federal intervention in the city have many runners worried about what to expect during the race, which passes through immigrant neighborhoods and draws many participants from abroad.`\
+https://nytimes.com/2025/10/07/us/chicago-marathon-immigration-trump.html
+
 **McDavid says 2-year extension with Oilers 'gives us a chance to play this out'**\
 `McDavid expressed how he felt people should view his new contract, something that was clear from the moment he signed it.`\
 https://nytimes.com/athletic/6697542/2025/10/07/connor-mcdavid-oilers-contract-extension-years/
@@ -21,16 +33,4 @@ https://nytimes.com/2025/10/07/nyregion/mamdani-israel-gaza-nyc-mayor.html
 **The Strangely Beautiful Realities You Can Discover in a Ken Jacobs Film**\
 `The avant-garde director, who died Sunday, changed our ideas of what cinema was and could be while showing us the old, lost New York.`\
 https://nytimes.com/2025/10/07/movies/ken-jacobs-appreciation.html
-
-**How to watch Rams vs. Ravens: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Rams play the Baltimore Ravens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6697845/2025/10/07/rams-vs-ravens-stream-how-to-watch-oct-12/
-
-**How to watch Patriots vs. Saints: Time, TV, streaming**\
-`Find out how to watch the New England Patriots play the New Orleans Saints, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6697842/2025/10/07/patriots-vs-saints-stream-how-to-watch-oct-12/
-
-**How to watch Cardinals vs. Colts: Time, TV, streaming**\
-`Find out how to watch the Arizona Cardinals play the Indianapolis Colts, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6697839/2025/10/07/cardinals-vs-colts-stream-how-to-watch-oct-12/
 

@@ -1,3 +1,15 @@
+**Crossplay Game Review**\
+`Information about Crossplay Game Review.`\
+https://nytimes.com/interactive/2025/upshot/crossplay-game-review.html
+
+**Fantasy football market share report: Rachaad White hits top 10, Stefon Diggs reanimates**\
+`Michael Salfino mines the touches and targets data from Week 5, and says he wrote of Patriots receiver Stefon Diggs too soon..`\
+https://nytimes.com/athletic/6697795/2025/10/07/fantasy-football-market-share-week-6-dowdle-diggs/
+
+**New Race-Day Worry for the Chicago Marathon: Immigration Enforcement**\
+`Tensions over the federal intervention in the city have many runners worried about what to expect during the race, which passes through immigrant neighborhoods and draws many participants from abroad.`\
+https://nytimes.com/2025/10/07/us/chicago-marathon-immigration-trump.html
+
 **McDavid says 2-year extension with Oilers 'gives us a chance to play this out'**\
 `McDavid expressed how he felt people should view his new contract, something that was clear from the moment he signed it.`\
 https://nytimes.com/athletic/6697542/2025/10/07/connor-mcdavid-oilers-contract-extension-years/
