@@ -1,3 +1,7 @@
+**Kyren Williams must put fumbles behind him to be the running back Rams need**\
+`Williams has had his share of fumbles since becoming a starter in 2023, but he's a player the Rams need to reach their goals this season. `\
+https://nytimes.com/athletic/6695265/2025/10/07/rams-kyren-williams-fumble-issue/
+
 **Trump Administration Live Updates: President to Meet With Canada’s Leader Amid Tensions Over Tariffs**\
 ``\
 https://nytimes.com/live/2025/10/07/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6689342/2025/10/07/howard-usmnt-pochettino-goalkeep
 **On new Rangers coaching staff, Sullivan keeps college buddies by his side**\
 `New York is trusting Sullivan to help the team rebound from a tumultuous 2024-25 season. In turn, he is trusting two former BU teammates.`\
 https://nytimes.com/athletic/6692575/2025/10/07/mike-sullivan-ny-rangers-coaches-bu-terriers/
-
-**The 10 best things I saw in college football recruiting over the weekend**\
-`Five-star running back Ezavier Crowell, an Alabama commitment, earns the top spot this week for his incredible athleticism. `\
-https://nytimes.com/athletic/6694830/2025/10/07/college-football-recruiting-thoughts-week-6/
 
