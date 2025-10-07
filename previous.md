@@ -1,3 +1,7 @@
+**Joe Flacco trade grades: Bengals get desperate; Browns find free money**\
+`The Jake Browning situation was no longer tenable for Cincinnati, but how much of an upgrade is Flacco? `\
+https://nytimes.com/athletic/6697615/2025/10/07/joe-flacco-trade-grade-bengals-browns/
+
 **What Does the National Guard Do? Why Are Its Troops in U.S. Cities?**\
 `The Guard has been federally mobilized around the country at least 10 times since World War II, with presidents using it to respond to civil unrest.`\
 https://nytimes.com/2025/10/07/us/politics/national-guard-troops-uses.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/07/climate/renewable-energy-growth-globally.html
 **What’s Behind the Dispute Over Extending Health Care Subsidies**\
 `The government shutdown fight has spotlighted a debate between Republicans and Democrats about whether and how much the government should subsidize health care.`\
 https://nytimes.com/2025/10/07/us/politics/shutdown-trump-health-care-subsidies.html
-
-**Does the Knicks trading for Giannis Antetokounmpo even make sense?**\
-`Should the Bucks trade Antetokounmpo to New York? Should New York want him?`\
-https://nytimes.com/athletic/6697232/2025/10/07/knicks-giannis-antetokounmpo-trade-bucks-nba-news/
 

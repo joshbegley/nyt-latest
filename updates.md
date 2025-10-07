@@ -1,3 +1,7 @@
+**Joe Flacco trade grades: Bengals get desperate; Browns find free money**\
+`The Jake Browning situation was no longer tenable for Cincinnati, but how much of an upgrade is Flacco? `\
+https://nytimes.com/athletic/6697615/2025/10/07/joe-flacco-trade-grade-bengals-browns/
+
 **What Does the National Guard Do? Why Are Its Troops in U.S. Cities?**\
 `The Guard has been federally mobilized around the country at least 10 times since World War II, with presidents using it to respond to civil unrest.`\
 https://nytimes.com/2025/10/07/us/politics/national-guard-troops-uses.html

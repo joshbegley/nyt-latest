@@ -1,3 +1,31 @@
+**How to watch Rams vs. Ravens: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Rams play the Baltimore Ravens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6697845/2025/10/07/rams-vs-ravens-stream-how-to-watch-oct-12/
+
+**How to watch Patriots vs. Saints: Time, TV, streaming**\
+`Find out how to watch the New England Patriots play the New Orleans Saints, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6697842/2025/10/07/patriots-vs-saints-stream-how-to-watch-oct-12/
+
+**How to watch Cardinals vs. Colts: Time, TV, streaming**\
+`Find out how to watch the Arizona Cardinals play the Indianapolis Colts, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6697839/2025/10/07/cardinals-vs-colts-stream-how-to-watch-oct-12/
+
+**How to watch Browns vs. Steelers: Time, TV, streaming**\
+`Find out how to watch the Cleveland Browns play the Pittsburgh Steelers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6697837/2025/10/07/browns-vs-steelers-stream-how-to-watch-oct-12/
+
+**How to watch Cowboys vs. Panthers: Time, TV, streaming**\
+`Find out how to watch the Dallas Cowboys play the Carolina Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6697835/2025/10/07/cowboys-vs-panthers-stream-how-to-watch-oct-12/
+
+**How to watch Chargers vs. Dolphins: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Chargers play the Miami Dolphins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6697833/2025/10/07/chargers-vs-dolphins-stream-how-to-watch-oct-12/
+
+**How to watch Seahawks vs. Jaguars: Time, TV, streaming**\
+`Find out how to watch the Seattle Seahawks play the Jacksonville Jaguars, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6697830/2025/10/07/seahawks-vs-jaguars-stream-how-to-watch-oct-12/
+
 **Joe Flacco trade grades: Bengals get desperate; Browns find free money**\
 `The Jake Browning situation was no longer tenable for Cincinnati, but how much of an upgrade is Flacco? `\
 https://nytimes.com/athletic/6697615/2025/10/07/joe-flacco-trade-grade-bengals-browns/
@@ -9,32 +37,4 @@ https://nytimes.com/2025/10/07/us/politics/national-guard-troops-uses.html
 **Israel Cannot Go On Winning Like This**\
 `Until the recent U.S.-backed peace deal, Israel has continued to use force without engaging in any viable diplomacy. It must change to save itself.`\
 https://nytimes.com/2025/10/07/opinion/israel-gaza-war-palestinians-netanyahu.html
-
-**Tesla Reveals Cheaper Versions of Its Cars**\
-`Elon Musk’s electric car company said the new versions would start at around $37,000 and $40,000, prices that bring its cars closer to comparable gasoline vehicles.`\
-https://nytimes.com/2025/10/07/business/tesla-cheaper-model-y-3.html
-
-**LeBron's 'Second Decision' could have been memorable. Instead, it was corny**\
-`LeBron James' "The Decision" transfixed. "The Second Decision" on Tuesday was viewed to many as a marketing fail.`\
-https://nytimes.com/athletic/6697597/2025/10/07/lebron-james-decision-hennessy-ad-nba/
-
-**How to watch Avalanche vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Colorado Avalanche play the Los Angeles Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6697794/2025/10/07/avalanche-vs-kings-stream-how-to-watch-oct-7/
-
-**How to watch Penguins vs. Rangers: Time, TV, streaming**\
-`Find out how to watch the Pittsburgh Penguins play the New York Rangers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6697791/2025/10/07/penguins-vs-rangers-stream-how-to-watch-oct-7/
-
-**How to watch Blackhawks vs. Panthers: Time, TV, streaming**\
-`Find out how to watch the Chicago Blackhawks play the Florida Panthers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6697789/2025/10/07/blackhawks-vs-panthers-stream-how-to-watch-oct-7/
-
-**Early Signs of a ‘Turning Point’ as Renewables Edge Out Coal**\
-`The world generated more electricity from renewable energy than coal for the first time ever, a new report finds. The United States is lagging behind.`\
-https://nytimes.com/2025/10/07/climate/renewable-energy-growth-globally.html
-
-**What’s Behind the Dispute Over Extending Health Care Subsidies**\
-`The government shutdown fight has spotlighted a debate between Republicans and Democrats about whether and how much the government should subsidize health care.`\
-https://nytimes.com/2025/10/07/us/politics/shutdown-trump-health-care-subsidies.html
 
