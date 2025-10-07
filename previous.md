@@ -1,3 +1,7 @@
+**How Trump Is Using the Justice Department to Target His Enemies**\
+`President Trump has long spoken of seeking vengeance against his political enemies. Here’s a list of whom he is targeting.`\
+https://nytimes.com/interactive/2025/10/07/us/politics/trump-enemies-justice-department-investigations.html
+
 **An Interstellar Comet Flew Past Mars, and Spacecraft Took Pictures**\
 `3I/ATLAS, only the third object from beyond our solar system ever spotted from Earth, was viewed from Mars by an orbiting European spacecraft.`\
 https://nytimes.com/2025/10/07/science/mars-interstellar-comet-3i-atlas.html
@@ -21,8 +25,4 @@ https://nytimes.com/2025/10/07/business/uber-nj-attorney-general-sexual-assaults
 **OBJ will serve 6-game PED suspension, aims to return to NFL this season**\
 `Receiver says he aims to play in 2025, mentioning interest in the Steelers, Chiefs, Giants or Rams. `\
 https://nytimes.com/athletic/6698093/2025/10/07/odell-beckham-jr-ped-suspension-comeback/
-
-**49ers mailbag: Why there's no Brock Purdy-Mac Jones quarterback controversy just yet**\
-`Mac Jones is 3-0 as the 49ers' starter, but there are 265 million reasons why they will stick with Brock Purdy when he's healthy.`\
-https://nytimes.com/athletic/6698062/2025/10/07/mac-jones-brock-purdy-49ers-qb-controversy/
 

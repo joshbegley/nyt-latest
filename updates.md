@@ -1,3 +1,7 @@
+**How Trump Is Using the Justice Department to Target His Enemies**\
+`President Trump has long spoken of seeking vengeance against his political enemies. Here’s a list of whom he is targeting.`\
+https://nytimes.com/interactive/2025/10/07/us/politics/trump-enemies-justice-department-investigations.html
+
 **An Interstellar Comet Flew Past Mars, and Spacecraft Took Pictures**\
 `3I/ATLAS, only the third object from beyond our solar system ever spotted from Earth, was viewed from Mars by an orbiting European spacecraft.`\
 https://nytimes.com/2025/10/07/science/mars-interstellar-comet-3i-atlas.html
