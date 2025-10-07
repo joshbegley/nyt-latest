@@ -1,3 +1,19 @@
+**Here is the latest on the storm.**\
+`By Judson Jones`\
+https://nytimes.com/live/2025/10/07/weather/tropical-storm-jerry-hurricane/here-is-the-latest-on-the-storm
+
+**More Than 20 States Have Banned Conversion Therapy for L.G.B.T.Q. Minors**\
+`The Supreme Court’s decision in a case challenging Colorado’s ban on conversion therapy for minors would have implications for many states with similar laws.`\
+https://nytimes.com/2025/10/07/us/politics/conversion-therapy-state-bans.html
+
+**White House Signals It May Try to Deny Back Pay to Furloughed Federal Workers**\
+`Union leaders and Democratic lawmakers say the move would run afoul of a law adopted under President Trump’s first term.`\
+https://nytimes.com/2025/10/07/us/politics/trump-back-pay-furloughed-workers-shutdown.html
+
+**Two Oct. 7 Series Show the Power, and Limits, of Memory**\
+`After two years of war and acrimony, “Red Alert” and “One Day in October” focus on the horrors of a single day.`\
+https://nytimes.com/2025/10/07/arts/television/one-day-in-october-red-alert-hbo-paramount.html
+
 **In a Private Park in North Carolina, Confederate Statues Are Rising Again**\
 `A state law limits what can happen to a Confederate statue after it is removed. Valor Memorial, a private park, has become a destination for some.`\
 https://nytimes.com/2025/10/07/us/north-carolina-confederate-statues-park.html
