@@ -1,3 +1,15 @@
+**E.U. Proposes 50% Steel Tariffs as Trump Effect Ripples Around World**\
+`European officials want to sharply lower the bloc’s quota on tariff-free steel imports, while doubling levies to 50 percent, as President Trump’s tariffs create domino effects.`\
+https://nytimes.com/2025/10/07/business/eu-steel-tariffs-quotas.html
+
+**Saul Zabar, Smoked Fish Czar of Upper West Side, Dies at 97**\
+`He led his parents’ appetizing store, Zabar’s, for more than 70 years, turning it into an institution synonymous with New York.`\
+https://nytimes.com/2025/10/07/dining/saul-zabar-dead.html
+
+**This TikTok Food Trend Is More Than 10,000 Years Old**\
+`It looks shiny and new on social media, but smoked salmon has been part of Indigenous tradition for centuries.`\
+https://nytimes.com/2025/10/07/dining/smoked-salmon-tiktok.html
+
 **Here is the latest on the storm.**\
 `By Judson Jones`\
 https://nytimes.com/live/2025/10/07/weather/tropical-storm-jerry-hurricane/here-is-the-latest-on-the-storm

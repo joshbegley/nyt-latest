@@ -1,3 +1,15 @@
+**E.U. Proposes 50% Steel Tariffs as Trump Effect Ripples Around World**\
+`European officials want to sharply lower the bloc’s quota on tariff-free steel imports, while doubling levies to 50 percent, as President Trump’s tariffs create domino effects.`\
+https://nytimes.com/2025/10/07/business/eu-steel-tariffs-quotas.html
+
+**Saul Zabar, Smoked Fish Czar of Upper West Side, Dies at 97**\
+`He led his parents’ appetizing store, Zabar’s, for more than 70 years, turning it into an institution synonymous with New York.`\
+https://nytimes.com/2025/10/07/dining/saul-zabar-dead.html
+
+**This TikTok Food Trend Is More Than 10,000 Years Old**\
+`It looks shiny and new on social media, but smoked salmon has been part of Indigenous tradition for centuries.`\
+https://nytimes.com/2025/10/07/dining/smoked-salmon-tiktok.html
+
 **Here is the latest on the storm.**\
 `By Judson Jones`\
 https://nytimes.com/live/2025/10/07/weather/tropical-storm-jerry-hurricane/here-is-the-latest-on-the-storm
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/10/07/weather/tropical-storm-jerry-hurricane
 **Leyton Orient stadium project aims to 'get 1m people through the gates every year'**\
 `Majority owner David Gandler wants the League One club to build one of the world’s “most technologically advanced” stadiums by 2031.`\
 https://nytimes.com/athletic/6697033/2025/10/07/leyton-orient-stadium-project/
-
-**Inter Miami's Jordi Alba announces retirement, team close to signing Sergio Reguilon**\
-`Alba had signed a contract extension until 2027 in May, while Reguilon is a free agent following his summer exit from Tottenham Hotspur.`\
-https://nytimes.com/athletic/6687859/2025/10/07/jordi-alba-inter-miami-sergio-reguilon/
-
-**Seeking Covid Shots for Their Children, Some Parents Hit a Wall**\
-`Children under 12 need different versions of Covid vaccines, but many pharmacies and pediatricians’ offices aren’t stocking them.`\
-https://nytimes.com/2025/10/07/well/covid-vaccine-children-parents-issues-rfk-jr.html
-
-**How to watch Broncos vs. Jets: Time, TV, streaming**\
-`Find out how to watch the Denver Broncos play the New York Jets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6697097/2025/10/07/broncos-vs-jets-stream-how-to-watch-oct-12/
 
