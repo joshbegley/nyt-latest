@@ -1,3 +1,7 @@
+**Back Pay May Be Withheld From Some Furloughed Federal Workers**\
+`The White House has stated that many federal employees may not be entitled to immediate back pay when the government reopens, contradicting a 2019 law that guarantees back pay for furloughed workers.`\
+https://nytimes.com/video/us/politics/100000010444978/furloughed-federal-workers-back-pay.html
+
 **Bondi Refuses Democrats’ Questions During Senate Hearing**\
 `Attorney General Pam Bondi refused to take questions from Democrats during a combative Senate Judiciary Committee hearing on Tuesday.`\
 https://nytimes.com/video/us/politics/100000010445134/bondi-attacks-democrats-senate-hearing.html
