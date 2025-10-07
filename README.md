@@ -1,10 +1,18 @@
-**Lessons From a Long War**\
-`The only viable path to a Palestinian state is an end to the fantasy of Israel’s destruction.`\
-https://nytimes.com/2025/10/07/opinion/lessons-from-a-long-war.html
+**How to watch Blue Jays at Yankees: Game 3 Time, TV, streaming**\
+`Find out how to watch the Toronto Blue Jays play the New York Yankees, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6696004/2025/10/07/blue-jays-vs-yankees-stream-how-to-watch-oct-7/
+
+**Word of the Day: iconoclast**\
+`This word has appeared in 16 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/10/07/learning/word-of-the-day-iconoclast.html
 
 **The New York Times in Print for Tuesday, Oct. 7, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/07/todays-new-york-times
+
+**Lessons From a Long War**\
+`The only viable path to a Palestinian state is an end to the fantasy of Israel’s destruction.`\
+https://nytimes.com/2025/10/07/opinion/lessons-from-a-long-war.html
 
 **Medical Helicopter Crashes on Highway in Sacramento**\
 `About 15 bystanders helped to lift the aircraft off a critically injured woman after it crashed in California’s capital on Monday evening, officials said.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6693262/2025/10/07/arsenal-arteta-bounce-pass/
 **Women's Champions League: This season's five key storylines**\
 `The Women's Champions League starts on Tuesday with a new format and many of the frontrunners stronger than ever`\
 https://nytimes.com/athletic/6693360/2025/10/07/womens-champions-league-stream-format-predictions/
-
-**Luka Vuskovic is already adored at Hamburg - the Tottenham loanee seems worth the hype**\
-`The 18-year-old defender's name has been printed on more than 1,000 shirts and his performances have been increasingly impressive`\
-https://nytimes.com/athletic/6693569/2025/10/07/vuskovic-hamburg-tottenham-loan/
-
-**Newcastle Q&A: Can Woltemade hit 20 goals? Is Ramsey better than Joelinton?**\
-`Newcastle reporter Chris Waugh answers readers' questions about all the most pressing issues at St James' Park`\
-https://nytimes.com/athletic/6690747/2025/10/07/inside-newcastle-woltemade-ramsey-joelinton/
 
