@@ -1,3 +1,7 @@
+**Tracking Tropical Storm Jerry**\
+`See the likely path and wind arrival times for Jerry`\
+https://nytimes.com/interactive/2025/weather/jerry-map-path-tracker.html
+
 **The Lawyer Who Secured Sweeping Presidential Power Now Helps Trump Deploy It**\
 `As the administration’s top advocate before the justices, D. John Sauer has notched several recent Supreme Court victories.`\
 https://nytimes.com/2025/10/07/us/politics/the-lawyer-who-secured-sweeping-presidential-power-now-helps-trump-deploy-it.html

@@ -1,3 +1,7 @@
+**Tracking Tropical Storm Jerry**\
+`See the likely path and wind arrival times for Jerry`\
+https://nytimes.com/interactive/2025/weather/jerry-map-path-tracker.html
+
 **The Lawyer Who Secured Sweeping Presidential Power Now Helps Trump Deploy It**\
 `As the administration’s top advocate before the justices, D. John Sauer has notched several recent Supreme Court victories.`\
 https://nytimes.com/2025/10/07/us/politics/the-lawyer-who-secured-sweeping-presidential-power-now-helps-trump-deploy-it.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6695676/2025/10/07/connor-mcdavid-shocks-the-hockey
 **Darlington Nagbe retires: An understated star with an impeccable reputation**\
 `Nagbe is retiring after a distinguished, trophy-laden career in MLS, and those closest to him paint a picture of a revered superstar`\
 https://nytimes.com/athletic/6693816/2025/10/07/darlington-nagbe-retires-mls-usmnt/
-
-**Is This the End of an Era for Soul Food in Washington?**\
-`As several of the city’s classic Black-owned restaurants close, some historians worry about the passing of a beloved tradition.`\
-https://nytimes.com/2025/10/07/dining/soul-food-washington.html
 
