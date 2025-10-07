@@ -1,3 +1,7 @@
+**Emma Raducanu retires from Wuhan Open match after blood pressure check in stifling conditions**\
+`The world No. 30 was 6-1, 4-1 down to Ann Li of the U.S. after being out of sorts for most of their match.`\
+https://nytimes.com/athletic/6696190/2025/10/07/emma-raducanu-wuhan-open-blood-pressure-tennis-extreme-heat/
+
 **Fantasy basketball 2025-26 sleepers: Matas Buzelis, Jaden McDaniels, the Porters and more**\
 `Stan Son looks at protypical sleepers and those who could eat with the right situation ahead of the 2025-26 fantasy basketball season.`\
 https://nytimes.com/athletic/6694422/2025/10/07/fantasy-basketball-2025-26-sleepers-matas-buzelis-jaden-mcdaniels/

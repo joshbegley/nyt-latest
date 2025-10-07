@@ -1,3 +1,7 @@
+**Emma Raducanu retires from Wuhan Open match after blood pressure check in stifling conditions**\
+`The world No. 30 was 6-1, 4-1 down to Ann Li of the U.S. after being out of sorts for most of their match.`\
+https://nytimes.com/athletic/6696190/2025/10/07/emma-raducanu-wuhan-open-blood-pressure-tennis-extreme-heat/
+
 **Fantasy basketball 2025-26 sleepers: Matas Buzelis, Jaden McDaniels, the Porters and more**\
 `Stan Son looks at protypical sleepers and those who could eat with the right situation ahead of the 2025-26 fantasy basketball season.`\
 https://nytimes.com/athletic/6694422/2025/10/07/fantasy-basketball-2025-26-sleepers-matas-buzelis-jaden-mcdaniels/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/07/world/canada/carney-trump-white-house-meeting.htm
 **Trump to Unveil Farmer Aid as China Shuns U.S. Crops**\
 `As it did in 2018, the White House plans to dole out relief funds to struggling U.S. farmers who have lost their biggest customer.`\
 https://nytimes.com/2025/10/07/us/politics/trump-farmers-aid-china-trade-war.html
-
-**What Clowns! (That’s a Compliment)**\
-`Natalie Palamides and Julia Masli are among the stars of a new clowning movement that revels in the comedy of failure. How did these fools become prestige?`\
-https://nytimes.com/2025/10/07/arts/television/natalie-palamides-weer-julia-masli.html
 
