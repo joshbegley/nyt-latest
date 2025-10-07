@@ -1,3 +1,7 @@
+**Israel Marks a Somber Two-Year Milestone in Subdued Fashion**\
+`The second anniversary of the Oct. 7 attacks comes with peace talks underway, but with hostages still in Gaza, more than 67,000 Palestinians dead and Israel more isolated than ever before.`\
+https://nytimes.com/2025/10/07/world/middleeast/october-7-anniversary-israel.html
+
 **How to Protect Your Pets From Pollution**\
 `Wildfire smoke, lead paint and other environmental toxins are health hazards for animals, too.`\
 https://nytimes.com/2025/10/07/science/pets-health-pollution.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6693884/2025/10/07/manchester-united-academy-player
 **How to watch Arizona State vs. Utah: Time, TV, streaming**\
 `Find out how to watch the Arizona State Sun Devils play the Utah Utes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6696114/2025/10/07/arizona-state-vs-utah-stream-how-to-watch-oct-11/
-
-**Opponents wise to Gravenberch and Salah gamble backfiring – why Liverpool are struggling**\
-`Three straight defeats have raised some questions over Liverpool's chances of another trophy-winning season. But what has caused this dip?`\
-https://nytimes.com/athletic/6694911/2025/10/07/liverpool-premier-league-salah-gravenberch-slot/
 
