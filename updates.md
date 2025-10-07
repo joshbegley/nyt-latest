@@ -1,3 +1,11 @@
+**NFL MVP odds: Mayfield, Mahomes move up, but Prescott is the dark horse**\
+`Is now the time to buy low on Prescott? Will Mayfield challenge Allen at the top?`\
+https://nytimes.com/athletic/6696994/2025/10/07/nfl-mvp-odds-week-6-mayfield-prescott/
+
+**What is the Alliance Defending Freedom?**\
+`The conservative Christian law firm and advocacy group has been involved in a number of recent cases, including challenges to abortion access and gay and transgender rights.`\
+https://nytimes.com/2025/10/07/us/politics/alliance-defending-freedom.html
+
 **Wild Cherry Does Dinner and a Movie A24 Style**\
 `The restaurant, a collaboration between the movie studio and the Frenchette chefs, is in a 100-year-old West Village theater.`\
 https://nytimes.com/2025/10/07/dining/nyc-restaurant-news.html
