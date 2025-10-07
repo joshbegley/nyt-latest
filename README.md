@@ -1,3 +1,7 @@
+**Oct. 7 Anniversary Arrives During Heated Final Stretch of Mayor’s Race**\
+`Both Zohran Mamdani and Andrew Cuomo planned to attend events marking the anniversary of the Hamas attacks and honoring the victims.`\
+https://nytimes.com/2025/10/07/nyregion/mamdani-israel-gaza-nyc-mayor.html
+
 **The Strangely Beautiful Realities You Can Discover in a Ken Jacobs Film**\
 `The avant-garde director, who died Sunday, changed our ideas of what cinema was and could be while showing us the old, lost New York.`\
 https://nytimes.com/2025/10/07/movies/ken-jacobs-appreciation.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6697830/2025/10/07/seahawks-vs-jaguars-stream-how-t
 **Joe Flacco trade grades: Bengals get desperate; Browns find free money**\
 `The Jake Browning situation was no longer tenable for Cincinnati, but how much of an upgrade is Flacco? `\
 https://nytimes.com/athletic/6697615/2025/10/07/joe-flacco-trade-grade-bengals-browns/
-
-**What Does the National Guard Do? Why Are Its Troops in U.S. Cities?**\
-`The Guard has been federally mobilized around the country at least 10 times since World War II, with presidents using it to respond to civil unrest.`\
-https://nytimes.com/2025/10/07/us/politics/national-guard-troops-uses.html
 
