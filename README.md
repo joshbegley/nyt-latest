@@ -1,3 +1,11 @@
+**Trump Administration Live Updates: President to Meet With Canada’s Leader Amid Tensions Over Tariffs**\
+``\
+https://nytimes.com/live/2025/10/07/us/trump-news
+
+**Cole Palmer has trademarked ‘Cold Palmer’. What does it mean for him (and Chelsea)?**\
+`The Athletic can reveal Cole Palmer has successfully trademarked 'Cold Palmer' and is trying to register other marks`\
+https://nytimes.com/athletic/6696334/2025/10/07/cole-palmer-cold-palmer-trademark-chelsea/
+
 **Saudi Arabia life 'like a peace bubble', says former WSL player Plumptre**\
 `"It does not mean I condone certain things, even if the move means I am associated with certain things," the Nigeria international said.`\
 https://nytimes.com/athletic/6696352/2025/10/07/ashleigh-plumptre-al-ittihad-leicester/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6692575/2025/10/07/mike-sullivan-ny-rangers-coaches
 **The 10 best things I saw in college football recruiting over the weekend**\
 `Five-star running back Ezavier Crowell, an Alabama commitment, earns the top spot this week for his incredible athleticism. `\
 https://nytimes.com/athletic/6694830/2025/10/07/college-football-recruiting-thoughts-week-6/
-
-**Inside the CFP selection war room, the committee has plenty to think about**\
-`How difficult was it to reach consensus? What role did the mounds of data play? And how will potential CFP expansion impact the committee?`\
-https://nytimes.com/athletic/6695456/2025/10/07/college-football-playoff-selection-committee-metrics-members/
-
-**'More than a hockey game': 25 years later, the Blue Jackets' debut still resonates**\
-`Members of the inaugural Blue Jackets recall the first game on Oct. 7, 2000.`\
-https://nytimes.com/athletic/6694032/2025/10/07/blue-jackets-first-game-anniversary/
 
