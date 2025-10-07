@@ -1,3 +1,15 @@
+**NHL waiver tracker: Best players on the wire throughout 2025-26 preseason**\
+`Corey Pronman and Harman Dayal provide analysis of the top players placed on waivers as the regular season approaches.`\
+https://nytimes.com/athletic/6662091/2025/10/07/nhl-waivers-tracker-preseason-2025/
+
+**Donald Trump on Super Bowl halftime performer Bad Bunny: 'I don't know who he is'**\
+`Bad Bunny was announced as this year's Super Bowl halftime performer in late September.`\
+https://nytimes.com/athletic/6697371/2025/10/07/donald-trump-bad-bunny-super-bowl-halftime/
+
+**Deion Sanders to have 'procedure' on blood clots, expects to remain with team**\
+`Sanders, who coached part of Colorado's loss to TCU with one shoe on his left foot, said he has a doctor's appointment scheduled.`\
+https://nytimes.com/athletic/6690646/2025/10/07/deion-sanders-blood-clots-comments-colorado/
+
 **On eve of the Maple Leafs season, one mystery remains: What's next for Easton Cowan?**\
 `After an excellent training camp, it looked as if Cowan had rightfully won an NHL spot.`\
 https://nytimes.com/athletic/6697430/2025/10/07/maple-leafs-lineup-easton-cowan/

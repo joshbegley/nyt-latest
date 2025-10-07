@@ -1,6 +1,18 @@
+**NHL waiver tracker: Best players on the wire throughout 2025-26 preseason**\
+`Corey Pronman and Harman Dayal provide analysis of the top players placed on waivers as the regular season approaches.`\
+https://nytimes.com/athletic/6662091/2025/10/07/nhl-waivers-tracker-preseason-2025/
+
+**Donald Trump on Super Bowl halftime performer Bad Bunny: 'I don't know who he is'**\
+`Bad Bunny was announced as this year's Super Bowl halftime performer in late September.`\
+https://nytimes.com/athletic/6697371/2025/10/07/donald-trump-bad-bunny-super-bowl-halftime/
+
 **On eve of the Maple Leafs season, one mystery remains: What's next for Easton Cowan?**\
 `After an excellent training camp, it looked as if Cowan had rightfully won an NHL spot.`\
 https://nytimes.com/athletic/6697430/2025/10/07/maple-leafs-lineup-easton-cowan/
+
+**Deion Sanders to have 'procedure' on blood clots, expects to remain with team**\
+`Sanders, who coached part of Colorado's loss to TCU with one shoe on his left foot, said he has a doctor's appointment scheduled.`\
+https://nytimes.com/athletic/6690646/2025/10/07/deion-sanders-blood-clots-comments-colorado/
 
 **Oklahoma QB John Mateer progressing, not fully practicing ahead of Texas**\
 `Reports say John Mateer is trying to return from hand surgery vs. Texas, but Oklahoma coach Brent Venables said his status is still unclear.`\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6697424/2025/10/07/super-bowl-odds-week-6-bills-lio
 **NBA's Adam Silver says WNBA conflict has 'become too personal'**\
 `Silver said he will step in if need be to CBA negotiations but has not yet.`\
 https://nytimes.com/athletic/6697436/2025/10/07/wnba-nba-adam-silver-cathy-engelbert-cba/
-
-**Priscilla Expected to Bring Heavy Rain to the Southwest United States**\
-`Forecasters expect moisture from the far-off hurricane to move inland through the West this week. Here’s where it could bring flooding.`\
-https://nytimes.com/2025/10/07/weather/hurricane-priscilla-us-rain-arizona-southwest-forecast.html
-
-**Browns trade veteran QB Joe Flacco to Bengals: Source**\
-`Flacco, 40, was benched by Cleveland ahead of its Week 5 game vs. Minnesota. `\
-https://nytimes.com/athletic/6697535/2025/10/07/bengals-joe-flacco-trade-browns-nfl-news/
-
-**Lions starting CB Terrion Arnold could return this month: Source**\
-`The news for Arnold was much better Tuesday after Dan Campbell pointed to a long-term absence for the starting cornerback.`\
-https://nytimes.com/athletic/6697423/2025/10/07/terrion-arnold-lions-shoulder-injury-update/
 
