@@ -1,3 +1,19 @@
+**On eve of the Maple Leafs season, one mystery remains: What's next for Easton Cowan?**\
+`After an excellent training camp, it looked as if Cowan had rightfully won an NHL spot.`\
+https://nytimes.com/athletic/6697430/2025/10/07/maple-leafs-lineup-easton-cowan/
+
+**Oklahoma QB John Mateer progressing, not fully practicing ahead of Texas**\
+`Reports say John Mateer is trying to return from hand surgery vs. Texas, but Oklahoma coach Brent Venables said his status is still unclear.`\
+https://nytimes.com/athletic/6697516/2025/10/07/john-mateer-oklahoma-injury-status-texas/
+
+**The Sound of ‘Ophelia’**\
+`Inspired by Taylor Swift’s “Showgirl” single, listen to a playlist of songs that use the tragic “Hamlet” heroine as inspiration.`\
+https://nytimes.com/2025/10/07/arts/music/amplifier-newsletter-ophelia-songs.html
+
+**New York Jets say deleted texts show conspiracy to defame team president**\
+`The Jets are accusing a former employee of scheming to fabricate sexual misconduct allegations and defaming the team with her husband.`\
+https://nytimes.com/athletic/6696975/2025/10/07/ny-jets-sexual-harassment-team-president-text-messages/
+
 **NFL Week 6 best bets: Bears to cover at Commanders and a couple big scores**\
 `Austin Mock's NFL Projection Model gave us a 6-1 Week 5 and a strong start to the season. Can he keep it up?`\
 https://nytimes.com/athletic/6697492/2025/10/07/nfl-best-bets-week-6-bears-commanders/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6697535/2025/10/07/bengals-joe-flacco-trade-browns-
 **Lions starting CB Terrion Arnold could return this month: Source**\
 `The news for Arnold was much better Tuesday after Dan Campbell pointed to a long-term absence for the starting cornerback.`\
 https://nytimes.com/athletic/6697423/2025/10/07/terrion-arnold-lions-shoulder-injury-update/
-
-**Tennessee Seventh Congressional District Election Results**\
-`Get live results and maps from the 2025 Tennessee special primary election.`\
-https://nytimes.com/interactive/2025/10/07/us/elections/results-tennessee-us-house-7-special.html
-
-**Golden Knights defenseman Alex Pietrangelo out for season and playoffs**\
-`With the move, Vegas is now eligible for full cap relief from Pietrangelo’s $8.8 million cap hit.`\
-https://nytimes.com/athletic/6697421/2025/10/07/golden-knights-alex-pietrangelo-out-season-injury/
-
-**Until Saturday: Belichick's UNC might just get worse**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/6697498/2025/10/07/bill-belichick-north-carolina-roster-until-saturday/
-
-**LeBron announces liquor brand partnership after teasing 'The Decision'**\
-`James, who begins his 23rd season in the NBA later this month, poked fun at his 2010 free agency reveal in an advertisement.`\
-https://nytimes.com/athletic/6697148/2025/10/07/lebron-decision-hennessy-partnership-lakers/
 
