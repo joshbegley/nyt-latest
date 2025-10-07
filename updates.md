@@ -1,3 +1,11 @@
+**How to watch Arizona State vs. Utah: Time, TV, streaming**\
+`Find out how to watch the Arizona State Sun Devils play the Utah Utes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6696114/2025/10/07/arizona-state-vs-utah-stream-how-to-watch-oct-11/
+
+**Opponents wise to Gravenberch, Salah gamble backfiring: Why Liverpool are currently struggling**\
+`Three straight defeats have raised some questions over Liverpool's chances of another trophy-winning season - but what has caused this dip?`\
+https://nytimes.com/athletic/6694911/2025/10/07/why-are-liverpool-struggling-opponents-wise-to-gravenberch-salah-gamble-backfiring/
+
 **Staff Shortages Lead to Delayed Flights Amid Government Shutdown**\
 `Airports across the country experienced ground delays because of a shortage of air traffic staff during the government shutdown. Transportation officials said that there was a slight up-tick in controllers calling in sick.`\
 https://nytimes.com/video/us/politics/100000010443174/air-traffic-staff-shortage-government-shutdown.html
