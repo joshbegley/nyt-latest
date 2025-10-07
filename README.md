@@ -1,3 +1,15 @@
+**In a Private Park in North Carolina, Confederate Statues Are Rising Again**\
+`A state law limits what can happen to a Confederate statue after it is removed. Valor Memorial, a private park, has become a destination for some.`\
+https://nytimes.com/2025/10/07/us/north-carolina-confederate-statues-park.html
+
+**Tropical Storm Jerry Forms in the Atlantic**\
+`The storm is not an immediate threat to land, but forecasters expect it to become a hurricane in the next few days.`\
+https://nytimes.com/live/2025/10/07/weather/tropical-storm-jerry-hurricane
+
+**Leyton Orient stadium project aims to 'get 1m people through the gates every year'**\
+`Majority owner David Gandler wants the League One club to build one of the world’s “most technologically advanced” stadiums by 2031.`\
+https://nytimes.com/athletic/6697033/2025/10/07/leyton-orient-stadium-project/
+
 **Inter Miami's Jordi Alba announces retirement, team close to signing Sergio Reguilon**\
 `Alba had signed a contract extension until 2027 in May, while Reguilon is a free agent following his summer exit from Tottenham Hotspur.`\
 https://nytimes.com/athletic/6687859/2025/10/07/jordi-alba-inter-miami-sergio-reguilon/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/07/style/mens-fashion-week-milan-paris.html
 **I’m Excited About These Eggs**\
 `Put Andy Baraghani’s chile-oil eggs on anything — toast, pasta, beans, yogurt, grains, greens — for an instant hit of protein and flavor.`\
 https://nytimes.com/2025/10/07/dining/im-excited-about-these-eggs.html
-
-**A Plea From Doctors: Cool It on the Supplements**\
-`As Americans take more gummies, pills and powders than ever, some physicians are trying to convince patients to be a bit more careful.`\
-https://nytimes.com/2025/10/07/well/doctors-supplements.html
-
-**Tracking Tropical Storm Jerry**\
-`See the likely path and wind arrival times for Jerry`\
-https://nytimes.com/interactive/2025/weather/jerry-map-path-tracker.html
-
-**The Lawyer Who Secured Sweeping Presidential Power Now Helps Trump Deploy It**\
-`As the administration’s top advocate before the justices, D. John Sauer has notched several recent Supreme Court victories.`\
-https://nytimes.com/2025/10/07/us/politics/trump-lawyer-supreme-court.html
 
