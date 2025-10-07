@@ -1,3 +1,11 @@
+**Trump Administration Live Updates: President to Meet With Canada’s Leader Amid Tensions Over Tariffs**\
+``\
+https://nytimes.com/live/2025/10/07/us/trump-news
+
+**Cole Palmer has trademarked ‘Cold Palmer’. What does it mean for him (and Chelsea)?**\
+`The Athletic can reveal Cole Palmer has successfully trademarked 'Cold Palmer' and is trying to register other marks`\
+https://nytimes.com/athletic/6696334/2025/10/07/cole-palmer-cold-palmer-trademark-chelsea/
+
 **Saudi Arabia life 'like a peace bubble', says former WSL player Plumptre**\
 `"It does not mean I condone certain things, even if the move means I am associated with certain things," the Nigeria international said.`\
 https://nytimes.com/athletic/6696352/2025/10/07/ashleigh-plumptre-al-ittihad-leicester/
