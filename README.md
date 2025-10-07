@@ -1,3 +1,7 @@
+**Back Pay May Be Withheld From Some Furloughed Federal Workers**\
+`The White House has stated that many federal employees may not be entitled to immediate back pay when the government reopens, contradicting a 2019 law that guarantees back pay for furloughed workers.`\
+https://nytimes.com/video/us/politics/100000010444978/furloughed-federal-workers-back-pay.html
+
 **Bondi Refuses Democrats’ Questions During Senate Hearing**\
 `Attorney General Pam Bondi refused to take questions from Democrats during a combative Senate Judiciary Committee hearing on Tuesday.`\
 https://nytimes.com/video/us/politics/100000010445134/bondi-attacks-democrats-senate-hearing.html
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/6698102/2025/10/07/ravens-chargers-trade-odafe-oweh
 **Henderson 'couldn't watch Liverpool' after Saudi move: 'It felt like a breakup'**\
 `Henderson opened up about how he struggled to come to terms with leaving Anfield after 12 years when he joined Al Ettifaq in 2023.`\
 https://nytimes.com/athletic/6697273/2025/10/07/jordan-henderson-liverpool-exit-saudi/
-
-**Ask a Correspondent, With Our Chief White House Reporter**\
-`Peter Baker answers questions from readers about covering President Trump and the changing U.S. role in the world.`\
-https://nytimes.com/2025/10/07/world/trump-peter-baker-israel-gaza-dubai-chocolate.html
 
