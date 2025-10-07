@@ -1,3 +1,7 @@
+**Big-market Cubs have no answers against dominant, small-market Brewers**\
+`Chicago led both games of this series after a home run in the top of the first inning and was outscored 16-4 after that.`\
+https://nytimes.com/athletic/6695942/2025/10/07/cubs-brewers-nlds-game-2-milwaukee-dominance/
+
 **What the Chiefs said after loss to the Jaguars — and what's been missing in 2-3 start**\
 `Chiefs defensive back Chamarri Conner described his viewpoint of a late defensive pass-interference call, one of 13 K.C. penalties.`\
 https://nytimes.com/athletic/6695126/2025/10/07/chiefs-jaguars-patrick-mahomes-chamarri-conner/
