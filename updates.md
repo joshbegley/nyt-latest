@@ -1,3 +1,7 @@
+**Kyren Williams must put fumbles behind him to be the running back Rams need**\
+`Williams has had his share of fumbles since becoming a starter in 2023, but he's a player the Rams need to reach their goals this season. `\
+https://nytimes.com/athletic/6695265/2025/10/07/rams-kyren-williams-fumble-issue/
+
 **Trump Administration Live Updates: President to Meet With Canada’s Leader Amid Tensions Over Tariffs**\
 ``\
 https://nytimes.com/live/2025/10/07/us/trump-news

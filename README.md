@@ -1,3 +1,7 @@
+**Is A.I. Investment Getting Too Circular?**\
+`Skeptics of a recent investment spree involving OpenAI and others say deals raise questions about the robustness of the artificial intelligence boom.`\
+https://nytimes.com/2025/10/07/business/dealbook/openai-nvidia-amd-investments-circular.html
+
 **Kyren Williams must put fumbles behind him to be the running back Rams need**\
 `Williams has had his share of fumbles since becoming a starter in 2023, but he's a player the Rams need to reach their goals this season. `\
 https://nytimes.com/athletic/6695265/2025/10/07/rams-kyren-williams-fumble-issue/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6695878/2025/10/07/jesus-luzardo-phillies-nlds-dodg
 **Howard: USMNT players must show reason to believe in them to avoid critics**\
 `The former national team goalkeeper says the squad can't expect blind faith from former players and the public`\
 https://nytimes.com/athletic/6689342/2025/10/07/howard-usmnt-pochettino-goalkeepers/
-
-**On new Rangers coaching staff, Sullivan keeps college buddies by his side**\
-`New York is trusting Sullivan to help the team rebound from a tumultuous 2024-25 season. In turn, he is trusting two former BU teammates.`\
-https://nytimes.com/athletic/6692575/2025/10/07/mike-sullivan-ny-rangers-coaches-bu-terriers/
 
