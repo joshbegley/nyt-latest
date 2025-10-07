@@ -23,7 +23,7 @@ https://nytimes.com/athletic/6697421/2025/10/07/golden-knights-alex-pietrangelo-
 https://nytimes.com/athletic/6697498/2025/10/07/bill-belichick-north-carolina-roster-until-saturday/
 
 **LeBron announces liquor brand partnership after teasing 'The Decision'**\
-`LeBron James, who begins his 23rd season in the NBA later this month, poked fun at his 2010 free agency reveal in an advertisement.`\
+`James, who begins his 23rd season in the NBA later this month, poked fun at his 2010 free agency reveal in an advertisement.`\
 https://nytimes.com/athletic/6697148/2025/10/07/lebron-decision-hennessy-partnership-lakers/
 
 **Republican Senators Denounce Jack Smith Over Jan. 6 Scrutiny of Phone Records**\
