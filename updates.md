@@ -1,3 +1,11 @@
+**How to watch Broncos vs. Jets: Time, TV, streaming**\
+`Find out how to watch the Denver Broncos play the New York Jets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6697097/2025/10/07/broncos-vs-jets-stream-how-to-watch-oct-12/
+
+**The Lawyer Who Secured Sweeping Presidential Power Now Helps Trump Deploy It**\
+`As the administration’s top advocate before the justices, D. John Sauer has notched several recent Supreme Court victories.`\
+https://nytimes.com/2025/10/07/us/politics/trump-lawyer-supreme-court.html
+
 **NFL fans frustrated by ticket download issues at Vikings-Browns game in London**\
 `An estimated 2,000 fans missed Sunday's kickoff at Tottenham Hotspur Stadium because of problems with the NFL's OnePass app.`\
 https://nytimes.com/athletic/6694568/2025/10/07/nfl-london-ticket-issues-vikings-browns/

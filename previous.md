@@ -1,3 +1,7 @@
+**How to watch Broncos vs. Jets: Time, TV, streaming**\
+`Find out how to watch the Denver Broncos play the New York Jets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6697097/2025/10/07/broncos-vs-jets-stream-how-to-watch-oct-12/
+
 **NFL fans frustrated by ticket download issues at Vikings-Browns game in London**\
 `An estimated 2,000 fans missed Sunday's kickoff at Tottenham Hotspur Stadium because of problems with the NFL's OnePass app.`\
 https://nytimes.com/athletic/6694568/2025/10/07/nfl-london-ticket-issues-vikings-browns/
@@ -24,7 +28,7 @@ https://nytimes.com/interactive/2025/weather/jerry-map-path-tracker.html
 
 **The Lawyer Who Secured Sweeping Presidential Power Now Helps Trump Deploy It**\
 `As the administration’s top advocate before the justices, D. John Sauer has notched several recent Supreme Court victories.`\
-https://nytimes.com/2025/10/07/us/politics/the-lawyer-who-secured-sweeping-presidential-power-now-helps-trump-deploy-it.html
+https://nytimes.com/2025/10/07/us/politics/trump-lawyer-supreme-court.html
 
 **Cade Cunningham spearheads Pistons' comeback to beat Grizzlies**\
 `Cunningham looked to be in midseason form as Detroit got several players involved in a preseason victory.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6695644/2025/10/07/detroit-pistons-cade-cunningham-
 **Why this Penguins season is their most refreshing in years**\
 `The Penguins are surrounded by hope, even if it's still in the distance.`\
 https://nytimes.com/athletic/6696717/2025/10/07/penguins-2025-26-nhl-schedule-projection/
-
-**Eight Eagles Thoughts: Saquon Barkley's touches, offense's 3-and-out rate, and more**\
-`Plus, why the Eagles are talking about getting to the line quicker.`\
-https://nytimes.com/athletic/6696614/2025/10/07/philadelphia-eagles-saquon-barkleys-touches-offense/
 
