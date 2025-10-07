@@ -1,3 +1,7 @@
+**The federal government may be shut down, but the Supreme Court is open.**\
+`By Ann E. Marimow`\
+https://nytimes.com/live/2025/10/07/us/supreme-court-conversion-therapy/the-federal-government-may-be-shut-down-but-the-supreme-court-is-open
+
 **Hijab bans in sports 'deny a space for women', say human rights advocates**\
 `France's ban of the Muslim head covering has been criticised, despite the country's president, Emmanuel Macron, supporting it.`\
 https://nytimes.com/athletic/6696650/2025/10/07/hijab-ban-sports-france-amnesty/

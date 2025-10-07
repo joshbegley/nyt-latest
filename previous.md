@@ -1,3 +1,7 @@
+**The federal government may be shut down, but the Supreme Court is open.**\
+`By Ann E. Marimow`\
+https://nytimes.com/live/2025/10/07/us/supreme-court-conversion-therapy/the-federal-government-may-be-shut-down-but-the-supreme-court-is-open
+
 **Hijab bans in sports 'deny a space for women', say human rights advocates**\
 `France's ban of the Muslim head covering has been criticised, despite the country's president, Emmanuel Macron, supporting it.`\
 https://nytimes.com/athletic/6696650/2025/10/07/hijab-ban-sports-france-amnesty/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/07/world/middleeast/trump-witkoff-kushner-israel-ham
 **3 Injured in Sacramento Highway Helicopter Crash**\
 `A medical helicopter crashed on a highway in Sacramento, critically injuring all three people on board, officials said.`\
 https://nytimes.com/video/us/100000010443577/sacramento-helicopter-crash-california.html
-
-**Men’s Clothes That Never Get Old**\
-`An outfit of tailored blazer, boot cut jeans and dress shirt opened wide at the collar had retro and modern appeal.`\
-https://nytimes.com/2025/10/07/style/street-style-look-cool-timeless-mens-clothes.html
 

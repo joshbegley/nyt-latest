@@ -1,3 +1,15 @@
+**The Supreme Court upheld a ban on transgender care for minors during the last term.**\
+`By Ann E. Marimow`\
+https://nytimes.com/live/2025/10/07/us/supreme-court-conversion-therapy/the-supreme-court-upheld-a-ban-on-transgender-care-for-minors-during-the-last-term
+
+**Taking Too Much Tylenol Has Proven Risks. Trump Didn’t Talk About Those.**\
+`Acetaminophen’s link to autism is unproven. But hundreds of Americans accidentally overdose on the drug each year, suffering liver damage that can require a transplant or even be fatal.`\
+https://nytimes.com/2025/10/07/health/tylenol-acetominophen-liver-damage-kenvue.html
+
+**Global Trade Growth to Slow Sharply Next Year, W.T.O. Says**\
+`The World Trade Organization said trade growth had proved more resilient in 2025 than expected, but would slow next year as result of President Trump’s tariffs.`\
+https://nytimes.com/2025/10/07/business/economy/global-trade-growth-wto.html
+
 **The federal government may be shut down, but the Supreme Court is open.**\
 `By Ann E. Marimow`\
 https://nytimes.com/live/2025/10/07/us/supreme-court-conversion-therapy/the-federal-government-may-be-shut-down-but-the-supreme-court-is-open
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/10/07/us/supreme-court-conversion-therapy
 **UEFA has approved league games being staged abroad. So what now?**\
 `Explaining UEFA's decision yesterday and how the world game views the prospect of playing league games overseas`\
 https://nytimes.com/athletic/6696205/2025/10/07/european-league-games-abroad-explained/
-
-**The Windup: NLDS heading toward 2 quick series**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6696126/2025/10/07/mlb-nlds-game-2-the-windup/
-
-**Witkoff and Kushner Set to Join Gaza Talks Soon, Official Says**\
-`Steve Witkoff and Jared Kushner, both architects of President Trump’s plan to end the war, are expected to join mediation efforts between Israel and Hamas.`\
-https://nytimes.com/2025/10/07/world/middleeast/trump-witkoff-kushner-israel-hamas-talks.html
-
-**3 Injured in Sacramento Highway Helicopter Crash**\
-`A medical helicopter crashed on a highway in Sacramento, critically injuring all three people on board, officials said.`\
-https://nytimes.com/video/us/100000010443577/sacramento-helicopter-crash-california.html
 
