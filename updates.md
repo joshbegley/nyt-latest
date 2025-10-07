@@ -1,3 +1,11 @@
+**Johnson & Johnson Ordered to Pay $966 Million in Latest Talc Lawsuit**\
+`The case involves a California woman who died from mesothelioma, a rare cancer. Her family claimed Johnson and Johnson’s talc powder products were to blame.`\
+https://nytimes.com/2025/10/07/business/johnson-johnson-talc-lawsuit.html
+
+**The Ravens are still favored to win the AFC North. Does that make sense?**\
+`Is it over for the Ravens, or should you throw a little hope their way?`\
+https://nytimes.com/athletic/6694020/2025/10/07/ravens-afc-north-betting-favorites/
+
 **Pressed on Justice Dept. Politicization, Bondi Goes on Attack**\
 `At a Senate committee hearing, the attorney general avoided answering pointed queries by repeatedly laying into her questioners and casting her responses as a defense of the Trump administration.`\
 https://nytimes.com/2025/10/07/us/politics/pam-bondi-hearing.html

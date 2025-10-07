@@ -1,3 +1,11 @@
+**Johnson & Johnson Ordered to Pay $966 Million in Latest Talc Lawsuit**\
+`The case involves a California woman who died from mesothelioma, a rare cancer. Her family claimed Johnson and Johnson’s talc powder products were to blame.`\
+https://nytimes.com/2025/10/07/business/johnson-johnson-talc-lawsuit.html
+
+**The Ravens are still favored to win the AFC North. Does that make sense?**\
+`Is it over for the Ravens, or should you throw a little hope their way?`\
+https://nytimes.com/athletic/6694020/2025/10/07/ravens-afc-north-betting-favorites/
+
 **Pressed on Justice Dept. Politicization, Bondi Goes on Attack**\
 `At a Senate committee hearing, the attorney general avoided answering pointed queries by repeatedly laying into her questioners and casting her responses as a defense of the Trump administration.`\
 https://nytimes.com/2025/10/07/us/politics/pam-bondi-hearing.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/07/arts/music/amplifier-newsletter-ophelia-songs.htm
 **New York Jets say deleted texts show conspiracy to defame team president**\
 `The Jets are accusing a former employee of scheming to fabricate sexual misconduct allegations and defaming the team with her husband.`\
 https://nytimes.com/athletic/6696975/2025/10/07/ny-jets-sexual-harassment-team-president-text-messages/
-
-**NFL Week 6 best bets: Bears to cover at Commanders and a couple big scores**\
-`Austin Mock's NFL Projection Model gave us a 6-1 Week 5 and a strong start to the season. Can he keep it up?`\
-https://nytimes.com/athletic/6697492/2025/10/07/nfl-best-bets-week-6-bears-commanders/
-
-**Super Bowl odds: Can these four contenders challenge the top tier?**\
-`A quartet of contenders is rising in Super Bowl odds. Can they challenge the favorites?`\
-https://nytimes.com/athletic/6697424/2025/10/07/super-bowl-odds-week-6-bills-lions-colts-buccaneers/
 
