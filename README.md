@@ -1,4 +1,12 @@
-**Stock Exchange Parent to Buy Stake in Polymarket, as Prediction Markets Go Mainstream**\
+**A Key Precedent Overturned Limits on Professionals’ Speech**\
+`The ruling, usually referred to as NIFLA, arose from a First Amendment challenge to California law regulating “crisis pregnancy centers.”`\
+https://nytimes.com/2025/10/07/us/politics/conversion-therapy-abortion-supreme-court-speech.html
+
+**Sean Payton's first Broncos weeklong trip changed a season. Could this one, too?**\
+`The Broncos sandwiched two wins around a weeklong trip to West Virginia last season and have a chance to replicate that result in London.`\
+https://nytimes.com/athletic/6696458/2025/10/07/sean-payton-broncos-london-jets/
+
+**N.Y. Stock Exchange Parent to Buy Stake in Polymarket, as Prediction Markets Go Mainstream**\
 `The $2 billion deal values the crypto-powered betting site, where users can wager on politics, sports and more, at about $8 billion.`\
 https://nytimes.com/2025/10/07/business/dealbook/polymarket-nyse-prediction-markets.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6696822/2025/10/07/nba-extensions-mavericks-heat-th
 **Here Are the Finalists for the 2025 National Book Awards**\
 `Novels by Karen Russell and Bryan Washington are among those vying for the award in fiction, while books about Gaza, foster care and women in Russia are up for the nonfiction prize.`\
 https://nytimes.com/2025/10/07/books/2025-national-book-award-finalists.html
-
-**Israel Mourns Oct. 7 Victims as Fighting in Gaza Continues**\
-`Quiet commemorations took place across Israel on the second anniversary of the Hamas-led Oct. 7 attacks. In Gaza, the fighting continued, and Israeli and Hamas delegations were set to meet in Egypt for a second day of indirect negotiations.`\
-https://nytimes.com/video/world/middleeast/100000010443398/israel-mourns-oct-7-victims-as-fighting-in-gaza-continues.html
-
-**How Giants leadership helped fumble away Saints game long before it started**\
-`The Giants continue to be plagued by a lack of attention to detail under the watch of coach Brian Daboll and GM Joe Schoen.`\
-https://nytimes.com/athletic/6695927/2025/10/07/ny-giants-brian-daboll-joe-schoen-fumble-saints/
 
