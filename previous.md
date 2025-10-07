@@ -1,3 +1,15 @@
+**Stars as Stanley Cup champs? Connor McDavid as MVP? NHL 2025-26 season predictions**\
+`The 2025-26 NHL season is finally upon us, and that means it’s time for The Athletic to ask its staff for their predictions.`\
+https://nytimes.com/athletic/6690057/2025/10/07/nhl-predictions-stanley-cup-stars-connor-mcdavid/
+
+**What the Filip Gustavsson-Wild extension means for Jesper Wallstedt**\
+`Gustavsson: “I think we have some very good potential to be a top-five goalie tandem in the league."`\
+https://nytimes.com/athletic/6694837/2025/10/07/wild-filip-gustavsson-extension-jesper-wallstedt/
+
+**How Cowboys, 49ers, Vikings prove injuries don't always equal doom: Week 5 film review**\
+`Also, the Eagles continue to struggle with offensive balance, and Baker Mayfield impresses again in Buccaneers' win.`\
+https://nytimes.com/athletic/6693205/2025/10/07/film-review-week-5-cowboys-49ers-vikings/
+
 **Leo to Visit Lebanon and Turkey in First Trip Abroad as Pope**\
 `The choice signals that Pope Leo XIV aims to press for peace in the Middle East and show support for Christians in the region.`\
 https://nytimes.com/2025/10/07/world/europe/pope-leo-lebanon-turkey.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6689516/2025/10/07/toronto-blue-jays-alds-yankees-m
 **From coach-QB trust to a good RB problem: 5 Panthers' developments to watch**\
 `Bryce Young said it "means the world" to him that Dave Canales called a pass play late in the fourth quarter with a chance to ice the game.`\
 https://nytimes.com/athletic/6695074/2025/10/07/panthers-bryce-young-rico-dowdle/
-
-**Down 2 starting cornerbacks, what are the Lions' options entering showdown vs. Chiefs?**\
-`With starters D.J. Reed and Terrion Arnold out with injuries, the Lions will lean on their depth to steady the cornerback position.`\
-https://nytimes.com/athletic/6695489/2025/10/07/lions-cornerbacks-injury-updates-status-chiefs/
-
-**How Javonte Williams has become Cowboys' 'bell cow' running back**\
-`Through the first five weeks of the season, Williams is the NFC's top rusher and is third overall.`\
-https://nytimes.com/athletic/6695632/2025/10/07/cowboys-javonte-williams-nfc-top-rusher/
-
-**Passion project: How Bears' Tyrique Stevenson has worked to improve after Hail Mary debacle**\
-`Stevenson and the Bears are headed back to Washington, where they were embarrassed last October. He's learned a lot since then.`\
-https://nytimes.com/athletic/6693520/2025/10/07/bears-tyrique-stevenson-improvement-hail-mary/
 

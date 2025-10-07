@@ -1,3 +1,15 @@
+**Stars as Stanley Cup champs? Connor McDavid as MVP? NHL 2025-26 season predictions**\
+`The 2025-26 NHL season is finally upon us, and that means it’s time for The Athletic to ask its staff for their predictions.`\
+https://nytimes.com/athletic/6690057/2025/10/07/nhl-predictions-stanley-cup-stars-connor-mcdavid/
+
+**What the Filip Gustavsson-Wild extension means for Jesper Wallstedt**\
+`Gustavsson: “I think we have some very good potential to be a top-five goalie tandem in the league."`\
+https://nytimes.com/athletic/6694837/2025/10/07/wild-filip-gustavsson-extension-jesper-wallstedt/
+
+**How Cowboys, 49ers, Vikings prove injuries don't always equal doom: Week 5 film review**\
+`Also, the Eagles continue to struggle with offensive balance, and Baker Mayfield impresses again in Buccaneers' win.`\
+https://nytimes.com/athletic/6693205/2025/10/07/film-review-week-5-cowboys-49ers-vikings/
+
 **Leo to Visit Lebanon and Turkey in First Trip Abroad as Pope**\
 `The choice signals that Pope Leo XIV aims to press for peace in the Middle East and show support for Christians in the region.`\
 https://nytimes.com/2025/10/07/world/europe/pope-leo-lebanon-turkey.html
