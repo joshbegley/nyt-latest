@@ -1,3 +1,7 @@
+**Giants Mailbagg: What does Bob Melvin's dismissal say about Buster Posey's offseason goals?**\
+`What will the 2026 starting lineup look like? How likely are the Giants to re-sign Justin Verlander? We answer those questions and more.`\
+https://nytimes.com/athletic/6695157/2025/10/07/sf-giants-buster-posey-goals-mailbagg/
+
 **Howard: USMNT players must show reason to believe in them to avoid critics**\
 `The former national team goalkeeper says the squad can't expect blind faith from former players and the public`\
 https://nytimes.com/athletic/6689342/2025/10/07/howard-usmnt-pochettino-goalkeepers/

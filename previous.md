@@ -1,3 +1,7 @@
+**Giants Mailbagg: What does Bob Melvin's dismissal say about Buster Posey's offseason goals?**\
+`What will the 2026 starting lineup look like? How likely are the Giants to re-sign Justin Verlander? We answer those questions and more.`\
+https://nytimes.com/athletic/6695157/2025/10/07/sf-giants-buster-posey-goals-mailbagg/
+
 **Howard: USMNT players must show reason to believe in them to avoid critics**\
 `The former national team goalkeeper says the squad can't expect blind faith from former players and the public`\
 https://nytimes.com/athletic/6689342/2025/10/07/howard-usmnt-pochettino-goalkeepers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6695479/2025/10/07/red-sox-2025-successful-season-c
 **Heisman straw poll: Does Miami have two contenders? Our staff weighs in**\
 `After a big week for Miami, two Hurricaines find themselves climbing The Athletic's straw poll. `\
 https://nytimes.com/athletic/6695055/2025/10/07/heisman-straw-poll-carson-beck-rueben-bain/
-
-**Why the Seahawks' defensive woes from Sunday might not be so easy to solve**\
-`Seattle has navigated injuries in the secondary before, but a depleted pass rush could create more difficult problems to solve.`\
-https://nytimes.com/athletic/6695400/2025/10/07/seahawks-injuries-pass-rush-defense-bucs/
 
