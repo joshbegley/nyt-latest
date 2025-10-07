@@ -1,3 +1,11 @@
+**How to watch Arizona State vs. Utah: Time, TV, streaming**\
+`Find out how to watch the Arizona State Sun Devils play the Utah Utes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6696114/2025/10/07/arizona-state-vs-utah-stream-how-to-watch-oct-11/
+
+**Opponents wise to Gravenberch, Salah gamble backfiring: Why Liverpool are currently struggling**\
+`Three straight defeats have raised some questions over Liverpool's chances of another trophy-winning season - but what has caused this dip?`\
+https://nytimes.com/athletic/6694911/2025/10/07/why-are-liverpool-struggling-opponents-wise-to-gravenberch-salah-gamble-backfiring/
+
 **Staff Shortages Lead to Delayed Flights Amid Government Shutdown**\
 `Airports across the country experienced ground delays because of a shortage of air traffic staff during the government shutdown. Transportation officials said that there was a slight up-tick in controllers calling in sick.`\
 https://nytimes.com/video/us/politics/100000010443174/air-traffic-staff-shortage-government-shutdown.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/07/us/sacramento-california-medical-helicopter-crash
 **Australia's opening dilemma: Weatherald, Konstas or a left-field pick? And is Khawaja still a shoo-in?**\
 `A dizzying number of openers have been tried since the retirement of David Warner but the make-up of the top two remains a work in progress`\
 https://nytimes.com/athletic/6633566/2025/10/07/australia-ashes-opener-khawaja-weatherald-konstas-harris/
-
-**Where there's a wheel, there's a way: Dodgers' trust in Mookie Betts provides defining moment**\
-`The Dodgers used a rarely seen defensive scheme to thwart the Phillies' comeback hopes and take a 2-0 series lead.`\
-https://nytimes.com/athletic/6695831/2025/10/07/dodgers-wheel-play-mookie-betts-mlb-playoffs/
-
-**Real Madrid mailbag: Ask Mario Cortegana and Guillermo Rai about the season so far**\
-`What would you like to ask our Real Madrid correspondents about their start to the season under Xabi Alonso?`\
-https://nytimes.com/athletic/6693809/2025/10/07/real-madrid-mailbag-questions/
 

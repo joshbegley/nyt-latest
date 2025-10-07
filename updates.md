@@ -1,3 +1,7 @@
+**Staff Shortages Lead to Delayed Flights Amid Government Shutdown**\
+`Airports across the country experienced ground delays because of a shortage of air traffic staff during the government shutdown. Transportation officials said that there was a slight up-tick in controllers calling in sick.`\
+https://nytimes.com/video/us/politics/100000010443174/air-traffic-staff-shortage-government-shutdown.html
+
 **Jimmy Kimmel Says His Numbers Are Better Than Trump’s**\
 `Kimmel is keeping the results of a new poll in perspective: “At this point, finding a toenail in your salad has a seven-point lead over Donald Trump.”`\
 https://nytimes.com/2025/10/07/arts/television/jimmy-kimmel-trump-poll.html
