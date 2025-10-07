@@ -1,3 +1,19 @@
+**What Does the National Guard Do? Why Are Its Troops in U.S. Cities?**\
+`The Guard has been federally mobilized around the country at least 10 times since World War II, with presidents using it to respond to civil unrest.`\
+https://nytimes.com/2025/10/07/us/politics/national-guard-troops-uses.html
+
+**Israel Cannot Go On Winning Like This**\
+`Until the recent U.S.-backed peace deal, Israel has continued to use force without engaging in any viable diplomacy. It must change to save itself.`\
+https://nytimes.com/2025/10/07/opinion/israel-gaza-war-palestinians-netanyahu.html
+
+**Tesla Reveals Cheaper Versions of Its Cars**\
+`Elon Musk’s electric car company said the new versions would start at around $37,000 and $40,000, prices that bring its cars closer to comparable gasoline vehicles.`\
+https://nytimes.com/2025/10/07/business/tesla-cheaper-model-y-3.html
+
+**LeBron's 'Second Decision' could have been memorable. Instead, it was corny**\
+`LeBron James' "The Decision" transfixed. "The Second Decision" on Tuesday was viewed to many as a marketing fail.`\
+https://nytimes.com/athletic/6697597/2025/10/07/lebron-james-decision-hennessy-ad-nba/
+
 **How to watch Avalanche vs. Kings: Time, TV, streaming**\
 `Find out how to watch the Colorado Avalanche play the Los Angeles Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6697794/2025/10/07/avalanche-vs-kings-stream-how-to-watch-oct-7/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/07/us/politics/shutdown-trump-health-care-subsidies.
 **Does the Knicks trading for Giannis Antetokounmpo even make sense?**\
 `Should the Bucks trade Antetokounmpo to New York? Should New York want him?`\
 https://nytimes.com/athletic/6697232/2025/10/07/knicks-giannis-antetokounmpo-trade-bucks-nba-news/
-
-**Is ‘South Park’ Trump-Proof?**\
-`It’s a prickly time for comedy, but one show is going harder than ever. The comedian Wyatt Cenac joins Wesley Morris to talk about the latest season of “South Park.”`\
-https://nytimes.com/video/podcasts/100000010444238/is-south-park-trump-proof.html
-
-**Feared Sudanese Warlord Is Convicted of War Crimes**\
-`A former Janjaweed militia commander was the first person found guilty by the International Criminal Court for atrocities in Darfur two decades ago.`\
-https://nytimes.com/2025/10/07/world/europe/sudan-darfur-icc-genocide-guilty.html
-
-**Johnson & Johnson Ordered to Pay $966 Million in Latest Talc Lawsuit**\
-`The case involves a California woman who died from mesothelioma, a rare cancer. Her family claimed Johnson and Johnson’s talc powder products were to blame.`\
-https://nytimes.com/2025/10/07/business/johnson-johnson-talc-lawsuit.html
-
-**The Ravens are still favored to win the AFC North. Does that make sense?**\
-`Is it over for the Ravens, or should you throw a little hope their way?`\
-https://nytimes.com/athletic/6694020/2025/10/07/ravens-afc-north-betting-favorites/
 
