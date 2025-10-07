@@ -1,3 +1,7 @@
+**The Right’s Civil War Over Charlie Kirk and Israel**\
+`Megyn Kelly knows which way the winds are blowing.`\
+https://nytimes.com/2025/10/06/opinion/republicans-conspiracies-charlie-kirk.html
+
 **We Tried to Reach Gazans We Interviewed Over Two Years of War. Here’s What Happened to Them.**\
 `We kept wondering: Did they find their missing relatives? Were they even still alive?`\
 https://nytimes.com/interactive/2025/10/06/world/middleeast/gaza-loss.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6695420/2025/10/06/clemson-vs-boston-college-stream
 **How to watch Arkansas vs. Tennessee: Time, TV, streaming**\
 `Find out how to watch the Arkansas Razorbacks play the Tennessee Volunteers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6695415/2025/10/06/arkansas-vs-tennessee-stream-how-to-watch-oct-11/
-
-**Can Sweet Songs Prevail Over Bloody Ones? Mexico Is Giving It a Try.**\
-`On Sunday, three contestants were crowned winners of the inaugural, government-run “Mexico Sings” competition, meant to promote songs that aren’t about drug cartels or violence.`\
-https://nytimes.com/2025/10/06/world/americas/mexico-canta-cartel-violence-music.html
 
