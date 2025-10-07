@@ -1,3 +1,15 @@
+**Fantasy basketball 2025-26 sleepers: Matas Buzelis, Jaden McDaniels, the Porters and more**\
+`Stan Son looks at protypical sleepers and those who could eat with the right situation ahead of the 2025-26 fantasy basketball season.`\
+https://nytimes.com/athletic/6694422/2025/10/07/fantasy-basketball-2025-26-sleepers-matas-buzelis-jaden-mcdaniels/
+
+**Knicks depth chart and rotation prediction 2.0: Preseason edition**\
+`Halfway through camp, do we have an idea of the Knicks' starting lineup and rotation ahead of the regular season?`\
+https://nytimes.com/athletic/6693465/2025/10/07/knicks-depth-chart-and-rotation-prediction-preseason/
+
+**For Celtics, preseason should reveal significant change in style on both ends**\
+`"We got some experience we lost, so we're trying to make up for that with speed and intensity," says Celtics star Jaylen Brown.`\
+https://nytimes.com/athletic/6691540/2025/10/07/celtics-preseason-jaylen-brown/
+
 **Trump Is Not Afraid of Civil War. Neither Is Stephen Miller.**\
 `After all, there is “an enemy within.”`\
 https://nytimes.com/2025/10/07/opinion/trump-miller-kirk-aftermath.html

@@ -1,3 +1,15 @@
+**Fantasy basketball 2025-26 sleepers: Matas Buzelis, Jaden McDaniels, the Porters and more**\
+`Stan Son looks at protypical sleepers and those who could eat with the right situation ahead of the 2025-26 fantasy basketball season.`\
+https://nytimes.com/athletic/6694422/2025/10/07/fantasy-basketball-2025-26-sleepers-matas-buzelis-jaden-mcdaniels/
+
+**Knicks depth chart and rotation prediction 2.0: Preseason edition**\
+`Halfway through camp, do we have an idea of the Knicks' starting lineup and rotation ahead of the regular season?`\
+https://nytimes.com/athletic/6693465/2025/10/07/knicks-depth-chart-and-rotation-prediction-preseason/
+
+**For Celtics, preseason should reveal significant change in style on both ends**\
+`"We got some experience we lost, so we're trying to make up for that with speed and intensity," says Celtics star Jaylen Brown.`\
+https://nytimes.com/athletic/6691540/2025/10/07/celtics-preseason-jaylen-brown/
+
 **Trump Is Not Afraid of Civil War. Neither Is Stephen Miller.**\
 `After all, there is “an enemy within.”`\
 https://nytimes.com/2025/10/07/opinion/trump-miller-kirk-aftermath.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/07/us/politics/trump-farmers-aid-china-trade-war.htm
 **What Clowns! (That’s a Compliment)**\
 `Natalie Palamides and Julia Masli are among the stars of a new clowning movement that revels in the comedy of failure. How did these fools become prestige?`\
 https://nytimes.com/2025/10/07/arts/television/natalie-palamides-weer-julia-masli.html
-
-**In 2020, Trump Intervened in Portland’s Protests. They Got Even Worse.**\
-`Here are five lessons for cities in the president’s sights, like Chicago and Memphis, drawn from the one city targeted by Mr. Trump in his first term, Portland, Ore.`\
-https://nytimes.com/2025/10/07/us/politics/portland-trump.html
-
-**How Bernie Williams Got to Carnegie Hall**\
-`The former Yankees center fielder has played the guitar since he was a teenager. Now he’s appearing in concert.`\
-https://nytimes.com/2025/10/07/nyregion/bernie-williams-yankees-carnegie-hall.html
-
-**As Blue Jays Advance, America’s Pastime Is in Canada’s Cross Hairs**\
-`Political tensions remain high between the United States and Canada, making this a striking moment for the Toronto Blue Jays to be dominating the New York Yankees in October.`\
-https://nytimes.com/2025/10/07/us/politics/trump-canada-blue-jays-yankees.html
 
