@@ -1,3 +1,23 @@
+**NFL fans frustrated by ticket download issues at Vikings-Browns game in London**\
+`An estimated 2,000 fans missed Sunday's kickoff at Tottenham Hotspur Stadium because of problems with the NFL's OnePass app.`\
+https://nytimes.com/athletic/6694568/2025/10/07/nfl-london-ticket-issues-vikings-browns/
+
+**USA Network names 76ers announcer Kate Scott as lead WNBA broadcaster**\
+`Scott recently made history as the first woman to announce an NFL regular-season game for Westwood One Radio Network.`\
+https://nytimes.com/athletic/6695960/2025/10/07/kate-scott-usa-network-wnba-broadcaster/
+
+**How Were the Men’s Clothes From the Women’s Shows?**\
+`In Paris and Milan, a handful of major fashion houses showed dual gender looks on the runways. Some worked, others felt like afterthoughts.`\
+https://nytimes.com/2025/10/07/style/mens-fashion-week-milan-paris.html
+
+**I’m Excited About These Eggs**\
+`Put Andy Baraghani’s chile-oil eggs on anything — toast, pasta, beans, yogurt, grains, greens — for an instant hit of protein and flavor.`\
+https://nytimes.com/2025/10/07/dining/im-excited-about-these-eggs.html
+
+**A Plea From Doctors: Cool It on the Supplements**\
+`As Americans take more gummies, pills and powders than ever, some physicians are trying to convince patients to be a bit more careful.`\
+https://nytimes.com/2025/10/07/well/doctors-supplements.html
+
 **Tracking Tropical Storm Jerry**\
 `See the likely path and wind arrival times for Jerry`\
 https://nytimes.com/interactive/2025/weather/jerry-map-path-tracker.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6696717/2025/10/07/penguins-2025-26-nhl-schedule-pr
 **Eight Eagles Thoughts: Saquon Barkley's touches, offense's 3-and-out rate, and more**\
 `Plus, why the Eagles are talking about getting to the line quicker.`\
 https://nytimes.com/athletic/6696614/2025/10/07/philadelphia-eagles-saquon-barkleys-touches-offense/
-
-**This Erotic Epic Is Marina Abramovic at Her Most ‘Insane’**\
-`The Serbian artist’s latest piece is a four-hour exploration of folklore and sexuality, featuring singers, dancers, musicians and film.`\
-https://nytimes.com/2025/10/07/theater/marina-abramovic-balkan-erotic-epic.html
-
-**College Football Playoff odds: Are Texas and Penn State dead in the water?**\
-`Big upsets derailed the College Football Playoff chances for Texas and Penn State, but the betting market isn't giving up on either team.`\
-https://nytimes.com/athletic/6692942/2025/10/07/college-football-playoff-odds-texas-penn-state/
-
-**What Is Strict Scrutiny, and Why Does It Matter?**\
-`It is the most demanding form of judicial review. If it applies, Colorado’s ban on conversion therapy is probably doomed.`\
-https://nytimes.com/2025/10/07/us/politics/strict-scrutiny-conversion-therapy-supreme-court.html
-
-**Red Light: Connor McDavid shocks the hockey world. Plus: Bonus oddly specific predictions**\
-`Good morning to everyone, with no exceptions, because the NHL is freaking back.`\
-https://nytimes.com/athletic/6695676/2025/10/07/connor-mcdavid-shocks-the-hockey-world-plus-bonus-oddly-specific-predictions/
-
-**Darlington Nagbe retires: An understated star with an impeccable reputation**\
-`Nagbe is retiring after a distinguished, trophy-laden career in MLS, and those closest to him paint a picture of a revered superstar`\
-https://nytimes.com/athletic/6693816/2025/10/07/darlington-nagbe-retires-mls-usmnt/
 
