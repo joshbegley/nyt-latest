@@ -1,3 +1,7 @@
+**Nobel Prize in Physics Is Awarded for Work in Quantum Physics**\
+`The prize was awarded to John Clarke, Michel H. Devoret and John M. Martinis.`\
+https://nytimes.com/2025/10/07/science/nobel-prize-physics.html
+
 **In NLDS Game 2 loss, Cubs see vaunted process fall apart against rival Brewers**\
 `As a team built on solid pitching and Gold Glove defense, the Cubs have come up short in both those phases of the game.`\
 https://nytimes.com/athletic/6695995/2025/10/07/cubs-brewers-nlds-game-2-process-development/
