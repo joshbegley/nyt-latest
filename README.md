@@ -1,3 +1,11 @@
+**Is This the End of an Era for Soul Food in Washington?**\
+`As several of the city’s classic Black-owned restaurants close, some historians worry about the passing of a beloved tradition.`\
+https://nytimes.com/2025/10/07/dining/soul-food-washington.html
+
+**Myles Turner's debut, starting lineup questions and other Bucks preseason takeaways**\
+`Three main takeaways stood out after the Milwaukee Bucks played their first NBA preseason game Monday night against the Miami Heat.`\
+https://nytimes.com/athletic/6694000/2025/10/07/myles-turner-bucks-nba-preseason-heat/
+
 **A Key Precedent Overturned Limits on Professionals’ Speech**\
 `The ruling, usually referred to as NIFLA, arose from a First Amendment challenge to California law regulating “crisis pregnancy centers.”`\
 https://nytimes.com/2025/10/07/us/politics/conversion-therapy-abortion-supreme-court-speech.html
@@ -23,18 +31,10 @@ https://nytimes.com/video/world/middleeast/100000010430534/what-people-in-gaza-t
 https://nytimes.com/video/embedded/dining/100000010441385/where-to-eat-in-nyc-patties.html
 
 **Mayor-Elect in Critical Condition After Stabbing in Western Germany**\
-`Iris Stalzer, the incoming mayor of Herdecke, was found stabbed in her home on Tuesday, officials said. It was initially unclear whether it had been a targeted attack.`\
+`Iris Stalzer, the incoming mayor of Herdecke, was found stabbed in her home, officials said. It was initially unclear whether it had been a targeted attack.`\
 https://nytimes.com/2025/10/07/world/europe/germany-herdecke-stalzer-attack.html
 
 **Duke names Celtics star Jayson Tatum as inaugural chief basketball officer**\
 `In the newly-created role, Celtics star Jayson Tatum will volunteer his time as a special advisor to coach Jon Scheyer and the Duke program.`\
 https://nytimes.com/athletic/6696857/2025/10/07/duke-celtics-jayson-tatum-chief-basketball-officer/
-
-**The Bounce: Which 2022 draftees should get extensions? Plus, previewing the Mavs and Heat**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/6696822/2025/10/07/nba-extensions-mavericks-heat-the-bounce/
-
-**Here Are the Finalists for the 2025 National Book Awards**\
-`Novels by Karen Russell and Bryan Washington are among those vying for the award in fiction, while books about Gaza, foster care and women in Russia are up for the nonfiction prize.`\
-https://nytimes.com/2025/10/07/books/2025-national-book-award-finalists.html
 

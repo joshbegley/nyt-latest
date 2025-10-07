@@ -1,3 +1,15 @@
+**A Key Precedent Overturned Limits on Professionals’ Speech**\
+`The ruling, usually referred to as NIFLA, arose from a First Amendment challenge to California law regulating “crisis pregnancy centers.”`\
+https://nytimes.com/2025/10/07/us/politics/conversion-therapy-abortion-supreme-court-speech.html
+
+**Sean Payton's first Broncos weeklong trip changed a season. Could this one, too?**\
+`The Broncos sandwiched two wins around a weeklong trip to West Virginia last season and have a chance to replicate that result in London.`\
+https://nytimes.com/athletic/6696458/2025/10/07/sean-payton-broncos-london-jets/
+
+**N.Y. Stock Exchange Parent to Buy Stake in Polymarket, as Prediction Markets Go Mainstream**\
+`The $2 billion deal values the crypto-powered betting site, where users can wager on politics, sports and more, at about $8 billion.`\
+https://nytimes.com/2025/10/07/business/dealbook/polymarket-nyse-prediction-markets.html
+
 **Stock Exchange Parent to Buy Stake in Polymarket, as Prediction Markets Go Mainstream**\
 `The $2 billion deal values the crypto-powered betting site, where users can wager on politics, sports and more, at about $8 billion.`\
 https://nytimes.com/2025/10/07/business/dealbook/polymarket-nyse-prediction-markets.html
