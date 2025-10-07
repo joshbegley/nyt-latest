@@ -1,3 +1,11 @@
+**McDavid says 2-year extension with Oilers 'gives us a chance to play this out'**\
+`McDavid expressed how he felt people should view his new contract, something that was clear from the moment he signed it.`\
+https://nytimes.com/athletic/6697542/2025/10/07/connor-mcdavid-oilers-contract-extension-years/
+
+**Mass Layoffs Trump Is Threatening in Shutdown Fight May Be Illegal**\
+`Unions have sued to block any firings, which budget experts believe are not even needed to protect essential federal services.`\
+https://nytimes.com/2025/10/07/us/politics/trump-government-shutdown-layoffs.html
+
 **Hunter Biden Pursued a Deal to Sell Land Around the U.S. Embassy in Romania**\
 `The proposed transaction, stemming from relationships that started while his father was vice president and involving a Chinese partner, underscores the extent of Mr. Biden’s questionable business dealings abroad.`\
 https://nytimes.com/2025/10/07/us/politics/hunter-biden-embassy-romania.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6697842/2025/10/07/patriots-vs-saints-stream-how-to
 **How to watch Cardinals vs. Colts: Time, TV, streaming**\
 `Find out how to watch the Arizona Cardinals play the Indianapolis Colts, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6697839/2025/10/07/cardinals-vs-colts-stream-how-to-watch-oct-12/
-
-**How to watch Browns vs. Steelers: Time, TV, streaming**\
-`Find out how to watch the Cleveland Browns play the Pittsburgh Steelers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6697837/2025/10/07/browns-vs-steelers-stream-how-to-watch-oct-12/
-
-**How to watch Cowboys vs. Panthers: Time, TV, streaming**\
-`Find out how to watch the Dallas Cowboys play the Carolina Panthers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6697835/2025/10/07/cowboys-vs-panthers-stream-how-to-watch-oct-12/
 
