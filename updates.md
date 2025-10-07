@@ -1,3 +1,11 @@
+**Lessons From a Long War**\
+`The only viable path to a Palestinian state is an end to the fantasy of Israel’s destruction.`\
+https://nytimes.com/2025/10/07/opinion/lessons-from-a-long-war.html
+
+**The New York Times in Print for Tuesday, Oct. 7, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/07/todays-new-york-times
+
 **Medical Helicopter Crashes on Highway in Sacramento**\
 `About 15 bystanders helped to lift the aircraft off a critically injured woman after it crashed in California’s capital on Monday evening, officials said.`\
 https://nytimes.com/2025/10/07/us/sacramento-california-medical-helicopter-crash.html
