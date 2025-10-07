@@ -1,3 +1,7 @@
+**Lions starting CB Terrion Arnold could return this month: Source**\
+`The news for Arnold was much better Tuesday after Dan Campbell pointed to a long-term absence for the starting cornerback.`\
+https://nytimes.com/athletic/6697423/2025/10/07/terrion-arnold-lions-shoulder-injury-update/
+
 **Tennessee Seventh Congressional District Election Results**\
 `Get live results and maps from the 2025 Tennessee special primary election.`\
 https://nytimes.com/interactive/2025/10/07/us/elections/results-tennessee-us-house-7-special.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6693891/2025/10/07/fantasy-football-usage-week-6/
 **Death of 1-Year-Old Boy in Brooklyn Is Ruled a Homicide**\
 `Anthony Casey was found unresponsive at his home in Brownsville on Friday. New York City’s chief medical examiner determined that he had died because of blows to his torso.`\
 https://nytimes.com/2025/10/07/nyregion/brooklyn-boy-homicide.html
-
-**Deadly Clashes Erupt Between Syrian Government Forces and Kurdish Fighters**\
-`Tensions have been building over government attempts to bring the Kurdish-led region in northeastern Syria under its authority. Kurdish leaders have so far resisted.`\
-https://nytimes.com/2025/10/07/world/middleeast/syria-sdf-clashes.html
 

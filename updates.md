@@ -1,3 +1,19 @@
+**Tennessee Seventh Congressional District Election Results**\
+`Get live results and maps from the 2025 Tennessee special primary election.`\
+https://nytimes.com/interactive/2025/10/07/us/elections/results-tennessee-us-house-7-special.html
+
+**Golden Knights defenseman Alex Pietrangelo out for season and playoffs**\
+`With the move, Vegas is now eligible for full cap relief from Pietrangelo’s $8.8 million cap hit.`\
+https://nytimes.com/athletic/6697421/2025/10/07/golden-knights-alex-pietrangelo-out-season-injury/
+
+**Until Saturday: Belichick's UNC might just get worse**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6697498/2025/10/07/bill-belichick-north-carolina-roster-until-saturday/
+
+**LeBron announces liquor brand partnership after teasing 'The Decision'**\
+`LeBron James, who begins his 23rd season in the NBA later this month, poked fun at his 2010 free agency reveal in an advertisement.`\
+https://nytimes.com/athletic/6697148/2025/10/07/lebron-decision-hennessy-partnership-lakers/
+
 **LeBron announces Hennessy partnership after teasing 'The Decision'**\
 `LeBron James, who begins his 23rd season in the NBA later this month, poked fun at his 2010 ESPN free agency reveal in an advertisement.`\
 https://nytimes.com/athletic/6697148/2025/10/07/lebron-decision-hennessy-partnership-lakers/
