@@ -1,3 +1,15 @@
+**Leo to Visit Lebanon and Turkey in First Trip Abroad as Pope**\
+`The choice signals that Pope Leo XIV aims to press for peace in the Middle East and show support for Christians in the region.`\
+https://nytimes.com/2025/10/07/world/europe/pope-leo-lebanon-turkey.html
+
+**The Pulse: The messiest game-winning TD**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6694277/2025/10/07/nlds-dodgers-brewers-jaguars-chiefs-the-pulse/
+
+**Is it time for Sam Reinhart to get his defensive due away from Aleksander Barkov's shadow?**\
+`"The man's a unicorn," coach Paul Maurice said of Reinhart, now the Panthers' biggest healthy star.`\
+https://nytimes.com/athletic/6694253/2025/10/07/sam-reinhart-panthers-barkov-selke/
+
 **Big-market Cubs have no answers against dominant, small-market Brewers**\
 `Chicago led both games of this series after a home run in the top of the first inning and was outscored 16-4 after that.`\
 https://nytimes.com/athletic/6695942/2025/10/07/cubs-brewers-nlds-game-2-milwaukee-dominance/
