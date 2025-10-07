@@ -1,3 +1,7 @@
+**Odafe Oweh trade grades: Chargers bolster pass rush; Ravens add Alohi Gilman, cap space**\
+`With Khalil Mack sidelined, the Chargers needed to find a complementary edge rusher for Tuli Tuipulotu. `\
+https://nytimes.com/athletic/6698263/2025/10/07/odafe-oweh-trade-grades-chargers-ravens/
+
 **Health Care Politics Bolster Democrats in Shutdown Fight**\
 `Even President Trump has conceded that he and his party could face political pain from rising premiums, stiffening Democrats’ spines as they demand a subsidy extension.`\
 https://nytimes.com/2025/10/07/us/politics/trump-democrats-shutdown-obamacare.html
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/6698257/2025/10/07/ncaa-college-football-transfer-p
 **Guardians postmortem takeaways: Carl Willis, José Ramírez, Emmanuel Clase, Luis Ortiz and more**\
 `The Guardians intend for the entire coaching staff to return in 2026 — but there could be some caveats.`\
 https://nytimes.com/athletic/6696888/2025/10/07/guardians-postmortem-takeaways-carl-willis-jose-ramirez-emmanuel-clase-luis-ortiz/
-
-**How Trump Is Using the Justice Department to Target His Enemies**\
-`President Trump has long spoken of seeking vengeance against his political enemies. Here’s a list of whom he is targeting.`\
-https://nytimes.com/interactive/2025/10/07/us/politics/trump-enemies-justice-department-investigations.html
 

@@ -1,3 +1,11 @@
+**Health Care Politics Bolster Democrats in Shutdown Fight**\
+`Even President Trump has conceded that he and his party could face political pain from rising premiums, stiffening Democrats’ spines as they demand a subsidy extension.`\
+https://nytimes.com/2025/10/07/us/politics/trump-democrats-shutdown-obamacare.html
+
+**As Browns' QB carousel continues, how close is Shedeur Sanders to getting his chance?**\
+`With Joe Flacco traded one week after being benched, who's next in line for Cleveland if Dillon Gabriel isn't playing up to par?  `\
+https://nytimes.com/athletic/6698151/2025/10/07/browns-quarterbacks-shedeur-sanders-joe-flacco/
+
 **Chinese Hackers Said to Target U.S. Law Firms**\
 `Williams & Connolly, one of the nation’s most prominent law firms, told clients that its computer systems had been infiltrated and that hackers may have gained access to some client emails.`\
 https://nytimes.com/2025/10/07/us/politics/chinese-hackers-us-law-firms.html
@@ -17,12 +25,4 @@ https://nytimes.com/athletic/6696888/2025/10/07/guardians-postmortem-takeaways-c
 **How Trump Is Using the Justice Department to Target His Enemies**\
 `President Trump has long spoken of seeking vengeance against his political enemies. Here’s a list of whom he is targeting.`\
 https://nytimes.com/interactive/2025/10/07/us/politics/trump-enemies-justice-department-investigations.html
-
-**An Interstellar Comet Flew Past Mars, and Spacecraft Took Pictures**\
-`3I/ATLAS, only the third object from beyond our solar system ever spotted from Earth, was viewed from Mars by an orbiting European spacecraft.`\
-https://nytimes.com/2025/10/07/science/mars-interstellar-comet-3i-atlas.html
-
-**In Israel, the Anniversary of Oct. 7 Was Quiet but Inescapable**\
-`Also, the Supreme Court seemed skeptical of a ban on conversion therapy. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2025/10/07/briefing/anniversary-of-oct-7-pets-health-watchdogs.html
 
