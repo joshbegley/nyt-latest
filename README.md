@@ -7,7 +7,7 @@ https://nytimes.com/2025/10/08/arts/television/josh-johnson-trump-ghislaine-maxw
 https://nytimes.com/athletic/6699370/2025/10/08/lions-vs-chiefs-stream-how-to-watch-oct-12/
 
 **Arsenal Women's errors typical of a team searching for rhythm and confidence**\
-`Rediscovering that calm and ruthlessness that made Arsenal such a threat under Slegers last season becomes more important with each game.`\
+`Rediscovering that calm and ruthlessness that made Arsenal such a threat under Slegers last season becomes more important with each game`\
 https://nytimes.com/athletic/6698385/2025/10/08/arsenal-women-lyonnes-champions-league/
 
 **How to watch Blue Jays at Yankees: Game 4 Time, TV, streaming**\
