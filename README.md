@@ -1,3 +1,11 @@
+**In Manila, a Singular Home With Global Influences**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/in-manila-a-singular-home-with-global-influences
+
+**Nick Sirianni on Jalen Hurts, Saquon Barkley, A.J. Brown meeting: 'Love that'**\
+`The three leaders on offense didn't disclose exactly what they said during the meeting.`\
+https://nytimes.com/athletic/6700523/2025/10/08/eagles-aj-brown-saquon-barkley-jalen-hurts-meeting-nick-sirianni/
+
 **Yegor Chinakhov, after trade request, expected to be scratched from Blue Jackets' opener**\
 `The Blue Jackets open their season on Thursday in Nashville.`\
 https://nytimes.com/athletic/6700503/2025/10/08/yegor-chinakhov-blue-jackets-scratch-trade/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/10/08/science/toronto-subway-deer-dna-fossil.html
 **College athletes could soon be allowed to bet on professional sports**\
 `If Division II and Division III also vote to approve the change, the new rules will go into effect Nov. 1.`\
 https://nytimes.com/athletic/6700539/2025/10/08/ncaa-gambling-student-athletes-professional-sports/
-
-**Woman Drugged and Raped by Dozens Returns to Court to Confront Assailant**\
-`Gisèle Pelicot’s ex-husband and others were convicted in one of France’s most notorious cases. She returned to court to denounce a man who challenged the verdict.`\
-https://nytimes.com/2025/10/08/world/europe/pelicot-rape-appeal-france.html
-
-**The Harvard ‘Die-in’ That Set Off a Debate Over Protest and Punishment**\
-`An Israeli American student said he was assaulted during a protest. Two years later, Republicans continue to raise the episode in their campaign to force schools to punish the student protesters.`\
-https://nytimes.com/2025/10/08/us/harvard-palestinian-protest-die-in-lawsuit.html
 
