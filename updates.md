@@ -1,3 +1,19 @@
+**Devil In Disguise**\
+`The victims are the focus in Peacock’s new limited series, “Devil in Disguise.”`\
+https://nytimes.com/paidpost/peacock/the-making-of/devil-in-disguise.html
+
+**Justin Pearson, Tennessee Democrat Known for Activism, to Run for Congress**\
+`Mr. Pearson, a member of the Tennessee House of Representatives since 2023, will challenge U.S. Representative Steve Cohen, a fellow Democrat.`\
+https://nytimes.com/2025/10/08/us/politics/justin-pearson-steve-cohen-congress-tennessee.html
+
+**Tracking Tropical Storm Nakri**\
+`See the likely path and wind arrival times for Nakri`\
+https://nytimes.com/interactive/2025/weather/nakri-map-path-tracker.html
+
+**Oilers sign Mattias Ekholm to 3-year contract extension**\
+`Ekholm has become an integral part of Edmonton's defense since being acquired from Nashville.`\
+https://nytimes.com/athletic/6700146/2025/10/08/mattias-ekholm-contract-oilers-extension/
+
 **The Bounce: NBA sophomores who could surge. Plus, previewing the Grizzlies and Pacers**\
 `Zach Harper catches you up on leaguewide news.`\
 https://nytimes.com/athletic/6700068/2025/10/08/nba-second-year-players-grizzlies-pacers-the-bounce/

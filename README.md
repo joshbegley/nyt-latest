@@ -1,3 +1,7 @@
+**Israel Intercepts More Gaza-Bound Activist Boats**\
+`The Israeli military intercepted a nine-boat flotilla aiming to break Israel’s naval blockade of Gaza to deliver aid. The Israeli Foreign Ministry said the activists were being brought to Israel for deportation.`\
+https://nytimes.com/video/world/middleeast/100000010445848/israel-intercepts-more-gaza-bound-activist-boats.html
+
 **Devil In Disguise**\
 `The victims are the focus in Peacock’s new limited series, “Devil in Disguise.”`\
 https://nytimes.com/paidpost/peacock/the-making-of/devil-in-disguise.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/08/world/europe/madrid-building-collapse-spain.html
 **How a Gen Z Revolution Spiraled Out of Control**\
 `Young people in Nepal rose up against corruption and inequality. But they say they did not expect the bloodshed, arson and government downfall that followed.`\
 https://nytimes.com/2025/10/08/world/asia/nepal-gen-z-revolution.html
-
-**Lowetide: Six critical questions for the Oilers entering the 2025-26 season**\
-`There are more than the usual number of questions for a team with championship aspirations like the Oilers.`\
-https://nytimes.com/athletic/6697111/2025/10/08/edmonton-oilers-2025-26-schedule-questions/
 
