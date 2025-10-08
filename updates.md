@@ -1,3 +1,11 @@
+**Kevin Durant says Russell Westbrook ‘deserves’ to be in NBA, open to reunion**\
+`Durant shut down any knowledge of him and Westbrook potentially reuniting in Houston, saying it's "not my decision" for now.`\
+https://nytimes.com/athletic/6700661/2025/10/08/kevin-durant-russell-westbrook-rockets-reunion-nba/
+
+**The ‘Irony’ of the Government Shutdown**\
+`Health care premiums are expected to double for millions of Americans on Obamacare next year if the law doesn’t change in time. Neera Tanden walks Ezra Klein through the policy stakes of the government shutdown.`\
+https://nytimes.com/video/opinion/100000010441605/the-irony-of-the-government-shutdown.html
+
 **How to watch Bruins vs. Capitals: Time, TV, streaming**\
 `Find out how to watch the Boston Bruins play the Washington Capitals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6700963/2025/10/08/bruins-vs-capitals-stream-how-to-watch-oct-8/

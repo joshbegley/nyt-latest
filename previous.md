@@ -1,3 +1,11 @@
+**Kevin Durant says Russell Westbrook ‘deserves’ to be in NBA, open to reunion**\
+`Durant shut down any knowledge of him and Westbrook potentially reuniting in Houston, saying it's "not my decision" for now.`\
+https://nytimes.com/athletic/6700661/2025/10/08/kevin-durant-russell-westbrook-rockets-reunion-nba/
+
+**The ‘Irony’ of the Government Shutdown**\
+`Health care premiums are expected to double for millions of Americans on Obamacare next year if the law doesn’t change in time. Neera Tanden walks Ezra Klein through the policy stakes of the government shutdown.`\
+https://nytimes.com/video/opinion/100000010441605/the-irony-of-the-government-shutdown.html
+
 **How to watch Bruins vs. Capitals: Time, TV, streaming**\
 `Find out how to watch the Boston Bruins play the Washington Capitals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6700963/2025/10/08/bruins-vs-capitals-stream-how-to-watch-oct-8/
@@ -25,12 +33,4 @@ https://nytimes.com/video/opinion/100000010441604/the-gops-cynical-ridiculous-sh
 **How did Noem’s meetings with elected leaders in Portland go? Accounts have varied sharply.**\
 `By Anna Griffin`\
 https://nytimes.com/live/2025/10/08/us/trump-national-guard-chicago-illinois/how-did-noems-meetings-with-elected-leaders-in-portland-go-the-answers-vary-sharply
-
-**Jonathan Lear, Philosopher Who Embraced Freud, Dies at 76**\
-`Defying scholarly norms, he took a hands-on approach to research. To study resilience, he visited the Crow Nation; to explore Freudian theory, he became a psychoanalyst.`\
-https://nytimes.com/2025/10/08/books/jonathan-lear-dead.html
-
-**Submit your questions for Kevin Fishbain's Bears mailbag**\
-`The Bears are 2-2 coming off their bye week and head to Washington, the scene of the Fail Mary last season. What's on your mind?`\
-https://nytimes.com/athletic/6700879/2025/10/08/bears-mailbag-questions-45/
 
