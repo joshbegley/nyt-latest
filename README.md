@@ -1,3 +1,23 @@
+**Aces-Mercury WNBA Finals posting highest viewership in decades**\
+`Through two games, the series is averaging 1.5 million viewers between games on ABC and ESPN. `\
+https://nytimes.com/athletic/6701556/2025/10/08/aces-mercury-wnba-finals-ratings-game-2-2/
+
+**Has Your Scientific Work Been Cut? We Want to Hear.**\
+`For a new series, Times journalists are speaking with scientists whose research has ended as a result of policy changes by the Trump administration.`\
+https://nytimes.com/2025/10/08/climate/trump-climate-science-funding.html
+
+**She Found a Link Between Air Pollution and Infertility**\
+`Shruthi Mahalingaiah, a Harvard researcher, investigated the fertility risks women face from air pollution. But her grant was canceled.`\
+https://nytimes.com/2025/10/08/climate/mahalingaiah-air-pollution-infertility.html
+
+**She Studied How Logging Affects Pollinators**\
+`Kim Ballare was a research ecologist with the U.S. Forest Service until her federal grant “got snatched away.”`\
+https://nytimes.com/2025/10/08/science/ecology-forests-pollinators.html
+
+**He Studied How Emissions Are Heating Up U.S. Cities**\
+`“Fundamentally, we were trying to learn about these systems to prevent people from dying unnecessarily from heat,” said Kevin Gurney, an atmospheric scientist.`\
+https://nytimes.com/2025/10/08/climate/kevin-gurney-emissions-science.html
+
 **On Politics: The Redistricting Fight You Haven’t Heard About**\
 `Trump wants Republicans to draw more safe seats. In Utah, they might lose some instead.`\
 https://nytimes.com/2025/10/08/us/politics/on-politics-utah-redistricting.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/10/08/nyregion/rutgers-professor-threats-antifa.html
 **Tiny Love Stories: ‘Even Painful Things Can Heal’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/10/08/style/tiny-modern-love-stories-even-painful-things-can-heal.html
-
-**Smutty Dressing Is Back**\
-`And other takeaways courtesy of T’s editors after a month’s worth of shows in New York, London, Milan and Paris.`\
-https://nytimes.com/2025/10/08/t-magazine/fashion-shows-miu-miu-prada-tradwife-smutty.html
-
-**Thrillers Guaranteed to Give You Goosebumps**\
-`Our columnist on notable new releases.`\
-https://nytimes.com/2025/10/08/books/review/new-thriller-novels.html
-
-**Mariners-Tigers Game 4 takeaways: Detroit's bats keep their season alive**\
-`The Mariners will now have to face Cy Young favorite Tarik Skubal in a winner take all Game 5 on Friday in Seattle.`\
-https://nytimes.com/athletic/6701209/2025/10/08/tigers-mariners-game-4-score-results-takeaways-playoffs-mlb/
-
-**This Carbon Steel Pan Is a Great Nonstick Alternative**\
-`Carbon steel is the undersung hero of pans: It’s more durable than nonstick cookware, lighter than cast iron, and can last a lifetime.`\
-https://nytimes.com/video/smarter-living/100000010446602/this-carbon-steel-pan-is-a-great-nonstick-alternative.html
-
-**What’s in Our Queue? Melissa Ethridge and More**\
-`Text by Elisabeth Egan`\
-https://nytimes.com/card/2025/10/08/arts/editors-recommendations-melissaetheridge
 

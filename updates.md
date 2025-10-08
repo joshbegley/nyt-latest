@@ -1,3 +1,7 @@
+**On Politics: The Redistricting Fight You Haven’t Heard About**\
+`Trump wants Republicans to draw more safe seats. In Utah, they might lose some instead.`\
+https://nytimes.com/2025/10/08/us/politics/on-politics-utah-redistricting.html
+
 **84-Year-Old Climber Who Died in Fall Was an Avid Mountaineer**\
 `Even in his 80s, Pete Cleveland, a fixture of rock climbing in the Midwest, went climbing every week and trekked for at least a mile a day, his son said.`\
 https://nytimes.com/2025/10/08/us/pete-cleveland-dead-climber-wisconsin.html
