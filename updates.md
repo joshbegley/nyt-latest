@@ -1,3 +1,23 @@
+**Arsenal Women's errors typical of a team searching for rhythm and confidence**\
+`Rediscovering that calm and ruthlessness that made Arsenal such a threat under Slegers last season becomes more important with each game.`\
+https://nytimes.com/athletic/6698385/2025/10/08/arsenal-women-lyonnes-champions-league/
+
+**How to watch Blue Jays at Yankees: Game 4 Time, TV, streaming**\
+`Find out how to watch the Toronto Blue Jays play the New York Yankees, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6699343/2025/10/08/blue-jays-vs-yankees-stream-how-to-watch-oct-8/
+
+**How to watch Phillies at Dodgers: Game 3 Time, TV, streaming**\
+`Find out how to watch the Philadelphia Phillies play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6699340/2025/10/08/phillies-vs-dodgers-stream-how-to-watch-oct-8/
+
+**Research shows 27,440 gambling ads evident during one Premier League weekend**\
+`A Premier League ban on front-of-shirt gambling sponsors comes into effect next season, but 11 or 20 clubs have one in 2025-26.`\
+https://nytimes.com/athletic/6697257/2025/10/08/premier-league-gambling-betting-advertising/
+
+**Word of the Day: vascular**\
+`This word has appeared in 32 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/10/08/learning/word-of-the-day-vascular.html
+
 **Unsealed document details abuse allegations against Dolphins' Tyreek Hill**\
 `The document alleges Hill became "increasingly aggressive, violent, and demanding over time."`\
 https://nytimes.com/athletic/6699211/2025/10/08/tyreek-hill-court-documents-released-dolphins/
