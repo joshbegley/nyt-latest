@@ -1,3 +1,19 @@
+**How to watch Canadiens vs. Maple Leafs: Time, TV, streaming**\
+`Find out how to watch the Montreal Canadiens play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6700354/2025/10/08/canadiens-vs-maple-leafs-stream-how-to-watch-oct-8/
+
+**NFL Week 6 survivor pool picks: How to stay safe this week after Week 5's demolition**\
+`Our survivor columnists share strategy and their picks for Week 6, with Packers over Bengals as the most popular pick.`\
+https://nytimes.com/athletic/6700121/2025/10/08/nfl-week-6-survivor-pool-picks-strategy-packers-patriots/
+
+**The Windup: This Big Dumper fan came prepared**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6699385/2025/10/08/cal-raleigh-home-run-alds-the-windup/
+
+**Printable 2025 fantasy basketball cheat sheet rankings for H2H and Roto formats**\
+`Do you need a quick reference for your H2H and Roto fantasy basketball drafts? Do you love The Athletic's rankings? Look no further. `\
+https://nytimes.com/athletic/6693818/2025/10/08/printable-2025-fantasy-basketball-cheat-sheet-rankings/
+
 **Bulls preseason opener highlighted by late defensive intensity, grit of young roster**\
 `A come-from-behind preseason win was punctuated by the intensity and defensive effort Chicago Bulls coach Billy Donovan has emphasized.`\
 https://nytimes.com/athletic/6700056/2025/10/08/bulls-matas-buzelis-defense-nba/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/08/dining/make-better-meatballs.html
 **Joan Kennedy, Who Married Into a Political Dynasty, Dies at 89**\
 `The wife of Senator Ted Kennedy for a quarter of a century, she both basked and struggled in the reflected glare of a family constantly in the spotlight.`\
 https://nytimes.com/2025/10/08/us/joan-kennedy-dead.html
-
-**The conflict between Trump and Comey dates to their first meeting.**\
-`By Maggie Haberman`\
-https://nytimes.com/live/2025/10/08/us/james-comey-arraignment-fbi/the-conflict-between-trump-and-comey-dates-to-their-first-meeting
-
-**Trump Takes Aim at Illinois Governor and Chicago Mayor**\
-`In an early morning Truth Social post, the president said Gov. JB Pritzker of Illinois and Mayor Brandon Johnson of Chicago should be jailed for failing to protect ICE officers.`\
-https://nytimes.com/2025/10/08/us/trump-pritzker-brandon-johnson-jail-ice.html
-
-**Liam Millar's comeback from an ACL tear – and the depression that followed**\
-`The Canada international and Hull City winger faced depression after the crippling injury. Now, he's back in frame for the 2026 World Cup`\
-https://nytimes.com/athletic/6698048/2025/10/08/liam-millar-canada-hull-city-acl-injury-depression-world-cup-marsch/
-
-**Israel Intercepts More Gaza-Bound Activist Boats**\
-`The Israeli military intercepted a nine-boat flotilla aiming to break Israel’s naval blockade of Gaza to deliver aid. The Israeli Foreign Ministry said the activists were being brought to Israel for deportation.`\
-https://nytimes.com/video/world/middleeast/100000010445848/israel-intercepts-more-gaza-bound-activist-boats.html
 

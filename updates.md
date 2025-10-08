@@ -1,3 +1,19 @@
+**How to watch Canadiens vs. Maple Leafs: Time, TV, streaming**\
+`Find out how to watch the Montreal Canadiens play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6700354/2025/10/08/canadiens-vs-maple-leafs-stream-how-to-watch-oct-8/
+
+**NFL Week 6 survivor pool picks: How to stay safe this week after Week 5's demolition**\
+`Our survivor columnists share strategy and their picks for Week 6, with Packers over Bengals as the most popular pick.`\
+https://nytimes.com/athletic/6700121/2025/10/08/nfl-week-6-survivor-pool-picks-strategy-packers-patriots/
+
+**The Windup: This Big Dumper fan came prepared**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6699385/2025/10/08/cal-raleigh-home-run-alds-the-windup/
+
+**Printable 2025 fantasy basketball cheat sheet rankings for H2H and Roto formats**\
+`Do you need a quick reference for your H2H and Roto fantasy basketball drafts? Do you love The Athletic's rankings? Look no further. `\
+https://nytimes.com/athletic/6693818/2025/10/08/printable-2025-fantasy-basketball-cheat-sheet-rankings/
+
 **Bulls preseason opener highlighted by late defensive intensity, grit of young roster**\
 `A come-from-behind preseason win was punctuated by the intensity and defensive effort Chicago Bulls coach Billy Donovan has emphasized.`\
 https://nytimes.com/athletic/6700056/2025/10/08/bulls-matas-buzelis-defense-nba/
