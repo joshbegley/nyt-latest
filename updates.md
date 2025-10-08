@@ -1,3 +1,15 @@
+**The U.S. attorney leading the government’s case is a Trump loyalist.**\
+`By Alan Feuer`\
+https://nytimes.com/live/2025/10/08/us/james-comey-arraignment-fbi/the-us-attorney-leading-the-governments-case-is-a-trump-loyalist
+
+**Cuomo Calls for Rebuilding Rikers Island and Keeping the Jails Open**\
+`Former Gov. Andrew M. Cuomo wants to ditch New York City’s plan to replace the Rikers Island jail complex and use the sites for the proposed borough-based jails for affordable housing.`\
+https://nytimes.com/2025/10/08/nyregion/cuomo-rikers-island-jails.html
+
+**Broadway Could Face a Strike This Fall. Here’s What to Know.**\
+`The Broadway League and unions representing actors, stage managers and musicians are trying to negotiate new contracts, but workers are increasingly frustrated.`\
+https://nytimes.com/2025/10/08/theater/broadway-strike-actors-musicians-unions.html
+
 **What I’m seeing from the Canucks: Lekkerimäki’s swagger, Cootes' potential and more**\
 `Also, Teddy Blueger will be out for about a week after sustaining an injury in the preseason finale against Edmonton.`\
 https://nytimes.com/athletic/6697637/2025/10/08/canucks-preview-lekkerimakis-swagger-cootes-potential/
