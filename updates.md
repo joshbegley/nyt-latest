@@ -1,3 +1,15 @@
+**Myanmar Military Paraglider Bombs Buddhist Festival, Killing Dozens**\
+`The junta targeted a  festival in the Sagaing region where people were also protesting army rule, according to witnesses and the civilian government in exile.`\
+https://nytimes.com/2025/10/08/world/asia/myanmar-bombing-buddhist-festival-chaung-u.html
+
+**Ravens are considering everything after disappointing start: 'The urgency is high'**\
+`Baltimore coach John Harbaugh confirmed that scheme adjustments are part of the pending “decisions” the team will make this week.`\
+https://nytimes.com/athletic/6695903/2025/10/08/ravens-john-harbaugh-personnel-changes/
+
+**How Aaron Judge's momentous home run was 'better than a perfect swing'**\
+`Judge has hit six home runs when facing elimination in the postseason. None resonated like this one.`\
+https://nytimes.com/athletic/6699321/2025/10/08/aaron-judge-yankees-alds-new-york/
+
 **Bold predictions for the Bruins in 2025-26: Swayman roars back, Zacha is traded, Hagens debuts**\
 `Also: Geekie scores more goals, another Bruins trade, Hampus Lindolm makes Team Sweden and Peeke gets an extension.`\
 https://nytimes.com/athletic/6697426/2025/10/08/bruins-bold-predictions-swayman-zacha-hagens/
