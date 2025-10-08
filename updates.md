@@ -1,3 +1,7 @@
+**Unsealed document details abuse allegations against Dolphins' Tyreek Hill**\
+`The document alleges Hill became "increasingly aggressive, violent, and demanding over time."`\
+https://nytimes.com/athletic/6699211/2025/10/08/tyreek-hill-court-documents-released-dolphins/
+
 **The New York Times in Print for Wednesday, Oct. 8, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/08/todays-new-york-times
