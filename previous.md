@@ -1,3 +1,11 @@
+**‘Man, we’re tiny’: The Brewers don’t stand tall. But they play big**\
+`The diminutiveness fits the ethos expressed by manager Pat Murphy, that the Brewers are underdogs.`\
+https://nytimes.com/athletic/6698271/2025/10/08/milwaukee-brewers-mlb-postseason-height-analysis/
+
+**The New York Times International Edition in Print for Thursday, Oct. 9, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/10/08/todays-new-york-times-international-edition
+
 **How Much It Costs to Drive an E.V. and a Gas Car in Every State**\
 `Charging an electric car battery is usually cheaper than going to the gas pump. But it depends on where you live.`\
 https://nytimes.com/2025/10/08/upshot/ev-versus-gas-car-comparison-cost.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/08/world/americas/porky-lopez-aliaga-lima-mayor-trum
 **Helmut Lachenmann’s Music Is Like Nothing Else**\
 `The composer, who turns 90 this fall, has expanded the spectrum of sounds that instruments produce and that audiences can perceive.`\
 https://nytimes.com/2025/10/08/arts/music/helmut-lachenmann-composer.html
-
-**Tom Friedman on the Only Way to Solve the Israel-Hamas War**\
-`Can Donald Trump end the “worst war” with the latest round of peace talks?`\
-https://nytimes.com/2025/10/08/opinion/hamas-israel-ceasefire-trump-peace-gaza.html
-
-**Thousands of Miles From the U.S., Charlie Kirk Becomes a Political Tool**\
-`The mayor of Lima, Peru, held a Charlie Kirk memorial — filled with attendees bused in from poor neighborhoods — as he sought help from the Trump administration.`\
-https://nytimes.com/2025/10/08/world/americas/charlie-kirk-peru-porky.html
 

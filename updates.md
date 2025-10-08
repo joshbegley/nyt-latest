@@ -1,3 +1,11 @@
+**‘Man, we’re tiny’: The Brewers don’t stand tall. But they play big**\
+`The diminutiveness fits the ethos expressed by manager Pat Murphy, that the Brewers are underdogs.`\
+https://nytimes.com/athletic/6698271/2025/10/08/milwaukee-brewers-mlb-postseason-height-analysis/
+
+**The New York Times International Edition in Print for Thursday, Oct. 9, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/10/08/todays-new-york-times-international-edition
+
 **How Much It Costs to Drive an E.V. and a Gas Car in Every State**\
 `Charging an electric car battery is usually cheaper than going to the gas pump. But it depends on where you live.`\
 https://nytimes.com/2025/10/08/upshot/ev-versus-gas-car-comparison-cost.html
