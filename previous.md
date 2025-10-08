@@ -1,3 +1,7 @@
+**Superstars always get paid? Introducing the biggest bargain in sports: MoneyCall**\
+`More in this week's sports business cheat sheet: LeBron's Decision 2 debacle, the NHL bull case and Dan's best sports-parenting advice.`\
+https://nytimes.com/athletic/6700476/2025/10/08/connor-mcdavid-nhl-contract-bargains-moneycall/
+
 **Madison Cunningham Won a Grammy. Next Came a Hard Reset.**\
 `The California guitarist’s last LP, “Revealer,” was named best folk album in 2023. But after a divorce at 27, she returns with a defiant edge.`\
 https://nytimes.com/2025/10/08/arts/music/madison-cunningham-ace.html
@@ -21,8 +25,4 @@ https://nytimes.com/2025/10/08/magazine/magazine-email/donating-animal-shelter-e
 **France Holds Its Breath Over Last-Ditch Talks for a Government Deal**\
 `Sébastien Lecornu, the country’s outgoing prime minister, said he believed France’s political parties could overcome divisions and avoid snap legislative elections.`\
 https://nytimes.com/2025/10/08/world/europe/france-lecornu.html
-
-**At a Bastion of Classical Music, She’s Amplifying the Experimental**\
-`Caterina Barbieri, 35, plays gigs on banks of synthesizers. That makes her a surprising choice to lead the cerebral Venice Music Biennale.`\
-https://nytimes.com/2025/10/08/arts/music/caterina-barbieri-venice-music-biennale.html
 

@@ -1,3 +1,7 @@
+**Superstars always get paid? Introducing the biggest bargain in sports: MoneyCall**\
+`More in this week's sports business cheat sheet: LeBron's Decision 2 debacle, the NHL bull case and Dan's best sports-parenting advice.`\
+https://nytimes.com/athletic/6700476/2025/10/08/connor-mcdavid-nhl-contract-bargains-moneycall/
+
 **Madison Cunningham Won a Grammy. Next Came a Hard Reset.**\
 `The California guitarist’s last LP, “Revealer,” was named best folk album in 2023. But after a divorce at 27, she returns with a defiant edge.`\
 https://nytimes.com/2025/10/08/arts/music/madison-cunningham-ace.html
