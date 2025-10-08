@@ -1,3 +1,11 @@
+**‘ICE Goes Masked for a Single Reason’**\
+`Authoritarian creep reaches a new phase`\
+https://nytimes.com/2025/10/08/opinion/ice-masks-immigration.html
+
+**Wild shuffle lineup ahead of opener: Ohgren and Haight in, Yurov out, Sturm out long-term**\
+`Per league sources, Sturm is expected to undergo surgery for a back injury that has been ailing him since the first practice of camp.`\
+https://nytimes.com/athletic/6700853/2025/10/08/wild-injuries-sturm-haight-brodin/
+
 **Quentin Grimes 'happy' to be with Sixers after contract uncertainty**\
 `Grimes, 25, accepted a one-year qualifying offer on the last day he could do so and will be an unrestricted free agent next summer.`\
 https://nytimes.com/athletic/6700970/2025/10/08/quentin-grimes-sixers-contract/
@@ -29,12 +37,4 @@ https://nytimes.com/video/opinion/100000010441605/the-irony-of-the-government-sh
 **How to watch Bruins vs. Capitals: Time, TV, streaming**\
 `Find out how to watch the Boston Bruins play the Washington Capitals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6700963/2025/10/08/bruins-vs-capitals-stream-how-to-watch-oct-8/
-
-**Four Workers Killed in Madrid Building Collapse**\
-`A building going under renovations collapsed in Madrid, leaving four people dead, authorities said. The mayor said the building’s top floor gave in, pulling down debris and triggered the floors beneath it to crumble.`\
-https://nytimes.com/video/world/europe/100000010447232/world-europe-madrid-collapse.html
-
-**How to watch Flames vs. Oilers: Time, TV, streaming**\
-`Find out how to watch the Calgary Flames play the Edmonton Oilers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6700960/2025/10/08/flames-vs-oilers-stream-how-to-watch-oct-8/
 
