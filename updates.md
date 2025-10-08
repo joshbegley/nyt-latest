@@ -1,3 +1,7 @@
+**Thrillers Guaranteed to Give You Goosebumps**\
+`Our columnist on notable new releases.`\
+https://nytimes.com/2025/10/08/books/review/new-thriller-novels.html
+
 **Mariners-Tigers Game 4 takeaways: Detroit's bats keep their season alive**\
 `The Mariners will now have to face Cy Young favorite Tarik Skubal in a winner take all Game 5 on Friday in Seattle.`\
 https://nytimes.com/athletic/6701209/2025/10/08/tigers-mariners-game-4-score-results-takeaways-playoffs-mlb/

@@ -1,3 +1,7 @@
+**Thrillers Guaranteed to Give You Goosebumps**\
+`Our columnist on notable new releases.`\
+https://nytimes.com/2025/10/08/books/review/new-thriller-novels.html
+
 **Mariners-Tigers Game 4 takeaways: Detroit's bats keep their season alive**\
 `The Mariners will now have to face Cy Young favorite Tarik Skubal in a winner take all Game 5 on Friday in Seattle.`\
 https://nytimes.com/athletic/6701209/2025/10/08/tigers-mariners-game-4-score-results-takeaways-playoffs-mlb/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6701398/2025/10/08/cubs-brewers-nlds-game-3-infield
 **Trump Says Gaza Talks Are Going ‘Very Well’ and Will Visit Middle East**\
 `The president’s comments and a note from Marco Rubio hinted that the two-year-long conflict may be about to pause, if not end.`\
 https://nytimes.com/2025/10/08/us/politics/trump-mideast-visit-israel-gaza.html
-
-**On One of New York’s Slowest Buses, Mamdani Pushes Plan to Speed Them Up**\
-`Zohran Mamdani, the leading candidate in the race to be New York City’s next mayor, held a campaign event on a bus that crawled across Midtown Manhattan to highlight a signature proposal.`\
-https://nytimes.com/2025/10/08/nyregion/mamdani-bus-plan-nyc-mayor.html
 
