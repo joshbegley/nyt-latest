@@ -1,3 +1,15 @@
+**Comey’s defense lawyer once prosecuted big corruption cases and a high-profile leak.**\
+`By Charlie Savage`\
+https://nytimes.com/live/2025/10/08/us/james-comey-arraignment-fbi/comeys-defense-lawyer-once-prosecuted-big-corruption-cases-and-a-high-profile-leak
+
+**Make Better Meatballs**\
+`Sue Li shows you how with her smart recipes for classic Italian meatballs, chicken meatballs with yogurt sauce and lion’s head meatballs.`\
+https://nytimes.com/2025/10/08/dining/make-better-meatballs.html
+
+**Joan Kennedy, Who Married Into a Political Dynasty, Dies at 89**\
+`The wife of Senator Ted Kennedy for a quarter of a century, she both basked and struggled in the reflected glare of a family constantly in the spotlight.`\
+https://nytimes.com/2025/10/08/us/joan-kennedy-dead.html
+
 **The conflict between Trump and Comey dates to their first meeting.**\
 `By Maggie Haberman`\
 https://nytimes.com/live/2025/10/08/us/james-comey-arraignment-fbi/the-conflict-between-trump-and-comey-dates-to-their-first-meeting
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/08/us/politics/justin-pearson-steve-cohen-congress-t
 **Tracking Tropical Storm Nakri**\
 `See the likely path and wind arrival times for Nakri`\
 https://nytimes.com/interactive/2025/weather/nakri-map-path-tracker.html
-
-**Oilers sign Mattias Ekholm to 3-year contract extension**\
-`Ekholm has become an integral part of Edmonton's defense since being acquired from Nashville.`\
-https://nytimes.com/athletic/6700146/2025/10/08/mattias-ekholm-contract-oilers-extension/
-
-**The Bounce: NBA sophomores who could surge. Plus, previewing the Grizzlies and Pacers**\
-`Zach Harper catches you up on leaguewide news.`\
-https://nytimes.com/athletic/6700068/2025/10/08/nba-second-year-players-grizzlies-pacers-the-bounce/
-
-**The Therapist Next Door**\
-`College students are meeting with “embedded” counselors in dorms and academic buildings, with promising results.`\
-https://nytimes.com/2025/10/08/well/mind/embedded-therapist-college-counselor.html
 
