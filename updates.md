@@ -1,3 +1,7 @@
+**Another African Charity Tied to Prince Harry Faces Criticism**\
+`A charity tied to the British royal confirmed that the government of Chad has cut ties with the group, after allegations of mismanagement.`\
+https://nytimes.com/2025/10/08/world/africa/prince-harry-chad-african-parks.html
+
 **Gerrard set for talks over Rangers return**\
 `Rangers parted company with Russell Martin on Sunday.`\
 https://nytimes.com/athletic/6693193/2025/10/08/steven-gerrard-rangers-manager-next/
