@@ -1,3 +1,7 @@
+**Let Us Help You Find Your Next Children’s Book**\
+`Whether you’re looking for a classic or the latest and greatest, start here.`\
+https://nytimes.com/interactive/2025/books/childrens-books.html
+
 **Kevin Durant says Russell Westbrook ‘deserves’ to be in NBA, open to reunion**\
 `Durant shut down any knowledge of him and Westbrook potentially reuniting in Houston, saying it's "not my decision" for now.`\
 https://nytimes.com/athletic/6700661/2025/10/08/kevin-durant-russell-westbrook-rockets-reunion-nba/
