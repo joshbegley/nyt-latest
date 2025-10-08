@@ -1,3 +1,7 @@
+**TAFC: Pochettino and USMNT players — is it good to talk? Plus: Arsenal's plane talking**\
+`Today in TAFC: Pochettino keeps quiet, Arteta turns to the RAF for help, Darlington Nagbe retires for a refreshing reason`\
+https://nytimes.com/athletic/6699451/2025/10/08/pochettino-and-usmnt-players-is-it-good-to-talk-plus-arsenals-plane-talking/
+
 **Myanmar Military Paraglider Bombs Buddhist Festival, Killing Dozens**\
 `The junta targeted a  festival in the Sagaing region where people were also protesting army rule, according to witnesses and the civilian government in exile.`\
 https://nytimes.com/2025/10/08/world/asia/myanmar-bombing-buddhist-festival-chaung-u.html

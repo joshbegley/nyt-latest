@@ -1,3 +1,7 @@
+**TAFC: Pochettino and USMNT players — is it good to talk? Plus: Arsenal's plane talking**\
+`Today in TAFC: Pochettino keeps quiet, Arteta turns to the RAF for help, Darlington Nagbe retires for a refreshing reason`\
+https://nytimes.com/athletic/6699451/2025/10/08/pochettino-and-usmnt-players-is-it-good-to-talk-plus-arsenals-plane-talking/
+
 **Myanmar Military Paraglider Bombs Buddhist Festival, Killing Dozens**\
 `The junta targeted a  festival in the Sagaing region where people were also protesting army rule, according to witnesses and the civilian government in exile.`\
 https://nytimes.com/2025/10/08/world/asia/myanmar-bombing-buddhist-festival-chaung-u.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6687675/2025/10/08/bears-left-tackle-situation-theo
 **Fights, firings and flings: London is now the NFL's wildest road trip**\
 `London games are a seemingly permanent part of the NFL landscape. They also have left some indelible marks.`\
 https://nytimes.com/athletic/6658919/2025/10/08/nfl-london-games-flight-trip/
-
-**Love them or loathe them, Panthers relish their role as the NHL's bad guys**\
-`Like it or not, the center of the hockey world is in its southernmost market, and Florida won't be content until it's built a true dynasty.`\
-https://nytimes.com/athletic/6698652/2025/10/08/florida-panthers-nhl-stanley-cup/
 
