@@ -1,3 +1,11 @@
+**In Manila, a Singular Home With Global Influences**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/in-manila-a-singular-home-with-global-influences
+
+**Nick Sirianni on Jalen Hurts, Saquon Barkley, A.J. Brown meeting: 'Love that'**\
+`The three leaders on offense didn't disclose exactly what they said during the meeting.`\
+https://nytimes.com/athletic/6700523/2025/10/08/eagles-aj-brown-saquon-barkley-jalen-hurts-meeting-nick-sirianni/
+
 **Yegor Chinakhov, after trade request, expected to be scratched from Blue Jackets' opener**\
 `The Blue Jackets open their season on Thursday in Nashville.`\
 https://nytimes.com/athletic/6700503/2025/10/08/yegor-chinakhov-blue-jackets-scratch-trade/

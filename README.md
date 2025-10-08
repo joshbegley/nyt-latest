@@ -1,3 +1,11 @@
+**How Zohran Mamdani Came to Embrace the Palestinian Cause**\
+`Mr. Mamdani, the leader in the New York City mayor’s race, was shaped by a lifelong journey that influenced his view of Israel and formed the basis of his activist approach to politics.`\
+https://nytimes.com/2025/10/08/nyregion/zohran-mamdani-israel-palestine.html
+
+**Gerald Arpino, Minus His Groovy Fourth Dimension**\
+`A festival at the Joyce Theater leaves out the Age of Aquarius work that made this choreographer popular, presenting surprisingly old-fashioned ballet instead.`\
+https://nytimes.com/2025/10/08/arts/dance/gerald-arpino-festival-joyce-theater-joffrey.html
+
 **In Manila, a Singular Home With Global Influences**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/in-manila-a-singular-home-with-global-influences
@@ -29,8 +37,4 @@ https://nytimes.com/2025/10/08/us/politics/trump-portland-troops.html
 **Toronto’s Subway Deer Enigma Unmasked With DNA Analysis**\
 `It took nearly 50 years to work out the identity of a caribou-like fossil first discovered by construction workers.`\
 https://nytimes.com/2025/10/08/science/toronto-subway-deer-dna-fossil.html
-
-**College athletes could soon be allowed to bet on professional sports**\
-`If Division II and Division III also vote to approve the change, the new rules will go into effect Nov. 1.`\
-https://nytimes.com/athletic/6700539/2025/10/08/ncaa-gambling-student-athletes-professional-sports/
 
