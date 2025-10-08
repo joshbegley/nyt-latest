@@ -1,3 +1,7 @@
+**On Politics: The Redistricting Fight You Haven’t Heard About**\
+`Trump wants Republicans to draw more safe seats. In Utah, they might lose some instead.`\
+https://nytimes.com/2025/10/08/us/politics/on-politics-utah-redistricting.html
+
 **84-Year-Old Climber Who Died in Fall Was an Avid Mountaineer**\
 `Even in his 80s, Pete Cleveland, a fixture of rock climbing in the Midwest, went climbing every week and trekked for at least a mile a day, his son said.`\
 https://nytimes.com/2025/10/08/us/pete-cleveland-dead-climber-wisconsin.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/smarter-living/100000010446602/this-carbon-steel-pan-i
 **What’s in Our Queue? Melissa Ethridge and More**\
 `Text by Elisabeth Egan`\
 https://nytimes.com/card/2025/10/08/arts/editors-recommendations-melissaetheridge
-
-**Colombia’s President Says Boat Bombed by U.S. Was Carrying Colombians**\
-`The Trump administration has said that it is attacking boats and killing their occupants because they are smuggling drugs from Venezuela to the United States.`\
-https://nytimes.com/2025/10/08/world/americas/colombia-citizens-boat-us-bombed.html
 
