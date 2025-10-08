@@ -1,3 +1,15 @@
+**What are the charges against Comey?**\
+`By Charlie Savage`\
+https://nytimes.com/live/2025/10/08/us/james-comey-arraignment-fbi/what-are-the-charges-against-comey
+
+**Here’s the latest.**\
+`By Glenn Thrush`\
+https://nytimes.com/live/2025/10/08/us/james-comey-arraignment-fbi/heres-the-latest
+
+**Live Updates: Longtime Trump Target James Comey to Appear in Court**\
+`The former F.B.I. director, scorned by the president since he ordered the inquiry into the Trump campaign’s ties to Russia, will be arraigned in Virginia.`\
+https://nytimes.com/live/2025/10/08/us/james-comey-arraignment-fbi
+
 **Green Spaces for Kids Shouldn’t Be Political**\
 `Public parks are vital for children’s health.`\
 https://nytimes.com/2025/10/08/opinion/green-spaces-kids.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6698725/2025/10/08/phillies-home-clubhouse-locker-a
 **Woj launching YouTube series to help fund St. Bonaventure NIL efforts**\
 `The St. Bonaventure GM's new series, “The Program with Woj," is a way to raise money for the school’s NIL efforts.`\
 https://nytimes.com/athletic/6698460/2025/10/08/adrian-wojnarowski-youtube-series-college-basketball/
-
-**Brent Butterworth Shares His Sound Systems Test**\
-`Tracy Chapman’s “Fast Car” might be the ultimate song to gauge the quality of your speakers, but how else does our audio expert Brent Butterworth test sound systems and turntables to determine what’s best? He walks “The Wirecutter Show” podcast team through his process.`\
-https://nytimes.com/video/podcasts/100000010443783/brent-butterworth-shares-his-sound-systems-test.html
-
-**Roasted Cauliflower Caesar**\
-`For this more robust take on Caesar salad, you start by cutting thick slabs of cauliflower before breaking them into smaller pieces and roasting, which ensures maximum caramelized edges while using every part of the vegetable.`\
-https://nytimes.com/video/dining/100000010441361/roasted-cauliflower-caesar.html
-
-**Sen. Alex Padilla: Vance Knows I’m Not ‘José’**\
-`Sen.`\
-https://nytimes.com/video/podcasts/100000010441827/sen-alex-padilla-vance-knows-im-not-jose.html
 
