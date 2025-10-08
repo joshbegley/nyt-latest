@@ -1,3 +1,19 @@
+**Trump Says Gaza Talks Are Going ‘Very Well’ and Will Visit Middle East**\
+`The president’s comments and a note from Marco Rubio hinted that the two-year-long conflict may be about to pause, if not end.`\
+https://nytimes.com/2025/10/08/us/politics/trump-mideast-visit-israel-gaza.html
+
+**On One of New York’s Slowest Buses, Mamdani Pushes Plan to Speed Them Up**\
+`Zohran Mamdani, the leading candidate in the race to be New York City’s next mayor, held a campaign event on a bus that crawled across Midtown Manhattan to highlight a signature proposal.`\
+https://nytimes.com/2025/10/08/nyregion/mamdani-bus-plan-nyc-mayor.html
+
+**Comey Pleaded Not Guilty**\
+`Also, National Guard troops assembled near Chicago and Portland. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/10/08/briefing/comey-not-guilty-plea-national-guard-chicago.html
+
+**After overcoming a dead leg, Antonee Robinson is back to inject life into USMNT**\
+`Robinson, a key figure for the USMNT, details the injury that has kept him out of action for the national team for 11 months`\
+https://nytimes.com/athletic/6701112/2025/10/08/antonee-robinson-injury-usmnt-fulham-pochettino-world-cup/
+
 **Federal Judge Imposes New Limits on ICE Operations in Chicago**\
 `The judge found that ICE had violated a 2022 consent agreement and demanded agents have probable cause for their arrests.`\
 https://nytimes.com/2025/10/08/us/chicago-ice-federal-judge-warrantless-arrests.html
