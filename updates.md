@@ -1,3 +1,7 @@
+**Yankees-Blue Jays Game 3: Two fans rush the field during ALDS, causing delay**\
+`Both spectators were taken off the field in handcuffs.`\
+https://nytimes.com/athletic/6699042/2025/10/07/yankees-blue-jays-fans-rush-field-alds-game-3/
+
 **Mariners-Tigers Game 3 takeaways: Seattle strikes early to take series edge**\
 `The Mariners are one win away from advancing to their first American League Championship Series since 2001.`\
 https://nytimes.com/athletic/6698547/2025/10/07/tigers-mariners-game-3-score-results-takeaways-playoffs-mlb/

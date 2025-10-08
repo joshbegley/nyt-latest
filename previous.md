@@ -1,3 +1,7 @@
+**Yankees-Blue Jays Game 3: Two fans rush the field during ALDS, causing delay**\
+`Both spectators were taken off the field in handcuffs.`\
+https://nytimes.com/athletic/6699042/2025/10/07/yankees-blue-jays-fans-rush-field-alds-game-3/
+
 **Mariners-Tigers Game 3 takeaways: Seattle strikes early to take series edge**\
 `The Mariners are one win away from advancing to their first American League Championship Series since 2001.`\
 https://nytimes.com/athletic/6698547/2025/10/07/tigers-mariners-game-3-score-results-takeaways-playoffs-mlb/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/07/world/maria-ressa-truth-athens-democracy-forum.ht
 **As Democratic Institutions Erode, Women See a Loss of Rights**\
 `A global swing by governments seeking to assert control has meant repercussions for women, including attempts to delegitimize them and limit their rights, experts said.`\
 https://nytimes.com/2025/10/07/world/europe/athens-democracy-forum-womens-rights.html
-
-**Dialogue Is an Antidote for Populism**\
-`At a forum in Athens, leaders discussed challenges to democracy that they said stemmed from both internal and external forces.`\
-https://nytimes.com/2025/10/07/world/europe/democracy-populism-security-athens-forum.html
 
