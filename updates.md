@@ -1,3 +1,15 @@
+**Basketball card collectors are piling back onto the Wemby bandwagon**\
+`Following a brief dip caused by his injury last season, Wemby cards are climbing in value once again`\
+https://nytimes.com/athletic/6700681/2025/10/08/victor-wembanyama-cards-topps/
+
+**These Democrats Could Hold the Key to Ending the Shutdown**\
+`As the federal closure slides into a second week, Republicans are working to peel off five more Democratic senators to join them in voting to reopen the government.`\
+https://nytimes.com/2025/10/08/us/politics/key-democrats-ending-shutdown.html
+
+**JB Pritzker Has Had it With Democrats Who Won’t Stand Up to Trump**\
+`The Illinois governor, a potential presidential candidate, is fighting the presence of National Guard troops and the activities of ICE agents in Chicago.`\
+https://nytimes.com/2025/10/08/us/politics/pritzker-trump-national-guard-chicago.html
+
 **Why a China Spy Case in the U.K. Collapsed Before It Went to Trial**\
 `The British government has come under scrutiny after charges against two men accused of spying for Beijing were dropped. Here’s what to know.`\
 https://nytimes.com/2025/10/08/world/europe/uk-china-spy-trial.html
