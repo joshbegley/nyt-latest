@@ -1,3 +1,15 @@
+**Air Traffic Staffing Shortages Disrupt Travel for Second Straight Day**\
+`The national air space has long been reeling from a staffing crisis among air traffic controllers, as the F.A.A. grapples with a shortage of about 3,000 controllers.`\
+https://nytimes.com/2025/10/07/us/politics/air-traffic-control-government-shutdown.html
+
+**Scoop City: Weaknesses of each 4-1 team**\
+`Evaluating the weaknesses of top contenders, from the Eagles' run game to the Jaguars' passing attack`\
+https://nytimes.com/athletic/6698191/2025/10/07/nfl-weaknesses-2025-contenders-bills-colts-scoop-city/
+
+**Nick Hundley emerging as front-runner in Giants' managerial search**\
+`It's becoming a widely held expectation the job is Hundley's if he is ready to accept it.`\
+https://nytimes.com/athletic/6698416/2025/10/07/san-francisco-giants-manager-search-nick-hundley/
+
 **Scoop City: Weaknesses of each 4-1 team**\
 `Evaluating the weakness of top contenders, from the Eagles' run game to the Jaguars' passing attack`\
 https://nytimes.com/athletic/6698191/2025/10/07/nfl-weaknesses-2025-contenders-bills-colts-scoop-city/

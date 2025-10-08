@@ -1,3 +1,19 @@
+**Dialogue Is an Antidote for Populism**\
+`At a forum in Athens, leaders discussed challenges to democracy that they said stemmed from both internal and external forces.`\
+https://nytimes.com/2025/10/07/world/europe/democracy-populism-security-athens-forum.html
+
+**Al Horford happy to finally be playing with a 'terrifying' Stephen Curry**\
+`After almost two decades of playing against the Warriors' sharpshooter, veteran big man explains why the fit is so good.`\
+https://nytimes.com/athletic/6698697/2025/10/07/warriors-al-horford-stephen-curry-fitting-in/
+
+**Democracy Involves More Than Merely Casting a Ballot, Youth Leaders Say**\
+`Five young people spearheading efforts around the world to bolster and restore democratic principles share what they have learned — and what needs to change.`\
+https://nytimes.com/2025/10/07/world/democracy-forum-athens-youth-leaders.html
+
+**Civics Education Struggles, Even as Government and Politics Saturate Daily Life**\
+`While this may be a good time to take advantage of the public’s attention, it’s also a time when teachers increasingly fear repercussions for offending students.`\
+https://nytimes.com/2025/10/07/world/athens-democracy-forum-civics-education.html
+
 **Air Traffic Staffing Shortages Disrupt Travel for Second Straight Day**\
 `The national air space has long been reeling from a staffing crisis among air traffic controllers, as the F.A.A. grapples with a shortage of about 3,000 controllers.`\
 https://nytimes.com/2025/10/07/us/politics/air-traffic-control-government-shutdown.html
@@ -15,14 +31,10 @@ https://nytimes.com/2025/10/07/science/john-b-gurdon-dead.html
 https://nytimes.com/2025/10/07/us/politics/trump-immigration-courts.html
 
 **Nick Hundley emerging as front-runner in Giants' managerial search**\
-`It's becoming a widely held expectation the job is Hundley's if he is ready to accept it.`\
+`It's becoming a widely held expectation the San Francisco job is Hundley's, if he is ready to accept it.`\
 https://nytimes.com/athletic/6698416/2025/10/07/san-francisco-giants-manager-search-nick-hundley/
 
 **Ex-Husband Contradicts a Man Appealing Conviction in Pelicot Rape Case**\
 `The man said he did not know Gisèle Pelicot had been drugged. Her ex-husband, who admitted drugging and raping her and inviting strangers to join him, testified that the man knew.`\
 https://nytimes.com/2025/10/07/world/europe/gisele-pelicot-rape-trial-appeal-france.html
-
-**How to watch Mariners at Tigers: Game 3 Time, TV, streaming**\
-`Find out how to watch the Seattle Mariners play the Detroit Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6698708/2025/10/07/mariners-vs-tigers-stream-how-to-watch-oct-8/
 
