@@ -1,3 +1,15 @@
+**We Tested 19 Boxes of Mac and Cheese to Find the Best**\
+`Our teams recruited 20 kids to help taste-test 19 boxes of mac and cheese to find the best of the best.`\
+https://nytimes.com/video/smarter-living/100000010446599/we-tested-19-boxes-of-mac-and-cheese-to-find-the-best.html
+
+**Maverick Carter is out, but this new global basketball league is still planning its launch**\
+`Speculation has bubbled for months about an international league that could pose a threat to both the NBA and WNBA.`\
+https://nytimes.com/athletic/6699988/2025/10/08/project-b-global-basketball-wnba-nba-threat/
+
+**Press Group Condemns New Pentagon Rules on Reporting**\
+`Representatives of news organizations have been negotiating with the Pentagon since the department first released a set of new rules last month.`\
+https://nytimes.com/2025/10/08/business/media/pentagon-press-restrictions-trump.html
+
 **A.I. Slop Is Here**\
 `A conversation with our tech columnist Kevin Roose about an A.I.-generated video of him on a date with a robot.`\
 https://nytimes.com/2025/10/08/world/ai-slop-deep-fake-hamas-arms-france-government.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6693193/2025/10/08/steven-gerrard-rangers-manager-n
 **Istanbul**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/istanbul
-
-**Sources: Argentina-Puerto Rico moved from Chicago to Inter Miami's stadium**\
-`The match was supposed to take place at Soldier Field but will now be staged at Chase Stadium in Fort Lauderdale.`\
-https://nytimes.com/athletic/6700820/2025/10/08/argentina-puerto-rico-friendly-chicago-miami-move-messi/
-
-**‘I’m Not Dying’: Dolly Parton Assures Fans Amid Concerns About Her Health**\
-`In a video post on social media, the country music superstar, who is 79, played down the recent health challenges that prompted her to delay her Las Vegas residency.`\
-https://nytimes.com/2025/10/08/arts/dolly-parton-health.html
-
-**Jack Eichel to sign contract extension with Golden Knights: 8 years, $13.5 million AAV**\
-`Eichel will become the highest-paid player in franchise history.`\
-https://nytimes.com/athletic/6631902/2025/10/08/jack-eichel-contract-golden-knights/
 
