@@ -1,3 +1,7 @@
+**How the Phillies, with Aaron Nola starting, are approaching a do-or-die Game 3**\
+`Using Nola, then Ranger Suárez could allow the Phillies to navigate the pitfalls of the sixth and seventh, when the pen has struggled. `\
+https://nytimes.com/athletic/6698760/2025/10/07/phillies-dodgers-game-3-nlds-aaron-nola/
+
 **Reinventing Democracy for a Changed World**\
 `A drumbeat of hard realities echoed through the halls at this year’s Athens Democracy Forum, where participants noted trends that do not portend well for the form of governance.`\
 https://nytimes.com/2025/10/07/world/democracy-athens-forum-politics.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/07/us/politics/air-traffic-control-government-shutdo
 **Scoop City: Weaknesses of each 4-1 team**\
 `Evaluating the weaknesses of top contenders, from the Eagles' run game to the Jaguars' passing attack`\
 https://nytimes.com/athletic/6698191/2025/10/07/nfl-weaknesses-2025-contenders-bills-colts-scoop-city/
-
-**John B. Gurdon, 92, Dies; Nobelist Paved Way for Cloning of Animals**\
-`His work in the manipulation of cells laid the foundation for stem cell biology and regenerative medicine and led to the first cloned large mammal, a sheep named Dolly.`\
-https://nytimes.com/2025/10/07/science/john-b-gurdon-dead.html
 

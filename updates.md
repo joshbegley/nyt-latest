@@ -1,3 +1,7 @@
+**How the Phillies, with Aaron Nola starting, are approaching a do-or-die Game 3**\
+`Using Nola, then Ranger Suárez could allow the Phillies to navigate the pitfalls of the sixth and seventh, when the pen has struggled. `\
+https://nytimes.com/athletic/6698760/2025/10/07/phillies-dodgers-game-3-nlds-aaron-nola/
+
 **Reinventing Democracy for a Changed World**\
 `A drumbeat of hard realities echoed through the halls at this year’s Athens Democracy Forum, where participants noted trends that do not portend well for the form of governance.`\
 https://nytimes.com/2025/10/07/world/democracy-athens-forum-politics.html
