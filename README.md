@@ -18,8 +18,8 @@ https://nytimes.com/2025/10/08/nyregion/bruce-cutler-dead.html
 `In the messages, the Democratic candidate for attorney general, Jay Jones, discusses the hypothetical killing of a Republican lawmaker.`\
 https://nytimes.com/2025/10/08/us/jay-jones-text-messages-va-attorney-general.html
 
-**Live Updates: Trump Says Hamas Agrees to Release ‘All’ Hostages for Israeli Pullback**\
-`President Trump announced on social media that the two sides had hammered out an agreement in Egypt on a hostages for prisoners exchange and an Israeli withdrawal.`\
+**Live Updates: Israel and Hamas Reach Deal on Hostage Release and Troop Pullback**\
+`The agreement, which came after President Trump issued a 20-point peace plan, raised hopes that the two-year war in Gaza may be nearer to an end.`\
 https://nytimes.com/live/2025/10/08/world/israel-hamas-gaza-ceasefire
 
 **Here’s the latest.**\
