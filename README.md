@@ -1,3 +1,11 @@
+**Rangers' Mike Sullivan era starts with a whimper in loss to Penguins**\
+`While the third line showed promise, systems and team play are clearly still a work in progress.`\
+https://nytimes.com/athletic/6698965/2025/10/07/new-york-rangers-opening-night-sullivan-penguins/
+
+**A Mariners fan's shirt said 'Dump 61 here!' – Cal Raleigh obliged**\
+`Jameson Turner originally made the shirt for the Mariners' final regular-season series in Seattle.`\
+https://nytimes.com/athletic/6699052/2025/10/07/seattle-mariners-fan-cal-raleigh/
+
 **Yankees-Blue Jays Game 3: 2 fans rush the field during ALDS, causing delay**\
 `Both spectators were taken off the field in handcuffs.`\
 https://nytimes.com/athletic/6699042/2025/10/07/yankees-blue-jays-fans-rush-field-alds-game-3/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6698760/2025/10/07/phillies-dodgers-game-3-nlds-aar
 **Reinventing Democracy for a Changed World**\
 `A drumbeat of hard realities echoed through the halls at this year’s Athens Democracy Forum, where participants noted trends that do not portend well for the form of governance.`\
 https://nytimes.com/2025/10/07/world/democracy-athens-forum-politics.html
-
-**‘The Mother of All Battles?’ Information Integrity.**\
-`The Nobel Prize winner Maria Ressa told attendees at the Athens Democracy Forum that holding fast to “truth” was critical in restoring democracy.`\
-https://nytimes.com/2025/10/07/world/maria-ressa-truth-athens-democracy-forum.html
-
-**As Democratic Institutions Erode, Women See a Loss of Rights**\
-`A global swing by governments seeking to assert control has meant repercussions for women, including attempts to delegitimize them and limit their rights, experts said.`\
-https://nytimes.com/2025/10/07/world/europe/athens-democracy-forum-womens-rights.html
 
