@@ -1,3 +1,15 @@
+**Myanmar Military Paraglider Bombs Buddhist Festival, Killing Dozens**\
+`The junta targeted a  festival in the Sagaing region where people were also protesting army rule, according to witnesses and the civilian government in exile.`\
+https://nytimes.com/2025/10/08/world/asia/myanmar-bombing-buddhist-festival-chaung-u.html
+
+**Ravens are considering everything after disappointing start: 'The urgency is high'**\
+`Baltimore coach John Harbaugh confirmed that scheme adjustments are part of the pending “decisions” the team will make this week.`\
+https://nytimes.com/athletic/6695903/2025/10/08/ravens-john-harbaugh-personnel-changes/
+
+**How Aaron Judge's momentous home run was 'better than a perfect swing'**\
+`Judge has hit six home runs when facing elimination in the postseason. None resonated like this one.`\
+https://nytimes.com/athletic/6699321/2025/10/08/aaron-judge-yankees-alds-new-york/
+
 **Bold predictions for the Bruins in 2025-26: Swayman roars back, Zacha is traded, Hagens debuts**\
 `Also: Geekie scores more goals, another Bruins trade, Hampus Lindolm makes Team Sweden and Peeke gets an extension.`\
 https://nytimes.com/athletic/6697426/2025/10/08/bruins-bold-predictions-swayman-zacha-hagens/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6658919/2025/10/08/nfl-london-games-flight-trip/
 **Love them or loathe them, Panthers relish their role as the NHL's bad guys**\
 `Like it or not, the center of the hockey world is in its southernmost market, and Florida won't be content until it's built a true dynasty.`\
 https://nytimes.com/athletic/6698652/2025/10/08/florida-panthers-nhl-stanley-cup/
-
-**The NFL is alive in Europe! And other thoughts from 10 days abroad with the Vikings**\
-`From Minnesota to Dublin to London and back, fans of American football share a true passion for the game. Here are some of their stories.`\
-https://nytimes.com/athletic/6697158/2025/10/08/vikings-10-days-in-europe-nfl-international-games-2025/
-
-**Big man Mark Williams could be key to the Suns' success — if he can stay healthy**\
-`The talent is obvious, but so are the concerns. Williams is excited to prove his availability to the Suns — and to everyone else.`\
-https://nytimes.com/athletic/6698018/2025/10/08/mark-williams-phoenix-suns-trade-profile/
-
-**Jesse Love on going from 'high school football to the NFL' in Cup: 12 Questions**\
-`Love talks about the leap from Xfinity to the Cup Series, his policy on throwing deuces, his friendships in the garage and more.`\
-https://nytimes.com/athletic/6696753/2025/10/08/jesse-love-nascar-xfinity-cup-series-nfl-12-questions/
 
