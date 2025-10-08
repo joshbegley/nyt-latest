@@ -1,3 +1,7 @@
+**We Tested 19 Boxes of Mac and Cheese to Find the Best**\
+`Our teams recruited 20 kids to help taste-test 19 boxes of mac and cheese to find the best of the best.`\
+https://nytimes.com/video/smarter-living/100000010446599/we-tested-19-boxes-of-mac-and-cheese-to-find-the-best.html
+
 **Maverick Carter is out, but this new global basketball league is still planning its launch**\
 `Speculation has bubbled for months about an international league that could pose a threat to both the NBA and WNBA.`\
 https://nytimes.com/athletic/6699988/2025/10/08/project-b-global-basketball-wnba-nba-threat/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6693193/2025/10/08/steven-gerrard-rangers-manager-n
 **Istanbul**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/istanbul
-
-**Sources: Argentina-Puerto Rico moved from Chicago to Inter Miami's stadium**\
-`The match was supposed to take place at Soldier Field but will now be staged at Chase Stadium in Fort Lauderdale.`\
-https://nytimes.com/athletic/6700820/2025/10/08/argentina-puerto-rico-friendly-chicago-miami-move-messi/
 
