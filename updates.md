@@ -1,3 +1,7 @@
+**Why a China Spy Case in the U.K. Collapsed Before It Went to Trial**\
+`The British government has come under scrutiny after charges against two men accused of spying for Beijing were dropped. Here’s what to know.`\
+https://nytimes.com/2025/10/08/world/europe/uk-china-spy-trial.html
+
 **Amid Conservative Attacks, Zach Bryan Says ICE Lyrics Were ‘Misconstrued’**\
 `Kristi Noem and other Trump officials have condemned a song snippet by the country music star that laments “the fading of the red, white and blue.”`\
 https://nytimes.com/2025/10/08/arts/zach-bryan-song-kristi-noem.html

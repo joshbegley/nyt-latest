@@ -1,3 +1,15 @@
+**Basketball card collectors are piling back onto the Wemby bandwagon**\
+`Following a brief dip caused by his injury last season, Wemby cards are climbing in value once again`\
+https://nytimes.com/athletic/6700681/2025/10/08/victor-wembanyama-cards-topps/
+
+**These Democrats Could Hold the Key to Ending the Shutdown**\
+`As the federal closure slides into a second week, Republicans are working to peel off five more Democratic senators to join them in voting to reopen the government.`\
+https://nytimes.com/2025/10/08/us/politics/key-democrats-ending-shutdown.html
+
+**JB Pritzker Has Had it With Democrats Who Won’t Stand Up to Trump**\
+`The Illinois governor, a potential presidential candidate, is fighting the presence of National Guard troops and the activities of ICE agents in Chicago.`\
+https://nytimes.com/2025/10/08/us/politics/pritzker-trump-national-guard-chicago.html
+
 **Why a China Spy Case in the U.K. Collapsed Before It Went to Trial**\
 `The British government has come under scrutiny after charges against two men accused of spying for Beijing were dropped. Here’s what to know.`\
 https://nytimes.com/2025/10/08/world/europe/uk-china-spy-trial.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6700563/2025/10/08/ameesh-manek-manchester-united-f
 **Inside Sabres' broadcast changes: Meghan Chayka, mic'd-up moments and more**\
 `The Sabres are aiming to modernize the content and presentation of their game broadcasts.`\
 https://nytimes.com/athletic/6700607/2025/10/08/sabres-meghan-chayka-tv-broadcast/
-
-**UEFA targets streaming giants in Champions League broadcast rights revamp**\
-`UC3 begins the tender process for the 2027-33 cycle in Europe’s five biggest markets on October 13.`\
-https://nytimes.com/athletic/6700561/2025/10/08/champions-league-rights-streaming-platforms/
-
-**Scoop City: The Joe Flacco trade's many layers**\
-`Threads of the Flacco trade, along with other possible moves, rules officials might forget (again) and Mike Sando's note on comebacks`\
-https://nytimes.com/athletic/6700712/2025/10/08/the-joe-flacco-trades-many-layers-plus-which-teams-might-trade-next/
-
-**Cam Atkinson to sign one-day contract, retire with the Blue Jackets**\
-`Atkinson had a 13-season, 809-game career with Columbus, the Philadelphia Flyers and the Tampa Bay Lightning.`\
-https://nytimes.com/athletic/6694403/2025/10/08/cam-atkinson-retirement-blue-jackets/
 
