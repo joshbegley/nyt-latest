@@ -1,40 +1,40 @@
+**Row Z: Tuchel's Bellingham gamble, Chelsea's goal music and kicking balls at spectators**\
+`Tim Spiers takes a look at some of football's more curious stories from the past week`\
+https://nytimes.com/athletic/6696361/2025/10/08/row-z-tuchel-bellingham-chelsea/
+
+**Nigeria's William Troost-Ekong on World Cup qualification, AFCON and captaincy**\
+`Centre-back vows the team he captains "will fight until the very last moment" in final two games of long-shot bid to make next year's finals`\
+https://nytimes.com/athletic/6696363/2025/10/08/william-troost-ekong-interview-nigeria-world-cup-afcon/
+
+**Code words, hand signals, 'train hard, fight easy' – what Arsenal can learn from the Red Arrows**\
+`Mikel Arteta is the latest example of a leadership figure in sport looking to the British armed forces for new ways to seek improvements`\
+https://nytimes.com/athletic/6696197/2025/10/08/arsenal-raf-code-words-arteta-premier-league/
+
+**The inspiring Villa fan with a debilitating condition and the podcast that 'gives me a purpose'**\
+`Chad Williams, who has muscle-wasting condition Duchenne muscular dystrophy, runs the Villa4Ever podcast that he says is 'like therapy'`\
+https://nytimes.com/athletic/6682555/2025/10/08/chad-williams-villa-podcaster-dmd-awareness/
+
+**Postecoglou's future: How has Marinakis handled struggling managers?**\
+`What can we learn from the Forest owner's previous handling of under-pressure managers?`\
+https://nytimes.com/athletic/6697242/2025/10/08/ange-postecoglou-nottingham-forest-future-how-has-evangelos-marinakis-handled-struggling-managers/
+
+**Quote of the Day: ChatGPT Put My Résumé at the Top of the Pile**\
+`Quotation of the Day for Wednesday, October 8, 2025`\
+https://nytimes.com/2025/10/08/pageoneplus/quote-of-the-day-chatgpt-put-my-resume-at-the-top-of-the-pile.html
+
+**Fantasy football rankings Week 6: Sleepers, projections, starts, Jacory Croskey-Merritt, Tyquan Thornton**\
+`Jake Ciely runs through his player rankings for Week 6, and tells managers of Jacory Croskey-Merritt to enjoy his rise up the charts.`\
+https://nytimes.com/athletic/6698270/2025/10/08/fantasy-football-rankings-week-6-sleepers-projections-starts-jacory-croskey-merritt-tyquan-thornton/
+
+**Connections: Sports Edition Coach: Hints for Oct. 8, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6696792/2025/10/08/connections-sports-edition-hints-for-oct-8-2025/
+
+**Corrections: Oct. 8, 2025**\
+`Corrections that appeared in print on Wednesday, Oct. 8, 2025.`\
+https://nytimes.com/2025/10/08/pageoneplus/corrections-oct-8-2025.html
+
 **Cheer Up, or Else. China Cracks Down on the Haters and Cynics**\
 `As China struggles with economic discontent, internet censors are silencing those who voice doubts about work, marriage, or simply sigh too loudly online.`\
 https://nytimes.com/2025/10/08/world/asia/china-censorship-pessimism-despair.html
-
-**Yankees-Blue Jays Game 3 takeaways: Judge’s blast helps Yanks storm back, force Game 4**\
-`Boosted by Judge’s tying three-run homer, the Yankees erased an early five-run deficit, then put away Toronto, 9-6, to extend the series.  `\
-https://nytimes.com/athletic/6699104/2025/10/07/yankees-bluejays-game-3-score-results-takeaways-playoffs-mlb/
-
-**Rangers' Mike Sullivan era starts with a whimper in loss to Penguins**\
-`While the third line showed promise, systems and team play are clearly still a work in progress.`\
-https://nytimes.com/athletic/6698965/2025/10/07/new-york-rangers-opening-night-sullivan-penguins/
-
-**A Mariners fan's shirt said 'Dump 61 here' — Cal Raleigh obliged**\
-`Jameson Turner originally made the shirt for the Mariners' final regular-season series in Seattle.`\
-https://nytimes.com/athletic/6699052/2025/10/07/seattle-mariners-fan-cal-raleigh/
-
-**Yankees-Blue Jays Game 3: 2 fans rush the field during ALDS, causing delay**\
-`Both spectators were taken off the field in handcuffs.`\
-https://nytimes.com/athletic/6699042/2025/10/07/yankees-blue-jays-fans-rush-field-alds-game-3/
-
-**Mariners-Tigers Game 3 takeaways: Seattle strikes early to take series edge**\
-`The Mariners are one win away from advancing to their first American League Championship Series since 2001.`\
-https://nytimes.com/athletic/6698547/2025/10/07/tigers-mariners-game-3-score-results-takeaways-playoffs-mlb/
-
-**Positive Swings**\
-`Daniel Trujillo Diaz makes his New York Times Crossword debut.`\
-https://nytimes.com/2025/10/07/crosswords/daily-puzzle-2025-10-08.html
-
-**New Yorkers Observe Oct. 7 Anniversary With Eye Toward Peace Talks**\
-`People gathered in remembrance of hostages held by Hamas and in protest of Israel’s destructive campaign in Gaza as negotiators discussed a possible agreement to end the war.`\
-https://nytimes.com/2025/10/07/nyregion/nyc-october-7-anniversary.html
-
-**Blackhawks' youth shows in season-opening loss to champion Panthers**\
-`Jeff Blashill's debut behind Chicago's bench came as a learning experience for some players as Spencer Knight and Frank Nazar impressed.`\
-https://nytimes.com/athletic/6698234/2025/10/07/blackhawks-season-opener-youth-blashill-knight/
-
-**What the Cubs are stressing to Pete Crow-Armstrong with season on the brink**\
-`As the Cubs try to keep their focus on simply winning one game, they have to think that Crow-Armstrong, at any moment, could shift things.`\
-https://nytimes.com/athletic/6698878/2025/10/07/chicago-cubs-pete-crow-armstrong-nlds-message/
 
