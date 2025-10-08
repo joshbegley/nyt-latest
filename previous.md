@@ -1,3 +1,23 @@
+**Tony Bloom is Brighton’s leading man. But who are their minority shareholders?**\
+`Loans partly converted into shares have expanded Bloom's holding to 96.44 per cent. It leaves 3.56 per cent of shares held by others`\
+https://nytimes.com/athletic/6612731/2025/10/08/brighton-hove-albion-premier-league-ownership/
+
+**Opponents are 'ignoring' Barcelona's offside trap, and it's working**\
+`As more opponents seek innovative ways to catch their back four up the pitch, there is increasing need for Barcelona to retreat `\
+https://nytimes.com/athletic/6696480/2025/10/08/barcelona-offside-trap-issues-hansi-flick/
+
+**Gittens has had an underwhelming start at Chelsea. Malouda has some advice**\
+`Gittens has not provided a goal or assist in his first seven appearances for Chelsea but Malouda is optimistic`\
+https://nytimes.com/athletic/6696228/2025/10/08/jamie-gittens-chelsea-florent-malouda-interview/
+
+**What their first defeat since April tells us about the rest of Palace's season**\
+`There is no doom and gloom despite the end of an unbeaten run stretching back to April, but the way it happened at Everton will frustrate`\
+https://nytimes.com/athletic/6691431/2025/10/08/crystal-palace-glasner-defeat-chances/
+
+**Aaronson gives Leeds what they need defensively — but does Farke want more in attack?**\
+`Brenden Aaronson is one of the Premier League's best offensive players for defensive duties this season`\
+https://nytimes.com/athletic/6696951/2025/10/08/brenden-aaronson-leeds-usmnt-analysis-defending/
+
 **Less direct, more cutbacks, better chances – analysing Everton's shifting style**\
 `New signings and a new era have meant a change in approach on the pitch. It is still early days but the data clearly shows a team evolving`\
 https://nytimes.com/athletic/6696323/2025/10/08/everton-style-shift-grealish-cutbacks/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6693778/2025/10/08/tottenham-attack-frank-chance-cr
 **Reading a football scout's notebooks: Spotting Rodri and Benzema, and why data needs context**\
 `Dave Worthington's carefully-compiled notes were an invaluable resource for several Premier League clubs `\
 https://nytimes.com/athletic/6696360/2025/10/08/football-scout-notes-rodri-benzema-data/
-
-**The BookKeeper on Man United finances: Brutal cuts helped, but on-pitch results matter more than ever**\
-`Brutal cutbacks and improved sales have helped but United's lack of European football remains an issue, so on-pitch results will be key`\
-https://nytimes.com/athletic/6680109/2025/10/08/man-united-finances-debt-transfers-analysed/
-
-**Row Z: Tuchel's Bellingham gamble, Chelsea's goal music and kicking balls at spectators**\
-`Tim Spiers takes a look at some of football's more curious stories from the past week`\
-https://nytimes.com/athletic/6696361/2025/10/08/row-z-tuchel-bellingham-chelsea/
-
-**Nigeria's William Troost-Ekong on World Cup qualification, AFCON and captaincy**\
-`Centre-back vows the team he captains "will fight until the very last moment" in final two games of long-shot bid to make next year's finals`\
-https://nytimes.com/athletic/6696363/2025/10/08/william-troost-ekong-interview-nigeria-world-cup-afcon/
-
-**Code words, hand signals, 'train hard, fight easy' – what Arsenal can learn from the Red Arrows**\
-`Mikel Arteta is the latest example of a leadership figure in sport looking to the British armed forces for new ways to seek improvements`\
-https://nytimes.com/athletic/6696197/2025/10/08/arsenal-raf-code-words-arteta-premier-league/
-
-**The inspiring Villa fan with a debilitating condition and the podcast that 'gives me a purpose'**\
-`Chad Williams, who has muscle-wasting condition Duchenne muscular dystrophy, runs the Villa4Ever podcast that he says is 'like therapy'`\
-https://nytimes.com/athletic/6682555/2025/10/08/chad-williams-villa-podcaster-dmd-awareness/
 

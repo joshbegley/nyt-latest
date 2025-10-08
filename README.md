@@ -1,3 +1,15 @@
+**Errors, mistakes and empty at-bats: A Game 3 unraveling now threatens the Tigers’ season**\
+`The Tigers made two errors, struggled against Seattle starter Logan Gilbert and now face elimination in Wednesday's ALDS Game 4.`\
+https://nytimes.com/athletic/6699181/2025/10/08/detroit-tigers-unraveling-game-3-alds/
+
+**Melissa Jefferson-Wooden interview: 'I really did everything that I wanted to do this year'**\
+`The 24-year-old American’s remarkable season brought 19 wins from 20 individual races, and seven revisions to her personal bests`\
+https://nytimes.com/athletic/6695771/2025/10/08/melissa-jefferson-wooden-interview-i-really-did-everything-that-i-wanted-to-do-this-year/
+
+**Liverpool: don't panic**\
+`Three successive defeats have provoked some hysterical reactions. This is the right time to take a breath`\
+https://nytimes.com/athletic/6696721/2025/10/08/liverpool-form-premier-league/
+
 **Tony Bloom is Brighton’s leading man. But who are their minority shareholders?**\
 `Loans partly converted into shares have expanded Bloom's holding to 96.44 per cent. It leaves 3.56 per cent of shares held by others`\
 https://nytimes.com/athletic/6612731/2025/10/08/brighton-hove-albion-premier-league-ownership/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6696323/2025/10/08/everton-style-shift-grealish-cut
 **Michael Ndiweni: From dream Newcastle debut to playing in the U.S. - via the Baller League**\
 `Two years on from making the squad for a Champions Legaue game at PSG, the 21-year-old is rebuilding his football career in Ohio`\
 https://nytimes.com/athletic/6486306/2025/10/08/michael-ndiweni-newcastle-interview/
-
-**Inside a year of Tuchel's England: How has he answered the six big questions?**\
-`We are already halfway through Tuchel's England contract and the outlines of his World Cup team are beginning to emerge`\
-https://nytimes.com/athletic/6686530/2025/10/08/tuchel-england-bellingham-analysis/
-
-**Frank's Spurs have started well. Here's how they can improve in attack to keep it going**\
-`There is still a sense that more potential can be unlocked from this Spurs side, particularly in terms of their potency going forward`\
-https://nytimes.com/athletic/6693778/2025/10/08/tottenham-attack-frank-chance-creation/
-
-**Reading a football scout's notebooks: Spotting Rodri and Benzema, and why data needs context**\
-`Dave Worthington's carefully-compiled notes were an invaluable resource for several Premier League clubs `\
-https://nytimes.com/athletic/6696360/2025/10/08/football-scout-notes-rodri-benzema-data/
 
