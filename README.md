@@ -1,3 +1,7 @@
+**Inside Zeev Buium's prep for his first full Wild season, from being 'trash guy' to summer training**\
+`On the ice, in the gym and out of the dorm, it's been a big adjustment for the Wild's touted defense prospect.`\
+https://nytimes.com/athletic/6697053/2025/10/08/zeev-buium-wild-rookie-season/
+
 **Villa's Tielemans set to miss up to five weeks with calf injury setback**\
 `The 28-year-old sustained the injury against Everton in September and has missed each of Villa's six matches since.`\
 https://nytimes.com/athletic/6626356/2025/10/08/tielemans-aston-villa-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6698400/2025/10/08/haynes-king-georgia-tech-qb/
 **If Packers face Joe Flacco again with Bengals, who has advantage in second matchup?**\
 `Flacco didn't quite will the Browns to victory over the Packers in Week 3, but he still has recent experience against Jeff Hafley's defense.`\
 https://nytimes.com/athletic/6698090/2025/10/08/packers-joe-flacco-rematch-bengals/
-
-**Blue Jays collapse puts precarious bullpen in spotlight for Game 4 vs. Yankees**\
-`A five-run lead in Game 3 quickly evaporated and ended in a 9-6 loss to inject life back into the Yankees.`\
-https://nytimes.com/athletic/6699261/2025/10/08/blue-jays-yankees-bullpen-louis-varland/
 

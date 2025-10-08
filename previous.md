@@ -1,40 +1,40 @@
-**TAFC: Pochettino and USMNT players — is it good to talk? Plus: Arsenal's plane talking**\
-`Today in TAFC: Pochettino keeps quiet, Arteta turns to the RAF for help, Darlington Nagbe retires for a refreshing reason`\
-https://nytimes.com/athletic/6699451/2025/10/08/pochettino-and-usmnt-players-is-it-good-to-talk-plus-arsenals-plane-talking/
+**Villa's Tielemans set to miss up to five weeks with calf injury setback**\
+`The 28-year-old sustained the injury against Everton in September and has missed each of Villa's six matches since.`\
+https://nytimes.com/athletic/6626356/2025/10/08/tielemans-aston-villa-injury-update/
 
-**Myanmar Military Paraglider Bombs Buddhist Festival, Killing Dozens**\
-`The junta targeted a  festival in the Sagaing region where people were also protesting army rule, according to witnesses and the civilian government in exile.`\
-https://nytimes.com/2025/10/08/world/asia/myanmar-bombing-buddhist-festival-chaung-u.html
+**This is the Devin Williams the Yankees always needed: 'Nice to feel appreciated'**\
+`Williams' clutch performance was as big as any assist the Yanks received in Tuesday's win. The fans let him hear it — with cheers this time.`\
+https://nytimes.com/athletic/6699288/2025/10/08/devin-williams-yankees-mlb-playoffs/
 
-**Ravens are considering everything after disappointing start: 'The urgency is high'**\
-`Baltimore coach John Harbaugh confirmed that scheme adjustments are part of the pending “decisions” the team will make this week.`\
-https://nytimes.com/athletic/6695903/2025/10/08/ravens-john-harbaugh-personnel-changes/
+**College football Week 7 streaming guide: Alabama-Mizzou, Michigan-USC and the Illibuck**\
+`Here's what to watch across the four-day CFB slate, including the Red Rivalry Rivalry and a top-10 showdown between Oregon and Indiana.`\
+https://nytimes.com/athletic/6695707/2025/10/08/college-football-week-7-alabama-missouri-michigan-usc-how-to-watch/
 
-**How Aaron Judge's momentous home run was 'better than a perfect swing'**\
-`Judge has hit six home runs when facing elimination in the postseason. None resonated like this one.`\
-https://nytimes.com/athletic/6699321/2025/10/08/aaron-judge-yankees-alds-new-york/
+**How ‘Les Mis’ Became So Successful**\
+`We look at the story behind its more than 15,000-show run.`\
+https://nytimes.com/2025/10/08/briefing/how-les-mis-became-so-successful.html
 
-**Bold predictions for the Bruins in 2025-26: Swayman roars back, Zacha is traded, Hagens debuts**\
-`Also: Geekie scores more goals, another Bruins trade, Hampus Lindolm makes Team Sweden and Peeke gets an extension.`\
-https://nytimes.com/athletic/6697426/2025/10/08/bruins-bold-predictions-swayman-zacha-hagens/
+**Out of nowhere, Ryan Flournoy has career day when Cowboys needed it: 'It's so sweet'**\
+`The second-year receiver had more yards Sunday vs. the Jets than he had his entire rookie season.`\
+https://nytimes.com/athletic/6699482/2025/10/08/cowboys-ryan-flournoy-career-day-jets/
 
-**Every NHL banner-raising ceremony of the salary cap era, ranked purely on spite**\
-`The real point of a Cup banner-raising ceremony is to make the other team feel bad. Let's rank how each team did on that front.`\
-https://nytimes.com/athletic/6697809/2025/10/08/nhl-stanley-cup-banner-raising/
+**Terrence Shannon Jr. isn't at the top of the Wolves' rotation yet — but he's on his way**\
+`Terrence Shannon Jr.'s patience and perspective will set him free in Minnesota. "You just got to buy into your role," he said. `\
+https://nytimes.com/athletic/6691842/2025/10/08/terrence-shannon-jr-timberwolves-nba/
 
-**The Pulse: Two playoff homers of destiny**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6698068/2025/10/08/aaron-judge-cal-raleigh-home-run-the-pulse/
+**Can Trevor Zegras help Flyers become relevant again?**\
+`If Zegras thrives, he could give a huge boost to a franchise that is pining for relevancy within the local sports scene.`\
+https://nytimes.com/athletic/6698039/2025/10/08/trevor-zegras-flyers-opener/
 
-**Maple Leafs bold predictions: Matthews vs. Nylander, playoff hopes and more**\
-`Plus: A surprise Norris Trophy candidate and an optimistic playoffs outlook.`\
-https://nytimes.com/athletic/6696571/2025/10/08/maple-leafs-predictions-nhl-2026/
+**Haynes King's wrecking-ball style has Georgia Tech in College Football Playoff race**\
+`If the Yellow Jackets can keep King healthy, they could find themselves in the ACC championship game. `\
+https://nytimes.com/athletic/6698400/2025/10/08/haynes-king-georgia-tech-qb/
 
-**Bears' left tackle situation still in the spotlight: Is Theo Benedet up next?**\
-`The Bears entered the bye still with a question at left tackle, and it's likely going to be the player who entered camp No. 4 in the battle.`\
-https://nytimes.com/athletic/6687675/2025/10/08/bears-left-tackle-situation-theo-benedet/
+**If Packers face Joe Flacco again with Bengals, who has advantage in second matchup?**\
+`Flacco didn't quite will the Browns to victory over the Packers in Week 3, but he still has recent experience against Jeff Hafley's defense.`\
+https://nytimes.com/athletic/6698090/2025/10/08/packers-joe-flacco-rematch-bengals/
 
-**Fights, firings and flings: London is now the NFL's wildest road trip**\
-`London games are a seemingly permanent part of the NFL landscape. They also have left some indelible marks.`\
-https://nytimes.com/athletic/6658919/2025/10/08/nfl-london-games-flight-trip/
+**Blue Jays collapse puts precarious bullpen in spotlight for Game 4 vs. Yankees**\
+`A five-run lead in Game 3 quickly evaporated and ended in a 9-6 loss to inject life back into the Yankees.`\
+https://nytimes.com/athletic/6699261/2025/10/08/blue-jays-yankees-bullpen-louis-varland/
 
