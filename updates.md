@@ -1,3 +1,7 @@
+**Base Power, a Battery-Focused Power Company, Raises $1 Billion**\
+`The company, which leases out residential batteries as well as sells energy, is betting that it can profit from a new approach to soaring energy demands.`\
+https://nytimes.com/2025/10/08/business/dealbook/base-power-fundraise-dell.html
+
 **Base Power, a Battery-Focused Power Company, Raises $1 Bilion**\
 `The company, which leases out residential batteries as well as sells energy, is betting that it can profit from a new approach to soaring energy demands.`\
 https://nytimes.com/2025/10/08/business/dealbook/base-power-fundraise-dell.html
