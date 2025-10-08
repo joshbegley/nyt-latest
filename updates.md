@@ -1,3 +1,11 @@
+**Joe Flacco will start for Bengals in Week 6 after trade from Browns**\
+`Flacco will start for his third AFC North team and become the Bengals’ third starting quarterback this season.`\
+https://nytimes.com/athletic/6700620/2025/10/08/joe-flacco-bengals-starting-quarterback/
+
+**Tasting a New Flavor of Portugal, in New England**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/tasting-a-new-flavor-of-portugal-in-new-england
+
 **Fantasy trends and hidden gems: Week 2 features familiar faces in new places**\
 `Shayna Goldman's Week 2 fantasy hockey advice includes targeting Ivan Barbashev and monitoring the potential of Marco Rossi.`\
 https://nytimes.com/athletic/6700036/2025/10/08/fantasy-trends-and-hidden-gems-week-2-features-familiar-faces-in-new-places/

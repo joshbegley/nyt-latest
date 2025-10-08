@@ -1,3 +1,11 @@
+**Joe Flacco will start for Bengals in Week 6 after trade from Browns**\
+`Flacco will start for his third AFC North team and become the Bengals’ third starting quarterback this season.`\
+https://nytimes.com/athletic/6700620/2025/10/08/joe-flacco-bengals-starting-quarterback/
+
+**Tasting a New Flavor of Portugal, in New England**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/tasting-a-new-flavor-of-portugal-in-new-england
+
 **Fantasy trends and hidden gems: Week 2 features familiar faces in new places**\
 `Shayna Goldman's Week 2 fantasy hockey advice includes targeting Ivan Barbashev and monitoring the potential of Marco Rossi.`\
 https://nytimes.com/athletic/6700036/2025/10/08/fantasy-trends-and-hidden-gems-week-2-features-familiar-faces-in-new-places/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6700523/2025/10/08/eagles-aj-brown-saquon-barkley-j
 **Yegor Chinakhov, after trade request, expected to be scratched from Blue Jackets' opener**\
 `The Blue Jackets open their season on Thursday in Nashville.`\
 https://nytimes.com/athletic/6700503/2025/10/08/yegor-chinakhov-blue-jackets-scratch-trade/
-
-**Trump Fires Black Officials From an Overwhelmingly White Administration**\
-`Separately, in the administration’s first 200 days, only two of 98 Senate-confirmed appointees to the most senior jobs in government were Black.`\
-https://nytimes.com/2025/10/08/us/politics/black-leaders-trump.html
-
-**Parents, Doctors and Vaccines for Children**\
-`Readers respond to a guest essay about vaccine debates. Also: Attorney General Pam Bondi’s performance; wildfire smoke and our health.`\
-https://nytimes.com/2025/10/08/opinion/vaccines-children.html
 
