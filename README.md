@@ -1,3 +1,11 @@
+**A.I. Slop Is Here**\
+`A conversation with our tech columnist Kevin Roose about an A.I.-generated video of him on a date with a robot.`\
+https://nytimes.com/2025/10/08/world/ai-slop-deep-fake-hamas-arms-france-government.html
+
+**Last of 10 Escapees From New Orleans Jail Is Captured in Atlanta**\
+`Derrick Groves, a convicted murderer who escaped with nine other inmates in May, was taken into custody after a brief standoff with the police.`\
+https://nytimes.com/2025/10/08/us/last-of-10-escapees-from-new-orleans-jail-is-captured-in-atlanta.html
+
 **Marseille**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/things-to-do-marseille
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/08/arts/dolly-parton-health.html
 **Jack Eichel to sign contract extension with Golden Knights: 8 years, $13.5 million AAV**\
 `Eichel will become the highest-paid player in franchise history.`\
 https://nytimes.com/athletic/6631902/2025/10/08/jack-eichel-contract-golden-knights/
-
-**A Chicago federal grand jury deals the latest setback to Trump’s immigration enforcement efforts.**\
-`By Ernesto Londoño`\
-https://nytimes.com/live/2025/10/08/us/trump-national-guard-chicago-illinois/a-chicago-federal-grand-jury-deals-the-latest-setback-to-trumps-immigration-enforcement-efforts
-
-**Allen Iverson on his memoir: 'You think you know, but you have no idea'**\
-`In an interview on CBS, Iverson also said that he has been sober for six months.`\
-https://nytimes.com/athletic/6700823/2025/10/08/allen-iverson-memoir-sober/
 
