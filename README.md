@@ -1,3 +1,15 @@
+**McDavid, Crosby and the Panthers without Barkov: 10 big questions that define the NHL season**\
+`Max Bultman and Mark Lazerus dive into the contenders and pretenders, the players who will determine their teams' destiny and more.`\
+https://nytimes.com/athletic/6701390/2025/10/08/mcdavid-crosby-panthers-without-barkov-10-questions/
+
+**Joseph Herbert, Who Helped Catch Copycat Zodiac Killer, Dies at 68**\
+`A New York police detective, he used his knowledge of the killer’s handwriting — and a lucky twist — to solve a confounding case.`\
+https://nytimes.com/2025/10/08/nyregion/joseph-herbert-dead.html
+
+**What Ignited California’s Most Destructive Fires**\
+`California wildfires have become particularly devastating in recent decades, but their origins vary.`\
+https://nytimes.com/2025/10/08/us/what-ignited-californias-most-destructive-fires.html
+
 **Bruce Cutler, Pugnacious Lawyer for the Mob Boss John Gotti, Dies at 77**\
 `He became one of the country’s best-known criminal defense lawyers after winning acquittals in three cases that spawned a new nickname for Mr. Gotti: “the Teflon Don.”`\
 https://nytimes.com/2025/10/08/nyregion/bruce-cutler-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/us/politics/100000010447777/democrats-johnson-fight-sh
 **Aces-Mercury WNBA Finals posting highest viewership in decades**\
 `Through two games, the series is averaging 1.5 million viewers between games on ABC and ESPN. `\
 https://nytimes.com/athletic/6701556/2025/10/08/aces-mercury-wnba-finals-ratings-game-2-2/
-
-**Has Your Scientific Work Been Cut? We Want to Hear.**\
-`For a new series, Times journalists are speaking with scientists whose research has ended as a result of policy changes by the Trump administration.`\
-https://nytimes.com/2025/10/08/climate/trump-climate-science-funding.html
-
-**She Found a Link Between Air Pollution and Infertility**\
-`Shruthi Mahalingaiah, a Harvard researcher, investigated the fertility risks women face from air pollution. But her grant was canceled.`\
-https://nytimes.com/2025/10/08/climate/mahalingaiah-air-pollution-infertility.html
-
-**He Studied How Emissions Are Heating Up U.S. Cities**\
-`“Fundamentally, we were trying to learn about these systems to prevent people from dying unnecessarily from heat,” said Kevin Gurney, an atmospheric scientist.`\
-https://nytimes.com/2025/10/08/climate/kevin-gurney-emissions-science.html
 
