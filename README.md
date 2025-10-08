@@ -1,3 +1,11 @@
+**Trump Takes Aim at Illinois Governor and Chicago Mayor**\
+`In an early morning Truth Social post, the president said Gov. JB Pritzker of Illinois and Mayor Brandon Johnson of Chicago should be jailed for failing to protect ICE officers.`\
+https://nytimes.com/2025/10/08/us/trump-pritzker-brandon-johnson-jail-ice.html
+
+**Liam Millar's comeback from an ACL tear – and the depression that followed**\
+`The Canada international and Hull City winger faced depression after the crippling injury. Now, he's back in frame for the 2026 World Cup`\
+https://nytimes.com/athletic/6698048/2025/10/08/liam-millar-canada-hull-city-acl-injury-depression-world-cup-marsch/
+
 **Israel Intercepts More Gaza-Bound Activist Boats**\
 `The Israeli military intercepted a nine-boat flotilla aiming to break Israel’s naval blockade of Gaza to deliver aid. The Israeli Foreign Ministry said the activists were being brought to Israel for deportation.`\
 https://nytimes.com/video/world/middleeast/100000010445848/israel-intercepts-more-gaza-bound-activist-boats.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/08/well/mind/embedded-therapist-college-counselor.ht
 **Justice Kennedy, Off the Bench but Still Rendering Opinions**\
 `In a rare interview, the justice reflected on the state of the nation, the challenges facing the Supreme Court and, at 89, his own history and legacy.`\
 https://nytimes.com/2025/10/08/us/politics/justice-kennedy-interview-memoir.html
-
-**4 Workers Die in Collapse at Hotel Site in Madrid**\
-`The authorities initially thought the workers might be trapped after the collapse on Tuesday, but their bodies were recovered from the rubble overnight.`\
-https://nytimes.com/2025/10/08/world/europe/madrid-building-collapse-spain.html
-
-**How a Gen Z Revolution Spiraled Out of Control**\
-`Young people in Nepal rose up against corruption and inequality. But they say they did not expect the bloodshed, arson and government downfall that followed.`\
-https://nytimes.com/2025/10/08/world/asia/nepal-gen-z-revolution.html
 
