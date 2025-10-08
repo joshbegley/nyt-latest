@@ -1,3 +1,11 @@
+**How the Patriots took down the NFL's last unbeaten team: 'Challenge them'**\
+`The Patriots challenged Buffalo’s receivers to beat them one-on-one, playing man coverage nearly 40 percent of the time.`\
+https://nytimes.com/athletic/6697771/2025/10/08/how-patriots-took-down-unbeaten-bills/
+
+**Officials to Announce Arrest in Palisades Fire**\
+`The fire in Los Angeles is believed to have been tied to an earlier fireworks-sparked blaze that occurred on New Year’s Day.`\
+https://nytimes.com/2025/10/08/us/los-angeles-palisades-fire-arrest.html
+
 **How to watch Canadiens vs. Maple Leafs: Time, TV, streaming**\
 `Find out how to watch the Montreal Canadiens play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6700354/2025/10/08/canadiens-vs-maple-leafs-stream-how-to-watch-oct-8/
