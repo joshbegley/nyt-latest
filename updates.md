@@ -1,3 +1,43 @@
+**What the Shutdown Is Really About**\
+`Obamacare premiums could double for millions of Americans if the law isn’t changed. Neera Tanden walks Ezra Klein through the shutdown’s policy stakes.`\
+https://nytimes.com/2025/10/08/opinion/ezra-klein-podcast-neera-tanden.html
+
+**Comey to Appear in Court in Case That Has Roiled Justice Dept.**\
+`The case against James B. Comey, the former F.B.I. director, was deemed too thin by a previous federal prosecutor, who quit under pressure from President Trump.`\
+https://nytimes.com/2025/10/08/us/politics/james-comey-arraignment.html
+
+**The Second Trump Administration Is a Museum of America’s Worst Moments**\
+`Remember when Republicans loved small government?`\
+https://nytimes.com/2025/10/08/opinion/trump-republicans-hypocrisy-small-government.html
+
+**Tessa Thompson on Finding What You Want (What You Really, Really Want)**\
+`In Thompson’s latest film, she plays an unhappy housewife who blows up her life. In reality, the actor and producer has left relationships with much less fallout.`\
+https://nytimes.com/2025/10/08/podcasts/tessa-thompson-hedda.html
+
+**Where the Patriots are exceeding expectations: Drake Maye, the run defense and more**\
+`To accomplish what the Pats have through five weeks, certain players and areas of the team must be performing better than anticipated.`\
+https://nytimes.com/athletic/6697044/2025/10/08/patriots-expectations-drake-maye-harold-landry-defense/
+
+**Meet ‘Porky,’ Lima’s Right-Wing Mayor Embracing the MAGA Movement**\
+`By embodying President Trump’s brash style, Rafael López Aliaga has become a leading candidate to be Peru’s next president.`\
+https://nytimes.com/2025/10/08/world/americas/porky-lopez-aliaga-lima-mayor-trump.html
+
+**Helmut Lachenmann’s Music Is Like Nothing Else**\
+`The composer, who turns 90 this fall, has expanded the spectrum of sounds that instruments produce and that audiences can perceive.`\
+https://nytimes.com/2025/10/08/arts/music/helmut-lachenmann-composer.html
+
+**Tom Friedman on the Only Way to Solve the Israel-Hamas War**\
+`Can Donald Trump end the “worst war” with the latest round of peace talks?`\
+https://nytimes.com/2025/10/08/opinion/hamas-israel-ceasefire-trump-peace-gaza.html
+
+**Thousands of Miles From the U.S., Charlie Kirk Becomes a Political Tool**\
+`The mayor of Lima, Peru, held a Charlie Kirk memorial — filled with attendees bused in from poor neighborhoods — as he sought help from the Trump administration.`\
+https://nytimes.com/2025/10/08/world/americas/charlie-kirk-peru-porky.html
+
+**What the Shutdown Is Really About**\
+`Health care premiums are expected to double for millions of Americans on Obamacare next year if the law doesn’t change in time. Neera Tanden walks Ezra Klein through the policy stakes of the government shutdown.`\
+https://nytimes.com/video/opinion/100000010441588/what-the-shutdown-is-really-about.html
+
 **‘Les Misérables’ at 40: The Unlikely Story of a Hit**\
 `Critics initially panned it, but public love for the musical with songs like “One Day More” and “On My Own” has kept it going strong for four decades — and counting.`\
 https://nytimes.com/2025/10/08/theater/les-miserables-40th-anniversary.html
