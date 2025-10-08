@@ -1,9 +1,25 @@
+**At a Bastion of Classical Music, She’s Amplifying the Experimental**\
+`Caterina Barbieri, 35, plays gigs on banks of synthesizers. That makes her a surprising choice to lead the cerebral Venice Music Biennale.`\
+https://nytimes.com/2025/10/08/arts/music/caterina-barbieri-venice-music-biennale.html
+
+**Indiana Pacers' Delon Wright suffers major head injury in preseason debut**\
+`With 46 seconds remaining in the second quarter of a preseason game against the Minnesota Timberwolves, Wright and Jaylen Clark collided.`\
+https://nytimes.com/athletic/6700256/2025/10/08/indiana-pacers-delon-wright-head-injury/
+
+**Outer Banks**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/outer-banks
+
+**Maple Leafs opening-night lineup: Who's with Matthews? Did Easton Cowan make the cut?**\
+`Examining Max Domi vs. Matias Maccelli, Easton Cowan's status and more, as the Leafs prepare to host Canadiens in first game of 2025-26.`\
+https://nytimes.com/athletic/6699980/2025/10/08/maple-leafs-opening-night-lineup-2025/
+
 **How the Patriots took down the NFL's last unbeaten team: 'Challenge them'**\
 `The Patriots challenged Buffalo’s receivers to beat them one-on-one, playing man coverage nearly 40 percent of the time.`\
 https://nytimes.com/athletic/6697771/2025/10/08/how-patriots-took-down-unbeaten-bills/
 
-**Officials to Announce Arrest in Palisades Fire**\
-`The fire in Los Angeles is believed to have been tied to an earlier fireworks-sparked blaze that occurred on New Year’s Day.`\
+**Officials Make an Arrest in Palisades Fire**\
+`The fire in Los Angeles is believed to have been tied to an earlier fireworks-sparked blaze on New Year’s Day. Federal officials are expected to announce details of the arrest at a news conference.`\
 https://nytimes.com/2025/10/08/us/los-angeles-palisades-fire-arrest.html
 
 **How to watch Canadiens vs. Maple Leafs: Time, TV, streaming**\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6699385/2025/10/08/cal-raleigh-home-run-alds-the-wi
 **Printable 2025 fantasy basketball cheat sheet rankings for H2H and Roto formats**\
 `Do you need a quick reference for your H2H and Roto fantasy basketball drafts? Do you love The Athletic's rankings? Look no further. `\
 https://nytimes.com/athletic/6693818/2025/10/08/printable-2025-fantasy-basketball-cheat-sheet-rankings/
-
-**Bulls preseason opener highlighted by late defensive intensity, grit of young roster**\
-`A come-from-behind preseason win was punctuated by the intensity and defensive effort Chicago Bulls coach Billy Donovan has emphasized.`\
-https://nytimes.com/athletic/6700056/2025/10/08/bulls-matas-buzelis-defense-nba/
-
-**Sainz criticises F1 coverage for focus on 'famous people and girlfriends'**\
-`Sainz was critical of the broadcast coverage for not showing a number of his overtakes during the Singapore Grand Prix.`\
-https://nytimes.com/athletic/6700165/2025/10/08/carlos-sainz-f1-broadcast-critical/
-
-**Taylor Swift’s ‘Showgirl’ Has Already Sold 3.5 Million, Beating Adele**\
-`In its first five days of release, Swift’s new album broke a record set by Adele’s “25” a decade ago. Swift’s equivalent sales include 1.2 million on vinyl.`\
-https://nytimes.com/2025/10/08/arts/music/taylor-swift-showgirl-sales-adele.html
-
-**Comey’s defense lawyer once prosecuted big corruption cases and a high-profile leak.**\
-`By Charlie Savage`\
-https://nytimes.com/live/2025/10/08/us/james-comey-arraignment-fbi/comeys-defense-lawyer-once-prosecuted-big-corruption-cases-and-a-high-profile-leak
 
