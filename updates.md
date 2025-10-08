@@ -1,3 +1,7 @@
+**Key Moments From the Final New Jersey Governor’s Debate**\
+`Jack Ciattarelli, the Republican nominee, and Representative Mikie Sherrill, the Democrat, described starkly different visions for the state in their debate Wednesday.`\
+https://nytimes.com/2025/10/08/nyregion/new-jersey-governors-debate-ciattarelli-sherrill.html
+
 **Lawler Confronts Jeffries in Showy Exchange in a Tense Capitol**\
 `The roughly five-minute confrontation, initiated by Representative Mike Lawler of New York, was intended to draw attention to Democrats’ role in the government shutdown.`\
 https://nytimes.com/2025/10/08/nyregion/lawler-jeffries-confrontation.html

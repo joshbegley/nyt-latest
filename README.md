@@ -1,3 +1,11 @@
+**Kash Patel Fires Two F.B.I. Agents Who Worked on Trump Investigation**\
+`The agents were identified in documents obtained by a Republican senator as having worked with Jack Smith, the special counsel who led the federal inquiries into Donald J. Trump.`\
+https://nytimes.com/2025/10/08/us/politics/kash-patel-fbi-agents.html
+
+**Qatar Pushes U.S.-Venezuela Diplomacy as Trump Focuses on Military Action**\
+`The Pentagon has deployed 10,000 U.S. troops to the region, most of them to bases in Puerto Rico, a senior military official said.`\
+https://nytimes.com/2025/10/08/us/politics/venezuela-trump-qatar.html
+
 **Key Moments From the Final New Jersey Governor’s Debate**\
 `Jack Ciattarelli, the Republican nominee, and Representative Mikie Sherrill, the Democrat, described starkly different visions for the state in their debate Wednesday.`\
 https://nytimes.com/2025/10/08/nyregion/new-jersey-governors-debate-ciattarelli-sherrill.html
@@ -20,7 +28,7 @@ https://nytimes.com/2025/10/08/nyregion/joseph-herbert-dead.html
 
 **What Ignited California’s Most Destructive Fires**\
 `California wildfires have become particularly devastating in recent decades, but their origins vary.`\
-https://nytimes.com/2025/10/08/us/what-ignited-californias-most-destructive-fires.html
+https://nytimes.com/2025/10/08/us/california-wildfires-worst-most-destructive.html
 
 **Bruce Cutler, Pugnacious Lawyer for the Mob Boss John Gotti, Dies at 77**\
 `He became one of the country’s best-known criminal defense lawyers after winning acquittals in three cases that spawned a new nickname for Mr. Gotti: “the Teflon Don.”`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/08/nyregion/bruce-cutler-dead.html
 **Texts from Democratic A.G. Candidate Roil Virginia Governor’s Race**\
 `In the messages, the Democratic candidate for attorney general, Jay Jones, discusses the hypothetical killing of a Republican lawmaker.`\
 https://nytimes.com/2025/10/08/us/jay-jones-text-messages-va-attorney-general.html
-
-**Live Updates: Israel and Hamas Reach Deal on Hostage Release and Troop Pullback**\
-`The agreement, which came after President Trump issued a 20-point peace plan, raised hopes that the two-year war in Gaza may be nearer to an end.`\
-https://nytimes.com/live/2025/10/08/world/israel-hamas-gaza-ceasefire
-
-**Here’s the latest.**\
-`By David E. Sanger, Ephrat Livni and Aaron Boxerman`\
-https://nytimes.com/live/2025/10/08/world/israel-hamas-gaza-ceasefire/heres-the-latest
 
