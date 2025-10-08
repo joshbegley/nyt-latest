@@ -1,3 +1,7 @@
+**Oracle Fears Add to Doubts About the A.I. Rally**\
+`Investors worried about the financials of the technology giant’s cloud computing business, compounding broader worries about a sky-high stock boom.`\
+https://nytimes.com/2025/10/08/business/dealbook/oracle-artificial-intelligence-bubble.html
+
 **U.K. Conservatives Yearn for Thatcher and Wonder About Their Future**\
 `The once dominant British political party has been outflanked by Reform, a right-wing populist rival. At the Tory annual conference, attendance was sparse.`\
 https://nytimes.com/2025/10/08/world/europe/uk-conservative-party-conference-badenoch.html
