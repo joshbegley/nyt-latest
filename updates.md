@@ -1,3 +1,15 @@
+**McDavid, Crosby and the Panthers without Barkov: 10 big questions that define the NHL season**\
+`Max Bultman and Mark Lazerus dive into the contenders and pretenders, the players who will determine their teams' destiny and more.`\
+https://nytimes.com/athletic/6701390/2025/10/08/mcdavid-crosby-panthers-without-barkov-10-questions/
+
+**Joseph Herbert, Who Helped Catch Copycat Zodiac Killer, Dies at 68**\
+`A New York police detective, he used his knowledge of the killer’s handwriting — and a lucky twist — to solve a confounding case.`\
+https://nytimes.com/2025/10/08/nyregion/joseph-herbert-dead.html
+
+**What Ignited California’s Most Destructive Fires**\
+`California wildfires have become particularly devastating in recent decades, but their origins vary.`\
+https://nytimes.com/2025/10/08/us/what-ignited-californias-most-destructive-fires.html
+
 **Bruce Cutler, Pugnacious Lawyer for the Mob Boss John Gotti, Dies at 77**\
 `He became one of the country’s best-known criminal defense lawyers after winning acquittals in three cases that spawned a new nickname for Mr. Gotti: “the Teflon Don.”`\
 https://nytimes.com/2025/10/08/nyregion/bruce-cutler-dead.html
