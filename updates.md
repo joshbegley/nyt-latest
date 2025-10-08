@@ -1,3 +1,7 @@
+**Israel Intercepts More Gaza-Bound Activist Boats**\
+`The Israeli military intercepted a nine-boat flotilla aiming to break Israel’s naval blockade of Gaza to deliver aid. The Israeli Foreign Ministry said the activists were being brought to Israel for deportation.`\
+https://nytimes.com/video/world/middleeast/100000010445848/israel-intercepts-more-gaza-bound-activist-boats.html
+
 **Devil In Disguise**\
 `The victims are the focus in Peacock’s new limited series, “Devil in Disguise.”`\
 https://nytimes.com/paidpost/peacock/the-making-of/devil-in-disguise.html
