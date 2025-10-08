@@ -1,3 +1,15 @@
+**Bulls preseason opener highlighted by late defensive intensity, grit of young roster**\
+`A come-from-behind preseason win was punctuated by the intensity and defensive effort Chicago Bulls coach Billy Donovan has emphasized.`\
+https://nytimes.com/athletic/6700056/2025/10/08/bulls-matas-buzelis-defense-nba/
+
+**Sainz criticises F1 coverage for focus on 'famous people and girlfriends'**\
+`Sainz was critical of the broadcast coverage for not showing a number of his overtakes during the Singapore Grand Prix.`\
+https://nytimes.com/athletic/6700165/2025/10/08/carlos-sainz-f1-broadcast-critical/
+
+**Taylor Swift’s ‘Showgirl’ Has Already Sold 3.5 Million, Beating Adele**\
+`In its first five days of release, Swift’s new album broke a record set by Adele’s “25” a decade ago. Swift’s equivalent sales include 1.2 million on vinyl.`\
+https://nytimes.com/2025/10/08/arts/music/taylor-swift-showgirl-sales-adele.html
+
 **Comey’s defense lawyer once prosecuted big corruption cases and a high-profile leak.**\
 `By Charlie Savage`\
 https://nytimes.com/live/2025/10/08/us/james-comey-arraignment-fbi/comeys-defense-lawyer-once-prosecuted-big-corruption-cases-and-a-high-profile-leak
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6698048/2025/10/08/liam-millar-canada-hull-city-acl
 **Israel Intercepts More Gaza-Bound Activist Boats**\
 `The Israeli military intercepted a nine-boat flotilla aiming to break Israel’s naval blockade of Gaza to deliver aid. The Israeli Foreign Ministry said the activists were being brought to Israel for deportation.`\
 https://nytimes.com/video/world/middleeast/100000010445848/israel-intercepts-more-gaza-bound-activist-boats.html
-
-**Devil In Disguise**\
-`The victims are the focus in Peacock’s new limited series, “Devil in Disguise.”`\
-https://nytimes.com/paidpost/peacock/the-making-of/devil-in-disguise.html
-
-**Justin Pearson, Tennessee Democrat Known for Activism, to Run for Congress**\
-`Mr. Pearson, a member of the Tennessee House of Representatives since 2023, will challenge U.S. Representative Steve Cohen, a fellow Democrat.`\
-https://nytimes.com/2025/10/08/us/politics/justin-pearson-steve-cohen-congress-tennessee.html
-
-**Tracking Tropical Storm Nakri**\
-`See the likely path and wind arrival times for Nakri`\
-https://nytimes.com/interactive/2025/weather/nakri-map-path-tracker.html
 

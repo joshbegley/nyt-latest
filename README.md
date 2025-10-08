@@ -1,3 +1,11 @@
+**The Windup: This Big Dumper fan came prepared**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6699385/2025/10/08/cal-raleigh-home-run-alds-the-windup/
+
+**Printable 2025 fantasy basketball cheat sheet rankings for H2H and Roto formats**\
+`Do you need a quick reference for your H2H and Roto fantasy basketball drafts? Do you love The Athletic's rankings? Look no further. `\
+https://nytimes.com/athletic/6693818/2025/10/08/printable-2025-fantasy-basketball-cheat-sheet-rankings/
+
 **Bulls preseason opener highlighted by late defensive intensity, grit of young roster**\
 `A come-from-behind preseason win was punctuated by the intensity and defensive effort Chicago Bulls coach Billy Donovan has emphasized.`\
 https://nytimes.com/athletic/6700056/2025/10/08/bulls-matas-buzelis-defense-nba/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/10/08/us/james-comey-arraignment-fbi/the-conflict-
 **Trump Takes Aim at Illinois Governor and Chicago Mayor**\
 `In an early morning Truth Social post, the president said Gov. JB Pritzker of Illinois and Mayor Brandon Johnson of Chicago should be jailed for failing to protect ICE officers.`\
 https://nytimes.com/2025/10/08/us/trump-pritzker-brandon-johnson-jail-ice.html
-
-**Liam Millar's comeback from an ACL tear – and the depression that followed**\
-`The Canada international and Hull City winger faced depression after the crippling injury. Now, he's back in frame for the 2026 World Cup`\
-https://nytimes.com/athletic/6698048/2025/10/08/liam-millar-canada-hull-city-acl-injury-depression-world-cup-marsch/
-
-**Israel Intercepts More Gaza-Bound Activist Boats**\
-`The Israeli military intercepted a nine-boat flotilla aiming to break Israel’s naval blockade of Gaza to deliver aid. The Israeli Foreign Ministry said the activists were being brought to Israel for deportation.`\
-https://nytimes.com/video/world/middleeast/100000010445848/israel-intercepts-more-gaza-bound-activist-boats.html
 

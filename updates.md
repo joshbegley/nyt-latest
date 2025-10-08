@@ -1,3 +1,15 @@
+**Bulls preseason opener highlighted by late defensive intensity, grit of young roster**\
+`A come-from-behind preseason win was punctuated by the intensity and defensive effort Chicago Bulls coach Billy Donovan has emphasized.`\
+https://nytimes.com/athletic/6700056/2025/10/08/bulls-matas-buzelis-defense-nba/
+
+**Sainz criticises F1 coverage for focus on 'famous people and girlfriends'**\
+`Sainz was critical of the broadcast coverage for not showing a number of his overtakes during the Singapore Grand Prix.`\
+https://nytimes.com/athletic/6700165/2025/10/08/carlos-sainz-f1-broadcast-critical/
+
+**Taylor Swift’s ‘Showgirl’ Has Already Sold 3.5 Million, Beating Adele**\
+`In its first five days of release, Swift’s new album broke a record set by Adele’s “25” a decade ago. Swift’s equivalent sales include 1.2 million on vinyl.`\
+https://nytimes.com/2025/10/08/arts/music/taylor-swift-showgirl-sales-adele.html
+
 **Comey’s defense lawyer once prosecuted big corruption cases and a high-profile leak.**\
 `By Charlie Savage`\
 https://nytimes.com/live/2025/10/08/us/james-comey-arraignment-fbi/comeys-defense-lawyer-once-prosecuted-big-corruption-cases-and-a-high-profile-leak
