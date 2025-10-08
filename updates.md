@@ -1,3 +1,15 @@
+**Federal Judge Imposes New Limits on ICE Operations in Chicago**\
+`The judge found that ICE had violated a 2022 consent agreement and demanded agents have probable cause for their arrests.`\
+https://nytimes.com/2025/10/08/us/chicago-ice-federal-judge-warrantless-arrests.html
+
+**California Renters Won’t Have to Buy Their Own Fridge Under New Law**\
+`Many tenants have been annoyed that their rental units did not include refrigerators. Gov. Gavin Newsom signed a law requiring apartments to have fridges and stoves, starting next year.`\
+https://nytimes.com/2025/10/08/us/newsom-california-law-apartments-appliances.html
+
+**Creamy Artichoke and Charred Scallion Pasta**\
+`For a comforting, veg-forward meal, this recipe transforms dozens and dozens of charred scallions into a cheesy pasta dish.`\
+https://nytimes.com/video/dining/100000010443733/creamy-artichoke-and-charred-scallion-pasta.html
+
 **A Top N.Y.P.D. Chief and Adams Ally Retires**\
 `John Chell, New York City’s top uniformed police officer, is leaving as Mayor Eric Adams’s term is soon to expire and uncertainty looms at the Police Department.`\
 https://nytimes.com/2025/10/08/nyregion/nypd-john-chell-retires.html
