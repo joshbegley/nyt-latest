@@ -1,3 +1,7 @@
+**‘Les Misérables’ at 40: The Unlikely Story of a Hit**\
+`Critics initially panned it, but public love for the musical with songs like “One Day More” and “On My Own” has kept it going strong for four decades — and counting.`\
+https://nytimes.com/2025/10/08/theater/les-miserables-40th-anniversary.html
+
 **Conor McGregor handed 18-month UFC ban for missing drugs tests**\
 `The Dublin-born fighter has been recovering from injury and was not preparing for any fights at the times of the missed tests.`\
 https://nytimes.com/athletic/6699467/2025/10/08/conor-mcgregor-ufc-ban-drugs-test/
