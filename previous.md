@@ -1,3 +1,11 @@
+**Trump’s attacks on Comey may undermine the case against him.**\
+`By Alan Feuer`\
+https://nytimes.com/live/2025/10/08/us/james-comey-arraignment-fbi/trumps-attacks-on-comey-may-undermine-the-case-against-him
+
+**Israel Intercepts Another Activist Flotilla That Aimed to Break Gaza Blockade**\
+`It was the second attempt in as many weeks to breach the restrictions around the Gaza Strip. Neither have succeeded.`\
+https://nytimes.com/2025/10/08/world/middleeast/israel-gaza-flotilla-blockade.html
+
 **What are the charges against Comey?**\
 `By Charlie Savage`\
 https://nytimes.com/live/2025/10/08/us/james-comey-arraignment-fbi/what-are-the-charges-against-comey
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/10/08/us/trump-national-guard-chicago-illinois/her
 **Live Updates: National Guard Troops Expected to Deploy Around Chicago**\
 ``\
 https://nytimes.com/live/2025/10/08/us/trump-national-guard-chicago-illinois
-
-**Inside the Phillies' home clubhouse, where they hope to return: Who sits where — and why?**\
-`A lot of thought goes into the details that make the clubhouse feel like home for the Phillies. Now, this group has to win to get back home.`\
-https://nytimes.com/athletic/6698725/2025/10/08/phillies-home-clubhouse-locker-assignments-2025-season/
-
-**Woj launching YouTube series to help fund St. Bonaventure NIL efforts**\
-`The St. Bonaventure GM's new series, “The Program with Woj," is a way to raise money for the school’s NIL efforts.`\
-https://nytimes.com/athletic/6698460/2025/10/08/adrian-wojnarowski-youtube-series-college-basketball/
 

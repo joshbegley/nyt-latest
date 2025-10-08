@@ -1,3 +1,11 @@
+**Trump’s attacks on Comey may undermine the case against him.**\
+`By Alan Feuer`\
+https://nytimes.com/live/2025/10/08/us/james-comey-arraignment-fbi/trumps-attacks-on-comey-may-undermine-the-case-against-him
+
+**Israel Intercepts Another Activist Flotilla That Aimed to Break Gaza Blockade**\
+`It was the second attempt in as many weeks to breach the restrictions around the Gaza Strip. Neither have succeeded.`\
+https://nytimes.com/2025/10/08/world/middleeast/israel-gaza-flotilla-blockade.html
+
 **What are the charges against Comey?**\
 `By Charlie Savage`\
 https://nytimes.com/live/2025/10/08/us/james-comey-arraignment-fbi/what-are-the-charges-against-comey
