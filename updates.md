@@ -1,3 +1,7 @@
+**Tom Homan Was Said to Have Received $50,000 From Agents. He May Not Have to Return It.**\
+`Public corruption experts said the Justice Department had options for recovering money used in a sting operation. But that may not happen for years.`\
+https://nytimes.com/2025/10/08/us/politics/tom-homan-sting-money.html
+
 **‘Bluetoothing’: Blood-Sharing Drug Trend Fuels Alarming Global H.I.V. Surge**\
 `The practice, in which users inject the blood of already intoxicated individuals, has fueled one of the fastest-growing H.I.V. epidemics in the Pacific and grown widespread in South Africa.`\
 https://nytimes.com/2025/10/08/world/asia/bluetoothing-drug-blood-sharing.html
