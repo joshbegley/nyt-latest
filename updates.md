@@ -1,3 +1,7 @@
+**How Much It Costs to Drive an E.V. and a Gas Car in Every State**\
+`Charging an electric car battery is usually cheaper than going to the gas pump. But it depends on where you live.`\
+https://nytimes.com/2025/10/08/upshot/ev-versus-gas-car-comparison-cost.html
+
 **What the Shutdown Is Really About**\
 `Obamacare premiums could double for millions of Americans if the law isn’t changed. Neera Tanden walks Ezra Klein through the shutdown’s policy stakes.`\
 https://nytimes.com/2025/10/08/opinion/ezra-klein-podcast-neera-tanden.html

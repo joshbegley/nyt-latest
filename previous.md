@@ -1,3 +1,7 @@
+**How Much It Costs to Drive an E.V. and a Gas Car in Every State**\
+`Charging an electric car battery is usually cheaper than going to the gas pump. But it depends on where you live.`\
+https://nytimes.com/2025/10/08/upshot/ev-versus-gas-car-comparison-cost.html
+
 **What the Shutdown Is Really About**\
 `Obamacare premiums could double for millions of Americans if the law isn’t changed. Neera Tanden walks Ezra Klein through the shutdown’s policy stakes.`\
 https://nytimes.com/2025/10/08/opinion/ezra-klein-podcast-neera-tanden.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/08/opinion/hamas-israel-ceasefire-trump-peace-gaza.h
 **Thousands of Miles From the U.S., Charlie Kirk Becomes a Political Tool**\
 `The mayor of Lima, Peru, held a Charlie Kirk memorial — filled with attendees bused in from poor neighborhoods — as he sought help from the Trump administration.`\
 https://nytimes.com/2025/10/08/world/americas/charlie-kirk-peru-porky.html
-
-**What the Shutdown Is Really About**\
-`Health care premiums are expected to double for millions of Americans on Obamacare next year if the law doesn’t change in time. Neera Tanden walks Ezra Klein through the policy stakes of the government shutdown.`\
-https://nytimes.com/video/opinion/100000010441588/what-the-shutdown-is-really-about.html
 
