@@ -1,3 +1,7 @@
+**Why a China Spy Case in the U.K. Collapsed Before It Went to Trial**\
+`The British government has come under scrutiny after charges against two men accused of spying for Beijing were dropped. Here’s what to know.`\
+https://nytimes.com/2025/10/08/world/europe/uk-china-spy-trial.html
+
 **Amid Conservative Attacks, Zach Bryan Says ICE Lyrics Were ‘Misconstrued’**\
 `Kristi Noem and other Trump officials have condemned a song snippet by the country music star that laments “the fading of the red, white and blue.”`\
 https://nytimes.com/2025/10/08/arts/zach-bryan-song-kristi-noem.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6700712/2025/10/08/the-joe-flacco-trades-many-layer
 **Cam Atkinson to sign one-day contract, retire with the Blue Jackets**\
 `Atkinson had a 13-season, 809-game career with Columbus, the Philadelphia Flyers and the Tampa Bay Lightning.`\
 https://nytimes.com/athletic/6694403/2025/10/08/cam-atkinson-retirement-blue-jackets/
-
-**Joe Flacco will start for Bengals in Week 6 after trade from Browns**\
-`Flacco will start for his third AFC North team and become the Bengals’ third starting quarterback this season.`\
-https://nytimes.com/athletic/6700620/2025/10/08/joe-flacco-bengals-starting-quarterback/
 
