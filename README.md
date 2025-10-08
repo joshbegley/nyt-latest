@@ -1,3 +1,7 @@
+**Jonathan Lear, Philosopher Who Embraced Freud, Dies at 76**\
+`Defying scholarly norms, he took a hands-on approach to research. To study resilience, he visited the Crow Nation; to explore Freudian theory, he became a psychoanalyst.`\
+https://nytimes.com/2025/10/08/books/jonathan-lear-dead.html
+
 **Submit your questions for Kevin Fishbain's Bears mailbag**\
 `The Bears are 2-2 coming off their bye week and head to Washington, the scene of the Fail Mary last season. What's on your mind?`\
 https://nytimes.com/athletic/6700879/2025/10/08/bears-mailbag-questions-45/
@@ -29,12 +33,4 @@ https://nytimes.com/video/us/100000010447166/palisades-fire-man-arrested.html
 **What to know about the newly released Kyren Lacy crash footage**\
 `The role of former LSU receiver Kyren Lacy in a fatal December car crash has come under renewed scrutiny over the last week.`\
 https://nytimes.com/athletic/6700269/2025/10/08/kyren-lacy-crash-update-video-lawyer-lsu-football/
-
-**Mixed Economic Signals Stoke Divisions at Fed, Minutes Show**\
-`A few officials appeared reluctant to support the central bank’s interest rate cut last month, underscoring the tough task ahead for Chair Jerome H. Powell to forge a consensus.`\
-https://nytimes.com/2025/10/08/business/federal-reserve-meeting-minutes.html
-
-**Inside the Capitol, A Heated Spat Over the Shutdown and Epstein**\
-`A pair of Democratic senators confronted the Republican speaker of the House over his refusal to swear in a colleague during the shutdown.`\
-https://nytimes.com/2025/10/08/us/politics/mike-johnson-spat-democrats-shutdown-epstein.html
 

@@ -1,3 +1,15 @@
+**Submit your questions for Kevin Fishbain's Bears mailbag**\
+`The Bears are 2-2 coming off their bye week and head to Washington, the scene of the Fail Mary last season. What's on your mind?`\
+https://nytimes.com/athletic/6700879/2025/10/08/bears-mailbag-questions-45/
+
+**Kane to miss England vs Wales through injury**\
+`Kane has not been able to train this week after arriving with an injury sustained in Bayern Munich's win over Eintracht Frankfurt.`\
+https://nytimes.com/athletic/6700836/2025/10/08/harry-kane-england-wales-injury/
+
+**Former top recruit Julian Fleming facing felony charges in fatal crash**\
+`Fleming's girlfriend died when an ATV he was driving collided with a deer. Police said his blood alcohol level was above the legal limit.`\
+https://nytimes.com/athletic/6700846/2025/10/08/julian-fleming-felony-charges-girlfriend-crash/
+
 **Kevin Stefanski declines to say who will be Browns backup QB on Sunday**\
 `It appears that Kevin Stefanski is leaning toward Bailey Zappe, who's on the practice squad, as the No. 2 QB over rookie Shedeur Sanders.`\
 https://nytimes.com/athletic/6700766/2025/10/08/cleveland-browns-quarterback-backup/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/08/business/federal-reserve-meeting-minutes.html
 **Inside the Capitol, A Heated Spat Over the Shutdown and Epstein**\
 `A pair of Democratic senators confronted the Republican speaker of the House over his refusal to swear in a colleague during the shutdown.`\
 https://nytimes.com/2025/10/08/us/politics/mike-johnson-spat-democrats-shutdown-epstein.html
-
-**Basketball card collectors are piling back onto the Wemby bandwagon**\
-`Following a brief dip caused by his injury last season, Wemby cards are climbing in value once again`\
-https://nytimes.com/athletic/6700681/2025/10/08/victor-wembanyama-cards-topps/
-
-**These Democrats Could Hold the Key to Ending the Shutdown**\
-`As the federal closure slides into a second week, Republicans are working to peel off five more Democratic senators to join them in voting to reopen the government.`\
-https://nytimes.com/2025/10/08/us/politics/key-democrats-ending-shutdown.html
-
-**JB Pritzker Has Had it With Democrats Who Won’t Stand Up to Trump**\
-`The Illinois governor, a potential presidential candidate, is fighting the presence of National Guard troops and the activities of ICE agents in Chicago.`\
-https://nytimes.com/2025/10/08/us/politics/pritzker-trump-national-guard-chicago.html
 

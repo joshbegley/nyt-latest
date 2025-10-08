@@ -1,3 +1,15 @@
+**Submit your questions for Kevin Fishbain's Bears mailbag**\
+`The Bears are 2-2 coming off their bye week and head to Washington, the scene of the Fail Mary last season. What's on your mind?`\
+https://nytimes.com/athletic/6700879/2025/10/08/bears-mailbag-questions-45/
+
+**Kane to miss England vs Wales through injury**\
+`Kane has not been able to train this week after arriving with an injury sustained in Bayern Munich's win over Eintracht Frankfurt.`\
+https://nytimes.com/athletic/6700836/2025/10/08/harry-kane-england-wales-injury/
+
+**Former top recruit Julian Fleming facing felony charges in fatal crash**\
+`Fleming's girlfriend died when an ATV he was driving collided with a deer. Police said his blood alcohol level was above the legal limit.`\
+https://nytimes.com/athletic/6700846/2025/10/08/julian-fleming-felony-charges-girlfriend-crash/
+
 **Kevin Stefanski declines to say who will be Browns backup QB on Sunday**\
 `It appears that Kevin Stefanski is leaning toward Bailey Zappe, who's on the practice squad, as the No. 2 QB over rookie Shedeur Sanders.`\
 https://nytimes.com/athletic/6700766/2025/10/08/cleveland-browns-quarterback-backup/
