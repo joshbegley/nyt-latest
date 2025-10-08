@@ -1,3 +1,19 @@
+**Base Power, a Battery-Focused Power Company, Raises $1 Bilion**\
+`The company, which leases out residential batteries as well as sells energy, is betting that it can profit from a new approach to soaring energy demands.`\
+https://nytimes.com/2025/10/08/business/dealbook/base-power-fundraise-dell.html
+
+**WNBA doppelganger turning heads at the finals**\
+`A UNLV professor has been impersonating Las Vegas coach Becky Hammon at games ... and drawing applause from the Aces.`\
+https://nytimes.com/athletic/6699182/2025/10/08/the-wnba-doppelganger-turning-heads-at-the-finals/
+
+**Why is Michigan dropping so many of Bryce Underwood's passes?**\
+`Though Michigan's passing game is improved behind its five-star freshman QB, drops are holding the offense back.`\
+https://nytimes.com/athletic/6697565/2025/10/08/michigan-football-receiver-drops-bryce-underwood/
+
+**Dodgers have relied on starters to get around bullpen issues. Is it sustainable?**\
+`With their traditional relievers struggling, Dodgers starting pitchers are moonlighting out of the bullpen to great success.`\
+https://nytimes.com/athletic/6698986/2025/10/08/dodgers-mlb-playoffs-bullpen-nlds/
+
 **Inside Zeev Buium's prep for his first full Wild season, from being 'trash guy' to summer training**\
 `On the ice, in the gym and out of the dorm, it's been a big adjustment for the Wild's touted defense prospect.`\
 https://nytimes.com/athletic/6697053/2025/10/08/zeev-buium-wild-rookie-season/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/08/briefing/how-les-mis-became-so-successful.html
 **Out of nowhere, Ryan Flournoy has career day when Cowboys needed it: 'It's so sweet'**\
 `The second-year receiver had more yards Sunday vs. the Jets than he had his entire rookie season.`\
 https://nytimes.com/athletic/6699482/2025/10/08/cowboys-ryan-flournoy-career-day-jets/
-
-**Terrence Shannon Jr. isn't at the top of the Wolves' rotation yet — but he's on his way**\
-`Terrence Shannon Jr.'s patience and perspective will set him free in Minnesota. "You just got to buy into your role," he said. `\
-https://nytimes.com/athletic/6691842/2025/10/08/terrence-shannon-jr-timberwolves-nba/
-
-**Can Trevor Zegras help Flyers become relevant again?**\
-`If Zegras thrives, he could give a huge boost to a franchise that is pining for relevancy within the local sports scene.`\
-https://nytimes.com/athletic/6698039/2025/10/08/trevor-zegras-flyers-opener/
-
-**Haynes King's wrecking-ball style has Georgia Tech in College Football Playoff race**\
-`If the Yellow Jackets can keep King healthy, they could find themselves in the ACC championship game. `\
-https://nytimes.com/athletic/6698400/2025/10/08/haynes-king-georgia-tech-qb/
-
-**If Packers face Joe Flacco again with Bengals, who has advantage in second matchup?**\
-`Flacco didn't quite will the Browns to victory over the Packers in Week 3, but he still has recent experience against Jeff Hafley's defense.`\
-https://nytimes.com/athletic/6698090/2025/10/08/packers-joe-flacco-rematch-bengals/
 

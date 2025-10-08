@@ -1,3 +1,19 @@
+**Base Power, a Battery-Focused Power Company, Raises $1 Bilion**\
+`The company, which leases out residential batteries as well as sells energy, is betting that it can profit from a new approach to soaring energy demands.`\
+https://nytimes.com/2025/10/08/business/dealbook/base-power-fundraise-dell.html
+
+**WNBA doppelganger turning heads at the finals**\
+`A UNLV professor has been impersonating Las Vegas coach Becky Hammon at games ... and drawing applause from the Aces.`\
+https://nytimes.com/athletic/6699182/2025/10/08/the-wnba-doppelganger-turning-heads-at-the-finals/
+
+**Why is Michigan dropping so many of Bryce Underwood's passes?**\
+`Though Michigan's passing game is improved behind its five-star freshman QB, drops are holding the offense back.`\
+https://nytimes.com/athletic/6697565/2025/10/08/michigan-football-receiver-drops-bryce-underwood/
+
+**Dodgers have relied on starters to get around bullpen issues. Is it sustainable?**\
+`With their traditional relievers struggling, Dodgers starting pitchers are moonlighting out of the bullpen to great success.`\
+https://nytimes.com/athletic/6698986/2025/10/08/dodgers-mlb-playoffs-bullpen-nlds/
+
 **Inside Zeev Buium's prep for his first full Wild season, from being 'trash guy' to summer training**\
 `On the ice, in the gym and out of the dorm, it's been a big adjustment for the Wild's touted defense prospect.`\
 https://nytimes.com/athletic/6697053/2025/10/08/zeev-buium-wild-rookie-season/
