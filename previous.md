@@ -1,3 +1,7 @@
+**Yegor Chinakhov, after trade request, expected to be scratched from Blue Jackets' opener**\
+`The Blue Jackets open their season on Thursday in Nashville.`\
+https://nytimes.com/athletic/6700503/2025/10/08/yegor-chinakhov-blue-jackets-scratch-trade/
+
 **Trump Fires Black Officials From an Overwhelmingly White Administration**\
 `Separately, in the administration’s first 200 days, only two of 98 Senate-confirmed appointees to the most senior jobs in government were Black.`\
 https://nytimes.com/2025/10/08/us/politics/black-leaders-trump.html
@@ -11,7 +15,7 @@ https://nytimes.com/2025/10/08/opinion/vaccines-children.html
 https://nytimes.com/newsgraphics/card-story/guadalajara-mexico-home-lofa-ceramics
 
 **Before Trump Ordered In Troops, Federal Officers Called Portland Protests ‘Low Energy’**\
-`Local officials say the atmosphere outside an ICE building that has drawn daily demonstrations since June has grown worse since the president’s threats.`\
+`Oregon officials say the atmosphere outside an ICE building that has drawn daily demonstrations since June has grown worse since the president’s threats.`\
 https://nytimes.com/2025/10/08/us/politics/trump-portland-troops.html
 
 **Toronto’s Subway Deer Enigma Unmasked With DNA Analysis**\
@@ -29,8 +33,4 @@ https://nytimes.com/2025/10/08/world/europe/pelicot-rape-appeal-france.html
 **The Harvard ‘Die-in’ That Set Off a Debate Over Protest and Punishment**\
 `An Israeli American student said he was assaulted during a protest. Two years later, Republicans continue to raise the episode in their campaign to force schools to punish the student protesters.`\
 https://nytimes.com/2025/10/08/us/harvard-palestinian-protest-die-in-lawsuit.html
-
-**His Execution Is Days Away. A Detective Says He’s Innocent.**\
-`What happens when the science that sends a man to death row is debunked? Robert Roberson spent over 20 years on death row for his daughter’s death, but new evidence points to a different cause. Without intervention from Gov. Greg Abbott of Texas, Roberson’s execution is scheduled for Oct. 16.`\
-https://nytimes.com/video/opinion/100000010444338/his-execution-is-days-away-a-detective-says-hes-innocent.html
 

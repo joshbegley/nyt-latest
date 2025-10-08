@@ -1,3 +1,11 @@
+**Yegor Chinakhov, after trade request, expected to be scratched from Blue Jackets' opener**\
+`The Blue Jackets open their season on Thursday in Nashville.`\
+https://nytimes.com/athletic/6700503/2025/10/08/yegor-chinakhov-blue-jackets-scratch-trade/
+
+**Before Trump Ordered In Troops, Federal Officers Called Portland Protests ‘Low Energy’**\
+`Oregon officials say the atmosphere outside an ICE building that has drawn daily demonstrations since June has grown worse since the president’s threats.`\
+https://nytimes.com/2025/10/08/us/politics/trump-portland-troops.html
+
 **Trump Fires Black Officials From an Overwhelmingly White Administration**\
 `Separately, in the administration’s first 200 days, only two of 98 Senate-confirmed appointees to the most senior jobs in government were Black.`\
 https://nytimes.com/2025/10/08/us/politics/black-leaders-trump.html
