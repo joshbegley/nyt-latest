@@ -1,3 +1,11 @@
+**Woman Drugged and Raped by Dozens Returns to Court to Confront Assailant**\
+`Gisèle Pelicot’s ex-husband and others were convicted in one of France’s most notorious cases. She returned to court to denounce a man who challenged the verdict.`\
+https://nytimes.com/2025/10/08/world/europe/pelicot-rape-appeal-france.html
+
+**The Harvard ‘Die-in’ That Set Off a Debate Over Protest and Punishment**\
+`An Israeli American student said he was assaulted during a protest. Two years later, Republicans continue to raise the episode in their campaign to force schools to punish the student protesters.`\
+https://nytimes.com/2025/10/08/us/harvard-palestinian-protest-die-in-lawsuit.html
+
 **His Execution Is Days Away. A Detective Says He’s Innocent.**\
 `What happens when the science that sends a man to death row is debunked? Robert Roberson spent over 20 years on death row for his daughter’s death, but new evidence points to a different cause. Without intervention from Gov. Greg Abbott of Texas, Roberson’s execution is scheduled for Oct. 16.`\
 https://nytimes.com/video/opinion/100000010444338/his-execution-is-days-away-a-detective-says-hes-innocent.html
