@@ -1,5 +1,21 @@
+**A Chicago federal grand jury deals the latest setback to Trump’s immigration enforcement efforts.**\
+`By Ernesto Londoño`\
+https://nytimes.com/live/2025/10/08/us/trump-national-guard-chicago-illinois/a-chicago-federal-grand-jury-deals-the-latest-setback-to-trumps-immigration-enforcement-efforts
+
+**Allen Iverson on his memoir: 'You think you know, but you have no idea'**\
+`In an interview on CBS, Iverson also said that he has been sober for six months.`\
+https://nytimes.com/athletic/6700823/2025/10/08/allen-iverson-memoir-sober/
+
+**Brock Purdy not practicing, Mac Jones limited as 49ers prepare for Bucs**\
+`Brock Purdy aggravated his toe injury in the Week 4 loss to the Jaguars. Mac Jones is 3-0 in relief as a starter.`\
+https://nytimes.com/athletic/6700601/2025/10/08/brock-purdy-injury-update-49ers/
+
+**Bo Bichette begins running progression, joins Blue Jays in New York**\
+`Bichette jogged in centre field at Yankee Stadium, the first time he's been seen running since injuring his knee in early September.`\
+https://nytimes.com/athletic/6701025/2025/10/08/bo-bichette-blue-jays-running-progression/
+
 **‘ICE Goes Masked for a Single Reason’**\
-`Authoritarian creep reaches a new phase`\
+`Authoritarian creep reaches a new phase.`\
 https://nytimes.com/2025/10/08/opinion/ice-masks-immigration.html
 
 **Wild shuffle lineup ahead of opener: Ohgren and Haight in, Yurov out, Sturm out long-term**\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6701103/2025/10/08/aces-vs-mercury-stream-how-to-wa
 **A Taylor Swift Mystery: Which Musso and Frank’s Booth Is ‘Best’?**\
 `The pop star name dropped the storied Hollywood restaurant on her new album, “The Life of a Showgirl,” and the restaurant confirmed she is a customer. But which booth does she prefer?`\
 https://nytimes.com/2025/10/08/dining/taylor-swifts-musso-and-franks.html
-
-**Let Us Help You Find Your Next Children’s Book**\
-`Whether you’re looking for a classic or the latest and greatest, start here.`\
-https://nytimes.com/interactive/2025/books/childrens-books.html
-
-**Kevin Durant says Russell Westbrook ‘deserves’ to be in NBA, open to reunion**\
-`Durant shut down any knowledge of him and Westbrook potentially reuniting in Houston, saying it's "not my decision" for now.`\
-https://nytimes.com/athletic/6700661/2025/10/08/kevin-durant-russell-westbrook-rockets-reunion-nba/
-
-**The ‘Irony’ of the Government Shutdown**\
-`Health care premiums are expected to double for millions of Americans on Obamacare next year if the law doesn’t change in time. Neera Tanden walks Ezra Klein through the policy stakes of the government shutdown.`\
-https://nytimes.com/video/opinion/100000010441605/the-irony-of-the-government-shutdown.html
-
-**How to watch Bruins vs. Capitals: Time, TV, streaming**\
-`Find out how to watch the Boston Bruins play the Washington Capitals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6700963/2025/10/08/bruins-vs-capitals-stream-how-to-watch-oct-8/
 
