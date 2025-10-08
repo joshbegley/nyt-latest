@@ -1,3 +1,11 @@
+**Scoop City: The Joe Flacco trade's many layers**\
+`Threads of the Flacco trade, along with other possible moves, rules officials might forget (again) and Mike Sando's note on comebacks`\
+https://nytimes.com/athletic/6700712/2025/10/08/the-joe-flacco-trades-many-layers-plus-which-teams-might-trade-next/
+
+**Cam Atkinson to sign one-day contract, retire with the Blue Jackets**\
+`Atkinson had a 13-season, 809-game career with Columbus, the Philadelphia Flyers and the Tampa Bay Lightning.`\
+https://nytimes.com/athletic/6694403/2025/10/08/cam-atkinson-retirement-blue-jackets/
+
 **Joe Flacco will start for Bengals in Week 6 after trade from Browns**\
 `Flacco will start for his third AFC North team and become the Bengals’ third starting quarterback this season.`\
 https://nytimes.com/athletic/6700620/2025/10/08/joe-flacco-bengals-starting-quarterback/
@@ -11,7 +19,7 @@ https://nytimes.com/newsgraphics/card-story/tasting-a-new-flavor-of-portugal-in-
 https://nytimes.com/athletic/6700036/2025/10/08/fantasy-trends-and-hidden-gems-week-2-features-familiar-faces-in-new-places/
 
 **Officials Announce an Arrest in Palisades Fire**\
-`Federal authorities in Los Angeles said an arrest had been made in connection with the wildfire that devastated Pacific Palisades in January, killing 12 people and destroying 6,837 structures.`\
+`Federal authorities in Los Angeles said an arrest had been made in connection with the blaze that devastated Pacific Palisades in January, killing 12 people and destroying 6,837 structures.`\
 https://nytimes.com/video/us/100000010446687/palisades-fire-arrest.html
 
 **NFL Week 6 confidence picks: Dolphins, 49ers, Lions upsets?**\
@@ -19,7 +27,7 @@ https://nytimes.com/video/us/100000010446687/palisades-fire-arrest.html
 https://nytimes.com/athletic/6699692/2025/10/08/nfl-week-6-confidence-picks-dolphins-49ers-lions/
 
 **How Zohran Mamdani Came to Embrace the Palestinian Cause**\
-`Mr. Mamdani, the leader in the New York City mayor’s race, was shaped by a lifelong journey that influenced his view of Israel and formed the basis of his activist approach to politics.`\
+`As Mr. Mamdani seeks to reassure New York City he is open to compromise, his views on Israel and Palestinians have been the biggest exception.`\
 https://nytimes.com/2025/10/08/nyregion/zohran-mamdani-israel-palestine.html
 
 **Gerald Arpino, Minus His Groovy Fourth Dimension**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/08/arts/dance/gerald-arpino-festival-joyce-theater-j
 **In Manila, a Singular Home With Global Influences**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/in-manila-a-singular-home-with-global-influences
-
-**Nick Sirianni on Jalen Hurts, Saquon Barkley, A.J. Brown meeting: 'Love that'**\
-`The three leaders on offense didn't disclose exactly what they said during the meeting.`\
-https://nytimes.com/athletic/6700523/2025/10/08/eagles-aj-brown-saquon-barkley-jalen-hurts-meeting-nick-sirianni/
-
-**Yegor Chinakhov, after trade request, expected to be scratched from Blue Jackets' opener**\
-`The Blue Jackets open their season on Thursday in Nashville.`\
-https://nytimes.com/athletic/6700503/2025/10/08/yegor-chinakhov-blue-jackets-scratch-trade/
 
