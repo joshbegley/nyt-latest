@@ -1,3 +1,15 @@
+**What are the charges against Comey?**\
+`By Charlie Savage`\
+https://nytimes.com/live/2025/10/08/us/james-comey-arraignment-fbi/what-are-the-charges-against-comey
+
+**Here’s the latest.**\
+`By Glenn Thrush`\
+https://nytimes.com/live/2025/10/08/us/james-comey-arraignment-fbi/heres-the-latest
+
+**Live Updates: Longtime Trump Target James Comey to Appear in Court**\
+`The former F.B.I. director, scorned by the president since he ordered the inquiry into the Trump campaign’s ties to Russia, will be arraigned in Virginia.`\
+https://nytimes.com/live/2025/10/08/us/james-comey-arraignment-fbi
+
 **Green Spaces for Kids Shouldn’t Be Political**\
 `Public parks are vital for children’s health.`\
 https://nytimes.com/2025/10/08/opinion/green-spaces-kids.html
