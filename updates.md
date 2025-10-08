@@ -1,3 +1,7 @@
+**The Bounce: NBA sophomores who could surge. Plus, previewing the Grizzlies and Pacers**\
+`Zach Harper catches you up on leaguewide news.`\
+https://nytimes.com/athletic/6700068/2025/10/08/nba-second-year-players-grizzlies-pacers-the-bounce/
+
 **The Therapist Next Door**\
 `College students are meeting with “embedded” counselors in dorms and academic buildings, with promising results.`\
 https://nytimes.com/2025/10/08/well/mind/embedded-therapist-college-counselor.html
