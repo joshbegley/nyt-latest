@@ -35,6 +35,6 @@ https://nytimes.com/2025/10/08/style/military-portrait-dishonorable-discharge.ht
 https://nytimes.com/live/2025/10/08/us/trump-national-guard-chicago-illinois/here-is-the-latest
 
 **Live Updates: National Guard Troops Expected to Deploy Around Chicago**\
-``\
+`The deployment is happening despite the objections of the governor of Illinois and the mayor of Chicago. President Trump said Wednesday that both should be “in jail for failing to protect ICE Officers.”`\
 https://nytimes.com/live/2025/10/08/us/trump-national-guard-chicago-illinois
 
