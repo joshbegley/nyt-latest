@@ -1,3 +1,7 @@
+**How to watch Lions vs. Chiefs: Time, TV, streaming**\
+`Find out how to watch the Detroit Lions play the Kansas City Chiefs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6699370/2025/10/08/lions-vs-chiefs-stream-how-to-watch-oct-12/
+
 **Arsenal Women's errors typical of a team searching for rhythm and confidence**\
 `Rediscovering that calm and ruthlessness that made Arsenal such a threat under Slegers last season becomes more important with each game.`\
 https://nytimes.com/athletic/6698385/2025/10/08/arsenal-women-lyonnes-champions-league/

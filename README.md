@@ -1,3 +1,7 @@
+**Josh Johnson to Trump: He’s Not ‘Puff Daddy’ Anymore**\
+`The “Daily Show” host found comedic fodder in an Oval Office event about mining in Alaska, at which the president wound up talking about Sean Combs.`\
+https://nytimes.com/2025/10/08/arts/television/josh-johnson-trump-ghislaine-maxwell.html
+
 **How to watch Lions vs. Chiefs: Time, TV, streaming**\
 `Find out how to watch the Detroit Lions play the Kansas City Chiefs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6699370/2025/10/08/lions-vs-chiefs-stream-how-to-watch-oct-12/
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todayspaper/2025/10/08/todays-new-york-times
 **The Gaza I Once Knew Is Gone**\
 `After two years of war, one Gazan tells of what was lost.`\
 https://nytimes.com/interactive/2025/10/08/opinion/gaza-strip-before-after.html
-
-**Errors, mistakes and empty at-bats: A Game 3 unraveling now threatens the Tigers’ season**\
-`The Tigers made two errors, struggled against Seattle starter Logan Gilbert and now face elimination in Wednesday's ALDS Game 4.`\
-https://nytimes.com/athletic/6699181/2025/10/08/detroit-tigers-unraveling-game-3-alds/
 
