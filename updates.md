@@ -1,3 +1,15 @@
+**Brent Butterworth Shares His Sound Systems Test**\
+`Tracy Chapman’s “Fast Car” might be the ultimate song to gauge the quality of your speakers, but how else does our audio expert Brent Butterworth test sound systems and turntables to determine what’s best? He walks “The Wirecutter Show” podcast team through his process.`\
+https://nytimes.com/video/podcasts/100000010443783/brent-butterworth-shares-his-sound-systems-test.html
+
+**Roasted Cauliflower Caesar**\
+`For this more robust take on Caesar salad, you start by cutting thick slabs of cauliflower before breaking them into smaller pieces and roasting, which ensures maximum caramelized edges while using every part of the vegetable.`\
+https://nytimes.com/video/dining/100000010441361/roasted-cauliflower-caesar.html
+
+**Sen. Alex Padilla: Vance Knows I’m Not ‘José’**\
+`Sen.`\
+https://nytimes.com/video/podcasts/100000010441827/sen-alex-padilla-vance-knows-im-not-jose.html
+
 **Oracle Fears Add to Doubts About the A.I. Rally**\
 `Investors worried about the financials of the technology giant’s cloud computing business, compounding broader worries about a sky-high stock boom.`\
 https://nytimes.com/2025/10/08/business/dealbook/oracle-artificial-intelligence-bubble.html

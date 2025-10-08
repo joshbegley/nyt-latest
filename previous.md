@@ -1,3 +1,15 @@
+**Brent Butterworth Shares His Sound Systems Test**\
+`Tracy Chapman’s “Fast Car” might be the ultimate song to gauge the quality of your speakers, but how else does our audio expert Brent Butterworth test sound systems and turntables to determine what’s best? He walks “The Wirecutter Show” podcast team through his process.`\
+https://nytimes.com/video/podcasts/100000010443783/brent-butterworth-shares-his-sound-systems-test.html
+
+**Roasted Cauliflower Caesar**\
+`For this more robust take on Caesar salad, you start by cutting thick slabs of cauliflower before breaking them into smaller pieces and roasting, which ensures maximum caramelized edges while using every part of the vegetable.`\
+https://nytimes.com/video/dining/100000010441361/roasted-cauliflower-caesar.html
+
+**Sen. Alex Padilla: Vance Knows I’m Not ‘José’**\
+`Sen.`\
+https://nytimes.com/video/podcasts/100000010441827/sen-alex-padilla-vance-knows-im-not-jose.html
+
 **Oracle Fears Add to Doubts About the A.I. Rally**\
 `Investors worried about the financials of the technology giant’s cloud computing business, compounding broader worries about a sky-high stock boom.`\
 https://nytimes.com/2025/10/08/business/dealbook/oracle-artificial-intelligence-bubble.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6698938/2025/10/08/notre-dame-mailbag-christian-gra
 **Mandel's Mailbag: Should UNC cut cites with Belichick? Where does James Franklin stand?**\
 `Plus: Where does Texas Tech fit into the playoff picture and how does cross-country travel impact games?`\
 https://nytimes.com/athletic/6698678/2025/10/08/north-carolina-bill-belichick-james-franklin/
-
-**Connor McDavid wants the Stanley Cup. But can his Oilers finally win it?**\
-`Examining the factors that will impact the likelihood of McDavid and the Oilers realizing their Stanley Cup ambitions.`\
-https://nytimes.com/athletic/6698412/2025/10/08/connor-mcdavid-contract-oilers-stanley-cup/
-
-**Base Power, a Battery-Focused Power Company, Raises $1 Billion**\
-`The company, which leases out residential batteries as well as sells energy, is betting that it can profit from a new approach to soaring energy demands.`\
-https://nytimes.com/2025/10/08/business/dealbook/base-power-fundraise-dell.html
-
-**WNBA doppelganger turning heads at the finals**\
-`A UNLV professor has been impersonating Las Vegas coach Becky Hammon at games ... and drawing applause from the Aces.`\
-https://nytimes.com/athletic/6699182/2025/10/08/the-wnba-doppelganger-turning-heads-at-the-finals/
 
