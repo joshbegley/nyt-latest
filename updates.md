@@ -1,3 +1,7 @@
+**Texas National Guard Troops Arrive in Illinois for Deployment**\
+`National Guard troops from Texas have arrived in Illinois on Tuesday, and are preparing to deploy to the Chicago area. Officials said the 200 troops were sent to protect immigration agents.`\
+https://nytimes.com/video/us/politics/100000010445684/chicago-texas-national-guard-troops.html
+
 **Arsenal Women's errors typical of a team searching for rhythm and confidence**\
 `Rediscovering that calm and ruthlessness that made Arsenal such a threat under Slegers last season becomes more important with each game`\
 https://nytimes.com/athletic/6698385/2025/10/08/arsenal-women-lyonnes-champions-league/

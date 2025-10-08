@@ -1,3 +1,7 @@
+**Texas National Guard Troops Arrive in Illinois for Deployment**\
+`National Guard troops from Texas have arrived in Illinois on Tuesday, and are preparing to deploy to the Chicago area. Officials said the 200 troops were sent to protect immigration agents.`\
+https://nytimes.com/video/us/politics/100000010445684/chicago-texas-national-guard-troops.html
+
 **Josh Johnson to Trump: He’s Not ‘Puff Daddy’ Anymore**\
 `The “Daily Show” host found comedic fodder in an Oval Office event about mining in Alaska, at which the president wound up talking about Sean Combs.`\
 https://nytimes.com/2025/10/08/arts/television/josh-johnson-trump-ghislaine-maxwell.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6699211/2025/10/08/tyreek-hill-court-documents-rele
 **The New York Times in Print for Wednesday, Oct. 8, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/08/todays-new-york-times
-
-**The Gaza I Once Knew Is Gone**\
-`After two years of war, one Gazan tells of what was lost.`\
-https://nytimes.com/interactive/2025/10/08/opinion/gaza-strip-before-after.html
 
