@@ -1,3 +1,19 @@
+**Why Diamonds Are a Computer Chip’s New Best Friend**\
+`Data centers squander vast amounts of electricity, most of it as heat. The physical properties of diamond offer a potential solution, researchers say.`\
+https://nytimes.com/2025/10/08/science/diamonds-computer-chips-ai.html
+
+**Tree House**\
+`Would you want to live in one?`\
+https://nytimes.com/2025/10/08/learning/tree-house.html
+
+**Why Is This Lake ‘Burping’?**\
+`For hundreds of years, people who have lived near Seneca Lake in upstate New York have reported hearing loud booms coming from the water. No one is exactly sure why.`\
+https://nytimes.com/2025/10/08/nyregion/seneca-lake-guns-drums.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/10/08/crosswords/spelling-bee-forum.html
+
 **Texas National Guard Troops Arrive in Illinois for Deployment**\
 `National Guard troops from Texas have arrived in Illinois on Tuesday, and are preparing to deploy to the Chicago area. Officials said the 200 troops were sent to protect immigration agents.`\
 https://nytimes.com/video/us/politics/100000010445684/chicago-texas-national-guard-troops.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6699343/2025/10/08/blue-jays-vs-yankees-stream-how-
 **How to watch Phillies at Dodgers: Game 3 Time, TV, streaming**\
 `Find out how to watch the Philadelphia Phillies play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6699340/2025/10/08/phillies-vs-dodgers-stream-how-to-watch-oct-8/
-
-**Research shows 27,440 gambling ads evident during one Premier League weekend**\
-`A Premier League ban on front-of-shirt gambling sponsors comes into effect next season, but 11 or 20 clubs have one in 2025-26.`\
-https://nytimes.com/athletic/6697257/2025/10/08/premier-league-gambling-betting-advertising/
-
-**Word of the Day: vascular**\
-`This word has appeared in 32 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/10/08/learning/word-of-the-day-vascular.html
-
-**Unsealed document details abuse allegations against Dolphins' Tyreek Hill**\
-`The document alleges Hill became "increasingly aggressive, violent, and demanding over time."`\
-https://nytimes.com/athletic/6699211/2025/10/08/tyreek-hill-court-documents-released-dolphins/
-
-**The New York Times in Print for Wednesday, Oct. 8, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/10/08/todays-new-york-times
 
