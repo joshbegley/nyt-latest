@@ -1,3 +1,15 @@
+**The Therapist Next Door**\
+`College students are meeting with “embedded” counselors in dorms and academic buildings, with promising results.`\
+https://nytimes.com/2025/10/08/well/mind/embedded-therapist-college-counselor.html
+
+**Justice Kennedy, Off the Bench but Still Rendering Opinions**\
+`In a rare interview, the justice reflected on the state of the nation, the challenges facing the Supreme Court and, at 89, his own history and legacy.`\
+https://nytimes.com/2025/10/08/us/politics/justice-kennedy-interview-memoir.html
+
+**4 Workers Die in Collapse at Hotel Site in Madrid**\
+`The authorities initially thought the workers might be trapped after the collapse on Tuesday, but their bodies were recovered from the rubble overnight.`\
+https://nytimes.com/2025/10/08/world/europe/madrid-building-collapse-spain.html
+
 **How a Gen Z Revolution Spiraled Out of Control**\
 `Young people in Nepal rose up against corruption and inequality. But they say they did not expect the bloodshed, arson and government downfall that followed.`\
 https://nytimes.com/2025/10/08/world/asia/nepal-gen-z-revolution.html
