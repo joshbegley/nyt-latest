@@ -1,8 +1,16 @@
+**Cheer Up, or Else. China Cracks Down on the Haters and Cynics**\
+`As China struggles with economic discontent, internet censors are silencing those who voice doubts about work, marriage, or simply sigh too loudly online.`\
+https://nytimes.com/2025/10/08/world/asia/china-censorship-pessimism-despair.html
+
+**Yankees-Blue Jays Game 3 takeaways: Judge’s blast helps Yanks storm back, force Game 4**\
+`Boosted by Judge’s tying three-run homer, the Yankees erased an early five-run deficit, then put away Toronto, 9-6, to extend the series.  `\
+https://nytimes.com/athletic/6699104/2025/10/07/yankees-bluejays-game-3-score-results-takeaways-playoffs-mlb/
+
 **Rangers' Mike Sullivan era starts with a whimper in loss to Penguins**\
 `While the third line showed promise, systems and team play are clearly still a work in progress.`\
 https://nytimes.com/athletic/6698965/2025/10/07/new-york-rangers-opening-night-sullivan-penguins/
 
-**A Mariners fan's shirt said 'Dump 61 here!' – Cal Raleigh obliged**\
+**A Mariners fan's shirt said 'Dump 61 here!' — Cal Raleigh obliged**\
 `Jameson Turner originally made the shirt for the Mariners' final regular-season series in Seattle.`\
 https://nytimes.com/athletic/6699052/2025/10/07/seattle-mariners-fan-cal-raleigh/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6698234/2025/10/07/blackhawks-season-opener-youth-b
 **What the Cubs are stressing to Pete Crow-Armstrong with season on the brink**\
 `As the Cubs try to keep their focus on simply winning one game, they have to think that Crow-Armstrong, at any moment, could shift things.`\
 https://nytimes.com/athletic/6698878/2025/10/07/chicago-cubs-pete-crow-armstrong-nlds-message/
-
-**How the Phillies, with Aaron Nola starting, are approaching a do-or-die Game 3**\
-`Using Nola, then Ranger Suárez could allow the Phillies to navigate the pitfalls of the sixth and seventh, when the pen has struggled. `\
-https://nytimes.com/athletic/6698760/2025/10/07/phillies-dodgers-game-3-nlds-aaron-nola/
-
-**Reinventing Democracy for a Changed World**\
-`A drumbeat of hard realities echoed through the halls at this year’s Athens Democracy Forum, where participants noted trends that do not portend well for the form of governance.`\
-https://nytimes.com/2025/10/07/world/democracy-athens-forum-politics.html
 
