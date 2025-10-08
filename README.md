@@ -1,3 +1,11 @@
+**Nobel Prize in Chemistry Is Awarded for Development of New Molecular Architecture**\
+`The prize was awarded on Wednesday to Susumu Kitagawa, Richard Robson and Omar Yaghi.`\
+https://nytimes.com/2025/10/08/science/nobel-prize-chemistry.html
+
+**How the Yankees channeled the 'ghosts in Monument Park' in Game 3's wild comeback win**\
+`With help from the "ghosts," the Yankees scored eight unanswered runs to win Game 3 and keep their season alive for at least one more night.`\
+https://nytimes.com/athletic/6699234/2025/10/08/yankees-game-3-bluejays-monument-park-ghosts/
+
 **‘Man, we’re tiny’: The Brewers don’t stand tall. But they play big**\
 `The diminutiveness fits the ethos expressed by manager Pat Murphy, that the Brewers are underdogs.`\
 https://nytimes.com/athletic/6698271/2025/10/08/milwaukee-brewers-mlb-postseason-height-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/08/podcasts/tessa-thompson-hedda.html
 **Where the Patriots are exceeding expectations: Drake Maye, the run defense and more**\
 `To accomplish what the Pats have through five weeks, certain players and areas of the team must be performing better than anticipated.`\
 https://nytimes.com/athletic/6697044/2025/10/08/patriots-expectations-drake-maye-harold-landry-defense/
-
-**Meet ‘Porky,’ Lima’s Right-Wing Mayor Embracing the MAGA Movement**\
-`By embodying President Trump’s brash style, Rafael López Aliaga has become a leading candidate to be Peru’s next president.`\
-https://nytimes.com/2025/10/08/world/americas/porky-lopez-aliaga-lima-mayor-trump.html
-
-**Helmut Lachenmann’s Music Is Like Nothing Else**\
-`The composer, who turns 90 this fall, has expanded the spectrum of sounds that instruments produce and that audiences can perceive.`\
-https://nytimes.com/2025/10/08/arts/music/helmut-lachenmann-composer.html
 
