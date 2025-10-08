@@ -1,3 +1,15 @@
+**Rutgers Expert on Antifa Flees to Spain After Receiving Death Threats**\
+`Historian Mark Bray was teaching courses on anti-fascism at the New Jersey university. Turning Point USA accused of him belonging to antifa, which he denies.`\
+https://nytimes.com/2025/10/08/nyregion/rutgers-professor-threats-antifa.html
+
+**Tiny Love Stories: ‘Even Painful Things Can Heal’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/10/08/style/tiny-modern-love-stories-even-painful-things-can-heal.html
+
+**Smutty Dressing Is Back**\
+`And other takeaways courtesy of T’s editors after a month’s worth of shows in New York, London, Milan and Paris.`\
+https://nytimes.com/2025/10/08/t-magazine/fashion-shows-miu-miu-prada-tradwife-smutty.html
+
 **Thrillers Guaranteed to Give You Goosebumps**\
 `Our columnist on notable new releases.`\
 https://nytimes.com/2025/10/08/books/review/new-thriller-novels.html
