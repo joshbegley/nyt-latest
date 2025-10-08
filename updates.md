@@ -1,3 +1,15 @@
+**California Will Ban Certain Ultraprocessed Foods in Schools**\
+`A new state law creates the first legal definition of the foods, and may prompt changes in other states.`\
+https://nytimes.com/2025/10/08/well/eat/gavin-newsom-ultraprocessed-food-ban-california.html
+
+**Texas’ Blue-State Deployments Shred Relations Between Governors**\
+`State leaders have prided themselves on finding bipartisan consensus,  but President Trump’s deployment of National Guard troops from Texas to Illinois has ripped the veneer off that image.`\
+https://nytimes.com/2025/10/08/us/politics/national-guard-governors.html
+
+**Cubs-Brewers NLDS Game 3: Here's why the infield fly rule wasn't called**\
+`Milwaukee's Sal Frelick hit a sacrifice fly shortly after to score the game's first run.  `\
+https://nytimes.com/athletic/6701398/2025/10/08/cubs-brewers-nlds-game-3-infield-fly-rule/
+
 **Trump Says Gaza Talks Are Going ‘Very Well’ and Will Visit Middle East**\
 `The president’s comments and a note from Marco Rubio hinted that the two-year-long conflict may be about to pause, if not end.`\
 https://nytimes.com/2025/10/08/us/politics/trump-mideast-visit-israel-gaza.html
