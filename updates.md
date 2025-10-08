@@ -1,3 +1,19 @@
+**Texts from Democratic A.G. Candidate Roil Virginia Governor’s Race**\
+`In the messages, the Democratic candidate for attorney general, Jay Jones, discusses the hypothetical killing of a Republican lawmaker.`\
+https://nytimes.com/2025/10/08/us/jay-jones-text-messages-va-attorney-general.html
+
+**Live Updates: Trump Says Hamas Agrees to Release ‘All’ Hostages for Israeli Pullback**\
+`President Trump announced on social media that the two sides had hammered out an agreement in Egypt on a hostages for prisoners exchange. Israel and Hamas did not immediately confirm there was an accord.`\
+https://nytimes.com/live/2025/10/08/world/israel-hamas-gaza-ceasefire
+
+**Here’s the latest.**\
+`(No description)`\
+https://nytimes.com/live/2025/10/08/world/israel-hamas-gaza-ceasefire/heres-the-latest
+
+**His Lab Tested Cutting-Edge Spacecraft**\
+`Mason Peck, an aerospace engineer at Cornell, was trying to test innovative designs in spacecraft when a stop-work order hit.`\
+https://nytimes.com/2025/10/08/science/nsf-spacecraft-technology.html
+
 **Democratic Senators Spar With House Speaker Over Shutdown**\
 `Two Democratic senators from Arizona confronted Speaker Mike Johnson over his refusal to swear in a newly elected House Democrat, Adelita Grijalva, who had won a special election in their state last month. They also fought over the government shutdown and the Epstein files.`\
 https://nytimes.com/video/us/politics/100000010447777/democrats-johnson-fight-shutdown.html

@@ -1,3 +1,7 @@
+**Bruce Cutler, Pugnacious Lawyer for the Mob Boss John Gotti, Dies at 77**\
+`He became one of the country’s best-known criminal defense lawyers after winning acquittals in three cases that spawned a new nickname for Mr. Gotti: “the Teflon Don.”`\
+https://nytimes.com/2025/10/08/nyregion/bruce-cutler-dead.html
+
 **Texts from Democratic A.G. Candidate Roil Virginia Governor’s Race**\
 `In the messages, the Democratic candidate for attorney general, Jay Jones, discusses the hypothetical killing of a Republican lawmaker.`\
 https://nytimes.com/2025/10/08/us/jay-jones-text-messages-va-attorney-general.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/08/climate/mahalingaiah-air-pollution-infertility.ht
 **He Studied How Emissions Are Heating Up U.S. Cities**\
 `“Fundamentally, we were trying to learn about these systems to prevent people from dying unnecessarily from heat,” said Kevin Gurney, an atmospheric scientist.`\
 https://nytimes.com/2025/10/08/climate/kevin-gurney-emissions-science.html
-
-**She Studied How Logging Affects Pollinators**\
-`Kim Ballare was a research ecologist with the U.S. Forest Service until her federal grant “got snatched away.”`\
-https://nytimes.com/2025/10/08/science/ecology-forests-pollinators.html
 
