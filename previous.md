@@ -1,3 +1,15 @@
+**How a Gen Z Revolution Spiraled Out of Control**\
+`Young people in Nepal rose up against corruption and inequality. But they say they did not expect the bloodshed, arson and government downfall that followed.`\
+https://nytimes.com/2025/10/08/world/asia/nepal-gen-z-revolution.html
+
+**Lowetide: Six critical questions for the Oilers entering the 2025-26 season**\
+`There are more than the usual number of questions for a team with championship aspirations like the Oilers.`\
+https://nytimes.com/athletic/6697111/2025/10/08/edmonton-oilers-2025-26-schedule-questions/
+
+**Stepping Back in Time at the Race of Gentlemen**\
+`Every year, hot rods take over a beach in New Jersey for an event that is equal parts sporting event, fashion show and “time capsule.”`\
+https://nytimes.com/2025/10/08/style/the-race-of-gentlemen-new-jersey.html
+
 **The U.S. attorney leading the government’s case is a Trump loyalist.**\
 `By Alan Feuer`\
 https://nytimes.com/live/2025/10/08/us/james-comey-arraignment-fbi/the-us-attorney-leading-the-governments-case-is-a-trump-loyalist
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/10/08/us/james-comey-arraignment-fbi/who-is-the-ju
 **Real Madrid mailbag: Alonso's communication style, Rudiger's future, Super League updates**\
 `Things are looking good (mostly) for Madrid going into the international break, but what do you want to know from our writers?`\
 https://nytimes.com/athletic/6699756/2025/10/08/real-madrid-alonso-rudiger-super-league/
-
-**Arab Mediators Believe Hamas Could Be Open to Partially Disarming**\
-`People familiar with the mediators’ thinking say the militant group could compromise on a long-held red line, as long as President Trump can guarantee that Israel would not resume fighting.`\
-https://nytimes.com/2025/10/08/world/middleeast/israel-hamas-talks-gaza-war-disarm.html
-
-**In Food Label Fight, Europeans Debate How the Sausage Gets Made**\
-`Lawmakers in European Union voted to limit “burger,” “sausage” and other terms associated with cuts of meat to animal products, rankling consumers and producers of veggie burgers and tofu sausages.`\
-https://nytimes.com/2025/10/08/business/europe-veggie-vegan-meat-food-names.html
-
-**Voters Favor Deporting Those in U.S. Illegally, but Say Trump Has Gone Too Far**\
-`A Times/Siena survey shows that a majority of voters believe the Trump administration is deporting mostly the right people, even as a majority also say the process has been unfair.`\
-https://nytimes.com/2025/10/08/us/trump-deportation-illegal-immigrants-voters-poll.html
 

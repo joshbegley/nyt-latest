@@ -1,3 +1,15 @@
+**How a Gen Z Revolution Spiraled Out of Control**\
+`Young people in Nepal rose up against corruption and inequality. But they say they did not expect the bloodshed, arson and government downfall that followed.`\
+https://nytimes.com/2025/10/08/world/asia/nepal-gen-z-revolution.html
+
+**Lowetide: Six critical questions for the Oilers entering the 2025-26 season**\
+`There are more than the usual number of questions for a team with championship aspirations like the Oilers.`\
+https://nytimes.com/athletic/6697111/2025/10/08/edmonton-oilers-2025-26-schedule-questions/
+
+**Stepping Back in Time at the Race of Gentlemen**\
+`Every year, hot rods take over a beach in New Jersey for an event that is equal parts sporting event, fashion show and “time capsule.”`\
+https://nytimes.com/2025/10/08/style/the-race-of-gentlemen-new-jersey.html
+
 **The U.S. attorney leading the government’s case is a Trump loyalist.**\
 `By Alan Feuer`\
 https://nytimes.com/live/2025/10/08/us/james-comey-arraignment-fbi/the-us-attorney-leading-the-governments-case-is-a-trump-loyalist
