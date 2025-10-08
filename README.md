@@ -1,3 +1,7 @@
+**Democratic Senators Spar With House Speaker Over Shutdown**\
+`Two Democratic senators from Arizona confronted Speaker Mike Johnson over his refusal to swear in a newly elected House Democrat, Adelita Grijalva, who had won a special election in their state last month. They also fought over the government shutdown and the Epstein files.`\
+https://nytimes.com/video/us/politics/100000010447777/democrats-johnson-fight-shutdown.html
+
 **Aces-Mercury WNBA Finals posting highest viewership in decades**\
 `Through two games, the series is averaging 1.5 million viewers between games on ABC and ESPN. `\
 https://nytimes.com/athletic/6701556/2025/10/08/aces-mercury-wnba-finals-ratings-game-2-2/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/08/us/politics/comey-legal-challenges-explained.html
 **Rutgers Expert on Antifa Flees to Spain After Receiving Death Threats**\
 `Historian Mark Bray was teaching courses on anti-fascism at the New Jersey university. Turning Point USA accused of him belonging to antifa, which he denies.`\
 https://nytimes.com/2025/10/08/nyregion/rutgers-professor-threats-antifa.html
-
-**Tiny Love Stories: ‘Even Painful Things Can Heal’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2025/10/08/style/tiny-modern-love-stories-even-painful-things-can-heal.html
 
