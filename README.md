@@ -1,3 +1,7 @@
+**Tom Homan Was Said to Have Received $50,000 From Agents. He May Not Have to Return It.**\
+`Public corruption experts said the Justice Department had options for recovering money used in a sting operation. But that may not happen for years.`\
+https://nytimes.com/2025/10/08/us/politics/tom-homan-sting-money.html
+
 **‘Bluetoothing’: Blood-Sharing Drug Trend Fuels Alarming Global H.I.V. Surge**\
 `The practice, in which users inject the blood of already intoxicated individuals, has fueled one of the fastest-growing H.I.V. epidemics in the Pacific and grown widespread in South Africa.`\
 https://nytimes.com/2025/10/08/world/asia/bluetoothing-drug-blood-sharing.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6699980/2025/10/08/maple-leafs-opening-night-lineup
 **How the Patriots took down the NFL's last unbeaten team: 'Challenge them'**\
 `The Patriots challenged Buffalo’s receivers to beat them one-on-one, playing man coverage nearly 40 percent of the time.`\
 https://nytimes.com/athletic/6697771/2025/10/08/how-patriots-took-down-unbeaten-bills/
-
-**Officials Make an Arrest in Palisades Fire**\
-`The fire in Los Angeles is believed to have been tied to an earlier fireworks-sparked blaze on New Year’s Day. Federal officials are expected to announce details of the arrest at a news conference.`\
-https://nytimes.com/2025/10/08/us/los-angeles-palisades-fire-arrest.html
 
