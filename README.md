@@ -1,3 +1,7 @@
+**The conflict between Trump and Comey dates to their first meeting.**\
+`By Maggie Haberman`\
+https://nytimes.com/live/2025/10/08/us/james-comey-arraignment-fbi/the-conflict-between-trump-and-comey-dates-to-their-first-meeting
+
 **Trump Takes Aim at Illinois Governor and Chicago Mayor**\
 `In an early morning Truth Social post, the president said Gov. JB Pritzker of Illinois and Mayor Brandon Johnson of Chicago should be jailed for failing to protect ICE officers.`\
 https://nytimes.com/2025/10/08/us/trump-pritzker-brandon-johnson-jail-ice.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6700068/2025/10/08/nba-second-year-players-grizzlie
 **The Therapist Next Door**\
 `College students are meeting with “embedded” counselors in dorms and academic buildings, with promising results.`\
 https://nytimes.com/2025/10/08/well/mind/embedded-therapist-college-counselor.html
-
-**Justice Kennedy, Off the Bench but Still Rendering Opinions**\
-`In a rare interview, the justice reflected on the state of the nation, the challenges facing the Supreme Court and, at 89, his own history and legacy.`\
-https://nytimes.com/2025/10/08/us/politics/justice-kennedy-interview-memoir.html
 
