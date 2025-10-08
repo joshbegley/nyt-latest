@@ -1,3 +1,23 @@
+**Arsenal Women's errors typical of a team searching for rhythm and confidence**\
+`Rediscovering that calm and ruthlessness that made Arsenal such a threat under Slegers last season becomes more important with each game.`\
+https://nytimes.com/athletic/6698385/2025/10/08/arsenal-women-lyonnes-champions-league/
+
+**How to watch Blue Jays at Yankees: Game 4 Time, TV, streaming**\
+`Find out how to watch the Toronto Blue Jays play the New York Yankees, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6699343/2025/10/08/blue-jays-vs-yankees-stream-how-to-watch-oct-8/
+
+**How to watch Phillies at Dodgers: Game 3 Time, TV, streaming**\
+`Find out how to watch the Philadelphia Phillies play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6699340/2025/10/08/phillies-vs-dodgers-stream-how-to-watch-oct-8/
+
+**Research shows 27,440 gambling ads evident during one Premier League weekend**\
+`A Premier League ban on front-of-shirt gambling sponsors comes into effect next season, but 11 or 20 clubs have one in 2025-26.`\
+https://nytimes.com/athletic/6697257/2025/10/08/premier-league-gambling-betting-advertising/
+
+**Word of the Day: vascular**\
+`This word has appeared in 32 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/10/08/learning/word-of-the-day-vascular.html
+
 **Unsealed document details abuse allegations against Dolphins' Tyreek Hill**\
 `The document alleges Hill became "increasingly aggressive, violent, and demanding over time."`\
 https://nytimes.com/athletic/6699211/2025/10/08/tyreek-hill-court-documents-released-dolphins/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6699181/2025/10/08/detroit-tigers-unraveling-game-3
 **Melissa Jefferson-Wooden interview: 'I really did everything that I wanted to do this year'**\
 `The 24-year-old American’s remarkable season brought 19 wins from 20 individual races, and seven revisions to her personal bests`\
 https://nytimes.com/athletic/6695771/2025/10/08/melissa-jefferson-wooden-interview-i-really-did-everything-that-i-wanted-to-do-this-year/
-
-**Liverpool: don't panic**\
-`Three successive defeats have provoked some hysterical reactions. This is the right time to take a breath`\
-https://nytimes.com/athletic/6696721/2025/10/08/liverpool-form-premier-league/
-
-**Tony Bloom is Brighton’s leading man. But who are their minority shareholders?**\
-`Loans partly converted into shares have expanded Bloom's holding to 96.44 per cent. It leaves 3.56 per cent of shares held by others`\
-https://nytimes.com/athletic/6612731/2025/10/08/brighton-hove-albion-premier-league-ownership/
-
-**Opponents are 'ignoring' Barcelona's offside trap, and it's working**\
-`As more opponents seek innovative ways to catch their back four up the pitch, there is increasing need for Barcelona to retreat `\
-https://nytimes.com/athletic/6696480/2025/10/08/barcelona-offside-trap-issues-hansi-flick/
-
-**Gittens has had an underwhelming start at Chelsea. Malouda has some advice**\
-`Gittens has not provided a goal or assist in his first seven appearances for Chelsea but Malouda is optimistic`\
-https://nytimes.com/athletic/6696228/2025/10/08/jamie-gittens-chelsea-florent-malouda-interview/
-
-**What their first defeat since April tells us about the rest of Palace's season**\
-`There is no doom and gloom despite the end of an unbeaten run stretching back to April, but the way it happened at Everton will frustrate`\
-https://nytimes.com/athletic/6691431/2025/10/08/crystal-palace-glasner-defeat-chances/
 
