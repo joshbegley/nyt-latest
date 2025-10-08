@@ -1,3 +1,7 @@
+**Reinventing Democracy for a Changed World**\
+`A drumbeat of hard realities echoed through the halls at this year’s Athens Democracy Forum, where participants noted trends that do not portend well for the form of governance.`\
+https://nytimes.com/2025/10/07/world/democracy-athens-forum-politics.html
+
 **‘The Mother of All Battles?’ Information Integrity.**\
 `The Nobel Prize winner Maria Ressa told attendees at the Athens Democracy Forum that holding fast to “truth” was critical in restoring democracy.`\
 https://nytimes.com/2025/10/07/world/maria-ressa-truth-athens-democracy-forum.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6698191/2025/10/07/nfl-weaknesses-2025-contenders-b
 **John B. Gurdon, 92, Dies; Nobelist Paved Way for Cloning of Animals**\
 `His work in the manipulation of cells laid the foundation for stem cell biology and regenerative medicine and led to the first cloned large mammal, a sheep named Dolly.`\
 https://nytimes.com/2025/10/07/science/john-b-gurdon-dead.html
-
-**Trump Appoints New Head of Immigration Courts**\
-`Col. Daren K. Margolin, who retired from the Marine Corps, was fired from a command position as head of security at Marine Base Quantico in 2013 for negligently firing a gun into the floor of his office.`\
-https://nytimes.com/2025/10/07/us/politics/trump-immigration-courts.html
 
