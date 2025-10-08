@@ -1,3 +1,11 @@
+**Blackhawks' youth shows in season-opening loss to champion Panthers**\
+`Blashill's debut behind Chicago's bench came as a learning experience for some of his players as Spencer Knight and Frank Nazar impressed.`\
+https://nytimes.com/athletic/6698234/2025/10/07/blackhawks-season-opener-youth-blashill-knight/
+
+**What the Cubs are stressing to Pete Crow-Armstrong with season on the brink**\
+`As the Cubs try to keep a narrow focus on just winning one game, they have to think that Crow-Armstrong, at any moment, could shift things.`\
+https://nytimes.com/athletic/6698878/2025/10/07/chicago-cubs-pete-crow-armstrong-nlds-message/
+
 **How the Phillies, with Aaron Nola starting, are approaching a do-or-die Game 3**\
 `Using Nola, then Ranger Suárez could allow the Phillies to navigate the pitfalls of the sixth and seventh, when the pen has struggled. `\
 https://nytimes.com/athletic/6698760/2025/10/07/phillies-dodgers-game-3-nlds-aaron-nola/
