@@ -1,3 +1,11 @@
+**Mariners-Tigers Game 3 takeaways: Seattle strikes early to take series edge**\
+`The Mariners are one win away from advancing to their first American League Championship Series since 2001.`\
+https://nytimes.com/athletic/6698547/2025/10/07/tigers-mariners-game-3-score-results-takeaways-playoffs-mlb/
+
+**Positive Swings**\
+`Daniel Trujillo Diaz makes his New York Times Crossword debut.`\
+https://nytimes.com/2025/10/07/crosswords/daily-puzzle-2025-10-08.html
+
 **New Yorkers Observe Oct. 7 Anniversary With Eye Toward Peace Talks**\
 `People gathered in remembrance of hostages held by Hamas and in protest of Israel’s destructive campaign in Gaza as negotiators discussed a possible agreement to end the war.`\
 https://nytimes.com/2025/10/07/nyregion/nyc-october-7-anniversary.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/07/world/europe/athens-democracy-forum-womens-rights
 **Dialogue Is an Antidote for Populism**\
 `At a forum in Athens, leaders discussed challenges to democracy that they said stemmed from both internal and external forces.`\
 https://nytimes.com/2025/10/07/world/europe/democracy-populism-security-athens-forum.html
-
-**Al Horford happy to finally be playing with a 'terrifying' Stephen Curry**\
-`After almost two decades of playing against the Warriors' sharpshooter, veteran big man explains why the fit is so good.`\
-https://nytimes.com/athletic/6698697/2025/10/07/warriors-al-horford-stephen-curry-fitting-in/
-
-**Democracy Involves More Than Merely Casting a Ballot, Youth Leaders Say**\
-`Five young people spearheading efforts around the world to bolster and restore democratic principles share what they have learned — and what needs to change.`\
-https://nytimes.com/2025/10/07/world/democracy-forum-athens-youth-leaders.html
 
