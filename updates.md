@@ -1,3 +1,7 @@
+**Gerrard set for talks over Rangers return**\
+`Rangers parted company with Russell Martin on Sunday.`\
+https://nytimes.com/athletic/6693193/2025/10/08/steven-gerrard-rangers-manager-next/
+
 **Istanbul**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/istanbul

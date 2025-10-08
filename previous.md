@@ -1,3 +1,7 @@
+**Gerrard set for talks over Rangers return**\
+`Rangers parted company with Russell Martin on Sunday.`\
+https://nytimes.com/athletic/6693193/2025/10/08/steven-gerrard-rangers-manager-next/
+
 **Istanbul**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/istanbul
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6701025/2025/10/08/bo-bichette-blue-jays-running-pr
 **‘ICE Goes Masked for a Single Reason’**\
 `Authoritarian creep reaches a new phase.`\
 https://nytimes.com/2025/10/08/opinion/ice-masks-immigration.html
-
-**Wild shuffle lineup ahead of opener: Ohgren and Haight in, Yurov out, Sturm out long-term**\
-`Per league sources, Sturm is expected to undergo surgery for a back injury that has been ailing him since the first practice of camp.`\
-https://nytimes.com/athletic/6700853/2025/10/08/wild-injuries-sturm-haight-brodin/
 

@@ -1,3 +1,7 @@
+**Another African Charity Tied to Prince Harry Faces Criticism**\
+`A charity tied to the British royal confirmed that the government of Chad has cut ties with the group, after allegations of mismanagement.`\
+https://nytimes.com/2025/10/08/world/africa/prince-harry-chad-african-parks.html
+
 **Gerrard set for talks over Rangers return**\
 `Rangers parted company with Russell Martin on Sunday.`\
 https://nytimes.com/athletic/6693193/2025/10/08/steven-gerrard-rangers-manager-next/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6700601/2025/10/08/brock-purdy-injury-update-49ers/
 **Bo Bichette begins running progression, joins Blue Jays in New York**\
 `Bichette jogged in centre field at Yankee Stadium, the first time he's been seen running since injuring his knee in early September.`\
 https://nytimes.com/athletic/6701025/2025/10/08/bo-bichette-blue-jays-running-progression/
-
-**‘ICE Goes Masked for a Single Reason’**\
-`Authoritarian creep reaches a new phase.`\
-https://nytimes.com/2025/10/08/opinion/ice-masks-immigration.html
 
