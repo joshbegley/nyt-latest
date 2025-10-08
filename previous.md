@@ -1,3 +1,19 @@
+**Bold predictions for the Bruins in 2025-26: Swayman roars back, Zacha is traded, Hagens debuts**\
+`Also: Geekie scores more goals, another Bruins trade, Hampus Lindolm makes Team Sweden and Peeke gets an extension.`\
+https://nytimes.com/athletic/6697426/2025/10/08/bruins-bold-predictions-swayman-zacha-hagens/
+
+**Every NHL banner-raising ceremony of the salary cap era, ranked purely on spite**\
+`The real point of a Cup banner-raising ceremony is to make the other team feel bad. Let's rank how each team did on that front.`\
+https://nytimes.com/athletic/6697809/2025/10/08/nhl-stanley-cup-banner-raising/
+
+**The Pulse: Two playoff homers of destiny**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6698068/2025/10/08/aaron-judge-cal-raleigh-home-run-the-pulse/
+
+**Maple Leafs bold predictions: Matthews vs. Nylander, playoff hopes and more**\
+`Plus: A surprise Norris Trophy candidate and an optimistic playoffs outlook.`\
+https://nytimes.com/athletic/6696571/2025/10/08/maple-leafs-predictions-nhl-2026/
+
 **Bears' left tackle situation still in the spotlight: Is Theo Benedet up next?**\
 `The Bears entered the bye still with a question at left tackle, and it's likely going to be the player who entered camp No. 4 in the battle.`\
 https://nytimes.com/athletic/6687675/2025/10/08/bears-left-tackle-situation-theo-benedet/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6698018/2025/10/08/mark-williams-phoenix-suns-trade
 **Jesse Love on going from 'high school football to the NFL' in Cup: 12 Questions**\
 `Love talks about the leap from Xfinity to the Cup Series, his policy on throwing deuces, his friendships in the garage and more.`\
 https://nytimes.com/athletic/6696753/2025/10/08/jesse-love-nascar-xfinity-cup-series-nfl-12-questions/
-
-**Adjusting to new system, Rangers show growing pains in season-opening clunker**\
-`In 3-0 loss to the Pittsburgh Penguins on Tuesday, the Rangers looked more like their 2024-25 version than the one they hope for in 2025-26.`\
-https://nytimes.com/athletic/6699236/2025/10/08/rangers-loss-penguins-season-opener/
-
-**Predicting how the bottom of the Eastern Conference will play out in 2025-26**\
-`With numerous teams focusing on player development and a couple facing gap years, the conference's lower end could be unsightly.`\
-https://nytimes.com/athletic/6688376/2025/10/08/nba-predictions-2025-2026-eastern-conference-sixers-celtics/
-
-**How Steve Kerr's 'secretary' built an WNBA Finals team**\
-`How did Nick U'Ren go from Warriors' "Boy Wonder" to Phoenix Mercury GM?`\
-https://nytimes.com/athletic/6698999/2025/10/08/nick-uren-steve-kerr-mercury-wnba-finals/
-
-**Cubs' already fragile pitching plan shattered once Cade Horton got hurt**\
-`As the Cubs sit on the brink of elimination, a group that carried the club during the offense’s slump is now a house of cards.`\
-https://nytimes.com/athletic/6698948/2025/10/08/chicago-cubs-nlds-cade-horton-pitching-plan/
 

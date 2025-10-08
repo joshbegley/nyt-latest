@@ -1,3 +1,19 @@
+**Bold predictions for the Bruins in 2025-26: Swayman roars back, Zacha is traded, Hagens debuts**\
+`Also: Geekie scores more goals, another Bruins trade, Hampus Lindolm makes Team Sweden and Peeke gets an extension.`\
+https://nytimes.com/athletic/6697426/2025/10/08/bruins-bold-predictions-swayman-zacha-hagens/
+
+**Every NHL banner-raising ceremony of the salary cap era, ranked purely on spite**\
+`The real point of a Cup banner-raising ceremony is to make the other team feel bad. Let's rank how each team did on that front.`\
+https://nytimes.com/athletic/6697809/2025/10/08/nhl-stanley-cup-banner-raising/
+
+**The Pulse: Two playoff homers of destiny**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6698068/2025/10/08/aaron-judge-cal-raleigh-home-run-the-pulse/
+
+**Maple Leafs bold predictions: Matthews vs. Nylander, playoff hopes and more**\
+`Plus: A surprise Norris Trophy candidate and an optimistic playoffs outlook.`\
+https://nytimes.com/athletic/6696571/2025/10/08/maple-leafs-predictions-nhl-2026/
+
 **Bears' left tackle situation still in the spotlight: Is Theo Benedet up next?**\
 `The Bears entered the bye still with a question at left tackle, and it's likely going to be the player who entered camp No. 4 in the battle.`\
 https://nytimes.com/athletic/6687675/2025/10/08/bears-left-tackle-situation-theo-benedet/
