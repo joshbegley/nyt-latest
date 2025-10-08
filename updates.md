@@ -1,3 +1,11 @@
+**‘ICE Goes Masked for a Single Reason’**\
+`Authoritarian creep reaches a new phase`\
+https://nytimes.com/2025/10/08/opinion/ice-masks-immigration.html
+
+**Wild shuffle lineup ahead of opener: Ohgren and Haight in, Yurov out, Sturm out long-term**\
+`Per league sources, Sturm is expected to undergo surgery for a back injury that has been ailing him since the first practice of camp.`\
+https://nytimes.com/athletic/6700853/2025/10/08/wild-injuries-sturm-haight-brodin/
+
 **Quentin Grimes 'happy' to be with Sixers after contract uncertainty**\
 `Grimes, 25, accepted a one-year qualifying offer on the last day he could do so and will be an unrestricted free agent next summer.`\
 https://nytimes.com/athletic/6700970/2025/10/08/quentin-grimes-sixers-contract/
