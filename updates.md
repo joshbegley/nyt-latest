@@ -1,3 +1,7 @@
+**Fantasy trends and hidden gems: Week 2 features familiar faces in new places**\
+`Shayna Goldman's Week 2 fantasy hockey advice includes targeting Ivan Barbashev and monitoring the potential of Marco Rossi.`\
+https://nytimes.com/athletic/6700036/2025/10/08/fantasy-trends-and-hidden-gems-week-2-features-familiar-faces-in-new-places/
+
 **Officials Announce an Arrest in Palisades Fire**\
 `Federal authorities in Los Angeles said an arrest had been made in connection with the wildfire that devastated Pacific Palisades in January, killing 12 people and destroying 6,837 structures.`\
 https://nytimes.com/video/us/100000010446687/palisades-fire-arrest.html
