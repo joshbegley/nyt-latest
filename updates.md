@@ -1,3 +1,7 @@
+**College athletes could soon be allowed to bet on professional sports**\
+`If Division II and Division III also vote to approve the change, the new rules will go into effect Nov. 1.`\
+https://nytimes.com/athletic/6700539/2025/10/08/ncaa-gambling-student-athletes-professional-sports/
+
 **Woman Drugged and Raped by Dozens Returns to Court to Confront Assailant**\
 `Gisèle Pelicot’s ex-husband and others were convicted in one of France’s most notorious cases. She returned to court to denounce a man who challenged the verdict.`\
 https://nytimes.com/2025/10/08/world/europe/pelicot-rape-appeal-france.html

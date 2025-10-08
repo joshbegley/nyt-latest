@@ -1,3 +1,7 @@
+**College athletes could soon be allowed to bet on professional sports**\
+`If Division II and Division III also vote to approve the change, the new rules will go into effect Nov. 1.`\
+https://nytimes.com/athletic/6700539/2025/10/08/ncaa-gambling-student-athletes-professional-sports/
+
 **Woman Drugged and Raped by Dozens Returns to Court to Confront Assailant**\
 `Gisèle Pelicot’s ex-husband and others were convicted in one of France’s most notorious cases. She returned to court to denounce a man who challenged the verdict.`\
 https://nytimes.com/2025/10/08/world/europe/pelicot-rape-appeal-france.html
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/6700481/2025/10/08/csc-snitch-reporting-line-nil-vi
 **Superstars always get paid? Introducing the biggest bargain in sports: MoneyCall**\
 `More in this week's sports business cheat sheet: LeBron's Decision 2 debacle, the NHL bull case and Dan's best sports-parenting advice.`\
 https://nytimes.com/athletic/6700476/2025/10/08/connor-mcdavid-nhl-contract-bargains-moneycall/
-
-**Madison Cunningham Won a Grammy. Next Came a Hard Reset.**\
-`The California guitarist’s last LP, “Revealer,” was named best folk album in 2023. But after a divorce at 27, she returns with a defiant edge.`\
-https://nytimes.com/2025/10/08/arts/music/madison-cunningham-ace.html
 
