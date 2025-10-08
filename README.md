@@ -1,3 +1,7 @@
+**‘Les Misérables’ at 40: The Unlikely Story of a Hit**\
+`Critics initially panned it, but public love for the musical with songs like “One Day More” and “On My Own” has kept it going strong for four decades — and counting.`\
+https://nytimes.com/2025/10/08/theater/les-miserables-40th-anniversary.html
+
 **Conor McGregor handed 18-month UFC ban for missing drugs tests**\
 `The Dublin-born fighter has been recovering from injury and was not preparing for any fights at the times of the missed tests.`\
 https://nytimes.com/athletic/6699467/2025/10/08/conor-mcgregor-ufc-ban-drugs-test/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6699370/2025/10/08/lions-vs-chiefs-stream-how-to-wa
 **Arsenal Women's errors typical of a team searching for rhythm and confidence**\
 `Rediscovering that calm and ruthlessness that made Arsenal such a threat under Slegers last season becomes more important with each game`\
 https://nytimes.com/athletic/6698385/2025/10/08/arsenal-women-lyonnes-champions-league/
-
-**How to watch Blue Jays at Yankees: Game 4 Time, TV, streaming**\
-`Find out how to watch the Toronto Blue Jays play the New York Yankees, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6699343/2025/10/08/blue-jays-vs-yankees-stream-how-to-watch-oct-8/
 
