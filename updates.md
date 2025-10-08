@@ -1,3 +1,7 @@
+**U.K. Conservatives Yearn for Thatcher and Wonder About Their Future**\
+`The once dominant British political party has been outflanked by Reform, a right-wing populist rival. At the Tory annual conference, attendance was sparse.`\
+https://nytimes.com/2025/10/08/world/europe/uk-conservative-party-conference-badenoch.html
+
 **Huijsen out of Spain squad with calf injury, Madrid optimistic on El Clasico return**\
 `Xabi Alonso's side face Juventus in the Champions League on October 22 and then host Barcelona in La Liga four days later.`\
 https://nytimes.com/athletic/6699787/2025/10/08/huijsen-real-madrid-injury-update/
