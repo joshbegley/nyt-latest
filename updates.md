@@ -1,3 +1,19 @@
+**Real Madrid mailbag: Alonso's communication style, Rudiger's future, Super League updates**\
+`Things are looking good (mostly) for Madrid going into the international break, but what do you want to know from our writers?`\
+https://nytimes.com/athletic/6699756/2025/10/08/real-madrid-alonso-rudiger-super-league/
+
+**Arab Mediators Believe Hamas Could Be Open to Partially Disarming**\
+`People familiar with the mediators’ thinking say the militant group could compromise on a long-held red line, as long as President Trump can guarantee that Israel would not resume fighting.`\
+https://nytimes.com/2025/10/08/world/middleeast/israel-hamas-talks-gaza-war-disarm.html
+
+**In Food Label Fight, Europeans Debate How the Sausage Gets Made**\
+`Lawmakers in European Union voted to limit “burger,” “sausage” and other terms associated with cuts of meat to animal products, rankling consumers and producers of veggie burgers and tofu sausages.`\
+https://nytimes.com/2025/10/08/business/europe-veggie-vegan-meat-food-names.html
+
+**Voters Favor Deporting Those in U.S. Illegally, but Say Trump Has Gone Too Far**\
+`A Times/Siena survey shows that a majority of voters believe the Trump administration is deporting mostly the right people, even as a majority also say the process has been unfair.`\
+https://nytimes.com/2025/10/08/us/trump-deportation-illegal-immigrants-voters-poll.html
+
 **Live Updates: National Guard Troops Expected to Deploy Around Chicago**\
 `The deployment is happening despite the objections of the governor of Illinois and the mayor of Chicago. President Trump said Wednesday that both should be “in jail for failing to protect ICE Officers.”`\
 https://nytimes.com/live/2025/10/08/us/trump-national-guard-chicago-illinois
