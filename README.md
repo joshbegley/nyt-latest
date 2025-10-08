@@ -1,6 +1,10 @@
+**Kevin Stefanski declines to say who will be Browns backup QB on Sunday**\
+`It appears that Kevin Stefanski is leaning toward Bailey Zappe, who's on the practice squad, as the No. 2 QB over rookie Shedeur Sanders.`\
+https://nytimes.com/athletic/6700766/2025/10/08/cleveland-browns-quarterback-backup/
+
 **Federal Workers’ Unions Call for Compromise on a Shutdown Deal**\
 `Union leaders representing hundreds of thousands of federal workers urged both parties to negotiate as their members prepared to receive their last paychecks until the standoff is resolved.`\
-https://nytimes.com/2025/10/08/us/politics/federal-workers-unions-call-for-compromise-on-a-shutdown-deal.html
+https://nytimes.com/2025/10/08/us/politics/federal-workers-unions-shutdown-deal.html
 
 **British Synagogue Attacker Pledged Allegiance to ISIS, Police Say**\
 `Jihad al-Shamie, who attacked a Manchester synagogue on the holiest day of the Jewish calendar, called the emergency services during the attack to claim responsibility.`\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/08/us/politics/key-democrats-ending-shutdown.html
 **JB Pritzker Has Had it With Democrats Who Won’t Stand Up to Trump**\
 `The Illinois governor, a potential presidential candidate, is fighting the presence of National Guard troops and the activities of ICE agents in Chicago.`\
 https://nytimes.com/2025/10/08/us/politics/pritzker-trump-national-guard-chicago.html
-
-**Why a China Spy Case in the U.K. Collapsed Before It Went to Trial**\
-`The British government has come under scrutiny after charges against two men accused of spying for Beijing were dropped. Here’s what to know.`\
-https://nytimes.com/2025/10/08/world/europe/uk-china-spy-trial.html
 
