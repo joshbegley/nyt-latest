@@ -1,3 +1,7 @@
+**A Mariners fan's shirt said 'Dump 61 here' — Cal Raleigh obliged**\
+`Jameson Turner originally made the shirt for the Mariners' final regular-season series in Seattle.`\
+https://nytimes.com/athletic/6699052/2025/10/07/seattle-mariners-fan-cal-raleigh/
+
 **Cheer Up, or Else. China Cracks Down on the Haters and Cynics**\
 `As China struggles with economic discontent, internet censors are silencing those who voice doubts about work, marriage, or simply sigh too loudly online.`\
 https://nytimes.com/2025/10/08/world/asia/china-censorship-pessimism-despair.html
