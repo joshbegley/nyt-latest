@@ -1,3 +1,11 @@
+**Blackhawks' youth shows in season-opening loss to champion Panthers**\
+`Blashill's debut behind Chicago's bench came as a learning experience for some of his players as Spencer Knight and Frank Nazar impressed.`\
+https://nytimes.com/athletic/6698234/2025/10/07/blackhawks-season-opener-youth-blashill-knight/
+
+**What the Cubs are stressing to Pete Crow-Armstrong with season on the brink**\
+`As the Cubs try to keep a narrow focus on just winning one game, they have to think that Crow-Armstrong, at any moment, could shift things.`\
+https://nytimes.com/athletic/6698878/2025/10/07/chicago-cubs-pete-crow-armstrong-nlds-message/
+
 **How the Phillies, with Aaron Nola starting, are approaching a do-or-die Game 3**\
 `Using Nola, then Ranger Suárez could allow the Phillies to navigate the pitfalls of the sixth and seventh, when the pen has struggled. `\
 https://nytimes.com/athletic/6698760/2025/10/07/phillies-dodgers-game-3-nlds-aaron-nola/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/07/world/democracy-forum-athens-youth-leaders.html
 **Civics Education Struggles, Even as Government and Politics Saturate Daily Life**\
 `While this may be a good time to take advantage of the public’s attention, it’s also a time when teachers increasingly fear repercussions for offending students.`\
 https://nytimes.com/2025/10/07/world/athens-democracy-forum-civics-education.html
-
-**Air Traffic Staffing Shortages Disrupt Travel for Second Straight Day**\
-`The national air space has long been reeling from a staffing crisis among air traffic controllers, as the F.A.A. grapples with a shortage of about 3,000 controllers.`\
-https://nytimes.com/2025/10/07/us/politics/air-traffic-control-government-shutdown.html
-
-**Scoop City: Weaknesses of each 4-1 team**\
-`Evaluating the weaknesses of top contenders, from the Eagles' run game to the Jaguars' passing attack`\
-https://nytimes.com/athletic/6698191/2025/10/07/nfl-weaknesses-2025-contenders-bills-colts-scoop-city/
 
