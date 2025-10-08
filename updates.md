@@ -1,3 +1,11 @@
+**The New York Times in Print for Wednesday, Oct. 8, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/08/todays-new-york-times
+
+**The Gaza I Once Knew Is Gone**\
+`After two years of war, one Gazan tells of what was lost.`\
+https://nytimes.com/interactive/2025/10/08/opinion/gaza-strip-before-after.html
+
 **Errors, mistakes and empty at-bats: A Game 3 unraveling now threatens the Tigers’ season**\
 `The Tigers made two errors, struggled against Seattle starter Logan Gilbert and now face elimination in Wednesday's ALDS Game 4.`\
 https://nytimes.com/athletic/6699181/2025/10/08/detroit-tigers-unraveling-game-3-alds/

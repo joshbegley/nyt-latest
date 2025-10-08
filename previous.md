@@ -1,3 +1,11 @@
+**The New York Times in Print for Wednesday, Oct. 8, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/08/todays-new-york-times
+
+**The Gaza I Once Knew Is Gone**\
+`After two years of war, one Gazan tells of what was lost.`\
+https://nytimes.com/interactive/2025/10/08/opinion/gaza-strip-before-after.html
+
 **Errors, mistakes and empty at-bats: A Game 3 unraveling now threatens the Tigers’ season**\
 `The Tigers made two errors, struggled against Seattle starter Logan Gilbert and now face elimination in Wednesday's ALDS Game 4.`\
 https://nytimes.com/athletic/6699181/2025/10/08/detroit-tigers-unraveling-game-3-alds/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6691431/2025/10/08/crystal-palace-glasner-defeat-ch
 **Aaronson gives Leeds what they need defensively — but does Farke want more in attack?**\
 `Brenden Aaronson is one of the Premier League's best offensive players for defensive duties this season`\
 https://nytimes.com/athletic/6696951/2025/10/08/brenden-aaronson-leeds-usmnt-analysis-defending/
-
-**Less direct, more cutbacks, better chances – analysing Everton's shifting style**\
-`New signings and a new era have meant a change in approach on the pitch. It is still early days but the data clearly shows a team evolving`\
-https://nytimes.com/athletic/6696323/2025/10/08/everton-style-shift-grealish-cutbacks/
-
-**Michael Ndiweni: From dream Newcastle debut to playing in the U.S. - via the Baller League**\
-`Two years on from making the squad for a Champions Legaue game at PSG, the 21-year-old is rebuilding his football career in Ohio`\
-https://nytimes.com/athletic/6486306/2025/10/08/michael-ndiweni-newcastle-interview/
 
