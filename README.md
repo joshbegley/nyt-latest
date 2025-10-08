@@ -7,7 +7,7 @@ https://nytimes.com/2025/10/08/nyregion/bruce-cutler-dead.html
 https://nytimes.com/2025/10/08/us/jay-jones-text-messages-va-attorney-general.html
 
 **Live Updates: Trump Says Hamas Agrees to Release ‘All’ Hostages for Israeli Pullback**\
-`President Trump announced on social media that the two sides had hammered out an agreement in Egypt on a hostages for prisoners exchange. Israel and Hamas did not immediately confirm there was an accord.`\
+`President Trump announced on social media that the two sides had hammered out an agreement in Egypt on a hostages for prisoners exchange and an Israeli withdrawal.`\
 https://nytimes.com/live/2025/10/08/world/israel-hamas-gaza-ceasefire
 
 **Here’s the latest.**\
