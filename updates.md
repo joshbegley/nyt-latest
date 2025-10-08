@@ -1,3 +1,7 @@
+**Josh Johnson to Trump: He’s Not ‘Puff Daddy’ Anymore**\
+`The “Daily Show” host found comedic fodder in an Oval Office event about mining in Alaska, at which the president wound up talking about Sean Combs.`\
+https://nytimes.com/2025/10/08/arts/television/josh-johnson-trump-ghislaine-maxwell.html
+
 **How to watch Lions vs. Chiefs: Time, TV, streaming**\
 `Find out how to watch the Detroit Lions play the Kansas City Chiefs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6699370/2025/10/08/lions-vs-chiefs-stream-how-to-watch-oct-12/
