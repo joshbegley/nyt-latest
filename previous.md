@@ -1,3 +1,23 @@
+**Trump Fires Black Officials From an Overwhelmingly White Administration**\
+`Separately, in the administration’s first 200 days, only two of 98 Senate-confirmed appointees to the most senior jobs in government were Black.`\
+https://nytimes.com/2025/10/08/us/politics/black-leaders-trump.html
+
+**Parents, Doctors and Vaccines for Children**\
+`Readers respond to a guest essay about vaccine debates. Also: Attorney General Pam Bondi’s performance; wildfire smoke and our health.`\
+https://nytimes.com/2025/10/08/opinion/vaccines-children.html
+
+**A Tile-Filled Home Where the Bathroom Is a Social Hub**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/guadalajara-mexico-home-lofa-ceramics
+
+**Before Trump Ordered In Troops, Federal Officers Called Portland Protests ‘Low Energy’**\
+`Local officials say the atmosphere outside an ICE building that has drawn daily demonstrations since June has grown worse since the president’s threats.`\
+https://nytimes.com/2025/10/08/us/politics/trump-portland-troops.html
+
+**Toronto’s Subway Deer Enigma Unmasked With DNA Analysis**\
+`It took nearly 50 years to work out the identity of a caribou-like fossil first discovered by construction workers.`\
+https://nytimes.com/2025/10/08/science/toronto-subway-deer-dna-fossil.html
+
 **College athletes could soon be allowed to bet on professional sports**\
 `If Division II and Division III also vote to approve the change, the new rules will go into effect Nov. 1.`\
 https://nytimes.com/athletic/6700539/2025/10/08/ncaa-gambling-student-athletes-professional-sports/
@@ -13,16 +33,4 @@ https://nytimes.com/2025/10/08/us/harvard-palestinian-protest-die-in-lawsuit.htm
 **His Execution Is Days Away. A Detective Says He’s Innocent.**\
 `What happens when the science that sends a man to death row is debunked? Robert Roberson spent over 20 years on death row for his daughter’s death, but new evidence points to a different cause. Without intervention from Gov. Greg Abbott of Texas, Roberson’s execution is scheduled for Oct. 16.`\
 https://nytimes.com/video/opinion/100000010444338/his-execution-is-days-away-a-detective-says-hes-innocent.html
-
-**Longtime Nationals executives depart under new president of baseball ops: Sources**\
-`The Nationals have not had a winning season since they won the World Series in 2019.`\
-https://nytimes.com/athletic/6700483/2025/10/08/nationals-paul-toboni-staff-changes/
-
-**College Sports Commission opens 'snitch' line to report NIL rule violations**\
-`The new CSC system allows for anonymous reports via phone call, text, email or document uploads.`\
-https://nytimes.com/athletic/6700481/2025/10/08/csc-snitch-reporting-line-nil-violations/
-
-**Superstars always get paid? Introducing the biggest bargain in sports: MoneyCall**\
-`More in this week's sports business cheat sheet: LeBron's Decision 2 debacle, the NHL bull case and Dan's best sports-parenting advice.`\
-https://nytimes.com/athletic/6700476/2025/10/08/connor-mcdavid-nhl-contract-bargains-moneycall/
 
