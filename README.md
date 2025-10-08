@@ -1,3 +1,11 @@
+**How the Patriots took down the NFL's last unbeaten team: 'Challenge them'**\
+`The Patriots challenged Buffalo’s receivers to beat them one-on-one, playing man coverage nearly 40 percent of the time.`\
+https://nytimes.com/athletic/6697771/2025/10/08/how-patriots-took-down-unbeaten-bills/
+
+**Officials to Announce Arrest in Palisades Fire**\
+`The fire in Los Angeles is believed to have been tied to an earlier fireworks-sparked blaze that occurred on New Year’s Day.`\
+https://nytimes.com/2025/10/08/us/los-angeles-palisades-fire-arrest.html
+
 **How to watch Canadiens vs. Maple Leafs: Time, TV, streaming**\
 `Find out how to watch the Montreal Canadiens play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6700354/2025/10/08/canadiens-vs-maple-leafs-stream-how-to-watch-oct-8/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/08/arts/music/taylor-swift-showgirl-sales-adele.html
 **Comey’s defense lawyer once prosecuted big corruption cases and a high-profile leak.**\
 `By Charlie Savage`\
 https://nytimes.com/live/2025/10/08/us/james-comey-arraignment-fbi/comeys-defense-lawyer-once-prosecuted-big-corruption-cases-and-a-high-profile-leak
-
-**Make Better Meatballs**\
-`Sue Li shows you how with her smart recipes for classic Italian meatballs, chicken meatballs with yogurt sauce and lion’s head meatballs.`\
-https://nytimes.com/2025/10/08/dining/make-better-meatballs.html
-
-**Joan Kennedy, Who Married Into a Political Dynasty, Dies at 89**\
-`The wife of Senator Ted Kennedy for a quarter of a century, she both basked and struggled in the reflected glare of a family constantly in the spotlight.`\
-https://nytimes.com/2025/10/08/us/joan-kennedy-dead.html
 
