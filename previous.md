@@ -1,3 +1,11 @@
+**Mixed Economic Signals Stoke Divisions at Fed, Minutes Show**\
+`A few officials appeared reluctant to support the central bank’s interest rate cut last month, underscoring the tough task ahead for Chair Jerome H. Powell to forge a consensus.`\
+https://nytimes.com/2025/10/08/business/federal-reserve-meeting-minutes.html
+
+**Inside the Capitol, A Heated Spat Over the Shutdown and Epstein**\
+`A pair of Democratic senators confronted the Republican speaker of the House over his refusal to swear in a colleague during the shutdown.`\
+https://nytimes.com/2025/10/08/us/politics/mike-johnson-spat-democrats-shutdown-epstein.html
+
 **Basketball card collectors are piling back onto the Wemby bandwagon**\
 `Following a brief dip caused by his injury last season, Wemby cards are climbing in value once again`\
 https://nytimes.com/athletic/6700681/2025/10/08/victor-wembanyama-cards-topps/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/08/world/europe/democracy-athens-forum-italy-protest
 **Trump’s Energy Cuts Punished Mostly Blue States. Red States Might Be Next.**\
 `As New York and other states tally the damage, a leaked document suggests more Energy Department cuts may be coming.`\
 https://nytimes.com/2025/10/08/climate/trump-clean-energy-grants-cuts.html
-
-**Man Utd to appoint Brentford COO as director of football operations**\
-`Manek's role will encompass women's football and also include overseeing player support, football culture and development, and travel.`\
-https://nytimes.com/athletic/6700563/2025/10/08/ameesh-manek-manchester-united-football-operations/
-
-**Inside Sabres' broadcast changes: Meghan Chayka, mic'd-up moments and more**\
-`The Sabres are aiming to modernize the content and presentation of their game broadcasts.`\
-https://nytimes.com/athletic/6700607/2025/10/08/sabres-meghan-chayka-tv-broadcast/
 

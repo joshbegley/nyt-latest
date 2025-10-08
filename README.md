@@ -1,3 +1,19 @@
+**Federal Workers’ Unions Call for Compromise on a Shutdown Deal**\
+`Union leaders representing hundreds of thousands of federal workers urged both parties to negotiate as their members prepared to receive their last paychecks until the standoff is resolved.`\
+https://nytimes.com/2025/10/08/us/politics/federal-workers-unions-call-for-compromise-on-a-shutdown-deal.html
+
+**British Synagogue Attacker Pledged Allegiance to ISIS, Police Say**\
+`Jihad al-Shamie, who attacked a Manchester synagogue on the holiest day of the Jewish calendar, called the emergency services during the attack to claim responsibility.`\
+https://nytimes.com/2025/10/08/world/europe/manchester-synagogue-attack-isis.html
+
+**Man Arrested in Connection to the Palisades Fire**\
+`Federal authorities in Los Angeles have arrested a man they believe intentionally started a fire that led to the deadly blaze that engulfed the Palisades region in January.`\
+https://nytimes.com/video/us/100000010447166/palisades-fire-man-arrested.html
+
+**What to know about the newly released Kyren Lacy crash footage**\
+`The role of former LSU receiver Kyren Lacy in a fatal December car crash has come under renewed scrutiny over the last week.`\
+https://nytimes.com/athletic/6700269/2025/10/08/kyren-lacy-crash-update-video-lawyer-lsu-football/
+
 **Mixed Economic Signals Stoke Divisions at Fed, Minutes Show**\
 `A few officials appeared reluctant to support the central bank’s interest rate cut last month, underscoring the tough task ahead for Chair Jerome H. Powell to forge a consensus.`\
 https://nytimes.com/2025/10/08/business/federal-reserve-meeting-minutes.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/08/us/politics/pritzker-trump-national-guard-chicago
 **Why a China Spy Case in the U.K. Collapsed Before It Went to Trial**\
 `The British government has come under scrutiny after charges against two men accused of spying for Beijing were dropped. Here’s what to know.`\
 https://nytimes.com/2025/10/08/world/europe/uk-china-spy-trial.html
-
-**Amid Conservative Attacks, Zach Bryan Says ICE Lyrics Were ‘Misconstrued’**\
-`Kristi Noem and other Trump officials have condemned a song snippet by the country music star that laments “the fading of the red, white and blue.”`\
-https://nytimes.com/2025/10/08/arts/zach-bryan-song-kristi-noem.html
-
-**Amorim has three years to prove himself at Man Utd – Ratcliffe**\
-`Amorim has won just 19 of his 50 matches in charge of United following his appointment in November of last year.`\
-https://nytimes.com/athletic/6699982/2025/10/08/manchester-united-jim-ratcliffe-ruben-amorim/
-
-**A New Security Decree Weighs Heavily on Italy’s Young Protesters**\
-`Students said they feared a longtime tradition of civil disobedience was in jeopardy because of a decree issued in June by the government of Prime Minister Giorgia Meloni.`\
-https://nytimes.com/2025/10/08/world/europe/democracy-athens-forum-italy-protesters.html
-
-**Trump’s Energy Cuts Punished Mostly Blue States. Red States Might Be Next.**\
-`As New York and other states tally the damage, a leaked document suggests more Energy Department cuts may be coming.`\
-https://nytimes.com/2025/10/08/climate/trump-clean-energy-grants-cuts.html
 
