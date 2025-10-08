@@ -1,3 +1,7 @@
+**Scoop City: Weaknesses of each 4-1 team**\
+`Evaluating the weakness of top contenders, from the Eagles' run game to the Jaguars' passing attack`\
+https://nytimes.com/athletic/6698191/2025/10/07/nfl-weaknesses-2025-contenders-bills-colts-scoop-city/
+
 **John B. Gurdon, 92, Dies; Nobelist Paved Way for Cloning of Animals**\
 `His work in the manipulation of cells laid the foundation for stem cell biology and regenerative medicine and led to the first cloned large mammal, a sheep named Dolly.`\
 https://nytimes.com/2025/10/07/science/john-b-gurdon-dead.html
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/6698708/2025/10/07/mariners-vs-tigers-stream-how-to
 **Carney and Trump: A Collision Avoided, Save for a Nasty Comment or Two**\
 `The Canadian prime minister came to Washington determined to take the heat out of the relationship. He mostly succeeded, at least for now.`\
 https://nytimes.com/2025/10/07/us/politics/carney-trump-canada-trade-relationship.html
-
-**3 Key Takeaways From the Bondi Hearing**\
-`The session before a Senate panel featured more fireworks than facts as Democrats and the attorney general repeatedly clashed.`\
-https://nytimes.com/2025/10/07/us/politics/bondi-hearing-takeaways.html
 
