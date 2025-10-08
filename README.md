@@ -1,4 +1,12 @@
-**Brock Purdy not practicing, Mac Jones limited as 49ers prepare for Buccaneers**\
+**A Chicago federal grand jury deals the latest setback to Trump’s immigration enforcement efforts.**\
+`By Ernesto Londoño`\
+https://nytimes.com/live/2025/10/08/us/trump-national-guard-chicago-illinois/a-chicago-federal-grand-jury-deals-the-latest-setback-to-trumps-immigration-enforcement-efforts
+
+**Allen Iverson on his memoir: 'You think you know, but you have no idea'**\
+`In an interview on CBS, Iverson also said that he has been sober for six months.`\
+https://nytimes.com/athletic/6700823/2025/10/08/allen-iverson-memoir-sober/
+
+**Brock Purdy not practicing, Mac Jones limited as 49ers prepare for Bucs**\
 `Brock Purdy aggravated his toe injury in the Week 4 loss to the Jaguars. Mac Jones is 3-0 in relief as a starter.`\
 https://nytimes.com/athletic/6700601/2025/10/08/brock-purdy-injury-update-49ers/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6701103/2025/10/08/aces-vs-mercury-stream-how-to-wa
 **A Taylor Swift Mystery: Which Musso and Frank’s Booth Is ‘Best’?**\
 `The pop star name dropped the storied Hollywood restaurant on her new album, “The Life of a Showgirl,” and the restaurant confirmed she is a customer. But which booth does she prefer?`\
 https://nytimes.com/2025/10/08/dining/taylor-swifts-musso-and-franks.html
-
-**Let Us Help You Find Your Next Children’s Book**\
-`Whether you’re looking for a classic or the latest and greatest, start here.`\
-https://nytimes.com/interactive/2025/books/childrens-books.html
-
-**Kevin Durant says Russell Westbrook ‘deserves’ to be in NBA, open to reunion**\
-`Durant shut down any knowledge of him and Westbrook potentially reuniting in Houston, saying it's "not my decision" for now.`\
-https://nytimes.com/athletic/6700661/2025/10/08/kevin-durant-russell-westbrook-rockets-reunion-nba/
 
