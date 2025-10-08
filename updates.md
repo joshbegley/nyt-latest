@@ -1,3 +1,19 @@
+**Why Diamonds Are a Computer Chip’s New Best Friend**\
+`Data centers squander vast amounts of electricity, most of it as heat. The physical properties of diamond offer a potential solution, researchers say.`\
+https://nytimes.com/2025/10/08/science/diamonds-computer-chips-ai.html
+
+**Tree House**\
+`Would you want to live in one?`\
+https://nytimes.com/2025/10/08/learning/tree-house.html
+
+**Why Is This Lake ‘Burping’?**\
+`For hundreds of years, people who have lived near Seneca Lake in upstate New York have reported hearing loud booms coming from the water. No one is exactly sure why.`\
+https://nytimes.com/2025/10/08/nyregion/seneca-lake-guns-drums.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/10/08/crosswords/spelling-bee-forum.html
+
 **Texas National Guard Troops Arrive in Illinois for Deployment**\
 `National Guard troops from Texas have arrived in Illinois on Tuesday, and are preparing to deploy to the Chicago area. Officials said the 200 troops were sent to protect immigration agents.`\
 https://nytimes.com/video/us/politics/100000010445684/chicago-texas-national-guard-troops.html
