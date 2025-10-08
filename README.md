@@ -1,40 +1,40 @@
-**‘Les Misérables’ at 40: The Unlikely Story of a Hit**\
-`Critics initially panned it, but public love for the musical with songs like “One Day More” and “On My Own” has kept it going strong for four decades — and counting.`\
-https://nytimes.com/2025/10/08/theater/les-miserables-40th-anniversary.html
+**What the Shutdown Is Really About**\
+`Obamacare premiums could double for millions of Americans if the law isn’t changed. Neera Tanden walks Ezra Klein through the shutdown’s policy stakes.`\
+https://nytimes.com/2025/10/08/opinion/ezra-klein-podcast-neera-tanden.html
 
-**Conor McGregor handed 18-month UFC ban for missing drugs tests**\
-`The Dublin-born fighter has been recovering from injury and was not preparing for any fights at the times of the missed tests.`\
-https://nytimes.com/athletic/6699467/2025/10/08/conor-mcgregor-ufc-ban-drugs-test/
+**Comey to Appear in Court in Case That Has Roiled Justice Dept.**\
+`The case against James B. Comey, the former F.B.I. director, was deemed too thin by a previous federal prosecutor, who quit under pressure from President Trump.`\
+https://nytimes.com/2025/10/08/us/politics/james-comey-arraignment.html
 
-**Why Diamonds Are a Computer Chip’s New Best Friend**\
-`Data centers squander vast amounts of electricity, most of it as heat. The physical properties of diamond offer a potential solution, researchers say.`\
-https://nytimes.com/2025/10/08/science/diamonds-computer-chips-ai.html
+**The Second Trump Administration Is a Museum of America’s Worst Moments**\
+`Remember when Republicans loved small government?`\
+https://nytimes.com/2025/10/08/opinion/trump-republicans-hypocrisy-small-government.html
 
-**Tree House**\
-`Would you want to live in one?`\
-https://nytimes.com/2025/10/08/learning/tree-house.html
+**Tessa Thompson on Finding What You Want (What You Really, Really Want)**\
+`In Thompson’s latest film, she plays an unhappy housewife who blows up her life. In reality, the actor and producer has left relationships with much less fallout.`\
+https://nytimes.com/2025/10/08/podcasts/tessa-thompson-hedda.html
 
-**Why Is This Lake ‘Burping’?**\
-`For hundreds of years, people who have lived near Seneca Lake in upstate New York have reported hearing loud booms coming from the water. No one is exactly sure why.`\
-https://nytimes.com/2025/10/08/nyregion/seneca-lake-guns-drums.html
+**Where the Patriots are exceeding expectations: Drake Maye, the run defense and more**\
+`To accomplish what the Pats have through five weeks, certain players and areas of the team must be performing better than anticipated.`\
+https://nytimes.com/athletic/6697044/2025/10/08/patriots-expectations-drake-maye-harold-landry-defense/
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/10/08/crosswords/spelling-bee-forum.html
+**Meet ‘Porky,’ Lima’s Right-Wing Mayor Embracing the MAGA Movement**\
+`By embodying President Trump’s brash style, Rafael López Aliaga has become a leading candidate to be Peru’s next president.`\
+https://nytimes.com/2025/10/08/world/americas/porky-lopez-aliaga-lima-mayor-trump.html
 
-**Texas National Guard Troops Arrive in Illinois for Deployment**\
-`National Guard troops from Texas have arrived in Illinois on Tuesday, and are preparing to deploy to the Chicago area. Officials said the 200 troops were sent to protect immigration agents.`\
-https://nytimes.com/video/us/politics/100000010445684/chicago-texas-national-guard-troops.html
+**Helmut Lachenmann’s Music Is Like Nothing Else**\
+`The composer, who turns 90 this fall, has expanded the spectrum of sounds that instruments produce and that audiences can perceive.`\
+https://nytimes.com/2025/10/08/arts/music/helmut-lachenmann-composer.html
 
-**Josh Johnson to Trump: He’s Not ‘Puff Daddy’ Anymore**\
-`The “Daily Show” host found comedic fodder in an Oval Office event about mining in Alaska, at which the president wound up talking about Sean Combs.`\
-https://nytimes.com/2025/10/08/arts/television/josh-johnson-trump-ghislaine-maxwell.html
+**Tom Friedman on the Only Way to Solve the Israel-Hamas War**\
+`Can Donald Trump end the “worst war” with the latest round of peace talks?`\
+https://nytimes.com/2025/10/08/opinion/hamas-israel-ceasefire-trump-peace-gaza.html
 
-**How to watch Lions vs. Chiefs: Time, TV, streaming**\
-`Find out how to watch the Detroit Lions play the Kansas City Chiefs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6699370/2025/10/08/lions-vs-chiefs-stream-how-to-watch-oct-12/
+**Thousands of Miles From the U.S., Charlie Kirk Becomes a Political Tool**\
+`The mayor of Lima, Peru, held a Charlie Kirk memorial — filled with attendees bused in from poor neighborhoods — as he sought help from the Trump administration.`\
+https://nytimes.com/2025/10/08/world/americas/charlie-kirk-peru-porky.html
 
-**Arsenal Women's errors typical of a team searching for rhythm and confidence**\
-`Rediscovering that calm and ruthlessness that made Arsenal such a threat under Slegers last season becomes more important with each game`\
-https://nytimes.com/athletic/6698385/2025/10/08/arsenal-women-lyonnes-champions-league/
+**What the Shutdown Is Really About**\
+`Health care premiums are expected to double for millions of Americans on Obamacare next year if the law doesn’t change in time. Neera Tanden walks Ezra Klein through the policy stakes of the government shutdown.`\
+https://nytimes.com/video/opinion/100000010441588/what-the-shutdown-is-really-about.html
 
