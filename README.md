@@ -1,3 +1,19 @@
+**Trump Says Gaza Talks Are Going ‘Very Well’ and Will Visit Middle East**\
+`The president’s comments and a note from Marco Rubio hinted that the two-year-long conflict may be about to pause, if not end.`\
+https://nytimes.com/2025/10/08/us/politics/trump-mideast-visit-israel-gaza.html
+
+**On One of New York’s Slowest Buses, Mamdani Pushes Plan to Speed Them Up**\
+`Zohran Mamdani, the leading candidate in the race to be New York City’s next mayor, held a campaign event on a bus that crawled across Midtown Manhattan to highlight a signature proposal.`\
+https://nytimes.com/2025/10/08/nyregion/mamdani-bus-plan-nyc-mayor.html
+
+**Comey Pleaded Not Guilty**\
+`Also, National Guard troops assembled near Chicago and Portland. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/10/08/briefing/comey-not-guilty-plea-national-guard-chicago.html
+
+**After overcoming a dead leg, Antonee Robinson is back to inject life into USMNT**\
+`Robinson, a key figure for the USMNT, details the injury that has kept him out of action for the national team for 11 months`\
+https://nytimes.com/athletic/6701112/2025/10/08/antonee-robinson-injury-usmnt-fulham-pochettino-world-cup/
+
 **Federal Judge Imposes New Limits on ICE Operations in Chicago**\
 `The judge found that ICE had violated a 2022 consent agreement and demanded agents have probable cause for their arrests.`\
 https://nytimes.com/2025/10/08/us/chicago-ice-federal-judge-warrantless-arrests.html
@@ -21,20 +37,4 @@ https://nytimes.com/video/the-athletic/100000010446777/what-is-a-perfect-game-in
 **We Tested 19 Boxes of Mac and Cheese to Find the Best**\
 `Our teams recruited 20 kids to help taste-test 19 boxes of mac and cheese to find the best of the best.`\
 https://nytimes.com/video/smarter-living/100000010446599/we-tested-19-boxes-of-mac-and-cheese-to-find-the-best.html
-
-**Maverick Carter is out, but this new global basketball league is still planning its launch**\
-`Speculation has bubbled for months about an international league that could pose a threat to both the NBA and WNBA.`\
-https://nytimes.com/athletic/6699988/2025/10/08/project-b-global-basketball-wnba-nba-threat/
-
-**Press Group Condemns New Pentagon Rules on Reporting**\
-`Representatives of news organizations have been negotiating with the Pentagon since the department first released a set of new rules last month.`\
-https://nytimes.com/2025/10/08/business/media/pentagon-press-restrictions-trump.html
-
-**A.I. Slop Is Here**\
-`A conversation with our tech columnist Kevin Roose about an A.I.-generated video of him on a date with a robot.`\
-https://nytimes.com/2025/10/08/world/ai-slop-deep-fake-hamas-arms-france-government.html
-
-**Last of 10 Escapees From New Orleans Jail Is Captured in Atlanta**\
-`Derrick Groves, a convicted murderer who escaped with nine other inmates in May, was taken into custody after a brief standoff with the police.`\
-https://nytimes.com/2025/10/08/us/last-of-10-escapees-from-new-orleans-jail-is-captured-in-atlanta.html
 
