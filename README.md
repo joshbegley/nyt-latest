@@ -1,3 +1,7 @@
+**Fantasy trends and hidden gems: Week 2 features familiar faces in new places**\
+`Shayna Goldman's Week 2 fantasy hockey advice includes targeting Ivan Barbashev and monitoring the potential of Marco Rossi.`\
+https://nytimes.com/athletic/6700036/2025/10/08/fantasy-trends-and-hidden-gems-week-2-features-familiar-faces-in-new-places/
+
 **Officials Announce an Arrest in Palisades Fire**\
 `Federal authorities in Los Angeles said an arrest had been made in connection with the wildfire that devastated Pacific Palisades in January, killing 12 people and destroying 6,837 structures.`\
 https://nytimes.com/video/us/100000010446687/palisades-fire-arrest.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/08/us/politics/black-leaders-trump.html
 **Parents, Doctors and Vaccines for Children**\
 `Readers respond to a guest essay about vaccine debates. Also: Attorney General Pam Bondi’s performance; wildfire smoke and our health.`\
 https://nytimes.com/2025/10/08/opinion/vaccines-children.html
-
-**A Tile-Filled Home Where the Bathroom Is a Social Hub**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/guadalajara-mexico-home-lofa-ceramics
 
