@@ -1,3 +1,7 @@
+**Reinventing Democracy for a Changed World**\
+`A drumbeat of hard realities echoed through the halls at this year’s Athens Democracy Forum, where participants noted trends that do not portend well for the form of governance.`\
+https://nytimes.com/2025/10/07/world/democracy-athens-forum-politics.html
+
 **‘The Mother of All Battles?’ Information Integrity.**\
 `The Nobel Prize winner Maria Ressa told attendees at the Athens Democracy Forum that holding fast to “truth” was critical in restoring democracy.`\
 https://nytimes.com/2025/10/07/world/maria-ressa-truth-athens-democracy-forum.html
