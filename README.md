@@ -1,3 +1,11 @@
+**Officials Announce an Arrest in Palisades Fire**\
+`Federal authorities in Los Angeles said an arrest had been made in connection with the wildfire that devastated Pacific Palisades in January, killing 12 people and destroying 6,837 structures.`\
+https://nytimes.com/video/us/100000010446687/palisades-fire-arrest.html
+
+**NFL Week 6 confidence picks: Dolphins, 49ers, Lions upsets?**\
+`KC Joyner gives his NFL confidence picks, both straight up and against the spread, for every Week 6 game.`\
+https://nytimes.com/athletic/6699692/2025/10/08/nfl-week-6-confidence-picks-dolphins-49ers-lions/
+
 **How Zohran Mamdani Came to Embrace the Palestinian Cause**\
 `Mr. Mamdani, the leader in the New York City mayor’s race, was shaped by a lifelong journey that influenced his view of Israel and formed the basis of his activist approach to politics.`\
 https://nytimes.com/2025/10/08/nyregion/zohran-mamdani-israel-palestine.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/08/opinion/vaccines-children.html
 **A Tile-Filled Home Where the Bathroom Is a Social Hub**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/guadalajara-mexico-home-lofa-ceramics
-
-**Before Trump Ordered In Troops, Federal Officers Called Portland Protests ‘Low Energy’**\
-`Oregon officials say the atmosphere outside an ICE building that has drawn daily demonstrations since June has grown worse since the president’s threats.`\
-https://nytimes.com/2025/10/08/us/politics/trump-portland-troops.html
-
-**Toronto’s Subway Deer Enigma Unmasked With DNA Analysis**\
-`It took nearly 50 years to work out the identity of a caribou-like fossil first discovered by construction workers.`\
-https://nytimes.com/2025/10/08/science/toronto-subway-deer-dna-fossil.html
 
