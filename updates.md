@@ -1,3 +1,11 @@
+**Rangers' Mike Sullivan era starts with a whimper in loss to Penguins**\
+`While the third line showed promise, systems and team play are clearly still a work in progress.`\
+https://nytimes.com/athletic/6698965/2025/10/07/new-york-rangers-opening-night-sullivan-penguins/
+
+**A Mariners fan's shirt said 'Dump 61 here!' – Cal Raleigh obliged**\
+`Jameson Turner originally made the shirt for the Mariners' final regular-season series in Seattle.`\
+https://nytimes.com/athletic/6699052/2025/10/07/seattle-mariners-fan-cal-raleigh/
+
 **Yankees-Blue Jays Game 3: 2 fans rush the field during ALDS, causing delay**\
 `Both spectators were taken off the field in handcuffs.`\
 https://nytimes.com/athletic/6699042/2025/10/07/yankees-blue-jays-fans-rush-field-alds-game-3/
