@@ -1,3 +1,7 @@
+**Arsenal Women's errors typical of a team searching for rhythm and confidence**\
+`Rediscovering that calm and ruthlessness that made Arsenal such a threat under Slegers last season becomes more important with each game`\
+https://nytimes.com/athletic/6698385/2025/10/08/arsenal-women-lyonnes-champions-league/
+
 **Josh Johnson to Trump: He’s Not ‘Puff Daddy’ Anymore**\
 `The “Daily Show” host found comedic fodder in an Oval Office event about mining in Alaska, at which the president wound up talking about Sean Combs.`\
 https://nytimes.com/2025/10/08/arts/television/josh-johnson-trump-ghislaine-maxwell.html
