@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6699104/2025/10/07/yankees-bluejays-game-3-score-re
 `While the third line showed promise, systems and team play are clearly still a work in progress.`\
 https://nytimes.com/athletic/6698965/2025/10/07/new-york-rangers-opening-night-sullivan-penguins/
 
-**A Mariners fan's shirt said 'Dump 61 here!' — Cal Raleigh obliged**\
+**A Mariners fan's shirt said 'Dump 61 here' — Cal Raleigh obliged**\
 `Jameson Turner originally made the shirt for the Mariners' final regular-season series in Seattle.`\
 https://nytimes.com/athletic/6699052/2025/10/07/seattle-mariners-fan-cal-raleigh/
 
