@@ -1,3 +1,7 @@
+**U.K. Conservatives Yearn for Thatcher and Wonder About Their Future**\
+`The once dominant British political party has been outflanked by Reform, a right-wing populist rival. At the Tory annual conference, attendance was sparse.`\
+https://nytimes.com/2025/10/08/world/europe/uk-conservative-party-conference-badenoch.html
+
 **Huijsen out of Spain squad with calf injury, Madrid optimistic on El Clasico return**\
 `Xabi Alonso's side face Juventus in the Champions League on October 22 and then host Barcelona in La Liga four days later.`\
 https://nytimes.com/athletic/6699787/2025/10/08/huijsen-real-madrid-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6699182/2025/10/08/the-wnba-doppelganger-turning-he
 **Why is Michigan dropping so many of Bryce Underwood's passes?**\
 `Though Michigan's passing game is improved behind its five-star freshman QB, drops are holding the offense back.`\
 https://nytimes.com/athletic/6697565/2025/10/08/michigan-football-receiver-drops-bryce-underwood/
-
-**Dodgers have relied on starters to get around bullpen issues. Is it sustainable?**\
-`With their traditional relievers struggling, Dodgers starting pitchers are moonlighting out of the bullpen to great success.`\
-https://nytimes.com/athletic/6698986/2025/10/08/dodgers-mlb-playoffs-bullpen-nlds/
 
