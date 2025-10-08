@@ -1,3 +1,7 @@
+**Woj launching YouTube series to help fund St. Bonaventure NIL efforts**\
+`The St. Bonaventure GM's new series, “The Program with Woj," is a way to raise money for the school’s NIL efforts.`\
+https://nytimes.com/athletic/6698460/2025/10/08/adrian-wojnarowski-youtube-series-college-basketball/
+
 **Brent Butterworth Shares His Sound Systems Test**\
 `Tracy Chapman’s “Fast Car” might be the ultimate song to gauge the quality of your speakers, but how else does our audio expert Brent Butterworth test sound systems and turntables to determine what’s best? He walks “The Wirecutter Show” podcast team through his process.`\
 https://nytimes.com/video/podcasts/100000010443783/brent-butterworth-shares-his-sound-systems-test.html

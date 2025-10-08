@@ -1,3 +1,7 @@
+**Woj launching YouTube series to help fund St. Bonaventure NIL efforts**\
+`The St. Bonaventure GM's new series, “The Program with Woj," is a way to raise money for the school’s NIL efforts.`\
+https://nytimes.com/athletic/6698460/2025/10/08/adrian-wojnarowski-youtube-series-college-basketball/
+
 **Brent Butterworth Shares His Sound Systems Test**\
 `Tracy Chapman’s “Fast Car” might be the ultimate song to gauge the quality of your speakers, but how else does our audio expert Brent Butterworth test sound systems and turntables to determine what’s best? He walks “The Wirecutter Show” podcast team through his process.`\
 https://nytimes.com/video/podcasts/100000010443783/brent-butterworth-shares-his-sound-systems-test.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6632705/2025/10/08/nba-2025-26-peacock-prime-espn-h
 **Irish mailbag: Love for Christian Gray, taking USC to the woodshed, the leprechaun logo, more**\
 `Oddly, there weren't many questions about the defensive coordinator this week. Wonder what's changed since Miami and Texas A&M?`\
 https://nytimes.com/athletic/6698938/2025/10/08/notre-dame-mailbag-christian-gray-usc-leprechaun-logo/
-
-**Mandel's Mailbag: Should UNC cut cites with Belichick? Where does James Franklin stand?**\
-`Plus: Where does Texas Tech fit into the playoff picture and how does cross-country travel impact games?`\
-https://nytimes.com/athletic/6698678/2025/10/08/north-carolina-bill-belichick-james-franklin/
 
