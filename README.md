@@ -1,3 +1,11 @@
+**‘The Mother of All Battles?’ Information Integrity.**\
+`The Nobel Prize winner Maria Ressa told attendees at the Athens Democracy Forum that holding fast to “truth” was critical in restoring democracy.`\
+https://nytimes.com/2025/10/07/world/maria-ressa-truth-athens-democracy-forum.html
+
+**As Democratic Institutions Erode, Women See a Loss of Rights**\
+`A global swing by governments seeking to assert control has meant repercussions for women, including attempts to delegitimize them and limit their rights, experts said.`\
+https://nytimes.com/2025/10/07/world/europe/athens-democracy-forum-womens-rights.html
+
 **Dialogue Is an Antidote for Populism**\
 `At a forum in Athens, leaders discussed challenges to democracy that they said stemmed from both internal and external forces.`\
 https://nytimes.com/2025/10/07/world/europe/democracy-populism-security-athens-forum.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/07/science/john-b-gurdon-dead.html
 **Trump Appoints New Head of Immigration Courts**\
 `Col. Daren K. Margolin, who retired from the Marine Corps, was fired from a command position as head of security at Marine Base Quantico in 2013 for negligently firing a gun into the floor of his office.`\
 https://nytimes.com/2025/10/07/us/politics/trump-immigration-courts.html
-
-**Nick Hundley emerging as front-runner in Giants' managerial search**\
-`It's becoming a widely held expectation the San Francisco job is Hundley's, if he is ready to accept it.`\
-https://nytimes.com/athletic/6698416/2025/10/07/san-francisco-giants-manager-search-nick-hundley/
-
-**Ex-Husband Contradicts a Man Appealing Conviction in Pelicot Rape Case**\
-`The man said he did not know Gisèle Pelicot had been drugged. Her ex-husband, who admitted drugging and raping her and inviting strangers to join him, testified that the man knew.`\
-https://nytimes.com/2025/10/07/world/europe/gisele-pelicot-rape-trial-appeal-france.html
 
