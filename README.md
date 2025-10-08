@@ -1,3 +1,11 @@
+**How to watch Canadiens vs. Maple Leafs: Time, TV, streaming**\
+`Find out how to watch the Montreal Canadiens play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6700354/2025/10/08/canadiens-vs-maple-leafs-stream-how-to-watch-oct-8/
+
+**NFL Week 6 survivor pool picks: How to stay safe this week after Week 5's demolition**\
+`Our survivor columnists share strategy and their picks for Week 6, with Packers over Bengals as the most popular pick.`\
+https://nytimes.com/athletic/6700121/2025/10/08/nfl-week-6-survivor-pool-picks-strategy-packers-patriots/
+
 **The Windup: This Big Dumper fan came prepared**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6699385/2025/10/08/cal-raleigh-home-run-alds-the-windup/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/08/dining/make-better-meatballs.html
 **Joan Kennedy, Who Married Into a Political Dynasty, Dies at 89**\
 `The wife of Senator Ted Kennedy for a quarter of a century, she both basked and struggled in the reflected glare of a family constantly in the spotlight.`\
 https://nytimes.com/2025/10/08/us/joan-kennedy-dead.html
-
-**The conflict between Trump and Comey dates to their first meeting.**\
-`By Maggie Haberman`\
-https://nytimes.com/live/2025/10/08/us/james-comey-arraignment-fbi/the-conflict-between-trump-and-comey-dates-to-their-first-meeting
-
-**Trump Takes Aim at Illinois Governor and Chicago Mayor**\
-`In an early morning Truth Social post, the president said Gov. JB Pritzker of Illinois and Mayor Brandon Johnson of Chicago should be jailed for failing to protect ICE officers.`\
-https://nytimes.com/2025/10/08/us/trump-pritzker-brandon-johnson-jail-ice.html
 
