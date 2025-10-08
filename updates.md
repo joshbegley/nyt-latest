@@ -1,3 +1,15 @@
+**New Yorkers Observe Oct. 7 Anniversary With Eye Toward Peace Talks**\
+`People gathered in remembrance of hostages held by Hamas and in protest of Israel’s destructive campaign in Gaza as negotiators discussed a possible agreement to end the war.`\
+https://nytimes.com/2025/10/07/nyregion/nyc-october-7-anniversary.html
+
+**Blackhawks' youth shows in season-opening loss to champion Panthers**\
+`Jeff Blashill's debut behind Chicago's bench came as a learning experience for some players as Spencer Knight and Frank Nazar impressed.`\
+https://nytimes.com/athletic/6698234/2025/10/07/blackhawks-season-opener-youth-blashill-knight/
+
+**What the Cubs are stressing to Pete Crow-Armstrong with season on the brink**\
+`As the Cubs try to keep their focus on simply winning one game, they have to think that Crow-Armstrong, at any moment, could shift things.`\
+https://nytimes.com/athletic/6698878/2025/10/07/chicago-cubs-pete-crow-armstrong-nlds-message/
+
 **Blackhawks' youth shows in season-opening loss to champion Panthers**\
 `Blashill's debut behind Chicago's bench came as a learning experience for some of his players as Spencer Knight and Frank Nazar impressed.`\
 https://nytimes.com/athletic/6698234/2025/10/07/blackhawks-season-opener-youth-blashill-knight/

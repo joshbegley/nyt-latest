@@ -1,9 +1,13 @@
+**New Yorkers Observe Oct. 7 Anniversary With Eye Toward Peace Talks**\
+`People gathered in remembrance of hostages held by Hamas and in protest of Israel’s destructive campaign in Gaza as negotiators discussed a possible agreement to end the war.`\
+https://nytimes.com/2025/10/07/nyregion/nyc-october-7-anniversary.html
+
 **Blackhawks' youth shows in season-opening loss to champion Panthers**\
-`Blashill's debut behind Chicago's bench came as a learning experience for some of his players as Spencer Knight and Frank Nazar impressed.`\
+`Jeff Blashill's debut behind Chicago's bench came as a learning experience for some players as Spencer Knight and Frank Nazar impressed.`\
 https://nytimes.com/athletic/6698234/2025/10/07/blackhawks-season-opener-youth-blashill-knight/
 
 **What the Cubs are stressing to Pete Crow-Armstrong with season on the brink**\
-`As the Cubs try to keep a narrow focus on just winning one game, they have to think that Crow-Armstrong, at any moment, could shift things.`\
+`As the Cubs try to keep their focus on simply winning one game, they have to think that Crow-Armstrong, at any moment, could shift things.`\
 https://nytimes.com/athletic/6698878/2025/10/07/chicago-cubs-pete-crow-armstrong-nlds-message/
 
 **How the Phillies, with Aaron Nola starting, are approaching a do-or-die Game 3**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6698697/2025/10/07/warriors-al-horford-stephen-curr
 **Democracy Involves More Than Merely Casting a Ballot, Youth Leaders Say**\
 `Five young people spearheading efforts around the world to bolster and restore democratic principles share what they have learned — and what needs to change.`\
 https://nytimes.com/2025/10/07/world/democracy-forum-athens-youth-leaders.html
-
-**Civics Education Struggles, Even as Government and Politics Saturate Daily Life**\
-`While this may be a good time to take advantage of the public’s attention, it’s also a time when teachers increasingly fear repercussions for offending students.`\
-https://nytimes.com/2025/10/07/world/athens-democracy-forum-civics-education.html
 
