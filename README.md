@@ -1,3 +1,7 @@
+**Texts from Democratic A.G. Candidate Roil Virginia Governor’s Race**\
+`In the messages, the Democratic candidate for attorney general, Jay Jones, discusses the hypothetical killing of a Republican lawmaker.`\
+https://nytimes.com/2025/10/08/us/jay-jones-text-messages-va-attorney-general.html
+
 **Live Updates: Trump Says Hamas Agrees to Release ‘All’ Hostages for Israeli Pullback**\
 `President Trump announced on social media that the two sides had hammered out an agreement in Egypt on a hostages for prisoners exchange. Israel and Hamas did not immediately confirm there was an accord.`\
 https://nytimes.com/live/2025/10/08/world/israel-hamas-gaza-ceasefire
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/08/climate/kevin-gurney-emissions-science.html
 **She Studied How Logging Affects Pollinators**\
 `Kim Ballare was a research ecologist with the U.S. Forest Service until her federal grant “got snatched away.”`\
 https://nytimes.com/2025/10/08/science/ecology-forests-pollinators.html
-
-**On Politics: The Redistricting Fight You Haven’t Heard About**\
-`Trump wants Republicans to draw more safe seats. In Utah, they might lose some instead.`\
-https://nytimes.com/2025/10/08/us/politics/on-politics-utah-redistricting.html
 
