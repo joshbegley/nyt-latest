@@ -1,3 +1,11 @@
+**Lawler Confronts Jeffries in Showy Exchange in a Tense Capitol**\
+`The roughly five-minute confrontation, initiated by Representative Mike Lawler of New York, was intended to draw attention to Democrats’ role in the government shutdown.`\
+https://nytimes.com/2025/10/08/nyregion/lawler-jeffries-confrontation.html
+
+**Gary Bettman commends Connor McDavid for his approach to contract negotiations**\
+`The NHL commissioner said McDavid's team-friendly deal "is a testament to Connor's passion for the game and his commitment to Edmonton."`\
+https://nytimes.com/athletic/6701550/2025/10/08/connor-mcdavid-contract-oilers-gary-bettman/
+
 **McDavid, Crosby and the Panthers without Barkov: 10 big questions that define the NHL season**\
 `Max Bultman and Mark Lazerus dive into the contenders and pretenders, the players who will determine their teams' destiny and more.`\
 https://nytimes.com/athletic/6701390/2025/10/08/mcdavid-crosby-panthers-without-barkov-10-questions/
@@ -18,23 +26,15 @@ https://nytimes.com/2025/10/08/nyregion/bruce-cutler-dead.html
 `In the messages, the Democratic candidate for attorney general, Jay Jones, discusses the hypothetical killing of a Republican lawmaker.`\
 https://nytimes.com/2025/10/08/us/jay-jones-text-messages-va-attorney-general.html
 
-**Live Updates: Trump Says Hamas Agrees to Release ‘All’ Hostages for Israeli Pullback**\
-`President Trump announced on social media that the two sides had hammered out an agreement in Egypt on a hostages for prisoners exchange and an Israeli withdrawal.`\
+**Live Updates: Israel and Hamas Reach Deal on Hostage Release and Troop Pullback**\
+`The agreement, which came after President Trump issued a 20-point peace plan, raised hopes that the two-year war in Gaza may be nearer to an end.`\
 https://nytimes.com/live/2025/10/08/world/israel-hamas-gaza-ceasefire
 
 **Here’s the latest.**\
-`(No description)`\
+`By David E. Sanger, Ephrat Livni and Aaron Boxerman`\
 https://nytimes.com/live/2025/10/08/world/israel-hamas-gaza-ceasefire/heres-the-latest
 
 **His Lab Tested Cutting-Edge Spacecraft**\
 `Mason Peck, an aerospace engineer at Cornell, was trying to test innovative designs in spacecraft when a stop-work order hit.`\
 https://nytimes.com/2025/10/08/science/nsf-spacecraft-technology.html
-
-**Democratic Senators Spar With House Speaker Over Shutdown**\
-`Two Democratic senators from Arizona confronted Speaker Mike Johnson over his refusal to swear in a newly elected House Democrat, Adelita Grijalva, who had won a special election in their state last month. They also fought over the government shutdown and the Epstein files.`\
-https://nytimes.com/video/us/politics/100000010447777/democrats-johnson-fight-shutdown.html
-
-**Aces-Mercury WNBA Finals posting highest viewership in decades**\
-`Through two games, the series is averaging 1.5 million viewers between games on ABC and ESPN. `\
-https://nytimes.com/athletic/6701556/2025/10/08/aces-mercury-wnba-finals-ratings-game-2-2/
 
