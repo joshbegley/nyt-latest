@@ -1,3 +1,7 @@
+**Conor McGregor handed 18-month UFC ban for missing drugs tests**\
+`The Dublin-born fighter has been recovering from injury and was not preparing for any fights at the times of the missed tests.`\
+https://nytimes.com/athletic/6699467/2025/10/08/conor-mcgregor-ufc-ban-drugs-test/
+
 **Why Diamonds Are a Computer Chip’s New Best Friend**\
 `Data centers squander vast amounts of electricity, most of it as heat. The physical properties of diamond offer a potential solution, researchers say.`\
 https://nytimes.com/2025/10/08/science/diamonds-computer-chips-ai.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6698385/2025/10/08/arsenal-women-lyonnes-champions-
 **How to watch Blue Jays at Yankees: Game 4 Time, TV, streaming**\
 `Find out how to watch the Toronto Blue Jays play the New York Yankees, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6699343/2025/10/08/blue-jays-vs-yankees-stream-how-to-watch-oct-8/
-
-**How to watch Phillies at Dodgers: Game 3 Time, TV, streaming**\
-`Find out how to watch the Philadelphia Phillies play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6699340/2025/10/08/phillies-vs-dodgers-stream-how-to-watch-oct-8/
 
