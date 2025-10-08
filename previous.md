@@ -1,3 +1,11 @@
+**‘I’m Not Dying’: Dolly Parton Assures Fans Amid Concerns About Her Health**\
+`In a video post on social media, the country music superstar, who is 79, played down the recent health challenges that prompted her to delay her Las Vegas residency.`\
+https://nytimes.com/2025/10/08/arts/dolly-parton-health.html
+
+**Jack Eichel to sign contract extension with Golden Knights: 8 years, $13.5 million AAV**\
+`Eichel will become the highest-paid player in franchise history.`\
+https://nytimes.com/athletic/6631902/2025/10/08/jack-eichel-contract-golden-knights/
+
 **A Chicago federal grand jury deals the latest setback to Trump’s immigration enforcement efforts.**\
 `By Ernesto Londoño`\
 https://nytimes.com/live/2025/10/08/us/trump-national-guard-chicago-illinois/a-chicago-federal-grand-jury-deals-the-latest-setback-to-trumps-immigration-enforcement-efforts
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6700970/2025/10/08/quentin-grimes-sixers-contract/
 **Sante Fe**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/sante-fe
-
-**How to watch Aces vs. Mercury: WNBA Finals Game 3 Time, TV, streaming**\
-`Find out how to watch the Las Vegas Aces play the Phoenix Mercury, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6701103/2025/10/08/aces-vs-mercury-stream-how-to-watch-oct-8/
-
-**A Taylor Swift Mystery: Which Musso and Frank’s Booth Is ‘Best’?**\
-`The pop star name dropped the storied Hollywood restaurant on her new album, “The Life of a Showgirl,” and the restaurant confirmed she is a customer. But which booth does she prefer?`\
-https://nytimes.com/2025/10/08/dining/taylor-swifts-musso-and-franks.html
 
