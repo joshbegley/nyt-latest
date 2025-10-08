@@ -1,3 +1,11 @@
+**A Top N.Y.P.D. Chief and Adams Ally Retires**\
+`John Chell, New York City’s top uniformed police officer, is leaving as Mayor Eric Adams’s term is soon to expire and uncertainty looms at the Police Department.`\
+https://nytimes.com/2025/10/08/nyregion/nypd-john-chell-retires.html
+
+**What is a “Perfect Game” in Baseball?**\
+`A perfect game is one of the rarest achievements in baseball. This is how a pitcher accomplishes the impressive feat.`\
+https://nytimes.com/video/the-athletic/100000010446777/what-is-a-perfect-game-in-baseball.html
+
 **We Tested 19 Boxes of Mac and Cheese to Find the Best**\
 `Our teams recruited 20 kids to help taste-test 19 boxes of mac and cheese to find the best of the best.`\
 https://nytimes.com/video/smarter-living/100000010446599/we-tested-19-boxes-of-mac-and-cheese-to-find-the-best.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/08/business/media/stephen-miller-plenary-authority-c
 **Another African Charity Tied to Prince Harry Faces Criticism**\
 `A charity tied to the British royal confirmed that the government of Chad has cut ties with the group, after allegations of mismanagement.`\
 https://nytimes.com/2025/10/08/world/africa/prince-harry-chad-african-parks.html
-
-**Gerrard set for talks over Rangers return**\
-`Rangers parted company with Russell Martin on Sunday.`\
-https://nytimes.com/athletic/6693193/2025/10/08/steven-gerrard-rangers-manager-next/
-
-**Istanbul**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/istanbul
 
