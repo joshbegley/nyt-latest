@@ -26,7 +26,3 @@ https://nytimes.com/2025/10/08/world/europe/france-lecornu.html
 `Caterina Barbieri, 35, plays gigs on banks of synthesizers. That makes her a surprising choice to lead the cerebral Venice Music Biennale.`\
 https://nytimes.com/2025/10/08/arts/music/caterina-barbieri-venice-music-biennale.html
 
-**Indiana Pacers' Delon Wright suffers major head injury in preseason debut**\
-`With 46 seconds remaining in the second quarter of a preseason game against the Minnesota Timberwolves, Wright and Jaylen Clark collided.`\
-https://nytimes.com/athletic/6700256/2025/10/08/indiana-pacers-delon-wright-head-injury/
-

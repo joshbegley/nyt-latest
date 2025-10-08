@@ -1,3 +1,7 @@
+**Madison Cunningham Won a Grammy. Next Came a Hard Reset.**\
+`The California guitarist’s last LP, “Revealer,” was named best folk album in 2023. But after a divorce at 27, she returns with a defiant edge.`\
+https://nytimes.com/2025/10/08/arts/music/madison-cunningham-ace.html
+
 **Tom Homan Was Said to Have Received $50,000 From Agents. He May Not Have to Return It.**\
 `Public corruption experts said the Justice Department had options for recovering money used in a sting operation. But that may not happen for years.`\
 https://nytimes.com/2025/10/08/us/politics/tom-homan-sting-money.html
