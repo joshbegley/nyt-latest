@@ -1,3 +1,11 @@
+**84-Year-Old Climber Who Died in Fall Was an Avid Mountaineer**\
+`Even in his 80s, Pete Cleveland, a fixture of rock climbing in the Midwest, went climbing every week and trekked for at least a mile a day, his son said.`\
+https://nytimes.com/2025/10/08/us/pete-cleveland-dead-climber-wisconsin.html
+
+**Comey’s Two Legal Challenges to His Indictment, Explained**\
+`A lawyer for the former F.B.I. director said he would accuse the Justice Department of malicious and selective prosecution and contend that a U.S. attorney was illegally appointed.`\
+https://nytimes.com/2025/10/08/us/politics/comey-legal-challenges-explained.html
+
 **Rutgers Expert on Antifa Flees to Spain After Receiving Death Threats**\
 `Historian Mark Bray was teaching courses on anti-fascism at the New Jersey university. Turning Point USA accused of him belonging to antifa, which he denies.`\
 https://nytimes.com/2025/10/08/nyregion/rutgers-professor-threats-antifa.html
