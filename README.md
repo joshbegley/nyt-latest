@@ -1,3 +1,7 @@
+**Unsealed document details abuse allegations against Dolphins' Tyreek Hill**\
+`The document alleges Hill became "increasingly aggressive, violent, and demanding over time."`\
+https://nytimes.com/athletic/6699211/2025/10/08/tyreek-hill-court-documents-released-dolphins/
+
 **The New York Times in Print for Wednesday, Oct. 8, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/08/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6696228/2025/10/08/jamie-gittens-chelsea-florent-ma
 **What their first defeat since April tells us about the rest of Palace's season**\
 `There is no doom and gloom despite the end of an unbeaten run stretching back to April, but the way it happened at Everton will frustrate`\
 https://nytimes.com/athletic/6691431/2025/10/08/crystal-palace-glasner-defeat-chances/
-
-**Aaronson gives Leeds what they need defensively — but does Farke want more in attack?**\
-`Brenden Aaronson is one of the Premier League's best offensive players for defensive duties this season`\
-https://nytimes.com/athletic/6696951/2025/10/08/brenden-aaronson-leeds-usmnt-analysis-defending/
 
