@@ -1,3 +1,23 @@
+**Kevin Stefanski declines to say who will be Browns backup QB on Sunday**\
+`It appears that Kevin Stefanski is leaning toward Bailey Zappe, who's on the practice squad, as the No. 2 QB over rookie Shedeur Sanders.`\
+https://nytimes.com/athletic/6700766/2025/10/08/cleveland-browns-quarterback-backup/
+
+**Federal Workers’ Unions Call for Compromise on a Shutdown Deal**\
+`Union leaders representing hundreds of thousands of federal workers urged both parties to negotiate as their members prepared to receive their last paychecks until the standoff is resolved.`\
+https://nytimes.com/2025/10/08/us/politics/federal-workers-unions-shutdown-deal.html
+
+**British Synagogue Attacker Pledged Allegiance to ISIS, Police Say**\
+`Jihad al-Shamie, who attacked a Manchester synagogue on the holiest day of the Jewish calendar, called the emergency services during the attack to claim responsibility.`\
+https://nytimes.com/2025/10/08/world/europe/manchester-synagogue-attack-isis.html
+
+**Man Arrested in Connection to the Palisades Fire**\
+`Federal authorities in Los Angeles have arrested a man they believe intentionally started a fire that led to the deadly blaze that engulfed the Palisades region in January.`\
+https://nytimes.com/video/us/100000010447166/palisades-fire-man-arrested.html
+
+**What to know about the newly released Kyren Lacy crash footage**\
+`The role of former LSU receiver Kyren Lacy in a fatal December car crash has come under renewed scrutiny over the last week.`\
+https://nytimes.com/athletic/6700269/2025/10/08/kyren-lacy-crash-update-video-lawyer-lsu-football/
+
 **Mixed Economic Signals Stoke Divisions at Fed, Minutes Show**\
 `A few officials appeared reluctant to support the central bank’s interest rate cut last month, underscoring the tough task ahead for Chair Jerome H. Powell to forge a consensus.`\
 https://nytimes.com/2025/10/08/business/federal-reserve-meeting-minutes.html
