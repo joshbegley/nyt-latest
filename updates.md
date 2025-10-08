@@ -1,3 +1,7 @@
+**Conor McGregor handed 18-month UFC ban for missing drugs tests**\
+`The Dublin-born fighter has been recovering from injury and was not preparing for any fights at the times of the missed tests.`\
+https://nytimes.com/athletic/6699467/2025/10/08/conor-mcgregor-ufc-ban-drugs-test/
+
 **Why Diamonds Are a Computer Chip’s New Best Friend**\
 `Data centers squander vast amounts of electricity, most of it as heat. The physical properties of diamond offer a potential solution, researchers say.`\
 https://nytimes.com/2025/10/08/science/diamonds-computer-chips-ai.html
