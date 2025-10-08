@@ -1,3 +1,15 @@
+**Cheer Up, or Else. China Cracks Down on the Haters and Cynics**\
+`As China struggles with economic discontent, internet censors are silencing those who voice doubts about work, marriage, or simply sigh too loudly online.`\
+https://nytimes.com/2025/10/08/world/asia/china-censorship-pessimism-despair.html
+
+**Yankees-Blue Jays Game 3 takeaways: Judge’s blast helps Yanks storm back, force Game 4**\
+`Boosted by Judge’s tying three-run homer, the Yankees erased an early five-run deficit, then put away Toronto, 9-6, to extend the series.  `\
+https://nytimes.com/athletic/6699104/2025/10/07/yankees-bluejays-game-3-score-results-takeaways-playoffs-mlb/
+
+**A Mariners fan's shirt said 'Dump 61 here!' — Cal Raleigh obliged**\
+`Jameson Turner originally made the shirt for the Mariners' final regular-season series in Seattle.`\
+https://nytimes.com/athletic/6699052/2025/10/07/seattle-mariners-fan-cal-raleigh/
+
 **Rangers' Mike Sullivan era starts with a whimper in loss to Penguins**\
 `While the third line showed promise, systems and team play are clearly still a work in progress.`\
 https://nytimes.com/athletic/6698965/2025/10/07/new-york-rangers-opening-night-sullivan-penguins/
