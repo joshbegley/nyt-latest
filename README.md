@@ -1,3 +1,7 @@
+**Trump Fires Black Officials From an Overwhelmingly White Administration**\
+`Separately, in the administration’s first 200 days, only two of 98 Senate-confirmed appointees to the most senior jobs in government were Black.`\
+https://nytimes.com/2025/10/08/us/politics/black-leaders-trump.html
+
 **Parents, Doctors and Vaccines for Children**\
 `Readers respond to a guest essay about vaccine debates. Also: Attorney General Pam Bondi’s performance; wildfire smoke and our health.`\
 https://nytimes.com/2025/10/08/opinion/vaccines-children.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/10/08/us/harvard-palestinian-protest-die-in-lawsuit.htm
 **His Execution Is Days Away. A Detective Says He’s Innocent.**\
 `What happens when the science that sends a man to death row is debunked? Robert Roberson spent over 20 years on death row for his daughter’s death, but new evidence points to a different cause. Without intervention from Gov. Greg Abbott of Texas, Roberson’s execution is scheduled for Oct. 16.`\
 https://nytimes.com/video/opinion/100000010444338/his-execution-is-days-away-a-detective-says-hes-innocent.html
-
-**Longtime Nationals executives depart under new president of baseball ops: Sources**\
-`The Nationals have not had a winning season since they won the World Series in 2019.`\
-https://nytimes.com/athletic/6700483/2025/10/08/nationals-paul-toboni-staff-changes/
 
