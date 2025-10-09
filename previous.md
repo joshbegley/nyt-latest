@@ -1,3 +1,7 @@
+**A Gaza Deal**\
+`The world is waking up to an agreement between Israel and Hamas. We explain what we know about the breakthrough.`\
+https://nytimes.com/2025/10/09/briefing/a-gaza-deal.html
+
 **Julian Sayin has answered every step in Ohio State's progression plan**\
 `Ryan Day has earned his QB guru reputation, and Sayin's rapid development is going exactly how Ohio State hoped.`\
 https://nytimes.com/athletic/6702008/2025/10/09/julian-sayin-ohio-state-football-ryan-day/
@@ -7,7 +11,7 @@ https://nytimes.com/athletic/6702008/2025/10/09/julian-sayin-ohio-state-football
 https://nytimes.com/athletic/6702908/2025/10/09/new-york-yankees-boone-cashman/
 
 **Laszlo Krasznahorkai Is Awarded Nobel Prize in Literature**\
-`The award comes with prize money of almost $1.2 million.`\
+`​The prize committee said the Hungarian writer’s work “reaffirms the power of art.”`\
 https://nytimes.com/2025/10/09/books/laszlo-krasznahorkai-nobel-prize-in-literature.html
 
 **Time for Browns to end the distractions, move on from Shedeur Sanders**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6702057/2025/10/09/buffalo-sabres-goalie-alex-tuch-
 **Mets mailbag: Options for center field upgrade, Pete Alonso's opt-out timing**\
 `The Mets don’t have great internal options to open at center field in 2026.`\
 https://nytimes.com/athletic/6701964/2025/10/09/mets-mailbag-center-field-upgrade/
-
-**Bill Guerin's moment of truth: Wild have their superstar, young core and cap space — now can they win?**\
-`From the Zach Parise-Ryan Suter buyouts to the Kirill Kaprizov megadeal, everything Guerin has done has been to contend starting now.`\
-https://nytimes.com/athletic/6689855/2025/10/09/wild-bill-guerin-critical-season/
 

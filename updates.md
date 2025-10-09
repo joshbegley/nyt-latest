@@ -1,3 +1,11 @@
+**A Gaza Deal**\
+`The world is waking up to an agreement between Israel and Hamas. We explain what we know about the breakthrough.`\
+https://nytimes.com/2025/10/09/briefing/a-gaza-deal.html
+
+**Laszlo Krasznahorkai Is Awarded Nobel Prize in Literature**\
+`​The prize committee said the Hungarian writer’s work “reaffirms the power of art.”`\
+https://nytimes.com/2025/10/09/books/laszlo-krasznahorkai-nobel-prize-in-literature.html
+
 **Julian Sayin has answered every step in Ohio State's progression plan**\
 `Ryan Day has earned his QB guru reputation, and Sayin's rapid development is going exactly how Ohio State hoped.`\
 https://nytimes.com/athletic/6702008/2025/10/09/julian-sayin-ohio-state-football-ryan-day/
