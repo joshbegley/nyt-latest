@@ -10,7 +10,7 @@ https://nytimes.com/interactive/2025/weather/raymond-map-path-tracker.html
 `A 25-year-old man attacked the victim on Tuesday at the Jay Street-MetroTech subway station in Brooklyn, according to the police. The two men did not appear to know each other.`\
 https://nytimes.com/2025/10/09/nyregion/brooklyn-nyc-subway-attack-beating.html
 
-**Chiefs' Chris Jones loafed on final play vs. Jags. He addressed it head-on Thursday**\
+**Chiefs' Chris Jones loafed on final play vs. Jags. He addressed it head-on**\
 `Jones said he thought Jaguars QB Trevor Lawrence was down on the game-winning play. The teaching lesson he'll take away is "Don't stop."`\
 https://nytimes.com/athletic/6703940/2025/10/09/chris-jones-loafing-jaguars-touchdown/
 

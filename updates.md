@@ -1,3 +1,11 @@
+**ESPN's lopsided 'Inside the NBA' schedule raises eyebrows**\
+`"Inside the NBA" will only air on ESPN four times before Christmas.`\
+https://nytimes.com/athletic/6704043/2025/10/09/inside-the-nba-espn-2025-2026-broadcast-schedule/
+
+**Astros fire head athletic trainer after injury-plagued season: Sources**\
+`According to Baseball Prospectus and FanGraphs, no team lost more potential value to injuries this season than the Astros.`\
+https://nytimes.com/athletic/6704059/2025/10/09/astros-fire-head-athletic-trainer-injuries/
+
 **Tracking Tropical Storm Raymond**\
 `See the likely path and wind arrival times for Raymond`\
 https://nytimes.com/interactive/2025/weather/raymond-map-path-tracker.html
