@@ -1,3 +1,7 @@
+**ESPN's lopsided 'Inside the NBA' schedule raises eyebrows**\
+`"Inside the NBA" will only air on ESPN four times before Christmas.`\
+https://nytimes.com/athletic/6704043/2025/10/09/inside-the-nba-espn-2025-2026-broadcast-schedule/
+
 **Tracking Tropical Storm Raymond**\
 `See the likely path and wind arrival times for Raymond`\
 https://nytimes.com/interactive/2025/weather/raymond-map-path-tracker.html
@@ -19,7 +23,7 @@ https://nytimes.com/2025/10/09/us/politics/democrats-shutdown-trump-administrati
 https://nytimes.com/athletic/6701132/2025/10/09/nhl-most-compelling-storylines-mcdavid-crosby/
 
 **Astros fire head athletic trainer after injury-plagued season: Sources**\
-`According to Baseball Prospectus and FanGraphs, no team lost more potential value to injuries this season than the Astros`\
+`According to Baseball Prospectus and FanGraphs, no team lost more potential value to injuries this season than the Astros.`\
 https://nytimes.com/athletic/6704059/2025/10/09/astros-fire-head-athletic-trainer-injuries/
 
 **Bats Catch Migratory Birds and Eat Them in Midair**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010386068/is-america-making-god-angry.ht
 **Insults in the Name of God**\
 `The Christian nationalist Doug Wilson says he isn’t trying to be Howard Stern but his language can be just as controversial. On this week’s “Interesting Times,” he defends his use of “naughty words” as weapons in his arsenal.`\
 https://nytimes.com/video/opinion/100000010386071/insults-in-the-name-of-god.html
-
-**A Mystery C.E.O. and Billions in Sales: Is China Buying Banned Nvidia Chips?**\
-`An executive of a Singaporean firm called Megaspeed socialized with Nvidia’s Jensen Huang. Now the company is being scrutinized by U.S. officials for its ties to China.`\
-https://nytimes.com/2025/10/09/technology/nvidia-chips-china-megaspeed.html
 
