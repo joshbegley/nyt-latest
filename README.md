@@ -1,3 +1,7 @@
+**How Jared Kushner, a Self-Described ‘Deal Guy,’ Helped Broker a Gaza Breakthrough**\
+`Trained in New York City real estate, the president’s son-in-law had a singular goal: Get to a yes first, and hash out the details later. “It’s just different being deal guys — just a different sport,” he said.`\
+https://nytimes.com/2025/10/09/us/politics/jared-kushner-gaza-deal.html
+
 **The U.N. says it is ready to rush aid into Gaza.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2025/10/09/world/israel-hamas-gaza-ceasefire/the-un-says-it-is-ready-to-rush-aid-into-gaza
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6704324/2025/10/09/ducks-vs-kraken-stream-how-to-wa
 **How to watch Devils vs. Hurricanes: Time, TV, streaming**\
 `Find out how to watch the New Jersey Devils play the Carolina Hurricanes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6704322/2025/10/09/devils-vs-hurricanes-stream-how-to-watch-oct-9/
-
-**How to watch Mammoth vs. Avalanche: Time, TV, streaming**\
-`Find out how to watch the Utah Mammoth play the Colorado Avalanche, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6704320/2025/10/09/mammoth-vs-avalanche-stream-how-to-watch-oct-9/
 
