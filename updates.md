@@ -1,3 +1,15 @@
+**Trump revels in ‘historic’ deal between Israel and Hamas but offers few details.**\
+`President Trump`\
+https://nytimes.com/live/2025/10/08/world/israel-hamas-gaza-ceasefire/trump-revels-in-historic-deal-between-israel-and-hamas-but-offers-few-details
+
+**Browns, Jaguars agree to trade, swapping CBs Greg Newsome II and Tyson Campbell**\
+`Both players were members of the 2021 NFL Draft class.`\
+https://nytimes.com/athletic/6702188/2025/10/08/browns-jaguars-trade-greg-newsome-tyson-campbell/
+
+**NLDS Game 3: Cubs' Pete Crow-Armstrong's critical hit gives Chicago new life**\
+`This version of Crow-Armstrong can change games for the Cubs, particularly as the offense has been stuck in neutral.`\
+https://nytimes.com/athletic/6702135/2025/10/08/chicago-cubs-pete-crow-armstrong-clutch-hit/
+
 **A'ja Wilson's heroic shot gives the Las Vegas Aces a 3-0 WNBA Finals lead**\
 `Phoenix staged a comeback, but the four-time MVP Wilson made a decisive shot. The Aces can win another title Friday.`\
 https://nytimes.com/athletic/6702177/2025/10/08/aja-wilson-wnba-finals-las-vegas-aces-shot/

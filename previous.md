@@ -1,3 +1,15 @@
+**Trump revels in ‘historic’ deal between Israel and Hamas but offers few details.**\
+`President Trump`\
+https://nytimes.com/live/2025/10/08/world/israel-hamas-gaza-ceasefire/trump-revels-in-historic-deal-between-israel-and-hamas-but-offers-few-details
+
+**Browns, Jaguars agree to trade, swapping CBs Greg Newsome II and Tyson Campbell**\
+`Both players were members of the 2021 NFL Draft class.`\
+https://nytimes.com/athletic/6702188/2025/10/08/browns-jaguars-trade-greg-newsome-tyson-campbell/
+
+**NLDS Game 3: Cubs' Pete Crow-Armstrong's critical hit gives Chicago new life**\
+`This version of Crow-Armstrong can change games for the Cubs, particularly as the offense has been stuck in neutral.`\
+https://nytimes.com/athletic/6702135/2025/10/08/chicago-cubs-pete-crow-armstrong-clutch-hit/
+
 **A'ja Wilson's heroic shot gives the Las Vegas Aces a 3-0 WNBA Finals lead**\
 `Phoenix staged a comeback, but the four-time MVP Wilson made a decisive shot. The Aces can win another title Friday.`\
 https://nytimes.com/athletic/6702177/2025/10/08/aja-wilson-wnba-finals-las-vegas-aces-shot/
@@ -21,16 +33,4 @@ https://nytimes.com/video/us/100000010445347/how-portland-is-reacting-to-trumps-
 **What We Know About the Palisades Fire Arrest**\
 `Federal officials arrested a man they said started a small blaze in January that later rekindled and grew into the fire that devastated Pacific Palisades.`\
 https://nytimes.com/2025/10/08/us/palisades-fire-arrest-jonathan-rinderknecht.html
-
-**One Out**\
-`Freddie Cheng offers solvers a digital puzzle.`\
-https://nytimes.com/2025/10/08/crosswords/daily-puzzle-2025-10-09.html
-
-**Katie Porter Goes Viral for ‘Unhappy’ TV Interview in California Governor’s Race**\
-`The former Democratic congresswoman, known for her own grilling of executives on Capitol Hill, threatened to abandon an interview after she was asked several follow-up questions.`\
-https://nytimes.com/2025/10/08/us/katie-porter-goes-viral-for-unhappy-tv-interview-in-california-governors-race.html
-
-**As rumors swirl about Bill Belichick, coach says he's staying put at North Carolina**\
-`Speculation about the UNC football program has swirled in the days following its loss to Clemson.  `\
-https://nytimes.com/athletic/6701293/2025/10/08/bill-belichick-unc-buyout-coach-first-season/
 
