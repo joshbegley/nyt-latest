@@ -1,3 +1,11 @@
+**Infantino calls on football to support Gaza peace plan**\
+`Israel, who have been part of UEFA since 1994, play Norway on Saturday and then Italy on Tuesday in their World Cup qualification campaign.`\
+https://nytimes.com/athletic/6703615/2025/10/09/israel-protests-gaza-ceasefire/
+
+**10 Months Later, Russia Admits Deadly Downing of Azerbaijani Plane**\
+`President Vladimir Putin’s rare acknowledgment of a Russian military mistake came as relations have deteriorated between the two former Soviet states.`\
+https://nytimes.com/2025/10/09/world/europe/russia-azerbaijan-flight-8243-crash.html
+
 **How to watch Rangers vs. Sabres: Time, TV, streaming**\
 `Find out how to watch the New York Rangers play the Buffalo Sabres, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6703750/2025/10/09/rangers-vs-sabres-stream-how-to-watch-oct-9/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6703429/2025/10/09/nhl-kaprizov-connor-eichel-kempe
 **Brussels**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/things-to-do-brussels
-
-**‘A House of Dynamite’ Review: Kathryn Bigelow’s Alarming Command and Control**\
-`The director’s latest nail-biter, starring Idris Elba, Rebecca Ferguson and Anthony Ramos, tracks a ballistic missile heading for the United States.`\
-https://nytimes.com/2025/10/09/movies/house-of-dynamite-review-kathryn-bigelow.html
-
-**Gunman Barricaded in Miami House Injures 2 Police Officers**\
-`The officers were in stable condition, the Miami police chief said. One man remained inside the house, and another was taken into custody.`\
-https://nytimes.com/2025/10/09/us/miami-police-officers-shot.html
 
