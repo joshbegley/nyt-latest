@@ -1,3 +1,15 @@
+**The U.N. says it is ready to rush aid into Gaza.**\
+`By Farnaz Fassihi`\
+https://nytimes.com/live/2025/10/09/world/israel-hamas-gaza-ceasefire/the-un-says-it-is-ready-to-rush-aid-into-gaza
+
+**National Guard Expected to Start Patrolling in Memphis**\
+`The city said that National Guard patrols will start on Friday, adding to an ongoing surge of federal forces in the city.`\
+https://nytimes.com/2025/10/09/us/national-guard-patrols-memphis-tennessee.html
+
+**Akins returns to Mansfield after jail time for causing death of cyclist**\
+`Mansfield issued a statement saying Akins' registration had been retained, and that he has been reintegrated with the first-team squad.`\
+https://nytimes.com/athletic/6704071/2025/10/09/lucas-akins-mansfield-return-news/
+
 **Scoop City: Three critical parts of tonight's Giants-Eagles game**\
 `Key matchups in tonight's Eagles-Giants game, league leaders in interesting stats, plus Dianna Russini joins to share the latest from CIncy.`\
 https://nytimes.com/athletic/6704154/2025/10/09/nfl-matchup-eagles-giants-stat-leaders-2025-scoop-city/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6704322/2025/10/09/devils-vs-hurricanes-stream-how-
 **How to watch Mammoth vs. Avalanche: Time, TV, streaming**\
 `Find out how to watch the Utah Mammoth play the Colorado Avalanche, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6704320/2025/10/09/mammoth-vs-avalanche-stream-how-to-watch-oct-9/
-
-**How to watch Flames vs. Canucks: Time, TV, streaming**\
-`Find out how to watch the Calgary Flames play the Vancouver Canucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6704318/2025/10/09/flames-vs-canucks-stream-how-to-watch-oct-9/
-
-**How to watch Blue Jackets vs. Predators: Time, TV, streaming**\
-`Find out how to watch the Columbus Blue Jackets play the Nashville Predators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6704316/2025/10/09/blue-jackets-vs-predators-stream-how-to-watch-oct-9/
-
-**After years of winning back his Juventus place, Weston McKennie aims to do same for USMNT**\
-`McKennie has endured an annual grind to prove his worth for his club. After much time away, he must replicate that for his country`\
-https://nytimes.com/athletic/6704202/2025/10/09/weston-mckennie-usmnt-return-juventus-pochettino-world-cup/
 
