@@ -1,3 +1,7 @@
+**Stop Mixing Baking Soda And Vinegar**\
+`When you combine baking soda and vinegar, you’re essentially creating ... salt water. Is that really what you want to clean with?`\
+https://nytimes.com/video/smarter-living/100000010449288/stop-mixing-baking-soda-and-vinegar.html
+
 **Mamdani Maintains 13-Point Lead as Cuomo Gains Ground After Adams’s Exit**\
 `While former Gov. Andrew M. Cuomo benefited from Mayor Eric Adams’s departure, Zohran Mamdani still enjoyed a sizable lead in the Quinnipiac University poll.`\
 https://nytimes.com/2025/10/09/nyregion/mayor-poll-nyc-quinnipiac.html
