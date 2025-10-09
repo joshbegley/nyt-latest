@@ -1,3 +1,11 @@
+**Liverpool mailbag: Send your questions to James Pearce**\
+`Send your questions to our Liverpool correspondent and he will answer them next week`\
+https://nytimes.com/athletic/6703270/2025/10/09/liverpool-mailbag-send-your-questions-to-james-pearce/
+
+**Intel’s Big Bet: Inside the Chipmaker’s Make-or-Break Factory**\
+`The centerpiece of the company’s comeback hopes is a multibillion-dollar facility in the Arizona desert. Will it draw new customers?`\
+https://nytimes.com/2025/10/09/technology/intel-chip-factory-fab52.html
+
 **He’s Gay. He’s an Observant Jew. His Comedy Career Is Booming.**\
 `Mordechi Rosenfeld, known as Modi, already has the synagogue crowd. Now he wants the “Goyim, gays and theys,” too.`\
 https://nytimes.com/2025/10/09/style/gay-jewish-comedian-modi-rosenfeld.html
