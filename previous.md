@@ -26,7 +26,3 @@ https://nytimes.com/athletic/6703528/2025/10/09/fantasy-football-matchup-ranking
 `Zach Harper also previews the Hawks in our basketball newsletter.`\
 https://nytimes.com/athletic/6703480/2025/10/09/clippers-aces-hawks-aja-wilson-the-bounce/
 
-**Man Utd exploring whether to sell seat licences at new stadium**\
-`In March, the club announced plans to build a new 100,000-seater stadium next to the site of the existing Old Trafford.`\
-https://nytimes.com/athletic/6703138/2025/10/09/manchester-united-new-stadium-survey/
-
