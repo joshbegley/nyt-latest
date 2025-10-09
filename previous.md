@@ -1,3 +1,19 @@
+**TAFC: Three years for Amorim at Manchester United? Plus: Is scouting too data focused?**\
+`Today in TAFC: Ratcliffe gives Amorim his backing for three years, a scout's view on modern player discovery, a UK right-wing culture war.`\
+https://nytimes.com/athletic/6702600/2025/10/09/three-years-amorim-manchester-united/
+
+**Yankees' 'best team' of the Boone era fell short. Here's what must change for 2026**\
+`Boone's belief in this team was not misguided. But the Yankees have work to do if they want to make a stronger push for No. 28 next year. `\
+https://nytimes.com/athletic/6702420/2025/10/09/yankees-improve-2026-season/
+
+**Palmer set to be sidelined until November with groin injury**\
+`The 23-year-old is expected to miss Chelsea's games against Nottingham Forest, Ajax, Sunderland and Wolverhampton Wanderers.`\
+https://nytimes.com/athletic/6702653/2025/10/09/cole-palmer-chelsea-injury-setback/
+
+**How the Phillies developed Suárez and Nola pitching plan to win NLDS Game 3**\
+`Aaron Nola cranked up the velocity and Ranger Suárez mixed his pitches to capture a must-win game for the Phillies. `\
+https://nytimes.com/athletic/6702542/2025/10/09/phillies-mlb-ranger-suarez-aaron-nola/
+
 **As brother's stardom soars, Brady Tkachuk seeks own path to NHL success**\
 `Tkachuk hopes to lead Ottawa back to the playoffs for the second consecutive year — and to build his own NHL legacy.`\
 https://nytimes.com/athletic/6697508/2025/10/09/brady-tkachuk-ottawa-senators-2025-26-season/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6702538/2025/10/09/las-vegas-aces-wnba-finals-dynas
 **Eagles at Giants on TNF: Saquon Barkley's homecoming, rivalry history and TV predictions**\
 `Week 6 kicks off with the Eagles, who are atop the NFC East, visiting the last-place Giants on "Thursday Night Football."`\
 https://nytimes.com/athletic/6698152/2025/10/09/eagles-giants-tnf-saquon-barkley-how-to-watch/
-
-**Brian Daboll, Mike McDaniel and other NFL coaches who could be on the hot seat**\
-`Things are looking hopeless for McDaniel and Titans coach Brian Callahan. Can Daboll save his job with some help from Jaxson Dart? `\
-https://nytimes.com/athletic/6696943/2025/10/09/brian-daboll-mike-mcdaniel-callahan-nfl-coaches-hot-seat/
-
-**Why Russell Westbrook signing with the Houston Rockets is intriguing, but very unlikely**\
-`A Kevin Durant-Russell Westbrook reunion would be interesting in Houston, but how realistic is the idea with the Rockets' current situation?`\
-https://nytimes.com/athletic/6700785/2025/10/09/russell-westbrook-rockets-kevin-durant-nba/
-
-**The Maple Leafs may have vintage Morgan Rielly back this season**\
-`The longest-tenured Leaf looks back to his best after a season of struggles.`\
-https://nytimes.com/athletic/6702199/2025/10/09/maple-leafs-morgan-rielly-season-opener/
-
-**3 surprise AFC teams that have emerged to fill contender void over Ravens**\
-`Entering the 2025 season, the AFC looked like a three-horse race between the Chiefs, Bills and Ravens. Things have changed. `\
-https://nytimes.com/athletic/6697581/2025/10/09/colts-patriots-jaguars-projections-afc-contenders/
 

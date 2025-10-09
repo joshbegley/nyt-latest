@@ -1,3 +1,19 @@
+**TAFC: Three years for Amorim at Manchester United? Plus: Is scouting too data focused?**\
+`Today in TAFC: Ratcliffe gives Amorim his backing for three years, a scout's view on modern player discovery, a UK right-wing culture war.`\
+https://nytimes.com/athletic/6702600/2025/10/09/three-years-amorim-manchester-united/
+
+**Yankees' 'best team' of the Boone era fell short. Here's what must change for 2026**\
+`Boone's belief in this team was not misguided. But the Yankees have work to do if they want to make a stronger push for No. 28 next year. `\
+https://nytimes.com/athletic/6702420/2025/10/09/yankees-improve-2026-season/
+
+**Palmer set to be sidelined until November with groin injury**\
+`The 23-year-old is expected to miss Chelsea's games against Nottingham Forest, Ajax, Sunderland and Wolverhampton Wanderers.`\
+https://nytimes.com/athletic/6702653/2025/10/09/cole-palmer-chelsea-injury-setback/
+
+**How the Phillies developed Suárez and Nola pitching plan to win NLDS Game 3**\
+`Aaron Nola cranked up the velocity and Ranger Suárez mixed his pitches to capture a must-win game for the Phillies. `\
+https://nytimes.com/athletic/6702542/2025/10/09/phillies-mlb-ranger-suarez-aaron-nola/
+
 **As brother's stardom soars, Brady Tkachuk seeks own path to NHL success**\
 `Tkachuk hopes to lead Ottawa back to the playoffs for the second consecutive year — and to build his own NHL legacy.`\
 https://nytimes.com/athletic/6697508/2025/10/09/brady-tkachuk-ottawa-senators-2025-26-season/
