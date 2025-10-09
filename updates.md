@@ -1,3 +1,11 @@
+**Oklahoma’s Republican Governor Criticizes National Guard Deployment in Chicago**\
+`Gov. Kevin Stitt, the current chairman of the National Governors Association, broke with Texas, saying, “Oklahomans would lose their mind” if Illinois sent troops to their red state.`\
+https://nytimes.com/2025/10/09/us/politics/oklahoma-governor-national-guard.html
+
+**'The Sports Gossip Show': Bills fans rule, another Belichick disaster, WNBA drama and more**\
+`It’s hard to argue any other NFL fans love their team as much as Bills fans do. And no publicity is good publicity, unless it's Belichick.`\
+https://nytimes.com/athletic/6703789/2025/10/09/sports-gossip-show-buffalo-bills-bill-belichick-wnba-drama-nhl-wag/
+
 **What we know about the terms of the Israel-Hamas hostage deal.**\
 `By Adam Rasgon, Natan Odenheimer, Ronen Bergman and Aaron Boxerman`\
 https://nytimes.com/live/2025/10/09/world/israel-hamas-gaza-ceasefire/hamas-israel-hostage-deal

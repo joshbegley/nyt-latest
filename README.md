@@ -8,7 +8,7 @@ https://nytimes.com/athletic/6703789/2025/10/09/sports-gossip-show-buffalo-bills
 
 **What we know about the terms of the Israel-Hamas hostage deal.**\
 `By Adam Rasgon, Natan Odenheimer, Ronen Bergman and Aaron Boxerman`\
-https://nytimes.com/live/2025/10/09/world/israel-hamas-gaza-ceasefire/hamas-israel-hostage-deal
+https://nytimes.com/2025/10/09/world/middleeast/hamas-israel-hostage-deal.html
 
 **These Rugs Are William Morris on Acid**\
 `Plus: a new Hudson Valley hotel, statement-making jewelry and more recommendations from T Magazine.`\
