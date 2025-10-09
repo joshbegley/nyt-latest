@@ -1,3 +1,19 @@
+**Lemon Sweet Rolls With Cream Cheese Icing**\
+`These sweet, lemony rolls are a fresh alternative to classic cinnamon rolls. A little cardamom in the dough and filling enhances the bright citrus flavor without overtaking it.`\
+https://nytimes.com/video/dining/100000010369201/lemon-sweet-rolls-with-cream-cheese-icing.html
+
+**In ‘Mary Page Marlowe,’ Susan Sarandon Is One Part of a Woman in Pieces**\
+`The screen star is making her London stage debut in Tracy Letts’ portrait of embattled womanhood.`\
+https://nytimes.com/2025/10/09/arts/mary-page-marlowe-old-vic-susan-sarandon.html
+
+**For Homes by the Water, Closing Just Got More Complicated**\
+`When the government shut down, so did the federal flood insurance program, forcing some buyers into the costly private market.`\
+https://nytimes.com/2025/10/09/realestate/flood-insurance-government-shutdown.html
+
+**Ask your questions for the next Leaf Report podcast**\
+`<p>The 2025-26 season is underway and the Maple Leafs started it with a 5-2 win over Montreal in Game 1 on Wednesday night.`\
+https://nytimes.com/athletic/6703150/2025/10/09/ask-your-questions-for-the-next-leaf-report-podcast-2/
+
 **Infantino calls on football to support Gaza peace plan**\
 `Israel, who have been part of UEFA since 1994, play Norway on Saturday and then Italy on Tuesday in their World Cup qualification campaign.`\
 https://nytimes.com/athletic/6703615/2025/10/09/israel-protests-gaza-ceasefire/
