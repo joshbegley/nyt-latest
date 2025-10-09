@@ -1,3 +1,11 @@
+**‘After the Hunt’ Review: Uncomfortable, for the Wrong Reasons**\
+`Luca Guadagnino’s campus drama falls on its face trying to court controversy.`\
+https://nytimes.com/2025/10/09/movies/after-the-hunt-review.html
+
+**Italy's footballers are wearing eye-patches in training. This is why**\
+`The innovation was spotted in an under-21 training session this week, but there is science behind it...`\
+https://nytimes.com/athletic/6702902/2025/10/09/italy-eye-patches-training/
+
 **Hamas Takes a Big Risk in Deal to Release Hostages**\
 `The Palestinian militant group is giving up much of the leverage it has with Israel, with no guarantee some of its main demands will be met.`\
 https://nytimes.com/2025/10/09/world/middleeast/hamas-israel-deal-hostage-release.html
