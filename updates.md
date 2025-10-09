@@ -1,3 +1,11 @@
+**What we know about the terms of the Israel-Hamas hostage deal.**\
+`By Adam Rasgon, Natan Odenheimer, Ronen Bergman and Aaron Boxerman`\
+https://nytimes.com/live/2025/10/09/world/israel-hamas-gaza-ceasefire/hamas-israel-hostage-deal
+
+**These Rugs Are William Morris on Acid**\
+`Plus: a new Hudson Valley hotel, statement-making jewelry and more recommendations from T Magazine.`\
+https://nytimes.com/2025/10/09/t-magazine/commune-psychedelic-rugs.html
+
 **Teenagers on How They Would Redesign School**\
 `Inspired by a school in the Bronx with a basketball-themed curriculum, we invited teenagers to imagine their own possibilities for what school could be like.`\
 https://nytimes.com/2025/10/09/learning/teenagers-on-how-they-would-redesign-school.html
