@@ -1,3 +1,11 @@
+**Three key offseason questions after Yankees' playoff loss to Blue Jays**\
+`The Yankees' offseason has arrived earlier than they hoped. How might they tackle the pressing questions in another critical winter?`\
+https://nytimes.com/athletic/6681315/2025/10/08/yankees-roster-free-agency-trades-2026-season/
+
+**What we saw from Leafs' season opener: Rielly, Matthews shine, newcomers disappoint**\
+`Game 1 of 82 is in the books for the Maple Leafs after a 5-2 win over the Canadiens on Wednesday night.`\
+https://nytimes.com/athletic/6701954/2025/10/08/maple-leafs-canadiens-season-opener-rielly-matthews/
+
 **What we saw from Leafs' season opener: Rielly, Matthews shine, newcomers disappoint**\
 `Game 1 of 82 is in the books for the Maple Leafs after a 5-2 win over the Canadiens Wednesday night.
 `\

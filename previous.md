@@ -1,10 +1,13 @@
+**Three key offseason questions after Yankees' playoff loss to Blue Jays**\
+`The Yankees' offseason has arrived earlier than they hoped. How might they tackle the pressing questions in another critical winter?`\
+https://nytimes.com/athletic/6681315/2025/10/08/yankees-roster-free-agency-trades-2026-season/
+
 **Yankees-Blue Jays Game 4 takeaways: Toronto rides bullpen day back to ALCS**\
 `Manager John Schneider handed the ball to eight pitchers, navigating a stressful bullpen day to secure the Blue Jays' 5-2 clinching victory.`\
 https://nytimes.com/athletic/6701945/2025/10/08/yankees-bluejays-game-4-score-results-takeaways-playoffs-mlb/
 
 **What we saw from Leafs' season opener: Rielly, Matthews shine, newcomers disappoint**\
-`Game 1 of 82 is in the books for the Maple Leafs after a 5-2 win over the Canadiens Wednesday night.
-`\
+`Game 1 of 82 is in the books for the Maple Leafs after a 5-2 win over the Canadiens on Wednesday night.`\
 https://nytimes.com/athletic/6701954/2025/10/08/maple-leafs-canadiens-season-opener-rielly-matthews/
 
 **How Portland Is Reacting to Trump’s National Guard Threat**\
@@ -30,8 +33,4 @@ https://nytimes.com/athletic/6701293/2025/10/08/bill-belichick-unc-buyout-coach-
 **Ghosts of bullpens past haunt the Mariners, who missed an anniversary but still have life**\
 `Thirty years to the day the Mariners clinched their first trip to the ALCS, they gave up nine straight runs after an initial 3-0 lead.`\
 https://nytimes.com/athletic/6701997/2025/10/08/seattle-mariners-alds-detroit-tigers-bullpen/
-
-**Posts Calling Mangione Guilty Did No Harm, Top U.S. Prosecutor Argues**\
-`A judge had demanded an explanation for why Justice Department officials were publicly expressing views on Luigi Mangione’s guilt in the killing of a health insurance executive.`\
-https://nytimes.com/2025/10/08/nyregion/luigi-mangione-justice-department-posts.html
 
