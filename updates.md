@@ -1,3 +1,19 @@
+**Review: Is Dylan Mulvaney ‘The Least Problematic Woman in the World’?**\
+`In her bold, funny solo show, the social media influencer details a life of identity-searching, controversy and a determination to be absolutely herself.`\
+https://nytimes.com/2025/10/09/theater/least-problematic-woman-review-dylan-mulvaney.html
+
+**Trump Praises Gaza Deal, Expects Hostages Released Next Week**\
+`During a cabinet meeting on Thursday, President Trump said the war in Gaza was over but some of the most significant parts of his proposal have been left for future negotiations.`\
+https://nytimes.com/video/world/middleeast/100000010450546/world-middle-east-israel-hamas-gaza-cease-fire.html
+
+**Read the Indictment of Letitia James**\
+`The attorney general of New York, Letitia James, was charged with one count of bank fraud and one count of making false statements to a financial institution related to her purchase of a property in Norfolk, Va.`\
+https://nytimes.com/interactive/2025/10/09/us/politics/Letitia-James-indictment.html
+
+**Tuchel criticises 'silent' England fans: 'We never got any energy'**\
+`Despite the 3-0 victory, the England manager was not happy with what he claimed was a lack of support from the England fans.`\
+https://nytimes.com/athletic/6704652/2025/10/09/england-tuchel-fans-criticise-wales/
+
 **No Stupid Questions: Meatballs**\
 `When it comes to meatballs, there are no absolute musts. But there are some very practical tips to keep in mind that will always get you something delicious. Cooking contributor Sue Li joins us in the NYT Cooking Studio Kitchen to answer so commonly asked questions.`\
 https://nytimes.com/video/dining/100000010449285/no-stupid-questions-meatballs.html
