@@ -1,3 +1,11 @@
+**Word of the Day: tapestry**\
+`This word has appeared in 136 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/10/09/learning/word-of-the-day-tapestry.html
+
+**UWCL Briefing: Man Utd's debut delight, sloppy Chelsea and are Barca back?**\
+`Dissecting the big talking points from the opening round of league phase matches`\
+https://nytimes.com/athletic/6701609/2025/10/09/womens-champions-league-manchester-united-chelsea-barcelona/
+
 **Israel and Hamas Reach a Deal**\
 `Celebrations broke out after Israel and Hamas agreed to the first phase of a peace plan on Wednesday. The agreement covers an exchange of hostages and prisoners.`\
 https://nytimes.com/video/world/middleeast/100000010448555/israel-hamas-peace-plan.html
@@ -25,12 +33,4 @@ https://nytimes.com/live/2025/10/09/world/israel-hamas-gaza-ceasefire
 **Why does Alisson get so many hamstring injuries?**\
 `Injuries have been an unfortunate feature of the Brazilian's career at Anfield`\
 https://nytimes.com/athletic/6699705/2025/10/09/alisson-liverpool-hamstring-injury/
-
-**Can Newcastle's ironclad defence cope with Livramento and Hall injuries?**\
-`After keeping five clean sheets, Eddie Howe's side now have to cope with a run of games without their first-choice full backs`\
-https://nytimes.com/athletic/6693182/2025/10/09/newcastle-defence-livramento-hall-burn-howe-analysis/
-
-**Amorim's exiles: How six Manchester United outcasts are faring at their new clubs**\
-`Marcus Rashford and Rasmus Hojlund have started the season brightly at their new clubs — but what of the others?`\
-https://nytimes.com/athletic/6696533/2025/10/09/manchester-united-amorim-rashford-garnacho-hojlund/
 
