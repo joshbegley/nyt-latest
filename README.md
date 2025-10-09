@@ -1,3 +1,11 @@
+**Troubled Wind Developer Orsted to Cut 25% of Staff**\
+`Battered by delays, higher costs and attempts by the Trump administration to block its projects in the United States, the Danish company is retreating to its base in Europe.`\
+https://nytimes.com/2025/10/09/business/orsted-wind-developer-job-cuts.html
+
+**Saquon Barkley explains appeal of new documentary, predicts breakout star**\
+`The documentary was supposed to be about Barkley's recovery from an ACL injury, but ended up featuring much more.`\
+https://nytimes.com/athletic/6701843/2025/10/09/eagles-giants-saquon-barkley-documentary/
+
 **A Gaza Deal**\
 `The world is waking up to an agreement between Israel and Hamas. We explain what we know about the breakthrough.`\
 https://nytimes.com/2025/10/09/briefing/a-gaza-deal.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6701261/2025/10/09/houston-astros-payroll-breakdown
 **College Football Week 7 oddly specific predictions: Oregon survives a scare from Indiana**\
 `Texas shows signs of life and knocks off Oklahoma, and Billy Napier and the Gators keep rolling with an upset at Texas A&M.`\
 https://nytimes.com/athletic/6700566/2025/10/09/college-football-predictions-week-7/
-
-**Sabres final thoughts: Analytics love for Buffalo, goalie conundrum, Alex Tuch's market**\
-`To say the Sabres' goalie situation is unsettled would be an understatement as Alex Lyon looks likely to be the opening-night starter.`\
-https://nytimes.com/athletic/6702057/2025/10/09/buffalo-sabres-goalie-alex-tuch-contract/
-
-**Mets mailbag: Options for center field upgrade, Pete Alonso's opt-out timing**\
-`The Mets don’t have great internal options to open at center field in 2026.`\
-https://nytimes.com/athletic/6701964/2025/10/09/mets-mailbag-center-field-upgrade/
 
