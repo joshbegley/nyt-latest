@@ -1,3 +1,19 @@
+**The Windup: No shame in losing to these Blue Jays**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6703581/2025/10/09/mlb-playoffs-blue-jays-yankees-the-windup/
+
+**Annapolis**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/things-to-do-annapolis
+
+**College football picks ATS: Several top 25 teams vulnerable in Week 7**\
+`Week 7 of college football has a ton of games with high stakes and potential upsets. Our staff picks the biggest games against the spread.`\
+https://nytimes.com/athletic/6697902/2025/10/09/college-football-picks-against-the-spread-oregon-indiana-alabama-missouri/
+
+**Fantasy football matchup rankings Week 6 | Strength of schedule**\
+`Jake Ciely's Week 6 fantasy football strength of schedule by position matchup rankings can help with tough start/sit decisions. `\
+https://nytimes.com/athletic/6703528/2025/10/09/fantasy-football-matchup-rankings-week-6-strength-of-schedule/
+
 **The Bounce: What are the Clippers' Aspirations? Plus, the Aces are one win away**\
 `Zach Harper also previews the Hawks in our basketball newsletter.`\
 https://nytimes.com/athletic/6703480/2025/10/09/clippers-aces-hawks-aja-wilson-the-bounce/
@@ -6,27 +22,11 @@ https://nytimes.com/athletic/6703480/2025/10/09/clippers-aces-hawks-aja-wilson-t
 `In March, the club announced plans to build a new 100,000-seater stadium next to the site of the existing Old Trafford.`\
 https://nytimes.com/athletic/6703138/2025/10/09/manchester-united-new-stadium-survey/
 
+**How to buy World Cup 2026 tickets: Prices, dates and everything to know**\
+`The 2026 World Cup ticketing process can get a little complex, but we're here to walk you through your route to seeing matches next summer`\
+https://nytimes.com/athletic/6593924/2025/10/09/world-cup-2026-tickets-how-to-buy/
+
 **Infantino warns league games abroad risk 'free-for-all' after La Liga, Serie A plans**\
 `Earlier this week, European football’s governing body UEFA “reluctantly” gave its approval for league games to be moved abroad.`\
 https://nytimes.com/athletic/6703443/2025/10/09/infantino-league-games-abroad/
-
-**We Have a Cease-Fire. Now the Middle East Needs Leadership.**\
-`Promises of peace between Jews and Palestinians must be turned into reality.`\
-https://nytimes.com/2025/10/09/opinion/palestinians-israel-gaza-war-ceasefire-peace.html
-
-**Number of Children Fleeing Violence in Haiti Soars**\
-`Haitian children face intensifying problems of crime, hunger and homelessness as the country’s humanitarian crisis shows no signs of easing, a report from a U.N. agency found.`\
-https://nytimes.com/2025/10/09/us/haiti-violence-children-crime.html
-
-**Caleb Williams joins cast of investors in NWSL newcomer Boston Legacy**\
-`The former Heisman Trophy winner and No. 1 pick in the 2024 NFL Draft has joined an investor group for the Boston Legacy Football Club.`\
-https://nytimes.com/athletic/6702220/2025/10/09/caleb-williams-nwsl-boston-legacy/
-
-**Liverpool mailbag: Send your questions to James Pearce**\
-`Send your questions to our Liverpool correspondent and he will answer them next week`\
-https://nytimes.com/athletic/6703270/2025/10/09/liverpool-mailbag-send-your-questions-to-james-pearce/
-
-**He’s Gay. He’s an Observant Jew. His Comedy Career Is Booming.**\
-`Mordechi Rosenfeld, known as Modi, already has the synagogue crowd. Now he wants the “Goyim, gays and theys,” too.`\
-https://nytimes.com/2025/10/09/style/gay-jewish-comedian-modi-rosenfeld.html
 
