@@ -1,3 +1,15 @@
+**MLB playoffs or work? West Coast fans face a difficult decision**\
+`An early start time at Dodger Stadium could force many Dodgers fans to miss Shohei Ohtani's leadoff at-bat in Game 4 of the NLDS.`\
+https://nytimes.com/athletic/6703725/2025/10/09/mlb-postseason-start-times/
+
+**Three More Sandwiches That Define New York City**\
+`Nashville-worthy hot chicken, avant-garde bánh mì and lonche bañado straight from Guadalajara.`\
+https://nytimes.com/2025/10/09/dining/three-more-sandwiches-that-define-new-york-city.html
+
+**Dodgers reliever Tanner Scott out of NLDS after medical procedure**\
+`The earliest pitcher would be eligible to return is the World Series, should the Dodgers advance that far.`\
+https://nytimes.com/athletic/6704421/2025/10/09/dodgers-tanner-scott-out-nlds-phillies/
+
 **How Jared Kushner, a Self-Described ‘Deal Guy,’ Helped Broker a Gaza Breakthrough**\
 `Trained in New York City real estate, the president’s son-in-law had a singular goal: Get to a yes first, and hash out the details later. “It’s just different being deal guys — just a different sport,” he said.`\
 https://nytimes.com/2025/10/09/us/politics/jared-kushner-gaza-deal.html
