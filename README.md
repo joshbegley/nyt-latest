@@ -1,3 +1,15 @@
+**Tennis players accused of doping will receive financial and legal support from authorities**\
+`The resource deficit between top-ranked players involved in anti-doping cases and their peers has been heavily criticized in recent months.`\
+https://nytimes.com/athletic/6702621/2025/10/09/tennis-doping-cases-law-cost-support-itia/
+
+**Sailor won Vendee Globe in record time while undergoing cancer treatment**\
+`Dalin said he was diagnosed with a gastrointestinal stromal tumour in late 2023 and received immunotherapy treatment throughout the race.`\
+https://nytimes.com/athletic/6702723/2025/10/09/charlie-dalin-cancer-vendee-globe/
+
+**Yankees just wasted a golden opportunity they’ll never get back**\
+`A year after the Dodgers embarrassed them in the World Series, seizing upon their flaws, the Yankees came up even smaller vs. the Blue Jays.`\
+https://nytimes.com/athletic/6702435/2025/10/09/yankees-eliminated/
+
 **Winless, the Jets arrive in London with a simple plan: ‘Keep swinging’**\
 `The week will be an important one for team-building, but the Broncos pose a major challenge for the young, 0-5 Jets on Sunday.`\
 https://nytimes.com/athletic/6701257/2025/10/09/new-york-jets-london-practice-report/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6702688/2025/10/09/burnley-espanyol-ownership-takeo
 **She’s Like Édith Piaf (but With Techno and Teen Angst)**\
 `Zaho de Sagazan has become a shooting star of contemporary French pop music by reimagining the chanson genre for a younger, more dance-oriented audience.`\
 https://nytimes.com/2025/10/09/arts/music/zaho-de-sagazan.html
-
-**As Israelis Breathe a Sigh of Relief, Some Ask Why a Deal Took So Long**\
-`The families of hostages held in Gaza were elated that their loved ones might return soon. Still, some expressed frustration at Israel’s government.`\
-https://nytimes.com/2025/10/09/world/middleeast/israel-response-hamas-gaza-deal.html
-
-**Yankees' gut-wrenching final loss reflects the warts of a disappointing 2025 season**\
-`It all coalesced Wednesday. The Yanks couldn’t replace Judge’s missing production, the bullpen slipped and the defense wasn't tight enough.`\
-https://nytimes.com/athletic/6702613/2025/10/09/yankees-game-3-loss-bluejays-alds-2025-season/
-
-**How to watch Phillies at Dodgers: Game 4 Time, TV, streaming**\
-`Find out how to watch the Philadelphia Phillies play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6702732/2025/10/09/phillies-vs-dodgers-stream-how-to-watch-oct-9/
 
