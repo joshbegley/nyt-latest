@@ -1,3 +1,7 @@
+**How Jared Kushner, a Self-Described ‘Deal Guy,’ Helped Broker a Gaza Breakthrough**\
+`Trained in New York City real estate, the president’s son-in-law had a singular goal: Get to a yes first, and hash out the details later. “It’s just different being deal guys — just a different sport,” he said.`\
+https://nytimes.com/2025/10/09/us/politics/jared-kushner-gaza-deal.html
+
 **The U.N. says it is ready to rush aid into Gaza.**\
 `By Farnaz Fassihi`\
 https://nytimes.com/live/2025/10/09/world/israel-hamas-gaza-ceasefire/the-un-says-it-is-ready-to-rush-aid-into-gaza
