@@ -1,6 +1,14 @@
+**Gunman Barricaded in Miami House Injures 2 Police Officers**\
+`The officers were in stable condition, the Miami police chief said. One man remained inside the house, and another was taken into custody.`\
+https://nytimes.com/2025/10/09/us/miami-police-officers-shot.html
+
+**A’ja Wilson’s Game-Winner Gives Aces 3-0 Finals Lead**\
+`A’ja Wilson of the Las Vegas Aces delivered what will surely go down as one of the defining moments of her W.N.B.A. career Wednesday night against the Phoenix Mercury.`\
+https://nytimes.com/video/the-athletic/100000010449116/aja-wilsons-game-winner-gives-aces-3-0-finals-lead.html
+
 **By locking in Jack Eichel, Golden Knights won't let Oilers run away with the West**\
 `In Jack Eichel and Mitch Marner, Vegas locks up two of the most dynamic players in the NHL for the foreseeable future. `\
-https://nytimes.com/athletic/6702544/2025/10/09/by-locking-in-jack-eichel-golden-knights-wont-let-oilers-run-away-with-the-west/
+https://nytimes.com/athletic/6702544/2025/10/09/jack-eichel-golden-knights-contract-west/
 
 **Barcelona's De Jong opposed to La Liga match in Miami**\
 `De Jong said he disagreed with the plan to host Villarreal vs Barca in the U.S. on the basis of player welfare and competition fairness.`\
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6703581/2025/10/09/mlb-playoffs-blue-jays-yankees-t
 **Annapolis**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/things-to-do-annapolis
-
-**College football picks ATS: Several top 25 teams vulnerable in Week 7**\
-`Week 7 of college football has a ton of games with high stakes and potential upsets. Our staff picks the biggest games against the spread.`\
-https://nytimes.com/athletic/6697902/2025/10/09/college-football-picks-against-the-spread-oregon-indiana-alabama-missouri/
-
-**Fantasy football matchup rankings Week 6 | Strength of schedule**\
-`Jake Ciely's Week 6 fantasy football strength of schedule by position matchup rankings can help with tough start/sit decisions. `\
-https://nytimes.com/athletic/6703528/2025/10/09/fantasy-football-matchup-rankings-week-6-strength-of-schedule/
 
