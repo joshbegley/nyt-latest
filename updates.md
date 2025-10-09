@@ -1,3 +1,19 @@
+**For Cardinals' Marvin Harrison Jr., an emotional trip to the city where his dad starred**\
+`Arizona's game in Indianapolis offers an irresistible storyline: father and son, past and present.`\
+https://nytimes.com/athletic/6702281/2025/10/09/cardinals-marvin-harrison-jr-indianapolis-colts-father/
+
+**Troubled Wind Developer Orsted to Cut 25% of Staff**\
+`Battered by delays, higher costs and attempts by the Trump administration to block its projects in the United States, the Danish company is retreating to its base in Europe.`\
+https://nytimes.com/2025/10/09/business/orsted-wind-developer-job-cuts.html
+
+**Saquon Barkley explains appeal of new documentary, predicts breakout star**\
+`The documentary was supposed to be about Barkley's recovery from an ACL injury, but ended up featuring much more.`\
+https://nytimes.com/athletic/6701843/2025/10/09/eagles-giants-saquon-barkley-documentary/
+
+**Julian Sayin, college football's most accurate QB? Ohio State's plan is on track**\
+`Ryan Day has earned his QB guru reputation, and Sayin's rapid development is going exactly how Ohio State hoped.`\
+https://nytimes.com/athletic/6702008/2025/10/09/julian-sayin-ohio-state-football-ryan-day/
+
 **A Gaza Deal**\
 `The world is waking up to an agreement between Israel and Hamas. We explain what we know about the breakthrough.`\
 https://nytimes.com/2025/10/09/briefing/a-gaza-deal.html
