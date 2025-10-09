@@ -1,3 +1,15 @@
+**Shedeur Sanders is 'in a great mental space' as he awaits Browns' backup QB decision**\
+`"It’s up to the coaches. Whatever decision they make, then I’m fine with it," Sanders said about his position on Cleveland's depth chart. `\
+https://nytimes.com/athletic/6704444/2025/10/09/shedeur-sanders-browns-backup-quarterback/
+
+**Red Sox Hall of Famer Mike Greenwell dies of cancer months after diagnosis**\
+`Greenwell announced his cancer diagnosis in August to a local TV station in Lee County, Fla., where he lived. He was 62.`\
+https://nytimes.com/athletic/6704383/2025/10/09/mike-greenwell-boston-red-sox-cancer-death/
+
+**Satou Sabally ruled out of Game 4 of the WNBA Finals**\
+`Sabally in 39 games this season, averaged 16.3 points, 5.9 rebounds and 2.5 assists per game.`\
+https://nytimes.com/athletic/6703647/2025/10/09/satou-sabally-concussion-injury-update-wnba-finals/
+
 **Appellate Judges Appear Open to Allowing Troops to Deploy to Portland**\
 `Three judges from the U.S. Court of Appeals for the Ninth Circuit are reviewing an order blocking President Trump from deploying National Guard soldiers in the city.`\
 https://nytimes.com/2025/10/09/us/national-guard-portland-appeals-court-hearing.html

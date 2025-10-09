@@ -1,3 +1,15 @@
+**Shedeur Sanders is 'in a great mental space' as he awaits Browns' backup QB decision**\
+`"It’s up to the coaches. Whatever decision they make, then I’m fine with it," Sanders said about his position on Cleveland's depth chart. `\
+https://nytimes.com/athletic/6704444/2025/10/09/shedeur-sanders-browns-backup-quarterback/
+
+**Red Sox Hall of Famer Mike Greenwell dies of cancer months after diagnosis**\
+`Greenwell announced his cancer diagnosis in August to a local TV station in Lee County, Fla., where he lived. He was 62.`\
+https://nytimes.com/athletic/6704383/2025/10/09/mike-greenwell-boston-red-sox-cancer-death/
+
+**Satou Sabally ruled out of Game 4 of the WNBA Finals**\
+`Sabally in 39 games this season, averaged 16.3 points, 5.9 rebounds and 2.5 assists per game.`\
+https://nytimes.com/athletic/6703647/2025/10/09/satou-sabally-concussion-injury-update-wnba-finals/
+
 **Appellate Judges Appear Open to Allowing Troops to Deploy to Portland**\
 `Three judges from the U.S. Court of Appeals for the Ninth Circuit are reviewing an order blocking President Trump from deploying National Guard soldiers in the city.`\
 https://nytimes.com/2025/10/09/us/national-guard-portland-appeals-court-hearing.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6704421/2025/10/09/dodgers-tanner-scott-out-nlds-ph
 **How Jared Kushner, a Self-Described ‘Deal Guy,’ Helped Broker a Gaza Breakthrough**\
 `Trained in New York City real estate, the president’s son-in-law had a singular goal: Get to a yes first, and hash out the details later. “It’s just different being deal guys — just a different sport,” he said.`\
 https://nytimes.com/2025/10/09/us/politics/jared-kushner-gaza-deal.html
-
-**The U.N. says it is ready to rush aid into Gaza.**\
-`By Farnaz Fassihi`\
-https://nytimes.com/live/2025/10/09/world/israel-hamas-gaza-ceasefire/the-un-says-it-is-ready-to-rush-aid-into-gaza
-
-**National Guard Expected to Start Patrolling in Memphis**\
-`The city said that National Guard patrols will start on Friday, adding to an ongoing surge of federal forces in the city.`\
-https://nytimes.com/2025/10/09/us/national-guard-patrols-memphis-tennessee.html
-
-**Akins returns to Mansfield after jail time for causing death of cyclist**\
-`Mansfield issued a statement saying Akins' registration had been retained, and that he has been reintegrated with the first-team squad.`\
-https://nytimes.com/athletic/6704071/2025/10/09/lucas-akins-mansfield-return-news/
 
