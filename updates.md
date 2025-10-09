@@ -1,3 +1,7 @@
+**Cubs-Brewers Game 3 takeaways: Chicago bends but doesn't break to force Game 4**\
+`Milwaukee struck first but the Cubs were able to respond with four runs of their own to force another game of playoff baseball.`\
+https://nytimes.com/athletic/6701817/2025/10/08/cubs-brewers-game-3-score-results-takeaways-playoffs-mlb/
+
 **How to watch Bills vs. Falcons: Time, TV, streaming**\
 `Find out how to watch the Buffalo Bills play the Atlanta Falcons, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6701847/2025/10/08/bills-vs-falcons-stream-how-to-watch-oct-13/

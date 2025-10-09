@@ -1,3 +1,7 @@
+**Cubs-Brewers Game 3 takeaways: Chicago bends but doesn't break to force Game 4**\
+`Milwaukee struck first but the Cubs were able to respond with four runs of their own to force another game of playoff baseball.`\
+https://nytimes.com/athletic/6701817/2025/10/08/cubs-brewers-game-3-score-results-takeaways-playoffs-mlb/
+
 **How to watch Bills vs. Falcons: Time, TV, streaming**\
 `Find out how to watch the Buffalo Bills play the Atlanta Falcons, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6701847/2025/10/08/bills-vs-falcons-stream-how-to-watch-oct-13/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/08/nyregion/lawler-jeffries-confrontation.html
 **Gary Bettman commends Connor McDavid for his approach to contract negotiations**\
 `The NHL commissioner said McDavid's team-friendly deal "is a testament to Connor's passion for the game and his commitment to Edmonton."`\
 https://nytimes.com/athletic/6701550/2025/10/08/connor-mcdavid-contract-oilers-gary-bettman/
-
-**McDavid, Crosby and the Panthers without Barkov: 10 big questions that define the NHL season**\
-`Max Bultman and Mark Lazerus dive into the contenders and pretenders, the players who will determine their teams' destiny and more.`\
-https://nytimes.com/athletic/6701390/2025/10/08/mcdavid-crosby-panthers-without-barkov-10-questions/
 
