@@ -1,3 +1,27 @@
+**Kimmel’s Tip for Troops: Camouflage Is Pointless in Chicago**\
+`“You would be better off dressed as kielbasa in Chicago,” Jimmy Kimmel advised the National Guard troops President Trump wants to deploy to the city.`\
+https://nytimes.com/2025/10/09/arts/television/jimmy-kimmel-trump-portland-chicago.html
+
+**Pushing Down, Pushing Back**\
+`What do you think this image is communicating?`\
+https://nytimes.com/2025/10/09/learning/pushing-down-pushing-back.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/10/09/crosswords/spelling-bee-forum.html
+
+**Out of This World Ideas for Dressing on Planet Earth**\
+`At Paris Fashion Week, the most exciting designs on runways and streets were beyond the ordinary but wearable.`\
+https://nytimes.com/2025/10/09/style/paris-fashion-week-runway-street-looks.html
+
+**Who Can Afford Three Kids in New York City?**\
+`The number of city households with three or more children has dropped by nearly 17 percent over the past decade as families struggle with the cost of child care and rent.`\
+https://nytimes.com/2025/10/09/nyregion/who-can-afford-three-kids-in-new-york-city.html
+
+**Star Witness in Menendez Bribery Case to Be Sentenced**\
+`Jose Uribe pleaded guilty to bribing New Jersey’s former senator, Robert Menendez, and his wife, Nadine Menendez. He went on to testify at their trials.`\
+https://nytimes.com/2025/10/09/nyregion/jose-uribe-robert-menendez-bribery-sentencing.html
+
 **China Clamps Down Even Harder on Rare Earths**\
 `The move is Beijing’s latest attempt to tighten control over global production of the metals, which are essential to the manufacturing of chips.`\
 https://nytimes.com/2025/10/09/business/china-rare-earth-exports.html
@@ -13,24 +37,4 @@ https://nytimes.com/athletic/6702498/2025/10/09/brewers-vs-cubs-stream-how-to-wa
 **Word of the Day: tapestry**\
 `This word has appeared in 136 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/10/09/learning/word-of-the-day-tapestry.html
-
-**UWCL Briefing: Man Utd's debut delight, sloppy Chelsea and are Barca back?**\
-`Dissecting the big talking points from the opening round of league phase matches`\
-https://nytimes.com/athletic/6701609/2025/10/09/womens-champions-league-manchester-united-chelsea-barcelona/
-
-**Israel and Hamas Reach a Deal**\
-`Celebrations broke out after Israel and Hamas agreed to the first phase of a peace plan on Wednesday. The agreement covers an exchange of hostages and prisoners.`\
-https://nytimes.com/video/world/middleeast/100000010448555/israel-hamas-peace-plan.html
-
-**Big Five - Europe's top upcoming World Cup qualifiers**\
-`There’s a smorgasbord of tasty World Cup qualifying fixtures to sink your teeth into. Here are five worth watching.`\
-https://nytimes.com/athletic/6700228/2025/10/09/big-five-europes-top-upcoming-qualifiers/
-
-**The New York Times in Print for Thursday, Oct. 9, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/10/09/todays-new-york-times
-
-**I’m the Foreign Minister of Poland. This Is How to Negotiate With Putin.**\
-`The leadership of Russia must understand that its attempt to rebuild Europe’s last empire is doomed to fail.`\
-https://nytimes.com/2025/10/09/opinion/putin-poland-radoslaw-sikorski.html
 
