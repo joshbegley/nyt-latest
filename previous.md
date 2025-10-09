@@ -1,3 +1,15 @@
+**Sarah Jessica Parker Wears Wings to the New York City Ballet’s Fall Gala**\
+`The fund-raiser drew celebrities, rock stars and designers, though its red carpet and dinner was boycotted by the company’s dancers who are fighting for pay increases.`\
+https://nytimes.com/2025/10/09/style/sarah-jessica-parker-new-york-city-ballet-fall-gala.html
+
+**What Hawaii’s Tiny Homes Reveal About the Housing Crisis**\
+`They show the promise of modular construction in response to housing shortfalls.`\
+https://nytimes.com/2025/10/09/headway/hawaiis-tiny-homes-housing-crisis.html
+
+**My Soup Bucket List**\
+`As in, the soups and stews I must make, and make in large quantities, now that it’s fall.`\
+https://nytimes.com/2025/10/09/dining/my-vegetarian-soup-bucket-list.html
+
 **German Leaders and Auto Chiefs Team Up in Push to Relax Emissions Rules**\
 `The chancellor said he planned to urge the European Union to back off a policy that has been widely interpreted as a ban on combustion engines after 2035.`\
 https://nytimes.com/2025/10/09/business/germany-auto-industry-emissions-rules.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/09/world/middleeast/hostages-profiles.html
 **Six things that caught my eye from this season's NBA GM survey**\
 `Executives across the league showed a ton of love for the Joker, Wemby and ... the Hawks?`\
 https://nytimes.com/athletic/6703733/2025/10/09/nba-gm-survey-takeaways-luka-doncic-nikola-jokic-wembanyama/
-
-**What Would Elphaba Grow? The Botanical Garden Has Some Ideas.**\
-`Striking plants of deep pinks and dark greens conjure the visual world of “Wicked” this month at the New York Botanical Garden.`\
-https://nytimes.com/2025/10/09/arts/design/wicked-new-york-botanical-garden.html
-
-**Trump Baselessly Claims He ‘Took the Freedom of Speech Away’ From Flag Burners**\
-`The president said he had made flag burning a crime punishable by a year in prison. But such a claim contradicts both Supreme Court precedent and the text of an executive order he signed.`\
-https://nytimes.com/2025/10/09/us/politics/trump-freedom-of-speech-flag-burning.html
-
-**I Love New York, Except for the Yankees**\
-`I’m a dyed-in-the-wool New Yorker. But I can’t help rooting against the Yankees.`\
-https://nytimes.com/2025/10/09/opinion/i-love-new-york-except-for-the-yankees.html
 
