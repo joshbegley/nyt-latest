@@ -1,3 +1,7 @@
+**What We Know About the Israel-Hamas Hostage Deal**\
+`President Trump said the remaining hostages held in Gaza would be released Monday or Tuesday. But the specifics of the deal remain unclear.`\
+https://nytimes.com/2025/10/09/world/middleeast/hamas-israel-hostage-deal.html
+
 **Oklahoma’s Republican Governor Criticizes National Guard Deployment in Chicago**\
 `Gov. Kevin Stitt, the current chairman of the National Governors Association, broke with Texas, saying, “Oklahomans would lose their mind” if Illinois sent troops to their red state.`\
 https://nytimes.com/2025/10/09/us/politics/oklahoma-governor-national-guard.html
