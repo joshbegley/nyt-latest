@@ -1,3 +1,15 @@
+**Eagles linebacker Nakobe Dean to make season debut vs. Giants**\
+`Dean was activated off the physically unable to perform list Thursday afternoon, the team said. He will handle a limited workload.`\
+https://nytimes.com/athletic/6700567/2025/10/09/eagles-nakobe-dean-debut-giants/
+
+**Parts of the Southwest May Get More Than a Month’s Rain This Weekend**\
+`Moisture from a former Pacific hurricane was expected to bring the risk of heavy rain and flash flooding across desert areas.`\
+https://nytimes.com/2025/10/09/weather/priscilla-arizona-california-nm-rain-forecast.html
+
+**Here’s the latest.**\
+`The case being pursued cameMr. Trump forced out the top federal prosecutor there, who had told superiors that there was insufficient evidence to justify criminal charges`\
+https://nytimes.com/live/2025/10/09/us/trump-news/letitia-james-indicted-trump
+
 **As Gaza Deal Nears, Palestinians and Israelis Cheer — and Worry**\
 `With the agreement still unsigned, people in Gaza and Israel celebrated a possible end to two years of war, but hoped they were not doing so prematurely.`\
 https://nytimes.com/2025/10/09/world/middleeast/israel-hamas-gaza-deal-reactions.html
@@ -11,7 +23,7 @@ https://nytimes.com/paidpost/university-of-michigan/university-of-michigan/a-uni
 https://nytimes.com/2025/10/09/us/politics/argentina-bailout-investors.html
 
 **The Briefing — England 3 Wales 0: How did Watkins do? Is Anderson a definite starter? Pickford surpasses Banks record**\
-`Thomas Tuchel's side eased to victory at Wembley - here, our writers break down the action.`\
+`Thomas Tuchel's side eased to victory at Wembley — here, our writers break down the action`\
 https://nytimes.com/athletic/6703553/2025/10/09/england-watkins-anderson-tuchel/
 
 **Librarian Fired in Books Dispute to Receive $700,000 Settlement**\
@@ -21,16 +33,4 @@ https://nytimes.com/2025/10/09/us/wyoming-library-settlement-book-bans-terri-les
 **Shedeur Sanders in a 'great mental space' as he awaits Browns' backup QB decision**\
 `"It’s up to the coaches. Whatever decision they make, then I’m fine with it," Sanders said about his position on Cleveland's depth chart. `\
 https://nytimes.com/athletic/6704444/2025/10/09/shedeur-sanders-browns-backup-quarterback/
-
-**Ex-Red Sox All-Star OF Mike Greenwell dies of cancer months after diagnosis**\
-`Greenwell announced his cancer diagnosis in August to a local TV station in Lee County, Fla., where he lived. He was 62.`\
-https://nytimes.com/athletic/6704383/2025/10/09/mike-greenwell-boston-red-sox-cancer-death/
-
-**Satou Sabally ruled out of Game 4 of the WNBA Finals**\
-`Sabally in 39 games this season, averaged 16.3 points, 5.9 rebounds and 2.5 assists per game.`\
-https://nytimes.com/athletic/6703647/2025/10/09/satou-sabally-concussion-injury-update-wnba-finals/
-
-**Appellate Judges Appear Open to Allowing Troops to Deploy to Portland**\
-`Three judges from the U.S. Court of Appeals for the Ninth Circuit are reviewing an order blocking President Trump from deploying National Guard soldiers in the city.`\
-https://nytimes.com/2025/10/09/us/national-guard-portland-appeals-court-hearing.html
 

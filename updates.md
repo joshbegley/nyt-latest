@@ -1,3 +1,11 @@
+**As Gaza Deal Nears, Palestinians and Israelis Cheer — and Worry**\
+`With the agreement still unsigned, people in Gaza and Israel celebrated a possible end to two years of war, but hoped they were not doing so prematurely.`\
+https://nytimes.com/2025/10/09/world/middleeast/israel-hamas-gaza-deal-reactions.html
+
+**The Briefing — England 3 Wales 0: How did Watkins do? Is Anderson a definite starter? Pickford surpasses Banks record**\
+`Thomas Tuchel's side eased to victory at Wembley - here, our writers break down the action.`\
+https://nytimes.com/athletic/6703553/2025/10/09/england-watkins-anderson-tuchel/
+
 **A University Rooted in Public Purpose**\
 `The University of Michigan has advanced the public good for over 200 years.`\
 https://nytimes.com/paidpost/university-of-michigan/university-of-michigan/a-university-rooted-in-public-purpose.html
