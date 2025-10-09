@@ -1,3 +1,7 @@
+**As brother's stardom soars, Brady Tkachuk seeks own path to NHL success**\
+`Tkachuk hopes to lead Ottawa back to the playoffs for the second consecutive year — and to build his own NHL legacy.`\
+https://nytimes.com/athletic/6697508/2025/10/09/brady-tkachuk-ottawa-senators-2025-26-season/
+
 **Bears progress report: 10 telling metrics ahead of Monday's showcase game**\
 `Heading into a showcase game with Washington, the Bears can learn a lot from some telling statistics.`\
 https://nytimes.com/athletic/6700958/2025/10/09/bears-progress-report-metrics-commanders/
