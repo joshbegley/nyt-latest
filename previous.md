@@ -1,3 +1,11 @@
+**Science Practice | A Study on ‘Breath Prints’**\
+`Explore what our breath reveals about us.`\
+https://nytimes.com/2025/10/09/learning/science-practice-a-study-on-breath-prints.html
+
+**10 Prompts for Talking and Writing About Halloween**\
+`These questions invite teenagers to share mischievous memories, engage in frightful debates, spin spooky stories and much more.`\
+https://nytimes.com/2025/10/09/learning/10-prompts-for-talking-and-writing-about-halloween.html
+
 **Weird & Wild: Yankee-killing Blue Jays, Schwarber's epic blast and a two-pitch strikeout**\
 `It was one final October quadrupleheader. One last chance to watch nine hours of must-win postseason baseball. Here's what we saw. `\
 https://nytimes.com/athletic/6702939/2025/10/09/mlb-playoffs-weird-bluejays-yankees-kyle-schwarber/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/09/theater/cats-returns-broadway.html
 **For Cardinals' Marvin Harrison Jr., an emotional trip to the city where his dad starred**\
 `Arizona's game in Indianapolis offers an irresistible storyline: father and son, past and present.`\
 https://nytimes.com/athletic/6702281/2025/10/09/cardinals-marvin-harrison-jr-indianapolis-colts-father/
-
-**Troubled Wind Developer Orsted to Cut 25% of Staff**\
-`Battered by delays, higher costs and attempts by the Trump administration to block its projects in the United States, the Danish company is retreating to its base in Europe.`\
-https://nytimes.com/2025/10/09/business/orsted-wind-developer-job-cuts.html
-
-**Saquon Barkley explains appeal of new documentary, predicts breakout star**\
-`The documentary was supposed to be about Barkley's recovery from an ACL injury, but ended up featuring much more.`\
-https://nytimes.com/athletic/6701843/2025/10/09/eagles-giants-saquon-barkley-documentary/
 

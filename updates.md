@@ -1,3 +1,11 @@
+**Science Practice | A Study on ‘Breath Prints’**\
+`Explore what our breath reveals about us.`\
+https://nytimes.com/2025/10/09/learning/science-practice-a-study-on-breath-prints.html
+
+**10 Prompts for Talking and Writing About Halloween**\
+`These questions invite teenagers to share mischievous memories, engage in frightful debates, spin spooky stories and much more.`\
+https://nytimes.com/2025/10/09/learning/10-prompts-for-talking-and-writing-about-halloween.html
+
 **Weird & Wild: Yankee-killing Blue Jays, Schwarber's epic blast and a two-pitch strikeout**\
 `It was one final October quadrupleheader. One last chance to watch nine hours of must-win postseason baseball. Here's what we saw. `\
 https://nytimes.com/athletic/6702939/2025/10/09/mlb-playoffs-weird-bluejays-yankees-kyle-schwarber/
