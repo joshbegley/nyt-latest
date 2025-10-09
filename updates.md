@@ -1,3 +1,15 @@
+**Katie Porter Goes Viral for ‘Unhappy’ TV Interview in California Governor’s Race**\
+`The former Democratic congresswoman, known for her own grilling of executives on Capitol Hill, threatened to abandon an interview after she was asked several follow-up questions.`\
+https://nytimes.com/2025/10/08/us/katie-porter-goes-viral-for-unhappy-tv-interview-in-california-governors-race.html
+
+**As rumors swirl about Bill Belichick, coach says he's staying put at North Carolina**\
+`Speculation about the UNC football program has swirled in the days following its loss to Clemson.  `\
+https://nytimes.com/athletic/6701293/2025/10/08/bill-belichick-unc-buyout-coach-first-season/
+
+**Ghosts of bullpens past haunt the Mariners, who missed an anniversary but still have life**\
+`Thirty years to the day the Mariners clinched their first trip to the ALCS, they gave up nine straight runs after an initial 3-0 lead.`\
+https://nytimes.com/athletic/6701997/2025/10/08/seattle-mariners-alds-detroit-tigers-bullpen/
+
 **Ghosts of bullpens past haunt the Mariners, who missed an anniversary but still have life**\
 `30 years to the day the Mariners clinched the franchise's first trip to the ALCS, they gave up nine straight runs after an initial 3-0 lead.`\
 https://nytimes.com/athletic/6701997/2025/10/08/seattle-mariners-alds-detroit-tigers-bullpen/

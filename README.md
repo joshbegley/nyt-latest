@@ -1,3 +1,11 @@
+**What We Know About the Palisades Fire Arrest**\
+`Federal officials arrested a man they said started a small blaze in January that later rekindled and grew into the fire that devastated Pacific Palisades.`\
+https://nytimes.com/2025/10/08/us/palisades-fire-arrest-jonathan-rinderknecht.html
+
+**One Out**\
+`Freddie Cheng offers solvers a digital puzzle.`\
+https://nytimes.com/2025/10/08/crosswords/daily-puzzle-2025-10-09.html
+
 **Katie Porter Goes Viral for ‘Unhappy’ TV Interview in California Governor’s Race**\
 `The former Democratic congresswoman, known for her own grilling of executives on Capitol Hill, threatened to abandon an interview after she was asked several follow-up questions.`\
 https://nytimes.com/2025/10/08/us/katie-porter-goes-viral-for-unhappy-tv-interview-in-california-governors-race.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/10/08/world/israel-hamas-gaza-ceasefire/what-does-
 **Cubs-Brewers Game 3 takeaways: Chicago bends but doesn't break to force Game 4**\
 `Milwaukee struck first but the Cubs responded with four runs of their own to win 4-3 and force another NLDS game at Wrigley Field.`\
 https://nytimes.com/athletic/6701817/2025/10/08/cubs-brewers-game-3-score-results-takeaways-playoffs-mlb/
-
-**How to watch Bills vs. Falcons: Time, TV, streaming**\
-`Find out how to watch the Buffalo Bills play the Atlanta Falcons, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6701847/2025/10/08/bills-vs-falcons-stream-how-to-watch-oct-13/
-
-**G.O.P. Blocks Bid to Halt Trump’s Attacks in the Caribbean Sea**\
-`Republicans in the Senate blocked a measure that would terminate the president’s legally disputed campaign targeting alleged drug runners.`\
-https://nytimes.com/2025/10/08/us/politics/trump-republicans-war-powers-caribbean-venezuela.html
 
