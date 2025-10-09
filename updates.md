@@ -1,3 +1,7 @@
+**A'ja Wilson's heroic shot gives the Las Vegas Aces a 3-0 WNBA Finals lead**\
+`Phoenix staged a comeback, but the four-time MVP Wilson made a decisive shot. The Aces can win another title Friday.`\
+https://nytimes.com/athletic/6702177/2025/10/08/aja-wilson-wnba-finals-las-vegas-aces-shot/
+
 **Three key offseason questions after Yankees' playoff loss to Blue Jays**\
 `The Yankees' offseason has arrived earlier than they hoped. How might they tackle the pressing questions in another critical winter?`\
 https://nytimes.com/athletic/6681315/2025/10/08/yankees-roster-free-agency-trades-2026-season/

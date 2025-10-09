@@ -1,7 +1,3 @@
-**A'ja Wilson's heroic shot gives the Las Vegas Aces a 3-0 WNBA Finals lead**\
-`Phoenix staged a comeback, but the four-time MVP Wilson made a decisive shot. The Aces can win another title Friday.`\
-https://nytimes.com/athletic/6702177/2025/10/08/aja-wilson-wnba-finals-las-vegas-aces-shot/
-
 **Three key offseason questions after Yankees' playoff loss to Blue Jays**\
 `The Yankees' offseason has arrived earlier than they hoped. How might they tackle the pressing questions in another critical winter?`\
 https://nytimes.com/athletic/6681315/2025/10/08/yankees-roster-free-agency-trades-2026-season/
@@ -33,4 +29,8 @@ https://nytimes.com/2025/10/08/us/katie-porter-goes-viral-for-unhappy-tv-intervi
 **As rumors swirl about Bill Belichick, coach says he's staying put at North Carolina**\
 `Speculation about the UNC football program has swirled in the days following its loss to Clemson.  `\
 https://nytimes.com/athletic/6701293/2025/10/08/bill-belichick-unc-buyout-coach-first-season/
+
+**Ghosts of bullpens past haunt the Mariners, who missed an anniversary but still have life**\
+`Thirty years to the day the Mariners clinched their first trip to the ALCS, they gave up nine straight runs after an initial 3-0 lead.`\
+https://nytimes.com/athletic/6701997/2025/10/08/seattle-mariners-alds-detroit-tigers-bullpen/
 
