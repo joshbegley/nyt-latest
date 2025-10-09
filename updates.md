@@ -1,3 +1,7 @@
+**Iversen: Carlos Sainz is right about F1 broadcasts. And also wrong. Let me explain**\
+`The Spaniard is right that F1 didn't show his late-race overtakes. He's wrong about why they were ignored, though`\
+https://nytimes.com/athletic/6701408/2025/10/09/carlos-sainz-f1-broadcasts-celebrities-girlfriends/
+
 **What We Know About the Hostage Deal Between Israel and Hamas**\
 `After President Trump announced the Gaza agreement, it was unclear when hostages would be released or when aid would enter the territory.`\
 https://nytimes.com/2025/10/09/world/middleeast/israel-hamas-deal-what-to-know.html
