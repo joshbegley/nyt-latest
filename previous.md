@@ -1,3 +1,7 @@
+**Weird & Wild: Yankee-killing Blue Jays, Schwarber's epic blast and a two-pitch strikeout**\
+`It was one final October quadrupleheader. One last chance to watch nine hours of must-win postseason baseball. Here's what we saw. `\
+https://nytimes.com/athletic/6702939/2025/10/09/mlb-playoffs-weird-bluejays-yankees-kyle-schwarber/
+
 **Trump Administration Live Updates: Harvard Seeks Assurances From White House as Talks Restart**\
 ``\
 https://nytimes.com/live/2025/10/09/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/09/business/orsted-wind-developer-job-cuts.html
 **Saquon Barkley explains appeal of new documentary, predicts breakout star**\
 `The documentary was supposed to be about Barkley's recovery from an ACL injury, but ended up featuring much more.`\
 https://nytimes.com/athletic/6701843/2025/10/09/eagles-giants-saquon-barkley-documentary/
-
-**A Gaza Deal**\
-`The world is waking up to an agreement between Israel and Hamas. We explain what we know about the breakthrough.`\
-https://nytimes.com/2025/10/09/briefing/a-gaza-deal.html
 

@@ -1,3 +1,7 @@
+**Weird & Wild: Yankee-killing Blue Jays, Schwarber's epic blast and a two-pitch strikeout**\
+`It was one final October quadrupleheader. One last chance to watch nine hours of must-win postseason baseball. Here's what we saw. `\
+https://nytimes.com/athletic/6702939/2025/10/09/mlb-playoffs-weird-bluejays-yankees-kyle-schwarber/
+
 **Trump Administration Live Updates: Harvard Seeks Assurances From White House as Talks Restart**\
 ``\
 https://nytimes.com/live/2025/10/09/us/trump-news
