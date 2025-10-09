@@ -1,3 +1,7 @@
+**China Clamps Down Even Harder on Rare Earths**\
+`The move is Beijing’s latest attempt to tighten control over global production of the metals, which are essential to the manufacturing of chips.`\
+https://nytimes.com/2025/10/09/business/china-rare-earth-exports.html
+
 **How to watch Bears vs. Commanders: Time, TV, streaming**\
 `Find out how to watch the Chicago Bears play the Washington Commanders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6702520/2025/10/09/bears-vs-commanders-stream-how-to-watch-oct-13/
@@ -29,8 +33,4 @@ https://nytimes.com/issue/todayspaper/2025/10/09/todays-new-york-times
 **I’m the Foreign Minister of Poland. This Is How to Negotiate With Putin.**\
 `The leadership of Russia must understand that its attempt to rebuild Europe’s last empire is doomed to fail.`\
 https://nytimes.com/2025/10/09/opinion/putin-poland-radoslaw-sikorski.html
-
-**Here’s the latest.**\
-`By David M. Halbfinger, Ephrat Livni, Aaron Boxerman, Adam Rasgon and John Yoon`\
-https://nytimes.com/live/2025/10/09/world/israel-hamas-gaza-ceasefire/heres-the-latest
 
