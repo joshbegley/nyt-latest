@@ -1,3 +1,11 @@
+**What does Trump’s 20-point Gaza peace plan envision?**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2025/10/08/world/israel-hamas-gaza-ceasefire/what-does-trumps-20-point-gaza-peace-plan-envision
+
+**Cubs-Brewers Game 3 takeaways: Chicago bends but doesn't break to force Game 4**\
+`Milwaukee struck first but the Cubs responded with four runs of their own to win 4-3 and force another NLDS game at Wrigley Field.`\
+https://nytimes.com/athletic/6701817/2025/10/08/cubs-brewers-game-3-score-results-takeaways-playoffs-mlb/
+
 **Cubs-Brewers Game 3 takeaways: Chicago bends but doesn't break to force Game 4**\
 `Milwaukee struck first but the Cubs were able to respond with four runs of their own to force another game of playoff baseball.`\
 https://nytimes.com/athletic/6701817/2025/10/08/cubs-brewers-game-3-score-results-takeaways-playoffs-mlb/

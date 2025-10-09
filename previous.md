@@ -1,5 +1,9 @@
+**What does Trump’s 20-point Gaza peace plan envision?**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2025/10/08/world/israel-hamas-gaza-ceasefire/what-does-trumps-20-point-gaza-peace-plan-envision
+
 **Cubs-Brewers Game 3 takeaways: Chicago bends but doesn't break to force Game 4**\
-`Milwaukee struck first but the Cubs were able to respond with four runs of their own to force another game of playoff baseball.`\
+`Milwaukee struck first but the Cubs responded with four runs of their own to win 4-3 and force another NLDS game at Wrigley Field.`\
 https://nytimes.com/athletic/6701817/2025/10/08/cubs-brewers-game-3-score-results-takeaways-playoffs-mlb/
 
 **How to watch Bills vs. Falcons: Time, TV, streaming**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/08/nyregion/new-jersey-governors-debate-ciattarelli-
 **Lawler Confronts Jeffries in Showy Exchange in a Tense Capitol**\
 `The roughly five-minute confrontation, initiated by Representative Mike Lawler of New York, was intended to draw attention to Democrats’ role in the government shutdown.`\
 https://nytimes.com/2025/10/08/nyregion/lawler-jeffries-confrontation.html
-
-**Gary Bettman commends Connor McDavid for his approach to contract negotiations**\
-`The NHL commissioner said McDavid's team-friendly deal "is a testament to Connor's passion for the game and his commitment to Edmonton."`\
-https://nytimes.com/athletic/6701550/2025/10/08/connor-mcdavid-contract-oilers-gary-bettman/
 
