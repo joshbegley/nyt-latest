@@ -1,3 +1,11 @@
+**NFL planning 'reimagined' Pro Bowl that will reportedly be in Super Bowl market**\
+`Details of the Pro Bowl remain unclear, but it will reportedly be in the Super Bowl market. Super Bowl LX will be in Santa Clara, Calif.`\
+https://nytimes.com/athletic/6704634/2025/10/09/nfl-pro-bowl-changes-super-bowl-market/
+
+**USA U-20s rout Italy to book World Cup quarterfinal place**\
+`Benjamin Cremaschi seized the tournament's scoring lead with his double, powering the U.S. to a place in the final eight in Chile`\
+https://nytimes.com/athletic/6704741/2025/10/09/usa-u20-world-cup-italy-cremaschi-video-quarterfinals/
+
 **The Gaza Cease-Fire Is Beginning to Take Shape**\
 `Also, New York’s attorney general was indicted. Here’s the latest at the end of Thursday.`\
 https://nytimes.com/2025/10/09/briefing/gaza-deal-letitia-james-charges.html
@@ -25,12 +33,4 @@ https://nytimes.com/video/world/middleeast/100000010450546/world-middle-east-isr
 **Read the Indictment of Letitia James**\
 `The attorney general of New York, Letitia James, was charged with one count of bank fraud and one count of making false statements to a financial institution related to her purchase of a property in Norfolk, Va.`\
 https://nytimes.com/interactive/2025/10/09/us/politics/Letitia-James-indictment.html
-
-**No Stupid Questions: Meatballs**\
-`When it comes to meatballs, there are no absolute musts. But there are some very practical tips to keep in mind that will always get you something delicious. Cooking contributor Sue Li joins us in the NYT Cooking Studio Kitchen to answer so commonly asked questions.`\
-https://nytimes.com/video/dining/100000010449285/no-stupid-questions-meatballs.html
-
-**State Department Fires Diplomat, Citing Relationship With Chinese National**\
-`The foreign service officer failed to disclose his contact with the woman, the daughter of a Chinese Communist Party official, the State Department said.`\
-https://nytimes.com/2025/10/09/us/us-diplomat-fired-relationship-china.html
 
