@@ -1,8 +1,16 @@
-**'Start spreading the news!' Blue Jays manager John Schneider trolls Yankees after ALDS win**\
+**Quote of the Day: He Escaped Alzheimer’s Fate. Scientists Want to Know How.**\
+`Quotation of the Day for Thursday, October 9, 2025.`\
+https://nytimes.com/2025/10/08/pageoneplus/quote-of-the-day-he-escaped-alzheimers-fate-scientists-want-to-know-how.html
+
+**How did stalled talks turn into a deal between Israel and Hamas?**\
+`By Ephrat Livni`\
+https://nytimes.com/live/2025/10/08/world/israel-hamas-gaza-ceasefire/timeline
+
+**'Start spreading the news': 'Theeee Yankees lose!' Blue Jays' Schneider, Guerrero troll N.Y.**\
 `Toronto manager John Schneider started the postgame celebration by borrowing a famous lyric from Frank Sinatra's "New York, New York" song.`\
 https://nytimes.com/athletic/6702247/2025/10/08/blue-jays-john-schneider-trolls-yankees-frank-sinatra/
 
-**Oilers to sign Jack Roslovic: Sources**\
+**Oilers sign Jack Roslovic to 1-year, $1.5 million AAV contract**\
 `The 28-year-old Columbus native is entering his ninth NHL season after recording 22 goals and 39 points with Carolina last year.`\
 https://nytimes.com/athletic/6477901/2025/10/08/jack-roslovic-edmonton-oilers-contract/
 
@@ -29,8 +37,4 @@ https://nytimes.com/athletic/6681315/2025/10/08/yankees-roster-free-agency-trade
 **Yankees-Blue Jays Game 4 takeaways: Toronto rides bullpen day back to ALCS**\
 `Manager John Schneider handed the ball to eight pitchers, navigating a stressful bullpen day to secure the Blue Jays' 5-2 clinching victory.`\
 https://nytimes.com/athletic/6701945/2025/10/08/yankees-bluejays-game-4-score-results-takeaways-playoffs-mlb/
-
-**What we saw from Leafs' season opener: Rielly, Matthews shine, newcomers disappoint**\
-`Game 1 of 82 is in the books for the Maple Leafs after a 5-2 win over the Canadiens on Wednesday night.`\
-https://nytimes.com/athletic/6701954/2025/10/08/maple-leafs-canadiens-season-opener-rielly-matthews/
 
