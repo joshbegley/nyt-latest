@@ -1,3 +1,7 @@
+**'Start spreading the news!' Blue Jays manager John Schneider trolls Yankees after ALDS win**\
+`Toronto manager John Schneider started the postgame celebration by borrowing a famous lyric from Frank Sinatra's "New York, New York" song.`\
+https://nytimes.com/athletic/6702247/2025/10/08/blue-jays-john-schneider-trolls-yankees-frank-sinatra/
+
 **Oilers to sign Jack Roslovic: Sources**\
 `The 28-year-old Columbus native is entering his ninth NHL season after recording 22 goals and 39 points with Carolina last year.`\
 https://nytimes.com/athletic/6477901/2025/10/08/jack-roslovic-edmonton-oilers-contract/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6701945/2025/10/08/yankees-bluejays-game-4-score-re
 **What we saw from Leafs' season opener: Rielly, Matthews shine, newcomers disappoint**\
 `Game 1 of 82 is in the books for the Maple Leafs after a 5-2 win over the Canadiens on Wednesday night.`\
 https://nytimes.com/athletic/6701954/2025/10/08/maple-leafs-canadiens-season-opener-rielly-matthews/
-
-**How Portland Is Reacting to Trump’s National Guard Threat**\
-`In the days before President Trump announced that he would send troops to what he called a “war-ravaged” Portland, Ore., federal officers had described the protests there as “low energy.” Anna Griffin, who is reporting in Portland for The New York Times, describes what she’s seen there.`\
-https://nytimes.com/video/us/100000010445347/how-portland-is-reacting-to-trumps-national-guard-threat.html
 
