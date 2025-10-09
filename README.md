@@ -1,3 +1,15 @@
+**Infantino says football should be open-minded over World Cup calendar**\
+`Infantino said a global game cannot only play World Cups during the northern-hemisphere summer.`\
+https://nytimes.com/athletic/6703124/2025/10/09/gianni-infantino-world-cup-calendar/
+
+**What are the expectations for Michael Misa, Macklin Celebrini and the Sharks?**\
+`The Sharks start the season with two star prospects fresh from the OHL. How will San Jose bed them in?`\
+https://nytimes.com/athletic/6702323/2025/10/09/sharks-roster-analysis-misa-celebrini-dickinson/
+
+**Intel’s Big Bet: Inside the Chipmaker’s Make-or-Break Factory**\
+`The centerpiece of the company’s comeback hopes is a multibillion-dollar facility in the Arizona desert. Will it draw new customers?`\
+https://nytimes.com/2025/10/09/technology/intels-big-bet-inside-the-chipmakers-make-or-break-factory.html
+
 **Fantasy football injuries, cheat sheet Week 6: Ravens hamstrung until Lamar Jackson returns**\
 `Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 6 player rankings and more.`\
 https://nytimes.com/athletic/6697664/2025/10/09/fantasy-football-injuries-cheat-sheet-nfl-week-6/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/09/business/dealbook/fed-rates-powell.html
 **How to watch the 2025-26 Dallas Mavericks in Cooper Flagg's debut season**\
 `This season, fans have a new-look Mavericks team and a new-look NBA broadcast schedule. Here's how to keep track of all the games.`\
 https://nytimes.com/athletic/6701219/2025/10/09/dallas-mavericks-nba-schedule-cooper-flagg-how-to-watch-2025-26/
-
-**Angel Reese will walk the runway in the Victoria's Secret Fashion Show**\
-`The two-time WNBA All-Star will make history as the first professional athlete to walk the famous runway.`\
-https://nytimes.com/athletic/6701864/2025/10/09/angel-reese-victorias-secret-fashion-show/
-
-**Science Practice | A Study on ‘Breath Prints’**\
-`Explore what our breath reveals about us.`\
-https://nytimes.com/2025/10/09/learning/science-practice-a-study-on-breath-prints.html
-
-**10 Prompts for Talking and Writing About Halloween**\
-`These questions invite teenagers to share mischievous memories, engage in frightful debates, spin spooky stories and much more.`\
-https://nytimes.com/2025/10/09/learning/10-prompts-for-talking-and-writing-about-halloween.html
 
