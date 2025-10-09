@@ -1,3 +1,11 @@
+**Gazans Welcome Israel-Hamas Deal, but Key Questions Remain**\
+`There was widespread relief in the devastated territory after news emerged that the fighting may end, even though many details of the agreement have yet to be made clear.`\
+https://nytimes.com/2025/10/09/world/middleeast/israel-hamas-deal-gaza-palestinians.html
+
+**World Leaders Express Hope and Relief After Gaza Deal**\
+`Leaders welcomed the agreement between Israel and Hamas, projecting optimism that an end to the war could be near.`\
+https://nytimes.com/2025/10/09/world/middleeast/israel-hamas-deal-world-leaders-reaction.html
+
 **Iversen: Carlos Sainz is right about F1 broadcasts. And also wrong. Let me explain**\
 `The Spaniard is right that F1 didn't show his late-race overtakes. He's wrong about why they were ignored, though`\
 https://nytimes.com/athletic/6701408/2025/10/09/carlos-sainz-f1-broadcasts-celebrities-girlfriends/
