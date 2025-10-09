@@ -1,3 +1,7 @@
+**He’s Gay. He’s an Observant Jew. His Comedy Career Is Booming.**\
+`Mordechi Rosenfeld, known as Modi, already has the synagogue crowd. Now he wants the “Goyim, gays and theys,” too.`\
+https://nytimes.com/2025/10/09/style/gay-jewish-comedian-modi-rosenfeld.html
+
 **‘After the Hunt’ Review: Uncomfortable, for the Wrong Reasons**\
 `Luca Guadagnino’s campus drama falls on its face trying to court controversy.`\
 https://nytimes.com/2025/10/09/movies/after-the-hunt-review.html
