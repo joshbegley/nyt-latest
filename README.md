@@ -1,3 +1,7 @@
+**He’s Gay. He’s an Observant Jew. His Comedy Career Is Booming.**\
+`Mordechi Rosenfeld, known as Modi, already has the synagogue crowd. Now he wants the “Goyim, gays and theys,” too.`\
+https://nytimes.com/2025/10/09/style/gay-jewish-comedian-modi-rosenfeld.html
+
 **‘After the Hunt’ Review: Uncomfortable, for the Wrong Reasons**\
 `Luca Guadagnino’s campus drama falls on its face trying to court controversy.`\
 https://nytimes.com/2025/10/09/movies/after-the-hunt-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6697664/2025/10/09/fantasy-football-injuries-cheat-
 **Key fantasy football questions for Week 6: Can Rico Dowdle and Kendrick Bourne do it again?**\
 `Dalton Del Don looks at the biggest fantasy football topics for Week 6, including the potential for an encore performance from Rico Dowdle.`\
 https://nytimes.com/athletic/6701782/2025/10/09/fantasy-football-questions-week-6-dowdle-flacco-bourne/
-
-**Here is the latest.**\
-`By Anna Griffin, Mitch Smith, Nicholas Bogel-Burroughs and Eric Schmitt`\
-https://nytimes.com/live/2025/10/09/us/trump-national-guard-chicago-portland/here-is-the-latest
 
