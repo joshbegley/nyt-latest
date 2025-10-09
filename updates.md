@@ -1,3 +1,11 @@
+**What We Know About the Palisades Fire Arrest**\
+`Federal officials arrested a man they said started a small blaze in January that later rekindled and grew into the fire that devastated Pacific Palisades.`\
+https://nytimes.com/2025/10/08/us/palisades-fire-arrest-jonathan-rinderknecht.html
+
+**One Out**\
+`Freddie Cheng offers solvers a digital puzzle.`\
+https://nytimes.com/2025/10/08/crosswords/daily-puzzle-2025-10-09.html
+
 **Katie Porter Goes Viral for ‘Unhappy’ TV Interview in California Governor’s Race**\
 `The former Democratic congresswoman, known for her own grilling of executives on Capitol Hill, threatened to abandon an interview after she was asked several follow-up questions.`\
 https://nytimes.com/2025/10/08/us/katie-porter-goes-viral-for-unhappy-tv-interview-in-california-governors-race.html
