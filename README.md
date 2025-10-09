@@ -1,3 +1,7 @@
+**Gazans Welcome Israel-Hamas Deal, but Key Questions Remain**\
+`There was widespread relief in the devastated territory after news emerged that the fighting may end, even though many details of the agreement have yet to be made clear.`\
+https://nytimes.com/2025/10/09/world/middleeast/israel-hamas-deal-gaza-palestinians.html
+
 **World Leaders Express Hope and Relief After Gaza Deal**\
 `Leaders welcomed the agreement between Israel and Hamas, projecting optimism that an end to the war could be near.`\
 https://nytimes.com/2025/10/09/world/middleeast/israel-hamas-deal-world-leaders-reaction.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/09/nyregion/who-can-afford-three-kids-in-new-york-ci
 **Star Witness in Menendez Bribery Case to Be Sentenced**\
 `Jose Uribe pleaded guilty to bribing New Jersey’s former senator, Robert Menendez, and his wife, Nadine Menendez. He went on to testify at their trials.`\
 https://nytimes.com/2025/10/09/nyregion/jose-uribe-robert-menendez-bribery-sentencing.html
-
-**China Clamps Down Even Harder on Rare Earths**\
-`The move is Beijing’s latest attempt to tighten control over global production of the metals, which are essential to the manufacturing of chips.`\
-https://nytimes.com/2025/10/09/business/china-rare-earth-exports.html
 
