@@ -1,3 +1,19 @@
+**Can Newcastle's ironclad defence cope with Livramento and Hall injuries?**\
+`After keeping five clean sheets, Eddie Howe's side now have to cope with a run of games without their first-choice full backs`\
+https://nytimes.com/athletic/6693182/2025/10/09/newcastle-defence-livramento-hall-burn-howe-analysis/
+
+**Amorim's exiles: How six Manchester United outcasts are faring at their new clubs**\
+`Marcus Rashford and Rasmus Hojlund have started the season brightly at their new clubs — but what of the others?`\
+https://nytimes.com/athletic/6696533/2025/10/09/manchester-united-amorim-rashford-garnacho-hojlund/
+
+**Breaking down Bukayo Saka's 100 goal involvements in 200 Premier League games**\
+`Having celebrated his 24th birthday just a month ago, it is hard to imagine where the winger's ceiling is in relation to these two metrics`\
+https://nytimes.com/athletic/6696321/2025/10/09/bukayo-saka-premier-league-goal-involvements/
+
+**Why Alba's retirement shuts off one of Messi's most telepathic supply lines**\
+`Across more than 400 games together, the two players have combined to bypass opponents with predictable ease`\
+https://nytimes.com/athletic/6700582/2025/10/09/jordi-alba-lionel-messi-relationship-mls-barcelona/
+
 **Wrexham's Max Cleworth and George Dobson are keeping promotion flame alive**\
 `Wrexham spent an unprecedented £33million on new players this summer — but two promotion heroes have been mainstays in the side`\
 https://nytimes.com/athletic/6693399/2025/10/09/wrexham-cleworth-dobson-championship/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6702257/2025/10/09/kevin-durants-houston-rockets-de
 **Dodgers-Phillies Game 3 takeaways: Kyle Schwarber powers up as Phillies stay alive**\
 `The Phillies tacked on five much-needed runs in the eighth, and it feels like a series again. `\
 https://nytimes.com/athletic/6701707/2025/10/09/dodgers-phillies-game-3-score-results-takeaways-playoffs-mlb/
-
-**Juventus boss Braghin on growing the women's game and risks of multi-club ownership**\
-`James Horncastle hears from Stefano Braghin about how Juventus Women plan to build on the momentum of Italian success at Euro 2025`\
-https://nytimes.com/athletic/6665221/2025/10/09/juventus-women-cantore-braghin-horncastle-multi-club-ownership/
-
-**Jaylen Brown sets tone, Josh Minott and young wings impress in Celtics' preseason win**\
-`Brown and the Celtics showed off their new playing style while controlling a short-handed Grizzlies team from the start. Boston won 121-103.`\
-https://nytimes.com/athletic/6702149/2025/10/09/celtics-preseason-win-jaylen-brown-josh-minott/
-
-**Chinese Surgeons Perform First Pig-to-Human Liver Transplant**\
-`The transplanted portion of the genetically modified pig liver was removed after 38 days, and the patient, who had advanced liver cancer and cirrhosis, died several months later.`\
-https://nytimes.com/2025/10/09/health/chinese-surgeons-first-pig-human-liver-transplant.html
-
-**An Irish Factory Town Prospered With China. Now, Its ‘Jewel in the Crown’ Is Leaving.**\
-`China’s baby boom enriched a small Irish town where a Nestlé factory made formula for Chinese newborns. Then a baby bust unraveled it all. Or so it seemed.`\
-https://nytimes.com/2025/10/09/world/europe/ireland-china-nestle-baby-formula.html
 
