@@ -1,5 +1,9 @@
+**Tarik Skubal's Seattle story comes full circle in ALDS Game 5**\
+`The decision to attend college in Seattle changed Skubal’s life. Now he's back in the city for what could be the biggest game of his career.`\
+https://nytimes.com/athletic/6704696/2025/10/09/alds-game-5-tarik-skubal-seattle/
+
 **USMNT injuries complicate Pochettino's October camp and Ecuador friendly**\
-`The USMNT coach has some injury concerns to battle as he looks to ramp up the team's World Cup prep`\
+`The USMNT coach has some injury concerns to battle as he looks to ramp up the team's World Cup prep.`\
 https://nytimes.com/athletic/6704782/2025/10/09/usmnt-injuries-complicate-mauricio-pochettinos-october-camp-and-ecuador-friendly/
 
 **Nobel Prizes This Year Offer Three Cheers for Slow Science**\
@@ -29,8 +33,4 @@ https://nytimes.com/2025/10/09/briefing/gaza-deal-letitia-james-charges.html
 **Christian Pulisic arrives in form, but status in sudden doubt for USMNT vs. Ecuador**\
 `Pulisic was just named Serie A's player of the month for September, but he may not be available for the U.S. Friday night`\
 https://nytimes.com/athletic/6704677/2025/10/09/christian-pulisic-usmnt-ecuador-injury-doubt/
-
-**Judge Dismisses Drake’s Lawsuit Over Kendrick Lamar’s ‘Not Like Us’**\
-`The Canadian rapper sued for defamation and harassment, and accused the record company behind both artists of boosting his rival.`\
-https://nytimes.com/2025/10/09/arts/music/drake-kendrick-lamar-not-like-us-lawsuit-dismissed.html
 

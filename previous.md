@@ -1,3 +1,7 @@
+**USMNT injuries complicate Pochettino's October camp and Ecuador friendly**\
+`The USMNT coach has some injury concerns to battle as he looks to ramp up the team's World Cup prep`\
+https://nytimes.com/athletic/6704782/2025/10/09/usmnt-injuries-complicate-mauricio-pochettinos-october-camp-and-ecuador-friendly/
+
 **Nobel Prizes This Year Offer Three Cheers for Slow Science**\
 `The scientific Nobels announced this week — in Physiology or Medicine, Physics and Chemistry — honored achievements rooted in fundamental research from decades ago.`\
 https://nytimes.com/2025/10/09/science/nobel-prizes-science-basic-research.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6704677/2025/10/09/christian-pulisic-usmnt-ecuador-
 **Judge Dismisses Drake’s Lawsuit Over Kendrick Lamar’s ‘Not Like Us’**\
 `The Canadian rapper sued for defamation and harassment, and accused the record company behind both artists of boosting his rival.`\
 https://nytimes.com/2025/10/09/arts/music/drake-kendrick-lamar-not-like-us-lawsuit-dismissed.html
-
-**Inflation Report Will Be Released Despite Shutdown**\
-`The Bureau of Labor Statistics is calling back some employees to produce the Consumer Price Index for September. That data is needed to calculate the annual cost-of-living adjustment for Social Security beneficiaries.`\
-https://nytimes.com/2025/10/09/business/economy/inflation-report-release-shutdown.html
 
