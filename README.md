@@ -1,3 +1,7 @@
+**Stop Mixing Baking Soda And Vinegar**\
+`When you combine baking soda and vinegar, you’re essentially creating ... salt water. Is that really what you want to clean with?`\
+https://nytimes.com/video/smarter-living/100000010449288/stop-mixing-baking-soda-and-vinegar.html
+
 **Mamdani Maintains 13-Point Lead as Cuomo Gains Ground After Adams’s Exit**\
 `While former Gov. Andrew M. Cuomo benefited from Mayor Eric Adams’s departure, Zohran Mamdani still enjoyed a sizable lead in the Quinnipiac University poll.`\
 https://nytimes.com/2025/10/09/nyregion/mayor-poll-nyc-quinnipiac.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6700567/2025/10/09/eagles-nakobe-dean-debut-giants/
 **Parts of the Southwest May Get More Than a Month’s Rain This Weekend**\
 `Moisture from a former Pacific hurricane was expected to bring the risk of heavy rain and flash flooding across desert areas.`\
 https://nytimes.com/2025/10/09/weather/priscilla-arizona-california-nm-rain-forecast.html
-
-**Here’s the latest.**\
-`The case being pursued cameMr. Trump forced out the top federal prosecutor there, who had told superiors that there was insufficient evidence to justify criminal charges`\
-https://nytimes.com/live/2025/10/09/us/trump-news/letitia-james-indicted-trump
 
