@@ -1,3 +1,11 @@
+**Teenagers on How They Would Redesign School**\
+`Inspired by a school in the Bronx with a basketball-themed curriculum, we invited teenagers to imagine their own possibilities for what school could be like.`\
+https://nytimes.com/2025/10/09/learning/teenagers-on-how-they-would-redesign-school.html
+
+**Oscar S. Wyatt Jr., Wily Texas Oilman, Is Dead at 101**\
+`He made billions selling energy with his Coastal Corporation, courted presidents and dictators, and eventually went to prison for paying kickbacks to the Iraqi government.`\
+https://nytimes.com/2025/10/09/business/dealbook/oscar-s-wyatt-jr-dead.html
+
 **Sarah Jessica Parker Wears Wings to the New York City Ballet’s Fall Gala**\
 `The fund-raiser drew celebrities, rock stars and designers, though its red carpet and dinner was boycotted by the company’s dancers who are fighting for pay increases.`\
 https://nytimes.com/2025/10/09/style/sarah-jessica-parker-new-york-city-ballet-fall-gala.html

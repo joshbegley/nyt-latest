@@ -1,3 +1,7 @@
+**These Rugs Are William Morris on Acid**\
+`Plus: a new Hudson Valley hotel, statement-making jewelry and more recommendations from T Magazine.`\
+https://nytimes.com/2025/10/09/t-magazine/commune-psychedelic-rugs.html
+
 **Teenagers on How They Would Redesign School**\
 `Inspired by a school in the Bronx with a basketball-themed curriculum, we invited teenagers to imagine their own possibilities for what school could be like.`\
 https://nytimes.com/2025/10/09/learning/teenagers-on-how-they-would-redesign-school.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6699753/2025/10/09/nik-bonitto-broncos-jets-london-
 **Texas High Court Halts Execution in Shaken Baby Case**\
 `Lawyers for Robert Roberson questioned evidence about whether he shook his 2-year-old daughter to death. The state’s highest criminal court ordered a new look.`\
 https://nytimes.com/2025/10/09/us/texas-shaken-baby-execution.html
-
-**Astros part ways with Alex Cintrón, more coaching changes expected: Sources**\
-`Cintrón had been the team's hitting coach since 2019. More changes are expected within Astros manager Joe Espada’s 10-man coaching staff.`\
-https://nytimes.com/athletic/6703908/2025/10/09/astros-alex-cintron-coaching-departures/
 
