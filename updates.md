@@ -1,3 +1,15 @@
+**G.O.P. Blocks Bid to Halt Trump’s Attacks in the Caribbean Sea**\
+`Republicans in the Senate blocked a measure that would terminate the president’s legally disputed campaign targeting alleged drug runners.`\
+https://nytimes.com/2025/10/08/us/politics/trump-republicans-war-powers-caribbean-venezuela.html
+
+**Pope Leo Urges U.S. Bishops to Support Immigrants**\
+`The pope conveyed the message as President Trump escalated his deportation campaign, including in Chicago, the pope’s hometown.`\
+https://nytimes.com/2025/10/08/us/pope-leo-immigration-trump.html
+
+**What we know about the remaining hostages in Gaza.**\
+`By Pranav Baskar`\
+https://nytimes.com/live/2025/10/08/world/israel-hamas-gaza-ceasefire/what-we-know-about-the-remaining-hostages-in-gaza
+
 **Kash Patel Fires Two F.B.I. Agents Who Worked on Trump Investigation**\
 `The agents were identified in documents obtained by a Republican senator as having worked with Jack Smith, the special counsel who led the federal inquiries into Donald J. Trump.`\
 https://nytimes.com/2025/10/08/us/politics/kash-patel-fbi-agents.html
