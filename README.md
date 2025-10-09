@@ -1,3 +1,7 @@
+**Trump Baselessly Claims He ‘Took the Freedom of Speech Away’ From Flag Burners**\
+`The president said he had made flag burning a crime punishable by a year in prison. But such a claim contradicts both Supreme Court precedent and the text of an executive order he signed.`\
+https://nytimes.com/2025/10/09/us/politics/trump-freedom-of-speech-flag-burning.html
+
 **I Love New York, Except for the Yankees**\
 `I’m a dyed-in-the-wool New Yorker. But I can’t help rooting against the Yankees.`\
 https://nytimes.com/2025/10/09/opinion/i-love-new-york-except-for-the-yankees.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/dining/100000010369201/lemon-sweet-rolls-with-cream-ch
 **In ‘Mary Page Marlowe,’ Susan Sarandon Is One Part of a Woman in Pieces**\
 `The screen star is making her London stage debut in Tracy Letts’ portrait of embattled womanhood.`\
 https://nytimes.com/2025/10/09/theater/mary-page-marlowe-old-vic-susan-sarandon.html
-
-**For Homes by the Water, Closing Just Got More Complicated**\
-`When the government shut down, so did the federal flood insurance program, forcing some buyers into the costly private market.`\
-https://nytimes.com/2025/10/09/realestate/flood-insurance-government-shutdown.html
 
