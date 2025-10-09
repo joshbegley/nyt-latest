@@ -1,3 +1,15 @@
+**25 must-watch people in the NHL in 2025-26: McDavid pushing boundaries, Crosby's future and more**\
+`From Connor McDavid's pursuit of a Stanley Cup to Sidney Crosby's decision on his future, here's who we're watching closest in 2025-26.`\
+https://nytimes.com/athletic/6701132/2025/10/09/nhl-most-compelling-storylines-mcdavid-crosby/
+
+**Astros fire head athletic trainer after injury-plagued season: Sources**\
+`According to Baseball Prospectus and FanGraphs, no team lost more potential value to injuries this season than the Astros`\
+https://nytimes.com/athletic/6704059/2025/10/09/astros-fire-head-athletic-trainer-injuries/
+
+**Bats Catch Migratory Birds and Eat Them in Midair**\
+`For the first time, scientists documented direct evidence of a bat preying on a bird at high altitude.`\
+https://nytimes.com/2025/10/09/science/bats-birds-prey.html
+
 **Is America Making God Angry?**\
 `Do Americans need to repent for their sins? In this episode of “Interesting Times,” the evangelical pastor Doug Wilson tells Ross Douthat why he believes Christian nationalism is the solution to societal decay and Americans need to “stop making God angry.”`\
 https://nytimes.com/video/opinion/100000010386068/is-america-making-god-angry.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6703789/2025/10/09/sports-gossip-show-buffalo-bills
 **What We Know About the Israel-Hamas Hostage Deal**\
 `President Trump said the remaining hostages held in Gaza would be released Monday or Tuesday. But the specifics of the deal remain unclear.`\
 https://nytimes.com/2025/10/09/world/middleeast/hamas-israel-hostage-deal.html
-
-**These Rugs Are William Morris on Acid**\
-`Plus: a new Hudson Valley hotel, statement-making jewelry and more recommendations from T Magazine.`\
-https://nytimes.com/2025/10/09/t-magazine/commune-psychedelic-rugs.html
-
-**Teenagers on How They Would Redesign School**\
-`Inspired by a school in the Bronx with a basketball-themed curriculum, we invited teenagers to imagine their own possibilities for what school could be like.`\
-https://nytimes.com/2025/10/09/learning/teenagers-on-how-they-would-redesign-school.html
-
-**Oscar S. Wyatt Jr., Wily Texas Oilman, Is Dead at 101**\
-`He made billions selling energy with his Coastal Corporation, courted presidents and dictators, and eventually went to prison for paying kickbacks to the Iraqi government.`\
-https://nytimes.com/2025/10/09/business/dealbook/oscar-s-wyatt-jr-dead.html
 
