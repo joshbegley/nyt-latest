@@ -1,3 +1,27 @@
+**Trump Administration Live Updates: Harvard Seeks Assurances From White House as Talks Restart**\
+``\
+https://nytimes.com/live/2025/10/09/us/trump-news
+
+**Reflection AI, an A.I. Model Start-Up, Raises $2 Billion**\
+`The big fund-raising round was the latest sign of investor fervor for artificial intelligence companies despite concerns that the boom is overheated.`\
+https://nytimes.com/2025/10/09/business/dealbook/reflection-ai-2-billion-funding.html
+
+**Broncos know peril of overlooking winless Jets: 'We're trying to climb higher'**\
+`Denver is shifting from a win over the defending Super Bowl champs to facing NFL's only winless team. "It's about the ability to refocus."`\
+https://nytimes.com/athletic/6700363/2025/10/09/broncos-jets-london-tottenham-hotspur/
+
+**How to watch the Golden State Warriors throughout the 2025-26 season**\
+`The NBA has new broadcast partners this season, and the Warriors have 34 games on national TV. Here's how to tune in.`\
+https://nytimes.com/athletic/6694669/2025/10/09/golden-state-warriors-nba-tv-how-to-watch-2025-26/
+
+**Kenny Albert, Eddie Olczyk to lead NBC's U.S. hockey coverage at 2026 Winter Olympics**\
+`Kenny Albert, Eddie Olczyk and A.J. Mleczko headline NBC's TV crew for Team USA men's and women's games at the 2026 Winter Olympics.`\
+https://nytimes.com/athletic/6700154/2025/10/09/winter-olympics-2026-hockey-nhl-nbc-sports/
+
+**‘Cats’ Is Returning to Broadway, This Time With Heels Instead of Paws**\
+`The reimagined “Jellicle Ball” version of the musical is set in the ballroom scene — the queer subculture built around dance competitions.`\
+https://nytimes.com/2025/10/09/theater/cats-returns-broadway.html
+
 **For Cardinals' Marvin Harrison Jr., an emotional trip to the city where his dad starred**\
 `Arizona's game in Indianapolis offers an irresistible storyline: father and son, past and present.`\
 https://nytimes.com/athletic/6702281/2025/10/09/cardinals-marvin-harrison-jr-indianapolis-colts-father/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6701843/2025/10/09/eagles-giants-saquon-barkley-doc
 **A Gaza Deal**\
 `The world is waking up to an agreement between Israel and Hamas. We explain what we know about the breakthrough.`\
 https://nytimes.com/2025/10/09/briefing/a-gaza-deal.html
-
-**Julian Sayin, college football's most accurate QB? Ohio State's plan is on track**\
-`Ryan Day has earned his QB guru reputation, and Sayin's rapid development is going exactly how Ohio State hoped.`\
-https://nytimes.com/athletic/6702008/2025/10/09/julian-sayin-ohio-state-football-ryan-day/
-
-**Rosenthal: The Yankees need to make some changes, but Cashman and Boone shouldn't be among them**\
-`For the Yankees, getting eliminated by the Blue Jays was dispiriting, but not a disgrace. `\
-https://nytimes.com/athletic/6702908/2025/10/09/new-york-yankees-boone-cashman/
-
-**Laszlo Krasznahorkai Is Awarded Nobel Prize in Literature**\
-`​The prize committee said the Hungarian writer’s work “reaffirms the power of art.”`\
-https://nytimes.com/2025/10/09/books/laszlo-krasznahorkai-nobel-prize-in-literature.html
-
-**Time for Browns to end the distractions, move on from Shedeur Sanders**\
-`There are only two reasons why Sanders is still on the team. Either the owner is requiring it or there's a fear he'll develop elsewhere.`\
-https://nytimes.com/athletic/6701938/2025/10/09/shedeur-sanders-browns-quarterback-bailey-zappe/
-
-**Isack Hadjar's F1 helmet is a tribute to physics, fatherhood and a decade of racing**\
-`His physicist father was his first mechanic. Hadjar's helmet design honors both roles `\
-https://nytimes.com/athletic/6702136/2025/10/09/isack-hadjar-f1-helmet-design/
-
-**Astros payroll breakdown: What to expect as Houston enters a fascinating offseason**\
-`The Astros exceeded the luxury tax threshold each of the last two seasons. How does their payroll stack up at the start of this offseason?`\
-https://nytimes.com/athletic/6701261/2025/10/09/houston-astros-payroll-breakdown-2026/
 
