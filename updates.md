@@ -1,3 +1,15 @@
+**Christian Pulisic arrives in form, but status in sudden doubt for USMNT vs. Ecuador**\
+`Pulisic was just named Serie A's player of the month for September, but he may not be available for the U.S. Friday night`\
+https://nytimes.com/athletic/6704677/2025/10/09/christian-pulisic-usmnt-ecuador-injury-doubt/
+
+**Judge Dismisses Drake’s Lawsuit Over Kendrick Lamar’s ‘Not Like Us’**\
+`The Canadian rapper sued for defamation and harassment, and accused the record company behind both artists of boosting his rival.`\
+https://nytimes.com/2025/10/09/arts/music/drake-kendrick-lamar-not-like-us-lawsuit-dismissed.html
+
+**Inflation Report Will Be Released Despite Shutdown**\
+`The Bureau of Labor Statistics is calling back some employees to produce the Consumer Price Index for September. That data is needed to calculate the annual cost-of-living adjustment for Social Security beneficiaries.`\
+https://nytimes.com/2025/10/09/business/economy/inflation-report-release-shutdown.html
+
 **Review: Is Dylan Mulvaney ‘The Least Problematic Woman in the World’?**\
 `In her bold, funny solo show, the social media influencer details a life of identity-searching, controversy and a determination to be absolutely herself.`\
 https://nytimes.com/2025/10/09/theater/least-problematic-woman-review-dylan-mulvaney.html
