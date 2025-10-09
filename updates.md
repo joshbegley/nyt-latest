@@ -1,3 +1,11 @@
+**Celebrations After Israel and Hamas Near Cease-Fire Deal**\
+`Palestinians and Israelis celebrated the news that Hamas and Israel had agreed on the first phase of an agreement proposed by President Trump.`\
+https://nytimes.com/video/world/middleeast/100000010448781/celebrations-israel-hamas-cease-fire.html
+
+**Freeing Hostages Could Transform Netanyahu’s Political Fortunes**\
+`The Israeli prime minister appeared backed into a corner in Gaza diplomacy. But this deal could greatly increase his room for maneuver, analysts said.`\
+https://nytimes.com/2025/10/09/world/middleeast/hostages-netanyahu-israel-politics.html
+
 **The Windup: No shame in losing to these Blue Jays**\
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/6703581/2025/10/09/mlb-playoffs-blue-jays-yankees-the-windup/

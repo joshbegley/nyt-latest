@@ -1,3 +1,11 @@
+**Celebrations After Israel and Hamas Near Cease-Fire Deal**\
+`Palestinians and Israelis celebrated the news that Hamas and Israel had agreed on the first phase of an agreement proposed by President Trump.`\
+https://nytimes.com/video/world/middleeast/100000010448781/celebrations-israel-hamas-cease-fire.html
+
+**Freeing Hostages Could Transform Netanyahu’s Political Fortunes**\
+`The Israeli prime minister appeared backed into a corner in Gaza diplomacy. But this deal could greatly increase his room for maneuver, analysts said.`\
+https://nytimes.com/2025/10/09/world/middleeast/hostages-netanyahu-israel-politics.html
+
 **The Windup: No shame in losing to these Blue Jays**\
 `The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
 https://nytimes.com/athletic/6703581/2025/10/09/mlb-playoffs-blue-jays-yankees-the-windup/
@@ -21,12 +29,4 @@ https://nytimes.com/athletic/6703480/2025/10/09/clippers-aces-hawks-aja-wilson-t
 **Man Utd exploring whether to sell seat licences at new stadium**\
 `In March, the club announced plans to build a new 100,000-seater stadium next to the site of the existing Old Trafford.`\
 https://nytimes.com/athletic/6703138/2025/10/09/manchester-united-new-stadium-survey/
-
-**How to buy World Cup 2026 tickets: Prices, dates and everything to know**\
-`The 2026 World Cup ticketing process can get a little complex, but we're here to walk you through your route to seeing matches next summer`\
-https://nytimes.com/athletic/6593924/2025/10/09/world-cup-2026-tickets-how-to-buy/
-
-**Infantino warns league games abroad risk 'free-for-all' after La Liga, Serie A plans**\
-`Earlier this week, European football’s governing body UEFA “reluctantly” gave its approval for league games to be moved abroad.`\
-https://nytimes.com/athletic/6703443/2025/10/09/infantino-league-games-abroad/
 
