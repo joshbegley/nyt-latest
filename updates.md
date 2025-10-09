@@ -1,3 +1,15 @@
+**Here’s the latest.**\
+`By David E. Sanger, Ephrat Livni, Aaron Boxerman, Adam Rasgon and John Yoon`\
+https://nytimes.com/live/2025/10/09/world/israel-hamas-gaza-ceasefire/heres-the-latest
+
+**Live Updates: Israel and Hamas Agree to Hostage and Prisoner Exchange**\
+`Several details remained unclear, but officials indicated that the deal would involve a pullback of Israeli troops, the entry of humanitarian aid into Gaza and the release of Israeli hostages as early as Sunday.`\
+https://nytimes.com/live/2025/10/09/world/israel-hamas-gaza-ceasefire
+
+**Why does Alisson get so many hamstring injuries?**\
+`Injuries have been an unfortunate feature of the Brazilian's career at Anfield`\
+https://nytimes.com/athletic/6699705/2025/10/09/alisson-liverpool-hamstring-injury/
+
 **Can Newcastle's ironclad defence cope with Livramento and Hall injuries?**\
 `After keeping five clean sheets, Eddie Howe's side now have to cope with a run of games without their first-choice full backs`\
 https://nytimes.com/athletic/6693182/2025/10/09/newcastle-defence-livramento-hall-burn-howe-analysis/

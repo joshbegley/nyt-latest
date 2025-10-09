@@ -34,7 +34,3 @@ https://nytimes.com/athletic/6693399/2025/10/09/wrexham-cleworth-dobson-champion
 `Populist politicians have identified England's national game as an effective way of boosting support in febrile times`\
 https://nytimes.com/athletic/6683743/2025/10/09/football-politics-starmer-farage/
 
-**Commotion, cameras and commentator tip-offs – when celebrities visit Premier League grounds**\
-`After Madonna's visit to Stamford Bridge on Saturday, we look at clubs' most famous supporters and go in search of the real die-hards`\
-https://nytimes.com/athletic/6697586/2025/10/09/celebrity-fans-premier-league-television/
-
