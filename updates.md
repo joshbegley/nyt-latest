@@ -1,3 +1,11 @@
+**Nobel Prizes This Year Offer Three Cheers for Slow Science**\
+`The scientific Nobels announced this week — in Physiology or Medicine, Physics and Chemistry — honored achievements rooted in fundamental research from decades ago.`\
+https://nytimes.com/2025/10/09/science/nobel-prizes-science-basic-research.html
+
+**Jim McNeely, Innovative Composer for Jazz Big Bands, Dies at 76**\
+`A Grammy-winning pianist, he was renowned for works that created “new ideas about line, harmony, rhythm, sound and musical architecture,” one admirer wrote.`\
+https://nytimes.com/2025/10/09/arts/music/jim-mcneely-dead.html
+
 **Jim McNeely, Innovative Composer for Jazz Big Bands, Dies at 76**\
 `He was a Grammy-winning pianist renowned for works that created “new ideas about line, harmony, rhythm, sound and musical architecture,” one admirer wrote.`\
 https://nytimes.com/2025/10/09/arts/music/jim-mcneely-dead.html
