@@ -1,3 +1,15 @@
+**Is ‘Going Viral’ Dead?**\
+`Spontaneous original content, shared by people all over the world, made the internet a fun place to be. It’s more complicated now.`\
+https://nytimes.com/2025/10/09/style/end-of-viral-internet-tiktok-instagram.html
+
+**LeBron James to miss Lakers' season opener due to sciatica**\
+`The Lakers open the regular season Oct. 21 at home against the Golden State Warriors.`\
+https://nytimes.com/athletic/6704630/2025/10/09/lebron-james-injury-report-update-lakers/
+
+**Ruth Weiss, Who Chronicled Apartheid After Fleeing the Nazis, Dies at 101**\
+`Her life and work were shaped by confronting injustice in South Africa and Germany. “Blacks under apartheid — Jews under the swastika. Was it all that different?” she asked.`\
+https://nytimes.com/2025/10/09/books/ruth-weiss-dead.html
+
 **Customers May Openly Carry Firearms in Florida’s Publix Stores, Company Says**\
 `The supermarket chain said it was complying with state law, including a ruling last month that overturned a ban on openly carrying firearms.`\
 https://nytimes.com/2025/10/09/us/publix-stores-open-carry-florida.html
@@ -19,18 +31,6 @@ https://nytimes.com/2025/10/09/weather/priscilla-arizona-california-nm-rain-fore
 https://nytimes.com/live/2025/10/09/us/trump-news/letitia-james-indicted-trump
 
 **As Gaza Deal Nears, Palestinians and Israelis Cheer — and Worry**\
-`With the agreement still unsigned, people in Gaza and Israel celebrated a possible end to two years of war, but hoped they were not doing so prematurely.`\
+`With the agreement still not finalized, people in Gaza and Israel celebrated a possible end to two years of war, but hoped they were not doing so prematurely.`\
 https://nytimes.com/2025/10/09/world/middleeast/israel-hamas-gaza-deal-reactions.html
-
-**A University Rooted in Public Purpose**\
-`The University of Michigan has advanced the public good for over 200 years.`\
-https://nytimes.com/paidpost/university-of-michigan/university-of-michigan/a-university-rooted-in-public-purpose.html
-
-**Big Investors Await Windfall From Trump’s Argentina Bailout**\
-`The United States finalized a $20 billion lifeline for Argentina that will benefit Treasury Secretary Scott Bessent’s allies.`\
-https://nytimes.com/2025/10/09/us/politics/argentina-bailout-investors.html
-
-**The Briefing — England 3 Wales 0: How did Watkins do? Is Anderson a definite starter? Pickford surpasses Banks record**\
-`Thomas Tuchel's side eased to victory at Wembley — here, our writers break down the action`\
-https://nytimes.com/athletic/6703553/2025/10/09/england-watkins-anderson-tuchel/
 
