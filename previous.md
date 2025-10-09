@@ -1,3 +1,7 @@
+**A Closer Look at the Counts in the Letitia James Indictment**\
+`New York’s attorney general is accused of falsely listing a rental property in Virginia as her secondary residence to get favorable loan terms. She has called the charges “baseless.”`\
+https://nytimes.com/2025/10/09/us/politics/a-closer-look-at-the-counts-in-the-letitia-james-indictment.html
+
 **‘The Woman in Cabin 10’ Review: When Things Go Splash in the Night**\
 `Keira Knightley and Guy Pearce encounter bumpy waters on a yacht in this adaptation of a Ruth Ware thriller.`\
 https://nytimes.com/2025/10/09/movies/the-woman-in-cabin-10-review.html
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6704634/2025/10/09/nfl-pro-bowl-changes-super-bowl-
 **USA U-20s rout Italy to book World Cup quarterfinal place**\
 `Benjamin Cremaschi seized the tournament's scoring lead with his double, powering the U.S. to a place in the final eight in Chile`\
 https://nytimes.com/athletic/6704741/2025/10/09/usa-u20-world-cup-italy-cremaschi-video-quarterfinals/
-
-**The Gaza Cease-Fire Is Beginning to Take Shape**\
-`Also, New York’s attorney general was indicted. Here’s the latest at the end of Thursday.`\
-https://nytimes.com/2025/10/09/briefing/gaza-deal-letitia-james-charges.html
 

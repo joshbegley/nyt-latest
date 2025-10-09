@@ -1,3 +1,7 @@
+**A Closer Look at the Counts in the Letitia James Indictment**\
+`New York’s attorney general is accused of falsely listing a rental property in Virginia as her secondary residence to get favorable loan terms. She has called the charges “baseless.”`\
+https://nytimes.com/2025/10/09/us/politics/a-closer-look-at-the-counts-in-the-letitia-james-indictment.html
+
 **‘The Woman in Cabin 10’ Review: When Things Go Splash in the Night**\
 `Keira Knightley and Guy Pearce encounter bumpy waters on a yacht in this adaptation of a Ruth Ware thriller.`\
 https://nytimes.com/2025/10/09/movies/the-woman-in-cabin-10-review.html
