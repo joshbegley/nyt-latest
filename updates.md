@@ -1,3 +1,11 @@
+**Word of the Day: tapestry**\
+`This word has appeared in 136 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/10/09/learning/word-of-the-day-tapestry.html
+
+**UWCL Briefing: Man Utd's debut delight, sloppy Chelsea and are Barca back?**\
+`Dissecting the big talking points from the opening round of league phase matches`\
+https://nytimes.com/athletic/6701609/2025/10/09/womens-champions-league-manchester-united-chelsea-barcelona/
+
 **Israel and Hamas Reach a Deal**\
 `Celebrations broke out after Israel and Hamas agreed to the first phase of a peace plan on Wednesday. The agreement covers an exchange of hostages and prisoners.`\
 https://nytimes.com/video/world/middleeast/100000010448555/israel-hamas-peace-plan.html
