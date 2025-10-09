@@ -1,3 +1,11 @@
+**The New York Times in Print for Thursday, Oct. 9, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/09/todays-new-york-times
+
+**I’m the Foreign Minister of Poland. This Is How to Negotiate With Putin.**\
+`The leadership of Russia must understand that its attempt to rebuild Europe’s last empire is doomed to fail.`\
+https://nytimes.com/2025/10/09/opinion/putin-poland-radoslaw-sikorski.html
+
 **Here’s the latest.**\
 `By David E. Sanger, Ephrat Livni, Aaron Boxerman, Adam Rasgon and John Yoon`\
 https://nytimes.com/live/2025/10/09/world/israel-hamas-gaza-ceasefire/heres-the-latest
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6696321/2025/10/09/bukayo-saka-premier-league-goal-
 **Why Alba's retirement shuts off one of Messi's most telepathic supply lines**\
 `Across more than 400 games together, the two players have combined to bypass opponents with predictable ease`\
 https://nytimes.com/athletic/6700582/2025/10/09/jordi-alba-lionel-messi-relationship-mls-barcelona/
-
-**Wrexham's Max Cleworth and George Dobson are keeping promotion flame alive**\
-`Wrexham spent an unprecedented £33million on new players this summer — but two promotion heroes have been mainstays in the side`\
-https://nytimes.com/athletic/6693399/2025/10/09/wrexham-cleworth-dobson-championship/
-
-**English football, right-wing politics, and a new front in the culture wars**\
-`Populist politicians have identified England's national game as an effective way of boosting support in febrile times`\
-https://nytimes.com/athletic/6683743/2025/10/09/football-politics-starmer-farage/
 
