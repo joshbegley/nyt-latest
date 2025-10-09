@@ -1,3 +1,15 @@
+**‘The Woman in Cabin 10’ Review: When Things Go Splash in the Night**\
+`Keira Knightley and Guy Pearce encounter bumpy waters on a yacht in this adaptation of a Ruth Ware thriller.`\
+https://nytimes.com/2025/10/09/movies/the-woman-in-cabin-10-review.html
+
+**Tarik Skubal's Seattle story comes full circle in ALDS Game 5**\
+`The decision to attend college in Seattle changed Skubal’s life. Now he's back in the city for what could be the biggest game of his career.`\
+https://nytimes.com/athletic/6704696/2025/10/09/alds-game-5-tarik-skubal-seattle/
+
+**USMNT injuries complicate Pochettino's October camp and Ecuador friendly**\
+`The USMNT coach has some injury concerns to battle as he looks to ramp up the team's World Cup prep.`\
+https://nytimes.com/athletic/6704782/2025/10/09/usmnt-injuries-complicate-mauricio-pochettinos-october-camp-and-ecuador-friendly/
+
 **USMNT injuries complicate Pochettino's October camp and Ecuador friendly**\
 `The USMNT coach has some injury concerns to battle as he looks to ramp up the team's World Cup prep`\
 https://nytimes.com/athletic/6704782/2025/10/09/usmnt-injuries-complicate-mauricio-pochettinos-october-camp-and-ecuador-friendly/
