@@ -1,3 +1,7 @@
+**Hamas Takes a Big Risk in Deal to Release Hostages**\
+`The Palestinian militant group is giving up much of the leverage it has with Israel, with no guarantee some of its main demands will be met.`\
+https://nytimes.com/2025/10/09/world/middleeast/hamas-israel-deal-hostage-release.html
+
 **Fury over Israel’s Qatar attack led Trump to put pressure on Netanyahu.**\
 `By Mark Mazzetti, Adam Rasgon, Katie Rogers and Luke Broadwater`\
 https://nytimes.com/live/2025/10/09/world/israel-hamas-gaza-ceasefire/fury-over-israels-qatar-attack-led-trump-to-put-pressure-on-netanyahu
