@@ -1,3 +1,11 @@
+**Man Utd exploring whether to sell seat licences at new stadium**\
+`In March, the club announced plans to build a new 100,000-seater stadium next to the site of the existing Old Trafford.`\
+https://nytimes.com/athletic/6703138/2025/10/09/manchester-united-new-stadium-survey/
+
+**Infantino warns league games abroad risk 'free-for-all' after La Liga, Serie A plans**\
+`Earlier this week, European football’s governing body UEFA “reluctantly” gave its approval for league games to be moved abroad.`\
+https://nytimes.com/athletic/6703443/2025/10/09/infantino-league-games-abroad/
+
 **We Have a Cease-Fire. Now the Middle East Needs Leadership.**\
 `Promises of peace between Jews and Palestinians must be turned into reality.`\
 https://nytimes.com/2025/10/09/opinion/palestinians-israel-gaza-war-ceasefire-peace.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6702902/2025/10/09/italy-eye-patches-training/
 **Hamas Takes a Big Risk in Deal to Release Hostages**\
 `The Palestinian militant group is giving up much of the leverage it has with Israel, with no guarantee some of its main demands will be met.`\
 https://nytimes.com/2025/10/09/world/middleeast/hamas-israel-deal-hostage-release.html
-
-**Fury over Israel’s Qatar attack led Trump to put pressure on Netanyahu.**\
-`By Mark Mazzetti, Adam Rasgon, Katie Rogers and Luke Broadwater`\
-https://nytimes.com/live/2025/10/09/world/israel-hamas-gaza-ceasefire/fury-over-israels-qatar-attack-led-trump-to-put-pressure-on-netanyahu
-
-**Infantino says football should be open-minded over World Cup calendar**\
-`Infantino said a global game cannot only play World Cups during the northern-hemisphere summer.`\
-https://nytimes.com/athletic/6703124/2025/10/09/gianni-infantino-world-cup-calendar/
 

@@ -1,3 +1,7 @@
+**We Have a Cease-Fire. Now the Middle East Needs Leadership.**\
+`Promises of peace between Jews and Palestinians must be turned into reality.`\
+https://nytimes.com/2025/10/09/opinion/palestinians-israel-gaza-war-ceasefire-peace.html
+
 **Number of Children Fleeing Violence in Haiti Soars**\
 `Haitian children face intensifying problems of crime, hunger and homelessness as the country’s humanitarian crisis shows no signs of easing, a report from a U.N. agency found.`\
 https://nytimes.com/2025/10/09/us/haiti-violence-children-crime.html
