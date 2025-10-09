@@ -1,3 +1,7 @@
+**Javier Báez, Riley Greene right their paths and revive the sleeping Tigers**\
+`Despite their individual struggles, the duo was everything the Tigers could have asked for in a win or stay home game. `\
+https://nytimes.com/athletic/6701784/2025/10/08/javier-baez-riley-greene-detroit-tigers-alds/
+
 **What does Trump’s 20-point Gaza peace plan envision?**\
 `By Ephrat Livni`\
 https://nytimes.com/live/2025/10/08/world/israel-hamas-gaza-ceasefire/what-does-trumps-20-point-gaza-peace-plan-envision
