@@ -1,3 +1,15 @@
+**NHL rumblings: Wild-Kaprizov regrets? And what the Connor, Eichel deals mean for Kempe, Tuch, Necas**\
+`Wild GM Bill Guerin stands by the Kirill Kaprizov signing, even after seeing other pending UFAs take relative discounts.`\
+https://nytimes.com/athletic/6703429/2025/10/09/nhl-kaprizov-connor-eichel-kempe-tuch-necas-free-agency/
+
+**Brussels**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/things-to-do-brussels
+
+**‘A House of Dynamite’ Review: Kathryn Bigelow’s Alarming Command and Control**\
+`The director’s latest nail-biter, starring Idris Elba, Rebecca Ferguson and Anthony Ramos, tracks a ballistic missile heading for the United States.`\
+https://nytimes.com/2025/10/09/movies/house-of-dynamite-review-kathryn-bigelow.html
+
 **Gunman Barricaded in Miami House Injures 2 Police Officers**\
 `The officers were in stable condition, the Miami police chief said. One man remained inside the house, and another was taken into custody.`\
 https://nytimes.com/2025/10/09/us/miami-police-officers-shot.html
@@ -21,16 +33,4 @@ https://nytimes.com/2025/10/09/dining/a-simple-salmon-with-lots-of-olives.html
 **Celebrations After Israel and Hamas Near Cease-Fire Deal**\
 `Palestinians and Israelis celebrated the news that Hamas and Israel had agreed on the first phase of an agreement proposed by President Trump.`\
 https://nytimes.com/video/world/middleeast/100000010448781/celebrations-israel-hamas-cease-fire.html
-
-**Freeing Hostages Could Transform Netanyahu’s Political Fortunes**\
-`The Israeli prime minister appeared backed into a corner in Gaza diplomacy. But this deal could greatly increase his room for maneuver, analysts said.`\
-https://nytimes.com/2025/10/09/world/middleeast/hostages-netanyahu-israel-politics.html
-
-**The Windup: No shame in losing to these Blue Jays**\
-`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
-https://nytimes.com/athletic/6703581/2025/10/09/mlb-playoffs-blue-jays-yankees-the-windup/
-
-**Annapolis**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/things-to-do-annapolis
 

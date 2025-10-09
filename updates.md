@@ -1,3 +1,15 @@
+**NHL rumblings: Wild-Kaprizov regrets? And what the Connor, Eichel deals mean for Kempe, Tuch, Necas**\
+`Wild GM Bill Guerin stands by the Kirill Kaprizov signing, even after seeing other pending UFAs take relative discounts.`\
+https://nytimes.com/athletic/6703429/2025/10/09/nhl-kaprizov-connor-eichel-kempe-tuch-necas-free-agency/
+
+**Brussels**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/things-to-do-brussels
+
+**‘A House of Dynamite’ Review: Kathryn Bigelow’s Alarming Command and Control**\
+`The director’s latest nail-biter, starring Idris Elba, Rebecca Ferguson and Anthony Ramos, tracks a ballistic missile heading for the United States.`\
+https://nytimes.com/2025/10/09/movies/house-of-dynamite-review-kathryn-bigelow.html
+
 **Gunman Barricaded in Miami House Injures 2 Police Officers**\
 `The officers were in stable condition, the Miami police chief said. One man remained inside the house, and another was taken into custody.`\
 https://nytimes.com/2025/10/09/us/miami-police-officers-shot.html
