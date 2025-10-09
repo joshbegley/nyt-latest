@@ -1,40 +1,40 @@
-**Spurs owners pledge 'more money to deliver success' after £100m injection**\
-`The Lewis family have insisted they want to prioritise sporting success after removing Daniel Levy as executive chairman after 24 years.`\
-https://nytimes.com/athletic/6702867/2025/10/09/tottenham-owners-funding-investment/
+**Rosenthal: The Yankees need to make some changes, but Cashman and Boone shouldn't be among them**\
+`For the Yankees, getting eliminated by the Blue Jays was dispiriting, but not a disgrace. `\
+https://nytimes.com/athletic/6702908/2025/10/09/new-york-yankees-boone-cashman/
 
-**The Dodgers let Kyle Schwarber come to life, and suddenly have themselves a series**\
-`“We definitely had a chance and we didn’t capitalize on it," Max Muncy said. "That was kind of the story of the night.”`\
-https://nytimes.com/athletic/6702465/2025/10/09/dodgers-phillies-nlds-clayton-kershaw/
+**Laszlo Krasznahorkai Is Awarded Nobel Prize in Literature**\
+`The award comes with prize money of almost $1.2 million.`\
+https://nytimes.com/2025/10/09/books/laszlo-krasznahorkai-nobel-prize-in-literature.html
 
-**Boca Juniors head coach Russo dies at 69**\
-`Tributes have poured in from across Argentinean football, with Boca's rivals River Plate stating their "profound sadness" at Russo's passing`\
-https://nytimes.com/athletic/6702869/2025/10/09/boca-juniors-manager-death-russo/
+**Time for Browns to end the distractions, move on from Shedeur Sanders**\
+`There are only two reasons why Sanders is still on the team. Either the owner is requiring it or there's a fear he'll develop elsewhere.`\
+https://nytimes.com/athletic/6701938/2025/10/09/shedeur-sanders-browns-quarterback-bailey-zappe/
 
-**TAFC: Three years for Amorim at Manchester United? Plus: Is scouting too data focused?**\
-`Today in TAFC: Ratcliffe gives Amorim his backing for three years, a scout's view on modern player discovery, a UK right-wing culture war.`\
-https://nytimes.com/athletic/6702600/2025/10/09/three-years-amorim-manchester-united/
+**Isack Hadjar's F1 helmet is a tribute to physics, fatherhood and a decade of racing**\
+`His physicist father was his first mechanic. Hadjar's helmet design honors both roles `\
+https://nytimes.com/athletic/6702136/2025/10/09/isack-hadjar-f1-helmet-design/
 
-**Yankees' 'best team' of the Boone era fell short. Here's what must change for 2026**\
-`Boone's belief in this team was not misguided. But the Yankees have work to do if they want to make a stronger push for No. 28 next year. `\
-https://nytimes.com/athletic/6702420/2025/10/09/yankees-improve-2026-season/
+**Astros payroll breakdown: What to expect as Houston enters a fascinating offseason**\
+`The Astros exceeded the luxury tax threshold each of the last two seasons. How does their payroll stack up at the start of this offseason?`\
+https://nytimes.com/athletic/6701261/2025/10/09/houston-astros-payroll-breakdown-2026/
 
-**Palmer set to be sidelined until November with groin injury**\
-`The 23-year-old is expected to miss Chelsea's games against Nottingham Forest, Ajax, Sunderland and Wolverhampton Wanderers.`\
-https://nytimes.com/athletic/6702653/2025/10/09/cole-palmer-chelsea-injury-setback/
+**College Football Week 7 oddly specific predictions: Oregon survives a scare from Indiana**\
+`Texas shows signs of life and knocks off Oklahoma, and Billy Napier and the Gators keep rolling with an upset at Texas A&M.`\
+https://nytimes.com/athletic/6700566/2025/10/09/college-football-predictions-week-7/
 
-**How the Phillies developed Suárez and Nola pitching plan to win NLDS Game 3**\
-`Aaron Nola cranked up the velocity and Ranger Suárez mixed his pitches to capture a must-win game for the Phillies. `\
-https://nytimes.com/athletic/6702542/2025/10/09/phillies-mlb-ranger-suarez-aaron-nola/
+**Sabres final thoughts: Analytics love for Buffalo, goalie conundrum, Alex Tuch's market**\
+`To say the Sabres' goalie situation is unsettled would be an understatement as Alex Lyon looks likely to be the opening-night starter.`\
+https://nytimes.com/athletic/6702057/2025/10/09/buffalo-sabres-goalie-alex-tuch-contract/
 
-**As brother's stardom soars, Brady Tkachuk seeks own path to NHL success**\
-`Tkachuk hopes to lead Ottawa back to the playoffs for the second consecutive year — and to build his own NHL legacy.`\
-https://nytimes.com/athletic/6697508/2025/10/09/brady-tkachuk-ottawa-senators-2025-26-season/
+**Mets mailbag: Options for center field upgrade, Pete Alonso's opt-out timing**\
+`The Mets don’t have great internal options to open at center field in 2026.`\
+https://nytimes.com/athletic/6701964/2025/10/09/mets-mailbag-center-field-upgrade/
 
-**Bears progress report: 10 telling metrics ahead of Monday's showcase game**\
-`Heading into a showcase game with Washington, the Bears can learn a lot from some telling statistics.`\
-https://nytimes.com/athletic/6700958/2025/10/09/bears-progress-report-metrics-commanders/
+**Bill Guerin's moment of truth: Wild have their superstar, young core and cap space — now can they win?**\
+`From the Zach Parise-Ryan Suter buyouts to the Kirill Kaprizov megadeal, everything Guerin has done has been to contend starting now.`\
+https://nytimes.com/athletic/6689855/2025/10/09/wild-bill-guerin-critical-season/
 
-**The Chiefs are 2-3. Here are the signs they'll turn their season around**\
-`Sportsbooks still love the Chiefs. That's just one reason to think better days could be ahead for Patrick Mahomes, Andy Reid and the team.`\
-https://nytimes.com/athletic/6700737/2025/10/09/chiefs-signs-they-can-turn-season-around/
+**Red Wings bold predictions: Raymond hits 90 points, penalty kill bounces back**\
+`Red Wings beat writer Max Bultman serves up some spicy predictions for the team's 2025-26 season. `\
+https://nytimes.com/athletic/6695744/2025/10/09/red-wings-bold-predictions-2025-2026-nhl-season/
 
