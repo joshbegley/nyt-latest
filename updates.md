@@ -1,3 +1,7 @@
+**Fury over Israel’s Qatar attack led Trump to put pressure on Netanyahu.**\
+`By Mark Mazzetti, Adam Rasgon, Katie Rogers and Luke Broadwater`\
+https://nytimes.com/live/2025/10/09/world/israel-hamas-gaza-ceasefire/fury-over-israels-qatar-attack-led-trump-to-put-pressure-on-netanyahu
+
 **Infantino says football should be open-minded over World Cup calendar**\
 `Infantino said a global game cannot only play World Cups during the northern-hemisphere summer.`\
 https://nytimes.com/athletic/6703124/2025/10/09/gianni-infantino-world-cup-calendar/
