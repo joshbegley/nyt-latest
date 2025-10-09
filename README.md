@@ -1,3 +1,7 @@
+**She’s Like Édith Piaf (but With Techno and Teen Angst)**\
+`Zaho de Sagazan has become a shooting star of contemporary French pop music by reimagining the chanson genre for a younger, more dance-oriented audience.`\
+https://nytimes.com/2025/10/09/arts/music/zaho-de-sagazan.html
+
 **As Israelis Breathe a Sigh of Relief, Some Ask Why a Deal Took So Long**\
 `The families of hostages held in Gaza were elated that their loved ones might return soon. Still, some expressed frustration at Israel’s government.`\
 https://nytimes.com/2025/10/09/world/middleeast/israel-response-hamas-gaza-deal.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/09/us/politics/harvard-trump-research-money.html
 **Democrats Play the Hits on Health Care. Why Fewer People Are Listening.**\
 `The basic political conflict in America has changed to something very different than the one putting health care to the fore.`\
 https://nytimes.com/2025/10/09/upshot/democrats-shutdown-health-care.html
-
-**Why Arguments About Free Speech Don’t Apply to the Riyadh Comedy Festival**\
-`Bill Burr, Dave Chappelle and others have framed their participation as a matter of open expression. Yet they’re maddeningly vague about how much dissent is possible in Saudi Arabia.`\
-https://nytimes.com/2025/10/09/arts/television/riyadh-comedy-festival-free-speech.html
 
