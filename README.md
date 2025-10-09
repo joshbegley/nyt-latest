@@ -1,3 +1,7 @@
+**What we know about the terms of the Israel-Hamas hostage deal.**\
+`By Adam Rasgon, Natan Odenheimer, Ronen Bergman and Aaron Boxerman`\
+https://nytimes.com/live/2025/10/09/world/israel-hamas-gaza-ceasefire/hamas-israel-hostage-deal
+
 **These Rugs Are William Morris on Acid**\
 `Plus: a new Hudson Valley hotel, statement-making jewelry and more recommendations from T Magazine.`\
 https://nytimes.com/2025/10/09/t-magazine/commune-psychedelic-rugs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/09/world/europe/pelicot-rape-case.html
 **Nik Bonitto's first NFL sack came in London. He returns 3 years later chasing records**\
 `Bonitto has led a Broncos pass rush that has 84 sacks since the start of the 2024 season, which is 22 more than any other team in the NFL`\
 https://nytimes.com/athletic/6699753/2025/10/09/nik-bonitto-broncos-jets-london-week-6/
-
-**Texas High Court Halts Execution in Shaken Baby Case**\
-`Lawyers for Robert Roberson questioned evidence about whether he shook his 2-year-old daughter to death. The state’s highest criminal court ordered a new look.`\
-https://nytimes.com/2025/10/09/us/texas-shaken-baby-execution.html
 
