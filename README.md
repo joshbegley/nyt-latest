@@ -1,3 +1,19 @@
+**Fantasy football injuries, cheat sheet Week 6: Ravens hamstrung until Lamar Jackson returns**\
+`Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 6 player rankings and more.`\
+https://nytimes.com/athletic/6697664/2025/10/09/fantasy-football-injuries-cheat-sheet-nfl-week-6/
+
+**Key fantasy football questions for Week 6: Can Rico Dowdle and Kendrick Bourne do it again?**\
+`Dalton Del Don looks at the biggest fantasy football topics for Week 6, including the potential for an encore performance from Rico Dowdle.`\
+https://nytimes.com/athletic/6701782/2025/10/09/fantasy-football-questions-week-6-dowdle-flacco-bourne/
+
+**Here is the latest.**\
+`By Anna Griffin, Mitch Smith, Nicholas Bogel-Burroughs and Eric Schmitt`\
+https://nytimes.com/live/2025/10/09/us/trump-national-guard-chicago-portland/here-is-the-latest
+
+**Live Updates: Courts Are Set to Hear Challenges to Chicago and Portland Deployments**\
+`Lawyers for the federal government and for states that oppose deployments of National Guard troops will face off in two federal courtrooms simultaneously on Thursday.`\
+https://nytimes.com/live/2025/10/09/us/trump-national-guard-chicago-portland
+
 **Asamoah undergoes surgery on neck fracture after collision with pitchside board**\
 `The 31-year-old midfielder's head collided with a pitchside LED advertising board during a Chinese second division league match on Sunday.`\
 https://nytimes.com/athletic/6703013/2025/10/09/footballer-neck-injury-pitchside-board/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/09/learning/science-practice-a-study-on-breath-print
 **10 Prompts for Talking and Writing About Halloween**\
 `These questions invite teenagers to share mischievous memories, engage in frightful debates, spin spooky stories and much more.`\
 https://nytimes.com/2025/10/09/learning/10-prompts-for-talking-and-writing-about-halloween.html
-
-**Weird & Wild: Yankee-killing Blue Jays, Schwarber's epic blast and a two-pitch strikeout**\
-`It was one final October quadrupleheader. One last chance to watch nine hours of must-win postseason baseball. Here's what we saw. `\
-https://nytimes.com/athletic/6702939/2025/10/09/mlb-playoffs-weird-bluejays-yankees-kyle-schwarber/
-
-**Trump Administration Live Updates: Harvard Seeks Assurances From White House as Talks Restart**\
-``\
-https://nytimes.com/live/2025/10/09/us/trump-news
-
-**Reflection AI, an A.I. Model Start-Up, Raises $2 Billion**\
-`The big fund-raising round was the latest sign of investor fervor for artificial intelligence companies despite concerns that the boom is overheated.`\
-https://nytimes.com/2025/10/09/business/dealbook/reflection-ai-2-billion-funding.html
-
-**Broncos know peril of overlooking winless Jets: 'We're trying to climb higher'**\
-`Denver is shifting from a win over the defending Super Bowl champs to facing NFL's only winless team. "It's about the ability to refocus."`\
-https://nytimes.com/athletic/6700363/2025/10/09/broncos-jets-london-tottenham-hotspur/
 
