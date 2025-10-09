@@ -1,3 +1,7 @@
+**A Crushing Year for Science in America**\
+`The Trump administration has sharply cut funding for scientific research and eliminated thousands of jobs. We spoke to scientists about the work that was lost.`\
+https://nytimes.com/2025/10/09/climate/lost-science-newsletter.html
+
 **Dominion, Company at Center of False 2020 Voting Conspiracies, Is Sold**\
 `The election machine manufacturer was bought by a little-known company whose founder is a former Republican election official.`\
 https://nytimes.com/2025/10/09/us/politics/dominion-voting-system-sold.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/09/world/europe/iran-hamas-truce-deal-israel-support
 **Turning Point USA, group founded by Charlie Kirk, announces Super Bowl halftime counterprogramming**\
 `Turning Point USA is calling its Super Bowl halftime show a celebration of "faith, family and freedom."`\
 https://nytimes.com/athletic/6704102/2025/10/09/turning-point-usa-charlie-kirk-super-bowl-halftime/
-
-**6 New Books We Love This Week**\
-`Reading recommendations from critics and editors at The New York Times.`\
-https://nytimes.com/2025/10/09/books/review/6-new-books-we-love-this-week.html
 
