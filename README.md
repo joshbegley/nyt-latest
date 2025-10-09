@@ -1,3 +1,7 @@
+**Scoop City: Three critical parts of tonight's Giants-Eagles game**\
+`Key matchups in tonight's Eagles-Giants game, league leaders in interesting stats, plus Dianna Russini joins to share the latest from CIncy.`\
+https://nytimes.com/athletic/6704154/2025/10/09/nfl-matchup-eagles-giants-stat-leaders-2025-scoop-city/
+
 **How to watch Stars vs. Jets: Time, TV, streaming**\
 `Find out how to watch the Dallas Stars play the Winnipeg Jets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6704330/2025/10/09/stars-vs-jets-stream-how-to-watch-oct-9/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6704316/2025/10/09/blue-jackets-vs-predators-stream
 **After years of winning back his Juventus place, Weston McKennie aims to do same for USMNT**\
 `McKennie has endured an annual grind to prove his worth for his club. After much time away, he must replicate that for his country`\
 https://nytimes.com/athletic/6704202/2025/10/09/weston-mckennie-usmnt-return-juventus-pochettino-world-cup/
-
-**A Crushing Year for Science in America**\
-`The Trump administration has sharply cut funding for scientific research and eliminated thousands of jobs. We spoke to scientists about the work that was lost.`\
-https://nytimes.com/2025/10/09/climate/lost-science-newsletter.html
 
