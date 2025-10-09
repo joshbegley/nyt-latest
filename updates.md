@@ -1,3 +1,7 @@
+**Number of Children Fleeing Violence in Haiti Soars**\
+`Haitian children face intensifying problems of crime, hunger and homelessness as the country’s humanitarian crisis shows no signs of easing, a report from a U.N. agency found.`\
+https://nytimes.com/2025/10/09/us/haiti-violence-children-crime.html
+
 **Caleb Williams joins cast of investors in NWSL newcomer Boston Legacy**\
 `The former Heisman Trophy winner and No. 1 pick in the 2024 NFL Draft has joined an investor group for the Boston Legacy Football Club.`\
 https://nytimes.com/athletic/6702220/2025/10/09/caleb-williams-nwsl-boston-legacy/

@@ -1,3 +1,7 @@
+**We Have a Cease-Fire. Now the Middle East Needs Leadership.**\
+`Promises of peace between Jews and Palestinians must be turned into reality.`\
+https://nytimes.com/2025/10/09/opinion/palestinians-israel-gaza-war-ceasefire-peace.html
+
 **Number of Children Fleeing Violence in Haiti Soars**\
 `Haitian children face intensifying problems of crime, hunger and homelessness as the country’s humanitarian crisis shows no signs of easing, a report from a U.N. agency found.`\
 https://nytimes.com/2025/10/09/us/haiti-violence-children-crime.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/10/09/world/israel-hamas-gaza-ceasefire/fury-over-
 **Infantino says football should be open-minded over World Cup calendar**\
 `Infantino said a global game cannot only play World Cups during the northern-hemisphere summer.`\
 https://nytimes.com/athletic/6703124/2025/10/09/gianni-infantino-world-cup-calendar/
-
-**What are the expectations for Michael Misa, Macklin Celebrini and the Sharks?**\
-`The Sharks start the season with two star prospects fresh from the OHL. How will San Jose bed them in?`\
-https://nytimes.com/athletic/6702323/2025/10/09/sharks-roster-analysis-misa-celebrini-dickinson/
 
