@@ -1,5 +1,9 @@
+**Asamoah undergoes surgery on neck fracture after collision with pitchside board**\
+`The 31-year-old midfielder's head collided with a pitchside LED advertising board during a Chinese second division league match on Sunday.`\
+https://nytimes.com/athletic/6703013/2025/10/09/footballer-neck-injury-pitchside-board/
+
 **How to Manage a Divided Fed**\
-`Some at the central bank don’t feel the need to cut rates further this year; others are worried about the jobs market. That complicates the job of Jay Powellm its chair.`\
+`Some at the central bank don’t feel the need to cut rates further this year; others are worried about the jobs market. That complicates the job of Jay Powell, its chair.`\
 https://nytimes.com/2025/10/09/business/dealbook/fed-rates-powell.html
 
 **How to watch the 2025-26 Dallas Mavericks in Cooper Flagg's debut season**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/09/business/dealbook/reflection-ai-2-billion-funding
 **Broncos know peril of overlooking winless Jets: 'We're trying to climb higher'**\
 `Denver is shifting from a win over the defending Super Bowl champs to facing NFL's only winless team. "It's about the ability to refocus."`\
 https://nytimes.com/athletic/6700363/2025/10/09/broncos-jets-london-tottenham-hotspur/
-
-**How to watch the Golden State Warriors throughout the 2025-26 season**\
-`The NBA has new broadcast partners this season, and the Warriors have 34 games on national TV. Here's how to tune in.`\
-https://nytimes.com/athletic/6694669/2025/10/09/golden-state-warriors-nba-tv-how-to-watch-2025-26/
 
