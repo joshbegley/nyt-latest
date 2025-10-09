@@ -1,3 +1,7 @@
+**Fury over Israel’s Qatar attack led Trump to put pressure on Netanyahu.**\
+`By Mark Mazzetti, Adam Rasgon, Katie Rogers and Luke Broadwater`\
+https://nytimes.com/live/2025/10/09/world/israel-hamas-gaza-ceasefire/fury-over-israels-qatar-attack-led-trump-to-put-pressure-on-netanyahu
+
 **Infantino says football should be open-minded over World Cup calendar**\
 `Infantino said a global game cannot only play World Cups during the northern-hemisphere summer.`\
 https://nytimes.com/athletic/6703124/2025/10/09/gianni-infantino-world-cup-calendar/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6703013/2025/10/09/footballer-neck-injury-pitchside
 **How to Manage a Divided Fed**\
 `Some at the central bank don’t feel the need to cut rates further this year; others are worried about the jobs market. That complicates the job of Jay Powell, its chair.`\
 https://nytimes.com/2025/10/09/business/dealbook/fed-rates-powell.html
-
-**How to watch the 2025-26 Dallas Mavericks in Cooper Flagg's debut season**\
-`This season, fans have a new-look Mavericks team and a new-look NBA broadcast schedule. Here's how to keep track of all the games.`\
-https://nytimes.com/athletic/6701219/2025/10/09/dallas-mavericks-nba-schedule-cooper-flagg-how-to-watch-2025-26/
 

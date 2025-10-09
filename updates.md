@@ -1,3 +1,15 @@
+**Infantino says football should be open-minded over World Cup calendar**\
+`Infantino said a global game cannot only play World Cups during the northern-hemisphere summer.`\
+https://nytimes.com/athletic/6703124/2025/10/09/gianni-infantino-world-cup-calendar/
+
+**What are the expectations for Michael Misa, Macklin Celebrini and the Sharks?**\
+`The Sharks start the season with two star prospects fresh from the OHL. How will San Jose bed them in?`\
+https://nytimes.com/athletic/6702323/2025/10/09/sharks-roster-analysis-misa-celebrini-dickinson/
+
+**Intel’s Big Bet: Inside the Chipmaker’s Make-or-Break Factory**\
+`The centerpiece of the company’s comeback hopes is a multibillion-dollar facility in the Arizona desert. Will it draw new customers?`\
+https://nytimes.com/2025/10/09/technology/intels-big-bet-inside-the-chipmakers-make-or-break-factory.html
+
 **Fantasy football injuries, cheat sheet Week 6: Ravens hamstrung until Lamar Jackson returns**\
 `Fantasy football relevant injuries and their impact, weather reports and game previews. Plus, Ciely's Week 6 player rankings and more.`\
 https://nytimes.com/athletic/6697664/2025/10/09/fantasy-football-injuries-cheat-sheet-nfl-week-6/
