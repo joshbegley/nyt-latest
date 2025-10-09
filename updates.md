@@ -1,3 +1,15 @@
+**Israel and Hamas Reach a Deal**\
+`Celebrations broke out after Israel and Hamas agreed to the first phase of a peace plan on Wednesday. The agreement covers an exchange of hostages and prisoners.`\
+https://nytimes.com/video/world/middleeast/100000010448555/israel-hamas-peace-plan.html
+
+**Big Five - Europe's top upcoming World Cup qualifiers**\
+`There’s a smorgasbord of tasty World Cup qualifying fixtures to sink your teeth into. Here are five worth watching.`\
+https://nytimes.com/athletic/6700228/2025/10/09/big-five-europes-top-upcoming-qualifiers/
+
+**Live Updates: Israel and Hamas Agree to Hostage and Prisoner Exchange**\
+`Several details remained unclear, but officials indicated that the deal would involve a pullback of Israeli troops, the entry of humanitarian aid into Gaza and the release of Israeli hostages as early as this weekend.`\
+https://nytimes.com/live/2025/10/09/world/israel-hamas-gaza-ceasefire
+
 **The New York Times in Print for Thursday, Oct. 9, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/09/todays-new-york-times
