@@ -1,3 +1,15 @@
+**Spurs owners pledge 'more money to deliver success' after £100m injection**\
+`The Lewis family have insisted they want to prioritise sporting success after removing Daniel Levy as executive chairman after 24 years.`\
+https://nytimes.com/athletic/6702867/2025/10/09/tottenham-owners-funding-investment/
+
+**The Dodgers let Kyle Schwarber come to life, and suddenly have themselves a series**\
+`“We definitely had a chance and we didn’t capitalize on it," Max Muncy said. "That was kind of the story of the night.”`\
+https://nytimes.com/athletic/6702465/2025/10/09/dodgers-phillies-nlds-clayton-kershaw/
+
+**Boca Juniors head coach Russo dies at 69**\
+`Tributes have poured in from across Argentinean football, with Boca's rivals River Plate stating their "profound sadness" at Russo's passing`\
+https://nytimes.com/athletic/6702869/2025/10/09/boca-juniors-manager-death-russo/
+
 **TAFC: Three years for Amorim at Manchester United? Plus: Is scouting too data focused?**\
 `Today in TAFC: Ratcliffe gives Amorim his backing for three years, a scout's view on modern player discovery, a UK right-wing culture war.`\
 https://nytimes.com/athletic/6702600/2025/10/09/three-years-amorim-manchester-united/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6700958/2025/10/09/bears-progress-report-metrics-co
 **The Chiefs are 2-3. Here are the signs they'll turn their season around**\
 `Sportsbooks still love the Chiefs. That's just one reason to think better days could be ahead for Patrick Mahomes, Andy Reid and the team.`\
 https://nytimes.com/athletic/6700737/2025/10/09/chiefs-signs-they-can-turn-season-around/
-
-**Rico Dowdle ready to run at his former team: 'Bowling ball of butcher knives coming at ya'**\
-`Dowdle had a career-best game last week and gets a chance to build on it with the Cowboys visiting the Panthers on Sunday.`\
-https://nytimes.com/athletic/6701590/2025/10/09/panthers-rico-dowdle-cowboys-game/
-
-**Las Vegas Aces are a win away from becoming one of the WNBA's all-time best dynasties**\
-`If the Aces close out the series, count them among the W's best-ever teams, including the Lynx and Comets.`\
-https://nytimes.com/athletic/6702538/2025/10/09/las-vegas-aces-wnba-finals-dynasty/
-
-**Eagles at Giants on TNF: Saquon Barkley's homecoming, rivalry history and TV predictions**\
-`Week 6 kicks off with the Eagles, who are atop the NFC East, visiting the last-place Giants on "Thursday Night Football."`\
-https://nytimes.com/athletic/6698152/2025/10/09/eagles-giants-tnf-saquon-barkley-how-to-watch/
 
