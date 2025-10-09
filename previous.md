@@ -1,6 +1,10 @@
+**A Timeline of the Conflict Between Letitia James and Donald Trump**\
+`The animosity between New York’s attorney general and the U.S. president dates back years.`\
+https://nytimes.com/2025/10/09/us/politics/letitia-james-trump-conflict-timeline.html
+
 **A Closer Look at the Counts in the Letitia James Indictment**\
 `New York’s attorney general is accused of falsely listing a rental property in Virginia as her secondary residence to get favorable loan terms. She has called the charges “baseless.”`\
-https://nytimes.com/2025/10/09/us/politics/a-closer-look-at-the-counts-in-the-letitia-james-indictment.html
+https://nytimes.com/2025/10/09/us/politics/letitia-james-indictment-charges.html
 
 **‘The Woman in Cabin 10’ Review: When Things Go Splash in the Night**\
 `Keira Knightley and Guy Pearce encounter bumpy waters on a yacht in this adaptation of a Ruth Ware thriller.`\
@@ -29,8 +33,4 @@ https://nytimes.com/2025/10/09/us/politics/trump-nobel-peace-prize.html
 **NFL planning 'reimagined' Pro Bowl that will reportedly be in Super Bowl market**\
 `Details of the Pro Bowl remain unclear, but it will reportedly be in the Super Bowl market. Super Bowl LX will be in Santa Clara, Calif.`\
 https://nytimes.com/athletic/6704634/2025/10/09/nfl-pro-bowl-changes-super-bowl-market/
-
-**USA U-20s rout Italy to book World Cup quarterfinal place**\
-`Benjamin Cremaschi seized the tournament's scoring lead with his double, powering the U.S. to a place in the final eight in Chile`\
-https://nytimes.com/athletic/6704741/2025/10/09/usa-u20-world-cup-italy-cremaschi-video-quarterfinals/
 

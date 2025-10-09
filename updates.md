@@ -1,3 +1,11 @@
+**A Timeline of the Conflict Between Letitia James and Donald Trump**\
+`The animosity between New York’s attorney general and the U.S. president dates back years.`\
+https://nytimes.com/2025/10/09/us/politics/letitia-james-trump-conflict-timeline.html
+
+**A Closer Look at the Counts in the Letitia James Indictment**\
+`New York’s attorney general is accused of falsely listing a rental property in Virginia as her secondary residence to get favorable loan terms. She has called the charges “baseless.”`\
+https://nytimes.com/2025/10/09/us/politics/letitia-james-indictment-charges.html
+
 **A Closer Look at the Counts in the Letitia James Indictment**\
 `New York’s attorney general is accused of falsely listing a rental property in Virginia as her secondary residence to get favorable loan terms. She has called the charges “baseless.”`\
 https://nytimes.com/2025/10/09/us/politics/a-closer-look-at-the-counts-in-the-letitia-james-indictment.html
