@@ -1,3 +1,7 @@
+**Iversen: Carlos Sainz is right about F1 broadcasts. And also wrong. Let me explain**\
+`The Spaniard is right that F1 didn't show his late-race overtakes. He's wrong about why they were ignored, though`\
+https://nytimes.com/athletic/6701408/2025/10/09/carlos-sainz-f1-broadcasts-celebrities-girlfriends/
+
 **What We Know About the Hostage Deal Between Israel and Hamas**\
 `After President Trump announced the Gaza agreement, it was unclear when hostages would be released or when aid would enter the territory.`\
 https://nytimes.com/2025/10/09/world/middleeast/israel-hamas-deal-what-to-know.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/09/business/china-rare-earth-exports.html
 **How to watch Bears vs. Commanders: Time, TV, streaming**\
 `Find out how to watch the Chicago Bears play the Washington Commanders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6702520/2025/10/09/bears-vs-commanders-stream-how-to-watch-oct-13/
-
-**How to watch Brewers at Cubs: Game 4 Time, TV, streaming**\
-`Find out how to watch the Milwaukee Brewers play the Chicago Cubs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6702498/2025/10/09/brewers-vs-cubs-stream-how-to-watch-oct-9/
 
