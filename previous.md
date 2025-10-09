@@ -1,3 +1,23 @@
+**A New Media Start-Up Goes for Old-School Flavor. And Burritos.**\
+`There were cigarettes on the tables, margaritas in hand, and a cheerful psychic for a new-media shindig.`\
+https://nytimes.com/2025/10/09/style/breaker-media-party.html
+
+**Mamdani Proposes a World Cup Czar to Boost Tourism**\
+`Zohran Mamdani, the Democratic front-runner for mayor of New York City, said a “czar” would make the soccer tournament better for fans and could maximize tourism benefits.`\
+https://nytimes.com/2025/10/09/nyregion/mamdani-world-cup-soccer.html
+
+**College football Week 7 best bets: Can Florida keep up with Texas A&M?**\
+`Austin Mock has four best bets lined up for college football's Week 7, including an over in Florida-Texas A&M.`\
+https://nytimes.com/athletic/6704081/2025/10/09/college-football-week-7-best-bets-florida-texas-am-iowa-wisconsin/
+
+**Alex Jones Asks Supreme Court to Halt $1 Billion Payment to Sandy Hook Families**\
+`A judge ordered Jones to pay as a result of a defamation lawsuit that he is now asking the Supreme Court to review.`\
+https://nytimes.com/2025/10/09/us/politics/supreme-court-alex-jones.html
+
+**‘Boots’ Is a Sensitive Military Dramedy**\
+`Set in 1990, this Netflix series follows a young gay Marine recruit terrified of being outed.`\
+https://nytimes.com/2025/10/09/arts/television/review-boots-netflix.html
+
 **ESPN's lopsided 'Inside the NBA' schedule raises eyebrows**\
 `"Inside the NBA" will only air on ESPN four times before Christmas.`\
 https://nytimes.com/athletic/6704043/2025/10/09/inside-the-nba-espn-2025-2026-broadcast-schedule/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6703940/2025/10/09/chris-jones-loafing-jaguars-touc
 **Democratic Alarm Over an Unbound Trump Fuels Shutdown Standoff**\
 `The threat of rising Obamacare premiums has been Democrats’ main focus in the public debate, but the president’s defiance of laws, norms and congressional constraints has helped hold them together in opposition.`\
 https://nytimes.com/2025/10/09/us/politics/democrats-shutdown-trump-administration.html
-
-**25 must-watch people in the NHL in 2025-26: McDavid pushing boundaries, Crosby's future and more**\
-`From Connor McDavid's pursuit of a Stanley Cup to Sidney Crosby's decision on his future, here's who we're watching closest in 2025-26.`\
-https://nytimes.com/athletic/6701132/2025/10/09/nhl-most-compelling-storylines-mcdavid-crosby/
-
-**Astros fire head athletic trainer after injury-plagued season: Sources**\
-`According to Baseball Prospectus and FanGraphs, no team lost more potential value to injuries this season than the Astros.`\
-https://nytimes.com/athletic/6704059/2025/10/09/astros-fire-head-athletic-trainer-injuries/
-
-**Bats Catch Migratory Birds and Eat Them in Midair**\
-`For the first time, scientists documented direct evidence of a bat preying on a bird at high altitude.`\
-https://nytimes.com/2025/10/09/science/bats-birds-prey.html
-
-**Is America Making God Angry?**\
-`Do Americans need to repent for their sins? In this episode of “Interesting Times,” the evangelical pastor Doug Wilson tells Ross Douthat why he believes Christian nationalism is the solution to societal decay and Americans need to “stop making God angry.”`\
-https://nytimes.com/video/opinion/100000010386068/is-america-making-god-angry.html
-
-**Insults in the Name of God**\
-`The Christian nationalist Doug Wilson says he isn’t trying to be Howard Stern but his language can be just as controversial. On this week’s “Interesting Times,” he defends his use of “naughty words” as weapons in his arsenal.`\
-https://nytimes.com/video/opinion/100000010386071/insults-in-the-name-of-god.html
 
