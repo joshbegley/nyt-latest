@@ -1,3 +1,7 @@
+**As Israelis Breathe a Sigh of Relief, Some Ask Why a Deal Took So Long**\
+`The families of hostages held in Gaza were elated that their loved ones might return soon. Still, some expressed frustration at Israel’s government.`\
+https://nytimes.com/2025/10/09/world/middleeast/israel-response-hamas-gaza-deal.html
+
 **Yankees' gut-wrenching final loss reflects the warts of a disappointing 2025 season**\
 `It all coalesced Wednesday. The Yanks couldn’t replace Judge’s missing production, the bullpen slipped and the defense wasn't tight enough.`\
 https://nytimes.com/athletic/6702613/2025/10/09/yankees-game-3-loss-bluejays-alds-2025-season/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/09/upshot/democrats-shutdown-health-care.html
 **Why Arguments About Free Speech Don’t Apply to the Riyadh Comedy Festival**\
 `Bill Burr, Dave Chappelle and others have framed their participation as a matter of open expression. Yet they’re maddeningly vague about how much dissent is possible in Saudi Arabia.`\
 https://nytimes.com/2025/10/09/arts/television/riyadh-comedy-festival-free-speech.html
-
-**After a Crisis, ‘a Miracle’ Gave Them a Second Chance in Berkeley**\
-`It took a wealth of fortitude and a surge of generosity for one couple to find their forever home in the Bay Area. Here’s how they did it.`\
-https://nytimes.com/interactive/2025/10/09/realestate/california-berkeley-homes-sale.html
 
