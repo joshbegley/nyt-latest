@@ -1,3 +1,11 @@
+**Lemon Sweet Rolls With Cream Cheese Icing**\
+`These sweet, lemony rolls are a fresh alternative to classic cinnamon rolls. A little cardamom in the dough and filling enhances the bright citrus flavor without overtaking it.`\
+https://nytimes.com/video/dining/100000010369201/lemon-sweet-rolls-with-cream-cheese-icing.html
+
+**In ‘Mary Page Marlowe,’ Susan Sarandon Is One Part of a Woman in Pieces**\
+`The screen star is making her London stage debut in Tracy Letts’ portrait of embattled womanhood.`\
+https://nytimes.com/2025/10/09/arts/mary-page-marlowe-old-vic-susan-sarandon.html
+
 **For Homes by the Water, Closing Just Got More Complicated**\
 `When the government shut down, so did the federal flood insurance program, forcing some buyers into the costly private market.`\
 https://nytimes.com/2025/10/09/realestate/flood-insurance-government-shutdown.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6703745/2025/10/09/canadiens-vs-red-wings-stream-ho
 **How to watch Senators vs. Lightning: Time, TV, streaming**\
 `Find out how to watch the Ottawa Senators play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6703746/2025/10/09/senators-vs-lightning-stream-how-to-watch-oct-9/
-
-**How to watch Islanders vs. Penguins: Time, TV, streaming**\
-`Find out how to watch the New York Islanders play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6703742/2025/10/09/islanders-vs-penguins-stream-how-to-watch-oct-9/
-
-**How to watch Blackhawks vs. Bruins: Time, TV, streaming**\
-`Find out how to watch the Chicago Blackhawks play the Boston Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6703740/2025/10/09/blackhawks-vs-bruins-stream-how-to-watch-oct-9/
 
