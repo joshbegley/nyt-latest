@@ -1,3 +1,15 @@
+**Tennis players accused of doping will receive financial and legal support from authorities**\
+`The resource deficit between top-ranked players involved in anti-doping cases and their peers has been heavily criticized in recent months.`\
+https://nytimes.com/athletic/6702621/2025/10/09/tennis-doping-cases-law-cost-support-itia/
+
+**Sailor won Vendee Globe in record time while undergoing cancer treatment**\
+`Dalin said he was diagnosed with a gastrointestinal stromal tumour in late 2023 and received immunotherapy treatment throughout the race.`\
+https://nytimes.com/athletic/6702723/2025/10/09/charlie-dalin-cancer-vendee-globe/
+
+**Yankees just wasted a golden opportunity they’ll never get back**\
+`A year after the Dodgers embarrassed them in the World Series, seizing upon their flaws, the Yankees came up even smaller vs. the Blue Jays.`\
+https://nytimes.com/athletic/6702435/2025/10/09/yankees-eliminated/
+
 **Winless, the Jets arrive in London with a simple plan: ‘Keep swinging’**\
 `The week will be an important one for team-building, but the Broncos pose a major challenge for the young, 0-5 Jets on Sunday.`\
 https://nytimes.com/athletic/6701257/2025/10/09/new-york-jets-london-practice-report/
