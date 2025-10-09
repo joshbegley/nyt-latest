@@ -1,3 +1,7 @@
+**Julian Sayin has answered every step in Ohio State's progression plan**\
+`Ryan Day has earned his QB guru reputation, and Sayin's rapid development is going exactly how Ohio State hoped.`\
+https://nytimes.com/athletic/6702008/2025/10/09/julian-sayin-ohio-state-football-ryan-day/
+
 **Rosenthal: The Yankees need to make some changes, but Cashman and Boone shouldn't be among them**\
 `For the Yankees, getting eliminated by the Blue Jays was dispiriting, but not a disgrace. `\
 https://nytimes.com/athletic/6702908/2025/10/09/new-york-yankees-boone-cashman/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6701964/2025/10/09/mets-mailbag-center-field-upgrad
 **Bill Guerin's moment of truth: Wild have their superstar, young core and cap space — now can they win?**\
 `From the Zach Parise-Ryan Suter buyouts to the Kirill Kaprizov megadeal, everything Guerin has done has been to contend starting now.`\
 https://nytimes.com/athletic/6689855/2025/10/09/wild-bill-guerin-critical-season/
-
-**Red Wings bold predictions: Raymond hits 90 points, penalty kill bounces back**\
-`Red Wings beat writer Max Bultman serves up some spicy predictions for the team's 2025-26 season. `\
-https://nytimes.com/athletic/6695744/2025/10/09/red-wings-bold-predictions-2025-2026-nhl-season/
 
