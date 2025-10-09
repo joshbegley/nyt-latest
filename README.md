@@ -1,3 +1,7 @@
+**What Would Elphaba Grow? The Botanical Garden Has Some Ideas.**\
+`Striking plants of deep pinks and dark greens conjure the visual world of “Wicked” this month at the New York Botanical Garden.`\
+https://nytimes.com/2025/10/09/arts/design/wicked-new-york-botanical-garden.html
+
 **Trump Baselessly Claims He ‘Took the Freedom of Speech Away’ From Flag Burners**\
 `The president said he had made flag burning a crime punishable by a year in prison. But such a claim contradicts both Supreme Court precedent and the text of an executive order he signed.`\
 https://nytimes.com/2025/10/09/us/politics/trump-freedom-of-speech-flag-burning.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/09/business/new-jersey-electricity-prices-governor-e
 **Lemon Sweet Rolls With Cream Cheese Icing**\
 `These sweet, lemony rolls are a fresh alternative to classic cinnamon rolls. A little cardamom in the dough and filling enhances the bright citrus flavor without overtaking it.`\
 https://nytimes.com/video/dining/100000010369201/lemon-sweet-rolls-with-cream-cheese-icing.html
-
-**In ‘Mary Page Marlowe,’ Susan Sarandon Is One Part of a Woman in Pieces**\
-`The screen star is making her London stage debut in Tracy Letts’ portrait of embattled womanhood.`\
-https://nytimes.com/2025/10/09/theater/mary-page-marlowe-old-vic-susan-sarandon.html
 

@@ -1,3 +1,7 @@
+**Trump Baselessly Claims He ‘Took the Freedom of Speech Away’ From Flag Burners**\
+`The president said he had made flag burning a crime punishable by a year in prison. But such a claim contradicts both Supreme Court precedent and the text of an executive order he signed.`\
+https://nytimes.com/2025/10/09/us/politics/trump-freedom-of-speech-flag-burning.html
+
 **I Love New York, Except for the Yankees**\
 `I’m a dyed-in-the-wool New Yorker. But I can’t help rooting against the Yankees.`\
 https://nytimes.com/2025/10/09/opinion/i-love-new-york-except-for-the-yankees.html
