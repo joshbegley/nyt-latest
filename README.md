@@ -1,3 +1,7 @@
+**Hamas Takes a Big Risk in Deal to Release Hostages**\
+`The Palestinian militant group is giving up much of the leverage it has with Israel, with no guarantee some of its main demands will be met.`\
+https://nytimes.com/2025/10/09/world/middleeast/hamas-israel-deal-hostage-release.html
+
 **Fury over Israel’s Qatar attack led Trump to put pressure on Netanyahu.**\
 `By Mark Mazzetti, Adam Rasgon, Katie Rogers and Luke Broadwater`\
 https://nytimes.com/live/2025/10/09/world/israel-hamas-gaza-ceasefire/fury-over-israels-qatar-attack-led-trump-to-put-pressure-on-netanyahu
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/10/09/us/trump-national-guard-chicago-portland
 **Asamoah undergoes surgery on neck fracture after collision with pitchside board**\
 `The 31-year-old midfielder's head collided with a pitchside LED advertising board during a Chinese second division league match on Sunday.`\
 https://nytimes.com/athletic/6703013/2025/10/09/footballer-neck-injury-pitchside-board/
-
-**How to Manage a Divided Fed**\
-`Some at the central bank don’t feel the need to cut rates further this year; others are worried about the jobs market. That complicates the job of Jay Powell, its chair.`\
-https://nytimes.com/2025/10/09/business/dealbook/fed-rates-powell.html
 
