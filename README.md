@@ -1,3 +1,7 @@
+**The Bounce: What are the Clippers' Aspirations? Plus, the Aces are one win away**\
+`Zach Harper also previews the Hawks in our basketball newsletter.`\
+https://nytimes.com/athletic/6703480/2025/10/09/clippers-aces-hawks-aja-wilson-the-bounce/
+
 **Man Utd exploring whether to sell seat licences at new stadium**\
 `In March, the club announced plans to build a new 100,000-seater stadium next to the site of the existing Old Trafford.`\
 https://nytimes.com/athletic/6703138/2025/10/09/manchester-united-new-stadium-survey/
@@ -25,16 +29,4 @@ https://nytimes.com/athletic/6703270/2025/10/09/liverpool-mailbag-send-your-ques
 **He’s Gay. He’s an Observant Jew. His Comedy Career Is Booming.**\
 `Mordechi Rosenfeld, known as Modi, already has the synagogue crowd. Now he wants the “Goyim, gays and theys,” too.`\
 https://nytimes.com/2025/10/09/style/gay-jewish-comedian-modi-rosenfeld.html
-
-**‘After the Hunt’ Review: Uncomfortable, for the Wrong Reasons**\
-`Luca Guadagnino’s campus drama falls on its face trying to court controversy.`\
-https://nytimes.com/2025/10/09/movies/after-the-hunt-review.html
-
-**Italy's footballers are wearing eye-patches in training. This is why**\
-`The innovation was spotted in an under-21 training session this week, but there is science behind it...`\
-https://nytimes.com/athletic/6702902/2025/10/09/italy-eye-patches-training/
-
-**Hamas Takes a Big Risk in Deal to Release Hostages**\
-`The Palestinian militant group is giving up much of the leverage it has with Israel, with no guarantee some of its main demands will be met.`\
-https://nytimes.com/2025/10/09/world/middleeast/hamas-israel-deal-hostage-release.html
 
