@@ -1,3 +1,7 @@
+**What We Know About the Hostage Deal Between Israel and Hamas**\
+`After President Trump announced the Gaza agreement, it was unclear when hostages would be released or when aid would enter the territory.`\
+https://nytimes.com/2025/10/09/world/middleeast/israel-hamas-deal-what-to-know.html
+
 **Kimmel’s Tip for Troops: Camouflage Is Pointless in Chicago**\
 `“You would be better off dressed as kielbasa in Chicago,” Jimmy Kimmel advised the National Guard troops President Trump wants to deploy to the city.`\
 https://nytimes.com/2025/10/09/arts/television/jimmy-kimmel-trump-portland-chicago.html
