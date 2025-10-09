@@ -1,3 +1,7 @@
+**Ghosts of bullpens past haunt the Mariners, who missed an anniversary but still have life**\
+`30 years to the day the Mariners clinched the franchise's first trip to the ALCS, they gave up nine straight runs after an initial 3-0 lead.`\
+https://nytimes.com/athletic/6701997/2025/10/08/seattle-mariners-alds-detroit-tigers-bullpen/
+
 **Posts Calling Mangione Guilty Did No Harm, Top U.S. Prosecutor Argues**\
 `A judge had demanded an explanation for why Justice Department officials were publicly expressing views on Luigi Mangione’s guilt in the killing of a health insurance executive.`\
 https://nytimes.com/2025/10/08/nyregion/luigi-mangione-justice-department-posts.html
