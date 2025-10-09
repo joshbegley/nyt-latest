@@ -1,9 +1,13 @@
+**Mamdani Maintains 13-Point Lead as Cuomo Gains Ground After Adams’s Exit**\
+`While former Gov. Andrew M. Cuomo benefited from Mayor Eric Adams’s departure, Zohran Mamdani still enjoyed a sizable lead in the Quinnipiac University poll.`\
+https://nytimes.com/2025/10/09/nyregion/mayor-poll-nyc-quinnipiac.html
+
 **Is ‘Going Viral’ Dead?**\
 `Spontaneous original content, shared by people all over the world, made the internet a fun place to be. It’s more complicated now.`\
 https://nytimes.com/2025/10/09/style/end-of-viral-internet-tiktok-instagram.html
 
-**LeBron James to miss Lakers' season opener due to sciatica**\
-`The Lakers open the regular season Oct. 21 at home against the Golden State Warriors.`\
+**LeBron James to miss Lakers' start of season due to sciatica**\
+`The Lakers open the regular season at home against the Golden State Warriors on Oct. 21.`\
 https://nytimes.com/athletic/6704630/2025/10/09/lebron-james-injury-report-update-lakers/
 
 **Ruth Weiss, Who Chronicled Apartheid After Fleeing the Nazis, Dies at 101**\
@@ -29,8 +33,4 @@ https://nytimes.com/2025/10/09/weather/priscilla-arizona-california-nm-rain-fore
 **Here’s the latest.**\
 `The case being pursued cameMr. Trump forced out the top federal prosecutor there, who had told superiors that there was insufficient evidence to justify criminal charges`\
 https://nytimes.com/live/2025/10/09/us/trump-news/letitia-james-indicted-trump
-
-**As Gaza Deal Nears, Palestinians and Israelis Cheer — and Worry**\
-`With the agreement still not finalized, people in Gaza and Israel celebrated a possible end to two years of war, but hoped they were not doing so prematurely.`\
-https://nytimes.com/2025/10/09/world/middleeast/israel-hamas-gaza-deal-reactions.html
 
