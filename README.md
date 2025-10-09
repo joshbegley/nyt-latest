@@ -1,3 +1,7 @@
+**Another Guilty Verdict After Appeal in Pelicot Rape Case**\
+`One of the dozens of men convicted of raping Gisèle Pelicot appealed his verdict, but a French court again found him guilty.`\
+https://nytimes.com/2025/10/09/world/europe/pelicot-rape-case.html
+
 **Nik Bonitto's first NFL sack came in London. He returns 3 years later chasing records**\
 `Bonitto has led a Broncos pass rush that has 84 sacks since the start of the 2024 season, which is 22 more than any other team in the NFL`\
 https://nytimes.com/athletic/6699753/2025/10/09/nik-bonitto-broncos-jets-london-week-6/
@@ -6,8 +10,8 @@ https://nytimes.com/athletic/6699753/2025/10/09/nik-bonitto-broncos-jets-london-
 `Lawyers for Robert Roberson questioned evidence about whether he shook his 2-year-old daughter to death. The state’s highest criminal court ordered a new look.`\
 https://nytimes.com/2025/10/09/us/texas-shaken-baby-execution.html
 
-**Astros part ways with Alex Cintrón, more coaching changes expected (Sources)**\
-`Cintrón had been the team's hitting coach since 2019. More changes are expected within Espada’s 10-man coaching staff.`\
+**Astros part ways with Alex Cintrón, more coaching changes expected: Sources**\
+`Cintrón had been the team's hitting coach since 2019. More changes are expected within Astros manager Joe Espada’s 10-man coaching staff.`\
 https://nytimes.com/athletic/6703908/2025/10/09/astros-alex-cintron-coaching-departures/
 
 **Who Are the Hostages Believed Alive in Gaza?**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/09/opinion/i-love-new-york-except-for-the-yankees.ht
 **A Skeptical Reception for Hegseth’s Quantico Talk**\
 `Readers respond to a guest essay that put Defense Secretary Pete Hegseth’s speech in a more favorable light.`\
 https://nytimes.com/2025/10/09/opinion/pete-hegseth-quantico-speech.html
-
-**USA Basketball to tab Miami Heat's Erik Spoelstra as men's head coach: Sources**\
-`Spoelstra, 54, the NBA’s winningest active coach, will take over for Steve Kerr, who stepped down after winning gold at the 2024 Olympics.`\
-https://nytimes.com/athletic/6695495/2025/10/09/usa-basketball-miami-heat-erik-spoelstra-head-coach/
 
