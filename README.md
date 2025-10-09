@@ -1,3 +1,15 @@
+**Appellate Judges Appear Open to Allowing Troops to Deploy to Portland**\
+`Three judges from the U.S. Court of Appeals for the Ninth Circuit are reviewing an order blocking President Trump from deploying National Guard soldiers in the city.`\
+https://nytimes.com/2025/10/09/us/national-guard-portland-appeals-court-hearing.html
+
+**Crypto Investor Known as ‘Bitcoin Jesus’ Reaches Deal With Prosecutors**\
+`In the Trump administration’s latest example of dialing back cryptocurrency enforcement, Roger Ver agreed to pay about $48 million to end a tax fraud case.`\
+https://nytimes.com/2025/10/09/technology/roger-ver-bitcoin-justice-department-deal.html
+
+**For Business that Builds the Future, Look to Michigan.**\
+`The University of Michigan is building the future of business and looking for what our local and global economies need today and tomorrow.`\
+https://nytimes.com/paidpost/university-of-michigan/2025/for-business-that-builds-the-future-look-to-michigan.html
+
 **MLB playoffs or work? West Coast fans face a difficult decision**\
 `An early start time at Dodger Stadium could force many Dodgers fans to miss Shohei Ohtani's leadoff at-bat in Game 4 of the NLDS.`\
 https://nytimes.com/athletic/6703725/2025/10/09/mlb-postseason-start-times/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/09/us/national-guard-patrols-memphis-tennessee.html
 **Akins returns to Mansfield after jail time for causing death of cyclist**\
 `Mansfield issued a statement saying Akins' registration had been retained, and that he has been reintegrated with the first-team squad.`\
 https://nytimes.com/athletic/6704071/2025/10/09/lucas-akins-mansfield-return-news/
-
-**Scoop City: Three critical parts of tonight's Giants-Eagles game**\
-`Key matchups in tonight's Eagles-Giants game, league leaders in interesting stats, plus Dianna Russini joins to share the latest from CIncy.`\
-https://nytimes.com/athletic/6704154/2025/10/09/nfl-matchup-eagles-giants-stat-leaders-2025-scoop-city/
-
-**How to watch Stars vs. Jets: Time, TV, streaming**\
-`Find out how to watch the Dallas Stars play the Winnipeg Jets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6704330/2025/10/09/stars-vs-jets-stream-how-to-watch-oct-9/
-
-**How to watch Golden Knights vs. Sharks: Time, TV, streaming**\
-`Find out how to watch the Vegas Golden Knights play the San Jose Sharks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6704328/2025/10/09/golden-knights-vs-sharks-stream-how-to-watch-oct-9/
 
