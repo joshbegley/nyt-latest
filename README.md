@@ -1,3 +1,23 @@
+**Nik Bonitto's first NFL sack came in London. He returns 3 years later chasing records**\
+`Bonitto has led a Broncos pass rush that has 84 sacks since the start of the 2024 season, which is 22 more than any other team in the NFL`\
+https://nytimes.com/athletic/6699753/2025/10/09/nik-bonitto-broncos-jets-london-week-6/
+
+**Texas High Court Halts Execution in Shaken Baby Case**\
+`Lawyers for Robert Roberson questioned evidence about whether he shook his 2-year-old daughter to death. The state’s highest criminal court ordered a new look.`\
+https://nytimes.com/2025/10/09/us/texas-shaken-baby-execution.html
+
+**Astros part ways with Alex Cintrón, more coaching changes expected (Sources)**\
+`Cintrón had been the team's hitting coach since 2019. More changes are expected within Espada’s 10-man coaching staff.`\
+https://nytimes.com/athletic/6703908/2025/10/09/astros-alex-cintron-coaching-departures/
+
+**Who Are the Hostages Believed Alive in Gaza?**\
+`Israel says 20 living hostages are held by Hamas, set for release in a prisoner exchange together with the remains of those who died. Here’s what we know about them.`\
+https://nytimes.com/2025/10/09/world/middleeast/hostages-profiles.html
+
+**Six things that caught my eye from this season's NBA GM survey**\
+`Executives across the league showed a ton of love for the Joker, Wemby and ... the Hawks?`\
+https://nytimes.com/athletic/6703733/2025/10/09/nba-gm-survey-takeaways-luka-doncic-nikola-jokic-wembanyama/
+
 **What Would Elphaba Grow? The Botanical Garden Has Some Ideas.**\
 `Striking plants of deep pinks and dark greens conjure the visual world of “Wicked” this month at the New York Botanical Garden.`\
 https://nytimes.com/2025/10/09/arts/design/wicked-new-york-botanical-garden.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/10/09/opinion/pete-hegseth-quantico-speech.html
 **USA Basketball to tab Miami Heat's Erik Spoelstra as men's head coach: Sources**\
 `Spoelstra, 54, the NBA’s winningest active coach, will take over for Steve Kerr, who stepped down after winning gold at the 2024 Olympics.`\
 https://nytimes.com/athletic/6695495/2025/10/09/usa-basketball-miami-heat-erik-spoelstra-head-coach/
-
-**At City Ballet, Jamar Roberts Brings Fresh Air to a Fashion Gala**\
-`New York City Ballet presents a new work of uncanny beauty, with costumes by Iris van Herpen, inspired by nature and technology.`\
-https://nytimes.com/2025/10/09/arts/dance/city-ballet-fashion-gala-jamar-roberts.html
-
-**Michael McLeod signs 3-year deal with KHL's Avangard Omsk**\
-`The 27-year-old forward was one of five members of the 2018 Hockey Canada team charged with sexual assault in January 2024.`\
-https://nytimes.com/athletic/6641648/2025/10/09/michael-mcleod-hockey-canada-khl/
-
-**Paris Fashion Week Goes Beyond the Ordinary**\
-`Paris Fashion Week elevated trends and, at times, transformed the familiar into the extraterrestrial. Thom Browne sent models wearing alien masks down the runway, while illuminated planets set the tone for Chanel’s show.`\
-https://nytimes.com/video/style/100000010444856/paris-fashion-week.html
-
-**22% Jump in Electricity Rates Dominates New Jersey Governor’s Race**\
-`Energy costs have become a central issue in the governor’s race between Jack Ciattarelli, the Republican, and Representative Mikie Sherrill, the Democrat.`\
-https://nytimes.com/2025/10/09/business/new-jersey-electricity-prices-governor-election.html
-
-**Lemon Sweet Rolls With Cream Cheese Icing**\
-`These sweet, lemony rolls are a fresh alternative to classic cinnamon rolls. A little cardamom in the dough and filling enhances the bright citrus flavor without overtaking it.`\
-https://nytimes.com/video/dining/100000010369201/lemon-sweet-rolls-with-cream-cheese-icing.html
 
