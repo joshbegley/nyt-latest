@@ -1,3 +1,19 @@
+**Wrexham's Max Cleworth and George Dobson are keeping promotion flame alive**\
+`Wrexham spent an unprecedented £33million on new players this summer — but two promotion heroes have been mainstays in the side`\
+https://nytimes.com/athletic/6693399/2025/10/09/wrexham-cleworth-dobson-championship/
+
+**English football, right-wing politics, and a new front in the culture wars**\
+`Populist politicians have identified England's national game as an effective way of boosting support in febrile times`\
+https://nytimes.com/athletic/6683743/2025/10/09/football-politics-starmer-farage/
+
+**Commotion, cameras and commentator tip-offs – when celebrities visit Premier League grounds**\
+`After Madonna's visit to Stamford Bridge on Saturday, we look at clubs' most famous supporters and go in search of the real die-hards`\
+https://nytimes.com/athletic/6697586/2025/10/09/celebrity-fans-premier-league-television/
+
+**'We need to do something' – Why England vs Wales will feature 22 adult mascots living with dementia**\
+`The Wembley friendly is a designated Alzheimer’s Society game, with the aim of raising awareness about the condition`\
+https://nytimes.com/athletic/6693434/2025/10/09/dementia-alzheimers-england-wales-mascots/
+
 **Takeaways from Kevin Durant’s Rockets debut: Chemistry with Şengün**\
 `Durant played 23 minutes and finished with 20 points on 7-of-10 shooting en route to a 140-127 win over the Utah Jazz.`\
 https://nytimes.com/athletic/6702257/2025/10/09/kevin-durants-houston-rockets-debut-takeaways/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/09/health/chinese-surgeons-first-pig-human-liver-tra
 **An Irish Factory Town Prospered With China. Now, Its ‘Jewel in the Crown’ Is Leaving.**\
 `China’s baby boom enriched a small Irish town where a Nestlé factory made formula for Chinese newborns. Then a baby bust unraveled it all. Or so it seemed.`\
 https://nytimes.com/2025/10/09/world/europe/ireland-china-nestle-baby-formula.html
-
-**Why Many Students in Thailand Can’t Let Their Hair Down**\
-`For decades, Thai students have been subjected to unwanted haircuts in class. Many of them carry the humiliating memory into adulthood.`\
-https://nytimes.com/2025/10/09/world/asia/thailand-school-students-haircuts.html
-
-**In Germany’s Depressed East, Tanks Are the Lesser of Two Evils**\
-`Even leaders from the far-right Alternative for Germany party, which opposes aid to Ukraine, have embraced the jobs that come with new weapons production.`\
-https://nytimes.com/2025/10/09/world/europe/germany-tanks-rearmament.html
-
-**Connections: Sports Edition Coach: Hints for Oct. 9, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6699969/2025/10/09/connections-sports-edition-hints-for-oct-9-2025/
-
-**Corrections: Oct. 9, 2025**\
-`Corrections that appeared in print on Thursday, Oct. 9, 2025.`\
-https://nytimes.com/2025/10/09/pageoneplus/corrections-oct-9-2025.html
 
