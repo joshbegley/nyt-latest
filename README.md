@@ -1,3 +1,7 @@
+**As Gaza Deal Nears, Palestinians and Israelis Cheer — and Worry**\
+`With the agreement still unsigned, people in Gaza and Israel celebrated a possible end to two years of war, but hoped they were not doing so prematurely.`\
+https://nytimes.com/2025/10/09/world/middleeast/israel-hamas-gaza-deal-reactions.html
+
 **A University Rooted in Public Purpose**\
 `The University of Michigan has advanced the public good for over 200 years.`\
 https://nytimes.com/paidpost/university-of-michigan/university-of-michigan/a-university-rooted-in-public-purpose.html
@@ -6,7 +10,7 @@ https://nytimes.com/paidpost/university-of-michigan/university-of-michigan/a-uni
 `The United States finalized a $20 billion lifeline for Argentina that will benefit Treasury Secretary Scott Bessent’s allies.`\
 https://nytimes.com/2025/10/09/us/politics/argentina-bailout-investors.html
 
-**The Briefing: England 3 Wales 0: How did Watkins do? Is Anderson a definite starter? Pickford surpasses Banks record**\
+**The Briefing — England 3 Wales 0: How did Watkins do? Is Anderson a definite starter? Pickford surpasses Banks record**\
 `Thomas Tuchel's side eased to victory at Wembley - here, our writers break down the action.`\
 https://nytimes.com/athletic/6703553/2025/10/09/england-watkins-anderson-tuchel/
 
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6703647/2025/10/09/satou-sabally-concussion-injury-
 **Appellate Judges Appear Open to Allowing Troops to Deploy to Portland**\
 `Three judges from the U.S. Court of Appeals for the Ninth Circuit are reviewing an order blocking President Trump from deploying National Guard soldiers in the city.`\
 https://nytimes.com/2025/10/09/us/national-guard-portland-appeals-court-hearing.html
-
-**Crypto Investor Known as ‘Bitcoin Jesus’ Reaches Deal With Prosecutors**\
-`In the Trump administration’s latest example of dialing back cryptocurrency enforcement, Roger Ver agreed to pay about $48 million to end a tax fraud case.`\
-https://nytimes.com/2025/10/09/technology/roger-ver-bitcoin-justice-department-deal.html
 
