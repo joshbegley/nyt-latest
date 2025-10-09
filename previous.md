@@ -1,3 +1,7 @@
+**Michael McLeod signs 3-year deal with KHL's Avangard Omsk**\
+`The 27-year-old forward was one of five members of the 2018 Hockey Canada team charged with sexual assault in January 2024.`\
+https://nytimes.com/athletic/6641648/2025/10/09/michael-mcleod-hockey-canada-khl/
+
 **Paris Fashion Week Goes Beyond the Ordinary**\
 `Paris Fashion Week elevated trends and, at times, transformed the familiar into the extraterrestrial. Thom Browne sent models wearing alien masks down the runway, while illuminated planets set the tone for Chanel’s show.`\
 https://nytimes.com/video/style/100000010444856/paris-fashion-week.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/09/world/europe/russia-azerbaijan-flight-8243-crash.
 **How to watch Rangers vs. Sabres: Time, TV, streaming**\
 `Find out how to watch the New York Rangers play the Buffalo Sabres, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6703750/2025/10/09/rangers-vs-sabres-stream-how-to-watch-oct-9/
-
-**How to watch Flyers vs. Panthers: Time, TV, streaming**\
-`Find out how to watch the Philadelphia Flyers play the Florida Panthers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6703748/2025/10/09/flyers-vs-panthers-stream-how-to-watch-oct-9/
 
