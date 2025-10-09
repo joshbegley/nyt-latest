@@ -1,3 +1,7 @@
+**For Cardinals' Marvin Harrison Jr., an emotional trip to the city where his dad starred**\
+`Arizona's game in Indianapolis offers an irresistible storyline: father and son, past and present.`\
+https://nytimes.com/athletic/6702281/2025/10/09/cardinals-marvin-harrison-jr-indianapolis-colts-father/
+
 **Troubled Wind Developer Orsted to Cut 25% of Staff**\
 `Battered by delays, higher costs and attempts by the Trump administration to block its projects in the United States, the Danish company is retreating to its base in Europe.`\
 https://nytimes.com/2025/10/09/business/orsted-wind-developer-job-cuts.html
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/6701843/2025/10/09/eagles-giants-saquon-barkley-doc
 `The world is waking up to an agreement between Israel and Hamas. We explain what we know about the breakthrough.`\
 https://nytimes.com/2025/10/09/briefing/a-gaza-deal.html
 
-**Julian Sayin has answered every step in Ohio State's progression plan**\
+**Julian Sayin, college football's most accurate QB? Ohio State's plan is on track**\
 `Ryan Day has earned his QB guru reputation, and Sayin's rapid development is going exactly how Ohio State hoped.`\
 https://nytimes.com/athletic/6702008/2025/10/09/julian-sayin-ohio-state-football-ryan-day/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6702136/2025/10/09/isack-hadjar-f1-helmet-design/
 **Astros payroll breakdown: What to expect as Houston enters a fascinating offseason**\
 `The Astros exceeded the luxury tax threshold each of the last two seasons. How does their payroll stack up at the start of this offseason?`\
 https://nytimes.com/athletic/6701261/2025/10/09/houston-astros-payroll-breakdown-2026/
-
-**College Football Week 7 oddly specific predictions: Oregon survives a scare from Indiana**\
-`Texas shows signs of life and knocks off Oklahoma, and Billy Napier and the Gators keep rolling with an upset at Texas A&M.`\
-https://nytimes.com/athletic/6700566/2025/10/09/college-football-predictions-week-7/
 
