@@ -1,3 +1,7 @@
+**'Start spreading the news!' Blue Jays manager John Schneider trolls Yankees after ALDS win**\
+`Toronto manager John Schneider started the postgame celebration by borrowing a famous lyric from Frank Sinatra's "New York, New York" song.`\
+https://nytimes.com/athletic/6702247/2025/10/08/blue-jays-john-schneider-trolls-yankees-frank-sinatra/
+
 **Oilers to sign Jack Roslovic: Sources**\
 `The 28-year-old Columbus native is entering his ninth NHL season after recording 22 goals and 39 points with Carolina last year.`\
 https://nytimes.com/athletic/6477901/2025/10/08/jack-roslovic-edmonton-oilers-contract/
