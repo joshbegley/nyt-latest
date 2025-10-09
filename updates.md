@@ -1,3 +1,19 @@
+**Is America Making God Angry?**\
+`Do Americans need to repent for their sins? In this episode of “Interesting Times,” the evangelical pastor Doug Wilson tells Ross Douthat why he believes Christian nationalism is the solution to societal decay and Americans need to “stop making God angry.”`\
+https://nytimes.com/video/opinion/100000010386068/is-america-making-god-angry.html
+
+**Insults in the Name of God**\
+`The Christian nationalist Doug Wilson says he isn’t trying to be Howard Stern but his language can be just as controversial. On this week’s “Interesting Times,” he defends his use of “naughty words” as weapons in his arsenal.`\
+https://nytimes.com/video/opinion/100000010386071/insults-in-the-name-of-god.html
+
+**A Mystery C.E.O. and Billions in Sales: Is China Buying Banned Nvidia Chips?**\
+`An executive of a Singaporean firm called Megaspeed socialized with Nvidia’s Jensen Huang. Now the company is being scrutinized by U.S. officials for its ties to China.`\
+https://nytimes.com/2025/10/09/technology/nvidia-chips-china-megaspeed.html
+
+**Jaxson Dart still has a lot to prove, but Giants's offense is playing to his strengths**\
+`Lane Kiffin's Ole Miss scheme took a lot of decision-making off Dart's plate, so the young QB is having to learn on the fly.`\
+https://nytimes.com/athletic/6703999/2025/10/09/jaxson-dart-giants-film-review-rookie/
+
 **What We Know About the Israel-Hamas Hostage Deal**\
 `President Trump said the remaining hostages held in Gaza would be released Monday or Tuesday. But the specifics of the deal remain unclear.`\
 https://nytimes.com/2025/10/09/world/middleeast/hamas-israel-hostage-deal.html
