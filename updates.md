@@ -1,3 +1,27 @@
+**Kimmel’s Tip for Troops: Camouflage Is Pointless in Chicago**\
+`“You would be better off dressed as kielbasa in Chicago,” Jimmy Kimmel advised the National Guard troops President Trump wants to deploy to the city.`\
+https://nytimes.com/2025/10/09/arts/television/jimmy-kimmel-trump-portland-chicago.html
+
+**Pushing Down, Pushing Back**\
+`What do you think this image is communicating?`\
+https://nytimes.com/2025/10/09/learning/pushing-down-pushing-back.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/10/09/crosswords/spelling-bee-forum.html
+
+**Out of This World Ideas for Dressing on Planet Earth**\
+`At Paris Fashion Week, the most exciting designs on runways and streets were beyond the ordinary but wearable.`\
+https://nytimes.com/2025/10/09/style/paris-fashion-week-runway-street-looks.html
+
+**Who Can Afford Three Kids in New York City?**\
+`The number of city households with three or more children has dropped by nearly 17 percent over the past decade as families struggle with the cost of child care and rent.`\
+https://nytimes.com/2025/10/09/nyregion/who-can-afford-three-kids-in-new-york-city.html
+
+**Star Witness in Menendez Bribery Case to Be Sentenced**\
+`Jose Uribe pleaded guilty to bribing New Jersey’s former senator, Robert Menendez, and his wife, Nadine Menendez. He went on to testify at their trials.`\
+https://nytimes.com/2025/10/09/nyregion/jose-uribe-robert-menendez-bribery-sentencing.html
+
 **China Clamps Down Even Harder on Rare Earths**\
 `The move is Beijing’s latest attempt to tighten control over global production of the metals, which are essential to the manufacturing of chips.`\
 https://nytimes.com/2025/10/09/business/china-rare-earth-exports.html
