@@ -1,3 +1,7 @@
+**A Crushing Year for Science in America**\
+`The Trump administration has sharply cut funding for scientific research and eliminated thousands of jobs. We spoke to scientists about the work that was lost.`\
+https://nytimes.com/2025/10/09/climate/lost-science-newsletter.html
+
 **Dominion, Company at Center of False 2020 Voting Conspiracies, Is Sold**\
 `The election machine manufacturer was bought by a little-known company whose founder is a former Republican election official.`\
 https://nytimes.com/2025/10/09/us/politics/dominion-voting-system-sold.html
