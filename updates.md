@@ -1,4 +1,8 @@
 **Trump revels in ‘historic’ deal between Israel and Hamas but offers few details.**\
+`By Ashley Ahn and Pranav Baskar`\
+https://nytimes.com/live/2025/10/08/world/israel-hamas-gaza-ceasefire/trump-revels-in-historic-deal-between-israel-and-hamas-but-offers-few-details
+
+**Trump revels in ‘historic’ deal between Israel and Hamas but offers few details.**\
 `President Trump`\
 https://nytimes.com/live/2025/10/08/world/israel-hamas-gaza-ceasefire/trump-revels-in-historic-deal-between-israel-and-hamas-but-offers-few-details
 

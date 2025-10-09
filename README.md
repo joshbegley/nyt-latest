@@ -1,3 +1,7 @@
+**Oilers to sign Jack Roslovic: Sources**\
+`The 28-year-old Columbus native is entering his ninth NHL season after recording 22 goals and 39 points with Carolina last year.`\
+https://nytimes.com/athletic/6477901/2025/10/08/jack-roslovic-edmonton-oilers-contract/
+
 **Trump revels in ‘historic’ deal between Israel and Hamas but offers few details.**\
 `By Ashley Ahn and Pranav Baskar`\
 https://nytimes.com/live/2025/10/08/world/israel-hamas-gaza-ceasefire/trump-revels-in-historic-deal-between-israel-and-hamas-but-offers-few-details
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6701954/2025/10/08/maple-leafs-canadiens-season-ope
 **How Portland Is Reacting to Trump’s National Guard Threat**\
 `In the days before President Trump announced that he would send troops to what he called a “war-ravaged” Portland, Ore., federal officers had described the protests there as “low energy.” Anna Griffin, who is reporting in Portland for The New York Times, describes what she’s seen there.`\
 https://nytimes.com/video/us/100000010445347/how-portland-is-reacting-to-trumps-national-guard-threat.html
-
-**What We Know About the Palisades Fire Arrest**\
-`Federal officials arrested a man they said started a small blaze in January that later rekindled and grew into the fire that devastated Pacific Palisades.`\
-https://nytimes.com/2025/10/08/us/palisades-fire-arrest-jonathan-rinderknecht.html
 
