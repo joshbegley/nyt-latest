@@ -1,3 +1,7 @@
+**Caleb Williams joins cast of investors in NWSL newcomer Boston Legacy**\
+`The former Heisman Trophy winner and No. 1 pick in the 2024 NFL Draft has joined an investor group for the Boston Legacy Football Club.`\
+https://nytimes.com/athletic/6702220/2025/10/09/caleb-williams-nwsl-boston-legacy/
+
 **Liverpool mailbag: Send your questions to James Pearce**\
 `Send your questions to our Liverpool correspondent and he will answer them next week`\
 https://nytimes.com/athletic/6703270/2025/10/09/liverpool-mailbag-send-your-questions-to-james-pearce/
