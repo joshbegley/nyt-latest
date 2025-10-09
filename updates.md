@@ -1,3 +1,12 @@
+**What we saw from Leafs' season opener: Rielly, Matthews shine, newcomers disappoint**\
+`Game 1 of 82 is in the books for the Maple Leafs after a 5-2 win over the Canadiens Wednesday night.
+`\
+https://nytimes.com/athletic/6701954/2025/10/08/maple-leafs-canadiens-season-opener-rielly-matthews/
+
+**How Portland Is Reacting to Trump’s National Guard Threat**\
+`In the days before President Trump announced that he would send troops to what he called a “war ravaged” Portland, Ore., federal officers had described the protests there as “low energy.” Anna Griffin, who is reporting in Portland for The New York Times, describes what she’s seen there.`\
+https://nytimes.com/video/us/100000010445347/how-portland-is-reacting-to-trumps-national-guard-threat.html
+
 **What We Know About the Palisades Fire Arrest**\
 `Federal officials arrested a man they said started a small blaze in January that later rekindled and grew into the fire that devastated Pacific Palisades.`\
 https://nytimes.com/2025/10/08/us/palisades-fire-arrest-jonathan-rinderknecht.html

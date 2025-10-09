@@ -1,3 +1,12 @@
+**What we saw from Leafs' season opener: Rielly, Matthews shine, newcomers disappoint**\
+`Game 1 of 82 is in the books for the Maple Leafs after a 5-2 win over the Canadiens Wednesday night.
+`\
+https://nytimes.com/athletic/6701954/2025/10/08/maple-leafs-canadiens-season-opener-rielly-matthews/
+
+**How Portland Is Reacting to Trump’s National Guard Threat**\
+`In the days before President Trump announced that he would send troops to what he called a “war ravaged” Portland, Ore., federal officers had described the protests there as “low energy.” Anna Griffin, who is reporting in Portland for The New York Times, describes what she’s seen there.`\
+https://nytimes.com/video/us/100000010445347/how-portland-is-reacting-to-trumps-national-guard-threat.html
+
 **What We Know About the Palisades Fire Arrest**\
 `Federal officials arrested a man they said started a small blaze in January that later rekindled and grew into the fire that devastated Pacific Palisades.`\
 https://nytimes.com/2025/10/08/us/palisades-fire-arrest-jonathan-rinderknecht.html
@@ -29,12 +38,4 @@ https://nytimes.com/2025/10/08/us/dinosaur-stolen-california-gas-station.html
 **Javier Báez, Riley Greene right their paths and revive the sleeping Tigers**\
 `Despite their individual struggles, the duo was everything the Tigers could have asked for in a win-or-stay-home game. `\
 https://nytimes.com/athletic/6701784/2025/10/08/javier-baez-riley-greene-detroit-tigers-alds/
-
-**What does Trump’s 20-point Gaza peace plan envision?**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2025/10/08/world/israel-hamas-gaza-ceasefire/what-does-trumps-20-point-gaza-peace-plan-envision
-
-**Cubs-Brewers Game 3 takeaways: Chicago bends but doesn't break to force Game 4**\
-`Milwaukee struck first but the Cubs responded with four runs of their own to win 4-3 and force another NLDS game at Wrigley Field.`\
-https://nytimes.com/athletic/6701817/2025/10/08/cubs-brewers-game-3-score-results-takeaways-playoffs-mlb/
 
