@@ -1,3 +1,15 @@
+**German Leaders and Auto Chiefs Team Up in Push to Relax Emissions Rules**\
+`The chancellor said he planned to urge the European Union to back off a policy that has been widely interpreted as a ban on combustion engines after 2035.`\
+https://nytimes.com/2025/10/09/business/germany-auto-industry-emissions-rules.html
+
+**Another Guilty Verdict After Appeal in Pelicot Rape Case**\
+`One of the dozens of men convicted of raping Gisèle Pelicot appealed his verdict, but a French court again found him guilty.`\
+https://nytimes.com/2025/10/09/world/europe/pelicot-rape-case.html
+
+**Astros part ways with Alex Cintrón, more coaching changes expected: Sources**\
+`Cintrón had been the team's hitting coach since 2019. More changes are expected within Astros manager Joe Espada’s 10-man coaching staff.`\
+https://nytimes.com/athletic/6703908/2025/10/09/astros-alex-cintron-coaching-departures/
+
 **Nik Bonitto's first NFL sack came in London. He returns 3 years later chasing records**\
 `Bonitto has led a Broncos pass rush that has 84 sacks since the start of the 2024 season, which is 22 more than any other team in the NFL`\
 https://nytimes.com/athletic/6699753/2025/10/09/nik-bonitto-broncos-jets-london-week-6/
