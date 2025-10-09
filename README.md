@@ -1,3 +1,11 @@
+**Customers May Openly Carry Firearms in Florida’s Publix Stores, Company Says**\
+`The supermarket chain said it was complying with state law, including a ruling last month that overturned a ban on openly carrying firearms.`\
+https://nytimes.com/2025/10/09/us/publix-stores-open-carry-florida.html
+
+**Why Are the Democrats Increasing Inequality?**\
+`When it comes to education policy, Republicans are now kicking Democrats in the butt.`\
+https://nytimes.com/2025/10/09/opinion/democrats-education-failure.html
+
 **Eagles linebacker Nakobe Dean to make season debut vs. Giants**\
 `Dean was activated off the physically unable to perform list Thursday afternoon, the team said. He will handle a limited workload.`\
 https://nytimes.com/athletic/6700567/2025/10/09/eagles-nakobe-dean-debut-giants/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/10/09/us/politics/argentina-bailout-investors.html
 **The Briefing — England 3 Wales 0: How did Watkins do? Is Anderson a definite starter? Pickford surpasses Banks record**\
 `Thomas Tuchel's side eased to victory at Wembley — here, our writers break down the action`\
 https://nytimes.com/athletic/6703553/2025/10/09/england-watkins-anderson-tuchel/
-
-**Librarian Fired in Books Dispute to Receive $700,000 Settlement**\
-`County officials in Wyoming fired Terri Lesley, a library director, after she refused to purge children and young adult books that contained sexual content and L.G.B.T.Q. themes.`\
-https://nytimes.com/2025/10/09/us/wyoming-library-settlement-book-bans-terri-lesley.html
-
-**Shedeur Sanders in a 'great mental space' as he awaits Browns' backup QB decision**\
-`"It’s up to the coaches. Whatever decision they make, then I’m fine with it," Sanders said about his position on Cleveland's depth chart. `\
-https://nytimes.com/athletic/6704444/2025/10/09/shedeur-sanders-browns-backup-quarterback/
 
