@@ -1,3 +1,7 @@
+**As brother's stardom soars, Brady Tkachuk seeks own path to NHL success**\
+`Tkachuk hopes to lead Ottawa back to the playoffs for the second consecutive year — and to build his own NHL legacy.`\
+https://nytimes.com/athletic/6697508/2025/10/09/brady-tkachuk-ottawa-senators-2025-26-season/
+
 **Bears progress report: 10 telling metrics ahead of Monday's showcase game**\
 `Heading into a showcase game with Washington, the Bears can learn a lot from some telling statistics.`\
 https://nytimes.com/athletic/6700958/2025/10/09/bears-progress-report-metrics-commanders/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6702199/2025/10/09/maple-leafs-morgan-rielly-season
 **3 surprise AFC teams that have emerged to fill contender void over Ravens**\
 `Entering the 2025 season, the AFC looked like a three-horse race between the Chiefs, Bills and Ravens. Things have changed. `\
 https://nytimes.com/athletic/6697581/2025/10/09/colts-patriots-jaguars-projections-afc-contenders/
-
-**Goaltending under fire again and Connor McDavid’s ovation – Oilers takeaways**\
-`Stuart Skinner's miscue in Wednesday’s season opener underscored why goaltending is such a hot-button topic for this team.`\
-https://nytimes.com/athletic/6702633/2025/10/09/oilers-takeaways-goaltending-skinner-mcdavid/
 
