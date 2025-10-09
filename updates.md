@@ -1,3 +1,7 @@
+**Chiefs' Chris Jones loafed on final play vs. Jags. He addressed it head-on**\
+`Jones said he thought Jaguars QB Trevor Lawrence was down on the game-winning play. The teaching lesson he'll take away is "Don't stop."`\
+https://nytimes.com/athletic/6703940/2025/10/09/chris-jones-loafing-jaguars-touchdown/
+
 **ESPN's lopsided 'Inside the NBA' schedule raises eyebrows**\
 `"Inside the NBA" will only air on ESPN four times before Christmas.`\
 https://nytimes.com/athletic/6704043/2025/10/09/inside-the-nba-espn-2025-2026-broadcast-schedule/
