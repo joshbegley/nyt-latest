@@ -1,3 +1,7 @@
+**Packers' Matt LaFleur sounds alarm on kicker injury, but Brandon McManus plans to play**\
+`McManus is 7-for-9 on field goals this season with 11 of 12 extra-point attempts made.`\
+https://nytimes.com/athletic/6704798/2025/10/09/packers-matt-lafleur-brandon-mcmanus-injury-bengals/
+
 **A Timeline of the Conflict Between Letitia James and Donald Trump**\
 `The animosity between New York’s attorney general and the U.S. president dates back years.`\
 https://nytimes.com/2025/10/09/us/politics/letitia-james-trump-conflict-timeline.html
