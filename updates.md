@@ -1,3 +1,15 @@
+**How to Manage a Divided Fed**\
+`Some at the central bank don’t feel the need to cut rates further this year; others are worried about the jobs market. That complicates the job of Jay Powellm its chair.`\
+https://nytimes.com/2025/10/09/business/dealbook/fed-rates-powell.html
+
+**How to watch the 2025-26 Dallas Mavericks in Cooper Flagg's debut season**\
+`This season, fans have a new-look Mavericks team and a new-look NBA broadcast schedule. Here's how to keep track of all the games.`\
+https://nytimes.com/athletic/6701219/2025/10/09/dallas-mavericks-nba-schedule-cooper-flagg-how-to-watch-2025-26/
+
+**Angel Reese will walk the runway in the Victoria's Secret Fashion Show**\
+`The two-time WNBA All-Star will make history as the first professional athlete to walk the famous runway.`\
+https://nytimes.com/athletic/6701864/2025/10/09/angel-reese-victorias-secret-fashion-show/
+
 **Science Practice | A Study on ‘Breath Prints’**\
 `Explore what our breath reveals about us.`\
 https://nytimes.com/2025/10/09/learning/science-practice-a-study-on-breath-prints.html
