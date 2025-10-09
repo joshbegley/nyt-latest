@@ -1,3 +1,7 @@
+**Burnley owners complete majority takeover of Espanyol**\
+`Espanyol's former owners announced in July a €130million deal had been agreed with over a 99.66 per cent stake in the La Liga club.`\
+https://nytimes.com/athletic/6702688/2025/10/09/burnley-espanyol-ownership-takeover/
+
 **She’s Like Édith Piaf (but With Techno and Teen Angst)**\
 `Zaho de Sagazan has become a shooting star of contemporary French pop music by reimagining the chanson genre for a younger, more dance-oriented audience.`\
 https://nytimes.com/2025/10/09/arts/music/zaho-de-sagazan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/09/us/politics/new-york-fed-president-backs-interest
 **Harvard Seeks Assurances as Talks Restart in Washington**\
 `University leaders are wary of a new proposal from the Trump administration to impose far-reaching changes in higher education.`\
 https://nytimes.com/2025/10/09/us/politics/harvard-trump-research-money.html
-
-**Democrats Play the Hits on Health Care. Why Fewer People Are Listening.**\
-`The basic political conflict in America has changed to something very different than the one putting health care to the fore.`\
-https://nytimes.com/2025/10/09/upshot/democrats-shutdown-health-care.html
 

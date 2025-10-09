@@ -1,3 +1,7 @@
+**She’s Like Édith Piaf (but With Techno and Teen Angst)**\
+`Zaho de Sagazan has become a shooting star of contemporary French pop music by reimagining the chanson genre for a younger, more dance-oriented audience.`\
+https://nytimes.com/2025/10/09/arts/music/zaho-de-sagazan.html
+
 **As Israelis Breathe a Sigh of Relief, Some Ask Why a Deal Took So Long**\
 `The families of hostages held in Gaza were elated that their loved ones might return soon. Still, some expressed frustration at Israel’s government.`\
 https://nytimes.com/2025/10/09/world/middleeast/israel-response-hamas-gaza-deal.html
