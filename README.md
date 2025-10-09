@@ -1,3 +1,11 @@
+**Iran, a Longtime Hamas Backer, Signals Support for Truce Deal With Israel**\
+`With its regional influence vastly diminished in the two years since the Israel-Hamas war began, Iran had a muted response to the new cease-fire agreement.`\
+https://nytimes.com/2025/10/09/world/europe/iran-hamas-truce-deal-israel-support.html
+
+**Turning Point USA announces Super Bowl halftime counterprogramming**\
+`Turning Point USA is calling its Super Bowl halftime show a celebration of "faith, family and freedom."`\
+https://nytimes.com/athletic/6704102/2025/10/09/turning-point-usa-charlie-kirk-super-bowl-halftime/
+
 **6 New Books We Love This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://nytimes.com/2025/10/09/books/review/6-new-books-we-love-this-week.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/09/us/politics/supreme-court-alex-jones.html
 **‘Boots’ Is a Sensitive Military Dramedy**\
 `Set in 1990, this Netflix series follows a young gay Marine recruit terrified of being outed.`\
 https://nytimes.com/2025/10/09/arts/television/review-boots-netflix.html
-
-**ESPN's lopsided 'Inside the NBA' schedule raises eyebrows**\
-`"Inside the NBA" will only air on ESPN four times before Christmas.`\
-https://nytimes.com/athletic/6704043/2025/10/09/inside-the-nba-espn-2025-2026-broadcast-schedule/
-
-**Tracking Tropical Storm Raymond**\
-`See the likely path and wind arrival times for Raymond`\
-https://nytimes.com/interactive/2025/weather/raymond-map-path-tracker.html
 
