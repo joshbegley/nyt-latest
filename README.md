@@ -6,8 +6,8 @@ https://nytimes.com/2025/10/09/us/politics/oklahoma-governor-national-guard.html
 `It’s hard to argue any other NFL fans love their team as much as Bills fans do. And no publicity is good publicity, unless it's Belichick.`\
 https://nytimes.com/athletic/6703789/2025/10/09/sports-gossip-show-buffalo-bills-bill-belichick-wnba-drama-nhl-wag/
 
-**What we know about the terms of the Israel-Hamas hostage deal.**\
-`By Adam Rasgon, Natan Odenheimer, Ronen Bergman and Aaron Boxerman`\
+**What We Know About the Israel-Hamas Hostage Deal**\
+`President Trump said the remaining hostages held in Gaza would be released Monday or Tuesday. But the specifics of the deal remain unclear.`\
 https://nytimes.com/2025/10/09/world/middleeast/hamas-israel-hostage-deal.html
 
 **These Rugs Are William Morris on Acid**\
