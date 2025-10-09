@@ -1,40 +1,40 @@
-**Tennis players accused of doping will receive financial and legal support from authorities**\
-`The resource deficit between top-ranked players involved in anti-doping cases and their peers has been heavily criticized in recent months.`\
-https://nytimes.com/athletic/6702621/2025/10/09/tennis-doping-cases-law-cost-support-itia/
+**Rico Dowdle ready to run at his former team: 'Bowling ball of butcher knives coming at ya'**\
+`Dowdle had a career-best game last week and gets a chance to build on it with the Cowboys visiting the Panthers on Sunday.`\
+https://nytimes.com/athletic/6701590/2025/10/09/panthers-rico-dowdle-cowboys-game/
 
-**Sailor won Vendee Globe in record time while undergoing cancer treatment**\
-`Dalin said he was diagnosed with a gastrointestinal stromal tumour in late 2023 and received immunotherapy treatment throughout the race.`\
-https://nytimes.com/athletic/6702723/2025/10/09/charlie-dalin-cancer-vendee-globe/
+**Las Vegas Aces are a win away from becoming one of the WNBA's all-time best dynasties**\
+`If the Aces close out the series, count them among the W's best-ever teams, including the Lynx and Comets.`\
+https://nytimes.com/athletic/6702538/2025/10/09/las-vegas-aces-wnba-finals-dynasty/
 
-**Yankees just wasted a golden opportunity they’ll never get back**\
-`A year after the Dodgers embarrassed them in the World Series, seizing upon their flaws, the Yankees came up even smaller vs. the Blue Jays.`\
-https://nytimes.com/athletic/6702435/2025/10/09/yankees-eliminated/
+**Eagles at Giants on TNF: Saquon Barkley's homecoming, rivalry history and TV predictions**\
+`Week 6 kicks off with the Eagles, who are atop the NFC East, visiting the last-place Giants on "Thursday Night Football."`\
+https://nytimes.com/athletic/6698152/2025/10/09/eagles-giants-tnf-saquon-barkley-how-to-watch/
 
-**Winless, the Jets arrive in London with a simple plan: ‘Keep swinging’**\
-`The week will be an important one for team-building, but the Broncos pose a major challenge for the young, 0-5 Jets on Sunday.`\
-https://nytimes.com/athletic/6701257/2025/10/09/new-york-jets-london-practice-report/
+**Brian Daboll, Mike McDaniel and other NFL coaches who could be on the hot seat**\
+`Things are looking hopeless for McDaniel and Titans coach Brian Callahan. Can Daboll save his job with some help from Jaxson Dart? `\
+https://nytimes.com/athletic/6696943/2025/10/09/brian-daboll-mike-mcdaniel-callahan-nfl-coaches-hot-seat/
 
-**Phillies 'trust harder' in Game 3 as Kyle Schwarber's mighty swings keep season alive**\
-`There is so much more to do. But the Phillies are nine more innings from sending this series back to Citizens Bank Park.`\
-https://nytimes.com/athletic/6702540/2025/10/09/phillies-game-3-kyle-schwarber-home-run-mlb-playoffs/
+**Why Russell Westbrook signing with the Houston Rockets is intriguing, but very unlikely**\
+`A Kevin Durant-Russell Westbrook reunion would be interesting in Houston, but how realistic is the idea with the Rockets' current situation?`\
+https://nytimes.com/athletic/6700785/2025/10/09/russell-westbrook-rockets-kevin-durant-nba/
 
-**4 Blue Jays, 4 revelations: The defining moments of a team just 4 wins away from the World Series**\
-`The staff ace, the future Hall of Famer, the longtime minor-leaguer and the $500 million man on when they knew this season would be special.`\
-https://nytimes.com/athletic/6702382/2025/10/09/toronto-blue-jays-alcs/
+**The Maple Leafs may have vintage Morgan Rielly back this season**\
+`The longest-tenured Leaf looks back to his best after a season of struggles.`\
+https://nytimes.com/athletic/6702199/2025/10/09/maple-leafs-morgan-rielly-season-opener/
 
-**Storm Is Expected to Bring Wild Weekend Weather Along the East Coast**\
-`It’s technically a nor’easter, but it’s too warm for snow. Here are three scenarios for what could unfold into next week.`\
-https://nytimes.com/2025/10/09/weather/east-coast-noreaster-forecast-new-york.html
+**3 surprise AFC teams that have emerged to fill contender void over Ravens**\
+`Entering the 2025 season, the AFC looked like a three-horse race between the Chiefs, Bills and Ravens. Things have changed. `\
+https://nytimes.com/athletic/6697581/2025/10/09/colts-patriots-jaguars-projections-afc-contenders/
 
-**The New York Times International Edition in Print for Friday, Oct. 10, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/10/09/todays-new-york-times-international-edition
+**Goaltending under fire again and Connor McDavid’s ovation – Oilers takeaways**\
+`Stuart Skinner's miscue in Wednesday’s season opener underscored why goaltending is such a hot-button topic for this team.`\
+https://nytimes.com/athletic/6702633/2025/10/09/oilers-takeaways-goaltending-skinner-mcdavid/
 
-**Burnley owners complete majority takeover of Espanyol**\
-`Espanyol's former owners announced in July a €130million deal had been agreed with over a 99.66 per cent stake in the La Liga club.`\
-https://nytimes.com/athletic/6702688/2025/10/09/burnley-espanyol-ownership-takeover/
+**‘Why he makes the big bucks’: How Pastrnak wins games by himself**\
+`The star winger played a role in every Bruins goal in a three-point night, impressing his new coach.`\
+https://nytimes.com/athletic/6702280/2025/10/09/bruins-season-opener-pastrnak-lindholm/
 
-**She’s Like Édith Piaf (but With Techno and Teen Angst)**\
-`Zaho de Sagazan has become a shooting star of contemporary French pop music by reimagining the chanson genre for a younger, more dance-oriented audience.`\
-https://nytimes.com/2025/10/09/arts/music/zaho-de-sagazan.html
+**What we learned on opening night about how the Canadiens will play this season**\
+`The Canadiens lost to the Maple Leafs 5-2 in the season-opener, but provided some hints of some different looks we might see this season.`\
+https://nytimes.com/athletic/6702407/2025/10/09/montreal-canadiens-opening-night/
 
