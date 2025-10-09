@@ -1,3 +1,7 @@
+**Dominion, Company at Center of False 2020 Voting Conspiracies, Is Sold**\
+`The election machine manufacturer was bought by a little-known company whose founder is a former Republican election official.`\
+https://nytimes.com/2025/10/09/us/politics/dominion-voting-system-sold.html
+
 **Hochul Attacks Trump for Withholding $34 Million in Security Funding**\
 `The New York governor criticized the Trump administration for withholding federal grant money New York relies on to fund counterterrorism efforts on mass transit.`\
 https://nytimes.com/2025/10/09/nyregion/hochul-trump-anti-terrorism-nyc-subway.html
@@ -26,15 +30,11 @@ https://nytimes.com/2025/10/09/learning/whats-going-on-in-this-picture-oct-20-20
 `With its regional influence vastly diminished in the two years since the Israel-Hamas war began, Iran had a muted response to the new cease-fire agreement.`\
 https://nytimes.com/2025/10/09/world/europe/iran-hamas-truce-deal-israel-support.html
 
-**Turning Point USA announces Super Bowl halftime counterprogramming**\
+**Turning Point USA, group founded by Charlie Kirk, announces Super Bowl halftime counterprogramming**\
 `Turning Point USA is calling its Super Bowl halftime show a celebration of "faith, family and freedom."`\
 https://nytimes.com/athletic/6704102/2025/10/09/turning-point-usa-charlie-kirk-super-bowl-halftime/
 
 **6 New Books We Love This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://nytimes.com/2025/10/09/books/review/6-new-books-we-love-this-week.html
-
-**Florida State's Ethan Pritchard released from hospital 5 weeks after being shot**\
-`Pritchard was shot while driving with family members a day after FSU’s season-opening win over Alabama.`\
-https://nytimes.com/athletic/6704072/2025/10/09/ethan-pritchard-florida-state-hospital/
 

@@ -1,3 +1,11 @@
+**Dominion, Company at Center of False 2020 Voting Conspiracies, Is Sold**\
+`The election machine manufacturer was bought by a little-known company whose founder is a former Republican election official.`\
+https://nytimes.com/2025/10/09/us/politics/dominion-voting-system-sold.html
+
+**Turning Point USA, group founded by Charlie Kirk, announces Super Bowl halftime counterprogramming**\
+`Turning Point USA is calling its Super Bowl halftime show a celebration of "faith, family and freedom."`\
+https://nytimes.com/athletic/6704102/2025/10/09/turning-point-usa-charlie-kirk-super-bowl-halftime/
+
 **Hochul Attacks Trump for Withholding $34 Million in Security Funding**\
 `The New York governor criticized the Trump administration for withholding federal grant money New York relies on to fund counterterrorism efforts on mass transit.`\
 https://nytimes.com/2025/10/09/nyregion/hochul-trump-anti-terrorism-nyc-subway.html
