@@ -1,3 +1,15 @@
+**How to watch Bears vs. Commanders: Time, TV, streaming**\
+`Find out how to watch the Chicago Bears play the Washington Commanders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6702520/2025/10/09/bears-vs-commanders-stream-how-to-watch-oct-13/
+
+**How to watch Brewers at Cubs: Game 4 Time, TV, streaming**\
+`Find out how to watch the Milwaukee Brewers play the Chicago Cubs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6702498/2025/10/09/brewers-vs-cubs-stream-how-to-watch-oct-9/
+
+**Here’s the latest.**\
+`By David M. Halbfinger, Ephrat Livni, Aaron Boxerman, Adam Rasgon and John Yoon`\
+https://nytimes.com/live/2025/10/09/world/israel-hamas-gaza-ceasefire/heres-the-latest
+
 **Word of the Day: tapestry**\
 `This word has appeared in 136 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/10/09/learning/word-of-the-day-tapestry.html
