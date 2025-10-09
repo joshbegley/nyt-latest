@@ -1,3 +1,7 @@
+**German Leaders and Auto Chiefs Team Up in Push to Relax Emissions Rules**\
+`The chancellor said he planned to urge the European Union to back off a policy that has been widely interpreted as a ban on combustion engines after 2035.`\
+https://nytimes.com/2025/10/09/business/germany-auto-industry-emissions-rules.html
+
 **Another Guilty Verdict After Appeal in Pelicot Rape Case**\
 `One of the dozens of men convicted of raping Gisèle Pelicot appealed his verdict, but a French court again found him guilty.`\
 https://nytimes.com/2025/10/09/world/europe/pelicot-rape-case.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/09/us/politics/trump-freedom-of-speech-flag-burning.
 **I Love New York, Except for the Yankees**\
 `I’m a dyed-in-the-wool New Yorker. But I can’t help rooting against the Yankees.`\
 https://nytimes.com/2025/10/09/opinion/i-love-new-york-except-for-the-yankees.html
-
-**A Skeptical Reception for Hegseth’s Quantico Talk**\
-`Readers respond to a guest essay that put Defense Secretary Pete Hegseth’s speech in a more favorable light.`\
-https://nytimes.com/2025/10/09/opinion/pete-hegseth-quantico-speech.html
 
