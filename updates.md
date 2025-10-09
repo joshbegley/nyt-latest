@@ -1,3 +1,7 @@
+**22% Jump in Electricity Rates Dominates New Jersey Governor’s Race**\
+`Energy costs have become a central issue in the governor’s race between Jack Ciattarelli, the Republican, and Representative Mikie Sherrill, the Democrat.`\
+https://nytimes.com/2025/10/09/business/new-jersey-electricity-prices-governor-election.html
+
 **Lemon Sweet Rolls With Cream Cheese Icing**\
 `These sweet, lemony rolls are a fresh alternative to classic cinnamon rolls. A little cardamom in the dough and filling enhances the bright citrus flavor without overtaking it.`\
 https://nytimes.com/video/dining/100000010369201/lemon-sweet-rolls-with-cream-cheese-icing.html
