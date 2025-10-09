@@ -1,3 +1,11 @@
+**Jim McNeely, Innovative Composer for Jazz Big Bands, Dies at 76**\
+`He was a Grammy-winning pianist renowned for works that created “new ideas about line, harmony, rhythm, sound and musical architecture,” one admirer wrote.`\
+https://nytimes.com/2025/10/09/arts/music/jim-mcneely-dead.html
+
+**Trump Has His Eyes on a Nobel Peace Prize. Will He Get It?**\
+`President Trump has coveted the prize for years. The winner will be unveiled 48 hours after President Trump announced a breakthrough in the Israel-Hamas war.`\
+https://nytimes.com/2025/10/09/us/politics/trump-nobel-peace-prize.html
+
 **NFL planning 'reimagined' Pro Bowl that will reportedly be in Super Bowl market**\
 `Details of the Pro Bowl remain unclear, but it will reportedly be in the Super Bowl market. Super Bowl LX will be in Santa Clara, Calif.`\
 https://nytimes.com/athletic/6704634/2025/10/09/nfl-pro-bowl-changes-super-bowl-market/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/10/09/business/economy/inflation-report-release-shutdow
 **Review: Is Dylan Mulvaney ‘The Least Problematic Woman in the World’?**\
 `In her bold, funny solo show, the social media influencer details a life of identity-searching, controversy and a determination to be absolutely herself.`\
 https://nytimes.com/2025/10/09/theater/least-problematic-woman-review-dylan-mulvaney.html
-
-**Trump Praises Gaza Deal, Expects Hostages Released Next Week**\
-`During a cabinet meeting on Thursday, President Trump said the war in Gaza was over but some of the most significant parts of his proposal have been left for future negotiations.`\
-https://nytimes.com/video/world/middleeast/100000010450546/world-middle-east-israel-hamas-gaza-cease-fire.html
-
-**Read the Indictment of Letitia James**\
-`The attorney general of New York, Letitia James, was charged with one count of bank fraud and one count of making false statements to a financial institution related to her purchase of a property in Norfolk, Va.`\
-https://nytimes.com/interactive/2025/10/09/us/politics/Letitia-James-indictment.html
 

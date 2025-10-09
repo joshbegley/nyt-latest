@@ -1,5 +1,9 @@
+**Nobel Prizes This Year Offer Three Cheers for Slow Science**\
+`The scientific Nobels announced this week — in Physiology or Medicine, Physics and Chemistry — honored achievements rooted in fundamental research from decades ago.`\
+https://nytimes.com/2025/10/09/science/nobel-prizes-science-basic-research.html
+
 **Jim McNeely, Innovative Composer for Jazz Big Bands, Dies at 76**\
-`He was a Grammy-winning pianist renowned for works that created “new ideas about line, harmony, rhythm, sound and musical architecture,” one admirer wrote.`\
+`A Grammy-winning pianist, he was renowned for works that created “new ideas about line, harmony, rhythm, sound and musical architecture,” one admirer wrote.`\
 https://nytimes.com/2025/10/09/arts/music/jim-mcneely-dead.html
 
 **Trump Has His Eyes on a Nobel Peace Prize. Will He Get It?**\
@@ -29,8 +33,4 @@ https://nytimes.com/2025/10/09/arts/music/drake-kendrick-lamar-not-like-us-lawsu
 **Inflation Report Will Be Released Despite Shutdown**\
 `The Bureau of Labor Statistics is calling back some employees to produce the Consumer Price Index for September. That data is needed to calculate the annual cost-of-living adjustment for Social Security beneficiaries.`\
 https://nytimes.com/2025/10/09/business/economy/inflation-report-release-shutdown.html
-
-**Review: Is Dylan Mulvaney ‘The Least Problematic Woman in the World’?**\
-`In her bold, funny solo show, the social media influencer details a life of identity-searching, controversy and a determination to be absolutely herself.`\
-https://nytimes.com/2025/10/09/theater/least-problematic-woman-review-dylan-mulvaney.html
 
