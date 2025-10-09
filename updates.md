@@ -1,3 +1,15 @@
+**Librarian Fired in Books Dispute to Receive $700,000 Settlement**\
+`County officials in Wyoming fired Terri Lesley, a library director, after she refused to purge children and young adult books that contained sexual content and L.G.B.T.Q. themes.`\
+https://nytimes.com/2025/10/09/us/wyoming-library-settlement-book-bans-terri-lesley.html
+
+**Shedeur Sanders in a 'great mental space' as he awaits Browns' backup QB decision**\
+`"It’s up to the coaches. Whatever decision they make, then I’m fine with it," Sanders said about his position on Cleveland's depth chart. `\
+https://nytimes.com/athletic/6704444/2025/10/09/shedeur-sanders-browns-backup-quarterback/
+
+**Red Sox All-Star OF Mike Greenwell dies of cancer months after diagnosis**\
+`Greenwell announced his cancer diagnosis in August to a local TV station in Lee County, Fla., where he lived. He was 62.`\
+https://nytimes.com/athletic/6704383/2025/10/09/mike-greenwell-boston-red-sox-cancer-death/
+
 **Shedeur Sanders is 'in a great mental space' as he awaits Browns' backup QB decision**\
 `"It’s up to the coaches. Whatever decision they make, then I’m fine with it," Sanders said about his position on Cleveland's depth chart. `\
 https://nytimes.com/athletic/6704444/2025/10/09/shedeur-sanders-browns-backup-quarterback/
