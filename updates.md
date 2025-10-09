@@ -1,3 +1,11 @@
+**The New York Times in Print for Thursday, Oct. 9, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/09/todays-new-york-times
+
+**I’m the Foreign Minister of Poland. This Is How to Negotiate With Putin.**\
+`The leadership of Russia must understand that its attempt to rebuild Europe’s last empire is doomed to fail.`\
+https://nytimes.com/2025/10/09/opinion/putin-poland-radoslaw-sikorski.html
+
 **Here’s the latest.**\
 `By David E. Sanger, Ephrat Livni, Aaron Boxerman, Adam Rasgon and John Yoon`\
 https://nytimes.com/live/2025/10/09/world/israel-hamas-gaza-ceasefire/heres-the-latest
