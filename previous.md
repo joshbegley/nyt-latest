@@ -1,3 +1,35 @@
+**Hochul Attacks Trump for Withholding $34 Million in Security Funding**\
+`The New York governor criticized the Trump administration for withholding federal grant money New York relies on to fund counterterrorism efforts on mass transit.`\
+https://nytimes.com/2025/10/09/nyregion/hochul-trump-anti-terrorism-nyc-subway.html
+
+**Until Saturday: Most confusing rivalry gets even murkier**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6704219/2025/10/09/texas-oklahoma-red-river-until-saturday/
+
+**Back in New York, a Reminder of the Realities in Ukraine**\
+`A visit to The New York Times’s Kyiv bureau stayed with an editor based in Manhattan. So too did the air alert app that is widely used to warn civilians of Russian military activity.`\
+https://nytimes.com/2025/10/09/insider/ukraine-russia-war-nyt-kyiv-bureau.html
+
+**These Are the 10 Old Television Series Every Kid Needs to Watch**\
+`Here’s the list of ancient shows I inflict on my daughters. What’s yours?`\
+https://nytimes.com/2025/10/09/opinion/television-series-parenting-kids-old.html
+
+**What’s Going On in This Graph? | Oct. 22, 2025**\
+`What do you notice about this graph? What do you wonder?`\
+https://nytimes.com/2025/10/09/learning/whats-going-on-in-this-graph-oct-22-2025.html
+
+**What’s Going On in This Picture? | Oct. 20, 2025**\
+`Look closely at this image, stripped of its caption, and join the moderated conversation about what you and other students see.`\
+https://nytimes.com/2025/10/09/learning/whats-going-on-in-this-picture-oct-20-2025.html
+
+**Iran, a Longtime Hamas Backer, Signals Support for Truce Deal With Israel**\
+`With its regional influence vastly diminished in the two years since the Israel-Hamas war began, Iran had a muted response to the new cease-fire agreement.`\
+https://nytimes.com/2025/10/09/world/europe/iran-hamas-truce-deal-israel-support.html
+
+**Turning Point USA announces Super Bowl halftime counterprogramming**\
+`Turning Point USA is calling its Super Bowl halftime show a celebration of "faith, family and freedom."`\
+https://nytimes.com/athletic/6704102/2025/10/09/turning-point-usa-charlie-kirk-super-bowl-halftime/
+
 **6 New Books We Love This Week**\
 `Reading recommendations from critics and editors at The New York Times.`\
 https://nytimes.com/2025/10/09/books/review/6-new-books-we-love-this-week.html
@@ -5,36 +37,4 @@ https://nytimes.com/2025/10/09/books/review/6-new-books-we-love-this-week.html
 **Florida State's Ethan Pritchard released from hospital 5 weeks after being shot**\
 `Pritchard was shot while driving with family members a day after FSU’s season-opening win over Alabama.`\
 https://nytimes.com/athletic/6704072/2025/10/09/ethan-pritchard-florida-state-hospital/
-
-**What went right for the 2025 Giants, part 1**\
-`The 2025 Giants had plenty of down moments, but lots of good moments, too. In part 1, we look at Randy Rodríguez and other bright spots.`\
-https://nytimes.com/athletic/6701224/2025/10/09/sf-giants-2025-in-review-positives/
-
-**A New Media Start-Up Goes for Old-School Flavor. And Burritos.**\
-`There were cigarettes on the tables, margaritas in hand, and a cheerful psychic for a new-media shindig.`\
-https://nytimes.com/2025/10/09/style/breaker-media-party.html
-
-**Mamdani Proposes a World Cup Czar to Boost Tourism**\
-`Zohran Mamdani, the Democratic front-runner for mayor of New York City, said a “czar” would make the soccer tournament better for fans and could maximize tourism benefits.`\
-https://nytimes.com/2025/10/09/nyregion/mamdani-world-cup-soccer.html
-
-**College football Week 7 best bets: Can Florida keep up with Texas A&M?**\
-`Austin Mock has four best bets lined up for college football's Week 7, including an over in Florida-Texas A&M.`\
-https://nytimes.com/athletic/6704081/2025/10/09/college-football-week-7-best-bets-florida-texas-am-iowa-wisconsin/
-
-**Alex Jones Asks Supreme Court to Halt $1.4 Billion Payment to Sandy Hook Families**\
-`A judge ordered Jones to pay as a result of a defamation lawsuit that he is now asking the Supreme Court to review.`\
-https://nytimes.com/2025/10/09/us/politics/supreme-court-alex-jones.html
-
-**‘Boots’ Is a Sensitive Military Dramedy**\
-`Set in 1990, this Netflix series follows a young gay Marine recruit terrified of being outed.`\
-https://nytimes.com/2025/10/09/arts/television/review-boots-netflix.html
-
-**ESPN's lopsided 'Inside the NBA' schedule raises eyebrows**\
-`"Inside the NBA" will only air on ESPN four times before Christmas.`\
-https://nytimes.com/athletic/6704043/2025/10/09/inside-the-nba-espn-2025-2026-broadcast-schedule/
-
-**Tracking Tropical Storm Raymond**\
-`See the likely path and wind arrival times for Raymond`\
-https://nytimes.com/interactive/2025/weather/raymond-map-path-tracker.html
 
