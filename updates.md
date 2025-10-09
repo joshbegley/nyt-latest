@@ -1,3 +1,7 @@
+**How to watch Bills vs. Falcons: Time, TV, streaming**\
+`Find out how to watch the Buffalo Bills play the Atlanta Falcons, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6701847/2025/10/08/bills-vs-falcons-stream-how-to-watch-oct-13/
+
 **G.O.P. Blocks Bid to Halt Trump’s Attacks in the Caribbean Sea**\
 `Republicans in the Senate blocked a measure that would terminate the president’s legally disputed campaign targeting alleged drug runners.`\
 https://nytimes.com/2025/10/08/us/politics/trump-republicans-war-powers-caribbean-venezuela.html
