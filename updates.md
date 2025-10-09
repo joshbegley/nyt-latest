@@ -1,3 +1,19 @@
+**Tracking Tropical Storm Raymond**\
+`See the likely path and wind arrival times for Raymond`\
+https://nytimes.com/interactive/2025/weather/raymond-map-path-tracker.html
+
+**Man Charged With Fatally Beating 64-Year-Old at Subway Station**\
+`A 25-year-old man attacked the victim on Tuesday at the Jay Street-MetroTech subway station in Brooklyn, according to the police. The two men did not appear to know each other.`\
+https://nytimes.com/2025/10/09/nyregion/brooklyn-nyc-subway-attack-beating.html
+
+**Chiefs' Chris Jones loafed on final play vs. Jags. He addressed it head-on Thursday**\
+`Jones said he thought Jaguars QB Trevor Lawrence was down on the game-winning play. The teaching lesson he'll take away is "Don't stop."`\
+https://nytimes.com/athletic/6703940/2025/10/09/chris-jones-loafing-jaguars-touchdown/
+
+**Democratic Alarm Over an Unbound Trump Fuels Shutdown Standoff**\
+`The threat of rising Obamacare premiums has been Democrats’ main focus in the public debate, but the president’s defiance of laws, norms and congressional constraints has helped hold them together in opposition.`\
+https://nytimes.com/2025/10/09/us/politics/democrats-shutdown-trump-administration.html
+
 **25 must-watch people in the NHL in 2025-26: McDavid pushing boundaries, Crosby's future and more**\
 `From Connor McDavid's pursuit of a Stanley Cup to Sidney Crosby's decision on his future, here's who we're watching closest in 2025-26.`\
 https://nytimes.com/athletic/6701132/2025/10/09/nhl-most-compelling-storylines-mcdavid-crosby/
