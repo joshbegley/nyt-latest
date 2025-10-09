@@ -1,3 +1,19 @@
+**Takeaways from Kevin Durant’s Rockets debut: Chemistry with Şengün**\
+`Durant played 23 minutes and finished with 20 points on 7-of-10 shooting en route to a 140-127 win over the Utah Jazz.`\
+https://nytimes.com/athletic/6702257/2025/10/09/kevin-durants-houston-rockets-debut-takeaways/
+
+**Dodgers-Phillies Game 3 takeaways: Kyle Schwarber powers up as Phillies stay alive**\
+`The Phillies tacked on five much-needed runs in the eighth, and it feels like a series again. `\
+https://nytimes.com/athletic/6701707/2025/10/09/dodgers-phillies-game-3-score-results-takeaways-playoffs-mlb/
+
+**Juventus boss Braghin on growing the women's game and risks of multi-club ownership**\
+`James Horncastle hears from Stefano Braghin about how Juventus Women plan to build on the momentum of Italian success at Euro 2025`\
+https://nytimes.com/athletic/6665221/2025/10/09/juventus-women-cantore-braghin-horncastle-multi-club-ownership/
+
+**Jaylen Brown sets tone, Josh Minott and young wings impress in Celtics' preseason win**\
+`Brown and the Celtics showed off their new playing style while controlling a short-handed Grizzlies team from the start. Boston won 121-103.`\
+https://nytimes.com/athletic/6702149/2025/10/09/celtics-preseason-win-jaylen-brown-josh-minott/
+
 **Chinese Surgeons Perform First Pig-to-Human Liver Transplant**\
 `The transplanted portion of the genetically modified pig liver was removed after 38 days, and the patient, who had advanced liver cancer and cirrhosis, died several months later.`\
 https://nytimes.com/2025/10/09/health/chinese-surgeons-first-pig-human-liver-transplant.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6699969/2025/10/09/connections-sports-edition-hints
 **Corrections: Oct. 9, 2025**\
 `Corrections that appeared in print on Thursday, Oct. 9, 2025.`\
 https://nytimes.com/2025/10/09/pageoneplus/corrections-oct-9-2025.html
-
-**Quote of the Day: He Escaped Alzheimer’s Fate. Scientists Want to Know How.**\
-`Quotation of the Day for Thursday, October 9, 2025.`\
-https://nytimes.com/2025/10/08/pageoneplus/quote-of-the-day-he-escaped-alzheimers-fate-scientists-want-to-know-how.html
-
-**How did stalled talks turn into a deal between Israel and Hamas?**\
-`By Ephrat Livni`\
-https://nytimes.com/live/2025/10/08/world/israel-hamas-gaza-ceasefire/timeline
-
-**'Start spreading the news': 'Theeee Yankees lose!' Blue Jays' Schneider, Guerrero troll N.Y.**\
-`Toronto manager John Schneider started the postgame celebration by borrowing a famous lyric from Frank Sinatra's "New York, New York" song.`\
-https://nytimes.com/athletic/6702247/2025/10/08/blue-jays-john-schneider-trolls-yankees-frank-sinatra/
-
-**Oilers sign Jack Roslovic to 1-year, $1.5 million AAV contract**\
-`The 28-year-old Columbus native is entering his ninth NHL season after recording 22 goals and 39 points with Carolina last year.`\
-https://nytimes.com/athletic/6477901/2025/10/08/jack-roslovic-edmonton-oilers-contract/
 
