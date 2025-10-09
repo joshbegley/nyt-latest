@@ -1,8 +1,12 @@
-**Shedeur Sanders is 'in a great mental space' as he awaits Browns' backup QB decision**\
+**Librarian Fired in Books Dispute to Receive $700,000 Settlement**\
+`County officials in Wyoming fired Terri Lesley, a library director, after she refused to purge children and young adult books that contained sexual content and L.G.B.T.Q. themes.`\
+https://nytimes.com/2025/10/09/us/wyoming-library-settlement-book-bans-terri-lesley.html
+
+**Shedeur Sanders in a 'great mental space' as he awaits Browns' backup QB decision**\
 `"It’s up to the coaches. Whatever decision they make, then I’m fine with it," Sanders said about his position on Cleveland's depth chart. `\
 https://nytimes.com/athletic/6704444/2025/10/09/shedeur-sanders-browns-backup-quarterback/
 
-**Red Sox Hall of Famer Mike Greenwell dies of cancer months after diagnosis**\
+**Red Sox All-Star OF Mike Greenwell dies of cancer months after diagnosis**\
 `Greenwell announced his cancer diagnosis in August to a local TV station in Lee County, Fla., where he lived. He was 62.`\
 https://nytimes.com/athletic/6704383/2025/10/09/mike-greenwell-boston-red-sox-cancer-death/
 
@@ -29,12 +33,4 @@ https://nytimes.com/athletic/6703725/2025/10/09/mlb-postseason-start-times/
 **Three More Sandwiches That Define New York City**\
 `Nashville-worthy hot chicken, avant-garde bánh mì and lonche bañado straight from Guadalajara.`\
 https://nytimes.com/2025/10/09/dining/three-more-sandwiches-that-define-new-york-city.html
-
-**Dodgers reliever Tanner Scott out of NLDS after medical procedure**\
-`The earliest pitcher would be eligible to return is the World Series, should the Dodgers advance that far.`\
-https://nytimes.com/athletic/6704421/2025/10/09/dodgers-tanner-scott-out-nlds-phillies/
-
-**How Jared Kushner, a Self-Described ‘Deal Guy,’ Helped Broker a Gaza Breakthrough**\
-`Trained in New York City real estate, the president’s son-in-law had a singular goal: Get to a yes first, and hash out the details later. “It’s just different being deal guys — just a different sport,” he said.`\
-https://nytimes.com/2025/10/09/us/politics/jared-kushner-gaza-deal.html
 
