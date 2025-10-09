@@ -1,3 +1,7 @@
+**Oilers to sign Jack Roslovic: Sources**\
+`The 28-year-old Columbus native is entering his ninth NHL season after recording 22 goals and 39 points with Carolina last year.`\
+https://nytimes.com/athletic/6477901/2025/10/08/jack-roslovic-edmonton-oilers-contract/
+
 **Trump revels in ‘historic’ deal between Israel and Hamas but offers few details.**\
 `By Ashley Ahn and Pranav Baskar`\
 https://nytimes.com/live/2025/10/08/world/israel-hamas-gaza-ceasefire/trump-revels-in-historic-deal-between-israel-and-hamas-but-offers-few-details
