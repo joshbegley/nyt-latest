@@ -1,5 +1,13 @@
+**Posts Calling Mangione Guilty Did No Harm, Top U.S. Prosecutor Argues**\
+`A judge had demanded an explanation for why Justice Department officials were publicly expressing views on Luigi Mangione’s guilt in the killing of a health insurance executive.`\
+https://nytimes.com/2025/10/08/nyregion/luigi-mangione-justice-department-posts.html
+
+**A Stolen 50-Pound Dinosaur Named Claire Is Returned After Outrage**\
+`The theft of the beloved dinosaur statue upset residents of a California community that was damaged by wildfires earlier this year. Then she was returned with an apology.`\
+https://nytimes.com/2025/10/08/us/dinosaur-stolen-california-gas-station.html
+
 **Javier Báez, Riley Greene right their paths and revive the sleeping Tigers**\
-`Despite their individual struggles, the duo was everything the Tigers could have asked for in a win or stay home game. `\
+`Despite their individual struggles, the duo was everything the Tigers could have asked for in a win-or-stay-home game. `\
 https://nytimes.com/athletic/6701784/2025/10/08/javier-baez-riley-greene-detroit-tigers-alds/
 
 **What does Trump’s 20-point Gaza peace plan envision?**\
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/10/08/world/israel-hamas-gaza-ceasefire/what-we-kn
 **Kash Patel Fires Two F.B.I. Agents Who Worked on Trump Investigation**\
 `The agents were identified in documents obtained by a Republican senator as having worked with Jack Smith, the special counsel who led the federal inquiries into Donald J. Trump.`\
 https://nytimes.com/2025/10/08/us/politics/kash-patel-fbi-agents.html
-
-**Qatar Pushes U.S.-Venezuela Diplomacy as Trump Focuses on Military Action**\
-`The Pentagon has deployed 10,000 U.S. troops to the region, most of them to bases in Puerto Rico, a senior military official said.`\
-https://nytimes.com/2025/10/08/us/politics/venezuela-trump-qatar.html
-
-**Key Moments From the Final New Jersey Governor’s Debate**\
-`Jack Ciattarelli, the Republican nominee, and Representative Mikie Sherrill, the Democrat, described starkly different visions for the state in their debate Wednesday.`\
-https://nytimes.com/2025/10/08/nyregion/new-jersey-governors-debate-ciattarelli-sherrill.html
 

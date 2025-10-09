@@ -1,3 +1,15 @@
+**Posts Calling Mangione Guilty Did No Harm, Top U.S. Prosecutor Argues**\
+`A judge had demanded an explanation for why Justice Department officials were publicly expressing views on Luigi Mangione’s guilt in the killing of a health insurance executive.`\
+https://nytimes.com/2025/10/08/nyregion/luigi-mangione-justice-department-posts.html
+
+**A Stolen 50-Pound Dinosaur Named Claire Is Returned After Outrage**\
+`The theft of the beloved dinosaur statue upset residents of a California community that was damaged by wildfires earlier this year. Then she was returned with an apology.`\
+https://nytimes.com/2025/10/08/us/dinosaur-stolen-california-gas-station.html
+
+**Javier Báez, Riley Greene right their paths and revive the sleeping Tigers**\
+`Despite their individual struggles, the duo was everything the Tigers could have asked for in a win-or-stay-home game. `\
+https://nytimes.com/athletic/6701784/2025/10/08/javier-baez-riley-greene-detroit-tigers-alds/
+
 **Javier Báez, Riley Greene right their paths and revive the sleeping Tigers**\
 `Despite their individual struggles, the duo was everything the Tigers could have asked for in a win or stay home game. `\
 https://nytimes.com/athletic/6701784/2025/10/08/javier-baez-riley-greene-detroit-tigers-alds/
