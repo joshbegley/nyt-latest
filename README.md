@@ -1,3 +1,11 @@
+**‘After the Hunt’ Review: Uncomfortable, for the Wrong Reasons**\
+`Luca Guadagnino’s campus drama falls on its face trying to court controversy.`\
+https://nytimes.com/2025/10/09/movies/after-the-hunt-review.html
+
+**Italy's footballers are wearing eye-patches in training. This is why**\
+`The innovation was spotted in an under-21 training session this week, but there is science behind it...`\
+https://nytimes.com/athletic/6702902/2025/10/09/italy-eye-patches-training/
+
 **Hamas Takes a Big Risk in Deal to Release Hostages**\
 `The Palestinian militant group is giving up much of the leverage it has with Israel, with no guarantee some of its main demands will be met.`\
 https://nytimes.com/2025/10/09/world/middleeast/hamas-israel-deal-hostage-release.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6701782/2025/10/09/fantasy-football-questions-week-
 **Here is the latest.**\
 `By Anna Griffin, Mitch Smith, Nicholas Bogel-Burroughs and Eric Schmitt`\
 https://nytimes.com/live/2025/10/09/us/trump-national-guard-chicago-portland/here-is-the-latest
-
-**Live Updates: Courts Are Set to Hear Challenges to Chicago and Portland Deployments**\
-`Lawyers for the federal government and for states that oppose deployments of National Guard troops will face off in two federal courtrooms simultaneously on Thursday.`\
-https://nytimes.com/live/2025/10/09/us/trump-national-guard-chicago-portland
-
-**Asamoah undergoes surgery on neck fracture after collision with pitchside board**\
-`The 31-year-old midfielder's head collided with a pitchside LED advertising board during a Chinese second division league match on Sunday.`\
-https://nytimes.com/athletic/6703013/2025/10/09/footballer-neck-injury-pitchside-board/
 
