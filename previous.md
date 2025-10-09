@@ -1,3 +1,15 @@
+**6 New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://nytimes.com/2025/10/09/books/review/6-new-books-we-love-this-week.html
+
+**Florida State's Ethan Pritchard released from hospital 5 weeks after being shot**\
+`Pritchard was shot while driving with family members a day after FSU’s season-opening win over Alabama.`\
+https://nytimes.com/athletic/6704072/2025/10/09/ethan-pritchard-florida-state-hospital/
+
+**What went right for the 2025 Giants, part 1**\
+`The 2025 Giants had plenty of down moments, but lots of good moments, too. In part 1, we look at Randy Rodríguez and other bright spots.`\
+https://nytimes.com/athletic/6701224/2025/10/09/sf-giants-2025-in-review-positives/
+
 **A New Media Start-Up Goes for Old-School Flavor. And Burritos.**\
 `There were cigarettes on the tables, margaritas in hand, and a cheerful psychic for a new-media shindig.`\
 https://nytimes.com/2025/10/09/style/breaker-media-party.html
@@ -10,7 +22,7 @@ https://nytimes.com/2025/10/09/nyregion/mamdani-world-cup-soccer.html
 `Austin Mock has four best bets lined up for college football's Week 7, including an over in Florida-Texas A&M.`\
 https://nytimes.com/athletic/6704081/2025/10/09/college-football-week-7-best-bets-florida-texas-am-iowa-wisconsin/
 
-**Alex Jones Asks Supreme Court to Halt $1 Billion Payment to Sandy Hook Families**\
+**Alex Jones Asks Supreme Court to Halt $1.4 Billion Payment to Sandy Hook Families**\
 `A judge ordered Jones to pay as a result of a defamation lawsuit that he is now asking the Supreme Court to review.`\
 https://nytimes.com/2025/10/09/us/politics/supreme-court-alex-jones.html
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6704043/2025/10/09/inside-the-nba-espn-2025-2026-br
 **Tracking Tropical Storm Raymond**\
 `See the likely path and wind arrival times for Raymond`\
 https://nytimes.com/interactive/2025/weather/raymond-map-path-tracker.html
-
-**Man Charged With Fatally Beating 64-Year-Old at Subway Station**\
-`A 25-year-old man attacked the victim on Tuesday at the Jay Street-MetroTech subway station in Brooklyn, according to the police. The two men did not appear to know each other.`\
-https://nytimes.com/2025/10/09/nyregion/brooklyn-nyc-subway-attack-beating.html
-
-**Chiefs' Chris Jones loafed on final play vs. Jags. He addressed it head-on**\
-`Jones said he thought Jaguars QB Trevor Lawrence was down on the game-winning play. The teaching lesson he'll take away is "Don't stop."`\
-https://nytimes.com/athletic/6703940/2025/10/09/chris-jones-loafing-jaguars-touchdown/
-
-**Democratic Alarm Over an Unbound Trump Fuels Shutdown Standoff**\
-`The threat of rising Obamacare premiums has been Democrats’ main focus in the public debate, but the president’s defiance of laws, norms and congressional constraints has helped hold them together in opposition.`\
-https://nytimes.com/2025/10/09/us/politics/democrats-shutdown-trump-administration.html
 
