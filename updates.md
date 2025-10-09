@@ -1,3 +1,7 @@
+**The Gaza Cease-Fire Is Beginning to Take Shape**\
+`Also, New York’s attorney general was indicted. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/10/09/briefing/gaza-deal-letitia-james-charges.html
+
 **Christian Pulisic arrives in form, but status in sudden doubt for USMNT vs. Ecuador**\
 `Pulisic was just named Serie A's player of the month for September, but he may not be available for the U.S. Friday night`\
 https://nytimes.com/athletic/6704677/2025/10/09/christian-pulisic-usmnt-ecuador-injury-doubt/
