@@ -1,3 +1,7 @@
+**Paris Fashion Week Goes Beyond the Ordinary**\
+`Paris Fashion Week elevated trends and, at times, transformed the familiar into the extraterrestrial. Thom Browne sent models wearing alien masks down the runway, while illuminated planets set the tone for Chanel’s show.`\
+https://nytimes.com/video/style/100000010444856/paris-fashion-week.html
+
 **22% Jump in Electricity Rates Dominates New Jersey Governor’s Race**\
 `Energy costs have become a central issue in the governor’s race between Jack Ciattarelli, the Republican, and Representative Mikie Sherrill, the Democrat.`\
 https://nytimes.com/2025/10/09/business/new-jersey-electricity-prices-governor-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6703750/2025/10/09/rangers-vs-sabres-stream-how-to-
 **How to watch Flyers vs. Panthers: Time, TV, streaming**\
 `Find out how to watch the Philadelphia Flyers play the Florida Panthers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6703748/2025/10/09/flyers-vs-panthers-stream-how-to-watch-oct-9/
-
-**How to watch Canadiens vs. Red Wings: Time, TV, streaming**\
-`Find out how to watch the Montreal Canadiens play the Detroit Red Wings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6703745/2025/10/09/canadiens-vs-red-wings-stream-how-to-watch-oct-9/
 

@@ -1,3 +1,7 @@
+**Paris Fashion Week Goes Beyond the Ordinary**\
+`Paris Fashion Week elevated trends and, at times, transformed the familiar into the extraterrestrial. Thom Browne sent models wearing alien masks down the runway, while illuminated planets set the tone for Chanel’s show.`\
+https://nytimes.com/video/style/100000010444856/paris-fashion-week.html
+
 **22% Jump in Electricity Rates Dominates New Jersey Governor’s Race**\
 `Energy costs have become a central issue in the governor’s race between Jack Ciattarelli, the Republican, and Representative Mikie Sherrill, the Democrat.`\
 https://nytimes.com/2025/10/09/business/new-jersey-electricity-prices-governor-election.html
