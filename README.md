@@ -1,10 +1,14 @@
+**Yankees-Blue Jays Game 4 takeaways: Toronto rides bullpen day back to ALCS**\
+`Manager John Schneider handed the ball to eight pitchers, navigating a stressful bullpen day to secure the Blue Jays' 5-2 clinching victory.`\
+https://nytimes.com/athletic/6701945/2025/10/08/yankees-bluejays-game-4-score-results-takeaways-playoffs-mlb/
+
 **What we saw from Leafs' season opener: Rielly, Matthews shine, newcomers disappoint**\
 `Game 1 of 82 is in the books for the Maple Leafs after a 5-2 win over the Canadiens Wednesday night.
 `\
 https://nytimes.com/athletic/6701954/2025/10/08/maple-leafs-canadiens-season-opener-rielly-matthews/
 
 **How Portland Is Reacting to Trump’s National Guard Threat**\
-`In the days before President Trump announced that he would send troops to what he called a “war ravaged” Portland, Ore., federal officers had described the protests there as “low energy.” Anna Griffin, who is reporting in Portland for The New York Times, describes what she’s seen there.`\
+`In the days before President Trump announced that he would send troops to what he called a “war-ravaged” Portland, Ore., federal officers had described the protests there as “low energy.” Anna Griffin, who is reporting in Portland for The New York Times, describes what she’s seen there.`\
 https://nytimes.com/video/us/100000010445347/how-portland-is-reacting-to-trumps-national-guard-threat.html
 
 **What We Know About the Palisades Fire Arrest**\
@@ -30,12 +34,4 @@ https://nytimes.com/athletic/6701997/2025/10/08/seattle-mariners-alds-detroit-ti
 **Posts Calling Mangione Guilty Did No Harm, Top U.S. Prosecutor Argues**\
 `A judge had demanded an explanation for why Justice Department officials were publicly expressing views on Luigi Mangione’s guilt in the killing of a health insurance executive.`\
 https://nytimes.com/2025/10/08/nyregion/luigi-mangione-justice-department-posts.html
-
-**A Stolen 50-Pound Dinosaur Named Claire Is Returned After Outrage**\
-`The theft of the beloved dinosaur statue upset residents of a California community that was damaged by wildfires earlier this year. Then she was returned with an apology.`\
-https://nytimes.com/2025/10/08/us/dinosaur-stolen-california-gas-station.html
-
-**Javier Báez, Riley Greene right their paths and revive the sleeping Tigers**\
-`Despite their individual struggles, the duo was everything the Tigers could have asked for in a win-or-stay-home game. `\
-https://nytimes.com/athletic/6701784/2025/10/08/javier-baez-riley-greene-detroit-tigers-alds/
 
