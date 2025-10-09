@@ -1,3 +1,11 @@
+**I Love New York, Except for the Yankees**\
+`I’m a dyed-in-the-wool New Yorker. But I can’t help rooting against the Yankees.`\
+https://nytimes.com/2025/10/09/opinion/i-love-new-york-except-for-the-yankees.html
+
+**USA Basketball to tab Miami Heat's Erik Spoelstra as men's head coach: Sources**\
+`Spoelstra, 54, the NBA’s winningest active coach, will take over for Steve Kerr, who stepped down after winning gold at the 2024 Olympics.`\
+https://nytimes.com/athletic/6695495/2025/10/09/usa-basketball-miami-heat-erik-spoelstra-head-coach/
+
 **A Skeptical Reception for Hegseth’s Quantico Talk**\
 `Readers respond to a guest essay that put Defense Secretary Pete Hegseth’s speech in a more favorable light.`\
 https://nytimes.com/2025/10/09/opinion/pete-hegseth-quantico-speech.html
