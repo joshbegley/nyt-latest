@@ -1,3 +1,7 @@
+**Ricky Hatton's funeral held in Manchester as thousands line the streets**\
+`Retired boxers Tyson Fury, Tony Bellew, Frank Bruno and Amir Khan were in attendance for the funeral, among many prominent sportspeople.`\
+https://nytimes.com/athletic/6706125/2025/10/10/ricky-hatton-funeral-boxing/
+
 **Bigger Fanatics Fest NYC to coincide with 2026 World Cup final**\
 `The New York City area has never hosted a World Cup final in the history of the tournament and it’s not a given that it will ever happen again following the next year’s final on July 19, 2026.`\
 https://nytimes.com/athletic/6706239/2025/10/10/fanatics-fest-2026-world-cup-final/
@@ -19,7 +23,7 @@ https://nytimes.com/2025/10/10/business/wnba-misinformation-hate-speech.html
 https://nytimes.com/2025/10/10/business/markets-stocks-bonds-investment-funds.html
 
 **Cease-Fire Begins in Gaza**\
-`Displaced Palestinians began returning to the north after the Israeli military announced that a cease-fire had taken effect starting at noon on Friday.`\
+`Displaced Palestinians began returning to the north of Gaza after the Israeli military announced a cease-fire was in effect from noon on Friday.`\
 https://nytimes.com/video/world/middleeast/100000010451483/cease-fire-begins-in-gaza.html
 
 **Peruvian President Impeached Amid Outrage Over Surging Crime**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6705090/2025/10/10/eagles-quinyon-mitchell-jalen-ca
 **Who Gained From U.S. Aid to Argentina?**\
 `Treasury Secretary Scott Bessent said stabilizing the country was in the United States’s interests. Critics say some investors may have also benefited.`\
 https://nytimes.com/2025/10/10/business/dealbook/aid-argentina-investors-bessent.html
-
-**How to watch Nikola Jokić and the Denver Nuggets this season**\
-`The Nuggets got Nikola Jokić more help after he averaged a triple-double last season. Here's how to tune in to their games in 2025-26.`\
-https://nytimes.com/athletic/6704235/2025/10/10/denver-nuggets-nikola-jokic-tv-games-how-to-watch/
 
