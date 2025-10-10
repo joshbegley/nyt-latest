@@ -1,3 +1,7 @@
+**Albert Pujols meets with Angels about managerial job, discusses potential contract: Sources**\
+`Pujols has been the favorite choice of Angels owner Arte Moreno after the club let Ron Washington go on Sept. 30.`\
+https://nytimes.com/athletic/6707683/2025/10/10/albert-pujols-angels-manager-discussion/
+
 **Marc Benioff Says Trump Should Send Guard Troops to San Francisco**\
 `Mr. Benioff, the Salesforce C.E.O. and owner of Time magazine, once supported Hillary Clinton and a business tax for homeless services. Now he’s fully behind Donald Trump.`\
 https://nytimes.com/2025/10/10/us/marc-benioff-san-francisco-guard.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/10/us/politics/trump-administration-uses-mortgage-fr
 **Seahawks DBs Devon Witherspoon, Julian Love, Riq Woolen doubtful vs. Jaguars**\
 `Seattle hasn't had its starting secondary at full strength since the first quarter of the season opener.`\
 https://nytimes.com/athletic/6707521/2025/10/10/seahawks-injuries-devon-witherspoon-julian-love/
-
-**For families of the missing, an agonizing wait.**\
-`By Eduardo Medina`\
-https://nytimes.com/live/2025/10/10/us/explosion-tennessee/for-families-of-the-missing-an-agonizing-wait
 
