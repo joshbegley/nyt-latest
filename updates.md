@@ -1,3 +1,11 @@
+**Dan Vladar strong in goal, but top offensive assets dormant in season-opening loss**\
+`The Flyers are still learning how Rick Tocchet wants to play, and the skill gap was evident against the Panthers.`\
+https://nytimes.com/athletic/6705447/2025/10/09/flyers-vladar-season-opener-panthers/
+
+**Wild top line clicks, Hartman scores twice, Gustavsson perfect vs. Blues: Takeaways**\
+`Filip Gustavsson made 27 saves as the Wild shut out the division rival St. Louis Blues 5-0 to start the 2025-26 season.`\
+https://nytimes.com/athletic/6704989/2025/10/09/wild-hartman-gustavsson-top-line-blues/
+
 **Vladar strong in goal, but top offensive weapons dormant in season-opening loss**\
 `The Flyers are still learning how Rick Tocchet wants to play, and the skill gap was evident against the Panthers.`\
 https://nytimes.com/athletic/6705447/2025/10/09/flyers-vladar-season-opener-panthers/
