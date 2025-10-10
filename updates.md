@@ -1,4 +1,12 @@
 **Referee Taylor says his family avoids matches due to abuse he receives**\
+`Taylor said the abuse he received in the aftermath of the Europa League final was the "worst situation I’ve dealt with".`\
+https://nytimes.com/athletic/6704172/2025/10/10/premier-league-anthony-taylor-abuse-family/
+
+**Sister Jean Dolores Schmidt, Basketball-Loving Chaplain at Loyola, Dies at 106**\
+`She led the Ramblers’ players in pregame prayers, pointed out opponents’ strengths and weaknesses and supported the team in N.C.A.A. tournaments.`\
+https://nytimes.com/2025/10/10/sports/ncaabasketball/sister-jean-dolores-schmidt-dead.html
+
+**Referee Taylor says his family avoids matches due to abuse he receives**\
 `Taylor said the abuse he received in the aftermath of the Europa League final was the ""worst situation I’ve dealt with".`\
 https://nytimes.com/athletic/6704172/2025/10/10/premier-league-anthony-taylor-abuse-family/
 
