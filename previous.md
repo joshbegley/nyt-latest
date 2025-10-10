@@ -1,3 +1,7 @@
+**An 'instant classic' game, an unbelievable finish, and a trip to the NLCS for the Dodgers**\
+`Andy Pages hit the ball and wound up as stunned as anyone: “I saw that he threw home, and I just thought, 'No, he threw the game away.'"`\
+https://nytimes.com/athletic/6705565/2025/10/10/dodgers-phillies-nlds-game-4-orion-kerkering/
+
 **The New York Times in Print for Friday, Oct. 10, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/10/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6705559/2025/10/10/sister-jean-dead-loyola-chicago-
 **Donyell Malen: The forward that offers a profile like no other — and how Aston Villa use him**\
 `Malen has settled in England since his move from Germany and now it seems Villa are find a way to settle him into their side`\
 https://nytimes.com/athletic/6693438/2025/10/10/donyell-malen-aston-villa-analysis/
-
-**Cubs-Brewers Game 4 takeaways: Chicago slugs its way to winner-take-all Game 5**\
-`Ian Happ, Kyle Tucker and Michael Busch each homered to swing things back to Milwaukee. `\
-https://nytimes.com/athletic/6705550/2025/10/10/cubs-brewers-game-4-score-results-takeaways-playoffs-mlb/
 

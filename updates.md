@@ -1,3 +1,7 @@
+**An 'instant classic' game, an unbelievable finish, and a trip to the NLCS for the Dodgers**\
+`Andy Pages hit the ball and wound up as stunned as anyone: “I saw that he threw home, and I just thought, 'No, he threw the game away.'"`\
+https://nytimes.com/athletic/6705565/2025/10/10/dodgers-phillies-nlds-game-4-orion-kerkering/
+
 **Sister Jean Dolores Schmidt, Loyola Basketball Superfan and Team Chaplain, Dies at 106**\
 `She led the Ramblers’ players in pregame prayers, pointed out opponents’ strengths and weaknesses and supported the team in N.C.A.A. tournaments.`\
 https://nytimes.com/2025/10/10/sports/ncaabasketball/sister-jean-dolores-schmidt-dead.html
