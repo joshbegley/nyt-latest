@@ -1,3 +1,15 @@
+**Federal Judge Temporarily Blocks National Guard Deployment in Illinois**\
+`Judge April M. Perry said the Trump administration had not established that sending in troops over the governor’s objection was legally justified. An appeal is likely.`\
+https://nytimes.com/2025/10/09/us/judge-national-guard-chicago-illinois.html
+
+**Letitia James Has Marshaled States to Sue Trump**\
+`New York’s attorney general has joined colleagues nearly 40 times to confront the administration over myriad issues as the president pressures Democratic states.`\
+https://nytimes.com/2025/10/09/us/politics/letitia-james-lawsuits-trump.html
+
+**Give Trump the Nobel for Gaza, if He Does the Hard Parts to Come**\
+`It’s a job that will take the rest of his presidency.`\
+https://nytimes.com/2025/10/09/opinion/trump-israel-nobel-gaza.html
+
 **L.A. County Considers Emergency Declaration Over Immigration Raids**\
 `The declaration would allow the Los Angeles County Board of Supervisors to enact an eviction moratorium and other protections for immigrants.`\
 https://nytimes.com/2025/10/09/us/los-angeles-county-ice-raids-emergency.html
