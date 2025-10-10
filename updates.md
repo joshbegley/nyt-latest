@@ -1,3 +1,7 @@
+**Sister Jean, beloved Loyola University Chicago basketball chaplain, dies at 106**\
+`Sister Jean rose to national prominence during the Ramblers' Cinderella run in the 2018 NCAA Tournament.`\
+https://nytimes.com/athletic/6705559/2025/10/10/sister-jean-dead-loyola-chicago-basketball/
+
 **Martin Kelly: Kicks from Suarez, a historically short England career, and why I'm retiring**\
 `The former Liverpool and Crystal Palace defender reveals why he has no regrets after a career which may never have happened`\
 https://nytimes.com/athletic/6699747/2025/10/10/martin-kelly-liverpool-england-interview/
