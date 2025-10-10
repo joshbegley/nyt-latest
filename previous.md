@@ -1,3 +1,27 @@
+**Who Is María Corina Machado, Winner of the 2025 Nobel Peace Prize?**\
+`Ms. Machado built one of Venezuela’s most important political movements, and lives in hiding from President Nicolás Maduro’s authoritarian government.`\
+https://nytimes.com/2025/10/10/world/americas/maria-corina-machado-nobel-peace-prize-venezuela.html
+
+**Electric Wrigley Field gets the W as Cubs dominate Game 4 of NLDS**\
+`It was an almost team-wide redemption story for the Cubs, who fed off the energy of the biggest, loudest crowd of the season.`\
+https://nytimes.com/athletic/6705669/2025/10/10/cubs-brewers-nlds-game-4-wrigley-field/
+
+**Cal Raleigh's on-field feats are well known. How he prepares for them is just as impressive**\
+`"It's probably four jobs," Mariners bullpen coach Tony Arnerich said. "I don’t think people realize how hard it is, what he’s doing."`\
+https://nytimes.com/athletic/6689567/2025/10/10/cal-raleigh-seattle-mariners-preparation/
+
+**The 2025-26 NHL All-Intrigue roster: One name from each team to watch this season**\
+`With the NHL regular season back at last, there's a lot to be interested in. These 32 people should get an extra look.`\
+https://nytimes.com/athletic/6704566/2025/10/10/nhl-all-intrigue-roster-2025-26/
+
+**Matthew Boyd and Daniel Palencia bounce back and Cubs fight on to Game 5**\
+`Both pitchers struggled earlier in the series against the Brewers, but were sterling in Game 4.`\
+https://nytimes.com/athletic/6705938/2025/10/10/matthew-boyd-and-daniel-palencia-bounce-back-and-cubs-fight-on-to-game-5/
+
+**Live Updates: Letitia James Is Indicted as Trump Takes Hold of Justice Dept.**\
+`The charges against the New York attorney general deepened President Trump’s intervention in the justice system, weeks after a case against the former F.B.I. director James B. Comey.`\
+https://nytimes.com/live/2025/10/10/us/trump-news
+
 **The Pulse: A season ends with instant regret**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6704061/2025/10/10/orion-kerkering-phillies-dodgers-the-pulse/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6699995/2025/10/10/nfl-tv-ratings-nielsen-big-data/
 **Trump’s Retribution Lands on Latest Target, and U.S. Troops Head to Israel**\
 `Plus, your Friday news quiz.`\
 https://nytimes.com/2025/10/10/podcasts/the-headlines/letitia-james-indictment-israel-troops.html
-
-**Caitlin Clark said the most important part of leadership is relationships. We asked an expert**\
-`“I'd say the most important part of leadership … comes down to relationships and really caring about the people you surround yourself with.”`\
-https://nytimes.com/athletic/6703407/2025/10/10/caitlin-clark-napheesa-collier-cathy-engelbert-leadership-wnba/
-
-**‘He’s trying to be the greatest of all-time’: How Aidan Hutchinson returned to form post-injury**\
-`Last year's abrupt ending had the Lions' star pass rusher asking "Why?" Now, he's back to his usual self and off to a hot start in 2025.`\
-https://nytimes.com/athletic/6701402/2025/10/10/lions-aidan-hutchinson-return-injury/
-
-**J.J. McCarthy’s health, Jordan Addison's future and more: Vikings bye-week mailbag**\
-`How confident is the Vikings staff in McCarthy? Could the team move on from Addison this offseason? How has Dallas Turner fared so far?`\
-https://nytimes.com/athletic/6703731/2025/10/10/vikings-mailbag-jj-mccarthy-jordan-addison-bye-week/
-
-**James Indictment Mirrors Her Civil Case Against Trump in Miniature**\
-`The president and New York’s attorney general accused each other of real estate fraud. But the sum involved in her case is $18,933, while millions were at stake in his.`\
-https://nytimes.com/2025/10/10/nyregion/trump-james-indictment-retribution.html
-
-**Shane Battier knows what it takes to win: 'I've lived it so I feel very passionate about it'**\
-`"The really unglorious parts of basketball, I took pride in," Battier said. "Because I knew those things all contributed to winning."`\
-https://nytimes.com/athletic/6704452/2025/10/10/shane-battier-nba-leadership-duke-heat-glue-guy/
-
-**Spoiled Yankees fans? Joe Torre says enormous expectations are part of the deal**\
-`Yankees fans are feeling hurt, angry and even betrayed after their ALDS flameout against Toronto. Blame is part of the game in the Bronx.`\
-https://nytimes.com/athletic/6705250/2025/10/10/yankees-mlb-postseason-eliminated-joe-torre-expectations/
 
