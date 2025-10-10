@@ -1,3 +1,11 @@
+**Unable to celebrate openly, Venezuelans quietly honor the country’s first Nobel laureate.**\
+`Most Venezuelans saw María Corina Machado’s Peace Prize as a recognition of their economic struggles and democratic hopes.`\
+https://nytimes.com/live/2025/10/10/world/nobel-peace-prize/quiet-celebrations-machado-venezuela
+
+**Newcastle set to appoint Nottingham Forest's Wilson as sporting director**\
+`The former Rangers sporting director is seen as one who creates a strong club culture and builds manager-supporting infrastructure.`\
+https://nytimes.com/athletic/6550794/2025/10/10/newcastle-ross-wilson-sporting-director-nottingham-forest/
+
 **The Bounce: What NBA GMs really think. Plus, we preview the Warriors and Celtics**\
 `Zach Harper catches you up on all things NBA.`\
 https://nytimes.com/athletic/6706659/2025/10/10/the-bounce-nba-warriors-celtics-wembanyama/
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6706519/2025/10/10/fantasy-football-news-week-6-dar
 **What we saw from Canucks’ opener: Demko looks elite, Chytil’s hot start, and more**\
 `Thatcher Demko was sharp early, allowing the Canucks to get their feet under them in the team's 5-1 win over the Flames. `\
 https://nytimes.com/athletic/6705912/2025/10/10/canucks-opener-flames-demko-chytil/
-
-**Why Is Taylor Swift So Polarizing? And Other Big ‘Showgirl’ Questions**\
-`Our team of Swift experts debate her blockbuster new album, “The Life of a Showgirl,” and take listener questions about its themes and controversies.`\
-https://nytimes.com/2025/10/10/arts/music/popcast-taylor-swift-showgirl-reader-questions.html
-
-**Arsenal sanctioned over ticketing breach in FA Cup match against Man Utd**\
-`The FA issued a statement Friday confirming a suspended fine after Arsenal failed to accommodate 9,000 Manchester United fans.`\
-https://nytimes.com/athletic/6706597/2025/10/10/arsenal-news-sanction-fa-man-united-fa-cup/
 
