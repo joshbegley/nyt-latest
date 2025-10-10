@@ -1,3 +1,15 @@
+**Last year’s Peace Prize was awarded to Japanese atomic bomb survivors.**\
+`Nihon Hidankyo is a group of survivors formed in the aftermath of the atomic bombings in Hiroshima and Nagasaki, and has shared thousands of testimonies.`\
+https://nytimes.com/live/2025/10/10/world/nobel-peace-prize/last-years-peace-prize-was-awarded-to-japanese-atomic-bomb-survivors
+
+**Here is the latest.**\
+`By Jonathan Wolfe`\
+https://nytimes.com/live/2025/10/10/world/nobel-peace-prize/here-is-the-latest
+
+**Live Updates: Nobel Peace Prize Is Set to Be Awarded**\
+`The recipient will be announced Friday morning in Oslo. As usual, the official list of nominees is secret.`\
+https://nytimes.com/live/2025/10/10/world/nobel-peace-prize
+
 **Powerful Earthquake Strikes Southern Philippines**\
 `A 7.4-magnitude quake rattled the southern Philippines. Several people were killed, and a tsunami warning was issued.`\
 https://nytimes.com/video/world/asia/100000010451362/philippines-mindanao-earthquake.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/10/world/europe/cindy-mccain-stroke-world-food-progr
 **High Five: The rest of the world’s top upcoming qualifiers**\
 `From Cape Verde to Curacao, here’s everything you need to know about five of the biggest matchups in World Cup qualifying this week`\
 https://nytimes.com/athletic/6705298/2025/10/10/high-five-the-rest-of-the-worlds-top-upcoming-qualifiers/
-
-**What Inspires the Best Costumes at Comic Con? A Little Childhood Trauma.**\
-`At the annual convention of comics, anime and countless expressions of nerd culture, cosplay superfans transcend their pasts and become stars for a day.`\
-https://nytimes.com/2025/10/10/nyregion/comic-con-new-york.html
-
-**Climbing a Building**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2025/10/10/learning/climbing-a-building.html
-
-**Riding the Wild Wave of Crypto Coverage**\
-`David Yaffe-Bellany, a technology reporter who has covered the cryptocurrency industry since 2022, has come to embrace learning on the fly.`\
-https://nytimes.com/2025/10/10/insider/cryptocurrency-reporing.html
 
