@@ -1,3 +1,11 @@
+**How Norway vs Israel became football's most controversial fixture**\
+`Explaining why the conflict in Gaza is providing an unsettling backdrop to a crucial World Cup qualifier`\
+https://nytimes.com/athletic/6693637/2025/10/10/how-norway-vs-israel-became-footballs-most-controversial-fixture/
+
+**Emirates, Wembley, and Arsenal's pursuit of more**\
+`In thinking that echoes the creation of the Emirates, Arsenal are analysing their capacity from a position of strength - but hurdles await`\
+https://nytimes.com/athletic/6703097/2025/10/10/emirates-upgrade-arsenal-wembley/
+
 **Why Atletico and Inter are playing a friendly in Libya after Barcelona pulled out**\
 `The two Serie A and La Liga heavyweights play a friendly in strange circumstances and at an unlikely venue tonight`\
 https://nytimes.com/athletic/6696818/2025/10/10/atletico-madrid-inter-barcelona-libya/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6702858/2025/10/10/chelsea-premier-league-enzo-mare
 **Germany’s Top Economist Charts a Path Out of Europe’s Crisis**\
 `Joachim Nagel, the president of Germany’s central bank, warned against “complacency” in European capitals over tariffs, competition with China and attacks on institutions.`\
 https://nytimes.com/2025/10/10/business/nagel-bundesbank-germany-europe-economy.html
-
-**From Reality TV Drama to Celebrating Love and Unity**\
-`For Richard Chang and Victoria Abbyaeva, appearing on Netflix’s “Bling Empire: New York” was their biggest obstacle as a couple. Their wedding showed how resilient they have become.`\
-https://nytimes.com/2025/10/10/style/victoria-abbyaeva-richard-chang-wedding.html
-
-**Negotiating the End of Us**\
-`My husband kept saying he was going to die at a young age, but we could never agree on an acceptable number.`\
-https://nytimes.com/2025/10/10/style/modern-love-negotiating-the-end-of-us.html
 

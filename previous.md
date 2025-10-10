@@ -1,3 +1,19 @@
+**Why Atletico and Inter are playing a friendly in Libya after Barcelona pulled out**\
+`The two Serie A and La Liga heavyweights play a friendly in strange circumstances and at an unlikely venue tonight`\
+https://nytimes.com/athletic/6696818/2025/10/10/atletico-madrid-inter-barcelona-libya/
+
+**The curious case of Endrick, the Real Madrid starlet who has not played in five months**\
+`It has been a whirlwind year for the 19-year-old Brazilian. Now he hopes he can get the gametime necessary to go to the World Cup`\
+https://nytimes.com/athletic/6700460/2025/10/10/endrick-real-madrid-analysis/
+
+**Carlos Vicens interview: 'Pep Guardiola is someone you don't want to let down'**\
+`The former Man City set-piece coach is now forging ahead with his own managerial career at SC Braga in Portugal`\
+https://nytimes.com/athletic/6702877/2025/10/10/carlos-vicens-interview-pep-guardiola-is-someone-you-dont-want-to-let-down/
+
+**Inside the NFL Academy: 6:30am gym sessions, school, and 68 students with a dream**\
+`The Athletic was put through drills at the NFL Academy to learn what it takes to make it to college football`\
+https://nytimes.com/athletic/6651852/2025/10/10/nfl-academy-loughborough-nfl-international-games/
+
 **Footballer-turned-referee Carl Baker on how learning to become an official saved his life**\
 `After nearly 600 games as player, Carl Baker felt lost when his football career ended - but a refereeing course has given him purpose`\
 https://nytimes.com/athletic/6703566/2025/10/10/footballer-referee-mental-health-depression/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/10/style/victoria-abbyaeva-richard-chang-wedding.htm
 **Negotiating the End of Us**\
 `My husband kept saying he was going to die at a young age, but we could never agree on an acceptable number.`\
 https://nytimes.com/2025/10/10/style/modern-love-negotiating-the-end-of-us.html
-
-**A Slow and Steady, ‘Good Old-Fashioned’ Courtship**\
-`Ashley Erling and Joshua Martin met on a double date with their best friends. Then they took a couple of weeks to go on another.`\
-https://nytimes.com/2025/10/10/style/ashley-erling-joshua-martin-wedding.html
-
-**From Fifth Grade to Forever**\
-`Rebecca Erdman and Christopher White have been an item since their senior year of high school, with one critical six-month break along the way.`\
-https://nytimes.com/2025/10/10/style/rebecca-erdman-christopher-white-wedding.html
-
-**A Promise She Was Happy to Break**\
-`Adrienne Tarver had told herself she would never date a fellow artist. Then she met Jason Karolak, an abstract painter, on an art gallery crawl.`\
-https://nytimes.com/2025/10/10/style/adrienne-tarver-jason-karolak-wedding.html
-
-**Connections: Sports Edition Coach: Hints for Oct. 10, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6703540/2025/10/10/connections-sports-edition-hints-for-oct-10-2025/
 
