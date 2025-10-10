@@ -1,3 +1,11 @@
+**Explosions Rock Kabul as Taliban Minister Visits India**\
+`Accusations rise that Pakistan struck the Afghan capital with airstrikes, but neither country would confirm the reports.`\
+https://nytimes.com/2025/10/10/world/asia/kabul-explosions-india-pakistan.html
+
+**Tracking Subtropical Storm Karen**\
+`See the likely path and wind arrival times for Karen`\
+https://nytimes.com/interactive/2025/10/10/weather/karen-map-path-tracker.html
+
 **Cindy McCain Steps Away From World Food Program During Recovery From Mild Stroke**\
 `Ms. McCain leads the world’s largest humanitarian organization focused on food insecurity. She is expected to make a full recovery.`\
 https://nytimes.com/2025/10/10/world/europe/cindy-mccain-stroke-world-food-program.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/10/arts/television/late-night-trump-peace-gaza.html
 **How to watch Tigers at Mariners: Game 5 Time, TV, streaming**\
 `Find out how to watch the Detroit Tigers play the Seattle Mariners, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6705795/2025/10/10/tigers-vs-mariners-stream-how-to-watch-oct-10/
-
-**A tough break — and another tough loss — for the Blue Jackets in Music City**\
-`Thursday's 2-1 defeat marked the 10th consecutive in Nashville for the Blue Jackets.`\
-https://nytimes.com/athletic/6704975/2025/10/10/blue-jackets-loss-predators-season-opener/
-
-**England are building a team, not just picking their best players — and it seems to be working**\
-`England beat Wales 3-0 on Thursday night. The signs are looking good ahead of next summer's World Cup`\
-https://nytimes.com/athletic/6705139/2025/10/10/england-world-cup-thomas-tuchel-analysis/
 
