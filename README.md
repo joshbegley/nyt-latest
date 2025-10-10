@@ -1,3 +1,7 @@
+**Next week’s waiver wire: Jayden Higgins and more players to add — before the Week 6 rush**\
+`John Laghezza looks ahead to help you grab Jayden Higgins, Michael Mayer, Isaiah Davis and others before the crowd catches wind. `\
+https://nytimes.com/athletic/6702960/2025/10/10/next-weeks-waiver-wire-isaiah-davis-jayden-higgins-and-more-players-to-add-before-the-week-6-rush/
+
 **The New York Times News Quiz, Oct. 10, 2025**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://nytimes.com/interactive/2025/10/10/briefing/news-quiz-israel-national-guard-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/10/us/politics/right-wing-influencers-portland.html
 **I Investigated Corruption. The Homan Affair Is Full of Red Flags.**\
 `An apparent cash handoff is yet another star in the Trump administration’s constellation of ethics problems.`\
 https://nytimes.com/2025/10/10/opinion/tom-homan-bribery-investigation.html
-
-**Why Can’t Fashion See What It Does to Women?**\
-`A season that included off-putting, sometimes cruel designs left us wondering about what it all means.`\
-https://nytimes.com/2025/10/10/style/women-designers-paris-fashion-week.html
 
