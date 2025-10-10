@@ -1,3 +1,7 @@
+**Clark Olofsson, 78, Dies; Bank Robber Helped Inspire ‘Stockholm Syndrome’**\
+`In a 1973 heist, he and another man held hostages who surprisingly came to defend them, drawing attention to a puzzling psychological phenomenon.`\
+https://nytimes.com/2025/10/10/world/europe/clark-olofsson-dead.html
+
 **Cowboys' Miles Sanders to have season-ending knee surgery**\
 `Sanders appeared in Dallas' first four games this season, logging 20 carries for 117 yards and one touchdown.`\
 https://nytimes.com/athletic/6707696/2025/10/10/miles-sanders-injury-surgery-cowboys/
