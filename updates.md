@@ -1,3 +1,7 @@
+**Marc Benioff Says Trump Should Send Guard Troops to San Francisco**\
+`Mr. Benioff, the Salesforce C.E.O. and owner of Time magazine, once supported Hillary Clinton and a business tax for homeless services. Now he’s fully behind Donald Trump.`\
+https://nytimes.com/2025/10/10/us/marc-benioff-san-francisco-guard.html
+
 **Tennessee Explosion’s Devastation Stirs Painful Memories of Flash Floods in 2021**\
 `The sheriff of Humphreys County, Tenn., said the 2021 flooding was informing his response to the Accurate Energetic Systems explosion.`\
 https://nytimes.com/2025/10/10/us/tennessee-explosions-devastation-stirs-painful-memories-of-flash-floods-in-2021.html

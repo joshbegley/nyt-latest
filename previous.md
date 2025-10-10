@@ -1,3 +1,7 @@
+**Marc Benioff Says Trump Should Send Guard Troops to San Francisco**\
+`Mr. Benioff, the Salesforce C.E.O. and owner of Time magazine, once supported Hillary Clinton and a business tax for homeless services. Now he’s fully behind Donald Trump.`\
+https://nytimes.com/2025/10/10/us/marc-benioff-san-francisco-guard.html
+
 **Tennessee Explosion’s Devastation Stirs Painful Memories of Flash Floods in 2021**\
 `The sheriff of Humphreys County, Tenn., said the 2021 flooding was informing his response to the Accurate Energetic Systems explosion.`\
 https://nytimes.com/2025/10/10/us/tennessee-explosions-devastation-stirs-painful-memories-of-flash-floods-in-2021.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6707521/2025/10/10/seahawks-injuries-devon-withersp
 **For families of the missing, an agonizing wait.**\
 `By Eduardo Medina`\
 https://nytimes.com/live/2025/10/10/us/explosion-tennessee/for-families-of-the-missing-an-agonizing-wait
-
-**Brock Purdy out, Mac Jones questionable but expected to start vs. Bucs**\
-`The Niners will also be without WR Ricky Pearsall, while the Bucs will be missing WRs Mike Evans and Chris Godwin and RB Bucky Irving.`\
-https://nytimes.com/athletic/6707266/2025/10/10/brock-purdy-mac-jones-injuries-49ers/
 
