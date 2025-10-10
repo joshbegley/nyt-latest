@@ -20,7 +20,7 @@ https://nytimes.com/athletic/6705582/2025/10/10/knicks-timberwolves-nba-preseaso
 
 **Peru Ousts President Amid Crime Surge**\
 `Growing outrage over crime and political scandals eroded support for President Dina Boluarte, the country’s most unpopular leader in recent history.`\
-https://nytimes.com/2025/10/10/world/americas/peru-ousts-president-amid-crime-surge.html
+https://nytimes.com/2025/10/10/world/americas/peru-president-boluarte-impeached.html
 
 **An 'instant classic' game, an unbelievable finish and a trip to the NLCS for the Dodgers**\
 `Andy Pages hit the ball and wound up as stunned as anyone: “I saw that he threw home, and I just thought, 'No, he threw the game away.'"`\
@@ -30,7 +30,7 @@ https://nytimes.com/athletic/6705565/2025/10/10/dodgers-phillies-nlds-game-4-ori
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/10/todays-new-york-times
 
-**Trump’s Peace Plan is Tailor-Made for Israel. It Still Might Work.**\
+**A One-Side Peace Plan Still Gives Palestinians Hope**\
 `A deal offers some possibility of a broader solution, but the hurdles are enormous.`\
 https://nytimes.com/2025/10/10/opinion/israel-gaza-hamas-peace-plan.html
 
