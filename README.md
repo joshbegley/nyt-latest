@@ -1,3 +1,15 @@
+**Large Earthquake Strikes Southern Philippines**\
+`A magnitude 7.4 quake struck the off the east coast of Mindanao, a southern Philippine island. Officials issued a tsunami warning.`\
+https://nytimes.com/2025/10/09/world/asia/philippines-mindanao-earthquake.html
+
+**Lakers fan taking LeBron to small-claims court over 'Second Decision'**\
+`After a confusing social media frenzy, L.A. fan Andrew Garcia just wants his $865 back.`\
+https://nytimes.com/athletic/6704753/2025/10/09/lakers-fan-suing-lebron-second-decision/
+
+**Spends a Lot of Time Baking**\
+`Colin Adams opens our solving weekend.`\
+https://nytimes.com/2025/10/09/crosswords/daily-puzzle-2025-10-10.html
+
 **Dodgers-Phillies Game 4 takeaways: Dodgers advance thanks to wild error in 11th**\
 `Phillies reliever Orion Kerkering booted a ground ball and threw wildly to home plate, ending a madcap series. `\
 https://nytimes.com/athletic/6704765/2025/10/09/dodgers-phillies-game-4-score-results-takeaways-playoffs-mlb/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/09/opinion/trump-israel-nobel-gaza.html
 **L.A. County Considers Emergency Declaration Over Immigration Raids**\
 `The declaration would allow the Los Angeles County Board of Supervisors to enact an eviction moratorium and other protections for immigrants.`\
 https://nytimes.com/2025/10/09/us/los-angeles-county-ice-raids-emergency.html
-
-**What a National Guard Deployment Means**\
-`John Ismay, who reports on the Pentagon for The New York Times, describes what National Guard troops and civilian law enforcement are doing in cities where President Trump has mobilized them.`\
-https://nytimes.com/video/us/100000010446054/how-trump-is-using-the-national-guard.html
-
-**Should Yankees’ Brian Cashman and Aaron Boone return? Reader poll says no**\
-`The Athletic's readers were asked to vote on whether Cashman and Boone should return. The most popular answer was to fire both.`\
-https://nytimes.com/athletic/6704945/2025/10/09/brian-cashman-aaron-boone-yankees-job-security-poll/
-
-**49ers QB Mac Jones declines to talk about body he saw pulled from marina**\
-`QB turns attention to the field, where he hopes to start vs. Buccaneers on Sunday.`\
-https://nytimes.com/athletic/6704977/2025/10/09/mac-jones-49ers-body-marina/
 
