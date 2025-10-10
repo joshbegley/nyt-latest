@@ -1,3 +1,7 @@
+**How Letitia James Will Do Her Day Job**\
+`New York state’s chief legal officer, now a criminal defendant, runs an 800-lawyer agency that is at the center of state government.`\
+https://nytimes.com/2025/10/10/us/politics/letitia-james-new-york-attorney-general-indicted.html
+
 **Forest bring in Anfield architects for new 45,000-capacity City Ground scheme**\
 `Long-standing but only recently-approved plans to expand the stadium have now been shelved, replaced by an even more ambitious redevelopment`\
 https://nytimes.com/athletic/6693578/2025/10/10/nottingham-forest-bring-in-anfield-architects-for-new-45000-capacity-city-ground-plan/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6704621/2025/10/10/joe-flacco-bengals-trade-browns-
 **The Athletic’s Friday football quiz question #76**\
 `Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
 https://nytimes.com/athletic/6703759/2025/10/10/the-athletics-friday-football-quiz-question-76/
-
-**Filip Gustavsson, after getting 'life-changing money,' shows why the Wild invested in him**\
-`ST.`\
-https://nytimes.com/athletic/6705573/2025/10/10/minnesota-wild-filip-gustavsson-season-opener/
 
