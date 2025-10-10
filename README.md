@@ -31,7 +31,7 @@ https://nytimes.com/video/world/middleeast/100000010451483/cease-fire-begins-in-
 https://nytimes.com/video/world/americas/100000010451409/peru-president-impeached-crime-boluarte.html
 
 **Injuries to key players leave Eagles' defense looking vulnerable in loss to Giants**\
-`With their offense struggling, a defensive breakdown was one thing the Eagles could not afford.`\
+`With their offense struggling, a defensive breakdown was one thing the Eagles could not afford against the Giants on Thursday night.`\
 https://nytimes.com/athletic/6705090/2025/10/10/eagles-quinyon-mitchell-jalen-carter-injured/
 
 **Who Gained From U.S. Aid to Argentina?**\

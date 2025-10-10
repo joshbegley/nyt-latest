@@ -1,3 +1,11 @@
+**Ricky Hatton's funeral held in Manchester as thousands line the streets**\
+`Retired boxers Tyson Fury, Tony Bellew, Frank Bruno and Amir Khan were in attendance for the funeral, among many prominent sportspeople.`\
+https://nytimes.com/athletic/6706125/2025/10/10/ricky-hatton-funeral-boxing/
+
+**Cease-Fire Begins in Gaza**\
+`Displaced Palestinians began returning to the north of Gaza after the Israeli military announced a cease-fire was in effect from noon on Friday.`\
+https://nytimes.com/video/world/middleeast/100000010451483/cease-fire-begins-in-gaza.html
+
 **Bigger Fanatics Fest NYC to coincide with 2026 World Cup final**\
 `The New York City area has never hosted a World Cup final in the history of the tournament and it’s not a given that it will ever happen again following the next year’s final on July 19, 2026.`\
 https://nytimes.com/athletic/6706239/2025/10/10/fanatics-fest-2026-world-cup-final/
