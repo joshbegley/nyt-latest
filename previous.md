@@ -1,3 +1,7 @@
+**Cubs believe they have enough pitching to 'survive and advance' in Game 5 and beyond**\
+`The Cubs have their bags packed for Milwaukee and a trip to Los Angeles, with the belief that their pitching staff can perform in Game 5.`\
+https://nytimes.com/athletic/6707744/2025/10/10/cubs-mlb-postseason-nlds-pitching/
+
 **Here are some other factory explosions in American history.**\
 `By Rylee Kirk`\
 https://nytimes.com/live/2025/10/10/us/explosion-tennessee/here-are-some-other-factory-explosions-in-american-history
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/10/us/politics/bondi-justice-department-james.html
 **Albert Pujols meets with Angels about managerial job, discusses potential contract: Sources**\
 `Pujols has been the favorite choice of Angels owner Arte Moreno after the club let Ron Washington go on Sept. 30.`\
 https://nytimes.com/athletic/6707683/2025/10/10/albert-pujols-angels-manager-discussion/
-
-**Marc Benioff Says Trump Should Send Guard Troops to San Francisco**\
-`Mr. Benioff, the Salesforce C.E.O. and owner of Time magazine, once supported Hillary Clinton and a business tax for homeless services. Now he’s fully behind Donald Trump.`\
-https://nytimes.com/2025/10/10/us/marc-benioff-san-francisco-guard.html
 

@@ -1,3 +1,7 @@
+**Cubs believe they have enough pitching to 'survive and advance' in Game 5 and beyond**\
+`The Cubs have their bags packed for Milwaukee and a trip to Los Angeles, with the belief that their pitching staff can perform in Game 5.`\
+https://nytimes.com/athletic/6707744/2025/10/10/cubs-mlb-postseason-nlds-pitching/
+
 **Here are some other factory explosions in American history.**\
 `By Rylee Kirk`\
 https://nytimes.com/live/2025/10/10/us/explosion-tennessee/here-are-some-other-factory-explosions-in-american-history
