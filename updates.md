@@ -1,3 +1,11 @@
+**The Lakers were already becoming Luka Dončić's team. LeBron's injury speeds up timeline**\
+`LeBron James was always going to approach his 23rd season differently. A sciatic nerve issue will make him even more conservative.`\
+https://nytimes.com/athletic/6705694/2025/10/10/lakers-lebron-luka-doncic-injury-star/
+
+**For Trump’s Aides and Officials, the Battle Online Is Always On**\
+`President Trump’s long, avid embrace of social media has been eagerly adopted by his top aides, replacing longstanding governmental norms with online ones.`\
+https://nytimes.com/2025/10/10/nyregion/trump-officials-social-media.html
+
 **What we're hearing: What's wrong with Penn State and Texas?**\
 `Plus: Memphis' makeover into a CFP contender and the Big 12's most underrated player.`\
 https://nytimes.com/athletic/6706336/2025/10/10/college-football-week-7-penn-state-texas-memphis/
