@@ -1,3 +1,11 @@
+**Stu Sternberg awarded Rays employees with significant bonuses after selling the team: Sources**\
+`Sternberg sold the Rays in late September and issued significant bonuses to all full-time employees of the team.`\
+https://nytimes.com/athletic/6707644/2025/10/10/tampa-bay-rays-stu-sternberg-employee-bonuses/
+
+**Philadelphia fans, here's your worst nightmare. Phillies, Eagles, Flyers go down in one night**\
+`The City of Brotherly Love is no stranger to nights of heartbreak, but Thursday night was particularly brutal. `\
+https://nytimes.com/athletic/6707355/2025/10/10/philadelphia-nightmare-phillies-eagles-flyers-lose/
+
 **Guerrero Jr. continuing family legacy in playoffs. Who are other MLB father-son duos?**\
 `The Guerreros join a list that includes Bobby and Barry Bonds as some of the most accomplished father-and-son MLB duos.`\
 https://nytimes.com/athletic/6704247/2025/10/10/vladimir-guerrero-jr-mlb-father-son-duos/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/10/sports/tennis/nikola-pilic-dead.html
 **How Robert Redford Epitomized Movie Stardom**\
 `“Movie stars! They’re basically actors who we — and our wallets — have fallen in love with.” Wesley Morris and “The Rewatchables” host Bill Simmons talk about Robert Redford’s career and whether his brand of movie stardom is even possible today on this week’s episode of “Cannonball.”`\
 https://nytimes.com/video/podcasts/100000010442969/how-robert-redford-epitomized-movie-stardom.html
-
-**Wesley Morris on the Best Easter Egg in ‘One Battle After Another’**\
-`Paul Thomas Anderson is a very rare figure in Hollywood — he’s widely considered to be one of the very best directors of his generation. Wesley Morris is an increasingly conflicted lover of the new Paul Thomas Anderson movie, “One Battle After Another.” On “Cannonball,” Morris explains why.`\
-https://nytimes.com/video/podcasts/100000010453006/wesley-morris-on-the-best-easter-egg-in-one-battle-after-another.html
-
-**Overlooked No More: Violeta Parra, Folk ‘Genius’ Who Redefined Latin American Music**\
-`A self-taught composer and interpreter, she led an unconventional and itinerant life devoted to spreading Chilean folkloric music.`\
-https://nytimes.com/2025/10/10/obituaries/violeta-parra-overlooked.html
 
