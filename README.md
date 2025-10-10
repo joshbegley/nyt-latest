@@ -1,3 +1,11 @@
+**Matthew Boyd and Daniel Palencia bounce back and Cubs fight on to Game 5**\
+`Both pitchers struggled earlier in the series against the Brewers, but were sterling in Game 4.`\
+https://nytimes.com/athletic/6705938/2025/10/10/matthew-boyd-and-daniel-palencia-bounce-back-and-cubs-fight-on-to-game-5/
+
+**Live Updates: Letitia James Is Indicted as Trump Takes Hold of Justice Dept.**\
+`The charges against the New York attorney general deepened President Trump’s intervention in the justice system, weeks after a case against the former F.B.I. director James B. Comey.`\
+https://nytimes.com/live/2025/10/10/us/trump-news
+
 **The Pulse: A season ends with instant regret**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6704061/2025/10/10/orion-kerkering-phillies-dodgers-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6703731/2025/10/10/vikings-mailbag-jj-mccarthy-jord
 **James Indictment Mirrors Her Civil Case Against Trump in Miniature**\
 `The president and New York’s attorney general accused each other of real estate fraud. But the sum involved in her case is $18,933, while millions were at stake in his.`\
 https://nytimes.com/2025/10/10/nyregion/trump-james-indictment-retribution.html
-
-**Shane Battier knows what it takes to win: 'I've lived it so I feel very passionate about it'**\
-`"The really unglorious parts of basketball, I took pride in," Battier said. "Because I knew those things all contributed to winning."`\
-https://nytimes.com/athletic/6704452/2025/10/10/shane-battier-nba-leadership-duke-heat-glue-guy/
-
-**Spoiled Yankees fans? Joe Torre says enormous expectations are part of the deal**\
-`Yankees fans are feeling hurt, angry and even betrayed after their ALDS flameout against Toronto. Blame is part of the game in the Bronx.`\
-https://nytimes.com/athletic/6705250/2025/10/10/yankees-mlb-postseason-eliminated-joe-torre-expectations/
 

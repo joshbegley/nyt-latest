@@ -1,3 +1,7 @@
+**The Pulse: A season ends with instant regret**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6704061/2025/10/10/orion-kerkering-phillies-dodgers-the-pulse/
+
 **The Canucks have two players named Elias Pettersson. The NHL's Greg Adamses can relate**\
 `Greg "Eddie" Adams and Greg "Gus" Adams made history in 1988-89 as the NHL's first same-named teammates. Then they became good friends.`\
 https://nytimes.com/athletic/6701856/2025/10/10/elias-pettersson-greg-adams-canucks-nhl/

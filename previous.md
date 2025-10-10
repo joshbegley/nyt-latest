@@ -1,3 +1,7 @@
+**The Pulse: A season ends with instant regret**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6704061/2025/10/10/orion-kerkering-phillies-dodgers-the-pulse/
+
 **The Canucks have two players named Elias Pettersson. The NHL's Greg Adamses can relate**\
 `Greg "Eddie" Adams and Greg "Gus" Adams made history in 1988-89 as the NHL's first same-named teammates. Then they became good friends.`\
 https://nytimes.com/athletic/6701856/2025/10/10/elias-pettersson-greg-adams-canucks-nhl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6704452/2025/10/10/shane-battier-nba-leadership-duk
 **Spoiled Yankees fans? Joe Torre says enormous expectations are part of the deal**\
 `Yankees fans are feeling hurt, angry and even betrayed after their ALDS flameout against Toronto. Blame is part of the game in the Bronx.`\
 https://nytimes.com/athletic/6705250/2025/10/10/yankees-mlb-postseason-eliminated-joe-torre-expectations/
-
-**Defensive lapses turn Red Wings' season opener into a nightmare: 5 thoughts**\
-`For the second straight year, the Red Wings were booed off the ice in their home opener.`\
-https://nytimes.com/athletic/6705351/2025/10/10/red-wings-season-opener-mclellan-larkin-canadiens/
 
