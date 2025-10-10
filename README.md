@@ -1,6 +1,6 @@
 **Flashback: Your Weekly History Quiz, Oct. 11, 2025**\
 `Can you sort 8 historical events?`\
-https://nytimes.com/interactive/2025/10/10/upshot/flashback-2025-10-11.html
+https://nytimes.com/interactive/2025/10/10/upshot/flashback.html
 
 **What to Know About ‘Gen Z Protests’ Around the World**\
 `Gen Z protests are raging against political establishments across the world, from Madagascar to Nepal. Katrin Bennhold and Hannah Beech, reporters for The New York Times, discuss what is causing these protests and why an anime-inspired symbol keeps appearing at demonstrations.`\
@@ -22,7 +22,7 @@ https://nytimes.com/2025/10/10/us/politics/melania-trump-putin-ukraine-children.
 `Broncos owner Greg Penner paints broad next steps for the franchise with its new stadium project.`\
 https://nytimes.com/athletic/6706953/2025/10/10/broncos-jets-leicester-panthers-london/
 
-**White House Disapproves of Machado’s Nobel, but Rubio Has Been a Big Supporter**\
+**White House Disapproves of Machado’s Nobel, but Rubio Is a Big Supporter**\
 `Marco Rubio was among eight Republican lawmakers who last year called the Venezuelan opposition leader “courageous and selfless” in a Nobel Prize nomination letter. Trump wanted the honor.`\
 https://nytimes.com/2025/10/10/us/politics/nobel-trump-rubio-venezuela.html
 

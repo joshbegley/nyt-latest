@@ -1,3 +1,19 @@
+**Flashback: Your Weekly History Quiz, Oct. 11, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/10/10/upshot/flashback-2025-10-11.html
+
+**What to Know About ‘Gen Z Protests’ Around the World**\
+`Gen Z protests are raging against political establishments across the world, from Madagascar to Nepal. Katrin Bennhold and Hannah Beech, reporters for The New York Times, discuss what is causing these protests and why an anime-inspired symbol keeps appearing at demonstrations.`\
+https://nytimes.com/video/world/100000010444933/what-to-know-about-gen-z-protests-around-the-world.html
+
+**Brandon Taylor Discusses His New Novel**\
+`“Minor Black Figures” encompasses race, class, religion and art, but at its heart it’s really about “what happens when you encounter a priest at a bar one hazy summer night in New York.”`\
+https://nytimes.com/2025/10/10/books/review/podcast-brandon-taylor-interview.html
+
+**How Broncos expanded their 'unprecedented' youth helmet initiative to UK**\
+`Broncos owner Greg Penner paints broad next steps for the franchise with its new stadium project.`\
+https://nytimes.com/athletic/6706953/2025/10/10/broncos-jets-leicester-panthers-london/
+
 **Holding Back Tears, Prince William Shows a New Side of a Future King**\
 `In two video encounters — one discussing the impact of suicide, and a more lighthearted conversation with Eugene Levy — the heir to the British throne opened up, a little.`\
 https://nytimes.com/2025/10/10/world/europe/prince-william-interviews-mental-health-monarchy.html
