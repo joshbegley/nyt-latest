@@ -1,3 +1,11 @@
+**White House Disapproves of Machado’s Nobel, but Rubio Has Been a Big Supporter**\
+`Marco Rubio was among eight Republican lawmakers who last year called the Venezuelan opposition leader “courageous and selfless” in a Nobel Prize nomination letter. Trump wanted the honor.`\
+https://nytimes.com/2025/10/10/us/politics/nobel-trump-rubio-venezuela.html
+
+**Browns name Sanders as No. 2 QB over Zappe ahead of game vs. Steelers**\
+`The Browns have Bailey Zappe on the practice squad, but unless they sign him to the active roster, they'll have just two active QBs Sunday.`\
+https://nytimes.com/athletic/6706758/2025/10/10/browns-shedeur-sanders-bailey-zappe-quarterback/
+
 **Peter M. Fishbein, Lawyer Accused in Savings-and-Loan Lawsuit, Dies at 91**\
 `His firm’s $41 million settlement in representing Charles H. Keating Jr. raised questions about government overreach.`\
 https://nytimes.com/2025/10/10/us/politics/peter-fishbein-dead.html

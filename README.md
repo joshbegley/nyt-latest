@@ -1,3 +1,7 @@
+**How the Broncos expanded their 'unprecedented' youth helmet initiative to the UK**\
+`Broncos owner Greg Penner paints broad next steps for the franchise with its new stadium project.`\
+https://nytimes.com/athletic/6706953/2025/10/10/broncos-jets-leicester-panthers-london/
+
 **White House Disapproves of Machado’s Nobel, but Rubio Has Been a Big Supporter**\
 `Marco Rubio was among eight Republican lawmakers who last year called the Venezuelan opposition leader “courageous and selfless” in a Nobel Prize nomination letter. Trump wanted the honor.`\
 https://nytimes.com/2025/10/10/us/politics/nobel-trump-rubio-venezuela.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6704359/2025/10/10/college-football-week-7-projecte
 **Passions, Not Personas**\
 `Modern advertising tools and strategies fueled by consumer passions, values and communities help form a fuller, more accurate picture of today’s audiences.`\
 https://nytimes.com/paidpost/amazon-ads/passions-not-personas.html
-
-**‘Matlock’ Actor Leaves Series After CBS Investigation**\
-`David Del Rio portrayed a young lawyer on one of television’s most popular shows.`\
-https://nytimes.com/2025/10/10/arts/television/matlock-david-del-rio.html
 

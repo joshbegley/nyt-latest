@@ -1,3 +1,11 @@
+**White House Disapproves of Machado’s Nobel, but Rubio Has Been a Big Supporter**\
+`Marco Rubio was among eight Republican lawmakers who last year called the Venezuelan opposition leader “courageous and selfless” in a Nobel Prize nomination letter. Trump wanted the honor.`\
+https://nytimes.com/2025/10/10/us/politics/nobel-trump-rubio-venezuela.html
+
+**Browns name Sanders as No. 2 QB over Zappe ahead of game vs. Steelers**\
+`The Browns have Bailey Zappe on the practice squad, but unless they sign him to the active roster, they'll have just two active QBs Sunday.`\
+https://nytimes.com/athletic/6706758/2025/10/10/browns-shedeur-sanders-bailey-zappe-quarterback/
+
 **Peter M. Fishbein, Lawyer Accused in Savings-and-Loan Lawsuit, Dies at 91**\
 `His firm’s $41 million settlement in representing Charles H. Keating Jr. raised questions about government overreach.`\
 https://nytimes.com/2025/10/10/us/politics/peter-fishbein-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/paidpost/amazon-ads/passions-not-personas.html
 **‘Matlock’ Actor Leaves Series After CBS Investigation**\
 `David Del Rio portrayed a young lawyer on one of television’s most popular shows.`\
 https://nytimes.com/2025/10/10/arts/television/matlock-david-del-rio.html
-
-**Scoop City: Fixing Philly, previewing Week 6 and non-Manning CFB QBs to watch**\
-`Why a return to the RPO could help Philly, matchups to watch in 49ers-Buccaneers and Lions-Chiefs, plus a look at CFB's top QBs`\
-https://nytimes.com/athletic/6707033/2025/10/10/simple-way-to-fix-the-eagles-plus-week-6-matchups-non-manning-cfb-qbs-to-watch/
-
-**Hope and Anxiety Over Israel-Gaza Peace**\
-`Readers respond to the rapidly developing events in the Middle East. Also: The virtues of coal; three hours with Velázquez.`\
-https://nytimes.com/2025/10/10/opinion/israel-gaza-peace.html
 
