@@ -1,3 +1,7 @@
+**Next week’s waiver wire: Jayden Higgins and more players to add — before the Week 6 rush**\
+`John Laghezza looks ahead to help you grab Jayden Higgins, Michael Mayer, Isaiah Davis and others before the crowd catches wind. `\
+https://nytimes.com/athletic/6702960/2025/10/10/next-weeks-waiver-wire-isaiah-davis-jayden-higgins-and-more-players-to-add-before-the-week-6-rush/
+
 **The New York Times News Quiz, Oct. 10, 2025**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://nytimes.com/interactive/2025/10/10/briefing/news-quiz-israel-national-guard-trump.html
