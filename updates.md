@@ -1,3 +1,7 @@
+**Hayley Williams on Paramore’s Relationship With Its Black Fans**\
+`Paramore’s Hayley Williams talks about the bands relationship with its Black fans and fostering a sense of community at their shows.`\
+https://nytimes.com/video/podcasts/100000010452330/hayley-williams-on-paramores-relationship-with-its-black-fans.html
+
 **Orion Kerkering's error in the MLB playoffs was brutal, but his response was admirable**\
 `In the moments after the Phillies' heartbreaking loss, Kerkering did the simplest thing an athlete can do after a mistake. He owned it. `\
 https://nytimes.com/athletic/6707397/2025/10/10/phillies-orion-kerkering-pitcher-error-response/

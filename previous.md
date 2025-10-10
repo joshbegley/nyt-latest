@@ -1,3 +1,7 @@
+**Hayley Williams on Paramore’s Relationship With Its Black Fans**\
+`Paramore’s Hayley Williams talks about the bands relationship with its Black fans and fostering a sense of community at their shows.`\
+https://nytimes.com/video/podcasts/100000010452330/hayley-williams-on-paramores-relationship-with-its-black-fans.html
+
 **Orion Kerkering's error in the MLB playoffs was brutal, but his response was admirable**\
 `In the moments after the Phillies' heartbreaking loss, Kerkering did the simplest thing an athlete can do after a mistake. He owned it. `\
 https://nytimes.com/athletic/6707397/2025/10/10/phillies-orion-kerkering-pitcher-error-response/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/10/business/stock-market-trump-tariffs.html
 **María Corina Machado, Venezuela Opposition Leader, Is Awarded Nobel Peace Prize**\
 `Ms. Machado galvanized a movement that independent analysts say won last year’s election, only to have it stolen by President Nicolás Maduro.`\
 https://nytimes.com/2025/10/10/world/americas/machado-venezuela-nobel-peace-prize.html
-
-**Ancient Roman Gravestone Found in New Orleans Backyard Touches Off a Mystery**\
-`Nobody knew how a nearly 2,000-year-old grave marker landed in a backyard for decades — until this week.`\
-https://nytimes.com/2025/10/10/us/roman-tablet-new-orleans.html
 
