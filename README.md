@@ -1,3 +1,7 @@
+**María Corina Machado, Venezuela Opposition Leader, Is Awarded Nobel Peace Prize**\
+`Ms. Machado galvanized a movement that independent analysts say won last year’s election, only to have it stolen by President Nicolás Maduro.`\
+https://nytimes.com/2025/10/10/world/americas/machado-venezuela-nobel-peace-prize.html
+
 **Ancient Roman Gravestone Found in New Orleans Backyard Touches Off a Mystery**\
 `Nobody knew how a nearly 2,000-year-old grave marker landed in a backyard for decades — until this week.`\
 https://nytimes.com/2025/10/10/us/roman-tablet-new-orleans.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/sports/basketball/100000010452426/sister-jean-chicago-
 **Josh Norris, Zach Benson injuries add to Sabres' early-season adversity**\
 `It's only the start of the regular season but the shorthanded Sabres will have their work cut out for them.`\
 https://nytimes.com/athletic/6707261/2025/10/10/josh-norris-injury-sabres-zach-benson/
-
-**Islanders' Drouin suspended 1 game for cross-checking Penguins' Dewar**\
-`Drouin will forfeit $20,833.33, money that will go into the player’s emergency assistance fund.`\
-https://nytimes.com/athletic/6707291/2025/10/10/drouin-suspension-dewar-islanders-penguins/
 
