@@ -1,3 +1,11 @@
+**Indonesia will bar Israeli athletes from World Gymnastics Championships**\
+`An Indonesian official announced the decision in step with the country's "commitment to supporting Palestinian independence."`\
+https://nytimes.com/athletic/6705264/2025/10/10/israel-indonesia-world-gymnastics-championships/
+
+**Lowetide: Projecting McDavid's future and how Oilers need to build around him**\
+`Is there enough on the Oilers roster around McDavid to win the Stanley Cup in the next three seasons?`\
+https://nytimes.com/athletic/6643040/2025/10/10/connor-mcdavid-contract-oilers-roster/
+
 **Review: Paris Opera Ballet Unrolls a Lackluster ‘Red Carpet’**\
 `The esteemed company presents a full-length contemporary work by Hofesh Shechter at New York City Center. Forget about pointe shoes. This is Chanel in socks.`\
 https://nytimes.com/2025/10/10/arts/dance/review-paris-opera-ballet-red-carpet.html

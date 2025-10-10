@@ -1,3 +1,7 @@
+**Senator cautions Big Ten presidents about private capital in letter, urges transparency**\
+`Sen. Maria Cantwell questioned whether the Big Ten's media rights revenue could stay tax-exempt if a private investor buys a stake.`\
+https://nytimes.com/athletic/6706749/2025/10/10/senator-maria-cantwell-big-ten-private-equity/
+
 **Indonesia will bar Israeli athletes from World Gymnastics Championships**\
 `An Indonesian official announced the decision in step with the country's "commitment to supporting Palestinian independence."`\
 https://nytimes.com/athletic/6705264/2025/10/10/israel-indonesia-world-gymnastics-championships/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/10/us/young-lords-lincoln-hospital-addiction.html
 **Venezuela’s María Corina Machado Is Awarded 2025 Nobel Peace Prize**\
 `The 2025 Nobel Peace Prize was awarded to María Corina Machado, a pro-democracy opposition leader in exile who mobilized Venezuelans against President Nicolás Maduro’s authoritarian government.`\
 https://nytimes.com/video/world/americas/100000010451901/nobel-peace-prize-venezuela-machado.html
-
-**A.J. Brown: 'I don't recall' meeting with Jalen Hurts and Saquon Barkley**\
-`Both Hurts and Barkley had discussed the meeting with reporters this week.`\
-https://nytimes.com/athletic/6706567/2025/10/10/a-j-brown-jalen-hurts-saquon-barkley-meeting/
 

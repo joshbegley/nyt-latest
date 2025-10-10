@@ -1,3 +1,11 @@
+**Indonesia will bar Israeli athletes from World Gymnastics Championships**\
+`An Indonesian official announced the decision in step with the country's "commitment to supporting Palestinian independence."`\
+https://nytimes.com/athletic/6705264/2025/10/10/israel-indonesia-world-gymnastics-championships/
+
+**Lowetide: Projecting McDavid's future and how Oilers need to build around him**\
+`Is there enough on the Oilers roster around McDavid to win the Stanley Cup in the next three seasons?`\
+https://nytimes.com/athletic/6643040/2025/10/10/connor-mcdavid-contract-oilers-roster/
+
 **Review: Paris Opera Ballet Unrolls a Lackluster ‘Red Carpet’**\
 `The esteemed company presents a full-length contemporary work by Hofesh Shechter at New York City Center. Forget about pointe shoes. This is Chanel in socks.`\
 https://nytimes.com/2025/10/10/arts/dance/review-paris-opera-ballet-red-carpet.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/world/americas/100000010451901/nobel-peace-prize-venez
 **A.J. Brown: 'I don't recall' meeting with Jalen Hurts and Saquon Barkley**\
 `Both Hurts and Barkley had discussed the meeting with reporters this week.`\
 https://nytimes.com/athletic/6706567/2025/10/10/a-j-brown-jalen-hurts-saquon-barkley-meeting/
-
-**A Cozy but Not-Too-Heavy Chicken and Green Bean Stew**\
-`Naz Deravian’s khorak-e loobia sabz is just the thing to ease us into autumn.`\
-https://nytimes.com/2025/10/10/dining/a-cozy-but-not-too-heavy-chicken-and-green-bean-stew.html
-
-**In This Restaurant, the Crabs Are Part of the Art**\
-`For the Amant art center in Brooklyn, the artist Pierre Huyghe takes inspiration from a Superfund site for a new aquarium commission.`\
-https://nytimes.com/2025/10/10/arts/design/pierre-huyghe-amant-art-center-satellite.html
 
