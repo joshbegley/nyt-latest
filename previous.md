@@ -22,7 +22,7 @@ https://nytimes.com/2025/10/10/business/shein-retail-store-paris-backlash.html
 `Gonçalo Oliveira had argued that kissing a woman at a bar in Mexico was the source of a positive test for methamphetamine.`\
 https://nytimes.com/athletic/6707165/2025/10/10/tennis-doping-goncalo-oliveira-kiss-methamphetamine/
 
-**Division I conference commissioners send letter to Congress, push for passing of SCORE Act**\
+**Division I conference commissioners send letter to Congress, push for passage of SCORE Act**\
 `The conference leaders who signed on represent leagues with 353 NCAA Division I schools in 49 states and Washington, D.C.`\
 https://nytimes.com/athletic/6706753/2025/10/10/score-act-congress-division-i-commissioners/
 

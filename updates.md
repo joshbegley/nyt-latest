@@ -1,3 +1,7 @@
+**Division I conference commissioners send letter to Congress, push for passage of SCORE Act**\
+`The conference leaders who signed on represent leagues with 353 NCAA Division I schools in 49 states and Washington, D.C.`\
+https://nytimes.com/athletic/6706753/2025/10/10/score-act-congress-division-i-commissioners/
+
 **What to Know About the Federal Indictment Against Letitia James**\
 `Ms. James, a Democrat and New York’s attorney general, is a longtime nemesis of President Trump, She is charged with committing bank fraud to obtain favorable loan terms.`\
 https://nytimes.com/2025/10/10/nyregion/james-indictment-what-to-know.html
