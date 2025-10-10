@@ -1,3 +1,11 @@
+**Yes, Man Utd need to fund a new stadium - but ordinary fans must not be priced out**\
+`It is fair for the club to raise revenues from fans who can afford it, but the new stadium must be accessible to all`\
+https://nytimes.com/athletic/6706143/2025/10/10/manchester-united-old-trafford-fans/
+
+**NFL Week 6 schedule: Top 5 Sunday games most likely to come down to the last drive**\
+`We sort Sunday's games by walk-off potential. The 49ers and Bucs have made nail-biters their norms, while Lions vs. Chiefs screams "drama."`\
+https://nytimes.com/athletic/6694329/2025/10/10/nfl-week-6-lions-chiefs-49ers-bucs-how-to-watch/
+
 **Cowboys' under-the-radar weapon: OC Klayton Adams and his improved run game**\
 `Klayton Adams doesn't call plays, but the first-year Cowboys offensive coordinator is a big reason behind Dallas' improved ground game.`\
 https://nytimes.com/athletic/6705240/2025/10/10/cowboys-running-game-klayton-adams-oc/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6705573/2025/10/10/minnesota-wild-filip-gustavsson-
 **Michigan-USC preview: Wolverines head West with major CFP implications on the line**\
 `A week after it happened, Penn State's loss at UCLA is still sending aftershocks through the College Football Playoff race.`\
 https://nytimes.com/athletic/6704490/2025/10/10/michigan-usc-preview-bryce-underwood-lincoln-riley/
-
-**The Deep South's Most Lopsided Rivalry: Why Georgia has dominated Auburn for 2 decades**\
-`A look at the history and connections behind the storied Georgia-Auburn rivalry ahead of their 130th matchup on Saturday. `\
-https://nytimes.com/athletic/6704305/2025/10/10/georgia-auburn-rivalry-history/
-
-**Giannis wants another championship. Whether it will be with Milwaukee remains to be seen**\
-`Giannis is a Buck for now, and possibly for a while yet. But the superstar's future is uncertain.`\
-https://nytimes.com/athletic/6705000/2025/10/10/knicks-giannis-antetokounmpo-trade-news-latest/
 

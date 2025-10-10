@@ -1,3 +1,11 @@
+**Yes, Man Utd need to fund a new stadium - but ordinary fans must not be priced out**\
+`It is fair for the club to raise revenues from fans who can afford it, but the new stadium must be accessible to all`\
+https://nytimes.com/athletic/6706143/2025/10/10/manchester-united-old-trafford-fans/
+
+**NFL Week 6 schedule: Top 5 Sunday games most likely to come down to the last drive**\
+`We sort Sunday's games by walk-off potential. The 49ers and Bucs have made nail-biters their norms, while Lions vs. Chiefs screams "drama."`\
+https://nytimes.com/athletic/6694329/2025/10/10/nfl-week-6-lions-chiefs-49ers-bucs-how-to-watch/
+
 **Cowboys' under-the-radar weapon: OC Klayton Adams and his improved run game**\
 `Klayton Adams doesn't call plays, but the first-year Cowboys offensive coordinator is a big reason behind Dallas' improved ground game.`\
 https://nytimes.com/athletic/6705240/2025/10/10/cowboys-running-game-klayton-adams-oc/
