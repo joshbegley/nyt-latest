@@ -1,3 +1,15 @@
+**Bellingham tells athletes to 'show vulnerability' and talk about mental health**\
+`The England international said he used to read "everything" that was said about him on social media.`\
+https://nytimes.com/athletic/6706554/2025/10/10/real-madrid-bellingham-news-england-mental-health/
+
+**The curious case of DK Metcalf's fantasy football revival and other news to know**\
+`Andy Behrens looks at the latest NFL news through a fantasy football lens to help you prepare for Week 6. `\
+https://nytimes.com/athletic/6706519/2025/10/10/fantasy-football-news-week-6-dart-skattebo-metcalf/
+
+**What we saw from Canucks’ opener: Demko looks elite, Chytil’s hot start, and more**\
+`Thatcher Demko was sharp early, allowing the Canucks to get their feet under them in the team's 5-1 win over the Flames. `\
+https://nytimes.com/athletic/6705912/2025/10/10/canucks-opener-flames-demko-chytil/
+
 **Why Is Taylor Swift So Polarizing? And Other Big ‘Showgirl’ Questions**\
 `Our team of Swift experts debate her blockbuster new album, “The Life of a Showgirl,” and take listener questions about its themes and controversies.`\
 https://nytimes.com/2025/10/10/arts/music/popcast-taylor-swift-showgirl-reader-questions.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6706200/2025/10/10/kawhi-leonard-clippers-preseason
 **The Lakers were already becoming Luka Dončić's team. LeBron's injury speeds up timeline**\
 `LeBron James was always going to approach his 23rd season differently. A sciatic nerve issue will make him even more conservative.`\
 https://nytimes.com/athletic/6705694/2025/10/10/lakers-lebron-luka-doncic-injury-star/
-
-**For Trump’s Aides and Officials, the Battle Online Is Always On**\
-`President Trump’s long, avid embrace of social media has been eagerly adopted by his top aides, replacing longstanding governmental norms with online ones.`\
-https://nytimes.com/2025/10/10/style/trump-officials-social-media.html
-
-**What we're hearing: What's wrong with Penn State and Texas?**\
-`Plus: Memphis' makeover into a CFP contender and the Big 12's most underrated player.`\
-https://nytimes.com/athletic/6706336/2025/10/10/college-football-week-7-penn-state-texas-memphis/
-
-**The 10.12.25 Issue**\
-``\
-https://nytimes.com/issue/magazine/2025/10/10/the-101225-issue
 

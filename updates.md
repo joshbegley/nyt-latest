@@ -1,3 +1,15 @@
+**Bellingham tells athletes to 'show vulnerability' and talk about mental health**\
+`The England international said he used to read "everything" that was said about him on social media.`\
+https://nytimes.com/athletic/6706554/2025/10/10/real-madrid-bellingham-news-england-mental-health/
+
+**The curious case of DK Metcalf's fantasy football revival and other news to know**\
+`Andy Behrens looks at the latest NFL news through a fantasy football lens to help you prepare for Week 6. `\
+https://nytimes.com/athletic/6706519/2025/10/10/fantasy-football-news-week-6-dart-skattebo-metcalf/
+
+**What we saw from Canucks’ opener: Demko looks elite, Chytil’s hot start, and more**\
+`Thatcher Demko was sharp early, allowing the Canucks to get their feet under them in the team's 5-1 win over the Flames. `\
+https://nytimes.com/athletic/6705912/2025/10/10/canucks-opener-flames-demko-chytil/
+
 **Why Is Taylor Swift So Polarizing? And Other Big ‘Showgirl’ Questions**\
 `Our team of Swift experts debate her blockbuster new album, “The Life of a Showgirl,” and take listener questions about its themes and controversies.`\
 https://nytimes.com/2025/10/10/arts/music/popcast-taylor-swift-showgirl-reader-questions.html
