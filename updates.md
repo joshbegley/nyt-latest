@@ -1,3 +1,7 @@
+**Tennessee Explosion’s Devastation Stirs Painful Memories of Flash Floods in 2021**\
+`The sheriff of Humphreys County, Tenn., said the 2021 flooding was informing his response to the Accurate Energetic Systems explosion.`\
+https://nytimes.com/2025/10/10/us/tennessee-explosions-devastation-stirs-painful-memories-of-flash-floods-in-2021.html
+
 **The Gaza Cease-Fire Takes Hold**\
 `Also, the Nobel Peace Prize was awarded. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/10/10/briefing/cease-fire-nobel.html
