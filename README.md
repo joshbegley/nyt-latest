@@ -1,3 +1,7 @@
+**Josh Johnson Can’t Believe He’s Praising Trump for Something**\
+`If the Gaza deal holds, then “the guy who couldn’t stop a fight between Gary Busey and Meat Loaf brokered peace in the Middle East,” said the “Daily Show” host.`\
+https://nytimes.com/2025/10/10/arts/television/late-night-trump-peace-gaza.html
+
 **How to watch Tigers at Mariners: Game 5 Time, TV, streaming**\
 `Find out how to watch the Detroit Tigers play the Seattle Mariners, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6705795/2025/10/10/tigers-vs-mariners-stream-how-to-watch-oct-10/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/10/opinion/israel-gaza-hamas-peace-plan.html
 **My Country Is in Thrall to a 92-Year-Old Man**\
 `President Paul Biya of Cameroon, in power for 43 years, is not going anywhere.`\
 https://nytimes.com/2025/10/10/opinion/cameroon-paul-biya-election.html
-
-**Sister Jean Dolores Schmidt, Loyola Basketball Superfan and Team Chaplain, Dies at 106**\
-`She led the Ramblers’ players in pregame prayers, pointed out opponents’ strengths and weaknesses and supported the team in N.C.A.A. tournaments.`\
-https://nytimes.com/2025/10/10/sports/ncaabasketball/sister-jean-dolores-schmidt-dead.html
 
