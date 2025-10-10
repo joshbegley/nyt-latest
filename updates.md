@@ -1,3 +1,11 @@
+**Peru Ousts President Amid Crime Surge**\
+`Growing outrage over crime and political scandals eroded support for President Dina Boluarte, the country’s most unpopular leader in recent history.`\
+https://nytimes.com/2025/10/10/world/americas/peru-president-boluarte-impeached.html
+
+**A One-Side Peace Plan Still Gives Palestinians Hope**\
+`A deal offers some possibility of a broader solution, but the hurdles are enormous.`\
+https://nytimes.com/2025/10/10/opinion/israel-gaza-hamas-peace-plan.html
+
 **Josh Johnson Can’t Believe He’s Praising Trump for Something**\
 `If the Gaza deal holds, then “the guy who couldn’t stop a fight between Gary Busey and Meat Loaf brokered peace in the Middle East,” said the “Daily Show” host.`\
 https://nytimes.com/2025/10/10/arts/television/late-night-trump-peace-gaza.html
