@@ -1,3 +1,19 @@
+**Corrections: Oct. 10, 2025**\
+`Corrections that appeared in print on Friday, Oct. 10, 2025.`\
+https://nytimes.com/2025/10/09/pageoneplus/corrections-oct-10-2025.html
+
+**Quote of the Day: Initially Peaceful, Nepal’s Gen Z Protests Went Chaotically Awry**\
+`Quotation of the Day for Friday, October 10, 2025.`\
+https://nytimes.com/2025/10/09/pageoneplus/quote-of-the-day-initially-peaceful-nepals-gen-z-protests-went-chaotically-awry.html
+
+**Los Angeles Times Moves Closer to a Public Stock Offering**\
+`The company, which says it plans an initial public offering next fall, announced on Thursday that it would seek to raise up to $500 million selling private shares to investors.`\
+https://nytimes.com/2025/10/09/business/media/la-times-ipo.html
+
+**Brian Daboll apologizes for sideline reaction during Jaxson Dart's concussion check**\
+`Daboll was seen peeking inside the injury tent and yelling at a team orthopedist while waiting for his quarterback to return to the game.`\
+https://nytimes.com/athletic/6705380/2025/10/09/giants-brian-daboll-injury-concussion-check/
+
 **Mario Lemieux on hand as Penguins beat Islanders in Schaefer's debut: Observations**\
 `Mario Lemieux was on hand to watch the Penguins move to 2-0 thanks to a big night from Evgeni Malkin.`\
 https://nytimes.com/athletic/6705385/2025/10/09/penguins-lemieux-home-opener-malkin-islanders/
