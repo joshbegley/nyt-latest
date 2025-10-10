@@ -1,3 +1,15 @@
+**The Pleasures of Reading Laszlo Krasznahorkai, Master of Doom**\
+`He won the Nobel Prize in Literature for books often called bleak and challenging. But they’re also hilarious and deeply human.`\
+https://nytimes.com/2025/10/10/books/review/laszlo-krasznahorkai-nobel-appreciation.html
+
+**Democrats Praise Israel-Gaza Peace Deal, but Not Trump for Forging It**\
+`Most Democrats left President Trump conspicuously unmentioned as they cheered a potential end to the conflict, reflecting the tricky politics around the war and their party’s deep hostility to Mr. Trump.`\
+https://nytimes.com/2025/10/10/us/politics/democrats-israel-gaza-trump.html
+
+**The Mortgage Fraud Case Against Letitia James, Explained**\
+`An indictment brought by a novice prosecutor and Trump loyalists against one of the president’s foes centers on a 2020 house purchase.`\
+https://nytimes.com/2025/10/10/us/politics/letitia-james-mortgage-fraud-charges.html
+
 **Division I conference commissioners send letter to Congress, push for passage of SCORE Act**\
 `The conference leaders who signed on represent leagues with 353 NCAA Division I schools in 49 states and Washington, D.C.`\
 https://nytimes.com/athletic/6706753/2025/10/10/score-act-congress-division-i-commissioners/
