@@ -1,3 +1,11 @@
+**Martin Kelly: Kicks from Suarez, a historically short England career, and why I'm retiring**\
+`The former Liverpool and Crystal Palace defender reveals why he has no regrets after a career which may never have happened`\
+https://nytimes.com/athletic/6699747/2025/10/10/martin-kelly-liverpool-england-interview/
+
+**The Prospects: Mateus Mane, Wolverhampton Wanderers**\
+`After making considerable progress over recent seasons, those at Wolves hope the Portugal-born striker can become a first-team mainstay `\
+https://nytimes.com/athletic/6696553/2025/10/10/mateus-mane-wolverhampton-wanderers-prospects-premier-league/
+
 **Former UK swim coach accused of sexual violence deemed 'permanently ineligible' from coaching**\
 `The U.S. Center for SafeSport found Lars Jorgensen to have conducted physical misconduct, retaliation, sexual harassment, among others.`\
 https://nytimes.com/athletic/6705047/2025/10/10/kentucky-swimming-lars-jorgensen-sexual-assault-safesport-ruling/
