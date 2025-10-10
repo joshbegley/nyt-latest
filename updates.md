@@ -1,3 +1,11 @@
+**Report on Soros Cited by Justice Dept. Does Not Show Funding for Terrorism**\
+`The head of a conservative watchdog organization acknowledged that its report did not find evidence that the network of liberal billionaire George Soros had broken the law.`\
+https://nytimes.com/2025/10/10/us/politics/george-soros-justice-dept.html
+
+**Trump Threatens to Cancel Meeting with China’s Xi and Impose New Tariffs**\
+`The president raised economic retaliation after Beijing imposed new restrictions on the export of rare earth minerals, which are vital supplies for U.S. automakers and defense manufacturers.`\
+https://nytimes.com/2025/10/10/us/politics/trump-xi-china-tariffs-rare-earth.html
+
 **Trump Threatens to Cancel Meeting with China’s Xi and Impose New Tariffs**\
 `The president raised economic retaliation after Beijing imposed new restrictions on the export of rare earth minerals, which are vital supplies for U.S. automakers and defense manufacturers.`\
 https://nytimes.com/2025/10/10/us/politics/trump-china-trade-rare-earth.html
