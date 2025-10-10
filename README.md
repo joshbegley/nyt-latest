@@ -10,7 +10,7 @@ https://nytimes.com/2025/10/09/us/judge-national-guard-chicago-illinois.html
 `New York’s attorney general has joined colleagues nearly 40 times to confront the administration over myriad issues as the president pressures Democratic states.`\
 https://nytimes.com/2025/10/09/us/politics/letitia-james-lawsuits-trump.html
 
-**Give Trump the Nobel for Gaza, if He Does the Hard Parts to Come**\
+**Give Trump the Nobel for Gaza, if He Does the Harder Parts to Come**\
 `It’s a job that will take the rest of his presidency.`\
 https://nytimes.com/2025/10/09/opinion/trump-israel-nobel-gaza.html
 
