@@ -1,3 +1,19 @@
+**Peruvian President Impeached Amid Outrage Over Surging Crime**\
+`President Dina Boluarte of Peru was impeached and removed from office following a congressional vote amid widespread outrage over surging crime. Boluarte is the most unpopular Peruvian president in recent decades.`\
+https://nytimes.com/video/world/americas/100000010451409/peru-president-impeached-crime-boluarte.html
+
+**Injuries to key players leave Eagles' defense looking vulnerable in loss to Giants**\
+`With their offense struggling, a defensive breakdown was one thing the Eagles could not afford.`\
+https://nytimes.com/athletic/6705090/2025/10/10/eagles-quinyon-mitchell-jalen-carter-injured/
+
+**Who Gained From U.S. Aid to Argentina?**\
+`Treasury Secretary Scott Bessent said stabilizing the country was in the United States’s interests. Critics say some investors may have also benefited.`\
+https://nytimes.com/2025/10/10/business/dealbook/aid-argentina-investors-bessent.html
+
+**How to watch Nikola Jokić and the Denver Nuggets this season**\
+`The Nuggets got Nikola Jokić more help after he averaged a triple-double last season. Here's how to tune in to their games in 2025-26.`\
+https://nytimes.com/athletic/6704235/2025/10/10/denver-nuggets-nikola-jokic-tv-games-how-to-watch/
+
 **From blocked kicks to penalties, Rams have special teams problems to solve**\
 `Three times in the past three weeks, Los Angeles has had a field goal or extra point attempt blocked that swung the game's momentum. `\
 https://nytimes.com/athletic/6704619/2025/10/10/rams-special-teams-blocked-field-goals/
