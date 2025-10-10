@@ -1,3 +1,11 @@
+**How to watch Tigers at Mariners: Game 5 Time, TV, streaming**\
+`Find out how to watch the Detroit Tigers play the Seattle Mariners, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6705795/2025/10/10/tigers-vs-mariners-stream-how-to-watch-oct-10/
+
+**A tough break — and another tough loss — for the Blue Jackets in Music City**\
+`Thursday's 2-1 defeat marked the 10th consecutive in Nashville for the Blue Jackets.`\
+https://nytimes.com/athletic/6704975/2025/10/10/blue-jackets-loss-predators-season-opener/
+
 **England are building a team, not just picking their best players — and it seems to be working**\
 `England beat Wales 3-0 on Thursday night. The signs are looking good ahead of next summer's World Cup`\
 https://nytimes.com/athletic/6705139/2025/10/10/england-world-cup-thomas-tuchel-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/10/opinion/cameroon-paul-biya-election.html
 **Sister Jean Dolores Schmidt, Loyola Basketball Superfan and Team Chaplain, Dies at 106**\
 `She led the Ramblers’ players in pregame prayers, pointed out opponents’ strengths and weaknesses and supported the team in N.C.A.A. tournaments.`\
 https://nytimes.com/2025/10/10/sports/ncaabasketball/sister-jean-dolores-schmidt-dead.html
-
-**Martin Kelly: Kicks from Suarez, a historically short England career, and why I'm retiring**\
-`The former Liverpool and Crystal Palace defender reveals why he has no regrets after a career which may never have happened`\
-https://nytimes.com/athletic/6699747/2025/10/10/martin-kelly-liverpool-england-interview/
-
-**The Prospects: Mateus Mane, Wolverhampton Wanderers**\
-`After making considerable progress over recent seasons, those at Wolves hope the Portugal-born striker can become a first-team mainstay `\
-https://nytimes.com/athletic/6696553/2025/10/10/mateus-mane-wolverhampton-wanderers-prospects-premier-league/
 
