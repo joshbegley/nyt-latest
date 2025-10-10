@@ -1,3 +1,11 @@
+**U.S. to Send 200 Troops to Israel in Support Roles**\
+`The American force will help coordinate the many aspects of the cease-fire deal.`\
+https://nytimes.com/2025/10/09/world/middleeast/us-to-send-200-troops-to-israel-in-support-roles.html
+
+**Letitia James Ran on a Platform of Holding Trump to Account**\
+`Ms. James, New York’s attorney general, has said that her decision to seek the office was “about that man in the White House.”`\
+https://nytimes.com/2025/10/09/us/politics/letitia-james-attorney-general-campaign-trump.html
+
 **Letitia James Ran on a Platform of Holding Trump to Account**\
 `Ms. James, New York’s attorney general, has said that her decision to seek the office was “about that man in the White House.”`\
 https://nytimes.com/2025/10/09/us/politics/letitia-james-ran-on-a-platform-of-holding-trump-to-account.html
