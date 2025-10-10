@@ -1,3 +1,19 @@
+**Referee Taylor says his family avoids matches due to abuse he receives**\
+`Taylor said the abuse he received in the aftermath of the Europa League final was the ""worst situation I’ve dealt with".`\
+https://nytimes.com/athletic/6704172/2025/10/10/premier-league-anthony-taylor-abuse-family/
+
+**The New York Times in Print for Friday, Oct. 10, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/10/todays-new-york-times
+
+**Trump’s Peace Plan is Tailor-Made for Israel. It Still Might Work.**\
+`A deal offers some possibility of a broader solution, but the hurdles are enormous.`\
+https://nytimes.com/2025/10/10/opinion/israel-gaza-hamas-peace-plan.html
+
+**My Country Is in Thrall to a 92-Year-Old Man**\
+`President Paul Biya of Cameroon, in power for 43 years, is not going anywhere.`\
+https://nytimes.com/2025/10/10/opinion/cameroon-paul-biya-election.html
+
 **Sister Jean Dolores Schmidt, Centenarian Chaplain at Loyola, Dies at 106**\
 `She led the Ramblers’ basketball players in pregame prayers, pointed out opponents’ strengths and weaknesses and supported the team in N.C.A.A. tournaments.`\
 https://nytimes.com/2025/10/10/sports/ncaabasketball/sister-jean-dolores-schmidt-dead.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6705559/2025/10/10/sister-jean-dead-loyola-chicago-
 **Donyell Malen: The forward that offers a profile like no other — and how Aston Villa use him**\
 `Malen has settled in England since his move from Germany and now it seems Villa are find a way to settle him into their side`\
 https://nytimes.com/athletic/6693438/2025/10/10/donyell-malen-aston-villa-analysis/
-
-**Cubs-Brewers Game 4 takeaways: Chicago slugs its way to winner-take-all Game 5**\
-`Ian Happ, Kyle Tucker and Michael Busch each homered to swing things back to Milwaukee. `\
-https://nytimes.com/athletic/6705550/2025/10/10/cubs-brewers-game-4-score-results-takeaways-playoffs-mlb/
-
-**The four Nottingham Forest players who have been most affected by Ange Postecoglou's arrival**\
-`Forest's poor run under their new boss is in stark contrast to their superb seventh-place finish last season, which players are struggling?`\
-https://nytimes.com/athletic/6703118/2025/10/10/nottingham-forest-players-postecoglou-nuno/
-
-**How Norway vs Israel became football's most controversial fixture**\
-`Explaining why the conflict in Gaza is providing an unsettling backdrop to a crucial World Cup qualifier`\
-https://nytimes.com/athletic/6693637/2025/10/10/how-norway-vs-israel-became-footballs-most-controversial-fixture/
-
-**Emirates, Wembley, and Arsenal's pursuit of more**\
-`In thinking that echoes the creation of the Emirates, Arsenal are analysing their capacity from a position of strength - but hurdles await`\
-https://nytimes.com/athletic/6703097/2025/10/10/emirates-upgrade-arsenal-wembley/
 
