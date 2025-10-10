@@ -1,3 +1,11 @@
+**The Gaza Cease-Fire Takes Hold**\
+`Also, the Nobel Peace Prize was awarded. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/10/10/briefing/cease-fire-nobel.html
+
+**Detonation Underscores Inherent Dangers of Manufacturing Explosives**\
+`The munitions plant in Tennessee where an explosion occurred on Friday produces TNT, which is commonly used for the military and commercial industries.`\
+https://nytimes.com/2025/10/10/us/accurate-energetic-systems-explosion.html
+
 **Stu Sternberg awarded Rays employees with significant bonuses after selling the team: Sources**\
 `Sternberg sold the Rays in late September and issued significant bonuses to all full-time employees of the team.`\
 https://nytimes.com/athletic/6707644/2025/10/10/tampa-bay-rays-stu-sternberg-employee-bonuses/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6707266/2025/10/10/brock-purdy-mac-jones-injuries-4
 **‘Krapp’s Last Tape’ Review: Stephen Rea’s Duet With His Younger Self**\
 `Samuel Beckett’s 55-minute contemplation of mortality comes to NYU Skirball in a neat and handsome staging by Vicky Featherstone.`\
 https://nytimes.com/2025/10/10/theater/krapps-last-tape-review-stephen-rea.html
-
-**Nikola Pilic, Whose Wimbledon Boycott Helped Shape Modern Tennis, Dies at 86**\
-`After he was suspended in 1973, 81 players boycotted the tournament in solidarity, highlighting a power struggle for control of the sport.`\
-https://nytimes.com/2025/10/10/sports/tennis/nikola-pilic-dead.html
-
-**How Robert Redford Epitomized Movie Stardom**\
-`“Movie stars! They’re basically actors who we — and our wallets — have fallen in love with.” Wesley Morris and “The Rewatchables” host Bill Simmons talk about Robert Redford’s career and whether his brand of movie stardom is even possible today on this week’s episode of “Cannonball.”`\
-https://nytimes.com/video/podcasts/100000010442969/how-robert-redford-epitomized-movie-stardom.html
 
