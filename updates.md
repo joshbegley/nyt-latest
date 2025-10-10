@@ -1,3 +1,11 @@
+**Orion Kerkering's error in the MLB playoffs was brutal, but his response was admirable**\
+`In the moments after the Phillies' heartbreaking loss, Kerkering did the simplest thing an athlete can do after a mistake. He owned it. `\
+https://nytimes.com/athletic/6707397/2025/10/10/phillies-orion-kerkering-pitcher-error-response/
+
+**Ravens will be without quarterback Lamar Jackson vs. Rams**\
+`Cooper Rush will get his second consecutive start, with Tyler Huntley elevated from the practice squad to back him up.`\
+https://nytimes.com/athletic/6707037/2025/10/10/ravens-lamar-jackson-rams-nfl-injury/
+
 **Pasta With Feta and Green Olives**\
 `Bold, briny and tangy, this 15-minute pasta is full of personality. Olives are first slightly blistered in oil, drawing out their brininess, then crumbled feta is stirred into the pasta at the end until melty.`\
 https://nytimes.com/video/dining/100000010366536/pasta-with-feta-and-green-olives.html
