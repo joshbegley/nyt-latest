@@ -1,3 +1,7 @@
+**Sister Jean Dolores Schmidt, Centenarian Chaplain at Loyola, Dies at 106**\
+`She led the Ramblers’ basketball players in pregame prayers, pointed out opponents’ strengths and weaknesses and supported the team in N.C.A.A. tournaments.`\
+https://nytimes.com/2025/10/10/sports/ncaabasketball/sister-jean-dolores-schmidt-dead.html
+
 **Sister Jean, beloved Loyola University Chicago basketball chaplain, dies at 106**\
 `Sister Jean rose to national prominence during the Ramblers' Cinderella run in the 2018 NCAA Tournament.`\
 https://nytimes.com/athletic/6705559/2025/10/10/sister-jean-dead-loyola-chicago-basketball/

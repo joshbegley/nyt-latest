@@ -1,3 +1,7 @@
+**Sister Jean Dolores Schmidt, Centenarian Chaplain at Loyola, Dies at 106**\
+`She led the Ramblers’ basketball players in pregame prayers, pointed out opponents’ strengths and weaknesses and supported the team in N.C.A.A. tournaments.`\
+https://nytimes.com/2025/10/10/sports/ncaabasketball/sister-jean-dolores-schmidt-dead.html
+
 **Martin Kelly: Kicks from Suarez, a historically short England career, and why I'm retiring**\
 `The former Liverpool and Crystal Palace defender reveals why he has no regrets after a career which may never have happened`\
 https://nytimes.com/athletic/6699747/2025/10/10/martin-kelly-liverpool-england-interview/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6693637/2025/10/10/how-norway-vs-israel-became-foot
 **Emirates, Wembley, and Arsenal's pursuit of more**\
 `In thinking that echoes the creation of the Emirates, Arsenal are analysing their capacity from a position of strength - but hurdles await`\
 https://nytimes.com/athletic/6703097/2025/10/10/emirates-upgrade-arsenal-wembley/
-
-**Why Atletico and Inter are playing a friendly in Libya after Barcelona pulled out**\
-`The two Serie A and La Liga heavyweights play a friendly in strange circumstances and at an unlikely venue tonight`\
-https://nytimes.com/athletic/6696818/2025/10/10/atletico-madrid-inter-barcelona-libya/
 
