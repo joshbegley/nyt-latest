@@ -1,3 +1,11 @@
+**Review: Paris Opera Ballet Unrolls a Lackluster ‘Red Carpet’**\
+`The esteemed company presents a full-length contemporary work by Hofesh Shechter at New York City Center. Forget about pointe shoes. This is Chanel in socks.`\
+https://nytimes.com/2025/10/10/arts/dance/review-paris-opera-ballet-red-carpet.html
+
+**Maria Corina Machado Has Supported Trump’s Military Actions in the Caribbean**\
+`Ms. Machado has urged President Trump to help oust Venezuela’s autocrat, Nicolás Maduro, and to back the result of an election that independent monitors say Mr. Maduro stole.`\
+https://nytimes.com/2025/10/10/world/americas/maria-corina-machado-has-supported-trumps-military-actions-in-the-caribbean.html
+
 **Bronze set for Chelsea return, Kerr earns first Australia call-up since ACL injury**\
 `Kerr, who missed the entirety of 2024-25, will be involved in the Australia camp for the October friendlies against Wales and England.`\
 https://nytimes.com/athletic/6706787/2025/10/10/chelsea-team-news-bronze-kerr-australia-return/
@@ -29,8 +37,4 @@ https://nytimes.com/2025/10/10/dining/a-cozy-but-not-too-heavy-chicken-and-green
 **In This Restaurant, the Crabs Are Part of the Art**\
 `For the Amant art center in Brooklyn, the artist Pierre Huyghe takes inspiration from a Superfund site for a new aquarium commission.`\
 https://nytimes.com/2025/10/10/arts/design/pierre-huyghe-amant-art-center-satellite.html
-
-**Five Horror Movies to Stream Now**\
-`Just in time for Halloween comes killer cola, a creeping phantasm and death from the commode.`\
-https://nytimes.com/2025/10/10/movies/horror-movies-streaming.html
 
