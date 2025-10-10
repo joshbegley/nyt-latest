@@ -1,40 +1,40 @@
-**Jaxson Dart: Giants fans are 'starving' for a winner, and he is here to give them one**\
-`Dart’s fearless style may be exactly what New York needs to finally snap out of its prolonged funk. The rookie was electric Thursday night.`\
-https://nytimes.com/athletic/6705787/2025/10/10/giants-jaxson-dart-eagles-starving-winner/
+**Cowboys' under-the-radar weapon: OC Klayton Adams and his improved run game**\
+`Klayton Adams doesn't call plays, but the first-year Cowboys offensive coordinator is a big reason behind Dallas' improved ground game.`\
+https://nytimes.com/athletic/6705240/2025/10/10/cowboys-running-game-klayton-adams-oc/
 
-**Who Is María Corina Machado, Winner of the 2025 Nobel Peace Prize?**\
-`Ms. Machado built one of Venezuela’s most important political movements, and lives in hiding from President Nicolás Maduro’s authoritarian government.`\
-https://nytimes.com/2025/10/10/world/americas/maria-corina-machado-nobel-peace-prize-venezuela.html
+**A Cease-Fire Begins**\
+`We explain the latest on the deal between Israel and Hamas.`\
+https://nytimes.com/2025/10/10/briefing/a-cease-fire-begins.html
 
-**Electric Wrigley Field gets the W as Cubs dominate Game 4 of NLDS**\
-`It was an almost team-wide redemption story for the Cubs, who fed off the energy of the biggest, loudest crowd of the season.`\
-https://nytimes.com/athletic/6705669/2025/10/10/cubs-brewers-nlds-game-4-wrigley-field/
+**Are the Mets too data-driven? Who will play in winter leagues?: Mailbag part 2**\
+`Plus: A look at whether looming labor uncertainty might affect the Mets’ approach to 2025-26 free agency.`\
+https://nytimes.com/athletic/6704913/2025/10/10/mets-data-analytics-winter-leagues/
 
-**Cal Raleigh's on-field feats are well known. How he prepares for them is just as impressive**\
-`"It's probably four jobs," Mariners bullpen coach Tony Arnerich said. "I don’t think people realize how hard it is, what he’s doing."`\
-https://nytimes.com/athletic/6689567/2025/10/10/cal-raleigh-seattle-mariners-preparation/
+**College football rivalry and life on the Iowa-Wisconsin 'beer highway'**\
+`On the way from Iowa City to Madison are markers of beer’s past and vibrant present and the role football plays in holding it all together.`\
+https://nytimes.com/athletic/6703254/2025/10/10/wisconsin-iowa-college-football-beer-rivalry/
 
-**The 2025-26 NHL All-Intrigue roster: One name from each team to watch this season**\
-`With the NHL regular season back at last, there's a lot to be interested in. These 32 people should get an extra look.`\
-https://nytimes.com/athletic/6704566/2025/10/10/nhl-all-intrigue-roster-2025-26/
+**From Cleveland to Cincinnati: How Joe Flacco learned Bengals' offense in 72 hours**\
+`Flacco's presence was measured in hours, not days, in the wake of the in-state trade that stunned the NFL.`\
+https://nytimes.com/athletic/6704621/2025/10/10/joe-flacco-bengals-trade-browns-zac-taylor/
 
-**Matthew Boyd and Daniel Palencia bounce back and Cubs fight on to Game 5**\
-`Both pitchers struggled earlier in the series against the Brewers, but were sterling in Game 4.`\
-https://nytimes.com/athletic/6705938/2025/10/10/matthew-boyd-and-daniel-palencia-bounce-back-and-cubs-fight-on-to-game-5/
+**The Athletic’s Friday football quiz question #76**\
+`Can you answer the weekly poser plucked from deep inside The Athletic's trivia vaults?`\
+https://nytimes.com/athletic/6703759/2025/10/10/the-athletics-friday-football-quiz-question-76/
 
-**Live Updates: Letitia James Is Indicted as Trump Takes Hold of Justice Dept.**\
-`The charges against the New York attorney general deepened President Trump’s intervention in the justice system, weeks after a case against the former F.B.I. director James B. Comey.`\
-https://nytimes.com/live/2025/10/10/us/trump-news
+**Filip Gustavsson, after getting 'life-changing money,' shows why the Wild invested in him**\
+`ST.`\
+https://nytimes.com/athletic/6705573/2025/10/10/minnesota-wild-filip-gustavsson-season-opener/
 
-**The Pulse: A season ends with instant regret**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6704061/2025/10/10/orion-kerkering-phillies-dodgers-the-pulse/
+**Michigan-USC preview: Wolverines head West with major CFP implications on the line**\
+`A week after it happened, Penn State's loss at UCLA is still sending aftershocks through the College Football Playoff race.`\
+https://nytimes.com/athletic/6704490/2025/10/10/michigan-usc-preview-bryce-underwood-lincoln-riley/
 
-**The Canucks have two players named Elias Pettersson. The NHL's Greg Adamses can relate**\
-`Greg "Eddie" Adams and Greg "Gus" Adams made history in 1988-89 as the NHL's first same-named teammates. Then they became good friends.`\
-https://nytimes.com/athletic/6701856/2025/10/10/elias-pettersson-greg-adams-canucks-nhl/
+**The Deep South's Most Lopsided Rivalry: Why Georgia has dominated Auburn for 2 decades**\
+`A look at the history and connections behind the storied Georgia-Auburn rivalry ahead of their 130th matchup on Saturday. `\
+https://nytimes.com/athletic/6704305/2025/10/10/georgia-auburn-rivalry-history/
 
-**You have noticed NFL TV ratings are soaring. Now understand why that is happening**\
-`TV ratings can by mystifying. Richard Deitsch offers a clear-eyed explanation for the high NFL TV ratings that will help you understand it.`\
-https://nytimes.com/athletic/6699995/2025/10/10/nfl-tv-ratings-nielsen-big-data/
+**Giannis wants another championship. Whether it will be with Milwaukee remains to be seen**\
+`Giannis is a Buck for now, and possibly for a while yet. But the superstar's future is uncertain.`\
+https://nytimes.com/athletic/6705000/2025/10/10/knicks-giannis-antetokounmpo-trade-news-latest/
 
