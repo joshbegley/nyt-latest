@@ -1,6 +1,10 @@
+**Report on Soros Cited by Justice Dept. Does Not Show Funding for Terrorism**\
+`The head of a conservative watchdog organization acknowledged that its report did not find evidence that the network of liberal billionaire George Soros had broken the law.`\
+https://nytimes.com/2025/10/10/us/politics/george-soros-justice-dept.html
+
 **Trump Threatens to Cancel Meeting with China’s Xi and Impose New Tariffs**\
 `The president raised economic retaliation after Beijing imposed new restrictions on the export of rare earth minerals, which are vital supplies for U.S. automakers and defense manufacturers.`\
-https://nytimes.com/2025/10/10/us/politics/trump-china-trade-rare-earth.html
+https://nytimes.com/2025/10/10/us/politics/trump-xi-china-tariffs-rare-earth.html
 
 **Behind Hunter Haight's path to his NHL debut, through the eyes of his family: 'Surreal moment'**\
 `Hunter Haight's NHL debut reminded his loved ones and former coaches of the 21-year-old's path to becoming a mature, two-way center.`\
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/10/10/world/middleeast/gaza-ceasefire-deal-
 **Senator warns Big Ten presidents about private capital, urges transparency**\
 `Sen. Maria Cantwell questioned whether the Big Ten's media rights revenue could stay tax-exempt if a private investor buys a stake.`\
 https://nytimes.com/athletic/6706749/2025/10/10/senator-maria-cantwell-big-ten-private-equity/
-
-**Indonesia will bar Israeli athletes from World Gymnastics Championships**\
-`An Indonesian official announced the decision in step with the country's "commitment to supporting Palestinian independence."`\
-https://nytimes.com/athletic/6705264/2025/10/10/israel-indonesia-world-gymnastics-championships/
 

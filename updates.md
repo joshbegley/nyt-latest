@@ -1,3 +1,15 @@
+**Trump Threatens to Cancel Meeting with China’s Xi and Impose New Tariffs**\
+`The president raised economic retaliation after Beijing imposed new restrictions on the export of rare earth minerals, which are vital supplies for U.S. automakers and defense manufacturers.`\
+https://nytimes.com/2025/10/10/us/politics/trump-china-trade-rare-earth.html
+
+**Behind Hunter Haight's path to his NHL debut, through the eyes of his family: 'Surreal moment'**\
+`Hunter Haight's NHL debut reminded his loved ones and former coaches of the 21-year-old's path to becoming a mature, two-way center.`\
+https://nytimes.com/athletic/6705618/2025/10/10/wild-hunter-haight-nhl-debut/
+
+**‘Kavalier & Clay’ Hears an Unusual Call From the Met: Encore!**\
+`The Metropolitan opera is reviving its season-opening production in February, building on the momentum of recent sold-out performances.`\
+https://nytimes.com/2025/10/10/arts/music/kavalier-and-clay-met-opera-revival.html
+
 **Superintendent Accused of Stealing Thousands From Illinois School District**\
 `The superintendent, now head of schools in DeKalb County, Ga., had been lauded for his efforts to help students of color. Prosecutors say he led a kickback scheme in suburban Chicago.`\
 https://nytimes.com/2025/10/10/us/georgia-school-superintendent-indictment-illinois.html
