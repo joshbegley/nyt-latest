@@ -1,3 +1,11 @@
+**What a National Guard Deployment Means**\
+`John Ismay, who reports on the Pentagon for The New York Times, describes what National Guard troops and civilian law enforcement are doing in cities where President Trump has mobilized them.`\
+https://nytimes.com/video/us/100000010446054/how-trump-is-using-the-national-guard.html
+
+**Should Yankees’ Brian Cashman and Aaron Boone return? Reader poll says no**\
+`The Athletic's readers were asked to vote on whether Cashman and Boone should return. The most popular answer was to fire both.`\
+https://nytimes.com/athletic/6704945/2025/10/09/brian-cashman-aaron-boone-yankees-job-security-poll/
+
 **Ken Rosenthal says Cashman, Boone should return to Yankees. Fans say otherwise**\
 `The Athletic's readers were asked to vote on whether Cashman and Boone should return. The most popular answer was to fire both.`\
 https://nytimes.com/athletic/6704945/2025/10/09/brian-cashman-aaron-boone-yankees-job-security-poll/
