@@ -1,3 +1,7 @@
+**Cease-Fire Begins in Gaza**\
+`Displaced Palestinians began returning to the north after the Israeli military announced that a cease-fire had taken effect starting at noon on Friday.`\
+https://nytimes.com/video/world/middleeast/100000010451483/cease-fire-begins-in-gaza.html
+
 **Peruvian President Impeached Amid Outrage Over Surging Crime**\
 `President Dina Boluarte of Peru was impeached and removed from office following a congressional vote amid widespread outrage over surging crime. Boluarte is the most unpopular Peruvian president in recent decades.`\
 https://nytimes.com/video/world/americas/100000010451409/peru-president-impeached-crime-boluarte.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6706207/2025/10/10/phillies-offseason-dombrowski-20
 **Machado’s Peace Prize Is Latest Nobel for Female Democracy Campaigners**\
 `Women in Iran, Liberia, Yemen and Myanmar have been recognized for their activism, occasionally while they were in prison and faced serious personal risk.`\
 https://nytimes.com/2025/10/10/world/nobel-peace-prize-women-democracy.html
-
-**How to watch Philadelphia 76ers games during the 2025-26 season**\
-`The 76ers were put through the wringer this past year, but things are looking up entering the 2025-26 season. Here's how to watch every game`\
-https://nytimes.com/athletic/6695044/2025/10/10/philadelphia-76ers-sixers-tv-how-to-watch-2025-26/
 
