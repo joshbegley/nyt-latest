@@ -1,7 +1,3 @@
-**Referee Taylor says his family avoids matches due to abuse he receives**\
-`Taylor said the abuse he received in the aftermath of the Europa League final was the "worst situation I’ve dealt with".`\
-https://nytimes.com/athletic/6704172/2025/10/10/premier-league-anthony-taylor-abuse-family/
-
 **The New York Times in Print for Friday, Oct. 10, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/10/todays-new-york-times
@@ -14,7 +10,7 @@ https://nytimes.com/2025/10/10/opinion/israel-gaza-hamas-peace-plan.html
 `President Paul Biya of Cameroon, in power for 43 years, is not going anywhere.`\
 https://nytimes.com/2025/10/10/opinion/cameroon-paul-biya-election.html
 
-**Sister Jean Dolores Schmidt, Basketball-Loving Chaplain at Loyola, Dies at 106**\
+**Sister Jean Dolores Schmidt, Loyola Basketball Superfan and Team Chaplain, Dies at 106**\
 `She led the Ramblers’ players in pregame prayers, pointed out opponents’ strengths and weaknesses and supported the team in N.C.A.A. tournaments.`\
 https://nytimes.com/2025/10/10/sports/ncaabasketball/sister-jean-dolores-schmidt-dead.html
 
@@ -37,4 +33,8 @@ https://nytimes.com/athletic/6705559/2025/10/10/sister-jean-dead-loyola-chicago-
 **Donyell Malen: The forward that offers a profile like no other — and how Aston Villa use him**\
 `Malen has settled in England since his move from Germany and now it seems Villa are find a way to settle him into their side`\
 https://nytimes.com/athletic/6693438/2025/10/10/donyell-malen-aston-villa-analysis/
+
+**Cubs-Brewers Game 4 takeaways: Chicago slugs its way to winner-take-all Game 5**\
+`Ian Happ, Kyle Tucker and Michael Busch each homered to swing things back to Milwaukee. `\
+https://nytimes.com/athletic/6705550/2025/10/10/cubs-brewers-game-4-score-results-takeaways-playoffs-mlb/
 

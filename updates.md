@@ -1,3 +1,11 @@
+**Sister Jean Dolores Schmidt, Loyola Basketball Superfan and Team Chaplain, Dies at 106**\
+`She led the Ramblers’ players in pregame prayers, pointed out opponents’ strengths and weaknesses and supported the team in N.C.A.A. tournaments.`\
+https://nytimes.com/2025/10/10/sports/ncaabasketball/sister-jean-dolores-schmidt-dead.html
+
+**Cubs-Brewers Game 4 takeaways: Chicago slugs its way to winner-take-all Game 5**\
+`Ian Happ, Kyle Tucker and Michael Busch each homered to swing things back to Milwaukee. `\
+https://nytimes.com/athletic/6705550/2025/10/10/cubs-brewers-game-4-score-results-takeaways-playoffs-mlb/
+
 **Referee Taylor says his family avoids matches due to abuse he receives**\
 `Taylor said the abuse he received in the aftermath of the Europa League final was the "worst situation I’ve dealt with".`\
 https://nytimes.com/athletic/6704172/2025/10/10/premier-league-anthony-taylor-abuse-family/
