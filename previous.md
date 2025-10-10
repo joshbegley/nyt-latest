@@ -1,3 +1,15 @@
+**Carolyn Cheeks Kilpatrick, 80, Dies; In Congress, a Lifeline for Detroit**\
+`Over seven terms, she garnered millions in funds in helping to revitalize the city. But the political scandals of her son, an ex-mayor, came to shadow her career.`\
+https://nytimes.com/2025/10/10/us/politics/carolyn-cheeks-kilpatrick-dead.html
+
+**Trump’s Retribution Revival Tour**\
+`When he was running for office, Donald Trump said he’d be too busy as president to go after his enemies. He’s making time for it now.`\
+https://nytimes.com/2025/10/10/us/politics/trump-letitia-james-comey-revenge.html
+
+**National Guard Troops Begin to Trickle Into Memphis**\
+`Two weeks after a federal task force began patrolling the western Tennessee city, National Guard troops from the state have now arrived.`\
+https://nytimes.com/2025/10/10/us/politics/trump-national-guard-troops-memphis.html
+
 **Top Justice Dept. Officials Weren’t Told in Advance of James Indictment**\
 `Those in the dark included Attorney General Pam Bondi, people familiar with the matter said. The government shutdown, a rush to indict and internal divisions contributed to the lack of coordination.`\
 https://nytimes.com/2025/10/10/us/politics/bondi-justice-department-james.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/10/us/accurate-energetic-systems-explosion.html
 **Stu Sternberg awarded Rays employees with significant bonuses after selling the team: Sources**\
 `Sternberg sold the Rays in late September and issued significant bonuses to all full-time employees of the team.`\
 https://nytimes.com/athletic/6707644/2025/10/10/tampa-bay-rays-stu-sternberg-employee-bonuses/
-
-**Philadelphia fans, here's your worst nightmare. Phillies, Eagles, Flyers go down in one night**\
-`The City of Brotherly Love is no stranger to nights of heartbreak, but Thursday night was particularly brutal. `\
-https://nytimes.com/athletic/6707355/2025/10/10/philadelphia-nightmare-phillies-eagles-flyers-lose/
-
-**Guerrero Jr. continuing family legacy in playoffs. Who are other MLB father-son duos?**\
-`The Guerreros join a list that includes Bobby and Barry Bonds as some of the most accomplished father-and-son MLB duos.`\
-https://nytimes.com/athletic/6704247/2025/10/10/vladimir-guerrero-jr-mlb-father-son-duos/
-
-**Trump Administration Uses Mortgage Fraud to Go After Adversaries**\
-`Letitia James, the New York attorney general, was the latest of President Trump’s perceived enemies to be indicted on charges she made false claims on loan documents.`\
-https://nytimes.com/2025/10/10/us/politics/trump-administration-uses-mortgage-fraud-to-go-after-adversaries.html
 

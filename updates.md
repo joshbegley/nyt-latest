@@ -1,3 +1,15 @@
+**Carolyn Cheeks Kilpatrick, 80, Dies; In Congress, a Lifeline for Detroit**\
+`Over seven terms, she garnered millions in funds in helping to revitalize the city. But the political scandals of her son, an ex-mayor, came to shadow her career.`\
+https://nytimes.com/2025/10/10/us/politics/carolyn-cheeks-kilpatrick-dead.html
+
+**Trump’s Retribution Revival Tour**\
+`When he was running for office, Donald Trump said he’d be too busy as president to go after his enemies. He’s making time for it now.`\
+https://nytimes.com/2025/10/10/us/politics/trump-letitia-james-comey-revenge.html
+
+**National Guard Troops Begin to Trickle Into Memphis**\
+`Two weeks after a federal task force began patrolling the western Tennessee city, National Guard troops from the state have now arrived.`\
+https://nytimes.com/2025/10/10/us/politics/trump-national-guard-troops-memphis.html
+
 **Top Justice Dept. Officials Weren’t Told in Advance of James Indictment**\
 `Those in the dark included Attorney General Pam Bondi, people familiar with the matter said. The government shutdown, a rush to indict and internal divisions contributed to the lack of coordination.`\
 https://nytimes.com/2025/10/10/us/politics/bondi-justice-department-james.html
