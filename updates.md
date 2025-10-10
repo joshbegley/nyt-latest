@@ -1,3 +1,11 @@
+**Explosions Rock Kabul as Taliban Minister Visits India**\
+`Accusations rise that Pakistan struck the Afghan capital with airstrikes, but neither country would confirm the reports.`\
+https://nytimes.com/2025/10/10/world/asia/kabul-explosions-india-pakistan.html
+
+**Tracking Subtropical Storm Karen**\
+`See the likely path and wind arrival times for Karen`\
+https://nytimes.com/interactive/2025/10/10/weather/karen-map-path-tracker.html
+
 **Cindy McCain Steps Away From World Food Program During Recovery From Mild Stroke**\
 `Ms. McCain leads the world’s largest humanitarian organization focused on food insecurity. She is expected to make a full recovery.`\
 https://nytimes.com/2025/10/10/world/europe/cindy-mccain-stroke-world-food-program.html
