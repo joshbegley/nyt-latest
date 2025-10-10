@@ -1,3 +1,7 @@
+**Palou was sold a dream 'based on lies' by McLaren's Brown, a court hears**\
+`Palou alleged "false impressions" led to him backing out of a deal to join the team.`\
+https://nytimes.com/athletic/6706692/2025/10/10/alex-palou-mclaren-zak-brown-f1/
+
 **NFL Week 6 projected scores: Model predicts point spreads and totals for upcoming games**\
 `Austin Mock's projection model predicts point spreads and point totals for NFL Week 6 games.`\
 https://nytimes.com/athletic/6704342/2025/10/10/nfl-week-6-projected-scores-model-predicts-point-spreads-and-totals-for-sunday-monday-games/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/10/opinion/israel-gaza-peace.html
 **An Immense Solar Project Just Got Canceled Under Trump**\
 `Known as Esmeralda 7, the project planned in the Nevada desert would have produced enough energy to power nearly two million homes.`\
 https://nytimes.com/2025/10/10/climate/nevada-solar-esmerelda7.html
-
-**Under Trump, E.P.A. Explored if Abortion Pills Could Be Detected in Wastewater**\
-`Scientists at the Environmental Protection Agency found that they could develop methods to identify traces of the medication if necessary — a practice long sought by the anti-abortion movement.`\
-https://nytimes.com/2025/10/10/us/politics/epa-abortion-wastewater.html
 
