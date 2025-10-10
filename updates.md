@@ -1,3 +1,19 @@
+**Passions, Not Personas**\
+`Modern advertising tools and strategies fueled by consumer passions, values and communities help form a fuller, more accurate picture of today’s audiences.`\
+https://nytimes.com/paidpost/amazon-ads/passions-not-personas.html
+
+**‘Matlock’ Actor Leaves Series After CBS Investigation**\
+`David Del Rio portrayed a young lawyer on one of television’s most popular shows.`\
+https://nytimes.com/2025/10/10/arts/television/matlock-david-del-rio.html
+
+**Scoop City: Fixing Philly, previewing Week 6 and non-Manning CFB QBs to watch**\
+`Why a return to the RPO could help Philly, matchups to watch in 49ers-Buccaneers and Lions-Chiefs, plus a look at CFB's top QBs`\
+https://nytimes.com/athletic/6707033/2025/10/10/simple-way-to-fix-the-eagles-plus-week-6-matchups-non-manning-cfb-qbs-to-watch/
+
+**An Immense Solar Project Just Got Canceled Under Trump**\
+`Known as Esmeralda 7, the project planned in the Nevada desert would have produced enough energy to power nearly two million homes.`\
+https://nytimes.com/2025/10/10/climate/nevada-solar-esmerelda7.html
+
 **Hope and Anxiety Over Israel-Gaza Peace**\
 `Readers respond to the rapidly developing events in the Middle East. Also: The virtues of coal; three hours with Velázquez.`\
 https://nytimes.com/2025/10/10/opinion/israel-gaza-peace.html
