@@ -1,3 +1,15 @@
+**Shein Chose Paris for Its First Boutique. Paris Isn’t Pleased.**\
+`As the Chinese online fast-fashion retailer prepares to open a physical space in a venerable department store, France pushes to stem the company’s presence in the country.`\
+https://nytimes.com/2025/10/10/business/shein-retail-store-paris-backlash.html
+
+**Tennis player who used 'kissing' as anti-doping defense suspended for four years**\
+`Gonçalo Oliveira had argued that kissing a woman at a bar in Mexico was the source of a positive test for methamphetamine.`\
+https://nytimes.com/athletic/6707165/2025/10/10/tennis-doping-goncalo-oliveira-kiss-methamphetamine/
+
+**Division I conference commissioners send letter to Congress, push for passing of SCORE Act**\
+`The conference leaders who signed on represent leagues with 353 NCAA Division I schools in 49 states and Washington, D.C.`\
+https://nytimes.com/athletic/6706753/2025/10/10/score-act-congress-division-i-commissioners/
+
 **Flashback: Your Weekly History Quiz, Oct. 11, 2025**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2025/10/10/upshot/flashback.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6706953/2025/10/10/broncos-jets-leicester-panthers-
 **White House Disapproves of Machado’s Nobel, but Rubio Is a Big Supporter**\
 `Marco Rubio was among eight Republican lawmakers who last year called the Venezuelan opposition leader “courageous and selfless” in a Nobel Prize nomination letter. Trump wanted the honor.`\
 https://nytimes.com/2025/10/10/us/politics/nobel-trump-rubio-venezuela.html
-
-**Browns name Sanders as No. 2 QB over Zappe ahead of game vs. Steelers**\
-`The Browns have Bailey Zappe on the practice squad, but unless they sign him to the active roster, they'll have just two active QBs Sunday.`\
-https://nytimes.com/athletic/6706758/2025/10/10/browns-shedeur-sanders-bailey-zappe-quarterback/
-
-**Peter M. Fishbein, Lawyer Accused in Savings-and-Loan Lawsuit, Dies at 91**\
-`His firm’s $41 million settlement in representing Charles H. Keating Jr. raised questions about government overreach.`\
-https://nytimes.com/2025/10/10/us/politics/peter-fishbein-dead.html
-
-**Palou was sold a dream 'based on lies' by McLaren, a court hears**\
-`Palou alleged "false impressions" led to him backing out of a deal to join the team.`\
-https://nytimes.com/athletic/6706692/2025/10/10/alex-palou-mclaren-zak-brown-f1/
 
