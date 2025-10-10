@@ -1,3 +1,11 @@
+**Cade Cunningham is ready, and more Pistons preseason observations**\
+`Ausar Thompson as a primary ballhandler? Here's what we've learned halfway through Detroit's preseason.`\
+https://nytimes.com/athletic/6705411/2025/10/10/pistons-cade-cunningham-preseason-observations/
+
+**The Fiscal Gambit at the Center of the Shutdown**\
+`It is a well-worn strategy to temporarily create a government benefit and hope that its eventual expiration will create a standoff like the shutdown fight.`\
+https://nytimes.com/2025/10/10/us/politics/shutdown-government-funding-health-insurance.html
+
 **Betting for (by) dummies: 9 bets to make this weekend**\
 `Who doesn't like their betting with a little banter? Two of our football experts discuss the best picks on the board this week.`\
 https://nytimes.com/athletic/6705232/2025/10/10/nfl-college-football-betting-picks-oklahoma-texas-ohio-state-steelers/

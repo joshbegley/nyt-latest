@@ -1,3 +1,11 @@
+**Why Is Taylor Swift So Polarizing? And Other Big ‘Showgirl’ Questions**\
+`Our team of Swift experts debate her blockbuster new album, “The Life of a Showgirl,” and take listener questions about its themes and controversies.`\
+https://nytimes.com/2025/10/10/arts/music/popcast-taylor-swift-showgirl-reader-questions.html
+
+**Arsenal sanctioned over ticketing breach in FA Cup match against Man Utd**\
+`The FA issued a statement Friday confirming a suspended fine after Arsenal failed to accommodate 9,000 Manchester United fans.`\
+https://nytimes.com/athletic/6706597/2025/10/10/arsenal-news-sanction-fa-man-united-fa-cup/
+
 **Cade Cunningham is ready, and more Pistons preseason observations**\
 `Ausar Thompson as a primary ballhandler? Here's what we've learned halfway through Detroit's preseason.`\
 https://nytimes.com/athletic/6705411/2025/10/10/pistons-cade-cunningham-preseason-observations/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6706336/2025/10/10/college-football-week-7-penn-sta
 **The 10.12.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/10/10/the-101225-issue
-
-**How Jonathan Toews' encouraging performance could come to define the Jets' season**\
-`Whether he's comfortable with the idea or not, Toews' recovery is going to be a defining element to Winnipeg's story this season.`\
-https://nytimes.com/athletic/6704216/2025/10/10/jonathan-toews-winnipeg-jets-2/
-
-**AJ Green's shooting, Bobby Portis' defense and more Bucks' preseason takeaways**\
-`Milwaukee is 2-0 this preseason despite missing Giannis Antetokounmpo.`\
-https://nytimes.com/athletic/6705935/2025/10/10/bucks-aj-green-preseason-observations/
 

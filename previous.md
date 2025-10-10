@@ -1,3 +1,11 @@
+**Cade Cunningham is ready, and more Pistons preseason observations**\
+`Ausar Thompson as a primary ballhandler? Here's what we've learned halfway through Detroit's preseason.`\
+https://nytimes.com/athletic/6705411/2025/10/10/pistons-cade-cunningham-preseason-observations/
+
+**The Fiscal Gambit at the Center of the Shutdown**\
+`It is a well-worn strategy to temporarily create a government benefit and hope that its eventual expiration will create a standoff like the shutdown fight.`\
+https://nytimes.com/2025/10/10/us/politics/shutdown-government-funding-health-insurance.html
+
 **Betting for (by) dummies: 9 bets to make this weekend**\
 `Who doesn't like their betting with a little banter? Two of our football experts discuss the best picks on the board this week.`\
 https://nytimes.com/athletic/6705232/2025/10/10/nfl-college-football-betting-picks-oklahoma-texas-ohio-state-steelers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6704216/2025/10/10/jonathan-toews-winnipeg-jets-2/
 **AJ Green's shooting, Bobby Portis' defense and more Bucks' preseason takeaways**\
 `Milwaukee is 2-0 this preseason despite missing Giannis Antetokounmpo.`\
 https://nytimes.com/athletic/6705935/2025/10/10/bucks-aj-green-preseason-observations/
-
-**Ricky Hatton's funeral held in Manchester as thousands line the streets**\
-`Retired boxers Tyson Fury, Tony Bellew, Frank Bruno and Amir Khan were in attendance for the funeral, among many prominent sportspeople.`\
-https://nytimes.com/athletic/6706125/2025/10/10/ricky-hatton-funeral-boxing/
-
-**Bigger Fanatics Fest NYC to coincide with 2026 World Cup final**\
-`The New York City area has never hosted a World Cup final in the history of the tournament and it’s not a given that it will ever happen again following the next year’s final on July 19, 2026.`\
-https://nytimes.com/athletic/6706239/2025/10/10/fanatics-fest-2026-world-cup-final/
 
