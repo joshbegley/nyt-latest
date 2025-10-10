@@ -1,3 +1,11 @@
+**Dodgers-Phillies Game 4 takeaways: Dodgers advance thanks to wild error in 11th**\
+`Phillies reliever Orion Kerkering booted a ground ball and threw wildly to home plate, ending a madcap series. `\
+https://nytimes.com/athletic/6704765/2025/10/09/dodgers-phillies-game-4-score-results-takeaways-playoffs-mlb/
+
+**Eagles 4 straight tush pushes lead to touchdown vs. Giants, frustrate viewers**\
+`"This is not football," Green Bay Packers star Micah Parsons said on X after the Eagles leaned heavily on the tush push to score a touchdown`\
+https://nytimes.com/athletic/6705271/2025/10/09/eagles-giants-four-straight-tush-pushes/
+
 **Oklahoma QB John Mateer (hand) upgraded to probable vs. Texas**\
 `There has been heavy speculation recently that Mateer would push to return this weekend after having hand surgery last month.`\
 https://nytimes.com/athletic/6705238/2025/10/09/john-mateer-injury-status-texas-oklahoma/
@@ -10,7 +18,7 @@ https://nytimes.com/2025/10/09/us/judge-national-guard-chicago-illinois.html
 `New York’s attorney general has joined colleagues nearly 40 times to confront the administration over myriad issues as the president pressures Democratic states.`\
 https://nytimes.com/2025/10/09/us/politics/letitia-james-lawsuits-trump.html
 
-**Give Trump the Nobel for Gaza, if He Does the Hard Parts to Come**\
+**Give Trump the Nobel for Gaza, if He Does the Harder Parts to Come**\
 `It’s a job that will take the rest of his presidency.`\
 https://nytimes.com/2025/10/09/opinion/trump-israel-nobel-gaza.html
 
@@ -29,8 +37,4 @@ https://nytimes.com/athletic/6704945/2025/10/09/brian-cashman-aaron-boone-yankee
 **49ers QB Mac Jones declines to talk about body he saw pulled from marina**\
 `QB turns attention to the field, where he hopes to start vs. Buccaneers on Sunday.`\
 https://nytimes.com/athletic/6704977/2025/10/09/mac-jones-49ers-body-marina/
-
-**U.S. to Send 200 Troops to Israel in Support Roles**\
-`The American force will help coordinate the many aspects of the cease-fire deal.`\
-https://nytimes.com/2025/10/09/world/middleeast/us-troops-israel-ceasefire.html
 

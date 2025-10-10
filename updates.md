@@ -1,3 +1,15 @@
+**Dodgers-Phillies Game 4 takeaways: Dodgers advance thanks to wild error in 11th**\
+`Phillies reliever Orion Kerkering booted a ground ball and threw wildly to home plate, ending a madcap series. `\
+https://nytimes.com/athletic/6704765/2025/10/09/dodgers-phillies-game-4-score-results-takeaways-playoffs-mlb/
+
+**Eagles 4 straight tush pushes lead to touchdown vs. Giants, frustrate viewers**\
+`"This is not football," Green Bay Packers star Micah Parsons said on X after the Eagles leaned heavily on the tush push to score a touchdown`\
+https://nytimes.com/athletic/6705271/2025/10/09/eagles-giants-four-straight-tush-pushes/
+
+**Give Trump the Nobel for Gaza, if He Does the Harder Parts to Come**\
+`It’s a job that will take the rest of his presidency.`\
+https://nytimes.com/2025/10/09/opinion/trump-israel-nobel-gaza.html
+
 **Oklahoma QB John Mateer (hand) upgraded to probable vs. Texas**\
 `There has been heavy speculation recently that Mateer would push to return this weekend after having hand surgery last month.`\
 https://nytimes.com/athletic/6705238/2025/10/09/john-mateer-injury-status-texas-oklahoma/
