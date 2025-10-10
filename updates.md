@@ -1,3 +1,7 @@
+**The explosion rattled homes miles from the explosion.**\
+`By Christine Hauser`\
+https://nytimes.com/live/2025/10/10/us/explosion-tennessee/the-explosion-rattled-homes-and-spread-debris-miles-from-the-explosion
+
 **The explosion rattled homes and spread debris miles from the explosion.**\
 `By Christine Hauser`\
 https://nytimes.com/live/2025/10/10/us/explosion-tennessee/the-explosion-rattled-homes-and-spread-debris-miles-from-the-explosion

@@ -1,3 +1,7 @@
+**How to watch Aces vs. Mercury: WNBA Finals Game 4 Time, TV, streaming**\
+`Find out how to watch the Las Vegas Aces play the Phoenix Mercury, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6707461/2025/10/10/aces-vs-mercury-stream-how-to-watch-oct-10/
+
 **The explosion rattled homes miles from the explosion.**\
 `By Christine Hauser`\
 https://nytimes.com/live/2025/10/10/us/explosion-tennessee/the-explosion-rattled-homes-and-spread-debris-miles-from-the-explosion
@@ -29,8 +33,4 @@ https://nytimes.com/2025/10/10/arts/music/pierre-boulez-esa-pekka-salonen-new-yo
 **Padres' Jose Iglesias, Xander Bogaerts disciplined for umpire interaction after Wild Card loss**\
 `The pair were shown in a fan-captured video berating the umpiring crew following the Padres' 3-1 loss in Game 3 of the NL Wild Card Series.`\
 https://nytimes.com/athletic/6707260/2025/10/10/san-diego-padres-jose-iglesias-xander-bogaerts-umpires-nl-wild-card-discipline/
-
-**Live Updates: Deaths Are Reported in Explosion at Tennessee Munitions Plant**\
-`At least 19 people were missing after a “devastating blast” at Accurate Energetic Systems, about 60 miles southwest of Nashville, officials said.`\
-https://nytimes.com/live/2025/10/10/us/explosion-tennessee
 
