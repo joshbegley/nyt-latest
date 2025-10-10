@@ -1,3 +1,11 @@
+**Former Celtics star Paul Pierce arrested on suspicion of DUI in Los Angeles**\
+`The ex-Celtic was arrested on suspicion of driving under the influence after being found asleep behind the wheel of a car, authorities said.`\
+https://nytimes.com/athletic/6705083/2025/10/09/paul-pierce-dui-arrest-news/
+
+**Top line clicks, Hartman scores twice, Gustavsson perfect: Season-opener takeaways**\
+`The Wild shut out the division rival St. Louis Blues to start the 2025-26 season.`\
+https://nytimes.com/athletic/6704989/2025/10/09/wild-hartman-gustavsson-top-line-blues/
+
 **Senate Passes Bipartisan $925 Billion Defense Policy Bill**\
 `The legislation would provide a 3.8 percent pay raise for American troops, while funding weapons and overhauling military procurement.`\
 https://nytimes.com/2025/10/09/us/senate-passes-bipartisan-925-billion-defense-policy-bill.html
