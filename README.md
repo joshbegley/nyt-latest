@@ -1,9 +1,13 @@
+**England are building a team, not just picking their best players — and it seems to be working**\
+`England beat Wales 3-0 on Thursday night. The signs are looking good ahead of next summer's World Cup`\
+https://nytimes.com/athletic/6705139/2025/10/10/england-world-cup-thomas-tuchel-analysis/
+
 **Knicks' read-and-react offense, 3-point shooting and more: Preseason observations**\
 `Have the Knicks solved an issue that hurt their offense last year?`\
 https://nytimes.com/athletic/6705582/2025/10/10/knicks-timberwolves-nba-preseason-game-observations/
 
 **Peru Ousts President Amid Crime Surge**\
-`Growing outrage over crime and political scandals eroded support for the country’s most unpopular leader in recent history.`\
+`Growing outrage over crime and political scandals eroded support for President Dina Boluarte, the country’s most unpopular leader in recent history.`\
 https://nytimes.com/2025/10/10/world/americas/peru-ousts-president-amid-crime-surge.html
 
 **An 'instant classic' game, an unbelievable finish, and a trip to the NLCS for the Dodgers**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6699747/2025/10/10/martin-kelly-liverpool-england-i
 **The Prospects: Mateus Mane, Wolverhampton Wanderers**\
 `After making considerable progress over recent seasons, those at Wolves hope the Portugal-born striker can become a first-team mainstay `\
 https://nytimes.com/athletic/6696553/2025/10/10/mateus-mane-wolverhampton-wanderers-prospects-premier-league/
-
-**Former UK swim coach accused of sexual violence deemed 'permanently ineligible' from coaching**\
-`The U.S. Center for SafeSport found Lars Jorgensen to have conducted physical misconduct, retaliation, sexual harassment, among others.`\
-https://nytimes.com/athletic/6705047/2025/10/10/kentucky-swimming-lars-jorgensen-sexual-assault-safesport-ruling/
 
