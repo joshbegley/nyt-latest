@@ -1,3 +1,19 @@
+**What to Know About the Federal Indictment Against Letitia James**\
+`Ms. James, a Democrat and New York’s attorney general, is a longtime nemesis of President Trump, She is charged with committing bank fraud to obtain favorable loan terms.`\
+https://nytimes.com/2025/10/10/nyregion/james-indictment-what-to-know.html
+
+**Nobel Organizers Look Into Surge of Bets for Winner Ahead of Announcement**\
+`The committee that awards the Nobel Peace Prize was looking into whether there was advance knowledge of María Corina Machado’s win.`\
+https://nytimes.com/2025/10/10/world/nobel-prize-bets-machado-investigation.html
+
+**Who wins the F1 championship? Six scenarios; Plus, Isack Hadjar's math-y race helmet**\
+`Welcome to Prime Tire, The Athletic's Formula 1 newsletter`\
+https://nytimes.com/athletic/6707152/2025/10/10/f1-drivers-championship-scenarios-prime-tire/
+
+**Trump to Announce a Drug Pricing Deal With AstraZeneca**\
+`The move would follow a similar agreement with Pfizer. Other companies are engaged in talks with the White House that would help them avoid tariffs on their products overseas.`\
+https://nytimes.com/2025/10/10/health/trump-drug-prices-astrazeneca.html
+
 **Shein Chose Paris for Its First Boutique. Paris Isn’t Pleased.**\
 `As the Chinese online fast-fashion retailer prepares to open a physical space in a venerable department store, France pushes to stem the company’s presence in the country.`\
 https://nytimes.com/2025/10/10/business/shein-retail-store-paris-backlash.html
@@ -21,20 +37,4 @@ https://nytimes.com/video/world/100000010444933/what-to-know-about-gen-z-protest
 **Brandon Taylor Discusses His New Novel**\
 `“Minor Black Figures” encompasses race, class, religion and art, but at its heart it’s really about “what happens when you encounter a priest at a bar one hazy summer night in New York.”`\
 https://nytimes.com/2025/10/10/books/review/podcast-brandon-taylor-interview.html
-
-**Holding Back Tears, Prince William Shows a New Side of a Future King**\
-`In two video encounters — one discussing the impact of suicide, and a more lighthearted conversation with Eugene Levy — the heir to the British throne opened up, a little.`\
-https://nytimes.com/2025/10/10/world/europe/prince-william-interviews-mental-health-monarchy.html
-
-**Melania Trump Says She Has Been Working With Putin to Reunite Missing Ukrainian Children**\
-`“President Putin and I have had an open line of communication regarding the welfare of these children,” the first lady announced.`\
-https://nytimes.com/2025/10/10/us/politics/melania-trump-putin-ukraine-children.html
-
-**How Broncos expanded their 'unprecedented' youth helmet initiative to UK**\
-`Broncos owner Greg Penner paints broad next steps for the franchise with its new stadium project.`\
-https://nytimes.com/athletic/6706953/2025/10/10/broncos-jets-leicester-panthers-london/
-
-**White House Disapproves of Machado’s Nobel, but Rubio Is a Big Supporter**\
-`Marco Rubio was among eight Republican lawmakers who last year called the Venezuelan opposition leader “courageous and selfless” in a Nobel Prize nomination letter. Trump wanted the honor.`\
-https://nytimes.com/2025/10/10/us/politics/nobel-trump-rubio-venezuela.html
 
