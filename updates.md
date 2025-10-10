@@ -1,3 +1,7 @@
+**Jaxson Dart: Giants fans are 'starving' for a winner, and he is here to give them one**\
+`Dart’s fearless style may be exactly what New York needs to finally snap out of its prolonged funk. The rookie was electric Thursday night.`\
+https://nytimes.com/athletic/6705787/2025/10/10/giants-jaxson-dart-eagles-starving-winner/
+
 **Who Is María Corina Machado, Winner of the 2025 Nobel Peace Prize?**\
 `Ms. Machado built one of Venezuela’s most important political movements, and lives in hiding from President Nicolás Maduro’s authoritarian government.`\
 https://nytimes.com/2025/10/10/world/americas/maria-corina-machado-nobel-peace-prize-venezuela.html
