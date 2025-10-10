@@ -1,3 +1,15 @@
+**Last year’s Peace Prize was awarded to Japanese atomic bomb survivors.**\
+`Nihon Hidankyo is a group of survivors formed in the aftermath of the atomic bombings in Hiroshima and Nagasaki, and has shared thousands of testimonies.`\
+https://nytimes.com/live/2025/10/10/world/nobel-peace-prize/last-years-peace-prize-was-awarded-to-japanese-atomic-bomb-survivors
+
+**Here is the latest.**\
+`By Jonathan Wolfe`\
+https://nytimes.com/live/2025/10/10/world/nobel-peace-prize/here-is-the-latest
+
+**Live Updates: Nobel Peace Prize Is Set to Be Awarded**\
+`The recipient will be announced Friday morning in Oslo. As usual, the official list of nominees is secret.`\
+https://nytimes.com/live/2025/10/10/world/nobel-peace-prize
+
 **Powerful Earthquake Strikes Southern Philippines**\
 `A 7.4-magnitude quake rattled the southern Philippines. Several people were killed, and a tsunami warning was issued.`\
 https://nytimes.com/video/world/asia/100000010451362/philippines-mindanao-earthquake.html
