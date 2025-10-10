@@ -1,3 +1,7 @@
+**The Bounce: What NBA GMs really think. Plus, we preview the Warriors and Celtics**\
+`Zach Harper catches you up on all things NBA.`\
+https://nytimes.com/athletic/6706659/2025/10/10/the-bounce-nba-warriors-celtics-wembanyama/
+
 **Tensions have been rising between Venezuela and the U.S.**\
 `By Jonathan Wolfe`\
 https://nytimes.com/live/2025/10/10/world/nobel-peace-prize/tensions-have-been-rising-between-venezuela-and-the-us
@@ -29,12 +33,4 @@ https://nytimes.com/2025/10/10/arts/music/popcast-taylor-swift-showgirl-reader-q
 **Arsenal sanctioned over ticketing breach in FA Cup match against Man Utd**\
 `The FA issued a statement Friday confirming a suspended fine after Arsenal failed to accommodate 9,000 Manchester United fans.`\
 https://nytimes.com/athletic/6706597/2025/10/10/arsenal-news-sanction-fa-man-united-fa-cup/
-
-**Cade Cunningham is ready, and more Pistons preseason observations**\
-`Ausar Thompson as a primary ballhandler? Here's what we've learned halfway through Detroit's preseason.`\
-https://nytimes.com/athletic/6705411/2025/10/10/pistons-cade-cunningham-preseason-observations/
-
-**The Fiscal Gambit at the Center of the Shutdown**\
-`It is a well-worn strategy to temporarily create a government benefit and hope that its eventual expiration will create a standoff like the shutdown fight.`\
-https://nytimes.com/2025/10/10/us/politics/shutdown-government-funding-health-insurance.html
 

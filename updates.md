@@ -1,3 +1,15 @@
+**Tensions have been rising between Venezuela and the U.S.**\
+`By Jonathan Wolfe`\
+https://nytimes.com/live/2025/10/10/world/nobel-peace-prize/tensions-have-been-rising-between-venezuela-and-the-us
+
+**Red Light: Knee-jerk reactions to the NHL season's early games**\
+`Plus: These rookies are already separating themselves from the pack in the Calder Trophy race.`\
+https://nytimes.com/athletic/6706631/2025/10/10/red-light-nhl-newsletter-new-season-reaction/
+
+**Word of the Day: ambivalence**\
+`This word has appeared in 140 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/10/10/learning/word-of-the-day-ambivalence.html
+
 **Bellingham tells athletes to 'show vulnerability' and talk about mental health**\
 `The England international said he used to read "everything" that was said about him on social media.`\
 https://nytimes.com/athletic/6706554/2025/10/10/real-madrid-bellingham-news-england-mental-health/
