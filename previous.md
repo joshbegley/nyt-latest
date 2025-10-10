@@ -1,3 +1,11 @@
+**Here are some other factory explosions in American history.**\
+`By Rylee Kirk`\
+https://nytimes.com/live/2025/10/10/us/explosion-tennessee/here-are-some-other-factory-explosions-in-american-history
+
+**USMNT vs. Ecuador team news: Pulisic not starting; LB Robinson out**\
+`Mauricio Pochettino was playing with less than a full deck Friday night, with key injuries altering his starting XI vs. La Tri`\
+https://nytimes.com/athletic/6707094/2025/10/10/christian-pulisic-usmnt-ecuador-injury-lineup-news-pochettino/
+
 **Clark Olofsson, 78, Dies; Bank Robber Helped Inspire ‘Stockholm Syndrome’**\
 `In a 1973 heist, he and another man held hostages who surprisingly came to defend them, drawing attention to a puzzling psychological phenomenon.`\
 https://nytimes.com/2025/10/10/world/europe/clark-olofsson-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6707683/2025/10/10/albert-pujols-angels-manager-dis
 **Marc Benioff Says Trump Should Send Guard Troops to San Francisco**\
 `Mr. Benioff, the Salesforce C.E.O. and owner of Time magazine, once supported Hillary Clinton and a business tax for homeless services. Now he’s fully behind Donald Trump.`\
 https://nytimes.com/2025/10/10/us/marc-benioff-san-francisco-guard.html
-
-**Tennessee Explosion’s Devastation Stirs Painful Memories of Flash Floods in 2021**\
-`The sheriff of Humphreys County, Tenn., said the 2021 flooding was informing his response to the Accurate Energetic Systems explosion.`\
-https://nytimes.com/2025/10/10/us/tennessee-explosions-devastation-stirs-painful-memories-of-flash-floods-in-2021.html
-
-**The Gaza Cease-Fire Takes Hold**\
-`Also, the Nobel Peace Prize was awarded. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2025/10/10/briefing/cease-fire-nobel.html
 
