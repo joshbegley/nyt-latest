@@ -1,3 +1,19 @@
+**Deadly Explosion at Tennessee Ammunition Plant**\
+`Multiple people were killed and several others were missing after an explosion at an ammunition plant in Tennessee on Friday morning, the authorities said.`\
+https://nytimes.com/video/us/100000010452629/tennessee-munitions-plant-explosion.html
+
+**To Honor the King of Lox, Lots of Lox**\
+`The spread at Saul Zabar’s shiva.`\
+https://nytimes.com/2025/10/10/style/saul-zabar-shiva-lox.html
+
+**Student Loan Cancellation Is Restarting for Some Federal Borrowers**\
+`After being halted for most of the year, borrowers enrolled in one income-driven repayment plan may begin to receive loan discharges within weeks.`\
+https://nytimes.com/2025/10/10/business/student-loan-forgiveness-ibr.html
+
+**The Pleasures of Reading Laszlo Krasznahorkai, Master of Doom**\
+`He won the Nobel Prize in Literature for books often called bleak and challenging. But they’re also comical and deeply human.`\
+https://nytimes.com/2025/10/10/books/review/laszlo-krasznahorkai-nobel-appreciation.html
+
 **The Pleasures of Reading Laszlo Krasznahorkai, Master of Doom**\
 `He won the Nobel Prize in Literature for books often called bleak and challenging. But they’re also hilarious and deeply human.`\
 https://nytimes.com/2025/10/10/books/review/laszlo-krasznahorkai-nobel-appreciation.html

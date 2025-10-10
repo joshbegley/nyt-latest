@@ -1,3 +1,11 @@
+**Live Updates: Deaths Are Reported in Explosion at Tennessee Munitions Plant**\
+`A number of people were missing after a “devastating blast” at Accurate Energetic Systems, about 60 miles southwest of Nashville, a county sheriff said.`\
+https://nytimes.com/live/2025/10/10/us/explosion-tennessee
+
+**A Perilous Difference Between the Trump and Nixon Eras**\
+`Nixon famously had an enemies list. But there’s a difference between what happened then and what is happening now.`\
+https://nytimes.com/2025/10/10/opinion/letitia-james-donald-trump-nixon.html
+
 **Deadly Explosion at Tennessee Ammunition Plant**\
 `Multiple people were killed and several others were missing after an explosion at an ammunition plant in Tennessee on Friday morning, the authorities said.`\
 https://nytimes.com/video/us/100000010452629/tennessee-munitions-plant-explosion.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/10/10/us/politics/letitia-james-mortgage-fraud-charges.
 **What to Know About the Federal Indictment Against Letitia James**\
 `Ms. James, a Democrat and New York’s attorney general, is a longtime nemesis of President Trump, She is charged with committing bank fraud to obtain favorable loan terms.`\
 https://nytimes.com/2025/10/10/nyregion/james-indictment-what-to-know.html
-
-**Nobel Organizers Look Into Surge of Bets for Winner Ahead of Announcement**\
-`The committee that awards the Nobel Peace Prize was looking into whether there was advance knowledge of María Corina Machado’s win.`\
-https://nytimes.com/2025/10/10/world/nobel-prize-bets-machado-investigation.html
-
-**Who wins the F1 championship? Six scenarios; Plus, Isack Hadjar's math-y race helmet**\
-`Welcome to Prime Tire, The Athletic's Formula 1 newsletter`\
-https://nytimes.com/athletic/6707152/2025/10/10/f1-drivers-championship-scenarios-prime-tire/
 
