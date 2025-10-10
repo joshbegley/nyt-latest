@@ -1,3 +1,15 @@
+**Israeli Military Says Cease-Fire Is in Effect in Gaza**\
+`The statement came after Israel approved a deal between Israel and Hamas to pave the way for the release of hostages in exchange for Palestinian prisoners.`\
+https://nytimes.com/2025/10/10/world/middleeast/gaza-cease-fire-israel-hamas.html
+
+**To save their season, Brewers need Jacob Misiorowski to be mid-summer ‘Miz’**\
+`To keep the season afloat, to avoid living out a nightmare, the Brewers will need the remarkable right arm of the first-year All-Star.`\
+https://nytimes.com/athletic/6705683/2025/10/10/milwaukee-brewers-nlds-game-5-jacob-misiorowski-analysis/
+
+**The Steelers went big to unlock their running game — here's why it's working**\
+`The Steelers' successful ground game in Dublin was fueled by some unexpected — and unexpectedly large — contributors.`\
+https://nytimes.com/athletic/6704991/2025/10/10/pittsburgh-steelers-run-game-sixth-offensive-lineman/
+
 **Phillies share the pain after Orion Kerkering's error leads to crushing elimination loss**\
 `Inside the clubhouse, there was shock, anger, concern for the young reliever — and a sense that something more than a season had ended.`\
 https://nytimes.com/athletic/6705755/2025/10/10/phillies-orion-kerkering-error-nlds-game-5-loss/
@@ -25,16 +37,4 @@ https://nytimes.com/issue/todaysinyt/2025/10/10/todays-new-york-times-internatio
 **Next week’s waiver wire: Jayden Higgins and more players to add — before the Week 6 rush**\
 `John Laghezza looks ahead to help you grab Jayden Higgins, Michael Mayer, Isaiah Davis and others before the crowd catches wind. `\
 https://nytimes.com/athletic/6702960/2025/10/10/next-weeks-waiver-wire-isaiah-davis-jayden-higgins-and-more-players-to-add-before-the-week-6-rush/
-
-**The New York Times News Quiz, Oct. 10, 2025**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2025/10/10/briefing/news-quiz-israel-national-guard-trump.html
-
-**What Courts Have Said in Challenges to Trump’s National Guard Deployments**\
-`Federal courts across the country have heard legal challenges to the mobilization of troops in Los Angeles, Washington, Portland, Ore., and Chicago. Here’s how some judges have ruled.`\
-https://nytimes.com/2025/10/10/us/federal-courts-national-guard-trump.html
-
-**The Most Common Signs of a Heart Attack**\
-`They aren’t all sudden or intense, experts says.`\
-https://nytimes.com/2025/10/10/well/common-signs-heart-attack.html
 
