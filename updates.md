@@ -1,3 +1,23 @@
+**Shein Chose Paris for Its First Boutique. Paris Isn’t Pleased.**\
+`As the Chinese online fast-fashion retailer prepares to open a physical space in a venerable department store, France pushes to stem the company’s presence in the country.`\
+https://nytimes.com/2025/10/10/business/shein-retail-store-paris-backlash.html
+
+**Tennis player who used 'kissing' as anti-doping defense suspended for four years**\
+`Gonçalo Oliveira had argued that kissing a woman at a bar in Mexico was the source of a positive test for methamphetamine.`\
+https://nytimes.com/athletic/6707165/2025/10/10/tennis-doping-goncalo-oliveira-kiss-methamphetamine/
+
+**Division I conference commissioners send letter to Congress, push for passing of SCORE Act**\
+`The conference leaders who signed on represent leagues with 353 NCAA Division I schools in 49 states and Washington, D.C.`\
+https://nytimes.com/athletic/6706753/2025/10/10/score-act-congress-division-i-commissioners/
+
+**Flashback: Your Weekly History Quiz, Oct. 11, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/10/10/upshot/flashback.html
+
+**White House Disapproves of Machado’s Nobel, but Rubio Is a Big Supporter**\
+`Marco Rubio was among eight Republican lawmakers who last year called the Venezuelan opposition leader “courageous and selfless” in a Nobel Prize nomination letter. Trump wanted the honor.`\
+https://nytimes.com/2025/10/10/us/politics/nobel-trump-rubio-venezuela.html
+
 **Flashback: Your Weekly History Quiz, Oct. 11, 2025**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2025/10/10/upshot/flashback-2025-10-11.html
