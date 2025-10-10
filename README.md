@@ -1,3 +1,11 @@
+**For families of the missing, an agonizing wait.**\
+`By Eduardo Medina`\
+https://nytimes.com/live/2025/10/10/us/explosion-tennessee/for-families-of-the-missing-an-agonizing-wait
+
+**Brock Purdy out, Mac Jones questionable but expected to start vs. Bucs**\
+`The Niners will also be without WR Ricky Pearsall, while the Bucs will be missing WRs Mike Evans and Chris Godwin and RB Bucky Irving.`\
+https://nytimes.com/athletic/6707266/2025/10/10/brock-purdy-mac-jones-injuries-49ers/
+
 **‘Krapp’s Last Tape’ Review: Stephen Rea’s Duet With His Younger Self**\
 `Samuel Beckett’s 55-minute contemplation of mortality comes to NYU Skirball in a neat and handsome staging by Vicky Featherstone.`\
 https://nytimes.com/2025/10/10/theater/krapps-last-tape-review-stephen-rea.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/the-athletic/100000010452753/3-former-college-teammate
 **Hayley Williams on Paramore’s Relationship With Its Black Fans**\
 `Paramore’s Hayley Williams talks about the bands relationship with its Black fans and fostering a sense of community at their shows.`\
 https://nytimes.com/video/podcasts/100000010452330/hayley-williams-on-paramores-relationship-with-its-black-fans.html
-
-**Orion Kerkering's error in the MLB playoffs was brutal, but his response was admirable**\
-`In the moments after the Phillies' heartbreaking loss, Kerkering did the simplest thing an athlete can do after a mistake. He owned it. `\
-https://nytimes.com/athletic/6707397/2025/10/10/phillies-orion-kerkering-pitcher-error-response/
-
-**Ravens will be without quarterback Lamar Jackson vs. Rams**\
-`Cooper Rush will get his second consecutive start, with Tyler Huntley elevated from the practice squad to back him up.`\
-https://nytimes.com/athletic/6707037/2025/10/10/ravens-lamar-jackson-rams-nfl-injury/
 
