@@ -1,3 +1,11 @@
+**Gary Bettman backs 'terrific' Sabres owner Terry Pegula amid ongoing playoff drought**\
+`“This is a great hockey market and it’s just a question of performance,” Bettman said in response to a question about the Sabres’ struggles.`\
+https://nytimes.com/athletic/6705376/2025/10/09/sabres-gary-bettman-terry-pegula/
+
+**Tigers-Mariners ALDS Game 5: George Kirby to start win-or-go-home game**\
+`Luis Castillo, who started Game 2 on Sunday, will be available behind him.`\
+https://nytimes.com/athletic/6705390/2025/10/09/mariners-tigers-alds-game-5-george-kirby-start/
+
 **Judge Rejects ‘Unprecedented’ Indictment Amid Trump’s D.C. Clampdown**\
 `The federal magistrate judge, Zia M. Faruqui, accused prosecutors of relying on a “facially invalid” indictment to charge a man with felony gun possession.`\
 https://nytimes.com/2025/10/09/us/politics/judge-rejects-indictment-dc.html

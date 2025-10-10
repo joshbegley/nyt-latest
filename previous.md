@@ -1,3 +1,11 @@
+**Gary Bettman backs 'terrific' Sabres owner Terry Pegula amid ongoing playoff drought**\
+`“This is a great hockey market and it’s just a question of performance,” Bettman said in response to a question about the Sabres’ struggles.`\
+https://nytimes.com/athletic/6705376/2025/10/09/sabres-gary-bettman-terry-pegula/
+
+**Tigers-Mariners ALDS Game 5: George Kirby to start win-or-go-home game**\
+`Luis Castillo, who started Game 2 on Sunday, will be available behind him.`\
+https://nytimes.com/athletic/6705390/2025/10/09/mariners-tigers-alds-game-5-george-kirby-start/
+
 **Judge Rejects ‘Unprecedented’ Indictment Amid Trump’s D.C. Clampdown**\
 `The federal magistrate judge, Zia M. Faruqui, accused prosecutors of relying on a “facially invalid” indictment to charge a man with felony gun possession.`\
 https://nytimes.com/2025/10/09/us/politics/judge-rejects-indictment-dc.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6705271/2025/10/09/eagles-giants-four-straight-tush
 **Oklahoma QB John Mateer (hand) upgraded to probable vs. Texas**\
 `There has been heavy speculation recently that Mateer would push to return this weekend after having hand surgery last month.`\
 https://nytimes.com/athletic/6705238/2025/10/09/john-mateer-injury-status-texas-oklahoma/
-
-**Federal Judge Temporarily Blocks National Guard Deployment in Illinois**\
-`Judge April M. Perry said the Trump administration had not established that sending in troops over the governor’s objection was legally justified. An appeal is likely.`\
-https://nytimes.com/2025/10/09/us/judge-national-guard-chicago-illinois.html
-
-**Letitia James Has Marshaled States to Sue Trump**\
-`New York’s attorney general has joined colleagues nearly 40 times to confront the administration over myriad issues as the president pressures Democratic states.`\
-https://nytimes.com/2025/10/09/us/politics/letitia-james-lawsuits-trump.html
 
