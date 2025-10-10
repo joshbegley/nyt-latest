@@ -1,3 +1,7 @@
+**Senate Passes Bipartisan $925 Billion Defense Policy Bill**\
+`The legislation would provide a 3.8 percent pay raise for American troops, while funding weapons and overhauling military procurement.`\
+https://nytimes.com/2025/10/09/us/senate-passes-bipartisan-925-billion-defense-policy-bill.html
+
 **Gary Bettman backs 'terrific' Sabres owner Terry Pegula amid ongoing playoff drought**\
 `“This is a great hockey market and it’s just a question of performance,” Bettman said in response to a question about the Sabres’ struggles.`\
 https://nytimes.com/athletic/6705376/2025/10/09/sabres-gary-bettman-terry-pegula/
@@ -26,15 +30,11 @@ https://nytimes.com/athletic/6704753/2025/10/09/lakers-fan-suing-lebron-second-d
 `Colin Adams opens our solving weekend.`\
 https://nytimes.com/2025/10/09/crosswords/daily-puzzle-2025-10-10.html
 
-**Dodgers-Phillies Game 4 takeaways: Dodgers advance thanks to wild error in 11th**\
+**Dodgers-Phillies Game 4 takeaways: L.A. advances thanks to wild error in 11th**\
 `Phillies reliever Orion Kerkering booted a groundball and threw wildly to home plate, ending a madcap series. `\
 https://nytimes.com/athletic/6704765/2025/10/09/dodgers-phillies-game-4-score-results-takeaways-playoffs-mlb/
 
 **Eagles' 4 straight tush pushes lead to touchdown vs. Giants, frustrate viewers**\
 `"This is not football," Green Bay Packers star Micah Parsons said on X after the Eagles leaned heavily on the tush push to score a touchdown`\
 https://nytimes.com/athletic/6705271/2025/10/09/eagles-giants-four-straight-tush-pushes/
-
-**Oklahoma QB John Mateer (hand) upgraded to probable vs. Texas**\
-`There has been heavy speculation recently that Mateer would push to return this weekend after having hand surgery last month.`\
-https://nytimes.com/athletic/6705238/2025/10/09/john-mateer-injury-status-texas-oklahoma/
 

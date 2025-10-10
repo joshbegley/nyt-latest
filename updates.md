@@ -1,3 +1,11 @@
+**Senate Passes Bipartisan $925 Billion Defense Policy Bill**\
+`The legislation would provide a 3.8 percent pay raise for American troops, while funding weapons and overhauling military procurement.`\
+https://nytimes.com/2025/10/09/us/senate-passes-bipartisan-925-billion-defense-policy-bill.html
+
+**Dodgers-Phillies Game 4 takeaways: L.A. advances thanks to wild error in 11th**\
+`Phillies reliever Orion Kerkering booted a groundball and threw wildly to home plate, ending a madcap series. `\
+https://nytimes.com/athletic/6704765/2025/10/09/dodgers-phillies-game-4-score-results-takeaways-playoffs-mlb/
+
 **Gary Bettman backs 'terrific' Sabres owner Terry Pegula amid ongoing playoff drought**\
 `“This is a great hockey market and it’s just a question of performance,” Bettman said in response to a question about the Sabres’ struggles.`\
 https://nytimes.com/athletic/6705376/2025/10/09/sabres-gary-bettman-terry-pegula/
