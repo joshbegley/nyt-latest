@@ -26,7 +26,3 @@ https://nytimes.com/2025/10/09/us/politics/letitia-james-indictment-charges.html
 `Keira Knightley and Guy Pearce encounter bumpy waters on a yacht in this adaptation of a Ruth Ware thriller.`\
 https://nytimes.com/2025/10/09/movies/the-woman-in-cabin-10-review.html
 
-**Tarik Skubal's Seattle story comes full circle in ALDS Game 5**\
-`The decision to attend college in Seattle changed Skubal’s life. Now he's back in the city for what could be the biggest game of his career.`\
-https://nytimes.com/athletic/6704696/2025/10/09/alds-game-5-tarik-skubal-seattle/
-
