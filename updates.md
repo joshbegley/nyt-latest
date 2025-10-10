@@ -1,3 +1,7 @@
+**L.A. County Considers Emergency Declaration Over Immigration Raids**\
+`The declaration would allow the Los Angeles County Board of Supervisors to enact an eviction moratorium and other protections for immigrants.`\
+https://nytimes.com/2025/10/09/us/los-angeles-county-ice-raids-emergency.html
+
 **What a National Guard Deployment Means**\
 `John Ismay, who reports on the Pentagon for The New York Times, describes what National Guard troops and civilian law enforcement are doing in cities where President Trump has mobilized them.`\
 https://nytimes.com/video/us/100000010446054/how-trump-is-using-the-national-guard.html
