@@ -1,3 +1,7 @@
+**Josh Johnson Can’t Believe He’s Praising Trump for Something**\
+`If the Gaza deal holds, then “the guy who couldn’t stop a fight between Gary Busey and Meat Loaf brokered peace in the Middle East,” said the “Daily Show” host.`\
+https://nytimes.com/2025/10/10/arts/television/late-night-trump-peace-gaza.html
+
 **How to watch Tigers at Mariners: Game 5 Time, TV, streaming**\
 `Find out how to watch the Detroit Tigers play the Seattle Mariners, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6705795/2025/10/10/tigers-vs-mariners-stream-how-to-watch-oct-10/
