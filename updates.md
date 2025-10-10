@@ -1,3 +1,7 @@
+**How the Broncos expanded their 'unprecedented' youth helmet initiative to the UK**\
+`Broncos owner Greg Penner paints broad next steps for the franchise with its new stadium project.`\
+https://nytimes.com/athletic/6706953/2025/10/10/broncos-jets-leicester-panthers-london/
+
 **White House Disapproves of Machado’s Nobel, but Rubio Has Been a Big Supporter**\
 `Marco Rubio was among eight Republican lawmakers who last year called the Venezuelan opposition leader “courageous and selfless” in a Nobel Prize nomination letter. Trump wanted the honor.`\
 https://nytimes.com/2025/10/10/us/politics/nobel-trump-rubio-venezuela.html
