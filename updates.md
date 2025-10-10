@@ -1,3 +1,11 @@
+**Pasta With Feta and Green Olives**\
+`Bold, briny and tangy, this 15-minute pasta is full of personality. Olives are first slightly blistered in oil, drawing out their brininess, then crumbled feta is stirred into the pasta at the end until melty.`\
+https://nytimes.com/video/dining/100000010366536/pasta-with-feta-and-green-olives.html
+
+**Jalapeño Grilled Pork Chops**\
+`Juicy jalapeños offer discernible heat, but they have a higher purpose beyond that: They provide welcome freshness with their distinct vegetal flavor.`\
+https://nytimes.com/video/dining/100000010366435/jalapeno-grilled-pork-chops.html
+
 **For Mamdani and James, Twin Targets of Trump, a Political Bond Deepens**\
 `Zohran Mamdani, the front-runner in the New York City mayor’s race, and Letitia James, New York’s attorney general, have a kinship shaped in part by their shared opposition to the president.`\
 https://nytimes.com/2025/10/10/nyregion/zohran-mamdani-letitia-james-trump.html
