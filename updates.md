@@ -1,3 +1,11 @@
+**Knicks' read-and-react offense, 3-point shooting and more: Preseason observations**\
+`Have the Knicks solved an issue that hurt their offense last year?`\
+https://nytimes.com/athletic/6705582/2025/10/10/knicks-timberwolves-nba-preseason-game-observations/
+
+**Peru Ousts President Amid Crime Surge**\
+`Growing outrage over crime and political scandals eroded support for the country’s most unpopular leader in recent history.`\
+https://nytimes.com/2025/10/10/world/americas/peru-ousts-president-amid-crime-surge.html
+
 **An 'instant classic' game, an unbelievable finish, and a trip to the NLCS for the Dodgers**\
 `Andy Pages hit the ball and wound up as stunned as anyone: “I saw that he threw home, and I just thought, 'No, he threw the game away.'"`\
 https://nytimes.com/athletic/6705565/2025/10/10/dodgers-phillies-nlds-game-4-orion-kerkering/

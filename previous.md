@@ -1,3 +1,11 @@
+**Knicks' read-and-react offense, 3-point shooting and more: Preseason observations**\
+`Have the Knicks solved an issue that hurt their offense last year?`\
+https://nytimes.com/athletic/6705582/2025/10/10/knicks-timberwolves-nba-preseason-game-observations/
+
+**Peru Ousts President Amid Crime Surge**\
+`Growing outrage over crime and political scandals eroded support for the country’s most unpopular leader in recent history.`\
+https://nytimes.com/2025/10/10/world/americas/peru-ousts-president-amid-crime-surge.html
+
 **An 'instant classic' game, an unbelievable finish, and a trip to the NLCS for the Dodgers**\
 `Andy Pages hit the ball and wound up as stunned as anyone: “I saw that he threw home, and I just thought, 'No, he threw the game away.'"`\
 https://nytimes.com/athletic/6705565/2025/10/10/dodgers-phillies-nlds-game-4-orion-kerkering/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6696553/2025/10/10/mateus-mane-wolverhampton-wander
 **Former UK swim coach accused of sexual violence deemed 'permanently ineligible' from coaching**\
 `The U.S. Center for SafeSport found Lars Jorgensen to have conducted physical misconduct, retaliation, sexual harassment, among others.`\
 https://nytimes.com/athletic/6705047/2025/10/10/kentucky-swimming-lars-jorgensen-sexual-assault-safesport-ruling/
-
-**Sister Jean, beloved Loyola University Chicago basketball chaplain, dies at 106**\
-`Sister Jean rose to national prominence during the Ramblers' Cinderella run in the 2018 NCAA Tournament.`\
-https://nytimes.com/athletic/6705559/2025/10/10/sister-jean-dead-loyola-chicago-basketball/
-
-**Donyell Malen: The forward that offers a profile like no other — and how Aston Villa use him**\
-`Malen has settled in England since his move from Germany and now it seems Villa are find a way to settle him into their side`\
-https://nytimes.com/athletic/6693438/2025/10/10/donyell-malen-aston-villa-analysis/
 
