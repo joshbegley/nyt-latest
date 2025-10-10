@@ -1,3 +1,7 @@
+**An 'instant classic' game, an unbelievable finish and a trip to the NLCS for the Dodgers**\
+`Andy Pages hit the ball and wound up as stunned as anyone: “I saw that he threw home, and I just thought, 'No, he threw the game away.'"`\
+https://nytimes.com/athletic/6705565/2025/10/10/dodgers-phillies-nlds-game-4-orion-kerkering/
+
 **England are building a team, not just picking their best players — and it seems to be working**\
 `England beat Wales 3-0 on Thursday night. The signs are looking good ahead of next summer's World Cup`\
 https://nytimes.com/athletic/6705139/2025/10/10/england-world-cup-thomas-tuchel-analysis/
