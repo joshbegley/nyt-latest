@@ -1,3 +1,11 @@
+**Mario Lemieux on hand as Penguins beat Islanders in Schaefer's debut: Observations**\
+`Mario Lemieux was on hand to watch the Penguins move to 2-0 thanks to a big night from Evgeni Malkin.`\
+https://nytimes.com/athletic/6705385/2025/10/09/penguins-lemieux-home-opener-malkin-islanders/
+
+**Giants-Eagles: New York stuns Philadelphia behind Cam Skattebo's 3 TDs**\
+`The Eagles' defense couldn't slow down Skattebo, who had 98 rushing yards in the win.`\
+https://nytimes.com/athletic/6704879/2025/10/09/eagles-giants-score-result-takeaways-thursday-night-football/
+
 **Dan Vladar strong in goal, but top offensive assets dormant in season-opening loss**\
 `The Flyers are still learning how Rick Tocchet wants to play, and the skill gap was evident against the Panthers.`\
 https://nytimes.com/athletic/6705447/2025/10/09/flyers-vladar-season-opener-panthers/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6705390/2025/10/09/mariners-tigers-alds-game-5-geor
 **Judge Rejects ‘Unprecedented’ Indictment Amid Trump’s D.C. Clampdown**\
 `The federal magistrate judge, Zia M. Faruqui, accused prosecutors of relying on a “facially invalid” indictment to charge a man with felony gun possession.`\
 https://nytimes.com/2025/10/09/us/politics/judge-rejects-indictment-dc.html
-
-**Map: 7.4-Magnitude Earthquake Strikes the Philippine Sea**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/10/09/world/asia/quake-tracker-philippine-sea.html
-
-**Powerful Earthquake Strikes Southern Philippines**\
-`A magnitude 7.4 quake struck the off the east coast of Mindanao, a southern Philippine island. Officials issued a tsunami warning.`\
-https://nytimes.com/2025/10/09/world/asia/philippines-mindanao-earthquake.html
 

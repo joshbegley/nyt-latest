@@ -1,3 +1,11 @@
+**Mario Lemieux on hand as Penguins beat Islanders in Schaefer's debut: Observations**\
+`Mario Lemieux was on hand to watch the Penguins move to 2-0 thanks to a big night from Evgeni Malkin.`\
+https://nytimes.com/athletic/6705385/2025/10/09/penguins-lemieux-home-opener-malkin-islanders/
+
+**Giants-Eagles: New York stuns Philadelphia behind Cam Skattebo's 3 TDs**\
+`The Eagles' defense couldn't slow down Skattebo, who had 98 rushing yards in the win.`\
+https://nytimes.com/athletic/6704879/2025/10/09/eagles-giants-score-result-takeaways-thursday-night-football/
+
 **Dan Vladar strong in goal, but top offensive assets dormant in season-opening loss**\
 `The Flyers are still learning how Rick Tocchet wants to play, and the skill gap was evident against the Panthers.`\
 https://nytimes.com/athletic/6705447/2025/10/09/flyers-vladar-season-opener-panthers/
