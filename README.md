@@ -1,3 +1,11 @@
+**Former Celtics star Paul Pierce arrested on suspicion of DUI in Los Angeles**\
+`The ex-Celtic was arrested on suspicion of driving under the influence after being found asleep behind the wheel of a car, authorities said.`\
+https://nytimes.com/athletic/6705083/2025/10/09/paul-pierce-dui-arrest-news/
+
+**Top line clicks, Hartman scores twice, Gustavsson perfect: Season-opener takeaways**\
+`The Wild shut out the division rival St. Louis Blues to start the 2025-26 season.`\
+https://nytimes.com/athletic/6704989/2025/10/09/wild-hartman-gustavsson-top-line-blues/
+
 **Senate Passes Bipartisan $925 Billion Defense Policy Bill**\
 `The legislation would provide a 3.8 percent pay raise for American troops, while funding weapons and overhauling military procurement.`\
 https://nytimes.com/2025/10/09/us/senate-passes-bipartisan-925-billion-defense-policy-bill.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6704753/2025/10/09/lakers-fan-suing-lebron-second-d
 **Spends a Lot of Time Baking**\
 `Colin Adams opens our solving weekend.`\
 https://nytimes.com/2025/10/09/crosswords/daily-puzzle-2025-10-10.html
-
-**Dodgers-Phillies Game 4 takeaways: L.A. advances thanks to wild error in 11th**\
-`Phillies reliever Orion Kerkering booted a groundball and threw wildly to home plate, ending a madcap series. `\
-https://nytimes.com/athletic/6704765/2025/10/09/dodgers-phillies-game-4-score-results-takeaways-playoffs-mlb/
-
-**Eagles' 4 straight tush pushes lead to touchdown vs. Giants, frustrate viewers**\
-`"This is not football," Green Bay Packers star Micah Parsons said on X after the Eagles leaned heavily on the tush push to score a touchdown`\
-https://nytimes.com/athletic/6705271/2025/10/09/eagles-giants-four-straight-tush-pushes/
 
