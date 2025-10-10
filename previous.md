@@ -1,3 +1,31 @@
+**Machado’s Peace Prize Is Latest Nobel for Female Democracy Campaigners**\
+`Women in Iran, Liberia, Yemen and Myanmar have been recognized for their activism, occasionally while they were in prison and faced serious personal risk.`\
+https://nytimes.com/2025/10/10/world/nobel-peace-prize-women-democracy.html
+
+**How to watch Philadelphia 76ers games during the 2025-26 season**\
+`The 76ers were put through the wringer this past year, but things are looking up entering the 2025-26 season. Here's how to watch every game`\
+https://nytimes.com/athletic/6695044/2025/10/10/philadelphia-76ers-sixers-tv-how-to-watch-2025-26/
+
+**Angels catcher Logan O'Hoppe opens up on difficult year, responds to ex-manager's criticism**\
+`The Angels are confident O'Hoppe will improve, but the catcher knows it’s incumbent on him to do something with that faith.`\
+https://nytimes.com/athletic/6705234/2025/10/10/angels-catcher-logan-ohoppe-opens-up-on-difficult-season-pushes-back-on-ex-managers-criticism/
+
+**Notre Dame-NC State predictions: Momentum shifts and kicker problems**\
+`Can Marcus Freeman and the Fighting Irish get the offense back on track behind QB CJ Carr?`\
+https://nytimes.com/athletic/6704554/2025/10/10/notre-dame-nc-state-matchups-predictions/
+
+**Chargers mailbag: Trade options if the Chargers need help at running back**\
+`Hassan Haskins and Kimani Vidal will get their "time to shine" at running back this week, but don't rule out a trade down the road.`\
+https://nytimes.com/athletic/6704713/2025/10/10/chargers-running-back-trade-options-mailbag/
+
+**Jaxson Dart, Cam Skattebo won it all Thursday: The hearts of Giants fans, game vs. Eagles**\
+`Thursday's Giants win felt potentially transformative, like if the Giants turn things around, this will be the game everyone remembers.`\
+https://nytimes.com/athletic/6705635/2025/10/10/jaxson-dart-cam-skattebo-giants-eagles-heart/
+
+**Marsch aims to boost Canada squad with trips, talks and a paternal approach**\
+`Canada's head coach is also positioning himself in a fatherly role within the squad`\
+https://nytimes.com/athletic/6704862/2025/10/10/marsch-canada-world-cup-choiniere/
+
 **Motorsports 101: At this Oklahoma high school, kids can learn to build race cars**\
 `At Warner High School, a unique program teaches the technical and business side of motorsports, from building cars to selling sponsorships.`\
 https://nytimes.com/athletic/6704340/2025/10/10/motorsports-class-oklahoma-high-school-warner/
@@ -9,32 +37,4 @@ https://nytimes.com/2025/10/10/world/europe/france-domestic-politics-influence.h
 **'We're just not very good right now': Eagles face harsh reality after humiliating loss**\
 `The Eagles have lost two in a row and are still searching for an offensive identity.`\
 https://nytimes.com/athletic/6705917/2025/10/10/eagles-loss-giants/
-
-**How Letitia James Will Do Her Day Job**\
-`New York state’s chief legal officer, now a criminal defendant, runs an 800-lawyer agency that is at the center of state government.`\
-https://nytimes.com/2025/10/10/us/politics/letitia-james-new-york-attorney-general-indicted.html
-
-**Forest bring in Anfield architects for new 45,000-capacity City Ground scheme**\
-`Long-standing but only recently-approved plans to expand the stadium have now been shelved, replaced by an even more ambitious redevelopment`\
-https://nytimes.com/athletic/6693578/2025/10/10/nottingham-forest-bring-in-anfield-architects-for-new-45000-capacity-city-ground-plan/
-
-**Yes, Man Utd need to fund a new stadium - but ordinary fans must not be priced out**\
-`It is fair for the club to raise revenues from fans who can afford it, but the new stadium must be accessible to all`\
-https://nytimes.com/athletic/6706143/2025/10/10/manchester-united-old-trafford-fans/
-
-**NFL Week 6 schedule: Top 5 Sunday games most likely to come down to the last drive**\
-`We sort Sunday's games by walk-off potential. The 49ers and Bucs have made nail-biters their norms, while Lions vs. Chiefs screams "drama."`\
-https://nytimes.com/athletic/6694329/2025/10/10/nfl-week-6-lions-chiefs-49ers-bucs-how-to-watch/
-
-**Cowboys' under-the-radar weapon: OC Klayton Adams and his improved run game**\
-`Klayton Adams doesn't call plays, but the first-year Cowboys offensive coordinator is a big reason behind Dallas' improved ground game.`\
-https://nytimes.com/athletic/6705240/2025/10/10/cowboys-running-game-klayton-adams-oc/
-
-**A Cease-Fire Begins**\
-`We explain the latest on the deal between Israel and Hamas.`\
-https://nytimes.com/2025/10/10/briefing/a-cease-fire-begins.html
-
-**Are the Mets too data-driven? Who will play in winter leagues?: Mailbag part 2**\
-`Plus: A look at whether looming labor uncertainty might affect the Mets’ approach to 2025-26 free agency.`\
-https://nytimes.com/athletic/6704913/2025/10/10/mets-data-analytics-winter-leagues/
 
