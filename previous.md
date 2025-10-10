@@ -1,3 +1,7 @@
+**Ken Rosenthal says Cashman, Boone should return to Yankees. Fans say otherwise**\
+`The Athletic's readers were asked to vote on whether Cashman and Boone should return. The most popular answer was to fire both.`\
+https://nytimes.com/athletic/6704945/2025/10/09/brian-cashman-aaron-boone-yankees-job-security-poll/
+
 **49ers QB Mac Jones declines to talk about body he saw pulled from marina**\
 `QB turns attention to the field, where he hopes to start vs. Buccaneers on Sunday.`\
 https://nytimes.com/athletic/6704977/2025/10/09/mac-jones-49ers-body-marina/
@@ -21,8 +25,4 @@ https://nytimes.com/2025/10/09/us/politics/letitia-james-trump-conflict-timeline
 **A Closer Look at the Counts in the Letitia James Indictment**\
 `New York’s attorney general is accused of falsely listing a rental property in Virginia as her secondary residence to get favorable loan terms. She has called the charges “baseless.”`\
 https://nytimes.com/2025/10/09/us/politics/letitia-james-indictment-charges.html
-
-**‘The Woman in Cabin 10’ Review: When Things Go Splash in the Night**\
-`Keira Knightley and Guy Pearce encounter bumpy waters on a yacht in this adaptation of a Ruth Ware thriller.`\
-https://nytimes.com/2025/10/09/movies/the-woman-in-cabin-10-review.html
 

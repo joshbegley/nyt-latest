@@ -1,4 +1,8 @@
-**Ken Rosenthal says Cashman, Boone should return to Yankees. Fans say otherwise**\
+**What a National Guard Deployment Means**\
+`John Ismay, who reports on the Pentagon for The New York Times, describes what National Guard troops and civilian law enforcement are doing in cities where President Trump has mobilized them.`\
+https://nytimes.com/video/us/100000010446054/how-trump-is-using-the-national-guard.html
+
+**Should Yankees’ Brian Cashman and Aaron Boone return? Reader poll says no**\
 `The Athletic's readers were asked to vote on whether Cashman and Boone should return. The most popular answer was to fire both.`\
 https://nytimes.com/athletic/6704945/2025/10/09/brian-cashman-aaron-boone-yankees-job-security-poll/
 
@@ -21,8 +25,4 @@ https://nytimes.com/athletic/6704798/2025/10/09/packers-matt-lafleur-brandon-mcm
 **A Timeline of the Conflict Between Letitia James and Donald Trump**\
 `The animosity between New York’s attorney general and the U.S. president dates back years.`\
 https://nytimes.com/2025/10/09/us/politics/letitia-james-trump-conflict-timeline.html
-
-**A Closer Look at the Counts in the Letitia James Indictment**\
-`New York’s attorney general is accused of falsely listing a rental property in Virginia as her secondary residence to get favorable loan terms. She has called the charges “baseless.”`\
-https://nytimes.com/2025/10/09/us/politics/letitia-james-indictment-charges.html
 
