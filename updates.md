@@ -1,3 +1,7 @@
+**How to watch Aces vs. Mercury: WNBA Finals Game 4 Time, TV, streaming**\
+`Find out how to watch the Las Vegas Aces play the Phoenix Mercury, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6707461/2025/10/10/aces-vs-mercury-stream-how-to-watch-oct-10/
+
 **The explosion rattled homes miles from the explosion.**\
 `By Christine Hauser`\
 https://nytimes.com/live/2025/10/10/us/explosion-tennessee/the-explosion-rattled-homes-and-spread-debris-miles-from-the-explosion
