@@ -1,3 +1,15 @@
+**Ancient Roman Gravestone Found in New Orleans Backyard Touches Off a Mystery**\
+`Nobody knew how a nearly 2,000-year-old grave marker landed in a backyard for decades — until this week.`\
+https://nytimes.com/2025/10/10/us/roman-tablet-new-orleans.html
+
+**Families of the Dead Attend ‘Bittersweet’ School Opening in Uvalde, Texas**\
+`Three years after one of the nation’s deadliest school shootings, a new campus in the city will welcome 600 new elementary students.`\
+https://nytimes.com/2025/10/10/us/politics/uvalde-shooting-new-school-texas.html
+
+**Lost Science**\
+``\
+https://nytimes.com/issue/science/2025/10/10/lost-science
+
 **How to watch Aces vs. Mercury: WNBA Finals Game 4 Time, TV, streaming**\
 `Find out how to watch the Las Vegas Aces play the Phoenix Mercury, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6707461/2025/10/10/aces-vs-mercury-stream-how-to-watch-oct-10/
@@ -25,12 +37,4 @@ https://nytimes.com/athletic/6707261/2025/10/10/josh-norris-injury-sabres-zach-b
 **Islanders' Drouin suspended 1 game for cross-checking Penguins' Dewar**\
 `Drouin will forfeit $20,833.33, money that will go into the player’s emergency assistance fund.`\
 https://nytimes.com/athletic/6707291/2025/10/10/drouin-suspension-dewar-islanders-penguins/
-
-**Boulez by Salonen: Roots, Branches and Family Ties**\
-`In two programs with the New York Philharmonic, Esa-Pekka Salonen has constructed a moving exploration of musical legacy.`\
-https://nytimes.com/2025/10/10/arts/music/pierre-boulez-esa-pekka-salonen-new-york-phil.html
-
-**Padres' Jose Iglesias, Xander Bogaerts disciplined for umpire interaction after Wild Card loss**\
-`The pair were shown in a fan-captured video berating the umpiring crew following the Padres' 3-1 loss in Game 3 of the NL Wild Card Series.`\
-https://nytimes.com/athletic/6707260/2025/10/10/san-diego-padres-jose-iglesias-xander-bogaerts-umpires-nl-wild-card-discipline/
 

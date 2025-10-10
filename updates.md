@@ -1,3 +1,15 @@
+**Ancient Roman Gravestone Found in New Orleans Backyard Touches Off a Mystery**\
+`Nobody knew how a nearly 2,000-year-old grave marker landed in a backyard for decades — until this week.`\
+https://nytimes.com/2025/10/10/us/roman-tablet-new-orleans.html
+
+**Families of the Dead Attend ‘Bittersweet’ School Opening in Uvalde, Texas**\
+`Three years after one of the nation’s deadliest school shootings, a new campus in the city will welcome 600 new elementary students.`\
+https://nytimes.com/2025/10/10/us/politics/uvalde-shooting-new-school-texas.html
+
+**Lost Science**\
+``\
+https://nytimes.com/issue/science/2025/10/10/lost-science
+
 **How to watch Aces vs. Mercury: WNBA Finals Game 4 Time, TV, streaming**\
 `Find out how to watch the Las Vegas Aces play the Phoenix Mercury, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6707461/2025/10/10/aces-vs-mercury-stream-how-to-watch-oct-10/
