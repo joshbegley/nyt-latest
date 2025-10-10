@@ -1,3 +1,7 @@
+**Peter M. Fishbein, Lawyer Accused in Savings-and-Loan Lawsuit, Dies at 91**\
+`His firm’s $41 million settlement in representing Charles H. Keating Jr. raised questions about government overreach.`\
+https://nytimes.com/2025/10/10/us/politics/peter-fishbein-dead.html
+
 **Palou was sold a dream 'based on lies' by McLaren's Brown, a court hears**\
 `Palou alleged "false impressions" led to him backing out of a deal to join the team.`\
 https://nytimes.com/athletic/6706692/2025/10/10/alex-palou-mclaren-zak-brown-f1/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6707033/2025/10/10/simple-way-to-fix-the-eagles-plu
 **Hope and Anxiety Over Israel-Gaza Peace**\
 `Readers respond to the rapidly developing events in the Middle East. Also: The virtues of coal; three hours with Velázquez.`\
 https://nytimes.com/2025/10/10/opinion/israel-gaza-peace.html
-
-**An Immense Solar Project Just Got Canceled Under Trump**\
-`Known as Esmeralda 7, the project planned in the Nevada desert would have produced enough energy to power nearly two million homes.`\
-https://nytimes.com/2025/10/10/climate/nevada-solar-esmerelda7.html
 
