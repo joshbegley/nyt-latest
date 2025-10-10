@@ -1,3 +1,11 @@
+**Red Light: Knee-jerk reactions to the NHL season's early games**\
+`Plus: These rookies are already separating themselves from the pack in the Calder Trophy race.`\
+https://nytimes.com/athletic/6706631/2025/10/10/red-light-nhl-newsletter-new-season-reaction/
+
+**Word of the Day: ambivalence**\
+`This word has appeared in 140 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/10/10/learning/word-of-the-day-ambivalence.html
+
 **Bellingham tells athletes to 'show vulnerability' and talk about mental health**\
 `The England international said he used to read "everything" that was said about him on social media.`\
 https://nytimes.com/athletic/6706554/2025/10/10/real-madrid-bellingham-news-england-mental-health/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/10/us/politics/shutdown-government-funding-health-in
 **Betting for (by) dummies: 9 bets to make this weekend**\
 `Who doesn't like their betting with a little banter? Two of our football experts discuss the best picks on the board this week.`\
 https://nytimes.com/athletic/6705232/2025/10/10/nfl-college-football-betting-picks-oklahoma-texas-ohio-state-steelers/
-
-**Clippers preseason opener observations: Kawhi Leonard, second unit shine**\
-`Unlike in years past, on the court, the two-time NBA Finals MVP appears to be ready for the start of the regular season.`\
-https://nytimes.com/athletic/6706200/2025/10/10/kawhi-leonard-clippers-preseason-nba/
-
-**The Lakers were already becoming Luka Dončić's team. LeBron's injury speeds up timeline**\
-`LeBron James was always going to approach his 23rd season differently. A sciatic nerve issue will make him even more conservative.`\
-https://nytimes.com/athletic/6705694/2025/10/10/lakers-lebron-luka-doncic-injury-star/
 
