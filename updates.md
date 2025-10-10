@@ -1,3 +1,15 @@
+**Islanders' Jonathan Drouin suspended 1 game for cross-checking Penguins' Connor Dewar**\
+`The NHL has suspended New York Islanders forward Jonathan Drouin for one game without pay for cross-checking Pittsburgh Penguins forward Connor Dewar, the league&#8217;s department of player safety announced on Friday afternoon.`\
+https://nytimes.com/athletic/6707291/2025/10/10/drouin-suspension-dewar-islanders-penguins/
+
+**Boulez by Salonen: Roots, Branches and Family Ties**\
+`In two programs with the New York Philharmonic, Esa-Pekka Salonen has constructed a moving exploration of musical legacy.`\
+https://nytimes.com/2025/10/10/arts/music/pierre-boulez-esa-pekka-salonen-new-york-phil.html
+
+**Student Loan Cancellation Is Restarting for Some Federal Borrowers**\
+`After a halt for most of the year, borrowers enrolled in one income-driven repayment plan may begin to receive loan discharges within weeks.`\
+https://nytimes.com/2025/10/10/business/student-loan-forgiveness-ibr.html
+
 **Padres' Jose Iglesias, Xander Bogaerts disciplined for umpire interaction after Wild Card loss**\
 `The pair were shown in a fan-captured video berating the umpiring crew following the Padres' 3-1 loss in Game 3 of the NL Wild Card Series.`\
 https://nytimes.com/athletic/6707260/2025/10/10/san-diego-padres-jose-iglesias-xander-bogaerts-umpires-nl-wild-card-discipline/
