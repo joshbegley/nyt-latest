@@ -1,3 +1,15 @@
+**Motorsports 101: At this Oklahoma high school, kids can learn to build race cars**\
+`At Warner High School, a unique program teaches the technical and business side of motorsports, from building cars to selling sponsorships.`\
+https://nytimes.com/athletic/6704340/2025/10/10/motorsports-class-oklahoma-high-school-warner/
+
+**France’s Domestic Instability Has Weakened Its Diplomatic Clout**\
+`President Emmanuel Macron’s inability to find a government that can pass a new budget is hobbling his efforts to influence Europe’s agenda.`\
+https://nytimes.com/2025/10/10/world/europe/france-domestic-politics-influence.html
+
+**'We're just not very good right now': Eagles face harsh reality after humiliating loss**\
+`The Eagles have lost two in a row and are still searching for an offensive identity.`\
+https://nytimes.com/athletic/6705917/2025/10/10/eagles-loss-giants/
+
 **How Letitia James Will Do Her Day Job**\
 `New York state’s chief legal officer, now a criminal defendant, runs an 800-lawyer agency that is at the center of state government.`\
 https://nytimes.com/2025/10/10/us/politics/letitia-james-new-york-attorney-general-indicted.html
