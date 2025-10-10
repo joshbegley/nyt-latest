@@ -1,3 +1,7 @@
+**Peter M. Fishbein, Lawyer Accused in Savings-and-Loan Lawsuit, Dies at 91**\
+`His firm’s $41 million settlement in representing Charles H. Keating Jr. raised questions about government overreach.`\
+https://nytimes.com/2025/10/10/us/politics/peter-fishbein-dead.html
+
 **Palou was sold a dream 'based on lies' by McLaren's Brown, a court hears**\
 `Palou alleged "false impressions" led to him backing out of a deal to join the team.`\
 https://nytimes.com/athletic/6706692/2025/10/10/alex-palou-mclaren-zak-brown-f1/
