@@ -1,3 +1,11 @@
+**49ers QB Mac Jones declines to talk about body he saw pulled from marina**\
+`QB turns attention to the field, where he hopes to start vs. Buccaneers on Sunday.`\
+https://nytimes.com/athletic/6704977/2025/10/09/mac-jones-49ers-body-marina/
+
+**U.S. to Send 200 Troops to Israel in Support Roles**\
+`The American force will help coordinate the many aspects of the cease-fire deal.`\
+https://nytimes.com/2025/10/09/world/middleeast/us-troops-israel-ceasefire.html
+
 **U.S. to Send 200 Troops to Israel in Support Roles**\
 `The American force will help coordinate the many aspects of the cease-fire deal.`\
 https://nytimes.com/2025/10/09/world/middleeast/us-to-send-200-troops-to-israel-in-support-roles.html
