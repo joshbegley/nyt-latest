@@ -1,3 +1,7 @@
+**Tensions have been rising between Venezuela and the U.S.**\
+`By Jonathan Wolfe`\
+https://nytimes.com/live/2025/10/10/world/nobel-peace-prize/tensions-have-been-rising-between-venezuela-and-the-us
+
 **Red Light: Knee-jerk reactions to the NHL season's early games**\
 `Plus: These rookies are already separating themselves from the pack in the Calder Trophy race.`\
 https://nytimes.com/athletic/6706631/2025/10/10/red-light-nhl-newsletter-new-season-reaction/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6705411/2025/10/10/pistons-cade-cunningham-preseaso
 **The Fiscal Gambit at the Center of the Shutdown**\
 `It is a well-worn strategy to temporarily create a government benefit and hope that its eventual expiration will create a standoff like the shutdown fight.`\
 https://nytimes.com/2025/10/10/us/politics/shutdown-government-funding-health-insurance.html
-
-**Betting for (by) dummies: 9 bets to make this weekend**\
-`Who doesn't like their betting with a little banter? Two of our football experts discuss the best picks on the board this week.`\
-https://nytimes.com/athletic/6705232/2025/10/10/nfl-college-football-betting-picks-oklahoma-texas-ohio-state-steelers/
 
