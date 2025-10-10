@@ -1,3 +1,7 @@
+**Kalshi, a Prediction Market, Raises Funds and Expands Overseas**\
+`The fund-raising round comes as online prediction marketplaces gain mainstream prominence.`\
+https://nytimes.com/2025/10/10/business/dealbook/kalshi-prediction-market-fundraising.html
+
 **Letitia James Is Among Prominent Black Women Targeted by Trump**\
 `Fani T. Willis, a district attorney who brought election interference charges against Mr. Trump, and Lisa Cook, who serves on the Federal Reserve Board, have also been investigated.`\
 https://nytimes.com/2025/10/10/us/politics/letitia-james-black-women-trump-targets.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6705635/2025/10/10/jaxson-dart-cam-skattebo-giants-
 **Ohio State preview: How much of an upset threat does Illinois pose to the Buckeyes?**\
 `No. 17 Illinois poses some clear challenges to No. 1 Ohio State, but the unbeaten Buckeyes keep making progress in almost all areas.`\
 https://nytimes.com/athletic/6704378/2025/10/10/ohio-state-illinois-preview-predictions-football/
-
-**Marsch aims to boost Canada squad with trips, talks and a paternal approach**\
-`Canada's head coach is also positioning himself in a fatherly role within the squad`\
-https://nytimes.com/athletic/6704862/2025/10/10/marsch-canada-world-cup-choiniere/
 
