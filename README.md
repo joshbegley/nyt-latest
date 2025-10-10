@@ -1,3 +1,19 @@
+**What we're hearing: What's wrong with Penn State and Texas?**\
+`Plus: Memphis' makeover into a CFP contender and the Big 12's most underrated player.`\
+https://nytimes.com/athletic/6706336/2025/10/10/college-football-week-7-penn-state-texas-memphis/
+
+**The 10.12.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/10/10/the-101225-issue
+
+**How Jonathan Toews' encouraging performance could come to define the Jets' season**\
+`Whether he's comfortable with the idea or not, Toews' recovery is going to be a defining element to Winnipeg's story this season.`\
+https://nytimes.com/athletic/6704216/2025/10/10/jonathan-toews-winnipeg-jets-2/
+
+**AJ Green's shooting, Bobby Portis' defense and more Bucks' preseason takeaways**\
+`Milwaukee is 2-0 this preseason despite missing Giannis Antetokounmpo.`\
+https://nytimes.com/athletic/6705935/2025/10/10/bucks-aj-green-preseason-observations/
+
 **Ricky Hatton's funeral held in Manchester as thousands line the streets**\
 `Retired boxers Tyson Fury, Tony Bellew, Frank Bruno and Amir Khan were in attendance for the funeral, among many prominent sportspeople.`\
 https://nytimes.com/athletic/6706125/2025/10/10/ricky-hatton-funeral-boxing/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/10/business/wnba-misinformation-hate-speech.html
 **Nasty News? Forget About It. The Markets Say All Is Well.**\
 `The third quarter was fabulous for investors, and market signals are upbeat. It’s as though all were calm in the world.`\
 https://nytimes.com/2025/10/10/business/markets-stocks-bonds-investment-funds.html
-
-**Cease-Fire Begins in Gaza**\
-`Displaced Palestinians began returning to the north of Gaza after the Israeli military announced a cease-fire was in effect from noon on Friday.`\
-https://nytimes.com/video/world/middleeast/100000010451483/cease-fire-begins-in-gaza.html
-
-**Peruvian President Impeached Amid Outrage Over Surging Crime**\
-`President Dina Boluarte of Peru was impeached and removed from office following a congressional vote amid widespread outrage over surging crime. Boluarte is the most unpopular Peruvian president in recent decades.`\
-https://nytimes.com/video/world/americas/100000010451409/peru-president-impeached-crime-boluarte.html
-
-**Injuries to key players leave Eagles' defense looking vulnerable in loss to Giants**\
-`With their offense struggling, a defensive breakdown was one thing the Eagles could not afford against the Giants on Thursday night.`\
-https://nytimes.com/athletic/6705090/2025/10/10/eagles-quinyon-mitchell-jalen-carter-injured/
-
-**Who Gained From U.S. Aid to Argentina?**\
-`Treasury Secretary Scott Bessent said stabilizing the country was in the United States’s interests. Critics say some investors may have also benefited.`\
-https://nytimes.com/2025/10/10/business/dealbook/aid-argentina-investors-bessent.html
 
