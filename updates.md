@@ -1,3 +1,11 @@
+**Map: 7.4-Magnitude Earthquake Strikes the Philippine Sea**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/10/09/world/asia/quake-tracker-philippine-sea.html
+
+**Powerful Earthquake Strikes Southern Philippines**\
+`A magnitude 7.4 quake struck the off the east coast of Mindanao, a southern Philippine island. Officials issued a tsunami warning.`\
+https://nytimes.com/2025/10/09/world/asia/philippines-mindanao-earthquake.html
+
 **Large Earthquake Strikes Southern Philippines**\
 `A magnitude 7.4 quake struck the off the east coast of Mindanao, a southern Philippine island. Officials issued a tsunami warning.`\
 https://nytimes.com/2025/10/09/world/asia/philippines-mindanao-earthquake.html

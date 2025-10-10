@@ -1,3 +1,7 @@
+**Judge Rejects ‘Unprecedented’ Indictment Amid Trump’s D.C. Clampdown**\
+`The federal magistrate judge, Zia M. Faruqui, accused prosecutors of relying on a “facially invalid” indictment to charge a man with felony gun possession.`\
+https://nytimes.com/2025/10/09/us/politics/judge-rejects-indictment-dc.html
+
 **Map: 7.4-Magnitude Earthquake Strikes the Philippine Sea**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/10/09/world/asia/quake-tracker-philippine-sea.html
@@ -15,10 +19,10 @@ https://nytimes.com/athletic/6704753/2025/10/09/lakers-fan-suing-lebron-second-d
 https://nytimes.com/2025/10/09/crosswords/daily-puzzle-2025-10-10.html
 
 **Dodgers-Phillies Game 4 takeaways: Dodgers advance thanks to wild error in 11th**\
-`Phillies reliever Orion Kerkering booted a ground ball and threw wildly to home plate, ending a madcap series. `\
+`Phillies reliever Orion Kerkering booted a groundball and threw wildly to home plate, ending a madcap series. `\
 https://nytimes.com/athletic/6704765/2025/10/09/dodgers-phillies-game-4-score-results-takeaways-playoffs-mlb/
 
-**Eagles 4 straight tush pushes lead to touchdown vs. Giants, frustrate viewers**\
+**Eagles' 4 straight tush pushes lead to touchdown vs. Giants, frustrate viewers**\
 `"This is not football," Green Bay Packers star Micah Parsons said on X after the Eagles leaned heavily on the tush push to score a touchdown`\
 https://nytimes.com/athletic/6705271/2025/10/09/eagles-giants-four-straight-tush-pushes/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/09/us/judge-national-guard-chicago-illinois.html
 **Letitia James Has Marshaled States to Sue Trump**\
 `New York’s attorney general has joined colleagues nearly 40 times to confront the administration over myriad issues as the president pressures Democratic states.`\
 https://nytimes.com/2025/10/09/us/politics/letitia-james-lawsuits-trump.html
-
-**Give Trump the Nobel for Gaza, if He Does the Harder Parts to Come**\
-`It’s a job that will take the rest of his presidency.`\
-https://nytimes.com/2025/10/09/opinion/trump-israel-nobel-gaza.html
 
