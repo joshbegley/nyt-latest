@@ -1,4 +1,8 @@
-**Large Earthquake Strikes Southern Philippines**\
+**Map: 7.4-Magnitude Earthquake Strikes the Philippine Sea**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/10/09/world/asia/quake-tracker-philippine-sea.html
+
+**Powerful Earthquake Strikes Southern Philippines**\
 `A magnitude 7.4 quake struck the off the east coast of Mindanao, a southern Philippine island. Officials issued a tsunami warning.`\
 https://nytimes.com/2025/10/09/world/asia/philippines-mindanao-earthquake.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/09/us/politics/letitia-james-lawsuits-trump.html
 **Give Trump the Nobel for Gaza, if He Does the Harder Parts to Come**\
 `It’s a job that will take the rest of his presidency.`\
 https://nytimes.com/2025/10/09/opinion/trump-israel-nobel-gaza.html
-
-**L.A. County Considers Emergency Declaration Over Immigration Raids**\
-`The declaration would allow the Los Angeles County Board of Supervisors to enact an eviction moratorium and other protections for immigrants.`\
-https://nytimes.com/2025/10/09/us/los-angeles-county-ice-raids-emergency.html
 

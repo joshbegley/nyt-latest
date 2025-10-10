@@ -1,3 +1,15 @@
+**Large Earthquake Strikes Southern Philippines**\
+`A magnitude 7.4 quake struck the off the east coast of Mindanao, a southern Philippine island. Officials issued a tsunami warning.`\
+https://nytimes.com/2025/10/09/world/asia/philippines-mindanao-earthquake.html
+
+**Lakers fan taking LeBron to small-claims court over 'Second Decision'**\
+`After a confusing social media frenzy, L.A. fan Andrew Garcia just wants his $865 back.`\
+https://nytimes.com/athletic/6704753/2025/10/09/lakers-fan-suing-lebron-second-decision/
+
+**Spends a Lot of Time Baking**\
+`Colin Adams opens our solving weekend.`\
+https://nytimes.com/2025/10/09/crosswords/daily-puzzle-2025-10-10.html
+
 **Dodgers-Phillies Game 4 takeaways: Dodgers advance thanks to wild error in 11th**\
 `Phillies reliever Orion Kerkering booted a ground ball and threw wildly to home plate, ending a madcap series. `\
 https://nytimes.com/athletic/6704765/2025/10/09/dodgers-phillies-game-4-score-results-takeaways-playoffs-mlb/
