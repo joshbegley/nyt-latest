@@ -1,3 +1,7 @@
+**Oklahoma QB John Mateer (hand) upgraded to probable vs. Texas**\
+`There has been heavy speculation recently that Mateer would push to return this weekend after having hand surgery last month.`\
+https://nytimes.com/athletic/6705238/2025/10/09/john-mateer-injury-status-texas-oklahoma/
+
 **Federal Judge Temporarily Blocks National Guard Deployment in Illinois**\
 `Judge April M. Perry said the Trump administration had not established that sending in troops over the governor’s objection was legally justified. An appeal is likely.`\
 https://nytimes.com/2025/10/09/us/judge-national-guard-chicago-illinois.html
