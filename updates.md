@@ -1,3 +1,15 @@
+**Bronze set for Chelsea return, Kerr earns first Australia call-up since ACL injury**\
+`Kerr, who missed the entirety of 2024-25, will be involved in the Australia camp for the October friendlies against Wales and England.`\
+https://nytimes.com/athletic/6706787/2025/10/10/chelsea-team-news-bronze-kerr-australia-return/
+
+**Failure to provide oxygen likely contributed to West Brom fan death at Hillsborough, inquest finds**\
+`Coroner Tanyka Rawden concluded that Mark Townsend died, aged 57, of natural causes. `\
+https://nytimes.com/athletic/6705947/2025/10/10/west-brom-fan-death-hillsborough-inquest/
+
+**James Comey. Letitia James. Who’s Next?**\
+`America is now in a dangerous period, in which the president can order investigations and indictments against his enemies.`\
+https://nytimes.com/2025/10/10/opinion/letitia-james-indictment-trump.html
+
 **How a Hospital Takeover Changed How We Treat Addiction in America**\
 `In 1970, the Young Lords, a Puerto Rican civil rights group, seized a hospital in the Bronx — twice.`\
 https://nytimes.com/2025/10/10/us/young-lords-lincoln-hospital-addiction.html
