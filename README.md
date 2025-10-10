@@ -1,3 +1,7 @@
+**The Steelers went big to unlock their running game — here's why it's working**\
+`The Steelers' successful ground game in Dublin was fueled by some unexpected — and unexpectedly large — contributors.`\
+https://nytimes.com/athletic/6704991/2025/10/10/pittsburgh-steelers-run-game-sixth-offensive-lineman/
+
 **Phillies share the pain after Orion Kerkering's error leads to crushing elimination loss**\
 `Inside the clubhouse, there was shock, anger, concern for the young reliever — and a sense that something more than a season had ended.`\
 https://nytimes.com/athletic/6705755/2025/10/10/phillies-orion-kerkering-error-nlds-game-5-loss/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/10/10/briefing/news-quiz-israel-national-gu
 **What Courts Have Said in Challenges to Trump’s National Guard Deployments**\
 `Federal courts across the country have heard legal challenges to the mobilization of troops in Los Angeles, Washington, Portland, Ore., and Chicago. Here’s how some judges have ruled.`\
 https://nytimes.com/2025/10/10/us/federal-courts-national-guard-trump.html
-
-**The Most Common Signs of a Heart Attack**\
-`They aren’t all sudden or intense, experts says.`\
-https://nytimes.com/2025/10/10/well/common-signs-heart-attack.html
 
