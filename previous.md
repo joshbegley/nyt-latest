@@ -1,3 +1,7 @@
+**Forest bring in Anfield architects for new 45,000-capacity City Ground scheme**\
+`Long-standing but only recently-approved plans to expand the stadium have now been shelved, replaced by an even more ambitious redevelopment`\
+https://nytimes.com/athletic/6693578/2025/10/10/nottingham-forest-bring-in-anfield-architects-for-new-45000-capacity-city-ground-plan/
+
 **Yes, Man Utd need to fund a new stadium - but ordinary fans must not be priced out**\
 `It is fair for the club to raise revenues from fans who can afford it, but the new stadium must be accessible to all`\
 https://nytimes.com/athletic/6706143/2025/10/10/manchester-united-old-trafford-fans/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6703759/2025/10/10/the-athletics-friday-football-qu
 **Filip Gustavsson, after getting 'life-changing money,' shows why the Wild invested in him**\
 `ST.`\
 https://nytimes.com/athletic/6705573/2025/10/10/minnesota-wild-filip-gustavsson-season-opener/
-
-**Michigan-USC preview: Wolverines head West with major CFP implications on the line**\
-`A week after it happened, Penn State's loss at UCLA is still sending aftershocks through the College Football Playoff race.`\
-https://nytimes.com/athletic/6704490/2025/10/10/michigan-usc-preview-bryce-underwood-lincoln-riley/
 

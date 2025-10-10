@@ -1,3 +1,7 @@
+**Forest bring in Anfield architects for new 45,000-capacity City Ground scheme**\
+`Long-standing but only recently-approved plans to expand the stadium have now been shelved, replaced by an even more ambitious redevelopment`\
+https://nytimes.com/athletic/6693578/2025/10/10/nottingham-forest-bring-in-anfield-architects-for-new-45000-capacity-city-ground-plan/
+
 **Yes, Man Utd need to fund a new stadium - but ordinary fans must not be priced out**\
 `It is fair for the club to raise revenues from fans who can afford it, but the new stadium must be accessible to all`\
 https://nytimes.com/athletic/6706143/2025/10/10/manchester-united-old-trafford-fans/
