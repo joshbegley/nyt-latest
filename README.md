@@ -1,3 +1,11 @@
+**The Windup: What a brutal elimination moment**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6706893/2025/10/10/phillies-dodgers-final-play-the-windup/
+
+**What’s in the Gaza Cease-Fire Deal?**\
+`A step-by-step guide to what’s next in Gaza for the hostages, Israel’s military and the delivery of aid.`\
+https://nytimes.com/interactive/2025/10/10/world/middleeast/gaza-ceasefire-deal-israel.html
+
 **Senator cautions Big Ten presidents about private capital in letter, urges transparency**\
 `Sen. Maria Cantwell questioned whether the Big Ten's media rights revenue could stay tax-exempt if a private investor buys a stake.`\
 https://nytimes.com/athletic/6706749/2025/10/10/senator-maria-cantwell-big-ten-private-equity/
@@ -16,7 +24,7 @@ https://nytimes.com/2025/10/10/arts/dance/review-paris-opera-ballet-red-carpet.h
 
 **Maria Corina Machado Has Supported Trump’s Military Actions in the Caribbean**\
 `Ms. Machado has urged President Trump to help oust Venezuela’s autocrat, Nicolás Maduro, and to back the result of an election that independent monitors say Mr. Maduro stole.`\
-https://nytimes.com/2025/10/10/world/americas/maria-corina-machado-has-supported-trumps-military-actions-in-the-caribbean.html
+https://nytimes.com/2025/10/10/world/americas/maria-corina-machado-trump-support-maduro.html
 
 **Bronze set for Chelsea return, Kerr earns first Australia call-up since ACL injury**\
 `Kerr, who missed the entirety of 2024-25, will be involved in the Australia camp for the October friendlies against Wales and England.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6705947/2025/10/10/west-brom-fan-death-hillsborough
 **James Comey. Letitia James. Who’s Next?**\
 `America is now in a dangerous period, in which the president can order investigations and indictments against his enemies.`\
 https://nytimes.com/2025/10/10/opinion/letitia-james-indictment-trump.html
-
-**How a Hospital Takeover Changed How We Treat Addiction in America**\
-`In 1970, the Young Lords, a Puerto Rican civil rights group, seized a hospital in the Bronx — twice.`\
-https://nytimes.com/2025/10/10/us/young-lords-lincoln-hospital-addiction.html
-
-**Venezuela’s María Corina Machado Is Awarded 2025 Nobel Peace Prize**\
-`The 2025 Nobel Peace Prize was awarded to María Corina Machado, a pro-democracy opposition leader in exile who mobilized Venezuelans against President Nicolás Maduro’s authoritarian government.`\
-https://nytimes.com/video/world/americas/100000010451901/nobel-peace-prize-venezuela-machado.html
 
