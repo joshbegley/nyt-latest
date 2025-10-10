@@ -1,3 +1,19 @@
+**NFL Week 6 projected scores: Model predicts point spreads and totals for upcoming games**\
+`Austin Mock's projection model predicts point spreads and point totals for NFL Week 6 games.`\
+https://nytimes.com/athletic/6704342/2025/10/10/nfl-week-6-projected-scores-model-predicts-point-spreads-and-totals-for-sunday-monday-games/
+
+**Can a players-only meeting save the Jets' defense? 'Probably the worst defense in the league'**\
+`"We have to be better," said defensive end Jermaine Johnson, who returns from injury this week. "We can't be the reason we lose."`\
+https://nytimes.com/athletic/6706979/2025/10/10/jets-defense-london-jermaine-johnson/
+
+**What went right for the 2025 San Francisco Giants, part 2**\
+`In a .500 season that had its high and low points, these were the five best developments for the Giants.`\
+https://nytimes.com/athletic/6704080/2025/10/10/sf-giants-2025-season-in-review-best-moments/
+
+**College football Week 7 projected scores: Model predicts every FBS vs. FBS game**\
+`Austin Mock's college football model projects point differentials and point totals for every FBS vs. FBS game in Week 7.`\
+https://nytimes.com/athletic/6704359/2025/10/10/college-football-week-7-projected-scores-model/
+
 **Passions, Not Personas**\
 `Modern advertising tools and strategies fueled by consumer passions, values and communities help form a fuller, more accurate picture of today’s audiences.`\
 https://nytimes.com/paidpost/amazon-ads/passions-not-personas.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/10/climate/nevada-solar-esmerelda7.html
 **Under Trump, E.P.A. Explored if Abortion Pills Could Be Detected in Wastewater**\
 `Scientists at the Environmental Protection Agency found that they could develop methods to identify traces of the medication if necessary — a practice long sought by the anti-abortion movement.`\
 https://nytimes.com/2025/10/10/us/politics/epa-abortion-wastewater.html
-
-**Deaths Are Reported in Explosion at Tennessee Munitions Plant**\
-`A number of people were missing after a “devastating blast” at Accurate Energetic Systems, about 60 miles southwest of Nashville, a county sheriff said.`\
-https://nytimes.com/2025/10/10/us/explosion-ammunition-plant-tennessee.html
-
-**White House Signals Federal Layoffs Have Begun During Shutdown**\
-`The head of the White House budget office said on Friday that reductions in force had started.`\
-https://nytimes.com/2025/10/10/us/politics/federal-layoffs-government-shutdown.html
-
-**How to Remove Makeup the Right Way**\
-`Expert advice from a drag performer, a special effects makeup artist and an actress.`\
-https://nytimes.com/2025/10/10/t-magazine/removing-makeup-how-to.html
-
-**Arizona St. QB Sam Leavitt doubtful vs. Utah, would take 'mini-miracle' to play**\
-`If Leavitt cannot go, sixth-year QB Jeff Sims would get his first start of the season.`\
-https://nytimes.com/athletic/6707014/2025/10/10/sam-leavitt-injury-arizona-state/
 
