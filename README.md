@@ -1,3 +1,7 @@
+**For Trump’s Aides and Officials, the Battle Online Is Always On**\
+`President Trump’s long, avid embrace of social media has been eagerly adopted by his top aides, replacing longstanding governmental norms with online ones.`\
+https://nytimes.com/2025/10/10/nyregion/trump-officials-social-media.html
+
 **What we're hearing: What's wrong with Penn State and Texas?**\
 `Plus: Memphis' makeover into a CFP contender and the Big 12's most underrated player.`\
 https://nytimes.com/athletic/6706336/2025/10/10/college-football-week-7-penn-state-texas-memphis/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/10/your-money/401-k-fintech-advisers-fidelity.html
 **The W.N.B.A Gets More Attention Now. That’s Not Always a Good Thing.**\
 `The league’s popularity has given rise to online sexism and racism — and misinformation that traffics in both.`\
 https://nytimes.com/2025/10/10/business/wnba-misinformation-hate-speech.html
-
-**Nasty News? Forget About It. The Markets Say All Is Well.**\
-`The third quarter was fabulous for investors, and market signals are upbeat. It’s as though all were calm in the world.`\
-https://nytimes.com/2025/10/10/business/markets-stocks-bonds-investment-funds.html
 
