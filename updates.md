@@ -1,3 +1,11 @@
+**From blocked kicks to penalties, Rams have special teams problems to solve**\
+`Three times in the past three weeks, Los Angeles has had a field goal or extra point attempt blocked that swung the game's momentum. `\
+https://nytimes.com/athletic/6704619/2025/10/10/rams-special-teams-blocked-field-goals/
+
+**Kalshi, a Prediction Market, Raises Funds and Expands Overseas**\
+`The fund-raising round comes as online prediction marketplaces gain mainstream prominence.`\
+https://nytimes.com/2025/10/10/business/dealbook/kalshi-prediction-market-fundraising.html
+
 **Letitia James Is Among Prominent Black Women Targeted by Trump**\
 `Fani T. Willis, a district attorney who brought election interference charges against Mr. Trump, and Lisa Cook, who serves on the Federal Reserve Board, have also been investigated.`\
 https://nytimes.com/2025/10/10/us/politics/letitia-james-black-women-trump-targets.html
