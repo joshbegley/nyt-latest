@@ -1,3 +1,23 @@
+**For Mamdani and James, Twin Targets of Trump, a Political Bond Deepens**\
+`Zohran Mamdani, the front-runner in the New York City mayor’s race, and Letitia James, New York’s attorney general, have a kinship shaped in part by their shared opposition to the president.`\
+https://nytimes.com/2025/10/10/nyregion/zohran-mamdani-letitia-james-trump.html
+
+**Macron Reappoints Lecornu as France’s Prime Minister**\
+`President Emmanuel Macron is trying to steady the political turmoil that has gripped the country and jeopardized the passage of a budget.`\
+https://nytimes.com/2025/10/10/world/europe/france-prime-minister-lecornu-macron.html
+
+**A Worthy Nobel Peace Laureate**\
+`And a reminder of the need to depose the regime of Nicolás Maduro.`\
+https://nytimes.com/2025/10/10/opinion/nobel-peace-prize-machado-maduro-venezuela.html
+
+**Stocks Fall Sharply on Trump’s Renewed Threat of China Tariffs**\
+`The S&P 500 slumped more than 2 percent for the first time in six months, rattling investors after a long stretch of gains.`\
+https://nytimes.com/2025/10/10/business/stock-market-trump-tariffs.html
+
+**The blast rattled homes miles from the factory.**\
+`By Christine Hauser`\
+https://nytimes.com/live/2025/10/10/us/explosion-tennessee/the-explosion-rattled-homes-and-spread-debris-miles-from-the-explosion
+
 **María Corina Machado, Venezuela Opposition Leader, Is Awarded Nobel Peace Prize**\
 `Ms. Machado galvanized a movement that independent analysts say won last year’s election, only to have it stolen by President Nicolás Maduro.`\
 https://nytimes.com/2025/10/10/world/americas/machado-venezuela-nobel-peace-prize.html
