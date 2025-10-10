@@ -1,3 +1,7 @@
+**‘Tron: Ares’ | Anatomy of a Scene**\
+`The director Joachim Ronning narrates a light cycle chase scene from his film.`\
+https://nytimes.com/video/movies/100000010449749/tron-ares-scene.html
+
 **Last year’s Peace Prize was awarded to Japanese atomic bomb survivors.**\
 `Nihon Hidankyo is a group of survivors formed in the aftermath of the atomic bombings in Hiroshima and Nagasaki, and has shared thousands of testimonies.`\
 https://nytimes.com/live/2025/10/10/world/nobel-peace-prize/last-years-peace-prize-was-awarded-to-japanese-atomic-bomb-survivors
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/10/10/weather/karen-map-path-tracker.html
 **Cindy McCain Steps Away From World Food Program During Recovery From Mild Stroke**\
 `Ms. McCain leads the world’s largest humanitarian organization focused on food insecurity. She is expected to make a full recovery.`\
 https://nytimes.com/2025/10/10/world/europe/cindy-mccain-stroke-world-food-program.html
-
-**High Five: The rest of the world’s top upcoming qualifiers**\
-`From Cape Verde to Curacao, here’s everything you need to know about five of the biggest matchups in World Cup qualifying this week`\
-https://nytimes.com/athletic/6705298/2025/10/10/high-five-the-rest-of-the-worlds-top-upcoming-qualifiers/
 

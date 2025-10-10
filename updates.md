@@ -1,3 +1,7 @@
+**‘Tron: Ares’ | Anatomy of a Scene**\
+`The director Joachim Ronning narrates a light cycle chase scene from his film.`\
+https://nytimes.com/video/movies/100000010449749/tron-ares-scene.html
+
 **Last year’s Peace Prize was awarded to Japanese atomic bomb survivors.**\
 `Nihon Hidankyo is a group of survivors formed in the aftermath of the atomic bombings in Hiroshima and Nagasaki, and has shared thousands of testimonies.`\
 https://nytimes.com/live/2025/10/10/world/nobel-peace-prize/last-years-peace-prize-was-awarded-to-japanese-atomic-bomb-survivors

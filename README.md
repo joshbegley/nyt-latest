@@ -1,40 +1,40 @@
-**‘Tron: Ares’ | Anatomy of a Scene**\
-`The director Joachim Ronning narrates a light cycle chase scene from his film.`\
-https://nytimes.com/video/movies/100000010449749/tron-ares-scene.html
+**The New York Times News Quiz, Oct. 10, 2025**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2025/10/10/briefing/news-quiz-israel-national-guard-trump.html
 
-**Last year’s Peace Prize was awarded to Japanese atomic bomb survivors.**\
-`Nihon Hidankyo is a group of survivors formed in the aftermath of the atomic bombings in Hiroshima and Nagasaki, and has shared thousands of testimonies.`\
-https://nytimes.com/live/2025/10/10/world/nobel-peace-prize/last-years-peace-prize-was-awarded-to-japanese-atomic-bomb-survivors
+**What Courts Have Said in Challenges to Trump’s National Guard Deployments**\
+`Federal courts across the country have heard legal challenges to the mobilization of troops in Los Angeles, Washington, Portland, Ore., and Chicago. Here’s how some judges have ruled.`\
+https://nytimes.com/2025/10/10/us/federal-courts-national-guard-trump.html
 
-**Here is the latest.**\
-`By Jonathan Wolfe`\
-https://nytimes.com/live/2025/10/10/world/nobel-peace-prize/here-is-the-latest
+**The Most Common Signs of a Heart Attack**\
+`They aren’t all sudden or intense, experts says.`\
+https://nytimes.com/2025/10/10/well/common-signs-heart-attack.html
 
-**Live Updates: Nobel Peace Prize Is Set to Be Awarded**\
-`The recipient will be announced Friday morning in Oslo. As usual, the official list of nominees is secret.`\
-https://nytimes.com/live/2025/10/10/world/nobel-peace-prize
+**Watch a Light Cycle Chase in ‘Tron: Ares’**\
+`The director Joachim Ronning narrates a sequence from his film featuring Greta Lee, Jodie Turner-Smith and Jared Leto.`\
+https://nytimes.com/2025/10/10/movies/tron-ares-clip.html
 
-**Powerful Earthquake Strikes Southern Philippines**\
-`A 7.4-magnitude quake rattled the southern Philippines. Several people were killed, and a tsunami warning was issued.`\
-https://nytimes.com/video/world/asia/100000010451362/philippines-mindanao-earthquake.html
+**Do Spouses Have Mustache Veto Power?**\
+`A ruling on a dispute over the limits of facial-hair autonomy.`\
+https://nytimes.com/interactive/2025/10/10/magazine/mustache-veto-hodgman-quiz.html
 
-**A New Wildlife Assessment Has Bright Spots Amid Alarming Declines**\
-`Sea turtles are making a surprising comeback, according to the International Union for Conservation of Nature. The news was not so good for Arctic seals.`\
-https://nytimes.com/2025/10/10/climate/iucn-red-list-endangered-species.html
+**The Spiced Tea That Starts the Day in Sudan**\
+`Shai magnan, infused with spices and combined with sugar and caramelized milk, can be made just how you like it.`\
+https://nytimes.com/2025/10/10/dining/sudanese-tea.html
 
-**As Winter Nears, Russian Strikes on Ukraine’s Energy Grid Cause Blackouts**\
-`Every fall since the war started in 2022, Russia has targeted electricity and heating infrastructure in an effort to weaken Ukrainians’ will to continue fighting.`\
-https://nytimes.com/2025/10/10/world/europe/russia-ukraine-power-energy.html
+**The French Revolution’s Instrument of Terror Goes on Show**\
+`The display is timed for the anniversary of France’s abolition of the death penalty, and its honoring of the lawyer who campaigned to end it.`\
+https://nytimes.com/2025/10/10/arts/france-guillotine-mucem-robert-badinter.html
 
-**Explosions Rock Kabul as Taliban Minister Visits India**\
-`Accusations rise that Pakistan struck the Afghan capital with airstrikes, but neither country would confirm the reports.`\
-https://nytimes.com/2025/10/10/world/asia/kabul-explosions-india-pakistan.html
+**How Right-Wing Influencers Are Shaping the Guard Fight in Portland**\
+`President Trump and his administration are amplifying the voices of pro-White House podcasters and streamers eager to ratify the president’s description of Oregon’s largest city as a “hellscape.”`\
+https://nytimes.com/2025/10/10/us/politics/right-wing-influencers-portland.html
 
-**Tracking Subtropical Storm Karen**\
-`See the likely path and wind arrival times for Karen`\
-https://nytimes.com/interactive/2025/10/10/weather/karen-map-path-tracker.html
+**I Investigated Corruption. The Homan Affair Is Full of Red Flags.**\
+`An apparent cash handoff is yet another star in the Trump administration’s constellation of ethics problems.`\
+https://nytimes.com/2025/10/10/opinion/tom-homan-bribery-investigation.html
 
-**Cindy McCain Steps Away From World Food Program During Recovery From Mild Stroke**\
-`Ms. McCain leads the world’s largest humanitarian organization focused on food insecurity. She is expected to make a full recovery.`\
-https://nytimes.com/2025/10/10/world/europe/cindy-mccain-stroke-world-food-program.html
+**Why Can’t Fashion See What It Does to Women?**\
+`A season that included off-putting, sometimes cruel designs left us wondering about what it all means.`\
+https://nytimes.com/2025/10/10/style/women-designers-paris-fashion-week.html
 
