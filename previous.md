@@ -1,8 +1,20 @@
+**White House Signals Federal Layoffs Have Begun During Shutdown**\
+`The head of the White House budget office said on Friday that reductions in force had started.`\
+https://nytimes.com/2025/10/10/us/politics/federal-layoffs-government-shutdown.html
+
+**How to Remove Makeup the Right Way**\
+`Expert advice from a drag performer, a special effects makeup artist and an actress.`\
+https://nytimes.com/2025/10/10/t-magazine/removing-makeup-how-to.html
+
+**Arizona State QB Sam Leavitt doubtful for Utah game, would take 'mini-miracle' to play**\
+`If Leavitt cannot go, sixth-year QB Jeff Sims would get his first start of the season.`\
+https://nytimes.com/athletic/6707014/2025/10/10/sam-leavitt-injury-arizona-state/
+
 **Billions of Dollars ‘Vanished’: Low-Profile Bankruptcy Rings Alarms on Wall Street**\
 `The unraveling of First Brands, a midsize auto-parts maker, is exposing hidden losses at international banks and “private credit” lenders.`\
 https://nytimes.com/2025/10/10/business/first-brands-bankruptcy-wall-street.html
 
-**The Nobel Peace Prize draws attention, but struggles to drive long-term change.**\
+**The Nobel Peace Prize draws attention, but rarely drives long-term change.**\
 `By Pranav Baskar`\
 https://nytimes.com/live/2025/10/10/world/nobel-peace-prize/peace-prize-history-change
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6705227/2025/10/10/team-usa-basketball-fiba-world-c
 **John Lodge, Moody Blues Singer and Bassist, Dies at 82**\
 `He wrote some of the band’s signature songs, including “Ride My See-Saw” and “I’m Just a Singer (in a Rock and Roll Band).”`\
 https://nytimes.com/2025/10/10/arts/music/john-lodge-dead-moody-blues.html
-
-**Report on Soros Cited by Justice Dept. Does Not Show Funding for Terrorism**\
-`The head of a conservative watchdog organization acknowledged that its report did not find evidence that the network of liberal billionaire George Soros had broken the law.`\
-https://nytimes.com/2025/10/10/us/politics/george-soros-justice-dept.html
-
-**Trump Threatens to Cancel Meeting with China’s Xi and Impose New Tariffs**\
-`The president raised economic retaliation after Beijing imposed new restrictions on the export of rare earth minerals, which are vital supplies for U.S. automakers and defense manufacturers.`\
-https://nytimes.com/2025/10/10/us/politics/trump-xi-china-tariffs-rare-earth.html
-
-**Behind Hunter Haight's path to his NHL debut, through the eyes of his family: 'Surreal moment'**\
-`Hunter Haight's NHL debut reminded his loved ones and former coaches of the 21-year-old's path to becoming a mature, two-way center.`\
-https://nytimes.com/athletic/6705618/2025/10/10/wild-hunter-haight-nhl-debut/
 

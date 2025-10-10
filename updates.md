@@ -1,3 +1,19 @@
+**White House Signals Federal Layoffs Have Begun During Shutdown**\
+`The head of the White House budget office said on Friday that reductions in force had started.`\
+https://nytimes.com/2025/10/10/us/politics/federal-layoffs-government-shutdown.html
+
+**How to Remove Makeup the Right Way**\
+`Expert advice from a drag performer, a special effects makeup artist and an actress.`\
+https://nytimes.com/2025/10/10/t-magazine/removing-makeup-how-to.html
+
+**Arizona State QB Sam Leavitt doubtful for Utah game, would take 'mini-miracle' to play**\
+`If Leavitt cannot go, sixth-year QB Jeff Sims would get his first start of the season.`\
+https://nytimes.com/athletic/6707014/2025/10/10/sam-leavitt-injury-arizona-state/
+
+**The Nobel Peace Prize draws attention, but rarely drives long-term change.**\
+`By Pranav Baskar`\
+https://nytimes.com/live/2025/10/10/world/nobel-peace-prize/peace-prize-history-change
+
 **Billions of Dollars ‘Vanished’: Low-Profile Bankruptcy Rings Alarms on Wall Street**\
 `The unraveling of First Brands, a midsize auto-parts maker, is exposing hidden losses at international banks and “private credit” lenders.`\
 https://nytimes.com/2025/10/10/business/first-brands-bankruptcy-wall-street.html
