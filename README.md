@@ -1,3 +1,11 @@
+**Failure to provide oxygen likely contributed to West Brom fan death at Hillsborough, inquest finds**\
+`Coroner Tanyka Rawden concluded that Mark Townsend died, aged 57, of natural causes. `\
+https://nytimes.com/athletic/6705947/2025/10/10/west-brom-fan-death-hillsborough-inquest/
+
+**James Comey. Letitia James. Who’s Next?**\
+`America is now in a dangerous period, in which the president can order investigations and indictments against his enemies.`\
+https://nytimes.com/2025/10/10/opinion/letitia-james-indictment-trump.html
+
 **How a Hospital Takeover Changed How We Treat Addiction in America**\
 `In 1970, the Young Lords, a Puerto Rican civil rights group, seized a hospital in the Bronx — twice.`\
 https://nytimes.com/2025/10/10/us/young-lords-lincoln-hospital-addiction.html
@@ -21,12 +29,4 @@ https://nytimes.com/2025/10/10/arts/design/pierre-huyghe-amant-art-center-satell
 **Five Horror Movies to Stream Now**\
 `Just in time for Halloween comes killer cola, a creeping phantasm and death from the commode.`\
 https://nytimes.com/2025/10/10/movies/horror-movies-streaming.html
-
-**Unable to celebrate openly, Venezuelans quietly honor the country’s first Nobel laureate.**\
-`Most Venezuelans saw María Corina Machado’s Peace Prize as a recognition of their economic struggles and democratic hopes.`\
-https://nytimes.com/live/2025/10/10/world/nobel-peace-prize/quiet-celebrations-machado-venezuela
-
-**Newcastle set to appoint Nottingham Forest's Wilson as sporting director**\
-`The former Rangers sporting director is seen as one who creates a strong club culture and builds manager-supporting infrastructure.`\
-https://nytimes.com/athletic/6550794/2025/10/10/newcastle-ross-wilson-sporting-director-nottingham-forest/
 
