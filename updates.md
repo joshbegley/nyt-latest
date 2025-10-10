@@ -1,3 +1,19 @@
+**Renato Casaro, ‘Michelangelo of Movie Posters,’ Dies at 89**\
+`Few moviegoers knew his name, but directors like Sergio Leone, Sylvester Stallone and Quentin Tarantino considered his vivid work invaluable.`\
+https://nytimes.com/2025/10/10/movies/renato-casaro-dead.html
+
+**Yankees exceptionalism is alive and well in the team store — but less so on the field**\
+`Yankees exceptionalism now exists not on the field, but in the team store — on slogans and souvenirs, not titles and trophies.`\
+https://nytimes.com/athletic/6705463/2025/10/10/yankees-results-tradition-marketing-fans/
+
+**Team USA’s path to 2027 FIBA World Cup begins with two games against Nicaragua**\
+`Team USA's qualifying games for the 2027 FIBA World Cup in Qatar will begin in December against Nicaragua.`\
+https://nytimes.com/athletic/6705227/2025/10/10/team-usa-basketball-fiba-world-cup/
+
+**John Lodge, Moody Blues Singer and Bassist, Dies at 82**\
+`He wrote some of the band’s signature songs, including “Ride My See-Saw” and “I’m Just a Singer (in a Rock and Roll Band).”`\
+https://nytimes.com/2025/10/10/arts/john-lodge-dead-moody-blues.html
+
 **Report on Soros Cited by Justice Dept. Does Not Show Funding for Terrorism**\
 `The head of a conservative watchdog organization acknowledged that its report did not find evidence that the network of liberal billionaire George Soros had broken the law.`\
 https://nytimes.com/2025/10/10/us/politics/george-soros-justice-dept.html

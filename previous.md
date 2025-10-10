@@ -1,3 +1,19 @@
+**Renato Casaro, ‘Michelangelo of Movie Posters,’ Dies at 89**\
+`Few moviegoers knew his name, but directors like Sergio Leone, Sylvester Stallone and Quentin Tarantino considered his vivid work invaluable.`\
+https://nytimes.com/2025/10/10/movies/renato-casaro-dead.html
+
+**Yankees exceptionalism is alive and well in the team store — but less so on the field**\
+`Yankees exceptionalism now exists not on the field, but in the team store — on slogans and souvenirs, not titles and trophies.`\
+https://nytimes.com/athletic/6705463/2025/10/10/yankees-results-tradition-marketing-fans/
+
+**Team USA’s path to 2027 FIBA World Cup begins with two games against Nicaragua**\
+`Team USA's qualifying games for the 2027 FIBA World Cup in Qatar will begin in December against Nicaragua.`\
+https://nytimes.com/athletic/6705227/2025/10/10/team-usa-basketball-fiba-world-cup/
+
+**John Lodge, Moody Blues Singer and Bassist, Dies at 82**\
+`He wrote some of the band’s signature songs, including “Ride My See-Saw” and “I’m Just a Singer (in a Rock and Roll Band).”`\
+https://nytimes.com/2025/10/10/arts/john-lodge-dead-moody-blues.html
+
 **Report on Soros Cited by Justice Dept. Does Not Show Funding for Terrorism**\
 `The head of a conservative watchdog organization acknowledged that its report did not find evidence that the network of liberal billionaire George Soros had broken the law.`\
 https://nytimes.com/2025/10/10/us/politics/george-soros-justice-dept.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/10/us/georgia-school-superintendent-indictment-illin
 **M.I.T. Rejects a White House Offer for Special Funding Treatment**\
 `The Trump administration offered nine universities benefits in exchange for signing an agreement to protect conservative voices, among other things. M.I.T. was the first to refuse.`\
 https://nytimes.com/2025/10/10/us/mit-rejects-white-house-compact.html
-
-**NFL, NFLPA investigating Daboll's behavior during Dart concussion check**\
-`Daboll was seen peeking in the tent and having a heated discussion with the Giants team physician as he waited for word on his QB.`\
-https://nytimes.com/athletic/6706880/2025/10/10/brian-daboll-investigation-jaxson-dart-concussion-check/
-
-**The Windup: What a brutal elimination moment**\
-`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
-https://nytimes.com/athletic/6706893/2025/10/10/phillies-dodgers-final-play-the-windup/
-
-**What’s in the Gaza Cease-Fire Deal?**\
-`A step-by-step guide to what’s next in Gaza for the hostages, Israel’s military and the delivery of aid.`\
-https://nytimes.com/interactive/2025/10/10/world/middleeast/gaza-ceasefire-deal-israel.html
-
-**Senator warns Big Ten presidents about private capital, urges transparency**\
-`Sen. Maria Cantwell questioned whether the Big Ten's media rights revenue could stay tax-exempt if a private investor buys a stake.`\
-https://nytimes.com/athletic/6706749/2025/10/10/senator-maria-cantwell-big-ten-private-equity/
 
