@@ -1,3 +1,15 @@
+**Holding Back Tears, Prince William Shows a New Side of a Future King**\
+`In two video encounters — one discussing the impact of suicide, and a more lighthearted conversation with Eugene Levy — the heir to the British throne opened up, a little.`\
+https://nytimes.com/2025/10/10/world/europe/prince-william-interviews-mental-health-monarchy.html
+
+**Melania Trump Says She Has Been Working With Putin to Reunite Missing Ukrainian Children**\
+`“President Putin and I have had an open line of communication regarding the welfare of these children,” the first lady announced.`\
+https://nytimes.com/2025/10/10/us/politics/melania-trump-putin-ukraine-children.html
+
+**Palou was sold a dream 'based on lies' by McLaren, a court hears**\
+`Palou alleged "false impressions" led to him backing out of a deal to join the team.`\
+https://nytimes.com/athletic/6706692/2025/10/10/alex-palou-mclaren-zak-brown-f1/
+
 **How the Broncos expanded their 'unprecedented' youth helmet initiative to the UK**\
 `Broncos owner Greg Penner paints broad next steps for the franchise with its new stadium project.`\
 https://nytimes.com/athletic/6706953/2025/10/10/broncos-jets-leicester-panthers-london/

@@ -1,3 +1,11 @@
+**Holding Back Tears, Prince William Shows a New Side of a Future King**\
+`In two video encounters — one discussing the impact of suicide, and a more lighthearted conversation with Eugene Levy — the heir to the British throne opened up, a little.`\
+https://nytimes.com/2025/10/10/world/europe/prince-william-interviews-mental-health-monarchy.html
+
+**Melania Trump Says She Has Been Working With Putin to Reunite Missing Ukrainian Children**\
+`“President Putin and I have had an open line of communication regarding the welfare of these children,” the first lady announced.`\
+https://nytimes.com/2025/10/10/us/politics/melania-trump-putin-ukraine-children.html
+
 **How the Broncos expanded their 'unprecedented' youth helmet initiative to the UK**\
 `Broncos owner Greg Penner paints broad next steps for the franchise with its new stadium project.`\
 https://nytimes.com/athletic/6706953/2025/10/10/broncos-jets-leicester-panthers-london/
@@ -14,7 +22,7 @@ https://nytimes.com/athletic/6706758/2025/10/10/browns-shedeur-sanders-bailey-za
 `His firm’s $41 million settlement in representing Charles H. Keating Jr. raised questions about government overreach.`\
 https://nytimes.com/2025/10/10/us/politics/peter-fishbein-dead.html
 
-**Palou was sold a dream 'based on lies' by McLaren's Brown, a court hears**\
+**Palou was sold a dream 'based on lies' by McLaren, a court hears**\
 `Palou alleged "false impressions" led to him backing out of a deal to join the team.`\
 https://nytimes.com/athletic/6706692/2025/10/10/alex-palou-mclaren-zak-brown-f1/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6706979/2025/10/10/jets-defense-london-jermaine-joh
 **What went right for the 2025 San Francisco Giants, part 2**\
 `In a .500 season that had its high and low points, these were the five best developments for the Giants.`\
 https://nytimes.com/athletic/6704080/2025/10/10/sf-giants-2025-season-in-review-best-moments/
-
-**College football Week 7 projected scores: Model predicts every FBS vs. FBS game**\
-`Austin Mock's college football model projects point differentials and point totals for every FBS vs. FBS game in Week 7.`\
-https://nytimes.com/athletic/6704359/2025/10/10/college-football-week-7-projected-scores-model/
-
-**Passions, Not Personas**\
-`Modern advertising tools and strategies fueled by consumer passions, values and communities help form a fuller, more accurate picture of today’s audiences.`\
-https://nytimes.com/paidpost/amazon-ads/passions-not-personas.html
 
