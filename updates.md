@@ -1,3 +1,11 @@
+**England are building a team, not just picking their best players — and it seems to be working**\
+`England beat Wales 3-0 on Thursday night. The signs are looking good ahead of next summer's World Cup`\
+https://nytimes.com/athletic/6705139/2025/10/10/england-world-cup-thomas-tuchel-analysis/
+
+**Peru Ousts President Amid Crime Surge**\
+`Growing outrage over crime and political scandals eroded support for President Dina Boluarte, the country’s most unpopular leader in recent history.`\
+https://nytimes.com/2025/10/10/world/americas/peru-ousts-president-amid-crime-surge.html
+
 **Knicks' read-and-react offense, 3-point shooting and more: Preseason observations**\
 `Have the Knicks solved an issue that hurt their offense last year?`\
 https://nytimes.com/athletic/6705582/2025/10/10/knicks-timberwolves-nba-preseason-game-observations/
