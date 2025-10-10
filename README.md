@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6696553/2025/10/10/mateus-mane-wolverhampton-wander
 `The U.S. Center for SafeSport found Lars Jorgensen to have conducted physical misconduct, retaliation, sexual harassment, among others.`\
 https://nytimes.com/athletic/6705047/2025/10/10/kentucky-swimming-lars-jorgensen-sexual-assault-safesport-ruling/
 
-**Sister Jean, beloved Loyola University Chicago MBB chaplain, dies at 106**\
+**Sister Jean, beloved Loyola University Chicago basketball chaplain, dies at 106**\
 `Sister Jean rose to national prominence during the Ramblers' Cinderella run in the 2018 NCAA Tournament.`\
 https://nytimes.com/athletic/6705559/2025/10/10/sister-jean-dead-loyola-chicago-basketball/
 
