@@ -1,3 +1,7 @@
+**Clark Olofsson, 78, Dies; Bank Robber Helped Inspire ‘Stockholm Syndrome’**\
+`In a 1973 heist, he and another man held hostages who surprisingly came to defend them, drawing attention to a puzzling psychological phenomenon.`\
+https://nytimes.com/2025/10/10/world/europe/clark-olofsson-dead.html
+
 **Cowboys' Miles Sanders to have season-ending knee surgery**\
 `Sanders appeared in Dallas' first four games this season, logging 20 carries for 117 yards and one touchdown.`\
 https://nytimes.com/athletic/6707696/2025/10/10/miles-sanders-injury-surgery-cowboys/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/10/us/tennessee-explosions-devastation-stirs-painful
 **The Gaza Cease-Fire Takes Hold**\
 `Also, the Nobel Peace Prize was awarded. Here’s the latest at the end of Friday.`\
 https://nytimes.com/2025/10/10/briefing/cease-fire-nobel.html
-
-**Detonation Underscores Inherent Dangers of Manufacturing Explosives**\
-`The munitions plant in Tennessee where an explosion occurred on Friday produces TNT, which is commonly used for the military and commercial industries.`\
-https://nytimes.com/2025/10/10/us/accurate-energetic-systems-explosion.html
 

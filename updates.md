@@ -1,3 +1,7 @@
+**Cowboys' Miles Sanders to have season-ending knee surgery**\
+`Sanders appeared in Dallas' first four games this season, logging 20 carries for 117 yards and one touchdown.`\
+https://nytimes.com/athletic/6707696/2025/10/10/miles-sanders-injury-surgery-cowboys/
+
 **Carolyn Cheeks Kilpatrick, 80, Dies; In Congress, a Lifeline for Detroit**\
 `Over seven terms, she garnered millions in funds in helping to revitalize the city. But the political scandals of her son, an ex-mayor, came to shadow her career.`\
 https://nytimes.com/2025/10/10/us/politics/carolyn-cheeks-kilpatrick-dead.html
