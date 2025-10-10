@@ -1,3 +1,7 @@
+**Injuries to key players leave Eagles' defense looking vulnerable in loss to Giants**\
+`With their offense struggling, a defensive breakdown was one thing the Eagles could not afford against the Giants on Thursday night.`\
+https://nytimes.com/athletic/6705090/2025/10/10/eagles-quinyon-mitchell-jalen-carter-injured/
+
 **Ricky Hatton's funeral held in Manchester as thousands line the streets**\
 `Retired boxers Tyson Fury, Tony Bellew, Frank Bruno and Amir Khan were in attendance for the funeral, among many prominent sportspeople.`\
 https://nytimes.com/athletic/6706125/2025/10/10/ricky-hatton-funeral-boxing/
