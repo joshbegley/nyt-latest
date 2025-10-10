@@ -1,3 +1,23 @@
+**‘Krapp’s Last Tape’ Review: Stephen Rea’s Duet With His Younger Self**\
+`Samuel Beckett’s 55-minute contemplation of mortality comes to NYU Skirball in a neat and handsome staging by Vicky Featherstone.`\
+https://nytimes.com/2025/10/10/theater/krapps-last-tape-review-stephen-rea.html
+
+**Nikola Pilic, Whose Wimbledon Boycott Helped Shape Modern Tennis, Dies at 86**\
+`After he was suspended in 1973, 81 players boycotted the tournament in solidarity, highlighting a power struggle for control of the sport.`\
+https://nytimes.com/2025/10/10/sports/tennis/nikola-pilic-dead.html
+
+**How Robert Redford Epitomized Movie Stardom**\
+`“Movie stars! They’re basically actors who we — and our wallets — have fallen in love with.” Wesley Morris and “The Rewatchables” host Bill Simmons talk about Robert Redford’s career and whether his brand of movie stardom is even possible today on this week’s episode of “Cannonball.”`\
+https://nytimes.com/video/podcasts/100000010442969/how-robert-redford-epitomized-movie-stardom.html
+
+**Wesley Morris on the Best Easter Egg in ‘One Battle After Another’**\
+`Paul Thomas Anderson is a very rare figure in Hollywood — he’s widely considered to be one of the very best directors of his generation. Wesley Morris is an increasingly conflicted lover of the new Paul Thomas Anderson movie, “One Battle After Another.” On “Cannonball,” Morris explains why.`\
+https://nytimes.com/video/podcasts/100000010453006/wesley-morris-on-the-best-easter-egg-in-one-battle-after-another.html
+
+**Overlooked No More: Violeta Parra, Folk ‘Genius’ Who Redefined Latin American Music**\
+`A self-taught composer and interpreter, she led an unconventional and itinerant life devoted to spreading Chilean folkloric music.`\
+https://nytimes.com/2025/10/10/obituaries/violeta-parra-overlooked.html
+
 **Map: 7.6-Magnitude Earthquake Strikes the South Atlantic Ocean**\
 `View the location of the quake’s epicenter and shake area.`\
 https://nytimes.com/interactive/2025/10/10/world/10wea-quake-tracker-south-atlantic-ocean-nytc5pp1.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6707397/2025/10/10/phillies-orion-kerkering-pitcher
 **Ravens will be without quarterback Lamar Jackson vs. Rams**\
 `Cooper Rush will get his second consecutive start, with Tyler Huntley elevated from the practice squad to back him up.`\
 https://nytimes.com/athletic/6707037/2025/10/10/ravens-lamar-jackson-rams-nfl-injury/
-
-**Pasta With Feta and Green Olives**\
-`Bold, briny and tangy, this 15-minute pasta is full of personality. Olives are first slightly blistered in oil, drawing out their brininess, then crumbled feta is stirred into the pasta at the end until melty.`\
-https://nytimes.com/video/dining/100000010366536/pasta-with-feta-and-green-olives.html
-
-**Jalapeño Grilled Pork Chops**\
-`Juicy jalapeños offer discernible heat, but they have a higher purpose beyond that: They provide welcome freshness with their distinct vegetal flavor.`\
-https://nytimes.com/video/dining/100000010366435/jalapeno-grilled-pork-chops.html
-
-**For Mamdani and James, Twin Targets of Trump, a Political Bond Deepens**\
-`Zohran Mamdani, the front-runner in the New York City mayor’s race, and Letitia James, New York’s attorney general, have a kinship shaped in part by their shared opposition to the president.`\
-https://nytimes.com/2025/10/10/nyregion/zohran-mamdani-letitia-james-trump.html
-
-**Macron Reappoints Lecornu as France’s Prime Minister**\
-`President Emmanuel Macron is trying to steady the political turmoil that has gripped the country and jeopardized the passage of a budget.`\
-https://nytimes.com/2025/10/10/world/europe/france-prime-minister-lecornu-macron.html
-
-**A Worthy Nobel Peace Laureate**\
-`And a reminder of the need to depose the regime of Nicolás Maduro.`\
-https://nytimes.com/2025/10/10/opinion/nobel-peace-prize-machado-maduro-venezuela.html
 
