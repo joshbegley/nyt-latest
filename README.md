@@ -1,3 +1,7 @@
+**From blocked kicks to penalties, Rams have special teams problems to solve**\
+`Three times in the past three weeks, Los Angeles has had a field goal or extra point attempt blocked that swung the game's momentum. `\
+https://nytimes.com/athletic/6704619/2025/10/10/rams-special-teams-blocked-field-goals/
+
 **Kalshi, a Prediction Market, Raises Funds and Expands Overseas**\
 `The fund-raising round comes as online prediction marketplaces gain mainstream prominence.`\
 https://nytimes.com/2025/10/10/business/dealbook/kalshi-prediction-market-fundraising.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6704713/2025/10/10/chargers-running-back-trade-opti
 **Jaxson Dart, Cam Skattebo won it all Thursday: The hearts of Giants fans, game vs. Eagles**\
 `Thursday's Giants win felt potentially transformative, like if the Giants turn things around, this will be the game everyone remembers.`\
 https://nytimes.com/athletic/6705635/2025/10/10/jaxson-dart-cam-skattebo-giants-eagles-heart/
-
-**Ohio State preview: How much of an upset threat does Illinois pose to the Buckeyes?**\
-`No. 17 Illinois poses some clear challenges to No. 1 Ohio State, but the unbeaten Buckeyes keep making progress in almost all areas.`\
-https://nytimes.com/athletic/6704378/2025/10/10/ohio-state-illinois-preview-predictions-football/
 
