@@ -1,3 +1,15 @@
+**Guerrero Jr. continuing family legacy in playoffs. Who are other MLB father-son duos?**\
+`The Guerreros join a list that includes Bobby and Barry Bonds as some of the most accomplished father-and-son MLB duos.`\
+https://nytimes.com/athletic/6704247/2025/10/10/vladimir-guerrero-jr-mlb-father-son-duos/
+
+**Trump Administration Uses Mortgage Fraud to Go After Adversaries**\
+`Letitia James, the New York attorney general, was the latest of President Trump’s perceived enemies to be indicted on charges she made false claims on loan documents.`\
+https://nytimes.com/2025/10/10/us/politics/trump-administration-uses-mortgage-fraud-to-go-after-adversaries.html
+
+**Seahawks DBs Devon Witherspoon, Julian Love, Riq Woolen doubtful vs. Jaguars**\
+`Seattle hasn't had its starting secondary at full strength since the first quarter of the season opener.`\
+https://nytimes.com/athletic/6707521/2025/10/10/seahawks-injuries-devon-witherspoon-julian-love/
+
 **For families of the missing, an agonizing wait.**\
 `By Eduardo Medina`\
 https://nytimes.com/live/2025/10/10/us/explosion-tennessee/for-families-of-the-missing-an-agonizing-wait

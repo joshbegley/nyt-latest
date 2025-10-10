@@ -1,3 +1,15 @@
+**Guerrero Jr. continuing family legacy in playoffs. Who are other MLB father-son duos?**\
+`The Guerreros join a list that includes Bobby and Barry Bonds as some of the most accomplished father-and-son MLB duos.`\
+https://nytimes.com/athletic/6704247/2025/10/10/vladimir-guerrero-jr-mlb-father-son-duos/
+
+**Trump Administration Uses Mortgage Fraud to Go After Adversaries**\
+`Letitia James, the New York attorney general, was the latest of President Trump’s perceived enemies to be indicted on charges she made false claims on loan documents.`\
+https://nytimes.com/2025/10/10/us/politics/trump-administration-uses-mortgage-fraud-to-go-after-adversaries.html
+
+**Seahawks DBs Devon Witherspoon, Julian Love, Riq Woolen doubtful vs. Jaguars**\
+`Seattle hasn't had its starting secondary at full strength since the first quarter of the season opener.`\
+https://nytimes.com/athletic/6707521/2025/10/10/seahawks-injuries-devon-witherspoon-julian-love/
+
 **For families of the missing, an agonizing wait.**\
 `By Eduardo Medina`\
 https://nytimes.com/live/2025/10/10/us/explosion-tennessee/for-families-of-the-missing-an-agonizing-wait
@@ -25,16 +37,4 @@ https://nytimes.com/video/podcasts/100000010453006/wesley-morris-on-the-best-eas
 **Overlooked No More: Violeta Parra, Folk ‘Genius’ Who Redefined Latin American Music**\
 `A self-taught composer and interpreter, she led an unconventional and itinerant life devoted to spreading Chilean folkloric music.`\
 https://nytimes.com/2025/10/10/obituaries/violeta-parra-overlooked.html
-
-**Map: 7.6-Magnitude Earthquake Strikes the South Atlantic Ocean**\
-`View the location of the quake’s epicenter and shake area.`\
-https://nytimes.com/interactive/2025/10/10/world/10wea-quake-tracker-south-atlantic-ocean-nytc5pp1.html
-
-**3 Former College Teammates Reunite on Rangers Coaching Staff**\
-`Thirty-eight years ago, Mike Sullivan, David Quinn and Joe Sacco played hockey together for Boston University. Now, they’re back together again as coaching staff for the New York Rangers this season. Peter Baugh, who writes about the team for The Athletic, breaks down the story of how rare this is.`\
-https://nytimes.com/video/the-athletic/100000010452753/3-former-college-teammates-reunite-on-rangers-coaching-staff.html
-
-**Hayley Williams on Paramore’s Relationship With Its Black Fans**\
-`Paramore’s Hayley Williams talks about the bands relationship with its Black fans and fostering a sense of community at their shows.`\
-https://nytimes.com/video/podcasts/100000010452330/hayley-williams-on-paramores-relationship-with-its-black-fans.html
 
