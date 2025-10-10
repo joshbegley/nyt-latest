@@ -1,3 +1,7 @@
+**Seahawks DBs Devon Witherspoon, Julian Love, Riq Woolen doubtful vs. Jaguars**\
+`Seattle hasn't had its starting secondary at full strength since the first quarter of the season opener.`\
+https://nytimes.com/athletic/6707521/2025/10/10/seahawks-injuries-devon-witherspoon-julian-love/
+
 **For families of the missing, an agonizing wait.**\
 `By Eduardo Medina`\
 https://nytimes.com/live/2025/10/10/us/explosion-tennessee/for-families-of-the-missing-an-agonizing-wait
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/10/10/world/10wea-quake-tracker-south-atlan
 **3 Former College Teammates Reunite on Rangers Coaching Staff**\
 `Thirty-eight years ago, Mike Sullivan, David Quinn and Joe Sacco played hockey together for Boston University. Now, they’re back together again as coaching staff for the New York Rangers this season. Peter Baugh, who writes about the team for The Athletic, breaks down the story of how rare this is.`\
 https://nytimes.com/video/the-athletic/100000010452753/3-former-college-teammates-reunite-on-rangers-coaching-staff.html
-
-**Hayley Williams on Paramore’s Relationship With Its Black Fans**\
-`Paramore’s Hayley Williams talks about the bands relationship with its Black fans and fostering a sense of community at their shows.`\
-https://nytimes.com/video/podcasts/100000010452330/hayley-williams-on-paramores-relationship-with-its-black-fans.html
 
