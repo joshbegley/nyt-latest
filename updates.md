@@ -1,3 +1,7 @@
+**Giants' Brian Daboll gets heated on sideline during Jaxson Dart's concussion check**\
+`Daboll was seen peeking inside the injury tent and yelling at a team orthopedist while waiting for his quarterback to return to the game.`\
+https://nytimes.com/athletic/6705380/2025/10/09/giants-brian-daboll-injury-concussion-check/
+
 **Former Celtics star Paul Pierce arrested on suspicion of DUI in Los Angeles**\
 `The ex-Celtic was arrested on suspicion of driving under the influence after being found asleep behind the wheel of a car, authorities said.`\
 https://nytimes.com/athletic/6705083/2025/10/09/paul-pierce-dui-arrest-news/
