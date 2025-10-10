@@ -1,3 +1,7 @@
+**Padres' Jose Iglesias, Xander Bogaerts disciplined for umpire interaction after Wild Card loss**\
+`The pair were shown in a fan-captured video berating the umpiring crew following the Padres' 3-1 loss in Game 3 of the NL Wild Card Series.`\
+https://nytimes.com/athletic/6707260/2025/10/10/san-diego-padres-jose-iglesias-xander-bogaerts-umpires-nl-wild-card-discipline/
+
 **Live Updates: Deaths Are Reported in Explosion at Tennessee Munitions Plant**\
 `A number of people were missing after a “devastating blast” at Accurate Energetic Systems, about 60 miles southwest of Nashville, a county sheriff said.`\
 https://nytimes.com/live/2025/10/10/us/explosion-tennessee
