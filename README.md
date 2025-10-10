@@ -1,3 +1,11 @@
+**Martin Kelly: Kicks from Suarez, a historically short England career, and why I'm retiring**\
+`The former Liverpool and Crystal Palace defender reveals why he has no regrets after a career which may never have happened`\
+https://nytimes.com/athletic/6699747/2025/10/10/martin-kelly-liverpool-england-interview/
+
+**The Prospects: Mateus Mane, Wolverhampton Wanderers**\
+`After making considerable progress over recent seasons, those at Wolves hope the Portugal-born striker can become a first-team mainstay `\
+https://nytimes.com/athletic/6696553/2025/10/10/mateus-mane-wolverhampton-wanderers-prospects-premier-league/
+
 **Former UK swim coach accused of sexual violence deemed 'permanently ineligible' from coaching**\
 `The U.S. Center for SafeSport found Lars Jorgensen to have conducted physical misconduct, retaliation, sexual harassment, among others.`\
 https://nytimes.com/athletic/6705047/2025/10/10/kentucky-swimming-lars-jorgensen-sexual-assault-safesport-ruling/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6703097/2025/10/10/emirates-upgrade-arsenal-wembley
 **Why Atletico and Inter are playing a friendly in Libya after Barcelona pulled out**\
 `The two Serie A and La Liga heavyweights play a friendly in strange circumstances and at an unlikely venue tonight`\
 https://nytimes.com/athletic/6696818/2025/10/10/atletico-madrid-inter-barcelona-libya/
-
-**The curious case of Endrick, the Real Madrid starlet who has not played in five months**\
-`It has been a whirlwind year for the 19-year-old Brazilian. Now he hopes he can get the gametime necessary to go to the World Cup`\
-https://nytimes.com/athletic/6700460/2025/10/10/endrick-real-madrid-analysis/
-
-**Carlos Vicens interview: 'Pep Guardiola is someone you don't want to let down'**\
-`The former Man City set-piece coach is now forging ahead with his own managerial career at SC Braga in Portugal`\
-https://nytimes.com/athletic/6702877/2025/10/10/carlos-vicens-interview-pep-guardiola-is-someone-you-dont-want-to-let-down/
 
