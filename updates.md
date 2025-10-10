@@ -1,3 +1,11 @@
+**Why Is Taylor Swift So Polarizing? And Other Big ‘Showgirl’ Questions**\
+`Our team of Swift experts debate her blockbuster new album, “The Life of a Showgirl,” and take listener questions about its themes and controversies.`\
+https://nytimes.com/2025/10/10/arts/music/popcast-taylor-swift-showgirl-reader-questions.html
+
+**Arsenal sanctioned over ticketing breach in FA Cup match against Man Utd**\
+`The FA issued a statement Friday confirming a suspended fine after Arsenal failed to accommodate 9,000 Manchester United fans.`\
+https://nytimes.com/athletic/6706597/2025/10/10/arsenal-news-sanction-fa-man-united-fa-cup/
+
 **Cade Cunningham is ready, and more Pistons preseason observations**\
 `Ausar Thompson as a primary ballhandler? Here's what we've learned halfway through Detroit's preseason.`\
 https://nytimes.com/athletic/6705411/2025/10/10/pistons-cade-cunningham-preseason-observations/
