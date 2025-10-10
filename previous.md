@@ -1,10 +1,18 @@
+**Betting for (by) dummies: 9 bets to make this weekend**\
+`Who doesn't like their betting with a little banter? Two of our football experts discuss the best picks on the board this week.`\
+https://nytimes.com/athletic/6705232/2025/10/10/nfl-college-football-betting-picks-oklahoma-texas-ohio-state-steelers/
+
+**Clippers preseason opener observations: Kawhi Leonard, second unit shine**\
+`Unlike in years past, on the court, the two-time NBA Finals MVP appears to be ready for the start of the regular season.`\
+https://nytimes.com/athletic/6706200/2025/10/10/kawhi-leonard-clippers-preseason-nba/
+
 **The Lakers were already becoming Luka Dončić's team. LeBron's injury speeds up timeline**\
 `LeBron James was always going to approach his 23rd season differently. A sciatic nerve issue will make him even more conservative.`\
 https://nytimes.com/athletic/6705694/2025/10/10/lakers-lebron-luka-doncic-injury-star/
 
 **For Trump’s Aides and Officials, the Battle Online Is Always On**\
 `President Trump’s long, avid embrace of social media has been eagerly adopted by his top aides, replacing longstanding governmental norms with online ones.`\
-https://nytimes.com/2025/10/10/nyregion/trump-officials-social-media.html
+https://nytimes.com/2025/10/10/style/trump-officials-social-media.html
 
 **What we're hearing: What's wrong with Penn State and Texas?**\
 `Plus: Memphis' makeover into a CFP contender and the Big 12's most underrated player.`\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6706125/2025/10/10/ricky-hatton-funeral-boxing/
 **Bigger Fanatics Fest NYC to coincide with 2026 World Cup final**\
 `The New York City area has never hosted a World Cup final in the history of the tournament and it’s not a given that it will ever happen again following the next year’s final on July 19, 2026.`\
 https://nytimes.com/athletic/6706239/2025/10/10/fanatics-fest-2026-world-cup-final/
-
-**World Cup collectible confusion leaving fans fuming as token prices crash**\
-`Fans were left disgruntled as details of the connection between FIFA collectibles and World Cup game tickets emerged`\
-https://nytimes.com/athletic/6705495/2025/10/10/world-cup-usmnt-fifa-collect-rtb/
-
-**Fintech Start-Ups and Investment Firms Are Battling Over Your 401(k)**\
-`Financial tech companies are connecting outside financial advisers to your retirement accounts, and at least one investment firm, Fidelity, is resisting.`\
-https://nytimes.com/2025/10/10/your-money/401-k-fintech-advisers-fidelity.html
 

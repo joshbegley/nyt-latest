@@ -1,3 +1,15 @@
+**Betting for (by) dummies: 9 bets to make this weekend**\
+`Who doesn't like their betting with a little banter? Two of our football experts discuss the best picks on the board this week.`\
+https://nytimes.com/athletic/6705232/2025/10/10/nfl-college-football-betting-picks-oklahoma-texas-ohio-state-steelers/
+
+**Clippers preseason opener observations: Kawhi Leonard, second unit shine**\
+`Unlike in years past, on the court, the two-time NBA Finals MVP appears to be ready for the start of the regular season.`\
+https://nytimes.com/athletic/6706200/2025/10/10/kawhi-leonard-clippers-preseason-nba/
+
+**For Trump’s Aides and Officials, the Battle Online Is Always On**\
+`President Trump’s long, avid embrace of social media has been eagerly adopted by his top aides, replacing longstanding governmental norms with online ones.`\
+https://nytimes.com/2025/10/10/style/trump-officials-social-media.html
+
 **The Lakers were already becoming Luka Dončić's team. LeBron's injury speeds up timeline**\
 `LeBron James was always going to approach his 23rd season differently. A sciatic nerve issue will make him even more conservative.`\
 https://nytimes.com/athletic/6705694/2025/10/10/lakers-lebron-luka-doncic-injury-star/
