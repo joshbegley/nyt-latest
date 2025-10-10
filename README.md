@@ -1,3 +1,23 @@
+**Bigger Fanatics Fest NYC to coincide with 2026 World Cup final**\
+`The New York City area has never hosted a World Cup final in the history of the tournament and it’s not a given that it will ever happen again following the next year’s final on July 19, 2026.`\
+https://nytimes.com/athletic/6706239/2025/10/10/fanatics-fest-2026-world-cup-final/
+
+**World Cup collectible confusion leaving fans fuming as token prices crash**\
+`Fans were left disgruntled as details of the connection between FIFA collectibles and World Cup game tickets emerged`\
+https://nytimes.com/athletic/6705495/2025/10/10/world-cup-usmnt-fifa-collect-rtb/
+
+**Fintech Start-Ups and Investment Firms Are Battling Over Your 401(k)**\
+`Financial tech companies are connecting outside financial advisers to your retirement accounts, and at least one investment firm, Fidelity, is resisting.`\
+https://nytimes.com/2025/10/10/your-money/401-k-fintech-advisers-fidelity.html
+
+**The W.N.B.A Gets More Attention Now. That’s Not Always a Good Thing.**\
+`The league’s popularity has given rise to online sexism and racism — and misinformation that traffics in both.`\
+https://nytimes.com/2025/10/10/business/wnba-misinformation-hate-speech.html
+
+**Nasty News? Forget About It. The Markets Say All Is Well.**\
+`The third quarter was fabulous for investors, and market signals are upbeat. It’s as though all were calm in the world.`\
+https://nytimes.com/2025/10/10/business/markets-stocks-bonds-investment-funds.html
+
 **Cease-Fire Begins in Gaza**\
 `Displaced Palestinians began returning to the north after the Israeli military announced that a cease-fire had taken effect starting at noon on Friday.`\
 https://nytimes.com/video/world/middleeast/100000010451483/cease-fire-begins-in-gaza.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/10/10/business/dealbook/aid-argentina-investors-bessent
 **How to watch Nikola Jokić and the Denver Nuggets this season**\
 `The Nuggets got Nikola Jokić more help after he averaged a triple-double last season. Here's how to tune in to their games in 2025-26.`\
 https://nytimes.com/athletic/6704235/2025/10/10/denver-nuggets-nikola-jokic-tv-games-how-to-watch/
-
-**From blocked kicks to penalties, Rams have special teams problems to solve**\
-`Three times in the past three weeks, Los Angeles has had a field goal or extra point attempt blocked that swung the game's momentum. `\
-https://nytimes.com/athletic/6704619/2025/10/10/rams-special-teams-blocked-field-goals/
-
-**Kalshi, a Prediction Market, Raises Funds and Expands Overseas**\
-`The fund-raising round comes as online prediction marketplaces gain mainstream prominence.`\
-https://nytimes.com/2025/10/10/business/dealbook/kalshi-prediction-market-fundraising.html
-
-**Letitia James Is Among Prominent Black Women Targeted by Trump**\
-`Fani T. Willis, a district attorney who brought election interference charges against Mr. Trump, and Lisa Cook, who serves on the Federal Reserve Board, have also been investigated.`\
-https://nytimes.com/2025/10/10/us/politics/letitia-james-black-women-trump-targets.html
-
-**Stark: This time the Phillies can't run it back**\
-`Orion Kerkering’s panicked 11th-inning meltdown Thursday night didn’t just end the Phillies’ season. It ended an era. Now what? `\
-https://nytimes.com/athletic/6706207/2025/10/10/phillies-offseason-dombrowski-2026-roster/
-
-**Machado’s Peace Prize Is Latest Nobel for Female Democracy Campaigners**\
-`Women in Iran, Liberia, Yemen and Myanmar have been recognized for their activism, occasionally while they were in prison and faced serious personal risk.`\
-https://nytimes.com/2025/10/10/world/nobel-peace-prize-women-democracy.html
 

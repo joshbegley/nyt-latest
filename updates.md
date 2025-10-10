@@ -1,3 +1,7 @@
+**Cease-Fire Begins in Gaza**\
+`Displaced Palestinians began returning to the north after the Israeli military announced that a cease-fire had taken effect starting at noon on Friday.`\
+https://nytimes.com/video/world/middleeast/100000010451483/cease-fire-begins-in-gaza.html
+
 **Peruvian President Impeached Amid Outrage Over Surging Crime**\
 `President Dina Boluarte of Peru was impeached and removed from office following a congressional vote amid widespread outrage over surging crime. Boluarte is the most unpopular Peruvian president in recent decades.`\
 https://nytimes.com/video/world/americas/100000010451409/peru-president-impeached-crime-boluarte.html
