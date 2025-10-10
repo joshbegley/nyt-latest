@@ -1,3 +1,15 @@
+**Trump Threatens to Cancel Meeting with China’s Xi and Impose New Tariffs**\
+`The president raised economic retaliation after Beijing imposed new restrictions on the export of rare earth minerals, which are vital supplies for U.S. automakers and defense manufacturers.`\
+https://nytimes.com/2025/10/10/us/politics/trump-china-trade-rare-earth.html
+
+**Behind Hunter Haight's path to his NHL debut, through the eyes of his family: 'Surreal moment'**\
+`Hunter Haight's NHL debut reminded his loved ones and former coaches of the 21-year-old's path to becoming a mature, two-way center.`\
+https://nytimes.com/athletic/6705618/2025/10/10/wild-hunter-haight-nhl-debut/
+
+**‘Kavalier & Clay’ Hears an Unusual Call From the Met: Encore!**\
+`The Metropolitan opera is reviving its season-opening production in February, building on the momentum of recent sold-out performances.`\
+https://nytimes.com/2025/10/10/arts/music/kavalier-and-clay-met-opera-revival.html
+
 **Superintendent Accused of Stealing Thousands From Illinois School District**\
 `The superintendent, now head of schools in DeKalb County, Ga., had been lauded for his efforts to help students of color. Prosecutors say he led a kickback scheme in suburban Chicago.`\
 https://nytimes.com/2025/10/10/us/georgia-school-superintendent-indictment-illinois.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6706749/2025/10/10/senator-maria-cantwell-big-ten-p
 **Indonesia will bar Israeli athletes from World Gymnastics Championships**\
 `An Indonesian official announced the decision in step with the country's "commitment to supporting Palestinian independence."`\
 https://nytimes.com/athletic/6705264/2025/10/10/israel-indonesia-world-gymnastics-championships/
-
-**Lowetide: Projecting McDavid's future and how Oilers need to build around him**\
-`Is there enough on the Oilers roster around McDavid to win the Stanley Cup in the next three seasons?`\
-https://nytimes.com/athletic/6643040/2025/10/10/connor-mcdavid-contract-oilers-roster/
-
-**Review: Paris Opera Ballet Unrolls a Lackluster ‘Red Carpet’**\
-`The esteemed company presents a full-length contemporary work by Hofesh Shechter at New York City Center. Forget about pointe shoes. This is Chanel in socks.`\
-https://nytimes.com/2025/10/10/arts/dance/review-paris-opera-ballet-red-carpet.html
-
-**Maria Corina Machado Has Supported Trump’s Military Actions in the Caribbean**\
-`Ms. Machado has urged President Trump to help oust Venezuela’s autocrat, Nicolás Maduro, and to back the result of an election that independent monitors say Mr. Maduro stole.`\
-https://nytimes.com/2025/10/10/world/americas/maria-corina-machado-trump-support-maduro.html
 
