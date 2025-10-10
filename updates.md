@@ -1,3 +1,11 @@
+**The Gaza Cease-Fire Takes Hold**\
+`Also, the Nobel Peace Prize was awarded. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/10/10/briefing/cease-fire-nobel.html
+
+**Detonation Underscores Inherent Dangers of Manufacturing Explosives**\
+`The munitions plant in Tennessee where an explosion occurred on Friday produces TNT, which is commonly used for the military and commercial industries.`\
+https://nytimes.com/2025/10/10/us/accurate-energetic-systems-explosion.html
+
 **Stu Sternberg awarded Rays employees with significant bonuses after selling the team: Sources**\
 `Sternberg sold the Rays in late September and issued significant bonuses to all full-time employees of the team.`\
 https://nytimes.com/athletic/6707644/2025/10/10/tampa-bay-rays-stu-sternberg-employee-bonuses/
