@@ -1,3 +1,11 @@
+**Powerful Earthquake Strikes Southern Philippines**\
+`A 7.4-magnitude quake rattled the southern Philippines. Several people were killed, and a tsunami warning was issued.`\
+https://nytimes.com/video/world/asia/100000010451362/philippines-mindanao-earthquake.html
+
+**A New Wildlife Assessment Has Bright Spots Amid Alarming Declines**\
+`Sea turtles are making a surprising comeback, according to the International Union for Conservation of Nature. The news was not so good for Arctic seals.`\
+https://nytimes.com/2025/10/10/climate/iucn-red-list-endangered-species.html
+
 **As Winter Nears, Russian Strikes on Ukraine’s Energy Grid Cause Blackouts**\
 `Every fall since the war started in 2022, Russia has targeted electricity and heating infrastructure in an effort to weaken Ukrainians’ will to continue fighting.`\
 https://nytimes.com/2025/10/10/world/europe/russia-ukraine-power-energy.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/10/learning/climbing-a-building.html
 **Riding the Wild Wave of Crypto Coverage**\
 `David Yaffe-Bellany, a technology reporter who has covered the cryptocurrency industry since 2022, has come to embrace learning on the fly.`\
 https://nytimes.com/2025/10/10/insider/cryptocurrency-reporing.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/10/10/crosswords/spelling-bee-forum.html
-
-**Josh Johnson Can’t Believe He’s Praising Trump for Something**\
-`If the Gaza deal holds, then “the guy who couldn’t stop a fight between Gary Busey and Meat Loaf brokered peace in the Middle East,” said the “Daily Show” host.`\
-https://nytimes.com/2025/10/10/arts/television/late-night-trump-peace-gaza.html
 

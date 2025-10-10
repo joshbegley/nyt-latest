@@ -1,3 +1,7 @@
+**As Winter Nears, Russian Strikes on Ukraine’s Energy Grid Cause Blackouts**\
+`Every fall since the war started in 2022, Russia has targeted electricity and heating infrastructure in an effort to weaken Ukrainians’ will to continue fighting.`\
+https://nytimes.com/2025/10/10/world/europe/russia-ukraine-power-energy.html
+
 **Explosions Rock Kabul as Taliban Minister Visits India**\
 `Accusations rise that Pakistan struck the Afghan capital with airstrikes, but neither country would confirm the reports.`\
 https://nytimes.com/2025/10/10/world/asia/kabul-explosions-india-pakistan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/10/crosswords/spelling-bee-forum.html
 **Josh Johnson Can’t Believe He’s Praising Trump for Something**\
 `If the Gaza deal holds, then “the guy who couldn’t stop a fight between Gary Busey and Meat Loaf brokered peace in the Middle East,” said the “Daily Show” host.`\
 https://nytimes.com/2025/10/10/arts/television/late-night-trump-peace-gaza.html
-
-**How to watch Tigers at Mariners: Game 5 Time, TV, streaming**\
-`Find out how to watch the Detroit Tigers play the Seattle Mariners, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6705795/2025/10/10/tigers-vs-mariners-stream-how-to-watch-oct-10/
 

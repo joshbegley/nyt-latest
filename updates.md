@@ -1,3 +1,7 @@
+**As Winter Nears, Russian Strikes on Ukraine’s Energy Grid Cause Blackouts**\
+`Every fall since the war started in 2022, Russia has targeted electricity and heating infrastructure in an effort to weaken Ukrainians’ will to continue fighting.`\
+https://nytimes.com/2025/10/10/world/europe/russia-ukraine-power-energy.html
+
 **Explosions Rock Kabul as Taliban Minister Visits India**\
 `Accusations rise that Pakistan struck the Afghan capital with airstrikes, but neither country would confirm the reports.`\
 https://nytimes.com/2025/10/10/world/asia/kabul-explosions-india-pakistan.html
