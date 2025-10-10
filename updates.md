@@ -1,3 +1,11 @@
+**Live Updates: Deaths Are Reported in Explosion at Tennessee Munitions Plant**\
+`A number of people were missing after a “devastating blast” at Accurate Energetic Systems, about 60 miles southwest of Nashville, a county sheriff said.`\
+https://nytimes.com/live/2025/10/10/us/explosion-tennessee
+
+**A Perilous Difference Between the Trump and Nixon Eras**\
+`Nixon famously had an enemies list. But there’s a difference between what happened then and what is happening now.`\
+https://nytimes.com/2025/10/10/opinion/letitia-james-donald-trump-nixon.html
+
 **Deadly Explosion at Tennessee Ammunition Plant**\
 `Multiple people were killed and several others were missing after an explosion at an ammunition plant in Tennessee on Friday morning, the authorities said.`\
 https://nytimes.com/video/us/100000010452629/tennessee-munitions-plant-explosion.html
