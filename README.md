@@ -1,6 +1,10 @@
+**U.S. to Send 200 Troops to Israel in Support Roles**\
+`The American force will help coordinate the many aspects of the cease-fire deal.`\
+https://nytimes.com/2025/10/09/world/middleeast/us-to-send-200-troops-to-israel-in-support-roles.html
+
 **Letitia James Ran on a Platform of Holding Trump to Account**\
 `Ms. James, New York’s attorney general, has said that her decision to seek the office was “about that man in the White House.”`\
-https://nytimes.com/2025/10/09/us/politics/letitia-james-ran-on-a-platform-of-holding-trump-to-account.html
+https://nytimes.com/2025/10/09/us/politics/letitia-james-attorney-general-campaign-trump.html
 
 **Packers' Matt LaFleur sounds alarm on kicker injury, but Brandon McManus plans to play**\
 `McManus is 7-for-9 on field goals this season with 11 of 12 extra-point attempts made.`\
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6704782/2025/10/09/usmnt-injuries-complicate-mauric
 **Nobel Prizes This Year Offer Three Cheers for Slow Science**\
 `The scientific Nobels announced this week — in Physiology or Medicine, Physics and Chemistry — honored achievements rooted in fundamental research from decades ago.`\
 https://nytimes.com/2025/10/09/science/nobel-prizes-science-basic-research.html
-
-**Jim McNeely, Innovative Composer for Jazz Big Bands, Dies at 76**\
-`A Grammy-winning pianist, he was renowned for works that created “new ideas about line, harmony, rhythm, sound and musical architecture,” one admirer wrote.`\
-https://nytimes.com/2025/10/09/arts/music/jim-mcneely-dead.html
 

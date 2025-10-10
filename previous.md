@@ -1,3 +1,7 @@
+**Letitia James Ran on a Platform of Holding Trump to Account**\
+`Ms. James, New York’s attorney general, has said that her decision to seek the office was “about that man in the White House.”`\
+https://nytimes.com/2025/10/09/us/politics/letitia-james-ran-on-a-platform-of-holding-trump-to-account.html
+
 **Packers' Matt LaFleur sounds alarm on kicker injury, but Brandon McManus plans to play**\
 `McManus is 7-for-9 on field goals this season with 11 of 12 extra-point attempts made.`\
 https://nytimes.com/athletic/6704798/2025/10/09/packers-matt-lafleur-brandon-mcmanus-injury-bengals/
@@ -29,8 +33,4 @@ https://nytimes.com/2025/10/09/science/nobel-prizes-science-basic-research.html
 **Jim McNeely, Innovative Composer for Jazz Big Bands, Dies at 76**\
 `A Grammy-winning pianist, he was renowned for works that created “new ideas about line, harmony, rhythm, sound and musical architecture,” one admirer wrote.`\
 https://nytimes.com/2025/10/09/arts/music/jim-mcneely-dead.html
-
-**Trump Has His Eyes on a Nobel Peace Prize. Will He Get It?**\
-`President Trump has coveted the prize for years. The winner will be unveiled 48 hours after President Trump announced a breakthrough in the Israel-Hamas war.`\
-https://nytimes.com/2025/10/09/us/politics/trump-nobel-peace-prize.html
 
