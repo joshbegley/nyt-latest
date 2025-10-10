@@ -1,3 +1,11 @@
+**For families of the missing, an agonizing wait.**\
+`By Eduardo Medina`\
+https://nytimes.com/live/2025/10/10/us/explosion-tennessee/for-families-of-the-missing-an-agonizing-wait
+
+**Brock Purdy out, Mac Jones questionable but expected to start vs. Bucs**\
+`The Niners will also be without WR Ricky Pearsall, while the Bucs will be missing WRs Mike Evans and Chris Godwin and RB Bucky Irving.`\
+https://nytimes.com/athletic/6707266/2025/10/10/brock-purdy-mac-jones-injuries-49ers/
+
 **‘Krapp’s Last Tape’ Review: Stephen Rea’s Duet With His Younger Self**\
 `Samuel Beckett’s 55-minute contemplation of mortality comes to NYU Skirball in a neat and handsome staging by Vicky Featherstone.`\
 https://nytimes.com/2025/10/10/theater/krapps-last-tape-review-stephen-rea.html
