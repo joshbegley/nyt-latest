@@ -1,3 +1,11 @@
+**Map: 7.6-Magnitude Earthquake Strikes the South Atlantic Ocean**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/10/10/world/10wea-quake-tracker-south-atlantic-ocean-nytc5pp1.html
+
+**3 Former College Teammates Reunite on Rangers Coaching Staff**\
+`Thirty-eight years ago, Mike Sullivan, David Quinn and Joe Sacco played hockey together for Boston University. Now, they’re back together again as coaching staff for the New York Rangers this season. Peter Baugh, who writes about the team for The Athletic, breaks down the story of how rare this is.`\
+https://nytimes.com/video/the-athletic/100000010452753/3-former-college-teammates-reunite-on-rangers-coaching-staff.html
+
 **Hayley Williams on Paramore’s Relationship With Its Black Fans**\
 `Paramore’s Hayley Williams talks about the bands relationship with its Black fans and fostering a sense of community at their shows.`\
 https://nytimes.com/video/podcasts/100000010452330/hayley-williams-on-paramores-relationship-with-its-black-fans.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/10/world/europe/france-prime-minister-lecornu-macron
 **A Worthy Nobel Peace Laureate**\
 `And a reminder of the need to depose the regime of Nicolás Maduro.`\
 https://nytimes.com/2025/10/10/opinion/nobel-peace-prize-machado-maduro-venezuela.html
-
-**Stocks Fall Sharply on Trump’s Renewed Threat of China Tariffs**\
-`The S&P 500 slumped more than 2 percent for the first time in six months, rattling investors after a long stretch of gains.`\
-https://nytimes.com/2025/10/10/business/stock-market-trump-tariffs.html
-
-**María Corina Machado, Venezuela Opposition Leader, Is Awarded Nobel Peace Prize**\
-`Ms. Machado galvanized a movement that independent analysts say won last year’s election, only to have it stolen by President Nicolás Maduro.`\
-https://nytimes.com/2025/10/10/world/americas/machado-venezuela-nobel-peace-prize.html
 
