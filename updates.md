@@ -1,3 +1,23 @@
+**Hope and Anxiety Over Israel-Gaza Peace**\
+`Readers respond to the rapidly developing events in the Middle East. Also: The virtues of coal; three hours with Velázquez.`\
+https://nytimes.com/2025/10/10/opinion/israel-gaza-peace.html
+
+**Nevada Desert Solar Project Just Got Canceled Under Trump**\
+`Known as Esmeralda 7, the project planned in the Nevada desert would have produced enough energy to power nearly two million homes.`\
+https://nytimes.com/2025/10/10/climate/nevada-solar-esmerelda7.html
+
+**Under Trump, E.P.A. Explored if Abortion Pills Could Be Detected in Wastewater**\
+`Scientists at the Environmental Protection Agency found that they could develop methods to identify traces of the medication if necessary — a practice long sought by the anti-abortion movement.`\
+https://nytimes.com/2025/10/10/us/politics/epa-abortion-wastewater.html
+
+**Deaths Are Reported in Explosion at Tennessee Munitions Plant**\
+`A number of people were missing after a “devastating blast” at Accurate Energetic Systems, about 60 miles southwest of Nashville, a county sheriff said.`\
+https://nytimes.com/2025/10/10/us/explosion-ammunition-plant-tennessee.html
+
+**Arizona St. QB Sam Leavitt doubtful vs. Utah, would take 'mini-miracle' to play**\
+`If Leavitt cannot go, sixth-year QB Jeff Sims would get his first start of the season.`\
+https://nytimes.com/athletic/6707014/2025/10/10/sam-leavitt-injury-arizona-state/
+
 **White House Signals Federal Layoffs Have Begun During Shutdown**\
 `The head of the White House budget office said on Friday that reductions in force had started.`\
 https://nytimes.com/2025/10/10/us/politics/federal-layoffs-government-shutdown.html
