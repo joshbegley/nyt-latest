@@ -1,40 +1,40 @@
-**Corrections: Oct. 10, 2025**\
-`Corrections that appeared in print on Friday, Oct. 10, 2025.`\
-https://nytimes.com/2025/10/09/pageoneplus/corrections-oct-10-2025.html
+**Footballer-turned-referee Carl Baker on how learning to become an official saved his life**\
+`After nearly 600 games as player, Carl Baker felt lost when his football career ended - but a refereeing course has given him purpose`\
+https://nytimes.com/athletic/6703566/2025/10/10/footballer-referee-mental-health-depression/
 
-**Quote of the Day: Initially Peaceful, Nepal’s Gen Z Protests Went Chaotically Awry**\
-`Quotation of the Day for Friday, October 10, 2025.`\
-https://nytimes.com/2025/10/09/pageoneplus/quote-of-the-day-initially-peaceful-nepals-gen-z-protests-went-chaotically-awry.html
+**Radebe interview: 'It was daunting 0- we didn't see any Black people on the terraces'**\
+`Lucas Radebe speaks about the difficulty he faced when joining Leeds and his hopes for the future as he mentors players at his old club`\
+https://nytimes.com/athletic/6695220/2025/10/10/lucas-radebe-leeds-united-bhm-interview/
 
-**Los Angeles Times Moves Closer to a Public Stock Offering**\
-`The company, which says it plans an initial public offering next fall, announced on Thursday that it would seek to raise up to $500 million selling private shares to investors.`\
-https://nytimes.com/2025/10/09/business/media/la-times-ipo.html
+**Why Chelsea’s poor disciplinary record is not just a Maresca problem**\
+`Chelsea have registered more bookings (301) than anyone else over the past three years – and they've also had the second-most red cards (12)`\
+https://nytimes.com/athletic/6702858/2025/10/10/chelsea-premier-league-enzo-maresca/
 
-**Mario Lemieux on hand as Penguins beat Islanders in Schaefer's debut: Observations**\
-`Mario Lemieux was on hand to watch the Penguins move to 2-0 thanks to a big night from Evgeni Malkin.`\
-https://nytimes.com/athletic/6705385/2025/10/09/penguins-lemieux-home-opener-malkin-islanders/
+**Germany’s Top Economist Charts a Path Out of Europe’s Crisis**\
+`Joachim Nagel, the president of Germany’s central bank, warned against “complacency” in European capitals over tariffs, competition with China and attacks on institutions.`\
+https://nytimes.com/2025/10/10/business/nagel-bundesbank-germany-europe-economy.html
 
-**Giants-Eagles: New York stuns Philadelphia behind Cam Skattebo's 3 TDs**\
-`The Eagles' defense couldn't slow down Skattebo, who had 98 rushing yards in the win.`\
-https://nytimes.com/athletic/6704879/2025/10/09/eagles-giants-score-result-takeaways-thursday-night-football/
+**From Reality TV Drama to Celebrating Love and Unity**\
+`For Richard Chang and Victoria Abbyaeva, appearing on Netflix’s “Bling Empire: New York” was their biggest obstacle as a couple. Their wedding showed how resilient they have become.`\
+https://nytimes.com/2025/10/10/style/victoria-abbyaeva-richard-chang-wedding.html
 
-**Dan Vladar strong in goal, but top offensive assets dormant in season-opening loss**\
-`The Flyers are still learning how Rick Tocchet wants to play, and the skill gap was evident against the Panthers.`\
-https://nytimes.com/athletic/6705447/2025/10/09/flyers-vladar-season-opener-panthers/
+**Negotiating the End of Us**\
+`My husband kept saying he was going to die at a young age, but we could never agree on an acceptable number.`\
+https://nytimes.com/2025/10/10/style/modern-love-negotiating-the-end-of-us.html
 
-**Brian Daboll apologizes for sideline reaction during Jaxson Dart's concussion check**\
-`Daboll was seen peeking inside the injury tent and yelling at a team orthopedist while waiting for his quarterback to return to the game.`\
-https://nytimes.com/athletic/6705380/2025/10/09/giants-brian-daboll-injury-concussion-check/
+**A Slow and Steady, ‘Good Old-Fashioned’ Courtship**\
+`Ashley Erling and Joshua Martin met on a double date with their best friends. Then they took a couple of weeks to go on another.`\
+https://nytimes.com/2025/10/10/style/ashley-erling-joshua-martin-wedding.html
 
-**Former Celtics star Paul Pierce arrested on suspicion of DUI in Los Angeles**\
-`The ex-Celtic was arrested on suspicion of driving under the influence after being found asleep behind the wheel of a car, authorities said.`\
-https://nytimes.com/athletic/6705083/2025/10/09/paul-pierce-dui-arrest-news/
+**From Fifth Grade to Forever**\
+`Rebecca Erdman and Christopher White have been an item since their senior year of high school, with one critical six-month break along the way.`\
+https://nytimes.com/2025/10/10/style/rebecca-erdman-christopher-white-wedding.html
 
-**Wild top line clicks, Hartman scores twice, Gustavsson perfect vs. Blues: Takeaways**\
-`Filip Gustavsson made 27 saves as the Wild shut out the division rival St. Louis Blues 5-0 to start the 2025-26 season.`\
-https://nytimes.com/athletic/6704989/2025/10/09/wild-hartman-gustavsson-top-line-blues/
+**A Promise She Was Happy to Break**\
+`Adrienne Tarver had told herself she would never date a fellow artist. Then she met Jason Karolak, an abstract painter, on an art gallery crawl.`\
+https://nytimes.com/2025/10/10/style/adrienne-tarver-jason-karolak-wedding.html
 
-**Senate Passes Bipartisan $925 Billion Defense Policy Bill**\
-`The legislation would provide a 3.8 percent pay raise for American troops, while funding weapons and overhauling military procurement.`\
-https://nytimes.com/2025/10/09/us/senate-passes-bipartisan-925-billion-defense-policy-bill.html
+**Connections: Sports Edition Coach: Hints for Oct. 10, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6703540/2025/10/10/connections-sports-edition-hints-for-oct-10-2025/
 
