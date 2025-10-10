@@ -1,3 +1,19 @@
+**What to Know About the Federal Indictment Against Letitia James**\
+`Ms. James, a Democrat and New York’s attorney general, is a longtime nemesis of President Trump, She is charged with committing bank fraud to obtain favorable loan terms.`\
+https://nytimes.com/2025/10/10/nyregion/james-indictment-what-to-know.html
+
+**Nobel Organizers Look Into Surge of Bets for Winner Ahead of Announcement**\
+`The committee that awards the Nobel Peace Prize was looking into whether there was advance knowledge of María Corina Machado’s win.`\
+https://nytimes.com/2025/10/10/world/nobel-prize-bets-machado-investigation.html
+
+**Who wins the F1 championship? Six scenarios; Plus, Isack Hadjar's math-y race helmet**\
+`Welcome to Prime Tire, The Athletic's Formula 1 newsletter`\
+https://nytimes.com/athletic/6707152/2025/10/10/f1-drivers-championship-scenarios-prime-tire/
+
+**Trump to Announce a Drug Pricing Deal With AstraZeneca**\
+`The move would follow a similar agreement with Pfizer. Other companies are engaged in talks with the White House that would help them avoid tariffs on their products overseas.`\
+https://nytimes.com/2025/10/10/health/trump-drug-prices-astrazeneca.html
+
 **Shein Chose Paris for Its First Boutique. Paris Isn’t Pleased.**\
 `As the Chinese online fast-fashion retailer prepares to open a physical space in a venerable department store, France pushes to stem the company’s presence in the country.`\
 https://nytimes.com/2025/10/10/business/shein-retail-store-paris-backlash.html
