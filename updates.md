@@ -1,3 +1,19 @@
+**The Windup: What a brutal elimination moment**\
+`The Windup Newsletter ⚾ | This is The Athletic’s MLB newsletter.`\
+https://nytimes.com/athletic/6706893/2025/10/10/phillies-dodgers-final-play-the-windup/
+
+**What’s in the Gaza Cease-Fire Deal?**\
+`A step-by-step guide to what’s next in Gaza for the hostages, Israel’s military and the delivery of aid.`\
+https://nytimes.com/interactive/2025/10/10/world/middleeast/gaza-ceasefire-deal-israel.html
+
+**Senator cautions Big Ten presidents about private capital in letter, urges transparency**\
+`Sen. Maria Cantwell questioned whether the Big Ten's media rights revenue could stay tax-exempt if a private investor buys a stake.`\
+https://nytimes.com/athletic/6706749/2025/10/10/senator-maria-cantwell-big-ten-private-equity/
+
+**Maria Corina Machado Has Supported Trump’s Military Actions in the Caribbean**\
+`Ms. Machado has urged President Trump to help oust Venezuela’s autocrat, Nicolás Maduro, and to back the result of an election that independent monitors say Mr. Maduro stole.`\
+https://nytimes.com/2025/10/10/world/americas/maria-corina-machado-trump-support-maduro.html
+
 **Indonesia will bar Israeli athletes from World Gymnastics Championships**\
 `An Indonesian official announced the decision in step with the country's "commitment to supporting Palestinian independence."`\
 https://nytimes.com/athletic/6705264/2025/10/10/israel-indonesia-world-gymnastics-championships/
