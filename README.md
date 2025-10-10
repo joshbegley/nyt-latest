@@ -1,3 +1,11 @@
+**Billions of Dollars ‘Vanished’: Low-Profile Bankruptcy Rings Alarms on Wall Street**\
+`The unraveling of First Brands, a midsize auto-parts maker, is exposing hidden losses at international banks and “private credit” lenders.`\
+https://nytimes.com/2025/10/10/business/first-brands-bankruptcy-wall-street.html
+
+**The Nobel Peace Prize draws attention, but struggles to drive long-term change.**\
+`By Pranav Baskar`\
+https://nytimes.com/live/2025/10/10/world/nobel-peace-prize/peace-prize-history-change
+
 **Mount Everest Just Recorded Some of Its Most Intense Snowfall Ever**\
 `A storm buried tents and stranded people on the mountain last weekend. Some experts think it might have set a record.`\
 https://nytimes.com/2025/10/10/weather/mount-everest-record-snow.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/10/us/politics/trump-xi-china-tariffs-rare-earth.htm
 **Behind Hunter Haight's path to his NHL debut, through the eyes of his family: 'Surreal moment'**\
 `Hunter Haight's NHL debut reminded his loved ones and former coaches of the 21-year-old's path to becoming a mature, two-way center.`\
 https://nytimes.com/athletic/6705618/2025/10/10/wild-hunter-haight-nhl-debut/
-
-**‘Kavalier & Clay’ Hears an Unusual Call From the Met: Encore!**\
-`The Metropolitan opera is reviving its season-opening production in February, building on the momentum of recent sold-out performances.`\
-https://nytimes.com/2025/10/10/arts/music/kavalier-and-clay-met-opera-revival.html
-
-**Superintendent Accused of Stealing Thousands From Illinois School District**\
-`The superintendent, now head of schools in DeKalb County, Ga., had been lauded for his efforts to help students of color. Prosecutors say he led a kickback scheme in suburban Chicago.`\
-https://nytimes.com/2025/10/10/us/georgia-school-superintendent-indictment-illinois.html
 
