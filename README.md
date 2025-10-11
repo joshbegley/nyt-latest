@@ -18,7 +18,7 @@ https://nytimes.com/athletic/6709218/2025/10/11/pitt-florida-state-acc-score-res
 `Missiles struck as many people were asleep in classrooms converted into temporary shelters, a doctor said. Paramilitary forces have tightened their siege on El Fasher for over a year.`\
 https://nytimes.com/2025/10/11/world/africa/sudan-shelter-strike-rsf.html
 
-**Among Portland Protests, It’s Frogs and Sharks and Bears, Oh My.**\
+**Among Portland Protests, It’s Frogs and Sharks and Bears, Oh My!**\
 `Images of anarchists clad in black gave the city a bad name in 2020. Now, demonstrators in Portland are poking fun at President Trump’s apocalyptic talk with colorful animal suits.`\
 https://nytimes.com/2025/10/11/us/politics/portland-protests.html
 
