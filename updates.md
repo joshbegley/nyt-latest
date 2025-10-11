@@ -1,3 +1,7 @@
+**Knicks, Raptors agree to dismiss 2023 lawsuit**\
+`The Knicks dismissed the case “with prejudice,” permanently ending the matter.`\
+https://nytimes.com/athletic/6707896/2025/10/10/raptors-knicks-lawsuit-dismissal/
+
 **Shorthand for a Stance**\
 `Sam Ezersky presents a brawny, themeless puzzle for the brainy (us).`\
 https://nytimes.com/2025/10/10/crosswords/daily-puzzle-2025-10-11.html

@@ -1,3 +1,7 @@
+**Knicks, Raptors agree to dismiss 2023 lawsuit**\
+`The Knicks dismissed the case “with prejudice,” permanently ending the matter.`\
+https://nytimes.com/athletic/6707896/2025/10/10/raptors-knicks-lawsuit-dismissal/
+
 **Shorthand for a Stance**\
 `Sam Ezersky presents a brawny, themeless puzzle for the brainy (us).`\
 https://nytimes.com/2025/10/10/crosswords/daily-puzzle-2025-10-11.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/10/world/middleeast/un-attacks-venezuela-boats.html
 **Cubs believe they have enough pitching to 'survive and advance' in Game 5 and beyond**\
 `The Cubs have their bags packed for Milwaukee and a trip to Los Angeles, with the belief that their pitching staff can perform in Game 5.`\
 https://nytimes.com/athletic/6707744/2025/10/10/cubs-mlb-postseason-nlds-pitching/
-
-**Here are some other factory explosions in American history.**\
-`By Rylee Kirk`\
-https://nytimes.com/live/2025/10/10/us/explosion-tennessee/here-are-some-other-factory-explosions-in-american-history
 
