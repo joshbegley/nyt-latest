@@ -1,5 +1,13 @@
+**At Least 3 Are Injured on the Ground After Helicopter Crashes in California**\
+`Two people were pulled from the wreckage, the police said. It was not clear what led up to the crash or the severity of the victims’ injuries.`\
+https://nytimes.com/2025/10/11/us/helicopter-crash-huntington-beach-california.html
+
+**Notre Dame surges past NC State with dominant second half: Key takeaways**\
+`Notre Dame's defense flexes its muscles, holds NC State to 233 total yards en route to 36-7 win in South Bend. `\
+https://nytimes.com/athletic/6709469/2025/10/11/notre-dame-nc-state-cj-carr-marcus-freeman/
+
 **Five Great Diane Keaton Performances to Stream**\
-`The actress, who died on Saturday at 79, was known for both her dramatic heft and her comedic gifts. Here are some of her highlights.`\
+`The actress, who died on Saturday at 79, was known for both her dramatic heft and her comedic gifts. Here are some of the highlights.`\
 https://nytimes.com/2025/10/11/movies/diane-keaton-movies-streaming.html
 
 **Northwestern edges Penn State as Nittany Lions stack stunning losses**\
@@ -29,12 +37,4 @@ https://nytimes.com/video/us/100000010453924/tennessee-plant-explosion-presser.h
 **Luka Dončić to play in two of Lakers’ final four preseason games**\
 `Dončić was a full participant in Saturday's practice, and Lakers coach JJ Redick said the star guard was “TBD” for Sunday.`\
 https://nytimes.com/athletic/6709355/2025/10/11/luka-doncic-lakers-preseason-debut/
-
-**Gerrard turns down chance to return to Rangers**\
-`The former Liverpool captain had been in talks with the club's hierarchy on Thursday, after Russell Martin's dismissal.`\
-https://nytimes.com/athletic/6702785/2025/10/11/steven-gerrard-rangers-manager/
-
-**Residents Return to a Devastated Gaza City**\
-`With the cease-fire holding overnight, many Palestinians traveled to Gaza City to learn what remained of their lives and homes.`\
-https://nytimes.com/video/world/middleeast/100000010453765/gaza-city-returns-ceasefire-israel-hamas.html
 

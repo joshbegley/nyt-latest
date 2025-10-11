@@ -1,3 +1,15 @@
+**At Least 3 Are Injured on the Ground After Helicopter Crashes in California**\
+`Two people were pulled from the wreckage, the police said. It was not clear what led up to the crash or the severity of the victims’ injuries.`\
+https://nytimes.com/2025/10/11/us/helicopter-crash-huntington-beach-california.html
+
+**Notre Dame surges past NC State with dominant second half: Key takeaways**\
+`Notre Dame's defense flexes its muscles, holds NC State to 233 total yards en route to 36-7 win in South Bend. `\
+https://nytimes.com/athletic/6709469/2025/10/11/notre-dame-nc-state-cj-carr-marcus-freeman/
+
+**Five Great Diane Keaton Performances to Stream**\
+`The actress, who died on Saturday at 79, was known for both her dramatic heft and her comedic gifts. Here are some of the highlights.`\
+https://nytimes.com/2025/10/11/movies/diane-keaton-movies-streaming.html
+
 **Five Great Diane Keaton Performances to Stream**\
 `The actress, who died on Saturday at 79, was known for both her dramatic heft and her comedic gifts. Here are some of her highlights.`\
 https://nytimes.com/2025/10/11/movies/diane-keaton-movies-streaming.html
