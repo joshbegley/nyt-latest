@@ -1,3 +1,11 @@
+**Tigers radio announcer apologizes for swearing on broadcast after ALDS Game 5 elimination**\
+`Longtime Tigers radio voice Dan Dickerson apologized for cursing on a hot mic after Detroit's season-ending loss to the Seattle Mariners.`\
+https://nytimes.com/athletic/6708990/2025/10/11/detroit-tigers-radio-announcer-hot-mic-swear/
+
+**Wild to honor Jacques Lemaire before home opener: 'A long time I wanted to come back'**\
+`Lemaire's team shocked the hockey world in 2003 by rallying from a pair of 3-1 series deficits to reach the Western Conference final.`\
+https://nytimes.com/athletic/6709073/2025/10/11/wild-jacques-lemaire-home-opener/
+
 **C.D.C. Layoffs Included 2 Top Measles Experts Amid Rising Cases**\
 `Scientists who focused on other infectious diseases, like an Ebola outbreak in the Democratic Republic of Congo, also were let go.`\
 https://nytimes.com/2025/10/11/health/cdc-layoffs-measles.html
