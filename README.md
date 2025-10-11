@@ -1,40 +1,40 @@
-**Wave of Criticism Greets Macron’s Repeat Pick for Prime Minister: ‘Bad Joke’**\
-`After appointing the same person prime minister for the second time in a week, President Emmanuel Macron is facing calls to explain his stubbornness or resign.`\
-https://nytimes.com/2025/10/11/world/europe/france-macron-lecornu-prime-minister.html
+**Most Americans Who Rely on Obamacare Live in Republican Areas**\
+`Millions of Americans depend on Obamacare. Here's where they live.`\
+https://nytimes.com/interactive/2025/10/11/us/politics/obamacare-aca-enrollment-state-map.html
 
-**China Flexed. Trump Hit Back. So Much for the Thaw.**\
-`Beijing’s trade curbs and President Trump’s tariff threats show how quickly calm can give way to confrontation between the two largest economies.`\
-https://nytimes.com/2025/10/11/world/asia/china-trump-tariff-threat.html
+**Rose Byrne as Mother of the Year**\
+`Maternal sacrifice is in vogue politically. The new movie “If I Had Legs I’d Kick You” shows where it can lead.`\
+https://nytimes.com/2025/10/11/style/if-i-had-legs-id-kick-you-rose-byrne.html
 
-**For Javier Tebas, taking LaLiga to Miami doesn’t betray tradition. 'It defends it'**\
-`In the wake of criticism over playing LaLiga games in the U.S., the league's president is adamant that globalization helps football grow`\
-https://nytimes.com/athletic/6707715/2025/10/11/javier-tebas-laliga-miami-match/
+**What We Know About the Explosion in Central Tennessee**\
+`The blast happened at a plant owned by Accurate Energetic Systems. Officials did not specify a death toll but said 19 people were missing.`\
+https://nytimes.com/2025/10/11/us/tennessee-plant-explosion-what-we-know.html
 
-**In the Eye of a Political Storm, a Tiny Yellow House in Norfolk, Va.**\
-`Attorney General Letitia James of New York purchased the $137,000 home for a grandniece who needed tranquillity. Prosecutors say it is an impermissible investment property.`\
-https://nytimes.com/2025/10/11/us/politics/letitia-james-indictment-house.html
+**Some Americans Are Starting to Feel the Impact of the Government Shutdown**\
+`The Trump administration said over 4,000 workers would be laid off. Farmers trying to plan next year’s crops don’t have all the tools they need. Some medical services have been curtailed in Native communities.`\
+https://nytimes.com/2025/10/11/us/politics/government-shutdown-effects.html
 
-**How the Host of a Diwali Ball Spends Her Day Getting Ready to Party**\
-`Anjula Acharia, who hosts the “All That Glitters” ball, has chai with her fiancé before a day full of hairstyling, makeup and diamonds.`\
-https://nytimes.com/2025/10/11/nyregion/anjula-acharia-diwali-ball.html
+**West Virginia’s School Vaccination Law Has Been Effective. That May Change.**\
+`The law allows only medical exemptions, and the state has one of the highest childhood vaccination rates. But hundreds of families are seeking religious exemptions.`\
+https://nytimes.com/2025/10/11/us/west-virginia-school-vaccines.html
 
-**These Students Are Scared. Friends and Teachers Are Their Protectors.**\
-`Sometimes, they offer a place to stay to immigrant children. Other times, they provide help navigating the legal system. They have become part of the resistance.`\
-https://nytimes.com/2025/10/11/nyregion/schools-immigrant-children-deportation.html
+**How the Government Shutdown Will Be Felt**\
+`The effects of a shutdown tend to unfold in stages. As agencies, departments and federal employees figure out how to weather the storm, Karoun Demirjian, a Times reporter, explains what to know.`\
+https://nytimes.com/video/us/politics/100000010447931/how-the-government-shutdown-will-be-felt.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/10/11/crosswords/spelling-bee-forum.html
+**Beheaded and Sent to Watery Graves, Columbus Statues Get New Life**\
+`More than 30 monuments to Christopher Columbus were toppled or taken down in 2020. Now some are being restored, and finding new, usually less-public homes.`\
+https://nytimes.com/2025/10/11/arts/design/christopher-columbus-statues.html
 
-**Get your popcorn ready: WNBA's most riveting offseason begins now**\
-`The CBA deadline is nearing. Free agency will be wild. Expansion is coming. This offseason could reshape the WNBA landscape.`\
-https://nytimes.com/athletic/6708226/2025/10/11/wnba-finals-offseason-cba-free-agency/
+**How real are the Jacksonville Jaguars? Opportunistic defense and offense in progress leads way**\
+`Jacksonville is off to a hot start and the film shows what's working for the team and what they still have to build on.`\
+https://nytimes.com/athletic/6699055/2025/10/11/jaguars-seahawks-chiefs-week-6-trevor-lawrence/
 
-**North Korea Flaunts New Missiles ​in Parade With Chinese and Russian Officials**\
-`The parade, held in North Korea’s capital to celebrate the 80th anniversary of the ruling Workers’ Party, ​gave its leader a chance to show off his growing power.`\
-https://nytimes.com/2025/10/11/world/asia/north-korea-military-parade-china-russia.html
+**Trump’s Shutdown Layoffs Deepen Impasse, Angering Democrats**\
+`The president’s move to fire federal workers and his threats to make others go without pay were aimed at pressuring Democrats to cut a deal to reopen the government. The tactics have fueled Democrats’ resolve.`\
+https://nytimes.com/2025/10/11/us/politics/trump-government-shutdown-layoffs-democrats.html
 
-**Heavy Rain, Floods and Landslides in Mexico Kill at Least 27**\
-`The downpours also damaged thousands of homes and cut off power to entire towns. More rain was expected this weekend.`\
-https://nytimes.com/2025/10/11/world/americas/mexico-floods-rain.html
+**They Each Own 50 Credit Cards. Should You?**\
+`A growing number of Americans are making thousands by exploiting credit card reward offers.`\
+https://nytimes.com/2025/10/11/business/credit-cards-churners.html
 
