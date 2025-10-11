@@ -1,3 +1,11 @@
+**C.D.C. Layoffs Included 2 Top Measles Experts Amid Rising Cases**\
+`Scientists who focused on other infectious diseases, like Ebola, now spreading in the Democratic Republic of Congo, also were let go.`\
+https://nytimes.com/2025/10/11/health/cdc-layoffs-measles.html
+
+**This Is Un-American**\
+`A lot has happened this week.`\
+https://nytimes.com/video/opinion/100000010453263/this-is-un-american.html
+
 **U.S. national team looks to ride consistency to FIFA Under-20 World Cup semi-final berth**\
 `On Sunday, the U.S. team will look to down Morocco and become the first to advance to the semifinals since 1989.`\
 https://nytimes.com/athletic/6709047/2025/10/11/u20-world-cup-usmnt-morocco-semi-final/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6708983/2025/10/11/flyers-vs-hurricanes-stream-how-
 **How to watch Rangers vs. Penguins: Time, TV, streaming**\
 `Find out how to watch the New York Rangers play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6708982/2025/10/11/rangers-vs-penguins-stream-how-to-watch-oct-11/
-
-**How to watch Senators vs. Panthers: Time, TV, streaming**\
-`Find out how to watch the Ottawa Senators play the Florida Panthers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6708979/2025/10/11/senators-vs-panthers-stream-how-to-watch-oct-11/
-
-**How to watch Blue Jackets vs. Wild: Time, TV, streaming**\
-`Find out how to watch the Columbus Blue Jackets play the Minnesota Wild, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6708977/2025/10/11/blue-jackets-vs-wild-stream-how-to-watch-oct-11/
 
