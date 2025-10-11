@@ -1,3 +1,7 @@
+**Northwestern edges Penn State as Nittany Lions stack stunning losses**\
+`A week after being stunned at the Rose Bowl by previously-winless UCLA, Penn State lost 22-21 to visiting Northwestern on Saturday.`\
+https://nytimes.com/athletic/6709502/2025/10/11/northwestern-edges-penn-state/
+
 **Hollywood and Fans Remember Diane Keaton**\
 `Tributes from colleagues and fans flooded social media as they learned of her death. Many celebrated her onscreen legacy and some noted her impact on their lives.`\
 https://nytimes.com/2025/10/11/arts/diane-keaton-death-reactions-tributes.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010453765/gaza-city-returns-cea
 **Fears of a Coup Rise in Madagascar as Army Unit Joins Protesters**\
 `The unit appealed to security forces in this southern African nation to disobey their superiors and to refuse to shoot at demonstrators, who have rallied in the streets for more than two weeks.`\
 https://nytimes.com/2025/10/11/world/africa/madagascar-protest-coup-fears.html
-
-**Diane Keaton, a Star of ‘Annie Hall’ and ‘First Wives Club,’ Dies at 79**\
-`She brought an unconventional personality to scores of roles on television and in movies ranging from zany comedies like “Sleeper” to piercing dramas like “The Godfather.”`\
-https://nytimes.com/2025/10/11/movies/diane-keaton-dead.html
 

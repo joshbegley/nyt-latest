@@ -1,3 +1,7 @@
+**Northwestern edges Penn State as Nittany Lions stack stunning losses**\
+`A week after being stunned at the Rose Bowl by previously-winless UCLA, Penn State lost 22-21 to visiting Northwestern on Saturday.`\
+https://nytimes.com/athletic/6709502/2025/10/11/northwestern-edges-penn-state/
+
 **Hollywood and Fans Remember Diane Keaton**\
 `Tributes from colleagues and fans flooded social media as they learned of her death. Many celebrated her onscreen legacy and some noted her impact on their lives.`\
 https://nytimes.com/2025/10/11/arts/diane-keaton-death-reactions-tributes.html

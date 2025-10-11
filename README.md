@@ -1,3 +1,7 @@
+**Five Great Diane Keaton Performances to Stream**\
+`The actress, who died on Saturday at 79, was known for both her dramatic heft and her comedic gifts. Here are some of her highlights.`\
+https://nytimes.com/2025/10/11/movies/diane-keaton-movies-streaming.html
+
 **Northwestern edges Penn State as Nittany Lions stack stunning losses**\
 `A week after being stunned at the Rose Bowl by previously-winless UCLA, Penn State lost 22-21 to visiting Northwestern on Saturday.`\
 https://nytimes.com/athletic/6709502/2025/10/11/northwestern-edges-penn-state/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6702785/2025/10/11/steven-gerrard-rangers-manager/
 **Residents Return to a Devastated Gaza City**\
 `With the cease-fire holding overnight, many Palestinians traveled to Gaza City to learn what remained of their lives and homes.`\
 https://nytimes.com/video/world/middleeast/100000010453765/gaza-city-returns-ceasefire-israel-hamas.html
-
-**Fears of a Coup Rise in Madagascar as Army Unit Joins Protesters**\
-`The unit appealed to security forces in this southern African nation to disobey their superiors and to refuse to shoot at demonstrators, who have rallied in the streets for more than two weeks.`\
-https://nytimes.com/2025/10/11/world/africa/madagascar-protest-coup-fears.html
 
