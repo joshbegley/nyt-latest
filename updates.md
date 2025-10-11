@@ -1,3 +1,7 @@
+**How to watch Cubs at Brewers: Game 5 Time, TV, streaming**\
+`Find out how to watch the Chicago Cubs play the Milwaukee Brewers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6708228/2025/10/11/how-to-watch-cubs-vs-brewers-game-5-tv-channel-and-streaming-options-for-october-11/
+
 **In the Eye of a Political Storm, a Tiny Yellow House in Norfolk, Va.**\
 `Attorney General Letitia James of New York purchased the $137,000 home for a grandniece who needed tranquillity. Prosecutors say it is an impermissible investment property.`\
 https://nytimes.com/2025/10/11/us/politics/letitia-james-indictment-house.html
