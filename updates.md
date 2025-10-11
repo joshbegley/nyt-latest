@@ -1,3 +1,7 @@
+**Among Portland Protests, It’s Frogs and Sharks and Bears, Oh My!**\
+`Images of anarchists clad in black gave the city a bad name in 2020. Now, demonstrators in Portland are poking fun at President Trump’s apocalyptic talk with colorful animal suits.`\
+https://nytimes.com/2025/10/11/us/politics/portland-protests.html
+
 **Fears of a Coup Rise in Madagascar as Army Unit Joins Protesters**\
 `The unit appealed to security forces in this southern African nation to disobey their superiors and to refuse to shoot at demonstrators, who have rallied in the streets for more than two weeks.`\
 https://nytimes.com/2025/10/11/world/africa/madagascar-protest-coup-fears.html

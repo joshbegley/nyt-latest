@@ -1,3 +1,15 @@
+**Luka Dončić to play in two of Lakers’ final four preseason games**\
+`Dončić was a full participant in Saturday's practice, and Lakers coach JJ Redick said the star guard was “TBD” for Sunday.`\
+https://nytimes.com/athletic/6709355/2025/10/11/luka-doncic-lakers-preseason-debut/
+
+**Gerrard turns down chance to return to Rangers**\
+`The former Liverpool captain had been in talks with the club's hierarchy on Thursday, after Russell Martin's dismissal.`\
+https://nytimes.com/athletic/6702785/2025/10/11/steven-gerrard-rangers-manager/
+
+**Residents Return to a Devastated Gaza City**\
+`With the cease-fire holding overnight, many Palestinians traveled to Gaza City to learn what remained of their lives and homes.`\
+https://nytimes.com/video/world/middleeast/100000010453765/gaza-city-returns-ceasefire-israel-hamas.html
+
 **Fears of a Coup Rise in Madagascar as Army Unit Joins Protesters**\
 `The unit appealed to security forces in this southern African nation to disobey their superiors and to refuse to shoot at demonstrators, who have rallied in the streets for more than two weeks.`\
 https://nytimes.com/2025/10/11/world/africa/madagascar-protest-coup-fears.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/11/us/politics/portland-protests.html
 **UCLA coach to team: 'Are you a one-hit wonder?' Resounding road win answers the Q**\
 `UCLA played with freedom and flexibility, not at all looking like a team once left for dead at 0-4.`\
 https://nytimes.com/athletic/6709246/2025/10/11/ucla-is-no-one-hit-wonder-bruins-bury-michigan-state-on-the-road/
-
-**Trump Says He Will Pay Troops Despite Government Shutdown**\
-`The president said he had identified funds even though Congress has not appropriated new money for the military.`\
-https://nytimes.com/2025/10/11/us/politics/trump-troops-pay-shutdown.html
-
-**Katie Porter Videos Give California Rivals a New Opening**\
-`Viral videos showing caustic behavior have blunted her momentum in the California governor’s race. Other campaigns are scrambling to take advantage.`\
-https://nytimes.com/2025/10/11/us/katie-porter-videos-california-governor.html
-
-**No. 8 Alabama holds off No. 14 Missouri, hands Tigers first loss: Key takeaways**\
-`No. 8 Alabama survived at No. 14 Missouri 27-24 on Saturday behind three touchdowns from quarterback Ty Simpson.`\
-https://nytimes.com/athletic/6709148/2025/10/11/alabama-missouri-score-result-football/
 
