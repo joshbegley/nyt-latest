@@ -1,3 +1,19 @@
+**Dozens Killed in Strikes at Shelter in Besieged Sudanese City**\
+`Missiles struck as many people were asleep in classrooms converted into temporary shelters, a doctor said. Paramilitary forces have tightened their siege on El Fasher for over a year.`\
+https://nytimes.com/2025/10/11/world/africa/sudan-shelter-strike-rsf.html
+
+**Among Portland Protests, It’s Frogs and Sharks and Bears, Oh My.**\
+`Images of anarchists clad in black gave the city a bad name in 2020. Now, demonstrators in Portland are poking fun at President Trump’s apocalyptic talk with colorful animal suits.`\
+https://nytimes.com/2025/10/11/us/politics/portland-protests.html
+
+**UCLA coach to team: 'Are you a one-hit wonder?' Resounding road win answers the Q**\
+`UCLA played with freedom and flexibility, not at all looking like a team once left for dead at 0-4.`\
+https://nytimes.com/athletic/6709246/2025/10/11/ucla-is-no-one-hit-wonder-bruins-bury-michigan-state-on-the-road/
+
+**Trump Says He Will Pay Troops Despite Government Shutdown**\
+`The president said he had identified funds even though Congress has not appropriated new money for the military.`\
+https://nytimes.com/2025/10/11/us/politics/trump-troops-pay-shutdown.html
+
 **Katie Porter Videos Give California Rivals a New Opening**\
 `Viral videos showing caustic behavior have blunted her momentum in the California governor’s race. Other campaigns are scrambling to take advantage.`\
 https://nytimes.com/2025/10/11/us/katie-porter-videos-california-governor.html

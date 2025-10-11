@@ -1,3 +1,7 @@
+**Florida State vs. Pitt: Seminoles drops third straight game 34-31**\
+`FSU endured its sixth losing streak of at least three games under Mike Norvell.`\
+https://nytimes.com/athletic/6709218/2025/10/11/pitt-florida-state-acc-score-results/
+
 **Dozens Killed in Strikes at Shelter in Besieged Sudanese City**\
 `Missiles struck as many people were asleep in classrooms converted into temporary shelters, a doctor said. Paramilitary forces have tightened their siege on El Fasher for over a year.`\
 https://nytimes.com/2025/10/11/world/africa/sudan-shelter-strike-rsf.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6709224/2025/10/11/stars-vs-avalanche-stream-how-to
 **How to watch Canucks vs. Oilers: Time, TV, streaming**\
 `Find out how to watch the Vancouver Canucks play the Edmonton Oilers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6709222/2025/10/11/canucks-vs-oilers-stream-how-to-watch-oct-11/
-
-**How to watch Ducks vs. Sharks: Time, TV, streaming**\
-`Find out how to watch the Anaheim Ducks play the San Jose Sharks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6709220/2025/10/11/ducks-vs-sharks-stream-how-to-watch-oct-11/
 

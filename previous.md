@@ -1,3 +1,19 @@
+**Dozens Killed in Strikes at Shelter in Besieged Sudanese City**\
+`Missiles struck as many people were asleep in classrooms converted into temporary shelters, a doctor said. Paramilitary forces have tightened their siege on El Fasher for over a year.`\
+https://nytimes.com/2025/10/11/world/africa/sudan-shelter-strike-rsf.html
+
+**Among Portland Protests, It’s Frogs and Sharks and Bears, Oh My.**\
+`Images of anarchists clad in black gave the city a bad name in 2020. Now, demonstrators in Portland are poking fun at President Trump’s apocalyptic talk with colorful animal suits.`\
+https://nytimes.com/2025/10/11/us/politics/portland-protests.html
+
+**UCLA coach to team: 'Are you a one-hit wonder?' Resounding road win answers the Q**\
+`UCLA played with freedom and flexibility, not at all looking like a team once left for dead at 0-4.`\
+https://nytimes.com/athletic/6709246/2025/10/11/ucla-is-no-one-hit-wonder-bruins-bury-michigan-state-on-the-road/
+
+**Trump Says He Will Pay Troops Despite Government Shutdown**\
+`The president said he had identified funds even though Congress has not appropriated new money for the military.`\
+https://nytimes.com/2025/10/11/us/politics/trump-troops-pay-shutdown.html
+
 **Katie Porter Videos Give California Rivals a New Opening**\
 `Viral videos showing caustic behavior have blunted her momentum in the California governor’s race. Other campaigns are scrambling to take advantage.`\
 https://nytimes.com/2025/10/11/us/katie-porter-videos-california-governor.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6709222/2025/10/11/canucks-vs-oilers-stream-how-to-
 **How to watch Ducks vs. Sharks: Time, TV, streaming**\
 `Find out how to watch the Anaheim Ducks play the San Jose Sharks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6709220/2025/10/11/ducks-vs-sharks-stream-how-to-watch-oct-11/
-
-**Tigers radio announcer apologizes for swearing on broadcast after ALDS Game 5 elimination**\
-`Longtime Tigers radio voice Dan Dickerson apologized for cursing on a hot mic after Detroit's season-ending loss to the Seattle Mariners.`\
-https://nytimes.com/athletic/6708990/2025/10/11/detroit-tigers-radio-announcer-hot-mic-swear/
-
-**Wild to honor Jacques Lemaire before home opener: 'A long time I wanted to come back'**\
-`Lemaire's team shocked the hockey world in 2003 by rallying from a pair of 3-1 series deficits to reach the Western Conference final.`\
-https://nytimes.com/athletic/6709073/2025/10/11/wild-jacques-lemaire-home-opener/
-
-**Mariners name Bryce Miller as ALCS Game 1 starter against Blue Jays**\
-`Miller will pitch on three days' rest for the first time in his career. Kevin Gausman will start Game 1 for Toronto.`\
-https://nytimes.com/athletic/6709112/2025/10/11/mariners-bryce-miller-game-1-starter-alcs-blue-jays/
-
-**C.D.C. Layoffs Included 2 Top Measles Experts Amid Rising Cases**\
-`Scientists who focused on other infectious diseases, like an Ebola outbreak in the Democratic Republic of Congo, also were let go.`\
-https://nytimes.com/2025/10/11/health/cdc-layoffs-measles.html
 
