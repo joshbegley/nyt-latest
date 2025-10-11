@@ -1,3 +1,7 @@
+**Chiefs will revisit some Week 1 ghosts when facing Lions on Sunday. Here's why**\
+`The Chiefs' defense had a weakness exposed in the opener against the Chargers. It happens to be what the Lions do best.`\
+https://nytimes.com/athletic/6707127/2025/10/11/chiefs-lions-defense-play-action/
+
 **Following Through**\
 `We love it when people cancel plans, but the cost may be steeper than we realize.`\
 https://nytimes.com/2025/10/11/briefing/following-through.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6706350/2025/10/11/college-football-week-7-preview-
 **For the Tigers, a playoff epic comes with hints of season-ending regret**\
 `In the end, this 15-inning classic was all too analogous of the year the Tigers endured. `\
 https://nytimes.com/athletic/6708421/2025/10/11/detroit-tigers-playoffs-alds-extra-innings-loss/
-
-**Sister Jean and 3 life lessons we can learn from those who knew her best**\
-`Sister Jean was known as kind but blunt, praying for players' success while at the same time reminding them they needed to make free throws.`\
-https://nytimes.com/athletic/6707558/2025/10/11/sister-jean-dead-life-lessons/
 
