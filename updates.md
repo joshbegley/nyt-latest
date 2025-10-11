@@ -1,3 +1,7 @@
+**No. 8 Alabama holds off No. 14 Missouri, hands Tigers first loss: Key takeaways**\
+`No. 8 Alabama survived at No. 14 Missouri 27-24 on Saturday behind three touchdowns from quarterback Ty Simpson.`\
+https://nytimes.com/athletic/6709148/2025/10/11/alabama-missouri-score-result-football/
+
 **How to watch Golden Knights vs. Kraken: Time, TV, streaming**\
 `Find out how to watch the Vegas Golden Knights play the Seattle Kraken, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6709226/2025/10/11/golden-knights-vs-kraken-stream-how-to-watch-oct-11/
