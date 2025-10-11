@@ -1,3 +1,7 @@
+**Why Won’t Pokémon Evolve?**\
+`Pokémon is a game series all about evolution. So why has it taken the franchise so long to evolve? Zachary Small, a culture reporter for The New York Times, breaks down how the company’s structure may stymie innovation.`\
+https://nytimes.com/video/arts/100000010450870/why-wont-pokemon-evolve.html
+
 **WATCH: How the Seahawks have shocked the NFL this season**\
 `Through five weeks, the Seahawks have the highest explosive pass rate in football.`\
 https://nytimes.com/athletic/6707483/2025/10/11/seahawks-sam-darnold-offense-analysis-breakdown/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6708746/2025/10/11/tennis-cousins-arthur-rinderknec
 **Boot Big Football From the N.C.A.A.**\
 `The Power Four schools should go their own way and give other sports a chance to shine.`\
 https://nytimes.com/2025/10/11/opinion/college-football-ncaa-conference.html
-
-**Israelis to Rally for Hostages in Gaza, Hoping It Will Be the Last Time**\
-`“The entire nation holds its breath,” said the organizers of a weekly protest in Tel Aviv, as the cease-fire paved the way for the release of the remaining hostages.`\
-https://nytimes.com/2025/10/11/world/middleeast/israel-hostages-square-rally.html
 
