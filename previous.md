@@ -1,3 +1,23 @@
+**In the Eye of a Political Storm, a Tiny Yellow House in Norfolk, Va.**\
+`Attorney General Letitia James of New York purchased the $137,000 home for a grandniece who needed tranquillity. Prosecutors say it is an impermissible investment property.`\
+https://nytimes.com/2025/10/11/us/politics/letitia-james-indictment-house.html
+
+**How the Host of a Diwali Ball Spends Her Day Getting Ready to Party**\
+`Anjula Acharia, who hosts the “All That Glitters” ball, has chai with her fiancé before a day full of hairstyling, makeup and diamonds.`\
+https://nytimes.com/2025/10/11/nyregion/anjula-acharia-diwali-ball.html
+
+**These Students Are Scared. Friends and Teachers Are Their Protectors.**\
+`Sometimes, they offer a place to stay to immigrant children. Other times, they provide help navigating the legal system. They have become part of the resistance.`\
+https://nytimes.com/2025/10/11/nyregion/schools-immigrant-children-deportation.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/10/11/crosswords/spelling-bee-forum.html
+
+**Get your popcorn ready: WNBA's most riveting offseason begins now**\
+`The CBA deadline is nearing. Free agency will be wild. Expansion is coming. This offseason could reshape the WNBA landscape.`\
+https://nytimes.com/athletic/6708226/2025/10/11/wnba-finals-offseason-cba-free-agency/
+
 **North Korea Flaunts New Missiles ​in Parade With Chinese and Russian Officials**\
 `The parade, held in North Korea’s capital to celebrate the 80th anniversary of the ruling Workers’ Party, ​gave its leader a chance to show off his growing power.`\
 https://nytimes.com/2025/10/11/world/asia/north-korea-military-parade-china-russia.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6708228/2025/10/11/cubs-vs-brewers-stream-how-to-wa
 **Tigers-Mariners Game 5 takeaways: Seattle advances to ALCS in 15-inning thriller**\
 `The Mariners will play the Toronto Blue Jays in Game 1 of the American League Championship Series on Sunday.`\
 https://nytimes.com/athletic/6707222/2025/10/11/tigers-mariners-game-5-score-results-takeaways-playoffs-mlb/
-
-**The New York Times in Print for Saturday, Oct. 11, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/10/11/todays-new-york-times
-
-**Trump Administration Lays Off Dozens of C.D.C. Officials**\
-`“Disease detectives,” high-ranking scientists, the entire Washington office and the staff of a weekly public health journal were among those who learned late Friday that they would lose their jobs.`\
-https://nytimes.com/2025/10/11/us/politics/trump-administration-cdc-layoffs.html
-
-**Group of 5 football thriving in CFP expansion era. Just look at North Texas' sellout crowd vs. USF**\
-`It’s good for college football that the top of the Group of 5 has a path into the College Football Playoff field.`\
-https://nytimes.com/athletic/6708170/2025/10/11/north-texas-usf-group-of-five-playoff/
-
-**How an incendiary tweet put Man Utd's ownership back on the agenda**\
-`Explaining how one post by a Saudi Arabian official sparked a fresh wave of speculation over the club's future`\
-https://nytimes.com/athletic/6706487/2025/10/11/man-utd-ownership-latest-glazers-ratcliffe/
-
-**Meet the worst football team in the world... and their superstar hairdresser**\
-`Ibis Sport Club once went almost four years without winning a game - the Brazilians' attitude to their status has brought them global fame`\
-https://nytimes.com/athletic/6679595/2025/10/11/worst-football-team-world-brazil/
 
