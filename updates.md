@@ -1,3 +1,7 @@
+**Ubben: Alabama is no longer invincible, but it doesn't have to be**\
+`Forget the impossible standards set by the Nick Saban era. Alabama's tough win at Missouri without its best stuff is worth appreciating.`\
+https://nytimes.com/athletic/6709420/2025/10/11/alabama-missouri-kalen-deboer-football/
+
 **Jesse L. Douglas, Aide to King in Marches From Selma, Is Dead at 90**\
 `A lieutenant to Martin Luther King Jr. and a fellow preacher, he played a vital role in organizing voting-rights protests in 1965 that began with “Bloody Sunday.”`\
 https://nytimes.com/2025/10/11/us/jesse-l-douglas-dead.html

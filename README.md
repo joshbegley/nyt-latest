@@ -14,7 +14,7 @@ https://nytimes.com/2025/10/11/us/mayor-bass-austin-beutner.html
 `These Huskers perhaps aren’t a 10-win team. But maybe that’s changing after securing a third victory in the closing minutes.`\
 https://nytimes.com/athletic/6709419/2025/10/11/nebraska-maryland-score-result-football/
 
-**Texas-Oklahoma takeaways: Longhorns topple No. 6 Sooners to reignite CFP hopes**\
+**Texas-Oklahoma takeaways: Longhorns beat No. 6 Sooners, reignite CFP hopes**\
 `Arch Manning and Texas finally figured some things out on Saturday afternoon and picked up their first Power 4 win of the season.`\
 https://nytimes.com/athletic/6709386/2025/10/11/texas-oklahoma-college-football-score-analysis-takeaways/
 
