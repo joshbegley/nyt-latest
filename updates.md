@@ -1,3 +1,7 @@
+**How Las Vegas Aces coach Becky Hammon became architect of a WNBA dynasty**\
+`Once overlooked, Hammon has brought Las Vegas three titles in four seasons and set a new standard for WNBA coaches.`\
+https://nytimes.com/athletic/6708230/2025/10/11/las-vegas-aces-coach-becky-hammon-wnba-championship/
+
 **How to watch Cubs at Brewers: Game 5 Time, TV, streaming**\
 `Find out how to watch the Chicago Cubs play the Milwaukee Brewers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6708228/2025/10/11/cubs-vs-brewers-stream-how-to-watch-oct-11/
