@@ -1,3 +1,7 @@
+**Why Won’t Pokémon Evolve?**\
+`Pokémon is a game series all about evolution. So why has it taken the franchise so long to evolve? Zachary Small, a culture reporter for The New York Times, breaks down how the company’s structure may stymie innovation.`\
+https://nytimes.com/video/arts/100000010450870/why-wont-pokemon-evolve.html
+
 **WATCH: How the Seahawks have shocked the NFL this season**\
 `Through five weeks, the Seahawks have the highest explosive pass rate in football.`\
 https://nytimes.com/athletic/6707483/2025/10/11/seahawks-sam-darnold-offense-analysis-breakdown/
