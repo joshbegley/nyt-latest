@@ -1,3 +1,7 @@
+**Tigers-Mariners Game 5 takeaways: Seattle advances to ALCS in 15-inning thriller**\
+`The Mariners will play the Toronto Blue Jays in Game 1 of the American League Championship Series on Sunday.`\
+https://nytimes.com/athletic/6707222/2025/10/11/tigers-mariners-game-5-score-results-takeaways-playoffs-mlb/
+
 **The New York Times in Print for Saturday, Oct. 11, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/11/todays-new-york-times
