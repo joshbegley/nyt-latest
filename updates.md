@@ -1,3 +1,7 @@
+**For Javier Tebas, taking LaLiga to Miami doesn’t betray tradition. 'It defends it'**\
+`In the wake of criticism over playing LaLiga games in the U.S., the league's president is adamant that globalization helps football grow`\
+https://nytimes.com/athletic/6707715/2025/10/11/javier-tebas-laliga-miami-match/
+
 **How to watch Cubs at Brewers: Game 5 Time, TV, streaming**\
 `Find out how to watch the Chicago Cubs play the Milwaukee Brewers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6708228/2025/10/11/how-to-watch-cubs-vs-brewers-game-5-tv-channel-and-streaming-options-for-october-11/
