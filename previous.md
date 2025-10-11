@@ -1,3 +1,7 @@
+**Katie Porter Videos Give California Rivals a New Opening**\
+`Viral videos showing caustic behavior have blunted her momentum in the California governor’s race. Other campaigns are scrambling to take advantage.`\
+https://nytimes.com/2025/10/11/us/katie-porter-videos-california-governor.html
+
 **No. 8 Alabama holds off No. 14 Missouri, hands Tigers first loss: Key takeaways**\
 `No. 8 Alabama survived at No. 14 Missouri 27-24 on Saturday behind three touchdowns from quarterback Ty Simpson.`\
 https://nytimes.com/athletic/6709148/2025/10/11/alabama-missouri-score-result-football/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6709112/2025/10/11/mariners-bryce-miller-game-1-sta
 **C.D.C. Layoffs Included 2 Top Measles Experts Amid Rising Cases**\
 `Scientists who focused on other infectious diseases, like an Ebola outbreak in the Democratic Republic of Congo, also were let go.`\
 https://nytimes.com/2025/10/11/health/cdc-layoffs-measles.html
-
-**This Is Un-American**\
-`A lot has happened this week.`\
-https://nytimes.com/video/opinion/100000010453263/this-is-un-american.html
 

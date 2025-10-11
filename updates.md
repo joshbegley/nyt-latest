@@ -1,3 +1,7 @@
+**Katie Porter Videos Give California Rivals a New Opening**\
+`Viral videos showing caustic behavior have blunted her momentum in the California governor’s race. Other campaigns are scrambling to take advantage.`\
+https://nytimes.com/2025/10/11/us/katie-porter-videos-california-governor.html
+
 **No. 8 Alabama holds off No. 14 Missouri, hands Tigers first loss: Key takeaways**\
 `No. 8 Alabama survived at No. 14 Missouri 27-24 on Saturday behind three touchdowns from quarterback Ty Simpson.`\
 https://nytimes.com/athletic/6709148/2025/10/11/alabama-missouri-score-result-football/
