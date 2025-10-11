@@ -1,3 +1,7 @@
+**The Trump Split Screen: A Peacemaker Abroad, a Retribution Campaign at Home**\
+`President Trump’s dueling personas were on display this week, providing endless ammunition to his allies and his enemies alike.`\
+https://nytimes.com/2025/10/10/us/politics/trump-peace-retribution.html
+
 **Steph and Seth Curry's antics reflect their joy in being newfound teammates**\
 `Steph wore a sarcastic smile when asked if he had thought about donning Seth's No. 31 in a game this season.`\
 https://nytimes.com/athletic/6707918/2025/10/10/steph-seth-curry-warriors-jersey-swap/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6707696/2025/10/10/miles-sanders-injury-surgery-cow
 **Carolyn Cheeks Kilpatrick, 80, Dies; In Congress, a Lifeline for Detroit**\
 `Over seven terms, she garnered millions in funds in helping to revitalize the city. But the political scandals of her son, an ex-mayor, came to shadow her career.`\
 https://nytimes.com/2025/10/10/us/politics/carolyn-cheeks-kilpatrick-dead.html
-
-**Trump’s Retribution Revival Tour**\
-`When he was running for office, Donald Trump said he’d be too busy as president to go after his enemies. He’s making time for it now.`\
-https://nytimes.com/2025/10/10/us/politics/trump-letitia-james-comey-revenge.html
 
