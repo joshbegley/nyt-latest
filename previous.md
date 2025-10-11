@@ -1,3 +1,7 @@
+**A Memo in a Bunker, Intercepted Communications and Hamas’s Oct. 7 Plans**\
+`A directive, which Israeli officials believe was written by Yahya Sinwar, the powerful leader of Hamas in Gaza, and recordings called for fighters to target soldiers and civilian communities — and to broadcast the violent acts.`\
+https://nytimes.com/2025/10/11/world/middleeast/israel-hamas-plans.html
+
 **Three pressing offseason questions for the Phillies**\
 `Winter came earlier and harsher than anyone with the Phillies expected. Now what? `\
 https://nytimes.com/athletic/6707023/2025/10/11/phillies-offseason-2026-roster-schwarber-realmuto-rob-thomson/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/11/opinion/trump-national-guard-divided-america.html
 **‘We Should Be Cleareyed About What’s Happening Here’**\
 `Troop deployment.`\
 https://nytimes.com/video/opinion/100000010449495/we-should-be-cleareyed-about-whats-happening-here.html
-
-**Jon Favreau on Where the Democrats Went Right**\
-`Jon Favreau considers how the government shutdown could help Democrats rebuild their fractured party.`\
-https://nytimes.com/2025/10/11/opinion/ezra-klein-podcast-jon-favreau.html
 
