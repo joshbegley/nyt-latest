@@ -1,3 +1,15 @@
+**Group of 5 football thriving in CFP expansion era. Just look at North Texas' sellout crowd vs. USF**\
+`It’s good for college football that the top of the Group of 5 has a path into the College Football Playoff field.`\
+https://nytimes.com/athletic/6708170/2025/10/11/north-texas-usf-group-of-five-playoff/
+
+**How an incendiary tweet put Man Utd's ownership back on the agenda**\
+`Explaining how one post by a Saudi Arabian official sparked a fresh wave of speculation over the club's future`\
+https://nytimes.com/athletic/6706487/2025/10/11/man-utd-ownership-latest-glazers-ratcliffe/
+
+**Sir Bobby Charlton picked his World XI in 1960. We found it - and here it is**\
+`On what would have been his 88th birthday, we revisit Charlton's selection of the best players in the world from his 1960 Book of Soccer`\
+https://nytimes.com/athletic/6696482/2025/10/11/bobby-charlton-trautmann-santos-kopa-julinho/
+
 **Meet the worst football team in the world... and their superstar hairdresser**\
 `Ibis Sport Club once went almost four years without winning a game - the Brazilians' attitude to their status has brought them global fame`\
 https://nytimes.com/athletic/6679595/2025/10/11/meet-the-worst-football-team-in-the-world-and-their-superstar-hairdresser/

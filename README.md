@@ -1,3 +1,7 @@
+**Trump Administration Lays Off Dozens of C.D.C. Officials**\
+`“Disease detectives,” high-ranking scientists, the entire Washington office and the staff of a weekly public health journal were among those who learned late Friday that they would lose their jobs.`\
+https://nytimes.com/2025/10/11/us/politics/trump-administration-cdc-layoffs.html
+
 **Group of 5 football thriving in CFP expansion era. Just look at North Texas' sellout crowd vs. USF**\
 `It’s good for college football that the top of the Group of 5 has a path into the College Football Playoff field.`\
 https://nytimes.com/athletic/6708170/2025/10/11/north-texas-usf-group-of-five-playoff/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6706152/2025/10/11/club-world-cup-injuries-chelsea-
 **Connections: Sports Edition Coach: Hints for Oct. 11, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6707573/2025/10/11/connections-sports-edition-hints-for-oct-11-2025/
-
-**‘The Pyrotechnics of Puzzles:’ How NYT Games Are Made**\
-`A conversation with New York Times Games editors.`\
-https://nytimes.com/2025/10/11/podcasts/the-daily/nyt-games-connections-crossword.html
 
