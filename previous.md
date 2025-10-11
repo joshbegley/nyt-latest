@@ -1,3 +1,19 @@
+**The Best Flats **\
+`Text by  Ingela Ratledge Amundson`\
+https://nytimes.com/card/2025/10/11/smarter-living/wirecutter/
+
+**This Hot Salad Is Very Cool**\
+`Justine Doiron’s baked chard salad with cranberries is a brilliant mix of colors, textures and flavors.`\
+https://nytimes.com/2025/10/11/dining/this-hot-salad-is-very-cool.html
+
+**A Voice of the Press, Preserved**\
+`In 1955, a New York Times copy editor refused to say whether he had once belonged to the Communist Party and was subsequently fired.`\
+https://nytimes.com/2025/10/11/insider/a-voice-of-the-press-preserved.html
+
+**How Do We Decide Which Studies to Cover?**\
+`A New York Times health reporter explains what makes a good study, and how she knows which papers merit an article.`\
+https://nytimes.com/2025/10/11/well/how-do-we-decide-which-studies-to-cover.html
+
 **Tennis cousins final is on as Arthur Rinderknech faces Valentin Vacherot at Shanghai Masters**\
 `They are French and Monégasque cousins. They are professional tennis players. Now they meet in the match of their careers.`\
 https://nytimes.com/athletic/6708746/2025/10/11/tennis-cousins-arthur-rinderknech-valentin-vacherot-shanghai-masters/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6708320/2025/10/11/mauricio-pochettino-calm-usmnt-e
 **Baking for a Future You**\
 `Make savory-sweet granola, freezable loaf cakes and chocolate chip cookie dough now; thank yourself later.`\
 https://nytimes.com/2025/10/11/dining/baking-for-a-future-you.html
-
-**Russini: What I’m hearing on Bill Belichick’s future, Eagles fallout and trade deadline rumblings**\
-`Also: The NFL is buzzing over a coach's fine, and Saquon Barkley was right about Daniel Jones.`\
-https://nytimes.com/athletic/6706981/2025/10/11/bill-belichick-nfl-trade-rumors-news-eagles/
-
-**Liverpool’s Konate withdraws from France squad with 'minor' thigh injury**\
-`Liverpool have already lost Alisson for a few weeks due to a hamstring problem and Giovanni Leoni to a season-ending ACL injury.`\
-https://nytimes.com/athletic/6708644/2025/10/11/liverpool-news-konate-injury-france/
-
-**How to watch Blues vs. Flames: Time, TV, streaming**\
-`Find out how to watch the St. Louis Blues play the Calgary Flames, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6708650/2025/10/11/blues-vs-flames-stream-how-to-watch-oct-11/
-
-**Jessica Pegula dethrones Aryna Sabalenka at Wuhan Open after tense finale**\
-`Pegula has played eight three-set matches in a row, winning seven of them, but saved her best for the world No. 1.`\
-https://nytimes.com/athletic/6708596/2025/10/11/jessica-pegula-aryna-sabalenka-wuhan-open/
 
