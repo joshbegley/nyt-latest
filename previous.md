@@ -1,3 +1,19 @@
+**Connections: Sports Edition Coach: Hints for Oct. 11, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6707573/2025/10/11/connections-sports-edition-hints-for-oct-11-2025/
+
+**‘The Pyrotechnics of Puzzles:’ How NYT Games Are Made**\
+`A conversation with New York Times Games editors.`\
+https://nytimes.com/2025/10/11/podcasts/the-daily/nyt-games-connections-crossword.html
+
+**How China Powers Its Electric Cars and High-Speed Trains**\
+`China is building a network of ultrahigh-voltage power lines to carry solar and wind energy hundreds and even thousands of miles as few citizens dare to protest.`\
+https://nytimes.com/2025/10/11/business/china-electric-grid.html
+
+**Corrections: Oct. 11, 2025**\
+`Corrections that appeared in print on Saturday, Oct. 11, 2025.`\
+https://nytimes.com/2025/10/11/pageoneplus/corrections-oct-11-2025.html
+
 **Quote of the Day: Thousands Trek North To Ruins of Gaza City As a Truce Takes Hold**\
 `Quotation of the Day for Saturday, October 11, 2025.`\
 https://nytimes.com/2025/10/10/pageoneplus/quote-of-the-day-thousands-trek-north-to-ruins-of-gaza-city-as-a-truce-takes-hold.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6708143/2025/10/10/nwsl-commissioner-jessica-berman
 **USMNT 1, Ecuador 1: Balogun's deserved goal punctuates promising showing**\
 `The USMNT took on a tough South American opponent, played well and got the goal to show for it in a positive overall performance`\
 https://nytimes.com/athletic/6707982/2025/10/10/usmnt-ecuador-friendly-score-valencia-balogun-video-pochettino/
-
-**Brandon Ingram and Collin Murray-Boyles are shining early in Raptors preseason**\
-`Through three preseason games, a bunch of reserves are impressing. `\
-https://nytimes.com/athletic/6707926/2025/10/10/brandon-ingram-collin-murray-boyles-raptors-preseason/
-
-**Las Vegas Aces claim WNBA championship with sweep of Phoenix Mercury**\
-`A'ja Wilson dominated again as the Aces proved why they're the gold standard of the WNBA with a third title in four seasons.`\
-https://nytimes.com/athletic/6708093/2025/10/10/las-vegas-aces-wnba-championship-sweep-phoenix-mercury/
-
-**Mercury coach Nate Tibbetts ejected in Game 4 loss of WNBA Finals**\
-`Throughout the season, players, coaches and executives around the league have criticized the league’s officiating.`\
-https://nytimes.com/athletic/6708098/2025/10/10/mercury-nate-tibbetts-ejection-wnba-finals/
-
-**Knicks, Raptors agree to dismiss 2023 lawsuit**\
-`The Knicks dismissed the case “with prejudice,” permanently ending the matter.`\
-https://nytimes.com/athletic/6707896/2025/10/10/raptors-knicks-lawsuit-dismissal/
 

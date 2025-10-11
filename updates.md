@@ -1,3 +1,19 @@
+**Connections: Sports Edition Coach: Hints for Oct. 11, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6707573/2025/10/11/connections-sports-edition-hints-for-oct-11-2025/
+
+**‘The Pyrotechnics of Puzzles:’ How NYT Games Are Made**\
+`A conversation with New York Times Games editors.`\
+https://nytimes.com/2025/10/11/podcasts/the-daily/nyt-games-connections-crossword.html
+
+**How China Powers Its Electric Cars and High-Speed Trains**\
+`China is building a network of ultrahigh-voltage power lines to carry solar and wind energy hundreds and even thousands of miles as few citizens dare to protest.`\
+https://nytimes.com/2025/10/11/business/china-electric-grid.html
+
+**Corrections: Oct. 11, 2025**\
+`Corrections that appeared in print on Saturday, Oct. 11, 2025.`\
+https://nytimes.com/2025/10/11/pageoneplus/corrections-oct-11-2025.html
+
 **Quote of the Day: Thousands Trek North To Ruins of Gaza City As a Truce Takes Hold**\
 `Quotation of the Day for Saturday, October 11, 2025.`\
 https://nytimes.com/2025/10/10/pageoneplus/quote-of-the-day-thousands-trek-north-to-ruins-of-gaza-city-as-a-truce-takes-hold.html
