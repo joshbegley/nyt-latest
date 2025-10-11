@@ -1,3 +1,7 @@
+**No. 8 Alabama holds off No. 14 Missouri, hands Tigers first loss: Key takeaways**\
+`No. 8 Alabama survived at No. 14 Missouri 27-24 on Saturday behind three touchdowns from quarterback Ty Simpson.`\
+https://nytimes.com/athletic/6709148/2025/10/11/alabama-missouri-score-result-football/
+
 **How to watch Golden Knights vs. Kraken: Time, TV, streaming**\
 `Find out how to watch the Vegas Golden Knights play the Seattle Kraken, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6709226/2025/10/11/golden-knights-vs-kraken-stream-how-to-watch-oct-11/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/11/health/cdc-layoffs-measles.html
 **This Is Un-American**\
 `A lot has happened this week.`\
 https://nytimes.com/video/opinion/100000010453263/this-is-un-american.html
-
-**U.S. national team looks to ride consistency to FIFA Under-20 World Cup semifinal berth**\
-`On Sunday, the U.S. team will look to down Morocco and become the first to advance to the semifinals since 1989.`\
-https://nytimes.com/athletic/6709047/2025/10/11/u20-world-cup-usmnt-morocco-semi-final/
 
