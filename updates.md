@@ -1,3 +1,7 @@
+**Diane Keaton, a Star of ‘Annie Hall’ and ‘First Wives Club,’ Dies at 79**\
+`She brought an unconventional personality to scores of roles on television and in movies ranging from zany comedies like “Sleeper” to piercing dramas like “The Godfather.”`\
+https://nytimes.com/2025/10/11/movies/diane-keaton-dead.html
+
 **No. 1 Ohio State rolls past No. 17 Illinois as win streak continues: Key takeaways**\
 `Ohio State beat Illinois 34-16 on Saturday despite modest offensive output, as it capitalized on three turnovers. Here's what we learned.`\
 https://nytimes.com/athletic/6709235/2025/10/11/ohio-state-illinois-score-result-football/

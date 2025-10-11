@@ -1,3 +1,7 @@
+**Diane Keaton, a Star of ‘Annie Hall’ and ‘First Wives Club,’ Dies at 79**\
+`She brought an unconventional personality to scores of roles on television and in movies ranging from zany comedies like “Sleeper” to piercing dramas like “The Godfather.”`\
+https://nytimes.com/2025/10/11/movies/diane-keaton-dead.html
+
 **No. 1 Ohio State rolls past No. 17 Illinois as win streak continues: Key takeaways**\
 `Ohio State beat Illinois 34-16 on Saturday despite modest offensive output, as it capitalized on three turnovers. Here's what we learned.`\
 https://nytimes.com/athletic/6709235/2025/10/11/ohio-state-illinois-score-result-football/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6709148/2025/10/11/alabama-missouri-score-result-fo
 **How to watch Golden Knights vs. Kraken: Time, TV, streaming**\
 `Find out how to watch the Vegas Golden Knights play the Seattle Kraken, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6709226/2025/10/11/golden-knights-vs-kraken-stream-how-to-watch-oct-11/
-
-**How to watch Stars vs. Avalanche: Time, TV, streaming**\
-`Find out how to watch the Dallas Stars play the Colorado Avalanche, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6709224/2025/10/11/stars-vs-avalanche-stream-how-to-watch-oct-11/
 
