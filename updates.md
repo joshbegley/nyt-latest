@@ -1,3 +1,15 @@
+**WATCH: How the Seahawks have shocked the NFL this season**\
+`Through five weeks, the Seahawks have the highest explosive pass rate in football.`\
+https://nytimes.com/athletic/6707483/2025/10/11/seahawks-sam-darnold-offense-analysis-breakdown/
+
+**Tadej Pogacar wins fifth-straight Il Lombardia after solo attack**\
+`The 27-year-old Slovenian became the first rider to podium all Monument races in one season.`\
+https://nytimes.com/athletic/6708579/2025/10/11/tadej-pogacar-il-lombardia-record-cycling/
+
+**Tennessee Plant Where Explosion Took Place Employs Many in the Region**\
+`The plant owned by Accurate Energetic Systems has long been an economic bedrock for families in rural Hickman and Humphreys Counties.`\
+https://nytimes.com/2025/10/11/us/tennessee-plant-explosion-hickman-humphreys-counties.html
+
 **Tennessee Plant Where Explosion Took Place Employs Many in the Region**\
 `The plant owned by Accurate Energetic Systems has long been an economic bedrock for families in rural Hickman and Humphreys Counties.`\
 https://nytimes.com/2025/10/11/us/tennessee-plant-where-explosion-took-place-employs-many-in-the-region.html
