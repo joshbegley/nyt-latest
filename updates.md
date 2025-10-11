@@ -1,3 +1,11 @@
+**FIFA president Infantino, Prime Minister Carney attend Canada's friendly, address team**\
+`The head of FIFA and the nation addressed Canada's men's national team, one of the 2026 World Cup co-hosts`\
+https://nytimes.com/athletic/6708139/2025/10/10/canada-australia-prime-minister-mark-carney-fifa-gianni-infantino/
+
+**Mercury coach Nate Tibbetts ejected in Game 4 loss of WNBA Finals**\
+`Throughout the season, players, coaches and executives around the league have criticized the league’s officiating.`\
+https://nytimes.com/athletic/6708098/2025/10/10/mercury-nate-tibbetts-ejection-wnba-finals/
+
 **NWSL executive committee approves 3-year extension for commissioner: Sources**\
 `The committee retained the vote because they were concerned it would not pass in front of the full 16-team board of governors.`\
 https://nytimes.com/athletic/6708143/2025/10/10/nwsl-commissioner-jessica-berman-extension/

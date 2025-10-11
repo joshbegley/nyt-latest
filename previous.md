@@ -1,3 +1,7 @@
+**FIFA president Infantino, Prime Minister Carney attend Canada's friendly, address team**\
+`The head of FIFA and the nation addressed Canada's men's national team, one of the 2026 World Cup co-hosts`\
+https://nytimes.com/athletic/6708139/2025/10/10/canada-australia-prime-minister-mark-carney-fifa-gianni-infantino/
+
 **NWSL executive committee approves 3-year extension for commissioner: Sources**\
 `The committee retained the vote because they were concerned it would not pass in front of the full 16-team board of governors.`\
 https://nytimes.com/athletic/6708143/2025/10/10/nwsl-commissioner-jessica-berman-extension/
@@ -15,7 +19,7 @@ https://nytimes.com/athletic/6707926/2025/10/10/brandon-ingram-collin-murray-boy
 https://nytimes.com/athletic/6708093/2025/10/10/las-vegas-aces-wnba-championship-sweep-phoenix-mercury/
 
 **Mercury coach Nate Tibbetts ejected in Game 4 loss of WNBA Finals**\
-`It is the second consecutive game that the Mercury coach was assessed at least one technical.`\
+`Throughout the season, players, coaches and executives around the league have criticized the league’s officiating.`\
 https://nytimes.com/athletic/6708098/2025/10/10/mercury-nate-tibbetts-ejection-wnba-finals/
 
 **Knicks, Raptors agree to dismiss 2023 lawsuit**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6708052/2025/10/10/jesse-marsch-canada-australia-wo
 **Judge Signals She Is Likely to Order Abrego Garcia’s Release Soon**\
 `The judge expressed frequent frustrations with the Trump administration, saying it had presented a “totally inconsistent” case to keep the Maryland man in immigration detention.`\
 https://nytimes.com/2025/10/10/us/politics/abrego-garcia-hearing.html
-
-**Bucksnort, Tenn., is a tight-knit community where neighbors help one another.**\
-`By Pooja Salhotra`\
-https://nytimes.com/live/2025/10/10/us/explosion-tennessee/bucksnort-tenn-is-a-tight-knit-community-where-neighbors-help-one-another
 
