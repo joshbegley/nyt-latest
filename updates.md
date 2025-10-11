@@ -1,3 +1,11 @@
+**Luigi Mangione’s Lawyers Challenge Death Penalty Charge in Federal Case**\
+`The lawyers asked a federal judge to drop some charges, including the only one eligible for the death penalty.`\
+https://nytimes.com/2025/10/11/nyregion/luigi-mangione-case-death-penalty.html
+
+**Blue Jays, Mariners seek to end pennant droughts in AL Championship Series: Key matchups, prediction**\
+`The Jays haven't been to the World Series since winning it in 1993 and the Mariners have never reached the championship stage.`\
+https://nytimes.com/athletic/6697731/2025/10/11/blue-jays-mariners-al-championship-series-preview/
+
 **‘Over the Clouds’: Families of Palestinian Prisoners Await Their Release**\
 `Israel agreed to free 250 Palestinians serving life sentences, many of whom will be sent into exile. For their families, it brought joy. But for those whose relatives were excluded, it was a crushing blow.`\
 https://nytimes.com/2025/10/11/world/middleeast/palestinian-prisoners-release-families.html
