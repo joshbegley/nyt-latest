@@ -1,3 +1,7 @@
+**Make No Mistake**\
+`Michael Schlossberg crafts a flawless Sunday puzzle.`\
+https://nytimes.com/2025/10/11/crosswords/daily-puzzle-2025-10-12.html
+
 **College Football Playoff 2025 projections: The most likely bracket as Week 7 begins**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/10/11/college-football-playoff-bracket-projections-odds/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6709235/2025/10/11/ohio-state-illinois-score-result
 **Pitt tops Florida State 34-31 for Seminoles' eighth straight ACC loss**\
 `FSU endured its sixth losing streak of at least three games under Mike Norvell.`\
 https://nytimes.com/athletic/6709218/2025/10/11/pitt-florida-state-acc-score-results/
-
-**Dozens Killed in Strikes at Shelter in Besieged Sudanese City**\
-`Missiles struck as many people were asleep in classrooms converted into temporary shelters, a doctor said. Paramilitary forces have tightened their siege on El Fasher for over a year.`\
-https://nytimes.com/2025/10/11/world/africa/sudan-shelter-strike-rsf.html
 
