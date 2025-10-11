@@ -1,3 +1,15 @@
+**Pochettino preached calm amid USMNT negativity. His team just proved him right**\
+`The perception of the head coach and his team's readiness for the World Cup has been helped by two solid performances`\
+https://nytimes.com/athletic/6708320/2025/10/11/mauricio-pochettino-calm-usmnt-ecuador/
+
+**Baking for a Future You**\
+`Make savory-sweet granola, freezable loaf cakes and chocolate chip cookie dough now; thank yourself later.`\
+https://nytimes.com/2025/10/11/dining/baking-for-a-future-you.html
+
+**Russini: What I’m hearing on Bill Belichick’s future, Eagles fallout and trade deadline rumblings**\
+`Also: The NFL is buzzing over a coach's fine, and Saquon Barkley was right about Daniel Jones.`\
+https://nytimes.com/athletic/6706981/2025/10/11/bill-belichick-nfl-trade-rumors-news-eagles/
+
 **Liverpool’s Konate withdraws from France squad with 'minor' thigh injury**\
 `Liverpool have already lost Alisson for a few weeks due to a hamstring problem and Giovanni Leoni to a season-ending ACL injury.`\
 https://nytimes.com/athletic/6708644/2025/10/11/liverpool-news-konate-injury-france/
