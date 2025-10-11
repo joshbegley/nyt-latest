@@ -1,3 +1,7 @@
+**Jesse L. Douglas, Aide to King in Marches From Selma, Is Dead at 90**\
+`A lieutenant to Martin Luther King Jr. and a fellow preacher, he played a vital role in organizing voting-rights protests in 1965 that began with “Bloody Sunday.”`\
+https://nytimes.com/2025/10/11/us/jesse-l-douglas-dead.html
+
 **In L.A., a Former Ally of Mayor Bass Is Expected to Run Against Her**\
 `The former supporter, Austin Beutner, who once led the city’s public schools as superintendent, is expected to challenge Ms. Bass’s re-election bid in next year’s mayoral race.`\
 https://nytimes.com/2025/10/11/us/mayor-bass-austin-beutner.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/11/movies/diane-keaton-movies-streaming.html
 **Northwestern edges Penn State as Nittany Lions stack stunning losses**\
 `A week after being stunned at the Rose Bowl by previously-winless UCLA, Penn State lost 22-21 to visiting Northwestern on Saturday.`\
 https://nytimes.com/athletic/6709502/2025/10/11/northwestern-edges-penn-state/
-
-**Hollywood and Fans Remember Diane Keaton**\
-`Tributes from colleagues and fans flooded social media as they learned of her death. Many celebrated her onscreen legacy and some noted her impact on their lives.`\
-https://nytimes.com/2025/10/11/arts/diane-keaton-death-reactions-tributes.html
 
