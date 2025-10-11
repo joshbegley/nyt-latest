@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, Oct. 11, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/11/todays-new-york-times
+
 **Trump Administration Lays Off Dozens of C.D.C. Officials**\
 `“Disease detectives,” high-ranking scientists, the entire Washington office and the staff of a weekly public health journal were among those who learned late Friday that they would lose their jobs.`\
 https://nytimes.com/2025/10/11/us/politics/trump-administration-cdc-layoffs.html

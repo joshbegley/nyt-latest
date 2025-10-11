@@ -1,3 +1,7 @@
+**The New York Times in Print for Saturday, Oct. 11, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/11/todays-new-york-times
+
 **Trump Administration Lays Off Dozens of C.D.C. Officials**\
 `“Disease detectives,” high-ranking scientists, the entire Washington office and the staff of a weekly public health journal were among those who learned late Friday that they would lose their jobs.`\
 https://nytimes.com/2025/10/11/us/politics/trump-administration-cdc-layoffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6703081/2025/10/11/tottenham-finance-enic-equity-in
 **Has the Club World Cup had an impact on how many injuries teams are now suffering?**\
 `Chelsea and PSG have both lost a number of players at the start of this season having got to the FIFA tournament's final in July`\
 https://nytimes.com/athletic/6706152/2025/10/11/club-world-cup-injuries-chelsea-psg-man-city-analysis/
-
-**Connections: Sports Edition Coach: Hints for Oct. 11, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6707573/2025/10/11/connections-sports-edition-hints-for-oct-11-2025/
 
