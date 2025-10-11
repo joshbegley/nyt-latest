@@ -1,3 +1,7 @@
+**Three pressing offseason questions for the Phillies**\
+`Winter came earlier and harsher than anyone with the Phillies expected. Now what? `\
+https://nytimes.com/athletic/6707023/2025/10/11/phillies-offseason-2026-roster-schwarber-realmuto-rob-thomson/
+
 **Peace in Trump’s Time — Except Here**\
 `Peace abroad and war at home — not very America first!`\
 https://nytimes.com/2025/10/11/opinion/trump-nobel-peace-prize.html
