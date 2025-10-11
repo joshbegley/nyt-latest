@@ -1,3 +1,19 @@
+**How to watch Golden Knights vs. Kraken: Time, TV, streaming**\
+`Find out how to watch the Vegas Golden Knights play the Seattle Kraken, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6709226/2025/10/11/golden-knights-vs-kraken-stream-how-to-watch-oct-11/
+
+**How to watch Stars vs. Avalanche: Time, TV, streaming**\
+`Find out how to watch the Dallas Stars play the Colorado Avalanche, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6709224/2025/10/11/stars-vs-avalanche-stream-how-to-watch-oct-11/
+
+**How to watch Canucks vs. Oilers: Time, TV, streaming**\
+`Find out how to watch the Vancouver Canucks play the Edmonton Oilers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6709222/2025/10/11/canucks-vs-oilers-stream-how-to-watch-oct-11/
+
+**How to watch Ducks vs. Sharks: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the San Jose Sharks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6709220/2025/10/11/ducks-vs-sharks-stream-how-to-watch-oct-11/
+
 **Tigers radio announcer apologizes for swearing on broadcast after ALDS Game 5 elimination**\
 `Longtime Tigers radio voice Dan Dickerson apologized for cursing on a hot mic after Detroit's season-ending loss to the Seattle Mariners.`\
 https://nytimes.com/athletic/6708990/2025/10/11/detroit-tigers-radio-announcer-hot-mic-swear/
@@ -21,20 +37,4 @@ https://nytimes.com/video/opinion/100000010453263/this-is-un-american.html
 **U.S. national team looks to ride consistency to FIFA Under-20 World Cup semifinal berth**\
 `On Sunday, the U.S. team will look to down Morocco and become the first to advance to the semifinals since 1989.`\
 https://nytimes.com/athletic/6709047/2025/10/11/u20-world-cup-usmnt-morocco-semi-final/
-
-**Search After Tennessee Explosion Finds No Survivors, Officials Say**\
-`Local authorities said earlier that 18 people were missing after the blast at the ammunition plant. On Saturday, they said they were looking for remains.`\
-https://nytimes.com/2025/10/11/us/tennessee-munitions-plant-explosion-deaths.html
-
-**Chelsea's Fernandez withdraws from Argentina squad**\
-`The 24-year-old is travelling to London where he will be examined by Chelsea's medical team to determine the severity of the issue.`\
-https://nytimes.com/athletic/6709056/2025/10/11/enzo-fernandez-chelsea-argentina-withdrawal/
-
-**Commanders rule out WRs Terry McLaurin, Noah Brown for Monday vs. Bears**\
-`Deebo Samuel's availability is also in question, but Washington will make a decision on him on Monday.`\
-https://nytimes.com/athletic/6708905/2025/10/11/terry-mclaurin-noah-brown-out-commanders-mnf/
-
-**A Strong Coastal Storm Is Set to Slam the East Coast With Flooding**\
-`Messy weather is headed for New York City and New Jersey, with up to three inches of rain possible. Power failures and road closures are possible with this storm, forecasters said.`\
-https://nytimes.com/2025/10/11/weather/new-york-noreaster-nj-east-coast-forecast.html
 
