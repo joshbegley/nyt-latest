@@ -1,3 +1,7 @@
+**College Football Playoff 2025 projections: The most likely bracket as Week 7 begins**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/10/11/college-football-playoff-bracket-projections-odds/
+
 **No Survivors Were Found at Tennessee Plant Explosion, Officials Say**\
 `Sheriff Chris Davis of Humphreys County said earlier that 18 people were missing after the blast at the ammunition plant. On Saturday, he said investigators were looking for remains.`\
 https://nytimes.com/video/us/100000010453924/tennessee-plant-explosion-presser.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6709218/2025/10/11/pitt-florida-state-acc-score-res
 **Dozens Killed in Strikes at Shelter in Besieged Sudanese City**\
 `Missiles struck as many people were asleep in classrooms converted into temporary shelters, a doctor said. Paramilitary forces have tightened their siege on El Fasher for over a year.`\
 https://nytimes.com/2025/10/11/world/africa/sudan-shelter-strike-rsf.html
-
-**Among Portland Protests, It’s Frogs and Sharks and Bears, Oh My!**\
-`Images of anarchists clad in black gave the city a bad name in 2020. Now, demonstrators in Portland are poking fun at President Trump’s apocalyptic talk with colorful animal suits.`\
-https://nytimes.com/2025/10/11/us/politics/portland-protests.html
 
