@@ -1,3 +1,7 @@
+**How to watch Cubs at Brewers: Game 5 Time, TV, streaming**\
+`Find out how to watch the Chicago Cubs play the Milwaukee Brewers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6708228/2025/10/11/cubs-vs-brewers-stream-how-to-watch-oct-11/
+
 **Tigers-Mariners Game 5 takeaways: Seattle advances to ALCS in 15-inning thriller**\
 `The Mariners will play the Toronto Blue Jays in Game 1 of the American League Championship Series on Sunday.`\
 https://nytimes.com/athletic/6707222/2025/10/11/tigers-mariners-game-5-score-results-takeaways-playoffs-mlb/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6696482/2025/10/11/bobby-charlton-trautmann-santos-
 **Eight expectations about football from 25 years ago that have proven misguided**\
 `From pay-per-view coverage to the loss of technical midfielders to indoor stadiums – some expectations from 2000 haven't come true`\
 https://nytimes.com/athletic/6700105/2025/10/11/football-expectations-25-years-on/
-
-**Tottenham's £100m equity injection: What does it mean? Why now? More to come?**\
-`On Thursday morning, Tottenham Hotspur announced a £100m equity injection — but this is not just a transfer warchest`\
-https://nytimes.com/athletic/6703081/2025/10/11/tottenham-finance-enic-equity-injection/
 

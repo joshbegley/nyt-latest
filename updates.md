@@ -1,3 +1,7 @@
+**Meet the worst football team in the world... and their superstar hairdresser**\
+`Ibis Sport Club once went almost four years without winning a game - the Brazilians' attitude to their status has brought them global fame`\
+https://nytimes.com/athletic/6679595/2025/10/11/worst-football-team-world-brazil/
+
 **Tigers-Mariners Game 5 takeaways: Seattle advances to ALCS in 15-inning thriller**\
 `The Mariners will play the Toronto Blue Jays in Game 1 of the American League Championship Series on Sunday.`\
 https://nytimes.com/athletic/6707222/2025/10/11/tigers-mariners-game-5-score-results-takeaways-playoffs-mlb/
