@@ -1,3 +1,7 @@
+**Thousands Return to Northern Gaza, Hopeful, but Faced With Devastation**\
+`With the cease-fire holding overnight, many Palestinians continued to travel toward Gaza City on Saturday to learn what remains of their lives and homes there.`\
+https://nytimes.com/2025/10/11/world/middleeast/return-gaza-city-ceasefire.html
+
 **Most Americans Who Rely on Obamacare Live in Republican Areas**\
 `Millions of Americans depend on Obamacare. Here's where they live.`\
 https://nytimes.com/interactive/2025/10/11/us/politics/obamacare-aca-enrollment-state-map.html
