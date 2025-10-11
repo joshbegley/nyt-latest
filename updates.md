@@ -1,3 +1,7 @@
+**Make No Mistake**\
+`Michael Schlossberg crafts a flawless Sunday puzzle.`\
+https://nytimes.com/2025/10/11/crosswords/daily-puzzle-2025-10-12.html
+
 **College Football Playoff 2025 projections: The most likely bracket as Week 7 begins**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/10/11/college-football-playoff-bracket-projections-odds/
