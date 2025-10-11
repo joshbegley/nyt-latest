@@ -1,3 +1,11 @@
+**Hollywood and Fans Remember Diane Keaton**\
+`Tributes from colleagues and fans flooded social media as they learned of her death. Many celebrated her onscreen legacy and some noted her impact on their lives.`\
+https://nytimes.com/2025/10/11/arts/diane-keaton-death-reactions-tributes.html
+
+**Appeals Court Allows Federalized National Guard, But Leaves Block on Chicago Deployment in Place**\
+`An appeals court said National Guard troops could remain under the Trump administration’s control, but left in place an earlier temporary ruling barring troops from deploying into the Chicago area as a legal fight proceeds.`\
+https://nytimes.com/2025/10/11/us/national-guard-chicago.html
+
 **Make No Mistake**\
 `Michael Schlossberg crafts a flawless Sunday puzzle.`\
 https://nytimes.com/2025/10/11/crosswords/daily-puzzle-2025-10-12.html

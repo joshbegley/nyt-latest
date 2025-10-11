@@ -1,3 +1,11 @@
+**Hollywood and Fans Remember Diane Keaton**\
+`Tributes from colleagues and fans flooded social media as they learned of her death. Many celebrated her onscreen legacy and some noted her impact on their lives.`\
+https://nytimes.com/2025/10/11/arts/diane-keaton-death-reactions-tributes.html
+
+**Appeals Court Allows Federalized National Guard, But Leaves Block on Chicago Deployment in Place**\
+`An appeals court said National Guard troops could remain under the Trump administration’s control, but left in place an earlier temporary ruling barring troops from deploying into the Chicago area as a legal fight proceeds.`\
+https://nytimes.com/2025/10/11/us/national-guard-chicago.html
+
 **Make No Mistake**\
 `Michael Schlossberg crafts a flawless Sunday puzzle.`\
 https://nytimes.com/2025/10/11/crosswords/daily-puzzle-2025-10-12.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/11/world/africa/madagascar-protest-coup-fears.html
 **Diane Keaton, a Star of ‘Annie Hall’ and ‘First Wives Club,’ Dies at 79**\
 `She brought an unconventional personality to scores of roles on television and in movies ranging from zany comedies like “Sleeper” to piercing dramas like “The Godfather.”`\
 https://nytimes.com/2025/10/11/movies/diane-keaton-dead.html
-
-**No. 1 Ohio State rolls past No. 17 Illinois as win streak continues: Key takeaways**\
-`Ohio State beat Illinois 34-16 on Saturday despite modest offensive output, as it capitalized on three turnovers. Here's what we learned.`\
-https://nytimes.com/athletic/6709235/2025/10/11/ohio-state-illinois-score-result-football/
-
-**Pitt tops Florida State 34-31 for Seminoles' eighth straight ACC loss**\
-`FSU endured its sixth losing streak of at least three games under Mike Norvell.`\
-https://nytimes.com/athletic/6709218/2025/10/11/pitt-florida-state-acc-score-results/
 
