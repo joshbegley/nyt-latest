@@ -1,3 +1,7 @@
+**Shorthand for a Stance**\
+`Sam Ezersky presents a brawny, themeless puzzle for the brainy (us).`\
+https://nytimes.com/2025/10/10/crosswords/daily-puzzle-2025-10-11.html
+
 **Marsch's Canada has much to ponder after frustrating Australia defeat**\
 `Marsch's team did not have an answer for Nestory Irankunda's late strike`\
 https://nytimes.com/athletic/6708052/2025/10/10/jesse-marsch-canada-australia-world-cup/

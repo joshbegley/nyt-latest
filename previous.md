@@ -1,3 +1,7 @@
+**Shorthand for a Stance**\
+`Sam Ezersky presents a brawny, themeless puzzle for the brainy (us).`\
+https://nytimes.com/2025/10/10/crosswords/daily-puzzle-2025-10-11.html
+
 **Marsch's Canada has much to ponder after frustrating Australia defeat**\
 `Marsch's team did not have an answer for Nestory Irankunda's late strike`\
 https://nytimes.com/athletic/6708052/2025/10/10/jesse-marsch-canada-australia-world-cup/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6707744/2025/10/10/cubs-mlb-postseason-nlds-pitchin
 **Here are some other factory explosions in American history.**\
 `By Rylee Kirk`\
 https://nytimes.com/live/2025/10/10/us/explosion-tennessee/here-are-some-other-factory-explosions-in-american-history
-
-**USMNT vs. Ecuador team news: Pulisic not starting; LB Robinson out**\
-`Mauricio Pochettino was playing with less than a full deck Friday night, with key injuries altering his starting XI vs. La Tri`\
-https://nytimes.com/athletic/6707094/2025/10/10/christian-pulisic-usmnt-ecuador-injury-lineup-news-pochettino/
 

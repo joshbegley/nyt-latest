@@ -1,11 +1,3 @@
-**Shorthand for a Stance**\
-`Sam Ezersky presents a brawny, themeless puzzle for the brainy (us).`\
-https://nytimes.com/2025/10/10/crosswords/daily-puzzle-2025-10-11.html
-
-**Marsch's Canada has much to ponder after frustrating Australia defeat**\
-`Marsch's team did not have an answer for Nestory Irankunda's late strike`\
-https://nytimes.com/athletic/6708052/2025/10/10/jesse-marsch-canada-australia-world-cup/
-
 **Judge Signals She Is Likely to Order Abrego Garcia’s Release Soon**\
 `The judge expressed frequent frustrations with the Trump administration, saying it had presented a “totally inconsistent” case to keep the Maryland man in immigration detention.`\
 https://nytimes.com/2025/10/10/us/politics/abrego-garcia-hearing.html
@@ -37,4 +29,12 @@ https://nytimes.com/athletic/6707744/2025/10/10/cubs-mlb-postseason-nlds-pitchin
 **Here are some other factory explosions in American history.**\
 `By Rylee Kirk`\
 https://nytimes.com/live/2025/10/10/us/explosion-tennessee/here-are-some-other-factory-explosions-in-american-history
+
+**USMNT vs. Ecuador team news: Pulisic not starting; LB Robinson out**\
+`Mauricio Pochettino was playing with less than a full deck Friday night, with key injuries altering his starting XI vs. La Tri`\
+https://nytimes.com/athletic/6707094/2025/10/10/christian-pulisic-usmnt-ecuador-injury-lineup-news-pochettino/
+
+**Clark Olofsson, 78, Dies; Bank Robber Helped Inspire ‘Stockholm Syndrome’**\
+`In a 1973 heist, he and another man held hostages who surprisingly came to defend them, drawing attention to a puzzling psychological phenomenon.`\
+https://nytimes.com/2025/10/10/world/europe/clark-olofsson-dead.html
 
