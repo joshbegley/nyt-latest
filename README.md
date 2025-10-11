@@ -1,3 +1,7 @@
+**Ubben: Alabama is no longer invincible, but it doesn't have to be**\
+`Forget the impossible standards set by the Nick Saban era. Alabama's tough win at Missouri without its best stuff is worth appreciating.`\
+https://nytimes.com/athletic/6709420/2025/10/11/alabama-missouri-kalen-deboer-football/
+
 **Jesse L. Douglas, Aide to King in Marches From Selma, Is Dead at 90**\
 `A lieutenant to Martin Luther King Jr. and a fellow preacher, he played a vital role in organizing voting-rights protests in 1965 that began with “Bloody Sunday.”`\
 https://nytimes.com/2025/10/11/us/jesse-l-douglas-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6709469/2025/10/11/notre-dame-nc-state-cj-carr-marc
 **Five Great Diane Keaton Performances to Stream**\
 `The actress, who died on Saturday at 79, was known for both her dramatic heft and her comedic gifts. Here are some of the highlights.`\
 https://nytimes.com/2025/10/11/movies/diane-keaton-movies-streaming.html
-
-**Penn State QB Drew Allar out for season as Nittany Lions stack second shocking loss**\
-`A week after being stunned at the Rose Bowl by previously-winless UCLA, Penn State lost 22-21 to visiting Northwestern on Saturday.`\
-https://nytimes.com/athletic/6709502/2025/10/11/northwestern-edges-penn-state/
 
