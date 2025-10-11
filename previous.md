@@ -1,3 +1,11 @@
+**‘It just continues’: A new generation of Mariners heroes craft a baseball classic in Seattle**\
+`Still seeking the first pennant in team history, the Mariners are headed to the ALCS for the first time since 2001.`\
+https://nytimes.com/athletic/6708441/2025/10/11/seattle-mariners-new-generation-alcs/
+
+**How to watch Kings vs. Jets: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Kings play the Winnipeg Jets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6708491/2025/10/11/kings-vs-jets-stream-how-to-watch-oct-11/
+
 **Chiefs will revisit some Week 1 ghosts when facing Lions on Sunday. Here's why**\
 `The Chiefs' defense had a weakness exposed in the opener against the Chargers. It happens to be what the Lions do best.`\
 https://nytimes.com/athletic/6707127/2025/10/11/chiefs-lions-defense-play-action/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6703570/2025/10/11/luke-mccaffrey-commanders-christ
 **How Bobby McMann plans to make a big (and speedy) leap this season**\
 `McMann aims to stay more under control and avoid "going overspeed all the time" as he moves on from last season's playoff disappointment. `\
 https://nytimes.com/athletic/6707552/2025/10/11/maple-leafs-bobby-mcmann-4/
-
-**Take our college football quiz: What you need to know about Week 7**\
-`Catch up on all you need to know and test your trivia knowledge ahead of college football's Week 7.`\
-https://nytimes.com/athletic/6706350/2025/10/11/college-football-week-7-preview-quiz-links/
-
-**For the Tigers, a playoff epic comes with hints of season-ending regret**\
-`In the end, this 15-inning classic was all too analogous of the year the Tigers endured. `\
-https://nytimes.com/athletic/6708421/2025/10/11/detroit-tigers-playoffs-alds-extra-innings-loss/
 

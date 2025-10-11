@@ -1,3 +1,11 @@
+**‘It just continues’: A new generation of Mariners heroes craft a baseball classic in Seattle**\
+`Still seeking the first pennant in team history, the Mariners are headed to the ALCS for the first time since 2001.`\
+https://nytimes.com/athletic/6708441/2025/10/11/seattle-mariners-new-generation-alcs/
+
+**How to watch Kings vs. Jets: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Kings play the Winnipeg Jets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6708491/2025/10/11/kings-vs-jets-stream-how-to-watch-oct-11/
+
 **Chiefs will revisit some Week 1 ghosts when facing Lions on Sunday. Here's why**\
 `The Chiefs' defense had a weakness exposed in the opener against the Chargers. It happens to be what the Lions do best.`\
 https://nytimes.com/athletic/6707127/2025/10/11/chiefs-lions-defense-play-action/
