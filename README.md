@@ -1,3 +1,15 @@
+**Pochettino preached calm amid USMNT negativity. His team just proved him right**\
+`The perception of the head coach and his team's readiness for the World Cup has been helped by two solid performances`\
+https://nytimes.com/athletic/6708320/2025/10/11/mauricio-pochettino-calm-usmnt-ecuador/
+
+**Baking for a Future You**\
+`Make savory-sweet granola, freezable loaf cakes and chocolate chip cookie dough now; thank yourself later.`\
+https://nytimes.com/2025/10/11/dining/baking-for-a-future-you.html
+
+**Russini: What I’m hearing on Bill Belichick’s future, Eagles fallout and trade deadline rumblings**\
+`Also: The NFL is buzzing over a coach's fine, and Saquon Barkley was right about Daniel Jones.`\
+https://nytimes.com/athletic/6706981/2025/10/11/bill-belichick-nfl-trade-rumors-news-eagles/
+
 **Liverpool’s Konate withdraws from France squad with 'minor' thigh injury**\
 `Liverpool have already lost Alisson for a few weeks due to a hamstring problem and Giovanni Leoni to a season-ending ACL injury.`\
 https://nytimes.com/athletic/6708644/2025/10/11/liverpool-news-konate-injury-france/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/11/world/middleeast/palestinian-prisoners-release-fa
 **What Oilers are getting in Jack Roslovic and how the roster is impacted**\
 `The 28-year-old forward signed a one-year, $1.5 million contract with the Oilers on Wednesday.`\
 https://nytimes.com/athletic/6707822/2025/10/11/oilers-jack-roslovic-roster-contract/
-
-**Searching for Meaning in the Gold Rally**\
-`The price of gold often rises during periods of economic turmoil. This time around, bond markets are stable and stocks are at record highs. So what gives?`\
-https://nytimes.com/2025/10/11/business/dealbook/gold-prices-paradox.html
-
-**A Memo in a Bunker, Intercepted Communications and Hamas’s Oct. 7 Plans**\
-`A directive, which Israeli officials believe was written by Yahya Sinwar, the powerful leader of Hamas in Gaza, and recordings called for fighters to target soldiers and civilian communities — and to broadcast the violent acts.`\
-https://nytimes.com/2025/10/11/world/middleeast/israel-hamas-plans.html
-
-**Three pressing offseason questions for the Phillies**\
-`Winter came earlier and harsher than anyone with the Phillies expected. Now what? `\
-https://nytimes.com/athletic/6707023/2025/10/11/phillies-offseason-2026-roster-schwarber-realmuto-rob-thomson/
 
