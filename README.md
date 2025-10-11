@@ -1,3 +1,7 @@
+**Three pressing offseason questions for the Phillies**\
+`Winter came earlier and harsher than anyone with the Phillies expected. Now what? `\
+https://nytimes.com/athletic/6707023/2025/10/11/phillies-offseason-2026-roster-schwarber-realmuto-rob-thomson/
+
 **Peace in Trump’s Time — Except Here**\
 `Peace abroad and war at home — not very America first!`\
 https://nytimes.com/2025/10/11/opinion/trump-nobel-peace-prize.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010449495/we-should-be-cleareyed-about-w
 **Jon Favreau on Where the Democrats Went Right**\
 `Jon Favreau considers how the government shutdown could help Democrats rebuild their fractured party.`\
 https://nytimes.com/2025/10/11/opinion/ezra-klein-podcast-jon-favreau.html
-
-**USMNT effectively embraces its new tactical identity under Pochettino**\
-`It's taken a year, but Mauricio Pochettino appears to have landed on the best way to accentuate the U.S.'s attacking strengths `\
-https://nytimes.com/athletic/6708231/2025/10/11/usmnt-embraces-its-newfound-tactical-identity-under-pochettino/
 
