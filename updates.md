@@ -1,3 +1,11 @@
+**What Oilers are getting in Jack Roslovic and how the roster is impacted**\
+`The 28-year-old forward signed a one-year, $1.5 million contract with the Oilers on Wednesday.`\
+https://nytimes.com/athletic/6707822/2025/10/11/oilers-jack-roslovic-roster-contract/
+
+**Searching for Meaning in the Gold Rally**\
+`The price of gold often rises during periods of economic turmoil. This time around, bond markets are stable and stocks are at record highs. So what gives?`\
+https://nytimes.com/2025/10/11/business/dealbook/gold-prices-paradox.html
+
 **A Memo in a Bunker, Intercepted Communications and Hamas’s Oct. 7 Plans**\
 `A directive, which Israeli officials believe was written by Yahya Sinwar, the powerful leader of Hamas in Gaza, and recordings called for fighters to target soldiers and civilian communities — and to broadcast the violent acts.`\
 https://nytimes.com/2025/10/11/world/middleeast/israel-hamas-plans.html
