@@ -1,3 +1,7 @@
+**Steph and Seth Curry's antics reflect their joy in being newfound teammates**\
+`Steph wore a sarcastic smile when asked if he had thought about donning Seth's No. 31 in a game this season.`\
+https://nytimes.com/athletic/6707918/2025/10/10/steph-seth-curry-warriors-jersey-swap/
+
 **Boston Prosecutors Invoke Law Used Against Anarchists to Charge Protesters**\
 `The charges are an indication that Boston’s mayor and Police Department are telegraphing to President Trump that they’re going to come down hard on civil unrest.`\
 https://nytimes.com/2025/10/10/us/politics/boston-protesters-anarchists-national-guard.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/10/us/politics/carolyn-cheeks-kilpatrick-dead.html
 **Trump’s Retribution Revival Tour**\
 `When he was running for office, Donald Trump said he’d be too busy as president to go after his enemies. He’s making time for it now.`\
 https://nytimes.com/2025/10/10/us/politics/trump-letitia-james-comey-revenge.html
-
-**National Guard Troops Begin to Trickle Into Memphis**\
-`Two weeks after a federal task force began patrolling the western Tennessee city, National Guard troops from the state have now arrived.`\
-https://nytimes.com/2025/10/10/us/politics/trump-national-guard-troops-memphis.html
 

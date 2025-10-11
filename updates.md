@@ -1,3 +1,7 @@
+**Boston Prosecutors Invoke Law Used Against Anarchists to Charge Protesters**\
+`The charges are an indication that Boston’s mayor and Police Department are telegraphing to President Trump that they’re going to come down hard on civil unrest.`\
+https://nytimes.com/2025/10/10/us/politics/boston-protesters-anarchists-national-guard.html
+
 **Strikes on Venezuelan Boats Prompt Rare U.N. Meeting on the United States**\
 `The U.N. Security Council met Friday to discuss the Trump administration’s deadly attacks on what it asserts were drug smugglers in the Caribbean.`\
 https://nytimes.com/2025/10/10/world/middleeast/un-attacks-venezuela-boats.html

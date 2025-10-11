@@ -1,3 +1,7 @@
+**Boston Prosecutors Invoke Law Used Against Anarchists to Charge Protesters**\
+`The charges are an indication that Boston’s mayor and Police Department are telegraphing to President Trump that they’re going to come down hard on civil unrest.`\
+https://nytimes.com/2025/10/10/us/politics/boston-protesters-anarchists-national-guard.html
+
 **Strikes on Venezuelan Boats Prompt Rare U.N. Meeting on the United States**\
 `The U.N. Security Council met Friday to discuss the Trump administration’s deadly attacks on what it asserts were drug smugglers in the Caribbean.`\
 https://nytimes.com/2025/10/10/world/middleeast/un-attacks-venezuela-boats.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/10/us/politics/trump-letitia-james-comey-revenge.htm
 **National Guard Troops Begin to Trickle Into Memphis**\
 `Two weeks after a federal task force began patrolling the western Tennessee city, National Guard troops from the state have now arrived.`\
 https://nytimes.com/2025/10/10/us/politics/trump-national-guard-troops-memphis.html
-
-**Top Justice Dept. Officials Weren’t Told in Advance of James Indictment**\
-`Those in the dark included Attorney General Pam Bondi, people familiar with the matter said. The government shutdown, a rush to indict and internal divisions contributed to the lack of coordination.`\
-https://nytimes.com/2025/10/10/us/politics/bondi-justice-department-james.html
 
