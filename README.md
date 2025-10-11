@@ -1,40 +1,40 @@
-**Thousands Return to Northern Gaza, Hopeful, but Faced With Devastation**\
-`With the cease-fire holding overnight, many Palestinians continued to travel toward Gaza City on Saturday to learn what remains of their lives and homes there.`\
-https://nytimes.com/2025/10/11/world/middleeast/return-gaza-city-ceasefire.html
+**Following Through**\
+`We love it when people cancel plans, but the cost may be steeper than we realize.`\
+https://nytimes.com/2025/10/11/briefing/following-through.html
 
-**Most Americans Who Rely on Obamacare Live in Republican Areas**\
-`Millions of Americans depend on Obamacare. Here's where they live.`\
-https://nytimes.com/interactive/2025/10/11/us/politics/obamacare-aca-enrollment-state-map.html
+**Lions return to site of 2023 breakthrough, aim to take Chiefs down once again**\
+`The Lions’ 21-20 win over the Chiefs two years ago served as a corner turned for a group that thought they belonged.`\
+https://nytimes.com/athletic/6707739/2025/10/11/lions-return-to-site-of-2023-breakthrough-aiming-to-take-chiefs-down-once-again/
 
-**Rose Byrne as Mother of the Year**\
-`Maternal sacrifice is in vogue politically. The new movie “If I Had Legs I’d Kick You” shows where it can lead.`\
-https://nytimes.com/2025/10/11/style/if-i-had-legs-id-kick-you-rose-byrne.html
+**NFL Week 6 roundtable: Joe Flacco's Bengals, Dak Prescott's MVP case, second-year QBs' progress**\
+`Our writers also discuss what should happen when a player drops the ball just before crossing the goal line.`\
+https://nytimes.com/athletic/6706476/2025/10/11/nfl-week-6-quarterbacks-joe-flaccos-dak-prescotts-drake-maye/
 
-**What We Know About the Explosion in Central Tennessee**\
-`The blast happened at a plant owned by Accurate Energetic Systems. Officials did not specify a death toll but said 19 people were missing.`\
-https://nytimes.com/2025/10/11/us/tennessee-plant-explosion-what-we-know.html
+**Bills notebook: Offense looks to bounce back, MNF prediction vs. Falcons, Ed Oliver is 'ready'**\
+`While LB Matt Matt Milano is likely out, who are the leaders in the clubhouse for the suspended player roster spots?`\
+https://nytimes.com/athletic/6707481/2025/10/11/bills-notebook-offense-looks-to-bounce-back-mnf-prediction-vs-falcons-ed-oliver-is-ready/
 
-**Some Americans Are Starting to Feel the Impact of the Government Shutdown**\
-`The Trump administration said over 4,000 workers would be laid off. Farmers trying to plan next year’s crops don’t have all the tools they need. Some medical services have been curtailed in Native communities.`\
-https://nytimes.com/2025/10/11/us/politics/government-shutdown-effects.html
+**Christian Dvorak playing key role for Flyers early. But will he remain for the season?**\
+`Dvorak can provide secondary offense, play center or wing, play both special teams and is a responsible 200-foot player that coaches trust.`\
+https://nytimes.com/athletic/6707235/2025/10/11/christian-dvorak-flyers-key-role/
 
-**West Virginia’s School Vaccination Law Has Been Effective. That May Change.**\
-`The law allows only medical exemptions, and the state has one of the highest childhood vaccination rates. But hundreds of families are seeking religious exemptions.`\
-https://nytimes.com/2025/10/11/us/west-virginia-school-vaccines.html
+**The next McCaffrey brother is 'just a football player,' and he's starting to turn heads**\
+`Luke McCaffrey doesn't have the accomplishments of Christian or Ed, but he's starting to make a mark in Washington. `\
+https://nytimes.com/athletic/6703570/2025/10/11/luke-mccaffrey-commanders-christian-ed-nfl/
 
-**How the Government Shutdown Will Be Felt**\
-`The effects of a shutdown tend to unfold in stages. As agencies, departments and federal employees figure out how to weather the storm, Karoun Demirjian, a Times reporter, explains what to know.`\
-https://nytimes.com/video/us/politics/100000010447931/how-the-government-shutdown-will-be-felt.html
+**How Bobby McMann plans to make a big (and speedy) leap this season**\
+`McMann aims to stay more under control and avoid "going overspeed all the time" as he moves on from last season's playoff disappointment. `\
+https://nytimes.com/athletic/6707552/2025/10/11/maple-leafs-bobby-mcmann-4/
 
-**Beheaded and Sent to Watery Graves, Columbus Statues Get New Life**\
-`More than 30 monuments to Christopher Columbus were toppled or taken down in 2020. Now some are being restored, and finding new, usually less-public homes.`\
-https://nytimes.com/2025/10/11/arts/design/christopher-columbus-statues.html
+**Take our college football quiz: What you need to know about Week 7**\
+`Catch up on all you need to know and test your trivia knowledge ahead of college football's Week 7.`\
+https://nytimes.com/athletic/6706350/2025/10/11/college-football-week-7-preview-quiz-links/
 
-**How real are the Jacksonville Jaguars? Opportunistic defense and offense in progress leads way**\
-`Jacksonville is off to a hot start and the film shows what's working for the team and what they still have to build on.`\
-https://nytimes.com/athletic/6699055/2025/10/11/jaguars-seahawks-chiefs-week-6-trevor-lawrence/
+**For the Tigers, a playoff epic comes with hints of season-ending regret**\
+`In the end, this 15-inning classic was all too analogous of the year the Tigers endured. `\
+https://nytimes.com/athletic/6708421/2025/10/11/detroit-tigers-playoffs-alds-extra-innings-loss/
 
-**Trump’s Shutdown Layoffs Deepen Impasse, Angering Democrats**\
-`The president’s move to fire federal workers and his threats to make others go without pay were aimed at pressuring Democrats to cut a deal to reopen the government. The tactics have fueled Democrats’ resolve.`\
-https://nytimes.com/2025/10/11/us/politics/trump-government-shutdown-layoffs-democrats.html
+**Sister Jean and 3 life lessons we can learn from those who knew her best**\
+`Sister Jean was known as kind but blunt, praying for players' success while at the same time reminding them they needed to make free throws.`\
+https://nytimes.com/athletic/6707558/2025/10/11/sister-jean-dead-life-lessons/
 
