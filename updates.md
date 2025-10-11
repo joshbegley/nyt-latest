@@ -1,3 +1,7 @@
+**China Flexed. Trump Hit Back. So Much for the Thaw.**\
+`Beijing’s trade curbs and President Trump’s tariff threats show how quickly calm can give way to confrontation between the two largest economies.`\
+https://nytimes.com/2025/10/11/world/asia/china-trump-tariff-threat.html
+
 **For Javier Tebas, taking LaLiga to Miami doesn’t betray tradition. 'It defends it'**\
 `In the wake of criticism over playing LaLiga games in the U.S., the league's president is adamant that globalization helps football grow`\
 https://nytimes.com/athletic/6707715/2025/10/11/javier-tebas-laliga-miami-match/

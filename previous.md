@@ -1,3 +1,7 @@
+**China Flexed. Trump Hit Back. So Much for the Thaw.**\
+`Beijing’s trade curbs and President Trump’s tariff threats show how quickly calm can give way to confrontation between the two largest economies.`\
+https://nytimes.com/2025/10/11/world/asia/china-trump-tariff-threat.html
+
 **For Javier Tebas, taking LaLiga to Miami doesn’t betray tradition. 'It defends it'**\
 `In the wake of criticism over playing LaLiga games in the U.S., the league's president is adamant that globalization helps football grow`\
 https://nytimes.com/athletic/6707715/2025/10/11/javier-tebas-laliga-miami-match/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/11/world/americas/mexico-floods-rain.html
 **How Las Vegas Aces coach Becky Hammon became architect of a WNBA dynasty**\
 `Once overlooked, Hammon has brought Las Vegas three titles in four seasons and set a new standard for WNBA coaches.`\
 https://nytimes.com/athletic/6708230/2025/10/11/las-vegas-aces-coach-becky-hammon-wnba-championship/
-
-**How to watch Cubs at Brewers: Game 5 Time, TV, streaming**\
-`Find out how to watch the Chicago Cubs play the Milwaukee Brewers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6708228/2025/10/11/how-to-watch-cubs-vs-brewers-game-5-tv-channel-and-streaming-options-for-october-11/
 
