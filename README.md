@@ -1,3 +1,7 @@
+**Commanders rule out WRs Terry McLaurin, Noah Brown for Monday vs. Bears**\
+`Deebo Samuel's availability is also in question, but Washington will make a decision on him on Monday.`\
+https://nytimes.com/athletic/6708905/2025/10/11/terry-mclaurin-noah-brown-out-commanders-mnf/
+
 **A Strong Coastal Storm Is Set to Slam the East Coast With Flooding**\
 `Messy weather is headed for New York City and New Jersey, with up to three inches of rain possible. Power failures and road closures are possible with this storm, forecasters said.`\
 https://nytimes.com/2025/10/11/weather/new-york-noreaster-nj-east-coast-forecast.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6708972/2025/10/11/canadiens-vs-blackhawks-stream-h
 **How to watch Devils vs. Lightning: Time, TV, streaming**\
 `Find out how to watch the New Jersey Devils play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6708970/2025/10/11/devils-vs-lightning-stream-how-to-watch-oct-11/
-
-**How to watch Maple Leafs vs. Red Wings: Time, TV, streaming**\
-`Find out how to watch the Toronto Maple Leafs play the Detroit Red Wings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6708968/2025/10/11/maple-leafs-vs-red-wings-stream-how-to-watch-oct-11/
 
