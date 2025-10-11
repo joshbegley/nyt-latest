@@ -1,3 +1,7 @@
+**Bucksnort, Tenn., is a tight-knit community where neighbors help one another.**\
+`By Pooja Salhotra`\
+https://nytimes.com/live/2025/10/10/us/explosion-tennessee/bucksnort-tenn-is-a-tight-knit-community-where-neighbors-help-one-another
+
 **The Trump Split Screen: A Peacemaker Abroad, a Retribution Campaign at Home**\
 `President Trump’s dueling personas were on display this week, providing endless ammunition to his allies and his enemies alike.`\
 https://nytimes.com/2025/10/10/us/politics/trump-peace-retribution.html
