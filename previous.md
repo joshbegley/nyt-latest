@@ -1,3 +1,7 @@
+**Fears of a Coup Rise in Madagascar as Army Unit Joins Protesters**\
+`The unit appealed to security forces in this southern African nation to disobey their superiors and to refuse to shoot at demonstrators, who have rallied in the streets for more than two weeks.`\
+https://nytimes.com/2025/10/11/world/africa/madagascar-protest-coup-fears.html
+
 **Diane Keaton, a Star of ‘Annie Hall’ and ‘First Wives Club,’ Dies at 79**\
 `She brought an unconventional personality to scores of roles on television and in movies ranging from zany comedies like “Sleeper” to piercing dramas like “The Godfather.”`\
 https://nytimes.com/2025/10/11/movies/diane-keaton-dead.html
@@ -6,7 +10,7 @@ https://nytimes.com/2025/10/11/movies/diane-keaton-dead.html
 `Ohio State beat Illinois 34-16 on Saturday despite modest offensive output, as it capitalized on three turnovers. Here's what we learned.`\
 https://nytimes.com/athletic/6709235/2025/10/11/ohio-state-illinois-score-result-football/
 
-**Florida State vs. Pitt: Seminoles drops third straight game 34-31**\
+**Pitt tops Florida State 34-31 for Seminoles' eighth straight ACC loss**\
 `FSU endured its sixth losing streak of at least three games under Mike Norvell.`\
 https://nytimes.com/athletic/6709218/2025/10/11/pitt-florida-state-acc-score-results/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/11/us/katie-porter-videos-california-governor.html
 **No. 8 Alabama holds off No. 14 Missouri, hands Tigers first loss: Key takeaways**\
 `No. 8 Alabama survived at No. 14 Missouri 27-24 on Saturday behind three touchdowns from quarterback Ty Simpson.`\
 https://nytimes.com/athletic/6709148/2025/10/11/alabama-missouri-score-result-football/
-
-**How to watch Golden Knights vs. Kraken: Time, TV, streaming**\
-`Find out how to watch the Vegas Golden Knights play the Seattle Kraken, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6709226/2025/10/11/golden-knights-vs-kraken-stream-how-to-watch-oct-11/
 

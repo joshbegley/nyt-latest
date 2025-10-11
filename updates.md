@@ -1,3 +1,11 @@
+**Fears of a Coup Rise in Madagascar as Army Unit Joins Protesters**\
+`The unit appealed to security forces in this southern African nation to disobey their superiors and to refuse to shoot at demonstrators, who have rallied in the streets for more than two weeks.`\
+https://nytimes.com/2025/10/11/world/africa/madagascar-protest-coup-fears.html
+
+**Pitt tops Florida State 34-31 for Seminoles' eighth straight ACC loss**\
+`FSU endured its sixth losing streak of at least three games under Mike Norvell.`\
+https://nytimes.com/athletic/6709218/2025/10/11/pitt-florida-state-acc-score-results/
+
 **Diane Keaton, a Star of ‘Annie Hall’ and ‘First Wives Club,’ Dies at 79**\
 `She brought an unconventional personality to scores of roles on television and in movies ranging from zany comedies like “Sleeper” to piercing dramas like “The Godfather.”`\
 https://nytimes.com/2025/10/11/movies/diane-keaton-dead.html
