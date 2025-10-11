@@ -1,3 +1,15 @@
+**Luka Dončić to play in two of Lakers’ final four preseason games**\
+`Dončić was a full participant in Saturday's practice, and Lakers coach JJ Redick said the star guard was “TBD” for Sunday.`\
+https://nytimes.com/athletic/6709355/2025/10/11/luka-doncic-lakers-preseason-debut/
+
+**Gerrard turns down chance to return to Rangers**\
+`The former Liverpool captain had been in talks with the club's hierarchy on Thursday, after Russell Martin's dismissal.`\
+https://nytimes.com/athletic/6702785/2025/10/11/steven-gerrard-rangers-manager/
+
+**Residents Return to a Devastated Gaza City**\
+`With the cease-fire holding overnight, many Palestinians traveled to Gaza City to learn what remained of their lives and homes.`\
+https://nytimes.com/video/world/middleeast/100000010453765/gaza-city-returns-ceasefire-israel-hamas.html
+
 **Among Portland Protests, It’s Frogs and Sharks and Bears, Oh My!**\
 `Images of anarchists clad in black gave the city a bad name in 2020. Now, demonstrators in Portland are poking fun at President Trump’s apocalyptic talk with colorful animal suits.`\
 https://nytimes.com/2025/10/11/us/politics/portland-protests.html

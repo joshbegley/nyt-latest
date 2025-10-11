@@ -1,3 +1,7 @@
+**No Survivors Were Found at Tennessee Plant Explosion, Officials Say**\
+`Sheriff Chris Davis of Humphreys County said earlier that 18 people were missing after the blast at the ammunition plant. On Saturday, he said investigators were looking for remains.`\
+https://nytimes.com/video/us/100000010453924/tennessee-plant-explosion-presser.html
+
 **Luka Dončić to play in two of Lakers’ final four preseason games**\
 `Dončić was a full participant in Saturday's practice, and Lakers coach JJ Redick said the star guard was “TBD” for Sunday.`\
 https://nytimes.com/athletic/6709355/2025/10/11/luka-doncic-lakers-preseason-debut/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/11/world/africa/sudan-shelter-strike-rsf.html
 **Among Portland Protests, It’s Frogs and Sharks and Bears, Oh My!**\
 `Images of anarchists clad in black gave the city a bad name in 2020. Now, demonstrators in Portland are poking fun at President Trump’s apocalyptic talk with colorful animal suits.`\
 https://nytimes.com/2025/10/11/us/politics/portland-protests.html
-
-**UCLA coach to team: 'Are you a one-hit wonder?' Resounding road win answers the Q**\
-`UCLA played with freedom and flexibility, not at all looking like a team once left for dead at 0-4.`\
-https://nytimes.com/athletic/6709246/2025/10/11/ucla-is-no-one-hit-wonder-bruins-bury-michigan-state-on-the-road/
 
