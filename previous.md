@@ -1,5 +1,5 @@
-**USMNT 1, Ecuador 1: Balogun's deserved goal; Valencia's moment of brilliance**\
-`The USMNT took on a tough South American opponent, played well and got the goal to show for it in a promising overall performance`\
+**USMNT 1, Ecuador 1: Balogun's deserved goal punctuates promising showing**\
+`The USMNT took on a tough South American opponent, played well and got the goal to show for it in a positive overall performance`\
 https://nytimes.com/athletic/6707982/2025/10/10/usmnt-ecuador-friendly-score-valencia-balogun-video-pochettino/
 
 **Brandon Ingram and Collin Murray-Boyles are shining early in Raptors preseason**\
