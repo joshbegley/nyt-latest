@@ -1,3 +1,7 @@
+**No. 1 Ohio State rolls past No. 17 Illinois as win streak continues: Key takeaways**\
+`Ohio State beat Illinois 34-16 on Saturday despite modest offensive output, as it capitalized on three turnovers. Here's what we learned.`\
+https://nytimes.com/athletic/6709235/2025/10/11/ohio-state-illinois-score-result-football/
+
 **Florida State vs. Pitt: Seminoles drops third straight game 34-31**\
 `FSU endured its sixth losing streak of at least three games under Mike Norvell.`\
 https://nytimes.com/athletic/6709218/2025/10/11/pitt-florida-state-acc-score-results/
