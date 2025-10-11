@@ -1,3 +1,7 @@
+**Chelsea's Fernandez withdraws from Argentina squad**\
+`The 24-year-old is travelling to London where he will be examined by Chelsea's medical team to determine the severity of the issue.`\
+https://nytimes.com/athletic/6709056/2025/10/11/enzo-fernandez-chelsea-argentina-withdrawal/
+
 **Commanders rule out WRs Terry McLaurin, Noah Brown for Monday vs. Bears**\
 `Deebo Samuel's availability is also in question, but Washington will make a decision on him on Monday.`\
 https://nytimes.com/athletic/6708905/2025/10/11/terry-mclaurin-noah-brown-out-commanders-mnf/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6708974/2025/10/11/sabres-vs-bruins-stream-how-to-w
 **How to watch Canadiens vs. Blackhawks: Time, TV, streaming**\
 `Find out how to watch the Montreal Canadiens play the Chicago Blackhawks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6708972/2025/10/11/canadiens-vs-blackhawks-stream-how-to-watch-oct-11/
-
-**How to watch Devils vs. Lightning: Time, TV, streaming**\
-`Find out how to watch the New Jersey Devils play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6708970/2025/10/11/devils-vs-lightning-stream-how-to-watch-oct-11/
 

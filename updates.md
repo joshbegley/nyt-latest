@@ -1,3 +1,7 @@
+**Chelsea's Fernandez withdraws from Argentina squad**\
+`The 24-year-old is travelling to London where he will be examined by Chelsea's medical team to determine the severity of the issue.`\
+https://nytimes.com/athletic/6709056/2025/10/11/enzo-fernandez-chelsea-argentina-withdrawal/
+
 **Commanders rule out WRs Terry McLaurin, Noah Brown for Monday vs. Bears**\
 `Deebo Samuel's availability is also in question, but Washington will make a decision on him on Monday.`\
 https://nytimes.com/athletic/6708905/2025/10/11/terry-mclaurin-noah-brown-out-commanders-mnf/
