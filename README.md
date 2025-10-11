@@ -1,3 +1,11 @@
+**Madrid confirm Mbappe and Mastantuono have avoided serious injuries**\
+`Forward Mbappe is expected to train with his Madrid team-mates next week while Mastantuono will be assessed when he returns to Spain`\
+https://nytimes.com/athletic/6708486/2025/10/11/real-madrid-mbappe-mastantuono-news-injury-update/
+
+**Who Can Stop a President Deploying Troops?**\
+`On this week’s round table: Courts, Congress and chaos under Trump.`\
+https://nytimes.com/video/opinion/100000010451865/who-can-stop-a-president-deploying-troops.html
+
 **Valentin Vacherot beats ailing Novak Djokovic to extend spectacular Shanghai Masters run**\
 `Vacherot will make his first ATP Tour final appearance at one of the biggest events of the sport. Djokovic will recalibrate his body again.`\
 https://nytimes.com/athletic/6708435/2025/10/11/valentin-vacherot-novak-djokovic-shanghai-masters/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6706476/2025/10/11/nfl-week-6-quarterbacks-joe-flac
 **Bills notebook: Offense looks to bounce back, MNF prediction vs. Falcons, Ed Oliver is 'ready'**\
 `While LB Matt Matt Milano is likely out, who are the leaders in the clubhouse for the suspended player roster spots?`\
 https://nytimes.com/athletic/6707481/2025/10/11/bills-notebook-offense-looks-to-bounce-back-mnf-prediction-vs-falcons-ed-oliver-is-ready/
-
-**Christian Dvorak playing key role for Flyers early. But will he remain for the season?**\
-`Dvorak can provide secondary offense, play center or wing, play both special teams and is a responsible 200-foot player that coaches trust.`\
-https://nytimes.com/athletic/6707235/2025/10/11/christian-dvorak-flyers-key-role/
-
-**The next McCaffrey brother is 'just a football player,' and he's starting to turn heads**\
-`Luke McCaffrey doesn't have the accomplishments of Christian or Ed, but he's starting to make a mark in Washington. `\
-https://nytimes.com/athletic/6703570/2025/10/11/luke-mccaffrey-commanders-christian-ed-nfl/
 
