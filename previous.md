@@ -1,4 +1,16 @@
-**Mercury coach Nate Tibbetts ejected in Game 4 of WNBA Finals**\
+**USMNT 1, Ecuador 1: Balogun's deserved goal; Valencia's moment of brilliance**\
+`The USMNT took on a tough South American opponent, played well and got the goal to show for it in a promising overall performance`\
+https://nytimes.com/athletic/6707982/2025/10/10/usmnt-ecuador-friendly-score-valencia-balogun-video-pochettino/
+
+**Brandon Ingram and Collin Murray-Boyles are shining early in Raptors preseason**\
+`Through three preseason games, a bunch of reserves are impressing. `\
+https://nytimes.com/athletic/6707926/2025/10/10/brandon-ingram-collin-murray-boyles-raptors-preseason/
+
+**Las Vegas Aces claim WNBA championship with sweep of Phoenix Mercury**\
+`A'ja Wilson dominated again as the Aces proved why they're the gold standard of the WNBA with a third title in four seasons.`\
+https://nytimes.com/athletic/6708093/2025/10/10/las-vegas-aces-wnba-championship-sweep-phoenix-mercury/
+
+**Mercury coach Nate Tibbetts ejected in Game 4 loss of WNBA Finals**\
 `It is the second consecutive game that the Mercury coach was assessed at least one technical.`\
 https://nytimes.com/athletic/6708098/2025/10/10/mercury-nate-tibbetts-ejection-wnba-finals/
 
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/10/10/us/explosion-tennessee/bucksnort-tenn-is-a-t
 **The Trump Split Screen: A Peacemaker Abroad, a Retribution Campaign at Home**\
 `President Trump’s dueling personas were on display this week, providing endless ammunition to his allies and his enemies alike.`\
 https://nytimes.com/2025/10/10/us/politics/trump-peace-retribution.html
-
-**Steph and Seth Curry's antics reflect their joy in being newfound teammates**\
-`Steph wore a sarcastic smile when asked if he had thought about donning Seth's No. 31 in a game this season.`\
-https://nytimes.com/athletic/6707918/2025/10/10/steph-seth-curry-warriors-jersey-swap/
-
-**Boston Prosecutors Invoke Law Used Against Anarchists to Charge Protesters**\
-`The charges are an indication that Boston’s mayor and Police Department are telegraphing to President Trump that they’re going to come down hard on civil unrest.`\
-https://nytimes.com/2025/10/10/us/politics/boston-protesters-anarchists-national-guard.html
-
-**Strikes on Venezuelan Boats Prompt Rare U.N. Meeting on the United States**\
-`The U.N. Security Council met Friday to discuss the Trump administration’s deadly attacks on what it asserts were drug smugglers in the Caribbean.`\
-https://nytimes.com/2025/10/10/world/middleeast/un-attacks-venezuela-boats.html
 
