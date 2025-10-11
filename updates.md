@@ -1,3 +1,7 @@
+**Mercury coach Nate Tibbetts ejected in Game 4 of WNBA Finals**\
+`It is the second consecutive game that the Mercury coach was assessed at least one technical.`\
+https://nytimes.com/athletic/6708098/2025/10/10/mercury-nate-tibbetts-ejection-wnba-finals/
+
 **Knicks, Raptors agree to dismiss 2023 lawsuit**\
 `The Knicks dismissed the case “with prejudice,” permanently ending the matter.`\
 https://nytimes.com/athletic/6707896/2025/10/10/raptors-knicks-lawsuit-dismissal/
