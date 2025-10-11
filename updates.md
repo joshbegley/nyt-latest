@@ -1,3 +1,7 @@
+**How to watch Cubs at Brewers: Game 5 Time, TV, streaming**\
+`Find out how to watch the Chicago Cubs play the Milwaukee Brewers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6708228/2025/10/11/cubs-vs-brewers-stream-how-to-watch-oct-11/
+
 **Meet the worst football team in the world... and their superstar hairdresser**\
 `Ibis Sport Club once went almost four years without winning a game - the Brazilians' attitude to their status has brought them global fame`\
 https://nytimes.com/athletic/6679595/2025/10/11/worst-football-team-world-brazil/
