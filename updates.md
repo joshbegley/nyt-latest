@@ -1,3 +1,7 @@
+**Commanders rule out WRs Terry McLaurin, Noah Brown for Monday vs. Bears**\
+`Deebo Samuel's availability is also in question, but Washington will make a decision on him on Monday.`\
+https://nytimes.com/athletic/6708905/2025/10/11/terry-mclaurin-noah-brown-out-commanders-mnf/
+
 **A Strong Coastal Storm Is Set to Slam the East Coast With Flooding**\
 `Messy weather is headed for New York City and New Jersey, with up to three inches of rain possible. Power failures and road closures are possible with this storm, forecasters said.`\
 https://nytimes.com/2025/10/11/weather/new-york-noreaster-nj-east-coast-forecast.html
