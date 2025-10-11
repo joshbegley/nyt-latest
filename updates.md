@@ -1,3 +1,7 @@
+**Trump Administration Lays Off Dozens of C.D.C. Officials**\
+`“Disease detectives,” high-ranking scientists, the entire Washington office and the staff of a weekly public health journal were among those who learned late Friday that they would lose their jobs.`\
+https://nytimes.com/2025/10/11/us/politics/trump-administration-cdc-layoffs.html
+
 **Group of 5 football thriving in CFP expansion era. Just look at North Texas' sellout crowd vs. USF**\
 `It’s good for college football that the top of the Group of 5 has a path into the College Football Playoff field.`\
 https://nytimes.com/athletic/6708170/2025/10/11/north-texas-usf-group-of-five-playoff/
