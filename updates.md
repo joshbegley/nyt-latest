@@ -1,3 +1,7 @@
+**Tennessee Plant Where Explosion Took Place Employs Many in the Region**\
+`The plant owned by Accurate Energetic Systems has long been an economic bedrock for families in rural Hickman and Humphreys Counties.`\
+https://nytimes.com/2025/10/11/us/tennessee-plant-where-explosion-took-place-employs-many-in-the-region.html
+
 **The Best Flats **\
 `Text by  Ingela Ratledge Amundson`\
 https://nytimes.com/card/2025/10/11/smarter-living/wirecutter/

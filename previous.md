@@ -1,3 +1,7 @@
+**Tennessee Plant Where Explosion Took Place Employs Many in the Region**\
+`The plant owned by Accurate Energetic Systems has long been an economic bedrock for families in rural Hickman and Humphreys Counties.`\
+https://nytimes.com/2025/10/11/us/tennessee-plant-where-explosion-took-place-employs-many-in-the-region.html
+
 **The Best Flats **\
 `Text by  Ingela Ratledge Amundson`\
 https://nytimes.com/card/2025/10/11/smarter-living/wirecutter/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/11/us/leland-mississippi-mass-shooting.html
 **Pochettino preached calm amid USMNT negativity. His team just proved him right**\
 `The perception of the head coach and his team's readiness for the World Cup has been helped by two solid performances`\
 https://nytimes.com/athletic/6708320/2025/10/11/mauricio-pochettino-calm-usmnt-ecuador/
-
-**Baking for a Future You**\
-`Make savory-sweet granola, freezable loaf cakes and chocolate chip cookie dough now; thank yourself later.`\
-https://nytimes.com/2025/10/11/dining/baking-for-a-future-you.html
 
