@@ -1,3 +1,11 @@
+**Madrid confirm Mbappe and Mastantuono have avoided serious injuries**\
+`Forward Mbappe is expected to train with his Madrid team-mates next week while Mastantuono will be assessed when he returns to Spain`\
+https://nytimes.com/athletic/6708486/2025/10/11/real-madrid-mbappe-mastantuono-news-injury-update/
+
+**Who Can Stop a President Deploying Troops?**\
+`On this week’s round table: Courts, Congress and chaos under Trump.`\
+https://nytimes.com/video/opinion/100000010451865/who-can-stop-a-president-deploying-troops.html
+
 **Valentin Vacherot beats ailing Novak Djokovic to extend spectacular Shanghai Masters run**\
 `Vacherot will make his first ATP Tour final appearance at one of the biggest events of the sport. Djokovic will recalibrate his body again.`\
 https://nytimes.com/athletic/6708435/2025/10/11/valentin-vacherot-novak-djokovic-shanghai-masters/
