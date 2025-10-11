@@ -1,3 +1,11 @@
+**What Oilers are getting in Jack Roslovic and how the roster is impacted**\
+`The 28-year-old forward signed a one-year, $1.5 million contract with the Oilers on Wednesday.`\
+https://nytimes.com/athletic/6707822/2025/10/11/oilers-jack-roslovic-roster-contract/
+
+**Searching for Meaning in the Gold Rally**\
+`The price of gold often rises during periods of economic turmoil. This time around, bond markets are stable and stocks are at record highs. So what gives?`\
+https://nytimes.com/2025/10/11/business/dealbook/gold-prices-paradox.html
+
 **A Memo in a Bunker, Intercepted Communications and Hamas’s Oct. 7 Plans**\
 `A directive, which Israeli officials believe was written by Yahya Sinwar, the powerful leader of Hamas in Gaza, and recordings called for fighters to target soldiers and civilian communities — and to broadcast the violent acts.`\
 https://nytimes.com/2025/10/11/world/middleeast/israel-hamas-plans.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/opinion/100000010451870/why-magas-bullying-will-fail.h
 **Pete Buttigieg Is Facing Down the Darkness**\
 `Pete Buttigieg joined the Opinion editorial director David Leonhardt to discuss what America’s next story should be and how Democrats can get where they need to go.`\
 https://nytimes.com/video/opinion/100000010451856/pete-buttigieg-is-facing-down-the-darkness.html
-
-**Who Can Stop a President Deploying Troops?**\
-`On this week’s round table: Courts, Congress and chaos under Trump.`\
-https://nytimes.com/2025/10/11/opinion/trump-national-guard-divided-america.html
-
-**‘We Should Be Cleareyed About What’s Happening Here’**\
-`Troop deployment.`\
-https://nytimes.com/video/opinion/100000010449495/we-should-be-cleareyed-about-whats-happening-here.html
 
