@@ -1,3 +1,43 @@
+**A Strong Coastal Storm Is Set to Slam the East Coast With Flooding**\
+`Messy weather is headed for New York City and New Jersey, with up to three inches of rain possible. Power failures and road closures are possible with this storm, forecasters said.`\
+https://nytimes.com/2025/10/11/weather/new-york-noreaster-nj-east-coast-forecast.html
+
+**How to watch Mammoth vs. Predators: Time, TV, streaming**\
+`Find out how to watch the Utah Mammoth play the Nashville Predators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6708986/2025/10/11/mammoth-vs-predators-stream-how-to-watch-oct-11/
+
+**How to watch Flyers vs. Hurricanes: Time, TV, streaming**\
+`Find out how to watch the Philadelphia Flyers play the Carolina Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6708983/2025/10/11/flyers-vs-hurricanes-stream-how-to-watch-oct-11/
+
+**How to watch Rangers vs. Penguins: Time, TV, streaming**\
+`Find out how to watch the New York Rangers play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6708982/2025/10/11/rangers-vs-penguins-stream-how-to-watch-oct-11/
+
+**How to watch Senators vs. Panthers: Time, TV, streaming**\
+`Find out how to watch the Ottawa Senators play the Florida Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6708979/2025/10/11/senators-vs-panthers-stream-how-to-watch-oct-11/
+
+**How to watch Blue Jackets vs. Wild: Time, TV, streaming**\
+`Find out how to watch the Columbus Blue Jackets play the Minnesota Wild, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6708977/2025/10/11/blue-jackets-vs-wild-stream-how-to-watch-oct-11/
+
+**How to watch Sabres vs. Bruins: Time, TV, streaming**\
+`Find out how to watch the Buffalo Sabres play the Boston Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6708974/2025/10/11/sabres-vs-bruins-stream-how-to-watch-oct-11/
+
+**How to watch Canadiens vs. Blackhawks: Time, TV, streaming**\
+`Find out how to watch the Montreal Canadiens play the Chicago Blackhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6708972/2025/10/11/canadiens-vs-blackhawks-stream-how-to-watch-oct-11/
+
+**How to watch Devils vs. Lightning: Time, TV, streaming**\
+`Find out how to watch the New Jersey Devils play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6708970/2025/10/11/devils-vs-lightning-stream-how-to-watch-oct-11/
+
+**How to watch Maple Leafs vs. Red Wings: Time, TV, streaming**\
+`Find out how to watch the Toronto Maple Leafs play the Detroit Red Wings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6708968/2025/10/11/maple-leafs-vs-red-wings-stream-how-to-watch-oct-11/
+
 **Vincent Trocheck out week to week with upper-body injury: What it means for the Rangers**\
 `The injury takes away one of New York’s most versatile players who can play in the team's top six.`\
 https://nytimes.com/athletic/6708880/2025/10/11/vincent-trocheck-rangers-injury/

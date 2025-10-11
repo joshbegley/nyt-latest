@@ -1,40 +1,40 @@
-**Vincent Trocheck out week to week with upper-body injury: What it means for the Rangers**\
-`The injury takes away one of New York’s most versatile players who can play in the team's top six.`\
-https://nytimes.com/athletic/6708880/2025/10/11/vincent-trocheck-rangers-injury/
+**A Strong Coastal Storm Is Set to Slam the East Coast With Flooding**\
+`Messy weather is headed for New York City and New Jersey, with up to three inches of rain possible. Power failures and road closures are possible with this storm, forecasters said.`\
+https://nytimes.com/2025/10/11/weather/new-york-noreaster-nj-east-coast-forecast.html
 
-**Biden Is Receiving Radiation Therapy for Cancer**\
-`The former president, who was diagnosed with an aggressive form of prostate cancer in May, also had a cancerous lesion removed from his forehead recently.`\
-https://nytimes.com/2025/10/11/us/politics/biden-cancer-radiation.html
+**How to watch Mammoth vs. Predators: Time, TV, streaming**\
+`Find out how to watch the Utah Mammoth play the Nashville Predators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6708986/2025/10/11/mammoth-vs-predators-stream-how-to-watch-oct-11/
 
-**Why Won’t Pokémon Evolve?**\
-`Pokémon is a game series all about evolution. So why has it taken the franchise so long to evolve? Zachary Small, a culture reporter for The New York Times, breaks down how the company’s structure may stymie innovation.`\
-https://nytimes.com/video/arts/100000010450870/why-wont-pokemon-evolve.html
+**How to watch Flyers vs. Hurricanes: Time, TV, streaming**\
+`Find out how to watch the Philadelphia Flyers play the Carolina Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6708983/2025/10/11/flyers-vs-hurricanes-stream-how-to-watch-oct-11/
 
-**WATCH: How the Seahawks have shocked the NFL this season**\
-`Through five weeks, the Seahawks have the highest explosive pass rate in football.`\
-https://nytimes.com/athletic/6707483/2025/10/11/seahawks-sam-darnold-offense-analysis-breakdown/
+**How to watch Rangers vs. Penguins: Time, TV, streaming**\
+`Find out how to watch the New York Rangers play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6708982/2025/10/11/rangers-vs-penguins-stream-how-to-watch-oct-11/
 
-**Tadej Pogacar wins fifth-straight Il Lombardia after solo attack**\
-`The 27-year-old Slovenian became the first rider to podium all Monument races in one season.`\
-https://nytimes.com/athletic/6708579/2025/10/11/tadej-pogacar-il-lombardia-record-cycling/
+**How to watch Senators vs. Panthers: Time, TV, streaming**\
+`Find out how to watch the Ottawa Senators play the Florida Panthers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6708979/2025/10/11/senators-vs-panthers-stream-how-to-watch-oct-11/
 
-**Tennessee Plant Where Explosion Took Place Employs Many in the Region**\
-`The plant owned by Accurate Energetic Systems has long been an economic bedrock for families in rural Hickman and Humphreys Counties.`\
-https://nytimes.com/2025/10/11/us/tennessee-plant-explosion-hickman-humphreys-counties.html
+**How to watch Blue Jackets vs. Wild: Time, TV, streaming**\
+`Find out how to watch the Columbus Blue Jackets play the Minnesota Wild, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6708977/2025/10/11/blue-jackets-vs-wild-stream-how-to-watch-oct-11/
 
-**The Best Flats **\
-`Text by  Ingela Ratledge Amundson`\
-https://nytimes.com/card/2025/10/11/smarter-living/wirecutter/
+**How to watch Sabres vs. Bruins: Time, TV, streaming**\
+`Find out how to watch the Buffalo Sabres play the Boston Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6708974/2025/10/11/sabres-vs-bruins-stream-how-to-watch-oct-11/
 
-**This Hot Salad Is Very Cool**\
-`Justine Doiron’s baked chard salad with cranberries is a brilliant mix of colors, textures and flavors.`\
-https://nytimes.com/2025/10/11/dining/this-hot-salad-is-very-cool.html
+**How to watch Canadiens vs. Blackhawks: Time, TV, streaming**\
+`Find out how to watch the Montreal Canadiens play the Chicago Blackhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6708972/2025/10/11/canadiens-vs-blackhawks-stream-how-to-watch-oct-11/
 
-**A Voice of the Press, Preserved**\
-`In 1955, a New York Times copy editor refused to say whether he had once belonged to the Communist Party and was subsequently fired.`\
-https://nytimes.com/2025/10/11/insider/a-voice-of-the-press-preserved.html
+**How to watch Devils vs. Lightning: Time, TV, streaming**\
+`Find out how to watch the New Jersey Devils play the Tampa Bay Lightning, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6708970/2025/10/11/devils-vs-lightning-stream-how-to-watch-oct-11/
 
-**How Do We Decide Which Studies to Cover?**\
-`A New York Times health reporter explains what makes a good study, and how she knows which papers merit an article.`\
-https://nytimes.com/2025/10/11/well/how-do-we-decide-which-studies-to-cover.html
+**How to watch Maple Leafs vs. Red Wings: Time, TV, streaming**\
+`Find out how to watch the Toronto Maple Leafs play the Detroit Red Wings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6708968/2025/10/11/maple-leafs-vs-red-wings-stream-how-to-watch-oct-11/
 
