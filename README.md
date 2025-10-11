@@ -1,3 +1,7 @@
+**Thousands Return to Northern Gaza, Hopeful, but Faced With Devastation**\
+`With the cease-fire holding overnight, many Palestinians continued to travel toward Gaza City on Saturday to learn what remains of their lives and homes there.`\
+https://nytimes.com/2025/10/11/world/middleeast/return-gaza-city-ceasefire.html
+
 **Most Americans Who Rely on Obamacare Live in Republican Areas**\
 `Millions of Americans depend on Obamacare. Here's where they live.`\
 https://nytimes.com/interactive/2025/10/11/us/politics/obamacare-aca-enrollment-state-map.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6699055/2025/10/11/jaguars-seahawks-chiefs-week-6-t
 **Trump’s Shutdown Layoffs Deepen Impasse, Angering Democrats**\
 `The president’s move to fire federal workers and his threats to make others go without pay were aimed at pressuring Democrats to cut a deal to reopen the government. The tactics have fueled Democrats’ resolve.`\
 https://nytimes.com/2025/10/11/us/politics/trump-government-shutdown-layoffs-democrats.html
-
-**They Each Own 50 Credit Cards. Should You?**\
-`A growing number of Americans are making thousands by exploiting credit card reward offers.`\
-https://nytimes.com/2025/10/11/business/credit-cards-churners.html
 
