@@ -1,3 +1,7 @@
+**Wave of Criticism Greets Macron’s Repeat Pick for Prime Minister: ‘Bad Joke’**\
+`After appointing the same person prime minister for the second time in a week, President Emmanuel Macron is facing calls to explain his stubbornness or resign.`\
+https://nytimes.com/2025/10/11/world/europe/france-macron-lecornu-prime-minister.html
+
 **China Flexed. Trump Hit Back. So Much for the Thaw.**\
 `Beijing’s trade curbs and President Trump’s tariff threats show how quickly calm can give way to confrontation between the two largest economies.`\
 https://nytimes.com/2025/10/11/world/asia/china-trump-tariff-threat.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/11/world/asia/north-korea-military-parade-china-russ
 **Heavy Rain, Floods and Landslides in Mexico Kill at Least 27**\
 `The downpours also damaged thousands of homes and cut off power to entire towns. More rain was expected this weekend.`\
 https://nytimes.com/2025/10/11/world/americas/mexico-floods-rain.html
-
-**How Las Vegas Aces coach Becky Hammon became architect of a WNBA dynasty**\
-`Once overlooked, Hammon has brought Las Vegas three titles in four seasons and set a new standard for WNBA coaches.`\
-https://nytimes.com/athletic/6708230/2025/10/11/las-vegas-aces-coach-becky-hammon-wnba-championship/
 
