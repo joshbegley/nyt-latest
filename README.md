@@ -1,3 +1,7 @@
+**Search After Tennessee Explosion Finds No Survivors, Officials Say**\
+`Local authorities said earlier that 18 people were missing after the blast at the ammunition plant. On Saturday, they said they were looking for remains.`\
+https://nytimes.com/2025/10/11/us/tennessee-munitions-plant-explosion-deaths.html
+
 **Chelsea's Fernandez withdraws from Argentina squad**\
 `The 24-year-old is travelling to London where he will be examined by Chelsea's medical team to determine the severity of the issue.`\
 https://nytimes.com/athletic/6709056/2025/10/11/enzo-fernandez-chelsea-argentina-withdrawal/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6708977/2025/10/11/blue-jackets-vs-wild-stream-how-
 **How to watch Sabres vs. Bruins: Time, TV, streaming**\
 `Find out how to watch the Buffalo Sabres play the Boston Bruins, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6708974/2025/10/11/sabres-vs-bruins-stream-how-to-watch-oct-11/
-
-**How to watch Canadiens vs. Blackhawks: Time, TV, streaming**\
-`Find out how to watch the Montreal Canadiens play the Chicago Blackhawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6708972/2025/10/11/canadiens-vs-blackhawks-stream-how-to-watch-oct-11/
 
