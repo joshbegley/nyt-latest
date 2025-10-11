@@ -1,3 +1,7 @@
+**How Las Vegas Aces coach Becky Hammon became architect of a WNBA dynasty**\
+`Once overlooked, Hammon has brought Las Vegas three titles in four seasons and set a new standard for WNBA coaches.`\
+https://nytimes.com/athletic/6708230/2025/10/11/las-vegas-aces-coach-becky-hammon-wnba-championship/
+
 **How to watch Cubs at Brewers: Game 5 Time, TV, streaming**\
 `Find out how to watch the Chicago Cubs play the Milwaukee Brewers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6708228/2025/10/11/cubs-vs-brewers-stream-how-to-watch-oct-11/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6683465/2025/10/11/barcelona-young-stars-la-masia/
 **Sir Bobby Charlton picked his World XI in 1960. We found it - and here it is**\
 `On what would have been his 88th birthday, we revisit Charlton's selection of the best players in the world from his 1960 Book of Soccer`\
 https://nytimes.com/athletic/6696482/2025/10/11/bobby-charlton-trautmann-santos-kopa-julinho/
-
-**Eight expectations about football from 25 years ago that have proven misguided**\
-`From pay-per-view coverage to the loss of technical midfielders to indoor stadiums – some expectations from 2000 haven't come true`\
-https://nytimes.com/athletic/6700105/2025/10/11/football-expectations-25-years-on/
 
