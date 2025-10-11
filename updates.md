@@ -1,3 +1,7 @@
+**‘Over the Clouds’: Families of Palestinian Prisoners Await Their Release**\
+`Israel agreed to free 250 Palestinians serving life sentences, many of whom will be sent into exile. For their families, it brought joy. But for those whose relatives were excluded, it was a crushing blow.`\
+https://nytimes.com/2025/10/11/world/middleeast/palestinian-prisoners-release-families.html
+
 **What Oilers are getting in Jack Roslovic and how the roster is impacted**\
 `The 28-year-old forward signed a one-year, $1.5 million contract with the Oilers on Wednesday.`\
 https://nytimes.com/athletic/6707822/2025/10/11/oilers-jack-roslovic-roster-contract/

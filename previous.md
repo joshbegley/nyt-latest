@@ -1,3 +1,7 @@
+**‘Over the Clouds’: Families of Palestinian Prisoners Await Their Release**\
+`Israel agreed to free 250 Palestinians serving life sentences, many of whom will be sent into exile. For their families, it brought joy. But for those whose relatives were excluded, it was a crushing blow.`\
+https://nytimes.com/2025/10/11/world/middleeast/palestinian-prisoners-release-families.html
+
 **What Oilers are getting in Jack Roslovic and how the roster is impacted**\
 `The 28-year-old forward signed a one-year, $1.5 million contract with the Oilers on Wednesday.`\
 https://nytimes.com/athletic/6707822/2025/10/11/oilers-jack-roslovic-roster-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010451871/our-founders-mistake.html
 **Why MAGA’s Bullying Will Fail**\
 `The Opinion columnist David French breaks down how Trump and his supporters are using familiar pressure — and what backlash it could spark — at the round table in this week’s episode of “The Opinions.”`\
 https://nytimes.com/video/opinion/100000010451870/why-magas-bullying-will-fail.html
-
-**Pete Buttigieg Is Facing Down the Darkness**\
-`Pete Buttigieg joined the Opinion editorial director David Leonhardt to discuss what America’s next story should be and how Democrats can get where they need to go.`\
-https://nytimes.com/video/opinion/100000010451856/pete-buttigieg-is-facing-down-the-darkness.html
 
