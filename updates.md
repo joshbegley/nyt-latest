@@ -1,3 +1,7 @@
+**The Trump Split Screen: A Peacemaker Abroad, a Retribution Campaign at Home**\
+`President Trump’s dueling personas were on display this week, providing endless ammunition to his allies and his enemies alike.`\
+https://nytimes.com/2025/10/10/us/politics/trump-peace-retribution.html
+
 **Steph and Seth Curry's antics reflect their joy in being newfound teammates**\
 `Steph wore a sarcastic smile when asked if he had thought about donning Seth's No. 31 in a game this season.`\
 https://nytimes.com/athletic/6707918/2025/10/10/steph-seth-curry-warriors-jersey-swap/
