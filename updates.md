@@ -1,3 +1,7 @@
+**Strikes on Venezuelan Boats Prompt Rare U.N. Meeting on the United States**\
+`The U.N. Security Council met Friday to discuss the Trump administration’s deadly attacks on what it asserts were drug smugglers in the Caribbean.`\
+https://nytimes.com/2025/10/10/world/middleeast/un-attacks-venezuela-boats.html
+
 **Cubs believe they have enough pitching to 'survive and advance' in Game 5 and beyond**\
 `The Cubs have their bags packed for Milwaukee and a trip to Los Angeles, with the belief that their pitching staff can perform in Game 5.`\
 https://nytimes.com/athletic/6707744/2025/10/10/cubs-mlb-postseason-nlds-pitching/
