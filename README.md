@@ -1,3 +1,11 @@
+**Tigers radio announcer apologizes for swearing on broadcast after ALDS Game 5 elimination**\
+`Longtime Tigers radio voice Dan Dickerson apologized for cursing on a hot mic after Detroit's season-ending loss to the Seattle Mariners.`\
+https://nytimes.com/athletic/6708990/2025/10/11/detroit-tigers-radio-announcer-hot-mic-swear/
+
+**Wild to honor Jacques Lemaire before home opener: 'A long time I wanted to come back'**\
+`Lemaire's team shocked the hockey world in 2003 by rallying from a pair of 3-1 series deficits to reach the Western Conference final.`\
+https://nytimes.com/athletic/6709073/2025/10/11/wild-jacques-lemaire-home-opener/
+
 **Mariners name Bryce Miller as ALCS Game 1 starter against Blue Jays**\
 `Miller will pitch on three days' rest for the first time in his career. Kevin Gausman will start Game 1 for Toronto.`\
 https://nytimes.com/athletic/6709112/2025/10/11/mariners-bryce-miller-game-1-starter-alcs-blue-jays/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6708905/2025/10/11/terry-mclaurin-noah-brown-out-co
 **A Strong Coastal Storm Is Set to Slam the East Coast With Flooding**\
 `Messy weather is headed for New York City and New Jersey, with up to three inches of rain possible. Power failures and road closures are possible with this storm, forecasters said.`\
 https://nytimes.com/2025/10/11/weather/new-york-noreaster-nj-east-coast-forecast.html
-
-**How to watch Mammoth vs. Predators: Time, TV, streaming**\
-`Find out how to watch the Utah Mammoth play the Nashville Predators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6708986/2025/10/11/mammoth-vs-predators-stream-how-to-watch-oct-11/
-
-**How to watch Flyers vs. Hurricanes: Time, TV, streaming**\
-`Find out how to watch the Philadelphia Flyers play the Carolina Hurricanes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6708983/2025/10/11/flyers-vs-hurricanes-stream-how-to-watch-oct-11/
 
