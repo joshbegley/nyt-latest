@@ -1,3 +1,7 @@
+**Crowd boos WNBA commissioner Cathy Engelbert at championship celebration**\
+`Engelbert has become increasingly unpopular among players in recent weeks. `\
+https://nytimes.com/athletic/6708172/2025/10/10/wnba-commissioner-cathy-engelbert-boos-championship/
+
 **FIFA president Infantino, Prime Minister Carney attend Canada's friendly, address team**\
 `The head of FIFA and the nation addressed Canada's men's national team, one of the 2026 World Cup co-hosts`\
 https://nytimes.com/athletic/6708139/2025/10/10/canada-australia-prime-minister-mark-carney-fifa-gianni-infantino/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/10/crosswords/daily-puzzle-2025-10-11.html
 **Marsch's Canada has much to ponder after frustrating Australia defeat**\
 `Marsch's team did not have an answer for Nestory Irankunda's late strike`\
 https://nytimes.com/athletic/6708052/2025/10/10/jesse-marsch-canada-australia-world-cup/
-
-**Judge Signals She Is Likely to Order Abrego Garcia’s Release Soon**\
-`The judge expressed frequent frustrations with the Trump administration, saying it had presented a “totally inconsistent” case to keep the Maryland man in immigration detention.`\
-https://nytimes.com/2025/10/10/us/politics/abrego-garcia-hearing.html
 

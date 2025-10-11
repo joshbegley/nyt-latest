@@ -1,3 +1,11 @@
+**Quote of the Day: Thousands Trek North To Ruins of Gaza City As a Truce Takes Hold**\
+`Quotation of the Day for Saturday, October 11, 2025.`\
+https://nytimes.com/2025/10/10/pageoneplus/quote-of-the-day-thousands-trek-north-to-ruins-of-gaza-city-as-a-truce-takes-hold.html
+
+**Pochettino happy to have USMNT focus on performance, not vibes, after Ecuador draw**\
+`The U.S. manager has seen his team's commitment questioned in recent months, but Friday's showing was all business `\
+https://nytimes.com/athletic/6708054/2025/10/10/usmnt-ecuador-pochettino-reaction-balogun-zendejas-injury/
+
 **Crowd boos WNBA commissioner Cathy Engelbert at championship celebration**\
 `Engelbert has become increasingly unpopular among players in recent weeks. `\
 https://nytimes.com/athletic/6708172/2025/10/10/wnba-commissioner-cathy-engelbert-boos-championship/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6708098/2025/10/10/mercury-nate-tibbetts-ejection-w
 **Knicks, Raptors agree to dismiss 2023 lawsuit**\
 `The Knicks dismissed the case “with prejudice,” permanently ending the matter.`\
 https://nytimes.com/athletic/6707896/2025/10/10/raptors-knicks-lawsuit-dismissal/
-
-**Shorthand for a Stance**\
-`Sam Ezersky presents a brawny, themeless puzzle for the brainy (us).`\
-https://nytimes.com/2025/10/10/crosswords/daily-puzzle-2025-10-11.html
-
-**Marsch's Canada has much to ponder after frustrating Australia defeat**\
-`Marsch's team did not have an answer for Nestory Irankunda's late strike`\
-https://nytimes.com/athletic/6708052/2025/10/10/jesse-marsch-canada-australia-world-cup/
 

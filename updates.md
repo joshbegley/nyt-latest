@@ -1,3 +1,7 @@
+**Crowd boos WNBA commissioner Cathy Engelbert at championship celebration**\
+`Engelbert has become increasingly unpopular among players in recent weeks. `\
+https://nytimes.com/athletic/6708172/2025/10/10/wnba-commissioner-cathy-engelbert-boos-championship/
+
 **FIFA president Infantino, Prime Minister Carney attend Canada's friendly, address team**\
 `The head of FIFA and the nation addressed Canada's men's national team, one of the 2026 World Cup co-hosts`\
 https://nytimes.com/athletic/6708139/2025/10/10/canada-australia-prime-minister-mark-carney-fifa-gianni-infantino/
