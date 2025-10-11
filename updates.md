@@ -1,3 +1,11 @@
+**Quote of the Day: Thousands Trek North To Ruins of Gaza City As a Truce Takes Hold**\
+`Quotation of the Day for Saturday, October 11, 2025.`\
+https://nytimes.com/2025/10/10/pageoneplus/quote-of-the-day-thousands-trek-north-to-ruins-of-gaza-city-as-a-truce-takes-hold.html
+
+**Pochettino happy to have USMNT focus on performance, not vibes, after Ecuador draw**\
+`The U.S. manager has seen his team's commitment questioned in recent months, but Friday's showing was all business `\
+https://nytimes.com/athletic/6708054/2025/10/10/usmnt-ecuador-pochettino-reaction-balogun-zendejas-injury/
+
 **Crowd boos WNBA commissioner Cathy Engelbert at championship celebration**\
 `Engelbert has become increasingly unpopular among players in recent weeks. `\
 https://nytimes.com/athletic/6708172/2025/10/10/wnba-commissioner-cathy-engelbert-boos-championship/
