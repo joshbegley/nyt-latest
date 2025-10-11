@@ -1,3 +1,7 @@
+**U.S. national team looks to ride consistency to FIFA Under-20 World Cup semi-final berth**\
+`On Sunday, the U.S. team will look to down Morocco and become the first to advance to the semifinals since 1989.`\
+https://nytimes.com/athletic/6709047/2025/10/11/u20-world-cup-usmnt-morocco-semi-final/
+
 **Search After Tennessee Explosion Finds No Survivors, Officials Say**\
 `Local authorities said earlier that 18 people were missing after the blast at the ammunition plant. On Saturday, they said they were looking for remains.`\
 https://nytimes.com/2025/10/11/us/tennessee-munitions-plant-explosion-deaths.html
