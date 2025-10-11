@@ -1,3 +1,7 @@
+**Steph and Seth Curry's antics reflect their joy in being newfound teammates**\
+`Steph wore a sarcastic smile when asked if he had thought about donning Seth's No. 31 in a game this season.`\
+https://nytimes.com/athletic/6707918/2025/10/10/steph-seth-curry-warriors-jersey-swap/
+
 **Boston Prosecutors Invoke Law Used Against Anarchists to Charge Protesters**\
 `The charges are an indication that Boston’s mayor and Police Department are telegraphing to President Trump that they’re going to come down hard on civil unrest.`\
 https://nytimes.com/2025/10/10/us/politics/boston-protesters-anarchists-national-guard.html
