@@ -1,3 +1,7 @@
+**Liverpool’s Konate withdraws from France squad with 'minor' thigh injury**\
+`Liverpool have already lost Alisson for a few weeks due to a hamstring problem and Giovanni Leoni to a season-ending ACL injury.`\
+https://nytimes.com/athletic/6708644/2025/10/11/liverpool-news-konate-injury-france/
+
 **How to watch Blues vs. Flames: Time, TV, streaming**\
 `Find out how to watch the St. Louis Blues play the Calgary Flames, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6708650/2025/10/11/blues-vs-flames-stream-how-to-watch-oct-11/

@@ -1,3 +1,7 @@
+**Liverpool’s Konate withdraws from France squad with 'minor' thigh injury**\
+`Liverpool have already lost Alisson for a few weeks due to a hamstring problem and Giovanni Leoni to a season-ending ACL injury.`\
+https://nytimes.com/athletic/6708644/2025/10/11/liverpool-news-konate-injury-france/
+
 **How to watch Blues vs. Flames: Time, TV, streaming**\
 `Find out how to watch the St. Louis Blues play the Calgary Flames, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6708650/2025/10/11/blues-vs-flames-stream-how-to-watch-oct-11/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/11/world/middleeast/israel-hamas-plans.html
 **Three pressing offseason questions for the Phillies**\
 `Winter came earlier and harsher than anyone with the Phillies expected. Now what? `\
 https://nytimes.com/athletic/6707023/2025/10/11/phillies-offseason-2026-roster-schwarber-realmuto-rob-thomson/
-
-**Peace in Trump’s Time — Except Here**\
-`Peace abroad and war at home — not very America first!`\
-https://nytimes.com/2025/10/11/opinion/trump-nobel-peace-prize.html
 
