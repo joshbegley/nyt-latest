@@ -1,3 +1,7 @@
+**At Least 4 Dead and a Dozen Wounded in Mississippi Shooting, Official Says**\
+`It was unclear what led up to the shooting in Leland, Miss., which happened as the city was celebrating homecoming weekend, the mayor said.`\
+https://nytimes.com/2025/10/11/us/leland-mississippi-mass-shooting.html
+
 **Pochettino preached calm amid USMNT negativity. His team just proved him right**\
 `The perception of the head coach and his team's readiness for the World Cup has been helped by two solid performances`\
 https://nytimes.com/athletic/6708320/2025/10/11/mauricio-pochettino-calm-usmnt-ecuador/
