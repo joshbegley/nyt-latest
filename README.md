@@ -20,7 +20,7 @@ https://nytimes.com/athletic/6706487/2025/10/11/man-utd-ownership-latest-glazers
 
 **Meet the worst football team in the world... and their superstar hairdresser**\
 `Ibis Sport Club once went almost four years without winning a game - the Brazilians' attitude to their status has brought them global fame`\
-https://nytimes.com/athletic/6679595/2025/10/11/meet-the-worst-football-team-in-the-world-and-their-superstar-hairdresser/
+https://nytimes.com/athletic/6679595/2025/10/11/worst-football-team-world-brazil/
 
 **Who will be Barcelona's next breakthrough youngster?**\
 `Barca's production line never stops. Here, we break down the players looking to emulate Yamal and Co`\
