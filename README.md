@@ -1,3 +1,7 @@
+**Mariners name Bryce Miller as ALCS Game 1 starter against Blue Jays**\
+`Miller will pitch on three days' rest for the first time in his career. Kevin Gausman will start Game 1 for Toronto.`\
+https://nytimes.com/athletic/6709112/2025/10/11/mariners-bryce-miller-game-1-starter-alcs-blue-jays/
+
 **C.D.C. Layoffs Included 2 Top Measles Experts Amid Rising Cases**\
 `Scientists who focused on other infectious diseases, like Ebola, now spreading in the Democratic Republic of Congo, also were let go.`\
 https://nytimes.com/2025/10/11/health/cdc-layoffs-measles.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6708986/2025/10/11/mammoth-vs-predators-stream-how-
 **How to watch Flyers vs. Hurricanes: Time, TV, streaming**\
 `Find out how to watch the Philadelphia Flyers play the Carolina Hurricanes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6708983/2025/10/11/flyers-vs-hurricanes-stream-how-to-watch-oct-11/
-
-**How to watch Rangers vs. Penguins: Time, TV, streaming**\
-`Find out how to watch the New York Rangers play the Pittsburgh Penguins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6708982/2025/10/11/rangers-vs-penguins-stream-how-to-watch-oct-11/
 
