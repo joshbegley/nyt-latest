@@ -1,3 +1,7 @@
+**NWSL executive committee approves 3-year extension for commissioner: Sources**\
+`The committee retained the vote because they were concerned it would not pass in front of the full 16-team board of governors.`\
+https://nytimes.com/athletic/6708143/2025/10/10/nwsl-commissioner-jessica-berman-extension/
+
 **USMNT 1, Ecuador 1: Balogun's deserved goal punctuates promising showing**\
 `The USMNT took on a tough South American opponent, played well and got the goal to show for it in a positive overall performance`\
 https://nytimes.com/athletic/6707982/2025/10/10/usmnt-ecuador-friendly-score-valencia-balogun-video-pochettino/
