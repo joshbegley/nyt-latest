@@ -1,3 +1,7 @@
+**Five Great Diane Keaton Performances to Stream**\
+`The actress, who died on Saturday at 79, was known for both her dramatic heft and her comedic gifts. Here are some of her highlights.`\
+https://nytimes.com/2025/10/11/movies/diane-keaton-movies-streaming.html
+
 **Northwestern edges Penn State as Nittany Lions stack stunning losses**\
 `A week after being stunned at the Rose Bowl by previously-winless UCLA, Penn State lost 22-21 to visiting Northwestern on Saturday.`\
 https://nytimes.com/athletic/6709502/2025/10/11/northwestern-edges-penn-state/
