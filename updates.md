@@ -1,3 +1,7 @@
+**No Survivors Were Found at Tennessee Plant Explosion, Officials Say**\
+`Sheriff Chris Davis of Humphreys County said earlier that 18 people were missing after the blast at the ammunition plant. On Saturday, he said investigators were looking for remains.`\
+https://nytimes.com/video/us/100000010453924/tennessee-plant-explosion-presser.html
+
 **Luka Dončić to play in two of Lakers’ final four preseason games**\
 `Dončić was a full participant in Saturday's practice, and Lakers coach JJ Redick said the star guard was “TBD” for Sunday.`\
 https://nytimes.com/athletic/6709355/2025/10/11/luka-doncic-lakers-preseason-debut/
