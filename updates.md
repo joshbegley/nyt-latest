@@ -1,3 +1,7 @@
+**Valentin Vacherot beats ailing Novak Djokovic to extend spectacular Shanghai Masters run**\
+`Vacherot will make his first ATP Tour final appearance at one of the biggest events of the sport. Djokovic will recalibrate his body again.`\
+https://nytimes.com/athletic/6708435/2025/10/11/valentin-vacherot-novak-djokovic-shanghai-masters/
+
 **‘It just continues’: A new generation of Mariners heroes craft a baseball classic in Seattle**\
 `Still seeking the first pennant in team history, the Mariners are headed to the ALCS for the first time since 2001.`\
 https://nytimes.com/athletic/6708441/2025/10/11/seattle-mariners-new-generation-alcs/
