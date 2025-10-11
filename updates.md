@@ -1,3 +1,15 @@
+**Tennis cousins final is on as Arthur Rinderknech faces Valentin Vacherot at Shanghai Masters**\
+`They are French and Monégasque cousins. They are professional tennis players. Now they meet in the match of their careers.`\
+https://nytimes.com/athletic/6708746/2025/10/11/tennis-cousins-arthur-rinderknech-valentin-vacherot-shanghai-masters/
+
+**Boot Big Football From the N.C.A.A.**\
+`The Power Four schools should go their own way and give other sports a chance to shine.`\
+https://nytimes.com/2025/10/11/opinion/college-football-ncaa-conference.html
+
+**Israelis to Rally for Hostages in Gaza, Hoping It Will Be the Last Time**\
+`“The entire nation holds its breath,” said the organizers of a weekly protest in Tel Aviv, as the cease-fire paved the way for the release of the remaining hostages.`\
+https://nytimes.com/2025/10/11/world/middleeast/israel-hostages-square-rally.html
+
 **At Least 4 Dead and a Dozen Wounded in Mississippi Shooting, Official Says**\
 `It was unclear what led up to the shooting in Leland, Miss., which happened as the city was celebrating homecoming weekend, the mayor said.`\
 https://nytimes.com/2025/10/11/us/leland-mississippi-mass-shooting.html
