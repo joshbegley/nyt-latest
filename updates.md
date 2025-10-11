@@ -1,3 +1,7 @@
+**Judge Signals She Is Likely to Order Abrego Garcia’s Release Soon**\
+`The judge expressed frequent frustrations with the Trump administration, saying it had presented a “totally inconsistent” case to keep the Maryland man in immigration detention.`\
+https://nytimes.com/2025/10/10/us/politics/abrego-garcia-hearing.html
+
 **Bucksnort, Tenn., is a tight-knit community where neighbors help one another.**\
 `By Pooja Salhotra`\
 https://nytimes.com/live/2025/10/10/us/explosion-tennessee/bucksnort-tenn-is-a-tight-knit-community-where-neighbors-help-one-another

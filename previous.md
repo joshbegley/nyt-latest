@@ -1,3 +1,7 @@
+**Judge Signals She Is Likely to Order Abrego Garcia’s Release Soon**\
+`The judge expressed frequent frustrations with the Trump administration, saying it had presented a “totally inconsistent” case to keep the Maryland man in immigration detention.`\
+https://nytimes.com/2025/10/10/us/politics/abrego-garcia-hearing.html
+
 **Bucksnort, Tenn., is a tight-knit community where neighbors help one another.**\
 `By Pooja Salhotra`\
 https://nytimes.com/live/2025/10/10/us/explosion-tennessee/bucksnort-tenn-is-a-tight-knit-community-where-neighbors-help-one-another
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6707094/2025/10/10/christian-pulisic-usmnt-ecuador-
 **Clark Olofsson, 78, Dies; Bank Robber Helped Inspire ‘Stockholm Syndrome’**\
 `In a 1973 heist, he and another man held hostages who surprisingly came to defend them, drawing attention to a puzzling psychological phenomenon.`\
 https://nytimes.com/2025/10/10/world/europe/clark-olofsson-dead.html
-
-**Cowboys' Miles Sanders to have season-ending knee surgery**\
-`Sanders appeared in Dallas' first four games this season, logging 20 carries for 117 yards and one touchdown.`\
-https://nytimes.com/athletic/6707696/2025/10/10/miles-sanders-injury-surgery-cowboys/
 
