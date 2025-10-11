@@ -1,3 +1,7 @@
+**Chiefs will revisit some Week 1 ghosts when facing Lions on Sunday. Here's why**\
+`The Chiefs' defense had a weakness exposed in the opener against the Chargers. It happens to be what the Lions do best.`\
+https://nytimes.com/athletic/6707127/2025/10/11/chiefs-lions-defense-play-action/
+
 **Following Through**\
 `We love it when people cancel plans, but the cost may be steeper than we realize.`\
 https://nytimes.com/2025/10/11/briefing/following-through.html
