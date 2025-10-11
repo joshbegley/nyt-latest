@@ -1,3 +1,11 @@
+**Vincent Trocheck out week to week with upper-body injury: What it means for the Rangers**\
+`The injury takes away one of New York’s most versatile players who can play in the team's top six.`\
+https://nytimes.com/athletic/6708880/2025/10/11/vincent-trocheck-rangers-injury/
+
+**Biden Is Receiving Radiation Therapy for Cancer**\
+`The former president, who was diagnosed with an aggressive form of prostate cancer in May, also had a cancerous lesion removed from his forehead recently.`\
+https://nytimes.com/2025/10/11/us/politics/biden-cancer-radiation.html
+
 **Why Won’t Pokémon Evolve?**\
 `Pokémon is a game series all about evolution. So why has it taken the franchise so long to evolve? Zachary Small, a culture reporter for The New York Times, breaks down how the company’s structure may stymie innovation.`\
 https://nytimes.com/video/arts/100000010450870/why-wont-pokemon-evolve.html
