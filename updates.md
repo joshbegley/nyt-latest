@@ -1,3 +1,7 @@
+**Marsch's Canada has much to ponder after frustrating Australia defeat**\
+`Marsch's team did not have an answer for Nestory Irankunda's late strike`\
+https://nytimes.com/athletic/6708052/2025/10/10/jesse-marsch-canada-australia-world-cup/
+
 **Judge Signals She Is Likely to Order Abrego Garcia’s Release Soon**\
 `The judge expressed frequent frustrations with the Trump administration, saying it had presented a “totally inconsistent” case to keep the Maryland man in immigration detention.`\
 https://nytimes.com/2025/10/10/us/politics/abrego-garcia-hearing.html
