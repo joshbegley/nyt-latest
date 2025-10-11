@@ -1,3 +1,11 @@
+**How to watch Blues vs. Flames: Time, TV, streaming**\
+`Find out how to watch the St. Louis Blues play the Calgary Flames, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6708650/2025/10/11/blues-vs-flames-stream-how-to-watch-oct-11/
+
+**Jessica Pegula dethrones Aryna Sabalenka at Wuhan Open after tense finale**\
+`Pegula has played eight three-set matches in a row, winning seven of them, but saved her best for the world No. 1.`\
+https://nytimes.com/athletic/6708596/2025/10/11/jessica-pegula-aryna-sabalenka-wuhan-open/
+
 **Luigi Mangione’s Lawyers Challenge Death Penalty Charge in Federal Case**\
 `The lawyers asked a federal judge to drop some charges, including the only one eligible for the death penalty.`\
 https://nytimes.com/2025/10/11/nyregion/luigi-mangione-case-death-penalty.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6707023/2025/10/11/phillies-offseason-2026-roster-s
 **Peace in Trump’s Time — Except Here**\
 `Peace abroad and war at home — not very America first!`\
 https://nytimes.com/2025/10/11/opinion/trump-nobel-peace-prize.html
-
-**Why Can’t Trump’s Domestic Policy Be More Like His Foreign Policy?**\
-`Three keys to his success on the world stage could be applied at home.`\
-https://nytimes.com/2025/10/11/opinion/trump-foreign-policy-domestic.html
-
-**This Isn’t Crisis Response, It’s Crisis Construction**\
-`We’re arresting working parents, students, asylum seekers and even U.S. citizens to create made-for-TV crackdowns.`\
-https://nytimes.com/2025/10/11/opinion/ice-trump-safety-crisis.html
 
