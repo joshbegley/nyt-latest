@@ -1,3 +1,7 @@
+**Wave of Criticism Greets Macron’s Repeat Pick for Prime Minister: ‘Bad Joke’**\
+`After appointing the same person prime minister for the second time in a week, President Emmanuel Macron is facing calls to explain his stubbornness or resign.`\
+https://nytimes.com/2025/10/11/world/europe/france-macron-lecornu-prime-minister.html
+
 **China Flexed. Trump Hit Back. So Much for the Thaw.**\
 `Beijing’s trade curbs and President Trump’s tariff threats show how quickly calm can give way to confrontation between the two largest economies.`\
 https://nytimes.com/2025/10/11/world/asia/china-trump-tariff-threat.html
