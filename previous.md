@@ -1,3 +1,7 @@
+**The Patriots offense may be one-dimensional, but Drake Maye is so good it might not matter**\
+`The Patriots struggled to run the ball against the Saints on Sunday, but their second-year quarterback lifted them to victory anyway.`\
+https://nytimes.com/athletic/6711749/2025/10/12/patriots-drake-maye-offense-new-orleans-saints/
+
 **Buccaneers rookie WR Emeka Egbuka ruled out vs. 49ers with hamstring injury**\
 `The Bucs are already without receivers Mike Evans and Chris Godwin and starting running back Bucky Irving.`\
 https://nytimes.com/athletic/6711771/2025/10/12/buccaneers-emeka-egbuka-hamstring-injury/
@@ -34,8 +38,4 @@ https://nytimes.com/2025/10/12/crosswords/daily-puzzle-2025-10-13.html
 **How good is the Penn State job? James Franklin replacement has rare opportunity**\
 `Penn State is a top-10 or top-15 job in college football that has plenty of recent success and resources, making it an attractive opening.`\
 https://nytimes.com/athletic/6711494/2025/10/12/penn-state-football-coaching-search-job-grade/
-
-**Are the Steelers AFC contenders? What are the Jets doing? NFL Week 6 takeaways**\
-`Also: The Seahawks and Chargers earned impressive road wins, while the Panthers have won two straight to reach .500.`\
-https://nytimes.com/athletic/6711082/2025/10/12/nfl-takeaways-week-6-scores-results/
 
