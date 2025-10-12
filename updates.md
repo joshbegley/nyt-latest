@@ -1,3 +1,11 @@
+**China Detains Dozens of Members of Underground Church**\
+`The church’s pastor, Ezra Jin Mingri, turned Zion Church into one of China’s largest unofficial congregations, even as government pressure on Christianity increased.`\
+https://nytimes.com/2025/10/11/world/asia/china-church-pastor-detained.html
+
+**Blackhawks observations: Artyom Levshunov plans to go on the defensive after scratch**\
+`Levshunov was a healthy scratch in the home opener against the Montreal Canadiens — a 3-2 Blackhawks loss.`\
+https://nytimes.com/athletic/6709859/2025/10/11/blackhawks-artyom-levshunov-scratch-canadiens-observations/
+
 **USC-Michigan takeaways: Trojans roll up 489 yards of offense in statement win**\
 `The Trojans beat No. 15 Michigan 31-13 on Saturday night to improve to 5-1 and 3-1 in the Big Ten.`\
 https://nytimes.com/athletic/6709852/2025/10/11/usc-michigan-college-football-score-analysis-takeaways/
