@@ -1,3 +1,7 @@
+**Mandel: The audacity of schools crying for money while paying $45M buyouts to CFB coaches**\
+`Schools are clamoring for a way to control student athlete payments. We've yet to hear about coach contracts, of course.`\
+https://nytimes.com/athletic/6711427/2025/10/12/college-football-buyouts-penn-state/
+
 **Eagles mailbag: Send your questions to Zach Berman**\
 `Eagles mailbag: Send your questions to Zach Berman`\
 https://nytimes.com/athletic/6711554/2025/10/12/eagles-mailbag-questions-zach-berman/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/10/12/us/trump-news/trump-leaves-for-a-visit-to-is
 **Behind Drake Maye, Patriots push winning streak to three games.**\
 `With the 25-19 victory, New England matched its win total from each of the past two seasons.`\
 https://nytimes.com/athletic/6711267/2025/10/12/patriots-vs-saints-takeaways-results-nfl/
-
-**Chargers-Dolphins takeaways: L.A. ends skid, beating Miami with late drive**\
-`Cameron Dicker's game-winning field goal is set up by Justin Herbert-to-Ladd McConkey 42-yard pass play.`\
-https://nytimes.com/athletic/6710978/2025/10/12/chargers-vs-dolphins-takeaways-results-nfl/
 
