@@ -1,3 +1,11 @@
+**How to watch Mariners at Blue Jays: Game 1 Time, TV, streaming**\
+`Find out how to watch the Seattle Mariners play the Toronto Blue Jays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6709654/2025/10/11/mariners-vs-blue-jays-stream-how-to-watch-oct-12/
+
+**No Survivors Were Found After Tennessee Plant Explosion, Officials Said**\
+`Sheriff Chris Davis of Humphreys County said earlier that 16 people were missing after the blast at the ammunition plant. On Saturday, he said investigators were looking for remains.`\
+https://nytimes.com/video/us/100000010454166/tennessee-munitions-plant-explosion-deaths.html
+
 **Stay out of the tent: NFL sends reminder to teams after Jaxson Dart incident**\
 `The New York Giants coach was too eager to check on injured quarterback Jaxson Dart. The league is reminding all 32 teams not to do that.`\
 https://nytimes.com/athletic/6709391/2025/10/11/brian-daboll-concussion-memo/
