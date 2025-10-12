@@ -1,3 +1,11 @@
+**No Survivors Were Found at Tennessee Plant Explosion, Officials Say**\
+`Sheriff Chris Davis of Humphreys County said earlier that 18 people were missing after the blast at the ammunition plant. On Saturday, he said investigators were looking for remains.`\
+https://nytimes.com/video/us/100000010454166/tennessee-munitions-plant-explosion-deaths.html
+
+**Diane Keaton’s Unmistakable Look Also Was Key to Her Art**\
+`Though she downplayed it, her role in creating the outfits of “Annie Hall” made her the author of a fascinating career.`\
+https://nytimes.com/2025/10/11/movies/diane-keaton-annie-hall.html
+
 **Ubben: Alabama is no longer invincible, but it doesn't have to be**\
 `Forget the impossible standards set by the Nick Saban era. Alabama's tough win at Missouri without its best stuff is worth appreciating.`\
 https://nytimes.com/athletic/6709420/2025/10/11/alabama-missouri-kalen-deboer-football/
