@@ -1,3 +1,7 @@
+**49ers star linebacker Fred Warner carted off, ruled out with ankle injury**\
+`Add Warner to the 49ers' ever-growing list of injuries this season.`\
+https://nytimes.com/athletic/6711536/2025/10/12/49ers-fred-warner-ankle-injury/
+
 **Trump Has Not Ruled Out Invoking Insurrection Act to Deploy National Guard, Vance Says**\
 `Vice President JD Vance asserted in an interview on NBC News’ “Meet the Press” that crime was “out of control” in major U.S. cities.`\
 https://nytimes.com/2025/10/12/us/politics/jd-vance-trump-insurrection-act.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6711128/2025/10/12/oregon-state-coaching-candidates
 **Helicopter Crash in Southern California Injures At Least 3 Bystanders**\
 `The two people onboard were safely pulled from the wreckage on Saturday, the police said. The severity of the victims’ injuries was not made clear.`\
 https://nytimes.com/video/us/100000010454868/helicopter-crash-huntington-beach-ca.html
-
-**James Franklin is out at Penn State: Can the Nittany Lions lure Curt Cignetti from Indiana?**\
-`Cignetti, who has engineered an amazing turnaround at Indiana, and Nebraska's Matt Rhule will be top targets. `\
-https://nytimes.com/athletic/6711353/2025/10/12/james-franklin-penn-state-candidates-curt-cignetti-matt-rhule/
 
