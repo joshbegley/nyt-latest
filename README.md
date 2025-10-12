@@ -1,3 +1,7 @@
+**Diane Keaton in ‘Reds’: A Remarkable Performance but Also a Returning Point**\
+`Her character, an early-20th-century journalist, undergoes the most dramatic transformation of the film in ways that the actress was especially suited for.`\
+https://nytimes.com/2025/10/12/movies/diane-keaton-reds.html
+
 **How Easton Cowan made the Maple Leafs: Inside the journey from underdog to pro**\
 `Many questioned if he should have been a first-round pick at all. Now, Easton Cowan is in the NHL. He's 'never felt this ready.'`\
 https://nytimes.com/athletic/6693674/2025/10/12/maple-leafs-easton-cowan-prospect-nhl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6710791/2025/10/12/mark-sanchez-released-hospital/
 **Often Overlooked, Diane Keaton Was Essential to ‘The Godfather’ Saga**\
 `The star’s emotional transparency and expressive eyes helped us see the Corleones as both fascinating and repellent, just as her character did.`\
 https://nytimes.com/2025/10/12/movies/diane-keaton-the-godfather.html
-
-**Oregon State fires coach Trent Bray after 0-7 start: Source**\
-`Oregon State has gotten off to a disastrous start to the season, its worst program start since 1991.`\
-https://nytimes.com/athletic/6710888/2025/10/12/trent-bray-oregon-state-coach-fire/
 

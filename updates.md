@@ -1,3 +1,11 @@
+**How Easton Cowan made the Maple Leafs: Inside the journey from underdog to pro**\
+`Many questioned if he should have been a first-round pick at all. Now, Easton Cowan is in the NHL. He's 'never felt this ready.'`\
+https://nytimes.com/athletic/6693674/2025/10/12/maple-leafs-easton-cowan-prospect-nhl/
+
+**The Texas Tech tortilla-tossing controversy explained: Heated exchanges, 15-yard penalties**\
+`Texas Tech coach Joey McGuire has pleaded with his fans to limit their tortillas throwing. It hasn't worked. `\
+https://nytimes.com/athletic/6711015/2025/10/12/texas-tech-tortilla-joey-mcguire-lance-leipold/
+
 **Mark Sanchez has mugshot taken, says he's 'focused on recovery' after stabbing**\
 `Sanchez was hospitalized Oct. 4 after being stabbed during his alleged attack on a 69-year-old truck driver.`\
 https://nytimes.com/athletic/6710791/2025/10/12/mark-sanchez-released-hospital/
