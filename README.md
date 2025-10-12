@@ -1,3 +1,11 @@
+**Mark Sanchez 'focused on recovery' after stabbing in Indianapolis**\
+`Sanchez was hospitalized last Saturday after being stabbed during his alleged attack on a 69-year-old truck driver.`\
+https://nytimes.com/athletic/6710791/2025/10/12/mark-sanchez-released-hospital/
+
+**Often Overlooked, Diane Keaton Was Essential to ‘The Godfather’ Saga**\
+`The star’s emotional transparency and expressive eyes helped us see the Corleones as both fascinating and repellent, just as her character did.`\
+https://nytimes.com/2025/10/12/movies/diane-keaton-the-godfather.html
+
 **Oregon State fires coach Trent Bray after 0-7 start: Source**\
 `Oregon State has gotten off to a disastrous start to the season, its worst program start since 1991.`\
 https://nytimes.com/athletic/6710888/2025/10/12/trent-bray-oregon-state-coach-fire/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6710843/2025/10/12/jacoby-brissett-kyler-murray-inj
 **How Trump’s Chicago Immigration Crackdown Escalated, in 10 Videos**\
 `Week by week, the federal campaign to ramp up immigration enforcement in the Chicago area has created fear and inflamed tensions.`\
 https://nytimes.com/2025/10/12/us/chicago-immigration-crackdown-videos.html
-
-**Jets-Broncos: New York lets clock run out before halftime in baffling move**\
-`The Jets ran out the clock out with runs, short passes, and by not snapping the ball on fourth down.`\
-https://nytimes.com/athletic/6710820/2025/10/12/broncos-vs-jets-london-takeaways-results-nfl/
-
-**Bangladesh Detains Army Officers Accused of Crimes Under Previous Regime**\
-`The arrest warrants, issued for more than two dozen people, were part of the country’s continuing struggle to come to terms with its authoritarian past.`\
-https://nytimes.com/2025/10/12/world/asia/bangladesh-arrests-hasina-crimes.html
 
