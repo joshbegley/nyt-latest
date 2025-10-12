@@ -1,6 +1,10 @@
+**USC-Michigan takeaways: Trojans roll up 489 yards of offense in statement win**\
+`The Trojans beat No. 15 Michigan 31-13 on Saturday night to improve to 5-1 and 3-1 in the Big Ten.`\
+https://nytimes.com/athletic/6709852/2025/10/11/usc-michigan-college-football-score-analysis-takeaways/
+
 **The final four teams are set. Which Championship Series clubs have the best home-field advantage?**\
 `All ballparks are electric in the home team’s best postseason moments, but some crowds are more fearsome than others. So who tops our list?`\
-https://nytimes.com/athletic/6709080/2025/10/11/mlb-playoffs-2025-dodgers-cubs-brewers-blue-jays-mariners-2/
+https://nytimes.com/athletic/6709080/2025/10/11/mlb-playoffs-2025-dodgers-brewers-blue-jays-mariners/
 
 **Cubs-Brewers Game 5 takeaways: Milwaukee rides power, 'pen to NLCS**\
 `The Brewers will play host to the Dodgers, who previously dispatched the Phillies. `\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/11/arts/diane-keatona-life-in-pictures.html
 **How to watch Mariners at Blue Jays: Game 1 Time, TV, streaming**\
 `Find out how to watch the Seattle Mariners play the Toronto Blue Jays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6709654/2025/10/11/mariners-vs-blue-jays-stream-how-to-watch-oct-12/
-
-**Stay out of the tent: NFL sends reminder to teams after Jaxson Dart incident**\
-`The New York Giants coach was too eager to check on injured quarterback Jaxson Dart. The league is reminding all 32 teams not to do that.`\
-https://nytimes.com/athletic/6709391/2025/10/11/brian-daboll-concussion-memo/
 

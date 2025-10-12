@@ -1,3 +1,7 @@
+**Blackhawks observations: Artyom Levshunov plans to go on the defensive after scratch**\
+`Levshunov was a healthy scratch in the home opener against the Montreal Canadiens — a 3-2 Blackhawks loss.`\
+https://nytimes.com/athletic/6709859/2025/10/11/blackhawks-artyom-levshunov-scratch-canadiens-observations/
+
 **USC-Michigan takeaways: Trojans roll up 489 yards of offense in statement win**\
 `The Trojans beat No. 15 Michigan 31-13 on Saturday night to improve to 5-1 and 3-1 in the Big Ten.`\
 https://nytimes.com/athletic/6709852/2025/10/11/usc-michigan-college-football-score-analysis-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6709639/2025/10/11/oklahoma-texas-loss-score-red-ri
 **Diane Keaton: A Life in Pictures**\
 `On and off the screen, the star with a distinctive fashion sense was a singular presence.`\
 https://nytimes.com/2025/10/11/arts/diane-keatona-life-in-pictures.html
-
-**How to watch Mariners at Blue Jays: Game 1 Time, TV, streaming**\
-`Find out how to watch the Seattle Mariners play the Toronto Blue Jays, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6709654/2025/10/11/mariners-vs-blue-jays-stream-how-to-watch-oct-12/
 

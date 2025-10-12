@@ -1,3 +1,11 @@
+**USC-Michigan takeaways: Trojans roll up 489 yards of offense in statement win**\
+`The Trojans beat No. 15 Michigan 31-13 on Saturday night to improve to 5-1 and 3-1 in the Big Ten.`\
+https://nytimes.com/athletic/6709852/2025/10/11/usc-michigan-college-football-score-analysis-takeaways/
+
+**The final four teams are set. Which Championship Series clubs have the best home-field advantage?**\
+`All ballparks are electric in the home team’s best postseason moments, but some crowds are more fearsome than others. So who tops our list?`\
+https://nytimes.com/athletic/6709080/2025/10/11/mlb-playoffs-2025-dodgers-brewers-blue-jays-mariners/
+
 **The final four teams are set. Which Championship Series clubs have the best home-field advantage?**\
 `All ballparks are electric in the home team’s best postseason moments, but some crowds are more fearsome than others. So who tops our list?`\
 https://nytimes.com/athletic/6709080/2025/10/11/mlb-playoffs-2025-dodgers-cubs-brewers-blue-jays-mariners-2/
