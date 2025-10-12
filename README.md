@@ -1,3 +1,11 @@
+**This year's Senators are trying to emulate the Panthers. They've got a ways to go**\
+`Florida rose to the top of the league by being unapologetically physical and impenetrable, qualities the Ottawa Senators want. `\
+https://nytimes.com/athletic/6709387/2025/10/12/senators-panthers-ullmark-maurice-green/
+
+**Until Saturday: Indiana's title path is legit this time**\
+`Until Saturday is The Athletic's free CFB newsletter.`\
+https://nytimes.com/athletic/6710594/2025/10/12/indiana-football-oregon-playoff-until-saturday/
+
 **Trump Announces Longtime Aide Dan Scavino as Head of Personnel**\
 `Mr. Scavino, one of Mr. Trump’s most trusted advisers and a deputy chief of staff, has been by his side since the 2016 campaign.`\
 https://nytimes.com/2025/10/12/us/politics/dan-scavino-trump-white-house-personnel.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6710511/2025/10/12/coco-gauff-wuhan-open-jessica-pe
 **From problems to impact players, 7 observations from the first 2 Wild games**\
 `Minnesota is dealing with issues on its second line and struggling on faceoffs.`\
 https://nytimes.com/athletic/6710114/2025/10/12/minnesota-wild-observations/
-
-**Trump Administration Live Updates: President to Travel to Israel for Hostage Release**\
-``\
-https://nytimes.com/live/2025/10/12/us/trump-news
-
-**Olympic hopefuls and celebrities team up to showcase flag football: 'The sky's the limit'**\
-`Flag football will make its debut at the 2028 Olympics. A celebrity event in London was another step towards growing the sport`\
-https://nytimes.com/athletic/6709512/2025/10/12/flag-football-nfl-london-olympics-gunna/
 

@@ -1,6 +1,10 @@
+**Trump Announces Longtime Aide Dan Scavino as Head of Personnel**\
+`Mr. Scavino, one of Mr. Trump’s most trusted advisers and a deputy chief of staff, has been by his side since the 2016 campaign.`\
+https://nytimes.com/2025/10/12/us/politics/dan-scavino-trump-white-house-personnel.html
+
 **‘S.N.L.’ Trots Out Amy Poehler and Tina Fey for a Senate Judiciary Grilling**\
 `Now, it truly has been 50 years since the show’s debut, and that was celebrated with a few more surprises, including cameos by Charli XCX and Seth Meyers.`\
-https://nytimes.com/2025/10/12/arts/television/snl-trots-out-amy-poehler-and-tina-fey-for-a-senate-judiciary-grilling.html
+https://nytimes.com/2025/10/12/arts/television/snl-recap-amy-poehler-tina-fey.html
 
 **Surging Jaguars, desperate Bengals, Lions-Chiefs showdown lead NFL Week 6 storylines**\
 `Monday will also feature the second showdown between Caleb Williams and Jayden Daniels, the top two picks of the 2024 draft.`\
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/10/12/us/trump-news
 **Olympic hopefuls and celebrities team up to showcase flag football: 'The sky's the limit'**\
 `Flag football will make its debut at the 2028 Olympics. A celebrity event in London was another step towards growing the sport`\
 https://nytimes.com/athletic/6709512/2025/10/12/flag-football-nfl-london-olympics-gunna/
-
-**Canadiens rookie Ivan Demidov, targeted by Blackhawks, further shows what he’s all about**\
-`Demidov is incredibly skilled, and everyone knows that. But he showed something against the Blackhawks that might have been less known. `\
-https://nytimes.com/athletic/6710102/2025/10/12/canadiens-ivan-demidov-rookie-season-nhl/
 

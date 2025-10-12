@@ -1,3 +1,11 @@
+**Trump Announces Longtime Aide Dan Scavino as Head of Personnel**\
+`Mr. Scavino, one of Mr. Trump’s most trusted advisers and a deputy chief of staff, has been by his side since the 2016 campaign.`\
+https://nytimes.com/2025/10/12/us/politics/dan-scavino-trump-white-house-personnel.html
+
+**‘S.N.L.’ Trots Out Amy Poehler and Tina Fey for a Senate Judiciary Grilling**\
+`Now, it truly has been 50 years since the show’s debut, and that was celebrated with a few more surprises, including cameos by Charli XCX and Seth Meyers.`\
+https://nytimes.com/2025/10/12/arts/television/snl-recap-amy-poehler-tina-fey.html
+
 **‘S.N.L.’ Trots Out Amy Poehler and Tina Fey for a Senate Judiciary Grilling**\
 `Now, it truly has been 50 years since the show’s debut, and that was celebrated with a few more surprises, including cameos by Charli XCX and Seth Meyers.`\
 https://nytimes.com/2025/10/12/arts/television/snl-trots-out-amy-poehler-and-tina-fey-for-a-senate-judiciary-grilling.html
