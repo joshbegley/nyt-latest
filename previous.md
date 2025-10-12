@@ -1,8 +1,12 @@
+**Cars to Fighter Jets: China’s New Export Curbs May Level a Heavy Blow Worldwide**\
+`Broad restrictions could cause supply interruptions for arms makers, as well as manufacturers in the semiconductor, automotive and other sectors.`\
+https://nytimes.com/2025/10/12/business/china-rare-earth-export-controls.html
+
 **Broncos-Jets takeaways: N.Y. still winless as Denver wins defensive battle**\
 `Offense was at a premium in the first half of the Jets' game against the Broncos on Sunday in London. In the second half, it was even worse.`\
 https://nytimes.com/athletic/6710933/2025/10/12/broncos-vs-jets-london-takeaways-results-nfl-2/
 
-**Mark Sanchez 'focused on recovery' after stabbing in Indianapolis**\
+**Mark Sanchez has mugshot taken, says he's 'focused on recovery' after stabbing**\
 `Sanchez was hospitalized last Saturday after being stabbed during his alleged attack on a 69-year-old truck driver.`\
 https://nytimes.com/athletic/6710791/2025/10/12/mark-sanchez-released-hospital/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6710830/2025/10/12/julian-nagelsmann-florian-wirtz-
 **Mariners ace Bryan Woo added to ALCS roster ahead of Game 1 vs. Blue Jays**\
 `The staff ace has not pitched since leaving a start Sept. 19 with what was later diagnosed as pectoral inflammation.`\
 https://nytimes.com/athletic/6710834/2025/10/12/bryan-woo-mariners-alcs-roster/
-
-**With Kyler Murray inactive, Jacoby Brissett will start at QB for Cardinals**\
-`It will be Brissett's first start for Arizona, which signed him in March.`\
-https://nytimes.com/athletic/6710843/2025/10/12/jacoby-brissett-kyler-murray-injured-cardinals-quarterback/
 

@@ -1,3 +1,7 @@
+**Susan Griffin, a Leading Voice of Ecofeminism, Is Dead at 82**\
+`With books like “Woman and Nature,” she pioneered a unique form of creative nonfiction, linking violence against women to the ravaging of the environment.`\
+https://nytimes.com/2025/10/12/books/susan-griffin-dead.html
+
 **Cars to Fighter Jets: China’s New Export Curbs May Level a Heavy Blow Worldwide**\
 `Broad restrictions could cause supply interruptions for arms makers, as well as manufacturers in the semiconductor, automotive and other sectors.`\
 https://nytimes.com/2025/10/12/business/china-rare-earth-export-controls.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/12/arts/music/danny-thompson-dead.html
 **Nagelsmann defends Wirtz's Liverpool form: 'It's not his fault'**\
 `Nagelsmann’s comments come after Jurgen Klopp insisted there is no need to worry about “one-in-a-generation talent” Wirtz.`\
 https://nytimes.com/athletic/6710830/2025/10/12/julian-nagelsmann-florian-wirtz-liverpool/
-
-**Mariners ace Bryan Woo added to ALCS roster ahead of Game 1 vs. Blue Jays**\
-`The staff ace has not pitched since leaving a start Sept. 19 with what was later diagnosed as pectoral inflammation.`\
-https://nytimes.com/athletic/6710834/2025/10/12/bryan-woo-mariners-alcs-roster/
 

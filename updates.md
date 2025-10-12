@@ -1,3 +1,11 @@
+**Cars to Fighter Jets: China’s New Export Curbs May Level a Heavy Blow Worldwide**\
+`Broad restrictions could cause supply interruptions for arms makers, as well as manufacturers in the semiconductor, automotive and other sectors.`\
+https://nytimes.com/2025/10/12/business/china-rare-earth-export-controls.html
+
+**Mark Sanchez has mugshot taken, says he's 'focused on recovery' after stabbing**\
+`Sanchez was hospitalized last Saturday after being stabbed during his alleged attack on a 69-year-old truck driver.`\
+https://nytimes.com/athletic/6710791/2025/10/12/mark-sanchez-released-hospital/
+
 **Broncos-Jets takeaways: N.Y. still winless as Denver wins defensive battle**\
 `Offense was at a premium in the first half of the Jets' game against the Broncos on Sunday in London. In the second half, it was even worse.`\
 https://nytimes.com/athletic/6710933/2025/10/12/broncos-vs-jets-london-takeaways-results-nfl-2/
