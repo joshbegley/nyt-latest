@@ -6,7 +6,7 @@ https://nytimes.com/athletic/6708610/2025/10/12/dodgers-brewers-nl-championship-
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/12/todays-new-york-times
 
-**When Doctors Don’t Agree on Who Should Get a Transplant**\
+**Who Deserves an Organ? The Dilemma of Severe Mental Illness.**\
 `Patients’ mental health problems can make transplant decisions even more fraught.`\
 https://nytimes.com/2025/10/12/opinion/organ-transplant-mental-illness.html
 
