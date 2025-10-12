@@ -1,3 +1,15 @@
+**‘S.N.L.’ Trots Out Amy Poehler and Tina Fey for a Senate Judiciary Grilling**\
+`Now, it truly has been 50 years since the show’s debut, and that was celebrated with a few more surprises, including cameos by Charli XCX and Seth Meyers.`\
+https://nytimes.com/2025/10/12/arts/television/snl-trots-out-amy-poehler-and-tina-fey-for-a-senate-judiciary-grilling.html
+
+**Surging Jaguars, desperate Bengals, Lions-Chiefs showdown lead NFL Week 6 storylines**\
+`Monday will also feature the second showdown between Caleb Williams and Jayden Daniels, the top two picks of the 2024 draft.`\
+https://nytimes.com/athletic/6703954/2025/10/12/nfl-week-6-storylines-chiefs-lions-bengals-jaguars/
+
+**The Pulse: Indiana serves notice**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6709940/2025/10/12/indiana-is-a-legit-title-contender-in-football-no-way-around-it/
+
 **A Scammy Job Offer Over Text? I’ll Take It!**\
 `It’s too good to be true, and I’m OK with that.`\
 https://nytimes.com/2025/10/12/opinion/culture/a-scammy-job-offer-over-text-ill-take-it.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6709512/2025/10/12/flag-football-nfl-london-olympic
 **Canadiens rookie Ivan Demidov, targeted by Blackhawks, further shows what he’s all about**\
 `Demidov is incredibly skilled, and everyone knows that. But he showed something against the Blackhawks that might have been less known. `\
 https://nytimes.com/athletic/6710102/2025/10/12/canadiens-ivan-demidov-rookie-season-nhl/
-
-**Mandel's Final Thoughts: Is James Franklin done? Plus, Indiana and Arch Manning shine in Week 7**\
-`As Indiana takes another step in its miraculous turnaround, Penn State is imploding. Plus, Arch Manning beats Oklahoma and more takeaways.`\
-https://nytimes.com/athletic/6710188/2025/10/12/college-football-scores-results-week-7/
-
-**For Pochettino’s USMNT, McKennie creates a ‘good problem’**\
-`Weston McKennie, back with the national team, relishes freedom but finding a slot for him is tricky.`\
-https://nytimes.com/athletic/6709658/2025/10/12/usmnt-mauricio-pochettino-weston-mckennie/
-
-**Lowetide: Why Oilers prospects could fill the net across the hockey world**\
-`After years of uneven results, Oilers prospects are giving an indication that this season might be different.`\
-https://nytimes.com/athletic/6708952/2025/10/12/edmonton-oilers-prospects-2025-season/
 

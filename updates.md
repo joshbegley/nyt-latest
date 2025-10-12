@@ -1,3 +1,15 @@
+**‘S.N.L.’ Trots Out Amy Poehler and Tina Fey for a Senate Judiciary Grilling**\
+`Now, it truly has been 50 years since the show’s debut, and that was celebrated with a few more surprises, including cameos by Charli XCX and Seth Meyers.`\
+https://nytimes.com/2025/10/12/arts/television/snl-trots-out-amy-poehler-and-tina-fey-for-a-senate-judiciary-grilling.html
+
+**Surging Jaguars, desperate Bengals, Lions-Chiefs showdown lead NFL Week 6 storylines**\
+`Monday will also feature the second showdown between Caleb Williams and Jayden Daniels, the top two picks of the 2024 draft.`\
+https://nytimes.com/athletic/6703954/2025/10/12/nfl-week-6-storylines-chiefs-lions-bengals-jaguars/
+
+**The Pulse: Indiana serves notice**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6709940/2025/10/12/indiana-is-a-legit-title-contender-in-football-no-way-around-it/
+
 **A Scammy Job Offer Over Text? I’ll Take It!**\
 `It’s too good to be true, and I’m OK with that.`\
 https://nytimes.com/2025/10/12/opinion/culture/a-scammy-job-offer-over-text-ill-take-it.html
