@@ -1,3 +1,7 @@
+**Kirill Marchenko breaks through with his 4th career hat trick in Blue Jackets win**\
+`Marchenko now has 12 shots on goal in two games.`\
+https://nytimes.com/athletic/6709952/2025/10/12/kirill-marchenko-blue-jackets-hat-trick-wild/
+
 **The Sabres' 0-2 start is familiar and concerning: 5 thoughts**\
 `How have things gone this badly this quickly for the Sabres? Things aren't about to get easier, and they've already dug themselves a hole.`\
 https://nytimes.com/athletic/6709919/2025/10/12/buffalo-sabres-boston-bruins-0-2-start/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6699332/2025/10/12/jets-broncos-nfl-london-tottenha
 **Quote of the Day: Comic Con Lets You Be a Superhero, if Just for One Day**\
 `Quotation of the Day for Sunday, October 12, 2025.`\
 https://nytimes.com/2025/10/12/pageoneplus/quote-of-the-day-comic-con-lets-you-be-a-superhero-if-just-for-one-day.html
-
-**Connections: Sports Edition Coach: Hints for Oct. 12, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6709413/2025/10/12/connections-sports-edition-hints-for-oct-12-2025/
 
