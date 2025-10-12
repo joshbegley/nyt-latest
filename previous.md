@@ -1,3 +1,7 @@
+**Did Auburn's Jackson Arnold fumble? Controversial goal line call gives Georgia momentum**\
+`If the call had been overturned, Auburn would have gone up 17-0, assuming a made extra point. Instead, it was 10-3 at the half.`\
+https://nytimes.com/athletic/6709703/2025/10/11/auburn-georgia-fumble-jackson-arnold-controversy/
+
 **Blue Jays ALCS Notes: Room for Chris Bassitt and Max Scherzer, Bo Bichette's status**\
 `The best-of-seven ALCS — compared with the LDS — puts more demand on starting pitching, so Scherzer and Bassitt might be active.`\
 https://nytimes.com/athletic/6709621/2025/10/11/blue-jays-alcs-chris-bassitt-max-scherzer-bo-bichette/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/11/movies/diane-keaton-annie-hall.html
 **Ubben: Alabama is no longer invincible, but it doesn't have to be**\
 `Forget the impossible standards set by the Nick Saban era. Alabama's tough win at Missouri without its best stuff is worth appreciating.`\
 https://nytimes.com/athletic/6709420/2025/10/11/alabama-missouri-kalen-deboer-football/
-
-**Jesse L. Douglas, Aide to King in Marches From Selma, Is Dead at 90**\
-`A lieutenant to Martin Luther King Jr. and a fellow preacher, he played a vital role in organizing voting-rights protests in 1965 that began with “Bloody Sunday.”`\
-https://nytimes.com/2025/10/11/us/jesse-l-douglas-dead.html
 

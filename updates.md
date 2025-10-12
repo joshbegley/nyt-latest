@@ -1,3 +1,7 @@
+**Did Auburn's Jackson Arnold fumble? Controversial goal line call gives Georgia momentum**\
+`If the call had been overturned, Auburn would have gone up 17-0, assuming a made extra point. Instead, it was 10-3 at the half.`\
+https://nytimes.com/athletic/6709703/2025/10/11/auburn-georgia-fumble-jackson-arnold-controversy/
+
 **Blue Jays ALCS Notes: Room for Chris Bassitt and Max Scherzer, Bo Bichette's status**\
 `The best-of-seven ALCS — compared with the LDS — puts more demand on starting pitching, so Scherzer and Bassitt might be active.`\
 https://nytimes.com/athletic/6709621/2025/10/11/blue-jays-alcs-chris-bassitt-max-scherzer-bo-bichette/
