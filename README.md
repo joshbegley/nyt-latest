@@ -1,3 +1,7 @@
+**Nebraska fans and players have been through a lot. Saturday's win was one to cherish**\
+`Nebraska came from behind on its final possession at Maryland to win a game for the first time since 2017.`\
+https://nytimes.com/athletic/6710570/2025/10/12/nebraska-maryland-matt-rhule-record-2025/
+
 **USC showed what it's capable of — now the Trojans have to prove that's who they are**\
 `USC was the more physical team against an opponent that overwhelmed the Trojans along the line of scrimmage a year ago.`\
 https://nytimes.com/athletic/6710567/2025/10/12/usc-lincoln-riley-michigan-big-ten-playoff/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6703954/2025/10/12/nfl-week-6-storylines-chiefs-lio
 **The Pulse: Indiana serves notice**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6709940/2025/10/12/indiana-is-a-legit-title-contender-in-football-no-way-around-it/
-
-**A Scammy Job Offer Over Text? I’ll Take It!**\
-`It’s too good to be true, and I’m OK with that.`\
-https://nytimes.com/2025/10/12/opinion/culture/a-scammy-job-offer-over-text-ill-take-it.html
 
