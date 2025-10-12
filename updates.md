@@ -1,3 +1,7 @@
+**Diane Keaton:A Life in Pictures**\
+`On and off the screen, the star with a distinctive fashion sense was a singular presence.`\
+https://nytimes.com/2025/10/11/arts/diane-keatona-life-in-pictures.html
+
 **How to watch Mariners at Blue Jays: Game 1 Time, TV, streaming**\
 `Find out how to watch the Seattle Mariners play the Toronto Blue Jays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6709654/2025/10/11/mariners-vs-blue-jays-stream-how-to-watch-oct-12/

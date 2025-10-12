@@ -1,3 +1,7 @@
+**Diane Keaton:A Life in Pictures**\
+`On and off the screen, the star with a distinctive fashion sense was a singular presence.`\
+https://nytimes.com/2025/10/11/arts/diane-keatona-life-in-pictures.html
+
 **How to watch Mariners at Blue Jays: Game 1 Time, TV, streaming**\
 `Find out how to watch the Seattle Mariners play the Toronto Blue Jays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6709654/2025/10/11/mariners-vs-blue-jays-stream-how-to-watch-oct-12/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/11/us/mayor-bass-austin-beutner.html
 **Nebraska at Maryland: Huskers raise ceiling with comeback road win, and more takeaways**\
 `These Huskers perhaps aren’t a 10-win team. But maybe that’s changing after securing a third victory in the closing minutes.`\
 https://nytimes.com/athletic/6709419/2025/10/11/nebraska-maryland-score-result-football/
-
-**Texas-Oklahoma takeaways: Longhorns beat No. 6 Sooners, reignite CFP hopes**\
-`Arch Manning and Texas finally figured some things out on Saturday afternoon and picked up their first Power 4 win of the season.`\
-https://nytimes.com/athletic/6709386/2025/10/11/texas-oklahoma-college-football-score-analysis-takeaways/
 
