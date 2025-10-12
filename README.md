@@ -7,7 +7,7 @@ https://nytimes.com/2025/10/12/dining/chicken-enchiladas-make-ahead-breakfast-sa
 https://nytimes.com/2025/10/12/arts/dance/nyc-ballet-iris-van-herpen-jamar-roberts.html
 
 **Bo Bichette not healthy enough to make Blue Jays' ALCS roster against Mariners**\
-`With a need for more pitching in a seven-game series, both Chris Bassitt and Max Scherzer were added after being left off for ALDS.`\
+`Also, Chris Bassitt and Max Scherzer were added to the roster with a need for more pitching in the seven-game ALCS.`\
 https://nytimes.com/athletic/6710754/2025/10/12/bo-bichette-blue-jays-alcs/
 
 **At Least 4 Dead in Bar Shooting in South Carolina, Sheriff Says**\
