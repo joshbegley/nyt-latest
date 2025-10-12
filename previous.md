@@ -1,3 +1,19 @@
+**Nebraska fans and players have been through a lot. Saturday's win was one to cherish**\
+`Nebraska came from behind on its final possession at Maryland to win a game for the first time since 2017.`\
+https://nytimes.com/athletic/6710570/2025/10/12/nebraska-maryland-matt-rhule-record-2025/
+
+**USC showed what it's capable of — now the Trojans have to prove that's who they are**\
+`USC was the more physical team against an opponent that overwhelmed the Trojans along the line of scrimmage a year ago.`\
+https://nytimes.com/athletic/6710567/2025/10/12/usc-lincoln-riley-michigan-big-ten-playoff/
+
+**What does the College Football Playoff bracket look like after Week 7? USC in, Oklahoma out**\
+`USC's dismantling of Michigan suggests the Trojans are the nation's most overlooked team.`\
+https://nytimes.com/athletic/6710248/2025/10/12/college-football-playoff-2025-bracket-prediction-week-7/
+
+**Smithsonian Museums Close as Government Shutdown Persists**\
+`The institution operates some of the most popular sites in Washington and beyond, including 21 museums, 14 education and research centers and the National Zoo.`\
+https://nytimes.com/2025/10/12/arts/smithsonian-museums-shutdown.html
+
 **This year's Senators are trying to emulate the Panthers. They've got a ways to go**\
 `Florida rose to the top of the league by being unapologetically physical and impenetrable, qualities the Ottawa Senators want. `\
 https://nytimes.com/athletic/6709387/2025/10/12/senators-panthers-ullmark-maurice-green/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6703954/2025/10/12/nfl-week-6-storylines-chiefs-lio
 **The Pulse: Indiana serves notice**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6709940/2025/10/12/indiana-is-a-legit-title-contender-in-football-no-way-around-it/
-
-**A Scammy Job Offer Over Text? I’ll Take It!**\
-`It’s too good to be true, and I’m OK with that.`\
-https://nytimes.com/2025/10/12/opinion/culture/a-scammy-job-offer-over-text-ill-take-it.html
-
-**Rangers revive winning formula of special teams, goaltending in 6-1 victory**\
-`Special teams produced three of the Rangers' first four goals and goalie Igor Shesterkin made 18 saves on 19 shots in Pittsburgh. `\
-https://nytimes.com/athletic/6709823/2025/10/12/new-york-rangers-special-teams-goaltending/
-
-**Coco Gauff produces junk-ball masterclass to win Wuhan Open against Jessica Pegula**\
-`Gauff broke Pegula's rhythm with a mix of speeds and spins to become the second player to win both the China and Wuhan Opens in her career.`\
-https://nytimes.com/athletic/6710511/2025/10/12/coco-gauff-wuhan-open-jessica-pegula/
-
-**From problems to impact players, 7 observations from the first 2 Wild games**\
-`Minnesota is dealing with issues on its second line and struggling on faceoffs.`\
-https://nytimes.com/athletic/6710114/2025/10/12/minnesota-wild-observations/
 
