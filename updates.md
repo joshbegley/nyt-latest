@@ -1,3 +1,11 @@
+**At Least 4 Dead in Bar Shooting in South Carolina, Sheriff Says**\
+`Four people were in critical condition after an early-morning shooting that left at least 20 people injured on Sunday in St. Helena, S.C., according to the Beaufort County Sheriff’s Office.`\
+https://nytimes.com/2025/10/12/us/south-carolina-st-helena-shooting-bar.html
+
+**World Cup Qualifiers Become a Venue for European Protests of Israel**\
+`Israeli soccer officials expected the demonstrations to persist even after a cease-fire took hold in Gaza.`\
+https://nytimes.com/2025/10/12/world/europe/israel-soccer-protests-norway-italy.html
+
 **World Series odds: Dodgers favored, while Mariners and Brewers try to make history**\
 `And then there were four. The Dodgers are big favorites to win it all. Can Milwaukee, Toronto or Seattle stop them? Here's what the odds say`\
 https://nytimes.com/athletic/6710616/2025/10/12/world-series-title-odds-dodgers-brewers-jays-mariners/
