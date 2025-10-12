@@ -1,3 +1,7 @@
+**U.S U-20 World Cup run ends at hands of Morocco**\
+`The U.`\
+https://nytimes.com/athletic/6711677/2025/10/12/us-u-20-world-cup-morocco/
+
 **UAB fires head coach Trent Dilfer midway through third season**\
 `Dilfer went 9-21 as UAB's head coach, including a 2-4 record this year after a loss to Florida Atlantic on Saturday.`\
 https://nytimes.com/athletic/6711727/2025/10/12/trent-dilfer-fired-uab-head-coach/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6711082/2025/10/12/nfl-takeaways-week-6-scores-resu
 **Tua Tagovailoa on Dolphins' issues: 'It starts with the leadership'**\
 `Quarterbacks says some of his teammates show up late to player-only meetings, if they show up at all.`\
 https://nytimes.com/athletic/6711528/2025/10/12/miami-dolphins-tua-tagovailoa-player-meetings/
-
-**Colts hold on as Cardinals' final red-zone drive sputters**\
-`Jonathan Taylor rushed for 123 yards, and the Colts improved to 5-1.`\
-https://nytimes.com/athletic/6711485/2025/10/12/cardinals-vs-colts-takeaways-results-nfl/
 

@@ -1,3 +1,8 @@
+**How James Franklin's $45M Penn State buyout compares to recent coaching changes**\
+`What to know about James Franklin's $45 million Penn State buyout.
+`\
+https://nytimes.com/athletic/6711634/2025/10/12/penn-state-james-franklin-buyout-explained/
+
 **UAB fires head coach Trent Dilfer midway through third season**\
 `Dilfer went 9-21 as UAB's head coach, including a 2-4 record this year after a loss to Florida Atlantic on Saturday.`\
 https://nytimes.com/athletic/6711727/2025/10/12/trent-dilfer-fired-uab-head-coach/
