@@ -1,3 +1,11 @@
+**Palace have had 'early' Glasner contract talks, says Parish**\
+`Glasner's Palace deal runs out at the end of this season, with his future the subject of speculation in recent weeks.`\
+https://nytimes.com/athletic/6710653/2025/10/12/oliver-glasner-contract-palace-wharton/
+
+**WATCH: Why Bucs QB Baker Mayfield is an early NFL MVP candidate**\
+`Mayfield has thrown down the field better and more often than just about any quarterback in the league this season.`\
+https://nytimes.com/athletic/6707469/2025/10/12/baker-mayfield-mvp-video-buccaneers/
+
 **WATCH: Why Bucs QB Baker Mayfield is an early MVP candidate**\
 `Mayfield has thrown down the field better and more often than just about any quarterback in the league this season.`\
 https://nytimes.com/athletic/6707469/2025/10/12/baker-mayfield-mvp-video-buccaneers/
