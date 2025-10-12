@@ -1,3 +1,7 @@
+**After another loss to Texas, Oklahoma and Brent Venables' troubles could just be beginning**\
+`Oklahoma travels next week to South Carolina and then plays five teams that entered Saturday ranked in the top 15.`\
+https://nytimes.com/athletic/6709639/2025/10/11/oklahoma-texas-loss-score-red-river/
+
 **Diane Keaton:A Life in Pictures**\
 `On and off the screen, the star with a distinctive fashion sense was a singular presence.`\
 https://nytimes.com/2025/10/11/arts/diane-keatona-life-in-pictures.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/11/us/jesse-l-douglas-dead.html
 **In L.A., a Former Ally of Mayor Bass Is Expected to Run Against Her**\
 `The former supporter, Austin Beutner, who once led the city’s public schools as superintendent, is expected to challenge Ms. Bass’s re-election bid in next year’s mayoral race.`\
 https://nytimes.com/2025/10/11/us/mayor-bass-austin-beutner.html
-
-**Nebraska at Maryland: Huskers raise ceiling with comeback road win, and more takeaways**\
-`These Huskers perhaps aren’t a 10-win team. But maybe that’s changing after securing a third victory in the closing minutes.`\
-https://nytimes.com/athletic/6709419/2025/10/11/nebraska-maryland-score-result-football/
 
