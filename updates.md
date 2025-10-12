@@ -1,3 +1,12 @@
+**U.S U-20 World Cup run ends at hands of Morocco**\
+`The U.`\
+https://nytimes.com/athletic/6711677/2025/10/12/us-u-20-world-cup-morocco/
+
+**How James Franklin's $45M Penn State buyout compares to recent coaching changes**\
+`What to know about James Franklin's $45 million Penn State buyout.
+`\
+https://nytimes.com/athletic/6711634/2025/10/12/penn-state-james-franklin-buyout-explained/
+
 **How James Franklin's $45M Penn State buyout compares to recent coaching changes**\
 `What to know about James Franklin's $45 million Penn State buyout.
 `\
