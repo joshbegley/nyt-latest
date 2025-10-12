@@ -1,3 +1,7 @@
+**Olympic hopefuls and celebrities team up to showcase flag football: 'The sky's the limit'**\
+`Flag football will make its debut at the 2028 Olympics. A celebrity event in London was another step towards growing the sport`\
+https://nytimes.com/athletic/6709512/2025/10/12/olympic-hopefuls-and-celebrities-team-up-to-showcase-flag-football-the-skys-the-limit/
+
 **Canadiens rookie Ivan Demidov, targeted by Blackhawks, further shows what he’s all about**\
 `Demidov is incredibly skilled, and everyone knows that. But he showed something against the Blackhawks that might have been less known. `\
 https://nytimes.com/athletic/6710102/2025/10/12/canadiens-ivan-demidov-rookie-season-nhl/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/12/world/asia/afghanistan-pakistan-violence-conflict
 **How can T.J. Edwards, Kyler Gordon help the run defense? Bears mailbag, Week 6 picks**\
 `How will the Bears respond to their return to Washington? Can their run defense be fixed? The weekly mailbag and our game picks.`\
 https://nytimes.com/athletic/6707539/2025/10/12/bears-mailbag-tj-edwards-kyler-gordon/
-
-**The officiating was controversial. But it wasn't the only reason Auburn lost to Georgia**\
-`Auburn had control of the game against Georgia — until it lost control, after a series of calls that didn’t go its way.`\
-https://nytimes.com/athletic/6710151/2025/10/12/auburn-georgia-officiating-college-football/
 
