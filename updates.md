@@ -1,3 +1,7 @@
+**Israelis and Palestinians Await Hostage-Prisoner Swap With Relief and Elation**\
+`Under the first phase of the new cease-fire deal, all living hostages in Gaza are expected to be released in the next 24 hours in exchange for about 2,000 Palestinians imprisoned by Israel.`\
+https://nytimes.com/2025/10/12/world/middleeast/israel-gaza-hostages-prisoners-ceasefire.html
+
 **'The building was shaking': An oral history of Noah Brown's Hail Mary catch to beat the Bears**\
 `The people involved in one of the most stunning final plays in recent NFL history look back at an unforgettable moment.`\
 https://nytimes.com/athletic/6701525/2025/10/12/commanders-bears-hail-mary-2024-jayden-daniels-noah-brown/
