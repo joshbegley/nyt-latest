@@ -1,3 +1,7 @@
+**Broncos-Jets takeaways: N.Y. still winless as Denver wins defensive battle**\
+`Offense was at a premium in the first half of the Jets' game against the Broncos on Sunday in London. In the second half, it was even worse.`\
+https://nytimes.com/athletic/6710933/2025/10/12/broncos-vs-jets-london-takeaways-results-nfl-2/
+
 **Mark Sanchez 'focused on recovery' after stabbing in Indianapolis**\
 `Sanchez was hospitalized last Saturday after being stabbed during his alleged attack on a 69-year-old truck driver.`\
 https://nytimes.com/athletic/6710791/2025/10/12/mark-sanchez-released-hospital/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6710834/2025/10/12/bryan-woo-mariners-alcs-roster/
 **With Kyler Murray inactive, Jacoby Brissett will start at QB for Cardinals**\
 `It will be Brissett's first start for Arizona, which signed him in March.`\
 https://nytimes.com/athletic/6710843/2025/10/12/jacoby-brissett-kyler-murray-injured-cardinals-quarterback/
-
-**How Trump’s Chicago Immigration Crackdown Escalated, in 10 Videos**\
-`Week by week, the federal campaign to ramp up immigration enforcement in the Chicago area has created fear and inflamed tensions.`\
-https://nytimes.com/2025/10/12/us/chicago-immigration-crackdown-videos.html
 

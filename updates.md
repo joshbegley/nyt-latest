@@ -1,3 +1,11 @@
+**Mark Sanchez 'focused on recovery' after stabbing in Indianapolis**\
+`Sanchez was hospitalized last Saturday after being stabbed during his alleged attack on a 69-year-old truck driver.`\
+https://nytimes.com/athletic/6710791/2025/10/12/mark-sanchez-released-hospital/
+
+**Often Overlooked, Diane Keaton Was Essential to ‘The Godfather’ Saga**\
+`The star’s emotional transparency and expressive eyes helped us see the Corleones as both fascinating and repellent, just as her character did.`\
+https://nytimes.com/2025/10/12/movies/diane-keaton-the-godfather.html
+
 **Oregon State fires coach Trent Bray after 0-7 start: Source**\
 `Oregon State has gotten off to a disastrous start to the season, its worst program start since 1991.`\
 https://nytimes.com/athletic/6710888/2025/10/12/trent-bray-oregon-state-coach-fire/
