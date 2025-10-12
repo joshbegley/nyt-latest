@@ -1,3 +1,7 @@
+**Blue Jays ALCS Notes: Room for Chris Bassitt and Max Scherzer, Bo Bichette's status**\
+`The best-of-seven ALCS — compared with the LDS — puts more demand on starting pitching, so Scherzer and Bassitt might be active.`\
+https://nytimes.com/athletic/6709621/2025/10/11/blue-jays-alcs-chris-bassitt-max-scherzer-bo-bichette/
+
 **After another loss to Texas, Oklahoma and Brent Venables' troubles could just be beginning**\
 `Oklahoma travels next week to South Carolina and then plays five teams that entered Saturday ranked in the top 15.`\
 https://nytimes.com/athletic/6709639/2025/10/11/oklahoma-texas-loss-score-red-river/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6709420/2025/10/11/alabama-missouri-kalen-deboer-fo
 **Jesse L. Douglas, Aide to King in Marches From Selma, Is Dead at 90**\
 `A lieutenant to Martin Luther King Jr. and a fellow preacher, he played a vital role in organizing voting-rights protests in 1965 that began with “Bloody Sunday.”`\
 https://nytimes.com/2025/10/11/us/jesse-l-douglas-dead.html
-
-**In L.A., a Former Ally of Mayor Bass Is Expected to Run Against Her**\
-`The former supporter, Austin Beutner, who once led the city’s public schools as superintendent, is expected to challenge Ms. Bass’s re-election bid in next year’s mayoral race.`\
-https://nytimes.com/2025/10/11/us/mayor-bass-austin-beutner.html
 
