@@ -1,3 +1,11 @@
+**Canadiens rookie Ivan Demidov, targeted by Blackhawks, further shows what he’s all about**\
+`Demidov is incredibly skilled, and everyone knows that. But he showed something against the Blackhawks that might have been less known. `\
+https://nytimes.com/athletic/6710102/2025/10/12/canadiens-ivan-demidov-rookie-season-nhl/
+
+**The officiating was controversial. But it wasn't the only reason Auburn lost to Georgia**\
+`Auburn had control of the game against Georgia — until it lost control, after a series of calls that didn’t go its way.`\
+https://nytimes.com/athletic/6710151/2025/10/12/auburn-georgia-officiating-college-football/
+
 **Mandel's Final Thoughts: Is James Franklin done? Plus, Indiana and Arch Manning shine in Week 7**\
 `As Indiana takes another step in its miraculous turnaround, Penn State is imploding. Plus, Arch Manning beats Oklahoma and more takeaways.`\
 https://nytimes.com/athletic/6710188/2025/10/12/college-football-scores-results-week-7/
