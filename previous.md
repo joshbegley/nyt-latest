@@ -1,40 +1,40 @@
-**Cubs, Kyle Tucker go quiet in NLDS Game 5 loss as they head into an offseason of questions**\
-`MILWAUKEE — Kyle Tucker strode up to the plate in the top of the sixth inning and ground his left foot into the dirt.`\
-https://nytimes.com/athletic/6710156/2025/10/12/chicago-cubs-kyle-tucker-offseason-questions-nlds/
+**'The building was shaking': An oral history of Noah Brown's Hail Mary catch to beat the Bears**\
+`The people involved in one of the most stunning final plays in recent NFL history look back at an unforgettable moment.`\
+https://nytimes.com/athletic/6701525/2025/10/12/commanders-bears-hail-mary-2024-jayden-daniels-noah-brown/
 
-**ALCS predictions: Our experts pick whether the Mariners or Blue Jays will win the pennant**\
-`Will the Blue Jays or Mariners take home the AL crown? Our experts weigh in with their predictions.`\
-https://nytimes.com/athletic/6709526/2025/10/12/alcs-staff-predictions-blue-jays-mariners/
+**Yohe's 10 observations: Penguins humbled in Mike Sullivan’s ‘emotional’ return to Pittsburgh**\
+`Sullivan returned to Pittsburgh and so did a number of the Penguins' bad habits in a 6-1 loss to New York.`\
+https://nytimes.com/athletic/6709656/2025/10/12/penguins-rangers-mike-sullivan-return/
 
-**Identifying which NLCS and ALCS teams have the momentum and who will be the surprise heroes**\
-`Championship Series week is the best one of the season. Who has the momentum? Who will be the players to watch? Who will play surprise hero?`\
-https://nytimes.com/athletic/6708211/2025/10/12/mlb-league-championship-series-previews/
+**Red Wings respond to Todd McLellan's challenge, highlighting his value**\
+`McLellan's public challenge made the Red Wings' 6-3 win over the Maple Leafs Saturday more significant than a typical early-October game.`\
+https://nytimes.com/athletic/6709811/2025/10/12/todd-mclellan-red-wings-opener/
 
-**Brewers vanquish Cubs, early-round postseason demons to advance to NLCS**\
-`To get to the NLCS, Milwaukee received crucial contributions from a trio of players who were not on the roster a season ago.`\
-https://nytimes.com/athletic/6710073/2025/10/12/milwaukee-brewers-nlcs-advance-postseason-demons/
+**Olympian Marion Jones is done apologizing for her past: 'It made me a better person'**\
+`Celebrating her 50th birthday, Jones is living a positive life and refuses to let a past scandal interfere with her present.`\
+https://nytimes.com/athletic/6699303/2025/10/12/marion-jones-balco-olympics-wnba/
 
-**The New York Times International Edition in Print for Monday, Oct. 13, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/10/12/todays-new-york-times-international-edition
+**The Matthew Schaefer-New York Islanders love affair has begun**\
+`Saturday, Schaefer gave the crowd the first of what the franchise hopes will be countless can't-forget moments in an Islanders jersey.`\
+https://nytimes.com/athletic/6709995/2025/10/12/matthew-schaefer-new-york-islanders-love-affair-has-begun/
 
-**3 Qatari Officials Die in Car Crash in Egypt Before Gaza Summit**\
-`The crash was in Sharm el Sheikh, where indirect talks between Israel and Hamas led to a breakthrough deal. The city will also host a summit on Monday.`\
-https://nytimes.com/2025/10/12/world/middleeast/qatar-egypt-crash-sharm-el-sheikh.html
+**Josh Norris is out long-term. What are Buffalo's options to replace him?**\
+`Buffalo will be without Norris, the No. 1 center to open the season, for a "significant amount of time," according to Lindy Ruff.`\
+https://nytimes.com/athletic/6709747/2025/10/12/buffalo-sabres-josh-norris-injury/
 
-**Social Media Restrictions and 2-Day Internet Shutdown Rattle Afghanistan**\
-`A telecommunications blackout and restrictions on social media have further isolated Afghans who rely on the internet as a lifeline.`\
-https://nytimes.com/2025/10/12/world/asia/social-media-restrictions-and-2-day-internet-shutdown-rattle-afghanistan.html
+**‘Bruins hockey right there’: Nikita Zadorov is a monster, and he has company**\
+`The Bruins beat the Sabres 3-1 Saturday to take a 3-0-0 start to their season.`\
+https://nytimes.com/athletic/6709915/2025/10/12/nikita-zadorov-bruins-hockey/
 
-**The Destructive Legacy of California’s Zombie Fires**\
-`Blazes that firefighters thought had died but then later came roaring back to life have become increasingly common, heightening scrutiny of how first-responders put out wildfires.`\
-https://nytimes.com/2025/10/12/us/palisades-zombie-fires.html
+**Cubs' marathon season ends in quiet, frustrating showing in winner-take-all NLDS Game 5**\
+`The baseball industry certainly isn’t designed to be fair. In the end, though, the Cubs probably got what they deserved.`\
+https://nytimes.com/athletic/6710217/2025/10/12/chicago-cubs-nlds-game-5-eliminated/
 
-**He’s Cuing a New Era at One of America’s Oldest Orchestras**\
-`Cristian Macelaru has started his tenure as the music director of the storied Cincinnati Symphony Orchestra.`\
-https://nytimes.com/2025/10/12/arts/music/cristian-macelaru-cincinnati-symphony-orchestra.html
+**Sunday Special: Bringing Broadway Home**\
+`How to experience the best of the theater world in your living room`\
+https://nytimes.com/2025/10/12/podcasts/the-daily/sunday-special-bringing-broadway-home.html
 
-**Air Traffic Controllers Reject Credit for Ending the Last Shutdown**\
-`Controllers missing work was widely cited as the reason the last shutdown came to an end. But that assumption might have been overblown, according to controllers, aviation safety experts and congressional aides.`\
-https://nytimes.com/2025/10/12/us/politics/air-traffic-controllers-shutdown.html
+**Wordle Review No. 1,577**\
+`Scroll down for hints and conversation about the puzzle for Monday, Oct. 13, 2025.`\
+https://nytimes.com/2025/10/12/crosswords/wordle-review-1577.html
 
