@@ -1,3 +1,16 @@
+**Small Plane Crashes Into Semitrailers Near Texas Airfield**\
+`It was unknown what led up to the crash or if there were any injuries.`\
+https://nytimes.com/2025/10/12/us/fort-worth-plane-crash-hicks-field.html
+
+**Aaron Glenn played not to lose in London. The Jets lost the game, and angered a star.**\
+`A Justin Fields-led offense produced next to nothing as the Jets fell to 0-6.`\
+https://nytimes.com/athletic/6711693/2025/10/12/new-york-jets-london-loss-denver-broncos/
+
+**How James Franklin's $45M Penn State buyout compares to recent coaching changes**\
+`What to know about James Franklin's $45 million Penn State buyout.
+`\
+https://nytimes.com/athletic/6711634/2025/10/12/penn-state-james-franklin-buyout-explained/
+
 **Diane Keaton, Oscar-Winning Actress, Dies at 79**\
 `Diane Keaton, the vibrant and sometimes unconventional actress, author and filmmaker, has died. Representatives have not said where or when Ms. Keaton died or cited a cause.`\
 https://nytimes.com/video/us/100000010454658/oscar-winning-actress-diane-keaton-obituary.html
@@ -25,16 +38,4 @@ https://nytimes.com/athletic/6711485/2025/10/12/cardinals-vs-colts-takeaways-res
 **China’s High Ambitions for Clean Energy**\
 `Our Beijing bureau chief Keith Bradsher reports on new solar and wind projects on the Tibetan Plateau.`\
 https://nytimes.com/2025/10/12/world/china-clean-energy-solar-israel-gaza-hostage-madagascar-coup.html
-
-**'It's just really sad': Blue Jays' Trey Yesavage addresses negativity directed toward family**\
-`"I know I have the platform to address it," Toronto's 22-year-old starter said. "So I am."`\
-https://nytimes.com/athletic/6711496/2025/10/12/blue-jays-trey-yesavage-negativity-family/
-
-**Mandel: The audacity of schools crying for money while paying $45M buyouts to CFB coaches**\
-`Schools are clamoring for a way to control student athlete payments. We've yet to hear about coach contracts, of course.`\
-https://nytimes.com/athletic/6711427/2025/10/12/college-football-buyouts-penn-state/
-
-**Eagles mailbag: Send your questions to Zach Berman**\
-`Eagles mailbag: Send your questions to Zach Berman`\
-https://nytimes.com/athletic/6711554/2025/10/12/eagles-mailbag-questions-zach-berman/
 

@@ -1,3 +1,16 @@
+**Small Plane Crashes Into Semitrailers Near Texas Airfield**\
+`It was unknown what led up to the crash or if there were any injuries.`\
+https://nytimes.com/2025/10/12/us/fort-worth-plane-crash-hicks-field.html
+
+**Aaron Glenn played not to lose in London. The Jets lost the game, and angered a star.**\
+`A Justin Fields-led offense produced next to nothing as the Jets fell to 0-6.`\
+https://nytimes.com/athletic/6711693/2025/10/12/new-york-jets-london-loss-denver-broncos/
+
+**How James Franklin's $45M Penn State buyout compares to recent coaching changes**\
+`What to know about James Franklin's $45 million Penn State buyout.
+`\
+https://nytimes.com/athletic/6711634/2025/10/12/penn-state-james-franklin-buyout-explained/
+
 **Diane Keaton, Oscar-Winning Actress, Dies at 79**\
 `Diane Keaton, the vibrant and sometimes unconventional actress, author and filmmaker, has died. Representatives have not said where or when Ms. Keaton died or cited a cause.`\
 https://nytimes.com/video/us/100000010454658/oscar-winning-actress-diane-keaton-obituary.html
