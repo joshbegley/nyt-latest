@@ -1,3 +1,19 @@
+**‘My Older Brother Made Sure That I Grew Up to Be a Yankees Fan’**\
+`Confusion over a baseball cap, swapping stories of clothing mishaps and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/10/12/nyregion/metropolitan-diary.html
+
+**Bolivia Pushes to Reclaim the Coca Leaf From the Stigma of Cocaine**\
+`Long criminalized as the raw material for cocaine, coca is woven into Bolivian life. The government is lobbying the U.N. to ease international restrictions.`\
+https://nytimes.com/2025/10/12/world/americas/bolivia-coca-plant-leaf-cocaine.html
+
+**What to Know About the Battle for a Casino License in New York City**\
+`The gambling industry has long dreamed of opening a casino in the largest metropolitan area in the United States. Four proposals are vying for approval from state authorities.`\
+https://nytimes.com/2025/10/12/nyregion/nyc-casinos.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/10/12/crosswords/spelling-bee-forum.html
+
 **Who Deserves an Organ? The Dilemma of Severe Mental Illness.**\
 `Patients’ mental health problems can make transplant decisions even more fraught.`\
 https://nytimes.com/2025/10/12/opinion/organ-transplant-mental-illness.html
