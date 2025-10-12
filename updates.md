@@ -1,3 +1,7 @@
+**Georgia-Auburn takeaways: Officiating drama and a dominant Bulldogs second half**\
+`No. 10 Georgia overcame a slow start to squeeze out a controversial 20-10 win at Auburn on Saturday night.`\
+https://nytimes.com/athletic/6709893/2025/10/11/georgia-auburn-score-result-football/
+
 **China Detains Dozens of Members of Underground Church**\
 `The church’s pastor, Ezra Jin Mingri, turned Zion Church into one of China’s largest unofficial congregations, even as government pressure on Christianity increased.`\
 https://nytimes.com/2025/10/11/world/asia/china-church-pastor-detained.html
