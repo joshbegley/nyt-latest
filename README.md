@@ -1,3 +1,15 @@
+**Rangers revive winning formula of special teams, goaltending in 6-1 victory**\
+`Special teams produced three of the Rangers' first four goals and goalie Igor Shesterkin made 18 saves on 19 shots in Pittsburgh. `\
+https://nytimes.com/athletic/6709823/2025/10/12/new-york-rangers-special-teams-goaltending/
+
+**Coco Gauff produces junk-ball masterclass to win Wuhan Open against Jessica Pegula**\
+`Gauff broke Pegula's rhythm with a mix of speeds and spins to become the second player to win both the China and Wuhan Opens in her career.`\
+https://nytimes.com/athletic/6710511/2025/10/12/coco-gauff-wuhan-open-jessica-pegula/
+
+**From problems to impact players, 7 observations from the first 2 Wild games**\
+`Minnesota is dealing with issues on its second line and struggling on faceoffs.`\
+https://nytimes.com/athletic/6710114/2025/10/12/minnesota-wild-observations/
+
 **Trump Administration Live Updates: President to Travel to Israel for Hostage Release**\
 ``\
 https://nytimes.com/live/2025/10/12/us/trump-news
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6708952/2025/10/12/edmonton-oilers-prospects-2025-s
 **Rethinking Bruce Springsteen’s Difficult Years**\
 `A film argues that an American icon may have made his best music in some of his lowest moments.`\
 https://nytimes.com/2025/10/12/us/bruce-springsteen-film-hostage-tennessee-keaton.html
-
-**Valentin Vacherot triumphs over Arthur Rinderknech in emotional Shanghai Masters final between two cousins**\
-`Vacherot defeated Rinderknech at the Shanghai Masters in three sets, to close out the most remarkable ATP Tour story of the year.`\
-https://nytimes.com/athletic/6710351/2025/10/12/valentin-vacherot-arthur-rinderknech-cousins-tennis-shanghai-masters/
-
-**College Football Playoff takeaways: Indiana, Ohio State on collision course in Big Ten**\
-`The Big Ten, SEC and ACC all have two undefeated teams left that don't play other. Here's what we learned about the Playoff in Week 7.`\
-https://nytimes.com/athletic/6710333/2025/10/12/college-football-playoff-race-indiana-ohio-state/
-
-**Overnight Violence Between Afghanistan and Pakistan Threatens a Wider Conflict**\
-`Isolated confrontations have intensified over the past week into the sharpest escalation of violence between the two countries in years.`\
-https://nytimes.com/2025/10/12/world/asia/afghanistan-pakistan-violence-conflict.html
 
