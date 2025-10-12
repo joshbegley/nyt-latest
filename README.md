@@ -1,3 +1,15 @@
+**Can Premier League’s silent decision-makers learn from Bundesliga sporting directors?**\
+`The Premier League is a source of absolute fascination - and yet those who make the calls which determine a club’s direction rarely speak`\
+https://nytimes.com/athletic/6696969/2025/10/12/premier-league-transfers-sporting-directors-silent/
+
+**The pride of a British-born captain of a Caribbean national team**\
+`Brandon Comley's grandfather rarely spoke about being born in Montserrat. Now the Walsall midfielder is representing the nation as captain`\
+https://nytimes.com/athletic/6702938/2025/10/12/brandon-comley-caribbean-british-captain/
+
+**Dodgers need more from Shohei Ohtani: 'We're counting on a recalibration'**\
+`The 3-time NL MVP struggled during the NLDS against Phillies pitchers, and L.A. is hoping he'll bounce back, as he did in last year's NLCS.`\
+https://nytimes.com/athletic/6709825/2025/10/12/shohei-ohtani-dodgers-nlcs-recalibration/
+
 **Zeev Buium scores first NHL goal, but Wild fall short: Takeaways vs. Blue Jackets**\
 `Minnesota rallied from a two-goal deficit, but then watched as Columbus' version of "Kirill" thrilled the Blue Jackets to a 7-4 victory.`\
 https://nytimes.com/athletic/6709728/2025/10/12/wild-blue-jackets-zeev-buium-nhl-goal/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/12/pageoneplus/corrections-oct-12-2025.html
 **At Least 1 Dead and 3 Injured After Shootings at Mississippi Universities**\
 `The shootings at historically Black institutions occurred within about 24 hours of three other shootings across rural Mississippi that left at least eight people dead.`\
 https://nytimes.com/2025/10/11/us/mississippi-shooting-jackson-alcorn.html
-
-**Georgia-Auburn takeaways: Officiating drama and a dominant Bulldogs second half**\
-`No. 10 Georgia overcame a slow start to squeeze out a controversial 20-10 win at Auburn on Saturday night.`\
-https://nytimes.com/athletic/6709893/2025/10/11/georgia-auburn-score-result-football/
-
-**China Detains Dozens of Members of Underground Church**\
-`The church’s pastor, Ezra Jin Mingri, turned Zion Church into one of China’s largest unofficial congregations, even as government pressure on Christianity increased.`\
-https://nytimes.com/2025/10/11/world/asia/china-church-pastor-detained.html
-
-**Blackhawks observations: Artyom Levshunov plans to go on the defensive after scratch**\
-`Levshunov was a healthy scratch in the home opener against the Montreal Canadiens — a 3-2 Blackhawks loss.`\
-https://nytimes.com/athletic/6709859/2025/10/11/blackhawks-artyom-levshunov-scratch-canadiens-observations/
 
