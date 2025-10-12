@@ -1,3 +1,7 @@
+**China Detains Dozens of Members of Underground Church**\
+`The church’s pastor, Ezra Jin Mingri, turned Zion Church into one of China’s largest unofficial congregations, even as government pressure on Christianity increased.`\
+https://nytimes.com/2025/10/11/world/asia/china-church-pastor-detained.html
+
 **Blackhawks observations: Artyom Levshunov plans to go on the defensive after scratch**\
 `Levshunov was a healthy scratch in the home opener against the Montreal Canadiens — a 3-2 Blackhawks loss.`\
 https://nytimes.com/athletic/6709859/2025/10/11/blackhawks-artyom-levshunov-scratch-canadiens-observations/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6709621/2025/10/11/blue-jays-alcs-chris-bassitt-max
 **After another loss to Texas, Oklahoma and Brent Venables' troubles could just be beginning**\
 `Oklahoma travels next week to South Carolina and then plays five teams that entered Saturday ranked in the top 15.`\
 https://nytimes.com/athletic/6709639/2025/10/11/oklahoma-texas-loss-score-red-river/
-
-**Diane Keaton: A Life in Pictures**\
-`On and off the screen, the star with a distinctive fashion sense was a singular presence.`\
-https://nytimes.com/2025/10/11/arts/diane-keatona-life-in-pictures.html
 
