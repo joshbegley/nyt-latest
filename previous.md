@@ -1,3 +1,19 @@
+**ALCS predictions: Our experts pick whether the Mariners or Blue Jays will win the pennant**\
+`Will the Blue Jays or Mariners take home the AL crown? Our experts weigh in with their predictions.`\
+https://nytimes.com/athletic/6709526/2025/10/12/alcs-staff-predictions-blue-jays-mariners/
+
+**Identifying which NLCS and ALCS teams have the momentum and who will be the surprise heroes**\
+`Championship Series week is the best one of the season. Who has the momentum? Who will be the players to watch? Who will play surprise hero?`\
+https://nytimes.com/athletic/6708211/2025/10/12/mlb-league-championship-series-previews/
+
+**Brewers vanquish Cubs, early-round postseason demons to advance to NLCS**\
+`To get to the NLCS, Milwaukee received crucial contributions from a trio of players who were not on the roster a season ago.`\
+https://nytimes.com/athletic/6710073/2025/10/12/milwaukee-brewers-nlcs-advance-postseason-demons/
+
+**The New York Times International Edition in Print for Monday, Oct. 13, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/10/12/todays-new-york-times-international-edition
+
 **3 Qatari Officials Die in Car Crash in Egypt Before Gaza Summit**\
 `The crash was in Sharm el Sheikh, where indirect talks between Israel and Hamas led to a breakthrough deal. The city will also host a summit on Monday.`\
 https://nytimes.com/2025/10/12/world/middleeast/qatar-egypt-crash-sharm-el-sheikh.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/12/us/politics/air-traffic-controllers-shutdown.html
 **One ‘Really Big One’ After Another**\
 `The disaster caused by a predicted large earthquake in the Pacific Northwest could be compounded by shaking along the San Andreas fault in California, scientists warned.`\
 https://nytimes.com/2025/10/12/science/earthquake-san-andreas-cascadia.html
-
-**A Test Now for Israel: Can It Repair Its Ties to Americans?**\
-`Israel’s advocates fear that its conduct of the war has cost it the support of an entire generation of U.S. voters.`\
-https://nytimes.com/2025/10/12/world/middleeast/israel-us-polls-support.html
-
-**‘The Chair Company’ Review: He’s Not Taking This Sitting Down**\
-`In his angry-dad conspiracy thriller, Tim Robinson takes his surreal comedic persona on a longer, weirder journey.`\
-https://nytimes.com/2025/10/12/arts/television/the-chair-company-review.html
-
-**Trump Is Blowing Up Boats Off Venezuela. Could Mexico’s Cartels Be Next?**\
-`U.S. strikes on boats that President Trump says are drug smugglers have unsettled America’s biggest trading partner, where powerful criminal groups produce and smuggle drugs.`\
-https://nytimes.com/2025/10/12/world/americas/mexico-drugs-venezuela-us-military.html
-
-**Black Unemployment Is Surging Again. This Time Is Different.**\
-`Federal layoffs and an end to diversity initiatives have weakened a historically strong labor market for Black workers.`\
-https://nytimes.com/2025/10/12/business/economy/black-unemployment-federal-layoffs-diversity-initiatives.html
 
