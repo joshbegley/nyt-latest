@@ -10,11 +10,11 @@ https://nytimes.com/athletic/6711677/2025/10/12/us-u-20-world-cup-morocco/
 `Dilfer went 9-21 as UAB's head coach, including a 2-4 record this year after a loss to Florida Atlantic on Saturday.`\
 https://nytimes.com/athletic/6711727/2025/10/12/trent-dilfer-fired-uab-head-coach/
 
-**Small Plane Crashes Into Semitrailers Near Texas Airfield**\
-`It was unknown what led up to the crash or if there were any injuries.`\
+**2 Dead After Small Plane Crashes Into Semitrailers Near Texas Airfield**\
+`It was unknown what led up to the crash on Sunday afternoon near Hicks Airfield outside of Fort Worth.`\
 https://nytimes.com/2025/10/12/us/fort-worth-plane-crash-hicks-field.html
 
-**Aaron Glenn played not to lose in London. The Jets lost the game, and angered a star.**\
+**Aaron Glenn played not to lose in London. The Jets lost the game, and angered a star**\
 `A Justin Fields-led offense produced next to nothing as the Jets fell to 0-6.`\
 https://nytimes.com/athletic/6711693/2025/10/12/new-york-jets-london-loss-denver-broncos/
 
