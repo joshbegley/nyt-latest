@@ -1,3 +1,15 @@
+**Chicken Enchiladas, Make-Ahead Breakfast Sandwiches and Chile-Oil Noodles**\
+`Brilliant recipes worth talking about.`\
+https://nytimes.com/2025/10/12/dining/chicken-enchiladas-make-ahead-breakfast-sandwiches-and-chile-oil-noodles.html
+
+**Honeycomb Wings and Jellyfish: These Costumes Dance Too**\
+`Collaborating with the choreographer Jamar Roberts for the New York City Ballet fashion gala, Iris van Herpen created costumes that merged fantasy and form.`\
+https://nytimes.com/2025/10/12/arts/dance/nyc-ballet-iris-van-herpen-jamar-roberts.html
+
+**Bo Bichette not healthy enough to make Blue Jays' ALCS roster against Mariners**\
+`With a need for more pitching in a seven-game series, both Chris Bassitt and Max Scherzer were added after being left off for ALDS.`\
+https://nytimes.com/athletic/6710754/2025/10/12/bo-bichette-blue-jays-alcs/
+
 **At Least 4 Dead in Bar Shooting in South Carolina, Sheriff Says**\
 `Four people were in critical condition after an early-morning shooting that left at least 20 people injured on Sunday in St. Helena, S.C., according to the Beaufort County Sheriff’s Office.`\
 https://nytimes.com/2025/10/12/us/south-carolina-st-helena-shooting-bar.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6707469/2025/10/12/baker-mayfield-mvp-video-buccane
 **Nebraska fans and players have been through a lot. Saturday's win was one to cherish**\
 `Nebraska came from behind on its final possession at Maryland to win a game for the first time since 2017.`\
 https://nytimes.com/athletic/6710570/2025/10/12/nebraska-maryland-matt-rhule-record-2025/
-
-**USC showed what it's capable of — now the Trojans have to prove that's who they are**\
-`USC was the more physical team against an opponent that overwhelmed the Trojans along the line of scrimmage a year ago.`\
-https://nytimes.com/athletic/6710567/2025/10/12/usc-lincoln-riley-michigan-big-ten-playoff/
-
-**What does the College Football Playoff bracket look like after Week 7? USC in, Oklahoma out**\
-`USC's dismantling of Michigan suggests the Trojans are the nation's most overlooked team.`\
-https://nytimes.com/athletic/6710248/2025/10/12/college-football-playoff-2025-bracket-prediction-week-7/
-
-**Smithsonian Museums Close as Government Shutdown Persists**\
-`The institution operates some of the most popular sites in Washington and beyond, including 21 museums, 14 education and research centers and the National Zoo.`\
-https://nytimes.com/2025/10/12/arts/smithsonian-museums-shutdown.html
 
