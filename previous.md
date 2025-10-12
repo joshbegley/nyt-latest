@@ -1,3 +1,7 @@
+**At Least 1 Dead and 3 Injured After Shootings at Mississippi Universities**\
+`The shootings at historically Black institutions occurred within about 24 hours of three other shootings across rural Mississippi that left at least eight people dead.`\
+https://nytimes.com/2025/10/11/us/mississippi-shooting-jackson-alcorn.html
+
 **Georgia-Auburn takeaways: Officiating drama and a dominant Bulldogs second half**\
 `No. 10 Georgia overcame a slow start to squeeze out a controversial 20-10 win at Auburn on Saturday night.`\
 https://nytimes.com/athletic/6709893/2025/10/11/georgia-auburn-score-result-football/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6709706/2025/10/11/messi-makes-most-of-bonus-show-f
 **Did Auburn's Jackson Arnold fumble? Controversial goal-line call gives Georgia momentum**\
 `If the call had been overturned, Auburn would have gone up 17-0, assuming a made extra point. Instead, it was 10-3 at the half.`\
 https://nytimes.com/athletic/6709703/2025/10/11/auburn-georgia-fumble-jackson-arnold-controversy/
-
-**Blue Jays ALCS Notes: Room for Chris Bassitt and Max Scherzer, Bo Bichette's status**\
-`The best-of-seven ALCS — compared with the LDS — puts more demand on starting pitching, so Scherzer and Bassitt might be active.`\
-https://nytimes.com/athletic/6709621/2025/10/11/blue-jays-alcs-chris-bassitt-max-scherzer-bo-bichette/
 

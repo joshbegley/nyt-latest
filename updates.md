@@ -1,3 +1,7 @@
+**At Least 1 Dead and 3 Injured After Shootings at Mississippi Universities**\
+`The shootings at historically Black institutions occurred within about 24 hours of three other shootings across rural Mississippi that left at least eight people dead.`\
+https://nytimes.com/2025/10/11/us/mississippi-shooting-jackson-alcorn.html
+
 **Georgia-Auburn takeaways: Officiating drama and a dominant Bulldogs second half**\
 `No. 10 Georgia overcame a slow start to squeeze out a controversial 20-10 win at Auburn on Saturday night.`\
 https://nytimes.com/athletic/6709893/2025/10/11/georgia-auburn-score-result-football/
