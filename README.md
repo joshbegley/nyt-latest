@@ -1,3 +1,7 @@
+**Eagles mailbag: Send your questions to Zach Berman**\
+`Eagles mailbag: Send your questions to Zach Berman`\
+https://nytimes.com/athletic/6711554/2025/10/12/eagles-mailbag-questions-zach-berman/
+
 **Browns-Steelers: Pittsburgh offense comes alive in second half to seal win**\
 `The first half was an offensive slugfest dictated by four field goals, but Aaron Rodgers tossed two second-half touchdowns.  `\
 https://nytimes.com/athletic/6710961/2025/10/12/browns-vs-steelers-takeaways-results-nfl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6711267/2025/10/12/patriots-vs-saints-takeaways-res
 **Chargers-Dolphins takeaways: L.A. ends skid, beating Miami with late drive**\
 `Cameron Dicker's game-winning field goal is set up by Justin Herbert-to-Ladd McConkey 42-yard pass play.`\
 https://nytimes.com/athletic/6710978/2025/10/12/chargers-vs-dolphins-takeaways-results-nfl/
-
-**Rams-Ravens takeaways: Turnovers doom Baltimore amid disastrous slide**\
-`The Lamar Jackson-less Ravens' woes continued Sunday in Baltimore, falling to 1-5 in a Week 6 loss to the Rams.`\
-https://nytimes.com/athletic/6711319/2025/10/12/rams-vs-ravens-takeaways-results-nfl/
 
