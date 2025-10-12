@@ -1,3 +1,7 @@
+**James Franklin’s disaster of a 2025 season can’t be overstated or overcome**\
+`The 2025 season was going to be the ultimate referendum on Franklin. The answer is clear, much earlier than expected: He failed. `\
+https://nytimes.com/athletic/6709572/2025/10/11/james-franklin-penn-state-buyout-fired/
+
 **No Survivors Were Found After Tennessee Plant Explosion, Officials Said**\
 `Sheriff Chris Davis of Humphreys County said earlier that 18 people were missing after the blast at the ammunition plant. On Saturday, he said investigators were looking for remains.`\
 https://nytimes.com/video/us/100000010454166/tennessee-munitions-plant-explosion-deaths.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6709384/2025/10/11/indiana-oregon-score-result/
 **College Football Playoff 2025 projections: Indiana rising after taking down Oregon**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/10/11/college-football-playoff-bracket-projections-odds/
-
-**At Least 3 Are Injured on the Ground After Helicopter Crashes in California**\
-`Two people were pulled from the wreckage, the police said. It was not clear what led up to the crash or the severity of the victims’ injuries.`\
-https://nytimes.com/2025/10/11/us/helicopter-crash-huntington-beach-california.html
 
