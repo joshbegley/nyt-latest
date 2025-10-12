@@ -1,3 +1,7 @@
+**How to watch Capitals vs. Rangers: Time, TV, streaming**\
+`Find out how to watch the Washington Capitals play the New York Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6710828/2025/10/12/capitals-vs-rangers-stream-how-to-watch-oct-12/
+
 **Chicken Enchiladas, Make-Ahead Breakfast Sandwiches and Chile-Oil Noodles**\
 `Brilliant recipes worth talking about.`\
 https://nytimes.com/2025/10/12/dining/chicken-enchiladas-make-ahead-breakfast-sandwiches-and-chile-oil-noodles.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6710653/2025/10/12/oliver-glasner-contract-palace-w
 **WATCH: Why Bucs QB Baker Mayfield is an early NFL MVP candidate**\
 `Mayfield has thrown down the field better and more often than just about any quarterback in the league this season.`\
 https://nytimes.com/athletic/6707469/2025/10/12/baker-mayfield-mvp-video-buccaneers/
-
-**Nebraska fans and players have been through a lot. Saturday's win was one to cherish**\
-`Nebraska came from behind on its final possession at Maryland to win a game for the first time since 2017.`\
-https://nytimes.com/athletic/6710570/2025/10/12/nebraska-maryland-matt-rhule-record-2025/
 
