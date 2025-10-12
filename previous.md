@@ -1,3 +1,7 @@
+**A Scammy Job Offer Over Text? I’ll Take It!**\
+`It’s too good to be true, and I’m OK with that.`\
+https://nytimes.com/2025/10/12/opinion/culture/a-scammy-job-offer-over-text-ill-take-it.html
+
 **Rangers revive winning formula of special teams, goaltending in 6-1 victory**\
 `Special teams produced three of the Rangers' first four goals and goalie Igor Shesterkin made 18 saves on 19 shots in Pittsburgh. `\
 https://nytimes.com/athletic/6709823/2025/10/12/new-york-rangers-special-teams-goaltending/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6709658/2025/10/12/usmnt-mauricio-pochettino-weston
 **Lowetide: Why Oilers prospects could fill the net across the hockey world**\
 `After years of uneven results, Oilers prospects are giving an indication that this season might be different.`\
 https://nytimes.com/athletic/6708952/2025/10/12/edmonton-oilers-prospects-2025-season/
-
-**Rethinking Bruce Springsteen’s Difficult Years**\
-`A film argues that an American icon may have made his best music in some of his lowest moments.`\
-https://nytimes.com/2025/10/12/us/bruce-springsteen-film-hostage-tennessee-keaton.html
 
