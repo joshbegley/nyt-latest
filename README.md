@@ -1,3 +1,7 @@
+**Behind Drake Maye, Patriots push winning streak to three games.**\
+`With the 25-19 victory, New England matched its win total from each of the past two seasons.`\
+https://nytimes.com/athletic/6711267/2025/10/12/patriots-vs-saints-takeaways-results-nfl/
+
 **Chargers-Dolphins takeaways: L.A. ends skid, beating Miami with late drive**\
 `Cameron Dicker's game-winning field goal is set up by Justin Herbert-to-Ladd McConkey 42-yard pass play.`\
 https://nytimes.com/athletic/6710978/2025/10/12/chargers-vs-dolphins-takeaways-results-nfl/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/12/us/politics/lost-chances-hostage-deal-gaza-israel
 **California Raises Minimum Payout for Wildfire Victims’ Items**\
 `After years of fires that left families tallying every burned toothbrush, a new law is requiring insurers to ease a grueling burden.`\
 https://nytimes.com/2025/10/12/realestate/california-doubles-wildfire-payouts.html
-
-**John Searle, Philosopher Who Wrestled With A.I., Dies at 93**\
-`His blunt debating and imaginative theorizing about artificial intelligence and the human mind made him a leading scholar. But sexual-harassment allegations ended his career.`\
-https://nytimes.com/2025/10/12/books/john-searle-dead.html
 
