@@ -1,3 +1,7 @@
+**Teammates to rivals: Cooper Flagg, Kon Knueppel meet in preseason**\
+`Flagg had another strong preseason outing with 11 points and four assists, and Knueppel scored 12 points in the Mavericks' 120-116 loss.`\
+https://nytimes.com/athletic/6709730/2025/10/12/cooper-flagg-mavericks-kon-knueppel-hornets-nba-duke/
+
 **Kirill Marchenko breaks through with his 4th career hat trick in Blue Jackets win**\
 `Marchenko now has 12 shots on goal in two games.`\
 https://nytimes.com/athletic/6709952/2025/10/12/kirill-marchenko-blue-jackets-hat-trick-wild/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/12/world/africa/cameroon-election-biya-president.htm
 **Broncos vs. Jets in London: What to know about the NFL's Week 6 international game**\
 `The NFL has exported games to five countries this year. Up next is another kickoff in London. Here's what to know about Jets vs. Broncos.`\
 https://nytimes.com/athletic/6699332/2025/10/12/jets-broncos-nfl-london-tottenham-how-to-watch/
-
-**Quote of the Day: Comic Con Lets You Be a Superhero, if Just for One Day**\
-`Quotation of the Day for Sunday, October 12, 2025.`\
-https://nytimes.com/2025/10/12/pageoneplus/quote-of-the-day-comic-con-lets-you-be-a-superhero-if-just-for-one-day.html
 
