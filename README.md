@@ -1,40 +1,40 @@
-**Norway vs Israel was months in the planning for authorities, but politics seeped through**\
-`Officials from both teams discussed Gaza and the controversy of Saturday's game, while there were protests and a small number of arrests`\
-https://nytimes.com/athletic/6709470/2025/10/12/israel-norway-protests-palestine-gaza/
+**Social Media Restrictions and 2-Day Internet Shutdown Rattle Afghanistan**\
+`A telecommunications blackout and restrictions on social media have further isolated Afghans who rely on the internet as a lifeline.`\
+https://nytimes.com/2025/10/12/world/asia/social-media-restrictions-and-2-day-internet-shutdown-rattle-afghanistan.html
 
-**‘My Older Brother Made Sure That I Grew Up to Be a Yankees Fan’**\
-`Confusion over a baseball cap, swapping stories of clothing mishaps and more reader tales of New York City in this week’s Metropolitan Diary.`\
-https://nytimes.com/2025/10/12/nyregion/metropolitan-diary.html
+**The Destructive Legacy of California’s Zombie Fires**\
+`Blazes that firefighters thought had died but then later came roaring back to life have become increasingly common, heightening scrutiny of how first-responders put out wildfires.`\
+https://nytimes.com/2025/10/12/us/palisades-zombie-fires.html
 
-**Bolivia Pushes to Reclaim the Coca Leaf From the Stigma of Cocaine**\
-`Long criminalized as the raw material for cocaine, coca is woven into Bolivian life. The government is lobbying the U.N. to ease international restrictions.`\
-https://nytimes.com/2025/10/12/world/americas/bolivia-coca-plant-leaf-cocaine.html
+**He’s Cuing a New Era at One of America’s Oldest Orchestras**\
+`Cristian Macelaru has started his tenure as the music director of the storied Cincinnati Symphony Orchestra.`\
+https://nytimes.com/2025/10/12/arts/music/cristian-macelaru-cincinnati-symphony-orchestra.html
 
-**What to Know About the Battle for a Casino License in New York City**\
-`The gambling industry has long dreamed of opening a casino in the largest metropolitan area in the United States. Four proposals are vying for approval from state authorities.`\
-https://nytimes.com/2025/10/12/nyregion/nyc-casinos.html
+**Air Traffic Controllers Reject Credit for Ending the Last Shutdown**\
+`Controllers missing work was widely cited as the reason the last shutdown came to an end. But that assumption might have been overblown, according to controllers, aviation safety experts and congressional aides.`\
+https://nytimes.com/2025/10/12/us/politics/air-traffic-controllers-shutdown.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/10/12/crosswords/spelling-bee-forum.html
+**One ‘Really Big One’ After Another**\
+`The disaster caused by a predicted large earthquake in the Pacific Northwest could be compounded by shaking along the San Andreas fault in California, scientists warned.`\
+https://nytimes.com/2025/10/12/science/earthquake-san-andreas-cascadia.html
 
-**Dodgers, Brewers clash in rematch of 2018 NL Championship Series: Key matchups, prediction**\
-`The Dodgers are MLB's defending champions, while the Brewers are still searching for the franchise's first World Series title.`\
-https://nytimes.com/athletic/6708610/2025/10/12/dodgers-brewers-nl-championship-series-preview/
+**A Test Now for Israel: Can It Repair Its Ties to Americans?**\
+`Israel’s advocates fear that its conduct of the war has cost it the support of an entire generation of U.S. voters.`\
+https://nytimes.com/2025/10/12/world/middleeast/israel-us-polls-support.html
 
-**The New York Times in Print for Sunday, Oct. 12, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/10/12/todays-new-york-times
+**‘The Chair Company’ Review: He’s Not Taking This Sitting Down**\
+`In his angry-dad conspiracy thriller, Tim Robinson takes his surreal comedic persona on a longer, weirder journey.`\
+https://nytimes.com/2025/10/12/arts/television/the-chair-company-review.html
 
-**Who Deserves an Organ? The Dilemma of Severe Mental Illness.**\
-`Patients’ mental health problems can make transplant decisions even more fraught.`\
-https://nytimes.com/2025/10/12/opinion/organ-transplant-mental-illness.html
+**Trump Is Blowing Up Boats Off Venezuela. Could Mexico’s Cartels Be Next?**\
+`U.S. strikes on boats that President Trump says are drug smugglers have unsettled America’s biggest trading partner, where powerful criminal groups produce and smuggle drugs.`\
+https://nytimes.com/2025/10/12/world/americas/mexico-drugs-venezuela-us-military.html
 
-**Teammates to rivals: Cooper Flagg, Kon Knueppel meet in preseason**\
-`Flagg had another strong preseason outing with 11 points and four assists, and Knueppel scored 12 points in the Mavericks' 120-116 loss.`\
-https://nytimes.com/athletic/6709730/2025/10/12/cooper-flagg-mavericks-kon-knueppel-hornets-nba-duke/
+**Black Unemployment Is Surging Again. This Time Is Different.**\
+`Federal layoffs and an end to diversity initiatives have weakened a historically strong labor market for Black workers.`\
+https://nytimes.com/2025/10/12/business/economy/black-unemployment-federal-layoffs-diversity-initiatives.html
 
-**Kirill Marchenko breaks through with his fourth career hat trick in Blue Jackets' win**\
-`Marchenko now has 12 shots on goal in two games.`\
-https://nytimes.com/athletic/6709952/2025/10/12/kirill-marchenko-blue-jackets-hat-trick-wild/
+**Who Are the Louisiana Voters Behind a Major Supreme Court Challenge?**\
+`There is little information in court filings about the dozen plaintiffs who challenged the state’s voting map as an illegal racial gerrymander.`\
+https://nytimes.com/2025/10/12/us/politics/supreme-court-voting-rights.html
 
