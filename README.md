@@ -1,3 +1,7 @@
+**UAB fires head coach Trent Dilfer midway through third season**\
+`Dilfer went 9-21 as UAB's head coach, including a 2-4 record this year after a loss to Florida Atlantic on Saturday.`\
+https://nytimes.com/athletic/6711727/2025/10/12/trent-dilfer-fired-uab-head-coach/
+
 **Small Plane Crashes Into Semitrailers Near Texas Airfield**\
 `It was unknown what led up to the crash or if there were any injuries.`\
 https://nytimes.com/2025/10/12/us/fort-worth-plane-crash-hicks-field.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6711528/2025/10/12/miami-dolphins-tua-tagovailoa-pl
 **Colts hold on as Cardinals' final red-zone drive sputters**\
 `Jonathan Taylor rushed for 123 yards, and the Colts improved to 5-1.`\
 https://nytimes.com/athletic/6711485/2025/10/12/cardinals-vs-colts-takeaways-results-nfl/
-
-**China’s High Ambitions for Clean Energy**\
-`Our Beijing bureau chief Keith Bradsher reports on new solar and wind projects on the Tibetan Plateau.`\
-https://nytimes.com/2025/10/12/world/china-clean-energy-solar-israel-gaza-hostage-madagascar-coup.html
 

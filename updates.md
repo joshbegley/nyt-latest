@@ -1,3 +1,8 @@
+**How James Franklin's $45M Penn State buyout compares to recent coaching changes**\
+`What to know about James Franklin's $45 million Penn State buyout.
+`\
+https://nytimes.com/athletic/6711634/2025/10/12/penn-state-james-franklin-buyout-explained/
+
 **Small Plane Crashes Into Semitrailers Near Texas Airfield**\
 `It was unknown what led up to the crash or if there were any injuries.`\
 https://nytimes.com/2025/10/12/us/fort-worth-plane-crash-hicks-field.html
