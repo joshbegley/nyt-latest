@@ -1,3 +1,7 @@
+**Olympic hopefuls and celebrities team up to showcase flag football: 'The sky's the limit'**\
+`Flag football will make its debut at the 2028 Olympics. A celebrity event in London was another step towards growing the sport`\
+https://nytimes.com/athletic/6709512/2025/10/12/olympic-hopefuls-and-celebrities-team-up-to-showcase-flag-football-the-skys-the-limit/
+
 **Canadiens rookie Ivan Demidov, targeted by Blackhawks, further shows what he’s all about**\
 `Demidov is incredibly skilled, and everyone knows that. But he showed something against the Blackhawks that might have been less known. `\
 https://nytimes.com/athletic/6710102/2025/10/12/canadiens-ivan-demidov-rookie-season-nhl/
