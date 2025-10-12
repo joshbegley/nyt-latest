@@ -1,3 +1,7 @@
+**Oilers takeaways: Philp helps his cause, Kane's villainous return and an upbeat attitude**\
+`Plus: David Tomasek's power play woes and more on Edmonton's upbeat attitude to start the season.`\
+https://nytimes.com/athletic/6710241/2025/10/12/oilers-noah-philp-evander-kane/
+
 **Palace have had 'early' Glasner contract talks, says Parish**\
 `Glasner's Palace deal runs out at the end of this season, with his future the subject of speculation in recent weeks.`\
 https://nytimes.com/athletic/6710653/2025/10/12/oliver-glasner-contract-palace-wharton/

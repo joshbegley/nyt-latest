@@ -1,3 +1,7 @@
+**World Series odds: Dodgers favored, while Mariners and Brewers try to make history**\
+`And then there were four. The Dodgers are big favorites to win it all. Can Milwaukee, Toronto or Seattle stop them? Here's what the odds say`\
+https://nytimes.com/athletic/6710616/2025/10/12/world-series-title-odds-dodgers-brewers-jays-mariners/
+
 **Oilers takeaways: Philp helps his cause, Kane's villainous return and an upbeat attitude**\
 `Plus: David Tomasek's power play woes and more on Edmonton's upbeat attitude to start the season.`\
 https://nytimes.com/athletic/6710241/2025/10/12/oilers-noah-philp-evander-kane/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6709387/2025/10/12/senators-panthers-ullmark-mauric
 **Until Saturday: Indiana's title path is legit this time**\
 `Until Saturday is The Athletic's free CFB newsletter.`\
 https://nytimes.com/athletic/6710594/2025/10/12/indiana-football-oregon-playoff-until-saturday/
-
-**Trump Announces Longtime Aide Dan Scavino as Head of Personnel**\
-`Mr. Scavino, one of Mr. Trump’s most trusted advisers and a deputy chief of staff, has been by his side since the 2016 campaign.`\
-https://nytimes.com/2025/10/12/us/politics/dan-scavino-trump-white-house-personnel.html
 
