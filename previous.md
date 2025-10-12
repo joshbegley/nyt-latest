@@ -26,7 +26,7 @@ https://nytimes.com/2025/10/12/us/noreaster-storm-forecast-damage.html
 `Ohio State, Miami, Indiana, Texas A&M and Ole Miss form the top five of the latest AP Top 25 college football rankings after Week 7.`\
 https://nytimes.com/athletic/6710975/2025/10/12/ap-top-25-indiana-college-football-poll/
 
-**Aaron Glenn on if Fields will remain Jets' starter: 'What kind of question is that?'**\
+**Aaron Glenn on whether Fields will remain Jets starter: 'What kind of question is that?'**\
 `Fields completed just 9 of 17 passes for 45 yards and took nine sacks in the Jets' 13-11 loss in London.`\
 https://nytimes.com/athletic/6711066/2025/10/12/justin-fields-aaron-glenn-jets-starter-question/
 

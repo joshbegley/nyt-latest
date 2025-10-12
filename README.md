@@ -1,3 +1,7 @@
+**Broncos keep drowning QBs, but defense needs offense's help vs. non-Jets teams ahead**\
+`Denver sacked Justin Fields nine times in Sunday's game and limited New York to 82 total yards of offense.`\
+https://nytimes.com/athletic/6711059/2025/10/12/broncos-defense-sacks-jets/
+
 **Wilshere close to becoming Luton manager**\
 `The League One side dismissed Matt Bloomfield last Monday after losing five of their first 11 League One games.`\
 https://nytimes.com/athletic/6711292/2025/10/12/jack-wilshere-luton-manager-next/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6711066/2025/10/12/justin-fields-aaron-glenn-jets-s
 **Rams WR Puka Nacua returns to game vs. Ravens after injuring foot**\
 `The Rams star and current NFL receiving leader went down after a contested catch attempt in the end zone against Baltimore. `\
 https://nytimes.com/athletic/6711132/2025/10/12/rams-puka-nacua-injury-ravens/
-
-**Blue Jackets Sunday Gathering: Dean Evason ready to add wrinkles to late-game looks**\
-`Evason vowed before the start of training camp that he would juggle his forward lines and switch up his defensive pairs more often.`\
-https://nytimes.com/athletic/6707897/2025/10/12/blue-jackets-coach-lineup/
 

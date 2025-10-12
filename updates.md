@@ -1,3 +1,7 @@
+**Aaron Glenn on whether Fields will remain Jets starter: 'What kind of question is that?'**\
+`Fields completed just 9 of 17 passes for 45 yards and took nine sacks in the Jets' 13-11 loss in London.`\
+https://nytimes.com/athletic/6711066/2025/10/12/justin-fields-aaron-glenn-jets-starter-question/
+
 **Wilshere close to becoming Luton manager**\
 `The League One side dismissed Matt Bloomfield last Monday after losing five of their first 11 League One games.`\
 https://nytimes.com/athletic/6711292/2025/10/12/jack-wilshere-luton-manager-next/
