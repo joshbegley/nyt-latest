@@ -1,3 +1,11 @@
+**Helicopter Crash in Southern California Injures At Least 3 Bystanders**\
+`The two people onboard were safely pulled from the wreckage on Saturday, the police said. The severity of the victims’ injuries was not made clear.`\
+https://nytimes.com/video/us/100000010454868/helicopter-crash-huntington-beach-ca.html
+
+**James Franklin is out at Penn State: Can the Nittany Lions lure Curt Cignetti from Indiana?**\
+`Cignetti, who has engineered an amazing turnaround at Indiana, and Nebraska's Matt Rhule will be top targets. `\
+https://nytimes.com/athletic/6711353/2025/10/12/james-franklin-penn-state-candidates-curt-cignetti-matt-rhule/
+
 **Broncos keep drowning QBs, but defense needs offense's help vs. non-Jets teams ahead**\
 `Denver sacked Justin Fields nine times in Sunday's game and limited New York to 82 total yards of offense.`\
 https://nytimes.com/athletic/6711059/2025/10/12/broncos-defense-sacks-jets/
