@@ -1,3 +1,11 @@
+**Trump Administration Live Updates: President to Travel to Israel for Hostage Release**\
+``\
+https://nytimes.com/live/2025/10/12/us/trump-news
+
+**Olympic hopefuls and celebrities team up to showcase flag football: 'The sky's the limit'**\
+`Flag football will make its debut at the 2028 Olympics. A celebrity event in London was another step towards growing the sport`\
+https://nytimes.com/athletic/6709512/2025/10/12/flag-football-nfl-london-olympics-gunna/
+
 **Olympic hopefuls and celebrities team up to showcase flag football: 'The sky's the limit'**\
 `Flag football will make its debut at the 2028 Olympics. A celebrity event in London was another step towards growing the sport`\
 https://nytimes.com/athletic/6709512/2025/10/12/olympic-hopefuls-and-celebrities-team-up-to-showcase-flag-football-the-skys-the-limit/
