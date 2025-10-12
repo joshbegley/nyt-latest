@@ -1,3 +1,15 @@
+**The final four teams are set. Which Championship Series clubs have the best home-field advantage?**\
+`All ballparks are electric in the home team’s best postseason moments, but some crowds are more fearsome than others. So who tops our list?`\
+https://nytimes.com/athletic/6709080/2025/10/11/mlb-playoffs-2025-dodgers-cubs-brewers-blue-jays-mariners-2/
+
+**Cubs-Brewers Game 5 takeaways: Milwaukee rides power, 'pen to NLCS**\
+`The Brewers will play host to the Dodgers, who previously dispatched the Phillies. `\
+https://nytimes.com/athletic/6709829/2025/10/11/cubs-brewers-game-5-score-results-takeaways-playoffs-mlb/
+
+**Messi makes most of 'bonus' show for Miami**\
+`Lionel Messi sat out Argentina's friendly Friday and scored two goals in Inter Miami's 4-0 victory over Atlanta United.`\
+https://nytimes.com/athletic/6709706/2025/10/11/messi-makes-most-of-bonus-show-for-miami/
+
 **Tiger Woods undergoes another back surgery with timetable for return uncertain**\
 `It seems unlikely that the 15-time major tournament winner will be able to play the PNC with his son nor the Hero World Challenge and TGL.`\
 https://nytimes.com/athletic/6709628/2025/10/11/tiger-woods-back-surgery-pnc-championship/

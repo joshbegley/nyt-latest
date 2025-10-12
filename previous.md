@@ -1,9 +1,17 @@
+**The final four teams are set. Which Championship Series clubs have the best home-field advantage?**\
+`All ballparks are electric in the home team’s best postseason moments, but some crowds are more fearsome than others. So who tops our list?`\
+https://nytimes.com/athletic/6709080/2025/10/11/mlb-playoffs-2025-dodgers-cubs-brewers-blue-jays-mariners-2/
+
+**Cubs-Brewers Game 5 takeaways: Milwaukee rides power, 'pen to NLCS**\
+`The Brewers will play host to the Dodgers, who previously dispatched the Phillies. `\
+https://nytimes.com/athletic/6709829/2025/10/11/cubs-brewers-game-5-score-results-takeaways-playoffs-mlb/
+
 **Tiger Woods undergoes another back surgery with timetable for return uncertain**\
 `It seems unlikely that the 15-time major tournament winner will be able to play the PNC with his son nor the Hero World Challenge and TGL.`\
 https://nytimes.com/athletic/6709628/2025/10/11/tiger-woods-back-surgery-pnc-championship/
 
 **Messi makes most of 'bonus' show for Miami**\
-`Lionel Messi’s decision to leave the Argentine national team camp and sneak in an MLS game during the international break may have raised some eyebrows back in his homeland but it certainly paid off for club and player as he scored twice in a 4-0 win over Atlanta United on Saturday.`\
+`Lionel Messi sat out Argentina's friendly Friday and scored two goals in Inter Miami's 4-0 victory over Atlanta United.`\
 https://nytimes.com/athletic/6709706/2025/10/11/messi-makes-most-of-bonus-show-for-miami/
 
 **Did Auburn's Jackson Arnold fumble? Controversial goal-line call gives Georgia momentum**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6709654/2025/10/11/mariners-vs-blue-jays-stream-how
 **Stay out of the tent: NFL sends reminder to teams after Jaxson Dart incident**\
 `The New York Giants coach was too eager to check on injured quarterback Jaxson Dart. The league is reminding all 32 teams not to do that.`\
 https://nytimes.com/athletic/6709391/2025/10/11/brian-daboll-concussion-memo/
-
-**James Franklin’s disaster of a 2025 season can’t be overstated or overcome**\
-`The 2025 season was going to be the ultimate referendum on Franklin. The answer is clear, much earlier than expected: He failed. `\
-https://nytimes.com/athletic/6709572/2025/10/11/james-franklin-penn-state-buyout-fired/
-
-**No Survivors Were Found After Tennessee Plant Explosion, Officials Said**\
-`Sheriff Chris Davis of Humphreys County said earlier that 16 people were missing after the blast at the ammunition plant. On Saturday, he said investigators were looking for remains.`\
-https://nytimes.com/video/us/100000010454166/tennessee-munitions-plant-explosion-deaths.html
 
