@@ -1,3 +1,7 @@
+**3 Qatari Officials Die in Car Crash in Egypt Before Gaza Summit**\
+`The crash was in Sharm el Sheikh, where indirect talks between Israel and Hamas led to a breakthrough deal. The city will also host a summit on Monday.`\
+https://nytimes.com/2025/10/12/world/middleeast/qatar-egypt-crash-sharm-el-sheikh.html
+
 **Social Media Restrictions and 2-Day Internet Shutdown Rattle Afghanistan**\
 `A telecommunications blackout and restrictions on social media have further isolated Afghans who rely on the internet as a lifeline.`\
 https://nytimes.com/2025/10/12/world/asia/social-media-restrictions-and-2-day-internet-shutdown-rattle-afghanistan.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/12/world/americas/mexico-drugs-venezuela-us-military
 **Black Unemployment Is Surging Again. This Time Is Different.**\
 `Federal layoffs and an end to diversity initiatives have weakened a historically strong labor market for Black workers.`\
 https://nytimes.com/2025/10/12/business/economy/black-unemployment-federal-layoffs-diversity-initiatives.html
-
-**Who Are the Louisiana Voters Behind a Major Supreme Court Challenge?**\
-`There is little information in court filings about the dozen plaintiffs who challenged the state’s voting map as an illegal racial gerrymander.`\
-https://nytimes.com/2025/10/12/us/politics/supreme-court-voting-rights.html
 
