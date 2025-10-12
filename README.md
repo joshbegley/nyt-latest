@@ -1,3 +1,7 @@
+**Small Plane Crashes Into Semitrailers Near Texas Airfield**\
+`It was unknown what led up to the crash or if there were any injuries.`\
+https://nytimes.com/2025/10/12/us/fort-worth-plane-crash-hicks-field.html
+
 **Aaron Glenn played not to lose in London. The Jets lost the game, and angered a star.**\
 `A Justin Fields-led offense produced next to nothing as the Jets fell to 0-6.`\
 https://nytimes.com/athletic/6711693/2025/10/12/new-york-jets-london-loss-denver-broncos/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6711485/2025/10/12/cardinals-vs-colts-takeaways-res
 **China’s High Ambitions for Clean Energy**\
 `Our Beijing bureau chief Keith Bradsher reports on new solar and wind projects on the Tibetan Plateau.`\
 https://nytimes.com/2025/10/12/world/china-clean-energy-solar-israel-gaza-hostage-madagascar-coup.html
-
-**'It's just really sad': Blue Jays' Trey Yesavage addresses negativity directed toward family**\
-`"I know I have the platform to address it," Toronto's 22-year-old starter said. "So I am."`\
-https://nytimes.com/athletic/6711496/2025/10/12/blue-jays-trey-yesavage-negativity-family/
 
