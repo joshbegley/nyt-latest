@@ -1,3 +1,7 @@
+**Bangladesh Detains Army Officers Accused of Crimes Under Previous Regime**\
+`The arrest warrants, issued for more than two dozen people, were part of the country’s continuing struggle to come to terms with its authoritarian past.`\
+https://nytimes.com/2025/10/12/world/asia/bangladesh-arrests-hasina-crimes.html
+
 **How to watch Capitals vs. Rangers: Time, TV, streaming**\
 `Find out how to watch the Washington Capitals play the New York Rangers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6710828/2025/10/12/capitals-vs-rangers-stream-how-to-watch-oct-12/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6710241/2025/10/12/oilers-noah-philp-evander-kane/
 **Palace have had 'early' Glasner contract talks, says Parish**\
 `Glasner's Palace deal runs out at the end of this season, with his future the subject of speculation in recent weeks.`\
 https://nytimes.com/athletic/6710653/2025/10/12/oliver-glasner-contract-palace-wharton/
-
-**WATCH: Why Bucs QB Baker Mayfield is an early NFL MVP candidate**\
-`Mayfield has thrown down the field better and more often than just about any quarterback in the league this season.`\
-https://nytimes.com/athletic/6707469/2025/10/12/baker-mayfield-mvp-video-buccaneers/
 
