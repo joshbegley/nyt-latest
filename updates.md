@@ -1,3 +1,15 @@
+**Wilshere close to becoming Luton manager**\
+`The League One side dismissed Matt Bloomfield last Monday after losing five of their first 11 League One games.`\
+https://nytimes.com/athletic/6711292/2025/10/12/jack-wilshere-luton-manager-next/
+
+**Why Now? The Lost Chances to Reach a Hostage Deal, and a Cease-Fire, Months Ago**\
+`On Gaza, President Trump put few, if any, guardrails on Israel’s offensive, bucking international demands for a cease-fire. Then he changed course.`\
+https://nytimes.com/2025/10/12/us/politics/lost-chances-hostage-deal-gaza-israel.html
+
+**California Raises Minimum Payout for Wildfire Victims’ Items**\
+`After years of fires that left families tallying every burned toothbrush, a new law is requiring insurers to ease a grueling burden.`\
+https://nytimes.com/2025/10/12/realestate/california-doubles-wildfire-payouts.html
+
 **John Searle, Philosopher Who Wrestled With A.I., Dies at 93**\
 `His blunt debating and imaginative theorizing about artificial intelligence and the human mind made him a leading scholar. But sexual-harassment allegations ended his career.`\
 https://nytimes.com/2025/10/12/books/john-searle-dead.html
