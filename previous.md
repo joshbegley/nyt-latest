@@ -1,3 +1,7 @@
+**WATCH: Why Bucs QB Baker Mayfield is an early MVP candidate**\
+`Mayfield has thrown down the field better and more often than just about any quarterback in the league this season.`\
+https://nytimes.com/athletic/6707469/2025/10/12/baker-mayfield-mvp-video-buccaneers/
+
 **Nebraska fans and players have been through a lot. Saturday's win was one to cherish**\
 `Nebraska came from behind on its final possession at Maryland to win a game for the first time since 2017.`\
 https://nytimes.com/athletic/6710570/2025/10/12/nebraska-maryland-matt-rhule-record-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/12/arts/television/snl-recap-amy-poehler-tina-fey.ht
 **Surging Jaguars, desperate Bengals, Lions-Chiefs showdown lead NFL Week 6 storylines**\
 `Monday will also feature the second showdown between Caleb Williams and Jayden Daniels, the top two picks of the 2024 draft.`\
 https://nytimes.com/athletic/6703954/2025/10/12/nfl-week-6-storylines-chiefs-lions-bengals-jaguars/
-
-**The Pulse: Indiana serves notice**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6709940/2025/10/12/indiana-is-a-legit-title-contender-in-football-no-way-around-it/
 

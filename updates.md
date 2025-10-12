@@ -1,3 +1,7 @@
+**WATCH: Why Bucs QB Baker Mayfield is an early MVP candidate**\
+`Mayfield has thrown down the field better and more often than just about any quarterback in the league this season.`\
+https://nytimes.com/athletic/6707469/2025/10/12/baker-mayfield-mvp-video-buccaneers/
+
 **Nebraska fans and players have been through a lot. Saturday's win was one to cherish**\
 `Nebraska came from behind on its final possession at Maryland to win a game for the first time since 2017.`\
 https://nytimes.com/athletic/6710570/2025/10/12/nebraska-maryland-matt-rhule-record-2025/

@@ -1,4 +1,8 @@
-**WATCH: Why Bucs QB Baker Mayfield is an early MVP candidate**\
+**Palace have had 'early' Glasner contract talks, says Parish**\
+`Glasner's Palace deal runs out at the end of this season, with his future the subject of speculation in recent weeks.`\
+https://nytimes.com/athletic/6710653/2025/10/12/oliver-glasner-contract-palace-wharton/
+
+**WATCH: Why Bucs QB Baker Mayfield is an early NFL MVP candidate**\
 `Mayfield has thrown down the field better and more often than just about any quarterback in the league this season.`\
 https://nytimes.com/athletic/6707469/2025/10/12/baker-mayfield-mvp-video-buccaneers/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/12/us/politics/dan-scavino-trump-white-house-personn
 **‘S.N.L.’ Trots Out Amy Poehler and Tina Fey for a Senate Judiciary Grilling**\
 `Now, it truly has been 50 years since the show’s debut, and that was celebrated with a few more surprises, including cameos by Charli XCX and Seth Meyers.`\
 https://nytimes.com/2025/10/12/arts/television/snl-recap-amy-poehler-tina-fey.html
-
-**Surging Jaguars, desperate Bengals, Lions-Chiefs showdown lead NFL Week 6 storylines**\
-`Monday will also feature the second showdown between Caleb Williams and Jayden Daniels, the top two picks of the 2024 draft.`\
-https://nytimes.com/athletic/6703954/2025/10/12/nfl-week-6-storylines-chiefs-lions-bengals-jaguars/
 
