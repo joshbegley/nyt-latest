@@ -1,4 +1,8 @@
-**Cubs-Brewers Game 5 takeaways: Milwaukee rides power, 'pen to NLCS appearance**\
+**The final four teams are set. Which Championship Series clubs have the best home-field advantage?**\
+`All ballparks are electric in the home team’s best postseason moments, but some crowds are more fearsome than others. So who tops our list?`\
+https://nytimes.com/athletic/6709080/2025/10/11/mlb-playoffs-2025-dodgers-cubs-brewers-blue-jays-mariners-2/
+
+**Cubs-Brewers Game 5 takeaways: Milwaukee rides power, 'pen to NLCS**\
 `The Brewers will play host to the Dodgers, who previously dispatched the Phillies. `\
 https://nytimes.com/athletic/6709829/2025/10/11/cubs-brewers-game-5-score-results-takeaways-playoffs-mlb/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6709654/2025/10/11/mariners-vs-blue-jays-stream-how
 **Stay out of the tent: NFL sends reminder to teams after Jaxson Dart incident**\
 `The New York Giants coach was too eager to check on injured quarterback Jaxson Dart. The league is reminding all 32 teams not to do that.`\
 https://nytimes.com/athletic/6709391/2025/10/11/brian-daboll-concussion-memo/
-
-**James Franklin’s disaster of a 2025 season can’t be overstated or overcome**\
-`The 2025 season was going to be the ultimate referendum on Franklin. The answer is clear, much earlier than expected: He failed. `\
-https://nytimes.com/athletic/6709572/2025/10/11/james-franklin-penn-state-buyout-fired/
 
