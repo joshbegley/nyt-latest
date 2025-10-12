@@ -1,3 +1,11 @@
+**The New York Times in Print for Sunday, Oct. 12, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/12/todays-new-york-times
+
+**When Doctors Don’t Agree on Who Should Get a Transplant**\
+`Patients’ mental health problems can make transplant decisions even more fraught.`\
+https://nytimes.com/2025/10/12/opinion/organ-transplant-mental-illness.html
+
 **Teammates to rivals: Cooper Flagg, Kon Knueppel meet in preseason**\
 `Flagg had another strong preseason outing with 11 points and four assists, and Knueppel scored 12 points in the Mavericks' 120-116 loss.`\
 https://nytimes.com/athletic/6709730/2025/10/12/cooper-flagg-mavericks-kon-knueppel-hornets-nba-duke/
