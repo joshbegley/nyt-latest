@@ -1,3 +1,11 @@
+**John Searle, Philosopher Who Wrestled With A.I., Dies at 93**\
+`His blunt debating and imaginative theorizing about artificial intelligence and the human mind made him a leading scholar. But sexual-harassment allegations ended his career.`\
+https://nytimes.com/2025/10/12/books/john-searle-dead.html
+
+**Rams WR Puka Nacua returns to game vs. Ravens after injuring foot**\
+`The Rams star and current NFL receiving leader went down after a contested catch attempt in the end zone against Baltimore. `\
+https://nytimes.com/athletic/6711132/2025/10/12/rams-puka-nacua-injury-ravens/
+
 **Marvin Harrison Jr. ruled out vs. Colts with concussion**\
 `Harrison Jr. exited the game in the second quarter after hitting his head on the turf after catching a 21-yard pass from Jacoby Brissett..`\
 https://nytimes.com/athletic/6711207/2025/10/12/cardinals-wr-marvin-harrison-jr-ruled-out-for-second-half-vs-colts-with-concussion/

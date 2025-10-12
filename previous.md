@@ -1,3 +1,7 @@
+**John Searle, Philosopher Who Wrestled With A.I., Dies at 93**\
+`His blunt debating and imaginative theorizing about artificial intelligence and the human mind made him a leading scholar. But sexual-harassment allegations ended his career.`\
+https://nytimes.com/2025/10/12/books/john-searle-dead.html
+
 **Marvin Harrison Jr. ruled out vs. Colts with concussion**\
 `Harrison Jr. exited the game in the second quarter after hitting his head on the turf after catching a 21-yard pass from Jacoby Brissett..`\
 https://nytimes.com/athletic/6711207/2025/10/12/cardinals-wr-marvin-harrison-jr-ruled-out-for-second-half-vs-colts-with-concussion/
@@ -14,7 +18,7 @@ https://nytimes.com/athletic/6710975/2025/10/12/ap-top-25-indiana-college-footba
 `Fields completed just 9 of 17 passes for 45 yards and took nine sacks in the Jets' 13-11 loss in London.`\
 https://nytimes.com/athletic/6711066/2025/10/12/justin-fields-aaron-glenn-jets-starter-question/
 
-**Rams WR Puka Nacua leaves game vs. Ravens with foot injury**\
+**Rams WR Puka Nacua returns to game vs. Ravens after injuring foot**\
 `The Rams star and current NFL receiving leader went down after a contested catch attempt in the end zone against Baltimore. `\
 https://nytimes.com/athletic/6711132/2025/10/12/rams-puka-nacua-injury-ravens/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6711134/2025/10/12/maelys-mpome-brighton-injury-con
 **Jacob Kiplimo wins Chicago Marathon in his second-ever marathon**\
 `Kiplimo finished in 2:02:23, while Hawi Feysa won the women's race with a time of 2:14:56.`\
 https://nytimes.com/athletic/6711058/2025/10/12/chicago-marathon-winners-2025/
-
-**James Franklin out at Penn State after brutal start to season with championship hopes**\
-`The move caps one of the most stunningly quick collapses in college football history.`\
-https://nytimes.com/athletic/6709624/2025/10/12/penn-state-james-franklin-fired/
 
