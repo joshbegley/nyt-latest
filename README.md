@@ -1,3 +1,11 @@
+**Are the Steelers AFC contenders? What are the Jets doing? Our NFL experts' Week 6 takeaways**\
+`Also: The Seahawks and Chargers earned impressive road wins, while the Panthers have won two straight to reach .500.`\
+https://nytimes.com/athletic/6711082/2025/10/12/nfl-takeaways-week-6-scores-results/
+
+**Tua Tagovailoa on Dolphins' issues: 'It starts with the leadership'**\
+`Quarterbacks says some of his teammates show up late to player-only meetings, if they show up at all.`\
+https://nytimes.com/athletic/6711528/2025/10/12/miami-dolphins-tua-tagovailoa-player-meetings/
+
 **Colts hold on as Cardinals' final red-zone drive sputters**\
 `Jonathan Taylor rushed for 123 yards, and the Colts improved to 5-1.`\
 https://nytimes.com/athletic/6711485/2025/10/12/cardinals-vs-colts-takeaways-results-nfl/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6711357/2025/10/12/who-is-terry-smith-penn-state/
 **49ers star linebacker Fred Warner carted off, ruled out with ankle injury**\
 `Add Warner to the 49ers' ever-growing list of injuries this season.`\
 https://nytimes.com/athletic/6711536/2025/10/12/49ers-fred-warner-ankle-injury/
-
-**Trump Has Not Ruled Out Invoking Insurrection Act to Deploy National Guard, Vance Says**\
-`Vice President JD Vance asserted in an interview on NBC News’ “Meet the Press” that crime was “out of control” in major U.S. cities.`\
-https://nytimes.com/2025/10/12/us/politics/jd-vance-trump-insurrection-act.html
-
-**Panthers-Cowboys: Carolina escapes with last-second game-winning field goal**\
-`The Panthers improved to 3-3 thanks to Ryan Fitzgerald's 33-yard game-winning field goal as time expired.`\
-https://nytimes.com/athletic/6711349/2025/10/12/cowboys-vs-panthers-takeaways-results-nfl/
 
