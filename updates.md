@@ -1,3 +1,7 @@
+**How to watch Capitals vs. Rangers: Time, TV, streaming**\
+`Find out how to watch the Washington Capitals play the New York Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6710828/2025/10/12/capitals-vs-rangers-stream-how-to-watch-oct-12/
+
 **Bo Bichette not healthy enough to make Blue Jays' ALCS roster against Mariners**\
 `Also, Chris Bassitt and Max Scherzer were added to the roster with a need for more pitching in the seven-game ALCS.`\
 https://nytimes.com/athletic/6710754/2025/10/12/bo-bichette-blue-jays-alcs/
