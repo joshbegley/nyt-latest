@@ -1,3 +1,7 @@
+**No Survivors Were Found After Tennessee Plant Explosion, Officials Said**\
+`Sheriff Chris Davis of Humphreys County said earlier that 18 people were missing after the blast at the ammunition plant. On Saturday, he said investigators were looking for remains.`\
+https://nytimes.com/video/us/100000010454166/tennessee-munitions-plant-explosion-deaths.html
+
 **No Survivors Were Found at Tennessee Plant Explosion, Officials Say**\
 `Sheriff Chris Davis of Humphreys County said earlier that 18 people were missing after the blast at the ammunition plant. On Saturday, he said investigators were looking for remains.`\
 https://nytimes.com/video/us/100000010454166/tennessee-munitions-plant-explosion-deaths.html
