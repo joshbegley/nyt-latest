@@ -1,3 +1,11 @@
+**Marvin Harrison Jr. ruled out vs. Colts with concussion**\
+`Harrison Jr. exited the game in the second quarter after hitting his head on the turf after catching a 21-yard pass from Jacoby Brissett..`\
+https://nytimes.com/athletic/6711207/2025/10/12/cardinals-wr-marvin-harrison-jr-ruled-out-for-second-half-vs-colts-with-concussion/
+
+**Storm Smacking the East Coast Will Bring Days of Heavy Rain and Wind**\
+`The Mid-Atlantic and Northeast will bear the brunt of the storm, which will usher in beach erosion and flooding, Monday into Tuesday, forecasters said.`\
+https://nytimes.com/2025/10/12/us/noreaster-storm-forecast-damage.html
+
 **AP Top 25: Indiana rises to No. 3, highest ranking in school history**\
 `Ohio State, Miami, Indiana, Texas A&M and Ole Miss form the top five of the latest AP Top 25 college football rankings after Week 7.`\
 https://nytimes.com/athletic/6710975/2025/10/12/ap-top-25-indiana-college-football-poll/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6711058/2025/10/12/chicago-marathon-winners-2025/
 **James Franklin out at Penn State after brutal start to season with championship hopes**\
 `The move caps one of the most stunningly quick collapses in college football history.`\
 https://nytimes.com/athletic/6709624/2025/10/12/penn-state-james-franklin-fired/
-
-**Helena Moreno Is Elected Mayor of New Orleans**\
-`Facing challenging political headwinds and deep frustration among residents, a Democratic city councilwoman promises a turnaround.`\
-https://nytimes.com/2025/10/12/us/new-orleans-mayor-primary-helena-moreno.html
-
-**Priyanka Chopra, Nick Jonas and Nora Fatehi Sparkle in New York for Diwali**\
-`Celebrities, designers and local leaders filled the All That Glitters Diwali Ball in Manhattan to celebrate South Asians’ influence on the city.`\
-https://nytimes.com/2025/10/12/style/diwali-ball-new-york-priyanka-chopra-nora-fatehi.html
 
