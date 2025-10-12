@@ -15,7 +15,7 @@ https://nytimes.com/athletic/6711132/2025/10/12/rams-puka-nacua-injury-ravens/
 https://nytimes.com/athletic/6707897/2025/10/12/blue-jackets-coach-lineup/
 
 **USMNT fans are starting to find their voice. Can Pochettino keep them roaring?**\
-`The draw against Ecuador could be a turning point`\
+`Tuesday’s friendly against Australia now feels a bit bigger than it should. The U.S. needs to carry forward this momentum.`\
 https://nytimes.com/athletic/6710996/2025/10/12/usmnt-fans-pochettino/
 
 **Brighton's Mpome 'OK' after sustaining concussion during WSL game**\

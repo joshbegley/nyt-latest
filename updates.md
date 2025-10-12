@@ -1,3 +1,7 @@
+**USMNT fans are starting to find their voice. Can Pochettino keep them roaring?**\
+`Tuesday’s friendly against Australia now feels a bit bigger than it should. The U.S. needs to carry forward this momentum.`\
+https://nytimes.com/athletic/6710996/2025/10/12/usmnt-fans-pochettino/
+
 **Aaron Glenn on if Fields will remain Jets' starter: 'What kind of question is that?'**\
 `Fields completed just 9 of 17 passes for 45 yards and took nine sacks in the Jets' 13-11 loss in London.`\
 https://nytimes.com/athletic/6711066/2025/10/12/justin-fields-aaron-glenn-jets-starter-question/
