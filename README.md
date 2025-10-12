@@ -1,3 +1,15 @@
+**Mandel's Final Thoughts: Is James Franklin done? Plus, Indiana and Arch Manning shine in Week 7**\
+`As Indiana takes another step in its miraculous turnaround, Penn State is imploding. Plus, Arch Manning beats Oklahoma and more takeaways.`\
+https://nytimes.com/athletic/6710188/2025/10/12/college-football-scores-results-week-7/
+
+**For Pochettino’s USMNT, McKennie creates a ‘good problem’**\
+`Weston McKennie, back with the national team, relishes freedom but finding a slot for him is tricky.`\
+https://nytimes.com/athletic/6709658/2025/10/12/usmnt-mauricio-pochettino-weston-mckennie/
+
+**Lowetide: Why Oilers prospects could fill the net across the hockey world**\
+`After years of uneven results, Oilers prospects are giving an indication that this season might be different.`\
+https://nytimes.com/athletic/6708952/2025/10/12/edmonton-oilers-prospects-2025-season/
+
 **Rethinking Bruce Springsteen’s Difficult Years**\
 `A film argues that an American icon may have made his best music in some of his lowest moments.`\
 https://nytimes.com/2025/10/12/us/bruce-springsteen-film-hostage-tennessee-keaton.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6710151/2025/10/12/auburn-georgia-officiating-colle
 **Wisconsin's unfathomable downfall is complete — the Badgers are the Big Ten's worst team**\
 `Luke Fickell put all the emotional chips on the table for this week’s game with Iowa. His team responded by getting shutout at home. `\
 https://nytimes.com/athletic/6710096/2025/10/12/wisconsin-luke-fickell-iowa-buyout/
-
-**Arch Manning and Texas grew up in the Cotton Bowl — and might have saved their season**\
-`"There was a lot of sh— getting talked about our team, and I think they responded," Texas coach Steve Sarkisian said.`\
-https://nytimes.com/athletic/6709782/2025/10/12/texas-oklahoma-arch-manning/
-
-**Curt Cignetti 'changed the way Indiana thinks.' It showed in Hoosiers' historic road win**\
-`Curt Cignetti is "so confident in himself that it just flows into his players," Indiana linebacker Aiden Fisher said.`\
-https://nytimes.com/athletic/6709980/2025/10/12/indiana-oregon-curt-cignetti/
-
-**Party like it’s 1977! For the Blue Jays and Mariners, an ALCS meeting is finally in the cards**\
-`When the expansion rosters were announced before the first year of each team's existence, Topps had to get creative with their cards.`\
-https://nytimes.com/athletic/6709337/2025/10/12/blue-jays-mariners-alcs-1977-expansion/
 
