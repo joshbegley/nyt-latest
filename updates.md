@@ -1,3 +1,7 @@
+**Who Deserves an Organ? The Dilemma of Severe Mental Illness.**\
+`Patients’ mental health problems can make transplant decisions even more fraught.`\
+https://nytimes.com/2025/10/12/opinion/organ-transplant-mental-illness.html
+
 **Kirill Marchenko breaks through with his fourth career hat trick in Blue Jackets' win**\
 `Marchenko now has 12 shots on goal in two games.`\
 https://nytimes.com/athletic/6709952/2025/10/12/kirill-marchenko-blue-jackets-hat-trick-wild/
