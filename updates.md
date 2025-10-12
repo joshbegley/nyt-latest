@@ -1,3 +1,7 @@
+**Tiger Woods undergoes another back surgery with timetable for return uncertain**\
+`It seems unlikely that the 15-time major tournament winner will be able to play the PNC with his son nor the Hero World Challenge and TGL.`\
+https://nytimes.com/athletic/6709628/2025/10/11/tiger-woods-back-surgery-pnc-championship/
+
 **Messi makes most of 'bonus' show for Miami**\
 `Lionel Messi’s decision to leave the Argentine national team camp and sneak in an MLS game during the international break may have raised some eyebrows back in his homeland but it certainly paid off for club and player as he scored twice in a 4-0 win over Atlanta United on Saturday.`\
 https://nytimes.com/athletic/6709706/2025/10/11/messi-makes-most-of-bonus-show-for-miami/
