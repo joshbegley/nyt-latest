@@ -1,3 +1,7 @@
+**James Franklin out at Penn State after brutal start to season with championship hopes**\
+`The move caps one of the most stunningly quick collapses in college football history.`\
+https://nytimes.com/athletic/6709624/2025/10/12/penn-state-james-franklin-fired/
+
 **USMNT fans are starting to find their voice. Can Pochettino keep them roaring?**\
 `Tuesday’s friendly against Australia now feels a bit bigger than it should. The U.S. needs to carry forward this momentum.`\
 https://nytimes.com/athletic/6710996/2025/10/12/usmnt-fans-pochettino/

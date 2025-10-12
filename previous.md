@@ -27,7 +27,7 @@ https://nytimes.com/athletic/6711134/2025/10/12/maelys-mpome-brighton-injury-con
 https://nytimes.com/athletic/6711058/2025/10/12/chicago-marathon-winners-2025/
 
 **James Franklin out at Penn State after brutal start to season with championship hopes**\
-`James Franklin signed a 10-year extension in November 2021, but won't see it through.`\
+`The move caps one of the most stunningly quick collapses in college football history.`\
 https://nytimes.com/athletic/6709624/2025/10/12/penn-state-james-franklin-fired/
 
 **Helena Moreno Is Elected Mayor of New Orleans**\
