@@ -1,3 +1,7 @@
+**Stay out of the tent: NFL sends reminder to teams after Jaxson Dart incident**\
+`The New York Giants coach was too eager to check on injured quarterback Jaxson Dart. The league is reminding all 32 teams not to do that.`\
+https://nytimes.com/athletic/6709391/2025/10/11/brian-daboll-concussion-memo/
+
 **James Franklin’s disaster of a 2025 season can’t be overstated or overcome**\
 `The 2025 season was going to be the ultimate referendum on Franklin. The answer is clear, much earlier than expected: He failed. `\
 https://nytimes.com/athletic/6709572/2025/10/11/james-franklin-penn-state-buyout-fired/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6709386/2025/10/11/texas-oklahoma-college-football-
 **Indiana claims historic win at Oregon: Hoosiers legitimize rise and more takeaways**\
 `Indiana started this season ranked, but with a fair amount of skepticism about whether Curt Cignetti’s team could keep it up.`\
 https://nytimes.com/athletic/6709384/2025/10/11/indiana-oregon-score-result/
-
-**College Football Playoff 2025 projections: Indiana rising after taking down Oregon**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/10/11/college-football-playoff-bracket-projections-odds/
 
