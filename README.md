@@ -1,3 +1,7 @@
+**How good is the Penn State job? James Franklin replacement has rare opportunity**\
+`Penn State is a top-10 or top-15 job in college football that has plenty of recent success and resources, making it an attractive opening.`\
+https://nytimes.com/athletic/6711494/2025/10/12/penn-state-football-coaching-search-job-grade/
+
 **Are the Steelers AFC contenders? What are the Jets doing? Our NFL experts' Week 6 takeaways**\
 `Also: The Seahawks and Chargers earned impressive road wins, while the Panthers have won two straight to reach .500.`\
 https://nytimes.com/athletic/6711082/2025/10/12/nfl-takeaways-week-6-scores-results/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6710961/2025/10/12/browns-vs-steelers-takeaways-res
 **Meet Terry Smith: Penn State’s interim coach after James Franklin firing**\
 `The former Nittany Lions receiver has been a part of the Penn State coaching staff since 2014.`\
 https://nytimes.com/athletic/6711357/2025/10/12/who-is-terry-smith-penn-state/
-
-**49ers star linebacker Fred Warner carted off, ruled out with ankle injury**\
-`Add Warner to the 49ers' ever-growing list of injuries this season.`\
-https://nytimes.com/athletic/6711536/2025/10/12/49ers-fred-warner-ankle-injury/
 
