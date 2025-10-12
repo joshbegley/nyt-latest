@@ -1,3 +1,8 @@
+**How James Franklin's $45M Penn State buyout compares to recent coaching changes**\
+`What to know about James Franklin's $45 million Penn State buyout.
+`\
+https://nytimes.com/athletic/6711634/2025/10/12/penn-state-james-franklin-buyout-explained/
+
 **The Patriots offense may be one-dimensional, but Drake Maye is so good it might not matter**\
 `The Patriots struggled to run the ball against the Saints on Sunday, but their second-year quarterback lifted them to victory anyway.`\
 https://nytimes.com/athletic/6711749/2025/10/12/patriots-drake-maye-offense-new-orleans-saints/
