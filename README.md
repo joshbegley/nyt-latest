@@ -1,3 +1,11 @@
+**The New York Times in Print for Sunday, Oct. 12, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/12/todays-new-york-times
+
+**When Doctors Don’t Agree on Who Should Get a Transplant**\
+`Patients’ mental health problems can make transplant decisions even more fraught.`\
+https://nytimes.com/2025/10/12/opinion/organ-transplant-mental-illness.html
+
 **Teammates to rivals: Cooper Flagg, Kon Knueppel meet in preseason**\
 `Flagg had another strong preseason outing with 11 points and four assists, and Knueppel scored 12 points in the Mavericks' 120-116 loss.`\
 https://nytimes.com/athletic/6709730/2025/10/12/cooper-flagg-mavericks-kon-knueppel-hornets-nba-duke/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6709825/2025/10/12/shohei-ohtani-dodgers-nlcs-recal
 **Zeev Buium scores first NHL goal, but Wild fall short: Takeaways vs. Blue Jackets**\
 `Minnesota rallied from a two-goal deficit, but then watched as Columbus' version of "Kirill" thrilled the Blue Jackets to a 7-4 victory.`\
 https://nytimes.com/athletic/6709728/2025/10/12/wild-blue-jackets-zeev-buium-nhl-goal/
-
-**Will the World’s Oldest President Win Another Term?**\
-`President Paul Biya of Cameroon would be nearly 100 years old by the time he completed his eighth term, but he has promised that “the best is still to come.”`\
-https://nytimes.com/2025/10/12/world/africa/cameroon-election-biya-president.html
-
-**Broncos vs. Jets in London: What to know about the NFL's Week 6 international game**\
-`The NFL has exported games to five countries this year. Up next is another kickoff in London. Here's what to know about Jets vs. Broncos.`\
-https://nytimes.com/athletic/6699332/2025/10/12/jets-broncos-nfl-london-tottenham-how-to-watch/
 

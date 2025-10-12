@@ -1,3 +1,11 @@
+**Teammates to rivals: Cooper Flagg, Kon Knueppel meet in preseason**\
+`Flagg had another strong preseason outing with 11 points and four assists, and Knueppel scored 12 points in the Mavericks' 120-116 loss.`\
+https://nytimes.com/athletic/6709730/2025/10/12/cooper-flagg-mavericks-kon-knueppel-hornets-nba-duke/
+
+**Kirill Marchenko breaks through with his 4th career hat trick in Blue Jackets win**\
+`Marchenko now has 12 shots on goal in two games.`\
+https://nytimes.com/athletic/6709952/2025/10/12/kirill-marchenko-blue-jackets-hat-trick-wild/
+
 **The Sabres' 0-2 start is familiar and concerning: 5 thoughts**\
 `How have things gone this badly this quickly for the Sabres? Things aren't about to get easier, and they've already dug themselves a hole.`\
 https://nytimes.com/athletic/6709919/2025/10/12/buffalo-sabres-boston-bruins-0-2-start/
