@@ -1,3 +1,7 @@
+**Diane Keaton in ‘Reds’: A Remarkable Performance but Also a Returning Point**\
+`Her character, an early-20th-century journalist, undergoes the most dramatic transformation of the film in ways that the actress was especially suited for.`\
+https://nytimes.com/2025/10/12/movies/diane-keaton-reds.html
+
 **How Easton Cowan made the Maple Leafs: Inside the journey from underdog to pro**\
 `Many questioned if he should have been a first-round pick at all. Now, Easton Cowan is in the NHL. He's 'never felt this ready.'`\
 https://nytimes.com/athletic/6693674/2025/10/12/maple-leafs-easton-cowan-prospect-nhl/
