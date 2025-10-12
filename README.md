@@ -1,3 +1,11 @@
+**Where Is God in Gaza?**\
+`The war, which has killed tens of thousands, laid waste to the Gaza Strip and shredded Israel’s reputation abroad, could soon be over. We explore how people have grappled with faith over the past two years.`\
+https://nytimes.com/2025/10/12/briefing/where-is-god-in-gaza.html
+
+**Cubs did a lot this season, but in the end, they didn't do enough**\
+`The Cubs’ season began in Tokyo, so a rematch against the Dodgers in the NLCS would've been sweet. But karmically, this was a just ending. `\
+https://nytimes.com/athletic/6710162/2025/10/12/cubs-brewers-nlds-game-5-loss/
+
 **Australian Airline Says Hackers Leaked Data on Its Customers**\
 `Qantas Airways said criminals stole nearly six million of its customer records in July as part of an attack on companies around the world.`\
 https://nytimes.com/2025/10/12/world/australia/australia-qantas-airlines-cyber-attack.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6709995/2025/10/12/matthew-schaefer-new-york-island
 **Josh Norris is out long-term. What are Buffalo's options to replace him?**\
 `Buffalo will be without Norris, the No. 1 center to open the season, for a "significant amount of time," according to Lindy Ruff.`\
 https://nytimes.com/athletic/6709747/2025/10/12/buffalo-sabres-josh-norris-injury/
-
-**‘Bruins hockey right there’: Nikita Zadorov is a monster, and he has company**\
-`The Bruins beat the Sabres 3-1 Saturday to take a 3-0-0 start to their season.`\
-https://nytimes.com/athletic/6709915/2025/10/12/nikita-zadorov-bruins-hockey/
-
-**Cubs' marathon season ends in quiet, frustrating showing in winner-take-all NLDS Game 5**\
-`The baseball industry certainly isn’t designed to be fair. In the end, though, the Cubs probably got what they deserved.`\
-https://nytimes.com/athletic/6710217/2025/10/12/chicago-cubs-nlds-game-5-eliminated/
 

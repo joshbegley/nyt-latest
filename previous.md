@@ -1,3 +1,7 @@
+**Australian Airline Says Hackers Leaked Data on Its Customers**\
+`Qantas Airways said criminals stole nearly six million of its customer records in July as part of an attack on companies around the world.`\
+https://nytimes.com/2025/10/12/world/australia/australia-qantas-airlines-cyber-attack.html
+
 **Israelis and Palestinians Await Hostage-Prisoner Swap With Relief and Elation**\
 `Under the first phase of the new cease-fire deal, all living hostages in Gaza are expected to be released in the next 24 hours in exchange for about 2,000 Palestinians imprisoned by Israel.`\
 https://nytimes.com/2025/10/12/world/middleeast/israel-gaza-hostages-prisoners-ceasefire.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6709915/2025/10/12/nikita-zadorov-bruins-hockey/
 **Cubs' marathon season ends in quiet, frustrating showing in winner-take-all NLDS Game 5**\
 `The baseball industry certainly isn’t designed to be fair. In the end, though, the Cubs probably got what they deserved.`\
 https://nytimes.com/athletic/6710217/2025/10/12/chicago-cubs-nlds-game-5-eliminated/
-
-**Sunday Special: Bringing Broadway Home**\
-`How to experience the best of the theater world in your living room`\
-https://nytimes.com/2025/10/12/podcasts/the-daily/sunday-special-bringing-broadway-home.html
 

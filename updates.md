@@ -1,3 +1,7 @@
+**Australian Airline Says Hackers Leaked Data on Its Customers**\
+`Qantas Airways said criminals stole nearly six million of its customer records in July as part of an attack on companies around the world.`\
+https://nytimes.com/2025/10/12/world/australia/australia-qantas-airlines-cyber-attack.html
+
 **Israelis and Palestinians Await Hostage-Prisoner Swap With Relief and Elation**\
 `Under the first phase of the new cease-fire deal, all living hostages in Gaza are expected to be released in the next 24 hours in exchange for about 2,000 Palestinians imprisoned by Israel.`\
 https://nytimes.com/2025/10/12/world/middleeast/israel-gaza-hostages-prisoners-ceasefire.html
