@@ -1,3 +1,8 @@
+**How James Franklin's $45M Penn State buyout compares to recent coaching changes**\
+`What to know about James Franklin's $45 million Penn State buyout.
+`\
+https://nytimes.com/athletic/6711634/2025/10/12/penn-state-james-franklin-buyout-explained/
+
 **Buccaneers rookie WR Emeka Egbuka ruled out vs. 49ers with hamstring injury**\
 `The Bucs are already without receivers Mike Evans and Chris Godwin and starting running back Bucky Irving.`\
 https://nytimes.com/athletic/6711771/2025/10/12/buccaneers-emeka-egbuka-hamstring-injury/
