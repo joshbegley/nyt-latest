@@ -1,3 +1,7 @@
+**Dodgers, Brewers clash in rematch of 2018 NL Championship Series: Key matchups, prediction**\
+`The Dodgers are MLB's defending champions, while the Brewers are still searching for the franchise's first World Series title.`\
+https://nytimes.com/athletic/6708610/2025/10/12/dodgers-brewers-nl-championship-series-preview/
+
 **The New York Times in Print for Sunday, Oct. 12, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/12/todays-new-york-times
