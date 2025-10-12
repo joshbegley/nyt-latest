@@ -1,3 +1,27 @@
+**Danny Thompson, Bassist Who Defied Folk Conventions, Dies at 86**\
+`A bedrock of the idiosyncratic British group Pentangle, he went on to play with a host of luminaries, including Roy Orbison, Eric Clapton and Kate Bush.`\
+https://nytimes.com/2025/10/12/arts/music/danny-thompson-dead.html
+
+**Nagelsmann defends Wirtz's Liverpool form: 'It's not his fault'**\
+`Nagelsmann’s comments come after Jurgen Klopp insisted there is no need to worry about “one-in-a-generation talent” Wirtz.`\
+https://nytimes.com/athletic/6710830/2025/10/12/julian-nagelsmann-florian-wirtz-liverpool/
+
+**Mariners ace Bryan Woo added to ALCS roster ahead of Game 1 vs. Blue Jays**\
+`The staff ace has not pitched since leaving a start Sept. 19 with what was later diagnosed as pectoral inflammation.`\
+https://nytimes.com/athletic/6710834/2025/10/12/bryan-woo-mariners-alcs-roster/
+
+**With Kyler Murray inactive, Jacoby Brissett will start at QB for Cardinals**\
+`It will be Brissett's first start for Arizona, which signed him in March.`\
+https://nytimes.com/athletic/6710843/2025/10/12/jacoby-brissett-kyler-murray-injured-cardinals-quarterback/
+
+**How Trump’s Chicago Immigration Crackdown Escalated, in 10 Videos**\
+`Week by week, the federal campaign to ramp up immigration enforcement in the Chicago area has created fear and inflamed tensions.`\
+https://nytimes.com/2025/10/12/us/chicago-immigration-crackdown-videos.html
+
+**Jets-Broncos: New York lets clock run out before halftime in unthinkable move**\
+`The Jets ran out the clock out with runs, short passes and by not snapping the ball on fourth down.`\
+https://nytimes.com/athletic/6710820/2025/10/12/broncos-vs-jets-london-takeaways-results-nfl/
+
 **Bangladesh Detains Army Officers Accused of Crimes Under Previous Regime**\
 `The arrest warrants, issued for more than two dozen people, were part of the country’s continuing struggle to come to terms with its authoritarian past.`\
 https://nytimes.com/2025/10/12/world/asia/bangladesh-arrests-hasina-crimes.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/10/12/dining/chicken-enchiladas-make-ahead-breakfast-sa
 **Honeycomb Wings and Jellyfish: These Costumes Dance Too**\
 `Collaborating with the choreographer Jamar Roberts for the New York City Ballet fashion gala, Iris van Herpen created costumes that merged fantasy and form.`\
 https://nytimes.com/2025/10/12/arts/dance/nyc-ballet-iris-van-herpen-jamar-roberts.html
-
-**Bo Bichette not healthy enough to make Blue Jays' ALCS roster against Mariners**\
-`Also, Chris Bassitt and Max Scherzer were added to the roster with a need for more pitching in the seven-game ALCS.`\
-https://nytimes.com/athletic/6710754/2025/10/12/bo-bichette-blue-jays-alcs/
-
-**At Least 4 Dead in Bar Shooting in South Carolina, Sheriff Says**\
-`Four people were in critical condition after an early-morning shooting that left at least 20 people injured on Sunday in St. Helena, S.C., according to the Beaufort County Sheriff’s Office.`\
-https://nytimes.com/2025/10/12/us/south-carolina-st-helena-shooting-bar.html
-
-**World Cup Qualifiers Become a Venue for European Protests of Israel**\
-`Israeli soccer officials expected the demonstrations to persist even after a cease-fire took hold in Gaza.`\
-https://nytimes.com/2025/10/12/world/europe/israel-soccer-protests-norway-italy.html
-
-**World Series odds: Dodgers favored, while Mariners and Brewers try to make history**\
-`And then there were four. The Dodgers are big favorites to win it all. Can Milwaukee, Toronto or Seattle stop them? Here's what the odds say`\
-https://nytimes.com/athletic/6710616/2025/10/12/world-series-title-odds-dodgers-brewers-jays-mariners/
-
-**Oilers takeaways: Philp helps his cause, Kane's villainous return and an upbeat attitude**\
-`Plus: David Tomasek's power play woes and more on Edmonton's upbeat attitude to start the season.`\
-https://nytimes.com/athletic/6710241/2025/10/12/oilers-noah-philp-evander-kane/
-
-**Palace have had 'early' Glasner contract talks, says Parish**\
-`Glasner's Palace deal runs out at the end of this season, with his future the subject of speculation in recent weeks.`\
-https://nytimes.com/athletic/6710653/2025/10/12/oliver-glasner-contract-palace-wharton/
 
