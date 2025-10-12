@@ -1,3 +1,19 @@
+**Texas Tech's tortilla tossing leads to 2 penalties and a heated postgame exchange**\
+`Texas Tech coach Joey McGuire has pleaded with his fans to limit their tortillas throwing. It hasn't worked. `\
+https://nytimes.com/athletic/6711015/2025/10/12/texas-tech-tortilla-joey-mcguire-lance-leipold/
+
+**Diane Keaton Was the Definition of a Style Icon**\
+`Her legacy will include the ways she shaped fashion, rather than allowing fashion to shape her.`\
+https://nytimes.com/2025/10/12/style/diane-keaton-style-icon.html
+
+**SEC vibes after Week 7: Texas, Alabama and a roller-coaster, unpredictable season**\
+`For all the newfound parity, Alabama might actually be the best team in the conference.`\
+https://nytimes.com/athletic/6710908/2025/10/12/sec-football-rankings-week-7-texas-alabama/
+
+**Susan Griffin, a Leading Voice of Ecofeminism, Is Dead at 82**\
+`With books like “Woman and Nature,” she pioneered a unique form of creative nonfiction, linking violence against women to the ravaging of the environment.`\
+https://nytimes.com/2025/10/12/books/susan-griffin-dead.html
+
 **Cars to Fighter Jets: China’s New Export Curbs May Level a Heavy Blow Worldwide**\
 `Broad restrictions could cause supply interruptions for arms makers, as well as manufacturers in the semiconductor, automotive and other sectors.`\
 https://nytimes.com/2025/10/12/business/china-rare-earth-export-controls.html
