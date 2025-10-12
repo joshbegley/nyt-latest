@@ -1,3 +1,11 @@
+**Where Is God in Gaza?**\
+`The war, which has killed tens of thousands, laid waste to the Gaza Strip and shredded Israel’s reputation abroad, could soon be over. We explore how people have grappled with faith over the past two years.`\
+https://nytimes.com/2025/10/12/briefing/where-is-god-in-gaza.html
+
+**Cubs did a lot this season, but in the end, they didn't do enough**\
+`The Cubs’ season began in Tokyo, so a rematch against the Dodgers in the NLCS would've been sweet. But karmically, this was a just ending. `\
+https://nytimes.com/athletic/6710162/2025/10/12/cubs-brewers-nlds-game-5-loss/
+
 **Australian Airline Says Hackers Leaked Data on Its Customers**\
 `Qantas Airways said criminals stole nearly six million of its customer records in July as part of an attack on companies around the world.`\
 https://nytimes.com/2025/10/12/world/australia/australia-qantas-airlines-cyber-attack.html
