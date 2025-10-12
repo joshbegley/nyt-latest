@@ -1,3 +1,15 @@
+**Colts hold on as Cardinals' final red-zone drive sputters**\
+`Jonathan Taylor rushed for 123 yards, and the Colts improved to 5-1.`\
+https://nytimes.com/athletic/6711485/2025/10/12/cardinals-vs-colts-takeaways-results-nfl/
+
+**China’s High Ambitions for Clean Energy**\
+`Our Beijing bureau chief Keith Bradsher reports on new solar and wind projects on the Tibetan Plateau.`\
+https://nytimes.com/2025/10/12/world/china-clean-energy-solar-israel-gaza-hostage-madagascar-coup.html
+
+**'It's just really sad': Blue Jays' Trey Yesavage addresses negativity directed toward family**\
+`"I know I have the platform to address it," Toronto's 22-year-old starter said. "So I am."`\
+https://nytimes.com/athletic/6711496/2025/10/12/blue-jays-trey-yesavage-negativity-family/
+
 **Mandel: The audacity of schools crying for money while paying $45M buyouts to CFB coaches**\
 `Schools are clamoring for a way to control student athlete payments. We've yet to hear about coach contracts, of course.`\
 https://nytimes.com/athletic/6711427/2025/10/12/college-football-buyouts-penn-state/
