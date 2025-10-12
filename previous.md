@@ -23,7 +23,7 @@ https://nytimes.com/2025/10/12/business/china-rare-earth-export-controls.html
 https://nytimes.com/athletic/6710933/2025/10/12/broncos-vs-jets-london-takeaways-results-nfl-2/
 
 **Mark Sanchez has mugshot taken, says he's 'focused on recovery' after stabbing**\
-`Sanchez was hospitalized last Saturday after being stabbed during his alleged attack on a 69-year-old truck driver.`\
+`Sanchez was hospitalized Oct. 4 after being stabbed during his alleged attack on a 69-year-old truck driver.`\
 https://nytimes.com/athletic/6710791/2025/10/12/mark-sanchez-released-hospital/
 
 **Often Overlooked, Diane Keaton Was Essential to ‘The Godfather’ Saga**\

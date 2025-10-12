@@ -1,4 +1,8 @@
-**Texas Tech's tortilla tossing leads to 2 penalties and a heated postgame exchange**\
+**How Easton Cowan made the Maple Leafs: Inside the journey from underdog to pro**\
+`Many questioned if he should have been a first-round pick at all. Now, Easton Cowan is in the NHL. He's 'never felt this ready.'`\
+https://nytimes.com/athletic/6693674/2025/10/12/maple-leafs-easton-cowan-prospect-nhl/
+
+**The Texas Tech tortilla-tossing controversy explained: Heated exchanges, 15-yard penalties**\
 `Texas Tech coach Joey McGuire has pleaded with his fans to limit their tortillas throwing. It hasn't worked. `\
 https://nytimes.com/athletic/6711015/2025/10/12/texas-tech-tortilla-joey-mcguire-lance-leipold/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/12/movies/diane-keaton-the-godfather.html
 **Oregon State fires coach Trent Bray after 0-7 start: Source**\
 `Oregon State has gotten off to a disastrous start to the season, its worst program start since 1991.`\
 https://nytimes.com/athletic/6710888/2025/10/12/trent-bray-oregon-state-coach-fire/
-
-**Colts' Anthony Richardson inactive vs. Cardinals after injuring eye in warmups**\
-`With Richardson out, Colts rookie Riley Leonard will serve as Daniel Jones' backup. `\
-https://nytimes.com/athletic/6710902/2025/10/12/colts-anthony-richardson-inactive-eye-injury-warmups/
 

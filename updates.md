@@ -1,3 +1,7 @@
+**Mark Sanchez has mugshot taken, says he's 'focused on recovery' after stabbing**\
+`Sanchez was hospitalized Oct. 4 after being stabbed during his alleged attack on a 69-year-old truck driver.`\
+https://nytimes.com/athletic/6710791/2025/10/12/mark-sanchez-released-hospital/
+
 **Texas Tech's tortilla tossing leads to 2 penalties and a heated postgame exchange**\
 `Texas Tech coach Joey McGuire has pleaded with his fans to limit their tortillas throwing. It hasn't worked. `\
 https://nytimes.com/athletic/6711015/2025/10/12/texas-tech-tortilla-joey-mcguire-lance-leipold/
