@@ -1,3 +1,15 @@
+**Chargers-Dolphins takeaways: L.A. ends skid, beating Miami with late drive**\
+`Cameron Dicker's game-winning field goal is set up by Justin Herbert-to-Ladd McConkey 42-yard pass play.`\
+https://nytimes.com/athletic/6710978/2025/10/12/chargers-vs-dolphins-takeaways-results-nfl/
+
+**Rams-Ravens takeaways: Baltimore continues disastrous slide**\
+`Both teams looked sloppy at times, but the Ravens are just plain bad. `\
+https://nytimes.com/athletic/6711319/2025/10/12/rams-vs-ravens-takeaways-results-nfl/
+
+**How good is the Oregon State football coaching job? Beavers struggling to find footing**\
+`It's been a rough stretch for Oregon State, but there is an opportunity for a quick turnaround in new-look Pac-12. `\
+https://nytimes.com/athletic/6711128/2025/10/12/oregon-state-coaching-candidates-brent-vigen/
+
 **Helicopter Crash in Southern California Injures At Least 3 Bystanders**\
 `The two people onboard were safely pulled from the wreckage on Saturday, the police said. The severity of the victims’ injuries was not made clear.`\
 https://nytimes.com/video/us/100000010454868/helicopter-crash-huntington-beach-ca.html
