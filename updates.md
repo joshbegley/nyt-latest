@@ -1,3 +1,7 @@
+**Messi makes most of 'bonus' show for Miami**\
+`Lionel Messi’s decision to leave the Argentine national team camp and sneak in an MLS game during the international break may have raised some eyebrows back in his homeland but it certainly paid off for club and player as he scored twice in a 4-0 win over Atlanta United on Saturday.`\
+https://nytimes.com/athletic/6709706/2025/10/11/messi-makes-most-of-bonus-show-for-miami/
+
 **Did Auburn's Jackson Arnold fumble? Controversial goal-line call gives Georgia momentum**\
 `If the call had been overturned, Auburn would have gone up 17-0, assuming a made extra point. Instead, it was 10-3 at the half.`\
 https://nytimes.com/athletic/6709703/2025/10/11/auburn-georgia-fumble-jackson-arnold-controversy/

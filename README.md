@@ -1,3 +1,7 @@
+**Tiger Woods undergoes another back surgery with timetable for return uncertain**\
+`It seems unlikely that the 15-time major tournament winner will be able to play the PNC with his son nor the Hero World Challenge and TGL.`\
+https://nytimes.com/athletic/6709628/2025/10/11/tiger-woods-back-surgery-pnc-championship/
+
 **Messi makes most of 'bonus' show for Miami**\
 `Lionel Messi’s decision to leave the Argentine national team camp and sneak in an MLS game during the international break may have raised some eyebrows back in his homeland but it certainly paid off for club and player as he scored twice in a 4-0 win over Atlanta United on Saturday.`\
 https://nytimes.com/athletic/6709706/2025/10/11/messi-makes-most-of-bonus-show-for-miami/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6709572/2025/10/11/james-franklin-penn-state-buyout
 **No Survivors Were Found After Tennessee Plant Explosion, Officials Said**\
 `Sheriff Chris Davis of Humphreys County said earlier that 16 people were missing after the blast at the ammunition plant. On Saturday, he said investigators were looking for remains.`\
 https://nytimes.com/video/us/100000010454166/tennessee-munitions-plant-explosion-deaths.html
-
-**Diane Keaton’s Unmistakable Look Also Was Key to Her Art**\
-`Though she downplayed it, her role in creating the outfits of “Annie Hall” made her the author of a fascinating career.`\
-https://nytimes.com/2025/10/11/movies/diane-keaton-annie-hall.html
 
