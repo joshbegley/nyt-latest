@@ -14,7 +14,7 @@ https://nytimes.com/2025/10/12/opinion/organ-transplant-mental-illness.html
 `Flagg had another strong preseason outing with 11 points and four assists, and Knueppel scored 12 points in the Mavericks' 120-116 loss.`\
 https://nytimes.com/athletic/6709730/2025/10/12/cooper-flagg-mavericks-kon-knueppel-hornets-nba-duke/
 
-**Kirill Marchenko breaks through with his 4th career hat trick in Blue Jackets win**\
+**Kirill Marchenko breaks through with his fourth career hat trick in Blue Jackets' win**\
 `Marchenko now has 12 shots on goal in two games.`\
 https://nytimes.com/athletic/6709952/2025/10/12/kirill-marchenko-blue-jackets-hat-trick-wild/
 
