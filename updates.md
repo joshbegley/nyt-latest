@@ -1,3 +1,7 @@
+**3 Qatari Officials Die in Car Crash in Egypt Before Gaza Summit**\
+`The crash was in Sharm el Sheikh, where indirect talks between Israel and Hamas led to a breakthrough deal. The city will also host a summit on Monday.`\
+https://nytimes.com/2025/10/12/world/middleeast/qatar-egypt-crash-sharm-el-sheikh.html
+
 **Social Media Restrictions and 2-Day Internet Shutdown Rattle Afghanistan**\
 `A telecommunications blackout and restrictions on social media have further isolated Afghans who rely on the internet as a lifeline.`\
 https://nytimes.com/2025/10/12/world/asia/social-media-restrictions-and-2-day-internet-shutdown-rattle-afghanistan.html
