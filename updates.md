@@ -1,3 +1,7 @@
+**Behind Drake Maye, Patriots push winning streak to three games.**\
+`With the 25-19 victory, New England matched its win total from each of the past two seasons.`\
+https://nytimes.com/athletic/6711267/2025/10/12/patriots-vs-saints-takeaways-results-nfl/
+
 **Chargers-Dolphins takeaways: L.A. ends skid, beating Miami with late drive**\
 `Cameron Dicker's game-winning field goal is set up by Justin Herbert-to-Ladd McConkey 42-yard pass play.`\
 https://nytimes.com/athletic/6710978/2025/10/12/chargers-vs-dolphins-takeaways-results-nfl/
