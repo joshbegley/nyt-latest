@@ -1,3 +1,19 @@
+**‘My Older Brother Made Sure That I Grew Up to Be a Yankees Fan’**\
+`Confusion over a baseball cap, swapping stories of clothing mishaps and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/10/12/nyregion/metropolitan-diary.html
+
+**Bolivia Pushes to Reclaim the Coca Leaf From the Stigma of Cocaine**\
+`Long criminalized as the raw material for cocaine, coca is woven into Bolivian life. The government is lobbying the U.N. to ease international restrictions.`\
+https://nytimes.com/2025/10/12/world/americas/bolivia-coca-plant-leaf-cocaine.html
+
+**What to Know About the Battle for a Casino License in New York City**\
+`The gambling industry has long dreamed of opening a casino in the largest metropolitan area in the United States. Four proposals are vying for approval from state authorities.`\
+https://nytimes.com/2025/10/12/nyregion/nyc-casinos.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/10/12/crosswords/spelling-bee-forum.html
+
 **Dodgers, Brewers clash in rematch of 2018 NL Championship Series: Key matchups, prediction**\
 `The Dodgers are MLB's defending champions, while the Brewers are still searching for the franchise's first World Series title.`\
 https://nytimes.com/athletic/6708610/2025/10/12/dodgers-brewers-nl-championship-series-preview/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6709952/2025/10/12/kirill-marchenko-blue-jackets-ha
 **The Sabres' 0-2 start is familiar and concerning: 5 thoughts**\
 `How have things gone this badly this quickly for the Sabres? Things aren't about to get easier, and they've already dug themselves a hole.`\
 https://nytimes.com/athletic/6709919/2025/10/12/buffalo-sabres-boston-bruins-0-2-start/
-
-**The death of Mark Townsend at Hillsborough: What we learned from the inquest**\
-`A two-week inquest into the West Brom supporter’s death offered an insight into how fans’ medical care is provided in modern football`\
-https://nytimes.com/athletic/6706810/2025/10/12/mark-townsend-west-brom-sheffield-wednesday-inquest/
-
-**Can Premier League’s silent decision-makers learn from Bundesliga sporting directors?**\
-`The Premier League is a source of absolute fascination - and yet those who make the calls which determine a club’s direction rarely speak`\
-https://nytimes.com/athletic/6696969/2025/10/12/premier-league-transfers-sporting-directors-silent/
-
-**The pride of a British-born captain of a Caribbean national team**\
-`Brandon Comley's grandfather rarely spoke about being born in Montserrat. Now the Walsall midfielder is representing the nation as captain`\
-https://nytimes.com/athletic/6702938/2025/10/12/brandon-comley-caribbean-british-captain/
-
-**Dodgers need more from Shohei Ohtani: 'We're counting on a recalibration'**\
-`The 3-time NL MVP struggled during the NLDS against Phillies pitchers, and L.A. is hoping he'll bounce back, as he did in last year's NLCS.`\
-https://nytimes.com/athletic/6709825/2025/10/12/shohei-ohtani-dodgers-nlcs-recalibration/
 
