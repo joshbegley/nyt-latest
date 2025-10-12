@@ -1,3 +1,7 @@
+**Dodgers, Brewers clash in rematch of 2018 NL Championship Series: Key matchups, prediction**\
+`The Dodgers are MLB's defending champions, while the Brewers are still searching for the franchise's first World Series title.`\
+https://nytimes.com/athletic/6708610/2025/10/12/dodgers-brewers-nl-championship-series-preview/
+
 **The New York Times in Print for Sunday, Oct. 12, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/12/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6702938/2025/10/12/brandon-comley-caribbean-british
 **Dodgers need more from Shohei Ohtani: 'We're counting on a recalibration'**\
 `The 3-time NL MVP struggled during the NLDS against Phillies pitchers, and L.A. is hoping he'll bounce back, as he did in last year's NLCS.`\
 https://nytimes.com/athletic/6709825/2025/10/12/shohei-ohtani-dodgers-nlcs-recalibration/
-
-**Zeev Buium scores first NHL goal, but Wild fall short: Takeaways vs. Blue Jackets**\
-`Minnesota rallied from a two-goal deficit, but then watched as Columbus' version of "Kirill" thrilled the Blue Jackets to a 7-4 victory.`\
-https://nytimes.com/athletic/6709728/2025/10/12/wild-blue-jackets-zeev-buium-nhl-goal/
 
