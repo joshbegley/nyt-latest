@@ -1,3 +1,7 @@
+**Norway vs Israel was months in the planning for authorities, but politics seeped through**\
+`Officials from both teams discussed Gaza and the controversy of this game, while there were protests and a small number of arrests.`\
+https://nytimes.com/athletic/6709470/2025/10/12/israel-norway-protests-palestine-gaza/
+
 **‘My Older Brother Made Sure That I Grew Up to Be a Yankees Fan’**\
 `Confusion over a baseball cap, swapping stories of clothing mishaps and more reader tales of New York City in this week’s Metropolitan Diary.`\
 https://nytimes.com/2025/10/12/nyregion/metropolitan-diary.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6709730/2025/10/12/cooper-flagg-mavericks-kon-knuep
 **Kirill Marchenko breaks through with his fourth career hat trick in Blue Jackets' win**\
 `Marchenko now has 12 shots on goal in two games.`\
 https://nytimes.com/athletic/6709952/2025/10/12/kirill-marchenko-blue-jackets-hat-trick-wild/
-
-**The Sabres' 0-2 start is familiar and concerning: 5 thoughts**\
-`How have things gone this badly this quickly for the Sabres? Things aren't about to get easier, and they've already dug themselves a hole.`\
-https://nytimes.com/athletic/6709919/2025/10/12/buffalo-sabres-boston-bruins-0-2-start/
 
