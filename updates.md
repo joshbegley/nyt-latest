@@ -1,3 +1,15 @@
+**Can Premier League’s silent decision-makers learn from Bundesliga sporting directors?**\
+`The Premier League is a source of absolute fascination - and yet those who make the calls which determine a club’s direction rarely speak`\
+https://nytimes.com/athletic/6696969/2025/10/12/premier-league-transfers-sporting-directors-silent/
+
+**The pride of a British-born captain of a Caribbean national team**\
+`Brandon Comley's grandfather rarely spoke about being born in Montserrat. Now the Walsall midfielder is representing the nation as captain`\
+https://nytimes.com/athletic/6702938/2025/10/12/brandon-comley-caribbean-british-captain/
+
+**Dodgers need more from Shohei Ohtani: 'We're counting on a recalibration'**\
+`The 3-time NL MVP struggled during the NLDS against Phillies pitchers, and L.A. is hoping he'll bounce back, as he did in last year's NLCS.`\
+https://nytimes.com/athletic/6709825/2025/10/12/shohei-ohtani-dodgers-nlcs-recalibration/
+
 **Zeev Buium scores first NHL goal, but Wild fall short: Takeaways vs. Blue Jackets**\
 `Minnesota rallied from a two-goal deficit, but then watched as Columbus' version of "Kirill" thrilled the Blue Jackets to a 7-4 victory.`\
 https://nytimes.com/athletic/6709728/2025/10/12/wild-blue-jackets-zeev-buium-nhl-goal/
