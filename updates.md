@@ -1,3 +1,15 @@
+**49ers star linebacker Fred Warner carted off, ruled out with ankle injury**\
+`Add Warner to the 49ers' ever-growing list of injuries this season.`\
+https://nytimes.com/athletic/6711536/2025/10/12/49ers-fred-warner-ankle-injury/
+
+**Trump Has Not Ruled Out Invoking Insurrection Act to Deploy National Guard, Vance Says**\
+`Vice President JD Vance asserted in an interview on NBC News’ “Meet the Press” that crime was “out of control” in major U.S. cities.`\
+https://nytimes.com/2025/10/12/us/politics/jd-vance-trump-insurrection-act.html
+
+**Rams-Ravens takeaways: Turnovers doom Baltimore amid disastrous slide**\
+`The Lamar Jackson-less Ravens' woes continued Sunday in Baltimore, falling to 1-5 in a Week 6 loss to the Rams.`\
+https://nytimes.com/athletic/6711319/2025/10/12/rams-vs-ravens-takeaways-results-nfl/
+
 **Panthers-Cowboys: Carolina escapes Dallas with last-second game-winning field goal**\
 `The Panthers improved to 3-3 thanks to Ryan Fitzgerald's 33-yard game-winning field goal as time expired.`\
 https://nytimes.com/athletic/6711349/2025/10/12/cowboys-vs-panthers-takeaways-results-nfl/
