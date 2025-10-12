@@ -1,3 +1,7 @@
+**Kirill Marchenko breaks through with his fourth career hat trick in Blue Jackets' win**\
+`Marchenko now has 12 shots on goal in two games.`\
+https://nytimes.com/athletic/6709952/2025/10/12/kirill-marchenko-blue-jackets-hat-trick-wild/
+
 **Dodgers, Brewers clash in rematch of 2018 NL Championship Series: Key matchups, prediction**\
 `The Dodgers are MLB's defending champions, while the Brewers are still searching for the franchise's first World Series title.`\
 https://nytimes.com/athletic/6708610/2025/10/12/dodgers-brewers-nl-championship-series-preview/
