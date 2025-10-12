@@ -1,3 +1,16 @@
+**2 Dead After Small Plane Crashes Into Semitrailers Near Texas Airfield**\
+`It was unknown what led up to the crash on Sunday afternoon near Hicks Airfield outside of Fort Worth.`\
+https://nytimes.com/2025/10/12/us/fort-worth-plane-crash-hicks-field.html
+
+**Aaron Glenn played not to lose in London. The Jets lost the game, and angered a star**\
+`A Justin Fields-led offense produced next to nothing as the Jets fell to 0-6.`\
+https://nytimes.com/athletic/6711693/2025/10/12/new-york-jets-london-loss-denver-broncos/
+
+**How James Franklin's $45M Penn State buyout compares to recent coaching changes**\
+`What to know about James Franklin's $45 million Penn State buyout.
+`\
+https://nytimes.com/athletic/6711634/2025/10/12/penn-state-james-franklin-buyout-explained/
+
 **How James Franklin's $45M Penn State buyout compares to recent coaching changes**\
 `What to know about James Franklin's $45 million Penn State buyout.
 `\
