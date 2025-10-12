@@ -1,6 +1,6 @@
 **Colts' Anthony Richardson inactive vs. Cardinals after injuring eye in warmups**\
 `With Richardson out, Colts rookie Riley Leonard will serve as Daniel Jones' backup. `\
-https://nytimes.com/athletic/6710902/2025/10/12/colts-anthony-richardson-inactive-vs-cardinals-after-injuring-eye-in-warmups/
+https://nytimes.com/athletic/6710902/2025/10/12/colts-anthony-richardson-inactive-eye-injury-warmups/
 
 **Israel and Hamas Were Not Ready for a Comprehensive Peace Deal, Mediator Says**\
 `The Qatari prime minister told The New York Times that Gaza war mediators decided to delay talks on more difficult issues so a hostage-prisoner swap could be concluded quickly.`\

@@ -1,3 +1,15 @@
+**Colts' Anthony Richardson inactive vs. Cardinals after injuring eye in warmups**\
+`With Richardson out, Colts rookie Riley Leonard will serve as Daniel Jones' backup. `\
+https://nytimes.com/athletic/6710902/2025/10/12/colts-anthony-richardson-inactive-vs-cardinals-after-injuring-eye-in-warmups/
+
+**Israel and Hamas Were Not Ready for a Comprehensive Peace Deal, Mediator Says**\
+`The Qatari prime minister told The New York Times that Gaza war mediators decided to delay talks on more difficult issues so a hostage-prisoner swap could be concluded quickly.`\
+https://nytimes.com/2025/10/12/world/middleeast/israel-hamas-peace-deal.html
+
+**Jets-Broncos: New York lets clock run out before halftime in baffling move**\
+`The Jets ran out the clock out with runs, short passes, and by not snapping the ball on fourth down.`\
+https://nytimes.com/athletic/6710820/2025/10/12/broncos-vs-jets-london-takeaways-results-nfl/
+
 **Danny Thompson, Bassist Who Defied Folk Conventions, Dies at 86**\
 `A bedrock of the idiosyncratic British group Pentangle, he went on to play with a host of luminaries, including Roy Orbison, Eric Clapton and Kate Bush.`\
 https://nytimes.com/2025/10/12/arts/music/danny-thompson-dead.html
