@@ -1,3 +1,7 @@
+**Trump Has Not Ruled Out Invoking Insurrection Act to Deploy National Guard, Vance Says**\
+`Vice President JD Vance asserted in an interview on NBC News’ “Meet the Press” that crime was “out of control” in major U.S. cities.`\
+https://nytimes.com/2025/10/12/us/politics/jd-vance-trump-insurrection-act.html
+
 **Panthers-Cowboys: Carolina escapes Dallas with last-second game-winning field goal**\
 `The Panthers improved to 3-3 thanks to Ryan Fitzgerald's 33-yard game-winning field goal as time expired.`\
 https://nytimes.com/athletic/6711349/2025/10/12/cowboys-vs-panthers-takeaways-results-nfl/
@@ -18,8 +22,8 @@ https://nytimes.com/athletic/6711267/2025/10/12/patriots-vs-saints-takeaways-res
 `Cameron Dicker's game-winning field goal is set up by Justin Herbert-to-Ladd McConkey 42-yard pass play.`\
 https://nytimes.com/athletic/6710978/2025/10/12/chargers-vs-dolphins-takeaways-results-nfl/
 
-**Rams-Ravens takeaways: Baltimore continues disastrous slide**\
-`Both teams looked sloppy at times, but the Ravens are just plain bad. `\
+**Rams-Ravens takeaways: Turnovers doom Baltimore amid disastrous slide**\
+`The Lamar Jackson-less Ravens' woes continued Sunday in Baltimore, falling to 1-5 in a Week 6 loss to the Rams.`\
 https://nytimes.com/athletic/6711319/2025/10/12/rams-vs-ravens-takeaways-results-nfl/
 
 **How good is the Oregon State football coaching job? Beavers struggling to find footing**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/100000010454868/helicopter-crash-huntington-beach-c
 **James Franklin is out at Penn State: Can the Nittany Lions lure Curt Cignetti from Indiana?**\
 `Cignetti, who has engineered an amazing turnaround at Indiana, and Nebraska's Matt Rhule will be top targets. `\
 https://nytimes.com/athletic/6711353/2025/10/12/james-franklin-penn-state-candidates-curt-cignetti-matt-rhule/
-
-**Broncos keep drowning QBs, but defense needs offense's help vs. non-Jets teams ahead**\
-`Denver sacked Justin Fields nine times in Sunday's game and limited New York to 82 total yards of offense.`\
-https://nytimes.com/athletic/6711059/2025/10/12/broncos-defense-sacks-jets/
 

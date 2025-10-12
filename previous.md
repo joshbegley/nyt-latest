@@ -1,3 +1,15 @@
+**Panthers-Cowboys: Carolina escapes Dallas with last-second game-winning field goal**\
+`The Panthers improved to 3-3 thanks to Ryan Fitzgerald's 33-yard game-winning field goal as time expired.`\
+https://nytimes.com/athletic/6711349/2025/10/12/cowboys-vs-panthers-takeaways-results-nfl/
+
+**Seahawks-Jaguars takeaways: Jaxon Smith-Njigba sparks Seattle to road win**\
+`Seattle sacked Trevor Lawrence seven times in a defensive struggle.`\
+https://nytimes.com/athletic/6710970/2025/10/12/seahawks-vs-jaguars-takeaways-results-nfl/
+
+**Trump leaves for a visit to Israel, and will later co-chair a meeting in Egypt on the Gaza peace plan.**\
+`Several Arab nations will attend the summit, along with the U.N. secretary-general and the heads of state from the United Kingdom, France, Italy and Spain.`\
+https://nytimes.com/live/2025/10/12/us/trump-news/trump-leaves-for-a-visit-to-israel-and-will-later-co-chair-a-meeting-in-egypt-on-the-gaza-peace-plan
+
 **Behind Drake Maye, Patriots push winning streak to three games.**\
 `With the 25-19 victory, New England matched its win total from each of the past two seasons.`\
 https://nytimes.com/athletic/6711267/2025/10/12/patriots-vs-saints-takeaways-results-nfl/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6711353/2025/10/12/james-franklin-penn-state-candid
 **Broncos keep drowning QBs, but defense needs offense's help vs. non-Jets teams ahead**\
 `Denver sacked Justin Fields nine times in Sunday's game and limited New York to 82 total yards of offense.`\
 https://nytimes.com/athletic/6711059/2025/10/12/broncos-defense-sacks-jets/
-
-**Wilshere close to becoming Luton manager**\
-`The League One side dismissed Matt Bloomfield last Monday after losing five of their first 11 League One games.`\
-https://nytimes.com/athletic/6711292/2025/10/12/jack-wilshere-luton-manager-next/
-
-**Why Now? The Lost Chances to Reach a Hostage Deal, and a Cease-Fire, Months Ago**\
-`On Gaza, President Trump put few, if any, guardrails on Israel’s offensive, bucking international demands for a cease-fire. Then he changed course.`\
-https://nytimes.com/2025/10/12/us/politics/lost-chances-hostage-deal-gaza-israel.html
-
-**California Raises Minimum Payout for Wildfire Victims’ Items**\
-`After years of fires that left families tallying every burned toothbrush, a new law is requiring insurers to ease a grueling burden.`\
-https://nytimes.com/2025/10/12/realestate/california-doubles-wildfire-payouts.html
 

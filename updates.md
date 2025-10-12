@@ -1,3 +1,15 @@
+**Panthers-Cowboys: Carolina escapes Dallas with last-second game-winning field goal**\
+`The Panthers improved to 3-3 thanks to Ryan Fitzgerald's 33-yard game-winning field goal as time expired.`\
+https://nytimes.com/athletic/6711349/2025/10/12/cowboys-vs-panthers-takeaways-results-nfl/
+
+**Seahawks-Jaguars takeaways: Jaxon Smith-Njigba sparks Seattle to road win**\
+`Seattle sacked Trevor Lawrence seven times in a defensive struggle.`\
+https://nytimes.com/athletic/6710970/2025/10/12/seahawks-vs-jaguars-takeaways-results-nfl/
+
+**Trump leaves for a visit to Israel, and will later co-chair a meeting in Egypt on the Gaza peace plan.**\
+`Several Arab nations will attend the summit, along with the U.N. secretary-general and the heads of state from the United Kingdom, France, Italy and Spain.`\
+https://nytimes.com/live/2025/10/12/us/trump-news/trump-leaves-for-a-visit-to-israel-and-will-later-co-chair-a-meeting-in-egypt-on-the-gaza-peace-plan
+
 **Behind Drake Maye, Patriots push winning streak to three games.**\
 `With the 25-19 victory, New England matched its win total from each of the past two seasons.`\
 https://nytimes.com/athletic/6711267/2025/10/12/patriots-vs-saints-takeaways-results-nfl/
