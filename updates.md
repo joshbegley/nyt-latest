@@ -1,3 +1,7 @@
+**Broncos keep drowning QBs, but defense needs offense's help vs. non-Jets teams ahead**\
+`Denver sacked Justin Fields nine times in Sunday's game and limited New York to 82 total yards of offense.`\
+https://nytimes.com/athletic/6711059/2025/10/12/broncos-defense-sacks-jets/
+
 **Aaron Glenn on whether Fields will remain Jets starter: 'What kind of question is that?'**\
 `Fields completed just 9 of 17 passes for 45 yards and took nine sacks in the Jets' 13-11 loss in London.`\
 https://nytimes.com/athletic/6711066/2025/10/12/justin-fields-aaron-glenn-jets-starter-question/
