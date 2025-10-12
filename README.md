@@ -1,4 +1,4 @@
-**Did Auburn's Jackson Arnold fumble? Controversial goal line call gives Georgia momentum**\
+**Did Auburn's Jackson Arnold fumble? Controversial goal-line call gives Georgia momentum**\
 `If the call had been overturned, Auburn would have gone up 17-0, assuming a made extra point. Instead, it was 10-3 at the half.`\
 https://nytimes.com/athletic/6709703/2025/10/11/auburn-georgia-fumble-jackson-arnold-controversy/
 
@@ -10,7 +10,7 @@ https://nytimes.com/athletic/6709621/2025/10/11/blue-jays-alcs-chris-bassitt-max
 `Oklahoma travels next week to South Carolina and then plays five teams that entered Saturday ranked in the top 15.`\
 https://nytimes.com/athletic/6709639/2025/10/11/oklahoma-texas-loss-score-red-river/
 
-**Diane Keaton:A Life in Pictures**\
+**Diane Keaton: A Life in Pictures**\
 `On and off the screen, the star with a distinctive fashion sense was a singular presence.`\
 https://nytimes.com/2025/10/11/arts/diane-keatona-life-in-pictures.html
 
