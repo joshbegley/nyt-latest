@@ -1,3 +1,7 @@
+**Cubs, Kyle Tucker go quiet in NLDS Game 5 loss as they head into an offseason of questions**\
+`MILWAUKEE — Kyle Tucker strode up to the plate in the top of the sixth inning and ground his left foot into the dirt.`\
+https://nytimes.com/athletic/6710156/2025/10/12/chicago-cubs-kyle-tucker-offseason-questions-nlds/
+
 **ALCS predictions: Our experts pick whether the Mariners or Blue Jays will win the pennant**\
 `Will the Blue Jays or Mariners take home the AL crown? Our experts weigh in with their predictions.`\
 https://nytimes.com/athletic/6709526/2025/10/12/alcs-staff-predictions-blue-jays-mariners/
