@@ -1,3 +1,11 @@
+**Rams-Ravens takeaways: Baltimore continues disastrous slide**\
+`Both teams looked sloppy at times, but the Ravens are just plain bad. `\
+https://nytimes.com/athletic/6711319/2025/10/12/rams-vs-ravens-takeaways-results-nfl/
+
+**How good is the Oregon State football coaching job? Beavers struggling to find footing**\
+`It's been a rough stretch for Oregon State, but there is an opportunity for a quick turnaround in new-look Pac-12. `\
+https://nytimes.com/athletic/6711128/2025/10/12/oregon-state-coaching-candidates-brent-vigen/
+
 **Helicopter Crash in Southern California Injures At Least 3 Bystanders**\
 `The two people onboard were safely pulled from the wreckage on Saturday, the police said. The severity of the victims’ injuries was not made clear.`\
 https://nytimes.com/video/us/100000010454868/helicopter-crash-huntington-beach-ca.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/12/books/john-searle-dead.html
 **Marvin Harrison Jr. ruled out vs. Colts with concussion**\
 `Harrison Jr. exited the game in the second quarter after hitting his head on the turf after catching a 21-yard pass from Jacoby Brissett..`\
 https://nytimes.com/athletic/6711207/2025/10/12/cardinals-wr-marvin-harrison-jr-ruled-out-for-second-half-vs-colts-with-concussion/
-
-**Storm Smacking the East Coast Will Bring Days of Heavy Rain and Wind**\
-`The Mid-Atlantic and Northeast will bear the brunt of the storm, which will usher in beach erosion and flooding, Monday into Tuesday, forecasters said.`\
-https://nytimes.com/2025/10/12/us/noreaster-storm-forecast-damage.html
-
-**AP Top 25: Indiana rises to No. 3, highest ranking in school history**\
-`Ohio State, Miami, Indiana, Texas A&M and Ole Miss form the top five of the latest AP Top 25 college football rankings after Week 7.`\
-https://nytimes.com/athletic/6710975/2025/10/12/ap-top-25-indiana-college-football-poll/
 
