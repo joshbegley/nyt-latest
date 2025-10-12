@@ -1,3 +1,7 @@
+**Oilers takeaways: Philp helps his cause, Kane's villainous return and an upbeat attitude**\
+`Plus: David Tomasek's power play woes and more on Edmonton's upbeat attitude to start the season.`\
+https://nytimes.com/athletic/6710241/2025/10/12/oilers-noah-philp-evander-kane/
+
 **Palace have had 'early' Glasner contract talks, says Parish**\
 `Glasner's Palace deal runs out at the end of this season, with his future the subject of speculation in recent weeks.`\
 https://nytimes.com/athletic/6710653/2025/10/12/oliver-glasner-contract-palace-wharton/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6710594/2025/10/12/indiana-football-oregon-playoff-
 **Trump Announces Longtime Aide Dan Scavino as Head of Personnel**\
 `Mr. Scavino, one of Mr. Trump’s most trusted advisers and a deputy chief of staff, has been by his side since the 2016 campaign.`\
 https://nytimes.com/2025/10/12/us/politics/dan-scavino-trump-white-house-personnel.html
-
-**‘S.N.L.’ Trots Out Amy Poehler and Tina Fey for a Senate Judiciary Grilling**\
-`Now, it truly has been 50 years since the show’s debut, and that was celebrated with a few more surprises, including cameos by Charli XCX and Seth Meyers.`\
-https://nytimes.com/2025/10/12/arts/television/snl-recap-amy-poehler-tina-fey.html
 
