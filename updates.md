@@ -1,3 +1,15 @@
+**Mandel's Final Thoughts: Is James Franklin done? Plus, Indiana and Arch Manning shine in Week 7**\
+`As Indiana takes another step in its miraculous turnaround, Penn State is imploding. Plus, Arch Manning beats Oklahoma and more takeaways.`\
+https://nytimes.com/athletic/6710188/2025/10/12/college-football-scores-results-week-7/
+
+**For Pochettino’s USMNT, McKennie creates a ‘good problem’**\
+`Weston McKennie, back with the national team, relishes freedom but finding a slot for him is tricky.`\
+https://nytimes.com/athletic/6709658/2025/10/12/usmnt-mauricio-pochettino-weston-mckennie/
+
+**Lowetide: Why Oilers prospects could fill the net across the hockey world**\
+`After years of uneven results, Oilers prospects are giving an indication that this season might be different.`\
+https://nytimes.com/athletic/6708952/2025/10/12/edmonton-oilers-prospects-2025-season/
+
 **Rethinking Bruce Springsteen’s Difficult Years**\
 `A film argues that an American icon may have made his best music in some of his lowest moments.`\
 https://nytimes.com/2025/10/12/us/bruce-springsteen-film-hostage-tennessee-keaton.html

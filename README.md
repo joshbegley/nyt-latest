@@ -1,3 +1,7 @@
+**Canadiens rookie Ivan Demidov, targeted by Blackhawks, further shows what he’s all about**\
+`Demidov is incredibly skilled, and everyone knows that. But he showed something against the Blackhawks that might have been less known. `\
+https://nytimes.com/athletic/6710102/2025/10/12/canadiens-ivan-demidov-rookie-season-nhl/
+
 **Mandel's Final Thoughts: Is James Franklin done? Plus, Indiana and Arch Manning shine in Week 7**\
 `As Indiana takes another step in its miraculous turnaround, Penn State is imploding. Plus, Arch Manning beats Oklahoma and more takeaways.`\
 https://nytimes.com/athletic/6710188/2025/10/12/college-football-scores-results-week-7/
@@ -30,11 +34,7 @@ https://nytimes.com/2025/10/12/world/asia/afghanistan-pakistan-violence-conflict
 `How will the Bears respond to their return to Washington? Can their run defense be fixed? The weekly mailbag and our game picks.`\
 https://nytimes.com/athletic/6707539/2025/10/12/bears-mailbag-tj-edwards-kyler-gordon/
 
-**The officiating was a mess. But it wasn't the only reason Auburn lost to Georgia**\
+**The officiating was controversial. But it wasn't the only reason Auburn lost to Georgia**\
 `Auburn had control of the game against Georgia — until it lost control, after a series of calls that didn’t go its way.`\
 https://nytimes.com/athletic/6710151/2025/10/12/auburn-georgia-officiating-college-football/
-
-**Wisconsin's unfathomable downfall is complete — the Badgers are the Big Ten's worst team**\
-`Luke Fickell put all the emotional chips on the table for this week’s game with Iowa. His team responded by getting shutout at home. `\
-https://nytimes.com/athletic/6710096/2025/10/12/wisconsin-luke-fickell-iowa-buyout/
 
