@@ -1,4 +1,8 @@
 **Norway vs Israel was months in the planning for authorities, but politics seeped through**\
+`Officials from both teams discussed Gaza and the controversy of Saturday's game, while there were protests and a small number of arrests`\
+https://nytimes.com/athletic/6709470/2025/10/12/israel-norway-protests-palestine-gaza/
+
+**Norway vs Israel was months in the planning for authorities, but politics seeped through**\
 `Officials from both teams discussed Gaza and the controversy of this game, while there were protests and a small number of arrests.`\
 https://nytimes.com/athletic/6709470/2025/10/12/israel-norway-protests-palestine-gaza/
 
