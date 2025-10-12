@@ -1,3 +1,7 @@
+**Blue Jays ALCS Notes: Room for Chris Bassitt and Max Scherzer, Bo Bichette's status**\
+`The best-of-seven ALCS — compared with the LDS — puts more demand on starting pitching, so Scherzer and Bassitt might be active.`\
+https://nytimes.com/athletic/6709621/2025/10/11/blue-jays-alcs-chris-bassitt-max-scherzer-bo-bichette/
+
 **After another loss to Texas, Oklahoma and Brent Venables' troubles could just be beginning**\
 `Oklahoma travels next week to South Carolina and then plays five teams that entered Saturday ranked in the top 15.`\
 https://nytimes.com/athletic/6709639/2025/10/11/oklahoma-texas-loss-score-red-river/
