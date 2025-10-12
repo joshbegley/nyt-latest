@@ -1,3 +1,7 @@
+**Oregon State fires coach Trent Bray after 0-7 start: Source**\
+`Oregon State has gotten off to a disastrous start to the season, its worst program start since 1991.`\
+https://nytimes.com/athletic/6710888/2025/10/12/trent-bray-oregon-state-coach-fire/
+
 **Colts' Anthony Richardson inactive vs. Cardinals after injuring eye in warmups**\
 `With Richardson out, Colts rookie Riley Leonard will serve as Daniel Jones' backup. `\
 https://nytimes.com/athletic/6710902/2025/10/12/colts-anthony-richardson-inactive-eye-injury-warmups/

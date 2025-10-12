@@ -1,3 +1,7 @@
+**Oregon State fires coach Trent Bray after 0-7 start: Source**\
+`Oregon State has gotten off to a disastrous start to the season, its worst program start since 1991.`\
+https://nytimes.com/athletic/6710888/2025/10/12/trent-bray-oregon-state-coach-fire/
+
 **Colts' Anthony Richardson inactive vs. Cardinals after injuring eye in warmups**\
 `With Richardson out, Colts rookie Riley Leonard will serve as Daniel Jones' backup. `\
 https://nytimes.com/athletic/6710902/2025/10/12/colts-anthony-richardson-inactive-eye-injury-warmups/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6710820/2025/10/12/broncos-vs-jets-london-takeaways
 **Bangladesh Detains Army Officers Accused of Crimes Under Previous Regime**\
 `The arrest warrants, issued for more than two dozen people, were part of the country’s continuing struggle to come to terms with its authoritarian past.`\
 https://nytimes.com/2025/10/12/world/asia/bangladesh-arrests-hasina-crimes.html
-
-**How to watch Capitals vs. Rangers: Time, TV, streaming**\
-`Find out how to watch the Washington Capitals play the New York Rangers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6710828/2025/10/12/capitals-vs-rangers-stream-how-to-watch-oct-12/
 
