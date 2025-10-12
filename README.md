@@ -1,4 +1,8 @@
-**Historic final between two tennis cousins sees Valentin Vacherot triumph over tiring Arthur Rinderknech**\
+**Rethinking Bruce Springsteen’s Difficult Years**\
+`A film argues that an American icon may have made his best music in some of his lowest moments.`\
+https://nytimes.com/2025/10/12/us/bruce-springsteen-film-hostage-tennessee-keaton.html
+
+**Valentin Vacherot triumphs over Arthur Rinderknech in emotional Shanghai Masters final between two cousins**\
 `Vacherot defeated Rinderknech at the Shanghai Masters in three sets, to close out the most remarkable ATP Tour story of the year.`\
 https://nytimes.com/athletic/6710351/2025/10/12/valentin-vacherot-arthur-rinderknech-cousins-tennis-shanghai-masters/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6709980/2025/10/12/indiana-oregon-curt-cignetti/
 **Party like it’s 1977! For the Blue Jays and Mariners, an ALCS meeting is finally in the cards**\
 `When the expansion rosters were announced before the first year of each team's existence, Topps had to get creative with their cards.`\
 https://nytimes.com/athletic/6709337/2025/10/12/blue-jays-mariners-alcs-1977-expansion/
-
-**Notre Dame's defense is coming together, but the work isn't finished yet.**\
-`Notre Dame's defense put on another strong outing with multiple takeaways, but they aren't done yet. `\
-https://nytimes.com/athletic/6709753/2025/10/12/notre-dame-defense-marcus-freeman/
 

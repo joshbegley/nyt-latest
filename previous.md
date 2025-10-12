@@ -1,3 +1,19 @@
+**Historic final between two tennis cousins sees Valentin Vacherot triumph over tiring Arthur Rinderknech**\
+`Vacherot defeated Rinderknech at the Shanghai Masters in three sets, to close out the most remarkable ATP Tour story of the year.`\
+https://nytimes.com/athletic/6710351/2025/10/12/valentin-vacherot-arthur-rinderknech-cousins-tennis-shanghai-masters/
+
+**College Football Playoff takeaways: Indiana, Ohio State on collision course in Big Ten**\
+`The Big Ten, SEC and ACC all have two undefeated teams left that don't play other. Here's what we learned about the Playoff in Week 7.`\
+https://nytimes.com/athletic/6710333/2025/10/12/college-football-playoff-race-indiana-ohio-state/
+
+**Overnight Violence Between Afghanistan and Pakistan Threatens a Wider Conflict**\
+`Isolated confrontations have intensified over the past week into the sharpest escalation of violence between the two countries in years.`\
+https://nytimes.com/2025/10/12/world/asia/afghanistan-pakistan-violence-conflict.html
+
+**How can T.J. Edwards, Kyler Gordon help the run defense? Bears mailbag, Week 6 picks**\
+`How will the Bears respond to their return to Washington? Can their run defense be fixed? The weekly mailbag and our game picks.`\
+https://nytimes.com/athletic/6707539/2025/10/12/bears-mailbag-tj-edwards-kyler-gordon/
+
 **The officiating was a mess. But it wasn't the only reason Auburn lost to Georgia**\
 `Auburn had control of the game against Georgia — until it lost control, after a series of calls that didn’t go its way.`\
 https://nytimes.com/athletic/6710151/2025/10/12/auburn-georgia-officiating-college-football/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6709337/2025/10/12/blue-jays-mariners-alcs-1977-exp
 **Notre Dame's defense is coming together, but the work isn't finished yet.**\
 `Notre Dame's defense put on another strong outing with multiple takeaways, but they aren't done yet. `\
 https://nytimes.com/athletic/6709753/2025/10/12/notre-dame-defense-marcus-freeman/
-
-**Guys being dudes: How one man and a $10 bet sparked a section of shirtless Oklahoma State fans**\
-` Trent Eaton's shirt waving in an empty section during Oklahoma State's 39-17 loss to Houston ended with hundreds of fans joining him.`\
-https://nytimes.com/athletic/6710103/2025/10/12/guys-being-dudes-how-one-man-and-a-10-bet-sparked-a-section-of-shirtless-oklahoma-state-fans/
-
-**Trump Is Pitting Us Against One Another in Chicago**\
-`What’s happening is shocking. It can get worse.`\
-https://nytimes.com/2025/10/12/opinion/mensa-ice-raids-chicago-black-citizens.html
-
-**Trump’s Peace Plan Dismantled Netanyahu’s Vision for Gaza**\
-`While he is trying to sell it as a strategic win, the peace deal contradicts many of his coalition’s goals.`\
-https://nytimes.com/2025/10/12/opinion/israel-palestinians-gaza-netanyahu-peace-deal.html
-
-**How a Trump Judge Exposed the Trump Con**\
-`Dishonest presidents should be entitled to no deference at all.`\
-https://nytimes.com/2025/10/12/opinion/trump-judge-immergut-portland-national-guard.html
 
