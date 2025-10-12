@@ -1,3 +1,11 @@
+**Diane Keaton, Oscar-Winning Actress, Dies at 79**\
+`Diane Keaton, the vibrant and sometimes unconventional actress, author and filmmaker, has died. Representatives have not said where or when Ms. Keaton died or cited a cause.`\
+https://nytimes.com/video/us/100000010454658/oscar-winning-actress-diane-keaton-obituary.html
+
+**In Good Physical Shape**\
+`Katherine Xiong makes her New York Times Crossword debut.`\
+https://nytimes.com/2025/10/12/crosswords/daily-puzzle-2025-10-13.html
+
 **Are the Steelers AFC contenders? What are the Jets doing? NFL Week 6 takeaways**\
 `Also: The Seahawks and Chargers earned impressive road wins, while the Panthers have won two straight to reach .500.`\
 https://nytimes.com/athletic/6711082/2025/10/12/nfl-takeaways-week-6-scores-results/
