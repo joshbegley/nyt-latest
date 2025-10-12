@@ -1,3 +1,7 @@
+**After another loss to Texas, Oklahoma and Brent Venables' troubles could just be beginning**\
+`Oklahoma travels next week to South Carolina and then plays five teams that entered Saturday ranked in the top 15.`\
+https://nytimes.com/athletic/6709639/2025/10/11/oklahoma-texas-loss-score-red-river/
+
 **Diane Keaton:A Life in Pictures**\
 `On and off the screen, the star with a distinctive fashion sense was a singular presence.`\
 https://nytimes.com/2025/10/11/arts/diane-keatona-life-in-pictures.html
