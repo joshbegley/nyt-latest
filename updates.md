@@ -1,3 +1,7 @@
+**Broncos-Jets takeaways: N.Y. still winless as Denver wins defensive battle**\
+`Offense was at a premium in the first half of the Jets' game against the Broncos on Sunday in London. In the second half, it was even worse.`\
+https://nytimes.com/athletic/6710933/2025/10/12/broncos-vs-jets-london-takeaways-results-nfl-2/
+
 **Mark Sanchez 'focused on recovery' after stabbing in Indianapolis**\
 `Sanchez was hospitalized last Saturday after being stabbed during his alleged attack on a 69-year-old truck driver.`\
 https://nytimes.com/athletic/6710791/2025/10/12/mark-sanchez-released-hospital/
