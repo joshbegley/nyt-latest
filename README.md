@@ -2,7 +2,7 @@
 `Penn State is a top-10 or top-15 job in college football that has plenty of recent success and resources, making it an attractive opening.`\
 https://nytimes.com/athletic/6711494/2025/10/12/penn-state-football-coaching-search-job-grade/
 
-**Are the Steelers AFC contenders? What are the Jets doing? Our NFL experts' Week 6 takeaways**\
+**Are the Steelers AFC contenders? What are the Jets doing? NFL Week 6 takeaways**\
 `Also: The Seahawks and Chargers earned impressive road wins, while the Panthers have won two straight to reach .500.`\
 https://nytimes.com/athletic/6711082/2025/10/12/nfl-takeaways-week-6-scores-results/
 
