@@ -1,3 +1,11 @@
+**Diane Keaton, Oscar-Winning Actress, Dies at 79**\
+`Diane Keaton, the vibrant and sometimes unconventional actress, author and filmmaker, has died. Representatives have not said where or when Ms. Keaton died or cited a cause.`\
+https://nytimes.com/video/us/100000010454658/oscar-winning-actress-diane-keaton-obituary.html
+
+**In Good Physical Shape**\
+`Katherine Xiong makes her New York Times Crossword debut.`\
+https://nytimes.com/2025/10/12/crosswords/daily-puzzle-2025-10-13.html
+
 **How good is the Penn State job? James Franklin replacement has rare opportunity**\
 `Penn State is a top-10 or top-15 job in college football that has plenty of recent success and resources, making it an attractive opening.`\
 https://nytimes.com/athletic/6711494/2025/10/12/penn-state-football-coaching-search-job-grade/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6711427/2025/10/12/college-football-buyouts-penn-st
 **Eagles mailbag: Send your questions to Zach Berman**\
 `Eagles mailbag: Send your questions to Zach Berman`\
 https://nytimes.com/athletic/6711554/2025/10/12/eagles-mailbag-questions-zach-berman/
-
-**Browns-Steelers: Pittsburgh offense comes alive in second half to seal win**\
-`The first half was an offensive slugfest dictated by four field goals, but Aaron Rodgers tossed two second-half touchdowns.  `\
-https://nytimes.com/athletic/6710961/2025/10/12/browns-vs-steelers-takeaways-results-nfl/
-
-**Meet Terry Smith: Penn State’s interim coach after James Franklin firing**\
-`The former Nittany Lions receiver has been a part of the Penn State coaching staff since 2014.`\
-https://nytimes.com/athletic/6711357/2025/10/12/who-is-terry-smith-penn-state/
 
