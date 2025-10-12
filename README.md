@@ -1,3 +1,7 @@
+**The Sabres' 0-2 start is familiar and concerning: 5 thoughts**\
+`How have things gone this badly this quickly for the Sabres? Things aren't about to get easier, and they've already dug themselves a hole.`\
+https://nytimes.com/athletic/6709919/2025/10/12/buffalo-sabres-boston-bruins-0-2-start/
+
 **The death of Mark Townsend at Hillsborough: What we learned from the inquest**\
 `A two-week inquest into the West Brom supporter’s death offered an insight into how fans’ medical care is provided in modern football`\
 https://nytimes.com/athletic/6706810/2025/10/12/mark-townsend-west-brom-sheffield-wednesday-inquest/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/12/pageoneplus/quote-of-the-day-comic-con-lets-you-b
 **Connections: Sports Edition Coach: Hints for Oct. 12, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6709413/2025/10/12/connections-sports-edition-hints-for-oct-12-2025/
-
-**Corrections: Oct. 12, 2025**\
-`Corrections that appeared in print on Sunday, Oct. 12, 2025.`\
-https://nytimes.com/2025/10/12/pageoneplus/corrections-oct-12-2025.html
 
