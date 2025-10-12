@@ -1,3 +1,7 @@
+**World Series odds: Dodgers favored, while Mariners and Brewers try to make history**\
+`And then there were four. The Dodgers are big favorites to win it all. Can Milwaukee, Toronto or Seattle stop them? Here's what the odds say`\
+https://nytimes.com/athletic/6710616/2025/10/12/world-series-title-odds-dodgers-brewers-jays-mariners/
+
 **Oilers takeaways: Philp helps his cause, Kane's villainous return and an upbeat attitude**\
 `Plus: David Tomasek's power play woes and more on Edmonton's upbeat attitude to start the season.`\
 https://nytimes.com/athletic/6710241/2025/10/12/oilers-noah-philp-evander-kane/
