@@ -1,3 +1,15 @@
+**Browns-Steelers: Pittsburgh offense comes alive in second half to seal win**\
+`The first half was an offensive slugfest dictated by four field goals, but Aaron Rodgers tossed two second-half touchdowns.  `\
+https://nytimes.com/athletic/6710961/2025/10/12/browns-vs-steelers-takeaways-results-nfl/
+
+**Meet Terry Smith: Penn State’s interim coach after James Franklin firing**\
+`The former Nittany Lions receiver has been a part of the Penn State coaching staff since 2014.`\
+https://nytimes.com/athletic/6711357/2025/10/12/who-is-terry-smith-penn-state/
+
+**Panthers-Cowboys: Carolina escapes with last-second game-winning field goal**\
+`The Panthers improved to 3-3 thanks to Ryan Fitzgerald's 33-yard game-winning field goal as time expired.`\
+https://nytimes.com/athletic/6711349/2025/10/12/cowboys-vs-panthers-takeaways-results-nfl/
+
 **49ers star linebacker Fred Warner carted off, ruled out with ankle injury**\
 `Add Warner to the 49ers' ever-growing list of injuries this season.`\
 https://nytimes.com/athletic/6711536/2025/10/12/49ers-fred-warner-ankle-injury/

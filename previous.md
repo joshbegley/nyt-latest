@@ -1,3 +1,11 @@
+**Browns-Steelers: Pittsburgh offense comes alive in second half to seal win**\
+`The first half was an offensive slugfest dictated by four field goals, but Aaron Rodgers tossed two second-half touchdowns.  `\
+https://nytimes.com/athletic/6710961/2025/10/12/browns-vs-steelers-takeaways-results-nfl/
+
+**Meet Terry Smith: Penn State’s interim coach after James Franklin firing**\
+`The former Nittany Lions receiver has been a part of the Penn State coaching staff since 2014.`\
+https://nytimes.com/athletic/6711357/2025/10/12/who-is-terry-smith-penn-state/
+
 **49ers star linebacker Fred Warner carted off, ruled out with ankle injury**\
 `Add Warner to the 49ers' ever-growing list of injuries this season.`\
 https://nytimes.com/athletic/6711536/2025/10/12/49ers-fred-warner-ankle-injury/
@@ -6,7 +14,7 @@ https://nytimes.com/athletic/6711536/2025/10/12/49ers-fred-warner-ankle-injury/
 `Vice President JD Vance asserted in an interview on NBC News’ “Meet the Press” that crime was “out of control” in major U.S. cities.`\
 https://nytimes.com/2025/10/12/us/politics/jd-vance-trump-insurrection-act.html
 
-**Panthers-Cowboys: Carolina escapes Dallas with last-second game-winning field goal**\
+**Panthers-Cowboys: Carolina escapes with last-second game-winning field goal**\
 `The Panthers improved to 3-3 thanks to Ryan Fitzgerald's 33-yard game-winning field goal as time expired.`\
 https://nytimes.com/athletic/6711349/2025/10/12/cowboys-vs-panthers-takeaways-results-nfl/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6710978/2025/10/12/chargers-vs-dolphins-takeaways-r
 **Rams-Ravens takeaways: Turnovers doom Baltimore amid disastrous slide**\
 `The Lamar Jackson-less Ravens' woes continued Sunday in Baltimore, falling to 1-5 in a Week 6 loss to the Rams.`\
 https://nytimes.com/athletic/6711319/2025/10/12/rams-vs-ravens-takeaways-results-nfl/
-
-**How good is the Oregon State football coaching job? Beavers struggling to find footing**\
-`It's been a rough stretch for Oregon State, but there is an opportunity for a quick turnaround in new-look Pac-12. `\
-https://nytimes.com/athletic/6711128/2025/10/12/oregon-state-coaching-candidates-brent-vigen/
-
-**Helicopter Crash in Southern California Injures At Least 3 Bystanders**\
-`The two people onboard were safely pulled from the wreckage on Saturday, the police said. The severity of the victims’ injuries was not made clear.`\
-https://nytimes.com/video/us/100000010454868/helicopter-crash-huntington-beach-ca.html
 
