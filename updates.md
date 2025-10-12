@@ -1,3 +1,7 @@
+**The death of Mark Townsend at Hillsborough: What we learned from the inquest**\
+`A two-week inquest into the West Brom supporter’s death offered an insight into how fans’ medical care is provided in modern football`\
+https://nytimes.com/athletic/6706810/2025/10/12/mark-townsend-west-brom-sheffield-wednesday-inquest/
+
 **Can Premier League’s silent decision-makers learn from Bundesliga sporting directors?**\
 `The Premier League is a source of absolute fascination - and yet those who make the calls which determine a club’s direction rarely speak`\
 https://nytimes.com/athletic/6696969/2025/10/12/premier-league-transfers-sporting-directors-silent/
