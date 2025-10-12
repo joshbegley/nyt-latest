@@ -1,3 +1,15 @@
+**Rangers revive winning formula of special teams, goaltending in 6-1 victory**\
+`Special teams produced three of the Rangers' first four goals and goalie Igor Shesterkin made 18 saves on 19 shots in Pittsburgh. `\
+https://nytimes.com/athletic/6709823/2025/10/12/new-york-rangers-special-teams-goaltending/
+
+**Coco Gauff produces junk-ball masterclass to win Wuhan Open against Jessica Pegula**\
+`Gauff broke Pegula's rhythm with a mix of speeds and spins to become the second player to win both the China and Wuhan Opens in her career.`\
+https://nytimes.com/athletic/6710511/2025/10/12/coco-gauff-wuhan-open-jessica-pegula/
+
+**From problems to impact players, 7 observations from the first 2 Wild games**\
+`Minnesota is dealing with issues on its second line and struggling on faceoffs.`\
+https://nytimes.com/athletic/6710114/2025/10/12/minnesota-wild-observations/
+
 **Trump Administration Live Updates: President to Travel to Israel for Hostage Release**\
 ``\
 https://nytimes.com/live/2025/10/12/us/trump-news
