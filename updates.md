@@ -1,3 +1,11 @@
+**Mandel: The audacity of schools crying for money while paying $45M buyouts to CFB coaches**\
+`Schools are clamoring for a way to control student athlete payments. We've yet to hear about coach contracts, of course.`\
+https://nytimes.com/athletic/6711427/2025/10/12/college-football-buyouts-penn-state/
+
+**Eagles mailbag: Send your questions to Zach Berman**\
+`Eagles mailbag: Send your questions to Zach Berman`\
+https://nytimes.com/athletic/6711554/2025/10/12/eagles-mailbag-questions-zach-berman/
+
 **Browns-Steelers: Pittsburgh offense comes alive in second half to seal win**\
 `The first half was an offensive slugfest dictated by four field goals, but Aaron Rodgers tossed two second-half touchdowns.  `\
 https://nytimes.com/athletic/6710961/2025/10/12/browns-vs-steelers-takeaways-results-nfl/

@@ -1,3 +1,11 @@
+**China’s High Ambitions for Clean Energy**\
+`Our Beijing bureau chief Keith Bradsher reports on new solar and wind projects on the Tibetan Plateau.`\
+https://nytimes.com/2025/10/12/world/china-clean-energy-solar-israel-gaza-hostage-madagascar-coup.html
+
+**Blue Jays' Trey Yesavage addresses negativity directed toward family: 'It's just really sad'**\
+`“I know I have the platform to address it,” Toronto's 22-year-old starter said. “So I am.”`\
+https://nytimes.com/athletic/6711496/2025/10/12/blue-jays-trey-yesavage-negativity-family/
+
 **Mandel: The audacity of schools crying for money while paying $45M buyouts to CFB coaches**\
 `Schools are clamoring for a way to control student athlete payments. We've yet to hear about coach contracts, of course.`\
 https://nytimes.com/athletic/6711427/2025/10/12/college-football-buyouts-penn-state/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6711349/2025/10/12/cowboys-vs-panthers-takeaways-re
 **Seahawks-Jaguars takeaways: Jaxon Smith-Njigba sparks Seattle to road win**\
 `Seattle sacked Trevor Lawrence seven times in a defensive struggle.`\
 https://nytimes.com/athletic/6710970/2025/10/12/seahawks-vs-jaguars-takeaways-results-nfl/
-
-**Trump leaves for a visit to Israel, and will later co-chair a meeting in Egypt on the Gaza peace plan.**\
-`Several Arab nations will attend the summit, along with the U.N. secretary-general and the heads of state from the United Kingdom, France, Italy and Spain.`\
-https://nytimes.com/live/2025/10/12/us/trump-news/trump-leaves-for-a-visit-to-israel-and-will-later-co-chair-a-meeting-in-egypt-on-the-gaza-peace-plan
-
-**Behind Drake Maye, Patriots push winning streak to three games.**\
-`With the 25-19 victory, New England matched its win total from each of the past two seasons.`\
-https://nytimes.com/athletic/6711267/2025/10/12/patriots-vs-saints-takeaways-results-nfl/
 
