@@ -1,8 +1,32 @@
+**AP Top 25: Indiana rises to No. 3, highest ranking in school history**\
+`Ohio State, Miami, Indiana, Texas A&M and Ole Miss form the top five of the latest AP Top 25 college football rankings after Week 7.`\
+https://nytimes.com/athletic/6710975/2025/10/12/ap-top-25-indiana-college-football-poll/
+
+**Aaron Glenn on if Fields will remain Jets starter: 'What kind of question is that?'**\
+`Fields completed just 9 of 17 passes for 45 yards and took nine sacks in the Jets' 13-11 loss in London.`\
+https://nytimes.com/athletic/6711066/2025/10/12/justin-fields-aaron-glenn-jets-starter-question/
+
+**Rams WR Puka Nacua leaves game vs. Ravens with foot injury**\
+`The Rams star and current NFL receiving leader went down after a contested catch attempt in the end zone against Baltimore. `\
+https://nytimes.com/athletic/6711132/2025/10/12/rams-puka-nacua-injury-ravens/
+
+**Blue Jackets Sunday Gathering: Dean Evason ready to add wrinkles to late-game looks**\
+`Evason vowed before the start of training camp that he would juggle his forward lines and switch up his defensive pairs more often.`\
+https://nytimes.com/athletic/6707897/2025/10/12/blue-jackets-coach-lineup/
+
+**USMNT fans are starting to find their voice. Can Pochettino keep them roaring?**\
+`The draw against Ecuador could be a turning point`\
+https://nytimes.com/athletic/6710996/2025/10/12/usmnt-fans-pochettino/
+
+**Brighton's Mpome 'OK' after sustaining concussion during WSL game**\
+`Brighton coach Dario Vidosic said Mpome fell unconscious after being hit in the head by a ball.`\
+https://nytimes.com/athletic/6711134/2025/10/12/maelys-mpome-brighton-injury-concussion/
+
 **Jacob Kiplimo wins Chicago Marathon in his second-ever marathon**\
 `Kiplimo finished in 2:02:23, while Hawi Feysa won the women's race with a time of 2:14:56.`\
 https://nytimes.com/athletic/6711058/2025/10/12/chicago-marathon-winners-2025/
 
-**James Franklin out at Penn State after brutal start to season with championship hopes: Reports**\
+**James Franklin out at Penn State after brutal start to season with championship hopes**\
 `James Franklin signed a 10-year extension in November 2021, but won't see it through.`\
 https://nytimes.com/athletic/6709624/2025/10/12/penn-state-james-franklin-fired/
 
@@ -13,28 +37,4 @@ https://nytimes.com/2025/10/12/us/new-orleans-mayor-primary-helena-moreno.html
 **Priyanka Chopra, Nick Jonas and Nora Fatehi Sparkle in New York for Diwali**\
 `Celebrities, designers and local leaders filled the All That Glitters Diwali Ball in Manhattan to celebrate South Asians’ influence on the city.`\
 https://nytimes.com/2025/10/12/style/diwali-ball-new-york-priyanka-chopra-nora-fatehi.html
-
-**Diane Keaton in ‘Reds’: A Remarkable Performance but Also a Returning Point**\
-`Her character, an early-20th-century journalist, undergoes the most dramatic transformation of the film in ways that the actress was especially suited for.`\
-https://nytimes.com/2025/10/12/movies/diane-keaton-reds.html
-
-**How Easton Cowan made the Maple Leafs: Inside the journey from underdog to pro**\
-`Many questioned if he should have been a first-round pick at all. Now, Easton Cowan is in the NHL. He's 'never felt this ready.'`\
-https://nytimes.com/athletic/6693674/2025/10/12/maple-leafs-easton-cowan-prospect-nhl/
-
-**Texas Tech tortilla controversy explained: Heated exchanges, 15-yard penalties**\
-`Texas Tech coach Joey McGuire has pleaded with his fans to limit their tortillas throwing. It hasn't worked. `\
-https://nytimes.com/athletic/6711015/2025/10/12/texas-tech-tortilla-joey-mcguire-lance-leipold/
-
-**Diane Keaton Was the Definition of a Style Icon**\
-`Her legacy will include the ways she shaped fashion, rather than allowing fashion to shape her.`\
-https://nytimes.com/2025/10/12/style/diane-keaton-style-icon.html
-
-**SEC vibes after Week 7: Texas, Alabama and a roller-coaster, unpredictable season**\
-`For all the newfound parity, Alabama might actually be the best team in the conference.`\
-https://nytimes.com/athletic/6710908/2025/10/12/sec-football-rankings-week-7-texas-alabama/
-
-**Susan Griffin, a Leading Voice of Ecofeminism, Is Dead at 82**\
-`With books like “Woman and Nature,” she pioneered a unique form of creative nonfiction, linking violence against women to the ravaging of the environment.`\
-https://nytimes.com/2025/10/12/books/susan-griffin-dead.html
 
