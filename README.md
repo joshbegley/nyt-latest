@@ -1,5 +1,9 @@
-**U.S U-20 World Cup run ends at hands of Morocco**\
-`The U.`\
+**Buccaneers rookie WR Emeka Egbuka ruled out vs. 49ers with hamstring injury**\
+`The Bucs are already without receivers Mike Evans and Chris Godwin and starting running back Bucky Irving.`\
+https://nytimes.com/athletic/6711771/2025/10/12/buccaneers-emeka-egbuka-hamstring-injury/
+
+**U.S. U-20 World Cup run ends at hands of Morocco**\
+`The U.S. dominated possession but were undone by defensive sloppiness.`\
 https://nytimes.com/athletic/6711677/2025/10/12/us-u-20-world-cup-morocco/
 
 **UAB fires head coach Trent Dilfer midway through third season**\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6711494/2025/10/12/penn-state-football-coaching-sea
 **Are the Steelers AFC contenders? What are the Jets doing? NFL Week 6 takeaways**\
 `Also: The Seahawks and Chargers earned impressive road wins, while the Panthers have won two straight to reach .500.`\
 https://nytimes.com/athletic/6711082/2025/10/12/nfl-takeaways-week-6-scores-results/
-
-**Tua Tagovailoa on Dolphins' issues: 'It starts with the leadership'**\
-`Quarterbacks says some of his teammates show up late to player-only meetings, if they show up at all.`\
-https://nytimes.com/athletic/6711528/2025/10/12/miami-dolphins-tua-tagovailoa-player-meetings/
 
