@@ -1,3 +1,7 @@
+**The Kit**\
+``\
+https://nytimes.com/column/the-kit
+
 **Sandy Alomar Sr., longtime big-league player and coach, dies at 81**\
 `Alomar was the father of Hall of Fame second baseman Roberto Alomar and All-Star catcher Sandy Alomar Jr.`\
 https://nytimes.com/athletic/6713787/2025/10/13/sandy-alomar-sr-dies-at-81/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6699520/2025/10/13/cape-verde-islands-world-cup-qua
 **Some Israeli families are anguished to see the release of Palestinians convicted of killing their loved ones.**\
 `By Johnatan Reiss`\
 https://nytimes.com/live/2025/10/12/world/israel-gaza-hostages-trump/some-israeli-families-are-anguished-to-see-palestinians-convicted-of-killing-their-loved-ones-freed
-
-**Titans fire coach Brian Callahan six games into second season**\
-`Callahan's Titans started his second season with four straight losses and went just 4-19 in his tenure.`\
-https://nytimes.com/athletic/6671138/2025/10/13/titans-fire-brian-callahan-nfl/
 
