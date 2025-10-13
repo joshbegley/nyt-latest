@@ -6,7 +6,7 @@ https://nytimes.com/2025/10/13/nyregion/mamdani-charm-business-leaders.html
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/10/13/crosswords/spelling-bee-forum.html
 
-**What Is Hostages Square, Where Israelis Are Waiting for the Captives’ Release?**\
+**Israelis Wait in Hostages Square for the Captives’ Release**\
 `The plaza in Tel Aviv has been a focal point for rallies for the release of the hostages and a gathering place for their families and supporters.`\
 https://nytimes.com/2025/10/13/world/middleeast/hostages-square-israel-tel-aviv.html
 
