@@ -1,3 +1,11 @@
+**Why Joe Flacco and Bengals offer a glimmer of hope despite fourth straight loss**\
+`The veteran QB struggled early while learning on the fly but found a groove, especially with Ja'Marr Chase, in the second half.`\
+https://nytimes.com/athletic/6712353/2025/10/12/joe-flacco-bengals-packers-jamarr-chase/
+
+**Denny Hamlin ties 10th in all-time NASCAR wins as he chases championship**\
+`An emotional Hamlin was crying in his car after the race, and he became choked up in his postrace interview.`\
+https://nytimes.com/athletic/6712264/2025/10/12/nascar-denny-hamlin-60th-career-win/
+
 **Denny Hamlin ties 10th in all-time NASCAR wins as he chases championship**\
 `An emotional Hamlin was crying in his car after the race, and he became choked up in his post-race interview.`\
 https://nytimes.com/athletic/6712264/2025/10/12/nascar-denny-hamlin-60th-career-win/
