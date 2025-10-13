@@ -1,3 +1,11 @@
+**Cam Talbot's dazzling night steals win in Toronto: Red Wings observations**\
+`Cam Talbot's sterling effort in net helped the Red Wings escape Toronto with a second straight win over the Maple Leafs.`\
+https://nytimes.com/athletic/6714156/2025/10/13/red-wings-talbot-raymond-injury-leafs/
+
+**'Fire Adams!' chants, Thompson's frustration and more from Sabres' 0-3 start**\
+`The Sabres are 0-3, have been outscored 10-2 and are 0-for-10 on the power play. Tage Thompson is ready to turn the corner.`\
+https://nytimes.com/athletic/6714230/2025/10/13/buffalo-sabres-adams-tage-thompson-nhl/
+
 **North Carolina Republicans Plan to Redraw Congressional Map to Add a Seat**\
 `The Trump administration has pushed Republican leaders to redraw House district maps before the midterm elections next year. His party already holds 10 of North Carolina’s 14 congressional seats.`\
 https://nytimes.com/2025/10/13/us/north-carolina-republicans-redistricting.html
