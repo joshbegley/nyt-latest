@@ -1,3 +1,15 @@
+**‘War in Gaza Is Over,’ Trump Says During Middle East Trip**\
+`President Trump visited Egypt and Israel on Monday as the 20 hostages in Gaza were returned to Israel in exchange for nearly 2,000 Palestinian prisoners and detainees.`\
+https://nytimes.com/video/world/middleeast/100000010456525/trump-gaza-israel-war.html
+
+**As Hostages and Prisoners Return Home, Trump Declares ‘New Dawn’ in Mideast**\
+`With Hamas freeing the last 20 living Israeli hostages and Israel releasing some 2,000 Palestinian prisoners, President Trump proclaimed an ‘end’ to the war, but big questions about Gaza’s future remain.`\
+https://nytimes.com/2025/10/13/world/middleeast/israel-gaza-hostages-prisoners-freed.html
+
+**Apple TV Subtracts the + in a Quiet Rebrand**\
+`The service unveiled the change in the ninth paragraph of a news release announcing a streaming date for “F1: The Movie.”`\
+https://nytimes.com/2025/10/13/business/apple-tv-no-plus.html
+
 **Trump Calls for Israel’s President to Pardon Netanyahu. Could it Happen?**\
 `The Israeli prime minister, Benjamin Netanyahu, has been on trial for corruption since 2020, battling charges of bribery, fraud and breach of trust in three separate but related cases.`\
 https://nytimes.com/2025/10/13/world/middleeast/trump-calls-for-israels-president-to-pardon-netanyahu-could-it-happen.html

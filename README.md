@@ -1,3 +1,11 @@
+**What I'm hearing: Inside Canada's roster battles as World Cup approaches**\
+`The battle for places on Jesse Marsch's Canada World Cup squad is hotting up`\
+https://nytimes.com/athletic/6713471/2025/10/13/what-im-hearing-inside-canadas-roster-battles-as-world-cup-approaches/
+
+**Wales and Belgium qualifier delayed by pitch invading rat**\
+`Brennan Johnson earned a huge ovation from the home crowd when he ushered the rodent off the field of play.`\
+https://nytimes.com/athletic/6714130/2025/10/13/wales-belgium-rat-pitch/
+
 **‘War in Gaza Is Over,’ Trump Says During Middle East Trip**\
 `President Trump visited Egypt and Israel on Monday as the 20 hostages in Gaza were returned to Israel in exchange for nearly 2,000 Palestinian prisoners and detainees.`\
 https://nytimes.com/video/world/middleeast/100000010456525/trump-gaza-israel-war.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6713950/2025/10/13/milwaukee-bucks-doc-rivers-denou
 **NASCAR Las Vegas takeaways: Denny Hamlin joins greats with emotional victory**\
 `Hamlin books his spot in Phoenix, Team Penske is on the ropes and more from the playoff weekend in Las Vegas.`\
 https://nytimes.com/athletic/6713668/2025/10/13/nascar-las-vegas-denny-hamlin-penske-takeaways/
-
-**Review: ‘Are the Bennet Girls OK?’ Well, Their Mother Is Magnificent.**\
-`Bedlam’s sharply irreverent production of Emily Breeze’s comedy, a riff on “Pride and Prejudice,” has period dress, contemporary vernacular and a magnetic Mrs. Bennet.`\
-https://nytimes.com/2025/10/13/theater/are-the-bennet-girls-ok-review-bedlam.html
-
-**Tarik Skubal, A.J. Hinch and the trade deadline: Takeaways from Scott Harris' postmortem presser**\
-`Like most fans, Harris felt conflicted about the ups and downs of the 2025 Detroit Tigers season. `\
-https://nytimes.com/athletic/6713810/2025/10/13/tigers-scott-harris-postmortem-presser-takeaways/
 
