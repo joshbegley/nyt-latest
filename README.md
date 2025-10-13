@@ -1,3 +1,7 @@
+**What Is the Red Cross’s Role in Israel-Hamas Exchanges?**\
+`The organization has escorted hundreds of people to freedom, but it says it also does important diplomatic work behind the scenes.`\
+https://nytimes.com/2025/10/13/world/middleeast/red-cross-israel-hamas-exchanges.html
+
 **The New York Times in Print for Monday, Oct. 13, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/13/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6711387/2025/10/13/jess-parks-sparkling-39-minute-c
 **Fantasy football Week 6 takeaways: Baker Mayfield, Sam Darnold continue to shine**\
 `Michael Salfino shares his observations for Week 6, including effusive praise for quarterbacks Baker Mayfield and Sam Darnold.`\
 https://nytimes.com/athletic/6712057/2025/10/13/fantasy-football-week-6-takeaways-baker-mayfield-sam-darnold-continue-to-shine/
-
-**Nottingham Forest are navigating a storm of their own making**\
-`In a remarkable turnaround, Forest have gone from a club united and on the up to the possibility of turning to a third manager in two months`\
-https://nytimes.com/athletic/6710405/2025/10/13/nottingham-forest-marinakis-nuno-postecoglou/
 
