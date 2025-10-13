@@ -35,7 +35,7 @@ https://nytimes.com/athletic/6712052/2025/10/12/nlcs-dodgers-pitching-start-snel
 `The Lions' play seemed to work as they drew it up, but their execution was just a bit off.`\
 https://nytimes.com/athletic/6712080/2025/10/12/jared-goff-lions-penalty-illegal-motion/
 
-**Blue Jays lose key left-handed bat as Nathan Lukes leaves ALCS Game 1**\
-`The right fielder stayed in the game for a few innings after fouling a ball off his left knee in the bottom of the first.`\
+**Blue Jays' Lukes not expected to miss time after leaving ALCS Game 1**\
+`An X-ray came back negative on Lukes' right knee after he fouled a ball off it and had to leave Game 1 of the ALCS.`\
 https://nytimes.com/athletic/6712124/2025/10/12/blue-jays-nathan-lukes-knee-foul-ball/
 
