@@ -1,3 +1,15 @@
+**The New York Times in Print for Monday, Oct. 13, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/13/todays-new-york-times
+
+**Foreign Aid Is Mostly Gone. It’s Being Replaced With Something Better.**\
+`Developing countries have started taking greater responsibility for their own welfare, leveraging private investment to create economic opportunity.`\
+https://nytimes.com/2025/10/13/opinion/aid-cuts-new-model.html
+
+**‘Mr. Scorsese,’ and 4 More Things to Watch on TV This Week**\
+`Catch up on the latest political thrillers and a range of documentaries, from biographic to true crime.`\
+https://nytimes.com/2025/10/13/arts/television/mr-scorsese-what-to-watch-tv.html
+
 **Lions-Chiefs takeaways: Mahomes leads Kansas City to win**\
 `A scuffle broke out between Brian Branch and JuJu Smith-Schuster, beginning when Branch refused a handshake from Mahomes.`\
 https://nytimes.com/athletic/6712352/2025/10/13/lions-vs-chiefs-takeaways-results-nfl/
