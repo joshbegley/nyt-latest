@@ -1,3 +1,7 @@
+**Joy, relief and long-awaited phone calls as hostages are released.**\
+`By Natan Odenheimer and Aaron Boxerman`\
+https://nytimes.com/live/2025/10/12/world/israel-gaza-hostages-trump/joy-relief-and-long-awaited-phone-calls-as-hostages-families-greet-their-loved-ones
+
 **For Mariners, a fresh Miller is plenty filling in Game 1**\
 `After giving up a home run on the first pitch he threw, Miller gave up just one more hit in his six innings of work. `\
 https://nytimes.com/athletic/6712541/2025/10/13/bryce-miller-seattle-mariners-alcs/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6712570/2025/10/13/lions-lose-chiefs-mistakes-brawl
 **Rosenthal: In ALCS' opening salvo, Cal Raleigh – slugger, receiver, pitch whisperer – once again does it all**\
 `The Mariners catcher showed once again why he's received so much consideration in the American League MVP race. `\
 https://nytimes.com/athletic/6712537/2025/10/13/cal-raleigh-seattle-mariners-alcs/
-
-**Predicting how the top of the Eastern Conference will play out in 2025-26**\
-`The East has changed drastically since the end of last regular season, but the top may feel familiar in six months.`\
-https://nytimes.com/athletic/6696483/2025/10/13/nba-predictions-cavaliers-knicks-bucks-2025-26/
 
