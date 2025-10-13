@@ -1,3 +1,11 @@
+**OpenAI Inks Deal With Broadcom to Design Its Own Chips for A.I.**\
+`After signing multibillion-dollar agreements to use chips from Nvidia and AMD, OpenAI plans to deploy its own designs next year.`\
+https://nytimes.com/2025/10/13/technology/openai-broadcom-chips-deal.html
+
+**Is There a Place for Religion in Politics?**\
+`Readers respond to a column by David Brooks. Also: The marring of the White House; a sharp right turn to populism.`\
+https://nytimes.com/2025/10/13/opinion/religion-politics.html
+
 **Michigan and Ohio State fans: How optimistic are you about The Game? Take our survey**\
 `We're taking our Hope-o-Meter local to college football's best rivalry. Michigan and Ohio State fans, let us know how you're feeling.`\
 https://nytimes.com/athletic/6712976/2025/10/13/michigan-ohio-state-rivalry-2025-hope-o-meter/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6712885/2025/10/13/notre-dame-nc-state-tape-review/
 **Investors Fear the Return of the U.S.-China Trade War**\
 `The market is rebounding, but analysts see plenty of reason for concern about heightened tensions between Washington and Beijing.`\
 https://nytimes.com/2025/10/13/business/dealbook/us-china-trade-war-trump.html
-
-**How to watch Anthony Edwards and the Minnesota Timberwolves in the 2025-26 season**\
-`While the Wolves didn't make many changes this offseason, the NBA added new broadcast partners. Here's how to watch Minnesota's games.`\
-https://nytimes.com/athletic/6708110/2025/10/13/minnesota-timberwolves-how-to-watch-tv-schedule-anthony-edwards/
-
-**Lowetide: What we learned from the Oilers' 2025-26 opening weekend**\
-`Two games is a tiny sample size, but the Oilers have started to answer some questions from the beginning of camp.`\
-https://nytimes.com/athletic/6711238/2025/10/13/edmonton-oilers-philp-savoie-howard-frederic/
 
