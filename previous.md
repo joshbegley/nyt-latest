@@ -1,3 +1,11 @@
+**Como argue Milan game in Australia key for Serie A's 'survival'**\
+`Como argued the fixture is "not a matter of greed" but to "build a future" for the Italian top flight.`\
+https://nytimes.com/athletic/6712995/2025/10/13/como-milan-serie-a-australia/
+
+**Giannis Antetokounmpo-Myles Turner partnership shows immediate promise for Bucks**\
+`Turner is showing why he could be the right guy at center next to Antetokounmpo: "The most important thing about him is that he sacrifices."`\
+https://nytimes.com/athletic/6712684/2025/10/13/bucks-giannis-myles-turner-partnership/
+
 **How to watch the Portland Trail Blazers all season long**\
 `The Blazers will look a little different this year, and so will the NBA's broadcast schedule. Here's how to tune in to Portland's games. `\
 https://nytimes.com/athletic/6710291/2025/10/13/portland-trail-blazers-tv-schedule-how-to-watch-night-games/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/13/technology/openai-broadcom-chips-deal.html
 **Is There a Place for Religion in Politics?**\
 `Readers respond to a column by David Brooks. Also: The marring of the White House; a sharp right turn to populism.`\
 https://nytimes.com/2025/10/13/opinion/religion-politics.html
-
-**Michigan and Ohio State fans: How optimistic are you about The Game? Take our survey**\
-`We're taking our Hope-o-Meter local to college football's best rivalry. Michigan and Ohio State fans, let us know how you're feeling.`\
-https://nytimes.com/athletic/6712976/2025/10/13/michigan-ohio-state-rivalry-2025-hope-o-meter/
-
-**Toby Talbot, Impassioned Promoter of Art Films, Dies at 96**\
-`With her husband, Dan, she ran four theaters in Manhattan and a company that distributed foreign and independent classics.`\
-https://nytimes.com/2025/10/13/movies/toby-talbot-dead.html
 

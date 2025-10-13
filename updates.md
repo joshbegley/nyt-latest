@@ -1,3 +1,11 @@
+**Como argue Milan game in Australia key for Serie A's 'survival'**\
+`Como argued the fixture is "not a matter of greed" but to "build a future" for the Italian top flight.`\
+https://nytimes.com/athletic/6712995/2025/10/13/como-milan-serie-a-australia/
+
+**Giannis Antetokounmpo-Myles Turner partnership shows immediate promise for Bucks**\
+`Turner is showing why he could be the right guy at center next to Antetokounmpo: "The most important thing about him is that he sacrifices."`\
+https://nytimes.com/athletic/6712684/2025/10/13/bucks-giannis-myles-turner-partnership/
+
 **How to watch the Portland Trail Blazers all season long**\
 `The Blazers will look a little different this year, and so will the NBA's broadcast schedule. Here's how to tune in to Portland's games. `\
 https://nytimes.com/athletic/6710291/2025/10/13/portland-trail-blazers-tv-schedule-how-to-watch-night-games/
