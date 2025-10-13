@@ -1,3 +1,7 @@
+**China Hosts a Summit on Women’s Rights, While Stifling Activism**\
+`The conference was billed as a celebration of China’s achievements in supporting women. But the government has mostly wiped out independent advocacy groups.`\
+https://nytimes.com/2025/10/13/world/asia/china-womens-rights-feminism.html
+
 **Israelis Wait in Hostages Square for the Captives’ Release**\
 `The plaza in Tel Aviv has been a focal point for rallies for the release of the hostages and a gathering place for their families and supporters.`\
 https://nytimes.com/2025/10/13/world/middleeast/hostages-square-israel-tel-aviv.html
