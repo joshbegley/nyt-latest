@@ -1,3 +1,43 @@
+**How to watch Maryland vs. UCLA: Time, TV, streaming**\
+`Find out how to watch the Maryland Terrapins play the UCLA Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6714575/2025/10/13/maryland-vs-ucla-stream-how-to-watch-oct-18/
+
+**How to watch Mississippi State vs. Florida: Time, TV, streaming**\
+`Find out how to watch the Mississippi State Bulldogs play the Florida Gators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6714567/2025/10/13/mississippi-state-vs-florida-stream-how-to-watch-oct-18/
+
+**How to watch Texas vs. Kentucky: Time, TV, streaming**\
+`Find out how to watch the Texas Longhorns play the Kentucky Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6714571/2025/10/13/texas-vs-kentucky-stream-how-to-watch-oct-18/
+
+**How to watch Tennessee vs. Alabama: Time, TV, streaming**\
+`Find out how to watch the Tennessee Volunteers play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6714564/2025/10/13/tennessee-vs-alabama-stream-how-to-watch-oct-18/
+
+**How to watch Florida Atlantic vs. South Florida: Time, TV, streaming**\
+`Find out how to watch the Florida Atlantic Owls play the South Florida Bulls, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6714560/2025/10/13/florida-atlantic-vs-south-florida-stream-how-to-watch-oct-18/
+
+**How to watch Memphis vs. UAB: Time, TV, streaming**\
+`Find out how to watch the Memphis Tigers play the UAB Blazers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6714556/2025/10/13/memphis-vs-uab-stream-how-to-watch-oct-18/
+
+**How to watch Washington State vs. Virginia: Time, TV, streaming**\
+`Find out how to watch the Washington State Cougars play the Virginia Cavaliers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6714555/2025/10/13/washington-state-vs-virginia-stream-how-to-watch-oct-18/
+
+**How to watch Penn State vs. Iowa: Time, TV, streaming**\
+`Find out how to watch the Penn State Nittany Lions play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6714549/2025/10/13/penn-state-vs-iowa-stream-how-to-watch-oct-18/
+
+**How to watch USC vs. Notre Dame: Time, TV, streaming**\
+`Find out how to watch the USC Trojans play the Notre Dame Fighting Irish, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6714550/2025/10/13/usc-vs-notre-dame-stream-how-to-watch-oct-18/
+
+**How to watch Texas Tech vs. Arizona State: Time, TV, streaming**\
+`Find out how to watch the Texas Tech Red Raiders play the Arizona State Sun Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6714545/2025/10/13/texas-tech-vs-arizona-state-stream-how-to-watch-oct-18/
+
 **Bears leaning on kicker Jake Moody vs. Commanders with Cairo Santos inactive**\
 `Moody's career accuracy from 40 yards or longer is just 55.2 percent, and misty, windy conditions could complicate his Bears debut.`\
 https://nytimes.com/athletic/6714406/2025/10/13/bears-kicker-jake-moody-commanders/
