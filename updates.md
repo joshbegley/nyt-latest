@@ -1,3 +1,11 @@
+**See excerpts from Trump’s prepared remarks to the Knesset.**\
+`By David M. Halbfinger`\
+https://nytimes.com/live/2025/10/12/world/israel-gaza-hostages-trump/see-excerpts-from-trumps-prepared-remarks-to-the-knesset
+
+**Rangers remain upbeat despite loss to Capitals — and with good reason**\
+`The Capitals presented the Rangers' biggest test so far this young season, and New York rose to the challenge.`\
+https://nytimes.com/athletic/6712345/2025/10/13/rangers-zibanejad-miller-capitals-lindgren/
+
 **Australia captain Cummins admits he is unlikely to play in first Ashes Test**\
 `The fast bowler has been sidelined since July with a stress fracture in his lower back.`\
 https://nytimes.com/athletic/6712712/2025/10/13/pat-cummins-ashes-injury-australia/

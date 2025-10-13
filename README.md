@@ -1,3 +1,7 @@
+**TAFC: Agent survey – best and worst EPL deals; has Pochettino found a formula for USMNT?**\
+`Today in TAFC: Agent survey brings up a striker debate. Plus: Has Poch found a formation?`\
+https://nytimes.com/athletic/6712626/2025/10/13/tafc-agent-survey-best-and-worst-epl-deals-has-pochettino-found-a-formula-for-usmnt/
+
 **See excerpts from Trump’s prepared remarks to the Knesset.**\
 `By David M. Halbfinger`\
 https://nytimes.com/live/2025/10/12/world/israel-gaza-hostages-trump/see-excerpts-from-trumps-prepared-remarks-to-the-knesset
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6711813/2025/10/13/eagles-lane-johnson-comments-kev
 **'Canada's team': Maple Leafs embrace Blue Jays playoff run, shared October spotlight**\
 `The Leafs moved up the start time of their Monday game to 2 p.m. to avoid conflicting with Game 2 of the ALCS.`\
 https://nytimes.com/athletic/6708877/2025/10/13/maple-leafs-blue-jays-alcs/
-
-**NHL weekend rankings: It's too early to know anything, except maybe in Buffalo**\
-`It never makes sense to panic when you're two or three games in. Still, let's sort some teams after an eventful weekend.`\
-https://nytimes.com/athletic/6711122/2025/10/13/nhl-weekend-rankings-2025-26-buffalo-sabres-bruins/
 
