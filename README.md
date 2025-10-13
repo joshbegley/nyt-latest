@@ -1,5 +1,13 @@
+**Cuban Dissident Leader Leaves Prison for Exile in the U.S.**\
+`José Daniel Ferrer said long periods in solitary confinement left him feeling buried alive. Secretary of State Marco Rubio welcomed his arrival in Miami.`\
+https://nytimes.com/2025/10/13/world/americas/jose-daniel-ferrer-cuba.html
+
+**Browns, city of Cleveland reach $100M agreement for team to leave downtown**\
+`The money will be used to accelerate lakefront development on the site of the current stadium.`\
+https://nytimes.com/athletic/6714177/2025/10/13/cleveland-browns-brook-park-huntington-bank-field/
+
 **Is Drake Maye a real MVP contender? Here's what the odds say**\
-`Drake May has seen his NFL MVP odds skyrocket in recent weeks.`\
+`Drake Maye has seen his NFL MVP odds skyrocket in recent weeks. Is he a real contender? `\
 https://nytimes.com/athletic/6714133/2025/10/13/drake-maye-real-mvp-contender-odds/
 
 **This season's Bruins might be for real, and we'll know for sure very soon**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/13/t-magazine/hetty-lui-mckinnon-linger-dinner-party
 **First Brands’ C.E.O. Steps Down, While Its Accounting Is Questioned**\
 `The auto-part maker’s bankruptcy has rocked Wall Street and revealed trouble in the private credit markets.`\
 https://nytimes.com/2025/10/13/business/first-brands-bankruptcy-private-credit.html
-
-**Madagascar’s President Goes Into Hiding**\
-`The move followed weeks of intense and deadly protests against the government of President Andry Rajoelina, who himself came to power in a coup.`\
-https://nytimes.com/2025/10/13/world/africa/madagascar-president-rajoelina.html
-
-**NFL suspends Lions' Brian Branch 1 game for altercation vs. Chiefs**\
-`Branch instigated a postgame brawl after the Lions' 30-17 loss to the Chiefs on Sunday night.`\
-https://nytimes.com/athletic/6714165/2025/10/13/brian-branch-lions-suspension-chiefs/
 
