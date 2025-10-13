@@ -1,3 +1,7 @@
+**Gazans See Little to Celebrate Even Though the Bombs Have Stopped**\
+`The cease-fire in Gaza has taken hold. Hostages and prisoners have been exchanged. But amid the utter devastation of two years of war, a sense of gloom pervades.`\
+https://nytimes.com/2025/10/13/world/europe/gazans-relief-gloom.html
+
 **Mike Tomlin rips Browns for Joe Flacco trade: 'It doesn't make sense to me'**\
 `Tomlin and the Steelers will face Flacco and the Bengals on 'Thursday Night Football.'`\
 https://nytimes.com/athletic/6713612/2025/10/13/mike-tomlin-criticism-browns-flacco-trade/

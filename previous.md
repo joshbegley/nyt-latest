@@ -1,3 +1,7 @@
+**Gazans See Little to Celebrate Even Though the Bombs Have Stopped**\
+`The cease-fire in Gaza has taken hold. Hostages and prisoners have been exchanged. But amid the utter devastation of two years of war, a sense of gloom pervades.`\
+https://nytimes.com/2025/10/13/world/europe/gazans-relief-gloom.html
+
 **Doug Lebda, LendingTree Founder and C.E.O., Dies in A.T.V. Accident**\
 `LendingTree named its chief operating officer, Scott Peyree, as its new chief executive.`\
 https://nytimes.com/2025/10/13/business/doug-lebda-lendingtree-accident-death.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6713612/2025/10/13/mike-tomlin-criticism-browns-fla
 **How rare was the Chiefs' penalty-free game against the Lions?**\
 `Since 2018, the Chiefs lead the league with three games with zero accepted penalties. There have been 40 such games overall since 2000.`\
 https://nytimes.com/athletic/6713595/2025/10/13/chiefs-zero-penalties-turnovers-lions-brawl-refs/
-
-**Diane Keaton’s Only Documentary Was About the Afterlife**\
-`Keaton, who died on Saturday, was an actor, director and producer on multiple films and series. Her sole documentary, “Heaven,” explored popular ideas of the afterlife.`\
-https://nytimes.com/2025/10/13/movies/diane-keaton-documentary.html
 
