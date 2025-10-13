@@ -1,3 +1,7 @@
+**Sue Goldie Has Parkinson’s Disease**\
+`An acclaimed researcher is an expert at explaining complicated problems. Now she has to confront the most vexing question: What is happening to her?`\
+https://nytimes.com/interactive/2025/10/13/us/sue-goldie-parkinsons.html
+
 **Cam Talbot's dazzling night steals win in Toronto: Red Wings observations**\
 `Cam Talbot's sterling effort in net helped the Red Wings escape Toronto with a second straight win over the Maple Leafs.`\
 https://nytimes.com/athletic/6714156/2025/10/13/red-wings-talbot-raymond-injury-leafs/
@@ -35,8 +39,4 @@ https://nytimes.com/2025/10/13/arts/television/alfa-betty-olsen-dead.html
 **Lane Hutson deal signals Canadiens’ road to contention is taking shape**\
 `Lane Hutson's eight-year contract gives the Canadiens flexibility in a rising cap environment to add the final pieces of their rebuild.`\
 https://nytimes.com/athletic/6714038/2025/10/13/canadiens-lane-hutson-deal/
-
-**Trump and Abbas Share Moment of Rapprochement in Egypt**\
-`The Palestinian leader was recently denied a U.S. visa, preventing him from going to the United Nations last month to witness the recognition of a Palestinian state by several nations.`\
-https://nytimes.com/2025/10/13/world/middleeast/trump-abbas-handshake-egypt.html
 

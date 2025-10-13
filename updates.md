@@ -1,3 +1,7 @@
+**Sue Goldie Has Parkinson’s Disease**\
+`An acclaimed researcher is an expert at explaining complicated problems. Now she has to confront the most vexing question: What is happening to her?`\
+https://nytimes.com/interactive/2025/10/13/us/sue-goldie-parkinsons.html
+
 **Cam Talbot's dazzling night steals win in Toronto: Red Wings observations**\
 `Cam Talbot's sterling effort in net helped the Red Wings escape Toronto with a second straight win over the Maple Leafs.`\
 https://nytimes.com/athletic/6714156/2025/10/13/red-wings-talbot-raymond-injury-leafs/
