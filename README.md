@@ -1,3 +1,7 @@
+**Australia captain Cummins admits he is unlikely to play in first Ashes Test**\
+`The fast bowler has been sidelined since July with a stress fracture in his lower back.`\
+https://nytimes.com/athletic/6712712/2025/10/13/pat-cummins-ashes-injury-australia/
+
 **Chiefs' offense is cooking ... and now they're getting back a huge missing ingredient**\
 `What dominated Chiefs locker-room talk (besides the fight) was the reality that they'll finally have their top three receivers on the field.`\
 https://nytimes.com/athletic/6711966/2025/10/13/chiefs-offense-lions-rashee-rice/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/13/nyregion/letitia-james-rally-zohran-mamdani.html
 **Two Years Later, Israel’s Last Hostages Return**\
 `Families of the released captives spoke of their emotions as their loved ones headed home.`\
 https://nytimes.com/2025/10/13/podcasts/the-daily/israels-hostages-released-gaza.html
-
-**Giants' offensive line bullied Eagles, highlighting what looks like an emerging strength**\
-`New York's running game has excelled lately. It's probably no coincidence that the hot streak started with the return of Andrew Thomas.`\
-https://nytimes.com/athletic/6709646/2025/10/13/giants-offensive-line-bully-eagles-rushing/
 
