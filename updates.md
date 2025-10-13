@@ -1,3 +1,7 @@
+**More Than 40 People Killed in Bus Plunge in South Africa**\
+`The bus was carrying passengers from Zimbabwe and Malawi who were traveling back to their home countries.`\
+https://nytimes.com/2025/10/13/world/africa/bus-crash-south-africa-limpopo.html
+
 **Beyond the Pomp of Egypt Summit, Arab Leaders Brace for Tough Negotiations**\
 `The meeting in Sharm el-Sheikh, Egypt, could expedite an end to the Gaza war, but regional powers must still resolve the thorny details that have stymied negotiations.`\
 https://nytimes.com/2025/10/13/world/europe/beyond-the-pomp-of-egypt-summit-arab-leaders-brace-for-tough-negotiations.html
