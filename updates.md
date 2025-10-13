@@ -1,3 +1,11 @@
+**Milton Esterow, Who Reported on Art Stolen in World War II, Dies at 97**\
+`At The New York Times and then ARTnews, which he bought, he brought an investigative edge to stories about artwork looted by the Germans during World War II and the Soviets afterward.`\
+https://nytimes.com/2025/10/13/arts/milton-esterow-dead.html
+
+**Part Enabler, Part Buffer: The Bind of the Justice Dept.’s No. 2**\
+`Todd Blanche, the deputy attorney general, has helped usher in President Trump’s retribution campaign. But he faces anger on the right for resisting some of the most extreme measures.`\
+https://nytimes.com/2025/10/13/us/politics/todd-blanche-justice-department-trump.html
+
 **Eagles' Za'Darius Smith announces sudden retirement, depleting edge-rusher room**\
 `Smith, who signed with the Eagles on Sept. 5, has 1.5 sacks in five games. `\
 https://nytimes.com/athletic/6713511/2025/10/13/eagles-zadarius-smith-retirement/
