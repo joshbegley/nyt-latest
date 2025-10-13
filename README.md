@@ -1,3 +1,15 @@
+**W.H.O. Warns of Sharp Increase in Drug-Resistant Infections**\
+`The U.N. health agency found that one in six infections worldwide was resistant to the most commonly available antibiotics.`\
+https://nytimes.com/2025/10/13/health/who-antibiotic-drug-resistance.html
+
+**Georgia's Kirby Smart maintains he didn't call timeout vs. Auburn**\
+`"I talked to no one at the SEC, office-wise, and I stand by what I talked about after the game," Smart said. "I'm worried about Ole Miss."`\
+https://nytimes.com/athletic/6713486/2025/10/13/georgia-auburn-timeout-kirby-smart/
+
+**Ranking college football's open coaching jobs, from Penn State to Kent State**\
+`This could be the most active coaching carousel college football has seen in many years.`\
+https://nytimes.com/athletic/6662286/2025/10/13/college-football-open-coaching-jobs-rankings/
+
 **Milton Esterow, Who Reported on Art Stolen in World War II, Dies at 97**\
 `At The New York Times and then ARTnews, which he bought, he brought an investigative edge to stories about artwork looted by the Germans during World War II and the Soviets afterward.`\
 https://nytimes.com/2025/10/13/arts/milton-esterow-dead.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6713222/2025/10/13/uefa-champions-league-winners-fo
 **Manager Mike Shildt retires from Padres**\
 `Shildt went 183-141 with San Diego and 252-199 since first becoming the Cardinals' manager in 2018.`\
 https://nytimes.com/athletic/6713480/2025/10/13/mike-shildt-retires-from-padres/
-
-**Preseason AP men's hoops Top 25: Purdue, Houston lead way: Key takeaways**\
-`The Boilermakers, No. 1 in the preseason for the first time, are a front-runner to make it to their second Final Four in three seasons.`\
-https://nytimes.com/athletic/6713260/2025/10/13/purdue-houston-florida-mens-basketball-poll-preseason/
-
-**What Are the Abraham Accords, Trump’s 2020 Mideast Deals?**\
-`The diplomatic deals that opened ties between Israel and several Arab countries were hailed as a landmark moment, but have failed to bring peace to the Middle East.`\
-https://nytimes.com/2025/10/13/world/middleeast/abraham-accords-israel-arab-states-deal-trump.html
-
-**Floods Sweep Away Homes Along Western Alaska Coast**\
-`Emergency crews rescued dozens of people in western Alaska on Sunday, after flooding from Typhoon Halong swept away homes in two villages along the Bering Sea.`\
-https://nytimes.com/video/weather/100000010456013/alaska-flooding-typhoon-halong.html
 
