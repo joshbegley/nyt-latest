@@ -1,3 +1,11 @@
+**A Hostage and Prisoner Exchange**\
+`We’re covering the release of hostages in Gaza and of Palestinian prisoners. We’re also covering President Trump’s visit to Israel.`\
+https://nytimes.com/2025/10/13/briefing/a-hostage-and-prisoner-exchange.html
+
+**Ten steps the Yankees should take to return to the World Series in 2026**\
+`The Yankees don't need a complete makeover, but they do need reinforcements. Here are key moves they should make this offseason. `\
+https://nytimes.com/athletic/6707229/2025/10/13/yankees-offseason-roster-2026-season-world-series/
+
 **Canadiens weekly notebook: Playing hockey in 'sneakers,' new dress code and more**\
 `Also in this week's notebook, how the Canadiens are handling the new loosened dress code for games`\
 https://nytimes.com/athletic/6709455/2025/10/13/canadiens-power-play-nhl-dress-code/
@@ -29,13 +37,4 @@ https://nytimes.com/athletic/6711095/2025/10/13/manchester-maccabi-jewish-footba
 **Meek: Michigan is flirting with mediocrity. Sherrone Moore can't let it become a habit**\
 `Michigan still has hope for a turnaround against a beatable Big Ten schedule, but an ugly 31-13 loss at USC erased a lot of optimism.`\
 https://nytimes.com/athletic/6711711/2025/10/13/michigan-football-sherrone-moore-usc-loss/
-
-**Wild insider: It's more complicated than just 'play the kids,' plus Risebrough returns**\
-`Getting young players into the lineup is a tricky process, even as the Wild's first GM reminisces on how far things have come.`\
-https://nytimes.com/athletic/6710844/2025/10/13/wild-hynes-youth-injuries-buium-jiricek-risebrough/
-
-**Familiar October stumbles resurface as Blue Jays drop ALCS Game 1 opportunity**\
-`To advance to the World Series — to recover from Sunday's sound defeat — the Jays must push those familiar failures back to the past.
-`\
-https://nytimes.com/athletic/6712492/2025/10/13/blue-jays-lose-mariners-alcs-game-1/
 
