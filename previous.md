@@ -1,3 +1,7 @@
+**Cheering Crowds Greet Palestinian Prisoners Freed by Israel**\
+`“We were happy for our prisoners — and for the Israelis, too,” one Gaza resident said. “We love peace and the truce.”`\
+https://nytimes.com/2025/10/13/nyregion/prisoners-freed-gaza-palestinian-west-bank.html
+
 **Macron Urges Stability Despite Calls for Government Ouster**\
 `President Emmanuel Macron of France is facing some of the country’s worst political turmoil in decades. A new government has been appointed, but how long it will last is anyone’s guess.`\
 https://nytimes.com/2025/10/13/world/europe/macron-france-government.html
@@ -20,7 +24,7 @@ https://nytimes.com/2025/10/13/world/africa/bus-crash-south-africa-limpopo.html
 
 **Beyond the Pomp of Egypt Summit, Arab Leaders Brace for Tough Negotiations**\
 `The meeting in Sharm el-Sheikh, Egypt, could expedite an end to the Gaza war, but regional powers must still resolve the thorny details that have stymied negotiations.`\
-https://nytimes.com/2025/10/13/world/europe/beyond-the-pomp-of-egypt-summit-arab-leaders-brace-for-tough-negotiations.html
+https://nytimes.com/2025/10/13/world/europe/egypt-summit-negotiations-gaza-israel.html
 
 **Como argue Milan game in Australia key for Serie A's 'survival'**\
 `Como argued the fixture is "not a matter of greed" but to "build a future" for the Italian top flight.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6712684/2025/10/13/bucks-giannis-myles-turner-partn
 **How to watch the Portland Trail Blazers all season long**\
 `The Blazers will look a little different this year, and so will the NBA's broadcast schedule. Here's how to tune in to Portland's games. `\
 https://nytimes.com/athletic/6710291/2025/10/13/portland-trail-blazers-tv-schedule-how-to-watch-night-games/
-
-**Inside Real Madrid: El Clasico injuries, Rodrygo hopes, and a youth academy departure**\
-`Will Dani Carvajal and Trent Alexander-Arnold return in time for Barcelona? Our Real Madrid correspondent Mario Cortegana has the latest`\
-https://nytimes.com/athletic/6712822/2025/10/13/real-madrid-clasico-injuries-mood-alonso/
 

@@ -1,3 +1,11 @@
+**Cheering Crowds Greet Palestinian Prisoners Freed by Israel**\
+`“We were happy for our prisoners — and for the Israelis, too,” one Gaza resident said. “We love peace and the truce.”`\
+https://nytimes.com/2025/10/13/nyregion/prisoners-freed-gaza-palestinian-west-bank.html
+
+**Beyond the Pomp of Egypt Summit, Arab Leaders Brace for Tough Negotiations**\
+`The meeting in Sharm el-Sheikh, Egypt, could expedite an end to the Gaza war, but regional powers must still resolve the thorny details that have stymied negotiations.`\
+https://nytimes.com/2025/10/13/world/europe/egypt-summit-negotiations-gaza-israel.html
+
 **Macron Urges Stability Despite Calls for Government Ouster**\
 `President Emmanuel Macron of France is facing some of the country’s worst political turmoil in decades. A new government has been appointed, but how long it will last is anyone’s guess.`\
 https://nytimes.com/2025/10/13/world/europe/macron-france-government.html
