@@ -1,3 +1,11 @@
+**Mamdani Seeks to Charm New York’s Most Powerful Capitalists**\
+`Key power brokers attacked Zohran Mamdani and raised millions for his leading opponent in the Democratic primary. Now many are talking to him behind the scenes.`\
+https://nytimes.com/2025/10/13/nyregion/mamdani-charm-business-leaders.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/10/13/crosswords/spelling-bee-forum.html
+
 **What Is Hostages Square, Where Israelis Are Waiting for the Captives’ Release?**\
 `The plaza in Tel Aviv has been a focal point for rallies for the release of the hostages and a gathering place for their families and supporters.`\
 https://nytimes.com/2025/10/13/world/middleeast/hostages-square-israel-tel-aviv.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6706021/2025/10/13/kostas-tsimikas-liverpool-roma-t
 **Nuno's defensive options assessed: Mavropanos, Julio, Todibo, Kilman**\
 `West Ham yielded mixed results under Potter in a wing-back formation, but Nuno will hope for improvement if he is to impose the system`\
 https://nytimes.com/athletic/6699649/2025/10/13/west-ham-defenders-nuno/
-
-**Mason Melia: What Tottenham's January signing will bring, plans for his immediate future**\
-`The 18-year-old striker has already made a name for himself in Ireland - how quickly can he do the same in the Premier League?`\
-https://nytimes.com/athletic/6701010/2025/10/13/mason-melia-what-tottenhams-january-signing-will-bring-plans-for-his-immediate-future/
-
-**Jess Park's sparkling cameo proves she is already integral to Man United**\
-`The brace against Everton from the bench was emblematic of Park’s transformation into one of the league’s most valuable attacking threats`\
-https://nytimes.com/athletic/6711387/2025/10/13/jess-parks-sparkling-39-minute-cameo-proves-she-is-already-integral-to-manchester-united/
 
