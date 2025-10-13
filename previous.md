@@ -1,3 +1,11 @@
+**NFL overreaction Monday: Riding Maye, Skattebo hype (sort of?), but not falling for Jets!**\
+`Toby Mergler makes early Week 7 picks wildly over-indexing on vibes, small sample sizes and comparisons to pop culture classics.`\
+https://nytimes.com/athletic/6713492/2025/10/13/nfl-overreaction-monday-week-7-betting/
+
+**Steelers' Mike Tomlin lays into Browns for Joe Flacco trade: 'It doesn't make sense to me'**\
+`Tomlin and the Steelers will face Flacco and the Bengals on 'Thursday Night Football.'`\
+https://nytimes.com/athletic/6713612/2025/10/13/mike-tomlin-criticism-browns-flacco-trade/
+
 **How rare was the Chiefs' penalty-free game against the Lions?**\
 `Since 2018, the Chiefs lead the league with three games with zero accepted penalties. There have been 40 such games overall since 2000.`\
 https://nytimes.com/athletic/6713595/2025/10/13/chiefs-zero-penalties-turnovers-lions-brawl-refs/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6713486/2025/10/13/georgia-auburn-timeout-kirby-sma
 **Ranking college football's open coaching jobs, from Penn State to Kent State**\
 `This could be the most active coaching carousel college football has seen in many years.`\
 https://nytimes.com/athletic/6662286/2025/10/13/college-football-open-coaching-jobs-rankings/
-
-**Milton Esterow, Who Reported on Art Stolen in World War II, Dies at 97**\
-`At The New York Times and then ARTnews, which he bought, he brought an investigative edge to stories about artwork looted by the Germans during World War II and the Soviets afterward.`\
-https://nytimes.com/2025/10/13/arts/milton-esterow-dead.html
-
-**Part Enabler, Part Buffer: The Bind of the Justice Dept.’s No. 2**\
-`Todd Blanche, the deputy attorney general, has helped usher in President Trump’s retribution campaign. But he faces anger on the right for resisting some of the most extreme measures.`\
-https://nytimes.com/2025/10/13/us/politics/todd-blanche-justice-department-trump.html
 

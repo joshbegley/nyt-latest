@@ -1,3 +1,11 @@
+**NFL overreaction Monday: Riding Maye, Skattebo hype (sort of?), but not falling for Jets!**\
+`Toby Mergler makes early Week 7 picks wildly over-indexing on vibes, small sample sizes and comparisons to pop culture classics.`\
+https://nytimes.com/athletic/6713492/2025/10/13/nfl-overreaction-monday-week-7-betting/
+
+**Steelers' Mike Tomlin lays into Browns for Joe Flacco trade: 'It doesn't make sense to me'**\
+`Tomlin and the Steelers will face Flacco and the Bengals on 'Thursday Night Football.'`\
+https://nytimes.com/athletic/6713612/2025/10/13/mike-tomlin-criticism-browns-flacco-trade/
+
 **How rare was the Chiefs' penalty-free game against the Lions?**\
 `Since 2018, the Chiefs lead the league with three games with zero accepted penalties. There have been 40 such games overall since 2000.`\
 https://nytimes.com/athletic/6713595/2025/10/13/chiefs-zero-penalties-turnovers-lions-brawl-refs/
