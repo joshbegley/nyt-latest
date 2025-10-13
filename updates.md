@@ -1,3 +1,7 @@
+**Swap of Israeli Hostages and Palestinian Prisoners Begins**\
+`Hamas began releasing some of the 20 living Israeli hostages held in Gaza on Monday as part of a cease-fire deal in exchange for nearly 2,000 Palestinian prisoners held in Israel.`\
+https://nytimes.com/video/world/middleeast/100000010455511/israel-gaza-hostages-prisoners.html
+
 **‘Real Progress’ Is Made in Delivering Aid to Gaza, U.N. Says**\
 `The cease-fire agreement reached last week contained stipulations for an increase of aid into the territory, where it had been sharply curtailed.`\
 https://nytimes.com/2025/10/13/world/middleeast/aid-gaza-un.html
