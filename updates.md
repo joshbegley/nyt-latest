@@ -1,3 +1,11 @@
+**Inside Newcastle Q&A: Chris Waugh answers your questions**\
+`The club have been busy this international break, with Ross Wilson arriving as sporting director. Have a question? Send it to Chris now`\
+https://nytimes.com/athletic/6712617/2025/10/13/inside-newcastle-qa-chris-waugh-ross-wilson/
+
+**Olmo a major doubt for El Clasico with muscular injury**\
+`Barcelona confirmed on Monday the midfielder had sustained an injury to the soleus muscle in his left leg.`\
+https://nytimes.com/athletic/6706485/2025/10/13/dani-olmo-injury-update-barcelona-clasico/
+
 **Olmo a major doubt for El Clasico with muscular injury**\
 `Barcelona midfielder Dani Olmo is a major doubt for October&#8217;s Clasico against Real Madrid due to a muscular injury.`\
 https://nytimes.com/athletic/6706485/2025/10/13/dani-olmo-injury-update-barcelona-clasico/
