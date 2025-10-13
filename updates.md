@@ -1,3 +1,7 @@
+**Israeli Hostages and Palestinian Prisoners Freed in Truce Exchange**\
+`Hamas released all 20 living Israeli hostages on Monday, and Israel said it freed the 1,968 Palestinian prisoners slated for release. The exchange of prisoners is part of the first phase of the Gaza cease-fire deal.`\
+https://nytimes.com/video/world/middleeast/100000010455901/gaza-ceasefire-hostages-palestinian-prisoners.html
+
 **NFL Week 7 odds, spreads: Wait, the Jets are favored!?**\
 `Which teams are the biggest favorites and underdogs for Week 7? There are some real surprises.`\
 https://nytimes.com/athletic/6713158/2025/10/13/nfl-week-7-odds-spreads-chiefs-lions-buccaneers-jets/

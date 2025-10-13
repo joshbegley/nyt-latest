@@ -1,3 +1,11 @@
+**Rams' Puka Nacua suffers ankle sprain vs. Ravens, status uncertain for Week 7**\
+`Nacua had to be helped to the locker room following the injury, though he did return for the second half and played a handful of snaps. `\
+https://nytimes.com/athletic/6713352/2025/10/13/rams-puka-nacua-injury-jaguars/
+
+**Small Plane Crashes on Massachusetts Highway, Killing 2**\
+`One person on the ground was injured when a plane crashed on a grassy highway median, forcing the closure of Interstate 195 in both directions in Dartmouth, Mass., officials said.`\
+https://nytimes.com/2025/10/13/us/highway-plane-crash-massachusetts.html
+
 **Israeli Hostages and Palestinian Prisoners Freed in Truce Exchange**\
 `Hamas released all 20 living Israeli hostages on Monday, and Israel said it freed the 1,968 Palestinian prisoners slated for release. The exchange of prisoners is part of the first phase of the Gaza cease-fire deal.`\
 https://nytimes.com/video/world/middleeast/100000010455901/gaza-ceasefire-hostages-palestinian-prisoners.html
@@ -29,12 +37,4 @@ https://nytimes.com/video/podcasts/100000010455976/is-ai-video-the-future-of-soc
 **South Carolina's Chloe Kitts out for 2025-26 season with torn ACL**\
 `Kitts started 38 games last season, averaging 10.2 points, 7.7 rebounds and 1.9 assists.`\
 https://nytimes.com/athletic/6713183/2025/10/13/chloe-kitts-injury-acl-out-season-south-carolina/
-
-**Chelsea's Millie Bright retires from England duty**\
-`"I got to a stage where I needed to make smart decisions and look after my physical and mental health," Bright said.`\
-https://nytimes.com/athletic/6713283/2025/10/13/millie-bright-england-retires/
-
-**Mike McDaniel's hot seat now scorching after Tua Tagovailoa's comments: Jones**\
-`After the quarterback questioned the team's leadership, it feels like a matter of when, not if, the Dolphins make a change.`\
-https://nytimes.com/athletic/6713177/2025/10/13/dolphins-mike-mcdaniel-tua-tagovailoa-hot-seat/
 
