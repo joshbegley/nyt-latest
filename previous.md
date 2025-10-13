@@ -1,41 +1,40 @@
-**Why Joe Flacco and Bengals offer a glimmer of hope despite fourth straight loss**\
-`The veteran QB struggled early while learning on the fly but found a groove, especially with Ja'Marr Chase, in the second half.`\
-https://nytimes.com/athletic/6712353/2025/10/12/joe-flacco-bengals-packers-jamarr-chase/
+**Is Chelsea's player trading strategy working?, and lots more  – The BookKeeper’s mailbag, club edition**\
+`The BookKeeper answers your club questions, including Arsenal's big spending, Chelsea transfer strategy and Liverpool's PSR position`\
+https://nytimes.com/athletic/6696196/2025/10/13/bookkeeper-mailbag-liverpool-chelsea-newcastle/
 
-**Denny Hamlin ties 10th in all-time NASCAR wins as he chases championship**\
-`An emotional Hamlin was crying in his car after the race, and he became choked up in his postrace interview.`\
-https://nytimes.com/athletic/6712264/2025/10/12/nascar-denny-hamlin-60th-career-win/
+**We need to talk about Adam Wharton and England**\
+`The Crystal Palace midfielder is a unique talent, so why is he not being selected by Thomas Tuchel for the national team?`\
+https://nytimes.com/athletic/6710324/2025/10/13/adam-wharton-england-crystal-palace/
 
-**Blue Jays-Mariners Game 1 takeaways: Raleigh powers Seattle to ALCS lead**\
-`Despite coming off a 15-inning thriller in the ALDS on Friday night, the Mariners looked sharp in a 3-1 win over the Blue Jays.`\
-https://nytimes.com/athletic/6712034/2025/10/12/blue-jays-mariners-game-1-score-results-takeaways-playoffs-mlb/
+**No Corrections: Oct. 13, 2025**\
+`No corrections appeared in print on Monday, Oct. 13, 2025.`\
+https://nytimes.com/2025/10/13/pageoneplus/no-corrections-oct-13-2025.html
 
-**How Josh Jacobs' flu game gave Bengals fits in 27-18 Packers win**\
-`Jacobs gained 150 total yards and scored two touchdowns for the second consecutive game, this one a much-needed win at Lambeau Field.`\
-https://nytimes.com/athletic/6712204/2025/10/12/josh-jacobs-packers-beat-bengals/
+**Quote of the Day: Milwaukee Vanquishes A Postseason Demon, And Must Do It Again**\
+`Quotation of the Day for Monday, October 13, 2025.`\
+https://nytimes.com/2025/10/13/pageoneplus/quote-of-the-day-milwaukee-vanquishes-a-postseason-demon-and-must-do-it-again.html
 
-**Ready, Set, Play: Belgrade Gears Up to Show the World Its Creative Spirit**\
-`At the confluence of two mighty rivers, and often of history, Belgrade blends tradition with dynamism. Here, explore the Serbian capital as it gears up to host Expo 2027 Belgrade.
-`\
-https://nytimes.com/paidpost/serbia-expo-2027/ready-set-play-belgrade-gears-up-to-show-the-world-its-creative-spirit.html
+**They Helped Topple Roe v. Wade. Now Their Sights Are Set on Britain.**\
+`An organization that fought abortion rights in the United States is now an unlikely conduit between MAGA Republicans and Britain’s ascendant Reform U.K. party.`\
+https://nytimes.com/2025/10/13/world/europe/uk-abortion-farage.html
 
-**Moses Moody will miss rest of preseason with calf strain**\
-`The Warriors will re-evaluate Moody in about a week.`\
-https://nytimes.com/athletic/6712183/2025/10/12/moses-moody-warriors-calf-strain/
+**Who’s Behind the Rising Anti-Abortion Movement in the U.K.?**\
+`An organization that fought abortion rights in the United States is now focusing on the United Kingdom. Jane Bradley, an investigative reporter at The New York Times, explains.`\
+https://nytimes.com/video/world/europe/100000010428693/whos-behind-the-rising-anti-abortion-movement-in-the-uk.html
 
-**'Heartbreaking' loss of Fred Warner in Tampa changes everything for 49ers**\
-`The anchor of San Francisco's defense is out for the season.`\
-https://nytimes.com/athletic/6712117/2025/10/12/fred-warner-49ers-injury-impact/
+**Our Correspondents Explain Why a U.S. Anti-Abortion Group Is Eyeing Britain**\
+`A religion writer and an investigative reporter discuss the Christian group that is forging ties across the Atlantic.`\
+https://nytimes.com/2025/10/13/world/europe/abortion-farage-takeaways.html
 
-**Quentin Lake, a budding star for Rams, manifested his first career interception**\
-`Lake's interception and fumble recovery in Ravens territory helped the Rams improve to 4-2 on the season. `\
-https://nytimes.com/athletic/6711668/2025/10/12/rams-quentin-lake-win-ravens/
+**Dozens Rescued in Remote Alaskan Villages in Storm That Swept Away Homes**\
+`The Coast Guard and the Alaska National Guard were conducting search-and-rescue operations in two villages along the Bering Sea on Sunday.`\
+https://nytimes.com/2025/10/13/us/alaska-flooding-rescues.html
 
-**Asia Markets Fall After Trump Threatens New Tariffs on China**\
-`Investors reacted to a pledge from the president on Friday to impose a “massive” new tariff on Chinese imports.`\
-https://nytimes.com/2025/10/12/business/trump-china-tariffs-global-markets.html
+**Lions, Chiefs brawl after Kansas City's 30-17 win on Sunday night**\
+`The Lions' Brian Branch appeared to kick off the melee with a shove, and even three-time Super Bowl winner Patrick Mahomes got involved.`\
+https://nytimes.com/athletic/6712342/2025/10/13/lions-chiefs-brawl-sunday-night-football/
 
-**Dodgers to start Snell, Yamamoto for NLCS; Ohtani to pitch 'at some point'**\
-`Designating Snell and Yamamoto to pitch the first two games would let them maintain their usual pitching schedules.`\
-https://nytimes.com/athletic/6712052/2025/10/12/nlcs-dodgers-pitching-start-snell-yamamoto-ohtani/
+**Connections: Sports Edition Coach: Hints for Oct. 13, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6712277/2025/10/13/connections-sports-edition-hints-for-oct-13-2025/
 
