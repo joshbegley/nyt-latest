@@ -1,3 +1,11 @@
+**Chiefs' offense is cooking ... and now they're getting back a huge missing ingredient**\
+`What dominated Chiefs locker-room talk (besides the fight) was the reality that they'll finally have their top three receivers on the field.`\
+https://nytimes.com/athletic/6711966/2025/10/13/chiefs-offense-lions-rashee-rice/
+
+**An uncharacteristic outing: Lions offense unable to pick up slack when defense needed it**\
+`Detroit settled for a field goal on impressive opening drive, missed on its fourth-down attempts and couldn't catch the Chiefs.`\
+https://nytimes.com/athletic/6712570/2025/10/13/lions-lose-chiefs-mistakes-brawl/
+
 **Rosenthal: In ALCS' opening salvo, Cal Raleigh – slugger, receiver, pitch whisperer – once again does it all**\
 `The Mariners catcher showed once again why he's received so much consideration in the American League MVP race. `\
 https://nytimes.com/athletic/6712537/2025/10/13/cal-raleigh-seattle-mariners-alcs/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/13/podcasts/the-daily/israels-hostages-released-gaza
 **Giants' offensive line bullied Eagles, highlighting what looks like an emerging strength**\
 `New York's running game has excelled lately. It's probably no coincidence that the hot streak started with the return of Andrew Thomas.`\
 https://nytimes.com/athletic/6709646/2025/10/13/giants-offensive-line-bully-eagles-rushing/
-
-**Wordle Review No. 1,578**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 14, 2025.`\
-https://nytimes.com/2025/10/13/crosswords/wordle-review-1578.html
-
-**Strands Sidekick No. 590**\
-`Scroll down for hints and conversation about the puzzle for Tuesday, Oct. 14, 2025.`\
-https://nytimes.com/2025/10/13/crosswords/strands-sidekick-590.html
 
