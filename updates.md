@@ -1,3 +1,19 @@
+**How to watch Predators vs. Senators: Time, TV, streaming**\
+`Find out how to watch the Nashville Predators play the Ottawa Senators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6712710/2025/10/13/predators-vs-senators-stream-how-to-watch-oct-13/
+
+**How to watch Lightning vs. Bruins: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Lightning play the Boston Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6712711/2025/10/13/lightning-vs-bruins-stream-how-to-watch-oct-13/
+
+**How to watch Jets vs. Islanders: Time, TV, streaming**\
+`Find out how to watch the Winnipeg Jets play the New York Islanders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6712707/2025/10/13/jets-vs-islanders-stream-how-to-watch-oct-13/
+
+**How to watch Avalanche vs. Sabres: Time, TV, streaming**\
+`Find out how to watch the Colorado Avalanche play the Buffalo Sabres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6712705/2025/10/13/avalanche-vs-sabres-stream-how-to-watch-oct-13/
+
 **How to watch Steelers vs. Bengals: Time, TV, streaming**\
 `Find out how to watch the Pittsburgh Steelers play the Cincinnati Bengals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6712686/2025/10/13/steelers-vs-bengals-stream-how-to-watch-oct-16/

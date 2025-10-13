@@ -1,3 +1,19 @@
+**How to watch Predators vs. Senators: Time, TV, streaming**\
+`Find out how to watch the Nashville Predators play the Ottawa Senators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6712710/2025/10/13/predators-vs-senators-stream-how-to-watch-oct-13/
+
+**How to watch Lightning vs. Bruins: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Lightning play the Boston Bruins, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6712711/2025/10/13/lightning-vs-bruins-stream-how-to-watch-oct-13/
+
+**How to watch Jets vs. Islanders: Time, TV, streaming**\
+`Find out how to watch the Winnipeg Jets play the New York Islanders, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6712707/2025/10/13/jets-vs-islanders-stream-how-to-watch-oct-13/
+
+**How to watch Avalanche vs. Sabres: Time, TV, streaming**\
+`Find out how to watch the Colorado Avalanche play the Buffalo Sabres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6712705/2025/10/13/avalanche-vs-sabres-stream-how-to-watch-oct-13/
+
 **How to watch Steelers vs. Bengals: Time, TV, streaming**\
 `Find out how to watch the Pittsburgh Steelers play the Cincinnati Bengals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6712686/2025/10/13/steelers-vs-bengals-stream-how-to-watch-oct-16/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/13/arts/marc-maron-wtf-podcast.html
 **The Appalling Campaign to Erase Jan. 6 Never Ends**\
 `Trump and his Republican minions won’t rest until the truth of that day is buried.`\
 https://nytimes.com/2025/10/13/opinion/january-6-trump-erase.html
-
-**‘After the Hunt’ Brings the #MeToo Backlash to the Movies**\
-`The reactionary centrism of the new Julia Roberts film.`\
-https://nytimes.com/2025/10/13/opinion/after-the-hunt-metoo-backlash.html
-
-**Why Ukraine Is Betting on Strikes Deep Inside Russia**\
-`The Kremlin will only negotiate if missiles and drones bring the pain of war home to Russians, Ukrainian officials say.`\
-https://nytimes.com/2025/10/13/world/europe/ukraine-long-range-strikes-russia.html
-
-**Falcons WR Casey Washington ready for another 'Holy cow' moment on MNF vs. Bills**\
-`Things have slowed down for the Atlanta receiver in his second season. He thinks he's ready to step in for Darnell Mooney and contribute.`\
-https://nytimes.com/athletic/6707258/2025/10/13/casey-washington-falcons-mnf-bills/
-
-**Nick Offerman Woodworked His Way to Playing the President**\
-`Once a struggling artist looking to find his way in the acting world, Mr. Offerman leveraged his love of craft into a lasting career.`\
-https://nytimes.com/2025/10/13/style/nick-offerman-woodworked-his-way-to-playing-the-president.html
 
