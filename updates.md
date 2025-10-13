@@ -1,3 +1,11 @@
+**Big Ten fines USC for playing running back listed as 'out' pregame**\
+`The instance is the first publicly known fine for a program violating an availability report.`\
+https://nytimes.com/athletic/6713920/2025/10/13/usc-fine-big-ten-football-bryan-jackson/
+
+**Rashford can be 'one of the world's best' with consistency, says Tuchel**\
+`Tuchel has tried to resurrect Rashford’s England career this year, but warned that the 27-year-old could still fail to fulfil his potential.`\
+https://nytimes.com/athletic/6713828/2025/10/13/marcus-rashford-thomas-tuchel-england/
+
 **Storm Brings Heavy Rain and Flooding to Northeast**\
 `A slow-moving storm flooded roads and knocked out power along the East Coast over the weekend.`\
 https://nytimes.com/video/weather/100000010456169/east-coast-storm-flooding.html
