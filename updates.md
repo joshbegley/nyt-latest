@@ -1,3 +1,16 @@
+**The Patriots offense may be one-dimensional, but Drake Maye is so good it might not matter**\
+`The Patriots struggled to run the ball against the Saints on Sunday, but their second-year quarterback lifted them to victory anyway.`\
+https://nytimes.com/athletic/6711749/2025/10/12/patriots-drake-maye-offense-new-orleans-saints/
+
+**How James Franklin's $45M Penn State buyout compares to recent coaching changes**\
+`What to know about James Franklin's $45 million Penn State buyout.
+`\
+https://nytimes.com/athletic/6711634/2025/10/12/penn-state-james-franklin-buyout-explained/
+
+**Diane Keaton, Oscar-Winning Actress, Dies at 79**\
+`Diane Keaton, the vibrant and sometimes unconventional actress, author and filmmaker, has died. Representatives have not said where or when Ms. Keaton died or cited a cause.`\
+https://nytimes.com/video/us/100000010454658/oscar-winning-actress-diane-keaton-obituary.html
+
 **How James Franklin's $45M Penn State buyout compares to recent coaching changes**\
 `What to know about James Franklin's $45 million Penn State buyout.
 `\
