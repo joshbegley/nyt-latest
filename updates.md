@@ -1,3 +1,15 @@
+**Blue Jays-Mariners Game 1 takeaways: Raleigh powers Seattle to series lead**\
+`Despite coming off a 15-inning thriller in the ALDS on Friday night, the Mariners looked sharp in a 3-1 win over the Blue Jays.`\
+https://nytimes.com/athletic/6712034/2025/10/12/blue-jays-mariners-game-1-score-results-takeaways-playoffs-mlb/
+
+**How Josh Jacobs' flu game gave Bengals fits in 27-18 Packers win**\
+`Jacobs gained 150 total yards and scored two touchdowns for the second consecutive game, this one a much-needed win at Lambeau Field.`\
+https://nytimes.com/athletic/6712204/2025/10/12/josh-jacobs-packers-beat-bengals/
+
+**'Heartbreaking' loss of Fred Warner in Tampa changes everything for 49ers**\
+`The anchor of San Francisco's defense is out for the season.`\
+https://nytimes.com/athletic/6712117/2025/10/12/fred-warner-49ers-injury-impact/
+
 **A Tennessee Sheriff Becomes the Face of Grief After Plant Explosion**\
 `The blast that killed 16 people has left area residents reeling, including Sheriff Chris Davis of Humphreys County, who has fought back tears in his public briefings.`\
 https://nytimes.com/2025/10/12/us/tennessee-sheriff-plant-explosion-tears.html
