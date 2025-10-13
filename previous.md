@@ -1,3 +1,7 @@
+**Bill Belichick quashes UNC buyout rumors, acknowledges 'learning curve'**\
+`“Obviously we're all a little frustrated in the results,” Belichick said.`\
+https://nytimes.com/athletic/6713593/2025/10/13/bill-belichick-unc-buyout-rumors/
+
 **W.H.O. Warns of Sharp Increase in Drug-Resistant Infections**\
 `The U.N. health agency found that one in six infections worldwide was resistant to the most commonly available antibiotics.`\
 https://nytimes.com/2025/10/13/health/who-antibiotic-drug-resistance.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/13/movies/diane-keaton-woody-allen.html
 **Champions League to adopt U.S.-style kick-off game hosted by holders**\
 `The new format will mimic that of the German Bundesliga and the United States' NFL.`\
 https://nytimes.com/athletic/6713222/2025/10/13/uefa-champions-league-winners-format-2027/
-
-**Manager Mike Shildt retires from Padres**\
-`Shildt went 183-141 with San Diego and 252-199 since first becoming the Cardinals' manager in 2018.`\
-https://nytimes.com/athletic/6713480/2025/10/13/mike-shildt-retires-from-padres/
 

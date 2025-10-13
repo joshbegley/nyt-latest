@@ -1,3 +1,7 @@
+**Bill Belichick quashes UNC buyout rumors, acknowledges 'learning curve'**\
+`“Obviously we're all a little frustrated in the results,” Belichick said.`\
+https://nytimes.com/athletic/6713593/2025/10/13/bill-belichick-unc-buyout-rumors/
+
 **W.H.O. Warns of Sharp Increase in Drug-Resistant Infections**\
 `The U.N. health agency found that one in six infections worldwide was resistant to the most commonly available antibiotics.`\
 https://nytimes.com/2025/10/13/health/who-antibiotic-drug-resistance.html
