@@ -1,3 +1,7 @@
+**Gazans confront a devastating reality: ‘There’s nothing to be happy about.’**\
+`By Adam Rasgon and Bilal Shbair`\
+https://nytimes.com/live/2025/10/12/world/israel-gaza-hostages-trump/gazans-confront-a-devastating-reality-theres-nothing-to-be-happy-about
+
 **Joy, relief and long-awaited phone calls as hostages are released.**\
 `By Natan Odenheimer and Aaron Boxerman`\
 https://nytimes.com/live/2025/10/12/world/israel-gaza-hostages-trump/joy-relief-and-long-awaited-phone-calls-as-hostages-families-greet-their-loved-ones

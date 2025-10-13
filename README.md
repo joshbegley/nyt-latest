@@ -1,40 +1,41 @@
-**Gazans confront a devastating reality: ‘There’s nothing to be happy about.’**\
-`By Adam Rasgon and Bilal Shbair`\
-https://nytimes.com/live/2025/10/12/world/israel-gaza-hostages-trump/gazans-confront-a-devastating-reality-theres-nothing-to-be-happy-about
+**Canadiens weekly notebook: Playing hockey in 'sneakers,' new dress code and more**\
+`Also in this week's notebook, how the Canadiens are handling the new loosened dress code for games`\
+https://nytimes.com/athletic/6709455/2025/10/13/canadiens-power-play-nhl-dress-code/
 
-**Joy, relief and long-awaited phone calls as hostages are released.**\
-`By Natan Odenheimer and Aaron Boxerman`\
-https://nytimes.com/live/2025/10/12/world/israel-gaza-hostages-trump/joy-relief-and-long-awaited-phone-calls-as-hostages-families-greet-their-loved-ones
+**Aaron Gleeman's 2025 Twins MVP ballot: Buxton, Ryan, Keaschall were rare bright spots**\
+`Even in a frustrating Twins season that peaked in May and turned into a 92-loss mess, the rare positives are worth appreciating.`\
+https://nytimes.com/athletic/6691108/2025/10/13/minnesota-twins-2025-mvp-ballot-buxton-ryan/
 
-**For Mariners, a fresh Miller is plenty filling in Game 1**\
-`After giving up a home run on the first pitch he threw, Miller gave up just one more hit in his six innings of work. `\
-https://nytimes.com/athletic/6712541/2025/10/13/bryce-miller-seattle-mariners-alcs/
+**Message board monday: SEC officiating stinks, but James Franklin actually doesn’t**\
+`To no one's surprised, Auburn and Georgia fans had a lot to say regarding the controversial officiating in Saturday's game. `\
+https://nytimes.com/athletic/6711474/2025/10/13/message-board-monday-sec-officiating-james-franklin/
 
-**From narrow losses to youth development, 8 observations from Blackhawks' first 3 games**\
-`The Blackhawks' record will matter at some point. Right now it's still about the feeling, and they feel decent so far.`\
-https://nytimes.com/athletic/6710704/2025/10/13/blackhawks-observations-first-three-games/
+**Browns' season was never about winning, and this week was the proof**\
+`The Browns don’t have a QB, don’t have tackles to protect the QB, don't have good receivers, and don't run consistently. The list goes deep.`\
+https://nytimes.com/athletic/6711819/2025/10/13/browns-steelers-dillon-gabriel-losing-strategy/
 
-**TAFC: Agent survey – best and worst EPL deals; has Pochettino found a formula for USMNT?**\
-`Today in TAFC: Agent survey brings up a striker debate. Plus: Has Poch found a formation?`\
-https://nytimes.com/athletic/6712626/2025/10/13/tafc-agent-survey-best-and-worst-epl-deals-has-pochettino-found-a-formula-for-usmnt/
+**Opening arguments expected in Skaggs vs. Angels case as jury selection concludes**\
+`With opening arguments looming, the full witness list has been revealed and includes some prominent current and former MLB players. `\
+https://nytimes.com/athletic/6711251/2025/10/13/tyler-skaggs-angels-trial-opening-arguments-jury/
 
-**See excerpts from Trump’s prepared remarks to the Knesset.**\
-`By David M. Halbfinger`\
-https://nytimes.com/live/2025/10/12/world/israel-gaza-hostages-trump/see-excerpts-from-trumps-prepared-remarks-to-the-knesset
+**Patriots revel in Drake Maye's rise and winning on the road (despite their many mistakes)**\
+`The Patriots made a ton of errors, including 11 penalties for 65 yards, but coach Mike Vrabel said he also saw “glimpses of good football."`\
+https://nytimes.com/athletic/6711944/2025/10/13/patriots-saints-drake-maye-mike-vrabel-rising/
 
-**Rangers remain upbeat despite loss to Capitals — and with good reason**\
-`The Capitals presented the Rangers' biggest test so far this young season, and New York rose to the challenge.`\
-https://nytimes.com/athletic/6712345/2025/10/13/rangers-zibanejad-miller-capitals-lindgren/
+**Life for Manchester's Jewish footballers in the wake of a terrorist attack**\
+`Football is an escape for Jewish players in Manchester but this month's attack at a synagogue has left a community on edge`\
+https://nytimes.com/athletic/6711095/2025/10/13/manchester-maccabi-jewish-football-attack/
 
-**Australia captain Cummins admits he is unlikely to play in first Ashes Test**\
-`The fast bowler has been sidelined since July with a stress fracture in his lower back.`\
-https://nytimes.com/athletic/6712712/2025/10/13/pat-cummins-ashes-injury-australia/
+**Meek: Michigan is flirting with mediocrity. Sherrone Moore can't let it become a habit**\
+`Michigan still has hope for a turnaround against a beatable Big Ten schedule, but an ugly 31-13 loss at USC erased a lot of optimism.`\
+https://nytimes.com/athletic/6711711/2025/10/13/michigan-football-sherrone-moore-usc-loss/
 
-**Chiefs' offense is cooking ... and now they're getting back a huge missing ingredient**\
-`What dominated Chiefs locker-room talk (besides the fight) was the reality that they'll finally have their top three receivers on the field.`\
-https://nytimes.com/athletic/6711966/2025/10/13/chiefs-offense-lions-rashee-rice/
+**Wild insider: It's more complicated than just 'play the kids,' plus Risebrough returns**\
+`Getting young players into the lineup is a tricky process, even as the Wild's first GM reminisces on how far things have come.`\
+https://nytimes.com/athletic/6710844/2025/10/13/wild-hynes-youth-injuries-buium-jiricek-risebrough/
 
-**An uncharacteristic outing: Lions offense unable to pick up slack when defense needed it**\
-`Detroit settled for a field goal on impressive opening drive, missed on its fourth-down attempts and couldn't catch the Chiefs.`\
-https://nytimes.com/athletic/6712570/2025/10/13/lions-lose-chiefs-mistakes-brawl/
+**Familiar October stumbles resurface as Blue Jays drop ALCS Game 1 opportunity**\
+`To advance to the World Series — to recover from Sunday's sound defeat — the Jays must push those familiar failures back to the past.
+`\
+https://nytimes.com/athletic/6712492/2025/10/13/blue-jays-lose-mariners-alcs-game-1/
 

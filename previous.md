@@ -1,3 +1,7 @@
+**Gazans confront a devastating reality: ‘There’s nothing to be happy about.’**\
+`By Adam Rasgon and Bilal Shbair`\
+https://nytimes.com/live/2025/10/12/world/israel-gaza-hostages-trump/gazans-confront-a-devastating-reality-theres-nothing-to-be-happy-about
+
 **Joy, relief and long-awaited phone calls as hostages are released.**\
 `By Natan Odenheimer and Aaron Boxerman`\
 https://nytimes.com/live/2025/10/12/world/israel-gaza-hostages-trump/joy-relief-and-long-awaited-phone-calls-as-hostages-families-greet-their-loved-ones
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6711966/2025/10/13/chiefs-offense-lions-rashee-rice
 **An uncharacteristic outing: Lions offense unable to pick up slack when defense needed it**\
 `Detroit settled for a field goal on impressive opening drive, missed on its fourth-down attempts and couldn't catch the Chiefs.`\
 https://nytimes.com/athletic/6712570/2025/10/13/lions-lose-chiefs-mistakes-brawl/
-
-**Rosenthal: In ALCS' opening salvo, Cal Raleigh – slugger, receiver, pitch whisperer – once again does it all**\
-`The Mariners catcher showed once again why he's received so much consideration in the American League MVP race. `\
-https://nytimes.com/athletic/6712537/2025/10/13/cal-raleigh-seattle-mariners-alcs/
 
