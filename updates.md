@@ -1,3 +1,15 @@
+**How rare was the Chiefs' penalty-free game against the Lions?**\
+`Since 2018, the Chiefs lead the league with three games with zero accepted penalties. There have been 40 such games overall since 2000.`\
+https://nytimes.com/athletic/6713595/2025/10/13/chiefs-zero-penalties-turnovers-lions-brawl-refs/
+
+**Diane Keaton’s Only Documentary Was About the Afterlife**\
+`Keaton, who died on Saturday, was an actor, director and producer on multiple films and series. Her sole documentary, “Heaven,” explored popular ideas of the afterlife.`\
+https://nytimes.com/2025/10/13/movies/diane-keaton-documentary.html
+
+**Bucks sign third Antetokounmpo brother to two-way deal**\
+`Three brothers will be on the active roster of the same NBA team for the first time in league history.`\
+https://nytimes.com/athletic/6713589/2025/10/13/bucks-sign-alex-antetokounmpo-two-way-deal/
+
 **Trump Takes a Victory Lap, but Avoids Questions About What’s Next**\
 `Except for brief references, President Trump did not talk about what it would take to rebuild Gaza or the future of the Palestinian people.`\
 https://nytimes.com/2025/10/13/world/europe/trump-victory-lap-whats-next.html
