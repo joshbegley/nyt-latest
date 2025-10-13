@@ -1,3 +1,15 @@
+**Doug Lebda, LendingTree Founder and C.E.O., Dies in A.T.V. Accident**\
+`LendingTree named its chief operating officer, Scott Peyree, as its new chief executive.`\
+https://nytimes.com/2025/10/13/business/doug-lebda-lendingtree-accident-death.html
+
+**Taylor Swift Smashes Another Record With ‘Showgirl’**\
+`The pop superstar sold four million copies of her latest album, topping a decade-old milestone by Adele. The tally included 1.3 million vinyl LPs.`\
+https://nytimes.com/2025/10/13/arts/music/taylor-swift-life-of-a-showgirl-first-week-sales.html
+
+**Phillies to retain manager Rob Thomson for 2026 season: Sources**\
+`Thomson is the third manager in franchise history to win back-to-back division titles and ranks first in managerial winning percentage.`\
+https://nytimes.com/athletic/6713381/2025/10/13/phillies-retain-manager-rob-thomson-2026-season/
+
 **Cape Verde qualify for first-ever World Cup**\
 `The Island country, home to around 525,000 people, is the second smallest nation ever to qualify for a World Cup finals after Iceland.`\
 https://nytimes.com/athletic/6699520/2025/10/13/cape-verde-islands-world-cup-qualification/
