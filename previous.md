@@ -26,7 +26,7 @@ https://nytimes.com/athletic/6671138/2025/10/13/titans-fire-brian-callahan-nfl/
 `Toby Mergler makes early Week 7 picks wildly over-indexing on vibes, small sample sizes and comparisons to pop culture classics.`\
 https://nytimes.com/athletic/6713492/2025/10/13/nfl-overreaction-monday-week-7-betting/
 
-**Steelers' Mike Tomlin lays into Browns for Joe Flacco trade: 'It doesn't make sense to me'**\
+**Mike Tomlin rips Browns for Joe Flacco trade: 'It doesn't make sense to me'**\
 `Tomlin and the Steelers will face Flacco and the Bengals on 'Thursday Night Football.'`\
 https://nytimes.com/athletic/6713612/2025/10/13/mike-tomlin-criticism-browns-flacco-trade/
 

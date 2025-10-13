@@ -1,3 +1,7 @@
+**Mike Tomlin rips Browns for Joe Flacco trade: 'It doesn't make sense to me'**\
+`Tomlin and the Steelers will face Flacco and the Bengals on 'Thursday Night Football.'`\
+https://nytimes.com/athletic/6713612/2025/10/13/mike-tomlin-criticism-browns-flacco-trade/
+
 **Doug Lebda, LendingTree Founder and C.E.O., Dies in A.T.V. Accident**\
 `LendingTree named its chief operating officer, Scott Peyree, as its new chief executive.`\
 https://nytimes.com/2025/10/13/business/doug-lebda-lendingtree-accident-death.html
