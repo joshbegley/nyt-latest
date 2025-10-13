@@ -1,3 +1,7 @@
+**China Hosts a Summit on Women’s Rights, While Stifling Activism**\
+`The conference was billed as a celebration of China’s achievements in supporting women. But the government has mostly wiped out independent advocacy groups.`\
+https://nytimes.com/2025/10/13/world/asia/china-womens-rights-feminism.html
+
 **Mamdani Seeks to Charm New York’s Most Powerful Capitalists**\
 `Key power brokers attacked Zohran Mamdani and raised millions for his leading opponent in the Democratic primary. Now many are talking to him behind the scenes.`\
 https://nytimes.com/2025/10/13/nyregion/mamdani-charm-business-leaders.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6712352/2025/10/13/lions-vs-chiefs-takeaways-result
 **Why Tsimikas - Liverpool's 'Greek Scouser' - was ready for a new challenge**\
 `The left-back departed with little fanfare in the summer but is already relishing life with Roma`\
 https://nytimes.com/athletic/6706021/2025/10/13/kostas-tsimikas-liverpool-roma-transfer/
-
-**Nuno's defensive options assessed: Mavropanos, Julio, Todibo, Kilman**\
-`West Ham yielded mixed results under Potter in a wing-back formation, but Nuno will hope for improvement if he is to impose the system`\
-https://nytimes.com/athletic/6699649/2025/10/13/west-ham-defenders-nuno/
 
