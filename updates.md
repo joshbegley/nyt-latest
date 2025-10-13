@@ -1,3 +1,15 @@
+**Is Drake Maye a real MVP contender? Here's what the odds say**\
+`Drake May has seen his NFL MVP odds skyrocket in recent weeks.`\
+https://nytimes.com/athletic/6714133/2025/10/13/drake-maye-real-mvp-contender-odds/
+
+**This season's Bruins might be for real, and we'll know for sure very soon**\
+`The Bruins picked up their first loss of the season against the Lightning, but they very nearly pulled off the comeback to force overtime.`\
+https://nytimes.com/athletic/6714140/2025/10/13/bruins-harris-pastrnak-lindholm-lightning/
+
+**Matt Rhule and the Penn State job: What we know and still need to know about his candidacy**\
+`“I think I probably had a Penn State shirt on when I was born,” Rhule said Monday.`\
+https://nytimes.com/athletic/6714152/2025/10/13/matt-rhule-penn-state-coaching-search-nebraska/
+
 **Matt Rhule's Penn State ties are obvious, but does he make sense as a candidate?**\
 `“I think I probably had a Penn State shirt on when I was born,” Rhule said Monday.`\
 https://nytimes.com/athletic/6714152/2025/10/13/matt-rhule-penn-state-coaching-search-nebraska/
