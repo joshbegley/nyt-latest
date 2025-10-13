@@ -1,3 +1,23 @@
+**NLCS predictions: Our experts pick whether the Dodgers or Brewers will win the pennant**\
+`It's the No. 1 seed versus the preseason favorite to win it all. Who will take home the NL title — Milwaukee or Los Angeles?`\
+https://nytimes.com/athletic/6711691/2025/10/13/dodgers-brewers-picks-predictions/
+
+**'It's our time': Bears hope late-game magic becomes the norm**\
+`For the 2025 Bears, a buildup of belief has become essential. The team's win in Las Vegas provided just that.`\
+https://nytimes.com/athletic/6707649/2025/10/13/bears-caleb-williams-late-game-magic/
+
+**Why there's another MNF doubleheader this week — and how to watch both games**\
+`Your TV's split-screen feature should get its cardio in tonight, and the "previous channel" button on your remote will come up clutch.`\
+https://nytimes.com/athletic/6699117/2025/10/13/monday-night-football-how-to-watch-bills-falcons-bears-commanders/
+
+**Three Cubs offseason questions: Kyle Tucker's future, rotation makeup, bullpen rebuild**\
+`After taking the Brewers to five games in the NLDS, the Cubs will shift their attention to their roster for next season.`\
+https://nytimes.com/athletic/6711125/2025/10/13/cubs-offseason-questions-kyle-tucker/
+
+**How the Dodgers' Roki Sasaki redisovered his 'Monster of the Reiwa Era' sizzle**\
+`Roki Sasaki spent most of the season searching for his missing velocity. He rediscovered all 100 mph at just the right time.`\
+https://nytimes.com/athletic/6710871/2025/10/13/dodges-roki-sasaki-mlb-postseason-nlcs/
+
 **China Hosts a Summit on Women’s Rights, While Stifling Activism**\
 `The conference was billed as a celebration of China’s achievements in supporting women. But the government has mostly wiped out independent advocacy groups.`\
 https://nytimes.com/2025/10/13/world/asia/china-womens-rights-feminism.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/10/13/world/middleeast/hostages-square-israel-tel-aviv.
 **What Is the Red Cross’s Role in Israel-Hamas Exchanges?**\
 `The organization has escorted hundreds of people to freedom, but it says it also does important diplomatic work behind the scenes.`\
 https://nytimes.com/2025/10/13/world/middleeast/red-cross-israel-hamas-exchanges.html
-
-**The New York Times in Print for Monday, Oct. 13, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/10/13/todays-new-york-times
-
-**Foreign Aid Is Mostly Gone. It’s Being Replaced With Something Better.**\
-`Developing countries have started taking greater responsibility for their own welfare, leveraging private investment to create economic opportunity.`\
-https://nytimes.com/2025/10/13/opinion/aid-cuts-new-model.html
-
-**‘Mr. Scorsese,’ and 4 More Things to Watch on TV This Week**\
-`Catch up on the latest political thrillers and a range of documentaries, from biographic to true crime.`\
-https://nytimes.com/2025/10/13/arts/television/mr-scorsese-what-to-watch-tv.html
-
-**Lions-Chiefs takeaways: Mahomes leads Kansas City to win**\
-`A scuffle broke out between Brian Branch and JuJu Smith-Schuster, beginning when Branch refused a handshake from Mahomes.`\
-https://nytimes.com/athletic/6712352/2025/10/13/lions-vs-chiefs-takeaways-results-nfl/
-
-**Why Tsimikas - Liverpool's 'Greek Scouser' - was ready for a new challenge**\
-`The left-back departed with little fanfare in the summer but is already relishing life with Roma`\
-https://nytimes.com/athletic/6706021/2025/10/13/kostas-tsimikas-liverpool-roma-transfer/
 
