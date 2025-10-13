@@ -1,3 +1,11 @@
+**"Heartbreaking" loss of Fred Warner in Tampa changes everything for 49ers**\
+`The anchor of San Francisco's defense is out for the season.`\
+https://nytimes.com/athletic/6712117/2025/10/12/fred-warner-49ers-injury-impact/
+
+**Quentin Lake, a budding star for Rams, manifested his first career interception**\
+`Lake's interception and fumble recovery in Ravens territory helped the Rams improve to 4-2 on the season. `\
+https://nytimes.com/athletic/6711668/2025/10/12/rams-quentin-lake-win-ravens/
+
 **Asia Markets Fall After Trump Threatens New Tariffs on China**\
 `Investors reacted to a pledge from the president on Friday to impose a “massive” new tariff on Chinese imports.`\
 https://nytimes.com/2025/10/12/business/trump-china-tariffs-global-markets.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6712083/2025/10/12/colts-cardinals-pregame-anthony-
 **Ravens' hole has gotten even deeper as the offense becomes latest concern**\
 `Baltimore is 1-5 after its latest loss, and a season many predicted would end with Super Bowl glory is circling the drain.`\
 https://nytimes.com/athletic/6711876/2025/10/12/ravens-offense-defense-struggles/
-
-**Panthers run all over Cowboys: Why does Dallas still believe defense can be fixed?**\
-`Carolina ran for 216 yards Sunday against Dallas, while the Cowboys managed just 31 rushing yards on 19 carries.`\
-https://nytimes.com/athletic/6711895/2025/10/12/cowboys-defense-bad-loss-panthers/
-
-**Here’s the latest.**\
-`By David M. Halbfinger`\
-https://nytimes.com/live/2025/10/12/world/israel-gaza-hostages-trump/heres-the-latest
 
