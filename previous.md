@@ -1,3 +1,7 @@
+**Lions-Chiefs takeaways: Mahomes leads Kansas City to win**\
+`A scuffle broke out between Brian Branch and JuJu Smith-Schuster, beginning when Branch refused a handshake from Mahomes.`\
+https://nytimes.com/athletic/6712352/2025/10/13/lions-vs-chiefs-takeaways-results-nfl/
+
 **Why Tsimikas - Liverpool's 'Greek Scouser' - was ready for a new challenge**\
 `The left-back departed with little fanfare in the summer but is already relishing life with Roma`\
 https://nytimes.com/athletic/6706021/2025/10/13/kostas-tsimikas-liverpool-roma-transfer/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6706776/2025/10/13/transfers-agents-survey-man-utd-
 **The Briefing: Haaland obliterates Kane record, Brazil's No 9 battle and unlikely qualifiers**\
 `Elias Burke answers three of the main questions to come out of the weekend of international football`\
 https://nytimes.com/athletic/6710532/2025/10/13/haaland-record-brazil-strikers-briefing/
-
-**Is Chelsea's player trading strategy working?, and lots more  – The BookKeeper’s mailbag, club edition**\
-`The BookKeeper answers your club questions, including Arsenal's big spending, Chelsea transfer strategy and Liverpool's PSR position`\
-https://nytimes.com/athletic/6696196/2025/10/13/bookkeeper-mailbag-liverpool-chelsea-newcastle/
 

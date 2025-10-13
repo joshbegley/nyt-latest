@@ -1,3 +1,7 @@
+**Lions-Chiefs takeaways: Mahomes leads Kansas City to win**\
+`A scuffle broke out between Brian Branch and JuJu Smith-Schuster, beginning when Branch refused a handshake from Mahomes.`\
+https://nytimes.com/athletic/6712352/2025/10/13/lions-vs-chiefs-takeaways-results-nfl/
+
 **Why Tsimikas - Liverpool's 'Greek Scouser' - was ready for a new challenge**\
 `The left-back departed with little fanfare in the summer but is already relishing life with Roma`\
 https://nytimes.com/athletic/6706021/2025/10/13/kostas-tsimikas-liverpool-roma-transfer/
