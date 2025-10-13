@@ -1,3 +1,7 @@
+**How to watch Louisville vs. Miami (FL): Time, TV, streaming**\
+`Find out how to watch the Louisville Cardinals play the Miami (FL) Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6712051/2025/10/12/louisville-vs-miami-fl-stream-how-to-watch-oct-17/
+
 **'MVP' chants for Baker Mayfield as Bucs beat 49ers: Takeaways**\
 `The quarterback's 15-yard scramble on third-and-14 set up a key touchdown late in third quarter.`\
 https://nytimes.com/athletic/6710959/2025/10/12/49ers-vs-buccaneers-takeaways-results-nfl/
