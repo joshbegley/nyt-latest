@@ -1,3 +1,7 @@
+**How to watch the Portland Trail Blazers all season long**\
+`The Blazers will look a little different this year, and so will the NBA's broadcast schedule. Here's how to tune in to Portland's games. `\
+https://nytimes.com/athletic/6710291/2025/10/13/portland-trail-blazers-tv-schedule-how-to-watch-night-games/
+
 **Inside Real Madrid: El Clasico injuries, Rodrygo hopes, and a youth academy departure**\
 `Will Dani Carvajal and Trent Alexander-Arnold return in time for Barcelona? Our Real Madrid correspondent Mario Cortegana has the latest`\
 https://nytimes.com/athletic/6712822/2025/10/13/real-madrid-clasico-injuries-mood-alonso/
