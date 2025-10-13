@@ -1,3 +1,11 @@
+**USMNT's Christian Pulisic expected to start vs. Australia in key friendly**\
+`The AC Milan winger came on as a second-half sub against Ecuador last Friday`\
+https://nytimes.com/athletic/6713927/2025/10/13/christian-pulisic-usmnt-injury-pochettino-australia/
+
+**The Return of Israel’s Living Hostages From Gaza Signals a Time to Heal**\
+`With the releases, Israelis basked in a joyous moment of unifying national redemption after months of agonizing, polarizing war.`\
+https://nytimes.com/2025/10/13/world/middleeast/israel-hostages-gaza.html
+
 **How to watch Blues vs. Canucks: Time, TV, streaming**\
 `Find out how to watch the St. Louis Blues play the Vancouver Canucks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6713933/2025/10/13/blues-vs-canucks-stream-how-to-watch-oct-13/
