@@ -1,3 +1,7 @@
+**What Is the Red Cross’s Role in Israel-Hamas Exchanges?**\
+`The organization has escorted hundreds of people to freedom, but it says it also does important diplomatic work behind the scenes.`\
+https://nytimes.com/2025/10/13/world/middleeast/red-cross-israel-hamas-exchanges.html
+
 **The New York Times in Print for Monday, Oct. 13, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/13/todays-new-york-times
