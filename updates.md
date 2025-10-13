@@ -1,3 +1,15 @@
+**Cuban Dissident Leader Leaves Prison for Exile in the U.S.**\
+`José Daniel Ferrer said long periods in solitary confinement left him feeling buried alive. Secretary of State Marco Rubio welcomed his arrival in Miami.`\
+https://nytimes.com/2025/10/13/world/americas/jose-daniel-ferrer-cuba.html
+
+**Browns, city of Cleveland reach $100M agreement for team to leave downtown**\
+`The money will be used to accelerate lakefront development on the site of the current stadium.`\
+https://nytimes.com/athletic/6714177/2025/10/13/cleveland-browns-brook-park-huntington-bank-field/
+
+**Is Drake Maye a real MVP contender? Here's what the odds say**\
+`Drake Maye has seen his NFL MVP odds skyrocket in recent weeks. Is he a real contender? `\
+https://nytimes.com/athletic/6714133/2025/10/13/drake-maye-real-mvp-contender-odds/
+
 **Is Drake Maye a real MVP contender? Here's what the odds say**\
 `Drake May has seen his NFL MVP odds skyrocket in recent weeks.`\
 https://nytimes.com/athletic/6714133/2025/10/13/drake-maye-real-mvp-contender-odds/

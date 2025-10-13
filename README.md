@@ -1,3 +1,19 @@
+**Alfa-Betty Olsen, Behind-the-Scenes ‘Comic Conspirator,’ Dies at 88**\
+`After quietly helping Mel Brooks set the irreverent tone on “Get Smart” and “The Producers,” she had a long collaboration as a writer with the actor and humorist Marshall Efron.`\
+https://nytimes.com/2025/10/13/arts/television/alfa-betty-olsen-dead.html
+
+**Lane Hutson deal signals Canadiens’ road to contention is taking shape**\
+`Lane Hutson's eight-year contract gives the Canadiens flexibility in a rising cap environment to add the final pieces of their rebuild.`\
+https://nytimes.com/athletic/6714038/2025/10/13/canadiens-lane-hutson-deal/
+
+**Trump and Abbas Share Moment of Rapprochement in Egypt**\
+`The Palestinian leader was recently denied a U.S. visa, preventing him from going to the United Nations last month to witness the recognition of a Palestinian state by several nations.`\
+https://nytimes.com/2025/10/13/world/middleeast/trump-abbas-handshake-egypt.html
+
+**Bucs' Tez Johnson thought 'MVP' chants were for him, not Baker Mayfield**\
+`The receiver was puzzled by chants after he caught a touchdown pass, saying, "I ain’t do nothing this year."`\
+https://nytimes.com/athletic/6714116/2025/10/13/tez-johnson-mvp-chants-baker-mayfield-buccaneers/
+
 **Cuban Dissident Leader Leaves Prison for Exile in the U.S.**\
 `José Daniel Ferrer said long periods in solitary confinement left him feeling buried alive. Secretary of State Marco Rubio welcomed his arrival in Miami.`\
 https://nytimes.com/2025/10/13/world/americas/jose-daniel-ferrer-cuba.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6714152/2025/10/13/matt-rhule-penn-state-coaching-s
 **A Reality Check on Peace**\
 `We talk to our Jerusalem bureau chief, David Halbfinger, about what comes after the cease-fire deal in Gaza.`\
 https://nytimes.com/2025/10/13/world/14-int-theworld-gaza-israel-ukraine-pakistan-tv.html
-
-**Mike McDaniel says Tua Tagovailoa's comments were not proper 'forum' for franchise QB**\
-`"Regardless of intent and what was on Tua’s mind, after a loss, as the franchise quarterback, that’s not the forum to displace that."`\
-https://nytimes.com/athletic/6714205/2025/10/13/dolphins-mike-mcdaniel-tua-tagovailoa-criticism/
-
-**Dozens Are Dead and Dozens More Missing as Catastrophic Rains Devastate Mexico**\
-`Torrential rains set off deadly floods and landslides across five Mexican states, leaving a trail of destruction.`\
-https://nytimes.com/2025/10/13/world/americas/mexico-torrential-rain-deaths.html
-
-**In Brooklyn, a Feast of Seven Salads and Two Tofu Cheesecakes**\
-`To celebrate her new cookbook, the author Hetty Lui McKinnon honored its concept with a menu of communal dishes prepared in advance.`\
-https://nytimes.com/2025/10/13/t-magazine/hetty-lui-mckinnon-linger-dinner-party.html
-
-**First Brands’ C.E.O. Steps Down, While Its Accounting Is Questioned**\
-`The auto-part maker’s bankruptcy has rocked Wall Street and revealed trouble in the private credit markets.`\
-https://nytimes.com/2025/10/13/business/first-brands-bankruptcy-private-credit.html
 
