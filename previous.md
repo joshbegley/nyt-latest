@@ -1,3 +1,11 @@
+**Some Israeli families are anguished to see Palestinians convicted of killing their loved ones freed.**\
+`By Johnatan Reiss`\
+https://nytimes.com/live/2025/10/12/world/israel-gaza-hostages-trump/some-israeli-families-are-anguished-to-see-palestinians-convicted-of-killing-their-loved-ones-freed
+
+**Titans fire coach Brian Callahan six games into second season**\
+`Callahan's Titans started his second season with four straight losses and went just 4-19 in his tenure.`\
+https://nytimes.com/athletic/6671138/2025/10/13/titans-fire-brian-callahan-nfl/
+
 **NFL overreaction Monday: Riding Maye, Skattebo hype (sort of?), but not falling for Jets!**\
 `Toby Mergler makes early Week 7 picks wildly over-indexing on vibes, small sample sizes and comparisons to pop culture classics.`\
 https://nytimes.com/athletic/6713492/2025/10/13/nfl-overreaction-monday-week-7-betting/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6713593/2025/10/13/bill-belichick-unc-buyout-rumors
 **W.H.O. Warns of Sharp Increase in Drug-Resistant Infections**\
 `The U.N. health agency found that one in six infections worldwide was resistant to the most commonly available antibiotics.`\
 https://nytimes.com/2025/10/13/health/who-antibiotic-drug-resistance.html
-
-**Georgia's Kirby Smart maintains he didn't call timeout vs. Auburn**\
-`"I talked to no one at the SEC, office-wise, and I stand by what I talked about after the game," Smart said. "I'm worried about Ole Miss."`\
-https://nytimes.com/athletic/6713486/2025/10/13/georgia-auburn-timeout-kirby-smart/
-
-**Ranking college football's open coaching jobs, from Penn State to Kent State**\
-`This could be the most active coaching carousel college football has seen in many years.`\
-https://nytimes.com/athletic/6662286/2025/10/13/college-football-open-coaching-jobs-rankings/
 
