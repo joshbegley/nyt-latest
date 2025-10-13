@@ -1,3 +1,15 @@
+**How rare was the Chiefs' penalty-free game against the Lions?**\
+`Since 2018, the Chiefs lead the league with three games with zero accepted penalties. There have been 40 such games overall since 2000.`\
+https://nytimes.com/athletic/6713595/2025/10/13/chiefs-zero-penalties-turnovers-lions-brawl-refs/
+
+**Diane Keaton’s Only Documentary Was About the Afterlife**\
+`Keaton, who died on Saturday, was an actor, director and producer on multiple films and series. Her sole documentary, “Heaven,” explored popular ideas of the afterlife.`\
+https://nytimes.com/2025/10/13/movies/diane-keaton-documentary.html
+
+**Bucks sign third Antetokounmpo brother to two-way deal**\
+`Three brothers will be on the active roster of the same NBA team for the first time in league history.`\
+https://nytimes.com/athletic/6713589/2025/10/13/bucks-sign-alex-antetokounmpo-two-way-deal/
+
 **Trump Takes a Victory Lap, but Avoids Questions About What’s Next**\
 `Except for brief references, President Trump did not talk about what it would take to rebuild Gaza or the future of the Palestinian people.`\
 https://nytimes.com/2025/10/13/world/europe/trump-victory-lap-whats-next.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/13/arts/milton-esterow-dead.html
 **Part Enabler, Part Buffer: The Bind of the Justice Dept.’s No. 2**\
 `Todd Blanche, the deputy attorney general, has helped usher in President Trump’s retribution campaign. But he faces anger on the right for resisting some of the most extreme measures.`\
 https://nytimes.com/2025/10/13/us/politics/todd-blanche-justice-department-trump.html
-
-**Eagles' Za'Darius Smith announces sudden retirement, depleting edge-rusher room**\
-`Smith, who signed with the Eagles on Sept. 5, has 1.5 sacks in five games. `\
-https://nytimes.com/athletic/6713511/2025/10/13/eagles-zadarius-smith-retirement/
-
-**Mendy set for Madrid training return after six-month layoff**\
-`The French left-back suffered a ruptured proximal tendon in his right quadriceps in April's Copa del Rey final defeat to Barcelona.`\
-https://nytimes.com/athletic/6713500/2025/10/13/mendy-real-madrid-injury-update/
-
-**Woody Allen Remembers the ‘Magical’ Diane Keaton**\
-`“I made movies for an audience of one, Diane Keaton,” Allen wrote in a remembrance that reflected on the breadth of their relationship.`\
-https://nytimes.com/2025/10/13/movies/diane-keaton-woody-allen.html
 

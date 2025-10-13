@@ -1,3 +1,7 @@
+**Trump Takes a Victory Lap, but Avoids Questions About What’s Next**\
+`Except for brief references, President Trump did not talk about what it would take to rebuild Gaza or the future of the Palestinian people.`\
+https://nytimes.com/2025/10/13/world/europe/trump-victory-lap-whats-next.html
+
 **Bill Belichick quashes UNC buyout rumors, acknowledges 'learning curve'**\
 `“Obviously we're all a little frustrated in the results,” Belichick said.`\
 https://nytimes.com/athletic/6713593/2025/10/13/bill-belichick-unc-buyout-rumors/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6713500/2025/10/13/mendy-real-madrid-injury-update/
 **Woody Allen Remembers the ‘Magical’ Diane Keaton**\
 `“I made movies for an audience of one, Diane Keaton,” Allen wrote in a remembrance that reflected on the breadth of their relationship.`\
 https://nytimes.com/2025/10/13/movies/diane-keaton-woody-allen.html
-
-**Champions League to adopt U.S.-style kick-off game hosted by holders**\
-`The new format will mimic that of the German Bundesliga and the United States' NFL.`\
-https://nytimes.com/athletic/6713222/2025/10/13/uefa-champions-league-winners-format-2027/
 

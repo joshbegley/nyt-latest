@@ -1,3 +1,7 @@
+**Trump Takes a Victory Lap, but Avoids Questions About What’s Next**\
+`Except for brief references, President Trump did not talk about what it would take to rebuild Gaza or the future of the Palestinian people.`\
+https://nytimes.com/2025/10/13/world/europe/trump-victory-lap-whats-next.html
+
 **Bill Belichick quashes UNC buyout rumors, acknowledges 'learning curve'**\
 `“Obviously we're all a little frustrated in the results,” Belichick said.`\
 https://nytimes.com/athletic/6713593/2025/10/13/bill-belichick-unc-buyout-rumors/
