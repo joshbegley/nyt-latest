@@ -1,3 +1,11 @@
+**‘Real Progress’ Is Made in Delivering Aid to Gaza, U.N. Says**\
+`The cease-fire agreement reached last week contained stipulations for an increase of aid into the territory, where it had been sharply curtailed.`\
+https://nytimes.com/2025/10/13/world/middleeast/aid-gaza-un.html
+
+**Pop quiz! Knicks' Jordan Clarkson answers various questions about lengthy NBA career**\
+`Jordan Clarkson tried to recall important moments in his career, while also telling stories along the way.`\
+https://nytimes.com/athletic/6708817/2025/10/13/knicks-jordan-clarkson-career-lakers-jazz-cavaliers-nba/
+
 **NLCS predictions: Our experts pick whether the Dodgers or Brewers will win the pennant**\
 `It's the No. 1 seed versus the preseason favorite to win it all. Who will take home the NL title — Milwaukee or Los Angeles?`\
 https://nytimes.com/athletic/6711691/2025/10/13/dodgers-brewers-picks-predictions/

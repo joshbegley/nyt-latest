@@ -1,3 +1,7 @@
+**‘Real Progress’ Is Made in Delivering Aid to Gaza, U.N. Says**\
+`The cease-fire agreement reached last week contained stipulations for an increase of aid into the territory, where it had been sharply curtailed.`\
+https://nytimes.com/2025/10/13/world/middleeast/aid-gaza-un.html
+
 **NLCS predictions: Our experts pick whether the Dodgers or Brewers will win the pennant**\
 `It's the No. 1 seed versus the preseason favorite to win it all. Who will take home the NL title — Milwaukee or Los Angeles?`\
 https://nytimes.com/athletic/6711691/2025/10/13/dodgers-brewers-picks-predictions/
@@ -5,6 +9,10 @@ https://nytimes.com/athletic/6711691/2025/10/13/dodgers-brewers-picks-prediction
 **'It's our time': Bears hope late-game magic becomes the norm**\
 `For the 2025 Bears, a buildup of belief has become essential. The team's win in Las Vegas provided just that.`\
 https://nytimes.com/athletic/6707649/2025/10/13/bears-caleb-williams-late-game-magic/
+
+**Pop quiz! Knicks' Jordan Clarkson answers various questions about lengthy NBA career**\
+`Jordan Clarkson tried to recall important moments in his career, while also telling stories along the way.`\
+https://nytimes.com/athletic/6708817/2025/10/13/knicks-jordan-clarkson-career-lakers-jazz-cavaliers-nba/
 
 **Why there's another MNF doubleheader this week — and how to watch both games**\
 `Your TV's split-screen feature should get its cardio in tonight, and the "previous channel" button on your remote will come up clutch.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/13/nyregion/mamdani-charm-business-leaders.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/10/13/crosswords/spelling-bee-forum.html
-
-**Israelis Wait in Hostages Square for the Captives’ Release**\
-`The plaza in Tel Aviv has been a focal point for rallies for the release of the hostages and a gathering place for their families and supporters.`\
-https://nytimes.com/2025/10/13/world/middleeast/hostages-square-israel-tel-aviv.html
-
-**What Is the Red Cross’s Role in Israel-Hamas Exchanges?**\
-`The organization has escorted hundreds of people to freedom, but it says it also does important diplomatic work behind the scenes.`\
-https://nytimes.com/2025/10/13/world/middleeast/red-cross-israel-hamas-exchanges.html
 
