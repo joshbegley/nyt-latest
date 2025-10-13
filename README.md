@@ -1,3 +1,19 @@
+**Review: ‘Are the Bennet Girls OK?’ Well, Their Mother Is Magnificent.**\
+`Bedlam’s sharply irreverent production of Emily Breeze’s comedy, a riff on “Pride and Prejudice,” has period dress, contemporary vernacular and a magnetic Mrs. Bennet.`\
+https://nytimes.com/2025/10/13/theater/are-the-bennet-girls-ok-review-bedlam.html
+
+**Tarik Skubal, A.J. Hinch and the trade deadline: Takeaways from Scott Harris' postmortem presser**\
+`Like most fans, Harris felt conflicted about the ups and downs of the 2025 Detroit Tigers season. `\
+https://nytimes.com/athletic/6713810/2025/10/13/tigers-scott-harris-postmortem-presser-takeaways/
+
+**Searching for sports at New York Comic Con**\
+`It turns out you don't have to look too hard to find sports representation at the epicenter of nerdiness. `\
+https://nytimes.com/athletic/6712194/2025/10/13/new-york-comic-con-sports/
+
+**Lakers preseason mailbag: What does life without LeBron look like?**\
+`Plus, an update on Dalton Knecht, how Jake LaRavia could fit into the rotation and Deandre Ayton's MIP chances.`\
+https://nytimes.com/athletic/6713737/2025/10/13/lakers-preseason-mailbag-starting-without-lebron-james/
+
 **Big Ten fines USC for playing running back listed as 'out' pregame**\
 `The instance is the first publicly known fine for a program violating an availability report.`\
 https://nytimes.com/athletic/6713920/2025/10/13/usc-fine-big-ten-football-bryan-jackson/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6713982/2025/10/13/lsu-vs-vanderbilt-stream-how-to-
 **How to watch Ole Miss vs. Georgia: Time, TV, streaming**\
 `Find out how to watch the Ole Miss Rebels play the Georgia Bulldogs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6713978/2025/10/13/ole-miss-vs-georgia-stream-how-to-watch-oct-18/
-
-**How to watch Georgia Tech vs. Duke: Time, TV, streaming**\
-`Find out how to watch the Georgia Tech Yellow Jackets play the Duke Blue Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6713975/2025/10/13/georgia-tech-vs-duke-stream-how-to-watch-oct-18/
-
-**How to watch Washington vs. Michigan: Time, TV, streaming**\
-`Find out how to watch the Washington Huskies play the Michigan Wolverines, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6713974/2025/10/13/washington-vs-michigan-stream-how-to-watch-oct-18/
-
-**How to watch SMU vs. Clemson: Time, TV, streaming**\
-`Find out how to watch the SMU Mustangs play the Clemson Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6713970/2025/10/13/smu-vs-clemson-stream-how-to-watch-oct-18/
-
-**How to watch Ohio State vs. Wisconsin: Time, TV, streaming**\
-`Find out how to watch the Ohio State Buckeyes play the Wisconsin Badgers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6713967/2025/10/13/ohio-state-vs-wisconsin-stream-how-to-watch-oct-18/
 
