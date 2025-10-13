@@ -1,3 +1,7 @@
+**Easton Cowan looks like he might just belong with the Leafs**\
+`Easton Cowan's NHL debut saw him making things happen on the top line and earned praise from teammates and coaches.`\
+https://nytimes.com/athletic/6714303/2025/10/13/easton-cowan-toronto-maple-leafs-red-wings/
+
 **Several News Outlets Reject Pentagon’s Reporting Restrictions**\
 `The Washington Post, The New York Times, Newsmax and others said their journalists would not agree to the Defense Department’s policies on news gathering ahead of a Tuesday deadline.`\
 https://nytimes.com/2025/10/13/business/pentagon-restrictions-news-outlets.html
