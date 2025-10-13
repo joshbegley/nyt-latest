@@ -1,3 +1,12 @@
+**Ready, Set, Play: Belgrade Gears Up to Show the World Its Creative Spirit**\
+`At the confluence of two mighty rivers, and often of history, Belgrade blends tradition with dynamism. Here, explore the Serbian capital as it gears up to host Expo 2027 Belgrade.
+`\
+https://nytimes.com/paidpost/serbia-expo-2027/ready-set-play-belgrade-gears-up-to-show-the-world-its-creative-spirit.html
+
+**Moses Moody will miss rest of preseason with calf strain**\
+`The Warriors will re-evaluate Moody in about a week.`\
+https://nytimes.com/athletic/6712183/2025/10/12/moses-moody-warriors-calf-strain/
+
 **"Heartbreaking" loss of Fred Warner in Tampa changes everything for 49ers**\
 `The anchor of San Francisco's defense is out for the season.`\
 https://nytimes.com/athletic/6712117/2025/10/12/fred-warner-49ers-injury-impact/

@@ -1,3 +1,12 @@
+**Ready, Set, Play: Belgrade Gears Up to Show the World Its Creative Spirit**\
+`At the confluence of two mighty rivers, and often of history, Belgrade blends tradition with dynamism. Here, explore the Serbian capital as it gears up to host Expo 2027 Belgrade.
+`\
+https://nytimes.com/paidpost/serbia-expo-2027/ready-set-play-belgrade-gears-up-to-show-the-world-its-creative-spirit.html
+
+**Moses Moody will miss rest of preseason with calf strain**\
+`The Warriors will re-evaluate Moody in about a week.`\
+https://nytimes.com/athletic/6712183/2025/10/12/moses-moody-warriors-calf-strain/
+
 **"Heartbreaking" loss of Fred Warner in Tampa changes everything for 49ers**\
 `The anchor of San Francisco's defense is out for the season.`\
 https://nytimes.com/athletic/6712117/2025/10/12/fred-warner-49ers-injury-impact/
@@ -29,12 +38,4 @@ https://nytimes.com/athletic/6711890/2025/10/12/pittsburgh-steelers-beat-clevela
 **A Tennessee Sheriff Becomes the Face of Grief After Plant Explosion**\
 `The blast that killed 16 people has left area residents reeling, including Sheriff Chris Davis of Humphreys County, who has fought back tears in his public briefings.`\
 https://nytimes.com/2025/10/12/us/tennessee-sheriff-plant-explosion-tears.html
-
-**Colts rally vs. Cardinals after unnerving pregame scene: 'The air was taken out'**\
-`The Colts were understandably shaken after losing Anthony Richardson and Charvarius Ward to pregame injuries. 'We had to rally the troops."`\
-https://nytimes.com/athletic/6712083/2025/10/12/colts-cardinals-pregame-anthony-richardson-charvarius-ward/
-
-**Ravens' hole has gotten even deeper as the offense becomes latest concern**\
-`Baltimore is 1-5 after its latest loss, and a season many predicted would end with Super Bowl glory is circling the drain.`\
-https://nytimes.com/athletic/6711876/2025/10/12/ravens-offense-defense-struggles/
 
