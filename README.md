@@ -1,4 +1,4 @@
-**Bengals-Packers takeaways: Green Bay outlasts Cincinnati**\
+**Packers win with late surge, spoil Joe Flacco's Bengals debut: Takeaways**\
 `The Packers scored 17 fourth-quarter points to stave off a second-half rally by the Bengals, who were held scoreless in the first half.`\
 https://nytimes.com/athletic/6711684/2025/10/12/bengals-vs-packers-takeaways-results-nfl/
 
