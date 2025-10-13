@@ -1,3 +1,11 @@
+**Inside Real Madrid: El Clasico injuries, Rodrygo hopes, and a youth academy departure**\
+`Will Dani Carvajal and Trent Alexander-Arnold return in time for Barcelona? Our Real Madrid correspondent Mario Cortegana has the latest`\
+https://nytimes.com/athletic/6712822/2025/10/13/real-madrid-clasico-injuries-mood-alonso/
+
+**Why San Marino must lose (heavily) to maintain slim hopes of World Cup qualification**\
+`The microstate has lost all seven World Cup qualification games to date — and must lose the eighth if it hopes to qualify`\
+https://nytimes.com/athletic/6712890/2025/10/13/san-marino-world-cup-qualification-how/
+
 **Inside Barcelona: How are they feeling about the game in Miami? Will Yamal be fit for El Clasico?**\
 `On the pitch, Barca's form and fitness issues are a concern. Off it, the last week has seen some intriguing moves...`\
 https://nytimes.com/athletic/6712937/2025/10/13/inside-barcelona-miami-yamal-clasico/
