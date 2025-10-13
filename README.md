@@ -1,3 +1,7 @@
+**Investors Fear the Return of the U.S.-China Trade War**\
+`The market is rebounding, but analysts see plenty of reason for concern about heightened tensions between Washington and Beijing.`\
+https://nytimes.com/2025/10/13/business/dealbook/us-china-trade-war-trump.html
+
 **How to watch Anthony Edwards and the Minnesota Timberwolves in the 2025-26 season**\
 `While the Wolves didn't make many changes this offseason, the NBA added new broadcast partners. Here's how to watch Minnesota's games.`\
 https://nytimes.com/athletic/6708110/2025/10/13/minnesota-timberwolves-how-to-watch-tv-schedule-anthony-edwards/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6706485/2025/10/13/dani-olmo-injury-update-barcelon
 **New York Braces for Potential Flooding and Heavy Winds From Nor’Easter**\
 `The storm has been moving up the East Coast since the weekend, dumping heavy rain and flooding roads on its way toward New England.`\
 https://nytimes.com/2025/10/13/nyregion/noreaster-storm-forecast-damage.html
-
-**A Hostage and Prisoner Exchange**\
-`We’re covering the release of hostages in Gaza and of Palestinian prisoners. We’re also covering President Trump’s visit to Israel.`\
-https://nytimes.com/2025/10/13/briefing/a-hostage-and-prisoner-exchange.html
 
