@@ -1,3 +1,15 @@
+**A Tennessee Sheriff Becomes the Face of Grief After Plant Explosion**\
+`The blast that killed 16 people has left area residents reeling, including Sheriff Chris Davis of Humphreys County, who has fought back tears in his public briefings.`\
+https://nytimes.com/2025/10/12/us/tennessee-sheriff-plant-explosion-tears.html
+
+**Colts rally vs. Cardinals after unnerving pregame scene: 'The air was taken out'**\
+`The Colts were understandably shaken after losing Anthony Richardson and Charvarius Ward to pregame injuries. 'We had to rally the troops."`\
+https://nytimes.com/athletic/6712083/2025/10/12/colts-cardinals-pregame-anthony-richardson-charvarius-ward/
+
+**Ravens' hole has gotten even deeper as the offense becomes latest concern**\
+`Baltimore is 1-5 after its latest loss, and a season many predicted would end with Super Bowl glory is circling the drain.`\
+https://nytimes.com/athletic/6711876/2025/10/12/ravens-offense-defense-struggles/
+
 **Ravens' hole has gotten even deeper as the offense becomes latest concern**\
 `Baltimore is 1-5 following its latest loss, and a season many predicted would end with Super Bowl glory is circling the drain.`\
 https://nytimes.com/athletic/6711876/2025/10/12/ravens-offense-defense-struggles/
