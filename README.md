@@ -1,3 +1,7 @@
+**The Return of Israel’s Living Hostages From Gaza Signals a Time to Heal**\
+`With the releases, Israelis basked in a joyous moment of unifying national redemption after months of agonizing, polarizing war.`\
+https://nytimes.com/2025/10/13/world/middleeast/israel-hostages-gaza.html
+
 **How to watch Blues vs. Canucks: Time, TV, streaming**\
 `Find out how to watch the St. Louis Blues play the Vancouver Canucks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6713933/2025/10/13/blues-vs-canucks-stream-how-to-watch-oct-13/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6713792/2025/10/13/trending-nfl-week-6-risers-falle
 **Gazans See Little to Celebrate Even Though the Bombs Have Stopped**\
 `The cease-fire in Gaza has taken hold. Hostages and prisoners have been exchanged. But amid the utter devastation of two years of war, a sense of gloom pervades.`\
 https://nytimes.com/2025/10/13/world/europe/gazans-ceasefire-relief-gloom.html
-
-**Doug Lebda, LendingTree Founder and C.E.O., Dies in A.T.V. Accident**\
-`Mr. Lebda died on Sunday following an all-terrain vehicle accident on his family’s North Carolina farm, a company spokeswoman said.`\
-https://nytimes.com/2025/10/13/business/doug-lebda-lendingtree-accident-death.html
 

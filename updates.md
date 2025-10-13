@@ -1,3 +1,15 @@
+**How to watch Blues vs. Canucks: Time, TV, streaming**\
+`Find out how to watch the St. Louis Blues play the Vancouver Canucks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6713933/2025/10/13/blues-vs-canucks-stream-how-to-watch-oct-13/
+
+**How to watch Kings vs. Wild: Time, TV, streaming**\
+`Find out how to watch the Los Angeles Kings play the Minnesota Wild, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6713931/2025/10/13/kings-vs-wild-stream-how-to-watch-oct-13/
+
+**How to watch Mammoth vs. Blackhawks: Time, TV, streaming**\
+`Find out how to watch the Utah Mammoth play the Chicago Blackhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6713929/2025/10/13/mammoth-vs-blackhawks-stream-how-to-watch-oct-13/
+
 **Ex-Student Stabs 3 Staff Members at California Special Needs School, Police Say**\
 `Two of the staff members at the Switzer Learning Center in Torrance, Calif., were taken to a hospital with non-life-threatening injuries, and the third was treated at the scene, the authorities said.`\
 https://nytimes.com/2025/10/13/us/torrance-stabbing-school-california.html
