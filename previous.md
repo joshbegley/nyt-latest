@@ -1,3 +1,11 @@
+**The Kit**\
+``\
+https://nytimes.com/column/the-kit
+
+**Sandy Alomar Sr., longtime big-league player and coach, dies at 81**\
+`Alomar was the father of Hall of Fame second baseman Roberto Alomar and All-Star catcher Sandy Alomar Jr.`\
+https://nytimes.com/athletic/6713787/2025/10/13/sandy-alomar-sr-dies-at-81/
+
 **Penn State looks to program reset after ‘difficult’ James Franklin firing**\
 `“Our next coach needs to be able to maximize elite-level resources, attack the transfer portal and develop,” said AD Pat Kraft.`\
 https://nytimes.com/athletic/6713483/2025/10/13/penn-state-pat-kraft-on-franklin-fire/
@@ -26,15 +34,7 @@ https://nytimes.com/athletic/6713381/2025/10/13/phillies-retain-manager-rob-thom
 `The Island country, home to around 525,000 people, is the second smallest nation ever to qualify for a World Cup finals after Iceland.`\
 https://nytimes.com/athletic/6699520/2025/10/13/cape-verde-islands-world-cup-qualification/
 
-**Some Israeli families are anguished to see Palestinians convicted of killing their loved ones freed.**\
+**Some Israeli families are anguished to see the release of Palestinians convicted of killing their loved ones.**\
 `By Johnatan Reiss`\
 https://nytimes.com/live/2025/10/12/world/israel-gaza-hostages-trump/some-israeli-families-are-anguished-to-see-palestinians-convicted-of-killing-their-loved-ones-freed
-
-**Titans fire coach Brian Callahan six games into second season**\
-`Callahan's Titans started his second season with four straight losses and went just 4-19 in his tenure.`\
-https://nytimes.com/athletic/6671138/2025/10/13/titans-fire-brian-callahan-nfl/
-
-**NFL overreaction Monday: Riding Maye, Skattebo hype (sort of?), but not falling for Jets!**\
-`Toby Mergler makes early Week 7 picks wildly over-indexing on vibes, small sample sizes and comparisons to pop culture classics.`\
-https://nytimes.com/athletic/6713492/2025/10/13/nfl-overreaction-monday-week-7-betting/
 

@@ -1,3 +1,15 @@
+**The Kit**\
+``\
+https://nytimes.com/column/the-kit
+
+**Sandy Alomar Sr., longtime big-league player and coach, dies at 81**\
+`Alomar was the father of Hall of Fame second baseman Roberto Alomar and All-Star catcher Sandy Alomar Jr.`\
+https://nytimes.com/athletic/6713787/2025/10/13/sandy-alomar-sr-dies-at-81/
+
+**Some Israeli families are anguished to see the release of Palestinians convicted of killing their loved ones.**\
+`By Johnatan Reiss`\
+https://nytimes.com/live/2025/10/12/world/israel-gaza-hostages-trump/some-israeli-families-are-anguished-to-see-palestinians-convicted-of-killing-their-loved-ones-freed
+
 **Penn State looks to program reset after ‘difficult’ James Franklin firing**\
 `“Our next coach needs to be able to maximize elite-level resources, attack the transfer portal and develop,” said AD Pat Kraft.`\
 https://nytimes.com/athletic/6713483/2025/10/13/penn-state-pat-kraft-on-franklin-fire/
