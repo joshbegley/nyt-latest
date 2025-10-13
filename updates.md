@@ -1,3 +1,7 @@
+**What we learned about the Broncos across 10 days, thousands of miles and two wins**\
+`The Broncos went 2-0 despite a stretch of six straight empty drives in both of their victories. That won't be sustainable going forward.`\
+https://nytimes.com/athletic/6712653/2025/10/13/broncos-road-trip-london-jets-nix/
+
 **Cheering Crowds Greet Palestinian Prisoners Freed by Israel**\
 `“We were happy for our prisoners — and for the Israelis, too,” one Gaza resident said. “We love peace and the truce.”`\
 https://nytimes.com/2025/10/13/nyregion/prisoners-freed-gaza-palestinian-west-bank.html

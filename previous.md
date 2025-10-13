@@ -1,3 +1,7 @@
+**What we learned about the Broncos across 10 days, thousands of miles and two wins**\
+`The Broncos went 2-0 despite a stretch of six straight empty drives in both of their victories. That won't be sustainable going forward.`\
+https://nytimes.com/athletic/6712653/2025/10/13/broncos-road-trip-london-jets-nix/
+
 **Cheering Crowds Greet Palestinian Prisoners Freed by Israel**\
 `“We were happy for our prisoners — and for the Israelis, too,” one Gaza resident said. “We love peace and the truce.”`\
 https://nytimes.com/2025/10/13/nyregion/prisoners-freed-gaza-palestinian-west-bank.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6712995/2025/10/13/como-milan-serie-a-australia/
 **Giannis Antetokounmpo-Myles Turner partnership shows immediate promise for Bucks**\
 `Turner is showing why he could be the right guy at center next to Antetokounmpo: "The most important thing about him is that he sacrifices."`\
 https://nytimes.com/athletic/6712684/2025/10/13/bucks-giannis-myles-turner-partnership/
-
-**How to watch the Portland Trail Blazers all season long**\
-`The Blazers will look a little different this year, and so will the NBA's broadcast schedule. Here's how to tune in to Portland's games. `\
-https://nytimes.com/athletic/6710291/2025/10/13/portland-trail-blazers-tv-schedule-how-to-watch-night-games/
 
