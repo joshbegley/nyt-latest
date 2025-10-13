@@ -1,3 +1,7 @@
+**'Fire Adams!' chants, Thompson's frustration and more from Sabres' 0-3 start**\
+`The Sabres are 0-3, have been outscored 10-2, and are 0-for-10 on the power play. Tage Thompson is ready to turn the corner.`\
+https://nytimes.com/athletic/6714230/2025/10/13/buffalo-sabres-adams-tage-thompson-nhl/
+
 **What Is Your Reaction to the Cease-Fire Deal Between Israel and Hamas?**\
 `Twenty living hostages were freed by Hamas on Monday under the cease-fire deal, and Israel released nearly 2,000 Palestinian prisoners.`\
 https://nytimes.com/2025/10/13/learning/what-is-your-reaction-to-the-cease-fire-deal-between-israel-and-hamas.html
@@ -35,8 +39,4 @@ https://nytimes.com/2025/10/13/world/americas/jose-daniel-ferrer-cuba.html
 **Browns, city of Cleveland reach $100M agreement for team to leave downtown**\
 `The money will be used to accelerate lakefront development on the site of the current stadium.`\
 https://nytimes.com/athletic/6714177/2025/10/13/cleveland-browns-brook-park-huntington-bank-field/
-
-**Is Drake Maye a real MVP contender? Here's what the odds say**\
-`Drake Maye has seen his NFL MVP odds skyrocket in recent weeks. Is he a real contender? `\
-https://nytimes.com/athletic/6714133/2025/10/13/drake-maye-real-mvp-contender-odds/
 
