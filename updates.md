@@ -1,3 +1,7 @@
+**Eagles' Za'Darius Smith announces sudden retirement, depleting edge-rusher room**\
+`Smith, who signed with the Eagles on Sept. 5, has 1.5 sacks in five games. `\
+https://nytimes.com/athletic/6713511/2025/10/13/eagles-zadarius-smith-retirement/
+
 **Mendy set for Madrid training return after six-month layoff**\
 `The French left-back suffered a ruptured proximal tendon in his right quadriceps in April's Copa del Rey final defeat to Barcelona.`\
 https://nytimes.com/athletic/6713500/2025/10/13/mendy-real-madrid-injury-update/

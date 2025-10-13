@@ -1,3 +1,7 @@
+**Eagles' Za'Darius Smith announces sudden retirement, depleting edge-rusher room**\
+`Smith, who signed with the Eagles on Sept. 5, has 1.5 sacks in five games. `\
+https://nytimes.com/athletic/6713511/2025/10/13/eagles-zadarius-smith-retirement/
+
 **Mendy set for Madrid training return after six-month layoff**\
 `The French left-back suffered a ruptured proximal tendon in his right quadriceps in April's Copa del Rey final defeat to Barcelona.`\
 https://nytimes.com/athletic/6713500/2025/10/13/mendy-real-madrid-injury-update/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6713316/2025/10/13/fantasy-football-week-6-recap-an
 **Aaron Rodgers calls Steelers' field 'borderline unplayable' after win**\
 `According to a team spokesperson, the Steelers already planned to replace the sod on the field this week.`\
 https://nytimes.com/athletic/6713210/2025/10/13/aaron-rodgers-steelers-field-comments-browns/
-
-**A Tyrant for Our Times: Reviving José Limón’s ‘The Emperor Jones’**\
-`Limón’s dance, based on the play by Eugene O’Neill, has long been something of a problem piece. Now, it is being updated to speak to the moment.`\
-https://nytimes.com/2025/10/13/arts/dance/jose-limon-the-emperor-jones-revival.html
 
