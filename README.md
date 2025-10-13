@@ -1,3 +1,7 @@
+**Why Tsimikas - Liverpool's 'Greek Scouser' - was ready for a new challenge**\
+`The left-back departed with little fanfare in the summer but is already relishing life with Roma`\
+https://nytimes.com/athletic/6706021/2025/10/13/kostas-tsimikas-liverpool-roma-transfer/
+
 **Nuno's defensive options assessed: Mavropanos, Julio, Todibo, Kilman**\
 `West Ham yielded mixed results under Potter in a wing-back formation, but Nuno will hope for improvement if he is to impose the system`\
 https://nytimes.com/athletic/6699649/2025/10/13/west-ham-defenders-nuno/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6710532/2025/10/13/haaland-record-brazil-strikers-b
 **Is Chelsea's player trading strategy working?, and lots more  – The BookKeeper’s mailbag, club edition**\
 `The BookKeeper answers your club questions, including Arsenal's big spending, Chelsea transfer strategy and Liverpool's PSR position`\
 https://nytimes.com/athletic/6696196/2025/10/13/bookkeeper-mailbag-liverpool-chelsea-newcastle/
-
-**We need to talk about Adam Wharton and England**\
-`The Crystal Palace midfielder is a unique talent, so why is he not being selected by Thomas Tuchel for the national team?`\
-https://nytimes.com/athletic/6710324/2025/10/13/adam-wharton-england-crystal-palace/
 
