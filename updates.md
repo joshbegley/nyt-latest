@@ -1,3 +1,11 @@
+**South Carolina's Chloe Kitts out for 2025-26 season with torn ACL**\
+`Kitts started 38 games last season, averaging 10.2 points, 7.7 rebounds and 1.9 assists.`\
+https://nytimes.com/athletic/6713183/2025/10/13/chloe-kitts-injury-acl-out-season-south-carolina/
+
+**Chelsea's Millie Bright retires from England duty**\
+`"I got to a stage where I needed to make smart decisions and look after my physical and mental health," Bright said.`\
+https://nytimes.com/athletic/6713283/2025/10/13/millie-bright-england-retires/
+
 **Mike McDaniel's hot seat now scorching after Tua Tagovailoa's comments: Jones**\
 `After the quarterback questioned the team's leadership, it feels like a matter of when, not if, the Dolphins make a change.`\
 https://nytimes.com/athletic/6713177/2025/10/13/dolphins-mike-mcdaniel-tua-tagovailoa-hot-seat/
