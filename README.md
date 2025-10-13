@@ -1,3 +1,11 @@
+**Milton Esterow, Who Reported on Art Stolen in World War II, Dies at 97**\
+`At The New York Times and then ARTnews, which he bought, he brought an investigative edge to stories about artwork looted by the Germans during World War II and the Soviets afterward.`\
+https://nytimes.com/2025/10/13/arts/milton-esterow-dead.html
+
+**Part Enabler, Part Buffer: The Bind of the Justice Dept.’s No. 2**\
+`Todd Blanche, the deputy attorney general, has helped usher in President Trump’s retribution campaign. But he faces anger on the right for resisting some of the most extreme measures.`\
+https://nytimes.com/2025/10/13/us/politics/todd-blanche-justice-department-trump.html
+
 **Eagles' Za'Darius Smith announces sudden retirement, depleting edge-rusher room**\
 `Smith, who signed with the Eagles on Sept. 5, has 1.5 sacks in five games. `\
 https://nytimes.com/athletic/6713511/2025/10/13/eagles-zadarius-smith-retirement/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/13/world/middleeast/abraham-accords-israel-arab-stat
 **Floods Sweep Away Homes Along Western Alaska Coast**\
 `Emergency crews rescued dozens of people in western Alaska on Sunday, after flooding from Typhoon Halong swept away homes in two villages along the Bering Sea.`\
 https://nytimes.com/video/weather/100000010456013/alaska-flooding-typhoon-halong.html
-
-**Fantasy football Week 6 recap and early waivers speed run**\
-`Making sense of the backfields in Los Angeles, Arizona and elsewhere. `\
-https://nytimes.com/athletic/6713316/2025/10/13/fantasy-football-week-6-recap-and-early-waivers-speed-run-kimani-vidal-a-priority-add/
-
-**Aaron Rodgers calls Steelers' field 'borderline unplayable' after win**\
-`According to a team spokesperson, the Steelers already planned to replace the sod on the field this week.`\
-https://nytimes.com/athletic/6713210/2025/10/13/aaron-rodgers-steelers-field-comments-browns/
 
