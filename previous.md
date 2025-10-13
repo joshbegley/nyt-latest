@@ -1,3 +1,7 @@
+**Bears leaning on kicker Jake Moody vs. Commanders with Cairo Santos inactive**\
+`Moody's career accuracy from 40 yards or longer is just 55.2 percent, and misty, windy conditions could complicate his Bears debut.`\
+https://nytimes.com/athletic/6714406/2025/10/13/bears-kicker-jake-moody-commanders/
+
 **Easton Cowan looks like he might just belong with the Leafs**\
 `Easton Cowan's NHL debut saw him making things happen on the top line and earned praise from teammates and coaches.`\
 https://nytimes.com/athletic/6714303/2025/10/13/easton-cowan-toronto-maple-leafs-red-wings/
@@ -27,14 +31,10 @@ https://nytimes.com/2025/10/13/us/north-carolina-republicans-redistricting.html
 https://nytimes.com/2025/10/13/style/why-diane-keatons-death-hits-harder.html
 
 **'Fire Adams!' chants, Thompson's frustration and more from Sabres' 0-3 start**\
-`The Sabres are 0-3, have been outscored 10-2 and are 0-for-10 on the power play. Tage Thompson is ready to turn the corner.`\
+`The Sabres are 0-3, have been outscored 10-2 and are 0-for-11 on the power play. Tage Thompson is ready to turn the corner.`\
 https://nytimes.com/athletic/6714230/2025/10/13/buffalo-sabres-adams-tage-thompson-nhl/
 
 **What Is Your Reaction to the Cease-Fire Deal Between Israel and Hamas?**\
 `Twenty living hostages were freed by Hamas on Monday under the cease-fire deal, and Israel released nearly 2,000 Palestinian prisoners.`\
 https://nytimes.com/2025/10/13/learning/what-is-your-reaction-to-the-cease-fire-deal-between-israel-and-hamas.html
-
-**Friends and Family Celebrate Return of Israeli Hostage**\
-`Alon Ohel was kidnapped by Hamas after fleeing the Nova music festival in October 2023. More than two years later, Hamas freed Mr. Ohel as part of a cease-fire deal with Israel.`\
-https://nytimes.com/video/world/middleeast/100000010456587/israeli-hostages-return-home.html
 
