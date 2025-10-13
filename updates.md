@@ -1,3 +1,19 @@
+**Ravens' hole has gotten even deeper as the offense becomes latest concern**\
+`Baltimore is 1-5 following its latest loss, and a season many predicted would end with Super Bowl glory is circling the drain.`\
+https://nytimes.com/athletic/6711876/2025/10/12/ravens-offense-defense-struggles/
+
+**Panthers run all over Cowboys: Why does Dallas still believe defense can be fixed?**\
+`Carolina ran for 216 yards Sunday against Dallas, while the Cowboys managed just 31 rushing yards on 19 carries.`\
+https://nytimes.com/athletic/6711895/2025/10/12/cowboys-defense-bad-loss-panthers/
+
+**Here’s the latest.**\
+`By David M. Halbfinger`\
+https://nytimes.com/live/2025/10/12/world/israel-gaza-hostages-trump/heres-the-latest
+
+**Live Updates: Trump Flies to Israel as Region Awaits Hostage-Prisoner Swap**\
+`A cease-fire brokered in part by the Trump administration calls for the exchange of 20 living hostages in Gaza and 2,000 Palestinians in Israeli jails to take place in the coming hours.`\
+https://nytimes.com/live/2025/10/12/world/israel-gaza-hostages-trump
+
 **How to watch Louisville vs. Miami (FL): Time, TV, streaming**\
 `Find out how to watch the Louisville Cardinals play the Miami (FL) Hurricanes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6712051/2025/10/12/louisville-vs-miami-fl-stream-how-to-watch-oct-17/

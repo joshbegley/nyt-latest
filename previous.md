@@ -1,3 +1,19 @@
+**Ravens' hole has gotten even deeper as the offense becomes latest concern**\
+`Baltimore is 1-5 following its latest loss, and a season many predicted would end with Super Bowl glory is circling the drain.`\
+https://nytimes.com/athletic/6711876/2025/10/12/ravens-offense-defense-struggles/
+
+**Panthers run all over Cowboys: Why does Dallas still believe defense can be fixed?**\
+`Carolina ran for 216 yards Sunday against Dallas, while the Cowboys managed just 31 rushing yards on 19 carries.`\
+https://nytimes.com/athletic/6711895/2025/10/12/cowboys-defense-bad-loss-panthers/
+
+**Here’s the latest.**\
+`By David M. Halbfinger`\
+https://nytimes.com/live/2025/10/12/world/israel-gaza-hostages-trump/heres-the-latest
+
+**Live Updates: Trump Flies to Israel as Region Awaits Hostage-Prisoner Swap**\
+`A cease-fire brokered in part by the Trump administration calls for the exchange of 20 living hostages in Gaza and 2,000 Palestinians in Israeli jails to take place in the coming hours.`\
+https://nytimes.com/live/2025/10/12/world/israel-gaza-hostages-trump
+
 **How to watch Louisville vs. Miami (FL): Time, TV, streaming**\
 `Find out how to watch the Louisville Cardinals play the Miami (FL) Hurricanes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6712051/2025/10/12/louisville-vs-miami-fl-stream-how-to-watch-oct-17/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6711841/2025/10/12/kevin-stefanski-browns-offense/
 **'MVP' chants for Baker Mayfield as Bucs beat 49ers: Takeaways**\
 `The quarterback's 15-yard scramble on third-and-14 set up a key touchdown late in third quarter.`\
 https://nytimes.com/athletic/6710959/2025/10/12/49ers-vs-buccaneers-takeaways-results-nfl/
-
-**Darnold, Smith-Njigba spark another Seahawks road victory: 'We travel heavy'**\
-`Darnold and Smith-Njigba have been among the NFL's best players at their position, and Seattle is 10-1 on the road under Mike Macdonald.`\
-https://nytimes.com/athletic/6711791/2025/10/12/sam-darnold-jaxon-smith-njigba-seahawks-jaguars/
-
-**Devin White, Raiders defense dominate in 20-10 win over Titans**\
-`The Titans offense continued its struggles against a strong Las Vegas pass rush, as the Raiders improved to 2-4.`\
-https://nytimes.com/athletic/6711421/2025/10/12/titans-vs-raiders-takeaways-results-nfl/
-
-**Patriots' offense is one-dimensional, but with Drake Maye it might not matter**\
-`The Patriots struggled to run the ball against the Saints on Sunday, but their second-year quarterback lifted them to victory anyway.`\
-https://nytimes.com/athletic/6711749/2025/10/12/patriots-drake-maye-offense-new-orleans-saints/
-
-**Buccaneers rookie WR Emeka Egbuka ruled out vs. 49ers with hamstring injury**\
-`The Bucs are already without receivers Mike Evans and Chris Godwin and starting running back Bucky Irving.`\
-https://nytimes.com/athletic/6711771/2025/10/12/buccaneers-emeka-egbuka-hamstring-injury/
 
