@@ -1,3 +1,7 @@
+**Easton Cowan looks like he might just belong with the Leafs**\
+`Easton Cowan's NHL debut saw him making things happen on the top line and earned praise from teammates and coaches.`\
+https://nytimes.com/athletic/6714303/2025/10/13/easton-cowan-toronto-maple-leafs-red-wings/
+
 **Several News Outlets Reject Pentagon’s Reporting Restrictions**\
 `The Washington Post, The New York Times, Newsmax and others said their journalists would not agree to the Defense Department’s policies on news gathering ahead of a Tuesday deadline.`\
 https://nytimes.com/2025/10/13/business/pentagon-restrictions-news-outlets.html
@@ -33,10 +37,4 @@ https://nytimes.com/2025/10/13/learning/what-is-your-reaction-to-the-cease-fire-
 **Friends and Family Celebrate Return of Israeli Hostage**\
 `Alon Ohel was kidnapped by Hamas after fleeing the Nova music festival in October 2023. More than two years later, Hamas freed Mr. Ohel as part of a cease-fire deal with Israel.`\
 https://nytimes.com/video/world/middleeast/100000010456587/israeli-hostages-return-home.html
-
-**Submit a question for Stewart Mandel's College Football Mailbag**\
-`<p>Boy, that was some weekend. Suddenly, Indiana is a national title contender, and suddenly James Franklin is unemployed.</p>
-<p>Leave your questions here. Please include your city.</p>
-`\
-https://nytimes.com/athletic/6714291/2025/10/13/submit-a-question-for-stewart-mandels-college-football-mailbag-318/
 

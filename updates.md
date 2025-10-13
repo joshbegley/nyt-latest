@@ -1,3 +1,11 @@
+**Several News Outlets Reject Pentagon’s Reporting Restrictions**\
+`The Washington Post, The New York Times, Newsmax and others said their journalists would not agree to the Defense Department’s policies on news gathering ahead of a Tuesday deadline.`\
+https://nytimes.com/2025/10/13/business/pentagon-restrictions-news-outlets.html
+
+**Crispy Lemon Chicken Cutlets With Salmoriglio Sauce**\
+`Derived from the Italian word for brine, “salamoia,” salmoriglio is a lemon sauce from Sicily and Calabria that is used to marinate and dress grilled meats and fish.`\
+https://nytimes.com/video/dining/100000010366924/crispy-lemon-chicken-cutlets-with-salmoriglio-sauce.html
+
 **Sue Goldie Has Parkinson’s Disease**\
 `An acclaimed researcher is an expert at explaining complicated problems. Now she has to confront the most vexing question: What is happening to her?`\
 https://nytimes.com/interactive/2025/10/13/us/sue-goldie-parkinsons.html
