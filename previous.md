@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Boy, that was some weekend. Suddenly, Indiana is a national title contender, and suddenly James Franklin is unemployed.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6714291/2025/10/13/submit-a-question-for-stewart-mandels-college-football-mailbag-318/
+
 **Alfa-Betty Olsen, Behind-the-Scenes ‘Comic Conspirator,’ Dies at 88**\
 `After quietly helping Mel Brooks set the irreverent tone on “Get Smart” and “The Producers,” she had a long collaboration as a writer with the actor and humorist Marshall Efron.`\
 https://nytimes.com/2025/10/13/arts/television/alfa-betty-olsen-dead.html
@@ -33,8 +39,4 @@ https://nytimes.com/athletic/6714140/2025/10/13/bruins-harris-pastrnak-lindholm-
 **Matt Rhule and the Penn State job: What we know and still need to know about his candidacy**\
 `“I think I probably had a Penn State shirt on when I was born,” Rhule said Monday.`\
 https://nytimes.com/athletic/6714152/2025/10/13/matt-rhule-penn-state-coaching-search-nebraska/
-
-**A Reality Check on Peace**\
-`We talk to our Jerusalem bureau chief, David Halbfinger, about what comes after the cease-fire deal in Gaza.`\
-https://nytimes.com/2025/10/13/world/14-int-theworld-gaza-israel-ukraine-pakistan-tv.html
 

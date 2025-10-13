@@ -1,3 +1,9 @@
+**Submit a question for Stewart Mandel's College Football Mailbag**\
+`<p>Boy, that was some weekend. Suddenly, Indiana is a national title contender, and suddenly James Franklin is unemployed.</p>
+<p>Leave your questions here. Please include your city.</p>
+`\
+https://nytimes.com/athletic/6714291/2025/10/13/submit-a-question-for-stewart-mandels-college-football-mailbag-318/
+
 **Alfa-Betty Olsen, Behind-the-Scenes ‘Comic Conspirator,’ Dies at 88**\
 `After quietly helping Mel Brooks set the irreverent tone on “Get Smart” and “The Producers,” she had a long collaboration as a writer with the actor and humorist Marshall Efron.`\
 https://nytimes.com/2025/10/13/arts/television/alfa-betty-olsen-dead.html
