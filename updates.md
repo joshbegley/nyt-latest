@@ -1,3 +1,23 @@
+**Packers win with late surge, spoil Joe Flacco's Bengals debut: Takeaways**\
+`The Packers scored 17 fourth-quarter points to stave off a second-half rally by the Bengals, who were held scoreless in the first half.`\
+https://nytimes.com/athletic/6711684/2025/10/12/bengals-vs-packers-takeaways-results-nfl/
+
+**Kevin Stefanski says Browns' offense will be fixed. It's getting harder to believe him**\
+`With Cleveland at 1-5 and a predictably bad offense bordering on complete ineptitude, it’s clear that desperate and dark times are here.`\
+https://nytimes.com/athletic/6711841/2025/10/12/kevin-stefanski-browns-offense/
+
+**49ers-Buccaneers takeaways: 'MVP' chants for Baker Mayfield in T.B. win**\
+`QB's 15-yard scramble on third-and-14 sets up key touchdown late in third quarter.`\
+https://nytimes.com/athletic/6710959/2025/10/12/49ers-vs-buccaneers-takeaways-results-nfl/
+
+**Darnold, Smith-Njigba spark another Seahawks road victory: 'We travel heavy'**\
+`Darnold and Smith-Njigba have been among the NFL's best players at their position, and Seattle is 10-1 on the road under Mike Macdonald.`\
+https://nytimes.com/athletic/6711791/2025/10/12/sam-darnold-jaxon-smith-njigba-seahawks-jaguars/
+
+**Patriots' offense is one-dimensional, but with Drake Maye it might not matter**\
+`The Patriots struggled to run the ball against the Saints on Sunday, but their second-year quarterback lifted them to victory anyway.`\
+https://nytimes.com/athletic/6711749/2025/10/12/patriots-drake-maye-offense-new-orleans-saints/
+
 **How James Franklin's $45M Penn State buyout compares to recent coaching changes**\
 `What to know about James Franklin's $45 million Penn State buyout.
 `\

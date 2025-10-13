@@ -1,3 +1,11 @@
+**Don't look now, but Panthers are .500 and the 0-6 Jets are next on the schedule**\
+`Rico Dowdle had a huge game against his former team, running for 183 yards and leading the Panthers with 56 receiving yards and a TD.`\
+https://nytimes.com/athletic/6711899/2025/10/12/panthers-beat-cowboys-rico-dowdle/
+
+**Chargers' Justin Herbert plays hero in win over Dolphins: 'He’s Hercules to me'**\
+`The Chargers couldn't afford to lose to the Dolphins and extend their losing streak. Herbert made sure that didn't happen.`\
+https://nytimes.com/athletic/6711889/2025/10/12/chargers-justin-herbert-win-dolphins/
+
 **Packers win with late surge, spoil Joe Flacco's Bengals debut: Takeaways**\
 `The Packers scored 17 fourth-quarter points to stave off a second-half rally by the Bengals, who were held scoreless in the first half.`\
 https://nytimes.com/athletic/6711684/2025/10/12/bengals-vs-packers-takeaways-results-nfl/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6711771/2025/10/12/buccaneers-emeka-egbuka-hamstrin
 **U.S. U-20 World Cup run ends at hands of Morocco**\
 `The U.S. dominated possession but were undone by defensive sloppiness.`\
 https://nytimes.com/athletic/6711677/2025/10/12/us-u-20-world-cup-morocco/
-
-**UAB fires head coach Trent Dilfer midway through third season**\
-`Dilfer went 9-21 as UAB's head coach, including a 2-4 record this year after a loss to Florida Atlantic on Saturday.`\
-https://nytimes.com/athletic/6711727/2025/10/12/trent-dilfer-fired-uab-head-coach/
-
-**2 Dead After Small Plane Crashes Into Semitrailers Near Texas Airfield**\
-`It was unknown what led up to the crash on Sunday afternoon near Hicks Airfield outside of Fort Worth.`\
-https://nytimes.com/2025/10/12/us/fort-worth-plane-crash-hicks-field.html
 
