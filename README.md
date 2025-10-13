@@ -1,3 +1,15 @@
+**Nuno's defensive options assessed: Mavropanos, Julio, Todibo, Kilman**\
+`West Ham yielded mixed results under Potter in a wing-back formation, but Nuno will hope for improvement if he is to impose the system`\
+https://nytimes.com/athletic/6699649/2025/10/13/west-ham-defenders-nuno/
+
+**Mason Melia: What Tottenham's January signing will bring, plans for his immediate future**\
+`The 18-year-old striker has already made a name for himself in Ireland - how quickly can he do the same in the Premier League?`\
+https://nytimes.com/athletic/6701010/2025/10/13/mason-melia-what-tottenhams-january-signing-will-bring-plans-for-his-immediate-future/
+
+**Jess Park's sparkling cameo proves she is already integral to Man United**\
+`The brace against Everton from the bench was emblematic of Park’s transformation into one of the league’s most valuable attacking threats`\
+https://nytimes.com/athletic/6711387/2025/10/13/jess-parks-sparkling-39-minute-cameo-proves-she-is-already-integral-to-manchester-united/
+
 **Fantasy football Week 6 takeaways: Baker Mayfield, Sam Darnold continue to shine**\
 `Michael Salfino shares his observations for Week 6, including effusive praise for quarterbacks Baker Mayfield and Sam Darnold.`\
 https://nytimes.com/athletic/6712057/2025/10/13/fantasy-football-week-6-takeaways-baker-mayfield-sam-darnold-continue-to-shine/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6696196/2025/10/13/bookkeeper-mailbag-liverpool-che
 **We need to talk about Adam Wharton and England**\
 `The Crystal Palace midfielder is a unique talent, so why is he not being selected by Thomas Tuchel for the national team?`\
 https://nytimes.com/athletic/6710324/2025/10/13/adam-wharton-england-crystal-palace/
-
-**No Corrections: Oct. 13, 2025**\
-`No corrections appeared in print on Monday, Oct. 13, 2025.`\
-https://nytimes.com/2025/10/13/pageoneplus/no-corrections-oct-13-2025.html
-
-**Quote of the Day: Milwaukee Vanquishes A Postseason Demon, And Must Do It Again**\
-`Quotation of the Day for Monday, October 13, 2025.`\
-https://nytimes.com/2025/10/13/pageoneplus/quote-of-the-day-milwaukee-vanquishes-a-postseason-demon-and-must-do-it-again.html
-
-**They Helped Topple Roe v. Wade. Now Their Sights Are Set on Britain.**\
-`An organization that fought abortion rights in the United States is now an unlikely conduit between MAGA Republicans and Britain’s ascendant Reform U.K. party.`\
-https://nytimes.com/2025/10/13/world/europe/uk-abortion-farage.html
 
