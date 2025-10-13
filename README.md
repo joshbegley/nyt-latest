@@ -1,5 +1,9 @@
+**Inside Newcastle Q&A: Chris Waugh answers your questions**\
+`The club have been busy this international break, with Ross Wilson arriving as sporting director. Have a question? Send it to Chris now`\
+https://nytimes.com/athletic/6712617/2025/10/13/inside-newcastle-qa-chris-waugh-ross-wilson/
+
 **Olmo a major doubt for El Clasico with muscular injury**\
-`Barcelona midfielder Dani Olmo is a major doubt for October&#8217;s Clasico against Real Madrid due to a muscular injury.`\
+`Barcelona confirmed on Monday the midfielder had sustained an injury to the soleus muscle in his left leg.`\
 https://nytimes.com/athletic/6706485/2025/10/13/dani-olmo-injury-update-barcelona-clasico/
 
 **New York Braces for Potential Flooding and Heavy Winds From Nor’Easter**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6711819/2025/10/13/browns-steelers-dillon-gabriel-l
 **Opening arguments expected in Skaggs vs. Angels case as jury selection concludes**\
 `With opening arguments looming, the full witness list has been revealed and includes some prominent current and former MLB players. `\
 https://nytimes.com/athletic/6711251/2025/10/13/tyler-skaggs-angels-trial-opening-arguments-jury/
-
-**Patriots revel in Drake Maye's rise and winning on the road (despite their many mistakes)**\
-`The Patriots made a ton of errors, including 11 penalties for 65 yards, but coach Mike Vrabel said he also saw “glimpses of good football."`\
-https://nytimes.com/athletic/6711944/2025/10/13/patriots-saints-drake-maye-mike-vrabel-rising/
 

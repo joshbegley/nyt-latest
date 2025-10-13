@@ -1,3 +1,7 @@
+**Olmo a major doubt for El Clasico with muscular injury**\
+`Barcelona midfielder Dani Olmo is a major doubt for October&#8217;s Clasico against Real Madrid due to a muscular injury.`\
+https://nytimes.com/athletic/6706485/2025/10/13/dani-olmo-injury-update-barcelona-clasico/
+
 **New York Braces for Potential Flooding and Heavy Winds From Nor’Easter**\
 `The storm has been moving up the East Coast since the weekend, dumping heavy rain and flooding roads on its way toward New England.`\
 https://nytimes.com/2025/10/13/nyregion/noreaster-storm-forecast-damage.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6711251/2025/10/13/tyler-skaggs-angels-trial-openin
 **Patriots revel in Drake Maye's rise and winning on the road (despite their many mistakes)**\
 `The Patriots made a ton of errors, including 11 penalties for 65 yards, but coach Mike Vrabel said he also saw “glimpses of good football."`\
 https://nytimes.com/athletic/6711944/2025/10/13/patriots-saints-drake-maye-mike-vrabel-rising/
-
-**Life for Manchester's Jewish footballers in the wake of a terrorist attack**\
-`Football is an escape for Jewish players in Manchester but this month's attack at a synagogue has left a community on edge`\
-https://nytimes.com/athletic/6711095/2025/10/13/manchester-maccabi-jewish-football-attack/
 

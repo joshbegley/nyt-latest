@@ -1,3 +1,7 @@
+**Olmo a major doubt for El Clasico with muscular injury**\
+`Barcelona midfielder Dani Olmo is a major doubt for October&#8217;s Clasico against Real Madrid due to a muscular injury.`\
+https://nytimes.com/athletic/6706485/2025/10/13/dani-olmo-injury-update-barcelona-clasico/
+
 **New York Braces for Potential Flooding and Heavy Winds From Nor’Easter**\
 `The storm has been moving up the East Coast since the weekend, dumping heavy rain and flooding roads on its way toward New England.`\
 https://nytimes.com/2025/10/13/nyregion/noreaster-storm-forecast-damage.html
