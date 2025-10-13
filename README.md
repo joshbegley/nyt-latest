@@ -1,3 +1,7 @@
+**How to watch Louisville vs. Miami (FL): Time, TV, streaming**\
+`Find out how to watch the Louisville Cardinals play the Miami (FL) Hurricanes, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6712051/2025/10/12/louisville-vs-miami-fl-stream-how-to-watch-oct-17/
+
 **Don't look now, but Panthers are .500 and the 0-6 Jets are next on the schedule**\
 `Rico Dowdle had a huge game against his former team, running for 183 yards and leading the Panthers with 56 receiving yards and a TD.`\
 https://nytimes.com/athletic/6711899/2025/10/12/panthers-beat-cowboys-rico-dowdle/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6711749/2025/10/12/patriots-drake-maye-offense-new-
 **Buccaneers rookie WR Emeka Egbuka ruled out vs. 49ers with hamstring injury**\
 `The Bucs are already without receivers Mike Evans and Chris Godwin and starting running back Bucky Irving.`\
 https://nytimes.com/athletic/6711771/2025/10/12/buccaneers-emeka-egbuka-hamstring-injury/
-
-**U.S. U-20 World Cup run ends at hands of Morocco**\
-`The U.S. dominated possession but were undone by defensive sloppiness.`\
-https://nytimes.com/athletic/6711677/2025/10/12/us-u-20-world-cup-morocco/
 
