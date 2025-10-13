@@ -1,3 +1,7 @@
+**Why Diane Keaton’s Death Hits Harder**\
+`For many of her fans, she was like a rare bird soaring from bygone days when progress and growing freedoms for women seemed inevitable.`\
+https://nytimes.com/2025/10/13/style/why-diane-keatons-death-hits-harder.html
+
 **'Fire Adams!' chants, Thompson's frustration and more from Sabres' 0-3 start**\
 `The Sabres are 0-3, have been outscored 10-2, and are 0-for-10 on the power play. Tage Thompson is ready to turn the corner.`\
 https://nytimes.com/athletic/6714230/2025/10/13/buffalo-sabres-adams-tage-thompson-nhl/
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6714116/2025/10/13/tez-johnson-mvp-chants-baker-may
 **Cuban Dissident Leader Leaves Prison for Exile in the U.S.**\
 `José Daniel Ferrer said long periods in solitary confinement left him feeling buried alive. Secretary of State Marco Rubio welcomed his arrival in Miami.`\
 https://nytimes.com/2025/10/13/world/americas/jose-daniel-ferrer-cuba.html
-
-**Browns, city of Cleveland reach $100M agreement for team to leave downtown**\
-`The money will be used to accelerate lakefront development on the site of the current stadium.`\
-https://nytimes.com/athletic/6714177/2025/10/13/cleveland-browns-brook-park-huntington-bank-field/
 
