@@ -1,3 +1,7 @@
+**What Is Hostages Square, Where Israelis Are Waiting for the Captives’ Release?**\
+`The plaza in Tel Aviv has been a focal point for rallies for the release of the hostages and a gathering place for their families and supporters.`\
+https://nytimes.com/2025/10/13/world/middleeast/hostages-square-israel-tel-aviv.html
+
 **What Is the Red Cross’s Role in Israel-Hamas Exchanges?**\
 `The organization has escorted hundreds of people to freedom, but it says it also does important diplomatic work behind the scenes.`\
 https://nytimes.com/2025/10/13/world/middleeast/red-cross-israel-hamas-exchanges.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6701010/2025/10/13/mason-melia-what-tottenhams-janu
 **Jess Park's sparkling cameo proves she is already integral to Man United**\
 `The brace against Everton from the bench was emblematic of Park’s transformation into one of the league’s most valuable attacking threats`\
 https://nytimes.com/athletic/6711387/2025/10/13/jess-parks-sparkling-39-minute-cameo-proves-she-is-already-integral-to-manchester-united/
-
-**Fantasy football Week 6 takeaways: Baker Mayfield, Sam Darnold continue to shine**\
-`Michael Salfino shares his observations for Week 6, including effusive praise for quarterbacks Baker Mayfield and Sam Darnold.`\
-https://nytimes.com/athletic/6712057/2025/10/13/fantasy-football-week-6-takeaways-baker-mayfield-sam-darnold-continue-to-shine/
 

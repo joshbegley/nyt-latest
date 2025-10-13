@@ -1,3 +1,7 @@
+**What Is Hostages Square, Where Israelis Are Waiting for the Captives’ Release?**\
+`The plaza in Tel Aviv has been a focal point for rallies for the release of the hostages and a gathering place for their families and supporters.`\
+https://nytimes.com/2025/10/13/world/middleeast/hostages-square-israel-tel-aviv.html
+
 **What Is the Red Cross’s Role in Israel-Hamas Exchanges?**\
 `The organization has escorted hundreds of people to freedom, but it says it also does important diplomatic work behind the scenes.`\
 https://nytimes.com/2025/10/13/world/middleeast/red-cross-israel-hamas-exchanges.html
