@@ -1,3 +1,11 @@
+**"Heartbreaking" loss of Fred Warner in Tampa changes everything for 49ers**\
+`The anchor of San Francisco's defense is out for the season.`\
+https://nytimes.com/athletic/6712117/2025/10/12/fred-warner-49ers-injury-impact/
+
+**Quentin Lake, a budding star for Rams, manifested his first career interception**\
+`Lake's interception and fumble recovery in Ravens territory helped the Rams improve to 4-2 on the season. `\
+https://nytimes.com/athletic/6711668/2025/10/12/rams-quentin-lake-win-ravens/
+
 **Asia Markets Fall After Trump Threatens New Tariffs on China**\
 `Investors reacted to a pledge from the president on Friday to impose a “massive” new tariff on Chinese imports.`\
 https://nytimes.com/2025/10/12/business/trump-china-tariffs-global-markets.html
