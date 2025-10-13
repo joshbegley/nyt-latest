@@ -1,3 +1,11 @@
+**South Carolina's Chloe Kitts out for 2025-26 season with torn ACL**\
+`Kitts started 38 games last season, averaging 10.2 points, 7.7 rebounds and 1.9 assists.`\
+https://nytimes.com/athletic/6713183/2025/10/13/chloe-kitts-injury-acl-out-season-south-carolina/
+
+**Chelsea's Millie Bright retires from England duty**\
+`"I got to a stage where I needed to make smart decisions and look after my physical and mental health," Bright said.`\
+https://nytimes.com/athletic/6713283/2025/10/13/millie-bright-england-retires/
+
 **Mike McDaniel's hot seat now scorching after Tua Tagovailoa's comments: Jones**\
 `After the quarterback questioned the team's leadership, it feels like a matter of when, not if, the Dolphins make a change.`\
 https://nytimes.com/athletic/6713177/2025/10/13/dolphins-mike-mcdaniel-tua-tagovailoa-hot-seat/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/13/nyregion/prisoners-freed-gaza-palestinian-west-ba
 **Macron Urges Stability Despite Calls for Government Ouster**\
 `President Emmanuel Macron of France is facing some of the country’s worst political turmoil in decades. A new government has been appointed, but how long it will last is anyone’s guess.`\
 https://nytimes.com/2025/10/13/world/europe/macron-france-government.html
-
-**Gravenberch to be assessed after suffering 'minor' hamstring issue**\
-`Gravenberch was replaced at half-time during the Netherlands' World Cup qualifying victory over Finland.`\
-https://nytimes.com/athletic/6712906/2025/10/13/ryan-gravenberch-injury-update-liverpool/
-
-**One Last March of the Penguins: Miami Says Farewell to Its Seaquarium**\
-`The aquatic park, a South Florida landmark for 70 years and also the subject of complaints over animal rights, drew visitors on Sunday before closing for good.`\
-https://nytimes.com/2025/10/13/us/miami-seaquarium-closing.html
 
