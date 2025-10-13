@@ -1,3 +1,7 @@
+**Trump Calls for Israel’s President to Pardon Netanyahu. Could it Happen?**\
+`The Israeli prime minister, Benjamin Netanyahu, has been on trial for corruption since 2020, battling charges of bribery, fraud and breach of trust in three separate but related cases.`\
+https://nytimes.com/2025/10/13/world/middleeast/trump-calls-for-israels-president-to-pardon-netanyahu-could-it-happen.html
+
 **Mariners tag Kirby, Castillo to start Games 3 and 4 of ALCS**\
 `All-Star starter Bryan Woo is also back in the mix for the Mariners, although they have not announced how they plan to deploy him.`\
 https://nytimes.com/athletic/6713795/2025/10/13/seattle-mariners-alcs-george-kirby-luis-castillo/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6713737/2025/10/13/lakers-preseason-mailbag-startin
 **Big Ten fines USC for playing running back listed as 'out' pregame**\
 `The instance is the first publicly known fine for a program violating an availability report.`\
 https://nytimes.com/athletic/6713920/2025/10/13/usc-fine-big-ten-football-bryan-jackson/
-
-**Rashford can be 'one of the world's best' with consistency, says Tuchel**\
-`Tuchel has tried to resurrect Rashford’s England career this year, but warned that the 27-year-old could still fail to fulfil his potential.`\
-https://nytimes.com/athletic/6713828/2025/10/13/marcus-rashford-thomas-tuchel-england/
 

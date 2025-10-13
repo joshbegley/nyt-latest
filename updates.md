@@ -1,3 +1,7 @@
+**Trump Calls for Israel’s President to Pardon Netanyahu. Could it Happen?**\
+`The Israeli prime minister, Benjamin Netanyahu, has been on trial for corruption since 2020, battling charges of bribery, fraud and breach of trust in three separate but related cases.`\
+https://nytimes.com/2025/10/13/world/middleeast/trump-calls-for-israels-president-to-pardon-netanyahu-could-it-happen.html
+
 **Mariners tag Kirby, Castillo to start Games 3 and 4 of ALCS**\
 `All-Star starter Bryan Woo is also back in the mix for the Mariners, although they have not announced how they plan to deploy him.`\
 https://nytimes.com/athletic/6713795/2025/10/13/seattle-mariners-alcs-george-kirby-luis-castillo/
