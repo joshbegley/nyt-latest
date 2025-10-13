@@ -1,3 +1,15 @@
+**Tracking Tropical Storm Lorenzo**\
+`See the likely path and wind arrival times for Lorenzo`\
+https://nytimes.com/interactive/2025/10/13/weather/lorenzo-map-path-tracker.html
+
+**How to watch North Carolina vs. California: Time, TV, streaming**\
+`Find out how to watch the North Carolina Tar Heels play the California Golden Bears, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6712734/2025/10/13/north-carolina-vs-california-stream-how-to-watch-oct-17/
+
+**How to watch Nebraska vs. Minnesota: Time, TV, streaming**\
+`Find out how to watch the Nebraska Cornhuskers play the Minnesota Golden Gophers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6712731/2025/10/13/nebraska-vs-minnesota-stream-how-to-watch-oct-17/
+
 **Only the 0-6 Jets stand between the Panthers' offense and a most unexpected 3-game run**\
 `Powered by running back Rico Dowdle, the Panthers have never had a two-game run on offense quite like this one.`\
 https://nytimes.com/athletic/6712591/2025/10/13/panthers-cowboys-rico-dowdle-offense/
@@ -25,16 +37,4 @@ https://nytimes.com/issue/todaysinyt/2025/10/13/todays-new-york-times-internatio
 **How to watch Predators vs. Senators: Time, TV, streaming**\
 `Find out how to watch the Nashville Predators play the Ottawa Senators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6712710/2025/10/13/predators-vs-senators-stream-how-to-watch-oct-13/
-
-**How to watch Lightning vs. Bruins: Time, TV, streaming**\
-`Find out how to watch the Tampa Bay Lightning play the Boston Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6712711/2025/10/13/lightning-vs-bruins-stream-how-to-watch-oct-13/
-
-**How to watch Jets vs. Islanders: Time, TV, streaming**\
-`Find out how to watch the Winnipeg Jets play the New York Islanders, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6712707/2025/10/13/jets-vs-islanders-stream-how-to-watch-oct-13/
-
-**How to watch Avalanche vs. Sabres: Time, TV, streaming**\
-`Find out how to watch the Colorado Avalanche play the Buffalo Sabres, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6712705/2025/10/13/avalanche-vs-sabres-stream-how-to-watch-oct-13/
 

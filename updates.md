@@ -1,3 +1,15 @@
+**Tracking Tropical Storm Lorenzo**\
+`See the likely path and wind arrival times for Lorenzo`\
+https://nytimes.com/interactive/2025/10/13/weather/lorenzo-map-path-tracker.html
+
+**How to watch North Carolina vs. California: Time, TV, streaming**\
+`Find out how to watch the North Carolina Tar Heels play the California Golden Bears, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6712734/2025/10/13/north-carolina-vs-california-stream-how-to-watch-oct-17/
+
+**How to watch Nebraska vs. Minnesota: Time, TV, streaming**\
+`Find out how to watch the Nebraska Cornhuskers play the Minnesota Golden Gophers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6712731/2025/10/13/nebraska-vs-minnesota-stream-how-to-watch-oct-17/
+
 **Only the 0-6 Jets stand between the Panthers' offense and a most unexpected 3-game run**\
 `Powered by running back Rico Dowdle, the Panthers have never had a two-game run on offense quite like this one.`\
 https://nytimes.com/athletic/6712591/2025/10/13/panthers-cowboys-rico-dowdle-offense/
