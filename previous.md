@@ -1,3 +1,7 @@
+**Watkins out of England game in Latvia after injury, returns to Villa**\
+`England will travel to Latvia for Tuesday's World Cup qualifier with a squad of 22 after Watkins' withdrawal.`\
+https://nytimes.com/athletic/6706029/2025/10/13/ollie-watkins-injury-aston-villa-england/
+
 **Tracking Tropical Storm Lorenzo**\
 `See the likely path and wind arrival times for Lorenzo`\
 https://nytimes.com/interactive/2025/10/13/weather/lorenzo-map-path-tracker.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6712116/2025/10/13/nfl-week-6-takeaways-chiefs-lion
 **The New York Times International Edition in Print for Tuesday, Oct. 14, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/10/13/todays-new-york-times-international-edition
-
-**How to watch Predators vs. Senators: Time, TV, streaming**\
-`Find out how to watch the Nashville Predators play the Ottawa Senators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6712710/2025/10/13/predators-vs-senators-stream-how-to-watch-oct-13/
 

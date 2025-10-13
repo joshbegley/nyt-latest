@@ -1,3 +1,7 @@
+**Watkins out of England game in Latvia after injury, returns to Villa**\
+`England will travel to Latvia for Tuesday's World Cup qualifier with a squad of 22 after Watkins' withdrawal.`\
+https://nytimes.com/athletic/6706029/2025/10/13/ollie-watkins-injury-aston-villa-england/
+
 **Tracking Tropical Storm Lorenzo**\
 `See the likely path and wind arrival times for Lorenzo`\
 https://nytimes.com/interactive/2025/10/13/weather/lorenzo-map-path-tracker.html
