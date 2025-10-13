@@ -1,3 +1,27 @@
+**NFL Week 7 odds, spreads: Wait, the Jets are favored!?**\
+`Which teams are the biggest favorites and underdogs for Week 7? There are some real surprises.`\
+https://nytimes.com/athletic/6713158/2025/10/13/nfl-week-7-odds-spreads-chiefs-lions-buccaneers-jets/
+
+**Trump Addresses Israel’s Parliament About Cease-Fire in Gaza**\
+`President Trump was given a standing ovation before a speech in the Israeli Parliament in which he claimed a cease-fire was “the historic dawn of a new Middle East.”`\
+https://nytimes.com/video/world/middleeast/100000010455504/trump-addresses-israels-parliament-about-cease-fire-in-gaza.html
+
+**How to watch Panthers vs. Flyers: Time, TV, streaming**\
+`Find out how to watch the Florida Panthers play the Philadelphia Flyers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6713339/2025/10/13/panthers-vs-flyers-stream-how-to-watch-oct-13/
+
+**How to watch Devils vs. Blue Jackets: Time, TV, streaming**\
+`Find out how to watch the New Jersey Devils play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6713338/2025/10/13/devils-vs-blue-jackets-stream-how-to-watch-oct-13/
+
+**Tigers, manager A.J. Hinch agree to contract extension**\
+`Hinch signed his previous extension before Craig Counsell and Alex Cora signed lucrative, record-breaking deals for MLB managers.`\
+https://nytimes.com/athletic/6713143/2025/10/13/tigers-a-j-hinch-agrees-contract-extension/
+
+**Is A.I. Video the Future of Social Media?**\
+`Kevin Roose and Casey Newton, hosts of the “Hard Fork” podcast, discuss OpenAI’s recent release of Sora 2 and whether A.I.-generated video could become the foundation of future social media companies.`\
+https://nytimes.com/video/podcasts/100000010455976/is-ai-video-the-future-of-social-media.html
+
 **South Carolina's Chloe Kitts out for 2025-26 season with torn ACL**\
 `Kitts started 38 games last season, averaging 10.2 points, 7.7 rebounds and 1.9 assists.`\
 https://nytimes.com/athletic/6713183/2025/10/13/chloe-kitts-injury-acl-out-season-south-carolina/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6713177/2025/10/13/dolphins-mike-mcdaniel-tua-tagov
 **You Deserve Cheese Croutons**\
 `Specifically, you deserve Yossy Arefi’s orecchiette salad with halloumi croutons, a delicious dinner that makes excellent leftovers for lunch.`\
 https://nytimes.com/2025/10/13/dining/you-deserve-cheese-croutons.html
-
-**Lane Hutson, Canadiens agree to terms on 8-year contract extension**\
-`A 2022 second-round draft pick, Hutson scored 66 points in 82 games last season for the Canadiens.`\
-https://nytimes.com/athletic/6713214/2025/10/13/lane-hutson-montreal-canadiens-contract-extension/
-
-**The Windup: Mariners keep finding a way**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6712527/2025/10/13/mariners-blue-jays-game-1-the-windup/
-
-**Heisman Trophy odds: Another week, another front-runner**\
-`Alabama's Ty Simpson joins Miami's Carson Beck as co-favorite to win the Heisman Trophy.`\
-https://nytimes.com/athletic/6712394/2025/10/13/heisman-trophy-odds-ty-simpson-carson-beck/
-
-**What we learned about the Broncos across 10 days, thousands of miles and two wins**\
-`The Broncos went 2-0 despite a stretch of six straight empty drives in both of their victories. That won't be sustainable going forward.`\
-https://nytimes.com/athletic/6712653/2025/10/13/broncos-road-trip-london-jets-nix/
-
-**Cheering Crowds Greet Palestinian Prisoners Freed by Israel**\
-`“We were happy for our prisoners — and for the Israelis, too,” one Gaza resident said. “We love peace and the truce.”`\
-https://nytimes.com/2025/10/13/nyregion/prisoners-freed-gaza-palestinian-west-bank.html
-
-**Macron Urges Stability Despite Calls for Government Ouster**\
-`President Emmanuel Macron of France is facing some of the country’s worst political turmoil in decades. A new government has been appointed, but how long it will last is anyone’s guess.`\
-https://nytimes.com/2025/10/13/world/europe/macron-france-government.html
 
