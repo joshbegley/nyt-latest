@@ -1,3 +1,15 @@
+**Inside Barcelona: How are they feeling about the game in Miami? Will Yamal be fit for El Clasico?**\
+`On the pitch, Barca's form and fitness issues are a concern. Off it, the last week has seen some intriguing moves...`\
+https://nytimes.com/athletic/6712937/2025/10/13/inside-barcelona-miami-yamal-clasico/
+
+**Scenes of Joy and Anticipation as Hostages and Prisoners Are Exchanged**\
+`Twenty living hostages were freed by Hamas on Monday under the cease-fire deal, and Israel released nearly 2,000 Palestinian prisoners.`\
+https://nytimes.com/2025/10/13/world/europe/israel-hostages-gaza-prisoner-released-photos.html
+
+**How to watch and stream the LA Clippers throughout the season**\
+`This Clippers season hasn't come without controversy, but they have a chance to make just as much noise on the court in 2025-26. `\
+https://nytimes.com/athletic/6707674/2025/10/13/los-angeles-la-clippers-streaming-tv-how-to-watch/
+
 **OpenAI Inks Deal With Broadcom to Design Its Own Chips for A.I.**\
 `After signing multibillion-dollar agreements to use chips from Nvidia and AMD, OpenAI plans to deploy its own designs next year.`\
 https://nytimes.com/2025/10/13/technology/openai-broadcom-chips-deal.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6712141/2025/10/13/mac-jones-performance-49ers-inju
 **How to watch Red Wings vs. Maple Leafs: Time, TV, streaming**\
 `Find out how to watch the Detroit Red Wings play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6712941/2025/10/13/red-wings-vs-maple-leafs-stream-how-to-watch-oct-13/
-
-**2 Men Charged After Ian Watkins, Former Lostprophets Singer, Is Killed in Prison**\
-`Mr. Watkins had been serving a 29-year sentence for child sex abuse offenses at the Wakefield Prison in northern England.`\
-https://nytimes.com/2025/10/13/world/europe/ian-watkins-killed-prison.html
-
-**Notre Dame-NC State final thoughts: Irish look tuned up for pivotal USC game**\
-`Knock off the Trojans next Saturday and the Irish will get a fresh look from outside South Bend. And there’s a lot worth watching.`\
-https://nytimes.com/athletic/6712885/2025/10/13/notre-dame-nc-state-tape-review/
-
-**Investors Fear the Return of the U.S.-China Trade War**\
-`The market is rebounding, but analysts see plenty of reason for concern about heightened tensions between Washington and Beijing.`\
-https://nytimes.com/2025/10/13/business/dealbook/us-china-trade-war-trump.html
 

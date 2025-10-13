@@ -1,3 +1,15 @@
+**Inside Barcelona: How are they feeling about the game in Miami? Will Yamal be fit for El Clasico?**\
+`On the pitch, Barca's form and fitness issues are a concern. Off it, the last week has seen some intriguing moves...`\
+https://nytimes.com/athletic/6712937/2025/10/13/inside-barcelona-miami-yamal-clasico/
+
+**Scenes of Joy and Anticipation as Hostages and Prisoners Are Exchanged**\
+`Twenty living hostages were freed by Hamas on Monday under the cease-fire deal, and Israel released nearly 2,000 Palestinian prisoners.`\
+https://nytimes.com/2025/10/13/world/europe/israel-hostages-gaza-prisoner-released-photos.html
+
+**How to watch and stream the LA Clippers throughout the season**\
+`This Clippers season hasn't come without controversy, but they have a chance to make just as much noise on the court in 2025-26. `\
+https://nytimes.com/athletic/6707674/2025/10/13/los-angeles-la-clippers-streaming-tv-how-to-watch/
+
 **OpenAI Inks Deal With Broadcom to Design Its Own Chips for A.I.**\
 `After signing multibillion-dollar agreements to use chips from Nvidia and AMD, OpenAI plans to deploy its own designs next year.`\
 https://nytimes.com/2025/10/13/technology/openai-broadcom-chips-deal.html
