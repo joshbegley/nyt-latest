@@ -1,3 +1,19 @@
+**Macron Urges Stability Despite Calls for Government Ouster**\
+`President Emmanuel Macron of France is facing some of the country’s worst political turmoil in decades. A new government has been appointed, but how long it will last is anyone’s guess.`\
+https://nytimes.com/2025/10/13/world/europe/macron-france-government.html
+
+**Gravenberch to be assessed after suffering 'minor' hamstring issue**\
+`Gravenberch was replaced at half-time during the Netherlands' World Cup qualifying victory over Finland.`\
+https://nytimes.com/athletic/6712906/2025/10/13/ryan-gravenberch-injury-update-liverpool/
+
+**One Last March of the Penguins: Miami Says Farewell to Its Seaquarium**\
+`The aquatic park, a South Florida landmark for 70 years and also the subject of complaints over animal rights, drew visitors on Sunday before closing for good.`\
+https://nytimes.com/2025/10/13/us/miami-seaquarium-closing.html
+
+**The Bounce: Do we already know the 2025-26 MVP? And we preview the Lakers and Bucks**\
+`Zach Harper catches you up on all things NBA.`\
+https://nytimes.com/athletic/6713069/2025/10/13/nba-mvp-2026-prediction-lakers-bucks-the-bounce/
+
 **More Than 40 People Killed in Bus Plunge in South Africa**\
 `The bus was carrying passengers from Zimbabwe and Malawi who were traveling back to their home countries.`\
 https://nytimes.com/2025/10/13/world/africa/bus-crash-south-africa-limpopo.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6710291/2025/10/13/portland-trail-blazers-tv-schedu
 **Inside Real Madrid: El Clasico injuries, Rodrygo hopes, and a youth academy departure**\
 `Will Dani Carvajal and Trent Alexander-Arnold return in time for Barcelona? Our Real Madrid correspondent Mario Cortegana has the latest`\
 https://nytimes.com/athletic/6712822/2025/10/13/real-madrid-clasico-injuries-mood-alonso/
-
-**Why San Marino must lose (heavily) to maintain slim hopes of World Cup qualification**\
-`The microstate has lost all seven World Cup qualification games to date — and must lose the eighth if it hopes to qualify`\
-https://nytimes.com/athletic/6712890/2025/10/13/san-marino-world-cup-qualification-how/
-
-**Inside Barcelona: How are they feeling about the game in Miami? Will Yamal be fit for El Clasico?**\
-`On the pitch, Barca's form and fitness issues are a concern. Off it, the last week has seen some intriguing moves...`\
-https://nytimes.com/athletic/6712937/2025/10/13/inside-barcelona-miami-yamal-clasico/
-
-**Scenes of Joy and Anticipation as Hostages and Prisoners Are Exchanged**\
-`Twenty living hostages were freed by Hamas on Monday under the cease-fire deal, and Israel released nearly 2,000 Palestinian prisoners.`\
-https://nytimes.com/2025/10/13/world/europe/israel-hostages-gaza-prisoner-released-photos.html
-
-**How to watch and stream the LA Clippers throughout the season**\
-`This Clippers season hasn't come without controversy, but they have a chance to make just as much noise on the court in 2025-26. `\
-https://nytimes.com/athletic/6707674/2025/10/13/los-angeles-la-clippers-streaming-tv-how-to-watch/
 

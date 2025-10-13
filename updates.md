@@ -1,3 +1,19 @@
+**Macron Urges Stability Despite Calls for Government Ouster**\
+`President Emmanuel Macron of France is facing some of the country’s worst political turmoil in decades. A new government has been appointed, but how long it will last is anyone’s guess.`\
+https://nytimes.com/2025/10/13/world/europe/macron-france-government.html
+
+**Gravenberch to be assessed after suffering 'minor' hamstring issue**\
+`Gravenberch was replaced at half-time during the Netherlands' World Cup qualifying victory over Finland.`\
+https://nytimes.com/athletic/6712906/2025/10/13/ryan-gravenberch-injury-update-liverpool/
+
+**One Last March of the Penguins: Miami Says Farewell to Its Seaquarium**\
+`The aquatic park, a South Florida landmark for 70 years and also the subject of complaints over animal rights, drew visitors on Sunday before closing for good.`\
+https://nytimes.com/2025/10/13/us/miami-seaquarium-closing.html
+
+**The Bounce: Do we already know the 2025-26 MVP? And we preview the Lakers and Bucks**\
+`Zach Harper catches you up on all things NBA.`\
+https://nytimes.com/athletic/6713069/2025/10/13/nba-mvp-2026-prediction-lakers-bucks-the-bounce/
+
 **More Than 40 People Killed in Bus Plunge in South Africa**\
 `The bus was carrying passengers from Zimbabwe and Malawi who were traveling back to their home countries.`\
 https://nytimes.com/2025/10/13/world/africa/bus-crash-south-africa-limpopo.html
