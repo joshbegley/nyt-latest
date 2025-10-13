@@ -1,3 +1,23 @@
+**Mike McDaniel's hot seat now scorching after Tua Tagovailoa's comments: Jones**\
+`After the quarterback questioned the team's leadership, it feels like a matter of when, not if, the Dolphins make a change.`\
+https://nytimes.com/athletic/6713177/2025/10/13/dolphins-mike-mcdaniel-tua-tagovailoa-hot-seat/
+
+**You Deserve Cheese Croutons**\
+`Specifically, you deserve Yossy Arefi’s orecchiette salad with halloumi croutons, a delicious dinner that makes excellent leftovers for lunch.`\
+https://nytimes.com/2025/10/13/dining/you-deserve-cheese-croutons.html
+
+**Lane Hutson, Canadiens agree to terms on 8-year contract extension**\
+`A 2022 second-round draft pick, Hutson scored 66 points in 82 games last season for the Canadiens.`\
+https://nytimes.com/athletic/6713214/2025/10/13/lane-hutson-montreal-canadiens-contract-extension/
+
+**The Windup: Mariners keep finding a way**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6712527/2025/10/13/mariners-blue-jays-game-1-the-windup/
+
+**Heisman Trophy odds: Another week, another front-runner**\
+`Alabama's Ty Simpson joins Miami's Carson Beck as co-favorite to win the Heisman Trophy.`\
+https://nytimes.com/athletic/6712394/2025/10/13/heisman-trophy-odds-ty-simpson-carson-beck/
+
 **What we learned about the Broncos across 10 days, thousands of miles and two wins**\
 `The Broncos went 2-0 despite a stretch of six straight empty drives in both of their victories. That won't be sustainable going forward.`\
 https://nytimes.com/athletic/6712653/2025/10/13/broncos-road-trip-london-jets-nix/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6712906/2025/10/13/ryan-gravenberch-injury-update-l
 **One Last March of the Penguins: Miami Says Farewell to Its Seaquarium**\
 `The aquatic park, a South Florida landmark for 70 years and also the subject of complaints over animal rights, drew visitors on Sunday before closing for good.`\
 https://nytimes.com/2025/10/13/us/miami-seaquarium-closing.html
-
-**The Bounce: Do we already know the 2025-26 MVP? And we preview the Lakers and Bucks**\
-`Zach Harper catches you up on all things NBA.`\
-https://nytimes.com/athletic/6713069/2025/10/13/nba-mvp-2026-prediction-lakers-bucks-the-bounce/
-
-**More Than 40 People Killed in Bus Plunge in South Africa**\
-`The bus was carrying passengers from Zimbabwe and Malawi who were traveling back to their home countries.`\
-https://nytimes.com/2025/10/13/world/africa/bus-crash-south-africa-limpopo.html
-
-**Beyond the Pomp of Egypt Summit, Arab Leaders Brace for Tough Negotiations**\
-`The meeting in Sharm el-Sheikh, Egypt, could expedite an end to the Gaza war, but regional powers must still resolve the thorny details that have stymied negotiations.`\
-https://nytimes.com/2025/10/13/world/europe/egypt-summit-negotiations-gaza-israel.html
-
-**Como argue Milan game in Australia key for Serie A's 'survival'**\
-`Como argued the fixture is "not a matter of greed" but to "build a future" for the Italian top flight.`\
-https://nytimes.com/athletic/6712995/2025/10/13/como-milan-serie-a-australia/
-
-**Giannis Antetokounmpo-Myles Turner partnership shows immediate promise for Bucks**\
-`Turner is showing why he could be the right guy at center next to Antetokounmpo: "The most important thing about him is that he sacrifices."`\
-https://nytimes.com/athletic/6712684/2025/10/13/bucks-giannis-myles-turner-partnership/
 
