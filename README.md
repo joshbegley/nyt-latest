@@ -1,3 +1,11 @@
+**NFL Week 7 odds, spreads: Wait, the Jets are favored!?**\
+`Which teams are the biggest favorites and underdogs for Week 7? There are some real surprises.`\
+https://nytimes.com/athletic/6713158/2025/10/13/nfl-week-7-odds-spreads-chiefs-lions-buccaneers-jets/
+
+**Trump Addresses Israel’s Parliament About Cease-Fire in Gaza**\
+`President Trump was given a standing ovation before a speech in the Israeli Parliament in which he claimed a cease-fire was “the historic dawn of a new Middle East.”`\
+https://nytimes.com/video/world/middleeast/100000010455504/trump-addresses-israels-parliament-about-cease-fire-in-gaza.html
+
 **How to watch Panthers vs. Flyers: Time, TV, streaming**\
 `Find out how to watch the Florida Panthers play the Philadelphia Flyers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6713339/2025/10/13/panthers-vs-flyers-stream-how-to-watch-oct-13/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6713177/2025/10/13/dolphins-mike-mcdaniel-tua-tagov
 **You Deserve Cheese Croutons**\
 `Specifically, you deserve Yossy Arefi’s orecchiette salad with halloumi croutons, a delicious dinner that makes excellent leftovers for lunch.`\
 https://nytimes.com/2025/10/13/dining/you-deserve-cheese-croutons.html
-
-**Lane Hutson, Canadiens agree to terms on 8-year contract extension**\
-`A 2022 second-round draft pick, Hutson scored 66 points in 82 games last season for the Canadiens.`\
-https://nytimes.com/athletic/6713214/2025/10/13/lane-hutson-montreal-canadiens-contract-extension/
-
-**The Windup: Mariners keep finding a way**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6712527/2025/10/13/mariners-blue-jays-game-1-the-windup/
 
