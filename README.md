@@ -1,3 +1,11 @@
+**Inside Real Madrid: El Clasico injuries, Rodrygo hopes, and a youth academy departure**\
+`Will Dani Carvajal and Trent Alexander-Arnold return in time for Barcelona? Our Real Madrid correspondent Mario Cortegana has the latest`\
+https://nytimes.com/athletic/6712822/2025/10/13/real-madrid-clasico-injuries-mood-alonso/
+
+**Why San Marino must lose (heavily) to maintain slim hopes of World Cup qualification**\
+`The microstate has lost all seven World Cup qualification games to date — and must lose the eighth if it hopes to qualify`\
+https://nytimes.com/athletic/6712890/2025/10/13/san-marino-world-cup-qualification-how/
+
 **Inside Barcelona: How are they feeling about the game in Miami? Will Yamal be fit for El Clasico?**\
 `On the pitch, Barca's form and fitness issues are a concern. Off it, the last week has seen some intriguing moves...`\
 https://nytimes.com/athletic/6712937/2025/10/13/inside-barcelona-miami-yamal-clasico/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/13/movies/toby-talbot-dead.html
 **How to watch Indiana Pacers games during the 2025-26 season**\
 `It's supposed to be a down year for the Pacers, but even without Tyrese Haliburton, they can entertain. Here's how to watch all their games.`\
 https://nytimes.com/athletic/6708755/2025/10/13/indiana-pacers-tv-how-to-watch-2025-26/
-
-**Mac Jones' moxie isn't enough to offset the 49ers' stunning loss of talent**\
-`After Sunday's game Jones said playing through injuries is in the team's DNA. But you have to wonder how long that DNA is sustainable.`\
-https://nytimes.com/athletic/6712141/2025/10/13/mac-jones-performance-49ers-injuries/
-
-**How to watch Red Wings vs. Maple Leafs: Time, TV, streaming**\
-`Find out how to watch the Detroit Red Wings play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6712941/2025/10/13/red-wings-vs-maple-leafs-stream-how-to-watch-oct-13/
 
