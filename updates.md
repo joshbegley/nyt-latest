@@ -1,3 +1,7 @@
+**Blue Jays-Mariners Game 1 takeaways: Raleigh powers Seattle to ALCS lead**\
+`Despite coming off a 15-inning thriller in the ALDS on Friday night, the Mariners looked sharp in a 3-1 win over the Blue Jays.`\
+https://nytimes.com/athletic/6712034/2025/10/12/blue-jays-mariners-game-1-score-results-takeaways-playoffs-mlb/
+
 **Blue Jays-Mariners Game 1 takeaways: Raleigh powers Seattle to series lead**\
 `Despite coming off a 15-inning thriller in the ALDS on Friday night, the Mariners looked sharp in a 3-1 win over the Blue Jays.`\
 https://nytimes.com/athletic/6712034/2025/10/12/blue-jays-mariners-game-1-score-results-takeaways-playoffs-mlb/
