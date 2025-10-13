@@ -1,3 +1,11 @@
+**Is Chelsea's player trading strategy working?, and lots more  – The BookKeeper’s mailbag, club edition**\
+`The BookKeeper answers your club questions, including Arsenal's big spending, Chelsea transfer strategy and Liverpool's PSR position`\
+https://nytimes.com/athletic/6696196/2025/10/13/bookkeeper-mailbag-liverpool-chelsea-newcastle/
+
+**We need to talk about Adam Wharton and England**\
+`The Crystal Palace midfielder is a unique talent, so why is he not being selected by Thomas Tuchel for the national team?`\
+https://nytimes.com/athletic/6710324/2025/10/13/adam-wharton-england-crystal-palace/
+
 **No Corrections: Oct. 13, 2025**\
 `No corrections appeared in print on Monday, Oct. 13, 2025.`\
 https://nytimes.com/2025/10/13/pageoneplus/no-corrections-oct-13-2025.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6712342/2025/10/13/lions-chiefs-brawl-sunday-night-
 **Connections: Sports Edition Coach: Hints for Oct. 13, 2025**\
 `Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
 https://nytimes.com/athletic/6712277/2025/10/13/connections-sports-edition-hints-for-oct-13-2025/
-
-**Why Joe Flacco and Bengals offer a glimmer of hope despite fourth straight loss**\
-`The veteran QB struggled early while learning on the fly but found a groove, especially with Ja'Marr Chase, in the second half.`\
-https://nytimes.com/athletic/6712353/2025/10/12/joe-flacco-bengals-packers-jamarr-chase/
-
-**Denny Hamlin ties 10th in all-time NASCAR wins as he chases championship**\
-`An emotional Hamlin was crying in his car after the race, and he became choked up in his postrace interview.`\
-https://nytimes.com/athletic/6712264/2025/10/12/nascar-denny-hamlin-60th-career-win/
 
