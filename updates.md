@@ -1,3 +1,7 @@
+**What Is Your Reaction to the Cease-Fire Deal Between Israel and Hamas?**\
+`Twenty living hostages were freed by Hamas on Monday under the cease-fire deal, and Israel released nearly 2,000 Palestinian prisoners.`\
+https://nytimes.com/2025/10/13/learning/what-is-your-reaction-to-the-cease-fire-deal-between-israel-and-hamas.html
+
 **Friends and Family Celebrate Return of Israeli Hostage**\
 `Alon Ohel was kidnapped by Hamas after fleeing the Nova music festival in October 2023. More than two years later, Hamas freed Mr. Ohel as part of a cease-fire deal with Israel.`\
 https://nytimes.com/video/world/middleeast/100000010456587/israeli-hostages-return-home.html
