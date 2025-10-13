@@ -1,3 +1,15 @@
+**Toby Talbot, Impassioned Promoter of Art Films, Dies at 96**\
+`With her husband, Dan, she ran four theaters in Manhattan and a company that distributed foreign and independent classics.`\
+https://nytimes.com/2025/10/13/movies/toby-talbot-dead.html
+
+**How to watch Indiana Pacers games during the 2025-26 season**\
+`It's supposed to be a down year for the Pacers, but even without Tyrese Haliburton, they can entertain. Here's how to watch all their games.`\
+https://nytimes.com/athletic/6708755/2025/10/13/indiana-pacers-tv-how-to-watch-2025-26/
+
+**Mac Jones' moxie isn't enough to offset the 49ers' stunning loss of talent**\
+`After Sunday's game Jones said playing through injuries is in the team's DNA. But you have to wonder how long that DNA is sustainable.`\
+https://nytimes.com/athletic/6712141/2025/10/13/mac-jones-performance-49ers-injuries/
+
 **How to watch Red Wings vs. Maple Leafs: Time, TV, streaming**\
 `Find out how to watch the Detroit Red Wings play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6712941/2025/10/13/red-wings-vs-maple-leafs-stream-how-to-watch-oct-13/
