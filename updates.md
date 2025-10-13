@@ -1,3 +1,11 @@
+**OpenAI Inks Deal With Broadcom to Design Its Own Chips for A.I.**\
+`After signing multibillion-dollar agreements to use chips from Nvidia and AMD, OpenAI plans to deploy its own designs next year.`\
+https://nytimes.com/2025/10/13/technology/openai-broadcom-chips-deal.html
+
+**Is There a Place for Religion in Politics?**\
+`Readers respond to a column by David Brooks. Also: The marring of the White House; a sharp right turn to populism.`\
+https://nytimes.com/2025/10/13/opinion/religion-politics.html
+
 **Michigan and Ohio State fans: How optimistic are you about The Game? Take our survey**\
 `We're taking our Hope-o-Meter local to college football's best rivalry. Michigan and Ohio State fans, let us know how you're feeling.`\
 https://nytimes.com/athletic/6712976/2025/10/13/michigan-ohio-state-rivalry-2025-hope-o-meter/
