@@ -1,3 +1,7 @@
+**Friends and Family Celebrate Return of Israeli Hostage**\
+`Alon Ohel was kidnapped by Hamas after fleeing the Nova music festival in October 2023. More than two years later, Hamas freed Mr. Ohel as part of a cease-fire deal with Israel.`\
+https://nytimes.com/video/world/middleeast/100000010456587/israeli-hostages-return-home.html
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>Boy, that was some weekend. Suddenly, Indiana is a national title contender, and suddenly James Franklin is unemployed.</p>
 <p>Leave your questions here. Please include your city.</p>

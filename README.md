@@ -1,3 +1,7 @@
+**What Is Your Reaction to the Cease-Fire Deal Between Israel and Hamas?**\
+`Twenty living hostages were freed by Hamas on Monday under the cease-fire deal, and Israel released nearly 2,000 Palestinian prisoners.`\
+https://nytimes.com/2025/10/13/learning/what-is-your-reaction-to-the-cease-fire-deal-between-israel-and-hamas.html
+
 **Friends and Family Celebrate Return of Israeli Hostage**\
 `Alon Ohel was kidnapped by Hamas after fleeing the Nova music festival in October 2023. More than two years later, Hamas freed Mr. Ohel as part of a cease-fire deal with Israel.`\
 https://nytimes.com/video/world/middleeast/100000010456587/israeli-hostages-return-home.html
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6714177/2025/10/13/cleveland-browns-brook-park-hunt
 **Is Drake Maye a real MVP contender? Here's what the odds say**\
 `Drake Maye has seen his NFL MVP odds skyrocket in recent weeks. Is he a real contender? `\
 https://nytimes.com/athletic/6714133/2025/10/13/drake-maye-real-mvp-contender-odds/
-
-**This season's Bruins might be for real, and we'll know for sure very soon**\
-`The Bruins picked up their first loss of the season against the Lightning, but they very nearly pulled off the comeback to force overtime.`\
-https://nytimes.com/athletic/6714140/2025/10/13/bruins-harris-pastrnak-lindholm-lightning/
 
