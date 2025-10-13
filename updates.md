@@ -1,3 +1,7 @@
+**Joy, relief and long-awaited phone calls as hostages are released.**\
+`By Natan Odenheimer and Aaron Boxerman`\
+https://nytimes.com/live/2025/10/12/world/israel-gaza-hostages-trump/joy-relief-and-long-awaited-phone-calls-as-hostages-families-greet-their-loved-ones
+
 **For Mariners, a fresh Miller is plenty filling in Game 1**\
 `After giving up a home run on the first pitch he threw, Miller gave up just one more hit in his six innings of work. `\
 https://nytimes.com/athletic/6712541/2025/10/13/bryce-miller-seattle-mariners-alcs/
