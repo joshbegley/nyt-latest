@@ -1,3 +1,7 @@
+**Denny Hamlin ties 10th in all-time NASCAR wins as he chases championship**\
+`An emotional Hamlin was crying in his car after the race, and he became choked up in his post-race interview.`\
+https://nytimes.com/athletic/6712264/2025/10/12/nascar-denny-hamlin-60th-career-win/
+
 **Blue Jays' Lukes not expected to miss time after leaving ALCS Game 1**\
 `An X-ray came back negative on Lukes' right knee after he fouled a ball off it and had to leave Game 1 of the ALCS.`\
 https://nytimes.com/athletic/6712124/2025/10/12/blue-jays-nathan-lukes-knee-foul-ball/
