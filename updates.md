@@ -1,3 +1,19 @@
+**Fantasy football Week 6 recap and early waivers speed run**\
+`Making sense of the backfields in Los Angeles, Arizona and elsewhere. `\
+https://nytimes.com/athletic/6713316/2025/10/13/fantasy-football-week-6-recap-and-early-waivers-speed-run-kimani-vidal-a-priority-add/
+
+**Aaron Rodgers calls Steelers' field 'borderline unplayable' after win**\
+`According to a team spokesperson, the Steelers already planned to replace the sod on the field this week.`\
+https://nytimes.com/athletic/6713210/2025/10/13/aaron-rodgers-steelers-field-comments-browns/
+
+**A Tyrant for Our Times: Reviving José Limón’s ‘The Emperor Jones’**\
+`Limón’s dance, based on the play by Eugene O’Neill, has long been something of a problem piece. Now, it is being updated to speak to the moment.`\
+https://nytimes.com/2025/10/13/arts/dance/jose-limon-the-emperor-jones-revival.html
+
+**Rams' Puka Nacua day to day with sprained ankle, status vs. Jaguars uncertain**\
+`Nacua had to be helped to the locker room following the injury, though he did return for the second half and played a handful of snaps. `\
+https://nytimes.com/athletic/6713352/2025/10/13/rams-puka-nacua-injury-jaguars/
+
 **Rams' Puka Nacua suffers ankle sprain vs. Ravens, status uncertain for Week 7**\
 `Nacua had to be helped to the locker room following the injury, though he did return for the second half and played a handful of snaps. `\
 https://nytimes.com/athletic/6713352/2025/10/13/rams-puka-nacua-injury-jaguars/
