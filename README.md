@@ -1,3 +1,15 @@
+**Mike McDaniel says Tua Tagovailoa's comments were not proper 'forum' for franchise QB**\
+`"Regardless of intent and what was on Tua’s mind, after a loss, as the franchise quarterback, that’s not the forum to displace that."`\
+https://nytimes.com/athletic/6714205/2025/10/13/mike-mcdaniel-says-tua-tagovailoas-comments-were-not-proper-forum-for-franchise-qb/
+
+**Dozens Are Dead and Dozens More Missing as Catastrophic Rains Devastate Mexico**\
+`Torrential rains set off deadly floods and landslides across five Mexican states, leaving a trail of destruction.`\
+https://nytimes.com/2025/10/13/world/americas/mexico-torrential-rain-deaths.html
+
+**In Brooklyn, a Feast of Seven Salads and Two Tofu Cheesecakes**\
+`To celebrate her new cookbook, the author Hetty Lui McKinnon honored its concept with a menu of communal dishes prepared in advance.`\
+https://nytimes.com/2025/10/13/t-magazine/hetty-lui-mckinnon-linger-dinner-party.html
+
 **First Brands’ C.E.O. Steps Down, While Its Accounting Is Questioned**\
 `The auto-part maker’s bankruptcy has rocked Wall Street and revealed trouble in the private credit markets.`\
 https://nytimes.com/2025/10/13/business/first-brands-bankruptcy-private-credit.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010456525/trump-gaza-israel-war
 **As Hostages and Prisoners Return Home, Trump Declares ‘New Dawn’ in Mideast**\
 `With Hamas freeing the last 20 living Israeli hostages and Israel releasing some 2,000 Palestinian prisoners, President Trump proclaimed an ‘end’ to the war, but big questions about Gaza’s future remain.`\
 https://nytimes.com/2025/10/13/world/middleeast/israel-gaza-hostages-prisoners-freed.html
-
-**Apple TV Subtracts the + in a Quiet Rebrand**\
-`The service unveiled the change in the ninth paragraph of a news release announcing a streaming date for “F1: The Movie.”`\
-https://nytimes.com/2025/10/13/business/apple-tv-no-plus.html
-
-**Trump Calls for Israel’s President to Pardon Netanyahu. Could it Happen?**\
-`The Israeli prime minister, Benjamin Netanyahu, has been on trial for corruption since 2020, battling charges of bribery, fraud and breach of trust in three separate but related cases.`\
-https://nytimes.com/2025/10/13/world/middleeast/trump-calls-for-israels-president-to-pardon-netanyahu-could-it-happen.html
-
-**Mariners tag Kirby, Castillo to start Games 3 and 4 of ALCS**\
-`All-Star starter Bryan Woo is also back in the mix for the Mariners, although they have not announced how they plan to deploy him.`\
-https://nytimes.com/athletic/6713795/2025/10/13/seattle-mariners-alcs-george-kirby-luis-castillo/
 
