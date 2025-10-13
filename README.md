@@ -1,3 +1,7 @@
+**Ex-Student Stabs 3 Staff Members at California Special Needs School, Police Say**\
+`Two of the staff members at the Switzer Learning Center in Torrance, Calif., were taken to a hospital with non-life-threatening injuries, and the third was treated at the scene, the authorities said.`\
+https://nytimes.com/2025/10/13/us/torrance-stabbing-school-california.html
+
 **The Kit**\
 ``\
 https://nytimes.com/column/the-kit
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6713381/2025/10/13/phillies-retain-manager-rob-thom
 **Cape Verde qualify for first-ever World Cup**\
 `The Island country, home to around 525,000 people, is the second smallest nation ever to qualify for a World Cup finals after Iceland.`\
 https://nytimes.com/athletic/6699520/2025/10/13/cape-verde-islands-world-cup-qualification/
-
-**Some Israeli families are anguished to see the release of Palestinians convicted of killing their loved ones.**\
-`By Johnatan Reiss`\
-https://nytimes.com/live/2025/10/12/world/israel-gaza-hostages-trump/some-israeli-families-are-anguished-to-see-palestinians-convicted-of-killing-their-loved-ones-freed
 
