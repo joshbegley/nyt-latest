@@ -1,3 +1,11 @@
+**Blue Jays lose key left-handed bat as Nathan Lukes leaves ALCS Game 1**\
+`The right fielder stayed in the game for a few innings after fouling a ball off his left knee in the bottom of the first.`\
+https://nytimes.com/athletic/6712124/2025/10/12/blue-jays-nathan-lukes-knee-foul-ball/
+
+**Steelers win the line of scrimmage and everything opens up — including their AFC North lead**\
+`Pittsburgh moved to 4-1 while taking care of business on both sides of the ball against the Browns.`\
+https://nytimes.com/athletic/6711890/2025/10/12/pittsburgh-steelers-beat-cleveland-browns/
+
 **A Tennessee Sheriff Becomes the Face of Grief After Plant Explosion**\
 `The blast that killed 16 people has left area residents reeling, including Sheriff Chris Davis of Humphreys County, who has fought back tears in his public briefings.`\
 https://nytimes.com/2025/10/12/us/tennessee-sheriff-plant-explosion-tears.html

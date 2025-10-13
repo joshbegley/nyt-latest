@@ -1,3 +1,7 @@
+**Little-known rule wipes Lions’ trick-play touchdown off the board vs. Chiefs**\
+`The Lions' play seemed to work as they drew it up, but their execution was just a bit off.`\
+https://nytimes.com/athletic/6712080/2025/10/12/jared-goff-lions-penalty-illegal-motion/
+
 **Blue Jays lose key left-handed bat as Nathan Lukes leaves ALCS Game 1**\
 `The right fielder stayed in the game for a few innings after fouling a ball off his left knee in the bottom of the first.`\
 https://nytimes.com/athletic/6712124/2025/10/12/blue-jays-nathan-lukes-knee-foul-ball/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/10/12/world/israel-gaza-hostages-trump
 **How to watch Louisville vs. Miami (FL): Time, TV, streaming**\
 `Find out how to watch the Louisville Cardinals play the Miami (FL) Hurricanes, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6712051/2025/10/12/louisville-vs-miami-fl-stream-how-to-watch-oct-17/
-
-**Don't look now, but Panthers are .500 and the 0-6 Jets are next on the schedule**\
-`Rico Dowdle had a huge game against his former team, running for 183 yards and leading the Panthers with 56 receiving yards and a TD.`\
-https://nytimes.com/athletic/6711899/2025/10/12/panthers-beat-cowboys-rico-dowdle/
 

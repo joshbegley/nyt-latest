@@ -1,3 +1,11 @@
+**Blue Jays lose key left-handed bat as Nathan Lukes leaves ALCS Game 1**\
+`The right fielder stayed in the game for a few innings after fouling a ball off his left knee in the bottom of the first.`\
+https://nytimes.com/athletic/6712124/2025/10/12/blue-jays-nathan-lukes-knee-foul-ball/
+
+**Steelers win the line of scrimmage and everything opens up — including their AFC North lead**\
+`Pittsburgh moved to 4-1 while taking care of business on both sides of the ball against the Browns.`\
+https://nytimes.com/athletic/6711890/2025/10/12/pittsburgh-steelers-beat-cleveland-browns/
+
 **A Tennessee Sheriff Becomes the Face of Grief After Plant Explosion**\
 `The blast that killed 16 people has left area residents reeling, including Sheriff Chris Davis of Humphreys County, who has fought back tears in his public briefings.`\
 https://nytimes.com/2025/10/12/us/tennessee-sheriff-plant-explosion-tears.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6712051/2025/10/12/louisville-vs-miami-fl-stream-ho
 **Don't look now, but Panthers are .500 and the 0-6 Jets are next on the schedule**\
 `Rico Dowdle had a huge game against his former team, running for 183 yards and leading the Panthers with 56 receiving yards and a TD.`\
 https://nytimes.com/athletic/6711899/2025/10/12/panthers-beat-cowboys-rico-dowdle/
-
-**Chargers' Justin Herbert plays hero in win over Dolphins: 'He’s Hercules to me'**\
-`The Chargers couldn't afford to lose to the Dolphins and extend their losing streak. Herbert made sure that didn't happen.`\
-https://nytimes.com/athletic/6711889/2025/10/12/chargers-justin-herbert-win-dolphins/
-
-**Packers win with late surge, spoil Joe Flacco's Bengals debut: Takeaways**\
-`The Packers scored 17 fourth-quarter points to stave off a second-half rally by the Bengals, who were held scoreless in the first half.`\
-https://nytimes.com/athletic/6711684/2025/10/12/bengals-vs-packers-takeaways-results-nfl/
 
