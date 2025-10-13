@@ -1,3 +1,7 @@
+**Israeli Hostages and Palestinian Prisoners Freed in Truce Exchange**\
+`Hamas released all 20 living Israeli hostages on Monday, and Israel said it freed the 1,968 Palestinian prisoners slated for release. The exchange of prisoners is part of the first phase of the Gaza cease-fire deal.`\
+https://nytimes.com/video/world/middleeast/100000010455901/gaza-ceasefire-hostages-palestinian-prisoners.html
+
 **NFL Week 7 odds, spreads: Wait, the Jets are favored!?**\
 `Which teams are the biggest favorites and underdogs for Week 7? There are some real surprises.`\
 https://nytimes.com/athletic/6713158/2025/10/13/nfl-week-7-odds-spreads-chiefs-lions-buccaneers-jets/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6713283/2025/10/13/millie-bright-england-retires/
 **Mike McDaniel's hot seat now scorching after Tua Tagovailoa's comments: Jones**\
 `After the quarterback questioned the team's leadership, it feels like a matter of when, not if, the Dolphins make a change.`\
 https://nytimes.com/athletic/6713177/2025/10/13/dolphins-mike-mcdaniel-tua-tagovailoa-hot-seat/
-
-**You Deserve Cheese Croutons**\
-`Specifically, you deserve Yossy Arefi’s orecchiette salad with halloumi croutons, a delicious dinner that makes excellent leftovers for lunch.`\
-https://nytimes.com/2025/10/13/dining/you-deserve-cheese-croutons.html
 
