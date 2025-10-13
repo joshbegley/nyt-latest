@@ -1,3 +1,7 @@
+**Notre Dame-NC State final thoughts: Irish look tuned up for pivotal USC game**\
+`Knock off the Trojans next Saturday and the Irish will get a fresh look from outside South Bend. And there’s a lot worth watching.`\
+https://nytimes.com/athletic/6712885/2025/10/13/notre-dame-nc-state-tape-review/
+
 **Investors Fear the Return of the U.S.-China Trade War**\
 `The market is rebounding, but analysts see plenty of reason for concern about heightened tensions between Washington and Beijing.`\
 https://nytimes.com/2025/10/13/business/dealbook/us-china-trade-war-trump.html
@@ -10,7 +14,7 @@ https://nytimes.com/athletic/6708110/2025/10/13/minnesota-timberwolves-how-to-wa
 `Two games is a tiny sample size, but the Oilers have started to answer some questions from the beginning of camp.`\
 https://nytimes.com/athletic/6711238/2025/10/13/edmonton-oilers-philp-savoie-howard-frederic/
 
-**The Athletic 136: The case for No. 1 Indiana (not Ohio State or Miami)**\
+**The Athletic 136: The case for No. 1 Indiana (not Ohio State or Miami) at midseason**\
 `College football is the most fun when we're wrong. Indiana climbing to No. 1 isn't something many could've predicted.`\
 https://nytimes.com/athletic/6711911/2025/10/13/college-football-team-rankings-indiana-ohio-state-oregon/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6712617/2025/10/13/inside-newcastle-qa-chris-waugh-
 **Olmo a major doubt for El Clasico with muscular injury**\
 `Barcelona confirmed on Monday the midfielder had sustained an injury to the soleus muscle in his left leg.`\
 https://nytimes.com/athletic/6706485/2025/10/13/dani-olmo-injury-update-barcelona-clasico/
-
-**New York Braces for Potential Flooding and Heavy Winds From Nor’Easter**\
-`The storm has been moving up the East Coast since the weekend, dumping heavy rain and flooding roads on its way toward New England.`\
-https://nytimes.com/2025/10/13/nyregion/noreaster-storm-forecast-damage.html
 

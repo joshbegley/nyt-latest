@@ -1,3 +1,11 @@
+**Notre Dame-NC State final thoughts: Irish look tuned up for pivotal USC game**\
+`Knock off the Trojans next Saturday and the Irish will get a fresh look from outside South Bend. And there’s a lot worth watching.`\
+https://nytimes.com/athletic/6712885/2025/10/13/notre-dame-nc-state-tape-review/
+
+**The Athletic 136: The case for No. 1 Indiana (not Ohio State or Miami) at midseason**\
+`College football is the most fun when we're wrong. Indiana climbing to No. 1 isn't something many could've predicted.`\
+https://nytimes.com/athletic/6711911/2025/10/13/college-football-team-rankings-indiana-ohio-state-oregon/
+
 **Investors Fear the Return of the U.S.-China Trade War**\
 `The market is rebounding, but analysts see plenty of reason for concern about heightened tensions between Washington and Beijing.`\
 https://nytimes.com/2025/10/13/business/dealbook/us-china-trade-war-trump.html
