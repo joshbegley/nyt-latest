@@ -1,3 +1,11 @@
+**Blue Jays-Mariners Game 1 takeaways: Raleigh powers Seattle to series lead**\
+`Despite coming off a 15-inning thriller in the ALDS on Friday night, the Mariners looked sharp in a 3-1 win over the Blue Jays.`\
+https://nytimes.com/athletic/6712034/2025/10/12/blue-jays-mariners-game-1-score-results-takeaways-playoffs-mlb/
+
+**How Josh Jacobs' flu game gave Bengals fits in 27-18 Packers win**\
+`Jacobs gained 150 total yards and scored two touchdowns for the second consecutive game, this one a much-needed win at Lambeau Field.`\
+https://nytimes.com/athletic/6712204/2025/10/12/josh-jacobs-packers-beat-bengals/
+
 **Ready, Set, Play: Belgrade Gears Up to Show the World Its Creative Spirit**\
 `At the confluence of two mighty rivers, and often of history, Belgrade blends tradition with dynamism. Here, explore the Serbian capital as it gears up to host Expo 2027 Belgrade.
 `\
@@ -7,7 +15,7 @@ https://nytimes.com/paidpost/serbia-expo-2027/ready-set-play-belgrade-gears-up-t
 `The Warriors will re-evaluate Moody in about a week.`\
 https://nytimes.com/athletic/6712183/2025/10/12/moses-moody-warriors-calf-strain/
 
-**"Heartbreaking" loss of Fred Warner in Tampa changes everything for 49ers**\
+**'Heartbreaking' loss of Fred Warner in Tampa changes everything for 49ers**\
 `The anchor of San Francisco's defense is out for the season.`\
 https://nytimes.com/athletic/6712117/2025/10/12/fred-warner-49ers-injury-impact/
 
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6712080/2025/10/12/jared-goff-lions-penalty-illegal
 **Blue Jays lose key left-handed bat as Nathan Lukes leaves ALCS Game 1**\
 `The right fielder stayed in the game for a few innings after fouling a ball off his left knee in the bottom of the first.`\
 https://nytimes.com/athletic/6712124/2025/10/12/blue-jays-nathan-lukes-knee-foul-ball/
-
-**Steelers win the line of scrimmage and everything opens up — including their AFC North lead**\
-`Pittsburgh moved to 4-1 while taking care of business on both sides of the ball against the Browns.`\
-https://nytimes.com/athletic/6711890/2025/10/12/pittsburgh-steelers-beat-cleveland-browns/
-
-**A Tennessee Sheriff Becomes the Face of Grief After Plant Explosion**\
-`The blast that killed 16 people has left area residents reeling, including Sheriff Chris Davis of Humphreys County, who has fought back tears in his public briefings.`\
-https://nytimes.com/2025/10/12/us/tennessee-sheriff-plant-explosion-tears.html
 

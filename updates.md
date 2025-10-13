@@ -1,3 +1,7 @@
+**A Tennessee Sheriff Becomes the Face of Grief After Plant Explosion**\
+`The blast that killed 16 people has left area residents reeling, including Sheriff Chris Davis of Humphreys County, who has fought back tears in his public briefings.`\
+https://nytimes.com/2025/10/12/us/tennessee-sheriff-plant-explosion-tears.html
+
 **How Josh Jacobs' flu game gave Bengals fits in 27-18 Packers win**\
 `Jacobs gained 150 total yards and scored two touchdowns for the second consecutive game, this one a much-needed win at Lambeau Field.`\
 https://nytimes.com/athletic/6712204/2025/10/12/josh-jacobs-packers-beat-bengals/
