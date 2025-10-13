@@ -1,3 +1,7 @@
+**How Josh Jacobs' flu game gave Bengals fits in 27-18 Packers win**\
+`Jacobs gained 150 total yards and scored two touchdowns for the second consecutive game, this one a much-needed win at Lambeau Field.`\
+https://nytimes.com/athletic/6712204/2025/10/12/josh-jacobs-packers-beat-bengals/
+
 **Ready, Set, Play: Belgrade Gears Up to Show the World Its Creative Spirit**\
 `At the confluence of two mighty rivers, and often of history, Belgrade blends tradition with dynamism. Here, explore the Serbian capital as it gears up to host Expo 2027 Belgrade.
 `\
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6712124/2025/10/12/blue-jays-nathan-lukes-knee-foul
 **Steelers win the line of scrimmage and everything opens up — including their AFC North lead**\
 `Pittsburgh moved to 4-1 while taking care of business on both sides of the ball against the Browns.`\
 https://nytimes.com/athletic/6711890/2025/10/12/pittsburgh-steelers-beat-cleveland-browns/
-
-**A Tennessee Sheriff Becomes the Face of Grief After Plant Explosion**\
-`The blast that killed 16 people has left area residents reeling, including Sheriff Chris Davis of Humphreys County, who has fought back tears in his public briefings.`\
-https://nytimes.com/2025/10/12/us/tennessee-sheriff-plant-explosion-tears.html
 
