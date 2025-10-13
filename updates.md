@@ -1,3 +1,15 @@
+**For Mariners, a fresh Miller is plenty filling in Game 1**\
+`After giving up a home run on the first pitch he threw, Miller gave up just one more hit in his six innings of work. `\
+https://nytimes.com/athletic/6712541/2025/10/13/bryce-miller-seattle-mariners-alcs/
+
+**From narrow losses to youth development, 8 observations from Blackhawks' first 3 games**\
+`The Blackhawks' record will matter at some point. Right now it's still about the feeling, and they feel decent so far.`\
+https://nytimes.com/athletic/6710704/2025/10/13/blackhawks-observations-first-three-games/
+
+**TAFC: Agent survey – best and worst EPL deals; has Pochettino found a formula for USMNT?**\
+`Today in TAFC: Agent survey brings up a striker debate. Plus: Has Poch found a formation?`\
+https://nytimes.com/athletic/6712626/2025/10/13/tafc-agent-survey-best-and-worst-epl-deals-has-pochettino-found-a-formula-for-usmnt/
+
 **See excerpts from Trump’s prepared remarks to the Knesset.**\
 `By David M. Halbfinger`\
 https://nytimes.com/live/2025/10/12/world/israel-gaza-hostages-trump/see-excerpts-from-trumps-prepared-remarks-to-the-knesset
