@@ -1,3 +1,7 @@
+**49ers-Buccaneers takeaways: 'MVP' chants for Baker Mayfield in T.B. win**\
+`QB's 15-yard scramble on third-and-14 sets up key touchdown late in third quarter.`\
+https://nytimes.com/athletic/6710959/2025/10/12/49ers-vs-buccaneers-takeaways-results-nfl/
+
 **Sam Darnold, Jaxon Smith-Njigba spark yet another Seahawks road victory: 'We travel heavy'**\
 `Darnold and Smith-Njigba have been among the NFL's best players at their position, and Seattle is 10-1 on the road under Mike Macdonald.`\
 https://nytimes.com/athletic/6711791/2025/10/12/sam-darnold-jaxon-smith-njigba-seahawks-jaguars/
@@ -6,7 +10,7 @@ https://nytimes.com/athletic/6711791/2025/10/12/sam-darnold-jaxon-smith-njigba-s
 `The Titans offense continued its struggles against a strong Las Vegas pass rush, as the Raiders improved to 2-4.`\
 https://nytimes.com/athletic/6711421/2025/10/12/titans-vs-raiders-takeaways-results-nfl/
 
-**The Patriots offense may be one-dimensional, but Drake Maye is so good it might not matter**\
+**Patriots' offense is one-dimensional, but with Drake Maye it might not matter**\
 `The Patriots struggled to run the ball against the Saints on Sunday, but their second-year quarterback lifted them to victory anyway.`\
 https://nytimes.com/athletic/6711749/2025/10/12/patriots-drake-maye-offense-new-orleans-saints/
 
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6711693/2025/10/12/new-york-jets-london-loss-denver
 `What to know about James Franklin's $45 million Penn State buyout.
 `\
 https://nytimes.com/athletic/6711634/2025/10/12/penn-state-james-franklin-buyout-explained/
-
-**Diane Keaton, Oscar-Winning Actress, Dies at 79**\
-`Diane Keaton, the vibrant and sometimes unconventional actress, author and filmmaker, has died. Representatives have not said where or when Ms. Keaton died or cited a cause.`\
-https://nytimes.com/video/us/100000010454658/oscar-winning-actress-diane-keaton-obituary.html
 
