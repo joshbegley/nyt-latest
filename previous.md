@@ -14,8 +14,8 @@ https://nytimes.com/athletic/6711684/2025/10/12/bengals-vs-packers-takeaways-res
 `With Cleveland at 1-5 and a predictably bad offense bordering on complete ineptitude, it’s clear that desperate and dark times are here.`\
 https://nytimes.com/athletic/6711841/2025/10/12/kevin-stefanski-browns-offense/
 
-**49ers-Buccaneers takeaways: 'MVP' chants for Baker Mayfield in T.B. win**\
-`QB's 15-yard scramble on third-and-14 sets up key touchdown late in third quarter.`\
+**'MVP' chants for Baker Mayfield as Bucs beat 49ers: Takeaways**\
+`The quarterback's 15-yard scramble on third-and-14 set up a key touchdown late in third quarter.`\
 https://nytimes.com/athletic/6710959/2025/10/12/49ers-vs-buccaneers-takeaways-results-nfl/
 
 **Darnold, Smith-Njigba spark another Seahawks road victory: 'We travel heavy'**\

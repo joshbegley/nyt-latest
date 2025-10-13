@@ -1,3 +1,7 @@
+**'MVP' chants for Baker Mayfield as Bucs beat 49ers: Takeaways**\
+`The quarterback's 15-yard scramble on third-and-14 set up a key touchdown late in third quarter.`\
+https://nytimes.com/athletic/6710959/2025/10/12/49ers-vs-buccaneers-takeaways-results-nfl/
+
 **Don't look now, but Panthers are .500 and the 0-6 Jets are next on the schedule**\
 `Rico Dowdle had a huge game against his former team, running for 183 yards and leading the Panthers with 56 receiving yards and a TD.`\
 https://nytimes.com/athletic/6711899/2025/10/12/panthers-beat-cowboys-rico-dowdle/
