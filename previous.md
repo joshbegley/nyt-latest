@@ -1,3 +1,7 @@
+**NASCAR Las Vegas takeaways: Denny Hamlin joins greats with emotional victory**\
+`Hamlin books his spot in Phoenix, Team Penske is on the ropes and more from the playoff weekend in Las Vegas.`\
+https://nytimes.com/athletic/6713668/2025/10/13/nascar-las-vegas-denny-hamlin-penske-takeaways/
+
 **Review: ‘Are the Bennet Girls OK?’ Well, Their Mother Is Magnificent.**\
 `Bedlam’s sharply irreverent production of Emily Breeze’s comedy, a riff on “Pride and Prejudice,” has period dress, contemporary vernacular and a magnetic Mrs. Bennet.`\
 https://nytimes.com/2025/10/13/theater/are-the-bennet-girls-ok-review-bedlam.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6713651/2025/10/13/anthony-richardson-injury-out-co
 **How to watch LSU vs. Vanderbilt: Time, TV, streaming**\
 `Find out how to watch the LSU Tigers play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6713982/2025/10/13/lsu-vs-vanderbilt-stream-how-to-watch-oct-18/
-
-**How to watch Ole Miss vs. Georgia: Time, TV, streaming**\
-`Find out how to watch the Ole Miss Rebels play the Georgia Bulldogs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6713978/2025/10/13/ole-miss-vs-georgia-stream-how-to-watch-oct-18/
 

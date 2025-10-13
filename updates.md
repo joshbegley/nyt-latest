@@ -1,3 +1,7 @@
+**NASCAR Las Vegas takeaways: Denny Hamlin joins greats with emotional victory**\
+`Hamlin books his spot in Phoenix, Team Penske is on the ropes and more from the playoff weekend in Las Vegas.`\
+https://nytimes.com/athletic/6713668/2025/10/13/nascar-las-vegas-denny-hamlin-penske-takeaways/
+
 **Review: ‘Are the Bennet Girls OK?’ Well, Their Mother Is Magnificent.**\
 `Bedlam’s sharply irreverent production of Emily Breeze’s comedy, a riff on “Pride and Prejudice,” has period dress, contemporary vernacular and a magnetic Mrs. Bennet.`\
 https://nytimes.com/2025/10/13/theater/are-the-bennet-girls-ok-review-bedlam.html
