@@ -1,3 +1,7 @@
+**Friends and Family Celebrate Return of Israeli Hostage**\
+`Alon Ohel was kidnapped by Hamas after fleeing the Nova music festival in October 2023. More than two years later, Hamas freed Mr. Ohel as part of a cease-fire deal with Israel.`\
+https://nytimes.com/video/world/middleeast/100000010456587/israeli-hostages-return-home.html
+
 **Submit a question for Stewart Mandel's College Football Mailbag**\
 `<p>Boy, that was some weekend. Suddenly, Indiana is a national title contender, and suddenly James Franklin is unemployed.</p>
 <p>Leave your questions here. Please include your city.</p>
@@ -35,8 +39,4 @@ https://nytimes.com/athletic/6714133/2025/10/13/drake-maye-real-mvp-contender-od
 **This season's Bruins might be for real, and we'll know for sure very soon**\
 `The Bruins picked up their first loss of the season against the Lightning, but they very nearly pulled off the comeback to force overtime.`\
 https://nytimes.com/athletic/6714140/2025/10/13/bruins-harris-pastrnak-lindholm-lightning/
-
-**Matt Rhule and the Penn State job: What we know and still need to know about his candidacy**\
-`“I think I probably had a Penn State shirt on when I was born,” Rhule said Monday.`\
-https://nytimes.com/athletic/6714152/2025/10/13/matt-rhule-penn-state-coaching-search-nebraska/
 
