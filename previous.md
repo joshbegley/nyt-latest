@@ -1,40 +1,40 @@
-**USMNT's Christian Pulisic expected to start vs. Australia in key friendly**\
-`The AC Milan winger came on as a second-half sub against Ecuador last Friday`\
-https://nytimes.com/athletic/6713927/2025/10/13/christian-pulisic-usmnt-injury-pochettino-australia/
+**How to watch LSU vs. Vanderbilt: Time, TV, streaming**\
+`Find out how to watch the LSU Tigers play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6713982/2025/10/13/lsu-vs-vanderbilt-stream-how-to-watch-oct-18/
 
-**The Return of Israel’s Living Hostages From Gaza Signals a Time to Heal**\
-`With the releases, Israelis basked in a joyous moment of unifying national redemption after months of agonizing, polarizing war.`\
-https://nytimes.com/2025/10/13/world/middleeast/israel-hostages-gaza.html
+**How to watch Ole Miss vs. Georgia: Time, TV, streaming**\
+`Find out how to watch the Ole Miss Rebels play the Georgia Bulldogs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6713978/2025/10/13/ole-miss-vs-georgia-stream-how-to-watch-oct-18/
 
-**How to watch Blues vs. Canucks: Time, TV, streaming**\
-`Find out how to watch the St. Louis Blues play the Vancouver Canucks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6713933/2025/10/13/blues-vs-canucks-stream-how-to-watch-oct-13/
+**How to watch Georgia Tech vs. Duke: Time, TV, streaming**\
+`Find out how to watch the Georgia Tech Yellow Jackets play the Duke Blue Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6713975/2025/10/13/georgia-tech-vs-duke-stream-how-to-watch-oct-18/
 
-**How to watch Kings vs. Wild: Time, TV, streaming**\
-`Find out how to watch the Los Angeles Kings play the Minnesota Wild, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6713931/2025/10/13/kings-vs-wild-stream-how-to-watch-oct-13/
+**How to watch Washington vs. Michigan: Time, TV, streaming**\
+`Find out how to watch the Washington Huskies play the Michigan Wolverines, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6713974/2025/10/13/washington-vs-michigan-stream-how-to-watch-oct-18/
 
-**How to watch Mammoth vs. Blackhawks: Time, TV, streaming**\
-`Find out how to watch the Utah Mammoth play the Chicago Blackhawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6713929/2025/10/13/mammoth-vs-blackhawks-stream-how-to-watch-oct-13/
+**How to watch SMU vs. Clemson: Time, TV, streaming**\
+`Find out how to watch the SMU Mustangs play the Clemson Tigers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6713970/2025/10/13/smu-vs-clemson-stream-how-to-watch-oct-18/
 
-**Ex-Student Stabs 3 Staff Members at California Special Needs School, Police Say**\
-`Two of the staff members at the Switzer Learning Center in Torrance, Calif., were taken to a hospital with non-life-threatening injuries, and the third was treated at the scene, the authorities said.`\
-https://nytimes.com/2025/10/13/us/torrance-stabbing-school-california.html
+**How to watch Ohio State vs. Wisconsin: Time, TV, streaming**\
+`Find out how to watch the Ohio State Buckeyes play the Wisconsin Badgers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6713967/2025/10/13/ohio-state-vs-wisconsin-stream-how-to-watch-oct-18/
 
-**The Kit**\
-``\
-https://nytimes.com/column/the-kit
+**How to watch Michigan State vs. Indiana: Time, TV, streaming**\
+`Find out how to watch the Michigan State Spartans play the Indiana Hoosiers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6713968/2025/10/13/michigan-state-vs-indiana-stream-how-to-watch-oct-18/
 
-**Sandy Alomar Sr., longtime big-league player and coach, dies at 81**\
-`Alomar was the father of Hall of Fame second baseman Roberto Alomar and All-Star catcher Sandy Alomar Jr.`\
-https://nytimes.com/athletic/6713787/2025/10/13/sandy-alomar-sr-dies-at-81/
+**How to watch Texas A&M vs. Arkansas: Time, TV, streaming**\
+`Find out how to watch the Texas A&M Aggies play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6713964/2025/10/13/texas-a-m-vs-arkansas-stream-how-to-watch-oct-18/
 
-**Penn State looks to program reset after ‘difficult’ James Franklin firing**\
-`“Our next coach needs to be able to maximize elite-level resources, attack the transfer portal and develop,” said AD Pat Kraft.`\
-https://nytimes.com/athletic/6713483/2025/10/13/penn-state-pat-kraft-on-franklin-fire/
+**How to watch Oklahoma vs. South Carolina: Time, TV, streaming**\
+`Find out how to watch the Oklahoma Sooners play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6713962/2025/10/13/oklahoma-vs-south-carolina-stream-how-to-watch-oct-18/
 
-**Scoop City: Risers and fallers after Sunday of Week 6**\
-`Baker Mayfield improved his MVP candidacy, Drake Maye's sophomore breakout continued as the Chiefs, Chargers and Panthers trend up`\
-https://nytimes.com/athletic/6713792/2025/10/13/trending-nfl-week-6-risers-fallers-chiefs-49ers-buccaneers/
+**How to watch Purdue vs. Northwestern: Time, TV, streaming**\
+`Find out how to watch the Purdue Boilermakers play the Northwestern Wildcats, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6713958/2025/10/13/purdue-vs-northwestern-stream-how-to-watch-oct-18/
 
