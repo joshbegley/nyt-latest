@@ -1,3 +1,11 @@
+**What I'm hearing: Inside Canada's roster battles as World Cup approaches**\
+`The battle for places on Jesse Marsch's Canada World Cup squad is hotting up`\
+https://nytimes.com/athletic/6713471/2025/10/13/what-im-hearing-inside-canadas-roster-battles-as-world-cup-approaches/
+
+**Wales and Belgium qualifier delayed by pitch invading rat**\
+`Brennan Johnson earned a huge ovation from the home crowd when he ushered the rodent off the field of play.`\
+https://nytimes.com/athletic/6714130/2025/10/13/wales-belgium-rat-pitch/
+
 **‘War in Gaza Is Over,’ Trump Says During Middle East Trip**\
 `President Trump visited Egypt and Israel on Monday as the 20 hostages in Gaza were returned to Israel in exchange for nearly 2,000 Palestinian prisoners and detainees.`\
 https://nytimes.com/video/world/middleeast/100000010456525/trump-gaza-israel-war.html

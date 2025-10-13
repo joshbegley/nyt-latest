@@ -1,3 +1,15 @@
+**First Brands’ C.E.O. Steps Down, While Its Accounting Is Questioned**\
+`The auto-part maker’s bankruptcy has rocked Wall Street and revealed trouble in the private credit markets.`\
+https://nytimes.com/2025/10/13/business/first-brands-bankruptcy-private-credit.html
+
+**Madagascar’s President Goes Into Hiding**\
+`The move followed weeks of intense and deadly protests against the government of President Andry Rajoelina, who himself came to power in a coup.`\
+https://nytimes.com/2025/10/13/world/africa/madagascar-president-rajoelina.html
+
+**NFL suspends Lions' Brian Branch 1 game for altercation vs. Chiefs**\
+`Branch instigated a postgame brawl after the Lions' 30-17 loss to the Chiefs on Sunday night.`\
+https://nytimes.com/athletic/6714165/2025/10/13/brian-branch-lions-suspension-chiefs/
+
 **What I'm hearing: Inside Canada's roster battles as World Cup approaches**\
 `The battle for places on Jesse Marsch's Canada World Cup squad is hotting up`\
 https://nytimes.com/athletic/6713471/2025/10/13/what-im-hearing-inside-canadas-roster-battles-as-world-cup-approaches/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/13/world/middleeast/trump-calls-for-israels-presiden
 **Mariners tag Kirby, Castillo to start Games 3 and 4 of ALCS**\
 `All-Star starter Bryan Woo is also back in the mix for the Mariners, although they have not announced how they plan to deploy him.`\
 https://nytimes.com/athletic/6713795/2025/10/13/seattle-mariners-alcs-george-kirby-luis-castillo/
-
-**What Happened to Campus Activism Against the War in Gaza?**\
-`Protests swept campuses after the war began. But tough discipline, pushed by Republicans, curbed a student movement that was one of the largest since the Vietnam War.`\
-https://nytimes.com/2025/10/13/us/campus-activism-against-the-war-in-gaza.html
-
-**Bucks coach Doc Rivers denounces ICE activity in his hometown of Chicago**\
-`Rivers called Chicago an "amazing city" but said he hates what he's seeing with ICE activity. "That's not this country," he said.`\
-https://nytimes.com/athletic/6713950/2025/10/13/milwaukee-bucks-doc-rivers-denounces-ice-chicago/
-
-**NASCAR Las Vegas takeaways: Denny Hamlin joins greats with emotional victory**\
-`Hamlin books his spot in Phoenix, Team Penske is on the ropes and more from the playoff weekend in Las Vegas.`\
-https://nytimes.com/athletic/6713668/2025/10/13/nascar-las-vegas-denny-hamlin-penske-takeaways/
 
