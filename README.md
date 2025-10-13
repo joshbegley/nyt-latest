@@ -1,3 +1,15 @@
+**Doug Lebda, LendingTree Founder and C.E.O., Dies in A.T.V. Accident**\
+`LendingTree named its chief operating officer, Scott Peyree, as its new chief executive.`\
+https://nytimes.com/2025/10/13/business/doug-lebda-lendingtree-accident-death.html
+
+**Taylor Swift Smashes Another Record With ‘Showgirl’**\
+`The pop superstar sold four million copies of her latest album, topping a decade-old milestone by Adele. The tally included 1.3 million vinyl LPs.`\
+https://nytimes.com/2025/10/13/arts/music/taylor-swift-life-of-a-showgirl-first-week-sales.html
+
+**Phillies to retain manager Rob Thomson for 2026 season: Sources**\
+`Thomson is the third manager in franchise history to win back-to-back division titles and ranks first in managerial winning percentage.`\
+https://nytimes.com/athletic/6713381/2025/10/13/phillies-retain-manager-rob-thomson-2026-season/
+
 **Cape Verde qualify for first-ever World Cup**\
 `The Island country, home to around 525,000 people, is the second smallest nation ever to qualify for a World Cup finals after Iceland.`\
 https://nytimes.com/athletic/6699520/2025/10/13/cape-verde-islands-world-cup-qualification/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6713595/2025/10/13/chiefs-zero-penalties-turnovers-
 **Diane Keaton’s Only Documentary Was About the Afterlife**\
 `Keaton, who died on Saturday, was an actor, director and producer on multiple films and series. Her sole documentary, “Heaven,” explored popular ideas of the afterlife.`\
 https://nytimes.com/2025/10/13/movies/diane-keaton-documentary.html
-
-**Bucks sign third Antetokounmpo brother to two-way deal**\
-`Three brothers will be on the active roster of the same NBA team for the first time in league history.`\
-https://nytimes.com/athletic/6713589/2025/10/13/bucks-sign-alex-antetokounmpo-two-way-deal/
-
-**Trump Takes a Victory Lap, but Avoids Questions About What’s Next**\
-`Except for brief references, President Trump did not talk about what it would take to rebuild Gaza or the future of the Palestinian people.`\
-https://nytimes.com/2025/10/13/world/europe/trump-victory-lap-whats-next.html
-
-**Bill Belichick quashes UNC buyout rumors, acknowledges 'learning curve'**\
-`“Obviously we're all a little frustrated in the results,” Belichick said.`\
-https://nytimes.com/athletic/6713593/2025/10/13/bill-belichick-unc-buyout-rumors/
 

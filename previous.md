@@ -1,3 +1,7 @@
+**Cape Verde qualify for first-ever World Cup**\
+`The Island country, home to around 525,000 people, is the second smallest nation ever to qualify for a World Cup finals after Iceland.`\
+https://nytimes.com/athletic/6699520/2025/10/13/cape-verde-islands-world-cup-qualification/
+
 **Some Israeli families are anguished to see Palestinians convicted of killing their loved ones freed.**\
 `By Johnatan Reiss`\
 https://nytimes.com/live/2025/10/12/world/israel-gaza-hostages-trump/some-israeli-families-are-anguished-to-see-palestinians-convicted-of-killing-their-loved-ones-freed
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/13/world/europe/trump-victory-lap-whats-next.html
 **Bill Belichick quashes UNC buyout rumors, acknowledges 'learning curve'**\
 `“Obviously we're all a little frustrated in the results,” Belichick said.`\
 https://nytimes.com/athletic/6713593/2025/10/13/bill-belichick-unc-buyout-rumors/
-
-**W.H.O. Warns of Sharp Increase in Drug-Resistant Infections**\
-`The U.N. health agency found that one in six infections worldwide was resistant to the most commonly available antibiotics.`\
-https://nytimes.com/2025/10/13/health/who-antibiotic-drug-resistance.html
 
