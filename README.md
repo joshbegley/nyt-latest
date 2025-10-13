@@ -1,3 +1,7 @@
+**This season's Bruins might be for real, and we'll know for sure very soon**\
+`The Bruins picked up their first loss of the season against the Lightning, but they very nearly pulled off the comeback to force overtime.`\
+https://nytimes.com/athletic/6714140/2025/10/13/bruins-harris-pastrnak-lindholm-lightning/
+
 **Matt Rhule's Penn State ties are obvious, but does he make sense as a candidate?**\
 `“I think I probably had a Penn State shirt on when I was born,” Rhule said Monday.`\
 https://nytimes.com/athletic/6714152/2025/10/13/matt-rhule-penn-state-coaching-search-nebraska/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6714165/2025/10/13/brian-branch-lions-suspension-ch
 **What I'm hearing: Inside Canada's roster battles as World Cup approaches**\
 `The battle for places on Jesse Marsch's Canada World Cup squad is hotting up`\
 https://nytimes.com/athletic/6713471/2025/10/13/what-im-hearing-inside-canadas-roster-battles-as-world-cup-approaches/
-
-**Wales and Belgium qualifier delayed by pitch-invading rat**\
-`Brennan Johnson earned a huge ovation from the home crowd when he ushered the rodent off the field of play.`\
-https://nytimes.com/athletic/6714130/2025/10/13/wales-belgium-rat-pitch/
 

@@ -1,3 +1,19 @@
+**Matt Rhule's Penn State ties are obvious, but does he make sense as a candidate?**\
+`“I think I probably had a Penn State shirt on when I was born,” Rhule said Monday.`\
+https://nytimes.com/athletic/6714152/2025/10/13/matt-rhule-penn-state-coaching-search-nebraska/
+
+**A Reality Check on Peace**\
+`We talk to our Jerusalem bureau chief, David Halbfinger, about what comes after the cease-fire deal in Gaza.`\
+https://nytimes.com/2025/10/13/world/14-int-theworld-gaza-israel-ukraine-pakistan-tv.html
+
+**Mike McDaniel says Tua Tagovailoa's comments were not proper 'forum' for franchise QB**\
+`"Regardless of intent and what was on Tua’s mind, after a loss, as the franchise quarterback, that’s not the forum to displace that."`\
+https://nytimes.com/athletic/6714205/2025/10/13/dolphins-mike-mcdaniel-tua-tagovailoa-criticism/
+
+**Wales and Belgium qualifier delayed by pitch-invading rat**\
+`Brennan Johnson earned a huge ovation from the home crowd when he ushered the rodent off the field of play.`\
+https://nytimes.com/athletic/6714130/2025/10/13/wales-belgium-rat-pitch/
+
 **Mike McDaniel says Tua Tagovailoa's comments were not proper 'forum' for franchise QB**\
 `"Regardless of intent and what was on Tua’s mind, after a loss, as the franchise quarterback, that’s not the forum to displace that."`\
 https://nytimes.com/athletic/6714205/2025/10/13/mike-mcdaniel-says-tua-tagovailoas-comments-were-not-proper-forum-for-franchise-qb/
