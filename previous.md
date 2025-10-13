@@ -1,3 +1,11 @@
+**Asia Markets Fall After Trump Threatens New Tariffs on China**\
+`Investors reacted to a pledge from the president on Friday to impose a “massive” new tariff on Chinese imports.`\
+https://nytimes.com/2025/10/12/business/trump-china-tariffs-global-markets.html
+
+**Dodgers to start Snell, Yamamoto for NLCS; Ohtani to pitch 'at some point'**\
+`Designating Snell and Yamamoto to pitch the first two games would let them maintain their usual pitching schedules.`\
+https://nytimes.com/athletic/6712052/2025/10/12/nlcs-dodgers-pitching-start-snell-yamamoto-ohtani/
+
 **Little-known rule wipes Lions’ trick-play touchdown off the board vs. Chiefs**\
 `The Lions' play seemed to work as they drew it up, but their execution was just a bit off.`\
 https://nytimes.com/athletic/6712080/2025/10/12/jared-goff-lions-penalty-illegal-motion/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6711895/2025/10/12/cowboys-defense-bad-loss-panther
 **Here’s the latest.**\
 `By David M. Halbfinger`\
 https://nytimes.com/live/2025/10/12/world/israel-gaza-hostages-trump/heres-the-latest
-
-**Live Updates: Trump Flies to Israel as Region Awaits Hostage-Prisoner Swap**\
-`A cease-fire brokered in part by the Trump administration calls for the exchange of 20 living hostages in Gaza and 2,000 Palestinians in Israeli jails to take place in the coming hours.`\
-https://nytimes.com/live/2025/10/12/world/israel-gaza-hostages-trump
-
-**How to watch Louisville vs. Miami (FL): Time, TV, streaming**\
-`Find out how to watch the Louisville Cardinals play the Miami (FL) Hurricanes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6712051/2025/10/12/louisville-vs-miami-fl-stream-how-to-watch-oct-17/
 

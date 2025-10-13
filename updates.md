@@ -1,3 +1,11 @@
+**Asia Markets Fall After Trump Threatens New Tariffs on China**\
+`Investors reacted to a pledge from the president on Friday to impose a “massive” new tariff on Chinese imports.`\
+https://nytimes.com/2025/10/12/business/trump-china-tariffs-global-markets.html
+
+**Dodgers to start Snell, Yamamoto for NLCS; Ohtani to pitch 'at some point'**\
+`Designating Snell and Yamamoto to pitch the first two games would let them maintain their usual pitching schedules.`\
+https://nytimes.com/athletic/6712052/2025/10/12/nlcs-dodgers-pitching-start-snell-yamamoto-ohtani/
+
 **Little-known rule wipes Lions’ trick-play touchdown off the board vs. Chiefs**\
 `The Lions' play seemed to work as they drew it up, but their execution was just a bit off.`\
 https://nytimes.com/athletic/6712080/2025/10/12/jared-goff-lions-penalty-illegal-motion/
