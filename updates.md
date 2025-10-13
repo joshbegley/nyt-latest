@@ -1,3 +1,8 @@
+**How James Franklin's $45M Penn State buyout compares to recent coaching changes**\
+`What to know about James Franklin's $45 million Penn State buyout.
+`\
+https://nytimes.com/athletic/6711634/2025/10/12/penn-state-james-franklin-buyout-explained/
+
 **49ers-Buccaneers takeaways: 'MVP' chants for Baker Mayfield in T.B. win**\
 `QB's 15-yard scramble on third-and-14 sets up key touchdown late in third quarter.`\
 https://nytimes.com/athletic/6710959/2025/10/12/49ers-vs-buccaneers-takeaways-results-nfl/
