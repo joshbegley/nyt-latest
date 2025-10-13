@@ -1,3 +1,7 @@
+**More Than 40 People Killed in Bus Plunge in South Africa**\
+`The bus was carrying passengers from Zimbabwe and Malawi who were traveling back to their home countries.`\
+https://nytimes.com/2025/10/13/world/africa/bus-crash-south-africa-limpopo.html
+
 **Beyond the Pomp of Egypt Summit, Arab Leaders Brace for Tough Negotiations**\
 `The meeting in Sharm el-Sheikh, Egypt, could expedite an end to the Gaza war, but regional powers must still resolve the thorny details that have stymied negotiations.`\
 https://nytimes.com/2025/10/13/world/europe/beyond-the-pomp-of-egypt-summit-arab-leaders-brace-for-tough-negotiations.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/13/world/europe/israel-hostages-gaza-prisoner-releas
 **How to watch and stream the LA Clippers throughout the season**\
 `This Clippers season hasn't come without controversy, but they have a chance to make just as much noise on the court in 2025-26. `\
 https://nytimes.com/athletic/6707674/2025/10/13/los-angeles-la-clippers-streaming-tv-how-to-watch/
-
-**OpenAI Inks Deal With Broadcom to Design Its Own Chips for A.I.**\
-`After signing multibillion-dollar agreements to use chips from Nvidia and AMD, OpenAI plans to deploy its own designs next year.`\
-https://nytimes.com/2025/10/13/technology/openai-broadcom-chips-deal.html
 

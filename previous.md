@@ -1,3 +1,7 @@
+**Beyond the Pomp of Egypt Summit, Arab Leaders Brace for Tough Negotiations**\
+`The meeting in Sharm el-Sheikh, Egypt, could expedite an end to the Gaza war, but regional powers must still resolve the thorny details that have stymied negotiations.`\
+https://nytimes.com/2025/10/13/world/europe/beyond-the-pomp-of-egypt-summit-arab-leaders-brace-for-tough-negotiations.html
+
 **Como argue Milan game in Australia key for Serie A's 'survival'**\
 `Como argued the fixture is "not a matter of greed" but to "build a future" for the Italian top flight.`\
 https://nytimes.com/athletic/6712995/2025/10/13/como-milan-serie-a-australia/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6707674/2025/10/13/los-angeles-la-clippers-streamin
 **OpenAI Inks Deal With Broadcom to Design Its Own Chips for A.I.**\
 `After signing multibillion-dollar agreements to use chips from Nvidia and AMD, OpenAI plans to deploy its own designs next year.`\
 https://nytimes.com/2025/10/13/technology/openai-broadcom-chips-deal.html
-
-**Is There a Place for Religion in Politics?**\
-`Readers respond to a column by David Brooks. Also: The marring of the White House; a sharp right turn to populism.`\
-https://nytimes.com/2025/10/13/opinion/religion-politics.html
 
