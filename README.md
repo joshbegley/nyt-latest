@@ -1,5 +1,9 @@
+**Why Joe Flacco and Bengals offer a glimmer of hope despite fourth straight loss**\
+`The veteran QB struggled early while learning on the fly but found a groove, especially with Ja'Marr Chase, in the second half.`\
+https://nytimes.com/athletic/6712353/2025/10/12/joe-flacco-bengals-packers-jamarr-chase/
+
 **Denny Hamlin ties 10th in all-time NASCAR wins as he chases championship**\
-`An emotional Hamlin was crying in his car after the race, and he became choked up in his post-race interview.`\
+`An emotional Hamlin was crying in his car after the race, and he became choked up in his postrace interview.`\
 https://nytimes.com/athletic/6712264/2025/10/12/nascar-denny-hamlin-60th-career-win/
 
 **Blue Jays-Mariners Game 1 takeaways: Raleigh powers Seattle to ALCS lead**\
@@ -34,8 +38,4 @@ https://nytimes.com/2025/10/12/business/trump-china-tariffs-global-markets.html
 **Dodgers to start Snell, Yamamoto for NLCS; Ohtani to pitch 'at some point'**\
 `Designating Snell and Yamamoto to pitch the first two games would let them maintain their usual pitching schedules.`\
 https://nytimes.com/athletic/6712052/2025/10/12/nlcs-dodgers-pitching-start-snell-yamamoto-ohtani/
-
-**Little-known rule wipes Lions’ trick-play touchdown off the board vs. Chiefs**\
-`The Lions' play seemed to work as they drew it up, but their execution was just a bit off.`\
-https://nytimes.com/athletic/6712080/2025/10/12/jared-goff-lions-penalty-illegal-motion/
 
