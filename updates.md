@@ -1,3 +1,7 @@
+**North Carolina Republicans Plan to Redraw Congressional Map to Add a Seat**\
+`The Trump administration has pushed Republican leaders to redraw House district maps before the midterm elections next year. His party already holds 10 of North Carolina’s 14 congressional seats.`\
+https://nytimes.com/2025/10/13/us/north-carolina-republicans-redistricting.html
+
 **Why Diane Keaton’s Death Hits Harder**\
 `For many of her fans, she was like a rare bird soaring from bygone days when progress and growing freedoms for women seemed inevitable.`\
 https://nytimes.com/2025/10/13/style/why-diane-keatons-death-hits-harder.html
