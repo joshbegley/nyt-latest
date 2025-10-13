@@ -1,3 +1,7 @@
+**Michigan and Ohio State fans: How optimistic are you about The Game? Take our survey**\
+`We're taking our Hope-o-Meter local to college football's best rivalry. Michigan and Ohio State fans, let us know how you're feeling.`\
+https://nytimes.com/athletic/6712976/2025/10/13/michigan-ohio-state-rivalry-2025-hope-o-meter/
+
 **Toby Talbot, Impassioned Promoter of Art Films, Dies at 96**\
 `With her husband, Dan, she ran four theaters in Manhattan and a company that distributed foreign and independent classics.`\
 https://nytimes.com/2025/10/13/movies/toby-talbot-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6708110/2025/10/13/minnesota-timberwolves-how-to-wa
 **Lowetide: What we learned from the Oilers' 2025-26 opening weekend**\
 `Two games is a tiny sample size, but the Oilers have started to answer some questions from the beginning of camp.`\
 https://nytimes.com/athletic/6711238/2025/10/13/edmonton-oilers-philp-savoie-howard-frederic/
-
-**The Athletic 136: The case for No. 1 Indiana (not Ohio State or Miami) at midseason**\
-`College football is the most fun when we're wrong. Indiana climbing to No. 1 isn't something many could've predicted.`\
-https://nytimes.com/athletic/6711911/2025/10/13/college-football-team-rankings-indiana-ohio-state-oregon/
 

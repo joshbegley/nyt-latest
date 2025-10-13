@@ -1,3 +1,7 @@
+**Michigan and Ohio State fans: How optimistic are you about The Game? Take our survey**\
+`We're taking our Hope-o-Meter local to college football's best rivalry. Michigan and Ohio State fans, let us know how you're feeling.`\
+https://nytimes.com/athletic/6712976/2025/10/13/michigan-ohio-state-rivalry-2025-hope-o-meter/
+
 **Toby Talbot, Impassioned Promoter of Art Films, Dies at 96**\
 `With her husband, Dan, she ran four theaters in Manhattan and a company that distributed foreign and independent classics.`\
 https://nytimes.com/2025/10/13/movies/toby-talbot-dead.html
