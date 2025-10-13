@@ -1,3 +1,11 @@
+**Storm Brings Heavy Rain and Flooding to Northeast**\
+`A slow-moving storm flooded roads and knocked out power along the East Coast over the weekend.`\
+https://nytimes.com/video/weather/100000010456169/east-coast-storm-flooding.html
+
+**Colts' Anthony Richardson to miss time with eye injury**\
+`Richardson suffered an orbital fracture while using a stretching band during pregame warmups Sunday.`\
+https://nytimes.com/athletic/6713651/2025/10/13/anthony-richardson-injury-out-colts/
+
 **How to watch LSU vs. Vanderbilt: Time, TV, streaming**\
 `Find out how to watch the LSU Tigers play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6713982/2025/10/13/lsu-vs-vanderbilt-stream-how-to-watch-oct-18/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6713968/2025/10/13/michigan-state-vs-indiana-stream
 **How to watch Texas A&M vs. Arkansas: Time, TV, streaming**\
 `Find out how to watch the Texas A&M Aggies play the Arkansas Razorbacks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6713964/2025/10/13/texas-a-m-vs-arkansas-stream-how-to-watch-oct-18/
-
-**How to watch Oklahoma vs. South Carolina: Time, TV, streaming**\
-`Find out how to watch the Oklahoma Sooners play the South Carolina Gamecocks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6713962/2025/10/13/oklahoma-vs-south-carolina-stream-how-to-watch-oct-18/
-
-**How to watch Purdue vs. Northwestern: Time, TV, streaming**\
-`Find out how to watch the Purdue Boilermakers play the Northwestern Wildcats, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6713958/2025/10/13/purdue-vs-northwestern-stream-how-to-watch-oct-18/
 
