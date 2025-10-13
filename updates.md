@@ -1,3 +1,19 @@
+**Review: ‘Are the Bennet Girls OK?’ Well, Their Mother Is Magnificent.**\
+`Bedlam’s sharply irreverent production of Emily Breeze’s comedy, a riff on “Pride and Prejudice,” has period dress, contemporary vernacular and a magnetic Mrs. Bennet.`\
+https://nytimes.com/2025/10/13/theater/are-the-bennet-girls-ok-review-bedlam.html
+
+**Tarik Skubal, A.J. Hinch and the trade deadline: Takeaways from Scott Harris' postmortem presser**\
+`Like most fans, Harris felt conflicted about the ups and downs of the 2025 Detroit Tigers season. `\
+https://nytimes.com/athletic/6713810/2025/10/13/tigers-scott-harris-postmortem-presser-takeaways/
+
+**Searching for sports at New York Comic Con**\
+`It turns out you don't have to look too hard to find sports representation at the epicenter of nerdiness. `\
+https://nytimes.com/athletic/6712194/2025/10/13/new-york-comic-con-sports/
+
+**Lakers preseason mailbag: What does life without LeBron look like?**\
+`Plus, an update on Dalton Knecht, how Jake LaRavia could fit into the rotation and Deandre Ayton's MIP chances.`\
+https://nytimes.com/athletic/6713737/2025/10/13/lakers-preseason-mailbag-starting-without-lebron-james/
+
 **Big Ten fines USC for playing running back listed as 'out' pregame**\
 `The instance is the first publicly known fine for a program violating an availability report.`\
 https://nytimes.com/athletic/6713920/2025/10/13/usc-fine-big-ten-football-bryan-jackson/
