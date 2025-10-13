@@ -1,3 +1,11 @@
+**How to watch Red Wings vs. Maple Leafs: Time, TV, streaming**\
+`Find out how to watch the Detroit Red Wings play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6712941/2025/10/13/red-wings-vs-maple-leafs-stream-how-to-watch-oct-13/
+
+**2 Men Charged After Ian Watkins, Former Lostprophets Singer, Is Killed in Prison**\
+`Mr. Watkins had been serving a 29-year sentence for child sex abuse offenses at the Wakefield Prison in northern England.`\
+https://nytimes.com/2025/10/13/world/europe/ian-watkins-killed-prison.html
+
 **Notre Dame-NC State final thoughts: Irish look tuned up for pivotal USC game**\
 `Knock off the Trojans next Saturday and the Irish will get a fresh look from outside South Bend. And there’s a lot worth watching.`\
 https://nytimes.com/athletic/6712885/2025/10/13/notre-dame-nc-state-tape-review/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/13/arts/design/peter-doig-serpentine-gallery-london.
 **The Pulse: Sunday’s best guys**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6712118/2025/10/13/cal-raleigh-baker-mayfield-james-franklin-the-pulse/
-
-**Inside Newcastle Q&A: Chris Waugh answers your questions**\
-`The club have been busy this international break, with Ross Wilson arriving as sporting director. Have a question? Send it to Chris now`\
-https://nytimes.com/athletic/6712617/2025/10/13/inside-newcastle-qa-chris-waugh-ross-wilson/
-
-**Olmo a major doubt for El Clasico with muscular injury**\
-`Barcelona confirmed on Monday the midfielder had sustained an injury to the soleus muscle in his left leg.`\
-https://nytimes.com/athletic/6706485/2025/10/13/dani-olmo-injury-update-barcelona-clasico/
 

@@ -1,3 +1,15 @@
+**Toby Talbot, Impassioned Promoter of Art Films, Dies at 96**\
+`With her husband, Dan, she ran four theaters in Manhattan and a company that distributed foreign and independent classics.`\
+https://nytimes.com/2025/10/13/movies/toby-talbot-dead.html
+
+**How to watch Indiana Pacers games during the 2025-26 season**\
+`It's supposed to be a down year for the Pacers, but even without Tyrese Haliburton, they can entertain. Here's how to watch all their games.`\
+https://nytimes.com/athletic/6708755/2025/10/13/indiana-pacers-tv-how-to-watch-2025-26/
+
+**Mac Jones' moxie isn't enough to offset the 49ers' stunning loss of talent**\
+`After Sunday's game Jones said playing through injuries is in the team's DNA. But you have to wonder how long that DNA is sustainable.`\
+https://nytimes.com/athletic/6712141/2025/10/13/mac-jones-performance-49ers-injuries/
+
 **How to watch Red Wings vs. Maple Leafs: Time, TV, streaming**\
 `Find out how to watch the Detroit Red Wings play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6712941/2025/10/13/red-wings-vs-maple-leafs-stream-how-to-watch-oct-13/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6711238/2025/10/13/edmonton-oilers-philp-savoie-how
 **The Athletic 136: The case for No. 1 Indiana (not Ohio State or Miami) at midseason**\
 `College football is the most fun when we're wrong. Indiana climbing to No. 1 isn't something many could've predicted.`\
 https://nytimes.com/athletic/6711911/2025/10/13/college-football-team-rankings-indiana-ohio-state-oregon/
-
-**Wilshere's Luton unveiling: 'Arteta said to jump in (to coaching) and swim as hard as you can'**\
-`Jack Wilshere says being a good player doesn't make you a good coach - but is hungry to achieve things as Luton Town manager.`\
-https://nytimes.com/athletic/6712744/2025/10/13/wilshere-luton-manager-arsenal-unveiling/
-
-**Music Influenced This Art. Now, Experience Them Together.**\
-`At “House of Music,” a London exhibition of paintings by Peter Doig, songs he typically plays in his private studio help bring his work to life.`\
-https://nytimes.com/2025/10/13/arts/design/peter-doig-serpentine-gallery-london.html
-
-**The Pulse: Sunday’s best guys**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6712118/2025/10/13/cal-raleigh-baker-mayfield-james-franklin-the-pulse/
 

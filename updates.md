@@ -1,3 +1,11 @@
+**How to watch Red Wings vs. Maple Leafs: Time, TV, streaming**\
+`Find out how to watch the Detroit Red Wings play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6712941/2025/10/13/red-wings-vs-maple-leafs-stream-how-to-watch-oct-13/
+
+**2 Men Charged After Ian Watkins, Former Lostprophets Singer, Is Killed in Prison**\
+`Mr. Watkins had been serving a 29-year sentence for child sex abuse offenses at the Wakefield Prison in northern England.`\
+https://nytimes.com/2025/10/13/world/europe/ian-watkins-killed-prison.html
+
 **Notre Dame-NC State final thoughts: Irish look tuned up for pivotal USC game**\
 `Knock off the Trojans next Saturday and the Irish will get a fresh look from outside South Bend. And there’s a lot worth watching.`\
 https://nytimes.com/athletic/6712885/2025/10/13/notre-dame-nc-state-tape-review/
