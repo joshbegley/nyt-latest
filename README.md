@@ -1,3 +1,11 @@
+**See excerpts from Trump’s prepared remarks to the Knesset.**\
+`By David M. Halbfinger`\
+https://nytimes.com/live/2025/10/12/world/israel-gaza-hostages-trump/see-excerpts-from-trumps-prepared-remarks-to-the-knesset
+
+**Rangers remain upbeat despite loss to Capitals — and with good reason**\
+`The Capitals presented the Rangers' biggest test so far this young season, and New York rose to the challenge.`\
+https://nytimes.com/athletic/6712345/2025/10/13/rangers-zibanejad-miller-capitals-lindgren/
+
 **Australia captain Cummins admits he is unlikely to play in first Ashes Test**\
 `The fast bowler has been sidelined since July with a stress fracture in his lower back.`\
 https://nytimes.com/athletic/6712712/2025/10/13/pat-cummins-ashes-injury-australia/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6708877/2025/10/13/maple-leafs-blue-jays-alcs/
 **NHL weekend rankings: It's too early to know anything, except maybe in Buffalo**\
 `It never makes sense to panic when you're two or three games in. Still, let's sort some teams after an eventful weekend.`\
 https://nytimes.com/athletic/6711122/2025/10/13/nhl-weekend-rankings-2025-26-buffalo-sabres-bruins/
-
-**Attorney General Letitia James to Headline Rally for Mamdani**\
-`In her first public appearance since she was indicted on a federal charge of bank fraud, Ms. James is expected to rebuke President Trump and make a case for Mr. Mamdani.`\
-https://nytimes.com/2025/10/13/nyregion/letitia-james-rally-zohran-mamdani.html
-
-**Two Years Later, Israel’s Last Hostages Return**\
-`Families of the released captives spoke of their emotions as their loved ones headed home.`\
-https://nytimes.com/2025/10/13/podcasts/the-daily/israels-hostages-released-gaza.html
 

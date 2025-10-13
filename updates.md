@@ -1,3 +1,7 @@
+**Australia captain Cummins admits he is unlikely to play in first Ashes Test**\
+`The fast bowler has been sidelined since July with a stress fracture in his lower back.`\
+https://nytimes.com/athletic/6712712/2025/10/13/pat-cummins-ashes-injury-australia/
+
 **Chiefs' offense is cooking ... and now they're getting back a huge missing ingredient**\
 `What dominated Chiefs locker-room talk (besides the fight) was the reality that they'll finally have their top three receivers on the field.`\
 https://nytimes.com/athletic/6711966/2025/10/13/chiefs-offense-lions-rashee-rice/
