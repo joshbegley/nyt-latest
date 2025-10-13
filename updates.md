@@ -1,3 +1,11 @@
+**Rams' Puka Nacua suffers ankle sprain vs. Ravens, status uncertain for Week 7**\
+`Nacua had to be helped to the locker room following the injury, though he did return for the second half and played a handful of snaps. `\
+https://nytimes.com/athletic/6713352/2025/10/13/rams-puka-nacua-injury-jaguars/
+
+**Small Plane Crashes on Massachusetts Highway, Killing 2**\
+`One person on the ground was injured when a plane crashed on a grassy highway median, forcing the closure of Interstate 195 in both directions in Dartmouth, Mass., officials said.`\
+https://nytimes.com/2025/10/13/us/highway-plane-crash-massachusetts.html
+
 **Israeli Hostages and Palestinian Prisoners Freed in Truce Exchange**\
 `Hamas released all 20 living Israeli hostages on Monday, and Israel said it freed the 1,968 Palestinian prisoners slated for release. The exchange of prisoners is part of the first phase of the Gaza cease-fire deal.`\
 https://nytimes.com/video/world/middleeast/100000010455901/gaza-ceasefire-hostages-palestinian-prisoners.html
