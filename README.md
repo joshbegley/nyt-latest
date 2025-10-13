@@ -1,3 +1,15 @@
+**Mariners tag Kirby, Castillo to start Games 3 and 4 of ALCS**\
+`All-Star starter Bryan Woo is also back in the mix for the Mariners, although they have not announced how they plan to deploy him.`\
+https://nytimes.com/athletic/6713795/2025/10/13/seattle-mariners-alcs-george-kirby-luis-castillo/
+
+**What Happened to Campus Activism Against the War in Gaza?**\
+`Protests swept campuses after the war began. But tough discipline, pushed by Republicans, curbed a student movement that was one of the largest since the Vietnam War.`\
+https://nytimes.com/2025/10/13/us/campus-activism-against-the-war-in-gaza.html
+
+**Bucks coach Doc Rivers denounces ICE activity in his hometown of Chicago**\
+`Rivers called Chicago an "amazing city" but said he hates what he's seeing with ICE activity. "That's not this country," he said.`\
+https://nytimes.com/athletic/6713950/2025/10/13/milwaukee-bucks-doc-rivers-denounces-ice-chicago/
+
 **NASCAR Las Vegas takeaways: Denny Hamlin joins greats with emotional victory**\
 `Hamlin books his spot in Phoenix, Team Penske is on the ropes and more from the playoff weekend in Las Vegas.`\
 https://nytimes.com/athletic/6713668/2025/10/13/nascar-las-vegas-denny-hamlin-penske-takeaways/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6713920/2025/10/13/usc-fine-big-ten-football-bryan-
 **Rashford can be 'one of the world's best' with consistency, says Tuchel**\
 `Tuchel has tried to resurrect Rashford’s England career this year, but warned that the 27-year-old could still fail to fulfil his potential.`\
 https://nytimes.com/athletic/6713828/2025/10/13/marcus-rashford-thomas-tuchel-england/
-
-**Storm Brings Heavy Rain and Flooding to Northeast**\
-`A slow-moving storm flooded roads and knocked out power along the East Coast over the weekend.`\
-https://nytimes.com/video/weather/100000010456169/east-coast-storm-flooding.html
-
-**Colts' Anthony Richardson to miss time with eye injury**\
-`Richardson suffered an orbital fracture while using a stretching band during pregame warmups Sunday.`\
-https://nytimes.com/athletic/6713651/2025/10/13/anthony-richardson-injury-out-colts/
-
-**How to watch LSU vs. Vanderbilt: Time, TV, streaming**\
-`Find out how to watch the LSU Tigers play the Vanderbilt Commodores, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6713982/2025/10/13/lsu-vs-vanderbilt-stream-how-to-watch-oct-18/
 
