@@ -1,3 +1,7 @@
+**Blue Jays' Lukes not expected to miss time after leaving ALCS Game 1**\
+`An X-ray came back negative on Lukes' right knee after he fouled a ball off it and had to leave Game 1 of the ALCS.`\
+https://nytimes.com/athletic/6712124/2025/10/12/blue-jays-nathan-lukes-knee-foul-ball/
+
 **Blue Jays-Mariners Game 1 takeaways: Raleigh powers Seattle to ALCS lead**\
 `Despite coming off a 15-inning thriller in the ALDS on Friday night, the Mariners looked sharp in a 3-1 win over the Blue Jays.`\
 https://nytimes.com/athletic/6712034/2025/10/12/blue-jays-mariners-game-1-score-results-takeaways-playoffs-mlb/
