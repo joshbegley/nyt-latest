@@ -1,40 +1,40 @@
-**Swap of Israeli Hostages and Palestinian Prisoners Begins**\
-`Hamas began releasing some of the 20 living Israeli hostages held in Gaza on Monday as part of a cease-fire deal in exchange for nearly 2,000 Palestinian prisoners held in Israel.`\
-https://nytimes.com/video/world/middleeast/100000010455511/israel-gaza-hostages-prisoners.html
+**Originalist ‘Bombshell’ Complicates Case on Trump’s Power to Fire Officials**\
+`As the Supreme Court seems poised to expand the president’s power, a leading scholar whose work the justices have often cited issued a provocative dissent.`\
+https://nytimes.com/2025/10/13/us/politics/originalism-trump-supreme-court-unitary-executive.html
 
-**‘Real Progress’ Is Made in Delivering Aid to Gaza, U.N. Says**\
-`The cease-fire agreement reached last week contained stipulations for an increase of aid into the territory, where it had been sharply curtailed.`\
-https://nytimes.com/2025/10/13/world/middleeast/aid-gaza-un.html
+**Marc Maron on the End of His Landmark Podcast**\
+`The comedian, actor, and former podcaster discusses his decision to bring “WTF” to a close after 16 years and interviewing its final guest, Barack Obama.`\
+https://nytimes.com/2025/10/13/arts/marc-maron-wtf-podcast.html
 
-**NLCS predictions: Our experts pick whether the Dodgers or Brewers will win the pennant**\
-`It's the No. 1 seed versus the preseason favorite to win it all. Who will take home the NL title — Milwaukee or Los Angeles?`\
-https://nytimes.com/athletic/6711691/2025/10/13/dodgers-brewers-picks-predictions/
+**The Appalling Campaign to Erase Jan. 6 Never Ends**\
+`Trump and his Republican minions won’t rest until the truth of that day is buried.`\
+https://nytimes.com/2025/10/13/opinion/january-6-trump-erase.html
 
-**'It's our time': Bears hope late-game magic becomes the norm**\
-`For the 2025 Bears, a buildup of belief has become essential. The team's win in Las Vegas provided just that.`\
-https://nytimes.com/athletic/6707649/2025/10/13/bears-caleb-williams-late-game-magic/
+**‘After the Hunt’ Brings the #MeToo Backlash to the Movies**\
+`The reactionary centrism of the new Julia Roberts film.`\
+https://nytimes.com/2025/10/13/opinion/after-the-hunt-metoo-backlash.html
 
-**Pop quiz! Knicks' Jordan Clarkson answers various questions about lengthy NBA career**\
-`Jordan Clarkson tried to recall important moments in his career, while also telling stories along the way.`\
-https://nytimes.com/athletic/6708817/2025/10/13/knicks-jordan-clarkson-career-lakers-jazz-cavaliers-nba/
+**Why Ukraine Is Betting on Strikes Deep Inside Russia**\
+`The Kremlin will only negotiate if missiles and drones bring the pain of war home to Russians, Ukrainian officials say.`\
+https://nytimes.com/2025/10/13/world/europe/ukraine-long-range-strikes-russia.html
 
-**Why there's another MNF doubleheader this week — and how to watch both games**\
-`Your TV's split-screen feature should get its cardio in tonight, and the "previous channel" button on your remote will come up clutch.`\
-https://nytimes.com/athletic/6699117/2025/10/13/monday-night-football-how-to-watch-bills-falcons-bears-commanders/
+**Falcons WR Casey Washington ready for another 'Holy cow' moment on MNF vs. Bills**\
+`Things have slowed down for the Atlanta receiver in his second season. He thinks he's ready to step in for Darnell Mooney and contribute.`\
+https://nytimes.com/athletic/6707258/2025/10/13/casey-washington-falcons-mnf-bills/
 
-**Three Cubs offseason questions: Kyle Tucker's future, rotation makeup, bullpen rebuild**\
-`After taking the Brewers to five games in the NLDS, the Cubs will shift their attention to their roster for next season.`\
-https://nytimes.com/athletic/6711125/2025/10/13/cubs-offseason-questions-kyle-tucker/
+**Nick Offerman Woodworked His Way to Playing the President**\
+`Once a struggling artist looking to find his way in the acting world, Mr. Offerman leveraged his love of craft into a lasting career.`\
+https://nytimes.com/2025/10/13/style/nick-offerman-woodworked-his-way-to-playing-the-president.html
 
-**How the Dodgers' Roki Sasaki redisovered his 'Monster of the Reiwa Era' sizzle**\
-`Roki Sasaki spent most of the season searching for his missing velocity. He rediscovered all 100 mph at just the right time.`\
-https://nytimes.com/athletic/6710871/2025/10/13/dodges-roki-sasaki-mlb-postseason-nlcs/
+**Coal Miners With Black Lung Say They Are ‘Cast Aside to Die’ Under Trump**\
+`President Trump has been a cheerleader for coal miners. But these miners say his administration is failing to enforce limits on a lethal workplace hazard.`\
+https://nytimes.com/2025/10/13/climate/coal-miners-with-black-lung-say-they-are-cast-aside-to-die-under-trump.html
 
-**China Hosts a Summit on Women’s Rights, While Stifling Activism**\
-`The conference was billed as a celebration of China’s achievements in supporting women. But the government has mostly wiped out independent advocacy groups.`\
-https://nytimes.com/2025/10/13/world/asia/china-womens-rights-feminism.html
+**What’s the Best Way to Wear a Button-Up Shirt?**\
+`The humble closet staple can be dressed up and down in seemingly infinite ways. Our critic offers a few options for taking it from the office to the street.`\
+https://nytimes.com/2025/10/13/fashion/button-up-down-shirt.html
 
-**Mamdani Seeks to Charm New York’s Most Powerful Capitalists**\
-`Key power brokers attacked Zohran Mamdani and raised millions for his leading opponent in the Democratic primary. Now many are talking to him behind the scenes.`\
-https://nytimes.com/2025/10/13/nyregion/mamdani-charm-business-leaders.html
+**25 Great Looks from the Runways**\
+`Members of the Styles team fantasy shop the recent collections.`\
+https://nytimes.com/2025/10/13/style/fashion-week-best-designer-looks.html
 
