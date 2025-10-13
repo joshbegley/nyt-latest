@@ -1,3 +1,27 @@
+**Only the 0-6 Jets stand between the Panthers' offense and a most unexpected 3-game run**\
+`Powered by running back Rico Dowdle, the Panthers have never had a two-game run on offense quite like this one.`\
+https://nytimes.com/athletic/6712591/2025/10/13/panthers-cowboys-rico-dowdle-offense/
+
+**Is this 2023 all over again for the Eagles' offense? Is it worse?**\
+`Nick Sirianni's fourth offensive coordinator in five seasons, Kevin Patullo, is off to a slow start.`\
+https://nytimes.com/athletic/6712594/2025/10/13/eagles-offense-kevin-patullo-nick-sirianni/
+
+**The Brewers inadvertently ignited the torpedo bat craze. Now they're in the NLCS**\
+`Six months after the Brewers' imprecise pitching ignited a craze, the phrase "torpedo bats" still inspires smirks and groans from the team. `\
+https://nytimes.com/athletic/6712076/2025/10/13/milwaukee-brewers-ignited-torpedo-bat-craze-nlcs/
+
+**Same old Jets? Why the 0-6 start is especially difficult to stomach: Sando's Pick Six**\
+`Few people expected the Jets to be good, but watching the rival Patriots and Aaron Rodgers' Steelers winning only exacerbates the misery.`\
+https://nytimes.com/athletic/6704983/2025/10/13/jets-aaron-glenn-justin-fields-aaron-rodgers/
+
+**What we learned in NFL Week 6: Chiefs climb back, Baker Mayfield making MVP case**\
+`Chaos reigns six weeks into the NFL season.`\
+https://nytimes.com/athletic/6712116/2025/10/13/nfl-week-6-takeaways-chiefs-lions-baker-mayfield/
+
+**The New York Times International Edition in Print for Tuesday, Oct. 14, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/10/13/todays-new-york-times-international-edition
+
 **How to watch Predators vs. Senators: Time, TV, streaming**\
 `Find out how to watch the Nashville Predators play the Ottawa Senators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6712710/2025/10/13/predators-vs-senators-stream-how-to-watch-oct-13/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6712707/2025/10/13/jets-vs-islanders-stream-how-to-
 **How to watch Avalanche vs. Sabres: Time, TV, streaming**\
 `Find out how to watch the Colorado Avalanche play the Buffalo Sabres, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6712705/2025/10/13/avalanche-vs-sabres-stream-how-to-watch-oct-13/
-
-**How to watch Steelers vs. Bengals: Time, TV, streaming**\
-`Find out how to watch the Pittsburgh Steelers play the Cincinnati Bengals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6712686/2025/10/13/steelers-vs-bengals-stream-how-to-watch-oct-16/
-
-**How to watch Dodgers at Brewers: Game 1 Time, TV, streaming**\
-`Find out how to watch the Los Angeles Dodgers play the Milwaukee Brewers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6712682/2025/10/13/dodgers-vs-brewers-stream-how-to-watch-oct-13/
-
-**How to watch Mariners at Blue Jays: Game 2 Time, TV, streaming**\
-`Find out how to watch the Seattle Mariners play the Toronto Blue Jays, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6712679/2025/10/13/mariners-vs-blue-jays-stream-how-to-watch-oct-13/
-
-**Originalist ‘Bombshell’ Complicates Case on Trump’s Power to Fire Officials**\
-`As the Supreme Court seems poised to expand the president’s power, a leading scholar whose work the justices have often cited issued a provocative dissent.`\
-https://nytimes.com/2025/10/13/us/politics/originalism-trump-supreme-court-unitary-executive.html
-
-**Marc Maron on the End of His Landmark Podcast**\
-`The comedian, actor, and former podcaster discusses his decision to bring “WTF” to a close after 16 years and interviewing its final guest, Barack Obama.`\
-https://nytimes.com/2025/10/13/arts/marc-maron-wtf-podcast.html
-
-**The Appalling Campaign to Erase Jan. 6 Never Ends**\
-`Trump and his Republican minions won’t rest until the truth of that day is buried.`\
-https://nytimes.com/2025/10/13/opinion/january-6-trump-erase.html
 
