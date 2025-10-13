@@ -1,3 +1,15 @@
+**Penn State looks to program reset after ‘difficult’ James Franklin firing**\
+`“Our next coach needs to be able to maximize elite-level resources, attack the transfer portal and develop,” said AD Pat Kraft.`\
+https://nytimes.com/athletic/6713483/2025/10/13/penn-state-pat-kraft-on-franklin-fire/
+
+**Scoop City: Risers and fallers after Sunday of Week 6**\
+`Baker Mayfield improved his MVP candidacy, Drake Maye's sophomore breakout continued as the Chiefs, Chargers and Panthers trend up`\
+https://nytimes.com/athletic/6713792/2025/10/13/trending-nfl-week-6-risers-fallers-chiefs-49ers-buccaneers/
+
+**Doug Lebda, LendingTree Founder and C.E.O., Dies in A.T.V. Accident**\
+`Mr. Lebda died on Sunday following an all-terrain vehicle accident on his family’s North Carolina farm, a company spokeswoman said.`\
+https://nytimes.com/2025/10/13/business/doug-lebda-lendingtree-accident-death.html
+
 **Gazans See Little to Celebrate Even Though the Bombs Have Stopped**\
 `The cease-fire in Gaza has taken hold. Hostages and prisoners have been exchanged. But amid the utter devastation of two years of war, a sense of gloom pervades.`\
 https://nytimes.com/2025/10/13/world/europe/gazans-ceasefire-relief-gloom.html
