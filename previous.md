@@ -1,40 +1,41 @@
-**TAFC: The joy of life as ‘the worst team in the world’. Plus: What fast food can teach USMNT boss**\
-`Today in TAFC: Meet the team that take pride in being perennial losers. Plus: Mauricio Pochettino finds inspiration in fast food`\
-https://nytimes.com/athletic/6715513/2025/10/14/the-joy-of-life-as-the-worst-team-in-the-world-plus-what-fast-food-can-teach-usmnt-boss/
+**Meet Zohran Mamdani, the Favorite to Lead New York City**\
+`Our reporters explore his skyrocket, his life and his appeal.`\
+https://nytimes.com/2025/10/14/us/meet-zohran-mamdani-the-favorite-to-lead-new-york-city.html
 
-**Slowing Electric Vehicle Sales Will Cost G.M. $1.6 Billion**\
-`General Motors said it would lower its earnings by that amount to mainly reflect the drop in the value of equipment, factories and other assets.`\
-https://nytimes.com/2025/10/14/business/general-motors-electric-vehicles-loss.html
+**What happens when you drop the NFL's top pick into a den of dysfunction?**\
+`The Titans feel good about Ward. Nearly everything else in Tennessee appears to be a disordered mess.
+`\
+https://nytimes.com/athletic/6714832/2025/10/14/cam-ward-rookie-qb-titans-organizational-dysfunction/
 
-**Bears win a game they usually lose and exorcise ghosts of past failures**\
-`Last year’s Hail Mary loss started a downward spiral that caused in-season firings and a 10-game losing streak. But now the sun is shining.`\
-https://nytimes.com/athletic/6715109/2025/10/14/bears-commanders-week-6-comeback-victory/
+**The Rangers need Alexis Lafrenière to bounce back. Can the No. 1 pick deliver?**\
+`Breaking down two recent plays from the 24-year-old that highlight his potential for a New York team in desperate need of secondary offense.`\
+https://nytimes.com/athletic/6713463/2025/10/14/alexis-lafreniere-new-york-rangers-stats/
 
-**Former referee David Coote pleads guilty to making indecent image of child**\
-`The 43-year-old admitted the offence during a brief hearing at Nottingham Crown Court on Tuesday.`\
-https://nytimes.com/athletic/6715522/2025/10/14/david-coote-guilty-court-case/
+**With little on the books, Guardians can eye some upgrades**\
+`The Guardians must spend this offseason—payroll room and a contending roster leave no excuse to delay fixing a bottom-tier offense.`\
+https://nytimes.com/athletic/6696790/2025/10/14/guardians-payroll-breakdown/
 
-**Where Jaxson Dart excelled that should have the Giants most excited: Week 6 film review**\
-`Plus, the Chiefs offense has found its groove, and why Bo Nix could be lowering the Broncos' ceiling this season.`\
-https://nytimes.com/athletic/6712580/2025/10/14/jaxson-dart-chiefs-bo-nix-film-review/
+**Which college football teams feel hopeless at midseason? Wisconsin, UNC and more**\
+`Some big-name coaches are on the hot seat. We looked at 10 teams deep in the darkness alongside Penn State.`\
+https://nytimes.com/athletic/6714477/2025/10/14/wisconsin-unc-penn-state-college-football-sad-programs/
 
-**What's expected in WNBA's consequential offseason as CBA deadline nears?**\
-`Salaries, revenue share and scheduling details are important issues in the CBA negotiations.`\
-https://nytimes.com/athletic/6714451/2025/10/14/wnba-offseason-cba-deadline/
+**Golden State of mind: With rare maturity, teens Ben Kindel, Harrison Brunicke hit California in stride**\
+`Kindel and Brunicke are taking the NHL by storm so far and hoping to stick around for a while longer.`\
+https://nytimes.com/athletic/6714189/2025/10/14/penguins-ben-kindel-harrison-brunicke-maturity/
 
-**The Pulse: Four highlights from a stacked night**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6714778/2025/10/14/nfl-mlb-highlights-the-pulse/
+**How many mistakes did Commanders make in loss to Bears? Let's count them**\
+`Washington's smorgasbord of miscues included missed tackles, blown coverages, dropped passes, a missed field goal and three turnovers.`\
+https://nytimes.com/athletic/6715543/2025/10/14/commanders-bears-turnovers-mistakes-mnf/
 
-**Feldman's coaching hot seat at midseason: Luke Fickell, Hugh Freeze and more**\
-`Penn State continued an active early college football coaching carousel, and more movement is sure to come. Here's who to watch.`\
-https://nytimes.com/athletic/6714251/2025/10/14/college-football-hot-seat-coaches-fickell-napier-freeze/
+**Bengals notebook: How Joe Flacco freed up the offense, plus a potential benching**\
+`Also, Trey Hendrickson's injury status and a wild Thursday night trend in the AFC North.`\
+https://nytimes.com/athletic/6714484/2025/10/14/bengals-steelers-joe-flacco-cam-taylor-britt/
 
-**How Chick-fil-A’s chairman inspired Mauricio Pochettino’s ‘culture’ message to USMNT**\
-`"The team culture, the team togetherness, is stronger than any individual," USMNT midfielder Brenden Aaronson said.`\
-https://nytimes.com/athletic/6714870/2025/10/14/us-mens-soccer-mauricio-pochettino-culture/
+**The 10 best things I saw in college football recruiting over the weekend**\
+`Ethan "Boobie" Feaster, a four-star wide receiver who is committed to USC, has several big catches for DeSoto (Texas) High.`\
+https://nytimes.com/athletic/6713986/2025/10/14/college-football-recruiting-thoughts-week-7/
 
-**It doesn't appear major changes coming to Cowboys defense: 'We're gonna ride this thing out'**\
-`“Matt Eberflus is a damn good football coach," Cowboys coach Brian Schottenheimer said of his defensive coordinator.`\
-https://nytimes.com/athletic/6714821/2025/10/14/cowboys-defense-matt-eberflus-job-security/
+**Grading all 18 Big Ten teams at midseason, from Ohio State (A) to Penn State (F)**\
+`Plenty of upward — and downward — mobility is within reach for these teams before final exams.`\
+https://nytimes.com/athletic/6714399/2025/10/14/big-ten-football-midseason-grades/
 
