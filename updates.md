@@ -1,3 +1,7 @@
+**Simone Biles says she'll be at 2028 L.A. Olympics 'in some capacity'**\
+`"I just don't know right now if it's on the floor or in the stands," Biles said during an appearance in Argentina last week.`\
+https://nytimes.com/athletic/6715862/2025/10/14/simone-biles-olympics-games-2028/
+
 **China Wants Foreign Scientists. The Public Says No, Thanks.**\
 `Since Beijing announced a new visa to attract young science and technology graduates, a backlash has erupted online, forcing the government to respond.`\
 https://nytimes.com/2025/10/14/world/asia/china-stem-visa-racist-backlash.html
