@@ -1,3 +1,7 @@
+**The Hidden Costs of Downsizing**\
+`They hoped a smaller home would save money — but the reality is proving more costly.`\
+https://nytimes.com/2025/10/14/realestate/downsizing.html
+
 **How to watch Predators vs. Maple Leafs: Time, TV, streaming**\
 `Find out how to watch the Nashville Predators play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6716215/2025/10/14/predators-vs-maple-leafs-stream-how-to-watch-oct-14/

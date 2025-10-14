@@ -1,3 +1,7 @@
+**Let’s Talk About Divorce After 50**\
+`‘Gray divorce’ is becoming more common. We want to hear about yours.`\
+https://nytimes.com/2025/10/14/well/family/gray-divorce-callout.html
+
 **The Hidden Costs of Downsizing**\
 `They hoped a smaller home would save money — but the reality is proving more costly.`\
 https://nytimes.com/2025/10/14/realestate/downsizing.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/smarter-living/wirecutter/100000010457378/dont-use-non
 **Trump’s Trade War With China Catches the World in Its Crossfire**\
 `Tariffs and other restrictions between the United States and China are reverberating in unpredictable ways.`\
 https://nytimes.com/2025/10/14/business/economy/us-china-trade-tariffs-global-economy.html
-
-**Supreme Court Denies Alex Jones’s Appeal of Payment to Sandy Hook Families**\
-`Mr. Jones was ordered to pay $1.4 billion in damages to families who lost children in the 2012 shooting in Newtown, Conn.`\
-https://nytimes.com/2025/10/14/us/politics/supreme-court-alex-jones-defamation.html
 
