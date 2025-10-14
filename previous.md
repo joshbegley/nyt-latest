@@ -1,3 +1,15 @@
+**Why Sweden fired Jon Dahl Tomasson: Shock results, fan fury and an awkward Isak/Gyokeres partnership**\
+`Tomasson’s reign was so spectacularly unpopular that you wonder if Sweden will ever appoint a foreign coach again`\
+https://nytimes.com/athletic/6715693/2025/10/14/why-sweden-fired-tomasson-isak-gyokeres/
+
+**Hoping to Steady Political Crisis, French Prime Minister Offers to Suspend Pension Overhaul**\
+`The move by Sébastien Lecornu was a major concession as he faced no-confidence votes that threatened to topple his government again this week.`\
+https://nytimes.com/2025/10/14/world/europe/hoping-to-steady-political-crisis-french-prime-minister-offers-to-suspend-pension-overhaul.html
+
+**Court rejects Israeli gymnastics' appeals to be included in world championships**\
+`The Court of Arbitration for Sport on Tuesday rejected appeals from Israel's gymnastics federation seeking to block Indonesia's decision.`\
+https://nytimes.com/athletic/6715882/2025/10/14/israel-gymnastics-ban-world-championship-appeal/
+
 **Simone Biles says she'll be at 2028 L.A. Olympics 'in some capacity'**\
 `"I just don't know right now if it's on the floor or in the stands," Biles said during an appearance in Argentina last week.`\
 https://nytimes.com/athletic/6715862/2025/10/14/simone-biles-olympics-games-2028/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6715270/2025/10/14/brewers-double-play-dodgers-the-
 **Devastating Rains in Mexico Leave Dozens Dead and Missing**\
 `Floods and landslides in Mexico killed several dozen people, destroying homes and isolating communities in the central and eastern parts of the country.`\
 https://nytimes.com/video/world/americas/100000010457262/mexico-rain-floods-landslides-deaths.html
-
-**How to watch the Sacramento Kings during the 2025-26 regular season**\
-`The Kings are hoping for more stability, and more wins, this year. Here's how to watch their games, including several 8 p.m. PT tipoffs.`\
-https://nytimes.com/athletic/6712660/2025/10/14/sacramento-kings-nbc-late-games-schedule-how-to-watch/
-
-**Until Saturday: Franklin's rise and $45M fall**\
-`Until Saturday is The Athletic's free college football newsletter.`\
-https://nytimes.com/athletic/6715848/2025/10/14/james-franklin-penn-state-matt-rhule-until-saturday/
-
-**Protests in Brussels Halt Flights and Disrupt Public Transit**\
-`The demonstrations, organized by Belgium’s major trade unions, oppose austerity proposals that would affect pensions and other social welfare.`\
-https://nytimes.com/2025/10/14/world/europe/belgium-brussels-protests-pensions.html
 
