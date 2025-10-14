@@ -1,3 +1,11 @@
+**Scoop City: Another 'QB whisperer' fired**\
+`What's next after the Titans fired their head coach, plus Week 7 fantasy targets and Jake Ciely explaining how to fix broken teams`\
+https://nytimes.com/athletic/6716847/2025/10/14/brian-callahan-fired-titans-nfl-scoop-city-fantasy-waivers-week-7/
+
+**Ex-Astros GM James Click among those who have interviewed for Rockies' top job: Sources**\
+`The normally insular Rockies have committed to replacing Bill Schmidt with a candidate from outside the organization.`\
+https://nytimes.com/athletic/6717005/2025/10/14/rockies-baseball-operations-search-james-click/
+
 **Military Claims Power in Madagascar After President Is Impeached**\
 `The military in Madagascar assumed power after lawmakers voted to impeach President Andry Rajoelina on Tuesday. Mr. Rajoelina had gone into hiding on Monday after weeks of youth-led protests over corruption and the economy.`\
 https://nytimes.com/video/world/africa/100000010457798/military-takeover-madagascar-president-removed.html
