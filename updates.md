@@ -1,3 +1,11 @@
+**The Pope Needs to Be More Specific**\
+`A pious vision of political economy should get more concrete.`\
+https://nytimes.com/2025/10/14/opinion/pope-leo-dilexi-te-politics.html
+
+**Teoscar Hernández blames himself for wild double play in NLCS Game 1**\
+`Hernández was the runner on third when Max Muncy hit a 400-foot fly ball that resulted in a bizarre 8-6-2 double play.`\
+https://nytimes.com/athletic/6717108/2025/10/14/teoscar-hernandez-dodgers-brewers-double-play/
+
 **Teoscar Hernández blames himself for wild double play in NLCS Game 1**\
 `Hernández was the runner on third when Max Muncy hit a 400-foot flyball that resulted in a bizarre 8-6-2 double play.`\
 https://nytimes.com/athletic/6717108/2025/10/14/teoscar-hernandez-dodgers-brewers-double-play/
