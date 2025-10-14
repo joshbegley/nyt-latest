@@ -1,3 +1,23 @@
+**How to watch Predators vs. Maple Leafs: Time, TV, streaming**\
+`Find out how to watch the Nashville Predators play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6716215/2025/10/14/predators-vs-maple-leafs-stream-how-to-watch-oct-14/
+
+**How to watch Oilers vs. Rangers: Time, TV, streaming**\
+`Find out how to watch the Edmonton Oilers play the New York Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6716213/2025/10/14/oilers-vs-rangers-stream-how-to-watch-oct-14/
+
+**How to watch Kraken vs. Canadiens: Time, TV, streaming**\
+`Find out how to watch the Seattle Kraken play the Montreal Canadiens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6716208/2025/10/14/kraken-vs-canadiens-stream-how-to-watch-oct-14/
+
+**How to watch Lightning vs. Capitals: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Lightning play the Washington Capitals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6716206/2025/10/14/lightning-vs-capitals-stream-how-to-watch-oct-14/
+
+**A Furious Debate Over Autism’s Causes Leaves Parents Grasping for Answers**\
+`The Trump administration’s embrace of unproven or debunked theories about vaccines and Tylenol has left doctors fielding questions from worried parents.`\
+https://nytimes.com/2025/10/14/health/autism-parents-genetics-vaccines-tylenol.html
+
 **How to watch Rams vs. Jaguars: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Rams play the Jacksonville Jaguars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6716172/2025/10/14/rams-vs-jaguars-stream-how-to-watch-oct-19/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/10/14/us/politics/supreme-court-alex-jones-defamation.h
 **2026 NFL Draft order projections: Jets on track for No. 1, Bengals move into top 10**\
 `Aaron Glenn has the only winless team left in the NFL this season. Which other front offices should start turning one eye to the draft?`\
 https://nytimes.com/athletic/6713591/2025/10/14/nfl-draft-2026-top-10-jets-qbs/
-
-**The Bounce: Is Cooper Flagg a Rookie of the Year lock? Plus, we preview Wolves and Pistons**\
-`Zach Harper catches you up on the latest news around the NBA.`\
-https://nytimes.com/athletic/6716006/2025/10/14/cooper-flagg-timberwolves-pistons-nba-the-bounce/
-
-**I Simply Must Meatball**\
-`Sue Li’s new chicken meatballs with yogurt sauce are fast meatballs done right.`\
-https://nytimes.com/2025/10/14/dining/i-simply-must-meatball.html
-
-**Can This Tape Really Improve Your Workout?**\
-`The stretchy strips, known as kinesiology tape, may help you move better. But not for the reasons sports medicine experts once thought.`\
-https://nytimes.com/2025/10/14/well/move/can-this-tape-really-improve-your-workout.html
-
-**Former USMNT goalkeeper Guzan announces retirement**\
-`Guzan, 41, will call time on a 21-year professional career at the end of the 2025 MLS regular season.`\
-https://nytimes.com/athletic/6716079/2025/10/14/brad-guzan-usmnt-retirement/
-
-**Mark Cuban remains 'Team Ballmer,' denies cap trickery on Dirk Nowitzki deal**\
-`Former Mavericks owner Mark Cuban continues to defend Clippers owner Steve Ballmer and sets the record straight on Dirk Nowitzki's contract.`\
-https://nytimes.com/athletic/6715163/2025/10/14/mark-cuban-ballmer-dirk-nowitzki-deal/
 

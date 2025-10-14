@@ -1,3 +1,23 @@
+**How to watch Predators vs. Maple Leafs: Time, TV, streaming**\
+`Find out how to watch the Nashville Predators play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6716215/2025/10/14/predators-vs-maple-leafs-stream-how-to-watch-oct-14/
+
+**How to watch Oilers vs. Rangers: Time, TV, streaming**\
+`Find out how to watch the Edmonton Oilers play the New York Rangers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6716213/2025/10/14/oilers-vs-rangers-stream-how-to-watch-oct-14/
+
+**How to watch Kraken vs. Canadiens: Time, TV, streaming**\
+`Find out how to watch the Seattle Kraken play the Montreal Canadiens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6716208/2025/10/14/kraken-vs-canadiens-stream-how-to-watch-oct-14/
+
+**How to watch Lightning vs. Capitals: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Lightning play the Washington Capitals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6716206/2025/10/14/lightning-vs-capitals-stream-how-to-watch-oct-14/
+
+**A Furious Debate Over Autism’s Causes Leaves Parents Grasping for Answers**\
+`The Trump administration’s embrace of unproven or debunked theories about vaccines and Tylenol has left doctors fielding questions from worried parents.`\
+https://nytimes.com/2025/10/14/health/autism-parents-genetics-vaccines-tylenol.html
+
 **How to watch Rams vs. Jaguars: Time, TV, streaming**\
 `Find out how to watch the Los Angeles Rams play the Jacksonville Jaguars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6716172/2025/10/14/rams-vs-jaguars-stream-how-to-watch-oct-19/
