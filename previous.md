@@ -15,7 +15,7 @@ https://nytimes.com/2025/10/14/climate/pfas-forever-chemicals-california-cookwar
 https://nytimes.com/athletic/6716129/2025/10/14/mat-ishbia-lawsuit-suns-buyout/
 
 **NFL MVP odds: Patrick Mahomes is inevitable**\
-`Mahomes is back on top of the MVP odds board. But will he hold onto it?`\
+`Mahomes is back on top of the MVP odds board. But will he hold on to it?`\
 https://nytimes.com/athletic/6713990/2025/10/14/nfl-mvp-odds-mahomes-mayfield-allen-quarterbacks/
 
 **Powell Signals Fed Is on Track to Keep Cutting Rates**\

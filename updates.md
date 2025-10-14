@@ -1,3 +1,7 @@
+**NFL MVP odds: Patrick Mahomes is inevitable**\
+`Mahomes is back on top of the MVP odds board. But will he hold on to it?`\
+https://nytimes.com/athletic/6713990/2025/10/14/nfl-mvp-odds-mahomes-mayfield-allen-quarterbacks/
+
 **College Football Playoff odds: Indiana is now a virtual lock and Oregon is not anymore**\
 `Ohio State, Miami and Indiana are heavily favored to make the College Football Playoff, but there's plenty of movement below them.`\
 https://nytimes.com/athletic/6716209/2025/10/14/college-football-playoff-odds-indiana-oregon/
