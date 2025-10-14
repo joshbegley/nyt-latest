@@ -1,3 +1,19 @@
+**The life of a Premier League player's personal chef: From Mauritian magic bowls to Bakewell tarts**\
+`Personal chefs are growing in popularity in football - we met one to see what a day is like preparing food for elite athletes`\
+https://nytimes.com/athletic/6696238/2025/10/14/premier-league-personal-chefs/
+
+**Barcelona's Aitana Bonmati and the town that made her - where her name, face and legacy is everywhere**\
+`Bonmati is a global superstar after winning the Ballon d'Or for the third time in a row, but it all started in a place called Ribes`\
+https://nytimes.com/athletic/6706769/2025/10/14/aitana-bonmati-barcelona-ballon-dor/
+
+**Alaska Flooding Leaves 1 Dead and 2 Missing**\
+`The three people had been reported missing from Kwigillingok, a low-lying village along the Bering Sea that was hit by remnants of Typhoon Halong.`\
+https://nytimes.com/2025/10/14/us/alaska-typhoon-flood-dead.html
+
+**Christian Horner has unfinished business in F1 and his return feels inevitable**\
+`If recently-sacked Red Bull principal can find the right terms and the right fit, a Formula One comeback would seem certain`\
+https://nytimes.com/athletic/6712698/2025/10/14/christian-horner-future-f1/
+
 **How Arsenal's dynamic midfield has enabled them to directly attack the channels this season**\
 `Mikel Arteta's summer transfer business has allowed his side to play into the channels much more`\
 https://nytimes.com/athletic/6696385/2025/10/14/arsenal-dynamic-midfield-zubimendi-eze/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6688584/2025/10/14/direct-football-tactics-premier-
 **U.S. Starts Charging Chinese Ships to Dock at Its Ports**\
 `The measure is aimed at countering China’s dominance of commercial shipbuilding and helping to revitalize the American industry.`\
 https://nytimes.com/2025/10/14/business/us-starts-charging-chinese-ships-to-dock-at-its-ports.html
-
-**Trump Ramps Up Trade War as Tariffs on Lumber and Furniture Kick in**\
-`The new taxes went into effect on Tuesday as President Trump also threatened to widen his trade war with China.`\
-https://nytimes.com/2025/10/14/business/economy/trump-ramps-up-trade-war-as-tariffs-on-lumber-and-furniture-kick-in.html
-
-**Connections: Sports Edition Coach: Hints for Oct. 14, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6714864/2025/10/14/connections-sports-edition-hints-for-oct-14-2025/
-
-**Fantasy football waiver wire Week 7: Kendrick Bourne, Bam Knight, streamers and more**\
-`Jake Ciely hopes this week will prove to be a little less tricky than last as he ranks the best waiver wire options for Week 7.`\
-https://nytimes.com/athletic/6714491/2025/10/14/fantasy-football-waiver-wire-week-7-kendrick-bourne-bam-knight-streamers-and-more/
-
-**Corrections: Oct. 14, 2025**\
-`Corrections that appeared in print on Tuesday, Oct. 14, 2025.`\
-https://nytimes.com/2025/10/13/pageoneplus/corrections-oct-14-2025.html
 
