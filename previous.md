@@ -1,5 +1,9 @@
+**U.S. Military Kills Another 6 People in 5th Caribbean Strike, Trump Says**\
+`In a social media post, the president said the people aboard a boat were suspected of smuggling drugs for an unspecified group his team had labeled terrorists.`\
+https://nytimes.com/2025/10/14/us/politics/trump-drugs-boat-attack.html
+
 **Justin Haley won't return to Spire Motorsports in 2026; Daniel Suárez in?**\
-`After a disappointing season in his first full year with Spire, Haley won't return for a second, the team announced Tuesday.`\
+`After a disappointing first season with Spire, Haley won't return for a second. Daniel Suarez is likely to take his spot, sources say.`\
 https://nytimes.com/athletic/6716658/2025/10/14/justin-haley-spire-motorsports-2026-daniel-suarez-nascar/
 
 **With Anthony Richardson on IR, the Colts need a backup QB. Here are 10 options**\
@@ -25,8 +29,4 @@ https://nytimes.com/2025/10/14/world/europe/ukraine-odesa-mayor-citizenship.html
 **Nigeria secure spot in World Cup play-offs, South Africa qualify for the first time since 2010**\
 `Victor Osimhen scored a hat-trick in a 4-0 win over Benin on Tuesday, while South Africa beat Rwanda 3-0 to top Group C.`\
 https://nytimes.com/athletic/6713152/2025/10/14/nigeria-south-africa-world-cup/
-
-**ICE Sends More Migrants to Guantánamo Bay, Resumes Operations**\
-`The offshore holding sites had been empty since Oct. 1. The nationalities of the new arrivals were not immediately known.`\
-https://nytimes.com/2025/10/14/us/politics/ice-migrants-guantanamo-bay.html
 
