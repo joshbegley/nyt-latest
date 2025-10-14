@@ -1,3 +1,19 @@
+**Madison, Wis.**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/madison-wis
+
+**U.S. Attorney Was Forced Out After Clashes Over How to Handle Russia Inquiry**\
+`The departures of Todd Gilbert and his deputy in the Western District of Virginia show the pressure being brought on prosecutors to pursue the president’s perceived foes.`\
+https://nytimes.com/2025/10/14/us/politics/doj-trump-russia-inquiry-prosecutors.html
+
+**Before Alaska Flooding, E.P.A. Canceled $20 Million Flood Protection Grant**\
+`The remote village of Kipnuk planned to use the money to protect against flooding. On Sunday, it was inundated.`\
+https://nytimes.com/2025/10/14/climate/kupnik-alaska-typhoon-trump-epa-flood.html
+
+**The Briefing: Latvia 0 England 5: Tuchel's team qualify for World Cup as Anthony Gordon stakes his claim**\
+`England sealed their place at the World Cup with a comfortable victory in Latvia`\
+https://nytimes.com/athletic/6715921/2025/10/14/latvia-0-england-5-tuchel-gordon-kane/
+
 **The Briefing: Latvia 0 England 5: Tuchel's team qualify in style as Anthony Gordon stakes his claim**\
 `England sealed their place at the World Cup with a comfortable victory in Latvia`\
 https://nytimes.com/athletic/6715921/2025/10/14/latvia-0-england-5-tuchel-gordon-kane/
