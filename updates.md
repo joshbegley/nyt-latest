@@ -1,3 +1,7 @@
+**TAFC: The joy of life as ‘the worst team in the world’. Plus: What fast food can teach USMNT boss**\
+`Today in TAFC: Meet the team that take pride in being perennial losers. Plus: Mauricio Pochettino finds inspiration in fast food`\
+https://nytimes.com/athletic/6715513/2025/10/14/the-joy-of-life-as-the-worst-team-in-the-world-plus-what-fast-food-can-teach-usmnt-boss/
+
 **Slowing Electric Vehicle Sales Will Cost G.M. $1.6 Billion**\
 `General Motors said it would lower its earnings by that amount to mainly reflect the drop in the value of equipment, factories and other assets.`\
 https://nytimes.com/2025/10/14/business/general-motors-electric-vehicles-loss.html
