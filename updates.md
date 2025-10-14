@@ -1,3 +1,7 @@
+**Senators' mentality gets its first test with potential Tkachuk injury**\
+`During the first period, Tkachuk was cross-checked into the boards by Predators defenceman Roman Josi. He didn't finish the game. `\
+https://nytimes.com/athletic/6713624/2025/10/13/senators-tkachuk-predators-wrist-saros/
+
 **Submit questions for Jeff Zrebiec's Ravens mailbag**\
 `Zrebiec will consider your questions for his upcoming mailbag as Baltimore is off to a disappointing 1-5 start through six weeks. `\
 https://nytimes.com/athletic/6714578/2025/10/13/ravens-mailbag-week-7-bye/

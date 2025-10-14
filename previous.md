@@ -1,3 +1,7 @@
+**Senators' mentality gets its first test with potential Tkachuk injury**\
+`During the first period, Tkachuk was cross-checked into the boards by Predators defenceman Roman Josi. He didn't finish the game. `\
+https://nytimes.com/athletic/6713624/2025/10/13/senators-tkachuk-predators-wrist-saros/
+
 **Submit questions for Jeff Zrebiec's Ravens mailbag**\
 `Zrebiec will consider your questions for his upcoming mailbag as Baltimore is off to a disappointing 1-5 start through six weeks. `\
 https://nytimes.com/athletic/6714578/2025/10/13/ravens-mailbag-week-7-bye/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6714556/2025/10/13/memphis-vs-uab-stream-how-to-wat
 **How to watch Washington State vs. Virginia: Time, TV, streaming**\
 `Find out how to watch the Washington State Cougars play the Virginia Cavaliers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6714555/2025/10/13/washington-state-vs-virginia-stream-how-to-watch-oct-18/
-
-**How to watch Penn State vs. Iowa: Time, TV, streaming**\
-`Find out how to watch the Penn State Nittany Lions play the Iowa Hawkeyes, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6714549/2025/10/13/penn-state-vs-iowa-stream-how-to-watch-oct-18/
 
