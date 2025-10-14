@@ -1,3 +1,27 @@
+**As Trump Hurls Fresh Threats and Insults, Hochul Has Mamdani’s Back**\
+`Zohran Mamdani, the Democratic front-runner in the New York City mayor’s race, appeared with Gov. Kathy Hochul for the first time since she endorsed him last month.`\
+https://nytimes.com/2025/10/14/nyregion/mamdani-hochul-trump.html
+
+**How to watch Commanders vs. Cowboys: Time, TV, streaming**\
+`Find out how to watch the Washington Commanders play the Dallas Cowboys, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6717496/2025/10/14/commanders-vs-cowboys-stream-how-to-watch-oct-19/
+
+**How to watch Giants vs. Broncos: Time, TV, streaming**\
+`Find out how to watch the New York Giants play the Denver Broncos, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6717483/2025/10/14/giants-vs-broncos-stream-how-to-watch-oct-19/
+
+**How to watch Packers vs. Cardinals: Time, TV, streaming**\
+`Find out how to watch the Green Bay Packers play the Arizona Cardinals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6717479/2025/10/14/packers-vs-cardinals-stream-how-to-watch-oct-19/
+
+**How to watch Colts vs. Chargers: Time, TV, streaming**\
+`Find out how to watch the Indianapolis Colts play the Los Angeles Chargers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6717471/2025/10/14/colts-vs-chargers-stream-how-to-watch-oct-19/
+
+**Blue Jays announce Max Scherzer as ALCS Game 4 starter; veteran to make 2025 October debut**\
+`With Toronto in a LCS hole, they need Scherzer to deliver another October performance to remember.`\
+https://nytimes.com/athletic/6717423/2025/10/14/toronto-blue-jays-max-scherzer-alcs-game-4-starter/
+
 **The Chicago Rat Hole Was Not Made by a Rat**\
 `A statistical analysis of an infamous indentation in a sidewalk suggested a 99 percent likelihood that another rodent made the mark.`\
 https://nytimes.com/2025/10/14/science/chicago-rat-hole-squirrel.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/10/14/nyregion/nyc-casinos-mgm-yonkers.html
 **Trump Says He May Give Tomahawks to Ukraine. Is He Bluffing?**\
 `President Trump’s threats to provide the missiles to Ukraine, whether he follows through on them or not, are a sign of his growing frustration with Moscow.`\
 https://nytimes.com/2025/10/14/us/politics/trump-tomahawks-ukraine-russia.html
-
-**White House Guts Education Department With More Layoffs**\
-`About a fifth of the agency’s remaining staff was affected, including employees working on special education, funding for low-income students and civil rights enforcement.`\
-https://nytimes.com/2025/10/14/us/politics/trump-education-department-federal-layoffs.html
-
-**Gaza’s Brittle Cease-Fire**\
-`Plus, remembering D’Angelo. Here’s the latest at the end of Tuesday.`\
-https://nytimes.com/2025/10/14/briefing/gaza-milei-dangelo.html
-
-**Flyers' Matvei Michkov struggling for ice time. What's going on?**\
-`Miscues and numerous Flyers penalties are among the reasons Michkov’s ice time has been limited.`\
-https://nytimes.com/athletic/6717014/2025/10/14/flyers-matvei-michkov-ice-time/
-
-**Jason Kidd signs multiyear extension with Mavs: Source**\
-`The Mavericks, who are coming off a 39-43 season, reached the NBA Finals in 2024.`\
-https://nytimes.com/athletic/6717255/2025/10/14/jason-kidd-extension-mavericks/
-
-**Artists Plan Nationwide Protests Against ‘Authoritarian Forces’**\
-`The visual artist Dread Scott, the playwright Lynn Nottage and others have organized a series of actions to unite the arts community against the Trump administration.`\
-https://nytimes.com/2025/10/14/arts/artists-trump-protests-fall-freedom.html
-
-**Freed Palestinian Prisoner Reunites With His Family in the West Bank**\
-`Zaid Junaidi was one of nearly 2,000 Palestinian prisoners and detainees released in exchange for the last 20 living Israeli hostages. The releases are part of the first phase of a cease-fire deal that took hold Friday.`\
-https://nytimes.com/video/world/middleeast/100000010458749/freed-palestinian-prisoner.html
 

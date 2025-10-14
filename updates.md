@@ -1,3 +1,7 @@
+**The Chicago Rat Hole Was Not Made by a Rat**\
+`A statistical analysis of an infamous indentation in a sidewalk suggested a 99 percent likelihood that another rodent made the mark.`\
+https://nytimes.com/2025/10/14/science/chicago-rat-hole-squirrel.html
+
 **In Patz Case, Manhattan Prosecutors Ask for Months to Decide on Retrial**\
 `The district attorney is searching for witnesses and plans to ask the Supreme Court to consider the Etan Patz case. A defense lawyer for the man accused in the killing says they’re dawdling.`\
 https://nytimes.com/2025/10/14/nyregion/etan-patz-retrial-appeals-court.html

@@ -1,3 +1,7 @@
+**The Chicago Rat Hole Was Not Made by a Rat**\
+`A statistical analysis of an infamous indentation in a sidewalk suggested a 99 percent likelihood that another rodent made the mark.`\
+https://nytimes.com/2025/10/14/science/chicago-rat-hole-squirrel.html
+
 **In Patz Case, Manhattan Prosecutors Ask for Months to Decide on Retrial**\
 `The district attorney is searching for witnesses and plans to ask the Supreme Court to consider the Etan Patz case. A defense lawyer for the man accused in the killing says they’re dawdling.`\
 https://nytimes.com/2025/10/14/nyregion/etan-patz-retrial-appeals-court.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/14/arts/artists-trump-protests-fall-freedom.html
 **Freed Palestinian Prisoner Reunites With His Family in the West Bank**\
 `Zaid Junaidi was one of nearly 2,000 Palestinian prisoners and detainees released in exchange for the last 20 living Israeli hostages. The releases are part of the first phase of a cease-fire deal that took hold Friday.`\
 https://nytimes.com/video/world/middleeast/100000010458749/freed-palestinian-prisoner.html
-
-**Sticky Rice Cakes With Sausage and Greens**\
-`Tteok, cylindrical or oval Korean rice cakes, are simple to prepare in this dish that’s playful, filling and kid-friendly. The New York Times Cooking columnist Yewande Komolafe shares her recipe with us.`\
-https://nytimes.com/video/dining/100000010457538/sticky-rice-cakes-with-sausage-and-greens.html
 
