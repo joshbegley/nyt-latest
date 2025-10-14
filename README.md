@@ -1,3 +1,11 @@
+**Scoop City: Another 'QB whisperer' fired**\
+`What's next after the Titans fired their head coach, plus Week 7 fantasy targets and Jake Ciely explaining how to fix broken teams`\
+https://nytimes.com/athletic/6716847/2025/10/14/brian-callahan-fired-titans-nfl-scoop-city-fantasy-waivers-week-7/
+
+**Ex-Astros GM James Click among those who have interviewed for Rockies' top job: Sources**\
+`The normally insular Rockies have committed to replacing Bill Schmidt with a candidate from outside the organization.`\
+https://nytimes.com/athletic/6717005/2025/10/14/rockies-baseball-operations-search-james-click/
+
 **Military Claims Power in Madagascar After President Is Impeached**\
 `The military in Madagascar assumed power after lawmakers voted to impeach President Andry Rajoelina on Tuesday. Mr. Rajoelina had gone into hiding on Monday after weeks of youth-led protests over corruption and the economy.`\
 https://nytimes.com/video/world/africa/100000010457798/military-takeover-madagascar-president-removed.html
@@ -25,12 +33,4 @@ https://nytimes.com/2025/10/14/us/dallin-oaks-mormon-latter-day-saints.html
 **Shai Gilgeous-Alexander rebuffs idea of playing until age 40**\
 `SGA isn't looking to follow in LeBron James' footsteps when it comes to longevity.`\
 https://nytimes.com/athletic/6716749/2025/10/14/shai-gilgeous-alexander-rebuffs-playing-until-40-thunder/
-
-**Lead Found in Popular Protein Powders and Shakes, Report Says**\
-`Experts said the levels were not high enough to cause immediate harm, but raised the risk of long-term health effects.`\
-https://nytimes.com/2025/10/14/well/lead-protein-powder.html
-
-**How to watch Penguins vs. Ducks: Time, TV, streaming**\
-`Find out how to watch the Pittsburgh Penguins play the Anaheim Ducks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6716873/2025/10/14/penguins-vs-ducks-stream-how-to-watch-oct-14/
 

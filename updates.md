@@ -1,3 +1,7 @@
+**Military Claims Power in Madagascar After President Is Impeached**\
+`The military in Madagascar assumed power after lawmakers voted to impeach President Andry Rajoelina on Tuesday. Mr. Rajoelina had gone into hiding on Monday after weeks of youth-led protests over corruption and the economy.`\
+https://nytimes.com/video/world/africa/100000010457798/military-takeover-madagascar-president-removed.html
+
 **D’Angelo: 14 Essential Songs**\
 `The soul singer, songwriter and producer, who died on Tuesday at 51, released three studio albums of meticulously constructed, vocally ambitious, genre-crossing music.`\
 https://nytimes.com/2025/10/14/arts/music/dangelo-songs-playlist.html

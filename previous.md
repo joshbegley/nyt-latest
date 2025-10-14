@@ -1,3 +1,7 @@
+**Military Claims Power in Madagascar After President Is Impeached**\
+`The military in Madagascar assumed power after lawmakers voted to impeach President Andry Rajoelina on Tuesday. Mr. Rajoelina had gone into hiding on Monday after weeks of youth-led protests over corruption and the economy.`\
+https://nytimes.com/video/world/africa/100000010457798/military-takeover-madagascar-president-removed.html
+
 **D’Angelo: 14 Essential Songs**\
 `The soul singer, songwriter and producer, who died on Tuesday at 51, released three studio albums of meticulously constructed, vocally ambitious, genre-crossing music.`\
 https://nytimes.com/2025/10/14/arts/music/dangelo-songs-playlist.html
@@ -29,8 +33,4 @@ https://nytimes.com/2025/10/14/well/lead-protein-powder.html
 **How to watch Penguins vs. Ducks: Time, TV, streaming**\
 `Find out how to watch the Pittsburgh Penguins play the Anaheim Ducks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6716873/2025/10/14/penguins-vs-ducks-stream-how-to-watch-oct-14/
-
-**How to watch Wild vs. Stars: Time, TV, streaming**\
-`Find out how to watch the Minnesota Wild play the Dallas Stars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6716871/2025/10/14/wild-vs-stars-stream-how-to-watch-oct-14/
 
