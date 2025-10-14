@@ -1,40 +1,40 @@
-**Madagascar’s Leader Flees**\
-`After weeks of violent protests, President Andry Rajoelina of Madagascar has gone into hiding. Demonstrators called for his resignation, but he insisted he would stay in power.`\
-https://nytimes.com/video/world/africa/100000010457088/madagascar-president-rajoelina.html
+**Jessica Berman on her desire to stay with NWSL: 'There is a lot more I have to give'**\
+`Berman has overseen a huge increase in NWSL club valuations and helped secure a four-year media deal worth $60 million a year`\
+https://nytimes.com/athletic/6713228/2025/10/14/jessica-berman-nwsl-leadership-contract/
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/10/14/crosswords/spelling-bee-forum.html
+**Ukraine’s Formula for Peace: Fewer Talks, More Weapons**\
+`As Russia rebuffs President Trump’s diplomatic push, President Volodymyr Zelensky of Ukraine plans to head again to the White House, this time seeking missiles.`\
+https://nytimes.com/2025/10/14/world/europe/zelensky-trump-tomahawk-missiles.html
 
-**Outdoor Space**\
-`Where do you like to spend time outside where you live?`\
-https://nytimes.com/2025/10/14/learning/outdoor-space.html
+**How do the 4-2 Patriots have the NFL's worst-ranked run game?**\
+`New England's running backs and offensive line have struggled, but Mike Vrabel is confident the offense can continue to score points.`\
+https://nytimes.com/athletic/6714055/2025/10/14/patriots-running-game-rhamondre-stevenson-treveyon-henderson/
 
-**Brighton owner Tony Bloom on the future of the Premier League and how his club will adapt to it**\
-`Bloom shares his views on football governance, the increasing American influence, and the possibility of league games being played overseas`\
-https://nytimes.com/athletic/6699541/2025/10/14/tony-bloom-brighton-interview-psr/
+**Where Jews and Arab Americans Live Side by Side, Renewed Hope**\
+`Detroit has one of the largest Arab American populations and a vibrant Jewish community. Both groups feel some relief, and lingering doubt.`\
+https://nytimes.com/2025/10/14/us/ceasefire-gaza-israel.html
 
-**Explosion at Italian Farmhouse Kills Three Military Police Officers**\
-`The police were carrying out an eviction order when a blast caused the building to collapse, officials said. More than a dozen officers were injured.`\
-https://nytimes.com/2025/10/14/world/europe/italy-carabinieri-explosion-verona.html
+**Five Takeaways From the Magazine’s Profile of Zohran Mamdani**\
+`How the Democratic nominee for mayor who has stunned the New York establishment is working to shore up support and sustain his momentum.`\
+https://nytimes.com/2025/10/14/magazine/zohran-mamdani-mayor-race-takeaways.html
 
-**How to watch Dodgers at Brewers: Game 2 Time, TV, streaming**\
-`Find out how to watch the Los Angeles Dodgers play the Milwaukee Brewers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6715240/2025/10/14/dodgers-vs-brewers-stream-how-to-watch-oct-14/
+**Shortages, Smoothies and Fraud: The Matcha Market Cracks Under Pressure**\
+`Once consumed mainly in small, formal tea ceremonies, matcha is now mixed into fruity lattes and preyed on by counterfeiters. Can it survive its own popularity?`\
+https://nytimes.com/2025/10/14/dining/matcha.html
 
-**Word of the Day: certitude**\
-`This word has appeared in 19 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/10/14/learning/word-of-the-day-certitude.html
+**The Conductor Who Set the Course of Music in the 20th Century**\
+`Pierre Monteux, who led the scandalous premiere of “The Rite of Spring,” went on to a career of remarkable peace and selflessness.`\
+https://nytimes.com/2025/10/14/arts/music/pierre-monteux-conductor.html
 
-**Late Night Tips the Hat to Trump for Middle East Cease-Fire**\
-`Jimmy Kimmel celebrated that President Trump “finally did something positive” with his role in the deal between Israel and Hamas.`\
-https://nytimes.com/2025/10/14/arts/television/late-night-trump-gaza-peace.html
+**Pete Buttigieg on Rebuilding America After Trump**\
+`The former transportation secretary argues Americans need a new sense of belonging.`\
+https://nytimes.com/2025/10/14/opinion/next-american-story-pete-buttigieg.html
 
-**The slumping Arizona Cardinals need more cowbell and to stick with QB Kyler Murray — for now**\
-`With Murray sidelined, backup Jacoby Brissett started a QB controversy with his strong play against Colts.`\
-https://nytimes.com/athletic/6714946/2025/10/14/arizona-cardinals-slumping-kyler-murray/
+**Will the Supreme Court Use a Louisiana Case to Gut the Voting Rights Act?**\
+`The justices have shown a willingness to chip away at the landmark civil rights legislation. A Louisiana case could unravel much of its remaining power.`\
+https://nytimes.com/2025/10/14/us/politics/supreme-court-voting-rights-act.html
 
-**Mike Shildt says decision to retire was his own, but Padres questions remain**\
-`Speaking Monday night, Shildt said he had just returned to San Diego after a week spent mulling things over at his home in North Carolina.`\
-https://nytimes.com/athletic/6715110/2025/10/14/san-diego-padres-mike-shildt-retirement-questions/
+**The Rise of Social Media and the Fall of Western Democracy**\
+`We are paying a tremendous political and psychological cost for access to social media.`\
+https://nytimes.com/2025/10/14/opinion/social-media-populism-trump-smartphones.html
 
