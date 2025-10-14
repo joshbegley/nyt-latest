@@ -1,3 +1,11 @@
+**Slowing Electric Vehicle Sales Will Cost G.M. $1.6 Billion**\
+`General Motors said it would lower its earnings by that amount to mainly reflect the drop in the value of equipment, factories and other assets.`\
+https://nytimes.com/2025/10/14/business/general-motors-electric-vehicles-loss.html
+
+**Bears win a game they usually lose and exorcise ghosts of past failures**\
+`Last year’s Hail Mary loss started a downward spiral that caused in-season firings and a 10-game losing streak. But now the sun is shining.`\
+https://nytimes.com/athletic/6715109/2025/10/14/bears-commanders-week-6-comeback-victory/
+
 **Former referee David Coote pleads guilty to making indecent image of child**\
 `The 43-year-old admitted the offence during a brief hearing at Nottingham Crown Court on Tuesday.`\
 https://nytimes.com/athletic/6715522/2025/10/14/david-coote-guilty-court-case/

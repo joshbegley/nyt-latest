@@ -1,3 +1,7 @@
+**TAFC: The joy of life as ‘the worst team in the world’. Plus: What fast food can teach USMNT boss**\
+`Today in TAFC: Meet the team that take pride in being perennial losers. Plus: Mauricio Pochettino finds inspiration in fast food`\
+https://nytimes.com/athletic/6715513/2025/10/14/the-joy-of-life-as-the-worst-team-in-the-world-plus-what-fast-food-can-teach-usmnt-boss/
+
 **Slowing Electric Vehicle Sales Will Cost G.M. $1.6 Billion**\
 `General Motors said it would lower its earnings by that amount to mainly reflect the drop in the value of equipment, factories and other assets.`\
 https://nytimes.com/2025/10/14/business/general-motors-electric-vehicles-loss.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6714870/2025/10/14/us-mens-soccer-mauricio-pochetti
 **It doesn't appear major changes coming to Cowboys defense: 'We're gonna ride this thing out'**\
 `“Matt Eberflus is a damn good football coach," Cowboys coach Brian Schottenheimer said of his defensive coordinator.`\
 https://nytimes.com/athletic/6714821/2025/10/14/cowboys-defense-matt-eberflus-job-security/
-
-**Werder Bremen player apologises for poo emoji sign after derby win**\
-`Medina Desic said the sign was "off-target" and she got "caught up in the emotions" of the derby.`\
-https://nytimes.com/athletic/6715514/2025/10/14/medina-desic-bundesliga-bremen-hamburg/
 
