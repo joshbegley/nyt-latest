@@ -1,3 +1,7 @@
+**Justin Haley won't return to Spire Motorsports in 2026; Daniel Suárez in?**\
+`After a disappointing season in his first full year with Spire, Haley won't return for a second, the team announced Tuesday.`\
+https://nytimes.com/athletic/6716658/2025/10/14/justin-haley-spire-motorsports-2026-daniel-suarez-nascar/
+
 **With Anthony Richardson on IR, the Colts need a backup QB. Here are 10 options**\
 `Daniel Jones is leading the highest-scoring offense in the NFL at 32.`\
 https://nytimes.com/athletic/6716521/2025/10/14/colt-anthony-richardson-daniel-jones-backup-qb/
@@ -25,12 +29,4 @@ https://nytimes.com/athletic/6713152/2025/10/14/nigeria-south-africa-world-cup/
 **ICE Sends More Migrants to Guantánamo Bay, Resumes Operations**\
 `The offshore holding sites had been empty since Oct. 1. The nationalities of the new arrivals were not immediately known.`\
 https://nytimes.com/2025/10/14/us/politics/ice-migrants-guantanamo-bay.html
-
-**Airports Refuse to Show Video of Kristi Noem Blaming Democrats for Shutdown**\
-`More than a dozen airports aren’t displaying the Homeland Security secretary’s roughly 30-second clip. Some said it violates policies against partisan political messaging.`\
-https://nytimes.com/2025/10/14/travel/airports-tsa-kristi-noem-video-shutdown.html
-
-**Canadiens architects Gorton, Hughes earned a longer runway. Now, the hard part begins**\
-`Gorton and Hughes getting five more years was an easy decision for owner Geoff Molson, but the challenge ahead is immense.`\
-https://nytimes.com/athletic/6716609/2025/10/14/canadiens-hughes-gorton-contracts-extensions-nhl/
 

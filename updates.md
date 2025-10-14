@@ -1,3 +1,7 @@
+**Justin Haley won't return to Spire Motorsports in 2026; Daniel Suárez in?**\
+`After a disappointing season in his first full year with Spire, Haley won't return for a second, the team announced Tuesday.`\
+https://nytimes.com/athletic/6716658/2025/10/14/justin-haley-spire-motorsports-2026-daniel-suarez-nascar/
+
 **With Anthony Richardson on IR, the Colts need a backup QB. Here are 10 options**\
 `Daniel Jones is leading the highest-scoring offense in the NFL at 32.`\
 https://nytimes.com/athletic/6716521/2025/10/14/colt-anthony-richardson-daniel-jones-backup-qb/
