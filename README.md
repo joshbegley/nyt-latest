@@ -1,5 +1,9 @@
+**Back Talk**\
+`Stella Zawistowski toys with our affections.`\
+https://nytimes.com/2025/10/13/crosswords/daily-puzzle-2025-10-14.html
+
 **Brewers pull off jaw-dropping double play to stun Dodgers and fans in NLCS Game 1**\
-`Even if neither the Los Angeles Dodgers nor Milwaukee Brewers go on to win this year’s World Series, they’re going to be part of highlight reels for decades to come.`\
+`Impressively, umpires got the play on the field right the first time, replays confirmed.`\
 https://nytimes.com/athletic/6714801/2025/10/13/brewers-wild-double-play-dodgers-nlcs-mlb/
 
 **Trump’s Two Minds on China Sow a Chaotic Few Days**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6714506/2025/10/13/blue-jays-mariners-game-2-score-
 **Opioid Deaths Suddenly Dominate a Governor’s Race. Here’s What We Know.**\
 `Representative Mikie Sherrill, a New Jersey Democrat, said a firm once owned by her Republican opponent, Jack Ciattarelli, spread misinformation about opioids. His campaign has threatened to sue her for defamation.`\
 https://nytimes.com/2025/10/13/nyregion/opioids-nj-governor-race.html
-
-**49ers minutia minute: How Tatum Bethune and the defense fared without Fred Warner**\
-`Warner will have surgery on his ankle Tuesday, and George Kittle is trending toward returning this week from a five-week absence.`\
-https://nytimes.com/athletic/6714452/2025/10/13/49ers-injuries-fred-warner-george-kittle/
 
