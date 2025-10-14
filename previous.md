@@ -1,3 +1,11 @@
+**Giants speak with former Orioles skipper Brandon Hyde about open manager position: Source**\
+`Hyde, a North Bay native, won 101 games with the Orioles in 2023 but his team got off to a slow start in 2025 and he was fired in May.`\
+https://nytimes.com/athletic/6717439/2025/10/14/giants-brandon-hyde-manager-opening/
+
+**Yankees make 2 coaching changes to Aaron Boone's staff: Source**\
+`Mike Harkey had been the Yankees' longest tenured coach and was a favorite among players. Travis Chapman held numerous roles in the org.`\
+https://nytimes.com/athletic/6717408/2025/10/14/yankees-make-two-coaching-changes-to-aaron-boones-staff-source/
+
 **Transgender fencer suing USA Fencing, USOPC over ban from women's events**\
 `The defendants say they’re following a standing policy that aligns with an executive order from President Donald Trump earlier this year.`\
 https://nytimes.com/athletic/6717204/2025/10/14/transgender-usa-fencing-usopc-ban-womens-competition/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6717471/2025/10/14/colts-vs-chargers-stream-how-to-
 **Max Scherzer to jump into postseason fray in critical Game 4 start for Blue Jays**\
 `With Toronto in a LCS hole, they need Scherzer to deliver another October performance to remember.`\
 https://nytimes.com/athletic/6717423/2025/10/14/toronto-blue-jays-max-scherzer-alcs-game-4-starter/
-
-**The Chicago Rat Hole Was Not Made by a Rat**\
-`A statistical analysis of an infamous indentation in a sidewalk suggested a 99 percent likelihood that another rodent made the mark.`\
-https://nytimes.com/2025/10/14/science/chicago-rat-hole-squirrel.html
-
-**In Patz Case, Manhattan Prosecutors Ask for Months to Decide on Retrial**\
-`The district attorney is searching for witnesses and plans to ask the Supreme Court to consider the Etan Patz case. A defense lawyer for the man accused in the killing says they’re dawdling.`\
-https://nytimes.com/2025/10/14/nyregion/etan-patz-retrial-appeals-court.html
 
