@@ -1,3 +1,7 @@
+**Bears Pull Off Wild Comeback Over Commanders**\
+`A crucial fumble by Jayden Daniels gave the Chicago Bears the ball back late and the opportunity to nab a come-from-behind win over the Washington Commanders on Monday night.`\
+https://nytimes.com/video/the-athletic/100000010457249/bears-pull-off-wild-comeback-over-commanders.html
+
 **Madagascar President Dissolves Parliament Ahead of Impeachment Vote**\
 `President Andry Rajoelina has vowed to remain in office after weeks of protests against his government that drove him into hiding.`\
 https://nytimes.com/2025/10/14/world/africa/madagascar.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6704683/2025/10/14/brooklyn-nets-tv-streaming-how-t
 **Do You Know Where in the World These Books Are Set?**\
 `Test your knowledge of European geography, history and travel with this short quiz about modern thrillers and crime novels. You may also discover a new book to read.`\
 https://nytimes.com/interactive/2025/10/14/books/review/europe-crime-quiz.html
-
-**Tom Bogert: Why I Returned to The Athletic**\
-`America's greatest soccer newsbreaker documents why he's back where he belongs — here`\
-https://nytimes.com/athletic/6713347/2025/10/14/tom-bogert-why-i-joined-the-athletic/
 

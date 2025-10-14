@@ -1,3 +1,7 @@
+**Bears Pull Off Wild Comeback Over Commanders**\
+`A crucial fumble by Jayden Daniels gave the Chicago Bears the ball back late and the opportunity to nab a come-from-behind win over the Washington Commanders on Monday night.`\
+https://nytimes.com/video/the-athletic/100000010457249/bears-pull-off-wild-comeback-over-commanders.html
+
 **Madagascar President Dissolves Parliament Ahead of Impeachment Vote**\
 `President Andry Rajoelina has vowed to remain in office after weeks of protests against his government that drove him into hiding.`\
 https://nytimes.com/2025/10/14/world/africa/madagascar.html

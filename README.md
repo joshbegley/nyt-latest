@@ -1,3 +1,11 @@
+**How to watch Kevin Durant and the Houston Rockets throughout the season**\
+`With Kevin Durant in tow, the Rockets have their sights set on an NBA championship. Find out how to tune in for all 82 games. `\
+https://nytimes.com/athletic/6710660/2025/10/14/houston-rockets-tv-streaming-kevin-durant-how-to-watch/
+
+**Big Banks Grow Profits, Crediting a ‘Resilient’ Economy**\
+`JPMorgan Chase, Goldman Sachs and Wells Fargo reported strong quarterly earnings, mostly topping analyst expectations and showing growth across key lines of business.`\
+https://nytimes.com/2025/10/14/business/banks-earnings-jpmorgan-goldman-sachs-wells-fargo-citi.html
+
 **Bears Pull Off Wild Comeback Over Commanders**\
 `A crucial fumble by Jayden Daniels gave the Chicago Bears the ball back late and the opportunity to nab a come-from-behind win over the Washington Commanders on Monday night.`\
 https://nytimes.com/video/the-athletic/100000010457249/bears-pull-off-wild-comeback-over-commanders.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6714498/2025/10/14/chargers-kimani-vidal-running-ba
 **Ohio State final thoughts: As run game gets cleaned up, defense could be an all-timer**\
 `The Buckeyes defense is good enough to carry the team, but the run game still has room for improvement. `\
 https://nytimes.com/athletic/6713995/2025/10/14/ohio-state-defense-cfp-run-game/
-
-**How to watch the Brooklyn Nets for both local and out-of-market fans**\
-`The Nets have one of the youngest rosters in the NBA. Watch them blossom and find out how to catch every game with this guide. `\
-https://nytimes.com/athletic/6704683/2025/10/14/brooklyn-nets-tv-streaming-how-to-watch-schedule/
-
-**Do You Know Where in the World These Books Are Set?**\
-`Test your knowledge of European geography, history and travel with this short quiz about modern thrillers and crime novels. You may also discover a new book to read.`\
-https://nytimes.com/interactive/2025/10/14/books/review/europe-crime-quiz.html
 
