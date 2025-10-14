@@ -1,3 +1,11 @@
+**Bills-Falcons takeaways: Bijan Robinson's big game powers Atlanta to victory over Buffalo**\
+`An 81-yard touchdown run highlighted Bijan Robinson’s huge night and helped propel the Atlanta Falcons to a 24-14 victory over the Buffalo Bills on Monday night at Mercedes-Benz Stadium.`\
+https://nytimes.com/athletic/6714845/2025/10/13/bills-falcons-mnf-nfl-takeaways/
+
+**Dodgers-Brewers Game 1 takeaways: Wild double play, Blake Snell's brilliance highlight L.A.'s win**\
+`This is why the Dodgers signed Snell: To be the tone-setter for one of the deepest rotations in the majors.`\
+https://nytimes.com/athletic/6714903/2025/10/13/dodgers-brewers-game-1-score-results-takeaways-playoffs-mlb/
+
 **Early-Season Storm Sends a Deluge of Rain to California**\
 `A storm like this is rare for October, forecasters said.`\
 https://nytimes.com/2025/10/13/weather/california-storms-rain-forecast.html
