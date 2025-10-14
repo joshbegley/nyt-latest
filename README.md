@@ -1,3 +1,15 @@
+**United Center goes dark during Blackhawks-Mammoth game, far from NHL's first power outage**\
+`Chicago's home arena went dark for about four seconds late in the opening period Monday night.`\
+https://nytimes.com/athletic/6716360/2025/10/14/united-center-power-outage-nhl-blackhawks-mammoth/
+
+**Submit a question for Nicki Jhabvala’s Washington Commanders mailbag**\
+`The Commanders are 3-3, but an up-and-down start has created plenty of questions, for the team and its fans. `\
+https://nytimes.com/athletic/6716515/2025/10/14/submit-a-question-for-nicki-jhabvalas-washington-commanders-mailbag/
+
+**Submit your questions for Aaron Gleeman's Twins offseason mailbag**\
+`Are you wondering about the Twins' offseason plans?`\
+https://nytimes.com/athletic/6716050/2025/10/14/questions-for-aaron-gleemans-twins-offseason-mailbag/
+
 **College Football Playoff odds: Indiana is now a virtual lock and Oregon is not anymore**\
 `Ohio State, Miami and Indiana are heavily favored to make the College Football Playoff, but there's plenty of movement below them.`\
 https://nytimes.com/athletic/6716209/2025/10/14/college-football-playoff-odds-indiana-oregon/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/14/business/powell-signals-rate-cuts.html
 **D’Angelo, Acclaimed and Reclusive R&B Innovator, Dies at 51**\
 `After hitting No. 1 with “Voodoo,” his genre-melding 2000 album that he promoted with a risqué music video, he vanished for more than a decade.`\
 https://nytimes.com/2025/10/14/arts/music/dangelo-dead.html
-
-**Potter 'open' to Sweden job, 'has feelings' for the country**\
-`The 50-year-old managed Swedish side Ostersund for seven years and has a "deep understanding of the country and football culture".`\
-https://nytimes.com/athletic/6716331/2025/10/14/graham-potter-sweden-manager/
-
-**Canadiens agree to terms with Kent Hughes, Jeff Gorton on 5-year contract extensions**\
-`Hughes remains general manager, and Gorton was promoted from executive vice president to president of hockey operations.`\
-https://nytimes.com/athletic/6716392/2025/10/14/canadiens-kent-hughes-jeff-gorton-contract-extensions-nhl/
-
-**College football Week 8 odds: Vanderbilt ends an SEC streak**\
-`Five Top 25 matchups highlight a busy Week 8 for college football in which every ranked team is in action.`\
-https://nytimes.com/athletic/6716135/2025/10/14/college-football-week-8-odds-vanderbilt-sec-streak/
 
