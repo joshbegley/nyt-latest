@@ -1,3 +1,7 @@
+**Let’s Talk About Divorce After 50**\
+`‘Gray divorce’ is becoming more common. We want to hear about yours.`\
+https://nytimes.com/2025/10/14/well/family/gray-divorce-callout.html
+
 **The Hidden Costs of Downsizing**\
 `They hoped a smaller home would save money — but the reality is proving more costly.`\
 https://nytimes.com/2025/10/14/realestate/downsizing.html
