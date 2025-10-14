@@ -1,3 +1,11 @@
+**New York Mets to hire Jeff Albert as lead hitting instructor: Sources**\
+`Albert must get the most out of the Mets' young hitters to supplement New York's lineup.`\
+https://nytimes.com/athletic/6717120/2025/10/14/new-york-mets-jeff-albert-lead-hitting-instructor/
+
+**Former Jets center Nick Mangold needs kidney transplant and asks public for help**\
+`Selected 29th overall by the Jets in 2006, Mangold was a three-time All-Pro who spent all 11 of his NFL seasons in New York.`\
+https://nytimes.com/athletic/6717098/2025/10/14/nick-mangold-kidney-donor/
+
 **Mr. Trump, on the Middle East, Please Move Fast and Break Things**\
 `Message to Trump: As hard as stage one was for Gaza peace, you have not even seen hard yet.`\
 https://nytimes.com/2025/10/14/opinion/trump-israel-gaza-peace.html
