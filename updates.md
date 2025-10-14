@@ -1,3 +1,7 @@
+**Late Night Tips the Hat to Trump for Middle East Cease-Fire**\
+`Jimmy Kimmel celebrated that President Trump “finally did something positive” with his role in the deal between Israel and Hamas.`\
+https://nytimes.com/2025/10/14/arts/television/late-night-trump-gaza-peace.html
+
 **The slumping Arizona Cardinals need more cowbell and to stick with QB Kyler Murray — for now**\
 `With Murray sidelined, backup Jacoby Brissett started a QB controversy with his strong play against Colts.`\
 https://nytimes.com/athletic/6714946/2025/10/14/arizona-cardinals-slumping-kyler-murray/

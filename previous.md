@@ -1,3 +1,7 @@
+**Late Night Tips the Hat to Trump for Middle East Cease-Fire**\
+`Jimmy Kimmel celebrated that President Trump “finally did something positive” with his role in the deal between Israel and Hamas.`\
+https://nytimes.com/2025/10/14/arts/television/late-night-trump-gaza-peace.html
+
 **The slumping Arizona Cardinals need more cowbell and to stick with QB Kyler Murray — for now**\
 `With Murray sidelined, backup Jacoby Brissett started a QB controversy with his strong play against Colts.`\
 https://nytimes.com/athletic/6714946/2025/10/14/arizona-cardinals-slumping-kyler-murray/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6712608/2025/10/14/newcastle-questions-answered-ros
 **Smart urinals, 'corridors of power' and F1 simulators: Inside football's training ground arms race**\
 `Training facilities are increasingly vital in transfer talks, meaning clubs are spending millions in a bid to gain an edge`\
 https://nytimes.com/athletic/6696176/2025/10/14/premier-league-training-grounds/
-
-**The life of a Premier League player's personal chef: From Mauritian magic bowls to Bakewell tarts**\
-`Personal chefs are growing in popularity in football - we met one to see what a day is like preparing food for elite athletes`\
-https://nytimes.com/athletic/6696238/2025/10/14/premier-league-personal-chefs/
 
