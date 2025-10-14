@@ -1,3 +1,11 @@
+**Trump’s Two Minds on China Sow a Chaotic Few Days**\
+`The president’s bellicose vow of steep new tariffs, followed quickly by a more conciliatory message, pointed to an internal tug of war over his approach.`\
+https://nytimes.com/2025/10/13/us/politics/trump-china-tariffs.html
+
+**4 People Arrested in Deadly Mississippi Shooting**\
+`The shooting in Leland, Miss., which killed six people, was the deadliest of three across the state over the weekend.`\
+https://nytimes.com/2025/10/13/us/mississippi-shooting-arrests.html
+
 **There's hope with Titans interim coach Mike McCoy — he has a track record**\
 `Wherever he's coached, the Titans' interim HC has gotten big performances out of great — and not so great — quarterbacks and offenses.`\
 https://nytimes.com/athletic/6714335/2025/10/13/mike-mccoy-has-a-track-record-a-good-sign-for-the-titans-and-cam-ward/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6714452/2025/10/13/49ers-injuries-fred-warner-georg
 **Senators' mentality gets its first test with potential Tkachuk injury**\
 `During the first period, Tkachuk was cross-checked into the boards by Predators defenceman Roman Josi. He didn't finish the game. `\
 https://nytimes.com/athletic/6713624/2025/10/13/senators-tkachuk-predators-wrist-saros/
-
-**Submit questions for Jeff Zrebiec's Ravens mailbag**\
-`Zrebiec will consider your questions for his upcoming mailbag as Baltimore is off to a disappointing 1-5 start through six weeks. `\
-https://nytimes.com/athletic/6714578/2025/10/13/ravens-mailbag-week-7-bye/
-
-**Lawsuit over Trail Blazers ownership deal dropped, clearing path for sale**\
-`A lawsuit over the Trail Blazers sale has been dropped, clearing the way for the Dundon group to complete its purchase.`\
-https://nytimes.com/athletic/6714292/2025/10/13/trail-blazers-ownership-lawsuit-dropped/
 
