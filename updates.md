@@ -1,3 +1,7 @@
+**College Football Playoff odds: Indiana is now a virtual lock and Oregon is not anymore**\
+`Ohio State, Miami and Indiana are heavily favored to make the College Football Playoff, but there's plenty of movement below them.`\
+https://nytimes.com/athletic/6716209/2025/10/14/college-football-playoff-odds-indiana-oregon/
+
 **A New Chapter for Israel and Gaza**\
 `Readers respond to news and opinion articles about “this historic moment” in the Middle East. Also: Dangerous obstacles to Covid vaccines.`\
 https://nytimes.com/2025/10/14/opinion/israel-gaza-hamas.html
