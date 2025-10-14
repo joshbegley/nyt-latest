@@ -1,3 +1,11 @@
+**Back Talk**\
+`Stella Zawistowski toys with our affections.`\
+https://nytimes.com/2025/10/13/crosswords/daily-puzzle-2025-10-14.html
+
+**Brewers pull off jaw-dropping double play to stun Dodgers and fans in NLCS Game 1**\
+`Impressively, umpires got the play on the field right the first time, replays confirmed.`\
+https://nytimes.com/athletic/6714801/2025/10/13/brewers-wild-double-play-dodgers-nlcs-mlb/
+
 **Trump’s Two Minds on China Sow a Chaotic Few Days**\
 `The president’s bellicose vow of steep new tariffs, followed quickly by a more conciliatory message, pointed to an internal tug of war over his approach.`\
 https://nytimes.com/2025/10/13/us/politics/trump-china-tariffs.html
