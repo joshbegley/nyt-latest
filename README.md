@@ -1,3 +1,11 @@
+**New York Mets to hire Jeff Albert as lead hitting instructor: Sources**\
+`Albert must get the most out of the Mets' young hitters to supplement New York's lineup.`\
+https://nytimes.com/athletic/6717120/2025/10/14/new-york-mets-jeff-albert-lead-hitting-instructor/
+
+**Former Jets center Nick Mangold needs kidney transplant and asks public for help**\
+`Selected 29th overall by the Jets in 2006, Mangold was a three-time All-Pro who spent all 11 of his NFL seasons in New York.`\
+https://nytimes.com/athletic/6717098/2025/10/14/nick-mangold-kidney-donor/
+
 **Mr. Trump, on the Middle East, Please Move Fast and Break Things**\
 `Message to Trump: As hard as stage one was for Gaza peace, you have not even seen hard yet.`\
 https://nytimes.com/2025/10/14/opinion/trump-israel-gaza-peace.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/14/opinion/israel-war-hamas-peace-gaza.html
 **49ers mailbag: Nick Martin, Jordan James and doubling down on the youth movement**\
 `Three 49ers rookies on the active roster have yet to get any snaps this season. There are reasons that could change in coming weeks.`\
 https://nytimes.com/athletic/6716900/2025/10/14/49ers-fred-warner-nick-martin-tatum-bethune/
-
-**Madison, Wis.**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/madison-wis
-
-**U.S. Attorney Was Forced Out After Clashes Over How to Handle Russia Inquiry**\
-`The departures of Todd Gilbert and his deputy in the Western District of Virginia show the pressure being brought on prosecutors to pursue the president’s perceived foes.`\
-https://nytimes.com/2025/10/14/us/politics/doj-trump-russia-inquiry-prosecutors.html
 
