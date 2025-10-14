@@ -1,3 +1,11 @@
+**Madagascar President Dissolves Parliament Ahead of Impeachment Vote**\
+`President Andry Rajoelina has vowed to remain in office after weeks of protests against his government that drove him into hiding.`\
+https://nytimes.com/2025/10/14/world/africa/madagascar.html
+
+**What Would It Cost to Rebuild Gaza?**\
+`A fragile cease-fire between Israel and Hamas is stoking hopes for a surge in investment in the region, and the Middle East more broadly.`\
+https://nytimes.com/2025/10/14/business/dealbook/rebuild-gaza-cost.html
+
 **Trump to Award Posthumous Medal of Freedom to Charlie Kirk**\
 `President Trump was scheduled to attend a ceremony at the White House on Tuesday to honor the influential right-wing activist, who was assassinated last month.`\
 https://nytimes.com/2025/10/14/us/politics/charlie-kirk-medal-of-freedom-trump-birthday.html
