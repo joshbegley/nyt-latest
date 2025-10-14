@@ -1,3 +1,11 @@
+**Barcelona likely without Lewandowski for El Clasico due to injury**\
+`Club sources indicate Lewandowski is expected to be sidelined for around a month.`\
+https://nytimes.com/athletic/6715604/2025/10/14/robert-lewandowski-barcelona-injury-update/
+
+**Blake Treinen closes out Game 1, but concerns linger over Dodgers bullpen**\
+`Treinen shut the door as a wobbly ninth inning threatened to waste a spectacular start by Blake Snell.`\
+https://nytimes.com/athletic/6715034/2025/10/14/dodgers-bullpen-nlcs-mlb-playoffs-blake-treinen/
+
 **Israel Identifies 2 Bodies Handed Over by Hamas**\
 `The return of the remains of four former captives has spurred anger that more were not retrieved. The devastation to Gaza is likely to make the task especially hard.`\
 https://nytimes.com/2025/10/14/world/middleeast/israeli-hostages-bodies-hamas.html
@@ -30,12 +38,4 @@ https://nytimes.com/athletic/6696790/2025/10/14/guardians-payroll-breakdown/
 **Which college football teams feel hopeless at midseason? Wisconsin, UNC and more**\
 `Some big-name coaches are on the hot seat. We looked at 10 teams deep in the darkness alongside Penn State.`\
 https://nytimes.com/athletic/6714477/2025/10/14/wisconsin-unc-penn-state-college-football-sad-programs/
-
-**Golden State of mind: With rare maturity, teens Ben Kindel, Harrison Brunicke hit California in stride**\
-`Kindel and Brunicke are taking the NHL by storm so far and hoping to stick around for a while longer.`\
-https://nytimes.com/athletic/6714189/2025/10/14/penguins-ben-kindel-harrison-brunicke-maturity/
-
-**How many mistakes did Commanders make in loss to Bears? Let's count them**\
-`Washington's smorgasbord of miscues included missed tackles, blown coverages, dropped passes, a missed field goal and three turnovers.`\
-https://nytimes.com/athletic/6715543/2025/10/14/commanders-bears-turnovers-mistakes-mnf/
 

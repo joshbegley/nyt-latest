@@ -1,3 +1,8 @@
+**What happens when you drop the NFL's top pick into a den of dysfunction?**\
+`The Titans feel good about Ward. Nearly everything else in Tennessee appears to be a disordered mess.
+`\
+https://nytimes.com/athletic/6714832/2025/10/14/cam-ward-rookie-qb-titans-organizational-dysfunction/
+
 **How D'Andre Swift, Bears' run game found their groove in win over Commanders**\
 `Swift finally got going as the Bears' running back's 55-yard touchdown catch and 15-yard run to set up the winning field goal were clutch.`\
 https://nytimes.com/athletic/6715200/2025/10/14/bears-dandre-swift-run-game-commanders/
