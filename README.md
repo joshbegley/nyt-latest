@@ -1,40 +1,40 @@
+**How Arsenal's dynamic midfield has enabled them to directly attack the channels this season**\
+`Mikel Arteta's summer transfer business has allowed his side to play into the channels much more`\
+https://nytimes.com/athletic/6696385/2025/10/14/arsenal-dynamic-midfield-zubimendi-eze/
+
+**Mr. October? Maybe not. But the Mariners’ Jorge Polanco is Mr. Go-Ahead Hit**\
+`'I don’t know what to say, man,' Polanco said after Monday's Game 2 win. 'I’m clutch, but I’m just trying to keep it simple.'`\
+https://nytimes.com/athletic/6715011/2025/10/14/jorge-polanco-seattle-mariners-alcs/
+
+**Row Z: Ratcliffe's patience plea for Amorim, Watford quiz question, sourness in Scotland**\
+`In this week's Row Z: Making sense of Ratcliffe's three-year plea on Amorim, farewell to Paulo Pezzolano, and downbeat Scotland keep winning`\
+https://nytimes.com/athletic/6712719/2025/10/14/row-z-ratcliffe-amorim-watford-scotland/
+
+**A day at the 2025 world conker championships: Stormtroopers, a giant rooster and the King's horse chestnuts**\
+`Competitors travelled from across the globe to Northamptonshire in England to compete in an extremely autumnal event `\
+https://nytimes.com/athletic/6712987/2025/10/14/2025-world-conker-championships/
+
+**How Premier League sides use direct football to create chances**\
+`Analysing the return of one of English football’s traditional guises...`\
+https://nytimes.com/athletic/6688584/2025/10/14/direct-football-tactics-premier-league/
+
+**U.S. Starts Charging Chinese Ships to Dock at Its Ports**\
+`The measure is aimed at countering China’s dominance of commercial shipbuilding and helping to revitalize the American industry.`\
+https://nytimes.com/2025/10/14/business/us-starts-charging-chinese-ships-to-dock-at-its-ports.html
+
+**Trump Ramps Up Trade War as Tariffs on Lumber and Furniture Kick in**\
+`The new taxes went into effect on Tuesday as President Trump also threatened to widen his trade war with China.`\
+https://nytimes.com/2025/10/14/business/economy/trump-ramps-up-trade-war-as-tariffs-on-lumber-and-furniture-kick-in.html
+
+**Connections: Sports Edition Coach: Hints for Oct. 14, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6714864/2025/10/14/connections-sports-edition-hints-for-oct-14-2025/
+
+**Fantasy football waiver wire Week 7: Kendrick Bourne, Bam Knight, streamers and more**\
+`Jake Ciely hopes this week will prove to be a little less tricky than last as he ranks the best waiver wire options for Week 7.`\
+https://nytimes.com/athletic/6714491/2025/10/14/fantasy-football-waiver-wire-week-7-kendrick-bourne-bam-knight-streamers-and-more/
+
 **Corrections: Oct. 14, 2025**\
 `Corrections that appeared in print on Tuesday, Oct. 14, 2025.`\
 https://nytimes.com/2025/10/13/pageoneplus/corrections-oct-14-2025.html
-
-**Quote of the Day: Randle Can Breathe Again After a Suffocating End To His Days as a Knick**\
-`Quotation of the Day for Tuesday, October 14, 2025.`\
-https://nytimes.com/2025/10/13/pageoneplus/quote-of-the-day-randle-can-breathe-again-after-a-suffocating-end-to-his-days-as-a-knick.html
-
-**'There's no panic': Down in ALCS, Blue Jays' proven resilience has never been more tested**\
-`Toronto hoped to bounce back from a Game 1 defeat by the Seattle Mariners. Instead, things got worse.`\
-https://nytimes.com/athletic/6714949/2025/10/13/blue-jays-lose-mariners-game-2-alcs/
-
-**Power play sizzles, Wallstedt bounces back, Yurov debuts: Wild takeaways**\
-`Despite giving up three goals to the Kings in the third period, the Wild regrouped and pulled off the shootout win.`\
-https://nytimes.com/athletic/6714856/2025/10/13/wild-power-play-wallstedt-yurov-kings/
-
-**Bills-Falcons takeaways: Bijan Robinson's big game powers Atlanta's win**\
-`After Monday’s loss to the Falcons (3-2), the Bills are 0-2 against teams with winning records through Week 6.`\
-https://nytimes.com/athletic/6714845/2025/10/13/bills-falcons-mnf-nfl-takeaways/
-
-**Dodgers-Brewers Game 1 takeaways: Wild double play, Blake Snell's brilliance highlight L.A.'s win**\
-`This is why the Dodgers signed Snell: to be the tone-setter for one of the deepest rotations in the majors.`\
-https://nytimes.com/athletic/6714903/2025/10/13/dodgers-brewers-game-1-score-results-takeaways-playoffs-mlb/
-
-**Early-Season Storm Sends a Deluge of Rain to California**\
-`A storm like this is rare for October, forecasters said.`\
-https://nytimes.com/2025/10/13/weather/california-storms-rain-forecast.html
-
-**Back Talk**\
-`Stella Zawistowski toys with our affections.`\
-https://nytimes.com/2025/10/13/crosswords/daily-puzzle-2025-10-14.html
-
-**Brewers pull off jaw-dropping double play to stun Dodgers and fans in NLCS Game 1**\
-`Impressively, umpires got the play on the field right the first time, replays confirmed.`\
-https://nytimes.com/athletic/6714801/2025/10/13/brewers-wild-double-play-dodgers-nlcs-mlb/
-
-**Trump’s Two Minds on China Sow a Chaotic Few Days**\
-`The president’s bellicose vow of steep new tariffs, followed quickly by a more conciliatory message, pointed to an internal tug of war over his approach.`\
-https://nytimes.com/2025/10/13/us/politics/trump-china-tariffs.html
 
