@@ -1,3 +1,7 @@
+**Who stays, who goes? Predicting the Yankees' big decisions, including Cody Bellinger**\
+`It’s never too soon to start talking about the state of the Yankees’ roster. Here’s how we see some of the club's key decisions playing out.`\
+https://nytimes.com/athletic/6713738/2025/10/14/yankees-free-agents-2026-roster-decisions/
+
 **Meet Zohran Mamdani, the Favorite to Lead New York City**\
 `Our reporters explore his skyrocket, his life and his appeal.`\
 https://nytimes.com/2025/10/14/us/meet-zohran-mamdani-the-favorite-to-lead-new-york-city.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6714484/2025/10/14/bengals-steelers-joe-flacco-cam-
 **The 10 best things I saw in college football recruiting over the weekend**\
 `Ethan "Boobie" Feaster, a four-star wide receiver who is committed to USC, has several big catches for DeSoto (Texas) High.`\
 https://nytimes.com/athletic/6713986/2025/10/14/college-football-recruiting-thoughts-week-7/
-
-**Grading all 18 Big Ten teams at midseason, from Ohio State (A) to Penn State (F)**\
-`Plenty of upward — and downward — mobility is within reach for these teams before final exams.`\
-https://nytimes.com/athletic/6714399/2025/10/14/big-ten-football-midseason-grades/
 
