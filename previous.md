@@ -1,4 +1,8 @@
-**Why Sweden fired Jon Dahl Tomasson: Shock results, fan fury and an awkward Isak/Gyokeres partnership**\
+**Suspect Pleads Guilty in Firebombing of Pa. Governor’s Residence**\
+`Under a plea agreement, Cory Balmer will be imprisoned for 25 to 50 years for the attack on Gov. Josh Shapiro’s official residence in Harrisburg, Pa., in April.`\
+https://nytimes.com/2025/10/14/us/arson-harrisburg-cody-balmer-josh-shapiro.html
+
+**Why Sweden fired Tomasson: Shock results, fan fury and an awkward Isak/Gyokeres partnership**\
 `Tomasson’s reign was so spectacularly unpopular that you wonder if Sweden will ever appoint a foreign coach again`\
 https://nytimes.com/athletic/6715693/2025/10/14/why-sweden-fired-tomasson-isak-gyokeres/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6714977/2025/10/14/al-horford-celtics-warriors-nba/
 **The Windup: Bet you’d never seen this play before!**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6715270/2025/10/14/brewers-double-play-dodgers-the-windup/
-
-**Devastating Rains in Mexico Leave Dozens Dead and Missing**\
-`Floods and landslides in Mexico killed several dozen people, destroying homes and isolating communities in the central and eastern parts of the country.`\
-https://nytimes.com/video/world/americas/100000010457262/mexico-rain-floods-landslides-deaths.html
 
