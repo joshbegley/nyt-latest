@@ -1,3 +1,7 @@
+**White House Guts Education Department With More Layoffs**\
+`About a fifth of the agency’s remaining staff was affected, including employees working on special education, funding for low-income students and civil rights enforcement.`\
+https://nytimes.com/2025/10/14/us/politics/trump-education-department-federal-layoffs.html
+
 **Gaza’s Brittle Cease-Fire**\
 `Plus, remembering D’Angelo. Here’s the latest at the end of Tuesday.`\
 https://nytimes.com/2025/10/14/briefing/gaza-milei-dangelo.html
