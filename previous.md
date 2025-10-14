@@ -1,3 +1,11 @@
+**Corrections: Oct. 14, 2025**\
+`Corrections that appeared in print on Tuesday, Oct. 14, 2025.`\
+https://nytimes.com/2025/10/13/pageoneplus/corrections-oct-14-2025.html
+
+**Quote of the Day: Randle Can Breathe Again After a Suffocating End To His Days as a Knick**\
+`Quotation of the Day for Tuesday, October 14, 2025.`\
+https://nytimes.com/2025/10/13/pageoneplus/quote-of-the-day-randle-can-breathe-again-after-a-suffocating-end-to-his-days-as-a-knick.html
+
 **'There's no panic': Down in ALCS, Blue Jays' proven resilience has never been more tested**\
 `Toronto hoped to bounce back from a Game 1 defeat by the Seattle Mariners. Instead, things got worse.`\
 https://nytimes.com/athletic/6714949/2025/10/13/blue-jays-lose-mariners-game-2-alcs/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6714801/2025/10/13/brewers-wild-double-play-dodgers
 **Trump’s Two Minds on China Sow a Chaotic Few Days**\
 `The president’s bellicose vow of steep new tariffs, followed quickly by a more conciliatory message, pointed to an internal tug of war over his approach.`\
 https://nytimes.com/2025/10/13/us/politics/trump-china-tariffs.html
-
-**4 People Arrested in Deadly Mississippi Shooting**\
-`The shooting in Leland, Miss., which killed six people, was the deadliest of three across the state over the weekend.`\
-https://nytimes.com/2025/10/13/us/mississippi-shooting-arrests.html
-
-**There's hope with Titans interim coach Mike McCoy — he has a track record**\
-`Wherever he's coached, the Titans' interim HC has gotten big performances out of great — and not so great — quarterbacks and offenses.`\
-https://nytimes.com/athletic/6714335/2025/10/13/mike-mccoy-has-a-track-record-a-good-sign-for-the-titans-and-cam-ward/
 

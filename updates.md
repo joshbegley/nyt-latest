@@ -1,3 +1,11 @@
+**Corrections: Oct. 14, 2025**\
+`Corrections that appeared in print on Tuesday, Oct. 14, 2025.`\
+https://nytimes.com/2025/10/13/pageoneplus/corrections-oct-14-2025.html
+
+**Quote of the Day: Randle Can Breathe Again After a Suffocating End To His Days as a Knick**\
+`Quotation of the Day for Tuesday, October 14, 2025.`\
+https://nytimes.com/2025/10/13/pageoneplus/quote-of-the-day-randle-can-breathe-again-after-a-suffocating-end-to-his-days-as-a-knick.html
+
 **'There's no panic': Down in ALCS, Blue Jays' proven resilience has never been more tested**\
 `Toronto hoped to bounce back from a Game 1 defeat by the Seattle Mariners. Instead, things got worse.`\
 https://nytimes.com/athletic/6714949/2025/10/13/blue-jays-lose-mariners-game-2-alcs/
