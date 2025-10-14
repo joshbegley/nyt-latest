@@ -1,40 +1,40 @@
-**The Pulse: Four highlights from a stacked night**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6714778/2025/10/14/nfl-mlb-highlights-the-pulse/
+**Making sense of Brewers-Dodgers 8-6-2 DP, the strangest double play in postseason history**\
+`What will you tell your grandchildren about the strangest double play in postseason history? Here's everything you need to know about it. `\
+https://nytimes.com/athletic/6715385/2025/10/14/brewers-dodgers-strange-double-play-game-1-nlcs/
 
-**Feldman's coaching hot seat at midseason: Luke Fickell, Hugh Freeze and more**\
-`Penn State continued an active early college football coaching carousel, and more movement is sure to come. Here's who to watch.`\
-https://nytimes.com/athletic/6714251/2025/10/14/college-football-hot-seat-coaches-fickell-napier-freeze/
+**Millie Bright was a strong but softly-spoken vision of England at their best**\
+`Millie Bright has ensured that the landscape of English women's football is forever transformed`\
+https://nytimes.com/athletic/6713649/2025/10/14/millie-bright-was-a-strong-but-softly-spoken-vision-of-england-at-their-best/
 
-**How Chick-fil-A’s chairman inspired Mauricio Pochettino’s ‘culture’ message to USMNT**\
-`"The team culture, the team togetherness, is stronger than any individual," USMNT midfielder Brenden Aaronson said.`\
-https://nytimes.com/athletic/6714870/2025/10/14/us-mens-soccer-mauricio-pochettino-culture/
+**Predicting how the top of the Western Conference will play out in 2025-26**\
+`The West is loaded with quality, and several teams could end up in the conference finals. But it's truly a one-horse race.`\
+https://nytimes.com/athletic/6696506/2025/10/14/nba-predictions-lakers-warriors-rockets-clippers/
 
-**It doesn't appear major changes coming to Cowboys defense: 'We're gonna ride this thing out'**\
-`“Matt Eberflus is a damn good football coach," Cowboys coach Brian Schottenheimer said of his defensive coordinator.`\
-https://nytimes.com/athletic/6714821/2025/10/14/cowboys-defense-matt-eberflus-job-security/
+**NFL QB stock report, Week 7: Look out, Baker Mayfield is feeling dangerous again**\
+`“He’s one of the best off-schedule QBs in the entire league. He might be the best.”`\
+https://nytimes.com/athletic/6713646/2025/10/14/qb-stock-report-baker-mayfield-rankings/
 
-**Werder Bremen player apologises for poo emoji sign after derby win**\
-`Medina Desic said the sign was "off-target" and she got "caught up in the emotions" of the derby.`\
-https://nytimes.com/athletic/6715514/2025/10/14/medina-desic-bundesliga-bremen-hamburg/
+**NFL Week 7 Power Rankings: New No. 1 and a top-10 shakeup as we check in on fantasy stars**\
+`There are major changes at the top of the power rankings as the Chiefs knock off the Lions and we drill down on impact fantasy players.`\
+https://nytimes.com/athletic/6713326/2025/10/14/week-7-nfl-power-rankings-fantasy-chiefs-patrick-mahomes/
 
-**Derrick Brown is back — so is Panthers' suddenly stout run defense: 'I had faith'**\
-`The Carolina defense has put together back-to-back run stuffing performances. "That's a front right here," Nick Scott said of the D-line.`\
-https://nytimes.com/athletic/6714299/2025/10/14/panthers-run-defense-derrick-brown/
+**Another reason the Flacco trade might have irked Tomlin? Look to a loss from last year**\
+`The Steelers coach, who criticized the Browns for trading Flacco to a division rival, will face the quarterback again on Thursday.`\
+https://nytimes.com/athletic/6714679/2025/10/14/mike-tomlin-joe-flacco-history/
 
-**England name first squad since Euro 2025: Reid, Hinds get first call-ups**\
-`Captain Leah Williamson, forward Lauren James and winger Lauren Hemp all miss out through injury.`\
-https://nytimes.com/athletic/6715418/2025/10/14/england-women-squad-october-australia-brazil/
+**The New York Times International Edition in Print for Wednesday, Oct. 15, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/10/14/todays-new-york-times-international-edition
 
-**J.J. McCarthy hasn't yet been named the Vikings' starter for Week 7 — here’s why**\
-`McCarthy's readiness may come down to more than the health of his ankle. His rhythm and timing in the pocket need to improve, as well.`\
-https://nytimes.com/athletic/6714179/2025/10/14/jj-mccarthy-vikings-carson-wentz-eagles/
+**'It's like art': Bijan Robinson outshines NFL's MVP as Atlanta upsets Buffalo**\
+`Bijan Robinson had 238 yards from scrimmage Monday night as the Falcons defeated the Bills 24-14.`\
+https://nytimes.com/athletic/6715138/2025/10/14/bijan-robinson-falcons-bills/
 
-**Trump to Meet With Argentina’s Leader as U.S. Moves Ahead With Bailout**\
-`President Javier Milei will visit the White House on Tuesday after the Trump administration agreed to provide Argentina a $20 billion lifeline.`\
-https://nytimes.com/2025/10/14/us/politics/trump-argentina-leader-bailout.html
+**Week 6 impacts fantasy football trade value of George Pickens, Cam Skattebo and others**\
+`KC Joyner looks at impressive or disheartening performances from Week 6 to talk fantasy football trades. `\
+https://nytimes.com/athletic/6712832/2025/10/14/week-6-impacts-fantasy-football-trade-value-george-pickens-cam-skattebo/
 
-**With Brad Keller set to be a free agent, will Cubs adjust their bullpen model?**\
-`In recent years, the Cubs have shown a disinclination to make major investments in their bullpen. `\
-https://nytimes.com/athletic/6714363/2025/10/14/chicago-cubs-brad-keller-free-agent-bullpen-model/
+**Jessica Berman on her desire to stay with NWSL: 'There is a lot more I have to give'**\
+`Berman has overseen a huge increase in NWSL club valuations and helped secure a four-year media deal worth $60 million a year`\
+https://nytimes.com/athletic/6713228/2025/10/14/jessica-berman-nwsl-leadership-contract/
 

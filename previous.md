@@ -1,3 +1,11 @@
+**The Pulse: Four highlights from a stacked night**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6714778/2025/10/14/nfl-mlb-highlights-the-pulse/
+
+**Feldman's coaching hot seat at midseason: Luke Fickell, Hugh Freeze and more**\
+`Penn State continued an active early college football coaching carousel, and more movement is sure to come. Here's who to watch.`\
+https://nytimes.com/athletic/6714251/2025/10/14/college-football-hot-seat-coaches-fickell-napier-freeze/
+
 **How Chick-fil-A’s chairman inspired Mauricio Pochettino’s ‘culture’ message to USMNT**\
 `"The team culture, the team togetherness, is stronger than any individual," USMNT midfielder Brenden Aaronson said.`\
 https://nytimes.com/athletic/6714870/2025/10/14/us-mens-soccer-mauricio-pochettino-culture/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/14/us/politics/trump-argentina-leader-bailout.html
 **With Brad Keller set to be a free agent, will Cubs adjust their bullpen model?**\
 `In recent years, the Cubs have shown a disinclination to make major investments in their bullpen. `\
 https://nytimes.com/athletic/6714363/2025/10/14/chicago-cubs-brad-keller-free-agent-bullpen-model/
-
-**The Bills are a broken contender and it's really difficult to ignore why**\
-`In back-to-back losses the once explosive Bills offense has been completely zapped.`\
-https://nytimes.com/athletic/6715185/2025/10/14/bills-offense-falcons-mnf/
-
-**How do you rebuild a college basketball roster from scratch? Baylor just found out**\
-`WACO, Texas — Last December, Baylor general manager Jason Smith met with coach Scott Drew and told him the program needed to adjust its thinking on recruiting.`\
-https://nytimes.com/athletic/6713454/2025/10/14/baylor-scott-drew-roster-rebuild/
 

@@ -1,3 +1,11 @@
+**The Pulse: Four highlights from a stacked night**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6714778/2025/10/14/nfl-mlb-highlights-the-pulse/
+
+**Feldman's coaching hot seat at midseason: Luke Fickell, Hugh Freeze and more**\
+`Penn State continued an active early college football coaching carousel, and more movement is sure to come. Here's who to watch.`\
+https://nytimes.com/athletic/6714251/2025/10/14/college-football-hot-seat-coaches-fickell-napier-freeze/
+
 **How Chick-fil-A’s chairman inspired Mauricio Pochettino’s ‘culture’ message to USMNT**\
 `"The team culture, the team togetherness, is stronger than any individual," USMNT midfielder Brenden Aaronson said.`\
 https://nytimes.com/athletic/6714870/2025/10/14/us-mens-soccer-mauricio-pochettino-culture/
