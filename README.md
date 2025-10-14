@@ -1,3 +1,15 @@
+**China Wants Foreign Scientists. The Public Says No Thanks.**\
+`Since Beijing announced a new visa to attract young science and technology graduates, a backlash has erupted online, forcing the government to respond.`\
+https://nytimes.com/2025/10/14/world/asia/china-stem-visa-racist-backlash.html
+
+**Fantasy football Week 7 drops: Crash of the Titans' Tony Pollard and Calvin Ridley**\
+`Among his Week 7 drops, Gary Davenport decides it's time to toll the bell for a pair of struggling Titans.`\
+https://nytimes.com/athletic/6715177/2025/10/14/fantasy-football-week-7-drops-pollard-ridley/
+
+**Will the Hurricanes find success with a Jaccob Slavin-Sean Walker pair?**\
+`Slavin's status for this road trip is uncertain after he left the game on Saturday early.`\
+https://nytimes.com/athletic/6712234/2025/10/14/carolina-hurricanes-slavin-walker/
+
 **Al Horford: Celtics didn't offer championship 'opportunity' that Warriors do**\
 `As Horford enters his 19th season, he reflected on his love for Boston and why the Warriors were the right team for him.`\
 https://nytimes.com/athletic/6714977/2025/10/14/al-horford-celtics-warriors-nba/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/14/world/europe/belgium-brussels-protests-pensions.h
 **New Tariffs Worry Furniture Sellers**\
 `New tariffs on imported furniture, kitchen cabinets and lumber came into effect on Tuesday. President Trump has threatened more.`\
 https://nytimes.com/video/business/economy/100000010457153/trump-tariffs-furniture-china.html
-
-**How to watch the 2025-26 Oklahoma City Thunder as they try to defend their title**\
-`The Thunder return their young championship core, looking to repeat as champs. Here's how to watch their games, regionally and nationally.`\
-https://nytimes.com/athletic/6712533/2025/10/14/oklahoma-city-thunder-nba-champs-tv-schedule-how-to-watch/
-
-**Global Growth Remains Sluggish as Tariff Threats Loom**\
-`The International Monetary Fund said the impact of trade tensions had been limited so far, but it expects growth to slow.`\
-https://nytimes.com/2025/10/14/business/imf-report-economy-trade-inflation.html
-
-**Wearing the Palette of Fall Foliage**\
-`Oranges, reds, yellows and other autumnal colors came together in a seasonal ensemble.`\
-https://nytimes.com/2025/10/14/style/street-style-look-fall-palette.html
 
