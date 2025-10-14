@@ -1,41 +1,40 @@
-**Introducing Jake Moody, the new Bears kicker and an unlikely Monday night hero**\
-`With everything on the line Monday night, Moody knew focus and presence would be key on his game-deciding kick.`\
-https://nytimes.com/athletic/6715204/2025/10/14/bears-kicker-jake-moody-commanders-unlikely-hero/
+**Trump to Award Posthumous Medal of Freedom to Charlie Kirk**\
+`President Trump was scheduled to attend a ceremony at the White House on Tuesday to honor the influential right-wing activist, who was assassinated last month.`\
+https://nytimes.com/2025/10/14/us/politics/charlie-kirk-medal-of-freedom-trump-birthday.html
 
-**Venezuela Closes Embassy in Norway After Activist Wins Peace Prize**\
-`The announcement came three days after María Corina Machado, an opposition leader, was awarded the Nobel Peace Prize.`\
-https://nytimes.com/2025/10/14/world/europe/venezuela-embassy-norway-closed.html
+**Trump Administration Live Updates: President to Host Argentina’s Leader After Bailout Agreement**\
+``\
+https://nytimes.com/live/2025/10/14/us/trump-news
 
-**Barcelona likely without Lewandowski for El Clasico due to injury**\
-`Club sources indicate Lewandowski is expected to be sidelined for around a month.`\
-https://nytimes.com/athletic/6715604/2025/10/14/robert-lewandowski-barcelona-injury-update/
+**Woltemade basks in 'very significant' goal after opening Germany account**\
+`The Newcastle striker provided a scrappy winner off his shoulder in the 1-0 success against Northern Ireland in Belfast.`\
+https://nytimes.com/athletic/6715642/2025/10/14/nick-woltemade-germany-newcastle/
 
-**Blake Treinen closes out Game 1, but concerns linger over Dodgers bullpen**\
-`Treinen shut the door as a wobbly ninth inning threatened to waste a spectacular start by Blake Snell.`\
-https://nytimes.com/athletic/6715034/2025/10/14/dodgers-bullpen-nlcs-mlb-playoffs-blake-treinen/
+**Chargers might already have the running back help they need in Kimani Vidal**\
+`Jim Harbaugh on Vidal: “For days, weeks, months, he’s been screaming, ‘Count on me.' And the way he played in this game, it was very loud.”`\
+https://nytimes.com/athletic/6714498/2025/10/14/chargers-kimani-vidal-running-back-trade-deadline/
 
-**Israel Identifies 2 Bodies Handed Over by Hamas**\
-`The return of the remains of four former captives has spurred anger that more were not retrieved. The devastation to Gaza is likely to make the task especially hard.`\
-https://nytimes.com/2025/10/14/world/middleeast/israeli-hostages-bodies-hamas.html
+**Ohio State final thoughts: As run game gets cleaned up, defense could be an all-timer**\
+`The Buckeyes defense is good enough to carry the team, but the run game still has room for improvement. `\
+https://nytimes.com/athletic/6713995/2025/10/14/ohio-state-defense-cfp-run-game/
 
-**How D'Andre Swift, Bears' run game found their groove in win over Commanders**\
-`Swift finally got going as the Bears' running back's 55-yard touchdown catch and 15-yard run to set up the winning field goal were clutch.`\
-https://nytimes.com/athletic/6715200/2025/10/14/bears-dandre-swift-run-game-commanders/
+**How to watch the Brooklyn Nets for both local and out-of-market fans**\
+`The Nets have one of the youngest rosters in the NBA. Watch them blossom and find out how to catch every game with this guide. `\
+https://nytimes.com/athletic/6704683/2025/10/14/brooklyn-nets-tv-streaming-how-to-watch-schedule/
 
-**Who stays, who goes? Predicting Yankees' free-agent decisions, including Cody Bellinger**\
-`It’s never too soon to start talking about the state of the Yankees’ roster. Here’s how we see some of the club's key decisions playing out.`\
-https://nytimes.com/athletic/6713738/2025/10/14/yankees-free-agents-2026-roster-decisions/
+**Do You Know Where in the World These Books Are Set?**\
+`Test your knowledge of European geography, history and travel with this short quiz about modern thrillers and crime novels. You may also discover a new book to read.`\
+https://nytimes.com/interactive/2025/10/14/books/review/europe-crime-quiz.html
 
-**Meet Zohran Mamdani, the Favorite to Lead New York City**\
-`Our reporters explore his skyrocket, his life and his appeal.`\
-https://nytimes.com/2025/10/14/us/meet-zohran-mamdani-the-favorite-to-lead-new-york-city.html
+**Tom Bogert: Why I Returned to The Athletic**\
+`America's greatest soccer newsbreaker documents why he's back where he belongs — here`\
+https://nytimes.com/athletic/6713347/2025/10/14/tom-bogert-why-i-joined-the-athletic/
 
-**What happens when you drop the NFL's top pick into a den of dysfunction?**\
-`The Titans feel good about Ward. Nearly everything else in Tennessee appears to be a disordered mess.
-`\
-https://nytimes.com/athletic/6714832/2025/10/14/cam-ward-rookie-qb-titans-organizational-dysfunction/
+**To Meet Pledges to Save Forests Spending Must Triple, U.N. Report Says**\
+`Four years after a global pledge to end deforestation, the amount of money going toward conserving and restoring forests is not enough, the analysis found.`\
+https://nytimes.com/2025/10/14/climate/deforestation-united-nations-report.html
 
-**The Rangers need Alexis Lafrenière to bounce back. Can the No. 1 pick deliver?**\
-`Breaking down two recent plays from the 24-year-old that highlight his potential for a New York team in desperate need of secondary offense.`\
-https://nytimes.com/athletic/6713463/2025/10/14/alexis-lafreniere-new-york-rangers-stats/
+**Instagram Will Limit Content for Teenagers Based on PG-13 Ratings**\
+`The restrictions also apply to conversations between teenage users and artificial intelligence chatbots.`\
+https://nytimes.com/2025/10/14/technology/instagram-teenagers-pg-13-ratings.html
 
