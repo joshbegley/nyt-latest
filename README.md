@@ -1,3 +1,11 @@
+**Mr. Trump, on the Middle East, Please Move Fast and Break Things**\
+`Message to Trump: As hard as stage one was for Gaza peace, you have not even seen hard yet.`\
+https://nytimes.com/2025/10/14/opinion/trump-israel-gaza-peace.html
+
+**Republicans Summon Jack Smith to Testify Before House Judiciary Committee**\
+`The panel’s Republican chairman, Representative Jim Jordan, accused the former special counsel of “prosecutorial misconduct and constitutional abuses.”`\
+https://nytimes.com/2025/10/14/us/politics/jack-smith-house-judiciary-committee.html
+
 **After D’Angelo Bared It All, His Career Was Never the Same**\
 `The video for “Untitled (How Does It Feel)” brought him new levels of fame, but not always the kind of attention he sought.`\
 https://nytimes.com/2025/10/14/arts/music/dangelo-untitled-video.html
@@ -29,12 +37,4 @@ https://nytimes.com/newsgraphics/card-story/madison-wis
 **U.S. Attorney Was Forced Out After Clashes Over How to Handle Russia Inquiry**\
 `The departures of Todd Gilbert and his deputy in the Western District of Virginia show the pressure being brought on prosecutors to pursue the president’s perceived foes.`\
 https://nytimes.com/2025/10/14/us/politics/doj-trump-russia-inquiry-prosecutors.html
-
-**Before Alaska Flooding, E.P.A. Canceled $20 Million Flood Protection Grant**\
-`The remote village of Kipnuk planned to use the money to protect against flooding. On Sunday, it was inundated.`\
-https://nytimes.com/2025/10/14/climate/kupnik-alaska-typhoon-trump-epa-flood.html
-
-**The Briefing: Latvia 0 England 5 – World Cup qualification secured as Gordon stakes a claim**\
-`England sealed their place at the World Cup with a comfortable victory in Latvia`\
-https://nytimes.com/athletic/6715921/2025/10/14/latvia-0-england-5-tuchel-gordon-kane/
 

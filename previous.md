@@ -1,3 +1,27 @@
+**After D’Angelo Bared It All, His Career Was Never the Same**\
+`The video for “Untitled (How Does It Feel)” brought him new levels of fame, but not always the kind of attention he sought.`\
+https://nytimes.com/2025/10/14/arts/music/dangelo-untitled-video.html
+
+**Jen Tullock Multitasks in ‘Nothing Can Take You From the Hand of God’**\
+`The “Severance” actor portrays all the roles in a play she wrote with Frank Winters, inspired by her evangelical upbringing.`\
+https://nytimes.com/2025/10/14/theater/nothing-can-take-you-from-the-hand-of-god-review.html
+
+**Trump Targets Democratic Districts By Halting Billions During Shutdown**\
+`The Trump administration has frozen or canceled nearly $28 billion primarily located in Democratic-led districts, according to an analysis by The New York Times.`\
+https://nytimes.com/interactive/2025/10/14/us/trump-grants-democrat-districts-government-shutdown.html
+
+**Stellantis Unveils $13 Billion U.S. Investment Plan**\
+`The carmaker, which has struggled with weak sales, is the latest company to announce a hefty investment in the United States.`\
+https://nytimes.com/2025/10/14/business/dealbook/stellantis-billion-dollar-us-investment.html
+
+**Why Israel Won the War**\
+`Israelis went to war to defeat an existential threat — and an existential lie.`\
+https://nytimes.com/2025/10/14/opinion/israel-war-hamas-peace-gaza.html
+
+**49ers mailbag: Nick Martin, Jordan James and doubling down on the youth movement**\
+`Three 49ers rookies on the active roster have yet to get any snaps this season. There are reasons that could change in coming weeks.`\
+https://nytimes.com/athletic/6716900/2025/10/14/49ers-fred-warner-nick-martin-tatum-bethune/
+
 **Madison, Wis.**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/madison-wis
@@ -10,31 +34,7 @@ https://nytimes.com/2025/10/14/us/politics/doj-trump-russia-inquiry-prosecutors.
 `The remote village of Kipnuk planned to use the money to protect against flooding. On Sunday, it was inundated.`\
 https://nytimes.com/2025/10/14/climate/kupnik-alaska-typhoon-trump-epa-flood.html
 
-**The Briefing: Latvia 0 England 5: Tuchel's team qualify for World Cup as Anthony Gordon stakes his claim**\
+**The Briefing: Latvia 0 England 5 – World Cup qualification secured as Gordon stakes a claim**\
 `England sealed their place at the World Cup with a comfortable victory in Latvia`\
 https://nytimes.com/athletic/6715921/2025/10/14/latvia-0-england-5-tuchel-gordon-kane/
-
-**A Coal-Processing Plant Closed. Local E.R. Visits Dropped Sharply.**\
-`As President Trump tries to revive the United States coal industry, research has found that closing a coal facility can improve local health.`\
-https://nytimes.com/2025/10/14/climate/coal-plants-health-effects.html
-
-**England qualify for the 2026 World Cup: Who could they play and when is the draw?**\
-`Thomas Tuchel's side will play at their eighth consecutive major tournament, having last missed out on the Euros in 2008`\
-https://nytimes.com/athletic/6713062/2025/10/14/england-2026-fifa-world-cup/
-
-**Trump Renews Threat to Cut ‘Democrat Programs’ as Shutdown Enters Third Week**\
-`The president said he would release a list of the cuts on Friday. “We are closing up Democrat programs that we disagree with, and they’re never going to open again,” he added.`\
-https://nytimes.com/2025/10/14/us/politics/trump-threats-democrats-shutdown.html
-
-**Kristaps Porzingis in no rush to sign contract extension with Atlanta Hawks**\
-`The 30-year-old center likes the situation he's in, playing alongside Trae Young and a beefed-up roster, but says he'll keep options open.`\
-https://nytimes.com/athletic/6716999/2025/10/14/porzingis-says-no-plans-for-a-contract-extension-but-hes-happy-with-hawks/
-
-**Scoop City: Another 'QB whisperer' fired**\
-`What's next after the Titans fired their head coach, plus Week 7 fantasy targets and Jake Ciely explaining how to fix broken teams`\
-https://nytimes.com/athletic/6716847/2025/10/14/brian-callahan-fired-titans-nfl-scoop-city-fantasy-waivers-week-7/
-
-**Ex-Astros GM James Click among those who have interviewed for Rockies' top job: Sources**\
-`The normally insular Rockies have committed to replacing Bill Schmidt with a candidate from outside the organization.`\
-https://nytimes.com/athletic/6717005/2025/10/14/rockies-baseball-operations-search-james-click/
 
