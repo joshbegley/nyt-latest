@@ -1,3 +1,15 @@
+**United Center goes dark during Blackhawks-Mammoth game, far from NHL's first power outage**\
+`Chicago's home arena went dark for about four seconds late in the opening period Monday night.`\
+https://nytimes.com/athletic/6716360/2025/10/14/united-center-power-outage-nhl-blackhawks-mammoth/
+
+**Submit a question for Nicki Jhabvala’s Washington Commanders mailbag**\
+`The Commanders are 3-3, but an up-and-down start has created plenty of questions, for the team and its fans. `\
+https://nytimes.com/athletic/6716515/2025/10/14/submit-a-question-for-nicki-jhabvalas-washington-commanders-mailbag/
+
+**Submit your questions for Aaron Gleeman's Twins offseason mailbag**\
+`Are you wondering about the Twins' offseason plans?`\
+https://nytimes.com/athletic/6716050/2025/10/14/questions-for-aaron-gleemans-twins-offseason-mailbag/
+
 **NFL MVP odds: Patrick Mahomes is inevitable**\
 `Mahomes is back on top of the MVP odds board. But will he hold on to it?`\
 https://nytimes.com/athletic/6713990/2025/10/14/nfl-mvp-odds-mahomes-mayfield-allen-quarterbacks/
