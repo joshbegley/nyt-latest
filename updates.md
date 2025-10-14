@@ -1,3 +1,7 @@
+**Early-Season Storm Sends a Deluge of Rain to California**\
+`A storm like this is rare for October, forecasters said.`\
+https://nytimes.com/2025/10/13/weather/california-storms-rain-forecast.html
+
 **Back Talk**\
 `Stella Zawistowski toys with our affections.`\
 https://nytimes.com/2025/10/13/crosswords/daily-puzzle-2025-10-14.html
