@@ -1,3 +1,7 @@
+**The slumping Arizona Cardinals need more cowbell and to stick with QB Kyler Murray — for now**\
+`With Murray sidelined, backup Jacoby Brissett started a QB controversy with his strong play against Colts.`\
+https://nytimes.com/athletic/6714946/2025/10/14/arizona-cardinals-slumping-kyler-murray/
+
 **Mike Shildt says decision to retire was his own, but Padres questions remain**\
 `Speaking Monday night, Shildt said he had just returned to San Diego after a week spent mulling things over at his home in North Carolina.`\
 https://nytimes.com/athletic/6715110/2025/10/14/san-diego-padres-mike-shildt-retirement-questions/
