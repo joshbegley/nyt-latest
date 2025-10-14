@@ -1,3 +1,7 @@
+**Brighton owner Tony Bloom on the future of the Premier League and how his club will adapt to it**\
+`'Everything about the Premier League becomes more difficult every year,' Bloom tells The Athletic...`\
+https://nytimes.com/athletic/6699541/2025/10/14/tony-bloom-brighton-interview-psr/
+
 **Explosion at Italian Farmhouse Kills Three Police Officers**\
 `The police were raiding the house in northern Italy when the blast caused it to collapse, officials said. More than a dozen officers were injured.`\
 https://nytimes.com/2025/10/14/world/europe/italy-carabinieri-explosion-verona.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6714690/2025/10/14/bears-vs-commanders-mnf-takeaway
 **Celebrating the genius of Brian Lara and the summer he re-wrote the record books**\
 `A new documentary looks back at the day the diminutive West Indies left hander became the first batter to score 500 in a first-class match`\
 https://nytimes.com/athletic/6658062/2025/10/14/brian-lara-501-warwickshire-west-indies/
-
-**Liverpool mailbag: Guehi January interest? Konate contract latest? Heitinga exit impact?**\
-`The Athletic's Liverpool reporter James Pearce has answered your big questions ahead of the return to Premier League action`\
-https://nytimes.com/athletic/6711555/2025/10/14/liverpool-mailbag-guehi-january-interest-konate-contract-latest-heitinga-exit-impact/
 
