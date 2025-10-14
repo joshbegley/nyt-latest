@@ -1,3 +1,7 @@
+**D’Angelo: 14 Essential Songs**\
+`The soul singer, songwriter and producer, who died on Tuesday at 51, released three studio albums of meticulously constructed, vocally ambitious, genre-crossing music.`\
+https://nytimes.com/2025/10/14/arts/music/dangelo-songs-playlist.html
+
 **Joel Embiid has 'some chance' of playing in 76ers' final preseason game, coach says**\
 `The 2024 MVP could soon be back in action for his first competitive game since last February. `\
 https://nytimes.com/athletic/6716579/2025/10/14/joel-embiid-injury-update-nick-nurse-preseason/
@@ -29,8 +33,4 @@ https://nytimes.com/athletic/6716873/2025/10/14/penguins-vs-ducks-stream-how-to-
 **How to watch Wild vs. Stars: Time, TV, streaming**\
 `Find out how to watch the Minnesota Wild play the Dallas Stars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6716871/2025/10/14/wild-vs-stars-stream-how-to-watch-oct-14/
-
-**How to watch Hurricanes vs. Sharks: Time, TV, streaming**\
-`Find out how to watch the Carolina Hurricanes play the San Jose Sharks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6716869/2025/10/14/hurricanes-vs-sharks-stream-how-to-watch-oct-14/
 

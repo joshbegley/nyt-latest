@@ -1,3 +1,7 @@
+**D’Angelo: 14 Essential Songs**\
+`The soul singer, songwriter and producer, who died on Tuesday at 51, released three studio albums of meticulously constructed, vocally ambitious, genre-crossing music.`\
+https://nytimes.com/2025/10/14/arts/music/dangelo-songs-playlist.html
+
 **Joel Embiid has 'some chance' of playing in 76ers' final preseason game, coach says**\
 `The 2024 MVP could soon be back in action for his first competitive game since last February. `\
 https://nytimes.com/athletic/6716579/2025/10/14/joel-embiid-injury-update-nick-nurse-preseason/
