@@ -1,3 +1,11 @@
+**Critical fantasy football insights for Week 7: Sam Darnold continues career season**\
+`Brandon Funston and Jess Bryant look at year-to-date and weekly usage to give actionable Week 7 advice. `\
+https://nytimes.com/athletic/6713659/2025/10/14/fantasy-football-usage-week-7-darnold-tucker/
+
+**Zelensky Revokes Odesa Mayor’s Citizenship, Amid Feud With Local Leaders**\
+`Ukraine’s security services said the mayor held Russian citizenship, which is forbidden, but he denied the accusation. Government opponents see it as part of a power grab.`\
+https://nytimes.com/2025/10/14/world/europe/ukraine-odesa-mayor-citizenship.html
+
 **Nigeria secure spot in World Cup play-offs, South Africa qualify for the first time since 2010**\
 `Victor Osimhen scored a hat-trick in a 4-0 win over Benin on Tuesday, while South Africa beat Rwanda 3-0 to top Group C.`\
 https://nytimes.com/athletic/6713152/2025/10/14/nigeria-south-africa-world-cup/
