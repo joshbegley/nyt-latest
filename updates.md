@@ -1,3 +1,11 @@
+**'It's like art': Bijan Robinson outshines NFL's MVP as Atlanta upsets Buffalo**\
+`Bijan Robinson had 238 yards from scrimmage Monday night as the Falcons defeated the Bills 24-14.`\
+https://nytimes.com/athletic/6715138/2025/10/14/bijan-robinson-falcons-bills/
+
+**Week 6 impacts fantasy football trade value of George Pickens, Cam Skattebo and others**\
+`KC Joyner looks at impressive or disheartening performances from Week 6 to talk fantasy football trades. `\
+https://nytimes.com/athletic/6712832/2025/10/14/week-6-impacts-fantasy-football-trade-value-george-pickens-cam-skattebo/
+
 **Jessica Berman on her desire to stay with NWSL: 'There is a lot more I have to give'**\
 `Berman has overseen a huge increase in NWSL club valuations and helped secure a four-year media deal worth $60 million a year`\
 https://nytimes.com/athletic/6713228/2025/10/14/jessica-berman-nwsl-leadership-contract/
