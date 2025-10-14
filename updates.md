@@ -1,3 +1,15 @@
+**Doctor Accused of Using a Gun to Force a Woman Into Sex**\
+`Maurizio Miglietta, who the authorities said boasted of law enforcement connections, was charged with rape. He practiced at hospitals in New York City and New Jersey.`\
+https://nytimes.com/2025/10/14/nyregion/doctor-ny-nj-rape-charges.html
+
+**Dawn Staley doesn't expect a female head coach in the NBA anytime soon**\
+`South Carolina's coach wasn't optimistic about the prospect at SEC media day Tuesday: "I hope I'm wrong."`\
+https://nytimes.com/athletic/6717296/2025/10/14/dawn-staley-woman-head-coach-nba/
+
+**Share Your Videos of ICE Interactions**\
+`The Times is looking for examples of interactions between federal immigration agents and residents across the country.`\
+https://nytimes.com/2025/10/14/us/videos-ice-interactions.html
+
 **Giants speak with former Orioles skipper Brandon Hyde about open manager position: Source**\
 `Hyde, a North Bay native, won 101 games with the Orioles in 2023 but his team got off to a slow start in 2025 and he was fired in May.`\
 https://nytimes.com/athletic/6717439/2025/10/14/giants-brandon-hyde-manager-opening/
