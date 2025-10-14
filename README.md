@@ -1,3 +1,7 @@
+**Simone Biles says she'll be at 2028 L.A. Olympics 'in some capacity'**\
+`"I just don't know right now if it's on the floor or in the stands," Biles said during an appearance in Argentina last week.`\
+https://nytimes.com/athletic/6715862/2025/10/14/simone-biles-olympics-games-2028/
+
 **China Wants Foreign Scientists. The Public Says No, Thanks.**\
 `Since Beijing announced a new visa to attract young science and technology graduates, a backlash has erupted online, forcing the government to respond.`\
 https://nytimes.com/2025/10/14/world/asia/china-stem-visa-racist-backlash.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6715848/2025/10/14/james-franklin-penn-state-matt-r
 **Protests in Brussels Halt Flights and Disrupt Public Transit**\
 `The demonstrations, organized by Belgium’s major trade unions, oppose austerity proposals that would affect pensions and other social welfare.`\
 https://nytimes.com/2025/10/14/world/europe/belgium-brussels-protests-pensions.html
-
-**New Tariffs Worry Furniture Sellers**\
-`New tariffs on imported furniture, kitchen cabinets and lumber came into effect on Tuesday. President Trump has threatened more.`\
-https://nytimes.com/video/business/economy/100000010457153/trump-tariffs-furniture-china.html
 
