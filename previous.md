@@ -1,3 +1,15 @@
+**In Patz Case, Manhattan Prosecutors Ask for Months to Decide on Retrial**\
+`The district attorney is searching for witnesses and plans to ask the Supreme Court to consider the Etan Patz case. A defense lawyer for the man accused in the killing says they’re dawdling.`\
+https://nytimes.com/2025/10/14/nyregion/etan-patz-retrial-appeals-court.html
+
+**In a Surprise, MGM Drops Bid for N.Y. Casino License, Leaving 3 Competitors**\
+`New York State is poised to award as many as three new licenses by the end of the year.`\
+https://nytimes.com/2025/10/14/nyregion/nyc-casinos-mgm-yonkers.html
+
+**Trump Says He May Give Tomahawks to Ukraine. Is He Bluffing?**\
+`President Trump’s threats to provide the missiles to Ukraine, whether he follows through on them or not, are a sign of his growing frustration with Moscow.`\
+https://nytimes.com/2025/10/14/us/politics/trump-tomahawks-ukraine-russia.html
+
 **White House Guts Education Department With More Layoffs**\
 `About a fifth of the agency’s remaining staff was affected, including employees working on special education, funding for low-income students and civil rights enforcement.`\
 https://nytimes.com/2025/10/14/us/politics/trump-education-department-federal-layoffs.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010458749/freed-palestinian-pri
 **Sticky Rice Cakes With Sausage and Greens**\
 `Tteok, cylindrical or oval Korean rice cakes, are simple to prepare in this dish that’s playful, filling and kid-friendly. The New York Times Cooking columnist Yewande Komolafe shares her recipe with us.`\
 https://nytimes.com/video/dining/100000010457538/sticky-rice-cakes-with-sausage-and-greens.html
-
-**Three Must-Try Sandwiches in N.Y.C.**\
-`This week, The New York Times’s Food contributor Luke Fortney recommends three sandwich spots around New York City.`\
-https://nytimes.com/video/dining/100000010457534/three-must-try-sandwiches-in-nyc.html
-
-**The Pope Needs to Be More Specific**\
-`A pious vision of political economy should get more concrete.`\
-https://nytimes.com/2025/10/14/opinion/pope-leo-dilexi-te-politics.html
-
-**Jen Tullock Multitasks in ‘Nothing Can Take You From the Hand of God’**\
-`The “Severance” actor portrays all the roles in a play she wrote with Frank Winters, inspired by her evangelical upbringing.`\
-https://nytimes.com/2025/10/14/theater/nothing-can-take-you-from-the-hand-of-god-review.html
 
