@@ -1,3 +1,15 @@
+**Former referee David Coote pleads guilty to making indecent image of child**\
+`The 43-year-old admitted the offence during a brief hearing at Nottingham Crown Court on Tuesday.`\
+https://nytimes.com/athletic/6715522/2025/10/14/david-coote-guilty-court-case/
+
+**Where Jaxson Dart excelled that should have the Giants most excited: Week 6 film review**\
+`Plus, the Chiefs offense has found its groove, and why Bo Nix could be lowering the Broncos' ceiling this season.`\
+https://nytimes.com/athletic/6712580/2025/10/14/jaxson-dart-chiefs-bo-nix-film-review/
+
+**What's expected in WNBA's consequential offseason as CBA deadline nears?**\
+`Salaries, revenue share and scheduling details are important issues in the CBA negotiations.`\
+https://nytimes.com/athletic/6714451/2025/10/14/wnba-offseason-cba-deadline/
+
 **The Pulse: Four highlights from a stacked night**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6714778/2025/10/14/nfl-mlb-highlights-the-pulse/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6714299/2025/10/14/panthers-run-defense-derrick-bro
 **England name first squad since Euro 2025: Reid, Hinds get first call-ups**\
 `Captain Leah Williamson, forward Lauren James and winger Lauren Hemp all miss out through injury.`\
 https://nytimes.com/athletic/6715418/2025/10/14/england-women-squad-october-australia-brazil/
-
-**J.J. McCarthy hasn't yet been named the Vikings' starter for Week 7 — here’s why**\
-`McCarthy's readiness may come down to more than the health of his ankle. His rhythm and timing in the pocket need to improve, as well.`\
-https://nytimes.com/athletic/6714179/2025/10/14/jj-mccarthy-vikings-carson-wentz-eagles/
-
-**Trump to Meet With Argentina’s Leader as U.S. Moves Ahead With Bailout**\
-`President Javier Milei will visit the White House on Tuesday after the Trump administration agreed to provide Argentina a $20 billion lifeline.`\
-https://nytimes.com/2025/10/14/us/politics/trump-argentina-leader-bailout.html
-
-**With Brad Keller set to be a free agent, will Cubs adjust their bullpen model?**\
-`In recent years, the Cubs have shown a disinclination to make major investments in their bullpen. `\
-https://nytimes.com/athletic/6714363/2025/10/14/chicago-cubs-brad-keller-free-agent-bullpen-model/
 

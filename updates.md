@@ -1,3 +1,15 @@
+**Former referee David Coote pleads guilty to making indecent image of child**\
+`The 43-year-old admitted the offence during a brief hearing at Nottingham Crown Court on Tuesday.`\
+https://nytimes.com/athletic/6715522/2025/10/14/david-coote-guilty-court-case/
+
+**Where Jaxson Dart excelled that should have the Giants most excited: Week 6 film review**\
+`Plus, the Chiefs offense has found its groove, and why Bo Nix could be lowering the Broncos' ceiling this season.`\
+https://nytimes.com/athletic/6712580/2025/10/14/jaxson-dart-chiefs-bo-nix-film-review/
+
+**What's expected in WNBA's consequential offseason as CBA deadline nears?**\
+`Salaries, revenue share and scheduling details are important issues in the CBA negotiations.`\
+https://nytimes.com/athletic/6714451/2025/10/14/wnba-offseason-cba-deadline/
+
 **The Pulse: Four highlights from a stacked night**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6714778/2025/10/14/nfl-mlb-highlights-the-pulse/
