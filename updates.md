@@ -1,3 +1,11 @@
+**Gaza’s Brittle Cease-Fire**\
+`Plus, remembering D’Angelo. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/10/14/briefing/gaza-milei-dangelo.html
+
+**Flyers' Matvei Michkov struggling for ice time. What's going on?**\
+`Miscues and numerous Flyers penalties are among the reasons Michkov’s ice time has been limited.`\
+https://nytimes.com/athletic/6717014/2025/10/14/flyers-matvei-michkov-ice-time/
+
 **Jason Kidd signs multiyear extension with Mavs: Source**\
 `The Mavericks, who are coming off a 39-43 season, reached the NBA Finals in 2024.`\
 https://nytimes.com/athletic/6717255/2025/10/14/jason-kidd-extension-mavericks/

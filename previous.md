@@ -1,3 +1,11 @@
+**Gaza’s Brittle Cease-Fire**\
+`Plus, remembering D’Angelo. Here’s the latest at the end of Tuesday.`\
+https://nytimes.com/2025/10/14/briefing/gaza-milei-dangelo.html
+
+**Flyers' Matvei Michkov struggling for ice time. What's going on?**\
+`Miscues and numerous Flyers penalties are among the reasons Michkov’s ice time has been limited.`\
+https://nytimes.com/athletic/6717014/2025/10/14/flyers-matvei-michkov-ice-time/
+
 **Jason Kidd signs multiyear extension with Mavs: Source**\
 `The Mavericks, who are coming off a 39-43 season, reached the NBA Finals in 2024.`\
 https://nytimes.com/athletic/6717255/2025/10/14/jason-kidd-extension-mavericks/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/14/theater/nothing-can-take-you-from-the-hand-of-god
 **Teoscar Hernández blames himself for wild double play in NLCS Game 1**\
 `Hernández was the runner on third when Max Muncy hit a 400-foot fly ball that resulted in a bizarre 8-6-2 double play.`\
 https://nytimes.com/athletic/6717108/2025/10/14/teoscar-hernandez-dodgers-brewers-double-play/
-
-**What Makes a Martyr?**\
-`Since his death, Charlie Kirk has become a powerful symbol for the far right.`\
-https://nytimes.com/2025/10/14/world/martyr-charlie-kirk-hamas-israel-madagascar.html
-
-**New York Mets to hire Jeff Albert as lead hitting instructor: Sources**\
-`Albert must get the most out of the Mets' young hitters to supplement New York's lineup.`\
-https://nytimes.com/athletic/6717120/2025/10/14/new-york-mets-jeff-albert-lead-hitting-instructor/
 
