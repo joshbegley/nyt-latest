@@ -1,3 +1,11 @@
+**Russia Steps Up Assault on Antiwar Exiles, Accusing Them of Terrorism**\
+`An intelligence agency’s sweeping investigation shows that Moscow is closely following the anti-Kremlin activities of Russians abroad.`\
+https://nytimes.com/2025/10/14/world/europe/russia-antiwar-ukraine-terrorism.html
+
+**Brian Branch's actions are hurting the Lions and he needs to figure it out — quickly**\
+`Branch is gaining a reputation in this league and it's not one that he or the Lions want. The situation Sunday night was entirely avoidable.`\
+https://nytimes.com/athletic/6715572/2025/10/14/detroit-lions-brian-branch-suspension-chiefs/
+
 **How to watch Kevin Durant and the Houston Rockets throughout the season**\
 `With Kevin Durant in tow, the Rockets have their sights set on an NBA championship. Find out how to tune in for all 82 games. `\
 https://nytimes.com/athletic/6710660/2025/10/14/houston-rockets-tv-streaming-kevin-durant-how-to-watch/
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/10/14/us/trump-news
 **Woltemade basks in 'very significant' goal after opening Germany account**\
 `The Newcastle striker provided a scrappy winner off his shoulder in the 1-0 success against Northern Ireland in Belfast.`\
 https://nytimes.com/athletic/6715642/2025/10/14/nick-woltemade-germany-newcastle/
-
-**Chargers might already have the running back help they need in Kimani Vidal**\
-`Jim Harbaugh on Vidal: “For days, weeks, months, he’s been screaming, ‘Count on me.' And the way he played in this game, it was very loud.”`\
-https://nytimes.com/athletic/6714498/2025/10/14/chargers-kimani-vidal-running-back-trade-deadline/
-
-**Ohio State final thoughts: As run game gets cleaned up, defense could be an all-timer**\
-`The Buckeyes defense is good enough to carry the team, but the run game still has room for improvement. `\
-https://nytimes.com/athletic/6713995/2025/10/14/ohio-state-defense-cfp-run-game/
 

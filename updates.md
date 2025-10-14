@@ -1,3 +1,11 @@
+**Russia Steps Up Assault on Antiwar Exiles, Accusing Them of Terrorism**\
+`An intelligence agency’s sweeping investigation shows that Moscow is closely following the anti-Kremlin activities of Russians abroad.`\
+https://nytimes.com/2025/10/14/world/europe/russia-antiwar-ukraine-terrorism.html
+
+**Brian Branch's actions are hurting the Lions and he needs to figure it out — quickly**\
+`Branch is gaining a reputation in this league and it's not one that he or the Lions want. The situation Sunday night was entirely avoidable.`\
+https://nytimes.com/athletic/6715572/2025/10/14/detroit-lions-brian-branch-suspension-chiefs/
+
 **How to watch Kevin Durant and the Houston Rockets throughout the season**\
 `With Kevin Durant in tow, the Rockets have their sights set on an NBA championship. Find out how to tune in for all 82 games. `\
 https://nytimes.com/athletic/6710660/2025/10/14/houston-rockets-tv-streaming-kevin-durant-how-to-watch/
