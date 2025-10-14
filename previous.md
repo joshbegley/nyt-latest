@@ -10,10 +10,6 @@ https://nytimes.com/2025/10/14/world/asia/bangladesh-garment-factory-fire.html
 `Former Premier League official's spectacular downfall has been a dark episode for English refereeing`\
 https://nytimes.com/athletic/6699746/2025/10/14/the-disgrace-of-david-coote/
 
-**‘A Big Day’: How the U.S. and the Arab World Teamed Up to Seal the Gaza Deal**\
-`The cease-fire talks in Egypt showed that with pressure on Hamas and Israel, seemingly huge impediments could be overcome or set aside.`\
-https://nytimes.com/2025/10/14/world/middleeast/us-arab-gaza-deal.html
-
 **Let’s Talk About Divorce After 50**\
 `‘Gray divorce’ is becoming more common. We want to hear about yours.`\
 https://nytimes.com/2025/10/14/well/family/gray-divorce-callout.html
