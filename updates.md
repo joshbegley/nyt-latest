@@ -1,3 +1,12 @@
+**Venezuela Closes Embassy in Norway After Activist Wins Peace Prize**\
+`The announcement came three days after María Corina Machado, an opposition leader, was awarded the Nobel Peace Prize.`\
+https://nytimes.com/2025/10/14/world/europe/venezuela-embassy-norway-closed.html
+
+**What happens when you drop the NFL's top pick into a den of dysfunction?**\
+`The Titans feel good about Ward. Nearly everything else in Tennessee appears to be a disordered mess.
+`\
+https://nytimes.com/athletic/6714832/2025/10/14/cam-ward-rookie-qb-titans-organizational-dysfunction/
+
 **What happens when you drop the NFL's top pick into a den of dysfunction?**\
 `The Titans feel good about Ward. Nearly everything else in Tennessee appears to be a disordered mess.
 `\
