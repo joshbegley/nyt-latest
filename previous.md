@@ -34,7 +34,3 @@ https://nytimes.com/2025/10/14/opinion/israel-gaza-hamas.html
 `Mr. Newsom said he was concerned that the measure restricting PFAS chemicals would make pots and pans more expensive for Californians.`\
 https://nytimes.com/2025/10/14/climate/pfas-forever-chemicals-california-cookware-ban.html
 
-**Suns, Mercury owner countersues investors, claims they seek 'extortionate' buyout**\
-`Phoenix Suns and Mercury owner Mat Ishbia has filed a countersuit against two minority owners, accusing them of angling for a larger buyout.`\
-https://nytimes.com/athletic/6716129/2025/10/14/mat-ishbia-lawsuit-suns-buyout/
-
