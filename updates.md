@@ -1,3 +1,19 @@
+**Al Horford: Celtics didn't offer championship 'opportunity' that Warriors do**\
+`As Horford enters his 19th season, he reflected on his love for Boston and why the Warriors were the right team for him.`\
+https://nytimes.com/athletic/6714977/2025/10/14/al-horford-celtics-warriors-nba/
+
+**The Windup: Bet you’d never seen this play before!**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6715270/2025/10/14/brewers-double-play-dodgers-the-windup/
+
+**Devastating Rains in Mexico Leave Dozens Dead and Missing**\
+`Floods and landslides in Mexico killed several dozen people, destroying homes and isolating communities in the central and eastern parts of the country.`\
+https://nytimes.com/video/world/americas/100000010457262/mexico-rain-floods-landslides-deaths.html
+
+**How to watch the Sacramento Kings during the 2025-26 regular season**\
+`The Kings are hoping for more stability, and more wins, this year. Here's how to watch their games, including several 8 p.m. PT tipoffs.`\
+https://nytimes.com/athletic/6712660/2025/10/14/sacramento-kings-nbc-late-games-schedule-how-to-watch/
+
 **Until Saturday: Franklin's rise and $45M fall**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6715848/2025/10/14/james-franklin-penn-state-matt-rhule-until-saturday/
