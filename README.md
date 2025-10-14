@@ -7,7 +7,7 @@ https://nytimes.com/2025/10/14/crosswords/spelling-bee-forum.html
 https://nytimes.com/2025/10/14/learning/outdoor-space.html
 
 **Brighton owner Tony Bloom on the future of the Premier League and how his club will adapt to it**\
-`'Everything about the Premier League becomes more difficult every year,' Bloom tells The Athletic...`\
+`Bloom shares his views on football governance, the increasing American influence, and the possibility of league games being played overseas`\
 https://nytimes.com/athletic/6699541/2025/10/14/tony-bloom-brighton-interview-psr/
 
 **Explosion at Italian Farmhouse Kills Three Police Officers**\
