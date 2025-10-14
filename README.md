@@ -1,3 +1,11 @@
+**Bills-Falcons takeaways: Bijan Robinson's big game powers Atlanta to victory over Buffalo**\
+`An 81-yard touchdown run highlighted Bijan Robinson’s huge night and helped propel the Atlanta Falcons to a 24-14 victory over the Buffalo Bills on Monday night at Mercedes-Benz Stadium.`\
+https://nytimes.com/athletic/6714845/2025/10/13/bills-falcons-mnf-nfl-takeaways/
+
+**Dodgers-Brewers Game 1 takeaways: Wild double play, Blake Snell's brilliance highlight L.A.'s win**\
+`This is why the Dodgers signed Snell: To be the tone-setter for one of the deepest rotations in the majors.`\
+https://nytimes.com/athletic/6714903/2025/10/13/dodgers-brewers-game-1-score-results-takeaways-playoffs-mlb/
+
 **Early-Season Storm Sends a Deluge of Rain to California**\
 `A storm like this is rare for October, forecasters said.`\
 https://nytimes.com/2025/10/13/weather/california-storms-rain-forecast.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6714753/2025/10/13/utah-vs-byu-stream-how-to-watch-
 **How to watch Cincinnati vs. Oklahoma State: Time, TV, streaming**\
 `Find out how to watch the Cincinnati Bearcats play the Oklahoma State Cowboys, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6714732/2025/10/13/cincinnati-vs-oklahoma-state-stream-how-to-watch-oct-18/
-
-**How to watch Missouri vs. Auburn: Time, TV, streaming**\
-`Find out how to watch the Missouri Tigers play the Auburn Tigers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6714714/2025/10/13/missouri-vs-auburn-stream-how-to-watch-oct-18/
-
-**Blue Jays-Mariners Game 2 takeaways: Seattle's sluggers dominate in Toronto**\
-`The Mariners got to Blue Jays starter Trey Yesavage early and never let up. `\
-https://nytimes.com/athletic/6714506/2025/10/13/blue-jays-mariners-game-2-score-results-takeaways-playoffs-ml/
 
