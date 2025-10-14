@@ -1,3 +1,8 @@
+**What happens when you drop the NFL's top pick into a den of dysfunction?**\
+`The Titans feel good about Ward. Nearly everything else in Tennessee appears to be a disordered mess.
+`\
+https://nytimes.com/athletic/6714832/2025/10/14/cam-ward-rookie-qb-titans-organizational-dysfunction/
+
 **Barcelona likely without Lewandowski for El Clasico due to injury**\
 `Club sources indicate Lewandowski is expected to be sidelined for around a month.`\
 https://nytimes.com/athletic/6715604/2025/10/14/robert-lewandowski-barcelona-injury-update/

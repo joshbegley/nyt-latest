@@ -1,3 +1,7 @@
+**Venezuela Closes Embassy in Norway After Activist Wins Peace Prize**\
+`The announcement came three days after María Corina Machado, an opposition leader, was awarded the Nobel Peace Prize.`\
+https://nytimes.com/2025/10/14/world/europe/venezuela-embassy-norway-closed.html
+
 **Barcelona likely without Lewandowski for El Clasico due to injury**\
 `Club sources indicate Lewandowski is expected to be sidelined for around a month.`\
 https://nytimes.com/athletic/6715604/2025/10/14/robert-lewandowski-barcelona-injury-update/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6713463/2025/10/14/alexis-lafreniere-new-york-range
 **With little on the books, Guardians can eye some upgrades**\
 `The Guardians must spend this offseason—payroll room and a contending roster leave no excuse to delay fixing a bottom-tier offense.`\
 https://nytimes.com/athletic/6696790/2025/10/14/guardians-payroll-breakdown/
-
-**Which college football teams feel hopeless at midseason? Wisconsin, UNC and more**\
-`Some big-name coaches are on the hot seat. We looked at 10 teams deep in the darkness alongside Penn State.`\
-https://nytimes.com/athletic/6714477/2025/10/14/wisconsin-unc-penn-state-college-football-sad-programs/
 
