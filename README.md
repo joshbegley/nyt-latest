@@ -1,40 +1,40 @@
-**Making sense of Brewers-Dodgers 8-6-2 DP, the strangest double play in postseason history**\
-`What will you tell your grandchildren about the strangest double play in postseason history? Here's everything you need to know about it. `\
-https://nytimes.com/athletic/6715385/2025/10/14/brewers-dodgers-strange-double-play-game-1-nlcs/
+**Former referee David Coote pleads guilty to making indecent image of child**\
+`The 43-year-old admitted the offence during a brief hearing at Nottingham Crown Court on Tuesday.`\
+https://nytimes.com/athletic/6715522/2025/10/14/david-coote-guilty-court-case/
 
-**Millie Bright was a strong but softly-spoken vision of England at their best**\
-`Millie Bright has ensured that the landscape of English women's football is forever transformed`\
-https://nytimes.com/athletic/6713649/2025/10/14/millie-bright-was-a-strong-but-softly-spoken-vision-of-england-at-their-best/
+**Where Jaxson Dart excelled that should have the Giants most excited: Week 6 film review**\
+`Plus, the Chiefs offense has found its groove, and why Bo Nix could be lowering the Broncos' ceiling this season.`\
+https://nytimes.com/athletic/6712580/2025/10/14/jaxson-dart-chiefs-bo-nix-film-review/
 
-**Predicting how the top of the Western Conference will play out in 2025-26**\
-`The West is loaded with quality, and several teams could end up in the conference finals. But it's truly a one-horse race.`\
-https://nytimes.com/athletic/6696506/2025/10/14/nba-predictions-lakers-warriors-rockets-clippers/
+**What's expected in WNBA's consequential offseason as CBA deadline nears?**\
+`Salaries, revenue share and scheduling details are important issues in the CBA negotiations.`\
+https://nytimes.com/athletic/6714451/2025/10/14/wnba-offseason-cba-deadline/
 
-**NFL QB stock report, Week 7: Look out, Baker Mayfield is feeling dangerous again**\
-`“He’s one of the best off-schedule QBs in the entire league. He might be the best.”`\
-https://nytimes.com/athletic/6713646/2025/10/14/qb-stock-report-baker-mayfield-rankings/
+**The Pulse: Four highlights from a stacked night**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6714778/2025/10/14/nfl-mlb-highlights-the-pulse/
 
-**NFL Week 7 Power Rankings: New No. 1 and a top-10 shakeup as we check in on fantasy stars**\
-`There are major changes at the top of the power rankings as the Chiefs knock off the Lions and we drill down on impact fantasy players.`\
-https://nytimes.com/athletic/6713326/2025/10/14/week-7-nfl-power-rankings-fantasy-chiefs-patrick-mahomes/
+**Feldman's coaching hot seat at midseason: Luke Fickell, Hugh Freeze and more**\
+`Penn State continued an active early college football coaching carousel, and more movement is sure to come. Here's who to watch.`\
+https://nytimes.com/athletic/6714251/2025/10/14/college-football-hot-seat-coaches-fickell-napier-freeze/
 
-**Another reason the Flacco trade might have irked Tomlin? Look to a loss from last year**\
-`The Steelers coach, who criticized the Browns for trading Flacco to a division rival, will face the quarterback again on Thursday.`\
-https://nytimes.com/athletic/6714679/2025/10/14/mike-tomlin-joe-flacco-history/
+**How Chick-fil-A’s chairman inspired Mauricio Pochettino’s ‘culture’ message to USMNT**\
+`"The team culture, the team togetherness, is stronger than any individual," USMNT midfielder Brenden Aaronson said.`\
+https://nytimes.com/athletic/6714870/2025/10/14/us-mens-soccer-mauricio-pochettino-culture/
 
-**The New York Times International Edition in Print for Wednesday, Oct. 15, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/10/14/todays-new-york-times-international-edition
+**It doesn't appear major changes coming to Cowboys defense: 'We're gonna ride this thing out'**\
+`“Matt Eberflus is a damn good football coach," Cowboys coach Brian Schottenheimer said of his defensive coordinator.`\
+https://nytimes.com/athletic/6714821/2025/10/14/cowboys-defense-matt-eberflus-job-security/
 
-**'It's like art': Bijan Robinson outshines NFL's MVP as Atlanta upsets Buffalo**\
-`Bijan Robinson had 238 yards from scrimmage Monday night as the Falcons defeated the Bills 24-14.`\
-https://nytimes.com/athletic/6715138/2025/10/14/bijan-robinson-falcons-bills/
+**Werder Bremen player apologises for poo emoji sign after derby win**\
+`Medina Desic said the sign was "off-target" and she got "caught up in the emotions" of the derby.`\
+https://nytimes.com/athletic/6715514/2025/10/14/medina-desic-bundesliga-bremen-hamburg/
 
-**Week 6 impacts fantasy football trade value of George Pickens, Cam Skattebo and others**\
-`KC Joyner looks at impressive or disheartening performances from Week 6 to talk fantasy football trades. `\
-https://nytimes.com/athletic/6712832/2025/10/14/week-6-impacts-fantasy-football-trade-value-george-pickens-cam-skattebo/
+**Derrick Brown is back — so is Panthers' suddenly stout run defense: 'I had faith'**\
+`The Carolina defense has put together back-to-back run stuffing performances. "That's a front right here," Nick Scott said of the D-line.`\
+https://nytimes.com/athletic/6714299/2025/10/14/panthers-run-defense-derrick-brown/
 
-**Jessica Berman on her desire to stay with NWSL: 'There is a lot more I have to give'**\
-`Berman has overseen a huge increase in NWSL club valuations and helped secure a four-year media deal worth $60 million a year`\
-https://nytimes.com/athletic/6713228/2025/10/14/jessica-berman-nwsl-leadership-contract/
+**England name first squad since Euro 2025: Reid, Hinds get first call-ups**\
+`Captain Leah Williamson, forward Lauren James and winger Lauren Hemp all miss out through injury.`\
+https://nytimes.com/athletic/6715418/2025/10/14/england-women-squad-october-australia-brazil/
 
