@@ -1,3 +1,7 @@
+**With Anthony Richardson on IR, the Colts need a backup QB. Here are 10 options**\
+`Daniel Jones is leading the highest-scoring offense in the NFL at 32.`\
+https://nytimes.com/athletic/6716521/2025/10/14/colt-anthony-richardson-daniel-jones-backup-qb/
+
 **What's next for Senators after losing Brady Tkachuk for at least 4 weeks?**\
 `The Senators say they'll know more Wednesday about whether their captain needs surgery after being injured vs. Nashville on Monday.`\
 https://nytimes.com/athletic/6716447/2025/10/14/senators-tkachuk-injury-wrist-hand/

@@ -1,3 +1,7 @@
+**With Anthony Richardson on IR, the Colts need a backup QB. Here are 10 options**\
+`Daniel Jones is leading the highest-scoring offense in the NFL at 32.`\
+https://nytimes.com/athletic/6716521/2025/10/14/colt-anthony-richardson-daniel-jones-backup-qb/
+
 **What's next for Senators after losing Brady Tkachuk for at least 4 weeks?**\
 `The Senators say they'll know more Wednesday about whether their captain needs surgery after being injured vs. Nashville on Monday.`\
 https://nytimes.com/athletic/6716447/2025/10/14/senators-tkachuk-injury-wrist-hand/
@@ -29,12 +33,4 @@ https://nytimes.com/2025/10/14/travel/airports-tsa-kristi-noem-video-shutdown.ht
 **Canadiens architects Gorton, Hughes earned a longer runway. Now, the hard part begins**\
 `Gorton and Hughes getting five more years was an easy decision for owner Geoff Molson, but the challenge ahead is immense.`\
 https://nytimes.com/athletic/6716609/2025/10/14/canadiens-hughes-gorton-contracts-extensions-nhl/
-
-**Netflix Jumps Into Podcasts With Spotify Deal**\
-`Netflix will show video versions of 16 podcasts on sports, culture, entertainment and true crime.`\
-https://nytimes.com/2025/10/14/business/media/netflix-spotify-podcast-deal.html
-
-**7 New Songs You Should Hear Now**\
-`Listen to recent releases from Geese, Doja Cat, Neko Case and more.`\
-https://nytimes.com/2025/10/14/arts/music/amplifier-newsletter-geese-neko-case.html
 
