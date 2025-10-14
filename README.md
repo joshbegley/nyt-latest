@@ -1,3 +1,7 @@
+**The slumping Arizona Cardinals need more cowbell and to stick with QB Kyler Murray — for now**\
+`With Murray sidelined, backup Jacoby Brissett started a QB controversy with his strong play against Colts.`\
+https://nytimes.com/athletic/6714946/2025/10/14/arizona-cardinals-slumping-kyler-murray/
+
 **Mike Shildt says decision to retire was his own, but Padres questions remain**\
 `Speaking Monday night, Shildt said he had just returned to San Diego after a week spent mulling things over at his home in North Carolina.`\
 https://nytimes.com/athletic/6715110/2025/10/14/san-diego-padres-mike-shildt-retirement-questions/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6696176/2025/10/14/premier-league-training-grounds/
 **The life of a Premier League player's personal chef: From Mauritian magic bowls to Bakewell tarts**\
 `Personal chefs are growing in popularity in football - we met one to see what a day is like preparing food for elite athletes`\
 https://nytimes.com/athletic/6696238/2025/10/14/premier-league-personal-chefs/
-
-**Barcelona's Aitana Bonmati and the town that made her - where her name, face and legacy is everywhere**\
-`Bonmati is a global superstar after winning the Ballon d'Or for the third time in a row, but it all started in a place called Ribes`\
-https://nytimes.com/athletic/6706769/2025/10/14/aitana-bonmati-barcelona-ballon-dor/
 
