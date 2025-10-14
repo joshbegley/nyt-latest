@@ -1,3 +1,11 @@
+**Teoscar Hernández blames himself for wild double play in NLCS Game 1**\
+`Hernández was the runner on third when Max Muncy hit a 400-foot flyball that resulted in a bizarre 8-6-2 double play.`\
+https://nytimes.com/athletic/6717108/2025/10/14/teoscar-hernandez-dodgers-brewers-double-play/
+
+**What Makes a Martyr?**\
+`Since his death, Charlie Kirk has become a powerful symbol for the far right.`\
+https://nytimes.com/2025/10/14/world/martyr-charlie-kirk-hamas-israel-madagascar.html
+
 **New York Mets to hire Jeff Albert as lead hitting instructor: Sources**\
 `Albert must get the most out of the Mets' young hitters to supplement New York's lineup.`\
 https://nytimes.com/athletic/6717120/2025/10/14/new-york-mets-jeff-albert-lead-hitting-instructor/
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/10/14/us/trump-grants-democrat-districts-go
 **Stellantis Unveils $13 Billion U.S. Investment Plan**\
 `The carmaker, which has struggled with weak sales, is the latest company to announce a hefty investment in the United States.`\
 https://nytimes.com/2025/10/14/business/dealbook/stellantis-billion-dollar-us-investment.html
-
-**Why Israel Won the War**\
-`Israelis went to war to defeat an existential threat — and an existential lie.`\
-https://nytimes.com/2025/10/14/opinion/israel-war-hamas-peace-gaza.html
-
-**49ers mailbag: Nick Martin, Jordan James and doubling down on the youth movement**\
-`Three 49ers rookies on the active roster have yet to get any snaps this season. There are reasons that could change in coming weeks.`\
-https://nytimes.com/athletic/6716900/2025/10/14/49ers-fred-warner-nick-martin-tatum-bethune/
 
