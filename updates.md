@@ -1,3 +1,11 @@
+**Madagascar’s Leader Flees**\
+`After weeks of violent protests, President Andry Rajoelina of Madagascar has gone into hiding. Demonstrators called for his resignation, but he insisted he would stay in power.`\
+https://nytimes.com/video/world/africa/100000010457088/madagascar-president-rajoelina.html
+
+**Explosion at Italian Farmhouse Kills Three Military Police Officers**\
+`The police were carrying out an eviction order when a blast caused the building to collapse, officials said. More than a dozen officers were injured.`\
+https://nytimes.com/2025/10/14/world/europe/italy-carabinieri-explosion-verona.html
+
 **Brighton owner Tony Bloom on the future of the Premier League and how his club will adapt to it**\
 `Bloom shares his views on football governance, the increasing American influence, and the possibility of league games being played overseas`\
 https://nytimes.com/athletic/6699541/2025/10/14/tony-bloom-brighton-interview-psr/

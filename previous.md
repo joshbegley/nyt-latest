@@ -1,3 +1,7 @@
+**Madagascar’s Leader Flees**\
+`After weeks of violent protests, President Andry Rajoelina of Madagascar has gone into hiding. Demonstrators called for his resignation, but he insisted he would stay in power.`\
+https://nytimes.com/video/world/africa/100000010457088/madagascar-president-rajoelina.html
+
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/10/14/crosswords/spelling-bee-forum.html
@@ -10,8 +14,8 @@ https://nytimes.com/2025/10/14/learning/outdoor-space.html
 `Bloom shares his views on football governance, the increasing American influence, and the possibility of league games being played overseas`\
 https://nytimes.com/athletic/6699541/2025/10/14/tony-bloom-brighton-interview-psr/
 
-**Explosion at Italian Farmhouse Kills Three Police Officers**\
-`The police were raiding the house in northern Italy when the blast caused it to collapse, officials said. More than a dozen officers were injured.`\
+**Explosion at Italian Farmhouse Kills Three Military Police Officers**\
+`The police were carrying out an eviction order when a blast caused the building to collapse, officials said. More than a dozen officers were injured.`\
 https://nytimes.com/2025/10/14/world/europe/italy-carabinieri-explosion-verona.html
 
 **How to watch Dodgers at Brewers: Game 2 Time, TV, streaming**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6714946/2025/10/14/arizona-cardinals-slumping-kyler
 **Mike Shildt says decision to retire was his own, but Padres questions remain**\
 `Speaking Monday night, Shildt said he had just returned to San Diego after a week spent mulling things over at his home in North Carolina.`\
 https://nytimes.com/athletic/6715110/2025/10/14/san-diego-padres-mike-shildt-retirement-questions/
-
-**The New York Times in Print for Tuesday, Oct. 14, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/10/14/todays-new-york-times
 
