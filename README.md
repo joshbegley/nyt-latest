@@ -1,3 +1,7 @@
+**Brewers pull off jaw-dropping double play to stun Dodgers and fans in NLCS Game 1**\
+`Even if neither the Los Angeles Dodgers nor Milwaukee Brewers go on to win this year’s World Series, they’re going to be part of highlight reels for decades to come.`\
+https://nytimes.com/athletic/6714801/2025/10/13/brewers-wild-double-play-dodgers-nlcs-mlb/
+
 **Trump’s Two Minds on China Sow a Chaotic Few Days**\
 `The president’s bellicose vow of steep new tariffs, followed quickly by a more conciliatory message, pointed to an internal tug of war over his approach.`\
 https://nytimes.com/2025/10/13/us/politics/trump-china-tariffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/13/nyregion/opioids-nj-governor-race.html
 **49ers minutia minute: How Tatum Bethune and the defense fared without Fred Warner**\
 `Warner will have surgery on his ankle Tuesday, and George Kittle is trending toward returning this week from a five-week absence.`\
 https://nytimes.com/athletic/6714452/2025/10/13/49ers-injuries-fred-warner-george-kittle/
-
-**Senators' mentality gets its first test with potential Tkachuk injury**\
-`During the first period, Tkachuk was cross-checked into the boards by Predators defenceman Roman Josi. He didn't finish the game. `\
-https://nytimes.com/athletic/6713624/2025/10/13/senators-tkachuk-predators-wrist-saros/
 
