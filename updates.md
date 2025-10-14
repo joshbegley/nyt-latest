@@ -1,3 +1,20 @@
+**Barcelona likely without Lewandowski for El Clasico due to injury**\
+`Club sources indicate Lewandowski is expected to be sidelined for around a month.`\
+https://nytimes.com/athletic/6715604/2025/10/14/robert-lewandowski-barcelona-injury-update/
+
+**Blake Treinen closes out Game 1, but concerns linger over Dodgers bullpen**\
+`Treinen shut the door as a wobbly ninth inning threatened to waste a spectacular start by Blake Snell.`\
+https://nytimes.com/athletic/6715034/2025/10/14/dodgers-bullpen-nlcs-mlb-playoffs-blake-treinen/
+
+**Israel Identifies 2 Bodies Handed Over by Hamas**\
+`The return of the remains of four former captives has spurred anger that more were not retrieved. The devastation to Gaza is likely to make the task especially hard.`\
+https://nytimes.com/2025/10/14/world/middleeast/israeli-hostages-bodies-hamas.html
+
+**What happens when you drop the NFL's top pick into a den of dysfunction?**\
+`The Titans feel good about Ward. Nearly everything else in Tennessee appears to be a disordered mess.
+`\
+https://nytimes.com/athletic/6714832/2025/10/14/cam-ward-rookie-qb-titans-organizational-dysfunction/
+
 **What happens when you drop the NFL's top pick into a den of dysfunction?**\
 `The Titans feel good about Ward. Nearly everything else in Tennessee appears to be a disordered mess.
 `\
