@@ -1,3 +1,11 @@
+**Opioid Deaths Suddenly Dominate a Governor’s Race. Here’s What We Know.**\
+`Representative Mikie Sherrill, a New Jersey Democrat, said a firm once owned by her Republican opponent, Jack Ciattarelli, spread misinformation about opioids. His campaign has threatened to sue her for defamation.`\
+https://nytimes.com/2025/10/13/nyregion/opioids-nj-governor-race.html
+
+**49ers minutia minute: How Tatum Bethune and the defense fared without Fred Warner**\
+`Warner will have surgery on his ankle Tuesday, and George Kittle is trending toward returning this week from a five-week absence.`\
+https://nytimes.com/athletic/6714452/2025/10/13/49ers-injuries-fred-warner-george-kittle/
+
 **Senators' mentality gets its first test with potential Tkachuk injury**\
 `During the first period, Tkachuk was cross-checked into the boards by Predators defenceman Roman Josi. He didn't finish the game. `\
 https://nytimes.com/athletic/6713624/2025/10/13/senators-tkachuk-predators-wrist-saros/
