@@ -1,4 +1,4 @@
-**The Briefing: Latvia 0 England 5: Tuchel's team qualify in style as Anthony Gordon stakes his claim**\
+**The Briefing: Latvia 0 England 5: Tuchel's team qualify for World Cup as Anthony Gordon stakes his claim**\
 `England sealed their place at the World Cup with a comfortable victory in Latvia`\
 https://nytimes.com/athletic/6715921/2025/10/14/latvia-0-england-5-tuchel-gordon-kane/
 
