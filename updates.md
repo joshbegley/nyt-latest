@@ -1,3 +1,15 @@
+**Joel Embiid has 'some chance' of playing in 76ers' final preseason game, coach says**\
+`The 2024 MVP could soon be back in action for his first competitive game since last February. `\
+https://nytimes.com/athletic/6716579/2025/10/14/joel-embiid-injury-update-nick-nurse-preseason/
+
+**Madagascar’s Military Has Taken Control. Here’s What We Know.**\
+`President Andry Rajoelina appears to have left the country after weeks of protests calling for him to resign.`\
+https://nytimes.com/2025/10/14/world/africa/madagascar-protests.html
+
+**A 'dream' job: Erik Spoelstra didn't hesitate when asked to become Team USA's coach**\
+`When Grant Hill and Sean Ford asked Miami Heat coach Erik Spoelstra if he would lead the USA men's basketball team, "Spo" didn't hesitate.`\
+https://nytimes.com/athletic/6715707/2025/10/14/heats-erik-spoelstra-didnt-hesitate-when-asked-to-become-team-usas-coach/
+
 **Dallin H. Oaks Named President of the Mormon Church**\
 `The church, which has more than 17 million members around the world, had been officially without a leader since Russell M. Nelson died.`\
 https://nytimes.com/2025/10/14/us/dallin-oaks-mormon-latter-day-saints.html
