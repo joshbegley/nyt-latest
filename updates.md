@@ -1,3 +1,15 @@
+**Transgender fencer suing USA Fencing, USOPC over ban from women's events**\
+`The defendants say they’re following a standing policy that aligns with an executive order from President Donald Trump earlier this year.`\
+https://nytimes.com/athletic/6717204/2025/10/14/transgender-usa-fencing-usopc-ban-womens-competition/
+
+**Pirates fans still relive Bill Mazeroski's iconic World Series homer each year**\
+`Fans gathered at what remains of Forbes Field this week to commemorate the 65th anniversary of Mazeroski's walk-off homer.`\
+https://nytimes.com/athletic/6717170/2025/10/14/pirates-fans-bill-mazeroski-homer/
+
+**Max Scherzer to jump into postseason fray in critical Game 4 start for Blue Jays**\
+`With Toronto in a LCS hole, they need Scherzer to deliver another October performance to remember.`\
+https://nytimes.com/athletic/6717423/2025/10/14/toronto-blue-jays-max-scherzer-alcs-game-4-starter/
+
 **As Trump Hurls Fresh Threats and Insults, Hochul Has Mamdani’s Back**\
 `Zohran Mamdani, the Democratic front-runner in the New York City mayor’s race, appeared with Gov. Kathy Hochul for the first time since she endorsed him last month.`\
 https://nytimes.com/2025/10/14/nyregion/mamdani-hochul-trump.html
