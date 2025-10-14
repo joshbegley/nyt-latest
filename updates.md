@@ -1,3 +1,15 @@
+**How Chick-fil-A’s chairman inspired Mauricio Pochettino’s ‘culture’ message to USMNT**\
+`"The team culture, the team togetherness, is stronger than any individual," USMNT midfielder Brenden Aaronson said.`\
+https://nytimes.com/athletic/6714870/2025/10/14/us-mens-soccer-mauricio-pochettino-culture/
+
+**It doesn't appear major changes coming to Cowboys defense: 'We're gonna ride this thing out'**\
+`“Matt Eberflus is a damn good football coach," Cowboys coach Brian Schottenheimer said of his defensive coordinator.`\
+https://nytimes.com/athletic/6714821/2025/10/14/cowboys-defense-matt-eberflus-job-security/
+
+**England name first squad since Euro 2025: Reid, Hinds get first call-ups**\
+`Captain Leah Williamson, forward Lauren James and winger Lauren Hemp all miss out through injury.`\
+https://nytimes.com/athletic/6715418/2025/10/14/england-women-squad-october-australia-brazil/
+
 **Werder Bremen player apologises for poo emoji sign after derby win**\
 `Medina Desic said the sign was "off-target" and she got "caught up in the emotions" of the derby.`\
 https://nytimes.com/athletic/6715514/2025/10/14/medina-desic-bundesliga-bremen-hamburg/
