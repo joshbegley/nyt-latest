@@ -1,3 +1,11 @@
+**Madagascar President Dissolves Parliament Ahead of Impeachment Vote**\
+`President Andry Rajoelina has vowed to remain in office after weeks of protests against his government that drove him into hiding.`\
+https://nytimes.com/2025/10/14/world/africa/madagascar.html
+
+**What Would It Cost to Rebuild Gaza?**\
+`A fragile cease-fire between Israel and Hamas is stoking hopes for a surge in investment in the region, and the Middle East more broadly.`\
+https://nytimes.com/2025/10/14/business/dealbook/rebuild-gaza-cost.html
+
 **Trump to Award Posthumous Medal of Freedom to Charlie Kirk**\
 `President Trump was scheduled to attend a ceremony at the White House on Tuesday to honor the influential right-wing activist, who was assassinated last month.`\
 https://nytimes.com/2025/10/14/us/politics/charlie-kirk-medal-of-freedom-trump-birthday.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/10/14/books/review/europe-crime-quiz.html
 **Tom Bogert: Why I Returned to The Athletic**\
 `America's greatest soccer newsbreaker documents why he's back where he belongs — here`\
 https://nytimes.com/athletic/6713347/2025/10/14/tom-bogert-why-i-joined-the-athletic/
-
-**To Meet Pledges to Save Forests Spending Must Triple, U.N. Report Says**\
-`Four years after a global pledge to end deforestation, the amount of money going toward conserving and restoring forests is not enough, the analysis found.`\
-https://nytimes.com/2025/10/14/climate/deforestation-united-nations-report.html
-
-**Instagram Will Limit Content for Teenagers Based on PG-13 Ratings**\
-`The restrictions also apply to conversations between teenage users and artificial intelligence chatbots.`\
-https://nytimes.com/2025/10/14/technology/instagram-teenagers-pg-13-ratings.html
 
