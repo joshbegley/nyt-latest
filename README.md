@@ -1,3 +1,11 @@
+**Slowing Electric Vehicle Sales Will Cost G.M. $1.6 Billion**\
+`General Motors said it would lower its earnings by that amount to mainly reflect the drop in the value of equipment, factories and other assets.`\
+https://nytimes.com/2025/10/14/business/general-motors-electric-vehicles-loss.html
+
+**Bears win a game they usually lose and exorcise ghosts of past failures**\
+`Last year’s Hail Mary loss started a downward spiral that caused in-season firings and a 10-game losing streak. But now the sun is shining.`\
+https://nytimes.com/athletic/6715109/2025/10/14/bears-commanders-week-6-comeback-victory/
+
 **Former referee David Coote pleads guilty to making indecent image of child**\
 `The 43-year-old admitted the offence during a brief hearing at Nottingham Crown Court on Tuesday.`\
 https://nytimes.com/athletic/6715522/2025/10/14/david-coote-guilty-court-case/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6714821/2025/10/14/cowboys-defense-matt-eberflus-jo
 **Werder Bremen player apologises for poo emoji sign after derby win**\
 `Medina Desic said the sign was "off-target" and she got "caught up in the emotions" of the derby.`\
 https://nytimes.com/athletic/6715514/2025/10/14/medina-desic-bundesliga-bremen-hamburg/
-
-**Derrick Brown is back — so is Panthers' suddenly stout run defense: 'I had faith'**\
-`The Carolina defense has put together back-to-back run stuffing performances. "That's a front right here," Nick Scott said of the D-line.`\
-https://nytimes.com/athletic/6714299/2025/10/14/panthers-run-defense-derrick-brown/
-
-**England name first squad since Euro 2025: Reid, Hinds get first call-ups**\
-`Captain Leah Williamson, forward Lauren James and winger Lauren Hemp all miss out through injury.`\
-https://nytimes.com/athletic/6715418/2025/10/14/england-women-squad-october-australia-brazil/
 
