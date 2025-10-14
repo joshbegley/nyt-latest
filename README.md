@@ -1,5 +1,13 @@
+**The Pope Needs to Be More Specific**\
+`A pious vision of political economy should get more concrete.`\
+https://nytimes.com/2025/10/14/opinion/pope-leo-dilexi-te-politics.html
+
+**Jen Tullock Multitasks in ‘Nothing Can Take You From the Hand of God’**\
+`The “Severance” actor portrays all the roles in a play she wrote with Frank Winters, inspired by her evangelical upbringing.`\
+https://nytimes.com/2025/10/14/theater/nothing-can-take-you-from-the-hand-of-god-review.html
+
 **Teoscar Hernández blames himself for wild double play in NLCS Game 1**\
-`Hernández was the runner on third when Max Muncy hit a 400-foot flyball that resulted in a bizarre 8-6-2 double play.`\
+`Hernández was the runner on third when Max Muncy hit a 400-foot fly ball that resulted in a bizarre 8-6-2 double play.`\
 https://nytimes.com/athletic/6717108/2025/10/14/teoscar-hernandez-dodgers-brewers-double-play/
 
 **What Makes a Martyr?**\
@@ -26,15 +34,7 @@ https://nytimes.com/2025/10/14/us/politics/jack-smith-house-judiciary-committee.
 `The video for “Untitled (How Does It Feel)” brought him new levels of fame, but not always the kind of attention he sought.`\
 https://nytimes.com/2025/10/14/arts/music/dangelo-untitled-video.html
 
-**Jen Tullock Multitasks in ‘Nothing Can Take You From the Hand of God’**\
-`The “Severance” actor portrays all the roles in a play she wrote with Frank Winters, inspired by her evangelical upbringing.`\
-https://nytimes.com/2025/10/14/theater/nothing-can-take-you-from-the-hand-of-god-review.html
-
 **Trump Targets Democratic Districts By Halting Billions During Shutdown**\
 `The Trump administration has frozen or canceled nearly $28 billion primarily located in Democratic-led districts, according to an analysis by The New York Times.`\
 https://nytimes.com/interactive/2025/10/14/us/trump-grants-democrat-districts-government-shutdown.html
-
-**Stellantis Unveils $13 Billion U.S. Investment Plan**\
-`The carmaker, which has struggled with weak sales, is the latest company to announce a hefty investment in the United States.`\
-https://nytimes.com/2025/10/14/business/dealbook/stellantis-billion-dollar-us-investment.html
 
