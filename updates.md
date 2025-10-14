@@ -1,3 +1,15 @@
+**Making sense of Brewers-Dodgers 8-6-2 DP, the strangest double play in postseason history**\
+`What will you tell your grandchildren about the strangest double play in postseason history? Here's everything you need to know about it. `\
+https://nytimes.com/athletic/6715385/2025/10/14/brewers-dodgers-strange-double-play-game-1-nlcs/
+
+**Millie Bright was a strong but softly-spoken vision of England at their best**\
+`Millie Bright has ensured that the landscape of English women's football is forever transformed`\
+https://nytimes.com/athletic/6713649/2025/10/14/millie-bright-was-a-strong-but-softly-spoken-vision-of-england-at-their-best/
+
+**Predicting how the top of the Western Conference will play out in 2025-26**\
+`The West is loaded with quality, and several teams could end up in the conference finals. But it's truly a one-horse race.`\
+https://nytimes.com/athletic/6696506/2025/10/14/nba-predictions-lakers-warriors-rockets-clippers/
+
 **NFL QB stock report, Week 7: Look out, Baker Mayfield is feeling dangerous again**\
 `“He’s one of the best off-schedule QBs in the entire league. He might be the best.”`\
 https://nytimes.com/athletic/6713646/2025/10/14/qb-stock-report-baker-mayfield-rankings/
