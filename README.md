@@ -2,7 +2,7 @@
 `Under a plea agreement, Cory Balmer will be imprisoned for 25 to 50 years for the attack on Gov. Josh Shapiro’s official residence in Harrisburg, Pa., in April.`\
 https://nytimes.com/2025/10/14/us/arson-harrisburg-cody-balmer-josh-shapiro.html
 
-**Why Sweden fired Jon Dahl Tomasson: Shock results, fan fury and an awkward Isak/Gyokeres partnership**\
+**Why Sweden fired Tomasson: Shock results, fan fury and an awkward Isak/Gyokeres partnership**\
 `Tomasson’s reign was so spectacularly unpopular that you wonder if Sweden will ever appoint a foreign coach again`\
 https://nytimes.com/athletic/6715693/2025/10/14/why-sweden-fired-tomasson-isak-gyokeres/
 
