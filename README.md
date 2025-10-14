@@ -2,7 +2,7 @@
 `Hyde, a North Bay native, won 101 games with the Orioles in 2023 but his team got off to a slow start in 2025 and he was fired in May.`\
 https://nytimes.com/athletic/6717439/2025/10/14/giants-brandon-hyde-manager-opening/
 
-**Yankees make two coaching changes to Aaron Boone's staff: Source**\
+**Yankees make 2 coaching changes to Aaron Boone's staff: Source**\
 `Mike Harkey had been the Yankees' longest tenured coach and was a favorite among players. Travis Chapman held numerous roles in the org.`\
 https://nytimes.com/athletic/6717408/2025/10/14/yankees-make-two-coaching-changes-to-aaron-boones-staff-source/
 
