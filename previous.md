@@ -1,3 +1,7 @@
+**The New York Times in Print for Tuesday, Oct. 14, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/14/todays-new-york-times
+
 **Bears-Commanders takeaways: Jake Moody kicks Chicago past Washington as time expires**\
 `The backup Chicago Bears kicker booted the game-winning 38-yard field goal.`\
 https://nytimes.com/athletic/6714690/2025/10/14/bears-vs-commanders-mnf-takeaways-nfl/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6706769/2025/10/14/aitana-bonmati-barcelona-ballon-
 **Yeremy Pino interview: Lessons from Silva and Cazorla, Mateta's Spanish... and London's 's***' traffic**\
 `Pino has made a promising start to his career at Crystal Palace in the capital, where life moves faster than at his old home Villarreal`\
 https://nytimes.com/athletic/6706385/2025/10/14/yeremy-pino-crystal-palace-interview/
-
-**Alaska Flooding Leaves 1 Dead and 2 Missing**\
-`The three people had been reported missing from Kwigillingok, a low-lying village along the Bering Sea that was hit by remnants of Typhoon Halong.`\
-https://nytimes.com/2025/10/14/us/alaska-typhoon-flood-dead.html
 

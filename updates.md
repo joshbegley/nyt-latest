@@ -1,3 +1,7 @@
+**The New York Times in Print for Tuesday, Oct. 14, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/14/todays-new-york-times
+
 **Bears-Commanders takeaways: Jake Moody kicks Chicago past Washington as time expires**\
 `The backup Chicago Bears kicker booted the game-winning 38-yard field goal.`\
 https://nytimes.com/athletic/6714690/2025/10/14/bears-vs-commanders-mnf-takeaways-nfl/
