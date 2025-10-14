@@ -1,3 +1,15 @@
+**China Wants Foreign Scientists. The Public Says No Thanks.**\
+`Since Beijing announced a new visa to attract young science and technology graduates, a backlash has erupted online, forcing the government to respond.`\
+https://nytimes.com/2025/10/14/world/asia/china-stem-visa-racist-backlash.html
+
+**Fantasy football Week 7 drops: Crash of the Titans' Tony Pollard and Calvin Ridley**\
+`Among his Week 7 drops, Gary Davenport decides it's time to toll the bell for a pair of struggling Titans.`\
+https://nytimes.com/athletic/6715177/2025/10/14/fantasy-football-week-7-drops-pollard-ridley/
+
+**Will the Hurricanes find success with a Jaccob Slavin-Sean Walker pair?**\
+`Slavin's status for this road trip is uncertain after he left the game on Saturday early.`\
+https://nytimes.com/athletic/6712234/2025/10/14/carolina-hurricanes-slavin-walker/
+
 **Al Horford: Celtics didn't offer championship 'opportunity' that Warriors do**\
 `As Horford enters his 19th season, he reflected on his love for Boston and why the Warriors were the right team for him.`\
 https://nytimes.com/athletic/6714977/2025/10/14/al-horford-celtics-warriors-nba/

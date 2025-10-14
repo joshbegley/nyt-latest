@@ -1,4 +1,4 @@
-**China Wants Foreign Scientists. The Public Says No Thanks.**\
+**China Wants Foreign Scientists. The Public Says No, Thanks.**\
 `Since Beijing announced a new visa to attract young science and technology graduates, a backlash has erupted online, forcing the government to respond.`\
 https://nytimes.com/2025/10/14/world/asia/china-stem-visa-racist-backlash.html
 
