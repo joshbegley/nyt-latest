@@ -1,8 +1,12 @@
+**Suns, Mercury owner countersues investors, claims they seek 'extortionate' buyout**\
+`Phoenix Suns and Mercury owner Mat Ishbia has filed a countersuit against two minority owners, accusing them of angling for a larger buyout.`\
+https://nytimes.com/athletic/6716129/2025/10/14/mat-ishbia-lawsuit-suns-buyout/
+
 **NFL MVP odds: Patrick Mahomes is inevitable**\
 `Mahomes is back on top of the MVP odds board. But will he hold onto it?`\
 https://nytimes.com/athletic/6713990/2025/10/14/nfl-mvp-odds-mahomes-mayfield-allen-quarterbacks/
 
-**Powell Signals Fed on Track to Keep Cutting Rates**\
+**Powell Signals Fed Is on Track to Keep Cutting Rates**\
 `Jerome H. Powell, chair of the Federal Reserve, still sees labor market risks outweighing those posed by higher inflation tied to President Trump’s tariffs.`\
 https://nytimes.com/2025/10/14/business/powell-signals-rate-cuts.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6699746/2025/10/14/the-disgrace-of-david-coote/
 **‘A Big Day’: How the U.S. and the Arab World Teamed Up to Seal the Gaza Deal**\
 `The cease-fire talks in Egypt showed that with pressure on Hamas and Israel, seemingly huge impediments could be overcome or set aside.`\
 https://nytimes.com/2025/10/14/world/middleeast/us-arab-gaza-deal.html
-
-**Let’s Talk About Divorce After 50**\
-`‘Gray divorce’ is becoming more common. We want to hear about yours.`\
-https://nytimes.com/2025/10/14/well/family/gray-divorce-callout.html
 
