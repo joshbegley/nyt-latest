@@ -1,3 +1,7 @@
+**Until Saturday: Franklin's rise and $45M fall**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6715848/2025/10/14/james-franklin-penn-state-matt-rhule-until-saturday/
+
 **Protests in Brussels Halt Flights and Disrupt Public Transit**\
 `The demonstrations, organized by Belgium’s major trade unions, oppose austerity proposals that would affect pensions and other social welfare.`\
 https://nytimes.com/2025/10/14/world/europe/belgium-brussels-protests-pensions.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6710660/2025/10/14/houston-rockets-tv-streaming-kev
 **Big Banks Grow Profits, Crediting a ‘Resilient’ Economy**\
 `JPMorgan Chase, Goldman Sachs and Wells Fargo reported strong quarterly earnings, mostly topping analyst expectations and showing growth across key lines of business.`\
 https://nytimes.com/2025/10/14/business/banks-earnings-jpmorgan-goldman-sachs-wells-fargo-citi.html
-
-**Bears Pull Off Wild Comeback Over Commanders**\
-`A crucial fumble by Jayden Daniels gave the Chicago Bears the ball back late and the opportunity to nab a come-from-behind win over the Washington Commanders on Monday night.`\
-https://nytimes.com/video/the-athletic/100000010457249/bears-pull-off-wild-comeback-over-commanders.html
 

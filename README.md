@@ -1,3 +1,19 @@
+**Al Horford: Celtics didn't offer championship 'opportunity' that Warriors do**\
+`As Horford enters his 19th season, he reflected on his love for Boston and why the Warriors were the right team for him.`\
+https://nytimes.com/athletic/6714977/2025/10/14/al-horford-celtics-warriors-nba/
+
+**The Windup: Bet you’d never seen this play before!**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6715270/2025/10/14/brewers-double-play-dodgers-the-windup/
+
+**Devastating Rains in Mexico Leave Dozens Dead and Missing**\
+`Floods and landslides in Mexico killed several dozen people, destroying homes and isolating communities in the central and eastern parts of the country.`\
+https://nytimes.com/video/world/americas/100000010457262/mexico-rain-floods-landslides-deaths.html
+
+**How to watch the Sacramento Kings during the 2025-26 regular season**\
+`The Kings are hoping for more stability, and more wins, this year. Here's how to watch their games, including several 8 p.m. PT tipoffs.`\
+https://nytimes.com/athletic/6712660/2025/10/14/sacramento-kings-nbc-late-games-schedule-how-to-watch/
+
 **Until Saturday: Franklin's rise and $45M fall**\
 `Until Saturday is The Athletic's free college football newsletter.`\
 https://nytimes.com/athletic/6715848/2025/10/14/james-franklin-penn-state-matt-rhule-until-saturday/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/14/business/imf-report-economy-trade-inflation.html
 **Wearing the Palette of Fall Foliage**\
 `Oranges, reds, yellows and other autumnal colors came together in a seasonal ensemble.`\
 https://nytimes.com/2025/10/14/style/street-style-look-fall-palette.html
-
-**Russia Steps Up Assault on Antiwar Exiles, Accusing Them of Terrorism**\
-`An intelligence agency’s sweeping investigation shows that Moscow is closely following the anti-Kremlin activities of Russians abroad.`\
-https://nytimes.com/2025/10/14/world/europe/russia-antiwar-ukraine-terrorism.html
-
-**Brian Branch's actions are hurting the Lions, and he needs to figure it out — quickly**\
-`Branch is gaining a reputation in this league and it's not one that he or the Lions want. The situation Sunday night was entirely avoidable.`\
-https://nytimes.com/athletic/6715572/2025/10/14/detroit-lions-brian-branch-suspension-chiefs/
-
-**How to watch Kevin Durant and the Houston Rockets throughout the season**\
-`With Kevin Durant in tow, the Rockets have their sights set on an NBA championship. Find out how to tune in for all 82 games. `\
-https://nytimes.com/athletic/6710660/2025/10/14/houston-rockets-tv-streaming-kevin-durant-how-to-watch/
-
-**Big Banks Grow Profits, Crediting a ‘Resilient’ Economy**\
-`JPMorgan Chase, Goldman Sachs and Wells Fargo reported strong quarterly earnings, mostly topping analyst expectations and showing growth across key lines of business.`\
-https://nytimes.com/2025/10/14/business/banks-earnings-jpmorgan-goldman-sachs-wells-fargo-citi.html
 

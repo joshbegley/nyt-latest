@@ -1,3 +1,7 @@
+**Until Saturday: Franklin's rise and $45M fall**\
+`Until Saturday is The Athletic's free college football newsletter.`\
+https://nytimes.com/athletic/6715848/2025/10/14/james-franklin-penn-state-matt-rhule-until-saturday/
+
 **Protests in Brussels Halt Flights and Disrupt Public Transit**\
 `The demonstrations, organized by Belgium’s major trade unions, oppose austerity proposals that would affect pensions and other social welfare.`\
 https://nytimes.com/2025/10/14/world/europe/belgium-brussels-protests-pensions.html
