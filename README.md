@@ -1,3 +1,11 @@
+**Opioid Deaths Suddenly Dominate a Governor’s Race. Here’s What We Know.**\
+`Representative Mikie Sherrill, a New Jersey Democrat, said a firm once owned by her Republican opponent, Jack Ciattarelli, spread misinformation about opioids. His campaign has threatened to sue her for defamation.`\
+https://nytimes.com/2025/10/13/nyregion/opioids-nj-governor-race.html
+
+**49ers minutia minute: How Tatum Bethune and the defense fared without Fred Warner**\
+`Warner will have surgery on his ankle Tuesday, and George Kittle is trending toward returning this week from a five-week absence.`\
+https://nytimes.com/athletic/6714452/2025/10/13/49ers-injuries-fred-warner-george-kittle/
+
 **Senators' mentality gets its first test with potential Tkachuk injury**\
 `During the first period, Tkachuk was cross-checked into the boards by Predators defenceman Roman Josi. He didn't finish the game. `\
 https://nytimes.com/athletic/6713624/2025/10/13/senators-tkachuk-predators-wrist-saros/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6714564/2025/10/13/tennessee-vs-alabama-stream-how-
 **How to watch Florida Atlantic vs. South Florida: Time, TV, streaming**\
 `Find out how to watch the Florida Atlantic Owls play the South Florida Bulls, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6714560/2025/10/13/florida-atlantic-vs-south-florida-stream-how-to-watch-oct-18/
-
-**How to watch Memphis vs. UAB: Time, TV, streaming**\
-`Find out how to watch the Memphis Tigers play the UAB Blazers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6714556/2025/10/13/memphis-vs-uab-stream-how-to-watch-oct-18/
-
-**How to watch Washington State vs. Virginia: Time, TV, streaming**\
-`Find out how to watch the Washington State Cougars play the Virginia Cavaliers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6714555/2025/10/13/washington-state-vs-virginia-stream-how-to-watch-oct-18/
 
