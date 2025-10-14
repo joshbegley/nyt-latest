@@ -1,3 +1,11 @@
+**Mr. Trump, on the Middle East, Please Move Fast and Break Things**\
+`Message to Trump: As hard as stage one was for Gaza peace, you have not even seen hard yet.`\
+https://nytimes.com/2025/10/14/opinion/trump-israel-gaza-peace.html
+
+**Republicans Summon Jack Smith to Testify Before House Judiciary Committee**\
+`The panel’s Republican chairman, Representative Jim Jordan, accused the former special counsel of “prosecutorial misconduct and constitutional abuses.”`\
+https://nytimes.com/2025/10/14/us/politics/jack-smith-house-judiciary-committee.html
+
 **After D’Angelo Bared It All, His Career Was Never the Same**\
 `The video for “Untitled (How Does It Feel)” brought him new levels of fame, but not always the kind of attention he sought.`\
 https://nytimes.com/2025/10/14/arts/music/dangelo-untitled-video.html
