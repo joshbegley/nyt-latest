@@ -1,3 +1,8 @@
+**What happens when you drop the NFL's top pick into a den of dysfunction?**\
+`The Titans feel good about Ward. Nearly everything else in Tennessee appears to be a disordered mess.
+`\
+https://nytimes.com/athletic/6714832/2025/10/14/cam-ward-rookie-qb-titans-organizational-dysfunction/
+
 **Who stays, who goes? Predicting the Yankees' big decisions, including Cody Bellinger**\
 `It’s never too soon to start talking about the state of the Yankees’ roster. Here’s how we see some of the club's key decisions playing out.`\
 https://nytimes.com/athletic/6713738/2025/10/14/yankees-free-agents-2026-roster-decisions/
