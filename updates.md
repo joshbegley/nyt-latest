@@ -1,3 +1,15 @@
+**Political Turmoil in France Weighs on Businesses and Investors**\
+`As a new prime minister seeks stability, three government shake-ups since last summer have already taken their toll on the French economy.`\
+https://nytimes.com/2025/10/14/business/france-economy-prime-minister.html
+
+**Super Bowl odds: Bills, Eagles, Lions fall as Chiefs — inevitably? — rise**\
+`With the Bills and Eagles losing back-to-back games, the odds to win the Super Bowl got tighter. Plus, the Chiefs are back in the mix.`\
+https://nytimes.com/athletic/6716472/2025/10/14/super-bowl-odds-week-7-bills-chiefs-eagles/
+
+**At Cove, Flynn McGarry Keeps the Ethos of Gem Alive**\
+`Shifka serves up pita sandwiches, Sushidokoro Mekumi opens its first American outpost and more restaurant news.`\
+https://nytimes.com/2025/10/14/dining/nyc-restaurant-openings.html
+
 **United Center goes dark during Blackhawks-Mammoth game, far from NHL's first power outage**\
 `Chicago's home arena went dark for about four seconds late in the opening period Monday night.`\
 https://nytimes.com/athletic/6716360/2025/10/14/united-center-power-outage-nhl-blackhawks-mammoth/
