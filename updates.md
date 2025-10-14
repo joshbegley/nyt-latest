@@ -1,3 +1,11 @@
+**Why Was the President of FIFA at the Gaza Summit?**\
+`Gianni Infantino, the head of soccer’s global governing body, frequently appears alongside President Trump at events outside the realm of sports.`\
+https://nytimes.com/2025/10/14/world/middleeast/gianni-infantino-fifa-trump.html
+
+**Suspect Pleads Guilty in Firebombing of Pa. Governor’s Residence**\
+`Under a plea agreement, Cory Balmer will be imprisoned for 25 to 50 years for attempted murder and other charges in the attack on Gov. Josh Shapiro’s official residence in Harrisburg, Pa.`\
+https://nytimes.com/2025/10/14/us/arson-harrisburg-cody-balmer-josh-shapiro.html
+
 **Red Light: Lane Hutson's bargain contract. Plus: The NHL’s most confusing team**\
 `The NHL season is officially one week old. Were we wrong about everything? We might have been, yeah, but we’ve got it all figured out now.`\
 https://nytimes.com/athletic/6715844/2025/10/14/lane-hutsons-bargain-contract-plus-the-nhls-most-confusing-team/
