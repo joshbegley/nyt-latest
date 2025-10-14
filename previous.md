@@ -1,3 +1,23 @@
+**Liverpool mailbag: Guehi January interest? Konate contract latest? Heitinga exit impact?**\
+`The Athletic's Liverpool reporter James Pearce has answered your big questions ahead of the return to Premier League action`\
+https://nytimes.com/athletic/6711555/2025/10/14/liverpool-mailbag-guehi-january-interest-konate-contract-latest-heitinga-exit-impact/
+
+**Everton loans watch: From Harrison Armstrong to Martin Sherif, how are the youngsters faring?**\
+`The club have farmed several players out across the EFL's three divisions as they seek to continue their development in senior football`\
+https://nytimes.com/athletic/6712790/2025/10/14/everton-harrison-armstrong-loan-players-sherif/
+
+**Yeremy Pino interview: Lessons from Silva and Cazorla, Mateta's Spanish... and London's 's***' traffic**\
+`Pino has made a promising start to his career at Crystal Palace in the capital, where life moves faster than at his old home Villarreal`\
+https://nytimes.com/athletic/6706385/2025/10/14/yeremy-pino-crystal-palace-interview/
+
+**Inside Newcastle: Wilson's arrival, lessons from Isak's exit, Wissa's role and more**\
+`Chris Waugh answers readers' questions and provides the latest on a range of issues at St James' Park`\
+https://nytimes.com/athletic/6712608/2025/10/14/newcastle-questions-answered-ross-wilson/
+
+**Smart urinals, 'corridors of power' and F1 simulators: Inside football's training ground arms race**\
+`Training facilities are increasingly vital in transfer talks, meaning clubs are spending millions in a bid to gain an edge`\
+https://nytimes.com/athletic/6696176/2025/10/14/premier-league-training-grounds/
+
 **The life of a Premier League player's personal chef: From Mauritian magic bowls to Bakewell tarts**\
 `Personal chefs are growing in popularity in football - we met one to see what a day is like preparing food for elite athletes`\
 https://nytimes.com/athletic/6696238/2025/10/14/premier-league-personal-chefs/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6712698/2025/10/14/christian-horner-future-f1/
 **How Arsenal's dynamic midfield has enabled them to directly attack the channels this season**\
 `Mikel Arteta's summer transfer business has allowed his side to play into the channels much more`\
 https://nytimes.com/athletic/6696385/2025/10/14/arsenal-dynamic-midfield-zubimendi-eze/
-
-**Mr. October? Maybe not. But the Mariners’ Jorge Polanco is Mr. Go-Ahead Hit**\
-`'I don’t know what to say, man,' Polanco said after Monday's Game 2 win. 'I’m clutch, but I’m just trying to keep it simple.'`\
-https://nytimes.com/athletic/6715011/2025/10/14/jorge-polanco-seattle-mariners-alcs/
-
-**Row Z: Ratcliffe's patience plea for Amorim, Watford quiz question, sourness in Scotland**\
-`In this week's Row Z: Making sense of Ratcliffe's three-year plea on Amorim, farewell to Paulo Pezzolano, and downbeat Scotland keep winning`\
-https://nytimes.com/athletic/6712719/2025/10/14/row-z-ratcliffe-amorim-watford-scotland/
-
-**A day at the 2025 world conker championships: Stormtroopers, a giant rooster and the King's horse chestnuts**\
-`Competitors travelled from across the globe to Northamptonshire in England to compete in an extremely autumnal event `\
-https://nytimes.com/athletic/6712987/2025/10/14/2025-world-conker-championships/
-
-**How Premier League sides use direct football to create chances**\
-`Analysing the return of one of English football’s traditional guises...`\
-https://nytimes.com/athletic/6688584/2025/10/14/direct-football-tactics-premier-league/
-
-**U.S. Starts Charging Chinese Ships to Dock at Its Ports**\
-`The measure is aimed at countering China’s dominance of commercial shipbuilding and helping to revitalize the American industry.`\
-https://nytimes.com/2025/10/14/business/us-starts-charging-chinese-ships-to-dock-at-its-ports.html
 
