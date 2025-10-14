@@ -1,3 +1,15 @@
+**Explosion at Italian Farmhouse Kills Three Police Officers**\
+`The police were raiding the house in northern Italy when the blast caused it to collapse, officials said. More than a dozen officers were injured.`\
+https://nytimes.com/2025/10/14/world/europe/italy-carabinieri-explosion-verona.html
+
+**How to watch Dodgers at Brewers: Game 2 Time, TV, streaming**\
+`Find out how to watch the Los Angeles Dodgers play the Milwaukee Brewers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6715240/2025/10/14/dodgers-vs-brewers-stream-how-to-watch-oct-14/
+
+**Word of the Day: certitude**\
+`This word has appeared in 19 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/10/14/learning/word-of-the-day-certitude.html
+
 **Late Night Tips the Hat to Trump for Middle East Cease-Fire**\
 `Jimmy Kimmel celebrated that President Trump “finally did something positive” with his role in the deal between Israel and Hamas.`\
 https://nytimes.com/2025/10/14/arts/television/late-night-trump-gaza-peace.html
