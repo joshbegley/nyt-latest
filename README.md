@@ -1,3 +1,15 @@
+**Making sense of Brewers-Dodgers 8-6-2 DP, the strangest double play in postseason history**\
+`What will you tell your grandchildren about the strangest double play in postseason history? Here's everything you need to know about it. `\
+https://nytimes.com/athletic/6715385/2025/10/14/brewers-dodgers-strange-double-play-game-1-nlcs/
+
+**Millie Bright was a strong but softly-spoken vision of England at their best**\
+`Millie Bright has ensured that the landscape of English women's football is forever transformed`\
+https://nytimes.com/athletic/6713649/2025/10/14/millie-bright-was-a-strong-but-softly-spoken-vision-of-england-at-their-best/
+
+**Predicting how the top of the Western Conference will play out in 2025-26**\
+`The West is loaded with quality, and several teams could end up in the conference finals. But it's truly a one-horse race.`\
+https://nytimes.com/athletic/6696506/2025/10/14/nba-predictions-lakers-warriors-rockets-clippers/
+
 **NFL QB stock report, Week 7: Look out, Baker Mayfield is feeling dangerous again**\
 `“He’s one of the best off-schedule QBs in the entire league. He might be the best.”`\
 https://nytimes.com/athletic/6713646/2025/10/14/qb-stock-report-baker-mayfield-rankings/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6712832/2025/10/14/week-6-impacts-fantasy-football-
 **Jessica Berman on her desire to stay with NWSL: 'There is a lot more I have to give'**\
 `Berman has overseen a huge increase in NWSL club valuations and helped secure a four-year media deal worth $60 million a year`\
 https://nytimes.com/athletic/6713228/2025/10/14/jessica-berman-nwsl-leadership-contract/
-
-**Ukraine’s Formula for Peace: Fewer Talks, More Weapons**\
-`As Russia rebuffs President Trump’s diplomatic push, President Volodymyr Zelensky of Ukraine plans to head again to the White House, this time seeking missiles.`\
-https://nytimes.com/2025/10/14/world/europe/zelensky-trump-tomahawk-missiles.html
-
-**How do the 4-2 Patriots have the NFL's worst-ranked run game?**\
-`New England's running backs and offensive line have struggled, but Mike Vrabel is confident the offense can continue to score points.`\
-https://nytimes.com/athletic/6714055/2025/10/14/patriots-running-game-rhamondre-stevenson-treveyon-henderson/
-
-**Where Jews and Arab Americans Live Side by Side, Renewed Hope**\
-`Detroit has one of the largest Arab American populations and a vibrant Jewish community. Both groups feel some relief, and lingering doubt.`\
-https://nytimes.com/2025/10/14/us/ceasefire-gaza-israel.html
 
