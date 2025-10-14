@@ -1,3 +1,7 @@
+**There's hope with Titans interim coach Mike McCoy — he has a track record**\
+`Wherever he's coached, the Titans' interim HC has gotten big performances out of great — and not so great — quarterbacks and offenses.`\
+https://nytimes.com/athletic/6714335/2025/10/13/mike-mccoy-has-a-track-record-a-good-sign-for-the-titans-and-cam-ward/
+
 **How to watch Utah vs. BYU: Time, TV, streaming**\
 `Find out how to watch the Utah Utes play the BYU Cougars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6714753/2025/10/13/utah-vs-byu-stream-how-to-watch-oct-18/

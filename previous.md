@@ -1,3 +1,7 @@
+**There's hope with Titans interim coach Mike McCoy — he has a track record**\
+`Wherever he's coached, the Titans' interim HC has gotten big performances out of great — and not so great — quarterbacks and offenses.`\
+https://nytimes.com/athletic/6714335/2025/10/13/mike-mccoy-has-a-track-record-a-good-sign-for-the-titans-and-cam-ward/
+
 **How to watch Utah vs. BYU: Time, TV, streaming**\
 `Find out how to watch the Utah Utes play the BYU Cougars, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6714753/2025/10/13/utah-vs-byu-stream-how-to-watch-oct-18/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6714578/2025/10/13/ravens-mailbag-week-7-bye/
 **Lawsuit over Trail Blazers ownership deal dropped, clearing path for sale**\
 `A lawsuit over the Trail Blazers sale has been dropped, clearing the way for the Dundon group to complete its purchase.`\
 https://nytimes.com/athletic/6714292/2025/10/13/trail-blazers-ownership-lawsuit-dropped/
-
-**How to watch Maryland vs. UCLA: Time, TV, streaming**\
-`Find out how to watch the Maryland Terrapins play the UCLA Bruins, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6714575/2025/10/13/how-to-watch-maryland-vs-ucla-tv-channel-and-streaming-options-for-october-18/
 
