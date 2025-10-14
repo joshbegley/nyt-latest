@@ -1,3 +1,11 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/10/14/crosswords/spelling-bee-forum.html
+
+**Outdoor Space**\
+`Where do you like to spend time outside where you live?`\
+https://nytimes.com/2025/10/14/learning/outdoor-space.html
+
 **Brighton owner Tony Bloom on the future of the Premier League and how his club will adapt to it**\
 `'Everything about the Premier League becomes more difficult every year,' Bloom tells The Athletic...`\
 https://nytimes.com/athletic/6699541/2025/10/14/tony-bloom-brighton-interview-psr/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6715110/2025/10/14/san-diego-padres-mike-shildt-ret
 **The New York Times in Print for Tuesday, Oct. 14, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/14/todays-new-york-times
-
-**Bears-Commanders takeaways: Jake Moody kicks Chicago past Washington as time expires**\
-`The Bears' backup kicker booted the game-winning 38-yard field goal after the Commanders' third turnover of the night.`\
-https://nytimes.com/athletic/6714690/2025/10/14/bears-vs-commanders-mnf-takeaways-nfl/
-
-**Celebrating the genius of Brian Lara and the summer he re-wrote the record books**\
-`A new documentary looks back at the day the diminutive West Indies left hander became the first batter to score 500 in a first-class match`\
-https://nytimes.com/athletic/6658062/2025/10/14/brian-lara-501-warwickshire-west-indies/
 

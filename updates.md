@@ -1,3 +1,11 @@
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/10/14/crosswords/spelling-bee-forum.html
+
+**Outdoor Space**\
+`Where do you like to spend time outside where you live?`\
+https://nytimes.com/2025/10/14/learning/outdoor-space.html
+
 **Brighton owner Tony Bloom on the future of the Premier League and how his club will adapt to it**\
 `'Everything about the Premier League becomes more difficult every year,' Bloom tells The Athletic...`\
 https://nytimes.com/athletic/6699541/2025/10/14/tony-bloom-brighton-interview-psr/
