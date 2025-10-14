@@ -1,3 +1,11 @@
+**Teoscar Hernández blames himself for wild double play in NLCS Game 1**\
+`Hernández was the runner on third when Max Muncy hit a 400-foot flyball that resulted in a bizarre 8-6-2 double play.`\
+https://nytimes.com/athletic/6717108/2025/10/14/teoscar-hernandez-dodgers-brewers-double-play/
+
+**What Makes a Martyr?**\
+`Since his death, Charlie Kirk has become a powerful symbol for the far right.`\
+https://nytimes.com/2025/10/14/world/martyr-charlie-kirk-hamas-israel-madagascar.html
+
 **New York Mets to hire Jeff Albert as lead hitting instructor: Sources**\
 `Albert must get the most out of the Mets' young hitters to supplement New York's lineup.`\
 https://nytimes.com/athletic/6717120/2025/10/14/new-york-mets-jeff-albert-lead-hitting-instructor/
