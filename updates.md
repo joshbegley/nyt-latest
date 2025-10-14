@@ -1,3 +1,15 @@
+**'There's no panic': Down in ALCS, Blue Jays' proven resilience has never been more tested**\
+`Toronto hoped to bounce back from a Game 1 defeat by the Seattle Mariners. Instead, things got worse.`\
+https://nytimes.com/athletic/6714949/2025/10/13/blue-jays-lose-mariners-game-2-alcs/
+
+**Power play sizzles, Wallstedt bounces back, Yurov debuts: Wild takeaways**\
+`Despite giving up three goals to the Kings in the third period, the Wild regrouped and pulled off the shootout win.`\
+https://nytimes.com/athletic/6714856/2025/10/13/wild-power-play-wallstedt-yurov-kings/
+
+**Bills-Falcons takeaways: Bijan Robinson's big game powers Atlanta's win**\
+`After Monday’s loss to the Falcons (3-2), the Bills are 0-2 against teams with winning records through Week 6.`\
+https://nytimes.com/athletic/6714845/2025/10/13/bills-falcons-mnf-nfl-takeaways/
+
 **Bills-Falcons takeaways: Bijan Robinson's big game powers Atlanta to victory over Buffalo**\
 `After Monday’s loss to the Falcons (3-2), the Bills are 0-2 against teams with winning records through Week 6.`\
 https://nytimes.com/athletic/6714845/2025/10/13/bills-falcons-mnf-nfl-takeaways/

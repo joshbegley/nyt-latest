@@ -1,4 +1,12 @@
-**Bills-Falcons takeaways: Bijan Robinson's big game powers Atlanta to victory over Buffalo**\
+**'There's no panic': Down in ALCS, Blue Jays' proven resilience has never been more tested**\
+`Toronto hoped to bounce back from a Game 1 defeat by the Seattle Mariners. Instead, things got worse.`\
+https://nytimes.com/athletic/6714949/2025/10/13/blue-jays-lose-mariners-game-2-alcs/
+
+**Power play sizzles, Wallstedt bounces back, Yurov debuts: Wild takeaways**\
+`Despite giving up three goals to the Kings in the third period, the Wild regrouped and pulled off the shootout win.`\
+https://nytimes.com/athletic/6714856/2025/10/13/wild-power-play-wallstedt-yurov-kings/
+
+**Bills-Falcons takeaways: Bijan Robinson's big game powers Atlanta's win**\
 `After Monday’s loss to the Falcons (3-2), the Bills are 0-2 against teams with winning records through Week 6.`\
 https://nytimes.com/athletic/6714845/2025/10/13/bills-falcons-mnf-nfl-takeaways/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/13/us/mississippi-shooting-arrests.html
 **There's hope with Titans interim coach Mike McCoy — he has a track record**\
 `Wherever he's coached, the Titans' interim HC has gotten big performances out of great — and not so great — quarterbacks and offenses.`\
 https://nytimes.com/athletic/6714335/2025/10/13/mike-mccoy-has-a-track-record-a-good-sign-for-the-titans-and-cam-ward/
-
-**How to watch Utah vs. BYU: Time, TV, streaming**\
-`Find out how to watch the Utah Utes play the BYU Cougars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6714753/2025/10/13/utah-vs-byu-stream-how-to-watch-oct-18/
-
-**How to watch Cincinnati vs. Oklahoma State: Time, TV, streaming**\
-`Find out how to watch the Cincinnati Bearcats play the Oklahoma State Cowboys, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6714732/2025/10/13/cincinnati-vs-oklahoma-state-stream-how-to-watch-oct-18/
 
