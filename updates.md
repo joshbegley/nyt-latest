@@ -1,3 +1,7 @@
+**Brighton owner Tony Bloom on the future of the Premier League and how his club will adapt to it**\
+`'Everything about the Premier League becomes more difficult every year,' Bloom tells The Athletic...`\
+https://nytimes.com/athletic/6699541/2025/10/14/tony-bloom-brighton-interview-psr/
+
 **Explosion at Italian Farmhouse Kills Three Police Officers**\
 `The police were raiding the house in northern Italy when the blast caused it to collapse, officials said. More than a dozen officers were injured.`\
 https://nytimes.com/2025/10/14/world/europe/italy-carabinieri-explosion-verona.html
