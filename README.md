@@ -1,3 +1,11 @@
+**How to watch Dodgers at Brewers: Game 2 Time, TV, streaming**\
+`Find out how to watch the Los Angeles Dodgers play the Milwaukee Brewers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6715240/2025/10/14/dodgers-vs-brewers-stream-how-to-watch-oct-14/
+
+**Word of the Day: certitude**\
+`This word has appeared in 19 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/10/14/learning/word-of-the-day-certitude.html
+
 **Late Night Tips the Hat to Trump for Middle East Cease-Fire**\
 `Jimmy Kimmel celebrated that President Trump “finally did something positive” with his role in the deal between Israel and Hamas.`\
 https://nytimes.com/2025/10/14/arts/television/late-night-trump-gaza-peace.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6711555/2025/10/14/liverpool-mailbag-guehi-january-
 **Everton loans watch: From Harrison Armstrong to Martin Sherif, how are the youngsters faring?**\
 `The club have farmed several players out across the EFL's three divisions as they seek to continue their development in senior football`\
 https://nytimes.com/athletic/6712790/2025/10/14/everton-harrison-armstrong-loan-players-sherif/
-
-**Inside Newcastle: Wilson's arrival, lessons from Isak's exit, Wissa's role and more**\
-`Chris Waugh answers readers' questions and provides the latest on a range of issues at St James' Park`\
-https://nytimes.com/athletic/6712608/2025/10/14/newcastle-questions-answered-ross-wilson/
-
-**Smart urinals, 'corridors of power' and F1 simulators: Inside football's training ground arms race**\
-`Training facilities are increasingly vital in transfer talks, meaning clubs are spending millions in a bid to gain an edge`\
-https://nytimes.com/athletic/6696176/2025/10/14/premier-league-training-grounds/
 
