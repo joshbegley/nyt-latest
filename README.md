@@ -1,3 +1,7 @@
+**Israel Identifies 2 Bodies Handed Over by Hamas**\
+`The return of the remains of four former captives has spurred anger that more were not retrieved. The devastation to Gaza is likely to make the task especially hard.`\
+https://nytimes.com/2025/10/14/world/middleeast/israeli-hostages-bodies-hamas.html
+
 **How D'Andre Swift, Bears' run game found their groove in win over Commanders**\
 `Swift finally got going as the Bears' running back's 55-yard touchdown catch and 15-yard run to set up the winning field goal were clutch.`\
 https://nytimes.com/athletic/6715200/2025/10/14/bears-dandre-swift-run-game-commanders/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6714189/2025/10/14/penguins-ben-kindel-harrison-bru
 **How many mistakes did Commanders make in loss to Bears? Let's count them**\
 `Washington's smorgasbord of miscues included missed tackles, blown coverages, dropped passes, a missed field goal and three turnovers.`\
 https://nytimes.com/athletic/6715543/2025/10/14/commanders-bears-turnovers-mistakes-mnf/
-
-**Bengals notebook: How Joe Flacco freed up the offense, plus a potential benching**\
-`Also, Trey Hendrickson's injury status and a wild Thursday night trend in the AFC North.`\
-https://nytimes.com/athletic/6714484/2025/10/14/bengals-steelers-joe-flacco-cam-taylor-britt/
 

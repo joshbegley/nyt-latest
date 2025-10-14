@@ -1,4 +1,8 @@
-**Who stays, who goes? Predicting the Yankees' big decisions, including Cody Bellinger**\
+**How D'Andre Swift, Bears' run game found their groove in win over Commanders**\
+`Swift finally got going as the Bears' running back's 55-yard touchdown catch and 15-yard run to set up the winning field goal were clutch.`\
+https://nytimes.com/athletic/6715200/2025/10/14/bears-dandre-swift-run-game-commanders/
+
+**Who stays, who goes? Predicting Yankees' free-agent decisions, including Cody Bellinger**\
 `It’s never too soon to start talking about the state of the Yankees’ roster. Here’s how we see some of the club's key decisions playing out.`\
 https://nytimes.com/athletic/6713738/2025/10/14/yankees-free-agents-2026-roster-decisions/
 
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6715543/2025/10/14/commanders-bears-turnovers-mista
 **Bengals notebook: How Joe Flacco freed up the offense, plus a potential benching**\
 `Also, Trey Hendrickson's injury status and a wild Thursday night trend in the AFC North.`\
 https://nytimes.com/athletic/6714484/2025/10/14/bengals-steelers-joe-flacco-cam-taylor-britt/
-
-**The 10 best things I saw in college football recruiting over the weekend**\
-`Ethan "Boobie" Feaster, a four-star wide receiver who is committed to USC, has several big catches for DeSoto (Texas) High.`\
-https://nytimes.com/athletic/6713986/2025/10/14/college-football-recruiting-thoughts-week-7/
 
