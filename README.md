@@ -1,3 +1,7 @@
+**Red Light: Lane Hutson's bargain contract. Plus: The NHL’s most confusing team**\
+`The NHL season is officially one week old. Were we wrong about everything? We might have been, yeah, but we’ve got it all figured out now.`\
+https://nytimes.com/athletic/6715844/2025/10/14/lane-hutsons-bargain-contract-plus-the-nhls-most-confusing-team/
+
 **Suspect Pleads Guilty in Firebombing of Pa. Governor’s Residence**\
 `Under a plea agreement, Cory Balmer will be imprisoned for 25 to 50 years for the attack on Gov. Josh Shapiro’s official residence in Harrisburg, Pa., in April.`\
 https://nytimes.com/2025/10/14/us/arson-harrisburg-cody-balmer-josh-shapiro.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6712234/2025/10/14/carolina-hurricanes-slavin-walke
 **Al Horford: Celtics didn't offer championship 'opportunity' that Warriors do**\
 `As Horford enters his 19th season, he reflected on his love for Boston and why the Warriors were the right team for him.`\
 https://nytimes.com/athletic/6714977/2025/10/14/al-horford-celtics-warriors-nba/
-
-**The Windup: Bet you’d never seen this play before!**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6715270/2025/10/14/brewers-double-play-dodgers-the-windup/
 
