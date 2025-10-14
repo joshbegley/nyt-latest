@@ -1,3 +1,7 @@
+**Mark Cuban remains 'Team Ballmer,' denies cap trickery on Dirk Nowitzki deal**\
+`Former Mavericks owner Mark Cuban continues to defend Clippers owner Steve Ballmer and sets the record straight on Dirk Nowitzki's contract.`\
+https://nytimes.com/athletic/6715163/2025/10/14/mark-cuban-ballmer-dirk-nowitzki-deal/
+
 **Why Was the President of FIFA at the Gaza Summit?**\
 `Gianni Infantino, the head of soccer’s global governing body, frequently appears alongside President Trump at events outside the realm of sports.`\
 https://nytimes.com/2025/10/14/world/middleeast/gianni-infantino-fifa-trump.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/14/world/asia/china-stem-visa-racist-backlash.html
 **Fantasy football Week 7 drops: Crash of the Titans' Tony Pollard and Calvin Ridley**\
 `Among his Week 7 drops, Gary Davenport decides it's time to toll the bell for a pair of struggling Titans.`\
 https://nytimes.com/athletic/6715177/2025/10/14/fantasy-football-week-7-drops-pollard-ridley/
-
-**Will the Hurricanes find success with a Jaccob Slavin-Sean Walker pair?**\
-`Slavin's status for this road trip is uncertain after he left the game on Saturday early.`\
-https://nytimes.com/athletic/6712234/2025/10/14/carolina-hurricanes-slavin-walker/
 
