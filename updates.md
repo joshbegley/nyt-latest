@@ -1,3 +1,11 @@
+**Nigeria secure spot in World Cup play-offs, South Africa qualify for the first time since 2010**\
+`Victor Osimhen scored a hat-trick in a 4-0 win over Benin on Tuesday, while South Africa beat Rwanda 3-0 to top Group C.`\
+https://nytimes.com/athletic/6713152/2025/10/14/nigeria-south-africa-world-cup/
+
+**ICE Sends More Migrants to Guantánamo Bay, Resumes Operations**\
+`The offshore holding sites had been empty since Oct. 1. The nationalities of the new arrivals were not immediately known.`\
+https://nytimes.com/2025/10/14/us/politics/ice-migrants-guantanamo-bay.html
+
 **Airports Refuse to Show Video of Kristi Noem Blaming Democrats for Shutdown**\
 `More than a dozen airports aren’t displaying the Homeland Security secretary’s roughly 30-second clip. Some said it violates policies against partisan political messaging.`\
 https://nytimes.com/2025/10/14/travel/airports-tsa-kristi-noem-video-shutdown.html

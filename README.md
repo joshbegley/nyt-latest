@@ -1,3 +1,11 @@
+**Critical fantasy football insights for Week 7: Sam Darnold continues career season**\
+`Brandon Funston and Jess Bryant look at year-to-date and weekly usage to give actionable Week 7 advice. `\
+https://nytimes.com/athletic/6713659/2025/10/14/fantasy-football-usage-week-7-darnold-tucker/
+
+**Zelensky Revokes Odesa Mayor’s Citizenship, Amid Feud With Local Leaders**\
+`Ukraine’s security services said the mayor held Russian citizenship, which is forbidden, but he denied the accusation. Government opponents see it as part of a power grab.`\
+https://nytimes.com/2025/10/14/world/europe/ukraine-odesa-mayor-citizenship.html
+
 **Nigeria secure spot in World Cup play-offs, South Africa qualify for the first time since 2010**\
 `Victor Osimhen scored a hat-trick in a 4-0 win over Benin on Tuesday, while South Africa beat Rwanda 3-0 to top Group C.`\
 https://nytimes.com/athletic/6713152/2025/10/14/nigeria-south-africa-world-cup/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/14/arts/design/natural-history-museum-stegosaurus-ap
 **A Full Season of Art to See at Museums and Galleries Across the U.S.**\
 `The fall schedule includes a number of exhibitions that look at works from Italy and France and the cultural events that shaped them.`\
 https://nytimes.com/2025/10/14/arts/design/art-exhibitions-united-states-fall-schedule.html
-
-**Recalling the Edmund Fitzgerald and the Song That Honored It**\
-`It has been a half-century since the ship sank on Lake Superior, and a pop single memorialized its fate. Now museums are commemorating those events.`\
-https://nytimes.com/2025/10/14/arts/design/edmund-fitzgerald-wreck-museums.html
-
-**Will Thursday’s Debate Be a Game Changer?**\
-`A debate preview. Also, Zohran Mamdani speaks in Manhattan and his critics get spoofed on “Saturday Night Live.”`\
-https://nytimes.com/2025/10/14/nyregion/nyc-mayor-mamdani-cuomo-debate.html
 
