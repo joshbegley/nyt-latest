@@ -1,3 +1,15 @@
+**Madison, Wis.**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/madison-wis
+
+**U.S. Attorney Was Forced Out After Clashes Over How to Handle Russia Inquiry**\
+`The departures of Todd Gilbert and his deputy in the Western District of Virginia show the pressure being brought on prosecutors to pursue the president’s perceived foes.`\
+https://nytimes.com/2025/10/14/us/politics/doj-trump-russia-inquiry-prosecutors.html
+
+**Before Alaska Flooding, E.P.A. Canceled $20 Million Flood Protection Grant**\
+`The remote village of Kipnuk planned to use the money to protect against flooding. On Sunday, it was inundated.`\
+https://nytimes.com/2025/10/14/climate/kupnik-alaska-typhoon-trump-epa-flood.html
+
 **The Briefing: Latvia 0 England 5: Tuchel's team qualify for World Cup as Anthony Gordon stakes his claim**\
 `England sealed their place at the World Cup with a comfortable victory in Latvia`\
 https://nytimes.com/athletic/6715921/2025/10/14/latvia-0-england-5-tuchel-gordon-kane/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6716847/2025/10/14/brian-callahan-fired-titans-nfl-
 **Ex-Astros GM James Click among those who have interviewed for Rockies' top job: Sources**\
 `The normally insular Rockies have committed to replacing Bill Schmidt with a candidate from outside the organization.`\
 https://nytimes.com/athletic/6717005/2025/10/14/rockies-baseball-operations-search-james-click/
-
-**Military Claims Power in Madagascar After President Is Impeached**\
-`The military in Madagascar assumed power after lawmakers voted to impeach President Andry Rajoelina on Tuesday. Mr. Rajoelina had gone into hiding on Monday after weeks of youth-led protests over corruption and the economy.`\
-https://nytimes.com/video/world/africa/100000010457798/military-takeover-madagascar-president-removed.html
-
-**D’Angelo: 14 Essential Songs**\
-`The soul singer, songwriter and producer, who died on Tuesday at 51, released three studio albums of meticulously constructed, vocally ambitious, genre-crossing music.`\
-https://nytimes.com/2025/10/14/arts/music/dangelo-songs-playlist.html
-
-**Joel Embiid has 'some chance' of playing in 76ers' final preseason game, coach says**\
-`The 2024 MVP could soon be back in action for his first competitive game since last February. `\
-https://nytimes.com/athletic/6716579/2025/10/14/joel-embiid-injury-update-nick-nurse-preseason/
 
