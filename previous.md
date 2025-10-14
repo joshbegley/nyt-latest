@@ -1,3 +1,7 @@
+**Protests in Brussels Halt Flights and Disrupt Public Transit**\
+`The demonstrations, organized by Belgium’s major trade unions, oppose austerity proposals that would affect pensions and other social welfare.`\
+https://nytimes.com/2025/10/14/world/europe/belgium-brussels-protests-pensions.html
+
 **New Tariffs Worry Furniture Sellers**\
 `New tariffs on imported furniture, kitchen cabinets and lumber came into effect on Tuesday. President Trump has threatened more.`\
 https://nytimes.com/video/business/economy/100000010457153/trump-tariffs-furniture-china.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/14/business/banks-earnings-jpmorgan-goldman-sachs-we
 **Bears Pull Off Wild Comeback Over Commanders**\
 `A crucial fumble by Jayden Daniels gave the Chicago Bears the ball back late and the opportunity to nab a come-from-behind win over the Washington Commanders on Monday night.`\
 https://nytimes.com/video/the-athletic/100000010457249/bears-pull-off-wild-comeback-over-commanders.html
-
-**Madagascar’s Embattled President Is Impeached**\
-`President Andry Rajoelina has vowed to remain in office despite violent protests against his government.`\
-https://nytimes.com/2025/10/14/world/africa/madagascar.html
 

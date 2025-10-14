@@ -1,3 +1,7 @@
+**Protests in Brussels Halt Flights and Disrupt Public Transit**\
+`The demonstrations, organized by Belgium’s major trade unions, oppose austerity proposals that would affect pensions and other social welfare.`\
+https://nytimes.com/2025/10/14/world/europe/belgium-brussels-protests-pensions.html
+
 **New Tariffs Worry Furniture Sellers**\
 `New tariffs on imported furniture, kitchen cabinets and lumber came into effect on Tuesday. President Trump has threatened more.`\
 https://nytimes.com/video/business/economy/100000010457153/trump-tariffs-furniture-china.html
