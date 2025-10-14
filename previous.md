@@ -1,3 +1,7 @@
+**NFL MVP odds: Patrick Mahomes is inevitable**\
+`Mahomes is back on top of the MVP odds board. But will he hold onto it?`\
+https://nytimes.com/athletic/6713990/2025/10/14/nfl-mvp-odds-mahomes-mayfield-allen-quarterbacks/
+
 **Powell Signals Fed on Track to Keep Cutting Rates**\
 `Jerome H. Powell, chair of the Federal Reserve, still sees labor market risks outweighing those posed by higher inflation tied to President Trump’s tariffs.`\
 https://nytimes.com/2025/10/14/business/powell-signals-rate-cuts.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/14/world/middleeast/us-arab-gaza-deal.html
 **Let’s Talk About Divorce After 50**\
 `‘Gray divorce’ is becoming more common. We want to hear about yours.`\
 https://nytimes.com/2025/10/14/well/family/gray-divorce-callout.html
-
-**The Hidden Costs of Downsizing**\
-`They hoped a smaller home would save money — but the reality is proving more costly.`\
-https://nytimes.com/2025/10/14/realestate/downsizing.html
 
