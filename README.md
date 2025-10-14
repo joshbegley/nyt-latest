@@ -1,3 +1,11 @@
+**Nigeria secure spot in World Cup play-offs, South Africa qualify for the first time since 2010**\
+`Victor Osimhen scored a hat-trick in a 4-0 win over Benin on Tuesday, while South Africa beat Rwanda 3-0 to top Group C.`\
+https://nytimes.com/athletic/6713152/2025/10/14/nigeria-south-africa-world-cup/
+
+**ICE Sends More Migrants to Guantánamo Bay, Resumes Operations**\
+`The offshore holding sites had been empty since Oct. 1. The nationalities of the new arrivals were not immediately known.`\
+https://nytimes.com/2025/10/14/us/politics/ice-migrants-guantanamo-bay.html
+
 **Airports Refuse to Show Video of Kristi Noem Blaming Democrats for Shutdown**\
 `More than a dozen airports aren’t displaying the Homeland Security secretary’s roughly 30-second clip. Some said it violates policies against partisan political messaging.`\
 https://nytimes.com/2025/10/14/travel/airports-tsa-kristi-noem-video-shutdown.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/14/arts/design/edmund-fitzgerald-wreck-museums.html
 **Will Thursday’s Debate Be a Game Changer?**\
 `A debate preview. Also, Zohran Mamdani speaks in Manhattan and his critics get spoofed on “Saturday Night Live.”`\
 https://nytimes.com/2025/10/14/nyregion/nyc-mayor-mamdani-cuomo-debate.html
-
-**A St. Louis Bird That Crosses Divides Gets His Own Show**\
-`Weatherbird cartoons that have graced the front pages of the St. Louis Post-Dispatch for 125 years are on exhibit at the Field House Museum.`\
-https://nytimes.com/2025/10/14/arts/design/weatherbird-st-louis-post-dispatch.html
-
-**Joy and Pathos, Gods and Glitter Meet at San Francisco’s Asian Art Museum**\
-`This fall, the museum opens a rave-themed show, highlighting work by women and queer artists of the West Asian diaspora.`\
-https://nytimes.com/2025/10/14/arts/design/san-francisco-asian-art-museum-rave.html
 

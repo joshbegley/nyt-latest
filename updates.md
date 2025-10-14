@@ -1,3 +1,15 @@
+**Airports Refuse to Show Video of Kristi Noem Blaming Democrats for Shutdown**\
+`More than a dozen airports aren’t displaying the Homeland Security secretary’s roughly 30-second clip. Some said it violates policies against partisan political messaging.`\
+https://nytimes.com/2025/10/14/travel/airports-tsa-kristi-noem-video-shutdown.html
+
+**Canadiens architects Gorton, Hughes earned a longer runway. Now, the hard part begins**\
+`Gorton and Hughes getting five more years was an easy decision for owner Geoff Molson, but the challenge ahead is immense.`\
+https://nytimes.com/athletic/6716609/2025/10/14/canadiens-hughes-gorton-contracts-extensions-nhl/
+
+**Netflix Jumps Into Podcasts With Spotify Deal**\
+`Netflix will show video versions of 16 podcasts on sports, culture, entertainment and true crime.`\
+https://nytimes.com/2025/10/14/business/media/netflix-spotify-podcast-deal.html
+
 **Netflix Jumps Into Podcasts With Spotify Deal**\
 `Netflix will show video versions of 16 podcasts on sports, culture, entertainment and true crime.`\
 https://nytimes.com/2025/10/14/business/media/netflix-jumps-into-podcasts-with-spotify-deal.html
