@@ -1,3 +1,23 @@
+**A New Chapter for Israel and Gaza**\
+`Readers respond to news and opinion articles about “this historic moment” in the Middle East. Also: Dangerous obstacles to Covid vaccines.`\
+https://nytimes.com/2025/10/14/opinion/israel-gaza-hamas.html
+
+**Newsom Vetoes California’s Ban on ‘Forever Chemicals’ in Cookware**\
+`Mr. Newsom said he was concerned that the measure restricting PFAS chemicals would make pots and pans more expensive for Californians.`\
+https://nytimes.com/2025/10/14/climate/pfas-forever-chemicals-california-cookware-ban.html
+
+**Suns, Mercury owner countersues investors, claims they seek 'extortionate' buyout**\
+`Phoenix Suns and Mercury owner Mat Ishbia has filed a countersuit against two minority owners, accusing them of angling for a larger buyout.`\
+https://nytimes.com/athletic/6716129/2025/10/14/mat-ishbia-lawsuit-suns-buyout/
+
+**Powell Signals Fed Is on Track to Keep Cutting Rates**\
+`Jerome H. Powell, chair of the Federal Reserve, still sees labor market risks outweighing those posed by higher inflation tied to President Trump’s tariffs.`\
+https://nytimes.com/2025/10/14/business/powell-signals-rate-cuts.html
+
+**Canadiens agree to terms with Kent Hughes, Jeff Gorton on 5-year contract extensions**\
+`Hughes remains general manager, and Gorton was promoted from executive vice president to president of hockey operations.`\
+https://nytimes.com/athletic/6716392/2025/10/14/canadiens-kent-hughes-jeff-gorton-contract-extensions-nhl/
+
 **NFL MVP odds: Patrick Mahomes is inevitable**\
 `Mahomes is back on top of the MVP odds board. But will he hold onto it?`\
 https://nytimes.com/athletic/6713990/2025/10/14/nfl-mvp-odds-mahomes-mayfield-allen-quarterbacks/

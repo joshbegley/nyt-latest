@@ -1,3 +1,7 @@
+**College Football Playoff odds: Indiana is now a virtual lock and Oregon is not anymore**\
+`Ohio State, Miami and Indiana are heavily favored to make the College Football Playoff, but there's plenty of movement below them.`\
+https://nytimes.com/athletic/6716209/2025/10/14/college-football-playoff-odds-indiana-oregon/
+
 **A New Chapter for Israel and Gaza**\
 `Readers respond to news and opinion articles about “this historic moment” in the Middle East. Also: Dangerous obstacles to Covid vaccines.`\
 https://nytimes.com/2025/10/14/opinion/israel-gaza-hamas.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6716392/2025/10/14/canadiens-kent-hughes-jeff-gorto
 **College football Week 8 odds: Vanderbilt ends an SEC streak**\
 `Five Top 25 matchups highlight a busy Week 8 for college football in which every ranked team is in action.`\
 https://nytimes.com/athletic/6716135/2025/10/14/college-football-week-8-odds-vanderbilt-sec-streak/
-
-**Bangladesh Garment Factory Fire Kills at Least 16 Workers, Official Says**\
-`The death toll was expected to climb from the blaze, which also included a nearby chemicals warehouse.`\
-https://nytimes.com/2025/10/14/world/asia/bangladesh-garment-factory-fire.html
 
