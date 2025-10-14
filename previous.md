@@ -1,3 +1,7 @@
+**Blue Jays-Mariners Game 2 takeaways: Seattle's sluggers dominate in Toronto**\
+`The Mariners got to Blue Jays starter Trey Yesavage early and never let up. `\
+https://nytimes.com/athletic/6714506/2025/10/13/blue-jays-mariners-game-2-score-results-takeaways-playoffs-ml/
+
 **Opioid Deaths Suddenly Dominate a Governor’s Race. Here’s What We Know.**\
 `Representative Mikie Sherrill, a New Jersey Democrat, said a firm once owned by her Republican opponent, Jack Ciattarelli, spread misinformation about opioids. His campaign has threatened to sue her for defamation.`\
 https://nytimes.com/2025/10/13/nyregion/opioids-nj-governor-race.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6714571/2025/10/13/texas-vs-kentucky-stream-how-to-
 **How to watch Tennessee vs. Alabama: Time, TV, streaming**\
 `Find out how to watch the Tennessee Volunteers play the Alabama Crimson Tide, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6714564/2025/10/13/tennessee-vs-alabama-stream-how-to-watch-oct-18/
-
-**How to watch Florida Atlantic vs. South Florida: Time, TV, streaming**\
-`Find out how to watch the Florida Atlantic Owls play the South Florida Bulls, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6714560/2025/10/13/florida-atlantic-vs-south-florida-stream-how-to-watch-oct-18/
 

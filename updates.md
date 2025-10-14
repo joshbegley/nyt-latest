@@ -1,3 +1,7 @@
+**Blue Jays-Mariners Game 2 takeaways: Seattle's sluggers dominate in Toronto**\
+`The Mariners got to Blue Jays starter Trey Yesavage early and never let up. `\
+https://nytimes.com/athletic/6714506/2025/10/13/blue-jays-mariners-game-2-score-results-takeaways-playoffs-ml/
+
 **Opioid Deaths Suddenly Dominate a Governor’s Race. Here’s What We Know.**\
 `Representative Mikie Sherrill, a New Jersey Democrat, said a firm once owned by her Republican opponent, Jack Ciattarelli, spread misinformation about opioids. His campaign has threatened to sue her for defamation.`\
 https://nytimes.com/2025/10/13/nyregion/opioids-nj-governor-race.html
