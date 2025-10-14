@@ -34,7 +34,3 @@ https://nytimes.com/athletic/6716823/2025/10/14/panthers-vs-jets-stream-how-to-w
 `Find out how to watch the Miami Dolphins play the Cleveland Browns, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6716819/2025/10/14/dolphins-vs-browns-stream-how-to-watch-oct-19/
 
-**How to watch Raiders vs. Chiefs: Time, TV, streaming**\
-`Find out how to watch the Las Vegas Raiders play the Kansas City Chiefs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6716817/2025/10/14/raiders-vs-chiefs-stream-how-to-watch-oct-19/
-
