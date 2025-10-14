@@ -1,3 +1,11 @@
+**How to watch Kevin Durant and the Houston Rockets throughout the season**\
+`With Kevin Durant in tow, the Rockets have their sights set on an NBA championship. Find out how to tune in for all 82 games. `\
+https://nytimes.com/athletic/6710660/2025/10/14/houston-rockets-tv-streaming-kevin-durant-how-to-watch/
+
+**Big Banks Grow Profits, Crediting a ‘Resilient’ Economy**\
+`JPMorgan Chase, Goldman Sachs and Wells Fargo reported strong quarterly earnings, mostly topping analyst expectations and showing growth across key lines of business.`\
+https://nytimes.com/2025/10/14/business/banks-earnings-jpmorgan-goldman-sachs-wells-fargo-citi.html
+
 **Bears Pull Off Wild Comeback Over Commanders**\
 `A crucial fumble by Jayden Daniels gave the Chicago Bears the ball back late and the opportunity to nab a come-from-behind win over the Washington Commanders on Monday night.`\
 https://nytimes.com/video/the-athletic/100000010457249/bears-pull-off-wild-comeback-over-commanders.html
