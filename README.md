@@ -1,8 +1,24 @@
+**New Tariffs Worry Furniture Sellers**\
+`New tariffs on imported furniture, kitchen cabinets and lumber came into effect on Tuesday. President Trump has threatened more.`\
+https://nytimes.com/video/business/economy/100000010457153/trump-tariffs-furniture-china.html
+
+**How to watch the 2025-26 Oklahoma City Thunder as they try to defend their title**\
+`The Thunder return their young championship core, looking to repeat as champs. Here's how to watch their games, regionally and nationally.`\
+https://nytimes.com/athletic/6712533/2025/10/14/oklahoma-city-thunder-nba-champs-tv-schedule-how-to-watch/
+
+**Global Growth Remains Sluggish as Tariff Threats Loom**\
+`The International Monetary Fund said the impact of trade tensions had been limited so far, but it expects growth to slow.`\
+https://nytimes.com/2025/10/14/business/imf-report-economy-trade-inflation.html
+
+**Wearing the Palette of Fall Foliage**\
+`Oranges, reds, yellows and other autumnal colors came together in a seasonal ensemble.`\
+https://nytimes.com/2025/10/14/style/street-style-look-fall-palette.html
+
 **Russia Steps Up Assault on Antiwar Exiles, Accusing Them of Terrorism**\
 `An intelligence agency’s sweeping investigation shows that Moscow is closely following the anti-Kremlin activities of Russians abroad.`\
 https://nytimes.com/2025/10/14/world/europe/russia-antiwar-ukraine-terrorism.html
 
-**Brian Branch's actions are hurting the Lions and he needs to figure it out — quickly**\
+**Brian Branch's actions are hurting the Lions, and he needs to figure it out — quickly**\
 `Branch is gaining a reputation in this league and it's not one that he or the Lions want. The situation Sunday night was entirely avoidable.`\
 https://nytimes.com/athletic/6715572/2025/10/14/detroit-lions-brian-branch-suspension-chiefs/
 
@@ -18,23 +34,7 @@ https://nytimes.com/2025/10/14/business/banks-earnings-jpmorgan-goldman-sachs-we
 `A crucial fumble by Jayden Daniels gave the Chicago Bears the ball back late and the opportunity to nab a come-from-behind win over the Washington Commanders on Monday night.`\
 https://nytimes.com/video/the-athletic/100000010457249/bears-pull-off-wild-comeback-over-commanders.html
 
-**Madagascar President Dissolves Parliament Ahead of Impeachment Vote**\
-`President Andry Rajoelina has vowed to remain in office after weeks of protests against his government that drove him into hiding.`\
+**Madagascar’s Embattled President Is Impeached**\
+`President Andry Rajoelina has vowed to remain in office despite violent protests against his government.`\
 https://nytimes.com/2025/10/14/world/africa/madagascar.html
-
-**What Would It Cost to Rebuild Gaza?**\
-`A fragile cease-fire between Israel and Hamas is stoking hopes for a surge in investment in the region, and the Middle East more broadly.`\
-https://nytimes.com/2025/10/14/business/dealbook/rebuild-gaza-cost.html
-
-**Trump to Award Posthumous Medal of Freedom to Charlie Kirk**\
-`President Trump was scheduled to attend a ceremony at the White House on Tuesday to honor the influential right-wing activist, who was assassinated last month.`\
-https://nytimes.com/2025/10/14/us/politics/charlie-kirk-medal-of-freedom-trump-birthday.html
-
-**Trump Administration Live Updates: President to Host Argentina’s Leader After Bailout Agreement**\
-``\
-https://nytimes.com/live/2025/10/14/us/trump-news
-
-**Woltemade basks in 'very significant' goal after opening Germany account**\
-`The Newcastle striker provided a scrappy winner off his shoulder in the 1-0 success against Northern Ireland in Belfast.`\
-https://nytimes.com/athletic/6715642/2025/10/14/nick-woltemade-germany-newcastle/
 
