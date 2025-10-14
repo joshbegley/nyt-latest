@@ -1,3 +1,27 @@
+**New Tariffs Worry Furniture Sellers**\
+`New tariffs on imported furniture, kitchen cabinets and lumber came into effect on Tuesday. President Trump has threatened more.`\
+https://nytimes.com/video/business/economy/100000010457153/trump-tariffs-furniture-china.html
+
+**How to watch the 2025-26 Oklahoma City Thunder as they try to defend their title**\
+`The Thunder return their young championship core, looking to repeat as champs. Here's how to watch their games, regionally and nationally.`\
+https://nytimes.com/athletic/6712533/2025/10/14/oklahoma-city-thunder-nba-champs-tv-schedule-how-to-watch/
+
+**Global Growth Remains Sluggish as Tariff Threats Loom**\
+`The International Monetary Fund said the impact of trade tensions had been limited so far, but it expects growth to slow.`\
+https://nytimes.com/2025/10/14/business/imf-report-economy-trade-inflation.html
+
+**Wearing the Palette of Fall Foliage**\
+`Oranges, reds, yellows and other autumnal colors came together in a seasonal ensemble.`\
+https://nytimes.com/2025/10/14/style/street-style-look-fall-palette.html
+
+**Brian Branch's actions are hurting the Lions, and he needs to figure it out — quickly**\
+`Branch is gaining a reputation in this league and it's not one that he or the Lions want. The situation Sunday night was entirely avoidable.`\
+https://nytimes.com/athletic/6715572/2025/10/14/detroit-lions-brian-branch-suspension-chiefs/
+
+**Madagascar’s Embattled President Is Impeached**\
+`President Andry Rajoelina has vowed to remain in office despite violent protests against his government.`\
+https://nytimes.com/2025/10/14/world/africa/madagascar.html
+
 **Russia Steps Up Assault on Antiwar Exiles, Accusing Them of Terrorism**\
 `An intelligence agency’s sweeping investigation shows that Moscow is closely following the anti-Kremlin activities of Russians abroad.`\
 https://nytimes.com/2025/10/14/world/europe/russia-antiwar-ukraine-terrorism.html
