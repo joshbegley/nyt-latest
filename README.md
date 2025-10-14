@@ -1,3 +1,11 @@
+**How Chick-fil-A’s chairman inspired Mauricio Pochettino’s ‘culture’ message to USMNT**\
+`"The team culture, the team togetherness, is stronger than any individual," USMNT midfielder Brenden Aaronson said.`\
+https://nytimes.com/athletic/6714870/2025/10/14/us-mens-soccer-mauricio-pochettino-culture/
+
+**It doesn't appear major changes coming to Cowboys defense: 'We're gonna ride this thing out'**\
+`“Matt Eberflus is a damn good football coach," Cowboys coach Brian Schottenheimer said of his defensive coordinator.`\
+https://nytimes.com/athletic/6714821/2025/10/14/cowboys-defense-matt-eberflus-job-security/
+
 **Werder Bremen player apologises for poo emoji sign after derby win**\
 `Medina Desic said the sign was "off-target" and she got "caught up in the emotions" of the derby.`\
 https://nytimes.com/athletic/6715514/2025/10/14/medina-desic-bundesliga-bremen-hamburg/
@@ -6,7 +14,7 @@ https://nytimes.com/athletic/6715514/2025/10/14/medina-desic-bundesliga-bremen-h
 `The Carolina defense has put together back-to-back run stuffing performances. "That's a front right here," Nick Scott said of the D-line.`\
 https://nytimes.com/athletic/6714299/2025/10/14/panthers-run-defense-derrick-brown/
 
-**England name first squad since Euro 2025 win: Reid, Hinds, Kendall earn first call-ups**\
+**England name first squad since Euro 2025: Reid, Hinds get first call-ups**\
 `Captain Leah Williamson, forward Lauren James and winger Lauren Hemp all miss out through injury.`\
 https://nytimes.com/athletic/6715418/2025/10/14/england-women-squad-october-australia-brazil/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6715185/2025/10/14/bills-offense-falcons-mnf/
 **How do you rebuild a college basketball roster from scratch? Baylor just found out**\
 `WACO, Texas — Last December, Baylor general manager Jason Smith met with coach Scott Drew and told him the program needed to adjust its thinking on recruiting.`\
 https://nytimes.com/athletic/6713454/2025/10/14/baylor-scott-drew-roster-rebuild/
-
-**Blackhawks trust the process, get first win under Jeff Blashill: Observations**\
-`Andre Burakovsky potted the winner as the Blackhawks kept up the effort all game long to earn their first win.`\
-https://nytimes.com/athletic/6714667/2025/10/14/blackhawks-mikheyev-blashill-greene-mammoth/
-
-**Is Elias Pettersson slumping again? 7 observations from Canucks' alarming weekend losses**\
-`In a concerning start to the season the Canucks have played one promising period of hockey through three games.`\
-https://nytimes.com/athletic/6715026/2025/10/14/vancouver-canucks-losses-observations/
 
