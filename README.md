@@ -1,3 +1,7 @@
+**Explosion at Italian Farmhouse Kills Three Police Officers**\
+`The police were raiding the house in northern Italy when the blast caused it to collapse, officials said. More than a dozen officers were injured.`\
+https://nytimes.com/2025/10/14/world/europe/italy-carabinieri-explosion-verona.html
+
 **How to watch Dodgers at Brewers: Game 2 Time, TV, streaming**\
 `Find out how to watch the Los Angeles Dodgers play the Milwaukee Brewers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6715240/2025/10/14/dodgers-vs-brewers-stream-how-to-watch-oct-14/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6658062/2025/10/14/brian-lara-501-warwickshire-west
 **Liverpool mailbag: Guehi January interest? Konate contract latest? Heitinga exit impact?**\
 `The Athletic's Liverpool reporter James Pearce has answered your big questions ahead of the return to Premier League action`\
 https://nytimes.com/athletic/6711555/2025/10/14/liverpool-mailbag-guehi-january-interest-konate-contract-latest-heitinga-exit-impact/
-
-**Everton loans watch: From Harrison Armstrong to Martin Sherif, how are the youngsters faring?**\
-`The club have farmed several players out across the EFL's three divisions as they seek to continue their development in senior football`\
-https://nytimes.com/athletic/6712790/2025/10/14/everton-harrison-armstrong-loan-players-sherif/
 
