@@ -1,3 +1,7 @@
+**Titans' Cam Ward is the latest No. 1 QB pick to see his coach fired**\
+`Quarterbacks drafted first are brought in as franchise-altering forces. It has come with more collateral damage than instant success.`\
+https://nytimes.com/athletic/6714089/2025/10/14/titans-brian-callahan-cam-ward-no-1-qb-trend/
+
 **U.S. Military Kills Another 6 People in 5th Caribbean Strike, Trump Says**\
 `In a social media post, the president said the people aboard a boat were suspected of smuggling drugs for an unspecified group his team had labeled terrorists.`\
 https://nytimes.com/2025/10/14/us/politics/trump-drugs-boat-attack.html
@@ -25,8 +29,4 @@ https://nytimes.com/athletic/6713659/2025/10/14/fantasy-football-usage-week-7-da
 **Zelensky Revokes Odesa Mayor’s Citizenship, Amid Feud With Local Leaders**\
 `Ukraine’s security services said the mayor held Russian citizenship, which is forbidden, but he denied the accusation. Government opponents see it as part of a power grab.`\
 https://nytimes.com/2025/10/14/world/europe/ukraine-odesa-mayor-citizenship.html
-
-**Nigeria secure spot in World Cup play-offs, South Africa qualify for the first time since 2010**\
-`Victor Osimhen scored a hat-trick in a 4-0 win over Benin on Tuesday, while South Africa beat Rwanda 3-0 to top Group C.`\
-https://nytimes.com/athletic/6713152/2025/10/14/nigeria-south-africa-world-cup/
 

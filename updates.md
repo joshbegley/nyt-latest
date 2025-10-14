@@ -1,3 +1,7 @@
+**Titans' Cam Ward is the latest No. 1 QB pick to see his coach fired**\
+`Quarterbacks drafted first are brought in as franchise-altering forces. It has come with more collateral damage than instant success.`\
+https://nytimes.com/athletic/6714089/2025/10/14/titans-brian-callahan-cam-ward-no-1-qb-trend/
+
 **U.S. Military Kills Another 6 People in 5th Caribbean Strike, Trump Says**\
 `In a social media post, the president said the people aboard a boat were suspected of smuggling drugs for an unspecified group his team had labeled terrorists.`\
 https://nytimes.com/2025/10/14/us/politics/trump-drugs-boat-attack.html
