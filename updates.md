@@ -1,3 +1,7 @@
+**Celebrating the genius of Brian Lara and the summer he re-wrote the record books**\
+`A new documentary looks back at the day the diminutive West Indies left hander became the first batter to score 500 in a first-class match`\
+https://nytimes.com/athletic/6658062/2025/10/14/brian-lara-501-warwickshire-west-indies/
+
 **Liverpool mailbag: Guehi January interest? Konate contract latest? Heitinga exit impact?**\
 `The Athletic's Liverpool reporter James Pearce has answered your big questions ahead of the return to Premier League action`\
 https://nytimes.com/athletic/6711555/2025/10/14/liverpool-mailbag-guehi-january-interest-konate-contract-latest-heitinga-exit-impact/
