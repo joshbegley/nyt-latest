@@ -1,3 +1,7 @@
+**At Cove, Flynn McGarry Keeps the Ethos of Gem Alive**\
+`Shifka serves up pita sandwiches, Sushidokoro Mekumi opens its first American outpost and more restaurant news.`\
+https://nytimes.com/2025/10/14/dining/nyc-restaurant-openings.html
+
 **United Center goes dark during Blackhawks-Mammoth game, far from NHL's first power outage**\
 `Chicago's home arena went dark for about four seconds late in the opening period Monday night.`\
 https://nytimes.com/athletic/6716360/2025/10/14/united-center-power-outage-nhl-blackhawks-mammoth/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6713990/2025/10/14/nfl-mvp-odds-mahomes-mayfield-al
 **Powell Signals Fed Is on Track to Keep Cutting Rates**\
 `Jerome H. Powell, chair of the Federal Reserve, still sees labor market risks outweighing those posed by higher inflation tied to President Trump’s tariffs.`\
 https://nytimes.com/2025/10/14/business/powell-signals-rate-cuts.html
-
-**D’Angelo, Acclaimed and Reclusive R&B Innovator, Dies at 51**\
-`After hitting No. 1 with “Voodoo,” his genre-melding 2000 album that he promoted with a risqué music video, he vanished for more than a decade.`\
-https://nytimes.com/2025/10/14/arts/music/dangelo-dead.html
 
