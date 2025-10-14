@@ -1,9 +1,13 @@
+**Mike Shildt says decision to retire was his own, but Padres questions remain**\
+`Speaking Monday night, Shildt said he had just returned to San Diego after a week spent mulling things over at his home in North Carolina.`\
+https://nytimes.com/athletic/6715110/2025/10/14/san-diego-padres-mike-shildt-retirement-questions/
+
 **The New York Times in Print for Tuesday, Oct. 14, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/14/todays-new-york-times
 
 **Bears-Commanders takeaways: Jake Moody kicks Chicago past Washington as time expires**\
-`The backup Chicago Bears kicker booted the game-winning 38-yard field goal.`\
+`The Bears' backup kicker booted the game-winning 38-yard field goal after the Commanders' third turnover of the night.`\
 https://nytimes.com/athletic/6714690/2025/10/14/bears-vs-commanders-mnf-takeaways-nfl/
 
 **Celebrating the genius of Brian Lara and the summer he re-wrote the record books**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6696238/2025/10/14/premier-league-personal-chefs/
 **Barcelona's Aitana Bonmati and the town that made her - where her name, face and legacy is everywhere**\
 `Bonmati is a global superstar after winning the Ballon d'Or for the third time in a row, but it all started in a place called Ribes`\
 https://nytimes.com/athletic/6706769/2025/10/14/aitana-bonmati-barcelona-ballon-dor/
-
-**Yeremy Pino interview: Lessons from Silva and Cazorla, Mateta's Spanish... and London's 's***' traffic**\
-`Pino has made a promising start to his career at Crystal Palace in the capital, where life moves faster than at his old home Villarreal`\
-https://nytimes.com/athletic/6706385/2025/10/14/yeremy-pino-crystal-palace-interview/
 

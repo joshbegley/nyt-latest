@@ -1,3 +1,11 @@
+**Mike Shildt says decision to retire was his own, but Padres questions remain**\
+`Speaking Monday night, Shildt said he had just returned to San Diego after a week spent mulling things over at his home in North Carolina.`\
+https://nytimes.com/athletic/6715110/2025/10/14/san-diego-padres-mike-shildt-retirement-questions/
+
+**Bears-Commanders takeaways: Jake Moody kicks Chicago past Washington as time expires**\
+`The Bears' backup kicker booted the game-winning 38-yard field goal after the Commanders' third turnover of the night.`\
+https://nytimes.com/athletic/6714690/2025/10/14/bears-vs-commanders-mnf-takeaways-nfl/
+
 **The New York Times in Print for Tuesday, Oct. 14, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/14/todays-new-york-times
