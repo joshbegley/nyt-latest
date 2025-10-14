@@ -1,3 +1,23 @@
+**Jason Kidd signs multiyear extension with Mavs: Source**\
+`The Mavericks, who are coming off a 39-43 season, reached the NBA Finals in 2024.`\
+https://nytimes.com/athletic/6717255/2025/10/14/jason-kidd-extension-mavericks/
+
+**Artists Plan Nationwide Protests Against ‘Authoritarian Forces’**\
+`The visual artist Dread Scott, the playwright Lynn Nottage and others have organized a series of actions to unite the arts community against the Trump administration.`\
+https://nytimes.com/2025/10/14/arts/artists-trump-protests-fall-freedom.html
+
+**Freed Palestinian Prisoner Reunites With His Family in the West Bank**\
+`Zaid Junaidi was one of nearly 2,000 Palestinian prisoners and detainees released in exchange for the last 20 living Israeli hostages. The releases are part of the first phase of a cease-fire deal that took hold Friday.`\
+https://nytimes.com/video/world/middleeast/100000010458749/freed-palestinian-prisoner.html
+
+**Sticky Rice Cakes With Sausage and Greens**\
+`Tteok, cylindrical or oval Korean rice cakes, are simple to prepare in this dish that’s playful, filling and kid-friendly. The New York Times Cooking columnist Yewande Komolafe shares her recipe with us.`\
+https://nytimes.com/video/dining/100000010457538/sticky-rice-cakes-with-sausage-and-greens.html
+
+**Three Must-Try Sandwiches in N.Y.C.**\
+`This week, The New York Times’s Food contributor Luke Fortney recommends three sandwich spots around New York City.`\
+https://nytimes.com/video/dining/100000010457534/three-must-try-sandwiches-in-nyc.html
+
 **The Pope Needs to Be More Specific**\
 `A pious vision of political economy should get more concrete.`\
 https://nytimes.com/2025/10/14/opinion/pope-leo-dilexi-te-politics.html
@@ -17,24 +37,4 @@ https://nytimes.com/2025/10/14/world/martyr-charlie-kirk-hamas-israel-madagascar
 **New York Mets to hire Jeff Albert as lead hitting instructor: Sources**\
 `Albert must get the most out of the Mets' young hitters to supplement New York's lineup.`\
 https://nytimes.com/athletic/6717120/2025/10/14/new-york-mets-jeff-albert-lead-hitting-instructor/
-
-**Former Jets center Nick Mangold needs kidney transplant and asks public for help**\
-`Selected 29th overall by the Jets in 2006, Mangold was a three-time All-Pro who spent all 11 of his NFL seasons in New York.`\
-https://nytimes.com/athletic/6717098/2025/10/14/nick-mangold-kidney-donor/
-
-**Mr. Trump, on the Middle East, Please Move Fast and Break Things**\
-`Message to Trump: As hard as stage one was for Gaza peace, you have not even seen hard yet.`\
-https://nytimes.com/2025/10/14/opinion/trump-israel-gaza-peace.html
-
-**Republicans Summon Jack Smith to Testify Before House Judiciary Committee**\
-`The panel’s Republican chairman, Representative Jim Jordan, accused the former special counsel of “prosecutorial misconduct and constitutional abuses.”`\
-https://nytimes.com/2025/10/14/us/politics/jack-smith-house-judiciary-committee.html
-
-**After D’Angelo Bared It All, His Career Was Never the Same**\
-`The video for “Untitled (How Does It Feel)” brought him new levels of fame, but not always the kind of attention he sought.`\
-https://nytimes.com/2025/10/14/arts/music/dangelo-untitled-video.html
-
-**Trump Targets Democratic Districts By Halting Billions During Shutdown**\
-`The Trump administration has frozen or canceled nearly $28 billion primarily located in Democratic-led districts, according to an analysis by The New York Times.`\
-https://nytimes.com/interactive/2025/10/14/us/trump-grants-democrat-districts-government-shutdown.html
 
