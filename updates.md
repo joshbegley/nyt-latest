@@ -1,3 +1,8 @@
+**What happens when you drop the NFL's top pick into a den of dysfunction?**\
+`The Titans feel good about Ward. Nearly everything else in Tennessee appears to be a disordered mess.
+`\
+https://nytimes.com/athletic/6714832/2025/10/14/cam-ward-rookie-qb-titans-organizational-dysfunction/
+
 **Meet Zohran Mamdani, the Favorite to Lead New York City**\
 `Our reporters explore his skyrocket, his life and his appeal.`\
 https://nytimes.com/2025/10/14/us/meet-zohran-mamdani-the-favorite-to-lead-new-york-city.html
