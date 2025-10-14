@@ -1,3 +1,7 @@
+**Celebrating the genius of Brian Lara and the summer he re-wrote the record books**\
+`A new documentary looks back at the day the diminutive West Indies left hander became the first batter to score 500 in a first-class match`\
+https://nytimes.com/athletic/6658062/2025/10/14/brian-lara-501-warwickshire-west-indies/
+
 **Liverpool mailbag: Guehi January interest? Konate contract latest? Heitinga exit impact?**\
 `The Athletic's Liverpool reporter James Pearce has answered your big questions ahead of the return to Premier League action`\
 https://nytimes.com/athletic/6711555/2025/10/14/liverpool-mailbag-guehi-january-interest-konate-contract-latest-heitinga-exit-impact/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/14/us/alaska-typhoon-flood-dead.html
 **Christian Horner has unfinished business in F1 and his return feels inevitable**\
 `If recently-sacked Red Bull principal can find the right terms and the right fit, a Formula One comeback would seem certain`\
 https://nytimes.com/athletic/6712698/2025/10/14/christian-horner-future-f1/
-
-**How Arsenal's dynamic midfield has enabled them to directly attack the channels this season**\
-`Mikel Arteta's summer transfer business has allowed his side to play into the channels much more`\
-https://nytimes.com/athletic/6696385/2025/10/14/arsenal-dynamic-midfield-zubimendi-eze/
 
