@@ -1,3 +1,7 @@
+**Introducing Jake Moody, the new Bears kicker and an unlikely Monday night hero**\
+`With everything on the line Monday night, Moody knew focus and presence would be key on his game-deciding kick.`\
+https://nytimes.com/athletic/6715204/2025/10/14/bears-kicker-jake-moody-commanders-unlikely-hero/
+
 **Venezuela Closes Embassy in Norway After Activist Wins Peace Prize**\
 `The announcement came three days after María Corina Machado, an opposition leader, was awarded the Nobel Peace Prize.`\
 https://nytimes.com/2025/10/14/world/europe/venezuela-embassy-norway-closed.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6714832/2025/10/14/cam-ward-rookie-qb-titans-organi
 **The Rangers need Alexis Lafrenière to bounce back. Can the No. 1 pick deliver?**\
 `Breaking down two recent plays from the 24-year-old that highlight his potential for a New York team in desperate need of secondary offense.`\
 https://nytimes.com/athletic/6713463/2025/10/14/alexis-lafreniere-new-york-rangers-stats/
-
-**With little on the books, Guardians can eye some upgrades**\
-`The Guardians must spend this offseason—payroll room and a contending roster leave no excuse to delay fixing a bottom-tier offense.`\
-https://nytimes.com/athletic/6696790/2025/10/14/guardians-payroll-breakdown/
 

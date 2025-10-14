@@ -1,3 +1,12 @@
+**Introducing Jake Moody, the new Bears kicker and an unlikely Monday night hero**\
+`With everything on the line Monday night, Moody knew focus and presence would be key on his game-deciding kick.`\
+https://nytimes.com/athletic/6715204/2025/10/14/bears-kicker-jake-moody-commanders-unlikely-hero/
+
+**What happens when you drop the NFL's top pick into a den of dysfunction?**\
+`The Titans feel good about Ward. Nearly everything else in Tennessee appears to be a disordered mess.
+`\
+https://nytimes.com/athletic/6714832/2025/10/14/cam-ward-rookie-qb-titans-organizational-dysfunction/
+
 **What happens when you drop the NFL's top pick into a den of dysfunction?**\
 `The Titans feel good about Ward. Nearly everything else in Tennessee appears to be a disordered mess.
 `\
