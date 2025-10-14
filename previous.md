@@ -1,3 +1,23 @@
+**2026 NFL Draft order projections: Jets on track for No. 1, Bengals move into top 10**\
+`Aaron Glenn has the only winless team left in the NFL this season. Which other front offices should start turning one eye to the draft?`\
+https://nytimes.com/athletic/6713591/2025/10/14/nfl-draft-2026-top-10-jets-qbs/
+
+**The Bounce: Is Cooper Flagg a Rookie of the Year lock? Plus, we preview Wolves and Pistons**\
+`Zach Harper catches you up on the latest news around the NBA.`\
+https://nytimes.com/athletic/6716006/2025/10/14/cooper-flagg-timberwolves-pistons-nba-the-bounce/
+
+**I Simply Must Meatball**\
+`Sue Li’s new chicken meatballs with yogurt sauce are fast meatballs done right.`\
+https://nytimes.com/2025/10/14/dining/i-simply-must-meatball.html
+
+**Can This Tape Really Improve Your Workout?**\
+`The stretchy strips, known as kinesiology tape, may help you move better. But not for the reasons sports medicine experts once thought.`\
+https://nytimes.com/2025/10/14/well/move/can-this-tape-really-improve-your-workout.html
+
+**Former USMNT goalkeeper Guzan announces retirement**\
+`Guzan, 41, will call time on a 21-year professional career at the end of the 2025 MLS regular season.`\
+https://nytimes.com/athletic/6716079/2025/10/14/brad-guzan-usmnt-retirement/
+
 **Mark Cuban remains 'Team Ballmer,' denies cap trickery on Dirk Nowitzki deal**\
 `Former Mavericks owner Mark Cuban continues to defend Clippers owner Steve Ballmer and sets the record straight on Dirk Nowitzki's contract.`\
 https://nytimes.com/athletic/6715163/2025/10/14/mark-cuban-ballmer-dirk-nowitzki-deal/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/10/14/us/arson-harrisburg-cody-balmer-josh-shapiro.html
 **Why Sweden fired Tomasson: Shock results, fan fury and an awkward Isak/Gyokeres partnership**\
 `Tomasson’s reign was so spectacularly unpopular that you wonder if Sweden will ever appoint a foreign coach again`\
 https://nytimes.com/athletic/6715693/2025/10/14/why-sweden-fired-tomasson-isak-gyokeres/
-
-**Hoping to Steady Political Crisis, French Prime Minister Offers to Suspend Pension Overhaul**\
-`The move by Sébastien Lecornu was a major concession as he faced no-confidence votes that threatened to topple his government again this week.`\
-https://nytimes.com/2025/10/14/world/europe/hoping-to-steady-political-crisis-french-prime-minister-offers-to-suspend-pension-overhaul.html
-
-**Court rejects Israeli gymnastics' appeals to be included in world championships**\
-`The Court of Arbitration for Sport on Tuesday rejected appeals from Israel's gymnastics federation seeking to block Indonesia's decision.`\
-https://nytimes.com/athletic/6715882/2025/10/14/israel-gymnastics-ban-world-championship-appeal/
-
-**Simone Biles says she'll be at 2028 L.A. Olympics 'in some capacity'**\
-`"I just don't know right now if it's on the floor or in the stands," Biles said during an appearance in Argentina last week.`\
-https://nytimes.com/athletic/6715862/2025/10/14/simone-biles-olympics-games-2028/
-
-**China Wants Foreign Scientists. The Public Says No, Thanks.**\
-`Since Beijing announced a new visa to attract young science and technology graduates, a backlash has erupted online, forcing the government to respond.`\
-https://nytimes.com/2025/10/14/world/asia/china-stem-visa-racist-backlash.html
-
-**Fantasy football Week 7 drops: Crash of the Titans' Tony Pollard and Calvin Ridley**\
-`Among his Week 7 drops, Gary Davenport decides it's time to toll the bell for a pair of struggling Titans.`\
-https://nytimes.com/athletic/6715177/2025/10/14/fantasy-football-week-7-drops-pollard-ridley/
 
