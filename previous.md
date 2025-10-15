@@ -1,40 +1,40 @@
-**Raila Odinga, Former Prime Minister of Kenya, Dies at 80**\
-`A pivotal political leader who helped usher in multiparty democracy, he ran unsuccessfully for the presidency five times.`\
-https://nytimes.com/2025/10/15/world/africa/raila-odinga-kenya-dead.html
+**Fantasy football best and worst Week 7 matchups: Deploy Jayden Daniels, Caleb Williams**\
+`KC Joyner offers his Week 7 matchup rankings to help you with start/sit decisions. Should you bench Daniel Jones this week?`\
+https://nytimes.com/athletic/6715547/2025/10/15/fantasy-football-best-worst-week-7-matchups-caleb-williams-jayden-daniels/
 
-**Trump Awards Charlie Kirk the Presidential Medal of Freedom**\
-`President Trump said he raced back from the Middle East peace talks to posthumously award the Presidential Medal of Freedom to Charlie Kirk, the conservative activist who was assassinated last month.`\
-https://nytimes.com/video/us/politics/100000010459013/trump-charlie-kirk-medal.html
+**How Joe Mazzulla turned normal day covering the Celtics into my worst basketball nightmare**\
+`What was supposed to be a friendly pickup game between the media turned into utter humiliation at the hands of the Celtics coaching staff. `\
+https://nytimes.com/athletic/6717670/2025/10/15/joe-mazzulla-celtics-coaches-vs-media-pickup-game/
 
-**A.I. Friend**\
-`What is your reaction to this ad?`\
-https://nytimes.com/2025/10/15/learning/ai-friend.html
+**What Are Tomahawk Missiles, and Why Might Trump Give Them to Ukraine?**\
+`Largely used by naval forces for more than 40 years, Ukraine could receive a newly developed land-based launcher to strike Moscow and beyond.`\
+https://nytimes.com/2025/10/15/us/politics/tomahawk-missiles-trump-ukraine.html
 
-**Britain’s Famous Forecasting Failure**\
-`The Great Storm of 1987 was a forecasting blunder that left at least 18 people dead, felled 15 million trees and caused a billion pounds worth of damage.`\
-https://nytimes.com/2025/10/15/weather/uk-great-storm-1987-forecast.html
+**Fall at City Ballet: Promotions, Debuts and Transcendent Dancing**\
+`The programs were all over the map, but the dancers held the season together. Six were promoted, including India Bradley, the first Black female to become a soloist.`\
+https://nytimes.com/2025/10/15/arts/dance/new-york-city-ballet-fall-season.html
 
-**Cuomo Tries to Make Prostitution an Issue in Mayor’s Race**\
-`Former Gov. Andrew M. Cuomo has criticized Assemblyman Zohran Mamdani over his past support for decriminalizing prostitution. Mr. Mamdani’s campaign has not emphasized the issue.`\
-https://nytimes.com/2025/10/15/nyregion/mamdani-cuomo-prostitution-nyc.html
+**Supreme Court Asks When Police Can Enter Without Warrant in Emergency**\
+`Montana is defending the actions of law enforcement officers who did not have a warrant when they responded to a possibly suicidal Army veteran.`\
+https://nytimes.com/2025/10/15/us/politics/supreme-court-warrants-emergency.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/10/15/crosswords/spelling-bee-forum.html
+**How Afraid of the A.I. Apocalypse Should We Be?**\
+`The researcher Eliezer Yudkowsky argues that we should be very afraid of artificial intelligence’s existential risks.`\
+https://nytimes.com/2025/10/15/opinion/ezra-klein-podcast-eliezer-yudkowsky.html
 
-**Accused Arsonist of Pennsylvania Governor’s Home Pleads Guilty**\
-`The man accused of firebombing Gov. Josh Shapiro’s residence in April pleaded guilty after prosecutors showed surveillance footage of the crime.`\
-https://nytimes.com/video/us/politics/100000010459091/arson-harrisburg-cody-balmer-josh-shapiro.html
+**Kennedy’s Guide to Confusing and Scaring New Parents**\
+`Circumcision is the latest example of Kennedy seizing on a hot-button issue that already has entrenched and aggressive internet partisans.`\
+https://nytimes.com/2025/10/15/opinion/kennedy-autism-circumcision-parents.html
 
-**Aussie Geria didn't try to injure Pulisic but says his team was up for a fight**\
-`The Australian defender's physical play left Pulisic injured, but insisted it was not intentional`\
-https://nytimes.com/athletic/6718298/2025/10/15/jason-geria-christian-pulisic-australia-usmnt-fight/
+**How D’Angelo Made His Masterpiece, ‘Voodoo’**\
+`The singer, songwriter and producer’s 2000 album was the result of years in the studio listening to inspiring music, jamming and rediscovering his artistic purpose.`\
+https://nytimes.com/2025/10/15/arts/music/dangelo-voodoo.html
 
-**Stephen Colbert Ridicules Trump’s Time Magazine Cover**\
-`“The Late Show” host called President Trump’s photo the “worst Georgia O’Keeffe ever.”`\
-https://nytimes.com/2025/10/15/arts/television/stephen-colbert-trump-time-magazine.html
+**This Could Be the Last Stand for the Voting Rights Act**\
+`Will Black voters continue to have an opportunity to elect representatives of their choice, or will decades of hard-won progress disappear?`\
+https://nytimes.com/2025/10/15/opinion/voting-rights-act-louisiana.html
 
-**How to watch Falcons vs. 49ers: Time, TV, streaming**\
-`Find out how to watch the Atlanta Falcons play the San Francisco 49ers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6718286/2025/10/15/falcons-vs-49ers-stream-how-to-watch-oct-19/
+**Will the Voting Rights Act Be Gutted? Supreme Court Could Decide Its Future.**\
+`If the justices decide that lawmakers cannot consider race in drafting maps, redistricting could result in congressional seats flipping from blue to red throughout the country.`\
+https://nytimes.com/2025/10/15/us/politics/supreme-court-voting-rights-act.html
 
