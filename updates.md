@@ -1,3 +1,23 @@
+**Trump Allies Push to Bolster Putin-Backed Balkans Leader**\
+`An influence campaign has relied on allies of the president, including Rudolph W. Giuliani, to cast a Serbian politician as a victim of political persecution.`\
+https://nytimes.com/2025/10/15/us/politics/trump-dodik-srpska-lobbying.html
+
+**Schumer Calls on Trump, G.O.P. to Condemn Young Republicans’ Texts**\
+`The top Senate Democrat said the president and Republican leaders had an “obligation to denounce vile rhetoric,” even when it comes from within their own party.`\
+https://nytimes.com/2025/10/15/us/politics/schumer-young-republicans-texts.html
+
+**Wildfire Plus Rain Brings Risks. Scientists Are Trying to Warn Residents.**\
+`Research in the U.S. Southwest could expand lifesaving efforts for hazards that follow wildfires across the globe.`\
+https://nytimes.com/2025/10/15/climate/wildfire-flash-flood-landslide-risk.html
+
+**They’re Ready to Go to Mars**\
+`Fans of the red planet joined scientists at an annual conference sponsored by the Mars Society. One attendee said he would take a “one-way ticket.”`\
+https://nytimes.com/2025/10/15/style/mars-society-convention.html
+
+**Jacob Markström out 'a couple of weeks': What does it mean for the Devils in goal?**\
+`Markström suffered the injury during Monday's game against Columbus.`\
+https://nytimes.com/athletic/6720044/2025/10/15/jacob-markstrom-injury-devils/
+
 **They’re Ready to Go to Mars**\
 `Fans of the red planet joined scientists at an annual conference sponsored by the Mars Society. One attendee said he would take a “one-way ticket.”`\
 https://nytimes.com/2025/10/15/style/theyre-ready-to-go-to-mars.html

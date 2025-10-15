@@ -1,6 +1,18 @@
+**Trump Allies Push to Bolster Putin-Backed Balkans Leader**\
+`An influence campaign has relied on allies of the president, including Rudolph W. Giuliani, to cast a Serbian politician as a victim of political persecution.`\
+https://nytimes.com/2025/10/15/us/politics/trump-dodik-srpska-lobbying.html
+
+**Schumer Calls on Trump, G.O.P. to Condemn Young Republicans’ Texts**\
+`The top Senate Democrat said the president and Republican leaders had an “obligation to denounce vile rhetoric,” even when it comes from within their own party.`\
+https://nytimes.com/2025/10/15/us/politics/schumer-young-republicans-texts.html
+
+**Wildfire Plus Rain Brings Risks. Scientists Are Trying to Warn Residents.**\
+`Research in the U.S. Southwest could expand lifesaving efforts for hazards that follow wildfires across the globe.`\
+https://nytimes.com/2025/10/15/climate/wildfire-flash-flood-landslide-risk.html
+
 **They’re Ready to Go to Mars**\
 `Fans of the red planet joined scientists at an annual conference sponsored by the Mars Society. One attendee said he would take a “one-way ticket.”`\
-https://nytimes.com/2025/10/15/style/theyre-ready-to-go-to-mars.html
+https://nytimes.com/2025/10/15/style/mars-society-convention.html
 
 **Aryna Sabalenka wants to be 'good example' in tennis after racket throw at Wuhan Open**\
 `The world No. 1 had hurled her racket in frustration toward the end of her semifinal defeat to Jessica Pegula of the U.S.`\
@@ -18,23 +30,11 @@ https://nytimes.com/athletic/6719791/2025/10/15/mlb-gold-glove-finalists-mlb-cal
 `Kulikov projects to be sidelined until March 2026 while recovering from surgery to repair a labral tear.`\
 https://nytimes.com/athletic/6720012/2025/10/15/florida-panthers-dmitry-kulikov-injury-surgery/
 
-**Devils goalie Jacob Markstrom out 'a couple of weeks' with injury**\
+**Jacob Markström out 'a couple of weeks': What does it mean for the Devils in goal?**\
 `Markström suffered the injury during Monday's game against Columbus.`\
 https://nytimes.com/athletic/6720044/2025/10/15/jacob-markstrom-injury-devils/
 
 **You Made It to Harvard. But You Skip Class?**\
 `Readers respond to a Page A1 article about the lack of class attendance at Harvard. Also: Canceling a report on threats; America today.`\
 https://nytimes.com/2025/10/15/opinion/harvard-skipping-class.html
-
-**Delaware’s Highest Court Considers Elon Musk’s Tesla Pay Plan**\
-`The justices on the state Supreme Court heard arguments in a long dispute about whether the Tesla chief executive’s compensation was fair to shareholders.`\
-https://nytimes.com/2025/10/15/business/elon-musk-delaware-pay-package.html
-
-**Submit your questions for Kevin Fishbain's Bears mailbag**\
-`The Bears have won three games in a row, the last two coming down to the final seconds. What's on your mind?`\
-https://nytimes.com/athletic/6717338/2025/10/15/bears-mailbag-questions-46/
-
-**Indiana receiver emerges as top-100 draft pick in upset of Oregon**\
-`Elijah Sarratt, who is coming off a stellar performance against Oregon, has the speed needed for the next level.`\
-https://nytimes.com/athletic/6717215/2025/10/15/indiana-elijah-sarratt-top-100-nfl-draft-pick/
 
