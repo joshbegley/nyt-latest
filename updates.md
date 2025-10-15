@@ -1,3 +1,11 @@
+**Trump Threatens Spain With Higher Tariffs Over Defense Spending**\
+`President Trump said he was considering ‘trade punishment through tariffs’ over Spain’s refusal to increase its military spending.`\
+https://nytimes.com/2025/10/15/us/politics/trump-tariffs-spain-military-defense-spending-nato.html
+
+**Trump Administration Live Updates: President to Hold News Conference With F.B.I. Director**\
+``\
+https://nytimes.com/live/2025/10/15/us/trump-shutdown-news
+
 **CJ Carr midseason report: What experts see in Notre Dame's young QB**\
 `Carr is producing one of the great quarterback years in Notre Dame history through six games.`\
 https://nytimes.com/athletic/6717141/2025/10/15/cj-carr-notre-dame-quarterbacks/
