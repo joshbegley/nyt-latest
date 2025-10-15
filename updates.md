@@ -1,3 +1,15 @@
+**Voting Rights Act Could Be Undercut Following Supreme Court Hearing**\
+`If the Supreme Court justices determine that lawmakers may not consider race in drawing district maps, the repercussions for the country’s political balance could be widespread.`\
+https://nytimes.com/video/us/politics/100000010459563/supreme-court-voting-rights-louisiana.html
+
+**New York Knicks fan laid it 'all out on the line' in viral tic-tac-toe game**\
+`With a $500 prize up for grabs, Ghedalia Gold-Pastor was willing to put his body on the line.`\
+https://nytimes.com/athletic/6716532/2025/10/15/new-york-knicks-tic-tac-toe-fans-viral/
+
+**Brown University Rejects White House Deal for Special Treatment**\
+`Brown was the second university to turn down the deal, which would have given a funding preference to universities that agreed to certain requirements.`\
+https://nytimes.com/2025/10/15/us/brown-university-trump-compact-funding.html
+
 **Brown University Rejects a White House ‘Compact’ to Receive Special Treatment**\
 `Brown was the second university to turn down the deal, which would have given a funding preference to universities that agreed to certain requirements.`\
 https://nytimes.com/2025/10/15/us/brown-university-trump-compact-funding.html
