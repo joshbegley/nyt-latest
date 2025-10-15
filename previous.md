@@ -34,7 +34,3 @@ https://nytimes.com/athletic/6720675/2025/10/15/aaron-rodgers-joe-flacco-icy-hot
 `Kane said he has used the miss against France as motivation ever since after England qualified for the 2026 World Cup.`\
 https://nytimes.com/athletic/6718509/2025/10/15/harry-kane-penalty-world-cup-england/
 
-**Lightning trade Pheonix Copley to Kings less than two weeks after claiming him off waivers**\
-`The Lightning claimed Copley off waivers from the Kings on Oct. 2 and received future considerations in the trade.`\
-https://nytimes.com/athletic/6720695/2025/10/15/lightning-kings-pheonix-copley-trade-waivers/
-
