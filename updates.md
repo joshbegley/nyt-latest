@@ -1,3 +1,11 @@
+**In Naomi Girma’s absence, Emma Hayes continues to experiment with the USWNT defense**\
+`For the third time this year, the USWNT roster will not include Naomi Girma, who continues to recover from a calf injury. `\
+https://nytimes.com/athletic/6720890/2025/10/15/naomi-girmas-absence-emma-hayes-uswnt-defense/
+
+**How to watch Buccaneers vs. Lions: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Buccaneers play the Detroit Lions, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6721047/2025/10/15/buccaneers-vs-lions-stream-how-to-watch-oct-20/
+
 **How to watch Brewers at Dodgers: Game 3 Time, TV, streaming**\
 `Find out how to watch the Milwaukee Brewers play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6721004/2025/10/15/brewers-vs-dodgers-stream-how-to-watch-oct-16/
