@@ -1,3 +1,15 @@
+**How Malala Changed Her Mind About Marriage**\
+`The activist and author Malala Yousafzai married Asser Malik in 2021, despite her skepticism about marriage. She shared why she chose marriage on the “Modern Love” podcast.`\
+https://nytimes.com/video/podcasts/100000010452514/how-malala-changed-her-mind-about-marriage.html
+
+**Hegseth Warns U.S. Will Impose ‘Costs’ on Russia if Peace Efforts Falter**\
+`Defense Secretary Pete Hegseth offered unusually strong criticism of Russia, just as Ukraine seeks American Tomahawk missiles.`\
+https://nytimes.com/2025/10/15/us/politics/hegseth-russia-ukraine.html
+
+**Trump Offered a Helping Hand to Argentina. It Backfired.**\
+`When President Javier Milei of Argentina faced an economic meltdown, President Trump vowed to come to his aid. But that lifeline is coming at a cost.`\
+https://nytimes.com/2025/10/15/world/americas/argentina-trump-javier-milei.html
+
 **Part of a 4,200-Year-Old Human Skull Is Found Along an Indiana Riverbank**\
 `The bone fragment, found in June, “is a powerful and humbling reminder that people have walked this land, our home in Fayette County, for millennia,” the county’s coroner said.`\
 https://nytimes.com/2025/10/15/us/4200-year-old-skull-indiana.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6720157/2025/10/15/wild-even-strength-line-shufflin
 **Twins interview Nick Punto, former 'piranha,' among others for manager opening: Sources**\
 `Punto led a group of Twins players whom Ozzie Guillen labeled "piranhas" because of their small-ball tactics against his White Sox.`\
 https://nytimes.com/athletic/6720255/2025/10/15/twins-interview-nick-punto-for-manager-padres/
-
-**How to watch Flames vs. Mammoth: Time, TV, streaming**\
-`Find out how to watch the Calgary Flames play the Utah Mammoth, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6720353/2025/10/15/flames-vs-mammoth-stream-how-to-watch-oct-15/
-
-**How to watch Blackhawks vs. Blues: Time, TV, streaming**\
-`Find out how to watch the Chicago Blackhawks play the St. Louis Blues, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6720350/2025/10/15/blackhawks-vs-blues-stream-how-to-watch-oct-15/
-
-**The Lonely House Republican Still Coming to Work During the Shutdown**\
-`Representative Kevin Kiley of California has criticized his own party for keeping the House out of session during the shutdown. He is battling boredom and disaffection as the stalemate drags on.`\
-https://nytimes.com/2025/10/15/us/politics/kevin-kiley-shutdown.html
 
