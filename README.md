@@ -1,3 +1,7 @@
+**Five Cubs takeaways not about Kyle Tucker from Jed Hoyer’s end-of-season press conference**\
+`Tucker will be the main focus of the offseason, but there were other topics to discuss, including Shota Imanaga's option decision.`\
+https://nytimes.com/athletic/6720374/2025/10/15/chicago-cubs-season-in-review-shota-imanaga/
+
 **Malcolm Brogdon retires after nine NBA seasons, citing physical, mental toll**\
 `Brogdon, the 2023 Sixth Man of the Year, was set to make the Knicks' roster before his sudden retirement altered the team's plans.`\
 https://nytimes.com/athletic/6720584/2025/10/15/malcolm-brogdon-knicks-nba-retired/
@@ -25,8 +29,4 @@ https://nytimes.com/2025/10/15/business/penny-circulation-retailers-change.html
 **What Do You Give Someone Who’s Just Gotten Engaged?**\
 `A roundup of T Magazine’s favorite gifts, including whimsical pepper mills, sapphire earrings and more.`\
 https://nytimes.com/2025/10/15/t-magazine/engagement-gift-ideas.html
-
-**Nick Robertson trade possibility bubbles again. What now for the Leafs forward?**\
-`Robertson hasn’t been able to secure a permanent place in the Leafs lineup, but he’s shown enough to dissuade them from giving him away.`\
-https://nytimes.com/athletic/6720366/2025/10/15/nick-robertson-trade-possibility-maple-leafs/
 
