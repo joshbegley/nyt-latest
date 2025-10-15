@@ -1,3 +1,27 @@
+**Russell secures Mercedes F1 contract extension as team confirms 2026 line-up**\
+`Five-time grand prix winner Russell, 27, has raced for Mercedes since 2022 and was part of its young driver roster from 2017.`\
+https://nytimes.com/athletic/6718446/2025/10/15/george-russell-mercedes-contract/
+
+**How to watch Victor Wembanyama and the San Antonio Spurs all season**\
+`The Spurs look poised to make a big leap as Victor Wembanyama enters Year 3. Don't miss a single game this season by following our guide. `\
+https://nytimes.com/athletic/6710879/2025/10/15/san-antonio-spurs-tv-schedule-victor-wembanyama-how-to-watch/
+
+**Eagles mailbag: Howie Roseman's trade targets, Kevin Patullo's future, playoff possibilities**\
+`Plus, questions about leadership and the running game.`\
+https://nytimes.com/athletic/6717520/2025/10/15/eagles-howie-roseman-trade-targets-kevin-patullo-future/
+
+**Here’s the latest.**\
+`By Abbie VanSickle`\
+https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/heres-the-latest
+
+**Live Updates: Supreme Court Will Weigh Role of Race in State Election Maps**\
+`The case over Louisiana congressional districts could have broad implications for the law and politics, and potentially gut the remaining pillar of the Voting Rights Act.`\
+https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights
+
+**How Can I Stop My Mother-in-Law From Making Insulting Compliments?**\
+`A reader also wants to find a way to gracefully extricate herself from the long hugs during which she is showered with praise for her homemaking.`\
+https://nytimes.com/2025/10/15/style/long-hugs-insulting-compliments.html
+
 **Matthew Stafford and a stingy defense: 10 stats that tell the story of Rams' season**\
 `Stafford has the offense humming at age 37. And the defense, led by Jared Verse and Byron Young, has done its part for the 4-2 Rams. `\
 https://nytimes.com/athletic/6717565/2025/10/15/rams-matthew-stafford-stats-defense/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6711056/2025/10/15/orlando-magic-tv-london-berlin-h
 **Bills bye week thoughts: Glaring need as trade deadline nears and an idea for James Cook**\
 `Plus, the Bills are in a precarious situation at cornerback.`\
 https://nytimes.com/athletic/6717010/2025/10/15/bills-bye-week-trade-deadline-wide-receiver/
-
-**Why Bank C.E.O.s See Economic Turbulence Ahead**\
-`Wall Street giants are reporting blowout results for their most recent quarter. But they are getting worried about what lies ahead.`\
-https://nytimes.com/2025/10/15/business/dealbook/bank-earnings-economy-lending-stocks.html
-
-**Trump Threatens Spain With Higher Tariffs Over Defense Spending**\
-`President Trump said he was considering ‘trade punishment through tariffs’ over Spain’s refusal to increase its military spending.`\
-https://nytimes.com/2025/10/15/us/politics/trump-tariffs-spain-military-defense-spending-nato.html
-
-**Trump Administration Live Updates: President to Hold News Conference With F.B.I. Director**\
-``\
-https://nytimes.com/live/2025/10/15/us/trump-shutdown-news
-
-**CJ Carr midseason report: What experts see in Notre Dame's young QB**\
-`Carr is producing one of the great quarterback years in Notre Dame history through six games.`\
-https://nytimes.com/athletic/6717141/2025/10/15/cj-carr-notre-dame-quarterbacks/
-
-**Mandel's Mailbag: Can Indiana win a title? Does Matt Rhule make sense for Penn State?**\
-`Plus: Fixing massive coaching buyouts, how the Top 25 will change in the second half and more college football questions.`\
-https://nytimes.com/athletic/6717868/2025/10/15/mandel-mailbag-indiana-playoff-coaching-carousel/
-
-**Oilers thoughts: Stuart Skinner bounces back, roster decisions and lineup tweaks**\
-`The Oilers opened a five-game road trip with a 2-0 win over the Rangers at Madison Square Garden on Tuesday night.`\
-https://nytimes.com/athletic/6718043/2025/10/15/edmonton-oilers-roster-lineup-stuart-skinner-shutout/
 
