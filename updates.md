@@ -1,3 +1,7 @@
+**Who are the lawyers appearing before the court?**\
+`By Ann E. Marimow`\
+https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/supreme-court-lawyers
+
 **Rearguments are rare, and they can signal major upheavals.**\
 `A characteristic move of the court led by Chief Justice Roberts is to go big only after an initial encounter, as it did in the Citizens United campaign finance case.`\
 https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/rearguments-are-rare-and-they-can-signal-major-upheavals

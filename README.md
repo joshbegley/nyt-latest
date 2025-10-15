@@ -1,3 +1,7 @@
+**The Supreme Court Case That Could Hand the House to Republicans**\
+`Democrats would be in danger of losing around a dozen majority-minority districts across the South if the court struck down part of the Voting Rights Act.`\
+https://nytimes.com/2025/10/15/upshot/supreme-court-voting-rights-gerrymander.html
+
 **Who are the lawyers appearing before the court?**\
 `By Ann E. Marimow`\
 https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/supreme-court-lawyers
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/a-supreme-cou
 **The Windup: Who looks old-school now?**\
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6718261/2025/10/15/dodgers-starters-nlcs-brewers-the-windup/
-
-**Putin Welcomes the New Syrian Leader While Still Harboring the Old One**\
-`The meeting in Moscow between President Vladimir V. Putin of Russia and President Ahmed al-Shara of Syria showcased the adaptability of two leaders once at odds.`\
-https://nytimes.com/2025/10/15/world/europe/russia-syria-putin-al-shara-moscow-visit-assad.html
 
