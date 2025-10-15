@@ -1,3 +1,7 @@
+**Celtics' Mazzulla says 57-4 win over media was about more than basketball: 'It humanizes us'**\
+`Joe Mazzulla explained his motivation for coaches-media pickup game: "It was important that we did that yesterday, and we’ll do it again."`\
+https://nytimes.com/athletic/6720860/2025/10/15/joe-mazzulla-celtics-media-pickup-game-nba/
+
 **USWNT in Champions League: Lily Yohannes and Alyssa Thompson help their teams in dominating wins**\
 `The goals came hours after head coach Emma Hayes named both players to her 26-player U.S. roster for October `\
 https://nytimes.com/athletic/6720961/2025/10/15/champions-league-uswnt-lily-yohannes-alyssa-thompson/
