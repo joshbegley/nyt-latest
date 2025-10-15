@@ -1,3 +1,7 @@
+**Trump Awards Charlie Kirk the Presidential Medal of Freedom**\
+`President Trump said he raced back from the Middle East peace talks to posthumously award the Presidential Medal of Freedom to Charlie Kirk, the conservative activist who was assassinated last month.`\
+https://nytimes.com/video/us/politics/100000010459013/trump-charlie-kirk-medal.html
+
 **A.I. Friend**\
 `What is your reaction to this ad?`\
 https://nytimes.com/2025/10/15/learning/ai-friend.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6718286/2025/10/15/falcons-vs-49ers-stream-how-to-w
 **How to watch Blue Jays at Mariners: Game 3 Time, TV, streaming**\
 `Find out how to watch the Toronto Blue Jays play the Seattle Mariners, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6718263/2025/10/15/blue-jays-vs-mariners-stream-how-to-watch-oct-15/
-
-**Word of the Day: valiantly**\
-`This word has appeared in 41 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/10/15/learning/word-of-the-day-valiantly.html
 
