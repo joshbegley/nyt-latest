@@ -1,3 +1,11 @@
+**Tracing the roots of Ruben Amorim's 'idea'**\
+`Ruben Amorim's 3-4-3 system has defined his time in charge of Manchester United, but why is it so important to him and will he ever change?`\
+https://nytimes.com/athletic/6706660/2025/10/15/ruben-amorim-formation-change/
+
+**How to fuel Woltemade (and other footballing ectomorphs)**\
+`Keeping players of the Newcastle striker's unusually tall and thin physique energised is not straightforward`\
+https://nytimes.com/athletic/6713380/2025/10/15/nick-woltemade-newcastle-nutrition/
+
 **Fred Vasseur on working with Lewis Hamilton: 'We need to improve step by step'**\
 `Taking the reins of the most famous and successful team in F1 history brings with it great pressure`\
 https://nytimes.com/athletic/6716199/2025/10/15/fred-vasseur-interview-ferrari-lewis-hamilton/
