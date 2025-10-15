@@ -4,7 +4,7 @@ https://nytimes.com/athletic/6717958/2025/10/14/president-trump-relocate-world-c
 
 **Sign of Justice**\
 `Christina Iverson and Nick Offerman make a handy collaboration debut.`\
-https://nytimes.com/2025/10/14/crosswords/daily-puzzle-2025-10-15-2025.html
+https://nytimes.com/2025/10/14/crosswords/daily-puzzle-2025-10-15.html
 
 **New York Confirms State’s First Locally Acquired Case of Chikungunya**\
 `Testing proved that a Long Island woman had been exposed to the mosquito-borne virus, which is more commonly seen in the Caribbean and Central and South America.`\

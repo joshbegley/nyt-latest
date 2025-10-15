@@ -1,3 +1,7 @@
+**Sign of Justice**\
+`Christina Iverson and Nick Offerman make a handy collaboration debut.`\
+https://nytimes.com/2025/10/14/crosswords/daily-puzzle-2025-10-15.html
+
 **President Trump once again suggests relocating World Cup matches**\
 `Trump claims he would consider calling FIFA’s president Gianni Infantino to move games from cities that he deems unsafe.`\
 https://nytimes.com/athletic/6717958/2025/10/14/president-trump-relocate-world-cup-matches/
