@@ -1,3 +1,11 @@
+**Putin Welcomes the New Syrian Leader While Still Harboring the Old One**\
+`The meeting in Moscow between President Vladimir V. Putin of Russia and President Ahmed al-Shara of Syria showcased the adaptability of two leaders once at odds.`\
+https://nytimes.com/2025/10/15/world/europe/russia-syria-putin-al-shara-moscow-visit-assad.html
+
+**Voting Rights Act’s Impact Has Reached Far Outside the South**\
+`While the 1965 law was adopted in response to discriminatory practices in southern states, it has affected states and localities nationwide.`\
+https://nytimes.com/2025/10/15/us/politics/voting-rights-act-south.html
+
 **Unions to Ask Court to Block Trump Layoffs During Shutdown**\
 `Labor groups are set to square off against the Trump administration one day after the president renewed his threat to cut “Democrat programs.”`\
 https://nytimes.com/2025/10/15/business/government-shutdown-trump-layoffs-unions.html
@@ -29,12 +37,4 @@ https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/the-case-will
 **Meta Removes Facebook Group That Shared Information on ICE Agents**\
 `The Facebook page was taken down for “violating our policies against coordinated harm,” according to Meta.`\
 https://nytimes.com/2025/10/15/technology/meta-removes-ice-facebook-page.html
-
-**Russell secures Mercedes F1 contract extension as team confirms 2026 line-up**\
-`Five-time grand prix winner Russell, 27, has raced for Mercedes since 2022 and was part of its young driver roster from 2017.`\
-https://nytimes.com/athletic/6718446/2025/10/15/george-russell-mercedes-contract/
-
-**How to watch Victor Wembanyama and the San Antonio Spurs all season**\
-`The Spurs look poised to make a big leap as Victor Wembanyama enters Year 3. Don't miss a single game this season by following our guide. `\
-https://nytimes.com/athletic/6710879/2025/10/15/san-antonio-spurs-tv-schedule-victor-wembanyama-how-to-watch/
 

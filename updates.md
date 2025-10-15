@@ -1,3 +1,11 @@
+**Putin Welcomes the New Syrian Leader While Still Harboring the Old One**\
+`The meeting in Moscow between President Vladimir V. Putin of Russia and President Ahmed al-Shara of Syria showcased the adaptability of two leaders once at odds.`\
+https://nytimes.com/2025/10/15/world/europe/russia-syria-putin-al-shara-moscow-visit-assad.html
+
+**Voting Rights Act’s Impact Has Reached Far Outside the South**\
+`While the 1965 law was adopted in response to discriminatory practices in southern states, it has affected states and localities nationwide.`\
+https://nytimes.com/2025/10/15/us/politics/voting-rights-act-south.html
+
 **Unions to Ask Court to Block Trump Layoffs During Shutdown**\
 `Labor groups are set to square off against the Trump administration one day after the president renewed his threat to cut “Democrat programs.”`\
 https://nytimes.com/2025/10/15/business/government-shutdown-trump-layoffs-unions.html
