@@ -1,3 +1,7 @@
+**South Korea Targets Cambodia’s Scam Industry After Kidnaps, Torture and a Death**\
+`South Korea’s efforts are part of a widening international crackdown on criminal groups running online fraud schemes from Southeast Asia.`\
+https://nytimes.com/2025/10/15/world/asia/cambodia-south-korea-scams.html
+
 **PL clubs set to take the knee for No Room for Racism gameweeks**\
 `Premier League chief executive Richard Masters said that the gesture is the players' "choice" and that it has "never been forced upon them".`\
 https://nytimes.com/athletic/6718647/2025/10/15/premier-league-teams-take-the-knee/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6716507/2025/10/15/sf-giants-needed-roster-improvem
 **College football midseason All-America teams: Ty Simpson, Arvell Reese lead first-half stars**\
 `Ohio State and Texas A&M lead the way with five selections, followed by Texas Tech (four) and Indiana, Miami and Oregon (three each).`\
 https://nytimes.com/athletic/6716901/2025/10/15/college-football-all-america-teams-midseason-2025/
-
-**Q&A: Blackhawks chairman Danny Wirtz on rebuild patience, spending to the cap**\
-`Wirtz also spoke about the Blackhawks' centennial plans and a couple of looming contract extensions for team executives.`\
-https://nytimes.com/athletic/6716623/2025/10/15/blackhawks-danny-wirtz-nhl-rebuild-chsn-tv/
 
