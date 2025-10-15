@@ -1,3 +1,15 @@
+**Trump Says $16 Billion Hudson River Tunnel Project Is ‘Terminated’**\
+`It was not immediately clear what the president meant and whether the project, known as Gateway, had already been stripped of federal funding.`\
+https://nytimes.com/2025/10/15/nyregion/trump-gateway-cancellation.html
+
+**Boy and Girl Face Rape and Attempted Murder Charges in Attack on 5-Year-Old**\
+`Prosecutors in Cuyahoga County, Ohio, filed the charges in juvenile court. The victim’s mother wrote on social media that her daughter was found “unresponsive and unrecognizable.”`\
+https://nytimes.com/2025/10/15/us/ohio-children-attempted-murder-rape.html
+
+**Cannabis Taxes Fund First Wave of Grants to Community Groups in New York**\
+`State officials awarded $5 million in grants to 50 nonprofit organizations that provide services to young people in areas that were targeted for marijuana arrests.`\
+https://nytimes.com/2025/10/15/nyregion/cannabis-grants-community-groups.html
+
 **When the Trump Guardrails Fall**\
 `The president’s second term is telling us a lot about the constraints that he faced during his first administration.`\
 https://nytimes.com/2025/10/15/us/politics/trump-second-term-guardrails.html
@@ -21,16 +33,4 @@ https://nytimes.com/2025/10/15/realestate/mackenzie-scott-donation-black-history
 **Justices Seemed Open to Further Limiting the Voting Rights Act**\
 `Also, a judge temporarily blocked shutdown layoffs. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/10/15/briefing/supreme-court-voting-rights-act-shutdown-layoffs.html
-
-**Samsung Galaxy Ring Swells User’s Finger**\
-`All aboard the Hot Mess Express! Kevin Roose and Casey Newton, the hosts of “Hard Fork” at The New York Times, discuss the recent news story that a Samsung Galaxy Ring swelled and crushed a user’s finger, causing a missed flight and a hospital visit.`\
-https://nytimes.com/video/podcasts/100000010459527/samsung-galaxy-ring-swells-users-finger.html
-
-**Rodgers vs. Flacco in 'Icy Hot Bowl': A rare duel of QBs over 40 years old**\
-`Rodgers and Flacco will become just the second quarterback duo to face off against each other after the age of 40.`\
-https://nytimes.com/athletic/6720675/2025/10/15/aaron-rodgers-joe-flacco-icy-hot-bowl-quarterback/
-
-**Kane altered penalty technique after World Cup miss: 'The worst I've felt'**\
-`Kane said he has used the miss against France as motivation ever since after England qualified for the 2026 World Cup.`\
-https://nytimes.com/athletic/6718509/2025/10/15/harry-kane-penalty-world-cup-england/
 

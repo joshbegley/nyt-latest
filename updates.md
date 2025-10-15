@@ -1,3 +1,15 @@
+**Trump Says $16 Billion Hudson River Tunnel Project Is ‘Terminated’**\
+`It was not immediately clear what the president meant and whether the project, known as Gateway, had already been stripped of federal funding.`\
+https://nytimes.com/2025/10/15/nyregion/trump-gateway-cancellation.html
+
+**Boy and Girl Face Rape and Attempted Murder Charges in Attack on 5-Year-Old**\
+`Prosecutors in Cuyahoga County, Ohio, filed the charges in juvenile court. The victim’s mother wrote on social media that her daughter was found “unresponsive and unrecognizable.”`\
+https://nytimes.com/2025/10/15/us/ohio-children-attempted-murder-rape.html
+
+**Cannabis Taxes Fund First Wave of Grants to Community Groups in New York**\
+`State officials awarded $5 million in grants to 50 nonprofit organizations that provide services to young people in areas that were targeted for marijuana arrests.`\
+https://nytimes.com/2025/10/15/nyregion/cannabis-grants-community-groups.html
+
 **When the Trump Guardrails Fall**\
 `The president’s second term is telling us a lot about the constraints that he faced during his first administration.`\
 https://nytimes.com/2025/10/15/us/politics/trump-second-term-guardrails.html
