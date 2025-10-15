@@ -1,3 +1,7 @@
+**Why Bank C.E.O.s See Economic Turbulence Ahead**\
+`Wall Street giants are reporting blowout results for their most recent quarter. But they are getting worried about what lies ahead.`\
+https://nytimes.com/2025/10/15/business/dealbook/bank-earnings-economy-lending-stocks.html
+
 **Trump Threatens Spain With Higher Tariffs Over Defense Spending**\
 `President Trump said he was considering ‘trade punishment through tariffs’ over Spain’s refusal to increase its military spending.`\
 https://nytimes.com/2025/10/15/us/politics/trump-tariffs-spain-military-defense-spending-nato.html
