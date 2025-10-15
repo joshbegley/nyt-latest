@@ -1,3 +1,15 @@
+**Could Fred Warner return for playoffs? Unlikely, but surgeons see one possible scenario**\
+`Kyle Shanahan said Warner's Tuesday surgery went well, but he did not provide a timeline for the middle linebacker's return.`\
+https://nytimes.com/athletic/6720748/2025/10/15/fred-warner-injury-timeline-49ers/
+
+**MacKenzie Scott Gives $40 Million to Help Preserve Black History**\
+`The gift is twice the amount Ms. Scott contributed to the African American Cultural Heritage Action Fund in 2021.`\
+https://nytimes.com/2025/10/15/realestate/mackenzie-scott-donation-black-history.html
+
+**Lightning trade Pheonix Copley to Kings less than two weeks after claiming him off waivers**\
+`The Lightning claimed Copley off waivers from the Kings on Oct. 2 and received future considerations in the trade.`\
+https://nytimes.com/athletic/6720695/2025/10/15/lightning-kings-pheonix-copley-trade-waivers/
+
 **Justices Seemed Open to Further Limiting the Voting Rights Act**\
 `Also, a judge temporarily blocked shutdown layoffs. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/10/15/briefing/supreme-court-voting-rights-act-shutdown-layoffs.html

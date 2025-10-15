@@ -1,3 +1,11 @@
+**Could Fred Warner return for playoffs? Unlikely, but surgeons see one possible scenario**\
+`Kyle Shanahan said Warner's Tuesday surgery went well, but he did not provide a timeline for the middle linebacker's return.`\
+https://nytimes.com/athletic/6720748/2025/10/15/fred-warner-injury-timeline-49ers/
+
+**MacKenzie Scott Gives $40 Million to Help Preserve Black History**\
+`The gift is twice the amount Ms. Scott contributed to the African American Cultural Heritage Action Fund in 2021.`\
+https://nytimes.com/2025/10/15/realestate/mackenzie-scott-donation-black-history.html
+
 **Justices Seemed Open to Further Limiting the Voting Rights Act**\
 `Also, a judge temporarily blocked shutdown layoffs. Here’s the latest at the end of Wednesday.`\
 https://nytimes.com/2025/10/15/briefing/supreme-court-voting-rights-act-shutdown-layoffs.html
@@ -14,7 +22,7 @@ https://nytimes.com/athletic/6720675/2025/10/15/aaron-rodgers-joe-flacco-icy-hot
 `Kane said he has used the miss against France as motivation ever since after England qualified for the 2026 World Cup.`\
 https://nytimes.com/athletic/6718509/2025/10/15/harry-kane-penalty-world-cup-england/
 
-**Lightning trade Pheonix Copley to Kings less than 2 weeks after claiming him off waivers**\
+**Lightning trade Pheonix Copley to Kings less than two weeks after claiming him off waivers**\
 `The Lightning claimed Copley off waivers from the Kings on Oct. 2 and received future considerations in the trade.`\
 https://nytimes.com/athletic/6720695/2025/10/15/lightning-kings-pheonix-copley-trade-waivers/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/15/world/china-immigration-visas-venezuela-cia-hamas
 **3 Quick, Easy Pasta Recipes You Should Memorize**\
 `Effortless, speedy and creative, these pantry pastas turn weeknights into a party.`\
 https://nytimes.com/2025/10/15/dining/quick-easy-pasta-recipes.html
-
-**Five Cubs takeaways not about Kyle Tucker from Jed Hoyer’s end-of-season press conference**\
-`Tucker will be the main focus of the offseason, but there were other topics to discuss, including Shota Imanaga's option decision.`\
-https://nytimes.com/athletic/6720374/2025/10/15/chicago-cubs-season-in-review-shota-imanaga/
-
-**Malcolm Brogdon retires after nine NBA seasons, citing physical, mental toll**\
-`Brogdon, the 2023 Sixth Man of the Year, was set to make the Knicks' roster before his sudden retirement altered the team's plans.`\
-https://nytimes.com/athletic/6720584/2025/10/15/malcolm-brogdon-knicks-nba-retired/
 
