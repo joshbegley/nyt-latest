@@ -1,3 +1,11 @@
+**Luka Dončić is back, and so is his joy for the game, in his Lakers' preseason debut**\
+`“I felt great,” Dončić said. “That was probably better than I expected."`\
+https://nytimes.com/athletic/6718257/2025/10/15/luka-doncic-lakers-suns-preseason-debut/
+
+**Brentford's Milambo suffers ACL injury, out for remainder of season**\
+`Milambo, 20, sustained the injury during the Netherlands Under-21s' draw with Bosnia and Herzegovina on Friday.`\
+https://nytimes.com/athletic/6718618/2025/10/15/antoni-milambo-brentford-acl-injury/
+
 **Ravens mailbag: How much blame does John Harbaugh deserve for the slow start?**\
 `Baltimore has the look of a broken team. But, with so many injuries to key players, is the criticism directed at Harbaugh warranted?`\
 https://nytimes.com/athletic/6717020/2025/10/15/ravens-mailbag-coach-john-harbaugh-future/

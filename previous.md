@@ -1,3 +1,11 @@
+**Luka Dončić is back, and so is his joy for the game, in his Lakers' preseason debut**\
+`“I felt great,” Dončić said. “That was probably better than I expected."`\
+https://nytimes.com/athletic/6718257/2025/10/15/luka-doncic-lakers-suns-preseason-debut/
+
+**Brentford's Milambo suffers ACL injury, out for remainder of season**\
+`Milambo, 20, sustained the injury during the Netherlands Under-21s' draw with Bosnia and Herzegovina on Friday.`\
+https://nytimes.com/athletic/6718618/2025/10/15/antoni-milambo-brentford-acl-injury/
+
 **Ravens mailbag: How much blame does John Harbaugh deserve for the slow start?**\
 `Baltimore has the look of a broken team. But, with so many injuries to key players, is the criticism directed at Harbaugh warranted?`\
 https://nytimes.com/athletic/6717020/2025/10/15/ravens-mailbag-coach-john-harbaugh-future/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6717383/2025/10/15/nhl-prediction-contest-nylander-
 **'We found a (bleeping) way!': How another late rally energized the Bears**\
 `Ben Johnson's Type-A competitive nature is resonating. His players' response has helped spark a three-game winning streak.`\
 https://nytimes.com/athletic/6717354/2025/10/15/bears-ben-johnson-rally-commanders/
-
-**What Jerry Jones said: Supporting Matt Eberflus, playoff hopes still and trade talks**\
-`Despite Dallas' defensive issues, Jerry Jones likes his team's pass-rush group. "We've got a real strength there."`\
-https://nytimes.com/athletic/6717733/2025/10/15/cowboys-jerry-jones-eberflus-playoffs-trade/
-
-**Veterans Javon Hargrave, Jonathan Allen must do more for Vikings defense to excel**\
-`The two free agent defensive tackles have excelled at rushing the passer, but the Vikings expect more of them against the run.`\
-https://nytimes.com/athletic/6717047/2025/10/15/vikings-javon-hargrave-jonathan-allen-defense/
 
