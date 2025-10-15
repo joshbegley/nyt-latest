@@ -1,3 +1,19 @@
+**Covid Vaccines in First Trimester Not Tied to Birth Defects, Study Finds**\
+`The results of a large study in France are consistent with previous research indicating that Covid vaccination is safe and effective in pregnancy.`\
+https://nytimes.com/2025/10/15/well/covid-vaccine-birth-defects-pregnancy.html
+
+**How to Fight a Zombie Fire**\
+`It seemed that last year’s wildfire in Los Angeles had been extinguished safely after two days. But it had just gone underground.`\
+https://nytimes.com/2025/10/15/opinion/los-angeles-zombie-fire.html
+
+**Newsom Rejects Reparations Bills in Latest Sign of Racial Justice Shift**\
+`Gov. Gavin Newsom of California vetoed bills that would have provided tangible benefits to descendants of slavery, though he approved a state agency to determine who qualifies for potential reparations.`\
+https://nytimes.com/2025/10/15/us/california-reparations-newsom-veto.html
+
+**New York Is Going to Flood. Here’s What the City Can Do to Survive.**\
+`Adaptation is a matter of survival, and the city may have to throw every solution available at a worsening situation.`\
+https://nytimes.com/interactive/2025/10/15/nyregion/new-york-climate-flooding-solutions.html
+
 **How Malala Changed Her Mind About Marriage**\
 `The activist and author Malala Yousafzai married Asser Malik in 2021, despite her skepticism about marriage. She shared why she chose marriage on the “Modern Love” podcast.`\
 https://nytimes.com/video/podcasts/100000010452514/how-malala-changed-her-mind-about-marriage.html
@@ -21,20 +37,4 @@ https://nytimes.com/video/us/politics/100000010459563/supreme-court-voting-right
 **New York Knicks fan laid it 'all out on the line' in viral tic-tac-toe game**\
 `With a $500 prize up for grabs, Ghedalia Gold-Pastor was willing to put his body on the line.`\
 https://nytimes.com/athletic/6716532/2025/10/15/new-york-knicks-tic-tac-toe-fans-viral/
-
-**Brown University Rejects White House Deal for Special Treatment**\
-`Brown was the second university to turn down the deal, which would have given a funding preference to universities that agreed to certain requirements.`\
-https://nytimes.com/2025/10/15/us/brown-university-trump-compact-funding.html
-
-**The Missing Enforcers of the Assad Regime**\
-`An ongoing reporting project to uncover the roles and whereabouts of the key officials who powered President Bashar al-Assad’s brutal reign in Syria.`\
-https://nytimes.com/interactive/2025/10/15/world/middleeast/president-assad-syria-officials.html
-
-**What's behind the Wild's even-strength power outage? Can a line shuffle fix it?**\
-`On the power play, the Wild look like the '80s Oilers so far this season. But at even strength, they look like the late-1990s Lightning.`\
-https://nytimes.com/athletic/6720157/2025/10/15/wild-even-strength-line-shuffling/
-
-**Twins interview Nick Punto, former 'piranha,' among others for manager opening: Sources**\
-`Punto led a group of Twins players whom Ozzie Guillen labeled "piranhas" because of their small-ball tactics against his White Sox.`\
-https://nytimes.com/athletic/6720255/2025/10/15/twins-interview-nick-punto-for-manager-padres/
 

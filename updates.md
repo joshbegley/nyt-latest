@@ -1,3 +1,15 @@
+**How Malala Changed Her Mind About Marriage**\
+`The activist and author Malala Yousafzai married Asser Malik in 2021, despite her skepticism about marriage. She shared why she chose marriage on the “Modern Love” podcast.`\
+https://nytimes.com/video/podcasts/100000010452514/how-malala-changed-her-mind-about-marriage.html
+
+**Hegseth Warns U.S. Will Impose ‘Costs’ on Russia if Peace Efforts Falter**\
+`Defense Secretary Pete Hegseth offered unusually strong criticism of Russia, just as Ukraine seeks American Tomahawk missiles.`\
+https://nytimes.com/2025/10/15/us/politics/hegseth-russia-ukraine.html
+
+**Trump Offered a Helping Hand to Argentina. It Backfired.**\
+`When President Javier Milei of Argentina faced an economic meltdown, President Trump vowed to come to his aid. But that lifeline is coming at a cost.`\
+https://nytimes.com/2025/10/15/world/americas/argentina-trump-javier-milei.html
+
 **Part of a 4,200-Year-Old Human Skull Is Found Along an Indiana Riverbank**\
 `The bone fragment, found in June, “is a powerful and humbling reminder that people have walked this land, our home in Fayette County, for millennia,” the county’s coroner said.`\
 https://nytimes.com/2025/10/15/us/4200-year-old-skull-indiana.html
