@@ -1,3 +1,11 @@
+**What's behind Barcelona's pre-Clasico injury crisis?**\
+`Hansi Flick's team have nine players out injured as they prepare for a key set of fixtures. Behind the scenes, there is confusion`\
+https://nytimes.com/athletic/6718578/2025/10/15/barcelona-el-clasico-injuries-analysis/
+
+**The Shutdown Enters Its Third Week**\
+`Cuts to transportation and energy. Funding for food assistance and the military. Here’s the latest from the shutdown.`\
+https://nytimes.com/2025/10/15/us/shutdown-government-caribbean-strike-trump.html
+
 **Syria’s New Leaders Are Talking to a Former Enemy: Russia**\
 `President Ahmed al-Shara is making his first trip to Moscow, which backed the regime his rebels overthrew. Both sides have reasons to put the past aside.`\
 https://nytimes.com/2025/10/15/world/middleeast/syria-russia-ahmed-al-shara-putin.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6715832/2025/10/15/columbus-blue-jackets-penalty-ki
 **Inside the trend sweeping college basketball: NBA All-Stars moonlighting as program GMs**\
 `“Something I care about is mentorship and helping push the game in the right direction,” said NBA star Damian Lillard, GM for Weber State.`\
 https://nytimes.com/athletic/6716703/2025/10/15/nba-players-gms-college-basketball/
-
-**How have Blues put their opening-night loss behind them? Adjustments, execution, fun**\
-`The Blues were trounced 5-0 by the Minnesota Wild on opening night, but they've responded with two wins over Calgary and Vancouver.`\
-https://nytimes.com/athletic/6716517/2025/10/15/blues-montgomery-season-start-confidence/
-
-**Steelers showed off best version of Aaron Rodgers-led offense in Week 6: Quick Outs**\
-`Rodgers was efficient and made multiple plays outside of structure, in a vintage performance. Plus, more thoughts from Week 6.`\
-https://nytimes.com/athletic/6715956/2025/10/15/nfl-rodgers-jets-colts-bills-quick-outs/
 
