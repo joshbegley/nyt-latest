@@ -1,3 +1,11 @@
+**Ravens mailbag: How much blame does John Harbaugh deserve for the slow start?**\
+`Baltimore has the look of a broken team. But, with so many injuries to key players, is the criticism directed at Harbaugh warranted?`\
+https://nytimes.com/athletic/6717020/2025/10/15/ravens-mailbag-coach-john-harbaugh-future/
+
+**Exploring Browns potential trade candidates, from Jerome Ford to David Njoku**\
+`With the trade deadline fast approaching, Cleveland could again be active as part of a further effort to build a better product for 2026. `\
+https://nytimes.com/athletic/6716978/2025/10/15/browns-trade-deadline-candidates-david-njoku/
+
 **How a reluctant Division II transfer became an SEC phenomenon at Ole Miss**\
 `Ferris State transfer Trinidad Chambliss has been a surprise breakout star. Can he lead Ole Miss past Georgia and on a run in the SEC?`\
 https://nytimes.com/athletic/6716551/2025/10/15/trinidad-chambliss-ole-miss-ferris-state/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6717733/2025/10/15/cowboys-jerry-jones-eberflus-pla
 **Veterans Javon Hargrave, Jonathan Allen must do more for Vikings defense to excel**\
 `The two free agent defensive tackles have excelled at rushing the passer, but the Vikings expect more of them against the run.`\
 https://nytimes.com/athletic/6717047/2025/10/15/vikings-javon-hargrave-jonathan-allen-defense/
-
-**Inside Steve Aoki's incredible sports card collection: Key pieces and what's next**\
-`Aoki has reached a rare point in sports card collecting — he has every card he wants. Almost.`\
-https://nytimes.com/athletic/6716683/2025/10/15/steve-aoki-sports-card-collection/
-
-**NHL players receive a warning on Milan Olympic Village: 'Not going to be perfect'**\
-`From housing to security to food, the experience in Milan will not be to be the Ritz-Carlton lifestyle many NHLers are accustomed to.`\
-https://nytimes.com/athletic/6673842/2025/10/15/hockey-canada-olympic-village-warning/
 
