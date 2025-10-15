@@ -1,3 +1,19 @@
+**How tall is Victor Wembanyama? We're still figuring it out together**\
+`Is he 7-4? 7-7? No one seems to really know. "I got no clue," his coach said Wednesday.`\
+https://nytimes.com/athletic/6719924/2025/10/15/victor-wembanyama-height-measurements-spurs-nba/
+
+**The Other Hostages**\
+`Thousands are still awaiting freedom.`\
+https://nytimes.com/2025/10/15/opinion/gaza-hostages-israel-war-west-bank.html
+
+**D’Angelo’s Pleasure Principle**\
+`The singer and songwriter’s art of elegant seduction never required him to raise his voice, or lose his desperation, humor or awareness.`\
+https://nytimes.com/2025/10/15/arts/music/dangelo-vocals-apollo-concert.html
+
+**Derek Rose, Impeccable Purveyor of Luxury Pajamas, Dies at 93**\
+`His colorful men’s nightwear was like something made on Savile Row in London — perfect, pricey — except that it was rarely seen outside the bedroom.`\
+https://nytimes.com/2025/10/15/style/derek-rose-dead.html
+
 **‘It Was Just an Accident’ Review: A Liberation Story Straight From Iran**\
 `In his latest movie, the formerly banned filmmaker Jafar Panahi tells a circuitous, moving and unexpectedly funny story of resistance.`\
 https://nytimes.com/2025/10/15/movies/it-was-just-an-accident-review.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/15/us/politics/trump-refugee-white-people.html
 **Texas Tech, Kansas fined and reprimanded after tortilla-toss fallout**\
 `Texas Tech's fine was for "repeated instances" of fans throwing objects onto the field, and Kansas' was for "disparaging comments."`\
 https://nytimes.com/athletic/6720090/2025/10/15/texas-tech-kansas-big-12-fined-tortilla-toss/
-
-**Tuchel will reach out to Bellingham after England omission**\
-`Tuchel has insisted the decision is “not a punishment” for Bellingham or for anyone else.`\
-https://nytimes.com/athletic/6718438/2025/10/15/thomas-tuchel-jude-bellingham-foden-england/
-
-**What’s in Our Queue? Mil Coisas Invisíveis and More**\
-`Text by Jack Nicas`\
-https://nytimes.com/card/2025/10/15/arts/editors-recommendations-invisveis
-
-**Trump Administration Authorizes Covert C.I.A. Action in Venezuela**\
-`The development comes as the U.S. military is drawing up options for President Trump to consider, including possible strikes inside the country.`\
-https://nytimes.com/2025/10/15/us/politics/trump-covert-cia-action-venezuela.html
-
-**Trump Allies Push to Bolster Putin-Backed Balkans Leader**\
-`An influence campaign has relied on allies of the president, including Rudolph W. Giuliani, to cast a Serbian politician as a victim of political persecution.`\
-https://nytimes.com/2025/10/15/us/politics/trump-dodik-srpska-lobbying.html
 

@@ -1,3 +1,19 @@
+**How tall is Victor Wembanyama? We're still figuring it out together**\
+`Is he 7-4? 7-7? No one seems to really know. "I got no clue," his coach said Wednesday.`\
+https://nytimes.com/athletic/6719924/2025/10/15/victor-wembanyama-height-measurements-spurs-nba/
+
+**The Other Hostages**\
+`Thousands are still awaiting freedom.`\
+https://nytimes.com/2025/10/15/opinion/gaza-hostages-israel-war-west-bank.html
+
+**D’Angelo’s Pleasure Principle**\
+`The singer and songwriter’s art of elegant seduction never required him to raise his voice, or lose his desperation, humor or awareness.`\
+https://nytimes.com/2025/10/15/arts/music/dangelo-vocals-apollo-concert.html
+
+**Derek Rose, Impeccable Purveyor of Luxury Pajamas, Dies at 93**\
+`His colorful men’s nightwear was like something made on Savile Row in London — perfect, pricey — except that it was rarely seen outside the bedroom.`\
+https://nytimes.com/2025/10/15/style/derek-rose-dead.html
+
 **‘It Was Just an Accident’ Review: A Liberation Story Straight From Iran**\
 `In his latest movie, the formerly banned filmmaker Jafar Panahi tells a circuitous, moving and unexpectedly funny story of resistance.`\
 https://nytimes.com/2025/10/15/movies/it-was-just-an-accident-review.html
