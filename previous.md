@@ -1,3 +1,7 @@
+**Katie Porter Says She ‘Fell Short’ in Viral Video Moments**\
+`Videos surfaced last week showing the former congresswoman belittling a television reporter and berating an aide. Porter, who is running for California governor, pledged to do better.`\
+https://nytimes.com/2025/10/15/us/katie-porter-videos-response.html
+
 **Pulisic hurts hamstring; Pochettino cites 'massive risk' in USMNT weather shift**\
 `Christian Pulisic was injured early in the USMNT's 2-1 friendly win over Australia in Colorado, days after drawing Ecuador in Texas`\
 https://nytimes.com/athletic/6718104/2025/10/15/christian-pulisic-injury-usmnt-australia-tillman-pochettino/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6715828/2025/10/15/england-world-cup-2026-squad-sel
 **Mosquera exclusive: Arsenal's 'atmosphere of winners', Dowman and Yamal, Arteta bond**\
 `The Spanish defender speaks to The Athletic about his nerveless start to life in the Premier League at age 21`\
 https://nytimes.com/athletic/6703953/2025/10/15/cristhian-mosquera-arsenal-interview/
-
-**One arm raised, subtle hand gestures, and 'bounce ball system' – decoding the secret semaphore at corners**\
-`From grassroots to the highest level, set-piece takers work on different signals to confuse opponents`\
-https://nytimes.com/athletic/6679535/2025/10/15/corners-semaphore-triggers/
 

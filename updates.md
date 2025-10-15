@@ -1,3 +1,7 @@
+**Katie Porter Says She ‘Fell Short’ in Viral Video Moments**\
+`Videos surfaced last week showing the former congresswoman belittling a television reporter and berating an aide. Porter, who is running for California governor, pledged to do better.`\
+https://nytimes.com/2025/10/15/us/katie-porter-videos-response.html
+
 **Pulisic hurts hamstring; Pochettino cites 'massive risk' in USMNT weather shift**\
 `Christian Pulisic was injured early in the USMNT's 2-1 friendly win over Australia in Colorado, days after drawing Ecuador in Texas`\
 https://nytimes.com/athletic/6718104/2025/10/15/christian-pulisic-injury-usmnt-australia-tillman-pochettino/
