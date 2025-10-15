@@ -1,5 +1,21 @@
+**CJ Carr midseason report: What experts see in Notre Dame's young QB**\
+`Carr is producing one of the great quarterback years in Notre Dame history through six games.`\
+https://nytimes.com/athletic/6717141/2025/10/15/cj-carr-notre-dame-quarterbacks/
+
+**Mandel's Mailbag: Can Indiana win a title? Does Matt Rhule make sense for Penn State?**\
+`Plus: Fixing massive coaching buyouts, how the Top 25 will change in the second half and more college football questions.`\
+https://nytimes.com/athletic/6717868/2025/10/15/mandel-mailbag-indiana-playoff-coaching-carousel/
+
+**Oilers thoughts: Stuart Skinner bounces back, roster decisions and lineup tweaks**\
+`The Oilers opened a five-game road trip with a 2-0 win over the Rangers at Madison Square Garden on Tuesday night.`\
+https://nytimes.com/athletic/6718043/2025/10/15/edmonton-oilers-roster-lineup-stuart-skinner-shutout/
+
+**Swishing and dishing, streaming and beaming: How to watch the New York Knicks in 2025-26**\
+`After two decades of indignities, the Knicks finally pieced together a rewarding season. Here's how to watch their 2025-26 follow-up.`\
+https://nytimes.com/athletic/6716733/2025/10/15/new-york-knicks-tv-streaming-how-to-watch-schedule/
+
 **Malala Yousafzai Reintroduces Herself**\
-`Malala Yousafzai speaks with Modern Love host, Anna Martin, about navigating ordinary life — like making friends in college, finding her personal style, going to parties and ... falling in love.`\
+`Malala Yousafzai speaks with Anna Martin, the host of Modern Love, about navigating ordinary life — like making friends in college, finding her personal style, going to parties and ... falling in love.`\
 https://nytimes.com/video/podcasts/100000010452506/malala-yousafzai-reintroduces-herself.html
 
 **De Jong signs new Barcelona contract until 2029**\
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6718647/2025/10/15/premier-league-teams-take-the-kn
 **First Burials to Be Held for Israelis Returned From Gaza**\
 `Hamas has handed over the bodies of eight people, but says it is struggling to find the remains of others in Gaza after two years of war.`\
 https://nytimes.com/2025/10/15/world/middleeast/israel-hostages-hamas-returned-gaza-funerals.html
-
-**Jonathan Kuminga gets tossed from preseason game, and Steve Kerr loves it**\
-`Second-round draft pick Will Richard also made an impression for Golden State against the Blazers on Tuesday.`\
-https://nytimes.com/athletic/6718384/2025/10/15/warriors-jonathan-kuminga-steve-kerr-will-richard-preseason/
-
-**What's behind Barcelona's pre-Clasico injury crisis?**\
-`Hansi Flick's team have nine players out injured as they prepare for a key set of fixtures. Behind the scenes, there is confusion`\
-https://nytimes.com/athletic/6718578/2025/10/15/barcelona-el-clasico-injuries-analysis/
-
-**The Shutdown Enters Its Third Week**\
-`Cuts to transportation and energy. Funding for food assistance and the military. Here’s the latest from the shutdown.`\
-https://nytimes.com/2025/10/15/us/shutdown-government-caribbean-strike-trump.html
-
-**Syria’s New Leaders Are Talking to a Former Enemy: Russia**\
-`President Ahmed al-Shara is making his first trip to Moscow, which backed the regime his rebels overthrew. Both sides have reasons to put the past aside.`\
-https://nytimes.com/2025/10/15/world/middleeast/syria-russia-ahmed-al-shara-putin.html
 

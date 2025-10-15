@@ -1,3 +1,7 @@
+**Malala Yousafzai Reintroduces Herself**\
+`Malala Yousafzai speaks with Modern Love host, Anna Martin, about navigating ordinary life — like making friends in college, finding her personal style, going to parties and ... falling in love.`\
+https://nytimes.com/video/podcasts/100000010452506/malala-yousafzai-reintroduces-herself.html
+
 **De Jong signs new Barcelona contract until 2029**\
 `The 28-year-old's previous deal was set to expire in June 2026.`\
 https://nytimes.com/athletic/6431616/2025/10/15/barcelona-de-jong-contract/
