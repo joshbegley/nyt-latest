@@ -1,40 +1,40 @@
-**Luka Dončić is back, and so is his joy for the game, in his Lakers' preseason debut**\
-`“I felt great,” Dončić said. “That was probably better than I expected."`\
-https://nytimes.com/athletic/6718257/2025/10/15/luka-doncic-lakers-suns-preseason-debut/
+**Syria’s New Leaders Are Talking to a Former Enemy: Russia**\
+`President Ahmed al-Shara is making his first trip to Moscow, which backed the regime his rebels overthrew. Both sides have reasons to put the past aside.`\
+https://nytimes.com/2025/10/15/world/middleeast/syria-russia-ahmed-al-shara-putin.html
 
-**Brentford's Milambo suffers ACL injury, out for remainder of season**\
-`Milambo, 20, sustained the injury during the Netherlands Under-21s' draw with Bosnia and Herzegovina on Friday.`\
-https://nytimes.com/athletic/6718618/2025/10/15/antoni-milambo-brentford-acl-injury/
+**College football Week 8 streaming guide: Tennessee-Alabama, USC-Notre Dame, sleeper games**\
+`Our weekly college football streaming guide has headliners, gems and possible chaos games spread across the power conferences.`\
+https://nytimes.com/athletic/6717063/2025/10/15/college-football-week-8-streaming-guide-tennessee-alabama-usc-notre-dame/
 
-**Ravens mailbag: How much blame does John Harbaugh deserve for the slow start?**\
-`Baltimore has the look of a broken team. But, with so many injuries to key players, is the criticism directed at Harbaugh warranted?`\
-https://nytimes.com/athletic/6717020/2025/10/15/ravens-mailbag-coach-john-harbaugh-future/
+**What do the LCS teams have that the 2025 Giants didn't?**\
+`The gap between the rosters of the Giants and the four remaining MLB postseason teams isn't a vast as it might first appear.`\
+https://nytimes.com/athletic/6716507/2025/10/15/sf-giants-needed-roster-improvements/
 
-**Exploring Browns potential trade candidates, from Jerome Ford to David Njoku**\
-`With the trade deadline fast approaching, Cleveland could again be active as part of a further effort to build a better product for 2026. `\
-https://nytimes.com/athletic/6716978/2025/10/15/browns-trade-deadline-candidates-david-njoku/
+**College football midseason All-America teams: Ty Simpson, Arvell Reese lead first-half stars**\
+`Ohio State and Texas A&M lead the way with five selections, followed by Texas Tech (four) and Indiana, Miami and Oregon (three each).`\
+https://nytimes.com/athletic/6716901/2025/10/15/college-football-all-america-teams-midseason-2025/
 
-**How a reluctant Division II transfer became an SEC phenomenon at Ole Miss**\
-`Ferris State transfer Trinidad Chambliss has been a surprise breakout star. Can he lead Ole Miss past Georgia and on a run in the SEC?`\
-https://nytimes.com/athletic/6716551/2025/10/15/trinidad-chambliss-ole-miss-ferris-state/
+**Q&A: Blackhawks chairman Danny Wirtz on rebuild patience, spending to the cap**\
+`Wirtz also spoke about the Blackhawks' centennial plans and a couple of looming contract extensions for team executives.`\
+https://nytimes.com/athletic/6716623/2025/10/15/blackhawks-danny-wirtz-nhl-rebuild-chsn-tv/
 
-**Yoshinobu Yamamoto's complete game leaves Dodgers in awe: 'Just domination'**\
-`Kiké Hernandez said of Yamamoto: "It's just one of those things where you're like, damn, this guy keeps getting better and better."`\
-https://nytimes.com/athletic/6718120/2025/10/15/dodgers-yoshinobu-yamamoto-nlcs-reaction/
+**Risky Logan Wilson benching indicative of Bengals' desperation for defensive answers**\
+`Defensive coordinator Al Golden and coach Zac Taylor will roll the dice on rookie LB Barrett Carter in a crucial matchup with the Steelers.`\
+https://nytimes.com/athletic/6717335/2025/10/15/bengals-logan-wilson-barrett-carter-steelers/
 
-**TAFC: All Wright for U.S, not quite for Ronaldo, England qualify at a canter**\
-`Today in TAFC: Wright seals USMNT win over Australia but Pulisic is injured, England sail through to World Cup, Portugal pegged back`\
-https://nytimes.com/athletic/6718423/2025/10/15/haji-wright-usmnt-australia-result/
+**Minor speed bump or reason to worry? Blue Jackets' penalty kill is killing them**\
+`The Blue Jackets have allowed seven power-play goals through three games.`\
+https://nytimes.com/athletic/6715832/2025/10/15/columbus-blue-jackets-penalty-kill/
 
-**The Death Star Dodgers, backed by rotation's unreal run, are 6 wins from another parade**\
-`The next Dodgers parade is now within view, thanks to a rotation of aces that clicked into gear around Labor Day. The numbers are amazing.`\
-https://nytimes.com/athletic/6718452/2025/10/15/dodgers-starting-pitchers-playoffs-facts-yamamoto-snell/
+**Inside the trend sweeping college basketball: NBA All-Stars moonlighting as program GMs**\
+`“Something I care about is mentorship and helping push the game in the right direction,” said NBA star Damian Lillard, GM for Weber State.`\
+https://nytimes.com/athletic/6716703/2025/10/15/nba-players-gms-college-basketball/
 
-**William Nylander was a fluke and the Jets are weird: Prediction contest lessons**\
-`Early analysis reveals interesting new twists with the dreaded bonus question, plus the annual Joe Sakic update.`\
-https://nytimes.com/athletic/6717383/2025/10/15/nhl-prediction-contest-nylander-jets/
+**How have Blues put their opening-night loss behind them? Adjustments, execution, fun**\
+`The Blues were trounced 5-0 by the Minnesota Wild on opening night, but they've responded with two wins over Calgary and Vancouver.`\
+https://nytimes.com/athletic/6716517/2025/10/15/blues-montgomery-season-start-confidence/
 
-**'We found a (bleeping) way!': How another late rally energized the Bears**\
-`Ben Johnson's Type-A competitive nature is resonating. His players' response has helped spark a three-game winning streak.`\
-https://nytimes.com/athletic/6717354/2025/10/15/bears-ben-johnson-rally-commanders/
+**Steelers showed off best version of Aaron Rodgers-led offense in Week 6: Quick Outs**\
+`Rodgers was efficient and made multiple plays outside of structure, in a vintage performance. Plus, more thoughts from Week 6.`\
+https://nytimes.com/athletic/6715956/2025/10/15/nfl-rodgers-jets-colts-bills-quick-outs/
 
