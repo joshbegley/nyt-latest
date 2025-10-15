@@ -1,3 +1,15 @@
+**Hamas Says It Has Returned All Hostage Remains It Can Recover, Putting Fragile Truce at Risk**\
+`The Palestinian militant group said it needed special equipment to locate and extract the remaining remains.`\
+https://nytimes.com/2025/10/15/world/middleeast/hamas-gaza-hostages-remains-israel.html
+
+**Brock Purdy, George Kittle back at practice; Ricky Pearsall still out**\
+`Purdy and Kittle were both injured in the season opener in Seattle. Purdy returned in Week 4 but aggravated his toe injury.`\
+https://nytimes.com/athletic/6720528/2025/10/15/brock-purdy-george-kittle-injury-updates/
+
+**Judge Throws Out Children’s Lawsuit Against Trump’s Energy Policies**\
+`The group had challenged the president’s executive orders as unconstitutional. A judge “reluctantly” said the suit was too broad in scope.`\
+https://nytimes.com/2025/10/15/climate/montana-youth-trump-climate-lawsuit-dismissed.html
+
 **Covid Vaccines in First Trimester Not Tied to Birth Defects, Study Finds**\
 `The results of a large study in France are consistent with previous research indicating that Covid vaccination is safe and effective in pregnancy.`\
 https://nytimes.com/2025/10/15/well/covid-vaccine-birth-defects-pregnancy.html
