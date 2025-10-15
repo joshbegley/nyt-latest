@@ -1,40 +1,40 @@
-**Tracing the roots of Ruben Amorim's 'idea'**\
-`Ruben Amorim's 3-4-3 system has defined his time in charge of Manchester United, but why is it so important to him and will he ever change?`\
-https://nytimes.com/athletic/6706660/2025/10/15/ruben-amorim-formation-change/
+**Pulisic hurts hamstring; Pochettino questions climate change between games**\
+`Christian Pulisic was injured early in the USMNT's 2-1 friendly win over Australia in Colorado, days after drawing Ecuador in Texas`\
+https://nytimes.com/athletic/6718104/2025/10/15/christian-pulisic-injury-usmnt-australia-tillman-pochettino/
 
-**How to fuel Woltemade (and other footballing ectomorphs)**\
-`Keeping players of the Newcastle striker's unusually tall and thin physique energised is not straightforward`\
-https://nytimes.com/athletic/6713380/2025/10/15/nick-woltemade-newcastle-nutrition/
+**With Palmer out until November, who is Chelsea's best option to replace him?**\
+`Chelsea recruited heavily over the summer, which should ease the burden on Palmer. Their depth will now be put to the test`\
+https://nytimes.com/athletic/6715935/2025/10/15/chelsea-cole-palmer-injury-alternatives-analysis/
 
-**Fred Vasseur on working with Lewis Hamilton: 'We need to improve step by step'**\
-`Taking the reins of the most famous and successful team in F1 history brings with it great pressure`\
-https://nytimes.com/athletic/6716199/2025/10/15/fred-vasseur-interview-ferrari-lewis-hamilton/
+**Alex Bregman to opt out of Red Sox deal, retest free agency: Reports**\
+`Over 114 games, Bregman slashed .273/.360/.462, with 18 home runs and 62 RBIs, earning his third All-Star nomination. `\
+https://nytimes.com/athletic/6717830/2025/10/15/alex-bregman-red-sox-deal-opt-out-free-agency/
 
-**London Became a Global Hub for Phone Theft. Now We Know Why.**\
-`About 80,000 phones were stolen in the British capital last year. The police are finally discovering where many of them went.`\
-https://nytimes.com/2025/10/15/world/europe/london-police-phone-theft-china-gang.html
+**Can Wilson Odobert prove the balancing act for Tottenham’s left?**\
+`The 2-1 win in Leeds was the first time Odobert, Udogie and Simons started together — they had natural chemistry from the outset`\
+https://nytimes.com/athletic/6715622/2025/10/15/tottenham-hotspur-wilson-odobert-premier-league-analysis/
 
-**Connections: Sports Edition Coach: Hints for Oct. 15, 2025**\
-`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
-https://nytimes.com/athletic/6717892/2025/10/15/connections-sports-edition-hints-for-oct-15-2025/
+**How Phil Foden got his mojo back**\
+`A rejuvenated Phil Foden is what MCFC's attacking midfield needs and what Pep Guardiola wants in their title bid`\
+https://nytimes.com/athletic/6716040/2025/10/15/phil-foden-manchester-city-comeback/
 
-**Fantasy football rankings Week 7: Sleepers, projections, starts, Jameson Williams, Harold Fannin and more**\
-`Jake Ciely runs through his player rankings for Week 7, and expects big things for rookie Harold Fannin if David Njoku is out this Sunday.`\
-https://nytimes.com/athletic/6717089/2025/10/15/fantasy-football-rankings-week-7-sleepers-projections-starts-jameson-williams-harold-fannin/
+**England's World Cup starts here - but there are questions Tuchel needs to answer**\
+`Bring back the big names? Who's at left back? How to deal with the heat? The questions facing the England manager...`\
+https://nytimes.com/athletic/6717267/2025/10/15/england-world-cup-thomas-tuchel/
 
-**Corrections: Oct. 15, 2025**\
-`Corrections that appeared in print on Wednesday, Oct. 15, 2025.`\
-https://nytimes.com/2025/10/15/pageoneplus/corrections-oct-15-2025.html
+**FSG's 15 years at Liverpool: The making of a modern super club – and what comes next?**\
+`How Liverpool has been transformed in transfers, hierarchy and finances under the U.S. firm - plus the view from Boston`\
+https://nytimes.com/athletic/6713201/2025/10/15/fsg-liverpool-transfers-spend/
 
-**Quote of the Day: You Can No Longer Trust Your Eyes**\
-`Quotation of the Day for Wednesday, October 15, 2025.`\
-https://nytimes.com/2025/10/14/pageoneplus/quote-of-the-day-you-can-no-longer-trust-your-eyes.html
+**Who should be in England's World Cup squad? Our experts give their view**\
+`After England secured their place at the 2026 World Cup, who should make Thomas Tuchel's 26-man squad?`\
+https://nytimes.com/athletic/6715828/2025/10/15/england-world-cup-2026-squad-selection/
 
-**Dodgers-Brewers Game 2 takeaways: Yoshinobu Yamamoto goes the distance, L.A. takes control**\
-`MILWAUKEE — Legend has it that ghosts reside in Milwaukee’s Pfister hotel, a common stopover for major-league visitors over the years.`\
-https://nytimes.com/athletic/6717933/2025/10/14/dodgers-brewers-game-2-takeaways-yoshinobu-yamamoto-goes-the-distance-l-a-takes-control/
+**Mosquera exclusive: Arsenal's 'atmosphere of winners', Dowman and Yamal, Arteta bond**\
+`The Spanish defender speaks to The Athletic about his nerveless start to life in the Premier League at age 21`\
+https://nytimes.com/athletic/6703953/2025/10/15/cristhian-mosquera-arsenal-interview/
 
-**USMNT 2, Australia 1: Wright scores twice but Pulisic hurt in friendly win**\
-`The USMNT bounced back from an early deficit, but all eyes are on its superstar, who exited early after a hard challenge`\
-https://nytimes.com/athletic/6717818/2025/10/14/usmnt-australia-friendly-score-pulisic-injury-haji-wright-roldan/
+**One arm raised, subtle hand gestures, and 'bounce ball system' – decoding the secret semaphore at corners**\
+`From grassroots to the highest level, set-piece takers work on different signals to confuse opponents`\
+https://nytimes.com/athletic/6679535/2025/10/15/corners-semaphore-triggers/
 
