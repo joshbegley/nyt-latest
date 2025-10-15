@@ -1,3 +1,7 @@
+**Five Cubs takeaways not about Kyle Tucker from Jed Hoyer’s end-of-season press conference**\
+`Tucker will be the main focus of the offseason, but there were other topics to discuss, including Shota Imanaga's option decision.`\
+https://nytimes.com/athletic/6720374/2025/10/15/chicago-cubs-season-in-review-shota-imanaga/
+
 **Malcolm Brogdon retires after nine NBA seasons, citing physical, mental toll**\
 `Brogdon, the 2023 Sixth Man of the Year, was set to make the Knicks' roster before his sudden retirement altered the team's plans.`\
 https://nytimes.com/athletic/6720584/2025/10/15/malcolm-brogdon-knicks-nba-retired/
