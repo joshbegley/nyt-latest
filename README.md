@@ -1,3 +1,19 @@
+**How to watch Panthers vs. Red Wings: Time, TV, streaming**\
+`Find out how to watch the Florida Panthers play the Detroit Red Wings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6719531/2025/10/15/panthers-vs-red-wings-stream-how-to-watch-oct-15/
+
+**How to watch Senators vs. Sabres: Time, TV, streaming**\
+`Find out how to watch the Ottawa Senators play the Buffalo Sabres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6719529/2025/10/15/senators-vs-sabres-stream-how-to-watch-oct-15/
+
+**Jack Smith Appears in Video on Behalf of Fired Justice Department Workers**\
+`A group of former Justice Department employees used the video to criticize the Trump administration’s dismissal of prosecutors and agents, including those who worked on cases related to the president.`\
+https://nytimes.com/2025/10/15/us/jack-smith-video-justice-connection.html
+
+**Why did Louisiana switch sides in this case?**\
+`By Ann E. Marimow`\
+https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/why-did-louisiana-switch-sides-in-this-case
+
 **China Got Trump’s Attention but Renewed a Risky Game of Chicken**\
 `Xi Jinping’s need to project strength before a crucial meeting of Communist Party leaders may help explain why Beijing announced new rare earth controls.`\
 https://nytimes.com/2025/10/15/world/asia/china-trump-tariffs.html
@@ -21,20 +37,4 @@ https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/politics-drov
 **Maresca accepts one-match ban for red card after celebrating late Liverpool win**\
 `Maresca was shown a second yellow card by referee Anthony Taylor after running down the touchline following Estevao's late winner.`\
 https://nytimes.com/athletic/6719234/2025/10/15/enzo-maresca-ban-chelsea-liverpool-red/
-
-**A Novel Intertwines the Many Dramas of Life in an Autocracy**\
-`Branching plots and dark humor animate “Eye of the Monkey,” set in an unnamed dystopian country.`\
-https://nytimes.com/2025/10/15/books/review/krisztina-toth-eye-of-the-monkey.html
-
-**Paratici's Spurs return: Why is he back? What about his ban? And how will co-sporting directors work?**\
-`Analysing the Italian's return to north London two years after his controversial exit and what it means for the club`\
-https://nytimes.com/athletic/6719060/2025/10/15/fabio-paratici-johan-lange-tottenham-sporting-directors/
-
-**Expansive Battles and Paper-Thin Bad Guys**\
-`There’s fun in Battlefield 6’s multiplayer chaos, but it’s an unmoored soldiering fantasy.`\
-https://nytimes.com/2025/10/15/arts/battlefield-6-review.html
-
-**Nassau Police Charge Man With Raping and Killing Teenager in 1984**\
-`Theresa Fusco was left in the woods near the roller rink where she had worked. Three men were wrongly convicted, but authorities said they now have the real culprit.`\
-https://nytimes.com/2025/10/15/nyregion/nassau-cold-case-charges-theresa-fusco.html
 
