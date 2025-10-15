@@ -1,3 +1,7 @@
+**U.S. Says It Revoked Visas of Some People Who Criticized Charlie Kirk**\
+`The State Department’s X account listed six examples of people who it said had made comments about the assassination of Mr. Kirk, a right-wing activist, and said it was withdrawing their visas.`\
+https://nytimes.com/2025/10/15/us/politics/charlie-kirk-state-department-visas.html
+
 **Russell secures Mercedes F1 contract extension as team confirms 2026 line-up**\
 `Five-time grand prix winner Russell, 27, has raced for Mercedes since 2022 and was part of its young driver roster from 2017.`\
 https://nytimes.com/athletic/6718446/2025/10/15/george-russell-mercedes-contract/
