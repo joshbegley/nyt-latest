@@ -1,8 +1,20 @@
+**Travis Sanheim shouldering heavy workload while Flyers sort out defensive depth**\
+`Rick Tocchet is helping Sanheim stay off the ice from time to time, especially after he has a string of games with inflated minutes.`\
+https://nytimes.com/athletic/6720438/2025/10/15/flyers-travis-sanheim-jets-depth/
+
+**White Sox fan Pope Leo delivers retort to Cubs fan: 'They lost!'**\
+`The American-born pope's Chicago roots made him a lifelong fan of his hometown White Sox.`\
+https://nytimes.com/athletic/6720276/2025/10/15/pope-leo-cubs-comments-white-sox/
+
+**Trump Signs Memo Expanding His Authority to Spend Federal Money**\
+`The president gave Defense Secretary Pete Hegseth wide authority to repurpose funds to pay members of the military without approval from Congress, which has the sole constitutional authority to decide federal spending.`\
+https://nytimes.com/2025/10/15/us/politics/trump-federal-funds-government-shutdown.html
+
 **Hamas Says It Has Returned All Hostage Remains It Can Recover, Putting Fragile Truce at Risk**\
 `The Palestinian militant group said it needed special equipment to locate and extract the remaining remains.`\
 https://nytimes.com/2025/10/15/world/middleeast/hamas-gaza-hostages-remains-israel.html
 
-**Brock Purdy, George Kittle back at practice; Ricky Pearsall still out**\
+**Brock Purdy, George Kittle back at 49ers practice; Ricky Pearsall still out**\
 `Purdy and Kittle were both injured in the season opener in Seattle. Purdy returned in Week 4 but aggravated his toe injury.`\
 https://nytimes.com/athletic/6720528/2025/10/15/brock-purdy-george-kittle-injury-updates/
 
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/15/us/california-reparations-newsom-veto.html
 **New York Is Going to Flood. Here’s What the City Can Do to Survive.**\
 `Adaptation is a matter of survival, and the city may have to throw every solution available at a worsening situation.`\
 https://nytimes.com/interactive/2025/10/15/nyregion/new-york-climate-flooding-solutions.html
-
-**How Malala Changed Her Mind About Marriage**\
-`The activist and author Malala Yousafzai married Asser Malik in 2021, despite her skepticism about marriage. She shared why she chose marriage on the “Modern Love” podcast.`\
-https://nytimes.com/video/podcasts/100000010452514/how-malala-changed-her-mind-about-marriage.html
-
-**Hegseth Warns U.S. Will Impose ‘Costs’ on Russia if Peace Efforts Falter**\
-`Defense Secretary Pete Hegseth offered unusually strong criticism of Russia, just as Ukraine seeks American Tomahawk missiles.`\
-https://nytimes.com/2025/10/15/us/politics/hegseth-russia-ukraine.html
-
-**Trump Offered a Helping Hand to Argentina. It Backfired.**\
-`When President Javier Milei of Argentina faced an economic meltdown, President Trump vowed to come to his aid. But that lifeline is coming at a cost.`\
-https://nytimes.com/2025/10/15/world/americas/argentina-trump-javier-milei.html
 
