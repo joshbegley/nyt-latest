@@ -1,3 +1,7 @@
+**Stephen Colbert Ridicules Trump’s Time Magazine Cover**\
+`“The Late Show” host called President Trump’s photo the “worst Georgia O’Keeffe ever.”`\
+https://nytimes.com/2025/10/15/arts/television/stephen-colbert-trump-time-magazine.html
+
 **How to watch Falcons vs. 49ers: Time, TV, streaming**\
 `Find out how to watch the Atlanta Falcons play the San Francisco 49ers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6718286/2025/10/15/falcons-vs-49ers-stream-how-to-watch-oct-19/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6715935/2025/10/15/chelsea-cole-palmer-injury-alter
 **Alex Bregman to opt out of Red Sox deal, retest free agency: Reports**\
 `Over 114 games, Bregman slashed .273/.360/.462 with 18 home runs and 62 RBIs, earning his third All-Star nomination. `\
 https://nytimes.com/athletic/6717830/2025/10/15/alex-bregman-red-sox-deal-opt-out-free-agency/
-
-**Can Wilson Odobert prove the balancing act for Tottenham’s left?**\
-`The 2-1 win in Leeds was the first time Odobert, Udogie and Simons started together — they had natural chemistry from the outset`\
-https://nytimes.com/athletic/6715622/2025/10/15/tottenham-hotspur-wilson-odobert-premier-league-analysis/
 

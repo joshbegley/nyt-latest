@@ -1,3 +1,7 @@
+**Stephen Colbert Ridicules Trump’s Time Magazine Cover**\
+`“The Late Show” host called President Trump’s photo the “worst Georgia O’Keeffe ever.”`\
+https://nytimes.com/2025/10/15/arts/television/stephen-colbert-trump-time-magazine.html
+
 **How to watch Falcons vs. 49ers: Time, TV, streaming**\
 `Find out how to watch the Atlanta Falcons play the San Francisco 49ers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6718286/2025/10/15/falcons-vs-49ers-stream-how-to-watch-oct-19/
