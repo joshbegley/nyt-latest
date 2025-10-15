@@ -1,3 +1,7 @@
+**Matthew Stafford and a stingy defense: 10 stats that tell the story of Rams' season**\
+`Stafford has the offense humming at age 37. And the defense, led by Jared Verse and Byron Young, has done its part for the 4-2 Rams. `\
+https://nytimes.com/athletic/6717565/2025/10/15/rams-matthew-stafford-stats-defense/
+
 **Bills bye week thoughts: Glaring need as trade deadline nears and an idea for James Cook**\
 `Plus, the Bills are in a precarious situation at cornerback.`\
 https://nytimes.com/athletic/6717010/2025/10/15/bills-bye-week-trade-deadline-wide-receiver/
