@@ -1,3 +1,11 @@
+**South Korea Targets Cambodia’s Scam Industry After Kidnaps, Torture and a Death**\
+`South Korea’s efforts are part of a widening international crackdown on criminal groups running online fraud schemes from Southeast Asia.`\
+https://nytimes.com/2025/10/15/world/asia/cambodia-south-korea-scams.html
+
+**First Burials to Be Held for Israelis Returned From Gaza**\
+`Hamas has handed over the bodies of eight people, but says it is struggling to find the remains of others in Gaza after two years of war.`\
+https://nytimes.com/2025/10/15/world/middleeast/israel-hostages-hamas-returned-gaza-funerals.html
+
 **PL clubs set to take the knee for No Room for Racism gameweeks**\
 `Premier League chief executive Richard Masters said that the gesture is the players' "choice" and that it has "never been forced upon them".`\
 https://nytimes.com/athletic/6718647/2025/10/15/premier-league-teams-take-the-knee/
