@@ -1,3 +1,11 @@
+**A.J. Preller argues that managing the Padres is a plum job. But is that just an illusion?**\
+`On the surface, the Padres are a playoff contender with a star-studded roster. But the lightest scratch reveals a lot of uncertainty.`\
+https://nytimes.com/athletic/6717447/2025/10/14/padres-manager-job-a-j-preller-mike-shildt/
+
+**ICE Is Cracking Down on Chicago. Some Chicagoans Are Fighting Back.**\
+`Residents have begun forming volunteer groups to monitor their neighborhoods for federal immigration agents. Others honk their horns or blow whistles when they see agents nearby.`\
+https://nytimes.com/2025/10/14/us/chicago-ice-trump.html
+
 **Trump Awards Charlie Kirk the Presidential Medal of Freedom**\
 `President Trump presented the medal to Charlie Kirk’s widow, Erika, on what would have been his 32nd birthday.`\
 https://nytimes.com/2025/10/14/us/politics/trump-charlie-kirk-medal.html
