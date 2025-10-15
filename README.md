@@ -1,3 +1,7 @@
+**Why Bank C.E.O.s See Economic Turbulence Ahead**\
+`Wall Street giants are reporting blowout results for their most recent quarter. But they are getting worried about what lies ahead.`\
+https://nytimes.com/2025/10/15/business/dealbook/bank-earnings-economy-lending-stocks.html
+
 **Trump Threatens Spain With Higher Tariffs Over Defense Spending**\
 `President Trump said he was considering ‘trade punishment through tariffs’ over Spain’s refusal to increase its military spending.`\
 https://nytimes.com/2025/10/15/us/politics/trump-tariffs-spain-military-defense-spending-nato.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6431616/2025/10/15/barcelona-de-jong-contract/
 **Rep. Seth Moulton Announces Run for Senator Markey’s Seat in Massachusetts**\
 `Mr. Moulton, a 46-year-old fellow Democrat, released a video emphasizing the age difference between himself and Mr. Markey, 79.`\
 https://nytimes.com/2025/10/15/us/politics/seth-moulton-edward-markey-massachusetts.html
-
-**South Korea Targets Cambodia’s Scam Industry After Kidnaps, Torture and a Death**\
-`South Korea’s efforts are part of a widening international crackdown on criminal groups running online fraud schemes from Southeast Asia.`\
-https://nytimes.com/2025/10/15/world/asia/cambodia-south-korea-scams.html
 
