@@ -1,3 +1,15 @@
+**Sign of Justice**\
+`Christina Iverson and Nick Offerman make a handy collaboration debut.`\
+https://nytimes.com/2025/10/14/crosswords/daily-puzzle-2025-10-15-2025.html
+
+**New York Confirms State’s First Locally Acquired Case of Chikungunya**\
+`Testing proved that a Long Island woman had been exposed to the mosquito-borne virus, which is more commonly seen in the Caribbean and Central and South America.`\
+https://nytimes.com/2025/10/14/nyregion/chikungunya-first-case-long-island.html
+
+**Mike Shildt’s exit, the GM’s future and the offense: Takeaways from A.J. Preller’s presser**\
+`The next Padres manager will inherit a roster with significant upside and significant questions. Preller attempted to answer some of those.`\
+https://nytimes.com/athletic/6716508/2025/10/14/san-diego-padres-aj-preller-presser-takeaways/
+
 **Creepy Milwaukee? Teoscar Hernández, wife leave 'haunted' Pfister Hotel**\
 `"I don't believe in ghosts," the Dodgers outfielder said. But his wife, Jennifer, urged that they avoid the team hotel in Milwaukee.`\
 https://nytimes.com/athletic/6717725/2025/10/14/dodgers-teoscar-hernandez-milwaukee-haunted-hotel/
