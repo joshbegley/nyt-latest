@@ -1,3 +1,7 @@
+**NBC News Cuts About 7% of Staff**\
+`The layoffs come ahead of a corporate spinoff that will formally separate the parent company of NBC News from cable networks like MSNBC and CNBC.`\
+https://nytimes.com/2025/10/15/business/media/nbc-news-layoffs.html
+
 **Pochettino believes weather, altitude could be factors in Pulisic injury. Is he right?**\
 `The USMNT head coach says there was a "risk" in his squad playing in sultry Austin and chilly Denver across four days`\
 https://nytimes.com/athletic/6719663/2025/10/15/pulisic-injury-pochettino-weather-altitude/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/15/us/politics/trump-dodik-srpska-lobbying.html
 **Schumer Calls on Trump, G.O.P. to Condemn Young Republicans’ Texts**\
 `The top Senate Democrat said the president and Republican leaders had an “obligation to denounce vile rhetoric,” even when it comes from within their own party.`\
 https://nytimes.com/2025/10/15/us/politics/schumer-young-republicans-texts.html
-
-**Wildfire Plus Rain Brings Risks. Scientists Are Trying to Warn Residents.**\
-`Research in the U.S. Southwest could expand lifesaving efforts for hazards that follow wildfires across the globe.`\
-https://nytimes.com/2025/10/15/climate/wildfire-flash-flood-landslide-risk.html
 
