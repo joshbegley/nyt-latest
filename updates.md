@@ -1,3 +1,7 @@
+**American Flag With Swastika Is Found in Republican Congressman’s Office**\
+`Representative Dave Taylor of Ohio condemned the symbol as “vile” and said his office was investigating with the U.S. Capitol Police.`\
+https://nytimes.com/2025/10/15/us/swastika-flag-congressional-office.html
+
 **Tiny Love Stories: ‘I Might’ve Cast a Love Spell’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/10/15/style/tiny-modern-love-stories-i-mightve-cast-a-love-spell.html

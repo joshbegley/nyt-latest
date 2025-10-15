@@ -1,3 +1,7 @@
+**American Flag With Swastika Is Found in Republican Congressman’s Office**\
+`Representative Dave Taylor of Ohio condemned the symbol as “vile” and said his office was investigating with the U.S. Capitol Police.`\
+https://nytimes.com/2025/10/15/us/swastika-flag-congressional-office.html
+
 **Tiny Love Stories: ‘I Might’ve Cast a Love Spell’**\
 `Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
 https://nytimes.com/2025/10/15/style/tiny-modern-love-stories-i-mightve-cast-a-love-spell.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6720695/2025/10/15/lightning-kings-pheonix-copley-t
 **F.B.I. Agent Who Raped 3 Women at Tattoo Parlors He Ran Gets 60 Years in Prison**\
 `The man, who has since been fired by the F.B.I., maintains the conduct was consensual, his lawyer said.`\
 https://nytimes.com/2025/10/15/us/fbi-agent-tattoo-studio-rape-sentence.html
-
-**China’s Own Immigration Backlash**\
-`The response to a new visa for skilled foreign workers has caught even the Chinese government by surprise.`\
-https://nytimes.com/2025/10/15/world/china-immigration-visas-venezuela-cia-hamas.html
 
