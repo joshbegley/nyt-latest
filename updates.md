@@ -1,3 +1,15 @@
+**L.A. County Declares State of Emergency Over Immigration Raids**\
+`The move would allow county officials to provide financial aid to those affected by Immigration and Customs Enforcement raids.`\
+https://nytimes.com/2025/10/15/world/americas/los-angeles-emergency-immigration-raids.html
+
+**A Supreme Court decision brought two Black representatives to Congress.**\
+`By Emily Cochrane`\
+https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/a-supreme-court-decision-brought-two-black-representatives-to-congress
+
+**The Windup: Who looks old-school now?**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6718261/2025/10/15/dodgers-starters-nlcs-brewers-the-windup/
+
 **Putin Welcomes the New Syrian Leader While Still Harboring the Old One**\
 `The meeting in Moscow between President Vladimir V. Putin of Russia and President Ahmed al-Shara of Syria showcased the adaptability of two leaders once at odds.`\
 https://nytimes.com/2025/10/15/world/europe/russia-syria-putin-al-shara-moscow-visit-assad.html

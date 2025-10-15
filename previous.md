@@ -1,3 +1,15 @@
+**L.A. County Declares State of Emergency Over Immigration Raids**\
+`The move would allow county officials to provide financial aid to those affected by Immigration and Customs Enforcement raids.`\
+https://nytimes.com/2025/10/15/world/americas/los-angeles-emergency-immigration-raids.html
+
+**A Supreme Court decision brought two Black representatives to Congress.**\
+`By Emily Cochrane`\
+https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/a-supreme-court-decision-brought-two-black-representatives-to-congress
+
+**The Windup: Who looks old-school now?**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6718261/2025/10/15/dodgers-starters-nlcs-brewers-the-windup/
+
 **Putin Welcomes the New Syrian Leader While Still Harboring the Old One**\
 `The meeting in Moscow between President Vladimir V. Putin of Russia and President Ahmed al-Shara of Syria showcased the adaptability of two leaders once at odds.`\
 https://nytimes.com/2025/10/15/world/europe/russia-syria-putin-al-shara-moscow-visit-assad.html
@@ -25,16 +37,4 @@ https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/the-voting-ri
 **Clashes Between Afghanistan and Pakistan Kill at Least 12**\
 `The fighting, along the countries’ border, also injured more than 100 people. Tensions have sharply escalated over the past week. Both sides accused the other of striking first.`\
 https://nytimes.com/2025/10/15/world/asia/clashes-afghanistan-pakistan.html
-
-**College Football Playoff bubble watch: Texas Tech is Big 12's best chance at at-large bid**\
-`The Red Raiders have the fifth-best odds of any team to make the Playoff.`\
-https://nytimes.com/athletic/6718749/2025/10/15/college-football-playoff-bubble-watch-texas-tech/
-
-**The case will test what is left of the Voting Rights Act after the Shelby County ruling.**\
-`In 2013, a divided Supreme Court effectively gutted the key provision of the law, but it left another tool intact. Now that provision, too, may be at risk.`\
-https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/the-case-will-test-what-is-left-of-the-voting-rights-act-after-the-shelby-county-ruling
-
-**Meta Removes Facebook Group That Shared Information on ICE Agents**\
-`The Facebook page was taken down for “violating our policies against coordinated harm,” according to Meta.`\
-https://nytimes.com/2025/10/15/technology/meta-removes-ice-facebook-page.html
 
