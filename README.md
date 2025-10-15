@@ -1,4 +1,12 @@
-**Brown University Rejects a White House ‘Compact’ to Receive Special Treatment**\
+**Voting Rights Act Could Be Undercut Following Supreme Court Hearing**\
+`If the Supreme Court justices determine that lawmakers may not consider race in drawing district maps, the repercussions for the country’s political balance could be widespread.`\
+https://nytimes.com/video/us/politics/100000010459563/supreme-court-voting-rights-louisiana.html
+
+**New York Knicks fan laid it 'all out on the line' in viral tic-tac-toe game**\
+`With a $500 prize up for grabs, Ghedalia Gold-Pastor was willing to put his body on the line.`\
+https://nytimes.com/athletic/6716532/2025/10/15/new-york-knicks-tic-tac-toe-fans-viral/
+
+**Brown University Rejects White House Deal for Special Treatment**\
 `Brown was the second university to turn down the deal, which would have given a funding preference to universities that agreed to certain requirements.`\
 https://nytimes.com/2025/10/15/us/brown-university-trump-compact-funding.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/15/us/politics/kevin-kiley-shutdown.html
 **How tall is Victor Wembanyama? We're still figuring it out together**\
 `Is he 7-4? 7-7? No one seems to really know. "I got no clue," his coach said Wednesday.`\
 https://nytimes.com/athletic/6719924/2025/10/15/victor-wembanyama-height-measurements-spurs-nba/
-
-**The Other Hostages**\
-`Thousands are still awaiting freedom.`\
-https://nytimes.com/2025/10/15/opinion/gaza-hostages-israel-war-west-bank.html
-
-**D’Angelo’s Pleasure Principle**\
-`The singer and songwriter’s art of elegant seduction never required him to raise his voice, or lose his desperation, humor or awareness.`\
-https://nytimes.com/2025/10/15/arts/music/dangelo-vocals-apollo-concert.html
 

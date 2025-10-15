@@ -1,4 +1,8 @@
 **Brown University Rejects a White House ‘Compact’ to Receive Special Treatment**\
+`Brown was the second university to turn down the deal, which would have given a funding preference to universities that agreed to certain requirements.`\
+https://nytimes.com/2025/10/15/us/brown-university-trump-compact-funding.html
+
+**Brown University Rejects a White House ‘Compact’ to Receive Special Treatment**\
 `Brown was the second university to turn down the deal, which would have given a funding preference to universities that agreed to certain requirements, including capping international students.`\
 https://nytimes.com/2025/10/15/us/brown-university-trump-compact-funding.html
 
