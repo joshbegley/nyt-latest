@@ -1,3 +1,7 @@
+**Quote of the Day: You Can No Longer Trust Your Eyes**\
+`Quotation of the Day for Wednesday, October 15, 2025.`\
+https://nytimes.com/2025/10/14/pageoneplus/quote-of-the-day-you-can-no-longer-trust-your-eyes.html
+
 **Dodgers-Brewers Game 2 takeaways: Yoshinobu Yamamoto goes the distance, L.A. takes control**\
 `MILWAUKEE — Legend has it that ghosts reside in Milwaukee’s Pfister hotel, a common stopover for major-league visitors over the years.`\
 https://nytimes.com/athletic/6717933/2025/10/14/dodgers-brewers-game-2-takeaways-yoshinobu-yamamoto-goes-the-distance-l-a-takes-control/

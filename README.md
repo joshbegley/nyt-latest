@@ -1,3 +1,19 @@
+**London Became a Global Hub for Phone Theft. Now We Know Why.**\
+`About 80,000 phones were stolen in the British capital last year. The police are finally discovering where many of them went.`\
+https://nytimes.com/2025/10/15/world/europe/london-police-phone-theft-china-gang.html
+
+**Connections: Sports Edition Coach: Hints for Oct. 15, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6717892/2025/10/15/connections-sports-edition-hints-for-oct-15-2025/
+
+**Fantasy football rankings Week 7: Sleepers, projections, starts, Jameson Williams, Harold Fannin and more**\
+`Jake Ciely runs through his player rankings for Week 7, and expects big things for rookie Harold Fannin if David Njoku is out this Sunday.`\
+https://nytimes.com/athletic/6717089/2025/10/15/fantasy-football-rankings-week-7-sleepers-projections-starts-jameson-williams-harold-fannin/
+
+**Corrections: Oct. 15, 2025**\
+`Corrections that appeared in print on Wednesday, Oct. 15, 2025.`\
+https://nytimes.com/2025/10/15/pageoneplus/corrections-oct-15-2025.html
+
 **Quote of the Day: You Can No Longer Trust Your Eyes**\
 `Quotation of the Day for Wednesday, October 15, 2025.`\
 https://nytimes.com/2025/10/14/pageoneplus/quote-of-the-day-you-can-no-longer-trust-your-eyes.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6717958/2025/10/14/president-trump-relocate-world-c
 **Sign of Justice**\
 `Christina Iverson and Nick Offerman make a handy collaboration debut.`\
 https://nytimes.com/2025/10/14/crosswords/daily-puzzle-2025-10-15.html
-
-**New York Confirms State’s First Locally Acquired Case of Chikungunya**\
-`Testing proved that a Long Island woman had been exposed to the mosquito-borne virus, which is more commonly seen in the Caribbean and Central and South America.`\
-https://nytimes.com/2025/10/14/nyregion/chikungunya-first-case-long-island.html
-
-**Mike Shildt’s exit, the GM’s future and the offense: Takeaways from A.J. Preller’s presser**\
-`The next Padres manager will inherit a roster with significant upside and significant questions. Preller attempted to answer some of those.`\
-https://nytimes.com/athletic/6716508/2025/10/14/san-diego-padres-aj-preller-presser-takeaways/
-
-**Creepy Milwaukee? Teoscar Hernández, wife leave 'haunted' Pfister Hotel**\
-`"I don't believe in ghosts," the Dodgers outfielder said. But his wife, Jennifer, urged that they avoid the team hotel in Milwaukee.`\
-https://nytimes.com/athletic/6717725/2025/10/14/dodgers-teoscar-hernandez-milwaukee-haunted-hotel/
-
-**Colts reach agreement with QB Brett Rypien following Anthony Richardson's injury**\
-`Rypien will join the team’s practice squad, a league source confirmed to The Athletic..`\
-https://nytimes.com/athletic/6717737/2025/10/14/colts-backup-quarterback-brett-rypien/
 

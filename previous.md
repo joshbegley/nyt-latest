@@ -1,3 +1,7 @@
+**Quote of the Day: You Can No Longer Trust Your Eyes**\
+`Quotation of the Day for Wednesday, October 15, 2025.`\
+https://nytimes.com/2025/10/14/pageoneplus/quote-of-the-day-you-can-no-longer-trust-your-eyes.html
+
 **Dodgers-Brewers Game 2 takeaways: Yoshinobu Yamamoto goes the distance, L.A. takes control**\
 `MILWAUKEE — Legend has it that ghosts reside in Milwaukee’s Pfister hotel, a common stopover for major-league visitors over the years.`\
 https://nytimes.com/athletic/6717933/2025/10/14/dodgers-brewers-game-2-takeaways-yoshinobu-yamamoto-goes-the-distance-l-a-takes-control/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6717725/2025/10/14/dodgers-teoscar-hernandez-milwau
 **Colts reach agreement with QB Brett Rypien following Anthony Richardson's injury**\
 `Rypien will join the team’s practice squad, a league source confirmed to The Athletic..`\
 https://nytimes.com/athletic/6717737/2025/10/14/colts-backup-quarterback-brett-rypien/
-
-**Angels, Skaggs family paint wildly different pictures of late pitcher in opening statements**\
-`“If you wanted to go out and look at two different people... and get 180-degree different views, today was the day,” said a Skaggs attorney.`\
-https://nytimes.com/athletic/6717570/2025/10/14/angels-trial-tyler-skaggs-opening-statements/
 
