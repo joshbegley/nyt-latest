@@ -1,3 +1,7 @@
+**Inmates Make Brazen Escape in Guatemala**\
+`“I’m not going to deny the reality — there’s no good explanation,” the interior minister said, after the inmates slipped out, perhaps over a period of time.`\
+https://nytimes.com/2025/10/14/world/americas/guatemala-prison-escape.html
+
 **A.J. Preller argues that managing the Padres is a plum job. But is that just an illusion?**\
 `On the surface, the Padres are a playoff contender with a star-studded roster. But the lightest scratch reveals a lot of uncertainty.`\
 https://nytimes.com/athletic/6717447/2025/10/14/padres-manager-job-a-j-preller-mike-shildt/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6717439/2025/10/14/giants-brandon-hyde-manager-open
 **Yankees make 2 coaching changes to Aaron Boone's staff: Source**\
 `Mike Harkey had been the Yankees' longest tenured coach and was a favorite among players. Travis Chapman held numerous roles in the org.`\
 https://nytimes.com/athletic/6717408/2025/10/14/yankees-make-two-coaching-changes-to-aaron-boones-staff-source/
-
-**Transgender fencer suing USA Fencing, USOPC over ban from women's events**\
-`The defendants say they’re following a standing policy that aligns with an executive order from President Donald Trump earlier this year.`\
-https://nytimes.com/athletic/6717204/2025/10/14/transgender-usa-fencing-usopc-ban-womens-competition/
 
