@@ -1,3 +1,7 @@
+**‘It Was Just an Accident’ Review: A Liberation Story Straight From Iran**\
+`In his latest movie, the formerly banned filmmaker Jafar Panahi tells a circuitous, moving and unexpectedly funny story of resistance.`\
+https://nytimes.com/2025/10/15/movies/it-was-just-an-accident-review.html
+
 **NBC News Cuts About 7% of Staff**\
 `The layoffs come ahead of a corporate spinoff that will formally separate the parent company of NBC News from cable networks like MSNBC and CNBC.`\
 https://nytimes.com/2025/10/15/business/media/nbc-news-layoffs.html
