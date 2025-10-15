@@ -1,3 +1,11 @@
+**Unions to Ask Court to Block Trump Layoffs During Shutdown**\
+`Labor groups are set to square off against the Trump administration one day after the president renewed his threat to cut “Democrat programs.”`\
+https://nytimes.com/2025/10/15/business/government-shutdown-trump-layoffs-unions.html
+
+**How to watch Devin Booker and the new-look Phoenix Suns this season**\
+`Like the Suns, the NBA will look and sound different this season. Here's how to catch all the games on the league's new broadcast partners.`\
+https://nytimes.com/athletic/6715392/2025/10/15/phoenix-suns-devin-booker-tv-schedule-streaming-how-to-watch/
+
 **Exclusive: Christen Press' thank you letters to herself, football and the fans**\
 `Two-time World Cup winner Christen Press exclusively shares with The Athletic letters to her younger self, soccer and fans as she retires`\
 https://nytimes.com/athletic/6717376/2025/10/15/christen-press-uswnt-thank-you-letters/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6718446/2025/10/15/george-russell-mercedes-contract
 **How to watch Victor Wembanyama and the San Antonio Spurs all season**\
 `The Spurs look poised to make a big leap as Victor Wembanyama enters Year 3. Don't miss a single game this season by following our guide. `\
 https://nytimes.com/athletic/6710879/2025/10/15/san-antonio-spurs-tv-schedule-victor-wembanyama-how-to-watch/
-
-**Eagles mailbag: Howie Roseman's trade targets, Kevin Patullo's future, playoff possibilities**\
-`Plus, questions about leadership and the running game.`\
-https://nytimes.com/athletic/6717520/2025/10/15/eagles-howie-roseman-trade-targets-kevin-patullo-future/
-
-**Here’s the latest.**\
-`By Abbie VanSickle`\
-https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/heres-the-latest
 
