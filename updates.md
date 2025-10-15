@@ -1,3 +1,11 @@
+**China’s Own Immigration Backlash**\
+`The response to a new visa for skilled foreign workers has caught even the Chinese government by surprise.`\
+https://nytimes.com/2025/10/15/world/china-immigration-visas-venezuela-cia-hamas.html
+
+**3 Quick, Easy Pasta Recipes You Should Memorize**\
+`Effortless, speedy and creative, these pantry pastas turn weeknights into a party.`\
+https://nytimes.com/2025/10/15/dining/quick-easy-pasta-recipes.html
+
 **Five Cubs takeaways not about Kyle Tucker from Jed Hoyer’s end-of-season press conference**\
 `Tucker will be the main focus of the offseason, but there were other topics to discuss, including Shota Imanaga's option decision.`\
 https://nytimes.com/athletic/6720374/2025/10/15/chicago-cubs-season-in-review-shota-imanaga/
