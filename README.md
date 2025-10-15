@@ -1,3 +1,11 @@
+**The Death Star Dodgers, backed by rotation's unreal run, are 6 wins from another parade**\
+`The next Dodgers parade is now within view, thanks to a rotation of aces that clicked into gear around Labor Day. The numbers are amazing.`\
+https://nytimes.com/athletic/6718452/2025/10/15/dodgers-starting-pitchers-playoffs-facts-yamamoto-snell/
+
+**William Nylander was a fluke and the Jets are weird: Prediction contest lessons**\
+`Early analysis reveals interesting new twists with the dreaded bonus question, plus the annual Joe Sakic update.`\
+https://nytimes.com/athletic/6717383/2025/10/15/nhl-prediction-contest-nylander-jets/
+
 **'We found a (bleeping) way!': How another late rally energized the Bears**\
 `Ben Johnson's Type-A competitive nature is resonating. His players' response has helped spark a three-game winning streak.`\
 https://nytimes.com/athletic/6717354/2025/10/15/bears-ben-johnson-rally-commanders/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6717732/2025/10/15/chicago-cubs-shota-imanaga-decis
 **How money — from NIL to new revenue sharing — is changing college hockey recruiting**\
 `The Athletic spoke with more than a dozen Division I men’s college hockey coaches about the new landscape.`\
 https://nytimes.com/athletic/6707089/2025/10/15/ncaa-hockey-gavin-mckenna-nil/
-
-**A.J. Allmendinger on defining success and the power of longevity: 12 Questions**\
-`A.J. Allmendinger talks about his long career in NASCAR, making the most of it in a sport where you can't win every week, and much more.`\
-https://nytimes.com/athletic/6709580/2025/10/15/aj-allmendinger-nascar-kaulig-12-questions/
-
-**Rangers set unwanted NHL record yet rightfully remain optimistic**\
-`Despite putting together good performances in their past two home games, the Rangers haven't been able to get the puck in the net.`\
-https://nytimes.com/athletic/6718013/2025/10/15/rangers-home-scoring-drought-record-miller-oilers/
 
