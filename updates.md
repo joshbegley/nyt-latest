@@ -1,3 +1,7 @@
+**Aussie Geria didn't try to injure Pulisic but says his team was up for a fight**\
+`The Australian defender's physical play left Pulisic injured, but insisted it was not intentional`\
+https://nytimes.com/athletic/6718298/2025/10/15/jason-geria-christian-pulisic-australia-usmnt-fight/
+
 **Stephen Colbert Ridicules Trump’s Time Magazine Cover**\
 `“The Late Show” host called President Trump’s photo the “worst Georgia O’Keeffe ever.”`\
 https://nytimes.com/2025/10/15/arts/television/stephen-colbert-trump-time-magazine.html

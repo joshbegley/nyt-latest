@@ -1,3 +1,7 @@
+**Aussie Geria didn't try to injure Pulisic but says his team was up for a fight**\
+`The Australian defender's physical play left Pulisic injured, but insisted it was not intentional`\
+https://nytimes.com/athletic/6718298/2025/10/15/jason-geria-christian-pulisic-australia-usmnt-fight/
+
 **Stephen Colbert Ridicules Trump’s Time Magazine Cover**\
 `“The Late Show” host called President Trump’s photo the “worst Georgia O’Keeffe ever.”`\
 https://nytimes.com/2025/10/15/arts/television/stephen-colbert-trump-time-magazine.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6718104/2025/10/15/christian-pulisic-injury-usmnt-a
 **With Palmer out until November, who is Chelsea's best option to replace him?**\
 `Chelsea recruited heavily over the summer, which should ease the burden on Palmer. Their depth will now be put to the test`\
 https://nytimes.com/athletic/6715935/2025/10/15/chelsea-cole-palmer-injury-alternatives-analysis/
-
-**Alex Bregman to opt out of Red Sox deal, retest free agency: Reports**\
-`Over 114 games, Bregman slashed .273/.360/.462 with 18 home runs and 62 RBIs, earning his third All-Star nomination. `\
-https://nytimes.com/athletic/6717830/2025/10/15/alex-bregman-red-sox-deal-opt-out-free-agency/
 
