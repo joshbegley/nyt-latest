@@ -27,7 +27,7 @@ https://nytimes.com/2025/10/15/style/long-hugs-insulting-compliments.html
 https://nytimes.com/athletic/6717565/2025/10/15/rams-matthew-stafford-stats-defense/
 
 **U.S. Says It Revoked Visas of Some People Who Criticized Charlie Kirk**\
-`The State Department’s X account listed six examples of people whom it said had made comments about the assassination of Mr. Kirk, a right-wing activist, and said it was withdrawing their visas.`\
+`The State Department’s X account listed six examples of people who it said had made comments about the assassination of Mr. Kirk, a right-wing activist, and said it was withdrawing their visas.`\
 https://nytimes.com/2025/10/15/us/politics/charlie-kirk-state-department-visas.html
 
 **How to watch and stream the Orlando Magic this season**\
