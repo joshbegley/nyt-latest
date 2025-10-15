@@ -1,3 +1,11 @@
+**De Jong signs new Barcelona contract until 2029**\
+`The 28-year-old's previous deal was set to expire in June 2026.`\
+https://nytimes.com/athletic/6431616/2025/10/15/barcelona-de-jong-contract/
+
+**Rep. Seth Moulton Announces Run for Senator Markey’s Seat in Massachusetts**\
+`Mr. Moulton, a 46-year-old fellow Democrat, released a video emphasizing the age difference between himself and Mr. Markey, 79.`\
+https://nytimes.com/2025/10/15/us/politics/seth-moulton-edward-markey-massachusetts.html
+
 **South Korea Targets Cambodia’s Scam Industry After Kidnaps, Torture and a Death**\
 `South Korea’s efforts are part of a widening international crackdown on criminal groups running online fraud schemes from Southeast Asia.`\
 https://nytimes.com/2025/10/15/world/asia/cambodia-south-korea-scams.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/15/world/middleeast/syria-russia-ahmed-al-shara-puti
 **College football Week 8 streaming guide: Tennessee-Alabama, USC-Notre Dame, sleeper games**\
 `Our weekly college football streaming guide has headliners, gems and possible chaos games spread across the power conferences.`\
 https://nytimes.com/athletic/6717063/2025/10/15/college-football-week-8-streaming-guide-tennessee-alabama-usc-notre-dame/
-
-**What do the LCS teams have that the 2025 Giants didn't?**\
-`The gap between the rosters of the Giants and the four remaining MLB postseason teams isn't a vast as it might first appear.`\
-https://nytimes.com/athletic/6716507/2025/10/15/sf-giants-needed-roster-improvements/
-
-**College football midseason All-America teams: Ty Simpson, Arvell Reese lead first-half stars**\
-`Ohio State and Texas A&M lead the way with five selections, followed by Texas Tech (four) and Indiana, Miami and Oregon (three each).`\
-https://nytimes.com/athletic/6716901/2025/10/15/college-football-all-america-teams-midseason-2025/
 

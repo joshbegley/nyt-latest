@@ -1,3 +1,11 @@
+**De Jong signs new Barcelona contract until 2029**\
+`The 28-year-old's previous deal was set to expire in June 2026.`\
+https://nytimes.com/athletic/6431616/2025/10/15/barcelona-de-jong-contract/
+
+**Rep. Seth Moulton Announces Run for Senator Markey’s Seat in Massachusetts**\
+`Mr. Moulton, a 46-year-old fellow Democrat, released a video emphasizing the age difference between himself and Mr. Markey, 79.`\
+https://nytimes.com/2025/10/15/us/politics/seth-moulton-edward-markey-massachusetts.html
+
 **South Korea Targets Cambodia’s Scam Industry After Kidnaps, Torture and a Death**\
 `South Korea’s efforts are part of a widening international crackdown on criminal groups running online fraud schemes from Southeast Asia.`\
 https://nytimes.com/2025/10/15/world/asia/cambodia-south-korea-scams.html

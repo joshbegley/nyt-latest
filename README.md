@@ -1,3 +1,7 @@
+**Malala Yousafzai Reintroduces Herself**\
+`Malala Yousafzai speaks with Modern Love host, Anna Martin, about navigating ordinary life — like making friends in college, finding her personal style, going to parties and ... falling in love.`\
+https://nytimes.com/video/podcasts/100000010452506/malala-yousafzai-reintroduces-herself.html
+
 **De Jong signs new Barcelona contract until 2029**\
 `The 28-year-old's previous deal was set to expire in June 2026.`\
 https://nytimes.com/athletic/6431616/2025/10/15/barcelona-de-jong-contract/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/15/us/shutdown-government-caribbean-strike-trump.htm
 **Syria’s New Leaders Are Talking to a Former Enemy: Russia**\
 `President Ahmed al-Shara is making his first trip to Moscow, which backed the regime his rebels overthrew. Both sides have reasons to put the past aside.`\
 https://nytimes.com/2025/10/15/world/middleeast/syria-russia-ahmed-al-shara-putin.html
-
-**College football Week 8 streaming guide: Tennessee-Alabama, USC-Notre Dame, sleeper games**\
-`Our weekly college football streaming guide has headliners, gems and possible chaos games spread across the power conferences.`\
-https://nytimes.com/athletic/6717063/2025/10/15/college-football-week-8-streaming-guide-tennessee-alabama-usc-notre-dame/
 
