@@ -1,3 +1,7 @@
+**‘Politics drove this map.’ How Louisiana settled on its district lines.**\
+`By Emily Cochrane`\
+https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/politics-drove-this-map-how-louisiana-settled-on-its-district-lines
+
 **Maresca accepts one-match ban for red card after celebrating late Liverpool win**\
 `Maresca was shown a second yellow card by referee Anthony Taylor after running down the touchline following Estevao's late winner.`\
 https://nytimes.com/athletic/6719234/2025/10/15/enzo-maresca-ban-chelsea-liverpool-red/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/rearguments-a
 **The Bounce: A new way to judge dunks. Plus, we preview the Rockets and Magic**\
 `Zach Harper catches you up on the latest news around the NBA.`\
 https://nytimes.com/athletic/6719020/2025/10/15/dunks-nba-magic-rockets-the-bounce/
-
-**Christen Press felt like a 'villain'. She played long enough to become a hero**\
-`The World Cup winner doesn't view her professional career as 'storybook,' but a journey full of lessons `\
-https://nytimes.com/athletic/6718061/2025/10/15/christen-press-angel-city-uswnt-retirement/
 

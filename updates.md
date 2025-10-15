@@ -1,3 +1,7 @@
+**‘Politics drove this map.’ How Louisiana settled on its district lines.**\
+`By Emily Cochrane`\
+https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/politics-drove-this-map-how-louisiana-settled-on-its-district-lines
+
 **Maresca accepts one-match ban for red card after celebrating late Liverpool win**\
 `Maresca was shown a second yellow card by referee Anthony Taylor after running down the touchline following Estevao's late winner.`\
 https://nytimes.com/athletic/6719234/2025/10/15/enzo-maresca-ban-chelsea-liverpool-red/
