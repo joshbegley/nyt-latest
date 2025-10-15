@@ -1,3 +1,7 @@
+**Trump Awards Charlie Kirk the Presidential Medal of Freedom**\
+`President Trump presented the medal to Charlie Kirk’s widow, Erika, on what would have been his 32nd birthday.`\
+https://nytimes.com/2025/10/14/us/politics/trump-charlie-kirk-medal.html
+
 **Ex-Twins skipper Rocco Baldelli enjoying time off, would 'love' to manage again**\
 `In the days after he was let go, Baldelli heard from many in his baseball community, which uplifted his spirits.`\
 https://nytimes.com/athletic/6717382/2025/10/14/minnesota-twins-rocco-baldelli-interview-managing-opportunities/

@@ -1,3 +1,11 @@
+**A.J. Preller argues that managing the Padres is a plum job. But is that just an illusion?**\
+`On the surface, the Padres are a playoff contender with a star-studded roster. But the lightest scratch reveals a lot of uncertainty.`\
+https://nytimes.com/athletic/6717447/2025/10/14/padres-manager-job-a-j-preller-mike-shildt/
+
+**ICE Is Cracking Down on Chicago. Some Chicagoans Are Fighting Back.**\
+`Residents have begun forming volunteer groups to monitor their neighborhoods for federal immigration agents. Others honk their horns or blow whistles when they see agents nearby.`\
+https://nytimes.com/2025/10/14/us/chicago-ice-trump.html
+
 **Trump Awards Charlie Kirk the Presidential Medal of Freedom**\
 `President Trump presented the medal to Charlie Kirk’s widow, Erika, on what would have been his 32nd birthday.`\
 https://nytimes.com/2025/10/14/us/politics/trump-charlie-kirk-medal.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6717408/2025/10/14/yankees-make-two-coaching-change
 **Transgender fencer suing USA Fencing, USOPC over ban from women's events**\
 `The defendants say they’re following a standing policy that aligns with an executive order from President Donald Trump earlier this year.`\
 https://nytimes.com/athletic/6717204/2025/10/14/transgender-usa-fencing-usopc-ban-womens-competition/
-
-**Pirates fans still relive Bill Mazeroski's iconic World Series homer each year**\
-`Fans gathered at what remains of Forbes Field this week to commemorate the 65th anniversary of Mazeroski's walk-off homer.`\
-https://nytimes.com/athletic/6717170/2025/10/14/pirates-fans-bill-mazeroski-homer/
-
-**As Trump Hurls Fresh Threats and Insults, Hochul Has Mamdani’s Back**\
-`Zohran Mamdani, the Democratic front-runner in the New York City mayor’s race, appeared with Gov. Kathy Hochul for the first time since she endorsed him last month.`\
-https://nytimes.com/2025/10/14/nyregion/mamdani-hochul-trump.html
 
