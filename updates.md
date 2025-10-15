@@ -1,3 +1,11 @@
+**What's behind Barcelona's pre-Clasico injury crisis?**\
+`Hansi Flick's team have nine players out injured as they prepare for a key set of fixtures. Behind the scenes, there is confusion`\
+https://nytimes.com/athletic/6718578/2025/10/15/barcelona-el-clasico-injuries-analysis/
+
+**The Shutdown Enters Its Third Week**\
+`Cuts to transportation and energy. Funding for food assistance and the military. Here’s the latest from the shutdown.`\
+https://nytimes.com/2025/10/15/us/shutdown-government-caribbean-strike-trump.html
+
 **Syria’s New Leaders Are Talking to a Former Enemy: Russia**\
 `President Ahmed al-Shara is making his first trip to Moscow, which backed the regime his rebels overthrew. Both sides have reasons to put the past aside.`\
 https://nytimes.com/2025/10/15/world/middleeast/syria-russia-ahmed-al-shara-putin.html
