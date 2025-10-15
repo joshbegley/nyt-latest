@@ -1,3 +1,7 @@
+**Soup’s On!**\
+`Soothing chicken noodle, hearty red lentil and more soups for the season.`\
+https://nytimes.com/2025/10/15/dining/soups-on.html
+
 **‘Politics drove this map.’ How Louisiana settled on its district lines.**\
 `By Emily Cochrane`\
 https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/politics-drove-this-map-how-louisiana-settled-on-its-district-lines
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/supreme-court
 **Rearguments are rare, and they can signal major upheavals.**\
 `A characteristic move of the court led by Chief Justice Roberts is to go big only after an initial encounter, as it did in the Citizens United campaign finance case.`\
 https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/rearguments-are-rare-and-they-can-signal-major-upheavals
-
-**The Bounce: A new way to judge dunks. Plus, we preview the Rockets and Magic**\
-`Zach Harper catches you up on the latest news around the NBA.`\
-https://nytimes.com/athletic/6719020/2025/10/15/dunks-nba-magic-rockets-the-bounce/
 

@@ -1,3 +1,7 @@
+**Soup’s On!**\
+`Soothing chicken noodle, hearty red lentil and more soups for the season.`\
+https://nytimes.com/2025/10/15/dining/soups-on.html
+
 **‘Politics drove this map.’ How Louisiana settled on its district lines.**\
 `By Emily Cochrane`\
 https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/politics-drove-this-map-how-louisiana-settled-on-its-district-lines
