@@ -1,3 +1,7 @@
+**Who Should Be Allowed to Talk About Fashion?**\
+`A conversation about criticism, the vox populi and snobbery.`\
+https://nytimes.com/2025/10/15/style/fashion-weeks-critics.html
+
 **Ben Johnson, Caleb Williams respond to critiques from Troy Aikman on MNF**\
 `Troy Aikman has served as a color commentator since retiring as a three-time Super Bowl-winning quarterback for the Dallas Cowboys in 2000.`\
 https://nytimes.com/athletic/6719543/2025/10/15/bears-caleb-williams-troy-aikman-ben-johnson-mnf/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/15/world/europe/iran-france-spying-charges.html
 **Stellantis, in a Nod to Trump, Shifts Production from Canada to the U.S.**\
 `Canadian leaders blame the move by Stellantis, the automaker, to abandon production in Ontario on President Trump’s tariffs. Mr. Trump says he wants to increase domestic production.`\
 https://nytimes.com/2025/10/15/world/canada/stellantis-auto-production-canada-us-trump-tariffs.html
-
-**‘This Isn’t a Life’: Gazans Face Struggle to Rebuild Gaza City**\
-`Returning to Gaza City after a cease-fire, Palestinians will face an immense challenge to rebuild their lives in the city that’s been left in ruins after two years of war.`\
-https://nytimes.com/video/world/middleeast/100000010459336/gaza-city-struggle-ceasefire-life.html
 

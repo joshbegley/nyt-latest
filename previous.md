@@ -1,3 +1,15 @@
+**Ben Johnson, Caleb Williams respond to critiques from Troy Aikman on MNF**\
+`Troy Aikman has served as a color commentator since retiring as a three-time Super Bowl-winning quarterback for the Dallas Cowboys in 2000.`\
+https://nytimes.com/athletic/6719543/2025/10/15/bears-caleb-williams-troy-aikman-ben-johnson-mnf/
+
+**Russell Westbrook agrees to sign minimum deal with Kings: Source**\
+`Westbrook, 36, was an unrestricted free agent before the signing having last played with the Denver Nuggets last season.`\
+https://nytimes.com/athletic/6719780/2025/10/15/russell-westbrook-sacramento-kings-nba-news/
+
+**Police Officers Deliberately Hit Scooter Driver in Bike Lane, Suit Says**\
+`Video of the 2023 collision contradicts a report filed by the officers, who were members of the Community Response Team. The Police Department has since moved to rein in the unit.`\
+https://nytimes.com/2025/10/15/nyregion/nypd-crt-team-suit.html
+
 **U.S. to Take Control of More Companies to Counter China**\
 `Treasury Secretary Scott Bessent said China’s dominance of rare earths calls for a more assertive American industrial policy.`\
 https://nytimes.com/2025/10/15/us/politics/us-government-companies-china.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/15/world/canada/stellantis-auto-production-canada-us
 **‘This Isn’t a Life’: Gazans Face Struggle to Rebuild Gaza City**\
 `Returning to Gaza City after a cease-fire, Palestinians will face an immense challenge to rebuild their lives in the city that’s been left in ruins after two years of war.`\
 https://nytimes.com/video/world/middleeast/100000010459336/gaza-city-struggle-ceasefire-life.html
-
-**USWNT roster: Trinity Rodman back, Europe-based stars return for October friendlies**\
-`Coach Emma Hayes gave much-needed time off to European players during the last window, but most will be back for camp.`\
-https://nytimes.com/athletic/6717658/2025/10/15/trinity-rodman-uswnt-emma-hayes/
-
-**America Is Heavily Reliant on China for Raw Materials in Medicines**\
-`A new analysis found that nearly 700 drugs approved for use in the United States depend on chemicals solely produced in China.`\
-https://nytimes.com/2025/10/15/health/us-drugs-china-production.html
-
-**I Cut Off a Friend Who Was Abusing Her Daughter. What Can I Do for the Child?**\
-`I feel I abandoned her.`\
-https://nytimes.com/2025/10/15/magazine/magazine-email/child-abuse-ethics.html
 

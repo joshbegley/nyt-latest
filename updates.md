@@ -1,3 +1,15 @@
+**Ben Johnson, Caleb Williams respond to critiques from Troy Aikman on MNF**\
+`Troy Aikman has served as a color commentator since retiring as a three-time Super Bowl-winning quarterback for the Dallas Cowboys in 2000.`\
+https://nytimes.com/athletic/6719543/2025/10/15/bears-caleb-williams-troy-aikman-ben-johnson-mnf/
+
+**Russell Westbrook agrees to sign minimum deal with Kings: Source**\
+`Westbrook, 36, was an unrestricted free agent before the signing having last played with the Denver Nuggets last season.`\
+https://nytimes.com/athletic/6719780/2025/10/15/russell-westbrook-sacramento-kings-nba-news/
+
+**Police Officers Deliberately Hit Scooter Driver in Bike Lane, Suit Says**\
+`Video of the 2023 collision contradicts a report filed by the officers, who were members of the Community Response Team. The Police Department has since moved to rein in the unit.`\
+https://nytimes.com/2025/10/15/nyregion/nypd-crt-team-suit.html
+
 **U.S. to Take Control of More Companies to Counter China**\
 `Treasury Secretary Scott Bessent said China’s dominance of rare earths calls for a more assertive American industrial policy.`\
 https://nytimes.com/2025/10/15/us/politics/us-government-companies-china.html
