@@ -1,3 +1,15 @@
+**China Got Trump’s Attention but Renewed a Risky Game of Chicken**\
+`Xi Jinping’s need to project strength before a crucial meeting of Communist Party leaders may help explain why Beijing announced new rare earth controls.`\
+https://nytimes.com/2025/10/15/world/asia/china-trump-tariffs.html
+
+**Here are the ‘non-African-American’ voters behind the case.**\
+`By Abbie VanSickle`\
+https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/here-are-the-non-african-american-voters-behind-the-case
+
+**He Won a Tony. Then Came the Hard Part: Facing His Demons.**\
+`In his solo Off Broadway show “Other,” Ari’el Stachel explores the anxiety that has exacerbated his struggles with being an Arab Jew.`\
+https://nytimes.com/2025/10/15/theater/ariel-stachel-other.html
+
 **Soup’s On!**\
 `Soothing chicken noodle, hearty red lentil and more soups for the season.`\
 https://nytimes.com/2025/10/15/dining/soups-on.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/15/arts/battlefield-6-review.html
 **Nassau Police Charge Man With Raping and Killing Teenager in 1984**\
 `Theresa Fusco was left in the woods near the roller rink where she had worked. Three men were wrongly convicted, but authorities said they now have the real culprit.`\
 https://nytimes.com/2025/10/15/nyregion/nassau-cold-case-charges-theresa-fusco.html
-
-**The Supreme Court Case That Could Hand the House to Republicans**\
-`Democrats would be in danger of losing around a dozen majority-minority districts across the South if the court struck down part of the Voting Rights Act.`\
-https://nytimes.com/2025/10/15/upshot/supreme-court-voting-rights-gerrymander.html
-
-**Who are the lawyers appearing before the court?**\
-`By Ann E. Marimow`\
-https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/supreme-court-lawyers
-
-**Rearguments are rare, and they can signal major upheavals.**\
-`A characteristic move of the court led by Chief Justice Roberts is to go big only after an initial encounter, as it did in the Citizens United campaign finance case.`\
-https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/rearguments-are-rare-and-they-can-signal-major-upheavals
 
