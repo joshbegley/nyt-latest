@@ -1,3 +1,7 @@
+**‘It Was Just an Accident’ Review: A Liberation Story Straight From Iran**\
+`In his latest movie, the formerly banned filmmaker Jafar Panahi tells a circuitous, moving and unexpectedly funny story of resistance.`\
+https://nytimes.com/2025/10/15/movies/it-was-just-an-accident-review.html
+
 **NBC News Cuts About 7% of Staff**\
 `The layoffs come ahead of a corporate spinoff that will formally separate the parent company of NBC News from cable networks like MSNBC and CNBC.`\
 https://nytimes.com/2025/10/15/business/media/nbc-news-layoffs.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/15/us/politics/trump-covert-cia-action-venezuela.htm
 **Trump Allies Push to Bolster Putin-Backed Balkans Leader**\
 `An influence campaign has relied on allies of the president, including Rudolph W. Giuliani, to cast a Serbian politician as a victim of political persecution.`\
 https://nytimes.com/2025/10/15/us/politics/trump-dodik-srpska-lobbying.html
-
-**Schumer Calls on Trump, G.O.P. to Condemn Young Republicans’ Texts**\
-`The top Senate Democrat said the president and Republican leaders had an “obligation to denounce vile rhetoric,” even when it comes from within their own party.`\
-https://nytimes.com/2025/10/15/us/politics/schumer-young-republicans-texts.html
 
