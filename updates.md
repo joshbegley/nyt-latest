@@ -1,3 +1,15 @@
+**Devils goalie Jacob Markstrom out 'a couple of weeks' with injury**\
+`Markström suffered the injury during Monday's game against Columbus.`\
+https://nytimes.com/athletic/6720044/2025/10/15/jacob-markstrom-injury-devils/
+
+**You Made It to Harvard. But You Skip Class?**\
+`Readers respond to a Page A1 article about the lack of class attendance at Harvard. Also: Canceling a report on threats; America today.`\
+https://nytimes.com/2025/10/15/opinion/harvard-skipping-class.html
+
+**Delaware’s Highest Court Considers Elon Musk’s Tesla Pay Plan**\
+`The justices on the state Supreme Court heard arguments in a long dispute about whether the Tesla chief executive’s compensation was fair to shareholders.`\
+https://nytimes.com/2025/10/15/business/elon-musk-delaware-pay-package.html
+
 **Submit your questions for Kevin Fishbain's Bears mailbag**\
 `The Bears have won three games in a row, the last two coming down to the final seconds. What's on your mind?`\
 https://nytimes.com/athletic/6717338/2025/10/15/bears-mailbag-questions-46/
