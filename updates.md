@@ -1,3 +1,7 @@
+**USMNT 2, Australia 1: Wright scores twice but Pulisic hurt in friendly win**\
+`The USMNT bounced back from an early deficit, but all eyes are on its superstar, who exited early after a hard challenge`\
+https://nytimes.com/athletic/6717818/2025/10/14/usmnt-australia-friendly-score-pulisic-injury-haji-wright-roldan/
+
 **Canada shows toughness and character in scoreless draw with Colombia**\
 `Against Colombia, one of the world's best teams, and in front of a hostile, pro-Colombia crowd, Canada showed up remarkably well.`\
 https://nytimes.com/athletic/6717917/2025/10/14/canada-colombia-friendly-marsch/
