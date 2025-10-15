@@ -1,3 +1,15 @@
+**State Department Adviser Charged With Illegally Storing Classified Documents**\
+`Ashley Tellis, an expert on South Asian affairs, was arrested after the F.B.I. said federal agents found hundreds of pages of sensitive government records at his home in Virginia.`\
+https://nytimes.com/2025/10/15/us/politics/state-department-classified-documents-ashley-tellis.html
+
+**Yoshinobu Yamamoto, Blake Snell and the friendship that's powering the Dodgers**\
+`Snell ranks among Yamamoto's biggest fans: "He's just evolving really quickly, and it's a lot of fun to watch."`\
+https://nytimes.com/athletic/6718191/2025/10/15/dodgers-yoshinobu-yamamoto-nlcs-mlb/
+
+**My 10 best NBA players for 2025-26 (plus a few others worth watching)**\
+`If you’re drafting 10 guys for a random team to be on your roster for 2025-26 — and just that season — who do you pick?`\
+https://nytimes.com/athletic/6695794/2025/10/15/nba-best-players-nikola-jokic-shai-gilgeous-alexander-giannis/
+
 **Milwaukee Brewers look outgunned, overmatched against Los Angeles Dodgers**\
 `No Brewers hitter reached base against Yoshinobu Yamamoto after a fifth-inning walk to Joey Ortiz.`\
 https://nytimes.com/athletic/6718145/2025/10/15/dodgers-brewers-nlcs-game-2-results/
@@ -25,16 +37,4 @@ https://nytimes.com/issue/todaysinyt/2025/10/15/todays-new-york-times-internatio
 **The Phillies' roster needs a makeover. Here are the moves they should pursue**\
 `The Phillies have a lot of work to do this offseason, specifically in the outfield, at third base and in the bullpen.`\
 https://nytimes.com/athletic/6716406/2025/10/15/phillies-roster-overhaul-2026/
-
-**Paratici returns to Tottenham as joint sporting director with Lange**\
-`The 52-year-old was one of 11 former Juventus executives banned from Italian football after being accused of financial malpractice.`\
-https://nytimes.com/athletic/6249632/2025/10/15/fabio-paratici-tottenham-return/
-
-**Fantasy football best and worst Week 7 matchups: Deploy Jayden Daniels, Caleb Williams**\
-`KC Joyner offers his Week 7 matchup rankings to help you with start/sit decisions. Should you bench Daniel Jones this week?`\
-https://nytimes.com/athletic/6715547/2025/10/15/fantasy-football-best-worst-week-7-matchups-caleb-williams-jayden-daniels/
-
-**How Joe Mazzulla turned normal day covering the Celtics into my worst basketball nightmare**\
-`What was supposed to be a friendly pickup game between the media turned into utter humiliation at the hands of the Celtics coaching staff. `\
-https://nytimes.com/athletic/6717670/2025/10/15/joe-mazzulla-celtics-coaches-vs-media-pickup-game/
 

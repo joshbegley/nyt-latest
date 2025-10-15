@@ -1,3 +1,15 @@
+**State Department Adviser Charged With Illegally Storing Classified Documents**\
+`Ashley Tellis, an expert on South Asian affairs, was arrested after the F.B.I. said federal agents found hundreds of pages of sensitive government records at his home in Virginia.`\
+https://nytimes.com/2025/10/15/us/politics/state-department-classified-documents-ashley-tellis.html
+
+**Yoshinobu Yamamoto, Blake Snell and the friendship that's powering the Dodgers**\
+`Snell ranks among Yamamoto's biggest fans: "He's just evolving really quickly, and it's a lot of fun to watch."`\
+https://nytimes.com/athletic/6718191/2025/10/15/dodgers-yoshinobu-yamamoto-nlcs-mlb/
+
+**My 10 best NBA players for 2025-26 (plus a few others worth watching)**\
+`If you’re drafting 10 guys for a random team to be on your roster for 2025-26 — and just that season — who do you pick?`\
+https://nytimes.com/athletic/6695794/2025/10/15/nba-best-players-nikola-jokic-shai-gilgeous-alexander-giannis/
+
 **Milwaukee Brewers look outgunned, overmatched against Los Angeles Dodgers**\
 `No Brewers hitter reached base against Yoshinobu Yamamoto after a fifth-inning walk to Joey Ortiz.`\
 https://nytimes.com/athletic/6718145/2025/10/15/dodgers-brewers-nlcs-game-2-results/
