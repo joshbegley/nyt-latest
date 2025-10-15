@@ -1,3 +1,7 @@
+**When the Trump Guardrails Fall**\
+`The president’s second term is telling us a lot about the constraints that he faced during his first administration.`\
+https://nytimes.com/2025/10/15/us/politics/trump-second-term-guardrails.html
+
 **American Flag With Swastika Is Found in Republican Congressman’s Office**\
 `Representative Dave Taylor of Ohio condemned the symbol as “vile” and said his office was investigating with the U.S. Capitol Police.`\
 https://nytimes.com/2025/10/15/us/swastika-flag-congressional-office.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6718509/2025/10/15/harry-kane-penalty-world-cup-eng
 **Lightning trade Pheonix Copley to Kings less than two weeks after claiming him off waivers**\
 `The Lightning claimed Copley off waivers from the Kings on Oct. 2 and received future considerations in the trade.`\
 https://nytimes.com/athletic/6720695/2025/10/15/lightning-kings-pheonix-copley-trade-waivers/
-
-**F.B.I. Agent Who Raped 3 Women at Tattoo Parlors He Ran Gets 60 Years in Prison**\
-`The man, who has since been fired by the F.B.I., maintains the conduct was consensual, his lawyer said.`\
-https://nytimes.com/2025/10/15/us/fbi-agent-tattoo-studio-rape-sentence.html
 

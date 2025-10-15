@@ -1,3 +1,7 @@
+**When the Trump Guardrails Fall**\
+`The president’s second term is telling us a lot about the constraints that he faced during his first administration.`\
+https://nytimes.com/2025/10/15/us/politics/trump-second-term-guardrails.html
+
 **American Flag With Swastika Is Found in Republican Congressman’s Office**\
 `Representative Dave Taylor of Ohio condemned the symbol as “vile” and said his office was investigating with the U.S. Capitol Police.`\
 https://nytimes.com/2025/10/15/us/swastika-flag-congressional-office.html
