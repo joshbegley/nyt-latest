@@ -1,3 +1,19 @@
+**Travis Sanheim shouldering heavy workload while Flyers sort out defensive depth**\
+`Rick Tocchet is helping Sanheim stay off the ice from time to time, especially after he has a string of games with inflated minutes.`\
+https://nytimes.com/athletic/6720438/2025/10/15/flyers-travis-sanheim-jets-depth/
+
+**White Sox fan Pope Leo delivers retort to Cubs fan: 'They lost!'**\
+`The American-born pope's Chicago roots made him a lifelong fan of his hometown White Sox.`\
+https://nytimes.com/athletic/6720276/2025/10/15/pope-leo-cubs-comments-white-sox/
+
+**Trump Signs Memo Expanding His Authority to Spend Federal Money**\
+`The president gave Defense Secretary Pete Hegseth wide authority to repurpose funds to pay members of the military without approval from Congress, which has the sole constitutional authority to decide federal spending.`\
+https://nytimes.com/2025/10/15/us/politics/trump-federal-funds-government-shutdown.html
+
+**Brock Purdy, George Kittle back at 49ers practice; Ricky Pearsall still out**\
+`Purdy and Kittle were both injured in the season opener in Seattle. Purdy returned in Week 4 but aggravated his toe injury.`\
+https://nytimes.com/athletic/6720528/2025/10/15/brock-purdy-george-kittle-injury-updates/
+
 **Hamas Says It Has Returned All Hostage Remains It Can Recover, Putting Fragile Truce at Risk**\
 `The Palestinian militant group said it needed special equipment to locate and extract the remaining remains.`\
 https://nytimes.com/2025/10/15/world/middleeast/hamas-gaza-hostages-remains-israel.html
