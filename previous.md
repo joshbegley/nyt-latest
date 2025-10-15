@@ -1,5 +1,9 @@
+**USWNT in Champions League: Lily Yohannes and Alyssa Thompson help their teams in dominating wins**\
+`The goals came hours after head coach Emma Hayes named both players to her 26-player U.S. roster for October `\
+https://nytimes.com/athletic/6720961/2025/10/15/champions-league-uswnt-lily-yohannes-alyssa-thompson/
+
 **In Naomi Girma’s absence, Emma Hayes continues to experiment with the USWNT defense**\
-`For the third time this year, the USWNT roster will not include Naomi Girma, who continues to recover from a calf injury. `\
+`For the third time this year, the USWNT roster will not include Girma, who continues to recover from a calf injury. `\
 https://nytimes.com/athletic/6720890/2025/10/15/naomi-girmas-absence-emma-hayes-uswnt-defense/
 
 **How to watch Buccaneers vs. Lions: Time, TV, streaming**\
@@ -29,8 +33,4 @@ https://nytimes.com/2025/10/15/nyregion/cannabis-grants-community-groups.html
 **When the Trump Guardrails Fall**\
 `The president’s second term is telling us a lot about the constraints that he faced during his first administration.`\
 https://nytimes.com/2025/10/15/us/politics/trump-second-term-guardrails.html
-
-**American Flag With Swastika Is Found in Republican Congressman’s Office**\
-`Representative Dave Taylor of Ohio condemned the symbol as “vile” and said his office was investigating with the U.S. Capitol Police.`\
-https://nytimes.com/2025/10/15/us/swastika-flag-congressional-office.html
 

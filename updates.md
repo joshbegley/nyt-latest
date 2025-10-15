@@ -1,3 +1,11 @@
+**USWNT in Champions League: Lily Yohannes and Alyssa Thompson help their teams in dominating wins**\
+`The goals came hours after head coach Emma Hayes named both players to her 26-player U.S. roster for October `\
+https://nytimes.com/athletic/6720961/2025/10/15/champions-league-uswnt-lily-yohannes-alyssa-thompson/
+
+**In Naomi Girma’s absence, Emma Hayes continues to experiment with the USWNT defense**\
+`For the third time this year, the USWNT roster will not include Girma, who continues to recover from a calf injury. `\
+https://nytimes.com/athletic/6720890/2025/10/15/naomi-girmas-absence-emma-hayes-uswnt-defense/
+
 **In Naomi Girma’s absence, Emma Hayes continues to experiment with the USWNT defense**\
 `For the third time this year, the USWNT roster will not include Naomi Girma, who continues to recover from a calf injury. `\
 https://nytimes.com/athletic/6720890/2025/10/15/naomi-girmas-absence-emma-hayes-uswnt-defense/
