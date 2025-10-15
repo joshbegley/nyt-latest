@@ -1,3 +1,11 @@
+**New York Confirms State’s First Locally Acquired Case of Chikungunya**\
+`Testing proved that a Long Island woman had been exposed to the mosquito-borne virus, which is more commonly seen in the Caribbean and Central and South America.`\
+https://nytimes.com/2025/10/14/nyregion/chikungunya-first-case-long-island.html
+
+**Mike Shildt’s exit, the GM’s future and the offense: Takeaways from A.J. Preller’s presser**\
+`The next Padres manager will inherit a roster with significant upside and significant questions. Preller attempted to answer some of those.`\
+https://nytimes.com/athletic/6716508/2025/10/14/san-diego-padres-aj-preller-presser-takeaways/
+
 **Creepy Milwaukee? Teoscar Hernández, wife leave 'haunted' Pfister Hotel**\
 `"I don't believe in ghosts," the Dodgers outfielder said. But his wife, Jennifer, urged that they avoid the team hotel in Milwaukee.`\
 https://nytimes.com/athletic/6717725/2025/10/14/dodgers-teoscar-hernandez-milwaukee-haunted-hotel/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6717447/2025/10/14/padres-manager-job-a-j-preller-m
 **ICE Is Cracking Down on Chicago. Some Chicagoans Are Fighting Back.**\
 `Residents have begun forming volunteer groups to monitor their neighborhoods for federal immigration agents. Others honk their horns or blow whistles when they see agents nearby.`\
 https://nytimes.com/2025/10/14/us/chicago-ice-trump.html
-
-**Trump Awards Charlie Kirk the Presidential Medal of Freedom**\
-`President Trump presented the medal to Charlie Kirk’s widow, Erika, on what would have been his 32nd birthday.`\
-https://nytimes.com/2025/10/14/us/politics/trump-charlie-kirk-medal.html
-
-**Ex-Twins skipper Rocco Baldelli enjoying time off, would 'love' to manage again**\
-`In the days after he was let go, Baldelli heard from many in his baseball community, which uplifted his spirits.`\
-https://nytimes.com/athletic/6717382/2025/10/14/minnesota-twins-rocco-baldelli-interview-managing-opportunities/
 
