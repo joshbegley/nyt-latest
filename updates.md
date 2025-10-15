@@ -1,3 +1,7 @@
+**NBC News Cuts About 7% of Staff**\
+`The layoffs come ahead of a corporate spinoff that will formally separate the parent company of NBC News from cable networks like MSNBC and CNBC.`\
+https://nytimes.com/2025/10/15/business/media/nbc-news-layoffs.html
+
 **Pochettino believes weather, altitude could be factors in Pulisic injury. Is he right?**\
 `The USMNT head coach says there was a "risk" in his squad playing in sultry Austin and chilly Denver across four days`\
 https://nytimes.com/athletic/6719663/2025/10/15/pulisic-injury-pochettino-weather-altitude/
