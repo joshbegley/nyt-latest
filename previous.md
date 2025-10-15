@@ -1,3 +1,7 @@
+**The Lonely House Republican Still Coming to Work During the Shutdown**\
+`Representative Kevin Kiley of California has criticized his own party for keeping the House out of session during the shutdown. He is battling boredom and disaffection as the stalemate drags on.`\
+https://nytimes.com/2025/10/15/us/politics/kevin-kiley-shutdown.html
+
 **How tall is Victor Wembanyama? We're still figuring it out together**\
 `Is he 7-4? 7-7? No one seems to really know. "I got no clue," his coach said Wednesday.`\
 https://nytimes.com/athletic/6719924/2025/10/15/victor-wembanyama-height-measurements-spurs-nba/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6719937/2025/10/15/uswnt-october-roster-full-time/
 **Trump Considers Overhaul of Refugee System That Would Favor White People**\
 `The proposals would transform a program aimed at helping the most vulnerable people in the world into one that gives preference to mostly white people who say they are being persecuted.`\
 https://nytimes.com/2025/10/15/us/politics/trump-refugee-white-people.html
-
-**Texas Tech, Kansas fined and reprimanded after tortilla-toss fallout**\
-`Texas Tech's fine was for "repeated instances" of fans throwing objects onto the field, and Kansas' was for "disparaging comments."`\
-https://nytimes.com/athletic/6720090/2025/10/15/texas-tech-kansas-big-12-fined-tortilla-toss/
 

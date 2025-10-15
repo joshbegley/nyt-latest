@@ -1,3 +1,7 @@
+**The Lonely House Republican Still Coming to Work During the Shutdown**\
+`Representative Kevin Kiley of California has criticized his own party for keeping the House out of session during the shutdown. He is battling boredom and disaffection as the stalemate drags on.`\
+https://nytimes.com/2025/10/15/us/politics/kevin-kiley-shutdown.html
+
 **How tall is Victor Wembanyama? We're still figuring it out together**\
 `Is he 7-4? 7-7? No one seems to really know. "I got no clue," his coach said Wednesday.`\
 https://nytimes.com/athletic/6719924/2025/10/15/victor-wembanyama-height-measurements-spurs-nba/
