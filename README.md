@@ -1,3 +1,11 @@
+**Tracing the roots of Ruben Amorim's 'idea'**\
+`Ruben Amorim's 3-4-3 system has defined his time in charge of Manchester United, but why is it so important to him and will he ever change?`\
+https://nytimes.com/athletic/6706660/2025/10/15/ruben-amorim-formation-change/
+
+**How to fuel Woltemade (and other footballing ectomorphs)**\
+`Keeping players of the Newcastle striker's unusually tall and thin physique energised is not straightforward`\
+https://nytimes.com/athletic/6713380/2025/10/15/nick-woltemade-newcastle-nutrition/
+
 **Fred Vasseur on working with Lewis Hamilton: 'We need to improve step by step'**\
 `Taking the reins of the most famous and successful team in F1 history brings with it great pressure`\
 https://nytimes.com/athletic/6716199/2025/10/15/fred-vasseur-interview-ferrari-lewis-hamilton/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6717933/2025/10/14/dodgers-brewers-game-2-takeaways
 **USMNT 2, Australia 1: Wright scores twice but Pulisic hurt in friendly win**\
 `The USMNT bounced back from an early deficit, but all eyes are on its superstar, who exited early after a hard challenge`\
 https://nytimes.com/athletic/6717818/2025/10/14/usmnt-australia-friendly-score-pulisic-injury-haji-wright-roldan/
-
-**Canada shows toughness and character in scoreless draw with Colombia**\
-`Against Colombia, one of the world's best teams, and in front of a hostile, pro-Colombia crowd, Canada showed up remarkably well.`\
-https://nytimes.com/athletic/6717917/2025/10/14/canada-colombia-friendly-marsch/
-
-**President Trump once again suggests relocating World Cup matches**\
-`Trump claims he would consider calling FIFA’s president Gianni Infantino to move games from cities that he deems unsafe.`\
-https://nytimes.com/athletic/6717958/2025/10/14/president-trump-relocate-world-cup-matches/
 

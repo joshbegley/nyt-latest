@@ -1,3 +1,23 @@
+**Fred Vasseur on working with Lewis Hamilton: 'We need to improve step by step'**\
+`Taking the reins of the most famous and successful team in F1 history brings with it great pressure`\
+https://nytimes.com/athletic/6716199/2025/10/15/fred-vasseur-interview-ferrari-lewis-hamilton/
+
+**London Became a Global Hub for Phone Theft. Now We Know Why.**\
+`About 80,000 phones were stolen in the British capital last year. The police are finally discovering where many of them went.`\
+https://nytimes.com/2025/10/15/world/europe/london-police-phone-theft-china-gang.html
+
+**Connections: Sports Edition Coach: Hints for Oct. 15, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6717892/2025/10/15/connections-sports-edition-hints-for-oct-15-2025/
+
+**Fantasy football rankings Week 7: Sleepers, projections, starts, Jameson Williams, Harold Fannin and more**\
+`Jake Ciely runs through his player rankings for Week 7, and expects big things for rookie Harold Fannin if David Njoku is out this Sunday.`\
+https://nytimes.com/athletic/6717089/2025/10/15/fantasy-football-rankings-week-7-sleepers-projections-starts-jameson-williams-harold-fannin/
+
+**Corrections: Oct. 15, 2025**\
+`Corrections that appeared in print on Wednesday, Oct. 15, 2025.`\
+https://nytimes.com/2025/10/15/pageoneplus/corrections-oct-15-2025.html
+
 **Quote of the Day: You Can No Longer Trust Your Eyes**\
 `Quotation of the Day for Wednesday, October 15, 2025.`\
 https://nytimes.com/2025/10/14/pageoneplus/quote-of-the-day-you-can-no-longer-trust-your-eyes.html
