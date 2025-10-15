@@ -1,5 +1,9 @@
+**Judge Temporarily Blocks Transfer of Miami Property for Trump Library**\
+`A judge said that a state college had failed to provide reasonable public notice before taking steps to convey the land it owned.`\
+https://nytimes.com/2025/10/14/us/miami-trump-library.html
+
 **Inmates Make Brazen Escape in Guatemala**\
-`“I’m not going to deny the reality — there’s no good explanation,” the interior minister said, after the inmates slipped out, perhaps over a period of time.`\
+`“I’m not going to deny the reality — there’s no good explanation,” the interior minister said of how the 20 inmates had slipped out, perhaps over a period of time.`\
 https://nytimes.com/2025/10/14/world/americas/guatemala-prison-escape.html
 
 **A.J. Preller argues that managing the Padres is a plum job. But is that just an illusion?**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/14/us/videos-ice-interactions.html
 **Giants speak with former Orioles skipper Brandon Hyde about open manager position: Source**\
 `Hyde, a North Bay native, won 101 games with the Orioles in 2023 but his team got off to a slow start in 2025 and he was fired in May.`\
 https://nytimes.com/athletic/6717439/2025/10/14/giants-brandon-hyde-manager-opening/
-
-**Yankees make 2 coaching changes to Aaron Boone's staff: Source**\
-`Mike Harkey had been the Yankees' longest tenured coach and was a favorite among players. Travis Chapman held numerous roles in the org.`\
-https://nytimes.com/athletic/6717408/2025/10/14/yankees-make-two-coaching-changes-to-aaron-boones-staff-source/
 
