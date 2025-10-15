@@ -1,3 +1,7 @@
+**Fred Vasseur on working with Lewis Hamilton: 'We need to improve step by step'**\
+`Taking the reins of the most famous and successful team in F1 history brings with it great pressure`\
+https://nytimes.com/athletic/6716199/2025/10/15/fred-vasseur-interview-ferrari-lewis-hamilton/
+
 **London Became a Global Hub for Phone Theft. Now We Know Why.**\
 `About 80,000 phones were stolen in the British capital last year. The police are finally discovering where many of them went.`\
 https://nytimes.com/2025/10/15/world/europe/london-police-phone-theft-china-gang.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6717917/2025/10/14/canada-colombia-friendly-marsch/
 **President Trump once again suggests relocating World Cup matches**\
 `Trump claims he would consider calling FIFA’s president Gianni Infantino to move games from cities that he deems unsafe.`\
 https://nytimes.com/athletic/6717958/2025/10/14/president-trump-relocate-world-cup-matches/
-
-**Sign of Justice**\
-`Christina Iverson and Nick Offerman make a handy collaboration debut.`\
-https://nytimes.com/2025/10/14/crosswords/daily-puzzle-2025-10-15.html
 
