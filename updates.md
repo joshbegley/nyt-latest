@@ -1,3 +1,7 @@
+**Inmates Make Brazen Escape in Guatemala**\
+`“I’m not going to deny the reality — there’s no good explanation,” the interior minister said, after the inmates slipped out, perhaps over a period of time.`\
+https://nytimes.com/2025/10/14/world/americas/guatemala-prison-escape.html
+
 **A.J. Preller argues that managing the Padres is a plum job. But is that just an illusion?**\
 `On the surface, the Padres are a playoff contender with a star-studded roster. But the lightest scratch reveals a lot of uncertainty.`\
 https://nytimes.com/athletic/6717447/2025/10/14/padres-manager-job-a-j-preller-mike-shildt/
