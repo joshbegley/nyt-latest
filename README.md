@@ -1,3 +1,11 @@
+**In Naomi Girma’s absence, Emma Hayes continues to experiment with the USWNT defense**\
+`For the third time this year, the USWNT roster will not include Naomi Girma, who continues to recover from a calf injury. `\
+https://nytimes.com/athletic/6720890/2025/10/15/naomi-girmas-absence-emma-hayes-uswnt-defense/
+
+**How to watch Buccaneers vs. Lions: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Buccaneers play the Detroit Lions, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6721047/2025/10/15/buccaneers-vs-lions-stream-how-to-watch-oct-20/
+
 **How to watch Brewers at Dodgers: Game 3 Time, TV, streaming**\
 `Find out how to watch the Milwaukee Brewers play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6721004/2025/10/15/brewers-vs-dodgers-stream-how-to-watch-oct-16/
@@ -25,12 +33,4 @@ https://nytimes.com/2025/10/15/us/politics/trump-second-term-guardrails.html
 **American Flag With Swastika Is Found in Republican Congressman’s Office**\
 `Representative Dave Taylor of Ohio condemned the symbol as “vile” and said his office was investigating with the U.S. Capitol Police.`\
 https://nytimes.com/2025/10/15/us/swastika-flag-congressional-office.html
-
-**Tiny Love Stories: ‘I Might’ve Cast a Love Spell’**\
-`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
-https://nytimes.com/2025/10/15/style/tiny-modern-love-stories-i-mightve-cast-a-love-spell.html
-
-**Could Fred Warner return for playoffs? Unlikely, but surgeons see one possible scenario**\
-`Kyle Shanahan said Warner's Tuesday surgery went well, but he did not provide a timeline for the middle linebacker's return.`\
-https://nytimes.com/athletic/6720748/2025/10/15/fred-warner-injury-timeline-49ers/
 

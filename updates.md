@@ -1,3 +1,11 @@
+**How to watch Brewers at Dodgers: Game 3 Time, TV, streaming**\
+`Find out how to watch the Milwaukee Brewers play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6721004/2025/10/15/brewers-vs-dodgers-stream-how-to-watch-oct-16/
+
+**Gary Bettman expresses concern that NHLers could compete on untested ice at Milan Olympics**\
+`"We've had a concern for the last two years on the progress of the rink," Bettman said after the NHL Board of Governors meeting Wednesday.`\
+https://nytimes.com/athletic/6720950/2025/10/15/olympic-hockey-nhl-untested-ice-arena/
+
 **Trump Says $16 Billion Hudson River Tunnel Project Is ‘Terminated’**\
 `It was not immediately clear what the president meant and whether the project, known as Gateway, had already been stripped of federal funding.`\
 https://nytimes.com/2025/10/15/nyregion/trump-gateway-cancellation.html
