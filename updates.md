@@ -1,3 +1,15 @@
+**China Got Trump’s Attention but Renewed a Risky Game of Chicken**\
+`Xi Jinping’s need to project strength before a crucial meeting of Communist Party leaders may help explain why Beijing announced new rare earth controls.`\
+https://nytimes.com/2025/10/15/world/asia/china-trump-tariffs.html
+
+**Here are the ‘non-African-American’ voters behind the case.**\
+`By Abbie VanSickle`\
+https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/here-are-the-non-african-american-voters-behind-the-case
+
+**He Won a Tony. Then Came the Hard Part: Facing His Demons.**\
+`In his solo Off Broadway show “Other,” Ari’el Stachel explores the anxiety that has exacerbated his struggles with being an Arab Jew.`\
+https://nytimes.com/2025/10/15/theater/ariel-stachel-other.html
+
 **Soup’s On!**\
 `Soothing chicken noodle, hearty red lentil and more soups for the season.`\
 https://nytimes.com/2025/10/15/dining/soups-on.html
