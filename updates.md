@@ -1,3 +1,7 @@
+**Canada shows toughness and character in scoreless draw with Colombia**\
+`HARRISON, New Jersey – Scoreless draws are starting to matter more than you’d think for Canada.`\
+https://nytimes.com/athletic/6717917/2025/10/14/canada-colombia-friendly-marsch/
+
 **Sign of Justice**\
 `Christina Iverson and Nick Offerman make a handy collaboration debut.`\
 https://nytimes.com/2025/10/14/crosswords/daily-puzzle-2025-10-15.html
