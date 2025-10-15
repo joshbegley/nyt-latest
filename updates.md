@@ -1,3 +1,7 @@
+**Dodgers-Brewers Game 2 takeaways: Yoshinobu Yamamoto goes the distance, L.A. takes control**\
+`MILWAUKEE — Legend has it that ghosts reside in Milwaukee’s Pfister hotel, a common stopover for major-league visitors over the years.`\
+https://nytimes.com/athletic/6717933/2025/10/14/dodgers-brewers-game-2-takeaways-yoshinobu-yamamoto-goes-the-distance-l-a-takes-control/
+
 **USMNT 2, Australia 1: Wright scores twice but Pulisic hurt in friendly win**\
 `The USMNT bounced back from an early deficit, but all eyes are on its superstar, who exited early after a hard challenge`\
 https://nytimes.com/athletic/6717818/2025/10/14/usmnt-australia-friendly-score-pulisic-injury-haji-wright-roldan/
