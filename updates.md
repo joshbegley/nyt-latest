@@ -1,3 +1,7 @@
+**Word of the Day: valiantly**\
+`This word has appeared in 41 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/10/15/learning/word-of-the-day-valiantly.html
+
 **The New York Times in Print for Wednesday, Oct. 15, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/15/todays-new-york-times

@@ -1,3 +1,7 @@
+**Word of the Day: valiantly**\
+`This word has appeared in 41 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/10/15/learning/word-of-the-day-valiantly.html
+
 **The New York Times in Print for Wednesday, Oct. 15, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/15/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6716040/2025/10/15/phil-foden-manchester-city-comeb
 **England's World Cup starts here - but there are questions Tuchel needs to answer**\
 `Bring back the big names? Who's at left back? How to deal with the heat? The questions facing the England manager...`\
 https://nytimes.com/athletic/6717267/2025/10/15/england-world-cup-thomas-tuchel/
-
-**FSG's 15 years at Liverpool: The making of a modern super club – and what comes next?**\
-`How Liverpool has been transformed in transfers, hierarchy and finances under the U.S. firm - plus the view from Boston`\
-https://nytimes.com/athletic/6713201/2025/10/15/fsg-liverpool-transfers-spend/
 
