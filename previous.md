@@ -1,3 +1,7 @@
+**Part of a 4,200-Year-Old Human Skull Is Found Along an Indiana Riverbank**\
+`The bone fragment, found in June, “is a powerful and humbling reminder that people have walked this land, our home in Fayette County, for millennia,” the county’s coroner said.`\
+https://nytimes.com/2025/10/15/us/4200-year-old-skull-indiana.html
+
 **Voting Rights Act Could Be Undercut Following Supreme Court Hearing**\
 `If the Supreme Court justices determine that lawmakers may not consider race in drawing district maps, the repercussions for the country’s political balance could be widespread.`\
 https://nytimes.com/video/us/politics/100000010459563/supreme-court-voting-rights-louisiana.html
@@ -15,7 +19,7 @@ https://nytimes.com/2025/10/15/us/brown-university-trump-compact-funding.html
 https://nytimes.com/interactive/2025/10/15/world/middleeast/president-assad-syria-officials.html
 
 **What's behind the Wild's even-strength power outage? Can a line shuffle fix it?**\
-`On the power play, the Wild look like the 80s Oilers so far this season. But at even strength, they look like the late-1990s Lightning.`\
+`On the power play, the Wild look like the '80s Oilers so far this season. But at even strength, they look like the late-1990s Lightning.`\
 https://nytimes.com/athletic/6720157/2025/10/15/wild-even-strength-line-shuffling/
 
 **Twins interview Nick Punto, former 'piranha,' among others for manager opening: Sources**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6720350/2025/10/15/blackhawks-vs-blues-stream-how-t
 **The Lonely House Republican Still Coming to Work During the Shutdown**\
 `Representative Kevin Kiley of California has criticized his own party for keeping the House out of session during the shutdown. He is battling boredom and disaffection as the stalemate drags on.`\
 https://nytimes.com/2025/10/15/us/politics/kevin-kiley-shutdown.html
-
-**How tall is Victor Wembanyama? We're still figuring it out together**\
-`Is he 7-4? 7-7? No one seems to really know. "I got no clue," his coach said Wednesday.`\
-https://nytimes.com/athletic/6719924/2025/10/15/victor-wembanyama-height-measurements-spurs-nba/
 
