@@ -1,3 +1,7 @@
+**Trump Awards Charlie Kirk the Presidential Medal of Freedom**\
+`President Trump presented the medal to Charlie Kirk’s widow, Erika, on what would have been his 32nd birthday.`\
+https://nytimes.com/2025/10/14/us/politics/trump-charlie-kirk-medal.html
+
 **Ex-Twins skipper Rocco Baldelli enjoying time off, would 'love' to manage again**\
 `In the days after he was let go, Baldelli heard from many in his baseball community, which uplifted his spirits.`\
 https://nytimes.com/athletic/6717382/2025/10/14/minnesota-twins-rocco-baldelli-interview-managing-opportunities/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6717170/2025/10/14/pirates-fans-bill-mazeroski-home
 **As Trump Hurls Fresh Threats and Insults, Hochul Has Mamdani’s Back**\
 `Zohran Mamdani, the Democratic front-runner in the New York City mayor’s race, appeared with Gov. Kathy Hochul for the first time since she endorsed him last month.`\
 https://nytimes.com/2025/10/14/nyregion/mamdani-hochul-trump.html
-
-**How to watch Commanders vs. Cowboys: Time, TV, streaming**\
-`Find out how to watch the Washington Commanders play the Dallas Cowboys, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6717496/2025/10/14/commanders-vs-cowboys-stream-how-to-watch-oct-19/
 
