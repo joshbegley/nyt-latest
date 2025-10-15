@@ -1,3 +1,19 @@
+**Exclusive: Christen Press' thank you letters to herself, football and the fans**\
+`Two-time World Cup winner Christen Press exclusively shares with The Athletic letters to her younger self, soccer and fans as she retires`\
+https://nytimes.com/athletic/6717376/2025/10/15/christen-press-uswnt-thank-you-letters/
+
+**The Voting Rights Act has faced skepticism from the court for decades.**\
+`By Abbie VanSickle`\
+https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/the-voting-rights-act-has-faced-skepticism-from-the-court-for-decades
+
+**Clashes Between Afghanistan and Pakistan Kill at Least 12**\
+`The fighting, along the countries’ border, also injured more than 100 people. Tensions have sharply escalated over the past week. Both sides accused the other of striking first.`\
+https://nytimes.com/2025/10/15/world/asia/clashes-afghanistan-pakistan.html
+
+**College Football Playoff bubble watch: Texas Tech is Big 12's best chance at at-large bid**\
+`The Red Raiders have the fifth-best odds of any team to make the Playoff.`\
+https://nytimes.com/athletic/6718749/2025/10/15/college-football-playoff-bubble-watch-texas-tech/
+
 **The case will test what is left of the Voting Rights Act after the Shelby County ruling.**\
 `In 2013, a divided Supreme Court effectively gutted the key provision of the law, but it left another tool intact. Now that provision, too, may be at risk.`\
 https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/the-case-will-test-what-is-left-of-the-voting-rights-act-after-the-shelby-county-ruling
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6717520/2025/10/15/eagles-howie-roseman-trade-targe
 **Here’s the latest.**\
 `By Abbie VanSickle`\
 https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/heres-the-latest
-
-**Live Updates: Supreme Court Will Weigh Role of Race in State Election Maps**\
-`The case over Louisiana congressional districts could have broad implications for the law and politics, and potentially gut the remaining pillar of the Voting Rights Act.`\
-https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights
-
-**How Can I Stop My Mother-in-Law From Making Insulting Compliments?**\
-`A reader also wants to find a way to gracefully extricate herself from the long hugs during which she is showered with praise for her homemaking.`\
-https://nytimes.com/2025/10/15/style/long-hugs-insulting-compliments.html
-
-**Matthew Stafford and a stingy defense: 10 stats that tell the story of Rams' season**\
-`Stafford has the offense humming at age 37. And the defense, led by Jared Verse and Byron Young, has done its part for the 4-2 Rams. `\
-https://nytimes.com/athletic/6717565/2025/10/15/rams-matthew-stafford-stats-defense/
-
-**U.S. Says It Revoked Visas of Some People Who Criticized Charlie Kirk**\
-`The State Department’s X account listed six examples of people who it said had made comments about the assassination of Mr. Kirk, a right-wing activist, and said it was withdrawing their visas.`\
-https://nytimes.com/2025/10/15/us/politics/charlie-kirk-state-department-visas.html
 
