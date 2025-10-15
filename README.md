@@ -1,3 +1,11 @@
+**Hamas Says It Has Returned All Hostage Remains It Can Recover, Putting Fragile Truce at Risk**\
+`The Palestinian militant group said it needed special equipment to locate and extract the remaining remains.`\
+https://nytimes.com/2025/10/15/world/middleeast/hamas-gaza-hostages-remains-israel.html
+
+**Brock Purdy, George Kittle back at practice; Ricky Pearsall still out**\
+`Purdy and Kittle were both injured in the season opener in Seattle. Purdy returned in Week 4 but aggravated his toe injury.`\
+https://nytimes.com/athletic/6720528/2025/10/15/brock-purdy-george-kittle-injury-updates/
+
 **Judge Throws Out Children’s Lawsuit Against Trump’s Energy Policies**\
 `The group had challenged the president’s executive orders as unconstitutional. A judge “reluctantly” said the suit was too broad in scope.`\
 https://nytimes.com/2025/10/15/climate/montana-youth-trump-climate-lawsuit-dismissed.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/15/us/politics/hegseth-russia-ukraine.html
 **Trump Offered a Helping Hand to Argentina. It Backfired.**\
 `When President Javier Milei of Argentina faced an economic meltdown, President Trump vowed to come to his aid. But that lifeline is coming at a cost.`\
 https://nytimes.com/2025/10/15/world/americas/argentina-trump-javier-milei.html
-
-**Part of a 4,200-Year-Old Human Skull Is Found Along an Indiana Riverbank**\
-`The bone fragment, found in June, “is a powerful and humbling reminder that people have walked this land, our home in Fayette County, for millennia,” the county’s coroner said.`\
-https://nytimes.com/2025/10/15/us/4200-year-old-skull-indiana.html
-
-**Voting Rights Act Could Be Undercut Following Supreme Court Hearing**\
-`If the Supreme Court justices determine that lawmakers may not consider race in drawing district maps, the repercussions for the country’s political balance could be widespread.`\
-https://nytimes.com/video/us/politics/100000010459563/supreme-court-voting-rights-louisiana.html
 
