@@ -1,3 +1,7 @@
+**Trump Rattles Vaccine Experts Over Aluminum**\
+`The president’s call for removal of the metal from childhood inoculations set off alarms. About half of shots for polio, whooping cough and other diseases would be affected.`\
+https://nytimes.com/2025/10/15/health/vaccines-aluminum-trump.html
+
 **L.A. County Declares State of Emergency Over Immigration Raids**\
 `The move would allow county officials to provide financial aid to those affected by Immigration and Customs Enforcement raids.`\
 https://nytimes.com/2025/10/15/world/americas/los-angeles-emergency-immigration-raids.html
