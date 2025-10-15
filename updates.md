@@ -1,3 +1,11 @@
+**Pulisic hurts hamstring; Pochettino cites 'massive risk' in USMNT weather shift**\
+`Christian Pulisic was injured early in the USMNT's 2-1 friendly win over Australia in Colorado, days after drawing Ecuador in Texas`\
+https://nytimes.com/athletic/6718104/2025/10/15/christian-pulisic-injury-usmnt-australia-tillman-pochettino/
+
+**Alex Bregman to opt out of Red Sox deal, retest free agency: Reports**\
+`Over 114 games, Bregman slashed .273/.360/.462 with 18 home runs and 62 RBIs, earning his third All-Star nomination. `\
+https://nytimes.com/athletic/6717830/2025/10/15/alex-bregman-red-sox-deal-opt-out-free-agency/
+
 **Pulisic hurts hamstring; Pochettino questions climate change between games**\
 `Christian Pulisic was injured early in the USMNT's 2-1 friendly win over Australia in Colorado, days after drawing Ecuador in Texas`\
 https://nytimes.com/athletic/6718104/2025/10/15/christian-pulisic-injury-usmnt-australia-tillman-pochettino/
