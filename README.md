@@ -1,3 +1,7 @@
+**Sign of Justice**\
+`Christina Iverson and Nick Offerman make a handy collaboration debut.`\
+https://nytimes.com/2025/10/14/crosswords/daily-puzzle-2025-10-15-2025.html
+
 **New York Confirms State’s First Locally Acquired Case of Chikungunya**\
 `Testing proved that a Long Island woman had been exposed to the mosquito-borne virus, which is more commonly seen in the Caribbean and Central and South America.`\
 https://nytimes.com/2025/10/14/nyregion/chikungunya-first-case-long-island.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/14/world/americas/guatemala-prison-escape.html
 **A.J. Preller argues that managing the Padres is a plum job. But is that just an illusion?**\
 `On the surface, the Padres are a playoff contender with a star-studded roster. But the lightest scratch reveals a lot of uncertainty.`\
 https://nytimes.com/athletic/6717447/2025/10/14/padres-manager-job-a-j-preller-mike-shildt/
-
-**ICE Is Cracking Down on Chicago. Some Chicagoans Are Fighting Back.**\
-`Residents have begun forming volunteer groups to monitor their neighborhoods for federal immigration agents. Others honk their horns or blow whistles when they see agents nearby.`\
-https://nytimes.com/2025/10/14/us/chicago-ice-trump.html
 
