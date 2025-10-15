@@ -1,3 +1,11 @@
+**U.S. to Take Control of More Companies to Counter China**\
+`Treasury Secretary Scott Bessent said China’s dominance of rare earths calls for a more assertive American industrial policy.`\
+https://nytimes.com/2025/10/15/us/politics/us-government-companies-china.html
+
+**Blackhawks' Nick Foligno taking leave of absence from team**\
+`Foligno, 37, is in his second season as Blackhawks captain and has two assists in four games this season.`\
+https://nytimes.com/athletic/6719695/2025/10/15/blackhawks-nick-foligno-daughter/
+
 **NFL Week 7 confidence picks: Cowboys, Colts, Vikings among upset picks**\
 `KC Joyner gives his NFL confidence picks, both straight up and against the spread, for every Week 7 game.`\
 https://nytimes.com/athletic/6718596/2025/10/15/nfl-week-7-confidence-picks-cowboys-colts-vikings-upsets-betting/
@@ -10,8 +18,8 @@ https://nytimes.com/athletic/6719583/2025/10/15/yankees-anthony-volpe-shoulder-s
 `The Fars news agency, which is affiliated with Iran’s Revolutionary Guards, identified them as Cécile Kohler and Jacques Paris. France has called the accusations against them baseless.`\
 https://nytimes.com/2025/10/15/world/europe/iran-france-spying-charges.html
 
-**A Major Automaker, in a Nod to Trump, Shifts Production from Canada to the U.S.**\
-`Canadian leaders blame the move by Stellantis to abandon production in Ontario on President Trump’s tariffs. Mr. Trump says he wants to increase production in the United States.`\
+**Stellantis, in a Nod to Trump, Shifts Production from Canada to the U.S.**\
+`Canadian leaders blame the move by Stellantis, the automaker, to abandon production in Ontario on President Trump’s tariffs. Mr. Trump says he wants to increase domestic production.`\
 https://nytimes.com/2025/10/15/world/canada/stellantis-auto-production-canada-us-trump-tariffs.html
 
 **‘This Isn’t a Life’: Gazans Face Struggle to Rebuild Gaza City**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/15/health/us-drugs-china-production.html
 **I Cut Off a Friend Who Was Abusing Her Daughter. What Can I Do for the Child?**\
 `I feel I abandoned her.`\
 https://nytimes.com/2025/10/15/magazine/magazine-email/child-abuse-ethics.html
-
-**Grijalva, Now Certified in Arizona, Demands Again That Johnson Seat Her**\
-`Representative-elect Adelita Grijalva appeared at the Capitol with other Arizona Democrats on Wednesday to criticize the Republican speaker for continuing to refuse to swear her in.`\
-https://nytimes.com/2025/10/15/us/politics/grijalva-election-arizona-johnson.html
-
-**Lowetide: Is Oilers coach Kris Knoblauch embracing youth in early going?**\
-`Entering this season, Knoblauch did not have the reputation for championing NHL freshmen.`\
-https://nytimes.com/athletic/6716354/2025/10/15/edmonton-oilers-rookies-coach-stats-2025/
 

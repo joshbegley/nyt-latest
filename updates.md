@@ -1,3 +1,15 @@
+**U.S. to Take Control of More Companies to Counter China**\
+`Treasury Secretary Scott Bessent said China’s dominance of rare earths calls for a more assertive American industrial policy.`\
+https://nytimes.com/2025/10/15/us/politics/us-government-companies-china.html
+
+**Blackhawks' Nick Foligno taking leave of absence from team**\
+`Foligno, 37, is in his second season as Blackhawks captain and has two assists in four games this season.`\
+https://nytimes.com/athletic/6719695/2025/10/15/blackhawks-nick-foligno-daughter/
+
+**Stellantis, in a Nod to Trump, Shifts Production from Canada to the U.S.**\
+`Canadian leaders blame the move by Stellantis, the automaker, to abandon production in Ontario on President Trump’s tariffs. Mr. Trump says he wants to increase domestic production.`\
+https://nytimes.com/2025/10/15/world/canada/stellantis-auto-production-canada-us-trump-tariffs.html
+
 **NFL Week 7 confidence picks: Cowboys, Colts, Vikings among upset picks**\
 `KC Joyner gives his NFL confidence picks, both straight up and against the spread, for every Week 7 game.`\
 https://nytimes.com/athletic/6718596/2025/10/15/nfl-week-7-confidence-picks-cowboys-colts-vikings-upsets-betting/
