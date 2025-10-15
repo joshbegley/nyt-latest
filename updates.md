@@ -1,3 +1,11 @@
+**Ravens mailbag: How much blame does John Harbaugh deserve for the slow start?**\
+`Baltimore has the look of a broken team. But, with so many injuries to key players, is the criticism directed at Harbaugh warranted?`\
+https://nytimes.com/athletic/6717020/2025/10/15/ravens-mailbag-coach-john-harbaugh-future/
+
+**Exploring Browns potential trade candidates, from Jerome Ford to David Njoku**\
+`With the trade deadline fast approaching, Cleveland could again be active as part of a further effort to build a better product for 2026. `\
+https://nytimes.com/athletic/6716978/2025/10/15/browns-trade-deadline-candidates-david-njoku/
+
 **How a reluctant Division II transfer became an SEC phenomenon at Ole Miss**\
 `Ferris State transfer Trinidad Chambliss has been a surprise breakout star. Can he lead Ole Miss past Georgia and on a run in the SEC?`\
 https://nytimes.com/athletic/6716551/2025/10/15/trinidad-chambliss-ole-miss-ferris-state/
