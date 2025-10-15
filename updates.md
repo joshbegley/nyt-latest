@@ -1,3 +1,7 @@
+**'We found a (bleeping) way!': How another late rally energized the Bears**\
+`Ben Johnson's Type-A competitive nature is resonating. His players' response has helped spark a three-game winning streak.`\
+https://nytimes.com/athletic/6717354/2025/10/15/bears-ben-johnson-rally-commanders/
+
 **What Jerry Jones said: Supporting Matt Eberflus, playoff hopes still and trade talks**\
 `Despite Dallas' defensive issues, Jerry Jones likes his team's pass-rush group. "We've got a real strength there."`\
 https://nytimes.com/athletic/6717733/2025/10/15/cowboys-jerry-jones-eberflus-playoffs-trade/
