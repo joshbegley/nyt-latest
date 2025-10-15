@@ -1,3 +1,5 @@
+
+
 **Devils goalie Jacob Markstrom out 'a couple of weeks' with injury**\
 `Markström suffered the injury during Monday's game against Columbus.`\
 https://nytimes.com/athletic/6720044/2025/10/15/jacob-markstrom-injury-devils/
