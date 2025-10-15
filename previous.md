@@ -1,3 +1,27 @@
+**Brown University Rejects a White House ‘Compact’ to Receive Special Treatment**\
+`Brown was the second university to turn down the deal, which would have given a funding preference to universities that agreed to certain requirements, including capping international students.`\
+https://nytimes.com/2025/10/15/us/brown-university-trump-compact-funding.html
+
+**The Missing Enforcers of the Assad Regime**\
+`An ongoing reporting project to uncover the roles and whereabouts of the key officials who powered President Bashar al-Assad’s brutal reign in Syria.`\
+https://nytimes.com/interactive/2025/10/15/world/middleeast/president-assad-syria-officials.html
+
+**What's behind the Wild's even-strength power outage? Can a line shuffle fix it?**\
+`On the power play, the Wild look like the 80s Oilers so far this season. But at even strength, they look like the late-1990s Lightning.`\
+https://nytimes.com/athletic/6720157/2025/10/15/wild-even-strength-line-shuffling/
+
+**Twins interview Nick Punto, former 'piranha,' among others for manager opening: Sources**\
+`Punto led a group of Twins players whom Ozzie Guillen labeled "piranhas" because of their small-ball tactics against his White Sox.`\
+https://nytimes.com/athletic/6720255/2025/10/15/twins-interview-nick-punto-for-manager-padres/
+
+**How to watch Flames vs. Mammoth: Time, TV, streaming**\
+`Find out how to watch the Calgary Flames play the Utah Mammoth, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6720353/2025/10/15/flames-vs-mammoth-stream-how-to-watch-oct-15/
+
+**How to watch Blackhawks vs. Blues: Time, TV, streaming**\
+`Find out how to watch the Chicago Blackhawks play the St. Louis Blues, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6720350/2025/10/15/blackhawks-vs-blues-stream-how-to-watch-oct-15/
+
 **The Lonely House Republican Still Coming to Work During the Shutdown**\
 `Representative Kevin Kiley of California has criticized his own party for keeping the House out of session during the shutdown. He is battling boredom and disaffection as the stalemate drags on.`\
 https://nytimes.com/2025/10/15/us/politics/kevin-kiley-shutdown.html
@@ -13,28 +37,4 @@ https://nytimes.com/2025/10/15/opinion/gaza-hostages-israel-war-west-bank.html
 **D’Angelo’s Pleasure Principle**\
 `The singer and songwriter’s art of elegant seduction never required him to raise his voice, or lose his desperation, humor or awareness.`\
 https://nytimes.com/2025/10/15/arts/music/dangelo-vocals-apollo-concert.html
-
-**Derek Rose, Impeccable Purveyor of Luxury Pajamas, Dies at 93**\
-`His colorful men’s nightwear was like something made on Savile Row in London — perfect, pricey — except that it was rarely seen outside the bedroom.`\
-https://nytimes.com/2025/10/15/style/derek-rose-dead.html
-
-**‘It Was Just an Accident’ Review: A Liberation Story Straight From Iran**\
-`In his latest movie, the formerly banned filmmaker Jafar Panahi tells a circuitous, moving and unexpectedly funny story of resistance.`\
-https://nytimes.com/2025/10/15/movies/it-was-just-an-accident-review.html
-
-**NBC News Cuts About 7% of Staff**\
-`The layoffs come ahead of a corporate spinoff that will formally separate the parent company of NBC News from cable networks like MSNBC and CNBC.`\
-https://nytimes.com/2025/10/15/business/media/nbc-news-layoffs.html
-
-**Pochettino believes weather, altitude could be factors in Pulisic injury. Is he right?**\
-`The USMNT head coach says there was a "risk" in his squad playing in sultry Austin and chilly Denver across four days`\
-https://nytimes.com/athletic/6719663/2025/10/15/pulisic-injury-pochettino-weather-altitude/
-
-**Full Time: Breaking down the USWNT's October roster**\
-`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
-https://nytimes.com/athletic/6719937/2025/10/15/uswnt-october-roster-full-time/
-
-**Trump Considers Overhaul of Refugee System That Would Favor White People**\
-`The proposals would transform a program aimed at helping the most vulnerable people in the world into one that gives preference to mostly white people who say they are being persecuted.`\
-https://nytimes.com/2025/10/15/us/politics/trump-refugee-white-people.html
 
