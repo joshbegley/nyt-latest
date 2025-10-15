@@ -1,3 +1,11 @@
+**Rory McIlroy eyeing Ryder Cup captaincy, but 'not until the mid-2030s'**\
+`McIlroy praised former European captains who stood out to him during his time playing, but said he hopes to be playing in two years.`\
+https://nytimes.com/athletic/6719339/2025/10/15/rory-mcilroy-ryder-cup-captain-2030/
+
+**How a leading sports investor picked their next big funding bet: MoneyCall**\
+`More in this week's sports business cheat sheet: WNBA labor-pocalypse, what next at Penn State, FSG and Liverpool at 15 and golf resiliency.`\
+https://nytimes.com/athletic/6719775/2025/10/15/alexis-ohanian-lovb-los-angeles-moneycall/
+
 **Who Should Be Allowed to Talk About Fashion?**\
 `A conversation about criticism, the vox populi and snobbery.`\
 https://nytimes.com/2025/10/15/style/fashion-weeks-critics.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6718596/2025/10/15/nfl-week-7-confidence-picks-cowb
 **After downplaying injury, Yankees' Anthony Volpe undergoes offseason shoulder surgery**\
 `Volpe first hurt his shoulder in May. The Yankees downplayed it having an impact on his performance.`\
 https://nytimes.com/athletic/6719583/2025/10/15/yankees-anthony-volpe-shoulder-surgery-struggles/
-
-**Iran Sentences 2 French Citizens to Prison on Spying Charges**\
-`The Fars news agency, which is affiliated with Iran’s Revolutionary Guards, identified them as Cécile Kohler and Jacques Paris. France has called the accusations against them baseless.`\
-https://nytimes.com/2025/10/15/world/europe/iran-france-spying-charges.html
-
-**Stellantis, in a Nod to Trump, Shifts Production from Canada to the U.S.**\
-`Canadian leaders blame the move by Stellantis, the automaker, to abandon production in Ontario on President Trump’s tariffs. Mr. Trump says he wants to increase domestic production.`\
-https://nytimes.com/2025/10/15/world/canada/stellantis-auto-production-canada-us-trump-tariffs.html
 

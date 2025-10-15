@@ -1,3 +1,7 @@
+**Who Should Be Allowed to Talk About Fashion?**\
+`A conversation about criticism, the vox populi and snobbery.`\
+https://nytimes.com/2025/10/15/style/fashion-weeks-critics.html
+
 **Ben Johnson, Caleb Williams respond to critiques from Troy Aikman on MNF**\
 `Troy Aikman has served as a color commentator since retiring as a three-time Super Bowl-winning quarterback for the Dallas Cowboys in 2000.`\
 https://nytimes.com/athletic/6719543/2025/10/15/bears-caleb-williams-troy-aikman-ben-johnson-mnf/
