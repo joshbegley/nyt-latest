@@ -1,3 +1,11 @@
+**The Penny’s Demise Is Leaving Some Businesses Shortchanged**\
+`Some stores are rounding transactions to the nearest nickel and encouraging customers to pay with plastic, citing the Treasury Department’s decision to phase out the penny.`\
+https://nytimes.com/2025/10/15/business/penny-circulation-retailers-change.html
+
+**What Do You Give Someone Who’s Just Gotten Engaged?**\
+`A roundup of T Magazine’s favorite gifts, including whimsical pepper mills, sapphire earrings and more.`\
+https://nytimes.com/2025/10/15/t-magazine/engagement-gift-ideas.html
+
 **Nick Robertson trade possibility bubbles again. What now for the Leafs forward?**\
 `Robertson hasn’t been able to secure a permanent place in the Leafs lineup, but he’s shown enough to dissuade them from giving him away.`\
 https://nytimes.com/athletic/6720366/2025/10/15/nick-robertson-trade-possibility-maple-leafs/
@@ -21,12 +29,4 @@ https://nytimes.com/athletic/6720276/2025/10/15/pope-leo-cubs-comments-white-sox
 **Trump Signs Memo Expanding His Authority to Spend Federal Money**\
 `The president gave Defense Secretary Pete Hegseth wide authority to repurpose funds to pay members of the military without approval from Congress, which has the sole constitutional authority to decide federal spending.`\
 https://nytimes.com/2025/10/15/us/politics/trump-federal-funds-government-shutdown.html
-
-**Hamas Says It Has Returned All Hostage Remains It Can Recover, Putting Fragile Truce at Risk**\
-`The Palestinian militant group said it needed special equipment to locate and extract the remaining remains.`\
-https://nytimes.com/2025/10/15/world/middleeast/hamas-gaza-hostages-remains-israel.html
-
-**Brock Purdy, George Kittle back at 49ers practice; Ricky Pearsall still out**\
-`Purdy and Kittle were both injured in the season opener in Seattle. Purdy returned in Week 4 but aggravated his toe injury.`\
-https://nytimes.com/athletic/6720528/2025/10/15/brock-purdy-george-kittle-injury-updates/
 
