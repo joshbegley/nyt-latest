@@ -1,3 +1,7 @@
+**Bills bye week thoughts: Glaring need as trade deadline nears and an idea for James Cook**\
+`Plus, the Bills are in a precarious situation at cornerback.`\
+https://nytimes.com/athletic/6717010/2025/10/15/bills-bye-week-trade-deadline-wide-receiver/
+
 **U.S. Says It Revoked Visas of Some People Who Criticized Charlie Kirk**\
 `The State Department’s X account listed six examples of people whom it said had made comments about the assassination of Mr. Kirk, a right-wing activist, and said it was withdrawing their visas.`\
 https://nytimes.com/2025/10/15/us/politics/charlie-kirk-state-department-visas.html

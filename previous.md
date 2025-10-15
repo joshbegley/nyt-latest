@@ -6,7 +6,7 @@ https://nytimes.com/2025/10/15/us/politics/charlie-kirk-state-department-visas.h
 `The Magic look poised to have their best season in over a decade. Find out how to catch every game as they face mounting expectations. `\
 https://nytimes.com/athletic/6711056/2025/10/15/orlando-magic-tv-london-berlin-how-to-watch/
 
-**Bills bye week thoughts: Glaring need as trade deadline nears, an idea for James Cook, and more**\
+**Bills bye week thoughts: Glaring need as trade deadline nears and an idea for James Cook**\
 `Plus, the Bills are in a precarious situation at cornerback.`\
 https://nytimes.com/athletic/6717010/2025/10/15/bills-bye-week-trade-deadline-wide-receiver/
 

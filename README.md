@@ -1,3 +1,7 @@
+**Matthew Stafford and a stingy defense: 10 stats that tell the story of Rams' season**\
+`Stafford has the offense humming at age 37. And the defense, led by Jared Verse and Byron Young, has done its part for the 4-2 Rams. `\
+https://nytimes.com/athletic/6717565/2025/10/15/rams-matthew-stafford-stats-defense/
+
 **U.S. Says It Revoked Visas of Some People Who Criticized Charlie Kirk**\
 `The State Department’s X account listed six examples of people whom it said had made comments about the assassination of Mr. Kirk, a right-wing activist, and said it was withdrawing their visas.`\
 https://nytimes.com/2025/10/15/us/politics/charlie-kirk-state-department-visas.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6717868/2025/10/15/mandel-mailbag-indiana-playoff-c
 **Oilers thoughts: Stuart Skinner bounces back, roster decisions and lineup tweaks**\
 `The Oilers opened a five-game road trip with a 2-0 win over the Rangers at Madison Square Garden on Tuesday night.`\
 https://nytimes.com/athletic/6718043/2025/10/15/edmonton-oilers-roster-lineup-stuart-skinner-shutout/
-
-**Swishing and dishing, streaming and beaming: How to watch the New York Knicks in 2025-26**\
-`After two decades of indignities, the Knicks finally pieced together a rewarding season. Here's how to watch their 2025-26 follow-up.`\
-https://nytimes.com/athletic/6716733/2025/10/15/new-york-knicks-tv-streaming-how-to-watch-schedule/
 
