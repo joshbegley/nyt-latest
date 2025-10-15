@@ -1,3 +1,7 @@
+**Tiny Love Stories: ‘I Might’ve Cast a Love Spell’**\
+`Modern Love in miniature, featuring reader-submitted stories of no more than 100 words.`\
+https://nytimes.com/2025/10/15/style/tiny-modern-love-stories-i-mightve-cast-a-love-spell.html
+
 **Could Fred Warner return for playoffs? Unlikely, but surgeons see one possible scenario**\
 `Kyle Shanahan said Warner's Tuesday surgery went well, but he did not provide a timeline for the middle linebacker's return.`\
 https://nytimes.com/athletic/6720748/2025/10/15/fred-warner-injury-timeline-49ers/
