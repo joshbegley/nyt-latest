@@ -1,3 +1,7 @@
+**Angels, Skaggs family paint wildly different pictures of late pitcher in opening statements**\
+`“If you wanted to go out and look at two different people... and get 180-degree different views, today was the day,” said a Skaggs attorney.`\
+https://nytimes.com/athletic/6717570/2025/10/14/angels-trial-tyler-skaggs-opening-statements/
+
 **Woman Is Granted a Protective Order Against Florida Congressman**\
 `Representative Cory Mills’s former girlfriend, Lindsey Langston, the reigning Miss United States, told a judge that he had threatened to release sexually explicit videos of her.`\
 https://nytimes.com/2025/10/14/us/cory-mills-lindsey-langston-florida-rep.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/14/nyregion/doctor-ny-nj-rape-charges.html
 **Dawn Staley doesn't expect a female head coach in the NBA anytime soon**\
 `South Carolina's coach wasn't optimistic about the prospect at SEC media day Tuesday: "I hope I'm wrong."`\
 https://nytimes.com/athletic/6717296/2025/10/14/dawn-staley-woman-head-coach-nba/
-
-**Share Your Videos of ICE Interactions**\
-`The Times is looking for examples of interactions between federal immigration agents and residents across the country.`\
-https://nytimes.com/2025/10/14/us/videos-ice-interactions.html
 
