@@ -1,3 +1,7 @@
+**Woman Is Granted a Protective Order Against Florida Congressman**\
+`Representative Cory Mills’s former girlfriend, Lindsey Langston, the reigning Miss United States, told a judge that he had threatened to release sexually explicit videos of her.`\
+https://nytimes.com/2025/10/14/us/cory-mills-lindsey-langston-florida-rep.html
+
 **Judge Temporarily Blocks Transfer of Miami Property for Trump Library**\
 `A judge said that a state college had failed to provide reasonable public notice before taking steps to convey the land it owned.`\
 https://nytimes.com/2025/10/14/us/miami-trump-library.html
