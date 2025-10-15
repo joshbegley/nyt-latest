@@ -1,3 +1,7 @@
+**Trump Rattles Vaccine Experts Over Aluminum**\
+`The president’s call for removal of the metal from childhood inoculations set off alarms. About half of shots for polio, whooping cough and other diseases would be affected.`\
+https://nytimes.com/2025/10/15/health/vaccines-aluminum-trump.html
+
 **L.A. County Declares State of Emergency Over Immigration Raids**\
 `The move would allow county officials to provide financial aid to those affected by Immigration and Customs Enforcement raids.`\
 https://nytimes.com/2025/10/15/world/americas/los-angeles-emergency-immigration-raids.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6717376/2025/10/15/christen-press-uswnt-thank-you-l
 **The Voting Rights Act has faced skepticism from the court for decades.**\
 `By Abbie VanSickle`\
 https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/the-voting-rights-act-has-faced-skepticism-from-the-court-for-decades
-
-**Clashes Between Afghanistan and Pakistan Kill at Least 12**\
-`The fighting, along the countries’ border, also injured more than 100 people. Tensions have sharply escalated over the past week. Both sides accused the other of striking first.`\
-https://nytimes.com/2025/10/15/world/asia/clashes-afghanistan-pakistan.html
 
