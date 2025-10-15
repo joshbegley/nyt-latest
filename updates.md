@@ -1,3 +1,11 @@
+**Creepy Milwaukee? Teoscar Hernández, wife leave 'haunted' Pfister Hotel**\
+`"I don't believe in ghosts," the Dodgers outfielder said. But his wife, Jennifer, urged that they avoid the team hotel in Milwaukee.`\
+https://nytimes.com/athletic/6717725/2025/10/14/dodgers-teoscar-hernandez-milwaukee-haunted-hotel/
+
+**Colts reach agreement with QB Brett Rypien following Anthony Richardson's injury**\
+`Rypien will join the team’s practice squad, a league source confirmed to The Athletic..`\
+https://nytimes.com/athletic/6717737/2025/10/14/colts-backup-quarterback-brett-rypien/
+
 **Angels, Skaggs family paint wildly different pictures of late pitcher in opening statements**\
 `“If you wanted to go out and look at two different people... and get 180-degree different views, today was the day,” said a Skaggs attorney.`\
 https://nytimes.com/athletic/6717570/2025/10/14/angels-trial-tyler-skaggs-opening-statements/
