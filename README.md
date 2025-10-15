@@ -1,3 +1,7 @@
+**Woman Is Granted a Protective Order Against Florida Congressman**\
+`Representative Cory Mills’s former girlfriend, Lindsey Langston, the reigning Miss United States, told a judge that he had threatened to release sexually explicit videos of her.`\
+https://nytimes.com/2025/10/14/us/cory-mills-lindsey-langston-florida-rep.html
+
 **Judge Temporarily Blocks Transfer of Miami Property for Trump Library**\
 `A judge said that a state college had failed to provide reasonable public notice before taking steps to convey the land it owned.`\
 https://nytimes.com/2025/10/14/us/miami-trump-library.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6717296/2025/10/14/dawn-staley-woman-head-coach-nba
 **Share Your Videos of ICE Interactions**\
 `The Times is looking for examples of interactions between federal immigration agents and residents across the country.`\
 https://nytimes.com/2025/10/14/us/videos-ice-interactions.html
-
-**Giants speak with former Orioles skipper Brandon Hyde about open manager position: Source**\
-`Hyde, a North Bay native, won 101 games with the Orioles in 2023 but his team got off to a slow start in 2025 and he was fired in May.`\
-https://nytimes.com/athletic/6717439/2025/10/14/giants-brandon-hyde-manager-opening/
 
