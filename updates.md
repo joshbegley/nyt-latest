@@ -1,3 +1,7 @@
+**Justices Seemed Open to Further Limiting the Voting Rights Act**\
+`Also, a judge temporarily blocked shutdown layoffs. Here’s the latest at the end of Wednesday.`\
+https://nytimes.com/2025/10/15/briefing/supreme-court-voting-rights-act-shutdown-layoffs.html
+
 **Samsung Galaxy Ring Swells User’s Finger**\
 `All aboard the Hot Mess Express! Kevin Roose and Casey Newton, the hosts of “Hard Fork” at The New York Times, discuss the recent news story that a Samsung Galaxy Ring swelled and crushed a user’s finger, causing a missed flight and a hospital visit.`\
 https://nytimes.com/video/podcasts/100000010459527/samsung-galaxy-ring-swells-users-finger.html
