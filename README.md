@@ -1,3 +1,11 @@
+**Creepy Milwaukee? Teoscar Hernández, wife leave 'haunted' Pfister Hotel**\
+`"I don't believe in ghosts," the Dodgers outfielder said. But his wife, Jennifer, urged that they avoid the team hotel in Milwaukee.`\
+https://nytimes.com/athletic/6717725/2025/10/14/dodgers-teoscar-hernandez-milwaukee-haunted-hotel/
+
+**Colts reach agreement with QB Brett Rypien following Anthony Richardson's injury**\
+`Rypien will join the team’s practice squad, a league source confirmed to The Athletic..`\
+https://nytimes.com/athletic/6717737/2025/10/14/colts-backup-quarterback-brett-rypien/
+
 **Angels, Skaggs family paint wildly different pictures of late pitcher in opening statements**\
 `“If you wanted to go out and look at two different people... and get 180-degree different views, today was the day,” said a Skaggs attorney.`\
 https://nytimes.com/athletic/6717570/2025/10/14/angels-trial-tyler-skaggs-opening-statements/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/14/us/politics/trump-charlie-kirk-medal.html
 **Ex-Twins skipper Rocco Baldelli enjoying time off, would 'love' to manage again**\
 `In the days after he was let go, Baldelli heard from many in his baseball community, which uplifted his spirits.`\
 https://nytimes.com/athletic/6717382/2025/10/14/minnesota-twins-rocco-baldelli-interview-managing-opportunities/
-
-**Doctor Accused of Using a Gun to Force a Woman Into Sex**\
-`Maurizio Miglietta, who the authorities said boasted of law enforcement connections, was charged with rape. He practiced at hospitals in New York City and New Jersey.`\
-https://nytimes.com/2025/10/14/nyregion/doctor-ny-nj-rape-charges.html
-
-**Dawn Staley doesn't expect a female head coach in the NBA anytime soon**\
-`South Carolina's coach wasn't optimistic about the prospect at SEC media day Tuesday: "I hope I'm wrong."`\
-https://nytimes.com/athletic/6717296/2025/10/14/dawn-staley-woman-head-coach-nba/
 
