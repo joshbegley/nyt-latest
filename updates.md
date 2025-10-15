@@ -1,3 +1,11 @@
+**How to watch Falcons vs. 49ers: Time, TV, streaming**\
+`Find out how to watch the Atlanta Falcons play the San Francisco 49ers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6718286/2025/10/15/falcons-vs-49ers-stream-how-to-watch-oct-19/
+
+**How to watch Blue Jays at Mariners: Game 3 Time, TV, streaming**\
+`Find out how to watch the Toronto Blue Jays play the Seattle Mariners, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6718263/2025/10/15/blue-jays-vs-mariners-stream-how-to-watch-oct-15/
+
 **Word of the Day: valiantly**\
 `This word has appeared in 41 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/10/15/learning/word-of-the-day-valiantly.html
