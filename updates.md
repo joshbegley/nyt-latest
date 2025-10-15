@@ -1,3 +1,11 @@
+**Rory McIlroy eyeing Ryder Cup captaincy, but 'not until the mid-2030s'**\
+`McIlroy praised former European captains who stood out to him during his time playing, but said he hopes to be playing in two years.`\
+https://nytimes.com/athletic/6719339/2025/10/15/rory-mcilroy-ryder-cup-captain-2030/
+
+**How a leading sports investor picked their next big funding bet: MoneyCall**\
+`More in this week's sports business cheat sheet: WNBA labor-pocalypse, what next at Penn State, FSG and Liverpool at 15 and golf resiliency.`\
+https://nytimes.com/athletic/6719775/2025/10/15/alexis-ohanian-lovb-los-angeles-moneycall/
+
 **Who Should Be Allowed to Talk About Fashion?**\
 `A conversation about criticism, the vox populi and snobbery.`\
 https://nytimes.com/2025/10/15/style/fashion-weeks-critics.html
