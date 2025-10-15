@@ -1,3 +1,11 @@
+**The New York Times in Print for Wednesday, Oct. 15, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/15/todays-new-york-times
+
+**Trump Alone Can’t Save Argentina**\
+`An American bailout can carry the country only so far.`\
+https://nytimes.com/2025/10/15/opinion/argentina-milei-trump-bailout.html
+
 **Katie Porter Says She ‘Fell Short’ in Viral Video Moments**\
 `Videos surfaced last week showing the former congresswoman belittling a television reporter and berating an aide. Porter, who is running for California governor, pledged to do better.`\
 https://nytimes.com/2025/10/15/us/katie-porter-videos-response.html

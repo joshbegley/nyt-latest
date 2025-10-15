@@ -1,3 +1,11 @@
+**The New York Times in Print for Wednesday, Oct. 15, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/15/todays-new-york-times
+
+**Trump Alone Can’t Save Argentina**\
+`An American bailout can carry the country only so far.`\
+https://nytimes.com/2025/10/15/opinion/argentina-milei-trump-bailout.html
+
 **Katie Porter Says She ‘Fell Short’ in Viral Video Moments**\
 `Videos surfaced last week showing the former congresswoman belittling a television reporter and berating an aide. Porter, who is running for California governor, pledged to do better.`\
 https://nytimes.com/2025/10/15/us/katie-porter-videos-response.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6717267/2025/10/15/england-world-cup-thomas-tuchel/
 **FSG's 15 years at Liverpool: The making of a modern super club – and what comes next?**\
 `How Liverpool has been transformed in transfers, hierarchy and finances under the U.S. firm - plus the view from Boston`\
 https://nytimes.com/athletic/6713201/2025/10/15/fsg-liverpool-transfers-spend/
-
-**Who should be in England's World Cup squad? Our experts give their view**\
-`After England secured their place at the 2026 World Cup, who should make Thomas Tuchel's 26-man squad?`\
-https://nytimes.com/athletic/6715828/2025/10/15/england-world-cup-2026-squad-selection/
-
-**Mosquera exclusive: Arsenal's 'atmosphere of winners', Dowman and Yamal, Arteta bond**\
-`The Spanish defender speaks to The Athletic about his nerveless start to life in the Premier League at age 21`\
-https://nytimes.com/athletic/6703953/2025/10/15/cristhian-mosquera-arsenal-interview/
 
