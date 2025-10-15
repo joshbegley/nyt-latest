@@ -1,40 +1,40 @@
-**State Department Adviser Charged With Illegally Storing Classified Documents**\
-`Ashley Tellis, an expert on South Asian affairs, was arrested after the F.B.I. said federal agents found hundreds of pages of sensitive government records at his home in Virginia.`\
-https://nytimes.com/2025/10/15/us/politics/state-department-classified-documents-ashley-tellis.html
+**What Jerry Jones said: Supporting Matt Eberflus, playoff hopes still and trade talks**\
+`Despite Dallas' defensive issues, Jerry Jones likes his team's pass-rush group. "We've got a real strength there."`\
+https://nytimes.com/athletic/6717733/2025/10/15/cowboys-jerry-jones-eberflus-playoffs-trade/
 
-**Yoshinobu Yamamoto, Blake Snell and the friendship that's powering the Dodgers**\
-`Snell ranks among Yamamoto's biggest fans: "He's just evolving really quickly, and it's a lot of fun to watch."`\
-https://nytimes.com/athletic/6718191/2025/10/15/dodgers-yoshinobu-yamamoto-nlcs-mlb/
+**Veterans Javon Hargrave, Jonathan Allen must do more for Vikings defense to excel**\
+`The two free agent defensive tackles have excelled at rushing the passer, but the Vikings expect more of them against the run.`\
+https://nytimes.com/athletic/6717047/2025/10/15/vikings-javon-hargrave-jonathan-allen-defense/
 
-**My 10 best NBA players for 2025-26 (plus a few others worth watching)**\
-`If you’re drafting 10 guys for a random team to be on your roster for 2025-26 — and just that season — who do you pick?`\
-https://nytimes.com/athletic/6695794/2025/10/15/nba-best-players-nikola-jokic-shai-gilgeous-alexander-giannis/
+**Inside Steve Aoki's incredible sports card collection: Key pieces and what's next**\
+`Aoki has reached a rare point in sports card collecting — he has every card he wants. Almost.`\
+https://nytimes.com/athletic/6716683/2025/10/15/steve-aoki-sports-card-collection/
 
-**Milwaukee Brewers look outgunned, overmatched against Los Angeles Dodgers**\
-`No Brewers hitter reached base against Yoshinobu Yamamoto after a fifth-inning walk to Joey Ortiz.`\
-https://nytimes.com/athletic/6718145/2025/10/15/dodgers-brewers-nlcs-game-2-results/
+**NHL players receive a warning on Milan Olympic Village: 'Not going to be perfect'**\
+`From housing to security to food, the experience in Milan will not be to be the Ritz-Carlton lifestyle many NHLers are accustomed to.`\
+https://nytimes.com/athletic/6673842/2025/10/15/hockey-canada-olympic-village-warning/
 
-**'The most exciting game ever': 10 years later, inside the Mets' NLDS clincher**\
-`Daniel Murphy, Matt Harvey, David Wright and other Mets shared their electrifying memories for the anniversary of 2015 NLDS Game 5.`\
-https://nytimes.com/athletic/6716547/2025/10/15/mets-dodgers-nlds-2015-daniel-murphy-jacob-degrom/
+**‘Please, quick … they’re coming’: The burglary spree that terrorized some of Seattle’s best-known athletes**\
+`More than $700,000 in luxury watches, jewelry and designer leather goods were stolen over a three-month period.`\
+https://nytimes.com/athletic/6716323/2025/10/15/seattle-athletes-crime-spree-mariners-seahawks/
 
-**Pochettino's preferred USMNT World Cup squad is taking shape**\
-`The USMNT manager doesn't want any player to take his place for granted, but some clear World Cup candidates have emerged`\
-https://nytimes.com/athletic/6718302/2025/10/15/usmnt-world-cup-squad-players-pochettino-ecuador-australia/
+**Understanding the Shota Imanaga decisions that will shape the Cubs’ offseason**\
+`The creative agreement included a series of club/player options, to maintain some flexibility as the left-handed pitcher assimilated.`\
+https://nytimes.com/athletic/6717732/2025/10/15/chicago-cubs-shota-imanaga-decisions-offseason/
 
-**Amelia Dimoldenberg got F1 to try something new: Give the wheel to a creator**\
-`The star of the popular "Chicken Shop Date" series is F1's latest bet on attracting new fans who don't love racing yet, but might`\
-https://nytimes.com/athletic/6718008/2025/10/15/amelia-dimoldenberg-f1-youtube-series/
+**How money — from NIL to new revenue sharing — is changing college hockey recruiting**\
+`The Athletic spoke with more than a dozen Division I men’s college hockey coaches about the new landscape.`\
+https://nytimes.com/athletic/6707089/2025/10/15/ncaa-hockey-gavin-mckenna-nil/
 
-**Jalen Ramsey and the Steelers' new-look secondary was built to beat Bengals**\
-`They'll get their first shot against Ja'Marr Chase and Tee Higgins this week.`\
-https://nytimes.com/athletic/6717430/2025/10/15/jalen-ramsey-pittsburgh-steelers-defensive-backs/
+**A.J. Allmendinger on defining success and the power of longevity: 12 Questions**\
+`A.J. Allmendinger talks about his long career in NASCAR, making the most of it in a sport where you can't win every week, and much more.`\
+https://nytimes.com/athletic/6709580/2025/10/15/aj-allmendinger-nascar-kaulig-12-questions/
 
-**The New York Times International Edition in Print for Thursday, Oct. 16, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/10/15/todays-new-york-times-international-edition
+**Rangers set unwanted NHL record yet rightfully remain optimistic**\
+`Despite putting together good performances in their past two home games, the Rangers haven't been able to get the puck in the net.`\
+https://nytimes.com/athletic/6718013/2025/10/15/rangers-home-scoring-drought-record-miller-oilers/
 
-**The Phillies' roster needs a makeover. Here are the moves they should pursue**\
-`The Phillies have a lot of work to do this offseason, specifically in the outfield, at third base and in the bullpen.`\
-https://nytimes.com/athletic/6716406/2025/10/15/phillies-roster-overhaul-2026/
+**What NBA scouts are saying about the Magic: ‘They have enough to make a run’**\
+`What do scouts think of the Magic's chances to contend in the East? `\
+https://nytimes.com/athletic/6716563/2025/10/15/orlando-magic-nba-playoffs-east-playoffs/
 
