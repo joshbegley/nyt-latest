@@ -1,3 +1,7 @@
+**Canada shows toughness and character in scoreless draw with Colombia**\
+`HARRISON, New Jersey – Scoreless draws are starting to matter more than you’d think for Canada.`\
+https://nytimes.com/athletic/6717917/2025/10/14/canada-colombia-friendly-marsch/
+
 **President Trump once again suggests relocating World Cup matches**\
 `Trump claims he would consider calling FIFA’s president Gianni Infantino to move games from cities that he deems unsafe.`\
 https://nytimes.com/athletic/6717958/2025/10/14/president-trump-relocate-world-cup-matches/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/14/us/cory-mills-lindsey-langston-florida-rep.html
 **Judge Temporarily Blocks Transfer of Miami Property for Trump Library**\
 `A judge said that a state college had failed to provide reasonable public notice before taking steps to convey the land it owned.`\
 https://nytimes.com/2025/10/14/us/miami-trump-library.html
-
-**Inmates Make Brazen Escape in Guatemala**\
-`“I’m not going to deny the reality — there’s no good explanation,” the interior minister said of how the 20 inmates had slipped out, perhaps over a period of time.`\
-https://nytimes.com/2025/10/14/world/americas/guatemala-prison-escape.html
 
