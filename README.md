@@ -1,3 +1,15 @@
+**Grijalva, Now Certified in Arizona, Demands Again That Johnson Seat Her**\
+`Representative-elect Adelita Grijalva appeared at the Capitol with other Arizona Democrats on Wednesday to criticize the Republican speaker for continuing to refuse to swear her in.`\
+https://nytimes.com/2025/10/15/us/politics/grijalva-election-arizona-johnson.html
+
+**Lowetide: Is Oilers coach Kris Knoblauch embracing youth in early going?**\
+`Entering this season, Knoblauch did not have the reputation for championing NHL freshmen.`\
+https://nytimes.com/athletic/6716354/2025/10/15/edmonton-oilers-rookies-coach-stats-2025/
+
+**What does the court’s rejection of affirmative action suggest?**\
+`The cour`\
+https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/supreme-court-affirmative-action
+
 **Steven Stamkos opens up on his 'difficult' Lightning exit and Predators transition**\
 `Stamkos on negotiations with the Lightning: "Those people that are making those decisions, they’re not in the battle with you."`\
 https://nytimes.com/athletic/6719561/2025/10/15/steven-stamkos-predators-lightning-transition/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/15/arts/dance/review-limon-company-joyce-theater.htm
 **How to watch Panthers vs. Red Wings: Time, TV, streaming**\
 `Find out how to watch the Florida Panthers play the Detroit Red Wings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6719531/2025/10/15/panthers-vs-red-wings-stream-how-to-watch-oct-15/
-
-**How to watch Senators vs. Sabres: Time, TV, streaming**\
-`Find out how to watch the Ottawa Senators play the Buffalo Sabres, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6719529/2025/10/15/senators-vs-sabres-stream-how-to-watch-oct-15/
-
-**Jack Smith Appears in Video on Behalf of Fired Justice Department Workers**\
-`A group of former Justice Department employees used the video to criticize the Trump administration’s dismissal of prosecutors and agents, including those who worked on cases related to the president.`\
-https://nytimes.com/2025/10/15/us/jack-smith-video-justice-connection.html
-
-**Wales top scorer Jess Fishlock announces international retirement**\
-`Fishlock, 38, will call time on her international career after Wales' friendly against Australia in October.`\
-https://nytimes.com/athletic/6492622/2025/10/15/jess-fishlock-wales-retirement/
 
