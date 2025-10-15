@@ -1,3 +1,7 @@
+**Pochettino believes weather, altitude could be factors in Pulisic injury. Is he right?**\
+`The USMNT head coach says there was a "risk" in his squad playing in sultry Austin and chilly Denver across four days`\
+https://nytimes.com/athletic/6719663/2025/10/15/pulisic-injury-pochettino-weather-altitude/
+
 **Full Time: Breaking down the USWNT's October roster**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6719937/2025/10/15/uswnt-october-roster-full-time/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/15/us/politics/schumer-young-republicans-texts.html
 **Wildfire Plus Rain Brings Risks. Scientists Are Trying to Warn Residents.**\
 `Research in the U.S. Southwest could expand lifesaving efforts for hazards that follow wildfires across the globe.`\
 https://nytimes.com/2025/10/15/climate/wildfire-flash-flood-landslide-risk.html
-
-**They’re Ready to Go to Mars**\
-`Fans of the red planet joined scientists at an annual conference sponsored by the Mars Society. One attendee said he would take a “one-way ticket.”`\
-https://nytimes.com/2025/10/15/style/mars-society-convention.html
 

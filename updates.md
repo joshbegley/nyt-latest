@@ -1,3 +1,7 @@
+**Pochettino believes weather, altitude could be factors in Pulisic injury. Is he right?**\
+`The USMNT head coach says there was a "risk" in his squad playing in sultry Austin and chilly Denver across four days`\
+https://nytimes.com/athletic/6719663/2025/10/15/pulisic-injury-pochettino-weather-altitude/
+
 **Full Time: Breaking down the USWNT's October roster**\
 `Welcome to Full Time, The Athletic's women's soccer newsletter.`\
 https://nytimes.com/athletic/6719937/2025/10/15/uswnt-october-roster-full-time/
