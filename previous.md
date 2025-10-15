@@ -1,3 +1,15 @@
+**Nick Robertson trade possibility bubbles again. What now for the Leafs forward?**\
+`Robertson hasn’t been able to secure a permanent place in the Leafs lineup, but he’s shown enough to dissuade them from giving him away.`\
+https://nytimes.com/athletic/6720366/2025/10/15/nick-robertson-trade-possibility-maple-leafs/
+
+**Will A.I. Actually Want to Kill Humanity?**\
+`The researcher Eliezer Yudkowsky says that what A.I. wants most is not for humanity to live “happily ever after.” “What the entity, the organism, the A.I. ends up wanting has been and will be weird and twisty.” Yudkowsky sits down with the Times Opinion columnist Ezra Klein to discuss.`\
+https://nytimes.com/video/opinion/100000010430992/will-ai-actually-want-to-kill-humanity.html
+
+**It's time for Cubs chairman Tom Ricketts to give Jed Hoyer a top-5 payroll again**\
+`Hoyer, who got an extension this summer, should be demanding a sizable bump in his budget after a somewhat successful return to playoffs.`\
+https://nytimes.com/athletic/6720200/2025/10/15/cubs-roster-payroll-tom-ricketts-jed-hoyer/
+
 **Travis Sanheim shouldering heavy workload while Flyers sort out defensive depth**\
 `Rick Tocchet is helping Sanheim stay off the ice from time to time, especially after he has a string of games with inflated minutes.`\
 https://nytimes.com/athletic/6720438/2025/10/15/flyers-travis-sanheim-jets-depth/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/15/climate/montana-youth-trump-climate-lawsuit-dismi
 **Covid Vaccines in First Trimester Not Tied to Birth Defects, Study Finds**\
 `The results of a large study in France are consistent with previous research indicating that Covid vaccination is safe and effective in pregnancy.`\
 https://nytimes.com/2025/10/15/well/covid-vaccine-birth-defects-pregnancy.html
-
-**How to Fight a Zombie Fire**\
-`It seemed that last year’s wildfire in Los Angeles had been extinguished safely after two days. But it had just gone underground.`\
-https://nytimes.com/2025/10/15/opinion/los-angeles-zombie-fire.html
-
-**Newsom Rejects Reparations Bills in Latest Sign of Racial Justice Shift**\
-`Gov. Gavin Newsom of California vetoed bills that would have provided tangible benefits to descendants of slavery, though he approved a state agency to determine who qualifies for potential reparations.`\
-https://nytimes.com/2025/10/15/us/california-reparations-newsom-veto.html
-
-**New York Is Going to Flood. Here’s What the City Can Do to Survive.**\
-`Adaptation is a matter of survival, and the city may have to throw every solution available at a worsening situation.`\
-https://nytimes.com/interactive/2025/10/15/nyregion/new-york-climate-flooding-solutions.html
 

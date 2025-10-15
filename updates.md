@@ -1,3 +1,15 @@
+**Nick Robertson trade possibility bubbles again. What now for the Leafs forward?**\
+`Robertson hasn’t been able to secure a permanent place in the Leafs lineup, but he’s shown enough to dissuade them from giving him away.`\
+https://nytimes.com/athletic/6720366/2025/10/15/nick-robertson-trade-possibility-maple-leafs/
+
+**Will A.I. Actually Want to Kill Humanity?**\
+`The researcher Eliezer Yudkowsky says that what A.I. wants most is not for humanity to live “happily ever after.” “What the entity, the organism, the A.I. ends up wanting has been and will be weird and twisty.” Yudkowsky sits down with the Times Opinion columnist Ezra Klein to discuss.`\
+https://nytimes.com/video/opinion/100000010430992/will-ai-actually-want-to-kill-humanity.html
+
+**It's time for Cubs chairman Tom Ricketts to give Jed Hoyer a top-5 payroll again**\
+`Hoyer, who got an extension this summer, should be demanding a sizable bump in his budget after a somewhat successful return to playoffs.`\
+https://nytimes.com/athletic/6720200/2025/10/15/cubs-roster-payroll-tom-ricketts-jed-hoyer/
+
 **Travis Sanheim shouldering heavy workload while Flyers sort out defensive depth**\
 `Rick Tocchet is helping Sanheim stay off the ice from time to time, especially after he has a string of games with inflated minutes.`\
 https://nytimes.com/athletic/6720438/2025/10/15/flyers-travis-sanheim-jets-depth/
