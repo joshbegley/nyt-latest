@@ -1,3 +1,15 @@
+**PL clubs set to take the knee for No Room for Racism gameweeks**\
+`Premier League chief executive Richard Masters said that the gesture is the players' "choice" and that it has "never been forced upon them".`\
+https://nytimes.com/athletic/6718647/2025/10/15/premier-league-teams-take-the-knee/
+
+**First Burials to Be Held for Israeli Hostages Returned From Gaza**\
+`Hamas has handed over the bodies of eight people, but says it is struggling to find the remains of others in Gaza after two years of war.`\
+https://nytimes.com/2025/10/15/world/middleeast/israel-hostages-hamas-returned-gaza-funerals.html
+
+**Jonathan Kuminga gets tossed from preseason game, and Steve Kerr loves it**\
+`Second-round draft pick Will Richard also made an impression for Golden State against the Blazers on Tuesday.`\
+https://nytimes.com/athletic/6718384/2025/10/15/warriors-jonathan-kuminga-steve-kerr-will-richard-preseason/
+
 **What's behind Barcelona's pre-Clasico injury crisis?**\
 `Hansi Flick's team have nine players out injured as they prepare for a key set of fixtures. Behind the scenes, there is confusion`\
 https://nytimes.com/athletic/6718578/2025/10/15/barcelona-el-clasico-injuries-analysis/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6716901/2025/10/15/college-football-all-america-tea
 **Q&A: Blackhawks chairman Danny Wirtz on rebuild patience, spending to the cap**\
 `Wirtz also spoke about the Blackhawks' centennial plans and a couple of looming contract extensions for team executives.`\
 https://nytimes.com/athletic/6716623/2025/10/15/blackhawks-danny-wirtz-nhl-rebuild-chsn-tv/
-
-**Risky Logan Wilson benching indicative of Bengals' desperation for defensive answers**\
-`Defensive coordinator Al Golden and coach Zac Taylor will roll the dice on rookie LB Barrett Carter in a crucial matchup with the Steelers.`\
-https://nytimes.com/athletic/6717335/2025/10/15/bengals-logan-wilson-barrett-carter-steelers/
-
-**Minor speed bump or reason to worry? Blue Jackets' penalty kill is killing them**\
-`The Blue Jackets have allowed seven power-play goals through three games.`\
-https://nytimes.com/athletic/6715832/2025/10/15/columbus-blue-jackets-penalty-kill/
-
-**Inside the trend sweeping college basketball: NBA All-Stars moonlighting as program GMs**\
-`“Something I care about is mentorship and helping push the game in the right direction,” said NBA star Damian Lillard, GM for Weber State.`\
-https://nytimes.com/athletic/6716703/2025/10/15/nba-players-gms-college-basketball/
 

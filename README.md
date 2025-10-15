@@ -2,7 +2,7 @@
 `Premier League chief executive Richard Masters said that the gesture is the players' "choice" and that it has "never been forced upon them".`\
 https://nytimes.com/athletic/6718647/2025/10/15/premier-league-teams-take-the-knee/
 
-**First Burials to Be Held for Israeli Hostages Returned From Gaza**\
+**First Burials to Be Held for Israelis Returned From Gaza**\
 `Hamas has handed over the bodies of eight people, but says it is struggling to find the remains of others in Gaza after two years of war.`\
 https://nytimes.com/2025/10/15/world/middleeast/israel-hostages-hamas-returned-gaza-funerals.html
 

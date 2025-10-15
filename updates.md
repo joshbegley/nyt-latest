@@ -1,3 +1,15 @@
+**PL clubs set to take the knee for No Room for Racism gameweeks**\
+`Premier League chief executive Richard Masters said that the gesture is the players' "choice" and that it has "never been forced upon them".`\
+https://nytimes.com/athletic/6718647/2025/10/15/premier-league-teams-take-the-knee/
+
+**First Burials to Be Held for Israeli Hostages Returned From Gaza**\
+`Hamas has handed over the bodies of eight people, but says it is struggling to find the remains of others in Gaza after two years of war.`\
+https://nytimes.com/2025/10/15/world/middleeast/israel-hostages-hamas-returned-gaza-funerals.html
+
+**Jonathan Kuminga gets tossed from preseason game, and Steve Kerr loves it**\
+`Second-round draft pick Will Richard also made an impression for Golden State against the Blazers on Tuesday.`\
+https://nytimes.com/athletic/6718384/2025/10/15/warriors-jonathan-kuminga-steve-kerr-will-richard-preseason/
+
 **What's behind Barcelona's pre-Clasico injury crisis?**\
 `Hansi Flick's team have nine players out injured as they prepare for a key set of fixtures. Behind the scenes, there is confusion`\
 https://nytimes.com/athletic/6718578/2025/10/15/barcelona-el-clasico-injuries-analysis/
