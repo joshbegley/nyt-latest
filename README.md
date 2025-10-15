@@ -1,3 +1,15 @@
+**U.S. Says It Revoked Visas of Some People Who Criticized Charlie Kirk**\
+`The State Department’s X account listed six examples of people whom it said had made comments about the assassination of Mr. Kirk, a right-wing activist, and said it was withdrawing their visas.`\
+https://nytimes.com/2025/10/15/us/politics/charlie-kirk-state-department-visas.html
+
+**How to watch and stream the Orlando Magic this season**\
+`The Magic look poised to have their best season in over a decade. Find out how to catch every game as they face mounting expectations. `\
+https://nytimes.com/athletic/6711056/2025/10/15/orlando-magic-tv-london-berlin-how-to-watch/
+
+**Bills bye week thoughts: Glaring need as trade deadline nears, an idea for James Cook, and more**\
+`Plus, the Bills are in a precarious situation at cornerback.`\
+https://nytimes.com/athletic/6717010/2025/10/15/bills-bye-week-trade-deadline-wide-receiver/
+
 **Why Bank C.E.O.s See Economic Turbulence Ahead**\
 `Wall Street giants are reporting blowout results for their most recent quarter. But they are getting worried about what lies ahead.`\
 https://nytimes.com/2025/10/15/business/dealbook/bank-earnings-economy-lending-stocks.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6718043/2025/10/15/edmonton-oilers-roster-lineup-st
 **Swishing and dishing, streaming and beaming: How to watch the New York Knicks in 2025-26**\
 `After two decades of indignities, the Knicks finally pieced together a rewarding season. Here's how to watch their 2025-26 follow-up.`\
 https://nytimes.com/athletic/6716733/2025/10/15/new-york-knicks-tv-streaming-how-to-watch-schedule/
-
-**Malala Yousafzai Reintroduces Herself**\
-`Malala Yousafzai speaks with Anna Martin, the host of Modern Love, about navigating ordinary life — like making friends in college, finding her personal style, going to parties and ... falling in love.`\
-https://nytimes.com/video/podcasts/100000010452506/malala-yousafzai-reintroduces-herself.html
-
-**De Jong signs new Barcelona contract until 2029**\
-`The 28-year-old's previous deal was set to expire in June 2026.`\
-https://nytimes.com/athletic/6431616/2025/10/15/barcelona-de-jong-contract/
-
-**Rep. Seth Moulton Announces Run for Senator Markey’s Seat in Massachusetts**\
-`Mr. Moulton, a 46-year-old fellow Democrat, released a video emphasizing the age difference between himself and Mr. Markey, 79.`\
-https://nytimes.com/2025/10/15/us/politics/seth-moulton-edward-markey-massachusetts.html
 
