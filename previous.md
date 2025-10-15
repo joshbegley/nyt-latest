@@ -1,3 +1,23 @@
+**A.I. Friend**\
+`What is your reaction to this ad?`\
+https://nytimes.com/2025/10/15/learning/ai-friend.html
+
+**Britain’s Famous Forecasting Failure**\
+`The Great Storm of 1987 was a forecasting blunder that left at least 18 people dead, felled 15 million trees and caused a billion pounds worth of damage.`\
+https://nytimes.com/2025/10/15/weather/uk-great-storm-1987-forecast.html
+
+**Cuomo Tries to Make Prostitution an Issue in Mayor’s Race**\
+`Former Gov. Andrew M. Cuomo has criticized Assemblyman Zohran Mamdani over his past support for decriminalizing prostitution. Mr. Mamdani’s campaign has not emphasized the issue.`\
+https://nytimes.com/2025/10/15/nyregion/mamdani-cuomo-prostitution-nyc.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/10/15/crosswords/spelling-bee-forum.html
+
+**Accused Arsonist of Pennsylvania Governor’s Home Pleads Guilty**\
+`The man accused of firebombing Gov. Josh Shapiro’s residence in April pleaded guilty after prosecutors showed surveillance footage of the crime.`\
+https://nytimes.com/video/us/politics/100000010459091/arson-harrisburg-cody-balmer-josh-shapiro.html
+
 **Aussie Geria didn't try to injure Pulisic but says his team was up for a fight**\
 `The Australian defender's physical play left Pulisic injured, but insisted it was not intentional`\
 https://nytimes.com/athletic/6718298/2025/10/15/jason-geria-christian-pulisic-australia-usmnt-fight/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6718263/2025/10/15/blue-jays-vs-mariners-stream-how
 **Word of the Day: valiantly**\
 `This word has appeared in 41 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
 https://nytimes.com/2025/10/15/learning/word-of-the-day-valiantly.html
-
-**The New York Times in Print for Wednesday, Oct. 15, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/10/15/todays-new-york-times
-
-**Trump Alone Can’t Save Argentina**\
-`An American bailout can carry the country only so far.`\
-https://nytimes.com/2025/10/15/opinion/argentina-milei-trump-bailout.html
-
-**Katie Porter Says She ‘Fell Short’ in Viral Video Moments**\
-`Videos surfaced last week showing the former congresswoman belittling a television reporter and berating an aide. Porter, who is running for California governor, pledged to do better.`\
-https://nytimes.com/2025/10/15/us/katie-porter-videos-response.html
-
-**Pulisic hurts hamstring; Pochettino cites 'massive risk' in USMNT weather shift**\
-`Christian Pulisic was injured early in the USMNT's 2-1 friendly win over Australia in Colorado, days after drawing Ecuador in Texas`\
-https://nytimes.com/athletic/6718104/2025/10/15/christian-pulisic-injury-usmnt-australia-tillman-pochettino/
-
-**With Palmer out until November, who is Chelsea's best option to replace him?**\
-`Chelsea recruited heavily over the summer, which should ease the burden on Palmer. Their depth will now be put to the test`\
-https://nytimes.com/athletic/6715935/2025/10/15/chelsea-cole-palmer-injury-alternatives-analysis/
 
