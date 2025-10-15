@@ -1,3 +1,15 @@
+**They’re Ready to Go to Mars**\
+`Fans of the red planet joined scientists at an annual conference sponsored by the Mars Society. One attendee said he would take a “one-way ticket.”`\
+https://nytimes.com/2025/10/15/style/theyre-ready-to-go-to-mars.html
+
+**Aryna Sabalenka wants to be 'good example' in tennis after racket throw at Wuhan Open**\
+`The world No. 1 had hurled her racket in frustration toward the end of her semifinal defeat to Jessica Pegula of the U.S.`\
+https://nytimes.com/athletic/6713752/2025/10/15/aryna-sabalenka-racket-throw-ball-kid-wuhan-open/
+
+**‘Greaser’s Palace’ Contains a Million Laughs … or None**\
+`Rarely shown since its release, Robert Downey Sr.’s 1972 film screens for a week in new digital and 35-millimeter restorations at Anthology Film Archives.`\
+https://nytimes.com/2025/10/15/movies/greasers-palace-anthology-film-archives.html
+
 **Gold Glove finalists 2025: Cal Raleigh not on list 1 year after AL Platinum Glove win**\
 `The Gold Glove winners will be unveiled on ESPN on Nov. 2.`\
 https://nytimes.com/athletic/6719791/2025/10/15/mlb-gold-glove-finalists-mlb-cal-raleigh/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6717338/2025/10/15/bears-mailbag-questions-46/
 **Indiana receiver emerges as top-100 draft pick in upset of Oregon**\
 `Elijah Sarratt, who is coming off a stellar performance against Oregon, has the speed needed for the next level.`\
 https://nytimes.com/athletic/6717215/2025/10/15/indiana-elijah-sarratt-top-100-nfl-draft-pick/
-
-**Doue, Guler, Lewis-Skelly and Yildiz on 2025 Golden Boy shortlist**\
-`The award, created by Italian newspaper Tuttosport, is given to the best under-21 footballer each year.`\
-https://nytimes.com/athletic/6719817/2025/10/15/golden-boy-2025-shortlist-nominees/
-
-**With Truce in Place, Hamas Pursues Bloody Crackdown on Rivals in Gaza**\
-`A video this week captured Hamas fighters in Gaza executing Palestinian rivals as the militant group tries to assert that it is still the dominant force in the territory after two years of war with Israel.`\
-https://nytimes.com/2025/10/15/world/middleeast/hamas-crackdown-rivals-gaza.html
-
-**Scoop City: Potential NFL coaching vacancies and top candidates**\
-`Potential coaching vacancies from Miami to Cleveland, and the top candidates for 2026`\
-https://nytimes.com/athletic/6719955/2025/10/15/nfl-2026-head-coach-replacements-cycle-scoop-city/
 
