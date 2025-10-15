@@ -1,3 +1,15 @@
+**Kane altered penalty technique after World Cup miss: 'The worst I've felt'**\
+`Kane said he has used the miss against France as motivation ever since after England qualified for the 2026 World Cup.`\
+https://nytimes.com/athletic/6718509/2025/10/15/harry-kane-penalty-world-cup-england/
+
+**Lightning trade Pheonix Copley to Kings less than 2 weeks after claiming him off waivers**\
+`The Lightning claimed Copley off waivers from the Kings on Oct. 2 and received future considerations in the trade.`\
+https://nytimes.com/athletic/6720695/2025/10/15/lightning-kings-pheonix-copley-trade-waivers/
+
+**F.B.I. Agent Who Raped 3 Women at Tattoo Parlors He Ran Gets 60 Years in Prison**\
+`The man, who has since been fired by the F.B.I., maintains the conduct was consensual, his lawyer said.`\
+https://nytimes.com/2025/10/15/us/fbi-agent-tattoo-studio-rape-sentence.html
+
 **China’s Own Immigration Backlash**\
 `The response to a new visa for skilled foreign workers has caught even the Chinese government by surprise.`\
 https://nytimes.com/2025/10/15/world/china-immigration-visas-venezuela-cia-hamas.html

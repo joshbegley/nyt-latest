@@ -1,3 +1,15 @@
+**Kane altered penalty technique after World Cup miss: 'The worst I've felt'**\
+`Kane said he has used the miss against France as motivation ever since after England qualified for the 2026 World Cup.`\
+https://nytimes.com/athletic/6718509/2025/10/15/harry-kane-penalty-world-cup-england/
+
+**Lightning trade Pheonix Copley to Kings less than 2 weeks after claiming him off waivers**\
+`The Lightning claimed Copley off waivers from the Kings on Oct. 2 and received future considerations in the trade.`\
+https://nytimes.com/athletic/6720695/2025/10/15/lightning-kings-pheonix-copley-trade-waivers/
+
+**F.B.I. Agent Who Raped 3 Women at Tattoo Parlors He Ran Gets 60 Years in Prison**\
+`The man, who has since been fired by the F.B.I., maintains the conduct was consensual, his lawyer said.`\
+https://nytimes.com/2025/10/15/us/fbi-agent-tattoo-studio-rape-sentence.html
+
 **China’s Own Immigration Backlash**\
 `The response to a new visa for skilled foreign workers has caught even the Chinese government by surprise.`\
 https://nytimes.com/2025/10/15/world/china-immigration-visas-venezuela-cia-hamas.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/15/style/air-mail-tom-wolfe-prizes-dinner.html
 **A Different Way to Think about the Middle East: Right vs. Right**\
 `Who would have imagined I’d ever praise something Trump did in the world of foreign policy?`\
 https://nytimes.com/2025/10/15/opinion/israel-gaza-trump.html
-
-**Rohl withdraws from running for Rangers manager job**\
-`The German was interviewed by the club's hierarchy after leaving Sheffield Wednesday in the summer.`\
-https://nytimes.com/athletic/6710383/2025/10/15/danny-rohl-rangers-manager/
-
-**The Penny’s Demise Is Leaving Some Businesses Shortchanged**\
-`Some stores are rounding transactions to the nearest nickel and encouraging customers to pay with plastic, citing the Treasury Department’s decision to phase out the penny.`\
-https://nytimes.com/2025/10/15/business/penny-circulation-retailers-change.html
-
-**What Do You Give Someone Who’s Just Gotten Engaged?**\
-`A roundup of T Magazine’s favorite gifts, including whimsical pepper mills, sapphire earrings and more.`\
-https://nytimes.com/2025/10/15/t-magazine/engagement-gift-ideas.html
 
