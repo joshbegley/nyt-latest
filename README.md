@@ -1,3 +1,7 @@
+**Judge Throws Out Children’s Lawsuit Against Trump’s Energy Policies**\
+`The group had challenged the president’s executive orders as unconstitutional. A judge “reluctantly” said the suit was too broad in scope.`\
+https://nytimes.com/2025/10/15/climate/montana-youth-trump-climate-lawsuit-dismissed.html
+
 **Covid Vaccines in First Trimester Not Tied to Birth Defects, Study Finds**\
 `The results of a large study in France are consistent with previous research indicating that Covid vaccination is safe and effective in pregnancy.`\
 https://nytimes.com/2025/10/15/well/covid-vaccine-birth-defects-pregnancy.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/15/us/4200-year-old-skull-indiana.html
 **Voting Rights Act Could Be Undercut Following Supreme Court Hearing**\
 `If the Supreme Court justices determine that lawmakers may not consider race in drawing district maps, the repercussions for the country’s political balance could be widespread.`\
 https://nytimes.com/video/us/politics/100000010459563/supreme-court-voting-rights-louisiana.html
-
-**New York Knicks fan laid it 'all out on the line' in viral tic-tac-toe game**\
-`With a $500 prize up for grabs, Ghedalia Gold-Pastor was willing to put his body on the line.`\
-https://nytimes.com/athletic/6716532/2025/10/15/new-york-knicks-tic-tac-toe-fans-viral/
 

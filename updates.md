@@ -1,3 +1,19 @@
+**Covid Vaccines in First Trimester Not Tied to Birth Defects, Study Finds**\
+`The results of a large study in France are consistent with previous research indicating that Covid vaccination is safe and effective in pregnancy.`\
+https://nytimes.com/2025/10/15/well/covid-vaccine-birth-defects-pregnancy.html
+
+**How to Fight a Zombie Fire**\
+`It seemed that last year’s wildfire in Los Angeles had been extinguished safely after two days. But it had just gone underground.`\
+https://nytimes.com/2025/10/15/opinion/los-angeles-zombie-fire.html
+
+**Newsom Rejects Reparations Bills in Latest Sign of Racial Justice Shift**\
+`Gov. Gavin Newsom of California vetoed bills that would have provided tangible benefits to descendants of slavery, though he approved a state agency to determine who qualifies for potential reparations.`\
+https://nytimes.com/2025/10/15/us/california-reparations-newsom-veto.html
+
+**New York Is Going to Flood. Here’s What the City Can Do to Survive.**\
+`Adaptation is a matter of survival, and the city may have to throw every solution available at a worsening situation.`\
+https://nytimes.com/interactive/2025/10/15/nyregion/new-york-climate-flooding-solutions.html
+
 **How Malala Changed Her Mind About Marriage**\
 `The activist and author Malala Yousafzai married Asser Malik in 2021, despite her skepticism about marriage. She shared why she chose marriage on the “Modern Love” podcast.`\
 https://nytimes.com/video/podcasts/100000010452514/how-malala-changed-her-mind-about-marriage.html
