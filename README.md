@@ -1,3 +1,11 @@
+**Devils goalie Jacob Markstrom out 'a couple of weeks' with injury**\
+`Markström suffered the injury during Monday's game against Columbus.`\
+https://nytimes.com/athletic/6720044/2025/10/15/jacob-markstrom-injury-devils/
+
+**You Made It to Harvard. But You Skip Class?**\
+`Readers respond to a Page A1 article about the lack of class attendance at Harvard. Also: Canceling a report on threats; America today.`\
+https://nytimes.com/2025/10/15/opinion/harvard-skipping-class.html
+
 **Delaware’s Highest Court Considers Elon Musk’s Tesla Pay Plan**\
 `The justices on the state Supreme Court heard arguments in a long dispute about whether the Tesla chief executive’s compensation was fair to shareholders.`\
 https://nytimes.com/2025/10/15/business/elon-musk-delaware-pay-package.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/15/us/politics/voting-rights-midterms.html
 **A second perilous challenge to the Voting Rights Act awaits.**\
 `The justices will decide next month whether to hear an appeal from a ruling that would shut down almost all lawsuits under the law.`\
 https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/second-challenge-voting-rights-act
-
-**Republicans Condemn Racist and Homophobic Texts by Party Officials and Activists**\
-`Some G.O.P. officials who participated in a monthslong online chat are losing their jobs or being pressured to resign.`\
-https://nytimes.com/2025/10/15/us/politics/young-republicans-texts-backlash-racist-homophobic.html
-
-**Some states have their own voting rights laws inspired by the federal statute.**\
-`Experts say at least nine states could face legal challenges over those laws if the Supreme Court guts the Voting Rights Act.`\
-https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/state-voting-rights-acts-supreme-court
 
