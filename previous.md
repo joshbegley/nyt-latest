@@ -1,3 +1,7 @@
+**Paratici returns to Tottenham as joint sporting director with Lange**\
+`The 52-year-old was one of 11 former Juventus executives banned from Italian football after being accused of financial malpractice.`\
+https://nytimes.com/athletic/6249632/2025/10/15/fabio-paratici-tottenham-return/
+
 **Fantasy football best and worst Week 7 matchups: Deploy Jayden Daniels, Caleb Williams**\
 `KC Joyner offers his Week 7 matchup rankings to help you with start/sit decisions. Should you bench Daniel Jones this week?`\
 https://nytimes.com/athletic/6715547/2025/10/15/fantasy-football-best-worst-week-7-matchups-caleb-williams-jayden-daniels/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/15/arts/music/dangelo-voodoo.html
 **This Could Be the Last Stand for the Voting Rights Act**\
 `Will Black voters continue to have an opportunity to elect representatives of their choice, or will decades of hard-won progress disappear?`\
 https://nytimes.com/2025/10/15/opinion/voting-rights-act-louisiana.html
-
-**Will the Voting Rights Act Be Gutted? Supreme Court Could Decide Its Future.**\
-`If the justices decide that lawmakers cannot consider race in drafting maps, redistricting could result in congressional seats flipping from blue to red throughout the country.`\
-https://nytimes.com/2025/10/15/us/politics/supreme-court-voting-rights-act.html
 

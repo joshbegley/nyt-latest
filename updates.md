@@ -1,3 +1,7 @@
+**Paratici returns to Tottenham as joint sporting director with Lange**\
+`The 52-year-old was one of 11 former Juventus executives banned from Italian football after being accused of financial malpractice.`\
+https://nytimes.com/athletic/6249632/2025/10/15/fabio-paratici-tottenham-return/
+
 **Fantasy football best and worst Week 7 matchups: Deploy Jayden Daniels, Caleb Williams**\
 `KC Joyner offers his Week 7 matchup rankings to help you with start/sit decisions. Should you bench Daniel Jones this week?`\
 https://nytimes.com/athletic/6715547/2025/10/15/fantasy-football-best-worst-week-7-matchups-caleb-williams-jayden-daniels/
