@@ -1,3 +1,11 @@
+**Full Time: Breaking down the USWNT's October roster**\
+`Welcome to Full Time, The Athletic's women's soccer newsletter.`\
+https://nytimes.com/athletic/6719937/2025/10/15/uswnt-october-roster-full-time/
+
+**Trump Considers Overhaul of Refugee System That Would Favor White People**\
+`The proposals would transform a program aimed at helping the most vulnerable people in the world into one that gives preference to mostly white people who say they are being persecuted.`\
+https://nytimes.com/2025/10/15/us/politics/trump-refugee-white-people.html
+
 **Texas Tech, Kansas fined and reprimanded after tortilla-toss fallout**\
 `Texas Tech's fine was for "repeated instances" of fans throwing objects onto the field, and Kansas' was for "disparaging comments."`\
 https://nytimes.com/athletic/6720090/2025/10/15/texas-tech-kansas-big-12-fined-tortilla-toss/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/15/climate/wildfire-flash-flood-landslide-risk.html
 **They’re Ready to Go to Mars**\
 `Fans of the red planet joined scientists at an annual conference sponsored by the Mars Society. One attendee said he would take a “one-way ticket.”`\
 https://nytimes.com/2025/10/15/style/mars-society-convention.html
-
-**Aryna Sabalenka wants to be 'good example' in tennis after racket throw at Wuhan Open**\
-`The world No. 1 had hurled her racket in frustration toward the end of her semifinal defeat to Jessica Pegula of the U.S.`\
-https://nytimes.com/athletic/6713752/2025/10/15/aryna-sabalenka-racket-throw-ball-kid-wuhan-open/
-
-**‘Greaser’s Palace’ Contains a Million Laughs … or None**\
-`Rarely shown since its release, Robert Downey Sr.’s 1972 film screens for a week in new digital and 35-millimeter restorations at Anthology Film Archives.`\
-https://nytimes.com/2025/10/15/movies/greasers-palace-anthology-film-archives.html
 
