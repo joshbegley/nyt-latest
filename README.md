@@ -1,3 +1,7 @@
+**Who are the lawyers appearing before the court?**\
+`By Ann E. Marimow`\
+https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/supreme-court-lawyers
+
 **Rearguments are rare, and they can signal major upheavals.**\
 `A characteristic move of the court led by Chief Justice Roberts is to go big only after an initial encounter, as it did in the Citizens United campaign finance case.`\
 https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/rearguments-are-rare-and-they-can-signal-major-upheavals
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6718261/2025/10/15/dodgers-starters-nlcs-brewers-th
 **Putin Welcomes the New Syrian Leader While Still Harboring the Old One**\
 `The meeting in Moscow between President Vladimir V. Putin of Russia and President Ahmed al-Shara of Syria showcased the adaptability of two leaders once at odds.`\
 https://nytimes.com/2025/10/15/world/europe/russia-syria-putin-al-shara-moscow-visit-assad.html
-
-**Voting Rights Act’s Impact Has Reached Far Outside the South**\
-`While the 1965 law was adopted in response to discriminatory practices in southern states, it has affected states and localities nationwide.`\
-https://nytimes.com/2025/10/15/us/politics/voting-rights-act-south.html
 

@@ -1,3 +1,19 @@
+**Rearguments are rare, and they can signal major upheavals.**\
+`A characteristic move of the court led by Chief Justice Roberts is to go big only after an initial encounter, as it did in the Citizens United campaign finance case.`\
+https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/rearguments-are-rare-and-they-can-signal-major-upheavals
+
+**The Bounce: A new way to judge dunks. Plus, we preview the Rockets and Magic**\
+`Zach Harper catches you up on the latest news around the NBA.`\
+https://nytimes.com/athletic/6719020/2025/10/15/dunks-nba-magic-rockets-the-bounce/
+
+**Christen Press felt like a 'villain'. She played long enough to become a hero**\
+`The World Cup winner doesn't view her professional career as 'storybook,' but a journey full of lessons `\
+https://nytimes.com/athletic/6718061/2025/10/15/christen-press-angel-city-uswnt-retirement/
+
+**NBA players to wear Rookie Debut, Gold Logoman jersey patches starting this season**\
+`Fanatics Collectibles CEO Mike Mahan likened the emotions of the long-anticipated return of NBA licensed cards into the Topps portfolio similarly to his bated breath right before turning 16 and receiving his driver’s license.`\
+https://nytimes.com/athletic/6719019/2025/10/15/nba-topps-rookies-debut-patch-gold-logoman/
+
 **Trump Rattles Vaccine Experts Over Aluminum**\
 `The president’s call for removal of the metal from childhood inoculations set off alarms. About half of shots for polio, whooping cough and other diseases would be affected.`\
 https://nytimes.com/2025/10/15/health/vaccines-aluminum-trump.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/15/world/europe/russia-syria-putin-al-shara-moscow-v
 **Voting Rights Act’s Impact Has Reached Far Outside the South**\
 `While the 1965 law was adopted in response to discriminatory practices in southern states, it has affected states and localities nationwide.`\
 https://nytimes.com/2025/10/15/us/politics/voting-rights-act-south.html
-
-**Unions to Ask Court to Block Trump Layoffs During Shutdown**\
-`Labor groups are set to square off against the Trump administration one day after the president renewed his threat to cut “Democrat programs.”`\
-https://nytimes.com/2025/10/15/business/government-shutdown-trump-layoffs-unions.html
-
-**How to watch Devin Booker and the new-look Phoenix Suns this season**\
-`Like the Suns, the NBA will look and sound different this season. Here's how to catch all the games on the league's new broadcast partners.`\
-https://nytimes.com/athletic/6715392/2025/10/15/phoenix-suns-devin-booker-tv-schedule-streaming-how-to-watch/
-
-**Exclusive: Christen Press' thank you letters to herself, football and the fans**\
-`Two-time World Cup winner Christen Press exclusively shares with The Athletic letters to her younger self, soccer and fans as she retires`\
-https://nytimes.com/athletic/6717376/2025/10/15/christen-press-uswnt-thank-you-letters/
-
-**The Voting Rights Act has faced skepticism from the court for decades.**\
-`By Abbie VanSickle`\
-https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/the-voting-rights-act-has-faced-skepticism-from-the-court-for-decades
 
