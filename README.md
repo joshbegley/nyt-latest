@@ -1,3 +1,7 @@
+**Delaware’s Highest Court Considers Elon Musk’s Tesla Pay Plan**\
+`The justices on the state Supreme Court heard arguments in a long dispute about whether the Tesla chief executive’s compensation was fair to shareholders.`\
+https://nytimes.com/2025/10/15/business/elon-musk-delaware-pay-package.html
+
 **Submit your questions for Kevin Fishbain's Bears mailbag**\
 `The Bears have won three games in a row, the last two coming down to the final seconds. What's on your mind?`\
 https://nytimes.com/athletic/6717338/2025/10/15/bears-mailbag-questions-46/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/15/us/politics/young-republicans-texts-backlash-raci
 **Some states have their own voting rights laws inspired by the federal statute.**\
 `Experts say at least nine states could face legal challenges over those laws if the Supreme Court guts the Voting Rights Act.`\
 https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/state-voting-rights-acts-supreme-court
-
-**Rory McIlroy eyeing Ryder Cup captaincy, but 'not until the mid-2030s'**\
-`McIlroy praised former European captains who stood out to him during his time playing, but said he hopes to be playing in two years.`\
-https://nytimes.com/athletic/6719339/2025/10/15/rory-mcilroy-ryder-cup-captain-2030/
 

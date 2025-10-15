@@ -1,3 +1,27 @@
+**Submit your questions for Kevin Fishbain's Bears mailbag**\
+`The Bears have won three games in a row, the last two coming down to the final seconds. What's on your mind?`\
+https://nytimes.com/athletic/6717338/2025/10/15/bears-mailbag-questions-46/
+
+**Indiana receiver emerges as top-100 draft pick in upset of Oregon**\
+`Elijah Sarratt, who is coming off a stellar performance against Oregon, has the speed needed for the next level.`\
+https://nytimes.com/athletic/6717215/2025/10/15/indiana-elijah-sarratt-top-100-nfl-draft-pick/
+
+**Doue, Guler, Lewis-Skelly and Yildiz on 2025 Golden Boy shortlist**\
+`The award, created by Italian newspaper Tuttosport, is given to the best under-21 footballer each year.`\
+https://nytimes.com/athletic/6719817/2025/10/15/golden-boy-2025-shortlist-nominees/
+
+**With Truce in Place, Hamas Pursues Bloody Crackdown on Rivals in Gaza**\
+`A video this week captured Hamas fighters in Gaza executing Palestinian rivals as the militant group tries to assert that it is still the dominant force in the territory after two years of war with Israel.`\
+https://nytimes.com/2025/10/15/world/middleeast/hamas-crackdown-rivals-gaza.html
+
+**Scoop City: Potential NFL coaching vacancies and top candidates**\
+`Potential coaching vacancies from Miami to Cleveland, and the top candidates for 2026`\
+https://nytimes.com/athletic/6719955/2025/10/15/nfl-2026-head-coach-replacements-cycle-scoop-city/
+
+**Could a Supreme Court Ruling on Election Maps Affect the Midterms? Timing Matters.**\
+`A prohibition on the use of race in drawing electoral districts could allow states to redraw legislative lines before voting begins next year.`\
+https://nytimes.com/2025/10/15/us/politics/voting-rights-midterms.html
+
 **A second perilous challenge to the Voting Rights Act awaits.**\
 `The justices will decide next month whether to hear an appeal from a ruling that would shut down almost all lawsuits under the law.`\
 https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/second-challenge-voting-rights-act
@@ -13,28 +37,4 @@ https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/state-voting-
 **Rory McIlroy eyeing Ryder Cup captaincy, but 'not until the mid-2030s'**\
 `McIlroy praised former European captains who stood out to him during his time playing, but said he hopes to be playing in two years.`\
 https://nytimes.com/athletic/6719339/2025/10/15/rory-mcilroy-ryder-cup-captain-2030/
-
-**How a leading sports investor picked their next big funding bet: MoneyCall**\
-`More in this week's sports business cheat sheet: WNBA labor-pocalypse, what next at Penn State, FSG and Liverpool at 15 and golf resiliency.`\
-https://nytimes.com/athletic/6719775/2025/10/15/alexis-ohanian-lovb-los-angeles-moneycall/
-
-**Who Should Be Allowed to Talk About Fashion?**\
-`A conversation about criticism, the vox populi and snobbery.`\
-https://nytimes.com/2025/10/15/style/fashion-weeks-critics.html
-
-**Ben Johnson, Caleb Williams respond to critiques from Troy Aikman on MNF**\
-`Troy Aikman has served as a color commentator since retiring as a three-time Super Bowl-winning quarterback for the Dallas Cowboys in 2000.`\
-https://nytimes.com/athletic/6719543/2025/10/15/bears-caleb-williams-troy-aikman-ben-johnson-mnf/
-
-**Russell Westbrook agrees to sign minimum deal with Kings: Source**\
-`Westbrook was long rumored to be headed to Sacramento as a backup point guard who could elevate their already-experienced group.`\
-https://nytimes.com/athletic/6719780/2025/10/15/russell-westbrook-sacramento-kings-nba-news/
-
-**Police Officers Deliberately Hit Scooter Driver in Bike Lane, Suit Says**\
-`Video of the 2023 collision contradicts a report filed by the officers, who were members of the Community Response Team. The Police Department has since moved to rein in the unit.`\
-https://nytimes.com/2025/10/15/nyregion/nypd-crt-team-suit.html
-
-**U.S. to Take Control of More Companies to Counter China**\
-`Treasury Secretary Scott Bessent said China’s dominance of rare earths calls for a more assertive American industrial policy.`\
-https://nytimes.com/2025/10/15/us/politics/us-government-companies-china.html
 
