@@ -1,3 +1,7 @@
+**President Trump once again suggests relocating World Cup matches**\
+`Trump claims he would consider calling FIFA’s president Gianni Infantino to move games from cities that he deems unsafe.`\
+https://nytimes.com/athletic/6717958/2025/10/14/president-trump-relocate-world-cup-matches/
+
 **Sign of Justice**\
 `Christina Iverson and Nick Offerman make a handy collaboration debut.`\
 https://nytimes.com/2025/10/14/crosswords/daily-puzzle-2025-10-15-2025.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/14/us/miami-trump-library.html
 **Inmates Make Brazen Escape in Guatemala**\
 `“I’m not going to deny the reality — there’s no good explanation,” the interior minister said of how the 20 inmates had slipped out, perhaps over a period of time.`\
 https://nytimes.com/2025/10/14/world/americas/guatemala-prison-escape.html
-
-**A.J. Preller argues that managing the Padres is a plum job. But is that just an illusion?**\
-`On the surface, the Padres are a playoff contender with a star-studded roster. But the lightest scratch reveals a lot of uncertainty.`\
-https://nytimes.com/athletic/6717447/2025/10/14/padres-manager-job-a-j-preller-mike-shildt/
 
