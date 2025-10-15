@@ -1,3 +1,15 @@
+**Maresca accepts one-match ban for red card after celebrating late Liverpool win**\
+`Maresca was shown a second yellow card by referee Anthony Taylor after running down the touchline following Estevao's late winner.`\
+https://nytimes.com/athletic/6719234/2025/10/15/enzo-maresca-ban-chelsea-liverpool-red/
+
+**A Novel Intertwines the Many Dramas of Life in an Autocracy**\
+`Branching plots and dark humor animate “Eye of the Monkey,” set in an unnamed dystopian country.`\
+https://nytimes.com/2025/10/15/books/review/krisztina-toth-eye-of-the-monkey.html
+
+**Paratici's Spurs return: Why is he back? What about his ban? And how will co-sporting directors work?**\
+`Analysing the Italian's return to north London two years after his controversial exit and what it means for the club`\
+https://nytimes.com/athletic/6719060/2025/10/15/fabio-paratici-johan-lange-tottenham-sporting-directors/
+
 **Expansive Battles and Paper-Thin Bad Guys**\
 `There’s fun in Battlefield 6’s multiplayer chaos, but it’s an unmoored soldiering fantasy.`\
 https://nytimes.com/2025/10/15/arts/battlefield-6-review.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6719020/2025/10/15/dunks-nba-magic-rockets-the-boun
 **Christen Press felt like a 'villain'. She played long enough to become a hero**\
 `The World Cup winner doesn't view her professional career as 'storybook,' but a journey full of lessons `\
 https://nytimes.com/athletic/6718061/2025/10/15/christen-press-angel-city-uswnt-retirement/
-
-**NBA players to wear Rookie Debut, Gold Logoman jersey patches starting this season**\
-`Fanatics Collectibles CEO Mike Mahan likened the emotions of the long-anticipated return of NBA licensed cards into the Topps portfolio similarly to his bated breath right before turning 16 and receiving his driver’s license.`\
-https://nytimes.com/athletic/6719019/2025/10/15/nba-topps-rookies-debut-patch-gold-logoman/
-
-**Trump Rattles Vaccine Experts Over Aluminum**\
-`The president’s call for removal of the metal from childhood inoculations set off alarms. About half of shots for polio, whooping cough and other diseases would be affected.`\
-https://nytimes.com/2025/10/15/health/vaccines-aluminum-trump.html
-
-**L.A. County Declares State of Emergency Over Immigration Raids**\
-`The move would allow county officials to provide financial aid to those affected by Immigration and Customs Enforcement raids.`\
-https://nytimes.com/2025/10/15/world/americas/los-angeles-emergency-immigration-raids.html
 
