@@ -1,3 +1,11 @@
+**The Death Star Dodgers, backed by rotation's unreal run, are 6 wins from another parade**\
+`The next Dodgers parade is now within view, thanks to a rotation of aces that clicked into gear around Labor Day. The numbers are amazing.`\
+https://nytimes.com/athletic/6718452/2025/10/15/dodgers-starting-pitchers-playoffs-facts-yamamoto-snell/
+
+**William Nylander was a fluke and the Jets are weird: Prediction contest lessons**\
+`Early analysis reveals interesting new twists with the dreaded bonus question, plus the annual Joe Sakic update.`\
+https://nytimes.com/athletic/6717383/2025/10/15/nhl-prediction-contest-nylander-jets/
+
 **'We found a (bleeping) way!': How another late rally energized the Bears**\
 `Ben Johnson's Type-A competitive nature is resonating. His players' response has helped spark a three-game winning streak.`\
 https://nytimes.com/athletic/6717354/2025/10/15/bears-ben-johnson-rally-commanders/

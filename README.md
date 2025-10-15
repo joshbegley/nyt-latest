@@ -1,3 +1,15 @@
+**How a reluctant Division II transfer became an SEC phenomenon at Ole Miss**\
+`Ferris State transfer Trinidad Chambliss has been a surprise breakout star. Can he lead Ole Miss past Georgia and on a run in the SEC?`\
+https://nytimes.com/athletic/6716551/2025/10/15/trinidad-chambliss-ole-miss-ferris-state/
+
+**Yoshinobu Yamamoto's complete game leaves Dodgers in awe: 'Just domination'**\
+`Kiké Hernandez said of Yamamoto: "It's just one of those things where you're like, damn, this guy keeps getting better and better."`\
+https://nytimes.com/athletic/6718120/2025/10/15/dodgers-yoshinobu-yamamoto-nlcs-reaction/
+
+**TAFC: All Wright for U.S, not quite for Ronaldo, England qualify at a canter**\
+`Today in TAFC: Wright seals USMNT win over Australia but Pulisic is injured, England sail through to World Cup, Portugal pegged back`\
+https://nytimes.com/athletic/6718423/2025/10/15/haji-wright-usmnt-australia-result/
+
 **The Death Star Dodgers, backed by rotation's unreal run, are 6 wins from another parade**\
 `The next Dodgers parade is now within view, thanks to a rotation of aces that clicked into gear around Labor Day. The numbers are amazing.`\
 https://nytimes.com/athletic/6718452/2025/10/15/dodgers-starting-pitchers-playoffs-facts-yamamoto-snell/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6716683/2025/10/15/steve-aoki-sports-card-collectio
 **NHL players receive a warning on Milan Olympic Village: 'Not going to be perfect'**\
 `From housing to security to food, the experience in Milan will not be to be the Ritz-Carlton lifestyle many NHLers are accustomed to.`\
 https://nytimes.com/athletic/6673842/2025/10/15/hockey-canada-olympic-village-warning/
-
-**‘Please, quick … they’re coming’: The burglary spree that terrorized some of Seattle’s best-known athletes**\
-`More than $700,000 in luxury watches, jewelry and designer leather goods were stolen over a three-month period.`\
-https://nytimes.com/athletic/6716323/2025/10/15/seattle-athletes-crime-spree-mariners-seahawks/
-
-**Understanding the Shota Imanaga decisions that will shape the Cubs’ offseason**\
-`The creative agreement included a series of club/player options, to maintain some flexibility as the left-handed pitcher assimilated.`\
-https://nytimes.com/athletic/6717732/2025/10/15/chicago-cubs-shota-imanaga-decisions-offseason/
-
-**How money — from NIL to new revenue sharing — is changing college hockey recruiting**\
-`The Athletic spoke with more than a dozen Division I men’s college hockey coaches about the new landscape.`\
-https://nytimes.com/athletic/6707089/2025/10/15/ncaa-hockey-gavin-mckenna-nil/
 
