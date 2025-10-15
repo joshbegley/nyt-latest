@@ -1,3 +1,11 @@
+**The case will test what is left of the Voting Rights Act after the Shelby County ruling.**\
+`In 2013, a divided Supreme Court effectively gutted the key provision of the law, but it left another tool intact. Now that provision, too, may be at risk.`\
+https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/the-case-will-test-what-is-left-of-the-voting-rights-act-after-the-shelby-county-ruling
+
+**Meta Removes Facebook Group That Shared Information on ICE Agents**\
+`The Facebook page was taken down for “violating our policies against coordinated harm,” according to Meta.`\
+https://nytimes.com/2025/10/15/technology/meta-removes-ice-facebook-page.html
+
 **U.S. Says It Revoked Visas of Some People Who Criticized Charlie Kirk**\
 `The State Department’s X account listed six examples of people who it said had made comments about the assassination of Mr. Kirk, a right-wing activist, and said it was withdrawing their visas.`\
 https://nytimes.com/2025/10/15/us/politics/charlie-kirk-state-department-visas.html

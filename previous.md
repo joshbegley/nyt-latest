@@ -1,3 +1,11 @@
+**The case will test what is left of the Voting Rights Act after the Shelby County ruling.**\
+`In 2013, a divided Supreme Court effectively gutted the key provision of the law, but it left another tool intact. Now that provision, too, may be at risk.`\
+https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/the-case-will-test-what-is-left-of-the-voting-rights-act-after-the-shelby-county-ruling
+
+**Meta Removes Facebook Group That Shared Information on ICE Agents**\
+`The Facebook page was taken down for “violating our policies against coordinated harm,” according to Meta.`\
+https://nytimes.com/2025/10/15/technology/meta-removes-ice-facebook-page.html
+
 **Russell secures Mercedes F1 contract extension as team confirms 2026 line-up**\
 `Five-time grand prix winner Russell, 27, has raced for Mercedes since 2022 and was part of its young driver roster from 2017.`\
 https://nytimes.com/athletic/6718446/2025/10/15/george-russell-mercedes-contract/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6717565/2025/10/15/rams-matthew-stafford-stats-defe
 **U.S. Says It Revoked Visas of Some People Who Criticized Charlie Kirk**\
 `The State Department’s X account listed six examples of people who it said had made comments about the assassination of Mr. Kirk, a right-wing activist, and said it was withdrawing their visas.`\
 https://nytimes.com/2025/10/15/us/politics/charlie-kirk-state-department-visas.html
-
-**How to watch and stream the Orlando Magic this season**\
-`The Magic look poised to have their best season in over a decade. Find out how to catch every game as they face mounting expectations. `\
-https://nytimes.com/athletic/6711056/2025/10/15/orlando-magic-tv-london-berlin-how-to-watch/
-
-**Bills bye week thoughts: Glaring need as trade deadline nears and an idea for James Cook**\
-`Plus, the Bills are in a precarious situation at cornerback.`\
-https://nytimes.com/athletic/6717010/2025/10/15/bills-bye-week-trade-deadline-wide-receiver/
 
