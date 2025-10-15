@@ -1,5 +1,5 @@
 **Canada shows toughness and character in scoreless draw with Colombia**\
-`HARRISON, New Jersey – Scoreless draws are starting to matter more than you’d think for Canada.`\
+`Against Colombia, one of the world's best teams, and in front of a hostile, pro-Colombia crowd, Canada showed up remarkably well.`\
 https://nytimes.com/athletic/6717917/2025/10/14/canada-colombia-friendly-marsch/
 
 **President Trump once again suggests relocating World Cup matches**\
