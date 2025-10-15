@@ -1,3 +1,15 @@
+**Florida Grand Jury Hears Evidence in Investigation of Charity Tied to Casey DeSantis**\
+`The inquiry is focused on $10 million that the charity received last year, then gave to political committees that helped Gov. Ron DeSantis defeat a ballot measure.`\
+https://nytimes.com/2025/10/15/us/florida-charity-casey-desantis.html
+
+**Review: At Limón, a Pony Club and a Pretender**\
+`The Limón Dance Company tries to shake up its image with a world premiere by Diego Vega Solorza and a reimagined “Emperor Jones.”`\
+https://nytimes.com/2025/10/15/arts/dance/review-limon-company-joyce-theater.html
+
+**Wales top scorer Jess Fishlock announces international retirement**\
+`Fishlock, 38, will call time on her international career after Wales' friendly against Australia in October.`\
+https://nytimes.com/athletic/6492622/2025/10/15/jess-fishlock-wales-retirement/
+
 **How to watch Panthers vs. Red Wings: Time, TV, streaming**\
 `Find out how to watch the Florida Panthers play the Detroit Red Wings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6719531/2025/10/15/panthers-vs-red-wings-stream-how-to-watch-oct-15/

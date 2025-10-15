@@ -1,3 +1,19 @@
+**Steven Stamkos opens up on his 'difficult' Lightning exit and Predators transition**\
+`Stamkos on negotiations with the Lightning: "Those people that are making those decisions, they’re not in the battle with you."`\
+https://nytimes.com/athletic/6719561/2025/10/15/steven-stamkos-predators-lightning-transition/
+
+**NFL Week 7 survivor pool picks, strategy: Now is the time to use the Chiefs**\
+`Our survivor columnists share strategy and their picks for Week 7, with Chiefs over Raiders as the most popular pick.`\
+https://nytimes.com/athletic/6717072/2025/10/15/nfl-week-7-survivor-pool-picks-strategy-chiefs-bears/
+
+**Is the Fed Too Confident About Inflation? Some Economists Think So.**\
+`The central bank confronts “no risk-free path” in balancing the risk of a sharp slowdown in the labor market and resurgent price pressures.`\
+https://nytimes.com/2025/10/15/business/federal-reserve-inflation.html
+
+**When Children of Public Figures Go Public With Their Dissent**\
+`The conversation heats up on social media.`\
+https://nytimes.com/2025/10/15/style/claudia-conway-maddie-block-politicians-children.html
+
 **Florida Grand Jury Hears Evidence in Investigation of Charity Tied to Casey DeSantis**\
 `The inquiry is focused on $10 million that the charity received last year, then gave to political committees that helped Gov. Ron DeSantis defeat a ballot measure.`\
 https://nytimes.com/2025/10/15/us/florida-charity-casey-desantis.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/15/us/jack-smith-video-justice-connection.html
 **Wales top scorer Jess Fishlock announces international retirement**\
 `Fishlock, 38, will call time on her international career after Wales' friendly against Australia in October.`\
 https://nytimes.com/athletic/6492622/2025/10/15/jess-fishlock-wales-retirement/
-
-**Why did Louisiana switch sides in this case?**\
-`By Ann E. Marimow`\
-https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/why-did-louisiana-switch-sides-in-this-case
-
-**China Got Trump’s Attention but Renewed a Risky Game of Chicken**\
-`Xi Jinping’s need to project strength before a crucial meeting of Communist Party leaders may help explain why Beijing announced new rare earth controls.`\
-https://nytimes.com/2025/10/15/world/asia/china-trump-tariffs.html
-
-**Here are the ‘non-African-American’ voters behind the case.**\
-`By Abbie VanSickle`\
-https://nytimes.com/live/2025/10/15/us/supreme-court-voting-rights/here-are-the-non-african-american-voters-behind-the-case
-
-**He Won a Tony. Then Came the Hard Part: Facing His Demons.**\
-`In his solo Off Broadway show “Other,” Ari’el Stachel explores the anxiety that has exacerbated his struggles with being an Arab Jew.`\
-https://nytimes.com/2025/10/15/theater/ariel-stachel-other.html
 
