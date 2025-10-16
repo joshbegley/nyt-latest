@@ -14,8 +14,8 @@ https://nytimes.com/2025/10/16/movies/diane-keaton-cause-of-death.html
 `The former Senate Republican leader has had a series of health episodes, including falls, in recent years. He plans to retire in 2027.`\
 https://nytimes.com/2025/10/16/us/politics/mitch-mcconnell-fall-capitol.html
 
-**U.S. Special Operations Helicopters Training Near Venezuela**\
-`The presence of an elite unit is meant to provide options to the Trump administration as it ratchets up pressure on drug traffickers and President Nicolás Maduro.`\
+**U.S. B-52s and Helicopters Fly Near Venezuela in Show of Threats**\
+`The Trump administration is sharply increasing U.S. military pressure on the government of Nicolás Maduro.`\
 https://nytimes.com/2025/10/16/us/politics/16dc-.html
 
 **Trump’s Troubling ‘Compact’ for Universities**\
