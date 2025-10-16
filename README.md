@@ -1,3 +1,23 @@
+**How America Got Hooked on Ultraprocessed Food**\
+`They promised convenience and cheap nutrition. But they became one of the greatest health threats of our time.`\
+https://nytimes.com/interactive/2025/10/16/well/eat/ultraprocessed-food-junk-history.html
+
+**Quote of the Day: Hamas, Flexing Power After Truce, Kills Its Palestinian Rivals**\
+`Quotation of the Day for Thursday, October 16, 2025.`\
+https://nytimes.com/2025/10/16/pageoneplus/quote-of-the-day-hamas-flexing-power-after-truce-kills-its-palestinian-rivals.html
+
+**Connections: Sports Edition Coach: Hints for Oct. 16, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6721529/2025/10/16/connections-sports-edition-hints-for-oct-16-2025/
+
+**Prospects Dim for Denmark’s Renewable Energy Star**\
+`Orsted, a Danish wind farm developer, has been hammered by high costs and President Trump’s efforts to stymie renewable energy. Its struggles are rippling across Denmark.`\
+https://nytimes.com/2025/10/16/business/denmark-orsted-wind-farms-trump.html
+
+**Corrections: Oct. 16, 2025**\
+`Corrections that appeared in print on Thursday, Oct. 16, 2025.`\
+https://nytimes.com/2025/10/16/pageoneplus/corrections-oct-16-2025.html
+
 **Dan Campbell says official told him call on overturned TD came from New York**\
 `The Lions coach's assertion contradicted referee Craig Wrolstad's comments after the game.`\
 https://nytimes.com/athletic/6721084/2025/10/15/chiefs-lions-trick-play-overturn-nfl-new-york/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6721563/2025/10/15/tyler-skaggs-angels-wrongful-dea
 **The Preventionist, Episode 3: Better Safe Than Sorry**\
 `From Serial Productions: What’s the harm of “better safe than sorry”?`\
 https://nytimes.com/2025/10/15/podcasts/serial-the-preventionist-episode-3.html
-
-**The Preventionist, Episode 2: The CAP Will See You Now**\
-`From Serial Productions: The doctor behind the alleged child abuse cases in the Lehigh Valley.`\
-https://nytimes.com/2025/10/15/podcasts/serial-the-preventionist-episode-2.html
-
-**The Preventionist, Episode 1: Creative Financing**\
-`From Serial Productions: What is going on in Pennsylvania’s Lehigh Valley?`\
-https://nytimes.com/2025/10/15/podcasts/serial-the-preventionist-episode-1.html
-
-**From Serial Productions: The Preventionist**\
-`Why are so many families in the Lehigh Valley losing custody of their children?`\
-https://nytimes.com/2025/10/15/podcasts/serial-productions-the-preventionist.html
-
-**Trinity Rodman exits Spirit game with injury hours after earning USWNT call-up**\
-`Rodman had recently earned her first U.S. call-up since April after a persistent back issue kept her out of action for much of the summer.`\
-https://nytimes.com/athletic/6721462/2025/10/15/trinity-rodman-injury-uswnt-nwsl-spirit/
-
-**How Whiskey Might Be Served**\
-`Kareem Ayas’s puzzle will not leave you feeling cold.`\
-https://nytimes.com/2025/10/15/crosswords/daily-puzzle-2025-10-16.html
 
