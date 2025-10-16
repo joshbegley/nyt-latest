@@ -1,3 +1,11 @@
+**Pistons guard Jaden Ivey has knee surgery, out at least 4 weeks**\
+`Jaden Ivey is expected to miss at least the Pistons' first 12 regular-season games.`\
+https://nytimes.com/athletic/6723965/2025/10/16/pistons-jaden-ivey-knee-surgery/
+
+**Kenyan Police Fire on Mourners at Raila Odinga Memorial**\
+`The deadly tumult was the latest example of officers’ using force to quell demonstrations in the country.`\
+https://nytimes.com/2025/10/16/world/africa/kenya-police-raila-odinga-memorial.html
+
 **John Bolton Is Said to Be Indicted Over Handling of Classified Information**\
 `Mr. Bolton, a Trump aide turned critic, is part of a string of presidential foes to become prosecutorial targets. But his case gained momentum in the Biden administration.`\
 https://nytimes.com/2025/10/16/us/politics/john-bolton-indictment-trump.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/16/nyregion/nypd-domestic-violence-unit.html
 **Your Highly-Specific New York City Restaurant Questions, Answered**\
 `Becky Hughes helps an N.Y.U. student find affordable vegan and gluten-free fare, the best soups and a Greek orange cake à la Crete.`\
 https://nytimes.com/2025/10/16/dining/your-highly-specific-new-york-city-restaurant-questions-answered.html
-
-**Your Guide to Rome**\
-`From the must-see locations to the most frequently asked questions, our guide has all you need to plan your next visit.`\
-https://nytimes.com/interactive/2025/travel/rome-italy-guide.html
-
-**Chicago to host 2026 WNBA All-Star Game at United Center**\
-`The Windy City last hosted the event in 2022 at Wintrust Arena, home of the Chicago Sky.`\
-https://nytimes.com/athletic/6723655/2025/10/16/wnba-chicago-2026-all-star-game/
 

@@ -1,3 +1,11 @@
+**Pistons guard Jaden Ivey has knee surgery, out at least 4 weeks**\
+`Jaden Ivey is expected to miss at least the Pistons' first 12 regular-season games.`\
+https://nytimes.com/athletic/6723965/2025/10/16/pistons-jaden-ivey-knee-surgery/
+
+**Kenyan Police Fire on Mourners at Raila Odinga Memorial**\
+`The deadly tumult was the latest example of officers’ using force to quell demonstrations in the country.`\
+https://nytimes.com/2025/10/16/world/africa/kenya-police-raila-odinga-memorial.html
+
 **John Bolton Is Said to Be Indicted Over Handling of Classified Information**\
 `Mr. Bolton, a Trump aide turned critic, is part of a string of presidential foes to become prosecutorial targets. But his case gained momentum in the Biden administration.`\
 https://nytimes.com/2025/10/16/us/politics/john-bolton-indictment-trump.html
