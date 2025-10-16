@@ -1,3 +1,11 @@
+**Appeals Court Maintains Block on Trump’s Troop Deployment to Illinois**\
+`The Seventh Circuit rejected an attempt by the Trump administration to remove an order by a trial court judge. But legal wrangling is expected to continue.`\
+https://nytimes.com/2025/10/16/us/appeals-court-maintains-block-on-trumps-troop-deployment-to-illinois.html
+
+**New York Rangers open to trading 2021 first-rounder Brennan Othmann: Source**\
+`No formal trade request has been made by Othmann's camp, but both sides recognize that a fresh start is likely needed for the forward.`\
+https://nytimes.com/athletic/6723686/2025/10/16/new-york-rangers-brennan-othmann-trade-rumors-2/
+
 **College football best bets Week 8: Why Alabama-Tennessee could turn into a shootout**\
 `Austin Mock's College Football Projection Model has identified a handful of best bets for Week 8, including the over in Alabama-Tennessee.`\
 https://nytimes.com/athletic/6723509/2025/10/16/college-football-best-bets-week-8-alabama-tennessee/

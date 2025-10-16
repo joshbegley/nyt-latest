@@ -1,6 +1,6 @@
 **Appeals Court Maintains Block on Trump’s Troop Deployment to Illinois**\
 `The Seventh Circuit rejected an attempt by the Trump administration to remove an order by a trial court judge. But legal wrangling is expected to continue.`\
-https://nytimes.com/2025/10/16/us/appeals-court-maintains-block-on-trumps-troop-deployment-to-illinois.html
+https://nytimes.com/2025/10/16/us/appeals-trump-national-guard-troops-illinois.html
 
 **College football best bets Week 8: Why Alabama-Tennessee could turn into a shootout**\
 `Austin Mock's College Football Projection Model has identified a handful of best bets for Week 8, including the over in Alabama-Tennessee.`\
