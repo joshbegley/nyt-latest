@@ -1,3 +1,31 @@
+**Jeffrey Meldrum, Scholar Who Stalked Bigfoot, Dies at 67**\
+`His willingness to bring scientific rigor to Sasquatch studies earned him the gratitude of enthusiasts and the withering scorn of debunkers.`\
+https://nytimes.com/2025/10/16/science/jeffrey-meldrum-dead.html
+
+**Trump Warns Hamas of Strikes if Violence in Gaza Continues**\
+`The president later clarified that the United States would not be involved in such an action.`\
+https://nytimes.com/2025/10/16/us/politics/trump-hamas-warnings-gaza-strikes.html
+
+**PFF's Cris Collinsworth on player grade critics: 'Thanks for the attention'**\
+`Cris Collinsworth invited detractors to come to PFF's office to see how the outlet comes up with player grades.`\
+https://nytimes.com/athletic/6723748/2025/10/16/cris-collinsworth-pff-owner-defends-player-grades/
+
+**What’s Next for the Gaza Cease-Fire Plan**\
+`Israel and Hamas have reached a cease-fire deal in Gaza, but the hard part starts now. David Sanger of The New York Times describes the major obstacles to further agreement about Gaza’s immediate future.`\
+https://nytimes.com/video/world/middleeast/100000010458240/whats-next-for-the-gaza-cease-fire-plan.html
+
+**Lady Gaga is ‘Mother’ in Her ‘Mayhem Ball’ Tour**\
+`Wesley and pop music editor Caryn Ganz didn’t like Lady Gaga’s new album. But they loved “Mayhem” on tour. Together, they reflect on Lady Gaga’s final show at Madison Square Garden.`\
+https://nytimes.com/video/podcasts/100000010463375/lady-gaga-is-mother-in-her-mayhem-ball-tour.html
+
+**OpenAI is Building a Trillion-Dollar GPU Empire**\
+`In light of OpenAI’s recent deals with Nvidia and AMD, the “Hard Fork” co-hosts Kevin Roose and Casey Newton discuss the scale of OpenAI’s growing ambitions.`\
+https://nytimes.com/video/podcasts/100000010463342/openai-is-building-a-trillion-dollar-gpu-empire.html
+
+**How to Live a Long and Healthy Life as an Introvert**\
+`Our personal health reporter explains why it’s the quality, not quantity, of socializing that matters.`\
+https://nytimes.com/2025/10/16/world/introvert-aging-putin-trump-assad-syria.html
+
 **Read the Indictment of John R. Bolton**\
 `The 18-count indictment accused Mr.`\
 https://nytimes.com/interactive/2025/10/16/us/politics/Bolton-indictment.html
@@ -9,32 +37,4 @@ https://nytimes.com/2025/10/16/business/trump-ice-pay.html
 **Pistons guard Jaden Ivey has knee surgery, out at least 4 weeks**\
 `Jaden Ivey is expected to miss at least the Pistons' first 12 regular-season games.`\
 https://nytimes.com/athletic/6723965/2025/10/16/pistons-jaden-ivey-knee-surgery/
-
-**Kenyan Police Fire on Mourners at Raila Odinga Memorial**\
-`The deadly tumult was the latest example of officers’ using force to quell demonstrations in the country.`\
-https://nytimes.com/2025/10/16/world/africa/kenya-police-raila-odinga-memorial.html
-
-**John Bolton Indicted Over Handling of Classified Information**\
-`Mr. Bolton, a Trump aide turned critic, is part of a string of presidential foes to become prosecutorial targets. But his case gained momentum in the Biden administration.`\
-https://nytimes.com/2025/10/16/us/politics/john-bolton-indictment-trump.html
-
-**Hari Chutney Spaghetti**\
-`In the time it takes to bring a large pot of water to a boil, you can make a batch of herby, bright and spicy green chutney, also known as hari chutney (hari means “green” in Hindi).`\
-https://nytimes.com/video/dining/100000010435020/hari-chutney-spaghetti.html
-
-**Tensions High in Cameroon as Country Awaits Election Results**\
-`The election on Sunday was between the 92-year-old incumbent, President Paul Biya, and Issa Tchiroma Bakary, 76, a former senior member of Mr. Biya’s government.`\
-https://nytimes.com/video/world/africa/100000010462650/cameroon-election-protests.html
-
-**A Nobel Peace Prize Brings Hope and Scrutiny to Democratic Struggle**\
-`Ms. Machado’s efforts to reclaim a stolen election by any available means, including military intervention, has long galvanized her supporters. Her opponents say these hard-line policies have a political cost.`\
-https://nytimes.com/2025/10/16/world/americas/machado-nobel-peace-prize-venezuela-opposition.html
-
-**Power ⚡︎ Moves**\
-`Inside China's drive to dominate clean energy.`\
-https://nytimes.com/series/power-moves
-
-**Indiana signs Curt Cignetti to new 8-year contract amid Penn State speculation**\
-`Cignetti is 17-2 midway through his second season at Indiana.`\
-https://nytimes.com/athletic/6723903/2025/10/16/indiana-signs-curt-cignetti-new-contract-penn-state/
 
