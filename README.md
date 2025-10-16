@@ -1,3 +1,27 @@
+**How to watch Jets vs. Flyers: Time, TV, streaming**\
+`Find out how to watch the Winnipeg Jets play the Philadelphia Flyers, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6723073/2025/10/16/jets-vs-flyers-stream-how-to-watch-oct-16/
+
+**How to watch Panthers vs. Devils: Time, TV, streaming**\
+`Find out how to watch the Florida Panthers play the New Jersey Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6723069/2025/10/16/panthers-vs-devils-stream-how-to-watch-oct-16/
+
+**How to watch Avalanche vs. Blue Jackets: Time, TV, streaming**\
+`Find out how to watch the Colorado Avalanche play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6723066/2025/10/16/avalanche-vs-blue-jackets-stream-how-to-watch-oct-16/
+
+**How to watch Predators vs. Canadiens: Time, TV, streaming**\
+`Find out how to watch the Nashville Predators play the Montreal Canadiens, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6723063/2025/10/16/predators-vs-canadiens-stream-how-to-watch-oct-16/
+
+**How to watch Kraken vs. Senators: Time, TV, streaming**\
+`Find out how to watch the Seattle Kraken play the Ottawa Senators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6723059/2025/10/16/kraken-vs-senators-stream-how-to-watch-oct-16/
+
+**How to watch Rangers vs. Maple Leafs: Time, TV, streaming**\
+`Find out how to watch the New York Rangers play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6723057/2025/10/16/rangers-vs-maple-leafs-stream-how-to-watch-oct-16/
+
 **Until Saturday: Who's the next Curt Cignetti?**\
 `Until Saturday is The Athletic's free CFB newsletter.`\
 https://nytimes.com/athletic/6723025/2025/10/16/cfb-coaching-candidates-until-saturday/
@@ -13,28 +37,4 @@ https://nytimes.com/athletic/6719644/2025/10/16/college-football-picks-spread-we
 **What Your Hair Can Tell You About Your Health**\
 `More than just dead matter, hair is an archive of your body’s secrets.`\
 https://nytimes.com/2025/10/16/well/hair-health.html
-
-**The Windup: The Blue Jays’ irony-laden outburst**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6721920/2025/10/16/blue-jays-mariners-game-3-the-windup/
-
-**Where Does the Israel-Hamas Cease-Fire Stand?**\
-`Unresolved issues — mainly over the exchange of hostage and prisoner remains — threaten to destabilize the fragile agreement.`\
-https://nytimes.com/2025/10/16/world/middleeast/israel-hamas-gaza-cease-fire.html
-
-**This Fish Dish Will Never Fail You**\
-`This simple miso glaze works for pretty much any kind of fish (speaking from experience).`\
-https://nytimes.com/2025/10/16/dining/this-fish-dish-will-never-fail-you.html
-
-**Eye Injuries Are Rising Among Pickleball Players**\
-`Older players of pickleball, the fastest-growing sport in the United States, are more vulnerable to eye injuries, some of which could lead to vision loss, researchers reported.`\
-https://nytimes.com/2025/10/16/health/pickleball-eye-injuries.html
-
-**Fantasy trends and hidden gems: Weekend picks and Week 3 adds, including Kiefer Sherwood**\
-`Shayna Goldman gives waiver wire recommendations for this weekend's games and the rest of Week 3 in her latest column. `\
-https://nytimes.com/athletic/6721797/2025/10/16/fantasy-hockey-trends-gems-week-3-sherwood/
-
-**Are You a Young Employee Asked to Spend More Time in the Office?**\
-`Please tell us how stricter return-to-office mandates are affecting your work life and home life.`\
-https://nytimes.com/2025/10/16/business/rto-young-worker-attitude.html
 
