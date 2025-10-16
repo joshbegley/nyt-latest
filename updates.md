@@ -1,5 +1,9 @@
 **Appeals Court Maintains Block on Trump’s Troop Deployment to Illinois**\
 `The Seventh Circuit rejected an attempt by the Trump administration to remove an order by a trial court judge. But legal wrangling is expected to continue.`\
+https://nytimes.com/2025/10/16/us/appeals-trump-national-guard-troops-illinois.html
+
+**Appeals Court Maintains Block on Trump’s Troop Deployment to Illinois**\
+`The Seventh Circuit rejected an attempt by the Trump administration to remove an order by a trial court judge. But legal wrangling is expected to continue.`\
 https://nytimes.com/2025/10/16/us/appeals-court-maintains-block-on-trumps-troop-deployment-to-illinois.html
 
 **New York Rangers open to trading 2021 first-rounder Brennan Othmann: Source**\

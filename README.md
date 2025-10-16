@@ -1,3 +1,15 @@
+**Terrorism Charges Against Antifa Cell Show Administration’s Focus on the Left**\
+`President Trump has spoken at times of antifa as though it were a clear-cut extremist organization, but the movement is a decentralized collection of loosely affiliated groups.`\
+https://nytimes.com/2025/10/16/us/politics/justice-department-terrorism-antifa.html
+
+**Bucks, shooting guard AJ Green agree to four-year, $45 million extension**\
+`The 26-year-old is coming off the best season of his three-year NBA career, shooting 42.7 percent from 3-point range.`\
+https://nytimes.com/athletic/6723868/2025/10/16/bucks-aj-green-extension-nba/
+
+**The Preventionist**\
+`Why are so many families in Pennsylvania’s Lehigh Valley losing custody of their children? Listen to the three-part series. From Serial Productions, hosted by Dyan Neary.`\
+https://nytimes.com/column/the-preventionist
+
 **Appeals Court Maintains Block on Trump’s Troop Deployment to Illinois**\
 `The Seventh Circuit rejected an attempt by the Trump administration to remove an order by a trial court judge. But legal wrangling is expected to continue.`\
 https://nytimes.com/2025/10/16/us/appeals-trump-national-guard-troops-illinois.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6723685/2025/10/16/oilers-vs-islanders-stream-how-t
 **How to watch Penguins vs. Kings: Time, TV, streaming**\
 `Find out how to watch the Pittsburgh Penguins play the Los Angeles Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6723680/2025/10/16/penguins-vs-kings-stream-how-to-watch-oct-16/
-
-**How to watch Canucks vs. Stars: Time, TV, streaming**\
-`Find out how to watch the Vancouver Canucks play the Dallas Stars, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6723678/2025/10/16/canucks-vs-stars-stream-how-to-watch-oct-16/
-
-**How to watch Hurricanes vs. Ducks: Time, TV, streaming**\
-`Find out how to watch the Carolina Hurricanes play the Anaheim Ducks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6723676/2025/10/16/hurricanes-vs-ducks-stream-how-to-watch-oct-16/
-
-**How to watch Bruins vs. Golden Knights: Time, TV, streaming**\
-`Find out how to watch the Boston Bruins play the Vegas Golden Knights, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6723674/2025/10/16/bruins-vs-golden-knights-stream-how-to-watch-oct-16/
 
