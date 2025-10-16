@@ -1,3 +1,15 @@
+**Who Will Blink First: Trump or Xi?**\
+`Washington and Beijing both need a trade win as steep new tariffs and tough import limits on critical minerals loom.`\
+https://nytimes.com/2025/10/16/business/dealbook/trump-china-trade-negotiations.html
+
+**What NBA scouts are saying about Tre Johnson as he begins his rookie season**\
+`The Washington Wizards used the sixth pick in the 2025 NBA Draft to select Johnson. We asked scouts what they think of Johnson's potential.`\
+https://nytimes.com/athletic/6720995/2025/10/16/tre-johnson-what-scouts-are-saying/
+
+**Who will be the Mavericks' perimeter defensive stopper?**\
+`Dallas has the size to be elite defensively, especially in the frontcourt. But containing quicker guards might be a problem.`\
+https://nytimes.com/athletic/6722054/2025/10/16/mavericks-defense-perimeter-cooper-flagg-preseason/
+
 **The Pulse: A home team may never win again**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6720166/2025/10/16/blue-jays-mariners-game-3-the-pulse/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/16/world/middleeast/israel-october-7-attack-hamas-ce
 **How the NBA has evolved into a 'media and technology company'**\
 `From player tracking to autonomous officiating to using AI for scheduling, the NBA has begun to think of itself in a different light.`\
 https://nytimes.com/athletic/6720577/2025/10/16/nba-media-technology-artificial-intelligence/
-
-**Texas A&M's third-down defense is historically good. Who else wins in these crucial situations?**\
-`The three teams that have the shortest average distance to go on third downs offensively — Utah, Indiana and Missouri — are a combined 16-2.`\
-https://nytimes.com/athletic/6720416/2025/10/16/texas-am-defense-third-down-success/
-
-**'Trouble with the snap' 10 years later, an oral history: 'It felt psychedelic'**\
-`"Most people I’ve talked to about it put it up there with the wackiest things they’ve ever seen." — ABC announcer Sean McDonough `\
-https://nytimes.com/athletic/6717831/2025/10/16/trouble-with-the-snap-michigan-state-michigan-punt/
-
-**What's Trending in the NFL: Truths we knew before the season that have manifested themselves**\
-`It's no surprise that the Cowboys defense has been bad, though it's probably worse than expected.`\
-https://nytimes.com/athletic/6720212/2025/10/16/nfl-trends-week-7-cowboys-defense-truths/
 

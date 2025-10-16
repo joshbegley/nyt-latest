@@ -1,3 +1,15 @@
+**Who Will Blink First: Trump or Xi?**\
+`Washington and Beijing both need a trade win as steep new tariffs and tough import limits on critical minerals loom.`\
+https://nytimes.com/2025/10/16/business/dealbook/trump-china-trade-negotiations.html
+
+**What NBA scouts are saying about Tre Johnson as he begins his rookie season**\
+`The Washington Wizards used the sixth pick in the 2025 NBA Draft to select Johnson. We asked scouts what they think of Johnson's potential.`\
+https://nytimes.com/athletic/6720995/2025/10/16/tre-johnson-what-scouts-are-saying/
+
+**Who will be the Mavericks' perimeter defensive stopper?**\
+`Dallas has the size to be elite defensively, especially in the frontcourt. But containing quicker guards might be a problem.`\
+https://nytimes.com/athletic/6722054/2025/10/16/mavericks-defense-perimeter-cooper-flagg-preseason/
+
 **The Pulse: A home team may never win again**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6720166/2025/10/16/blue-jays-mariners-game-3-the-pulse/
