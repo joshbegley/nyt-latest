@@ -1,3 +1,7 @@
+**China Fans Patriotic Sentiment as Trade War With U.S. Heats Up**\
+`Chinese state media is rallying the public and posting old propaganda footage, but officials are also careful to leave room for talks with President Trump.`\
+https://nytimes.com/2025/10/16/world/asia/china-nationalism-trade-war.html
+
 **Chiefs' Travis Kelce is showing renewed burst. He credits an old NBA star**\
 `Chiefs quarterback Patrick Mahomes says Kelce's 2025 production began with a key offseason change.`\
 https://nytimes.com/athletic/6719756/2025/10/16/chiefs-travis-kelce-lions-hakeem-olajuwon/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6720982/2025/10/16/panthers-rico-dowdle-chuba-hubba
 **Steelers at Bengals on TNF: Old quarterbacks, older rivalries, broadcast predictions**\
 `Aaron Rodgers (41 years old) captains the 4-1 Pittsburgh Steelers; Joe Flacco (40) tries to salvage the 2-4 Cincinnati Bengals.`\
 https://nytimes.com/athletic/6718121/2025/10/16/steelers-bengals-tnf-aaron-rodgers-joe-flacco-amazon-prime-how-to-watch/
-
-**Watch: Why Dak Prescott is the NFL's most betrayed QB so far this season**\
-`This is the Betrayal Index, ranking every NFL quarterback by comparing his own production to the support his team provides.`\
-https://nytimes.com/athletic/6720664/2025/10/16/dak-prescott-cowboys-nfl-betrayed-quarterbacks/
 

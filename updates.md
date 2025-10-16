@@ -1,3 +1,7 @@
+**China Fans Patriotic Sentiment as Trade War With U.S. Heats Up**\
+`Chinese state media is rallying the public and posting old propaganda footage, but officials are also careful to leave room for talks with President Trump.`\
+https://nytimes.com/2025/10/16/world/asia/china-nationalism-trade-war.html
+
 **Chiefs' Travis Kelce is showing renewed burst. He credits an old NBA star**\
 `Chiefs quarterback Patrick Mahomes says Kelce's 2025 production began with a key offseason change.`\
 https://nytimes.com/athletic/6719756/2025/10/16/chiefs-travis-kelce-lions-hakeem-olajuwon/

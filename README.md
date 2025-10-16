@@ -1,3 +1,15 @@
+**Red Wings' unsung contributions spark early win streak: Observations**\
+`The Red Wings' 4-1 win over the Panthers was fueled by contributions outside the typical spotlight.`\
+https://nytimes.com/athletic/6721596/2025/10/16/red-wings-panthers-mason-appleton-win-streak/
+
+**What we saw in Sabres' first win of the season: Josh Doan, Zach Benson spark offense**\
+`Benson returned in style, and Doan shined again as the Sabres beat the Senators 8-4 and earned their first win.`\
+https://nytimes.com/athletic/6721753/2025/10/16/sabres-senators-josh-doan-zach-benson-win/
+
+**Shane Bieber lifts Blue Jays off the ALCS mat, delivering the start they traded for**\
+`In the first, nobody but Bieber was aware how locked in he was. Over six innings, 46,471 Mariners fans learned.`\
+https://nytimes.com/athletic/6721878/2025/10/16/blue-jays-mariners-alcs-game-3-shane-bieber-start/
+
 **China Fans Patriotic Sentiment as Trade War With U.S. Heats Up**\
 `Chinese state media is rallying the public and posting old propaganda footage, but officials are also careful to leave room for talks with President Trump.`\
 https://nytimes.com/2025/10/16/world/asia/china-nationalism-trade-war.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6720670/2025/10/16/bears-losing-streak-vs-saints/
 **Nestlé to Slash 16,000 Jobs in Cost-Cutting Push**\
 `The company’s new chief executive, Philipp Navratil, announced the reductions as part of a plan to turn around the world’s largest food company.`\
 https://nytimes.com/2025/10/16/business/nestle-jobs-cuts.html
-
-**George Pickens: Cowboys' offense could be 'way more dangerous' with CeeDee Lamb returning**\
-`The trade for Pickens looks like a great deal with the way he's played this season, especially while Lamb has been sidelined.`\
-https://nytimes.com/athletic/6721425/2025/10/16/cowboys-george-pickens-ceedee-lamb-offense/
-
-**Chuba? Rico? Panthers' Dave Canales has riddle to solve in a crowded backfield**\
-`Could the Panthers roll out some two-back sets against the Jets this week?`\
-https://nytimes.com/athletic/6720982/2025/10/16/panthers-rico-dowdle-chuba-hubbard/
-
-**Steelers at Bengals on TNF: Old quarterbacks, older rivalries, broadcast predictions**\
-`Aaron Rodgers (41 years old) captains the 4-1 Pittsburgh Steelers; Joe Flacco (40) tries to salvage the 2-4 Cincinnati Bengals.`\
-https://nytimes.com/athletic/6718121/2025/10/16/steelers-bengals-tnf-aaron-rodgers-joe-flacco-amazon-prime-how-to-watch/
 
