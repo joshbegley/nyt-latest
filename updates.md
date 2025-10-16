@@ -1,3 +1,7 @@
+**Pat Murphy's 10-year-old son has confident response to reporter's question**\
+`The Milwaukee manager keeps his kids close, allowing his young sons to attend Brewers news conferences with him. `\
+https://nytimes.com/athletic/6723250/2025/10/16/pat-murphy-son-austin-brewers-press-conference/
+
 **U.S. Special Operations Helicopters Training Near Venezuela**\
 `The presence of an elite unit is meant to provide options to the Trump administration as it ratchets up pressure on drug traffickers and President Nicolás Maduro.`\
 https://nytimes.com/2025/10/16/us/politics/16dc-.html

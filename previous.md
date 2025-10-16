@@ -19,7 +19,7 @@ https://nytimes.com/2025/10/16/business/josh-wander-777-partners-fraud-charges.h
 https://nytimes.com/2025/10/16/world/middleeast/houthis-top-general-killed-yemen.html
 
 **Pat Murphy's 10-year-old son has confident response to reporter's question**\
-`Pat Murphy keeps his kids close, allowing his young sons to attend Brewers press conferences with him. `\
+`The Milwaukee manager keeps his kids close, allowing his young sons to attend Brewers news conferences with him. `\
 https://nytimes.com/athletic/6723250/2025/10/16/pat-murphy-son-austin-brewers-press-conference/
 
 **Oscar Wilde Gets His Library Card Back, 125 Years After His Death**\

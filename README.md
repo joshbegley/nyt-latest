@@ -1,3 +1,7 @@
+**McConnell Stumbles and Falls at the Capitol**\
+`The former Senate Republican leader has had a series of health episodes, including falls, in recent years. He plans to retire in 2027.`\
+https://nytimes.com/2025/10/16/us/politics/mcconnell-stumbles-and-falls-at-the-capitol.html
+
 **U.S. Special Operations Helicopters Training Near Venezuela**\
 `The presence of an elite unit is meant to provide options to the Trump administration as it ratchets up pressure on drug traffickers and President Nicolás Maduro.`\
 https://nytimes.com/2025/10/16/us/politics/16dc-.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/16/style/the-morning-show-apple-tv-season-4.html
 **WNBA season is most viewed ever on ESPN networks**\
 `ESPN's networks aired the entire postseason (24 games), with games averaging 1.2 million viewers each.`\
 https://nytimes.com/athletic/6723196/2025/10/16/wnba-ratings-viewers-2025-espn/
-
-**Venture Capitalist Resigns From Salesforce Foundation Over Benioff Comments**\
-`Ron Conway stepped down from the board of Salesforce’s philanthropic arm after the company’s chief executive, Marc Benioff, said he supported President Trump and wanted the National Guard to come to San Francisco.`\
-https://nytimes.com/2025/10/16/us/salesforce-resign-benioff-ron-conway.html
 
