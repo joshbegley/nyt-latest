@@ -1,3 +1,7 @@
+**Until Saturday: Who's the next Curt Cignetti?**\
+`Until Saturday is The Athletic's free CFB newsletter.`\
+https://nytimes.com/athletic/6723025/2025/10/16/cfb-coaching-candidates-until-saturday/
+
 **Police request Maccabi Tel Aviv fans not be allowed to attend Villa game**\
 `When Maccabi Tel Aviv travelled to face Ajax last year, 62 people were arrested and five hospitalised after violent clashes.`\
 https://nytimes.com/athletic/6722327/2025/10/16/aston-villa-maccabi-tel-aviv-uefa/
