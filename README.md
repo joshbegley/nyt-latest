@@ -1,4 +1,4 @@
-**Trinity Rodman exits Spirit game injured hours after earning USWNT call-up**\
+**Trinity Rodman exits Spirit game with injury hours after earning USWNT call-up**\
 `Rodman had recently earned her first U.S. call-up since April after a persistent back issue kept her out of action for much of the summer.`\
 https://nytimes.com/athletic/6721462/2025/10/15/trinity-rodman-injury-uswnt-nwsl-spirit/
 
@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6721462/2025/10/15/trinity-rodman-injury-uswnt-nwsl
 https://nytimes.com/2025/10/15/crosswords/daily-puzzle-2025-10-16.html
 
 **Utah Mammoth reveal 'Tusky' as their official mascot**\
-`“Tusky,” a 6-foot-5 blue woolly mammoth, was unveiled on Wednesday before Utah's home opener against the Calgary Flames.`\
+`"Tusky," a 6-foot-5 blue woolly mammoth, was unveiled Wednesday before Utah's home opener against the Calgary Flames.`\
 https://nytimes.com/athletic/6721482/2025/10/15/utah-mammoth-mascot-tusky-nhl/
 
 **'I made a mistake': Tua Tagovailoa apologizes for comments after Sunday’s game**\
