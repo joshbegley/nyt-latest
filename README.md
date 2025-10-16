@@ -1,3 +1,7 @@
+**Trae Young, Hawks won't agree on an extension before NBA season: Sources**\
+`Young is entering the final guaranteed season of his contract and can become a free agent next summer if he does not sign a new deal.`\
+https://nytimes.com/athletic/6723424/2025/10/16/trae-young-hawks-contract-extension-nba-season/
+
 **Alex Tuch won't let contract talks distract from trying to turn Sabres around on the ice**\
 `The risk of leaving Tuch unsigned into the season is that each rough stretch for the Sabres raises questions.`\
 https://nytimes.com/athletic/6723919/2025/10/16/alex-tuch-contract-sabres-schedule-stats/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliw
 **Blue Jays plan to remove Anthony Santander from playoff roster, pending MLB approval: Sources**\
 `The Toronto Blue Jays will be without their biggest offseason acquisition for the rest of the postseason.`\
 https://nytimes.com/athletic/6724217/2025/10/16/blue-jays-plan-to-remove-anthony-santander-mlb-approval/
-
-**The 3 mayoral debaters have different styles and different goals.**\
-`By Benjamin Oreskes`\
-https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/the-3-mayoral-debaters-have-different-styles-and-different-goals
 
