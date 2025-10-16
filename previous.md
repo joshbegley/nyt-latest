@@ -1,3 +1,7 @@
+**Kevin Durant wishes Mariners luck after seeing Josh Naylor's Sonics fit**\
+`The Mariners first baseman made it a point to wear a throwback SuperSonics jersey.`\
+https://nytimes.com/athletic/6721223/2025/10/15/kevin-durant-nba-josh-naylor-mariners-seattle-alcs/
+
 **How the Pentagon Is Blocking Out News Organizations**\
 `The new rules codify strict limitations on access and raise the prospect of punishment for requesting information on matters of public interest.`\
 https://nytimes.com/interactive/2025/10/15/business/media/pentatgon-press-rules.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6720860/2025/10/15/joe-mazzulla-celtics-media-picku
 **USWNT in Champions League: Lily Yohannes and Alyssa Thompson help their teams in dominating wins**\
 `The goals came hours after head coach Emma Hayes named both players to her 26-player U.S. roster for October `\
 https://nytimes.com/athletic/6720961/2025/10/15/champions-league-uswnt-lily-yohannes-alyssa-thompson/
-
-**In Naomi Girma’s absence, Emma Hayes continues to experiment with the USWNT defense**\
-`For the third time this year, the USWNT roster will not include Girma, who continues to recover from a calf injury. `\
-https://nytimes.com/athletic/6720890/2025/10/15/naomi-girmas-absence-emma-hayes-uswnt-defense/
 

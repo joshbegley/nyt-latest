@@ -1,3 +1,7 @@
+**Kevin Durant wishes Mariners luck after seeing Josh Naylor's Sonics fit**\
+`The Mariners first baseman made it a point to wear a throwback SuperSonics jersey.`\
+https://nytimes.com/athletic/6721223/2025/10/15/kevin-durant-nba-josh-naylor-mariners-seattle-alcs/
+
 **How the Pentagon Is Blocking Out News Organizations**\
 `The new rules codify strict limitations on access and raise the prospect of punishment for requesting information on matters of public interest.`\
 https://nytimes.com/interactive/2025/10/15/business/media/pentatgon-press-rules.html
