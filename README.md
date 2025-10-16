@@ -1,3 +1,7 @@
+**Shohei Ohtani talks playoff skid, then hits ball off the roof in batting practice**\
+`Ohtani is striking out nearly half the time and said his focus is on taking "quality at-bats."`\
+https://nytimes.com/athletic/6721257/2025/10/15/shohei-ohtani-postseason-slump-nlcs/
+
 **Lions DB Brian Branch loses appeal; 1-game suspension for altercation vs. Chiefs upheld**\
 `The Lions were prepared for the result of Branch's appeal.`\
 https://nytimes.com/athletic/6721350/2025/10/15/lions-brian-branch-appeal-lost-suspension-upheld-chiefs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/15/us/politics/trump-birth-control-layoffs.html
 **N.Y. Democrats Urge Hochul to Reject Pipeline Over Climate Concerns**\
 `Ten members of Congress wrote in a letter to the governor that a gas pipeline proposed for New York Harbor runs counter to the state’s emissions reductions goals.`\
 https://nytimes.com/2025/10/15/nyregion/house-democrats-hochul-gas-pipeline-nyc.html
-
-**NFLPA shares player 'outrage' with NFL over field for Steelers-Browns: Source**\
-`Sunday's game was scheduled to be the last one played on the surface, according to a Steelers spokesperson.`\
-https://nytimes.com/athletic/6721089/2025/10/15/nflpa-nfl-field-steelers-browns-complaints/
 
