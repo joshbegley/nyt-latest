@@ -1,3 +1,11 @@
+**Read the Indictment of John R. Bolton**\
+`The 18-count indictment accused Mr.`\
+https://nytimes.com/interactive/2025/10/16/us/politics/Bolton-indictment.html
+
+**Trump Administration Plans to Pay ICE Agents During Shutdown**\
+`The move, funded by the recently enacted tax package, is Mr. Trump’s latest effort to pay some federal workers even though Congress has not approved a spending deal.`\
+https://nytimes.com/2025/10/16/business/trump-ice-pay.html
+
 **Pistons guard Jaden Ivey has knee surgery, out at least 4 weeks**\
 `Jaden Ivey is expected to miss at least the Pistons' first 12 regular-season games.`\
 https://nytimes.com/athletic/6723965/2025/10/16/pistons-jaden-ivey-knee-surgery/
@@ -6,7 +14,7 @@ https://nytimes.com/athletic/6723965/2025/10/16/pistons-jaden-ivey-knee-surgery/
 `The deadly tumult was the latest example of officers’ using force to quell demonstrations in the country.`\
 https://nytimes.com/2025/10/16/world/africa/kenya-police-raila-odinga-memorial.html
 
-**John Bolton Is Said to Be Indicted Over Handling of Classified Information**\
+**John Bolton Indicted Over Handling of Classified Information**\
 `Mr. Bolton, a Trump aide turned critic, is part of a string of presidential foes to become prosecutorial targets. But his case gained momentum in the Biden administration.`\
 https://nytimes.com/2025/10/16/us/politics/john-bolton-indictment-trump.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/series/power-moves
 **Indiana signs Curt Cignetti to new 8-year contract amid Penn State speculation**\
 `Cignetti is 17-2 midway through his second season at Indiana.`\
 https://nytimes.com/athletic/6723903/2025/10/16/indiana-signs-curt-cignetti-new-contract-penn-state/
-
-**New N.Y.P.D. Unit to Focus on Domestic Violence as Cases Surge**\
-`The new unit will be the largest of its kind in the United States and its members will receive specialized training, the police commissioner said.`\
-https://nytimes.com/2025/10/16/nyregion/nypd-domestic-violence-unit.html
-
-**Your Highly-Specific New York City Restaurant Questions, Answered**\
-`Becky Hughes helps an N.Y.U. student find affordable vegan and gluten-free fare, the best soups and a Greek orange cake à la Crete.`\
-https://nytimes.com/2025/10/16/dining/your-highly-specific-new-york-city-restaurant-questions-answered.html
 
