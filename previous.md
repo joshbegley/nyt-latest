@@ -1,3 +1,7 @@
+**Alyssa Thompson and returning to basics paid off for Chelsea in a statement win**\
+`Chelsea's return to form was perfectly timed and they head into the international break on a positive note`\
+https://nytimes.com/athletic/6721228/2025/10/16/alyssa-thompson-chelsea-parisfc-womens-champions-league/
+
 **Four-time Olympic champion Ariarne Titmus retires from swimming aged 25**\
 `Titmus described her decision to retire as "a tough one, a really tough one, but one I’m really happy with.”`\
 https://nytimes.com/athletic/6722116/2025/10/16/ariarne-titmus-retires-swimming/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/10/16/realestate/brooklyn-queens-homes-sale
 **Have Something to Say? Put It on a Flier.**\
 `They’re not just for missing pets or yard sales. Fliers these days are for internet memes, self-promotion and extremely esoteric messages.`\
 https://nytimes.com/2025/10/16/style/fliers-memes-instagram.html
-
-**Dark Pop Is In. But Gaga Is Mother.**\
-`A reminder for all the Little Monsters.`\
-https://nytimes.com/2025/10/16/podcasts/dark-pop-is-in-but-gaga-is-mother.html
 

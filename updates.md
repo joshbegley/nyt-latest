@@ -1,3 +1,7 @@
+**Alyssa Thompson and returning to basics paid off for Chelsea in a statement win**\
+`Chelsea's return to form was perfectly timed and they head into the international break on a positive note`\
+https://nytimes.com/athletic/6721228/2025/10/16/alyssa-thompson-chelsea-parisfc-womens-champions-league/
+
 **Four-time Olympic champion Ariarne Titmus retires from swimming aged 25**\
 `Titmus described her decision to retire as "a tough one, a really tough one, but one I’m really happy with.”`\
 https://nytimes.com/athletic/6722116/2025/10/16/ariarne-titmus-retires-swimming/
