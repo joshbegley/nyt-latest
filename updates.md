@@ -1,3 +1,7 @@
+**Cape Verde Qualified for Its First-Ever World Cup**\
+`Nick Miller of The Athletic reports from on the scene as Cape Verde punched its ticket to its first-ever World Cup by beating Eswatini.`\
+https://nytimes.com/video/sports/100000010459309/cape-verde-qualified-for-its-first-ever-world-cup.html
+
 **'No pressure' on Fabian Hurzeler to play Charalampos Kostoulas, says Brighton owner**\
 `The 18-year-old summer signing has only featured in Brighton's Premier League matchday squad once through the first seven games.`\
 https://nytimes.com/athletic/6716412/2025/10/16/brighton-charalampos-kostoulas-fabian-hurzeler/
