@@ -1,3 +1,7 @@
+**How to watch Blue Jays at Mariners: Game 4 Time, TV, streaming**\
+`Find out how to watch the Toronto Blue Jays play the Seattle Mariners, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6721919/2025/10/16/blue-jays-vs-mariners-stream-how-to-watch-oct-16/
+
 **U.S. Enters 15th Day of Late-Night Jokes About Government Shutdown**\
 `Jimmy Kimmel told his viewers that in 2018, “Trump shut the government down until they brought back the McRib or something.”`\
 https://nytimes.com/2025/10/16/arts/television/jimmy-kimmel-government-shutdown.html
