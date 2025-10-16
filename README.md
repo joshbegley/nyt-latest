@@ -1,3 +1,11 @@
+**Goodbye Gray Walls. Hello, Dusty Rose.**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/goodbye-gray-walls-hello-dusty-rose
+
+**‘Oh Happy Day!’ Review: And God Told Keyshawn to Build an Ark**\
+`An urgent family mission propels Jordan E. Cooper’s pain-spiked supernatural comedy, a very loose riff on the biblical story of Noah.`\
+https://nytimes.com/2025/10/16/theater/oh-happy-day-review-cooper.html
+
 **After Racist Texts, New York G.O.P. Is Set to Disband Young Republicans**\
 `State party leaders are expected to eliminate the charter of the Young Republicans group, allowing them to reconstitute the organization with new leaders.`\
 https://nytimes.com/2025/10/16/nyregion/ny-young-republicans-racist-texts.html
@@ -11,7 +19,7 @@ https://nytimes.com/2025/10/16/nyregion/nyc-mayoral-candidates-what-to-know.html
 https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/heres-the-latest
 
 **Live Updates: N.Y.C. Mayoral Candidates Will Face Off in First Debate**\
-`Zohran Mamdani, the Democratic nominee and front-runner, and former Gov. Andrew M. Cuomo and Curtis Sliwa, the other major contenders, will present starkly different visions of how they would address the issues facing New Yorkers.`\
+`The Democratic nominee and front-runner Zohran Mamdani, the former governor Andrew M. Cuomo, and the Republican nominee Curtis Sliwa will present starkly different visions for governing the city.`\
 https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa
 
 **PM Starmer criticises decision to stop Maccabi Tel Aviv fans attending Aston Villa tie**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/16/science/jeffrey-meldrum-dead.html
 **Trump Warns Hamas of Strikes if Violence in Gaza Continues**\
 `The president later clarified that the United States would not be involved in such an action.`\
 https://nytimes.com/2025/10/16/us/politics/trump-hamas-warnings-gaza-strikes.html
-
-**PFF's Cris Collinsworth on player grade critics: 'Thanks for the attention'**\
-`Collinsworth invited detractors to come to PFF's office to see how the outlet comes up with player grades.`\
-https://nytimes.com/athletic/6723748/2025/10/16/cris-collinsworth-pff-owner-defends-player-grades/
-
-**What’s Next for the Gaza Cease-Fire Plan**\
-`Israel and Hamas have reached a cease-fire deal in Gaza, but the hard part starts now. David Sanger of The New York Times describes the major obstacles to further agreement about Gaza’s immediate future.`\
-https://nytimes.com/video/world/middleeast/100000010458240/whats-next-for-the-gaza-cease-fire-plan.html
 
