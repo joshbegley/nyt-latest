@@ -1,3 +1,15 @@
+**Red Wings' unsung contributions spark early win streak: Observations**\
+`The Red Wings' 4-1 win over the Panthers was fueled by contributions outside the typical spotlight.`\
+https://nytimes.com/athletic/6721596/2025/10/16/red-wings-panthers-mason-appleton-win-streak/
+
+**What we saw in Sabres' first win of the season: Josh Doan, Zach Benson spark offense**\
+`Benson returned in style, and Doan shined again as the Sabres beat the Senators 8-4 and earned their first win.`\
+https://nytimes.com/athletic/6721753/2025/10/16/sabres-senators-josh-doan-zach-benson-win/
+
+**Shane Bieber lifts Blue Jays off the ALCS mat, delivering the start they traded for**\
+`In the first, nobody but Bieber was aware how locked in he was. Over six innings, 46,471 Mariners fans learned.`\
+https://nytimes.com/athletic/6721878/2025/10/16/blue-jays-mariners-alcs-game-3-shane-bieber-start/
+
 **China Fans Patriotic Sentiment as Trade War With U.S. Heats Up**\
 `Chinese state media is rallying the public and posting old propaganda footage, but officials are also careful to leave room for talks with President Trump.`\
 https://nytimes.com/2025/10/16/world/asia/china-nationalism-trade-war.html
