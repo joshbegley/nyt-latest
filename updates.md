@@ -1,3 +1,23 @@
+**Hari Chutney Spaghetti**\
+`In the time it takes to bring a large pot of water to a boil, you can make a batch of herby, bright and spicy green chutney, also known as hari chutney (hari means “green” in Hindi).`\
+https://nytimes.com/video/dining/100000010435020/hari-chutney-spaghetti.html
+
+**Tensions High in Cameroon as Country Awaits Election Results**\
+`The election on Sunday was between the 92-year-old incumbent, President Paul Biya, and Issa Tchiroma Bakary, 76, a former senior member of Mr. Biya’s government.`\
+https://nytimes.com/video/world/africa/100000010462650/cameroon-election-protests.html
+
+**A Nobel Peace Prize Brings Hope and Scrutiny to Democratic Struggle**\
+`Ms. Machado’s efforts to reclaim a stolen election by any available means, including military intervention, has long galvanized her supporters. Her opponents say these hard-line policies have a political cost.`\
+https://nytimes.com/2025/10/16/world/americas/machado-nobel-peace-prize-venezuela-opposition.html
+
+**Power ⚡︎ Moves**\
+`Inside China's drive to dominate clean energy.`\
+https://nytimes.com/series/power-moves
+
+**Indiana signs Curt Cignetti to new 8-year contract amid Penn State speculation**\
+`Cignetti is 17-2 midway through his second season at Indiana.`\
+https://nytimes.com/athletic/6723903/2025/10/16/indiana-signs-curt-cignetti-new-contract-penn-state/
+
 **New N.Y.P.D. Unit to Focus on Domestic Violence as Cases Surge**\
 `The new unit will be the largest of its kind in the United States and its members will receive specialized training, the police commissioner said.`\
 https://nytimes.com/2025/10/16/nyregion/nypd-domestic-violence-unit.html

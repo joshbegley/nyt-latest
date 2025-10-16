@@ -1,3 +1,23 @@
+**Hari Chutney Spaghetti**\
+`In the time it takes to bring a large pot of water to a boil, you can make a batch of herby, bright and spicy green chutney, also known as hari chutney (hari means “green” in Hindi).`\
+https://nytimes.com/video/dining/100000010435020/hari-chutney-spaghetti.html
+
+**Tensions High in Cameroon as Country Awaits Election Results**\
+`The election on Sunday was between the 92-year-old incumbent, President Paul Biya, and Issa Tchiroma Bakary, 76, a former senior member of Mr. Biya’s government.`\
+https://nytimes.com/video/world/africa/100000010462650/cameroon-election-protests.html
+
+**A Nobel Peace Prize Brings Hope and Scrutiny to Democratic Struggle**\
+`Ms. Machado’s efforts to reclaim a stolen election by any available means, including military intervention, has long galvanized her supporters. Her opponents say these hard-line policies have a political cost.`\
+https://nytimes.com/2025/10/16/world/americas/machado-nobel-peace-prize-venezuela-opposition.html
+
+**Power ⚡︎ Moves**\
+`Inside China's drive to dominate clean energy.`\
+https://nytimes.com/series/power-moves
+
+**Indiana signs Curt Cignetti to new 8-year contract amid Penn State speculation**\
+`Cignetti is 17-2 midway through his second season at Indiana.`\
+https://nytimes.com/athletic/6723903/2025/10/16/indiana-signs-curt-cignetti-new-contract-penn-state/
+
 **New N.Y.P.D. Unit to Focus on Domestic Violence as Cases Surge**\
 `The new unit will be the largest of its kind in the United States and its members will receive specialized training, the police commissioner said.`\
 https://nytimes.com/2025/10/16/nyregion/nypd-domestic-violence-unit.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6723655/2025/10/16/wnba-chicago-2026-all-star-game/
 **Terrorism Charges Against Antifa ‘Cell’ Show Administration’s Focus on the Left**\
 `President Trump has spoken at times of antifa as though it were a clear-cut extremist organization, but the movement is a decentralized collection of loosely affiliated groups.`\
 https://nytimes.com/2025/10/16/us/politics/justice-department-terrorism-antifa.html
-
-**Bucks, shooting guard AJ Green agree to 4-year, $45 million extension**\
-`The 26-year-old is coming off the best season of his three-year NBA career, shooting 42.7 percent from 3-point range.`\
-https://nytimes.com/athletic/6723868/2025/10/16/bucks-aj-green-extension-nba/
-
-**The Preventionist**\
-`Why are so many families in Pennsylvania’s Lehigh Valley losing custody of their children? Listen to the three-part series. From Serial Productions, hosted by Dyan Neary.`\
-https://nytimes.com/column/the-preventionist
-
-**Appeals Court Maintains Block on Trump’s Troop Deployment to Illinois**\
-`The Seventh Circuit rejected an attempt by the Trump administration to remove an order by a trial court judge. But legal wrangling is expected to continue.`\
-https://nytimes.com/2025/10/16/us/appeals-trump-national-guard-troops-illinois.html
-
-**College football best bets Week 8: Why Alabama-Tennessee could turn into a shootout**\
-`Austin Mock's College Football Projection Model has identified a handful of best bets for Week 8, including the over in Alabama-Tennessee.`\
-https://nytimes.com/athletic/6723509/2025/10/16/college-football-best-bets-week-8-alabama-tennessee/
-
-**Head of the U.S. Military’s Southern Command Is Stepping Down, Officials Say**\
-`Adm. Alvin Holsey is leaving less than a year into his tenure, and as the Pentagon escalates attacks against boats in the Caribbean Sea.`\
-https://nytimes.com/2025/10/16/us/politics/southern-command-head-stepping-down.html
 
