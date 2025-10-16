@@ -1,3 +1,7 @@
+**Dan Campbell says official told him call on overturned TD came from New York**\
+`The Lions coach's assertion contradicted referee Craig Wrolstad's comments after the game.`\
+https://nytimes.com/athletic/6721084/2025/10/15/chiefs-lions-trick-play-overturn-nfl-new-york/
+
 **Trump Hosts Dinner for Wealthy Donors to White House Ballroom**\
 `The president lauded dozens of executives and businesspeople for the “tremendous amounts of money” they have pledged for his project, which has prompted ethical concerns.`\
 https://nytimes.com/2025/10/15/us/politics/trump-white-house-dinner-ballroom-donors.html
