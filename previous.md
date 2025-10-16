@@ -1,4 +1,12 @@
-**Trae Young, Hawks won't agree on an extension before NBA season: Sources**\
+**CeeDee Lamb returning for Cowboys' division matchup vs. Commanders**\
+`The Cowboys need to string together some wins, and Lamb's return, paired with George Pickens' rise, should help.`\
+https://nytimes.com/athletic/6724296/2025/10/16/cee-dee-lamb-injury-update-status-cowboys/
+
+**Ace Frehley, a Founding Member of Kiss, Is Dead at 74**\
+`A consummate showman, he was known for playing guitars rigged with pyrotechnic effects and for his distinctive stage persona.`\
+https://nytimes.com/2025/10/16/arts/music/ace-frehley-dead.html
+
+**Sources: Trae Young, Hawks won't agree on contract extension before NBA season**\
 `Young is entering the final guaranteed season of his contract and can become a free agent next summer if he does not sign a new deal.`\
 https://nytimes.com/athletic/6723424/2025/10/16/trae-young-hawks-contract-extension-nba-season/
 
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6724200/2025/10/16/micah-parsons-packers-referee-cr
 **Curtis Sliwa Will Debate Mamdani and Cuomo for the First Time**\
 `The Republican candidate has had a high profile in New York since he founded the Guardian Angels decades ago. He is running last in the polls.`\
 https://nytimes.com/2025/10/16/nyregion/curtis-sliwa-debate-mamdani-cuomo.html
-
-**The affordable housing shortage is top of mind for New York’s voters.**\
-`The mayoral candidate`\
-https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/the-affordable-housing-shortage-is-top-of-mind-for-new-yorks-voters
-
-**Blue Jays plan to remove Anthony Santander from playoff roster, pending MLB approval: Sources**\
-`The Toronto Blue Jays will be without their biggest offseason acquisition for the rest of the postseason.`\
-https://nytimes.com/athletic/6724217/2025/10/16/blue-jays-plan-to-remove-anthony-santander-mlb-approval/
 

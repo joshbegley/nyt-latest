@@ -1,3 +1,15 @@
+**CeeDee Lamb returning for Cowboys' division matchup vs. Commanders**\
+`The Cowboys need to string together some wins, and Lamb's return, paired with George Pickens' rise, should help.`\
+https://nytimes.com/athletic/6724296/2025/10/16/cee-dee-lamb-injury-update-status-cowboys/
+
+**Ace Frehley, a Founding Member of Kiss, Is Dead at 74**\
+`A consummate showman, he was known for playing guitars rigged with pyrotechnic effects and for his distinctive stage persona.`\
+https://nytimes.com/2025/10/16/arts/music/ace-frehley-dead.html
+
+**Sources: Trae Young, Hawks won't agree on contract extension before NBA season**\
+`Young is entering the final guaranteed season of his contract and can become a free agent next summer if he does not sign a new deal.`\
+https://nytimes.com/athletic/6723424/2025/10/16/trae-young-hawks-contract-extension-nba-season/
+
 **Trae Young, Hawks won't agree on an extension before NBA season: Sources**\
 `Young is entering the final guaranteed season of his contract and can become a free agent next summer if he does not sign a new deal.`\
 https://nytimes.com/athletic/6723424/2025/10/16/trae-young-hawks-contract-extension-nba-season/
