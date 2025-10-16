@@ -1,3 +1,7 @@
+**Zohran Mamdani Explains His Rise**\
+`Our interview with the New York mayoral candidate who has burst onto the national stage.`\
+https://nytimes.com/2025/10/16/podcasts/the-daily/zohran-mamdani-interview.html
+
 **Dark Pop Is In. But Gaga Is Mother.**\
 `Caryn Ganz, The Times’s pop music editor, joins Wesley Morris to talk about Lady Gaga and her Mayhem Ball tour.`\
 https://nytimes.com/video/podcasts/100000010461309/dark-pop-is-in-but-gaga-is-mother.html
@@ -33,8 +37,4 @@ https://nytimes.com/issue/todaysinyt/2025/10/16/todays-new-york-times-internatio
 **Ricky Hatton’s cause of death confirmed at opening of inquest**\
 `Hatton, 46, was found dead at his house in Hyde, near Manchester, on Sunday, September 14.`\
 https://nytimes.com/athletic/6722108/2025/10/16/ricky-hatton-death-inquest-boxing/
-
-**Alyssa Thompson and returning to basics paid off for Chelsea in a statement win**\
-`Chelsea's return to form was perfectly timed and they head into the international break on a positive note`\
-https://nytimes.com/athletic/6721228/2025/10/16/alyssa-thompson-chelsea-parisfc-womens-champions-league/
 

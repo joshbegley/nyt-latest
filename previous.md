@@ -1,3 +1,15 @@
+**Dark Pop Is In. But Gaga Is Mother.**\
+`Caryn Ganz, The Times’s pop music editor, joins Wesley Morris to talk about Lady Gaga and her Mayhem Ball tour.`\
+https://nytimes.com/video/podcasts/100000010461309/dark-pop-is-in-but-gaga-is-mother.html
+
+**The Small Company in Europe Caught in the Big Trade War Between the U.S. and China**\
+`Nexperia, a computer chip maker headquartered in the Netherlands, was taken over by the Dutch government after pressure from officials in Washington.`\
+https://nytimes.com/2025/10/16/business/nexperia-netherlands-us-china.html
+
+**Barca mailbag: Ask our writers Pol Ballus and Laia Cervello Herrero about the season**\
+`Hansi Flick's side already find themselves at a crucial juncture two months into the season. How can they improve?`\
+https://nytimes.com/athletic/6722176/2025/10/16/barcelona-mailbag-season-questions/
+
 **France’s Government Survives No-Confidence Vote**\
 `The result gives Sébastien Lecornu, France’s prime minister, a reprieve after weeks of political turmoil. But he still has to get a budget passed by the end of the year.`\
 https://nytimes.com/2025/10/16/world/europe/france-lecornu-no-confidence-vote.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6722108/2025/10/16/ricky-hatton-death-inquest-boxin
 **Alyssa Thompson and returning to basics paid off for Chelsea in a statement win**\
 `Chelsea's return to form was perfectly timed and they head into the international break on a positive note`\
 https://nytimes.com/athletic/6721228/2025/10/16/alyssa-thompson-chelsea-parisfc-womens-champions-league/
-
-**Four-time Olympic champion Ariarne Titmus retires from swimming aged 25**\
-`Titmus described her decision to retire as "a tough one, a really tough one, but one I’m really happy with.”`\
-https://nytimes.com/athletic/6722116/2025/10/16/ariarne-titmus-retires-swimming/
-
-**Knicks 2025-26 season predictions: NBA champions? Jalen Brunson All-NBA again?**\
-`Will the Knicks return to the Eastern Conference finals or go further? Knicks beat writer James Edwards shares predictions for the season.`\
-https://nytimes.com/athletic/6714464/2025/10/16/knicks-2025-2026-season-predictions-jalen-brunson/
-
-**Fantasy football matchup rankings Week 7 | Strength of schedule**\
-`Jake Ciely's Week 7 fantasy football strength of schedule by position matchup rankings can help with tough start/sit decisions. `\
-https://nytimes.com/athletic/6720347/2025/10/16/fantasy-football-matchup-rankings-week-7-strength-of-schedule/
 

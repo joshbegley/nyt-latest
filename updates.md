@@ -1,3 +1,15 @@
+**Dark Pop Is In. But Gaga Is Mother.**\
+`Caryn Ganz, The Times’s pop music editor, joins Wesley Morris to talk about Lady Gaga and her Mayhem Ball tour.`\
+https://nytimes.com/video/podcasts/100000010461309/dark-pop-is-in-but-gaga-is-mother.html
+
+**The Small Company in Europe Caught in the Big Trade War Between the U.S. and China**\
+`Nexperia, a computer chip maker headquartered in the Netherlands, was taken over by the Dutch government after pressure from officials in Washington.`\
+https://nytimes.com/2025/10/16/business/nexperia-netherlands-us-china.html
+
+**Barca mailbag: Ask our writers Pol Ballus and Laia Cervello Herrero about the season**\
+`Hansi Flick's side already find themselves at a crucial juncture two months into the season. How can they improve?`\
+https://nytimes.com/athletic/6722176/2025/10/16/barcelona-mailbag-season-questions/
+
 **France’s Government Survives No-Confidence Vote**\
 `The result gives Sébastien Lecornu, France’s prime minister, a reprieve after weeks of political turmoil. But he still has to get a budget passed by the end of the year.`\
 https://nytimes.com/2025/10/16/world/europe/france-lecornu-no-confidence-vote.html
