@@ -1,3 +1,23 @@
+**He Studied Elephant Behavior to Save Lives**\
+`Joshua Plotnick worked to prevent deadly encounters between people and elephants. Then the funding froze.`\
+https://nytimes.com/2025/10/16/science/elephants-cognition-plotnick.html
+
+**Fantasy football injuries, inactives, cheat sheet Week 7**\
+`Fantasy football relevant injuries and their impact, weather reports and watch to watch for. Plus, Ciely's Week 7 player rankings and more.`\
+https://nytimes.com/athletic/6716389/2025/10/16/fantasy-football-injuries-inactives-cheat-sheet-nfl-week-7/
+
+**With college soccer ‘at risk,’ U.S. Soccer pushes for overhaul**\
+`Promotion and relegation could be part of radical plans to overhaul American college soccer`\
+https://nytimes.com/athletic/6721890/2025/10/16/us-soccer-college-ncaa-overhaul/
+
+**George Russell exclusive: 'I feel ready to fight for a world championship'**\
+`In his first interview since a new contract with Mercedes was announced, George Russell talks about how he is in the form of his life`\
+https://nytimes.com/athletic/6722538/2025/10/16/george-russell-mercedes-contract-interview/
+
+**The Latest Victoria’s Secret Show(girls)**\
+`Angel Reese, Sunisa Lee and both Hadids were on the runway as the company made yet another attempt at relevancy.`\
+https://nytimes.com/2025/10/16/style/victorias-secret-vs-show.html
+
 **Penn State had been at the edge of a precipice for some time. Here's why**\
 `Penn State seemed built to contend and riding recent good vibes. In reality, it was one of college football's most fragile teams.`\
 https://nytimes.com/athletic/6722394/2025/10/16/james-franklin-firing-penn-state-drew-allar-loss/
