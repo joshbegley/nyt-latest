@@ -1,3 +1,7 @@
+**Blackhawks power rankings: Nazar's flash, Reichel's redemption and some sweet jackets**\
+`There's nothing like putting up eight goals on the road against a hated division rival to send the vibes soaring.`\
+https://nytimes.com/athletic/6721790/2025/10/16/blackhawks-power-rankings-frank-nazar-lukas-reichel/
+
 **Leeds' James ahead of schedule with ankle injury, could be fit to face Burnley**\
 `Manager Daniel Farke had previously expected the 27-year-old to be unavailable until after the November international break.`\
 https://nytimes.com/athletic/6722701/2025/10/16/dan-james-leeds-injury-latest/

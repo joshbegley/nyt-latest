@@ -1,3 +1,11 @@
+**Johnson & Johnson Sued in U.K. Over Baby Powder Cancer Claims**\
+`More than 3,000 people in Britain have joined a lawsuit accusing the company of knowing that its baby powder contained carcinogenic fibers, including asbestos.`\
+https://nytimes.com/2025/10/16/business/johnson-johnson-talc-lawsuit-uk.html
+
+**How FEMA Is Pushing Communities to Fend for Themselves**\
+`President Trump has said he wants to eventually shift the burden of disaster relief and recovery onto states. It’s already happening.`\
+https://nytimes.com/2025/10/16/climate/fema-disaster-recovery-trump.html
+
 **Blackhawks power rankings: Nazar's flash, Reichel's redemption and some sweet jackets**\
 `There's nothing like putting up eight goals on the road against a hated division rival to send the vibes soaring.`\
 https://nytimes.com/athletic/6721790/2025/10/16/blackhawks-power-rankings-frank-nazar-lukas-reichel/
@@ -14,7 +22,7 @@ https://nytimes.com/athletic/6722700/2025/10/16/jason-steele-brighton-contract/
 `Here's how to watch all 82 Utah Jazz games this season. Under Ryan Smith, the franchise has a different setup for regional telecasts.`\
 https://nytimes.com/athletic/6720914/2025/10/16/utah-jazz-ace-bailey-2025-26-how-to-watch/
 
-**A Love of Watches Rather than Brand Names**\
+**A Love of Watches Rather Than Brand Names**\
 `Now in its 10th year, the Windup Watch Fair has become a go-to destination for independent brands and watch enthusiasts, with nary a Rolex in sight.`\
 https://nytimes.com/2025/10/16/style/windup-watch-fair-new-york.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/16/crosswords/halloween-games-costumes.html
 **The Kings aren’t going to compete in a crowded West. But Westbrook makes them entertaining**\
 `The Sacramento Kings are a confusing mashup of expensive contracts and ball-dominant players. But they will be entertaining to watch.`\
 https://nytimes.com/athletic/6722085/2025/10/16/russell-westbrook-sacramento-kings-fit/
-
-**The 3 glaring problems that are holding back the Commanders' defense**\
-`There are three glaring areas where Washington’s defense needs to find clear answers and solutions.`\
-https://nytimes.com/athletic/6722518/2025/10/16/commanders-defense-mistakes-tackles-turnovers/
-
-**We need to talk about Chris Kreider's hot start with the Anaheim Ducks — because he won't**\
-`Kreider won't net two pucks every night, but leaving New York might have been what he needed.`\
-https://nytimes.com/athletic/6721768/2025/10/16/chris-kreider-hot-start-anaheim-ducks/
 

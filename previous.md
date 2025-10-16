@@ -1,3 +1,7 @@
+**Blackhawks power rankings: Nazar's flash, Reichel's redemption and some sweet jackets**\
+`There's nothing like putting up eight goals on the road against a hated division rival to send the vibes soaring.`\
+https://nytimes.com/athletic/6721790/2025/10/16/blackhawks-power-rankings-frank-nazar-lukas-reichel/
+
 **Leeds' James ahead of schedule with ankle injury, could be fit to face Burnley**\
 `Manager Daniel Farke had previously expected the 27-year-old to be unavailable until after the November international break.`\
 https://nytimes.com/athletic/6722701/2025/10/16/dan-james-leeds-injury-latest/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6722518/2025/10/16/commanders-defense-mistakes-tack
 **We need to talk about Chris Kreider's hot start with the Anaheim Ducks — because he won't**\
 `Kreider won't net two pucks every night, but leaving New York might have been what he needed.`\
 https://nytimes.com/athletic/6721768/2025/10/16/chris-kreider-hot-start-anaheim-ducks/
-
-**Luka, LeBron and the Lake Show: How to stream the 2025-26 Los Angeles Lakers season**\
-`The latest Lakers harbor title hopes and attract all kinds of national attention. Once again, it is showtime along South Figueroa Street.`\
-https://nytimes.com/athletic/6718022/2025/10/16/lakers-luka-doncic-lebron-james-nba-prime-peacock-how-to-watch/
 
