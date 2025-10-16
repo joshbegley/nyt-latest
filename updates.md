@@ -1,3 +1,23 @@
+**Police request Maccabi Tel Aviv fans not be allowed to attend Villa game**\
+`When Maccabi Tel Aviv travelled to face Ajax last year, 62 people were arrested and five hospitalised after violent clashes.`\
+https://nytimes.com/athletic/6722327/2025/10/16/aston-villa-maccabi-tel-aviv-uefa/
+
+**College football picks ATS: Another test for Bama, the end of Vandy's streak and more**\
+`With five Top 25 matchups in Week 8, there is plenty to watch for. Our staff picks the biggest games against the spread.`\
+https://nytimes.com/athletic/6719644/2025/10/16/college-football-picks-spread-week-8-alabama-vanderbilt-notre-dame/
+
+**What Your Hair Can Tell You About Your Health**\
+`More than just dead matter, hair is an archive of your body’s secrets.`\
+https://nytimes.com/2025/10/16/well/hair-health.html
+
+**The Windup: The Blue Jays’ irony-laden outburst**\
+`Welcome to The Windup, The Athletic's MLB newsletter.`\
+https://nytimes.com/athletic/6721920/2025/10/16/blue-jays-mariners-game-3-the-windup/
+
+**Where Does the Israel-Hamas Cease-Fire Stand?**\
+`Unresolved issues — mainly over the exchange of hostage and prisoner remains — threaten to destabilize the fragile agreement.`\
+https://nytimes.com/2025/10/16/world/middleeast/israel-hamas-gaza-cease-fire.html
+
 **This Fish Dish Will Never Fail You**\
 `This simple miso glaze works for pretty much any kind of fish (speaking from experience).`\
 https://nytimes.com/2025/10/16/dining/this-fish-dish-will-never-fail-you.html

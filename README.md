@@ -1,3 +1,7 @@
+**Until Saturday: Who's the next Curt Cignetti?**\
+`Until Saturday is The Athletic's free CFB newsletter.`\
+https://nytimes.com/athletic/6723025/2025/10/16/cfb-coaching-candidates-until-saturday/
+
 **Police request Maccabi Tel Aviv fans not be allowed to attend Villa game**\
 `When Maccabi Tel Aviv travelled to face Ajax last year, 62 people were arrested and five hospitalised after violent clashes.`\
 https://nytimes.com/athletic/6722327/2025/10/16/aston-villa-maccabi-tel-aviv-uefa/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6721797/2025/10/16/fantasy-hockey-trends-gems-week-
 **Are You a Young Employee Asked to Spend More Time in the Office?**\
 `Please tell us how stricter return-to-office mandates are affecting your work life and home life.`\
 https://nytimes.com/2025/10/16/business/rto-young-worker-attitude.html
-
-**Carbon Dioxide Levels Jumped by a Record Amount, U.N. Says**\
-`Surging emissions from wildfires may have been behind the increase, which was the largest since modern measurements began more than half a century ago.`\
-https://nytimes.com/2025/10/16/climate/carbon-dioxide-emissions-record-jump.html
 
