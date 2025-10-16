@@ -1,3 +1,7 @@
+**Is ‘The Morning Show’ a Crystal Ball for Cable News?**\
+`The Apple TV series set in a fictional newsroom seems to be particularly prescient at the moment.`\
+https://nytimes.com/2025/10/16/style/is-the-morning-show-a-crystal-ball-for-cable-news.html
+
 **WNBA season is most viewed ever on ESPN networks**\
 `ESPN's networks aired the entire postseason (24 games), with games averaging 1.2 million viewers each.`\
 https://nytimes.com/athletic/6723196/2025/10/16/wnba-ratings-viewers-2025-espn/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6722672/2025/10/16/stephen-a-smith-town-hall/
 **How Raila Odinga Symbolized the Good and Bad of Kenyan Politics**\
 `He was one of the most pivotal public figures in Kenya. He died this week after fighting against tribalism for decades.`\
 https://nytimes.com/2025/10/16/world/asia/odinga-symbol-kenyan-politics.html
-
-**Fire in Party Office Raises Tensions as Cameroon Awaits Election Results**\
-`The blaze and arrests of protesters highlight the strife in the country, whose longtime president faced rare electoral opposition.`\
-https://nytimes.com/2025/10/16/world/africa/cameroon-election-fire-protests.html
 
