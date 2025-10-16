@@ -1,3 +1,11 @@
+**Key fantasy football questions for Week 7: Will Rico Dowdle have a hat trick?**\
+`Dalton Del Don looks at the key fantasy football topics for Week 7, including the potential of Rico Dowdle cashing big three weeks in a row.`\
+https://nytimes.com/athletic/6720933/2025/10/16/fantasy-football-questions-week-7-dowdle-rice-vidal/
+
+**Vatican Panel Says Church Is Still Too Slow in Addressing Sexual Abuse**\
+`The commission’s report highlights the difficulties Pope Leo faces in trying to end clerical abuses and ensure abusers are held to account.`\
+https://nytimes.com/2025/10/16/world/europe/vatican-sexual-abuse-report.html
+
 **Mets Fan Survey 2025: How do you feel about the Mets right now?**\
 `Perhaps Mets fans have calmed down a little, perhaps not. We’re interested in finding out.`\
 https://nytimes.com/athletic/6720247/2025/10/16/mets-fan-survey-2025/

@@ -1,3 +1,11 @@
+**Key fantasy football questions for Week 7: Will Rico Dowdle have a hat trick?**\
+`Dalton Del Don looks at the key fantasy football topics for Week 7, including the potential of Rico Dowdle cashing big three weeks in a row.`\
+https://nytimes.com/athletic/6720933/2025/10/16/fantasy-football-questions-week-7-dowdle-rice-vidal/
+
+**Vatican Panel Says Church Is Still Too Slow in Addressing Sexual Abuse**\
+`The commission’s report highlights the difficulties Pope Leo faces in trying to end clerical abuses and ensure abusers are held to account.`\
+https://nytimes.com/2025/10/16/world/europe/vatican-sexual-abuse-report.html
+
 **Mets Fan Survey 2025: How do you feel about the Mets right now?**\
 `Perhaps Mets fans have calmed down a little, perhaps not. We’re interested in finding out.`\
 https://nytimes.com/athletic/6720247/2025/10/16/mets-fan-survey-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6719545/2025/10/16/broncos-bo-nix-up-tempo-offense/
 **26 for 2026: USMNT World Cup roster projection after October friendlies**\
 `Plenty can – and likely will – change over the next seven months, but here's how we see the USMNT World Cup squad after the latest camp`\
 https://nytimes.com/athletic/6720702/2025/10/16/usmnt-roster-projection-2026-world-cup-october/
-
-**5 thoughts on Canucks’ new-look top-six, Filip Chytil's curious deployment, and more**\
-`Vancouver faces a key road trip featuring three games in four days.`\
-https://nytimes.com/athletic/6721685/2025/10/16/canucks-top-six-five-thoughts/
-
-**The Sixers need a lot to go right to contend in the Eastern Conference this season**\
-`How good can the 76ers be this season? Taking a look at the East and where the Sixers realistically stand. `\
-https://nytimes.com/athletic/6700757/2025/10/16/sixers-joel-embiid-tyrese-maxey-nba-eastern-conference/
 
