@@ -1,3 +1,7 @@
+**Trump Hosts Dinner for Wealthy Donors to White House Ballroom**\
+`The president lauded dozens of executives and businesspeople for the “tremendous amounts of money” they have pledged for his project, which has prompted ethical concerns.`\
+https://nytimes.com/2025/10/15/us/politics/trump-white-house-dinner-ballroom-donors.html
+
 **Mariners-Blue Jays Game 3 takeaways: Toronto's bats blast back into series**\
 `The Blue Jays hit five home runs in a 13-4 beatdown that narrowed the Mariners' series lead to two games to one.`\
 https://nytimes.com/athletic/6721573/2025/10/15/blue-jays-mariners-game-3-score-results-takeaways-playoffs-mlb/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/15/crosswords/daily-puzzle-2025-10-16.html
 **Utah Mammoth reveal 'Tusky' as their official mascot**\
 `"Tusky," a 6-foot-5 blue woolly mammoth, was unveiled Wednesday before Utah's home opener against the Calgary Flames.`\
 https://nytimes.com/athletic/6721482/2025/10/15/utah-mammoth-mascot-tusky-nhl/
-
-**'I made a mistake': Tua Tagovailoa apologizes for comments after Sunday’s game**\
-`"I would say I've made a mistake and I'm owning up to that right now," Tagovailoa said.`\
-https://nytimes.com/athletic/6720502/2025/10/15/dolphins-tua-tagovailoa-apologizes-comments/
 
