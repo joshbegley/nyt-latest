@@ -1,3 +1,7 @@
+**College football best bets Week 8: Why Alabama-Tennessee could turn into a shootout**\
+`Austin Mock's College Football Projection Model has identified a handful of best bets for Week 8, including the over in Alabama-Tennessee.`\
+https://nytimes.com/athletic/6723509/2025/10/16/college-football-best-bets-week-8-alabama-tennessee/
+
 **Head of the U.S. Military’s Southern Command Is Stepping Down, Officials Say**\
 `Adm. Alvin Holsey is leaving less than a year into his tenure, and as the Pentagon escalates attacks against boats in the Caribbean Sea.`\
 https://nytimes.com/2025/10/16/us/politics/southern-command-head-stepping-down.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6723674/2025/10/16/bruins-vs-golden-knights-stream-
 **Trump’s Unilateral Spending Cuts Complicate Shutdown Deal**\
 `Democrats want guarantees that President Trump will not continue to claw back spending, ignoring any agreement they strike. But he has promised to keep defying Congress.`\
 https://nytimes.com/2025/10/16/us/politics/trump-unilateral-spending-cuts-shutdown.html
-
-**Yankees will be without Carlos Rodón, Anthony Volpe on Opening Day**\
-`The Yankees will already be without Gerrit Cole and Clarke Schmidt to begin the year, as both continue recovering from elbow surgery.`\
-https://nytimes.com/athletic/6723354/2025/10/16/yankees-carlos-rodon-anthony-volpe-opening-day/
 

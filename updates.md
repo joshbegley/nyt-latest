@@ -1,3 +1,7 @@
+**College football best bets Week 8: Why Alabama-Tennessee could turn into a shootout**\
+`Austin Mock's College Football Projection Model has identified a handful of best bets for Week 8, including the over in Alabama-Tennessee.`\
+https://nytimes.com/athletic/6723509/2025/10/16/college-football-best-bets-week-8-alabama-tennessee/
+
 **Head of the U.S. Military’s Southern Command Is Stepping Down, Officials Say**\
 `Adm. Alvin Holsey is leaving less than a year into his tenure, and as the Pentagon escalates attacks against boats in the Caribbean Sea.`\
 https://nytimes.com/2025/10/16/us/politics/southern-command-head-stepping-down.html
