@@ -1,3 +1,7 @@
+**'I made a mistake': Tua Tagovailoa apologizes for comments after Sunday’s game**\
+`"I would say I've made a mistake and I'm owning up to that right now," Tagovailoa said.`\
+https://nytimes.com/athletic/6720502/2025/10/15/dolphins-tua-tagovailoa-apologizes-comments/
+
 **Shohei Ohtani talks playoff skid, then hits ball off the roof in batting practice**\
 `Ohtani is striking out nearly half the time and said his focus is on taking "quality at-bats."`\
 https://nytimes.com/athletic/6721257/2025/10/15/shohei-ohtani-postseason-slump-nlcs/
@@ -33,8 +37,4 @@ https://nytimes.com/interactive/2025/10/15/business/media/pentatgon-press-rules.
 **Trump Administration Decimates Birth Control Office in Layoffs**\
 `The layoffs have raised fears that the administration could be effectively ending an initiative that provides contraception for millions of low-income women.`\
 https://nytimes.com/2025/10/15/us/politics/trump-birth-control-layoffs.html
-
-**N.Y. Democrats Urge Hochul to Reject Pipeline Over Climate Concerns**\
-`Ten members of Congress wrote in a letter to the governor that a gas pipeline proposed for New York Harbor runs counter to the state’s emissions reductions goals.`\
-https://nytimes.com/2025/10/15/nyregion/house-democrats-hochul-gas-pipeline-nyc.html
 
