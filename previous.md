@@ -1,3 +1,11 @@
+**U.S. Enters 15th Day of Late-Night Jokes About Government Shutdown**\
+`Jimmy Kimmel told his viewers that in 2018, “Trump shut the government down until they brought back the McRib or something.”`\
+https://nytimes.com/2025/10/16/arts/television/jimmy-kimmel-government-shutdown.html
+
+**Word of the Day: laudable**\
+`This word has appeared in 74 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/10/16/learning/word-of-the-day-laudable.html
+
 **The New York Times in Print for Thursday, Oct. 16, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/16/todays-new-york-times
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6719752/2025/10/16/lucas-perri-karl-darlow-leeds-an
 **Fantasy Premier League: How to approach the next four gameweeks**\
 `As the Premier League returns, here are the teams and players to target and avoid in what will prove to be a make-or-break period in FPL`\
 https://nytimes.com/athletic/6718497/2025/10/16/fantasy-premier-league-gw8-targets-captain/
-
-**From Huddersfield to making it big in U.S. college basketball: 'It was never about the money'**\
-`Osobor, who lived in England for nearly a decade, became a 'pioneer' by signing a fruitful deal in his final year at college`\
-https://nytimes.com/athletic/6715451/2025/10/16/great-osobor-college-basketball-interview/
-
-**New signings and different roles for existing players – analysing Arsenal's attacking versatility**\
-`The Premier League leaders have a range of new forward options - both in terms of personnel and how they can be deployed `\
-https://nytimes.com/athletic/6715602/2025/10/16/arsenal-arteta-versatility-eze-saka/
 

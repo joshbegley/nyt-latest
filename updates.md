@@ -1,3 +1,11 @@
+**U.S. Enters 15th Day of Late-Night Jokes About Government Shutdown**\
+`Jimmy Kimmel told his viewers that in 2018, “Trump shut the government down until they brought back the McRib or something.”`\
+https://nytimes.com/2025/10/16/arts/television/jimmy-kimmel-government-shutdown.html
+
+**Word of the Day: laudable**\
+`This word has appeared in 74 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
+https://nytimes.com/2025/10/16/learning/word-of-the-day-laudable.html
+
 **The New York Times in Print for Thursday, Oct. 16, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/16/todays-new-york-times

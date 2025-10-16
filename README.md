@@ -1,3 +1,7 @@
+**How to watch Blue Jays at Mariners: Game 4 Time, TV, streaming**\
+`Find out how to watch the Toronto Blue Jays play the Seattle Mariners, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6721919/2025/10/16/blue-jays-vs-mariners-stream-how-to-watch-oct-16/
+
 **U.S. Enters 15th Day of Late-Night Jokes About Government Shutdown**\
 `Jimmy Kimmel told his viewers that in 2018, “Trump shut the government down until they brought back the McRib or something.”`\
 https://nytimes.com/2025/10/16/arts/television/jimmy-kimmel-government-shutdown.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6696847/2025/10/16/huddersfield-town-sacramento-nag
 **Should Leeds stick with Karl Darlow or restore Lucas Perri to the starting line-up?**\
 `Karl Darlow has been starting for Leeds in Lucas Perri's absence. But should Perri start against Burnley?`\
 https://nytimes.com/athletic/6719752/2025/10/16/lucas-perri-karl-darlow-leeds-analysis/
-
-**Fantasy Premier League: How to approach the next four gameweeks**\
-`As the Premier League returns, here are the teams and players to target and avoid in what will prove to be a make-or-break period in FPL`\
-https://nytimes.com/athletic/6718497/2025/10/16/fantasy-premier-league-gw8-targets-captain/
 
