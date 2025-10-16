@@ -1,3 +1,7 @@
+**From Serial Productions: The Preventionist**\
+`Why are so many families in the Lehigh Valley losing custody of their children?`\
+https://nytimes.com/2025/10/15/podcasts/serial-productions-the-preventionist.html
+
 **Trinity Rodman exits Spirit game with injury hours after earning USWNT call-up**\
 `Rodman had recently earned her first U.S. call-up since April after a persistent back issue kept her out of action for much of the summer.`\
 https://nytimes.com/athletic/6721462/2025/10/15/trinity-rodman-injury-uswnt-nwsl-spirit/
