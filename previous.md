@@ -1,3 +1,7 @@
+**Utah Mammoth reveal 'Tusky' as their official mascot**\
+`“Tusky,” a 6-foot-5 blue woolly mammoth, was unveiled on Wednesday evening before the Mammoth’s home opener against the Calgary Flames.`\
+https://nytimes.com/athletic/6721482/2025/10/15/utah-mammoth-mascot-tusky-nhl/
+
 **'I made a mistake': Tua Tagovailoa apologizes for comments after Sunday’s game**\
 `"I would say I've made a mistake and I'm owning up to that right now," Tagovailoa said.`\
 https://nytimes.com/athletic/6720502/2025/10/15/dolphins-tua-tagovailoa-apologizes-comments/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6721223/2025/10/15/kevin-durant-nba-josh-naylor-mar
 **How the Pentagon Is Blocking Out News Organizations**\
 `The new rules codify strict limitations on access and raise the prospect of punishment for requesting information on matters of public interest.`\
 https://nytimes.com/interactive/2025/10/15/business/media/pentatgon-press-rules.html
-
-**Trump Administration Decimates Birth Control Office in Layoffs**\
-`The layoffs have raised fears that the administration could be effectively ending an initiative that provides contraception for millions of low-income women.`\
-https://nytimes.com/2025/10/15/us/politics/trump-birth-control-layoffs.html
 

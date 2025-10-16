@@ -1,3 +1,7 @@
+**Utah Mammoth reveal 'Tusky' as their official mascot**\
+`“Tusky,” a 6-foot-5 blue woolly mammoth, was unveiled on Wednesday evening before the Mammoth’s home opener against the Calgary Flames.`\
+https://nytimes.com/athletic/6721482/2025/10/15/utah-mammoth-mascot-tusky-nhl/
+
 **'I made a mistake': Tua Tagovailoa apologizes for comments after Sunday’s game**\
 `"I would say I've made a mistake and I'm owning up to that right now," Tagovailoa said.`\
 https://nytimes.com/athletic/6720502/2025/10/15/dolphins-tua-tagovailoa-apologizes-comments/
