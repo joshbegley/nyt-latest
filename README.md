@@ -1,40 +1,40 @@
-**Trump Administration Live Updates: President Reshapes Federal Work Force as Shutdown Drags On**\
-``\
-https://nytimes.com/live/2025/10/16/us/trump-news
+**Why Oilers are still searching for offensive breakthrough: 'It’s just a matter of time'**\
+`The Oilers have been figuring things out as they go up front so far, and the results are evident.`\
+https://nytimes.com/athletic/6720844/2025/10/16/oilers-stats-goals-mcdavid-points/
 
-**Ty Dillon's spotter out at Kaulig after Las Vegas crash that took out William Byron**\
-`"I'm disappointed but not surprised either," spotter Joe White says, "as I knew I wasn't going back to spot that car next year anyway."`\
-https://nytimes.com/athletic/6721231/2025/10/16/ty-dillon-kaulig-spotter-fired-william-byron/
+**Nebraska at midseason: Are 10 wins in reach? Plus, superlatives and predictions**\
+`The Huskers must show they can block out distractions and capitalize on a favorable Big Ten schedule in the second half. `\
+https://nytimes.com/athletic/6720503/2025/10/16/nebraska-football-matt-rhule-rest-of-season-predictions/
 
-**Who Will Blink First: Trump or Xi?**\
-`Washington and Beijing both need a trade win as steep new tariffs and tough import limits on critical minerals loom.`\
-https://nytimes.com/2025/10/16/business/dealbook/trump-china-trade-negotiations.html
+**Could more tempo with Bo Nix be the answer to Broncos' offensive struggles?**\
+`The Broncos found success with no-huddle on Sunday when not much else was working, offering a potential roadmap to more efficiency.`\
+https://nytimes.com/athletic/6719545/2025/10/16/broncos-bo-nix-up-tempo-offense/
 
-**What NBA scouts are saying about Tre Johnson as he begins his rookie season**\
-`The Washington Wizards used the sixth pick in the 2025 NBA Draft to select Johnson. We asked scouts what they think of Johnson's potential.`\
-https://nytimes.com/athletic/6720995/2025/10/16/tre-johnson-what-scouts-are-saying/
+**26 for 2026: USMNT World Cup roster projection after October friendlies**\
+`Plenty can – and likely will – change over the next seven months, but here's how we see the USMNT World Cup squad after the latest camp`\
+https://nytimes.com/athletic/6720702/2025/10/16/usmnt-roster-projection-2026-world-cup-october/
 
-**Who will be the Mavericks' perimeter defensive stopper?**\
-`Dallas has the size to be elite defensively, especially in the frontcourt. But containing quicker guards might be a problem.`\
-https://nytimes.com/athletic/6722054/2025/10/16/mavericks-defense-perimeter-cooper-flagg-preseason/
+**5 thoughts on Canucks’ new-look top-six, Filip Chytil's curious deployment, and more**\
+`Vancouver faces a key road trip featuring three games in four days.`\
+https://nytimes.com/athletic/6721685/2025/10/16/canucks-top-six-five-thoughts/
 
-**The Pulse: A home team may never win again**\
-`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
-https://nytimes.com/athletic/6720166/2025/10/16/blue-jays-mariners-game-3-the-pulse/
+**The Sixers need a lot to go right to contend in the Eastern Conference this season**\
+`How good can the 76ers be this season? Taking a look at the East and where the Sixers realistically stand. `\
+https://nytimes.com/athletic/6700757/2025/10/16/sixers-joel-embiid-tyrese-maxey-nba-eastern-conference/
 
-**‘Mr. Scorsese’ Review: A Captivating and Charismatic Profile**\
-`Rebecca Miller’s five-part documentary series balances her esteem for the director with a clear eye toward his struggles.`\
-https://nytimes.com/2025/10/16/movies/mr-scorsese-review.html
+**India Tiptoes Around Trump’s Latest Claims on Russian Oil Purchases**\
+`The government subtly rebuffed the president’s comments that it would stop buying Russian oil, as it tries to avoid a public fight and end a trade dispute with Washington.`\
+https://nytimes.com/2025/10/16/world/asia/india-trump-russia-oil.html
 
-**From Epstein’s Chief Accuser, a Memoir Both Sad and Devastating**\
-`Virginia Roberts Giuffre’s posthumous “Nobody’s Girl” doesn’t break political news, but might break your heart.`\
-https://nytimes.com/2025/10/16/books/review/virginia-roberts-giuffre-nobodys-girl-memoir.html
+**Chicago Bulls 2025-26 streaming and schedule info: How to see red this season**\
+`Cue the Alan Parsons Project intro. Toss ketchup in the dumpster, or anywhere far from your Italian beef. It's time for Bulls basketball.`\
+https://nytimes.com/athletic/6720666/2025/10/16/chicago-bulls-2025-26-tv-streaming-schedule-info-nba/
 
-**Midseason Hope-O-Meter! How are Michigan and Ohio State fans feeling about The Game?**\
-`Ohio State is 6-0, Michigan is 4-2 and confidence in the rivalry is flipping despite the Wolverines' four wins in a row over the Buckeyes.`\
-https://nytimes.com/athletic/6720793/2025/10/16/michigan-ohio-state-football-rivalry-predictions-2025/
+**‘We Lucked Out’: Early Rains Tame California’s Peak Wildfire Season**\
+`Recent rain significantly reduced the risk of a large fire breaking out before year’s end, experts said.`\
+https://nytimes.com/2025/10/16/weather/california-fire-season-update.html
 
-**Chicagoans Resist I.C.E. Agents**\
-`Immigration agents are using aggressive tactics. Residents of the sanctuary city are trying to resist them.`\
-https://nytimes.com/2025/10/16/us/chicago-ice-raids-ressit.html
+**What to Know About the California Special Election**\
+`Some 23 million voters have received mail ballots for the Nov. 4 election. The only statewide measure this fall is a redistricting plan spearheaded by Gov. Gavin Newsom.`\
+https://nytimes.com/2025/10/16/us/california-election-redistricting-newsom.html
 
