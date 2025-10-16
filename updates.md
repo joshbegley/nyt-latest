@@ -1,3 +1,19 @@
+**What Teenagers Are Saying About Gaming**\
+`Students react to an article about whether the increasing amount of time boys spend playing video games is a problem.`\
+https://nytimes.com/2025/10/16/learning/what-teenagers-are-saying-about-gaming.html
+
+**With defensive leaders on crutches, pass-happy 49ers need George Kittle, Brock Purdy**\
+`The 49ers have a leadership void after Fred Warner's injury. They also need help in both the run and pass game, which Kittle can provide.`\
+https://nytimes.com/athletic/6722043/2025/10/16/brock-purdy-george-kittle-leadership-pass-game/
+
+**2026 WNBA champion odds and way-too-early picks: Lynx, Aces, Fever open in top tier**\
+`The 2025 WNBA playoffs featured surprise runs and surprise blowouts. Who is favored to win it all in 2026?`\
+https://nytimes.com/athletic/6720555/2025/10/16/2026-wnba-champion-odds-picks-aces-lynx-fever/
+
+**Israel Philharmonic Draws Protesters as Talk in Gaza Turns to Peace**\
+`For two years, protesters have targeted cultural events around the world, particularly those with Israeli artists. On Wednesday, a small group gathered at Carnegie Hall.`\
+https://nytimes.com/2025/10/16/arts/music/israel-philharmonic-carnegie-hall-protests-middle-east.html
+
 **New Oklahoma Superintendent Rescinds Bible Mandate**\
 `The superintendent said he had “no plans” to enforce his predecessor’s mandate to put Bibles in public school classrooms, which was being fought in court.`\
 https://nytimes.com/2025/10/16/us/oklahoma-schools-superintendent-bible-mandate.html
