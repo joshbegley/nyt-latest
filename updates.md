@@ -1,3 +1,7 @@
+**TAFC: Real Madrid and a controversial ownership plan. Plus: Pulisic injury debate**\
+`Today in TAFC: We explain why Real Madrid might be about to change its ownership structure. Plus: fact-checking Pochettino's comments.`\
+https://nytimes.com/athletic/6722099/2025/10/16/real-madrid-socios-sale-perez/
+
 **After making the big trade, do the Cubs even know what Kyle Tucker wants as a free agent?**\
 `In listening to separate end-of-season reflections from Tucker and president of baseball operations Jed Hoyer, both sides sound detached.`\
 https://nytimes.com/athletic/6721243/2025/10/16/chicago-cubs-kyle-tucker-free-agency/
