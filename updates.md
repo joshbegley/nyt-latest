@@ -1,3 +1,7 @@
+**Midseason Hope-O-Meter! How are Michigan and Ohio State fans feeling about The Game?**\
+`Ohio State is 6-0, Michigan is 4-2 and confidence in the rivalry is flipping despite the Wolverines' four wins in a row over the Buckeyes.`\
+https://nytimes.com/athletic/6720793/2025/10/16/michigan-ohio-state-football-rivalry-predictions-2025/
+
 **Chicagoans Resist I.C.E. Agents**\
 `Immigration agents are using aggressive tactics. Residents of the sanctuary city are trying to resist them.`\
 https://nytimes.com/2025/10/16/us/chicago-ice-raids-ressit.html

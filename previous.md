@@ -1,3 +1,7 @@
+**Midseason Hope-O-Meter! How are Michigan and Ohio State fans feeling about The Game?**\
+`Ohio State is 6-0, Michigan is 4-2 and confidence in the rivalry is flipping despite the Wolverines' four wins in a row over the Buckeyes.`\
+https://nytimes.com/athletic/6720793/2025/10/16/michigan-ohio-state-football-rivalry-predictions-2025/
+
 **Chicagoans Resist I.C.E. Agents**\
 `Immigration agents are using aggressive tactics. Residents of the sanctuary city are trying to resist them.`\
 https://nytimes.com/2025/10/16/us/chicago-ice-raids-ressit.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6720482/2025/10/16/penguins-2025-26-nhl-season-evge
 **How a soft-spoken NHL star uses his platform to raise awareness for Parkinson's**\
 `Kyle Connor has had a transformative year, but his biggest impact may be off the ice as he tries to honor one of his late father's dreams.`\
 https://nytimes.com/athletic/6719711/2025/10/16/kyle-connor-winnipeg-jets-parkinsons-disease/
-
-**NFL trade deadline 2025 players to watch include Mark Andrews, Trey Hendrickson and more**\
-`With the Ravens floundering at 1-5 and the Bengals missing Joe Burrow, Andrews and Hendrickson could be among those in high demand.`\
-https://nytimes.com/athletic/6719151/2025/10/16/nfl-trade-deadline-2025-mark-andrews-trey-hendrickson/
 
