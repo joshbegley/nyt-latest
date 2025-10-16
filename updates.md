@@ -1,3 +1,7 @@
+**The Pulse: A home team may never win again**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6720166/2025/10/16/blue-jays-mariners-game-3-the-pulse/
+
 **‘Mr. Scorsese’ Review: A Captivating and Charismatic Profile**\
 `Rebecca Miller’s five-part documentary series balances her esteem for the director with a clear eye toward his struggles.`\
 https://nytimes.com/2025/10/16/movies/mr-scorsese-review.html

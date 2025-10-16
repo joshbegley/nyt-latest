@@ -1,3 +1,7 @@
+**The Pulse: A home team may never win again**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6720166/2025/10/16/blue-jays-mariners-game-3-the-pulse/
+
 **‘Mr. Scorsese’ Review: A Captivating and Charismatic Profile**\
 `Rebecca Miller’s five-part documentary series balances her esteem for the director with a clear eye toward his struggles.`\
 https://nytimes.com/2025/10/16/movies/mr-scorsese-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6717831/2025/10/16/trouble-with-the-snap-michigan-s
 **What's Trending in the NFL: Truths we knew before the season that have manifested themselves**\
 `It's no surprise that the Cowboys defense has been bad, though it's probably worse than expected.`\
 https://nytimes.com/athletic/6720212/2025/10/16/nfl-trends-week-7-cowboys-defense-truths/
-
-**The 10 smallest teams that can still qualify for the World Cup**\
-`After Cape Verde's success this week, which other outsiders could yet reach next summer's tournament?`\
-https://nytimes.com/athletic/6718802/2025/10/16/world-cup-smallest-countries-qualification/
 
