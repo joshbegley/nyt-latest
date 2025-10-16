@@ -1,3 +1,7 @@
+**Mets Fan Survey 2025: How do you feel about the Mets right now?**\
+`Perhaps Mets fans have calmed down a little, perhaps not. We’re interested in finding out.`\
+https://nytimes.com/athletic/6720247/2025/10/16/mets-fan-survey-2025/
+
 **Caitlin Clark to run it back at LPGA event. WNBA star will compete in The Annika pro-am**\
 `The Indiana Fever guard will return to the LPGA Tour event on Nov. 12, the day of the pro-am at Pelican Golf Club in Belleair, Fla.`\
 https://nytimes.com/athletic/6721102/2025/10/16/caitlin-clark-lpga-pro-am-the-annika/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6721685/2025/10/16/canucks-top-six-five-thoughts/
 **The Sixers need a lot to go right to contend in the Eastern Conference this season**\
 `How good can the 76ers be this season? Taking a look at the East and where the Sixers realistically stand. `\
 https://nytimes.com/athletic/6700757/2025/10/16/sixers-joel-embiid-tyrese-maxey-nba-eastern-conference/
-
-**India Tiptoes Around Trump’s Latest Claims on Russian Oil Purchases**\
-`The government subtly rebuffed the president’s comments that it would stop buying Russian oil, as it tries to avoid a public fight and end a trade dispute with Washington.`\
-https://nytimes.com/2025/10/16/world/asia/india-trump-russia-oil.html
 

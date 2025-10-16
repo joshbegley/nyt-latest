@@ -1,3 +1,7 @@
+**Mets Fan Survey 2025: How do you feel about the Mets right now?**\
+`Perhaps Mets fans have calmed down a little, perhaps not. We’re interested in finding out.`\
+https://nytimes.com/athletic/6720247/2025/10/16/mets-fan-survey-2025/
+
 **Caitlin Clark to run it back at LPGA event. WNBA star will compete in The Annika pro-am**\
 `The Indiana Fever guard will return to the LPGA Tour event on Nov. 12, the day of the pro-am at Pelican Golf Club in Belleair, Fla.`\
 https://nytimes.com/athletic/6721102/2025/10/16/caitlin-clark-lpga-pro-am-the-annika/
