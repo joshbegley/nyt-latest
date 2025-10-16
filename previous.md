@@ -1,6 +1,26 @@
+**Eberechi who? Pino and Sarr have clicked and have potential to wreak havoc**\
+`Eze’s exit had the potential to cause concern but Pino’s impact and Sarr’s continued form point to an efficient and formidable pairing`\
+https://nytimes.com/athletic/6694152/2025/10/16/crystal-palace-pino-sarr-no-10s-glasner/
+
+**Arne Slot has a specific issue to fix in Liverpool's defence**\
+`Not only do the Premier League champions need to defend back-post crosses better, they need to cut them out at source from the opposite side`\
+https://nytimes.com/athletic/6715810/2025/10/16/liverpool-back-post-defending-analysis/
+
+**The Accu stadium and an American owner's long-term vision to reinvigorate Huddersfield Town**\
+`Kevin Nagle has bought the League One club's home of 31 years and has ambitious plans to establish it as the epicentre of the town`\
+https://nytimes.com/athletic/6696847/2025/10/16/huddersfield-town-sacramento-nagle-accu-stadium/
+
+**Should Leeds stick with Karl Darlow or restore Lucas Perri to the starting line-up?**\
+`Karl Darlow has been starting for Leeds in Lucas Perri's absence. But should Perri start against Burnley?`\
+https://nytimes.com/athletic/6719752/2025/10/16/lucas-perri-karl-darlow-leeds-analysis/
+
 **Fantasy Premier League: How to approach the next four gameweeks**\
 `As the Premier League returns, here are the teams and players to target and avoid in what will prove to be a make-or-break period in FPL`\
 https://nytimes.com/athletic/6718497/2025/10/16/fantasy-premier-league-gw8-targets-captain/
+
+**From Huddersfield to making it big in U.S. college basketball: 'It was never about the money'**\
+`Osobor, who lived in England for nearly a decade, became a 'pioneer' by signing a fruitful deal in his final year at college`\
+https://nytimes.com/athletic/6715451/2025/10/16/great-osobor-college-basketball-interview/
 
 **New signings and different roles for existing players – analysing Arsenal's attacking versatility**\
 `The Premier League leaders have a range of new forward options - both in terms of personnel and how they can be deployed `\
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6693524/2025/10/16/harry-kane-bayern-tottenham-engl
 **The Alternative Premier League Table: No 8 – How teams foul and what they get booked for**\
 `From Arsenal's control of their defensive third to Newcastle's lack of yellow cards, here's how (and where) your club gets penalised`\
 https://nytimes.com/athletic/6719058/2025/10/16/alternative-premier-league-table-no-8/
-
-**'Today is your opportunity': Behind the scenes at a Premier League academy**\
-`Newcastle United's academy is a place designed to produce good people as well as good players. What they do goes way beyond football`\
-https://nytimes.com/athletic/6716163/2025/10/16/today-is-your-opportunity-behind-the-scenes-at-a-premier-league-academy/
-
-**Real Madrid are exploring historic, controversial change in their ownership model**\
-`Big change could be on the way to the Spanish giants, whose ownership model has not changed in 123 years`\
-https://nytimes.com/athletic/6715978/2025/10/16/real-madrid-ownership-model-change-vote/
-
-**Finding the real Bryan Mbeumo**\
-`The Athletic watches a Manchester United game with Mbeumo's family and speaks to friends and former team-mates`\
-https://nytimes.com/athletic/6720141/2025/10/16/bryan-mbeumo-manchester-united-france/
-
-**Alexander Steen, Al Arbour and Barret Jackman to be inducted into Blues Hall of Fame**\
-`All three players to be inducted as part of the 2026 class were heart-and-soul players with the Blues.`\
-https://nytimes.com/athletic/6721760/2025/10/16/blues-hall-of-fame-steen-arbour-jackman/
-
-**Can Ange Postecoglou turn it around at Forest? What is the players' mood? Is Chelsea his last chance?**\
-`How will the Australian turn the tide? Is his dismal start affecting ticket sales? Can Forest afford to make a second managerial change?`\
-https://nytimes.com/athletic/6719098/2025/10/16/ange-postecoglou-marinakis-forest-chelsea/
 
