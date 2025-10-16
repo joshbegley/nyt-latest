@@ -1,3 +1,11 @@
+**Mariners-Blue Jays Game 3 takeaways: Toronto's bats blast back into series**\
+`The Blue Jays hit five home runs in a 13-4 beatdown that narrowed the Mariners' series lead to two games to one.`\
+https://nytimes.com/athletic/6721573/2025/10/15/blue-jays-mariners-game-3-score-results-takeaways-playoffs-mlb/
+
+**Longtime Angels employee takes stand as key witness in Tyler Skaggs wrongful death trial**\
+`Tim Mead, an Angels employee of 40 years, answered he did "not recall" to many of the questions from attorney Rusty Hardin.`\
+https://nytimes.com/athletic/6721563/2025/10/15/tyler-skaggs-angels-wrongful-death-trial-begins/
+
 **The Preventionist, Episode 3: Better Safe Than Sorry**\
 `From Serial Productions: What’s the harm of “better safe than sorry”?`\
 https://nytimes.com/2025/10/15/podcasts/serial-the-preventionist-episode-3.html

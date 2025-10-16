@@ -1,3 +1,11 @@
+**Mariners-Blue Jays Game 3 takeaways: Toronto's bats blast back into series**\
+`The Blue Jays hit five home runs in a 13-4 beatdown that narrowed the Mariners' series lead to two games to one.`\
+https://nytimes.com/athletic/6721573/2025/10/15/blue-jays-mariners-game-3-score-results-takeaways-playoffs-mlb/
+
+**Longtime Angels employee takes stand as key witness in Tyler Skaggs wrongful death trial**\
+`Tim Mead, an Angels employee of 40 years, answered he did "not recall" to many of the questions from attorney Rusty Hardin.`\
+https://nytimes.com/athletic/6721563/2025/10/15/tyler-skaggs-angels-wrongful-death-trial-begins/
+
 **The Preventionist, Episode 3: Better Safe Than Sorry**\
 `From Serial Productions: What’s the harm of “better safe than sorry”?`\
 https://nytimes.com/2025/10/15/podcasts/serial-the-preventionist-episode-3.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6721482/2025/10/15/utah-mammoth-mascot-tusky-nhl/
 **'I made a mistake': Tua Tagovailoa apologizes for comments after Sunday’s game**\
 `"I would say I've made a mistake and I'm owning up to that right now," Tagovailoa said.`\
 https://nytimes.com/athletic/6720502/2025/10/15/dolphins-tua-tagovailoa-apologizes-comments/
-
-**Shohei Ohtani talks playoff skid, then hits ball off the roof in batting practice**\
-`Ohtani is striking out nearly half the time and said his focus is on taking "quality at-bats."`\
-https://nytimes.com/athletic/6721257/2025/10/15/shohei-ohtani-postseason-slump-nlcs/
-
-**Lions DB Brian Branch loses appeal; 1-game suspension for altercation vs. Chiefs upheld**\
-`The Lions were prepared for the result of Branch's appeal.`\
-https://nytimes.com/athletic/6721350/2025/10/15/lions-brian-branch-appeal-lost-suspension-upheld-chiefs/
 
