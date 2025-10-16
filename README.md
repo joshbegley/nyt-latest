@@ -1,3 +1,7 @@
+**At Phillies' wake, hints of the path they could take in a critical offseason**\
+`Ideally, they hope to retain Kyle Schwarber and J.T. Realmuto, remake their outfield and augment their bullpen — all while injecting youth.`\
+https://nytimes.com/athletic/6723940/2025/10/16/phillies-offseason-signings-trades-2026-roster/
+
 **Eric Adams Won’t Be at the Debate. He’s Still Trying to Sway the Race.**\
 `The New York City mayor is considering endorsing former Gov. Andrew M. Cuomo, and maintains his opposition to Assemblyman Zohran Mamdani, the front-runner.`\
 https://nytimes.com/2025/10/16/nyregion/eric-adams-nyc-debate.html
