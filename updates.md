@@ -1,3 +1,11 @@
+**Oscar Wilde Gets His Library Card Back, 125 Years After His Death**\
+`The Irish writer was barred in 1895 after being convicted of gross indecency. On Thursday, the British Library will hand over a reinstated library card to his grandson.`\
+https://nytimes.com/2025/10/16/arts/oscar-wilde-british-library-card.html
+
+**Is ‘The Morning Show’ a Crystal Ball for Cable News?**\
+`The Apple TV series set in a fictional newsroom seems to be particularly prescient at the moment.`\
+https://nytimes.com/2025/10/16/style/the-morning-show-apple-tv-season-4.html
+
 **WNBA season is most viewed ever on ESPN networks**\
 `ESPN's networks aired the entire postseason (24 games), with games averaging 1.2 million viewers each.`\
 https://nytimes.com/athletic/6723196/2025/10/16/wnba-ratings-viewers-2025-espn/
