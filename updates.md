@@ -1,3 +1,7 @@
+**U.S. B-52s and Helicopters Fly Near Venezuela in Show of Threats**\
+`The Trump administration is sharply increasing U.S. military pressure on the government of Nicolás Maduro.`\
+https://nytimes.com/2025/10/16/us/politics/16dc-.html
+
 **Carter Hart agrees to join Golden Knights organization: Why he chose Vegas, and what he brings**\
 `One of five 2018 World Juniors players found not guilty of sexual assault in July, Hart will begin his comeback on a professional tryout.`\
 https://nytimes.com/athletic/6528138/2025/10/16/carter-hart-signs-golden-knights-analysis/
