@@ -1,3 +1,11 @@
+**New Oklahoma Superintendent Rescinds Bible Mandate**\
+`The superintendent said he had “no plans” to enforce his predecessor’s mandate to put Bibles in public school classrooms, which was being fought in court.`\
+https://nytimes.com/2025/10/16/us/oklahoma-schools-superintendent-bible-mandate.html
+
+**Does Joy Feel Out of Reach? There’s a Word for That.**\
+`Struggling to feel pleasure is a key marker of depression. But this distressing symptom can also occur on its own.`\
+https://nytimes.com/2025/10/16/well/mind/psych101-anhedonia.html
+
 **How to watch Jets vs. Flyers: Time, TV, streaming**\
 `Find out how to watch the Winnipeg Jets play the Philadelphia Flyers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6723073/2025/10/16/jets-vs-flyers-stream-how-to-watch-oct-16/

@@ -1,3 +1,11 @@
+**New Oklahoma Superintendent Rescinds Bible Mandate**\
+`The superintendent said he had “no plans” to enforce his predecessor’s mandate to put Bibles in public school classrooms, which was being fought in court.`\
+https://nytimes.com/2025/10/16/us/oklahoma-schools-superintendent-bible-mandate.html
+
+**Does Joy Feel Out of Reach? There’s a Word for That.**\
+`Struggling to feel pleasure is a key marker of depression. But this distressing symptom can also occur on its own.`\
+https://nytimes.com/2025/10/16/well/mind/psych101-anhedonia.html
+
 **How to watch Jets vs. Flyers: Time, TV, streaming**\
 `Find out how to watch the Winnipeg Jets play the Philadelphia Flyers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6723073/2025/10/16/jets-vs-flyers-stream-how-to-watch-oct-16/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6723025/2025/10/16/cfb-coaching-candidates-until-sa
 **Police request Maccabi Tel Aviv fans not be allowed to attend Villa game**\
 `When Maccabi Tel Aviv travelled to face Ajax last year, 62 people were arrested and five hospitalised after violent clashes.`\
 https://nytimes.com/athletic/6722327/2025/10/16/aston-villa-maccabi-tel-aviv-uefa/
-
-**College football picks ATS: Another test for Bama, the end of Vandy's streak and more**\
-`With five Top 25 matchups in Week 8, there is plenty to watch for. Our staff picks the biggest games against the spread.`\
-https://nytimes.com/athletic/6719644/2025/10/16/college-football-picks-spread-week-8-alabama-vanderbilt-notre-dame/
-
-**What Your Hair Can Tell You About Your Health**\
-`More than just dead matter, hair is an archive of your body’s secrets.`\
-https://nytimes.com/2025/10/16/well/hair-health.html
 
