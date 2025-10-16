@@ -1,3 +1,7 @@
+**The Preventionist, Episode 3: Better Safe Than Sorry**\
+`From Serial Productions: What’s the harm of “better safe than sorry”?`\
+https://nytimes.com/2025/10/15/podcasts/serial-the-preventionist-episode-3.html
+
 **The Preventionist, Episode 2: The CAP Will See You Now**\
 `From Serial Productions: The doctor behind the alleged child abuse cases in the Lehigh Valley.`\
 https://nytimes.com/2025/10/15/podcasts/serial-the-preventionist-episode-2.html

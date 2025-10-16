@@ -1,3 +1,7 @@
+**The Preventionist, Episode 3: Better Safe Than Sorry**\
+`From Serial Productions: What’s the harm of “better safe than sorry”?`\
+https://nytimes.com/2025/10/15/podcasts/serial-the-preventionist-episode-3.html
+
 **The Preventionist, Episode 2: The CAP Will See You Now**\
 `From Serial Productions: The doctor behind the alleged child abuse cases in the Lehigh Valley.`\
 https://nytimes.com/2025/10/15/podcasts/serial-the-preventionist-episode-2.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6721257/2025/10/15/shohei-ohtani-postseason-slump-n
 **Lions DB Brian Branch loses appeal; 1-game suspension for altercation vs. Chiefs upheld**\
 `The Lions were prepared for the result of Branch's appeal.`\
 https://nytimes.com/athletic/6721350/2025/10/15/lions-brian-branch-appeal-lost-suspension-upheld-chiefs/
-
-**Review: Aubrey Plaza Shines in Ethan Coen’s Retrograde ‘Let’s Love!’**\
-`It’s unusual for an Atlantic Theater Company production to feel so uninspired, but in this set of one-acts, committed actors are let down by juvenile language.`\
-https://nytimes.com/2025/10/15/theater/lets-love-review-coen-plaza.html
 
