@@ -1,3 +1,7 @@
+**Are You a Young Employee Asked to Spend More Time in the Office?**\
+`Please tell us how stricter return-to-office mandates are affecting your work life and home life.`\
+https://nytimes.com/2025/10/16/business/rto-young-worker-attitude.html
+
 **Carbon Dioxide Levels Jumped by a Record Amount, U.N. Says**\
 `Surging emissions from wildfires may have been behind the increase, which was the largest since modern measurements began more than half a century ago.`\
 https://nytimes.com/2025/10/16/climate/carbon-dioxide-emissions-record-jump.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6716389/2025/10/16/fantasy-football-injuries-inacti
 **With college soccer ‘at risk,’ U.S. Soccer pushes for overhaul**\
 `Promotion and relegation could be part of radical plans to overhaul American college soccer`\
 https://nytimes.com/athletic/6721890/2025/10/16/us-soccer-college-ncaa-overhaul/
-
-**George Russell exclusive: 'I feel ready to fight for a world championship'**\
-`In his first interview since a new contract with Mercedes was announced, George Russell talks about how he is in the form of his life`\
-https://nytimes.com/athletic/6722538/2025/10/16/george-russell-mercedes-contract-interview/
 
