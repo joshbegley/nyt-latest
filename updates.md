@@ -1,3 +1,19 @@
+**New York City Sues U.S. After School Aid Is Cut Over Gender Policies**\
+`The Trump administration argued that the school system is violating civil rights laws because of policies on transgender and nonbinary students.`\
+https://nytimes.com/2025/10/16/nyregion/new-york-transgender-trump-schools-grants.html
+
+**Trump Plans to Meet With Putin to Talk About a Cease-Fire in Ukraine**\
+`President Trump had grown increasingly frustrated with his Russian counterpart for dragging on its three-year war on Ukraine.`\
+https://nytimes.com/2025/10/16/us/politics/trump-putin-cease-fire-ukraine.html
+
+**Warriors' Jonathan Kuminga fined $35,000 for illegal contact with official**\
+`After Kuminga's contentious contract negotiation was settled, the swingman has impressed the Warriors coaching staff in the preseason.`\
+https://nytimes.com/athletic/6723380/2025/10/16/warriors-jonathan-kuminga-fined-illegal-contact-official/
+
+**U.S. B-52s and Helicopters Fly Near Venezuela in Show of Threats**\
+`The Trump administration is sharply increasing U.S. military pressure on the government of Nicolás Maduro.`\
+https://nytimes.com/2025/10/16/us/politics/trump-administration-helicopters-venezuela-military-pressure.html
+
 **U.S. B-52s and Helicopters Fly Near Venezuela in Show of Threats**\
 `The Trump administration is sharply increasing U.S. military pressure on the government of Nicolás Maduro.`\
 https://nytimes.com/2025/10/16/us/politics/16dc-.html
