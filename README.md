@@ -1,3 +1,11 @@
+**Trump Administration Live Updates: President Reshapes Federal Work Force as Shutdown Drags On**\
+``\
+https://nytimes.com/live/2025/10/16/us/trump-news
+
+**Ty Dillon's spotter out at Kaulig after Las Vegas crash that took out William Byron**\
+`"I'm disappointed but not surprised either," spotter Joe White says, "as I knew I wasn't going back to spot that car next year anyway."`\
+https://nytimes.com/athletic/6721231/2025/10/16/ty-dillon-kaulig-spotter-fired-william-byron/
+
 **Who Will Blink First: Trump or Xi?**\
 `Washington and Beijing both need a trade win as steep new tariffs and tough import limits on critical minerals loom.`\
 https://nytimes.com/2025/10/16/business/dealbook/trump-china-trade-negotiations.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6720793/2025/10/16/michigan-ohio-state-football-riv
 **Chicagoans Resist I.C.E. Agents**\
 `Immigration agents are using aggressive tactics. Residents of the sanctuary city are trying to resist them.`\
 https://nytimes.com/2025/10/16/us/chicago-ice-raids-ressit.html
-
-**Israel Marks Two Years Since Oct. 7 as a Fragile Cease-Fire Holds**\
-`Ceremonies took place on Thursday to commemorate two years since the surprise attack on southern Israel, according to the Jewish calendar.`\
-https://nytimes.com/2025/10/16/world/middleeast/israel-october-7-attack-hamas-ceasefire.html
-
-**How the NBA has evolved into a 'media and technology company'**\
-`From player tracking to autonomous officiating to using AI for scheduling, the NBA has begun to think of itself in a different light.`\
-https://nytimes.com/athletic/6720577/2025/10/16/nba-media-technology-artificial-intelligence/
 
