@@ -1,3 +1,11 @@
+**Trump Considers Ground Strikes in Venezuela**\
+`President Trump said he had authorized covert C.I.A. action in Venezuela and was considering ground strikes. Venezuela’s foreign minister called the American actions a policy of aggression.`\
+https://nytimes.com/video/world/americas/100000010461462/trump-covert-cia-action-venezuela.html
+
+**Pentagon Reporters Walk Out, Rejecting New Press Rules**\
+`Journalists with access to the Pentagon turned in their badges on Wednesday instead of agreeing to a revised press policy that newsroom leaders say violates the First Amendment. The New York Times and others refused to sign, but at least one organization, One America News, did.`\
+https://nytimes.com/video/us/politics/100000010461463/pentagon-press-restrictions-hegseth.html
+
 **Cape Verde Qualified for Its First-Ever World Cup**\
 `Nick Miller of The Athletic reports from on the scene as Cape Verde punched its ticket to its first-ever World Cup by beating Eswatini.`\
 https://nytimes.com/video/sports/100000010459309/cape-verde-qualified-for-its-first-ever-world-cup.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/16/nyregion/mandani-jews-israel-palestine.html
 **Spelling Bee Forum**\
 `Feeling stuck on today’s puzzle? We can help.`\
 https://nytimes.com/2025/10/16/crosswords/spelling-bee-forum.html
-
-**A Military Celebration Sparks Another Newsom-Trump Feud**\
-`Gov. Gavin Newsom had feared that the ceremony would send missiles over Interstate 5, but the Marines later said that its “live-fire” would be contained.`\
-https://nytimes.com/2025/10/16/us/politics/newsom-military-celebration-camp-pendleton.html
-
-**How to watch Texans vs. Seahawks: Time, TV, streaming**\
-`Find out how to watch the Houston Texans play the Seattle Seahawks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6721937/2025/10/16/texans-vs-seahawks-stream-how-to-watch-oct-20/
 

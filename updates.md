@@ -1,3 +1,11 @@
+**Trump Considers Ground Strikes in Venezuela**\
+`President Trump said he had authorized covert C.I.A. action in Venezuela and was considering ground strikes. Venezuela’s foreign minister called the American actions a policy of aggression.`\
+https://nytimes.com/video/world/americas/100000010461462/trump-covert-cia-action-venezuela.html
+
+**Pentagon Reporters Walk Out, Rejecting New Press Rules**\
+`Journalists with access to the Pentagon turned in their badges on Wednesday instead of agreeing to a revised press policy that newsroom leaders say violates the First Amendment. The New York Times and others refused to sign, but at least one organization, One America News, did.`\
+https://nytimes.com/video/us/politics/100000010461463/pentagon-press-restrictions-hegseth.html
+
 **Cape Verde Qualified for Its First-Ever World Cup**\
 `Nick Miller of The Athletic reports from on the scene as Cape Verde punched its ticket to its first-ever World Cup by beating Eswatini.`\
 https://nytimes.com/video/sports/100000010459309/cape-verde-qualified-for-its-first-ever-world-cup.html
