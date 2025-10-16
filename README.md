@@ -1,3 +1,15 @@
+**‘The Mastermind’ Review: A Robbery and a Life Unraveling**\
+`The title of Kelly Reichardt’s latest film has a distinct irony for Josh O’Connor’s blundering museum thief.`\
+https://nytimes.com/2025/10/16/movies/the-mastermind-review.html
+
+**Yamal, Bellingham enter Forbes' list of top 10 highest-paid soccer players**\
+`Al Nassr and Portugal forward Cristiano Ronaldo remains the highest-earning soccer player in the world, says Forbes`\
+https://nytimes.com/athletic/6723189/2025/10/16/lamine-yamal-jude-bellingham-forbes/
+
+**Standing Up for the Beauty of a Good Bloody Mary**\
+`It’s scorned for its association with brunch and its ridiculous garnishes, and bartenders often are reluctant to mix one. But a good Bloody Mary is great.`\
+https://nytimes.com/2025/10/16/dining/drinks/bloody-mary-cocktail.html
+
 **What we learned from Canada's October international window**\
 `Our top observations of the 2026 co-hosts coming out of a critical pre-World Cup camp`\
 https://nytimes.com/athletic/6719566/2025/10/16/canada-october-friendlies-australia-colombia-marsch-lessons-world-cup/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/16/learning/what-teenagers-are-saying-about-gaming.h
 **With defensive leaders on crutches, pass-happy 49ers need George Kittle, Brock Purdy**\
 `The 49ers have a leadership void after Fred Warner's injury. They also need help in both the run and pass game, which Kittle can provide.`\
 https://nytimes.com/athletic/6722043/2025/10/16/brock-purdy-george-kittle-leadership-pass-game/
-
-**2026 WNBA champion odds and way-too-early picks: Lynx, Aces, Fever open in top tier**\
-`The 2025 WNBA playoffs featured surprise runs and surprise blowouts. Who is favored to win it all in 2026?`\
-https://nytimes.com/athletic/6720555/2025/10/16/2026-wnba-champion-odds-picks-aces-lynx-fever/
-
-**Israel Philharmonic Draws Protesters as Talk in Gaza Turns to Peace**\
-`For two years, protesters have targeted cultural events around the world, particularly those with Israeli artists. On Wednesday, a small group gathered at Carnegie Hall.`\
-https://nytimes.com/2025/10/16/arts/music/israel-philharmonic-carnegie-hall-protests-middle-east.html
-
-**New Oklahoma Superintendent Rescinds Bible Mandate**\
-`The superintendent said he had “no plans” to enforce his predecessor’s mandate to put Bibles in public school classrooms, which was being fought in court.`\
-https://nytimes.com/2025/10/16/us/oklahoma-schools-superintendent-bible-mandate.html
 
