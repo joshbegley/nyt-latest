@@ -1,3 +1,11 @@
+**Marnus Labuschagne exclusive: 'I'd love it to be 5-0 and for us to dust them – but cricket fans want it to be tight'**\
+`The Australian has endured a relatively lean two-year spell, but is scoring runs heavily in domestic cricket and targeting an Ashes impact`\
+https://nytimes.com/athletic/6697515/2025/10/16/marnus-labuschagne-australia-ashes-interview/
+
+**Cifuentes interview: ‘When I arrived at Leicester, there was a lot of uncertainty’**\
+`After Leicester City’s two Premier League relegations within three seasons, Cifuentes stepped into a club trying to reset and rebuild`\
+https://nytimes.com/athletic/6718745/2025/10/16/marti-cifuentes-leicester-city-championship-interview/
+
 **Eberechi who? Pino and Sarr have clicked and have potential to wreak havoc**\
 `Eze’s exit had the potential to cause concern but Pino’s impact and Sarr’s continued form point to an efficient and formidable pairing`\
 https://nytimes.com/athletic/6694152/2025/10/16/crystal-palace-pino-sarr-no-10s-glasner/
