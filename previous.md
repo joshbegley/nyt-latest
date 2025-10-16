@@ -1,3 +1,11 @@
+**George Kittle had torn hamstring but will return for Sunday night game**\
+`The San Francisco 49ers tight end could have played last weekend but wanted to wait until the injury to his right leg was completely healed.`\
+https://nytimes.com/athletic/6724334/2025/10/16/george-kittle-hamstring-torn/
+
+**“I never had a conversation with the president that the Assemblyman was talking about.”**\
+`By Benjamin Oreskes`\
+https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/i-never-had-a-conversation-with-the-president-that-the-assemblyman-was-talking-about
+
 **“There was a report that was done that had allegations of harassment. I said at the time it was a political report and that there was no basis to it. It was then sent to five district attorneys. They all reviewed it. They found nothing.”**\
 `By Benjamin Oreskes`\
 https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/16nyc-mayor-debate-fact-check-xxxxxxxx
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6723940/2025/10/16/phillies-offseason-signings-trad
 **Eric Adams Won’t Be at the Debate. He’s Still Trying to Sway the Race.**\
 `The New York City mayor is considering endorsing former Gov. Andrew M. Cuomo, and maintains his opposition to Assemblyman Zohran Mamdani, the front-runner.`\
 https://nytimes.com/2025/10/16/nyregion/eric-adams-nyc-debate.html
-
-**Super PACs Tied to Cuomo Buoyed by Million-Dollar Donations**\
-`Three separate $1 million donations were sent to two super PACs trying to damage the candidacy of Zohran Mamdani, the Democratic nominee.`\
-https://nytimes.com/2025/10/16/nyregion/cuomo-super-pac-nyc-mayoral-election-mamdani.html
-
-**Wisconsin Man Used TikTok to Call for the Killing of ICE Agents, U.S. Says**\
-`Andrew Stanton, 38, was charged with threatening federal law enforcement officers, whom he said should be shot. He pleaded not guilty and remains in custody.`\
-https://nytimes.com/2025/10/16/us/wisconsin-man-tiktok-threats-ice.html
 

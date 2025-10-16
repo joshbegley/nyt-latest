@@ -1,3 +1,11 @@
+**George Kittle had torn hamstring but will return for Sunday night game**\
+`The San Francisco 49ers tight end could have played last weekend but wanted to wait until the injury to his right leg was completely healed.`\
+https://nytimes.com/athletic/6724334/2025/10/16/george-kittle-hamstring-torn/
+
+**“I never had a conversation with the president that the Assemblyman was talking about.”**\
+`By Benjamin Oreskes`\
+https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/i-never-had-a-conversation-with-the-president-that-the-assemblyman-was-talking-about
+
 **“There was a report that was done that had allegations of harassment. I said at the time it was a political report and that there was no basis to it. It was then sent to five district attorneys. They all reviewed it. They found nothing.”**\
 `By Benjamin Oreskes`\
 https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/16nyc-mayor-debate-fact-check-xxxxxxxx
