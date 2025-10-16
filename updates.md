@@ -1,3 +1,15 @@
+**Yemen’s Houthis Confirm Killing of Top Military Official**\
+`It was unclear when Maj. Gen. Mohammed al-Ghomari was killed, or by whom, but Israel appeared to claim the killing.`\
+https://nytimes.com/2025/10/16/world/middleeast/houthis-top-general-killed-yemen.html
+
+**Pat Murphy's 10-year-old son has confident response to reporter's question**\
+`Pat Murphy keeps his kids close, allowing his young sons to attend Brewers press conferences with him. `\
+https://nytimes.com/athletic/6723250/2025/10/16/pat-murphy-son-austin-brewers-press-conference/
+
+**Oscar Wilde Gets His Library Card Back, 125 Years After His Death**\
+`The Irish writer was barred in 1895 after being convicted of gross indecency. On Thursday, the British Library will hand over a symbolic new card to his grandson.`\
+https://nytimes.com/2025/10/16/arts/oscar-wilde-british-library-card.html
+
 **Oscar Wilde Gets His Library Card Back, 125 Years After His Death**\
 `The Irish writer was barred in 1895 after being convicted of gross indecency. On Thursday, the British Library will hand over a reinstated library card to his grandson.`\
 https://nytimes.com/2025/10/16/arts/oscar-wilde-british-library-card.html

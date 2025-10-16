@@ -1,5 +1,13 @@
+**Yemen’s Houthis Confirm Killing of Top Military Official**\
+`It was unclear when Maj. Gen. Mohammed al-Ghomari was killed, or by whom, but Israel appeared to claim the killing.`\
+https://nytimes.com/2025/10/16/world/middleeast/houthis-top-general-killed-yemen.html
+
+**Pat Murphy's 10-year-old son has confident response to reporter's question**\
+`Pat Murphy keeps his kids close, allowing his young sons to attend Brewers press conferences with him. `\
+https://nytimes.com/athletic/6723250/2025/10/16/pat-murphy-son-austin-brewers-press-conference/
+
 **Oscar Wilde Gets His Library Card Back, 125 Years After His Death**\
-`The Irish writer was barred in 1895 after being convicted of gross indecency. On Thursday, the British Library will hand over a reinstated library card to his grandson.`\
+`The Irish writer was barred in 1895 after being convicted of gross indecency. On Thursday, the British Library will hand over a symbolic new card to his grandson.`\
 https://nytimes.com/2025/10/16/arts/oscar-wilde-british-library-card.html
 
 **Is ‘The Morning Show’ a Crystal Ball for Cable News?**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/16/us/harvard-endowment-trump.html
 **White House Set to Announce Proposal Seeking to Make I.V.F. More Accessible**\
 `It is unclear whether the new guidance will substantively affect how many employers will choose to offer such benefits.`\
 https://nytimes.com/2025/10/16/us/politics/trump-ivf-fertility.html
-
-**UEFA opens proceedings into Juventus over potential breach of financial rules**\
-`A breach of the rule, covering a three-year period, could see the club hit with a financial penalty or potential sporting restrictions.`\
-https://nytimes.com/athletic/6723244/2025/10/16/juventus-uefa-financial-rules/
-
-**Stephen A. Smith at political town hall: 'I don't think Washington understands how ticked off we are'**\
-`The ESPN "First Take" host, who has flirted with a presidential run in 2028, stole the show at a cable news political town hall event.`\
-https://nytimes.com/athletic/6722672/2025/10/16/stephen-a-smith-town-hall/
 
