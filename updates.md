@@ -1,3 +1,15 @@
+**White House Set to Announce Proposal Seeking to Make I.V.F. More Accessible**\
+`It is unclear whether the new guidance will substantively affect how many employers will choose to offer such benefits.`\
+https://nytimes.com/2025/10/16/us/politics/trump-ivf-fertility.html
+
+**UEFA opens proceedings into Juventus over potential breach of financial rules**\
+`A breach of the rule, covering a three-year period, could see the club hit with a financial penalty or potential sporting restrictions.`\
+https://nytimes.com/athletic/6723244/2025/10/16/juventus-uefa-financial-rules/
+
+**Map: Minor Earthquake Strikes the San Francisco Bay Area**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/10/16/us/san-francisco-berkeley-earthquake-shakeout-day.html
+
 **Stephen A. Smith at political town hall: 'I don't think Washington understands how ticked off we are'**\
 `The ESPN "First Take" host, who has flirted with a presidential run in 2028, stole the show at a cable news political town hall event.`\
 https://nytimes.com/athletic/6722672/2025/10/16/stephen-a-smith-town-hall/
