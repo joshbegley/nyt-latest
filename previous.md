@@ -1,3 +1,15 @@
+**Kings, Keegan Murray agree to five-year, $140M rookie-scale contract extension**\
+`In the 2022 NBA Draft, the Kings took a chance on Keegan Murray. This week, both parties agreed to a long-term contract extension.`\
+https://nytimes.com/athletic/6721112/2025/10/15/kings-keegan-murray-contract-extension-nba/
+
+**In Fox News Interview, Mamdani Speaks Directly to Trump**\
+`The leading mayoral candidate in New York City defended his positions while parrying questions about the Israel-Gaza war.`\
+https://nytimes.com/2025/10/15/nyregion/mamdani-fox-interview.html
+
+**Oval Office Becomes a Diorama of Power Dynamics as Trump Goes After Rivals**\
+`Top officials, unwilling to fight for the historical independence of their institutions, watched on Wednesday as President Trump continued his pursuit of controlling law enforcement.`\
+https://nytimes.com/2025/10/15/us/politics/trump-bondi-patel-blanche-oval-office.html
+
 **Celtics' Mazzulla says 57-4 win over media was about more than basketball: 'It humanizes us'**\
 `Joe Mazzulla explained his motivation for coaches-media pickup game: "It was important that we did that yesterday, and we’ll do it again."`\
 https://nytimes.com/athletic/6720860/2025/10/15/joe-mazzulla-celtics-media-pickup-game-nba/
@@ -25,12 +37,4 @@ https://nytimes.com/athletic/6720950/2025/10/15/olympic-hockey-nhl-untested-ice-
 **Trump Says $16 Billion Hudson River Tunnel Project Is ‘Terminated’**\
 `It was not immediately clear what the president meant and whether the project, known as Gateway, had already been stripped of federal funding.`\
 https://nytimes.com/2025/10/15/nyregion/trump-gateway-cancellation.html
-
-**Boy and Girl Face Rape and Attempted Murder Charges in Attack on 5-Year-Old**\
-`Prosecutors in Cuyahoga County, Ohio, filed the charges in juvenile court. The victim’s mother wrote on social media that her daughter was found “unresponsive and unrecognizable.”`\
-https://nytimes.com/2025/10/15/us/ohio-children-attempted-murder-rape.html
-
-**Cannabis Taxes Fund First Wave of Grants to Community Groups in New York**\
-`State officials awarded $5 million in grants to 50 nonprofit organizations that provide services to young people in areas that were targeted for marijuana arrests.`\
-https://nytimes.com/2025/10/15/nyregion/cannabis-grants-community-groups.html
 

@@ -1,3 +1,15 @@
+**Kings, Keegan Murray agree to five-year, $140M rookie-scale contract extension**\
+`In the 2022 NBA Draft, the Kings took a chance on Keegan Murray. This week, both parties agreed to a long-term contract extension.`\
+https://nytimes.com/athletic/6721112/2025/10/15/kings-keegan-murray-contract-extension-nba/
+
+**In Fox News Interview, Mamdani Speaks Directly to Trump**\
+`The leading mayoral candidate in New York City defended his positions while parrying questions about the Israel-Gaza war.`\
+https://nytimes.com/2025/10/15/nyregion/mamdani-fox-interview.html
+
+**Oval Office Becomes a Diorama of Power Dynamics as Trump Goes After Rivals**\
+`Top officials, unwilling to fight for the historical independence of their institutions, watched on Wednesday as President Trump continued his pursuit of controlling law enforcement.`\
+https://nytimes.com/2025/10/15/us/politics/trump-bondi-patel-blanche-oval-office.html
+
 **Celtics' Mazzulla says 57-4 win over media was about more than basketball: 'It humanizes us'**\
 `Joe Mazzulla explained his motivation for coaches-media pickup game: "It was important that we did that yesterday, and we’ll do it again."`\
 https://nytimes.com/athletic/6720860/2025/10/15/joe-mazzulla-celtics-media-pickup-game-nba/
