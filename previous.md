@@ -1,3 +1,15 @@
+**This Fish Dish Will Never Fail You**\
+`This simple miso glaze works for pretty much any kind of fish (speaking from experience).`\
+https://nytimes.com/2025/10/16/dining/this-fish-dish-will-never-fail-you.html
+
+**Eye Injuries Are Rising Among Pickleball Players**\
+`Older players of pickleball, the fastest-growing sport in the United States, are more vulnerable to eye injuries, some of which could lead to vision loss, researchers reported.`\
+https://nytimes.com/2025/10/16/health/pickleball-eye-injuries.html
+
+**Fantasy trends and hidden gems: Weekend picks and Week 3 adds, including Kiefer Sherwood**\
+`Shayna Goldman gives waiver wire recommendations for this weekend's games and the rest of Week 3 in her latest column. `\
+https://nytimes.com/athletic/6721797/2025/10/16/fantasy-hockey-trends-gems-week-3-sherwood/
+
 **Are You a Young Employee Asked to Spend More Time in the Office?**\
 `Please tell us how stricter return-to-office mandates are affecting your work life and home life.`\
 https://nytimes.com/2025/10/16/business/rto-young-worker-attitude.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/16/dining/cedric-grolet-la-chocolaterie-pastry-chef.
 **The Bounce: Netflix gets a 'golden' NBA story. Plus, we preview the Knicks and Nuggets**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6722782/2025/10/16/netflix-gets-a-golden-nba-story-plus-we-preview-the-knicks-and-nuggets/
-
-**He Studied Elephant Behavior to Save Lives**\
-`Joshua Plotnik worked to prevent deadly encounters between people and elephants. Then the funding froze.`\
-https://nytimes.com/2025/10/16/science/elephants-cognition-plotnik.html
-
-**Fantasy football injuries, inactives, cheat sheet Week 7**\
-`Fantasy football relevant injuries and their impact, weather reports and watch to watch for. Plus, Ciely's Week 7 player rankings and more.`\
-https://nytimes.com/athletic/6716389/2025/10/16/fantasy-football-injuries-inactives-cheat-sheet-nfl-week-7/
-
-**With college soccer ‘at risk,’ U.S. Soccer pushes for overhaul**\
-`Promotion and relegation could be part of radical plans to overhaul American college soccer`\
-https://nytimes.com/athletic/6721890/2025/10/16/us-soccer-college-ncaa-overhaul/
 

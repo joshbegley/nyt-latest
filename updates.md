@@ -1,3 +1,15 @@
+**This Fish Dish Will Never Fail You**\
+`This simple miso glaze works for pretty much any kind of fish (speaking from experience).`\
+https://nytimes.com/2025/10/16/dining/this-fish-dish-will-never-fail-you.html
+
+**Eye Injuries Are Rising Among Pickleball Players**\
+`Older players of pickleball, the fastest-growing sport in the United States, are more vulnerable to eye injuries, some of which could lead to vision loss, researchers reported.`\
+https://nytimes.com/2025/10/16/health/pickleball-eye-injuries.html
+
+**Fantasy trends and hidden gems: Weekend picks and Week 3 adds, including Kiefer Sherwood**\
+`Shayna Goldman gives waiver wire recommendations for this weekend's games and the rest of Week 3 in her latest column. `\
+https://nytimes.com/athletic/6721797/2025/10/16/fantasy-hockey-trends-gems-week-3-sherwood/
+
 **Are You a Young Employee Asked to Spend More Time in the Office?**\
 `Please tell us how stricter return-to-office mandates are affecting your work life and home life.`\
 https://nytimes.com/2025/10/16/business/rto-young-worker-attitude.html
