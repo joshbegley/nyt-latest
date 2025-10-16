@@ -1,3 +1,19 @@
+**The affordable housing shortage is top of mind for New York’s voters.**\
+`The mayoral candidate`\
+https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/the-affordable-housing-shortage-is-top-of-mind-for-new-yorks-voters
+
+**Blue Jays plan to remove Anthony Santander from playoff roster: Sources**\
+`The Toronto Blue Jays will be without their biggest offseason acquisition for the rest of the postseason.`\
+https://nytimes.com/athletic/6724217/2025/10/16/blue-jays-plan-to-remove-anthony-santander-from-playoff-roster-pending-mlb-approval-sources/
+
+**The 3 mayoral debaters have different styles and different goals.**\
+`By Benjamin Oreskes`\
+https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/the-3-mayoral-debaters-have-different-styles-and-different-goals
+
+**UNC football GM Michael Lombardi met with Saudi Arabia about potential investment**\
+`Lombardi’s trip did not culminate in any sort of agreement between the UNC football program and the PIF.`\
+https://nytimes.com/athletic/6723173/2025/10/16/mike-lombardi-unc-football-saudi-arabia-fundraising/
+
 **'I've learned a lot': Carter Hart on signing with the Golden Knights, and his near-future plans**\
 `Hart, one of the defendants in the Hockey Canada case, signed with Vegas on Thursday.`\
 https://nytimes.com/athletic/6724138/2025/10/16/carter-hart-golden-knights-contract/
@@ -17,20 +33,4 @@ https://nytimes.com/2025/10/16/briefing/john-bolton-indictment-trump-putin-meeti
 **Parties Brace for a Political Future Without the Voting Rights Act**\
 `After the Supreme Court appeared poised to weaken a key provision of the landmark civil rights law, both parties began to reckon with an uncertain future.`\
 https://nytimes.com/2025/10/16/us/politics/democrats-republicans-voting-rights.html
-
-**Michigan regents rail against Big Ten private capital plan**\
-`Michigan regents said consultants who reviewed the deal advised them not to support it.`\
-https://nytimes.com/athletic/6723936/2025/10/16/big-ten-private-capital-michigan-usc/
-
-**Kenyan Police Fire on Mourners at Raila Odinga Memorial**\
-`Tens of thousands of mourners gathered at a stadium in Nairobi, Kenya, to pay their respects to opposition leader Raila Odinga. At least two people were killed, Kenya’s head of police operations told The Associated Press.`\
-https://nytimes.com/video/world/africa/100000010463391/world-kenya-nairobi-raila-odinga-mourners.html
-
-**This is where the mayor’s race stands ahead of the first debate.**\
-`By Benjamin Oreskes`\
-https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/this-is-where-the-mayors-race-stands-ahead-of-the-first-debate
-
-**Mamdani Faces Islamophobic Attacks After Comments About Hamas**\
-`Zohran Mamdani, the front-runner in the race for mayor of New York City, was attacked by lawmakers from both parties over comments he made in a Fox News interview.`\
-https://nytimes.com/2025/10/16/nyregion/zohran-mamdani-islamophobic-attacks-hamas-gaza.html
 
