@@ -1,3 +1,7 @@
+**Are You a Young Employee Asked to Spend More Time in the Office?**\
+`Please tell us how stricter return-to-office mandates are affecting your work life and home life.`\
+https://nytimes.com/2025/10/16/business/rto-young-worker-attitude.html
+
 **Truckers Are Struggling. Trump’s New Tariff Could Make Things Worse.**\
 `A 25 percent levy on heavy-duty trucks and parts is set to take effect next month. Companies have few details on the policy.`\
 https://nytimes.com/2025/10/16/business/trump-tariff-trucks-parts.html
