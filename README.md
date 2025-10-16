@@ -1,3 +1,7 @@
+**From Serial Productions: The Preventionist**\
+`Why are so many families in the Lehigh Valley losing custody of their children?`\
+https://nytimes.com/2025/10/15/podcasts/serial-productions-the-preventionist.html
+
 **Trinity Rodman exits Spirit game with injury hours after earning USWNT call-up**\
 `Rodman had recently earned her first U.S. call-up since April after a persistent back issue kept her out of action for much of the summer.`\
 https://nytimes.com/athletic/6721462/2025/10/15/trinity-rodman-injury-uswnt-nwsl-spirit/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/15/world/americas/guatemala-prison-break-penal-refor
 **As Trump’s Federal Hiring Freeze Expires, He Puts New Restrictions in Place**\
 `The terms of the new order indicate that federal agencies will be hiring only with the approval of his political appointees.`\
 https://nytimes.com/2025/10/15/us/politics/trump-executive-order-federal-hiring.html
-
-**Celtics' Jaylen Brown exits game with hamstring tightness, held out as precaution**\
-`With five minutes left in the first quarter of Boston’s matchup with the Toronto Raptors, Brown started moving gingerly.`\
-https://nytimes.com/athletic/6721296/2025/10/15/jaylen-brown-celtics-nba-preseason/
 
