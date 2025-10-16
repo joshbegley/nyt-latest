@@ -1,3 +1,11 @@
+**Alexander Steen, Al Arbour and Barret Jackman to be inducted into Blues Hall of Fame**\
+`All three players to be inducted as part of the 2026 class were heart-and-soul players with the Blues.`\
+https://nytimes.com/athletic/6721760/2025/10/16/blues-hall-of-fame-steen-arbour-jackman/
+
+**Can Ange Postecoglou turn it around at Forest? What is the players' mood? Is Chelsea his last chance?**\
+`How will the Australian turn the tide? Is his dismal start affecting ticket sales? Can Forest afford to make a second managerial change?`\
+https://nytimes.com/athletic/6719098/2025/10/16/ange-postecoglou-marinakis-forest-chelsea/
+
 **How America Got Hooked on Ultraprocessed Food**\
 `They promised convenience and cheap nutrition. But they became one of the greatest health threats of our time.`\
 https://nytimes.com/interactive/2025/10/16/well/eat/ultraprocessed-food-junk-history.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/15/us/politics/trump-white-house-dinner-ballroom-don
 **Mariners-Blue Jays Game 3 takeaways: Toronto's bats blast back into series**\
 `The Blue Jays hit five home runs in a 13-4 beatdown that narrowed the Mariners' series lead to two games to one.`\
 https://nytimes.com/athletic/6721573/2025/10/15/blue-jays-mariners-game-3-score-results-takeaways-playoffs-mlb/
-
-**Longtime Angels employee takes stand as key witness in Tyler Skaggs wrongful death trial**\
-`Tim Mead, an Angels employee of 40 years, answered he did "not recall" to many of the questions from attorney Rusty Hardin.`\
-https://nytimes.com/athletic/6721563/2025/10/15/tyler-skaggs-angels-wrongful-death-trial-begins/
-
-**The Preventionist, Episode 3: Better Safe Than Sorry**\
-`From Serial Productions: What’s the harm of “better safe than sorry”?`\
-https://nytimes.com/2025/10/15/podcasts/serial-the-preventionist-episode-3.html
 
