@@ -1,3 +1,11 @@
+**The Preventionist, Episode 2: The CAP Will See You Now**\
+`From Serial Productions: The doctor behind the alleged child abuse cases in the Lehigh Valley.`\
+https://nytimes.com/2025/10/15/podcasts/serial-the-preventionist-episode-2.html
+
+**The Preventionist, Episode 1: Creative Financing**\
+`From Serial Productions: What is going on in Pennsylvania’s Lehigh Valley?`\
+https://nytimes.com/2025/10/15/podcasts/serial-the-preventionist-episode-1.html
+
 **From Serial Productions: The Preventionist**\
 `Why are so many families in the Lehigh Valley losing custody of their children?`\
 https://nytimes.com/2025/10/15/podcasts/serial-productions-the-preventionist.html
