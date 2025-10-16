@@ -1,3 +1,15 @@
+**Susan Stamberg, a Longtime Voice of NPR, Is Dead at 87**\
+`In 1972 she became the first woman to anchor a national evening news broadcast. She retired this summer after 50 year on the air.`\
+https://nytimes.com/2025/10/16/business/media/susan-stamberg-dead.html
+
+**John Bolton Is Indicted**\
+`Also, Trump and Putin plan to meet. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/10/16/briefing/john-bolton-indictment-trump-putin-meeting.html
+
+**Parties Brace for a Political Future Without the Voting Rights Act**\
+`After the Supreme Court appeared poised to weaken a key provision of the landmark civil rights law, both parties began to reckon with an uncertain future.`\
+https://nytimes.com/2025/10/16/us/politics/democrats-republicans-voting-rights.html
+
 **Michigan regents rail against Big Ten private capital plan**\
 `Michigan regents said consultants who reviewed the deal advised them not to support it.`\
 https://nytimes.com/athletic/6723936/2025/10/16/big-ten-private-capital-michigan-usc/
@@ -21,20 +33,4 @@ https://nytimes.com/athletic/6724060/2025/10/16/trinity-rodman-uswnt-spirit-inju
 **A Photographer’s Unconventional Vision of Pregnancy**\
 `Naima Green discusses growing up in Harlem and embracing the discomfort of a self-portrait.`\
 https://nytimes.com/2025/10/16/t-magazine/naima-green-international-center-photography.html
-
-**Betting for (by) dummies: Agreeing on the Chargers, fading UNC and more**\
-`Jon Greenberg and Zac Jackson both had winning weeks last week and are back at it for another week of football betting.`\
-https://nytimes.com/athletic/6724029/2025/10/16/football-betting-for-by-dummies-chargers-north-carolina/
-
-**Angels broaden managerial search, though Albert Pujols remains top choice**\
-`The job had been said to be Pujols' if he wanted it, but the Angels are now also looking at other candidates. `\
-https://nytimes.com/athletic/6723342/2025/10/16/angels-manager-search-widens-albert-pujols/
-
-**Goodbye Gray Walls. Hello, Dusty Rose.**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/goodbye-gray-walls-hello-dusty-rose
-
-**‘Oh Happy Day!’ Review: And God Told Keyshawn to Build an Ark**\
-`An urgent family mission propels Jordan E. Cooper’s pain-spiked supernatural comedy, a very loose riff on the biblical story of Noah.`\
-https://nytimes.com/2025/10/16/theater/oh-happy-day-review-cooper.html
 
