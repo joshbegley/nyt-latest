@@ -1,3 +1,19 @@
+**What Teenagers Are Saying About Gaming**\
+`Students react to an article about whether the increasing amount of time boys spend playing video games is a problem.`\
+https://nytimes.com/2025/10/16/learning/what-teenagers-are-saying-about-gaming.html
+
+**With defensive leaders on crutches, pass-happy 49ers need George Kittle, Brock Purdy**\
+`The 49ers have a leadership void after Fred Warner's injury. They also need help in both the run and pass game, which Kittle can provide.`\
+https://nytimes.com/athletic/6722043/2025/10/16/brock-purdy-george-kittle-leadership-pass-game/
+
+**2026 WNBA champion odds and way-too-early picks: Lynx, Aces, Fever open in top tier**\
+`The 2025 WNBA playoffs featured surprise runs and surprise blowouts. Who is favored to win it all in 2026?`\
+https://nytimes.com/athletic/6720555/2025/10/16/2026-wnba-champion-odds-picks-aces-lynx-fever/
+
+**Israel Philharmonic Draws Protesters as Talk in Gaza Turns to Peace**\
+`For two years, protesters have targeted cultural events around the world, particularly those with Israeli artists. On Wednesday, a small group gathered at Carnegie Hall.`\
+https://nytimes.com/2025/10/16/arts/music/israel-philharmonic-carnegie-hall-protests-middle-east.html
+
 **New Oklahoma Superintendent Rescinds Bible Mandate**\
 `The superintendent said he had “no plans” to enforce his predecessor’s mandate to put Bibles in public school classrooms, which was being fought in court.`\
 https://nytimes.com/2025/10/16/us/oklahoma-schools-superintendent-bible-mandate.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6723066/2025/10/16/avalanche-vs-blue-jackets-stream
 **How to watch Predators vs. Canadiens: Time, TV, streaming**\
 `Find out how to watch the Nashville Predators play the Montreal Canadiens, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6723063/2025/10/16/predators-vs-canadiens-stream-how-to-watch-oct-16/
-
-**How to watch Kraken vs. Senators: Time, TV, streaming**\
-`Find out how to watch the Seattle Kraken play the Ottawa Senators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6723059/2025/10/16/kraken-vs-senators-stream-how-to-watch-oct-16/
-
-**How to watch Rangers vs. Maple Leafs: Time, TV, streaming**\
-`Find out how to watch the New York Rangers play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6723057/2025/10/16/rangers-vs-maple-leafs-stream-how-to-watch-oct-16/
-
-**Until Saturday: Who's the next Curt Cignetti?**\
-`Until Saturday is The Athletic's free CFB newsletter.`\
-https://nytimes.com/athletic/6723025/2025/10/16/cfb-coaching-candidates-until-saturday/
-
-**Police request Maccabi Tel Aviv fans not be allowed to attend Villa game**\
-`When Maccabi Tel Aviv travelled to face Ajax last year, 62 people were arrested and five hospitalised after violent clashes.`\
-https://nytimes.com/athletic/6722327/2025/10/16/aston-villa-maccabi-tel-aviv-uefa/
 
