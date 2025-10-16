@@ -1,3 +1,23 @@
+**He Studied Elephant Behavior to Save Lives**\
+`Joshua Plotnick worked to prevent deadly encounters between people and elephants. Then the funding froze.`\
+https://nytimes.com/2025/10/16/science/elephants-cognition-plotnick.html
+
+**Fantasy football injuries, inactives, cheat sheet Week 7**\
+`Fantasy football relevant injuries and their impact, weather reports and watch to watch for. Plus, Ciely's Week 7 player rankings and more.`\
+https://nytimes.com/athletic/6716389/2025/10/16/fantasy-football-injuries-inactives-cheat-sheet-nfl-week-7/
+
+**With college soccer ‘at risk,’ U.S. Soccer pushes for overhaul**\
+`Promotion and relegation could be part of radical plans to overhaul American college soccer`\
+https://nytimes.com/athletic/6721890/2025/10/16/us-soccer-college-ncaa-overhaul/
+
+**George Russell exclusive: 'I feel ready to fight for a world championship'**\
+`In his first interview since a new contract with Mercedes was announced, George Russell talks about how he is in the form of his life`\
+https://nytimes.com/athletic/6722538/2025/10/16/george-russell-mercedes-contract-interview/
+
+**The Latest Victoria’s Secret Show(girls)**\
+`Angel Reese, Sunisa Lee and both Hadids were on the runway as the company made yet another attempt at relevancy.`\
+https://nytimes.com/2025/10/16/style/victorias-secret-vs-show.html
+
 **Penn State had been at the edge of a precipice for some time. Here's why**\
 `Penn State seemed built to contend and riding recent good vibes. In reality, it was one of college football's most fragile teams.`\
 https://nytimes.com/athletic/6722394/2025/10/16/james-franklin-firing-penn-state-drew-allar-loss/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6721790/2025/10/16/blackhawks-power-rankings-frank-
 **Leeds' James ahead of schedule with ankle injury, could be fit to face Burnley**\
 `Manager Daniel Farke had previously expected the 27-year-old to be unavailable until after the November international break.`\
 https://nytimes.com/athletic/6722701/2025/10/16/dan-james-leeds-injury-latest/
-
-**Steele signs new Brighton contract until 2027**\
-`Steele joined Brighton from Sunderland in July 2018 and has played 60 times for the south-coast club.`\
-https://nytimes.com/athletic/6722700/2025/10/16/jason-steele-brighton-contract/
-
-**How to stream the Utah Jazz in 2025-26: Schedule, blackout rules and new broadcasters**\
-`Here's how to watch all 82 Utah Jazz games this season. Under Ryan Smith, the franchise has a different setup for regional telecasts.`\
-https://nytimes.com/athletic/6720914/2025/10/16/utah-jazz-ace-bailey-2025-26-how-to-watch/
-
-**A Love of Watches Rather Than Brand Names**\
-`Now in its 10th year, the Windup Watch Fair has become a go-to destination for independent brands and watch enthusiasts, with nary a Rolex in sight.`\
-https://nytimes.com/2025/10/16/style/windup-watch-fair-new-york.html
-
-**London’s Art Scene Is a Mess of Contradictions. That’s the Appeal.**\
-`Britain’s economy has slowed recently, and sales at blue-chip galleries are down. But among young artists and emerging dealers, the mood is upbeat.`\
-https://nytimes.com/2025/10/16/arts/frieze-london.html
-
-**Send Us Your Games-Related Halloween Costume**\
-`Submit a photo of your New York Times Games outfit for a chance to be featured on our social media channels.`\
-https://nytimes.com/2025/10/16/crosswords/halloween-games-costumes.html
 

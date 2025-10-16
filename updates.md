@@ -1,3 +1,7 @@
+**Penn State had been at the edge of a precipice for some time. Here's why**\
+`Penn State seemed built to contend and riding recent good vibes. In reality, it was one of college football's most fragile teams.`\
+https://nytimes.com/athletic/6722394/2025/10/16/james-franklin-firing-penn-state-drew-allar-loss/
+
 **Johnson & Johnson Sued in U.K. Over Baby Powder Cancer Claims**\
 `More than 3,000 people in Britain have joined a lawsuit accusing the company of knowing that its baby powder contained carcinogenic fibers, including asbestos.`\
 https://nytimes.com/2025/10/16/business/johnson-johnson-talc-lawsuit-uk.html
