@@ -1,3 +1,7 @@
+**What’s So Great About ‘Slow Horses’? This Scene Says It All.**\
+`The British spy show owes its sarcasm and wit to Mick Herron’s novels. Our critic A.O. Scott breaks down a few sentences from Herron’s latest, “Clown Town.”`\
+https://nytimes.com/interactive/2025/10/16/books/slow-horses-clown-town-mick-herron.html
+
 **New York City Sues U.S. After School Aid Is Cut Over Gender Policies**\
 `The Trump administration argued that the school system is violating civil rights laws because of policies on transgender and nonbinary students.`\
 https://nytimes.com/2025/10/16/nyregion/new-york-transgender-trump-schools-grants.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/16/us/politics/trump-administration-helicopters-vene
 **Trump’s Troubling ‘Compact’ for Universities**\
 `Responses to an essay about President Trump’s “Compact for Academic Excellence in Higher Education.” Also: Bikes in the park; a vigil against political violence.`\
 https://nytimes.com/2025/10/16/opinion/trump-compact-universities.html
-
-**Carter Hart agrees to join Golden Knights organization: Why he chose Vegas, and what he brings**\
-`One of five 2018 World Juniors players found not guilty of sexual assault in July, Hart will begin his comeback on a professional tryout.`\
-https://nytimes.com/athletic/6528138/2025/10/16/carter-hart-signs-golden-knights-analysis/
 
