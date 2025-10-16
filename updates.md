@@ -1,3 +1,7 @@
+**'I made a mistake': Tua Tagovailoa apologizes for comments after Sunday’s game**\
+`"I would say I've made a mistake and I'm owning up to that right now," Tagovailoa said.`\
+https://nytimes.com/athletic/6720502/2025/10/15/dolphins-tua-tagovailoa-apologizes-comments/
+
 **Shohei Ohtani talks playoff skid, then hits ball off the roof in batting practice**\
 `Ohtani is striking out nearly half the time and said his focus is on taking "quality at-bats."`\
 https://nytimes.com/athletic/6721257/2025/10/15/shohei-ohtani-postseason-slump-nlcs/
