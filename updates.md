@@ -1,3 +1,15 @@
+**After making the big trade, do the Cubs even know what Kyle Tucker wants as a free agent?**\
+`In listening to separate end-of-season reflections from Tucker and president of baseball operations Jed Hoyer, both sides sound detached.`\
+https://nytimes.com/athletic/6721243/2025/10/16/chicago-cubs-kyle-tucker-free-agency/
+
+**WNBA free agency: Which players could make the biggest moves?**\
+`The WNBA will enter its wildest free agency period in history. Will stars like Jonquel Jones and Kelsey Mitchell make moves or stay put?`\
+https://nytimes.com/athletic/6720985/2025/10/16/2025-wnba-free-agency-moves/
+
+**The NFC is wide open. Why our projection model says 12 teams still have real playoff hopes**\
+`Entering Week 7, 12 NFC teams still have at least a 10 percent chance to make the playoffs, according to Austin Mock's NFL Projection Model.`\
+https://nytimes.com/athletic/6719923/2025/10/16/nfc-playoffs-projections-eagles/
+
 **Red Wings' unsung contributions spark early win streak: Observations**\
 `The Red Wings' 4-1 win over the Panthers was fueled by contributions outside the typical spotlight.`\
 https://nytimes.com/athletic/6721596/2025/10/16/red-wings-panthers-mason-appleton-win-streak/

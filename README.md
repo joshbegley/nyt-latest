@@ -1,3 +1,7 @@
+**TAFC: Real Madrid and a controversial ownership plan. Plus: Pulisic injury debate**\
+`Today in TAFC: We explain why Real Madrid might be about to change its ownership structure. Plus: fact-checking Pochettino's comments.`\
+https://nytimes.com/athletic/6722099/2025/10/16/real-madrid-socios-sale-perez/
+
 **After making the big trade, do the Cubs even know what Kyle Tucker wants as a free agent?**\
 `In listening to separate end-of-season reflections from Tucker and president of baseball operations Jed Hoyer, both sides sound detached.`\
 https://nytimes.com/athletic/6721243/2025/10/16/chicago-cubs-kyle-tucker-free-agency/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6719756/2025/10/16/chiefs-travis-kelce-lions-hakeem
 **Will Steelers run away with division? Does Mike Tomlin have a gripe? AFC North Whiparound**\
 `Could Pittsburgh have the division locked up by early December? Plus, how aggressive will each team be before the Nov. 4 trade deadline?`\
 https://nytimes.com/athletic/6720363/2025/10/16/bengals-browns-steelers-ravens-afc-north/
-
-**De'Andre Hunter? Kevin Porter Jr.? Five most pivotal NBA role players this season**\
-`Which players could become the most pivotal role players this season in the NBA?`\
-https://nytimes.com/athletic/6720872/2025/10/16/nba-pivotal-role-players-2025-26-season/
 
