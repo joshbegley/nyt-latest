@@ -1,3 +1,7 @@
+**Lions DB Brian Branch loses appeal; 1-game suspension for altercation vs. Chiefs upheld**\
+`The Lions were prepared for the result of Branch's appeal.`\
+https://nytimes.com/athletic/6721350/2025/10/15/lions-brian-branch-appeal-lost-suspension-upheld-chiefs/
+
 **Review: Aubrey Plaza Shines in Ethan Coen’s Retrograde ‘Let’s Love!’**\
 `It’s unusual for an Atlantic Theater Company production to feel so uninspired, but in this set of one-acts, committed actors are let down by juvenile language.`\
 https://nytimes.com/2025/10/15/theater/lets-love-review-coen-plaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/15/nyregion/house-democrats-hochul-gas-pipeline-nyc.
 **NFLPA shares player 'outrage' with NFL over field for Steelers-Browns: Source**\
 `Sunday's game was scheduled to be the last one played on the surface, according to a Steelers spokesperson.`\
 https://nytimes.com/athletic/6721089/2025/10/15/nflpa-nfl-field-steelers-browns-complaints/
-
-**Kings, Keegan Murray agree to five-year, $140M rookie-scale contract extension**\
-`In the 2022 NBA Draft, the Kings took a chance on Keegan Murray. This week, both parties agreed to a long-term contract extension.`\
-https://nytimes.com/athletic/6721112/2025/10/15/kings-keegan-murray-contract-extension-nba/
 
