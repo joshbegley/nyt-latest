@@ -1,3 +1,7 @@
+**Blue Jays plan to remove Anthony Santander from playoff roster, pending MLB approval: Sources**\
+`The Toronto Blue Jays will be without their biggest offseason acquisition for the rest of the postseason.`\
+https://nytimes.com/athletic/6724217/2025/10/16/blue-jays-plan-to-remove-anthony-santander-mlb-approval/
+
 **The affordable housing shortage is top of mind for New York’s voters.**\
 `The mayoral candidate`\
 https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/the-affordable-housing-shortage-is-top-of-mind-for-new-yorks-voters
