@@ -1,3 +1,11 @@
+**Trae Young, Hawks won't agree on an extension before NBA season: Sources**\
+`Young is entering the final guaranteed season of his contract and can become a free agent next summer if he does not sign a new deal.`\
+https://nytimes.com/athletic/6723424/2025/10/16/trae-young-hawks-contract-extension-nba-season/
+
+**Alex Tuch won't let contract talks distract from trying to turn Sabres around on the ice**\
+`The risk of leaving Tuch unsigned into the season is that each rough stretch for the Sabres raises questions.`\
+https://nytimes.com/athletic/6723919/2025/10/16/alex-tuch-contract-sabres-schedule-stats/
+
 **At Phillies' wake, hints of the path they could take in a critical offseason**\
 `Ideally, they hope to retain Kyle Schwarber and J.T. Realmuto, remake their outfield and augment their bullpen — all while injecting youth.`\
 https://nytimes.com/athletic/6723940/2025/10/16/phillies-offseason-signings-trades-2026-roster/
