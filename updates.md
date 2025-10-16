@@ -1,3 +1,11 @@
+**France’s Government Survives No-Confidence Vote**\
+`The result gives Sébastien Lecornu, France’s prime minister, a reprieve after weeks of political turmoil. But he still has to get a budget passed by the end of the year.`\
+https://nytimes.com/2025/10/16/world/europe/france-lecornu-no-confidence-vote.html
+
+**Smucker’s Sues Trader Joe’s Over ‘Copycat’ Uncrustables**\
+`It said in a lawsuit that the company was infringing on multiple trademarks it held, including one for a “round pie-like shape with distinct peripheral undulated crimping.”`\
+https://nytimes.com/2025/10/16/us/smuckers-sues-trader-joes-over-copycat-uncrustables.html
+
 **Families of Jeju Air Crash Victims Sue Boeing**\
 `A lawsuit in Washington State is one of several accusing the airline of failing to update equipment on a plane that crashed in South Korea last year, killing 179 people.`\
 https://nytimes.com/2025/10/16/business/jeju-air-plane-crash-boeing-lawsuits.html
