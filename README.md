@@ -1,3 +1,15 @@
+**Guatemala Welcomes U.S. Help in Gang Crackdown After Prison Break**\
+`President Bernardo Arévalo called an overhaul of his country’s prison system an “absolute priority” after 20 inmates accused of belonging to the Barrio 18 group were found to have escaped undetected.`\
+https://nytimes.com/2025/10/15/world/americas/guatemala-prison-break-penal-reforms.html
+
+**As Trump’s Federal Hiring Freeze Expires, He Puts New Restrictions in Place**\
+`The terms of the new order indicate that federal agencies will be hiring only with the approval of his political appointees.`\
+https://nytimes.com/2025/10/15/us/politics/trump-executive-order-federal-hiring.html
+
+**Celtics' Jaylen Brown exits game with hamstring tightness, held out as precaution**\
+`With five minutes left in the first quarter of Boston’s matchup with the Toronto Raptors, Brown started moving gingerly.`\
+https://nytimes.com/athletic/6721296/2025/10/15/jaylen-brown-celtics-nba-preseason/
+
 **Kevin Durant wishes Mariners luck after seeing Josh Naylor's Sonics fit**\
 `The Mariners first baseman made it a point to wear a throwback SuperSonics jersey.`\
 https://nytimes.com/athletic/6721223/2025/10/15/kevin-durant-nba-josh-naylor-mariners-seattle-alcs/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6721112/2025/10/15/kings-keegan-murray-contract-ext
 **On Fox, Mamdani Speaks Directly to Trump: I Won’t Be a Mayor Like Adams**\
 `The leading mayoral candidate in New York City defended his positions while parrying questions about the Israel-Gaza war.`\
 https://nytimes.com/2025/10/15/nyregion/mamdani-fox-interview.html
-
-**Oval Office Becomes a Diorama of Power Dynamics as Trump Goes After Rivals**\
-`Top officials, unwilling to fight for the historical independence of their institutions, watched on Wednesday as President Trump continued his pursuit of controlling law enforcement.`\
-https://nytimes.com/2025/10/15/us/politics/trump-bondi-patel-blanche-oval-office.html
-
-**Celtics' Mazzulla says 57-4 win over media was about more than basketball: 'It humanizes us'**\
-`Joe Mazzulla explained his motivation for coaches-media pickup game: "It was important that we did that yesterday, and we’ll do it again."`\
-https://nytimes.com/athletic/6720860/2025/10/15/joe-mazzulla-celtics-media-pickup-game-nba/
-
-**USWNT in Champions League: Lily Yohannes and Alyssa Thompson help their teams in dominating wins**\
-`The goals came hours after head coach Emma Hayes named both players to her 26-player U.S. roster for October `\
-https://nytimes.com/athletic/6720961/2025/10/15/champions-league-uswnt-lily-yohannes-alyssa-thompson/
 
