@@ -1,3 +1,7 @@
+**Russia Is Arming Drones With North Korean Cluster Weapons, Report Says**\
+`Though Pyongyang has largely pulled its soldiers off the front lines in Ukraine, it is expanding the types of ammunition it supplies to Russia.`\
+https://nytimes.com/2025/10/16/us/politics/russia-north-korean-cluster-weapons.html
+
 **Novak Djokovic says tennis innovation is 'sabotaged', wants to play on to see changes**\
 `Djokovic wishes to see a “new platform” for tennis in the coming years before he retires.`\
 https://nytimes.com/athletic/6722341/2025/10/16/tennis-novak-djokovic-six-king-slam-ptpa/

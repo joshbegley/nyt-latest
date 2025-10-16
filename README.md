@@ -1,3 +1,11 @@
+**Gilles Larrain, Photographer of 1970s Drag Culture, Dies at 86**\
+`He shot portraits of stars like John Lennon and Miles Davis. But he is best remembered for “Idols,” an intimate look at a vital New York underground.`\
+https://nytimes.com/2025/10/16/arts/gilles-larrain-dead.html
+
+**Map: Earthquake Strikes the San Francisco Bay Area**\
+`View the location of the quake’s epicenter and shake area.`\
+https://nytimes.com/interactive/2025/10/16/us/16wea-quake-tracker-san-francisco-bay-area-nytg3ghx.html
+
 **Russia Is Arming Drones With North Korean Cluster Weapons, Report Says**\
 `Though Pyongyang has largely pulled its soldiers off the front lines in Ukraine, it is expanding the types of ammunition it supplies to Russia.`\
 https://nytimes.com/2025/10/16/us/politics/russia-north-korean-cluster-weapons.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6719566/2025/10/16/canada-october-friendlies-austra
 **FA considering Miami for England pre-World Cup training camp**\
 `The FA is focusing on where to acclimatise the squad before the tournament and Miami, Florida, is a destination central to discussions.`\
 https://nytimes.com/athletic/6722961/2025/10/16/england-miami-world-cup-training/
-
-**Judge Says Immigration Agents Must Wear Body Cameras in Chicago**\
-`The federal judge said she was “profoundly concerned” that federal agents might have violated earlier limits that she had set as the Trump administration has carried out an immigration crackdown.`\
-https://nytimes.com/2025/10/16/us/politics/chicago-immigration-agents-body-cameras.html
-
-**Pickford signs four-year Everton contract to 2029**\
-`The 31-year-old has kept 91 clean sheets in 326 appearances for the Merseyside club since joining from Sunderland in 2017.`\
-https://nytimes.com/athletic/6601688/2025/10/16/jordan-pickford-contract-extension/
 
