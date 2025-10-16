@@ -1,3 +1,7 @@
+**The Bounce: Netflix gets a 'golden' NBA story. Plus, we preview the Knicks and Nuggets**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6722782/2025/10/16/netflix-gets-a-golden-nba-story-plus-we-preview-the-knicks-and-nuggets/
+
 **He Studied Elephant Behavior to Save Lives**\
 `Joshua Plotnick worked to prevent deadly encounters between people and elephants. Then the funding froze.`\
 https://nytimes.com/2025/10/16/science/elephants-cognition-plotnick.html

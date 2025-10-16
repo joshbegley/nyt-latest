@@ -1,3 +1,7 @@
+**The Bounce: Netflix gets a 'golden' NBA story. Plus, we preview the Knicks and Nuggets**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6722782/2025/10/16/netflix-gets-a-golden-nba-story-plus-we-preview-the-knicks-and-nuggets/
+
 **He Studied Elephant Behavior to Save Lives**\
 `Joshua Plotnick worked to prevent deadly encounters between people and elephants. Then the funding froze.`\
 https://nytimes.com/2025/10/16/science/elephants-cognition-plotnick.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/16/climate/fema-disaster-recovery-trump.html
 **Blackhawks power rankings: Nazar's flash, Reichel's redemption and some sweet jackets**\
 `There's nothing like putting up eight goals on the road against a hated division rival to send the vibes soaring.`\
 https://nytimes.com/athletic/6721790/2025/10/16/blackhawks-power-rankings-frank-nazar-lukas-reichel/
-
-**Leeds' James ahead of schedule with ankle injury, could be fit to face Burnley**\
-`Manager Daniel Farke had previously expected the 27-year-old to be unavailable until after the November international break.`\
-https://nytimes.com/athletic/6722701/2025/10/16/dan-james-leeds-injury-latest/
 
