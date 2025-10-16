@@ -1,3 +1,11 @@
+**A Military Celebration Sparks Another Newsom-Trump Feud**\
+`Gov. Gavin Newsom had feared that the ceremony would send missiles over Interstate 5, but the Marines later said that its “live-fire” would be contained.`\
+https://nytimes.com/2025/10/16/us/politics/newsom-military-celebration-camp-pendleton.html
+
+**How to watch Texans vs. Seahawks: Time, TV, streaming**\
+`Find out how to watch the Houston Texans play the Seattle Seahawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6721937/2025/10/16/texans-vs-seahawks-stream-how-to-watch-oct-20/
+
 **How to watch Blue Jays at Mariners: Game 4 Time, TV, streaming**\
 `Find out how to watch the Toronto Blue Jays play the Seattle Mariners, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6721919/2025/10/16/blue-jays-vs-mariners-stream-how-to-watch-oct-16/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6694152/2025/10/16/crystal-palace-pino-sarr-no-10s-
 **Arne Slot has a specific issue to fix in Liverpool's defence**\
 `Not only do the Premier League champions need to defend back-post crosses better, they need to cut them out at source from the opposite side`\
 https://nytimes.com/athletic/6715810/2025/10/16/liverpool-back-post-defending-analysis/
-
-**The Accu stadium and an American owner's long-term vision to reinvigorate Huddersfield Town**\
-`Kevin Nagle has bought the League One club's home of 31 years and has ambitious plans to establish it as the epicentre of the town`\
-https://nytimes.com/athletic/6696847/2025/10/16/huddersfield-town-sacramento-nagle-accu-stadium/
-
-**Should Leeds stick with Karl Darlow or restore Lucas Perri to the starting line-up?**\
-`Karl Darlow has been starting for Leeds in Lucas Perri's absence. But should Perri start against Burnley?`\
-https://nytimes.com/athletic/6719752/2025/10/16/lucas-perri-karl-darlow-leeds-analysis/
 

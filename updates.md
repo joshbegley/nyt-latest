@@ -1,3 +1,11 @@
+**A Military Celebration Sparks Another Newsom-Trump Feud**\
+`Gov. Gavin Newsom had feared that the ceremony would send missiles over Interstate 5, but the Marines later said that its “live-fire” would be contained.`\
+https://nytimes.com/2025/10/16/us/politics/newsom-military-celebration-camp-pendleton.html
+
+**How to watch Texans vs. Seahawks: Time, TV, streaming**\
+`Find out how to watch the Houston Texans play the Seattle Seahawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6721937/2025/10/16/texans-vs-seahawks-stream-how-to-watch-oct-20/
+
 **How to watch Blue Jays at Mariners: Game 4 Time, TV, streaming**\
 `Find out how to watch the Toronto Blue Jays play the Seattle Mariners, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6721919/2025/10/16/blue-jays-vs-mariners-stream-how-to-watch-oct-16/
