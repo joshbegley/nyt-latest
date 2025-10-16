@@ -1,3 +1,31 @@
+**'No pressure' on Fabian Hurzeler to play Charalampos Kostoulas, says Brighton owner**\
+`The 18-year-old summer signing has only featured in Brighton's Premier League matchday squad once through the first seven games.`\
+https://nytimes.com/athletic/6716412/2025/10/16/brighton-charalampos-kostoulas-fabian-hurzeler/
+
+**Items in Your Phone**\
+`What do you think this image is communicating?`\
+https://nytimes.com/2025/10/16/learning/items-in-your-phone.html
+
+**How to Watch the N.Y.C. Mayoral Debate Between Mamdani, Cuomo and Sliwa**\
+`The candidates for New York City mayor will meet onstage Thursday night for the first of two debates. Here’s what we’ll be watching for.`\
+https://nytimes.com/2025/10/16/nyregion/nyc-mayor-debate-.html
+
+**N.Y.P.D. to Notify Parents When Minors Are Entered Into Gang Database**\
+`The change was one several the department agreed to make to a tool that has been criticized by the City Council and Zohran Mamdani, the Democratic mayoral nominee.`\
+https://nytimes.com/2025/10/16/nyregion/nypd-gang-database.html
+
+**Cuomo Looks for a Debate Night Spark in Hopes of Catching Mamdani**\
+`Andrew M. Cuomo, the former governor of New York, intends to attack Zohran Mamdani’s qualifications and leftist ideology. He will be under fire, too.`\
+https://nytimes.com/2025/10/16/nyregion/cuomo-debate-mamdani.html
+
+**Mamdani Is Making Overtures to Jewish Leaders. Some Are Listening.**\
+`Zohran Mamdani is stepping up his Jewish outreach, as he holds private meetings with rabbis and other leaders across New York City who oppose his stance on Israel.`\
+https://nytimes.com/2025/10/16/nyregion/mandani-jews-israel-palestine.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/10/16/crosswords/spelling-bee-forum.html
+
 **A Military Celebration Sparks Another Newsom-Trump Feud**\
 `Gov. Gavin Newsom had feared that the ceremony would send missiles over Interstate 5, but the Marines later said that its “live-fire” would be contained.`\
 https://nytimes.com/2025/10/16/us/politics/newsom-military-celebration-camp-pendleton.html
@@ -9,32 +37,4 @@ https://nytimes.com/athletic/6721937/2025/10/16/texans-vs-seahawks-stream-how-to
 **How to watch Blue Jays at Mariners: Game 4 Time, TV, streaming**\
 `Find out how to watch the Toronto Blue Jays play the Seattle Mariners, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6721919/2025/10/16/blue-jays-vs-mariners-stream-how-to-watch-oct-16/
-
-**U.S. Enters 15th Day of Late-Night Jokes About Government Shutdown**\
-`Jimmy Kimmel told his viewers that in 2018, “Trump shut the government down until they brought back the McRib or something.”`\
-https://nytimes.com/2025/10/16/arts/television/jimmy-kimmel-government-shutdown.html
-
-**Word of the Day: laudable**\
-`This word has appeared in 74 articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/10/16/learning/word-of-the-day-laudable.html
-
-**The New York Times in Print for Thursday, Oct. 16, 2025**\
-``\
-https://nytimes.com/issue/todayspaper/2025/10/16/todays-new-york-times
-
-**Marnus Labuschagne exclusive: 'I'd love it to be 5-0 and for us to dust them – but cricket fans want it to be tight'**\
-`The Australian has endured a relatively lean two-year spell, but is scoring runs heavily in domestic cricket and targeting an Ashes impact`\
-https://nytimes.com/athletic/6697515/2025/10/16/marnus-labuschagne-australia-ashes-interview/
-
-**Cifuentes interview: ‘When I arrived at Leicester, there was a lot of uncertainty’**\
-`After Leicester City’s two Premier League relegations within three seasons, Cifuentes stepped into a club trying to reset and rebuild`\
-https://nytimes.com/athletic/6718745/2025/10/16/marti-cifuentes-leicester-city-championship-interview/
-
-**Eberechi who? Pino and Sarr have clicked and have potential to wreak havoc**\
-`Eze’s exit had the potential to cause concern but Pino’s impact and Sarr’s continued form point to an efficient and formidable pairing`\
-https://nytimes.com/athletic/6694152/2025/10/16/crystal-palace-pino-sarr-no-10s-glasner/
-
-**Arne Slot has a specific issue to fix in Liverpool's defence**\
-`Not only do the Premier League champions need to defend back-post crosses better, they need to cut them out at source from the opposite side`\
-https://nytimes.com/athletic/6715810/2025/10/16/liverpool-back-post-defending-analysis/
 
