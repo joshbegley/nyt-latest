@@ -1,3 +1,15 @@
+**How to stream the Utah Jazz in 2025-26: Schedule, blackout rules and new broadcasters**\
+`Here's how to watch all 82 Utah Jazz games this season. Under Ryan Smith, the franchise has a different setup for regional telecasts.`\
+https://nytimes.com/athletic/6720914/2025/10/16/utah-jazz-ace-bailey-2025-26-how-to-watch/
+
+**A Love of Watches Rather than Brand Names**\
+`Now in its 10th year, the Windup Watch Fair has become a go-to destination for independent brands and watch enthusiasts, with nary a Rolex in sight.`\
+https://nytimes.com/2025/10/16/style/windup-watch-fair-new-york.html
+
+**London’s Art Scene Is a Mess of Contradictions. That’s the Appeal.**\
+`Britain’s economy has slowed recently, and sales at blue-chip galleries are down. But among young artists and emerging dealers, the mood is upbeat.`\
+https://nytimes.com/2025/10/16/arts/frieze-london.html
+
 **Send Us Your Games-Related Halloween Costume**\
 `Submit a photo of your New York Times Games outfit for a chance to be featured on our social media channels.`\
 https://nytimes.com/2025/10/16/crosswords/halloween-games-costumes.html

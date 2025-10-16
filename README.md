@@ -1,3 +1,11 @@
+**Leeds' James ahead of schedule with ankle injury, could be fit to face Burnley**\
+`Manager Daniel Farke had previously expected the 27-year-old to be unavailable until after the November international break.`\
+https://nytimes.com/athletic/6722701/2025/10/16/dan-james-leeds-injury-latest/
+
+**Steele signs new Brighton contract until 2027**\
+`Steele joined Brighton from Sunderland in July 2018 and has played 60 times for the south-coast club.`\
+https://nytimes.com/athletic/6722700/2025/10/16/jason-steele-brighton-contract/
+
 **How to stream the Utah Jazz in 2025-26: Schedule, blackout rules and new broadcasters**\
 `Here's how to watch all 82 Utah Jazz games this season. Under Ryan Smith, the franchise has a different setup for regional telecasts.`\
 https://nytimes.com/athletic/6720914/2025/10/16/utah-jazz-ace-bailey-2025-26-how-to-watch/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6721768/2025/10/16/chris-kreider-hot-start-anaheim-
 **Luka, LeBron and the Lake Show: How to stream the 2025-26 Los Angeles Lakers season**\
 `The latest Lakers harbor title hopes and attract all kinds of national attention. Once again, it is showtime along South Figueroa Street.`\
 https://nytimes.com/athletic/6718022/2025/10/16/lakers-luka-doncic-lebron-james-nba-prime-peacock-how-to-watch/
-
-**Renting a San Francisco Apartment in the A.I. Boom? Good Luck.**\
-`The artificial intelligence gold rush has pushed San Francisco’s residential rents up by the most in the nation, as A.I. companies lease apartments and offer rent stipends to employees.`\
-https://nytimes.com/2025/10/16/technology/san-francisco-rent-ai-boom.html
-
-**Bruce Pearl's new gig: Headlining TNT's new college basketball studio show**\
-`Just-retired coach will be joined by Jalen Rose and Jamal Mashburn as network bulks up its college basketball coverage.`\
-https://nytimes.com/athletic/6721015/2025/10/16/bruce-pearl-tnt-college-basketball-show/
 
