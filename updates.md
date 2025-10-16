@@ -1,3 +1,7 @@
+**Israel Honors Oct. 7 Victims**\
+`Israel paid tribute to its victims of the war with Hamas with a national day of commemoration on the date that marks, in the Jewish calendar, two years since the Hamas-led Oct. 7 attacks.`\
+https://nytimes.com/video/world/middleeast/100000010461922/israel-war-gaza-victims.html
+
 **What Teenagers Are Saying About Gaming**\
 `Students react to an article about whether the increasing amount of time boys spend playing video games is a problem.`\
 https://nytimes.com/2025/10/16/learning/what-teenagers-are-saying-about-gaming.html
