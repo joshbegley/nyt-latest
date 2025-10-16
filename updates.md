@@ -1,3 +1,23 @@
+**Subsidizing Fossil Fuels, but Not Clean Energy**\
+`The Trump administration has sharply cut tax credits for renewable energy, while it adds to longstanding subsidies for fossil fuels.`\
+https://nytimes.com/2025/10/16/climate/subsidizing-fossil-fuels-but-not-clean-energy.html
+
+**Poison Cigars, Propaganda and Coups Litter C.I.A. History in Latin America**\
+`For much of the 20th century, the C.I.A. devised plots to overthrow governments, kill high-profile leaders or arm dissident groups.`\
+https://nytimes.com/2025/10/16/world/americas/cia-latin-america-coups.html
+
+**Judge Orders FEMA to Release $34 Million for New York Subway Security**\
+`The administration has refused to release the money because New York is a so-called sanctuary city. It was “a blatant violation of the law,” the judge wrote.`\
+https://nytimes.com/2025/10/16/nyregion/mta-fema-terror-money-order.html
+
+**Penn Becomes Latest University to Reject White House Deal**\
+`Penn is the third school to say no to the Trump administration’s offer of federal funding preferences in exchange for complying with certain requirements, such as protecting conservative voices.`\
+https://nytimes.com/2025/10/16/us/university-of-pennsylvania-rejects-white-house-deal.html
+
+**NFL best bets Week 7: Why the Steelers have such a good matchup vs. Bengals**\
+`Austin Mock's NFL Projection Model is 20-12 this season in its best bets. Can Week 7 keep the strong season going?`\
+https://nytimes.com/athletic/6723459/2025/10/16/nfl-best-bets-week-7-steelers-texans-buccaneers/
+
 **JB Pritzker Won $1.4 Million Playing Blackjack in Las Vegas**\
 `The Illinois governor reported the winnings on his 2024 tax returns, which his campaign released this week. “I was incredibly lucky,” he said.`\
 https://nytimes.com/2025/10/16/us/jb-pritzker-blackjack-winnings-charity.html
