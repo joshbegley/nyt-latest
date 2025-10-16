@@ -1,3 +1,23 @@
+**How the Pentagon Is Blocking Out News Organizations**\
+`The new rules codify strict limitations on access and raise the prospect of punishment for requesting information on matters of public interest.`\
+https://nytimes.com/interactive/2025/10/15/business/media/pentatgon-press-rules.html
+
+**Trump Administration Decimates Birth Control Office in Layoffs**\
+`The layoffs have raised fears that the administration could be effectively ending an initiative that provides contraception for millions of low-income women.`\
+https://nytimes.com/2025/10/15/us/politics/trump-birth-control-layoffs.html
+
+**N.Y. Democrats Urge Hochul to Reject Pipeline Over Climate Concerns**\
+`Ten members of Congress wrote in a letter to the governor that a gas pipeline proposed for New York Harbor runs counter to the state’s emissions reductions goals.`\
+https://nytimes.com/2025/10/15/nyregion/house-democrats-hochul-gas-pipeline-nyc.html
+
+**NFLPA shares player 'outrage' with NFL over field for Steelers-Browns: Source**\
+`Sunday's game was scheduled to be the last one played on the surface, according to a Steelers spokesperson.`\
+https://nytimes.com/athletic/6721089/2025/10/15/nflpa-nfl-field-steelers-browns-complaints/
+
+**On Fox, Mamdani Speaks Directly to Trump: I Won’t Be a Mayor Like Adams**\
+`The leading mayoral candidate in New York City defended his positions while parrying questions about the Israel-Gaza war.`\
+https://nytimes.com/2025/10/15/nyregion/mamdani-fox-interview.html
+
 **Kings, Keegan Murray agree to five-year, $140M rookie-scale contract extension**\
 `In the 2022 NBA Draft, the Kings took a chance on Keegan Murray. This week, both parties agreed to a long-term contract extension.`\
 https://nytimes.com/athletic/6721112/2025/10/15/kings-keegan-murray-contract-extension-nba/

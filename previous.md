@@ -1,8 +1,24 @@
+**How the Pentagon Is Blocking Out News Organizations**\
+`The new rules codify strict limitations on access and raise the prospect of punishment for requesting information on matters of public interest.`\
+https://nytimes.com/interactive/2025/10/15/business/media/pentatgon-press-rules.html
+
+**Trump Administration Decimates Birth Control Office in Layoffs**\
+`The layoffs have raised fears that the administration could be effectively ending an initiative that provides contraception for millions of low-income women.`\
+https://nytimes.com/2025/10/15/us/politics/trump-birth-control-layoffs.html
+
+**N.Y. Democrats Urge Hochul to Reject Pipeline Over Climate Concerns**\
+`Ten members of Congress wrote in a letter to the governor that a gas pipeline proposed for New York Harbor runs counter to the state’s emissions reductions goals.`\
+https://nytimes.com/2025/10/15/nyregion/house-democrats-hochul-gas-pipeline-nyc.html
+
+**NFLPA shares player 'outrage' with NFL over field for Steelers-Browns: Source**\
+`Sunday's game was scheduled to be the last one played on the surface, according to a Steelers spokesperson.`\
+https://nytimes.com/athletic/6721089/2025/10/15/nflpa-nfl-field-steelers-browns-complaints/
+
 **Kings, Keegan Murray agree to five-year, $140M rookie-scale contract extension**\
 `In the 2022 NBA Draft, the Kings took a chance on Keegan Murray. This week, both parties agreed to a long-term contract extension.`\
 https://nytimes.com/athletic/6721112/2025/10/15/kings-keegan-murray-contract-extension-nba/
 
-**In Fox News Interview, Mamdani Speaks Directly to Trump**\
+**On Fox, Mamdani Speaks Directly to Trump: I Won’t Be a Mayor Like Adams**\
 `The leading mayoral candidate in New York City defended his positions while parrying questions about the Israel-Gaza war.`\
 https://nytimes.com/2025/10/15/nyregion/mamdani-fox-interview.html
 
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6720961/2025/10/15/champions-league-uswnt-lily-yoha
 **In Naomi Girma’s absence, Emma Hayes continues to experiment with the USWNT defense**\
 `For the third time this year, the USWNT roster will not include Girma, who continues to recover from a calf injury. `\
 https://nytimes.com/athletic/6720890/2025/10/15/naomi-girmas-absence-emma-hayes-uswnt-defense/
-
-**How to watch Buccaneers vs. Lions: Time, TV, streaming**\
-`Find out how to watch the Tampa Bay Buccaneers play the Detroit Lions, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6721047/2025/10/15/buccaneers-vs-lions-stream-how-to-watch-oct-20/
-
-**How to watch Brewers at Dodgers: Game 3 Time, TV, streaming**\
-`Find out how to watch the Milwaukee Brewers play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6721004/2025/10/15/brewers-vs-dodgers-stream-how-to-watch-oct-16/
-
-**Gary Bettman expresses concern that NHLers could compete on untested ice at Milan Olympics**\
-`"We've had a concern for the last two years on the progress of the rink," Bettman said after the NHL Board of Governors meeting Wednesday.`\
-https://nytimes.com/athletic/6720950/2025/10/15/olympic-hockey-nhl-untested-ice-arena/
-
-**Trump Says $16 Billion Hudson River Tunnel Project Is ‘Terminated’**\
-`It was not immediately clear what the president meant and whether the project, known as Gateway, had already been stripped of federal funding.`\
-https://nytimes.com/2025/10/15/nyregion/trump-gateway-cancellation.html
 
