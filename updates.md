@@ -1,3 +1,19 @@
+**Super PACs Tied to Cuomo Buoyed by Million-Dollar Donations**\
+`Three separate $1 million donations were sent to two super PACs trying to damage the candidacy of Zohran Mamdani, the Democratic nominee.`\
+https://nytimes.com/2025/10/16/nyregion/cuomo-super-pac-nyc-mayoral-election-mamdani.html
+
+**Wisconsin Man Used TikTok to Call for the Killing of ICE Agents, U.S. Says**\
+`Andrew Stanton, 38, was charged with threatening federal law enforcement officers, whom he said should be shot. He pleaded not guilty and remains in custody.`\
+https://nytimes.com/2025/10/16/us/wisconsin-man-tiktok-threats-ice.html
+
+**Packers' Micah Parsons sounds off on NFL officials: 'I might get a fine for this'**\
+`Parsons has a significant gripe with how referees officiate the offensive side of the ball versus the defensive side.`\
+https://nytimes.com/athletic/6724200/2025/10/16/micah-parsons-packers-referee-criticism/
+
+**Curtis Sliwa Will Debate Mamdani and Cuomo for the First Time**\
+`The Republican candidate has had a high profile in New York since he founded the Guardian Angels decades ago. He is running last in the polls.`\
+https://nytimes.com/2025/10/16/nyregion/curtis-sliwa-debate-mamdani-cuomo.html
+
 **Blue Jays plan to remove Anthony Santander from playoff roster, pending MLB approval: Sources**\
 `The Toronto Blue Jays will be without their biggest offseason acquisition for the rest of the postseason.`\
 https://nytimes.com/athletic/6724217/2025/10/16/blue-jays-plan-to-remove-anthony-santander-mlb-approval/
