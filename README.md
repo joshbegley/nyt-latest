@@ -1,3 +1,7 @@
+**Alex Tuch won't let contract talks distract from trying to turn Sabres around on the ice**\
+`The risk of leaving Tuch unsigned into the season is that each rough stretch for the Sabres raises questions.`\
+https://nytimes.com/athletic/6723919/2025/10/16/alex-tuch-contract-sabres-schedule-stats/
+
 **At Phillies' wake, hints of the path they could take in a critical offseason**\
 `Ideally, they hope to retain Kyle Schwarber and J.T. Realmuto, remake their outfield and augment their bullpen — all while injecting youth.`\
 https://nytimes.com/athletic/6723940/2025/10/16/phillies-offseason-signings-trades-2026-roster/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6724217/2025/10/16/blue-jays-plan-to-remove-anthony
 **The 3 mayoral debaters have different styles and different goals.**\
 `By Benjamin Oreskes`\
 https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/the-3-mayoral-debaters-have-different-styles-and-different-goals
-
-**UNC football GM Michael Lombardi met with Saudi Arabia about potential investment**\
-`Lombardi’s trip did not culminate in any sort of agreement between the UNC football program and the PIF.`\
-https://nytimes.com/athletic/6723173/2025/10/16/mike-lombardi-unc-football-saudi-arabia-fundraising/
 
