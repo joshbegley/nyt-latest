@@ -1,3 +1,7 @@
+**Steelers vs. Bengals Thursday Night Football betting: Player prop, picks and a parlay**\
+`Brad Evans scours sportsbooks for the best bets ahead for Thursday Night Football's matchup between the Bengals and Steelers. `\
+https://nytimes.com/athletic/6719192/2025/10/16/steelers-bengals-thursday-night-footbal-betting-player-prop-expert-picks-parlay/
+
 **Trump Considers Ground Strikes in Venezuela**\
 `President Trump said he had authorized covert C.I.A. action in Venezuela and was considering ground strikes. Venezuela’s foreign minister called the American actions a policy of aggression.`\
 https://nytimes.com/video/world/americas/100000010461462/trump-covert-cia-action-venezuela.html

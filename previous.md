@@ -1,3 +1,7 @@
+**Steelers vs. Bengals Thursday Night Football betting: Player prop, picks and a parlay**\
+`Brad Evans scours sportsbooks for the best bets ahead for Thursday Night Football's matchup between the Bengals and Steelers. `\
+https://nytimes.com/athletic/6719192/2025/10/16/steelers-bengals-thursday-night-footbal-betting-player-prop-expert-picks-parlay/
+
 **Trump Considers Ground Strikes in Venezuela**\
 `President Trump said he had authorized covert C.I.A. action in Venezuela and was considering ground strikes. Venezuela’s foreign minister called the American actions a policy of aggression.`\
 https://nytimes.com/video/world/americas/100000010461462/trump-covert-cia-action-venezuela.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/16/nyregion/cuomo-debate-mamdani.html
 **Mamdani Is Making Overtures to Jewish Leaders. Some Are Listening.**\
 `Zohran Mamdani is stepping up his Jewish outreach, as he holds private meetings with rabbis and other leaders across New York City who oppose his stance on Israel.`\
 https://nytimes.com/2025/10/16/nyregion/mandani-jews-israel-palestine.html
-
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/10/16/crosswords/spelling-bee-forum.html
 
