@@ -1,40 +1,40 @@
-**TAFC: Real Madrid and a controversial ownership plan. Plus: Pulisic injury debate**\
-`Today in TAFC: We explain why Real Madrid might be about to change its ownership structure. Plus: fact-checking Pochettino's comments.`\
-https://nytimes.com/athletic/6722099/2025/10/16/real-madrid-socios-sale-perez/
+**Chicagoans Resist I.C.E. Agents**\
+`Immigration agents are using aggressive tactics. Residents of the sanctuary city are trying to resist them.`\
+https://nytimes.com/2025/10/16/us/chicago-ice-raids-ressit.html
 
-**After making the big trade, do the Cubs even know what Kyle Tucker wants as a free agent?**\
-`In listening to separate end-of-season reflections from Tucker and president of baseball operations Jed Hoyer, both sides sound detached.`\
-https://nytimes.com/athletic/6721243/2025/10/16/chicago-cubs-kyle-tucker-free-agency/
+**Israel Marks Two Years Since Oct. 7 as a Fragile Cease-Fire Holds**\
+`Ceremonies took place on Thursday to commemorate two years since the surprise attack on southern Israel, according to the Jewish calendar.`\
+https://nytimes.com/2025/10/16/world/middleeast/israel-october-7-attack-hamas-ceasefire.html
 
-**WNBA free agency: Which players could make the biggest moves?**\
-`The WNBA will enter its wildest free agency period in history. Will stars like Jonquel Jones and Kelsey Mitchell make moves or stay put?`\
-https://nytimes.com/athletic/6720985/2025/10/16/2025-wnba-free-agency-moves/
+**How the NBA has evolved into a 'media and technology company'**\
+`From player tracking to autonomous officiating to using AI for scheduling, the NBA has begun to think of itself in a different light.`\
+https://nytimes.com/athletic/6720577/2025/10/16/nba-media-technology-artificial-intelligence/
 
-**The NFC is wide open. Why our projection model says 12 teams still have real playoff hopes**\
-`Entering Week 7, 12 NFC teams still have at least a 10 percent chance to make the playoffs, according to Austin Mock's NFL Projection Model.`\
-https://nytimes.com/athletic/6719923/2025/10/16/nfc-playoffs-projections-eagles/
+**Texas A&M's third-down defense is historically good. Who else wins in these crucial situations?**\
+`The three teams that have the shortest average distance to go on third downs offensively — Utah, Indiana and Missouri — are a combined 16-2.`\
+https://nytimes.com/athletic/6720416/2025/10/16/texas-am-defense-third-down-success/
 
-**Red Wings' unsung contributions spark early win streak: Observations**\
-`The Red Wings' 4-1 win over the Panthers was fueled by contributions outside the typical spotlight.`\
-https://nytimes.com/athletic/6721596/2025/10/16/red-wings-panthers-mason-appleton-win-streak/
+**'Trouble with the snap' 10 years later, an oral history: 'It felt psychedelic'**\
+`"Most people I’ve talked to about it put it up there with the wackiest things they’ve ever seen." — ABC announcer Sean McDonough `\
+https://nytimes.com/athletic/6717831/2025/10/16/trouble-with-the-snap-michigan-state-michigan-punt/
 
-**What we saw in Sabres' first win of the season: Josh Doan, Zach Benson spark offense**\
-`Benson returned in style, and Doan shined again as the Sabres beat the Senators 8-4 and earned their first win.`\
-https://nytimes.com/athletic/6721753/2025/10/16/sabres-senators-josh-doan-zach-benson-win/
+**What's Trending in the NFL: Truths we knew before the season that have manifested themselves**\
+`It's no surprise that the Cowboys defense has been bad, though it's probably worse than expected.`\
+https://nytimes.com/athletic/6720212/2025/10/16/nfl-trends-week-7-cowboys-defense-truths/
 
-**Shane Bieber lifts Blue Jays off the ALCS mat, delivering the start they traded for**\
-`In the first, nobody but Bieber was aware how locked in he was. Over six innings, 46,471 Mariners fans learned.`\
-https://nytimes.com/athletic/6721878/2025/10/16/blue-jays-mariners-alcs-game-3-shane-bieber-start/
+**The 10 smallest teams that can still qualify for the World Cup**\
+`After Cape Verde's success this week, which other outsiders could yet reach next summer's tournament?`\
+https://nytimes.com/athletic/6718802/2025/10/16/world-cup-smallest-countries-qualification/
 
-**China Fans Patriotic Sentiment as Trade War With U.S. Heats Up**\
-`Chinese state media is rallying the public and posting old propaganda footage, but officials are also careful to leave room for talks with President Trump.`\
-https://nytimes.com/2025/10/16/world/asia/china-nationalism-trade-war.html
+**What we've learned about the Penguins this season: The good, bad and ugly**\
+`Breaking down the good, the bad and the ugly of what we've learned through the first week of the Penguins' 2025-26 season.`\
+https://nytimes.com/athletic/6720482/2025/10/16/penguins-2025-26-nhl-season-evgeni-malkin/
 
-**Chiefs' Travis Kelce is showing renewed burst. He credits an old NBA star**\
-`Chiefs quarterback Patrick Mahomes says Kelce's 2025 production began with a key offseason change.`\
-https://nytimes.com/athletic/6719756/2025/10/16/chiefs-travis-kelce-lions-hakeem-olajuwon/
+**How a soft-spoken NHL star uses his platform to raise awareness for Parkinson's**\
+`Kyle Connor has had a transformative year, but his biggest impact may be off the ice as he tries to honor one of his late father's dreams.`\
+https://nytimes.com/athletic/6719711/2025/10/16/kyle-connor-winnipeg-jets-parkinsons-disease/
 
-**Will Steelers run away with division? Does Mike Tomlin have a gripe? AFC North Whiparound**\
-`Could Pittsburgh have the division locked up by early December? Plus, how aggressive will each team be before the Nov. 4 trade deadline?`\
-https://nytimes.com/athletic/6720363/2025/10/16/bengals-browns-steelers-ravens-afc-north/
+**NFL trade deadline 2025 players to watch include Mark Andrews, Trey Hendrickson and more**\
+`With the Ravens floundering at 1-5 and the Bengals missing Joe Burrow, Andrews and Hendrickson could be among those in high demand.`\
+https://nytimes.com/athletic/6719151/2025/10/16/nfl-trade-deadline-2025-mark-andrews-trey-hendrickson/
 
