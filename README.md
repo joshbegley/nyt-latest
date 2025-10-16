@@ -1,3 +1,7 @@
+**Carbon Dioxide Levels Jumped by a Record Amount, U.N. Says**\
+`Surging emissions from wildfires may have been behind the increase, which was the largest since modern measurements began more than half a century ago.`\
+https://nytimes.com/2025/10/16/climate/carbon-dioxide-emissions-record-jump.html
+
 **Truckers Are Struggling. Trump’s New Tariff Could Make Things Worse.**\
 `A 25 percent levy on heavy-duty trucks and parts is set to take effect next month. Companies have few details on the policy.`\
 https://nytimes.com/2025/10/16/business/trump-tariff-trucks-parts.html
@@ -9,10 +13,6 @@ https://nytimes.com/2025/10/16/us/politics/jon-ossoff-shutdown.html
 **Delta and United Are Leaving Other Airlines Behind**\
 `Delta Air Lines and United Airlines have accounted for most of the industry’s profits since 2022. Their appeal to wealthy travelers could become a liability if the economy weakens.`\
 https://nytimes.com/2025/10/16/business/delta-united-airlines-profits.html
-
-**Carbon Dioxide Levels Jumped by a Record Amount, U.N. Says**\
-`Surging emissions from wildfires may have been behind the increase, which was the largest since modern measurements began more than half a century ago.`\
-https://nytimes.com/2025/10/16/climate/carbon-dioxide-emissions-record-jump.html
 
 **The Internet’s Most Famous Pastry Chef Is Going Full Wonka**\
 `Cedric Grolet has built a dessert empire in just a few short years. Crowds are already swarming his new chocolate shop in Paris.`\

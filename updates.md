@@ -1,3 +1,7 @@
+**Truckers Are Struggling. Trump’s New Tariff Could Make Things Worse.**\
+`A 25 percent levy on heavy-duty trucks and parts is set to take effect next month. Companies have few details on the policy.`\
+https://nytimes.com/2025/10/16/business/trump-tariff-trucks-parts.html
+
 **Ossoff Walks Political Tightrope in Georgia as Shutdown Drags On**\
 `For Jon Ossoff, the most endangered Senate Democrat, the shutdown fight could rally support among some voters, but risks alienating others in a state President Trump won in 2024.`\
 https://nytimes.com/2025/10/16/us/politics/jon-ossoff-shutdown.html
