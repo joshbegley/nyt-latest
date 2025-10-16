@@ -1,3 +1,15 @@
+**Johnson & Johnson Sued in U.K. Over Baby Powder Cancer Claims**\
+`More than 3,000 people in Britain have joined a lawsuit accusing the company of knowing that its baby powder contained carcinogenic fibers, including asbestos.`\
+https://nytimes.com/2025/10/16/business/johnson-johnson-talc-lawsuit-uk.html
+
+**How FEMA Is Pushing Communities to Fend for Themselves**\
+`President Trump has said he wants to eventually shift the burden of disaster relief and recovery onto states. It’s already happening.`\
+https://nytimes.com/2025/10/16/climate/fema-disaster-recovery-trump.html
+
+**A Love of Watches Rather Than Brand Names**\
+`Now in its 10th year, the Windup Watch Fair has become a go-to destination for independent brands and watch enthusiasts, with nary a Rolex in sight.`\
+https://nytimes.com/2025/10/16/style/windup-watch-fair-new-york.html
+
 **Blackhawks power rankings: Nazar's flash, Reichel's redemption and some sweet jackets**\
 `There's nothing like putting up eight goals on the road against a hated division rival to send the vibes soaring.`\
 https://nytimes.com/athletic/6721790/2025/10/16/blackhawks-power-rankings-frank-nazar-lukas-reichel/
