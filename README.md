@@ -1,6 +1,10 @@
+**Oscar Wilde Gets His Library Card Back, 125 Years After His Death**\
+`The Irish writer was barred in 1895 after being convicted of gross indecency. On Thursday, the British Library will hand over a reinstated library card to his grandson.`\
+https://nytimes.com/2025/10/16/arts/oscar-wilde-british-library-card.html
+
 **Is ‘The Morning Show’ a Crystal Ball for Cable News?**\
 `The Apple TV series set in a fictional newsroom seems to be particularly prescient at the moment.`\
-https://nytimes.com/2025/10/16/style/is-the-morning-show-a-crystal-ball-for-cable-news.html
+https://nytimes.com/2025/10/16/style/the-morning-show-apple-tv-season-4.html
 
 **WNBA season is most viewed ever on ESPN networks**\
 `ESPN's networks aired the entire postseason (24 games), with games averaging 1.2 million viewers each.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6723244/2025/10/16/juventus-uefa-financial-rules/
 **Stephen A. Smith at political town hall: 'I don't think Washington understands how ticked off we are'**\
 `The ESPN "First Take" host, who has flirted with a presidential run in 2028, stole the show at a cable news political town hall event.`\
 https://nytimes.com/athletic/6722672/2025/10/16/stephen-a-smith-town-hall/
-
-**How Raila Odinga Symbolized the Good and Bad of Kenyan Politics**\
-`He was one of the most pivotal public figures in Kenya. He died this week after fighting against tribalism for decades.`\
-https://nytimes.com/2025/10/16/world/asia/odinga-symbol-kenyan-politics.html
 
