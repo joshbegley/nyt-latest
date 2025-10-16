@@ -1,3 +1,11 @@
+**‘Mr. Scorsese’ Review: A Captivating and Charismatic Profile**\
+`Rebecca Miller’s five-part documentary series balances her esteem for the director with a clear eye toward his struggles.`\
+https://nytimes.com/2025/10/16/movies/mr-scorsese-review.html
+
+**From Epstein’s Chief Accuser, a Memoir Both Sad and Devastating**\
+`Virginia Roberts Giuffre’s posthumous “Nobody’s Girl” doesn’t break political news, but might break your heart.`\
+https://nytimes.com/2025/10/16/books/review/virginia-roberts-giuffre-nobodys-girl-memoir.html
+
 **Midseason Hope-O-Meter! How are Michigan and Ohio State fans feeling about The Game?**\
 `Ohio State is 6-0, Michigan is 4-2 and confidence in the rivalry is flipping despite the Wolverines' four wins in a row over the Buckeyes.`\
 https://nytimes.com/athletic/6720793/2025/10/16/michigan-ohio-state-football-rivalry-predictions-2025/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6720212/2025/10/16/nfl-trends-week-7-cowboys-defens
 **The 10 smallest teams that can still qualify for the World Cup**\
 `After Cape Verde's success this week, which other outsiders could yet reach next summer's tournament?`\
 https://nytimes.com/athletic/6718802/2025/10/16/world-cup-smallest-countries-qualification/
-
-**What we've learned about the Penguins this season: The good, bad and ugly**\
-`Breaking down the good, the bad and the ugly of what we've learned through the first week of the Penguins' 2025-26 season.`\
-https://nytimes.com/athletic/6720482/2025/10/16/penguins-2025-26-nhl-season-evgeni-malkin/
-
-**How a soft-spoken NHL star uses his platform to raise awareness for Parkinson's**\
-`Kyle Connor has had a transformative year, but his biggest impact may be off the ice as he tries to honor one of his late father's dreams.`\
-https://nytimes.com/athletic/6719711/2025/10/16/kyle-connor-winnipeg-jets-parkinsons-disease/
 
