@@ -1,6 +1,10 @@
 **Susan Stamberg, a Longtime Voice of NPR, Is Dead at 87**\
-`In 1972 she became the first woman to anchor a national evening news broadcast. She retired this summer after 50 year on the air.`\
+`In 1972 she became the first woman to anchor a national evening news broadcast. She retired this summer after 50 years on the air.`\
 https://nytimes.com/2025/10/16/business/media/susan-stamberg-dead.html
+
+**What to Know About the Moderators of the First N.Y.C. Mayoral Debate**\
+`David Ushery and Melissa Russo of WNBC-TV, Rosarina Bretón of Telemundo and Sally Goldenberg of Politico New York are moderating Thursday’s debate.`\
+https://nytimes.com/2025/10/16/nyregion/nyc-mayoral-debate-moderators.html
 
 **John Bolton Is Indicted**\
 `Also, Trump and Putin plan to meet. Here’s the latest at the end of Thursday.`\
@@ -29,8 +33,4 @@ https://nytimes.com/2025/10/16/nyregion/zohran-mamdani-islamophobic-attacks-hama
 **Trinity Rodman to miss USWNT camp with injury, hopeful for return before end of NWSL season**\
 `Rodman is set for a three-week injury rehabilitation process before a reevaluation of the right knee injury`\
 https://nytimes.com/athletic/6724060/2025/10/16/trinity-rodman-uswnt-spirit-injury-update/
-
-**A Photographer’s Unconventional Vision of Pregnancy**\
-`Naima Green discusses growing up in Harlem and embracing the discomfort of a self-portrait.`\
-https://nytimes.com/2025/10/16/t-magazine/naima-green-international-center-photography.html
 
