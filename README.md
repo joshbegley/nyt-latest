@@ -1,3 +1,11 @@
+**Police request Maccabi Tel Aviv fans not be allowed to attend Villa game**\
+`When Maccabi Tel Aviv travelled to face Ajax last year, 62 people were arrested and five hospitalised after violent clashes.`\
+https://nytimes.com/athletic/6722327/2025/10/16/aston-villa-maccabi-tel-aviv-uefa/
+
+**College football picks ATS: Another test for Bama, the end of Vandy's streak and more**\
+`With five Top 25 matchups in Week 8, there is plenty to watch for. Our staff picks the biggest games against the spread.`\
+https://nytimes.com/athletic/6719644/2025/10/16/college-football-picks-spread-week-8-alabama-vanderbilt-notre-dame/
+
 **What Your Hair Can Tell You About Your Health**\
 `More than just dead matter, hair is an archive of your body’s secrets.`\
 https://nytimes.com/2025/10/16/well/hair-health.html
@@ -6,7 +14,7 @@ https://nytimes.com/2025/10/16/well/hair-health.html
 `Welcome to The Windup, The Athletic's MLB newsletter.`\
 https://nytimes.com/athletic/6721920/2025/10/16/blue-jays-mariners-game-3-the-windup/
 
-**Where Does the Israel-Hamas Cease-fire Stand?**\
+**Where Does the Israel-Hamas Cease-Fire Stand?**\
 `Unresolved issues — mainly over the exchange of hostage and prisoner remains — threaten to destabilize the fragile agreement.`\
 https://nytimes.com/2025/10/16/world/middleeast/israel-hamas-gaza-cease-fire.html
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/16/business/rto-young-worker-attitude.html
 **Carbon Dioxide Levels Jumped by a Record Amount, U.N. Says**\
 `Surging emissions from wildfires may have been behind the increase, which was the largest since modern measurements began more than half a century ago.`\
 https://nytimes.com/2025/10/16/climate/carbon-dioxide-emissions-record-jump.html
-
-**Truckers Are Struggling. Trump’s New Tariff Could Make Things Worse.**\
-`A 25 percent levy on heavy-duty trucks and parts is set to take effect next month. Companies have few details on the policy.`\
-https://nytimes.com/2025/10/16/business/trump-tariff-trucks-parts.html
-
-**Ossoff Walks Political Tightrope in Georgia as Shutdown Drags On**\
-`For Jon Ossoff, the most endangered Senate Democrat, the shutdown fight could rally support among some voters, but risks alienating others in a state President Trump won in 2024.`\
-https://nytimes.com/2025/10/16/us/politics/jon-ossoff-shutdown.html
 
