@@ -1,3 +1,7 @@
+**Carter Hart agrees to join Golden Knights organization: Why he chose Vegas, and what he brings**\
+`One of five 2018 World Juniors players found not guilty of sexual assault in July, Hart will begin his comeback on a professional tryout.`\
+https://nytimes.com/athletic/6528138/2025/10/16/carter-hart-signs-golden-knights-analysis/
+
 **Hacked Airport P.A. Systems Broadcast Anti-Trump and Pro-Hamas Messages**\
 `The hacks at four North American airports raised fresh concerns over the security of noncritical but highly visible airport infrastructure. The airports said the disruption was minimal.`\
 https://nytimes.com/2025/10/16/us/airports-hacked-us-canada-trump-hamas.html
