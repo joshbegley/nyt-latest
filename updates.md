@@ -1,3 +1,11 @@
+**Carbon Dioxide Levels Jumped by a Record Amount, U.N. Says**\
+`Surging emissions from wildfires may have been behind the increase, which was the largest since modern measurements began more than half a century ago.`\
+https://nytimes.com/2025/10/16/climate/carbon-dioxide-emissions-record-jump.html
+
+**The Internet’s Most Famous Pastry Chef Goes Full Wonka**\
+`Cedric Grolet has built a dessert empire in just a few short years. Crowds are already swarming his new chocolate shop.`\
+https://nytimes.com/2025/10/16/dining/cedric-grolet-la-chocolaterie-pastry-chef.html
+
 **The Bounce: Netflix gets a 'golden' NBA story. Plus, we preview the Knicks and Nuggets**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6722782/2025/10/16/netflix-gets-a-golden-nba-story-plus-we-preview-the-knicks-and-nuggets/

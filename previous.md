@@ -1,3 +1,11 @@
+**Carbon Dioxide Levels Jumped by a Record Amount, U.N. Says**\
+`Surging emissions from wildfires may have been behind the increase, which was the largest since modern measurements began more than half a century ago.`\
+https://nytimes.com/2025/10/16/climate/carbon-dioxide-emissions-record-jump.html
+
+**The Internet’s Most Famous Pastry Chef Goes Full Wonka**\
+`Cedric Grolet has built a dessert empire in just a few short years. Crowds are already swarming his new chocolate shop.`\
+https://nytimes.com/2025/10/16/dining/cedric-grolet-la-chocolaterie-pastry-chef.html
+
 **The Bounce: Netflix gets a 'golden' NBA story. Plus, we preview the Knicks and Nuggets**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6722782/2025/10/16/netflix-gets-a-golden-nba-story-plus-we-preview-the-knicks-and-nuggets/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6722394/2025/10/16/james-franklin-firing-penn-state
 **Johnson & Johnson Sued in U.K. Over Baby Powder Cancer Claims**\
 `More than 3,000 people in Britain have joined a lawsuit accusing the company of knowing that its baby powder contained carcinogenic fibers, including asbestos.`\
 https://nytimes.com/2025/10/16/business/johnson-johnson-talc-lawsuit-uk.html
-
-**How FEMA Is Pushing Communities to Fend for Themselves**\
-`President Trump has said he wants to eventually shift the burden of disaster relief and recovery onto states. It’s already happening.`\
-https://nytimes.com/2025/10/16/climate/fema-disaster-recovery-trump.html
-
-**Blackhawks power rankings: Nazar's flash, Reichel's redemption and some sweet jackets**\
-`There's nothing like putting up eight goals on the road against a hated division rival to send the vibes soaring.`\
-https://nytimes.com/athletic/6721790/2025/10/16/blackhawks-power-rankings-frank-nazar-lukas-reichel/
 
