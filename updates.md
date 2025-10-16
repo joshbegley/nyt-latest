@@ -1,3 +1,7 @@
+**What’s So Great About ‘Slow Horses’? This Scene Says It All.**\
+`The British spy show owes its sarcasm and wit to Mick Herron’s novels. Our critic A.O. Scott breaks down a few sentences from Herron’s latest, “Clown Town.”`\
+https://nytimes.com/interactive/2025/10/16/books/slow-horses-clown-town-mick-herron.html
+
 **New York City Sues U.S. After School Aid Is Cut Over Gender Policies**\
 `The Trump administration argued that the school system is violating civil rights laws because of policies on transgender and nonbinary students.`\
 https://nytimes.com/2025/10/16/nyregion/new-york-transgender-trump-schools-grants.html
