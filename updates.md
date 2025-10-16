@@ -1,3 +1,15 @@
+**Read the Indictment of John R. Bolton**\
+`The 18-count indictment accused Mr.`\
+https://nytimes.com/interactive/2025/10/16/us/politics/Bolton-indictment.html
+
+**Trump Administration Plans to Pay ICE Agents During Shutdown**\
+`The move, funded by the recently enacted tax package, is Mr. Trump’s latest effort to pay some federal workers even though Congress has not approved a spending deal.`\
+https://nytimes.com/2025/10/16/business/trump-ice-pay.html
+
+**John Bolton Indicted Over Handling of Classified Information**\
+`Mr. Bolton, a Trump aide turned critic, is part of a string of presidential foes to become prosecutorial targets. But his case gained momentum in the Biden administration.`\
+https://nytimes.com/2025/10/16/us/politics/john-bolton-indictment-trump.html
+
 **Pistons guard Jaden Ivey has knee surgery, out at least 4 weeks**\
 `Jaden Ivey is expected to miss at least the Pistons' first 12 regular-season games.`\
 https://nytimes.com/athletic/6723965/2025/10/16/pistons-jaden-ivey-knee-surgery/
