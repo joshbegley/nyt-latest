@@ -1,3 +1,7 @@
+**The New York Times in Print for Thursday, Oct. 16, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/16/todays-new-york-times
+
 **Marnus Labuschagne exclusive: 'I'd love it to be 5-0 and for us to dust them – but cricket fans want it to be tight'**\
 `The Australian has endured a relatively lean two-year spell, but is scoring runs heavily in domestic cricket and targeting an Ashes impact`\
 https://nytimes.com/athletic/6697515/2025/10/16/marnus-labuschagne-australia-ashes-interview/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6715451/2025/10/16/great-osobor-college-basketball-
 **New signings and different roles for existing players – analysing Arsenal's attacking versatility**\
 `The Premier League leaders have a range of new forward options - both in terms of personnel and how they can be deployed `\
 https://nytimes.com/athletic/6715602/2025/10/16/arsenal-arteta-versatility-eze-saka/
-
-**Is this the football you want?**\
-`Those who would accuse Pep Guardiola of sucking the fun and creativity out of the game should be careful what they wish for`\
-https://nytimes.com/athletic/6719833/2025/10/16/premier-league-long-throws-set-plays/
 

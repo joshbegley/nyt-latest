@@ -1,3 +1,7 @@
+**The New York Times in Print for Thursday, Oct. 16, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/16/todays-new-york-times
+
 **Marnus Labuschagne exclusive: 'I'd love it to be 5-0 and for us to dust them – but cricket fans want it to be tight'**\
 `The Australian has endured a relatively lean two-year spell, but is scoring runs heavily in domestic cricket and targeting an Ashes impact`\
 https://nytimes.com/athletic/6697515/2025/10/16/marnus-labuschagne-australia-ashes-interview/
