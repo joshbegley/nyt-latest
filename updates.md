@@ -1,3 +1,15 @@
+**Head of the U.S. Military’s Southern Command Is Stepping Down, Officials Say**\
+`Adm. Alvin Holsey is leaving less than a year into his tenure, and as the Pentagon escalates attacks against boats in the Caribbean Sea.`\
+https://nytimes.com/2025/10/16/us/politics/southern-command-head-stepping-down.html
+
+**New York Rangers open to trading 2021 first-rounder Brennan Othmann: Source**\
+`No formal trade request has been made by Othmann's camp, but both sides recognize that a fresh start is likely needed for the forward.`\
+https://nytimes.com/athletic/6723686/2025/10/16/new-york-rangers-brennan-othmann-trade-rumors/
+
+**Kanchha Sherpa, Last Member of the Team That First Conquered Everest, Dies at 92**\
+`A trip to India to find work led to a career climbing the world’s highest mountain.`\
+https://nytimes.com/2025/10/16/world/asia/kanchha-sherpa-mt-everest-dead.html
+
 **How to watch Oilers vs. Islanders: Time, TV, streaming**\
 `Find out how to watch the Edmonton Oilers play the New York Islanders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6723685/2025/10/16/oilers-vs-islanders-stream-how-to-watch-oct-16/

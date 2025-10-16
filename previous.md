@@ -1,3 +1,15 @@
+**Head of the U.S. Military’s Southern Command Is Stepping Down, Officials Say**\
+`Adm. Alvin Holsey is leaving less than a year into his tenure, and as the Pentagon escalates attacks against boats in the Caribbean Sea.`\
+https://nytimes.com/2025/10/16/us/politics/southern-command-head-stepping-down.html
+
+**New York Rangers open to trading 2021 first-rounder Brennan Othmann: Source**\
+`No formal trade request has been made by Othmann's camp, but both sides recognize that a fresh start is likely needed for the forward.`\
+https://nytimes.com/athletic/6723686/2025/10/16/new-york-rangers-brennan-othmann-trade-rumors/
+
+**Kanchha Sherpa, Last Member of the Team That First Conquered Everest, Dies at 92**\
+`A trip to India to find work led to a career climbing the world’s highest mountain.`\
+https://nytimes.com/2025/10/16/world/asia/kanchha-sherpa-mt-everest-dead.html
+
 **How to watch Oilers vs. Islanders: Time, TV, streaming**\
 `Find out how to watch the Edmonton Oilers play the New York Islanders, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6723685/2025/10/16/oilers-vs-islanders-stream-how-to-watch-oct-16/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/16/us/politics/trump-unilateral-spending-cuts-shutdo
 **Yankees will be without Carlos Rodón, Anthony Volpe on Opening Day**\
 `The Yankees will already be without Gerrit Cole and Clarke Schmidt to begin the year, as both continue recovering from elbow surgery.`\
 https://nytimes.com/athletic/6723354/2025/10/16/yankees-carlos-rodon-anthony-volpe-opening-day/
-
-**Subsidizing Fossil Fuels, but Not Clean Energy**\
-`The Trump administration has sharply cut tax credits for renewable energy, while it adds to longstanding subsidies for fossil fuels.`\
-https://nytimes.com/2025/10/16/climate/subsidizing-fossil-fuels-but-not-clean-energy.html
-
-**Poison Cigars, Propaganda and Coups Litter C.I.A. History in Latin America**\
-`For much of the 20th century, the C.I.A. devised plots to overthrow governments, kill high-profile leaders or arm dissident groups.`\
-https://nytimes.com/2025/10/16/world/americas/cia-latin-america-coups.html
-
-**Judge Orders FEMA to Release $34 Million for New York Subway Security**\
-`The administration has refused to release the money because New York is a so-called sanctuary city. It was “a blatant violation of the law,” the judge wrote.`\
-https://nytimes.com/2025/10/16/nyregion/mta-fema-terror-money-order.html
 
