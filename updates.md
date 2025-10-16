@@ -1,3 +1,7 @@
+**'I've learned a lot': Carter Hart on signing with the Golden Knights, and his near-future plans**\
+`Hart, one of the defendants in the Hockey Canada case, signed with Vegas on Thursday.`\
+https://nytimes.com/athletic/6724138/2025/10/16/carter-hart-golden-knights-contract/
+
 **Susan Stamberg, a Longtime Voice of NPR, Is Dead at 87**\
 `In 1972 she became the first woman to anchor a national evening news broadcast. She retired this summer after 50 years on the air.`\
 https://nytimes.com/2025/10/16/business/media/susan-stamberg-dead.html

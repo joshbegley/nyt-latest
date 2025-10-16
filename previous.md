@@ -1,3 +1,7 @@
+**'I've learned a lot': Carter Hart on signing with the Golden Knights, and his near-future plans**\
+`Hart, one of the defendants in the Hockey Canada case, signed with Vegas on Thursday.`\
+https://nytimes.com/athletic/6724138/2025/10/16/carter-hart-golden-knights-contract/
+
 **Susan Stamberg, a Longtime Voice of NPR, Is Dead at 87**\
 `In 1972 she became the first woman to anchor a national evening news broadcast. She retired this summer after 50 years on the air.`\
 https://nytimes.com/2025/10/16/business/media/susan-stamberg-dead.html
@@ -29,8 +33,4 @@ https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliw
 **Mamdani Faces Islamophobic Attacks After Comments About Hamas**\
 `Zohran Mamdani, the front-runner in the race for mayor of New York City, was attacked by lawmakers from both parties over comments he made in a Fox News interview.`\
 https://nytimes.com/2025/10/16/nyregion/zohran-mamdani-islamophobic-attacks-hamas-gaza.html
-
-**Trinity Rodman to miss USWNT camp with injury, hopeful for return before end of NWSL season**\
-`Rodman is set for a three-week injury rehabilitation process before a reevaluation of the right knee injury`\
-https://nytimes.com/athletic/6724060/2025/10/16/trinity-rodman-uswnt-spirit-injury-update/
 
