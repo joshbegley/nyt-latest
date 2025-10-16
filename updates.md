@@ -1,3 +1,15 @@
+**Goodbye Gray Walls. Hello, Dusty Rose.**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/goodbye-gray-walls-hello-dusty-rose
+
+**‘Oh Happy Day!’ Review: And God Told Keyshawn to Build an Ark**\
+`An urgent family mission propels Jordan E. Cooper’s pain-spiked supernatural comedy, a very loose riff on the biblical story of Noah.`\
+https://nytimes.com/2025/10/16/theater/oh-happy-day-review-cooper.html
+
+**Live Updates: N.Y.C. Mayoral Candidates Will Face Off in First Debate**\
+`The Democratic nominee and front-runner Zohran Mamdani, the former governor Andrew M. Cuomo, and the Republican nominee Curtis Sliwa will present starkly different visions for governing the city.`\
+https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa
+
 **After Racist Texts, New York G.O.P. Is Set to Disband Young Republicans**\
 `State party leaders are expected to eliminate the charter of the Young Republicans group, allowing them to reconstitute the organization with new leaders.`\
 https://nytimes.com/2025/10/16/nyregion/ny-young-republicans-racist-texts.html
