@@ -1,3 +1,11 @@
+**“I’m not funded by the same donors that gave us Donald Trump’s second term, which isn’t something that Andrew Cuomo can say.”**\
+`By Benjamin Oreskes`\
+https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/im-not-funded-by-the-same-donors-that-gave-us-donald-trumps-second-term-which-isnt-something-that-andrew-cuomo-can-say
+
+**Trinidadian Family Says U.S. Military Killed Relative in Latest Boat Attack**\
+`For the first time, one of the 27 people killed in U.S. airstrikes on suspected drug vessels has been publicly identified.`\
+https://nytimes.com/2025/10/16/world/americas/trinidad-us-military-venezuela-boats.html
+
 **49ers' George Kittle had torn hamstring but will return for Sunday night game**\
 `The San Francisco tight end could have played last week but wanted to wait until the injury to his right leg was completely healed.`\
 https://nytimes.com/athletic/6724334/2025/10/16/george-kittle-hamstring-torn/

@@ -1,12 +1,16 @@
+**“Your favorite mayor, Bill de Blasio.”**\
+`By Benjamin Oreskes`\
+https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/your-favorite-mayor-bill-de-blasio
+
 **“I’m not funded by the same donors that gave us Donald Trump’s second term, which isn’t something that Andrew Cuomo can say.”**\
 `By Benjamin Oreskes`\
 https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/im-not-funded-by-the-same-donors-that-gave-us-donald-trumps-second-term-which-isnt-something-that-andrew-cuomo-can-say
 
-**Trinidadian Family Says U.S. Military Killed Relative in Latest Boat Attack**\
+**Trinidadian Family Says U.S. Military Killed Relative in Boat Attack**\
 `For the first time, one of the 27 people killed in U.S. airstrikes on suspected drug vessels has been publicly identified.`\
 https://nytimes.com/2025/10/16/world/americas/trinidad-us-military-venezuela-boats.html
 
-**49ers' George Kittle had torn hamstring but will return for Sunday night game**\
+**49ers' George Kittle had torn hamstring but will return for SNF game vs. Falcons**\
 `The San Francisco tight end could have played last week but wanted to wait until the injury to his right leg was completely healed.`\
 https://nytimes.com/athletic/6724334/2025/10/16/george-kittle-hamstring-torn/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/16/arts/music/ace-frehley-dead.html
 **Sources: Trae Young, Hawks won't agree on contract extension before NBA season**\
 `Young is entering the final guaranteed season of his contract and can become a free agent next summer if he does not sign a new deal.`\
 https://nytimes.com/athletic/6723424/2025/10/16/trae-young-hawks-contract-extension-nba-season/
-
-**Alex Tuch won't let contract talks distract from trying to turn Sabres around on the ice**\
-`The risk of leaving Tuch unsigned into the season is that each rough stretch for the Sabres raises questions.`\
-https://nytimes.com/athletic/6723919/2025/10/16/alex-tuch-contract-sabres-schedule-stats/
 
