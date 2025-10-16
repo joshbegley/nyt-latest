@@ -1,3 +1,7 @@
+**JB Pritzker Won $1.4 Million Playing Blackjack in Las Vegas**\
+`The Illinois governor reported the winnings on his 2024 tax returns, which his campaign released this week. “I was incredibly lucky,” he said.`\
+https://nytimes.com/2025/10/16/us/jb-pritzker-blackjack-winnings-charity.html
+
 **What’s So Great About ‘Slow Horses’? This Scene Says It All.**\
 `The British spy show owes its sarcasm and wit to Mick Herron’s novels. Our critic A.O. Scott breaks down a few sentences from Herron’s latest, “Clown Town.”`\
 https://nytimes.com/interactive/2025/10/16/books/slow-horses-clown-town-mick-herron.html
