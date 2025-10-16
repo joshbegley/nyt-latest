@@ -1,3 +1,19 @@
+**Susan Stamberg, a Longtime Voice of NPR, Is Dead at 87**\
+`In 1972 she became the first woman to anchor a national evening news broadcast. She retired this summer after 50 years on the air.`\
+https://nytimes.com/2025/10/16/business/media/susan-stamberg-dead.html
+
+**What to Know About the Moderators of the First N.Y.C. Mayoral Debate**\
+`David Ushery and Melissa Russo of WNBC-TV, Rosarina Bretón of Telemundo and Sally Goldenberg of Politico New York are moderating Thursday’s debate.`\
+https://nytimes.com/2025/10/16/nyregion/nyc-mayoral-debate-moderators.html
+
+**John Bolton Is Indicted**\
+`Also, Trump and Putin plan to meet. Here’s the latest at the end of Thursday.`\
+https://nytimes.com/2025/10/16/briefing/john-bolton-indictment-trump-putin-meeting.html
+
+**Parties Brace for a Political Future Without the Voting Rights Act**\
+`After the Supreme Court appeared poised to weaken a key provision of the landmark civil rights law, both parties began to reckon with an uncertain future.`\
+https://nytimes.com/2025/10/16/us/politics/democrats-republicans-voting-rights.html
+
 **Michigan regents rail against Big Ten private capital plan**\
 `Michigan regents said consultants who reviewed the deal advised them not to support it.`\
 https://nytimes.com/athletic/6723936/2025/10/16/big-ten-private-capital-michigan-usc/
