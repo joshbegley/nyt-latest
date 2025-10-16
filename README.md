@@ -1,3 +1,7 @@
+**“There was a report that was done that had allegations of harassment. I said at the time it was a political report and that there was no basis to it. It was then sent to five district attorneys. They all reviewed it. They found nothing.”**\
+`By Benjamin Oreskes`\
+https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/16nyc-mayor-debate-fact-check-xxxxxxxx
+
 **Chargers to debut all-gold alternate uniforms at home vs. Colts in Week 7**\
 `The Chargers' all-gold look pays tribute to the early 1980s under coach Don Coryell, whose passing offense revolutionized the NFL.`\
 https://nytimes.com/athletic/6723927/2025/10/16/chargers-gold-uniform-week-7-alternate/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/16/nyregion/cuomo-super-pac-nyc-mayoral-election-mam
 **Wisconsin Man Used TikTok to Call for the Killing of ICE Agents, U.S. Says**\
 `Andrew Stanton, 38, was charged with threatening federal law enforcement officers, whom he said should be shot. He pleaded not guilty and remains in custody.`\
 https://nytimes.com/2025/10/16/us/wisconsin-man-tiktok-threats-ice.html
-
-**Packers' Micah Parsons sounds off on NFL officials: 'I might get a fine for this'**\
-`Parsons has a significant gripe with how referees officiate the offensive side of the ball versus the defensive side.`\
-https://nytimes.com/athletic/6724200/2025/10/16/micah-parsons-packers-referee-criticism/
 
