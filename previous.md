@@ -1,40 +1,40 @@
-**Steelers vs. Bengals Thursday Night Football betting: Player prop, picks and a parlay**\
-`Brad Evans scours sportsbooks for the best bets ahead for Thursday Night Football's matchup between the Bengals and Steelers. `\
-https://nytimes.com/athletic/6719192/2025/10/16/steelers-bengals-thursday-night-footbal-betting-player-prop-expert-picks-parlay/
+**Four-time Olympic champion Ariarne Titmus retires from swimming aged 25**\
+`Titmus described her decision to retire as "a tough one, a really tough one, but one I’m really happy with.”`\
+https://nytimes.com/athletic/6722116/2025/10/16/ariarne-titmus-retires-swimming/
 
-**Trump Considers Ground Strikes in Venezuela**\
-`President Trump said he had authorized covert C.I.A. action in Venezuela and was considering ground strikes. Venezuela’s foreign minister called the American actions a policy of aggression.`\
-https://nytimes.com/video/world/americas/100000010461462/trump-covert-cia-action-venezuela.html
+**Knicks 2025-26 season predictions: NBA champions? Jalen Brunson All-NBA again?**\
+`Will the Knicks return to the Eastern Conference finals or go further? Knicks beat writer James Edwards shares predictions for the season.`\
+https://nytimes.com/athletic/6714464/2025/10/16/knicks-2025-2026-season-predictions-jalen-brunson/
 
-**Pentagon Reporters Walk Out, Rejecting New Press Rules**\
-`Journalists with access to the Pentagon turned in their badges on Wednesday instead of agreeing to a revised press policy that newsroom leaders say violates the First Amendment. The New York Times and others refused to sign, but at least one organization, One America News, did.`\
-https://nytimes.com/video/us/politics/100000010461463/pentagon-press-restrictions-hegseth.html
+**Fantasy football matchup rankings Week 7 | Strength of schedule**\
+`Jake Ciely's Week 7 fantasy football strength of schedule by position matchup rankings can help with tough start/sit decisions. `\
+https://nytimes.com/athletic/6720347/2025/10/16/fantasy-football-matchup-rankings-week-7-strength-of-schedule/
 
-**Cape Verde Qualified for Its First-Ever World Cup**\
-`Nick Miller of The Athletic reports from on the scene as Cape Verde punched its ticket to its first-ever World Cup by beating Eswatini.`\
-https://nytimes.com/video/sports/100000010459309/cape-verde-qualified-for-its-first-ever-world-cup.html
+**Mamdani Is a ‘Sewer Socialist.’ That’s a Good Thing.**\
+`The way to advance his worldview, he argues, is to show that it works.`\
+https://nytimes.com/2025/10/16/opinion/mamdani-nyc-mayor-sewer-socialism.html
 
-**'No pressure' on Fabian Hurzeler to play Charalampos Kostoulas, says Brighton owner**\
-`The 18-year-old summer signing has only featured in Brighton's Premier League matchday squad once through the first seven games.`\
-https://nytimes.com/athletic/6716412/2025/10/16/brighton-charalampos-kostoulas-fabian-hurzeler/
+**Something Is Stirring in Christian America, and It’s Making Me Nervous**\
+`Don’t mistake a revolution for a revival.`\
+https://nytimes.com/2025/10/16/opinion/christianity-charlie-kirk-revolution-revival.html
 
-**Items in Your Phone**\
-`What do you think this image is communicating?`\
-https://nytimes.com/2025/10/16/learning/items-in-your-phone.html
+**When Vanity Is Your Superpower**\
+`Ten years into the Trump era, Democrats still don’t seem to know how to respond.`\
+https://nytimes.com/2025/10/16/opinion/trump-israel-hamas-venezuela-power.html
 
-**How to Watch the N.Y.C. Mayoral Debate Between Mamdani, Cuomo and Sliwa**\
-`The candidates for New York City mayor will meet onstage Thursday night for the first of two debates. Here’s what we’ll be watching for.`\
-https://nytimes.com/2025/10/16/nyregion/nyc-mayor-debate-.html
+**Sandra Oh’s Career Takes a Musical Turn With Her Opera Debut**\
+`Performing in Donizetti’s “La Fille du Régiment” at the Metropolitan Opera, Oh has already perfected the art of waving a fan with sass.`\
+https://nytimes.com/2025/10/16/arts/music/sandra-oh-met-opera.html
 
-**N.Y.P.D. to Notify Parents When Minors Are Entered Into Gang Database**\
-`The change was one several the department agreed to make to a tool that has been criticized by the City Council and Zohran Mamdani, the Democratic mayoral nominee.`\
-https://nytimes.com/2025/10/16/nyregion/nypd-gang-database.html
+**Exploring the Borders of Brooklyn and Queens With About $700,000 to Spend**\
+`To find a place with at least three bedrooms and some outdoor space, a couple had to look in New York “neighborhoods that aren’t so central. Here’s what they found.`\
+https://nytimes.com/interactive/2025/10/16/realestate/brooklyn-queens-homes-sale.html
 
-**Cuomo Looks for a Debate Night Spark in Hopes of Catching Mamdani**\
-`Andrew M. Cuomo, the former governor of New York, intends to attack Zohran Mamdani’s qualifications and leftist ideology. He will be under fire, too.`\
-https://nytimes.com/2025/10/16/nyregion/cuomo-debate-mamdani.html
+**Have Something to Say? Put It on a Flier.**\
+`They’re not just for missing pets or yard sales. Fliers these days are for internet memes, self-promotion and extremely esoteric messages.`\
+https://nytimes.com/2025/10/16/style/fliers-memes-instagram.html
 
-**Mamdani Is Making Overtures to Jewish Leaders. Some Are Listening.**\
-`Zohran Mamdani is stepping up his Jewish outreach, as he holds private meetings with rabbis and other leaders across New York City who oppose his stance on Israel.`\
-https://nytimes.com/2025/10/16/nyregion/mandani-jews-israel-palestine.html
+**Dark Pop Is In. But Gaga Is Mother.**\
+`A reminder for all the Little Monsters.`\
+https://nytimes.com/2025/10/16/podcasts/dark-pop-is-in-but-gaga-is-mother.html
 
