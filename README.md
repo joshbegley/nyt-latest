@@ -1,40 +1,40 @@
-**Zohran Mamdani Explains His Rise**\
-`Our interview with the New York mayoral candidate who has burst onto the national stage.`\
-https://nytimes.com/2025/10/16/podcasts/the-daily/zohran-mamdani-interview.html
+**Chiefs' Travis Kelce is showing renewed burst. He credits an old NBA star**\
+`Chiefs quarterback Patrick Mahomes says Kelce's 2025 production began with a key offseason change.`\
+https://nytimes.com/athletic/6719756/2025/10/16/chiefs-travis-kelce-lions-hakeem-olajuwon/
 
-**Dark Pop Is In. But Gaga Is Mother.**\
-`Caryn Ganz, The Times’s pop music editor, joins Wesley Morris to talk about Lady Gaga and her Mayhem Ball tour.`\
-https://nytimes.com/video/podcasts/100000010461309/dark-pop-is-in-but-gaga-is-mother.html
+**Will Steelers run away with division? Does Mike Tomlin have a gripe? AFC North Whiparound**\
+`Could Pittsburgh have the division locked up by early December? Plus, how aggressive will each team be before the Nov. 4 trade deadline?`\
+https://nytimes.com/athletic/6720363/2025/10/16/bengals-browns-steelers-ravens-afc-north/
 
-**The Small Company in Europe Caught in the Big Trade War Between the U.S. and China**\
-`Nexperia, a computer chip maker headquartered in the Netherlands, was taken over by the Dutch government after pressure from officials in Washington.`\
-https://nytimes.com/2025/10/16/business/nexperia-netherlands-us-china.html
+**De'Andre Hunter? Kevin Porter Jr.? Five most pivotal NBA role players this season**\
+`Which players could become the most pivotal role players this season in the NBA?`\
+https://nytimes.com/athletic/6720872/2025/10/16/nba-pivotal-role-players-2025-26-season/
 
-**Barca mailbag: Ask our writers Pol Ballus and Laia Cervello Herrero about the season**\
-`Hansi Flick's side already find themselves at a crucial juncture two months into the season. How can they improve?`\
-https://nytimes.com/athletic/6722176/2025/10/16/barcelona-mailbag-season-questions/
+**Rosenthal: The Blue Jays took 'a few more uppercuts' in Game 3. They've turned the ALCS into a fight**\
+`Toronto finished Game 3 with five homers, 18 hits and a 13-4 victory as they narrowed Seattle's series lead to two games to one.`\
+https://nytimes.com/athletic/6721970/2025/10/16/toronto-blue-jays-alcs-offense/
 
-**France’s Government Survives No-Confidence Vote**\
-`The result gives Sébastien Lecornu, France’s prime minister, a reprieve after weeks of political turmoil. But he still has to get a budget passed by the end of the year.`\
-https://nytimes.com/2025/10/16/world/europe/france-lecornu-no-confidence-vote.html
+**Are the Bears under a New Orleans spell? Recent history has not been kind vs. the Saints**\
+`Every time a game with the Saints seems like a springboard for the Bears, it has turned into a trapdoor.`\
+https://nytimes.com/athletic/6720670/2025/10/16/bears-losing-streak-vs-saints/
 
-**Smucker’s Sues Trader Joe’s Over ‘Copycat’ Uncrustables**\
-`It said in a lawsuit that the company was infringing on multiple trademarks it held, including one for a “round pie-like shape with distinct peripheral undulated crimping.”`\
-https://nytimes.com/2025/10/16/us/smuckers-sues-trader-joes-over-copycat-uncrustables.html
+**Nestlé to Slash 16,000 Jobs in Cost-Cutting Push**\
+`The company’s new chief executive, Philipp Navratil, announced the reductions as part of a plan to turn around the world’s largest food company.`\
+https://nytimes.com/2025/10/16/business/nestle-jobs-cuts.html
 
-**Families of Jeju Air Crash Victims Sue Boeing**\
-`A lawsuit in Washington State is one of several accusing the airline of failing to update equipment on a plane that crashed in South Korea last year, killing 179 people.`\
-https://nytimes.com/2025/10/16/business/jeju-air-plane-crash-boeing-lawsuits.html
+**George Pickens: Cowboys' offense could be 'way more dangerous' with CeeDee Lamb returning**\
+`The trade for Pickens looks like a great deal with the way he's played this season, especially while Lamb has been sidelined.`\
+https://nytimes.com/athletic/6721425/2025/10/16/cowboys-george-pickens-ceedee-lamb-offense/
 
-**All Assad's Enforcers**\
-``\
-https://nytimes.com/series/all-assads-enforcers
+**Chuba? Rico? Panthers' Dave Canales has riddle to solve in a crowded backfield**\
+`Could the Panthers roll out some two-back sets against the Jets this week?`\
+https://nytimes.com/athletic/6720982/2025/10/16/panthers-rico-dowdle-chuba-hubbard/
 
-**The New York Times International Edition in Print for Friday, Oct. 17, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/10/16/todays-new-york-times-international-edition
+**Steelers at Bengals on TNF: Old quarterbacks, older rivalries, broadcast predictions**\
+`Aaron Rodgers (41 years old) captains the 4-1 Pittsburgh Steelers; Joe Flacco (40) tries to salvage the 2-4 Cincinnati Bengals.`\
+https://nytimes.com/athletic/6718121/2025/10/16/steelers-bengals-tnf-aaron-rodgers-joe-flacco-amazon-prime-how-to-watch/
 
-**Ricky Hatton’s cause of death confirmed at opening of inquest**\
-`Hatton, 46, was found dead at his house in Hyde, near Manchester, on Sunday, September 14.`\
-https://nytimes.com/athletic/6722108/2025/10/16/ricky-hatton-death-inquest-boxing/
+**Watch: Why Dak Prescott is the NFL's most betrayed QB so far this season**\
+`This is the Betrayal Index, ranking every NFL quarterback by comparing his own production to the support his team provides.`\
+https://nytimes.com/athletic/6720664/2025/10/16/dak-prescott-cowboys-nfl-betrayed-quarterbacks/
 

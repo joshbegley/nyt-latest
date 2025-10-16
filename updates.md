@@ -1,3 +1,7 @@
+**Zohran Mamdani Explains His Rise**\
+`Our interview with the New York mayoral candidate who has burst onto the national stage.`\
+https://nytimes.com/2025/10/16/podcasts/the-daily/zohran-mamdani-interview.html
+
 **Dark Pop Is In. But Gaga Is Mother.**\
 `Caryn Ganz, The Times’s pop music editor, joins Wesley Morris to talk about Lady Gaga and her Mayhem Ball tour.`\
 https://nytimes.com/video/podcasts/100000010461309/dark-pop-is-in-but-gaga-is-mother.html
