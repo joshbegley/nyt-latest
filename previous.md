@@ -1,3 +1,11 @@
+**New N.Y.P.D. Unit to Focus on Domestic Violence as Cases Surge**\
+`The new unit will be the largest of its kind in the United States and its members will receive specialized training, the police commissioner said.`\
+https://nytimes.com/2025/10/16/nyregion/nypd-domestic-violence-unit.html
+
+**Your Highly-Specific New York City Restaurant Questions, Answered**\
+`Becky Hughes helps an N.Y.U. student find affordable vegan and gluten-free fare, the best soups and a Greek orange cake à la Crete.`\
+https://nytimes.com/2025/10/16/dining/your-highly-specific-new-york-city-restaurant-questions-answered.html
+
 **Your Guide to Rome**\
 `From the must-see locations to the most frequently asked questions, our guide has all you need to plan your next visit.`\
 https://nytimes.com/interactive/2025/travel/rome-italy-guide.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6723509/2025/10/16/college-football-best-bets-week-
 **Head of the U.S. Military’s Southern Command Is Stepping Down, Officials Say**\
 `Adm. Alvin Holsey is leaving less than a year into his tenure, and as the Pentagon escalates attacks against boats in the Caribbean Sea.`\
 https://nytimes.com/2025/10/16/us/politics/southern-command-head-stepping-down.html
-
-**New York Rangers open to trading 2021 first-rounder Brennan Othmann: Source**\
-`No formal trade request has been made by Othmann's camp, but both sides recognize that a fresh start is likely needed for the forward.`\
-https://nytimes.com/athletic/6723686/2025/10/16/new-york-rangers-brennan-othmann-trade-rumors-2/
-
-**Kanchha Sherpa, Last Member of the Team That First Conquered Everest, Dies at 92**\
-`A trip to India to find work led to a career climbing the world’s highest mountain.`\
-https://nytimes.com/2025/10/16/world/asia/kanchha-sherpa-mt-everest-dead.html
 
