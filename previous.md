@@ -1,3 +1,11 @@
+**Send Us Your Games-Related Halloween Costume**\
+`Submit a photo of your New York Times Games outfit for a chance to be featured on our social media channels.`\
+https://nytimes.com/2025/10/16/crosswords/halloween-games-costumes.html
+
+**The Kings aren’t going to compete in a crowded West. But Westbrook makes them entertaining**\
+`The Sacramento Kings are a confusing mashup of expensive contracts and ball-dominant players. But they will be entertaining to watch.`\
+https://nytimes.com/athletic/6722085/2025/10/16/russell-westbrook-sacramento-kings-fit/
+
 **The 3 glaring problems that are holding back the Commanders' defense**\
 `There are three glaring areas where Washington’s defense needs to find clear answers and solutions.`\
 https://nytimes.com/athletic/6722518/2025/10/16/commanders-defense-mistakes-tackles-turnovers/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/16/world/europe/vatican-sexual-abuse-report.html
 **Mets Fan Survey 2025: How do you feel about the Mets right now?**\
 `Perhaps Mets fans have calmed down a little, perhaps not. We’re interested in finding out.`\
 https://nytimes.com/athletic/6720247/2025/10/16/mets-fan-survey-2025/
-
-**Caitlin Clark to run it back at LPGA event. WNBA star will compete in The Annika pro-am**\
-`The Indiana Fever guard will return to the LPGA Tour event on Nov. 12, the day of the pro-am at Pelican Golf Club in Belleair, Fla.`\
-https://nytimes.com/athletic/6721102/2025/10/16/caitlin-clark-lpga-pro-am-the-annika/
-
-**What we saw from the NHL’s first week: 10 too-early takes on Rangers, Calder race, more**\
-`Let's look at 10 way-too-early takes developing around the league.`\
-https://nytimes.com/athletic/6721538/2025/10/16/nhl-early-season-takes-rangers-calder/
 
