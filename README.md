@@ -1,3 +1,11 @@
+**How the Pentagon Is Blocking Out News Organizations**\
+`The new rules codify strict limitations on access and raise the prospect of punishment for requesting information on matters of public interest.`\
+https://nytimes.com/interactive/2025/10/15/business/media/pentatgon-press-rules.html
+
+**Trump Administration Decimates Birth Control Office in Layoffs**\
+`The layoffs have raised fears that the administration could be effectively ending an initiative that provides contraception for millions of low-income women.`\
+https://nytimes.com/2025/10/15/us/politics/trump-birth-control-layoffs.html
+
 **N.Y. Democrats Urge Hochul to Reject Pipeline Over Climate Concerns**\
 `Ten members of Congress wrote in a letter to the governor that a gas pipeline proposed for New York Harbor runs counter to the state’s emissions reductions goals.`\
 https://nytimes.com/2025/10/15/nyregion/house-democrats-hochul-gas-pipeline-nyc.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6720961/2025/10/15/champions-league-uswnt-lily-yoha
 **In Naomi Girma’s absence, Emma Hayes continues to experiment with the USWNT defense**\
 `For the third time this year, the USWNT roster will not include Girma, who continues to recover from a calf injury. `\
 https://nytimes.com/athletic/6720890/2025/10/15/naomi-girmas-absence-emma-hayes-uswnt-defense/
-
-**How to watch Buccaneers vs. Lions: Time, TV, streaming**\
-`Find out how to watch the Tampa Bay Buccaneers play the Detroit Lions, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6721047/2025/10/15/buccaneers-vs-lions-stream-how-to-watch-oct-20/
-
-**How to watch Brewers at Dodgers: Game 3 Time, TV, streaming**\
-`Find out how to watch the Milwaukee Brewers play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6721004/2025/10/15/how-to-watch-brewers-vs-dodgers-game-3-tv-channel-and-streaming-options-for-october-16/
 
