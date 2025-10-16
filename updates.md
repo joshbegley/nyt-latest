@@ -1,3 +1,11 @@
+**Leeds' James ahead of schedule with ankle injury, could be fit to face Burnley**\
+`Manager Daniel Farke had previously expected the 27-year-old to be unavailable until after the November international break.`\
+https://nytimes.com/athletic/6722701/2025/10/16/dan-james-leeds-injury-latest/
+
+**Steele signs new Brighton contract until 2027**\
+`Steele joined Brighton from Sunderland in July 2018 and has played 60 times for the south-coast club.`\
+https://nytimes.com/athletic/6722700/2025/10/16/jason-steele-brighton-contract/
+
 **How to stream the Utah Jazz in 2025-26: Schedule, blackout rules and new broadcasters**\
 `Here's how to watch all 82 Utah Jazz games this season. Under Ryan Smith, the franchise has a different setup for regional telecasts.`\
 https://nytimes.com/athletic/6720914/2025/10/16/utah-jazz-ace-bailey-2025-26-how-to-watch/
