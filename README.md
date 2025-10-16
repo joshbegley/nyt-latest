@@ -1,5 +1,13 @@
+**Trinity Rodman exits Spirit game injured hours after earning USWNT call-up**\
+`Rodman had recently earned her first U.S. call-up since April after a persistent back issue kept her out of action for much of the summer.`\
+https://nytimes.com/athletic/6721462/2025/10/15/trinity-rodman-injury-uswnt-nwsl-spirit/
+
+**How Whiskey Might Be Served**\
+`Kareem Ayas’s puzzle will not leave you feeling cold.`\
+https://nytimes.com/2025/10/15/crosswords/daily-puzzle-2025-10-16.html
+
 **Utah Mammoth reveal 'Tusky' as their official mascot**\
-`“Tusky,” a 6-foot-5 blue woolly mammoth, was unveiled on Wednesday evening before the Mammoth’s home opener against the Calgary Flames.`\
+`“Tusky,” a 6-foot-5 blue woolly mammoth, was unveiled on Wednesday before Utah's home opener against the Calgary Flames.`\
 https://nytimes.com/athletic/6721482/2025/10/15/utah-mammoth-mascot-tusky-nhl/
 
 **'I made a mistake': Tua Tagovailoa apologizes for comments after Sunday’s game**\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/15/us/politics/trump-executive-order-federal-hiring.
 **Celtics' Jaylen Brown exits game with hamstring tightness, held out as precaution**\
 `With five minutes left in the first quarter of Boston’s matchup with the Toronto Raptors, Brown started moving gingerly.`\
 https://nytimes.com/athletic/6721296/2025/10/15/jaylen-brown-celtics-nba-preseason/
-
-**Kevin Durant wishes Mariners luck after seeing Josh Naylor's Sonics fit**\
-`The Mariners first baseman made it a point to wear a throwback SuperSonics jersey.`\
-https://nytimes.com/athletic/6721223/2025/10/15/kevin-durant-nba-josh-naylor-mariners-seattle-alcs/
-
-**How the Pentagon Is Blocking Out News Organizations**\
-`The new rules codify strict limitations on access and raise the prospect of punishment for requesting information on matters of public interest.`\
-https://nytimes.com/interactive/2025/10/15/business/media/pentatgon-press-rules.html
 
