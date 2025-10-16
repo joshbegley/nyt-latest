@@ -1,3 +1,7 @@
+**Kings, Keegan Murray agree to five-year, $140M rookie-scale contract extension**\
+`In the 2022 NBA Draft, the Kings took a chance on Keegan Murray. This week, both parties agreed to a long-term contract extension.`\
+https://nytimes.com/athletic/6721112/2025/10/15/kings-keegan-murray-contract-extension-nba/
+
 **In Fox News Interview, Mamdani Speaks Directly to Trump**\
 `The leading mayoral candidate in New York City defended his positions while parrying questions about the Israel-Gaza war.`\
 https://nytimes.com/2025/10/15/nyregion/mamdani-fox-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6720950/2025/10/15/olympic-hockey-nhl-untested-ice-
 **Trump Says $16 Billion Hudson River Tunnel Project Is ‘Terminated’**\
 `It was not immediately clear what the president meant and whether the project, known as Gateway, had already been stripped of federal funding.`\
 https://nytimes.com/2025/10/15/nyregion/trump-gateway-cancellation.html
-
-**Boy and Girl Face Rape and Attempted Murder Charges in Attack on 5-Year-Old**\
-`Prosecutors in Cuyahoga County, Ohio, filed the charges in juvenile court. The victim’s mother wrote on social media that her daughter was found “unresponsive and unrecognizable.”`\
-https://nytimes.com/2025/10/15/us/ohio-children-attempted-murder-rape.html
 
