@@ -1,3 +1,7 @@
+**Trump Was Not the Only President Who Tried to Force Migrants to Leave**\
+`For decades, the United States tried to push undocumented people to self-deport, but success has often depended on coercion.`\
+https://nytimes.com/2025/10/16/us/politics/trump-immigrants-self-deportation.html
+
 **‘The Mastermind’ Review: A Robbery and a Life Unraveling**\
 `The title of Kelly Reichardt’s latest film has a distinct irony for Josh O’Connor’s blundering museum thief.`\
 https://nytimes.com/2025/10/16/movies/the-mastermind-review.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/world/middleeast/100000010461922/israel-war-gaza-victi
 **What Teenagers Are Saying About Gaming**\
 `Students react to an article about whether the increasing amount of time boys spend playing video games is a problem.`\
 https://nytimes.com/2025/10/16/learning/what-teenagers-are-saying-about-gaming.html
-
-**With defensive leaders on crutches, pass-happy 49ers need George Kittle, Brock Purdy**\
-`The 49ers have a leadership void after Fred Warner's injury. They also need help in both the run and pass game, which Kittle can provide.`\
-https://nytimes.com/athletic/6722043/2025/10/16/brock-purdy-george-kittle-leadership-pass-game/
 
