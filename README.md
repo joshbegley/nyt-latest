@@ -1,3 +1,7 @@
+**Russia Is Arming Drones With North Korean Cluster Weapons, Report Says**\
+`Though Pyongyang has largely pulled its soldiers off the front lines in Ukraine, it is expanding the types of ammunition it supplies to Russia.`\
+https://nytimes.com/2025/10/16/us/politics/russia-north-korean-cluster-weapons.html
+
 **Novak Djokovic says tennis innovation is 'sabotaged', wants to play on to see changes**\
 `Djokovic wishes to see a “new platform” for tennis in the coming years before he retires.`\
 https://nytimes.com/athletic/6722341/2025/10/16/tennis-novak-djokovic-six-king-slam-ptpa/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/16/us/politics/chicago-immigration-agents-body-camer
 **Pickford signs four-year Everton contract to 2029**\
 `The 31-year-old has kept 91 clean sheets in 326 appearances for the Merseyside club since joining from Sunderland in 2017.`\
 https://nytimes.com/athletic/6601688/2025/10/16/jordan-pickford-contract-extension/
-
-**Israel Honors Oct. 7 Victims**\
-`Israel paid tribute to its victims of the war with Hamas with a national day of commemoration on the date that marks, in the Jewish calendar, two years since the Hamas-led Oct. 7 attacks.`\
-https://nytimes.com/video/world/middleeast/100000010461922/israel-war-gaza-victims.html
 

@@ -1,3 +1,7 @@
+**Novak Djokovic says tennis innovation is 'sabotaged', wants to play on to see changes**\
+`Djokovic wishes to see a “new platform” for tennis in the coming years before he retires.`\
+https://nytimes.com/athletic/6722341/2025/10/16/tennis-novak-djokovic-six-king-slam-ptpa/
+
 **Trump Was Not the Only President Who Tried to Force Migrants to Leave**\
 `For decades, the United States tried to push undocumented people to self-deport, but success has often depended on coercion.`\
 https://nytimes.com/2025/10/16/us/politics/trump-immigrants-self-deportation.html
