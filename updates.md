@@ -1,3 +1,7 @@
+**John Bolton Is Said to Be Indicted Over Handling of Classified Information**\
+`Mr. Bolton, a Trump aide turned critic, is part of a string of presidential foes to become prosecutorial targets. But his case gained momentum in the Biden administration.`\
+https://nytimes.com/2025/10/16/us/politics/john-bolton-indictment-trump.html
+
 **Hari Chutney Spaghetti**\
 `In the time it takes to bring a large pot of water to a boil, you can make a batch of herby, bright and spicy green chutney, also known as hari chutney (hari means “green” in Hindi).`\
 https://nytimes.com/video/dining/100000010435020/hari-chutney-spaghetti.html
