@@ -1,3 +1,7 @@
+**Truckers Are Struggling. Trump’s New Tariff Could Make Things Worse.**\
+`A 25 percent levy on heavy-duty trucks and parts is set to take effect next month. Companies have few details on the policy.`\
+https://nytimes.com/2025/10/16/business/trump-tariff-trucks-parts.html
+
 **Ossoff Walks Political Tightrope in Georgia as Shutdown Drags On**\
 `For Jon Ossoff, the most endangered Senate Democrat, the shutdown fight could rally support among some voters, but risks alienating others in a state President Trump won in 2024.`\
 https://nytimes.com/2025/10/16/us/politics/jon-ossoff-shutdown.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6721890/2025/10/16/us-soccer-college-ncaa-overhaul/
 **George Russell exclusive: 'I feel ready to fight for a world championship'**\
 `In his first interview since a new contract with Mercedes was announced, George Russell talks about how he is in the form of his life`\
 https://nytimes.com/athletic/6722538/2025/10/16/george-russell-mercedes-contract-interview/
-
-**The Latest Victoria’s Secret Show(girls)**\
-`Angel Reese, Sunisa Lee and both Hadids were on the runway as the company made yet another attempt at relevancy.`\
-https://nytimes.com/2025/10/16/style/victorias-secret-vs-show.html
 
