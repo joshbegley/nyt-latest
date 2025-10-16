@@ -1,3 +1,15 @@
+**Caitlin Clark to run it back at LPGA event. WNBA star will compete in The Annika pro-am**\
+`The Indiana Fever guard will return to the LPGA Tour event on Nov. 12, the day of the pro-am at Pelican Golf Club in Belleair, Fla.`\
+https://nytimes.com/athletic/6721102/2025/10/16/caitlin-clark-lpga-pro-am-the-annika/
+
+**What we saw from the NHL’s first week: 10 too-early takes on Rangers, Calder race, more**\
+`Let's look at 10 way-too-early takes developing around the league.`\
+https://nytimes.com/athletic/6721538/2025/10/16/nhl-early-season-takes-rangers-calder/
+
+**How to watch Ja Morant and the Memphis Grizzlies this season**\
+`Ja Morant and the Grizzlies have a new full-time coach and will play overseas twice this season. Here's how to tune in to all their games.`\
+https://nytimes.com/athletic/6719823/2025/10/16/memphis-grizzlies-ja-morant-tv-london-berlin-how-to-watch/
+
 **Why Oilers are still searching for offensive breakthrough: 'It’s just a matter of time'**\
 `The Oilers have been figuring things out as they go up front so far, and the results are evident.`\
 https://nytimes.com/athletic/6720844/2025/10/16/oilers-stats-goals-mcdavid-points/

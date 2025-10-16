@@ -1,3 +1,15 @@
+**Caitlin Clark to run it back at LPGA event. WNBA star will compete in The Annika pro-am**\
+`The Indiana Fever guard will return to the LPGA Tour event on Nov. 12, the day of the pro-am at Pelican Golf Club in Belleair, Fla.`\
+https://nytimes.com/athletic/6721102/2025/10/16/caitlin-clark-lpga-pro-am-the-annika/
+
+**What we saw from the NHL’s first week: 10 too-early takes on Rangers, Calder race, more**\
+`Let's look at 10 way-too-early takes developing around the league.`\
+https://nytimes.com/athletic/6721538/2025/10/16/nhl-early-season-takes-rangers-calder/
+
+**How to watch Ja Morant and the Memphis Grizzlies this season**\
+`Ja Morant and the Grizzlies have a new full-time coach and will play overseas twice this season. Here's how to tune in to all their games.`\
+https://nytimes.com/athletic/6719823/2025/10/16/memphis-grizzlies-ja-morant-tv-london-berlin-how-to-watch/
+
 **Why Oilers are still searching for offensive breakthrough: 'It’s just a matter of time'**\
 `The Oilers have been figuring things out as they go up front so far, and the results are evident.`\
 https://nytimes.com/athletic/6720844/2025/10/16/oilers-stats-goals-mcdavid-points/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6700757/2025/10/16/sixers-joel-embiid-tyrese-maxey-
 **India Tiptoes Around Trump’s Latest Claims on Russian Oil Purchases**\
 `The government subtly rebuffed the president’s comments that it would stop buying Russian oil, as it tries to avoid a public fight and end a trade dispute with Washington.`\
 https://nytimes.com/2025/10/16/world/asia/india-trump-russia-oil.html
-
-**Chicago Bulls 2025-26 streaming and schedule info: How to see red this season**\
-`Cue the Alan Parsons Project intro. Toss ketchup in the dumpster, or anywhere far from your Italian beef. It's time for Bulls basketball.`\
-https://nytimes.com/athletic/6720666/2025/10/16/chicago-bulls-2025-26-tv-streaming-schedule-info-nba/
-
-**‘We Lucked Out’: Early Rains Tame California’s Peak Wildfire Season**\
-`Recent rain significantly reduced the risk of a large fire breaking out before year’s end, experts said.`\
-https://nytimes.com/2025/10/16/weather/california-fire-season-update.html
-
-**What to Know About the California Special Election**\
-`Some 23 million voters have received mail ballots for the Nov. 4 election. The only statewide measure this fall is a redistricting plan spearheaded by Gov. Gavin Newsom.`\
-https://nytimes.com/2025/10/16/us/california-election-redistricting-newsom.html
 
