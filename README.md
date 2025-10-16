@@ -23,7 +23,7 @@ https://nytimes.com/2025/10/16/us/politics/16dc-.html
 https://nytimes.com/2025/10/16/opinion/trump-compact-universities.html
 
 **Carter Hart agrees to join Golden Knights organization: Why he chose Vegas, and what he brings**\
-`One of five 2018 World Juniors players found not guilty of sexual assault in June, Hart will begin his comeback on a professional tryout.`\
+`One of five 2018 World Juniors players found not guilty of sexual assault in July, Hart will begin his comeback on a professional tryout.`\
 https://nytimes.com/athletic/6528138/2025/10/16/carter-hart-signs-golden-knights-analysis/
 
 **Brash Investor in Global Soccer Clubs Is Charged With Fraud**\
