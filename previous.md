@@ -1,3 +1,7 @@
+**Review: Aubrey Plaza Shines in Ethan Coen’s Retrograde ‘Let’s Love!’**\
+`It’s unusual for an Atlantic Theater Company production to feel so uninspired, but in this set of one-acts, committed actors are let down by juvenile language.`\
+https://nytimes.com/2025/10/15/theater/lets-love-review-coen-plaza.html
+
 **Guatemala Welcomes U.S. Help in Gang Crackdown After Prison Break**\
 `President Bernardo Arévalo called an overhaul of his country’s prison system an “absolute priority” after 20 inmates accused of belonging to the Barrio 18 group were found to have escaped undetected.`\
 https://nytimes.com/2025/10/15/world/americas/guatemala-prison-break-penal-reforms.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6721089/2025/10/15/nflpa-nfl-field-steelers-browns-
 **Kings, Keegan Murray agree to five-year, $140M rookie-scale contract extension**\
 `In the 2022 NBA Draft, the Kings took a chance on Keegan Murray. This week, both parties agreed to a long-term contract extension.`\
 https://nytimes.com/athletic/6721112/2025/10/15/kings-keegan-murray-contract-extension-nba/
-
-**On Fox, Mamdani Speaks Directly to Trump: I Won’t Be a Mayor Like Adams**\
-`The leading mayoral candidate in New York City defended his positions while parrying questions about the Israel-Gaza war.`\
-https://nytimes.com/2025/10/15/nyregion/mamdani-fox-interview.html
 
