@@ -1,3 +1,19 @@
+**Hacked Airport P.A. Systems Broadcast Anti-Trump and Pro-Hamas Messages**\
+`The hacks at four North American airports raised fresh concerns over the security of noncritical but highly visible airport infrastructure. The airports said the disruption was minimal.`\
+https://nytimes.com/2025/10/16/us/airports-hacked-us-canada-trump-hamas.html
+
+**5 New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://nytimes.com/2025/10/16/books/review/recommended-new-books.html
+
+**Diane Keaton Died of Pneumonia, Death Certificate Says**\
+`A death certificate released Thursday said that the Oscar-winning actor died on Oct. 11 of bacterial pneumonia.`\
+https://nytimes.com/2025/10/16/movies/diane-keaton-cause-of-death.html
+
+**McConnell Stumbles and Falls at the Capitol**\
+`The former Senate Republican leader has had a series of health episodes, including falls, in recent years. He plans to retire in 2027.`\
+https://nytimes.com/2025/10/16/us/politics/mitch-mcconnell-fall-capitol.html
+
 **U.S. Special Operations Helicopters Training Near Venezuela**\
 `The presence of an elite unit is meant to provide options to the Trump administration as it ratchets up pressure on drug traffickers and President Nicolás Maduro.`\
 https://nytimes.com/2025/10/16/us/politics/16dc-.html
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/16/world/middleeast/houthis-top-general-killed-yemen
 **Pat Murphy's 10-year-old son has confident response to reporter's question**\
 `The Milwaukee manager keeps his kids close, allowing his young sons to attend Brewers news conferences with him. `\
 https://nytimes.com/athletic/6723250/2025/10/16/pat-murphy-son-austin-brewers-press-conference/
-
-**Oscar Wilde Gets His Library Card Back, 125 Years After His Death**\
-`The Irish writer was barred in 1895 after being convicted of gross indecency. On Thursday, the British Library will hand over a symbolic new card to his grandson.`\
-https://nytimes.com/2025/10/16/arts/oscar-wilde-british-library-card.html
-
-**Is ‘The Morning Show’ a Crystal Ball for Cable News?**\
-`The Apple TV series set in a fictional newsroom seems to be particularly prescient at the moment.`\
-https://nytimes.com/2025/10/16/style/the-morning-show-apple-tv-season-4.html
-
-**WNBA season is most viewed ever on ESPN networks**\
-`ESPN's networks aired the entire postseason (24 games), with games averaging 1.2 million viewers each.`\
-https://nytimes.com/athletic/6723196/2025/10/16/wnba-ratings-viewers-2025-espn/
-
-**Venture Capitalist Resigns From Salesforce Foundation Over Benioff Comments**\
-`Ron Conway stepped down from the board of Salesforce’s philanthropic arm after the company’s chief executive, Marc Benioff, said he supported President Trump and wanted the National Guard to come to San Francisco.`\
-https://nytimes.com/2025/10/16/us/salesforce-resign-benioff-ron-conway.html
 

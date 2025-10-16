@@ -1,3 +1,19 @@
+**Hacked Airport P.A. Systems Broadcast Anti-Trump and Pro-Hamas Messages**\
+`The hacks at four North American airports raised fresh concerns over the security of noncritical but highly visible airport infrastructure. The airports said the disruption was minimal.`\
+https://nytimes.com/2025/10/16/us/airports-hacked-us-canada-trump-hamas.html
+
+**5 New Books We Love This Week**\
+`Reading recommendations from critics and editors at The New York Times.`\
+https://nytimes.com/2025/10/16/books/review/recommended-new-books.html
+
+**Diane Keaton Died of Pneumonia, Death Certificate Says**\
+`A death certificate released Thursday said that the Oscar-winning actor died on Oct. 11 of bacterial pneumonia.`\
+https://nytimes.com/2025/10/16/movies/diane-keaton-cause-of-death.html
+
+**McConnell Stumbles and Falls at the Capitol**\
+`The former Senate Republican leader has had a series of health episodes, including falls, in recent years. He plans to retire in 2027.`\
+https://nytimes.com/2025/10/16/us/politics/mitch-mcconnell-fall-capitol.html
+
 **Pat Murphy's 10-year-old son has confident response to reporter's question**\
 `The Milwaukee manager keeps his kids close, allowing his young sons to attend Brewers news conferences with him. `\
 https://nytimes.com/athletic/6723250/2025/10/16/pat-murphy-son-austin-brewers-press-conference/
