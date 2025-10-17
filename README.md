@@ -1,3 +1,7 @@
+**UWCL Briefing: VAR controversy, Man Utd's steady defence, Arsenal's shaky start**\
+`The Athletic's experts have dissected the big talking points from the league phase matches`\
+https://nytimes.com/athletic/6725191/2025/10/17/womens-champions-league-chelsea-manchester-united-arsenal-var/
+
 **Are Video Games Giving Us Some of the Best New Music?**\
 `Jon Caramanica, host of “Popcast,” explains why Valorant’s new Champions anthem, “Last Shot,” captures the moment.`\
 https://nytimes.com/video/podcasts/100000010463758/are-video-games-giving-us-some-of-the-best-new-music.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6715854/2025/10/17/esme-morgan-washington-spirit-nw
 **Tottenham have started the Thomas Frank era well. Now the real test begins**\
 `A tough-looking run of fixtures should show us how much impact Spurs' new boss has made, both tactically and with player fitness`\
 https://nytimes.com/athletic/6719553/2025/10/17/tottenham-rotation-fixture-list-thomas-frank/
-
-**Brighton need four of their big names to step up ahead of tough run**\
-`Fabian Hurzeler needs Carlos Baleba, Kaoru Mitoma, Georginio Rutter and Danny Welbeck to find their best form`\
-https://nytimes.com/athletic/6699919/2025/10/17/brighton-welbeck-rutter-baleba-mitoma/
 
