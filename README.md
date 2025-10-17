@@ -1,3 +1,19 @@
+**Jury rules against former Red Wings Zamboni driver in age discrimination case**\
+`Al Sobotka, who brought the lawsuit against Olympia Entertainment in 2022, said he's "devastated" by the verdict.`\
+https://nytimes.com/athletic/6723725/2025/10/17/red-wings-zamboni-driver-lawsuit/
+
+**At a Fading ‘Island of Misfit Toys,’ Zoo Animals Face an Uncertain Fate**\
+`It went from one of the worst zoos in America to a beloved menagerie filled with disabled and elderly native species. Now the money has just about run out.`\
+https://nytimes.com/2025/10/17/nyregion/at-a-fading-island-of-misfit-toys-zoo-animals-face-an-uncertain-fate.html
+
+**Over the Dinner Table**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2025/10/17/learning/over-the-dinner-table.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/10/17/crosswords/spelling-bee-forum.html
+
 **Zelensky Seeks More Weapons as Trump Plans Putin Meeting**\
 `Trump said he planned to meet with President Vladimir Putin or Russia in a few weeks to discuss a cease-fire as President Volodymyr Zelensky of Ukraine arrived in Washington to secure more weapons.`\
 https://nytimes.com/video/world/americas/100000010464187/trump-putin-cease-fire-ukraine.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6725363/2025/10/17/brewers-vs-dodgers-stream-how-to
 **How to watch Blue Jays at Mariners: Game 5 Time, TV, streaming**\
 `Find out how to watch the Toronto Blue Jays play the Seattle Mariners, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6725361/2025/10/17/blue-jays-vs-mariners-stream-how-to-watch-oct-17/
-
-**Word of the Day: abstemious**\
-`This word has appeared in seven articles on NYTimes.com in the past year. Can you use it in a sentence?`\
-https://nytimes.com/2025/10/17/learning/word-of-the-day-abstemious.html
-
-**Trump’s Dinner for Ballroom Donors Leaves a Bad Taste in Kimmel’s Mouth**\
-`Wealthy businesspeople who gave money to build a White House ballroom curried favor with the president, “just as our founding fathers intended,” Jimmy Kimmel said.`\
-https://nytimes.com/2025/10/17/arts/television/kimmel-trump-ballroom-dinner.html
-
-**Tomiichi Murayama, Japanese Leader Who Gave War Apology, Dies at 101**\
-`His televised address as prime minister delivered 50 years to the day after Japan announced its surrender set a marker for his country’s “deep remorse” over wartime atrocities.`\
-https://nytimes.com/2025/10/17/world/asia/tomiichi-murayama-dead.html
-
-**UWCL Briefing: VAR controversy, Man Utd's steady defence, Arsenal's shaky start**\
-`The Athletic's experts have dissected the big talking points from the league phase matches`\
-https://nytimes.com/athletic/6725191/2025/10/17/womens-champions-league-chelsea-manchester-united-arsenal-var/
 
