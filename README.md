@@ -1,3 +1,7 @@
+**“I want to first be clear that I am not and nor have I ever called for the legalization of prostitution.”**\
+`By Benjamin Oreskes`\
+https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/i-want-to-first-be-clear-that-i-am-not-and-nor-have-i-ever-called-for-the-legalization-of-prostitution
+
 **Trump Announces Proposals to Make I.V.F. More Affordable**\
 `The president unveiled several policy proposals on Thursday aimed at reducing the costs of in vitro fertilization. They included a deal with a pharmaceutical company to lower drug costs, and guidance encouraging employers to offer infertility coverage directly to workers.`\
 https://nytimes.com/video/us/politics/100000010463153/trump-ivf-announcement.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliw
 **“There was a report that was done that had allegations of harassment. I said at the time it was a political report and that there was no basis to it. It was then sent to five district attorneys. They all reviewed it. They found nothing.”**\
 `By Benjamin Oreskes`\
 https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/16nyc-mayor-debate-fact-check-harassment
-
-**Chargers to debut all-gold alternate uniforms at home vs. Colts in Week 7**\
-`The Chargers' all-gold look pays tribute to the early 1980s under coach Don Coryell, whose passing offense revolutionized the NFL.`\
-https://nytimes.com/athletic/6723927/2025/10/16/chargers-gold-uniform-week-7-alternate/
 

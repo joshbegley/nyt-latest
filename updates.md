@@ -1,3 +1,7 @@
+**Trump Announces Proposals to Make I.V.F. More Affordable**\
+`The president unveiled several policy proposals on Thursday aimed at reducing the costs of in vitro fertilization. They included a deal with a pharmaceutical company to lower drug costs, and guidance encouraging employers to offer infertility coverage directly to workers.`\
+https://nytimes.com/video/us/politics/100000010463153/trump-ivf-announcement.html
+
 **'Never had another player like him': Inside Blue Jackets' decision to draft Cam Atkinson**\
 `A look at how Atkinson went from undersized prospect to Blue Jackets legend as he formally retired from the NHL Thursday.`\
 https://nytimes.com/athletic/6724024/2025/10/16/blue-jackets-cam-atkinson-retires/
