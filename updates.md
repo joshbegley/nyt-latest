@@ -1,3 +1,11 @@
+**Portland Fire name Cavs' assistant Alex Sarama first head coach in franchise history**\
+`He is the organization’s second major hire in recent days, joining executive Ashley Battle.`\
+https://nytimes.com/athletic/6717913/2025/10/17/portland-fire-wnba-head-coach-hired/
+
+**gws-zapotec-couple-rug-weaving**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/zapotec-couple-rug-weaving
+
 **NHL Power Rankings: Everything we've already gotten wrong**\
 `After just one week of hockey, we’ve seen enough. Here's something from every team we got wrong.`\
 https://nytimes.com/athletic/6725336/2025/10/17/nhl-power-rankings-27/
