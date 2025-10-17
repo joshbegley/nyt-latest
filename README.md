@@ -1,3 +1,11 @@
+**Teresa Ulloa Ziáurriz, Rights Advocate Who Fought Sex Traffickers, Dies at 75**\
+`In Mexico, where the cult of machismo has long held sway, she waged a lonely, sometimes dangerous and often single-handed fight against prostitution and organized sex rings.`\
+https://nytimes.com/2025/10/17/world/americas/teresa-ulloa-ziaurriz-dead.html
+
+**NHL’s next expansion team will cost at least $2 billion: Sources**\
+`The NHL may not actively be seeking expansion, but it’s already established a floor for what any future franchise will cost.`\
+https://nytimes.com/athletic/6726493/2025/10/17/nhl-expansion-price-cost/
+
 **East London**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/things-to-do-east-london
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6726179/2025/10/17/nhl-referee-mistake-panthers-dev
 **The Secret Weapon of ‘S.N.L.’ Finally Gets the Spotlight**\
 `A documentary about the writer Jim Downey is streaming just as he can be seen in “One Battle After Another” and a new Tim Robinson series.`\
 https://nytimes.com/2025/10/17/arts/television/jim-downey-saturday-night-live-writer-actor.html
-
-**gws-cedric-grolet-la-chocolaterie-pastry-chef**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/cedric-grolet-la-chocolaterie-pastry-chef
-
-**Rams WR Puka Nacua ruled out for game vs. Jaguars**\
-`Right tackle Rob Havenstein will also miss a third straight game with an ankle injury.`\
-https://nytimes.com/athletic/6726373/2025/10/17/rams-puka-nacua-out-jaguars-injury/
 
