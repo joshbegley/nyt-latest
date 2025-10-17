@@ -1,40 +1,40 @@
-**How Boomers Blew Up the American Dream**\
-`Baby boomers had a good run. Now we’re all paying for it.`\
-https://nytimes.com/video/opinion/100000010400824/baby-boomers-us-generations.html
+**Is It Healthy to Grieve Before a Loss?**\
+`Yes. Here’s how to cope.`\
+https://nytimes.com/2025/10/17/well/anticipatory-grief.html
 
-**‘Kiss of the Spider Woman’ | Anatomy of a Scene**\
-`The director Bill Condon narrates a musical dance sequence featuring Jennifer Lopez.`\
-https://nytimes.com/video/movies/100000010452369/kiss-of-the-spider-woman-scene.html
+**Dispute Over Indiana College Newspaper Draws Censorship Accusations**\
+`The administration at Indiana University Bloomington fired the adviser to the paper and barred the publication from putting out a print edition.`\
+https://nytimes.com/2025/10/17/business/media/indiana-university-daily-student-newspaper.html
 
-**Apple, Caught Between U.S. and China, Pledges Investment in Both**\
-`In Beijing this week, the company’s chief executive, Tim Cook, made promises similar to ones he’d made at the White House. He also got a custom Labubu.`\
-https://nytimes.com/2025/10/17/business/apple-china-us-tim-cook-investment-tech-war.html
+**The New York Times News Quiz, Oct. 17, 2025**\
+`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
+https://nytimes.com/interactive/2025/10/17/briefing/news-quiz-trump-immigration-supreme-court.html
 
-**Devastating Floods in Mexico Test a Popular President**\
-`Torrential rains last week brought death and widespread damage. President Claudia Sheinbaum has visited affected areas, facing some angry residents.`\
-https://nytimes.com/2025/10/17/world/americas/mexico-floods-missing.html
+**What We Know About the Latest ‘No Kings’ Protests**\
+`The nationwide protests are playing out as a federal government shutdown lingers and troops are being deployed in cities.`\
+https://nytimes.com/2025/10/17/us/no-kings-protest.html
 
-**Jury rules against former Red Wings Zamboni driver in age discrimination case**\
-`Al Sobotka, who brought the lawsuit against Olympia Entertainment in 2022, said he's "devastated" by the verdict.`\
-https://nytimes.com/athletic/6723725/2025/10/17/red-wings-zamboni-driver-lawsuit/
+**Summit With Zelensky Opens Trump’s New Push for Ukraine Cease-Fire**\
+`President Trump is energized by the Mideast deal, but President Volodymyr Zelensky of Ukraine is seeking fewer talks and more weapons to force Russia to negotiate.`\
+https://nytimes.com/2025/10/17/world/europe/zelensky-trump-meeting-white-house-ukraine-war.html
 
-**At a Fading ‘Island of Misfit Toys,’ Zoo Animals Face an Uncertain Fate**\
-`It went from one of the worst zoos in America to a beloved menagerie filled with disabled and elderly native species. Now the money has just about run out.`\
-https://nytimes.com/2025/10/17/nyregion/at-a-fading-island-of-misfit-toys-zoo-animals-face-an-uncertain-fate.html
+**Can You Make Use of Your Neighbors’ Trash Cans?**\
+`A ruling on dog-waste-disposal etiquette.`\
+https://nytimes.com/interactive/2025/10/17/magazine/19mag-hodgmanquiz.html
 
-**Over the Dinner Table**\
-`Tell us a story, real or made up, that is inspired by this image.`\
-https://nytimes.com/2025/10/17/learning/over-the-dinner-table.html
+**Universities Are Standing Up to Trump**\
+`A White House proposal for special funding treatment crossed a line for several schools. Some say it feels like a turning point in the federal government’s battle with higher education.`\
+https://nytimes.com/2025/10/17/us/universities-are-standing-up-to-trump.html
 
-**Spelling Bee Forum**\
-`Feeling stuck on today’s puzzle? We can help.`\
-https://nytimes.com/2025/10/17/crosswords/spelling-bee-forum.html
+**What Are Your Fall Rituals and Traditions?**\
+`Cozy TV shows. Leaf peeping. Football. How do you honor and celebrate the changing of the seasons?`\
+https://nytimes.com/2025/10/17/learning/what-are-your-fall-rituals-and-traditions.html
 
-**Zelensky Seeks More Weapons as Trump Plans Putin Meeting**\
-`Trump said he planned to meet with President Vladimir Putin or Russia in a few weeks to discuss a cease-fire as President Volodymyr Zelensky of Ukraine arrived in Washington to secure more weapons.`\
-https://nytimes.com/video/world/americas/100000010464187/trump-putin-cease-fire-ukraine.html
+**Can the Israel-Hamas Deal Hold?**\
+`The veteran Middle East negotiators Hussein Agha and Robert Malley assess the promises and pitfalls of Trump’s peace deal.`\
+https://nytimes.com/2025/10/17/opinion/ezra-klein-podcast-robert-malley-hussein-agha.html
 
-**Candidates Battle in First Debate of N.Y.C. Mayor Race**\
-`Zohran Mamdani, Andrew Cuomo and Curtis Sliwa traded bitter personal attacks on Thursday to win over voters ahead of the Nov. 4 election.`\
-https://nytimes.com/video/nyregion/100000010464189/nyc-mayor-debate-mamdani-cuomo-sliwa.html
+**Lady Gaga Was Always Gothic. Now the World Has Caught Up to Her.**\
+`At a moment when other pop stars are flirting with dark spectacle, Gaga’s “Mayhem” tour shows that she has perfected it.`\
+https://nytimes.com/2025/10/17/magazine/lady-gaga-mayhem-tour-gothic.html
 

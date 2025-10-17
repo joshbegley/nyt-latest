@@ -1,3 +1,19 @@
+**Read the document**\
+`Federal prosecutors accused a man in Louisiana of participating in the Hamas-led attack on Israel on Oct. 7, 2023, according to a criminal complaint unsealed on Thursday.`\
+https://nytimes.com/interactive/2025/10/17/us/hamas-case-louisiana-complaint.html
+
+**Projecting the CFP (and every other bowl) at the 2025 season's midpoint**\
+`Around 35 teams still harbor College Football Playoff hopes. For more than 90 others, hopes of playing in a bowl are the next best thing.`\
+https://nytimes.com/athletic/6723508/2025/10/17/college-football-midseason-bowl-playoff-projections/
+
+**10 fantasy basketball situations to watch including Trae Young’s usage, Rockets and Mavs**\
+`Stan Son shares 10 NBA situations that intrigue him heading into the 2025-26 fantasy basketball campaign.`\
+https://nytimes.com/athletic/6723606/2025/10/17/fantasy-basketball-situations-trae-young-rockets-mavericks/
+
+**She's 80 years old, and she just completed the famed Ironman World Championship race**\
+`"The important thing is that people see from my story that they can maybe push themselves a little bit," Natalie Grabow says.`\
+https://nytimes.com/athletic/6723502/2025/10/17/natalie-grabow-ironman-world-championship-race-80-years-old/
+
 **Is It Healthy to Grieve Before a Loss?**\
 `Yes. Here’s how to cope.`\
 https://nytimes.com/2025/10/17/well/anticipatory-grief.html
@@ -14,27 +30,11 @@ https://nytimes.com/interactive/2025/10/17/briefing/news-quiz-trump-immigration-
 `The nationwide protests are playing out as a federal government shutdown lingers and troops are being deployed in cities.`\
 https://nytimes.com/2025/10/17/us/no-kings-protest.html
 
-**Summit With Zelensky Opens Trump’s New Push for Ukraine Cease-Fire**\
+**Meeting With Zelensky Opens Trump’s New Push for Ukraine Cease-Fire**\
 `President Trump is energized by the Mideast deal, but President Volodymyr Zelensky of Ukraine is seeking fewer talks and more weapons to force Russia to negotiate.`\
 https://nytimes.com/2025/10/17/world/europe/zelensky-trump-meeting-white-house-ukraine-war.html
 
 **Can You Make Use of Your Neighbors’ Trash Cans?**\
 `A ruling on dog-waste-disposal etiquette.`\
 https://nytimes.com/interactive/2025/10/17/magazine/19mag-hodgmanquiz.html
-
-**Universities Are Standing Up to Trump**\
-`A White House proposal for special funding treatment crossed a line for several schools. Some say it feels like a turning point in the federal government’s battle with higher education.`\
-https://nytimes.com/2025/10/17/us/universities-are-standing-up-to-trump.html
-
-**What Are Your Fall Rituals and Traditions?**\
-`Cozy TV shows. Leaf peeping. Football. How do you honor and celebrate the changing of the seasons?`\
-https://nytimes.com/2025/10/17/learning/what-are-your-fall-rituals-and-traditions.html
-
-**Can the Israel-Hamas Deal Hold?**\
-`The veteran Middle East negotiators Hussein Agha and Robert Malley assess the promises and pitfalls of Trump’s peace deal.`\
-https://nytimes.com/2025/10/17/opinion/ezra-klein-podcast-robert-malley-hussein-agha.html
-
-**Lady Gaga Was Always Gothic. Now the World Has Caught Up to Her.**\
-`At a moment when other pop stars are flirting with dark spectacle, Gaga’s “Mayhem” tour shows that she has perfected it.`\
-https://nytimes.com/2025/10/17/magazine/lady-gaga-mayhem-tour-gothic.html
 
