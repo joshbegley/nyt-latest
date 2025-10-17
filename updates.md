@@ -1,3 +1,7 @@
+**Live Updates: Trump to Meet With Zelensky, Making New Push for Ukraine Cease-Fire**\
+``\
+https://nytimes.com/live/2025/10/17/us/trump-news-zelensky
+
 **Maresca: Palmer out for six more weeks**\
 `The Chelsea head coach also confirmed centre-back Benoit Badiashile will be absent until December due to injury.`\
 https://nytimes.com/athletic/6725638/2025/10/17/cole-palmer-chelsea-injury-maresca/

@@ -1,3 +1,11 @@
+**Instagram Unveils Teen Safety Features for A.I. Chatbots**\
+`Instagram is introducing parental controls and limits to conversations on topics like self-harm as concerns grow over how A.I. chatbots affect mental health.`\
+https://nytimes.com/2025/10/17/technology/instagram-teen-safety-features-ai-chatbots.html
+
+**Arsenal's Odegaard remains 'out for weeks' with MCL injury - Arteta**\
+`The Norwegian has played only seven times for Arsenal this season while dealing with various injuries.`\
+https://nytimes.com/athletic/6693227/2025/10/17/martin-odegaard-injury-arsenal-latest/
+
 **Live Updates: Trump to Meet With Zelensky, Making New Push for Ukraine Cease-Fire**\
 ``\
 https://nytimes.com/live/2025/10/17/us/trump-news-zelensky
@@ -29,12 +37,4 @@ https://nytimes.com/issue/todaysinyt/2025/10/17/todays-new-york-times-internatio
 **Why Was Roe v. Wade Overturned?**\
 `Abortion isn’t a right protected by the Constitution nor is it deeply rooted in the country’s history.`\
 https://nytimes.com/video/opinion/100000010436084/why-was-roe-v-wade-overturned.html
-
-**'It's fair to judge him now' - Slot says Isak now up to speed at Liverpool**\
-`The Sweden striker has been eased in gently since completing a £125million move from Newcastle United at the end of the summer window.`\
-https://nytimes.com/athletic/6725540/2025/10/17/alexander-isak-liverpool-slot/
-
-**After ‘Horrors,’ Israeli Hostages Taste Freedom and Savor Family Reunions**\
-`Some former captives have been sent home from the hospital. But a doctor said they all had “endured untold adversity,” as details emerge of their time in Gaza’s tunnels.`\
-https://nytimes.com/2025/10/17/world/middleeast/israel-hostages-conditions-recovery.html
 
