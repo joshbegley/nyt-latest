@@ -1,3 +1,11 @@
+**2 Pennsylvania Psychics Stole Over $600,000 to Remove Curses, Prosecutors Say**\
+`One woman alone gave more than half a million dollars in cash and luxury items to remove the “black magic” hindering her love and happiness, the authorities said.`\
+https://nytimes.com/2025/10/17/us/psychics-scam-curse.html
+
+**Trump Seeks to Build a Triumphal Arch in Washington for Nation’s 250th Birthday**\
+`The arch will stand in the middle of the traffic roundabout at the end of Arlington Memorial Bridge, across from the Lincoln Memorial.`\
+https://nytimes.com/2025/10/17/us/politics/trump-arch-monument-dc-250th-anniversary.html
+
 **Judge Orders Some Federal Agents to Wear Body Cameras in Chicago Area**\
 `The order comes as the Trump administration has carried out an immigration crackdown in the region.`\
 https://nytimes.com/2025/10/17/us/chicago-ice-body-cameras.html
