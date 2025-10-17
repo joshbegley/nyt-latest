@@ -27,7 +27,7 @@ https://nytimes.com/video/world/americas/100000010464187/trump-putin-cease-fire-
 https://nytimes.com/video/nyregion/100000010464189/nyc-mayor-debate-mamdani-cuomo-sliwa.html
 
 **Explosion Destroys Vehicles Outside Home of Italian Journalist**\
-`Sigfrido Ranucci, the host of the investigative program Report, was previously under police protection because of his reporting on organized crime.`\
+`Prime Minister Giorgia Meloni condemned the attack on Sigfrido Ranucci, the host of the investigative program “Report.” He was previously under police protection.`\
 https://nytimes.com/2025/10/17/world/europe/sigfrido-ranucci-car-bomb.html
 
 **Top San Francisco Lawmaker Expected to Challenge Nancy Pelosi in Primary**\

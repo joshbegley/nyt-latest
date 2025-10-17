@@ -1,3 +1,7 @@
+**Explosion Destroys Vehicles Outside Home of Italian Journalist**\
+`Prime Minister Giorgia Meloni condemned the attack on Sigfrido Ranucci, the host of the investigative program “Report.” He was previously under police protection.`\
+https://nytimes.com/2025/10/17/world/europe/sigfrido-ranucci-car-bomb.html
+
 **Devastating Floods in Mexico Test a Popular President**\
 `Torrential rains last week brought death and widespread damage. President Claudia Sheinbaum has visited affected areas, facing some angry residents.`\
 https://nytimes.com/2025/10/17/world/americas/mexico-floods-missing.html
