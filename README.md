@@ -1,3 +1,11 @@
+**I Have Parkinson’s: A Range of Voices**\
+`Readers, many with Parkinson’s, respond to an article about Sue Goldie, who has the disease. Also: Tears over Trump’s America; losing to China; learning through play.`\
+https://nytimes.com/2025/10/17/opinion/parkinsons-sue-goldie.html
+
+**Cuomo Ramps Up Attacks on Sliwa as He Hunts for Republican Votes**\
+`The morning after the first mayoral debate of the general election, Andrew M. Cuomo said it would be nearly impossible to win if Curtis Sliwa did not drop out. Mr. Sliwa said he was not going anywhere.`\
+https://nytimes.com/2025/10/17/nyregion/cuomo-sliwa-mamdani.html
+
 **Phillies expect to part ways with Nick Castellanos this offseason: Sources**\
 `Castellanos, who's owed $20 million next year, is expected to be traded or released this offseason as the Phillies remake their outfield.`\
 https://nytimes.com/athletic/6726521/2025/10/17/phillies-offseason-nick-castellanos-trade-release/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/17/us/massachusetts-school-staff-dies-student-kick.h
 **Teresa Ulloa Ziáurriz, Rights Advocate Who Fought Sex Traffickers, Dies at 75**\
 `In Mexico, where the cult of machismo has long held sway, she waged a lonely, sometimes dangerous and often single-handed fight against prostitution and organized sex rings.`\
 https://nytimes.com/2025/10/17/world/americas/teresa-ulloa-ziaurriz-dead.html
-
-**NHL’s next expansion team will cost at least $2 billion: Sources**\
-`The NHL may not actively be seeking expansion, but it’s already established a floor for what any future franchise will cost.`\
-https://nytimes.com/athletic/6726493/2025/10/17/nhl-expansion-price-cost/
-
-**East London**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/things-to-do-east-london
 

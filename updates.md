@@ -1,3 +1,7 @@
+**Phillies expect to part ways with Nick Castellanos this offseason: Sources**\
+`Castellanos, who's owed $20 million next year, is expected to be traded or released this offseason as the Phillies remake their outfield.`\
+https://nytimes.com/athletic/6726521/2025/10/17/phillies-offseason-nick-castellanos-trade-release/
+
 **Normandy, France**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/things-to-do-normandy
