@@ -34,7 +34,3 @@ https://nytimes.com/athletic/6723368/2025/10/17/f1-apple-tv-formula-one-streamin
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6726134/2025/10/17/victor-wembanyama-thunder-cavaliers-the-bounce/
 
-**Postecoglou says he will bring success to Forest if given time**\
-`"Some will look at the weeds, I'll look at what's growing," Postecoglou said ahead of Saturday's game against Chelsea.`\
-https://nytimes.com/athletic/6726217/2025/10/17/ange-postecoglou-nottingham-forest-success/
-
