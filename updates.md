@@ -1,3 +1,7 @@
+**Small Plane Crashes in Michigan, Killing 3**\
+`The cause of the plane crash was not immediately known, officials said.`\
+https://nytimes.com/2025/10/16/us/plane-crash-bath-township-michigan.html
+
 **Police Warn Against Pranking People With A.I. Images of Homeless Intruder**\
 `Law enforcement departments in several states said that an online trend in which people are tricked into believing a homeless man is in their homes could have dangerous consequences.`\
 https://nytimes.com/2025/10/16/us/police-prank-ai-homeless-tiktok.html

@@ -1,3 +1,7 @@
+**Small Plane Crashes in Michigan, Killing 3**\
+`The cause of the plane crash was not immediately known, officials said.`\
+https://nytimes.com/2025/10/16/us/plane-crash-bath-township-michigan.html
+
 **Police Warn Against Pranking People With A.I. Images of Homeless Intruder**\
 `Law enforcement departments in several states said that an online trend in which people are tricked into believing a homeless man is in their homes could have dangerous consequences.`\
 https://nytimes.com/2025/10/16/us/police-prank-ai-homeless-tiktok.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010463153/trump-ivf-announcement.htm
 **'Never had another player like him': Inside Blue Jackets' decision to draft Cam Atkinson**\
 `A look at how Atkinson went from undersized prospect to Blue Jackets legend as he formally retired from the NHL Thursday.`\
 https://nytimes.com/athletic/6724024/2025/10/16/blue-jackets-cam-atkinson-retires/
-
-**“The difference between me and the assemblyman is he doesn’t like the police. That’s why he won’t hire more police when everyone else says we need more police.”**\
-`By Benjamin Oreskes`\
-https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/police
 
