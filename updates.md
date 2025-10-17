@@ -1,3 +1,11 @@
+**Read the document**\
+`Federal prosecutors accused a man in Louisiana of participating in the Hamas-led attack on Israel on Oct. 7, 2023, according to a criminal complaint unsealed on Thursday.`\
+https://nytimes.com/interactive/2025/10/17/us/hamas-case-louisiana-complaint.html
+
+**The Steelers' Flacco nightmare becomes a reality on Thursday night**\
+`The Bengals' newly-acquired QB torched the Steelers' remade secondary.`\
+https://nytimes.com/athletic/6725353/2025/10/17/pittsburgh-steelers-cincinnati-bengals-thursday-night-loss/
+
 **The Pulse: Joe frickin’ Flacco**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6723695/2025/10/17/joe-flacco-bengals-steelers-the-pulse/

@@ -1,3 +1,11 @@
+**Read the document**\
+`Federal prosecutors accused a man in Louisiana of participating in the Hamas-led attack on Israel on Oct. 7, 2023, according to a criminal complaint unsealed on Thursday.`\
+https://nytimes.com/interactive/2025/10/17/us/hamas-case-louisiana-complaint.html
+
+**The Steelers' Flacco nightmare becomes a reality on Thursday night**\
+`The Bengals' newly-acquired QB torched the Steelers' remade secondary.`\
+https://nytimes.com/athletic/6725353/2025/10/17/pittsburgh-steelers-cincinnati-bengals-thursday-night-loss/
+
 **The Pulse: Joe frickin’ Flacco**\
 `The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
 https://nytimes.com/athletic/6723695/2025/10/17/joe-flacco-bengals-steelers-the-pulse/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6725518/2025/10/17/aston-villa-maccabi-tel-aviv-fan
 **Yankees takeaways on Cody Bellinger, Jasson Domínguez, Spencer Jones and the coaching staff**\
 `GM Brian Cashman and manager Aaron Boone offered some clues about the Yankees' offseason and 2026 roster during Thursday's news conference. `\
 https://nytimes.com/athletic/6723899/2025/10/17/yankees-offseason-cody-bellinger-2026-season/
-
-**Why Chiefs' receivers room is different this season: 'It's something that's special'**\
-`Chiefs quarterback Patrick Mahomes says part of the team's offensive success can be traced to his receivers' unselfishness.`\
-https://nytimes.com/athletic/6723178/2025/10/17/chiefs-wide-receivers-special-bond/
-
-**Cowboys' defensive progress, CeeDee Lamb's impact and ... the sun: 3 things I'm watching**\
-`"We’re working to take a step this week,” Dallas DC Matt Eberflus said of the defense that is allowing a league-high 412 yards per game.`\
-https://nytimes.com/athletic/6724747/2025/10/17/cowboys-ceedee-lamb-dak-prescott-commanders/
 
