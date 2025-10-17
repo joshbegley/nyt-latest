@@ -1,3 +1,7 @@
+**With Jackson Chourio injured and down 3-0 in NLCS, Brewers’ dreams are almost dashed**\
+`To avoid a sweep, the Brewers will have to get through Shohei Ohtani in full two-way form.`\
+https://nytimes.com/athletic/6724982/2025/10/16/brewers-jackson-chourio-nlcs-game-3/
+
 **‘Ragtime’ Review: Checking the Status of Our American Dream**\
 `Joshua Henry, Caissie Levy and Brandon Uranowitz lead the glorious cast of Lear deBessonet’s inspiriting Broadway revival at Lincoln Center Theater.`\
 https://nytimes.com/2025/10/16/theater/ragtime-review-henry-debessonet.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/16/us/elections/virginia-debate-jay-jones-jason-miya
 **Small Plane Crashes in Michigan, Killing 3**\
 `The cause of the plane crash was not immediately known, officials said.`\
 https://nytimes.com/2025/10/16/us/plane-crash-bath-township-michigan.html
-
-**Police Warn Against Pranking People With A.I. Images of Homeless Intruder**\
-`Law enforcement departments in several states said that an online trend in which people are tricked into believing a homeless man is in their homes could have dangerous consequences.`\
-https://nytimes.com/2025/10/16/us/police-prank-ai-homeless-tiktok.html
 
