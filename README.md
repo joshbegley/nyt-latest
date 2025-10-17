@@ -1,3 +1,7 @@
+**Plastic Bag Makers to Pay California $1.7 Million for False Recycling Claims**\
+`The state also announced it was suing three other companies that it said illegally marketed their plastic bags as being recyclable when they were not.`\
+https://nytimes.com/2025/10/17/us/california-plastic-bags-unrecylable-settlement-lawsuit.html
+
 **Georgia Man Charged With Raping Women in Queens in the 1990s**\
 `New DNA testing linked Michael Benjamin, 57, to the assaults of five women between 1995 and 1997 in southeast Queens, according to the authorities.`\
 https://nytimes.com/2025/10/17/nyregion/queens-rape-case-1990s-arrest-georgia.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/17/us/politics/trump-supreme-court-national-guard-ch
 **Sabres part with VP of ticket sales and service after evaluation of operations**\
 `The Sabres have struggled with attendance in recent seasons largely due to the team’s record playoff drought.`\
 https://nytimes.com/athletic/6726934/2025/10/17/sabres-tickets-attendance-sales-service/
-
-**Mohammed Ben Sulayem set to run unopposed as FIA president: What does this mean for F1?**\
-`Prospective candidate Tim Mayer said on Friday that “the rules of this election mean that there will be no election".`\
-https://nytimes.com/athletic/6726844/2025/10/17/fia-president-ben-sulayem-tim-mayer-f1/
 
