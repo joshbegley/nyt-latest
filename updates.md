@@ -1,3 +1,19 @@
+**Jury rules against former Red Wings Zamboni driver in age discrimination case**\
+`Al Sobotka, who brought the lawsuit against Olympia Entertainment in 2022, said he's "devastated" by the verdict.`\
+https://nytimes.com/athletic/6723725/2025/10/17/red-wings-zamboni-driver-lawsuit/
+
+**At a Fading ‘Island of Misfit Toys,’ Zoo Animals Face an Uncertain Fate**\
+`It went from one of the worst zoos in America to a beloved menagerie filled with disabled and elderly native species. Now the money has just about run out.`\
+https://nytimes.com/2025/10/17/nyregion/at-a-fading-island-of-misfit-toys-zoo-animals-face-an-uncertain-fate.html
+
+**Over the Dinner Table**\
+`Tell us a story, real or made up, that is inspired by this image.`\
+https://nytimes.com/2025/10/17/learning/over-the-dinner-table.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/10/17/crosswords/spelling-bee-forum.html
+
 **Zelensky Seeks More Weapons as Trump Plans Putin Meeting**\
 `Trump said he planned to meet with President Vladimir Putin or Russia in a few weeks to discuss a cease-fire as President Volodymyr Zelensky of Ukraine arrived in Washington to secure more weapons.`\
 https://nytimes.com/video/world/americas/100000010464187/trump-putin-cease-fire-ukraine.html
