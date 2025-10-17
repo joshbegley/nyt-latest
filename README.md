@@ -1,3 +1,7 @@
+**Treasury Secretary Stakes Credibility and Taxpayer Money on Argentina Bet**\
+`Treasury Secretary Scott Bessent’s multibillion-dollar bailout of a serial defaulter raises the specter of losses for the United States.`\
+https://nytimes.com/2025/10/17/us/politics/trump-argentina-bailout-bessent.html
+
 **Costa Brava**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/things-to-do-costa-brava
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6726145/2025/10/17/joe-flacco-never-used-icy-hot/
 **The 10.26.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/10/17/the-102625-issue
-
-**Fever, Joint Pain, Aching Toes. A Mystery Ailment, a Stunning Diagnosis.**\
-`A Long Island woman had no idea what had hit her. Her pursuit of an answer led to a mosquito-borne disease rarely seen in the United States.`\
-https://nytimes.com/2025/10/17/nyregion/chikungunya-long-island-case.html
 
