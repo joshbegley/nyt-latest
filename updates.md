@@ -1,3 +1,19 @@
+**Mayoral Candidates Spar Over Trump, Qualifications and the Q Train**\
+`The first New York City mayoral debate among Andrew Cuomo, Zohran Mamdani and Curtis Sliwa covered a minefield of political issues, both global and hyperlocal.`\
+https://nytimes.com/2025/10/17/nyregion/mayoral-debate-mamdani-cuomo-sliwa.html
+
+**Trump Refiles His $15 Billion Defamation Lawsuit Against The New York Times**\
+`A federal judge had previously dismissed the complaint as unnecessarily lengthy and digressive. The president claims that The Times sought to defame him during the 2024 election.`\
+https://nytimes.com/2025/10/17/business/media/trump-lawsuit-new-york-times.html
+
+**Welcome to the Premier League's late-goal era**\
+`Of the 70 matches played, 10 have been won by stoppage-time goals. It’s the highest share at this stage in any Premier League campaign`\
+https://nytimes.com/athletic/6718691/2025/10/17/premier-league-late-goals-2025-26/
+
+**'We cannot just accept that': Inside Evan Bouchard's calamitous game vs. Islanders**\
+`Bouchard was the biggest reason the Oilers fell in regulation for the first time in four games this season.`\
+https://nytimes.com/athletic/6725106/2025/10/17/oilers-islanders-evan-bouchard-errors/
+
 **'We cannot just accept that': Inside Evan Bouchard's calamitous game vs. Islanders**\
 `Bouchard was the biggest reason why the Oilers fell in regulation for the first time in four games this season.`\
 https://nytimes.com/athletic/6725106/2025/10/17/oilers-islanders-evan-bouchard-errors/
