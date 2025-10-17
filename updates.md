@@ -1,3 +1,11 @@
+**7 Takeaways From the First N.Y.C. Mayoral Debate**\
+`Zohran Mamdani, Andrew Cuomo and Curtis Sliwa sparred over serious topics like the Israel-Hamas war and President Trump, and more curious subjects like parade attendance.`\
+https://nytimes.com/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-takeaways.html
+
+**Salesforce Offers Its Services to Boost ICE Immigration Force**\
+`The San Francisco-based firm has told ICE that it could use A.I. to help the agency nearly triple its staff. The company’s C.E.O., once a progressive tech titan, has embraced President Trump.`\
+https://nytimes.com/2025/10/16/us/salesforce-benioff-ice.html
+
 **Pumpkin-Butterscotch Custard With Spiced Whipped Cream**\
 `Butterscotch pudding gets an autumnal makeover with the addition of pumpkin purée and a fluffy, spiced whipped cream topping.`\
 https://nytimes.com/video/dining/100000010366127/pumpkin-butterscotch-custard-with-spiced-whipped-cream.html
