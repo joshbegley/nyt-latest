@@ -1,3 +1,15 @@
+**Treasury Secretary Stakes Credibility and Taxpayer Money on Argentina Bet**\
+`Treasury Secretary Scott Bessent’s multibillion-dollar bailout of a serial defaulter raises the specter of losses for the United States.`\
+https://nytimes.com/2025/10/17/us/politics/trump-argentina-bailout-bessent.html
+
+**Costa Brava**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/things-to-do-costa-brava
+
+**NFL Week 7 projected scores: Model predicts point spreads and totals for every game**\
+`Austin Mock's projection model predicts point spreads and point totals for NFL Week 7 games.`\
+https://nytimes.com/athletic/6723414/2025/10/17/nfl-week-7-projected-scores-model-predicts-point-spreads-totals/
+
 **Massachusetts School Employee Dies After Trying to Restrain Student**\
 `The student, 14, has been charged with assault.`\
 https://nytimes.com/2025/10/17/us/massachusetts-school-staff-dies-student-kick.html

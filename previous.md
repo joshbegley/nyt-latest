@@ -1,3 +1,15 @@
+**Treasury Secretary Stakes Credibility and Taxpayer Money on Argentina Bet**\
+`Treasury Secretary Scott Bessent’s multibillion-dollar bailout of a serial defaulter raises the specter of losses for the United States.`\
+https://nytimes.com/2025/10/17/us/politics/trump-argentina-bailout-bessent.html
+
+**Costa Brava**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/things-to-do-costa-brava
+
+**NFL Week 7 projected scores: Model predicts point spreads and totals for every game**\
+`Austin Mock's projection model predicts point spreads and point totals for NFL Week 7 games.`\
+https://nytimes.com/athletic/6723414/2025/10/17/nfl-week-7-projected-scores-model-predicts-point-spreads-totals/
+
 **Massachusetts School Employee Dies After Trying to Restrain Student**\
 `The student, 14, has been charged with assault.`\
 https://nytimes.com/2025/10/17/us/massachusetts-school-staff-dies-student-kick.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6726145/2025/10/17/joe-flacco-never-used-icy-hot/
 **The 10.26.25 Issue**\
 ``\
 https://nytimes.com/issue/magazine/2025/10/17/the-102625-issue
-
-**Fever, Joint Pain, Aching Toes. A Mystery Ailment, a Stunning Diagnosis.**\
-`A Long Island woman had no idea what had hit her. Her pursuit of an answer led to a mosquito-borne disease rarely seen in the United States.`\
-https://nytimes.com/2025/10/17/nyregion/chikungunya-long-island-case.html
-
-**Some Chicago Businesses Feeling the Impact of Trump’s Immigration Blitz**\
-`More customers and workers are staying home, they say, leading to lower revenue and worries of wider economic repercussions for the city.`\
-https://nytimes.com/2025/10/17/us/chicago-economy-business-immigration-crackdown.html
-
-**NHL referee mistakenly announces wrong goal call in Panthers-Devils game**\
-`Referee Michael Markovic accidentally called a goal on the ice before reversing course and calling "no goal" following a coach's challenge.`\
-https://nytimes.com/athletic/6726179/2025/10/17/nhl-referee-mistake-panthers-devils-goalie-interference/
 
