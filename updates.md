@@ -1,3 +1,15 @@
+**With injuries undoing the Commanders' plans, Jayden Daniels is running out of receivers**\
+`The Commanders wade into Week 7 with the very real possibility they could be without their three top top receivers because of injuries.`\
+https://nytimes.com/athletic/6725795/2025/10/17/commanders-wide-receivers-terry-mclaurin-deebo-samuel-noah-brown/
+
+**NFL Week 7 schedule rankings: Top 5 Sunday games to help us find the good teams**\
+`There's a huge glut in the middle of the NFL standings so far. Here are five games that could help us differentiate the real from the fake. `\
+https://nytimes.com/athletic/6720062/2025/10/17/nfl-week-7-schedule-falcons-49ers-vikings-eagles-how-to-watch/
+
+**Psychological Warfare in Venezuela**\
+`We examine the Trump administration’s tactics against Venezuela.`\
+https://nytimes.com/2025/10/17/briefing/psychological-warfare-in-venezuela.html
+
 **With Parcells and Belichick, it was personal. For Mike Vrabel, facing old team is business**\
 `Forget trying to win one for the Gipper. The Patriots just want to win one (while figuring out who, or what, a Gipper is).`\
 https://nytimes.com/athletic/6721541/2025/10/17/mike-vrabel-patriots-titans-return/
