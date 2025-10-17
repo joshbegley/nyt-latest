@@ -1,3 +1,7 @@
+**No Water, No Power: The Misery That Fueled Madagascar’s Youth**\
+`The young people who toppled the government are now confronting questions about what’s next, and who will deliver on their demands.`\
+https://nytimes.com/2025/10/17/world/africa/madagascar-coup-youth-protests-next.html
+
 **Cowboys' Trevon Diggs out Sunday vs. Commanders after in-home accident**\
 `In six games this season, Trevon Diggs has 18 tackles and one TFL.`\
 https://nytimes.com/athletic/6726585/2025/10/17/cowboys-trevon-diggs-out-injury-commanders/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/17/opinion/parkinsons-sue-goldie.html
 **Cuomo Ramps Up Attacks on Sliwa as He Hunts for Republican Votes**\
 `The morning after the first mayoral debate of the general election, Andrew M. Cuomo said it would be nearly impossible to win if Curtis Sliwa did not drop out. Mr. Sliwa said he was not going anywhere.`\
 https://nytimes.com/2025/10/17/nyregion/cuomo-sliwa-mamdani.html
-
-**Phillies expect to part ways with Nick Castellanos this offseason: Sources**\
-`Castellanos, who's owed $20 million next year, is expected to be traded or released this offseason as the Phillies remake their outfield.`\
-https://nytimes.com/athletic/6726521/2025/10/17/phillies-offseason-nick-castellanos-trade-release/
 
