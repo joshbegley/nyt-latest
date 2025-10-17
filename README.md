@@ -1,3 +1,19 @@
+**Dodgers shift into juggernaut mode: 'We've been here. We know what it takes'**\
+`The Dodgers' all-around performance in Game 3 was just the latest example of why they are on the brink of returning to the Fall Classic.`\
+https://nytimes.com/athletic/6725056/2025/10/17/dogers-nlcs-game-3-mlb-tyler-glasnow/
+
+**Abdoulaye Doucoure exclusive: 'We were a big target at Everton. They were attacking the club. It was a motivation'**\
+`The Mali midfielder departed the Merseyside club in the summer after five years over which he came to epitomise the team's fighting spirit`\
+https://nytimes.com/athletic/6719670/2025/10/17/abdoulaye-doucoure-everton-mali-interview/
+
+**How right-back became Liverpool's problem position**\
+`Arne Slot has tried Conor Bradley, Jeremie Frimpong and Dominik Szoboszlai this term. Now he needs to find some stability in the position`\
+https://nytimes.com/athletic/6722103/2025/10/17/liverpool-right-back-bradley-frimpong-szoboszlai/
+
+**England's Esme Morgan on making America home and why she loves the Jacksonville Jaguars**\
+`England international Esme Morgan is a huge Jacksonville Jaguars fan and will be in London this weekend to watch them play`\
+https://nytimes.com/athletic/6715854/2025/10/17/esme-morgan-washington-spirit-nwsl-jacksonville-jaguars-nfl/
+
 **Tottenham have started the Thomas Frank era well. Now the real test begins**\
 `A tough-looking run of fixtures should show us how much impact Spurs' new boss has made, both tactically and with player fitness`\
 https://nytimes.com/athletic/6719553/2025/10/17/tottenham-rotation-fixture-list-thomas-frank/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6722109/2025/10/17/aston-villa-test-emery/
 **Eric Garcia's redemption: From the Barcelona exit door to Flick's best defender**\
 `Garcia's transformation will have come as a surprise to many — now they need him more than ever`\
 https://nytimes.com/athletic/6722858/2025/10/17/eric-garcia-barcelona-hansi-flick/
-
-**Ilkay Gundogan: My game in my words**\
-`The former Borussia Dortmund and Manchester City midfielder spent his peak years playing for Jurgen Klopp and Pep Guardiola — and it shows`\
-https://nytimes.com/athletic/6719784/2025/10/17/ilkay-gundogan-man-city-pep-guardiola-interview/
-
-**Josh Windass: 'My American in-laws knew more about Wrexham than me!'**\
-`Josh Windass explains how his move to Wales came about, his motivations for it - and why there is still 'a lot to improve on'...`\
-https://nytimes.com/athletic/6716178/2025/10/17/josh-windass-interview-wrexham-transfer/
-
-**The muscle that no one talks about**\
-`Apart from in pregnancy, the pelvic floor is barely talked about at all – certainly not in elite sport. But it should be`\
-https://nytimes.com/athletic/6683234/2025/10/17/pelvic-floor-sport-athletes-physiotherapy/
-
-**Premier League Predictions: Liverpool vs Man United, Spurs vs Aston Villa and the rest of Matchday 8**\
-`Who's leading after MD7? And what does our writer, the algorithm, a child and this week's subscriber expect to see on Matchday 8?`\
-https://nytimes.com/athletic/6722323/2025/10/17/premier-league-predictions-md8/
 
