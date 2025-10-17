@@ -1,3 +1,7 @@
+**Spanish clubs to protest against La Liga game in Miami, players' union announces**\
+`The group said it had the support of the captains for the “protest against La Liga’s lack of transparency, dialogue and consistency."`\
+https://nytimes.com/athletic/6726768/2025/10/17/la-liga-miami-game-protest-news/
+
 **Mangione Seeks Information About UnitedHealth’s Contact With Trump**\
 `Lawyers for Luigi Mangione, charged with killing UnitedHealthcare’s chief executive, are asking for details about a reported meeting between the White House and an executive with the insurer.`\
 https://nytimes.com/2025/10/17/nyregion/mangione-united-healthcare-filing.html
