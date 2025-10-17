@@ -1,3 +1,11 @@
+**Celtics' Jaylen Brown day-to-day after hamstring injury**\
+`Brown participated in everything but the live portions of practice Friday, according to Mazzulla.`\
+https://nytimes.com/athletic/6724339/2025/10/17/jaylen-brown-injury-celtics-update-hamstring/
+
+**Prince Andrew Surrenders Duke of York Title**\
+`The royal’s fall from grace began nearly six years ago with a calamitous television interview about his ties to the convicted sex offender Jeffrey Epstein.`\
+https://nytimes.com/2025/10/17/world/europe/prince-andrew-duke-of-york-title.html
+
 **Southwest Unveils a New Cabin Design. It’s All Blue and Some Seats Have More Legroom.**\
 `The redesign features German-made seats, space for premium customers and USB charging ports. The move is part of the company’s plan to offer more upscale options.`\
 https://nytimes.com/2025/10/17/travel/southwest-airlines-cabin-design-boeing-737.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6726378/2025/10/17/yankees-brian-cashman-aaron-boon
 **The Trump Administration’s Latest Target in New York: Bus Lanes**\
 `Federal authorities ordered a halt to yet another transit project in New York City, this time a plan to add bus lanes along 34th Street in Manhattan, after the Trump administration threatened to withhold funding.`\
 https://nytimes.com/2025/10/17/nyregion/trump-administration-nyc-bus-34th-st.html
-
-**Ange Postecoglou re-opens Spurs debate – but Forest's reaction is more important**\
-`The Nottingham Forest boss defended his record with Spurs, despite a 17th-place finish last season`\
-https://nytimes.com/athletic/6726593/2025/10/17/ange-postecoglou-re-opens-spurs-debate-but-forest-reaction-to-his-rhetoric-more-important/
-
-**Review: At Ballet Theater, Tharp Comes to Push and Conquer**\
-`American Ballet Theater opened its season with an all-Twyla Tharp program, featuring her first dance for the company, “Push Comes to Shove,” and the for-the-ages “Bach Partita.”`\
-https://nytimes.com/2025/10/17/arts/dance/review-at-ballet-theater-tharp-comes-to-push-and-conquer.html
 
