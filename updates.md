@@ -1,3 +1,7 @@
+**After Facing Life in Prison, a Legal Trailblazer Steps Into Freedom**\
+`James Comer’s case helped end de facto life sentences for young offenders in New Jersey. He had been convicted of felony murder as a teenager, after his companion in a robbery shot a victim.`\
+https://nytimes.com/2025/10/17/nyregion/new-jersey-james-comer-freed.html
+
 **Rice says he’s learned a lot about himself as he returns from suspension**\
 `Rice is set to make his return to the lineup against the Las Vegas Raiders following a six-game NFL suspension to start the season.`\
 https://nytimes.com/athletic/6726904/2025/10/17/chiefs-rashee-rice-return-suspension/
