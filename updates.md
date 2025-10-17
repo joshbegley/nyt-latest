@@ -1,3 +1,5 @@
+
+
 **NFLPA vows transparency in search for new executive director**\
 `The planned approach differs from the last selection process, which union leaders conducted in great secrecy.`\
 https://nytimes.com/athletic/6726122/2025/10/17/nflpa-search-firm-executive-director/
