@@ -1,3 +1,7 @@
+**Flashback: Your Weekly History Quiz, Oct. 18, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/10/17/upshot/flashback.html
+
 **How Much Political Propaganda Art Can One Mansion Hold?**\
 `In London, an interior designer helps a director of Hollywood action films make his house a cheeky, ever-evolving statement on international authoritarianism.`\
 https://nytimes.com/2025/10/17/t-magazine/roland-emmerich-london-home-propaganda.html
