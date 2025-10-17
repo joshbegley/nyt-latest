@@ -1,3 +1,7 @@
+**‘Kiss of the Spider Woman’ | Anatomy of a Scene**\
+`The director Bill Condon narrates a musical dance sequence featuring Jennifer Lopez.`\
+https://nytimes.com/video/movies/100000010452369/kiss-of-the-spider-woman-scene.html
+
 **Apple, Caught Between U.S. and China, Pledges Investment in Both**\
 `In Beijing this week, the company’s chief executive, Tim Cook, made promises similar to ones he’d made at the White House. He also got a custom Labubu.`\
 https://nytimes.com/2025/10/17/business/apple-china-us-tim-cook-investment-tech-war.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/nyregion/100000010464189/nyc-mayor-debate-mamdani-cuom
 **Explosion Destroys Vehicles Outside Home of Italian Journalist**\
 `Prime Minister Giorgia Meloni condemned the attack on Sigfrido Ranucci, the host of the investigative program “Report.” He was previously under police protection.`\
 https://nytimes.com/2025/10/17/world/europe/sigfrido-ranucci-car-bomb.html
-
-**Top San Francisco Lawmaker Expected to Challenge Nancy Pelosi in Primary**\
-`Ms. Pelosi, 85, has not yet said whether she will run again. The challenge would be the latest example of the Democratic Party facing a push for generational change.`\
-https://nytimes.com/2025/10/17/us/politics/nancy-pelosi-scott-wiener.html
 
