@@ -1,3 +1,11 @@
+**‘Ragtime’ Review: Checking the Status of Our American Dream**\
+`Joshua Henry, Caissie Levy and Brandon Uranowitz lead the glorious cast of Lear deBessonet’s inspiriting Broadway revival at Lincoln Center Theater.`\
+https://nytimes.com/2025/10/16/theater/ragtime-review-henry-debessonet.html
+
+**Fiery Max Scherzer turns back time, then turns away Blue Jays manager**\
+`Scherzer, 41, lobbied to stay in the game when his manager emerged with a potential hook in the fifth.`\
+https://nytimes.com/athletic/6724988/2025/10/16/max-scherzer-game-4-alcs-manager-blue-jays/
+
 **Fiery Max Scherzer turns back time, then turns away Blue Jays manager**\
 `Max Scherzer, 41, lobbied to stay in the game when his manager emerged with a potential hook in the fifth.`\
 https://nytimes.com/athletic/6724988/2025/10/16/max-scherzer-game-4-alcs-manager-blue-jays/
