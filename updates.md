@@ -1,3 +1,11 @@
+**Candidates Battle in First Debate of N.Y.C. Mayor Race**\
+`Zohran Mamdani, Andrew Cuomo and Curtis Sliwa traded bitter personal attacks on Thursday to win over voters ahead of the Nov. 4 election.`\
+https://nytimes.com/video/nyregion/100000010464189/nyc-mayor-debate-mamdani-cuomo-sliwa.html
+
+**Explosion Destroys Vehicles Outside Home of Italian Journalist**\
+`Sigfrido Ranucci, the host of the investigative program Report, was previously under police protection because of his reporting on organized crime.`\
+https://nytimes.com/2025/10/17/world/europe/sigfrido-ranucci-car-bomb.html
+
 **Top San Francisco Lawmaker Expected to Challenge Nancy Pelosi in Primary**\
 `Ms. Pelosi, 85, has not yet said whether she will run again. The challenge would be the latest example of the Democratic Party facing a push for generational change.`\
 https://nytimes.com/2025/10/17/us/politics/nancy-pelosi-scott-wiener.html
