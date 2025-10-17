@@ -1,3 +1,15 @@
+**NFL Films deletes video detailing Brian Branch's struggles ahead of brawl**\
+`The video was posted as part of NFL Films' "Turning Point" series, which provides analysis of a crucial moment from a recent game.`\
+https://nytimes.com/athletic/6726192/2025/10/17/brian-branch-detroit-lions-nfl-films-kansas-city-chiefs/
+
+**How to watch Lightning vs. Red Wings: Time, TV, streaming**\
+`Find out how to watch the Tampa Bay Lightning play the Detroit Red Wings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6726364/2025/10/17/lightning-vs-red-wings-stream-how-to-watch-oct-17/
+
+**How to watch Wild vs. Capitals: Time, TV, streaming**\
+`Find out how to watch the Minnesota Wild play the Washington Capitals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6726362/2025/10/17/wild-vs-capitals-stream-how-to-watch-oct-17/
+
 **Trump Pushes Indiana Lawmakers to Redraw State Maps**\
 `A call Friday morning by the president to  Republican state senators is part of an escalating pressure campaign by the White House.`\
 https://nytimes.com/2025/10/17/us/politics/trump-indiana-senate-state-maps.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/17/world/africa/raila-odinga-funeral-kenya.html
 **This Super-Fast Shrimp Dish Tastes Like a Restaurant Meal**\
 `These perfectly cooked crustaceans soak up a dead-simple garlic-and-caper lemon sauce.`\
 https://nytimes.com/2025/10/17/dining/this-super-fast-shrimp-dish-tastes-like-a-restaurant-meal.html
-
-**Brandi Carlile Climbed Music’s Peak. Then She Had to Start Over.**\
-`After a whirlwind six years of working with icons and curating her own festival, the singer and songwriter was alone with her work, in search of a fresh spark.`\
-https://nytimes.com/2025/10/17/arts/music/brandi-carlile-returning-to-myself.html
-
-**Red Light: These goalies are thriving amid the NHL's scoring bonanza. Plus: It's rankings time**\
-`NHL goaltenders could all use a hug as they’re getting scored on at the highest rate we’ve seen in two decades.`\
-https://nytimes.com/athletic/6726237/2025/10/17/nhl-red-light-newsletter-goalies-rankings/
-
-**Kevin Durant, James Harden reflect on controversial trades in Season 2 of 'Starting 5'**\
-`The Netflix series, which follows Durant, Harden, Jaylen Brown, Shai Gilgeous-Alexander and Tyrese Haliburton, debuted Thursday.`\
-https://nytimes.com/athletic/6725992/2025/10/17/kevin-durant-james-harden-starting-five-netflix/
 
