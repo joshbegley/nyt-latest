@@ -1,9 +1,13 @@
+**The Top Zingers of the Mayoral Debate**\
+`The two-hour slugfest produced some memorable one-liners, on subjects ranging from the candidates’ parents to imaginary sports championships.`\
+https://nytimes.com/2025/10/16/nyregion/mamdani-cuomo-sliwa-debate.html
+
 **Bengals-Steelers takeaways: Evan McPherson's game-winner caps a vintage Joe Flacco performance**\
 `Flacco threw for 342 yards and three touchdowns in the win.`\
 https://nytimes.com/athletic/6724931/2025/10/16/steelers-bengals-score-result-takeaways-thursday-night-football/
 
-**Anthony Stolarz is back in top form. Why he’s the key for the Leafs**\
-`Stolarz made 28 saves in Toronto's 2-1 overtime win over the New York Rangers Thursday.`\
+**Anthony Stolarz is back in top form. Why he's the key for the Leafs**\
+`Stolarz made 28 saves in Toronto's 2-1 overtime win over the New York Rangers on Thursday.`\
 https://nytimes.com/athletic/6725042/2025/10/16/maple-leafs-rangers-anthony-stolarz/
 
 **Mariners-Blue Jays Game 4 takeaways: It’s suddenly a series again in Seattle**\
@@ -33,8 +37,4 @@ https://nytimes.com/video/dining/100000010366127/pumpkin-butterscotch-custard-wi
 **Fact-Checking the New York Mayoral Debate**\
 `Zohran Mamdani, Andrew Cuomo and Curtis Sliwa traded barbs over the police, prostitution and President Trump.`\
 https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-fact-check
-
-**Plant on a Pergola**\
-`Karen Steinberg opens our solving weekend with an approachable themeless puzzle.`\
-https://nytimes.com/2025/10/16/crosswords/daily-puzzle-2025-10-17.html
 

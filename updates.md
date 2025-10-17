@@ -1,3 +1,7 @@
+**Bengals-Steelers takeaways: Evan McPherson's game-winner caps a vintage Joe Flacco performance**\
+`Flacco threw for 342 yards and three touchdowns in the win.`\
+https://nytimes.com/athletic/6724931/2025/10/16/steelers-bengals-score-result-takeaways-thursday-night-football/
+
 **Anthony Stolarz is back in top form. Why he’s the key for the Leafs**\
 `Stolarz made 28 saves in Toronto's 2-1 overtime win over the New York Rangers Thursday.`\
 https://nytimes.com/athletic/6725042/2025/10/16/maple-leafs-rangers-anthony-stolarz/
