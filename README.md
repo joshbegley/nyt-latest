@@ -1,3 +1,7 @@
+**Vivienne Westwood Opens Riyadh Fashion Week, as Saudis Highlight Creative Side**\
+`Some Saudis see the provocative brand’s appearance as one more example of the kingdom’s pursuit of cultural cachet. But some critics see incongruity in such pairings.`\
+https://nytimes.com/2025/10/17/world/middleeast/riyadh-fashion-week-vivienne-westwood.html
+
 **Instagram Unveils Teen Safety Features for A.I. Chatbots**\
 `Instagram is introducing parental controls and limits to conversations on topics like self-harm as concerns grow over how A.I. chatbots affect mental health.`\
 https://nytimes.com/2025/10/17/technology/instagram-teen-safety-features-ai-chatbots.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/17/weather/atlantic-hurricane-season-update.html
 **The New York Times International Edition in Print for Saturday, Oct. 18, 2025**\
 ``\
 https://nytimes.com/issue/todaysinyt/2025/10/17/todays-new-york-times-international-edition
-
-**Why Was Roe v. Wade Overturned?**\
-`Abortion isn’t a right protected by the Constitution nor is it deeply rooted in the country’s history.`\
-https://nytimes.com/video/opinion/100000010436084/why-was-roe-v-wade-overturned.html
 

@@ -1,3 +1,11 @@
+**Instagram Unveils Teen Safety Features for A.I. Chatbots**\
+`Instagram is introducing parental controls and limits to conversations on topics like self-harm as concerns grow over how A.I. chatbots affect mental health.`\
+https://nytimes.com/2025/10/17/technology/instagram-teen-safety-features-ai-chatbots.html
+
+**Arsenal's Odegaard remains 'out for weeks' with MCL injury - Arteta**\
+`The Norwegian has played only seven times for Arsenal this season while dealing with various injuries.`\
+https://nytimes.com/athletic/6693227/2025/10/17/martin-odegaard-injury-arsenal-latest/
+
 **Live Updates: Trump to Meet With Zelensky, Making New Push for Ukraine Cease-Fire**\
 ``\
 https://nytimes.com/live/2025/10/17/us/trump-news-zelensky
