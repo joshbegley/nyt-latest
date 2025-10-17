@@ -1,3 +1,15 @@
+**Yankees GM denies interfering with manager's decisions: 'We don't tell him who to play'**\
+`Yankees GM Brian Cashman appeared on New York sports radio to deny interfering with manager Aaron Boone's in-game calls.`\
+https://nytimes.com/athletic/6726378/2025/10/17/yankees-brian-cashman-aaron-boone-front-office-interference/
+
+**New York Halts Manhattan Bus Lane Plan Following White House Threats**\
+`The Trump administration threatened to withhold funding for unnamed transit projects in New York if work on the bus lanes along 34th Street were not stopped.`\
+https://nytimes.com/2025/10/17/nyregion/trump-administration-nyc-bus-34th-st.html
+
+**Ange Postecoglou re-opens Spurs debate – but Forest's reaction is more important**\
+`The Nottingham Forest boss defended his record with Spurs, despite a 17th-place finish last season`\
+https://nytimes.com/athletic/6726593/2025/10/17/ange-postecoglou-re-opens-spurs-debate-but-forest-reaction-to-his-rhetoric-more-important/
+
 **Postecoglou re-opens Spurs debate - but Forest reaction to his rhetoric now more important**\
 `The Nottingham Forest boss defended his record with Spurs, despite a 17th-place finish last season`\
 https://nytimes.com/athletic/6726593/2025/10/17/ange-postecoglou-re-opens-spurs-debate-but-forest-reaction-to-his-rhetoric-more-important/

@@ -1,4 +1,12 @@
-**Postecoglou re-opens Spurs debate - but Forest reaction to his rhetoric now more important**\
+**Yankees GM denies interfering with manager's decisions: 'We don't tell him who to play'**\
+`Yankees GM Brian Cashman appeared on New York sports radio to deny interfering with manager Aaron Boone's in-game calls.`\
+https://nytimes.com/athletic/6726378/2025/10/17/yankees-brian-cashman-aaron-boone-front-office-interference/
+
+**New York Halts Manhattan Bus Lane Plan Following White House Threats**\
+`The Trump administration threatened to withhold funding for unnamed transit projects in New York if work on the bus lanes along 34th Street were not stopped.`\
+https://nytimes.com/2025/10/17/nyregion/trump-administration-nyc-bus-34th-st.html
+
+**Ange Postecoglou re-opens Spurs debate – but Forest's reaction is more important**\
 `The Nottingham Forest boss defended his record with Spurs, despite a 17th-place finish last season`\
 https://nytimes.com/athletic/6726593/2025/10/17/ange-postecoglou-re-opens-spurs-debate-but-forest-reaction-to-his-rhetoric-more-important/
 
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/17/world/americas/trump-venezuela-chevron-oil.html
 **Let’s Remember, Stephen King Isn’t Always Scary**\
 `It’s October, which means it’s time for the master of horror to shine. Yet he’s become equally famous for several works of non-horror.`\
 https://nytimes.com/2025/10/17/books/review/podcast-stephen-king-shawshank-stand-by-me.html
-
-**U.S. Detains 2 Survivors of Latest Military Strike in Caribbean**\
-`The capture of prisoners presents a major new set of legal and policy problems for the Trump administration in its escalating campaign.`\
-https://nytimes.com/2025/10/17/us/politics/us-military-strike-survivors.html
-
-**Drought Mutes Leaf-Peeping Season**\
-`A prolonged drought and other factors have muffled the kaleidoscopic blend of reds, oranges and yellows in some areas of New England this fall.`\
-https://nytimes.com/2025/10/17/climate/fall-foliage-drought-new-england.html
 
