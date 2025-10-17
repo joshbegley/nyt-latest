@@ -1,3 +1,11 @@
+**High Five — around the world in five games**\
+`The A-League gets under way, the J-League is picking up steam, it's 'Decision Day' in MLS and two crackers in Brazil and Greece.`\
+https://nytimes.com/athletic/6725015/2025/10/17/high-five-around-the-world-in-five-games-3/
+
+**How to watch LaMelo Ball and Charlotte Hornets this season with new broadcast changes**\
+`The Charlotte Hornets have failed to reach the playoffs in all five seasons with LaMelo Ball. They'll try to turn it around for 2025-26.`\
+https://nytimes.com/athletic/6721096/2025/10/17/charlotte-hornets-lamelo-ball-tv-streaming-how-to-watch/
+
 **OpenAI Blocks Videos of Martin Luther King Jr. After Racist Depictions**\
 `People have used its Sora video app to create vulgar and sometimes racist depictions of the civil rights leader.`\
 https://nytimes.com/2025/10/17/business/openai-sora-video-martin-luther-king-jr.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6725825/2025/10/17/aston-villa-maccabi-tel-aviv-fan
 **Cristian Roldan and the making of Mauricio Pochettino's 'perfect player'**\
 `Cristian Roldan was hardly on the USMNT radar six weeks ago. Here's how he won over Mauricio Pochettino to get back in the World Cup frame`\
 https://nytimes.com/athletic/6725029/2025/10/17/cristian-roldan-usmnt-seattle-sounders-pochettino-world-cup/
-
-**How to watch the Cleveland Cavaliers in their quest to dominate Eastern Conference**\
-`At times, the Cavaliers looked like the NBA's best team last season. Can they replicate that success with more national spotlight games?`\
-https://nytimes.com/athletic/6720696/2025/10/17/cleveland-cavaliers-tv-streaming-how-to-watch-games/
-
-**Inside Formula One's leap to Apple TV to reach the 'minds of American fans'**\
-`F1 has announced a landmark agreement with Apple to screen races in the United States. Here's how the deal came together.`\
-https://nytimes.com/athletic/6723312/2025/10/17/f1-apple-tv-formula-one-streaming/
 
