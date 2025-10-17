@@ -1,3 +1,11 @@
+**Food Stamp Benefits May Run Out in November, Officials Warn**\
+`If the government shutdown continues, millions of low-income people are at risk of losing access to the Supplemental Nutrition Assistance Program.`\
+https://nytimes.com/2025/10/17/us/politics/food-stamps-agriculture-department.html
+
+**Boeing Can Increase 737 Max Production, F.A.A. Says**\
+`The Federal Aviation Administration raised a production limit that the regulator had imposed after a door panel blew off a plane during a flight last year.`\
+https://nytimes.com/2025/10/17/business/boeing-737-max-faa.html
+
 **How Bengals DC Al Golden looks to improve struggling defense**\
 `Golden isn't letting Thursday's result — a win over the Steelers — cloud his analysis of how his defense played.`\
 https://nytimes.com/athletic/6727051/2025/10/17/how-bengals-dc-al-golden-looks-to-improve-struggling-defense/
