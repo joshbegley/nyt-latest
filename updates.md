@@ -1,3 +1,27 @@
+**How the Bolton Indictment Compares to Trump’s Classified Documents Case**\
+`Some charges against the onetime national security adviser resemble the dropped case against President Trump, but there are also differences.`\
+https://nytimes.com/2025/10/16/us/politics/trump-bolton-indictment-documents.html
+
+**Smartmatic Added to Bribery Indictment of the Company’s Executives**\
+`Federal prosecutors filed charges last year alleging a scheme to obtain contracts from the Philippine elections commission.`\
+https://nytimes.com/2025/10/16/business/media/smartmatic-bribery-indictment-philippines.html
+
+**Brewers' Jackson Chourio exits NLCS Game 3 with leg injury**\
+`Chourio, 21, hit .270 with 21 home runs, 21 stolen bases and 78 RBIs in his second big-league season.`\
+https://nytimes.com/athletic/6724720/2025/10/16/brewers-jackson-chourio-injury/
+
+**“I’m the only candidate who’s opposed to congestion pricing.”**\
+`By Benjamin Oreskes`\
+https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/congestion-pricing
+
+**“The difference between me and the assemblyman is he doesn’t like the police. That’s why he won’t hire more police when everyone else says we need more police.”**\
+`By Benjamin Oreskes`\
+https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/police
+
+**“I’m not funded by the same donors that gave us Donald Trump’s second term, which isn’t something that Andrew Cuomo can say.”**\
+`By Benjamin Oreskes`\
+https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/donors
+
 **“We have here the author of congestion pricing, and we have the apprentice of congestion pricing. I’m the only candidate who’s opposed to congestion pricing.”**\
 `By Benjamin Oreskes`\
 https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/congestion-pricing
