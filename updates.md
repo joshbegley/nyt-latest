@@ -1,3 +1,7 @@
+**Plastic Bag Makers to Pay California $1.7 Million for False Recycling Claims**\
+`The state also announced it was suing three other companies that it said illegally marketed their plastic bags as being recyclable when they were not.`\
+https://nytimes.com/2025/10/17/us/california-plastic-bags-unrecylable-settlement-lawsuit.html
+
 **Georgia Man Charged With Raping Women in Queens in the 1990s**\
 `New DNA testing linked Michael Benjamin, 57, to the assaults of five women between 1995 and 1997 in southeast Queens, according to the authorities.`\
 https://nytimes.com/2025/10/17/nyregion/queens-rape-case-1990s-arrest-georgia.html
