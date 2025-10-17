@@ -1,3 +1,11 @@
+**How Boomers Blew Up the American Dream**\
+`Baby boomers had a good run. Now we’re all paying for it.`\
+https://nytimes.com/video/opinion/100000010400824/baby-boomers-us-generations.html
+
+**‘Kiss of the Spider Woman’ | Anatomy of a Scene**\
+`The director Bill Condon narrates a musical dance sequence featuring Jennifer Lopez.`\
+https://nytimes.com/video/movies/100000010452369/kiss-of-the-spider-woman-scene.html
+
 **Apple, Caught Between U.S. and China, Pledges Investment in Both**\
 `In Beijing this week, the company’s chief executive, Tim Cook, made promises similar to ones he’d made at the White House. He also got a custom Labubu.`\
 https://nytimes.com/2025/10/17/business/apple-china-us-tim-cook-investment-tech-war.html
