@@ -1,3 +1,7 @@
+**'Never had another player like him': Inside Blue Jackets' decision to draft Cam Atkinson**\
+`A look at how Atkinson went from undersized prospect to Blue Jackets legend as he formally retired from the NHL Thursday.`\
+https://nytimes.com/athletic/6724024/2025/10/16/blue-jackets-cam-atkinson-retires/
+
 **“The difference between me and the assemblyman is he doesn’t like the police. That’s why he won’t hire more police when everyone else says we need more police.”**\
 `By Benjamin Oreskes`\
 https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/the-difference-between-me-and-the-assemblyman-is-he-doesnt-like-the-police-thats-why-he-wont-hire-more-police-when-everyone-else
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6723927/2025/10/16/chargers-gold-uniform-week-7-alt
 **CeeDee Lamb returning for Cowboys' division matchup vs. Commanders**\
 `The Cowboys need to string together some wins, and Lamb's return, paired with George Pickens' rise, should help.`\
 https://nytimes.com/athletic/6724296/2025/10/16/cee-dee-lamb-injury-update-status-cowboys/
-
-**Ace Frehley, a Founding Member of Kiss, Is Dead at 74**\
-`A consummate showman, he was known for playing guitars rigged with pyrotechnic effects and for his distinctive stage persona.`\
-https://nytimes.com/2025/10/16/arts/music/ace-frehley-dead.html
 
