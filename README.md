@@ -1,3 +1,7 @@
+**Frank taking cautious approach with Solanke's recovery**\
+`Solanke missed most of pre-season with an ankle injury before returning as a substitute in Tottenham's UEFA Super Cup defeat to PSG.`\
+https://nytimes.com/athletic/6712652/2025/10/17/thomas-frank-dominic-solanke-tottenham-injury/
+
 **How Giants are borrowing from Ole Miss playbook to accentuate Jaxson Dart's strengths**\
 `Giants coach Brian Daboll and OC Mike Kafka are leaning into plays from Dart's past, and the quarterback’s comfort level is obvious. `\
 https://nytimes.com/athletic/6725030/2025/10/17/giants-jaxson-dart-ole-miss-brian-daboll-broncos/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6725937/2025/10/17/bob-myers-harris-blitzer-group/
 **How would Putin, who faces an international arrest warrant, get to Hungary to see Trump?**\
 `Questions loom about whether the Russian president might be subject to arrest while traversing the airspace of International Criminal Court members.`\
 https://nytimes.com/live/2025/10/17/us/trump-news-zelensky/putin-budapest-trump-icc-arrest-warrant
-
-**U.S. Threatens Countries That Back a Fee to Clean Up Ship Pollution**\
-`As nations vote on a draft agreement at the International Maritime Organization this week, the Trump administration says it could sanction those supporting it.`\
-https://nytimes.com/2025/10/17/climate/shipping-pollution-fee-international-maritime-organization.html
 
