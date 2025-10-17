@@ -1,3 +1,7 @@
+**Apple, Caught Between U.S. and China, Pledges Investment in Both**\
+`In Beijing this week, the company’s chief executive, Tim Cook, made promises similar to ones he’d made at the White House. He also got a custom Labubu.`\
+https://nytimes.com/2025/10/17/business/apple-china-us-tim-cook-investment-tech-war.html
+
 **Explosion Destroys Vehicles Outside Home of Italian Journalist**\
 `Prime Minister Giorgia Meloni condemned the attack on Sigfrido Ranucci, the host of the investigative program “Report.” He was previously under police protection.`\
 https://nytimes.com/2025/10/17/world/europe/sigfrido-ranucci-car-bomb.html

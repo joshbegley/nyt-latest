@@ -1,3 +1,7 @@
+**Apple, Caught Between U.S. and China, Pledges Investment in Both**\
+`In Beijing this week, the company’s chief executive, Tim Cook, made promises similar to ones he’d made at the White House. He also got a custom Labubu.`\
+https://nytimes.com/2025/10/17/business/apple-china-us-tim-cook-investment-tech-war.html
+
 **Devastating Floods in Mexico Test a Popular President**\
 `Torrential rains last week brought death and widespread damage. President Claudia Sheinbaum has visited affected areas, facing some angry residents.`\
 https://nytimes.com/2025/10/17/world/americas/mexico-floods-missing.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/17/world/europe/sigfrido-ranucci-car-bomb.html
 **Top San Francisco Lawmaker Expected to Challenge Nancy Pelosi in Primary**\
 `Ms. Pelosi, 85, has not yet said whether she will run again. The challenge would be the latest example of the Democratic Party facing a push for generational change.`\
 https://nytimes.com/2025/10/17/us/politics/nancy-pelosi-scott-wiener.html
-
-**How to watch Brewers at Dodgers: Game 4 Time, TV, streaming**\
-`Find out how to watch the Milwaukee Brewers play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6725363/2025/10/17/brewers-vs-dodgers-stream-how-to-watch-oct-17/
 
