@@ -1,3 +1,11 @@
+**Senators Move to Force Vote to Bar Ground Strikes in Venezuela**\
+`The bid comes after the Senate rejected a similar measure to curb President Trump’s attacks against alleged drug runners in the Caribbean Sea.`\
+https://nytimes.com/2025/10/17/us/politics/congress-venezuela-military-strikes.html
+
+**Explained: The Aston Villa-Maccabi Tel Aviv fan ban, government intervention, and if it will be reversed**\
+`Maccabi Tel Aviv fans were banned from attending the game against Aston Villa on Thursday but there have been developments since`\
+https://nytimes.com/athletic/6725825/2025/10/17/aston-villa-maccabi-tel-aviv-fans-banned-reversed/
+
 **Big Five: Europe’s top games this weekend**\
 `The Athletic has hand-picked five of the most intriguing weekend fixtures from around Europe.`\
 https://nytimes.com/athletic/6725111/2025/10/17/big-five-europes-top-games-this-weekend-3/

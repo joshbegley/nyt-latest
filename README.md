@@ -1,3 +1,19 @@
+**OpenAI Blocks Videos of Martin Luther King Jr. After Racist Depictions**\
+`People have used its Sora video app to create vulgar and sometimes racist depictions of the civil rights leader.`\
+https://nytimes.com/2025/10/17/business/openai-sora-video-martin-luther-king-jr.html
+
+**Bob Myers leaves ESPN to join Josh Harris-led group as president of sports**\
+`Myers will oversee the portfolio of an organization that owns and operates multiple major sports organizations.`\
+https://nytimes.com/athletic/6725937/2025/10/17/bob-myers-harris-blitzer-group/
+
+**How would Putin, who faces an international arrest warrant, get to Hungary to see Trump?**\
+`Questions loom about whether the Russian president might be subject to arrest while traversing the airspace of International Criminal Court members.`\
+https://nytimes.com/live/2025/10/17/us/trump-news-zelensky/putin-budapest-trump-icc-arrest-warrant
+
+**U.S. Threatens Countries That Back a Fee to Clean Up Ship Pollution**\
+`As nations vote on a draft agreement at the International Maritime Organization this week, the Trump administration says it could sanction those supporting it.`\
+https://nytimes.com/2025/10/17/climate/shipping-pollution-fee-international-maritime-organization.html
+
 **Senators Move to Force Vote to Bar Ground Strikes in Venezuela**\
 `The bid comes after the Senate rejected a similar measure to curb President Trump’s attacks against alleged drug runners in the Caribbean Sea.`\
 https://nytimes.com/2025/10/17/us/politics/congress-venezuela-military-strikes.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6720696/2025/10/17/cleveland-cavaliers-tv-streaming
 **Inside Formula One's leap to Apple TV to reach the 'minds of American fans'**\
 `F1 has announced a landmark agreement with Apple to screen races in the United States. Here's how the deal came together.`\
 https://nytimes.com/athletic/6723312/2025/10/17/f1-apple-tv-formula-one-streaming/
-
-**Apple TV becomes Formula One's exclusive U.S. broadcaster, starting in 2026**\
-`The partnership marks a departure from F1's previous approach to its U.S. TV rights.`\
-https://nytimes.com/athletic/6723310/2025/10/17/f1-apple-tv-formula-one-streaming-rights/
-
-**The Guilt of Not Being Bilingual**\
-`A new comic book exhibit showed me how the genre has grown, but it also stirred up other feelings.`\
-https://nytimes.com/2025/10/17/us/comic-books-spanish-language.html
-
-**Want to Know What You’ll Pay for College? There’s a Fast New Calculator for That.**\
-`Nearly two dozen private colleges are offering an online tool that factors in need-based grants and scholarships to estimate students’ actual costs.`\
-https://nytimes.com/2025/10/17/your-money/college-costs-calculator.html
-
-**How Ace Frehley Made ‘New York Groove’ His Own**\
-`The Kiss guitarist, who died on Thursday at 74, scored his only Top 20 solo hit with a cover that’s endured for decades.`\
-https://nytimes.com/2025/10/17/arts/music/ace-frehley-kiss-new-york-groove.html
 
