@@ -1,3 +1,11 @@
+**This Super-Fast Shrimp Dish Tastes Like a Restaurant Meal**\
+`These perfectly cooked crustaceans soak up a dead-simple garlic-and-caper lemon sauce.`\
+https://nytimes.com/2025/10/17/dining/this-super-fast-shrimp-dish-tastes-like-a-restaurant-meal.html
+
+**Brandi Carlile Climbed Music’s Peak. Then She Had to Start Over.**\
+`After a whirlwind six years of working with icons and curating her own festival, the singer and songwriter was alone with her work, in search of a fresh spark.`\
+https://nytimes.com/2025/10/17/arts/music/brandi-carlile-returning-to-myself.html
+
 **Red Light: These goalies are thriving amid the NHL's scoring bonanza. Plus: It's rankings time**\
 `NHL goaltenders could all use a hug as they’re getting scored on at the highest rate we’ve seen in two decades.`\
 https://nytimes.com/athletic/6726237/2025/10/17/nhl-red-light-newsletter-goalies-rankings/

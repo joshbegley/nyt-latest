@@ -1,3 +1,11 @@
+**This Super-Fast Shrimp Dish Tastes Like a Restaurant Meal**\
+`These perfectly cooked crustaceans soak up a dead-simple garlic-and-caper lemon sauce.`\
+https://nytimes.com/2025/10/17/dining/this-super-fast-shrimp-dish-tastes-like-a-restaurant-meal.html
+
+**Brandi Carlile Climbed Music’s Peak. Then She Had to Start Over.**\
+`After a whirlwind six years of working with icons and curating her own festival, the singer and songwriter was alone with her work, in search of a fresh spark.`\
+https://nytimes.com/2025/10/17/arts/music/brandi-carlile-returning-to-myself.html
+
 **Red Light: These goalies are thriving amid the NHL's scoring bonanza. Plus: It's rankings time**\
 `NHL goaltenders could all use a hug as they’re getting scored on at the highest rate we’ve seen in two decades.`\
 https://nytimes.com/athletic/6726237/2025/10/17/nhl-red-light-newsletter-goalies-rankings/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/17/nyregion/mta-subway-pop-up-sale.html
 **It Was Tie vs. Tie in the New York City Mayoral Debate**\
 `The small details connected Zohran Mamdani, Andrew Cuomo and Curtis Sliwa’s presentation to their policies.`\
 https://nytimes.com/2025/10/17/style/mamdani-cuomo-mayoral-debate-style.html
-
-**What will F1 on Apple TV look like? Everything we know, and lingering questions**\
-`Apple and F1 announced their five-year partnership — The Athletic explains the hows and whys of the deal.`\
-https://nytimes.com/athletic/6723368/2025/10/17/f1-apple-tv-formula-one-streaming-explained/
-
-**The Bounce: Wemby's award chances keep growing. Plus, we preview Thunder and Cavaliers**\
-`Zach Harper catches you up on the latest NBA news in our newsletter.`\
-https://nytimes.com/athletic/6726134/2025/10/17/victor-wembanyama-thunder-cavaliers-the-bounce/
 
