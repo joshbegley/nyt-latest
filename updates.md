@@ -1,3 +1,11 @@
+**Police Warn Against Pranking People With A.I. Images of Homeless Intruder**\
+`Law enforcement departments in several states said that an online trend in which people are tricked into believing a homeless man is in their homes could have dangerous consequences.`\
+https://nytimes.com/2025/10/16/us/police-prank-ai-homeless-tiktok.html
+
+**Dodgers-Brewers Game 3 takeaways: Roki Sasaki-led bullpen pushes Milwaukee to brink**\
+`LOS ANGELES — Well aware of the narrative surrounding the bullpen this October, the Los Angeles Dodgers turned to a slew of relievers in hopes of changing the discourse.`\
+https://nytimes.com/athletic/6724492/2025/10/16/dodgers-brewers-game-3-score-results-takeaways-playoffs-mlb/
+
 **How the Bolton Indictment Compares to Trump’s Classified Documents Case**\
 `Some charges against the onetime national security adviser resemble the dropped case against President Trump, but there are also differences.`\
 https://nytimes.com/2025/10/16/us/politics/trump-bolton-indictment-documents.html
