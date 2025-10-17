@@ -1,4 +1,16 @@
-**“We have here the author of congestion pricing, and we have the apprentice of congestion pricing. I’m the only candidate who’s opposed to congestion pricing.”**\
+**How the Bolton Indictment Compares to Trump’s Classified Documents Case**\
+`Some charges against the onetime national security adviser resemble the dropped case against President Trump, but there are also differences.`\
+https://nytimes.com/2025/10/16/us/politics/trump-bolton-indictment-documents.html
+
+**Smartmatic Added to Bribery Indictment of the Company’s Executives**\
+`Federal prosecutors filed charges last year alleging a scheme to obtain contracts from the Philippine elections commission.`\
+https://nytimes.com/2025/10/16/business/media/smartmatic-bribery-indictment-philippines.html
+
+**Brewers' Jackson Chourio exits NLCS Game 3 with leg injury**\
+`Chourio, 21, hit .270 with 21 home runs, 21 stolen bases and 78 RBIs in his second big-league season.`\
+https://nytimes.com/athletic/6724720/2025/10/16/brewers-jackson-chourio-injury/
+
+**“I’m the only candidate who’s opposed to congestion pricing.”**\
 `By Benjamin Oreskes`\
 https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/congestion-pricing
 
@@ -16,7 +28,7 @@ https://nytimes.com/athletic/6724024/2025/10/16/blue-jackets-cam-atkinson-retire
 
 **“The difference between me and the assemblyman is he doesn’t like the police. That’s why he won’t hire more police when everyone else says we need more police.”**\
 `By Benjamin Oreskes`\
-https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/the-difference-between-me-and-the-assemblyman-is-he-doesnt-like-the-police-thats-why-he-wont-hire-more-police-when-everyone-else
+https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/police
 
 **“Your favorite mayor, Bill de Blasio.”**\
 `By Benjamin Oreskes`\
@@ -24,17 +36,5 @@ https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliw
 
 **“I’m not funded by the same donors that gave us Donald Trump’s second term, which isn’t something that Andrew Cuomo can say.”**\
 `By Benjamin Oreskes`\
-https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/im-not-funded-by-the-same-donors-that-gave-us-donald-trumps-second-term-which-isnt-something-that-andrew-cuomo-can-say
-
-**Trinidadian Family Says U.S. Military Killed Relative in Boat Attack**\
-`For the first time, one of the 27 people killed in U.S. airstrikes on suspected drug vessels has been publicly identified.`\
-https://nytimes.com/2025/10/16/world/americas/trinidad-us-military-venezuela-boats.html
-
-**49ers' George Kittle had torn hamstring but will return for SNF game vs. Falcons**\
-`The San Francisco tight end could have played last week but wanted to wait until the injury to his right leg was completely healed.`\
-https://nytimes.com/athletic/6724334/2025/10/16/george-kittle-hamstring-torn/
-
-**“I never had a conversation with the president that the assemblyman was talking about.”**\
-`By Benjamin Oreskes`\
-https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/i-never-had-a-conversation-with-the-president-that-the-assemblyman-was-talking-about
+https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/donors
 
