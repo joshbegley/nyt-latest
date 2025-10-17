@@ -1,3 +1,15 @@
+**Cowboys' Trevon Diggs out Sunday vs. Commanders after in-home accident**\
+`In six games this season, Trevon Diggs has 18 tackles and one TFL.`\
+https://nytimes.com/athletic/6726585/2025/10/17/cowboys-trevon-diggs-out-injury-commanders/
+
+**Inside the Sudden Collapse of a U.K. Spy Case Against China**\
+`Evidence prepared for a collapsed espionage trial was published by an under-pressure government in Britain, offering a window into Western countries’ struggle to define Beijing as friend or foe.`\
+https://nytimes.com/2025/10/17/world/europe/uk-china-spy-case.html
+
+**How a U.S. Oil Giant Became a Pillar of Venezuela’s Fragile Economy**\
+`Chevron enjoys unusual sway in socialist-led Venezuela, positioning the energy colossus to gain from whatever comes of the crisis between Washington and Caracas.`\
+https://nytimes.com/2025/10/17/world/americas/trump-venezuela-chevron-oil.html
+
 **Let’s Remember, Stephen King Isn’t Always Scary**\
 `It’s October, which means it’s time for the master of horror to shine. Yet he’s become equally famous for several works of non-horror.`\
 https://nytimes.com/2025/10/17/books/review/podcast-stephen-king-shawshank-stand-by-me.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/17/nyregion/cuomo-sliwa-mamdani.html
 **Phillies expect to part ways with Nick Castellanos this offseason: Sources**\
 `Castellanos, who's owed $20 million next year, is expected to be traded or released this offseason as the Phillies remake their outfield.`\
 https://nytimes.com/athletic/6726521/2025/10/17/phillies-offseason-nick-castellanos-trade-release/
-
-**Normandy, France**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/things-to-do-normandy
-
-**College football Week 8 projected scores: Model predicts every FBS vs. FBS game**\
-`Austin Mock's college football model projects the points spreads and totals for every Week 8 FBS vs. FBS game.`\
-https://nytimes.com/athletic/6726562/2025/10/17/college-football-week-8-projected-scores-model/
-
-**Treasury Secretary Stakes Credibility and Taxpayer Money on Argentina Bet**\
-`Treasury Secretary Scott Bessent’s multibillion-dollar bailout of a serial defaulter raises the specter of losses for the United States.`\
-https://nytimes.com/2025/10/17/us/politics/trump-argentina-bailout-bessent.html
 
