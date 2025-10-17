@@ -1,3 +1,15 @@
+**Frank taking cautious approach with Solanke's recovery**\
+`Solanke missed most of pre-season with an ankle injury before returning as a substitute in Tottenham's UEFA Super Cup defeat to PSG.`\
+https://nytimes.com/athletic/6712652/2025/10/17/thomas-frank-dominic-solanke-tottenham-injury/
+
+**How Giants are borrowing from Ole Miss playbook to accentuate Jaxson Dart's strengths**\
+`Giants coach Brian Daboll and OC Mike Kafka are leaning into plays from Dart's past, and the quarterback’s comfort level is obvious. `\
+https://nytimes.com/athletic/6725030/2025/10/17/giants-jaxson-dart-ole-miss-brian-daboll-broncos/
+
+**Bengals rebound, CeeDee Lamb's return and fantasy football strategy for first-half heroes**\
+`Andy Behrens applies a fantasy football lens to the NFL news cycle and offers mid-season advice for those leading their leagues. `\
+https://nytimes.com/athletic/6726050/2025/10/17/fantasy-football-news-week-7-bengals-flacco-ceedee-lamb/
+
 **Starmer Objects as Police Bar Israeli Team’s Fans From U.K. Soccer Game**\
 `Confrontation has shadowed Israeli teams’ games in Europe since the start of the Gaza war. Local authorities sought to bar visiting fans at a game in central England next month.`\
 https://nytimes.com/2025/10/17/world/europe/aston-villa-maccabi-fans.html

@@ -1,3 +1,19 @@
+**NHL Power Rankings: Everything we've already gotten wrong**\
+`After just one week of hockey, we’ve seen enough. Here's something from every team we got wrong.`\
+https://nytimes.com/athletic/6725336/2025/10/17/nhl-power-rankings-27/
+
+**Bengals Upset Steelers Behind Vintage Joe Flacco Performance**\
+`Evan McPherson drilled a 36-yard field goal in the final seconds to lift the Cincinnati Bengals to a 33-31 win over the Pittsburgh Steelers.`\
+https://nytimes.com/video/the-athletic/100000010464711/bengals-upset-steelers-behind-vintage-joe-flacco-performance.html
+
+**F1 must now navigate the slipstream of Apple's previous media deals with MLB, MLS**\
+`The $140 million per year partnership brings together two glamorous brands, but previous sports leagues have had mixed results on Apple TV.`\
+https://nytimes.com/athletic/6724507/2025/10/17/f1-apple-tv-media-tim-cook-eddie-cue/
+
+**Covering an Artist With Unconventional Materials: Strict Rules and Time**\
+`A culture reporter is always watching for art that challenges us to look at the world, and our lives, differently. An artist who lived in a cage for a year ticked that box.`\
+https://nytimes.com/2025/10/17/insider/tehching-hsieh.html
+
 **Frank taking cautious approach with Solanke's recovery**\
 `Solanke missed most of pre-season with an ankle injury before returning as a substitute in Tottenham's UEFA Super Cup defeat to PSG.`\
 https://nytimes.com/athletic/6712652/2025/10/17/thomas-frank-dominic-solanke-tottenham-injury/
@@ -21,20 +37,4 @@ https://nytimes.com/live/2025/10/17/us/trump-news-zelensky/for-ukraine-budapest-
 **High Five — around the world in five games**\
 `The A-League gets under way, the J-League is picking up steam, it's 'Decision Day' in MLS and two crackers in Brazil and Greece.`\
 https://nytimes.com/athletic/6725015/2025/10/17/high-five-around-the-world-in-five-games-3/
-
-**How to watch LaMelo Ball and Charlotte Hornets this season with new broadcast changes**\
-`The Charlotte Hornets have failed to reach the playoffs in all five seasons with LaMelo Ball. They'll try to turn it around for 2025-26.`\
-https://nytimes.com/athletic/6721096/2025/10/17/charlotte-hornets-lamelo-ball-tv-streaming-how-to-watch/
-
-**OpenAI Blocks Videos of Martin Luther King Jr. After Racist Depictions**\
-`People have used its Sora video app to create vulgar and sometimes racist depictions of the civil rights leader.`\
-https://nytimes.com/2025/10/17/business/openai-sora-video-martin-luther-king-jr.html
-
-**Bob Myers leaves ESPN to join Josh Harris-led group as president of sports**\
-`Myers will oversee the portfolio of an organization that owns and operates multiple major sports organizations.`\
-https://nytimes.com/athletic/6725937/2025/10/17/bob-myers-harris-blitzer-group/
-
-**How would Putin, who faces an international arrest warrant, get to Hungary to see Trump?**\
-`Questions loom about whether the Russian president might be subject to arrest while traversing the airspace of International Criminal Court members.`\
-https://nytimes.com/live/2025/10/17/us/trump-news-zelensky/putin-budapest-trump-icc-arrest-warrant
 

@@ -1,3 +1,15 @@
+**Frank taking cautious approach with Solanke's recovery**\
+`Solanke missed most of pre-season with an ankle injury before returning as a substitute in Tottenham's UEFA Super Cup defeat to PSG.`\
+https://nytimes.com/athletic/6712652/2025/10/17/thomas-frank-dominic-solanke-tottenham-injury/
+
+**How Giants are borrowing from Ole Miss playbook to accentuate Jaxson Dart's strengths**\
+`Giants coach Brian Daboll and OC Mike Kafka are leaning into plays from Dart's past, and the quarterback’s comfort level is obvious. `\
+https://nytimes.com/athletic/6725030/2025/10/17/giants-jaxson-dart-ole-miss-brian-daboll-broncos/
+
+**Bengals rebound, CeeDee Lamb's return and fantasy football strategy for first-half heroes**\
+`Andy Behrens applies a fantasy football lens to the NFL news cycle and offers mid-season advice for those leading their leagues. `\
+https://nytimes.com/athletic/6726050/2025/10/17/fantasy-football-news-week-7-bengals-flacco-ceedee-lamb/
+
 **Starmer Objects as Police Bar Israeli Team’s Fans From U.K. Soccer Game**\
 `Confrontation has shadowed Israeli teams’ games in Europe since the start of the Gaza war. Local authorities sought to bar visiting fans at a game in central England next month.`\
 https://nytimes.com/2025/10/17/world/europe/aston-villa-maccabi-fans.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6725937/2025/10/17/bob-myers-harris-blitzer-group/
 **How would Putin, who faces an international arrest warrant, get to Hungary to see Trump?**\
 `Questions loom about whether the Russian president might be subject to arrest while traversing the airspace of International Criminal Court members.`\
 https://nytimes.com/live/2025/10/17/us/trump-news-zelensky/putin-budapest-trump-icc-arrest-warrant
-
-**U.S. Threatens Countries That Back a Fee to Clean Up Ship Pollution**\
-`As nations vote on a draft agreement at the International Maritime Organization this week, the Trump administration says it could sanction those supporting it.`\
-https://nytimes.com/2025/10/17/climate/shipping-pollution-fee-international-maritime-organization.html
-
-**Senators Move to Force Vote to Bar Ground Strikes in Venezuela**\
-`The bid comes after the Senate rejected a similar measure to curb President Trump’s attacks against alleged drug runners in the Caribbean Sea.`\
-https://nytimes.com/2025/10/17/us/politics/congress-venezuela-military-strikes.html
-
-**Big Five: Europe’s top games this weekend**\
-`The Athletic has hand-picked five of the most intriguing weekend fixtures from around Europe.`\
-https://nytimes.com/athletic/6725111/2025/10/17/big-five-europes-top-games-this-weekend-3/
 
