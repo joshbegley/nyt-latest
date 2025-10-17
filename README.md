@@ -1,3 +1,11 @@
+**How to watch Sharks vs. Mammoth: Time, TV, streaming**\
+`Find out how to watch the San Jose Sharks play the Utah Mammoth, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6726918/2025/10/17/sharks-vs-mammoth-stream-how-to-watch-oct-17/
+
+**How to watch Canucks vs. Blackhawks: Time, TV, streaming**\
+`Find out how to watch the Vancouver Canucks play the Chicago Blackhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6726916/2025/10/17/canucks-vs-blackhawks-stream-how-to-watch-oct-17/
+
 **Spanish clubs to protest against La Liga game in Miami, players' union announces**\
 `The group said it had the support of the captains for the “protest against La Liga’s lack of transparency, dialogue and consistency."`\
 https://nytimes.com/athletic/6726768/2025/10/17/la-liga-miami-game-protest-news/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/17/travel/southwest-airlines-cabin-design-boeing-737
 **Lining Up for a Piece of New York City Subway History**\
 `The Metropolitan Transit Authority in New York City ran its fifth annual pop-up sale, selling retired signs and other train memorabilia from North America’s largest subway system.`\
 https://nytimes.com/video/nyregion/100000010464885/new-york-subway-sale.html
-
-**Texas Tech's Skyler Gill-Howard has surgery on ankle injury, expected back for CFP: Source**\
-`Gill-Howard has been one of the highest-graded defensive tackles in the country, according to Pro Football Focus.`\
-https://nytimes.com/athletic/6726743/2025/10/17/skyler-gill-howard-texas-tech-injury-surgery/
-
-**Flashback: Your Weekly History Quiz, Oct. 18, 2025**\
-`Can you sort 8 historical events?`\
-https://nytimes.com/interactive/2025/10/17/upshot/flashback.html
 
