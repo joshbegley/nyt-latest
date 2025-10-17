@@ -1,3 +1,7 @@
+**Trump Announces Proposals to Make I.V.F. More Affordable**\
+`The president unveiled several policy proposals on Thursday aimed at reducing the costs of in vitro fertilization. They included a deal with a pharmaceutical company to lower drug costs, and guidance encouraging employers to offer infertility coverage directly to workers.`\
+https://nytimes.com/video/us/politics/100000010463153/trump-ivf-announcement.html
+
 **'Never had another player like him': Inside Blue Jackets' decision to draft Cam Atkinson**\
 `A look at how Atkinson went from undersized prospect to Blue Jackets legend as he formally retired from the NHL Thursday.`\
 https://nytimes.com/athletic/6724024/2025/10/16/blue-jackets-cam-atkinson-retires/
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliw
 **Chargers to debut all-gold alternate uniforms at home vs. Colts in Week 7**\
 `The Chargers' all-gold look pays tribute to the early 1980s under coach Don Coryell, whose passing offense revolutionized the NFL.`\
 https://nytimes.com/athletic/6723927/2025/10/16/chargers-gold-uniform-week-7-alternate/
-
-**CeeDee Lamb returning for Cowboys' division matchup vs. Commanders**\
-`The Cowboys need to string together some wins, and Lamb's return, paired with George Pickens' rise, should help.`\
-https://nytimes.com/athletic/6724296/2025/10/16/cee-dee-lamb-injury-update-status-cowboys/
 
