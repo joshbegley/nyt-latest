@@ -1,3 +1,11 @@
+**Mangione Seeks Information About UnitedHealth’s Contact With Trump**\
+`Lawyers for Luigi Mangione, charged with killing UnitedHealthcare’s chief executive, are asking for details about a reported meeting between the White House and an executive with the insurer.`\
+https://nytimes.com/2025/10/17/nyregion/mangione-united-healthcare-filing.html
+
+**'His impact is immeasurable': Players, coaches and family honour former WSL manager Matt Beard**\
+`Many in attendance shared the sentiment to remember to take care of one another following the WSL manager's passing`\
+https://nytimes.com/athletic/6726541/2025/10/17/matt-beard-service-rememberance-liverpool/
+
 **Where the U.S. Is Building Up Military Force in the Caribbean**\
 `About 10,000 U.S. troops and dozens of military aircraft and ships are in the region as the Trump administration increases pressure on Venezuela.`\
 https://nytimes.com/2025/10/17/us/politics/trump-caribbean-venezuela-us-military-maps.html

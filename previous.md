@@ -1,3 +1,11 @@
+**Mangione Seeks Information About UnitedHealth’s Contact With Trump**\
+`Lawyers for Luigi Mangione, charged with killing UnitedHealthcare’s chief executive, are asking for details about a reported meeting between the White House and an executive with the insurer.`\
+https://nytimes.com/2025/10/17/nyregion/mangione-united-healthcare-filing.html
+
+**'His impact is immeasurable': Players, coaches and family honour former WSL manager Matt Beard**\
+`Many in attendance shared the sentiment to remember to take care of one another following the WSL manager's passing`\
+https://nytimes.com/athletic/6726541/2025/10/17/matt-beard-service-rememberance-liverpool/
+
 **Where the U.S. Is Building Up Military Force in the Caribbean**\
 `About 10,000 U.S. troops and dozens of military aircraft and ships are in the region as the Trump administration increases pressure on Venezuela.`\
 https://nytimes.com/2025/10/17/us/politics/trump-caribbean-venezuela-us-military-maps.html
@@ -29,12 +37,4 @@ https://nytimes.com/interactive/2025/10/17/upshot/flashback.html
 **How Much Political Propaganda Art Can One Mansion Hold?**\
 `In London, an interior designer helps a director of Hollywood action films make his house a cheeky, ever-evolving statement on international authoritarianism.`\
 https://nytimes.com/2025/10/17/t-magazine/roland-emmerich-london-home-propaganda.html
-
-**Scoop City: Flacco, Dart and two Week 7 matchups to watch**\
-`Flacco's quick turnaround, how teams legally find clues about their opponents, plus a Week 7 watch guide`\
-https://nytimes.com/athletic/6726728/2025/10/17/flacco-puts-on-a-classic-plus-darts-improvement-week-7s-key-matchups/
-
-**Yankees GM denies interfering with manager's decisions: 'We don't tell him who to play'**\
-`Yankees GM Brian Cashman appeared on New York sports radio to deny interfering with manager Aaron Boone's in-game calls.`\
-https://nytimes.com/athletic/6726378/2025/10/17/yankees-brian-cashman-aaron-boone-front-office-interference/
 
