@@ -1,3 +1,7 @@
+**UWCL Briefing: VAR controversy, Man Utd's steady defence, Arsenal's shaky start**\
+`The Athletic's experts have dissected the big talking points from the league phase matches`\
+https://nytimes.com/athletic/6725191/2025/10/17/womens-champions-league-chelsea-manchester-united-arsenal-var/
+
 **Are Video Games Giving Us Some of the Best New Music?**\
 `Jon Caramanica, host of “Popcast,” explains why Valorant’s new Champions anthem, “Last Shot,” captures the moment.`\
 https://nytimes.com/video/podcasts/100000010463758/are-video-games-giving-us-some-of-the-best-new-music.html
