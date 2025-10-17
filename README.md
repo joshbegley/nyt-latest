@@ -1,3 +1,7 @@
+**Massachusetts School Employee Dies After Trying to Restrain Student**\
+`The student, 14, has been charged with assault.`\
+https://nytimes.com/2025/10/17/us/massachusetts-school-staff-dies-student-kick.html
+
 **Teresa Ulloa Ziáurriz, Rights Advocate Who Fought Sex Traffickers, Dies at 75**\
 `In Mexico, where the cult of machismo has long held sway, she waged a lonely, sometimes dangerous and often single-handed fight against prostitution and organized sex rings.`\
 https://nytimes.com/2025/10/17/world/americas/teresa-ulloa-ziaurriz-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/17/us/chicago-economy-business-immigration-crackdown
 **NHL referee mistakenly announces wrong goal call in Panthers-Devils game**\
 `Referee Michael Markovic accidentally called a goal on the ice before reversing course and calling "no goal" following a coach's challenge.`\
 https://nytimes.com/athletic/6726179/2025/10/17/nhl-referee-mistake-panthers-devils-goalie-interference/
-
-**The Secret Weapon of ‘S.N.L.’ Finally Gets the Spotlight**\
-`A documentary about the writer Jim Downey is streaming just as he can be seen in “One Battle After Another” and a new Tim Robinson series.`\
-https://nytimes.com/2025/10/17/arts/television/jim-downey-saturday-night-live-writer-actor.html
 
