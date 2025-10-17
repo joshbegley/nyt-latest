@@ -1,3 +1,15 @@
+**Fantasy Premier League live Q&A: Gameweek 8 advice from Ben Dinnery**\
+`Join Ben Dinnery for a live Gameweek 8 Q&A from 4pm-5pm UK time today`\
+https://nytimes.com/athletic/6719320/2025/10/17/fantasy-premier-league-live-gameweek-8-advice-ben-dinnery/
+
+**Inside the Lakers’ Anthony Davis pursuit in 2019 — and the confusion over pick swaps**\
+`An excerpt from the upcoming book "A Hollywood Ending" by Yaron Weitzman details potential confusion during the Lakers' superstar trade.`\
+https://nytimes.com/athletic/6722803/2025/10/17/lakers-lebron-james-anthony-davis-trade-hollywood-ending/
+
+**Can the Bears' run game thrive again? Mailbag plus Week 7 picks**\
+`The Bears got a breakthrough from their run game on Monday night. Now they face a tough Saints run defense. Mailbag plus Week 7 picks.`\
+https://nytimes.com/athletic/6724376/2025/10/17/bears-mailbag-run-game-saints/
+
 **A Somali Hospital Closed After U.S. Aid Cuts. Fired Employees Reopened It Without Pay.**\
 `After the Trump administration stopped funding a medical center for women and children, a determined group of health care workers refused to let it shutter.`\
 https://nytimes.com/2025/10/17/health/somalia-hospital-reopen-employees.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6725009/2025/10/17/haji-wright-usmnt-world-cup-squa
 **Erik Spoelstra, Grant Hill's first order of business: Fix USA Basketball's World Cup problem**\
 `As dominant as the U.S. has been at the Olympics, it hasn't won the FIBA World Cup since 2014. Erik Spoelstra is here to change that.`\
 https://nytimes.com/athletic/6724093/2025/10/17/erik-spoelstra-team-usa-world-cup/
-
-**Portal Buzz: Under-the-radar transfers plus former blue-chip QBs who could be on the move**\
-`Should Texas have hit the portal to beef up its offensive line? How a new portal rule affects teams that make a coaching change. `\
-https://nytimes.com/athletic/6724145/2025/10/17/college-football-transfer-portal-quarterbacks-2/
-
-**Week 8’s top 10 college football games: Tennessee-Alabama, USC-Notre Dame and Ole Miss-Georgia**\
-`Alabama is coming off three straight wins over ranked teams, and Tennessee has the top scoring offense in FBS. `\
-https://nytimes.com/athletic/6723705/2025/10/17/college-football-schedule-week-8-tennessee-alabama/
-
-**For new 49ers middle LB Tatum Bethune, talking is just as important as tackling**\
-`The 49ers don't expect Bethune to be Fred Warner. But there's a quiet confidence that the 2024 seventh-round pick can anchor the defense.`\
-https://nytimes.com/athletic/6724501/2025/10/17/49ers-fred-warner-tatum-bethune-bijan-robinson/
 
