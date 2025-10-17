@@ -1,3 +1,15 @@
+**Federal Prosecutors Downgrade Charge Against David Huerta to a Misdemeanor**\
+`Mr. Huerta, a prominent labor leader in California, was initially charged with a felony after his arrest during an immigration raid in Los Angeles this summer.`\
+https://nytimes.com/2025/10/17/us/david-huerta-immigration-raid-charges.html
+
+**Trump Sets Tariffs on Trucks and Buses**\
+`Imported light and heavy trucks will be charged 25 percent and buses 10 percent as of Nov. 1, but President Trump also extended tariff exemptions for auto parts.`\
+https://nytimes.com/2025/10/17/business/trump-tariffs-trucks-buses.html
+
+**Is Trump the Dealmaker the Middle East Needs?**\
+`Could President Trump’s unorthodox leadership style differentiate the latest Israel-Hamas peace deal from the many failed attempts that came before? The veteran Middle East negotiator Robert Malley thinks so. “He’s a politician of intuition,” he says.`\
+https://nytimes.com/video/opinion/100000010431392/is-trump-the-dealmaker-the-middle-east-needs.html
+
 **Guehi will 'leave next year' after rejecting Palace contract offer - Glasner**\
 `Guehi was close to joining Liverpool before Palace pulled the plug on a £35million deal late on deadline day.`\
 https://nytimes.com/athletic/6727193/2025/10/17/guehi-palace-leave-news-transfer-contract/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/17/us/politics/food-stamps-agriculture-department.ht
 **Boeing Can Increase 737 Max Production, F.A.A. Says**\
 `The Federal Aviation Administration raised a production limit that the regulator had imposed after a door panel blew off a plane during a flight last year.`\
 https://nytimes.com/2025/10/17/business/boeing-737-max-faa.html
-
-**How Bengals DC Al Golden looks to improve struggling defense**\
-`Golden isn't letting Thursday's result — a win over the Steelers — cloud his analysis of how his defense played.`\
-https://nytimes.com/athletic/6727051/2025/10/17/how-bengals-dc-al-golden-looks-to-improve-struggling-defense/
-
-**Zelensky Pressed Trump for New Weapons**\
-`Also, the Treasury secretary is betting big on Argentina. Here’s the latest at the end of Friday.`\
-https://nytimes.com/2025/10/17/briefing/ukraine-trump-weapons-treasury-argentina.html
-
-**U.S. Empties Migrant Detention Space at Guantánamo**\
-`A group of 18 detainees had been held at the offshore base for less than a week. They were deported days before a court hearing where lawyers are challenging the holding of migrants there.`\
-https://nytimes.com/2025/10/17/us/politics/guantanamo-migrants-deported.html
 
