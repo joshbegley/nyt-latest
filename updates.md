@@ -1,3 +1,7 @@
+**Zelensky Seeks More Weapons as Trump Plans Putin Meeting**\
+`Trump said he planned to meet with President Vladimir Putin or Russia in a few weeks to discuss a cease-fire as President Volodymyr Zelensky of Ukraine arrived in Washington to secure more weapons.`\
+https://nytimes.com/video/world/americas/100000010464187/trump-putin-cease-fire-ukraine.html
+
 **Candidates Battle in First Debate of N.Y.C. Mayor Race**\
 `Zohran Mamdani, Andrew Cuomo and Curtis Sliwa traded bitter personal attacks on Thursday to win over voters ahead of the Nov. 4 election.`\
 https://nytimes.com/video/nyregion/100000010464189/nyc-mayor-debate-mamdani-cuomo-sliwa.html

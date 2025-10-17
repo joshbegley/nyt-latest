@@ -1,3 +1,7 @@
+**Zelensky Seeks More Weapons as Trump Plans Putin Meeting**\
+`Trump said he planned to meet with President Vladimir Putin or Russia in a few weeks to discuss a cease-fire as President Volodymyr Zelensky of Ukraine arrived in Washington to secure more weapons.`\
+https://nytimes.com/video/world/americas/100000010464187/trump-putin-cease-fire-ukraine.html
+
 **Candidates Battle in First Debate of N.Y.C. Mayor Race**\
 `Zohran Mamdani, Andrew Cuomo and Curtis Sliwa traded bitter personal attacks on Thursday to win over voters ahead of the Nov. 4 election.`\
 https://nytimes.com/video/nyregion/100000010464189/nyc-mayor-debate-mamdani-cuomo-sliwa.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/17/world/asia/tomiichi-murayama-dead.html
 **UWCL Briefing: VAR controversy, Man Utd's steady defence, Arsenal's shaky start**\
 `The Athletic's experts have dissected the big talking points from the league phase matches`\
 https://nytimes.com/athletic/6725191/2025/10/17/womens-champions-league-chelsea-manchester-united-arsenal-var/
-
-**Are Video Games Giving Us Some of the Best New Music?**\
-`Jon Caramanica, host of “Popcast,” explains why Valorant’s new Champions anthem, “Last Shot,” captures the moment.`\
-https://nytimes.com/video/podcasts/100000010463758/are-video-games-giving-us-some-of-the-best-new-music.html
 
