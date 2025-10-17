@@ -1,3 +1,7 @@
+**Astros to sign Nate Pearson, as offseason search for pitching depth begins: Source**\
+`Pearson was once a top prospect in the Toronto Blue Jays' chain, but command issues and injuries have slowed his progress.`\
+https://nytimes.com/athletic/6727019/2025/10/17/astros-nate-pearson-signing/
+
 **After Facing Life in Prison, a Legal Trailblazer Steps Into Freedom**\
 `James Comer’s case helped end de facto life sentences for young offenders in New Jersey. He had been convicted of felony murder as a teenager, after his companion in a robbery shot a victim.`\
 https://nytimes.com/2025/10/17/nyregion/new-jersey-james-comer-freed.html
