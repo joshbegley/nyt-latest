@@ -1,3 +1,11 @@
+**“We have here the author of congestion pricing, and we have the apprentice of congestion pricing. I’m the only candidate who’s opposed to congestion pricing.”**\
+`By Benjamin Oreskes`\
+https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/congestion-pricing
+
+**“I want to first be clear that I am not and nor have I ever called for the legalization of prostitution.”**\
+`By Benjamin Oreskes`\
+https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/prostitution
+
 **“I want to first be clear that I am not and nor have I ever called for the legalization of prostitution.”**\
 `By Benjamin Oreskes`\
 https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/i-want-to-first-be-clear-that-i-am-not-and-nor-have-i-ever-called-for-the-legalization-of-prostitution

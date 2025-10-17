@@ -1,6 +1,10 @@
+**“We have here the author of congestion pricing, and we have the apprentice of congestion pricing. I’m the only candidate who’s opposed to congestion pricing.”**\
+`By Benjamin Oreskes`\
+https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/congestion-pricing
+
 **“I want to first be clear that I am not and nor have I ever called for the legalization of prostitution.”**\
 `By Benjamin Oreskes`\
-https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/i-want-to-first-be-clear-that-i-am-not-and-nor-have-i-ever-called-for-the-legalization-of-prostitution
+https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/prostitution
 
 **Trump Announces Proposals to Make I.V.F. More Affordable**\
 `The president unveiled several policy proposals on Thursday aimed at reducing the costs of in vitro fertilization. They included a deal with a pharmaceutical company to lower drug costs, and guidance encouraging employers to offer infertility coverage directly to workers.`\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6724334/2025/10/16/george-kittle-hamstring-torn/
 **“I never had a conversation with the president that the assemblyman was talking about.”**\
 `By Benjamin Oreskes`\
 https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/i-never-had-a-conversation-with-the-president-that-the-assemblyman-was-talking-about
-
-**“There was a report that was done that had allegations of harassment. I said at the time it was a political report and that there was no basis to it. It was then sent to five district attorneys. They all reviewed it. They found nothing.”**\
-`By Benjamin Oreskes`\
-https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/16nyc-mayor-debate-fact-check-harassment
 
