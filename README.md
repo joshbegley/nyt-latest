@@ -1,4 +1,8 @@
-**With Jackson Chourio injured and down 3-0 in NLCS, Brewers’ dreams are almost dashed**\
+**Mariners-Blue Jays Game 4 takeaways: It’s suddenly a series again in Seattle**\
+`Max Scherzer delivered a throwback performance and the Blue Jays moved closer to emulating the '96 Yankees`\
+https://nytimes.com/athletic/6724397/2025/10/16/blue-jays-mariners-game-4-score-results-takeaways-playoffs-mlb/
+
+**With Jackson Chourio hurt and down 3-0 in NLCS, Brewers’ dreams are almost dead**\
 `To avoid a sweep, the Brewers will have to get through Shohei Ohtani in full two-way form.`\
 https://nytimes.com/athletic/6724982/2025/10/16/brewers-jackson-chourio-nlcs-game-3/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/16/us/salesforce-benioff-ice.html
 **In Virginia A.G. Debate, Spotlight Is on Democratic Candidate’s Violent Texts**\
 `Jay Jones apologized for his threatening messages and tried to tie his opponent, Jason Miyares, to President Trump’s policies.`\
 https://nytimes.com/2025/10/16/us/elections/virginia-debate-jay-jones-jason-miyares.html
-
-**Small Plane Crashes in Michigan, Killing 3**\
-`The cause of the plane crash was not immediately known, officials said.`\
-https://nytimes.com/2025/10/16/us/plane-crash-bath-township-michigan.html
 
