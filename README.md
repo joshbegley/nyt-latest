@@ -1,3 +1,11 @@
+**2 Pennsylvania Psychics Stole Over $600,000 to Remove Curses, Prosecutors Say**\
+`One woman alone gave more than half a million dollars in cash and luxury items to remove the “black magic” hindering her love and happiness, the authorities said.`\
+https://nytimes.com/2025/10/17/us/psychics-scam-curse.html
+
+**Trump Seeks to Build a Triumphal Arch in Washington for Nation’s 250th Birthday**\
+`The arch will stand in the middle of the traffic roundabout at the end of Arlington Memorial Bridge, across from the Lincoln Memorial.`\
+https://nytimes.com/2025/10/17/us/politics/trump-arch-monument-dc-250th-anniversary.html
+
 **Judge Orders Some Federal Agents to Wear Body Cameras in Chicago Area**\
 `The order comes as the Trump administration has carried out an immigration crackdown in the region.`\
 https://nytimes.com/2025/10/17/us/chicago-ice-body-cameras.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/17/us/politics/democrats-age-primaries-midterms.html
 **Trump Says He Is Commuting George Santos’s Fraud Sentence**\
 `The disgraced Republican had been sentenced to prison, after his credentials and career unraveled. He was the sixth member of the House to be expelled.`\
 https://nytimes.com/2025/10/17/us/politics/trump-george-santos-sentence-commute.html
-
-**Fed Rescinds Mandate That Banks Plan for Climate Risks**\
-`Financial regulators said the Biden-era policy was superfluous. Democrats said it protected financial stability in an era of unpredictable weather.`\
-https://nytimes.com/2025/10/17/climate/fed-climate-risk-mandate.html
-
-**Food Stamp Benefits May Run Out in November, Officials Warn**\
-`If the government shutdown continues, millions of low-income people are at risk of losing access to the Supplemental Nutrition Assistance Program.`\
-https://nytimes.com/2025/10/17/us/politics/food-stamps-agriculture-department.html
 
