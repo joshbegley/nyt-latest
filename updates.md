@@ -1,3 +1,11 @@
+**Normandy, France**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/things-to-do-normandy
+
+**College football Week 8 projected scores: Model predicts every FBS vs. FBS game**\
+`Austin Mock's college football model projects the points spreads and totals for every Week 8 FBS vs. FBS game.`\
+https://nytimes.com/athletic/6726562/2025/10/17/college-football-week-8-projected-scores-model/
+
 **Treasury Secretary Stakes Credibility and Taxpayer Money on Argentina Bet**\
 `Treasury Secretary Scott Bessent’s multibillion-dollar bailout of a serial defaulter raises the specter of losses for the United States.`\
 https://nytimes.com/2025/10/17/us/politics/trump-argentina-bailout-bessent.html
