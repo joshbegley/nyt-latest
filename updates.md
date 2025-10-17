@@ -1,3 +1,7 @@
+**“I want to first be clear that I am not and nor have I ever called for the legalization of prostitution.”**\
+`By Benjamin Oreskes`\
+https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/i-want-to-first-be-clear-that-i-am-not-and-nor-have-i-ever-called-for-the-legalization-of-prostitution
+
 **Trump Announces Proposals to Make I.V.F. More Affordable**\
 `The president unveiled several policy proposals on Thursday aimed at reducing the costs of in vitro fertilization. They included a deal with a pharmaceutical company to lower drug costs, and guidance encouraging employers to offer infertility coverage directly to workers.`\
 https://nytimes.com/video/us/politics/100000010463153/trump-ivf-announcement.html
