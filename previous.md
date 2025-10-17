@@ -1,3 +1,7 @@
+**In Virginia A.G. Debate, Democratic Candidate Is on Defensive Over Violent Texts**\
+`Jay Jones apologized for his threatening messages and tried to tie his opponent, Jason Miyares, to President Trump’s policies.`\
+https://nytimes.com/2025/10/16/us/elections/virginia-debate-jay-jones-jason-miyares.html
+
 **Small Plane Crashes in Michigan, Killing 3**\
 `The cause of the plane crash was not immediately known, officials said.`\
 https://nytimes.com/2025/10/16/us/plane-crash-bath-township-michigan.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliw
 **Trump Announces Proposals to Make I.V.F. More Affordable**\
 `The president unveiled several policy proposals on Thursday aimed at reducing the costs of in vitro fertilization. They included a deal with a pharmaceutical company to lower drug costs, and guidance encouraging employers to offer infertility coverage directly to workers.`\
 https://nytimes.com/video/us/politics/100000010463153/trump-ivf-announcement.html
-
-**'Never had another player like him': Inside Blue Jackets' decision to draft Cam Atkinson**\
-`A look at how Atkinson went from undersized prospect to Blue Jackets legend as he formally retired from the NHL Thursday.`\
-https://nytimes.com/athletic/6724024/2025/10/16/blue-jackets-cam-atkinson-retires/
 

@@ -1,3 +1,7 @@
+**In Virginia A.G. Debate, Democratic Candidate Is on Defensive Over Violent Texts**\
+`Jay Jones apologized for his threatening messages and tried to tie his opponent, Jason Miyares, to President Trump’s policies.`\
+https://nytimes.com/2025/10/16/us/elections/virginia-debate-jay-jones-jason-miyares.html
+
 **Small Plane Crashes in Michigan, Killing 3**\
 `The cause of the plane crash was not immediately known, officials said.`\
 https://nytimes.com/2025/10/16/us/plane-crash-bath-township-michigan.html

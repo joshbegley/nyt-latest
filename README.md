@@ -1,4 +1,4 @@
-**In Virginia A.G. Debate, Democratic Candidate Is on Defensive Over Violent Texts**\
+**In Virginia A.G. Debate, Spotlight Is on Democratic Candidate’s Violent Texts**\
 `Jay Jones apologized for his threatening messages and tried to tie his opponent, Jason Miyares, to President Trump’s policies.`\
 https://nytimes.com/2025/10/16/us/elections/virginia-debate-jay-jones-jason-miyares.html
 
