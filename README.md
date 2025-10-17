@@ -2,7 +2,7 @@
 `After the Trump administration stopped funding a medical center for women and children, a determined group of health care workers refused to let it shutter.`\
 https://nytimes.com/2025/10/17/health/somalia-hospital-reopen-employees.html
 
-**With injuries undoing the Commanders' plans, Jayden Daniels is running out of receivers**\
+**The Commanders' dire situation at WR is limiting Jayden Daniels' options**\
 `The Commanders wade into Week 7 with the very real possibility they could be without their three top top receivers because of injuries.`\
 https://nytimes.com/athletic/6725795/2025/10/17/commanders-wide-receivers-terry-mclaurin-deebo-samuel-noah-brown/
 
