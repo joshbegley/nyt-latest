@@ -1,3 +1,7 @@
+**Scoop City: Flacco, Dart and two Week 7 matchups to watch**\
+`Flacco's quick turnaround, how teams legally find clues about their opponents, plus a Week 7 watch guide`\
+https://nytimes.com/athletic/6726728/2025/10/17/flacco-puts-on-a-classic-plus-darts-improvement-week-7s-key-matchups/
+
 **Yankees GM denies interfering with manager's decisions: 'We don't tell him who to play'**\
 `Yankees GM Brian Cashman appeared on New York sports radio to deny interfering with manager Aaron Boone's in-game calls.`\
 https://nytimes.com/athletic/6726378/2025/10/17/yankees-brian-cashman-aaron-boone-front-office-interference/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/17/world/europe/uk-china-spy-case.html
 **How a U.S. Oil Giant Became a Pillar of Venezuela’s Fragile Economy**\
 `Chevron enjoys unusual sway in socialist-led Venezuela, positioning the energy colossus to gain from whatever comes of the crisis between Washington and Caracas.`\
 https://nytimes.com/2025/10/17/world/americas/trump-venezuela-chevron-oil.html
-
-**Let’s Remember, Stephen King Isn’t Always Scary**\
-`It’s October, which means it’s time for the master of horror to shine. Yet he’s become equally famous for several works of non-horror.`\
-https://nytimes.com/2025/10/17/books/review/podcast-stephen-king-shawshank-stand-by-me.html
 

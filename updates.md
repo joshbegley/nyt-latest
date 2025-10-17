@@ -1,3 +1,7 @@
+**Scoop City: Flacco, Dart and two Week 7 matchups to watch**\
+`Flacco's quick turnaround, how teams legally find clues about their opponents, plus a Week 7 watch guide`\
+https://nytimes.com/athletic/6726728/2025/10/17/flacco-puts-on-a-classic-plus-darts-improvement-week-7s-key-matchups/
+
 **Yankees GM denies interfering with manager's decisions: 'We don't tell him who to play'**\
 `Yankees GM Brian Cashman appeared on New York sports radio to deny interfering with manager Aaron Boone's in-game calls.`\
 https://nytimes.com/athletic/6726378/2025/10/17/yankees-brian-cashman-aaron-boone-front-office-interference/
