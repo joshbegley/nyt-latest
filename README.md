@@ -1,3 +1,7 @@
+**“The difference between me and the assemblyman is he doesn’t like the police. That’s why he won’t hire more police when everyone else says we need more police.”**\
+`By Benjamin Oreskes`\
+https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/the-difference-between-me-and-the-assemblyman-is-he-doesnt-like-the-police-thats-why-he-wont-hire-more-police-when-everyone-else
+
 **“Your favorite mayor, Bill de Blasio.”**\
 `By Benjamin Oreskes`\
 https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/your-favorite-mayor-bill-de-blasio
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6724296/2025/10/16/cee-dee-lamb-injury-update-statu
 **Ace Frehley, a Founding Member of Kiss, Is Dead at 74**\
 `A consummate showman, he was known for playing guitars rigged with pyrotechnic effects and for his distinctive stage persona.`\
 https://nytimes.com/2025/10/16/arts/music/ace-frehley-dead.html
-
-**Sources: Trae Young, Hawks won't agree on contract extension before NBA season**\
-`Young is entering the final guaranteed season of his contract and can become a free agent next summer if he does not sign a new deal.`\
-https://nytimes.com/athletic/6723424/2025/10/16/trae-young-hawks-contract-extension-nba-season/
 
