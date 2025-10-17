@@ -1,5 +1,9 @@
+**‘Ragtime’ Review: Checking the Status of Our American Dream**\
+`Joshua Henry, Caissie Levy and Brandon Uranowitz lead the glorious cast of Lear deBessonet’s inspiriting Broadway revival at Lincoln Center Theater.`\
+https://nytimes.com/2025/10/16/theater/ragtime-review-henry-debessonet.html
+
 **Fiery Max Scherzer turns back time, then turns away Blue Jays manager**\
-`Max Scherzer, 41, lobbied to stay in the game when his manager emerged with a potential hook in the fifth.`\
+`Scherzer, 41, lobbied to stay in the game when his manager emerged with a potential hook in the fifth.`\
 https://nytimes.com/athletic/6724988/2025/10/16/max-scherzer-game-4-alcs-manager-blue-jays/
 
 **7 Takeaways From the First N.Y.C. Mayoral Debate**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/16/us/plane-crash-bath-township-michigan.html
 **Police Warn Against Pranking People With A.I. Images of Homeless Intruder**\
 `Law enforcement departments in several states said that an online trend in which people are tricked into believing a homeless man is in their homes could have dangerous consequences.`\
 https://nytimes.com/2025/10/16/us/police-prank-ai-homeless-tiktok.html
-
-**Dodgers-Brewers Game 3 takeaways: Roki Sasaki-led bullpen pushes Milwaukee to brink**\
-`LOS ANGELES — Well aware of the narrative surrounding the bullpen this October, the Los Angeles Dodgers turned to a slew of relievers in hopes of changing the discourse.`\
-https://nytimes.com/athletic/6724492/2025/10/16/dodgers-brewers-game-3-score-results-takeaways-playoffs-mlb/
 

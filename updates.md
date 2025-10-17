@@ -1,3 +1,11 @@
+**Fiery Max Scherzer turns back time, then turns away Blue Jays manager**\
+`Max Scherzer, 41, lobbied to stay in the game when his manager emerged with a potential hook in the fifth.`\
+https://nytimes.com/athletic/6724988/2025/10/16/max-scherzer-game-4-alcs-manager-blue-jays/
+
+**Salesforce Offers Its Services to Boost Trump’s Immigration Force**\
+`The San Francisco-based firm has told ICE that it could use A.I. to help the agency nearly triple its staff. The company’s C.E.O., once a progressive tech titan, has embraced President Trump.`\
+https://nytimes.com/2025/10/16/us/salesforce-benioff-ice.html
+
 **7 Takeaways From the First N.Y.C. Mayoral Debate**\
 `Zohran Mamdani, Andrew Cuomo and Curtis Sliwa sparred over serious topics like the Israel-Hamas war and President Trump, and more curious subjects like parade attendance.`\
 https://nytimes.com/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-takeaways.html
