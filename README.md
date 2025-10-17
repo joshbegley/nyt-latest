@@ -1,3 +1,7 @@
+**After Facing Life in Prison, a Legal Trailblazer Steps Into Freedom**\
+`James Comer’s case helped end de facto life sentences for young offenders in New Jersey. He had been convicted of felony murder as a teenager, after his companion in a robbery shot a victim.`\
+https://nytimes.com/2025/10/17/nyregion/new-jersey-james-comer-freed.html
+
 **Rice says he’s learned a lot about himself as he returns from suspension**\
 `Rice is set to make his return to the lineup against the Las Vegas Raiders following a six-game NFL suspension to start the season.`\
 https://nytimes.com/athletic/6726904/2025/10/17/chiefs-rashee-rice-return-suspension/
@@ -29,8 +33,4 @@ https://nytimes.com/card/2025/10/17/smarter-living/wirecutter/
 **The Met’s 20 Scariest Artworks: Can You Find Them?**\
 `For this Halloween scavenger hunt, we scoured this encyclopedic museum for the most haunting works, bloody details and hidden meanings.`\
 https://nytimes.com/interactive/2025/10/17/arts/design/halloween-met-museum.html
-
-**How to watch Sharks vs. Mammoth: Time, TV, streaming**\
-`Find out how to watch the San Jose Sharks play the Utah Mammoth, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6726918/2025/10/17/sharks-vs-mammoth-stream-how-to-watch-oct-17/
 
