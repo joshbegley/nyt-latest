@@ -1,3 +1,11 @@
+**Trump’s Dinner for Ballroom Donors Leaves a Bad Taste in Kimmel’s Mouth**\
+`Wealthy businesspeople who gave money to build a White House ballroom curried favor with the president, “just as our founding fathers intended,” Jimmy Kimmel said.`\
+https://nytimes.com/2025/10/17/arts/television/kimmel-trump-ballroom-dinner.html
+
+**Tomiichi Murayama, Japanese Leader Who Gave War Apology, Dies at 101**\
+`His televised address as prime minister delivered 50 years to the day after Japan announced its surrender set a marker for his country’s “deep remorse” over wartime atrocities.`\
+https://nytimes.com/2025/10/17/world/asia/tomiichi-murayama-dead.html
+
 **The Real Trump Factor in the Gaza Deal**\
 `The secret of Donald Trump’s success with the Israeli prime minister was offering carrots on domestic politics — not sticks on foreign policy.`\
 https://nytimes.com/2025/10/17/opinion/trump-netanyahu-gaza-israel-deal.html
