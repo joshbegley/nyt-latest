@@ -1,3 +1,15 @@
+**gws-cedric-grolet-la-chocolaterie-pastry-chef**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/cedric-grolet-la-chocolaterie-pastry-chef
+
+**Rams WR Puka Nacua ruled out for game vs. Jaguars**\
+`Right tackle Rob Havenstein will also miss a third straight game with an ankle injury.`\
+https://nytimes.com/athletic/6726373/2025/10/17/rams-puka-nacua-out-jaguars-injury/
+
+**Joel Embiid to return to 76ers' lineup for preseason finale**\
+`Embiid, who has been rehabbing from injury and played in just 19 games last season, has practiced with the Sixers consistently during camp.`\
+https://nytimes.com/athletic/6726366/2025/10/17/joel-embiid-76ers-return/
+
 **NFLPA vows transparency in search for new executive director**\
 `The planned approach differs from the last selection process, which union leaders conducted in great secrecy.`\
 https://nytimes.com/athletic/6726122/2025/10/17/nflpa-search-firm-executive-director/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6726192/2025/10/17/brian-branch-detroit-lions-nfl-f
 **How to watch Lightning vs. Red Wings: Time, TV, streaming**\
 `Find out how to watch the Tampa Bay Lightning play the Detroit Red Wings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6726364/2025/10/17/lightning-vs-red-wings-stream-how-to-watch-oct-17/
-
-**How to watch Wild vs. Capitals: Time, TV, streaming**\
-`Find out how to watch the Minnesota Wild play the Washington Capitals, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6726362/2025/10/17/wild-vs-capitals-stream-how-to-watch-oct-17/
-
-**Trump Pushes Indiana Lawmakers to Redraw State Maps**\
-`A call Friday morning by the president to  Republican state senators is part of an escalating pressure campaign by the White House.`\
-https://nytimes.com/2025/10/17/us/politics/trump-indiana-senate-state-maps.html
-
-**Trump Officials Appeal Challenge to Their Efforts to Restrict D.E.I.**\
-`A federal judge had previously stopped the administration from cutting off billions to schools that have diversity and equity programs.`\
-https://nytimes.com/2025/10/17/us/trump-officials-appeal-challenge-dei-restrictions.html
 
