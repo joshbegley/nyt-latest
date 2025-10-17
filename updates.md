@@ -1,3 +1,7 @@
+**Devastating Floods in Mexico Test a Popular President**\
+`Torrential rains last week brought death and widespread damage. President Claudia Sheinbaum has visited affected areas, facing some angry residents.`\
+https://nytimes.com/2025/10/17/world/americas/mexico-floods-missing.html
+
 **Jury rules against former Red Wings Zamboni driver in age discrimination case**\
 `Al Sobotka, who brought the lawsuit against Olympia Entertainment in 2022, said he's "devastated" by the verdict.`\
 https://nytimes.com/athletic/6723725/2025/10/17/red-wings-zamboni-driver-lawsuit/
