@@ -1,3 +1,7 @@
+**How Ace Frehley Made ‘New York Groove’ His Own**\
+`The Kiss guitarist, who died on Thursday at 74, scored his only Top 20 solo hit with a cover that’s endured for decades.`\
+https://nytimes.com/2025/10/17/arts/music/ace-frehley-kiss-new-york-groove.html
+
 **'It's definitely looking good' - Kompany's positive Davies injury return update**\
 `Davies had initially not been expected to play again this year but Kompany has now suggested a December return is possible.`\
 https://nytimes.com/athletic/6725931/2025/10/17/alphonso-davies-injury-update-bayern-canada/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6723504/2025/10/17/rams-davante-adams-tutu-atwell-p
 **Putin’s Trump Strategy: Lots of Flattery, and Talk of Business Deals**\
 `After Thursday’s phone call with President Vladimir V. Putin of Russia, President Trump appeared to express doubts about supplying Ukraine with more powerful weapons.`\
 https://nytimes.com/2025/10/17/world/europe/putin-trump-call-meeting-ukraine-russia.html
-
-**Pulisic diagnosed with 'low-grade' hamstring injury, will miss Milan vs. Fiorentina**\
-`The 27-year-old sustained the injury during the USMNT’s 2-1 victory over Australia on Wednesday.`\
-https://nytimes.com/athletic/6722375/2025/10/17/christian-pulisic-injury-milan-fiorentina/
 

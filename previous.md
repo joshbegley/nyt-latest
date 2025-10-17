@@ -1,3 +1,11 @@
+**'It's definitely looking good' - Kompany's positive Davies injury return update**\
+`Davies had initially not been expected to play again this year but Kompany has now suggested a December return is possible.`\
+https://nytimes.com/athletic/6725931/2025/10/17/alphonso-davies-injury-update-bayern-canada/
+
+**The 10.19.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/10/17/the-101925-issue
+
 **Baek Sehee, Korean Writer Who Bared Her Struggles With Depression, Dies at 35**\
 `The writer turned recorded sessions with her therapist into a best-selling memoir, and helped normalize conversations around mental health in South Korea.`\
 https://nytimes.com/2025/10/17/arts/baek-se-hee-dead-author.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/17/world/europe/putin-trump-call-meeting-ukraine-rus
 **Pulisic diagnosed with 'low-grade' hamstring injury, will miss Milan vs. Fiorentina**\
 `The 27-year-old sustained the injury during the USMNT’s 2-1 victory over Australia on Wednesday.`\
 https://nytimes.com/athletic/6722375/2025/10/17/christian-pulisic-injury-milan-fiorentina/
-
-**As Broncos honor No Fly Zone defense, similar traits in '25 version are hard to miss**\
-`The Broncos in 2015 were led to a Super Bowl by an elite defense. This year's version compares favorably through six games.`\
-https://nytimes.com/athletic/6723671/2025/10/17/broncos-defense-vance-joseph-no-fly-zone/
-
-**How to watch the Boston Celtics all season long**\
-`Both the Celtics' starting lineup and NBA broadcasts will look different this season. Here's what you need to know. `\
-https://nytimes.com/athletic/6723347/2025/10/17/boston-celtics-national-tv-schedule-how-to-watch/
 

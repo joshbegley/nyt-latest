@@ -1,3 +1,11 @@
+**'It's definitely looking good' - Kompany's positive Davies injury return update**\
+`Davies had initially not been expected to play again this year but Kompany has now suggested a December return is possible.`\
+https://nytimes.com/athletic/6725931/2025/10/17/alphonso-davies-injury-update-bayern-canada/
+
+**The 10.19.25 Issue**\
+``\
+https://nytimes.com/issue/magazine/2025/10/17/the-101925-issue
+
 **Baek Sehee, Korean Writer Who Bared Her Struggles With Depression, Dies at 35**\
 `The writer turned recorded sessions with her therapist into a best-selling memoir, and helped normalize conversations around mental health in South Korea.`\
 https://nytimes.com/2025/10/17/arts/baek-se-hee-dead-author.html
