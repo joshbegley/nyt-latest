@@ -1,3 +1,15 @@
+**What will F1 on Apple TV look like? Everything we know, and lingering questions**\
+`Apple and F1 announced their five-year partnership — The Athletic explains the hows and whys of the deal.`\
+https://nytimes.com/athletic/6723368/2025/10/17/f1-apple-tv-formula-one-streaming-explained/
+
+**The Bounce: Wemby's award chances keep growing. Plus, we preview Thunder and Cavaliers**\
+`Zach Harper catches you up on the latest NBA news in our newsletter.`\
+https://nytimes.com/athletic/6726134/2025/10/17/victor-wembanyama-thunder-cavaliers-the-bounce/
+
+**Postecoglou says he will bring success to Forest if given time**\
+`"Some will look at the weeds, I'll look at what's growing," Postecoglou said ahead of Saturday's game against Chelsea.`\
+https://nytimes.com/athletic/6726217/2025/10/17/ange-postecoglou-nottingham-forest-success/
+
 **Portland Fire name Cavs' assistant Alex Sarama first head coach in franchise history**\
 `He is the organization’s second major hire in recent days, joining executive Ashley Battle.`\
 https://nytimes.com/athletic/6717913/2025/10/17/portland-fire-wnba-head-coach-hired/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/17/insider/tehching-hsieh.html
 **Frank taking cautious approach with Solanke's recovery**\
 `Solanke missed most of pre-season with an ankle injury before returning as a substitute in Tottenham's UEFA Super Cup defeat to PSG.`\
 https://nytimes.com/athletic/6712652/2025/10/17/thomas-frank-dominic-solanke-tottenham-injury/
-
-**How Giants are borrowing from Ole Miss playbook to accentuate Jaxson Dart's strengths**\
-`Giants coach Brian Daboll and OC Mike Kafka are leaning into plays from Dart's past, and the quarterback’s comfort level is obvious. `\
-https://nytimes.com/athletic/6725030/2025/10/17/giants-jaxson-dart-ole-miss-brian-daboll-broncos/
-
-**Bengals rebound, CeeDee Lamb's return and fantasy football strategy for first-half heroes**\
-`Andy Behrens applies a fantasy football lens to the NFL news cycle and offers mid-season advice for those leading their leagues. `\
-https://nytimes.com/athletic/6726050/2025/10/17/fantasy-football-news-week-7-bengals-flacco-ceedee-lamb/
-
-**Starmer Objects as Police Bar Israeli Team’s Fans From U.K. Soccer Game**\
-`Confrontation has shadowed Israeli teams’ games in Europe since the start of the Gaza war. Local authorities sought to bar visiting fans at a game in central England next month.`\
-https://nytimes.com/2025/10/17/world/europe/aston-villa-maccabi-fans.html
 
