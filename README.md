@@ -1,3 +1,7 @@
+**Dodgers-Brewers Game 3 takeaways: Roki Sasaki-led bullpen pushes Milwaukee to brink**\
+`LOS ANGELES — Well aware of the narrative surrounding the bullpen this October, the Los Angeles Dodgers turned to a slew of relievers in hopes of changing the discourse.`\
+https://nytimes.com/athletic/6724492/2025/10/16/dodgers-brewers-game-3-score-results-takeaways-playoffs-mlb/
+
 **How the Bolton Indictment Compares to Trump’s Classified Documents Case**\
 `Some charges against the onetime national security adviser resemble the dropped case against President Trump, but there are also differences.`\
 https://nytimes.com/2025/10/16/us/politics/trump-bolton-indictment-documents.html
@@ -33,8 +37,4 @@ https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliw
 **“Your favorite mayor, Bill de Blasio.”**\
 `By Benjamin Oreskes`\
 https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/your-favorite-mayor-bill-de-blasio
-
-**“I’m not funded by the same donors that gave us Donald Trump’s second term, which isn’t something that Andrew Cuomo can say.”**\
-`By Benjamin Oreskes`\
-https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/donors
 
