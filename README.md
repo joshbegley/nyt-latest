@@ -1,3 +1,11 @@
+**U.S. Empties Migrant Detention Space at Guantánamo**\
+`A group of 18 detainees had been held at the offshore base for less than a week. They were deported days before a court hearing where lawyers are challenging the holding of migrants there.`\
+https://nytimes.com/2025/10/17/us/politics/guantanamo-migrants-deported.html
+
+**The Victoria’s Secret Fashion Show in 30 Seconds**\
+`Vanessa Friedman, the fashion director and chief fashion critic of The New York Times, recaps the Victoria’s Secret 2025 fashion show in Brooklyn. Did all of the rebranding work?`\
+https://nytimes.com/video/style/100000010465221/the-victorias-secret-fashion-show-in-30-seconds.html
+
 **University of Virginia Won’t Join White House’s Compact for Colleges**\
 `It was the fifth school in a matter of days to refuse an offer of preferential funding treatment from the government, even as the White House has threatened schools that do not sign up.`\
 https://nytimes.com/2025/10/17/us/university-of-virginia-white-house-compact.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6727087/2025/10/17/lando-norris-mclaren-repercussio
 **Funding Runs Out for Federal Courts, Threatening Delays and Staff Shortages**\
 `The office that administers the federal court system said that as of Monday, the judiciary will not have funding to sustain “full, paid operations.”`\
 https://nytimes.com/2025/10/17/us/politics/courts-funding-shutdown.html
-
-**The sprint race format**\
-`The first thing you need to do is completely detach sprint qualifying and the sprint race from the main grand prix qualifying and race,...`\
-https://nytimes.com/athletic/6727071/2025/10/17/sprint-race-format-f1/
-
-**Benioff Apologizes for Saying Trump Should Send Troops to San Francisco**\
-`Marc Benioff, the chief executive of Salesforce, said he no longer believed that National Guard troops were needed in the city.`\
-https://nytimes.com/2025/10/17/us/benioff-apologizes-san-francisco.html
 
