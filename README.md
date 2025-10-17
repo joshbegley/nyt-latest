@@ -1,40 +1,40 @@
-**The Top Zingers of the Mayoral Debate**\
-`The two-hour slugfest produced some memorable one-liners, on subjects ranging from the candidates’ parents to imaginary sports championships.`\
-https://nytimes.com/2025/10/16/nyregion/mamdani-cuomo-sliwa-debate.html
+**'We cannot just accept that': Inside Evan Bouchard's calamitous game vs. Islanders**\
+`Bouchard was the biggest reason why the Oilers fell in regulation for the first time in four games this season.`\
+https://nytimes.com/athletic/6725106/2025/10/17/oilers-islanders-evan-bouchard-errors/
 
-**Bengals-Steelers takeaways: Evan McPherson's game-winner caps a vintage Joe Flacco performance**\
-`Flacco threw for 342 yards and three touchdowns in the win.`\
-https://nytimes.com/athletic/6724931/2025/10/16/steelers-bengals-score-result-takeaways-thursday-night-football/
+**Who are European football's expected goals overperformers so far this season?**\
+`The 2025-26 season is still young, but players including Harry Kane and Julian Alvarez have started the campaign on the front foot`\
+https://nytimes.com/athletic/6707513/2025/10/17/xg-overperformance-kane-pulisic-alvarez-uzan/
 
-**Anthony Stolarz is back in top form. Why he's the key for the Leafs**\
-`Stolarz made 28 saves in Toronto's 2-1 overtime win over the New York Rangers on Thursday.`\
-https://nytimes.com/athletic/6725042/2025/10/16/maple-leafs-rangers-anthony-stolarz/
+**Quote of the Day: Less Support From FEMA Flows to Towns and States That Are Hit by Disasters**\
+`Quotation of the Day for Friday, October 17, 2025.`\
+https://nytimes.com/2025/10/17/pageoneplus/quote-of-the-day-less-support-from-fema-flows-to-towns-and-states-that-are-hit-by-disasters.html
 
-**Mariners-Blue Jays Game 4 takeaways: It’s suddenly a series again in Seattle**\
-`Max Scherzer delivered a throwback performance and the Blue Jays moved closer to emulating the '96 Yankees`\
-https://nytimes.com/athletic/6724397/2025/10/16/blue-jays-mariners-game-4-score-results-takeaways-playoffs-mlb/
+**Corrections: Oct. 17, 2025**\
+`Corrections that appeared in print on Friday, Oct. 17, 2025.`\
+https://nytimes.com/2025/10/17/pageoneplus/corrections-oct-17-2025.html
 
-**With Jackson Chourio hurt and down 3-0 in NLCS, Brewers’ dreams are almost dead**\
-`To avoid a sweep, the Brewers will have to get through Shohei Ohtani in full two-way form.`\
-https://nytimes.com/athletic/6724982/2025/10/16/brewers-jackson-chourio-nlcs-game-3/
+**Castmates Become Co-Stars in Their Own Romantic Comedy**\
+`A video project and mutual friends helped bring Maya Bradford, a book publicist, and Lily Marotta, a comedian and podcaster, together.`\
+https://nytimes.com/2025/10/17/style/maya-bradford-lily-marotta-wedding.html
 
-**‘Ragtime’ Review: Checking the Status of Our American Dream**\
-`Joshua Henry, Caissie Levy and Brandon Uranowitz lead the glorious cast of Lear deBessonet’s inspiriting Broadway revival at Lincoln Center Theater.`\
-https://nytimes.com/2025/10/16/theater/ragtime-review-henry-debessonet.html
+**From Situationship to Relationship After Nearly Two Years**\
+`Aaron Sharratt and Kellen Hornbuckle, ballet dancers with the Houston Ballet, bonded through video games.`\
+https://nytimes.com/2025/10/17/style/kellen-hornbuckle-aaron-sharratt-wedding.html
 
-**Fiery Max Scherzer turns back time, then turns away Blue Jays manager**\
-`Scherzer, 41, lobbied to stay in the game when his manager emerged with a potential hook in the fifth.`\
-https://nytimes.com/athletic/6724988/2025/10/16/max-scherzer-game-4-alcs-manager-blue-jays/
+**A Wedding That Blurred the Lines Between Love and Art**\
+`When Jules Dudko and Shawn Kolodny met, he had left a thriving career to become an artist. She invested in his dream — and in him.`\
+https://nytimes.com/2025/10/17/style/jules-dudko-shawn-kolodny-wedding.html
 
-**7 Takeaways From the First N.Y.C. Mayoral Debate**\
-`Zohran Mamdani, Andrew Cuomo and Curtis Sliwa sparred over serious topics like the Israel-Hamas war and President Trump, and more curious subjects like parade attendance.`\
-https://nytimes.com/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-takeaways.html
+**A Composer and a Swiftie Find Harmony in Kansas**\
+`Alex Wakim, a composer, thought falling in love should feel operatic. But after meeting Mollina So in their hometown, he realized love can feel like being back in high school.`\
+https://nytimes.com/2025/10/17/style/mollina-so-alex-wakim-wedding.html
 
-**Pumpkin-Butterscotch Custard With Spiced Whipped Cream**\
-`Butterscotch pudding gets an autumnal makeover with the addition of pumpkin purée and a fluffy, spiced whipped cream topping.`\
-https://nytimes.com/video/dining/100000010366127/pumpkin-butterscotch-custard-with-spiced-whipped-cream.html
+**Connections: Sports Edition Coach: Hints for Oct. 17, 2025**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6723432/2025/10/17/connections-sports-edition-hints-for-oct-17-2025/
 
-**Fact-Checking the New York Mayoral Debate**\
-`Zohran Mamdani, Andrew Cuomo and Curtis Sliwa traded barbs over the police, prostitution and President Trump.`\
-https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-fact-check
+**My Husband, the Reluctant Barista**\
+`When the person handing you your coffee at Starbucks is your husband of 17 years.`\
+https://nytimes.com/2025/10/17/style/modern-love-my-husband-the-reluctant-barista.html
 
