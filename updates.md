@@ -1,3 +1,19 @@
+**NHL Power Rankings: Everything we've already gotten wrong**\
+`After just one week of hockey, we’ve seen enough. Here's something from every team we got wrong.`\
+https://nytimes.com/athletic/6725336/2025/10/17/nhl-power-rankings-27/
+
+**Bengals Upset Steelers Behind Vintage Joe Flacco Performance**\
+`Evan McPherson drilled a 36-yard field goal in the final seconds to lift the Cincinnati Bengals to a 33-31 win over the Pittsburgh Steelers.`\
+https://nytimes.com/video/the-athletic/100000010464711/bengals-upset-steelers-behind-vintage-joe-flacco-performance.html
+
+**F1 must now navigate the slipstream of Apple's previous media deals with MLB, MLS**\
+`The $140 million per year partnership brings together two glamorous brands, but previous sports leagues have had mixed results on Apple TV.`\
+https://nytimes.com/athletic/6724507/2025/10/17/f1-apple-tv-media-tim-cook-eddie-cue/
+
+**Covering an Artist With Unconventional Materials: Strict Rules and Time**\
+`A culture reporter is always watching for art that challenges us to look at the world, and our lives, differently. An artist who lived in a cage for a year ticked that box.`\
+https://nytimes.com/2025/10/17/insider/tehching-hsieh.html
+
 **Frank taking cautious approach with Solanke's recovery**\
 `Solanke missed most of pre-season with an ankle injury before returning as a substitute in Tottenham's UEFA Super Cup defeat to PSG.`\
 https://nytimes.com/athletic/6712652/2025/10/17/thomas-frank-dominic-solanke-tottenham-injury/
