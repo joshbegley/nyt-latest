@@ -1,3 +1,7 @@
+**Red Light: These goalies are thriving amid the NHL's scoring bonanza. Plus: It's rankings time**\
+`NHL goaltenders could all use a hug as they’re getting scored on at the highest rate we’ve seen in two decades.`\
+https://nytimes.com/athletic/6726237/2025/10/17/nhl-red-light-newsletter-goalies-rankings/
+
 **Kevin Durant, James Harden reflect on controversial trades in Season 2 of 'Starting 5'**\
 `The Netflix series, which follows Durant, Harden, Jaylen Brown, Shai Gilgeous-Alexander and Tyrese Haliburton, debuted Thursday.`\
 https://nytimes.com/athletic/6725992/2025/10/17/kevin-durant-james-harden-starting-five-netflix/

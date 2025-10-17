@@ -1,3 +1,7 @@
+**Red Light: These goalies are thriving amid the NHL's scoring bonanza. Plus: It's rankings time**\
+`NHL goaltenders could all use a hug as they’re getting scored on at the highest rate we’ve seen in two decades.`\
+https://nytimes.com/athletic/6726237/2025/10/17/nhl-red-light-newsletter-goalies-rankings/
+
 **Kevin Durant, James Harden reflect on controversial trades in Season 2 of 'Starting 5'**\
 `The Netflix series, which follows Durant, Harden, Jaylen Brown, Shai Gilgeous-Alexander and Tyrese Haliburton, debuted Thursday.`\
 https://nytimes.com/athletic/6725992/2025/10/17/kevin-durant-james-harden-starting-five-netflix/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6723368/2025/10/17/f1-apple-tv-formula-one-streamin
 **The Bounce: Wemby's award chances keep growing. Plus, we preview Thunder and Cavaliers**\
 `Zach Harper catches you up on the latest NBA news in our newsletter.`\
 https://nytimes.com/athletic/6726134/2025/10/17/victor-wembanyama-thunder-cavaliers-the-bounce/
-
-**Postecoglou says he will bring success to Forest if given time**\
-`"Some will look at the weeds, I'll look at what's growing," Postecoglou said ahead of Saturday's game against Chelsea.`\
-https://nytimes.com/athletic/6726217/2025/10/17/ange-postecoglou-nottingham-forest-success/
 
