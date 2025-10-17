@@ -1,3 +1,11 @@
+**U.S. Empties Migrant Detention Space at Guantánamo**\
+`A group of 18 detainees had been held at the offshore base for less than a week. They were deported days before a court hearing where lawyers are challenging the holding of migrants there.`\
+https://nytimes.com/2025/10/17/us/politics/guantanamo-migrants-deported.html
+
+**The Victoria’s Secret Fashion Show in 30 Seconds**\
+`Vanessa Friedman, the fashion director and chief fashion critic of The New York Times, recaps the Victoria’s Secret 2025 fashion show in Brooklyn. Did all of the rebranding work?`\
+https://nytimes.com/video/style/100000010465221/the-victorias-secret-fashion-show-in-30-seconds.html
+
 **University of Virginia Won’t Join White House’s Compact for Colleges**\
 `It was the fifth school in a matter of days to refuse an offer of preferential funding treatment from the government, even as the White House has threatened schools that do not sign up.`\
 https://nytimes.com/2025/10/17/us/university-of-virginia-white-house-compact.html
