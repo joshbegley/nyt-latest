@@ -1,3 +1,7 @@
+**How Ace Frehley Made ‘New York Groove’ His Own**\
+`The Kiss guitarist, who died on Thursday at 74, scored his only Top 20 solo hit with a cover that’s endured for decades.`\
+https://nytimes.com/2025/10/17/arts/music/ace-frehley-kiss-new-york-groove.html
+
 **'It's definitely looking good' - Kompany's positive Davies injury return update**\
 `Davies had initially not been expected to play again this year but Kompany has now suggested a December return is possible.`\
 https://nytimes.com/athletic/6725931/2025/10/17/alphonso-davies-injury-update-bayern-canada/
