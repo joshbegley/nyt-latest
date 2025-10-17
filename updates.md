@@ -1,3 +1,11 @@
+**Despite Gaza Cease-Fire, Aid Deliveries Struggle**\
+`A single photograph of Palestinians besieging an aid convoy after the new cease-fire took hold in Gaza makes clear how much work lies ahead in the enclave.`\
+https://nytimes.com/2025/10/17/world/middleeast/gaza-food-delivery.html
+
+**The 6 'repercussions' for naughty Norris. Plus, McLaren leads early in Austin**\
+`Lando Norris has said he'll face "repercussions" from McLaren for his contact with Oscar Piastri in Singapore. The F1 paddock is baffled`\
+https://nytimes.com/athletic/6727087/2025/10/17/lando-norris-mclaren-repercussions/
+
 **Funding Runs Out for Federal Courts, Threatening Delays and Staff Shortages**\
 `The office that administers the federal court system said that as of Monday, the judiciary will not have funding to sustain “full, paid operations.”`\
 https://nytimes.com/2025/10/17/us/politics/courts-funding-shutdown.html
