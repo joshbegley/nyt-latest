@@ -1,3 +1,7 @@
+**The Growing Blowback Against Marc Benioff**\
+`New revelations about efforts by his company, Salesforce, to work with the Trump administration is getting heat from San Francisco officials and now allies.`\
+https://nytimes.com/2025/10/17/business/dealbook/salesforce-benioff-trump-ice.html
+
 **Fantasy Premier League live Q&A: Gameweek 8 advice from Ben Dinnery**\
 `Join Ben Dinnery for a live Gameweek 8 Q&A from 4pm-5pm UK time today`\
 https://nytimes.com/athletic/6719320/2025/10/17/fantasy-premier-league-live-gameweek-8-advice-ben-dinnery/
