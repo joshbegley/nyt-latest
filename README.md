@@ -1,3 +1,23 @@
+**Kevin Durant, James Harden reflect on controversial trades in Season 2 of 'Starting 5'**\
+`The Netflix series, which follows Durant, Harden, Jaylen Brown, Shai Gilgeous-Alexander and Tyrese Haliburton, debuted Thursday.`\
+https://nytimes.com/athletic/6725992/2025/10/17/kevin-durant-james-harden-starting-five-netflix/
+
+**Unions Return to Court as Trump Eyes Additional Cuts During Shutdown**\
+`Unions representing federal workers told a judge they believed the administration might violate a temporary ban on layoffs during the shutdown.`\
+https://nytimes.com/2025/10/17/us/politics/trump-shutdown-cuts-unions.html
+
+**The Government Is Shut Down. But Not for Fossil Fuels.**\
+`Federal workers who issue permits for oil, gas and mining operations are on the job, along with those working to repeal pollution limits.`\
+https://nytimes.com/2025/10/17/climate/trump-government-shutdown-energy.html
+
+**Looking at the Unseeable With Gerhard Richter**\
+`A vast retrospective in Paris brings together six decades of work by the 93-year-old German artist.`\
+https://nytimes.com/2025/10/17/arts/design/gerhard-richter-fondation-louis-vuitton.html
+
+**Russia Jails Street Band for Performing Antiwar Songs**\
+`The group, called Stoptime, had been performing anti-Kremlin songs for months and gaining in popularity before the authorities moved against the open dissent.`\
+https://nytimes.com/2025/10/17/world/europe/russia-jails-street-band-for-performing-antiwar-songs.html
+
 **For $900, This Subway Seat Could Be Yours**\
 `The annual pop-up sale of retired signs and other transit artifacts from the New York City subway system attracted a line of collectors that stretched for blocks.`\
 https://nytimes.com/2025/10/17/nyregion/mta-subway-pop-up-sale.html
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6726134/2025/10/17/victor-wembanyama-thunder-cavali
 **Postecoglou says he will bring success to Forest if given time**\
 `"Some will look at the weeds, I'll look at what's growing," Postecoglou said ahead of Saturday's game against Chelsea.`\
 https://nytimes.com/athletic/6726217/2025/10/17/ange-postecoglou-nottingham-forest-success/
-
-**Portland Fire name Cavs' assistant Alex Sarama first head coach in franchise history**\
-`He is the organization’s second major hire in recent days, joining executive Ashley Battle.`\
-https://nytimes.com/athletic/6717913/2025/10/17/portland-fire-wnba-head-coach-hired/
-
-**gws-zapotec-couple-rug-weaving**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/zapotec-couple-rug-weaving
-
-**NHL Power Rankings: Everything we've already gotten wrong**\
-`After just one week of hockey, we’ve seen enough. Here's something from every team we got wrong.`\
-https://nytimes.com/athletic/6725336/2025/10/17/nhl-power-rankings-27/
-
-**Bengals Upset Steelers Behind Vintage Joe Flacco Performance**\
-`Evan McPherson drilled a 36-yard field goal in the final seconds to lift the Cincinnati Bengals to a 33-31 win over the Pittsburgh Steelers.`\
-https://nytimes.com/video/the-athletic/100000010464711/bengals-upset-steelers-behind-vintage-joe-flacco-performance.html
-
-**F1 must now navigate the slipstream of Apple's previous media deals with MLB, MLS**\
-`The $140 million per year partnership brings together two glamorous brands, but previous sports leagues have had mixed results on Apple TV.`\
-https://nytimes.com/athletic/6724507/2025/10/17/f1-apple-tv-media-tim-cook-eddie-cue/
 
