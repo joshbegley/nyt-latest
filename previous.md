@@ -1,3 +1,15 @@
+**Hall to return for Newcastle before next international break**\
+`The 21-year-old left-back was initially thought to be out for months after a first scan on his tweaked hamstring.`\
+https://nytimes.com/athletic/6725570/2025/10/17/lewis-hall-newcastle-hamstring-injury/
+
+**U.S. Charges Louisiana Man With Joining Hamas-Led Oct. 7 Attack**\
+`A man was in custody in Louisiana after federal prosecutors accused him of joining Hamas militants in attacking Israel in 2023. He was also accused of lying to obtain a U.S. visa.`\
+https://nytimes.com/2025/10/17/us/fbi-hamas-attack-louisiana.html
+
+**Frances Tiafoe splits with coaches, ends tennis season early: 'It wasn’t the season I hoped for'**\
+`Tiafoe's 2025 ends with his worst win-loss ratio since 2019.`\
+https://nytimes.com/athletic/6725545/2025/10/17/tennis-frances-tiafoe-coach-split/
+
 **Read the document**\
 `Federal prosecutors accused a man in Louisiana of participating in the Hamas-led attack on Israel on Oct. 7, 2023, according to a criminal complaint unsealed on Thursday.`\
 https://nytimes.com/interactive/2025/10/17/us/hamas-case-louisiana-complaint.html
@@ -10,6 +22,14 @@ https://nytimes.com/athletic/6723508/2025/10/17/college-football-midseason-bowl-
 `Stan Son shares 10 NBA situations that intrigue him heading into the 2025-26 fantasy basketball campaign.`\
 https://nytimes.com/athletic/6723606/2025/10/17/fantasy-basketball-situations-trae-young-rockets-mavericks/
 
+**Giants' Cam Skattebo used small-town fire to fuel his big-city smoke for New York**\
+`Don't expect Skattebo, the pride of Rio Linda, Calif., to change his style. He'll keep attacking opponents the only way he knows how.`\
+https://nytimes.com/athletic/6724238/2025/10/17/cam-skattebo-new-york-giants-journey/
+
+**Why Aaron Glenn is not getting fired — not now, and not in the offseason**\
+`The first-year head coach brought the promise of a Lions-like turnaround. How similar are the 2025 Jets and the 2021 Lions?`\
+https://nytimes.com/athletic/6722832/2025/10/17/aaron-glenn-job-security-new-york-jets-rebuild/
+
 **She's 80 years old, and she just completed the famed Ironman World Championship race**\
 `"The important thing is that people see from my story that they can maybe push themselves a little bit," Natalie Grabow says.`\
 https://nytimes.com/athletic/6723502/2025/10/17/natalie-grabow-ironman-world-championship-race-80-years-old/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6723502/2025/10/17/natalie-grabow-ironman-world-cha
 **Is It Healthy to Grieve Before a Loss?**\
 `Yes. Here’s how to cope.`\
 https://nytimes.com/2025/10/17/well/anticipatory-grief.html
-
-**Dispute Over Indiana College Newspaper Draws Censorship Accusations**\
-`The administration at Indiana University Bloomington fired the adviser to the paper and barred the publication from putting out a print edition.`\
-https://nytimes.com/2025/10/17/business/media/indiana-university-daily-student-newspaper.html
-
-**The New York Times News Quiz, Oct. 17, 2025**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2025/10/17/briefing/news-quiz-trump-immigration-supreme-court.html
-
-**What We Know About the Latest ‘No Kings’ Protests**\
-`The nationwide protests are playing out as a federal government shutdown lingers and troops are being deployed in cities.`\
-https://nytimes.com/2025/10/17/us/no-kings-protest.html
-
-**Meeting With Zelensky Opens Trump’s New Push for Ukraine Cease-Fire**\
-`President Trump is energized by the Mideast deal, but President Volodymyr Zelensky of Ukraine is seeking fewer talks and more weapons to force Russia to negotiate.`\
-https://nytimes.com/2025/10/17/world/europe/zelensky-trump-meeting-white-house-ukraine-war.html
-
-**Can You Make Use of Your Neighbors’ Trash Cans?**\
-`A ruling on dog-waste-disposal etiquette.`\
-https://nytimes.com/interactive/2025/10/17/magazine/19mag-hodgmanquiz.html
 

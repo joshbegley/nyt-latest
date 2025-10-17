@@ -1,3 +1,23 @@
+**Hall to return for Newcastle before next international break**\
+`The 21-year-old left-back was initially thought to be out for months after a first scan on his tweaked hamstring.`\
+https://nytimes.com/athletic/6725570/2025/10/17/lewis-hall-newcastle-hamstring-injury/
+
+**U.S. Charges Louisiana Man With Joining Hamas-Led Oct. 7 Attack**\
+`A man was in custody in Louisiana after federal prosecutors accused him of joining Hamas militants in attacking Israel in 2023. He was also accused of lying to obtain a U.S. visa.`\
+https://nytimes.com/2025/10/17/us/fbi-hamas-attack-louisiana.html
+
+**Frances Tiafoe splits with coaches, ends tennis season early: 'It wasn’t the season I hoped for'**\
+`Tiafoe's 2025 ends with his worst win-loss ratio since 2019.`\
+https://nytimes.com/athletic/6725545/2025/10/17/tennis-frances-tiafoe-coach-split/
+
+**Giants' Cam Skattebo used small-town fire to fuel his big-city smoke for New York**\
+`Don't expect Skattebo, the pride of Rio Linda, Calif., to change his style. He'll keep attacking opponents the only way he knows how.`\
+https://nytimes.com/athletic/6724238/2025/10/17/cam-skattebo-new-york-giants-journey/
+
+**Why Aaron Glenn is not getting fired — not now, and not in the offseason**\
+`The first-year head coach brought the promise of a Lions-like turnaround. How similar are the 2025 Jets and the 2021 Lions?`\
+https://nytimes.com/athletic/6722832/2025/10/17/aaron-glenn-job-security-new-york-jets-rebuild/
+
 **Read the document**\
 `Federal prosecutors accused a man in Louisiana of participating in the Hamas-led attack on Israel on Oct. 7, 2023, according to a criminal complaint unsealed on Thursday.`\
 https://nytimes.com/interactive/2025/10/17/us/hamas-case-louisiana-complaint.html
