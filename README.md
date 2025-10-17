@@ -1,3 +1,15 @@
+**With injuries undoing the Commanders' plans, Jayden Daniels is running out of receivers**\
+`The Commanders wade into Week 7 with the very real possibility they could be without their three top top receivers because of injuries.`\
+https://nytimes.com/athletic/6725795/2025/10/17/commanders-wide-receivers-terry-mclaurin-deebo-samuel-noah-brown/
+
+**NFL Week 7 schedule rankings: Top 5 Sunday games to help us find the good teams**\
+`There's a huge glut in the middle of the NFL standings so far. Here are five games that could help us differentiate the real from the fake. `\
+https://nytimes.com/athletic/6720062/2025/10/17/nfl-week-7-schedule-falcons-49ers-vikings-eagles-how-to-watch/
+
+**Psychological Warfare in Venezuela**\
+`We examine the Trump administration’s tactics against Venezuela.`\
+https://nytimes.com/2025/10/17/briefing/psychological-warfare-in-venezuela.html
+
 **With Parcells and Belichick, it was personal. For Mike Vrabel, facing old team is business**\
 `Forget trying to win one for the Gipper. The Patriots just want to win one (while figuring out who, or what, a Gipper is).`\
 https://nytimes.com/athletic/6721541/2025/10/17/mike-vrabel-patriots-titans-return/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6724501/2025/10/17/49ers-fred-warner-tatum-bethune-
 **Wild's Matt Boldy is driven to be the best — what's his ceiling? 'A superstar'**\
 `Boldy has four goals and eight points in four games already in 2025-26, as his ascent into the NHL elite continues.`\
 https://nytimes.com/athletic/6723820/2025/10/17/wild-matt-boldy-superstar-ceiling/
-
-**Twins mailbag: Replacing Rocco Baldelli, Louis Varland trade takes and 40-man spots**\
-`Plus the Twins' catcher and bullpen plans for 2026, possible signs of a rebuild and future outlooks for Jose Miranda and Edouard Julien.`\
-https://nytimes.com/athletic/6718719/2025/10/17/twins-mailbag-rocco-baldelli-louis-varland-trade/
-
-**As playoffs show importance of pitching depth, Cubs will continue search for more arms**\
-`Jed Hoyer admitted that Chicago could've used some more pitching during the postseason, but felt that prices at the deadline were too high.`\
-https://nytimes.com/athletic/6724009/2025/10/17/cubs-offseason-pitching-depth-postseason/
-
-**Why Blackhawks' Wyatt Kaiser has become the perfect partner for 'unpredictable' Artyom Levshunov**\
-`Kaiser and Levshunov are about the closest thing Chicago has to a permanent pair and have been attached at the hip since late last season.`\
-https://nytimes.com/athletic/6724287/2025/10/17/blackhawks-wyatt-kaiser-artyom-levshunov/
 

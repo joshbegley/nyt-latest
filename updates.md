@@ -1,3 +1,43 @@
+**With Parcells and Belichick, it was personal. For Mike Vrabel, facing old team is business**\
+`Forget trying to win one for the Gipper. The Patriots just want to win one (while figuring out who, or what, a Gipper is).`\
+https://nytimes.com/athletic/6721541/2025/10/17/mike-vrabel-patriots-titans-return/
+
+**Davies: Haji Wright is putting himself high in Pochettino's World Cup plans**\
+`The Athletic's former U.S. national team forward says Haji Wright is on course to claim Mauricio Pochettino's backup striker spot`\
+https://nytimes.com/athletic/6725009/2025/10/17/haji-wright-usmnt-world-cup-squad-coventry-pochettino/
+
+**Erik Spoelstra, Grant Hill's first order of business: Fix USA Basketball's World Cup problem**\
+`As dominant as the U.S. has been at the Olympics, it hasn't won the FIBA World Cup since 2014. Erik Spoelstra is here to change that.`\
+https://nytimes.com/athletic/6724093/2025/10/17/erik-spoelstra-team-usa-world-cup/
+
+**Portal Buzz: Under-the-radar transfers plus former blue-chip QBs who could be on the move**\
+`Should Texas have hit the portal to beef up its offensive line? How a new portal rule affects teams that make a coaching change. `\
+https://nytimes.com/athletic/6724145/2025/10/17/college-football-transfer-portal-quarterbacks-2/
+
+**Week 8’s top 10 college football games: Tennessee-Alabama, USC-Notre Dame and Ole Miss-Georgia**\
+`Alabama is coming off three straight wins over ranked teams, and Tennessee has the top scoring offense in FBS. `\
+https://nytimes.com/athletic/6723705/2025/10/17/college-football-schedule-week-8-tennessee-alabama/
+
+**For new 49ers middle LB Tatum Bethune, talking is just as important as tackling**\
+`The 49ers don't expect Bethune to be Fred Warner. But there's a quiet confidence that the 2024 seventh-round pick can anchor the defense.`\
+https://nytimes.com/athletic/6724501/2025/10/17/49ers-fred-warner-tatum-bethune-bijan-robinson/
+
+**Wild's Matt Boldy is driven to be the best — what's his ceiling? 'A superstar'**\
+`Boldy has four goals and eight points in four games already in 2025-26, as his ascent into the NHL elite continues.`\
+https://nytimes.com/athletic/6723820/2025/10/17/wild-matt-boldy-superstar-ceiling/
+
+**Twins mailbag: Replacing Rocco Baldelli, Louis Varland trade takes and 40-man spots**\
+`Plus the Twins' catcher and bullpen plans for 2026, possible signs of a rebuild and future outlooks for Jose Miranda and Edouard Julien.`\
+https://nytimes.com/athletic/6718719/2025/10/17/twins-mailbag-rocco-baldelli-louis-varland-trade/
+
+**As playoffs show importance of pitching depth, Cubs will continue search for more arms**\
+`Jed Hoyer admitted that Chicago could've used some more pitching during the postseason, but felt that prices at the deadline were too high.`\
+https://nytimes.com/athletic/6724009/2025/10/17/cubs-offseason-pitching-depth-postseason/
+
+**Why Blackhawks' Wyatt Kaiser has become the perfect partner for 'unpredictable' Artyom Levshunov**\
+`Kaiser and Levshunov are about the closest thing Chicago has to a permanent pair and have been attached at the hip since late last season.`\
+https://nytimes.com/athletic/6724287/2025/10/17/blackhawks-wyatt-kaiser-artyom-levshunov/
+
 **Jaden Ivey's surgery complicates Pistons' early-season plans**\
 `Detroit got some tough news on Ivey, but Cade Cunnigham's shooting is one of a few positive preseason developments.`\
 https://nytimes.com/athletic/6725396/2025/10/17/detroit-pistons-jaden-ivey-ausar-thompson-preseason-wrapup/
