@@ -1,3 +1,7 @@
+**Phillies expect to part ways with Nick Castellanos this offseason: Sources**\
+`Castellanos, who's owed $20 million next year, is expected to be traded or released this offseason as the Phillies remake their outfield.`\
+https://nytimes.com/athletic/6726521/2025/10/17/phillies-offseason-nick-castellanos-trade-release/
+
 **Normandy, France**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/things-to-do-normandy
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6726493/2025/10/17/nhl-expansion-price-cost/
 **East London**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/things-to-do-east-london
-
-**The Windup: What Mad Max said during that confrontation**\
-`Welcome to The Windup, The Athletic's MLB newsletter.`\
-https://nytimes.com/athletic/6726503/2025/10/17/max-scherzer-alcs-the-windup/
 
