@@ -1,3 +1,7 @@
+**The Real Trump Factor in the Gaza Deal**\
+`The secret of Donald Trump’s success with the Israeli prime minister was offering carrots on domestic politics — not sticks on foreign policy.`\
+https://nytimes.com/2025/10/17/opinion/trump-netanyahu-gaza-israel-deal.html
+
 **UWCL Briefing: VAR controversy, Man Utd's steady defence, Arsenal's shaky start**\
 `The Athletic's experts have dissected the big talking points from the league phase matches`\
 https://nytimes.com/athletic/6725191/2025/10/17/womens-champions-league-chelsea-manchester-united-arsenal-var/

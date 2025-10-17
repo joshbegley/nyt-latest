@@ -6,13 +6,13 @@ https://nytimes.com/athletic/6725191/2025/10/17/womens-champions-league-chelsea-
 `Jon Caramanica, host of “Popcast,” explains why Valorant’s new Champions anthem, “Last Shot,” captures the moment.`\
 https://nytimes.com/video/podcasts/100000010463758/are-video-games-giving-us-some-of-the-best-new-music.html
 
+**The Real Trump Factor in the Gaza Deal**\
+`The secret of Donald Trump’s success with the Israeli prime minister was offering carrots on domestic politics — not sticks on foreign policy.`\
+https://nytimes.com/2025/10/17/opinion/trump-netanyahu-gaza-israel-deal.html
+
 **The New York Times in Print for Friday, Oct. 17, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/17/todays-new-york-times
-
-**Trump and Netanyahu Are Now Inseparable**\
-`The secret of Donald Trump’s success with the Israeli prime minister was offering carrots on domestic politics — not sticks on foreign policy.`\
-https://nytimes.com/2025/10/17/opinion/trump-netanyahu-gaza-israel-deal.html
 
 **Aaron Rodgers' touchdown celebration interrupted by surprise takedown by teammate**\
 `Rodgers took some friendly fire from his 311-pound left tackle and didn't seem too happy with it. `\
