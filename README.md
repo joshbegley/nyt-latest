@@ -1,3 +1,15 @@
+**Let’s Remember, Stephen King Isn’t Always Scary**\
+`It’s October, which means it’s time for the master of horror to shine. Yet he’s become equally famous for several works of non-horror.`\
+https://nytimes.com/2025/10/17/books/review/podcast-stephen-king-shawshank-stand-by-me.html
+
+**U.S. Detains 2 Survivors of Latest Military Strike in Caribbean**\
+`The capture of prisoners presents a major new set of legal and policy problems for the Trump administration in its escalating campaign.`\
+https://nytimes.com/2025/10/17/us/politics/us-military-strike-survivors.html
+
+**Drought Mutes Leaf-Peeping Season**\
+`A prolonged drought and other factors have muffled the kaleidoscopic blend of reds, oranges and yellows in some areas of New England this fall.`\
+https://nytimes.com/2025/10/17/climate/fall-foliage-drought-new-england.html
+
 **Mason Miller among MLB players following fired Ballengee agents to new agency: Sources**\
 `Jeff Randazzo, who was let go by Ballengee in August, has co-founded a new agency and brought all of his clients with him.`\
 https://nytimes.com/athletic/6726604/2025/10/17/covenant-group-ballengee-jeff-randazzo-mason-miller/
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6726562/2025/10/17/college-football-week-8-projecte
 **Treasury Secretary Stakes Credibility and Taxpayer Money on Argentina Bet**\
 `Treasury Secretary Scott Bessent’s multibillion-dollar bailout of a serial defaulter raises the specter of losses for the United States.`\
 https://nytimes.com/2025/10/17/us/politics/trump-argentina-bailout-bessent.html
-
-**Costa Brava**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/things-to-do-costa-brava
-
-**NFL Week 7 projected scores: Model predicts point spreads and totals for every game**\
-`Austin Mock's projection model predicts point spreads and point totals for NFL Week 7 games.`\
-https://nytimes.com/athletic/6723414/2025/10/17/nfl-week-7-projected-scores-model-predicts-point-spreads-totals/
-
-**Massachusetts School Employee Dies After Trying to Restrain Student**\
-`The student, 14, has been charged with assault.`\
-https://nytimes.com/2025/10/17/us/massachusetts-school-staff-dies-student-kick.html
 

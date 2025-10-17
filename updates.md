@@ -1,5 +1,9 @@
 **Mason Miller among MLB players following fired Ballengee agents to new agency: Sources**\
 `Jeff Randazzo, who was let go by Ballengee in August, has co-founded a new agency and brought all of his clients with him.`\
+https://nytimes.com/athletic/6726604/2025/10/17/covenant-group-ballengee-jeff-randazzo-mason-miller/
+
+**Mason Miller among MLB players following fired Ballengee agents to new agency: Sources**\
+`Jeff Randazzo, who was let go by Ballengee in August, has co-founded a new agency and brought all of his clients with him.`\
 https://nytimes.com/athletic/6726604/2025/10/17/mason-miller-among-mlb-players-following-fired-ballengee-agents-to-new-agency-sources/
 
 **I Have Parkinson’s: A Range of Voices**\
