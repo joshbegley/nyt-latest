@@ -1,3 +1,7 @@
+**Judge Gives Prosecutors Until June 1 to Begin Retrial in Etan Patz Case**\
+`The conviction of Pedro Hernandez in the 1979 murder of the 6-year-old was vacated. The Manhattan district attorney is exploring whether to try him again.`\
+https://nytimes.com/2025/10/17/nyregion/etan-patz-retrial-decision.html
+
 **Despite Gaza Cease-Fire, Aid Deliveries Struggle**\
 `A single photograph of Palestinians besieging an aid convoy after the new cease-fire took hold in Gaza makes clear how much work lies ahead in the enclave.`\
 https://nytimes.com/2025/10/17/world/middleeast/gaza-food-delivery.html
