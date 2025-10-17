@@ -1,3 +1,23 @@
+**The Pulse: Joe frickin’ Flacco**\
+`The Pulse Newsletter 📣 | This is The Athletic&#8217;s daily sports newsletter.`\
+https://nytimes.com/athletic/6723695/2025/10/17/joe-flacco-bengals-steelers-the-pulse/
+
+**Why Browns' game vs. Dolphins could be quite telling for Kevin Stefanski's future**\
+`Zac Jackson and Jason Lloyd exchange thoughts on the good (not much), bad (plenty) and ugly of this struggling 1-5 Browns team.`\
+https://nytimes.com/athletic/6723330/2025/10/17/browns-kevin-stefanski-future-dolphins/
+
+**What's it like living next to a college football stadium?**\
+`Old stadiums are some of college football’s most visible and iconic landmarks. They also have complex relationships with their neighbors.`\
+https://nytimes.com/athletic/6722415/2025/10/17/college-football-stadiums-cal-michigan-wisconsin-neighbors/
+
+**WNBA coaching carousel: What I'm hearing about the Liberty, Storm and other jobs**\
+`Brondello's future could have a chain reaction in the WNBA as other franchises will move on to other options once she's hired.`\
+https://nytimes.com/athletic/6724884/2025/10/17/wnba-coaching-carousel-new-york-liberty/
+
+**Divine Deablo, Poona Ford among 5 most impactful defensive free-agent signings so far**\
+`Milton Williams, DeMarcus Lawrence and Charvarius Ward round out additions who've sparked improvement for their new teams.`\
+https://nytimes.com/athletic/6723218/2025/10/17/defensive-free-agents-deablo-lawrence-ford/
+
 **Sticking with Max Scherzer and what it revealed about the evolution of Blue Jays manager John Schneider**\
 `“You make the best decision in real time based on what you’re seeing,” Schneider said. “No matter how it works out, you're good with it.”`\
 https://nytimes.com/athletic/6725517/2025/10/17/john-schneider-max-scherzer-mound-visit-alcs/
@@ -17,24 +37,4 @@ https://nytimes.com/athletic/6723178/2025/10/17/chiefs-wide-receivers-special-bo
 **Cowboys' defensive progress, CeeDee Lamb's impact and ... the sun: 3 things I'm watching**\
 `"We’re working to take a step this week,” Dallas DC Matt Eberflus said of the defense that is allowing a league-high 412 yards per game.`\
 https://nytimes.com/athletic/6724747/2025/10/17/cowboys-ceedee-lamb-dak-prescott-commanders/
-
-**Alim McNeill's return: Long-awaited and welcome sight for Lions' defense**\
-`Defensive tackle Alim McNeill tore his ACL in December and is returning a little ahead of schedule`\
-https://nytimes.com/athletic/6724220/2025/10/17/lions-alim-mcneill-injury-return-bucs/
-
-**Panthers' Damien Lewis is family figure off the field, 'rolling freight train' on it**\
-`During the fall, you can catch Lewis in the bleachers watching his brothers play football for Myers Park High.`\
-https://nytimes.com/athletic/6723691/2025/10/17/panthers-damien-lewis-offensive-line-journey/
-
-**Blue Jackets outclassed, outplayed in 4-1 home loss to Avalanche: 'We were soft'**\
-`The Blue Jackets had only 12 hits, a number that glares brighter when you realize how little they had the puck.`\
-https://nytimes.com/athletic/6724976/2025/10/17/blue-jackets-home-loss-avalanche/
-
-**Premier League roundtable: Semenyo or Haaland? Slot's Liverpool plans? Biggest surprise?**\
-`The international break is over. The Premier League is back. Our writers discuss the season so far and what to look out for in coming months`\
-https://nytimes.com/athletic/6722168/2025/10/17/premier-league-roundtable-semenyo-or-haaland-slots-liverpool-plans-biggest-surprise/
-
-**Eagles cornerback depth chart remains unsettled while Isaiah Rodgers excels in Minnesota**\
-`The Eagles have been struggling to solidify the CB2 position.`\
-https://nytimes.com/athletic/6724231/2025/10/17/eagles-cornerback-depth-chart-isaiah-rodgers-minnesota/
 
