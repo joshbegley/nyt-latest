@@ -1,3 +1,11 @@
+**The New York Times in Print for Friday, Oct. 17, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/17/todays-new-york-times
+
+**Trump and Netanyahu Are Now Inseparable**\
+`The secret of Donald Trump’s success with the Israeli prime minister was offering carrots on domestic politics — not sticks on foreign policy.`\
+https://nytimes.com/2025/10/17/opinion/trump-netanyahu-gaza-israel-deal.html
+
 **Aaron Rodgers' touchdown celebration interrupted by surprise takedown by teammate**\
 `Rodgers took some friendly fire from his 311-pound left tackle and didn't seem too happy with it. `\
 https://nytimes.com/athletic/6725215/2025/10/17/aaron-rodgers-broderick-jones-steelers-tackle-celebration/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6699919/2025/10/17/brighton-welbeck-rutter-baleba-m
 **FPL: The players to buy, keep and sell for Gameweek 8**\
 `Abdul Rehman explains why this is not the time to get rid of Mohamed Salah – but what should you do with Viktor Gyokeres?`\
 https://nytimes.com/athletic/6717989/2025/10/17/fantasy-premier-league-gw8-buy-sell-keep/
-
-**Arsenal mailbag: Odegaard’s fitness? Calafiori the rebel? Berta's next steps? Emirates upgrade?**\
-`Is the captain's fitness a concern? What should Berta prioritise next? And is Calafiori king of the rebels in Arteta's squad?`\
-https://nytimes.com/athletic/6715964/2025/10/17/arsenal-odegaard-berta-emirates/
-
-**Has Emery revived Aston Villa's season? We are about to find out**\
-`After a difficult start, four wins in a row have improved the mood at Villa Park. But is their campaign really back on track?`\
-https://nytimes.com/athletic/6722109/2025/10/17/aston-villa-test-emery/
 
