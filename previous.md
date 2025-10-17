@@ -1,3 +1,7 @@
+**Texas Tech's Skyler Gill-Howard has surgery on ankle injury, expected back for CFP: Source**\
+`Gill-Howard has been one of the highest-graded defensive tackles in the country, according to Pro Football Focus.`\
+https://nytimes.com/athletic/6726743/2025/10/17/skyler-gill-howard-texas-tech-injury-surgery/
+
 **Flashback: Your Weekly History Quiz, Oct. 18, 2025**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2025/10/17/upshot/flashback.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6726654/2025/10/17/jaromir-jagr-czechia-hockey-hall
 **No Water, No Power: The Misery That Fueled Madagascar’s Youth**\
 `The young people who toppled the government are now confronting questions about what’s next, and who will deliver on their demands.`\
 https://nytimes.com/2025/10/17/world/africa/madagascar-coup-youth-protests-next.html
-
-**Cowboys' Trevon Diggs out Sunday vs. Commanders after in-home accident**\
-`In six games this season, Trevon Diggs has 18 tackles and one TFL.`\
-https://nytimes.com/athletic/6726585/2025/10/17/cowboys-trevon-diggs-out-injury-commanders/
 

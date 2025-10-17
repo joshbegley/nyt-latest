@@ -1,3 +1,11 @@
+**Southwest Unveils a New Cabin Design. It’s All Blue and Some Seats Have More Legroom.**\
+`The redesign features German-made seats, space for premium customers and USB charging ports. The move is part of the company’s plan to offer more upscale options.`\
+https://nytimes.com/2025/10/17/travel/southwest-airlines-cabin-design-boeing-737.html
+
+**Lining Up for a Piece of New York City Subway History**\
+`The Metropolitan Transit Authority in New York City ran its fifth annual pop-up sale, selling retired signs and other train memorabilia from North America’s largest subway system.`\
+https://nytimes.com/video/nyregion/100000010464885/new-york-subway-sale.html
+
 **Texas Tech's Skyler Gill-Howard has surgery on ankle injury, expected back for CFP: Source**\
 `Gill-Howard has been one of the highest-graded defensive tackles in the country, according to Pro Football Focus.`\
 https://nytimes.com/athletic/6726743/2025/10/17/skyler-gill-howard-texas-tech-injury-surgery/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6726593/2025/10/17/ange-postecoglou-re-opens-spurs-
 **Review: At Ballet Theater, Tharp Comes to Push and Conquer**\
 `American Ballet Theater opened its season with an all-Twyla Tharp program, featuring her first dance for the company, “Push Comes to Shove,” and the for-the-ages “Bach Partita.”`\
 https://nytimes.com/2025/10/17/arts/dance/review-at-ballet-theater-tharp-comes-to-push-and-conquer.html
-
-**Jaromir Jagr, 53, plays pro game in Czechia, pushing back Hall of Fame candidacy another year**\
-`The earliest that Jágr will now be eligible to clear the Hall of Fame's three-year waiting period for induction is 2029.`\
-https://nytimes.com/athletic/6726654/2025/10/17/jaromir-jagr-czechia-hockey-hall-of-fame/
-
-**No Water, No Power: The Misery That Fueled Madagascar’s Youth**\
-`The young people who toppled the government are now confronting questions about what’s next, and who will deliver on their demands.`\
-https://nytimes.com/2025/10/17/world/africa/madagascar-coup-youth-protests-next.html
 

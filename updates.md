@@ -1,3 +1,7 @@
+**Texas Tech's Skyler Gill-Howard has surgery on ankle injury, expected back for CFP: Source**\
+`Gill-Howard has been one of the highest-graded defensive tackles in the country, according to Pro Football Focus.`\
+https://nytimes.com/athletic/6726743/2025/10/17/skyler-gill-howard-texas-tech-injury-surgery/
+
 **Flashback: Your Weekly History Quiz, Oct. 18, 2025**\
 `Can you sort 8 historical events?`\
 https://nytimes.com/interactive/2025/10/17/upshot/flashback.html
