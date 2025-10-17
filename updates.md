@@ -1,3 +1,11 @@
+**How Bengals DC Al Golden looks to improve struggling defense**\
+`Golden isn't letting Thursday's result — a win over the Steelers — cloud his analysis of how his defense played.`\
+https://nytimes.com/athletic/6727051/2025/10/17/how-bengals-dc-al-golden-looks-to-improve-struggling-defense/
+
+**Zelensky Pressed Trump for New Weapons**\
+`Also, the Treasury secretary is betting big on Argentina. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/10/17/briefing/ukraine-trump-weapons-treasury-argentina.html
+
 **U.S. Empties Migrant Detention Space at Guantánamo**\
 `A group of 18 detainees had been held at the offshore base for less than a week. They were deported days before a court hearing where lawyers are challenging the holding of migrants there.`\
 https://nytimes.com/2025/10/17/us/politics/guantanamo-migrants-deported.html
