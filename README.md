@@ -1,3 +1,7 @@
+**The Growing Blowback Against Marc Benioff**\
+`New revelations about efforts by his company, Salesforce, to work with the Trump administration is getting heat from San Francisco officials and now allies.`\
+https://nytimes.com/2025/10/17/business/dealbook/salesforce-benioff-trump-ice.html
+
 **Fantasy Premier League live Q&A: Gameweek 8 advice from Ben Dinnery**\
 `Join Ben Dinnery for a live Gameweek 8 Q&A from 4pm-5pm UK time today`\
 https://nytimes.com/athletic/6719320/2025/10/17/fantasy-premier-league-live-gameweek-8-advice-ben-dinnery/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6721541/2025/10/17/mike-vrabel-patriots-titans-retu
 **Davies: Haji Wright is putting himself high in Pochettino's World Cup plans**\
 `The Athletic's former U.S. national team forward says Haji Wright is on course to claim Mauricio Pochettino's backup striker spot`\
 https://nytimes.com/athletic/6725009/2025/10/17/haji-wright-usmnt-world-cup-squad-coventry-pochettino/
-
-**Erik Spoelstra, Grant Hill's first order of business: Fix USA Basketball's World Cup problem**\
-`As dominant as the U.S. has been at the Olympics, it hasn't won the FIBA World Cup since 2014. Erik Spoelstra is here to change that.`\
-https://nytimes.com/athletic/6724093/2025/10/17/erik-spoelstra-team-usa-world-cup/
 
