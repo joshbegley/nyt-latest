@@ -1,3 +1,7 @@
+**Baek Sehee, Korean Writer Who Bared Her Struggles With Depression, Dies at 35**\
+`The writer turned recorded sessions with her therapist into a best-selling memoir, and helped normalize conversations around mental health in South Korea.`\
+https://nytimes.com/2025/10/17/arts/baek-se-hee-dead-author.html
+
 **Senior Chinese General Is Ousted on Corruption Charges**\
 `With the fall of He Weidong, the No. 3 figure in China’s military hierarchy, Xi Jinping’s purges have reached the top of the People’s Liberation Army.`\
 https://nytimes.com/2025/10/17/world/asia/china-military-general-he-corruption.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6723671/2025/10/17/broncos-defense-vance-joseph-no-
 **How to watch the Boston Celtics all season long**\
 `Both the Celtics' starting lineup and NBA broadcasts will look different this season. Here's what you need to know. `\
 https://nytimes.com/athletic/6723347/2025/10/17/boston-celtics-national-tv-schedule-how-to-watch/
-
-**Wolves' Rob Dillingham tries to stay true to himself while acclimating to the NBA game**\
-`As he prepares for his second season, Dillingham might be one of the most important players on the Wolves' roster. `\
-https://nytimes.com/athletic/6718201/2025/10/17/wolves-rob-dillingham-nba/
 
