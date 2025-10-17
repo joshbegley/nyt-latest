@@ -1,3 +1,11 @@
+**How Bengals DC Al Golden looks to improve struggling defense**\
+`Golden isn't letting Thursday's result — a win over the Steelers — cloud his analysis of how his defense played.`\
+https://nytimes.com/athletic/6727051/2025/10/17/how-bengals-dc-al-golden-looks-to-improve-struggling-defense/
+
+**Zelensky Pressed Trump for New Weapons**\
+`Also, the Treasury secretary is betting big on Argentina. Here’s the latest at the end of Friday.`\
+https://nytimes.com/2025/10/17/briefing/ukraine-trump-weapons-treasury-argentina.html
+
 **U.S. Empties Migrant Detention Space at Guantánamo**\
 `A group of 18 detainees had been held at the offshore base for less than a week. They were deported days before a court hearing where lawyers are challenging the holding of migrants there.`\
 https://nytimes.com/2025/10/17/us/politics/guantanamo-migrants-deported.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/17/nyregion/etan-patz-retrial-decision.html
 **Despite Gaza Cease-Fire, Aid Deliveries Struggle**\
 `A single photograph of Palestinians besieging an aid convoy after the new cease-fire took hold in Gaza makes clear how much work lies ahead in the enclave.`\
 https://nytimes.com/2025/10/17/world/middleeast/gaza-food-delivery.html
-
-**The 6 'repercussions' for naughty Norris. Plus, McLaren leads early in Austin**\
-`Lando Norris has said he'll face "repercussions" from McLaren for his contact with Oscar Piastri in Singapore. The F1 paddock is baffled`\
-https://nytimes.com/athletic/6727087/2025/10/17/lando-norris-mclaren-repercussions/
-
-**Funding Runs Out for Federal Courts, Threatening Delays and Staff Shortages**\
-`The office that administers the federal court system said that as of Monday, the judiciary will not have funding to sustain “full, paid operations.”`\
-https://nytimes.com/2025/10/17/us/politics/courts-funding-shutdown.html
 
