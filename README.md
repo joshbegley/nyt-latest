@@ -1,3 +1,7 @@
+**gws-zapotec-couple-rug-weaving**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/zapotec-couple-rug-weaving
+
 **NHL Power Rankings: Everything we've already gotten wrong**\
 `After just one week of hockey, we’ve seen enough. Here's something from every team we got wrong.`\
 https://nytimes.com/athletic/6725336/2025/10/17/nhl-power-rankings-27/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/17/world/europe/aston-villa-maccabi-fans.html
 **For Ukraine, Budapest brings back painful memories of security promises broken.**\
 `By Constant Méheut`\
 https://nytimes.com/live/2025/10/17/us/trump-news-zelensky/for-ukraine-budapest-brings-back-painful-memories-of-security-promises-broken
-
-**High Five — around the world in five games**\
-`The A-League gets under way, the J-League is picking up steam, it's 'Decision Day' in MLS and two crackers in Brazil and Greece.`\
-https://nytimes.com/athletic/6725015/2025/10/17/high-five-around-the-world-in-five-games-3/
 
