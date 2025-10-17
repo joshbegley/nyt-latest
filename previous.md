@@ -1,3 +1,7 @@
+**A Somali Hospital Closed After U.S. Aid Cuts. Fired Employees Reopened It Without Pay.**\
+`After the Trump administration stopped funding a medical center for women and children, a determined group of health care workers refused to let it shutter.`\
+https://nytimes.com/2025/10/17/health/somalia-hospital-reopen-employees.html
+
 **With injuries undoing the Commanders' plans, Jayden Daniels is running out of receivers**\
 `The Commanders wade into Week 7 with the very real possibility they could be without their three top top receivers because of injuries.`\
 https://nytimes.com/athletic/6725795/2025/10/17/commanders-wide-receivers-terry-mclaurin-deebo-samuel-noah-brown/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6723705/2025/10/17/college-football-schedule-week-8
 **For new 49ers middle LB Tatum Bethune, talking is just as important as tackling**\
 `The 49ers don't expect Bethune to be Fred Warner. But there's a quiet confidence that the 2024 seventh-round pick can anchor the defense.`\
 https://nytimes.com/athletic/6724501/2025/10/17/49ers-fred-warner-tatum-bethune-bijan-robinson/
-
-**Wild's Matt Boldy is driven to be the best — what's his ceiling? 'A superstar'**\
-`Boldy has four goals and eight points in four games already in 2025-26, as his ascent into the NHL elite continues.`\
-https://nytimes.com/athletic/6723820/2025/10/17/wild-matt-boldy-superstar-ceiling/
 
