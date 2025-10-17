@@ -1,9 +1,17 @@
+**Jaden Ivey's surgery complicates Pistons' early-season plans**\
+`Detroit got some tough news on Ivey, but Cade Cunnigham's shooting is one of a few positive preseason developments.`\
+https://nytimes.com/athletic/6725396/2025/10/17/detroit-pistons-jaden-ivey-ausar-thompson-preseason-wrapup/
+
+**Weird & Wild: Ohtani's odd October, Jacob Misiorowski's moment and a peculiar punchout**\
+`The soon-to-be four-time MVP has looked shockingly human. But he's still had his moments for the Death Star Dodgers, who just keep rolling.`\
+https://nytimes.com/athletic/6725561/2025/10/17/ohtani-mlb-playoffs-jacob-misiorowski-dodgers-brewers/
+
 **Read the document**\
 `Federal prosecutors accused a man in Louisiana of participating in the Hamas-led attack on Israel on Oct. 7, 2023, according to a criminal complaint unsealed on Thursday.`\
 https://nytimes.com/interactive/2025/10/17/us/hamas-case-louisiana-complaint.html
 
-**The Steelers' Flacco nightmare becomes a reality on Thursday night**\
-`The Bengals' newly-acquired QB torched the Steelers' remade secondary.`\
+**Steelers' Joe Flacco nightmare becomes a reality on Thursday night**\
+`The Bengals' newly acquired quarterback torched the Steelers' remade secondary.`\
 https://nytimes.com/athletic/6725353/2025/10/17/pittsburgh-steelers-cincinnati-bengals-thursday-night-loss/
 
 **The Pulse: Joe frickin’ Flacco**\
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6723218/2025/10/17/defensive-free-agents-deablo-law
 **Sticking with Max Scherzer and what it revealed about the evolution of Blue Jays manager John Schneider**\
 `“You make the best decision in real time based on what you’re seeing,” Schneider said. “No matter how it works out, you're good with it.”`\
 https://nytimes.com/athletic/6725517/2025/10/17/john-schneider-max-scherzer-mound-visit-alcs/
-
-**Police ordered to review decision to ban Maccabi Tel Aviv fans from Villa game**\
-`The review of the decision is set to take place on Friday, with a decision expected on the same day.`\
-https://nytimes.com/athletic/6725518/2025/10/17/aston-villa-maccabi-tel-aviv-fans-police/
-
-**Yankees takeaways on Cody Bellinger, Jasson Domínguez, Spencer Jones and the coaching staff**\
-`GM Brian Cashman and manager Aaron Boone offered some clues about the Yankees' offseason and 2026 roster during Thursday's news conference. `\
-https://nytimes.com/athletic/6723899/2025/10/17/yankees-offseason-cody-bellinger-2026-season/
 
