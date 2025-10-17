@@ -1,3 +1,7 @@
+**Funding Runs Out for Federal Courts, Threatening Delays and Staff Shortages**\
+`The office that administers the federal court system said that as of Monday, the judiciary will not have funding to sustain “full, paid operations.”`\
+https://nytimes.com/2025/10/17/us/politics/courts-funding-shutdown.html
+
 **The sprint race format**\
 `The first thing you need to do is completely detach sprint qualifying and the sprint race from the main grand prix qualifying and race,...`\
 https://nytimes.com/athletic/6727071/2025/10/17/sprint-race-format-f1/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6726904/2025/10/17/chiefs-rashee-rice-return-suspen
 **Three Cases of Mpox Strain Tied to Severe Illness Worry Health Experts**\
 `None of the patients, all California residents, had traveled abroad, suggesting the Clade 1 virus strain was transmitted locally.`\
 https://nytimes.com/2025/10/17/health/mpox-california-los-angeles-county.html
-
-**Former Liverpool, Chelsea and Sunderland striker Borini joins Salford City**\
-`Borini was part of a pre-season training camp put on by the PFA for out-of-contract players this summer.`\
-https://nytimes.com/athletic/6726949/2025/10/17/liverpool-chelsea-sunderland-borini-salford/
 

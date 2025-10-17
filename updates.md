@@ -1,3 +1,7 @@
+**Funding Runs Out for Federal Courts, Threatening Delays and Staff Shortages**\
+`The office that administers the federal court system said that as of Monday, the judiciary will not have funding to sustain “full, paid operations.”`\
+https://nytimes.com/2025/10/17/us/politics/courts-funding-shutdown.html
+
 **The sprint race format**\
 `The first thing you need to do is completely detach sprint qualifying and the sprint race from the main grand prix qualifying and race,...`\
 https://nytimes.com/athletic/6727071/2025/10/17/sprint-race-format-f1/
