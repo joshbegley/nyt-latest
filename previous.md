@@ -1,3 +1,11 @@
+**Fact-Checking the New York Mayoral Debate**\
+`Zohran Mamdani, Andrew Cuomo and Curtis Sliwa traded barbs over the police, prostitution and President Trump.`\
+https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-fact-check
+
+**Plant on a Pergola**\
+`Karen Steinberg opens our solving weekend with an approachable themeless puzzle.`\
+https://nytimes.com/2025/10/16/crosswords/daily-puzzle-2025-10-17.html
+
 **Salesforce Tries to Help ICE Boost Its Immigration Force**\
 `The San Francisco-based firm has told ICE that it could use A.I. to help the agency nearly triple its staff. The company’s C.E.O., once a progressive tech titan, has embraced President Trump.`\
 https://nytimes.com/2025/10/16/us/salesforce-benioff-ice.html
@@ -26,15 +34,7 @@ https://nytimes.com/2025/10/16/us/politics/trump-bolton-indictment-documents.htm
 `Federal prosecutors filed charges last year alleging a scheme to obtain contracts from the Philippine elections commission.`\
 https://nytimes.com/2025/10/16/business/media/smartmatic-bribery-indictment-philippines.html
 
-**Brewers' Jackson Chourio exits NLCS Game 3 with leg injury**\
+**Brewers' Jackson Chourio exits NLCS Game 3 with leg cramps**\
 `Chourio, 21, hit .270 with 21 home runs, 21 stolen bases and 78 RBIs in his second big-league season.`\
 https://nytimes.com/athletic/6724720/2025/10/16/brewers-jackson-chourio-injury/
-
-**“I’m the only candidate who’s opposed to congestion pricing.”**\
-`By Benjamin Oreskes`\
-https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/congestion-pricing
-
-**“I want to first be clear that I am not and nor have I ever called for the legalization of prostitution.”**\
-`By Benjamin Oreskes`\
-https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-sliwa/prostitution
 
