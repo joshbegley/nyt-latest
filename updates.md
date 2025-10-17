@@ -1,3 +1,19 @@
+**Police ordered to review decision to ban Maccabi Tel Aviv fans from Villa game**\
+`The review of the decision is set to take place on Friday, with a decision expected on the same day.`\
+https://nytimes.com/athletic/6725518/2025/10/17/aston-villa-maccabi-tel-aviv-fans-police/
+
+**Yankees takeaways on Cody Bellinger, Jasson Domínguez, Spencer Jones and the coaching staff**\
+`GM Brian Cashman and manager Aaron Boone offered some clues about the Yankees' offseason and 2026 roster during Thursday's news conference. `\
+https://nytimes.com/athletic/6723899/2025/10/17/yankees-offseason-cody-bellinger-2026-season/
+
+**Why Chiefs' receivers room is different this season: 'It's something that's special'**\
+`Chiefs quarterback Patrick Mahomes says part of the team's offensive success can be traced to his receivers' unselfishness.`\
+https://nytimes.com/athletic/6723178/2025/10/17/chiefs-wide-receivers-special-bond/
+
+**Cowboys' defensive progress, CeeDee Lamb's impact and ... the sun: 3 things I'm watching**\
+`"We’re working to take a step this week,” Dallas DC Matt Eberflus said of the defense that is allowing a league-high 412 yards per game.`\
+https://nytimes.com/athletic/6724747/2025/10/17/cowboys-ceedee-lamb-dak-prescott-commanders/
+
 **Alim McNeill's return: Long-awaited and welcome sight for Lions' defense**\
 `Defensive tackle Alim McNeill tore his ACL in December and is returning a little ahead of schedule`\
 https://nytimes.com/athletic/6724220/2025/10/17/lions-alim-mcneill-injury-return-bucs/

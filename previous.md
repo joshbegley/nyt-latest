@@ -1,3 +1,19 @@
+**Police ordered to review decision to ban Maccabi Tel Aviv fans from Villa game**\
+`The review of the decision is set to take place on Friday, with a decision expected on the same day.`\
+https://nytimes.com/athletic/6725518/2025/10/17/aston-villa-maccabi-tel-aviv-fans-police/
+
+**Yankees takeaways on Cody Bellinger, Jasson Domínguez, Spencer Jones and the coaching staff**\
+`GM Brian Cashman and manager Aaron Boone offered some clues about the Yankees' offseason and 2026 roster during Thursday's news conference. `\
+https://nytimes.com/athletic/6723899/2025/10/17/yankees-offseason-cody-bellinger-2026-season/
+
+**Why Chiefs' receivers room is different this season: 'It's something that's special'**\
+`Chiefs quarterback Patrick Mahomes says part of the team's offensive success can be traced to his receivers' unselfishness.`\
+https://nytimes.com/athletic/6723178/2025/10/17/chiefs-wide-receivers-special-bond/
+
+**Cowboys' defensive progress, CeeDee Lamb's impact and ... the sun: 3 things I'm watching**\
+`"We’re working to take a step this week,” Dallas DC Matt Eberflus said of the defense that is allowing a league-high 412 yards per game.`\
+https://nytimes.com/athletic/6724747/2025/10/17/cowboys-ceedee-lamb-dak-prescott-commanders/
+
 **Alim McNeill's return: Long-awaited and welcome sight for Lions' defense**\
 `Defensive tackle Alim McNeill tore his ACL in December and is returning a little ahead of schedule`\
 https://nytimes.com/athletic/6724220/2025/10/17/lions-alim-mcneill-injury-return-bucs/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6724231/2025/10/17/eagles-cornerback-depth-chart-is
 **A ‘cruel’ homecoming for the Mariners, whose pitchers are meeting their match**\
 `The Mariners’ vaunted rotation has an 8.04 ERA because the aggressive Blue Jays are pouring it on in the ALCS.`\
 https://nytimes.com/athletic/6725546/2025/10/17/mariners-pitching-blue-jays-alcs/
-
-**DGB Mailbag: The worst and most perfect metaphor for being a Leafs fan, and more**\
-`Plus a reason to believe for Sabres fans, and the potential ramifications of the Penguins winning the lottery and selecting Gavin McKenna.`\
-https://nytimes.com/athletic/6723308/2025/10/17/maple-leafs-fan-sabres-penguins-gavin-mckenna/
-
-**Canadiens' excellent start is based more on a solid foundation than late-game heroics**\
-`The Canadiens have achieved the start they desired through five games, but that is less about their record than it is how they got there.`\
-https://nytimes.com/athletic/6725305/2025/10/17/canadiens-ot-win-predators-nhl-score/
-
-**What can Rangers do to fix finishing issues? Evaluating their options after loss in Toronto**\
-`Finishing has been an issue for the Rangers this season, and that continued in a 2-1 overtime loss to the Maple Leafs on Thursday.`\
-https://nytimes.com/athletic/6725097/2025/10/17/rangers-maple-leafs-mika-zibanejad-juuso-parssinen/
-
-**Colts have overcome flaws on defense so far; here's why their luck could soon run out**\
-`The Colts have struggled to get off the field on third downs and yielded far too many explosive plays. `\
-https://nytimes.com/athletic/6724756/2025/10/17/colts-defense-flaws-secondary-chargers/
 
