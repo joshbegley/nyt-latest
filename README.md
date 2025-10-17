@@ -1,3 +1,11 @@
+**Hall to return for Newcastle before next international break**\
+`The 21-year-old left-back was initially thought to be out for months after a first scan on his tweaked hamstring.`\
+https://nytimes.com/athletic/6725570/2025/10/17/lewis-hall-newcastle-hamstring-injury/
+
+**U.S. Charges Louisiana Man With Joining Hamas-Led Oct. 7 Attack**\
+`A man was in custody in Louisiana after federal prosecutors accused him of joining Hamas militants in attacking Israel in 2023. He was also accused of lying to obtain a U.S. visa.`\
+https://nytimes.com/2025/10/17/us/fbi-hamas-attack-louisiana.html
+
 **Frances Tiafoe splits with coaches, ends tennis season early: 'It wasn’t the season I hoped for'**\
 `Tiafoe's 2025 ends with his worst win-loss ratio since 2019.`\
 https://nytimes.com/athletic/6725545/2025/10/17/tennis-frances-tiafoe-coach-split/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6723502/2025/10/17/natalie-grabow-ironman-world-cha
 **Is It Healthy to Grieve Before a Loss?**\
 `Yes. Here’s how to cope.`\
 https://nytimes.com/2025/10/17/well/anticipatory-grief.html
-
-**Dispute Over Indiana College Newspaper Draws Censorship Accusations**\
-`The administration at Indiana University Bloomington fired the adviser to the paper and barred the publication from putting out a print edition.`\
-https://nytimes.com/2025/10/17/business/media/indiana-university-daily-student-newspaper.html
-
-**The New York Times News Quiz, Oct. 17, 2025**\
-`Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
-https://nytimes.com/interactive/2025/10/17/briefing/news-quiz-trump-immigration-supreme-court.html
 
