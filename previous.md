@@ -1,3 +1,15 @@
+**Higher Obamacare Prices Become Public in a Dozen States**\
+`Consumers are facing greater costs for their 2026 A.C.A. health coverage as Congress continues to debate whether to extend subsidies that help people afford their premiums.`\
+https://nytimes.com/2025/10/17/health/aca-health-insurance-costs.html
+
+**These Halloween Decorations Will Charm You Year After Year**\
+`Text by Dorie Chevlen`\
+https://nytimes.com/card/2025/10/17/smarter-living/wirecutter/
+
+**The Met’s 20 Scariest Artworks: Can You Find Them?**\
+`For this Halloween scavenger hunt, we scoured this encyclopedic museum for the most haunting works, bloody details and hidden meanings.`\
+https://nytimes.com/interactive/2025/10/17/arts/design/halloween-met-museum.html
+
 **How to watch Sharks vs. Mammoth: Time, TV, streaming**\
 `Find out how to watch the San Jose Sharks play the Utah Mammoth, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6726918/2025/10/17/sharks-vs-mammoth-stream-how-to-watch-oct-17/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/17/us/politics/trump-caribbean-venezuela-us-military
 **Celtics' Jaylen Brown day-to-day after hamstring injury**\
 `Brown participated in everything but the live portions of practice Friday, according to Mazzulla.`\
 https://nytimes.com/athletic/6724339/2025/10/17/jaylen-brown-injury-celtics-update-hamstring/
-
-**Prince Andrew Surrenders Duke of York Title**\
-`The royal’s fall from grace began nearly six years ago with a calamitous television interview about his ties to the convicted sex offender Jeffrey Epstein.`\
-https://nytimes.com/2025/10/17/world/europe/prince-andrew-duke-of-york-title.html
-
-**Southwest Unveils a New Cabin Design. It’s All Blue and Some Seats Have More Legroom.**\
-`The redesign features German-made seats, space for premium customers and USB charging ports. The move is part of the company’s plan to offer more upscale options.`\
-https://nytimes.com/2025/10/17/travel/southwest-airlines-cabin-design-boeing-737.html
-
-**Lining Up for a Piece of New York City Subway History**\
-`The Metropolitan Transit Authority in New York City ran its fifth annual pop-up sale, selling retired signs and other train memorabilia from North America’s largest subway system.`\
-https://nytimes.com/video/nyregion/100000010464885/new-york-subway-sale.html
 
