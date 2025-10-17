@@ -1,3 +1,7 @@
+**Aaron Rodgers' touchdown celebration interrupted by surprise takedown by teammate**\
+`Rodgers took some friendly fire from his 311-pound left tackle and didn't seem too happy with it. `\
+https://nytimes.com/athletic/6725215/2025/10/17/aaron-rodgers-broderick-jones-steelers-tackle-celebration/
+
 **Dodgers shift into juggernaut mode: 'We've been here. We know what it takes'**\
 `The Dodgers' all-around performance in Game 3 was just the latest example of why they are on the brink of returning to the Fall Classic.`\
 https://nytimes.com/athletic/6725056/2025/10/17/dogers-nlcs-game-3-mlb-tyler-glasnow/
