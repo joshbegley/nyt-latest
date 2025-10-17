@@ -1,3 +1,7 @@
+**Putin’s Trump Strategy: Lots of Flattery, and Talk of Business Deals**\
+`After Thursday’s phone call with President Vladimir V. Putin of Russia, President Trump appeared to express doubts about supplying Ukraine with more powerful weapons.`\
+https://nytimes.com/2025/10/17/world/europe/putin-trump-call-meeting-ukraine-russia.html
+
 **Pulisic diagnosed with 'low-grade' hamstring injury, will miss Milan vs. Fiorentina**\
 `The 27-year-old sustained the injury during the USMNT’s 2-1 victory over Australia on Wednesday.`\
 https://nytimes.com/athletic/6722375/2025/10/17/christian-pulisic-injury-milan-fiorentina/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6723482/2025/10/17/gunner-stockton-georgia-football
 **Hermoso, Leon return to Spain Women squad after prolonged absences**\
 `It marks Hermoso's first involvement since October 2024 while Leon has not played for Spain since July 2022.`\
 https://nytimes.com/athletic/6725725/2025/10/17/spain-women-squad-hermoso-leon/
-
-**The Growing Blowback Against Marc Benioff**\
-`New revelations about efforts by his company, Salesforce, to work with the Trump administration is getting heat from San Francisco officials and now allies.`\
-https://nytimes.com/2025/10/17/business/dealbook/salesforce-benioff-trump-ice.html
 
