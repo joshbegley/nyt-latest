@@ -1,3 +1,7 @@
+**Georgia Man Charged With Raping Women in Queens in the 1990s**\
+`New DNA testing linked Michael Benjamin, 57, to the assaults of five women between 1995 and 1997 in southeast Queens, according to the authorities.`\
+https://nytimes.com/2025/10/17/nyregion/queens-rape-case-1990s-arrest-georgia.html
+
 **Judge Gives Prosecutors Until June 1 to Begin Retrial in Etan Patz Case**\
 `The conviction of Pedro Hernandez in the 1979 murder of the 6-year-old was vacated. The Manhattan district attorney is exploring whether to try him again.`\
 https://nytimes.com/2025/10/17/nyregion/etan-patz-retrial-decision.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6726934/2025/10/17/sabres-tickets-attendance-sales-
 **Mohammed Ben Sulayem set to run unopposed as FIA president: What does this mean for F1?**\
 `Prospective candidate Tim Mayer said on Friday that “the rules of this election mean that there will be no election".`\
 https://nytimes.com/athletic/6726844/2025/10/17/fia-president-ben-sulayem-tim-mayer-f1/
-
-**Astros to sign Nate Pearson, as offseason search for pitching depth begins: Source**\
-`Pearson was once a top prospect in the Toronto Blue Jays' chain, but command issues and injuries have slowed his progress.`\
-https://nytimes.com/athletic/6727019/2025/10/17/astros-nate-pearson-signing/
 

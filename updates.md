@@ -1,3 +1,7 @@
+**Georgia Man Charged With Raping Women in Queens in the 1990s**\
+`New DNA testing linked Michael Benjamin, 57, to the assaults of five women between 1995 and 1997 in southeast Queens, according to the authorities.`\
+https://nytimes.com/2025/10/17/nyregion/queens-rape-case-1990s-arrest-georgia.html
+
 **Judge Gives Prosecutors Until June 1 to Begin Retrial in Etan Patz Case**\
 `The conviction of Pedro Hernandez in the 1979 murder of the 6-year-old was vacated. The Manhattan district attorney is exploring whether to try him again.`\
 https://nytimes.com/2025/10/17/nyregion/etan-patz-retrial-decision.html
