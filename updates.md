@@ -1,3 +1,15 @@
+**Why Was Roe v. Wade Overturned?**\
+`Abortion isn’t a right protected by the Constitution nor is it deeply rooted in the country’s history.`\
+https://nytimes.com/video/opinion/100000010436084/why-was-roe-v-wade-overturned.html
+
+**'It's fair to judge him now' - Slot says Isak now up to speed at Liverpool**\
+`The Sweden striker has been eased in gently since completing a £125million move from Newcastle United at the end of the summer window.`\
+https://nytimes.com/athletic/6725540/2025/10/17/alexander-isak-liverpool-slot/
+
+**After ‘Horrors,’ Israeli Hostages Taste Freedom and Savor Family Reunions**\
+`Some former captives have been sent home from the hospital. But a doctor said they all had “endured untold adversity,” as details emerge of their time in Gaza’s tunnels.`\
+https://nytimes.com/2025/10/17/world/middleeast/israel-hostages-conditions-recovery.html
+
 **Hall to return for Newcastle before next international break**\
 `The 21-year-old left-back was initially thought to be out for months after a first scan on his tweaked hamstring.`\
 https://nytimes.com/athletic/6725570/2025/10/17/lewis-hall-newcastle-hamstring-injury/
