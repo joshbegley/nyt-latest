@@ -1,3 +1,7 @@
+**Anthony Stolarz is back in top form. Why he’s the key for the Leafs**\
+`Stolarz made 28 saves in Toronto's 2-1 overtime win over the New York Rangers Thursday.`\
+https://nytimes.com/athletic/6725042/2025/10/16/maple-leafs-rangers-anthony-stolarz/
+
 **Mariners-Blue Jays Game 4 takeaways: It’s suddenly a series again in Seattle**\
 `Max Scherzer delivered a throwback performance and the Blue Jays moved closer to emulating the '96 Yankees`\
 https://nytimes.com/athletic/6724397/2025/10/16/blue-jays-mariners-game-4-score-results-takeaways-playoffs-mlb/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/16/crosswords/daily-puzzle-2025-10-17.html
 **Salesforce Offers Its Services to Boost Trump’s Immigration Force**\
 `The San Francisco-based firm has told ICE that it could use A.I. to help the agency nearly triple its staff. The company’s C.E.O., once a progressive tech titan, has embraced President Trump.`\
 https://nytimes.com/2025/10/16/us/salesforce-benioff-ice.html
-
-**In Virginia A.G. Debate, Spotlight Is on Democratic Candidate’s Violent Texts**\
-`Jay Jones apologized for his threatening messages and tried to tie his opponent, Jason Miyares, to President Trump’s policies.`\
-https://nytimes.com/2025/10/16/us/elections/virginia-debate-jay-jones-jason-miyares.html
 

@@ -1,3 +1,7 @@
+**Anthony Stolarz is back in top form. Why he’s the key for the Leafs**\
+`Stolarz made 28 saves in Toronto's 2-1 overtime win over the New York Rangers Thursday.`\
+https://nytimes.com/athletic/6725042/2025/10/16/maple-leafs-rangers-anthony-stolarz/
+
 **Mariners-Blue Jays Game 4 takeaways: It’s suddenly a series again in Seattle**\
 `Max Scherzer delivered a throwback performance and the Blue Jays moved closer to emulating the '96 Yankees`\
 https://nytimes.com/athletic/6724397/2025/10/16/blue-jays-mariners-game-4-score-results-takeaways-playoffs-mlb/
