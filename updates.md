@@ -1,3 +1,11 @@
+**Wikipedia Volunteers Avert Tragedy by Taking Down Gunman at Conference**\
+`After the man walked onto the stage at the “Wiki World’s Fair” event and threatened to kill himself, witnesses said, two members of the audience jumped in to stop him.`\
+https://nytimes.com/2025/10/17/nyregion/wikipedia-conference-gunman.html
+
+**Alaska Governor Says Storm Recovery Could Keep Evacuees Away for 18 Months**\
+`After the remnants of a typhoon devastated villages in western Alaska, Gov. Mike Dunleavy asked President Trump for federal help in the recovery process.`\
+https://nytimes.com/2025/10/17/us/alaska-storm-typhoon-recovery-evacuations.html
+
 **Bulls waive fan favorite Yuki Kawamura after discovering 'medical condition'**\
 `The 5-foot-8 Japanese point guard had secured a two-way contract with the Bulls after spending last season with the Memphis Grizzlies.`\
 https://nytimes.com/athletic/6727185/2025/10/17/yuki-kawamura-bulls-status-injury-waived/
