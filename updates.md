@@ -1,3 +1,7 @@
+**Massachusetts School Employee Dies After Trying to Restrain Student**\
+`The student, 14, has been charged with assault.`\
+https://nytimes.com/2025/10/17/us/massachusetts-school-staff-dies-student-kick.html
+
 **Teresa Ulloa Ziáurriz, Rights Advocate Who Fought Sex Traffickers, Dies at 75**\
 `In Mexico, where the cult of machismo has long held sway, she waged a lonely, sometimes dangerous and often single-handed fight against prostitution and organized sex rings.`\
 https://nytimes.com/2025/10/17/world/americas/teresa-ulloa-ziaurriz-dead.html
