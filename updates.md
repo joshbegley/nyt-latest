@@ -1,3 +1,11 @@
+**Mariners-Blue Jays Game 4 takeaways: It’s suddenly a series again in Seattle**\
+`Max Scherzer delivered a throwback performance and the Blue Jays moved closer to emulating the '96 Yankees`\
+https://nytimes.com/athletic/6724397/2025/10/16/blue-jays-mariners-game-4-score-results-takeaways-playoffs-mlb/
+
+**With Jackson Chourio hurt and down 3-0 in NLCS, Brewers’ dreams are almost dead**\
+`To avoid a sweep, the Brewers will have to get through Shohei Ohtani in full two-way form.`\
+https://nytimes.com/athletic/6724982/2025/10/16/brewers-jackson-chourio-nlcs-game-3/
+
 **With Jackson Chourio injured and down 3-0 in NLCS, Brewers’ dreams are almost dashed**\
 `To avoid a sweep, the Brewers will have to get through Shohei Ohtani in full two-way form.`\
 https://nytimes.com/athletic/6724982/2025/10/16/brewers-jackson-chourio-nlcs-game-3/
