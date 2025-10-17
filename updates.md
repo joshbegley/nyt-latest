@@ -1,3 +1,7 @@
+**Sticking with Max Scherzer and what it revealed about the evolution of Blue Jays manager John Schneider**\
+`“You make the best decision in real time based on what you’re seeing,” Schneider said. “No matter how it works out, you're good with it.”`\
+https://nytimes.com/athletic/6725517/2025/10/17/john-schneider-max-scherzer-mound-visit-alcs/
+
 **Police ordered to review decision to ban Maccabi Tel Aviv fans from Villa game**\
 `The review of the decision is set to take place on Friday, with a decision expected on the same day.`\
 https://nytimes.com/athletic/6725518/2025/10/17/aston-villa-maccabi-tel-aviv-fans-police/

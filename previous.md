@@ -1,3 +1,7 @@
+**Sticking with Max Scherzer and what it revealed about the evolution of Blue Jays manager John Schneider**\
+`“You make the best decision in real time based on what you’re seeing,” Schneider said. “No matter how it works out, you're good with it.”`\
+https://nytimes.com/athletic/6725517/2025/10/17/john-schneider-max-scherzer-mound-visit-alcs/
+
 **Police ordered to review decision to ban Maccabi Tel Aviv fans from Villa game**\
 `The review of the decision is set to take place on Friday, with a decision expected on the same day.`\
 https://nytimes.com/athletic/6725518/2025/10/17/aston-villa-maccabi-tel-aviv-fans-police/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6722168/2025/10/17/premier-league-roundtable-semeny
 **Eagles cornerback depth chart remains unsettled while Isaiah Rodgers excels in Minnesota**\
 `The Eagles have been struggling to solidify the CB2 position.`\
 https://nytimes.com/athletic/6724231/2025/10/17/eagles-cornerback-depth-chart-isaiah-rodgers-minnesota/
-
-**A ‘cruel’ homecoming for the Mariners, whose pitchers are meeting their match**\
-`The Mariners’ vaunted rotation has an 8.04 ERA because the aggressive Blue Jays are pouring it on in the ALCS.`\
-https://nytimes.com/athletic/6725546/2025/10/17/mariners-pitching-blue-jays-alcs/
 
