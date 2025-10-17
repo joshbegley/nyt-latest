@@ -1,3 +1,7 @@
+**It's time for Rams WRs Davante Adams and Tutu Atwell to emerge with Puka Nacua injured**\
+`With Nacua possibly out with an ankle injury, Matthew Stafford will rely on Adams and Atwell to help fill the void in the passing game. `\
+https://nytimes.com/athletic/6723504/2025/10/17/rams-davante-adams-tutu-atwell-puka-nacua-injury/
+
 **Putin’s Trump Strategy: Lots of Flattery, and Talk of Business Deals**\
 `After Thursday’s phone call with President Vladimir V. Putin of Russia, President Trump appeared to express doubts about supplying Ukraine with more powerful weapons.`\
 https://nytimes.com/2025/10/17/world/europe/putin-trump-call-meeting-ukraine-russia.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6724634/2025/10/17/notre-dame-usc-predictions-match
 **Is Gunner Stockton Georgia's new Stetson Bennett? Where the comparison works and differs**\
 `This is to compare Stockton to Bennett at the same point of their careers: Fourth year, essentially rookie starters at the college level.`\
 https://nytimes.com/athletic/6723482/2025/10/17/gunner-stockton-georgia-football-stetson-bennett/
-
-**Hermoso, Leon return to Spain Women squad after prolonged absences**\
-`It marks Hermoso's first involvement since October 2024 while Leon has not played for Spain since July 2022.`\
-https://nytimes.com/athletic/6725725/2025/10/17/spain-women-squad-hermoso-leon/
 

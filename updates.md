@@ -1,3 +1,7 @@
+**It's time for Rams WRs Davante Adams and Tutu Atwell to emerge with Puka Nacua injured**\
+`With Nacua possibly out with an ankle injury, Matthew Stafford will rely on Adams and Atwell to help fill the void in the passing game. `\
+https://nytimes.com/athletic/6723504/2025/10/17/rams-davante-adams-tutu-atwell-puka-nacua-injury/
+
 **Putin’s Trump Strategy: Lots of Flattery, and Talk of Business Deals**\
 `After Thursday’s phone call with President Vladimir V. Putin of Russia, President Trump appeared to express doubts about supplying Ukraine with more powerful weapons.`\
 https://nytimes.com/2025/10/17/world/europe/putin-trump-call-meeting-ukraine-russia.html
