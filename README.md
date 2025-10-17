@@ -1,3 +1,7 @@
+**Devastating Floods in Mexico Test a Popular President**\
+`Torrential rains last week brought death and widespread damage. President Claudia Sheinbaum has visited affected areas, facing some angry residents.`\
+https://nytimes.com/2025/10/17/world/americas/mexico-floods-missing.html
+
 **Jury rules against former Red Wings Zamboni driver in age discrimination case**\
 `Al Sobotka, who brought the lawsuit against Olympia Entertainment in 2022, said he's "devastated" by the verdict.`\
 https://nytimes.com/athletic/6723725/2025/10/17/red-wings-zamboni-driver-lawsuit/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/17/us/politics/nancy-pelosi-scott-wiener.html
 **How to watch Brewers at Dodgers: Game 4 Time, TV, streaming**\
 `Find out how to watch the Milwaukee Brewers play the Los Angeles Dodgers, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6725363/2025/10/17/brewers-vs-dodgers-stream-how-to-watch-oct-17/
-
-**How to watch Blue Jays at Mariners: Game 5 Time, TV, streaming**\
-`Find out how to watch the Toronto Blue Jays play the Seattle Mariners, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6725361/2025/10/17/blue-jays-vs-mariners-stream-how-to-watch-oct-17/
 
