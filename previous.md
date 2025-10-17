@@ -1,3 +1,15 @@
+**Bulls waive fan favorite Yuki Kawamura after discovering 'medical condition'**\
+`The 5-foot-8 Japanese point guard had secured a two-way contract with the Bulls after spending last season with the Memphis Grizzlies.`\
+https://nytimes.com/athletic/6727185/2025/10/17/yuki-kawamura-bulls-status-injury-waived/
+
+**Education Dept. Agrees to Resume More Student Loan Cancellations**\
+`Hailed as a win for borrowers, the agreement will enable more enrollees in income-driven repayment plans to have their remaining debt canceled.`\
+https://nytimes.com/2025/10/17/business/student-loan-cancellation-idr.html
+
+**Vermont Legislator Resigns Over Racist Republican Texts**\
+`The G.O.P. officials who participated in a group chat have faced calls to step down. State Senator Samuel Douglass was the group’s only elected member.`\
+https://nytimes.com/2025/10/17/us/politics/samuel-douglass-resigns-vermont-young-republicans.html
+
 **2 Pennsylvania Psychics Stole Over $600,000 to Remove Curses, Prosecutors Say**\
 `One woman alone gave more than half a million dollars in cash and luxury items to remove the “black magic” hindering her love and happiness, the authorities said.`\
 https://nytimes.com/2025/10/17/us/psychics-scam-curse.html
@@ -25,16 +37,4 @@ https://nytimes.com/video/opinion/100000010431392/is-trump-the-dealmaker-the-mid
 **Guehi will 'leave next year' after rejecting Palace contract offer - Glasner**\
 `Guehi was close to joining Liverpool before Palace pulled the plug on a £35million deal late on deadline day.`\
 https://nytimes.com/athletic/6727193/2025/10/17/guehi-palace-leave-news-transfer-contract/
-
-**In the Wake of War, Israel is ‘Much More Vulnerable’**\
-`Is Israel still a sovereign nation, given its increased dependence on the United States? On a recent episode of “The Ezra Klein Show,” veteran Middle East negotiators Hussein Agha and Robert Malley sit down with the Times Opinion columnist Ezra Klein to discuss the recent peace deal and what comes next.`\
-https://nytimes.com/video/opinion/100000010431394/in-the-wake-of-war-israel-is-much-more-vulnerable.html
-
-**The Democratic Age Wars Begin**\
-`Democrats are battling each other over age, with the nation’s oldest president in office.`\
-https://nytimes.com/2025/10/17/us/politics/democrats-age-primaries-midterms.html
-
-**Trump Says He Is Commuting George Santos’s Fraud Sentence**\
-`The disgraced Republican had been sentenced to prison, after his credentials and career unraveled. He was the sixth member of the House to be expelled.`\
-https://nytimes.com/2025/10/17/us/politics/trump-george-santos-sentence-commute.html
 

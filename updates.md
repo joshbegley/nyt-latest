@@ -1,3 +1,15 @@
+**Bulls waive fan favorite Yuki Kawamura after discovering 'medical condition'**\
+`The 5-foot-8 Japanese point guard had secured a two-way contract with the Bulls after spending last season with the Memphis Grizzlies.`\
+https://nytimes.com/athletic/6727185/2025/10/17/yuki-kawamura-bulls-status-injury-waived/
+
+**Education Dept. Agrees to Resume More Student Loan Cancellations**\
+`Hailed as a win for borrowers, the agreement will enable more enrollees in income-driven repayment plans to have their remaining debt canceled.`\
+https://nytimes.com/2025/10/17/business/student-loan-cancellation-idr.html
+
+**Vermont Legislator Resigns Over Racist Republican Texts**\
+`The G.O.P. officials who participated in a group chat have faced calls to step down. State Senator Samuel Douglass was the group’s only elected member.`\
+https://nytimes.com/2025/10/17/us/politics/samuel-douglass-resigns-vermont-young-republicans.html
+
 **2 Pennsylvania Psychics Stole Over $600,000 to Remove Curses, Prosecutors Say**\
 `One woman alone gave more than half a million dollars in cash and luxury items to remove the “black magic” hindering her love and happiness, the authorities said.`\
 https://nytimes.com/2025/10/17/us/psychics-scam-curse.html
