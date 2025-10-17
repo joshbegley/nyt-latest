@@ -1,3 +1,11 @@
+**How to watch Sharks vs. Mammoth: Time, TV, streaming**\
+`Find out how to watch the San Jose Sharks play the Utah Mammoth, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6726918/2025/10/17/sharks-vs-mammoth-stream-how-to-watch-oct-17/
+
+**How to watch Canucks vs. Blackhawks: Time, TV, streaming**\
+`Find out how to watch the Vancouver Canucks play the Chicago Blackhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6726916/2025/10/17/canucks-vs-blackhawks-stream-how-to-watch-oct-17/
+
 **Spanish clubs to protest against La Liga game in Miami, players' union announces**\
 `The group said it had the support of the captains for the “protest against La Liga’s lack of transparency, dialogue and consistency."`\
 https://nytimes.com/athletic/6726768/2025/10/17/la-liga-miami-game-protest-news/
