@@ -1,3 +1,11 @@
+**Investors Shudder at Signs of Loan Trouble in Banks**\
+`After months of roaring share prices, stock investors were rattled this week by reports of souring debts on bank balance sheets.`\
+https://nytimes.com/2025/10/17/business/investors-shudder-at-signs-of-loan-trouble-in-banks.html
+
+**Funeral Is Held for Raila Odinga, a Pillar of Kenya’s Democracy**\
+`Thousands paid their respects at a stadium in Nairobi. President William Ruto said the spirit of Mr. Odinga, who died at 80, “lives within every Kenyan and every African.”`\
+https://nytimes.com/2025/10/17/world/africa/raila-odinga-funeral-kenya.html
+
 **This Super-Fast Shrimp Dish Tastes Like a Restaurant Meal**\
 `These perfectly cooked crustaceans soak up a dead-simple garlic-and-caper lemon sauce.`\
 https://nytimes.com/2025/10/17/dining/this-super-fast-shrimp-dish-tastes-like-a-restaurant-meal.html

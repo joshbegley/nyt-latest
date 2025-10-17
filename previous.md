@@ -1,3 +1,11 @@
+**Investors Shudder at Signs of Loan Trouble in Banks**\
+`After months of roaring share prices, stock investors were rattled this week by reports of souring debts on bank balance sheets.`\
+https://nytimes.com/2025/10/17/business/investors-shudder-at-signs-of-loan-trouble-in-banks.html
+
+**Funeral Is Held for Raila Odinga, a Pillar of Kenya’s Democracy**\
+`Thousands paid their respects at a stadium in Nairobi. President William Ruto said the spirit of Mr. Odinga, who died at 80, “lives within every Kenyan and every African.”`\
+https://nytimes.com/2025/10/17/world/africa/raila-odinga-funeral-kenya.html
+
 **This Super-Fast Shrimp Dish Tastes Like a Restaurant Meal**\
 `These perfectly cooked crustaceans soak up a dead-simple garlic-and-caper lemon sauce.`\
 https://nytimes.com/2025/10/17/dining/this-super-fast-shrimp-dish-tastes-like-a-restaurant-meal.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/17/arts/design/gerhard-richter-fondation-louis-vuitt
 **Russia Jails Street Band for Performing Antiwar Songs**\
 `The group, called Stoptime, had been performing anti-Kremlin songs for months and gaining in popularity before the authorities moved against the open dissent.`\
 https://nytimes.com/2025/10/17/world/europe/russia-jails-street-band-for-performing-antiwar-songs.html
-
-**For $900, This Subway Seat Could Be Yours**\
-`The annual pop-up sale of retired signs and other transit artifacts from the New York City subway system attracted a line of collectors that stretched for blocks.`\
-https://nytimes.com/2025/10/17/nyregion/mta-subway-pop-up-sale.html
-
-**It Was Tie vs. Tie in the New York City Mayoral Debate**\
-`The small details connected Zohran Mamdani, Andrew Cuomo and Curtis Sliwa’s presentation to their policies.`\
-https://nytimes.com/2025/10/17/style/mamdani-cuomo-mayoral-debate-style.html
 

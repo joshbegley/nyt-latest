@@ -1,3 +1,19 @@
+**Trump Pushes Indiana Lawmakers to Redraw State Maps**\
+`A call Friday morning by the president to  Republican state senators is part of an escalating pressure campaign by the White House.`\
+https://nytimes.com/2025/10/17/us/politics/trump-indiana-senate-state-maps.html
+
+**Trump Officials Appeal Challenge to Their Efforts to Restrict D.E.I.**\
+`A federal judge had previously stopped the administration from cutting off billions to schools that have diversity and equity programs.`\
+https://nytimes.com/2025/10/17/us/trump-officials-appeal-challenge-dei-restrictions.html
+
+**Diane Keaton’s Legacy as a Prolific House Flipper**\
+`Known for her roles in film, the actress built a second act off-screen, turning the homes she renovated into another stage.`\
+https://nytimes.com/2025/10/17/realestate/diane-keaton-real-estate-flipper.html
+
+**6 Tree House Hotels That Offer Glamour With a Rustic Vibe**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/tree-house-hotels
+
 **Investors Shudder at Signs of Loan Trouble in Banks**\
 `After months of roaring share prices, stock investors were rattled this week by reports of souring debts on bank balance sheets.`\
 https://nytimes.com/2025/10/17/business/investors-shudder-at-signs-of-loan-trouble-in-banks.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6726237/2025/10/17/nhl-red-light-newsletter-goalies
 **Kevin Durant, James Harden reflect on controversial trades in Season 2 of 'Starting 5'**\
 `The Netflix series, which follows Durant, Harden, Jaylen Brown, Shai Gilgeous-Alexander and Tyrese Haliburton, debuted Thursday.`\
 https://nytimes.com/athletic/6725992/2025/10/17/kevin-durant-james-harden-starting-five-netflix/
-
-**Unions Return to Court as Trump Eyes Additional Cuts During Shutdown**\
-`Unions representing federal workers told a judge they believed the administration might violate a temporary ban on layoffs during the shutdown.`\
-https://nytimes.com/2025/10/17/us/politics/trump-shutdown-cuts-unions.html
-
-**The Government Is Shut Down. But Not for Fossil Fuels.**\
-`Federal workers who issue permits for oil, gas and mining operations are on the job, along with those working to repeal pollution limits.`\
-https://nytimes.com/2025/10/17/climate/trump-government-shutdown-energy.html
-
-**Looking at the Unseeable With Gerhard Richter**\
-`A vast retrospective in Paris brings together six decades of work by the 93-year-old German artist.`\
-https://nytimes.com/2025/10/17/arts/design/gerhard-richter-fondation-louis-vuitton.html
-
-**Russia Jails Street Band for Performing Antiwar Songs**\
-`The group, called Stoptime, had been performing anti-Kremlin songs for months and gaining in popularity before the authorities moved against the open dissent.`\
-https://nytimes.com/2025/10/17/world/europe/russia-jails-street-band-for-performing-antiwar-songs.html
 
