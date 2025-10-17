@@ -1,3 +1,11 @@
+**Judge Orders Some Federal Agents to Wear Body Cameras in Chicago Area**\
+`The order comes as the Trump administration has carried out an immigration crackdown in the region.`\
+https://nytimes.com/2025/10/17/us/chicago-ice-body-cameras.html
+
+**Trump Says He Is Commuting George Santos’s Fraud Sentence**\
+`The disgraced Republican had been sentenced to prison, after his credentials and career unraveled. He was the sixth member of the House to be expelled.`\
+https://nytimes.com/2025/10/17/us/politics/trump-george-santos-sentence-commute.html
+
 **Federal Prosecutors Downgrade Charge Against David Huerta to a Misdemeanor**\
 `Mr. Huerta, a prominent labor leader in California, was initially charged with a felony after his arrest during an immigration raid in Los Angeles this summer.`\
 https://nytimes.com/2025/10/17/us/david-huerta-immigration-raid-charges.html

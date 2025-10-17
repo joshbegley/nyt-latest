@@ -1,3 +1,7 @@
+**Judge Orders Some Federal Agents to Wear Body Cameras in Chicago Area**\
+`The order comes as the Trump administration has carried out an immigration crackdown in the region.`\
+https://nytimes.com/2025/10/17/us/chicago-ice-body-cameras.html
+
 **Federal Prosecutors Downgrade Charge Against David Huerta to a Misdemeanor**\
 `Mr. Huerta, a prominent labor leader in California, was initially charged with a felony after his arrest during an immigration raid in Los Angeles this summer.`\
 https://nytimes.com/2025/10/17/us/david-huerta-immigration-raid-charges.html
@@ -23,7 +27,7 @@ https://nytimes.com/video/opinion/100000010431394/in-the-wake-of-war-israel-is-m
 https://nytimes.com/2025/10/17/us/politics/democrats-age-primaries-midterms.html
 
 **Trump Says He Is Commuting George Santos’s Fraud Sentence**\
-`The disgraced Republican had been sentenced to prison, after his credentials and career unraveled. He was the sixth member of the House of Representatives to be expelled.`\
+`The disgraced Republican had been sentenced to prison, after his credentials and career unraveled. He was the sixth member of the House to be expelled.`\
 https://nytimes.com/2025/10/17/us/politics/trump-george-santos-sentence-commute.html
 
 **Fed Rescinds Mandate That Banks Plan for Climate Risks**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/17/climate/fed-climate-risk-mandate.html
 **Food Stamp Benefits May Run Out in November, Officials Warn**\
 `If the government shutdown continues, millions of low-income people are at risk of losing access to the Supplemental Nutrition Assistance Program.`\
 https://nytimes.com/2025/10/17/us/politics/food-stamps-agriculture-department.html
-
-**Boeing Can Increase 737 Max Production, F.A.A. Says**\
-`The Federal Aviation Administration raised a production limit that the regulator had imposed after a door panel blew off a plane during a flight last year.`\
-https://nytimes.com/2025/10/17/business/boeing-737-max-faa.html
 
