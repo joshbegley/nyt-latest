@@ -1,3 +1,11 @@
+**Starmer Objects as Police Bar Israeli Team’s Fans From U.K. Soccer Game**\
+`Confrontation has shadowed Israeli teams’ games in Europe since the start of the Gaza war. Local authorities sought to bar visiting fans at a game in central England next month.`\
+https://nytimes.com/2025/10/17/world/europe/aston-villa-maccabi-fans.html
+
+**For Ukraine, Budapest brings back painful memories of security promises broken.**\
+`By Constant Méheut`\
+https://nytimes.com/live/2025/10/17/us/trump-news-zelensky/for-ukraine-budapest-brings-back-painful-memories-of-security-promises-broken
+
 **High Five — around the world in five games**\
 `The A-League gets under way, the J-League is picking up steam, it's 'Decision Day' in MLS and two crackers in Brazil and Greece.`\
 https://nytimes.com/athletic/6725015/2025/10/17/high-five-around-the-world-in-five-games-3/

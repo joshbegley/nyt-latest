@@ -1,3 +1,11 @@
+**Starmer Objects as Police Bar Israeli Team’s Fans From U.K. Soccer Game**\
+`Confrontation has shadowed Israeli teams’ games in Europe since the start of the Gaza war. Local authorities sought to bar visiting fans at a game in central England next month.`\
+https://nytimes.com/2025/10/17/world/europe/aston-villa-maccabi-fans.html
+
+**For Ukraine, Budapest brings back painful memories of security promises broken.**\
+`By Constant Méheut`\
+https://nytimes.com/live/2025/10/17/us/trump-news-zelensky/for-ukraine-budapest-brings-back-painful-memories-of-security-promises-broken
+
 **High Five — around the world in five games**\
 `The A-League gets under way, the J-League is picking up steam, it's 'Decision Day' in MLS and two crackers in Brazil and Greece.`\
 https://nytimes.com/athletic/6725015/2025/10/17/high-five-around-the-world-in-five-games-3/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/17/us/politics/congress-venezuela-military-strikes.h
 **Big Five: Europe’s top games this weekend**\
 `The Athletic has hand-picked five of the most intriguing weekend fixtures from around Europe.`\
 https://nytimes.com/athletic/6725111/2025/10/17/big-five-europes-top-games-this-weekend-3/
-
-**Explained: The Aston Villa-Maccabi Tel Aviv fan ban, government intervention, and if it will be reversed**\
-`Maccabi Tel Aviv fans were banned from attending the game against Aston Villa on Thursday but there have been developments since`\
-https://nytimes.com/athletic/6725825/2025/10/17/aston-villa-maccabi-tel-aviv-fans-banned-reversed/
-
-**Cristian Roldan and the making of Mauricio Pochettino's 'perfect player'**\
-`Cristian Roldan was hardly on the USMNT radar six weeks ago. Here's how he won over Mauricio Pochettino to get back in the World Cup frame`\
-https://nytimes.com/athletic/6725029/2025/10/17/cristian-roldan-usmnt-seattle-sounders-pochettino-world-cup/
 
