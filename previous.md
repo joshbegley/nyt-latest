@@ -1,3 +1,23 @@
+**NFLPA vows transparency in search for new executive director**\
+`The planned approach differs from the last selection process, which union leaders conducted in great secrecy.`\
+https://nytimes.com/athletic/6726122/2025/10/17/nflpa-search-firm-executive-director/
+
+**Did the Debate Move the Needle for Cuomo?**\
+`With Zohran Mamdani leading Andrew Cuomo in every poll, Cuomo is running out of time to catch up in the race for New York City mayor.`\
+https://nytimes.com/video/nyregion/100000010463878/did-the-debate-move-the-needle-for-cuomo.html
+
+**Five International Movies to Stream Now**\
+`This month’s picks include a poetic documentary from South Africa, a Cold War thriller from Yugoslavia, a coming-of-age story set in the Dominican Republic, and more.`\
+https://nytimes.com/2025/10/17/movies/five-international-movies-to-stream-now.html
+
+**Bolton Pleads Not Guilty to Charges of Mishandling Classified Documents**\
+`Mr. Bolton appeared in federal court in Greenbelt, Md., a day after he was indicted by a grand jury.`\
+https://nytimes.com/2025/10/17/us/politics/bolton-pleads-not-guilty.html
+
+**What to Know About Madagascar’s Government**\
+`After weeks of protests calling for him to resign, Madagascar’s president, Andry Rajoelina, seemed to have left the country, and the military said it had taken control. John Eligon, the Johannesburg bureau chief for The New York Times, explains what we know and don’t know.`\
+https://nytimes.com/video/world/africa/100000010458018/what-to-know-about-madagascars-government.html
+
 **NFL Films deletes video detailing Brian Branch's struggles ahead of brawl**\
 `The video was posted as part of NFL Films' "Turning Point" series, which provides analysis of a crucial moment from a recent game.`\
 https://nytimes.com/athletic/6726192/2025/10/17/brian-branch-detroit-lions-nfl-films-kansas-city-chiefs/
@@ -17,24 +37,4 @@ https://nytimes.com/2025/10/17/us/politics/trump-indiana-senate-state-maps.html
 **Trump Officials Appeal Challenge to Their Efforts to Restrict D.E.I.**\
 `A federal judge had previously stopped the administration from cutting off billions to schools that have diversity and equity programs.`\
 https://nytimes.com/2025/10/17/us/trump-officials-appeal-challenge-dei-restrictions.html
-
-**Diane Keaton’s Legacy as a Prolific House Flipper**\
-`Known for her roles in film, the actress built a second act off-screen, turning the homes she renovated into another stage.`\
-https://nytimes.com/2025/10/17/realestate/diane-keaton-real-estate-flipper.html
-
-**6 Tree House Hotels That Offer Glamour With a Rustic Vibe**\
-`(No description)`\
-https://nytimes.com/newsgraphics/card-story/tree-house-hotels
-
-**Investors Shudder at Signs of Loan Trouble in Banks**\
-`After months of roaring share prices, stock investors were rattled this week by reports of souring debts on bank balance sheets.`\
-https://nytimes.com/2025/10/17/business/investors-shudder-at-signs-of-loan-trouble-in-banks.html
-
-**Funeral Is Held for Raila Odinga, a Pillar of Kenya’s Democracy**\
-`Thousands paid their respects at a stadium in Nairobi. President William Ruto said the spirit of Mr. Odinga, who died at 80, “lives within every Kenyan and every African.”`\
-https://nytimes.com/2025/10/17/world/africa/raila-odinga-funeral-kenya.html
-
-**This Super-Fast Shrimp Dish Tastes Like a Restaurant Meal**\
-`These perfectly cooked crustaceans soak up a dead-simple garlic-and-caper lemon sauce.`\
-https://nytimes.com/2025/10/17/dining/this-super-fast-shrimp-dish-tastes-like-a-restaurant-meal.html
 
