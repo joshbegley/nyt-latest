@@ -1,3 +1,11 @@
+**Nick Saban 'shocked' by Tua Tagovailoa calling out Dolphins' teammates**\
+`Saban, who coached Tagovailoa at Alabama, later added that he was "proud" of how the QB owned up to his mistake.`\
+https://nytimes.com/athletic/6726839/2025/10/17/nick-saban-tua-tagovailoa-dolphins-teammates/
+
+**Suns, Mercury minority owners dismiss lawsuit, still intend to take Mat Ishbia to court**\
+`An attorney Andy Kohlberg and Scott Seldin said the Suns and Mercury minority owners still intend to sue majority owner Mat Ishbia.`\
+https://nytimes.com/athletic/6726906/2025/10/17/suns-mercury-lawsuit-ishbia-update/
+
 **Higher Obamacare Prices Become Public in a Dozen States**\
 `Consumers are facing greater costs for their 2026 A.C.A. health coverage as Congress continues to debate whether to extend subsidies that help people afford their premiums.`\
 https://nytimes.com/2025/10/17/health/aca-health-insurance-costs.html
@@ -25,12 +33,4 @@ https://nytimes.com/athletic/6726768/2025/10/17/la-liga-miami-game-protest-news/
 **Mangione Seeks Information About UnitedHealth’s Contact With Trump**\
 `Lawyers for Luigi Mangione, charged with killing UnitedHealthcare’s chief executive, are asking for details about a reported meeting between the White House and an executive with the insurer.`\
 https://nytimes.com/2025/10/17/nyregion/mangione-united-healthcare-filing.html
-
-**'His impact is immeasurable': Players, coaches and family honour former WSL manager Matt Beard**\
-`Many in attendance shared the sentiment to remember to take care of one another following the WSL manager's passing`\
-https://nytimes.com/athletic/6726541/2025/10/17/matt-beard-service-rememberance-liverpool/
-
-**Where the U.S. Is Building Up Military Force in the Caribbean**\
-`About 10,000 U.S. troops and dozens of military aircraft and ships are in the region as the Trump administration increases pressure on Venezuela.`\
-https://nytimes.com/2025/10/17/us/politics/trump-caribbean-venezuela-us-military-maps.html
 
