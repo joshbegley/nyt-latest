@@ -1,3 +1,19 @@
+**Postecoglou re-opens Spurs debate - but Forest reaction to his rhetoric now more important**\
+`The Nottingham Forest boss defended his record with Spurs, despite a 17th-place finish last season`\
+https://nytimes.com/athletic/6726593/2025/10/17/ange-postecoglou-re-opens-spurs-debate-but-forest-reaction-to-his-rhetoric-more-important/
+
+**Review: At Ballet Theater, Tharp Comes to Push and Conquer**\
+`American Ballet Theater opened its season with an all-Twyla Tharp program, featuring her first dance for the company, “Push Comes to Shove,” and the for-the-ages “Bach Partita.”`\
+https://nytimes.com/2025/10/17/arts/dance/review-at-ballet-theater-tharp-comes-to-push-and-conquer.html
+
+**Jaromir Jagr, 53, plays pro game in Czechia, pushing back Hall of Fame candidacy another year**\
+`The earliest that Jágr will now be eligible to clear the Hall of Fame's three-year waiting period for induction is 2029.`\
+https://nytimes.com/athletic/6726654/2025/10/17/jaromir-jagr-czechia-hockey-hall-of-fame/
+
+**No Water, No Power: The Misery That Fueled Madagascar’s Youth**\
+`The young people who toppled the government are now confronting questions about what’s next, and who will deliver on their demands.`\
+https://nytimes.com/2025/10/17/world/africa/madagascar-coup-youth-protests-next.html
+
 **Cowboys' Trevon Diggs out Sunday vs. Commanders after in-home accident**\
 `In six games this season, Trevon Diggs has 18 tackles and one TFL.`\
 https://nytimes.com/athletic/6726585/2025/10/17/cowboys-trevon-diggs-out-injury-commanders/
@@ -21,20 +37,4 @@ https://nytimes.com/2025/10/17/us/politics/us-military-strike-survivors.html
 **Drought Mutes Leaf-Peeping Season**\
 `A prolonged drought and other factors have muffled the kaleidoscopic blend of reds, oranges and yellows in some areas of New England this fall.`\
 https://nytimes.com/2025/10/17/climate/fall-foliage-drought-new-england.html
-
-**Mason Miller among MLB players following fired Ballengee agents to new agency: Sources**\
-`Jeff Randazzo, who was let go by Ballengee in August, has co-founded a new agency and brought all of his clients with him.`\
-https://nytimes.com/athletic/6726604/2025/10/17/covenant-group-ballengee-jeff-randazzo-mason-miller/
-
-**I Have Parkinson’s: A Range of Voices**\
-`Readers, many with Parkinson’s, respond to an article about Sue Goldie, who has the disease. Also: Tears over Trump’s America; losing to China; learning through play.`\
-https://nytimes.com/2025/10/17/opinion/parkinsons-sue-goldie.html
-
-**Cuomo Ramps Up Attacks on Sliwa as He Hunts for Republican Votes**\
-`The morning after the first mayoral debate of the general election, Andrew M. Cuomo said it would be nearly impossible to win if Curtis Sliwa did not drop out. Mr. Sliwa said he was not going anywhere.`\
-https://nytimes.com/2025/10/17/nyregion/cuomo-sliwa-mamdani.html
-
-**Phillies expect to part ways with Nick Castellanos this offseason: Sources**\
-`Castellanos, who's owed $20 million next year, is expected to be traded or released this offseason as the Phillies remake their outfield.`\
-https://nytimes.com/athletic/6726521/2025/10/17/phillies-offseason-nick-castellanos-trade-release/
 
