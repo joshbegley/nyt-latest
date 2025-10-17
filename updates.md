@@ -1,3 +1,11 @@
+**University of Virginia Won’t Join White House’s Compact for Colleges**\
+`It was the fifth school in a matter of days to refuse an offer of preferential funding treatment from the government, even as the White House has threatened schools that do not sign up.`\
+https://nytimes.com/2025/10/17/us/university-of-virginia-white-house-compact.html
+
+**Guardiola: City to wait on Stones' fitness before deciding on new contract**\
+`The 31-year-old defender is in the final year of his deal and will be free to speak to clubs outside of England in January.`\
+https://nytimes.com/athletic/6726120/2025/10/17/john-stones-man-city-contract-latest/
+
 **Plastic Bag Makers to Pay California $1.7 Million for False Recycling Claims**\
 `The state also announced it was suing three other companies that it said illegally marketed their plastic bags as being recyclable when they were not.`\
 https://nytimes.com/2025/10/17/us/california-plastic-bags-unrecylable-settlement-lawsuit.html
