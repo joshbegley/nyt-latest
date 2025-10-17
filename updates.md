@@ -1,3 +1,5 @@
+
+
 **The Growing Blowback Against Marc Benioff**\
 `New revelations about efforts by his company, Salesforce, to work with the Trump administration is getting heat from San Francisco officials and now allies.`\
 https://nytimes.com/2025/10/17/business/dealbook/salesforce-benioff-trump-ice.html
