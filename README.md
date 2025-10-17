@@ -1,3 +1,11 @@
+**Trump’s Dinner for Ballroom Donors Leaves a Bad Taste in Kimmel’s Mouth**\
+`Wealthy businesspeople who gave money to build a White House ballroom curried favor with the president, “just as our founding fathers intended,” Jimmy Kimmel said.`\
+https://nytimes.com/2025/10/17/arts/television/kimmel-trump-ballroom-dinner.html
+
+**Tomiichi Murayama, Japanese Leader Who Gave War Apology, Dies at 101**\
+`His televised address as prime minister delivered 50 years to the day after Japan announced its surrender set a marker for his country’s “deep remorse” over wartime atrocities.`\
+https://nytimes.com/2025/10/17/world/asia/tomiichi-murayama-dead.html
+
 **UWCL Briefing: VAR controversy, Man Utd's steady defence, Arsenal's shaky start**\
 `The Athletic's experts have dissected the big talking points from the league phase matches`\
 https://nytimes.com/athletic/6725191/2025/10/17/womens-champions-league-chelsea-manchester-united-arsenal-var/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6719670/2025/10/17/abdoulaye-doucoure-everton-mali-
 **How right-back became Liverpool's problem position**\
 `Arne Slot has tried Conor Bradley, Jeremie Frimpong and Dominik Szoboszlai this term. Now he needs to find some stability in the position`\
 https://nytimes.com/athletic/6722103/2025/10/17/liverpool-right-back-bradley-frimpong-szoboszlai/
-
-**England's Esme Morgan on making America home and why she loves the Jacksonville Jaguars**\
-`England international Esme Morgan is a huge Jacksonville Jaguars fan and will be in London this weekend to watch them play`\
-https://nytimes.com/athletic/6715854/2025/10/17/esme-morgan-washington-spirit-nwsl-jacksonville-jaguars-nfl/
-
-**Tottenham have started the Thomas Frank era well. Now the real test begins**\
-`A tough-looking run of fixtures should show us how much impact Spurs' new boss has made, both tactically and with player fitness`\
-https://nytimes.com/athletic/6719553/2025/10/17/tottenham-rotation-fixture-list-thomas-frank/
 
