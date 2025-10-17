@@ -1,3 +1,7 @@
+**Fiery Max Scherzer turns back time, then turns away Blue Jays manager**\
+`Max Scherzer, 41, lobbied to stay in the game when his manager emerged with a potential hook in the fifth.`\
+https://nytimes.com/athletic/6724988/2025/10/16/max-scherzer-game-4-alcs-manager-blue-jays/
+
 **7 Takeaways From the First N.Y.C. Mayoral Debate**\
 `Zohran Mamdani, Andrew Cuomo and Curtis Sliwa sparred over serious topics like the Israel-Hamas war and President Trump, and more curious subjects like parade attendance.`\
 https://nytimes.com/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-takeaways.html
@@ -14,7 +18,7 @@ https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-fact-check
 `Karen Steinberg opens our solving weekend with an approachable themeless puzzle.`\
 https://nytimes.com/2025/10/16/crosswords/daily-puzzle-2025-10-17.html
 
-**Salesforce Offers Its Services to Boost ICE Immigration Force**\
+**Salesforce Offers Its Services to Boost Trump’s Immigration Force**\
 `The San Francisco-based firm has told ICE that it could use A.I. to help the agency nearly triple its staff. The company’s C.E.O., once a progressive tech titan, has embraced President Trump.`\
 https://nytimes.com/2025/10/16/us/salesforce-benioff-ice.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/16/us/police-prank-ai-homeless-tiktok.html
 **Dodgers-Brewers Game 3 takeaways: Roki Sasaki-led bullpen pushes Milwaukee to brink**\
 `LOS ANGELES — Well aware of the narrative surrounding the bullpen this October, the Los Angeles Dodgers turned to a slew of relievers in hopes of changing the discourse.`\
 https://nytimes.com/athletic/6724492/2025/10/16/dodgers-brewers-game-3-score-results-takeaways-playoffs-mlb/
-
-**How the Bolton Indictment Compares to Trump’s Classified Documents Case**\
-`Some charges against the onetime national security adviser resemble the dropped case against President Trump, but there are also differences.`\
-https://nytimes.com/2025/10/16/us/politics/trump-bolton-indictment-documents.html
 
