@@ -1,3 +1,7 @@
+**Are Video Games Giving Us Some of the Best New Music?**\
+`Jon Caramanica, host of “Popcast,” explains why Valorant’s new Champions anthem, “Last Shot,” captures the moment.`\
+https://nytimes.com/video/podcasts/100000010463758/are-video-games-giving-us-some-of-the-best-new-music.html
+
 **The New York Times in Print for Friday, Oct. 17, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/17/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6719553/2025/10/17/tottenham-rotation-fixture-list-
 **Brighton need four of their big names to step up ahead of tough run**\
 `Fabian Hurzeler needs Carlos Baleba, Kaoru Mitoma, Georginio Rutter and Danny Welbeck to find their best form`\
 https://nytimes.com/athletic/6699919/2025/10/17/brighton-welbeck-rutter-baleba-mitoma/
-
-**FPL: The players to buy, keep and sell for Gameweek 8**\
-`Abdul Rehman explains why this is not the time to get rid of Mohamed Salah – but what should you do with Viktor Gyokeres?`\
-https://nytimes.com/athletic/6717989/2025/10/17/fantasy-premier-league-gw8-buy-sell-keep/
 
