@@ -1,40 +1,40 @@
-**Instagram Unveils Teen Safety Features for A.I. Chatbots**\
-`Instagram is introducing parental controls and limits to conversations on topics like self-harm as concerns grow over how A.I. chatbots affect mental health.`\
-https://nytimes.com/2025/10/17/technology/instagram-teen-safety-features-ai-chatbots.html
+**Alim McNeill's return: Long-awaited and welcome sight for Lions' defense**\
+`Defensive tackle Alim McNeill tore his ACL in December and is returning a little ahead of schedule`\
+https://nytimes.com/athletic/6724220/2025/10/17/lions-alim-mcneill-injury-return-bucs/
 
-**Arsenal's Odegaard remains 'out for weeks' with MCL injury - Arteta**\
-`The Norwegian has played only seven times for Arsenal this season while dealing with various injuries.`\
-https://nytimes.com/athletic/6693227/2025/10/17/martin-odegaard-injury-arsenal-latest/
+**Panthers' Damien Lewis is family figure off the field, 'rolling freight train' on it**\
+`During the fall, you can catch Lewis in the bleachers watching his brothers play football for Myers Park High.`\
+https://nytimes.com/athletic/6723691/2025/10/17/panthers-damien-lewis-offensive-line-journey/
 
-**Live Updates: Trump to Meet With Zelensky, Making New Push for Ukraine Cease-Fire**\
-``\
-https://nytimes.com/live/2025/10/17/us/trump-news-zelensky
+**Blue Jackets outclassed, outplayed in 4-1 home loss to Avalanche: 'We were soft'**\
+`The Blue Jackets had only 12 hits, a number that glares brighter when you realize how little they had the puck.`\
+https://nytimes.com/athletic/6724976/2025/10/17/blue-jackets-home-loss-avalanche/
 
-**Maresca: Palmer out for six more weeks**\
-`The Chelsea head coach also confirmed centre-back Benoit Badiashile will be absent until December due to injury.`\
-https://nytimes.com/athletic/6725638/2025/10/17/cole-palmer-chelsea-injury-maresca/
+**Premier League roundtable: Semenyo or Haaland? Slot's Liverpool plans? Biggest surprise?**\
+`The international break is over. The Premier League is back. Our writers discuss the season so far and what to look out for in coming months`\
+https://nytimes.com/athletic/6722168/2025/10/17/premier-league-roundtable-semenyo-or-haaland-slots-liverpool-plans-biggest-surprise/
 
-**The Supreme Court Is Looking Beyond the Trump Era**\
-`What do we expect from the Supreme Court and what can it actually do? On “Interesting Times,” Justice Amy Coney Barrett and Ross Douthat discuss how the court makes decisions, with an eye toward the future, rather than focusing on the moment we live in right now.`\
-https://nytimes.com/video/opinion/100000010436082/the-supreme-court-is-looking-beyond-the-trump-era.html
+**Eagles cornerback depth chart remains unsettled while Isaiah Rodgers excels in Minnesota**\
+`The Eagles have been struggling to solidify the CB2 position.`\
+https://nytimes.com/athletic/6724231/2025/10/17/eagles-cornerback-depth-chart-isaiah-rodgers-minnesota/
 
-**Rosenthal: Inside the fiery, foul-mouthed mound visit that led Max Max to a signature October moment**\
-`Blue Jays manager John Schneider stepped onto the field to pull Max Scherzer. The pitcher had other ideas. `\
-https://nytimes.com/athletic/6725495/2025/10/17/max-scherzer-blue-jays-alcs-mound-visit/
+**A ‘cruel’ homecoming for the Mariners, whose pitchers are meeting their match**\
+`The Mariners’ vaunted rotation has an 8.04 ERA because the aggressive Blue Jays are pouring it on in the ALCS.`\
+https://nytimes.com/athletic/6725546/2025/10/17/mariners-pitching-blue-jays-alcs/
 
-**Red flags? How concerning are Bears' penalties despite 3-game winning streak?**\
-`The Bears are averaging 8.6 penalties per game, and had some glaring — and questionable — ones Monday night. But they overcame them to win.`\
-https://nytimes.com/athletic/6724091/2025/10/17/bears-penalties-concerns-commanders/
+**DGB Mailbag: The worst and most perfect metaphor for being a Leafs fan, and more**\
+`Plus a reason to believe for Sabres fans, and the potential ramifications of the Penguins winning the lottery and selecting Gavin McKenna.`\
+https://nytimes.com/athletic/6723308/2025/10/17/maple-leafs-fan-sabres-penguins-gavin-mckenna/
 
-**This Year’s Hurricanes Keep Turning Away From the East Coast**\
-`Why?`\
-https://nytimes.com/2025/10/17/weather/atlantic-hurricane-season-update.html
+**Canadiens' excellent start is based more on a solid foundation than late-game heroics**\
+`The Canadiens have achieved the start they desired through five games, but that is less about their record than it is how they got there.`\
+https://nytimes.com/athletic/6725305/2025/10/17/canadiens-ot-win-predators-nhl-score/
 
-**The New York Times International Edition in Print for Saturday, Oct. 18, 2025**\
-``\
-https://nytimes.com/issue/todaysinyt/2025/10/17/todays-new-york-times-international-edition
+**What can Rangers do to fix finishing issues? Evaluating their options after loss in Toronto**\
+`Finishing has been an issue for the Rangers this season, and that continued in a 2-1 overtime loss to the Maple Leafs on Thursday.`\
+https://nytimes.com/athletic/6725097/2025/10/17/rangers-maple-leafs-mika-zibanejad-juuso-parssinen/
 
-**Why Was Roe v. Wade Overturned?**\
-`Abortion isn’t a right protected by the Constitution nor is it deeply rooted in the country’s history.`\
-https://nytimes.com/video/opinion/100000010436084/why-was-roe-v-wade-overturned.html
+**Colts have overcome flaws on defense so far; here's why their luck could soon run out**\
+`The Colts have struggled to get off the field on third downs and yielded far too many explosive plays. `\
+https://nytimes.com/athletic/6724756/2025/10/17/colts-defense-flaws-secondary-chargers/
 
