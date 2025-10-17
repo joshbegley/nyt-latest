@@ -1,3 +1,23 @@
+**Read the document**\
+`Federal prosecutors accused a man in Louisiana of participating in the Hamas-led attack on Israel on Oct. 7, 2023, according to a criminal complaint unsealed on Thursday.`\
+https://nytimes.com/interactive/2025/10/17/us/hamas-case-louisiana-complaint.html
+
+**Projecting the CFP (and every other bowl) at the 2025 season's midpoint**\
+`Around 35 teams still harbor College Football Playoff hopes. For more than 90 others, hopes of playing in a bowl are the next best thing.`\
+https://nytimes.com/athletic/6723508/2025/10/17/college-football-midseason-bowl-playoff-projections/
+
+**10 fantasy basketball situations to watch including Trae Young’s usage, Rockets and Mavs**\
+`Stan Son shares 10 NBA situations that intrigue him heading into the 2025-26 fantasy basketball campaign.`\
+https://nytimes.com/athletic/6723606/2025/10/17/fantasy-basketball-situations-trae-young-rockets-mavericks/
+
+**She's 80 years old, and she just completed the famed Ironman World Championship race**\
+`"The important thing is that people see from my story that they can maybe push themselves a little bit," Natalie Grabow says.`\
+https://nytimes.com/athletic/6723502/2025/10/17/natalie-grabow-ironman-world-championship-race-80-years-old/
+
+**Meeting With Zelensky Opens Trump’s New Push for Ukraine Cease-Fire**\
+`President Trump is energized by the Mideast deal, but President Volodymyr Zelensky of Ukraine is seeking fewer talks and more weapons to force Russia to negotiate.`\
+https://nytimes.com/2025/10/17/world/europe/zelensky-trump-meeting-white-house-ukraine-war.html
+
 **Is It Healthy to Grieve Before a Loss?**\
 `Yes. Here’s how to cope.`\
 https://nytimes.com/2025/10/17/well/anticipatory-grief.html

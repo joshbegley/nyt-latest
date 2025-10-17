@@ -1,3 +1,7 @@
+**Frances Tiafoe splits with coaches, ends tennis season early: 'It wasn’t the season I hoped for'**\
+`Tiafoe's 2025 ends with his worst win-loss ratio since 2019.`\
+https://nytimes.com/athletic/6725545/2025/10/17/tennis-frances-tiafoe-coach-split/
+
 **Read the document**\
 `Federal prosecutors accused a man in Louisiana of participating in the Hamas-led attack on Israel on Oct. 7, 2023, according to a criminal complaint unsealed on Thursday.`\
 https://nytimes.com/interactive/2025/10/17/us/hamas-case-louisiana-complaint.html
@@ -9,6 +13,14 @@ https://nytimes.com/athletic/6723508/2025/10/17/college-football-midseason-bowl-
 **10 fantasy basketball situations to watch including Trae Young’s usage, Rockets and Mavs**\
 `Stan Son shares 10 NBA situations that intrigue him heading into the 2025-26 fantasy basketball campaign.`\
 https://nytimes.com/athletic/6723606/2025/10/17/fantasy-basketball-situations-trae-young-rockets-mavericks/
+
+**Giants' Cam Skattebo used small-town fire to fuel his big-city smoke for New York**\
+`Don't expect Skattebo, the pride of Rio Linda, Calif., to change his style. He'll keep attacking opponents the only way he knows how.`\
+https://nytimes.com/athletic/6724238/2025/10/17/cam-skattebo-new-york-giants-journey/
+
+**Why Aaron Glenn is not getting fired — not now, and not in the offseason**\
+`The first-year head coach brought the promise of a Lions-like turnaround. How similar are the 2025 Jets and the 2021 Lions?`\
+https://nytimes.com/athletic/6722832/2025/10/17/aaron-glenn-job-security-new-york-jets-rebuild/
 
 **She's 80 years old, and she just completed the famed Ironman World Championship race**\
 `"The important thing is that people see from my story that they can maybe push themselves a little bit," Natalie Grabow says.`\
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/17/business/media/indiana-university-daily-student-n
 **The New York Times News Quiz, Oct. 17, 2025**\
 `Did you follow the news this week? Take our quiz to see how well you stack up with other Times readers.`\
 https://nytimes.com/interactive/2025/10/17/briefing/news-quiz-trump-immigration-supreme-court.html
-
-**What We Know About the Latest ‘No Kings’ Protests**\
-`The nationwide protests are playing out as a federal government shutdown lingers and troops are being deployed in cities.`\
-https://nytimes.com/2025/10/17/us/no-kings-protest.html
-
-**Meeting With Zelensky Opens Trump’s New Push for Ukraine Cease-Fire**\
-`President Trump is energized by the Mideast deal, but President Volodymyr Zelensky of Ukraine is seeking fewer talks and more weapons to force Russia to negotiate.`\
-https://nytimes.com/2025/10/17/world/europe/zelensky-trump-meeting-white-house-ukraine-war.html
-
-**Can You Make Use of Your Neighbors’ Trash Cans?**\
-`A ruling on dog-waste-disposal etiquette.`\
-https://nytimes.com/interactive/2025/10/17/magazine/19mag-hodgmanquiz.html
 
