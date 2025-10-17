@@ -1,3 +1,7 @@
+**Mason Miller among MLB players following fired Ballengee agents to new agency: Sources**\
+`Jeff Randazzo, who was let go by Ballengee in August, has co-founded a new agency and brought all of his clients with him.`\
+https://nytimes.com/athletic/6726604/2025/10/17/mason-miller-among-mlb-players-following-fired-ballengee-agents-to-new-agency-sources/
+
 **I Have Parkinson’s: A Range of Voices**\
 `Readers, many with Parkinson’s, respond to an article about Sue Goldie, who has the disease. Also: Tears over Trump’s America; losing to China; learning through play.`\
 https://nytimes.com/2025/10/17/opinion/parkinsons-sue-goldie.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6723414/2025/10/17/nfl-week-7-projected-scores-mode
 **Massachusetts School Employee Dies After Trying to Restrain Student**\
 `The student, 14, has been charged with assault.`\
 https://nytimes.com/2025/10/17/us/massachusetts-school-staff-dies-student-kick.html
-
-**Teresa Ulloa Ziáurriz, Rights Advocate Who Fought Sex Traffickers, Dies at 75**\
-`In Mexico, where the cult of machismo has long held sway, she waged a lonely, sometimes dangerous and often single-handed fight against prostitution and organized sex rings.`\
-https://nytimes.com/2025/10/17/world/americas/teresa-ulloa-ziaurriz-dead.html
 
