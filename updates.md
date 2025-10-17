@@ -1,3 +1,15 @@
+**Jaden Ivey's surgery complicates Pistons' early-season plans**\
+`Detroit got some tough news on Ivey, but Cade Cunnigham's shooting is one of a few positive preseason developments.`\
+https://nytimes.com/athletic/6725396/2025/10/17/detroit-pistons-jaden-ivey-ausar-thompson-preseason-wrapup/
+
+**Weird & Wild: Ohtani's odd October, Jacob Misiorowski's moment and a peculiar punchout**\
+`The soon-to-be four-time MVP has looked shockingly human. But he's still had his moments for the Death Star Dodgers, who just keep rolling.`\
+https://nytimes.com/athletic/6725561/2025/10/17/ohtani-mlb-playoffs-jacob-misiorowski-dodgers-brewers/
+
+**Steelers' Joe Flacco nightmare becomes a reality on Thursday night**\
+`The Bengals' newly acquired quarterback torched the Steelers' remade secondary.`\
+https://nytimes.com/athletic/6725353/2025/10/17/pittsburgh-steelers-cincinnati-bengals-thursday-night-loss/
+
 **Read the document**\
 `Federal prosecutors accused a man in Louisiana of participating in the Hamas-led attack on Israel on Oct. 7, 2023, according to a criminal complaint unsealed on Thursday.`\
 https://nytimes.com/interactive/2025/10/17/us/hamas-case-louisiana-complaint.html
