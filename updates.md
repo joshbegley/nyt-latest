@@ -1,3 +1,7 @@
+**Salesforce Tries to Help ICE Boost Its Immigration Force**\
+`The San Francisco-based firm has told ICE that it could use A.I. to help the agency nearly triple its staff. The company’s C.E.O., once a progressive tech titan, has embraced President Trump.`\
+https://nytimes.com/2025/10/16/us/salesforce-benioff-ice.html
+
 **In Virginia A.G. Debate, Spotlight Is on Democratic Candidate’s Violent Texts**\
 `Jay Jones apologized for his threatening messages and tried to tie his opponent, Jason Miyares, to President Trump’s policies.`\
 https://nytimes.com/2025/10/16/us/elections/virginia-debate-jay-jones-jason-miyares.html
