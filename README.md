@@ -1,3 +1,7 @@
+**7 Takeaways From the First N.Y.C. Mayoral Debate**\
+`Zohran Mamdani, Andrew Cuomo and Curtis Sliwa sparred over serious topics like the Israel-Hamas war and President Trump, and more curious subjects like parade attendance.`\
+https://nytimes.com/2025/10/16/nyregion/nyc-mayor-debate-mamdani-cuomo-takeaways.html
+
 **Pumpkin-Butterscotch Custard With Spiced Whipped Cream**\
 `Butterscotch pudding gets an autumnal makeover with the addition of pumpkin purée and a fluffy, spiced whipped cream topping.`\
 https://nytimes.com/video/dining/100000010366127/pumpkin-butterscotch-custard-with-spiced-whipped-cream.html
@@ -10,7 +14,7 @@ https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-fact-check
 `Karen Steinberg opens our solving weekend with an approachable themeless puzzle.`\
 https://nytimes.com/2025/10/16/crosswords/daily-puzzle-2025-10-17.html
 
-**Salesforce Tries to Help ICE Boost Its Immigration Force**\
+**Salesforce Offers Its Services to Boost ICE Immigration Force**\
 `The San Francisco-based firm has told ICE that it could use A.I. to help the agency nearly triple its staff. The company’s C.E.O., once a progressive tech titan, has embraced President Trump.`\
 https://nytimes.com/2025/10/16/us/salesforce-benioff-ice.html
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6724492/2025/10/16/dodgers-brewers-game-3-score-res
 **How the Bolton Indictment Compares to Trump’s Classified Documents Case**\
 `Some charges against the onetime national security adviser resemble the dropped case against President Trump, but there are also differences.`\
 https://nytimes.com/2025/10/16/us/politics/trump-bolton-indictment-documents.html
-
-**Smartmatic Added to Bribery Indictment of the Company’s Executives**\
-`Federal prosecutors filed charges last year alleging a scheme to obtain contracts from the Philippine elections commission.`\
-https://nytimes.com/2025/10/16/business/media/smartmatic-bribery-indictment-philippines.html
 
