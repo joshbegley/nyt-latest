@@ -1,3 +1,7 @@
+**Pumpkin-Butterscotch Custard With Spiced Whipped Cream**\
+`Butterscotch pudding gets an autumnal makeover with the addition of pumpkin purée and a fluffy, spiced whipped cream topping.`\
+https://nytimes.com/video/dining/100000010366127/pumpkin-butterscotch-custard-with-spiced-whipped-cream.html
+
 **Fact-Checking the New York Mayoral Debate**\
 `Zohran Mamdani, Andrew Cuomo and Curtis Sliwa traded barbs over the police, prostitution and President Trump.`\
 https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-fact-check
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/16/us/politics/trump-bolton-indictment-documents.htm
 **Smartmatic Added to Bribery Indictment of the Company’s Executives**\
 `Federal prosecutors filed charges last year alleging a scheme to obtain contracts from the Philippine elections commission.`\
 https://nytimes.com/2025/10/16/business/media/smartmatic-bribery-indictment-philippines.html
-
-**Brewers' Jackson Chourio exits NLCS Game 3 with leg cramps**\
-`Chourio, 21, hit .270 with 21 home runs, 21 stolen bases and 78 RBIs in his second big-league season.`\
-https://nytimes.com/athletic/6724720/2025/10/16/brewers-jackson-chourio-injury/
 

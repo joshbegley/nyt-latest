@@ -1,3 +1,7 @@
+**Pumpkin-Butterscotch Custard With Spiced Whipped Cream**\
+`Butterscotch pudding gets an autumnal makeover with the addition of pumpkin purée and a fluffy, spiced whipped cream topping.`\
+https://nytimes.com/video/dining/100000010366127/pumpkin-butterscotch-custard-with-spiced-whipped-cream.html
+
 **Fact-Checking the New York Mayoral Debate**\
 `Zohran Mamdani, Andrew Cuomo and Curtis Sliwa traded barbs over the police, prostitution and President Trump.`\
 https://nytimes.com/live/2025/10/16/nyregion/nyc-mayor-debate-fact-check
