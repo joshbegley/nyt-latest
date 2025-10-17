@@ -1,3 +1,7 @@
+**How Much Political Propaganda Art Can One Mansion Hold?**\
+`In London, an interior designer helps a director of Hollywood action films make his house a cheeky, ever-evolving statement on international authoritarianism.`\
+https://nytimes.com/2025/10/17/t-magazine/roland-emmerich-london-home-propaganda.html
+
 **Scoop City: Flacco, Dart and two Week 7 matchups to watch**\
 `Flacco's quick turnaround, how teams legally find clues about their opponents, plus a Week 7 watch guide`\
 https://nytimes.com/athletic/6726728/2025/10/17/flacco-puts-on-a-classic-plus-darts-improvement-week-7s-key-matchups/
@@ -6,8 +10,8 @@ https://nytimes.com/athletic/6726728/2025/10/17/flacco-puts-on-a-classic-plus-da
 `Yankees GM Brian Cashman appeared on New York sports radio to deny interfering with manager Aaron Boone's in-game calls.`\
 https://nytimes.com/athletic/6726378/2025/10/17/yankees-brian-cashman-aaron-boone-front-office-interference/
 
-**New York Halts Manhattan Bus Lane Plan Following White House Threats**\
-`The Trump administration threatened to withhold funding for unnamed transit projects in New York if work on the bus lanes along 34th Street were not stopped.`\
+**The Trump Administration’s Latest Target in New York: Bus Lanes**\
+`Federal authorities ordered a halt to yet another transit project in New York City, this time a plan to add bus lanes along 34th Street in Manhattan, after the Trump administration threatened to withhold funding.`\
 https://nytimes.com/2025/10/17/nyregion/trump-administration-nyc-bus-34th-st.html
 
 **Ange Postecoglou re-opens Spurs debate – but Forest's reaction is more important**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6726585/2025/10/17/cowboys-trevon-diggs-out-injury-
 **Inside the Sudden Collapse of a U.K. Spy Case Against China**\
 `Evidence prepared for a collapsed espionage trial was published by an under-pressure government in Britain, offering a window into Western countries’ struggle to define Beijing as friend or foe.`\
 https://nytimes.com/2025/10/17/world/europe/uk-china-spy-case.html
-
-**How a U.S. Oil Giant Became a Pillar of Venezuela’s Fragile Economy**\
-`Chevron enjoys unusual sway in socialist-led Venezuela, positioning the energy colossus to gain from whatever comes of the crisis between Washington and Caracas.`\
-https://nytimes.com/2025/10/17/world/americas/trump-venezuela-chevron-oil.html
 

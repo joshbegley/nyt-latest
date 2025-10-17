@@ -1,3 +1,7 @@
+**Flashback: Your Weekly History Quiz, Oct. 18, 2025**\
+`Can you sort 8 historical events?`\
+https://nytimes.com/interactive/2025/10/17/upshot/flashback.html
+
 **How Much Political Propaganda Art Can One Mansion Hold?**\
 `In London, an interior designer helps a director of Hollywood action films make his house a cheeky, ever-evolving statement on international authoritarianism.`\
 https://nytimes.com/2025/10/17/t-magazine/roland-emmerich-london-home-propaganda.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/17/world/africa/madagascar-coup-youth-protests-next.
 **Cowboys' Trevon Diggs out Sunday vs. Commanders after in-home accident**\
 `In six games this season, Trevon Diggs has 18 tackles and one TFL.`\
 https://nytimes.com/athletic/6726585/2025/10/17/cowboys-trevon-diggs-out-injury-commanders/
-
-**Inside the Sudden Collapse of a U.K. Spy Case Against China**\
-`Evidence prepared for a collapsed espionage trial was published by an under-pressure government in Britain, offering a window into Western countries’ struggle to define Beijing as friend or foe.`\
-https://nytimes.com/2025/10/17/world/europe/uk-china-spy-case.html
 

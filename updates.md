@@ -1,3 +1,11 @@
+**How Much Political Propaganda Art Can One Mansion Hold?**\
+`In London, an interior designer helps a director of Hollywood action films make his house a cheeky, ever-evolving statement on international authoritarianism.`\
+https://nytimes.com/2025/10/17/t-magazine/roland-emmerich-london-home-propaganda.html
+
+**The Trump Administration’s Latest Target in New York: Bus Lanes**\
+`Federal authorities ordered a halt to yet another transit project in New York City, this time a plan to add bus lanes along 34th Street in Manhattan, after the Trump administration threatened to withhold funding.`\
+https://nytimes.com/2025/10/17/nyregion/trump-administration-nyc-bus-34th-st.html
+
 **Scoop City: Flacco, Dart and two Week 7 matchups to watch**\
 `Flacco's quick turnaround, how teams legally find clues about their opponents, plus a Week 7 watch guide`\
 https://nytimes.com/athletic/6726728/2025/10/17/flacco-puts-on-a-classic-plus-darts-improvement-week-7s-key-matchups/
