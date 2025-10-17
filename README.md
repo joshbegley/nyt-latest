@@ -1,3 +1,7 @@
+**Portland Fire name Cavs' assistant Alex Sarama first head coach in franchise history**\
+`He is the organization’s second major hire in recent days, joining executive Ashley Battle.`\
+https://nytimes.com/athletic/6717913/2025/10/17/portland-fire-wnba-head-coach-hired/
+
 **gws-zapotec-couple-rug-weaving**\
 `(No description)`\
 https://nytimes.com/newsgraphics/card-story/zapotec-couple-rug-weaving
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6726050/2025/10/17/fantasy-football-news-week-7-ben
 **Starmer Objects as Police Bar Israeli Team’s Fans From U.K. Soccer Game**\
 `Confrontation has shadowed Israeli teams’ games in Europe since the start of the Gaza war. Local authorities sought to bar visiting fans at a game in central England next month.`\
 https://nytimes.com/2025/10/17/world/europe/aston-villa-maccabi-fans.html
-
-**For Ukraine, Budapest brings back painful memories of security promises broken.**\
-`By Constant Méheut`\
-https://nytimes.com/live/2025/10/17/us/trump-news-zelensky/for-ukraine-budapest-brings-back-painful-memories-of-security-promises-broken
 
