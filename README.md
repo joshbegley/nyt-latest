@@ -1,3 +1,7 @@
+**Where the U.S. Is Building Up Military Force in the Caribbean**\
+`About 10,000 U.S. troops and dozens of military aircraft and ships are in the region as the Trump administration increases pressure on Venezuela.`\
+https://nytimes.com/2025/10/17/us/politics/trump-caribbean-venezuela-us-military-maps.html
+
 **Celtics' Jaylen Brown day-to-day after hamstring injury**\
 `Brown participated in everything but the live portions of practice Friday, according to Mazzulla.`\
 https://nytimes.com/athletic/6724339/2025/10/17/jaylen-brown-injury-celtics-update-hamstring/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6726728/2025/10/17/flacco-puts-on-a-classic-plus-da
 **Yankees GM denies interfering with manager's decisions: 'We don't tell him who to play'**\
 `Yankees GM Brian Cashman appeared on New York sports radio to deny interfering with manager Aaron Boone's in-game calls.`\
 https://nytimes.com/athletic/6726378/2025/10/17/yankees-brian-cashman-aaron-boone-front-office-interference/
-
-**The Trump Administration’s Latest Target in New York: Bus Lanes**\
-`Federal authorities ordered a halt to yet another transit project in New York City, this time a plan to add bus lanes along 34th Street in Manhattan, after the Trump administration threatened to withhold funding.`\
-https://nytimes.com/2025/10/17/nyregion/trump-administration-nyc-bus-34th-st.html
 
