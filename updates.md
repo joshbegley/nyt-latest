@@ -1,3 +1,19 @@
+**Dodgers shift into juggernaut mode: 'We've been here. We know what it takes'**\
+`The Dodgers' all-around performance in Game 3 was just the latest example of why they are on the brink of returning to the Fall Classic.`\
+https://nytimes.com/athletic/6725056/2025/10/17/dogers-nlcs-game-3-mlb-tyler-glasnow/
+
+**Abdoulaye Doucoure exclusive: 'We were a big target at Everton. They were attacking the club. It was a motivation'**\
+`The Mali midfielder departed the Merseyside club in the summer after five years over which he came to epitomise the team's fighting spirit`\
+https://nytimes.com/athletic/6719670/2025/10/17/abdoulaye-doucoure-everton-mali-interview/
+
+**How right-back became Liverpool's problem position**\
+`Arne Slot has tried Conor Bradley, Jeremie Frimpong and Dominik Szoboszlai this term. Now he needs to find some stability in the position`\
+https://nytimes.com/athletic/6722103/2025/10/17/liverpool-right-back-bradley-frimpong-szoboszlai/
+
+**England's Esme Morgan on making America home and why she loves the Jacksonville Jaguars**\
+`England international Esme Morgan is a huge Jacksonville Jaguars fan and will be in London this weekend to watch them play`\
+https://nytimes.com/athletic/6715854/2025/10/17/esme-morgan-washington-spirit-nwsl-jacksonville-jaguars-nfl/
+
 **Tottenham have started the Thomas Frank era well. Now the real test begins**\
 `A tough-looking run of fixtures should show us how much impact Spurs' new boss has made, both tactically and with player fitness`\
 https://nytimes.com/athletic/6719553/2025/10/17/tottenham-rotation-fixture-list-thomas-frank/
