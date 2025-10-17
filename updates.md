@@ -1,3 +1,19 @@
+**Trump Pushes Indiana Lawmakers to Redraw State Maps**\
+`A call Friday morning by the president to  Republican state senators is part of an escalating pressure campaign by the White House.`\
+https://nytimes.com/2025/10/17/us/politics/trump-indiana-senate-state-maps.html
+
+**Trump Officials Appeal Challenge to Their Efforts to Restrict D.E.I.**\
+`A federal judge had previously stopped the administration from cutting off billions to schools that have diversity and equity programs.`\
+https://nytimes.com/2025/10/17/us/trump-officials-appeal-challenge-dei-restrictions.html
+
+**Diane Keaton’s Legacy as a Prolific House Flipper**\
+`Known for her roles in film, the actress built a second act off-screen, turning the homes she renovated into another stage.`\
+https://nytimes.com/2025/10/17/realestate/diane-keaton-real-estate-flipper.html
+
+**6 Tree House Hotels That Offer Glamour With a Rustic Vibe**\
+`(No description)`\
+https://nytimes.com/newsgraphics/card-story/tree-house-hotels
+
 **Investors Shudder at Signs of Loan Trouble in Banks**\
 `After months of roaring share prices, stock investors were rattled this week by reports of souring debts on bank balance sheets.`\
 https://nytimes.com/2025/10/17/business/investors-shudder-at-signs-of-loan-trouble-in-banks.html
