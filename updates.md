@@ -1,3 +1,7 @@
+**When a Hearing Aid Isn’t Enough**\
+`More older adults have turned to cochlear implants after Medicare expanded eligibility for the devices.`\
+https://nytimes.com/2025/10/18/health/cochlear-implants-older-people.html
+
 **Holger Rune injured in bizarre two minutes vs. Ugo Humbert at Nordic Open after ball kid interruption**\
 `The 22-year-old Dane hobbled off the court immediately after a ball kid's movement had cost Humbert a crucial point.`\
 https://nytimes.com/athletic/6728537/2025/10/18/holger-rune-injured-ugo-humbert-nordic-open-ballkid/
