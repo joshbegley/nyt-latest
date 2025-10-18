@@ -1,3 +1,7 @@
+**Alison Rose, The New Yorker’s Femme Fatale, Dies at 81**\
+`She started as the magazine’s glamorous receptionist and became one of its more singular writers. In one of her last articles, she memorialized her time (and lovers) there.`\
+https://nytimes.com/2025/10/18/books/alison-rose-dead.html
+
 **Three arrested after England flag pitch invasion at Salford in alleged protest against Neville**\
 `Police confirmed three men had been arrested on suspicion of entering the field of play during Salford's match against Oldham.`\
 https://nytimes.com/athletic/6728448/2025/10/18/salford-fans-gary-neville-arrested/
