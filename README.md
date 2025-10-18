@@ -1,3 +1,7 @@
+**What Will Winter Bring? NOAA Outlook May Offer Some Clues.**\
+`Federal forecasters broke down the most likely scenarios around the United States this week.`\
+https://nytimes.com/2025/10/18/weather/noaa-winter-weather-forecast-us.html
+
 **Jimmy Wales Thinks the World Should Be More Like Wikipedia**\
 `Attacks on the site are piling up. Its co-founder says trust the process.`\
 https://nytimes.com/2025/10/18/magazine/jimmy-wales-interview.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/18/us/politics/trump-democrats-shutdown-deal.html
 **What Powers Does the Border Patrol Have Across the Country?**\
 `The Trump administration is increasingly relying on the agency for immigration enforcement within the U.S.`\
 https://nytimes.com/2025/10/18/us/politics/border-patrol-immigration-explainer.html
-
-**7 a.m. Is Too Early for a Meeting, Right?**\
-`And: You beat out a colleague for a promotion, and now she hates you. What happens next?`\
-https://nytimes.com/2025/10/18/business/early-meetings-work-advice.html
 
