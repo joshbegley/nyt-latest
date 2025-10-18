@@ -1,3 +1,7 @@
+**Blue Jays' George Springer leaves ALCS Game 5 after pitch hits kneecap**\
+`According to the FS1 telecast, the carom off Springer’s knee was so violent that it registered on Statcast as a 55 mph batted ball.`\
+https://nytimes.com/athletic/6727442/2025/10/17/george-springer-alcs-injury-knee/
+
 **Federal Agents Make Arrests Outside Migrant Shelter in Times Square**\
 `The arrests, on the crowded sidewalks of Midtown Manhattan, rattled migrants residing at a hotel and shook the theater district, which is heavily trafficked by tourists.`\
 https://nytimes.com/2025/10/17/nyregion/ice-arrests-midtown-manhattan-shelter.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/17/us/alaska-storm-typhoon-recovery-evacuations.html
 **Bulls waive fan favorite Yuki Kawamura after discovering 'medical condition'**\
 `The 5-foot-8 Japanese point guard had secured a two-way contract with the Bulls after spending last season with the Memphis Grizzlies.`\
 https://nytimes.com/athletic/6727185/2025/10/17/yuki-kawamura-bulls-status-injury-waived/
-
-**Education Dept. Agrees to Resume More Student Loan Cancellations**\
-`Hailed as a win for borrowers, the agreement will enable more enrollees in income-driven repayment plans to have their remaining debt canceled.`\
-https://nytimes.com/2025/10/17/business/student-loan-cancellation-idr.html
 

@@ -1,3 +1,7 @@
+**Federal Agents Make Arrests Outside Migrant Shelter in Times Square**\
+`The arrests, on the crowded sidewalks of Midtown Manhattan, rattled migrants residing at a hotel and shook the theater district, which is heavily trafficked by tourists.`\
+https://nytimes.com/2025/10/17/nyregion/ice-arrests-midtown-manhattan-shelter.html
+
 **Trump Hesitant to Give Ukraine Missiles, Pushing for Cease-Fire With Russia**\
 `President Volodymyr Zelensky of Ukraine pressed the Trump administration on Friday for long-range missiles to strike deep within Russia. Trump is proposing more negotiations between Zelensky and President Vladimir Putin in the coming weeks.`\
 https://nytimes.com/video/us/100000010466367/trump-hesitant-to-give-ukraine-missiles-pushing-for-cease-fire-with-russia.html
