@@ -1,3 +1,7 @@
+**Broadway Actors Reach Deal, but Musicians Still Threaten Strike**\
+`The Broadway League and Actors’ Equity Association reached a tentative agreement early Saturday. Union members must decide whether to ratify it.`\
+https://nytimes.com/2025/10/18/theater/broadway-actors-strike-agreement.html
+
 **WATCH: The most ruthless NFL play of the season, explained**\
 `The Seahawks pressured Lawrence more than any other quarterback this season.`\
 https://nytimes.com/athletic/6728615/2025/10/18/seahawks-jaguars-trevor-lawrence-film-breakdown-analysis/
