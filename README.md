@@ -1,3 +1,7 @@
+**Chen Ning Yang, Nobel-Winning Physicist, Is Dead at 103**\
+`He and a colleague, Tsung-Dao Lee, created a sensation in 1956 by proposing that one of the four forces of nature might violate a law of physics.`\
+https://nytimes.com/2025/10/18/science/chen-ning-yang-dead.html
+
 **Miami's loss feeds the narrative — now Canes must prove they can flip the script**\
 `Miami, 5-1 overall and 1-1 in the ACC, will need help to reach the league title game. `\
 https://nytimes.com/athletic/6728332/2025/10/18/miami-louisville-mario-cristobal-carson-beck/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6631266/2025/10/18/lamine-yamal-injury-return/
 **Large Fire Halts Flights at Bangladesh’s Main Airport**\
 `The blaze drew dozens of firefighting units, with military help. Officials said they could not yet specify what caused it.`\
 https://nytimes.com/2025/10/18/world/asia/bangladesh-airport-fire.html
-
-**Ohtani, the Greatest Shoh on Earth, just had the greatest game in baseball history**\
-`“We’re watching something we’ve never seen before,” Dave Roberts said. Here are seven reasons this was the single greatest game of all time.`\
-https://nytimes.com/athletic/6728157/2025/10/18/shohei-ohtani-world-series-greatest-postseason-game/
 
