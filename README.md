@@ -1,3 +1,15 @@
+**For Prince Andrew, a Steady Fall From Grace Ends in a Hard Landing**\
+`A parade of scandals tarnished the prince’s reputation, long before he gave up using his title as Duke of York on Friday.`\
+https://nytimes.com/2025/10/18/world/europe/prince-andrew-britain-epstein.html
+
+**Lithium Battery Fire Aboard Air China Flight Forces an Emergency Landing**\
+`The battery spontaneously combusted while stored in a luggage in the overhead bin. The airline said there were no injuries.`\
+https://nytimes.com/2025/10/18/world/asia/air-china-flight-lithium-battery-fire.html
+
+**The Briefing - Brighton 2 Newcastle 1: Lack of creativity strikes again, Woltemade flick all for nothing**\
+`Newcastle slumped to their first away defeat of the season with a disappointing 2-1 defeat at Brighton showcasing some familiar flaws`\
+https://nytimes.com/athletic/6728278/2025/10/18/brighton-2-newcastle-1-analysis/
+
 **Republicans Know How Vulnerable Trump Is. The Attacks on No Kings Prove It.**\
 `What explains the Republican Party’s posture toward these protests?`\
 https://nytimes.com/2025/10/18/opinion/no-kings-protests-republicans-trump.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6728280/2025/10/18/manchester-city-2-everton-0-erli
 **Santos in His Own Words: Pleading for Mercy and Promising a Comeback**\
 `George Santos, the disgraced former congressman who was released from federal prison on Friday, has been a columnist for a Long Island paper, including from behind bars.`\
 https://nytimes.com/2025/10/18/nyregion/george-santos-newspaper-columns.html
-
-**Broadway Actors Reach Deal, but Musicians Still Threaten Strike**\
-`The Broadway League and Actors’ Equity Association reached a tentative agreement early Saturday. Union members must decide whether to ratify it.`\
-https://nytimes.com/2025/10/18/theater/broadway-actors-strike-agreement.html
-
-**WATCH: The most ruthless NFL play of the season, explained**\
-`The Seahawks pressured Lawrence more than any other quarterback this season.`\
-https://nytimes.com/athletic/6728615/2025/10/18/seahawks-jaguars-trevor-lawrence-film-breakdown-analysis/
-
-**Nebraska proves it's still not ready for prime time in sobering loss at Minnesota**\
-`Minnesota exposed Nebraska as still vulnerable to the type of effort that so frustrated fans of the Huskers over the past decade.`\
-https://nytimes.com/athletic/6728619/2025/10/18/nebraska-football-minnesota-loss-matt-rhule/
 

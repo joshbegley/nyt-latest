@@ -1,3 +1,19 @@
+**Republicans Know How Vulnerable Trump Is. The Attacks on No Kings Prove It.**\
+`What explains the Republican Party’s posture toward these protests?`\
+https://nytimes.com/2025/10/18/opinion/no-kings-protests-republicans-trump.html
+
+**The Briefing – Burnley 0 Leeds 2: Slow starts, ineffective wingers a a crucial game to come**\
+`It was a disappointing defeat but Farke's side are still averaging one point per game. Beren Cross explains why this is no time to panic`\
+https://nytimes.com/athletic/6728279/2025/10/18/burnley-0-leeds-2-analysis/
+
+**Eagles notes: Saquon Barkley on James Franklin, rebounding from Week 6 loss, prediction vs. Vikings**\
+`The Eagles used their mini-bye week to focus on improving the team's offense; plus, Saquon Barkley on James Franklin and Week 7 predictions.`\
+https://nytimes.com/athletic/6728543/2025/10/18/eagles-notes-saquon-barkley-james-franklin-vikings-prediction/
+
+**Forest contact Mancini as new head coach option**\
+`Ange Postecoglou was dismissed after a 3-0 home defeat by Chelsea, failing to win any of his eight games in charge of Forest.`\
+https://nytimes.com/athletic/6728662/2025/10/18/forest-roberto-mancini-latest/
+
 **Veteran MLB catcher Martin Maldonado retires after 15-season career**\
 `Maldonado was known for his game-calling aptitude and a strong throwing arm that earned him the nickname “Machete.”`\
 https://nytimes.com/athletic/6728657/2025/10/18/martin-maldonado-retires-astros-padres/
