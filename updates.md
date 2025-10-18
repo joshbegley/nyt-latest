@@ -1,3 +1,7 @@
+**Jimmy Wales Thinks the World Should Be More Like Wikipedia**\
+`Attacks on the site are piling up. Its co-founder says trust the process.`\
+https://nytimes.com/2025/10/18/magazine/jimmy-wales-interview.html
+
 **Five must-read moments this week from the mayor’s race**\
 `With early voting a week away, Andrew Cuomo acknowledged that in a three-way race, he loses.`\
 https://nytimes.com/card/2025/10/18/nyregion/newyorktoday/five-must-read-moments-this-week-from-the-mayors-race
