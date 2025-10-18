@@ -1,3 +1,27 @@
+**Yamal cleared to return for Barcelona after groin injury**\
+`Yamal has been included in the squad for the Saturday's match against Girona and comes before the season's first Clasico on October 26.`\
+https://nytimes.com/athletic/6631266/2025/10/18/lamine-yamal-injury-return/
+
+**Large Fire Halts Flights at Bangladesh’s Main Airport**\
+`The blaze drew dozens of firefighting units, with military help. Officials said they could not yet specify what caused it.`\
+https://nytimes.com/2025/10/18/world/asia/bangladesh-airport-fire.html
+
+**Ohtani, the Greatest Shoh on Earth, just had the greatest game in baseball history**\
+`“We’re watching something we’ve never seen before,” Dave Roberts said. Here are seven reasons this was the single greatest game of all time.`\
+https://nytimes.com/athletic/6728157/2025/10/18/shohei-ohtani-world-series-greatest-postseason-game/
+
+**Scoop City: Fantasy tips to win Week 7**\
+`Welcome to the Saturday fantasy edition of Scoop City, where Andy Behrens provides tips to win Week 7.`\
+https://nytimes.com/athletic/6727385/2025/10/18/fantasy-football-tips-week-7/
+
+**As Blues plan to make Logan Mailloux a healthy scratch, Chris Pronger preaches patience**\
+`Pronger endured more than his share of criticism early in his career before becoming a Hall of Famer.`\
+https://nytimes.com/athletic/6726749/2025/10/18/blues-scratch-logan-mailloux-chris-pronger/
+
+**The Risk That Built America**\
+`Speculation isn’t a bug in America’s economic code, but a crucial component part of the engine, writes Andrew Ross Sorkin.`\
+https://nytimes.com/2025/10/18/business/dealbook/the-risk-that-built-america.html
+
 **From NHL to UFC, brothers Jeff and Mike Malott fighting along parallel paths**\
 `“Anytime one of us has a big moment coming up, we're always each other's biggest fans," LA Kings winger Jeff Malott said of brother Mike.`\
 https://nytimes.com/athletic/6727283/2025/10/18/malott-brothers-ufc-kings-nhl/
