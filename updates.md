@@ -1,3 +1,7 @@
+**Woman Who Tried to Blame Twin for Fatal Buggy Crash Gets 4 Years in Prison**\
+`The crash killed two Amish children and injured two others in rural Minnesota in 2023.`\
+https://nytimes.com/2025/10/18/us/minnesota-amish-buggy-crash-sentence.html
+
 **No. 1 Ohio State shuts out Wisconsin to add to Luke Fickell hot seat talk: Key takeaways**\
 `Ohio State dominated Wisconsin 34-0 behind QB Julian Sayin and its stingy defense, increasing the pressure on Fickell, a former Buckeye.`\
 https://nytimes.com/athletic/6729331/2025/10/18/ohio-state-wisconsin-score-result-luke-fickell/

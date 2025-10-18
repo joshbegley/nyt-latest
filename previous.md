@@ -1,3 +1,7 @@
+**Woman Who Tried to Blame Twin for Fatal Buggy Crash Gets 4 Years in Prison**\
+`The crash killed two Amish children and injured two others in rural Minnesota in 2023.`\
+https://nytimes.com/2025/10/18/us/minnesota-amish-buggy-crash-sentence.html
+
 **No. 1 Ohio State shuts out Wisconsin to add to Luke Fickell hot seat talk: Key takeaways**\
 `Ohio State dominated Wisconsin 34-0 behind QB Julian Sayin and its stingy defense, increasing the pressure on Fickell, a former Buckeye.`\
 https://nytimes.com/athletic/6729331/2025/10/18/ohio-state-wisconsin-score-result-luke-fickell/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/18/crosswords/daily-puzzle-2025-10-19.html
 **Manuel Trujillo, Who Helped New Yorkers Heal After 9/11, Dies at 80**\
 `As Bellevue Hospital’s director of psychiatry, he guided rescue workers and grieving families through trauma when terrorists attacked in 2001.`\
 https://nytimes.com/2025/10/18/nyregion/dr-manuel-trujillo-dead.html
-
-**Max Scherzer's viral moment was a perfect illustration of intuitive decision making**\
-`From a leadership perspective, Blue Jays manager John Schneider's mound visit with pitcher Max Scherzer was revealing and fascinating. `\
-https://nytimes.com/athletic/6729262/2025/10/18/max-scherzer-john-schneider-viral-moment-blue-jays-alcs/
 
