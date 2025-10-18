@@ -1,3 +1,11 @@
+**Canadiens' Kaiden Guhle out 4-6 weeks with lower-body injury**\
+`Guhle was injured midway through the third period of Thursday’s 3-2 OT win against the Predators.`\
+https://nytimes.com/athletic/6728603/2025/10/18/kaiden-guhle-canadiens-injury/
+
+**Should the Commanders trade for a receiver? Will they be buyers or sellers? Mailbag**\
+`Is it too early to judge Washington's past two draft classes? Is it time to take a hard look at the Commanders' defensive coordinator?`\
+https://nytimes.com/athletic/6728402/2025/10/18/washington-commanders-trade-deadline-buyers-sellers/
+
 **When a Hearing Aid Isn’t Enough**\
 `More older adults have turned to cochlear implants after Medicare expanded eligibility for the devices.`\
 https://nytimes.com/2025/10/18/health/cochlear-implants-older-people.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6684498/2025/10/18/postecoglou-nottingham-forest-sa
 **The Briefing - Nottingham Forest 0 Chelsea 3: Guiu makes the difference, Acheampong's magic moment**\
 `A triple half-time substitution helped Enzo Maresca's side record an ultimately comfortable win`\
 https://nytimes.com/athletic/6728269/2025/10/18/nottingham-forest-0-chelsea-3-analysis/
-
-**How to watch Oilers vs. Devils: Time, TV, streaming**\
-`Find out how to watch the Edmonton Oilers play the New Jersey Devils, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6728444/2025/10/18/oilers-vs-devils-stream-how-to-watch-oct-18/
-
-**How to watch Islanders vs. Senators: Time, TV, streaming**\
-`Find out how to watch the New York Islanders play the Ottawa Senators, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6728442/2025/10/18/islanders-vs-senators-stream-how-to-watch-oct-18/
 

@@ -1,3 +1,19 @@
+**Turmeric Fried Eggs With Tamarind and Pickled Shallots**\
+`These fried eggs, as good enough to eat as they are to admire, get their wonderfully eccentric appearance from turmeric and chile. You can serve this easy, punchy breakfast as is, or with some hash browns if you’re having them for brunch.`\
+https://nytimes.com/video/dining/100000010366395/turmeric-fried-eggs-with-tamarind-and-pickled-shallots.html
+
+**Scenes From a Day of Mass Protests**\
+`With signs and chants, protesters take part in the ‘No Kings’ rallies focused on what they saw as overreach by the Trump administration.`\
+https://nytimes.com/2025/10/18/us/politics/no-kings-protests-trump.html
+
+**OpenAI Plans to Make ChatGPT More Humanlike. What Could Go Wrong?**\
+`A lot happened this week.`\
+https://nytimes.com/video/opinion/100000010466180/openai-plans-to-make-chatgpt-more-humanlike-what-could-go-wrong.html
+
+**Miami loss to Louisville complicates its CFP and ACC title hopes**\
+`Miami's odds to make the College Football Playoff didn't fall drastically after Friday's loss, but its margin for error is shrinking.`\
+https://nytimes.com/athletic/6728480/2025/10/18/miami-louisville-college-football-playoff-odds-acc/
+
 **Canadiens' Kaiden Guhle out 4-6 weeks with lower-body injury**\
 `Guhle was injured midway through the third period of Thursday’s 3-2 OT win against the Predators.`\
 https://nytimes.com/athletic/6728603/2025/10/18/kaiden-guhle-canadiens-injury/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6728522/2025/10/18/nottingham-forest-ange-postecogl
 **Coast Guard Buys Two Private Jets for Noem, Costing $172 Million**\
 `Public documents show the Department of Homeland Security has contracted to purchase a pair of top-of-the-line Gulfstream jets for the secretary and other top officials.`\
 https://nytimes.com/2025/10/18/us/politics/kristi-noem-dhs-gulfstream.html
-
-**Russini: What I'm hearing on trade deadline intel, the coaching carousel and the Bucs’ bet on Baker**\
-`Also: Denver takes a pass on a bye, inside a Patriots uniform quirk and what's really behind the surge in blocked kicks?`\
-https://nytimes.com/athletic/6727307/2025/10/18/nfl-trade-rumors-news-baker-mayfield/
-
-**3 Skillet Bakes for Cuffing Season**\
-`To be clear, skillet brownies, ginger cake and caramel apple crisp are also perfect for sharing with friends (or not sharing at all).`\
-https://nytimes.com/2025/10/18/dining/3-skillet-bakes-for-cuffing-season.html
-
-**Postecoglou sacked by Nottingham Forest after 39 days in charge**\
-`The 60-year-old was only appointed on September 9 after former coach Nuno Espirito Santo departed the club.`\
-https://nytimes.com/athletic/6684498/2025/10/18/postecoglou-nottingham-forest-sacked/
-
-**The Briefing - Nottingham Forest 0 Chelsea 3: Guiu makes the difference, Acheampong's magic moment**\
-`A triple half-time substitution helped Enzo Maresca's side record an ultimately comfortable win`\
-https://nytimes.com/athletic/6728269/2025/10/18/nottingham-forest-0-chelsea-3-analysis/
 

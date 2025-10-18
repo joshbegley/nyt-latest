@@ -1,3 +1,11 @@
+**Canadiens' Kaiden Guhle out 4-6 weeks with lower-body injury**\
+`Guhle was injured midway through the third period of Thursday’s 3-2 OT win against the Predators.`\
+https://nytimes.com/athletic/6728603/2025/10/18/kaiden-guhle-canadiens-injury/
+
+**Should the Commanders trade for a receiver? Will they be buyers or sellers? Mailbag**\
+`Is it too early to judge Washington's past two draft classes? Is it time to take a hard look at the Commanders' defensive coordinator?`\
+https://nytimes.com/athletic/6728402/2025/10/18/washington-commanders-trade-deadline-buyers-sellers/
+
 **When a Hearing Aid Isn’t Enough**\
 `More older adults have turned to cochlear implants after Medicare expanded eligibility for the devices.`\
 https://nytimes.com/2025/10/18/health/cochlear-implants-older-people.html
