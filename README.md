@@ -1,3 +1,7 @@
+**Shohei Ohtani’s 3-homer, 10-strikeout game powers Dodgers back to World Series**\
+`Ohtani stole the show with perhaps the greatest individual performance in MLB playoff history.`\
+https://nytimes.com/athletic/6727628/2025/10/17/dodgers-brewers-game-4-score-results-takeaways-playoffs-mlb/
+
 **Where things stand after first week of Skaggs wrongful death trial vs. Angels**\
 `Initial days have focused on credibility of long-time Angels employee. Mike Trout will be among the witnesses next week.`\
 https://nytimes.com/athletic/6727663/2025/10/17/skaggs-angels-wrongful-death-trial-first-week/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6727512/2025/10/17/anze-kopitar-los-angeles-kings-i
 **Blue Jays' George Springer leaves ALCS Game 5 after pitch hits kneecap**\
 `According to the FS1 telecast, the carom off Springer’s knee was so violent that it registered on Statcast as a 55 mph batted ball.`\
 https://nytimes.com/athletic/6727442/2025/10/17/george-springer-alcs-injury-knee/
-
-**Federal Agents Make Arrests Outside Migrant Shelter in Times Square**\
-`The arrests, on the crowded sidewalks of Midtown Manhattan, rattled migrants residing at a hotel and shook the theater district, which is heavily trafficked by tourists.`\
-https://nytimes.com/2025/10/17/nyregion/ice-arrests-midtown-manhattan-shelter.html
 
