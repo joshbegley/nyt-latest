@@ -1,3 +1,11 @@
+**Case Against Bolton Raises Questions Over Justice Dept.’s Use of Espionage Act**\
+`The allegations in his case are a pointed example of when classified information tumbles into nonsecure places, either by accident or from recklessness by someone trusted to keep it safe.`\
+https://nytimes.com/2025/10/18/us/bolton-indictment-justice-dept-espionage-act.html
+
+**Max Verstappen wins Austin sprint race, both McLarens crash out at Turn 1**\
+`Max Verstappen won the sprint race at Formula One's 2025 United States GP, with both McLarens eliminated in a Turn 1 crash`\
+https://nytimes.com/athletic/6728933/2025/10/18/max-verstappen-austin-f1-sprint-race/
+
 **David Attenborough Becomes Oldest Daytime Emmy Winner at 99**\
 `The British documentarian and naturalist beat the record set by Dick Van Dyke, who won a Daytime Emmy last year at 98.`\
 https://nytimes.com/2025/10/18/arts/television/attenborough-daytime-emmys-oldest.html
