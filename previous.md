@@ -1,3 +1,7 @@
+**Lakers unveil starting five in preseason finale against Kings**\
+`With LeBron out for the Lakers’ preseason finale, the team turned to Gabe Vincent. `\
+https://nytimes.com/athletic/6727892/2025/10/18/lakers-starting-lineup-kings-nba/
+
 **Military Plans to Fire Artillery Over California Freeway on Saturday**\
 `Rounds were fired on Friday across Interstate 5 as part of a test run for Saturday’s event at Camp Pendleton in Southern California.`\
 https://nytimes.com/2025/10/18/us/artillery-interstate-5-marines.html
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6726475/2025/10/18/barcelona-mailbag-flick-laporta/
 **Why Oliver Glasner vs Andoni Iraola is a meeting of the Premier League's great disruptors**\
 `Forget the obsession for control of Man City and Arsenal, it is Palace and Bournemouth who are redefining what Premier League football is`\
 https://nytimes.com/athletic/6725945/2025/10/18/palace-bournemouth-glasner-iraola-tactics-premier-league/
-
-**Liverpool look in better shape after the international break – can they recharge their season?**\
-`Liverpool arguably come out of the international in better shape than they entered it. Opportunity knocks as Manchester United visit Anfield`\
-https://nytimes.com/athletic/6720536/2025/10/18/arne-slot-liverpool-manchester-united/
 
