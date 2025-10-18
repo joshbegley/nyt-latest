@@ -1,3 +1,7 @@
+**How to watch Panthers vs. Sabres: Time, TV, streaming**\
+`Find out how to watch the Florida Panthers play the Buffalo Sabres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6728210/2025/10/18/panthers-vs-sabres-stream-how-to-watch-oct-18/
+
 **Why Milwaukee Brewers will consider trading All-Star pitcher Freddy Peralta after NLCS defeat**\
 `The Brewers could hang onto Peralta for one more season before free agency, but history suggests a trade isn't out of the question.`\
 https://nytimes.com/athletic/6727898/2025/10/18/milwaukee-brewers-eliminated/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6726748/2025/10/18/nfl-week-7-patriots-chargers-nfc
 **For Mac Jones, reunion with Patriots teammate Kendrick Bourne helps keep football fun**\
 `Jones is 3-1 as a fill-in starter for San Francisco, has had 142 receiving yards in each of his last two games.`\
 https://nytimes.com/athletic/6727238/2025/10/18/49ers-mac-jones-kendrick-bourne-connection/
-
-**How to watch Fulham vs. Arsenal for U.S. fans: Gunners atop the table to start the weekend**\
-`Here's how American audiences can tune in for Arsenal's latest EPL match.`\
-https://nytimes.com/athletic/6726670/2025/10/18/arsenal-fulham-usa-how-to-watch-stream/
 

@@ -1,3 +1,7 @@
+**How to watch Panthers vs. Sabres: Time, TV, streaming**\
+`Find out how to watch the Florida Panthers play the Buffalo Sabres, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6728210/2025/10/18/panthers-vs-sabres-stream-how-to-watch-oct-18/
+
 **Why Milwaukee Brewers will consider trading All-Star pitcher Freddy Peralta after NLCS defeat**\
 `The Brewers could hang onto Peralta for one more season before free agency, but history suggests a trade isn't out of the question.`\
 https://nytimes.com/athletic/6727898/2025/10/18/milwaukee-brewers-eliminated/
