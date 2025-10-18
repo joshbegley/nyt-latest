@@ -3,7 +3,7 @@
 https://nytimes.com/athletic/6727663/2025/10/17/skaggs-angels-wrongful-death-trial-first-week/
 
 **Louisville stuns No. 2 Miami: Cardinals pick off Carson Beck 4 times in upset**\
-`The Cardinals (5-1, 2-1 ACC) jumped out to a 14-0 lead with 5:09 to play in the opening quarter and never trailed.`\
+`The Cardinals jumped out to a 14-0 lead in the opening quarter and never trailed as Jeff Brohm outcoached Mario Cristobal.`\
 https://nytimes.com/athletic/6727631/2025/10/17/louisville-miami-score-result/
 
 **College Football Playoff 2025 projections: The most likely bracket with Week 8 underway**\

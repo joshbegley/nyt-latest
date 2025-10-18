@@ -22,7 +22,7 @@ https://nytimes.com/2025/10/17/crosswords/daily-puzzle-2025-10-18.html
 `Mariners' offense comes alive in the eighth inning, and Seattle is one win from its first appearance in the World Series.`\
 https://nytimes.com/athletic/6727437/2025/10/17/blue-jays-mariners-game-5-score-results-takeaways-playoffs-mlb/
 
-**Shohei Ohtani's incredible first inning: 3 strikeouts on mound, leadoff HR at plate**\
+**Shohei Ohtani's ridiculous night: 3 homers at plate, 10 strikeouts on mound**\
 `It was the first leadoff homer ever by a pitcher in baseball history, regular season or postseason.`\
 https://nytimes.com/athletic/6727536/2025/10/17/shohei-ohtani-dodgers-mlb-game-4-homer-strikeouts/
 

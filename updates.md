@@ -1,3 +1,7 @@
+**Louisville stuns No. 2 Miami: Cardinals pick off Carson Beck 4 times in upset**\
+`The Cardinals jumped out to a 14-0 lead in the opening quarter and never trailed as Jeff Brohm outcoached Mario Cristobal.`\
+https://nytimes.com/athletic/6727631/2025/10/17/louisville-miami-score-result/
+
 **Where things stand after first week of Skaggs wrongful death trial vs. Angels**\
 `Initial days have focused on credibility of long-time Angels employee. Mike Trout will be among the witnesses next week.`\
 https://nytimes.com/athletic/6727663/2025/10/17/skaggs-angels-wrongful-death-trial-first-week/
