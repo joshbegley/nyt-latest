@@ -1,3 +1,7 @@
+**Watch: Tetairoa McMillan quickly proving any doubters wrong**\
+`McMillan has wasted no time establishing himself as one of Bryce Young's favorite targets.`\
+https://nytimes.com/athletic/6728647/2025/10/18/watch-carolina-panthers-wr-tetairoa-mcmillan-quickly-proving-doubters-wrong/
+
 **James Franklin talks 'surreal' firing from Penn State on ESPN 'College GameDay' interview**\
 `"We’re just going to go win the national championship somewhere else now," Franklin said.`\
 https://nytimes.com/athletic/6728645/2025/10/18/james-franklin-interview-college-gameday-penn-state-firing/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/18/world/europe/prince-andrew-britain-epstein.html
 **Lithium Battery Fire Aboard Air China Flight Forces an Emergency Landing**\
 `The battery spontaneously combusted while stored in a luggage in the overhead bin. The airline said there were no injuries.`\
 https://nytimes.com/2025/10/18/world/asia/air-china-flight-lithium-battery-fire.html
-
-**The Briefing - Brighton 2 Newcastle 1: Lack of creativity strikes again, Woltemade flick all for nothing**\
-`Eddie Howe's side slumped to their first away defeat of the season, showcasing some familiar flaws`\
-https://nytimes.com/athletic/6728278/2025/10/18/brighton-2-newcastle-1-analysis/
 
