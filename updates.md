@@ -1,3 +1,11 @@
+**Postecoglou sacked by Nottingham Forest after 39 days in charge**\
+`The 60-year-old was only appointed on September 9 after former coach Nuno Espirito Santo departed the club.`\
+https://nytimes.com/athletic/6684498/2025/10/18/postecoglou-nottingham-forest-sacked/
+
+**The Briefing - Nottingham Forest 0 Chelsea 3: Guiu makes the difference, Acheampong's magic moment**\
+`A triple half-time substitution helped Enzo Maresca's side record an ultimately comfortable win`\
+https://nytimes.com/athletic/6728269/2025/10/18/nottingham-forest-0-chelsea-3-analysis/
+
 **The Briefing - Nottingham Forest 0 Chelsea 3: Guiu makes the difference, Acheampong's magic moment**\
 `A triple halftime substitution helped Chelsea stroll to an ultimately comfortable win at Nottingham Forest`\
 https://nytimes.com/athletic/6728269/2025/10/18/nottingham-forest-0-chelsea-3-analysis/

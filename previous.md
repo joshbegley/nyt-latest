@@ -1,5 +1,9 @@
+**Postecoglou sacked by Nottingham Forest after 39 days in charge**\
+`The 60-year-old was only appointed on September 9 after former coach Nuno Espirito Santo departed the club.`\
+https://nytimes.com/athletic/6684498/2025/10/18/postecoglou-nottingham-forest-sacked/
+
 **The Briefing - Nottingham Forest 0 Chelsea 3: Guiu makes the difference, Acheampong's magic moment**\
-`A triple halftime substitution helped Chelsea stroll to an ultimately comfortable win at Nottingham Forest`\
+`A triple half-time substitution helped Enzo Maresca's side record an ultimately comfortable win`\
 https://nytimes.com/athletic/6728269/2025/10/18/nottingham-forest-0-chelsea-3-analysis/
 
 **How to watch Oilers vs. Devils: Time, TV, streaming**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6727811/2025/10/18/ohtani-does-the-impossible-as-mi
 **Israeli Military Fires On Vehicle, Saying It Crossed Cease-Fire Lines**\
 `Gaza’s rescue service said at least nine people were killed in the strike in northern Gaza on Friday, a week after Israeli forces withdrew to agreed-upon lines.`\
 https://nytimes.com/2025/10/18/world/middleeast/israel-military-gaza-strike-cease-fire.html
-
-**Whirlwind trades, revenue rewards and early bedtimes: Quirks of the NFL in London**\
-`Greg Newsome II had never been to England. Now the Jaguars cornerback is preparing for his second game there in 15 days.`\
-https://nytimes.com/athletic/6728206/2025/10/18/nfl-london-greg-newsome/
 
