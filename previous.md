@@ -1,3 +1,7 @@
+**No. 1 Ohio State shuts out Wisconsin to add to Luke Fickell hot seat talk: Key takeaways**\
+`Ohio State dominated Wisconsin 34-0 behind QB Julian Sayin and its stingy defense, increasing the pressure on Fickell, a former Buckeye.`\
+https://nytimes.com/athletic/6729331/2025/10/18/ohio-state-wisconsin-score-result-luke-fickell/
+
 **No. 5 Ole Miss vs. No. 9 Georgia: Bulldogs' rally shakes up SEC race and more takeaways**\
 `Georgia (6-1, 4-1 SEC) trailed 35-26 in the second half but scored the final 17 points.`\
 https://nytimes.com/athletic/6729323/2025/10/18/ole-miss-vs-georgia-sec-showdown-results-takeaways/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/18/nyregion/dr-manuel-trujillo-dead.html
 **Max Scherzer's viral moment was a perfect illustration of intuitive decision making**\
 `From a leadership perspective, Blue Jays manager John Schneider's mound visit with pitcher Max Scherzer was revealing and fascinating. `\
 https://nytimes.com/athletic/6729262/2025/10/18/max-scherzer-john-schneider-viral-moment-blue-jays-alcs/
-
-**White House and Government Agencies Join Bluesky, Then Attack Democrats**\
-`The Health and Human Services and Homeland Security Departments were among the agencies posting messages that blamed Democrats for the federal shutdown.`\
-https://nytimes.com/2025/10/18/us/politics/trump-administration-bluesky.html
 

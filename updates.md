@@ -1,3 +1,7 @@
+**No. 1 Ohio State shuts out Wisconsin to add to Luke Fickell hot seat talk: Key takeaways**\
+`Ohio State dominated Wisconsin 34-0 behind QB Julian Sayin and its stingy defense, increasing the pressure on Fickell, a former Buckeye.`\
+https://nytimes.com/athletic/6729331/2025/10/18/ohio-state-wisconsin-score-result-luke-fickell/
+
 **No. 5 Ole Miss vs. No. 9 Georgia: Bulldogs' rally shakes up SEC race and more takeaways**\
 `Georgia (6-1, 4-1 SEC) trailed 35-26 in the second half but scored the final 17 points.`\
 https://nytimes.com/athletic/6729323/2025/10/18/ole-miss-vs-georgia-sec-showdown-results-takeaways/
