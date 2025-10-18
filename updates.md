@@ -1,3 +1,7 @@
+**Demonstrators Across the Country Set to Rally Against Trump**\
+`Protesters are expected to gather in more than 2,600 cities and towns to oppose presidential actions they see as authoritarian.`\
+https://nytimes.com/2025/10/18/us/protests-trump-no-kings.html
+
 **Yamal cleared to return for Barcelona after groin injury**\
 `Yamal has been included in the squad for the Saturday's match against Girona and returns before the season's first Clasico on October 26.`\
 https://nytimes.com/athletic/6631266/2025/10/18/lamine-yamal-injury-return/

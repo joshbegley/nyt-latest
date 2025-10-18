@@ -1,3 +1,7 @@
+**Demonstrators Across the Country Set to Rally Against Trump**\
+`Protesters are expected to gather in more than 2,600 cities and towns to oppose presidential actions they see as authoritarian.`\
+https://nytimes.com/2025/10/18/us/protests-trump-no-kings.html
+
 **Yamal cleared to return for Barcelona after groin injury**\
 `Yamal has been included in the squad for the Saturday's match against Girona and returns before the season's first Clasico on October 26.`\
 https://nytimes.com/athletic/6631266/2025/10/18/lamine-yamal-injury-return/
@@ -33,8 +37,4 @@ https://nytimes.com/video/opinion/100000010462036/the-trade-offs-of-the-souths-y
 **Why America Loves to Hate on the South**\
 `Tressie McMillan Cottom argues that our obsession with Southern culture isn’t just about charm or nostalgia. It’s about reassurance. We romanticize its music, verandas and magnolias, yet, despite the political drift in other states, insist that “at least we’re not the South.”`\
 https://nytimes.com/video/opinion/100000010462034/why-america-loves-to-hate-on-the-south.html
-
-**Head punches, game management and the chance of a no: Etiquette inside an NHL fight**\
-`When an NHLer asks an opponent to fight, he has to execute multiple calculations — and have a willing partner. Here's what goes into it.`\
-https://nytimes.com/athletic/6719808/2025/10/18/nhl-fighting-strategy-etiquette/
 
