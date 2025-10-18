@@ -1,3 +1,7 @@
+**Belgian Pro League game abandoned after fan throws cup at referee**\
+`The remaining minutes of the Belgian Pro League game will resume behind closed doors on Monday or Tuesday.`\
+https://nytimes.com/athletic/6728137/2025/10/18/standard-liege-royal-antwerp-referee-abandoned/
+
 **Blackhawks confused by Tyler Bertuzzi interference vs. Canucks: ‘Not that great of a call’**\
 `Bertuzzi had what he thought was a good goal, but then an interference call and an unsuccessful challenge by Chicago kept it from counting.
 `\

@@ -1,3 +1,7 @@
+**Belgian Pro League game abandoned after fan throws cup at referee**\
+`The remaining minutes of the Belgian Pro League game will resume behind closed doors on Monday or Tuesday.`\
+https://nytimes.com/athletic/6728137/2025/10/18/standard-liege-royal-antwerp-referee-abandoned/
+
 **Relief and Grief: What Jewish New Yorkers Feel After the Hostage Release**\
 `Two years of the war in Gaza have left many Jews in the city changed. Some have become newly politicized.`\
 https://nytimes.com/2025/10/18/nyregion/israel-gaza-ceasefire-jewish-new-yorkers.html
@@ -33,9 +37,4 @@ https://nytimes.com/2025/10/18/us/artillery-interstate-5-marines.html
 **The New York Times in Print for Saturday, Oct. 18, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/18/todays-new-york-times
-
-**Blackhawks confused by Tyler Bertuzzi interference vs. Canucks: ‘Not that great of a call’**\
-`Bertuzzi had what he thought was a good goal, but then an interference call and an unsuccessful challenge by Chicago kept it from counting.
-`\
-https://nytimes.com/athletic/6727869/2025/10/18/blackhawks-canucks-goalie-interference-tyler-bertuzzi/
 
