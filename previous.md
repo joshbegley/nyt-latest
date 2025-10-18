@@ -1,3 +1,7 @@
+**From NHL to UFC, brothers Jeff and Mike Malott fighting along parallel paths**\
+`“Anytime one of us has a big moment coming up, we're always each other's biggest fans," LA Kings winger Jeff Malott said of brother Mike.`\
+https://nytimes.com/athletic/6727283/2025/10/18/malott-brothers-ufc-kings-nhl/
+
 **The Trade-Offs of the South’s ‘Yellowstone’-ification**\
 `Jamelle Bouie says the South’s appeal isn’t just cheaper living; it’s the power to use wealth to control others.`\
 https://nytimes.com/video/opinion/100000010462036/the-trade-offs-of-the-souths-yellowstone-ification.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/18/opinion/trump-insurrection-act.html
 **How Southern Politics Shaped Trumpism**\
 `Three Southern Opinion columnists on the region and its outsize role in national politics.`\
 https://nytimes.com/2025/10/18/opinion/trump-north-south-politics.html
-
-**We Should Be Cracking Down on the Cartels, Not Chicago**\
-`The Trump administration risks squandering the progress it has made in securing the border.`\
-https://nytimes.com/2025/10/18/opinion/illegal-immigration-chicago-cartels.html
 
