@@ -1,4 +1,8 @@
 **Yamal cleared to return for Barcelona after groin injury**\
+`Yamal has been included in the squad for the Saturday's match against Girona and returns before the season's first Clasico on October 26.`\
+https://nytimes.com/athletic/6631266/2025/10/18/lamine-yamal-injury-return/
+
+**Yamal cleared to return for Barcelona after groin injury**\
 `Yamal has been included in the squad for the Saturday's match against Girona and comes before the season's first Clasico on October 26.`\
 https://nytimes.com/athletic/6631266/2025/10/18/lamine-yamal-injury-return/
 
