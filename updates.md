@@ -1,3 +1,15 @@
+**Large Protests Flood Streets to Denounce Trump**\
+`Known as No Kings Day, the demonstrations built off a similar event in June.`\
+https://nytimes.com/video/us/politics/100000010467262/no-kings-protests-trump-united-states.html
+
+**Cuomo Tries to Tie Mamdani to Muslim Leader’s Anti-Gay Stance**\
+`Andrew Cuomo, trailing in the New York City mayor’s race, sought to contrast his role in legalizing same-sex marriage with the views of some of Mr. Mamdani’s supporters.`\
+https://nytimes.com/2025/10/18/nyregion/cuomo-mamdani-imam.html
+
+**Social Media, Pleas From Allies and Prison Essays: How Santos Won His Freedom**\
+`On Friday evening, President Trump commuted the sentence of former Representative George Santos. “Good luck George, have a great life!” the president said.`\
+https://nytimes.com/2025/10/18/nyregion/george-santos-prison-trump.html
+
 **Verstappen takes commanding Austin F1 pole ahead of Norris, Piastri down in sixth**\
 `Max Verstappen beat Lando Norris to claim pole position for the 2025 F1 United States GP`\
 https://nytimes.com/athletic/6729304/2025/10/18/austin-f1-qualifying-result/
