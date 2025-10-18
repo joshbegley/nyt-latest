@@ -1,3 +1,19 @@
+**Veteran MLB catcher Martin Maldonado retires after 15-season career**\
+`Maldonado was known for his game-calling aptitude and a strong throwing arm that earned him the nickname “Machete.”`\
+https://nytimes.com/athletic/6728657/2025/10/18/martin-maldonado-retires-astros-padres/
+
+**Forest contact Mancini as new head coach option**\
+`Former Everton and Burnley manager Sean Dyche is another candidate for the job and has also held talks with Forest.`\
+https://nytimes.com/athletic/6728662/2025/10/18/forest-roberto-mancini-latest/
+
+**The Briefing - Man City 2 Everton 0: Can Erling Haaland break Jamie Vardy's record? Was Rodri missed?**\
+`Erling Haaland continued his stunning start to the season to take City to victory over Everton. The Athletic analyses the action`\
+https://nytimes.com/athletic/6728280/2025/10/18/manchester-city-2-everton-0-erling-haaland-goals-rodri/
+
+**Santos in His Own Words: Pleading for Mercy and Promising a Comeback**\
+`George Santos, the disgraced former congressman who was released from federal prison on Friday, has been a columnist for a Long Island paper, including from behind bars.`\
+https://nytimes.com/2025/10/18/nyregion/george-santos-newspaper-columns.html
+
 **Broadway Actors Reach Deal, but Musicians Still Threaten Strike**\
 `The Broadway League and Actors’ Equity Association reached a tentative agreement early Saturday. Union members must decide whether to ratify it.`\
 https://nytimes.com/2025/10/18/theater/broadway-actors-strike-agreement.html

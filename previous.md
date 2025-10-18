@@ -1,3 +1,19 @@
+**Veteran MLB catcher Martin Maldonado retires after 15-season career**\
+`Maldonado was known for his game-calling aptitude and a strong throwing arm that earned him the nickname “Machete.”`\
+https://nytimes.com/athletic/6728657/2025/10/18/martin-maldonado-retires-astros-padres/
+
+**Forest contact Mancini as new head coach option**\
+`Former Everton and Burnley manager Sean Dyche is another candidate for the job and has also held talks with Forest.`\
+https://nytimes.com/athletic/6728662/2025/10/18/forest-roberto-mancini-latest/
+
+**The Briefing - Man City 2 Everton 0: Can Erling Haaland break Jamie Vardy's record? Was Rodri missed?**\
+`Erling Haaland continued his stunning start to the season to take City to victory over Everton. The Athletic analyses the action`\
+https://nytimes.com/athletic/6728280/2025/10/18/manchester-city-2-everton-0-erling-haaland-goals-rodri/
+
+**Santos in His Own Words: Pleading for Mercy and Promising a Comeback**\
+`George Santos, the disgraced former congressman who was released from federal prison on Friday, has been a columnist for a Long Island paper, including from behind bars.`\
+https://nytimes.com/2025/10/18/nyregion/george-santos-newspaper-columns.html
+
 **Broadway Actors Reach Deal, but Musicians Still Threaten Strike**\
 `The Broadway League and Actors’ Equity Association reached a tentative agreement early Saturday. Union members must decide whether to ratify it.`\
 https://nytimes.com/2025/10/18/theater/broadway-actors-strike-agreement.html
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6727178/2025/10/18/nhl-early-season-takeaways-2025-
 **Turmeric Fried Eggs With Tamarind and Pickled Shallots**\
 `These fried eggs, as good enough to eat as they are to admire, get their wonderfully eccentric appearance from turmeric and chile. You can serve this easy, punchy breakfast as is, or with some hash browns if you’re having them for brunch.`\
 https://nytimes.com/video/dining/100000010366395/turmeric-fried-eggs-with-tamarind-and-pickled-shallots.html
-
-**Scenes From a Day of Mass Protests**\
-`With signs and chants, protesters take part in ‘No Kings’ rallies focused on what they see as overreach by the Trump administration.`\
-https://nytimes.com/2025/10/18/us/politics/no-kings-protests-trump.html
-
-**OpenAI Plans to Make ChatGPT More Humanlike. What Could Go Wrong?**\
-`A lot happened this week.`\
-https://nytimes.com/video/opinion/100000010466180/openai-plans-to-make-chatgpt-more-humanlike-what-could-go-wrong.html
-
-**Miami's loss to Louisville complicates its CFP and ACC title hopes**\
-`Miami's odds to make the College Football Playoff didn't fall drastically after Friday's loss, but its margin for error is shrinking.`\
-https://nytimes.com/athletic/6728480/2025/10/18/miami-louisville-college-football-playoff-odds-acc/
-
-**Canadiens' Kaiden Guhle out 4-6 weeks with lower-body injury**\
-`Guhle was injured midway through the third period of Thursday’s 3-2 OT win against the Predators.`\
-https://nytimes.com/athletic/6728603/2025/10/18/kaiden-guhle-canadiens-injury/
 
