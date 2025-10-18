@@ -1,3 +1,15 @@
+**Where things stand after first week of Skaggs wrongful death trial vs. Angels**\
+`Initial days have focused on credibility of long-time Angels employee. Mike Trout will be among the witnesses next week.`\
+https://nytimes.com/athletic/6727663/2025/10/17/skaggs-angels-wrongful-death-trial-first-week/
+
+**Louisville stuns No. 2 Miami: Cardinals pick off Carson Beck 4 times in upset**\
+`The Cardinals (5-1, 2-1 ACC) jumped out to a 14-0 lead with 5:09 to play in the opening quarter and never trailed.`\
+https://nytimes.com/athletic/6727631/2025/10/17/louisville-miami-score-result/
+
+**College Football Playoff 2025 projections: The most likely bracket with Week 8 underway**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/10/17/college-football-playoff-bracket-projections-odds/
+
 **U.S. Agency That Protects Nuclear Arsenal to Furlough Workers**\
 `The National Nuclear Security Administration said 1,400 workers would be affected by Monday.`\
 https://nytimes.com/2025/10/17/us/politics/nuclear-weapons-agency-furloughs-shutdown.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6727442/2025/10/17/george-springer-alcs-injury-knee
 **Federal Agents Make Arrests Outside Migrant Shelter in Times Square**\
 `The arrests, on the crowded sidewalks of Midtown Manhattan, rattled migrants residing at a hotel and shook the theater district, which is heavily trafficked by tourists.`\
 https://nytimes.com/2025/10/17/nyregion/ice-arrests-midtown-manhattan-shelter.html
-
-**Trump Hesitant to Give Ukraine Missiles, Pushing for Cease-Fire With Russia**\
-`President Volodymyr Zelensky of Ukraine pressed the Trump administration on Friday for long-range missiles to strike deep within Russia. Trump is proposing more negotiations between Zelensky and President Vladimir Putin in the coming weeks.`\
-https://nytimes.com/video/us/100000010466367/trump-hesitant-to-give-ukraine-missiles-pushing-for-cease-fire-with-russia.html
-
-**A bid to give Charlie Kirk an honorary degree from the Air Force Academy was withdrawn.**\
-`By John Ismay`\
-https://nytimes.com/live/2025/10/17/us/trump-news-zelensky/a-bid-to-give-charlie-kirk-an-honorary-degree-from-the-air-force-academy-was-withdrawn
-
-**Backing Off Tomahawk Suggestion, Trump Again Defers to Putin**\
-`At the White House, President Volodymyr Zelensky of Ukraine made the case for why a weapons sale would help end the war. Mr. Trump at first seemed receptive, then expressed reservations.`\
-https://nytimes.com/2025/10/17/us/politics/trump-zelensky-putin-tomahawks.html
 
