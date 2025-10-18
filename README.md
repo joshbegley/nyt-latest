@@ -1,3 +1,7 @@
+**Same Difference**\
+`Daniel Grinberg’s Sunday puzzle has everything you need, and nothing you don’t.`\
+https://nytimes.com/2025/10/18/crosswords/daily-puzzle-2025-10-19.html
+
 **Manuel Trujillo, Who Helped New Yorkers Heal After 9/11, Dies at 80**\
 `As Bellevue Hospital’s director of psychiatry, he guided rescue workers and grieving families through trauma when terrorists attacked in 2001.`\
 https://nytimes.com/2025/10/18/nyregion/dr-manuel-trujillo-dead.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6729136/2025/10/18/brad-marchand-rasmus-dahlin-helm
 **Santos’s Release Frustrates His Former Colleagues and Constituents**\
 `George Santos, the disgraced former Republican congressman, was freed from prison on Friday after President Trump commuted his sentence. On Long Island, in his former district, some people called the decision an outrage.`\
 https://nytimes.com/2025/10/18/nyregion/george-santos-released-reaction.html
-
-**Pat Fitzgerald makes first public appearance at Northwestern since his firing**\
-`Fitzgerald's firing followed an investigation into hazing allegations from some of his former players.`\
-https://nytimes.com/athletic/6729065/2025/10/18/pat-fitzgerald-northwestern-appearance/
 
