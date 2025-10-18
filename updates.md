@@ -43,6 +43,11 @@ https://nytimes.com/athletic/6727869/2025/10/18/blackhawks-canucks-goalie-interf
 `\
 https://nytimes.com/athletic/6727869/2025/10/18/blackhawks-canucks-goalie-interference-tyler-bertuzzi/
 
+**Blackhawks confused by Tyler Bertuzzi interference vs. Canucks: ‘Not that great of a call’**\
+`Bertuzzi had what he thought was a good goal, but then an interference call and an unsuccessful challenge by Chicago kept it from counting.
+`\
+https://nytimes.com/athletic/6727869/2025/10/18/blackhawks-canucks-goalie-interference-tyler-bertuzzi/
+
 **The New York Times in Print for Saturday, Oct. 18, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/18/todays-new-york-times
