@@ -1,3 +1,15 @@
+**Flick set for El Clasico touchline ban after red card in Barcelona win**\
+`Flick was sent off after applauding an officiating decision and is now set to be absent from the touchline at the Bernabeu next week.`\
+https://nytimes.com/athletic/6728793/2025/10/18/hansi-flick-barcelona-el-clasico-ban/
+
+**Sheet-Pan Feta With Corn and Shishito Peppers**\
+`It takes fewer than 10 minutes for the broiler to deliver a complete meal of molten, salty feta, sweet corn and smoky shishito peppers.`\
+https://nytimes.com/video/dining/100000010462292/sheet-pan-feta-with-corn-and-shishito-peppers.html
+
+**Watch: Tetairoa McMillan quickly proving any doubters wrong**\
+`McMillan has wasted no time establishing himself as one of Bryce Young's favorite targets.`\
+https://nytimes.com/athletic/6728647/2025/10/18/watch-carolina-panthers-wr-tetairoa-mcmillan-quickly-proving-doubters-wrong/
+
 **James Franklin talks 'surreal' firing from Penn State on ESPN 'College GameDay' interview**\
 `"We’re just going to go win the national championship somewhere else now," Franklin said.`\
 https://nytimes.com/athletic/6728645/2025/10/18/james-franklin-interview-college-gameday-penn-state-firing/
