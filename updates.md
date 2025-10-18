@@ -1,3 +1,7 @@
+**What Will Winter Bring? NOAA Outlook May Offer Some Clues.**\
+`Federal forecasters broke down the most likely scenarios around the United States this week.`\
+https://nytimes.com/2025/10/18/weather/noaa-winter-weather-forecast-us.html
+
 **Jimmy Wales Thinks the World Should Be More Like Wikipedia**\
 `Attacks on the site are piling up. Its co-founder says trust the process.`\
 https://nytimes.com/2025/10/18/magazine/jimmy-wales-interview.html
