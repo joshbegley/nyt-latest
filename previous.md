@@ -1,3 +1,7 @@
+**Manuel Trujillo, Who Helped New Yorkers Heal After 9/11, Dies at 80**\
+`As Bellevue Hospital’s director of psychiatry, he guided rescue workers and grieving families through trauma when terrorists attacked in 2001.`\
+https://nytimes.com/2025/10/18/nyregion/dr-manuel-trujillo-dead.html
+
 **Max Scherzer's viral moment was a perfect illustration of intuitive decision making**\
 `From a leadership perspective, Blue Jays manager John Schneider's mound visit with pitcher Max Scherzer was revealing and fascinating. `\
 https://nytimes.com/athletic/6729262/2025/10/18/max-scherzer-john-schneider-viral-moment-blue-jays-alcs/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/18/nyregion/george-santos-released-reaction.html
 **Pat Fitzgerald makes first public appearance at Northwestern since his firing**\
 `Fitzgerald's firing followed an investigation into hazing allegations from some of his former players.`\
 https://nytimes.com/athletic/6729065/2025/10/18/pat-fitzgerald-northwestern-appearance/
-
-**What Wikipedia’s Co-Founder Searches For on Wikipedia**\
-`On the latest edition of “The Interview,” Jimmy Wales, the co-founder of Wikipedia, spoke with host Lulu Garcia-Navarro about claims that Wikipedia is biased, building trust online and what his site can teach the world.`\
-https://nytimes.com/video/podcasts/100000010467091/what-wikipedias-co-founder-searches-for-on-wikipedia.html
 

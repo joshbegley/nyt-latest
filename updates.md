@@ -1,3 +1,7 @@
+**Manuel Trujillo, Who Helped New Yorkers Heal After 9/11, Dies at 80**\
+`As Bellevue Hospital’s director of psychiatry, he guided rescue workers and grieving families through trauma when terrorists attacked in 2001.`\
+https://nytimes.com/2025/10/18/nyregion/dr-manuel-trujillo-dead.html
+
 **Max Scherzer's viral moment was a perfect illustration of intuitive decision making**\
 `From a leadership perspective, Blue Jays manager John Schneider's mound visit with pitcher Max Scherzer was revealing and fascinating. `\
 https://nytimes.com/athletic/6729262/2025/10/18/max-scherzer-john-schneider-viral-moment-blue-jays-alcs/
