@@ -1,3 +1,7 @@
+**When a Hearing Aid Isn’t Enough**\
+`More older adults have turned to cochlear implants after Medicare expanded eligibility for the devices.`\
+https://nytimes.com/2025/10/18/health/cochlear-implants-older-people.html
+
 **Holger Rune injured in bizarre two minutes vs. Ugo Humbert at Nordic Open after ball kid interruption**\
 `The 22-year-old Dane hobbled off the court immediately after a ball kid's movement had cost Humbert a crucial point.`\
 https://nytimes.com/athletic/6728537/2025/10/18/holger-rune-injured-ugo-humbert-nordic-open-ballkid/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6728444/2025/10/18/oilers-vs-devils-stream-how-to-w
 **How to watch Islanders vs. Senators: Time, TV, streaming**\
 `Find out how to watch the New York Islanders play the Ottawa Senators, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6728442/2025/10/18/islanders-vs-senators-stream-how-to-watch-oct-18/
-
-**Chen Ning Yang, Nobel-Winning Physicist, Is Dead at 103**\
-`He and a colleague, Tsung-Dao Lee, created a sensation in 1956 by proposing that one of the four forces of nature might violate a law of physics.`\
-https://nytimes.com/2025/10/18/science/chen-ning-yang-dead.html
 

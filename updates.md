@@ -1,3 +1,11 @@
+**Holger Rune injured in bizarre two minutes vs. Ugo Humbert at Nordic Open after ball kid interruption**\
+`The 22-year-old Dane hobbled off the court immediately after a ball kid's movement had cost Humbert a crucial point.`\
+https://nytimes.com/athletic/6728537/2025/10/18/holger-rune-injured-ugo-humbert-nordic-open-ballkid/
+
+**Apathy proved worse than anger for Postecoglou – how have Forest got here so quickly?**\
+`Nottingham Forest have now removed two managers before the middle of October - the positivity of last season is a dim and distant memory `\
+https://nytimes.com/athletic/6728522/2025/10/18/nottingham-forest-ange-postecoglou-sacked/
+
 **Coast Guard Buys Two Private Jets for Noem, Costing $172 Million**\
 `Public documents show the Department of Homeland Security has contracted to purchase a pair of top-of-the-line Gulfstream jets for the secretary and other top officials.`\
 https://nytimes.com/2025/10/18/us/politics/kristi-noem-dhs-gulfstream.html
