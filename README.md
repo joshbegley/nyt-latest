@@ -1,3 +1,7 @@
+**Mariners-Blue Jays Game 5 takeaways: Homers from Cal Raleigh, Eugenio Suárez put Seattle in front**\
+`SEATTLE — For two games and seven innings in the American League Championship Series here, the Seattle Mariners could do almost nothing right against the Toronto Blue Jays.`\
+https://nytimes.com/athletic/6727437/2025/10/17/blue-jays-mariners-game-5-score-results-takeaways-playoffs-mlb/
+
 **Shohei Ohtani's incredible first inning: 3 strikeouts on mound, leadoff HR at plate**\
 `It was the first leadoff homer ever by a pitcher in baseball history, regular season or postseason.`\
 https://nytimes.com/athletic/6727536/2025/10/17/shohei-ohtani-dodgers-mlb-game-4-homer-strikeouts/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/17/us/politics/trump-prosecutor-fired-letitia-james.
 **Tennessee Officials Sue Over National Guard Presence in Memphis**\
 `Backed by a liberal-leaning legal nonprofit, seven Tennessee officials filed a lawsuit on Friday challenging the deployment of troops in Memphis.`\
 https://nytimes.com/2025/10/17/us/politics/memphis-national-guard-lawsuit.html
-
-**Wikipedia Volunteers Avert Tragedy by Taking Down Gunman at Conference**\
-`After the man walked onto the stage at the “Wiki World’s Fair” event and threatened to kill himself, witnesses said, two members of the audience jumped in to stop him.`\
-https://nytimes.com/2025/10/17/nyregion/wikipedia-conference-gunman.html
 
