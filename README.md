@@ -1,3 +1,11 @@
+**What can Ruben Amorim learn from Oliver Glasner about using 3-4-3 to beat Liverpool?**\
+`Crystal Palace surprised Arne Slot's side this season, but they approached the game differently from how United usually set up`\
+https://nytimes.com/athletic/6696330/2025/10/18/what-man-utds-amorim-can-learn-from-glasner-about-using-3-4-3-to-beat-liverpool/
+
+**The Ashes is devoid of natural pantomime villains. Could Sam Konstas step into the breach?**\
+`What always gave the Australia-England rivalry an extra edge were individuals who were thought of by the opposition as cartoonish baddies`\
+https://nytimes.com/athletic/6725527/2025/10/18/ashes-villains-konstas-broad-warner/
+
 **The non-League manager who doesn't want his players to drink alcohol. Does he have a point?**\
 `Matt Saunders made a plea for 'professional standards', but is that a fair demand from players who aren't professionals?`\
 https://nytimes.com/athletic/6726125/2025/10/18/viral-soccer-manager-england-drinking-culture/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/18/us/cincinnati-balcony-collapse.html
 **Are Elche the most exciting football team in Europe right now?**\
 `The newly promoted side are sitting seventh in La Liga thanks to a fast-paced and free-spirited style of play`\
 https://nytimes.com/athletic/6712638/2025/10/18/elche-exciting-team-la-liga/
-
-**Marcus Johansson snaps streak, but Wild fall in 'unacceptable' loss to Capitals: Takeaways**\
-`Johansson scored Minnesota's first even-strength goal in 10 periods, but the Wild were outshot 45-14 in a 5-1 loss to Washington.`\
-https://nytimes.com/athletic/6727735/2025/10/18/wild-capitals-takeaways-marcus-johansson/
-
-**The Spritzes and Carbonaras That Ate Italy**\
-`Tourism has turned some Italian streets into monochromatic eating zones. Some officials have banned the opening of new restaurants.`\
-https://nytimes.com/2025/10/18/world/europe/italy-tourism-restaurants.html
 
