@@ -1,3 +1,8 @@
+**Blackhawks confused by Tyler Bertuzzi interference vs. Canucks: ‘Not that great of a call’**\
+`Bertuzzi had what he thought was a good goal, but then an interference call and an unsuccessful challenge by Chicago kept it from counting.
+`\
+https://nytimes.com/athletic/6727869/2025/10/18/blackhawks-canucks-goalie-interference-tyler-bertuzzi/
+
 **UNC fumbles away chance for first ACC win under Bill Belichick**\
 `UNC came agonizingly close to a win that could have helped calm the waters surrounding a program that has elicited numerous controversies.`\
 https://nytimes.com/athletic/6727918/2025/10/18/unc-cal-score-result-bill-belichick/
