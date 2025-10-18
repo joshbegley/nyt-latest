@@ -1,3 +1,11 @@
+**Prosecutor Who Rejected Trump’s Pressure to Charge James Is Fired**\
+`The dismissal was the latest fallout from attempts by career Justice Department officials to impede the president’s wide-ranging campaign of retribution. The prosecutor’s deputy was also fired.`\
+https://nytimes.com/2025/10/17/us/politics/trump-prosecutor-fired-letitia-james.html
+
+**Tennessee Officials Sue Over National Guard Presence in Memphis**\
+`Backed by a liberal-leaning legal nonprofit, seven Tennessee officials filed a lawsuit on Friday challenging the deployment of troops in Memphis.`\
+https://nytimes.com/2025/10/17/us/politics/memphis-national-guard-lawsuit.html
+
 **Wikipedia Volunteers Avert Tragedy by Taking Down Gunman at Conference**\
 `After the man walked onto the stage at the “Wiki World’s Fair” event and threatened to kill himself, witnesses said, two members of the audience jumped in to stop him.`\
 https://nytimes.com/2025/10/17/nyregion/wikipedia-conference-gunman.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/17/us/politics/trump-arch-monument-dc-250th-annivers
 **Judge Orders Some Federal Agents to Wear Body Cameras in Chicago Area**\
 `The order comes as the Trump administration has carried out an immigration crackdown in the region.`\
 https://nytimes.com/2025/10/17/us/chicago-ice-body-cameras.html
-
-**Federal Prosecutors Downgrade Charge Against David Huerta to a Misdemeanor**\
-`Mr. Huerta, a prominent labor leader in California, was initially charged with a felony after his arrest during an immigration raid in Los Angeles this summer.`\
-https://nytimes.com/2025/10/17/us/david-huerta-immigration-raid-charges.html
-
-**Trump Sets Tariffs on Trucks and Buses**\
-`Imported light and heavy trucks will be charged 25 percent and buses 10 percent as of Nov. 1, but President Trump also extended tariff exemptions for auto parts.`\
-https://nytimes.com/2025/10/17/business/trump-tariffs-trucks-buses.html
 
