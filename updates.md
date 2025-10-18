@@ -1,3 +1,11 @@
+**What can Ruben Amorim learn from Oliver Glasner about using 3-4-3 to beat Liverpool?**\
+`Crystal Palace surprised Arne Slot's side this season, but they approached the game differently from how United usually set up`\
+https://nytimes.com/athletic/6696330/2025/10/18/what-man-utds-amorim-can-learn-from-glasner-about-using-3-4-3-to-beat-liverpool/
+
+**The Ashes is devoid of natural pantomime villains. Could Sam Konstas step into the breach?**\
+`What always gave the Australia-England rivalry an extra edge were individuals who were thought of by the opposition as cartoonish baddies`\
+https://nytimes.com/athletic/6725527/2025/10/18/ashes-villains-konstas-broad-warner/
+
 **The non-League manager who doesn't want his players to drink alcohol. Does he have a point?**\
 `Matt Saunders made a plea for 'professional standards', but is that a fair demand from players who aren't professionals?`\
 https://nytimes.com/athletic/6726125/2025/10/18/viral-soccer-manager-england-drinking-culture/
