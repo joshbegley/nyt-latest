@@ -1,3 +1,7 @@
+**Military Plans to Fire Artillery Over California Freeway on Saturday**\
+`Rounds were fired on Friday across Interstate 5 as part of a test run for Saturday’s event at Camp Pendleton in Southern California.`\
+https://nytimes.com/2025/10/18/us/artillery-interstate-5-marines.html
+
 **The New York Times in Print for Saturday, Oct. 18, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/18/todays-new-york-times
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6725945/2025/10/18/palace-bournemouth-glasner-iraol
 **Liverpool look in better shape after the international break – can they recharge their season?**\
 `Liverpool arguably come out of the international in better shape than they entered it. Opportunity knocks as Manchester United visit Anfield`\
 https://nytimes.com/athletic/6720536/2025/10/18/arne-slot-liverpool-manchester-united/
-
-**How are a small club from a fishing village about to win the Swedish title?**\
-`"If you look at the underlying numbers, Mjallby have been overperforming quite a lot."`\
-https://nytimes.com/athletic/6722277/2025/10/18/mjallby-swedish-title-against-odds-xg/
 
