@@ -1,4 +1,8 @@
-**Blackhawks confused by Tyler Bertuzzi interference call vs. Canucks**\
+**The New York Times in Print for Saturday, Oct. 18, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/18/todays-new-york-times
+
+**Blackhawks confused by Tyler Bertuzzi interference vs. Canucks: ‘Not that great of a call’**\
 `Bertuzzi had what he thought was a good goal, but then an interference call and an unsuccessful challenge by Chicago kept it from counting.
 `\
 https://nytimes.com/athletic/6727869/2025/10/18/blackhawks-canucks-goalie-interference-tyler-bertuzzi/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6720536/2025/10/18/arne-slot-liverpool-manchester-u
 **How are a small club from a fishing village about to win the Swedish title?**\
 `"If you look at the underlying numbers, Mjallby have been overperforming quite a lot."`\
 https://nytimes.com/athletic/6722277/2025/10/18/mjallby-swedish-title-against-odds-xg/
-
-**10 Injured in Balcony Collapse in Cincinnati**\
-`People gathered at a house near the University of Cincinnati tumbled to the ground from a third-floor balcony, the fire department said. One person was in critical condition.`\
-https://nytimes.com/2025/10/18/us/cincinnati-balcony-collapse.html
 
