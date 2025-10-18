@@ -1,3 +1,11 @@
+**Nebraska vs. Minnesota: Amid Matt Rhule, Penn State chatter, Gophers stomp Huskers**\
+`A flat performance Friday did nothing to enhance Rhule's candidacy at Penn State — or to inspire confidence in a Nebraska resurgence.`\
+https://nytimes.com/athletic/6727762/2025/10/17/nebraska-minnesota-score-result/
+
+**Building the Dodgers: 10 steps that turned L.A. disappointment into postseason dominance**\
+`How did the Dodgers go from an underwhelming regular season to a masterful playoffs and the NL pennant?  `\
+https://nytimes.com/athletic/6725956/2025/10/17/building-the-dodgers-10-steps-playoffs/
+
 **Shohei Ohtani’s 3-homer, 10-strikeout game powers Dodgers back to World Series**\
 `Ohtani stole the show with perhaps the greatest individual performance in MLB playoff history.`\
 https://nytimes.com/athletic/6727628/2025/10/17/dodgers-brewers-game-4-score-results-takeaways-playoffs-mlb/

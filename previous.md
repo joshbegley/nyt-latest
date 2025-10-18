@@ -1,3 +1,11 @@
+**Nebraska vs. Minnesota: Amid Matt Rhule, Penn State chatter, Gophers stomp Huskers**\
+`A flat performance Friday did nothing to enhance Rhule's candidacy at Penn State — or to inspire confidence in a Nebraska resurgence.`\
+https://nytimes.com/athletic/6727762/2025/10/17/nebraska-minnesota-score-result/
+
+**Building the Dodgers: 10 steps that turned L.A. disappointment into postseason dominance**\
+`How did the Dodgers go from an underwhelming regular season to a masterful playoffs and the NL pennant?  `\
+https://nytimes.com/athletic/6725956/2025/10/17/building-the-dodgers-10-steps-playoffs/
+
 **Shohei Ohtani’s 3-homer, 10-strikeout game powers Dodgers back to World Series**\
 `Ohtani stole the show with perhaps the greatest individual performance in MLB playoff history.`\
 https://nytimes.com/athletic/6727628/2025/10/17/dodgers-brewers-game-4-score-results-takeaways-playoffs-mlb/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6727437/2025/10/17/blue-jays-mariners-game-5-score-
 **Shohei Ohtani's ridiculous night: 3 homers at plate, 10 strikeouts on mound**\
 `It was the first leadoff homer ever by a pitcher in baseball history, regular season or postseason.`\
 https://nytimes.com/athletic/6727536/2025/10/17/shohei-ohtani-dodgers-mlb-game-4-homer-strikeouts/
-
-**What Anže Kopitar's injury means for Kings in captain's final NHL season**\
-`A rough start for the Kings has only become more challenging now with their captain and leader out of the lineup week-to-week.`\
-https://nytimes.com/athletic/6727512/2025/10/17/anze-kopitar-los-angeles-kings-injury/
-
-**Blue Jays' George Springer leaves ALCS Game 5 after pitch hits kneecap**\
-`According to the FS1 telecast, the carom off Springer’s knee was so violent that it registered on Statcast as a 55 mph batted ball.`\
-https://nytimes.com/athletic/6727442/2025/10/17/george-springer-alcs-injury-knee/
 
