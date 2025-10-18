@@ -1,3 +1,7 @@
+**Shohei Ohtani's ridiculous night: 3 homers at plate, 10 strikeouts on mound**\
+`It was the first leadoff homer ever by a pitcher in baseball history, regular season or postseason.`\
+https://nytimes.com/athletic/6727536/2025/10/17/shohei-ohtani-dodgers-mlb-game-4-homer-strikeouts/
+
 **Louisville stuns No. 2 Miami: Cardinals pick off Carson Beck 4 times in upset**\
 `The Cardinals jumped out to a 14-0 lead in the opening quarter and never trailed as Jeff Brohm outcoached Mario Cristobal.`\
 https://nytimes.com/athletic/6727631/2025/10/17/louisville-miami-score-result/
