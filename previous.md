@@ -1,3 +1,11 @@
+**Verstappen takes commanding Austin F1 pole ahead of Norris, Piastri down in sixth**\
+`Max Verstappen beat Lando Norris to claim pole position for the 2025 F1 United States GP`\
+https://nytimes.com/athletic/6729304/2025/10/18/austin-f1-qualifying-result/
+
+**Sabres thoughts: Newcomers Alex Lyon, Josh Doan fueling Buffalo's turnaround**\
+`Buffalo's rough start to the season felt like a distant memory Saturday as Doan scored two goals to propel the Sabres to a 3-0 win.`\
+https://nytimes.com/athletic/6729344/2025/10/18/sabres-panthers-alex-lyon-josh-doan/
+
 **Same Difference**\
 `Daniel Grinberg’s Sunday puzzle has everything you need, and nothing you don’t.`\
 https://nytimes.com/2025/10/18/crosswords/daily-puzzle-2025-10-19.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6729125/2025/10/18/six-kings-slam-jannik-sinner-car
 **Colts placing Charvarius Ward on IR after pregame concussion**\
 `Ward will miss Indianapolis' next four games against the Chargers, Titans, Steelers and Falcons.`\
 https://nytimes.com/athletic/6729209/2025/10/18/charvarius-ward-injured-reserve-concussion/
-
-**Brad Marchand steals, destroys Rasmus Dahlin's helmet**\
-`Marchand ripped Dahlin’s helmet off and took it with him to the penalty box.`\
-https://nytimes.com/athletic/6729136/2025/10/18/brad-marchand-rasmus-dahlin-helmet-panthers-sabres/
-
-**Santos’s Release Frustrates His Former Colleagues and Constituents**\
-`George Santos, the disgraced former Republican congressman, was freed from prison on Friday after President Trump commuted his sentence. On Long Island, in his former district, some people called the decision an outrage.`\
-https://nytimes.com/2025/10/18/nyregion/george-santos-released-reaction.html
 

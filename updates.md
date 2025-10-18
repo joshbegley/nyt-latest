@@ -1,3 +1,11 @@
+**Verstappen takes commanding Austin F1 pole ahead of Norris, Piastri down in sixth**\
+`Max Verstappen beat Lando Norris to claim pole position for the 2025 F1 United States GP`\
+https://nytimes.com/athletic/6729304/2025/10/18/austin-f1-qualifying-result/
+
+**Sabres thoughts: Newcomers Alex Lyon, Josh Doan fueling Buffalo's turnaround**\
+`Buffalo's rough start to the season felt like a distant memory Saturday as Doan scored two goals to propel the Sabres to a 3-0 win.`\
+https://nytimes.com/athletic/6729344/2025/10/18/sabres-panthers-alex-lyon-josh-doan/
+
 **Same Difference**\
 `Daniel Grinberg’s Sunday puzzle has everything you need, and nothing you don’t.`\
 https://nytimes.com/2025/10/18/crosswords/daily-puzzle-2025-10-19.html
