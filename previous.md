@@ -1,3 +1,8 @@
+**Blackhawks confused by Tyler Bertuzzi interference vs. Canucks: 'Not that great of a call'**\
+`Bertuzzi had what he thought was a good goal, but then an interference call and an unsuccessful challenge by Chicago kept it from counting.
+`\
+https://nytimes.com/athletic/6727869/2025/10/18/blackhawks-canucks-goalie-interference-tyler-bertuzzi/
+
 **What can Ruben Amorim learn from Oliver Glasner about using 3-4-3 to beat Liverpool?**\
 `Crystal Palace surprised Arne Slot's side this season, but they approached the game differently from how United usually set up`\
 https://nytimes.com/athletic/6696330/2025/10/18/what-man-utds-amorim-can-learn-from-glasner-about-using-3-4-3-to-beat-liverpool/
@@ -33,8 +38,4 @@ https://nytimes.com/athletic/6722277/2025/10/18/mjallby-swedish-title-against-od
 **10 Injured in Balcony Collapse in Cincinnati**\
 `People gathered at a house near the University of Cincinnati tumbled to the ground from a third-floor balcony, the fire department said. One person was in critical condition.`\
 https://nytimes.com/2025/10/18/us/cincinnati-balcony-collapse.html
-
-**Are Elche the most exciting football team in Europe right now?**\
-`The newly promoted side are sitting seventh in La Liga thanks to a fast-paced and free-spirited style of play`\
-https://nytimes.com/athletic/6712638/2025/10/18/elche-exciting-team-la-liga/
 

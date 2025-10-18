@@ -1,4 +1,4 @@
-**Blackhawks confused by Tyler Bertuzzi interference vs. Canucks: 'Not that great of a call'**\
+**Blackhawks confused by Tyler Bertuzzi interference call vs. Canucks**\
 `Bertuzzi had what he thought was a good goal, but then an interference call and an unsuccessful challenge by Chicago kept it from counting.
 `\
 https://nytimes.com/athletic/6727869/2025/10/18/blackhawks-canucks-goalie-interference-tyler-bertuzzi/
