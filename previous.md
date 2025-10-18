@@ -1,3 +1,11 @@
+**Why Milwaukee Brewers will consider trading All-Star pitcher Freddy Peralta after NLCS defeat**\
+`The Brewers could hang onto Peralta for one more season before free agency, but history suggests a trade isn't out of the question.`\
+https://nytimes.com/athletic/6727898/2025/10/18/milwaukee-brewers-eliminated/
+
+**Down Time**\
+`A lazy day during which we do absolutely nothing sounds heavenly, but how much unstructured time can we comfortably abide?`\
+https://nytimes.com/2025/10/18/briefing/down-time.html
+
 **Two years after Adam Johnson's death, Matt Petgrave returns to hockey in central Indiana**\
 `Amid the hatred, the threats and his own mental anguish, Petgrave just wanted a place to play hockey again. In central Indiana, he found it.`\
 https://nytimes.com/athletic/6727515/2025/10/18/adam-johnson-death-matt-petgrave-indy-fuel-echl/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6727238/2025/10/18/49ers-mac-jones-kendrick-bourne-
 **How to watch Fulham vs. Arsenal for U.S. fans: Gunners atop the table to start the weekend**\
 `Here's how American audiences can tune in for Arsenal's latest EPL match.`\
 https://nytimes.com/athletic/6726670/2025/10/18/arsenal-fulham-usa-how-to-watch-stream/
-
-**Could the Mets land an ace with Tarik Skubal potentially on the trade block?**\
-`Outside of Nolan McLean, the Mets are probably willing to consider dealing any player in hypothetical trade talks.`\
-https://nytimes.com/athletic/6727534/2025/10/18/mets-tigers-tarik-skubal-trade-chances/
-
-**Behind the scenes with the Brantford Bulldogs: The Hymans, a future NHL coach and a new home**\
-`Purchased by the Hyman family in January 2025, the Bulldogs are chasing a championship and putting down roots in Brantford. `\
-https://nytimes.com/athletic/6700728/2025/10/18/ohl-brantford-bulldogs-hyman-family/
 

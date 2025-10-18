@@ -1,3 +1,11 @@
+**Why Milwaukee Brewers will consider trading All-Star pitcher Freddy Peralta after NLCS defeat**\
+`The Brewers could hang onto Peralta for one more season before free agency, but history suggests a trade isn't out of the question.`\
+https://nytimes.com/athletic/6727898/2025/10/18/milwaukee-brewers-eliminated/
+
+**Down Time**\
+`A lazy day during which we do absolutely nothing sounds heavenly, but how much unstructured time can we comfortably abide?`\
+https://nytimes.com/2025/10/18/briefing/down-time.html
+
 **Two years after Adam Johnson's death, Matt Petgrave returns to hockey in central Indiana**\
 `Amid the hatred, the threats and his own mental anguish, Petgrave just wanted a place to play hockey again. In central Indiana, he found it.`\
 https://nytimes.com/athletic/6727515/2025/10/18/adam-johnson-death-matt-petgrave-indy-fuel-echl/
