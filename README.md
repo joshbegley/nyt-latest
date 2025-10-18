@@ -1,5 +1,5 @@
 **Shohei Ohtani's incredible first inning: 3 strikeouts on mound, leadoff HR at plate**\
-`It was the first leadoff hitter ever by a pitcher in baseball history, regular season or postseason.`\
+`It was the first leadoff homer ever by a pitcher in baseball history, regular season or postseason.`\
 https://nytimes.com/athletic/6727536/2025/10/17/shohei-ohtani-dodgers-mlb-game-4-homer-strikeouts/
 
 **What Anže Kopitar's injury means for Kings in captain's final NHL season**\
