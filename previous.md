@@ -1,40 +1,40 @@
-**What Will Winter Bring? NOAA Outlook May Offer Some Clues.**\
-`Federal forecasters broke down the most likely scenarios around the United States this week.`\
-https://nytimes.com/2025/10/18/weather/noaa-winter-weather-forecast-us.html
+**Two years after Adam Johnson's death, Matt Petgrave returns to hockey in central Indiana**\
+`Amid the hatred, the threats and his own mental anguish, Petgrave just wanted a place to play hockey again. In central Indiana, he found it.`\
+https://nytimes.com/athletic/6727515/2025/10/18/adam-johnson-death-matt-petgrave-indy-fuel-echl/
 
-**Jimmy Wales Thinks the World Should Be More Like Wikipedia**\
-`Attacks on the site are piling up. Its co-founder says trust the process.`\
-https://nytimes.com/2025/10/18/magazine/jimmy-wales-interview.html
+**Blackhawks disappointed not to finish off Canucks in shootout loss: Observations**\
+`The Blackhawks were nearly perfect in the first 20 minutes. Then came the rest.`\
+https://nytimes.com/athletic/6727435/2025/10/18/blackhawks-canucks-observations/
 
-**Five must-read moments this week from the mayor’s race**\
-`With early voting a week away, Andrew Cuomo acknowledged that in a three-way race, he loses.`\
-https://nytimes.com/card/2025/10/18/nyregion/newyorktoday/five-must-read-moments-this-week-from-the-mayors-race
+**Etsy witches? Rally shoes? Long-suffering Mariners fans find help anywhere they can**\
+`For a dedicated fan base starved for success after so many years of falling short, this Mariners’ run has taken on a greater meaning.`\
+https://nytimes.com/athletic/6727207/2025/10/18/mariners-2025-mlb-postseason-etsy-witches-rally-shoes/
 
-**What JD Vance, Kash Patel and a Throw Pillow Have in Common**\
-`Trump’s flatterers are sacrificing more than just their dignity.`\
-https://nytimes.com/2025/10/18/opinion/trump-vance-patel-bondi.html
+**Vikings-Eagles predictions: What we're watching in critical early-season NFC matchup**\
+`The Vikings host the struggling Eagles on Sunday. Can Minnesota get it done coming off its bye, or will Philly get back to its winning ways?`\
+https://nytimes.com/athletic/6727107/2025/10/18/vikings-eagles-predictions-preview-week-7/
 
-**Police Break Up Lego Theft Ring, Recovering Hundreds of Beheaded Figurines**\
-`Officials said they had discovered tens of thousands of Lego pieces at a California home and arrested a man who trafficked in the stolen collectibles.`\
-https://nytimes.com/2025/10/18/us/lego-theft-california-arrest.html
+**F1 roundtable: Will the Apple TV deal harm casual fan interest in America?**\
+`F1 fans in the United States want to know what the sport's new TV deal means for their access. Our experts discuss this news`\
+https://nytimes.com/athletic/6727204/2025/10/18/f1-apple-tv-roundtable/
 
-**How Ace Frehley Made Himself a Rock Superhero**\
-`The lead guitarist of Kiss knew very well that musicianship alone wouldn’t take him to the top.`\
-https://nytimes.com/2025/10/18/style/ace-frehley-kiss-drummer-dead.html
+**NFL Week 7 roundtable: Patriots’ resurgence, Chargers test Colts, NFC North in flux**\
+`Can the Patriots win the AFC East? Will Colts-Chargers be Sunday's best game? Our writers discuss.`\
+https://nytimes.com/athletic/6726748/2025/10/18/nfl-week-7-patriots-chargers-nfc-north/
 
-**White House’s Aggressive Tactics Are Complicating Its Education Agenda**\
-`The Trump administration alienated many elite schools in its latest effort to overhaul higher education, so it looked elsewhere for allies.`\
-https://nytimes.com/2025/10/18/us/politics/white-houses-aggressive-tactics-are-complicating-its-education-agenda.html
+**For Mac Jones, reunion with Patriots teammate Kendrick Bourne helps keep football fun**\
+`Jones is 3-1 as a fill-in starter for San Francisco, has had 142 receiving yards in each of his last two games.`\
+https://nytimes.com/athletic/6727238/2025/10/18/49ers-mac-jones-kendrick-bourne-connection/
 
-**There Are Lessons From the Nixon Era in Trump’s Attempts to Freeze Spending**\
-`Half a century ago, Congress protected its power of the purse, and conservatives balked at letting presidents disobey lawmakers’ instructions.`\
-https://nytimes.com/2025/10/18/us/politics/trump-supreme-court-impoundment.html
+**How to watch Fulham vs. Arsenal for U.S. fans: Gunners atop the table to start the weekend**\
+`Here's how American audiences can tune in for Arsenal's latest EPL match.`\
+https://nytimes.com/athletic/6726670/2025/10/18/arsenal-fulham-usa-how-to-watch-stream/
 
-**The Shutdown is Stretching On. Trump Doesn’t Seem to Mind.**\
-`As the shutdown nears a fourth week, President Trump has pushed his political opponents to further dig in.`\
-https://nytimes.com/2025/10/18/us/politics/trump-democrats-shutdown-deal.html
+**Could the Mets land an ace with Tarik Skubal potentially on the trade block?**\
+`Outside of Nolan McLean, the Mets are probably willing to consider dealing any player in hypothetical trade talks.`\
+https://nytimes.com/athletic/6727534/2025/10/18/mets-tigers-tarik-skubal-trade-chances/
 
-**What Powers Does the Border Patrol Have Across the Country?**\
-`The Trump administration is increasingly relying on the agency for immigration enforcement within the U.S.`\
-https://nytimes.com/2025/10/18/us/politics/border-patrol-immigration-explainer.html
+**Behind the scenes with the Brantford Bulldogs: The Hymans, a future NHL coach and a new home**\
+`Purchased by the Hyman family in January 2025, the Bulldogs are chasing a championship and putting down roots in Brantford. `\
+https://nytimes.com/athletic/6700728/2025/10/18/ohl-brantford-bulldogs-hyman-family/
 
