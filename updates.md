@@ -1,3 +1,15 @@
+**Wikipedia’s Co-Founder Answers Elon Musk’s Attacks**\
+`Elon Musk has recently targeted Wikipedia, calling the platform “Wokepedia” and vowing to launch a competing site.`\
+https://nytimes.com/video/podcasts/100000010467039/wikipedias-co-founder-answers-elon-musks-attacks.html
+
+**The Briefing - Fulham 0 Arsenal 1: How important will Trossard's goal prove? Did Arteta read riot act? Was Odegaard missed?**\
+`Leandro Trossard scored a crucial goal to earn Arsenal all the points against Fulham - The Athletic analyses the action `\
+https://nytimes.com/athletic/6728281/2025/10/18/fulham-0-arsenal-1-how-important-will-trossards-goal-prove-did-arteta-read-riot-act-was-odegaard-missed/
+
+**Giants closing in on hiring Tennessee coach Tony Vitello as next manager: Sources**\
+`Vitello's hiring would be a nearly unprecedented leap for someone with no professional coaching experience.`\
+https://nytimes.com/athletic/6728952/2025/10/18/sf-giants-tony-vitello-manager/
+
 **Case Against Bolton Raises Questions Over Justice Dept.’s Use of Espionage Act**\
 `The allegations in his case are a pointed example of when classified information tumbles into nonsecure places, either by accident or from recklessness by someone trusted to keep it safe.`\
 https://nytimes.com/2025/10/18/us/bolton-indictment-justice-dept-espionage-act.html

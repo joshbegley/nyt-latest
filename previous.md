@@ -1,3 +1,15 @@
+**Wikipedia’s Co-Founder Answers Elon Musk’s Attacks**\
+`Elon Musk has recently targeted Wikipedia, calling the platform “Wokepedia” and vowing to launch a competing site.`\
+https://nytimes.com/video/podcasts/100000010467039/wikipedias-co-founder-answers-elon-musks-attacks.html
+
+**The Briefing - Fulham 0 Arsenal 1: How important will Trossard's goal prove? Did Arteta read riot act? Was Odegaard missed?**\
+`Leandro Trossard scored a crucial goal to earn Arsenal all the points against Fulham - The Athletic analyses the action `\
+https://nytimes.com/athletic/6728281/2025/10/18/fulham-0-arsenal-1-how-important-will-trossards-goal-prove-did-arteta-read-riot-act-was-odegaard-missed/
+
+**Giants closing in on hiring Tennessee coach Tony Vitello as next manager: Sources**\
+`Vitello's hiring would be a nearly unprecedented leap for someone with no professional coaching experience.`\
+https://nytimes.com/athletic/6728952/2025/10/18/sf-giants-tony-vitello-manager/
+
 **Case Against Bolton Raises Questions Over Justice Dept.’s Use of Espionage Act**\
 `The allegations in his case are a pointed example of when classified information tumbles into nonsecure places, either by accident or from recklessness by someone trusted to keep it safe.`\
 https://nytimes.com/2025/10/18/us/bolton-indictment-justice-dept-espionage-act.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6728922/2025/10/18/brighton-danny-welbeck-fabian-hu
 **What the Lakers' final preseason game revealed about their Week 1 rotation**\
 `Friday night's dress rehearsal provided insight into who will likely be in Los Angeles' rotation in the first week of the season.`\
 https://nytimes.com/athletic/6728606/2025/10/18/lakers-rotation-nba-season/
-
-**Alison Rose, The New Yorker’s Femme Fatale, Dies at 81**\
-`She started as the magazine’s glamorous receptionist and became one of its more singular writers. In one of her last articles, she memorialized her time (and lovers) there.`\
-https://nytimes.com/2025/10/18/books/alison-rose-dead.html
-
-**Three arrested after England flag pitch invasion at Salford in alleged protest against Neville**\
-`Police confirmed three men had been arrested on suspicion of entering the field of play during Salford's match against Oldham.`\
-https://nytimes.com/athletic/6728448/2025/10/18/salford-fans-gary-neville-arrested/
-
-**Restaurant Review: I Cavallini**\
-`Ligaya Mishan, one of The New York Times’s chief restaurant critics, visits I Cavallini, an Italian restaurant in Brooklyn that draws a line of reverent diners every night.`\
-https://nytimes.com/video/dining/100000010462290/restaurant-review-i-cavallini.html
 
