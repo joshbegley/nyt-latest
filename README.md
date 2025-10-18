@@ -1,3 +1,7 @@
+**Lady Gaga is Owning the Darkness in the ‘Mayhem Ball’**\
+`Wesley and pop music editor Caryn Ganz didn’t like Lady Gaga’s new album. But they loved “Mayhem” on tour. Together, they reflect on Lady Gaga’s final show at Madison Square Garden.`\
+https://nytimes.com/video/podcasts/100000010467172/lady-gaga-is-owning-the-darkness-in-the-mayhem-ball.html
+
 **Jannik Sinner beats Carlos Alcaraz to win $6 million Six Kings Slam prize money**\
 `All six players at the event earned $1.5 million for participating, with significant appearance fees paid to some players.`\
 https://nytimes.com/athletic/6729125/2025/10/18/six-kings-slam-jannik-sinner-carlos-alcaraz-prize-money/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6728992/2025/10/18/clemson-cade-klubnik-christopher
 **Diego Pavia shines as No. 17 Vanderbilt takes down No. 10 LSU**\
 `Pavia and coach Clark Lea’s team has put itself in position for a first-ever opportunity: competing for a national championship.`\
 https://nytimes.com/athletic/6729107/2025/10/18/vanderbilt-lsu-score-highlights-diego-pavia/
-
-**How to watch Penguins vs. Sharks: Time, TV, streaming**\
-`Find out how to watch the Pittsburgh Penguins play the San Jose Sharks, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6729123/2025/10/18/penguins-vs-sharks-stream-how-to-watch-oct-18/
 

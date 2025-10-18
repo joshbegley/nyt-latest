@@ -1,3 +1,15 @@
+**Jannik Sinner beats Carlos Alcaraz to win $6 million Six Kings Slam prize money**\
+`All six players at the event earned $1.5 million for participating, with significant appearance fees paid to some players.`\
+https://nytimes.com/athletic/6729125/2025/10/18/six-kings-slam-jannik-sinner-carlos-alcaraz-prize-money/
+
+**Colts placing Charvarius Ward on IR after pregame concussion**\
+`Ward will miss Indianapolis' next four games against the Chargers, Titans, Steelers and Falcons.`\
+https://nytimes.com/athletic/6729209/2025/10/18/charvarius-ward-injured-reserve-concussion/
+
+**Brad Marchand steals, destroys Rasmus Dahlin's helmet**\
+`Marchand ripped Dahlin’s helmet off and took it with him to the penalty box.`\
+https://nytimes.com/athletic/6729136/2025/10/18/brad-marchand-rasmus-dahlin-helmet-panthers-sabres/
+
 **Santos’s Release Frustrates His Former Colleagues and Constituents**\
 `George Santos, the disgraced former Republican congressman, was freed from prison on Friday after President Trump commuted his sentence. On Long Island, in his former district, some people called the decision an outrage.`\
 https://nytimes.com/2025/10/18/nyregion/george-santos-released-reaction.html
