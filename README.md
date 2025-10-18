@@ -1,3 +1,7 @@
+**Brad Marchand steals, destroys Rasmus Dahlin's helmet**\
+`Marchand ripped Dahlin’s helmet off and took it with him to the penalty box.`\
+https://nytimes.com/athletic/6729136/2025/10/18/brad-marchand-rasmus-dahlin-helmet-panthers-sabres/
+
 **Santos’s Release Frustrates His Former Colleagues and Constituents**\
 `George Santos, the disgraced former Republican congressman, was freed from prison on Friday after President Trump commuted his sentence. On Long Island, in his former district, some people called the decision an outrage.`\
 https://nytimes.com/2025/10/18/nyregion/george-santos-released-reaction.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6729121/2025/10/18/flames-vs-golden-knights-stream-
 **How to watch Bruins vs. Avalanche: Time, TV, streaming**\
 `Find out how to watch the Boston Bruins play the Colorado Avalanche, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6729119/2025/10/18/bruins-vs-avalanche-stream-how-to-watch-oct-18/
-
-**How to watch Hurricanes vs. Kings: Time, TV, streaming**\
-`Find out how to watch the Carolina Hurricanes play the Los Angeles Kings, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6729117/2025/10/18/hurricanes-vs-kings-stream-how-to-watch-oct-18/
 

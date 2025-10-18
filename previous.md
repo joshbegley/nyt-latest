@@ -1,3 +1,7 @@
+**Santos’s Release Frustrates His Former Colleagues and Constituents**\
+`George Santos, the disgraced former Republican congressman, was freed from prison on Friday after President Trump commuted his sentence. On Long Island, in his former district, some people called the decision an outrage.`\
+https://nytimes.com/2025/10/18/nyregion/george-santos-released-reaction.html
+
 **Pat Fitzgerald makes first public appearance at Northwestern since his firing**\
 `Fitzgerald's firing followed an investigation into hazing allegations from some of his former players.`\
 https://nytimes.com/athletic/6729065/2025/10/18/pat-fitzgerald-northwestern-appearance/
@@ -11,7 +15,7 @@ https://nytimes.com/video/podcasts/100000010467091/what-wikipedias-co-founder-se
 https://nytimes.com/athletic/6728986/2025/10/18/michigan-vs-washington-takeways-defense/
 
 **Clemson QB Cade Klubnik out vs. SMU; Christopher Vizzina starts**\
-`Klubnik went through warmups with his ankle taped, but during the Tigers’ team walk into the stadium, he could be seen walking with a limp.`\
+`Klubnik went through warmups with his ankle taped, but during the Tigers’ team walk into the stadium, he walked with a limp.`\
 https://nytimes.com/athletic/6728992/2025/10/18/clemson-cade-klubnik-christopher-vizzina/
 
 **Diego Pavia shines as No. 17 Vanderbilt takes down No. 10 LSU**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6729119/2025/10/18/bruins-vs-avalanche-stream-how-t
 **How to watch Hurricanes vs. Kings: Time, TV, streaming**\
 `Find out how to watch the Carolina Hurricanes play the Los Angeles Kings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6729117/2025/10/18/hurricanes-vs-kings-stream-how-to-watch-oct-18/
-
-**Sea Otters Are Stealing Surfboards in California. Again.**\
-`Two years after Otter 841 menaced wave riders near Santa Cruz, there have been new encounters between the furry marine mammals and surfers.`\
-https://nytimes.com/2025/10/18/science/sea-otters-surfboard-santa-cruz.html
 

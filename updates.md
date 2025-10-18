@@ -1,3 +1,11 @@
+**Santos’s Release Frustrates His Former Colleagues and Constituents**\
+`George Santos, the disgraced former Republican congressman, was freed from prison on Friday after President Trump commuted his sentence. On Long Island, in his former district, some people called the decision an outrage.`\
+https://nytimes.com/2025/10/18/nyregion/george-santos-released-reaction.html
+
+**Clemson QB Cade Klubnik out vs. SMU; Christopher Vizzina starts**\
+`Klubnik went through warmups with his ankle taped, but during the Tigers’ team walk into the stadium, he walked with a limp.`\
+https://nytimes.com/athletic/6728992/2025/10/18/clemson-cade-klubnik-christopher-vizzina/
+
 **Pat Fitzgerald makes first public appearance at Northwestern since his firing**\
 `Fitzgerald's firing followed an investigation into hazing allegations from some of his former players.`\
 https://nytimes.com/athletic/6729065/2025/10/18/pat-fitzgerald-northwestern-appearance/
