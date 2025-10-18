@@ -1,3 +1,7 @@
+**Diego Pavia shines as No. 17 Vanderbilt takes down No. 10 LSU**\
+`Pavia and coach Clark Lea’s team has put itself in position for a first-ever opportunity: competing for a national championship.`\
+https://nytimes.com/athletic/6729107/2025/10/18/vanderbilt-lsu-score-highlights-diego-pavia/
+
 **How to watch Penguins vs. Sharks: Time, TV, streaming**\
 `Find out how to watch the Pittsburgh Penguins play the San Jose Sharks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6729123/2025/10/18/penguins-vs-sharks-stream-how-to-watch-oct-18/
