@@ -1,3 +1,11 @@
+**Max Scherzer's viral moment was a perfect illustration of intuitive decision making**\
+`From a leadership perspective, Blue Jays manager John Schneider's mound visit with pitcher Max Scherzer was revealing and fascinating. `\
+https://nytimes.com/athletic/6729262/2025/10/18/max-scherzer-john-schneider-viral-moment-blue-jays-alcs/
+
+**White House and Government Agencies Join Bluesky, Then Attack Democrats**\
+`The Health and Human Services and Homeland Security Departments were among the agencies posting messages that blamed Democrats for the federal shutdown.`\
+https://nytimes.com/2025/10/18/us/politics/trump-administration-bluesky.html
+
 **College Football Playoff 2025 projections: The most likely bracket with Week 8 underway**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/10/18/college-football-playoff-bracket-projections-odds/
