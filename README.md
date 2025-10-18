@@ -1,3 +1,7 @@
+**Broadway Actors Reach Deal, but Musicians Still Threaten Strike**\
+`The Broadway League and Actors’ Equity Association reached a tentative agreement early Saturday. Union members must decide whether to ratify it.`\
+https://nytimes.com/2025/10/18/theater/broadway-actors-strike-agreement.html
+
 **WATCH: The most ruthless NFL play of the season, explained**\
 `The Seahawks pressured Lawrence more than any other quarterback this season.`\
 https://nytimes.com/athletic/6728615/2025/10/18/seahawks-jaguars-trevor-lawrence-film-breakdown-analysis/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6728480/2025/10/18/miami-louisville-college-footbal
 **Canadiens' Kaiden Guhle out 4-6 weeks with lower-body injury**\
 `Guhle was injured midway through the third period of Thursday’s 3-2 OT win against the Predators.`\
 https://nytimes.com/athletic/6728603/2025/10/18/kaiden-guhle-canadiens-injury/
-
-**Should the Commanders trade for a receiver? Will they be buyers or sellers? Mailbag**\
-`Is it too early to judge Washington's past two draft classes? Is it time to take a hard look at the Commanders' defensive coordinator?`\
-https://nytimes.com/athletic/6728402/2025/10/18/washington-commanders-trade-deadline-buyers-sellers/
 

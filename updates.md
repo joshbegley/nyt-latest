@@ -1,3 +1,7 @@
+**WATCH: The most ruthless NFL play of the season, explained**\
+`The Seahawks pressured Lawrence more than any other quarterback this season.`\
+https://nytimes.com/athletic/6728615/2025/10/18/seahawks-jaguars-trevor-lawrence-film-breakdown-analysis/
+
 **Nebraska proves it's still not ready for prime time in sobering loss at Minnesota**\
 `Minnesota exposed Nebraska as still vulnerable to the type of effort that so frustrated fans of the Huskers over the past decade.`\
 https://nytimes.com/athletic/6728619/2025/10/18/nebraska-football-minnesota-loss-matt-rhule/
