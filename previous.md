@@ -1,3 +1,7 @@
+**Ukraine Braces for New Talks Without the Leverage of New Missiles**\
+`President Trump backed off selling Tomahawk missiles to Kyiv, opting instead for talks with Russia. Still, Ukraine’s negotiating position has strengthened since the summer.`\
+https://nytimes.com/2025/10/18/world/europe/ukraine-trump-talks.html
+
 **How to watch Panthers vs. Sabres: Time, TV, streaming**\
 `Find out how to watch the Florida Panthers play the Buffalo Sabres, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6728210/2025/10/18/panthers-vs-sabres-stream-how-to-watch-oct-18/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6727204/2025/10/18/f1-apple-tv-roundtable/
 **NFL Week 7 roundtable: Patriots’ resurgence, Chargers test Colts, NFC North in flux**\
 `Can the Patriots win the AFC East? Will Colts-Chargers be Sunday's best game? Our writers discuss.`\
 https://nytimes.com/athletic/6726748/2025/10/18/nfl-week-7-patriots-chargers-nfc-north/
-
-**For Mac Jones, reunion with Patriots teammate Kendrick Bourne helps keep football fun**\
-`Jones is 3-1 as a fill-in starter for San Francisco, has had 142 receiving yards in each of his last two games.`\
-https://nytimes.com/athletic/6727238/2025/10/18/49ers-mac-jones-kendrick-bourne-connection/
 
