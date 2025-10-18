@@ -1,3 +1,15 @@
+**Miami's loss feeds the narrative — now Canes must prove they can flip the script**\
+`Miami, 5-1 overall and 1-1 in the ACC, will need help to reach the league title game. `\
+https://nytimes.com/athletic/6728332/2025/10/18/miami-louisville-mario-cristobal-carson-beck/
+
+**Trump Is Waging War on Americans With ICE**\
+`In a supposed effort to crack down on immigration, Trump continues to bombard American cities with federal agents.`\
+https://nytimes.com/video/opinion/100000010465573/trump-is-waging-war-on-americans-with-ice.html
+
+**My Daughter, a Vintage Betsey Johnson Dress and Me**\
+`Seeing my kid wear my bat mitzvah dress gave me a new outlook on adolescence and sentimental objects.`\
+https://nytimes.com/2025/10/18/opinion/daughter-betsey-johnson.html
+
 **The Pulse: Ohtani's impossible performance**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6727811/2025/10/18/ohtani-does-the-impossible-as-miami-crashes-at-home/
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/18/world/asia/bangladesh-airport-fire.html
 **Ohtani, the Greatest Shoh on Earth, just had the greatest game in baseball history**\
 `“We’re watching something we’ve never seen before,” Dave Roberts said. Here are seven reasons this was the single greatest game of all time.`\
 https://nytimes.com/athletic/6728157/2025/10/18/shohei-ohtani-world-series-greatest-postseason-game/
-
-**Scoop City: Fantasy tips to win Week 7**\
-`Welcome to the Saturday fantasy edition of Scoop City, where Andy Behrens provides tips to win Week 7.`\
-https://nytimes.com/athletic/6727385/2025/10/18/fantasy-football-tips-week-7/
-
-**As Blues plan to make Logan Mailloux a healthy scratch, Chris Pronger preaches patience**\
-`Pronger endured more than his share of criticism early in his career before becoming a Hall of Famer.`\
-https://nytimes.com/athletic/6726749/2025/10/18/blues-scratch-logan-mailloux-chris-pronger/
-
-**The Risk That Built America**\
-`Speculation isn’t a bug in America’s economic code, but a crucial component part of the engine, writes Andrew Ross Sorkin.`\
-https://nytimes.com/2025/10/18/business/dealbook/the-risk-that-built-america.html
 

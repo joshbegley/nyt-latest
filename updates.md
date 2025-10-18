@@ -1,3 +1,15 @@
+**Miami's loss feeds the narrative — now Canes must prove they can flip the script**\
+`Miami, 5-1 overall and 1-1 in the ACC, will need help to reach the league title game. `\
+https://nytimes.com/athletic/6728332/2025/10/18/miami-louisville-mario-cristobal-carson-beck/
+
+**Trump Is Waging War on Americans With ICE**\
+`In a supposed effort to crack down on immigration, Trump continues to bombard American cities with federal agents.`\
+https://nytimes.com/video/opinion/100000010465573/trump-is-waging-war-on-americans-with-ice.html
+
+**My Daughter, a Vintage Betsey Johnson Dress and Me**\
+`Seeing my kid wear my bat mitzvah dress gave me a new outlook on adolescence and sentimental objects.`\
+https://nytimes.com/2025/10/18/opinion/daughter-betsey-johnson.html
+
 **The Pulse: Ohtani's impossible performance**\
 `Welcome to The Pulse, The Athletic's daily sports newsletter.`\
 https://nytimes.com/athletic/6727811/2025/10/18/ohtani-does-the-impossible-as-miami-crashes-at-home/
