@@ -1,3 +1,11 @@
+**Mariners-Blue Jays Game 5 takeaways: Homers from Cal Raleigh, Eugenio Suárez put Seattle in front**\
+`SEATTLE — For two games and seven innings in the American League Championship Series here, the Seattle Mariners could do almost nothing right against the Toronto Blue Jays.`\
+https://nytimes.com/athletic/6727437/2025/10/17/blue-jays-mariners-game-5-score-results-takeaways-playoffs-mlb/
+
+**Shohei Ohtani's incredible first inning: 3 strikeouts on mound, leadoff HR at plate**\
+`It was the first leadoff homer ever by a pitcher in baseball history, regular season or postseason.`\
+https://nytimes.com/athletic/6727536/2025/10/17/shohei-ohtani-dodgers-mlb-game-4-homer-strikeouts/
+
 **Shohei Ohtani's incredible first inning: 3 strikeouts on mound, leadoff HR at plate**\
 `It was the first leadoff hitter ever by a pitcher in baseball history, regular season or postseason.`\
 https://nytimes.com/athletic/6727536/2025/10/17/shohei-ohtani-dodgers-mlb-game-4-homer-strikeouts/
