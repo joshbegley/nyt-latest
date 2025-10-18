@@ -1,40 +1,40 @@
-**Nebraska vs. Minnesota: Amid Matt Rhule, Penn State chatter, Gophers stomp Huskers**\
-`A flat performance Friday did nothing to enhance Rhule's candidacy at Penn State — or to inspire confidence in a Nebraska resurgence.`\
-https://nytimes.com/athletic/6727762/2025/10/17/nebraska-minnesota-score-result/
+**Liverpool look in better shape after the international break – can they recharge their season?**\
+`Liverpool arguably come out of the international in better shape than they entered it. Opportunity knocks as Manchester United visit Anfield`\
+https://nytimes.com/athletic/6720536/2025/10/18/arne-slot-liverpool-manchester-united/
 
-**Building the Dodgers: 10 steps that turned L.A. disappointment into postseason dominance**\
-`How did the Dodgers go from an underwhelming regular season to a masterful playoffs and the NL pennant?  `\
-https://nytimes.com/athletic/6725956/2025/10/17/building-the-dodgers-10-steps-playoffs/
+**How are a small club from a fishing village about to win the Swedish title?**\
+`"If you look at the underlying numbers, Mjallby have been overperforming quite a lot."`\
+https://nytimes.com/athletic/6722277/2025/10/18/mjallby-swedish-title-against-odds-xg/
 
-**Ohtani’s 3-homer, 10-strikeout game powers Dodgers back to World Series**\
-`Ohtani stole the show with perhaps the greatest individual performance in MLB playoff history.`\
-https://nytimes.com/athletic/6727628/2025/10/17/dodgers-brewers-game-4-score-results-takeaways-playoffs-mlb/
+**10 Injured in Balcony Collapse in Cincinnati**\
+`People gathered at a house near the University of Cincinnati tumbled to the ground from a third-floor balcony, the fire department said. One person was in critical condition.`\
+https://nytimes.com/2025/10/18/us/cincinnati-balcony-collapse.html
 
-**Where things stand after first week of Skaggs wrongful death trial vs. Angels**\
-`Initial days have focused on credibility of long-time Angels employee. Mike Trout will be among the witnesses next week.`\
-https://nytimes.com/athletic/6727663/2025/10/17/skaggs-angels-wrongful-death-trial-first-week/
+**Are Elche the most exciting football team in Europe right now?**\
+`The newly promoted side are sitting seventh in La Liga thanks to a fast-paced and free-spirited style of play`\
+https://nytimes.com/athletic/6712638/2025/10/18/elche-exciting-team-la-liga/
 
-**Louisville stuns No. 2 Miami: Cardinals pick off Carson Beck 4 times in upset**\
-`The Cardinals jumped out to a 14-0 lead in the opening quarter and never trailed as Jeff Brohm outcoached Mario Cristobal.`\
-https://nytimes.com/athletic/6727631/2025/10/17/louisville-miami-score-result/
+**Marcus Johansson snaps streak, but Wild fall in 'unacceptable' loss to Capitals: Takeaways**\
+`Johansson scored Minnesota's first even-strength goal in 10 periods, but the Wild were outshot 45-14 in a 5-1 loss to Washington.`\
+https://nytimes.com/athletic/6727735/2025/10/18/wild-capitals-takeaways-marcus-johansson/
 
-**College Football Playoff 2025 projections: The most likely bracket with Week 8 underway**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/10/17/college-football-playoff-bracket-projections-odds/
+**The Spritzes and Carbonaras That Ate Italy**\
+`Tourism has turned some Italian streets into monochromatic eating zones. Some officials have banned the opening of new restaurants.`\
+https://nytimes.com/2025/10/18/world/europe/italy-tourism-restaurants.html
 
-**U.S. Agency That Protects Nuclear Arsenal to Furlough Workers**\
-`The National Nuclear Security Administration said 1,400 workers would be affected by Monday.`\
-https://nytimes.com/2025/10/17/us/politics/nuclear-weapons-agency-furloughs-shutdown.html
+**The Free School Lunch Program That Has Made Thousands of Children Sick**\
+`Indonesia’s president says the meals are improving nutrition in the country. Critics have called for a halt to the program, saying it threatens public health.`\
+https://nytimes.com/2025/10/18/world/asia/indonesia-school-lunch-program-poisoning.html
 
-**Can’t Cool Off**\
-`Samuel Smalley’s second Saturday grid comes in hot.`\
-https://nytimes.com/2025/10/17/crosswords/daily-puzzle-2025-10-18.html
+**Connections: Sports Edition hints for Oct. 18, 2025, puzzle No. 390**\
+`Welcome to Connections: Sports Edition Coach — a spot to gather clues and discuss (and share) scores.`\
+https://nytimes.com/athletic/6726499/2025/10/18/connections-sports-edition-hints-for-oct-18-2025/
 
-**Mariners-Blue Jays Game 5 takeaways: Homers from Cal Raleigh, Eugenio Suárez put Seattle in front**\
-`Mariners' offense comes alive in the eighth inning, and Seattle is one win from its first appearance in the World Series.`\
-https://nytimes.com/athletic/6727437/2025/10/17/blue-jays-mariners-game-5-score-results-takeaways-playoffs-mlb/
+**Corrections: Oct. 18, 2025**\
+`Corrections that appeared in print on Saturday, Oct. 18, 2025.`\
+https://nytimes.com/2025/10/18/pageoneplus/corrections-oct-18-2025.html
 
-**Shohei Ohtani's ridiculous night: 3 homers at plate, 10 strikeouts on mound**\
-`It was the first leadoff homer ever by a pitcher in baseball history, regular season or postseason.`\
-https://nytimes.com/athletic/6727536/2025/10/17/shohei-ohtani-dodgers-mlb-game-4-homer-strikeouts/
+**Quote of the Day: Sudden Floods and Mountains of Mud Spur Anger at Mexico’s Government**\
+`Quotation of the Day for Saturday, October 18, 2025.`\
+https://nytimes.com/2025/10/17/pageoneplus/quote-of-the-day-sudden-floods-and-mountains-of-mud-spur-anger-at-mexicos-government.html
 
