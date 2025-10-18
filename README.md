@@ -1,3 +1,7 @@
+**Five must-read moments this week from the mayor’s race**\
+`With early voting a week away, Andrew Cuomo acknowledged that in a three-way race, he loses.`\
+https://nytimes.com/card/2025/10/18/nyregion/newyorktoday/five-must-read-moments-this-week-from-the-mayors-race
+
 **What JD Vance, Kash Patel and a Throw Pillow Have in Common**\
 `Trump’s flatterers are sacrificing more than just their dignity.`\
 https://nytimes.com/2025/10/18/opinion/trump-vance-patel-bondi.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/18/business/early-meetings-work-advice.html
 **The Woman Who Livestreamed Her Birth**\
 `Cady Hoffman and her husband, Bryan Loyd — Fandy and Adamax, to their Twitch followers — talk about broadcasting their daughter’s birth to almost 30,000 gamers.`\
 https://nytimes.com/2025/10/18/style/the-woman-who-livestreamed-her-birth.html
-
-**A Camp Mystic Security Guard Saved Dozens. He’s Still ‘Too Numb to Cry.’**\
-`In interviews with The New York Times, the guard, Glenn Juenke, offered the most detailed firsthand account yet of what staff members did as floodwaters rose at the Texas camp in July.`\
-https://nytimes.com/2025/10/18/us/camp-mystic-flooding-texas-security-guard.html
 
