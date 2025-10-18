@@ -1,3 +1,11 @@
+**How to watch Oilers vs. Devils: Time, TV, streaming**\
+`Find out how to watch the Edmonton Oilers play the New Jersey Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6728444/2025/10/18/oilers-vs-devils-stream-how-to-watch-oct-18/
+
+**How to watch Islanders vs. Senators: Time, TV, streaming**\
+`Find out how to watch the New York Islanders play the Ottawa Senators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6728442/2025/10/18/islanders-vs-senators-stream-how-to-watch-oct-18/
+
 **Chen Ning Yang, Nobel-Winning Physicist, Is Dead at 103**\
 `He and a colleague, Tsung-Dao Lee, created a sensation in 1956 by proposing that one of the four forces of nature might violate a law of physics.`\
 https://nytimes.com/2025/10/18/science/chen-ning-yang-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6728206/2025/10/18/nfl-london-greg-newsome/
 **Demonstrators Across the Country Set to Rally Against Trump**\
 `Protesters are expected to gather in more than 2,600 cities and towns to oppose presidential actions they see as authoritarian.`\
 https://nytimes.com/2025/10/18/us/protests-trump-no-kings.html
-
-**Yamal cleared to return for Barcelona after groin injury**\
-`Yamal has been included in the squad for the Saturday's match against Girona and returns before the season's first Clasico on October 26.`\
-https://nytimes.com/athletic/6631266/2025/10/18/lamine-yamal-injury-return/
-
-**Large Fire Halts Flights at Bangladesh’s Main Airport**\
-`The blaze drew dozens of firefighting units, with military help. Officials said they could not yet specify what caused it.`\
-https://nytimes.com/2025/10/18/world/asia/bangladesh-airport-fire.html
 

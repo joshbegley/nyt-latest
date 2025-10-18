@@ -1,3 +1,11 @@
+**How to watch Oilers vs. Devils: Time, TV, streaming**\
+`Find out how to watch the Edmonton Oilers play the New Jersey Devils, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6728444/2025/10/18/oilers-vs-devils-stream-how-to-watch-oct-18/
+
+**How to watch Islanders vs. Senators: Time, TV, streaming**\
+`Find out how to watch the New York Islanders play the Ottawa Senators, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6728442/2025/10/18/islanders-vs-senators-stream-how-to-watch-oct-18/
+
 **Chen Ning Yang, Nobel-Winning Physicist, Is Dead at 103**\
 `He and a colleague, Tsung-Dao Lee, created a sensation in 1956 by proposing that one of the four forces of nature might violate a law of physics.`\
 https://nytimes.com/2025/10/18/science/chen-ning-yang-dead.html
