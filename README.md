@@ -1,3 +1,11 @@
+**Max Scherzer's viral moment was a perfect illustration of intuitive decision making**\
+`From a leadership perspective, Blue Jays manager John Schneider's mound visit with pitcher Max Scherzer was revealing and fascinating. `\
+https://nytimes.com/athletic/6729262/2025/10/18/max-scherzer-john-schneider-viral-moment-blue-jays-alcs/
+
+**White House and Government Agencies Join Bluesky, Then Attack Democrats**\
+`The Health and Human Services and Homeland Security Departments were among the agencies posting messages that blamed Democrats for the federal shutdown.`\
+https://nytimes.com/2025/10/18/us/politics/trump-administration-bluesky.html
+
 **College Football Playoff 2025 projections: The most likely bracket with Week 8 underway**\
 `Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
 https://nytimes.com/athletic/6560541/2025/10/18/college-football-playoff-bracket-projections-odds/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6729065/2025/10/18/pat-fitzgerald-northwestern-appe
 **What Wikipedia’s Co-Founder Searches For on Wikipedia**\
 `On the latest edition of “The Interview,” Jimmy Wales, the co-founder of Wikipedia, spoke with host Lulu Garcia-Navarro about claims that Wikipedia is biased, building trust online and what his site can teach the world.`\
 https://nytimes.com/video/podcasts/100000010467091/what-wikipedias-co-founder-searches-for-on-wikipedia.html
-
-**Michigan vs. Washington: Redemption for the D, plus more takeaways from 24-7 win**\
-`Michigan tightened up the loose screws from last week and limited the Huskies to 249 yards, an average of 4.5 per play.`\
-https://nytimes.com/athletic/6728986/2025/10/18/michigan-vs-washington-takeways-defense/
-
-**Clemson QB Cade Klubnik out vs. SMU; Christopher Vizzina starts**\
-`Klubnik went through warmups with his ankle taped, but during the Tigers’ team walk into the stadium, he walked with a limp.`\
-https://nytimes.com/athletic/6728992/2025/10/18/clemson-cade-klubnik-christopher-vizzina/
 
