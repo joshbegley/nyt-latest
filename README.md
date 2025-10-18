@@ -1,3 +1,11 @@
+**Flick set for El Clasico touchline ban after red card in Barcelona win**\
+`Flick was sent off after applauding an officiating decision and is now set to be absent from the touchline at the Bernabeu next week.`\
+https://nytimes.com/athletic/6728793/2025/10/18/hansi-flick-barcelona-el-clasico-ban/
+
+**Sheet-Pan Feta With Corn and Shishito Peppers**\
+`It takes fewer than 10 minutes for the broiler to deliver a complete meal of molten, salty feta, sweet corn and smoky shishito peppers.`\
+https://nytimes.com/video/dining/100000010462292/sheet-pan-feta-with-corn-and-shishito-peppers.html
+
 **Watch: Tetairoa McMillan quickly proving any doubters wrong**\
 `McMillan has wasted no time establishing himself as one of Bryce Young's favorite targets.`\
 https://nytimes.com/athletic/6728647/2025/10/18/watch-carolina-panthers-wr-tetairoa-mcmillan-quickly-proving-doubters-wrong/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6728816/2025/10/18/rangers-vs-canadiens-stream-how-
 **How to watch Lightning vs. Blue Jackets: Time, TV, streaming**\
 `Find out how to watch the Tampa Bay Lightning play the Columbus Blue Jackets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6728814/2025/10/18/lightning-vs-blue-jackets-stream-how-to-watch-oct-18/
-
-**For Prince Andrew, a Steady Fall From Grace Ends in a Hard Landing**\
-`A parade of scandals tarnished the prince’s reputation, long before he gave up using his title as Duke of York on Friday.`\
-https://nytimes.com/2025/10/18/world/europe/prince-andrew-britain-epstein.html
-
-**Lithium Battery Fire Aboard Air China Flight Forces an Emergency Landing**\
-`The battery spontaneously combusted while stored in a luggage in the overhead bin. The airline said there were no injuries.`\
-https://nytimes.com/2025/10/18/world/asia/air-china-flight-lithium-battery-fire.html
 
