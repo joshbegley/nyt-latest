@@ -1,3 +1,8 @@
+**Blackhawks confused by Tyler Bertuzzi interference vs. Canucks: ‘Not that great of a call’**\
+`Bertuzzi had what he thought was a good goal, but then an interference call and an unsuccessful challenge by Chicago kept it from counting.
+`\
+https://nytimes.com/athletic/6727869/2025/10/18/blackhawks-canucks-goalie-interference-tyler-bertuzzi/
+
 **Military Plans to Fire Artillery Over California Freeway on Saturday**\
 `Rounds were fired on Friday across Interstate 5 as part of a test run for Saturday’s event at Camp Pendleton in Southern California.`\
 https://nytimes.com/2025/10/18/us/artillery-interstate-5-marines.html
