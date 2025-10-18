@@ -1,3 +1,11 @@
+**No. 5 Ole Miss vs. No. 9 Georgia: Bulldogs' rally shakes up SEC race and more takeaways**\
+`Georgia (6-1, 4-1 SEC) trailed 35-26 in the second half but scored the final 17 points.`\
+https://nytimes.com/athletic/6729323/2025/10/18/ole-miss-vs-georgia-sec-showdown-results-takeaways/
+
+**Verstappen completes United States GP F1 pole ahead of title rivals Norris, Piastri**\
+`Max Verstappen beat Lando Norris to claim pole position for the 2025 F1 United States GP`\
+https://nytimes.com/athletic/6729304/2025/10/18/austin-f1-qualifying-result/
+
 **Large Protests Flood Streets to Denounce Trump**\
 `Known as No Kings Day, the demonstrations built off a similar event in June.`\
 https://nytimes.com/video/us/politics/100000010467262/no-kings-protests-trump-united-states.html
