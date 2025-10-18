@@ -1,3 +1,7 @@
+**Backing Off Tomahawk Suggestion, Trump Again Defers to Putin**\
+`At the White House, President Volodymyr Zelensky of Ukraine made the case for why a weapons sale would help end the war. Mr. Trump at first seemed receptive, then expressed reservations.`\
+https://nytimes.com/2025/10/17/us/politics/trump-zelensky-putin-tomahawks.html
+
 **Prosecutor Who Rejected Trump’s Pressure to Charge James Is Fired**\
 `The dismissal was the latest fallout from attempts by career Justice Department officials to impede the president’s wide-ranging campaign of retribution. The prosecutor’s deputy was also fired.`\
 https://nytimes.com/2025/10/17/us/politics/trump-prosecutor-fired-letitia-james.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/17/us/psychics-scam-curse.html
 **Trump Seeks to Build a Triumphal Arch in Washington for Nation’s 250th Birthday**\
 `The arch will stand in the middle of the traffic roundabout at the end of Arlington Memorial Bridge, across from the Lincoln Memorial.`\
 https://nytimes.com/2025/10/17/us/politics/trump-arch-monument-dc-250th-anniversary.html
-
-**Judge Orders Some Federal Agents to Wear Body Cameras in Chicago Area**\
-`The order comes as the Trump administration has carried out an immigration crackdown in the region.`\
-https://nytimes.com/2025/10/17/us/chicago-ice-body-cameras.html
 
