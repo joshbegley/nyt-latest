@@ -1,3 +1,7 @@
+**Same Difference**\
+`Daniel Grinberg’s Sunday puzzle has everything you need, and nothing you don’t.`\
+https://nytimes.com/2025/10/18/crosswords/daily-puzzle-2025-10-19.html
+
 **Manuel Trujillo, Who Helped New Yorkers Heal After 9/11, Dies at 80**\
 `As Bellevue Hospital’s director of psychiatry, he guided rescue workers and grieving families through trauma when terrorists attacked in 2001.`\
 https://nytimes.com/2025/10/18/nyregion/dr-manuel-trujillo-dead.html
