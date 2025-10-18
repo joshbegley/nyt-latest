@@ -1,3 +1,7 @@
+**Trump Hesitant to Give Ukraine Missiles, Pushing for Cease-Fire With Russia**\
+`President Volodymyr Zelensky of Ukraine pressed the Trump administration on Friday for long-range missiles to strike deep within Russia. Trump is proposing more negotiations between Zelensky and President Vladimir Putin in the coming weeks.`\
+https://nytimes.com/video/us/100000010466367/trump-hesitant-to-give-ukraine-missiles-pushing-for-cease-fire-with-russia.html
+
 **A bid to give Charlie Kirk an honorary degree from the Air Force Academy was withdrawn.**\
 `By John Ismay`\
 https://nytimes.com/live/2025/10/17/us/trump-news-zelensky/a-bid-to-give-charlie-kirk-an-honorary-degree-from-the-air-force-academy-was-withdrawn

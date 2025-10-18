@@ -1,3 +1,7 @@
+**Trump Hesitant to Give Ukraine Missiles, Pushing for Cease-Fire With Russia**\
+`President Volodymyr Zelensky of Ukraine pressed the Trump administration on Friday for long-range missiles to strike deep within Russia. Trump is proposing more negotiations between Zelensky and President Vladimir Putin in the coming weeks.`\
+https://nytimes.com/video/us/100000010466367/trump-hesitant-to-give-ukraine-missiles-pushing-for-cease-fire-with-russia.html
+
 **A bid to give Charlie Kirk an honorary degree from the Air Force Academy was withdrawn.**\
 `By John Ismay`\
 https://nytimes.com/live/2025/10/17/us/trump-news-zelensky/a-bid-to-give-charlie-kirk-an-honorary-degree-from-the-air-force-academy-was-withdrawn
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/17/business/student-loan-cancellation-idr.html
 **Vermont Legislator Resigns Over Racist Republican Texts**\
 `The G.O.P. officials who participated in a group chat have faced calls to step down. State Senator Samuel Douglass was the group’s only elected member.`\
 https://nytimes.com/2025/10/17/us/politics/samuel-douglass-resigns-vermont-young-republicans.html
-
-**2 Pennsylvania Psychics Stole Over $600,000 to Remove Curses, Prosecutors Say**\
-`One woman alone gave more than half a million dollars in cash and luxury items to remove the “black magic” hindering her love and happiness, the authorities said.`\
-https://nytimes.com/2025/10/17/us/psychics-scam-curse.html
 
