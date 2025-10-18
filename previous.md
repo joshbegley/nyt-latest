@@ -1,3 +1,7 @@
+**A bid to give Charlie Kirk an honorary degree from the Air Force Academy was withdrawn.**\
+`By John Ismay`\
+https://nytimes.com/live/2025/10/17/us/trump-news-zelensky/a-bid-to-give-charlie-kirk-an-honorary-degree-from-the-air-force-academy-was-withdrawn
+
 **Backing Off Tomahawk Suggestion, Trump Again Defers to Putin**\
 `At the White House, President Volodymyr Zelensky of Ukraine made the case for why a weapons sale would help end the war. Mr. Trump at first seemed receptive, then expressed reservations.`\
 https://nytimes.com/2025/10/17/us/politics/trump-zelensky-putin-tomahawks.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/17/us/politics/samuel-douglass-resigns-vermont-young
 **2 Pennsylvania Psychics Stole Over $600,000 to Remove Curses, Prosecutors Say**\
 `One woman alone gave more than half a million dollars in cash and luxury items to remove the “black magic” hindering her love and happiness, the authorities said.`\
 https://nytimes.com/2025/10/17/us/psychics-scam-curse.html
-
-**Trump Seeks to Build a Triumphal Arch in Washington for Nation’s 250th Birthday**\
-`The arch will stand in the middle of the traffic roundabout at the end of Arlington Memorial Bridge, across from the Lincoln Memorial.`\
-https://nytimes.com/2025/10/17/us/politics/trump-arch-monument-dc-250th-anniversary.html
 

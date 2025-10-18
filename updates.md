@@ -1,3 +1,7 @@
+**A bid to give Charlie Kirk an honorary degree from the Air Force Academy was withdrawn.**\
+`By John Ismay`\
+https://nytimes.com/live/2025/10/17/us/trump-news-zelensky/a-bid-to-give-charlie-kirk-an-honorary-degree-from-the-air-force-academy-was-withdrawn
+
 **Backing Off Tomahawk Suggestion, Trump Again Defers to Putin**\
 `At the White House, President Volodymyr Zelensky of Ukraine made the case for why a weapons sale would help end the war. Mr. Trump at first seemed receptive, then expressed reservations.`\
 https://nytimes.com/2025/10/17/us/politics/trump-zelensky-putin-tomahawks.html
