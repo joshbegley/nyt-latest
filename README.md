@@ -3,7 +3,7 @@
 https://nytimes.com/video/dining/100000010366395/turmeric-fried-eggs-with-tamarind-and-pickled-shallots.html
 
 **Scenes From a Day of Mass Protests**\
-`With signs and chants, protesters take part in the ‘No Kings’ rallies focused on what they saw as overreach by the Trump administration.`\
+`With signs and chants, protesters take part in ‘No Kings’ rallies focused on what they see as overreach by the Trump administration.`\
 https://nytimes.com/2025/10/18/us/politics/no-kings-protests-trump.html
 
 **OpenAI Plans to Make ChatGPT More Humanlike. What Could Go Wrong?**\

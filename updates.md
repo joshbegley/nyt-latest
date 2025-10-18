@@ -1,3 +1,19 @@
+**Turmeric Fried Eggs With Tamarind and Pickled Shallots**\
+`These fried eggs, as good enough to eat as they are to admire, get their wonderfully eccentric appearance from turmeric and chile. You can serve this easy, punchy breakfast as is, or with some hash browns if you’re having them for brunch.`\
+https://nytimes.com/video/dining/100000010366395/turmeric-fried-eggs-with-tamarind-and-pickled-shallots.html
+
+**Scenes From a Day of Mass Protests**\
+`With signs and chants, protesters take part in the ‘No Kings’ rallies focused on what they saw as overreach by the Trump administration.`\
+https://nytimes.com/2025/10/18/us/politics/no-kings-protests-trump.html
+
+**OpenAI Plans to Make ChatGPT More Humanlike. What Could Go Wrong?**\
+`A lot happened this week.`\
+https://nytimes.com/video/opinion/100000010466180/openai-plans-to-make-chatgpt-more-humanlike-what-could-go-wrong.html
+
+**Miami loss to Louisville complicates its CFP and ACC title hopes**\
+`Miami's odds to make the College Football Playoff didn't fall drastically after Friday's loss, but its margin for error is shrinking.`\
+https://nytimes.com/athletic/6728480/2025/10/18/miami-louisville-college-football-playoff-odds-acc/
+
 **Canadiens' Kaiden Guhle out 4-6 weeks with lower-body injury**\
 `Guhle was injured midway through the third period of Thursday’s 3-2 OT win against the Predators.`\
 https://nytimes.com/athletic/6728603/2025/10/18/kaiden-guhle-canadiens-injury/
