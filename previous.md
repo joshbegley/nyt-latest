@@ -1,3 +1,7 @@
+**David Attenborough Becomes Oldest Daytime Emmy Winner at 99**\
+`The British documentarian and naturalist beat the record set by Dick Van Dyke, who won a Daytime Emmy last year at 98.`\
+https://nytimes.com/2025/10/18/arts/television/attenborough-daytime-emmys-oldest.html
+
 **Max Verstappen wins Austin sprint race, both McLarens crash out at Turn 1**\
 `Max Verstappen won the sprint race at Formula One's 2025 United States GP, with both McLarens eliminated in a Turn 1 crash`\
 https://nytimes.com/athletic/6728933/2025/10/18/max-verstappen-wins-austin-sprint-race-both-mclarens-crash-out-at-turn-1/
@@ -33,8 +37,4 @@ https://nytimes.com/video/dining/100000010462290/restaurant-review-i-cavallini.h
 **Flick set for El Clasico touchline ban after red card in Barcelona win**\
 `Flick was sent off after applauding an officiating decision and is now set to be absent from the touchline at the Bernabeu next week.`\
 https://nytimes.com/athletic/6728793/2025/10/18/hansi-flick-barcelona-el-clasico-ban/
-
-**Sheet-Pan Feta With Corn and Shishito Peppers**\
-`It takes fewer than 10 minutes for the broiler to deliver a complete meal of molten, salty feta, sweet corn and smoky shishito peppers.`\
-https://nytimes.com/video/dining/100000010462292/sheet-pan-feta-with-corn-and-shishito-peppers.html
 

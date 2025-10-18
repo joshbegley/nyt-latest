@@ -1,3 +1,7 @@
+**David Attenborough Becomes Oldest Daytime Emmy Winner at 99**\
+`The British documentarian and naturalist beat the record set by Dick Van Dyke, who won a Daytime Emmy last year at 98.`\
+https://nytimes.com/2025/10/18/arts/television/attenborough-daytime-emmys-oldest.html
+
 **Max Verstappen wins Austin sprint race, both McLarens crash out at Turn 1**\
 `Max Verstappen won the sprint race at Formula One's 2025 United States GP, with both McLarens eliminated in a Turn 1 crash`\
 https://nytimes.com/athletic/6728933/2025/10/18/max-verstappen-wins-austin-sprint-race-both-mclarens-crash-out-at-turn-1/
