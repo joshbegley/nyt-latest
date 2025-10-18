@@ -1,3 +1,11 @@
+**The Pulse: Ohtani's impossible performance**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6727811/2025/10/18/ohtani-does-the-impossible-as-miami-crashes-at-home/
+
+**Whirlwind trades, revenue rewards and early bedtimes: Quirks of the NFL in London**\
+`Greg Newsome II had never been to England. Now the Jaguars cornerback is preparing for his second game there in 15 days.`\
+https://nytimes.com/athletic/6728206/2025/10/18/nfl-london-greg-newsome/
+
 **Israeli Military Fires On Vehicle, Saying It Crossed Cease-Fire Lines**\
 `Gaza’s rescue service said at least nine people were killed in the strike in northern Gaza on Friday, a week after Israeli forces withdrew to agreed-upon lines.`\
 https://nytimes.com/2025/10/18/world/middleeast/israel-military-gaza-strike-cease-fire.html
