@@ -1,4 +1,4 @@
-**Woman Who Tried to Blame Twin for Fatal Buggy Crash Gets 4 Years in Prison**\
+**Woman Who Tried to Let Her Twin Take Blame for Fatal Buggy Crash Gets 4 Years in Prison**\
 `The crash killed two Amish children and injured two others in rural Minnesota in 2023.`\
 https://nytimes.com/2025/10/18/us/minnesota-amish-buggy-crash-sentence.html
 
