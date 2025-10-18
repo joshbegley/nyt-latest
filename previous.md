@@ -1,3 +1,7 @@
+**UNC fumbles away chance for first ACC win under Bill Belichick**\
+`UNC came agonizingly close to a win that could have helped calm the waters surrounding a program that has elicited numerous controversies.`\
+https://nytimes.com/athletic/6727918/2025/10/18/unc-cal-score-result-bill-belichick/
+
 **Lakers unveil starting five in preseason finale against Kings**\
 `With LeBron out for the Lakers’ preseason finale, the team turned to Gabe Vincent. `\
 https://nytimes.com/athletic/6727892/2025/10/18/lakers-starting-lineup-kings-nba/
@@ -34,8 +38,4 @@ https://nytimes.com/athletic/6723187/2025/10/18/wrestling-sumo-grand-tournament-
 **Barca mailbag: How do they fix injury woes? Can they do a €50m transfer? Will Laporta face opposition?**\
 `With Barca preparing for El Clasico next week, you had plenty of questions for our reporters…`\
 https://nytimes.com/athletic/6726475/2025/10/18/barcelona-mailbag-flick-laporta/
-
-**Why Oliver Glasner vs Andoni Iraola is a meeting of the Premier League's great disruptors**\
-`Forget the obsession for control of Man City and Arsenal, it is Palace and Bournemouth who are redefining what Premier League football is`\
-https://nytimes.com/athletic/6725945/2025/10/18/palace-bournemouth-glasner-iraola-tactics-premier-league/
 
