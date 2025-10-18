@@ -1,3 +1,7 @@
+**U.S. to Repatriate Survivors of Its Strike on Suspected Drug Vessel**\
+`The U.S. military rescued the two men in the Caribbean Sea after Special Operations forces fired on a semi-submersible that was assessed to be smuggling drugs.`\
+https://nytimes.com/2025/10/18/us/politics/boat-strike-survivors.html
+
 **Hurzeler says he was going to substitute Welbeck before Newcastle winner**\
 `The 34-year-old forward scored both of Brighton's goals in the 2-1 win on Saturday.`\
 https://nytimes.com/athletic/6728922/2025/10/18/brighton-danny-welbeck-fabian-hurzeler/
