@@ -1,3 +1,7 @@
+**Chen Ning Yang, Nobel-Winning Physicist, Is Dead at 103**\
+`He and a colleague, Tsung-Dao Lee, created a sensation in 1956 by proposing that one of the four forces of nature might violate a law of physics.`\
+https://nytimes.com/2025/10/18/science/chen-ning-yang-dead.html
+
 **Miami's loss feeds the narrative — now Canes must prove they can flip the script**\
 `Miami, 5-1 overall and 1-1 in the ACC, will need help to reach the league title game. `\
 https://nytimes.com/athletic/6728332/2025/10/18/miami-louisville-mario-cristobal-carson-beck/
