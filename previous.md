@@ -1,3 +1,7 @@
+**College Football Playoff 2025 projections: The most likely bracket with Week 8 underway**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/10/18/college-football-playoff-bracket-projections-odds/
+
 **Lady Gaga is Owning the Darkness in the ‘Mayhem Ball’**\
 `Wesley and pop music editor Caryn Ganz didn’t like Lady Gaga’s new album. But they loved “Mayhem” on tour. Together, they reflect on Lady Gaga’s final show at Madison Square Garden.`\
 https://nytimes.com/video/podcasts/100000010467172/lady-gaga-is-owning-the-darkness-in-the-mayhem-ball.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6728986/2025/10/18/michigan-vs-washington-takeways-
 **Clemson QB Cade Klubnik out vs. SMU; Christopher Vizzina starts**\
 `Klubnik went through warmups with his ankle taped, but during the Tigers’ team walk into the stadium, he walked with a limp.`\
 https://nytimes.com/athletic/6728992/2025/10/18/clemson-cade-klubnik-christopher-vizzina/
-
-**Diego Pavia shines as No. 17 Vanderbilt takes down No. 10 LSU**\
-`Pavia and coach Clark Lea’s team has put itself in position for a first-ever opportunity: competing for a national championship.`\
-https://nytimes.com/athletic/6729107/2025/10/18/vanderbilt-lsu-score-highlights-diego-pavia/
 

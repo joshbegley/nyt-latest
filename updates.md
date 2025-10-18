@@ -1,3 +1,7 @@
+**College Football Playoff 2025 projections: The most likely bracket with Week 8 underway**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/10/18/college-football-playoff-bracket-projections-odds/
+
 **Lady Gaga is Owning the Darkness in the ‘Mayhem Ball’**\
 `Wesley and pop music editor Caryn Ganz didn’t like Lady Gaga’s new album. But they loved “Mayhem” on tour. Together, they reflect on Lady Gaga’s final show at Madison Square Garden.`\
 https://nytimes.com/video/podcasts/100000010467172/lady-gaga-is-owning-the-darkness-in-the-mayhem-ball.html
