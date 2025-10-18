@@ -1,3 +1,19 @@
+**Pat Fitzgerald makes first public appearance at Northwestern since his firing**\
+`Fitzgerald's firing followed an investigation into hazing allegations from some of his former players.`\
+https://nytimes.com/athletic/6729065/2025/10/18/pat-fitzgerald-northwestern-appearance/
+
+**What Wikipedia’s Co-Founder Searches For on Wikipedia**\
+`On the latest edition of “The Interview,” Jimmy Wales, the co-founder of Wikipedia, spoke with host Lulu Garcia-Navarro about claims that Wikipedia is biased, building trust online and what his site can teach the world.`\
+https://nytimes.com/video/podcasts/100000010467091/what-wikipedias-co-founder-searches-for-on-wikipedia.html
+
+**Michigan vs. Washington: Redemption for the D, plus more takeaways from 24-7 win**\
+`Michigan tightened up the loose screws from last week and limited the Huskies to 249 yards, an average of 4.5 per play.`\
+https://nytimes.com/athletic/6728986/2025/10/18/michigan-vs-washington-takeways-defense/
+
+**Clemson QB Cade Klubnik out vs. SMU; Christopher Vizzina starts**\
+`Klubnik went through warmups with his ankle taped, but during the Tigers’ team walk into the stadium, he could be seen walking with a limp.`\
+https://nytimes.com/athletic/6728992/2025/10/18/clemson-cade-klubnik-christopher-vizzina/
+
 **Diego Pavia shines as No. 17 Vanderbilt takes down No. 10 LSU**\
 `Pavia and coach Clark Lea’s team has put itself in position for a first-ever opportunity: competing for a national championship.`\
 https://nytimes.com/athletic/6729107/2025/10/18/vanderbilt-lsu-score-highlights-diego-pavia/
@@ -21,20 +37,4 @@ https://nytimes.com/athletic/6729117/2025/10/18/hurricanes-vs-kings-stream-how-t
 **Sea Otters Are Stealing Surfboards in California. Again.**\
 `Two years after Otter 841 menaced wave riders near Santa Cruz, there have been new encounters between the furry marine mammals and surfers.`\
 https://nytimes.com/2025/10/18/science/sea-otters-surfboard-santa-cruz.html
-
-**Chelsea in discussions to appoint former Liverpool scouting director Dave Fallows**\
-`Fallows left Liverpool in October 2024 after spending 12 years at the club.`\
-https://nytimes.com/athletic/6729021/2025/10/18/dave-fallows-director-chelsea-liverpool/
-
-**Jury Awards $19.7 Million to 6 Bystanders Wounded in Denver Police Shooting**\
-`The bystanders were injured when a Denver police officer fired, while facing a crowd of people, at an armed man outside a bar in 2022.`\
-https://nytimes.com/2025/10/18/us/denver-police-shooting-award.html
-
-**Commanders' Deebo Samuel out vs. Cowboys with heel injury**\
-`Samuel's absence comes after Washington already ruled out Terry McLaurin and Noah Brown for Sunday's game.`\
-https://nytimes.com/athletic/6729012/2025/10/18/deebo-samuel-injury-update-status-commanders-cowboys/
-
-**Wikipedia’s Co-Founder Answers Elon Musk’s Attacks**\
-`Elon Musk has recently targeted Wikipedia, calling the platform “Wokepedia” and vowing to launch a competing site.`\
-https://nytimes.com/video/podcasts/100000010467039/wikipedias-co-founder-answers-elon-musks-attacks.html
 
