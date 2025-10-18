@@ -1,3 +1,11 @@
+**Russini: What I'm hearing on trade deadline intel, the coaching carousel and the Bucs’ bet on Baker**\
+`Also: Denver takes a pass on a bye, inside a Patriots uniform quirk and what's really behind the surge in blocked kicks?`\
+https://nytimes.com/athletic/6727307/2025/10/18/nfl-trade-rumors-news-baker-mayfield/
+
+**3 Skillet Bakes for Cuffing Season**\
+`To be clear, skillet brownies, ginger cake and caramel apple crisp are also perfect for sharing with friends (or not sharing at all).`\
+https://nytimes.com/2025/10/18/dining/3-skillet-bakes-for-cuffing-season.html
+
 **Postecoglou sacked by Nottingham Forest after 39 days in charge**\
 `The 60-year-old was only appointed on September 9 after former coach Nuno Espirito Santo departed the club.`\
 https://nytimes.com/athletic/6684498/2025/10/18/postecoglou-nottingham-forest-sacked/
