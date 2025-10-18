@@ -1,3 +1,11 @@
+**Hurzeler says he was going to substitute Welbeck before Newcastle winner**\
+`The 34-year-old forward scored both of Brighton's goals in the 2-1 win on Saturday.`\
+https://nytimes.com/athletic/6728922/2025/10/18/brighton-danny-welbeck-fabian-hurzeler/
+
+**What the Lakers' final preseason game revealed about their Week 1 rotation**\
+`Friday night's dress rehearsal provided insight into who will likely be in Los Angeles' rotation in the first week of the season.`\
+https://nytimes.com/athletic/6728606/2025/10/18/lakers-rotation-nba-season/
+
 **Alison Rose, The New Yorker’s Femme Fatale, Dies at 81**\
 `She started as the magazine’s glamorous receptionist and became one of its more singular writers. In one of her last articles, she memorialized her time (and lovers) there.`\
 https://nytimes.com/2025/10/18/books/alison-rose-dead.html

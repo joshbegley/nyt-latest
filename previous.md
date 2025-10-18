@@ -1,3 +1,11 @@
+**Hurzeler says he was going to substitute Welbeck before Newcastle winner**\
+`The 34-year-old forward scored both of Brighton's goals in the 2-1 win on Saturday.`\
+https://nytimes.com/athletic/6728922/2025/10/18/brighton-danny-welbeck-fabian-hurzeler/
+
+**What the Lakers' final preseason game revealed about their Week 1 rotation**\
+`Friday night's dress rehearsal provided insight into who will likely be in Los Angeles' rotation in the first week of the season.`\
+https://nytimes.com/athletic/6728606/2025/10/18/lakers-rotation-nba-season/
+
 **Alison Rose, The New Yorker’s Femme Fatale, Dies at 81**\
 `She started as the magazine’s glamorous receptionist and became one of its more singular writers. In one of her last articles, she memorialized her time (and lovers) there.`\
 https://nytimes.com/2025/10/18/books/alison-rose-dead.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6728645/2025/10/18/james-franklin-interview-college
 **How to watch Stars vs. Blues: Time, TV, streaming**\
 `Find out how to watch the Dallas Stars play the St. Louis Blues, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6728824/2025/10/18/stars-vs-blues-stream-how-to-watch-oct-18/
-
-**How to watch Wild vs. Flyers: Time, TV, streaming**\
-`Find out how to watch the Minnesota Wild play the Philadelphia Flyers, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6728822/2025/10/18/wild-vs-flyers-stream-how-to-watch-oct-18/
-
-**How to watch Predators vs. Jets: Time, TV, streaming**\
-`Find out how to watch the Nashville Predators play the Winnipeg Jets, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6728820/2025/10/18/predators-vs-jets-stream-how-to-watch-oct-18/
 
