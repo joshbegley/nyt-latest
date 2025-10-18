@@ -1,3 +1,11 @@
+**Shohei Ohtani's incredible first inning: 3 strikeouts on mound, leadoff HR at plate**\
+`It was the first leadoff hitter ever by a pitcher in baseball history, regular season or postseason.`\
+https://nytimes.com/athletic/6727536/2025/10/17/shohei-ohtani-dodgers-mlb-game-4-homer-strikeouts/
+
+**What Anže Kopitar's injury means for Kings in captain's final NHL season**\
+`A rough start for the Kings has only become more challenging now with their captain and leader out of the lineup week-to-week.`\
+https://nytimes.com/athletic/6727512/2025/10/17/anze-kopitar-los-angeles-kings-injury/
+
 **Blue Jays' George Springer leaves ALCS Game 5 after pitch hits kneecap**\
 `According to the FS1 telecast, the carom off Springer’s knee was so violent that it registered on Statcast as a 55 mph batted ball.`\
 https://nytimes.com/athletic/6727442/2025/10/17/george-springer-alcs-injury-knee/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/17/us/politics/memphis-national-guard-lawsuit.html
 **Wikipedia Volunteers Avert Tragedy by Taking Down Gunman at Conference**\
 `After the man walked onto the stage at the “Wiki World’s Fair” event and threatened to kill himself, witnesses said, two members of the audience jumped in to stop him.`\
 https://nytimes.com/2025/10/17/nyregion/wikipedia-conference-gunman.html
-
-**Alaska Governor Says Storm Recovery Could Keep Evacuees Away for 18 Months**\
-`After the remnants of a typhoon devastated villages in western Alaska, Gov. Mike Dunleavy asked President Trump for federal help in the recovery process.`\
-https://nytimes.com/2025/10/17/us/alaska-storm-typhoon-recovery-evacuations.html
-
-**Bulls waive fan favorite Yuki Kawamura after discovering 'medical condition'**\
-`The 5-foot-8 Japanese point guard had secured a two-way contract with the Bulls after spending last season with the Memphis Grizzlies.`\
-https://nytimes.com/athletic/6727185/2025/10/17/yuki-kawamura-bulls-status-injury-waived/
 

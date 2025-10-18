@@ -1,3 +1,11 @@
+**Shohei Ohtani's incredible first inning: 3 strikeouts on mound, leadoff HR at plate**\
+`It was the first leadoff hitter ever by a pitcher in baseball history, regular season or postseason.`\
+https://nytimes.com/athletic/6727536/2025/10/17/shohei-ohtani-dodgers-mlb-game-4-homer-strikeouts/
+
+**What Anže Kopitar's injury means for Kings in captain's final NHL season**\
+`A rough start for the Kings has only become more challenging now with their captain and leader out of the lineup week-to-week.`\
+https://nytimes.com/athletic/6727512/2025/10/17/anze-kopitar-los-angeles-kings-injury/
+
 **Blue Jays' George Springer leaves ALCS Game 5 after pitch hits kneecap**\
 `According to the FS1 telecast, the carom off Springer’s knee was so violent that it registered on Statcast as a 55 mph batted ball.`\
 https://nytimes.com/athletic/6727442/2025/10/17/george-springer-alcs-injury-knee/
