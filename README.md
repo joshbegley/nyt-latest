@@ -1,3 +1,7 @@
+**Alison Rose, The New Yorker’s Femme Fatale, Dies at 81**\
+`She started as the magazine’s glamorous receptionist and became one of its more singular writers. In one of her last articles, she memorialized her time (and lovers) there.`\
+https://nytimes.com/2025/10/18/books/alison-rose-dead.html
+
 **Three arrested after England flag pitch invasion at Salford in alleged protest against Neville**\
 `Police confirmed three men had been arrested on suspicion of entering the field of play during Salford's match against Oldham.`\
 https://nytimes.com/athletic/6728448/2025/10/18/salford-fans-gary-neville-arrested/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6728822/2025/10/18/wild-vs-flyers-stream-how-to-wat
 **How to watch Predators vs. Jets: Time, TV, streaming**\
 `Find out how to watch the Nashville Predators play the Winnipeg Jets, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6728820/2025/10/18/predators-vs-jets-stream-how-to-watch-oct-18/
-
-**How to watch Kraken vs. Maple Leafs: Time, TV, streaming**\
-`Find out how to watch the Seattle Kraken play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6728819/2025/10/18/kraken-vs-maple-leafs-stream-how-to-watch-oct-18/
 
