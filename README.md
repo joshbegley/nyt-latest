@@ -19,6 +19,10 @@ https://nytimes.com/issue/todayspaper/2025/10/18/todays-new-york-times
 `\
 https://nytimes.com/athletic/6727869/2025/10/18/blackhawks-canucks-goalie-interference-tyler-bertuzzi/
 
+**Liverpool look in better shape after the international break – can they recharge their season?**\
+`Liverpool arguably come out of the international in better shape than they entered it. Opportunity knocks as Manchester United visit Anfield`\
+https://nytimes.com/athletic/6720536/2025/10/18/arne-slot-liverpool-manchester-united/
+
 **What can Ruben Amorim learn from Oliver Glasner about using 3-4-3 to beat Liverpool?**\
 `Crystal Palace surprised Arne Slot's side this season, but they approached the game differently from how United usually set up`\
 https://nytimes.com/athletic/6696330/2025/10/18/what-man-utds-amorim-can-learn-from-glasner-about-using-3-4-3-to-beat-liverpool/
@@ -31,11 +35,7 @@ https://nytimes.com/athletic/6725527/2025/10/18/ashes-villains-konstas-broad-war
 `Matt Saunders made a plea for 'professional standards', but is that a fair demand from players who aren't professionals?`\
 https://nytimes.com/athletic/6726125/2025/10/18/viral-soccer-manager-england-drinking-culture/
 
-**Up to 20,000 calories a day, 75kg of rice and reinforced seats: Sumo wrestling in London**\
-`For the first time since 1991, a five-day sumo wrestling tournament was held outside of Japan`\
-https://nytimes.com/athletic/6723187/2025/10/18/wrestling-sumo-grand-tournament-london/
-
-**Barca mailbag: How do they fix injury woes? Can they do a €50m transfer? Will Laporta face opposition?**\
-`With Barca preparing for El Clasico next week, you had plenty of questions for our reporters…`\
-https://nytimes.com/athletic/6726475/2025/10/18/barcelona-mailbag-flick-laporta/
+**How are a small club from a fishing village about to win the Swedish title?**\
+`"If you look at the underlying numbers, Mjallby have been overperforming quite a lot."`\
+https://nytimes.com/athletic/6722277/2025/10/18/mjallby-swedish-title-against-odds-xg/
 
