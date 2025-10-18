@@ -1,3 +1,7 @@
+**Coast Guard Buys Two Private Jets for Noem, Costing $172 Million**\
+`Public documents show the Department of Homeland Security has contracted to purchase a pair of top-of-the-line Gulfstream jets for the secretary and other top officials.`\
+https://nytimes.com/2025/10/18/us/politics/kristi-noem-dhs-gulfstream.html
+
 **Russini: What I'm hearing on trade deadline intel, the coaching carousel and the Bucs’ bet on Baker**\
 `Also: Denver takes a pass on a bye, inside a Patriots uniform quirk and what's really behind the surge in blocked kicks?`\
 https://nytimes.com/athletic/6727307/2025/10/18/nfl-trade-rumors-news-baker-mayfield/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6728332/2025/10/18/miami-louisville-mario-cristobal
 **Trump Is Waging War on Americans With ICE**\
 `In a supposed effort to crack down on immigration, Trump continues to bombard American cities with federal agents.`\
 https://nytimes.com/video/opinion/100000010465573/trump-is-waging-war-on-americans-with-ice.html
-
-**My Daughter, a Vintage Betsey Johnson Dress and Me**\
-`Seeing my kid wear my bat mitzvah dress gave me a new outlook on adolescence and sentimental objects.`\
-https://nytimes.com/2025/10/18/opinion/daughter-betsey-johnson.html
 

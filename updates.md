@@ -1,3 +1,7 @@
+**Coast Guard Buys Two Private Jets for Noem, Costing $172 Million**\
+`Public documents show the Department of Homeland Security has contracted to purchase a pair of top-of-the-line Gulfstream jets for the secretary and other top officials.`\
+https://nytimes.com/2025/10/18/us/politics/kristi-noem-dhs-gulfstream.html
+
 **Russini: What I'm hearing on trade deadline intel, the coaching carousel and the Bucs’ bet on Baker**\
 `Also: Denver takes a pass on a bye, inside a Patriots uniform quirk and what's really behind the surge in blocked kicks?`\
 https://nytimes.com/athletic/6727307/2025/10/18/nfl-trade-rumors-news-baker-mayfield/

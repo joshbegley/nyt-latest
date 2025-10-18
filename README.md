@@ -1,3 +1,11 @@
+**Holger Rune injured in bizarre two minutes vs. Ugo Humbert at Nordic Open after ball kid interruption**\
+`The 22-year-old Dane hobbled off the court immediately after a ball kid's interruption had cost Humbert a crucial point.`\
+https://nytimes.com/athletic/6728537/2025/10/18/holger-rune-injured-ugo-humbert-nordic-open-ballkid/
+
+**Apathy proved worse than anger for Postecoglou - how have Forest got here so quickly?**\
+`Nottingham Forest have now removed two managers before the middle of October - the positivity of last season is a dim and distant memory `\
+https://nytimes.com/athletic/6728522/2025/10/18/nottingham-forest-ange-postecoglou-sacked/
+
 **Coast Guard Buys Two Private Jets for Noem, Costing $172 Million**\
 `Public documents show the Department of Homeland Security has contracted to purchase a pair of top-of-the-line Gulfstream jets for the secretary and other top officials.`\
 https://nytimes.com/2025/10/18/us/politics/kristi-noem-dhs-gulfstream.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6728442/2025/10/18/islanders-vs-senators-stream-how
 **Chen Ning Yang, Nobel-Winning Physicist, Is Dead at 103**\
 `He and a colleague, Tsung-Dao Lee, created a sensation in 1956 by proposing that one of the four forces of nature might violate a law of physics.`\
 https://nytimes.com/2025/10/18/science/chen-ning-yang-dead.html
-
-**Miami's loss feeds the narrative — now Canes must prove they can flip the script**\
-`Miami, 5-1 overall and 1-1 in the ACC, will need help to reach the league title game. `\
-https://nytimes.com/athletic/6728332/2025/10/18/miami-louisville-mario-cristobal-carson-beck/
-
-**Trump Is Waging War on Americans With ICE**\
-`In a supposed effort to crack down on immigration, Trump continues to bombard American cities with federal agents.`\
-https://nytimes.com/video/opinion/100000010465573/trump-is-waging-war-on-americans-with-ice.html
 
