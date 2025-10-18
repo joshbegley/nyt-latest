@@ -1,3 +1,15 @@
+**Chelsea in discussions to appoint former Liverpool scouting director Dave Fallows**\
+`Fallows left Liverpool in October 2024 after spending 12 years at the club.`\
+https://nytimes.com/athletic/6729021/2025/10/18/dave-fallows-director-chelsea-liverpool/
+
+**Jury Awards $19.7 Million to 6 Bystanders Wounded in Denver Police Shooting**\
+`The bystanders were injured when a Denver police officer fired, while facing a crowd of people, at an armed man outside a bar in 2022.`\
+https://nytimes.com/2025/10/18/us/denver-police-shooting-award.html
+
+**Commanders' Deebo Samuel out vs. Cowboys with heel injury**\
+`Samuel's absence comes after Washington already ruled out Terry McLaurin and Noah Brown for Sunday's game.`\
+https://nytimes.com/athletic/6729012/2025/10/18/deebo-samuel-injury-update-status-commanders-cowboys/
+
 **Wikipedia’s Co-Founder Answers Elon Musk’s Attacks**\
 `Elon Musk has recently targeted Wikipedia, calling the platform “Wokepedia” and vowing to launch a competing site.`\
 https://nytimes.com/video/podcasts/100000010467039/wikipedias-co-founder-answers-elon-musks-attacks.html
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6728933/2025/10/18/max-verstappen-austin-f1-sprint-
 **Venezuela Announces Sweeping Military Exercises as U.S. Escalates Pressure**\
 `President Nicolás Maduro this week called on civilians to help the country defend itself, while his defense minister warned citizens to “prepare for the worst.”`\
 https://nytimes.com/2025/10/18/world/americas/venezuela-military-us.html
-
-**U.S. to Repatriate Survivors of Its Strike on Suspected Drug Vessel**\
-`The U.S. military rescued the two men in the Caribbean Sea after Special Operations forces fired on a semi-submersible that was assessed to be smuggling drugs.`\
-https://nytimes.com/2025/10/18/us/politics/boat-strike-survivors.html
-
-**Hurzeler says he was going to substitute Welbeck before Newcastle winner**\
-`The 34-year-old forward scored both of Brighton's goals in the 2-1 win on Saturday.`\
-https://nytimes.com/athletic/6728922/2025/10/18/brighton-danny-welbeck-fabian-hurzeler/
-
-**What the Lakers' final preseason game revealed about their Week 1 rotation**\
-`Friday night's dress rehearsal provided insight into who will likely be in Los Angeles' rotation in the first week of the season.`\
-https://nytimes.com/athletic/6728606/2025/10/18/lakers-rotation-nba-season/
 
