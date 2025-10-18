@@ -1,3 +1,15 @@
+**Nebraska proves it's still not ready for prime time in sobering loss at Minnesota**\
+`Minnesota exposed Nebraska as still vulnerable to the type of effort that so frustrated fans of the Huskers over the past decade.`\
+https://nytimes.com/athletic/6728619/2025/10/18/nebraska-football-minnesota-loss-matt-rhule/
+
+**I Won’t Stop Talking About This Coconut Chicken Curry**\
+`It’s just that smart, flavorful, versatile and easy.`\
+https://nytimes.com/2025/10/18/dining/i-wont-stop-talking-about-this-coconut-chicken-curry.html
+
+**What we’re seeing from each NHL team early in the 2025-26 season**\
+`Whether it’s a star player’s resurgence or the early signs of a troubling trend, there's plenty to take away from a team’s first few games.`\
+https://nytimes.com/athletic/6727178/2025/10/18/nhl-early-season-takeaways-2025-26/
+
 **Turmeric Fried Eggs With Tamarind and Pickled Shallots**\
 `These fried eggs, as good enough to eat as they are to admire, get their wonderfully eccentric appearance from turmeric and chile. You can serve this easy, punchy breakfast as is, or with some hash browns if you’re having them for brunch.`\
 https://nytimes.com/video/dining/100000010366395/turmeric-fried-eggs-with-tamarind-and-pickled-shallots.html
@@ -10,7 +22,7 @@ https://nytimes.com/2025/10/18/us/politics/no-kings-protests-trump.html
 `A lot happened this week.`\
 https://nytimes.com/video/opinion/100000010466180/openai-plans-to-make-chatgpt-more-humanlike-what-could-go-wrong.html
 
-**Miami loss to Louisville complicates its CFP and ACC title hopes**\
+**Miami's loss to Louisville complicates its CFP and ACC title hopes**\
 `Miami's odds to make the College Football Playoff didn't fall drastically after Friday's loss, but its margin for error is shrinking.`\
 https://nytimes.com/athletic/6728480/2025/10/18/miami-louisville-college-football-playoff-odds-acc/
 
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6728402/2025/10/18/washington-commanders-trade-dead
 **When a Hearing Aid Isn’t Enough**\
 `More older adults have turned to cochlear implants after Medicare expanded eligibility for the devices.`\
 https://nytimes.com/2025/10/18/health/cochlear-implants-older-people.html
-
-**Holger Rune injured in bizarre two minutes vs. Ugo Humbert at Nordic Open after ball kid interruption**\
-`The 22-year-old Dane hobbled off the court immediately after a ball kid's movement had cost Humbert a crucial point.`\
-https://nytimes.com/athletic/6728537/2025/10/18/holger-rune-injured-ugo-humbert-nordic-open-ballkid/
-
-**Apathy proved worse than anger for Postecoglou – how have Forest got here so quickly?**\
-`Nottingham Forest have now removed two managers before the middle of October - the positivity of last season is a dim and distant memory `\
-https://nytimes.com/athletic/6728522/2025/10/18/nottingham-forest-ange-postecoglou-sacked/
-
-**Coast Guard Buys Two Private Jets for Noem, Costing $172 Million**\
-`Public documents show the Department of Homeland Security has contracted to purchase a pair of top-of-the-line Gulfstream jets for the secretary and other top officials.`\
-https://nytimes.com/2025/10/18/us/politics/kristi-noem-dhs-gulfstream.html
 

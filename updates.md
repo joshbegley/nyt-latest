@@ -1,3 +1,7 @@
+**Scenes From a Day of Mass Protests**\
+`With signs and chants, protesters take part in ‘No Kings’ rallies focused on what they see as overreach by the Trump administration.`\
+https://nytimes.com/2025/10/18/us/politics/no-kings-protests-trump.html
+
 **Turmeric Fried Eggs With Tamarind and Pickled Shallots**\
 `These fried eggs, as good enough to eat as they are to admire, get their wonderfully eccentric appearance from turmeric and chile. You can serve this easy, punchy breakfast as is, or with some hash browns if you’re having them for brunch.`\
 https://nytimes.com/video/dining/100000010366395/turmeric-fried-eggs-with-tamarind-and-pickled-shallots.html
