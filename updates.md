@@ -1,3 +1,7 @@
+**The Briefing - Nottingham Forest 0 Chelsea 3: Guiu makes the difference, Acheampong's magic moment**\
+`A triple halftime substitution helped Chelsea stroll to an ultimately comfortable win at Nottingham Forest`\
+https://nytimes.com/athletic/6728269/2025/10/18/nottingham-forest-0-chelsea-3-analysis/
+
 **How to watch Oilers vs. Devils: Time, TV, streaming**\
 `Find out how to watch the Edmonton Oilers play the New Jersey Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6728444/2025/10/18/oilers-vs-devils-stream-how-to-watch-oct-18/

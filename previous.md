@@ -1,3 +1,7 @@
+**The Briefing - Nottingham Forest 0 Chelsea 3: Guiu makes the difference, Acheampong's magic moment**\
+`A triple halftime substitution helped Chelsea stroll to an ultimately comfortable win at Nottingham Forest`\
+https://nytimes.com/athletic/6728269/2025/10/18/nottingham-forest-0-chelsea-3-analysis/
+
 **How to watch Oilers vs. Devils: Time, TV, streaming**\
 `Find out how to watch the Edmonton Oilers play the New Jersey Devils, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6728444/2025/10/18/oilers-vs-devils-stream-how-to-watch-oct-18/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/18/world/middleeast/israel-military-gaza-strike-ceas
 **Whirlwind trades, revenue rewards and early bedtimes: Quirks of the NFL in London**\
 `Greg Newsome II had never been to England. Now the Jaguars cornerback is preparing for his second game there in 15 days.`\
 https://nytimes.com/athletic/6728206/2025/10/18/nfl-london-greg-newsome/
-
-**Demonstrators Across the Country Set to Rally Against Trump**\
-`Protesters are expected to gather in more than 2,600 cities and towns to oppose presidential actions they see as authoritarian.`\
-https://nytimes.com/2025/10/18/us/protests-trump-no-kings.html
 
