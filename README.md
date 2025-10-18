@@ -1,3 +1,23 @@
+**Relief and Grief: What Jewish New Yorkers Feel After the Hostage Release**\
+`Two years of the war in Gaza have left many Jews in the city changed. Some have become newly politicized.`\
+https://nytimes.com/2025/10/18/nyregion/israel-gaza-ceasefire-jewish-new-yorkers.html
+
+**One Sign of Mamdani’s Surge: The Impersonators Are Out in Droves**\
+`Neel Ghosh has incorporated the joke that he’s a Mamdani look-alike into his comedy act. There are other impersonators too, sometimes encouraged by the campaign itself.`\
+https://nytimes.com/2025/10/18/nyregion/zohran-mamdani-impersonator-neel-ghosh.html
+
+**The Slow Death of the New York City Public Bench**\
+`Over the years, the bench has evolved from a public amenity to a way to control homeless populations by leaving little or no room to sit down.`\
+https://nytimes.com/2025/10/18/nyregion/nyc-benches.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/10/18/crosswords/spelling-bee-forum.html
+
+**How Wendell Pierce Spends His Day Exploring New York City**\
+`Mr. Pierce, the popular actor from shows like “The Wire,” said time is precious. He spends his shopping in Harlem, walking through Central Park and staying up all night listening to jazz.`\
+https://nytimes.com/2025/10/18/nyregion/routine-wendell-pierce.html
+
 **UNC fumbles away chance for first ACC win under Bill Belichick**\
 `UNC came agonizingly close to a win that could have helped calm the waters surrounding a program that has elicited numerous controversies.`\
 https://nytimes.com/athletic/6727918/2025/10/18/unc-cal-score-result-bill-belichick/
@@ -18,24 +38,4 @@ https://nytimes.com/issue/todayspaper/2025/10/18/todays-new-york-times
 `Bertuzzi had what he thought was a good goal, but then an interference call and an unsuccessful challenge by Chicago kept it from counting.
 `\
 https://nytimes.com/athletic/6727869/2025/10/18/blackhawks-canucks-goalie-interference-tyler-bertuzzi/
-
-**Liverpool look in better shape after the international break – can they recharge their season?**\
-`Liverpool arguably come out of the international in better shape than they entered it. Opportunity knocks as Manchester United visit Anfield`\
-https://nytimes.com/athletic/6720536/2025/10/18/arne-slot-liverpool-manchester-united/
-
-**What can Ruben Amorim learn from Oliver Glasner about using 3-4-3 to beat Liverpool?**\
-`Crystal Palace surprised Arne Slot's side this season, but they approached the game differently from how United usually set up`\
-https://nytimes.com/athletic/6696330/2025/10/18/what-man-utds-amorim-can-learn-from-glasner-about-using-3-4-3-to-beat-liverpool/
-
-**The Ashes is devoid of natural pantomime villains. Could Sam Konstas step into the breach?**\
-`What always gave the Australia-England rivalry an extra edge were individuals who were thought of by the opposition as cartoonish baddies`\
-https://nytimes.com/athletic/6725527/2025/10/18/ashes-villains-konstas-broad-warner/
-
-**The non-League manager who doesn't want his players to drink alcohol. Does he have a point?**\
-`Matt Saunders made a plea for 'professional standards', but is that a fair demand from players who aren't professionals?`\
-https://nytimes.com/athletic/6726125/2025/10/18/viral-soccer-manager-england-drinking-culture/
-
-**How are a small club from a fishing village about to win the Swedish title?**\
-`"If you look at the underlying numbers, Mjallby have been overperforming quite a lot."`\
-https://nytimes.com/athletic/6722277/2025/10/18/mjallby-swedish-title-against-odds-xg/
 

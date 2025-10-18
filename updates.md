@@ -8,6 +8,11 @@ https://nytimes.com/athletic/6727869/2025/10/18/blackhawks-canucks-goalie-interf
 `\
 https://nytimes.com/athletic/6727869/2025/10/18/blackhawks-canucks-goalie-interference-tyler-bertuzzi/
 
+**Blackhawks confused by Tyler Bertuzzi interference vs. Canucks: ‘Not that great of a call’**\
+`Bertuzzi had what he thought was a good goal, but then an interference call and an unsuccessful challenge by Chicago kept it from counting.
+`\
+https://nytimes.com/athletic/6727869/2025/10/18/blackhawks-canucks-goalie-interference-tyler-bertuzzi/
+
 **Liverpool look in better shape after the international break – can they recharge their season?**\
 `Liverpool arguably come out of the international in better shape than they entered it. Opportunity knocks as Manchester United visit Anfield`\
 https://nytimes.com/athletic/6720536/2025/10/18/arne-slot-liverpool-manchester-united/
