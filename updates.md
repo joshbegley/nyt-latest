@@ -1,3 +1,7 @@
+**Shohei Ohtani’s 3-homer, 10-strikeout game powers Dodgers back to World Series**\
+`Ohtani stole the show with perhaps the greatest individual performance in MLB playoff history.`\
+https://nytimes.com/athletic/6727628/2025/10/17/dodgers-brewers-game-4-score-results-takeaways-playoffs-mlb/
+
 **Shohei Ohtani's ridiculous night: 3 homers at plate, 10 strikeouts on mound**\
 `It was the first leadoff homer ever by a pitcher in baseball history, regular season or postseason.`\
 https://nytimes.com/athletic/6727536/2025/10/17/shohei-ohtani-dodgers-mlb-game-4-homer-strikeouts/
