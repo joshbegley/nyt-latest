@@ -1,3 +1,19 @@
+**Pat Fitzgerald makes first public appearance at Northwestern since his firing**\
+`Fitzgerald's firing followed an investigation into hazing allegations from some of his former players.`\
+https://nytimes.com/athletic/6729065/2025/10/18/pat-fitzgerald-northwestern-appearance/
+
+**What Wikipedia’s Co-Founder Searches For on Wikipedia**\
+`On the latest edition of “The Interview,” Jimmy Wales, the co-founder of Wikipedia, spoke with host Lulu Garcia-Navarro about claims that Wikipedia is biased, building trust online and what his site can teach the world.`\
+https://nytimes.com/video/podcasts/100000010467091/what-wikipedias-co-founder-searches-for-on-wikipedia.html
+
+**Michigan vs. Washington: Redemption for the D, plus more takeaways from 24-7 win**\
+`Michigan tightened up the loose screws from last week and limited the Huskies to 249 yards, an average of 4.5 per play.`\
+https://nytimes.com/athletic/6728986/2025/10/18/michigan-vs-washington-takeways-defense/
+
+**Clemson QB Cade Klubnik out vs. SMU; Christopher Vizzina starts**\
+`Klubnik went through warmups with his ankle taped, but during the Tigers’ team walk into the stadium, he could be seen walking with a limp.`\
+https://nytimes.com/athletic/6728992/2025/10/18/clemson-cade-klubnik-christopher-vizzina/
+
 **Diego Pavia shines as No. 17 Vanderbilt takes down No. 10 LSU**\
 `Pavia and coach Clark Lea’s team has put itself in position for a first-ever opportunity: competing for a national championship.`\
 https://nytimes.com/athletic/6729107/2025/10/18/vanderbilt-lsu-score-highlights-diego-pavia/
