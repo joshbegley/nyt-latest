@@ -1,9 +1,13 @@
+**The Pulse: Ohtani's impossible performance**\
+`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
+https://nytimes.com/athletic/6727811/2025/10/18/ohtani-does-the-impossible-as-miami-crashes-at-home/
+
 **Israeli Military Fires On Vehicle, Saying It Crossed Cease-Fire Lines**\
 `Gaza’s rescue service said at least nine people were killed in the strike in northern Gaza on Friday, a week after Israeli forces withdrew to agreed-upon lines.`\
 https://nytimes.com/2025/10/18/world/middleeast/israel-military-gaza-strike-cease-fire.html
 
-**Whirlwind trades, revenue rewards and early bedtimes – the quirks of NFL in London**\
-`Greg Newsome II had never been to England – now the Jacksonville Jaguars cornerback is preparing for his second game there 15 days.`\
+**Whirlwind trades, revenue rewards and early bedtimes: Quirks of the NFL in London**\
+`Greg Newsome II had never been to England. Now the Jaguars cornerback is preparing for his second game there in 15 days.`\
 https://nytimes.com/athletic/6728206/2025/10/18/nfl-london-greg-newsome/
 
 **Demonstrators Across the Country Set to Rally Against Trump**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6726749/2025/10/18/blues-scratch-logan-mailloux-chr
 **The Risk That Built America**\
 `Speculation isn’t a bug in America’s economic code, but a crucial component part of the engine, writes Andrew Ross Sorkin.`\
 https://nytimes.com/2025/10/18/business/dealbook/the-risk-that-built-america.html
-
-**From NHL to UFC, brothers Jeff and Mike Malott fighting along parallel paths**\
-`“Anytime one of us has a big moment coming up, we're always each other's biggest fans," LA Kings winger Jeff Malott said of brother Mike.`\
-https://nytimes.com/athletic/6727283/2025/10/18/malott-brothers-ufc-kings-nhl/
 

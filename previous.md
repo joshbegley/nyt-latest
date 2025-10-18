@@ -1,3 +1,11 @@
+**Israeli Military Fires On Vehicle, Saying It Crossed Cease-Fire Lines**\
+`Gaza’s rescue service said at least nine people were killed in the strike in northern Gaza on Friday, a week after Israeli forces withdrew to agreed-upon lines.`\
+https://nytimes.com/2025/10/18/world/middleeast/israel-military-gaza-strike-cease-fire.html
+
+**Whirlwind trades, revenue rewards and early bedtimes – the quirks of NFL in London**\
+`Greg Newsome II had never been to England – now the Jacksonville Jaguars cornerback is preparing for his second game there 15 days.`\
+https://nytimes.com/athletic/6728206/2025/10/18/nfl-london-greg-newsome/
+
 **Demonstrators Across the Country Set to Rally Against Trump**\
 `Protesters are expected to gather in more than 2,600 cities and towns to oppose presidential actions they see as authoritarian.`\
 https://nytimes.com/2025/10/18/us/protests-trump-no-kings.html
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/18/business/dealbook/the-risk-that-built-america.htm
 **From NHL to UFC, brothers Jeff and Mike Malott fighting along parallel paths**\
 `“Anytime one of us has a big moment coming up, we're always each other's biggest fans," LA Kings winger Jeff Malott said of brother Mike.`\
 https://nytimes.com/athletic/6727283/2025/10/18/malott-brothers-ufc-kings-nhl/
-
-**The Trade-Offs of the South’s ‘Yellowstone’-ification**\
-`Jamelle Bouie says the South’s appeal isn’t just cheaper living; it’s the power to use wealth to control others.`\
-https://nytimes.com/video/opinion/100000010462036/the-trade-offs-of-the-souths-yellowstone-ification.html
-
-**Why America Loves to Hate on the South**\
-`Tressie McMillan Cottom argues that our obsession with Southern culture isn’t just about charm or nostalgia. It’s about reassurance. We romanticize its music, verandas and magnolias, yet, despite the political drift in other states, insist that “at least we’re not the South.”`\
-https://nytimes.com/video/opinion/100000010462034/why-america-loves-to-hate-on-the-south.html
 
