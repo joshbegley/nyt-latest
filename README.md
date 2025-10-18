@@ -1,3 +1,7 @@
+**Diego Pavia shines as No. 17 Vanderbilt takes down No. 10 LSU**\
+`Pavia and coach Clark Lea’s team has put itself in position for a first-ever opportunity: competing for a national championship.`\
+https://nytimes.com/athletic/6729107/2025/10/18/vanderbilt-lsu-score-highlights-diego-pavia/
+
 **How to watch Penguins vs. Sharks: Time, TV, streaming**\
 `Find out how to watch the Pittsburgh Penguins play the San Jose Sharks, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6729123/2025/10/18/penguins-vs-sharks-stream-how-to-watch-oct-18/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6729012/2025/10/18/deebo-samuel-injury-update-statu
 **Wikipedia’s Co-Founder Answers Elon Musk’s Attacks**\
 `Elon Musk has recently targeted Wikipedia, calling the platform “Wokepedia” and vowing to launch a competing site.`\
 https://nytimes.com/video/podcasts/100000010467039/wikipedias-co-founder-answers-elon-musks-attacks.html
-
-**The Briefing - Fulham 0 Arsenal 1: How important will Trossard's goal prove? Did Arteta read riot act? Was Odegaard missed?**\
-`Leandro Trossard scored a crucial goal to earn Arsenal all the points against Fulham - The Athletic analyses the action `\
-https://nytimes.com/athletic/6728281/2025/10/18/fulham-0-arsenal-1-how-important-will-trossards-goal-prove-did-arteta-read-riot-act-was-odegaard-missed/
 

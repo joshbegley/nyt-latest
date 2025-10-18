@@ -1,3 +1,35 @@
+**How to watch Penguins vs. Sharks: Time, TV, streaming**\
+`Find out how to watch the Pittsburgh Penguins play the San Jose Sharks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6729123/2025/10/18/penguins-vs-sharks-stream-how-to-watch-oct-18/
+
+**How to watch Flames vs. Golden Knights: Time, TV, streaming**\
+`Find out how to watch the Calgary Flames play the Vegas Golden Knights, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6729121/2025/10/18/flames-vs-golden-knights-stream-how-to-watch-oct-18/
+
+**How to watch Bruins vs. Avalanche: Time, TV, streaming**\
+`Find out how to watch the Boston Bruins play the Colorado Avalanche, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6729119/2025/10/18/bruins-vs-avalanche-stream-how-to-watch-oct-18/
+
+**How to watch Hurricanes vs. Kings: Time, TV, streaming**\
+`Find out how to watch the Carolina Hurricanes play the Los Angeles Kings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6729117/2025/10/18/hurricanes-vs-kings-stream-how-to-watch-oct-18/
+
+**Sea Otters Are Stealing Surfboards in California. Again.**\
+`Two years after Otter 841 menaced wave riders near Santa Cruz, there have been new encounters between the furry marine mammals and surfers.`\
+https://nytimes.com/2025/10/18/science/sea-otters-surfboard-santa-cruz.html
+
+**Chelsea in discussions to appoint former Liverpool scouting director Dave Fallows**\
+`Fallows left Liverpool in October 2024 after spending 12 years at the club.`\
+https://nytimes.com/athletic/6729021/2025/10/18/dave-fallows-director-chelsea-liverpool/
+
+**Jury Awards $19.7 Million to 6 Bystanders Wounded in Denver Police Shooting**\
+`The bystanders were injured when a Denver police officer fired, while facing a crowd of people, at an armed man outside a bar in 2022.`\
+https://nytimes.com/2025/10/18/us/denver-police-shooting-award.html
+
+**Commanders' Deebo Samuel out vs. Cowboys with heel injury**\
+`Samuel's absence comes after Washington already ruled out Terry McLaurin and Noah Brown for Sunday's game.`\
+https://nytimes.com/athletic/6729012/2025/10/18/deebo-samuel-injury-update-status-commanders-cowboys/
+
 **Wikipedia’s Co-Founder Answers Elon Musk’s Attacks**\
 `Elon Musk has recently targeted Wikipedia, calling the platform “Wokepedia” and vowing to launch a competing site.`\
 https://nytimes.com/video/podcasts/100000010467039/wikipedias-co-founder-answers-elon-musks-attacks.html
@@ -5,36 +37,4 @@ https://nytimes.com/video/podcasts/100000010467039/wikipedias-co-founder-answers
 **The Briefing - Fulham 0 Arsenal 1: How important will Trossard's goal prove? Did Arteta read riot act? Was Odegaard missed?**\
 `Leandro Trossard scored a crucial goal to earn Arsenal all the points against Fulham - The Athletic analyses the action `\
 https://nytimes.com/athletic/6728281/2025/10/18/fulham-0-arsenal-1-how-important-will-trossards-goal-prove-did-arteta-read-riot-act-was-odegaard-missed/
-
-**Giants closing in on hiring Tennessee coach Tony Vitello as next manager: Sources**\
-`Vitello's hiring would be a nearly unprecedented leap for someone with no professional coaching experience.`\
-https://nytimes.com/athletic/6728952/2025/10/18/sf-giants-tony-vitello-manager/
-
-**Case Against Bolton Raises Questions Over Justice Dept.’s Use of Espionage Act**\
-`The allegations in his case are a pointed example of when classified information tumbles into nonsecure places, either by accident or from recklessness by someone trusted to keep it safe.`\
-https://nytimes.com/2025/10/18/us/bolton-indictment-justice-dept-espionage-act.html
-
-**David Attenborough Becomes Oldest Daytime Emmy Winner at 99**\
-`The British documentarian and naturalist beat the record set by Dick Van Dyke, who won a Daytime Emmy last year at 98.`\
-https://nytimes.com/2025/10/18/arts/television/attenborough-daytime-emmys-oldest.html
-
-**Max Verstappen wins Austin sprint race, both McLarens crash out at Turn 1**\
-`Max Verstappen won the sprint race at Formula One's 2025 United States GP, with both McLarens eliminated in a Turn 1 crash`\
-https://nytimes.com/athletic/6728933/2025/10/18/max-verstappen-austin-f1-sprint-race/
-
-**Venezuela Announces Sweeping Military Exercises as U.S. Escalates Pressure**\
-`President Nicolás Maduro this week called on civilians to help the country defend itself, while his defense minister warned citizens to “prepare for the worst.”`\
-https://nytimes.com/2025/10/18/world/americas/venezuela-military-us.html
-
-**U.S. to Repatriate Survivors of Its Strike on Suspected Drug Vessel**\
-`The U.S. military rescued the two men in the Caribbean Sea after Special Operations forces fired on a semi-submersible that was assessed to be smuggling drugs.`\
-https://nytimes.com/2025/10/18/us/politics/boat-strike-survivors.html
-
-**Hurzeler says he was going to substitute Welbeck before Newcastle winner**\
-`The 34-year-old forward scored both of Brighton's goals in the 2-1 win on Saturday.`\
-https://nytimes.com/athletic/6728922/2025/10/18/brighton-danny-welbeck-fabian-hurzeler/
-
-**What the Lakers' final preseason game revealed about their Week 1 rotation**\
-`Friday night's dress rehearsal provided insight into who will likely be in Los Angeles' rotation in the first week of the season.`\
-https://nytimes.com/athletic/6728606/2025/10/18/lakers-rotation-nba-season/
 
