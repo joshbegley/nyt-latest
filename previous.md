@@ -1,3 +1,11 @@
+**The Trade-Offs of the South’s ‘Yellowstone’-ification**\
+`Jamelle Bouie says the South’s appeal isn’t just cheaper living; it’s the power to use wealth to control others.`\
+https://nytimes.com/video/opinion/100000010462036/the-trade-offs-of-the-souths-yellowstone-ification.html
+
+**Why America Loves to Hate on the South**\
+`Tressie McMillan Cottom argues that our obsession with Southern culture isn’t just about charm or nostalgia. It’s about reassurance. We romanticize its music, verandas and magnolias, yet, despite the political drift in other states, insist that “at least we’re not the South.”`\
+https://nytimes.com/video/opinion/100000010462034/why-america-loves-to-hate-on-the-south.html
+
 **Head punches, game management and the chance of a no: Etiquette inside an NHL fight**\
 `When an NHLer asks an opponent to fight, he has to execute multiple calculations — and have a willing partner. Here's what goes into it.`\
 https://nytimes.com/athletic/6719808/2025/10/18/nhl-fighting-strategy-etiquette/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/18/opinion/trump-north-south-politics.html
 **We Should Be Cracking Down on the Cartels, Not Chicago**\
 `The Trump administration risks squandering the progress it has made in securing the border.`\
 https://nytimes.com/2025/10/18/opinion/illegal-immigration-chicago-cartels.html
-
-**In Search of Better Ways to Understand Autism**\
-`Readers weigh in on the challenges of defining and diagnosing the condition.`\
-https://nytimes.com/2025/10/18/opinion/autism-spectrum-diagnosis.html
-
-**One New York Rangers thought for each of the first 6 games of the season**\
-`Six games into their first season under coach Mike Sullivan, the New York Rangers are being tested.`\
-https://nytimes.com/athletic/6726835/2025/10/18/new-york-rangers-2025-26-season-analysis/
 
