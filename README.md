@@ -1,3 +1,7 @@
+**Three arrested after England flag pitch invasion at Salford in alleged protest against Neville**\
+`Police confirmed three men had been arrested on suspicion of entering the field of play during Salford's match against Oldham.`\
+https://nytimes.com/athletic/6728448/2025/10/18/salford-fans-gary-neville-arrested/
+
 **Restaurant Review: I Cavallini**\
 `Ligaya Mishan, one of The New York Times’s chief restaurant critics, visits I Cavallini, an Italian restaurant in Brooklyn that draws a line of reverent diners every night.`\
 https://nytimes.com/video/dining/100000010462290/restaurant-review-i-cavallini.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6728820/2025/10/18/predators-vs-jets-stream-how-to-
 **How to watch Kraken vs. Maple Leafs: Time, TV, streaming**\
 `Find out how to watch the Seattle Kraken play the Toronto Maple Leafs, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6728819/2025/10/18/kraken-vs-maple-leafs-stream-how-to-watch-oct-18/
-
-**How to watch Rangers vs. Canadiens: Time, TV, streaming**\
-`Find out how to watch the New York Rangers play the Montreal Canadiens, with time, TV channel and streaming information.`\
-https://nytimes.com/athletic/6728816/2025/10/18/rangers-vs-canadiens-stream-how-to-watch-oct-18/
 
