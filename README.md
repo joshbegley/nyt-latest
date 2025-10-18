@@ -1,3 +1,11 @@
+**Potter finalising deal to become Sweden head coach**\
+`Potter, 50, is in talks over an initial short-term deal and would replace Jon Dahl Tomasson in the role.`\
+https://nytimes.com/athletic/6725869/2025/10/18/graham-potter-sweden-manager-next/
+
+**How Southern Politics Shaped Trumpism**\
+`Three Southern Opinion columnists on the region and its outsize role in national politics.`\
+https://nytimes.com/video/opinion/100000010462025/how-southern-politics-shaped-trumpism.html
+
 **Ukraine Braces for New Talks Without the Leverage of New Missiles**\
 `President Trump backed off selling Tomahawk missiles to Kyiv, opting instead for talks with Russia. Still, Ukraine’s negotiating position has strengthened since the summer.`\
 https://nytimes.com/2025/10/18/world/europe/ukraine-trump-talks.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6727207/2025/10/18/mariners-2025-mlb-postseason-ets
 **Vikings-Eagles predictions: What we're watching in critical early-season NFC matchup**\
 `The Vikings host the struggling Eagles on Sunday. Can Minnesota get it done coming off its bye, or will Philly get back to its winning ways?`\
 https://nytimes.com/athletic/6727107/2025/10/18/vikings-eagles-predictions-preview-week-7/
-
-**F1 roundtable: Will the Apple TV deal harm casual fan interest in America?**\
-`F1 fans in the United States want to know what the sport's new TV deal means for their access. Our experts discuss this news`\
-https://nytimes.com/athletic/6727204/2025/10/18/f1-apple-tv-roundtable/
-
-**NFL Week 7 roundtable: Patriots’ resurgence, Chargers test Colts, NFC North in flux**\
-`Can the Patriots win the AFC East? Will Colts-Chargers be Sunday's best game? Our writers discuss.`\
-https://nytimes.com/athletic/6726748/2025/10/18/nfl-week-7-patriots-chargers-nfc-north/
 
