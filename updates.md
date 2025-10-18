@@ -1,3 +1,7 @@
+**Venezuela Announces Sweeping Military Exercises as U.S. Escalates Pressure**\
+`President Nicolás Maduro this week called on civilians to help the country defend itself, while his defense minister warned citizens to “prepare for the worst.”`\
+https://nytimes.com/2025/10/18/world/americas/venezuela-military-us.html
+
 **U.S. to Repatriate Survivors of Its Strike on Suspected Drug Vessel**\
 `The U.S. military rescued the two men in the Caribbean Sea after Special Operations forces fired on a semi-submersible that was assessed to be smuggling drugs.`\
 https://nytimes.com/2025/10/18/us/politics/boat-strike-survivors.html

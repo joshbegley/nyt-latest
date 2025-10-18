@@ -1,3 +1,7 @@
+**Max Verstappen wins Austin sprint race, both McLarens crash out at Turn 1**\
+`Max Verstappen won the sprint race at Formula One's 2025 United States GP, with both McLarens eliminated in a Turn 1 crash`\
+https://nytimes.com/athletic/6728933/2025/10/18/max-verstappen-wins-austin-sprint-race-both-mclarens-crash-out-at-turn-1/
+
 **Venezuela Announces Sweeping Military Exercises as U.S. Escalates Pressure**\
 `President Nicolás Maduro this week called on civilians to help the country defend itself, while his defense minister warned citizens to “prepare for the worst.”`\
 https://nytimes.com/2025/10/18/world/americas/venezuela-military-us.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6728793/2025/10/18/hansi-flick-barcelona-el-clasico
 **Sheet-Pan Feta With Corn and Shishito Peppers**\
 `It takes fewer than 10 minutes for the broiler to deliver a complete meal of molten, salty feta, sweet corn and smoky shishito peppers.`\
 https://nytimes.com/video/dining/100000010462292/sheet-pan-feta-with-corn-and-shishito-peppers.html
-
-**Watch: Tetairoa McMillan quickly proving any doubters wrong**\
-`McMillan has wasted no time establishing himself as one of Bryce Young's favorite targets.`\
-https://nytimes.com/athletic/6728647/2025/10/18/tetairoa-mcmillan-panthers-rookie-season-video/
 

@@ -1,3 +1,7 @@
+**Venezuela Announces Sweeping Military Exercises as U.S. Escalates Pressure**\
+`President Nicolás Maduro this week called on civilians to help the country defend itself, while his defense minister warned citizens to “prepare for the worst.”`\
+https://nytimes.com/2025/10/18/world/americas/venezuela-military-us.html
+
 **U.S. to Repatriate Survivors of Its Strike on Suspected Drug Vessel**\
 `The U.S. military rescued the two men in the Caribbean Sea after Special Operations forces fired on a semi-submersible that was assessed to be smuggling drugs.`\
 https://nytimes.com/2025/10/18/us/politics/boat-strike-survivors.html
@@ -33,8 +37,4 @@ https://nytimes.com/video/dining/100000010462292/sheet-pan-feta-with-corn-and-sh
 **Watch: Tetairoa McMillan quickly proving any doubters wrong**\
 `McMillan has wasted no time establishing himself as one of Bryce Young's favorite targets.`\
 https://nytimes.com/athletic/6728647/2025/10/18/tetairoa-mcmillan-panthers-rookie-season-video/
-
-**James Franklin talks 'surreal' firing from Penn State on ESPN 'College GameDay' interview**\
-`"We’re just going to go win the national championship somewhere else now," Franklin said.`\
-https://nytimes.com/athletic/6728645/2025/10/18/james-franklin-interview-college-gameday-penn-state-firing/
 
