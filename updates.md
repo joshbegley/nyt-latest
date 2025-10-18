@@ -1,3 +1,7 @@
+**U.S. Agency That Protects Nuclear Arsenal to Furlough Workers**\
+`The National Nuclear Security Administration said 1,400 workers would be affected by Monday.`\
+https://nytimes.com/2025/10/17/us/politics/nuclear-weapons-agency-furloughs-shutdown.html
+
 **Can’t Cool Off**\
 `Samuel Smalley’s second Saturday grid comes in hot.`\
 https://nytimes.com/2025/10/17/crosswords/daily-puzzle-2025-10-18.html
