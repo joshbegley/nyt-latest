@@ -1,5 +1,9 @@
+**Can’t Cool Off**\
+`Samuel Smalley’s second Saturday grid comes in hot.`\
+https://nytimes.com/2025/10/17/crosswords/daily-puzzle-2025-10-18.html
+
 **Mariners-Blue Jays Game 5 takeaways: Homers from Cal Raleigh, Eugenio Suárez put Seattle in front**\
-`SEATTLE — For two games and seven innings in the American League Championship Series here, the Seattle Mariners could do almost nothing right against the Toronto Blue Jays.`\
+`Mariners' offense comes alive in the eighth inning, and Seattle is one win from its first appearance in the World Series.`\
 https://nytimes.com/athletic/6727437/2025/10/17/blue-jays-mariners-game-5-score-results-takeaways-playoffs-mlb/
 
 **Shohei Ohtani's incredible first inning: 3 strikeouts on mound, leadoff HR at plate**\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/17/us/politics/trump-zelensky-putin-tomahawks.html
 **Prosecutor Who Rejected Trump’s Pressure to Charge James Is Fired**\
 `The dismissal was the latest fallout from attempts by career Justice Department officials to impede the president’s wide-ranging campaign of retribution. The prosecutor’s deputy was also fired.`\
 https://nytimes.com/2025/10/17/us/politics/trump-prosecutor-fired-letitia-james.html
-
-**Tennessee Officials Sue Over National Guard Presence in Memphis**\
-`Backed by a liberal-leaning legal nonprofit, seven Tennessee officials filed a lawsuit on Friday challenging the deployment of troops in Memphis.`\
-https://nytimes.com/2025/10/17/us/politics/memphis-national-guard-lawsuit.html
 
