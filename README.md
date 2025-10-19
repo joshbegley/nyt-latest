@@ -1,3 +1,11 @@
+**NFL Week 7 storylines: Jared Goff-Baker Mayfield showdown, Mike Vrabel's revenge game**\
+`The defending champion Eagles are in crisis after two straight losses and need to get back on track against their former QB Carson Wentz. `\
+https://nytimes.com/athletic/6723712/2025/10/19/nfl-week-7-jared-goff-baker-mayfield-vrabel/
+
+**The New York Times International Edition in Print for Monday, Oct. 20, 2025**\
+``\
+https://nytimes.com/issue/todaysinyt/2025/10/19/todays-new-york-times-international-edition
+
 **How to watch Canucks vs. Capitals: Time, TV, streaming**\
 `Find out how to watch the Vancouver Canucks play the Washington Capitals, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6730192/2025/10/19/canucks-vs-capitals-stream-how-to-watch-oct-19/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/19/world/middleeast/gaza-city-israel-hamas-cease-fir
 **A Squalid Building, a Tip to the Feds, and Then ‘Straight-Up Chaos’**\
 `An immigration raid on an apartment building in Chicago followed years of problems with crime, and neglect by landlords. It swept up dozens of U.S. citizens who were detained in the middle of the night.`\
 https://nytimes.com/2025/10/19/us/chicago-south-shores-border-patrol-raid.html
-
-**The Tech Right Gets Its Own Phyllis Schlafly**\
-`Katherine Boyle, an influential venture capitalist who is a friend of the vice president, thinks the country’s path forward involves cultural conservatism and more weapons production.`\
-https://nytimes.com/2025/10/19/business/katherine-boyle-andreesen-horowitz-american-dynamism.html
-
-**It’s 2025, and Democrats Are Still Running Against Trump**\
-`In New Jersey, Virginia and beyond, voters have been inundated with ads linking Republican candidates to the president. Some Democratic strategists see a missed opportunity to forge a more positive message.`\
-https://nytimes.com/2025/10/19/us/politics/democratic-campaign-ads-trump.html
 
