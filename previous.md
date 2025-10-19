@@ -1,3 +1,11 @@
+**Blue Jackets Sunday Gathering: The franchise's first pick nearly landed elsewhere**\
+`When members of the inaugural Blue Jackets team were honored this past week, Klesla had a brush with what might have been.`\
+https://nytimes.com/athletic/6727303/2025/10/19/blue-jackets-rostislav-klesla-injuries/
+
+**Yohe's 10 observations: Tristan Jarry shines as Penguins blank Sharks**\
+`Jarry pitched a shutout as the Penguins won 3-0 on Saturday in San Jose.`\
+https://nytimes.com/athletic/6728801/2025/10/19/penguins-tristan-jarry-sharks-observations/
+
 **At Least 14 Injured in Hit-and-Run at a Child’s Birthday Party**\
 `A driver fled the scene after ramming a vehicle into a group of people, including children, outside a Maryland home on Saturday night, the police said.`\
 https://nytimes.com/2025/10/19/us/crash-birthday-party-bladensburg.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6680237/2025/10/19/kevin-durant-contract-extension-
 **Cardinals to start QB Jacoby Brissett vs. Green Bay with Kyler Murray out: Source**\
 `Brissett, who is 19-35 as a starter, will start as Arizona's quarterback for the second straight week with Kyler Murray out.`\
 https://nytimes.com/athletic/6729282/2025/10/19/jacoby-brissett-start-cardinals-packers/
-
-**Trump Administration Live Updates: President Threatens to Withdraw Aid to Colombia in Feud Over Caribbean Strikes**\
-``\
-https://nytimes.com/live/2025/10/19/us/trump-news
-
-**On ‘Saturday Night Live,’ a Milestone for Domingo**\
-`Marcello Hernández’s viral character kicked off an episode hosted by Sabrina Carpenter, while President Trump visited a most unlikely podcast.`\
-https://nytimes.com/2025/10/19/arts/television/on-saturday-night-live-a-milestone-for-domingo.html
 

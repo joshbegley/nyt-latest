@@ -1,3 +1,11 @@
+**Blue Jackets Sunday Gathering: The franchise's first pick nearly landed elsewhere**\
+`When members of the inaugural Blue Jackets team were honored this past week, Klesla had a brush with what might have been.`\
+https://nytimes.com/athletic/6727303/2025/10/19/blue-jackets-rostislav-klesla-injuries/
+
+**Yohe's 10 observations: Tristan Jarry shines as Penguins blank Sharks**\
+`Jarry pitched a shutout as the Penguins won 3-0 on Saturday in San Jose.`\
+https://nytimes.com/athletic/6728801/2025/10/19/penguins-tristan-jarry-sharks-observations/
+
 **Trump Administration Live Updates: President Threatens to Withdraw Aid to Colombia in Feud Over Caribbean Strikes**\
 ``\
 https://nytimes.com/live/2025/10/19/us/trump-news
