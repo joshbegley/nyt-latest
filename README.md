@@ -1,3 +1,11 @@
+**How to watch Bruins vs. Mammoth: Time, TV, streaming**\
+`Find out how to watch the Boston Bruins play the Utah Mammoth, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6730614/2025/10/19/bruins-vs-mammoth-stream-how-to-watch-oct-19/
+
+**How to watch Ducks vs. Blackhawks: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the Chicago Blackhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6730612/2025/10/19/ducks-vs-blackhawks-stream-how-to-watch-oct-19/
+
 **The Briefing - Tottenham 1 Villa 2: What went wrong after flying start? Did Danso prove a point?**\
 `The Athletic breaks down the talking points from Tottenham's home defeat to Aston Villa `\
 https://nytimes.com/athletic/6728282/2025/10/19/tottenham-1-aston-villa-2-thomas-frank-analysis/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6729984/2025/10/19/canadiens-rangers-loss-depth/
 **Atlanta United fires head coach Ronny Deila after one win in 18**\
 `"Our standard of play was not met this season," Atlanta CEO and president Garth Lagerwey said in a release Sunday.`\
 https://nytimes.com/athletic/6730387/2025/10/19/ronny-deila-atlanta-united-mls/
-
-**College Football Playoff 2025 projections: How did Week 8 change the bracket?**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/10/19/college-football-playoff-bracket-projections-odds/
-
-**Predicting the College Football Playoff: Georgia jumps, Miami and Texas Tech slide**\
-`The College Football Playoff margin for error for Miami and Texas Tech is much slimmer following Week 8 losses.`\
-https://nytimes.com/athletic/6730052/2025/10/19/college-football-playoff-2025-bracket-prediction-week-8/
 
