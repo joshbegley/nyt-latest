@@ -1,3 +1,11 @@
+**Demaryius Thomas joins Broncos' Ring of Fame, his bust adorned with 'that smile'**\
+`The Broncos unveiled Thomas' Ring of Fame pillar Sunday, which sits, fittingly, next to that of his quarterback, Peyton Manning.`\
+https://nytimes.com/athletic/6730859/2025/10/19/demaryius-thomas-broncos-ring-of-fame/
+
+**Kim Kardashian, Jenna Ortega and Hailey Bieber Light Up the Academy Museum Gala**\
+`The fund-raiser in Los Angeles drew stars who were masked, shoeless and gushing about this season’s Oscar hopefuls.`\
+https://nytimes.com/2025/10/19/style/academy-museum-gala-kim-kardashian.html
+
 **Sam Rivers, Bassist for Limp Bizkit, Dies at 48**\
 `As a founding member of the band, he helped it achieve mainstream success.`\
 https://nytimes.com/2025/10/19/arts/music/sam-rivers-dead.html

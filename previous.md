@@ -1,3 +1,7 @@
+**Demaryius Thomas joins Broncos' Ring of Fame, his bust adorned with 'that smile'**\
+`The Broncos unveiled Thomas' Ring of Fame pillar Sunday, which sits, fittingly, next to that of his quarterback, Peyton Manning.`\
+https://nytimes.com/athletic/6730859/2025/10/19/demaryius-thomas-broncos-ring-of-fame/
+
 **Sam Rivers, Bassist for Limp Bizkit, Dies at 48**\
 `As a founding member of the band, he helped it achieve mainstream success.`\
 https://nytimes.com/2025/10/19/arts/music/sam-rivers-dead.html
@@ -20,7 +24,7 @@ https://nytimes.com/athletic/6731202/2025/10/19/arne-slot-liverpool-man-utd/
 
 **Kim Kardashian, Jenna Ortega and Hailey Bieber Light Up the Academy Museum Gala**\
 `The fund-raiser in Los Angeles drew stars who were masked, shoeless and gushing about this season’s Oscar hopefuls.`\
-https://nytimes.com/2025/10/19/style/kim-kardashian-jenna-ortega-and-hailey-bieber-light-up-the-academy-museum-gala.html
+https://nytimes.com/2025/10/19/style/academy-museum-gala-kim-kardashian.html
 
 **Feldman's candidates to replace Billy Napier at Florida, from Kiffin to Golesh**\
 `The Gators have a few quality candidates from the SEC and Big Ten head coaching ranks. `\
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/19/us/politics/trump-military-boat-strike-colombia.h
 **Colorado State fires coach Jay Norvell amid fourth season: Source**\
 `Jay Norvell improved Colorado State's record from 3-9 in Year 1 to 8-5 in Year 3, but the Rams stumbled to 2-5 before he was fired.`\
 https://nytimes.com/athletic/6684666/2025/10/19/jay-norvell-colorado-state-coach-fired-candidates/
-
-**George Santos Is Back on TV Two Days After His Release From Prison**\
-`Mr. Santos, the disgraced congressman from Long Island, lashed out at the warden of the prison where he had been held and suggested he was now free to get Botox.`\
-https://nytimes.com/2025/10/19/nyregion/santos-cnn-fox-prison-release.html
 
