@@ -1,3 +1,7 @@
+**UAB hands Memphis its first loss days after firing Trent Dilfer**\
+`The Blazers stopped No. 22 Memphis from inside the 10 yard line in the final seconds in its first game after firing its head coach.`\
+https://nytimes.com/athletic/6729440/2025/10/18/uab-hands-memphis-its-first-loss-days-after-firing-trent-dilfer/
+
 **Woman Who Tried to Let Her Twin Take Blame for Fatal Buggy Crash Gets 4 Years in Prison**\
 `The crash killed two Amish children and injured two others in rural Minnesota in 2023.`\
 https://nytimes.com/2025/10/18/us/minnesota-amish-buggy-crash-sentence.html

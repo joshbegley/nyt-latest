@@ -1,3 +1,7 @@
+**UAB hands Memphis its first loss days after firing Trent Dilfer**\
+`The Blazers stopped No. 22 Memphis from inside the 10 yard line in the final seconds in its first game after firing its head coach.`\
+https://nytimes.com/athletic/6729440/2025/10/18/uab-hands-memphis-its-first-loss-days-after-firing-trent-dilfer/
+
 **Woman Who Tried to Let Her Twin Take Blame for Fatal Buggy Crash Gets 4 Years in Prison**\
 `The crash killed two Amish children and injured two others in rural Minnesota in 2023.`\
 https://nytimes.com/2025/10/18/us/minnesota-amish-buggy-crash-sentence.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6729344/2025/10/18/sabres-panthers-alex-lyon-josh-d
 **Same Difference**\
 `Daniel Grinberg’s Sunday puzzle has everything you need, and nothing you don’t.`\
 https://nytimes.com/2025/10/18/crosswords/daily-puzzle-2025-10-19.html
-
-**Manuel Trujillo, Who Helped New Yorkers Heal After 9/11, Dies at 80**\
-`As Bellevue Hospital’s director of psychiatry, he guided rescue workers and grieving families through trauma when terrorists attacked in 2001.`\
-https://nytimes.com/2025/10/18/nyregion/dr-manuel-trujillo-dead.html
 
