@@ -1,3 +1,11 @@
+**How to watch Bruins vs. Mammoth: Time, TV, streaming**\
+`Find out how to watch the Boston Bruins play the Utah Mammoth, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6730614/2025/10/19/bruins-vs-mammoth-stream-how-to-watch-oct-19/
+
+**How to watch Ducks vs. Blackhawks: Time, TV, streaming**\
+`Find out how to watch the Anaheim Ducks play the Chicago Blackhawks, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6730612/2025/10/19/ducks-vs-blackhawks-stream-how-to-watch-oct-19/
+
 **The Briefing - Tottenham 1 Villa 2: What went wrong after flying start? Did Danso prove a point?**\
 `The Athletic breaks down the talking points from Tottenham's home defeat to Aston Villa `\
 https://nytimes.com/athletic/6728282/2025/10/19/tottenham-1-aston-villa-2-thomas-frank-analysis/

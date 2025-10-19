@@ -1,3 +1,7 @@
+**Jets receiver Garrett Wilson out vs. Panthers with knee injury**\
+`The star receiver was hurt during last Sunday's loss to the Broncos in London.`\
+https://nytimes.com/athletic/6712927/2025/10/19/garrett-wilson-new-york-jets-injury/
+
 **How to watch Bruins vs. Mammoth: Time, TV, streaming**\
 `Find out how to watch the Boston Bruins play the Utah Mammoth, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6730614/2025/10/19/bruins-vs-mammoth-stream-how-to-watch-oct-19/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/19/us/politics/trump-fake-video-no-kings.html
 **Canadiens' first test of depth demonstrated that depth of trust is not as deep**\
 `The Canadiens are a young team, and trust is something that takes time to develop. Those two realities sometimes can't coexist.`\
 https://nytimes.com/athletic/6729984/2025/10/19/canadiens-rangers-loss-depth/
-
-**Atlanta United fires head coach Ronny Deila after one win in 18**\
-`"Our standard of play was not met this season," Atlanta CEO and president Garth Lagerwey said in a release Sunday.`\
-https://nytimes.com/athletic/6730387/2025/10/19/ronny-deila-atlanta-united-mls/
 
