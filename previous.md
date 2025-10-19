@@ -1,4 +1,8 @@
-**Arizona State deals No. 7 Texas Tech first loss: What now for Red Raiders' CFP hopes?**\
+**Packers flight delayed for hours because of mechanical issues with plane**\
+`Green Bay's team flight took off about six hours after its originally scheduled time for the team's game Sunday against the Cardinals.`\
+https://nytimes.com/athletic/6729592/2025/10/18/green-bay-packers-flight-delay/
+
+**No. 7 Texas Tech goes down at Arizona State: What now for Red Raiders' CFP hopes?**\
 `The Sun Devils quarterback showed he's one of the nation's top playmakers while dealing the Red Raiders a blow to their CFP hopes.`\
 https://nytimes.com/athletic/6729538/2025/10/18/arizona-state-beats-texas-tech/
 
@@ -33,8 +37,4 @@ https://nytimes.com/video/us/politics/100000010467262/no-kings-protests-trump-un
 **Cuomo Tries to Tie Mamdani to Muslim Leader’s Anti-Gay Stance**\
 `Andrew Cuomo, trailing in the New York City mayor’s race, sought to contrast his role in legalizing same-sex marriage with the views of some of Mr. Mamdani’s supporters.`\
 https://nytimes.com/2025/10/18/nyregion/cuomo-mamdani-imam.html
-
-**Social Media, Pleas From Allies and Prison Essays: How Santos Won His Freedom**\
-`On Friday evening, President Trump commuted the sentence of former Representative George Santos. “Good luck George, have a great life!” the president said.`\
-https://nytimes.com/2025/10/18/nyregion/george-santos-prison-trump.html
 

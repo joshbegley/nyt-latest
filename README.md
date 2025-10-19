@@ -1,3 +1,7 @@
+**How to watch Mariners at Blue Jays: Game 6 Time, TV, streaming**\
+`Find out how to watch the Seattle Mariners play the Toronto Blue Jays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6729630/2025/10/18/mariners-vs-blue-jays-stream-how-to-watch-oct-19/
+
 **Packers flight delayed for hours because of mechanical issues with plane**\
 `Green Bay's team flight took off about six hours after its originally scheduled time for the team's game Sunday against the Cardinals.`\
 https://nytimes.com/athletic/6729592/2025/10/18/green-bay-packers-flight-delay/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6729323/2025/10/18/ole-miss-vs-georgia-sec-showdown
 **Large Protests Flood Streets to Denounce Trump**\
 `Known as No Kings Day, the demonstrations built off a similar event in June.`\
 https://nytimes.com/video/us/politics/100000010467262/no-kings-protests-trump-united-states.html
-
-**Cuomo Tries to Tie Mamdani to Muslim Leader’s Anti-Gay Stance**\
-`Andrew Cuomo, trailing in the New York City mayor’s race, sought to contrast his role in legalizing same-sex marriage with the views of some of Mr. Mamdani’s supporters.`\
-https://nytimes.com/2025/10/18/nyregion/cuomo-mamdani-imam.html
 
