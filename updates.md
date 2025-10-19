@@ -1,3 +1,7 @@
+**Michigan could've headed for turmoil. Instead it blocked out the noise in a statement win**\
+`Moore admitted there were some "tough conversations" after the Wolverines' loss at USC last week. `\
+https://nytimes.com/athletic/6729545/2025/10/19/michigan-washington-sherrone-moore-bryce-underwood/
+
 **An Ode to October Baseball**\
 `With the World Series just days away, we look at the beauty of baseball — even if one team looks unbeatable.`\
 https://nytimes.com/2025/10/19/world/la-dodgers-postseason-louvre-robbery.html
