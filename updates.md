@@ -1,3 +1,11 @@
+**Sam Rivers, Bassist for Limp Bizkit, Dies at 48**\
+`As a founding member of the band, he helped it achieve mainstream success.`\
+https://nytimes.com/2025/10/19/arts/music/sam-rivers-dead.html
+
+**Panthers quarterback Bryce Young leaves game vs. Jets with ankle injury**\
+`Young has only missed one game to injury since entering the league in 2023 and that was largely viewed as a mental reset.`\
+https://nytimes.com/athletic/6731324/2025/10/19/bryce-young-panthers-ankle-injury-update/
+
 **Panthers-Jets broadcast temporarily affected by audio problems**\
 `Technical difficulties became a talking point during the first half of Jets-Panthers, after the Fox broadcast temporarily went silent.`\
 https://nytimes.com/athletic/6731135/2025/10/19/jets-panthers-broadcast-audio-issues/
