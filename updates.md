@@ -1,3 +1,7 @@
+**Arizona State's win over Texas Tech started with a lesson learned for the man in charge**\
+`The teams that survive in this sport are the teams that can rapidly self-correct. In that case, Arizona State passed a major test Saturday.`\
+https://nytimes.com/athletic/6729694/2025/10/19/arizona-state-texas-tech-upset-kenny-dillingham/
+
 **No. 21 Texas survives Kentucky in OT. But why is the Longhorns' offense struggling?**\
 `The Longhorns produced their lowest yardage-output in the Steve Sarkisian era, only gaining 179 yards on the day.`\
 https://nytimes.com/athletic/6729734/2025/10/19/texas-kentucky-sec-win/

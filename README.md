@@ -1,3 +1,11 @@
+**How do Australia replace Pat Cummins?**\
+`Scott Boland is the favourite to replace the injured captain in Perth, but Australia may have to adopt a role-based and venue-specific plan`\
+https://nytimes.com/athletic/6725748/2025/10/19/pat-cummins-ashes-australia-boland-options/
+
+**Some of Casemiro's toughest United moments have come against Liverpool – but he remains important**\
+`Casemiro has never beaten Liverpool in a Manchester United shirt but he has grown in importance to Ruben Amorim`\
+https://nytimes.com/athletic/6722839/2025/10/19/casemiro-liverpool-manchester-united/
+
 **Arizona State's win over Texas Tech started with a lesson learned for the man in charge**\
 `The teams that survive in this sport are the teams that can rapidly self-correct. In that case, Arizona State passed a major test Saturday.`\
 https://nytimes.com/athletic/6729694/2025/10/19/arizona-state-texas-tech-upset-kenny-dillingham/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6729790/2025/10/19/wild-flyers-takeaways-overtime-t
 **Jaguars are back in London. What to know about their international game vs. Rams**\
 `Time shifts, mismatches and the strange connection between Duval sunshine and London fog. Here's what you need to know for Sunday's game.`\
 https://nytimes.com/athletic/6727103/2025/10/19/rams-jaguars-nfl-week-7-london-game/
-
-**Would Japan’s First Female Prime Minister Advance Women’s Rights?**\
-`Sanae Takaichi is poised to break Japan’s political glass ceiling. But some worry she will maintain policies that have held women back.`\
-https://nytimes.com/2025/10/19/world/asia/japan-women-prime-minister.html
-
-**Quote of the Day: The Spritzes and Spaghettis That Slurped Up the Streets of Italy**\
-`Quotation of the Day for Sunday, October 19, 2025.`\
-https://nytimes.com/2025/10/19/pageoneplus/quote-of-the-day-the-spritzes-and-spaghettis-that-slurped-up-the-streets-of-italy.html
 
