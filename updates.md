@@ -1,3 +1,7 @@
+**Vikings use unusual defensive alignment to try to defend Eagles' tush push**\
+`The Vikings had rookie Tyler Batty lay down in front of Eagles center Cam Jurgens. The play never happened though due to a false start.`\
+https://nytimes.com/athletic/6730989/2025/10/19/vikings-eagles-tush-push-defense-strategy/
+
 **AP Top 25: Indiana No. 2 as Vandy earns historic top-10 spot**\
 `This week's AP Top 25 college football poll includes landmark rankings for No. 2 Indiana, No. 7 Georgia Tech and No. 10 Vanderbilt.`\
 https://nytimes.com/athletic/6730744/2025/10/19/ap-top-25-vanderbilt-indiana-college-football-rankings/
