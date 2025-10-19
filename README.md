@@ -1,3 +1,7 @@
+**Slot says Liverpool's poor run has not impacted his squad's confidence**\
+`Sunday's defeat by Man Utd means Liverpool have lost four games in a row across all competitions for the first time since November 2014.`\
+https://nytimes.com/athletic/6731202/2025/10/19/arne-slot-liverpool-man-utd/
+
 **Kim Kardashian, Jenna Ortega and Hailey Bieber Light Up the Academy Museum Gala**\
 `The fund-raiser in Los Angeles drew stars who were masked, shoeless and gushing about this season’s Oscar hopefuls.`\
 https://nytimes.com/2025/10/19/style/kim-kardashian-jenna-ortega-and-hailey-bieber-light-up-the-academy-museum-gala.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6731216/2025/10/19/jets-justin-fields-benched-tyrod
 **For Virginia Tech, the move is simple: Go all in for James Franklin**\
 `Franklin is the best candidate to take the Hokies back to the glory days they enjoyed under Frank Beamer.`\
 https://nytimes.com/athletic/6730626/2025/10/19/james-franklin-virginia-tech-coach-candidates/
-
-**The Right Has Gone Woke**\
-`Language policing. Cancel culture. Victimhood contests and cultural grievances. Despite attacking the left for partaking in such practices, there’s an emerging set of individuals on the right who have became exactly what they’ve criticized. Meet the woke right.`\
-https://nytimes.com/video/opinion/100000010453273/the-right-has-gone-woke.html
 
