@@ -1,3 +1,11 @@
+**College Football Playoff takeaways: Vandy is for real, and Georgia Tech may be a team of destiny**\
+`If the mere thought of a 9-3 playoff team makes you cringe, well, consider this a warning.`\
+https://nytimes.com/athletic/6730031/2025/10/19/college-football-playoff-race-miami-texas-tech-vanderbilt/
+
+**Louvre Closed After Robbery**\
+`It was not immediately clear what, if any, of the Paris museum’s priceless artifacts had been stolen.`\
+https://nytimes.com/2025/10/19/world/europe/louvre-paris-robbery.html
+
 **NFL Week 7 storylines: Jared Goff-Baker Mayfield showdown, Mike Vrabel's revenge game**\
 `The defending champion Eagles are in crisis after two straight losses and need to get back on track against their former QB Carson Wentz. `\
 https://nytimes.com/athletic/6723712/2025/10/19/nfl-week-7-jared-goff-baker-mayfield-vrabel/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/19/business/economic-divide-spending-inflation-jobs.
 **Shutdown Fight Reopens Debate in G.O.P. Over Health Care**\
 `The spending showdown has highlighted Republicans’ failure to produce an alternative to Obamacare, which many of them assail but concede is too politically risky to undo.`\
 https://nytimes.com/2025/10/19/us/politics/obamacare-republicans-shutdown-subsidies.html
-
-**‘Everything Is Gone’: Gazans Return Home to Find Devastation and Little Hope**\
-`Residents who have gone back to the battered north of the territory after the cease-fire say it is a wasteland that will take years to rebuild.`\
-https://nytimes.com/2025/10/19/world/middleeast/gaza-city-israel-hamas-cease-fire.html
-
-**A Squalid Building, a Tip to the Feds, and Then ‘Straight-Up Chaos’**\
-`An immigration raid on an apartment building in Chicago followed years of problems with crime, and neglect by landlords. It swept up dozens of U.S. citizens who were detained in the middle of the night.`\
-https://nytimes.com/2025/10/19/us/chicago-south-shores-border-patrol-raid.html
 
