@@ -1,3 +1,5 @@
+
+
 **Dyche emerging as leading contender for Forest job**\
 `Forest had also held talks with Roberto Mancini but it now appears unlikely the Italian replaces Ange Postecoglou.`\
 https://nytimes.com/athletic/6349486/2025/10/19/sean-dyche-nottingham-forest-mancini/
