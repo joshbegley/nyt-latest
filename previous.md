@@ -1,4 +1,8 @@
-**Florida fires Billy Napier, ending more than a year of tension: Source**\
+**How good is the Florida job after Billy Napier?**\
+`The tradition of the Swamp, the three Heisman Trophies and everything around the program are as true to college football as it gets.`\
+https://nytimes.com/athletic/6729290/2025/10/19/florida-football-coaching-search-job-money/
+
+**Florida fires Billy Napier, ending more than a year of tension: Sources**\
 `In firing Billy Napier, Florida has not had a football coach last more than four seasons in 15 years. `\
 https://nytimes.com/athletic/6648133/2025/10/19/florida-gators-billy-napier-fired/
 
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6730659/2025/10/19/brandon-graham-eagles-return-zad
 **‘Larsen C’ Review: Grand, Dark and Inhumanly Cold**\
 `At the new Powerhouse: International festival in Brooklyn, Christos Papadopoulos debuted an oblique, glacially cool work with seven dancers.`\
 https://nytimes.com/2025/10/19/arts/dance/larsen-c-review.html
-
-**The Pulse: Undefeated teams slammed**\
-`Welcome to The Pulse, The Athletic's daily sports newsletter.`\
-https://nytimes.com/athletic/6729833/2025/10/19/undefeated-teams-dropping-like-flies-across-college-football/
 

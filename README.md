@@ -7,7 +7,7 @@ https://nytimes.com/athletic/6729290/2025/10/19/florida-football-coaching-search
 https://nytimes.com/athletic/6648133/2025/10/19/florida-gators-billy-napier-fired/
 
 **The Briefing - Liverpool 1 Man United 2: Amorim savours finest result yet as champions' gloom deepens**\
-`Ruben Amorim's side secured their first league win at Anfield since January 2016 as the champions suffered a fourth loss in a row`\
+`Ruben Amorim's side secured their first league win at Anfield since 2016 as the champions suffered a fourth loss in a row`\
 https://nytimes.com/athletic/6728290/2025/10/19/liverpool-manchester-united-mbeumo-maguire-gakpo-analysis/
 
 **Effort is 'good' for Leeds United - but effectiveness is 'missing'**\

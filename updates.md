@@ -1,3 +1,11 @@
+**How good is the Florida job after Billy Napier?**\
+`The tradition of the Swamp, the three Heisman Trophies and everything around the program are as true to college football as it gets.`\
+https://nytimes.com/athletic/6729290/2025/10/19/florida-football-coaching-search-job-money/
+
+**Florida fires Billy Napier, ending more than a year of tension: Sources**\
+`In firing Billy Napier, Florida has not had a football coach last more than four seasons in 15 years. `\
+https://nytimes.com/athletic/6648133/2025/10/19/florida-gators-billy-napier-fired/
+
 **Florida fires Billy Napier, ending more than a year of tension: Source**\
 `In firing Billy Napier, Florida has not had a football coach last more than four seasons in 15 years. `\
 https://nytimes.com/athletic/6648133/2025/10/19/florida-gators-billy-napier-fired/
