@@ -1,3 +1,7 @@
+**Alabama rides Ty Simpson, 99-yard pick-6 to rivalry win over Tennessee**\
+`Zabien Brown's pick-six at the end of the first half swung the game heavily in the Crimson Tide's favor.`\
+https://nytimes.com/athletic/6729721/2025/10/18/alabama-tennessee-score-recap-football/
+
 **Notre Dame runs all over USC in rivalry win with CFP stakes: Key takeaways**\
 `Jeremiyah Love rushed for 228 yards to lead No. 13 Notre Dame to a 34-24 win over No. 20 USC in a College Football Playoff statement win.`\
 https://nytimes.com/athletic/6729710/2025/10/18/notre-dame-usc-score-recap-football/
