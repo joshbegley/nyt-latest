@@ -10,12 +10,12 @@ https://nytimes.com/athletic/6729710/2025/10/18/notre-dame-usc-score-recap-footb
 `The road to the 2025 MLS Cup final is set following the conclusion of Decision Day`\
 https://nytimes.com/athletic/6693903/2025/10/18/mls-cup-playoff-matchups-bracket-2025/
 
-**Anthony Stolarz calls out Maple Leafs: 'Enough’s enough'**\
-`The Maple Leafs goalie made it clear he was unsatisfied with the way his team played in front of him in a 4-3 overtime loss to Seattle.`\
+**Anthony Stolarz calls out Maple Leafs after loss to Kraken: 'Enough’s enough'**\
+`Toronto's goalie made it clear he was unsatisfied with the way his team played in front of him in Saturday's 4-3 overtime loss to Seattle.`\
 https://nytimes.com/athletic/6729753/2025/10/18/maple-leafs-anthony-stolarz-kraken-comments/
 
-**Messi ends MLS regular season with super hat trick, wins 2025 Golden Boot**\
-`Lionel Messi capped his stellar MLS regular season with a hat trick and the league's Golden Boot honors`\
+**Messi wins 2025 MLS Golden Boot, ends regular season with superb hat trick**\
+`Lionel Messi led MLS in scoring and also tied for the league lead in assists in another MVP-caliber season`\
 https://nytimes.com/athletic/6693994/2025/10/18/messi-mls-golden-boot-hat-trick-assists-leader-bouanga-dreyer/
 
 **Temwa Chawinga wheeled out with leg injury in Current's upset loss to Dash**\

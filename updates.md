@@ -1,3 +1,11 @@
+**Anthony Stolarz calls out Maple Leafs after loss to Kraken: 'Enough’s enough'**\
+`Toronto's goalie made it clear he was unsatisfied with the way his team played in front of him in Saturday's 4-3 overtime loss to Seattle.`\
+https://nytimes.com/athletic/6729753/2025/10/18/maple-leafs-anthony-stolarz-kraken-comments/
+
+**Messi wins 2025 MLS Golden Boot, ends regular season with superb hat trick**\
+`Lionel Messi led MLS in scoring and also tied for the league lead in assists in another MVP-caliber season`\
+https://nytimes.com/athletic/6693994/2025/10/18/messi-mls-golden-boot-hat-trick-assists-leader-bouanga-dreyer/
+
 **Alabama rides Ty Simpson, 99-yard pick-6 to rivalry win over Tennessee**\
 `Zabien Brown's pick-six at the end of the first half swung the game heavily in the Crimson Tide's favor.`\
 https://nytimes.com/athletic/6729721/2025/10/18/alabama-tennessee-score-recap-football/

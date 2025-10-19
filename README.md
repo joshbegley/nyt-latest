@@ -1,4 +1,4 @@
-**Alabama rides Ty Simpson, 99-yard pick-6 to rivalry win over Tennessee**\
+**Alabama rides Ty Simpson, 99-yard pick-6 to rivalry win over Tennessee: Takeaways**\
 `Zabien Brown's pick-six at the end of the first half swung the game heavily in the Crimson Tide's favor.`\
 https://nytimes.com/athletic/6729721/2025/10/18/alabama-tennessee-score-recap-football/
 
