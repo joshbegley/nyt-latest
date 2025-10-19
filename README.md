@@ -1,3 +1,11 @@
+**Blazers, Toumani Camara agree to 4-year extension: Source**\
+`In his second season, Camara was named second-team All-Defense while averaging 1.5 steals per game.`\
+https://nytimes.com/athletic/6731728/2025/10/19/toumani-camara-contract-extension-portland-trail-blazers-nba/
+
+**Commanders QB Jayden Daniels exits with hamstring injury vs. Cowboys**\
+`Daniels left Sunday's game in the third quarter and headed to the locker room. He's questionable to return.`\
+https://nytimes.com/athletic/6731747/2025/10/19/jayden-daniels-commanders-hamstring-injury/
+
 **U.S. Grand Prix: Submit your questions for our F1 mailbag**\
 `Well, it wasn&#8217;t the most thrilling two hours of our lives, but the 2025 U.`\
 https://nytimes.com/athletic/6731723/2025/10/19/u-s-grand-prix-f1-mailbag/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6349486/2025/10/19/sean-dyche-nottingham-forest-man
 **What are the Dolphins doing? How scary are the Chiefs? Our experts' Week 7 takeaways**\
 `Also: The Eagles’ passing game took off in a win over the Vikings, while things went from bad to worse for the New York Jets.`\
 https://nytimes.com/athletic/6731133/2025/10/19/nfl-takeaways-week-7-scores-results/
-
-**Quenneville returns to Chicago for first time since reinstatement: 'I could have been more forceful'**\
-`Quenneville was reinstated by NHL commissioner Gary Bettman in July 2024 but did not return to coaching until this season.`\
-https://nytimes.com/athletic/6731502/2025/10/19/joel-quenneville-chicago-blackhawks-return-reinstatement/
-
-**The Contagious Gen Z Revolutions**\
-`It’s a good time to start paying attention to the youth-led protests that are spreading around the world and that have toppled governments.`\
-https://nytimes.com/2025/10/19/world/gen-z-revolutions-protests-louvre-heist-gaza.html
 
