@@ -1,3 +1,11 @@
+**What Buster Posey's pursuit of Tony Vitello means, and what comes next for Giants**\
+`The Giants' pursuit of Vitello could indicate a change in how teams look at their managerial vacancies.`\
+https://nytimes.com/athletic/6729703/2025/10/18/sf-giants-tony-vitello-manager-buster-posey-college-coaches/
+
+**In first game after firing James Franklin, Penn State comes up just short at Iowa**\
+`The Nittany Lions let an 11-point third-quarter lead slip away in interim coach Terry Smith’s debut.`\
+https://nytimes.com/athletic/6729687/2025/10/18/penn-state-iowa-terry-smith-james-franklin/
+
 **Blue Jays ALCS off-day notes: George Springer's injury, Trey Yesavage's big chance**\
 `Toronto hopes to have their designated hitter back for Sunday's crucial Game 6 against the Seattle Mariners to stave off ALCS elimination.`\
 https://nytimes.com/athletic/6729608/2025/10/18/blue-jays-george-springer-injury/
