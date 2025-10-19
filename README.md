@@ -1,3 +1,7 @@
+**Cardinals to start QB Jacoby Brissett vs. Green Bay with Kyler Murray out: Source**\
+`Brissett, who is 19-35 as a starter, will start as Arizona's quarterback for the second straight week with Kyler Murray out.`\
+https://nytimes.com/athletic/6729282/2025/10/19/jacoby-brissett-start-cardinals-packers/
+
 **Trump Administration Live Updates: U.S. to Repatriate 2 Survivors of Strike on Suspected Drug Vessel**\
 ``\
 https://nytimes.com/live/2025/10/19/us/trump-news
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6729062/2025/10/19/williams-f1-owner-dorilton/
 **WATCH: How this team is outthinking everyone in the NFL**\
 `Six weeks into the season, the Colts lead the NFL in dropback success rate.`\
 https://nytimes.com/athletic/6726695/2025/10/19/colts-tyler-warren-film-breakdown-analysis/
-
-**Mandel's Final Thoughts: Pro sports fans love greatness. College football fans love chaos**\
-`College football fans live for chaos, not excellence. And boy, is the 2025 season turning chaotic. `\
-https://nytimes.com/athletic/6730092/2025/10/19/college-football-scores-results-week-8-2/
 
