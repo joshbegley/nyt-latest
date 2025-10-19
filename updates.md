@@ -1,3 +1,11 @@
+**Inside Ange Postecoglou's 39 days at Nottingham Forest**\
+`After eight games without a win, owner Evangelos Marinakis had little choice but to sack a manager who never felt like a good fit at Forest`\
+https://nytimes.com/athletic/6729114/2025/10/19/nottingham-forest-ange-postecoglou-inside-mancini/
+
+**Haaland's form is other-worldly. His team-mates need to share the scoring burden**\
+`The Nowegian striker has taken his goalscoring to another level. Now Pep Guardiola wants his other attacking players to follow his lead`\
+https://nytimes.com/athletic/6728825/2025/10/19/erling-haaland-manchester-city-over-reliant/
+
 **Haaland's form is otherworldly. His team-mates need to share the scoring burden**\
 `Erling Haaland has taken his goalscoring to another level. Pep Guardiola wants his other attacking players to follow his lead`\
 https://nytimes.com/athletic/6728825/2025/10/19/erling-haaland-manchester-city-over-reliant/

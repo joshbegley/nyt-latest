@@ -1,5 +1,9 @@
-**Haaland's form is otherworldly. His team-mates need to share the scoring burden**\
-`Erling Haaland has taken his goalscoring to another level. Pep Guardiola wants his other attacking players to follow his lead`\
+**Inside Ange Postecoglou's 39 days at Nottingham Forest**\
+`After eight games without a win, owner Evangelos Marinakis had little choice but to sack a manager who never felt like a good fit at Forest`\
+https://nytimes.com/athletic/6729114/2025/10/19/nottingham-forest-ange-postecoglou-inside-mancini/
+
+**Haaland's form is other-worldly. His team-mates need to share the scoring burden**\
+`The Nowegian striker has taken his goalscoring to another level. Now Pep Guardiola wants his other attacking players to follow his lead`\
 https://nytimes.com/athletic/6728825/2025/10/19/erling-haaland-manchester-city-over-reliant/
 
 **How a trio of Chelsea half-time changes served to wreck Nottingham Forest's game plan**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6729694/2025/10/19/arizona-state-texas-tech-upset-k
 **No. 21 Texas survives Kentucky in OT. But why is the Longhorns' offense struggling?**\
 `The Longhorns produced their lowest yardage-output in the Steve Sarkisian era, only gaining 179 yards on the day.`\
 https://nytimes.com/athletic/6729734/2025/10/19/texas-kentucky-sec-win/
-
-**Liverpool vs Man Utd: Who's under more pressure? Who should play? Plus our predictions**\
-`Analysing where Sunday's Premier League clash will be decided and why it still matters so much`\
-https://nytimes.com/athletic/6723366/2025/10/19/liverpool-man-utd-prediction-team/
 
