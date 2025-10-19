@@ -1,3 +1,7 @@
+**Kevin Durant, Rockets reach 2-year, $90 million contract extension: Source**\
+`Durant’s new deal keeps him under contract with the Rockets through 2027-28 and opens the possibility of him ending his career in Houston.`\
+https://nytimes.com/athletic/6680237/2025/10/19/kevin-durant-contract-extension-rockets-nba-amen-thompson/
+
 **Cardinals to start QB Jacoby Brissett vs. Green Bay with Kyler Murray out: Source**\
 `Brissett, who is 19-35 as a starter, will start as Arizona's quarterback for the second straight week with Kyler Murray out.`\
 https://nytimes.com/athletic/6729282/2025/10/19/jacoby-brissett-start-cardinals-packers/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6730321/2025/10/19/oilers-vs-red-wings-stream-how-t
 **Williams’ American owner could have flipped the F1 team by now. But it's holding out to win**\
 `The Williams F1 team was bought by wealthy investors in 2020. They could've flipped it for a big profit already, but are still not selling`\
 https://nytimes.com/athletic/6729062/2025/10/19/williams-f1-owner-dorilton/
-
-**WATCH: How this team is outthinking everyone in the NFL**\
-`Six weeks into the season, the Colts lead the NFL in dropback success rate.`\
-https://nytimes.com/athletic/6726695/2025/10/19/colts-tyler-warren-film-breakdown-analysis/
 
