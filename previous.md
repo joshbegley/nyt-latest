@@ -1,3 +1,15 @@
+**Submit your questions for the next Big Ten football mailbag**\
+`What's on your mind about the conference's most intriguing storylines, on and off the field?`\
+https://nytimes.com/athletic/6731647/2025/10/19/submit-your-questions-for-the-next-big-ten-football-mailbag/
+
+**Thieves Steal ‘Priceless’ Jewels From the Louvre Museum in Paris**\
+`Visitors at the Louvre were evacuated on Sunday after thieves broke into a gallery housing the French crown jewels. Investigators believe multiple experienced robbers were involved.`\
+https://nytimes.com/video/world/europe/100000010468232/world-europe-paris-louvre-heist-crown-jewels.html
+
+**Israel Strikes Gaza in First Major Test of U.S.-Brokered Cease-fire**\
+`Israel launched a wave of attacks on Gaza on Sunday, after accusing Hamas of firing on its soldiers. Both sides say they are still committed to the truce.`\
+https://nytimes.com/video/world/middleeast/100000010468254/gaza-strikes-israel-ceasefire.html
+
 **It Goes Around Every Year**\
 `Adam Aaronson upgrades our subscription.`\
 https://nytimes.com/2025/10/19/crosswords/daily-puzzle-2025-10-20.html
@@ -25,16 +37,4 @@ https://nytimes.com/2025/10/19/world/gen-z-revolutions-protests-louvre-heist-gaz
 **Jaguars lose to Rams amid penalties and an offense struggling to click**\
 `Jacksonville started slow and never recovered Sunday in London, losing 35-7 for its second straight defeat after a 4-1 season start.`\
 https://nytimes.com/athletic/6731237/2025/10/19/jaguars-loss-rams-london/
-
-**Baker: Florida coaches are out of excuses. Billy Napier's replacement needs to win**\
-`Napier's replacement inherits a Florida program that has lost every excuse that can be used to try to rationalize 15 years of mediocrity.`\
-https://nytimes.com/athletic/6731429/2025/10/19/florida-gators-football-money-facilities-billy-napier/
-
-**Police say Tel Aviv derby called off due to 'public disorder and violent riots'**\
-`The cancellation comes in the same week police in Birmingham requested Maccabi Tel Aviv fans be denied tickets to their game at Aston Villa.`\
-https://nytimes.com/athletic/6731476/2025/10/19/maccabi-tel-aviv-hapoel-derby-fans/
-
-**Artillery Shell Detonated Over Interstate 5 During Marines’ Celebration, California Officials Say**\
-`The mishap, during an anniversary celebration for the Marine Corps attended by the vice president and defense secretary, underscores safety concerns that Gov. Gavin Newsom voiced before Saturday’s event at Camp Pendleton.`\
-https://nytimes.com/2025/10/19/us/politics/shell-interstate-5-marines-california.html
 

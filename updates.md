@@ -1,3 +1,15 @@
+**Submit your questions for the next Big Ten football mailbag**\
+`What's on your mind about the conference's most intriguing storylines, on and off the field?`\
+https://nytimes.com/athletic/6731647/2025/10/19/submit-your-questions-for-the-next-big-ten-football-mailbag/
+
+**Thieves Steal ‘Priceless’ Jewels From the Louvre Museum in Paris**\
+`Visitors at the Louvre were evacuated on Sunday after thieves broke into a gallery housing the French crown jewels. Investigators believe multiple experienced robbers were involved.`\
+https://nytimes.com/video/world/europe/100000010468232/world-europe-paris-louvre-heist-crown-jewels.html
+
+**Israel Strikes Gaza in First Major Test of U.S.-Brokered Cease-fire**\
+`Israel launched a wave of attacks on Gaza on Sunday, after accusing Hamas of firing on its soldiers. Both sides say they are still committed to the truce.`\
+https://nytimes.com/video/world/middleeast/100000010468254/gaza-strikes-israel-ceasefire.html
+
 **It Goes Around Every Year**\
 `Adam Aaronson upgrades our subscription.`\
 https://nytimes.com/2025/10/19/crosswords/daily-puzzle-2025-10-20.html
