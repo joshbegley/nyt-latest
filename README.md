@@ -1,3 +1,11 @@
+**Panthers-Jets broadcast temporarily affected by audio problems**\
+`Technical difficulties became a talking point during the first half of Jets-Panthers, after the Fox broadcast temporarily went silent.`\
+https://nytimes.com/athletic/6731135/2025/10/19/jets-panthers-broadcast-audio-issues/
+
+**La Liga asked broadcasters not to show player protests against game in the U.S.**\
+`La Liga has announced plans to play Villarreal-Barcelona in Miami after UEFA "regrettably" approved the idea earlier this month`\
+https://nytimes.com/athletic/6730113/2025/10/19/la-liga-protests-barcelona-villarreal/
+
 **Slot says Liverpool's poor run has not impacted his squad's confidence**\
 `Sunday's defeat by Man Utd means Liverpool have lost four games in a row across all competitions for the first time since November 2014.`\
 https://nytimes.com/athletic/6731202/2025/10/19/arne-slot-liverpool-man-utd/
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/19/world/europe/louvre-heist-items.html
 **Ranking college football's open coaching jobs, from Penn State to Kent State**\
 `This could be the most active coaching carousel college football has seen in many years.`\
 https://nytimes.com/athletic/6662286/2025/10/19/college-football-open-coaching-jobs-rankings/
-
-**Jets bench struggling QB Justin Fields vs. Panthers, turn to Tyrod Taylor**\
-`Fields completed just 6 of 12 passes for 46 yards in the first half Sunday against the Panthers.`\
-https://nytimes.com/athletic/6731216/2025/10/19/jets-justin-fields-benched-tyrod-taylor/
-
-**For Virginia Tech, the move is simple: Go all in for James Franklin**\
-`Franklin is the best candidate to take the Hokies back to the glory days they enjoyed under Frank Beamer.`\
-https://nytimes.com/athletic/6730626/2025/10/19/james-franklin-virginia-tech-coach-candidates/
 
