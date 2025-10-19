@@ -1,3 +1,7 @@
+**Arizona State's win over Texas Tech started with a lesson learned for the man in charge**\
+`The teams that survive in this sport are the teams that can rapidly self-correct. In that case, Arizona State passed a major test Saturday.`\
+https://nytimes.com/athletic/6729694/2025/10/19/arizona-state-texas-tech-upset-kenny-dillingham/
+
 **No. 21 Texas survives Kentucky in OT. But why is the Longhorns' offense struggling?**\
 `The Longhorns produced their lowest yardage-output in the Steve Sarkisian era, only gaining 179 yards on the day.`\
 https://nytimes.com/athletic/6729734/2025/10/19/texas-kentucky-sec-win/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/19/world/asia/japan-women-prime-minister.html
 **Quote of the Day: The Spritzes and Spaghettis That Slurped Up the Streets of Italy**\
 `Quotation of the Day for Sunday, October 19, 2025.`\
 https://nytimes.com/2025/10/19/pageoneplus/quote-of-the-day-the-spritzes-and-spaghettis-that-slurped-up-the-streets-of-italy.html
-
-**‘Don’t Touch My Retirement!’ Wins the Day in France**\
-`The country’s attachment to an early pension, seen as a fundamental right, forced a major concession by the government, allowing it to survive, for now.`\
-https://nytimes.com/2025/10/19/world/europe/dont-touch-my-retirement-wins-the-day-in-france.html
 
