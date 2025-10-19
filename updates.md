@@ -1,3 +1,7 @@
+**UAB hands No. 22 Memphis its first loss days after firing coach Trent Dilfer**\
+`In their first game after firing Dilfer as coach, the Blazers upset the undefeated Tigers, stopping them late on the 11-yard line.`\
+https://nytimes.com/athletic/6729440/2025/10/18/uab-upsets-memphis-alex-mortensen-trent-dilfer/
+
 **Oilers takeaways: Offensive struggles, Ryan Nugent-Hopkins' touch and Connor Brown reflects**\
 `Nugent-Hopkins scored twice and Curtis Lazar notched his first goal, but the Oilers fell 5-3 to the Devils Saturday.`\
 https://nytimes.com/athletic/6729489/2025/10/18/oilers-devils-ryan-nugent-hopkins-connor-brown/
