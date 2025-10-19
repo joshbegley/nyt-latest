@@ -1,3 +1,7 @@
+**Predicting the College Football Playoff: Georgia jumps, Miami and Texas Tech slide**\
+`The College Football Playoff margin for error for Miami and Texas Tech is much slimmer following Week 8 losses.`\
+https://nytimes.com/athletic/6730052/2025/10/19/college-football-playoff-2025-bracket-prediction-week-8/
+
 **Kevin Durant, Rockets reach 2-year, $90 million contract extension: Source**\
 `Durant’s new deal keeps him under contract with the Rockets through 2027-28 and opens the possibility of him ending his career in Houston.`\
 https://nytimes.com/athletic/6680237/2025/10/19/kevin-durant-contract-extension-rockets-nba-amen-thompson/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6730334/2025/10/19/college-football-upsets-week-8-u
 **How to watch Oilers vs. Red Wings: Time, TV, streaming**\
 `Find out how to watch the Edmonton Oilers play the Detroit Red Wings, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6730321/2025/10/19/oilers-vs-red-wings-stream-how-to-watch-oct-19/
-
-**Williams’ American owner could have flipped the F1 team by now. But it's holding out to win**\
-`The Williams F1 team was bought by wealthy investors in 2020. They could've flipped it for a big profit already, but are still not selling`\
-https://nytimes.com/athletic/6729062/2025/10/19/williams-f1-owner-dorilton/
 
