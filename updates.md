@@ -1,3 +1,7 @@
+**Florida fires Billy Napier, ending more than a year of tension: Source**\
+`In firing Billy Napier, Florida has not had a football coach last more than four seasons in 15 years. `\
+https://nytimes.com/athletic/6648133/2025/10/19/florida-gators-billy-napier-fired/
+
 **The Briefing - Liverpool 1 Man United 2: Amorim savours finest result yet as champions' gloom deepens**\
 `Ruben Amorim's side secured their first league win at Anfield since January 2016 as the champions suffered a fourth loss in a row`\
 https://nytimes.com/athletic/6728290/2025/10/19/liverpool-manchester-united-mbeumo-maguire-gakpo-analysis/
