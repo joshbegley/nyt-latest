@@ -1,3 +1,11 @@
+**How do Australia replace Pat Cummins?**\
+`Scott Boland is the favourite to replace the injured captain in Perth, but Australia may have to adopt a role-based and venue-specific plan`\
+https://nytimes.com/athletic/6725748/2025/10/19/pat-cummins-ashes-australia-boland-options/
+
+**Some of Casemiro's toughest United moments have come against Liverpool – but he remains important**\
+`Casemiro has never beaten Liverpool in a Manchester United shirt but he has grown in importance to Ruben Amorim`\
+https://nytimes.com/athletic/6722839/2025/10/19/casemiro-liverpool-manchester-united/
+
 **Arizona State's win over Texas Tech started with a lesson learned for the man in charge**\
 `The teams that survive in this sport are the teams that can rapidly self-correct. In that case, Arizona State passed a major test Saturday.`\
 https://nytimes.com/athletic/6729694/2025/10/19/arizona-state-texas-tech-upset-kenny-dillingham/
