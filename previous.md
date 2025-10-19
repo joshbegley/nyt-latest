@@ -2,7 +2,7 @@
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/19/todays-new-york-times
 
-**Virginia Roberts Giuffre, Jeffrey Epstein and the Trauma We Force Victims to Relive**\
+**Why Virginia Roberts Giuffre Would Not Stop Talking About Jeffrey Epstein**\
 `Virginia Roberts Giuffre spent so much of her life telling the story of her abuse.`\
 https://nytimes.com/2025/10/19/opinion/epstein-survivor-trauma.html
 

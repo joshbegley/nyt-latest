@@ -1,3 +1,7 @@
+**Why Virginia Roberts Giuffre Would Not Stop Talking About Jeffrey Epstein**\
+`Virginia Roberts Giuffre spent so much of her life telling the story of her abuse.`\
+https://nytimes.com/2025/10/19/opinion/epstein-survivor-trauma.html
+
 **Arizona State's win over Texas Tech started with a lesson learned for the man in charge**\
 `The teams that survive in this sport are the ones that can rapidly self-correct. In that case, the Sun Devils passed a major test Saturday.`\
 https://nytimes.com/athletic/6729694/2025/10/19/arizona-state-texas-tech-upset-kenny-dillingham/
