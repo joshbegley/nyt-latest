@@ -1,3 +1,23 @@
+**The backstory of Patrick Mahomes' trick play vs. Raiders: 'That was hilarious'**\
+`Chiefs QB Patrick Mahomes faked out the Raiders — and CBS broadcasters — with his acting skills. Here's what happened.`\
+https://nytimes.com/athletic/6730847/2025/10/19/chiefs-patrick-mahomes-trick-play-raiders/
+
+**Curry College's Montie Quinn sets NCAA record with 522 rushing yards**\
+`The Division III Curry running back set the NCAA single-game rushing record with 522 yards in a 71-27 win over Nichols on Saturday.`\
+https://nytimes.com/athletic/6731636/2025/10/19/curry-montie-quinn-ncaa-rushing-record-522-yards/
+
+**Rams' offense becoming more complete as Matthew Stafford, Davante Adams get in sync**\
+`"Davante was on one today," coach Sean McVay said of the All-Pro receiver, who hauled in three TD catches vs. the Jaguars. `\
+https://nytimes.com/athletic/6731107/2025/10/19/rams-offense-matthew-stafford-davante-adams/
+
+**Blazers, Toumani Camara agree to 4-year, $82 million extension: Source**\
+`Portland locks up a defensive star — Camara was named second-team All-Defense last season — who also has offensive upside.`\
+https://nytimes.com/athletic/6731728/2025/10/19/toumani-camara-contract-extension-portland-trail-blazers-nba/
+
+**Commanders QB Jayden Daniels ruled out vs. Cowboys with hamstring injury**\
+`Daniels left Sunday's game in the third quarter and headed to the locker room. He was later ruled out.`\
+https://nytimes.com/athletic/6731747/2025/10/19/jayden-daniels-commanders-hamstring-injury/
+
 **Shaedon Sharpe, Trail Blazers agree to 4-year, $90 million contract extension**\
 `A key piece to the Trail Blazers' rebuild, Shaedon Sharpe will be staying in Portland for quite some time.`\
 https://nytimes.com/athletic/6724640/2025/10/19/shaedon-sharpe-contract-extension-blazers/
