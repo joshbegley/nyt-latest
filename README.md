@@ -1,3 +1,7 @@
+**How to watch Canucks vs. Capitals: Time, TV, streaming**\
+`Find out how to watch the Vancouver Canucks play the Washington Capitals, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6730192/2025/10/19/canucks-vs-capitals-stream-how-to-watch-oct-19/
+
 **Bolivia Heads to the Polls: Here’s What to Know**\
 `Bolivians will vote for president in Sunday’s runoff, which pits two conservative candidates promising to improve the economy and restore confidence in the nation’s governance.`\
 https://nytimes.com/2025/10/19/world/americas/bolivia-presidential-runoff-election.html
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/19/business/katherine-boyle-andreesen-horowitz-ameri
 **It’s 2025, and Democrats Are Still Running Against Trump**\
 `In New Jersey, Virginia and beyond, voters have been inundated with ads linking Republican candidates to the president. Some Democratic strategists see a missed opportunity to forge a more positive message.`\
 https://nytimes.com/2025/10/19/us/politics/democratic-campaign-ads-trump.html
-
-**QB for Jets? Arvell Reese to Vikings? Ideal NFL Draft fits for projected last-place teams**\
-`Fernando Mendoza may be emerging as QB1, but there is still a lot to shake out — and plenty of talent at other positions in the '26 class.`\
-https://nytimes.com/athletic/6729297/2025/10/19/nfl-draft-2026-projections-jets-giants-last-place-teams/
 
