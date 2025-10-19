@@ -1,3 +1,7 @@
+**The Briefing - Liverpool 1 Man United 2: Amorim savours finest result yet as champions' gloom deepens**\
+`Ruben Amorim's side secured their first league win at Anfield since January 2016 as the champions suffered a fourth loss in a row`\
+https://nytimes.com/athletic/6728290/2025/10/19/liverpool-manchester-united-mbeumo-maguire-gakpo-analysis/
+
 **Effort is 'good' for Leeds United - but effectiveness is 'missing'**\
 `There is much to like about Leeds' performances lately, but now they need goals - and points`\
 https://nytimes.com/athletic/6729061/2025/10/19/leeds-united-aaronson-burnley-missing/

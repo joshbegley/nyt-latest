@@ -1,3 +1,7 @@
+**The Briefing - Liverpool 1 Man United 2: Amorim savours finest result yet as champions' gloom deepens**\
+`Ruben Amorim's side secured their first league win at Anfield since January 2016 as the champions suffered a fourth loss in a row`\
+https://nytimes.com/athletic/6728290/2025/10/19/liverpool-manchester-united-mbeumo-maguire-gakpo-analysis/
+
 **Effort is 'good' for Leeds United - but effectiveness is 'missing'**\
 `There is much to like about Leeds' performances lately, but now they need goals - and points`\
 https://nytimes.com/athletic/6729061/2025/10/19/leeds-united-aaronson-burnley-missing/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6729833/2025/10/19/undefeated-teams-dropping-like-f
 **Epoch Times Reporter Resigns After Publication Signs Pentagon Rules**\
 `The reporter, Andrew Thornebrooke, also cited a recent editorial directive to refer to antifa, the far-left ideological movement, as a terrorist organization.`\
 https://nytimes.com/2025/10/19/business/media/epoch-times-pentagon-press-rules.html
-
-**Who is a better World Series matchup for Dodgers, the Mariners or Blue Jays?**\
-`As Seattle and Toronto continue to duke it out on the ALCS, Dodgers fans can start analyzing the best potential matchup.`\
-https://nytimes.com/athletic/6730016/2025/10/19/dodgers-world-series-matchup-mariners-blue-jays/
 
