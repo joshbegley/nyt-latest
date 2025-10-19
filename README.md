@@ -1,9 +1,21 @@
+**MLS Cup 2025 playoffs: Matchups, bracket set after Decision Day drama**\
+`The road to the 2025 MLS Cup final is set following the conclusion of Decision Day`\
+https://nytimes.com/athletic/6693903/2025/10/18/mls-cup-playoff-matchups-bracket-2025/
+
+**Anthony Stolarz calls out Maple Leafs: 'Enough’s enough'**\
+`The Maple Leafs goalie made it clear he was unsatisfied with the way his team played in front of him in a 4-3 overtime loss to Seattle.`\
+https://nytimes.com/athletic/6729753/2025/10/18/maple-leafs-anthony-stolarz-kraken-comments/
+
+**Messi ends MLS regular season with super hat trick, wins 2025 Golden Boot**\
+`Lionel Messi capped his stellar MLS regular season with a hat trick and the league's Golden Boot honors`\
+https://nytimes.com/athletic/6693994/2025/10/18/messi-mls-golden-boot-hat-trick-assists-leader-bouanga-dreyer/
+
 **Temwa Chawinga wheeled out with leg injury in Current's upset loss to Dash**\
 `Chawinga, 27, is the reigning NWSL MVP and Golden Boot winner.`\
 https://nytimes.com/athletic/6729743/2025/10/18/temwa-chawinga-injury-current-dash/
 
-**What Buster Posey's pursuit of Tony Vitello means, and what comes next for Giants**\
-`The Giants' pursuit of Vitello could indicate a change in how teams look at their managerial vacancies.`\
+**What Buster Posey's pursuit of Tony Vitello means — and what comes next for Giants**\
+`The Giants' pursuit of Vitello, a college baseball coach, could indicate a change in how teams look at their managerial vacancies.`\
 https://nytimes.com/athletic/6729703/2025/10/18/sf-giants-tony-vitello-manager-buster-posey-college-coaches/
 
 **In first game after firing James Franklin, Penn State comes up just short at Iowa**\
@@ -25,16 +37,4 @@ https://nytimes.com/athletic/6729592/2025/10/18/green-bay-packers-flight-delay/
 **No. 7 Texas Tech goes down at Arizona State: What now for Red Raiders' CFP hopes?**\
 `The Sun Devils quarterback showed he's one of the nation's top playmakers while dealing the Red Raiders a blow to their CFP hopes.`\
 https://nytimes.com/athletic/6729538/2025/10/18/arizona-state-beats-texas-tech/
-
-**Oilers takeaways: Offensive struggles, Ryan Nugent-Hopkins' touch and Connor Brown reflects**\
-`Nugent-Hopkins scored twice and Curtis Lazar notched his first goal, but the Oilers fell 5-3 to the Devils Saturday.`\
-https://nytimes.com/athletic/6729489/2025/10/18/oilers-devils-ryan-nugent-hopkins-connor-brown/
-
-**UAB hands No. 22 Memphis its first loss days after firing coach Trent Dilfer**\
-`Interim coach Alex Mortensen, the son of ex-NFL analyst Chris Mortensen, and the Blazers upset the Tigers, who were stopped late at the 11.`\
-https://nytimes.com/athletic/6729440/2025/10/18/uab-upsets-memphis-alex-mortensen-trent-dilfer/
-
-**College Football Playoff 2025 projections: The most likely bracket with Week 8 underway**\
-`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
-https://nytimes.com/athletic/6560541/2025/10/18/college-football-playoff-bracket-projections-odds/
 
