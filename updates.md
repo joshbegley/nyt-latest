@@ -1,3 +1,7 @@
+**Temwa Chawinga wheeled out with leg injury in Current's upset loss to Dash**\
+`Chawinga, 27, is the reigning NWSL MVP and Golden Boot winner.`\
+https://nytimes.com/athletic/6729743/2025/10/18/temwa-chawinga-injury-current-dash/
+
 **What Buster Posey's pursuit of Tony Vitello means, and what comes next for Giants**\
 `The Giants' pursuit of Vitello could indicate a change in how teams look at their managerial vacancies.`\
 https://nytimes.com/athletic/6729703/2025/10/18/sf-giants-tony-vitello-manager-buster-posey-college-coaches/
