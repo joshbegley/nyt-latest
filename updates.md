@@ -1,3 +1,7 @@
+**Dyche emerging as leading contender for Forest job**\
+`Forest had also held talks with Roberto Mancini but it now appears unlikely the Italian replaces Ange Postecoglou.`\
+https://nytimes.com/athletic/6349486/2025/10/19/sean-dyche-nottingham-forest-mancini/
+
 **What are the Dolphins doing? How scary are the Chiefs? Our experts' Week 7 takeaways**\
 `Also: The Eagles’ passing game took off in a win over the Vikings, while things went from bad to worse for the New York Jets.`\
 https://nytimes.com/athletic/6731133/2025/10/19/nfl-takeaways-week-7-scores-results/

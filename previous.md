@@ -1,3 +1,7 @@
+**Dyche emerging as leading contender for Forest job**\
+`Forest had also held talks with Roberto Mancini but it now appears unlikely the Italian replaces Ange Postecoglou.`\
+https://nytimes.com/athletic/6349486/2025/10/19/sean-dyche-nottingham-forest-mancini/
+
 **What are the Dolphins doing? How scary are the Chiefs? Our experts' Week 7 takeaways**\
 `Also: The Eagles’ passing game took off in a win over the Vikings, while things went from bad to worse for the New York Jets.`\
 https://nytimes.com/athletic/6731133/2025/10/19/nfl-takeaways-week-7-scores-results/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6731154/2025/10/19/saints-bears-score-result-takeaw
 **U.S. Grand Prix briefing: Max Verstappen enjoys perfect weekend, Norris defeats Leclerc**\
 `Max Verstappen is now just 40 points back from drivers’ championship leader Oscar Piastri`\
 https://nytimes.com/athletic/6731244/2025/10/19/u-s-grand-prix-briefing-max-verstappen/
-
-**Dolphins-Browns takeaways: Tua benched as blowout loss sends Miami to 1-6**\
-`Miami's flat performance increases focus on the status of head coach Mike McDaniel.`\
-https://nytimes.com/athletic/6730769/2025/10/19/dolphins-browns-score-result-takeaways-nfl/
 
