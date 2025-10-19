@@ -1,3 +1,7 @@
+**Who should the Dodgers rather face in the World Series, the Mariners or Blue Jays?**\
+`As Seattle and Toronto continue to duke it out on the ALCS, Dodgers fans can start analyzing the best potenial matchup.`\
+https://nytimes.com/athletic/6730016/2025/10/19/dodgers-world-series-matchup-mariners-blue-jays/
+
 **Sharks apologize for scoreboard message praising ICE on night celebrating Hispanic heritage**\
 `The message was shown during the first period of the game between the Sharks and the Penguins on "Los Tiburones Night."`\
 https://nytimes.com/athletic/6730478/2025/10/19/sharks-scoreboard-hispanic-heritage/
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/19/dining/this-easy-pumpkin-cake-is-perfect-for-swea
 **Blue Jackets Sunday Gathering: The franchise's first pick nearly landed elsewhere**\
 `When members of the inaugural Blue Jackets team were honored this past week, Klesla had a brush with what might have been.`\
 https://nytimes.com/athletic/6727303/2025/10/19/blue-jackets-rostislav-klesla-injuries/
-
-**Yohe's 10 observations: Tristan Jarry shines as Penguins blank Sharks**\
-`Jarry pitched a shutout as the Penguins won 3-0 on Saturday in San Jose.`\
-https://nytimes.com/athletic/6728801/2025/10/19/penguins-tristan-jarry-sharks-observations/
 

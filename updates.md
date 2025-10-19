@@ -1,3 +1,11 @@
+**Sharks apologize for scoreboard message praising ICE on night celebrating Hispanic heritage**\
+`The message was shown during the first period of the game between the Sharks and the Penguins on "Los Tiburones Night."`\
+https://nytimes.com/athletic/6730478/2025/10/19/sharks-scoreboard-hispanic-heritage/
+
+**SEC vibes after Week 8: Vanderbilt, Missouri and a year of constant parity**\
+`Seven SEC teams still have one win or fewer — including Vanderbilt, Missouri and Ole Miss, but not Texas, LSU or Florida.`\
+https://nytimes.com/athletic/6730539/2025/10/19/sec-football-rankings-week-8-vanderbilt-alabama-missouri/
+
 **Lowetide: Why Oilers' goalie of the future might be in Fort Wayne, Indiana**\
 `Something unusual is happening in the career of Nathaniel Day, the Oilers' sixth round pick in 2023.`\
 https://nytimes.com/athletic/6728750/2025/10/19/edmonton-oilers-goalie-prospect-nathaniel-day/
