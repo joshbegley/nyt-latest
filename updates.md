@@ -1,3 +1,15 @@
+**George Santos Is Back on TV Two Days After His Release From Prison**\
+`Mr. Santos, the disgraced congressman from Long Island, lashed out at the warden of the prison where he had been held and suggested he was now free to get Botox.`\
+https://nytimes.com/2025/10/19/nyregion/santos-cnn-fox-prison-release.html
+
+**See What Was Taken in the Louvre Heist**\
+`The stolen items include glittering royal tiaras, necklaces and earrings.`\
+https://nytimes.com/2025/10/19/world/europe/louvre-heist-items.html
+
+**Jets bench struggling QB Justin Fields vs. Panthers, turn to Tyrod Taylor**\
+`Fields completed just 6 of 12 passes for 46 yards in the first half Sunday against the Panthers.`\
+https://nytimes.com/athletic/6731216/2025/10/19/jets-justin-fields-benched-tyrod-taylor/
+
 **For Virginia Tech, the move is simple: Go all in for James Franklin**\
 `Franklin is the best candidate to take the Hokies back to the glory days they enjoyed under Frank Beamer.`\
 https://nytimes.com/athletic/6730626/2025/10/19/james-franklin-virginia-tech-coach-candidates/
