@@ -1,3 +1,11 @@
+**College Football Playoff takeaways: Vandy is for real, and Georgia Tech may be a team of destiny**\
+`If the mere thought of a 9-3 playoff team makes you cringe, well, consider this a warning.`\
+https://nytimes.com/athletic/6730031/2025/10/19/college-football-playoff-race-miami-texas-tech-vanderbilt/
+
+**Louvre Closed After Robbery**\
+`It was not immediately clear what, if any, of the Paris museum’s priceless artifacts had been stolen.`\
+https://nytimes.com/2025/10/19/world/europe/louvre-paris-robbery.html
+
 **NFL Week 7 storylines: Jared Goff-Baker Mayfield showdown, Mike Vrabel's revenge game**\
 `The defending champion Eagles are in crisis after two straight losses and need to get back on track against their former QB Carson Wentz. `\
 https://nytimes.com/athletic/6723712/2025/10/19/nfl-week-7-jared-goff-baker-mayfield-vrabel/
