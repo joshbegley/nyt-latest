@@ -1,3 +1,11 @@
+**Panthers-Jets broadcast temporarily affected by audio problems**\
+`Technical difficulties became a talking point during the first half of Jets-Panthers, after the Fox broadcast temporarily went silent.`\
+https://nytimes.com/athletic/6731135/2025/10/19/jets-panthers-broadcast-audio-issues/
+
+**La Liga asked broadcasters not to show player protests against game in the U.S.**\
+`La Liga has announced plans to play Villarreal-Barcelona in Miami after UEFA "regrettably" approved the idea earlier this month`\
+https://nytimes.com/athletic/6730113/2025/10/19/la-liga-protests-barcelona-villarreal/
+
 **Slot says Liverpool's poor run has not impacted his squad's confidence**\
 `Sunday's defeat by Man Utd means Liverpool have lost four games in a row across all competitions for the first time since November 2014.`\
 https://nytimes.com/athletic/6731202/2025/10/19/arne-slot-liverpool-man-utd/
