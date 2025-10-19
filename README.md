@@ -1,3 +1,7 @@
+**Notre Dame runs all over USC in rivalry win with CFP stakes: Key takeaways**\
+`Jeremiyah Love rushed for 228 yards to lead No. 13 Notre Dame to a 34-24 win over No. 20 USC in a College Football Playoff statement win.`\
+https://nytimes.com/athletic/6729710/2025/10/18/notre-dame-usc-score-recap-football/
+
 **MLS Cup 2025 playoffs: Matchups, bracket set after Decision Day drama**\
 `The road to the 2025 MLS Cup final is set following the conclusion of Decision Day`\
 https://nytimes.com/athletic/6693903/2025/10/18/mls-cup-playoff-matchups-bracket-2025/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6729630/2025/10/18/mariners-vs-blue-jays-stream-how
 **Packers flight delayed for hours because of mechanical issues with plane**\
 `Green Bay's team flight took off about six hours after its originally scheduled time for the team's game Sunday against the Cardinals.`\
 https://nytimes.com/athletic/6729592/2025/10/18/green-bay-packers-flight-delay/
-
-**No. 7 Texas Tech goes down at Arizona State: What now for Red Raiders' CFP hopes?**\
-`The Sun Devils quarterback showed he's one of the nation's top playmakers while dealing the Red Raiders a blow to their CFP hopes.`\
-https://nytimes.com/athletic/6729538/2025/10/18/arizona-state-beats-texas-tech/
 
