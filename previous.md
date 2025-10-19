@@ -1,3 +1,11 @@
+**The New York Times in Print for Sunday, Oct. 19, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/19/todays-new-york-times
+
+**Virginia Roberts Giuffre, Jeffrey Epstein and the Trauma We Force Victims to Relive**\
+`Virginia Roberts Giuffre spent so much of her life telling the story of her abuse.`\
+https://nytimes.com/2025/10/19/opinion/epstein-survivor-trauma.html
+
 **Vance Flexes the Marines’ Might as Thousands Protest Trump’s Agenda**\
 `Vice President JD Vance’s trip to a military base in California illustrated rising tensions between the federal government and Democratic leaders.`\
 https://nytimes.com/2025/10/19/us/politics/vance-marines-california-protests.html
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6728275/2025/10/19/jude-bellinghams-eye-catching-re
 **Jack Wilshere, the manager**\
 `A 2-0 debut defeat by Mansfield Town showed the size of the task facing the former Arsenal midfielder at Luton Town`\
 https://nytimes.com/athletic/6729105/2025/10/19/jack-wilshere-luton-town-manager/
-
-**It is time for Wrexham to play Kieffer Moore and Nathan Broadhead together**\
-`Phil Parkinson spoke of a lack of composure in the defeat to Stoke City. Is it time for him to make most of his sizeable squad?`\
-https://nytimes.com/athletic/6722084/2025/10/19/it-is-time-for-wrexham-to-play-kieffer-moore-and-nathan-broadhead-together/
-
-**Wild felt they 'deserved better' in overtime loss to Flyers: Takeaways**\
-`The Wild's 2-1 overtime loss to Philadelphia was their fourth loss in their last five games, including the first three on this road trip.`\
-https://nytimes.com/athletic/6729790/2025/10/19/wild-flyers-takeaways-overtime-tarasenko/
 

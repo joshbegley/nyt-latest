@@ -1,3 +1,11 @@
+**The New York Times in Print for Sunday, Oct. 19, 2025**\
+``\
+https://nytimes.com/issue/todayspaper/2025/10/19/todays-new-york-times
+
+**Virginia Roberts Giuffre, Jeffrey Epstein and the Trauma We Force Victims to Relive**\
+`Virginia Roberts Giuffre spent so much of her life telling the story of her abuse.`\
+https://nytimes.com/2025/10/19/opinion/epstein-survivor-trauma.html
+
 **Vance Flexes the Marines’ Might as Thousands Protest Trump’s Agenda**\
 `Vice President JD Vance’s trip to a military base in California illustrated rising tensions between the federal government and Democratic leaders.`\
 https://nytimes.com/2025/10/19/us/politics/vance-marines-california-protests.html
