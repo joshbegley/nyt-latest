@@ -1,3 +1,7 @@
+**How to watch Mariners at Blue Jays: Game 6 Time, TV, streaming**\
+`Find out how to watch the Seattle Mariners play the Toronto Blue Jays, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6729630/2025/10/18/mariners-vs-blue-jays-stream-how-to-watch-oct-19/
+
 **Packers flight delayed for hours because of mechanical issues with plane**\
 `Green Bay's team flight took off about six hours after its originally scheduled time for the team's game Sunday against the Cardinals.`\
 https://nytimes.com/athletic/6729592/2025/10/18/green-bay-packers-flight-delay/
