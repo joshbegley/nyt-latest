@@ -1,3 +1,7 @@
+**Quenneville returns to Chicago for first time since reinstatement: 'I could have been more forceful'**\
+`Quenneville was reinstated by NHL commissioner Gary Bettman in July 2024 but did not return to coaching until this season.`\
+https://nytimes.com/athletic/6731502/2025/10/19/joel-quenneville-chicago-blackhawks-return-reinstatement/
+
 **The Contagious Gen Z Revolutions**\
 `It’s a good time to start paying attention to the youth-led protests that are spreading around the world and that have toppled governments.`\
 https://nytimes.com/2025/10/19/world/gen-z-revolutions-protests-louvre-heist-gaza.html
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6730769/2025/10/19/dolphins-browns-score-result-tak
 **Panthers-Jets: Carolina wins as Bryce Young goes down with ankle injury**\
 `Both teams relied on their backup quarterbacks to finish the game — Tyrod Taylor for New York and Andy Dalton for Carolina.`\
 https://nytimes.com/athletic/6730756/2025/10/19/panthers-jets-score-result-takeaways-nfl/
-
-**Eagles-Vikings takeaways: DeVonta Smith, A.J. Brown break out in Philly's win**\
-`Philadelphia halted a two-game losing streak thanks in part to Smith and Brown, who combined for 304 receiving yards.`\
-https://nytimes.com/athletic/6730714/2025/10/19/eagles-vikings-score-result-takeaways-nfl/
 

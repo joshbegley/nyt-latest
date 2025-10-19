@@ -1,3 +1,11 @@
+**The Contagious Gen Z Revolutions**\
+`It’s a good time to start paying attention to the youth-led protests that are spreading around the world and that have toppled governments.`\
+https://nytimes.com/2025/10/19/world/gen-z-revolutions-protests-louvre-heist-gaza.html
+
+**Eagles-Vikings takeaways: DeVonta Smith, A.J. Brown break out in Philly's win**\
+`Philadelphia halted a two-game losing streak thanks in part to Smith and Brown, who combined for 304 receiving yards.`\
+https://nytimes.com/athletic/6730714/2025/10/19/eagles-vikings-score-result-takeaways-nfl/
+
 **Jaguars lose to Rams amid penalties and an offense struggling to click**\
 `Jacksonville started slow and never recovered Sunday in London, losing 35-7 for its second straight defeat after a 4-1 season start.`\
 https://nytimes.com/athletic/6731237/2025/10/19/jaguars-loss-rams-london/
