@@ -1,3 +1,7 @@
+**How a trio of Chelsea half-time changes served to wreck Nottingham Forest's game plan**\
+`The resources at Enzo Maresca's disposal allow him to be more tactically flexible, as his half-time switches demonstrated at the City Ground`\
+https://nytimes.com/athletic/6729459/2025/10/19/chelsea-forest-guiu-pedro-analysis/
+
 **The New York Times in Print for Sunday, Oct. 19, 2025**\
 ``\
 https://nytimes.com/issue/todayspaper/2025/10/19/todays-new-york-times
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6723366/2025/10/19/liverpool-man-utd-prediction-tea
 **Explained: Jude Bellingham's eye-catching training photo**\
 `A photograph of Jude Bellingham in training posted by Real Madrid on social media this week has generated a lot of intrigue`\
 https://nytimes.com/athletic/6728275/2025/10/19/jude-bellinghams-eye-catching-real-madrid-training-photo-explained/
-
-**Jack Wilshere, the manager**\
-`A 2-0 debut defeat by Mansfield Town showed the size of the task facing the former Arsenal midfielder at Luton Town`\
-https://nytimes.com/athletic/6729105/2025/10/19/jack-wilshere-luton-town-manager/
 
