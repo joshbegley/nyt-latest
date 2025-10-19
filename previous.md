@@ -1,3 +1,7 @@
+**Blue Jays ALCS off-day notes: George Springer's injury, Trey Yesavage's big chance**\
+`Toronto hopes to have their designated hitter back for Sunday's crucial Game 6 against the Seattle Mariners to stave off ALCS elimination.`\
+https://nytimes.com/athletic/6729608/2025/10/18/blue-jays-george-springer-injury/
+
 **How to watch Mariners at Blue Jays: Game 6 Time, TV, streaming**\
 `Find out how to watch the Seattle Mariners play the Toronto Blue Jays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6729630/2025/10/18/mariners-vs-blue-jays-stream-how-to-watch-oct-19/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6729331/2025/10/18/ohio-state-wisconsin-score-resul
 **Georgia rallies to beat Ole Miss, shake up SEC race in 43-35 shootout: Key takeaways**\
 `Georgia (6-1, 4-1 SEC) trailed 35-26 in the second half but scored the final 17 points.`\
 https://nytimes.com/athletic/6729323/2025/10/18/ole-miss-vs-georgia-sec-showdown-results-takeaways/
-
-**Large Protests Flood Streets to Denounce Trump**\
-`Known as No Kings Day, the demonstrations built off a similar event in June.`\
-https://nytimes.com/video/us/politics/100000010467262/no-kings-protests-trump-united-states.html
 

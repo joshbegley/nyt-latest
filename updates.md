@@ -1,3 +1,7 @@
+**Blue Jays ALCS off-day notes: George Springer's injury, Trey Yesavage's big chance**\
+`Toronto hopes to have their designated hitter back for Sunday's crucial Game 6 against the Seattle Mariners to stave off ALCS elimination.`\
+https://nytimes.com/athletic/6729608/2025/10/18/blue-jays-george-springer-injury/
+
 **How to watch Mariners at Blue Jays: Game 6 Time, TV, streaming**\
 `Find out how to watch the Seattle Mariners play the Toronto Blue Jays, with time, TV channel and streaming information.`\
 https://nytimes.com/athletic/6729630/2025/10/18/mariners-vs-blue-jays-stream-how-to-watch-oct-19/
