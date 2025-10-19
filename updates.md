@@ -1,3 +1,7 @@
+**Notre Dame was at its best vs. USC, dictating terms with a physicality reminiscent of 2024**\
+`In the final scheduled game in the series, Notre Dame got the last word. And it did so by punching USC in the mouth.`\
+https://nytimes.com/athletic/6730210/2025/10/19/notre-dame-was-at-its-best-vs-usc-dictating-terms-with-a-physicality-reminiscent-of-2024/
+
 **So You’re Celebrating Diwali Now…**\
 `We explain why the South Asian festival of lights is becoming more popular in Western countries.`\
 https://nytimes.com/2025/10/19/briefing/diwali-festival-lights.html
