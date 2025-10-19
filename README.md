@@ -1,3 +1,7 @@
+**Arizona State rallies past No. 7 Texas Tech, shaking up Big 12, CFP race**\
+`The Sun Devils quarterback showed he's one of the nation's top playmakers while dealing the Red Raiders a blow to their CFP hopes.`\
+https://nytimes.com/athletic/6729538/2025/10/18/arizona-state-beats-texas-tech/
+
 **Oilers takeaways: Offensive struggles, Ryan Nugent-Hopkins' touch and Connor Brown reflects**\
 `Nugent-Hopkins scored twice and Curtis Lazar notched his first goal, but the Oilers fell 5-3 to the Devils Saturday.`\
 https://nytimes.com/athletic/6729489/2025/10/18/oilers-devils-ryan-nugent-hopkins-connor-brown/
@@ -18,7 +22,7 @@ https://nytimes.com/2025/10/18/us/minnesota-amish-buggy-crash-sentence.html
 `Ohio State dominated Wisconsin 34-0 behind QB Julian Sayin and its stingy defense, increasing the pressure on Fickell, a former Buckeye.`\
 https://nytimes.com/athletic/6729331/2025/10/18/ohio-state-wisconsin-score-result-luke-fickell/
 
-**No. 5 Ole Miss vs. No. 9 Georgia: Bulldogs' rally shakes up SEC race and more takeaways**\
+**Georgia rallies to beat Ole Miss, shake up SEC race in 43-35 shootout: Key takeaways**\
 `Georgia (6-1, 4-1 SEC) trailed 35-26 in the second half but scored the final 17 points.`\
 https://nytimes.com/athletic/6729323/2025/10/18/ole-miss-vs-georgia-sec-showdown-results-takeaways/
 
@@ -33,8 +37,4 @@ https://nytimes.com/2025/10/18/nyregion/cuomo-mamdani-imam.html
 **Social Media, Pleas From Allies and Prison Essays: How Santos Won His Freedom**\
 `On Friday evening, President Trump commuted the sentence of former Representative George Santos. “Good luck George, have a great life!” the president said.`\
 https://nytimes.com/2025/10/18/nyregion/george-santos-prison-trump.html
-
-**Verstappen completes United States GP F1 pole ahead of title rivals Norris, Piastri**\
-`Max Verstappen beat Lando Norris to claim pole position for the 2025 F1 United States GP`\
-https://nytimes.com/athletic/6729304/2025/10/18/austin-f1-qualifying-result/
 
