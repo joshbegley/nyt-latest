@@ -1,3 +1,11 @@
+**Miss Major Griffin-Gracy, Trans Activist Who Saw It All, Dies**\
+`She spat in a policeman’s face at the Stonewall Riot, ran a nursing service during the AIDS crisis and boycotted Pride parades when they welcomed corporations.`\
+https://nytimes.com/2025/10/19/obituaries/miss-major-griffin-gracy-dead.html
+
+**Blazers, Toumani Camara agree to 4-year, $82 million extension: Source**\
+`Portland locks up a 25-year-old defensive star — Camara was named second-team All-Defense last season — who also has offensive upside.`\
+https://nytimes.com/athletic/6731728/2025/10/19/toumani-camara-contract-extension-portland-trail-blazers-nba/
+
 **The backstory of Patrick Mahomes' trick play vs. Raiders: 'That was hilarious'**\
 `Chiefs QB Patrick Mahomes faked out the Raiders — and CBS broadcasters — with his acting skills. Here's what happened.`\
 https://nytimes.com/athletic/6730847/2025/10/19/chiefs-patrick-mahomes-trick-play-raiders/
