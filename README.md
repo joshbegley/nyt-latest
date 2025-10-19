@@ -1,3 +1,7 @@
+**Curry College's Montie Quinn sets NCAA record with 522 rushing yards**\
+`The Division III Curry running back set the NCAA single-game rushing record with 522 yards in a 71-27 win over Nichols on Saturday.`\
+https://nytimes.com/athletic/6731636/2025/10/19/curry-montie-quinn-ncaa-rushing-record-522-yards/
+
 **Shaedon Sharpe, Trail Blazers agree to 4-year, $90 million contract extension**\
 `A key piece to the Trail Blazers' rebuild, Shaedon Sharpe will be staying in Portland for quite some time.`\
 https://nytimes.com/athletic/6724640/2025/10/19/shaedon-sharpe-contract-extension-blazers/
@@ -19,11 +23,11 @@ https://nytimes.com/athletic/6731688/2025/10/19/patriots-titans-mike-vrabel-afc-
 https://nytimes.com/2025/10/19/us/alaska-storm-flooding-evacuations.html
 
 **Blazers, Toumani Camara agree to 4-year, $82 million extension: Source**\
-`In his second season, Camara was named second-team All-Defense while averaging 1.5 steals per game.`\
+`Portland locks up a defensive star — Camara was named second-team All-Defense last season — who also has offensive upside.`\
 https://nytimes.com/athletic/6731728/2025/10/19/toumani-camara-contract-extension-portland-trail-blazers-nba/
 
-**Commanders QB Jayden Daniels exits with hamstring injury vs. Cowboys**\
-`Daniels left Sunday's game in the third quarter and headed to the locker room. He's questionable to return.`\
+**Commanders QB Jayden Daniels ruled out vs. Cowboys with hamstring injury**\
+`Daniels left Sunday's game in the third quarter and headed to the locker room. He was later ruled out.`\
 https://nytimes.com/athletic/6731747/2025/10/19/jayden-daniels-commanders-hamstring-injury/
 
 **U.S. Grand Prix: Submit your questions for our F1 mailbag**\
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6731723/2025/10/19/u-s-grand-prix-f1-mailbag/
 **Submit your questions for the next Big Ten football mailbag**\
 `What's on your mind about the conference's most intriguing storylines, on and off the field?`\
 https://nytimes.com/athletic/6731647/2025/10/19/submit-your-questions-for-the-next-big-ten-football-mailbag/
-
-**Thieves Steal ‘Priceless’ Jewels From the Louvre Museum in Paris**\
-`Visitors at the Louvre were evacuated on Sunday after thieves broke into a gallery housing the French crown jewels. Investigators believe multiple experienced robbers were involved.`\
-https://nytimes.com/video/world/europe/100000010468232/world-europe-paris-louvre-heist-crown-jewels.html
 

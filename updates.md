@@ -1,3 +1,7 @@
+**Shaedon Sharpe, Trail Blazers agree to 4-year, $90 million contract extension**\
+`A key piece to the Trail Blazers' rebuild, Shaedon Sharpe will be staying in Portland for quite some time.`\
+https://nytimes.com/athletic/6724640/2025/10/19/shaedon-sharpe-contract-extension-blazers/
+
 **Shaedon Sharpe, Trail Blazers agree to four-year, $90 million contract extension**\
 `A key piece to the Trail Blazers' rebuild, Shaedon Sharpe will be staying in Portland for quite some time.`\
 https://nytimes.com/athletic/6724640/2025/10/19/shaedon-sharpe-contract-extension-blazers/
