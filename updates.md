@@ -1,3 +1,7 @@
+**Predicting the College Football Playoff: Georgia jumps, Miami and Texas Tech slide**\
+`The College Football Playoff margin for error for Miami and Texas Tech is much slimmer following Week 8 losses.`\
+https://nytimes.com/athletic/6730052/2025/10/19/college-football-playoff-2025-bracket-prediction-week-8/
+
 **Kevin Durant, Rockets reach 2-year, $90 million contract extension: Source**\
 `Durant’s new deal keeps him under contract with the Rockets through 2027-28 and opens the possibility of him ending his career in Houston.`\
 https://nytimes.com/athletic/6680237/2025/10/19/kevin-durant-contract-extension-rockets-nba-amen-thompson/
