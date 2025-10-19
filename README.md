@@ -1,3 +1,11 @@
+**The Briefing - Tottenham 1 Villa 2: What went wrong after flying start? Did Danso prove a point?**\
+`The Athletic breaks down the talking points from Tottenham's home defeat to Aston Villa `\
+https://nytimes.com/athletic/6728282/2025/10/19/tottenham-1-aston-villa-2-thomas-frank-analysis/
+
+**This Easy Pumpkin Cake Is Perfect for Sweater Weather**\
+`Yossy Arefi’s crumb cake is warmly spiced, topped with a thick blanket of streusel and, above all, utterly relaxed.`\
+https://nytimes.com/2025/10/19/dining/this-easy-pumpkin-cake-is-perfect-for-sweater-weather.html
+
 **Blue Jackets Sunday Gathering: The franchise's first pick nearly landed elsewhere**\
 `When members of the inaugural Blue Jackets team were honored this past week, Klesla had a brush with what might have been.`\
 https://nytimes.com/athletic/6727303/2025/10/19/blue-jackets-rostislav-klesla-injuries/
@@ -29,12 +37,4 @@ https://nytimes.com/athletic/6560541/2025/10/19/college-football-playoff-bracket
 **Predicting the College Football Playoff: Georgia jumps, Miami and Texas Tech slide**\
 `The College Football Playoff margin for error for Miami and Texas Tech is much slimmer following Week 8 losses.`\
 https://nytimes.com/athletic/6730052/2025/10/19/college-football-playoff-2025-bracket-prediction-week-8/
-
-**Kevin Durant, Rockets reach 2-year, $90 million contract extension: Source**\
-`Durant’s new deal keeps him under contract with the Rockets through 2027-28 and opens the possibility of him ending his career in Houston.`\
-https://nytimes.com/athletic/6680237/2025/10/19/kevin-durant-contract-extension-rockets-nba-amen-thompson/
-
-**Cardinals to start QB Jacoby Brissett vs. Green Bay with Kyler Murray out: Source**\
-`Brissett, who is 19-35 as a starter, will start as Arizona's quarterback for the second straight week with Kyler Murray out.`\
-https://nytimes.com/athletic/6729282/2025/10/19/jacoby-brissett-start-cardinals-packers/
 
