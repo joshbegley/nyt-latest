@@ -1,3 +1,27 @@
+**Far From Gaza, a Palestinian Enclave Thrives, Even as War Feels Near**\
+`Fifteen miles west of Manhattan, in Paterson, N.J., a community is directly, and often painfully, connected to a conflict half a world away.`\
+https://nytimes.com/2025/10/19/nyregion/palestinians-new-jersey-gaza-war.html
+
+**Gold Bars, Gold Necklaces, Gold Earrings: The Rush to Cash In**\
+`Gold prices are soaring to historic levels, drawing newcomers and regulars alike to New York’s diamond district.`\
+https://nytimes.com/2025/10/19/nyregion/diamond-district-gold-rush.html
+
+**A Tower on Billionaires’ Row Is Full of Cracks. Who’s to Blame?**\
+`A superstar team of architects and developers insisted on an all-white concrete facade. It could explain some of the building’s problems.`\
+https://nytimes.com/2025/10/19/nyregion/432-park-avenue-condo-tower.html
+
+**A Tower on Billionaires’ Row Is Full of Cracks. Who’s to Blame?**\
+`Designed to be the crown jewel of Billionaires’ Row in New York City, the supertall tower at 432 Park Avenue is now facing serious problems.`\
+https://nytimes.com/video/realestate/luxury/100000010458698/a-tower-on-billionaires-row-is-full-of-cracks-whos-to-blame.html
+
+**‘I Busted Out My Rusty Ballet Moves and Swung From a Pole’**\
+`A cabby shares the secret to playing trumpet, an empty car on the F and more reader tales of New York City in this week’s Metropolitan Diary.`\
+https://nytimes.com/2025/10/19/nyregion/metropolitan-diary.html
+
+**Spelling Bee Forum**\
+`Feeling stuck on today’s puzzle? We can help.`\
+https://nytimes.com/2025/10/19/crosswords/spelling-bee-forum.html
+
 **Inside Ange Postecoglou's 39 days at Nottingham Forest**\
 `After eight games without a win, owner Evangelos Marinakis had little choice but to sack a manager who never felt like a good fit at Forest`\
 https://nytimes.com/athletic/6729114/2025/10/19/nottingham-forest-ange-postecoglou-inside-mancini/
