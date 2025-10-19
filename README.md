@@ -1,3 +1,7 @@
+**How to watch Oilers vs. Red Wings: Time, TV, streaming**\
+`Find out how to watch the Edmonton Oilers play the Detroit Red Wings, with time, TV channel and streaming information.`\
+https://nytimes.com/athletic/6730321/2025/10/19/oilers-vs-red-wings-stream-how-to-watch-oct-19/
+
 **Williams’ American owner could have flipped the F1 team by now. But it's holding out to win**\
 `The Williams F1 team was bought by wealthy investors in 2020. They could've flipped it for a big profit already, but are still not selling`\
 https://nytimes.com/athletic/6729062/2025/10/19/williams-f1-owner-dorilton/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6729545/2025/10/19/michigan-washington-sherrone-moo
 **Noah Cates' OT winner highlights Flyers' most consistent line**\
 `Sometimes there are lines in hockey that just work, and it’s an exercise in futility to pinpoint why.`\
 https://nytimes.com/athletic/6729852/2025/10/19/philadelphia-flyers-noah-cates-overtime/
-
-**Notre Dame was at its best vs. USC, dictating terms with a physicality reminiscent of 2024**\
-`In the final scheduled game in the series, Notre Dame got the last word. And it did so by punching USC in the mouth.`\
-https://nytimes.com/athletic/6730210/2025/10/19/notre-dame-usc-jeremiyah-love-marcus-freeman/
 
