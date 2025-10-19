@@ -1,3 +1,11 @@
+**Oilers takeaways: Offensive struggles, Ryan Nugent-Hopkins' touch and Connor Brown reflects**\
+`Nugent-Hopkins scored twice and Curtis Lazar notched his first goal, but the Oilers fell 5-3 to the Devils Saturday.`\
+https://nytimes.com/athletic/6729489/2025/10/18/oilers-devils-ryan-nugent-hopkins-connor-brown/
+
+**College Football Playoff 2025 projections: The most likely bracket with Week 8 underway**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/10/18/college-football-playoff-bracket-projections-odds/
+
 **UAB hands Memphis its first loss days after firing Trent Dilfer**\
 `The Blazers stopped No. 22 Memphis from inside the 10 yard line in the final seconds in its first game after firing its head coach.`\
 https://nytimes.com/athletic/6729440/2025/10/18/uab-hands-memphis-its-first-loss-days-after-firing-trent-dilfer/

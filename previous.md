@@ -1,6 +1,14 @@
+**Oilers takeaways: Offensive struggles, Ryan Nugent-Hopkins' touch and Connor Brown reflects**\
+`Nugent-Hopkins scored twice and Curtis Lazar notched his first goal, but the Oilers fell 5-3 to the Devils Saturday.`\
+https://nytimes.com/athletic/6729489/2025/10/18/oilers-devils-ryan-nugent-hopkins-connor-brown/
+
 **UAB hands Memphis its first loss days after firing Trent Dilfer**\
 `The Blazers stopped No. 22 Memphis from inside the 10 yard line in the final seconds in its first game after firing its head coach.`\
 https://nytimes.com/athletic/6729440/2025/10/18/uab-hands-memphis-its-first-loss-days-after-firing-trent-dilfer/
+
+**College Football Playoff 2025 projections: The most likely bracket with Week 8 underway**\
+`Our College Football Playoff predictions model is back. Check here for regular updates on CFP and national championship odds for 2025.`\
+https://nytimes.com/athletic/6560541/2025/10/18/college-football-playoff-bracket-projections-odds/
 
 **Woman Who Tried to Let Her Twin Take Blame for Fatal Buggy Crash Gets 4 Years in Prison**\
 `The crash killed two Amish children and injured two others in rural Minnesota in 2023.`\
@@ -29,12 +37,4 @@ https://nytimes.com/2025/10/18/nyregion/george-santos-prison-trump.html
 **Verstappen completes United States GP F1 pole ahead of title rivals Norris, Piastri**\
 `Max Verstappen beat Lando Norris to claim pole position for the 2025 F1 United States GP`\
 https://nytimes.com/athletic/6729304/2025/10/18/austin-f1-qualifying-result/
-
-**Sabres thoughts: Newcomers Alex Lyon, Josh Doan fueling Buffalo's turnaround**\
-`Buffalo's rough start to the season felt like a distant memory Saturday as Doan scored two goals to propel the Sabres to a 3-0 win.`\
-https://nytimes.com/athletic/6729344/2025/10/18/sabres-panthers-alex-lyon-josh-doan/
-
-**Same Difference**\
-`Daniel Grinberg’s Sunday puzzle has everything you need, and nothing you don’t.`\
-https://nytimes.com/2025/10/18/crosswords/daily-puzzle-2025-10-19.html
 
