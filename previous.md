@@ -1,3 +1,7 @@
+**U.S. Grand Prix: Submit your questions for our F1 mailbag**\
+`Well, it wasn&#8217;t the most thrilling two hours of our lives, but the 2025 U.`\
+https://nytimes.com/athletic/6731723/2025/10/19/u-s-grand-prix-f1-mailbag/
+
 **Submit your questions for the next Big Ten football mailbag**\
 `What's on your mind about the conference's most intriguing storylines, on and off the field?`\
 https://nytimes.com/athletic/6731647/2025/10/19/submit-your-questions-for-the-next-big-ten-football-mailbag/
@@ -33,8 +37,4 @@ https://nytimes.com/athletic/6731502/2025/10/19/joel-quenneville-chicago-blackha
 **The Contagious Gen Z Revolutions**\
 `It’s a good time to start paying attention to the youth-led protests that are spreading around the world and that have toppled governments.`\
 https://nytimes.com/2025/10/19/world/gen-z-revolutions-protests-louvre-heist-gaza.html
-
-**Jaguars lose to Rams amid penalties and an offense struggling to click**\
-`Jacksonville started slow and never recovered Sunday in London, losing 35-7 for its second straight defeat after a 4-1 season start.`\
-https://nytimes.com/athletic/6731237/2025/10/19/jaguars-loss-rams-london/
 
