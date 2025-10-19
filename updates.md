@@ -1,3 +1,7 @@
+**Vance Flexes the Marines’ Might as Thousands Protest Trump’s Agenda**\
+`Vice President JD Vance’s trip to a military base in California illustrated rising tensions between the federal government and Democratic leaders.`\
+https://nytimes.com/2025/10/19/us/politics/vance-marines-california-protests.html
+
 **How do Australia replace Pat Cummins?**\
 `Scott Boland is the favourite to replace the injured captain in Perth, but Australia may have to adopt a role-based and venue-specific plan`\
 https://nytimes.com/athletic/6725748/2025/10/19/pat-cummins-ashes-australia-boland-options/
